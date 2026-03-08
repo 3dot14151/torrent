@@ -1,3 +1,32 @@
+###  Публикация: 1255629   (364367) от 18.10.2018
+
+La Dispute - Somewhere At The Bottom Of The River Between Vega And Altair (2009) [FLAC|Lossless|tracks + .cue] <Rock, Hardcore, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Such Small Hands (1:36)
+ 02. Said The King To The River (4:01)
+ 03. New Storms For Older Lovers (5:00)
+ 04. Damaged Goods (2:56)(   Читать дальше...   )Жанр: Rock, Hardcore, PunkПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C24023BA5E9CA58474F665AB2B59842FD7F58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255624   (364365) от 18.10.2018
 
 The Magic Band - Back To The Front (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Blues Rock, Jazz-Rock>
@@ -716,35 +745,6 @@ The Stranglers - Dreamtime (1986) [FLAC|image+.cue]<Punk, Post-punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A177C158AC64EA6A528A29B8A71262939CC571A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952316   (356056) от 01.11.2015
-
-The Enemy - It's Automatic (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock, Indie Rock, Britpop, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Let Nothing Get In The Way (4:41)
-02. It's Automatic (3:09)
-03. To The Waterfall (4:22)
-04. Everybody Needs Someone (3:45)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Britpop, Pop RockПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD49FA861D81D8F5D46AA6D7AC54561EDA20917D
 ```
 
 https://mybot314.ru/tekegram_catalog/

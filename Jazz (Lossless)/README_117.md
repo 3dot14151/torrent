@@ -1,3 +1,32 @@
+###  Публикация: 1139638   (659374) от 03.06.2017
+
+Carla Bley - Looking For America (2003) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Experimental Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grand Mother [00:54]
+02. The National Anthem [21:50]
+03. Step Mother [03:19]
+04. Fast Lane [05:18](   Читать дальше...   )Жанр: Post-Bop, Experimental Big BandПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36507B83D1B161DEC06416D3D6B2C8A35FBEB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139651   (659368) от 03.06.2017
 
 Rebecca Martin - People Behave Like Ballads (2004) MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -733,35 +762,6 @@ Harry Connick, Jr. - Occasion (2005) Par Media Music [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8D6A2A9A898BD717B763C05761AB20CB77CE119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140143   (657003) от 05.06.2017
-
-Franck Avitabile - Short Stories (2006) Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arabesque [04:25]
-02. Chilhood Memory [04:10]
-03. Reverso [02:54]
-04. Twisted Nerve [02:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF3A60C752C13BCA97D18561D4892ED6DF9E5C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

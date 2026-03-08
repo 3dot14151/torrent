@@ -1,3 +1,32 @@
+###  Публикация: 1520305   (143892) от 27.12.2021
+
+Wes Montgomery - Wes's Best (1960-e) 2019, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingles [4:35]
+02. Mr. Walker [3:47]
+03. West Coast Blues [4:05]
+04. Four on Six [4:48](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6174D5019B2934EA3B3855094706D39BDA78CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970218   (143876) от 29.12.2015
 
 The Lenny Hambro Quintet - The Nature Of Things (1956) Remaster, 2015, Sony Music[FLAC|tracks+.cue] <Mainstream Jazz, Bop>
@@ -712,35 +741,6 @@ Digest - Digest (1994) Qvalitet[FLAC|Lossless|image + .cue] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1659B140BF775EC40A36503B58431DB9A4A1BEA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088260   (141344) от 30.12.2016
-
-Sam Most - From The Attic Of My Mind (1978) 2015, Xanadu[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.What Is, Is [05:39]
- 02.Breath Of Love [05:54]
- 03.Blue Hue [05:53]
- 04.You Are Always The One [07:35](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89DDC26F2DBB1B50C14254037509FF7B6E4EB1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

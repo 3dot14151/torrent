@@ -1,32 +1,3 @@
-###  Публикация: 922590   (567978) от 29.07.2015
-
-Константин Никольский - Музыкант. Лучшие песни (2015) 2CD [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Мой друг художник и поэт
-03. Я сам из тех…
-04. Опять до времени отложены дела(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C16D19177E8360C1081FE24A0904D3A859C72EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922464   (567974) от 29.07.2015
 
 Би-2 - Нечётный воин: Лучшее 2005 - 2015 (2015) 2CD [FLAC|image+.cue]<Rock>
@@ -745,6 +716,35 @@ Blood Red Throne - Union Of Flesh And Machine (2016) [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0301CAFDC5864B1D70540678FFAE6E64A12F9B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044311   (567290) от 19.08.2016
+
+B.J. Thomas - 20 Greatest Hits (1983) Compilation, 1990, FST Records [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Raindrops Keep Falling On My Head  03:03
+02.  If You Ever Leave Me  02:35
+03.  Everbody's Talking  02:42
+04.  I'm So Lonesome I Could Cry  03:09(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2854FA30EE3E8287B97D2FE0B00114B8CE1878
 ```
 
 https://mybot314.ru/tekegram_catalog/

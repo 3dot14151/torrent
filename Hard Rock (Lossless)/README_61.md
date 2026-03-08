@@ -1,32 +1,3 @@
-###  Публикация: 1001060   (252039) от 25.05.2023
-
-Guns n' Roses - 9 альбомов, 1 EP, 2 Box Set (1987 - 2022) 33 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Glam>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наиболее дискуссионная американская хэви-рок группа конца 80-х годов "Guns N' Roses" известна среди людей, которые отнюдь не интересуются музыкой, благодаря вызывающе эпатажному поведению музыкантов. Хотя, надо отдать должное их творчеству, от отсутствия музыкальных фанов "Guns N' Roses" тоже не страдают. Несмотря на длительное затишье в их деятельности (   Читать дальше...   )Список альбомов:
-1987 - Appetite For Destruction
-1987 - EP
-1988 - G N' R LiesЖанр: Hard Rock, GlamПродолжительность: 34:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F8F2F3D23809BBCFDA00772347DC7CEFEFAFAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219535   (251911) от 31.05.2023
 
 Alcatrazz - 11 аlbums, 2 Box sets, 27 CD (1983-2023) Discography [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n'Heavy>
@@ -750,6 +721,35 @@ CD1 - Who Am I?:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7151E4667FE8D6E8767BCC4DD708C21BD044E24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620889   (245337) от 22.03.2023
+
+Ghosts of Sunset - Breathe (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterthought (2:26)
+02. Hide Her Heart (2:55)
+03. Move Along (4:10)
+04. Cocaine Kisses (4:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90549041E0C3436A3F063340DA703B71816F6F10
 ```
 
 https://mybot314.ru/tekegram_catalog/

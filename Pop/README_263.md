@@ -1,3 +1,61 @@
+###  Публикация: 1620104   (245831) от 19.03.2023
+
+VA - Now Yearbook Extra '79 (67 More Essential Hits From 1979) (2022) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Crazy Little Thing Called Love
+02. The Police - Message In A Bottle
+03. Blondie - Union City Blue
+04. The Pretenders - Kid(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 03:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C873EB9CBB79A04C1F27769E882215ABEF94085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620821   (245826) от 22.03.2023
+
+VA - Italo Dance Classics Volume 4 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Righeira - Vamos A La Playa
+02. P. Lion - Happy Children
+03. Valerie Dore - The Night
+04. Tullio De Piscopo - Stop Bajon(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BC84AC414282C5E93C233F94DA0356AC5D60F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565769   (245807) от 25.07.2022
 
 VA - I Love The 90's The Retro Edition (2018) 5CD, Compilation, Mixed [FLAC|Lossless|tracks + .cue] < Eurodance, House, Dance, Progressive>
@@ -680,61 +738,6 @@ VA - Quantize Miami Sampler (2023) [MP3|320 Kbps] <Disco, Nu-Disco, Afrobeat, Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21FA8C1C86EF6B3B4F44B48A4B9A3E9BFCAFDE3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625804   (244333) от 11.04.2023
-
-VA - Choices (2023) [MP3|320 Kbps] <Disco, Soulful, Afrobeat, Nu Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Kelli - Contagious (FunkHut Yourbody Full Vocal)
-02. Tracy Hamlin - Secrets (Charles Dockins Secret Sauce Mix)
-03. Dee Jay Sound, Morris Revy - Gonna Get My Crown (Original Vocal Mix)
-04. Arnaud D, Earl W. Green - When We Dance (Club Mix)(   Читать дальше...   )Жанр: Disco, Soulful, Afrobeat, Nu DiscoПродолжительность: 01:19:02 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C853D491BE79A2B42C768E934DB4F8D4DDD2518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567163   (244321) от 01.08.2022
-
-VA - I Love The 90's 10 Years Anniversary Edition (2017) 5CD, Compilation [FLAC|Lossless|tracks + .cue] <Eurodance, House, Dance, Eurobeat>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Eurodance, House, Dance, EurobeatПродолжительность: 01:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BFBE6BAB3D8B74E8E91133088EE2D973CAECD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

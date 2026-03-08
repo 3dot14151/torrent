@@ -1,3 +1,32 @@
+###  Публикация: 1281449   (752078) от 08.02.2019
+
+VA - Chilled Tunes For Relaxed (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752078.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Annk - Last Dance
+002. 2Jesus - Arrival2
+003. Fall Therapy - Wrong
+004. Makia Blue - Heal Me(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 10:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7495A32856953BD806E73332CC26196E59E0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281488   (751865) от 08.02.2019
 
 VA - Light Dance Music (2019) [Compiled by ZeByte] (2018-2019) [MP3|320 Kbps] <house, dance>
@@ -716,35 +745,6 @@ VA - NME: Best New Electro Hype (2022) [MP3|320 Kbps] <House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF96472454849D299F53EFC6428BCC67B9546255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523738   (748207) от 13.01.2022
-
-VA - Best New Electro Bass (2022) [MP3|320 Kbps] <D&B, Electro Bass, Dubstep, Bassline, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы понять, что бас музыка – это не просто удар и "рубилово", но и прежде всего настоящий звук, настоящая мелодия и ярко выраженный ритм - предлагаем послушать треки сборника с последними новинками с просторов басслайн музыки.001. Physics - Quest For Life
-002. D.Amadeus - Dreamland
-003. Jenks - New York
-004. Karmin Scales - Abigor(   Читать дальше...   )Жанр: D&B, Electro Bass, Dubstep, Bassline, JungleПродолжительность: 11:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4413D269774D5BBCF197F45A8495D9A6658B1C19
 ```
 
 https://mybot314.ru/tekegram_catalog/

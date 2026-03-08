@@ -1,3 +1,33 @@
+###  Публикация: 831765   (356087) от 03.11.2014
+
+The Beatles: Концерт на стадионе Шей / Shea stadium concert (1965) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт The Beatles на стадионе Shea (New York) 15.08.1965
+В данном релизе представлена вторая часть концерта, в которой выступала группа "Битлз".01. Twist & Shout
+02. I Feel Fine
+03. Dizzy Miss Lizzie
+04. Ticket To Ride(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4EE25CD1FD7B2BEDBF47441633EBE3F756ED0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177705   (355946) от 28.10.2017
 
 Masami Okui - GIGS 2007 Masami Life (2009) DVD9
@@ -714,35 +744,6 @@ Kreator - Dying Alive 2012 (2013) BDRip [H.264/1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:262CA364985A2988D399EC8DB3DAF0C2B6512110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179409   (348902) от 31.10.2017
-
-Avantasia - The Flying Opera: Around The World In Twenty Days (2011) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый концертный альбом Avantasia, выпущенный в марте 2011 года. Он был записан в 2008 году во время первого мирового турне Avantasia в поддержку альбома The Scarecrow.01. Twisted Mind
-02. The Scarecrow
-03. Another Angel Down
-04. Prelude / Reach Out For The Light(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Heavy Metal, Symphonic Metal, Power MetalПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4EE971407267EE944EFD49FFA90BC997DBB48D
 ```
 
 https://mybot314.ru/tekegram_catalog/

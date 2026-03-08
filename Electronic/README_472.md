@@ -1,3 +1,61 @@
+###  Публикация: 1712980   (112044) от 04.04.2024
+
+Spag Heddy - The Noodle Effect (Re-Heated) (2024) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Drum & Bass, Drumstep, Neurofunk, Dubstep, House>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Thought (feat. Micah Martin) (VIP) [00:03:31]
+02. Big Noodle Energy (VIP) [00:02:11]
+03. Hammer Time (VIP) [00:02:09]
+04. Hammer Time (Blvk Sheep Remix) [00:02:20](   Читать дальше...   )Жанр: Breaks, Drum & Bass, Drumstep, Neurofunk, Dubstep, HouseПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A471FBA970E6425ED100B96D2AA9E40E0C751CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713094   (112034) от 04.04.2024
+
+Shimah - 4th Dimension (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Void
+02. 4th Dimension
+03. So Real
+04. Visions of Neon(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE252F12893EEEAD6BD2CB70D28E1B0EE2E00E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713179   (111935) от 05.04.2024
 
 Blank & Jones - Milchbar - Seaside Season 16 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
@@ -684,64 +742,6 @@ VA - Bounced Up! (volume 16) (2023) [FLAC|Lossless|WEB-DL|tracks] <Scouse House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A695AEE2EB20FCB2FEB90E1342730A8B34C1C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715419   (111528) от 12.04.2024
-
-VA - Keep It Trance Vol. 20 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young Hu - Where Are You Going? (Extended Mix) [6:01]
-02. Sergey Salekhov & Andrew Mirt - Diamond (Extended Mix) [6:58]
-03. Mike Koglin - The Silence (AstroFegs Remix) [7:25]
-04. Alexey Lukianov - Cozy Shores (Radio Mix) [2:53](   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA041A32C6F2AEBE1CFD71B591AF77720072062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715497   (111527) от 12.04.2024
-
-VA - Top 9 March 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphacube - Stripes To Horizons (Original Mix) [6:36]
-02. SounEmot - En Mis Sueños Siempre Te Vuelvo A Recordar (Emotional Mix) [10:02]
-03. Masaru Hinaiji & Kayumai - We Will Shine (Pink Pig Remix) [8:37]
-04. Gayax - Midnight Bird (Original Mix) [6:48](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C679CC37DE6BC1A99899628B1D203DDE7BD4105D
 ```
 
 https://mybot314.ru/tekegram_catalog/

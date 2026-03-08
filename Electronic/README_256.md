@@ -1,3 +1,61 @@
+###  Публикация: 1304248   (565531) от 25.05.2019
+
+UnicaZürn (UnicaZurn) - Sensudestricto (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Drone, Post-Industrial, Dark-Jazz>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For The Dark Planets (10:08)
+02. Into Burning Labyrinths (Fuse-Fire-Seed) (8:13)
+03. Stems Of The Shadowmind (7:33)
+04. A Gulp Of Moss, A Breath Of Stone (13:10)(   Читать дальше...   )Производство: Touch – TO:113Жанр: Experimental, Ambient, Drone, Post-Industrial, Dark-JazzПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E655CAB2D62AE53C883CFD9EA80035061044E083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203174   (565413) от 25.05.2019
+
+Sea Of Tranquility - Landed (1995) Weisser Herbst [FLAC|Lossless|tracks+.cue] <Leftfield, Trip Hop, Modern Classical, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Landed (03:59)
+02. Engellied (05:00)
+03. As Thick As Fingers (07:33)
+04. Big Mighty Drum Cake (04:12)(   Читать дальше...   )Жанр: Leftfield, Trip Hop, Modern Classical, Downtempo, AmbientПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEB5C2C52A7ED42C0AA6F2737D79641768194FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152536   (565374) от 23.07.2017
 
 Calvin Harris - Funk Wav Bounces Vol. 1 (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Funk, Dance-Pop>
@@ -687,61 +745,6 @@ Onuka - Vidlik (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Folk, Ethno,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D09E75E26D43F19A88C47C6A9DB392BE1D8A5224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923252   (562626) от 01.08.2015
-
-VA - Toolroom Ibiza 2015 (2015) [MP3|320 кб/с]<Tech House/Deep House/Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Like I Can (Jonas Rathsman Remix)
-02. Jon Hopkins - Open Eye Signal (George Fitzgerald Remix)
-03. Booka Shade, Karin Park - Line Of Fire Feat. Karin Park (Tube & Berger Remix)
-04. Claptone - The Music Got Me (Original Mix)(   Читать дальше...   )Жанр: Tech House/Deep House/TechnoПродолжительность: 11:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A0A7DE5361768080B4856C268DABEB5CD995C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 225684   (562386) от 10.08.2010
-
-Mark Norman - 2 альбома (2005; 2007) [FLAC|Lossless]<Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

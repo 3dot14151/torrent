@@ -1,3 +1,32 @@
+###  Публикация: 865209   (915085) от 01.02.2015
+
+Мария Мордасова - Королева частушек (2004) 3CD [MP3|~190 кб/с (V2)]<Народные песни, частушки>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915085.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Российский чай
+02. Завлекалочка
+03. А я Яшу подпояшу (Матаня)(   Читать дальше...   )Производство: Россия, Альфа РекордзЖанр: Народные песни, частушкиПродолжительность: 02:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB12BC2FC077DC3A53B5293D40F8704598E3196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097296   (914077) от 27.01.2017
 
 Brantley Gilbert - The Devil Don't Sleep (2017) [FLAC|Lossless|tracks] <Country>
@@ -715,35 +744,6 @@ Greg Maroney - 2 альбома (2003, 2005) [FLAC|Lossless|image + .cue] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE69EA68568404CDFB9E3A10CAC7F5B9E248A004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257973   (908494) от 20.03.2020
-
-Jean Michel Jarre - Greatest Hits (2008) 2CD [APE|Lossless|image + .cue] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magnetic Fields 1 (5:59)
-02. Oxygene (Pt.4) (4:15)
-03. Equinoxe (Pt.5) (3:47)
-04. Magnetic Fields (Pt.2) (4:02)(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413119B3D01A6CAF2AD025EE27A77C132E54DE5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

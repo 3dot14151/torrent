@@ -1,90 +1,3 @@
-###  Публикация: 1167337   (418904) от 19.09.2017
-
-Marilyn Manson - Heaven Upside Down (2017) [MP3|320 Kbps] <Alternative Rock, Heavy Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelation #12
-02. Tattooed In Reverse
-03. WE KNOW WHERE YOU FUCKING LIVE
-04. SAY10(   Читать дальше...   )Жанр: Alternative Rock, Heavy Metal, IndustrialПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F550CAAC0A7DE7313D56B3213A1854739B56DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324990   (418848) от 12.09.2019
-
-The 69 Eyes - West End (2019) [MP3|320 Kbps] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418848.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Two Horns Up
-2. 27 & Done
-3. Black Orchid
-4. Change(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC97DF6A45B128716EF70A2B164B6D536749983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325057   (418842) от 12.09.2019
-
-Cold - The Things We Can't Stop (2019) [MP3|320 Kbps] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Shine
-03. Snowblind
-04. The Devil We Know(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD71EEA4BF2A3C2531E014A42B88CCC7C25FBD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324998   (418673) от 12.09.2019
 
 Lindemann - Steh auf (2019) Single [MP3|320 Kbps] <Industrial Metal>
@@ -743,6 +656,93 @@ Imperial State Electric - All Through The Night (2016) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:112C9FFD567931EC5C66D1FB69AC98A8FF1418E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572934   (417122) от 29.08.2022
+
+1914 - Where Fear And Weapons Meet (2021) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War In
+02. FN .380 ACP #19074
+03. Vimy Ridge
+04. Pillars Of Fire (The Battle Of Messines)(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516B076A7936410E815CBB14627B1D358C649D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573007   (417119) от 29.08.2022
+
+The Fae - 2 Albums (2020-2022) [MP3|320 Kbps] <Stoner, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satyrs & Scherzos (Quaerendo Invenietis) [00:01:23]
+02. Faerie Rock [00:07:12]
+03. A Corner of Avalon [00:03:19]
+04. Alguien Ma?s en Quien Confiar [00:04:02](   Читать дальше...   )Жанр: Stoner, Hard Rock, Heavy MetalПродолжительность: 2 CD, 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E8671EE95AE3AEAAF057554DCD4C7A64513969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573012   (417117) от 29.08.2022
+
+Включай Микрофон! - Позывные ретритизма, Часть 1 (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417117.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выпили и погнали
+2. Улицы помнят каждого
+3. Никакой лирики!
+4. Хватит на всех!(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50AB2D78F70C12E894593834DF53BD4212A698C
 ```
 
 https://mybot314.ru/tekegram_catalog/

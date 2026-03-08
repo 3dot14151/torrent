@@ -1,3 +1,32 @@
+###  Публикация: 1462348   (241204) от 14.04.2021
+
+Red Norvo - Wigwammin' (1938) 1996, Hep Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daydreaming (All Night Long) [2:40]
+02. A Cigarette & A Silhouette [3:04]
+03. (I've Been) Savin' Myself for You [3:10]
+04. You Leave Me Breathless [2:49](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0ACADAC85C3F831443F450DD74FE85ADD630773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625993   (241200) от 12.04.2023
 
 VA - Jazz: i grandi classici (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -716,35 +745,6 @@ Chris Biesterfeldt - Phineas (2014) Self-Released [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A86E7C8A50E5DB7A613FFB982B9F04FEC467B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410136   (240496) от 20.09.2020
-
-Sidney Bechet & Martial Solal - When a Soprano Meets a Piano (1957) 2009, Inner City Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Only Have Eyes for You [3:00]
-02. The Man I Love [2:47]
-03. Exactly Like You [2:57]
-04. These Foolish Things [3:52](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BD5F1D9568E0666FCAA107461F41A9334DE90D
 ```
 
 https://mybot314.ru/tekegram_catalog/

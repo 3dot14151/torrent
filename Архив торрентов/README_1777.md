@@ -1,251 +1,3 @@
-###  Публикация: 516690   (645836) от 02.07.2012
-
-Myon & Shane 54 - International Departures 135 (2012-06-28) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	International Departures - Intro	(00:24)
-02.	Armin van Buuren feat. Nadia Ali vs. Thomas Gold - Who's Watching Marsch (Myon & Shane 54 Mashup)	(05:15)
-03.	Garrido & Skehan feat. Isobel Mai - Stay (EDU Remix)	(06:20)
-04.	Stereo Palma feat. Craig David - Our Love (Myon & Shane 54 Summer Of Love Remix)Жанр: TranceПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B67D14B0D409EA0B30380BDCB632E6757E4300E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517528   (645835) от 02.07.2012
-
-[Wallpapers] Nature Wallpapers (01.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E40216066CA6D1D215E043377D6D54E30541C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517527   (645832) от 02.07.2012
-
-[Wallpapers] Best HD Wallpapers Pack (01.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68DB0FFE619BCB20EEA4F2F002E3E19EF2D1E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517947   (645831) от 02.07.2012
-
-Shamanizm Parallelii - Psychedelic Dreams (2012) [MP3|320 кб/с]<Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645831.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Space Calling (6:37)
-2. Bells Of Time (3:21)
-3. Second Fall (0:55)
-4. Datura (6:17)
-5. Dream's Diver (7:54)
-6. Dead Stars Traces (5:07)
-7. Very Strange Dream (3:20)
-8. I Cant Speak English As Well As Afro American But I Can Think The Same Way (5:29)
-9. Psychedelic Dreams (6:28)Жанр: DowntempoПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C49E853C1D1C0244226FC98B34E966BF70F2B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517694   (645827) от 02.07.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (02.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172C48ACDFC980E2E8BB15B2B6FCA062575D12E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 216800   (645821) от 07.07.2010
-
-Женская любовь / Amour De Femme (2001) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_645821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героиня Hélène Fillières – 35-летняя замужняя женщина, воспитывающая 7-летнего сына Луи, преуспевающий остеопат, – знакомится на дискотеке с молодой девушкой Мари, к которой чувствует неодолимое сексуальное влечение. У них завязывается лесбийский роман с обычной для подобной фабулы коллизией страсти и общественного порицания, но, если Мари достаточно сексуально раскована, чтобы не считаться с мнением других, то Жани должна сделать выбор между новооткрытым удовольствием и семейной жизнью с мужем, которого сыграл Антони Делон (сын Алена Делона).Жанр: МелодрамаРежиссер: Sylvie Verheyde.Актеры: Hélène Fillières, Raffaëla Anderson, Anthony Delon, Jeannick Gravelines, William Wayolle, Karole Rocher...Перевод: Одноголосый закадровый + Оригинал (Франция)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906453   (645804) от 08.06.2015
-
-Джейн Харри | Рай подождет (2003) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нелегкие испытания выпали на долю юной Ребекки Кармак. Преждевременная смерть отца, конфискация имущества… Вдвоем с младшей сестрой она вынуждена переселиться в комнату для прислуги и зарабатывать на жизнь, обслуживая Райана Бизера — нового хозяина их прежнего поместья Мэнтра Хилл. А тут еще возвращается с оксфордским дипломом в кармане ее первая любовь Эрвин Лестор. (   Читать дальше...   )Жанр: Короткие любовные романыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB2DB8B090613B138D16AF9B9B56714C2705D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906432   (645789) от 08.06.2015
-
-Пола Льюис | Мистер Безупречность (2013) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэтт Норман работал в известной адвокатской конторе. У него была безупречная репутация блестящего юриста и компетентного правоведа. Его будущее не вызывало сомнений. Он должен усердно работать, и тогда займет в своей фирме место старшего партнера. С недавних пор Мэтт задумывался и о создании семьи. Он видел своей женой красивую стройную блондинку, элегантную, всегда (   Читать дальше...   )Жанр: Короткие любовные романыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F03C41530CC319855B8034E11FE25C2D62D2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906307   (645787) от 08.06.2015
-
-Etherwood - Souvenirs EP (2015) [MP3|320 кб/с]<Drum'n'Bass, Liquid, BassHouse>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Souvenirs (feat. Zara Kershaw)
-02. Souvenirs (S.P.Y Remix)
-03. Souvenirs (Ulterior Motive Remix)
-04. Souvenirs (Friend Within Remix)Жанр: Drum'n'Bass, Liquid, BassHouseПродолжительность: 00:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEB219E254CFB85305154753512F31891B562CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906330   (645771) от 08.06.2015
 
 Junkware Removal Tool 6.9.0 [En]
@@ -687,6 +439,281 @@ VA - Vintage Reggae Cafe (2013) [MP3|320 кб/с]<Reggae>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B652649DBCFB1260C823559AC4E66B10ABC84E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517703   (645600) от 02.07.2012
+
+Being - Arrival [EP] (2011) [MP3|320 кб/с]<Progressive Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645600.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cosmonaut
+2. DNA
+3. A Glorious Dawn
+4. Story For A Muse
+5. A Part, Apart
+6. Perpetual Groove
+7. Arcane Academic
+8. Mindflay (Bonus Instrumental)Жанр: Progressive MetalПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85EFB775ABB83A31D446E4CDB571FD60C9427DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517870   (645599) от 02.07.2012
+
+VA - Avto Club Июль (2012) [MP3|320 kbps]<Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darius & Finlay feat. Carlprit & Nicco - Do It All Night 2k12 (CK Stone Mix Edit)
+02. Oliver Giacomotto, David Amo & Julio Navas - Get Together (Original Mix)
+03. Young Rebels & Francesco Diaz - Timbuktu (Daniel Ortega & Mike Moorish Remix)
+04. Madonna - Frozen '12 (Junior Mix Tribalicius Mix)
+05. NataShe & Adriana - Here & Now (Original Mix)
+06. Erick Morillo, Eddie Thoneick - If This Aint Love (Baggi Begovic Remix)
+07. Jim Noize - Play Girl (C.W.C.G. Extended Mix)
+08. Manuel Sahagun - You Make It Easy (Original Mix)
+09. Michael S. - Rewind (Extended Mix)
+10. Bladi feat. Dr Mako - Alive (Extended Mix)(   Читать дальше...   )Жанр: ClubПродолжительность: 05:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46AF1A1489786BFBA945B04CC8FEFBC9CFC4887E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517540   (645596) от 02.07.2012
+
+[Графика] Художник Александр Павленко
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightrhino (John Connell)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EF6326AF6F64ACC14C23B084092CB09E637485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518116   (645595) от 02.07.2012
+
+Журнал | Yes! №163 [Июль 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yes! – авторитетный советчик, чье мнение очень важно для его молодой и активной аудитории. Журнал говорит на одном языке со своими читателями обо всех важных для них проблемах.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D0796DC5B97CB795DD61EC08AA7B259780AFA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518016   (645593) от 02.07.2012
+
+VA - Танцевальный Хит Стандарт (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645593.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta feat. Usher - Without You
+002. Chris Garcia feat. Sherry St Germain - I Rock Alone
+003. Jessie J Feat. B.O.B - Price Tag
+004. Paul van Dyk feat. Austin Leeds - Verano (Original Edit)
+005. Linkin Park - Iridescent
+006. Inna - House Is Going On (Radio Edit)
+007. Jay Sean Ft. Pitbull - I'm All Yours (Full Official Version)
+008. Picco - Mi Cafe (Ph Electro Remix Edit)
+009. Bryce Feat. Carlprit - Dance With Me 2011
+010. Christina Aguilera - Express (Radio Edit)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C565E7D55C3E5ACE53BCD5255FA10B9ABE935205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517942   (645587) от 02.07.2012
+
+VA - German TOP 100 Single Charts (01.07.2012) [MP3|186-283 кб/с]<Dance, Club, Vocal, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Toten Hosen - Tag Wie Diesen 04:28
+02. Linkin Park - Burn It Down 03:51
+03. Loreen - Euphoria 03:02
+04. Carly Rae Jepsen - Call Me Maybe 03:14
+05. Tacabro - Tacate 03:31
+06. Flo Rida - Whistle 03:45
+07. Oceana - Endless Summer 03:12
+08. Lykke Li - I Follow Rivers 04:41
+09. Maroon 5 Feat. Wiz Khalifa - Payphone 03:51
+10. Of Monsters And Men - Little Talks 04:26(   Читать дальше...   )Жанр: Dance, Club, Vocal, HouseПродолжительность: 06:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6558E1BFFF65A4D0AF6D8C5913777D8685C69162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032434   (645578) от 07.07.2016
+
+Dr.Web LiveDisk CD/USB 9.0.0 (06.07.2016) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dr.Web LiveDisk - бесплатное загрузочное антивирусное решение на базе Linux и CureIt! для восстановления зараженной системы Windows.
+Новое средство заменяет Dr.Web LiveUSB и позволяет создавать загрузочный USB-носитель. Dr.Web LiveDisk USB - антивирусный загрузочный носитель для восстановления работоспособности системы Windows, зараженной вирусами, руткитами или (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B69A39FA717C40458E55491541E22374363B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032101   (645574) от 07.07.2016
+
+VA - Sounds of Reggae Vol 1 (The Best of Reggae and Dancehall Selected by Sly and Robbie) (2016) [MP3|320 Kbps] <Reggae>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Marley – Soul Rebel 03:42
+02. Sly & Robbie – Wedding Anniversary 04:48
+03. Black Uhuru – Aquarius 04:14
+04. Third World – Dem Man Deh 03:52(   Читать дальше...   )Жанр: ReggaeПродолжительность: 04:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D01CC40D63EC53263884008A1FFBAD8FF453451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 216831   (645542) от 07.07.2010
+
+Жизнь и необычайные приключения солдата Ивана Чонкина (1994) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_645542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименной сатирической книги Владимира Войновича.
+
+В небольшой деревушке Красное совершает вынужденную посадку военный самолёт У-2. Командование не имеет возможности отбуксировать самолёт и решает выставить возле него часового.
+В воинской части неподалёку от Красного проходит службу рядовой Иван Чонкин. Неказистый и простодушный солдат, с внешностью, далёкой от образцового воина, отбывает воинскую обязанность в хозяйственном подразделении полка, занимаясь тем, что убирает навоз. Именно его командование отряжает на пост возле самолёта в деревне Красное...Жанр: КомедияРежиссер: Иржи Менцель.Актеры: Геннадий Назаров, Зоя Буряк, Владимир Ильин, Валерий Золотухин, Алексей Жарков и др.Продолжительность: 01:45:51
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 437328   (978462) от 16.01.2012
+
+Il Divo - Live In London (2011) DVD 9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной шедевр великолепной четверки
+Живое выступление Il Divo 2 августа 2011 года в великолепном лондонском Колизее, на домашней сцене Английской национальной оперы. 100-минутная программа с композициями из своего нового альбома «Wicked Game», а также с некоторыми из их признанного репертуара, в том числе «Dov'e L'amore», «Time to Say Goodbye» и «Unchained Melody».Жанр: Classical Crossover, PopПеревод: отсутствуетПродолжительность: 01:36:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614662   (978339) от 07.02.2013
 
 Scorpions. Концерт Moment Of Glory Live (Berliner Philharmoniker) (2000) DVD9
@@ -715,32 +742,6 @@ Shakira - Je L'Aime a Mourir (Live from Paris) (2011) [1080i] BDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5274A6B55EF2F53840CDBA16B78434AFC1942E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617534   (972350) от 12.02.2013
-
-BAZUKA - Shake Dat Ass (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, ElectroПродолжительность: 00:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5528990F4653E76C1838050E9E029B731C534D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1098654   (908748) от 30.01.2017
-
-Blackeyed Susan - Electric Rattlebone (1991) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Rattlebone
-02. Satisfaction
-03. None Of It Matters
-04. Sympathy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645EDBAD1E03F42BCDAC878B37874B52B1736665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491641   (908740) от 26.08.2021
 
 Smyčka (Smycka) - Fated (2021) [FLAC|Lossless|image + .cue] <Post-Black Metal>
@@ -751,6 +722,35 @@ Silent Circus - Rise and Fall (2017) [MP3|320 Kbps] <Groove Metal, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19D07A6CE3802426805DF5EEB3307B6CEC465E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098958   (907322) от 31.01.2017
+
+All About A Bubble - This Atmosphere (2017) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alright, Alright, Alright
+02. Sing It! Scream It!
+03. It Rains in My Heart
+04. Awakened(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97437A6B1635951F6A15C820ADB94578DE45302
 ```
 
 https://mybot314.ru/tekegram_catalog/

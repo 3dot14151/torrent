@@ -1,32 +1,3 @@
-###  Публикация: 984619   (938936) от 09.02.2016
-
-The Veer Union - Decade (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Defying Gravity
-02. Watch You Lose
-03. You Can't Have It All
-04. I Said(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock, Modern RockПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CD6EF134F360BB44F48076EF655C7C00959AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092710   (938877) от 12.01.2017
 
 Crypt Of Silence - Awareness Ephemera (2016) [MP3|320 Kbps] <Doom-Death Metal>
@@ -744,6 +715,35 @@ Muse - Live At Rome Olympic Stadium (2013) [FLAC|Lossless]<Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8BF2117929C3BDD13C397BC979B0F4DC6A33F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364596   (936498) от 03.03.2020
+
+Envy - Atheist's Cornea (2015) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Moonlight (04:09)
+02. Ignorant Rain at the End of the World (03:29)
+03. Shining Finger (07:04)
+04. Ticking Time and String (06:28)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00: 43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD9E16501593589ADB11FE8D96B3E22791D0DFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

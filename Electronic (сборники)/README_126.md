@@ -1,3 +1,32 @@
+###  Публикация: 1053398   (526128) от 17.09.2016
+
+VA - 200th Release Anniversary (2016) [MP3|320 Kbps] <Minimal, Deep, Funky, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.M.P - Distance (Addex Remix] 06:59
+02. John Cosani - Spaceman (Kastis Torrau Remix] 07:36
+03. Yone b - L'Heure Bleue (Nikosf. L'Heure Photographique Remix] 07:08
+04. D.M.P - Distance (Original Mix] 07:30(   Читать дальше...   )Жанр: Minimal, Deep, Funky, Tech HouseПродолжительность: 12:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329C3755473F1E71B9733DD1FB9189A96B47870F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053488   (526123) от 17.09.2016
 
 VA - Empire Outside 75 (2016) [MP3|225-320 Kbps] <House, New wave, Futurepop, Drum & Bass, Psychedelic, Club, Dance>
@@ -716,35 +745,6 @@ VA - Amazing Vocal Sound - Endless Summer 10 (2018) [MP3|320 Kbps] <House, Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34917505CBB74E0B05EA0E00A29492ED74BD06C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560102   (521817) от 28.06.2022
-
-VA - Car Music Mix (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kendrick Lamar x Drake - Poetic Justice (James Miller x G.Key Remix) (3:20)
-02. Eminem - Ass Like That (Maga remix) (3:13)
-03. DeepSystem - Dame Locura (Robber DJ Remix) (2:56)
-04. David Guetta - The World Is Mine (Leonardo La Mark & Moresst Remix) (4:55)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 03:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECFDAD8E20EEA844B063128B49B049F78C8CA7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

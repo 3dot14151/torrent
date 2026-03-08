@@ -1,32 +1,3 @@
-###  Публикация: 1483896   (1006391) от 17.07.2021
-
-Paradise Lost - At the Mill (2021) Live [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Widow (Live)
-02. Fall From Grace (Live)
-03. Blood And Chaos (Live)
-04. Faith Divides Us - Death Unites Us (Live)(   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7900CB648ED73C38543164B6B40F5322DCAB228E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484244   (1006296) от 18.07.2021
 
 Shotgun Mistress - Shotgun Mistress (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -748,6 +719,35 @@ Heavy Water - Red Brick City (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1F5BA84B53803D0777377AA98697F7703540833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484870   (1005733) от 23.07.2021
+
+Dream Theater - Lost Not Forgotten Archives: A Dramatic Tour of Events - Select Board Mixes (2021) Live [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Under a Glass Moon (Live in Phoenix, AZ 12_4_11) (07:17)
+ 02 - Forsaken (Live in London, UK 7_24_11) (05:46)
+ 03 - Peruvian Skies (Live in London, UK 7_24_11) (07:00)
+ 04 - Endless Sacrifice (Live in Austin, TX 10_26_11) (11:57)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172D8B3A1DC54BB3297E6D4216DCC26657019C9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

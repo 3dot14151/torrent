@@ -1,29 +1,3 @@
-###  Публикация: 1083036   (274504) от 15.12.2016
-
-Проекты - VideoHive - Christmas Memories - 18970403 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas Memories - проект для создания слайд-шоу Рождественских воспоминаний.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C3066763F64CEC964F85399471F118F6202DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083329   (274498) от 15.12.2016
 
 Проекты - VideoHive - Christmas Deer - 18928647 [AEP]
@@ -675,6 +649,32 @@ Xmas Holidays Slideshow - проект который поможет созда�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3D8DEFC7C62D0942CE5DF25D8F82E8C20F82F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265757   (272893) от 29.11.2018
+
+Проекты - VideoHive - Christmas - A Slideshow - 22705642 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272893.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Christmas - A Slideshow" - это слайд-шоу в окружении новогодней атрибутики, шишек и еловых веток. Настраивайте цвета, меняйте рамки по своему усмотрению.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B48D728D3636DFEE6470507B68EC7A01133A95
 ```
 
 https://mybot314.ru/tekegram_catalog/

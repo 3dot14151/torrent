@@ -1,3 +1,33 @@
+###  Публикация: 1349121   (137734) от 31.12.2019
+
+Сборник клипов - Philizz "Video Yearmix" (2019) WEB-DLRip [H.264/1080p-LQ] [PR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Video Yearmix 2019" - фирменный видеомикс от голландского ви-джея Philizz. Два часа музыкальных хитов, высокое качество и отличный видеоряд обеспечат Вам хорошее настроение. Мир лучшей танцевальной музыки 2019 года ждёт Вас! Приятного просмотра!
+- Разбивка по трекам отсутствует.Lil Nas X ft. Billy Ray Cyrus – Old Town Road
+Halsey – Without Me
+Why Don’t We – Big Plans
+Ellie Goulding ft. Juice WRLD – Hate Me(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixСубтитры: ОтсутствуютПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2F18FB8E31B7B5E76099D9689E74783FC9CBAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088344   (137594) от 31.12.2016
 
 Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
@@ -684,35 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD0A71F99EA04F2A2333B98636F129CF1356C6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680601   (133674) от 30.11.2023
-
-Original ENIGMA Voices LIVE 2023 (2023) CamRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любительская Multicam-запись нового концертного тура  группы «Original ΣNIGMA Voices», организованного тремя вокалистами, которые помогали Мишелю Крету в создании этой культовой музыки. Ямайский музыкант Эндрю Дональдс, немецкий исполнитель Angel X и латвийская певица Fox Lima продолжают втроём гастролировать с живыми версиями песен ENIGMA.1 Intro
-2 Gravity Of Love
-3 The Rivers Of Belief
-4 Beyond The Invisible(   Читать дальше...   )Жанр: New Age, Worldbeat, Chill-outПродолжительность: 01:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B5F7EB010B8399804D080DFE7FB9BD316FB18D
 ```
 
 https://mybot314.ru/tekegram_catalog/

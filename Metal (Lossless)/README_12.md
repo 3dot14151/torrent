@@ -1,3 +1,90 @@
+###  Публикация: 1612510   (1040178) от 16.02.2023
+
+Autumn - The Endless Crave (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowfall (04:55)
+02. She Passed Away (06:19)
+03. Mon Cœur Blessé (06:23)
+04. Farewell Under The Full Moon (05:19)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E26DCB2756C2A2BF20EE8317818664EE35F79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612354   (1040176) от 16.02.2023
+
+Ravenlight - Immemorial (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masque of the Red Death [00:04:25]
+02. Reflections [00:04:22]
+03. The Painters Dream [00:04:33]
+04. Spirit of Life [00:03:58](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750991585135BCA399B5D2275C9ACBF27333E7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612609   (1040174) от 16.02.2023
+
+Connect The Circle - Blinded By The Violence (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bowhunter [00:04:49]
+02. Catch`em Alive (The Ballad of Teddy Roosevelt) [00:04:31]
+03. Bloodsucker [00:05:04]
+04. Blinded by the Violence [00:05:22](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65939FC5944010101A32837D81607C1387E9A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439190   (1040149) от 12.01.2021
 
 Gaerea - Limbo (2020) [FLAC|Lossless|tracks + .cue] <Black Metal, Post Black Metal, Death Metal>
@@ -658,93 +745,6 @@ Dragony - Viribus Unitis (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:277A259936EC96D680A1D53A76F2D4FBDBF8BFB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614553   (1038610) от 22.02.2023
-
-Empty - Omnia Amet Lorem (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Self Dissolves Into Demise (02:17)
-02 - Inclination Towards Decay (06:16)
-03 - The Bleakness of Elderness (07:42)
-04 - Hungry For Emptiness (06:58)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4583E16E4A747B0AF48D54578DCB394089D498B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614512   (1038607) от 22.02.2023
-
-Thumos - Symposium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phaedrus [00:05:20]
-02. Pausanius [00:05:54]
-03. Eryximachus [00:04:20]
-04. Aristophanes [00:05:52](   Читать дальше...   )Жанр: Progressive Doom, Post-MetalПродолжительность: 00:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6136E9910AA8ACEB6B9E98D7466AFC68C482E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614526   (1038606) от 22.02.2023
-
-Oceanhoarse - Heads Will Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall Like Dominoes [00:05:39]
-02. Help Is On The Way [00:04:52]
-03. Pryopen [00:03:58]
-04. Brick [00:02:45](   Читать дальше...   )Жанр: Heavy, Groove Metal, Hard RockПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D11BD5606DB8B5EFB394DE506CFD9E5EADB191
 ```
 
 https://mybot314.ru/tekegram_catalog/

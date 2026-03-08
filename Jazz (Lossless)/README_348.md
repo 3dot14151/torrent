@@ -1,3 +1,32 @@
+###  Публикация: 1781978   (70078) от 26.02.2025
+
+Brian Lynch - Madera Latino (2012) 2CD, 2016, Hollistic Musicworks [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow's Destiny [9:06]
+02. Joshua C. [9:58]
+03. On the New Ark [8:28]
+04. Song of Songs [11:11](   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 01:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD31CB9285F4E4B5A21CF801F6770CA9293702CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782158   (70057) от 27.02.2025
 
 Stan Getz - BD Jazz (1948 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Cool, Bop>
@@ -716,35 +745,6 @@ Sonny Rollins - On The Outside (1962, 1963) 1991, Bluebird [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6261F477EB72B0037CFD131FD88A8F297B9E294D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783442   (69795) от 06.03.2025
-
-The John Graas Project - Jazz Studio 1/2 Complete Sessions (1953, 1954) 2004, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenderly [22:27]
-02. Let's Split [14:07]
-03. Laura [7:24]
-04. Here Come the Lions [6:42](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream Jazz, CoolПродолжительность: 01:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B6618F3B07C96593C154EB0969CDD6C30075EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

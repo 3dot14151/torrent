@@ -1,3 +1,32 @@
+###  Публикация: 712613   (403230) от 19.10.2013
+
+C.C. Catch - 25 Best Songs (2012) [MP3|256 кб/с]<Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cause You Are Young 1986
+02. Heartbreak Hotel 1986-2
+03. Goog Guys Only Win In Movies 1987
+04. Backseat Of Your Cadillac 1988(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B405B225CD3DAB4204CD9CC638F845ECBF508A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 712606   (403223) от 19.10.2013
 
 Modern Talking - 25 Best Songs (2012) [MP3|228 - 267 кб/с]<Eurodisco>
@@ -824,41 +853,6 @@ VA - Осенний Mega хит-парад Русский 200 хитов (2012) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5B148645A50BC6AE016B57161696E85D65079A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565511   (400076) от 26.10.2012
-
-VA - Ночная дискотека: Хитовый адреналин 100 хитов (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тамерлан и Алена Омаргалиева - Может Это Ты
-02. Reflex - Потому Что Не Было Тебя 2012
-03. Alexey Romeo & Smoky Mo - На Своей Волне
-04. David - Я Люблю Тебя За Это
-05. Света - Лондон-Москва
-06. Лаурита - Сердце Моё
-07. DJ Ihlas feat Xenia - Love Me
-08. Градусы - Нефть (Space & Disco, Dj Andersen Radio Mix)
-09. Инь-Ян - Oh, Yeah!
-10. Митя Фомин - Наглый Ангел(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701276C9E8FB4A1A0A5633F75C4546D1FC76B67B
 ```
 
 https://mybot314.ru/tekegram_catalog/

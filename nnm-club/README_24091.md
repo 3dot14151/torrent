@@ -1,57 +1,22 @@
-###  Публикация: 459536   (95409) от 04.03.2012
+###  Публикация: 462729   (95637) от 05.03.2012
 
-DJ Darrel - Happy Filthy Holidays (2011) [MP3|192 кб/с]<Drum&Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95409.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Throttler - Dark steel
- 2. DJ Hidden - You're not real
- 3. DJ Hidden - Dying star
- 4. Seid - The Machine
- 5. Switch Technique - The edge of chaos
- 6. Eye-D & DJ Hidden - Rain
- 7. Zeal & Litta - Screams of Another (Current Value remix)
- 8. Nanotek - Venus
- 9. Current Value - Warship
- 10. Limewax - Aria(   Читать дальше...   )2011Жанр: Drum&BassПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8595AAA523113BD4B3B79F05DD81FECB12CCC070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461592   (95370) от 03.03.2012
-
-NG: Суперсооружения древности / Ancient Megastructures (2007-2009) HDTV [1080i]
+Биатлон. Чемпионат мира 2012. Рупольдинг (Германия). Мужчины. Гонка преследования 12,5 км (2012) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95370.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95637.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подробно знакомясь с самыми интересными Суперсооружениями древности, узнайте об исторических событиях, на фоне которых создавались эти шедевры архитектуры - о жестокой борьбе за власть, человеческих трагедиях и о препятствиях, которые приходилось преодолевать древним зодчим.Жанр: ДокументальныйРежиссер: Мелиса Акдоган / Melisa AkdoganПеревод: Russian: AC3, ~448.00 kb/s avg |Oдноголосый закадровый|Формат: TSПродолжительность: 00:47:28
+Мужская гонка преследования на ЧМ в ГерманииЖанр: СпортТелекомпания: Первый каналПеревод: Двуголосый закадровый, профессиональный (Терехов, Круглов)Продолжительность: 00:38:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C287AC32BCF1F4D44CEC2DD5FF42029FEFE463B5
+magnet:?xt=urn:btih:7C2F41BDD1E85D504CD282AE2D90D54A478AD17B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -59,47 +24,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 462045   (95368) от 03.03.2012
+###  Публикация: 463072   (95629) от 05.03.2012
 
-Журнал | Playboy [Croatia] №3 (2012) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7F971839C2C35A7DAE9C6DE0D96F4054DD328A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461197   (95367) от 03.03.2012
-
-Резня / Carnage (2011) [720p] BDRip
+Памяти Юрия Сенкевича (2007) DVDRip
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95367.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95629.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ссоры детей обычно заканчиваются оплеухами или шумными драками. У взрослых все гораздо хуже — их конфликты могут перерасти в настоящую войну. Задиры и задаваки Захари и Итан даже не подозревали, что натворила их школьная вражда. Сами того не желая, они разбудили древнего бога резни, который заставил расплачиваться за проделки мальчишек их родителей.Жанр: Драма, КомедияРежиссер: Роман ПоланскиПродюсер: Саид Бен Саид, Оливер Бербен, Мартин МосковицАктеры: Джоди Фостер, Кейт Уинслет, Кристоф Вальц, Джон Си Райли, Элвис Полански, Элиот Бергер, Джозеф Резвин, Натан Риппи, Таня Лопер, Джули АдамсПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:19:37
+Фильм посвящён Юрию Сенкевичу-человеку легенде.На протяжении многих лет был бессменным ведущим популярнейшей программы Первого канала "Клуб путешественников".Увлеченный рассказчик, отважный путешественник, он сделал передачу одной из самых любимых зрителями.
+За 37 лет с начала выхода первой передачи у нее сложился определенный имидж. Это прежде всего стабильно высокий уровень, серьезность и глубина подачи материала. Передача открывает зрителям новые страны и народы, их обычаи, рождает интерес к путешествиям. Согласно различным социологическим исследованиям у "Клуба путешественников" существует своя устойчивая многомиллионная аудитория. Передача занесена в книгу рекордов Гинесса.Жанр: ДокументальныйТелекомпания: Пиманов и партнерыПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007D2F856557D8CBF7ABAD97B2B5A920538D6DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462887   (95628) от 05.03.2012
+
+VA - Smooth Jazz Fever (2002) [FLAC|Lossless]<Smooth Jazz>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Joe Sample & Lalah Hathaway - Fever (5:44)
+02.Kim Waters - After Midnight (5:15)
+03.Alfonzo Blackwell - That's Cool (3:32)
+04.Ken Navarro - Things We Never Say (4:37)
+05.Chuck Loeb - Soulmate (5:00)
+06.Kevin Toney - Special Occasion (6:10)
+07.Nestor Torres - Java (4:21)
+08.Nelson Rangell - Then I Knew (5:32)
+09.Walter Beasley - Rendezvous (5:11)
+10.Special EFX - Two Hearts (4:16)2002Жанр: Smooth JazzПродолжительность: 00:49:39
 
 ## Скачать торент
 ```bash
@@ -111,25 +86,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461656   (95363) от 03.03.2012
+###  Публикация: 462955   (95626) от 05.03.2012
 
-Игорь Чужин | Странник. Возвращение [2012] [FB2,RTF]
+Газета | Сад, огород - кормилец и лекарь. Спецвыпуск №3 (2012) [DJVU]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95363.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95626.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мир магической сказки растаял, словно сон, а князь Ингар снова стал Игорем Столяровым, которого никто нигде не ждёт, и никому до него нет дела. Княжеский дворец на вершине магического Дерева Жизни превратился в обшарпанную палату психушки с зарешечённым окном, а почётный караул эльфийских гвардейцев сменили угрюмые санитары с пропитыми лицами у дверей процедурной. Кажется, уже нет смысла бороться и проще всего забыться в медикаментозном тумане, но есть долг перед семьёй и детьми. Ещё не все враги заплатили по счетам, а потому нужно, кусая до крови губы и обламывая ногти, выкарабкиваться из зловонной ямы, куда тебя сбросила жестокая судьба, и снова стать князем Ингаром. Опять впереди тяжёлая дорога, полная опасностей и приключений, и ты не имеешь права на страх и отчаяние!2012Формат: FB2,RTF
+Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Формат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C8D7A1D3F30A240A12C2696DAF849D83A0E4CCE
+magnet:?xt=urn:btih:D296F33128F371843759D6DF084188D8EE30B874
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,30 +112,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461631   (95362) от 03.03.2012
+###  Публикация: 463044   (95625) от 05.03.2012
 
-VA - The Songs of Leonard Cohen Covered (2012) [FLAC|Lossless]<Folk-Rock>
+Gal Costa - Gal Costa (1969) [FLAC|Lossless]<Jazz, Folk>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95362.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95625.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Field Music - Suzanne (4:02)
-02.Emily Barker & The Red Clay Halo - Master Song (8:33)
-03.Palace Songs - Winter Lady (2:43)
-04.The Miserable Rich - The Stranger Song (5:57)
-05.Liz Green - Sisters Of Mercy (3:52)
-06.Bill Callahan - So Long Marianne (5:20)
-07.Michael Kiwanuka - Hey, That's No Way To Say Goodbye (2:49)
-08.The Low Anthem - Stories Of The Street (4:37)
-09.Cass McCombs - Teachers (4:37)
-10.Father John Misty - One Of Us Cannot Be Wrong (7:25)(   Читать дальше...   )2012Жанр: Folk-RockПродолжительность: 01:07:29
+01. Nao Identificado
+02. Sebastiana
+03. Lost In The Paradise
+04. Namorinho De Portao
+05. Saudosismo
+06. Se Voce Pensa
+07. Vou Recomecar
+08. Divino, Maravilhoso
+09. Que Pena (Ele Ja Nao Gosta Mais De Mim)
+10. Baby(   Читать дальше...   )1969Жанр: Jazz, FolkПродолжительность: 00:39:32
 
 ## Скачать торент
 ```bash
@@ -172,29 +147,91 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461669   (95357) от 03.03.2012
+###  Публикация: 459231   (95623) от 05.03.2012
 
-Bonfire - Don't touch the light (1986) 1-st Press / 1986, Sonopress / [FLAC|Lossless]<Heavy Metal/Hard-rock>
+Bruce Springsteen - Wrecking Ball (Special Edition) (2012) [MP3|~245 кб/с (V0)]<Rock, Singer-Songwriter>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95357.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95623.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. Starin' Eyes
-03. Hot To Rock
-04. You Make Me Feel
-05. Longing For You
-06. Don't Touch The Light
-07. SDI
-08. No More
-09. L.A.Жанр: Heavy Metal/Hard-rockПродолжительность: 00:37:55
+01. We Take Care Of Our Own
+02. Easy Money
+03. Shackled and Drawn
+04. Jack Of All Trades
+05. Death To My Hometown
+06. This Depression
+07. Wrecking Ball
+08. Youve Got It
+09. Rocky Ground
+10. Land Of Hope And Dreams(   Читать дальше...   )2012Жанр: Rock, Singer-SongwriterПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C2126FDAAF22426B15653C62D71042919504A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462856   (95621) от 05.03.2012
+
+Водная жизнь (1 серия из 26) / Water Life (2007) BDRip[720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету.Жанр: ДокументальныйПродолжительность: 00:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396958A8241203D1E3AAFB7E41F0E6378DBB1EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462897   (95619) от 05.03.2012
+
+Roy Roberts - Deeper Shade Of Blue (1999) [FLAC|Lossless]<Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Help You Tonight (3:52)
+02. Blues Get Off My Shoulder (3:19)
+03. Tonight Your Love Belongs To Me (3:47)
+04. Mr. D.J. (3:26)
+05. I Tried (5:29)
+06. I Can't Go On (3:47)
+07. I'll Chase Your Blues Away (6:17)
+08. Learning To Love You Again (3:24)
+09. My Shades Of Blue (5:29)
+10. I've Been Makin' Love (4:10)(   Читать дальше...   )1999Жанр: Modern Electric BluesПродолжительность: 00:5200
 
 ## Скачать торент
 ```bash
@@ -206,25 +243,334 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461134   (95356) от 03.03.2012
+###  Публикация: 462905   (95613) от 05.03.2012
 
-Пастушья кукла / Зеннентунчи / Проклятие Альп / Sennentuntschi (2010) BDRemux [1080p]
+Steve Weingart & Renee Jones - Dialogue (2011) [FLAC|Lossless]<Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Village (5:32)
+02. Restless (4:59)
+03. Back Down (5:37)
+04. Eethray (5:27)
+05. Lighthouse (5:04)
+06. Busy Day (5:39)
+07. Empty Chair (3:05)
+08. Spider Web (5:29)
+09. Tell Tales (4:59)
+10. Do Note Move (5:45)(   Читать дальше...   )2011Жанр: Jazz, FusionПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462823   (95604) от 05.03.2012
+
+VA - Seashore Desire #23 (2012) [MP3|320 kbps] <Uplifting Trance, Dream Trance, Progressive Trance, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solesystem presents Mel-O-Maniacs - A Little Big Planet (Basil O'Glue Remix) [07:20]
+ 02. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) [08:28]
+ 03. Orjan Nilsen - Atchoo! (Original) [07:16]
+ 04. M.I.K.E. - Back In Time (Orjan Nilsen Refix) [07:44](   Читать дальше...   )Жанр: Uplifting Trance, Dream Trance, Progressive Trance, Trance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2E0B25A7C1C6BA98DC3EA132AFDE5726A0CFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462911   (95603) от 05.03.2012
+
+Alice Coltrane - Universal Consciousness & Lord Of Lords (2011) [FLAC|Lossless]<Jazz, Modern Composition>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Universal Consciousness (5:06)
+02. Battle At Armageddon (7:21)
+03. Oh Allah (4:55)
+04. Hare Krishna (8:16)
+05. Sita Ram (4:47)
+06. The Ankh Of Amen-Ra (6:13)
+07. Andromeda's Suffering (9:04)
+08. Sri Rama Ohnedaruth (6:12)
+09. Excerpts From The Firebird (5:43)
+10. Lord Of Lords (11:18)(   Читать дальше...   )2011Жанр: Jazz, Modern CompositionПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462725   (95599) от 05.03.2012
+
+El Suerte & Friends - Cafe Latino (2002) [FLAC|Lossless]<Easy Listening>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Rio De La Pasiуn
+02. Songuara
+03. Nothern Light
+04. Colour Festival
+05. Solola
+06. Garifuna Rhythm
+07. Rice & Beans
+08. Orange Walk
+09. Catalina
+10. Esperanza(   Читать дальше...   )2002Жанр: Easy ListeningПродолжительность: 01:13:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462912   (95588) от 05.03.2012
+
+Hot Club Zagreb - Hot Club Zagreb (2003) [FLAC|Lossless]<Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Sandman (2:37)
+02. Dark Eyes (3:47)
+03. Django's Tiger (2:24)
+04. Tears (4:18)
+05. Sweet Georgia Brown (2:19)
+06. Limehouse Blues (2:51)
+07. September Song (3:24)
+08. Sheik Of Araby (2:12)
+09. Dinah (2:32)
+10. Swing 41 (3:28)(   Читать дальше...   )2003Жанр: Swing, GypsyПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462883   (95580) от 05.03.2012
+
+VA - Fresh, Sharp & Sweet (1996) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Miles Davis - Milestones (5:45)
+02.Sarah Vaughan - Wave (3:29)
+03.George Benson - Jumpin' With Simphony Sid (6:35)
+04.Weather Report - Birdland (6:01)
+05.Charlie Parker - A Night In Tunisia (4:45)
+06.Stan Getz - Diamond Pin (Diaper Pin) (2:42)
+07.Louis Armstrong - C'est Si Bon (3:32)
+08.Art Blakey - Carol's Interlude (5:36)
+09.Carmen McRae - Sometimes I'm Happy (3:27)
+10.Gerry Mulligan - Bernie's Tune (8:04)(   Читать дальше...   )1996Жанр: JazzПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462775   (95569) от 05.03.2012
+
+VA - The Dance Cube XXXVI 3CD (2011) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95569.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Продолжительность: 01:17:27
+====================================
+01 - Tony Palmer - Loved You For 2 Weeks (Original Mix)
+02 - Markus Voorn - Earth Hour (Original Mix)
+03 - Breakfast pres. Keyworth - Median (Original Mix)
+04 - Dakota - Saints (Arnej Remix)
+05 - Oliver Hirsch Aka DJ Sabu - Moonsault (Original Club Version)
+06 - Orjan Nilsen - Lucky Strike (Original Mix)
+07 - Tangle & Mateusz - Evergreen
+08 - Anna Lee - New Hope (Ilya Soloviev Remix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 03:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA3CA5391D961479704DD10A2E93748DBCC2CE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462061   (95565) от 05.03.2012
+
+VA - The Dance Cube XXXV 3CD (2011) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95565.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Продолжительность 01:11:06
+========================
+01 - Grant Lewis - As You Were (Original Mix)
+02 - MilamDo & Iris - Behind The Curtains (Steve Haines Remix)
+03 - Taras Bazeev - Funcilar (Original Mix)
+04 - Dakota - Katowice (Mr. Pit Remix)
+05 - Emma Hewitt - Colours (Armin Van Buuren Remix Dub)
+06 - Claudia Cazacu - Quatrain
+07 - Lisa Lashes - The Bends (Original Mix)
+08 - Van Venrooij - We Connect (Cozmoz Darkroom Remix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 03:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B06577AADD49C886B5C6BCE81C9BE8673C27F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462885   (95560) от 05.03.2012
+
+VA - Mellow & Warm (1996) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Carmen McRae - I only have eyes for you (3:12)
+02.Stan Getz - Misty (5:26)
+03.Miles Davis - Summertime (3:19)
+04.Billie Holiday - You go to my head (2:53)
+05.Dexter Gordon - How Insensitive (4:57)
+06.Chet Baker - The Wind (3:59)
+07.Louis Armstrong - La vie en Rose (4:51)
+08.Stephane Grappelli - Paradise (6:01)
+09.Sarah Vaughan - What are you doing the rest of your life (3:55)
+10.Duke Ellington - The feeling of jazz (4:19)(   Читать дальше...   )1996Жанр: JazzПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462032   (95557) от 04.03.2012
+
+[EN] Лето Резни / The Summer of Massacre (2011) DVDRip
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95356.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Трагедия похоти, безумия и убийств... Зеннентунчи – соломенная кукла для утешения одиноких пастухов, которые живут высоко в горах. Делается она, по старинному преданию, из метлы и рогожи, набивается соломой, одевается в платье... Уж не она ли та прекрасная и дикая девушка, которая появляется ниоткуда в швейцарской деревушке? Только полицейский Рольф заботится о странной (   Читать дальше...   )Жанр: Триллер, мистика, детективРежиссер: Майкл СтейнерАктеры: Роксана Мескида, Джоэль Басман, Томас Ландл, Карлос Леаль, Ганспетер Мюллер, Николас ОвчарекПеревод: Двухголосый закадровыйСубтитры: АнглийскиеПродолжительность: 01:55:01
+Это безумный фильм, но даже cамо слово "безумный" недостаточная характеристика этого фильма. Это поездка со скоростью не ниже 100 миль в час, и это демонстрация не одного, а восьми убийств- убийств маниакальных, ужасных, безостановочных...Жанр: Ужасы, ТриллерРежиссер: Джо КастроАктеры: Шон Эбли, Тед Олдермен, Джерри Дж. Анджело, Николас ХернандезПеревод: ОтсутствуетПродолжительность: 01:37:05
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:FD25F0337B52E07157529F47E8538FA62D98CAAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,58 +578,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461902   (95347) от 03.03.2012
+###  Публикация: 462632   (95551) от 04.03.2012
 
-Deep Purple & Friends - Purple And Other Colours (2003) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dixie Dregs, Deep Purple & The London Symphony Orchestra: Take It Off The Top (live) - 4:26
-02. Ian Gillan: You Make Me Feel So Good - 4:42
-03. Roger Glover & The Guilty Party: The Bargain Basement - 3:22
-04. Sam Brown, Deep Purple & The London Symphony Orchestra: Wait A While (live) - 6:34
-05. Gillan & Glover: Clouds And Rain - 4:02
-06. Ian Gillan Band: Money Lender - 5:40
-07. Glenn Hughes & Eddie Hardin: Light Of My Life - 3:44
-08. Deep Purple & The London Symphony Orchestra: Concerto For Group & Orchestra - Movement 1 (live) - 16:35Жанр: Hard RockПродолжительность: 01:34:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461635   (95345) от 03.03.2012
-
-Андрей Валентинов | Спартак (Дилогия) [2002-2006] [FB2,RTF]
+Журнал | Playboy [Colombia] №10 [2011] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95345.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если ты не хочешь погибнуть на окровавленном песке арены, потешая зрителей, если Свобода для тебя — не просто слово, если ты уже и так мертвый, если… Имя Спартака известно каждому, но за именем прячется тайна. Спартаком греки звали одну знаменитую собаку, разорвавшую хозяина. Люди и боги, надменные римляне и бесстрашные гладиаторы, демоны, выпушенные из преисподней, проклятие, чуть не погубившее Рим, — все это сплелось кровавым клубком войны. А если бы Спартак победил?2002-2006Формат: FB2,RTF
+Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CD4B1DF1ECA584E8FA3A9D4AF53CB4267C96AA4
+magnet:?xt=urn:btih:5BE2A4D0E372F5464E823D909A06F40C4E26F4A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,15 +604,67 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461970   (95343) от 03.03.2012
+###  Публикация: 459796   (95550) от 04.03.2012
 
-Журнал | Playboy [South Africa] №1-2 (2012) [PDF]
+Бешеные деньги / The Runner (1999) DVD5
 
->>Журналы
->>Мужские журналы
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95343.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95550.jpg" />
+</div>
+
+
+###  Подробнее
+
+У молодого человека — любителя азартных игр очень много серьезных долгов. Чтобы расплатиться с ними родной дядя устраивает его на работу к одному гангстеру, которому нужен человек, который был бы посыльным, делая ставки у букмекеров. Гангстер держит его на коротком поводке, и молодой человек в свою очередь ведет себя прилично. Но до поры до времени — большие деньги, которые он переносит для ставок, кружат ему голову. Будь что будет: он посягает на деньги босса и покупает дорогое кольцо для своей подружки…Жанр: Криминал, ТриллерРежиссер: Рон МолерАктеры: Рон Элдард , Кортни Кокс , Джон Гудмен, Джо Мантенья , Букем Вудбайн , Дэвид Дженсен , Джон Дэвид Конти , Терренс Эванс , Гари Гроссман , Стив ШиррипаПеревод: Многоголосый закадровыйЯзык субтитров: русскиеПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462450   (95548) от 04.03.2012
+
+Журнал | Playboy [Colombia] №4 [2008] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF096AD142CD42AEE9720797486AEA6349A19B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462660   (95546) от 04.03.2012
+
+Журнал | Playboy [Greece] №2 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95546.jpg" />
 </div>
 
 
@@ -309,7 +674,7 @@ Playboy — легендарный журнал для мужчин, основ�
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7057E22CFA9CF843DC4C77F2B6BB21309A524231
+magnet:?xt=urn:btih:BE4270159245EA784265362366AFCDD3021F7DAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,21 +682,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 460505   (95338) от 03.03.2012
+###  Публикация: 462217   (95533) от 04.03.2012
 
-Visual Studio 11 Beta + Team Fundation Server + .NET Framework 4.5 Beta + Extensions[Eng]
+Save2pc Ultimate 5.11 Build 1376 [Eng + Rus]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95338.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Название программы: Visual Studio 11 Beta + Team Fundation Server + .NET Framework 4.5 Beta + ExtensionsЯзык интерфейса: Eng
+save2pc - программа для загрузки и конвертирования видео файлов, размещенных на популярном видео-хостинге YouTube. При помощи YouTube Downloader можно просто загрузить хоть какой видео файл веб-сервиса YouTube по приведенной на его страничке ссылке. Все, что требуется от юзера - это скопировать и вставить ссылку в особое окно програмки, выбрать хотимый формат и запустить автоматическую загрузку и конвертирование видео файла. Поддерживаются самые распространенные видео форматы (AVI, WMV, MOV, 3GP, MP4). Не считая того, может быть сохранение не видеоролика, а лишь его звуковой дорожки в формате MP3. Для конвертирования скаченных файлов употребляется всепригодный программный движок FFmpeg. В случае необходимости возможна ручная настройка всех характеристик кодировки, применяя обычные команды кодеков в строке пуска.Название программы: Save2pc UltimateЯзык интерфейса: Eng + Rus
 
 ## Скачать торент
 ```bash
@@ -343,25 +708,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461942   (95329) от 03.03.2012
+###  Публикация: 462395   (95522) от 04.03.2012
 
-Журнал | Playboy [Lithuania] №3 [2012] [PDF]
+Сурганова и Оркестр (21.04.2006) в клубе Порт<Rock> CamRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт 21.04.2006 был приурочен ко Дню Рождения группы, три годика уже. В этот же день начались продажи нового DVD группы, получившего название “Кругосветка” – двойной праздник. Не будет лишним упомянуть, что перед выступлением где-то час как раз и крутили этот DVD.
+ Праздничное выступление началось с песни “В небе полном звезд” – с той самой, которая первая на первом, (   Читать дальше...   )01. Интро
+02. В небе полном звезд
+03. Обещанный снег
+04. Не покинет(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04DDDBD7B248B8F4AEBF1D27684A83C87B31CB39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462018   (95519) от 04.03.2012
+
+[EN] Скет / Sket (2011) DVDRip
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95329.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95519.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.Формат: PDF
+Когда на молодую женщину безжалостно нападает печально известная бригада во главе с жестоким Треем, ее маленькая 16-летняя сестра Кайла хочет мести и не остановится ни перед чем, даже если придется присоединяться к конкурирующей женской бригаде...Жанр: КриминалРежиссер: Нирпал ХогалАктеры: Эшли Уолтерс, Лили Лавлесс, Айми Келли, Эмма Хартли МиллерПеревод: ОтсутствуетПродолжительность: 01:19:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2183CF5262BFA8D470AFA57753267BBA69080D4C
+magnet:?xt=urn:btih:66A797013F7DA6226926869EA7B93CC28BAF8A7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,381 +764,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461888   (95326) от 03.03.2012
+###  Публикация: 462151   (95487) от 04.03.2012
 
-Футбол. Чемпионат России 2011-12. 33-й тур. "ЦСКА" - "Зенит" (2012) IPTVRip
+LS · 2-НДФЛ_АДВ-6-2_РСВ-1 2.00 от 10.02.2012 [Русский]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95326.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Стали известны стартовые составы ЦСКА и «Зенита» на центральный матч 33-го тура чемпионата России по футболу.
-Вернувшийся в Санкт-Петербург Андрей Аршавин и восстановившийся после травмы Вячеслав Малафеев сыграют против красно-синих.Жанр: Телепередача, СпортПродолжительность: 01:46:47 (00:55:37 + 00:51:10)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462005   (95325) от 03.03.2012
-
-И. Мощанский | Средний танк Т-34-85. Второе рождение машины (2009) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена истории создания и внедрения в производство знаменитого советского танка Т-34-85. Результатом деятельности сразу нескольких конструкторских коллективов стала коренная модернизация танка, буквально подарившая знаменитой "тридцатьчетверке" второе рождение. Запускать в серийное производство новую модель было доверено заводу № 112 "Красное (   Читать дальше...   )Жанр: История бронетехникиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BF4523B8F839AB17857DA1AC762D3733CB1BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461973   (95324) от 03.03.2012
-
-Xubuntu 12.04 LTS "Precise Pangolin" Beta 1 [i386 + x86_64] (2xCD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышла первая бета-версия Xubuntu 12.04. Xubuntu — дистрибутив Linux, основанный на проекте Debian, базирующийся на Ubuntu. Использует так называемую «легкую» графическую среду Xfce и приложения на GTK+2. Цель проекта — возможность использования легковесной альтернативы рабочим средам GNOME и KDE. Xubuntu имеет стильный минималистский интерфейс пользователя, экономно использующий память и другие аппаратные ресурсы компьютера, что позволяет комфортно работать на старых машинах. Но вместе c тем, данный дистрибутив является современной системой, имеющей огромный набор высококачественных пакетов. Основное отличие от базового варианта — среда рабочего стола Xfce. Большинство прикладного ПО также взято из этой среды. Новые версии дистрибутива выходят каждые 6 месяцев и поддерживаются обновлениями безопасности — в течение 18 месяцев для обычной версии или 3 лет для LTS-версии (сокр. Long Time Support — «Долгосрочная поддержка»).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FDE7CFE612E9D709BD5FF11E7CC2BDED50AED67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461603   (95318) от 03.03.2012
-
-Вячеслав Шульга | Берег дна (S.T.A.L.K.E.R.) [2011] [FB2,epub,rtf]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то в недрах Зоны, в «мерцающем» городе Лиманске, пропадает научная экспедиция профессора Титаренко. Профессор передает «наружу» просьбу о помощи и сообщает, что совершил в Зоне невероятное научное открытие.
-Дочь профессора, четырнадцатилетняя Маша, решается сама отправиться на поиски отца и нанимает команду сталкеров. Однако, не только она заинтересована в поисках профессора - в дело вмешиваются могущественные силы. На «отряд спасения» объявлена охота по всей Зоне. Что открыл профессор - путь к Монолиту, мрачную тайну происхождения Зоны или что-то совсем неожиданное? Почему на него охотятся? Где он смог спрятаться? Кто они - тайные враги экспедиции, а кто - загадочные помощники? Выходите на «Берег дна» и все узнаете!2011Формат: FB2,epub,rtf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32729770DE2084BAFABEF48984CF23F3498DB87D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461981   (95316) от 03.03.2012
-
-VA - MAYDAY (2011) [FLAC|Lossless]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Members Of Mayday - Ravemobil
-02. Moguai & Westbam - Original Hardcore (Moguai Edit)
-03. Funkerman - Crash Test
-04. Sebrof - In A Club (So Make Some Noise)
-05. Felix Da Housecat pres… Thee Nese Djouma Projesi - Zaman (Moguai Remix)
-06. Jaydee - Plastic Dreams (Koen Groeneveld Remix)
-07. Inpetto - Hit Back
-08. Toper & Andrian - Laziness
-09. The BeatThiefs - Umbungo (Chocolate Puma Remix)
-10. Jochen Miller - Troucid(   Читать дальше...   )2011Жанр: Progressive HouseПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461955   (95315) от 03.03.2012
-
-Леонид Андреев | Проклятие зверя (2008) [MP3, Виктор Рудниченко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95315.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Я хочу написать такую вещь, которая собрала бы воедино и оформила те неясные стремления, те полусознательные мысли и чувства, которые составляют удел настоящего поколения. Я хочу показать, что вся жизнь человека с начала до конца есть сплошной бессмысленный самообман, нечто чудовищное, понять которое - значит убить себя".Жанр: Отечественная классика, проза, рассказИздательство: АРДИСПродолжительность: 12:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3CB1900C759EEE0477F87A1294FD5615EFCD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460982   (95311) от 03.03.2012
-
-VA - Chacruna (Compiled by DJ Gino) (2008) [APE|Lossless]<Psychedelic / Progressive, Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liftshift - New Dawn (08:46)
-02. Quantize - Black Rock City (08:20)
-03. Loud - Subinya2008Жанр: Psychedelic / Progressive, Full OnПродолжительность: 01:18:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461979   (95309) от 03.03.2012
-
-Yngwie Malmsteen - Marching Out (1984) /1994, Polydor/ [FLAC|Lossless]<Heavy/Power-metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude
-02. I'll See the Light, Tonight
-03. Don't Let It End
-04. Disciples of Hell
-05. I Am a Viking
-06. Overture 1383
-07. Anguish and Fear
-08. On the Run Again
-09. Soldier Without Faith
-10. Caught in the Middle(   Читать дальше...   )Жанр: Heavy/Power-metalПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461682   (95281) от 03.03.2012
-
-Старшие Арканы - Корабль привидений (2012) [MP3|320 кб/с]<progressive metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Корабль привидений
-02-Дом желтых стен
-03-Ра
-04-Вечный гонщик
-05-Ночь печали
-06-Путь домой
-07-Иерофант
-08-Косумель
-09-Бракосочетание Рая и Ада
-10-Путь домой (chill out version)(   Читать дальше...   )2012Жанр: progressive metalПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FC1E705FA2C5C815648612C54A40BD57733C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461887   (95277) от 03.03.2012
-
-М.Коломиец, И.Мощанский | Танки Ленд-лиза [2000] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга содержит большое количество фотографий бронетанковой техники поставлявшейся СССР по ленд-лизу из США Англии и других стран, помимо этого содержатся данные о том сколько и когда было поставлено, какие достоинства и недостатки были у поставляемых машин, их описания и т.п.. Книга адресована всем кто интересуется историей Второй мировой войны.В книге использованы (   Читать дальше...   )Жанр: Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF41AD75F56890B81D9D247F55BF07B4D206CC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461416   (95265) от 03.03.2012
-
-Прожекторперисхилтон. Сезон 4. Выпуск 19(119) (24.02.2012) DVBRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95265.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E160BF7B2DF663DC418BE6FC109DC4D6DFD44AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461696   (95257) от 03.03.2012
-
-Antonio Carlos Jobim - Miucha e Tom Jobim (1979) [FLAC|Lossless]<Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95257.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Triste Alegria (Miucha)
-2. Turma do Funil (Mirabeau-Oliveira-Castro)
-3. No Cego (Toquinho-Cacaso)
-4. Falando de Amor (Jobim)
-5. Samba do Carioca (Lyra-Moraes)
-6. Madrugada (Candinho-Pinto)
-7. Sublime Tortura (Bororo)
-8. Aula de Matematica (Jobim-Pinto)
-9. Dinheiro em Penca1979Жанр: JazzПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461453   (95254) от 03.03.2012
-
-Crane - Refuge (2011) [FLAC|Lossless]<Hard Rock/Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Able To Be Yourself - 2:59
-02. Goodbye - 4:29
-03. Fantasies - 4:07
-04. Wake Up - 3:53
-05. Paradise - 3:26
-06. King Of Trash - 2:53
-07. If You Open Up Your Eyes - 3:42
-08. Soul II Soul - 4:51
-09. Riddle - 2:52
-10. Capital Fascism - 3:18(   Читать дальше...   )Жанр: Hard Rock/Classic RockПродолжительность: 00:43:51
+Подготовка и формирование сведений в электронном виде по формам 2-НДФЛ, АДВ-6-4, СЗВ-6-3, АДВ-6-2, СЗВ-6-1, СЗВ-6-2 и РСВ-1.
+ Осуществляется ввод справок о доходах физических лиц, сведений персонифицированного учета и расчетов по начисленным и уплаченным страховым взносам, а так же формирование файлов для передачи налоговыми агентами и плательщиками страховых взносов сведений в ИФНС и ПФР. В наличии печать отчетов.Название программы: LS · 2-НДФЛ_АДВ-6-2_РСВ-1Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash

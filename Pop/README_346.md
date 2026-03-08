@@ -1,3 +1,61 @@
+###  Публикация: 1791688   (67786) от 15.04.2025
+
+VA - Now That's What I Call Music! 29 (1994) 2 CD [OGG Vorbis|480 Kbps] <Pop, Pop Rock, House, HipHop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pato Banton With Robin And Ali Campbell - Baby Come Back
+02. Cyndi Lauper - Hey Now (Girls Just Wanna Have Fun)
+03. Big Mountain - Baby I Love Your Way
+04. Take That - Sure(   Читать дальше...   )Жанр: Pop, Pop Rock, House, HipHop, Euro HouseПродолжительность: 02:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB7074DCF3516294C9FA0172122227170D68011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791593   (67783) от 15.04.2025
+
+Don Amore - One More Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo-Disco, Euro-Disco, Synth-Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - One More Time (Extended Vocal Amore Mix) [5:56]
+02 - One More Time (Extended Instr Amore Mix) [5:56]
+03 - One More Time (Short Vocal Amore Mix) [4:08]
+04 - One More Time (Extended Vocal Crazy Mix) [5:35](   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-Disco, Synth-PopПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE82F909AFC5734E2AA3C1CD802716AED4C71128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792778   (67639) от 20.04.2025
 
 VA - Grew Up in the 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>>
@@ -687,64 +745,6 @@ The Temptations - Reflections (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C0BC2E3B9B2CE84BE6228470F35B3E485E90F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802070   (66123) от 14.06.2025
-
-Алла Иошпе и Стахан Рахимов - Дороги артистов (1988) [MP3|320 Kbps] <Ретро, Эстрада>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Средняя Азия [00:04:21]
-02 - Каким неведомым богам [00:02:35]
-03 - Разлука [00:04:50]
-04 - Рубаи [00:03:57](   Читать дальше...   )Жанр: Ретро, ЭстрадаПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6552EA861479DABD56B25B93C6876E25C9615FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801918   (66117) от 14.06.2025
-
-Lonestar - Lonely Grill (1999) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturday Night    [0:04:03.52]
-02. Simple as That    [0:03:17.70]
-03. Amazed    [0:04:00.68]
-04. What About Now    [0:03:29.60](   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20589EB4AE9F31D2595FD2C12A9F6C5AF3692151
 ```
 
 https://mybot314.ru/tekegram_catalog/

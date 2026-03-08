@@ -1,166 +1,22 @@
-###  Публикация: 906556   (641471) от 10.06.2015
+###  Публикация: 518028   (641536) от 04.07.2012
 
-Hydra - самый сложный гуманоидный робот, который не был закончен к началу финала соревнования DARPA Robotics Challenge
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время финала соревнования Robotics Challenge (DRC), проводимого Управлением перспективных исследовательских программ Пентагона DARPA, произошло множество неожиданных ситуаций и поломок, из-за которых не всем роботам удалось полностью преодолеть дистанцию полигона Fairplex в Помоне, Калифорния. Оказывается, что существуют еще роботы, создатели которых подали заявку (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906986   (641470) от 10.06.2015
-
-Soft Kit 1.1.8 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soft Kit — небольшой установщик популярных программ. Программ в комплекте немного, все программы бесплатные, преимущественно с лицензией GNU LGPL и Free. Soft Kit работает в режиме online скачивая выбранные программы из интернета. Для закачки используется утилита aria2, файлы типа LibreOffice загружается по P2P. Если скорость вашего интернет-соединения высокая, то (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70E8EB3A3D4C5C6F96B62E0FF7E4A2C7745DE38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895842   (641469) от 10.06.2015
-
-Hungry Shark Evolution 3.2.0 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пловцы Осторожно! Hungry Shark™ снова здесь и она голоднее, чем когда-либо!
-Испытай жизнь акулы в окончательном тесте на выживание. Невероятная 3D-графика и экшн геймплей. Вырасти из детеныша в 10 тонную белую акулу! Проешь свой путь вокруг разнообразного подводного мира полного чудес и опасностей.
-Полакомись вкусными морскими существами, пловцами, черепахами и рыбаками, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 2 мая 2015 г.Разработчик: Future Games of LondonПоддерживаемая ОС: Android 2.3 +Жанр: RacingeЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A264E08886BADDA1ED4B224F114000FCEE85423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904297   (641468) от 10.06.2015
-
-Отпуск на Майорке / Brevi amori a Palma di Majorca (1959) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое итальянцев отправляются на Майорку в надежде подцепить пару иноземных красавиц. Но незадачливым плэйбоям чертовски не везет. Кажется, на пляже появляются только их соотечественницы с родителями, да капризные содержанки.Производство: Италия, Испания / CEI Incom, Chamartn Producciones y Distribuciones, Napoleon Film, PGC, Societ Generale CinematograficaЖанр: КомедияРежиссер: Джорджо БьянкиАктеры: Альберто Сорди, Дориан Грей, Белинда Ли, Джино Черви, Россана Мартини, Висенте Парра, Патриция Делла Ровере, Джулио Парадизи, Палома Валдес, Мерседес АлонсоПеревод: Многоголосый закадровый, 5-й канал СПбЯзык субтитров: ОтсутствуютПродолжительность: 01:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242C8D8FC421CA460148789859DD197560253594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905048   (641466) от 10.06.2015
-
-VA - Best Of The Best (1995) 2CD[FLAC|image +.cue]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr.Zivago - Tell By Your Eyes (6:24)
-02. Lucia - Marinero (remix) (7:10)
-03. Ricchi E Poveri - Acapulco (3:44)
-04. Aventura - Di Mi Quando (4:55)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9454BD99C95A6F2EA7C3C3FD64B5BC2DFB32CC0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517522   (641465) от 04.07.2012
-
-Hilary Hahn & Hauschka - Silfra (2012) [MP3|320 кб/с]<Modern Classical>
+Textures - 4 альбома (2003-2011) [MP3|320 kbps] <Progressive Death Metal / Groove Metal / Math Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641465.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stillness (1:46)
-02. Bounce Bounce (2:28)
-03. Clock Winder (2:44)
-04. Adash (5:30)
-05. Godot (12:39)
-06. Krakow (2:44)
-07. North Atlantic (6:49)
-08. Draw a Map (2:28)
-09. Ashes (3:17)
-10. Sink (2:04)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:51:35
+Года выпуска: 2003-2011Жанр: Progressive Death Metal / Groove Metal / Math MetalПродолжительность: 00:56:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:040026A31D0DC701FE7CE83EF7E76530F07AECCB
+magnet:?xt=urn:btih:A48D8F898AF0297524FF9CDEB11EE4A86FBBBCE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,79 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906858   (641464) от 10.06.2015
+###  Публикация: 518772   (641535) от 04.07.2012
 
-Книжная серия | Великие правители [9 книг] (2014) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто больше сделал для империи? Петр I, который ее основал? Александр I, который устоял перед нашествием Наполеона? Александр II, освободивший крестьян? Многие российские императоры внесли свою лепту в процветание и укрепление России, но лишь одно царствование называют Золотым веком Российской империи!
-
-Когда юная принцесса София Августа Фредерика фон Анхальт-Цербст-Дорнбург (   Читать дальше...   )Жанр: Биографии и Мемуары, ИсторияПеревод: А. Милехин, Геннадий Ярославцев, В. Минорский, Георгий ВернадскийФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0EEA96B88AE8656EA25FBEC5183BCA79CDD40C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518514   (641463) от 04.07.2012
-
-Журнал | Marie Claire №07 июль (Россия) [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Marie Claire" - это воплощение живой девушки, которая работает, неплохо зарабатывает, ни перед кем финансово не отчитывается и деньги тратит исключительно на свои прихоти. Может быть, у нее сейчас есть постоянный друг - мужчина, которого она по-настоящему уважает. Мы с вами знаем эту девушку, потому что она такая же, как мы. Думает, в чем пойти на работу, и при этом периодически совершает безумные покупки, знает значение слов "статусно" и "пафосно" и при этом любопытна до крайности. Все попробовать самой, везде побывать, по любому поводу иметь свою точку зрения. Ее зовут Marie Claire, и она - отражение эпохи, девушка, которой можно все.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A127DA45970CFFA7AB68A48E3F803CAA062917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518827   (641462) от 04.07.2012
-
-[Графика] Ken Taylor Artwork
+[Wallpapers 16+] Wallpapers Sexy Girls Pack (04.07.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641462.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641535.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ken Taylor Artwork
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3565x2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F52503B43276CF9F6F7A66C9748C2687A242EEEC
+magnet:?xt=urn:btih:A8892B608559202985905B6B649151B9EEF16E5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,28 +50,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906932   (641461) от 10.06.2015
+###  Публикация: 518486   (641534) от 04.07.2012
 
-Space - Лучшие хиты (2014) [MP3|320 кб/с]<Electronic>
+VA - In Da Club: Euphoric Trance Volume 1 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641461.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641534.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Magic Fly
-02. Symphony
-03. Tango In Space
-04. Just Blue(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:15:18
+001. 2nd Phase - Lesson Learned (Garry Heaney Remix)
+002. Alex M.O.R.P.H. & Protoculture - Waking Up The Stars (Original Mix)
+003. Andy Duguid feat. Shannon Hurley - I Want To Believe (Original Mix)
+004. Bartlett Bros., Matt Loki & Tiff Lacey - Sweet Child (Fabio XB Rework)
+005. Betsie Larkin & Sied Van Riel - The Offering (Save The Robot Remix)
+006. Cathy Burton & Omnia - Hearts Connected (Original Mix)
+007. Dennis Sheperd & Talla 2XLC - Two Worlds (Original Mix)Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:59:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BF1C8E532599B07216D1EF0D54AAE0035569D68
+magnet:?xt=urn:btih:1ED7CAE66147D211AE7258C896EEDC975FF7AB31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,25 +82,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906890   (641459) от 10.06.2015
+###  Публикация: 518764   (641533) от 04.07.2012
 
-F-Secure Freedome 1.0.1517.0 [Multi/Ru]
+Evil Masquerade - Pentagram (2012) [FLAC|Lossless]<Melodic Heavy Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641459.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Изменяйте свое виртуальное местоположение с помощью F-Secure Freedome VPN — перенеситесь хоть в другое полушарие. Это полезно, когда хочется получить самое лучшее подключение, добавить дополнительный уровень безопасности или воспользоваться любимыми службами, когда вы далеко от дома. Позвольте Freedome подключить вас к ближайшему серверу F-Secure Cloud или сами выберите (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+01. Pentagram (04:13)
+02. A Silhouette (03:54)
+03. Perfect Disgrace (03:28)
+04. The Spirits Of The Dead (04:15)
+05. Moonlight Fantasy (03:04)
+06. Unholy Water (03:54)
+07. Pray For Mercy On Our Souls (03:33)
+08. Soul Taker (04:38)
+09. On A Bed Of Thorns (04:21)
+10. Strangers Might Fool Ya' (02:11)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:42:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A36717228EC1C06FED7D0D4DA502522E91E3EAF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,34 +117,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 516960   (641458) от 04.07.2012
+###  Публикация: 518720   (641530) от 04.07.2012
 
-VA-African Tribal Music And Dances - African Tribal Music And Dances (2008) [MP3|320 кб/с]<Ethnic, Folk>
+Little Feat - Rooster Rag (2012) [FLAC|Lossless]<Southern-Rock / Blues-Rock>
 
->>Other Styles
->>Folk
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641458.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[01]. Festival Music
-[02]. Solo For The Seron
-[03]. Hymn Of Praise
-[04]. Percussion Instruments
-[05]. Festival Of The Circumcision
-[06]. Dance Of The Hunters
-[07]. Dance Of The Women
-[08]. Invocation, Entrance And Dance Of The Glaou
-[09]. Duet For Flutes
-[10]. Solo For Musical Bow(   Читать дальше...   )Жанр: Ethnic, FolkПродолжительность: 01:05:54
+01. Candy Man Blues - 3:05
+02. Rooster Rag - 4:36
+03. Church Falling Down - 5:22
+04. Salome - 6:32
+05. One Breath at a Time - 5:17
+06. Just a Fever - 4:24
+07. Rag Top Down - 5:26
+08. Way Down Under - 4:06
+09. Jamaica Will Break Your Heart - 4:25
+10. Tattooed Girl - 4:54(   Читать дальше...   )Жанр: Southern-Rock / Blues-RockПродолжительность: 00:58:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:699C458FBCCC404DE8A7F6EF1DAF6A65739AC468
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,25 +152,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906738   (641457) от 10.06.2015
+###  Публикация: 518853   (641529) от 04.07.2012
 
-Александр Сидоров | Великие битвы уголовного мира. История профессиональной преступности Советской России. Книга первая (1917-1940 г.г.) (1999) [FB2]
+VA - Whisper of Consciousness Volume 22 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 
->>Научная и техническая литература
->>Историческая литература
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641457.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«История профессиональной преступности Советской России» — первое серьёзное и подробное исследование отечественной профессиональной преступности начиная с 1917 года. В книге проанализированы все этапы становления и развития профессионального уголовного мира СССР, его особенности, неформальные «законы» и традиции, критикуются неверные теории и ложные концепции целого (   Читать дальше...   )Жанр: ИсторияФормат: FB2
+001. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix)
+002. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Extended Mix)
+003. Temple One feat. Hannah Ray - Autumn Leaves (Estiva Remix)
+004. Simon Patterson & Greg Downey feat. Bo Bruce - Come To Me
+005. Roger Shah feat. Inger Hansen - Dance With Me
+006. Vincent De Jager feat. Emma Lock - Dive (Original Mix)
+007. Physical Phase feat. Loreen Chimenti - Donne Moi Ton Corps (Vincent Licata Remix)
+008. Vada - Fire In The Sky (Stoneface & Terminal Remix)Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:00:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEB1688F596B6B53147D596171C45EF657216CAB
+magnet:?xt=urn:btih:6DAE60D961CEA527E1A1709C4A9A2F8E6C0F129A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,30 +185,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 518582   (641455) от 04.07.2012
+###  Публикация: 518789   (641528) от 04.07.2012
 
-Allele - Next To Parallel (2011) [FLAC|Lossless]<Alternative Metal>
+Heaven Rain - Second Sun (2012) [FLAC|Lossless]<Symphonic Progressive / Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641455.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Let It Go
-2. Closure
-3. What I Get
-4. Dead And Cold
-5. Drone
-6. Something Cured
-7. Feed The Wolves
-8. Hurt
-9. Chains Of Alice
-10. Answers(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:48:06
+01. Close To Dawn (1:35)
+02. Heaven Rain (3:42)
+03. Dreamless (4:06)
+04. My Only One (4:02)
+05. Second Sun (3:39)
+06. Face Of Misery (4:19)
+07. Nowhere (4:47)
+08. Raven In Heart (4:03)
+09. When Day Fades To Dark (3:58)
+10. At The End Of Time (3:48)(   Читать дальше...   )Жанр: Symphonic Progressive / Power MetalПродолжительность: 00:42:07
 
 ## Скачать торент
 ```bash
@@ -399,77 +220,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 518490   (641452) от 04.07.2012
+###  Публикация: 518742   (641527) от 04.07.2012
 
-Каникулы в Мексике - 2. Выпуск №87 (2012.07.03) (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641452.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA4E62D1D77C8E24B8C3E94D5874B77D7E2DD08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518774   (641444) от 04.07.2012
-
-JEFF the Brotherhood - Sixpack (2012) [H.264] WEBRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Indie RockПродолжительность: 00:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:647871AD20C08F5418E59572FA7340D6D2FDFC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518953   (641443) от 04.07.2012
-
-[картинки] Native American Face
+Картинки - Indian Dolls (Индейские куколки) [JPEG]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641443.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция разных картинок с изображением индейцев (может кому пригодится..)
+Моё собрание куколок и это ведь красиво и занимательно. (Может кому пригодится.)Разрешение файлов: разные от 450х659 до 1247Х499Формат: jpeg
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A139EF07C991CD714A9E556F1D11C2BF98CD7638
+magnet:?xt=urn:btih:921C8F0BD47681024E747732853A9B548C3DFC27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,25 +246,247 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 518535   (641439) от 04.07.2012
+###  Публикация: 518773   (641526) от 04.07.2012
 
-Hornil StylePix 1.10.0 + Portable [Multi/Rus]
+2:54 - 2:54 (2012) [FLAC|Lossless]<Indie-Rock, Dream-Pop, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolving
+02. You’re Early
+03. Easy Undercover
+04. A Salute
+05. Scarlet
+06. Sugar
+07. Circuitry
+08. Watcher
+09. Ride
+10. CreepingЖанр: Indie-Rock, Dream-Pop, ShoegazeПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518586   (641525) от 04.07.2012
+
+VA - Ferry Corsten Presents Corsten's Countdown June (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641525.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Ferry Corsten Presents Corsten's Countdown June (2012)
+
+Год: 2012
+Жанр: Trance
+Продолжительность: 01:04:51Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТреклист:
+01. Festen - Wassup Vegas (5:37)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC749834B73ADC3022BB616F2709CECD1A0A8AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518401   (641524) от 04.07.2012
+
+VA - Hospitality Drum & Bass 2011 (30.01.2011) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Elektricity - Just One Second (Apex VIP)
+02. Blokhe4d - The Way Life Used To Be
+03. Sigma Featuring Logistics - Dreams To Reality
+04. Fred V - Simple Beginnings
+05. Danny Byrd Featuring Netsky - Tonight
+06. Camo+Krooked - Reincarnation
+07. Receptor - Ass
+08. Danny Byrd Featuring I-Kay - Ill Behaviour
+09. Die + Interface Featuring William Cartwright - Bright Lights (Netsky Remix)
+10. Joe Syntax - Fire Engine(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1D4F6A14739D823F2F29FFEDA1D995F5593473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518394   (641523) от 04.07.2012
+
+Mad M!nd - Bass 2 Face v2.0 (2012) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matrix & Futurebound ft Luke Bingham - All I Know (Matrix & Futurebound Smash and Grab Mix)
+02. Albin Myers - Hells Bells (Drumstep Mix)
+03. 2DB - Amiga Man (Original Mix)
+04. Triage - Brawl (Triage Drumstep Remix)
+05. Modestep - Show Me A Sign (Camo & Krooked remix)
+06. Dose - Caffeine Dream (Original Mix)
+07. DJ Fresh - Hot Right Now (Ferv Pitch Remix)
+08. Kairo Kingdom - One Two (Original Mix)
+09. Triage - Radium (SPL Remix)
+10. Rihanna - Birthday Cake (Proper Villains Remix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F225B77DD898D24A88668CB891984BBA4845C0FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907051   (641522) от 10.06.2015
+
+Фрэнсис Бэкон и др. | Новая Атлантида [сборник] (2014) [PDF, DOCX, EPUB]
+
+>>Художественная литература
+>>Классическая поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утопия – это жанр художественной литературы, описывающий модель идеального общества. Впервые само слова «утопия» употребил английский мыслитель XV века Томас Мор. Книга, которую Вы держите в руках, содержит три величайших в истории литературы утопии.
+«Новая Атлантида» – утопическое произведение ученого и философа, основоположника эмпиризма Ф. Бэкона
+«Государства (   Читать дальше...   )Жанр: УтопияФормат: PDF, DOCX, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3325A0898E829E819BA1FF4C3C277475E444E662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906865   (641521) от 10.06.2015
+
+Сергей Сушинский | Лоббирование от "А" до "Я" (2015) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди, желающие улучшить жизнь в своей стране, поделились на три группы: первые опускают руки, чувствуя своё бессилие, вторые входят в радикальные объединения, а третьи строят гражданское общество.
+Формирование гражданского общества прежде всего молодым поколением – цель, значение которой невозможно переоценить. Это понимает и власть и общество. Но готова ли власть (   Читать дальше...   )Жанр: Обществознание, СоциологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFA7FB9293A088A59BDE3A960F99F848861A9F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905846   (641520) от 10.06.2015
+
+Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delilah
+02. Help Yourself
+03. She's A Lady
+04. What's New Pussycat(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F6BAAF62C249BD93E450365DE54E004D516E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907032   (641519) от 10.06.2015
+
+NVIDIA GeForce Experience 2.4.5.44 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641439.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641519.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hornil StylePix - программа, позволяющая ретушировать фотографии, изменять их размер, повернуть, провести цветокоррекцию, наложить текст, сделать фотоколлаж, вырезать, копировать и вставлять фотографии, применять различные фильтры, удалять эффект красных глаз и многое, многое другое. И это бесплатно. Имеет интуитивно понятный пользовательский интерфейс. Он предназначен для легкого и удобного управления отдельными функциями.Название программы: Hornil StylePixЯзык интерфейса: Multi/Rus
+NVIDIA GeForce Experience - это новое приложение от NVIDIA, которое оптимизирует ваш ПК двумя основными способами. Во-первых, GeForce Experience автоматически уведомляет вас о новых выпусках драйверов от NVIDIA и скачивает их для вас. NVIDIA постоянно работает над улучшением драйверов. Новые драйверы улучшают производительность игр, добавляют новые возможности и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F5FD3475388A47542877629A750526CCF655A2D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,34 +494,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 518711   (641437) от 04.07.2012
+###  Публикация: 906578   (641518) от 10.06.2015
 
-VA - Союз Золотой 8 50/50 (2012) [MP3|256 кб/с]<Рор>
+Роман Заря - Небом венчаны (2015) [MP3|320 кб/с]<Шансон>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641437.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641518.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Анна Семенович - Июльское Лето
-002 Dr. Alban - Loverboy
-003 Инь-Ян - Инопланетянин
-004 Rihanna feat. Calvin Harris - We found love
-005 Маша Вебер - Всё Для Тебя
-006 Rico Bernasconi & Freeze - Hit the dust (Video mix)
-007 Алабама - Испанское Лето
-008 Ivan Gough & Feenixpawl feat. Georgi Kay - In my mind (Radio mix)
-009 Reflex - Я буду небом твоим
-010 Basto! feat. Yves V - Cloud breaker (Basto radio edit)(   Читать дальше...   )Жанр: РорПродолжительность: 05:54:57
+01. Небом венчаны
+02. Виноваты
+03. Хрустальный замок
+04. Река любви(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:59:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE8D75C8EA9E1B4556A8FA968C0FE4F032428015
+magnet:?xt=urn:btih:DFDC9363E8471227B1AE9E1288E65C3CB5519215
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,25 +523,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 518824   (641432) от 04.07.2012
+###  Публикация: 906306   (641517) от 10.06.2015
 
-[Графика] Художник Алексей Адамов
+100 Locked Doors 2 1.0.2 [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641432.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Художник Алексей Адамов
+100 Locked Doors 2 - продолжение известной головоломки «100 Doors». Как и в других играх этого жанра вам необходимо найти способ открыть все двери, которые станут у вас на пути. Изначально все двери заперты, для того, чтобы их открыть вам понадобится проявить себя и постараться решить ребус. Отгадать загадку или решить головоломку. Каждая следующая дверь будет открываться (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 4 июня 2015 г.Разработчик: Protey AppsПоддерживаемая ОС: Android 2.3 +Жанр: PuzzleЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D124F2E30FE320ED80FE3CE8015D230BAED62DA7
+magnet:?xt=urn:btih:D1BAFB74CC6232C5655CE6661CE506A2B1A0A98E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,25 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 331398   (641424) от 07.06.2011
+###  Публикация: 906105   (641516) от 10.06.2015
 
-Похищение и выкуп / Kidnap And Ransom (Сезон 1 полный (3)) (2011) HDTVRip (Katerina & Laids)
+Форт павших / Fort Massacre (1958) HDTV [H.264/1080i]
 
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641424.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Британский эксперт по ведению переговоров Доминик Кинг берется за дело похищенной женщины в Южной Африке. Она была похищена человеком по имени Виллард. Когда женщину не удалось вернуть и Виллард вернулся в Великобританию, Кинг понимает что дело не только в выкупе, что мотивы похитителя гораздо глубже...Производство: ВеликобританияЖанр: Криминал, драма, триллерРежиссер: Энди УилсонПеревод: Любительский двухголосый закадровый -  Katerina & LaidsСубтитры: русские, английские - внешниеПродолжительность: ~ 00:45 мин серия
+Кавалерия попадает в засаду апачей, убит капитан и тяжело ранен лейтенант, сержант принимает на себя командование отрядом. Оставшимся в живых солдатам нужно найти основную колонну и добраться в форт Крейн. Но сначала им нужна вода, а ближайший водоем находится в руках апачей…Производство: США, Mirisch CorporationЖанр: ВестернРежиссер: Джозеф М. НьюманАктеры: Джоэл МакКри, Форрест Такер, Сюзан Кэбот, Джон Расселл, Джордж Н. Нейс, Энтони Карузо, Роберт Остерлох, Денвер Пайл, Фрэнсис МакДональд, Гай ПрескоттПеревод: Двуголосый закадровыйПродолжительность: 01:16:58
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E79D435CC6FFD9CC5CEE487735298E3E49E984E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,27 +575,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032915   (641422) от 09.07.2016
+###  Публикация: 907042   (641515) от 10.06.2015
 
-Perfectly Clear Plugin for Photoshop and Lightroom  (Complete) 2.2.2 [En]
+Papers 3.2.10 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641422.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photoshop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-
-В цифровых камерах есть ограничения, которые приводят к таким (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июля 2016Разработчик: Athentech Imaging Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+Papers — персональный каталогизатор научных статей
+Каталогизация журнальных статей и публикаций — весьма нелегкая задача. Особенно это знают люди, ведущие журналистскую деятельность и научную работу. Немудрено, что для упрощения этой задачи очень хочется использовать компьютер.
+Отчасти тут хватит встроенных в OS X средств: поиск с помощью Spotlight, просмотр в стандартном (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 мая 2015Разработчик: MekentosjПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D7F0BE65C9DD4E12A24D323EF1A55D55447978E
+magnet:?xt=urn:btih:9017359B6F23D302413ED4938B15285911C3328F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,25 +603,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032969   (641421) от 09.07.2016
+###  Публикация: 907086   (641514) от 10.06.2015
 
-Uninstall Tool 3.5.0 Build 5473 Beta [Multi/Ru]
+Диана Романовская | 40 рецептов для отпуска (2015) [RTF]
 
->>След.
->>Архив Программ
+>>Разное (категория книг)
+>>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641421.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Ура! Вы всей семьей едете в отпуск. Отдыхать, расслабляться и развлекаться. Вы выбрали жилье с оборудованной кухней и планируете готовить самостоятельно. В отпуске крайне важно делать все с удовольствием, чтобы зарядиться энергией на месяцы вперед. Поэтому будем беречь время, силы и руки главного повара. Для этого надо следовать основным правилам приготовления еды (   Читать дальше...   )Жанр: КулинарияФормат: RTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8877451A98B818CACFA94349420817AF7483D2FC
+magnet:?xt=urn:btih:6F16AC00BB100497DDEBFED9A02D7FE4FA203AFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,25 +629,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033010   (641420) от 09.07.2016
+###  Публикация: 907093   (641513) от 10.06.2015
 
-Дэдпул / Deadpool (2016) BDRip [H.264] [MP4|952x400]
+VA - Car Audio. Ракетное топливо (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Deep, G-House, Trap, Drum & Bass, Electro, Trance>
 
->>Мультимедиа и прочее
->>Мобильное Видео
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641420.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уэйд Уилсон — наёмник. Будучи побочным продуктом программы вооружённых сил под названием «Оружие X», Уилсон приобрёл невероятную силу, проворство и способность к исцелению. Но страшной ценой: его клеточная структура постоянно меняется, а здравомыслие сомнительно. Всё, чего Уилсон хочет, — это держаться на плаву в социальной выгребной яме. Но течение в ней слишком (   Читать дальше...   )Производство: США, Канада / 20th Century Fox Film Corporation, Donners' Company, Kinberg GenreЖанр: фантастика, боевик, комедия, приключенияРежиссер: Тим МиллерАктеры: Райан Рейнольдс, Морена Баккарин, Эд Скрейн, ТиДжей Миллер, Джина Карано, Брианна Хилдебранд, Стефан Капичич, Лесли Уггэмс, Джед Риис, Каран Сони, Майкл Беняер, Стайл Дэйн, Кайл Кэсси, Тэйлор Хиксон, Айзи, Наика Туссэн, Рендал Ридер, Айзек С. Синглтон мл., Джастин Шиппелт, Донна ЯмамотоПеревод: Дублированный (Лицензия BD CEE), Профессиональный (многоголосый, закадровый) (Кубик в Кубе, нецензурная лексика)Продолжительность: 01:48:06
+1. 3Lau, Nom De Strip, Estelle - The Night (Chris Bushnell Remix)
+2. Affect! - Akaria (Nick Devon Remix)
+3. Alok - Dance (Original Mix)
+4. Amado Olvera - Further (Original Mix)(   Читать дальше...   )Жанр: Deep, G-House, Trap, Drum & Bass, Electro, TranceПродолжительность: 11:17:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C7F6202F4D2385D98E6A6F3700C56B0A547EA79
+magnet:?xt=urn:btih:EAE8556430385D19AB85663817163E6591A990F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,25 +658,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033027   (641419) от 09.07.2016
+###  Публикация: 906991   (641512) от 10.06.2015
 
-Joe Cocker (Джо Кокер) - Дискография (1969-2013) [MP3|320 Kbps] <Блюз, рок, соул>
+Красивая и Безумная / Beautiful & Twisted  (2015) WEB-DLRip [576p] iPad
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641419.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641512.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джо Кокер (англ. Joe Cocker; полное имя Джон Роберт Кокер, англ. John Robert Cocker; 20 мая 1944, Шеффилд, Южный Йоркшир) — английский певец, работающий в жанрах блюз, рок и соул. Его визитной карточкой является низкий хриплый баритон. Жемчужины его репертуара — блюзовые баллады «My Father’s Son», «Unchain My Heart», «You Can Leave Your Hat On», «Now That The Magic (   Читать дальше...   )Жанр: Блюз, рок, соулПродолжительность: 50:08:11
+В июле 2009 года Бен Новак, унаследовавший сеть отелей Fontainebleau, был жестоко убит в номере отеля в пригороде Нью-Йорка. Своими ужасающими садистскими деталями страшное убийство вызвало мгновенный интерес средств массовой информации. Говорили, что зверское убийство было спланировано женщиной, пытавшейся уничтожить своего мужа и завладеть его состоянием.Производство: СШАЖанр: Триллер, драма, криминалРежиссер: Кристофер ЗаллаАктеры: Роб Лоу, Пас Вега, Кэндис Берген, Сейшелл Гэбриел, Джуд Чикколелла, Мишель Херд, Уолтер ФонтЛеРой, Сони Брингас, Zachary Rifkin, Austin WakefieldПеревод: Многоголосый закадровый (iTunes)Продолжительность: 01:26:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BB29204DA5F6BB52CAC3C81E01C507CED7995B1
+magnet:?xt=urn:btih:8EF43406E450423C64AA8F7C2DF9AFDFED054E7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,25 +684,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033083   (641418) от 09.07.2016
+###  Публикация: 906868   (641511) от 10.06.2015
 
-Павел Корнев | Экзорцист (2016) [MP3]
+Б. А. Исаев | Политология в схемах и комментариях (2009) [FB2, EPUB]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641418.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Святых Землях бесы издревле тщатся проникнуть в траченные греховными помыслами души людей, но экзорцисты и экзекуторы, кто молитвой, а кто калёным железом, изгоняют потусторонних отродий обратно в породившую их Бездну. Но что случится, если этим нелёгким ремеслом придётся заняться случайному человеку – Себастьяну Марту, агенту королевской тайной службы?Жанр: Героическая фантастика, Боевое фэнтезиПродолжительность: 03:29:27
+Учебное пособие написано в соответствии с требованиями Государственного образовательного стандарта РФ по предмету «Политология». В нем в полной мере реализован принцип наглядности в обучении, применение которого поможет видеть каждый изучаемый вопрос в целом и во всех его взаимосвязях, сократить время на изучение, тверже запомнить необходимый материал и успешно сдать (   Читать дальше...   )Жанр: Учебная литература, Студентам и аспирантам, ПолитологияФормат: FB2, EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44ED24C39AFADD2C1E9F8920CDBEB816DB34A893
+magnet:?xt=urn:btih:FC4749686C5203CAA9C7CA5AC9BD1136D6DED208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907064   (641510) от 10.06.2015
+
+Александр Тамоников | Свинцовая бойня (2015) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ранним августовским утром около поста ДПС подмосковного города Косинска остановились внедорожники и микроавтобусы с московскими номерами. Из них выбежали люди в военной форме и открыли огонь из автоматов и гранатометов. В считаные секунды пост был уничтожен. Затем налетчики захватили здания МВД и ФСБ, уничтожили всех стражей порядка и устроили в городке настоящую (   Читать дальше...   )Жанр: БоевикФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068D085B2C2CC1A772799307AE5BEAC1ADBAB409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907053   (641509) от 10.06.2015
+
+Александр Тамоников | Прерванный полет «Боинга-737» (2015) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боевиками движения «Талибан» захвачен пакистанский «Боинг‑737» с сотней пассажиров на борту. Террористы связываются с российскими властями и предлагают обменять авиалайнер на десять боевиков-талибов, которые отбывают срок на территории РФ. Несмотря на то, что среди пассажиров авиалайнера нет ни одного гражданина России, власти принимают предложение террористов. (   Читать дальше...   )Жанр: БоевикФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA30CDF3C3438D8C1F3B920094C119DE25DAAEBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

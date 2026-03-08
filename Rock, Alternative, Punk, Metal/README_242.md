@@ -1,32 +1,3 @@
-###  Публикация: 1003432   (843408) от 03.04.2016
-
-Mob Rules - Tales From Beyond (2016) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dykemaster's Tale
-02. Somerled
-03. Signs
-04. On the Edge(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C921EF26412D8A784E3126AB2077D094105B281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003411   (843406) от 03.04.2016
 
 Rage Of Angels - The Devils New Tricks (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -748,6 +719,35 @@ Bass (   Читать дальше...   )01. Prelude (1:31)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:249A939BF14E16AE4F28660299D3479E4CA85049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500258   (842712) от 05.10.2021
+
+Мужчины В Металле - Сибирь (2021) [MP3|320 kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сибирь (03:52)
+02. Ты Навсегда Со Мной (03:11)
+03. Дождь На Заре (05:25)
+04. Жаль, Что Тебя Больше Нет (05:47)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DA108A85AAC063489012ECB6D8F9C20DC636E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

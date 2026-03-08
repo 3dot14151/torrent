@@ -1,3 +1,32 @@
+###  Публикация: 993838   (893557) от 06.03.2016
+
+VA - Война (2002) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любэ - Давай за
+02. 7Б - Молодые ветра
+03. Танцы Минус - Не меняй меня
+04. Тараканы! - Я смотрю на них(   Читать дальше...   )Жанр: Rock, SoundtrackПродолжительность: 01:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053A0FF2DE26F1493B317278A9D9E73167CCD7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370601   (893495) от 29.03.2020
 
 Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
@@ -718,35 +747,6 @@ Blue Seas Grand Orchestra - Poetry of The Natures (2013) 2CD Digipack Edition [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:671E8570ABBB64C42B87FFB92B70D15275EB2DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664037   (888094) от 01.04.2020
-
-VA - Relax With... 11 альбомов (1993-1997) [FLAC|Lossless|image + .cue] <Nature Sounds, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-Relax With... Desert Winds (1993)
-Relax With... Singing Birds (1993)
-Relax With... Ocean's Relaxing Surf (1996)(   Читать дальше...   )Жанр: Nature Sounds, RelaxПродолжительность: 11:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5B2727FE8EEB37F5F098B0BDBA6D9ACE89E4FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

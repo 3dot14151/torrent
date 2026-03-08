@@ -1,3 +1,32 @@
+###  Публикация: 1129541   (720783) от 29.04.2017
+
+Jeronimo Jonas - Inner Journey to the Real (2017) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Being Resonances
+02. Beyond Shapes
+03. The Silence and the Guitar
+04. Automatic Cosmos(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26465500B9DB1D80EE2CBDC64D5186EF51A710F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 177414   (720743) от 04.08.2020
 
 Santana - The Best Instrumentals (1995) [APE|Lossless|tracks] <Instrumental>
@@ -713,35 +742,6 @@ VA - Diving Dreams - The Coral Sea (2005) [APE|Lossless|image + .cue] <New Age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5DDDB1E6BCFBE7FA966AD7EBC364BDA25687423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327808   (718731) от 05.08.2020
-
-Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] <Instrumental, crossover>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter 		 - Vivaldi	(05:25)
-02. Sarabande         	 - Handel	(04:36)
-03. Ave Maria 		 - Caccini	(05:16)
-04. In the Hall of the Mountain King 	 - Grieg 	(02:48)(   Читать дальше...   )Жанр: Instrumental, crossoverПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDE42E8FB539B717D53359163659F7FDD1A2922
 ```
 
 https://mybot314.ru/tekegram_catalog/

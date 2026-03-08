@@ -1,3 +1,32 @@
+###  Публикация: 1647520   (231510) от 19.07.2023
+
+Jason Allen - Something I Dreamed (2001) [FLAC|Lossless|image + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I've Got To Say (3:04)
+02. Next In Line (3:07)
+03. Body And Fender Man (2:38)
+04. Love Me (3:16)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A7A9E741C66E06FD13EAB5950A7B92D9172B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647667   (231073) от 21.07.2023
 
 Alexey Nechaev - Inmost (2020) [MP3|320 Kbps] <Score>
@@ -727,35 +756,6 @@ Goran Bregovic - Music Inspired And Taken From Underground (1995) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E60BD2054B1726D2D7B15428A7118D0BE3E26D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513194   (225393) от 28.11.2021
-
-Georg Philipp Telemann, Markus Kuikka - Fantasias For Viola Da Gamba (2021) [FLAC|Lossless|image + .cue] <Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantasia I in C minor - I. Adagio - Allegro - Adagio - Allegro
-02. Fantasia I in C minor - II. Allegro
-03. Fantasia II in D major - I. Vivace
-04. Fantasia II in D major - II. Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72620AC933A17BCCC220DFAFCFC860AAE6B7619A
 ```
 
 https://mybot314.ru/tekegram_catalog/

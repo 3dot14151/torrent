@@ -1,32 +1,3 @@
-###  Публикация: 1128642   (726560) от 26.04.2017
-
-Elffor - Dra Sad (2017) [FLAC|Lossless|image + .cue] <Medieval Ambient, Dungeon Synth>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726560.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Funereal Depths of the Dark - 15:13
-2. The Litany of Abandonment - 13:06
-3. Kaosa Datorrela - 10:11
-4. Dra Sad - 07:38Жанр: Medieval Ambient, Dungeon SynthПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD602564CC924F936982A28DEF005CC184804E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284857   (726525) от 23.02.2019
 
 МультFильмы (Мультфильмы) - Лучшее и неизданное (2019) [MP3|320 Kbps] <Rock, Pop Rock>
@@ -748,6 +719,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4D004FC056783F51B24E27EA9F6DD0E7AC9E981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285003   (724999) от 24.02.2019
+
+Telekinesis - Effluxion (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Effluxion (03:32)
+02. Cut the Quick (04:22)
+03. Like Nothing (02:53)
+04. Running Like a River (01:49)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC414339519D0A9D3AAC9E4F1B946FD91B8CBF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1601860   (1046097) от 05.01.2023
-
-Parkway Drive - Darker Still (2022) [FLAC|Lossless|image + .cue] <Metalcore, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ground Zero
-02. Like Napalm
-03. Glitch
-04. The Greatest Fear(   Читать дальше...   )Жанр: Metalcore, Alternative MetalПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79CE38714BCF7E47BB837A9EB5B47C889A6C4D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472114   (1046093) от 05.01.2023
 
 Диктатура Сердца - 1 Album, 1 Single (2021-2023) [MP3|320 Kbps] <Heavy Metal, Thrash Metal>
@@ -743,6 +714,35 @@ Steal My Hope - The Battle Within (2022) [FLAC|Lossless|WEB-DL|tracks] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB419B97F6BA3373B18003B1E306AA5C35EC6C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602655   (1045954) от 07.01.2023
+
+Spirewell - For They Speak Against Thee Wickedly (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Into The Garden of Wretchedness (10:38)
+02 - Silence Painter (10:32)
+03 - Calvaria (01:34)
+04 - Solitary Silhouette (Ecce Agnus Dei) (09:41)(   Читать дальше...   )Жанр: Gothic, Doom, Death MetalПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCB119668CAE71811928934E7AF0AF5D891E272
 ```
 
 https://mybot314.ru/tekegram_catalog/

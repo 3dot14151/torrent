@@ -1,38 +1,3 @@
-###  Публикация: 603572   (996764) от 16.01.2013
-
-My Bitter Half - No More Idols (2013) [MP3|320 кб/с]<Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Negative As Fuck
- 02. Blood Brothers
- 03. No More Idols
- 04. Animal feelings
- 05. Immortal Human Machine
- 06. IndependenZa
- 07. Russian Vodka
- 08. Last Meteorite Again
- 09. I Am Not A Zombie
- 10. Stalin(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0716E9181AD27C0CEED13D6D2B08B8B8895633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603867   (996709) от 16.01.2013
 
 Paul Kossoff - Back Street Crawler (1973) Deluxe edition /2008, Island Records/ [FLAC|Lossless]<Blues rock, Hard rock, Jam rock, Instrumental rock>
@@ -862,6 +827,41 @@ Patti Smith - 14 альбомов (1975-2012) Дискография [WAVPack/FL
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606174   (995253) от 21.01.2013
+
+Sin Fang - Flowers (2013) [MP3|320 кб/с]<Indie-Rock, Dreampop, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Boys
+02. What's Wrong With Your Eyes
+03. Look At The Light
+04. Sunbeam
+05. Feel See
+06. See Ribs
+07. Catcher
+08. Everything Alright
+09. Not Enough
+10. Weird HeartЖанр: Indie-Rock, Dreampop, ElectronicПродолжительность: 00:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6771571BD3BE427A0F5B4A4F6838B45D8F814CDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

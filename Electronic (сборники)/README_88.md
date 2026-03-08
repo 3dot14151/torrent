@@ -1,3 +1,32 @@
+###  Публикация: 1535198   (686428) от 06.03.2022
+
+VA - The Techno Streaming Sound (Vol.03) (2022) [MP3|320 Kbps] <Techno, Electro, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы диджей, желающий создать хаос на танцполе и взорвать главную сцену любого фестиваля, то этот уже 3-й релиз от проекта Techno Streaming для вас. Треклист представляемого релиза включает целых 120 треков техно электроники от мастеров электронной сцены.001. Gregor Size - Haute Couture
+002. Tommy Sunsets - Extraction
+003. Rngd - Forward Motion
+004. History Of Beatrice - Monologue Of Tyrans(   Читать дальше...   )Жанр: Techno, Electro, MinimalПродолжительность: 13:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809A84DDA429D64DA755221B2F6DE376F997A122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535092   (686424) от 06.03.2022
 
 VA - Beatport Progressive Trance: Sound Pack #501 (2022) [MP3|320 Kbps] <Progressive, Trance, Electro>
@@ -716,35 +745,6 @@ VA - Trance Euphoria Top DJ Dreams (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F9AE38FD7A48D73949EF0B16A069C1F3D6982FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029205   (682193) от 26.06.2016
-
-VA - Tantric Lounge Massage: Sexy Erotic Chill Music To Improve Your Love Life Forever (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Art of Chill - One Day - Boys of Noize Mix
-02. Skyfall - Particle of Soul
-03. Soul Diver - Deeper than Deep - Pure Chill Mix
-04. Banghra Lounge Voices - Kamasutra in Heaven - Erotic Massage Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666A054F86AA15F9D73D005A2E60204E348EE2F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

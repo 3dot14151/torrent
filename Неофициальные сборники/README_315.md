@@ -1,3 +1,183 @@
+###  Публикация: 1145040   (622981) от 24.06.2017
+
+VA - Дискотека 2017 Dance Club Vol.165 от NNNB (2017) [MP3|320 Kbps] <Pop, House, Trance, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622981.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Dimaro - Mystery (Extended Mix)  3:55
+002.  DJ Khaled & Rihanna feat. Bryson Tiller - Wild Thoughts  3:25
+003.  DJ Nil - Status Pam Pam  4:40
+004.  Ruslan Radridges & Cari - Follow The Sun (Extended Mix)  4:25(   Читать дальше...   )Жанр: Pop, House, Trance, Club, DanceПродолжительность: 09:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485B16AA5B65062E18891C776B68DD1335EFC460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522410   (622864) от 13.07.2012
+
+VA - Золотой Курортный Хит Сезона (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Holiday & Mike Candys - Children (Radio Edit)
+02. Elena Gheorghe - Your Captain Tonight (Radio Edit)
+03. Niels Van Gogh Feat. Emilio Verdez - Beatrocker (Radio Version)
+04. Sebo Reed - Korobiki (Bodybangers Remix Edit)
+05. Kirsty - Twilight (Armin Van Buuren Remix Edit)
+06. Adrian Lux - Angels (Original Mix)
+07. Daniel Hoppe - Loca (Original Dub)
+08. G & G Feat Jonny Rose & Chris Reeder - All Falls Down (Radio Edit)
+09. Klaas Feat. Carlprit - Do What You Do (Radio Edit)
+10. Flo Rida Feat. Sia - Wild Ones(   Читать дальше...   )Жанр: РорПродолжительность: 05:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A57CBA922182BF7D63A828CB3408B76F97920F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036019   (622826) от 19.07.2016
+
+VA - Ham!d Production June (2016) [MP3|320 Kbps] <House, Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622826.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker -  Faded (Markus Schulz Remix) 6:36
+002. Paul van Dyk & Chris Montana feat. Chris Bekker -  Berlinition (PvD Club Mix) 6:38
+003. Dimitri Vegas & Like Mike -  Stay A While (Extended Mix) 5:02
+004. MATTN & 2 Faced Funks -  How We Roll (Original Mix) 4:15(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 07:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660F365451BC09E3467443801191FC36C804E09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229792   (622784) от 08.06.2018
+
+VA - Empire Records - Stadium 3 (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonas Blue feat. William Singe - Mama (Kevu Festival Bootleg)
+02. Jon Thomas, DJ Backslash, Johnny Catch - Never Been Honest
+03. Jon Bellion - iRobot (Landis Remix)
+04. Newclaess - Be The One(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F65B6A8B8EF50E285247AE94669C89D4A554F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036195   (622761) от 19.07.2016
+
+VA - Hot Summer Workout Hits (2016) [MP3|320 Kbps] <House,Disco,Electronica>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622761.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yall Feat Gabriela Richardson - Hundred Miles (Tpaul Rmx) 04:29
+002. Vndy Vndy Feat. Tiana - Disco Sandwich (My Love) (Deekey & Stellix Remix) 04:48
+003. Twenty One Pilots Vs. Dj Dnk - Stressed Out (Artem Night Mash Up) 04:28
+004. Twenty One Pilots Vs. Denis First - Stressed Out (Artem Spy Mash Up) 03:16(   Читать дальше...   )Жанр: House,Disco,ElectronicaПродолжительность: 09:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031BB4F451F38DBD9178BB46FCABEA4759AAC588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035925   (622750) от 19.07.2016
+
+VA - Ultra Festival Live Life Anthems (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622750.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. StadiumX -  Mombasa (Radio Edit) 3:17
+002. DJ Tafta & Miss Effe -  My Flower (Extended Version) 4:47
+003. R3HAB & Quintino -  Freak (VIP Remix) 4:12
+004. Eddy.T -  Funky Shit (Original Mix) 3:50(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 11:16:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3598BB084AAD8902935F45B6478214416DF48790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036116   (622749) от 19.07.2016
 
 VA - Душевный Шансон Для Двоих (2016) [MP3|256 Kbps] <Шансон>
@@ -577,180 +757,6 @@ VA - Vocal Trance Collection (2017) [MP3|320 Kbps] <Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6B0B8B0158A96F2035CD2D2890F63851B4F7FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145510   (621423) от 25.06.2017
-
-VA - Blues Collection 10 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supersonic Blues Machine - Let's Call It A Day (feat. Robben Ford)  (03:32) 
-02. Vargas Blues Band - Plegaria Para Un Niсo Dormido  (04:23) 
-03. Shaw Davis & the Black Ties - Missy  (04:21) 
-04. Oli Brown - All We Had To Give  (03:41) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B613CE0DD118E5AAB25EBAA833F2B4E921C57B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145362   (621221) от 25.06.2017
-
-VA - Старые Песни По-новому: Зарубежный Выпуск (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Eurodisco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ATB pres. Daniel G. Sarr - I Want U (SQ-1 Mix)  6:49
-02.  2 Unlimited - No One (A. Kraft ReCover)  3:40
-03.  DJ Bobo - Love Is All Around (David May Mix)  3:23
-04.  Bad Boys Blue - From Heaven To Heartache (MC's Radio Edit) (feat. Brian Cornell)  3:55(   Читать дальше...   )Жанр: Eurodance, Euro-House, EurodiscoПродолжительность: 06:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C20A362971764B77BB3552DA6B1ECF1D1AB0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036458   (621169) от 20.07.2016
-
-VA - House EDM Witness Tech (2016) [MP3|~249 - 320 Kbps] <House, Funky, Progressive, Tribal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alessandro - Awake (Original Mix) 07:13
-02. 2Groove And Disord3r - Ready Or Not 05:05
-03. Loverdose - My Point Of View (Original Mix) 06:53
-04. Barry Obzee - Beat Da System 05:57(   Читать дальше...   )Жанр: House, Funky, Progressive, Tribal HouseПродолжительность: 07:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63339CA2DAE73B38FF44FF988260F8460D5310F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036317   (621165) от 20.07.2016
-
-VA - Best Cocktail Party Music: Lounge and Jazzy Moods Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonic Elements - Until The Morning
-02. Flip Segers - Tumbao
-03. One Groove - Your Turn
-04. Port Grimaud Project - Think To A Girl(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAD70314AD48E564F38FC9EBA93986BB03AD53B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036455   (621164) от 20.07.2016
-
-VA - Works Receptor Liquid Body (2016) [MP3|243-320 Kbps] <Club, Soulful, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Kane - Echoes 07:00
-02. Nick Holder - Black Jazz #4 08:00
-03. Kush - Drive 07:09
-04. Askery Ft. Jax - Castle (Extended Mix) 04:52(   Читать дальше...   )Жанр: Club, Soulful, Nu DiscoПродолжительность: 08:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E765F5180831DF1246900059EDE8AF735B9A8B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036394   (621158) от 20.07.2016
-
-VA - Top Radio Charts Sublime Multigenre (2016) [MP3|320 Kbps] <Trance, House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren -  Eiforya (Talla 2xlc 140 Radio Edit) 2:45
-002. Talla 2XLC pres. Alan Walker -  Faded (DJ Aleksard Mashup) 6:35
-003. W&W -  Lift Off! (Radio Edit) 3:04
-004. Photographer -  Airport (Radio Edit) 4:43(   Читать дальше...   )Жанр: Trance, House, ProgressiveПродолжительность: 09:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991D8E84C97AAD7096B78155E4282E541577C117
 ```
 
 https://mybot314.ru/tekegram_catalog/

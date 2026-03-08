@@ -1,3 +1,32 @@
+###  Публикация: 1519970   (145163) от 26.12.2021
+
+Richard Clayderman - Love Letters Friends & Family (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade pour Adeline
+02. Un Amour Sans Fin
+03. I Just Called to Say I Love You
+04. You Are the Sunshine of My Life(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D89C4126B1A9544DCE944EBF0925A2DA5BDD84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087613   (144648) от 28.12.2016
 
 Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -717,38 +746,6 @@ Ambra - Child Of The Universe (2003) [OGG Vorbis|480 Kbps] <Electronic, New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3036366191BE5907E5885EF7EE63B7F4EFA749F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273170   (137620) от 31.12.2018
-
-VA - Hit Mania 2019 (2018) [MP3|320 Kbps] <Synthpop, Hip Hop, Dancehall>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137620.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Cesare Cremonini - Possibili scenari
-02. Shawn Mendes - Lost in Japan(   Читать дальше...   )Жанр: Synthpop, Hip Hop, DancehallПродолжительность: 00:44:35
-
-01. Tool Street - It's like your
-02. Wonderful Sensations - Feeling free(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B99971BD5EC305044AB81C8CF84F8511D77DD5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

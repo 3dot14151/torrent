@@ -1,29 +1,3 @@
-###  Публикация: 1563025   (506222) от 12.07.2022
-
-Джанни Родари - Призрак Тома Джоуда (2021) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Призрак Тома ДжоудЖанр: Rock, SkaПродолжительность: 00:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9055847400BD7DAAC33935F447B1F17075D4BE93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562996   (506219) от 12.07.2022
 
 E.S.T. - Russian Vodka (Demo) (1988) Mini-Album, 2022, Limited Edition [MP3|320 Kbps] <Heavy Metal, Thrash Metal>
@@ -764,6 +738,32 @@ https://mybot314.ru/tekegram_catalog/
 08. Я Только Выключу Свет (Максим Покровский) :: 04:24
 09. Зиганшн Буги (Евгений Горенбург) :: 03:32
 10. Мы Уходим В Закат (Вадим Самойлов) :: 03:39Жанр: Rock, Blues-Rock, Swing, Rock-n-RollФормат: CD, Album, CompilationПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 233272   (504692) от 05.09.2010
+
+Amaran's Plight - Voice in the Light (2007) [FLAC|Lossless]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive MetalПродолжительность: 01:16:24
 
 ## Скачать торент
 ```bash

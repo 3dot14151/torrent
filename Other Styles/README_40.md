@@ -1,3 +1,32 @@
+###  Публикация: 1119641   (805494) от 29.03.2017
+
+Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Rangers Theme (04:22)
+02. Seek Those Who Are Worthy (02:50)
+03. Zordon Awakes (02:15)
+04. It's Morphing Time! (03:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB33A94814C5E4C37EB3D9875E028207CC010328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119731   (805489) от 29.03.2017
 
 Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -716,35 +745,6 @@ Ryan Farish - United (2017) [MP3|320 Kbps] <Electronic, Downtempo, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6EC8DCCF04EFB94386C97D3A4D953EDAC3F2D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010134   (801981) от 25.04.2016
-
-Harp Twins (Camille and Kennerly) - 3 альбома (2013 - 2015) [MP3|320 кб/с] <Harp, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance of Death	(7:12)
-02. Hotel California	(4:57)
-03. Eye of the Tiger	(2:40)
-04. The Unforgiven	(4:58)(   Читать дальше...   )Жанр: Harp, InstrumentalПродолжительность: 02:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC39E462D08E47AA149216A8085C804A1DF66A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

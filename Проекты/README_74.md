@@ -1,29 +1,3 @@
-###  Публикация: 1113210   (835921) от 12.03.2017
-
-Проекты - VideoHive - HUD Typo Graphics Pack - 18828316 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835921.jpg" />
-</div>
-
-
-###  Подробнее
-
-HUD Typo Graphics Pack - уникальный в своем роде пакет анимированных HUD элементов инфографики. Вы можете легко изменить цветовую схему.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2436BD49F8F45C2DE1B93A01BB92DE2DED1F5B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113221   (835916) от 12.03.2017
 
 Проекты - VideoHive - 3D Text Styles Cinematic Trailer ToolKit - 16535554 [AEP]
@@ -675,6 +649,32 @@ Real Estate Magazine / Broadcast ID - новый шаблон для рекла�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC1927CD2A44A96F94BBC58C451ECC008A9021D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380355   (834508) от 02.05.2020
+
+Проекты - NNM-Club - Happy Birthday - 1380355 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834508.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Happy Birthday" - шаблон After Effects, разработанный по мотивам Father's Day Slideshow и адаптированный для детской аудитории.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4135108722273F6505A1FA75AFB9F9411126C18D
 ```
 
 https://mybot314.ru/tekegram_catalog/

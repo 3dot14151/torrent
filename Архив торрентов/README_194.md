@@ -1,3 +1,32 @@
+###  Публикация: 1475796   (1011981) от 09.06.2021
+
+Richard Barbieri - Under A Spell (2021) [FLAC|Lossless|tracks + .cue] <Ambient, Abstract>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under A Spell
+02. Clockwork
+03. Flare 2
+04. A Star Light0(   Читать дальше...   )Жанр: Ambient, AbstractПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D60764F26DA68CACCEA6F84DFAD180941066F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475928   (1011971) от 09.06.2021
 
 IsMyHdOK 3.21 Portable [Multi/Ru]
@@ -644,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10A99EB6AE67CD3C6601DDD32FD4F164F992C981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476240   (1011780) от 10.06.2021
-
-Auslogics BoostSpeed 12.1.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642DBE5E6F65AB6115FCE06819483DBAAEDD9698
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,61 +1,3 @@
-###  Публикация: 1570905   (438360) от 19.08.2022
-
-Nagart - Vol. 3 (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438360.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Шкатулка
-3. Гар - смотритель склепа
-4. Смерть в лесу(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916D73D8CF33F749B3490C8CE7DA1E40EF2E9DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944664   (438325) от 08.10.2015
-
-All Time Low - Future Hearts (2015) Deluxe Edition [FLAC|tracks + .cue]<Pop-Punk, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satellite [2:25]
-02. Kicking & Screaming [3:26]
-03. Something's Gotta Give [3:09]
-04. Kids in the Dark [3:37](   Читать дальше...   )Жанр: Pop-Punk, Alternative RockПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887BBB7DC23882108B2F563992F5308035B23A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570907   (438309) от 19.08.2022
 
 Thundermother - Black And Gold (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Hard Rock>
@@ -741,6 +683,64 @@ Horror on Black Heels - An Empty Throne (2014) [FLAC|Lossless|image + .cue] <Sym
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB25AFC6CAC9233E0A3EDACBD4394F94377314A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410430   (436228) от 21.09.2020
+
+Drifter - Reality Turns to Dust (1988) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dust To Dust
+02. Reality Turns To Dust
+03. Crime Of A Lifetime
+04. Spiritual Diary Of Opression(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6572D272B2EE89DC0C8B5C871FA26626C7B85A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410431   (436225) от 21.09.2020
+
+Gwar - Blood Of Gods (2017) [FLAC|Lossless|image + .cue] <Thrash Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War on GWAR (7:21)
+02. Viking Death Machine (4:16)
+03. El Presidente (4:21)
+04. IХll Be Your Monster (3:09)(   Читать дальше...   )Жанр: Thrash Metal, HardcoreПродолжительность: 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EE46A82EFD4242DC4706C1791C3A99BD07076A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,268 +1,3 @@
-###  Публикация: 474768   (97861) от 28.03.2012
-
-Журнал | Вкус №2 [2012 март-апрель] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "ВКУС" - это специализированное издание  посвященное гастрономии, напиткам и табакам. Мы являемся экспертами в области ресторации и имеем огромный опыт проведения алкогольных, сигарных и гастрономических дегустаций и презентаций.
- Аудиторию журнала "ВКУС" составляют гурманы и любители. Наших читателей интересуют мировые гастрономические тенденции, новые вина, экзотические продукты и кулинарные путешествия. На страницах журнала они узнают, где продается масала, с чем сочетать хамон, как разделать омара и что такое кивано.2012 март-апрельФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BC1ECC505D762F5013EFD4451A9CC312F7E6B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474270   (97853) от 28.03.2012
-
-DJ Kocmoc - Electro Sensation vol.23 (23.03.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97853.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Aptekar feat. Monika Star - A Dream Within A Dream (David Argunetta Remix)
-2. Avril Lavigne - Complicated (DJ Solovey Remix)
- 3. Tiff Lacey & Fergus Keogh - Darkest Hours (Erick Strong Remix)
-4. DJ M.E.G. & B.K. feat. Ser Twister - Make Your Move (DJ Pashkevich Remix)
-5. Tango & Cash - In Your Eyes (Club Mix)
-6. Paradiso - Bailando (Ser Twister Remix)
-7. Scooter - Weekend (Positive DJ's Remix)
-8. Eugene Star feat. DJ Goman - Love Sex Dance (Chris Daren Remix)
-9. Fugees - Ready Or Not (DJ Solovey Remix)
-10. Dj Amor - Best memories (Dj Rembo Remix)(   Читать дальше...   )23.03.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59E165793A5524F16D2D3F1527AD36CAA3C3F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474649   (97852) от 28.03.2012
-
-Журнал | Elle Decoration №4 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97852.jpg" />
-</div>
-
-
-###  Подробнее
-
-ELLE ДЕКОР - самый красивый и полезный журнал о современном интерьере. В журнале представлены: последние тенденции мебельного дизайна и декорирования, эксклюзивные интервью с известными архитекторами, дизайнерами и фотографии лучших домов России и всего мира.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9C83284CA0B7A8D2742329EF1D9AC1CDF642D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474154   (97849) от 28.03.2012
-
-VA - Музыкальная волна - Версия 6 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97849.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Катя Бужинская - Обещаю
-002. David Guetta - Titanium (Feat. Sia)
-003. Даша Суворова - Давай Помолчим
-004. Тимур Родригез - Лучше Не Будет
-005. Franky - Touch Me
-006. Max Vertigo Feat. Koshka - Унеси Меня
-007. Дима Билан - Rock My Life
-008. Ирина Круг - Любить Не Страшно
-009. Nayer Feat. Pitbull & Mohombi - Suavemente
-010. Push-Up - Пора По Барам(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB38A994724C294275A412F73F271EE4C35476B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474665   (97848) от 28.03.2012
-
-[Wallpapers] Films Wallpapers (28.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD658B89F3628818C12C72953E28059CA2B3F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473952   (97839) от 27.03.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97839.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 12 
-Название:  Girls Desktop Wallpapers Pack 12 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0200C8F51CCA46887BC6F25C4EE94C1113A964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473955   (97838) от 27.03.2012
-
-Джонатан Келлерман | Частное расследование [2006] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Alex Delaware - Алекс Делавэр
-Оригинальное название:2006Жанр: Психологический триллер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E794A9E745EDFD1D983B06A5B8D8C8C942984A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473544   (97835) от 27.03.2012
-
-Kinack - Ondas WEB (2012) [FLAC|Lossless]<Chillout, Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kinack - Ondas WEB (2012)
-Год: 2012
-Жанр: Chillout, Lounge
-Продолжительность: 01:08:19Кодек: FLAC
-Битрейт: Lossless
-Тип рипа: tracks+.cueТрек лист:
-01. Mossback (4:18)
-02. Nym (4:34)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473938   (97829) от 27.03.2012
-
-[Wallpapers] Sexy Girls Pack (26.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D99BE7BB4D25E44ABE6A707489F4629EDA34DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473271   (97821) от 27.03.2012
 
 Vienna Boys Choir - Christmas With The Vienna Boys Choir (1993) [MP3|320 кб/с]<Boyschoir,Classic>
@@ -758,6 +493,269 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16034BB7B8AA25C44BA262AAC63E3B13D652664F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473939   (97763) от 27.03.2012
+
+[Wallpapers] Cityscapes HD Wallpapers (26.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B6CB9521D4288E709FA4840D103150C23693FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473901   (97762) от 27.03.2012
+
+[Wallpapers] HD Pictures №17
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97762.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Pictures №17
+Название: HD Pictures №17
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8654B630C268F760A29923B3A478E9E4474D6E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473905   (97760) от 27.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 25
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97760.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 25 
+Название:  Desktop Wallpapers Pack 25 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50940C5B3AE83AC4811AB482142BB66DD399BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473936   (97756) от 27.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection  (26.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7782CFCE5AD05B625AA37ED5887481300DFED48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473904   (97755) от 27.03.2012
+
+[Wallpapers] HD Pictures №18
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97755.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Pictures №18
+Название: HD Pictures №18
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8EB622417AD8679B21B3A3CD39C6462F91142D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473910   (97754) от 27.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 26
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97754.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 26 
+Название:  Desktop Wallpapers Pack 26 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B4E9CB58A6E122C3D64624072B28770DAE896C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473908   (97753) от 27.03.2012
+
+[Wallpapers] HD Pictures №19
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97753.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Pictures №19
+Название: HD Pictures №19
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3000х1557
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993F288B783AAA7D12FE93C3EE879C716A219022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473539   (97749) от 26.03.2012
+
+Авто плюс - Наши тесты / Audi R8 V10 Le Mans Heritage (2012) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97749.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем. Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля. Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: АвтопередачаПродолжительность: 00:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6B2FBB9720D2410C5DCC9B9882A4E436B124EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473196   (97748) от 26.03.2012
+
+Obie Trice - Bottoms Up (2012) [MP3|192 кб/с]<Midwest Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bottoms Up (Intro)
+02. Going No Where
+03. Dear Lord
+04. I Pretend
+05. Richard (Feat. Eminem)
+06. BME Up
+07. Battle Cry (Feat. Adrian Reeza)
+08. Secrets
+09. Spill My Drink
+10. Spend The Day (Feat. Dre Skidne)(   Читать дальше...   )2012Жанр: Midwest Hip-HopПродолжительность: 01:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393ED048EF11B06CDF84387F1B3FAFD59091F5E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

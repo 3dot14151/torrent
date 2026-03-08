@@ -1,30 +1,3 @@
-###  Публикация: 955337   (334869) от 10.11.2015
-
-Проекты - VideoHive - Corporate Tech Pack [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания полноценной корпоративной презентации.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B58D1807F4DFCC54F2ECBDA398257D7F996AE83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955421   (334867) от 10.11.2015
 
 Проекты - VideoHive - 3D Logo Box Intro [AEP]
@@ -684,6 +657,33 @@ Happy Birthday Opener - это фантастический шаблон After E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C91EBAB428AC85DEA98866B9A581BE5AF27100F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955817   (332223) от 12.11.2015
+
+Проекты - VideoHive - Hands logo reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления вашего логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E5CB616887868D73F2E496C56B5124E30661BAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

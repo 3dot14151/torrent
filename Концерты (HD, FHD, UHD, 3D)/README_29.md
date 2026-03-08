@@ -1,3 +1,32 @@
+###  Публикация: 1179409   (348902) от 31.10.2017
+
+Avantasia - The Flying Opera: Around The World In Twenty Days (2011) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый концертный альбом Avantasia, выпущенный в марте 2011 года. Он был записан в 2008 году во время первого мирового турне Avantasia в поддержку альбома The Scarecrow.01. Twisted Mind
+02. The Scarecrow
+03. Another Angel Down
+04. Prelude / Reach Out For The Light(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Heavy Metal, Symphonic Metal, Power MetalПродолжительность: 02:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4EE971407267EE944EFD49FFA90BC997DBB48D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 724627   (347882) от 21.11.2013
 
 The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) Blu-ray [1080i]
@@ -698,32 +727,6 @@ SHAMAN. Впервые поёт дуэтом. О мистическом обра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D051DC52F811BA5BB083F8BD53274B57D4020E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374683   (330258) от 21.11.2011
-
-Queen - Rock Montreal & Live Aid (2007) BDRemux [1080p]
-
->>След.
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сразу вскоре после ошеломительного тура Queen по Южной Америке (бьющего все мировые рекорды на тот момент), группа отыграла два концерта в Монреале (24 и 25 ноября 1981 года). Из всех концертов, которые дали Queen в 1981 году, только эти два были сняты на кинопленку. На самом деле, Queen были первой группой, которая сняла ВЕСЬ концерт на кинопленку 35 миллиметровЖанр: МузыкаРежиссер: Соул СвиммерАктеры: Джон Дикон, Брайан Мэй, Фредди Меркьюри, Роджер ТейлорПродолжительность: 01:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA2C7916F99FD6DD29FC24318D5FFFC13BC543D
 ```
 
 https://mybot314.ru/tekegram_catalog/

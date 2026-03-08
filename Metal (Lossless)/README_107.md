@@ -1,3 +1,90 @@
+###  Публикация: 1292083   (650377) от 27.03.2019
+
+Powerwolf - Metallum Nostrum (2019) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Touch of Evil (Judas Priest cover)
+2. Conquistadores (Running Wild cover)
+3. Edge of Thorns (Savatage cover)
+4. Power and Glory (Chroming Rose cover)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D72084D3F42DA70850CDCFEDE63A5D0DEE67C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172001   (650369) от 27.03.2019
+
+Candlemass - 12 Albums, 6 Compilations, 3 Lives, 3 Single & EP (1986-2019) 58CD [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Candlemass - шведская метал-группа, известная как одна из основоположников и самых успешных исполнителей в жанре дум-метал. Именно благодаря Candlemass дум-метал получил признание как отдельный жанр, а само его название происходит от дебютного альбома этой группы Epicus Doomicus Metallicus. Название группы происходит от английского слова Candlemas — «Сретение», при (   Читать дальше...   )Список альбомов:
+1986 - Epicus Doomicus Metallicus
+1987 - Nightfall
+1988 - Ancient Dreams(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 52:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4478237665F101C9903114D031903ADF16F4EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031623   (649942) от 05.07.2016
+
+Blasted To Static - Blasted To Static (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suicide King
+02. The Hammer
+03. Repossession Of Nothing
+04. Lovesick BlueЖанр: Heavy Metal, Hard RockПродолжительность: 0:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885341387BE84764E76912DCD49D888053E17635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031633   (649669) от 05.07.2016
 
 SOTO - Divak (2016) Jeff Scott Soto's Band [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Metal>
@@ -667,93 +754,6 @@ Armored Saint - Win Hands Down (2015) [FLAC | image+.cue | Lossless]<Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EB78888FB2080E383CDA98DFCF0DE90407CE7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906171   (645324) от 08.06.2015
-
-Lindemann - Praise Abort (2015) Single & EP [FLAC|tracks|WEB-DL]<Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Single & EP к новому альбому фронтмена RAMMSTEIN Тилля Линдеманна и шведского легендарного метал-продюсера и музыканта Петера Тагтгрена (HYPOCRISY, PAIN).1. Praise Abort
-2. Praise Abort (Clemens Wijers Remix)
-3. Praise Abort (Ostblockschlampen Remix)
-4. Praise Abort (Hedberg & Larsson Remix)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8546F2BF684DA44A568AB76E5B61C81FF24D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292487   (645284) от 30.03.2019
-
-Danzig - Thrall-Demonsweatlive (1993) EP, Club Edition, Repress [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thrall
-01. It's Coming Down (3:36)
- 02. The Violet Fire (4:58)
- 03. Trouble (3:23)Жанр: Heavy MetalПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F64D290058A1141D2E6726C228AF558ACD52CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541345   (644906) от 03.04.2022
-
-Lords Of The Trident - The Offering (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend
-02. Acolyte
-03. Charlatan
-04. Feed The Wolves(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D3C7B158BA2BA65DC48CEA9C08B4E47BB3AC7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1024152   (718138) от 08.06.2016
+
+VA - Позитивный заряд Шансона. (Часть 3) (2016) [MP3|256 кб/с] <Chanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Евгения Карельская - Война
+02. Игорь Филиппенков - А Жизнь Как Клавиши
+03. Геннадий Вяземский - Прости Меня
+04. Александр Комиссар - Когда Предают(   Читать дальше...   )Жанр: ChansonПродолжительность: 06:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6D8686A1A77687A24E873A0D12FAA506896EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024340   (718047) от 08.06.2016
+
+VA - Pure Instrumental Music (2016) [MP3|320 кб/с] <Electronic,Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ac G - Summer Lawns (03:53)
+02. BGPONE - Introspektiv (04:33)
+03. Da Jungle - Mystical Fever (05:01)
+04. Christian Loeser - Sternenlied (03:07)(   Читать дальше...   )Жанр: Electronic,InstrumentalПродолжительность: 01:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A964E716F2FCDBC1735E7F1BF298734334B5518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024396   (718045) от 08.06.2016
+
+VA - Хит сезона  радио Шансон (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718045.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Келеберда - Прощай
+002. Александр Новиков - Блатной
+003. Дмитрий Прянов - За Друзей
+004. Слава Благов - Красивая И Счастливая(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36AD66E56B51E533C6C977448938AFC29ACF380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024449   (718041) от 08.06.2016
+
+VA - 10s Acoustic Covers (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Josh Franklin - A Thousand Years
+02. Karizma Duo - One Last Time
+03. Max Tanner - The One
+04. Chelsea Hart - Papaoutai(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1558DE259C762690009B4E7BA754CF32DC5A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024196   (717919) от 08.06.2016
+
+VA - Жаркое Хитовое Лето (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. АГОНЬ - Лето
+02. Влад Топалов - Я Помню
+03. НеАнгелы - С Днём Рождения
+04. Afrojack - Unstoppable(   Читать дальше...   )Жанр: PopПродолжительность: 06:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3181E46769E33998060392DF8BBC31BE418853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024475   (717912) от 08.06.2016
+
+VA - Russian chart. Русский выпуск (2016) [MP3|248-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бьянка feat. Seryoga - Крыша
+02. DJ Slon & Katya - Ай Диги Дай (Radio Edit)
+ 03. Тимати feat. Григорий Лепс - Дай Мне Уйти
+04. Джиган feat. Asti - Всё Будет Хорошо(   Читать дальше...   )Жанр: PopПродолжительность: 05:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D4E911544E27B4A86CE34B0D03D5A57C08E0161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129773   (717871) от 30.04.2017
 
 VA - Nostalgia Collection (Volume Second) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
@@ -571,180 +745,6 @@ VA - 100 Хитов Любимой Музыки (2014) [MP3|256 - 320Kbps] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E6C0789424479BF5764C89ED89BDE2DB7785704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219052   (717309) от 12.04.2018
-
-VA - Душевный сборник радио Шансон (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717309.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Щавинский - Летит Душа
-002. Владимир Курский - Живу Тобой
-003. Евгений Беляев - Моя Душа
-004. Слава Благов - Зимой Весной И Летом(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A75D816E9A01B17749857A197056319D8790CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218978   (717027) от 12.04.2018
-
-VA - 100 Хитов Любимой Музыки (2018) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717027.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Светлана Лобода - Лети
-002. Егор Крид - Миллион алых роз
-003. Елена Темникова - Не сдерживай меня
-004. Сергей Лазарев - You put out the fire(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 06:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD4ED02DAD286D2CBCDDA9C98B88D99F3BDBD55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400555   (716987) от 06.08.2020
-
-VA - 80 Tracks Alternative 80s Playlist Spotify (2020) [MP3|320 Kbps] <Alternative, Power Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cure - A Forest - 2006 Remaster 5:54
-02. Billy Bragg - A New England 1:48
-03. The Sugarcubes - Birthday 3:58
-04. Violent Femmes - Blister In The Sun 2:26(   Читать дальше...   )Жанр: Alternative, Power Pop, OtherПродолжительность: 05:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34899C57BFB5B3FBB480C7AF12F1869F5DFD192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130218   (716889) от 01.05.2017
-
-VA - Beatport Trance  Pack (01.05.) (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alan Morris & Elles De Graaf - Calm The Night (JP Bates Remix)  6:26
-02.  CubeTonic - Forces (Original Mix)  3:26
-03.  Maria Healy - Option 66 (Original Mix)  7:10
-04.  Driftmoon & Laurie Ann Haus - Felix (Ferry Tayle Extended Remix)  9:22(   Читать дальше...   )Жанр: TranceПродолжительность: 04:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD25223EE49317CFDB81429C627C958483A3455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286037   (716807) от 28.02.2019
-
-VA - не Громкие новинки недели 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hayden James - Better Together
-02. Alon - Миллионы Вариантов
-03. Bright Sparks, Denis First, Reznikov - Shameless
-04. Broken Back - Breathe Slow(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7012A4A68290AE24E1F611E0A8C5B601C342E065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130078   (716804) от 01.05.2017
-
-VA - Драйвовый весенний молодежный музон. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716804.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zivert - Чак 3:02
-002. Стерео21 - Будешь Моя 3:57
-003. Елена Есенина - Больше Не Враги 3:57
-004. Полиграф Шарикoff (Серега) - Гелик Вани 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89342AAB04C37151539D553505742CD0FA01A4D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

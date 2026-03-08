@@ -1,3 +1,32 @@
+###  Публикация: 1230355   (615632) от 12.06.2018
+
+VA - Bike Ride Experience Music (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danson - Price
+02. Danny D - Yep
+03. Cymbal - Gaps
+04. Corteza - Home(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0335E1BC6EB541871448EEDC9716A611FD3EB102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296144   (615234) от 15.04.2019
 
 VA - Miami Deep House Essentials 2019 (Deluxe Version) [MP3|320 Kbps] <House, Deep House>
@@ -734,35 +763,6 @@ VA - Sunset Lovers the Harmony of Sounds (2019) [MP3|320 Kbps] <House, Tech Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E69AC1A299A520ED1FE539386FCF14E645E1C16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913733   (600356) от 01.07.2015
-
-VA - BC2 Summer 2015 (2015) [MP3|320 кб/с]<Progressive House, Deep House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luciano Scheffer - Alamo (Spacebeat Remix) [09:27]
-02. Phonic Scoupe - Portico Garden (Original Mix) [07:43]
-03. GabiM - Punc Munc (Travis MacDonald Remix) [08:32]
-04. Midinoize - Exposed (David R Maddocks Remix) [06:51](   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 03:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECDBEEC84187828DE8E457ACB544E8696EE12E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

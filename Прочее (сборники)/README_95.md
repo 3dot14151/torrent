@@ -1,3 +1,119 @@
+###  Публикация: 1046876   (551099) от 28.08.2016
+
+VA - Absolute Dance Summer Party 2016  (2016) [MP3|320 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies - Are You With Me
+02. Dj Snake (Feat. Bipolar Sunshine) - Middle
+03. Martin Solveig & Gta - Intoxicated (New Radio Mix)
+04. Major Lazer Feat. Nyla & Fuse Odg - Light It Up (Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 03:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5CAFBF45204D4A5B9B4D9877748DB3909A0DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046839   (550924) от 28.08.2016
+
+VA - 2016 Sparks Vinyl Game Sound (2016) [MP3|232-320 Kbps] <Indietronica, New Beat, Bassline, Electroclash, Garage, Funky>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jsanz - Rain (Mvximvl Remix) 05:39
+02. Ale Q & Sonny Noto - Hiamo (Original Mix) 05:03
+03. Rafa Barrios - Valium (Original Mix) 07:40
+04. Enrico Meloni Feat. Nina - Another Love 07:08(   Читать дальше...   )Жанр: Indietronica, New Beat, Bassline, Electroclash, Garage, FunkyПродолжительность: 09:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACE4E36D293E62DE86D0CBA696AB3DF6A4E8472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046778   (550694) от 28.08.2016
+
+VA - 80-90 Dance Hits Remix (2016) [MP3|256 Kbps] <Dance, Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Norman - I'll Meet You At Midnight '2005 (02:06)
+02. Dj Lhasa - Together Forever (Rick Astley) (02:54)
+03. Dead Or Alive - You Spin Me Around (Mix) (02:55)
+04. Boogie Pimps - Sunny (Boney M) (02:56)(   Читать дальше...   )Жанр: Dance, Disco, PopПродолжительность: 04:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF9F06DAECC3488E88DA7446C29DC483D859B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309615   (550533) от 20.06.2019
+
+VA - Flowers Inside (2019) [MP3|320 Kbps] <Pop, Rock, Indie>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550533.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Skence - Airplane
+002. Crash Nomada - Tusen Sеnger
+003. Momus - The Fisher King
+004. Cloud Nothings - So Right So Clean(   Читать дальше...   )Жанр: Pop, Rock, IndieПродолжительность: 09:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F725B29D9F5E5B0EA4B8D88C04680BEF35223BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237811   (549726) от 26.07.2018
 
 VA - Billboard Hot 100 Singles Chart 28.07.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -634,146 +750,6 @@ Boney M. - 25 Best Songs (2015) [MP3|~245 кб/с]<Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:037044B61896531CAC268DA3B45578E332164D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531560   (542747) от 05.08.2012
-
-VA - Русская Новинка Пляжного Сезона (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542747.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ВИА Гра - День без тебя
-002. Александр Серов - Сказочный версаль
-003. Жанна Фриске - Пилот
-004. Согдиана - На Седьмое Небо
-005. Лолита - Не Заморачивайся
-006. Дима Билан и Юля Крылова - Слепая любовь (новая верия)
-007. Елена Терлеева - Немая любовь
-008. Стас Михайлов - Где-то там
-009. T-Killah feat. Виктория Дайнеко - Мира Мало
-010. Анжелика Варум - Зимняя вишня (New Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2039DB449B16D0EE13854ACBAB66855779E7C1E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531515   (542743) от 05.08.2012
-
-VA - Ibiza Chillout (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bells of Babylon - Anthony Grant
-02. Gemini Infinity - Thai Chai
-03. Deep Vibes - Tito Torres
-04. Forever Walking - Forever walking
-05. Zucca Vuota - Peter Flower
-06. Don't Know - DJ Commy
-07. Be Together - Studio 15
-08. Galactica Soul - Dr. Drummer
-09. Soulsalicious - The Speakers
-10. DJ Boost - Sa Trincha Feeling(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C925562CF37F2F539B66E4524FADD43D4672237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531737   (542586) от 05.08.2012
-
-VA - Песня года 2012. Летний спецвыпуск (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542586.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Dan Balan - Люби.
-002 Ирина Дубцова - Ешь Молись Люби.
- 003 Дмитрий Маликов - Прости.
- 004 Ирина Аллегрова - Жаль.
- 005 Maks Barskih - Пылай.
- 006 Анжелика Варум - Шепот Нежный.
- 007 Стас Михайлов - Где-То Там.
- 008 София Ротару - Два Солнца.
- 009 Леонид Агутин - Что Есть Любовь.
- 010 Катя Лель - С Днем Рождения.(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43926680C488DCD36F69A2A9166DEFF3FFA0EEAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531508   (542458) от 05.08.2012
-
-VA - Relax FM (04.08.2012) [MP3|320 кб/с]<Relax, ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morten Harket - Quiet
-02. Norah Jones - Happy Pills
-03. Pet Shop Boys - Invisible
-04. Jason Mraz - In Your Hands
-05. Roxette - Perfect Excuse
-06. Melody Gardot - Amalia
-07. Charlene Soraia - Lightyears
-08. Laleh - Big city love
-09. Christina Aguilera - All I Need
-10. David Choi - Forever and EverЖанр: Relax, balladsПродолжительность: 02:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF7186B318A4ECFC0504F57D0634E5BE94A7C07
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 972663   (982081) от 06.01.2016
-
-Burning in Hell - 2 альбома (2004 - 2006) Discography Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Freedom
-02.Shadows of the Wars
-03.The End of the World
-04.Forever I'll Be Here(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1E5F82AB8B8A368C78BD99D843B4BB955E0F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972501   (982078) от 06.01.2016
 
 Rocka Rollas - Pagan Ritual (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -753,6 +724,35 @@ TORRES - Silver Tongue (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24514E825593D651AB991E1B6F42AF699F401C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356275   (980562) от 29.01.2020
+
+Dangerous Curves - So Dirty Right (2018) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensationable Submit (3:56)
+02. Art Of The Heart (4:12)
+03. Club Mile High (3:59)
+04. Funky Bonez (4:38)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481E49C0A732522A5733B2F4777E66C39E368326
 ```
 
 https://mybot314.ru/tekegram_catalog/

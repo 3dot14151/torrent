@@ -1,3 +1,38 @@
+###  Публикация: 467408   (82482) от 16.03.2012
+
+Caravan Palace - Panic (2012) [FLAC|Lossless]<Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queens (4:04)
+02. Maniac (4:10)
+03. The dirty side of the street (3:37)
+04. 12 juin 3049 (3:23)
+05. Rock it for me (3:10)
+06. Clash (4:12)
+07. Newbop (2:49)
+08. Glory of Nelly (3:43)
+09. Dramophone (3:23)
+10. Cotton Heads (3:38)(   Читать дальше...   )2012Жанр: SwingПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468671   (82414) от 16.03.2012
 
 Saori Yano - BeBop at The Savoy (2010) [FLAC|Lossless]<Jazz,  Be Bop>
@@ -786,35 +821,6 @@ Teddy Wilson - Just A Mood (1934 - 1946) 2CD, 2001, History [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A092BC2627741081FFD180D8D01D4ECF6DBC74A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773708   (71675) от 17.01.2025
-
-Enrico Pieranunzi, Enzo Pietropaoli, Roberto Gatto - Moon Pie (1988) Divox [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Today [3:05]
-02. Occasions [2:39]
-03. Martina [3:15]
-04. Skies [3:40](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCC052D9D7E65B9385C4C5A6AF2C7840A095BED
 ```
 
 https://mybot314.ru/tekegram_catalog/

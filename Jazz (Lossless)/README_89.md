@@ -1,3 +1,32 @@
+###  Публикация: 1395046   (757199) от 09.07.2020
+
+Bill Evans Trio - Waltz For Debby 1961 (2019) Jazz Images [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Foolish Heart [4:50]
+02. Waltz for Debby [6:53]
+03. Detour Ahead [7:34]
+04. My Romance [7:05](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EDF8C6991ED85C2807BD83E14D8933D5978F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280814   (757100) от 05.02.2019
 
 Art Tatum - Piano Starts Here: Live at the Shrine (1933, 1949) 2008, Sony [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
@@ -713,35 +742,6 @@ Rebecca Kilgore - with the Keith Ingham Sextet (2001) Jump [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:387F029F11C340F6A244FCAA4A2AD4C40C1BD3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216392   (751368) от 30.03.2018
-
-Bill Barron - A Swedish - American Venture (1966 - 1984) 2002, Dragon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Variations In Blue [07:28]
-02. Bill Barron Speaks [00:31]
-03. A Swedish-American Adventure [05:46]
-04. Through The Looking-Glass [13:20](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50489F9800D8EE577CBCF931181ECD85A6BEE4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

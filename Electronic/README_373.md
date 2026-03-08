@@ -1,3 +1,58 @@
+###  Публикация: 1264847   (277664) от 25.11.2018
+
+Maruv - Black Water (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Pop, R'n'B>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drunk Groove
+02. LaLaLa
+03. ETL
+04. Looking For You(   Читать дальше...   )Жанр: Electro House, Pop, R'n'BПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A54185FCDF30B301CC3B19C78D2FB19C6A9DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 272892   (277540) от 20.12.2010
+
+DC Rodriguez - Depature (2010) [MP3|320 kbps] <Psytrance, Progressive>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Depature
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74966D5660EF4F428C708FBD231500C838EB0A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336983   (277532) от 08.11.2019
 
 Cold Blue - Live @ Anomaly, Tunnel Club Birmingham, United Kingdom 2019-10-12 [MP3|192 Kbps] <Trance>
@@ -691,64 +746,6 @@ VA - Eternalsun Residents Allstars - 40 Different Club Works! (2019) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A45879A6A7AD02A729AE684341C0E052CE6A6FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337175   (276314) от 09.11.2019
-
-VA - Drive Radio Selection Vol. 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stilz - Undercover (2:52)
-02. Beckett - Play (3:57)
-03. Nina - Counting Stars (4:38)
-04. Dana Jean Phoenix feat. Tape Loader - Breathe in Outer Space (6:33)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02409A96D80B0DF703A984602E747F1C85798DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337074   (276308) от 09.11.2019
-
-Va - Cafe Del Mar XVII-Volumen Diecisiete (2011) (2CD) [FLAC|Lossless|tracks + .cue]<Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luminous - Forever
-02. J. R. Haim - Puesta Del Sol
-03. Sabrina Carnevale - Nobody Can Say
-04. Luis Hermandez - A Tu Lado ( Instrumental Mix )(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 02:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809A87AAFEE79EFE4003820D9C7A3FB2FB899822
 ```
 
 https://mybot314.ru/tekegram_catalog/

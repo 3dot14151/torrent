@@ -1,3 +1,89 @@
+###  Публикация: 1566155   (486403) от 27.07.2022
+
+VA - Uncles Music "Bestseller 003" (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House, Indie Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Indie Elephant -  Retro Heaven Forest  (6:26)
+02.  2JOHN'S, SevenEver -  Stop & Stay  (6:12)
+03.  magic.made.by.r -  Absurdum  (6:59)
+04.  Redspace, GarryG -  Funny Rave  (6:46)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep House, Indie DanceПродолжительность: 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65188775F66C424EAAE65480DD59E7019789E40E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243941   (486181) от 30.08.2018
+
+VA - Timeless Moment, Vol. 01 (Mixed and Compiled by Morttagua) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy Gerber & Dixon - No Distance (Original Mix) (7:56)
+02. Glenn Morrison & Dave Ohms - Outer Limits (Original Mix) (6:56)
+03. Sonic Future - Ondulante (Morttagua Hypnotic Mix) (8:21)
+04. Melody Stranger & Lunar Plane & Paradoks - Storm (Original Mix) (6:51)(   Читать дальше...   )Жанр: House, Progressive House, Tech HouseПродолжительность: 02:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4070FCC980FC8B428BA414746CE89B4E4D1601E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405392   (485703) от 29.08.2020
+
+Malik Djoudi - Remixes (2020) EP [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tempérament (Myd Remix) (4:08)
+ 02. Essentiel (Chloé Remix) (6:51)
+ 03. Sous garantie (En duo avec Etienne Daho)Жанр: EDM, Electro House, Deep HouseПродолжительность: 00:23:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF9983AA92BB17E90EBDD4D2FD49B8B414A4E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244210   (483950) от 31.08.2018
 
 VA - Deep & Melodic Techno #03 - Best of 5 Years (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Tech House, Minimal>
@@ -654,93 +740,6 @@ VA - Body Language, Vol. 20 (Mixed & Compiled by Emanuel Satie) (2018) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76AF1EFFEAA93FE3565A6F6413D6E3048E61D433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246109   (465671) от 09.09.2018
-
-Shinichi Atobe - Discography 7 Releases (2001-2018) DDS, Jadac Recordings [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, House, Minimal, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Good, So Right (12:18)
- 02. Heat 2 (08:02)
- 03. Heat 4 (08:18)
- 04. Heat 1 (09:58)(   Читать дальше...   )Тип издания: WEB, VinylЖанр: Techno, Ambient, House, Minimal, Dub Techno •Продолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B75C57562853FFB58D747C5F58F0236046E380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161916   (463651) от 30.08.2017
-
-Modd - Guron (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guron (4:36)
- 02. Swan Meadow (5:11)
- 03. Tryusolee (4:32)
- 04. Mohican (4:33)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252BE3064391412C0B38F1A76961FFF484491C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246350   (463615) от 10.09.2018
-
-VA - Funky House Classics (2018) 4CD [FLAC|Lossless|image + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shapeshifters - Lola's Theme
-02. Modjo - Lady (Hear Me Tonight)
-03. Room 5 - Make Luv (feat Oliver Cheatham)
-04. Steve Angello & Laidback Luke - Show Me Love (feat Robin S)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1733B0EABFF4E58A2EB4E34FEF98620BB6EB640F
 ```
 
 https://mybot314.ru/tekegram_catalog/

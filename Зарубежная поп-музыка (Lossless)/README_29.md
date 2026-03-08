@@ -1,3 +1,32 @@
+###  Публикация: 1280090   (763522) от 01.02.2019
+
+The Beloved - Sweet Harmony: The Very Best of The Beloved (2011) 2CD, RM. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, House, 80s, 90s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving Feeling (3:44)
+02. Satellite (4:15)
+03. Ease the Pressure (4:20)
+04. Scarlet Beautiful (4:40)(   Читать дальше...   )Жанр: Pop, Synthpop, House, 80s, 90s |Продолжительность: 02:38:59 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED3A78B2ED87167D53AFF30641CD9514DC72D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279973   (763520) от 01.02.2019
 
 Bananarama - The Greatest Hits Collection (Collector Edition) (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, New Wave>
@@ -714,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FCDEB010579D4F22BAC7DE01A5E999EE7E4298C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282455   (745322) от 12.02.2019
-
-Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] <Disco, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon A Time (03:03)
-02. Fairy Tale High (02:20)
-03. Faster And Faster To Nowhere (02:09)
-04. Spring Affair (02:34)(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F125752368853F745C150B617A37D3A0FEC6AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

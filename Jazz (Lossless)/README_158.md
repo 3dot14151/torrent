@@ -1,3 +1,32 @@
+###  Публикация: 1053261   (526120) от 17.09.2016
+
+Lester Bowie - The Complete Remastered Recordings On Black Saint & Soul Note (2010) 3 CD Set [WavPack|Lossless|image + .cue] <Avantgarde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In A Minute (2:50)
+02. Hip Dripper (3:34)
+03. Sun Precondition Five (0:38)
+04. The Search (2:48)(   Читать дальше...   )Жанр: Avantgarde Jazz, Post-BopПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149B226AC2A22FC22D8010A20578CE4460695B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053064   (526035) от 17.09.2016
 
 Swingrowers - (Pronounced Swing Grow'ers) (2013) [FLAC|Lossless|image + .cue] <Electronic , Jazz, Electro, Swing>
@@ -717,35 +746,6 @@ Jazz Sabbath - Vol. 2 (2022) [FLAC|Lossless|image + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D83599FA603B3D4FFD411706877AB447E97110BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928029   (523343) от 15.08.2015
-
-Reinhard Flatischler - Schinore (1987) /Puls Productions/[APE|tracks+.cue]<Jazz, World Fusion, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angkor Wat - Rainforest [03:03]
-02. Angkor Wat - Theme [02:19]
-03. Angkor Wat - Appearance of the temple [03:58]
-04. Angkor Wat - Inside the temple [07:07](   Читать дальше...   )Жанр: Jazz, World Fusion, Ethnic JazzПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBB9D6917C337F8609A063B3B579BBD0B2C4A9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1313498   (523757) от 09.07.2019
-
-Moonrise - Travel Withi (2019) [FLAC|Lossless|image + .cue] <Neo Progressive, Polish Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523757.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dive (7:07)
-2. The Answer (5:28)
-3. Rubicon (5:27)
-4. Little Stone (4:42)(   Читать дальше...   )Жанр: Neo Progressive, Polish ProgПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7F098CAA21CFA7F992EA43F31444AF6F87D92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313512   (523751) от 09.07.2019
 
 Abbath - Outstrider (2019) Deluxe Edition [MP3|320 Kbps] <Black Metal>
@@ -742,6 +713,35 @@ Shrooms Circle - The Constant Descent (2022) [MP3|320 Kbps] <Stoner Rock, Doom M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35AB4A094CDBDDE96B3E49D4F5FAB47D2226A701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559697   (522787) от 27.06.2022
+
+Hush - The Pornography of Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Am Without Heaven and a Law Unto Myself (00:08:09)
+02 - Above Your Head They Close Like Giant Wings (00:08:25)
+03 - There Can Be No Forgiveness Without the Shedding of Blood (00:04:16)
+04 - By This Are You Truly Known (00:12:14)(   Читать дальше...   )Жанр: Sludge Metal, Doom MetalПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B816B9444EE8C111DC9D3A0BAD46B847DED13C5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

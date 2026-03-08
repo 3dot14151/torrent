@@ -1,3 +1,61 @@
+###  Публикация: 1776500   (71261) от 01.02.2025
+
+Michael Medrano - The Penthouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance, Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martini (Shots) [00:02:25]
+02. The Penthouse [00:02:26]
+03. Tom Hardy [00:02:18]
+04. Instant Classic [00:02:22](   Читать дальше...   )Жанр: Disco, Dance, Electronic, PopПродолжительность: 00:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F1139FD17358E13BEAA2FE79BBB8A10CF98E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776491   (71256) от 01.02.2025
+
+Banshee - FABLES (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry me a river. [00:03:20]
+02. I may be a doe... [00:03:07]
+03. You are what you fear in me. [00:02:24]
+04. I'm a never forgive kinda girl [00:02:05](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77EB93CDE3ED7B1BFF78DEF19133CCFC0C721D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776551   (71225) от 01.02.2025
 
 VA - Italo Strikes Back (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
@@ -687,64 +745,6 @@ VA - Modern 80's - The Best Of Discopop Vol.2 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75D0EE7BEDCFFDF143D43F23CBDBB15AE0235379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781908   (70111) от 26.02.2025
-
-VA - Modern 80's - The Best Of Discopop Vol.4 (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - Atlantis is Calling (S.O.S. for Love)
-02. Rick Astley - Together Forever
-03. Kylie Minogue - Got to Be Certain
-04. Fancy - Flames of Love(   Читать дальше...   )Жанр: Electronic, Rock, Pop, Italo-DiscoПродолжительность: 02:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED35A712A961F0D317F7EA75F90C875DBF158C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782243   (70068) от 27.02.2025
-
-VA - I Love Tocata 80s (2012) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlanta - Romantic Break
-02. Modern Talking - You're My Heart, You're My Soul
-03. Spagna - Easy Lady
-04. Baltimora - Woody Boogie(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 02:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E228D1CC71238C986D79C6C93E3CE29E5FA6B817
 ```
 
 https://mybot314.ru/tekegram_catalog/

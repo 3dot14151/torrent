@@ -1,3 +1,119 @@
+###  Публикация: 1196316   (820407) от 04.01.2018
+
+VA - Музыка, с которой мы выросли (зарубежная) (1970-1995) Pop, rock, disco [MP3|320 Kbps] <Pop, rock, disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - Lookin' Out My Back Door (1970) 02:35
+02. Uriah Heep - Lady In Black (1971) 04:44
+03. Led Zeppelin - Rock And Roll (1971) 03:41
+04. Sweet - Jeanie (1971) 03:01(   Читать дальше...   )Жанр: Pop, rock, discoПродолжительность: 08:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AA64B20B3FBFD52511DA248B361A2FA76D61E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117089   (820130) от 21.03.2017
+
+VA - Лучшие Хитовые Ретро Ремиксы (от LORDEGRAF) (2017) [MP3|320 Kbps] <House, Remixes, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820130.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Scooter - No Fate (Dmitriy Rs & DJ Cheeful Remix)  3:45
+002.  Dr. Alban - Enemies (DJ Kapral Remix)  4:33
+003.  Kate Ryan - Voyage Voyage (Yastreb Edit Mix)  3:47
+004.  Hi-Fi - Седьмой лепесток (DJ Agamirov & DJ Karabaev Remix)  3:50(   Читать дальше...   )Жанр: House, Remixes, Dance, ClubПродолжительность: 07:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4C16D79D71C60E489A8BD364805ED27302AE2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007807   (819893) от 16.04.2016
+
+VA - Neon Star Spring Club Edition (2016) [MP3|250-320 кб/с] <Dance, Club, House, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819893.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Puentez - Collide (feat. Robyn The Bank)
+002. Omar Carmona - On Fire
+003. Mario Fiebiger, Project 37 - Second One
+004. Patrick Hofmann - Noon(   Читать дальше...   )Жанр: Dance, Club, House, ElectroПродолжительность: 08:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFF63F22399FF0BB8CBFF572F7D8446C3710404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007704   (819661) от 16.04.2016
+
+VA - Nashville Country Blues (2016) [MP3|320 кб/с] <Rock Blues, Country, Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Big Boy Bloater & The Limits - The Devils Tail
+002. Dolly Parton - Jolene
+003. Glen Campbell - Rhinestone Cowboy
+004. Blake Shelton - Ol' Red(   Читать дальше...   )Жанр: Rock Blues, Country, FolkПродолжительность: 06:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2827D5631603F4EAB098FF80427CEF06E2A5E63C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007642   (819654) от 16.04.2016
 
 VA - Весенняя 100-ка любимой музыки 9 (2016) [MP3|256-320 кб/с] <Pop, Dance, Club>
@@ -631,122 +747,6 @@ VA - Classic Latin (2020) [MP3|320 Kbps] <Latin, Salsa, Rumba>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CCE5D340061D9F9171AD9D99C42462B81E9B515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197548   (813666) от 08.01.2018
-
-VA - Навстречу Судьбе. 3 (8CD) от DON Music (2017) [MP3|320 Kbps] <Поп, Шансон, Русский Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Руки вверх! - С новым годом ! (молодыми) (02:42)
-02. СерьГа - Сказочный лес (03:20)
-03. Татьяна Буланова - Это я (04:00)
-04. Денис Майданов - Что оставит ветер (04:13)(   Читать дальше...   )Жанр: Поп, Шансон, Русский РокПродолжительность: 09:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6A0263458397DC5B391B9416E597B539C367EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197672   (813661) от 08.01.2018
-
-VA - Europa Plus: ЕвроХит Топ 40 - Итоги года (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rag N Bone Man  -  Human  3:20
-02.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:46
-03.  Ed Sheeran  -  Shape Of You  3:54
-04.  Imagine Dragons  -  Thunder  3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A5A402BC3941B851667D09E3F40D730186572F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008770   (813411) от 19.04.2016
-
-VA - 50 оттенков музыки 18+ (02.2016) [MP3|112-320 кб/с] <Pop, Dance, Electronic, Dubstep, Other, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Conner Youngblood - Monsters
-002. Robot Koch - Nitesk
-003. Duke Dumont - Ocean Drive
-004. The Weeknd  - The Hills (slowed)(   Читать дальше...   )Жанр: Pop, Dance, Electronic, Dubstep, Other, RockПродолжительность: 13:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E192A2B1407D01672BDA1521A386C184D040D038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 883577   (813155) от 31.03.2015
-
-(OST) Battle Formula / Super Spy Hunter [NES/Famicom] (Naoki Kodaka) (1991) [MP3|320 кб/с]<Score>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип был сделал на основе FLAC версии, из сборника01. Stage 1, 4 First Half
-02. Stage 1, 4 Latter Half
-03. Stage 2, 6 First Half
-04. Stage 2, 6 Latter Half(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8178D8B8A9B2496FD97A683E30F340AEACAED5
 ```
 
 https://mybot314.ru/tekegram_catalog/

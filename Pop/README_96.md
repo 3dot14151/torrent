@@ -1,3 +1,62 @@
+###  Публикация: 1015105   (775723) от 09.05.2016
+
+Roni Griffith - Roni Griffith (1982) [MP3|320 кб/с] <Electronic, Hi NRG, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рони Гриффит - Диско хай-Энерджи исполнительница, а также модель и фотограф из Блумингтона, штат Индиана.
+Этот дебютный альбом был спродюсирован  Бобби Орландо (Bobby Orlando). Переиздан на CD в 1994 г. в США.01. Love Is The Drug   (4:55)
+02. (The Best Part Of) Breakin' Up   (5:42)
+03. That's Rock And Roll   (3:18)
+04. Desire   (3:54)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F74D1AA5CFC267A697CA74CEB4121F47EA7ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014816   (775603) от 09.05.2016
+
+2 Brothers On The 4th Floor - The Very Best Of (2016) 25th Anniversary Edition, 2CD [MP3|320 кб/с] <Eurodance, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Can't Help Myself (Extended Intro Version) (04:31)
+02 Turn Da Music Up (Radio Version) (04:39)
+03 Never Alone (Euro Radio Mix) (04:13)
+04 Dreams (Will Come Alive) (04:24)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 02:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2308F92021100B93A5392016AA1C91A89DCBBFC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015037   (775401) от 09.05.2016
 
 VA - EDM Megamix (2016) [MP3|320 кб/с] <Dance, Eurodance, Club House>
@@ -684,64 +743,6 @@ Gürcan Erdem - Discography (2006-2008) [MP3|256-320 кб/с]<Disco, EuroDisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFB3F6B4BE88179E41CAC4EE0B799CF5FE76DB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278327   (773179) от 24.01.2019
-
-Jumbo - 3 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая диско-группа. Выпустили только эти три альбома в конце 70-х годов.Список альбомов:
-1976 - Sexy Lady
-1977 - City Girls
-1980 - Get That Mojo Working(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 01:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2036A31045BC816F1C71132BC3FD5CBB8FA435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277957   (773166) от 24.01.2019
-
-Shakira - Laundry Service (2001) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Objection - (Tango) (3:44)
-02.Underneath Your Clothes (3:45)
-03.Whenever, Wherever (3:16)
-04.Rules (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17998B6BCEDA3EC16492936A1DDB2FC2A5A5945
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1112465   (843111) от 08.03.2017
+
+Mr.Kitty - A.I. (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I... (1:44)
+ 02. Undo (2:51)
+ 03. Habits (feat. PASTEL GHOST) (4:14)
+ 04. Forget (3:32)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BCBAECD507D70D6B8E04053BFD69AA60FA2A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378578   (843045) от 27.04.2020
+
+Die Sektor - Death My Darling (2019) [FLAC|Lossless|tracks] <Dark Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 A Night So Long (5:49)
+02 Stabbing Death Fire Stitches Splitting (6:16)
+03 Mina Harker (5:10)
+04 We Are Not Safe Here (5:29)(   Читать дальше...   )Жанр: Dark ElectroПродолжительность: 01:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03716171DDEE66E8D9ACD464A19BD6198DB88C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378784   (843039) от 27.04.2020
 
 VA - Radiology Online (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -688,64 +746,6 @@ VA - NOW Dance Classics (2020) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C2187A78D21D0067ACD639E7B930D72BC96F2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379408   (840964) от 28.04.2020
-
-Ils - Discography 23 Releases (1997-2013) Distinct'ive Records, Botchit & Scarper [FLAC|Lossless|tracks+.cue, tracks] <Breakbeat, Breaks, Drum n Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Reprise) (02:10)
- 02. Tiny Toy (05:42)
- 03. Angels (05:26)
- 04. Cherish (04:44)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Breakbeat/Breaks/Drum & BassПродолжительность: 16:55:55 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8084B30F345CEC9856833FD678C7378D920D0BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379437   (840748) от 28.04.2020
-
-Shalohim - The Ultra Spore (2020) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Psychill>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shalohim & Taktyle - Anderim (05:16)
- 02. Shalohim - Markinson (04:40)
- 03. Shalohim & Dubnotic - Metaflux (07:25)
- 04. Shalohim - Paravara (06:24)Жанр: Psydub, PsychillПродолжительность: 00:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA7C7DF5A3CD5AB501C417791D7D94DFD857F8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

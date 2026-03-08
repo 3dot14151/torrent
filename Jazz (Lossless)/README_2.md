@@ -1,3 +1,32 @@
+###  Публикация: 1605488   (1044877) от 18.01.2023
+
+Paul Desmond - The Complete Albums Collection (1953 - 1963) 4CD, 2018, Enlightenment [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044877.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Over the Rainbow [5:04]
+02. You Go to My Head [7:24]
+03. Give a Little Whistle [6:32](   Читать дальше...   )Жанр: CoolПродолжительность: 05:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9470ADCEC187ED985F9357B01D93430DA7664A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605494   (1044871) от 18.01.2023
 
 Larry Coryell - Larry Coryell's Last Swing With Ireland (2016) 2021, Angel Air [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
@@ -716,35 +745,6 @@ Eric Alexander - Revival Of The Fittest (2009) HighNote Records [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6861144D342FE47B1B094088EA257B4529821407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609440   (1043270) от 03.02.2023
-
-Eric Alexander - The Second Milestone (2001) Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matchmaker, Matchmaker [8:52]
-02. The Second Milestone [6:06]
-03. Moment to Moment [7:09]
-04. The Man from Hyde Park [7:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE3501ACD364EF638F78ABFD31913E70262E63D
 ```
 
 https://mybot314.ru/tekegram_catalog/

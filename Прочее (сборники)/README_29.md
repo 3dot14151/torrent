@@ -1,3 +1,119 @@
+###  Публикация: 996051   (883109) от 12.03.2016
+
+VA - Chilling Time (2016) [MP3|320 кб/с] <Downtempo, Chill House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaxamalka - Mincing Matters
+ 02. Takt 3 - Slinky Birds
+ 03. Alexey Lisin - Try My Soul (feat. Alexandra Pride)
+ 04. Peter Pearson - Whispering Light(   Читать дальше...   )Жанр: Downtempo, Chill HouseПродолжительность: 02:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A4DF3D1EB70544D023A12C8F6E32EB00C1389C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995962   (882960) от 12.03.2016
+
+VA - The Top Hits Insider (2016) [MP3|257-320 кб/с] <Progressive, Nu-Disco, Bigroom, UK Garage, Italo House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe Carolina & Shanahan Feat. Haliene - Stars & Moon (Original Mix) 05:00
+02. Dj Kamera - Time Machine (Original Mix) 07:01
+03. Disco Fries & Kaaze Feat. Danyka Nadeau - We Are One (Extended) 04:05
+04. D.Marco - New Day 06:59(   Читать дальше...   )Жанр: Progressive, Nu-Disco, Bigroom, UK Garage, Italo HouseПродолжительность: 08:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEA2842DA02B38D68DC8B3F77FBB4F1D0644B4C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995983   (882846) от 12.03.2016
+
+VA - German Top 100 Single Charts (14.03.2016) [MP3|256-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882846.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker - Faded
+002. Stereoact - Die immer lacht (Radio 2016 Mix) (feat. Kerstin Ott)
+003. Twenty One Pilots - Stressed Out
+004. Jonas Blue feat. Dakota - Fast Car(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B671A9CA0D07DA620187A4917DEC0C9C1B533F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995725   (882690) от 12.03.2016
+
+VA - Billboard Hot 100 (2016-03-05) (2016) [MP3|320 кб/с] <Pop, Euro, Indie, Folk, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882690.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rihanna - Work (Feat. Drake) .mp3
+002. Justin Bieber - Love Yourself  .mp3
+003. Twenty One Pilots - Stressed Out .mp3
+004. Justin Bieber - Sorry .mp3(   Читать дальше...   )Жанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7C82FC1708F5D92CBC83EEA8433290337047D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495223   (882369) от 11.09.2021
 
 VA - Music of the Night (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -624,122 +740,6 @@ VA - Территоря Нежности. Медляки Для Влюблённ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0E9F7C52BA374B53801597CF17C4EA7A5C41281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104423   (877532) от 16.02.2017
-
-VA - Дискотека Dance Club. The Best (2017) [MP3|64-320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877532.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Desaparecidos - Danser (Alternative Mix) 4:36
-002. Danny Suko & Denny Crane Feat. Tommy Clint - Kill It On The Floor (Empyre One Radio Edit) 3:31
-003. BBX feat. Tony T & Alba Kras - Crazy (Radio Edit) 3:20
-004. Luis Fonsi feat. Daddy Yankee - Despacito 3:48(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 07:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40918027823C709A4B34726DA2E8704D0BFB181F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105347   (876554) от 17.02.2017
-
-VA - Ready Styles Final Songs (2017) [MP3|320 Kbps] <Synthpop, Bigroom, UK Garage, Funk, Trap, Future Bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 unlimited - Get Ready For This (Original 12'' Version) 05:54
-02. Sultan & Shepard X Sak Noel - Samba Sixteen X Trumpets (Dibs & Mgm Edit) (Clean) 04:40
-03. Borgeous X Rvssian & Mri X Sean Paul X 7 Skies & Sissa X Burns - Ride It X Beauty Queen (Dibs & Mgm Edit) (Clean) 03:49
-04. The Chainsmokers F. Xylo X Hall & Rush - Setting Fires (   Читать дальше...   )Жанр: Synthpop, Bigroom, UK Garage, Funk, Trap, Future BassПродолжительность: 05:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2DBD3E04B2C81863B89BBDCA9A958CF38067EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105625   (876457) от 17.02.2017
-
-VA - Chilltrap Vol. 1 - 7 [Compiled by Zebyte] (2015-2016) [MP3|256-320 Kbps] <Chilltrap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna Yvette - Stars & Moon (Elonious Remix) [03:31]
-02. Disclosure - Help Me Lose My Mind (Mazde Remix) [03:54]
-03. Fademan & Oleg K Feat Lime Kid - Wake Me Up [03:43]
-04. Coeur De Pirate - Wicked Games (Huglife Remix) [03:57](   Читать дальше...   )Жанр: ChilltrapПродолжительность: 14:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2162F9C0CF6556D8FEF1D9E80C2D9A9016DC9169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373970   (876423) от 08.04.2020
-
-VA - Top 100 Greatest Songs of All Time (2020) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876423.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Queen - Bohemian Rhapsody
-002. Red Hot Chili Peppers - Otherside
-003. Coldplay - Paradise
-004. Coldplay - Viva La Vida(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 07:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81568ADFAC441616D10BE7551332E1D9C1574AB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

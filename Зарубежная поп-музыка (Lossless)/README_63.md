@@ -1,3 +1,32 @@
+###  Публикация: 957374   (327597) от 17.11.2015
+
+Alison Moyet - Singles (1995) [FLAC|image + .cue]<Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First Time Ever I Saw Your Face (03:20)
+ 02. Only You (03:13)
+ 03. Nobody's Diary (04:32)
+ 04. Situation (02:25)(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 01:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C2A6A93F9B39751B5EAEFAC0EFC39DB9ACED45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957420   (327442) от 17.11.2015
 
 One Direction - Made In The A.M. (2015) Deluxe Edition [FLAC|Lossless|image + .cue]<Pop>
@@ -713,35 +742,6 @@ VA - BRAVO The Hits 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F20D5F5B06F72ECB50EF94886E4C9D600A51FF32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182551   (314463) от 11.11.2017
-
-Taylor Swift - reputation (2017) Scene [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...Ready For It?
-02. End Game (Feat. Ed Sheeran & Future)
-03. I Did Something Bad
-04. Don’t Blame Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B06CFC7078868CEED8CB462BFAC0871D3D34DC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

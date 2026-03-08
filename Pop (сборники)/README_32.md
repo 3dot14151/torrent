@@ -1,3 +1,32 @@
+###  Публикация: 1013181   (777620) от 04.05.2016
+
+VA - Euro Best Hits N7 Top 100 (2016) [MP3|192-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X Ambassadors - Renegades
+02. The Chainsmokers feat. Rozes - Roses
+03. Zara Larsson - Lush Life
+04. Yall feat. Gabriela Richardson - Hundred Miles(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77CE850A7C74EC9E04DBD3A99AC5FD4F61A0D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013179   (777619) от 04.05.2016
 
 VA - Зажигательный молодежный музыкайф на Europa Plus - 4 (2016) [MP3|256 кб/с] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Волна убойных хитов (2016) [MP3|256 кб/с] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1D5C5C08D48CBD856689ED9F2843D353B871F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212997   (774451) от 14.03.2018
-
-VA - De Top 100 Aller Tijden 1984 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774451.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Stevie Wonder - I Just Called To Say I Love You (6:17)
-002. Pat Benatar - Love Is A Battlefield (4:05)
-003. George Michael - Careless Whisper (6:31)
-004. Danny De Munk - Ik Voel Me Zo Verdomd Alleen (3:25)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54CCE4C56F49AA36385003CACC8B6904ACA1B7F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

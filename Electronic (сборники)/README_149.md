@@ -1,3 +1,32 @@
+###  Публикация: 948527   (411109) от 20.10.2015
+
+Laid Back - Best Hits (3CD) (1981-2013) (2015) [MP3|320 кб/с]<Electronic, Synth-pop, Reggae, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bolivia (1981)
+02. Night Train Boogie (1981)
+03. We Don't Do It (1981)
+04. Maybe I'm Crazy (1981)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Reggae, DowntempoПродолжительность: 03:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461013EDD68C9F99BB6D7E5CF6F52AE6A9CDBE1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251710   (410959) от 04.10.2018
 
 VA - Лучшие Trance Треки Ver.3 (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance, Progressive Trance>
@@ -716,35 +745,6 @@ VA - Uplifting Sexy Trance Sound (2015) [MP3|320 кб/с]<Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88694E49CFBA1FF0714E49289ECE29FEC2DA23DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413519   (408097) от 04.10.2020
-
-VA - Свежак Vocal Trance NNM (2020) [MP3|320 Kbps] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond feat. Zoe Johnston - Reverie (3:52)
-02. Alex M.O.R.P.H. feat. Cheryl Barnes - Against The Wind (3:24)
-03. Alexander Popov & Enzo feat. Cari - Stranger Inside (3:14)
-04. Alpha 9 - Tell Me (4:07)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 06:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0633D5DAFA345A0132EEDE95BA1C7BBF4487E30D
 ```
 
 https://mybot314.ru/tekegram_catalog/

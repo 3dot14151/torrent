@@ -1,3 +1,61 @@
+###  Публикация: 1102582   (891411) от 09.02.2017
+
+VA - The Chillout Choice (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Nothlich – Flexible Time (00:05:15)
+ 02. Bad Shop Boys – Self for Real (00:03:44)
+ 03. Mari Billa – Kids of the Moon (00:03:00)
+ 04. Jan Duda – The Immigrant (00:05:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB8939563B1C4288573775868E949C7BF938434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102562   (891410) от 09.02.2017
+
+Kaskets (88 Ultra & Qreepz) - Waves Of Ashes (2017) [MP3|320 Kbps] <Electronic, Trip-Hop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Ghosts (feat. Sheng Moua)
+02. Eyes Like Stars
+03. World Decay
+04. All The Time (feat. I Am Snow Angel)(   Читать дальше...   )Жанр: Electronic, Trip-HopПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02539DE63E95693D12DEC4D76FD2C266611302C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 639417   (891389) от 05.04.2013
 
 VA - Tech-House Of Art 1 (18.03.2013) [MP3|320 кб/с]<House | Tech House | Minimal>
@@ -690,64 +748,6 @@ VA - Condura Selection Part 1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EE6B29ED9AB9D7A4F14342140E7CCCCF003F7DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102861   (889687) от 10.02.2017
-
-VA - A Peaceful Day: The Lounge Act (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Um Momeno  5:37
-02.  Enrico Donner - Abstract Dream  5:31
-03.  Don Gorda Project - Surfing Emotional Waves  5:46
-04.  Cane Garden Quartet - Toca Me  6:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A309BEF31E029C48EC8999C0B0A8F6148233DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102842   (889678) от 10.02.2017
-
-VA - Timeless Sunsets: The Ultimate Chillout Experience (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)  7:00
-02.  Enrico Donner - I Need A Love  6:11
-03.  Don Gorda Project - Rising Sun  6:25
-04.  DJ Riquo - Tribalism  5:32(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74946089650A4DB2B3F6D1187C7010DD57D48B8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

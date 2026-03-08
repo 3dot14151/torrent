@@ -1,3 +1,90 @@
+###  Публикация: 1554029   (579099) от 29.05.2022
+
+Evil - Book Of Evil (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (A Terrible Thing) (00:00:50)
+02 - Divine Conspiracy (00:03:29)
+03 - Evil Never Dies (00:04:03)
+04 - Future Denied (00:03:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDE54BBCBF920AA339F1169372D1E2F32E3B37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554058   (579097) от 29.05.2022
+
+Morhana - Eternal War (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (00:01:46)
+02 - Eternal War (00:03:48)
+03 - Legions of Triumph (00:05:21)
+04 - High Noon (00:04:17)(   Читать дальше...   )Жанр: Symphonic Folk MetalПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10CB8435714CB8AFAA89768F028DFB0653B1066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920692   (579090) от 23.07.2015
+
+Anthelion - Obsidian Plume (2015) Japanese Edition [FLAC|image+.cue]<Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 朔時 / Scythe Returns at Dusk
+02. 黑羽 / Obsidian Plume
+03. 夏夜飛霜 / Ethereal Frost of the Darkness
+04. 殘暮破曉 / Residual Twilight Dawn(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA63EC4E6026D95D82509AFD5B28ABB552CB73C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920693   (579088) от 23.07.2015
 
 Midian - Bring Me the Darkness (2015) Japanese Edition [FLAC|image+.cue]<Melodic Death Metal>
@@ -675,102 +762,6 @@ Morcrof - De Pessimism Philosophiam Et Dogma Nihilistic (2022) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A8768385787F39F7187FD803BEE0CA2573F3A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528378   (571564) от 29.07.2012
-
-Okera - A Beautiful Dystopia (2012) [FLAC|Lossless]<Death Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Rain (9:25)
-02. I Hope (5:30)
-03. Futility (7:36)
-04. In Solitude (6:53)
-05. All Thats Lost (7:36)
-06. Like Jewels in the Sky (9:18)
-07. A Beautiful Dystopia (10:05)Жанр: Death Doom MetalПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528417   (571488) от 29.07.2012
-
-Ancestors - In Dreams And Time (2012) [FLAC|Lossless]<Doom Metal/Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whispers (9:11)
-02. The Last Return (6:16)
-03. Corryvreckan (12:08)
-04. On The Wind (9:32)
-05. Running In Circles (9:44)
-06. First Light (19:19)Жанр: Doom Metal/Progressive RockПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528295   (571393) от 29.07.2012
-
-Crimson Shadows - Glory On The Battlefield (2012) [FLAC|Lossless]<Melodic Death Metal/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glory On The Battlefield (2:29)
-02. Battle Hard (6:43)
-03. Beyond The Mountain Wasteland (5:51)
-04. For The Glory Of The Throne (7:03)
-05. Kingdom Of Ale (6:15)
-06. Quest For The Sword (6:22)
-07. Lost In A Dark Forest (6:22)
-08. Journey's End (5:02)Жанр: Melodic Death Metal/Power MetalПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

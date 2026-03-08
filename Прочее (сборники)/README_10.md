@@ -1,3 +1,119 @@
+###  Публикация: 1466622   (1018273) от 01.05.2021
+
+VA - Beast Mode Dance (2021) [MP3|320 Kbps] <House, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ytram, Elderbrook, Martin Garrix - Fire (2:43)
+02. Tujamo - I Don't Wanna Go (3:06)
+03. Bassboy, Salo - With Me (3:48)
+04. R3HAB, Fafaq, DNF - Sorry I Missed Your Call (2:35)(   Читать дальше...   )Жанр: House, Dance, OtherПродолжительность: 04:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09AF1A1B493FE481C901921633C490182E2B84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466831   (1018098) от 02.05.2021
+
+VA - Beast Mode Latin (2021) [MP3|320 Kbps] <Pop, Latin, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duki - Chico Estrella (2:50)
+02. Bhavi, Pi’erre Bourne - CINEMA (3:04)
+03. Daddy Yankee - EL PONY (3:32)
+04. Sech - 911 (3:35)(   Читать дальше...   )Жанр: Pop, Latin, OtherПродолжительность: 05:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F138D24F88C6FD9D425E651287F4D328D9F39C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466997   (1018065) от 02.05.2021
+
+VA - just hits (2021) [MP3|256 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018065.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sam Smith - Diamonds (3:33)
+002. MEDUZA, Dermot Kennedy - Paradise (2:47)
+003. Miley Cyrus, Dua Lipa - Prisoner (2:49)
+004. VINAI, VAMERO - Rise Up (3:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FE38FCDDE91ADDF072819EB5635F838D761CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796594   (1018012) от 02.05.2021
+
+Richard Jacques, TJ Davis & Planet Perfecto - Metropolis Street Racer (1996-2021) [MP3|320 кб/с]<Soundtrack>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип музыки сделан на основе оригинальных дисков Dreamcast, добавлена музыка из альфа версии игрыAlpha Version
+01. Menu Theme (Alpha)
+02. California Demon (Alpha)
+03. Club Paris (Alpha)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412492E36478BCC863AC118C9229F4CB0DFD10F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467170   (1017945) от 03.05.2021
 
 VA - Red & Black: Hardstyle DJ Zone (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electrocore>
@@ -629,122 +745,6 @@ VA - All Out 70s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F9AB96E765D0FF245A814672397D17B39076B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474666   (1012873) от 03.06.2021
-
-VA - Music News vol.105 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012873.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elsa - Падали (03:02)
- 002. Agatino Romero & Van Herpen & Life of Kai - We Need Time (02:23)
- 003. Aleks Ataman & Finik.Finya - У Мамы Хулиганы (03:17)
- 004. Amelia Martin - Play Forever (03:09)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB46373D8090DCBF47994C08146409F5DAA3AD0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474514   (1012851) от 03.06.2021
-
-VA - All Out 90s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012851.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lou Bega - Mambo No. 5 (A Little Bit of...) (3:40)
-002. Nick Kamen - I Promised Myself (4:00)
-003. Destiny's Child - Say My Name (4:31)
-004. Mary J. Blige, George Michael - As (4:42)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 10:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766D94EA7E3DE55795AC5BCB63F00258B8C26C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474875   (1012695) от 04.06.2021
-
-VA - Country: Good Taste Of Music (2021) [MP3|320 Kbps] <Country, Folk Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012695.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. London Heritage Orchestra - Like Everyone She Knows
-002. Johnny Cash - I'd Just Be Fool Enough
-003. Ronnie Dunn - I'm Not In Love
-004. Vince Gill - Blue Christmas(   Читать дальше...   )Жанр: Country, Folk BluesПродолжительность: 05:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD16CF1A5F96BFE61B177029B80124ABE878E9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474839   (1012633) от 04.06.2021
-
-VA - Shazam & Apple Music Chart (Россия Топ 100 Май) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012633.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. HammAli & Navai - Птичка (3:10)
-002. Klava Koka, Ruki Vverh! - Нокаут (2:29)
-003. Mot, LYRIQ - Не Бруклин (3:05)
-004. German Avny, Kristin Kravets - Мало (3:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8F7111DC30DEAFEA0566DC6F0202FD6D81DD4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

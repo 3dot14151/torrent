@@ -1,3 +1,119 @@
+###  Публикация: 1359840   (963097) от 13.02.2020
+
+VA - 100 Greatest Love Songs (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963097.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Whitney Houston - I Will Always Love You
+002. Snow Patrol - Chasing Cars
+003. Adele - Someone Like You
+004. Céline Dion - My Heart Will Go On(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4112EA2CC3DFDC24F70F7BBF47AC26264465D8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978235   (962621) от 24.01.2016
+
+2011stress - Agoraphobia (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic styling>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Агорафобия
+02. Вооружённая каблуками
+03. За горизонтом событий
+04. Девять Жизней(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic stylingПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63A32D58F845BE19BF7C34050EC4197024623E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360006   (961920) от 14.02.2020
+
+VA - Unlimited Love (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran – Perfect Duet (Ed Sheeran & Beyoncé)
+02. Benji & Fede – Ogni volta
+03. Dan + Shay – Tequila
+04. Bruno Mars – Just the Way You Are(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C371EBAA785555A2D3D319CC1542DC386B60D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359986   (961881) от 14.02.2020
+
+VA - не Громкие новинки недели 55 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961881.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Dava - Ранила (Amice Remix) (4:36)
+2.Veber - Я Буду Кричать (4:04)
+3.Bahh Tee feat. HammAli & Navai - Жить, Не Думая О Тебе (3:55)
+4.Anivar feat. Adamyan - Руку Держи (3:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007C25FEF577B36CF81E3A15F1F46D3D7AE5A5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360225   (961853) от 14.02.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 14.02.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -632,122 +748,6 @@ VA - American Country Session (2020) [MP3|320 Kbps] <Country, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE798175DA07E48374AFE85E8EA14B9C7E1A7907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361727   (954163) от 20.02.2020
-
-VA - не Громкие новинки недели 56 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954163.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.CYGO - Девочка С Красивыми Глазами (2:46)
-2.Dakooka - Слова Солгать (3:04)
-3.Daria Yanina - Темнота (3:14)
-4.Dava - Последний Танец (3:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821AAB89FBE97AC9163D42FB9FEF731949587ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361538   (953748) от 20.02.2020
-
-VA - Listen Life: Neo Classical Collection (2020) [MP3|320 Kbps] <Neo Classical, Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricky King - Sail Along Silv'ry Moon
-02. Rhian Sheehan - Reaching The Moon
-03. Shida Shahabi - All In Circles
-04. Frédéric Scarfone - La Livri(   Читать дальше...   )Жанр: Neo Classical, InstrumentalПродолжительность: 05:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4EF96C48194BC8385371775F6118A3BB029845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088908   (953739) от 02.01.2017
-
-VA - On The Wave Of My Memory: Hit 70-80s (2016) [MP3|320 Kbps] <Pop Rock, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953739.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abc - Poison Arrow (Jazz Remix) 6:55
-002. Alphaville - Sounds Like A Melody (Special Long Version) 7:43
-003. Cock Robin - The Promise You Made (Extended Version) 6:34
-004. Cyndi Lauper - Girls Just Want To Have Fun (Extended Version) 6:03(   Читать дальше...   )Жанр: Pop Rock, ElectronicПродолжительность: 14:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FA5336CA1CE2DA86893410BFE5C7CD9008F3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088809   (953593) от 02.01.2017
-
-VA - УЛИ-ганские ПЕСНИ (2016) [MP3|96-320 Kbps] <Поп, Шансон, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953593.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Несчастный Случай - Песня без названия 4:24
-002. Катетер - Люда 3:32
-003. Ленинград - Геленджик 3:12
-004. Рабфак - Новая песня о правде 3:13(   Читать дальше...   )Жанр: Поп, Шансон, РокПродолжительность: 09:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10595B898F89F0747EDBDBF7A12D00D4C87B078
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1226151   (656971) от 19.05.2018
+
+VA - Markus Schulz - Global DJ Broadcast: Top 20 May (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & DIM3NSION - Amigos (Extended Mix)
+02. The Thrillseekers presents Hydra - Affinity 2018 (Extended Mix)
+03. Talla 2XLC vs Pay & White - Oldskool (Extended Mix)
+04. Dylhen - Drift (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F34666BE78A3B9CE88E3D21E65945AB77834E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226150   (656955) от 19.05.2018
+
+VA - Markus Schulz - Global DJ Broadcast: Top 20 May (2018) [FLAC|Lossless|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & DIM3NSION - Amigos (Extended Mix)
+02. The Thrillseekers presents Hydra - Affinity 2018 (Extended Mix)
+03. Talla 2XLC vs Pay & White - Oldskool (Extended Mix)
+04. Dylhen - Drift (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1536A245C31EAE7F300BE9814731A8C95141E72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140240   (656930) от 05.06.2017
 
 VA - Ibiza Deep House (2017) [MP3|320 Kbps] <Deep House>
@@ -700,64 +758,6 @@ VA - Summer Chill 2k17 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14BAC8D9AC60B9BC19ACB18F71A29985041BFD77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140589   (654939) от 07.06.2017
-
-VA - Foreplay Love Lounge: Sensual Chill out Beats for Erotic Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bilitis - Air - Love 2 Lounge Mix
-02. Soul Guru - Addicted to Tantric Sex - Sensual Love Mix
-03. Rainman - Hammock Dreams - Extended Mix
-04. Melounge - Gimme Love - Indian Beach Lounge Island Cafe Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2F3D863600E675B7D97C8E6DE577FB32EF0789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140743   (654933) от 07.06.2017
-
-VA - Deep House Nation Vol.2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grooveyard – Seven Mile – F. Dancers Radio Remix
-02. Tony D – Fluid Love – Original Mix
-03. Adriano Gargiulo – Stillness – Club Mix
-04. Alfredam – The Sun – Steve Troiani Pool Party Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43754D487ED88206BC71C61EA9A441A71AE5A974
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 703729   (460262) от 25.09.2013
+
+VA - Осеннее настроение в СССР [2CD] (1972-1991) (2013) [MP3|320 кб/с]<Ретро, советская эстрада, поп, рок>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алла Пугачева - Осень (1984)
+02. Форум - Улетели листья (1985)
+03. Юрий Лоза - Опять  (1986)
+04. Валерий Леонтьев - Исчезли солнечные дни (1986)(   Читать дальше...   )Жанр: Ретро, советская эстрада, поп, рокПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19FFCAA988475DA7DAA73410E5164474F05A7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407926   (460102) от 10.09.2020
+
+VA - Music News vol.35 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polina - Джанга (03:01)
+ 02. ALLI - Семицветик (02:34)
+ 03. Alok - Alive (It Feels Like) (02:23)
+ 04. Anivar feat. Adamyan - Руку Держи (RJS Remix) (05:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF60ECFE89B80B95A83FDF00B7419D0D67F36D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941838   (460059) от 28.09.2015
+
+VA - Erotique Lounge (Finest Chill Out & Lounge Grooves Vol 1) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Daxter - It's Raining Inside (05:06)
+02. Michael E - Look to the Sky (06:23)
+03. Kondencuotas Pienas & Ahbee - Evolution (03:08)
+04. Mirage of Deep - Hechizo de Luna (05:32)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FB8CAD1F164E7E11F9CBC68A00ADD85549A219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941728   (459898) от 28.09.2015
+
+VA - Звездные Xиты. Only Best Hits (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Sandro Escobar - Блеск-Шик
+02. Vaults - Mend This Love
+03. VISA feat. D.I.P Project - Ночь В Огне (Radio Version)
+04. Cheryl Cole - Fight On(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E109C7A29B3A4632E0203FDAE09DD45AADC84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941764   (459885) от 28.09.2015
+
+Tina Turner - The Best song (2015) [MP3|320 кб/с]<Rock, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A Change Is Gonna Come
+002. A Fool in Love
+003. A Letter from Tina
+004. Addicted to Love(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 04:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AF87B5CAA4AF234153956E29FBA5FDBEA34468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407902   (459780) от 10.09.2020
+
+Wychazel - Earth Dance (2020) Compilation, 2CD [MP3|320 Kbps] <New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deja Vu
+02. Sacred Mountain Drumming
+03. White Wolf Spirit
+04. Breath of Life(   Читать дальше...   )Жанр: New AgeПродолжительность: 12:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4930047BA0CD07818DF50B96EEE42785C0AC2449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568656   (459763) от 09.08.2022
 
 VA - Toolroom Killer Cuts (2022) [MP3|320 Kbps] <House, Tech House, Club>
@@ -577,180 +751,6 @@ VA - Super Sauna Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A74C5C00DE113BEAC22B305C07BB622A14A4999F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408308   (458171) от 11.09.2020
-
-VA - Beatport Bass House: Electro Sound Pack #172 (2020) [MP3|320 Kbps] <Bass House, D&B, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458171.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Le Moussoir - Sweet Jam
-002. Rex Hooligan Ft Pillerin - Anywhere
-003. Phonetic - Release Your Mind
-004. Arne - Cancelled Spring(   Читать дальше...   )Жанр: Bass House, D&B, JungleПродолжительность: 08:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7281B79658308A35A28D88960EBFC90BA812C75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408313   (458164) от 11.09.2020
-
-VA - Soulful Deep House Vibes (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458164.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Discoplex - Take Me Deeper
-002. Angel - Walf
-003. Lorenz Costa - Grand Love
-004. Adam 1st - That Special Look(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 07:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DE3B066A9555F6A82EDAD8A21BE943C235E53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408312   (458156) от 11.09.2020
-
-VA - Seventh Seal (2020) [MP3|320 Kbps] <Hard Rock, Ballad, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fairyland - The Hidden Kingdom Of Eloran
-02. Dream Evil - The End
-03. Primal Fear - Seven Seals
-04. Wisdom - Unholy Ghost(   Читать дальше...   )Жанр: Hard Rock, Ballad, MetalПродолжительность: 05:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169715AEA04F12ABCE568AF3B271C544A5F961FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408316   (458155) от 11.09.2020
-
-VA - Travel EDM: Cruise Party (2020) [MP3|320 Kbps] <Dance, House, Trance, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458155.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Joe - Afro House Beat 2k20
-002. Sweet Power - Happy Days
-003. Dufort - Indigo
-004. Djane Feline - What I'm Talking About(   Читать дальше...   )Жанр: Dance, House, Trance, EDMПродолжительность: 09:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF0B5849FF79EDCE8E693F208F83B24EDDCEC2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941969   (458131) от 29.09.2015
-
-VA - Bora Bora Chill out Cafe (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Loop Foundation - Here Comes the Sun [04:13]
-02. Bencenzi - Vista [05:48]
-03. Santa Cruz Musique - Kaya [05:53]
-04. Santa Cruz Musique - Alucia De Soleil [06:49](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1701674DFD2325CED9E79D21830AE4829A8AD6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942136   (458105) от 29.09.2015
-
-VA - Late Night Jazz Lounge Collection Emotional Lounge and Smooth Jazz Collection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riccardo Arrighini - Cafe latino
-02. Gnu Quartet - My Favorite Things
-03. Angel Pocho Gatti Y Su Orquesta - I Need You, My Love
-04. Roberto Pronzato - Quello che non mi va(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443A1ACE319A55D21E001D24A0D478BFDDBA2CBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

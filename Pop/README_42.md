@@ -1,3 +1,61 @@
+###  Публикация: 1363045   (945332) от 26.02.2020
+
+Discognosis - Discognosis (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект от авторов и продюсеров Rinder & Lewis.01. Discognosis (4:41)
+02. Poison Ivy (3:24)
+03. One On One (4:14)
+04. Step By Step (2:57)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACE9A5E8CD8BB0405EB3172EF4FA0FAA78B17BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982933   (945295) от 05.02.2016
+
+Suzanne Vega - Retrospective: The Best Of Suzanne Vega (2003) [FLAC|Lossless|image + .cue] <Folk Rock, Indie Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luka
+02. Tom's Diner (DNA Featuring Suzanne Vega)
+03. Marlene On The Wall
+04. Caramel(   Читать дальше...   )Жанр: Folk Rock, Indie Rock, Pop RockПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B90DF1F2C3F1162E88EBC306ED04C4514B1DF48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983122   (945221) от 05.02.2016
 
 Adele - When We Were Young (2016) Single [MP3|320 кб/с] <Pop>
@@ -675,64 +733,6 @@ VA - Самый русский хит 2: Пляски до упаду! (1998) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7568F3130FD12D4F60BA2187B1275CDE5B5A5E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983382   (943675) от 06.02.2016
-
-Nina Nesbitt - Modern Love (2016) EP [FLAC|Lossless|tracks] <Pop, Indie Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая шотландская поп-певица Nina Nesbitt, 5 февраля 2016 года представила свой новый мини-альбом, который получил название "Modern Love".01. Chewing Gum (03:20)
- 02. Take You To Heaven (04:00)
- 03. Masquerade (Niightwatch Demo) (03:34)
- 04. Chewing Gum (Niightwatch Demo) (03:34)(   Читать дальше...   )Жанр: Pop, Indie Pop, Female VocalПродолжительность: 00:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3EC11C20045F3F165EA793CBDCD41CC35805E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983561   (943621) от 06.02.2016
-
-Владимир Пресняков - Звездная серия (1999) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Странник 04:25
-02. Стюардесса по имени Жанна 04:03
-03. На крылечке вдвоем 02:53
-04. Курочка Ряба 03:07(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6DA8E287431CFB3AE52069A17AA33C95E0CF01E
 ```
 
 https://mybot314.ru/tekegram_catalog/

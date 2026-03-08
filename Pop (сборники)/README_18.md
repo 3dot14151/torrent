@@ -1,3 +1,32 @@
+###  Публикация: 995008   (887957) от 09.03.2016
+
+VA - Музыка хорошего настроения 3 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887957.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arseniya - Аритмия
+002. Andeeno Damassy Feat. Jimmy Dub - Dime Tu
+003. Bliss & Klymvx Feat. Snoop Dogg & Cozy - California
+004. Rihanna - Sex With Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EDCBA65BDF8F9764A318EF458E440354E5978FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494635   (887707) от 08.09.2021
 
 VA - National Pop Dance Music (Vol.25) (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
@@ -713,35 +742,6 @@ VA - Танцевальная зима. Снежная 100-ка выпуск №
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:245965A5EC4DBB58FB4763986DC3784037CC2B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104083   (880188) от 15.02.2017
-
-VA - Автозвук. Отборный зимний хит. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880188.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mainstream One - Нам Солнце Светит Ярче 3:00
-002. Weel - Раздевать Тебя 3:48
-003. Стас Видяев - Рандеву 2:46
-004. The Vamps Feat. Matoma - All Night 3:18(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CA6FBA5C50A5F312846407307C5B3C950C2AA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1060077   (457147) от 06.10.2016
+
+VA - Top 100 Зайцев.Нет Сентябрь (2016) [MP3|160~320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457147.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Burak Yeter - Tuesday Ft.Danelle Sandoval  4:06
+002. Баста - Выпускной (Медлячок)  5:35
+003. Тимати & Егор Крид - Где ты, где я  4:43
+004. Calvin Harris - This Is What You Came For (feat. Rihanna)  3:42(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3169A8CE00E7051ECE3E1654301C6754F5D1F832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246920   (456991) от 13.09.2018
+
+Hot Unkle T - That's It (2018) promo [MP3|320 Kbps] <Soulful House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456991.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Late Night Alumni - The Ghost
+002. Sofi Tukker - That's It (I'm Crazy)
+003. Framewerk - Electric Religion
+004. Hraach - Burned The Strings(   Читать дальше...   )Жанр: Soulful House, HouseПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451BF5CF3BCF9E05D22073222269515CECDA7516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247008   (456988) от 13.09.2018
+
+VA - Record Super  Chart 552 (2018) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Lake - I Want You
+02. The Prince Karma - Later Bitches
+03. Vanessa da Mata - Ai Ai Ai (Felguk & Cat Dealers Remix)
+04. Dynoro feat. Gigi D'Agostino - In My Mind(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 01:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB96D8F815DF07718E724B10C3733796CA6D18F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162658   (456982) от 02.09.2017
+
+VA - Finding Around Blessing (Energy Tech Trance) 008 (2017) [MP3|320 Kbps] <Emotional, Energy, Tech Trance, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Frank Waanders - Wishing (Extended Mix)  6:42
+02.  TrancEye - Distant Dream (Extended Mix)  6:48
+03.  Ciro Visone & Marcprest pres. Galaxya - Energia (Original Mix)  8:09
+04.  Bigtopo & Omar Diaz - Jano (Original Mix)  5:19(   Читать дальше...   )Жанр: Emotional, Energy, Tech Trance, UpliftingПродолжительность: 01:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EE7668C96601605F77922446FFEAFB258397E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162545   (456977) от 02.09.2017
+
+VA - Mimicry Vol.5: Psychedelic Trance Set (2017) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456977.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Streamers - Power Of Emotion (Original Mix)
+002. Centavra Project - Terraformer
+003. Enarxis - Future Reality
+004. Kiraz - The Upside Down(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 13:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A29A367E229EC5C5339D493AB7251C8B9D697F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246960   (456953) от 13.09.2018
+
+VA - Hawaii Disco Mix (2018) [MP3|320 Kbps] <Nu Disco, Disco, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456953.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tania Haroshka - Life Is On Air
+002. Panosg - The Groove Is Hot
+003. Enrico Bsj Ferrari - You Better Beware
+004. Greg Henderson - Dreamin'(   Читать дальше...   )Жанр: Nu Disco, Disco, DanceПродолжительность: 09:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769246232324E3CCF34FF860F8B4C71A0CC5766F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246959   (456952) от 13.09.2018
 
 VA - BBQ Dinner: Ultimate Popular Dance Party (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -598,201 +772,6 @@ Disk # 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58570E5A8F0700D374D9F256ADDDB872932682C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408348   (455999) от 12.09.2020
-
-VA - Soul Romantic R&B (2020) [MP3|320 Kbps] <R&B, Soul, Hip Lyric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455999.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tonina - Adamly
-002. Aya Nakamura - Sucette
-003. Teedra Moses - Caught Up
-004. Judy Temple - Stocking Cap(   Читать дальше...   )Жанр: R&B, Soul, Hip LyricПродолжительность: 09:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08695C015DD68778EF3AB414EDC569045C2B926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408375   (455914) от 12.09.2020
-
-VA - The Official UK Top 40 Singles Chart 11.09.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cardi B - WAP (feat. Megan Thee Stallion)
-02. 24kGoldn - Mood (feat. iann dior)
-03. Headie One - Ain't It Different (feat. AJ Tracey & Stormzy)
-04. Nathan Dawe - Lighter (feat. KSI)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3699E79652A93A924D71D4279BF6459AD6F294C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408567   (455912) от 12.09.2020
-
-VA - German Top 100 Single Charts 11.09.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonez MC - Fuckst mich nur ab
-02. 24kgoldn - Mood (feat. Iann Dior)
-03. KitschKrieg & Jamule - Unterwegs
-04. UFO361 & Sonus030 - Games(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B962855A1F6FC0486A9E5A5C9C7BA70727A1A30B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550278   (455856) от 23.09.2012
-
-VA - Dubstep Top (June) (2012) [MP3|320 кб/с]<Dubstep, DnB>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2Pac feat. Sinima - God Bless The Dead (DUBSTEPBASTER)
-02. Aaa - reallity
-03. Adele - Set fire to the rain (Lay remix)
-04. Adventure Club - Need Your Heart Ft Kai
-05. Aeph - When You
-06. Alphabet Pony - Space (VIP Mix)
-07. AmyKuney - Sway(ButchClancyRemix)Final
-08. Anneka - Shut Her Down (Mario M Remix)
-09. BARRON - Bambatta (Vip mix)
-10. Blackmill - Home (Original Mix)(   Читать дальше...   )Жанр: Dubstep, DnBПродолжительность: 05:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B330BF46341DD5D061AE01A9FE3F8B1F25D67C6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549797   (455550) от 23.09.2012
-
-VA - Melodies d'Amour (2010-2011) [MP3|320 кб/с]<Instrumental, Easy Listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 101 Strings - Ode To Billy Joe 03:15
-02. The London Symphony Orchestra - Drive 03:51
-03. Anthony Ventura - I'd Love You To Want Me 03:36
-04. Ray Davies & Button Down Brass - The Shadow Of Your Smile 03:47
-05. Bert Kaempfert - Kiss Her Once With Feeling 02:49
-06. Botticelli - Could It Be Magic 03:14
-07. Caravelli - A New Day Has Come 03:05
-08. Frank Chacksfield - Hopelessly Devoted To You 03:10
-09. John Morgan Orchestra - Plaisir D'Amour 03:41
-10. Johnny Pearson & His Orchestra - I Honestly Love You 03:54(   Читать дальше...   )01. Waldo De Los Rios - Everybody's Talkin' 02:30
-02. Arthur Greenslade - Too Much Heaven 02:52
-03. Nelson Riddle - I love How You Love Me 02:33
-04. Percy Faith - I Only Have Eyes For You 04:40
-05. Cyril Ornadel - I Who Have Nothing 02:58
-06. Geoff Love - Daniel 03:38
-07. Billy Vaughn - The Most Beautiful Girl 02:26
-08. Royal Philharmonic Orchestra - True Love 02:43
-09. Werner Muller - Belle Of The Ball 02:43
-10. Bela Sanders - Moon River 02:54(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FDEE62492F455046F7A9C2D9F8F0C2A7AC2E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060357   (455468) от 07.10.2016
-
-VA - Happiness Emotions: Uplifting Trance (2016) [MP3|320 Kbps] <Progressive Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455468.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Myk Bee - Endless Drive (Raw & Carpenter Remix)
-002. Beat Service & Ana Criado - An Autumn Tale (Original Mix)
-003. Max Millian - Distant Road (Radio Edit)
-004. Eximinds - Sunrise (Extended Mix)(   Читать дальше...   )Жанр: Progressive Uplifting TranceПродолжительность: 10:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119A4B33D17C7EA2DFEB054E078732C4E7372822
 ```
 
 https://mybot314.ru/tekegram_catalog/

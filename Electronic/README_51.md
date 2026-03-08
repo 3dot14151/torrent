@@ -1,3 +1,61 @@
+###  Публикация: 1350985   (1002757) от 08.01.2020
+
+Pete Tong & The Heritage Orchestra and Jules Buckley - Ibiza Classics - Live at The O2, London (2019-12-14) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intro: Rob Dougan – Clubbed to Death
+01. Fatboy Slim - Right Here Right Now
+02. Armand Van Helden feat. Duane Harden- You Don't Know Me
+03. The Bucketheads - The Bomb!(   Читать дальше...   )Жанр: HouseПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA98F49946374176AA615CF94B46EE5CD332EE93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351199   (1002549) от 09.01.2020
+
+Action Nano - Select and Start (2008) (M-Tronic) [FLAC|Lossless|tracks + .cue] <Techno, IDM>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002549.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bad Arguments 	4:25
+2. S.E.T.I. 	4:23
+3. Trans-O-Ceanic 	4:49
+4. Weather Channel 	6:10(   Читать дальше...   )Жанр: Techno, IDMПродолжительность: 1:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BF00E2889DA30FD37DEBFEECC2B2AD2E4E969E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198700   (1002523) от 09.08.2021
 
 John N. Sellekaers (Xingu Hill, Urawa) - Discography 15 Releases (1995-2006) Nova Zembla, Ant-Zen, Hymen [FLAC|Lossless|image/tracks+.cue, tracks] <IDM, Downtempo, Techno, Acid, Experimental>
@@ -680,64 +738,6 @@ Nebulo - Discography 12 Releases (2006-2019) Hymen Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9CFF51247CAC0785E03D98B3C2721279A5FCCC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125104   (1001359) от 13.08.2021
-
-Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Mesh [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Tech House, IDM, Experimental, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Lukas Boysen, Sebastian Plano - A Greater Pattern (05:17)
- 02. Bing And Ruth - The How Of It Sped (05:48)
- 03. Nils Frahm - For (Max Cooper Remix) (07:06)
- 04. Bxentric - Afon (05:07)(   Читать дальше...   )Тип издания: WEBЖанр: Techno, Minimal, Tech House, IDM, Experimental, Ambient •Продолжительность: 34:39:53 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7B7F15D11403BAF5031022FF192DC5C9C9F990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488729   (1001191) от 14.08.2021
-
-VA - BBC Radio 1 Dance Weekend (2021-08-06) [MP3|~245 Kbps (V0)] <House, Tech House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia - It Gets Better
-02. Steve Angello - Teasing Mr. Charlie w/Jay Robinson - Free Again (Axwell Cut)
-03. Buy Now - For Sale (Swedish House Mafia Remode)
-04. Steve Angello & Sebastian Ingrosso - 555(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E0BC1DCB8207ACD02F962E399B00596894B866
 ```
 
 https://mybot314.ru/tekegram_catalog/

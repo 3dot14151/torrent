@@ -1,3 +1,32 @@
+###  Публикация: 1351915   (1001686) от 12.01.2020
+
+Thought Gang (David Lynch and Angelo Badalamenti) - Thought Gang (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental Jazz, Dark Jazz, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stalin Revisited (2:02)
+02. Logic and Common Sense (3:35)
+03. One Dog Bark (3:07)
+04. Woodcutters From Fiery Ships (4:35)(   Читать дальше...   )Производство: Sacred Bones - 843563105429Жанр: Experimental Jazz, Dark Jazz, Free Jazz, SoundtrackПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9693F6FDA8367E0AB67DD3076CCACABFBF513AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352180   (1001353) от 13.01.2020
 
 Marshall Gilkes & WDR Big Band - Koln (2015) Alternate Side Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -808,41 +837,6 @@ VA - Live at What Hi-Fi? Cafe (2007) [FLAC|Lossless]<Jazz, Jazz Vocal>
 08. Bernstein - Gabriela Lena Frank : The Mestizo Waitz  [03:13]
 09. Lauren White - Superstar  [04:32]
 10. Jacintha - Que Sera Sera  [05:12](   Читать дальше...   )Жанр: Jazz, Jazz VocalПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605150   (995799) от 19.01.2013
-
-Chen Xi - Yesterday Once More (2011) [FLAC|Lossless]<Jazz Vocal / Audiophile>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Just a Country Boy [03:51]
-02. Baby Can I Hold You Tonight [03:18]
-03. Home [03:47]
-04. When You Say Nothing at All [04:17]
-05. You Raise Me Up [03:48]
-06. Borderline [04:07]
-07. Angel [04:29]
-08. Promises Don't Come Easy [03:35]
-09. Let's Start From Here [03:38]
-10. Yellow [04:52](   Читать дальше...   )Жанр: Jazz Vocal / AudiophileПродолжительность: 00:53:24
 
 ## Скачать торент
 ```bash

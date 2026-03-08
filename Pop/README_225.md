@@ -1,3 +1,61 @@
+###  Публикация: 1329269   (354428) от 04.10.2019
+
+Mireille Mathieu - Cinéma (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson française, Soundtrack>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354428.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Un homme et une femme (2:54)
+2. Over the Rainbow (3:13)
+3. Une vie d'amour (3:51)
+4. De rêve en rêverie (Evergreen) (3:14)(   Читать дальше...   )Жанр: Pop, Chanson française, SoundtrackПродолжительность: 02:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0EE22FEFB66744E60D3691BD56F557C8FDEF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072181   (354392) от 12.11.2016
+
+Sandra - Close To Seven (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Be Aggressive [04:45]
+02. Mirrored In Your Eyes [03:26]
+03. I Need Love [03:24]
+04. No Taboo [03:50](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C93C62B65F0F0A483BC3389895BF757AD187489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256549   (354280) от 22.10.2018
 
 Дима Билан - Я ночной хулиган + (2004) Enhanced [MP3|320 Kbps] <Pop>
@@ -690,64 +748,6 @@ Brian Briggs - 2 Albums (1980, 1982) LP [MP3|320 Kbps] <Electronic, Power Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9354231FDC5516D1AAD7805F7C0C5AD7273C8A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577851   (350290) от 21.09.2022
-
-Fun Boy - The Album (2022) [MP3|320 Kbps] <Italo-Disco, Euro Disco, Hi-NRG>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fun Boy Turbomix [00:10:24]
-02. D. A. N. C. I. N. G (feat. Budia) [00:05:42]
-03. Breaking My Heart (feat. Sascha) [00:05:57]
-04. Can't Stop Moving (feat. Sascha) [00:07:15](   Читать дальше...   )Жанр: Italo-Disco, Euro Disco, Hi-NRGПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764A501E10B12D7FDC6079AE2C0248FD5541C171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577760   (350167) от 21.09.2022
-
-Haddaway - Let's Do It Now (1998) [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Do It Now (Matrix Radio Edit)	3:27
-02. You're Taking My Heart (DJ Stevie Steve's Radio Edit)	3:21
-03. Touch	4:31
-04. Who Do You Love (Matrix Radio Edit)	3:26(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A435F412546F64F929E0934209D37708ED1FAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

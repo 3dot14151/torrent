@@ -1,3 +1,29 @@
+###  Публикация: 989828   (915667) от 23.02.2016
+
+USDownloader 1.3.5.9 (22.02.2016) Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа rаpidshаrе.cоm, LetitBit, Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC66986DEDBB1F38A2E54DF5F9ED077C64C1F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367610   (915661) от 16.03.2020
 
 aCurrency Pro (Exchange Rate) v5.07 [En]
@@ -664,41 +690,6 @@ EGO – стильный журнал для мужчин, в фокусе ко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A5093B705DDF918F4C6EAFB295261EC3BA1B3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289824   (915457) от 02.02.2011
-
-Krafty Kuts - Back To Mine (2008) [MP3|320 kbps]<Breaks, Electro, Synth-pop, Jazz-Funk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915457.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sharpshooters - Pork Pie Stride (3:11)
-2. Massive Attack - Any Love (2) (1:52)
-3. Rock, Pete & C.L. Smooth - They Reminisce Over You (3:27)
-4. Incredible Bongo Band - In-A-Gadda-Da-Vida (3:15)
-5. Kenny Dope Presents Powerhouse 3 - Making A Living (2:02)
-6. Captain Rock - Captain Rock To The Future Shock (3:47)
-7. Paul Hardcastle - Rain Forest (3:08)
-8. Tyrone Brunson - The Smurf (3:49)
-9. Whomadewho - Space For Rent (4:16)
-10. Ed Solo & Skool Of Thought feat Darrison & JFB - We Play The Music (3:54)(   Читать дальше...)Жанр: Breaks, Electro, Synth-pop, Jazz-FunkПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A35E4B9CC467EDECED0F1FBEF1A758660EB8D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,145 +1,3 @@
-###  Публикация: 1182218   (319092) от 09.11.2017
-
-Kid Rock - Sweet Southern Sugar (2017) [MP3|320 Kbps] <Rock, Country Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Greatest Show On Earth
-2. Po-Dunk
-3. Tennessee Mountain Top
-4. I Wonder(   Читать дальше...   )Жанр: Rock, Country Rock, Southern RockПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB4BB8D20E4B4E5486B89352DBA59AC16780BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692049   (318846) от 28.11.2013
-
-Paul McCartney - 73 Albums, 31 Singles (1970-2013) Discography [MP3|320 кб/с]<Rock, Electric, Classical>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_318846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэр Джеймс Пол Маккартни — один из самых известных музыкантов и композиторов XX века, участник легендарной группы "The Beatles". На протяжении своей сольной карьеры записал десятки пластинок в самых разных направлениях музыки, от рока и поп-музыки до классики, эмбиента и авангарда. Дискография составлена согласно сайту paulmccartney.com (из всех альбомов (   Читать дальше...   )Жанр: Rock, Electric, ClassicalПродолжительность: 00:13:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582864   (318769) от 11.10.2022
-
-Roxette - Look Sharp! (1988) Reissue, 1994, EMI [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Look
-02. Dressed For Success
-03. Sleeping Single
-04. Paint(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB23CB6BD480956BA5785D50D7BCB282176A792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332101   (318659) от 18.10.2019
-
-Keith Forsey - Dynamite (1981) LP [MP3|320 Kbps] <Electronic, Pop Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me To The Pilot (3:46)
-02. Give Me The Right (3:45)
-03. Don't Be Shy (4:02)
-04. Can't You See It (3:23)(   Читать дальше...   )Жанр: Electronic, Pop Rock, New WaveПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2A2ABAB944F829ED74255AB7A6C477151A899A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582820   (318636) от 11.10.2022
-
-Roxette - Pearls Of Passion (The First Album) (1986) Reissue, Remastered, 1997, EMI [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Deep
-02. Secrets That She Keeps
-03. Goodbye To You
-04. I Call Your Name(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380819C0776E1E088BD71B25AC1F5BF545A3FE67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331633   (318252) от 18.10.2019
 
 Ringo Starr - Whats My Name (2019) [MP3|320 Kbps] <Rock>
@@ -739,6 +597,151 @@ Mickey Thomas - Alive Alone (серия "Другие восьмидесятые
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D93031559885FC66FB6D20AEB3817C22B1268843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422377   (310713) от 08.11.2020
+
+Juicy Lucy - Juicy Lucy (1995) Reissue, Remastered, 2010, Japanese Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Makes Me Go Down (04:29)
+ 02. Please Please (05:04)
+ 03. Mom's Apple Pie (03:52)
+ 04. Come For Me Lady (05:29)(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1D6874A4C1DC2E21C4B518856E0232F01624EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183387   (310077) от 13.11.2017
+
+Janis Joplin - The Television Broadcast Sessions 1968 -1970 (2017) [MP3|320 Kbps] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Piece of my Heart (Live TV Pop Show Sweden 7th April 1969) (3:44)
+02.  Summertime (Live TV Pop Show Sweden TV 7th April 1969) (4:56)
+03.  Me (Live TV Pop Show Sweden 7th April 1969) (4:13)
+04.  Work Me Lord to Love Somebody (Live TV Pop Show Sweden 7th April 1969) (7:23)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 01:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BCFF72C7670E2B04F6A7EC31FF937038B29321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260723   (309977) от 08.11.2018
+
+Suzi Quatro - Original Hits (1995) [MP3|320 Kbps] <Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can The Can
+02. Daytona Demon
+03. All Shook Up
+04. Keep A Knockin'(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB8A9493286CF0900345E4DB10A0130589AA31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332937   (309367) от 22.10.2019
+
+Jeff Lynne's ELO - From Out Of Nowhere (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309367.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. From Out Of Nowhere
+2. Help Yourself
+3. All My Love
+4. Down Came The Rain(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4C12BF20CF263CFBB3E619D8B9D6B8F82554C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260683   (309138) от 08.11.2018
+
+Imagine Dragons - Origins (2018) Deluxe Edition [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natural
+02. Boomerang
+03. Machine
+04. Cool Out(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE60C827886E3BFFAC5128943DAA3E18A10A541
 ```
 
 https://mybot314.ru/tekegram_catalog/

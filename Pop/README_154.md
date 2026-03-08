@@ -1,3 +1,61 @@
+###  Публикация: 1148666   (603495) от 07.07.2017
+
+Rebbie Jackson - Yours Faithfully (1998) [FLAC|Lossless|image + .cue] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 What You Need 04:34
+02 Play Your Game 04:42
+03 Yours Faithfully 04:34
+04 Get Back To You 04:00(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A375595A5B58DED0E064657EEC6023172E27B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547225   (603436) от 27.04.2022
+
+VA - DMC Dance Mixes 299 (2022) [MP3|320 Kbps] <House, Tech House, Bassline, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aluna & Diplo & Durante - Forget About Me (Club Mix)
+02. Blinkie Ft. Izzy Bizu - Wind Blows (Extended)
+03. Burns - Talamanca (AmyElle Extended Remix)
+04. Chapter & Verse - You Know It's Time (Extended)(   Читать дальше...   )Жанр: House, Tech House, Bassline, VocalПродолжительность: 01:19:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED57D06FF835547A5E189AF948D39CF5F186A675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547221   (603434) от 27.04.2022
 
 VA - DMC Dance Mixes 298 (2022) [MP3|320 Kbps] <House, Breaks, Dance-pop, Vocal>
@@ -693,64 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E84860801590313F7BE026E6E366804901B2B5DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298760   (600753) от 30.04.2019
-
-Marina - Love + Fear (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Handmade Heaven (03:29)
-02. Superstar (03:53)
-03. Orange Trees (03:07)
-04. Baby (03:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A49B9DE11FC4DC38351E27148EF8C8E662BB2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149659   (600242) от 11.07.2017
-
-Will Tura - The Real... Will Tura (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Eenzaam zonder jou
-02. Draai dan 797204
-03. Je liegt(   Читать дальше...   )Жанр: PopПродолжительность: 03:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9831A7F131613CE87ADFC5C145EC804115A250A
 ```
 
 https://mybot314.ru/tekegram_catalog/

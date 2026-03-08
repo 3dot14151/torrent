@@ -1,3 +1,32 @@
+###  Публикация: 1429310   (176616) от 06.12.2020
+
+VA - Pop Sun Hits: November Session (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_176616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не просто очередной музыкальный сборник, это более восьми часов твоей любимой музыки, которая дарует заряд бодрости и позитива на весь день. 155 незаурядных композиций которые смогут обрадовать не только настоящих фанатов поп жанра, но и обычных меломанов, ведь только такая музыка лучшим образом подойдёт для отдыха с друзьями.001. Dua Lipa - Don't Start Now
+002. Hava - Krank
+003. Michael Patrick Kelly - Beautiful Madness
+004. Coleman Hell - Show 'em(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B84BFA2E62E7935D146FCBFC901D2FC107CBCBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594323   (176510) от 03.12.2022
 
 VA - Hit Music: зима ( 2022) от Мяу [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ Sofia Bellini - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Italodisco, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6214FA58BD00FD5DB9243237588197E25D9DF1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674112   (161266) от 05.11.2023
-
-Rose Laurens - Compilation (2023) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  American Love
- 02.  La Difference
- 03.  Jouets cass s
- 04.  Quand Tu Pars(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0440EE86E41BB9666B432E76B1BAE3F234783F
 ```
 
 https://mybot314.ru/tekegram_catalog/

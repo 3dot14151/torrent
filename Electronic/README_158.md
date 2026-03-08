@@ -1,3 +1,61 @@
+###  Публикация: 1278188   (773182) от 24.01.2019
+
+VA - 2496, Vol. 1 (2019) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Translippers - Shimmer (06:18)
+ 02. Essence Project - Fly In Nature (04:52)
+ 03. Obsqure - Airborn Memories (04:25)
+ 04. Earth Connect - Inside The Rabbit Hole (08:25)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5BB20F7CB58ACC866B3B504497E0FF84573718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278342   (773181) от 24.01.2019
+
+Lowering - Happiness (2016) EP [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Dark Jazz>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nighthawks (5:04)
+02. Father (3:44)
+03. East Queens (5:46)
+04. A White Cat (5:36)Жанр: Experimental, Ambient, Dark Jazz, Doom Jazz, Post-RockПродолжительность: 00:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA619E9ED9288EFEC9CFF251FFD03082B860F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278169   (773175) от 24.01.2019
 
 Lustmord - First Reformed (Extended Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Soundtrack, Score>
@@ -675,64 +733,6 @@ VA - EDM 2016 Ibiza Opening Party (2016) [MP3|320 кб/с] <House, Electro House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848134CF34EBD152DA2306641D45FDACE1B41583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391729   (771515) от 22.06.2020
-
-Mirage Of Deep - Discography 10 Releases (2009-2020) [MP3|320 Kbps] <Lounge, Ambient, Downtempo, Nu Jazz>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771515.jpg" />
-</div>
-
-
-###  Подробнее
-
-2009 - Deep Flow
-2010 - Luxury Living Room (EP)
-2010 - Talking To Stars (EP)
-2011 - Talking Earth(   Читать дальше...   )Жанр: Lounge, Ambient, Downtempo, Nu Jazz, Chillout, World MusicПродолжительность: 10:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1885A53D222E5B2401D446C97306039EF609F713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392085   (770712) от 23.06.2020
-
-VA - electronica@*.lv (2003) Ingus Baušķenieka Ieraksti [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Drum n Bass>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep-Z – Thin Science (07:00)
-02. Cafe2 – Plastic Hailstone Track (04:13)
-03. NGC-5128 – Cēlajiem Sapņiem Un Fabrikām (04:13)
-04. Civil – Thinking (07:44)(   Читать дальше...   )Жанр: Techno, IDM, Drum n BassПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CAEB67C8302AD2D774638C7F1007C910E683A8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

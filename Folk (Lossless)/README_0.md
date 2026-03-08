@@ -1,3 +1,32 @@
+###  Публикация: 658858   (987773) от 22.01.2020
+
+Gipsy Kings - Volare: The Very Best Of The Gipsy Kings (1999) [FLAC|Lossless] <Flamenco, Latin>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volare (Nel Blu Di Pinto Di Blu) - 3:39
+02. Bamboleo - 3:24
+03. Djobi Djoba - 3:25
+04. Bem, Bem, Maria - 3:04(   Читать дальше...   )Жанр: Flamenco, LatinПродолжительность: 00:75:40 + 00:75:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04360229AA315A5F9C118B9BB139F777306E0B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355261   (984976) от 25.01.2020
 
 Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
@@ -711,35 +740,6 @@ Deep Forest - Deep Africa (2013) /Promo CD/ [APE|Lossless]<World, New Age>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497510   (864785) от 22.09.2021
-
-VA - Sirtaki Planet: The Best Of Sirtaki (1998) [FLAC|Lossless|image + .cue] <Folk, Country, Laiko>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M. Teodorakis - Zorba's Dance (2:55)
-02. Various Artists - Trici, Trici (2:29)
-03. Various Artists - Mia Parentesis Ke Mono (3:10)
-04. Various Artists - Pira Luludia (2:25)(   Читать дальше...   )Жанр: Folk, Country, LaikoПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F3F73335E62E28B94CBAE4D535A8F4DEBF4C63
 ```
 
 https://mybot314.ru/tekegram_catalog/

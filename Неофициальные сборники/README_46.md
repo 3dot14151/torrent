@@ -1,3 +1,213 @@
+###  Публикация: 603839   (996765) от 16.01.2013
+
+VA-Шевели попой (2013) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лена Катина (ex. t.A.T.u) - White Christmas (01:51)
+02. Sebastian Ingrosso & Tommy Trash - Reload (Dfm Mix) (02:05)
+03. The Wanted - Chasing The Sun (02:19)
+04. Fish Man - One Pound Fish (Dfm Mix) (02:21)
+05. DJ Smash and DJ Vengerov - Only Forwad (Bobina Radio Mix (02:22)
+06. Azary - Озарю (02:29)
+07. Drumsound and Bassline Smith feat. Tom Cane - Through The Night (02:37)
+08. Lenka - Everything At Once (02:39)
+09. Ирсон Кудикова - Выстрел глазами (02:41)
+10. Таня Терешина - Этим Утром (02:41)(   Читать дальше...   )Жанр: PopПродолжительность: 20:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41709DEB5CDC73F2ADFC856403E1D77B82E774A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604143   (996742) от 16.01.2013
+
+VA-Cупер новая сотка хитов Dfm (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akon feat. Wiz Khalifa - Dirty Work
+02. Madeon - The City
+03. Lykke Li - I Follow Rivers
+04. Sara Oks - Dirty Girl
+05. Noelia - My Everything
+06. Loreen - Euphoria (Евровидение 2012 Швеция)
+07. Livin R & Pink Noisy feat. Marilena Animado - Secret Sin!
+08. Livelectric Feat. Leo Samuele - Wild Out (Radio Edit)
+09. Gromee Feat Tommy Gunn & Ali Tennant - You Make Me Say (De-Liver Remix Edit)
+10. Fidel Wicked - Rock The Disco (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BCB9F41C79B3CE34FEDDD21B87A870B766774A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603595   (996658) от 16.01.2013
+
+VA - Горячая 20 (22 Альбома) (1999-2012) [MP3|320 kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иракли - Иракли - Осень (ремикс) (03:10)
+02. Анна Седюкова - Анна Седюкова - Что я наделала (03:21)
+03. Ёлка - Ёлка - Хочу (03:26)
+04. Леонид Агутин & Tomas N'evergreen - Леонид Агутин & Tomas N'evergreen - Ай яй яй (03:29)
+05. Новые Самоцветы - Новые Самоцветы - Помнишь Модерн Токинг (03:42)
+06. Анжелика Агурбаш - Анжелика Агурбаш - До звезды (03:05)
+07. USB & Сергей Жуков - USB & Сергей Жуков - Скажи, зачем (03:49)
+08. Юлия Савичева feat. DJ Feel - Юлия Савичева feat. DJ Feel - Я с тобой (03:39)
+09. Тимур Родригез - Тимур Родригез - Я верю в твою любовь (02:50)
+10. МакSим - МакSим - Это же я (03:03)(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C288A75F564FD8A5447F4CB5A2018B54EE5618D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602753   (996624) от 16.01.2013
+
+VA-Golden Romance Collection (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996624.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 03:58:11
+1. Within Temptation (feat. Keith Caputo) - What Have You Done (5:13)
+2. Savage - Don't Cry Tonight (extended) (6:51)
+3. Timbaland (feat. Katy Perry) - If We Hever Meet Again (4:52)
+4. DJ BoBo - Secrets Of Love (3:18)
+5. Adele - Someone Like You (4:47)
+6. Schiller (feat. Heppner) - I Feel You
+7. Adele - Set Fire To The Rain
+8. Morandi - Colors(   Читать дальше...   )Жанр: PopПродолжительность: 06:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBF2B48AEC9A112CB1AD67FA8370C9C9AB30C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604023   (996493) от 17.01.2013
+
+VA-Убойный Русский Хит (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996493.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Егор Сесарев - Громчемузыка
+ 002. Дилайс - Без Тебя
+ 003. Пицца - Город помнит нас
+ 004. Стас Борисов - Зима
+ 005. Руки Вверх - Счастлив Без Тебя
+ 006. Оксана Краски - А девочке хочется
+ 007. Пара нормальных feat. Риал Камеди Новый Год
+ 008. Т9 - Ты здесь
+ 009. Ksenona - Далеко-далеко
+ 010. Дима Билан И Ева - Малыш(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD7E4F4EB2B9472E0DFAD5197BC27704256310E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604156   (996474) от 17.01.2013
+
+VA-Super Dance Hits DFM (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fidel Wicked - Rock The Disco (Radio Edit)
+02. Deep Zone Project - Made For Loving You (Radio Edit)
+03. Alyssa Reid feat. Snoop Dogg - The Game (Uk Radio Edit)
+04. LaRoxx Project - Boom Boom (Radio Edit)
+05. Eros Ramazzotti - Un Angel Como el Sol Tu Eres
+06. Eric feat. Natalia - Daydreamer (Radio Edit)
+07. 3OH!3 - Youngblood
+08. Edward Maya pres. Mayavin - Friends Forever
+09. DJ Stretch feat. Di Land - I Need You (Radio Edit)
+10. Pink - Try(   Читать дальше...   )Жанр: PopПродолжительность: 05:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610F35C7A6CAAA510DD64876E75A671890547C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604325   (996455) от 17.01.2013
 
 VA - Шевели Попой 2 (Русский выпуск) (2013) [MP3|128 кб/с]<Pop>
@@ -671,186 +881,6 @@ VA - Зимняя свежая 30-тка Vol. 3 (2020) [MP3|320 Kbps] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08881F1B2F4920A5D6B1619C6B42A9B5A0C305F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608666   (992902) от 26.01.2013
-
-VA - Best of Euphoric Emotions Vol.11 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992902.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Thrillseekers - Song For Sendai (original mix)
-002. Sean Tyas - Banshee (Original Mix)
-003. Rex Mundi - When The Sun Is Rising (Original Mix)
-004. Orjan Nilsen - Go Fast! (Original Mix)
-005. Space RockerZ & Tania Zygar - Puzzle Piece (Daniel Heatcliff's Farewell Remix)
-006. Pobsky & Paul Atkinson - Locked Out (Original)
-007. Reminder & Cathy Burton - Love To Hold (Original Mix)
-008. Timur Shafiev feat. Dasha - Thank You (Dallaz Project remix)
-009. Tucandeo - Galatea (Original)
-010. Roger Shah & Sian Kosheen - Hide U (Pumpin' Island Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38C38C2B810EEC1B66179272426D93ABCE7B41E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353171   (992680) от 17.01.2020
-
-VA - Dub House: Electro Party (2020) [MP3|320 Kbps] <Dub House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nailbiter - Char
-02. Dyi Mob - Massive Dynamic
-03. Torn - Nothing
-04. Lawbrakr - Heist(   Читать дальше...   )Жанр: Dub House, ElectroПродолжительность: 06:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD35D6FC3C6DB7FF42366FF9C8EE8BD6CA604D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353172   (992679) от 17.01.2020
-
-VA - Electronic New Season (2020) [MP3|320 Kbps] <Electronic, EDM, Synthetic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992679.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sonic Moon - Funk Flow
-002. Lento Violento - Lost
-003. Mount Palomar - The King's Gambit
-004. Diefaust - Curiosite Coupable(   Читать дальше...   )Жанр: Electronic, EDM, SyntheticПродолжительность: 12:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7B4FE76015EB0ADAB2EFAD0EBCB4591D4186EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353170   (992627) от 17.01.2020
-
-VA - Christmas Carol: Lounge Interior Sound (2020) [MP3|320 Kbps] <Lounge, Chillout, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992627.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pindaric Spleen - Millennia
-002. Beautiful Morning - Marga Sol
-003. Señora - Ritmo Casablanca
-004. Dany Cohiba - Carnival Madness(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 09:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916649CD5EF6F4DD585946054EC64E5473D92BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353105   (992571) от 17.01.2020
-
-VA - 100 Greatest Happy Songs (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992571.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rihanna - We Found Love
-002. Clean Bandit - Rather Be (feat. Jess Glynne)
-003. Pharrell Williams - Happy
-004. Electric Light Orchestra - Mr. Blue Sky(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDBA420DBFAAA4A116FBBAE88DB567689D91A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353201   (992380) от 17.01.2020
-
-VA - Meeting with Love (2020) [MP3|320 Kbps] <Instrumental, Easy listening, Blues>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Duval - Angel Of Mine
-02. Sonny Black - Blues Is King
-03. Ben E King - Stand By Me
-04. Valefim Planet - Come Whit Me(   Читать дальше...   )Жанр: Instrumental, Easy listening, BluesПродолжительность: 04:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E280A3E1DC424A0E04A08503123640A198A57788
 ```
 
 https://mybot314.ru/tekegram_catalog/

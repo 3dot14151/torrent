@@ -1,32 +1,3 @@
-###  Публикация: 931969   (509880) от 28.08.2015
-
-Crazy Town - 3 Альбома (1999-2015) [MP3|320 кб/с]<Alternative / Nu-Metal / Rapcore / Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Albums:
-1999 - The Gift Of Game
-2002 - Darkhorse
-2015 - The Brimstone SluggersЖанр: Alternative / Nu-Metal / Rapcore / Hip-HopПродолжительность: 02:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F02919A8FA0E083FA00756CDD9EB2874E19A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521367   (509840) от 28.08.2015
 
 P.O.D. - 9albums + 3EPs + 6singles (1992-2015) [MP3|320kbps] <Christian Rock, Rapcore>
@@ -741,6 +712,35 @@ Oxford Collapse - Some Wilderness (2004) [FLAC|Lossless|tracks + .cue] <Indie Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77C8C3765911406540CEE04046B0C217E3A411E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316114   (508901) от 23.07.2019
+
+Ракоший Нелч - Зелёный Альбом (2011) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты Видел (3:58)
+ 02. Мир Катится ко Всем Чертям (3:54)
+ 03. Власть (3:38)
+ 04. Комната с Зелёными Шторами (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4271EB8693414652A0AA09E88DBBBCE3B56C9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

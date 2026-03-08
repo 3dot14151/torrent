@@ -1,3 +1,32 @@
+###  Публикация: 658863   (803299) от 21.05.2013
+
+Сборник клипов - VA - Various Music part. 42 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803299.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 5ive Star - More 720p (3:28)
+2. Alex M. - Greatest DJ 1080p (3:10)
+3. Aligator - Be With You (feat. Sarah West) 1080p (4:22)
+4. Andreea D - Magic Love 1080p (3:53)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0546A9A4C7FF245C60843A0F1D5DA58E73F78EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009153   (802121) от 25.04.2016
 
 Був'е - Влюбленные / Був'є - Закохані (2016) WEB-DL [H.264/2160p] [4K]
@@ -677,35 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00BAF76CA66B23D15EBC50737F1AC327479DFA1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274196   (794860) от 05.01.2019
-
-Hymn - Sarah Brightman in Concert (2018) DVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-концерт Sarah Brightman, снятый 21.09.2018г в зале Ludwigs Festspielhaus (Fussen, Bavaria, Germany). Фильм демонстрировался во многих кинотеатрах (в т.ч. в 450 залах США) 8.11.2018, предваряя выход 15-го альбома исполнительницы "Hymn". Всемирное турне в поддержку альбома стартовало 24.11.2018г в Сан-Пауло (Бразилия), в программе тура предполагается (   Читать дальше...   )Act 1.Hymn - The Opera
-01.Gothica
-02.Fleurs Du Mal
-03.Stranger In Paradise(   Читать дальше...   )Производство: Music Delight Productions GmbHЖанр: Pop, Classical CrossoverРежиссер: Gerd F.SchultzeАктеры: Sarah BrightmanПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61251BA4F6892CA468867BE235C74D79F40CFD50
 ```
 
 https://mybot314.ru/tekegram_catalog/

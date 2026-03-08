@@ -1,3 +1,32 @@
+###  Публикация: 1067705   (387377) от 29.10.2016
+
+Andy Williams - Reflections (1977) Compilation [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Moon River
+2. Sad
+3. Both Sides Now
+4. Home Lovin' Man(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10332C3F7ECBF3EC3904A85703C3E337CEE5AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326261   (387303) от 19.09.2019
 
 Mabel - High Expectations (2019) [FLAC|Lossless|tracks + .cue] <Pop, R&B, Dance>
@@ -707,35 +736,6 @@ General Lafayette - Jester (1993) [FLAC|Lossless|image + .cue] <Pop, Ballad, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D7F5807719B1A47C4AD26CD25B25B9DC036607D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254165   (377519) от 12.10.2018
-
-General Lafayette - King Of The Broken Hearts (1999) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377519.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	King Of The Broken Hearts
-2.	True Love Will Never Die
-3.	Like A Story You Read In A Book
-4.	Country Blues(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48020EDF4B913031BE0477200569577599BBFE24
 ```
 
 https://mybot314.ru/tekegram_catalog/

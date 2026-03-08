@@ -1,3 +1,61 @@
+###  Публикация: 1458840   (1023699) от 30.03.2021
+
+Peter Wilson - Electricity (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Can Start Tonight [00:03:49]
+02. Tell Me Who You Are [00:04:28]
+03. Fire Alarm [00:04:35]
+04. Nothing but Love [00:04:38](   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520B7E37336458E27F7DD1D5469723D185A99C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458906   (1023694) от 30.03.2021
+
+AlimkhanOV A. - Right Time (2021) [MP3|320 Kbps] <Italo, Euro Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Right Time
+02.Eyes Of Delight
+03.Lonely
+04.Hot Nights In The City(   Читать дальше...   )Жанр: Italo, Euro DiscoПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0499E14BEF4679D14EFB497F8866BFA672A51AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458908   (1023680) от 30.03.2021
 
 Mflex Sounds - Starry Night (2021) [MP3|320 Kbps] <Italo Disco>
@@ -686,64 +744,6 @@ VA - ZYX Italo Disco New Generation Vol. 16 (2020) 2CD, Compilation [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD6036D7C55E2FFE21800FC38C738106E13B77A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461749   (1021608) от 11.04.2021
-
-Балаган Лимитед - Сто на двоих (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to Russia (3:12)
-02. Кто бы мог подумать (3:08)
-03. Ой, да (2:51)
-04. День рождения (3:23)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D16CF3B0DDCB51376275C66A84CE2BC68C9E25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461752   (1021599) от 11.04.2021
-
-VA - Venti Compilation 6 (2020) 2CD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco, Hi-NRG, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Primadonna - Pretty Face (6:49)
-02. Brian Ice - Fly With Me (6:21)
-03. Sauvage - Just Like Heaven (6:14)
-04. Caglioni - Star (Remix) (6:20)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, SynthpopПродолжительность: 02:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B56EA9905F07A105C05BCFE65BD05BDB3C05636
 ```
 
 https://mybot314.ru/tekegram_catalog/

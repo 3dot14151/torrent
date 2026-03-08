@@ -1,3 +1,32 @@
+###  Публикация: 1005887   (830920) от 10.04.2016
+
+VA - House Nation Volume 8 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Krewella - We Go Down (Darren Styles Remix) (05:00)
+02. Nicky Romero - Symphonica (Bare Remix) (03:54)
+03. The Bloody Beetroots & Greta Svabo Bech - Chronicles Of A Fallen Love (05:38)
+04. Alesso and Calvin Harris feat. Hurts - Under Control (04:16)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FAB4808355927072591B464748B6F99091099C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005814   (830919) от 10.04.2016
 
 VA - Lounge Balearic Relax Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ VA - Happy Feeling Vol.3 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1374A38842E753A93C9E538DE7EEAA1ED509D28A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006904   (825481) от 13.04.2016
-
-VA - Junodownload DJs Most Charted March (2016) [MP3|320 кб/с] <Deep House, Nu-Disco, Club House, Tech House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep House:
-01.Detroit Swindle - Howsmusic (Original Mix) (7:36)
-02.COEO - Back In The Days (5:40)
-03.Mad Rey - Quartier sex (7:40)(   Читать дальше...   )Жанр: Deep House, Nu-Disco, Club House, Tech House, TechnoПродолжительность: 16:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1577E031E70AEE38C8297AC1F009014887FB08A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

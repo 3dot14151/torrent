@@ -1,25 +1,25 @@
-###  Публикация: 1496395   (872857) от 17.09.2021
+###  Публикация: 1374540   (872992) от 10.04.2020
 
-Eternal Flight - SurVive (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+The Dream Syndicate - The Universe Inside (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872857.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Will We Rise Again
-02. Hear The Call
-03. Legions
-04. The Promise(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:04
+01. The Regulator [20:27]
+02. The Longing [07:37]
+03. Apropos Of Nothing [09:33]
+04. Dusting Off The Rust [09:56](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:58:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BCEDA4FF28BA02FA3B3F02948823B4BB30D92AF
+magnet:?xt=urn:btih:BF799ED1654D84EBC88967208E20FDE557743D49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,274 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496444   (872856) от 17.09.2021
+###  Публикация: 1374521   (872990) от 10.04.2020
 
-VA - The Deep Emotion: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout, Relax, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christoph Spendel - Afoxe Verao
-02. Mkk - Still Tryna
-03. Jusscomplex - Last Orders
-04. Five Seasons - Let Me Drive(   Читать дальше...   )Жанр: Lounge, Chillout, Relax, DowntempoПродолжительность: 04:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B96E25E67707F6A71DA8838608AA38A4C576BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496424   (872855) от 17.09.2021
-
-VA - RnB: Music Is My Life (2021) [MP3|320 Kbps] <Rnb, Soul, Funk>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872855.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Chantels - Never Let Go
-002. Pia Mia, Chris Brown - Do It Again
-003. Davide Shorty - Regina
-004. Sada Baby - Whole Lotta Choppas(   Читать дальше...   )Жанр: Rnb, Soul, FunkПродолжительность: 07:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADBA86CA6CB731382259F9CD0F81CE258A3A822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496532   (872854) от 17.09.2021
-
-ISO Workshop Free 10.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872854.jpg" />
-</div>
-
-
-###  Подробнее
-
-ISO Workshop – небольшая программа для работы с образами дисков: извлечения данных из образов практически всех существующих форматов (iso, bin, nrg, cdi, mdf, img, gi, pdi, dmg, b5i, b6i), конвертирование из поддерживаемых форматов в iso, записи (только iso и cue) на CD, DVD, BD диски и создание образов с оптических носителей.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A364DDF117E2749FD3F6AEFBC857D8AF4575691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496471   (872853) от 17.09.2021
-
-Сказка странствий (1983) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то в давние века, а может быть и раньше, в маленьком княжестве жили двое сирот, сестра и брат. Мальчик обладал волшебным даром находить золото - и был похищен двумя злодеями. Сестра отправляется на поиски. Ей придется многое пережить и преодолеть, испытать лишения и горечь потерь. Пройдет не один год, прежде чем она наконец встертится с братом. Но окажется, (   Читать дальше...   )Производство: СССР, Чехословакия, Румыния / Мосфильм, Filmove Studio Barrandov, Studioul Cinematografic BucurestiЖанр: Фэнтэзи, приключенияРежиссер: Александр МиттаАктеры: Андрей Миронов, Татьяна Аксюта, Лев Дуров, Ксения Пирятинская, Балтыбай Сейтмамутов, Валерий Сторожик, Кармен Галин, Владимир Басов, Вениамин СмеховСубтитры: ОтсутствуютПродолжительность: 01:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE34E8A3F065E3905D94A64725C9EB5CB8DC8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496334   (872852) от 17.09.2021
-
-Владимир Семёнович Высоцкий, Леонид Васильевич Мончинский | Чёрная свеча (2012) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высоцкий Владимир Семёнович (25 января 1938, Москва — 25 июля 1980, Москва)
-Советский и русский поэт, актёр и автор-исполнитель песен; автор прозаических произведений. Лауреат Государственной премии СССР (1987, посмертно).
-Актёр Театра драмы и комедии на Таганке в Москве (1964—1980). Владимир Высоцкий сыграл более 20-ти ролей в театре, в том числе Гамлета («Гамлет» (   Читать дальше...   )Жанр: Современная прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5774354DADB75D285C5A6D631BE33EB5B9C22C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496266   (872851) от 17.09.2021
-
-Rohan Dalvi | Making dessert in Houdini Part 2 (2016) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это обновленная версия курса Tea and Cookies (Чай и печеньки). Мы, как и тогда, посмотрим на темы моделирования, шейдинга, освещения и рендера. Главное отличие курса в том, что вместо рендера Mantra, мы будем использовать рендер Redshift, Octane и Arnold.
-Вторая часть пока что доступна в двух вариантах для Redshift и Octane. Мы сфокусируемся на освещении и рендере. (   Читать дальше...   )Жанр: Создание видеоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 02:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6ED0158B1A81CBE0D6B4888B9882EE477F35DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496387   (872850) от 17.09.2021
-
-Аллен Даллес (Allen Welsh Dulles) | Сборник произведений [5 книг] (1994-2017) [FB2, EPUB, MOBI]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даллес Аллен Уэлш (Allen Welsh Dulles) (7.4.1893, Уотертаун, штат Нью-Йорк, —29.1.1969, Вашингтон), один из руководителей американских спецслужб. Брат Дж. Даллеса. Получил юридическое образование в Принстонском университете (1916). С 1916 на дипломатической службе в Вене, Берне, Париже, Берлине и Стамбуле. В 1922-26 руководил отделом ближневосточных проблем Государственного (   Читать дальше...   )Жанр: История. Публицистика. СпецслужбыПеревод: В. Г. Чернявский, Ю. Д. ЧупровФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F337F71F9AA53E012F5AE3E9DFE953B2B52B6DEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496239   (872849) от 17.09.2021
-
-Сердце чемпиона / A Horse from Heaven (2018) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэнди на спор участвует в гонке на квадроцикле и врезается в постройку, которая разваливается. Чтобы отработать свой промах, она вынуждена ухаживать за лошадьми. Так она встречает новых друзей, начинает ухаживать за травмированным конем и принимает участие в соревнованиях. Сможет ли она победить свою главную соперницу?Производство: США / Devotion Films, de Vos EntertainmentЖанр: СемейныйРежиссер: Дэвид де ВозАктеры: Аманда де Воз, Деван Ки, Донна Руш, Дэвид де Воз, Изабелла Манкузо, Ариана Гуидо, Кэрис Козак, Стивен Кирк, Кендес Козак, Джеки КозакПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D3AF930A6D3B5DC256E4741F70C63A76BB4386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496482   (872848) от 17.09.2021
-
-Hot 'n' Nasty - Burn (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyway the Wind Blows (3:09)
-02. Like a Hammer (2:52)
-03. I Can't Stand It Anymore (2:51)
-04. Superstar (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E925AAB780A2868041BEF6558C7701AEF59C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496465   (872847) от 17.09.2021
-
-VA - 100 Greatest Britpop Songs (2021) [MP3|320 Kbps] <Rock>
+Dream On Dreamer - What If I Told You It Doesn't Get Better (2020) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872847.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oasis - Wonderwall (Remastered) 4:19
-02. Pulp - Common People 5:50
-03. Oasis - Live Forever 4:37
-04. Blur - Song 2 (2012 Remaster) 2:01(   Читать дальше...   )Жанр: RockПродолжительность: 06:56:24
+01. Feel so Empty
+02. Disappear
+03. Explicit
+04. Fade Away(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:37:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9541DF8E091CA8DA6EE2D36BF626F1A04BF08DBE
+magnet:?xt=urn:btih:4661B67156E0AE76D7735053AC61D8F4A1109DE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,139 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496427   (872846) от 17.09.2021
+###  Публикация: 1374489   (872988) от 10.04.2020
 
-Mike Andersen - Raise Your Hand (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slamming The Door (3:20)
-02. Next Time You Call (3:35)
-03. Finally Free (2:42)
-04. If I Fall Again (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5CBEF292A118EE21EC046B048EBBBB1E400DDA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374611   (872845) от 10.04.2020
-
-Cyberman - Time Travelers (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road in Masuria (5:42)
-02. Asteroids (5:47)
-03. Time Travelers (4:52)
-04. Earthshine (5:28)(   Читать дальше...   )Жанр: Synthwave, SpacesynthПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9453DFB1CB23BD331E22188ED33523F8E50C0D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374641   (872844) от 10.04.2020
-
-Macsome Spotify Downloader 1.0.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spotify Downloader для Mac - это профессиональный Music Converter, Audio Downloader и Recorder, который может конвертировать все музыкальные файлы и плейлисты Spotify в MP3, AAC, FLAC и WAV и разблокировать Spotify, так что вы можете воспроизводить преобразованные треки на Sony PSP, Sony Walkman, iRiver, общий MP3-плеер и так далее.Тип издания: macOS SoftwareРелиз состоялся: 09.04.2020Разработчик: Macsome Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F002C1BF39482DF33BEABC4EE8AD96625D1B8F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374714   (872843) от 10.04.2020
-
-Grids for Instagram 6.0.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grids переносит лучшее из Instagram на ваш Mac.
-Grids for Instagram - простая и удобная программа имеющая чистый не отвлекающий пользовательский интерфейс на Русском языке, позволит вам просматривать свою учетную запись в популярном сервисе Instagram. Самый большой плюс приложения в том, что вы сможете подключать к нему несколько аккаунтов и потом между ними легко (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.04.2020Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B601B0D2D90F89DFB707B22480DAF94C80C96E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374484   (872842) от 10.04.2020
-
-Bahh Tee - 10 лет спустя (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+T-Fest - Выйди и зайди нормально (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872842.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Не читайте переписки (feat. Navai) [03:27]
-02. Неужели ты моя (feat. Jony) [03:23]
-03. Сердце (feat. Idris & Leos) [03:08]
-04. Крылья (feat. Зомб) [03:54](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:56
+01. 0372 (Skit) [02:10]
+02. Щёлк-щёлк  (feat. BARZ, MAKRAE) [03:14]
+03. Amore mio (feat. BARZ, MAKRAE, Амд) [04:21]
+04. Прайс (feat. MAKRAE, Амд) [03:17](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F694AE5F367CEDA94E214AA542E9BB65E17B46F
+magnet:?xt=urn:btih:67D7DC5E2D3DB5F925C79650D26B91683FF3ECC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,137 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374516   (872841) от 10.04.2020
+###  Публикация: 1374621   (872987) от 10.04.2020
 
-Литл Бэйби Бам Детские Стишки - Учим песни. Часть 2 - Профессии! (2020) [MP3|320 Kbps] <Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872841.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. К доктору иду я
-2. Я экскаватор
-3. Кем ты хочешь стать когда вырастешь?
-4. Езда на велосипеде(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB066BF29D7C90C6BAED0DDC7B0C51AEE2CA667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374605   (872840) от 10.04.2020
-
-Araxis Merge Pro Edition 2020.5350 for macOS 10.13–10.15 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для двух и трехстороннего сравнения / слияния файлов и синхронизации папок от компании Araxis. Используйте данное приложение, чтобы сравнивать, понимать и объединять различные версии источника кодов, веб-страницы и другие текстовые файлы и даже текст, копированный и вставленный с другого приложения.
-
-Merge – это обязательная программа для разработчиков (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.04.2020Разработчик: AraxisПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67C34D900D1D390B1D2060C0598F552D796CFA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374706   (872839) от 10.04.2020
-
-PhoneRescue for iOS 4.0.0.20200410 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872839.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.04.2020Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525FE9652B93A4A8ED2D8E8D0CBC7715A2D57347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374475   (872838) от 10.04.2020
-
-Airflow 2.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите контент с компьютера на Apple TV и Chromecast. Не нужно ждать, индексировать, просто перетащите видео и смотрите. Проще уже действительно не придумать.Тип издания: macOS SoftwareРелиз состоялся: 09.04.2020Разработчик: BitCave Ltd.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C105107B70292BA4C1D2421B593EEE96B9A046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374728   (872837) от 10.04.2020
-
-Lucrethia And The Azoto 14,008 - Dance Skinsation (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+The Sylvers - Disco Fever (1979) LP [MP3|320 Kbps] <Funk Soul, Disco>
 
 >>Pop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872837.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It's The Way (4:18)
-02. Delicate Jan (4:50)
-03. Superustic Man (5:02)
-04. Hey There (7:20)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:27:21
+01. Mahogany (5:11)
+02. Is Everybody Happy (3:57)
+03. Come And Stay All Night (2:51)
+04. Dance Right Now (5:29)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:33:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44FCA0A7CCF4E2C70E7E05129953C6063510C715
+magnet:?xt=urn:btih:5858BF5BF8BC7F8E653D48972BC4456DF98560F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374602   (872836) от 10.04.2020
+###  Публикация: 714559   (872986) от 13.03.2014
 
-XYplorer 20.90.0100 RePack (& Portable) by elchupacabra [Multi/Ru]
+Synthetic Epiphany - Discography 11 Releases (2012-2014) [MP3|320 кб/с]<Dubstep, UK Garage, Glitch, Ambient, IDM, D'n'B, Chillwave, Downtempo>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872836.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XYplorer - удобный мультивкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+01. Gravity (04:05)
+ 02. Invictus (03:54)
+ 03. Stand Up, Let's Go Back (04:55)
+ 04. Ancients 04:09)(   Читать дальше...   )Жанр: Dubstep, UK Garage, Glitch, Ambient, IDM, D'n'B, Chillwave, Downtempo |Продолжительность: 00:34:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:930B60FB0B442DBE72EC3E5AB3D76F9EF92D815F
+magnet:?xt=urn:btih:EB7E46077DE5AB6D48A4F337E6D014C93B250E4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374389   (872835) от 10.04.2020
+###  Публикация: 1374390   (872985) от 10.04.2020
 
-VA - Beatport Bassline: Electro Sound Pack #50 (2020) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
+VA - Advanced Rock (2020) [MP3|320 Kbps] <Rock, Punk, Alternative>
 
 >>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872835.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Schoco - Pressure Rising
-002. Magness - Bling Bling
-003. Solace - Occam's Razor
-004. Artificial Intelligence - Isolate(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 09:43:28
+001. Dayseeker - Already Numb
+002. Dylan Leblanc - I See It In Your Eyes
+003. Temples - It's All Coming Out
+004. Scott Lavene - Modern World(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 06:37:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2EBCBB49AB6AD683395FCE81C8BCC7A0BDC0456
+magnet:?xt=urn:btih:AD4778B0B4752F386767CD33CCB73C6ADDBE2D24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,25 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374429   (872834) от 10.04.2020
+###  Публикация: 1374350   (872984) от 10.04.2020
 
-Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge Metal>
+Deepsky - Back Catalog 1994-1998 (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance>
 
->>Театр и Музыкальное видео
->>Музыкальные клипы
+>>Electronic
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872834.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CDA Disbelief - The Ground Collapse (2020)Производство: Listenable RecordsЖанр: Death, Thrash, Sludge MetalПродолжительность: 00:06:31
+01. Tempest (8:14)
+02. Departure (6:37)
+03. Godspeed (8:26)
+04. In My Mind (8:28)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:14:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6DA6005D98F54B75C97BECB338FD69A1F058FFA
+magnet:?xt=urn:btih:D8E49FF20B55F3809598876FDAD15DE66CF0168C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,25 +201,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374499   (872833) от 10.04.2020
+###  Публикация: 1374647   (872983) от 10.04.2020
 
-ON1 HDR 2020.1 (build 14.1.1.8876) [Multi/Ru]
+Pixave 2.3.12 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872833.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ON1 HDR создает безупречные, естественные фотографии HDR, которые в мгновение ока сочетают детали светлых и темных участков из набора экспозиций. Вы можете управлять движением, таким как облака и вода, с помощью предварительного просмотра в реальном времени. Затем улучшайте свои HDR-фотографии с помощью мощных инструментов и пресетов, которые демонстрируют ваше творчество. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.04.2020Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, английский и др.
+При работе с большим количеством изображений встает вопрос их эффективной организации и просмотра. Это важно для тех, кто связан с дизайном, оформлением, и просто людей, любящих, когда все разложено по полочкам. Именно для этого и создан менеджер изображений Pixave, в котором не только удобно хранить и просматривать картинки, но и сортировать их, редактировать, экспортировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.09.2019Разработчик: YoungHo KimПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B10F42EE66C5C7AD3CC9905BEEC3ED1F30FE145
+magnet:?xt=urn:btih:1D4C2F60EB7C28E87709DCCE3CEEFF25BF574D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,28 +227,489 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374607   (872832) от 10.04.2020
+###  Публикация: 765274   (872982) от 13.03.2014
 
-Ray Orion - Return To The Battle Line (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
+VA - Alterportal HITS 14 Vol. 66 - February (2014) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872832.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Return To The Battle Line (5:38)
-02. Artix Space (4:41)
-03. Power Invasion (5:55)
-04. Star Track (4:29)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:22:03
+01. 3 Years Hollow - For Life (Feat. Clint Lowery)
+02. Rave The Reqviem - Exhale
+03. Fuel - Cold Summer
+04. An Early Fall - Soma(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:00:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01A88FB75ED3BF2DF58E2177522DDB85E341D7BF
+magnet:?xt=urn:btih:9B4079217F8F6798C1080F4E1C3D710CCA806A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374585   (872981) от 10.04.2020
+
+Mungo Jerry - Touch the Sky (2020) [MP3|320 Kbps] <Blues, Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch the Sky
+02. You'll Be Sorry
+03. Rhythm is a Healer
+04. I'll Be a Hippy 'Til I Die(   Читать дальше...   )Жанр: Blues, Rock, Classic RockПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABA25244931865EBDBE425B0D6054603BC1E2EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374525   (872980) от 10.04.2020
+
+Frei.Wild - Corona Quarantane Tape (2020) [MP3|320 Kbps] <Deutschrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corona Weltuntergang (3:19)
+02. Alles, alles was mir fehlt (3:28)
+03. Wir gehen Dir ewig auf die Eier (3:16)
+04. Nur das Leben in Freiheit (5:58)(   Читать дальше...   )Жанр: DeutschrockПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CA3962108875EFC8A970277DADDCBEB71C0699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374447   (872978) от 10.04.2020
+
+Laura Marling - Song for Our Daughter (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandra (03:19)
+02. Held Down (04:07)
+03. Strange Girl (03:21)
+04. Only the Strong (03:20)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEAE938639CAE2FE57055201A08BCCBBA687EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374612   (872976) от 10.04.2020
+
+Джоди Пиколт | Сохраняя веру (2020) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэрайя, застав мужа с другой женщиной, впадает в депрессию, а их семилетняя дочь Вера замыкается в себе и ищет утешения у подруги, которую, возможно, выдумала, а возможно, и нет. Все чаще и чаще происходят необъяснимые вещи: Вера то процитирует стих из Евангелия, хотя в доме даже нет Библии, то упомянет о давнем эпизоде из жизни своей мамы, о котором та никогда никому (   Читать дальше...   )Жанр: Современная зарубежная прозаПеревод: Мария НиколенкоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B16BED54326176AD0DCB4EBE44D20C993D6BFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995572   (872970) от 17.03.2016
+
+Юрий Стручков | Установка и настройка Браузера Tor (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Массовое распространение сети Интернет стало причиной начала тотальной слежки за ее пользователями и блокирования неугодных власти ресурсов. Естественно, что и провайдеров обязали сотрудничать с соответствующими органами. Как рядовому пользователю избежать этого безобразного произвола? Для решения проблемы предлагается система Tor. К сожалению, в настоящее время (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B8125F4FBCE20D847AC991FE47C4AA94903AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997531   (872969) от 17.03.2016
+
+Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6745.5000 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2007 предоставляет удобные и простые средства для увеличения продуктивности работы отдельно взятой персоны, а также упрощения командной работы, оптимизации бизнес-процессов и документооборота, а также проведения бизнес-анализа. Полностью пересмотрены существующие принципы организации пользовательского интерфейса для того, чтобы облегчить конечным (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F846B2DBEDD036AD3729A9F21B9951540F8B7149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997495   (872968) от 17.03.2016
+
+Джон Картер / John Carter (2012) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран Гражданской войны в США Джон Картер против своей воли оказывается на планете Барсум (Марс), где попадает в плен к воинственным четырехметровым туземцам. На этой планете с более низкой гравитацией Картер обладает огромными физическими возможностями. Он оказывается втянут в войну между городами Марса - Гелиумом и Зодангой. Ему придётся выбрать сторону и принять (   Читать дальше...   )Производство: СШАЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Эндрю СтэнтонАктеры: Тейлор Китч, Линн Коллинз, Марк Стронг, Доминик Уэст, Джеймс Пьюрфой, Брайан Крэнстон, Дэрил Сабара, Аманда Клэйтон, Киаран Хайндс, Николас Вудесон, Руперт Фрейзер, Уиллем Дефо, Томас Хейден Чёрч, Саманта Мортон, Полли Уокер, Арки Аломар, Давуд Хадами, Пиппа Никсон, Джеймс Эмбри, Филип ФилмарПеревод: Дублированный, авторский (одноголосый, закадровый) х2Субтитры: отсутствуютПродолжительность: 02:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28A7CE1BD8D6D75D2066F50F6AAA2BEC5C24EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997692   (872967) от 17.03.2016
+
+VA - Музыка в твою машину (2016) [MP3|204-320 кб/с] <Pop, Deep, House, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872967.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Hello (DJ Denis Rublev Remix)
+002. A-Ha - Early Morning (DJ Amure Remix 2011)
+003. Alcazar - Physical (Radio Version)
+004. Alexandra Stan - Mr Saxobeat (Original Mix)(   Читать дальше...   )Жанр: Pop, Deep, House, DiscoПродолжительность: 07:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523A15010226AD8D830ECE5EAD635A8AE521DB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997499   (872966) от 17.03.2016
+
+(Linux) World of Tanks (2010) [Ru] (0.9.14) License (Crossover Bottle)
+
+>>*Nix Игры
+>>Ported *Nix Games
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872966.jpg" />
+</div>
+
+
+###  Подробнее
+
+World of Tanks - это массовая многопользовательская онлайн-игра, полностью посвящённая бронированным машинам середины XX века. У игроков есть возможность плечом к плечу сражаться с поклонниками стальных гигантов со всех уголков планеты, отстаивая свои претензии на мировое танковое господство. Однако даже самые сильные игроки не смогут добиться успеха в одиночку. (   Читать дальше...   )Тип издания: LicenseРазработчик: Wargaming.netЖанр: Action, Tank, 3D, 3rd Person, Online-onlyЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A67962837CFD341EAE40787D981D41F119A0F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997175   (872965) от 17.03.2016
+
+Bakemono no Ko | The Boy and The Beast | Мальчик и Зверь [2015, MV] BDrip 1080p raw
+
+>>След.
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872965.jpg" />
+</div>
+
+
+###  Подробнее
+
+История фильма разворачивается в двух мирах - в мире людей (Сибуя, Токио) и в мире зверомонстров (Дзютэнгай). Два этих мира не должны были пересекаться, но вот однажды одинокий мальчик потерялся и попал в мир зверей. Там он встретил такого же одинокого зверя, звавшегося Куматэцу, и напросился к нему в ученики.
+
+©  ANNЖанр: приключения, фэнтезиРежиссер: Хосода МаморуПеревод: zafhosЯзык субтитров: русскийПродолжительность: 120 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93E1A25596577422E10D84A2CBD42EE8CB352B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997590   (872964) от 17.03.2016
+
+Вадим Панов | Зандр (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время Света изуродовало планету до неузнаваемости. Города превратились в вулканы, горы – в моря, а цветущие поля – в пустыню.
+
+Земля стала Зандром. Выжженной каменистой пустошью – новым домом для людей, чудом уцелевших в страшной войне: зачерствевших, ожесточившихся, озлобленных и… пытающихся остаться людьми. Для Гарика Визиря, умеющего выживать там, где умирают (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6B0099D04C902EF387D6337CCE5FB283C183CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997664   (872963) от 17.03.2016
+
+Ужастики / Goosebumps (2015) BDRip 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кошмары бывают разные. Вечно голодные оборотни, плохо воспитанные зомби, агрессивные садовые гномы и даже гигантский неуравновешенный снежный человек…
+Все эти фантастические монстры и монстрики многие годы магическим образом удерживались на страницах знаменитых бестселлеров «Ужастики», пока по воле случая их не выпустили на свободу в реальный мир.Производство: США, Австралия / Columbia Pictures, Original Film, Village Roadshow PicturesЖанр: фэнтези, комедия, приключенияРежиссер: Роб ЛеттерманАктеры: Дилан Миннетт, Одейя Раш, Эми Райан, Райан Ли, Джиллиан Белл, Джек Блэк, Кен Марино, Холстон Сейдж, Стивен Крюгер, Кит А. БолденПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C6BD76F361D1C0D13F2D805FD2E2A08A63C228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997661   (872962) от 17.03.2016
+
+Ужастики / Goosebumps (2015) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кошмары бывают разные. Вечно голодные оборотни, плохо воспитанные зомби, агрессивные садовые гномы и даже гигантский неуравновешенный снежный человек…
+Все эти фантастические монстры и монстрики многие годы магическим образом удерживались на страницах знаменитых бестселлеров «Ужастики», пока по воле случая их не выпустили на свободу в реальный мир.Производство: США, Австралия / Columbia Pictures, Original Film, Village Roadshow PicturesЖанр: фэнтези, комедия, приключенияРежиссер: Роб ЛеттерманАктеры: Дилан Миннетт, Одейя Раш, Эми Райан, Райан Ли, Джиллиан Белл, Джек Блэк, Кен Марино, Холстон Сейдж, Стивен Крюгер, Кит А. БолденПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5F2FEEA73EEB270784A56568D9B9072B008A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997567   (872961) от 17.03.2016
+
+Shelter 2: Mountains (2015) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shelter 2: Mountains – DLC, в котором вам предстоит пережить снежные будни в образе матери-рыси. В игре Shelter 2 вам предстоит влиться в семью пушистой и милой рыси, которая борется за выживание в дикой природе. Растите рысят, учите их охотиться и осваивайте просторные заснеженные степи новой игровой зоны в DLC Mountains. И соблюдайте осторожность, ведь превратиться (   Читать дальше...   )Тип издания: LicenseРазработчик: Might and DelightЖанр: Adventure, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85CD0BC2A44D0C4DA7C21514E4936981B13EA73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997497   (872960) от 17.03.2016
+
+Эссекская вендетта / Essex Vendetta (2016) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный мужчина - семьянин и работник оказавшись в сложной ситуации решается на немыслимый шаг... И он готов пойти до конца рискуя своей жизнью в противостоянии с криминальным миром...Производство: Великобритания / Big Sis Productions, Cobra FilmsЖанр: ДрамаРежиссер: Терри Ли КокерАктеры: Майкл МакКелл, Крис Джонсон, Данниэлла Уэстбрук, Люсинда Родс-Флаэрти, Пол МакКарти, Эдди Веббер, Тони Лонгхерст, Сидни Ливингстоун, Молли Хендерсон, Йен БерфилдПеревод: Двуголосый закадровый, любительский (den904 & DeadSno)Субтитры: отсутствуютПродолжительность: 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E88492E46ABEA63F5607249150BCD2B5EE9068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997526   (872959) от 17.03.2016
+
+Microsoft Office 2007 Standard SP3 12.0.6745.5000 RePack by KpoJIuK [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2007 предоставляет удобные и простые средства для увеличения продуктивности работы отдельно взятой персоны, а также упрощения командной работы, оптимизации бизнес-процессов и документооборота, а также проведения бизнес-анализа. Полностью пересмотрены существующие принципы организации пользовательского интерфейса для того, чтобы облегчить конечным (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FE843805E8ECE4EC523121F15918D1CD7201D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997659   (872958) от 17.03.2016
+
+Ужастики / Goosebumps (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кошмары бывают разные. Вечно голодные оборотни, плохо воспитанные зомби, агрессивные садовые гномы и даже гигантский неуравновешенный снежный человек…
+Все эти фантастические монстры и монстрики многие годы магическим образом удерживались на страницах знаменитых бестселлеров «Ужастики», пока по воле случая их не выпустили на свободу в реальный мир.Производство: США, Австралия / Columbia Pictures, Original Film, Village Roadshow PicturesЖанр: фэнтези, комедия, приключенияРежиссер: Роб ЛеттерманАктеры: Дилан Миннетт, Одейя Раш, Эми Райан, Райан Ли, Джиллиан Белл, Джек Блэк, Кен Марино, Холстон Сейдж, Стивен Крюгер, Кит А. БолденПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F46D73D2545D50134590B2CBF9801D478ADE5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

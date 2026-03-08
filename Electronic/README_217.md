@@ -1,3 +1,60 @@
+###  Публикация: 1292018   (648844) от 28.03.2019
+
+Tomoyoshi Date, Stijn Huwels - Hochu-Ekki-Tou (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hochu (17:34)
+2. Ekki (23:16)
+3. Tou (11:28)Жанр: Electronic, Ambient, DroneПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D880FC598E436E9C899673A492337C3FEBB8784D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291908   (648842) от 28.03.2019
+
+Devon Church - We Are Inextricable (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648842.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chamomile
+2. Your Fathers House
+3. Curses
+4. Nothing Is Revealed(   Читать дальше...   )Жанр: Electronic, DarkwaveПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A90A2557F32846DBC552804995FF5656106C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291938   (648841) от 28.03.2019
 
 Infrequency - Trip Journal (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Glitch>
@@ -687,64 +744,6 @@ VA - Malibu Summer (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45F715DFEC4FCD1F8798725C52A52FA49961217B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541096   (648526) от 01.04.2022
-
-Kungs - Club Azur (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zebulon (0:49)
- 02. Fashion (4:32)
- 03. Never Going Home (2:50)
- 04. Clap Your Hands (3:10)(   Читать дальше...   )Жанр: EDM, Nu Disco, Club HouseПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AA92CC2B0F4747C18F573DF17B58B702FDA4F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526756   (648409) от 01.04.2022
-
-Michael e - Discography 69 Releases (2006-2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648409.jpg" />
-</div>
-
-
-###  Подробнее
-
-2006 - Beautiful World
-2007 - Late At Night
-2007 - A Better World
-2008 - Speak To The Others(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, New Age, Lounge Jazz, AmbientПродолжительность: 68:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EF9F9D19864BB4B329A3563A23272F79001B3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

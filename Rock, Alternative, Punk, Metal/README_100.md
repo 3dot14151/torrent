@@ -1,32 +1,3 @@
-###  Публикация: 1466752   (1018247) от 01.05.2021
-
-Farcry - Balance (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balance
-02. Stay Away
-03. I’ll Find a Way
-04. I Am Your Man(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677F601D2CD8D7F91331B91F7FE893AE1FAA1705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466758   (1018243) от 01.05.2021
 
 Evile - Hell Unleashed (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -745,6 +716,32 @@ Akira Kajiyama & Joe Lynn Turner - Fire Without Flame (2006) [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C1D65DDD5880880FD50CE4F9DF91B4131649C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467131   (1017934) от 03.05.2021
+
+Static-X - 12 Albums (1999-2020) [FLAC|Lossless|image + .cue] <Industrial Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Static-X - Американская метал-группа из Лос-Анджелеса, Калифорния, играющая преимущественно в стиле индастриал-метал с элементами ню-метала.Жанр: Industrial Metal, Nu MetalПродолжительность: 08:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F693448BA9FFFD48CE95A02D5BAD328AA0F6C70
 ```
 
 https://mybot314.ru/tekegram_catalog/

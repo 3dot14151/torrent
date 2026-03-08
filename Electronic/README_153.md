@@ -1,3 +1,61 @@
+###  Публикация: 1210577   (778730) от 03.03.2018
+
+Aether - Flower in Winter (2018) [MP3|320 Kbps] <Ambient, Chill Step, Garage>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778730.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flower in Winter (03:43)
+2. Remnant (Ft. Tsubame) (02:57)
+3. Florescence (02:49)
+4. Elegy for Ixia (04:35)Жанр: Ambient, Chill Step, GarageПродолжительность: 00:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C57342ECF011EE3CE306CFEBCA34382B8760395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210330   (778725) от 03.03.2018
+
+Oliver Schories - Blitzbahn (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fakir (6:24)
+ 02. Cobra (5:49)
+ 03. Relief (6:21)
+ 04. Serum (6:23)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B374420AA10B4261F0786B6ADC5FEB0F63F4161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210637   (778718) от 03.03.2018
 
 VA - Music Garden to Chill Out your Mind (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
@@ -684,64 +742,6 @@ VA - Future Sound of Egypt 500 (2018) [MP3|320 Kbps] <Trance,Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40C38F8443493B3DB444A21912929B214C8B2F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013157   (777974) от 03.05.2016
-
-Diaphane - 2 Releases (Samdhya, Lifeforms) (2010-2013) Ant-Zen [FLAC|Lossless|tracks + .cue] <IDM, Ambient, Glitch, Dubstep>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Eau Vive (05:35)
- 02. Iridium (06:24)
- 03. Fracture (05:34)
- 04. Sources (06:52)(   Читать дальше...   )Тип издания: CD •Жанр: IDM, Ambient, Glitch, Dubstep •Продолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D4469B1839DD43AD357991A568327B5AF80683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013200   (777943) от 03.05.2016
-
-Markus Schulz - Watch the World (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Code 10-66 (02:40)
-02. In the Night (feat. Brooke Tomlinson) (03:52)
-03. Love Me Like You Never Did (feat. Ethan Thompson) (04:23)
-04. Destiny (feat. Delacey) (03:48)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEB2B112A5ECBBD877B706A07BBB0A315F8880F
 ```
 
 https://mybot314.ru/tekegram_catalog/

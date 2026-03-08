@@ -1,3 +1,61 @@
+###  Публикация: 1107892   (864642) от 24.02.2017
+
+Let Em Riot - Lines (2016) EP [MP3|320 Kbps] <Electropop, Synthwave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Manual 04:05
+02. Reader 04:05
+03. We Were Young 03:57
+04. Sun Flares 04:33(   Читать дальше...   )Жанр: Electropop, Synthwave, DreamwaveПродолжительность: 00:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25211268E1725659A3D4D1972E082A4B5CB52C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108348   (864632) от 24.02.2017
+
+VA - Deep House Edition  № 009 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864632.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Felix & Gianx - Hot Blooded 4:43
+002. Jaques Le Noir - Be Together 5:17
+003. Damon Grey - Don't Stop 4:50
+004. Morgan Dora - Highway To Sunshine 5:20(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E08CF1BFAB44F70C86ECBC9282C26A6B0E06F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999525   (864614) от 22.03.2016
 
 Underworld - A Collection (2012) Compilation [FLAC|Lossless|tracks + .cue] <Progressive House, Techno, Progressive Trance>
@@ -685,64 +743,6 @@ VA - Winter Break 2: The Chill Lounge Edition (2017) [MP3|320 Kbps] <Downtempo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F8186D75D359A8AF26405718693050F198190FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108886   (861083) от 26.02.2017
-
-VA - House Ladies Vol.1 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861083.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amorhouse - Habla! - Amorhouse & Fennel Club Vocal 5:48
-002. Discorescuers - Pasticcino - Discorescuers Dub Vocal 7:19
-003. Antony Fennel - Je T'aime - Club Mix 6:38
-004. Fabietto Cataneo - Saxy Fashion - Instrumental Mix 4:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3C9ED270A1A030FEA044DEDD606F877726F1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108743   (861077) от 26.02.2017
-
-VA - Deep House Connection Vol.2 Night Selection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861077.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zhukhevich - Flowers Energy 3:44
-002. Chris Coulen - S.M. 4:21
-003. Andrey Butuzov & 7Sky Project - Empty Streets - Original Mix 4:05
-004. The Mord - New Year in City Deep 4:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01A5F9C1B2056DEFCE827D0DE192A6F30F3DACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

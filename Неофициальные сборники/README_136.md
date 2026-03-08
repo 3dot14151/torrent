@@ -1,3 +1,177 @@
+###  Публикация: 1003825   (840305) от 05.04.2016
+
+VA - Lobby Bar Lounge Vol.2: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coolgrooves - Seventy Live (4:05)
+ 02. Chick Le Chic - Guns and Colors - Modell & Mercier Mix (4:12)
+ 03. Bassogroove - Kx Files (2:59)
+ 04. Palinuro Groovers - Durante (4:59)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C965434D781BB4D32C43244E775434F205CD0E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112895   (840210) от 10.03.2017
+
+VA - На волне позитива. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840210.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Славянский - На Пешеходном Переходе 3:18
+002. Владимир - Голливуд 3:19
+003. Тина Кароль - Lost In The Rain 3:18
+004. Сати Казанова - Happiness Hey 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475E69F7500C9288292167844C77F728F99662D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112900   (840208) от 10.03.2017
+
+VA - Положительный заряд от Хит FM выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840208.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. K.Stelmah - Не Вернусь 3:05
+002. Катя Гордон - Нет Стыда 3:27
+003. София Ротару - Не Забывай Меня 3:25
+004. Витольд Петровский - Память Из Прошлого 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD5C068D48EF4FBBCC06E7B9B1BBDCB711C8F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003942   (840206) от 05.04.2016
+
+VA - Luxemusic Dance Super Chart Vol.62 (2016) [MP3|320 кб/с] <House,  Electro House, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Hello (DJ PitkiN Remix) 05:07
+02. Alan Walker vs Oliver Heldens - Faded Wombass (Fabien Jora Festival Mashup) 04:10
+03. Alekseev - Пьяное Солнце (Oleg Perets & Ivan Flash Radio Remix) 03:11
+04. Andy B. Jones vs. Sergey Kutsuev - Make A Move (Markiza Mash Up) 03:34(   Читать дальше...   )Жанр: House,  Electro House, Vocal House
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:920246FD4ED97DC664C338F4CA6BFDBDD71C7F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112891   (840203) от 10.03.2017
+
+VA - Отдыхаем душой на Шансоне. Часть № 5 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840203.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Milen - Вишенка На Торте 3:34
+002. Сборная Союза - Первая Любовь 3:22
+003. Виктория Калистратова - Ну Прости Меня 3:39
+004. Сергей Серафимов & Евгения Лихачева - C Меня Довольно 3:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4897463BDFE66E88D1CEAA99718C364CDFBBB68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004037   (840198) от 05.04.2016
+
+VA - Весенний Прорыв Шансона (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алексей Прага - Мисс Расстояние
+02. Сергей Рудов - Город-Снег
+03. Эдуард Изместьев - Потерялось Счастье
+04. Александр Удача - 18 Лет(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78203C5AC95B0F9F8F892021D68063936AA71F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113048   (840121) от 10.03.2017
 
 VA - Natural Lounge Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -571,180 +745,6 @@ Willie May - Moon Blues Positive (2009-2015) Compilation Album [MP3|320 Kbps] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E14B940BAA84F36C3CA884842DCDED9E365290BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379518   (839575) от 29.04.2020
-
-VA - Jump Urban: Hard Dub Party (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839575.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hard5hooterz - Next Termination
-002. Ophidian - Bring On The Orchestra
-003. Repix - Lost
-004. The Style Creators - Feel Alive(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 07:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758E1339BAD581D244D79F3B6568304649F41F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379527   (839569) от 29.04.2020
-
-VA - Pluto Loves You (2020) [MP3|320 Kbps] <Alternative Rock, Rock, Indie Rock, Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cloud Room - Hey Now Now
-02. The White Stripes - Seven Nation Army
-03. The Subways - Rock And Roll Queen
-04. Depeche Mode - Wrong(   Читать дальше...   )Жанр: Alternative Rock, Rock, Indie Rock, Punk RockПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E1836D181783ADEF36290304905AD6200CE75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379521   (839565) от 29.04.2020
-
-VA - Beatport Chillout: Electro Sound Pack #70 (2020) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pearldiver - Hold 'em Down
-002. Absentune - Todo Sigue
-003. Marcelo Berges - Montañas
-004. Giovanni Lucchetti - Su Tramont(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 07:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAFBFFF7142A3215F0A6AE663CF4DC6C671D89C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379526   (839559) от 29.04.2020
-
-VA - Ice Cream (2020) [MP3|320 Kbps] <Dance, Pop, Electro, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839559.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Illenium - Angel (Intro)
-02. Skrillex, Boys Noize, Ty Dolla $ign - Midnight Hour(   Читать дальше...   )Жанр: Dance, Pop, Electro, Deep HouseПродолжительность: 04:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFEFB5BD6BCB76050EE7367244E9E7E5DBA9C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112954   (839523) от 10.03.2017
-
-Joe Bonamassa - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reconsider Baby
-02. You Upset Me Baby
-03. How Many More Years
-04. Stop!(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744BF8C4EB1268ACAD6AE96EE00113DEF7808FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379565   (839459) от 29.04.2020
-
-VA - Acoustic Rock vol.6 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Doors Down - It's Not My Time - Acoustic (03:58)
-02. Alice In Chains - Got Me Wrong - Live at the Majestic Theatre, Brooklyn, NY - April 1996 (04:23)
-03. Chris Cornell - Black Hole Sun - Recorded Live At Red Robinson Show Theatre, Vancouver, Canada on April 30, 2011 (04:37)
-04. Default - Wasting My TimeЖанр: RockПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5A5A61F1A6A999E642EA74BAAFA83C01DF3D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

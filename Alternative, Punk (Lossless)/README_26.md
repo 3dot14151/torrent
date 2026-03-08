@@ -1,3 +1,32 @@
+###  Публикация: 908049   (630029) от 16.06.2015
+
+FFS (Franz Ferdinand and Sparks) - FFS (2015) [FLAC|tracks|WEB]<Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Delusional [3:12]
+02. Call Girl [3:21]
+03. Dictator’s Son [4:15]
+04. Little Guy from the Suburbs [5:09](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568B27221BED1D1EDED19ABF4E358E6B81B078EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294587   (628487) от 08.04.2019
 
 Sleeper - The Modern Age (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -715,35 +744,6 @@ Gogol Bordello - Pura Vida Conspiracy (2013) [FLAC|Lossless|tracks + .cue] <Gyps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F1D2741D52C92026F43FAB7D538A186CF3CDFBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231775   (603760) от 20.06.2018
-
-For The Fallen Dreams - Six (2018) Rise Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone (4:17)
- 02. The Undertow (3:51)
- 03. Unstoppable (4:05)
- 04. Forever (3:32)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DFD2352771657E5620CB9F31DA17789AD7D664
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1254562   (373002) от 14.10.2018
+
+VA - Play Exclusive Cloud October 2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R3Wind - Behind
+02. Mystic Natives - All For You
+03. MRZY feat. Neila - But You (Original Mix)
+04. The Boatpeople - Es Vedra (Original Mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 04:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767DE11EEDC6924C55A1878FDF4C466C89AF1C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949998   (372912) от 25.10.2015
+
+VA - Best Of Vocal Trance Classics Vol 2 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rank 1 – It’s Up To You 6:46
+02. Ferry Corsten – It’s Time (Agnelli & Nelson remix) 9:10
+03. DJ Cor Fijneman – Venus (feat Jan Johnston – Tiesto remix) 7:37
+04. Dart Rayne, Yura Moonlight, Sarah Lynn – Silhouette (Allen & Envy remix) 7:13(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 03:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C1E3A72FD363D8A7D62D1ED12EA6162EA962B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949877   (372893) от 25.10.2015
+
+VA - Extra Lounge (episode 12) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craset & N3ga Beats & Lion Forest - When I'm Gone (03:43)
+02. Sunny Terrace - Rise On Mountain (Chill Mix) (06:04)
+03. Direct - Memory (feat. Holly Drummond) (03:51)
+04. Remundo - Topa (04:12)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E07910E808CD08B92AA5E8B0D957BA0116470CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950036   (372873) от 25.10.2015
+
+VA - Vocal Trance Collection Vol 139 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandre Bergheau & Geert Huinink - Desert Wings (Original Mix) (05:40)
+02. Christina Novelli, DJ Jounce - Nobody Knows (Hazem Beltagui R (05:15)
+03. First State featuring Anita Kelsey - Falling (Sied van Riel Remix) (03:33)
+04. Beat Service feat. Ana Criado - An Autumn Tale (Album Mix) (04:11)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F23EE7BD900BC897151C7D53DC7E6F5A0602C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950043   (372870) от 25.10.2015
+
+VA - Autumn Dance Hits Vol.1 (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alessia - Ale Kumaye (Black Due Remix)
+02. Kshmr & Bassjackers Feat. Sirah - Memories (Original Mix)
+03. Audshine feat. Diego Coronas & El Siciliano - Baila (Radio Edit)
+04. Madcon Feat. Ray Dalton - Dont Worry (Kolya Funk & Eddie G Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B770A538496C9D77BF318227EFEA2348AC68AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950059   (372763) от 25.10.2015
+
+VA - Музыкальное свежье русский выпуск 5 (2015) [MP3|128-320 кб/с]<Pop, Шансон, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юля Шатунова - Мальвина (04:22)
+02. Семен Ланцет - Сотканный Твоими Поцелуями (04:14)
+03. Мила Рогоза - Ты Есть (03:02)
+04. Shot feat. Kaen, Ksenia - Это Не Голливуд (03:52)(   Читать дальше...   )Жанр: Pop, Шансон, RapПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E156A235A3C5A7DC501AA31E65E8B0F814BFCF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950107   (372585) от 25.10.2015
 
 VA - Auto Hits - 100 Tracks In Avto (2015) [MP3|320 кб/с]<Club , Dance , House>
@@ -575,186 +749,6 @@ VA - По волне моей памяти: Том 1 (Compiled by Виктор31
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:130BA9C14318C0413E47E49DC9C2AF57CAF6FB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069776   (371387) от 05.11.2016
-
-Хроноп - Избранное (2006-2014) [MP3|320 Kbps] <Soft Rock, Indie Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лежу на луне (2006)
-02. Напиваются (2006)
-03. Не певец (2006)
-04. Девушка и кошка (2007)(   Читать дальше...   )Жанр: Soft Rock, Indie RockПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA090CF2F92DF734471697861E91E858C62557F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572859   (371379) от 14.11.2012
-
-VA - Furious Dubstep Attacks From Evolinte Vol.2 (2012) [MP3|320 кб/с]<Dubstep, Drumstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371379.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Furious Dubstep Attacks From Evolinte Vol.2 (2012)
-Год: 2012
-Жанр: Dubstep, Drumstep
-Продолжительность: 02:25:26Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:01.	Badklaat - Freq Skank (Instigate Remix)
-02.	Bare & Mark Instinct - Fucking Vicious(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3F62374C5F9F0BE52BFBC7052A148627387E0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415889   (371330) от 14.10.2020
-
-VA - Шансон Осень (2020) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Розенбаум - Почти (5:22)
-02. Игорь Ашуров - Всё Равно Тебя Люблю Я (5:20)
-03. Наталья Лапина - Потрёпанная кукла (5:00)
-04. Тимур Темиров - Капитальные Друзья (4:56)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D498B4C7295F26D1D0AB37B4DA70C26168860EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069608   (371085) от 05.11.2016
-
-Airbourne - The Very Best (2016) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ready To Rock
-02. Runnin' Wild
-03. When The Girl Gets Hot (The Love Don't Stop)
-04. Raise The Flag(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B95BCBB4B466879BB3964F4A77F716D92D78CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069855   (371010) от 05.11.2016
-
-VA - Rock Collection 1990 (2016) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-
-01. Demolition Hammer - .44 Caliber Brain Surgery
-02. Sodom - An Eye for an Eye(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 27:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C82F07C25BE7470464D3FD9F17700FB781BB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070062   (370875) от 05.11.2016
-
-VA - Hits of My Soul Vol. 17 (2016) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Breaking Benjamin - The Diary Of Jane (03:21)
-02. Megadeth - Symphony Of Destruction (04:07)
-03. Staind - Fade (04:06)
-04. Deep Purple - Highway Star (06:09)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45635E511A22BF479B702AE6A3674903D0B13283
 ```
 
 https://mybot314.ru/tekegram_catalog/

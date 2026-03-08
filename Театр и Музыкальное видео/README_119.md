@@ -1,3 +1,32 @@
+###  Публикация: 1345660   (165491) от 16.12.2019
+
+Сборник клипов 02 (2019) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за декабрь 201901_Don Diablo ft. Brando - Congratulations
+02_Salt Cathedral - CAVIAR
+03_Sunnery James & Ryan Marciano, Magnificence - Monster
+04_Maryana Ro - Загадай(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 03:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35829D05AD16DDB972F40B009EC817DA4F382FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345541   (165481) от 16.12.2019
 
 Mylene Farmer 2019 – Le Film (2019) BDRip [H.264/1080p-LQ] [PR]
@@ -682,32 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:233CB39B3328387CDE76C16172F8DF78F325E5F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676183   (158901) от 12.11.2023
-
-IVE – «I Want» (2023) WEB-DL [H.264/2160p] [4K, SDR]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: K-PopПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473B383D80024C899E65FB6028A8F56A5C0C7BF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

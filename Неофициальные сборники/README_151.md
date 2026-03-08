@@ -1,3 +1,177 @@
+###  Публикация: 1197289   (817707) от 06.01.2018
+
+VA - The Official UK Top 40 Singles Chart 05.01.2018 [MP3|248-320 Kbps] <Electropop, Alternative, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran – Perfect 4:23
+02. Eminem – River (Feat. Ed Sheeran) 3:41
+03. Big Shaq – Man’s Not Hot 3:06
+04. Rita Ora – Anywhere 3:35(   Читать дальше...   )Жанр: Electropop, Alternative, OtherПродолжительность: 02:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C780A83DBF21AE21135B86336496901B295DDBB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008275   (817593) от 17.04.2016
+
+VA -  Музыкальные Новинки От Зайцев.Нет Весна 2016 (2016) [MP3|128-320 кб/с] <Поп, Dance, Рок, Рэп, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birdy - Keeping Your Head Up
+02. Nicky Romero & Nile Rodgers - Future Funk
+03. Alekseev - Снов Осколки
+04. Леонид Агутин - Отец(   Читать дальше...   )Жанр: Поп, Dance, Рок, Рэп, ElectronicПродолжительность: 06:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BBF602551BFCB1BD008532C5B25AF6DAAB322A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382691   (817521) от 12.05.2020
+
+VA - New Electronic (2020) [MP3|320 Kbps] <House, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinthie - Bassline 5:10
+02. Yaeji feat. Nappy Nina - MONEY CAN'T BUY 2:51
+03. Jamie XX - Idontknow 5:22
+04. Booka Shade feat. Joplyn - Polar Lights 4:33(   Читать дальше...   )Жанр: House, ElectronicПродолжительность: 04:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E13D6977C1FEEBCAE019CEE19FCEE5ED8F4B437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382641   (817518) от 12.05.2020
+
+VA - Advancet Rock Concert (2020) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817518.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Black Tape Suicide - Pills
+002. Acquaintances - And It All Went Black
+003. Edison's Children - Captain's Ledger
+004. The Mattson - Naima's Dream(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 06:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE97714E680009004A91EE806B75725E9787AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008144   (817457) от 17.04.2016
+
+Madonna - Like A (The Best of) (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Like A Virgin.mp3
+ 02 - True Blue.mp3
+ 03 - Into The Groove.mp3
+ 04 - Like A Prayer.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2938E12781ABD0AA52CF5810DE74E2D44AED05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197120   (817434) от 06.01.2018
+
+VA - ТОП 50: Итоговый D-CHART DFM 2017 (2018) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ed Sheeran  -  Shape Of You (Midi Culture Remix)  5:32
+02.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:46
+03.  CamelPhat & Elderbrook  -  Cola  3:44
+04.  Rag'n'Bone Man  -  Human (Rudimental Remix)  4:21(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 02:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85869102EEEC69CD40636F5D0B4751D2C672088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117244   (817337) от 23.03.2017
 
 VA - Весенняя танцевальная вечеринка. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
@@ -571,180 +745,6 @@ Mr. Zivago - Best Of (2017) [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38E7AE98058B748363E7972F85BC47B0B6309635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117271   (817039) от 23.03.2017
-
-VA - Шальной шансон в дорогу. Часть № 2 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817039.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Илья Лукин - Полуночный Вокзал 4:17
-002. Артем Амаро - Бессонница 5:23
-003. Раиса Отрадная & Катерина Голицына - Подруга 3:23
-004. Эдгард Грусть - Заскулила Тоска 5:18(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D5327A07659FA276C5E32656F3EA6744E8E747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117264   (817036) от 23.03.2017
-
-VA - The Jazz Story (2017) [MP3|320 Kbps] <Jazz, Jazz-Pop, Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817036.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Lori Cullen - Don't Go Yet  2:52
-002.  Paul Brown - Sunrise On Sunset  4:21
-003.  Norah Jones - Carry On  2:48
-004.  Holy Moly Jazzband Deluxe - No Room For Compromise  3:18(   Читать дальше...   )Жанр: Jazz, Jazz-Pop, VocalПродолжительность: 06:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1E59A8FFBB36701EE8A1E85DFEE496C353A7CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382701   (816939) от 12.05.2020
-
-VA - Dream House (2020) [MP3|320 Kbps] <House, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Henrik Villard - It's Just love 6:37
-02. Matthias Zimmermann - Searching Everywhere 4:46
-03. Ruff Stuff - U Call 6:28
-04. Anthony Naples - A.I.R. 5:30(   Читать дальше...   )Жанр: House, ElectronicПродолжительность: 05:13:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE119A73F38E71112E73568DD8B654BAC4D566C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117253   (816907) от 23.03.2017
-
-VA - Лучшая дискотека на Europa Plus выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816907.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 140 Ударов В Минуту - Катажина 3:46
-002. Слава Благов - Она Как Солнце 3:17
-003. Mary-A - Целуй Меня 3:17
-004. Иван Тетенов - Море Магнит 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE9352D7592679522EC80092D37420B753CC958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117474   (816895) от 23.03.2017
-
-Eddy Clearwater - 30 most slow Blues (2017) [MP3|256-320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Good Leavin' Alone
-02. Reservation Blues
-03. Hypnotized
-04. Gotta Move On(   Читать дальше...   )Жанр: BluesПродолжительность: 02:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2A6345932D0B476187018109C31470D0985BD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117658   (816894) от 23.03.2017
-
-KSHMR - The Best (2017) [MP3|320 Kbps] <House, Dutch, Electro House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  KSHMR - Paradesi Intro  0:38
-02.  KSHMR & Crossnaders Ft. Micky Blue - Back To Me (Extended Mix)  3:56
-03.  Nero - Two Minds (KSHMR & Crossnaders Remix)  3:56
-04.  Martin Garrix & MOTi - Virus (VIP House Version) (KSHMR Remix)  4:10(   Читать дальше...   )Жанр: House, Dutch, Electro House, ProgressiveПродолжительность: 04:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712F871B07B2213CCA4B54085A396B6CA06CC359
 ```
 
 https://mybot314.ru/tekegram_catalog/

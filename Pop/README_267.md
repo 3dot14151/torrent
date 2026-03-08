@@ -1,3 +1,61 @@
+###  Публикация: 1548631   (240793) от 03.05.2022
+
+Midnight Gang - Love Is Magic (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Game (6:01)
+02. The Whole World's Singin' (6:58)
+03. Love Is Magic (6:45)
+04. Let's Go Dancin' (7:21)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDB21BC8FC0669FDE2ED92369FA5D6E572C1C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625825   (240700) от 12.04.2023
+
+VA - 00's Super Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coldplay - Viva La Vida                                          [04:02]
+   02. Jay-Z - Numb / Encore                                            [03:25]
+   03. Gorillaz - Feel Good Inc                                         [03:42]
+   04. Green Day - Wake Me Up When September Ends                       [04:45](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C4595A5F51FC882575A82E63545E02F0DFF65E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626254   (240501) от 13.04.2023
 
 VA - Best Radio Tracks, Vol. 25 (2023) [MP3|320 Kbps] <Dance, Pop, Electronic>
@@ -685,64 +743,6 @@ Lola Young - My Mind Wanders and Sometimes Leaves Completely (2023) [FLAC 24/44.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5C93F681C7807175F06B0D6AA574964348452BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627451   (239140) от 20.04.2023
-
-Пламя - Grand Collection (2001) [FLAC|Lossless|tracks + .cue] <Pop, Retro-Schlager>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не надо печалиться (2:54)
- 02. На дальней станции сойду (3:19)
- 03. Снег кружится (4:10)
- 04. Детства последний звонок (3:51)(   Читать дальше...   )Жанр: Pop, Retro-SchlagerПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3966006E5A59DEB3A2AE513ADEB212A2187BD98C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622891   (239041) от 30.03.2023
-
-VA - Select Mix Essentials Vol. 193 (2023) [MP3|320 Kbps] <Disco, Synthpop, Rap, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gayle - Abcdefu (Select Mix Remix)
-02. Juice Wrld, Justin Bieber - Wandered To La (Select Mix Remix)
-03. Drake, Future, Young Thug - Way 2 Sexy (Select Mix Remix)
-04. 24kgoldn - More Than Friends (Select Mix Remix)(   Читать дальше...   )Жанр: Disco, Synthpop, Rap, R&BПродолжительность: 00:40:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2CD01598E9CED817E012DBBB2AB3CADE8D2449
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1443259   (1035777) от 28.01.2021
-
-Conception - Stаtе Оf Dесерtiоn (2020) 2xCD, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035777.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - State Of Deception:
- 01. In: Deception
-02. Of Raven and Pigs
-03. Waywardly Broken(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8556358B3315027E51B64EE8B675CE51749B1980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381934   (1035762) от 28.01.2021
 
 Children Of Bodom - Hate Crew Deathroll (2003) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -745,6 +716,35 @@ Twilight Force - At The Heart Of Wintervale (2023) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C29DE9E5EE670E015C1F1D49B1ACB466284EC5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616987   (1035566) от 05.03.2023
+
+Ольга Арефьева и Ковчег - Амона Фе (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночь в октябре [00:04:21]
+02. Аквалюди [00:04:19]
+03. Амона Фе [00:06:23]
+04. Бетельгейзе [00:03:19](   Читать дальше...   )Жанр: RockПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7C62570B84EE9F07FB114C8FAECCB0AAC83EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

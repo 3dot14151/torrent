@@ -1,29 +1,3 @@
-###  Публикация: 1068560   (377624) от 02.11.2016
-
-Проекты - VideoHive - Glitter Particles | Logo Reveal Pack - 16828680 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glitter Particles | Logo Reveal Pack - раскрытие логотипа или названия при помощи блестящих частиц.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52756D6207CA91F44EB121856C939AE7C02FE37D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949307   (377241) от 23.10.2015
 
 Проекты - VideoHive - Lake Logo [AEP]
@@ -687,6 +661,32 @@ VideoHive - Soccer Championship Promo - 21814518 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93371A9CA05C494A7C694F5BD3367C653B012369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327365   (376203) от 24.09.2019
+
+VideoHive - Newspaper Freeze Promo - 24687239 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Newspaper Freeze Promo - это отличное вступление для любой информации, которую вы хотите отобразить. Ваше видео превращается в полноценную газетную страницу, чем придет аутентичный вид проекту и привлекает внимание зрителей к информации, благодаря потрясающей анимации и газетному дизайну с 8-мю страницами.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0AC8AE4819743C362215E890D0C5B5A9B4CA45
 ```
 
 https://mybot314.ru/tekegram_catalog/

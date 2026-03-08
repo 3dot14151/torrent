@@ -1,3 +1,61 @@
+###  Публикация: 1786500   (23965) от 21.03.2025
+
+VA - 80's Dance Rarities (1989) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi-NRG, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tempo Rubato - Don't Stop The Classics (4:20)
+02. Overdrive - Beat It Up (7:56)
+03. Diana Pamelay - Groove Me (3:47)
+04. Twiggy Bop - Manolito (3:52)(   Читать дальше...   )Жанр: Disco, Hi-NRG, PopПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E00E71E84B609F5FB5B33F1BB321D43E5078505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786656   (23946) от 21.03.2025
+
+VA - The Modern Mix, Vol. 1 - 80's Dance Rarities (mixed by Steve Masters) (2000) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When In Rome - The Promise (4:48)
+02. L.A.C. - The Fuzz (3:50)
+03. Secession - The Magician (4:08)
+04. The Hurricanes - Only One Night (4:50)(   Читать дальше...   )Жанр: Italo-Disco, Euro-HouseПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E882AD8BA6B8B139AD11ADC90062B4027FFAE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717504   (23715) от 24.03.2025
 
 Chris Norman - Junction 55 (2024) [FLAC|Lossless|image + .cue] <Pop>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E246BE9809E91484B3146A685629BE099FC87C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793349   (20394) от 24.04.2025
-
-VA - Classic Road Trip Songs 100 Hits (2025) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - Treasure
-02. Coldplay - Paradise
-03. Climie Fisher - Love Changes (Everything)
-04. Stevie Nicks - Edge of Seventeen (2016 Remaster)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA1B95F7293C1D45095D3187C1ACE58A0E5FD86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793691   (20291) от 25.04.2025
-
-V.A. - Iconic 80s Pop Rock (2025) [FLAC|Lossless|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madonna – Material Girl
-02. Laura Branigan – Self Control
-03. Duran Duran – Hungry like the Wolf (2009 Remaster)
-04. Kajagoogoo – Too Shy(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18853C299DE57C58B88DA7974E6DABBEC8BF65E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

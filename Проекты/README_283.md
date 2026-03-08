@@ -1,29 +1,3 @@
-###  Публикация: 1076145   (313338) от 25.11.2016
-
-Проекты - VideoHive - Holographic Logo - 1386738 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа в голографическом стиле.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C110915A73ED0914FE25770AE45EA57A90933D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076059   (313337) от 25.11.2016
 
 Проекты - VideoHive - Christmas - 18859138 [AEP]
@@ -679,6 +653,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9D2C1907088F883B4DA34FD87935195BDAB9DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959845   (311561) от 26.11.2015
+
+Проекты - VideoHive - Flower Box Display - 5948975 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый и красочный проект для создания детского слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4F55D52AE09433A6ED3EAC5B8F69D9665BACE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

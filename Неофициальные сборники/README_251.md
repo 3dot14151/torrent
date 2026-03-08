@@ -1,3 +1,183 @@
+###  Публикация: 1287024   (706904) от 05.03.2019
+
+VA - Я в глазах твоих тону (2019) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706904.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алексей Ром - Я люблю эту женщину очень (3:21)
+002. Виктор Дорин - Если нет тебя (3:33)
+003. Александр Курган - Оттенки печали (3:54)
+004. Александр Вестов - Бог и она (3:57)(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29390D378ED3DE2A0817103F3E1960FBDBC2B295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533139   (706571) от 23.02.2022
+
+VA - Good Feeling 80s (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruce Springsteen - Dancing In the Dark
+02. Lionel Richie - Dancing On The Ceiling
+03. George Michael - Faith (Remastered)
+04. Fleetwood Mac - Everywhere (2017 Remaster)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917E909521AC0218E2EB92D84BE4B366D18E4479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 793081   (706432) от 04.06.2014
+
+VA - Romantic Deep House (2014) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sons Of Maria - Foyer (Radio Mix) (3:25)
+02. Nora En Pure - Sweet Melody (Radio Mix) (2:50)
+03. Passenger 10 - Stories (Radio Mix) (3:42)
+04. Me & My Toothbrush - Got To Feel (Radio Mix) (3:18)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5A3A4124470340B346F6D11C5039AAECD5A7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 330289   (706211) от 01.05.2011
+
+VA - Лучшая клубная сотня 13 (2011) [MP3|160-320 kbps]<Dance, House, Trance, R'n'B>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex C Feat. Y-Ass - You've Got The Sweetest Ass In The World (Puma Scorz Remix Edit)
+02. Andy Harding - You Bring Me Joy (Original Mix)
+03. Avicii - Malo (Alex Gaudino & Jason Rooney Remix)
+04. Basshunter - Saturday
+05. Ben DJ - Alive - Original Mix
+06. DJ Jeroenski, Mavis Aquah - Reach For The Stars feat. Mavis Aquah - Dan Castro Remix
+07. DJ Sequenza - Follow Me Tonight
+08. Edward Maya and Vika Jigulina - Desert Rain (Edward Maya XTD Club Version)
+09. G-Line - More (Original Mix)
+10. Gareth Emery feat. Lucy Saunders - Sanctuary (Club Mix)(   Читать дальше...   )Жанр: Dance, House, Trance, R'n'BПродолжительность: 09:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81602BEA5E0931A6382F58D14F347FD6BFD9E937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220305   (706188) от 18.04.2018
+
+VA - Deep Session (2018) [MP3|320 Kbps] <Deep House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Cristian - Sunrise In Your Eyes (Original Mix)
+02. Kasey Kaotto, Touch The Sound - Colors Of The Rainbow (Original Mix)
+03. Dudu Zacharias & Kesia - Stay A While (Original Mix)
+04. DeeRiVee Ft. Tara Louise - Tell Me Who I Am (Extended Mix)(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 02:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24614B052425CEDDACD03CE0546FF7429468F06B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220215   (706185) от 18.04.2018
+
+VA - We Love Eurodance (2018) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soundstream - Back Once Again (EuroDJ Remix)
+02. Pump Up The Jam (DJ SHABAYOFF RMX) - Technotronic
+03. Soundstream feat. Freeze - Time to Fly
+04. Space Master - Hold Me Baby (Radio Edit)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890B490BF710E02FCCAB1302990EB361B0F5C885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220261   (706098) от 18.04.2018
 
 VA - Happy Easter Dance 2 (2018) [MP3|320 Kbps] <Dance, Hands Up, Dancecore>
@@ -576,180 +756,6 @@ VA - Летняя свежая 30-тка Vol 4 (2020) [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3221D0F4E376A2E3B2424FA97B8A1647EF73EB97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131808   (705089) от 07.05.2017
-
-VA - Песни для души на радио Шансон. Выпуск № 5 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705089.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная Союза - Ты Волшебная 4:29
-002. Мариан - Зазноба 3:30
-003. Никола Питерский - Первая Любовь 3:55
-004. Александр Закшевский - Родная 3:30(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABECCD7BEA49988A91BBD5D1F31C619CAD44A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131639   (705080) от 07.05.2017
-
-VA - Deep House Collection Vol.119 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705080.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2owl - Time (Original Club Mix) 5:34
-002. 6oldfinch - Get Your Love (Original Mix) 3:37
-003. 7fields - But Your Love  (Nils Hoffmann Remix) 5:20
-004. Abriviatura IV - My Self (Original Mix) 6:16(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8D042C3AA0A66AC9DDD4ABF1B93B4620CA215F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287277   (705070) от 06.03.2019
-
-VA - Smooth Lounge Music In Boudoir (2019) [MP3|320 Kbps] <Smooth Jazz, Lounge>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705070.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Thе 27 Bridgеs - Mоrning Jаzz
-002. Hеrbiе Hаncоck - Jаmmin' with Hеrbiе
-003. Elуsiаn Spring - Bluе Sаnds
-004. Sаrаvаh Sоul - Funk Dе Umbigаdа(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 07:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F3D2827FC1891ED81A5EBD0F80B00824DECB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287186   (705062) от 06.03.2019
-
-VA - Symphonic Adiemus (2019) [MP3|320 Kbps] <New Age, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valefim Planet - Maria
-02. 4Th Frоnt - Enрhоniс
-03. Greg Marоneу - Winter Greу
-04. Paul Sills - The First Heartbeat(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 04 :49 :11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D098092466B99888826BF5138D048CB19E8BA5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287171   (705053) от 06.03.2019
-
-VA - Top 100 Зайцев.Нет Февраль 2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705053.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. LMFAO - La La La
-002. MiyaGi feat.Эндшпиль - #ТАМАДА
-003. Тима Белорусских - Мокрые Кроссы
-004. Ани Лорак - Сумасшедшая(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50972FCB9D0DA5DC271A07D816B14FBBF534DECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131810   (704944) от 07.05.2017
-
-VA - Сотка блатных душевных песен. Выпуск № 2 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704944.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Денис Майданов - Я С Тобой 4:15
-002. Олеся Атланова - Сизари 4:02
-003. Дмитрий  Фомин - Паровозик 3:06
-004. Максим Олейников - Я Тебя Нашел 2:42(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE41575C72113772DE77AC25613259EA696971B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

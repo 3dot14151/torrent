@@ -1,3 +1,61 @@
+###  Публикация: 1494743   (885922) от 09.09.2021
+
+VA - Best Of Rave 2 (Box Set) (1995) Low Price Music [FLAC|Lossless|tracks] <Breakbeat, Hardcore, House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus III - I Talk To The  Wind (03:59)
+ 02. Transformer 2 - Pacific Symphony Too (Techno Symphony Remix) (05:11)
+ 03. Rum & Black - Wicked (04:24)
+ 04. DJ Professor - Rock Me Steady (03:31)(   Читать дальше...   )Тип издания: CDЖанр: Breakbeat, Hardcore, House, Techno •Продолжительность: 02:58:13 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5529DFD2F70C6E0183727D42B5BD7C40E6D757F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103386   (885912) от 12.02.2017
+
+VA - Dance 2017 (Armada Music) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin van Buuren & Garibay feat. Olaf Blackwood - I Need You (feat. Olaf Blackwood)  3:27
+02.  Lost Frequencies & Axel Ehnstrom - All Or Nothing  2:38
+03.  Yellow Claw & Yade Lauren - Love & War  3:00
+04.  Galantis - Pillow Fight  3:17(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19026057ECE3B8470649E8E6555CD00C232A09B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103391   (885911) от 12.02.2017
 
 VA - Fifty Shades Darker - Music For A Sensual Evening (2017) [MP3|320 Kbps] <Downtempo, Ambient>
@@ -685,64 +743,6 @@ Kuni - Monolith (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32362D4C1C4F5D460AB6600EBF0A6728F5571A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372751   (883845) от 04.04.2020
-
-Simon Le Grec - Singles (Unique Lounge Music) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge Dub, Ambient, Breaks, Drum & Bass>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hating Myself (Break Mix Edit) (4:02)
- 02. Hating Myself (Break Mix) (8:15)
- 03. Hating Myself (Chillout Mix) (8:58)
- 04. Hating Myself (Lounge Dub Mix) (3:38)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge Dub, Ambient, Breaks, Drum & BassПродолжительность: 02:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA94871C59718B537444A3CA39655734E889D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372928   (883844) от 04.04.2020
-
-SUN (GR) - Sonic Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. SUN (GR); Sudha - Healing Drop (Original Mix) (7:00)
-2. Infinity Edge (Original Mix) (6:39)
-3. Forever Alone (Original Mix) (6:45)
-4. Solarscape (Original Mix) (5:27)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90052B344555DB3B7ED0C8BB794AEF0551A07172
 ```
 
 https://mybot314.ru/tekegram_catalog/

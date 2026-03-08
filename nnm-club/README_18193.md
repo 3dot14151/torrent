@@ -1,324 +1,22 @@
-###  Публикация: 1337286   (274868) от 10.11.2019
+###  Публикация: 273789   (274913) от 22.12.2010
 
-Журнал | Системы безопасности №4 (148) (август-сентябрь 2019) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274868.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре внимания журнала – системы охранно-пожарной сигнализации, CCTV, контроля доступа, инженерно-технической защиты, оперативной связи, антитерроризма, информационной безопасности, специальной техники для правоохранительных органов, охранные услуги и многие другие аспекты безопасности.Жанр: БезопасностьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA7C4C53254C2A67D8317957C49409D0691685F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083414   (274867) от 15.12.2016
-
-Conform - Vol I: Cigarette Lullaby (2016) [MP3|320 Kbps] <Nu Metal, Experimental Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O.D.D (3:58)
-02. Cigarette Lullaby (3:30)
-03. Route III (4:06)
-04. Narrow (2:42)(   Читать дальше...   )Жанр: Nu Metal, Experimental MetalПродолжительность: 00:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25CE481EAC744606E841E6732B3099489A18F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188533   (274866) от 02.12.2017
-
-Pact Infernal - Discography 6 Releases (2015-2017) Horo, Samurai Horo [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <Experimental, Techno, Ambient, Tribal, Dark Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle VII (Violence) (Svreca Remix) (07:13)
- 02. Circle VIII (Fraud) (Pris Remix) (09:25)
- 03. Circle V (Anger) (Nastika Remix) (07:14)
- 04. Circle VIII (Fraud) (Ancestral Voices Remix) (06:36)Тип издания: CD, WebЖанр: Techno/ExperimentalПродолжительность: 00:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4340B0491A896EB8572C015338C0B960416C753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083290   (274864) от 15.12.2016
-
-MWeb: Markdown writing,note taking,static blog Gen 2.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274864.jpg" />
-</div>
-
-
-###  Подробнее
-
-MWeb: Markdown редактор, ведение заметок и генератор статических блогов.
-MWeb оддерживает расширенный синтаксис Github: TOC, Table, Fenced code block, LaTex,Task lists, Footnote и др. MWeb имеет красиво оформленную темную тему и предлагает интересные функции, как прокрутка, папки Drag & Drop,  вставку изображения и др.. MWeb поддерживает LaTex Просмотр в on-редакторе! (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 декабря 2016Разработчик: CoderForArt IncПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57773A472179E1A8E107007C945EF1BE09319DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337342   (274863) от 10.11.2019
-
-Adobe Zii 2020 - Universal Patcher v5.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F1EC9659FD80B9409CE1DFA53702837F3F8E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188430   (274861) от 02.12.2017
-
-Section A - Wall of Silence (2016) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wall of Silence
-02. Finding the One
-03. All That Matters
-04. No Tomorrow(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C70D4BAFE5ED0A303AF0FFF8C93CB8C77C6611A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083433   (274860) от 15.12.2016
-
-С. Федорченко | Звери хищные шкуры пышные (1928) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихи для детей о природе и зверятах.Жанр: Детская проза, стихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DCE3C83B174157FB34DC62E3EE03C71D1F3E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083363   (274859) от 15.12.2016
-
-Monrroe - Time For Change (2016) EP [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time For Change (feat. Blake) (05:53)
- 02. Fleeting Love (05:31)
- 03. Hold You (feat. Sam King) (05:31)
- 04. A Place to Belong (06:02)Жанр: Drum & BassПродолжительность: 00:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D715B4A33DC719E58312C26BAE7A0D157AB0DB1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337386   (274857) от 10.11.2019
-
-NASCAR Xfinity Series 2019. Этап 32. Desert Diamond West Valley Casino 200. Гонка (09.11.2019) IPTV [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274857.jpg" />
-</div>
-
-
-###  Подробнее
-
-32 этап NASCAR Xfinity Series 2019 на трассе ISM Raceway.Телекомпания: NBC SportsЖанр: АвтоспортПеревод: отсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B459400E145726CBC29B8AC50C1F377525571CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083444   (274856) от 15.12.2016
-
-Звонок (15.12.2016) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеканал НТВ запускает новый проект — шоу «Звонок» — с участием скандально известных пранкеров Вована и Лексуса. Сотни раз эти парни становились ньюсмейкерами не только в российских, но и в зарубежных СМИ. Объектами их розыгрышей были президенты, политики и звезды со всего мира. Но если раньше они создавали проблемы, то теперь они будут их решать — за один «Звонок». (   Читать дальше...   )В этом выпуске: Вован и Лексус решили отметить 25-летний юбилей СНГ и позвонили от имени Михаила Горбачёва экс-президентам Украины — Леониду Кравчуку и Виктору Ющенко. Как бывшие лидеры Украины высказались о действующей власти в своей стране, ситуации в Донбассе и минских соглашениях? Должна ли Украина, по их мнению, сохранить свое место в СНГ?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320DFD0D402B03E58742BB4DA9C03F9B716E8E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188361   (274855) от 02.12.2017
-
-Лига смеха (2017.12.01) WEB-DL [H.264/1080p-LQ] (сезон 3, выпуск 16: Зимний Кубок, часть 1)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий чемпионат Украины по юмору начинается. Теперь по пятницам самые смешные представители молодежи будут соревноваться в том, кто сможет больше надорвать животы зрителям. Состав жюри остался неизменным, судить будут Потап, Юрий Горбунов, Елена Кравец, Оля Полякова, Игорь Ласточкин, Сергей Сивохо и Антон Лирник. Отборочные игры перетекут в сезон, в котором шансы (   Читать дальше...   )Телекомпания: 1+1Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809E07EC5688929FB5767B25FC9E5D77EC28AF3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083252   (274854) от 15.12.2016
-
-VA - Музыкальные новинки. Only Best Hits. Выпуск 2 (2016) [MP3|256 Kbps] <Pop>
+VA - Новогодние Каникулы 50/50 (2010) [MP3|256 kbps]<Pop/Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274854.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001.Aisha - Love Story 3:50
-002.Play - Друг 2:51
-003.Alex Clare - Surviving Ain't Living 3:21
-004.Арсений Бородин - Родная 2:42(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+Жанр: Pop/DanceПродолжительность: 06:24:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C673594B1A1934EC9E56404A6F5DAB717E98D19
+magnet:?xt=urn:btih:8DB2B79B59084362EE6658B0297A435C3A01D11E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,26 +24,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083373   (274852) от 15.12.2016
+###  Публикация: 272785   (274912) от 22.12.2010
 
-Aiseesoft PDF Converter-PDF 3.3.15 [En]
+VA - Raise The Bar LP (2010) [MP3|320 kbps]<Drum n Bass>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274852.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Aiseesoft PDF Converter Pro - мощный PDF конвертер для Mac.
-Aiseesoft PDF Converte for Mac - Конвертер PDF в Text, Word, Excel, EPUB, HTML и другие форматы. Поддержка сохранения в TIFF, JPEG, PNG, GIF, BMP, TGA, PPM, JPEG2000 и другие форматы. Передача готовых файлов на мобильное устройство. Настройка параметров. Пакетный режим работы. Предварительный просмотр в (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 ноября 2016Разработчик: RayShare Co., LtdПоддерживаемая ОС: 10.5 +Язык интерфейса: Английский
+01. DLR & Ruckspin - Safe Secure
+02. Felon & Displaced - Onwards & Upwards
+03. Mindmapper - Resurrection Hub
+04. Amoss & Thorne - CRTN
+05. Thorne - Stare
+06. K-Dan - Final Fight
+07. War - Shapeshifter
+08. Flatliners - Bad Operate
+09. Pessimist - Ganesha
+10. Cohere - Hydro(   Читать дальше...)Жанр: Drum n BassПродолжительность: 01:54:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC18CC239B2299A41B1EBFAFCEED42EEC090D968
+magnet:?xt=urn:btih:D04C7E5261DE87AFF041E50A3B686A3EE4995325
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -353,24 +59,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188286   (274851) от 02.12.2017
+###  Публикация: 1188298   (274911) от 02.12.2017
 
-Zebra - Untitled (1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+VA - Essential Hits Progressive Trance (2017) [MP3|320 Kbps] <Progressive Trance, Electro, Dance>
 
->>
->>
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_274851.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Razor Girl (4:06)
-02. For Your Love (4:54)
-03. Bondage And Domination (4:44)
-04. Paradise Garage (6:54)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:27:13
+001. ATB - 9 PM (Till I Come)
+002. Lucas Deyong - Spectrum (Extended Mix)
+003. Sheridan Grout - The Last Word (Extended Mix)
+004. Vini Vici feat. Hilight Tribe - Great Spirit(   Читать дальше...   )Жанр: Progressive Trance, Electro, DanceПродолжительность: 10:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB6AA6FFD3B97AF6E7799A7F02606CEF64BA45D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337276   (274910) от 10.11.2019
+
+Alex Lahey - The Best of Luck Club (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Get Invited to Parties Anymore (04:08)
+02. Am I Doing It Right? (04:07)
+03. Interior Demeanour (03:48)
+04. Don’t Be so Hard on Yourself (04:18)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1358648F62D9E870D5EEBF2EECAADD05D894B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273443   (274909) от 22.12.2010
+
+На Тайване разработаны самые маленькие микросхемы памяти RRAM.
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представители тайваньской Национальной лаборатории прикладных исследований (National Applied Research Laboratories) сообщили, что в стенах их лаборатории были разработаны образцы микросхем памяти RRAM, имеющие самый маленький размер ячейки памяти в мире. По опубликованной информации первые образцы промышленных микросхем, являющихся заменой FLASH-памяти, изготовленных по этой технологии, могут появиться на рынке через пять лет.(   Читать дальше...)
 
 ## Скачать торент
 ```bash
@@ -382,81 +143,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083367   (274850) от 15.12.2016
+###  Публикация: 273002   (274908) от 22.12.2010
 
-MacBreakZ 5.30 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274850.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacBreakZ - Ваш личный ассистент, который позаботиться о вашем здоровье в то время, как вы работаете за компьютером. MacBreakZ незаметно собирает информацию о том, как пользователь работает с клавиатурой и мышью (не нанося вреда безопасности). На основании собранных сведений и времени, которое пользователь провел перед монитором компьютера, MacBreakZ посоветует сделать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 декабря 2016Разработчик: PublicspaceПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DA38D69B36369C1BACF56FD50F9316BE3825C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083255   (274849) от 15.12.2016
-
-VA - Убойные хиты от радио Шансон часть 5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274849.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Сергей Вольный - Ты Самая 2:54
-002.Александр Келеберда - Пиастры 3:26
-003.Игорь Махачкалинский - Попугай 4:16
-004.Армен Айвазовский - Ты Не Она 3:50(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCAE5D9786BA9A587E1D66D30E26A843ED178D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083189   (274848) от 15.12.2016
-
-A Better Finder Rename 10.12 [En]
+Various Artists - Super Black Blues (1969) [MP3|320 kbps]<Blues>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274848.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
-Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 декабря 2016Разработчик: Frank ReiffПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+Жанр: BluesПродолжительность: 00:37:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31CB1F5E23A38137966E38323CFD7F43A8DDDBC5
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,257 +169,572 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188573   (274847) от 02.12.2017
+###  Публикация: 1188392   (274907) от 02.12.2017
 
-Silent Descent - Turn To Grey (2017) [MP3|320 Kbps] <Modern Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274847.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. X (51.362820, 0.213735)
-2. Turn To Grey
-3. Vortex (Feat. Björn 'Speed' Strid Of Soilwork)
-4. Rob Rodda(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77C49662939F64785D0CC6E8E76FAB739316277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082883   (274846) от 15.12.2016
-
-VA - Музыкальные новинки mp3. Выпуск 6 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274846.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Никита Ломакин - 3000 Карат 3:44
-002.Apashe Feat. Kandle - Fuck Boy 4:17
-003.Eldo - О Боже 4:12
-004.Alicia Keys Feat. Asap Rocky - Blended Family 3:33(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F132465CDE714D7761EBA77985AC902CC23BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083250   (274845) от 15.12.2016
-
-VA - Танцевальная зима. Снежная сотка (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274845.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.A-Dessa - Все Ровно 3:22
-002.Arrhult - My Man 4:00
-003.Kvazar - Независима 3:30
-004.Morena - Fireballs 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08ACD72366327F942DB9D6F4BC54FAF4E7716D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083131   (274844) от 15.12.2016
-
-Themes for Keynote 5.1.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый взгляд для ваших презентаций Keynote! Разнообразие 100 красиво структурированных, элегантных Jumsoft тем для Keynote дает вам огромную свободу, чтобы превратить вашу презентацию в победителя.
-
-Каждая тема включает в себя, по меньшей мере 32 мастер-слайда - смесь текста  и фото-ориентированных макетов. Все фото слайды имеют медиа-заполнители и аккуратно помещается (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13 декабря 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23E8F68CD88BC3499BF755C977867EE4103F3C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083461   (274843) от 15.12.2016
-
-Templates Bundle for iWork 4.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Suite for iWork -  основной инструмент для пользователей iWork
-Suite for iWork представляет собой набор из шаблонов для Pages, Keynote и Numbers.
-680 уникальных и красивых шаблонов для документов Pages, 35 тем для презентаций Keynote и 90 шаблонов для Numbers. Все-в-одном приложении.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 декабря 2016Разработчик: Alungu UABПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF695D9D57476FF7FAA6E5D8B3D3129B27EB7E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083257   (274842) от 15.12.2016
-
-VA - Billboard Hot 100 Singles Chart 24.12. (2016) [MP3|32-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274842.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
-002.The Weeknd feat. Daft Punk - Starboy 3:51
-003.The Chainsmokers feat. Halsey - Closer 4:06
-004.Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25EB064130A13038A9CC46ABDFA3F35B0860A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083204   (274841) от 15.12.2016
-
-Danny B. Harvey & Mysti Moon - Hell Cat Stomp (2014) [FLAC|Lossless|image + .cue] <Rockabilly, Jump Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (This Train Is Going) Straight To Hell (3:32)
-02. Black Betty (3:13)
-03. Shake It On Down (3:35)
-04. When The Levee Breaks (4:10)(   Читать дальше...   )Жанр: Rockabilly, Jump BluesПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6D741ABE4AA40CFC1AC03803EAF1C7AA15AA7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083426   (274840) от 15.12.2016
-
-Get Backup Pro 3.3.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Get Backup Pro - Универсальная утилита для выполнения резервного копирования, клонирования дисков/разделов и синхронизации файлов и папок. Get Backup Pro предлагает двустороннюю синхронизацию, архивирование только измененных файлов, восстановление отдельных файлов и папок, защиту архивов шифрованием.
-
-Возможности:
-- создание сжатых, зашифрованных бэкапов(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 декабря 2016Разработчик: BeLight Software Ltd.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91080D19E493CA0D64EB3804EDC783DF9C4ACAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083231   (274839) от 15.12.2016
-
-Дэвид Макки | Элмер и пропавший мишка (2013) [PDF]
+Анатолий Сергеев | Нефертити (2003) [DJVU]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274839.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Слоненок потерял своего плюшевого мишку. На помощь ему приходит Элмер!
-Для детей младшего школьного возраста.Жанр: Детская прозаПеревод: Мария ЛюдковскаяФормат: PDF
+Это история о девочке Неф, ставшей самой загадочной царицей в Древнем Египте.
+Для среднего и старшего школьного возрастаЖанр: Детская проза, Историческая прозаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BE8BA20DEF89B7639AD1BEC196B7D81B1B38A67
+magnet:?xt=urn:btih:FA91EED53E056D0922B09C89ADA532B8F93C4998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337103   (274906) от 10.11.2019
+
+VA - Dance The Annual 2020 (2019) [MP3|320 Kbps] <House, Hardstyle, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Galaxy feat. JVZEL  -  Hero
+02.  LNY TNZ & Ruthless  -  Summer Is Here
+03.  Peter Luts & Basto  -  BLISTER
+04.  DOLF  -  Back To You(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 04:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6808C20832A7A1A3624EF9936E49015CD6EC18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337464   (274905) от 10.11.2019
+
+Wondershare Recoverit 8 v8.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E210540D863656FFC545536EF83E3EDCEC9D7972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273191   (274904) от 22.12.2010
+
+VA - Russian XXL Night (2010) [MP3|320 kbps]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Maar - Ночной город
+02. Lexa feat. DJ A Newman - Es ist alles vorbei
+03. Слава - Одиночество
+04. Quest Pistols - Я твой наркотик
+05. De Maar - Встретимся с тобой (DJ A-Newman & DJ Stormm Remix)
+06. Градусы - Кто ты
+07. De Maar - Цыганка
+08. D.I.P Project - Верни мне небо
+09. Aslan feat. Marina - Где ты (Radu Sirbu Rmx)
+10. Пропаганда - Знаешь(   Читать дальше...)Жанр: Pop, DanceПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2974DC6AD5DAF32A20E8997CD12E2F5ACF811B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337427   (274903) от 10.11.2019
+
+Margenta - Вентиль-провокация (2019) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274903.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Парень, пора выпускать пар!
+2. Чёрный вторник
+3. Мураками в профиль
+4. Штаны Моррисона. Руки Гевары(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51BE51FC4A6B1933169996DDAE29903EC3FEE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188565   (274902) от 02.12.2017
+
+VA - Ori Uplift & Dr. Riddle - Uplifting Only 251 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PRE-RELEASE PICK: illitheas - Levity (Intro Mix) (EXCLUSIVE PREMIERE)
+02. Manuel Rocca - Amortentia (EXCLUSIVE PREMIERE)
+03. FAN FAVORITE: Ahmed Romel - Vanaheim
+04. Naoufal Lamrani - Suits(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F79F1DFE89051D74F91CD1D816EE7AB7611090A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315738   (274900) от 10.11.2019
+
+Юлия Крюкова | Из суицида в вечность - спасение длинною в жизнь (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подлинная любовь рождается во времени и устремляется в вечность. Она никогда не прекращается и не ослабевает, но только лишь крепнет, приобретая всё новые и новые краски и оттенки глубоких чувств.
+Как отыскать такую любовь? Как достичь её в мире господства сиюминутных желаний и преходящих ценностей? Как не утратить ее даже если смерть, страшная смерть любимого, разделяет (   Читать дальше...   )Жанр: современная проза, рассказПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E7418E1CD71A6D45C711AF5265CA948A7F7AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273548   (274899) от 22.12.2010
+
+Aeoliah - Elixir Immortale (2010) [MP3|320 kbps]<New age, Meditative>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274899.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grounding Unified Essence (8:08)
+2. Tantrika - Awakening Kundalini (8:32)
+3. Anchoring Inner Peace Through Fluid Motion (8:24)
+4. Innocence and Purity of the Heart (9:10)
+5. Empowerment (9:08)
+6. Consecration & Seeing Beyond Illusion (8:10)
+7. Illumination & Universal Consciousness (10:04)Жанр: New age, MeditativeПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593377C7584CC7FF647B6A788064B1D7B98AAEE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188299   (274898) от 02.12.2017
+
+Bloodrain - De Vermis Mysteriis (2001) [FLAC|Lossless|image + .cue] <Thrash Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бессмертный (Undead) 03:55
+02. De Vermis Mysteriis 04:49
+03. Зов (The Call) 04:11
+04. Путь скорби (The Path of Grief) 03:53(   Читать дальше...   )Жанр: Thrash Metal, Black MetalПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE4B2CBD4729AD63861F22A862F7E42B1ABAF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337317   (274897) от 10.11.2019
+
+Первая передача на НТВ. Автомобильная передача (10.11.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как экс-полковник спасал сына от тюрьмы после ДТП и почему выписывают штраф за правильную парковку?
+«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94DA524B556B29E4EC54B341CB071E0EC1EC158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188489   (274896) от 02.12.2017
+
+VA - Amsterdam Coffeeshop Chillout Vol.16 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soulful-Cafe  -  My Own Life (Radio Version) 3:44
+02.  Tedjep Soulful House  -  I Believe in Love 3:12
+03.  Dreadboxx  -  Do Brasil 3:17
+04.  Soul-Ty  -  Sun Is Coming Out 3:02(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E490AE6E807A0C2E07C3D00C3420A7B13FBA12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337348   (274895) от 10.11.2019
+
+VideoboxPro 1.5.4 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274895.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoboxPro позволяет Вам быстро и легко закачивать Flash-видео с большинства популярных видеосайтов в интернете. Так же программа позволяет конвертировать загруженные видео-ролики в родной формат Quicktime, тем самым позволяя просматривать их на Вашем Маке, iPod, iPhone или iTunes.
+
+Кроме QuickTime, VideoBox также поддерживает и другие форматы видео, в частности, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Tasty appsПоддерживаемая ОС: macOS 10.9.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6CDB1D82F3F7C153D1F336BAA29F595A76CDF38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337179   (274893) от 10.11.2019
+
+VA - Synthetique: A French Synthwave Compilation 1982-2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philippe Laurent - Rapide 2 (1982) (3:25)
+02. Art & Technique - Lovers (1983) (5:32)
+03. No Unauthorized - Crocodile (1984) (5:10)
+04. End Of Data - Breathless (1984) (3:10)(   Читать дальше...   )Жанр: Synthwave, New WaveПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB3113C5ACAE918F4EDE39FEDB0F1DF327E07F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188388   (274892) от 02.12.2017
+
+Даниил Гранин | Генерал Коммуны (1970) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274892.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Генерал Коммуны» — это книга о выдающемся польском революционере Ярославе Домбровском.
+
+Борец за свободу Польши, он был учеником Чернышевского в России, соратником Гарибальди в Италии, генералом Коммуны во Франции.
+(   Читать дальше...   )Жанр: Детская проза, Историческая прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8E8D7472E2DD73ABEE8CB0CBEDF4271F8F42C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188444   (274891) от 02.12.2017
+
+Black Earth - 20 Years Of Dark Insanity: Japan Tour 2016 (2017) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MCMXCVI (Live)
+02. Bury Me An Angel (Live)
+03. Dark Insanity (Live)
+04. Eureka (Live)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A6C2777389DCCA68D3D053C2E39ED8511D730D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337332   (274889) от 10.11.2019
+
+VideoDuke 1.4 (250) [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузите фильмы на Mac с помощью VideoDuke! Он поддерживает все популярные видео-сайты и сохраняет ваши видео в различных форматах файлов. Вы также можете скачать потоковое видео на Mac с очень быстрой скоростью и с отличным качеством.
+
+Вы можете скачать любое видео, которое вам нравится, одним щелчком мыши! Просто вставьте ссылку на видео, и VideoDuke сделает все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368442172766C53957D39BE1DE2E68DFE4E729D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188395   (274888) от 02.12.2017
+
+VA - Lounge Bar Milano Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Schwarz & Funk  -  Under My Skin 5:14
+02.  Gerald Peklar  -  Schon Acht 4:59
+03.  Aatoo Cito  -  My Sun 5:05
+04.  Wine & Dine  -  Lost On The Caribbian Sea 4:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B556CBB722BB34421BA2970C95E7CEA976513957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337318   (274887) от 10.11.2019
+
+Чудо техники с Сергеем Малозёмовым (10.11.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все умрут, а они останутся! На смену пластиковым пакетам приходят биоразлагаемые, которые якобы исчезают не за 400 лет, а всего за 2 года. Но так ли это? В новом выпуске программы "Чудо техники" команда проведёт необычный эксперимент, результаты которого удивят всех! В рубрике "За что такие деньги?" протестируют колготки за 36 рублей и за 1500 (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3F7E1EE7E716BA181035CE736E83CFC0716194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273837   (274886) от 22.12.2010
+
+Робот-мясник HAMDAS-R работает в два раза быстрее квалифицированного человека.
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно сказать, что весьма удачно в преддверии надвигающихся праздников появился новый робот-мясник HAMDAS-R, который быстро и эффективно может отделить мясо от костей в автоматическом режиме. Виртуозно владеющий остро отточенным ножом, этот робот в состоянии обработать до 500 кусков мяса в час, что минимум в два раза превышает скорость работы самого опытного в этом деле человека.(   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337439   (274885) от 10.11.2019
+
+Jody Mayfield - Soul Sanctuary (2019) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Deacon
+02. Rear View Mirror
+03. Just One Look (Feat. Sherita Murphy)
+04. Park Avenue(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F870AEB81E7738DB600E516E082E7759451C5C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

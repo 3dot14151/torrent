@@ -1,3 +1,119 @@
+###  Публикация: 1739888   (48364) от 30.07.2024
+
+VA - Music News For Forum vol.006 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48364.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олеся Родина - Голос (03:56)
+ 002. ALEKS ATAMAN feat. Finik - Нервный Смех (02:03)
+ 003. Alex Anders feat. Brilliant - Вояж (02:46)
+ 004. Alex Dikin - Smooth Diva (02:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F507D8D039DBEC9CB8FB78CC1B6B2DED799EFA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737454   (48334) от 31.07.2024
+
+VA - РАДИО БАТЯ - 019 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. #2МАШИ - Босая (03:24)
+02. Света - Так со мной нельзя (02:57)
+03. Евгений Осин - Плачет девушка... (02:44)
+04. Nexeri - Baby I'm On Fire (02:49)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069862B577867D1F40ABEC8C1C2F9E67B83CB652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740493   (48069) от 02.08.2024
+
+VA - Music News For Forum vol.007 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48069.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sianna & DJ Layla feat. Radu Sirbu - Night Storm (03:04)
+ 002. 2 Engel & Charlie feat. Noisetime - Price Tag (02:15)
+ 003. 7dreamer & Parus - Забывай (01:57)
+ 004. 52Ghz - Вроде Все Хорошо (03:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4190341D46555D7531B7DD76ED206F28B73A2708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740992   (47875) от 04.08.2024
+
+VA - Music News For Forum vol.008 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47875.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ELENESTA - Тебя Забуду (03:15)
+ 002. 3EED - Девочка В Широких Джинсах (02:43)
+ 003. Ad Voca - Thinking About You (02:53)
+ 004. Andy Grammer feat. Maddie & Tae - I Do (03:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2125D2760A503F539E5A970BD956D8953E39834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741749   (47458) от 08.08.2024
 
 VA - Music News For Forum vol.009 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ VA - Music News For Forum vol.024 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:649F16CF14991B56492C764425BA86DCC17BE1FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750279   (42979) от 20.09.2024
-
-VA - compilation musical kaleidoscope part 2 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Enigma French N°29
-02. Ennio Morricone/ Jk Sax - Chi Mai (Saxophone Cover)
-03. Zakhid - London
-04. Candy Dulfer Ft Dave Stewart/ Riltim - Lily Was Here(   Читать дальше...   )Жанр: Electronic, Instrumental, SaxophoneПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83750E08E31DDB1841CABDC20FA62F56E0B6D878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750756   (42821) от 21.09.2024
-
-VA - Music News For Forum vol.025 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42821.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nessa Barrett - Dirty Little Secret (03:35)
- 002. 3Sonn feat. SOULOUD - 2000 шагов (02:04)
- 003. 4eholl feat. G-POL & SHALUTA - Капли (02:12)
- 004. 5УТРА - Ромашки (02:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F24FB4396C84CE4E24882BA09157E4FFB1A0F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750890   (42767) от 22.09.2024
-
-VA - Autumn Dance Hits 2024 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42767.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yolanda Be Cool & DCUP - We No Speak Americano (Yudzhin & Serg Shenon Radio Remix) (1:40)
-002. BYOR - You're So Awesome! (Original Mix) (1:46)
-003. Nicky Romero, Öwnboss & OAKS - Love You for the Summer (2:52)
-004. YeahYeahYeahs - Heads Will Roll (VeX & Myers VIP Remix) (Radio Edit) (2:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9712E11207A3DF1809DEE2FA0BA88C36A42243D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751371   (42556) от 24.09.2024
-
-VA - compilation musical kaleidoscope part 3 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davbo - Autumn Rain
-02. Felicity Norway - Dancing Queen  Sax Cover
-03. Felicity Norway - Lose Control Sax Cover
-04. Besso - Last Dance(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355F87C5CACFDD6B17575BC03D6824E5E354C974
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,87 +1,3 @@
-###  Публикация: 1324693   (423220) от 10.09.2019
-
-Messina - Terrortory (1990) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Messina
-02. Attempted Suicide
-03. Nothing Will Change
-04. Terrortory(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6335379B66A64AFD144F98BCB0EE894EE6D40E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324712   (423215) от 10.09.2019
-
-Imminent Sonic Destruction - Recurring Themes (2012) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Driving Home (10:03)
-02. Monster (6:50)
-03. With Death This Story Ends (6:40)
-04. Breaking Through (13:12)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624CCDFD0CC47913DF8E12266BF1742AA1D2A92F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064721   (423178) от 21.10.2016
-
-Phil Collins - The Singles (2016) 3CD Deluxe Edition [FLAC|Lossless|tracks + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом Singles является отражением всей сольной карьеры Коллинза: от невероятно успешного дебютного хита In The Air Tonight 1981 года до заглавного трека с его последнего студийного альбома Going Back, выпущенного в 2010 году.Жанр: Soft RockПродолжительность: 03:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C72C712CC1F995A4B1A4CCA4C66999498CF7F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411996   (423166) от 27.09.2020
 
 Ray Thomas - Words & Music (2020) [MP3|320 Kbps] <Progressive Rock>
@@ -742,6 +658,93 @@ Anaal Nathrakh - A New Kind Of Horror (2018) [MP3|320 Kbps] <Industrial Black Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72E06A4C746889762622CDB48DE29127593C1316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250890   (422460) от 29.09.2018
+
+Riverside - Wasteland (2018) Special Edition [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Day After
+02. Acid Rain
+03. Vale Of Tears
+04. Guardian Angel(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D1F4848B54FB695A3378D65D43F64FB928F58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515588   (422421) от 27.09.2020
+
+White Lion - 8 Albums, 1 Box Set (1985 - 2020) 18 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422421.jpg" />
+</div>
+
+
+###  Подробнее
+
+White Lion — американская хард-рок группа, созданная в 1983 году в Нью-Йорке вокалистом Майком Трампом, прибывшим из Дании и гитаристом Вито Братта, уроженцем Нью-Йорка. Творческая активность и успех группы пришлись на вторую половину 1980-х годов, когда были выпущенны их хиты «Wait» и «When the Children Cry», достигшие 8-й и 3-й строчки, соответственно, в чарте (   Читать дальше...   )Список альбомов:
+1985 - Fight To Survive
+1987 - Pride
+1989 - Big GameЖанр: Hard Rock, GlamПродолжительность: 18:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1EF79B67C3BE082B40A8FFB427574350B1095B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250565   (422375) от 29.09.2018
+
+Rod Stewart - Blood Red Roses (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look In Her Eyes (4:12)
+ 02. Hole In My Heart (3:27)
+ 03. Farewell (4:16)
+ 04. Didn't I (feat. Bridget Cady) (4:01)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492155FFC9912222A15583E847C1D36EB616817E
 ```
 
 https://mybot314.ru/tekegram_catalog/

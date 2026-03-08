@@ -1,3 +1,32 @@
+###  Публикация: 1095873   (921099) от 23.01.2017
+
+Paul Barbarin, Punch Miller, George Lewis - Jazz At Preservation Hall III (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Slide Frog Slide [02:09]
+ 02.The Second Line [03:53]
+ 03.Give It Up [04:25]
+ 04.Too Late [03:41](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B870876B8442F2FC28041464CD7C37058D419C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096219   (921087) от 23.01.2017
 
 The Modern Jazz Quartet - Pyramid & Lonely Woman (1959, 1962) 2000, ArsNova[APE|Lossless|image + .cue] <Cool>
@@ -729,35 +758,6 @@ Dave Brubeck - This Is Jazz (1953 - 1964) 1996, Legacy[FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D99C6F1F58BB203D3D478FD4DA77A046727D8AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096846   (917794) от 25.01.2017
-
-Carlos “Patato” Valdes - Ritmo y Candela II: African Crossroads (1996) Round World[FLAC|Lossless|image + .cue] <World Fusion, Afro-Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.El Lenguaje del Son [06:28]
- 02.Son de Patato [07:18]
- 03.Kora-son [06:37]
- 04.Guloya Swing [04:28](   Читать дальше...   )Жанр: World Fusion, Afro-Cuban JazzПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317BA2DE3BE4CB3D2B3792639FD89043993AA652
 ```
 
 https://mybot314.ru/tekegram_catalog/

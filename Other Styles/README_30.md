@@ -1,3 +1,32 @@
+###  Публикация: 998755   (868437) от 20.03.2016
+
+Roc Chen, Rob King, Paul Romero - Might & Magic Heroes VII (2015) [FLAC|Lossless|image + .cue] <Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roc Chen - Gathering of the Council (Might & Magic Heroes VII Main Theme) (02:07)
+02. Rob King & Paul Romero - Hope For Green Falls (Haven Theme) (02:41)
+03. Rob King & Paul Romero - Mystos Mountains (Necropolis Theme) (02:30)
+04. Rob King & Paul Romero - The Wizards Waltz (Academy Theme) (02:55)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DD2F87CB3EC23F390717EF035AB2DDB1ED85CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107114   (868003) от 22.02.2017
 
 Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New Wave>
@@ -708,35 +737,6 @@ Ken Yang - Meet the Sky (2001) [FLAC|Lossless|tracks] <International, New Age, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C094B6B60F2D1F14D2C11022DB21B5F19167B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999883   (859067) от 25.03.2016
-
-VA - Romantic Collection - Nordic (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norwegian Mountains (O. Sevag) [03:37]
-02. Gala (Gala Gala) [04:52]
-03. Le Reve (M. Lepisto) [04:08]
-04. The Waves Of Life (Wimme) [04:09](   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7244863EBC84EB25F3BD28771BD9430DC24235
 ```
 
 https://mybot314.ru/tekegram_catalog/

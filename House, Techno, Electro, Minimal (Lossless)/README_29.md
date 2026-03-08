@@ -1,3 +1,90 @@
+###  Публикация: 1403669   (688568) от 21.08.2020
+
+Cut Copy - Freeze, Melt (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Dance Punk, Indie>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Water (05:11)
+02. Like Breaking Glass (04:51)
+03. Love Is All We Share (06:01)
+04. Stop, Horizon (05:28)(   Читать дальше...   )Жанр: Electropop, Dance Punk, IndieПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E9D077A1ADF33FB3B612F08BE18BF950B6A573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403693   (688567) от 21.08.2020
+
+Foals - Collected Reworks Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Disco, Funky, Indie Rock>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Number (Hot Chip Remix) (9:54)
+ 02. Give It All (Lxury Remix) (6:20)
+ 03. Mountain at My Gates (Alex Metric Remix) (6:45)
+ 04. Into the Surf (Hot Since 82 Remix) (8:10)(   Читать дальше...   )Жанр: Electro House, Disco, Funky, Indie RockПродолжительность: 01:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBF19A9875A017A285AFC4183C2A7959F593A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403756   (688563) от 21.08.2020
+
+Foals - Collected Reworks Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Techno, Indie Rock, New Wave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inhaler (Tom Vek's Wheezemix) (5:22)
+ 02. What Went Down (Haxan Cloak Remix) (5:37)
+ 03. Exits (Vessel Remix) (3:31)
+ 04. Hummer (Surkin Remix) (4:20)(   Читать дальше...   )Жанр: Electro House, Techno, Indie Rock, New WaveПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC58CA1A83875A34011A83DD80041B397C444284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222225   (687494) от 28.04.2018
 
 Dorian Gray - Nostalgia for the Future EP (2018) Illegal Alien Records [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -654,93 +741,6 @@ VA - In The Mix 002 - Progressive Sessions (Mixed by Audio Noir) (2016) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5564A9D456A1338EFAFD3472B459845C6B78B211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290657   (674451) от 22.03.2019
-
-Powder - Powder In Space (2019) [FLAC|Lossless|tracks + .cue] <Electronic, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samo, Hidden Operator - Захват Сзади Rox (3:06)
-02. Tornado Wallace - Open Door (Born Inna Tent Mix) (3:24)
-03. Acid Pauli - Release (1:54)
-04. Don't DJ - Southern Shore (4:03)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8973EBBF4671CCDD8DF0FE75DC98B826F4635E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290656   (674450) от 22.03.2019
-
-Silk Road Assassins - State of Ruin (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Grime>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Overgrown 	(2:54)
-02. 	Split Matter (Ft. Kuedo)  (3:49)
-03. 	Armament 	(3:33)
-04. 	Vessel 	(3:09)(   Читать дальше...   )Жанр: Electronic, GrimeПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC417DC8683B0BDB3014DAFCE3A28278400E88BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290689   (674449) от 22.03.2019
-
-Ercos Blanka - Classic Trick (2018) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Trick (8:34)
- 02. 36H (7:01)
- 03. Brigante (8:55)
- 04. You and Him Master (8:40)(   Читать дальше...   )Жанр: Deep House, Deep Techno, DowntempoПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E53AEB8DE1A03091B2F7201EB11FA339A9D80A
 ```
 
 https://mybot314.ru/tekegram_catalog/

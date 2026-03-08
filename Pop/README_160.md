@@ -1,3 +1,61 @@
+###  Публикация: 917056   (589942) от 10.07.2015
+
+The Bird and The Bee - Recreational Love (2015) [MP3|320 кб/с]<Indie Pop, Electronic, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young and Dumb
+02. Recreational Love
+03. Will You Dance
+04. Runaway(   Читать дальше...   )Жанр: Indie Pop, Electronic, Female VocalПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35515670AB4527BD67E374EE8B3E3887D90E57A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917034   (589918) от 10.07.2015
+
+VA - Pure... Dance Party (2014) Box Set, 4CD [FLAC|Image+.cue]<Pop, Rock, Electronic, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаю популярную серию от Sony. Лето – пора самых ярких музыкальных впечатлений, вот наша Соня и собрала все лучшие танцевальные треки за несколько лет в одном месте! Серия Pure... – это тематические сборники, где каждый трек по новому раскрывает заданную тему! Убедитесь в этом сами, ведь в одной компиляции сосредоточены самые горячие танцевальные треки.CD1:
+01. One Direction - Live While We're Young (2012)  (3:21)
+02. Wham - Wake Me up Before You Go-Go (1984)  (3:53)
+03. Rita Ora - Radioactive (2012)  (4:13)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, R&BПродолжительность: 04:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C96055E8BC4D388FBAF629F5B7F9EA0623F0CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917082   (589885) от 10.07.2015
 
 VA - Disco. The Long Versions (2015) 3CD [MP3|320 кб/с]<Pop, Disco>
@@ -711,70 +769,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1004D92D94169240BA2FC13E4381721DF4044F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809498   (587470) от 01.08.2014
-
-T. Ark - H.A.P.P.Y. Radio (The 12" Maxi-Singles Collection) (2010) Limited Edition  [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Cover Lover (Extended Version) 6:13
-02. Count On Me (Extended Version) 6:31
-03. How Old Are You (Mixed By Luis Rodriguez) 6:36
-04. Move It 4:34
-05. Carry Me (Maxi Version) 5:05
-06. H.A.P.P.Y. Radio (Extended Version) 6:20
-07. Count On Me (Instrumental Dub Version) 5:09
-08. Under Cover Lover (Instrumental) 5:35
-09. Count On Me (Single Version) 3:57
-10. Under Cover Lover (Radio Version) 3:41(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFE2C9EEBD0F234C2599485B11F047464E224E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040125   (587450) от 04.08.2016
-
-Newton Family - The Best Of Newton Family (1989) [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smile Again (English Version) (5:23)
-02. Jumpy Dance (3:49)
-03. Love Is Magic (4:08)
-04. Yo Yo (Hungarian Version) (4:03)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E723F6E584D8C55609616CBBC5C1C26A9CC36D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

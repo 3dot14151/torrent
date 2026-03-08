@@ -1,3 +1,55 @@
+###  Публикация: 1576889   (207957) от 16.09.2022
+
+Udemy, Alexander Batashov | Ruby on Rails - 2020. Создание Интернет Магазина (2020) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы с нуля разработаем реальный коммерческий проект. Интернет магазин. С полностью готовым к работе веб приложением. И вы получите реальный коммерческий опыт разработки на Ruby on Rails. По окончанию курса вы сможете самостоятельно создавать веб приложения на Ruby on Rails.Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 11:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9B30B09B800E87376723CDCE1E9C21B87C899B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576952   (207909) от 16.09.2022
+
+Академия Информационных Систем (АИС), Андрей Масалович | Поисковые системы и конкурентная разведка в Интернете (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конкурентная разведка в Интернете - одно из самых актуальных направлений обучения. Предлагая учебные курсы и тренинги, мы ставим задачу изменить традиционный взгляд на Интернет, объяснить, что с помощью привычных поисковых систем (Yandex, Google и пр.) можно найти только 10% информации, доступной в Сети. Остальное скрыто от пользователей в недрах «серого» или «невидимого» (   Читать дальше...   )Производство: Академия Информационных Систем (АИС)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 12:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF31D4C5EE3C295E46741B2B50D3814DEBCB4A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571204   (207853) от 17.09.2022
 
 Slurm (Слёрм), Марсель Ибраев, Павел Селиванов | Kubernetes для разработчиков (2021) WEB-DL [RU]
@@ -655,61 +707,6 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс №2. От �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DC0D9D8BB6A47FECFFCA808C2FE690270ADB496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584415   (205109) от 18.10.2022
-
-Zero To Mastery Academy (ZTM), Daniel Bourke | PyTorch for Deep Learning (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn PyTorch from scratch! This PyTorch course is your step-by-step guide to developing your own deep learning models using PyTorch. You'll learn Deep Learning with PyTorch by building a massive 3-part real-world milestone project. By the end, you'll have the skills and portfolio to get hired as a Deep Learning Engineer.
-Learn PyTorch. Become a Deep Learning Engineer. (   Читать дальше...   )Производство: Zero To Mastery Academy (ZTM)Жанр: CourseЯзык озвучки: EnglishПродолжительность: 49:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D12CEFDAE34EA79162B9012763E0B0CEE59C431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585595   (204927) от 22.10.2022
-
-O’Reilly, Valaxy Technologies | DevOps Complete Course (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master how to create DevOps CI/CD pipelines using Git, Jenkins, Ansible, Docker, SonarQube, and Kubernetes on AWS. Work on real-world projects to understand the steps and tools involved in the DevOps lifecycle.
-About This VideoComprehensive and hands-on course on creating DevOps CI/CD pipelines with lab exercises
-Deep dive into the architecture view for each AWS (   Читать дальше...   )Производство: O’Reilly, Valaxy TechnologiesЖанр: CourseЯзык озвучки: EnglishПродолжительность: 58:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C37122F281E64030D6A13C68278683624268A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

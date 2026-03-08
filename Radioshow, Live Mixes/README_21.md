@@ -1,3 +1,61 @@
+###  Публикация: 1692282   (122504) от 16.01.2024
+
+Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2024-01-03) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rēbüke - Along Came Polly (Konstantin Sibold, Carmee & Zac Remix)
+02. Mila Journée - Three
+03. Sam Shure - Maybe (Original Mix)
+04. Ticon - 1987(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 02:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947AD64CA6AE983431E79D890BEB18CA9BD800B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693079   (121852) от 20.01.2024
+
+VA - Armin van Buuren - A State Of Trance 1156 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTY - Favorite Sound
+02. Armin van Buuren & GOODBOYS - Forever (Armin van Buuren Club Mix)
+03. Alex Prima ft. Adara - Teleport
+04. Super8 & Tab & Lürum ft. Lyca - Hold The Fire(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394BB43DE120F77DD2C2135EBBABE019A77200D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693358   (121834) от 20.01.2024
 
 ASCO - Live @ Symphony of CAOS, Ascoli Piceno, Italy (2023-09-09) [MP3|320 Kbps] <Dance, Electro Pop>
@@ -688,67 +746,6 @@ VA - Armin van Buuren - A State Of Trance 1162 (2024) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6979D8BFD66459CDFD28DE9581895F7E0FA1938A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704750   (114030) от 06.03.2024
-
-VA - Live @ RAI, Amsterdam Dance Event (2023) [MP3|320 Kbps] <Melodic House, Progressive House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114030.jpg" />
-</div>
-
-
-###  Подробнее
-
-DubVision @ IDEM (All Ages Show), RAI, Amsterdam Dance Event 2023-10-21:
-01. DubVision - ID (Intro Edit)
-02. DubVision & Jem Cooke - Take Me To Another World (DubVision Festival Mix) w/Jamie Lewis ft. Michael Watford - For You (Put Your Hands Up In The Air Acappella)
-03. DubVision vs. Corona - P.R.O.G.2 vs. The Rhythm Of The Night (DubVision Mashup)(   Читать дальше...   )Жанр: Melodic House, Progressive House, TechnoПродолжительность: 00:45:49
-01. Citadelle & Clér Letiv - Emptiness
-02. Citadelle - Pilot (Feel Tonight)
-03. Citadelle & Aramis - Fading Out (Faye Mia Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7AF4A42CD9A60915885102099D8424483742F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705360   (113899) от 08.03.2024
-
-VA - Armin van Buuren - A State Of Trance 1163 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Bayer & Rob Tirea - Fear Of Losing You
-02. Ahmed Helmy - Turn Off Your Conscious
-03. Das Pharaoh & Ginchy - Dot Matrix (Progressive Pick)
-04. Devloe & Daniel Pinho - Athon(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2FB2D095660D9E888A6AFECB7A92EE13E62DC65
 ```
 
 https://mybot314.ru/tekegram_catalog/

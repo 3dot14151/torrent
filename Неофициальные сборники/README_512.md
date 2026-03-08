@@ -1,3 +1,177 @@
+###  Публикация: 473448   (304956) от 29.11.2015
+
+VA - Русский рок - Фарш (2012) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кошки Jam - Под Вопросом
+ 02. Леприконсы - Хали-гали, Паратрупер
+ 03. Климбатика - Тьма
+ 04. День Триффидов - Против ветра(   Читать дальше...   )Жанр: RockПродолжительность: 04:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD94902A88B8AC4BD2822C57330B5473D61F0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077922   (304824) от 29.11.2016
+
+VA - Звезды Русского радио №2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304824.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ivan Lexx - Она В Меня Влюблена 3:03
+002. Jay Ron - Для Тебя 3:20
+003. Алена Валенсия - Воспоминания 3:56
+004. Дарья Кумпаньенко - Я Выхожу На Млечный Путь 2:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B2DB6010D61F805635BA7FF372510AA3A32933C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077852   (304808) от 29.11.2016
+
+VA - 100% Annees 80 Hits, Party, Pop, Disco, Funk (2016) [MP3|320 Kbps] <Synthpop, Chanson, Disco, Funk, Spacesynth, Hi-NRG, Post-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean-Pierre Mader - Macumba 3:40
+02. Stephanie - Ouragan 4:22
+03. Images - Les Demons De Minuit 3:56
+04. Imagination - Just An Illusion 3:54(   Читать дальше...   )Жанр: Synthpop, Chanson, Disco, Funk, Spacesynth, Hi-NRG, Post-DiscoПродолжительность: 02:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49638E3A946A8BA9CE46A0ECFC064A1EE0078376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960828   (304616) от 29.11.2015
+
+Ария - 30 (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Мания величия
+02 Тореро
+03 Воля и разум
+04 Без тебя(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5133C2FA80E242A6229895BA79C55A295BFD898A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960829   (304565) от 29.11.2015
+
+VA - Everybody Dance Now!!! (2015) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plazma - One Life (RMX) (03:59)
+02. DJ Dean & Brooklyn Bounce - Balla Nation Reborn (Pulsedriver Bounce Mix) (04:34)
+03. Ranger - You (Angel In My Heart) (Extended Maxi Mix) (06:57)
+04. The Klaim ft. Federica - Candy Girl (Tony Costa Remix) (05:46)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 01:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4CF0E053227A2A7DD4B3B94DD93AE389D33E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960965   (304561) от 29.11.2015
+
+VA - Старое по новому (2015) [MP3|320 кб/с]<Pop, Dance, Cover>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storm DJs & Александр Гужов - Без любви (Руки Вверх! Cover) (04:28)
+02. Иванушки International - Реви (FuzzDead Reboot) (05:53)
+03. Леприконсы - Хали Гали (Alexx Slam Rework) (04:54)
+04. Юра Шатунов - Белые розы (DJ Tarantino ReFresh) (05:09)(   Читать дальше...   )Жанр: Pop, Dance, CoverПродолжительность: 01:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1178C4E82B725F509855F4F8001268986DFBA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261210   (304426) от 10.11.2018
 
 VA - Новинки С Разных Популярных MP3 Сайтов ver.78 (01.11.2018) [MP3|320 Kbps] <Club, Dance, Disco, Pop, Rap, RnB, Rock>
@@ -571,180 +745,6 @@ VA - Extra Lounge (episode 13) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37D6AACAE60D736B995E95EA976A36C0C9E9EEAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261385   (303436) от 11.11.2018
-
-VA - Record Super Chart 561 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fisher - Losing It 4:08
-02. Gaulin - Moonlight 2:54
-03. Rompasso - Ignis 3:32
-04. Summer Cem - Tamam Tamam 2:27(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2670A6EAE1FAAF9FCB4B84D4AF8BAAFA2853EB88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333458   (303423) от 25.10.2019
-
-VA - Ultimate Synthpop Anthems (2019) [MP3|320 Kbps] <Syntpop, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303423.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Korgis - Everybody's Got To Learn Sometime
-002. Like Wolves In The Night - Too Young To Care
-003. New Order - Blue Monday '88
-004. Vicious Pink - Cccan't You See(   Читать дальше...   )Жанр: Syntpop, ElectronicПродолжительность: 09:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7AB859A2B00F1E2F06FC2AD6C049B0E9AEC16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261393   (303402) от 11.11.2018
-
-VA - Best Of Dance (2018) [MP3|320 Kbps] <EuroHouse, Eurobeat, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 89ers - Words 3:27
-02. Milky - Be My World 3:46
-03. Andrea Montorsi - History (2001 Remix) 3:50
-04. Ian Van Dahl - Will I 6:25(   Читать дальше...   )Жанр: EuroHouse, Eurobeat, DanceПродолжительность: 05:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52529B5B528AB1FB23C4F5C4DF6FCD0FB67E4E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333269   (303382) от 25.10.2019
-
-VA - Dont Stop The Music: New Disco Party (2019) [MP3|320 Kbps] <Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stephane Deschezeaux - The Party (Original Mix)
-002. Boogie Freaks - Don't Let Go (Original Mix)
-003. Rayko - Joice
-004. Solitario - Magic Carillon (Goodbye)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 12:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9C0F7E925372E5EEC8755A07CB743E56A3E33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184194   (303327) от 16.11.2017
-
-VA - Best of Deep House. Volume 9. Shake it Baby [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep House, Funky House, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hotmood - Disco Flava (Felipe Gordon remix) [5:37]
-02. Doc Daneeka - Stay Away From Music [8:09]
-03. Soultronic - You & I [6:11]
-04. Denise Montana & Goody Goody - Nr 1 Dee Jay (Pagany Back 2 Disco mix) [7:12](   Читать дальше...   )Жанр: Deep House, Funky House, Disco HouseПродолжительность: 03:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA5847F879562D525C077C27489A8FC33218007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333462   (303291) от 25.10.2019
-
-VA - Exotic Of Disco: The Best Of Summer (2019) [MP3|320 Kbps] <Disco, Eurodisco, Italodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303291.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Franz Matthews - Tutan Jamon
-002. Boogie Freaks - What's Up (Original Mix)
-003. Hot Streak - Body Work (Vocal Mix)
-004. Sidwho - Violet Run(   Читать дальше...   )Жанр: Disco, Eurodisco, ItalodiscoПродолжительность: 10:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18AE5CB5AFB4B4D4323AB1DCF893D21DDAD1E8E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

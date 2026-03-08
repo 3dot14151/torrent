@@ -1,3 +1,119 @@
+###  Публикация: 1004002   (839989) от 05.04.2016
+
+Марк Бернес - Актер и Песня (2001) [MP3|192 кб/с] <Retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я люблю тебя, жизнь
+02. С чего начинается Родина
+03. Песенка фронтового шофера
+04. Темная ночь(   Читать дальше...   )Жанр: RetroПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999D87C77268354178356C4165FA32999846278A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112931   (839880) от 10.03.2017
+
+VA - Дискотека 2017 - Весеннее Настроение 85 хитов (2017) [MP3|256-320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839880.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alok & Bruno Martini Feat. Zeeba - Hear Me Now 3:12
+002. Arizona - I Was Wrong (Robin Schulz Remix) 3:41
+003. Cortes Feat. Andreea Balan - Uita-ma (Edit) 2:59
+004. Alexandra Stan - Ecoute 3:15(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B68FD136DD46665D0BF7F04114C4B9F5A88130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113212   (838708) от 11.03.2017
+
+VA - Progressive House Vol.3 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838708.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sebastian Busto - Nature 9:09
+002. Techtower - Vanguard 9:26
+003. Dio S - Asma 6:08
+004. Loquai - Night Dive (Forerunners Remix) 8:26(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931927C6B7C0F9B45B0D273C13E8FA9B0471E086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113206   (838644) от 11.03.2017
+
+VA - Neotrance Vol.8 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Neotrance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838644.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Definition - Elysium 7:31
+002. Moonwalk - Retrox 6:54
+003. Nick Devon - Skyline (Mallone's City Lights Remix) 7:26
+004. Savino & William Medagli - En Route On Mind (Feat Thallulah) 8:08(   Читать дальше...   )Жанр: NeotranceПродолжительность: 03:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432E3A86F47F14305FC85B8F283AAE3CE4F7CC2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113214   (838628) от 11.03.2017
 
 VA - Vocal Drum & Bass Vol.11 [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <Drum & Bass>
@@ -629,122 +745,6 @@ VA - Club Music Get On Up (2017) [MP3|320 Kbps] <Dance, Club, Funky>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B77E503A7F5445A3DE1874F1372E6593F1A541F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114200   (833141) от 14.03.2017
-
-VA - Музыка хорошего настроения. Retro Fm. Зарубежный (2017) [MP3|320 Kbps] <Pop , Disco , Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833141.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Starship - Nothing's Gonna Stop Us Now 4:29
-002. Latoya Jackson - Sexual Feeling 5:26
-003. The Gibson Brothers - Ooh What a Life 2:51
-004. Corona - The Rhythm Of The Night 4:24(   Читать дальше...   )Жанр: Pop , Disco , RockПродолжительность: 10:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC542E57CBC914470DC73FA560C51660D374675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380591   (832948) от 03.05.2020
-
-VA - Karaoke Hits (2020) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - Dancing Queen 3:51
-02. AC/DC - Highway To Hell 3:28
-03. Adele - Someone Like You 4:45
-04. Alicia Keys - Fallin' 3:30(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 04:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D595A9B27FA4093151790C0D8735A10A45F635B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005629   (832707) от 09.04.2016
-
-VA - Летний Хитовый Музон (2015) [MP3|256 кб/с] <Dance, Сlub>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лена Катина - Waiting
-02. VIA - Летта и Пьер Нарцисс - Лето
-03. Макsим - Не Выдыхай
-04. Алёна Высотская - Тонем(   Читать дальше...   )Жанр: Dance, СlubПродолжительность: 06:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2ED6EC958173FDDAE81862024342A66C64B1488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114418   (831684) от 15.03.2017
-
-VA - Guitar Collection 11 (2017) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831684.jpg" />
-</div>
-
-
-###  Подробнее
-
-001| The Carl Verheyen Band - Dusk (Two Views Of The Canyon)  (01:51) 
-002| Al Marconi - Angola  (02:55) 
-003| Blindstone - By Grabthar's Hammer  (06:22) 
-004| Chris Rea - Forever  (01:27) (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 07:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323FD184A0B8234EF162AD0488C8C2B6D70FAA71
 ```
 
 https://mybot314.ru/tekegram_catalog/

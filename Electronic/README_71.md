@@ -1,3 +1,61 @@
+###  Публикация: 1094955   (927809) от 19.01.2017
+
+VA - Extreme Cardio Vol 2 (2017) [MP3|320 Kbps] <Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbie Teeze - Go Away (Original Mix) 06:29
+02. Karlston Khaos - The Drop (Original Mix) 06:32
+03. Bassik - Dark Dreams (Original Mix) 06:56
+04. Fierce Djs - Animal Funk (Original Mix) 06:44(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D015F05948C3CE0CFA600FB2C2BB2854DF0922B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987120   (927767) от 16.02.2016
+
+VA - Best Of Dance 2005 (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB - Believe in Me (3:15)
+02. Florida Inc. - Let Me Show You (3:00)
+03. Siria - Endless Summer (3:37)
+04. Global Deejays - What a Feeling (3:15)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38C1164ABAACA94D28007820C0742CD27003E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365877   (927416) от 09.03.2020
 
 Kode Six - Kold Fuzion (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -683,64 +741,6 @@ VA - Future Funk Meets Electro (2017) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD5EFBAD55F6CF1C315A8D28D6A66D616295F2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095547   (924566) от 21.01.2017
-
-VA - Wind In The Field (Downtempo Series)  Vol.009 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Moj@r - Sex (Original Mix)  5:01
-02.  Valefim Planet - I'll Be With You (Original Mix)  4:23
-03.  Sergio Gray - Cuckoo (Original Mix)  6:05
-04.  Yevgeniy Khon - Autumn Fall Of The Leaf (Original Mix)  5:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722C88F19461B4FB28FF53E2E62E24B9125AA7BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095574   (924557) от 21.01.2017
-
-VA - Detox Lounge Deluxe (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ritmo Fatalismo - Sangria After Midnight  6:00
-02.  Mini Laposa - Baila Noche  5:11
-03.  Ku You - Sandhand  5:04
-04.  Han Tronic - Tea Del Mar  6:03(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90D9C109D9FCFD80DE02B21270964B414C5AD86
 ```
 
 https://mybot314.ru/tekegram_catalog/

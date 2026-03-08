@@ -1,32 +1,3 @@
-###  Публикация: 1030335   (673923) от 30.06.2016
-
-Gojira - Magma (2016) [MP3|320 Kbps] <Progressive Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673923.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Shooting Star
-2. Silvera
-3. The Cell
-4. Stranded(   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0992D166BD00B8C01665A45108E76EE8CD48956D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 677691   (673643) от 09.07.2013
 
 Louna - Behind A Mask (2013) [FLAC|image + .cue]<Alternative Rock>
@@ -752,6 +723,35 @@ Chelsea Grin - Self Inflicted (2016) [FLAC|Lossless|tracks + .cue] <Deathcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ECEBBDB93EACD9C5BED57797DAC45CA58A53C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291284   (672234) от 23.03.2019
+
+Aephanemer - Prokopton (2019) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Prokopton
+2. The Sovereign
+3. Dissonance Within
+4. Snowblind(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91181B906218E4F3826318576FE4A799B9FC12B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

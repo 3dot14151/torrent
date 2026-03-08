@@ -1,3 +1,29 @@
+###  Публикация: 1368692   (905554) от 22.03.2020
+
+Die Kreatur - Die Kreatur (2020) WEB-DLRip [VP9/2160p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый совместный проект вокалистов Крис Хармс (Chris Harms)Производство: Napalm RecordsЖанр: Industrial Deutschland MetalПродолжительность: 00:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2444597C1E6BA139CF8865D4B2CC5C5430E84942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 301580   (904643) от 23.02.2014
 
 23 февраля в Большом городе (2011.02.26) SATRip
@@ -682,35 +708,6 @@ Carly Rae Jepsen - Tonight I M Getting Over You (2013) HDTV [H.264/1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50143599F5CCF2BB744FD0F178A9B98EBCED6E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759952   (900155) от 26.02.2014
-
-Peter Tosh - Captured Live (2002) DVDRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сам концерт записан 23 августа 1983 года, Greek Theater, Los Angeles.01. Intro (Live) 1:32
-02. Pick Myself Up (Live) 4:01
-03. African (Live) 4:09
-04. Coming In Hot (Live) 4:13(   Читать дальше...   )Жанр: Концерт, ReggaeПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE09F282090543BDE0710B8A7034B90CF914798
 ```
 
 https://mybot314.ru/tekegram_catalog/

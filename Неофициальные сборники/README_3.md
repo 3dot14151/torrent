@@ -1,3 +1,177 @@
+###  Публикация: 1847043   (1051735) от 10.01.2026
+
+VA - Лучшие песни Радио DFM за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051735.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Avalan & Rokston - Something To Believe In (2:22)
+002. Tate McRae - Sports Car (2:45)
+003. Sam Feldt feat. Oaks - My Heart Goes (2:13)
+004. Gryffin feat. Kaskade & Nu-La - In My Head (3:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB69AB15A40F1C287399AC86B5A561581320FD2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846746   (1051647) от 09.01.2026
+
+VA - Лучшие песни Love Radio за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051647.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Лазарев - Тут или Там (3:24)
+002. Marshall Jefferson feat. Maesic & Salome Das - Life Is Simple (Move Your Body) (2:52)
+003. KATSEYE - Gabriela (3:17)
+004. Coldplay feat. Little Simz & Burna Boy & Elyanna & Martina Stoessel - We Pray (Tini Version) (3:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A9E932DDA13AE6D03882002BF0DE01585F36C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846508   (1051534) от 07.01.2026
+
+VA - Лучшие песни Европа Плюс за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051534.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Benson Boone - Sorry Im Here For Someone Else 79149399 (2:36)
+002. Damiano David - Next Summer (2:45)
+003. portugal. The Man, NEIKED - Glide (3:03)
+004. AVALAN ROKSTON - Something to Believe In (2:22)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925F3917D910734C2FE48A9DD22D2205289F9584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845955   (1051491) от 08.01.2026
+
+Nina Blaze - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ashtrays and Apologies
+02 - Ashes in the Waiting Room
+03 - Ash Where the Fire Was
+04 - One More Time in the Rain(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558B03F1A54DA8B08781975FCFE6259EEBF38FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845953   (1051490) от 08.01.2026
+
+Nina Blaze - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - No Cure for You
+02 - Smoke Where Your Fire Was
+03 - Cracks in the Velvet
+04 - Shadows Without Mercy(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F4B26B5D7A6F5A10346D14A9FDE6C42415B44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846468   (1051334) от 07.01.2026
+
+VA - Music News For Forum vol.154 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051334.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alena - Ярмарка судеб (02:38)
+ 002. Юлия Изюмова - Полюбила (03:33)
+ 003. 6ук - Всё против нас (02:20)
+ 004. 48Ронин - Ливни (02:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 17:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3E9AA41DD7CDF0B880E5332B653856678FFECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845886   (1051099) от 04.01.2026
 
 Giza Larue - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad & Soul Songs, Pop Ballad>
@@ -571,180 +745,6 @@ Nina Blaze - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C30E844AB61296CF2EEAF6689E6347475E84C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845263   (1050706) от 31.12.2025
-
-Ai - Inspired Blues & Soul Songs Part 2 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Two Minutes at the Window
-02 - Let’s Make it Right
-03 - Signed With a Kiss
-04 - Whisper My Name(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 01:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C2E8B1D41557EB60DA662ED463F5510F129DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845298   (1050702) от 31.12.2025
-
-VA - Свежий Русский Хит от ALEXnROCK часть 19 (2025) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050702.jpg" />
-</div>
-
-
-###  Подробнее
-
-С интересом наблюдаю, как в умах и сердцах просыпается Родина и отечественные музыканты меняют вектор развития творчества. Постепенно уходя от подражательства новодельной западной шляпы и всякой навязанной чуши, вроде мямлей и блеяния. Ищут и вырабатывают именно наш стиль и звучание. И это в масштабах всей страны. Много ерунды конечно творят, не без этого. Но как (   Читать дальше...   )01. Валя Карнавал - Мы в клуб
-02. R.Riccardo & Nabolelo - Зима пришла
-03. Григорий Лепс - Рок-н-ролл в кармане
-04. Элвин Грей & Скани - Письма(   Читать дальше...   )Жанр: PopПродолжительность: 03:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B44FC8727A10CC14D1B11D3D1B91F542E0CFE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845400   (1050657) от 31.12.2025
-
-VA - Beat, Bass, Melody vol.4 (mixed by Dj V) (2025) [MP3|320 Kbps] <Euro Trance, Hardgroove, Hyper Pop, Mainstage>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Pickle - Dragostea Din Tei (Original Mix)
-02-Lammer - Diamonds (EuroTrance Mix)
-03-Lady Gaga - Bad Romance (Chromedodied)
-04-Ollie Lishman - Move It (Original Mix)(   Читать дальше...   )Жанр: Euro Trance, Hardgroove, Hyper Pop, MainstageПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6013BF96D0AC57F5EDFBD9C95A20AA5069E16998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845219   (1050654) от 31.12.2025
-
-Ai - Inspired  Blues & Soul Songs Part 1 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - God in the Groove
-02 - Used to Be
-03 - She Knows Your Name
-04 - Ain’t No Love Like Mine(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 01:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F20186E045D7E44D5796AB74C1690543E5FC73F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844414   (1050427) от 28.12.2025
-
-Frezee - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz, Chillout, Female Vocal, Other>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Мечты
-02 - Новый Карабас
-03 - Майские Грозы
-04 - Зефир(   Читать дальше...   )Жанр: Swing Jazz, Nu Jazz, Chillout, Female Vocal, OtherПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D6D6446B20058579C4555E803A3497C55DA9DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844460   (1050426) от 28.12.2025
-
-AI - Russian Covers Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Я Замерзаю (Nada - San Remo 1969)
-02 - Падам Падам   (Русский Кавер)
-03 - The Last of Us Take on Me (Русский Кавер)
-04 - Песня О Погоде(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ACF12F338525BEEB239283734B7F32B1372395B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1614760   (1037819) от 25.02.2023
-
-Gorillaz - Cracker Island (2023) [FLAC|Lossless|tracks+.cue] <Trip-Hop, Leftfield, Electroniс>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cracker Island (Feat. Thundercat) [00:03:33]
-02. Oil (Feat. Stevie Nicks) [00:03:50]
-03. The Tired Influencer [00:03:31]
-04. Silent Running (Feat. Adeleye Omotayo) [00:04:26](   Читать дальше...   )Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A6E916FD8FA12DA03DA57D0445B941D9E81CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441485   (1037801) от 21.01.2021
 
 Human Fortress - Epic Tales & Untold Stories (2021) Compilation [FLAC|Lossless|WEB-DL|tracks + .cue] <Epic Power Metal>
@@ -745,6 +716,35 @@ Sound Of Smoke - Phases (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8D5BABFCDD4C986177548C10C70EFA74816EBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615455   (1037537) от 26.02.2023
+
+Harlem Lake - Volition Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern-Rock, Blues, Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The River (Live At Culemborg Blues, 27.08.22) (4:30)
+02. Beware (Live At Culemborg Blues, 27.08.22) (3:53)
+03. Whiskey Drinking Woman (Live At Better Get Hit Festival, 10.09.22) (6:25)
+04. Deaf & Blind (Live At Culemborg Blues, 27.08.22) (7:04)(   Читать дальше...   )Жанр: Southern-Rock, Blues, PsychedelicПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63F05234E1436FA793E9E677EE61A1C0FD61ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

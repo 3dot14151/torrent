@@ -1,53 +1,22 @@
-###  Публикация: 1070612   (366668) от 07.11.2016
+###  Публикация: 576278   (366778) от 16.11.2012
 
-Каталог | Madeleine Magazin (Осень-Зима 2016) [PDF] [De]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое приложение от каталога Madeleine - Madeleine Magazine 2016 приглашает вас окунуться в неповторимый и прекрасный, сдержанный мир Лондона . Тенденции и веяния в современной моде разбавлены своим исключительно британским вкусом. В итоге получилась уникальная и по-настоящему интересная коллекция, которую fashion-критики назвали бы стиль Лондона.
-
-Каталоги Madeleine: (   Читать дальше...   )Жанр: КаталогФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCD57FE84ECF6C574A2DA690DFD3C3D41554866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070474   (366663) от 07.11.2016
-
-VA - Dubstep Collection Vol.2 (2016) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
+Wallpapers Sexy Girls Pack (16.11.12) [Wallpapers 16+]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366663.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Boddy Gray - S.w.a.g (03:27)
-02. Dave Romans - Heavens Crying and Rejected Angel (03:49)
-03. Disbase System - Mystcial Shore (06:10)
-04. Disbase System - Strange Emotion (05:17)(   Читать дальше...   )Жанр: Dirty Dubstep, Trap, GrimeПродолжительность: 01:01:18
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3702x2787
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:344C789E04EBAB41D9A4B209C9A0BE57F407DBFE
+magnet:?xt=urn:btih:92F4E1694924A4233216A3A252A5FA91AC31A987
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,25 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070620   (366661) от 07.11.2016
+###  Публикация: 1070499   (366777) от 07.11.2016
 
-Каталог | Madeleine Favourites (Осень-Зима 2016) [PDF] [De]
+Photo Size Optimizer (was IMAGEmini) 1.71 [En]
 
->>Журналы
->>Женские журналы
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366661.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предпочитаете элегантный и непринужденный стиль? Будьте уверены, что каталог Madlen покорит вас! В нем представлена красивая женская одежда в самых разных вариациях. Это костюмы, свитера, платья, пиджаки, юбки, пальто. Отдельной линейкой презентованы роскошные модели для домашнего отдыха: пижамы, халаты, пеньюары, костюмы в спортивной манере. Всю одежду отличает (   Читать дальше...   )Жанр: КаталогФормат: PDF
+Photo Size Optimizer (Ранее известный как IMAGEmini) - изменение размера и оптимизация фотографий
+Если вы чувствуете, что на вашем Mac явно не хватает свободного пространства, задумайтесь – нужны ли вам внушительная коллекция фотографий в максимальном качестве? Приложение Photo Size Optimizer поможет сжать фотографии с минимальными потерями качества, но при этом (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 октября 2016Разработчик: EffectMatrix Inc.Поддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F33B1B7BBF993A55F712501CFD318AFE7847AE0
+magnet:?xt=urn:btih:19A828771A561A40611849C6323A4C18F38E10D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,115 +51,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070746   (366659) от 07.11.2016
+###  Публикация: 1070600   (366775) от 07.11.2016
 
-Иракли - Ангелы и демоны (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По лезвию ножа
-02. На бульварном
-03. Мужчина не танцует (feat. Леонид Руденко)
-04. Вокруг Земли(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3239496E90A318060B454D8C177052E4213156DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068956   (366656) от 07.11.2016
-
-Хоккей. НХЛ 2016-2017. Регулярный чемпионат. Обзор матчей от 28.10.2016 г. (29.10.2016) HDTVRip [H.264/720p-LQ][RU,EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей регулярного чемпионата НХЛ 2016-2017 от 28.10.2016:
-Чикаго Блэкхоукс – Нью-Джерси Дэвилз
-Нью-Йорк Рейнджерс – Каролина Харрикейнз
-Виннипег Джетс – Колорадо Эвеланш(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: Телепередача, СпортЯзык озвучки: Русский (Виталий Магранов), AнглийскийПродолжительность: 00:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A973CD853696E047DF47B69810AF6A9290BF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070554   (366651) от 07.11.2016
-
-VA - Big 1990s Twisted Hits (2016) [MP3|192~320 Kbps] <Pop, Techno, Rock, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366651.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Loft - Mallorca (Extended Beach Mix)  5:55
-002. Twenty 4 Seven feat. Stay-C & Nance - Is It Love (Single Mix)  3:57
-003. C&C Music Factory - Gonna Make You Sweat (Everybody Dance Now)  4:07
-004. Me & My - Dub-I-Dub  3:22(   Читать дальше...   )Жанр: Pop, Techno, Rock, DanceПродолжительность: 07:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6682852BBC8F90C94F451B08F6B692771D735036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070599   (366649) от 07.11.2016
-
-Smokie - Strangers In Paradise (1982) Reissue, 2016, Sony [FLAC|Lossless|image + .cue] <Soft Rock>
+Joe Walsh - So What (1974) remaster, 2015, Audio Fidelity [WavPack|Lossless|image + .cue] <Classic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366649.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Introduction (Traditional, Silson, Norman, Spenser, Uttley)
-02. Love Remains A Stranger (Supa)
-03. Falling For You (Uttley, Silson)
-04. Yesterday's Dreams (Norman, Spenser)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:43:50
+01. Welcome To The Club (5:10)
+02. Falling Down (4:57)
+03. Pavanne (Pavane De La Belle Au Bois Dormant) (1:58)
+04. Time Out (4:27)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:36:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF3496C260443D3C8DE409E05AFBAB13475BBC3A
+magnet:?xt=urn:btih:6F56E1F49DBC0EBD3F3119E1FC27045FEA89C755
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,54 +80,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070642   (366646) от 07.11.2016
+###  Публикация: 575804   (366774) от 16.11.2012
 
-akaEasyMoney 1.0.2 Portable [Ru] (Авторская раздача)
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366646.jpg" />
-</div>
-
-
-###  Подробнее
-
-akaEasyMoney - программа для учета личных финансов (и не только)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8799343D559CD990DA16E88DEE709F72F7837844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070488   (366643) от 07.11.2016
-
-VA - Ethnic Trap Collection Vol.1 (2016) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
+VA - Клубные новинки от AGR Vol.174 (2012) [MP3|320 кб/с]<Club, Dance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366643.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. NextRO - Chauris VIP (Original Mix) (3:42)
-02. Monstex - Anubis (Original Mix) (5:21)
-03. Biz - Mayhem (Original Mix) (3:34)
-04. Biz - Khalifat (Original Mix) (3:47)(   Читать дальше...   )Жанр: Dirty Dubstep, Trap, GrimeПродолжительность: 02:03:16
+01. Ciro Visone - Out Run
+02. Art Of Trance vs. Binary Finary - 1998 In Madagascar (John Newall Edit)
+03. Andrew Rayel feat. Jano - How Do I Know (Original Mix)
+04. Duo Deep - Something Wrong (Original Mix)
+05. Anthony S - Zombie (Original Mix)
+06. Cicada feat. Holly Miranda - Over And Over (Denzal Park Remix)
+07. Andy Moor feat. Betsie Larkin - Love Again (Extended Mix)
+08. Dash Berlin feat. Kate Walsh - When You Were Around (Club Mix)
+09. Camerata - About Time (Original Mix)
+10. Dinka feat. Angelika Vee - Inseparable (Original Mix)Жанр: Club, DanceПродолжительность: 04:34:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07111238F8B146E15536829D1014CFC002B61ABB
+magnet:?xt=urn:btih:25EDBBF700C7735E88EB1CE6CE1FF6219185F9BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,24 +115,421 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069341   (366641) от 07.11.2016
+###  Публикация: 1070498   (366773) от 07.11.2016
 
-Футбол. Лига Чемпионов 2016-2017. Группа H. 4-й тур. Севилья (Испания) – Динамо З (Хорватия) (02.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+VA - Drum 'N' Bass Laboratory Vol.1 (2016) [MP3|320 Kbps] <Drum & Bass>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_366641.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-02 ноября 2016, среда. 22:45 МСК
-Лига Чемпионов 2016-2017. Групповой этап
+01. Diffusia - FTB (4:01)
+02. Oleg Zolotarev - Sliding (8:46)
+03. Sashaslay - Good Morning (3:43)
+04. Enveloperz! - Clue (3:30)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93EF86BB2D66C113D6A33E74A8671D679606A3E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575846   (366772) от 16.11.2012
+
+VA - Популярный СуперХит 50+50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жанна Фриске - Навсегда!
+02. Smoke & Jackal - No Tell
+03. Rustemru - Ты Не Такой Как Все
+04. Mishelle - It Feels So Good (Radio Edit)
+05. Диля Даль - Мой Сильный Мужчина
+06. Cady Groves - Love Actually
+07. G-Nise И Алексей Кабанов - Люби Сегодня
+08. Natalia Barbu - I Said Its Sad
+09. Марсель - Настроение Осень
+10. Wisin & Yandel Feat. Jennifer Lopez - Follow The Leader(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0981678C4045D93B44752B8C2C3ED9AE6848E6FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576054   (366770) от 16.11.2012
+
+VA - Aqua Trance Volume 25 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366770.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Aqua Trance Volume 25 (2012)
+Год: 2012
+Жанр: Uplifting Trance, Vocal Trance
+Продолжительность: 02:58:56Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Sunlounger & Zara Taylor - Try To Be Love (Original Balearic Summer Mix)
+002. Tenishia & Ruben de Ronde - Marsascala (Alexander Popov Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2190C50D01DC9E765A7D8AFBC492EABFA2B96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575980   (366768) от 16.11.2012
+
+Wallpapers Sexy Girls Pack (15.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3702x2787
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D386FDA15547D767C8F0DD8DD2FD2F6EBDBF8336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576372   (366766) от 16.11.2012
+
+Журнал | Webuser №305 (UK) [15 ноября 2012] [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366766.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале содержится информация о новых сайтах в сети, обзоры софта и "железа". В текущем номере: скрытые настройки Chrome, он-лайн-редакторы для фото; тема номера - избавляемся от следов серфинга по интернету.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ACB7D809BA0712F93ADD90E5381FA5DC4AED9EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576277   (366764) от 16.11.2012
+
+Sexy Girls Pack Wallpapers (16.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5600x3733
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020A24F79A8686DEAD9753BB8F7A6B1D1A102371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575975   (366763) от 16.11.2012
+
+Nature Wallpapers (15.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4913BCD269BD4F3620408B2F7B56DD7EF68DC982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070501   (366759) от 07.11.2016
+
+Annwn - Enaid (2016) [FLAC|Lossless|tracks] <Medieval, Celtic, Folk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Des Oge Mais Quer Eu Trobar [00:08:02]
+02. Bonny Portmore [00:04:08]
+03. The South Wind [00:02:26]
+04. Adio Querida [00:06:07](   Читать дальше...   )Жанр: Medieval, Celtic, FolkПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607BD9FAA4FEC8DF8941DAFFEDC0E961C6B97776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576272   (366757) от 16.11.2012
+
+Nature Wallpapers (16.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E68C41275688D351CB07078073CB5287DC014BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070697   (366756) от 07.11.2016
+
+Memphis May Fire - This Light I Hold (2016) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of It
+02. Carry On
+03. Wanting More
+04. Sever the Ties(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF09CF95B9C7E6277D18E30621EED028E6FB4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070457   (366752) от 07.11.2016
+
+Футбол. Лига Европы 2016-2017. Группа H. 4-й тур. Гент (Бельгия) – Шахтёр Д (Украина) (03.11.2016) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366752.jpg" />
+</div>
+
+
+###  Подробнее
+
+03 ноября 2016, четверг. 23:05 МСК
+Лига Европы 2016-2017. Групповой этап
 Группа H. 4-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:39:52
+(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7BC4663FF9ED3963E8F01788EAE8CB51B8AE7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575844   (366751) от 16.11.2012
+
+VA - Музыкальное путешествие Европы плюс 50/50 (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366751.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. T-Killah И Лоя - Вернись
+002. Flo Rida - Good Feeling
+003. Дискотека Авария - Недетское Время
+004. Pitbull feat. Enrique Iglesias - Tchu Tchu Tcha
+005. Алисия & Павел Есенин И Hi-Fi - Ангелы Вечны
+006. Rihanna Feat. Wayne Marshall - Man Down (Remix)
+007. Макс Барских - Dance
+008. 23:45 - Моя Любовь
+009. Потап и Настя - РуРуРу
+010. Hurts - Sunday(   Читать дальше...   )Жанр: PopПродолжительность: 12:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357477EC6D3A94496C86216FA166520F87772580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 835905   (366734) от 30.10.2014
+
+Журнал | PC Magazine [Россия] №10 (280) (октябрь 2014) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366734.jpg" />
+</div>
+
+
+###  Подробнее
+
+PC Magazine - один из известнейших и популярных журналов, посвященных обзорам современного рынка IT-индустрии. Рассматриваются новости и краткие обзоры новинок hardware, подробные обзоры и тесты наиболее значимых новинок, тесты ноутбуков, обзоры новых и будущих технологий производства, практика по самостоятельному улучшению и доработке своего ПК и софта, обмен опытом (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A39459E7D0E0977123945A67D41262E80245AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836178   (366729) от 30.10.2014
+
+Silent Nights 2: Childrens Orchestra (2014) [En] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время Традиционного Северно-итальянского Музыкального Фестиваля, Амели и Бернадетт Дё были похищены загадочным человеком в маске! Девочки выступали как приглашенные звезды из Франции с Детским Оркестром, и теперь их мать в отчаянии! Отправляйтесь ей на помощь, раскройте коварные замыслы преступника, остановите этого сумасшедшего и спасите девочек!(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Dark Blue GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93EBB4906A35DF598EEF1A9FA2C21B3F2ECC79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 253440   (366710) от 03.11.2010
+
+Ночь демонов / Night of the Demons (2009) BDRip [H.264/1080p] [DVO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_366710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фабула ленты практически неотличима от исходной постановки: в пользующемся дурной славой особняке Бруссаров, где восемь лет назад бесследно исчезло шесть человек, а прознавшая об этом хозяйка покончила с собой, Мэдди Кертис, Лилли, Сюзанна и Анжела устраивают вечеринку, на которую заявляются их бывшие дружки Колин и Декс. После того, как шумных гостей увозит полиция, (   Читать дальше...   )Производство: США, Cold Fusion Media GroupЖанр: УжасыРежиссер: Адам Гираш / Adam GieraschАктеры: Эдвард Ферлонг, Шеннон Элизабет, Моника Кина, Бобби Сью Лютер, Джон Бич, Майкл Копон, Тиффани Шепис, Эрик Ф. Адамс, Майкл АратаПеревод: Любительский (двухголосый)Субтитры: Русские, английскиеПродолжительность: 01:32:40
 
 ## Скачать торент
 ```bash
@@ -281,28 +541,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070477   (366639) от 07.11.2016
+###  Публикация: 252840   (366703) от 03.11.2010
 
-Каталог | Madeleine Christmas Специальный рождественский выпуск (2016) [PDF] [De]
+Больше чем друг / The Switch (2010) DVD5
 
->>Журналы
->>Женские журналы
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366639.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_366703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы уже давно ждете приглашения на новогоднюю вечеринку? Специальный рождественский выпуск каталога Madeleine Christmas подготовил для Вас дефиле роскошных новогодних нарядов и готов сделать Ваш выход неотразимым. Пришла Ваша очередь стать Снежной королевой!
-
-Каталоги Madeleine:
- Каталог | Madeleine Accessoires (Осень-Зима 2016)Жанр: КаталогФормат: PDF
+Во всем Нью-Йорке не было ближе друзей, чем риэлтор-невротик Уолли и очаровательная Кэсси. Однако когда Кэсси решится на искусственное оплодотворение, донором она выберет надежного и женатого красавца Роланда… Лучшие друзья решают отметить это вечеринкой, где Уолли напивается до неприличия…
+Через шесть лет Кэсси возвращается в Нью-Йорк с 5-летним сыном, который поразительно напоминает Уолли самого себя, а заодно вызывает в его памяти все, что случилось той злополучной ночью. Теперь незадачливому «другу» предстоит убедить Кэсси, что они — больше чем друзья, выиграть у Роланда статус «настоящего папы», и разобраться с самим собой.Жанр: Комедия, Мелодрама, ДрамаРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Бейтман, Виктор Паган, Дженнифер Энистон, Джефф Голдблюм, Джульетт Льюис, Тодд Луисо, Скотт Элрод, Патрик Уилсон, Ребекка Наоми Джонс, Келли БарретПеревод: профессиональный (дублированный)Продолжительность: 01:43:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F19A6526B5FCA1AB73802C67E8287768A25287A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,28 +568,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576436   (366635) от 14.09.2022
+###  Публикация: 253611   (366697) от 03.11.2010
 
-Thrashold of Pain - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+Иствикские ведьмы / The Witches of Eastwick (1987) HDTVRip
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366635.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don't [00:02:49]
-02. Head Softness Show [00:03:19]
-03. Outskirts of Life [00:03:01]Жанр: Thrash MetalПродолжительность: 00:09:10
-https://www.deezer.com/en/album/348827517
+Ведьмы - это три женщины, живущие в наше время в старомодном городишке в Новой Англии и мечтающие о замужестве. Они рисовали в своем воображении абсолютно разных мужчин, но когда в городе появился удивительный незнакомец по имени Дэрил ван Хорн, их сердца были покорены. Только потом они поняли, кто же такой на самом деле ван Хор. И тогда прелестницы решили от него (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Триллер, КомедияРежиссер: Джордж МиллерАктеры: Джек Николсон, Шер, Сьюзэн Сэрэндон, Мишель Пфайффер, Вероника Картрайт, Ричард ДженкинсПеревод: Дублированный / Оригинальный (английский)Субтитры: Русские, Английские (отдельно)Продолжительность: 01:52:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C6CA38CEE61CF6D88E8C90CB6D9C3B22EDE23D0
+magnet:?xt=urn:btih:9BFF562E7259FF4D02D1BD6A7E84D0929B8BB214
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,28 +594,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576380   (366634) от 14.09.2022
+###  Публикация: 575839   (366694) от 16.11.2012
 
-Ritual Kannabis - Ritual Kannabis II (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+VA - Хит атака. Версия 50/50 (2012) [MP3|256 кб/с]<Pop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366634.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Not Dead But Dreaming (04:14)
-02. What The Moon Brings (02:54)
-03. Stalker Among The Stars (02:50)
-04. The Burden Of Knowledge (02:43)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:23
+001. George Michael - White Light
+002. Александр Коган - Как Хочу, Так Тебя И Люблю
+003. Radio Project - Celebration
+004. Поющие Трусы - Василек
+005. Lady Antebellum - Need You Now
+006. Алисия & П.Есенин И Hi-Fi - Ангелы Вечны
+007. Linkin Park - Skin To Bone
+008. Анна Семенович - Не Мадонна
+009. No Doubt - Looking Hot
+010. Pet Shop Boys - Winner(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6C778C5136E9705FDB84E4B3CBD2313D9F1D4E2
+magnet:?xt=urn:btih:185FE85D7D79FA1A3F13E4A0437F8F5B79205D30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,28 +629,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576220   (366633) от 14.09.2022
+###  Публикация: 575990   (366693) от 16.11.2012
 
-Fred Hersch - Breath By Breath (2022) Palmetto Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+HQ Wallpapers Perfect Women (15.11.12) [Wallpapers 16+]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366633.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Begin Again [6:53]
-02. Awakened Heart [4:13]
-03. Breath by Breath [6:23]
-04. Monkey Mind [4:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:29
+Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34C7E992414A6605BDBE3685A778B0788B1242D0
+magnet:?xt=urn:btih:9470E46E0D8783145DDEE8CDA4FE34663F8F9547
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,28 +655,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576454   (366632) от 14.09.2022
+###  Публикация: 576279   (366692) от 16.11.2012
 
-Rob Anthony White - Play The Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Wallpapers Sexy Girls (16.11.12) [Wallpapers 16+]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366632.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Play The Blues (3:36)
-02. That A'nt Cool (4:30)
-03. Boogie Woogie Groove (3:39)
-04. My Heart Belongs (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:22
+Обои для рабочего столаРазрешение файлов: 1440x900 - 5616x3744
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64E20E70BAEDF0901FD6E64A7D0B300F4FF19117
+magnet:?xt=urn:btih:BE1F9D03E05C3BF063C427288DC497E066E1E736
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,28 +681,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576449   (366631) от 14.09.2022
+###  Публикация: 575520   (366691) от 16.11.2012
 
-Poppa John "Bug" & the Jam Band - Forgiven (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Best HD Wallpapers Pack (13.11.12) [Wallpapers]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366631.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Zeus's Anger Roar (3:58)
-02. Promises (4:20)
-03. The Bronx Is Burning (4:00)
-04. Where Is America (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:46
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBFBE3D8816431E72EA493DCAC9B666AF7D1315C
+magnet:?xt=urn:btih:2284548B8050DFA3C4B30D8B93652AACC7B219CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,280 +707,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576448   (366630) от 14.09.2022
+###  Публикация: 576025   (366690) от 16.11.2012
 
-Patrick Yandall - Blues Alley (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Журнал | Золотая коллекция рецептов №119/С [ноябрь 2012] [PDF]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366630.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Catfish Stew (4:08)
-02. Wabash Avenue (4:08)
-03. If I Fall (4:27)
-04. Buffalo Shuffle (4:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:54
+Скоро самый любимый всеми праздник новый год. В этом выпуске представлены красивые и вкусные блюда к этому празднику.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:609F33E5513543A3DF02906F16704361B2F61A93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576435   (366629) от 14.09.2022
-
-Retador - Retador (2022) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Retador (02:40)
-02. La Venda (03:47)
-03. Furia (03:54)
-04. Titeres (04:23)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D0F0D28393C546FD58C6818E33598954FD2EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576157   (366628) от 14.09.2022
-
-Impending Doom - 6 Albums (2007-2021) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death,Deathcore,Christian>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satanic Panic [00:03:19]
-02. New World Horror [00:04:18]
-03. Culture of Death [00:04:14]
-04. Hellbent [00:03:48](   Читать дальше...   )Жанр: Brutal Death,Deathcore,ChristianПродолжительность: 6 CD, 03:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0CB1F65041A70ECF028C0EB2135B397A211419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576442   (366627) от 14.09.2022
-
-Francesco Marras - It's Me! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Talks [00:04:05]
-02. Take my Hand [00:04:29]
-03. You Set My Heart on Fire [00:03:44]
-04. We Take the Blue Away [00:03:53](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF35509AB6AC82DD155292C851488458BE63656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576480   (366626) от 14.09.2022
-
-Leah - Ancient Winter (2019) [FLAC|Lossless|image + .cue] <Symphonic Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом Leah с участием приглашенных музыкантов Nightwish & Eluveitie.1. The Whole World Summons 4:56
-2. Light of the World 4:20
-3. Upon Your Destiny 6:03
-4. Redemption 5:21(   Читать дальше...   )Жанр: Symphonic Metal, Gothic MetalПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF5515CF1B174578D3F54AB8300C48AC0CCFBF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576453   (366625) от 14.09.2022
-
-Rik Meijer - Rik Meijer (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me the Good Earth (5:52)
-02. Pack It Up (4:05)
-03. New Orleans Ladies (5:35)
-04. I'm a Runner (4:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1648919C512B604459D1F424DA57ACCFB3B280A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576516   (366624) от 14.09.2022
-
-Футбол. Лига Чемпионов Online 2022/2023. Групповой этап. Тур 2. Обзор матчей (13.09.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол.Лига Чемпионов Online 2022/2023. Групповой этап. Тур 2. Обзор матчей (13.09.2022)Телекомпания: Матч ТВ ПремьерЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794058315D329D9E0CA56D8F7FB66BEC2DAF7BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576405   (366623) от 14.09.2022
-
-Clark Terry, Freddie Hubbard, Dizzy Gillespie Plus Oscar Peterson - The Alternate Blues (1980) 1992, Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alternate One [5:33]
-02. Alternate Two [8:04]
-03. Alternate Three [9:06]
-04. Alternate Four [9:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DA8D489D9334C4F4DBEC7CB2013B216FA71FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576586   (366622) от 14.09.2022
-
-Александр Руж | Анита Моррьентес (Книга 2). Четвертый коготь дракона (2021) [MP3, Матвей]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366622.jpg" />
-</div>
-
-
-###  Подробнее
-
-1849 год. Путешествуя по Швейцарии, Анита Моррьентес и ее муж Алекс знакомятся с занятными попутчиками – американцем Грином и щеголеватым юношей, путешествующим инкогнито. Неожиданная ссора в купе вынуждает всю компанию выйти на станции, в результате чего супруги и их попутчики отстают от поезда. Это неожиданно оборачивается большой удачей: на поезд нападают неизвестные (   Читать дальше...   )Жанр: Исторические детективыПродолжительность: 09:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C669EB5FF4CDCEF5B814B16529AA11F711653D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576481   (366621) от 14.09.2022
-
-Я живу в страхе / Ikimono no kiroku (1955) BDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма, обеспеченный промышленник господин Накадзима, из страха перед возможными ядерными бомбардировками Японии решает эмигрировать в Бразилию, в безопасное, на его взгляд, место. При этом он хочет спасти всё своё многочисленное семейство, включая взрослых детей и бывших любовниц, и забрать их с собой. Однако родственники, вполне довольные жизнью на (   Читать дальше...   )Производство: Япония, Toho CompanyЖанр: драмаРежиссер: Акира КуросаваАктеры: Тосиро Мифунэ, Такаси Симура, Минору Чияки, Ейко Миёси, Киёко Аояма, Харуко Того, Норико Сенгоку, Акеми Негиси, Хироси Тачикава, Кичидзиро УедаПеревод: авторский (Сергей Кузнецов; Алексей Яковлев)Субтитры: русские, английскиеПродолжительность: 01:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A72764716424E798EAA296813E65CBAA87A162B
+magnet:?xt=urn:btih:E1C1E952926235F5BA4F197A2F8C0A5B01CE26B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

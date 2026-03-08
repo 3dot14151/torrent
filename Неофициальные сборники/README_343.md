@@ -1,3 +1,177 @@
+###  Публикация: 1041571   (582525) от 09.08.2016
+
+VA - Beatport Trance Pack (08.08.) (2016) [MP3|320 Kbps] <Trance,  Progressive, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582525.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kaimo K, Sarah Russell  -  Why Can't You Love Me (Original Mix)  6:50
+002. Amo R  -  Viracocha (False 9 Remix)  4:44
+003. U-Mount  -  Guard (Original Mix)  6:40
+004. Obi  -  Directions (Original Mix)  7:05(   Читать дальше...   )Жанр: Trance,  Progressive, Uplifting TranceПродолжительность: 12:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CC99A08A5137361324F34E6B757B0ADF933653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041546   (582478) от 09.08.2016
+
+VA - Sexy Deephouse Selection (2016) [MP3|320 Kbps] <Deep House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Nicoya - Lo Que Mueves [00:06:56]
+02. Shivana Faction - Prime Position [00:07:38]
+03. Spiced Boogie - Upscale [00:05:59]
+04. Unexpected Marvel - Plug and Play [00:06:35](   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 02:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57D22D1B082E11DD46093C2CB3041F454D8F960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041438   (582476) от 09.08.2016
+
+VA - Summer Megamix (2016) [MP3|261-279 Kbps] <Electro, Vocal, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Mix - Summer Megamix 2016 (Nonstop Megamix Version) 107:03
+02. Venga Seven - The Sound Of Summer (Radio Mix) 03:49
+03. Clubaccess - Cura (Airplay Version) 03:42
+04. Smile 96 - Love (Radio Version) 03:09(   Читать дальше...   )Жанр: Electro, Vocal, Club, HouseПродолжительность: 03:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C590732E5B95853E5D0E7E19EC18D17B7797E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041490   (582470) от 09.08.2016
+
+VA - We Love Summer (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582470.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+Пpодолжительность: 01:16:30
+01. Imany - Don't Be So Shy (Filatov & Karas Remix)
+02. Felix Jaehn Feat. Alma - Bonfire(   Читать дальше...   )Жанр: PopПродолжительность: 2:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5233C087B5F09A35704ADFA6C5770C4BF00495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041541   (582463) от 09.08.2016
+
+VA - Summer Hits 100 Empire (2016) [MP3|320 Kbps] <House, Progressive, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582463.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jewelz & Sparks  -  Drip  2:34
+002. Jordi MB & Jason Rene  -  You (Extended Mix)  4:16
+003. Dino Sor  -  Pump It Up (Original Mix)  5:21
+004. John Legend  -  All Of Me (Tiesto's Birthday Treatment Remix) (Radio Edit)  4:12(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 07:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8517668D4C112BF828055CE7BCF62EB795414CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041474   (582426) от 09.08.2016
+
+VA - Хит-парад радио шансона New (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582426.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Андрей Широков - Шансон Рулит
+002. Александр Комиссар - Таганка По Новому
+003. Виктор Муравьев - Научите Меня Безмятежности
+004. Мариан - Зазноба(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE265E01E325AFDFF2D383736B0A32404CE9596E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041587   (582380) от 09.08.2016
 
 VA - 100 Nu Jazz Summer Classics (2016) [MP3|320 Kbps] <Nu Jazz, Acid Jazz, Lounge>
@@ -571,171 +745,6 @@ VA - Boom Enerjy №5 (2016) [MP3|320 Kbps] <Pop, Dance, club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A0946B9876ECF48EA9FA78D4FD3082BB8B97259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041868   (581437) от 10.08.2016
-
-VA - New World hits №2 (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581437.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alexandra Stan - I Did It Mama
-002. DJ Snake feat. Justin Bieber - Let Me Love You
-003. Tesla Boy - Fantasy
-004. Sak Noel & Luka Caro & Ruben Rider - Pinga(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAED504ECAF4530D8613EEC34FE096CA520DE7FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041872   (581429) от 10.08.2016
-
-VA - Супер популярный летний Русский (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581429.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дима Билан - В Твоей Голове
-002. Единое Братство Feat. David Argunetta - По Волнам
-003. Наталья Подольская - Сердечко
-004. Оля Полякова - Плавочки(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF4066660D1416C84BC7FF83856E5186969DF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041732   (581419) от 10.08.2016
-
-VA - German Top №8 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581419.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta - This One's For You (feat. Zara Larsson)Жанр: PopПродолжительность: 05:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528691E1B24E072AF988D4D8A4C147C45726EB89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041895   (581236) от 10.08.2016
-
-VA - Молодёжная 100-ка. Презент Летних Новинок (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mnek - More Than A Miracle
-02. Ваня Чебанов - Все Хорошо
-03. Evgen Dia - Меланхолия
-04. Лиза Хегай - Наполовину(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A9D093CD846CB6AC73A905F0EF07C3C03B2184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359838   (581161) от 07.07.2011
-
-VA - Улётные новинки граммофона - хитовая авиация (2011) [MP3|160 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 09:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB5779B5DEE5DB9E4EACF10FC6093471A8637E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359807   (581160) от 07.07.2011
-
-VA - Самые сливки МузТВ 6  (2011) [MP3|256 kbps]<Pop / Dance >
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop / DanceПродолжительность: 06:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E878D0C233287A3595E6B19523719112197D210
 ```
 
 https://mybot314.ru/tekegram_catalog/

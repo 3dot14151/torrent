@@ -1,3 +1,32 @@
+###  Публикация: 1598894   (161391) от 21.12.2022
+
+Rebirth::Collective featuring Tutu Puoane - It Might As Well Be Swing (2021) SoulFactory [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Groove Merchant [7:13]
+02. September in the Rain [4:20]
+03. Cheek to Cheek [7:34]
+04. Someone's Rocking My Dreamboat [5:55](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A8236BD6AA9CC7F0EB10859463CE1F8D988C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518053   (161196) от 18.12.2021
 
 Erroll Garner - 1949-1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Stacey Kent - Summer Me, Winter Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB103D92EE7C2315FE5BC9917347F877D93702FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675997   (159337) от 11.11.2023
-
-Dave Stewart & Hannah Koppenburg - Cloud Walking (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cloud Walking
-02. Echoes Of You
-03. Speechless
-04. Soho Secrets(   Читать дальше...   )Жанр: JazzПродолжительность: 00:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50682D94E08DA89286F1C2FA8B70865747B2332F
 ```
 
 https://mybot314.ru/tekegram_catalog/

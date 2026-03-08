@@ -1,3 +1,177 @@
+###  Публикация: 1030939   (670332) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 44 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Mix - Version Megamix ( Vol. 3 ) ( 1985 )
+02. De Gama - Sexual Fever ( 1987 )
+03. Invidia - Plaza De Toros ( 1987 )
+04. 'Lectric Workers - Robot Is Systematic ( Instrumental Version 1982 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DFF32C57A80204C4389094226FAAF22150CA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030952   (670329) от 02.07.2016
+
+VA - Русская Дискотека ХХ Века - 13 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Божья Коровка - Гранитный Камешек ( 1994 )
+02. Неигрушки - 100 Дней До Приказа ( 1999 )
+03. Глызин Алексей - Зимний Сад ( 1990 )
+04. Корнелюк Игорь - Милый ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FDFFC85E43B21AA06F1330B2EE1288D7A4D2DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030927   (670327) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 39 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pet Shop Boys - Go West ( Extended Version 1992 )
+02. Valerie Dore - The Night ( Orginal Mix 1986 )
+03. Europe - The Final Countdown ( 1986 )
+04. Italo Boot Mix Vol. 3 ( Part 2 ) ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59675CE0D92D5DC1F788B08BC405683D4E05FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030956   (670326) от 02.07.2016
+
+VA - Русская Дискотека ХХ Века - 14 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Метов Кай - Position № 2 ( 1993 )
+02. Неоновый Мальчик - Остановись ( 1990 )
+03. МГК - Свечи ( 1997 )
+04. 140 Ударов В Минуту - Тополя (1999 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA99E42E9A7DF6898BB4A966CA4D5726AE791752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030943   (670324) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 45 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barcode Brothers - Dooh Dooh ( Radio Edit 1999 )
+02. Angie Gold - Eat You Up ( Classic Mix 1995 )
+03. Barbarella - Please, Please Me ( Don't Make Me Blue ) ( 1991 )
+04. Vocal Control - Cheri, Cheri Lady ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E48CF800FB1943E489605A1EFE1A60C98085115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030968   (670322) от 02.07.2016
+
+VA - Русская Дискотека ХХ Века - 16 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Куклы Напрокат ( Валерий Залкин ) - Капали Слезы ( 1999 )
+02. Президент & Амазонка - Жу-Жу ( 1997 )
+03. Стеклянные Крылья - Чертенок ( 1989 )
+04. Империя - Малышка ( 1992 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD5DB8D4E18051DDD3E404453FAE57C5145AB18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030981   (670319) от 02.07.2016
 
 VA - Русская Дискотека ХХ Века - 19 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
@@ -565,180 +739,6 @@ VA - Welcome To Remini Radio Romantic (2018) [MP3|320 Kbps] <Italo Disco, Euroda
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8E5E7B3AF102B4B5A3997790D399000D390E046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223561   (669379) от 07.05.2018
-
-VA - Rock Ballads Collection от ALEXnROCK часть 1 (2018) [MP3|320 Kbps] <Rock,Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этим сборником начинаю коллекцию баллад. В него вошли самые чинные лирические рокерские песни на которых многие из вас выросли. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK001 Axel Rudi Pell - The Line
-002 Bon Jovi - Lie To Me
-003 Skid Row - I Remember You
-004 Joe Lynn Turner - Heart Of The Night(   Читать дальше...   )Жанр: Rock,MetalПродолжительность: 03:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55DE9A8F65EEB52F679CB24C87559B2DC35B4D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223965   (669370) от 07.05.2018
-
-VA - Club Dance Ambience Vol.145 (2018) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669370.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adri Blok - Be Good  (Original Mix)
-002. Ahzee feat. Emmaly Brown - Be mine  (Alexander Prinz Radio Remix)
-003. Alok, Zeeba & Iro - Ocean (Original Mix)
-004. Anthony El Mejor VS Denis Rublev - Солнце  (Extended)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053E38FC70B413AF32B5D8465B734524FDD3143D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223967   (669368) от 07.05.2018
-
-VA - Club Dance Ambience Vol.146 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669368.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Afgo - The Truth  (Moonsound Remix)
-002. al l bo - Man From The Moon (SeventhSense Remix)
-003. Alle Farben & RHODES - H.O.L.Y. (Mahmut Orhan Remix)
-004. Alok, Bhaskar & Jetlag Music Ft. Andre Sarate - Bella Ciao (Original Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E76748F471296CD8575B5EDB722636AC5D6914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137014   (669305) от 25.05.2017
-
-VA - Electro House Rarty. Volume. №2 (2017) [MP3|320 Kbps] <Club House, Electro House, Remix>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aine Aura - Uncover (Mountain Of Youth Remix)
-02. Croatia Squad - The Dance Machine (Original Mix)
-03. Dizco Dudes - World to Me (Radio Edit)
-04. Amade Landan - Inside (Original Mix)(   Читать дальше...   )Жанр: Club House, Electro House, RemixПродолжительность: 07:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1359D4D637C6FFCCC97F33D4B69F256C579A6D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537214   (669250) от 15.03.2022
-
-VA - Hipster Punk (Hipster Punk) [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это продукт рефлекторной попытки оглянуться назад и отыскать что-то светлое в прошлом, которая оборачивается довольно печальной констатацией факта, что и там на самом деле было мало хорошего. Но несмотря ни на что — это было не самое худшее время.001. Revenge Of The Psychotronic Man - Rrose Selavy
-002. The Thirtysevens - The Fools
-003. Grillijono K.O. - Kuluta Mut Loppuun
-004. Tove Lo - Are U Gonna Tell Her(   Читать дальше...   )Жанр: Punk, Rock Punk, AlternativeПродолжительность: 09:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2FD6980C7607F8C9FDEC7E2A0CA233874CF676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137165   (669135) от 25.05.2017
-
-VA - Chillout Hits Vol.8 (2017) [MP3|320 Kbps] <Chillout , Chillstep , Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ArtSpace - Far Away (Paradise Mix)
-02. Gemma Hayes - Wicked Game (Aaron Static Bootleg)
-03. Golani - Red Moon (Original Mix)
-04. Marga Sol - Since You Are Gone(   Читать дальше...   )Жанр: Chillout, Chillstep, Chill HouseПродолжительность: 07:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A7DA201C79EF03C8AF12AA6178B100C66BC285
 ```
 
 https://mybot314.ru/tekegram_catalog/

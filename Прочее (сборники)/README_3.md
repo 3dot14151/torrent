@@ -1,3 +1,119 @@
+###  Публикация: 1607000   (1044240) от 24.01.2023
+
+VA - Simply Dance Vol. 07 (2023) [MP3|320 Kbps] <Europop, Dance, Club, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hostel Kidz - Standing In Line
+02. David Garner - Silent Night
+03. yaml - Dance The Night Away
+04. DJ Spacig - Hearts On Fire(   Читать дальше...   )Жанр: Europop, Dance, Club, ProgressiveПродолжительность: 01:46:13 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1874A78BA8DC4860A09DD147DCCB63CF2FD407FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607028   (1044219) от 24.01.2023
+
+VA - Chilled Hits Easy Vibes (2023) [MP3|320 Kbps] <Pop, Soul, Ballad, Soft Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044219.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bruno Mars - Leave the Door Open
+02. Wiz Khalifa - See You Again (feat. Charlie Puth)
+03. Omar Apollo - Evergreen (You Didn’t Deserve Me at All)
+04. Benson Boone - In the Stars(   Читать дальше...   )Жанр: Pop, Soul, Ballad, Soft RockПродолжительность: 02:46:09 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7668CBBC2EF5366A3BEC46D7C53C7E0D63049739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607394   (1044022) от 26.01.2023
+
+VA - Music News vol.240 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044022.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. HAKEN - Taurus (Bonus Exclusive) (04:49)
+ 002. 3-ий Январь - Позволь Мне (02:52)
+ 003. 4K feat. Татем & Яд Добра - Чёрные Куртки (03:40)
+ 004. 84 feat. Kecha & Bard - Моя Половина (02:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D417DB3665F6AF2A74EA22A05400DD42DBF00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608400   (1043617) от 30.01.2023
+
+VA - Music News vol.241 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043617.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Istokiya feat. Артём КИД - Мокрая (02:21)
+ 002. 4NN4 - Пули-пистолеты (02:34)
+ 003. Aledaida - Bla Bla Bla (02:43)
+ 004. Alessiee - Море (03:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC077C321A3B2A69F6650A923EBC6775811BE656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608014   (1043496) от 31.01.2023
 
 VA - Музыка для машины Vol.3 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -629,122 +745,6 @@ VA - Music News vol.245 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC61344E058B34DCD3F964E039D1984B3BD85112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438955   (1040475) от 10.01.2021
-
-VA - Дискотека Пионер FM По-Русски vol.14 (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040475.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Евгений Кемеровский - Белая зима
-002. Gallina - Белым Снегом
-003. София Ротару - Ты позови меня
-004. Премьер-Министр - Дорогая(   Читать дальше...   )Жанр: Pop, Dance,Продолжительность: 06:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB37B7A53AAEC7B2AC0BEBC006A9C3B69D32BE76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612196   (1040445) от 14.02.2023
-
-VA - Power & Hot (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supermode - Tell Me Why - MEDUZA Remix (8:28)
-02. Majestic Feat Boney M. - Rasputin (Majestic Club Vip Remix) (5:45)
-03. Deborah de Luca - Children - Radio Edit (5:43)
-04. Drake - Massive (5:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7B23B1BCAD104A20E223D4B456B5FBE49317C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611700   (1040349) от 15.02.2023
-
-VA - Sonic - Before the Sequel (2012)[MP3|320 Kbps] <Score>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальная музыка из игры -01. Circumstance - Opening
-02. Before the Sequel - Title Screen
-03. Rivulets - For Hilltop Heights Act 1 (ft. Sky Sanctuary (S3&K))
-04. Downpour - For Hilltop Heights Act 2 (ft. Green Hill Zone (Sonic 1))(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362D35D41B3AFAA8D4F8A1EF42DB684B81DC35A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611328   (1040322) от 15.02.2023
-
-Sonic Boom (Hack) (Soti, Tweaker, Nineko, Roxahris) (2009)[MP3|320 Kbps] <Score>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка из хака -01. Gravity Beetle Stage (Megaman X3)
-02. Infinity Mijinion Stage (Megaman X6)
-03. Blast Hornet Stage (Megaman X3)
-04. Storm Eagle Stage (Megaman X)(   Читать дальше...   )Жанр: ScoreПродолжительность: 03:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67808DF12E12406AF7588B09CD3393ECE0BC417D
 ```
 
 https://mybot314.ru/tekegram_catalog/

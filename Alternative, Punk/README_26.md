@@ -1,67 +1,3 @@
-###  Публикация: 570614   (389982) от 05.11.2012
-
-Flyleaf - New Horizons (2012) [MP3|320 кб/с]<Alt.Rock | Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Fire
-02. New Horizons
-03. Call You Out
-04. Cage On The Ground
-05. Great Love
-06. Bury Your Heart
-07. Freedom
-08. Saving Grace
-09. Stand
-10. Green Heart(   Читать дальше...   )Жанр: Alt.Rock | Female VocalПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 151073   (389821) от 08.11.2009
-
-Orianthi - Believe (2009) [MP3|320 kbps]<Alt. Rock/Modern Rock/Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389821.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. According To You (3:18)
-2. Suffocated (3:01)
-3. Bad News (3:07)
-4. Believe (3:38)(   Читать дальше...   )Жанр: Alt. Rock/Modern Rock/Female VocalsПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571166   (389277) от 06.11.2012
 
 Emmure - Slave To The Game (2012) [MP3|320 кб/с]<Moshable Metalcore / Deathcore>
@@ -781,6 +717,64 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70AA21A1B4DDF624B5D80F46489628A0C03C565A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416387   (367496) от 16.10.2020
+
+Fever 333 - Wrong Generation (2020) EP [MP3|320 Kbps] <Rapcore, Hardcore Punk, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 BITE BACK [00:03:10]
+02 BLOCK IS ON FIRE [00:02:16]
+03 WRONG GENERATION [00:02:22]
+04 YOU WANTED A FIGHT [00:02:17](   Читать дальше...   )Жанр: Rapcore, Hardcore Punk, Post-HardcoreПродолжительность: 00:18:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA23F63960D1EE9A4A8AB2B228804B777C2D250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070697   (366756) от 07.11.2016
+
+Memphis May Fire - This Light I Hold (2016) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of It
+02. Carry On
+03. Wanting More
+04. Sever the Ties(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF09CF95B9C7E6277D18E30621EED028E6FB4AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

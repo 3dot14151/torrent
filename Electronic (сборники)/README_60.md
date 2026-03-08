@@ -1,3 +1,32 @@
+###  Публикация: 1204866   (784406) от 07.02.2018
+
+VA - Empire Records - House Swinging 2 (2018) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Swingrowers  -  Butterfly (Phibes Remix)  3:56
+02.  Jaques Le Noir  -  Boy (Push My Botton) (Radio Edit)  3:16
+03.  Faul & Wad Ad vs. Pnau  -  Changes (Radio Mix)  3:21
+04.  Freddy Verano feat. Natalia Doco  -  Comets (HUGEL Remix)  4:27(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27CC1F782AB53F0AE04EE2D6BC073B5FCFE1C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204872   (784402) от 07.02.2018
 
 VA - Empire Records - Chill Boys (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ VA - Psychedelic Bass (Compiled by ZeByte) (2018) [MP3|256-320 Kbps] <Psydub, Ps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD64AA7EECD000734D124AE142D1C2B541B69A5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391242   (781458) от 19.06.2020
-
-VA - Summer Bass: Jungle Essentials (2020) [MP3|320 Kbps] <D&B, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limit - Tell Me
-02. Dynamic Destruction - Bubbles
-03. Rebuilder - Follow Me
-04. Changer - Locals (Original Mix)(   Читать дальше...   )Жанр: D&B, JungleПродолжительность: 05:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D531BA9BE6B36BBB2B517B4C60E7A7383649F9DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

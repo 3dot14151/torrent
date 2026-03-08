@@ -1,3 +1,61 @@
+###  Публикация: 1202913   (1028348) от 02.03.2021
+
+Alka - Discography 5 Releases (2007-2020) Electronic Eel Rec. [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Glitch, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fractured Time (04:13)
+ 02. Widthchild (03:44)
+ 03. Faito (02:50)
+ 04. Earth Crisis (09:26)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Electro, Glitch, Downtempo, Ambient •Продолжительность: 04:45:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE04F1BFFC54DB57182718CA41169AF536A0D211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152884   (1028272) от 02.03.2021
+
+The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Years (prologue) (6:09)
+02. Gloria (4:50)
+03. WeMoveForward (8:08)
+04. Days of Thunder (5:24)(   Читать дальше...   )Жанр: Synthwave, SynthpopПродолжительность: 14:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DD0B70655F0F7571A6C31315AFC829D029FFC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451619   (1028235) от 03.03.2021
 
 Topdown Dialectic - Discography 6 Releases (2014-2019) /\\Aught, Peak Oil [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Experimental, Dub, Ambient>
@@ -684,64 +742,6 @@ Terminal 11 - Discography 15 Releases (2001-2021) Phthalo, Hymen Records, Cock R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:106266DCDE0AA456DA7479EA92206A9E8E0C3987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201058   (1027864) от 05.03.2021
-
-Richard Devine (Richard Coleman Devine) - Discography 14 Releases (1996-2020) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Experimental, Leftfield, Abstract>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entcid (19:00)
- 02. Sinscur (13:07)
- 03. TiMetrics (09:10)
- 04. 5schim (04:33)Тип издания: CD, Vinyl, WebЖанр: IDM, Experimental, Leftfield, Abstract •Продолжительность: 10:45:10 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A56A05EC4092D78745D3E649E21C90D3885FFD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188374   (1027820) от 05.03.2021
-
-Rod Modell (DeepChord, Waveform Transmission, Shorelights, Imax, Global Systems Silently Moving, A601-2) - Discography (1996-2019) [FLAC|Lossless] <Dub Techno, Ambient, Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Octal 6 (B1) “Part 9” (03:54)
- 02. Octal 6 (B1) “Part 4” (07:29)
- 03. Octal 6 (B1) “Part 3” (09:18)
- 04. Octal 6 (B1) “Part 7” (04:48)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Dub Techno, Ambient, Techno, Experimental •Продолжительность: 70:06:45 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6576D4B73CDC00B3F3D0630883CE48183A6D119D
 ```
 
 https://mybot314.ru/tekegram_catalog/

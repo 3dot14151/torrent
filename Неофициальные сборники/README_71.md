@@ -1,3 +1,177 @@
+###  Публикация: 1091502   (943108) от 09.01.2017
+
+VA - Resident Advisor - RA Poll Top 50 Tracks of 2016 (2017) [MP3|254-320 Kbps] <Minimal, Dancehall, Dub, Juke, IDM, Abstract и другие>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traumprinz - 2 Bad (Metatron's What If Madness Is Our Only Relief Mix) 10:20
+02. Pearson Sound - XLB (Original Mix) 06:19
+03. Avalon Emerson - The Frontier 07:35
+04. Willow - Untitled A2 04:32(   Читать дальше...   )Жанр: Minimal, Dancehall, Dub, Juke, IDM, Abstract, Experimental, Tribal, Downtempo, Funk, Deep HouseПродолжительность: 06:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B1A665042CE2DD633580851428765A3272C53E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091107   (943103) от 09.01.2017
+
+VA - Singles Chart Hot 100 Billboard (24 December) (2016) [MP3|32-320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943103.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
+002. The Weeknd feat. Daft Punk - Starboy 3:51
+003. The Chainsmokers feat. Halsey - Closer 4:06
+004. Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CCBD66553FD5C4C99300E4B2B6FACBD5A64A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091120   (943026) от 09.01.2017
+
+VA - Зимний драйв. Русский сборник (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943026.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Саша Санта - Попрошу 3:25
+002. Яков Самодуров - Хочу 3:15
+003. Play - Друг 2:51
+004. Митя Фомин Feat. Fomka - Мобилка 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133BFD904CD8E8820DC3546D8337AF8A0D7B832A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091055   (943007) от 09.01.2017
+
+VA - Russian DJs In Da House Vol. 173 (2017) [MP3|256-320 Kbps] <Electro House, Remixes, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2NICA & Maxx Play ft Aristina - Shake It (Original) 5:57
+02. Adina Howard - Freak Like Me (DJ Kirillich & DJ Alex Moscow Remix) 3:56
+03. Alan Walker - Faded (Alexx Slam, Leo Burn ft. TPaul Sax Mix)  4:34
+04. Andrey Keyton, Chunkee - Want Your Love (Original Mix) 5:20(   Читать дальше...   )Жанр: Electro House, Remixes, Club HouseПродолжительность: 02:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7406288A77844DDC2E9E1CE564386419E6FA1A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091484   (943005) от 09.01.2017
+
+VA - veloKEOtop101 (2017) [MP3|320 Kbps] <Dance, Lounge, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943005.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aqualuna - All In Love (Vocal Chill Mix) (06:00)
+002. Carlos Vives & Shakira - La Bicicleta (03:46)
+003. Bengale - Açores (06:49)
+004. Jazzamor - Life Is So Real (Original Mix) (04:01)(   Читать дальше...   )Жанр: Dance, Lounge, Pop, House, Electronic, ChilloutПродолжительность: 06:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A539F3FF561DDB26B1B4BA81E2A55AED5C53AB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091573   (942926) от 09.01.2017
+
+VA - House Clubhits Megamix 2017.1  [MP3|320 Kbps] <Indie Dance, Club, UK Garage, Progressive, Bigroom, Tropical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942926.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Various Artists - House Clubhits Megamix 2017.1 DJ Mix, Pt.1 1:17:59
+002. Various Artists - House Clubhits Megamix 2017.1 DJ Mix, Pt.2 1:19:35
+003. Various Artists - House Clubhits Megamix 2017.1 DJ Mix, Pt.3 1:13:11
+004. Robin Schulz feat. Akon - Heatwave (Muzzaik Remix) 4:17(   Читать дальше...   )Жанр: Indie Dance, Club, UK Garage, Progressive, Bigroom, TropicalПродолжительность: 12:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A687C4E17250D7B4FC48718E0863410C7EA3B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091243   (942925) от 09.01.2017
 
 VA - Дуэт Шансон (2017) [MP3|256 Kbps] <Шансон>
@@ -577,180 +751,6 @@ VA - Melody Across The World Dreams (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A26A69193A493B5862321C6B6FB252A92AC4DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091851   (941686) от 10.01.2017
-
-VA - Empire Records - Dancenudisco 3 (2017) [MP3|256-320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yolanda Be Cool And Dcup - Soul Makossa (Money)
-02. Crazibiza, Terry Lex, Paradize Groove - Flawless 2k16 (Original Mix)
-03. James Curd - Ride My Donkey Kong Feat. Likasto (Original Mix)
-04. Edo Romani - Syntomatique(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297D228528E6F203D8964B24D0A88F5C10F1A64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091793   (941681) от 10.01.2017
-
-VA - Happy Workout Rush Hits (2017) [MP3|320 Kbps] <Bassline, Progressive, Reggaeton, Bigroom, Dancehall, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariah Macklemore - All I Want 4 Kristmess Is 2 Hold Us (Mash Up) (Original Mix) 04:06
-02. Tortured Soul - Makin Me Better (Leas World Remix) (Instrumental) 07:36
-03. Noah Cyrus Ft Labrinth - Make Me (Cry) (Main) 04:02
-04. Pia Mia - We Should Be Together 03:44(   Читать дальше...   )Жанр: Bassline, Progressive, Reggaeton, Bigroom, Dancehall, DiscoПродолжительность: 04:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6AE0F8834564825E90E9198B98138D2B3833EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091981   (941677) от 10.01.2017
-
-VA - Я слушаю шансон. Зимние хиты (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941677.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Вестов - Мираж 4:23
-002. Рома Левобережный - Наш Двор 2:58
-003. Андрей Язвинский - Магнит 3:16
-004. Ирина Кильфин - Моим Друзьям 3:16(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27BA3D04F1786D04D277AB35F61115EE7820731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091964   (941667) от 10.01.2017
-
-VA - Новогодний ресторан на радио Шансон Выпуск № 8 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941667.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Башкиров - Слезы Дождя 4:04
-002. Ян Марти - Гейзер Страсти 3:19
-003. Рома Левобережный - Наш Двор 2:58
-004. Виктор Машин - Кофе По Утрам 3:17(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658139EE051A9259AA134AD5889BD25FD79FC488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091987   (941578) от 10.01.2017
-
-VA - Танцевальная зима. Снежная 100-ка Выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941578.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вик - Вдыхаю Твой Холод 4:23
-002. Зара - Без Многоточий 3:36
-003. Никита - Белыми Птицами 3:51
-004. Jones & Brock Feat. Anica - Join Me 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E276A21C84E9172A9C83E3FCFA53C07FF56586D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091846   (941569) от 10.01.2017
-
-VA - Empire Records - Dancenudisco 2 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4U - Long Ride (Original Mix)
-02. New Order - People on the High Line (Richard X Radio Edit)
-03. KRAUZE, Display AV - Pixel (Original mix)
-04. Abraham Ruiz - No Returnable (Original Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810AB8D37EB2C7E4AC49E46ACBF49B4B17CF2698
 ```
 
 https://mybot314.ru/tekegram_catalog/

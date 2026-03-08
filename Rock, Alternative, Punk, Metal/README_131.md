@@ -1,32 +1,3 @@
-###  Публикация: 1488096   (1002310) от 10.08.2021
-
-Crazy keys - Mystical (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living In Sin 05:00
-02. The Eye Of The Storm 05:13
-03. Wild Side 04:20
-04. Strong For Love 04:20(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382BE46DEFDB0BE727E7873CEB99D48898C68ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351352   (1002189) от 10.01.2020
 
 Cornerstone - 5 альбомов Collection 6 CD (2000-2007) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -745,6 +716,35 @@ Rage - Wings of Rage (2020) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C1728A7F6CED264296A8F13F729CA0EC387213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351961   (1001643) от 12.01.2020
+
+Bobina - Targets (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hardcore, Rapcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agent Orange (4:21)
+ 02. 10 Years Later (3:51)
+ 03. Falling All In (3:04)
+ 04. The Mission (5:31)(   Читать дальше...   )Жанр: Alternative Rock, Hardcore, Rapcore, ElectronicПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8091760E74A41776AD694D82961DC53C82A1E391
 ```
 
 https://mybot314.ru/tekegram_catalog/

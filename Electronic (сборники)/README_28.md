@@ -1,3 +1,32 @@
+###  Публикация: 988785   (919178) от 21.02.2016
+
+VA - Smooth Jazz n' Chill (2016) [MP3|320 кб/с] <Smooth Jazz, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lebron - Kiss and Tell (04:06)
+02. Oli Silk - Get out Claws (03:28)
+03. Randy Scott - Kisses (04:52)
+04. Jaared - Jamaican Winds (03:41)(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9670DB3154EDBC275605F6A8F928702CB9028E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987582   (918992) от 21.02.2016
 
 VA - Лучшая клубная музыка ANDRS vol.33 (2015) [MP3|128-320 кб/с] <Club, Dance, Electro, House, Electro-House, Deep House>
@@ -714,35 +743,6 @@ VA - House Nation Volume 5 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F5FFB379357DFE160EB4807D1F7DEFBCBEEDD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989615   (915689) от 23.02.2016
-
-VA - TOP Non-Stop 2010-2015 - Lounge & Chillout [vol.4] (2010-2015) [MP3|320 кб/с] <Ambient, Lounge, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ewonee - 1.23 (intro)  02:51
-02. Damon Albarn - Everyday robots  03:57
-03. Air - Who Am I Now  03:01
-04. Damon Albarn - Seven high  01:00(   Читать дальше...   )Жанр: Ambient, Lounge, HouseПродолжительность: 04:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E9414D36622AECFFA638950B912439400BD7EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

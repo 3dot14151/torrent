@@ -1,3 +1,67 @@
+###  Публикация: 983411   (943610) от 06.02.2016
+
+Scooter - Ace (2016) /Scene/ [FLAC|Lossless|tracks] <Deep House, Tech House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace
+02. Oi
+03. Mary Got No Lamb
+04. Riot(   Читать дальше...   )Жанр: Deep House, Tech House, TranceПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918F419CBCB2D1B8A831B480F4148F3E108058E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175041   (943516) от 12.02.2010
+
+Kai Tracid - In Da Club: Back to School (2010)[MP3|320 kbps]<Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Many Times
+02. Trance & Acid
+03. Conscious (Energy Mix)
+04. Tiefenrausch (The Deep Blue)
+05. Bad Shape
+06. 4 Just 1 Day (ATB Remix)
+07. Dance For Eternity (Groover Mix)
+08. Life Is Too Short (Energy Mix)
+09. Express Your Hidden Passion
+10. Liquid Skies(   Читать дальше...)Жанр: Trance, Vocal Trance, Uplifting Trance |
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091380   (943234) от 09.01.2017
 
 VA - Suanda Winter Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -678,64 +742,6 @@ cv313 (c v 3 1 3, CV313) - Discography 44 Releases (2007-2020) echospace [detroi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C86C7AC4CF4E721979CD5EA0B4B1476C9FA8AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363647   (941890) от 28.02.2020
-
-VA - Best Remixes, Vol. 2 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Bitz - Believe (Sincere Sound Remix) (6:34)
-02. Phillipo Blake - Ripples (Zmey Remix) (6:34)
-03. Nikk Nova - 4 Seasons (Alexey Sorokin Remix) (5:53)
-04. Briana - Life Keeps On Going (Goldhands Remix) (6:36)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C82FA1C355E70C2E6F9FD4F77E68D29A5FFECA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363646   (941888) от 28.02.2020
-
-VA - Best Remixes, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stunner feat. Sofy Soprano - The One (Mixail Remix) (8:15)
-02. Nik Mechikov - Nice Thing (Katrin Souza Remix) (6:58)
-03. Zadmax - Nightly Motion (B-Fairy Remix) (7:08)
-04. Stunner feat. Sofy Soprano - The One (Andrew StetS Dub Mix) (5:47)(   Читать дальше...   )Жанр: Progressive Trance, HouseПродолжительность: 01:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5606FDB5B16A091CD0D91F97B4F817085E35AF15
 ```
 
 https://mybot314.ru/tekegram_catalog/

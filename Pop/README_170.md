@@ -1,3 +1,61 @@
+###  Публикация: 923910   (560919) от 02.08.2015
+
+VA - Ibiza Lounge Deluxe (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Tokeo - Riva (Restart the Game) (03:00)
+02. Vibe2Vibe - Cheerleader (03:05)
+03. Vibe2Vibe - Lean On (02:57)
+04. DJ Tokeo - Ain't Nobody (Loves Me Better) (03:06)(   Читать дальше...   )Производство: Sugar & Lime RecordsЖанр: Pop, DanceПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396E7C242D15BF324B52FD39A103BFB763E9BBAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923921   (560908) от 02.08.2015
+
+Natalie Imbruglia - Male (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instant Crush
+ 02. Cannonball
+ 03. The Summer
+ 04. I'll Follow You Into The Dark(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA2D37683855EA2FA6D025309845166CD768AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924158   (560808) от 02.08.2015
 
 Natalie Imbruglia - Male (2015) [FLAC|tracks|WEB-DL]<Pop, Adult Alternative, Soft Rock, Covers>
@@ -688,64 +746,6 @@ Strange Advance - The Distance Between (1988) Reissue, Remastered, 2016, Bullsey
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B09D70244865C77A538195C5D6B33173DA8C69D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305629   (556452) от 31.05.2019
-
-Richard Vimal - Migrations (1978) LP [MP3|320 Kbps] <Electronic, Synth-pop, Ambient>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Migrations (05:15)
-02. Nuances (02:53)
-03. Evanescence (03:25)
-04. Septentrion (03:40)(   Читать дальше...   )Жанр: Electronic, Synth-pop, AmbientПродолжительность: 00:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF62F7C0336B9B21D14D3E8A662660A0815C8F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305508   (556446) от 31.05.2019
-
-VA - Simplified More Than Acoustic (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freestyle - So Slow
-02. Aiza Seguerra - Power of Two
-03. Paolo Santos - Moonlight over Paris
-04. Side A - Sailing(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3406FDE883D6DE14433243A6B6994CC0E7320756
 ```
 
 https://mybot314.ru/tekegram_catalog/

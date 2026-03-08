@@ -1,3 +1,61 @@
+###  Публикация: 1390183   (783361) от 14.06.2020
+
+VA - Sunset Surfing Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Blue Rose (Eivizzards Mix)
+02. Marga Sol - Around Me (Deep Chill RMX)
+03. Dominik Pointvogl - Berlin Rooftop (Original Mix)
+04. Patiotic - Late Night Neon (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5047BD5D9AA24DFFB70D742D3F68CC8CD8F4B0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390296   (783358) от 14.06.2020
+
+VA - On the Beach Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Gary B - Get This Right (Original Mix)
+02 Michael E - Infinite Beauty (Original Mix)
+03 Clive Button - A Wish Come True (Original Mix)
+04 Weber & Weber - Close to Nature(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B1F9B044F4B735E2E1DDC6DA4D982CB5E5031B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390238   (783356) от 14.06.2020
 
 VA - Russian Trance 2020 [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
@@ -686,64 +744,6 @@ Associates - Sulk (1982) Bonus Tracks, Remastered, Reissue, 2000, V2 Music Ltd. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F7EC8547596564E8EBEF1D988EBE279074A608B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390514   (782697) от 16.06.2020
-
-Logic Moon - 2017 (2020) Logic Moon Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2017 (06:52)
- 02. 2017 - Drone (04:29)
- 03. Ethereum (06:23)
- 04. Oktober And Your Smile (08:18)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5241390664EC4C7B4B02044CE4743EDB7BD872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390528   (782688) от 16.06.2020
-
-Approaching Black - Dusk (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Chill House, Ambient House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening A Different Door (4:47)
- 02. Entering Eden (5:09)
- 03. No More Grey (7:28)
- 04. Stand By My Side (4:54)(   Читать дальше...   )Жанр: Deep Progressive House, Chill House, Ambient HouseПродолжительность: 02:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33432DBDF88F43EE3617F5ABE60A7D25D9E09070
 ```
 
 https://mybot314.ru/tekegram_catalog/

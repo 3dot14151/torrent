@@ -1,3 +1,61 @@
+###  Публикация: 1091164   (417507) от 01.10.2018
+
+Лена Василёк и Белый День - Босиком по России! (2015) [MP3|320 Kbps] <Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вера-Надежда-Любовь
+02. Мамин юбилей
+03. Папина дочка
+04. Сладкий мёд(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C6C424D2C1D7CC247141B395DBA4EA860E024C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167349   (417340) от 20.09.2017
+
+Titan - Dama (2016) [FLAC|Lossless|tracks] <Electropop, Nu Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dama Fina
+02. HelL.A. (featuring Siobhan Fahey)
+03. Tchaikovsky
+04. Sangre(   Читать дальше...   )Жанр: Electropop, Nu DiscoПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A40B223A228EB4FAC47D0ADE75CB0CA7294BD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065742   (417210) от 24.10.2016
 
 Fernando Express - Urlaub fur die Seele (2005) [FLAC|Lossless|image + .cue] <Schlager>
@@ -682,64 +740,6 @@ VA - Retro Futurism - Italo Is Still Alive (2017) Compilation [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF4A7596B5AB25DA7BF8FC96FD422C7BEBFE32B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573285   (414638) от 30.08.2022
-
-Various - The Best Of Italo-Disco Vol. 4 (1985) [OGG Vorbis|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betty Miranda – Dance	6:17
-02. Max-Him – Lady Fantasy (Remix)   6:33
-03. Koto – Visitors	6:18
-04. Camaro's Gang – Fuerza Major	5:36(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DA0F3099DAA596BECE05EFDDB8F96B10801311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325263   (414481) от 14.09.2019
-
-Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M (2005) CD [MP3|320 Kbps] <Electronic, Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Woman No Cry (3:39)
-02. Mary's Boy Child (3:13)
-03. Heart Of Gold (3:27)
-04. Mandela (4:11)(   Читать дальше...   )Жанр: Electronic, Pop, VocalПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8728FEF74777C0FD8DBFBBCF46F49D7A493504C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

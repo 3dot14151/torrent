@@ -1,3 +1,61 @@
+###  Публикация: 1539767   (656118) от 27.03.2022
+
+VA - The 80s (2022) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656118.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fleetwood Mac - Everywhere (2018 Remaster) (3:43)
+002. Joy Division - Love Will Tear Us Apart (3:24)
+003. The Smiths - This Charming Man (2011 Remaster) (2:42)
+004. a-ha - Take On Me (3:49)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4111D10955AE143BD6B33B4DFE9DAC3F720A7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539645   (656116) от 27.03.2022
+
+Scotch - Disco Collection (2003) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Band
+02. Take Me Up
+03. Mirage
+04. Money Runner(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C9CD34C302C4BDB418B96F76D47F63DC687863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539941   (656080) от 27.03.2022
 
 Фристайл - The Best (2002) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -689,64 +747,6 @@ Fancy - Turbo Disco (2002) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:672103AB8450E6F55A14E6E332A8E12FC4C84B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141063   (653948) от 08.06.2017
-
-Mc Lane Explosion - Space Music (1977) LP [MP3|320 Kbps] <Electronic, Ambient, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Fly (3:31)
-02. Bilitis (3:37)
-03. Accidental Lover (4:24)
-04. Fire Land (4:17)(   Читать дальше...   )Жанр: Electronic, Ambient, Synth-pop, DiscoПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB20783E17BF1F41F8CD10C66DD8CFD31FF6072F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141029   (653935) от 08.06.2017
-
-Munich Machine - Get On The Funk Train (1996) Remaster, 2011, Repertoire Records, Compilation [FLAC|Lossless|image + .cue] <Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get On The Funk Train (15:43)
-02. Love To Love You Baby (2:33)
-03. Trouble Maker (2:47)
-04. Try Me, I Know We Can Make It (3:31)(   Читать дальше...   )Жанр: Disco, ElectronicПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC5A3F0DD1C1831898B1939BDF9D677A45235C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

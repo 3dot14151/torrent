@@ -1,3 +1,29 @@
+###  Публикация: 976888   (967827) от 19.01.2016
+
+Icecream Image Resizer 1.35 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатная программа, созданная для удобного и быстрого изменения размеров фотографий. Программа поддерживает основные графические форматы такие как JPEG, JPG, PNG и TIFF. Можно установить нужные значения высоты и ширины как вручную, так и используя готовые шаблоны. Image Resizer позволяет быстро добавить и уменьшить или увеличить размеры любого количества файлов.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB211D34722779C8CE15B5BA5125E493676C0C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976385   (967821) от 19.01.2016
 
 VA - Offworld Transmissions Vol. 4 (2014) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -662,34 +688,6 @@ Pascal Obispo - Adam et Eve, la seconde chance (2012) [MP3|320 kbps]<Musical>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619451   (967677) от 16.02.2013
-
-Wallpapers - Supercars HD [JPEG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка широкоформатных обоев Supercars HD
-В сборку вошли следующие автомобили:
-Alfa Romeo, Aston Martin, Audi, Bentley, BMW, Bugatti Veyron, Chevrolet, Dodge, Ferrari, Ford, Honda, Jaguar, Lamborghini, Lexus, Lotus, Maserati, Mercedes-Benz, Nissan, Pagani Zonda, Noble, Porsche, RUF, Spyker.Разрешение файлов: 1920 x 1200Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BE6AE434B06F63A7C431DEC1FA01683673B11D
 ```
 
 https://mybot314.ru/tekegram_catalog/

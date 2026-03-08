@@ -1,3 +1,32 @@
+###  Публикация: 1205754   (783255) от 11.02.2018
+
+Mal Waldron - Mal: Live 4 To 1 (1971) 1989, Nippon Phonogram [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left Alone [09:16]
+02. Right On [12:05]
+03. Thoughts [14:30]
+04. Little Abi [07:42](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4BBB26DD51C7194DA58223980F670F97D8437C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205761   (783254) от 11.02.2018
 
 Marian McPartland - Portraits (1999) NPR Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -716,35 +745,6 @@ California Swing Cats - Stealin' Apples (1997) Jazzology Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55ABDC41DA3565E5860AD4784D09E91474781240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207176   (780902) от 17.02.2018
-
-Benoit Viellefon & His Orchestra - Mon Amour (2014) JohnJohn Records [FLAC|Lossless|image + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Must Be Jelly [02:45]
-02. Ca S'fait Pas [03:11]
-03. You Run Your Mouth [02:41]
-04. Mon Amour [02:52](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB02F96F21D218D2C3ABA3C1834E62E518B2AFC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

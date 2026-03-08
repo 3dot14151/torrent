@@ -1,32 +1,3 @@
-###  Публикация: 1450284   (1029011) от 26.02.2021
-
-Слот - Инстинкт выживания (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Introduction [00:01:17]
-02 Инстинкт выживания [00:03:57]
-03 Норма [00:04:30]
-04 17 лет [00:03:42](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD106563FC850D51C8FB11CEA9015D38462CADA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450363   (1028962) от 26.02.2021
 
 Земфира - бордерлайн (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -743,6 +714,35 @@ Fish - Change of Heart (1997) CDS, Single [FLAC|Lossless|image + .cue] <Prog Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A063DAED888B3D0637E2D623C36BFA3B269DCF67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451159   (1028557) от 01.03.2021
+
+Lee Kerslake - Eleventeen (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celia Sienna (05:48)
+02. Take Nothing For Granted (03:23)
+03. Where Do We Go From Here (04:30)
+04. You May Be By Yourself (But You're Never Alone) (06:05)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB357EBED948F2DD803407F93493415167327566
 ```
 
 https://mybot314.ru/tekegram_catalog/

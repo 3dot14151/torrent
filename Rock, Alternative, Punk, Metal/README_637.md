@@ -1,90 +1,3 @@
-###  Публикация: 1250890   (422460) от 29.09.2018
-
-Riverside - Wasteland (2018) Special Edition [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Day After
-02. Acid Rain
-03. Vale Of Tears
-04. Guardian Angel(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D1F4848B54FB695A3378D65D43F64FB928F58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515588   (422421) от 27.09.2020
-
-White Lion - 8 Albums, 1 Box Set (1985 - 2020) 18 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422421.jpg" />
-</div>
-
-
-###  Подробнее
-
-White Lion — американская хард-рок группа, созданная в 1983 году в Нью-Йорке вокалистом Майком Трампом, прибывшим из Дании и гитаристом Вито Братта, уроженцем Нью-Йорка. Творческая активность и успех группы пришлись на вторую половину 1980-х годов, когда были выпущенны их хиты «Wait» и «When the Children Cry», достигшие 8-й и 3-й строчки, соответственно, в чарте (   Читать дальше...   )Список альбомов:
-1985 - Fight To Survive
-1987 - Pride
-1989 - Big GameЖанр: Hard Rock, GlamПродолжительность: 18:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1EF79B67C3BE082B40A8FFB427574350B1095B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250565   (422375) от 29.09.2018
-
-Rod Stewart - Blood Red Roses (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look In Her Eyes (4:12)
- 02. Hole In My Heart (3:27)
- 03. Farewell (4:16)
- 04. Didn't I (feat. Bridget Cady) (4:01)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492155FFC9912222A15583E847C1D36EB616817E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166933   (422062) от 18.09.2017
 
 Bakerloo - Bakerloo (1969) Reissue, 1993, Repertoire Records [MP3|320 Kbps] <Heavy Blues Rock, Acid Rock, Prog Rock>
@@ -749,6 +662,93 @@ Belphegor - Collection (1993 - 2017) 13CD [FLAC|Lossless|image + .cue] <Death, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA5C33F47A58CFDB7ECDE293DDB08B374690B10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572294   (421041) от 27.08.2022
+
+Janis Joplin (Big Brother & The Holding Co. feat. Janis Joplin) - 22 albums, 1 Box-set, 50CD (1967-2018) [FLAC|Lossless|image + .cue | tracks + .cue] <Psychedelic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американскую рок-певицу Дженис Джоплин часто называют королевой рок-н-ролла и главной звездой поколения хиппи. Она занимает 46-е место в списке «50 величайших исполнителей всех времён» журнала Rolling Stone и 28-е в списке «100 величайших певцов и певиц всех времён». По словам рок-критика Люси О’Брайен, выступления Джоплин отличались захватывающей спонтанностью и (   Читать дальше...   )--------------------------
+
+01. Try (Just a Little Bit Harder) (3:41)
+02. To Love Somebody (3:15)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues Rock |Продолжительность: 40:05:58 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C056AB89543FE539ABA09532B415C144A9DE7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572596   (421032) от 27.08.2022
+
+Imperial Age - New World (2022) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Windborn [00:03:45]
+02 - Legend Of The Free [00:04:13]
+03 - The Way Is The Aim [00:04:03]
+04 - To The Edge Of The Known [00:03:58](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5281EC8153814B3E1069625AD53EA1C17CA40CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 234205   (420949) от 22.10.2016
+
+Heart - Два альбома (2010-2012) [FLAC|Lossless|image + .cue|tracks + .cue]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fanatic (3:44)
+02. Dear Old America (4:02)
+03. Walkin' Good (w/Sarah McLachlin) (3:46)
+04. Skin And Bones (3:42)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA1BAB371B05D5469D593B26D19A2E4AD60CD37
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1089449   (950040) от 04.01.2017
+
+VA - Новогодняя Дискотека 80-х от Авторадио – 15 Лет (2017) [MP3|320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950040.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zodiac - Зодиак 5:20
+002. Веселые ребята - Бологое 3:44
+003. Поющие Гитары - Люди встречаются 2:52
+004. Веселые Ребята - Напиши мне письмо 3:15(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 03:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E9744D0D90FFF5CC751962C0900FABD2305DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089400   (949923) от 04.01.2017
 
 VA - Русские свежаки радиостанций. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
@@ -722,35 +751,6 @@ VA - New Year Jelly (2016) [MP3|320 Kbps] <Dance, Technodance, Euro-House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9740AC502823969469FD4C434D721E685F51CAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091107   (943103) от 09.01.2017
-
-VA - Singles Chart Hot 100 Billboard (24 December) (2016) [MP3|32-320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943103.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
-002. The Weeknd feat. Daft Punk - Starboy 3:51
-003. The Chainsmokers feat. Halsey - Closer 4:06
-004. Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CCBD66553FD5C4C99300E4B2B6FACBD5A64A7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

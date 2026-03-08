@@ -1,3 +1,177 @@
+###  Публикация: 1198504   (808159) от 11.01.2018
+
+VA - The World Of Heavy Metal Vol.3 (2018) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Manowar  -  House Of Death  4:23
+02.  Triosphere  -  Driven  4:38
+03.  Metal Church  -  No Tomorrow  5:09
+04.  Ozzy Osbourne  -  Mr. Crowley  4:55(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 06:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F147C0D799B680FB56BC425B4199517743122A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198325   (808155) от 11.01.2018
+
+VA - German Top 100 Single Charts 12.01.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808155.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Bausa - Was du Liebe nennst
+003. Camila Cabello - Havana (feat. Young Thug)
+004. Justin Bieber - Friends(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:148983CD56DF1396423258B8433D79927F20F32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383883   (807998) от 17.05.2020
+
+VA - Woodstock Rock Live (2020) 3CD [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain - Beside the Sea
+02. Janis Joplin - Summertime (Live at The Woodstock Music & Art Fair, August 17, 1969)
+03. Jimi Hendrix - Woodstock Inprovisation (Live at The Woodstock Music & Art Fair, August 18, 1969)
+04. Creedence Clearwater Revival - Keep On Chooglin' (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 16:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192EB249D52F5FE6BC29679CA0FBF1071AE99CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009876   (807980) от 22.04.2016
+
+VA - 100 Пудовый Auto hit №3 Шансон (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807980.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Евгений Любимцев - Ах Одесса-Мама
+002. Рома Рязанский - Это Было Давно
+003. Игорь Дань - Солнце
+004. Даниил Сорокин - Береги Ее(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1E0B3DEC5F13666A26CA4155E5376A8FD1AEAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009786   (807966) от 22.04.2016
+
+VA - Сто процентов хитов MTV. Часть 8 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807966.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Black Fox - Наступит Новый День
+002. Matisse & Sadko - Memories
+003. Enrique Iglesias & Gente De Zona & Descemer Bueno - Bailando
+004. Макс Корж - Не Выдумывай(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4CB27F8194C3FB4A1078178F6C5ED4A6222278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009735   (807965) от 22.04.2016
+
+VA - Eagle Song Native American Music (2016) [MP3|256 кб/с] <Folk, New Age, Ethnic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Indian Music - Qarwa Yaku
+02. American Indian Music - Runing Horse
+03. Land - Indians Music Wayrapa
+04. Native - Indians Music Sunquiman(   Читать дальше...   )Жанр: Folk, New Age, EthnicПродолжительность: 05:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8463859D0C9A05EB0FD48692A67729A5BB42FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504932   (807944) от 25.10.2021
 
 VA - Зайцев.нет Лучшие новинки Октября (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -577,180 +751,6 @@ VA - The Best Top 50 Ibiza Club Floor Fillers (2016) [MP3|320 кб/с] <House, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB1A73EA7FBBD8C7A52704DCF580FE3B8ADC7851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119828   (806064) от 29.03.2017
-
-VA - Energy Adventure Melodies (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chris Raynor - Kuiper (Original Mix)  8:02
-02.  Aero 21 - Purple Sky (Original Mix)  8:00
-03.  Ahmed Romel - City Of Life (RAM Remix)  7:08
-04.  Ben Stone & Mrozer - Astoria (Extended Mix)  6:45(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 02:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1544D5C68D1D5AD642B7BD5993AD7F254296E1BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198694   (806054) от 12.01.2018
-
-Joe Dassin - Joe Dassin & Toto Cutugno (2018) Compilations [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il Etait Une Fois Nous Deux (3:58)
-02. L'ete Indien (4:33)
-03. Et Si Tu N'existais Pas (3:30)
-04. Cote Banjo Cote Violon (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E079C487CE5AAC37DC23295416EAC5412EC30EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009887   (805845) от 23.04.2016
-
-VA - Italian Holidays: Extended Remix (2016) [MP3|320 кб/с] <Disco, Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emy Care - Fly in the Sky (Dance Mix)
-02. Giorgia (feat. Eros Ramazzotti) - Inevitabile
-03. Romantic Avenue Feat. Michael - Dangerous Heart (TDH Driver Longdrink Remix)
-04. Modа (feat. Emma) - Arriverа(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 09:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F9591686AAA3FA2AA58AFC7A9279062661D42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119774   (805764) от 29.03.2017
-
-VA - Best of Deep-House. Volume 2. Spectral Life [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moviero - Intro (Original Mix) (6:36)
-02. Aaron the Baron - The Time You Gave Me Love (Original Mix) (4:45)
-03. AFSHeeN - Tunnel - Radio Edit (3:40)
-04. Jaques Le Noir - Boy (Push My Botton)Жанр: Deep-HouseПродолжительность: 04:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D462429EA1A0A718005B31DC5C751B0DCCDED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384041   (805732) от 18.05.2020
-
-VA - Beatport Tech House: Sound Pack #81 (2020) [MP3|320 Kbps] <Tech, Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805732.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Subground - North Side
-002. Dave Allister - Panorama (Original Mix)
-003. Thomas Fehlmann - Triggerism
-004. Jack Liberto - Red Circle (Original Mix)(   Читать дальше...   )Жанр: Tech, Deep House, ElectroПродолжительность: 09:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D555723393D90A99A60E33E1B0928024F5F232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119777   (805605) от 29.03.2017
-
-VA - Best of Chill House 2017. Volume 1. Leave The Past [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Chill House, Deep-House, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamliki - La Renaissance (4:51)
-02. Dr. Feelx - Deep Is Love (Alex Barattini Sunset Mix) (5:55)
-03. Maxim Buldakov - Sunset (6:28)
-04. Solanos - Infinite Fields (5:24)(   Читать дальше...   )Жанр: Chill House, Deep-House, LoungeПродолжительность: 04:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7CAD27CDC3B25C4A3E072773F8B372F58984E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

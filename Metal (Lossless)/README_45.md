@@ -1,3 +1,90 @@
+###  Публикация: 978993   (961154) от 25.01.2016
+
+Abbath - Abbath (2016) Deluxe Edition [FLAC|Lossless|tracks+.cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To War
+02. Winter Bane
+03. Ashes of the Damned
+04. Ocean of Wounds(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A779287302DFBD071A2AD99BA3F8802242B88570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360533   (960935) от 15.02.2020
+
+Therion - Gothic Kabbalah (2007) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <Sympho Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wand Of Abaris
+02. Three Treasures
+03. Path To Arcady
+04. TOF | The Trinity(   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640DB1B71F58B2D728AB728583C78746FC5305A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360585   (960934) от 15.02.2020
+
+Iced Earth - The Glorious Burden (2004) [FLAC|Lossless|image + .cue] <Thrash Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Declaration Day 05:00
+02.When The Eagle Cries 04:07
+03.The Reckoning (Don`t Tread On Me) 04:56
+04.Attila 05:36(   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91BE28D91B22FF1A535F06F8C208541314376B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 785461   (960794) от 15.02.2020
 
 Into Eternity - The Scattering Of Ashes (2006) [FLAC|Lossless]<Progressive Melodic Death Metal>
@@ -660,90 +747,6 @@ Delain - Moonbathers (2016) Limited Edition 2CD [FLAC|Lossless|image + .cue] <Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4211DBCEFB24A179BE7D3B6FA8C4038F48B45558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943294   (949075) от 05.01.2017
-
-For Today - 6 Альбомов + 1 EP (2008-2015) [FLAC|tracks|Lossless]<Christian Metalcore, Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949075.jpg" />
-</div>
-
-
-###  Подробнее
-
-2008 - Ekklesia
-2009 - Portraits
-2010 - Breaker
-2012 - Immortal(   Читать дальше...   )Жанр: Christian Metalcore, Melodic HardcoreПродолжительность: 04:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72166735705067A5A9E5F28C00622A00C2BDA3AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362722   (948503) от 24.02.2020
-
-Eternal Tears of Sorrow - Before the Bleeding Sun (2006) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Lilith of My Dreams (4:51)
-02. Another Me (3:52)
-03. Red Dawn Rising (5:06)
-04. Upon the Moors (4:48)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A89541F989A5DC58250EDA088BA1DAE42DF9FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362652   (948408) от 24.02.2020
-
-Axel Rudi Pell - Gunfire (2020) Single [FLAC|Lossless|WEB-DL|track] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948408.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Gunfire [5:21]Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2695FC583627A3E136605AD7E989247DB67E991C
 ```
 
 https://mybot314.ru/tekegram_catalog/

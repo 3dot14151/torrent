@@ -1,3 +1,32 @@
+###  Публикация: 1014377   (776560) от 07.05.2016
+
+Eve Seltzer & Terminal Swing - Live at Shapeshifter Lab (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's All I Want to Know
+02. Alone Together
+03. Beautiful Love
+04. How Can I Lose You?(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CA3437F05B1789C45102D8AFBF4DC45B521186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212081   (776545) от 10.03.2018
 
 The Benny Goodman Quartet - Together Again! (1963) 2016, Sony Music [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
@@ -716,35 +745,6 @@ Dizzy Gillespie, Stan Getz, Coleman Hawkins - Sittin' In (1957) 2005, Verve [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E2C98BC46A69C8E60C1FF5D22EE59878D22D4FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124732   (773529) от 13.04.2017
-
-Chuck Mangione - Journey To A Rainbow (1983) [FLAC|Lossless|image + .cue] <Fusion, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey To A Rainbow (07:03)
-02. Do I Dare To Fall In Love (05:59)
-03. Love Bug Boogie (05:56)
-04. Buttercorn Lady (05:02)(   Читать дальше...   )Жанр: Fusion, Smooth JazzПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374C05C264D4909AA529C36EEEE9046485D078D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 111761   (57562) от 05.05.2024
+
+МакSим - Трудный возраст (2006) [FLAC|lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Трудный Возраст
+02 - Сантиметры Дыханья
+03 - Нежность
+04 - Лолита(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F4544CFA2D34A65AAEC3ECD9ED614CC90C9CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769933   (57541) от 05.05.2024
+
+Николай Караченцов - Что тебе подарить (2008) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Пролог   (3:15)
+02.  Кленовый лист   (3:25)
+03.  Что тебе подарить    (3:38)
+04.  Серенада Риккардо    (1:44)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F446D9EFE3549D7508AE0ABEFFF1F8DBAA1228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 135476   (57540) от 05.05.2024
 
 Винтаж - Криминальная любовь (2008) [APE|lossless]<Pop>
@@ -677,64 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB14B074FC6337222608D0CE3B4B90A5FF97D7A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725478   (55505) от 24.05.2024
-
-Монеточка - Молитвы. Анекдоты. Тосты. (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Это было в России
-2. Остановилось
-3. Заново
-4. Монополия(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864E8F5B582AD8F656C491A4B001322763BFD80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676704   (55131) от 28.05.2024
-
-Sandra - The Platinum Collection (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Maria Magdalena (Single Version)
-02.  In The Heat Of The Night (Single Version)
-03.  Little Girl
-04.  Sisters And Brothers(   Читать дальше...   )Жанр: Electronic, Pop, Eurodance, Euro-DiscoПродолжительность: 03:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCF413024024FA95CB3AAD5B1AB5B17ED9714A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

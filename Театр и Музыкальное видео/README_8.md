@@ -1,3 +1,32 @@
+###  Публикация: 607111   (994637) от 22.01.2013
+
+Лучшие клипы / The best videos of all time (Rock'n'roll) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Richard - Lucille
+02. Bill Haley And His Comets - Vive La Rock 'N' Roll
+03. AC DC - That's the Way I Wanna Rock N' Roll
+04. Britney Spears - I Love Rock 'N' Roll(   Читать дальше...   )Жанр: Музыка, Rock, Rock'n'rollПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85A64ECB7F1C1CCEF837049CBCBB0047FAE871E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 430378   (994160) от 01.01.2012
 
 СупердискотЭка - Супердискотека 90-х (2011) SATRip
@@ -679,32 +708,6 @@ Tom Boxer feat. Antonia - Shake It Mama (2011) HDRemux [h.264,1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:380F156AF6B948AAA28F3860CCDADAA9DEB5CBC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610096   (990253) от 29.01.2013
-
-Avril Lavigne - What The Hell (2011) BDRip [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A33350E750631491706C09F88B90D6E6398A9DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

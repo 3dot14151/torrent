@@ -1,3 +1,61 @@
+###  Публикация: 1487444   (1003625) от 05.08.2021
+
+Troekurovo Recordings | Toki Fuko, Vadim Basov, Evgeny Vorontsov - Discography 3 Releases (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Field Recording, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arctium (Intro) (05:19)
+ 02. Artemisia (12:48)
+ 03. Thymus (11:31)
+ 04. Companula (10:36)(   Читать дальше...   )Тип издания: WEBЖанр: Techno, Ambient, Field Recording, Experimental •Продолжительность: 07:19:32 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B7EE95B2435BFCD93479399384ED83AE8B29B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487448   (1003624) от 05.08.2021
+
+VA - Secret Room: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Sour - Who Is Lore?
+02. Finland & Aaskoven - Tahiti (Closing Theme)
+03. Will James - Daintree Twilight
+04. Project Blue Sun - Fly Away (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178594F75C7532EDE2022D2D4E61E5FB5E283915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487535   (1003618) от 05.08.2021
 
 VA - Amberdelic Space (1996) Dressed To Kill [FLAC|Lossless|tracks+.cue] <Downtempo, Acid, Broken Beat, Techno, Ambient, Breaks>
@@ -678,64 +736,6 @@ VA - Poker Flat Recordings: Best of 2019 (2019) Compilation [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA65931DCA62AEE2F1DB468B4B31004FE6F06DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350985   (1002757) от 08.01.2020
-
-Pete Tong & The Heritage Orchestra and Jules Buckley - Ibiza Classics - Live at The O2, London (2019-12-14) [MP3|320 Kbps] <House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Intro: Rob Dougan – Clubbed to Death
-01. Fatboy Slim - Right Here Right Now
-02. Armand Van Helden feat. Duane Harden- You Don't Know Me
-03. The Bucketheads - The Bomb!(   Читать дальше...   )Жанр: HouseПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA98F49946374176AA615CF94B46EE5CD332EE93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351199   (1002549) от 09.01.2020
-
-Action Nano - Select and Start (2008) (M-Tronic) [FLAC|Lossless|tracks + .cue] <Techno, IDM>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002549.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bad Arguments 	4:25
-2. S.E.T.I. 	4:23
-3. Trans-O-Ceanic 	4:49
-4. Weather Channel 	6:10(   Читать дальше...   )Жанр: Techno, IDMПродолжительность: 1:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BF00E2889DA30FD37DEBFEECC2B2AD2E4E969E
 ```
 
 https://mybot314.ru/tekegram_catalog/

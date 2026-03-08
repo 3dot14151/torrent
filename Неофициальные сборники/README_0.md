@@ -1,3 +1,177 @@
+###  Публикация: 1855476   (1058101) от 23.02.2026
+
+VA - Music News For Forum vol.163 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058101.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ирина Завадская - Живу я как душе моей угодно (02:11)
+ 002. 7 Отличий - Где-то ты (02:59)
+ 003. 7 Отличий - Мечта (04:09)
+ 004. 7 Отличий - Вне формата (03:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC5682870595C634F127BDDC4725F0FB52145FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855162   (1058046) от 21.02.2026
+
+VA - Euro Hits 2021 (2021) [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058046.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:00]. 001-Melisa & Tommo - I'm Alone
+[3:01]. 002-Paul Oakenfold & Zhu & Velvet Cash - I Am Into It
+[3:30]. 003-Md DJ- The Real Slim Shady (cover Eminem)
+[3:13]. 004-Bruno Martini & Timbaland & Mayra - Riot(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 05:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9B8602D2B7F2E51FB5D5B0A0C691F2CE1A7A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855134   (1058041) от 21.02.2026
+
+Reteox - Favorites Collection Part 4 (2026) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love in the Echo
+02 - In My Dream Tonight
+03 - December Nights
+04 - Silent Desire(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C7A5B55FE24893BD39825A44773A7AE8DD7C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854990   (1058026) от 21.02.2026
+
+Reyvi - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Flowers
+02 - Mi Noche Cambia
+03 - With Goodbye
+04 - My Life(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A32031C0764DEB9F70AE470127523D000EFD9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854985   (1058025) от 21.02.2026
+
+25/17 - Compilation (2004-2025) [MP3|320 Kbps] <Hip-Hop, Alternative>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058025.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Два Пять Один Семь ❂ Только Для Своих 2009
+002. Подорожник (п.у. Дмитрий Ревякин) ❂ Русский Подорожник 2014
+003. Лифт ❂ Байки Из Склепа 2020
+004. Пока Не Выключат Свет ❂ Весь Мир Идёт На Меня Войной 2015(   Читать дальше...   )Жанр: Hip-Hop, AlternativeПродолжительность: 05:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CB6FDDB8681D30040437D6E8133AF74BA7FE61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855349   (1057920) от 22.02.2026
+
+Secret Service best (1979-2025) [MP3|320 Kbps] <electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057920.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:40] . 01-Ten O'Clock Postman
+[3:03] . 02-Angel On Wheels
+[4:37] . 03-Oh Susie
+[3:11] . 04-She Wants Me(   Читать дальше...   )Жанр: electronicПродолжительность: 03:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03381F7800EDFB318EBEC85DEBC4D0D215534F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855335   (1057919) от 22.02.2026
 
 VA - No name compilation part 57 Relaxing Smooth Soul Ballads (2026) [MP3|320 Kbps] <Relaxing ballads>
@@ -571,180 +745,6 @@ ABBA best (1973-1981) [MP3|320 Kbps] <Еlectronic, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8CF57ECBD57C0ECB0E02746FE2B3A1C3D57211B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852965   (1056283) от 10.02.2026
-
-Агата Кристи & Братья Самойловы - Compilation (1988-2025) [MP3|320 Kbps] <Alternative, Gothic rock, Art rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эвтаназия ❂ Резня в Асбесте 2015
-02. 1_1 ❂ Живые, Но Мёртвые 2013
-03. Барон и За Рекой ❂ Маленький Фриц 1990
-04. Бриллиантовые Дороги (& Могилевский А) ❂ Иллюминатор. Песни на стихи Ильи Кормильцева 2017(   Читать дальше...   )Жанр: Alternative, Gothic rock, Art rockПродолжительность: 09:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839FC7DD2EF737138A94DA2A45EBD393A730BBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852591   (1056159) от 08.02.2026
-
-Ai - No name compilation part 48 Soulful Ballad (2026) [MP3|320 Kbps] <Soulful Ballad>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Want You Tonight
-02 - Wise Love
-03 - I Heard You Die in My Dream
-04 - Baby, You're Slipping Away(   Читать дальше...   )Жанр: Soulful BalladПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C4F5248B39411184F98449FAD0BD5E4B642B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852489   (1056158) от 08.02.2026
-
-VA - Мелодии и ритмы (Russian Edition) (mixed by Dj V) (2026) [MP3|320 Kbps] <CLub House, Dance, Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Моя Мишель x Casso & D-Block Europe - Зима в сердце (Elmy Edit)
-02-BEARWOLF - Посмотри в глаза (Solomon08 Remix)
-03-Время И Стекло x Mind Electric - Имя 505 (Pitchugin Mashup)
-04-Минаева vs Andy Shik & Silver Ace - Шоколадка (DJ Baur VIP Edit)(   Читать дальше...   )Жанр: CLub House, Dance, PopПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F74DD488A8DE555BF18FEE064984022EA8E553B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852466   (1056157) от 08.02.2026
-
-Ai - Russian Covers Part 4 (2026) [MP3|192 - 320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ai - El Condor Pasa  (Полет Кондора)
-02 - K-Pop - Heart Attack (Бьётся Сердце)
-03 - Radůza - Есть Вещи Которые
-04 - Ai - Дом Восходящего Солнца (Русский Кавер)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA66FC55BAD86140DF7EAC8DFD56F25CB37094D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852437   (1056156) от 08.02.2026
-
-VA - Euro Hits 2022 (2022) [MP3|320 Kbps] <Pop, Dance, Electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056156.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:36]. 001-Swedish House Mafia - Calling On
-[2:22]. 002-Gran Error & Elvana Gjata & Antonia - Clap Clap
-[2:52]. 003-Inna & Stefflon Don - Yummy
-[3:03]. 004-Doja Cat - Vegas(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 06:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BF74F959027CD95D1EC8EFA94877D5BF996CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852683   (1056149) от 08.02.2026
-
-VA - National Pop Dance Music Vol.128 (2026) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056149.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cyril Martin - Feel The Town (03:00)
- 002. Dara Kinara - Tak Peduli (03:23)
- 003. Marebo - Wir Sind Nicht Heilbar (06:08)
- 004. Gazzarino - Ballerina Cappuccina (01:26)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1724C840F903DC2D3030B45D26E6836B970835
 ```
 
 https://mybot314.ru/tekegram_catalog/

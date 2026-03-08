@@ -1,3 +1,38 @@
+###  Публикация: 598003   (999995) от 04.01.2013
+
+Armin van Buuren - Live at Pier 36-New York City (31-12-2012) [MP3|~228 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Ana Criado - I'll Listen (Original Mix)
+ 02. Abstract Vision & Elite Electronic vsю Broning - Relict (Original Mix)
+ 03. Rank 1 - Airwave (Julian's Bootleg)
+ 04. Cosmic Gate feat. Emma Hewitt - Calm Down (Omnia Remix)
+ 05. Heatbeat - Chow Mein (Original Mix)
+ 06. W&W - Moscow (Original Mix)
+ 07. Dash Berlin feat. Emma Hewitt - Waiting (W&W Remix)
+ 08. Andrew Rayel feat. Jano - How Do I Know? (Original Mix)
+ 09. Faruk Sabanci - Elveda (Original Mix)
+ 10. Gareth Emery & Ashley Walbridge - DUI (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4B401C2B93B39774BE33BE8CD90E173237B3F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597644   (999990) от 04.01.2013
 
 Одна тёмная ночь / One Dark Night (1983) DVDRip [EN]
@@ -664,32 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598591   (999882) от 04.01.2013
-
-Шкатулка проклятия / The Possession (2012) BDRip [720p] [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочка покупает винтажную шкатулку на ярмарке в одном из соседних дворов. Поначалу родители не видят повода для беспокойства, когда их младшая дочь становится одержима новой игрушкой. Со временем поведение девочки становится все более странным, а реакции неожиданными, родители пытаются раскрыть секрет шкатулки. Они не подозревают, что в деревянной коробке живет злой дух, который творит страшные вещи со своими хозяевами — их было много и владели они этим «сокровищем» очень недолго. Отец девочки объединяется с бывшей женой в попытках найти способ снять проклятие с их ребенка.Жанр: Ужасы, ТриллерРежиссер: Уле БорнедальАктеры: Джеффри Дин Морган, Наташа Калис, Кира Седжвик, Мэдисон Девенпорт, Роб ЛаБелль, Матисьяху, Джей Бразо, Грант Шоу, Нана Гбивонио, Анна ХэганПеревод: ОтсутствуетПродолжительность: 01:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65FC9B3F68A0C468B14FFF504FB37F7FB69D0B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

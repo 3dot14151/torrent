@@ -1,3 +1,32 @@
+###  Публикация: 770598   (850541) от 25.03.2014
+
+VA - Exclusive DJ Pack (03.01.2014) [MP3|320 кб/с]<Dance, Nu Disco, House, Techno, Trance, Breaks, Minimal, Chill, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addictive Glance - Strider (Vassilakis, Tarr Remix) (06:28)
+ 02. Anden State - Unizus (Original Mix) (07:14)
+ 03. Arman Bahrami, Ailsa Villegas - Beat Of My Heart (Uplifting Mix) (07:49)
+ 04. Blood Groove, Kikis - Voices (Original Mix) (07:06)(   Читать дальше...   )Жанр: Dance, Nu Disco, House, Techno, Trance, Breaks, Minimal, Chill, OtherПродолжительность: 07:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA077F2FBB4A6EB3AAEB773C6C40D03D618441BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002041   (850464) от 30.03.2016
 
 VA - New Era Drum And Bass (2016) [MP3|320 кб/с] <Drum And Bass, Dubstep, Jungle>
@@ -713,35 +742,6 @@ VA - Hard Fusion: Hardstyle Music For Sport (2020) [MP3|320 Kbps] <Hardstyle, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D8A4EBD8A50D459D25641E766A48CE046220B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378631   (844803) от 26.04.2020
-
-VA - Record Super Chart 633 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Big - UNO 2:41
-02. Billie Eilish - Everything I Wanted (Arroy & Sergey Raf Remix) 3:28
-03. El Capon - Shut Up Chicken 2:31
-04. NRD1 - All Good Things (Come To An End) 3:27(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCA5E1F63A1670E6B88952342483B227558231C
 ```
 
 https://mybot314.ru/tekegram_catalog/

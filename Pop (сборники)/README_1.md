@@ -1,3 +1,32 @@
+###  Публикация: 1443348   (1035727) от 28.01.2021
+
+VA - Festa Italiana (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нет равнодушных к мотивам знаменитых итальянских музыкантов. Итальянская музыка это не только творения популярнейших композиторов, исполненные звездами прошлых лет, но и музыка современных поп- и рок-музыкантов.01. 883 - Gli Anni (Bliss Team Classic Remix)
+02. Raffaella Carra - Mamma Dammi 100 Lire
+03. Bravo - Raggio Di Sole
+04. Pino Daniele - Cumba(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 01:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0AFA8CC9472FA13786745B5EE67591EA7ECE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444844   (1034222) от 03.02.2021
 
 Thе Ritсhiе Fаmily - Bad Reputation (1975-1983) [MP3|320 Kbps] <Pop, Funk, Disco>
@@ -718,35 +747,6 @@ VA - National Pop Dance Music (Vol.14) (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA7BD371607728E646CD660CCA2C438F3A34DA53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458966   (1023472) от 31.03.2021
-
-VA - Just My Dream: Disco Dance Mix (2021) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почитатели и друзья диско музыки! Налетайте! Всё-таки надо и как-то отдохнуть от этих электро звуков и окунуться в мир живых и ярких мелодий. А потому почему бы не украсить время отдыха музыкальной подборкой танцевального направления в формате доброго диско? Представляем Вам танцевальный сборник для души и тела – «Just My Dream».001. Atfunk - Something About You
-002. Microsha 89 - 2021
-003. Da Lukas - Pretty Face
-004. Boogietraxx - On My Mind(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 11:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:431310F1E61BC5966BFC1ED54A50B2C4341890DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

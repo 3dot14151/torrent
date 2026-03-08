@@ -1,3 +1,32 @@
+###  Публикация: 1397311   (741362) от 19.07.2020
+
+VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Hush - Good Vibrations (3:25)
+02. Orlando - Singing In The Rain (4:06)
+03. Heartclub - Super Trouper (3:53)
+04. DJ Kee - Mamma Mia (3:53)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69750BC0797E214135DE1A7F7D7DED212F7C3251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283139   (741232) от 15.02.2019
 
 BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
@@ -714,35 +743,6 @@ VA - The Annual Festival Sessions (2016) [MP3|320 кб/с] <Club House, Electro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A3084B39C0F7F8EC73B2A265D19D503186698E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284527   (727847) от 22.02.2019
-
-VA - Melodic House Sessions, Vol.12 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregor - The Winter Carnival (Original Mix) 8:24
-02. Koffee & AmFlow - Raw Uncut (UnCut HardCore Instrumental) 5:15
-03. Alex Lem - Siren (Original Mix) 3:48
-04. Polyakk - Boom (Original Mix) 2:24(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DA5D0FCA00EBA46C8D59F50DE971C2A68F40ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

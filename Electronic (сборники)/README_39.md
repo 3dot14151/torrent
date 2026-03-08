@@ -1,3 +1,32 @@
+###  Публикация: 1375375   (865500) от 14.04.2020
+
+VA - Beatport Trance: Electro Sound Pack #55 (2020) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865500.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Samsara - Rites Of Autumn (Original Mix)
+002. Semantic Maze - Fine (Original Mix)
+003. Drym - Hypnotic (Extended Mix)
+004. Enea Marchesini - Sensations (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 12:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4457668E8A0E5FB08E82FD2A8775D6FCA3EAD30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874167   (864994) от 02.03.2015
 
 VA - Music For Everyone - Club House Vol.3 (2015) [MP3|320 кб/с]<House, Vocal House>
@@ -716,35 +745,6 @@ VA - Try The Better World (2021) [MP3|320 Kbps] <Ambient, Meditation, Relax, New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F780EA8300CD6985253B7F7A40931D6455D51979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000628   (857562) от 26.03.2016
-
-VA - Trance Desire Volume 64 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moreno J - Welcome Home (06:06)
-02. Wellenrausch feat. Andre Berger - Virtual Self (Album Mix) (06:57)
-03. Trance Arts feat. Hysteria! - Still Have a Choice (Uplifting Mix) (05:10)
-04. Sou Kanai feat. Claire Willis - Stay (Dennis Pedersen Remix) (04:54)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1685EE6AA96A475625EF7BDAB56FEDD4E7115F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

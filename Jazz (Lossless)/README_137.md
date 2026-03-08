@@ -1,3 +1,32 @@
+###  Публикация: 1548318   (595095) от 05.05.2022
+
+Erroll Garner - Portrait (1944 - 1954) 10CD, 2003, Documents [FLAC|Lossless|image + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595095.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - I Hear A Rhapsody:
+01. Perdido [2:45]
+02. I Hear A Rhapsody (Parts 1&2) [8:19]
+03. You Where Born To Be Kissed [5:14](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 09:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6474D1309256D5D68B070629F0327A4FDBF0BECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232968   (595094) от 27.06.2018
 
 Sarah Vaughan And Her Trio - At Mister Kelly's (1957) 1987, Emarcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Adrien Varachaud Unity 5tet - Strange Horns (2010) Self-Released [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD2A88C345813A0EA5A78D5DAFA0D84DBDF10A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549987   (592529) от 10.05.2022
-
-Stan Kenton And His Orchestras - The Kenton Era (1941 - 1953) 2CD, 2007, Sounds of Yester Year [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592529.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Prologue [11:48]
-02. Artistry In Rhythm [0:43]
-03. Two Moods [2:08](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 02:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB2FB7BF4905657041D8D7F2A97AF7988F4B1BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

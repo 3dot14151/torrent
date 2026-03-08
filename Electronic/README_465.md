@@ -1,3 +1,61 @@
+###  Публикация: 1696899   (119357) от 04.02.2024
+
+Kmfdm - Let Go (2024) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Industrial Rock, Electro-Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Go [00:04:12]
+02. Push! [00:04:34]
+03. Next Move [00:05:09]
+04. Airhead [00:04:41](   Читать дальше...   )Жанр: Progressive Rock, Industrial Rock, Electro-IndustrialПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A36F573E73581EE6FDC590D7D78CCB6B0E62756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696890   (119349) от 04.02.2024
+
+Eguana - Exploration (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Ambient Chill>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Consciousness Connection (8:19)
+02. Solar Vibrations (8:05)
+03. Association Patterns (8:26)
+04. Inner Exploration (8:03)(   Читать дальше...   )Жанр: Ambient, Ambient ChillПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25292C6BCADA5145912EC3B69E6028D6B2EB91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696826   (119326) от 04.02.2024
 
 Cyberaktif - eNdgame (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro, Industrial>
@@ -687,64 +745,6 @@ VA - Erotic Trap -  Bondage, BDSM, Role Play, Fetish, Domination, Rough Sex (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A4C4EDE77402AA120831B770C2BE3C17DA57B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699308   (117973) от 12.02.2024
-
-VA - Nothing But... Trancetopia Vol. 12 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Hurman & Julio Posadas & Pedro Miras - Whales On Sea (Vicente Panach Remix) [6:36]
-02. GLF - So Far (Original Mix) [5:32]
-03. James Kitcher & Adam Taylor - Avenues (Original Mix) [7:14]
-04. Gerry Galago - Dreamscapes (Radio Mix) [3:48](   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC7AB059F6F4C56793FCCA98ED9ED3C12BB796FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699186   (117956) от 12.02.2024
-
-VA - Deep Sexy Funky House (2024) [MP3|320 Kbps] <House, Funky House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charles J - Charles J (Original Mix) (4:13)
-02. Cheesecake Boys & Crazibiza - Negra (Original Mix) (4:41)
-03. House Of Prayers & Crazibiza - What A Night (Original Mix) (4:48)
-04. Funksoul Brothers - What I Do (Original Mix) (4:30)(   Читать дальше...   )Жанр: House, Funky House, Nu DiscoПродолжительность: 03:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F603A05844913B502D7B1A713D94DD5608E568
 ```
 
 https://mybot314.ru/tekegram_catalog/

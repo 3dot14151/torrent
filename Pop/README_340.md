@@ -1,3 +1,73 @@
+###  Публикация: 464852   (80961) от 09.03.2012
+
+Fancy - The Original Hit Collection (2007) [MP3|320 кб/с]<Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_80961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames Of Love (4:03)
+02. Bolero (4:06)
+03. Slice Me Nice (5:27)
+04. Lady Of Ice (4:38)
+05. L.A.D.Y. O. (4:23)
+06. Chinese Eyes (4:29)
+07. Latin Fire (4:07)
+08. Bodyguard (6:27)
+09. Fools Cry (5:37)
+10. Way Of Love (4:26)(   Читать дальше...   )2007Жанр: Disco, PopПродолжительность: 01:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686800487AE1B343E3EDA7D1B14F9EFABFC46FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463191   (80695) от 07.03.2012
+
+ABBA - Collected (2011) [MP3|320 кб/с]<Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_80695.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Продолжительность:00:55:52
+1. Ring Ring (English Version) (3:08)
+2.  People Need Love (2:45)
+3.  Love Isn't Easy (But It Sure Is Hard Enough) (2:56)
+4.  She's My Kind Of Girl (2:44)
+5.  Waterloo (English Version) (2:46)
+6.  Honey, Honey (2:56)
+7.  Dance (While The Music Still Goes On) (3:13)
+8.  Sitting In The Palmtree (3:40)(   Читать дальше...   )2011Жанр: Pop, DiscoПродолжительность: 03:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0689E137817D4648BBCB1F122EF11CD6BFAD868F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463145   (80509) от 06.03.2012
 
 София Ротару - Лучшее (2008) [MP3|320 кб/с]<Pop>
@@ -737,64 +807,6 @@ Marius M.21 - Disco Classics (Best Reworks) (2011) [MP3|320 Kbps] <Italo-Disco, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D17224ADD21288522C055C2C4F929779D7BF8B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772646   (71731) от 12.01.2025
-
-The Flirts - Blondes, Brunettes & Redheads (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You And Me
-02. New Toy
-03. Voulez Vous
-04. Come To Me(   Читать дальше...   )Жанр: Electronic, Pop, Hi NRG, DiscoПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891D6942352428148F2AD227A3F514150CF144C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772651   (71729) от 12.01.2025
-
-Marius M.21 - Dreams (2016) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radtiation Alert (Original Long Version) (9:19)
-02. Another World (Special Extended Remix) (5:29)
-03. Summer Time (Original Long Version) (5:45)
-04. Don't Go Away (Original Version) (5:16)(   Читать дальше...   )Жанр: Italo-Disco, Space-DiscoПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8DDC4336537460477EE2A918A2B8EDC2911E20
 ```
 
 https://mybot314.ru/tekegram_catalog/

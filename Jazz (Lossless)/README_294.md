@@ -1,3 +1,32 @@
+###  Публикация: 1088260   (141344) от 30.12.2016
+
+Sam Most - From The Attic Of My Mind (1978) 2015, Xanadu[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.What Is, Is [05:39]
+ 02.Breath Of Love [05:54]
+ 03.Blue Hue [05:53]
+ 04.You Are Always The One [07:35](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89DDC26F2DBB1B50C14254037509FF7B6E4EB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088268   (141251) от 30.12.2016
 
 Gilberto Gil - Refavela (1977) 1994, Warner Music[FLAC|Lossless|tracks + .cue] <World Fusion, Brazilian Jazz, Bossa Nova>
@@ -716,35 +745,6 @@ Doctor Lonnie Smith - Too Damn Hot! (2004) Palmetto Records[FLAC|tracks+.cue] <J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C048341BE21A3E5AA725366BDA5ACA8472103A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520821   (139544) от 30.12.2021
-
-Artie Shaw - 1950 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Must Be Somethin' Better Than Love [2:56]
-02. Nothin' From Nothin' [3:02]
-03. Love Walked In [3:05]
-04. So Easy [3:08](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F82F20926967E8FA1BAE3D692C33C704F742022
 ```
 
 https://mybot314.ru/tekegram_catalog/

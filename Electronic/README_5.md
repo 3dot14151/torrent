@@ -1,3 +1,61 @@
+###  Публикация: 1848679   (1052935) от 18.01.2026
+
+VA - Winter Lounge Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegant Ape - Feel The Fire (3:58)
+02. Silvan7 - Summer Emotions (3:57)
+03. Fly - Live (Radio Edit) (3:13)
+04. N.E.O.N - Monday Blues (Radio Edit) (4:21)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976528B256B45A21E2FE9AD15A530CD11E1B1E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848676   (1052926) от 18.01.2026
+
+VA - Levitated Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Rocca - Once In A Lifetime (Extended Mix) [7:17]
+02. Made Of Light & Vanessa Berni - Enjoy The Silence (Extended Mix) [7:22]
+03. Alternate High - Hope (Extended Mix) [6:41]
+04. Manuel Rocca - Brighter Than Sunshine (Extended Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0429E141382DE36F3E0D12A8E2252AEEE02DF5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848588   (1052925) от 18.01.2026
 
 VA - Silent Shore Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Metropolitan Chillhouse: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9207138B62AD0F3A5E02CC7522E464C14E02C420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846318   (1051313) от 24.01.2026
-
-VA - Tomorrowland Brasil (2025) [MP3|320 Kbps] <Techno, House, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agents Of Time & CERES - Baby
-02. Argy & Eli & Dani & Peki & ØSHER - Chasing Highs
-03. Cassian & YOTTO & Da Hool - Love Parade  w/Junior Jack - E Samba (Acappella)
-04. Agents Of Time ft. Ross Quinn - Friend Of Mine(   Читать дальше...   )Жанр: Techno, House, TranceПродолжительность: 36:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB848891D5BCC2889E46C1646635480C1FB085D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846171   (1051230) от 06.01.2026
-
-Hardwell - Hardwell On Air 527 (Yearmix 2025) (2026-01-02) [MP3|320 Kbps] <Techno, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardwell – Sanctuary (Intro Edit)
-02. Hardwell & Olly James – Lights Out
-03. Hardwell & Olly James vs. Hardwell vs. Tyla – Flatline vs. Spaceman vs. Water (Hardwell Mashup)
-04. Zedd & Foxes vs. Domeno & Michael Sparks – Clarity vs. Locked & Loaded (Hardwell Mashup)(   Читать дальше...   )Жанр: Techno, Big RoomПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB447124C4115CDE9DD401A73BCF3C2AC24AE69
 ```
 
 https://mybot314.ru/tekegram_catalog/

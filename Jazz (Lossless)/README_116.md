@@ -1,3 +1,32 @@
+###  Публикация: 1138835   (662426) от 31.05.2017
+
+Nada Jovic & Dusko Goykovic (Goykovich) Quintet - Take Me In Your Arms (1966) 2002, Cosmic Sound [APE|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Hearth Belong To Daddy [02:15]
+02. A Lot Of Livin' To Do [03:17]
+03. Where Can I Go Without You [02:55]
+04. Love Me Darling [02:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DDFA2828E9C17954AFFEC73EDF4B45FE8AA397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138833   (662425) от 31.05.2017
 
 Sonny Rollins - Modern Jazz Archive (1951 - 1954) 2CD, 2004, Membran Music [FLAC|Lossless|image + .cue] <Hard Bop>
@@ -713,35 +742,6 @@ Frank Avitabile - Bemsha Swing (2002) Dreyfus Jazz [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:168FD76498D19220BE81DE333F0BF9D50D0804ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139638   (659374) от 03.06.2017
-
-Carla Bley - Looking For America (2003) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Experimental Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grand Mother [00:54]
-02. The National Anthem [21:50]
-03. Step Mother [03:19]
-04. Fast Lane [05:18](   Читать дальше...   )Жанр: Post-Bop, Experimental Big BandПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36507B83D1B161DEC06416D3D6B2C8A35FBEB06
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1589411   (190149) от 09.11.2022
+
+VA - Deep House, Baby 5 (2022) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_190149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand & Ellie Lawson - Wide Awake (RoelBeat Remix) (3:38)
+02. Costa Mee - Remembering Your Touch (Housenick Remix) (4:16)
+03. Katie Melua - Wonderful Life (Scanna Remix) (2:49)
+04. NekliFF, Mary S.K. - Parallel Life (Original Mix) (4:34)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B72ABB514BD57519779215AD1F4B3D8BD2A8362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589426   (189686) от 11.11.2022
 
 Besso - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
@@ -716,35 +745,6 @@ VA - Car Music Mix 4 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE0D9A54C4FB73F159EB85575C830482C744BC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429297   (176876) от 06.12.2020
-
-VA - Beatport Electro House: Sound Pack #204 (2020) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный 204-й сборник от Beatport со своей чрезвычайно атмосферной и высококачественной музыкой безусловно придётся Вам по душе, если вы фанат танцевальной музыки в направлении Electro House. Представленные треки продуманы до самых мелочей и демонстрируют истинную эстетическую гармонию. Приятного прослушивания!001. Beaudamian - Butterflies
-002. Zorbis - Lobby
-003. White Gangster - Insert Coin
-004. Jakaval - Los Angeles(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 09:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DA4CD5AEAD5A3D3C901DB0B1DD527713963C06
 ```
 
 https://mybot314.ru/tekegram_catalog/

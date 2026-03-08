@@ -1,3 +1,33 @@
+###  Публикация: 1220218   (544420) от 01.08.2018
+
+Iron Maiden - The Book Of Souls: The Live Chapter (2017) DVD5 [hand made]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия концертного альбома Iron Maiden "The Book Of Souls: Live Chapter", вышедшего 17 ноября 2017.
+ "The Book Of Souls: Live Chapter" включает 17 песен, записанных во время гастролей "World of the Book Of Souls World Tour" в 2016-2017 году, которые охватывали 39 стран на шести континентах. Всего за эти два года шоу Iron Maiden увидело (   Читать дальше...   )01.If Eternity Should Fail
+ (Live At Qudos Bank Arena, Sydney, Australia - Friday 6th May 2016)
+02.Speed Of Light
+ (Live At Grand Arena, GrandWest, Cape Town, South Africa - Wednesday 18th May 2016)(   Читать дальше...   )Производство: Warner Music CompanyЖанр: heavy metalРежиссер: Ryan TitleyАктеры: Iron MaidenПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CA8DB69EA666A672B9A7DE46C39E5AB9C5FFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311259   (543325) от 28.06.2019
 
 Жара в Дубае (2019) WEBRip [H.264/1080p-LQ] (части 1-2 из 2)
@@ -695,35 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD118C680525476A2906409415B26F87EBFDC26A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366840   (536899) от 23.07.2011
-
-Lounа - Фестиваль "Нашествие 2011" (2011) WEB-DLRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Мой Рок-н-Ролл
-02-Бойцовский клуб
-03-Кому веришь ты?
-04-Зачем?(   Читать дальше...   )8, 9, 10 июля в Тверской области состоялся десятый юбилейный крупнейший всероссийский фестиваль на открытом воздухе «НАШЕСТВИЕ». В этом году фестиваль собрал еще больше гостей, чем в прошлом. В общей сложности за 3 фестивальных дня «НАШЕСТВИЕ» посетили более 170 000 человек. Несколько сотенЖанр: КонцертПродолжительность: 00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3F889BC8959FE2290629A52BA97DFE1424FBDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

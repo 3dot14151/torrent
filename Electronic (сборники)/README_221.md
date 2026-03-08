@@ -1,3 +1,32 @@
+###  Публикация: 1760084   (37508) от 12.11.2024
+
+VA - Warm Time Electro House (2024) [MP3|320 Kbps] <Electro, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37508.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nick Chacona, Sasse & The Green Men - The Fog - (09:24)
+ 002. Sebb Junior - A Million Ways - (05:48)
+ 003. Aaron Khaleian & Ambient Pino - Gobi - (06:23)
+ 004. Antony Well - Lua Solidaria - (06:27)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 13:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759BB99DC86797534C3B71AB24BC6E37027C64D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760324   (37362) от 13.11.2024
 
 VA - Trance In Motion Vol.382 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
@@ -716,33 +745,6 @@ VA - Compilation part 134 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F83EABBE8D0D924D1A034980FFEE61B6AD50EBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769430   (32783) от 28.12.2024
-
-VA - Remixes 2025 (2024) [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32783.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tommy Richman - Million Dollar Baby (Yuma Remix) (Dirty) (7:58)
-002. Jago Alejandro Pascua - Before The Sun Will Rise (Alex Raider Extended)Жанр: Club, Dance, OtherПродолжительность: 26:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF138919850D53B9CCF71E2FB3843BC95D4C12D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

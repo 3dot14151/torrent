@@ -1,3 +1,32 @@
+###  Публикация: 1132634   (701118) от 09.05.2017
+
+VA - Deep Sourge: Beach Edition (2017) [MP3|320 Kbps] <Deep, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701118.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren & Garibay Feat. Olaf Blackwood - I Need You 3:27
+002. Deeppirate Feat. Vilia - Love (Audio Luxury Remix) 5:41
+003. Ilkay Sencan - Back To Life 3:11
+004. Loungetronic - Ready Or Not - Nu Deep Mix 3:15(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 08:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4FD3DA5A91983B73414AD0EDB917FE81B221DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132368   (701018) от 09.05.2017
 
 VA - Club Dance Ambience Vol.108 (2017) [MP3|320 Kbps] <Club House, Vocal House, House>
@@ -716,35 +745,6 @@ VA - Record Super Chart 577 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CD756BAEDB6ABEA217FD21EB76CBBD964C62B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402748   (697719) от 16.08.2020
-
-VA - Record Super Chart 649 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DaBro - Юность (3:39)
-02. twocolors - Lovefool (3:10)
-03. Zivert feat. NILETTO - Fly 2 (3:25)
-04. Topic feat. A7S - Breaking Me (2:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212EFEDE178E4F050D9E2F0DA1DB78A42293E6DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

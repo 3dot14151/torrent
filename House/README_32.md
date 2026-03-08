@@ -1,3 +1,32 @@
+###  Публикация: 1031368   (668783) от 03.07.2016
+
+VA - Future House 2016-03 (2016) [MP3|320 Kbps] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugel & Jasmine Thompson -  Where We Belong (Calvo Remix) 4:27
+02. Cedric Gervais -  Make Me Feel 3:28
+03. Destructo -  4 Real (Joyryde Swurve Mix) 4:35
+04. Felix Leiter -  BWU 3:07(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 01:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A058B09E24F8EC498082A1FEB316FB84260D315F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031299   (668782) от 03.07.2016
 
 VA - Girl Power #1 (2016) [MP3|320 Kbps] <House, Electro House, Vocal House>
@@ -722,35 +751,6 @@ VA - Best Of Series: Miroslav Vrlik Vol.01 (2018) [MP3|320 Kbps] <Progressive Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:112713D3394B7905619DDC02B19B4FC1D6559AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140163   (658277) от 04.06.2017
-
-VA - Strong Stuff (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Following Light - Intention (Michael A Remix) 06:29
-02. Magnetic Brothers - Morning Feelings (K Nass Remix) 07:03
-03. Ewan Rill - Scanners 06:32
-04. Platunoff - Secret 07:09(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D90A49FBCEF789A7FB01FDF54F1060A0A8AF8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1143219   (637078) от 17.06.2017
+
+VA - Jazz Iluzion (2017) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637078.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Instrumental Jazz Music Ambient - Soothing Jazz Music  2:50
+002.  Good Morning Jazz Academy - Lucid Dreaming  3:54
+003.  Wake Up Music Paradise - Night Walk  3:28
+004.  Jazz for Study Music Academy - Sweet Music (Activities For Children)  3:11(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 07:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5929A54B9FF6A996070A1542CE4D09A9DD11B318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143425   (636946) от 17.06.2017
+
+VA - Relaxing Instrumental Jazz Music (2017) [MP3|320 Kbps] <Smooth Jazz, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636946.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Jazz Piano Bar Academy - Cool Instrumental Song  3:29
+002.  Classical Romantic Piano Music Society - Erotic Dance  3:03
+003.  Cocktail Party Music Collection - Atmospheric Jazz  3:18
+004.  Good Morning Jazz Academy - Jazzy Romance  3:07(   Читать дальше...   )Жанр: Smooth Jazz, InstrumentalПродолжительность: 08:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4789CAE06EC91D4BF7DE8A02FD77D8CCC26FCC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143422   (636942) от 17.06.2017
+
+VA - German Top 100 Single Charts 16.06.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636942.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi - Despacito (feat. Daddy Yankee)
+002. Robin Schulz - OK (feat. James Blunt)
+003. David Guetta - 2U (feat. Justin Bieber)
+004. Imagine Dragons - Thunder(   Читать дальше...   )Жанр: PopПродолжительность: 05:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2DDA578ECD8215EA9D7EC167A1F4F6B9BC28B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519241   (636909) от 06.07.2012
+
+VA - The Best of 1980-1990 (20CD) (1990 - 1998) [MP3|320 кб/с]<Pop, Pop Rock, Synth-pop, Hip Hop, Electronic, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simple Minds - Don't You (Forget About Me) (Radio Edit)
+ 02. David Bowie - Let's Dance
+ 03. Yes - Owner of a Lonely Heart
+ 04. Glenn Frey - The Heat Is On
+ 05. Billy Idol - Catch My Fall
+ 06. ZZ Top - Sleeping Bag
+ 07. Whitesnake - Here I Go Again
+ 08. Foreigner - Urgent
+ 09. Pete Bardens - In Dreams (Album Version)
+ 10. R.E.M. - The One I Love(   Читать дальше...   )Жанр: Pop, Pop Rock, Synth-pop, Hip Hop, Electronic, RockПродолжительность: 01:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE375268A0991B8A389EB1D13F19AFA7DE09E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033515   (636342) от 12.07.2016
+
+VA - Generation Trance Shadows (2016) [MP3|320 Kbps] <Trance, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kyau & Albert -  Be There 4 U (Ferry Tayle Radio Edit) 3:06
+02. Project 8 -  Injector (Original Mix) 7:00
+03. Jorn Van Deynhoven -  Flashback 3:15
+04. Sean Tyas & Darren Porter -  Relentless (Extended Mix) 6:56(   Читать дальше...   )Жанр: Trance, Energy, ProgressiveПродолжительность: 03:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA1D4F440F9A401A4AA67B85B3C4BF30B6FB15A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033761   (636274) от 12.07.2016
+
+VA - These Are Tuned 235 One Shots (2016) [MP3|320 Kbps] <House, Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636274.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Axizz & Freek vdH ft Lobke Verheyen -  Atlantis 5:21
+002. Blasterjaxx & Justin Prime -  Push Play (Original Mix) 5:05
+003. Armin Van Buuren feat Mr Probz -  Another You (Cid Radio Edit) 2:59
+004. Dimitri Vegas & Like Mike Vs DVBBS & Borgeous -  Stampede (Original Mix Edit) 2:56(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 21:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2268658A934F8C8E4485C6C4EA7F710454A56D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034204   (636273) от 12.07.2016
 
 VA - Lab Of Music: Deep House Sensation (2016) [MP3|320 Kbps] <Deep House, Electro, Club>
@@ -576,186 +756,6 @@ VA - Dance - Pop Vol. 2 (2019) [MP3|320 Kbps] <Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCBA6A681EBC1CFCCDEFAFB3157ED44934D6944C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908032   (635564) от 13.06.2015
-
-VA - Музыкальный подарок от Europa Plus (2015) [MP3|320 кб/с]<Pop, Dance, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635564.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mband - Она Вернётся (04:09)
-002. Nickelback - The Hammer's Coming Down (04:23)
-003. Slava Basyul - Разбуди Меня (04:13)
-004. Dirty South Feat. Kids Without Instruments - The Best Days (04:27)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 06:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830CFFD993B6E60FF9CC8F134C5252E6838E9450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143671   (635509) от 18.06.2017
-
-VA - Heliopause: Energy Exdendet Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mhammed El Alami & Ben Samy - Ocean Dream (Extended Mix)
-002. Johnny Yono - Severed Ties (Extended Mix)
-003. James Kiedis - Here I Stand
-004. Davey Asprey - Fallout (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 11:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC900AADEB090DD6123543915EFEE3341F54348D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293682   (635498) от 04.04.2019
-
-VA - Dance - Pop Vol. 3 (2019) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roksana Wegiel - Anyone I Want To Be (2:58)
-02. Hailee Steinfeld - Back To Life (from ''Bumblebee'') (3:54)
-03. Lanberry - Nie Ma Mnie (3:29)
-04. Sigrid - Don’t Feel Like Crying (2:37)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA38EF6AF44CE89F57D853E4D9474923877E3DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907974   (635437) от 13.06.2015
-
-VA - Русские свежаки радиостанций Топ новинок попмузыки (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635437.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вирус - Навстречу Мечте
-002. Lx24 - Когда Ты Рядом Со Мной
-003. Поющие Трусы - Красивый Конец!
-004. Mr. Credo - Медляк(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3765DADCEBBC1B25B6C9BBA02F7FAC2DE1A321A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143556   (635391) от 18.06.2017
-
-Ralph Lundsten - In Ralph Lundsten's Universe (2009) [MP3|320 Kbps] <Electronic, Experimental, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведский музыкант, композитор и режиссер (род. 6 октября 1936 года в Ersnas). Один из самых известных клавишников на синтезаторах и композиторов электронной музыки.01. Universe Calling (Universe, 1976) (3:32)
-02. The Space Sneaker (Universe, 1976) (1:35)
-03. In the Shade of the Purple Moon (Universe, 1976) (3:20)
-04. The hot Andromedary (Universe, 1976) (1:43)(   Читать дальше...   )Жанр: Electronic, Experimental, AmbientПродолжительность: 04:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAE26F7B112865E1B89DC84E3C6E67C4C5F77B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519822   (635342) от 07.07.2012
-
-VA - Клубная Дискотека DFM 50/50 (2012) [MP3|256 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oceana - Endless Summer (Bodybangers Remix Edit)
-02. DJ Smash - Young Hearts (Radio Edit)
-03. Nickelback - When We Stand Together (DJ Noiz Bootleg)
-04. MC Zali & Fidel Wicked - Nosom Po Kokosam
-05. Ledina Celo - Can You Touch Me Baby (Edit Mix)
-06. Бурановские бабушки - Party For Everybody (Dj Slon Remix)
-07. Sak Noel - Where
-08. Марсель - Иди Ко Мне (Remix)
-09. Bodyrox feat. Chipmunk & Luciana - Bow Wow Wow (Bluestone vs Loverush Radio Edit)
-10. DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow to California (DJ Favorite Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124ACF8D18EFF1F7DEB179A4DBBE27082AFB1E33
 ```
 
 https://mybot314.ru/tekegram_catalog/

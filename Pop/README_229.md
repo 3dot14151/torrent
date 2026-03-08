@@ -1,3 +1,61 @@
+###  Публикация: 1180205   (341966) от 03.11.2017
+
+Maroon 5 - Red Pill Blues (2017) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Best 4 U
+2. What Lovers Do (Feat. SZA)
+3. Wait
+4. Lips On You(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407882739C32D914AA327771F00410497B32C5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419105   (341850) от 27.10.2020
+
+VA - Now 100 Hits The Legends (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Michael - Faith 3:10
+02. Elton John - Sacrifice 5:06
+03. Tina Turner - The Best 5:30
+04. Amy Winehouse - Rehab 3:30(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 6:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5FD9513941D5E59CED7C014922055E2B1A4C4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257954   (341065) от 28.10.2018
 
 VA - New Italo Disco Top 25 Compilation, Vol.10 (2018) [MP3|320 Kbps] <Italo-Disco, NuDisco, HiNRG, Dance>
@@ -684,64 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73AC9036188BE5BF216CC00BEBBE1D1B60B03AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954613   (339478) от 08.11.2015
-
-Lara Fabian - Ma vie dans la tienne (2015) [MP3|320 кб/с]<Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quand je ne chante pas
- 02. Ma vie dans la tienne
- 03. Le desamour
- 04. S'il ne reste qu'un ami(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8518A595AC4389EBB115EAE2F69B85EAB2D377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954677   (339466) от 08.11.2015
-
-Secret Service - Disco Collection (2001) [MP3|320 кб/с]<Synthpop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Susie (03:37)
-02. Cry Softly (Time Is Mourning) (03:31)
-03. Ten O'Clock Postman (03:38)
-04. Let Us Dance Just A Little Bit More (04:25)(   Читать дальше...   )Жанр: Synthpop, DiscoПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2658F0F0542E8C03AC950AEC9B2F533AFF14A836
 ```
 
 https://mybot314.ru/tekegram_catalog/

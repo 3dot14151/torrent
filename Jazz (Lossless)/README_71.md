@@ -1,3 +1,32 @@
+###  Публикация: 1012523   (793673) от 01.05.2016
+
+Billie Holiday - My Man (1995) Series Success [APE|Lossless|image + .cue] <Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Man
+02. Miss Brown To You (Version 1)
+03. Keeps On A 'Raining'
+04. Love Man(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4383070D2124F161003CD4BBFA401AA561139344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012554   (793631) от 01.05.2016
 
 Miles Davis - Kind Of Blue (1958) 2CD, 2010, Not Now Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -714,35 +743,6 @@ Steve Tyrell - This Time Of The Year (2002) Columbia [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:185A7907A4C083773FCB99B91F1842906043C474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510084   (792207) от 15.11.2021
-
-Art Farmer - Silk Road (1997) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonk [6:38]
-02. Ancient Evening [8:27]
-03. Stardust [5:39]
-04. Dance of the One [7:34](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4EE6C64982C03F0705F35A007B8DC8AE53E2A4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

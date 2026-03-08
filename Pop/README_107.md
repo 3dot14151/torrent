@@ -1,3 +1,61 @@
+###  Публикация: 1526503   (738489) от 24.01.2022
+
+Sam Martin - Blue Tuesday (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Was Always You (4:00)
+ 02. All My Tears (2:41)
+ 03. I Still Haven't Found What I'm Looking For (3:39)
+ 04. A Day In The Life (3:58)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94058FC10A61408234BCC418CC679E2DB2A22A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526413   (738487) от 24.01.2022
+
+Madeline Juno - Besser kann ich es nicht erklaren (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neukölln (3:52)
+ 02. Obsolet (3:04)
+ 03. Jedes Mal (3:15)
+ 04. Tu was du willst (3:11)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86C555822107B643A1B5AC9938696B1DE63DC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526250   (738468) от 24.01.2022
 
 Вадим Байков - Русская рулетка (1993) [FLAC|Lossless|image + .cue] <Pop>
@@ -683,64 +741,6 @@ Marc Lavoine - Adulte jamais (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB43921A9811A5667617D65AD703D5D80393ADD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527643   (735861) от 30.01.2022
-
-Cats On Trees - Cats On Trees (2013) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn (3:00)
- 02. Sirens Call (3:44)
- 03. Jimmy (3:12)
- 04. Full Colours (2:58)(   Читать дальше...   )Жанр: Indie Pop, Pop-RockПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEB0D6D0C6A49166B74FA7FEFE443F50A6E08AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527656   (735860) от 30.01.2022
-
-Cats on Trees - Alie (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Please Please (4:11)
- 02. Wake Up (2:59)
- 03. Dad On The Moon (4:04)
- 04. Alie (2:54)(   Читать дальше...   )Жанр: Indie Pop, Pop-RockПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4F35E34806D8655A5DF9EF5C51ACC397AB59EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

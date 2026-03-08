@@ -1,3 +1,32 @@
+###  Публикация: 1371397   (892037) от 30.03.2020
+
+VA - Time For Dreams: Chillout Zone (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892037.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Albert Sokolov - Sea (Original Mix)
+002. Terje Saether - Tungtvann
+003. The Chill-Out Orchestra - Mother
+004. Peter Manson - Homeboy Hippi(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, DowntempoПродолжительность: 09:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F09898FB4E81262632DC6B5051771770773FC30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371395   (892034) от 30.03.2020
 
 VA - Beatport Electronic: Electro Sound Pack #38 (2020) [MP3|320 Kbps] <Synthetic, Dance, Club>
@@ -722,35 +751,6 @@ VA - Clubbing Dance House: Energy Playlist (2021) [MP3|320 Kbps] <Club, Dance, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95413B2CB88CC020A230B2D566305061EE422535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494623   (887745) от 08.09.2021
-
-VA - HGM: Organic House Deep Downtempo Mix (2021) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887745.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ben Pierre - Shima
-002. Báez - Is It Real
-003. Facundo Borras - Anyone
-004. Raffaele Ciavolino - Do You Love Me(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 09:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AFA863C948439AA0DDB4706494501BF1EC7B55
 ```
 
 https://mybot314.ru/tekegram_catalog/

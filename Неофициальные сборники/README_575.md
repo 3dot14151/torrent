@@ -1,3 +1,177 @@
+###  Публикация: 1603685   (209761) от 17.01.2023
+
+VA - The Charming Blues (2022) [MP3|320 Kbps] <Blues, Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209761.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jimmy Hall - Jumpin’ For Joy [03:47]
+002. Ben Harper - Bad Habits [03:45]
+003. Blind Blake - Southern Rag [02:53]
+004. Blind Boy Fuller - Homesick Blues [03:12](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 08:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6135E8C2577934EEEE2949467CCDC3012458FBDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644930   (209621) от 07.07.2023
+
+VA - Music News vol.278 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209621.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bebe Rexha feat. Snoop Dogg - Satellite (Alle Farben Remix) (03:24)
+ 002. 3-ий Январь - Тралики (02:03)
+ 003. 4EREDA - Суета (02:32)
+ 004. Acraze - In A Dream (02:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90105F625E4FB2D33560EC7301BD357222938404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643950   (209444) от 08.07.2023
+
+VA - Jamaica Reggae: Relax & Sound (2023) [MP3|320 Kbps] <Reggae, Ridim>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209444.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wstrn - Armagidion [03:48]
+002. Cutty Ranks - World Peace [04:22]
+003. Mike Brooks - Love You For Sure [04:25]
+004. Fikir Amlak & Kai Dub - Black Woman [03:46](   Читать дальше...   )Жанр: Reggae, RidimПродолжительность: 09:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7835085EFF33A330E4163F8B446DB3E090832E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645591   (209342) от 10.07.2023
+
+VA - Ibiza Mega Hits (2023) [MP3|320 Kbps] <Electropop, Funky, Indie Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weird - Aburaya
+02. Lutzenkirchen - The Thing from Beyond
+03. Nicky Jones - Vroom Vroom
+04. Van Snyder - Love In My Heart(   Читать дальше...   )Жанр: Electropop, Funky, Indie Dance, ClubПродолжительность: 02:21:30 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369751E56464C4B16D1F48FAF7E54E8886243123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645429   (209308) от 09.07.2023
+
+VA - German Top 100 Single Charts 07.07.2023 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209308.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Udo Lindenberg & Apache 207 - Komet (2:47)
+002. Ski Aggu, Joost & Otto Waalkes - Friesenjung (2:26)
+003. Yung Yury & Damn Yury - TABU. (2:15)
+004. Luca-Dante Spadafora, Niklas Dee, Octavian, Peter Plate & Ulf Leo Sommer - Mädchen auf dem Pferd (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 04:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602BC7B897A08143667700273CF1C9844DD2421A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645747   (209270) от 11.07.2023
+
+VA - Power Hour (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supermode - Tell Me Why - MEDUZA Remix (8:28)
+02. Charlotte de Witte - Reflection (6:47)
+03. MEDUZA - Upside Down (feat. Poppy Baskcomb) (6:24)
+04. Gorillaz - New Gold (feat. Tame Impala and Bootie Brown) - Dom Dolla Remix (6:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9369F85D45057802943A06489EDA80661E343600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645153   (209256) от 11.07.2023
 
 VA - Музыка для машины Vol.31 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -571,180 +745,6 @@ VA - Музыка для машины Vol.32 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BE4204264E7AB338DC56516B3056B8540E3C629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648085   (208328) от 21.07.2023
-
-VA - Music News vol.282 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208328.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ANJELIKA - Горький Шоколад (02:54)
- 002. 3.56 am - Остался День (02:32)
- 003. 4ETVERGOV feat. Пошлый - Ненормальная (02:26)
- 004. a.Ja - Bless Мe (02:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5563D3FCC5A561BFE05E5142E21D88CB19EE5808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648100   (208296) от 21.07.2023
-
-VA - Music News vol.283 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208296.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ann Ly - Пополам (02:50)
- 002. Akmal' - Одинокая (03:39)
- 003. Alex Andreev - Гори Оно Огнём (02:29)
- 004. Alle Farben - Revolution (Club Mix) (02:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF4E4057AB93CB259FA4AA0E927299E5FD287A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575591   (208285) от 12.09.2022
-
-ДиДюЛя - Compilation (2022) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Путь домой
-02. Дорога в Багдад
-03. Танец с дождем (Причудливые круги)
-04. Таял звук(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 04:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFC6E7DDD9D4B915EF578AA8A16BBE0424C67CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575465   (208282) от 12.09.2022
-
-Dire Straits & Mark Knopfler - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень атмосферный, спокойный и приятный рок. Альбомами слушать Dire Straits трудно, так как много тоски и тягомотины. Поэтому целостность альбомов не стал сохранять и выбрал самые лучшие песни. В сборник так же вошло сольное творчество Mark Knopfler. Весь материал взят с ремастированных американских CD изданий. В них звук самый грамотный. Приятного прослушивания. (   Читать дальше...   )01. Dire Straits - So Far Away
-02. Dire Straits - Money For Nothing
-03. Dire Straits - Walk Of Life
-04. Dire Straits - Your Latest Trick(   Читать дальше...   )Жанр: RockПродолжительность: 03:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD9DED6C23340A79CA841DA61E7E36759831466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610387   (207988) от 07.02.2023
-
-Devaldi - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriatik Kafe
-02. Amaranthine
-03. Eudemonia
-04. Singur(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D61357AE0D55E28535C2C6FDB50D9BD1115C3ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649369   (207811) от 28.07.2023
-
-Sinead O'Connor - How Nice A Woman Can Be (2023) 2 CD Compilation  [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lamb's Book Of Life [04:58]
-02. Troy [06:35]
-03. 'Til I Whisper U Something [06:08]
-04. Just Like U Said It Would B [04:32](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0369371CFF8ED0EAE69036342E9C6C61E1CDA989
 ```
 
 https://mybot314.ru/tekegram_catalog/

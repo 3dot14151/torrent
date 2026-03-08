@@ -1,3 +1,32 @@
+###  Публикация: 1359420   (964294) от 12.02.2020
+
+Desiderii Marginis - Songs Over Ruins (1997) Reissue, Remastered 2017, Cyclic Law  [FLAC|Lossless|Web-DL|tracks] <Industrial Ambient, Dark Ambient, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Songs Over Ruins I (4:40)
+02. Scintillate II (6:22)
+03. Ephemeral (6:58)
+04. Chrism (3:52)(   Читать дальше...   )Производство: Cyclic Law - 89th CycleЖанр: Industrial Ambient, Dark Ambient, Experimental, Modern ClassicalПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46720D759127E1F4E1BF3FE0170B96350C71D7C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977882   (964292) от 22.01.2016
 
 Inno Setup 5.5.8 [Ru/En]
@@ -652,32 +681,6 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C04391AEE7189028212CDF0FB66C2D3BF2137F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359644   (964180) от 12.02.2020
-
-AdGuard 2.4.3.718 nightly [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2020Разработчик: AdguardПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D399C91D350333AFB2232102134D30598B9069C
 ```
 
 https://mybot314.ru/tekegram_catalog/

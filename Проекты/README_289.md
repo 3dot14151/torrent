@@ -1,29 +1,3 @@
-###  Публикация: 1078378   (301789) от 30.11.2016
-
-Проекты - Sony Vegas Pro - Merry Christmas! [VEG]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо вступления, рождественской открытки, поздравления.Формат: VEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8AD879BBBD21265F6DB8F74FF55E87F07F3AA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078254   (301777) от 30.11.2016
 
 Проекты - VideoHive - Spring 3D Titles Logo Opener - 5934259 [AEP]
@@ -678,6 +652,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9708AB5AF98822384BBFE4E5FE2F4EB8F8C183E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961796   (298545) от 02.12.2015
+
+Проекты - Motion Array - Holiday Kit [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний проект.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21553ED43D2542A625CC39078B64E6033DCA342
 ```
 
 https://mybot314.ru/tekegram_catalog/

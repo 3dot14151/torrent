@@ -1,3 +1,32 @@
+###  Публикация: 1100835   (898021) от 05.02.2017
+
+HorrorPops - Hell Yeah! (2004) [APE|Lossless|image + .cue] <Rockabilly, Punk Rock, Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Julia
+02 - Drama Queen
+03 - Ghouls
+04 - Girl In A Cage(   Читать дальше...   )Жанр: Rockabilly, Punk Rock, PsychobillyПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA02CFF0F41A576B3F84158D531517C4306B93B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100841   (897745) от 05.02.2017
 
 Highly Suspect - The Boy Who Died Wolf (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Hard Rock, Progressive Rock>
@@ -711,35 +740,6 @@ Hoobastank - The Greatest Hits: Don't Touch My Moustache (2012) [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AABFED10CD7C1FD95038409ED5BA8C17ECF70EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996596   (879090) от 14.03.2016
-
-3 Doors Down - Us And The Night (2016) [FLAC|Lossless|image+.cue] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Broken (2:47)
-02. In The Dark (3:44)
-03. Still Alive (2:42)
-04. Believe It (3:22)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C3BA7E5BD07F97D33064D57BB8794680029B71
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1030644   (672403) от 01.07.2016
+
+VA - Country Fever (2016) [MP3|320 Kbps] <Blues, Folk, Gospel, Soft Rock>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waylon Jennings - Don't Think Twice It's Alright 02:38
+02. Willie Nelson - One Step Beyond 02:03
+03. Kenny Rogers - Ruby Don't Take Your Love To Town 02:51
+04. Lynn Anderson - Rose Garden 02:54(   Читать дальше...   )Жанр: Blues, Folk, Gospel, Soft RockПродолжительность: 03:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222B8CB9824CED3D8FF57DA5D929906306F17F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030626   (672401) от 01.07.2016
+
+VA - Electro-Bass Rock It Again (2016) [MP3|320 Kbps] <Bigroom, Dutch, Bounce>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pat Farrell - Mintaka 04:17
+02. Hardwell Feat Jake Reese - Mad World (Radio Edit) 02:38
+03. Slammer - Ashes 04:52
+04. Hardwell & Thomas Newson - 8Fifty (Extended Mix) 03:48(   Читать дальше...   )Жанр: Bigroom, Dutch, BounceПродолжительность: 05:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639994AB20B992E3F9738AC785DFFBB4BC98CD8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509838   (672384) от 13.06.2012
+
+VA - Жизненные Песни Шансона (2012) [MP3|256 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672384.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Денис Майданов - Мама
+002 Рада Рай - Прости, мама
+003 Андрей Бандера - Мама
+004 Демидыч - Мамина сирень
+005 Мафик - Спасибо тебе, мамочка
+006 Таисия Повалий - Мама-мамочка
+007 Стас Михайлов - Мама
+008 Елена Ваенга - Курю
+009 Игорь Наджиев - Мамина память
+010 Сергей Трофимов - 5000 миль(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 06:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACFC7A61B87D92459ECAB83E4281B7021FB89B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291053   (672356) от 23.03.2019
+
+VA - The Official UK Top 40 Singles Chart 22.03.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved
+02. Calvin Harris, Rag'n'Bone Man - Giant
+03. Mabel - Don't Call Me Up
+04. Tom Walker - Just You and I(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DE66B11F45BA65CAA0ABEE07347BDB18D95CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290912   (672331) от 23.03.2019
+
+VA - Ashes Of My Enemies: Hard Rock And Metall Compilation (2019) [MP3|320 Kbps] <Hard Rock, Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672331.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. '77 - Bread & Circus
+002. Audium - Alive
+003. Costas Varras - The Swedish King
+004. Diabolical Mental State - Long Way Down(   Читать дальше...   )Жанр: Hard Rock, MetallПродолжительность: 09:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B435BADDF13E4945EDF1CE04896581C6127BA0D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291045   (672324) от 23.03.2019
+
+VA - Наурыз (2019) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ALAR - Osyndaimyn
+02. Aлия Aбикен - Гул-гул жайна
+03. Ninety One - Бyгинги кyн
+04. Ninety One - Мyз(   Читать дальше...   )Жанр: PopПродолжительность: 02:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75042641954D2F8A52CEDD980E7308860336058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290957   (672232) от 23.03.2019
 
 VA - ЕвроХит Топ 40 Europa Plus 22.03.2019 [MP3|320 Kbps] <Pop, Dance>
@@ -575,198 +755,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:112C8CF9A4201D9F3868C869FB2E7034609FACFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510200   (670934) от 14.06.2012
-
-VA - Русские Новинки Vol.58 (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artem Kitsenko feat. Selecta - Просто Позови (Extended Version)
-02. Fontano & Rotoff - Rock'n'Roll
-03. Две Столицы feat. OVen - Ты Моя Фантастика (Часть 2)
-04. Иракли & Demirra - Give It All To You
-05. Тимати & Grooya feat. La La Land & Timbaland - Not All About The Money
-06. Arty & DJ Night Rush - Kеды!
-07. Никита - Подожди
-08. Денис Майданов - Пролетая Над Нами
-09. Ella feat. DJ Michelangelo - Где Ты
-10. Tisha - Не Надо2012Жанр: PopПродолжительность: 03:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F84092B5DB45C1FB83063F47074A9B08159E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536872   (670873) от 14.03.2022
-
-VA - Stardust 03: Pop Dance Mixed (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Позитивный танцевальный сборник под наименованием "Stardust 03: Pop Dance Mixed" 3-й генерации на каждый день и любое настроение. Жизнеутверждающие ритмы и яркие мелодии органично объединяются с прекрасным вокалом исполнителей треков и принесут слушателю немалую дозу эстетического удовольствия.001. Jaden Thompson - Closer
-002. Gino Caria - I Wanna Be Your Superman
-003. Tiлsto - The Business
-004. Selin Louise - Private Dancer(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D575D9D48A6D08E51211C1BDF9DE2B9C68F06F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536865   (670872) от 14.03.2022
-
-VA - Stardust 01: Vocal House Mixed (2022) [MP3|320 Kbps] <Vocal House, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вроде бы, здесь нет ничего сверхъестественного — типичный бас, используемый в большинстве работ схожего направления, незамысловатые мелодии, не представляющая из себя ничего мудрёного и шаблонная аранжировка. Однако, всё это вместе звучит достаточно импрессивно и оригинально. Кроме того стоит отметить хорошо обработанный и умело преподнесённый женский вокал в представляемых (   Читать дальше...   )001. Miguel Migs feat. Andy Allo - Sensations
-002. Achickwitbeatz - Approximately Love
-003. Berin - Midnight Drive
-004. Thefatrat & Cecilia Gault - Our Song(   Читать дальше...   )Жанр: Vocal House, Dance, ElectroПродолжительность: 07:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54B61ECC335B6D66AB809469EFE205420AB937C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536868   (670865) от 14.03.2022
-
-VA - Stardust 02: Vocal Trance Mixed (2022) [MP3|320 Kbps] <Vocal Trance, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необыкновенно гармоничная и атмосферная музыка компилата в направлении trance органично подойдёт в любую ситуацию и любое время. Вошедшие композиции альбома в полной мере непохожи друг на друга и бесподобны, они могут стать понравившимися не только истинным поклонникам транса, но и слушателям, которые просто ценят высокое качество и благозвучность электронного саунда.001. Wish I Was - If I Can Love You Right
-002. Jixaw X The Suspect - In Reverse
-003. Ian Green Ft. Cat Delphi - Try My Love
-004. Bt - Game Theory(   Читать дальше...   )Жанр: Vocal Trance, Dance, ElectroПродолжительность: 08:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E52CDE99E6BB087134C3A3C3D72F831583D9B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510243   (670803) от 14.06.2012
-
-VA - Летний Музыкальный Кураж (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670803.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ямлихан Гаджиев - Улетаешь (DJ Nariman Mix) (3:35)
-2. Юлия Савичева - Юлия (3:19)
-3. Ольга Наумова - Я Буду Всегда С Тобой (3:17)
-4. Gareth Emery – Tokyo (Ben Gold Remix) (4:00)
-5. Quest Pistols - Разные (3:44)
-6. Слава - Люди любят (3:11)
-7. Оксана Почепа - По Подоконнику Дождь (3:21)
-8. Гейдар Багиров - Ты Украла (Radio Edit) (3:07)
-9. NikitA - Авокадо (3:16)
-10. Mary - Забирай все (3:31)2012Жанр: PopПродолжительность: 05:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAAA0DD6CB3640AB204060A2E231B460E8006C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510252   (670800) от 14.06.2012
-
-VA - Самые горячие новинки этого года Vol.2 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670800.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Nu - Sky feat. Валерия Фоменко - Прочитай Любовь (Radio Mix) (3:21)
-2. Климат и Аня Добрыднева - Глаза В Глаза (3:38)
-3. Потап и Настя - Прилелето (3:17)
-4. Каролина - Летний Дискобар (Версия 2012) (3:40)
-5. Real O - Луна (Я В Белом Платьице) (3:31)
-6. Поющие Трусы - Евро 2012 (3:06)
-7. Ksenia & DJ Night Rush - Когда Я Счастливая (3:53)
-8. Светлана Разина - Радио НАХ (3:33)
-9. ВИА Гра - Алло, мам! (4:10)
-10. Дима Билан - Так Не Бывает (Artego vs Cooler & Long Remix Radio Edit) (3:17)2012Жанр: PopПродолжительность: 06:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318FA5E937883C3FB5C23DA9B2386C0680CB433B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1525739   (129186) от 21.01.2022
+
+VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand & Susana - I Matter to You (Extended Mix) [06:14]
+02. Christian Burns - Breathing Fire (Farius Extended Remix) [05:52]
+03. Giuseppe Ottaviani - The Wind in Your Face (Extended Mix) [06:44]
+04. Eco - Let You Down (Chris Schweizer Extended Remix) [06:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734827AEB0A65F3AA9848F1808F10E8113088C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824137   (128982) от 14.10.2025
+
+VA - Fresh Dance 2025 - The Future Hits (2025) [MP3|320 Kbps] <Dance, Club, House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salvatore Mancuso & Max Niklas - The Tide Is High 02:25
+02. Jens O., Spacekid & Barbaros - Derb (Jens O. & Spacekid Mix) 03:26
+03. Brooklyn Bounce - Loud & Proud (Indecent Noise & Ontune Remix Edit) 03:15
+04. Special D., Toby Gad & Andy Judge - All Of Me 02:37(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03184B873A0A2904F37E2AC17B8D5CFD3C5C32EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824135   (128969) от 14.10.2025
 
 VA - Magic Deep-House, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -686,64 +744,6 @@ VA - Black Hole House Music 12-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B35804A03BFC4AF86CDFB52506052F3585182A25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684336   (127582) от 16.12.2023
-
-VA - Black Hole Trance Music 12-23 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate - The Truth 2.0 (Extended Mix) [6:07]
-02. Dennis Sheperd & Gid Sedgwick - Happier Than Now (Extended Mix) [5:01]
-03. Markus Schulz & Emma Hewitt - Till We Fade (Extended Mix) [6:43]
-04. Greg Oakland feat. Jaime Deraz - Ethereal (Extended Mix) [5:19](   Читать дальше...   )Жанр: TranceПродолжительность: 02:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA6D4FF1FAFBEAD191E3AC0AB726447831132E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684635   (127581) от 16.12.2023
-
-V.A. - Lounge Freebeat, Vol. 10 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightview - Cafe Bar (Lounge Mix)
-02. Soundset City - You Are My Angel (Smooth Instrumental Lounge Mix)
-03. Nightbar Jazz - Deep Drip
-04. Jazzy System - Apple Tree(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84DB2FA455C833A112E81F3CDA481638A276C6C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

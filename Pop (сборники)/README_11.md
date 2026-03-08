@@ -1,3 +1,32 @@
+###  Публикация: 1364455   (936248) от 03.03.2020
+
+VA - UNKNOWN 80'S (PART XII) (2020) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dieter Birr - Intim - 1986
+02. Wild Blue - International Language Of Dance - 1986
+03. Our Daughter's Wedding - Take Me - 1984
+04. Slow Children - President Am I (Extended Version) - 1982(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New Wave, Disco, NDW, Minimal etc.Продолжительность: 05:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3D8EDE94912119B83725BD3B9EFCE7A5321398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363366   (935664) от 03.03.2020
 
 VA - 100 Hits Of The 70's & 80's & 90's (2020) [MP3|320 Kbps] <Rock, Pop>
@@ -713,35 +742,6 @@ VA - XXXXL Дискотечный 50/50 (2011) [MP3|128 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A68374B30F2ED0A4777F48CB6AD85904BBCC8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094374   (929290) от 18.01.2017
-
-VA - Звездная вечеринка. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929290.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дмитрий Первушин - Поиск 3:00
-002. Adam Levine - Go Now 3:53
-003. Кай Метов & Татьяна Буланова - Прощай Любовь Моя 3:43
-004. Milen - Желанная 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E41BDB0F3AFEBEC677F1960FF0D7DBC128B801
 ```
 
 https://mybot314.ru/tekegram_catalog/

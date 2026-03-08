@@ -1,3 +1,61 @@
+###  Публикация: 1127573   (732166) от 21.04.2017
+
+Madame - Dance, Madame De ... (1980) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Madame (Won't Cha Come Outside) (5:16)
+02. Quand Tout Va Par Deux (5:49)
+03. Show Me How Your Feel And Dance (6:14)
+04. Gettin' On With The Thing (9:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E225A5A1EA3A5ED004C28B4AF9AF7F046779471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021812   (732097) от 30.05.2016
+
+Mads Langer - Reckless Twin (2016) [MP3|320 кб/с] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight (04:02)
+02. Amy (04:37)
+03. Blondie (05:19)
+04. 3AM (03:22)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93265CD1D8228F741968725A91569B4F4966B93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021753   (732087) от 30.05.2016
 
 CLAVVS - Feel It All (2015) [MP3|320 кб/с] <Indie Pop, Soul, Trip Hop>
@@ -684,64 +742,6 @@ VA - Pop & Rock Hits Made for Dancing (2017) [MP3|320 Kbps] <Dance, Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C349FB85CFCF1A1B0D8627985599CBBFA72C54D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022342   (729767) от 01.06.2016
-
-Suzi Lane - Ooh, La, La (1979) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственно вышедший и спродюсированный Джорджио Мородером в 1979 году альбом. Тяжелая автомобильная авария весной 1980 года, положила конец ее музыкальной карьере.01. Ooh, La, La   (7:40)
-02. Givin' It Up   (3:57)
-03. No One Home In The City   (5:02)
-04. Harmony   (7:01)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F686EEC643542ED6EE4936EF55D60427C878BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128216   (729732) от 23.04.2017
-
-Tom Hooker - Back In Time (2017) 2CD [MP3|320 Kbps] <Electronic, Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый проект, вышедший в самом конце марта очень ограниченным изданием от известного исполнителя Italo-Disco 80х - начала 90х - Tom Hooker и итало-американского музыканта, диджея и продюсера Miki Chieregato, уже успевших недавно нашуметь своим предыдущим: Tam Harrow01. I Don't Want To Fight (5:44)
-02. King Of The World (5:13)
-03. I Want You Tonight (5:45)
-04. Give Me Your Love (4:24)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-DiscoПродолжительность: 02:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8963C6DAE45F62A658472FD0EF9DF4B1E457EC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

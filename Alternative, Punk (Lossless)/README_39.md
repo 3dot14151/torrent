@@ -1,3 +1,32 @@
+###  Публикация: 1325744   (410330) от 16.09.2019
+
+Cold - The Things We Can't Stop (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:54)
+ 02. Shine (4:40)
+ 03. Snowblind (5:12)
+ 04. The Devil We Know (2:59)(   Читать дальше...   )Жанр: Alternative Rock, Post-Grunge, Nu MetalПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BB5AC573C7E7961DD2C8B8BA6E5BB96E5BFA59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168169   (410246) от 23.09.2017
 
 Kaleo - A/B (2016) special russian edition, 2017 [FLAC|Lossless|tracks + .cue] <Indie rock, Blues Rock>
@@ -715,35 +744,6 @@ Bloodbather - Silence (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F3D8B82BCF2F6BF766EFEC72CDEBB003C5EDDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252982   (385446) от 08.10.2018
-
-Starsailor - Love is Here (2001) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tie Up My Hands
-02. Poor Misguided Fool
-03. Alcoholic
-04. Lullaby(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47556A07BD76BA7483F16A3B53BC3A9EF0FF5A13
 ```
 
 https://mybot314.ru/tekegram_catalog/

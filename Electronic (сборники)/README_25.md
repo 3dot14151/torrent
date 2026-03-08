@@ -1,3 +1,32 @@
+###  Публикация: 1092530   (938947) от 12.01.2017
+
+VA - Best Electronic Republic Trance (2017) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Richard Durand - Breakdown (Original Mix)  7:40
+02.  Miroslav Vrlik - Soul Of Darkness  6:00
+03.  Denis Kenzo & Alexandra Badoi - More Time (Original Mix)  5:49
+04.  Gordey Tsukanov - Flight To Infinity (Original Mix)  6:47(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 02:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274F3E2F23DF81C766446D86280D4F501F8A61ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092505   (938943) от 12.01.2017
 
 VA - TrackStarter: Higher Funky Place (2017) [MP3|320 Kbps] <House, Tech House, Progressive, Tribal, Afrobeat>
@@ -719,35 +748,6 @@ VA - Trance Kaleidoscope (2017) [MP3|320 Kbps] <Trance, Progressive, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A5103F4B1D78B8D16148FA5969B44799A78B5E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094080   (930858) от 17.01.2017
-
-VA - The Planetary Influence: Territory Of Dubstep (2017) [MP3|320 Kbps] <Dubstep, Drum And Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930858.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wonderland Avenue - White Horse (Alexander Holsten Trap Remix) 3:10
-002. Wilkinson, P Money & Arlissa - Heartbeat (Calyx & Teebee Remix) 3:53
-003. Vato Gonzalez, Lady Bee - The World Is Mine (Original Mix) 4:18
-004. Under This - Dancing Right (Original Mix) 6:58(   Читать дальше...   )Жанр: Dubstep, Drum And BassПродолжительность: 10:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A394B017B8D8E6C07400FD6549A0E5289E1D6C25
 ```
 
 https://mybot314.ru/tekegram_catalog/

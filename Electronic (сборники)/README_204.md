@@ -1,3 +1,32 @@
+###  Публикация: 1435375   (144332) от 28.12.2020
+
+VA - Feel The Nature: Ambient Sound (2020) [MP3|320 Kbps] <Ambient, Downtempo, New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда наступает время морозных вьюг и долгих вечеров, пора включить музыку сборника «Feel The Nature». Спокойные, умиротворяющие и расслабляющие мелодии помогут встретить зимнюю грусть с улыбкой и насладиться этим замечательным временем года. Пора завернуться в плед, налить горячего какао и послушать эту приятную музыку.001. Max D Milford - Movements
+002. Shuta Yasukochi - Floating
+003. Gleezy - June Chat
+004. Logic Moon - Momentum(   Читать дальше...   )Жанр: Ambient, Downtempo, New AgeПродолжительность: 08:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D0A8919876CE15CB823063B2A711F3E9FA5BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435514   (144305) от 28.12.2020
 
 VA - Deep Glow Electro House (2020) [MP3|320 Kbps] <Deep House, Electro>
@@ -723,35 +752,6 @@ VA - The Space Beats (2021) [MP3|320 Kbps] <Synthspace, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09F606DC6FDADA296641212E18484735F054F523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970593   (141620) от 30.12.2015
-
-VA - New Year Party (2016) (2015) [MP3|320 кб/с] <Club, Progressive, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic – To The Party (Radio Edit) 03:43
- 02. Mr X Project – Let’s Run Away (Teknova Remix) 03:52
- 03. Mario Sem Ft John Mood – Run Again (Stephan F Remix) 05:24
- 04. Eliza G Ft Lion D – Ladies Nite (Turbotronic Remix Edit) 03:45(   Читать дальше...   )Жанр: Club, Progressive, HouseПродолжительность: 03:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:214A2352E2D71100EF3045469297438571C22658
 ```
 
 https://mybot314.ru/tekegram_catalog/

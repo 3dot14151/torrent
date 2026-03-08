@@ -1,3 +1,32 @@
+###  Публикация: 1345224   (167249) от 14.12.2019
+
+VA - House Garden Music: Edm Extended Mix (2019) [MP3|320 Kbps] <House, Electro, Edm>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167249.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nevermore - Sleep (Original Mix)
+002. Silkwolf - Mothertown
+003. Moshic - Cabalana
+004. Funk Manifesto - Light Of Day(   Читать дальше...   )Жанр: House, Electro, EdmПродолжительность: 10:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3621286C1BF5E1C314DCA41F064BB953D9D45F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345452   (166586) от 15.12.2019
 
 VA - Record Super Chart 617 (2019) [MP3|320 Kbps] <Pop, House, Dance>
@@ -716,35 +745,6 @@ Vargo - Compilation (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAFC067257AEF0AFB5AF313858F8F8B63B575B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433280   (161133) от 20.12.2020
-
-VA - Record Super Chart 667 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto - The Business (2:43)
-02. Fousheé - Deep End (Katana Angels Remix) (2:35)
-03. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
-04. Slava Marlow - Снова я напиваюсь (1:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8B338A6E0187AE8E012C18D06DC75F592A8F0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1506976   (798938) от 02.11.2021
-
-Проекты - VideoHive - Thanksgiving Memories Slideshow - 34519122 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слайд-шоу «Thanksgiving Memories Slideshow» - это потрясающий шаблон After Effects с специально отснятыми живыми видео кадрами тыкв, орехов, осенних листьев, текстур дерева, заполнителей фотографий в разрешении 4К, и переходами с утечками мягкого света. Этот проект отлично подойдет для осеннего праздника, Дня Благодарения, Хэллоуина и семейных торжеств.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1F1C5011C7DFE7C2776608B7F9951CB7B01EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506197   (798639) от 03.11.2021
 
 Проекты - VideoHive - Happy Kids Education Promo - 33493311 [AEP]
@@ -675,6 +649,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:206BCD4BB6E77A8D7C643FD5FFF1EFB0946CDC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011043   (797579) от 26.04.2016
+
+Проекты - VideoHive - Travelscape [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания стильного современного слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBEE7B8A5188409E396A730A88F31591B1B0322
 ```
 
 https://mybot314.ru/tekegram_catalog/

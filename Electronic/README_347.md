@@ -1,3 +1,61 @@
+###  Публикация: 1580421   (330814) от 01.10.2022
+
+VA - Suanda Music 2022 - Mixed by Roman Messer [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jordy Eley - Nova (Original Mix) (4:13)
+02. NoMosk - Better For You (Extended Mix) (3:19)
+03. Milad E & David Deere - Got You (Extended Mix) (5:05)
+04. Jon The Dentist - Global Phases (Aimoon Extended Remix) (6:31)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6800BCF8C91480C70B258F479FA699C1A39EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869566   (330602) от 01.10.2022
+
+Contagion - Infectant (2000) [MP3|320 кб/с]<EBM, Industrial, Rock>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One of the Chosen
+02. Hate
+03. Give to You
+04. Rigor Mortis(   Читать дальше...   )Жанр: EBM, Industrial, RockПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89DDE00614531928D47A33516DC221127FA8BB63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580588   (329927) от 02.10.2022
 
 Jeremiah Kane - Ronin (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Industrial Metal>
@@ -685,64 +743,6 @@ Dominik Von Francois - Last Resort (2015) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D11DBB0B09F63B774BE043B29CEE301F750C75F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958149   (324997) от 20.11.2015
-
-VA - Enhanced Chill Volume Three (2015) [MP3|320 кб/с]<Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estiva & Skouners feat. Delaney Jane - Playing With Fire (C-Systems Acoustic Rework) (04:08)
-02. Suncatcher - Delude (Original Mix) (05:20)
-03. Matt Fax - Shift (Asleep Version) (05:26)
-04. Diversion - Perfect Pleasure (Chill Out Mix) (08:28)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D53A4A85645686D2EDDDB6F5942A733969A7E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958145   (324916) от 20.11.2015
-
-VA - In Search Of Sunrise 13.5 - Amsterdam (Mixed by Richard Durand with BT) (2015) [MP3|320 кб/с]<Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vidda Deborras - Tower Of Tears (Intro) (3:04)
-02. Michael Badal with Sue McLaren - Recapture (5:58)
-03. Alex O'Rion - Electrifying Love (7:09)
-04. Moonbeam feat. Sopheary - Heaven (4:42)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 05:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A554095D5BAE042213FEF0041662805CAA5ADA29
 ```
 
 https://mybot314.ru/tekegram_catalog/

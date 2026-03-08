@@ -1,3 +1,61 @@
+###  Публикация: 992393   (900548) от 02.03.2016
+
+Павел Воля - Мысли и музыка (2016) [MP3|320 кб/с] <Pop, Rap, Hip-Hop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Диалог
+02. Если б
+03. Кошки
+04. Хорошо(   Читать дальше...   )Жанр: Pop, Rap, Hip-HopПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D351289C61CB698EFD177C50048E1069EE7184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100575   (899537) от 04.02.2017
+
+VA - Hardstyle Top 200 The Giga - Hardstyle Megamix Collection Vol. 10 (2017) 4CD [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Brennan Heart & Audiotricz Feat. Christon - Coming Home
+02 Toneshifterz & Outbreak - Let Go
+03 Frequencerz & Zany - Embrace (Original Mix)
+04 DJ Isaac - Burn(   Читать дальше...   )Жанр: PopПродолжительность: 05:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C23C4979E8E84217EBCD87345197365292B769E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100729   (899370) от 04.02.2017
 
 VA - Let's Go Into Space (2012-2015) 4LP [MP3|320 Kbps] <Electronic, Cosmic Disco>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AD05C9F9BEE5E414EF2F99CA9B04ADDC0B74846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493486   (895379) от 03.09.2021
-
-VA - Best Radio Tracks, Vol. 22 (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895379.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Imanbek/Sean Paul/Sofia Reyes - Dancing On Dangerous
-2. Rompasso - Tesla
-3. Alan Walker/Imanbek - Sweet Dreams
-4. Slider & Magnit - Down Low(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0DF29C2FE4E7B592872108CAD40F54C0422B5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493479   (895374) от 03.09.2021
-
-Lady Gaga - Dawn Of Chromatica (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Dance-pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice (LSDXOXO Remix) (Feat. LSDXOXO) 2:40
-02. Stupid Love (COUCOU CHLOE Remix) (Feat. Coucou Chloe) 2:37
-03. Rain On Me (Arca Remix) (Feat. Ariana Grande, Arca) 4:23
-04. Free Woman (Rina Sawayama & Clarence Clarity Remix) (Feat. Rina Sawayama, Clarence Clarity) 3:54(   Читать дальше...   )Жанр: Pop, Electro, Dance-pop, HouseПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF46639835DA925FF5539576442D53952FF5DAB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

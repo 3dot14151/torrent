@@ -1,3 +1,62 @@
+###  Публикация: 1702153   (115859) от 24.02.2024
+
+VA - A State of Trams Rotterdam, Netherlands (2024-02-05) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armin van Buuren & Joris Voorn @ A State of Trams Rotterdam, Netherlands 2024-02-05:
+01. ARTBAT & Armin van Buuren - Take Off
+02. ID - ID
+03. Rebūke - Along Came Polly (Konstantin Sibold & Carmee & ZAC Remix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 00:25:00
+01. ALPHA 9 - Come Home (ID Remix)
+02. Kristiane - Hold You
+03. ID - ID(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447C93EAA7E9BC449F873074AEB3592EA75D90C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702083   (115858) от 24.02.2024
+
+Two Friends - Big Bootie Mix Vol. 24 (2024-02-15) [MP3|320 Kbps] <Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Dre ft. Snoop Dogg - Still D.R.E. w/Kid Cudi ft. MGMT & Ratatat - Pursuit Of Happiness w/MEDUZA ft. GOODBOYS - Piece Of Your Heartw/ Over Easy - Rockstarw/Eminem - Without Me
+02. Martin Garrix & Sentinel ft. Bonn - Hurricanew/Whitney Houston - I Wanna Dance with Somebody (Who Loves Me) w/Morgan Wallen - Last Night w/Martin Garrix & Sentinel ft. (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4D45BFC22D56EBEB528C46815448537051DC7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702365   (115856) от 24.02.2024
 
 Max Cruise - Heatwave (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Saxophone>
@@ -687,64 +746,6 @@ VA - Trance Party 2024 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C8BF9CFE685E7196E0BFEB6EF49CA67DA18EA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703864   (114653) от 02.03.2024
-
-Sultan And Shepard - Endless, Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Vocal, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sultan + Shepard - Murmur
-02. Sultan + Shepard & Elderbrook - I'll Be Here
-03. Sultan + Shepard & Tishmal - Back Through You
-04. Sultan + Shepard - Cloud Lifter(   Читать дальше...   )Жанр: Tech House, Deep House, Vocal, ProgressiveПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4176677A32A1601CEBE9052FE75C4596BE9D26B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703969   (114651) от 02.03.2024
-
-VA - Mandarin Chill Out, Vol. 3 (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E,Tim Gelo - All That We Are (Alternative Mix) (7:42)
- 02. L.o.b. Lord Of Beat - Deep Down (4:20)
- 03. Jasmon - Hatori (4:19)
- 04. Openzone Bar - A Distant Desert Sleep (4:04)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1678280DECA9A360978CD53ACF2CA495AF0DE42
 ```
 
 https://mybot314.ru/tekegram_catalog/

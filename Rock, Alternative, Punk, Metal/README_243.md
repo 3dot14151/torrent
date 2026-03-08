@@ -1,32 +1,3 @@
-###  Публикация: 1500258   (842712) от 05.10.2021
-
-Мужчины В Металле - Сибирь (2021) [MP3|320 kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сибирь (03:52)
-02. Ты Навсегда Со Мной (03:11)
-03. Дождь На Заре (05:25)
-04. Жаль, Что Тебя Больше Нет (05:47)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DA108A85AAC063489012ECB6D8F9C20DC636E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500012   (842711) от 05.10.2021
 
 The Ahab Dilemma - World On Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
@@ -730,6 +701,35 @@ Grimner - Frost Mot Eld (2016) [MP3|320 кб/с] <Folk Metal, Viking Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3BFF75F6B480F7E2118422CC23EAFF547F01C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003794   (841700) от 04.04.2016
+
+Phil Collins - Hello, I Must Be Going! (1982) 2CD Deluxe Edition, 2016, Atlantic [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Care Anymore (Live) (6:31)
+02. I Cannot Believe It's True (Live) (5:29)
+03. Like China (Live) (5:42)
+04. You Can't Hurry Love (Live) (3:04)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:945D972D2F734ACD6E4325D6BDEC49BEA7440DAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

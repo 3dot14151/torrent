@@ -1,3 +1,32 @@
+###  Публикация: 1199336   (801769) от 15.01.2018
+
+VA - De Top 100 Aller Tijden 1976 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801769.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Abba - Dancing Queen (3:50)
+002. Tavares - Heaven Must Be Missing An Angel (6:56)
+003. Nazareth - Love Hurts (3:52)
+004. Bzn - Mon Amour (4:08)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 05:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0556D6CE5FD9E5A0A9281C2B403DE94BB555C20E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120993   (800652) от 02.04.2017
 
 VA - Положительный заряд Hit FM. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Зайцев нет. Лучшие новинки апреля (2016) [MP3|1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A839F48567F0E32DCC1072C3081C29C1E49F7C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011802   (796307) от 28.04.2016
-
-VA - Попсовый армагедон от Русского радио (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796307.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Артем Пивоваров - Стихия
-002. Bahh Tee - Как Ты Посмела
-003. Александр Антонов - Это Все Что Я Могу
-004. Artem Display - Жизнь Хороша(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174B046C593B559D63A044B03D10A2DEE09AD894
 ```
 
 https://mybot314.ru/tekegram_catalog/

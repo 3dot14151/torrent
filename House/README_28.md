@@ -1,3 +1,32 @@
+###  Публикация: 1285854   (719065) от 27.02.2019
+
+VA - Digi Beat Ltd - Love Electronic Music (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Amnesia - Maasi 03:18
+02. Dj President - Henderson 02:06
+03. Dj Amnesia - Mina 03:10
+04. Dj Amnesia - Mukuru 03:02(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CCEBBD86CEC003339FB136AF5B6F9A9FA85354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285626   (719060) от 27.02.2019
 
 VA - LNG Music: Nick Skitz - Skitzmix 55 (2019) [MP3|320 Kbps] <House, Progressive, Dance>
@@ -714,35 +743,6 @@ VA - Melodies For Ravers (2016) [MP3|320 кб/с] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ED72647A38A4ED81B66FF83BD0F901964F3643E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286798   (705523) от 06.03.2019
-
-VA - Running House (Compilation 2019) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky Lyke feat. Nathan Brumley - Perfect Moments (Original Mix) 04:58
-02. Lucky Lyke feat. Jessia - Dancing In The Moonlight (Original Mix) 04:18
-03. James KJ - Universe (Original Mix) 05:56
-04. House Legion - Baby (Original Mix) 04:44(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AF0EEA8588BCA0D12055BB396E5E99820154AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

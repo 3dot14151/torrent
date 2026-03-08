@@ -1,3 +1,61 @@
+###  Публикация: 907572   (638084) от 12.06.2015
+
+VA - New Age Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oscar Salguero - With You [05:05]
+02. M. Vitoria - Love Devotion Surrender [05:05]
+03. The Synths - Moby Dick [04:19]
+04. Oscar Salguero - Lounge, Shopping and Go [04:54](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB5E9114CB8576F3E7162EE4DB0C71738DF139D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907210   (637979) от 12.06.2015
+
+Dj Feel - TOP 30 OF MAY (2015) [MP3|320 kbps]<Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamaster A vs Solid Skill - One Touch (NLVi Remix)
+02. Anske - Little Dreamer (Original Mix)
+03. Super8 & Tab feat. Julie Thompson - Patience (Estiva Remix)
+04. Thomas Hayes feat. Joni Fatora - Neon (Alluvion) (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6A1F50ADC9617650C3FBBB4EDC5A791ADB31E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033539   (637848) от 11.07.2016
 
 Space - All Gold Of The World (2002) [FLAC|Lossless|image + .cue] <Electronic>
@@ -696,64 +754,6 @@ VA - Cala Ibizarre: Sunset Lounge Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C8C62D922461A4451398E5D367C3A62F1720E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143359   (635513) от 18.06.2017
-
-VA - May Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lars - Late Night (Original Mix)  6:35
-02.  T'awi - Output (Original Mix)  7:21
-03.  Alex Numark - Tatyana (Original Mix)  6:25
-04.  DJ 156 BPM - L.A. (Original Mix)  6:11(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2DA290B77DB8D37952F60EB888726D916666E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143200   (635510) от 18.06.2017
-
-VA - Ibiza Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tom Exo - Acqua Alta (Original Mix)  3:11
-02.  Frainbreeze & Cari - Stronger (Steve Allen & Enzo Remix)  3:59
-03.  Attila Syah & LTN - Bromo (Radio Edit)  4:25
-04.  Bogdan Vix & Lucid Blue - I Am Now (Radio Edit)  3:36(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F6AE4FCBAE10B0226109D176CBC079A4A2EFCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1042254   (579597) от 12.08.2016
+
+Players (Jeff Berlin, Steve Smith, Scott Henderson, T Lavitz) - Players (1987) [WavPack|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579597.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Crystal (4:25)
+2. Valentine (5:31)
+3. 50/50 (4:38)
+4. Vehicle (4:20)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3EAB7D6C74256380796A0746333E3917063290
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042237   (579540) от 12.08.2016
 
 Jeff Berlin & Vox Humana - Champion (1985) [WavPack|Lossless|image + .cue] <Jazz-rock, Fusion>
@@ -733,32 +762,6 @@ Ronnie Cuber - Passion Fruit (1986) King Records[FLAC|Lossless|tracks + .cue] <J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E14847F7FA5C07FEC6B923D98E838B43E914FADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042579   (576717) от 14.08.2016
-
-La Machine Ronde - Music Makes The World Go Round (2015) [FLAC|Lossless|tracks + .cue] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ten BucksЖанр: Jazz, Vocal JazzПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8A207AE80F58103D82F2BE97DCA747900FEF8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

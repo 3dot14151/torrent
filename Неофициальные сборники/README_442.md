@@ -1,3 +1,183 @@
+###  Публикация: 1065790   (416854) от 24.10.2016
+
+VA - Make A Party: Popular World Mix (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416854.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anevo feat. Ameria - Electric Heart (Original Mix)
+002. Kungs - Don't You Know
+003. LP - Lost on You
+004. Major Lazer - Cold water(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78B0C33DF3EFBF4E2A15232FAD54503A6BF5806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167417   (416836) от 20.09.2017
+
+VA - 1000 Разных Групп & ВИА ХХ Века (от Ovvod7) Vol.03 (2017) [MP3|320 Kbps] <Pop, Rock, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416836.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Demo - Солнышко (Electro Remix)  4:23
+002.  Дюна - Песенка Крокодила Гены  3:01
+003.  Белый Орел - Прости Мои Долги  4:52
+004.  Лейся, Песня - Где Же Ты Была  3:32(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 12:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FEBDF6B1B443ECC248F33A87CCB6D7C11CAC8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325056   (416736) от 13.09.2019
+
+VA - Hope Is Dangerous: Pop-Rock Indie (2019) [MP3|320 Kbps] <Indie, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416736.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Friska Viljor - Endless Life
+002. Dan Stock - Take It Too Far
+003. Chasms - Black Ice
+004. Chasms - Touched(   Читать дальше...   )Жанр: Indie, Pop RockПродолжительность: 09:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE7078270222C58A001BB5E3D0CC77034221898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325136   (416721) от 13.09.2019
+
+VA - Team Dogz: 200 Rap Hits (Vol.01) (2019) [MP3|227-320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416721.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mark Steele - Big Dreams Ii
+002. Blacc Zacc - Move
+003. Sean Leon - If I Could Be With You
+004. Archangel Feat. Prince Djae - Tonight(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 10:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263C8580E415B182F97374C2F59CB80989167050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065831   (416642) от 24.10.2016
+
+VA - 80s Love Desire Vocal (2016) [MP3|128~320 Kbps] <Pop, Euro-Disco, Eurobeat, Hi-NRG, Synthpop, Post-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney M. - Rivers Of Babylon (Acid House Mix)  7:12
+02. Fancy - Chinese Eyes  5:43
+03. Monte Kristo - The Girl Of Lucifer (Vocal)  5:26
+04. Danny Keith - Keep On Music (Vocal)  6:42(   Читать дальше...   )Жанр: Pop, Euro-Disco, Eurobeat, Hi-NRG, Synthpop, Post-DiscoПродолжительность: 05:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767AA9EBA973FEDE468704FAF4033E8149629D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 394401   (416612) от 05.10.2011
+
+VA - Шансон: Осенний хит-парад (2011) [MP3|128 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416612.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Бутырка - Не крутите глобус
+002. Виктор Королев - Пьяная вишня
+003. Гарик Кричевский - Мой номер 245
+004. Стас Михайлов и Катя Бужинская - Королева вдохновения
+005. Федя Карманов - Ухарь купец
+006. Сергей Трофимов - Ветер в голове
+007. Рада Рай - Ты не стой на моем пути
+008. Виктор Калина - Золотые стрелочки
+009. Штар - Ночь в дороге
+010. Воровайки - Мотыльки(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 12:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08938E0D83F72770603B2FBFCE3B95EE1419F527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 395846   (416611) от 05.10.2011
 
 VA - Новинки Радио Шансон Часть 10 (2011) [MP3|256 kbps]<Шансон>
@@ -583,180 +763,6 @@ VA - Survival Clinic: Dubstep Compound (2016) [MP3|320 Kbps] <Dubstep, Drum And 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AFAA5C4A76A51DEDE44F1F57CA162C0F821C01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573126   (414772) от 30.08.2022
-
-VA - Simply Breaks & Beats Vol. 01 (2022) [MP3|320 Kbps] <Grime, 2-Step, Breakbeat, Nu Skool>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homayoun Shajarian - Lost (Akso Scout Remix)
-02. Tom Brownlow - Worth It (Extended Mix)
-03. Abstraction Unit - Digital Birds
-04. Vrekte Natnek - Get Lost(   Читать дальше...   )Жанр: Grime, 2-Step, Breakbeat, Nu SkoolПродолжительность: 02:01:58 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9953A73F195732E3298C01628426E6DC25B4B46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066016   (414762) от 25.10.2016
-
-VA - Erotic Autumn Jazz-Lounge Desires for Intimate Chill Obsession (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Domestic Sol - Autumn Eyes - Cool Midnight Suite Mix
-02. Burning Lipps - Near or Far - Erotic Beach Love Mix
-03. The Vibraphones - Candlelight - Fireplace Session Mix
-04. Electric Suitcase - Strangers in the Night - Neo Souls Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF0E66E8939E64CCD092616E98B033D7D9AC03C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066055   (414750) от 25.10.2016
-
-VA - Сотка модных хитов 50/50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414750.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paige & Lizzie Curious - Memories
-002. Kissлород - Розово
-003. Carlprit Feat. Jaicko - Only Gets Better
-004. Эльдар Далгатов - Все Сможешь Ты(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569C9C067636E26FF7C34DC325AC689529094055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325299   (414675) от 14.09.2019
-
-VA - EDM Beats Electro House (2019) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414675.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Definition - Une It
-002. Raggi Luminosi - Dark
-003. Neat - Tall As The Trees
-004. Ivan Martinez - Nevermind(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 09:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4163A3003375CE1E26E09605E845750FB67A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325273   (414667) от 14.09.2019
-
-VA - German Top 100 Single Charts 13.09.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414667.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Loredana, MERO - Kein Plan (2:35)
-2.Apache 207 - Roller (2:38)
-3.Samra, Capital Bra - Huracan (3:02)
-4.Tones and I - Dance Monkey (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91C6602A5456E4BDBBAA5E48E20F53943B49B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325294   (414661) от 14.09.2019
-
-VA - The Official UK Top 40 Singles Chart 13.09.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Take Me Back To London (Feat. Stormzy) 3:10
-02. Aitch - Taste (Make It Shake) 3:34
-03. Kygo & Whitney Houston - Higher Love 3:48
-04. Aj Tracey - Ladbroke Grove 3:11(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF005ACAB79682436F8604ED20376DC840BEBC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

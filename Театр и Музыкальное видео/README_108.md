@@ -1,3 +1,32 @@
+###  Публикация: 1189018   (271999) от 04.12.2017
+
+Sting - Live At The Olympia Paris (2017) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271999.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Synchronicity II
+2 Spirits In The Material World
+3 Englishman in New York
+4 I Can't Stop Thinking About You(   Читать дальше...   )Производство: Deutsche GrammophonЖанр: Rock, Pop, New Wave, JazzРежиссер: Alexandre BuissonПродолжительность: 01:42:03+00:36:12 (Bonus)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AE9D6C4A3E3CD62707FBE6FDD5BF332FAB6453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 714595   (271830) от 30.11.2018
 
 Eric Clapton - Live at Montreux 1986 (2006) DVD9
@@ -690,32 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED4352E27E601C618477DBF1EAF1BF2B29DE1529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190703   (266980) от 10.12.2017
-
-Квартирник на НТВ у Маргулиса. Ёлка (12.09.2017) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_266980.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла певица, член жюри международного детского вокального конкурса "Ты супер!" Ёлка. Она рассказала о своем отношении к алкоголю, о безумных поступках в юности, об участии в КВН и любимой детской кукле. Лиза исполнила свои самые популярные треки: "Город обмана", "Хочу", "Мир открывается", "Навсегда", (   Читать дальше...   )Производство: Жанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C6B2ED43276CD6BC8AAA1E063E1FFC856490D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

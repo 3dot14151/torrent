@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1857434   (1059686) от 
+###  Публикация: 1857835   (1060039) от 07.03.2026
+
+Julio Iglesias - Starry Night (1990) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Stage & Screen>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Help Falling In Love [0:03:22.10]
+02. And I Love Her [0:03:15.05]
+03. Mona Lisa [0:03:59.20]
+04. Cryin' Time [0:03:31.60](   Читать дальше...   )Жанр: Electronic, Pop, Stage & ScreenПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3CA64603B46EBFA68EEB8AF4A5E01FCD4EC3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857944   (1060019) от 07.03.2026
+
+DJ Slon (Александр Альберт) - В Яблочко (2025) [FLAC|Lossless|WEB-DL|tracks] <Europop, Disco, Euro House, Pop Rap>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А ты меня любишь (2025) [00:02:38]
+02. Kolesiki (DJ Prezzplay Reboot) [00:02:48]
+03. Джимми, Джими (2025) [00:02:41]
+04. Эх, яблочко (Silver Ace Remix) [00:02:52](   Читать дальше...   )Жанр: Europop, Disco, Euro House, Pop RapПродолжительность: 00:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24AF8BF1ED43B5D6442241A137215FA4A3520BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857434   (1059686) от 06.03.2026
 
 Марина Власова - Моя версия любви (2026) AI-generated content [MP3|320 Kbps] <Pop>
 
@@ -28,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857451   (1059684) от 
+###  Публикация: 1857451   (1059684) от 06.03.2026
 
 Robyn - Robyn Is Here (1997) [FLAC|Lossless|tracks + .cue] <Pop, Synth-pop>
 
@@ -685,64 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F723371870001B7488E3AAE133B3AAA00EC34BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853688   (1056915) от 15.02.2026
-
-Sotomayor - Wabi Sabi (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dance, Pop, Electronic>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me dejo llevar [00:04:24]
-02. Who's there [00:03:29]
-03. Vida [00:02:19]
-04. Si no duermo [00:03:02](   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D286F80AFFFAFF90C8903FE9A4A3F6ED71A119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854015   (1056911) от 15.02.2026
-
-VA - Pure... 80s Soul Grooves (2013) 4 x CD [FLAC|Lossless|tracks + .cue] <Pop, R&B, Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob Base & DJ E-Z Rock - Get On The Dance Floor (12 Inch Mix) (7:36)
-02. S-Express - Theme From S-Express (5:53)
-03. Breakwater - Release The Beast (4:57)
-04. Jacksons - Walk Right Now (6:30)(   Читать дальше...   )Жанр: Pop, R&B, Soul, DiscoПродолжительность: 05:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670E5D7B22059D64A4DE3DFA8641638FCCF84E06
 ```
 
 https://mybot314.ru/tekegram_catalog/

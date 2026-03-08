@@ -1,32 +1,3 @@
-###  Публикация: 1849769   (1053639) от 24.01.2026
-
-Introduce Wolves - A Modern Mountain Romance (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Self Help (4:24)
-02.  I Am an Artist (4:14)
-03.  Kanada (5:23)
-04.  Cheating in Her Dreams (4:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB92A2BD8F4BA6ABB46073060164A40AB5377C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849780   (1053627) от 24.01.2026
 
 Marillion - An Hour Before It's Dark (Full Suites Version) (2026) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
@@ -744,6 +715,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2991A0746515F9DAC5E29CDFCE27C31DF2CCA371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848713   (1052920) от 18.01.2026
+
+Dan Zlotnick - Asking For A Friend (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Americana>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Weekend Conversation (03:27)
+ 02 - Never Healed Heart (03:17)
+ 03 - Teach Me How (03:37)
+ 04 - Asking For A Friend (03:29)(   Читать дальше...   )Жанр: Blues Rock, AmericanaПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E87337B2B7A7E1D10EC0FC94949755EF3AE9B7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

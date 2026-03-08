@@ -1,32 +1,3 @@
-###  Публикация: 1201955   (791025) от 27.01.2018
-
-No Age - Snares Like a Haircut (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Noise Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cruise Control 03:31
-02. Stuck In The Changer 03:14
-03. Drippy 02:38
-04. Send Me 03:55(   Читать дальше...   )Жанр: Indie, Noise RockПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03BC28453CF3AA8DCC84E4480975C7D32907CF07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202069   (791020) от 27.01.2018
 
 Tribulation - Down Below (2018) [MP3|320 Kbps] <Progressive Death Metal, Gothic Metal>
@@ -744,6 +715,35 @@ Tunng - Songs You Make At Night (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF1B868E4642850A7FD2562376CA2E152D26162C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202083   (790504) от 28.01.2018
+
+Orphaned Land - Unsung Prophets & Dead Messiahs (2018) Limited Edition [FLAC|Lossless|image + .cue] <Middle Eastern Folk, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790504.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1: Unsung Prophets & Dead Messiahs
+
+01. The Cave 08:10
+02. We Do Not Resist 03:24(   Читать дальше...   )Жанр: Middle Eastern Folk, Progressive MetalПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AEF40A22E1793E2B9745DD1A93A98A9F1147607
 ```
 
 https://mybot314.ru/tekegram_catalog/

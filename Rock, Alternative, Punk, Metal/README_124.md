@@ -1,32 +1,3 @@
-###  Публикация: 1483443   (1006787) от 14.07.2021
-
-Got no ego - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Anti-De Sitter Space (00:04:15)
-02 - Banana (00:04:13)
-03 - Fortune Cookie (00:04:18)
-04 - Consequences (00:04:12)(   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B5FD0A6A170ED626B6F1618ED9330BD0CE1446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483561   (1006786) от 14.07.2021
 
 Mythologyca - Corner Of Hell's Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -743,6 +714,35 @@ Paradise Lost - At the Mill (2021) [MP3|320 Kbps] <Doom Metal, Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EB263B66AFD44245AB6AA9655006A5E35F95C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483896   (1006391) от 17.07.2021
+
+Paradise Lost - At the Mill (2021) Live [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Widow (Live)
+02. Fall From Grace (Live)
+03. Blood And Chaos (Live)
+04. Faith Divides Us - Death Unites Us (Live)(   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7900CB648ED73C38543164B6B40F5322DCAB228E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 501569   (259306) от 29.05.2012
+
+Big Time Operator - The Game (2001) [FLAC|Lossless]<Swing, Neo-Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Game
+02. The Coffee Song
+03. Dancin' the Night Away
+04. Sunny Ray
+05. Smoke, Smoke, Smoke
+06. I'm Gonna Live Till I Die
+07. Harlem Nocturne
+08. That Old Black Magic
+09. Speed
+10. Wonderful Day(   Читать дальше...   )2001Жанр: Swing, Neo-Swing, Big BandПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501709   (259289) от 29.05.2012
 
 Gianluigi Trovesi Ottetto - Fugace (2003) /ECM/ [APE|Lossless]<Jazz>
@@ -774,38 +809,6 @@ Bernhard Lackner - Stories From Home (2011) [FLAC|Lossless]<Fusion, Jazz-Rock>
 07. European Summer
 08. Two Flies With One Hit
 09. Reprise2011Жанр: Fusion, Jazz-RockПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498501   (256260) от 21.05.2012
-
-Bernd Reiter Quartet feat. Roman Schwaller - Live At The Jazzland-Vienna (2007) [FLAC|Lossless]<Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strike Up The Band
-02. Theme For Ernie
-03. Ruby, My Dear
-04. Bitter Suite
-05. Cheese Cake
-06. Body And Soul
-07. Dear John2007Жанр: Hard Bop, Post-BopПродолжительность: 01:19:30
 
 ## Скачать торент
 ```bash

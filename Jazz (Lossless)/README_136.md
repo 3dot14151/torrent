@@ -1,3 +1,32 @@
+###  Публикация: 1149800   (598633) от 12.07.2017
+
+Bria Skonberg - So Is The Day {ECD} (2012) Random Act Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Me in the Back of Your Mind [04:11]
+02. So Is the Day [07:36]
+03. Hip Check [07:31]
+04. I Wish I Hadn't Forgotten [04:04](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D55AF19373D500EFA1286F263B10685FE5C05EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914486   (598575) от 02.07.2015
 
 Art Blakey & Les Jazz-Messengers - Au Club Saint-Germain Vol. 3 (1959) /2014, Columbia/[FLAC|tracks+.cue]<Jazz, Hard Bop>
@@ -746,35 +775,6 @@ Harold Land - Choma (Burn) (1971) 2014, Boplicity [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0A3F91EB76E3678481CA8A71F81AE0661867FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548318   (595095) от 05.05.2022
-
-Erroll Garner - Portrait (1944 - 1954) 10CD, 2003, Documents [FLAC|Lossless|image + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595095.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - I Hear A Rhapsody:
-01. Perdido [2:45]
-02. I Hear A Rhapsody (Parts 1&2) [8:19]
-03. You Where Born To Be Kissed [5:14](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 09:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6474D1309256D5D68B070629F0327A4FDBF0BECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

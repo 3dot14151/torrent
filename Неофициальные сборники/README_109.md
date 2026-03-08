@@ -1,3 +1,177 @@
+###  Публикация: 1103792   (883647) от 13.02.2017
+
+VA - Dance 2017  [MP3|320 Kbps] <Electronic, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883647.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ethyl/Flori - Shelter (07:33)
+2. Brawther - Spaceman Funk (Deep Club mix) (08:12)
+3. Shanti Celeste - Nu4him (06:21)
+4. BLM - Chemistry (07:14)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 01:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA4BCE468C19138B7800885EFF2C79BFAB9C3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103845   (883642) от 13.02.2017
+
+VA - Снегопад новинок. Часть № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Зара - Забыть О Тебе 3:32
+002. Alex 67 - Сумасшедшая 3:18
+003. Alvarez - Sin Miedo 4:12
+004. Far East Movement Feat. Yoonmirae & Autolaser - Fighter 4:14(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42ED724DB9CDC717AD7B161F983D67A481B2806A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103831   (883640) от 13.02.2017
+
+VA - Музыкальное потрясение зимы от Русского радио выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883640.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A-Sen - Губы Любят 3:16
+002. Proвокация - Два Сердца 3:35
+003. Моника - Корпоратив 3:08
+004. Елена Есенина - Тамтамы 3:00(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:022E3F0FC85E2C0CD64A5BF9F6E7BEA45BF65D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103842   (883639) от 13.02.2017
+
+VA - Зимняя русская радиоволна (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Стас Костюшкин - Бабушка 2:58
+002. Lega - Она Мой Diamond 3:31
+003. Ira Smith - Мир В Тебе 3:12
+004. Егор Крид - Мало Так Мало 3:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279EF977EC8DCF075E8C064833DCF558AA8AE49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103837   (883638) от 13.02.2017
+
+VA - Музыкальное зимнее настроение. Русский сборник (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883638.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Андрей Ковалев - Ты Моя Любовь Сумасшедшая 3:02
+002. Iowa - Мои Стихи Твоя Гитара 3:14
+003. Карина - Мой Мир 2:31
+004. Галина Боб - Только С Тобой 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A148B84D2EE3B7944DD346ED30971F08631D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103834   (883631) от 13.02.2017
+
+VA - Стопудовые зимние хиты. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883631.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Аполлинария - Околдована 3:00
+002. Sigala & Digital Farm Animals - Only One 3:24
+003. Элемент - Не Мое Кино 3:03
+004. Oleynik - Остановись 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC1B4C6B945C7A30975673C747A5063D121F1A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103847   (883550) от 13.02.2017
 
 VA - Зимние лучшие блатные песни. Выпуск 7 (2017) [MP3|256 Kbps] <Шансон>
@@ -568,180 +742,6 @@ Screamin' Jay Hawkins - I Put A Spell On You: Screamin' Years(2016) 2CD [MP3|319
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0977A5F44AE1429477C1796833940A419DDC0A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495223   (882369) от 11.09.2021
-
-VA - Music of the Night (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doja Cat - Streets (3:47)
-02. Color Me Badd - I Wanna Sex You Up - Single Mix (3:56)
-03. PARTYNEXTDOOR, Drake - Recognize (5:11)
-04. Pop Smoke, Lil Tjay - Mood Swings (3:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E2D38DC5D07D32A6CCB675B685C9AC603887D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495031   (882262) от 11.09.2021
-
-VA - Remix NNM 3 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yeah Yeah Yeahs - Heads Will Roll (Kubi Remix) (4:15)
-02. The Black Eyed Peas - Don39t Phunk With My Heart (Sulim Dj Chicago Extended Remix) (4:46)
-03. La Bouche - Sweet Dreams (Struzhkin Vitto Remix) (3:37)
-04. Oceana - Cry Cry (Layer Bootleg) (4:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EA3E7E0530F1074E5637BFD6DB0F49421B5F42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373173   (882181) от 05.04.2020
-
-VA - Spring Day: Chill House Selected (2020) [MP3|320 Kbps] <Chill House, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parvenu - Side Step
-02. Sebastian - Movement
-03. Beamy - Big Sur (Original Mix)
-04. Dreamweaver - Aurora Borealis(   Читать дальше...   )Жанр: Chill House, ChilloutПродолжительность: 03:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F72AB534850703A8ECC7567A55E28D9D9C43F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372769   (882148) от 05.04.2020
-
-VA - The Official UK Top 40 Singles Chart 03.04.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. SAINt JHN - Roses (Imanbek Remix)
-03. Dua Lipa - Physical
-04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30BE7FB8E6194A6FEA7C2A8BB1B4050B1BF411A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372826   (882128) от 05.04.2020
-
-VA - German Top 100 Single Charts 03.04.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zuna x Loredana - Du bist mein
-02. The Weeknd - Blinding Lights
-03. UFO361 - Allein sein
-04. Kontra K - Puste sie weg(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E860BA541196E93BAD3AD025C0DBF2D848EC9CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372907   (882108) от 05.04.2020
-
-VA - Record Super Chart 631 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARIA - Bleu Chanel (NA-NO Remix) 2:43
-02. SAINt JHN - Roses (Imanbek Remix) 3:58
-03. NRD1 - All Good Things (Come To An End) 3:27
-04. Carla Morrison - Disfruto 3:57(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B60B05D2639C148069C0A96F6233102F96CA4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

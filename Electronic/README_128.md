@@ -1,3 +1,61 @@
+###  Публикация: 1508994   (796189) от 10.11.2021
+
+V.A. - Cafe Del Mar XXVII (Volumen Veintisiete) (2021) 2CD [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Eric Hilton - The Impossible Silence
+02. Kraak & Smaak, iogi - All I Need
+03. Bent - Friends(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy Listening |Продолжительность: 02:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C06712C9B99A094619590161E0F47236610F7AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011518   (796153) от 28.04.2016
+
+The Comet Is Coming - Channel The Spirits (2016) [FLAC|Lossless|Web-DL|tracks] <Electronic, Jazz, Psychedelic Rock>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prophecy (1:49)
+02. Space Carnival (3:36)
+03. Journey Through The Asteroid Belt (5:33)
+04. Nano (1:16)(   Читать дальше...   )Производство: Leaf – BAY 104Жанр: Electronic, Jazz, Rock, Psychedelic RockПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91273F20D3989EB6A3C099317831683BF9A2124A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011523   (796045) от 28.04.2016
 
 Didier Marouani Space - Greatest Hits (2008) Star Mark, 2CD [MP3|320 кб/с] <Electronic>
@@ -684,64 +742,6 @@ System 7 & Derrick May - Mysterious Traveller (2002) A-Wave [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBD8DF03380372DD33CFB4702EB4FC4C38173123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274130   (795065) от 05.01.2019
-
-VA - Best Of Soulful (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie - Switch The Sound (Latouche Finale Remix) 4:10
-02. Jerem A - I Need You (Dj Hakuei Nu Disco Remix) 7:52
-03. Darren Studholme - I Like Your Eyes (Deep Disco Mix) 9:36
-04. Manjit Feat. Leah Uk - Give You A Chance (Original Mix) 6:55(   Читать дальше...   )Жанр: HouseПродолжительность: 03:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6C2D4837276B3FF315EE46926E1B96D504DE88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274128   (795064) от 05.01.2019
-
-Drexciya - Neptune's Lair (1999) Tresor [FLAC|Lossless|tracks+.cue] <Electro, Detroit Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro: Temple Of Dos De Agua (1:00)
-02. Species Of The Pod (3:53)
-03. Andreaen Sand Dunes (6:15)
-04. Running Out Of Space (1:54)(   Читать дальше...   )Жанр: Electro, Detroit TechnoПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F047C61C339118569404440F9007C6BC5A0B9FCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

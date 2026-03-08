@@ -1,3 +1,61 @@
+###  Публикация: 1781036   (26876) от 21.02.2025
+
+NЮ - Когда мы были львами (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26876.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ангел
+2. Обернись
+3. Ницше
+4. Смотри в меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0A71DB38BDA5F18F6AD4F661507AAF78C5A11E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781312   (26776) от 22.02.2025
+
+VA - Modern 80's - The Best Of Discopop (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - You Can Win If You Want
+02. Fancy - Slice Me Nice
+03. C.C. Catch - I Can Lose My Heart Tonight
+04. Kylie Minogue - The Loco-Motion(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 02:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E29F3BB1E96C3BD8D3268BA11B07D375BFD1C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781828   (26463) от 25.02.2025
 
 VA - Modern 80's - The Best Of Discopop Vol.3 (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop>
@@ -687,64 +745,6 @@ Secret Service - When The Night Closes In (1985) 1st Scandinavian Press [APE|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D68B59511F3BC05377EA1D107C8263CACE009227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786500   (23965) от 21.03.2025
-
-VA - 80's Dance Rarities (1989) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi-NRG, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tempo Rubato - Don't Stop The Classics (4:20)
-02. Overdrive - Beat It Up (7:56)
-03. Diana Pamelay - Groove Me (3:47)
-04. Twiggy Bop - Manolito (3:52)(   Читать дальше...   )Жанр: Disco, Hi-NRG, PopПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E00E71E84B609F5FB5B33F1BB321D43E5078505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786656   (23946) от 21.03.2025
-
-VA - The Modern Mix, Vol. 1 - 80's Dance Rarities (mixed by Steve Masters) (2000) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When In Rome - The Promise (4:48)
-02. L.A.C. - The Fuzz (3:50)
-03. Secession - The Magician (4:08)
-04. The Hurricanes - Only One Night (4:50)(   Читать дальше...   )Жанр: Italo-Disco, Euro-HouseПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E882AD8BA6B8B139AD11ADC90062B4027FFAE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

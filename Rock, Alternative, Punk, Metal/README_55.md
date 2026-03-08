@@ -1,32 +1,3 @@
-###  Публикация: 1442355   (1036631) от 25.01.2021
-
-Mors Principium Est - Seven (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Day for Redemption
-02.Lost in a Starless Aeon
-03.In Frozen Fields
-04.March to War(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B060986A02B52ADF58A56903904114AAF711E8DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442322   (1036630) от 25.01.2021
 
 Fatal Fusion - Land of the Sun (2021) [MP3|320 Kbps] <Progressive Rock>
@@ -743,6 +714,35 @@ Universum25 - Universum25 (2023) [FLAC|Lossless|WEB-DL|tracks] <Deutschrock, Pun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E1CFCE8CD493C997D3435DE9B0F6A35D1C96AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616738   (1036164) от 03.03.2023
+
+Hammerlin - La Sombra de la Luna (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La Sombra de la Luna (04:32)
+02 - Ante Tus Encantos (04:30)
+03 - Hubris (04:42)
+04 - Amor de Fantasia (04:27)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B59B7DAF8DFDCE6F0F46D1F0A712C00E65B85D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

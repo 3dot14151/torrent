@@ -1,3 +1,116 @@
+###  Публикация: 1280336   (759741) от 03.02.2019
+
+Nelly Furtado - Say It Right (2019) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759741.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nelly Furtado - Say It Right (Jamie Williams) RemixЖанр: Club, DanceПродолжительность: 00:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8639D7BD8A88782E39E7C4021DC87D7BCFEE2A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017925   (759088) от 18.05.2016
+
+VA - Союз XXXL - Весенний Драйв (2016) [MP3|320 кб/с] <Pop, Dance, Disco, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yotto - Aviate (Original Mix)
+ 02. As I Am feat. Jedd Roberts - Closer (Original Mix)
+ 03. Rauschhaus - A Place Beyond Belief (Original Mix)
+ 04. m.O.N.R.O.E. - Seeing Things (Original Mix)(   Читать дальше...   )Жанр: Pop, Dance, Disco, RockПродолжительность: 07:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B95BFE637F66594C7081BFAED81698D913EA562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280780   (758729) от 04.02.2019
+
+VA - New Music Releases Week 5 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758729.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A$AP Twelvyy - Child's Play
+002. Aaron May - Let Go
+003. Ady Suleiman - Strange Roses
+004. AJR - 100 Bad Days(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 11:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0478BA928EC82CEA1CEE5B4DB0DE8A82393D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280831   (758606) от 04.02.2019
+
+VA - Громкие новинки месяца Vol.23 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тима Белорусских - Я больше не напишу
+02. Jony - Пустой Стакан
+03. Luis Fonsi - Poco A Poco
+04. Galantis, OneRepublic - Bones(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC5654773717F6CBF6965BA58B514CDAF44E5E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522454   (758392) от 07.01.2022
 
 VA - Новинки С Разных Популярных мп3 Сайтов ver. 115 (2022) [MP3|320 Kbps] <Club, Dance, Disco>
@@ -625,122 +738,6 @@ VA - Vocalove (2020) [MP3|320 Kbps] <Pop, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E09B142907723B14841FD241B43CBB4841E70FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396019   (750153) от 13.07.2020
-
-VA - Summer Lovin' (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750153.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Dua Lipa - Love Again (4:18)
-2.Ellie Goulding, Lauv - Slow Grenade (3:37)
-3.Lewis Capaldi - Before You Go (Edessa Remix) (3:16)
-4.Taylor Swift - Cruel Summer (2:58)(   Читать дальше...   )Жанр: Rock, Pop, R&BПродолжительность: 02:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FFA5E82F36F86BA3627EB9421F8DED1D9657D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281705   (750022) от 09.02.2019
-
-VA - The Official UK Top 40 Singles Chart 08.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - 7 Rings 2:59
-02. Ava Max - Sweet But Psycho 3:08
-03. Sam Smith, Normani - Dancing With A Stranger 2:51
-04. Calvin Harris, Rag'n'bone Man - Giant 3:49(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE89E95A5F7ED7BD6DFFD20333BA7AC00A1F9685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281670   (750019) от 09.02.2019
-
-VA - Winter White Party (2019) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750019.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sara Landry - Tell Me
-002. Dj Kone & Marc Palacios - Push The Feeling On
-003. Dj Wady & Moondark - No One Cares (Original Mix)
-004. Hardwell - Kicking It Hard(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1396440BB151468F560715A2E482504B9BCC5A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396017   (749840) от 13.07.2020
-
-VA - Acoustic Chill by Deezer (2020) [MP3|320 Kbps] <Rock, R&B, Soul & Funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749840.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Billie Eilish - when the party's over (3:19)
-2. Highland Peak - Trampoline (Acoustic) (3:33)
-3. Red Hot Chili Peppers - Road Trippin' (3:24)
-4. Jorja Smith, Burna Boy - Be Honest (Acoustic) (3:11)(   Читать дальше...   )Жанр: Rock, R&B, Soul & FunkПродолжительность: 03:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694C1B0D9CA4FCFAAA6CC4E650836E890DB2DDC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

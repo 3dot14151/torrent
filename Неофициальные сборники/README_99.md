@@ -1,3 +1,177 @@
+###  Публикация: 992799   (899218) от 03.03.2016
+
+VA - Шальной Шансон в Дорогу (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олег Лифановский - Шальная
+02. Андрей Усманов - Попутчица
+03. Игорь Слуцкий - Березоньки Березки
+04. Владимир Курский - Колода(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB96F67D36A889C236A27B4956DD2477A9A1672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992904   (899079) от 03.03.2016
+
+VA - Золото Русского Диско - 18 (2015) [MP3|192-320 кб/с] <Pop cборники>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кристалл & Natali Song - Зима
+02. Мария Садилова - Прости меня, любимый
+03. Юрий Прибылов & Обратная сторона - Падает снег
+04. Кассета - Последняя ночь(   Читать дальше...   )Жанр: Pop cборникиПродолжительность: 01:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75031CCDA116335D2FDAF4CE94E0F13E90272CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993006   (898949) от 03.03.2016
+
+VA - Русское радио. Весенняя дискотека по-русски (2016) [MP3|192-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898949.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктория Ланевская - Мама
+002. Кристина Кос - Ты Мое Счастье
+003. Потап и Настя - Умамы
+004. Natan - Я Тебя Выберу(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0EEE04F333CF33E2F349689FE936DF66AEDE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 868226   (898899) от 10.02.2015
+
+Парк Горького (Gorky Park) - Коллекция легендарных песен (2014) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stare
+02. California Promise
+03. Five Wheel Drive
+04. Ego(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1398393E7CB17BC0A6BCF56917371403CEA58903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992688   (898788) от 03.03.2016
+
+VA - Top 100 Зайцев.Нет Февраль (2016) [MP3|192-320 кб/с] <Pop, Dance, Rock, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898788.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alekseev - Пьяное Солнце (03:41)
+002. Егор Крид - Будильник (03:25)
+003. Алексей Воробьев - Она Сумасшедшая (03:07)
+004. Тимати Feat. Рекорд Оркестр - Баклажан (03:07)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 06:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6B56A1D5207FB7D21AC534638CD174AF2E5869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992897   (898733) от 03.03.2016
+
+VA - Rock Hits (Remastered by KronStudioLab) [4CD] (2015) [MP3|320 кб/с] <Rock, Hard Rock, Metal Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Purple - Hush (04:26) (1968)
+02. Led Zeppelin - Whole Lotta Love (05:33) (1969)
+03. Electric Light Orchestra - Don't Bring Me Down (04:08) (1979)
+04. Scorpions - Fly People Fly (05:04) (1974)(   Читать дальше...   )Жанр: Rock, Hard Rock, Metal RockПродолжительность: 04:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C468E9EBF97F835BAE55D8EA1019CCAD8802D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637168   (898530) от 01.04.2013
 
 VA - Громче музыку! Жаркий хит (2013) [MP3|256-320 кб/с]<Dance, Club, Pop>
@@ -577,180 +751,6 @@ VA - Record Super Chart #473 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD85253C77CA33CA7845E9D1583F9EDE290B75E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993156   (897769) от 04.03.2016
-
-VA - Tropical Beach: Ibiza Progressive Trance (2016) [MP3|320 кб/с] <Progressive Trance, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897769.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Myde - Castle In The Sand (Radio Edit) 03:27
-002. 4 Strings - Illumina (Original Mix) 05:17
-003. Aeden - Traveler (Radio Cut) 03:45
-004. Addliss - Care For You (DJ Ives M & DJ T.H. Radio Cut) 03:26(   Читать дальше...   )Жанр: Progressive Trance, Club, ElectroПродолжительность: 07:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F8EC7B98B1F467A21C782F8011B2566B82E53B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991512   (897767) от 04.03.2016
-
-VA - Minimal Party (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaboo - Ducking
-02. Alberto Bandiera - He He He (DJ Ciruzz Remix)
-03. Zareh Kan - No3287 (Beats Sounds Remix)
-04. Uriel Lakost - Minimal India(   Читать дальше...   )Жанр: HouseПродолжительность: 02:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2838675E924A471BAF3F5B6A3A67B689B95134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100798   (897709) от 05.02.2017
-
-VA - Зимний Хаус Калейдоскоп ТОП 50 (2017) [MP3|320 Kbps] <House, Deep House, Nu Disco, Tropical House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bravve Feat. Li'Raw vs. DJ Romeo & Anton Liss - Love That Goes Around [05:07]
-02. Coldplay Feat. Avicii & Syntheticsax - A Sky Full Of Stars (DJ Legran & DJ Alex Rosco Remix) [06:44]
-03. Maroon 5 Feat. Nicki Minaj - Sugar (Jack & Coke Remix) [04:23]
-04. Part Of Me Feat. Froya - Loan You My Eyes (Patrick Podage Remix) [06:44](   Читать дальше...   )Жанр: House, Deep House, Nu Disco, Tropical HouseПродолжительность: 04:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C06C46794652E63D3C8CBE0317F920F3F6BBE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761155   (897680) от 27.02.2014
-
-Phil Collins - 25 Best Songs (2014) [MP3|~245 кб/с]<Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Air Tonight 1981
-02. Another Day In Paradise 1989
-03. One More Night 1985
-04. Everyday 1993(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F2E77B322D48A7F3D5BB287FC15C52FD1740E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993043   (897647) от 04.03.2016
-
-Va - Top Eurodance Tunes (2016) MP3 (2016) [MP3|320 кб/с] <Pop, Dance, Eurodance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Garden - And She Said (Eurotrance Remix)
-02. Basement Three - Catch Your Wave
-03. Housecream - Still Not Sorry (Remix)
-04. Asya - Like a Dream(   Читать дальше...   )Жанр: Pop, Dance, Eurodance, HouseПродолжительность: 01:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A0F2EC528F3E14FE1190386E5540DCEBC25578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993144   (897585) от 04.03.2016
-
-Леонид Азбель и Катенька Дроздовская - Старая Одесса (2001) [MP3|320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Иволга
-03. Перебиты, поломаны крылья
-04. Однажды сценку я наблюдал(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0FF58597676804597B2FA1B38D4EEE279F90FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

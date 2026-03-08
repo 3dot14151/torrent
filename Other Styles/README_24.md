@@ -1,3 +1,32 @@
+###  Публикация: 257973   (908494) от 20.03.2020
+
+Jean Michel Jarre - Greatest Hits (2008) 2CD [APE|Lossless|image + .cue] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnetic Fields 1 (5:59)
+02. Oxygene (Pt.4) (4:15)
+03. Equinoxe (Pt.5) (3:47)
+04. Magnetic Fields (Pt.2) (4:02)(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413119B3D01A6CAF2AD025EE27A77C132E54DE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 227951   (908465) от 20.03.2020
 
 Алекс Сильванни - Электроорган (1975) Vinyl Rip, Remastered, 2007, Raritet Music [FLAC|Lossless|image + .cue] <Easy Listening, Jazz, Pop>
@@ -717,35 +746,6 @@ VA - Ethnic Music...indians, Dreams, Visions (2012) 2CD [MP3|320 Kbps] <Native A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33643B10116402B9943898F98A22BDED8702A3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099985   (901581) от 03.02.2017
-
-Jamie McMenamy - Oceanlands (2017) [MP3|320 Kbps] <Ambient, Downtempo, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rising Oceans 06:20
-02. Aquata 07:31
-03. Song of Frogs 05:12
-04. Call from the Forest 06:05(   Читать дальше...   )Жанр: Ambient, Downtempo, RelaxationПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC559B99538010E53478CBF9F7B3DC3C8DB4AB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1042599   (578381) от 13.08.2016
-
-Wild Beasts - Boy King (2016) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternative/Indie Rock >
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Cat
-02. Tough Guy
-03. Alpha Female
-04. Get My Bang(   Читать дальше...   )Жанр: Pop Rock, Alternative/Indie RockПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88721D0B208E14ACDB279E5C0CE4A240A7003D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527038   (578375) от 25.07.2012
 
 Accept - Полная коллекция хитов (2012) [MP3|320 кб/с]<Heavy Metal>
@@ -763,6 +734,35 @@ Eagles - Their Greatest Hits Volumes 1 & 2 (2017) (2CD) [MP3|320 Kbps] <Rock, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E062CC04CF1828644C4A49020BCF738E7E179D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554480   (577489) от 30.05.2022
+
+Five Finger Death Punch - Afterlife (2022) [MP3|209-221 kbps VBR (V0)] <Alternative Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Welcome to the Circus [00:04:16]
+02 AfterLife [00:04:03]
+03 Times Like These [00:03:29]
+04 Roll Dem Bones [00:03:19](   Читать дальше...   )Жанр: Alternative Metal, Groove MetalПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996D6631F6A4F634C571CD1DE23F2E78AC0F3FFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

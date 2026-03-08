@@ -1,3 +1,61 @@
+###  Публикация: 1806461   (64910) от 26.07.2025
+
+VA - Live @ Mainstage, Ultra Europe, Croatia (2025) [MP3|320 Kbps] <Trance, Techno, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren ft. JAI RYU – Let It Be For Love (Intro Edit)
+02. Travis Scott & Playboi Carti vs. Armin van Buuren & Omnia – FE!N vs. Love (Armin van Buuren Mashup)
+03. Armin van Buuren & The Stickmen Project – No Fun (ID Remix)
+04. Armin van Buuren & JOA – Heavy(   Читать дальше...   )Жанр: Trance, Techno, Tech HouseПродолжительность: 01:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D065EEC47C64E1AE914950454DF9106CB73F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808821   (64892) от 26.07.2025
+
+VA - Progressive Trance Awakening, Vol. 06 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trance Ensemble & AFTERUS - Dark (Radio Edit) [3:44]
+02. Dreaman - Time That Cannot Be Returned (Radio Mix) [5:56]
+03. Steve Sunrise - In My Dreams (Original Mix) [5:38]
+04. Eddie Lung - Afterglow (Extended Mix) [4:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4118EFC86BBA64330F811921CEAEF0DFF106913D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808922   (64837) от 27.07.2025
 
 VA - Bikini Machines, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -687,64 +745,6 @@ VA - Trancendence, Vol. 03 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BFCFBE37DA0E5260B65FC39BEEDC5828C8C5B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810069   (64539) от 02.08.2025
-
-VA - Trance Fusion, Vol. 12 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Semper T. - Parallel Universe (Original Mix) [6:42]
-02. Stefano Negrini & Alaera - Your Loving Angel (Original Mix) [4:18]
-03. Young Hu - Cry Cry Cry (Fros7novA Remix) [4:45]
-04. Masaru Hinaiji & Orie Yoko - Silent Fountain (Original Mix) [4:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15;26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22C63BDC49B8EEC0FE2F2FF4783A0BA01FD768D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821636   (63853) от 03.10.2025
-
-VA - Armin van Buuren - A State Of Trance 1245 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane – Wherever I Go
-02. DIM3NSION & Kadett – Turning (Progressive Pick)
-03. Kevin de Vries & Add-us – Nami
-04. Hausman – This Is Not A Drill(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9590CB2AE637AD736F0298B319DDFBE8E33A9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1386533   (793568) от 30.05.2020
+
+Buck Owens And His Buckaroos - I've Got A Tiger By The Tail (1965) Reissue 1995 [FLAC|Lossless|tracks] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got A Tiger By The Tail (2:13)
+02. Trouble And Me (1:56)
+03. Let The Sad Times Roll On (2:16)
+04. Wham Bam (2:03)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6485F00740B3967C0DE7042043577E045C6889FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012626   (793557) от 01.05.2016
 
 Roland Romanelli (ex. Space) - Meditations Et Reves (Meditations and Dreams) (1988) [FLAC|Lossless|image + .cue] <New Age, Easy Listening, Electronic>
@@ -716,35 +745,6 @@ Sungha Jung - Sungha Jung Cover Compilation 1-5 (2019) [MP3|~245 Kbps (V0)] <Aco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88E56749C2317B0950C5D74BE24957950E050ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201874   (791560) от 26.01.2018
-
-Бузулук - Славьтесь, славьтесь казаки! (2006) [MP3|320 Kbps] <Folk, Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На речке было на Лазорьевой (3:45)
-02. На сухом было пруду (4:25)
-03. Ни сокол с орлом солеталися (3:42)
-04. 25 июня (3:15)(   Читать дальше...   )Жанр: Folk, Казачья песняПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477F4856A312FCEBA45343CF0BEF1711C98E653C
 ```
 
 https://mybot314.ru/tekegram_catalog/

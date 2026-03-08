@@ -1,3 +1,58 @@
+###  Публикация: 1282367   (745400) от 12.02.2019
+
+VA - Welcome To Miami (2019) [MP3|320 Kbps] <House, FutureHouse, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sons Of Maria feat. Angelika Vee - Sweet Madness 3:09
+02. EDX - Daybreak 3:13
+03. Barkley - Ligona 2:20
+04. Playinfields - You and Me 3:10(   Читать дальше...   )Жанр: House, FutureHouse, DanceПродолжительность: 02:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:472F3EE0145B60F54CE7F9742E80D11ACB5BAA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282469   (745396) от 12.02.2019
+
+Brian Eno - Reflection (2017) Japanese Limited Edition [FLAC|Lossless|tracks + .cue] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflection (54:00)Жанр: Ambient, ExperimentalПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2A0D2C969665BC13C94533B05ADE5DCAB05441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020648   (745390) от 26.05.2016
 
 Gregory Esayan - Pilgrim's Diary (2016) [MP3|320 кб/с] <Progressive House , Breaks>
@@ -686,62 +741,6 @@ VA - Suanda Music Radio Top 15 (April 2018) [MP3|320 Kbps] <Trance, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69C217F905C8B9C2D416F26CD3AA9C2B51225B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217470   (743481) от 04.04.2018
-
-VA - United Colors Of Trance Vol.11 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Inc - Strong
-02. Vol Deeman - Fantasy
-03. Daniel Wanrooy & Marc Simz - Komaru
-04. Ryoji Takahashi & EpicFail feat. Amy K - Moments(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD47B86B589DBDF9FAE9A395DC5B471D2460CAA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928676   (743294) от 13.02.2019
-
-Ott - Discography 12 Releases (2003-2018) [FLAC|Lossless|tracks+.cue, tracks]<Psydub, Downtempo, Psychill>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Load Up At Nunney Catch (07:22)
- 02. Scilly Automatic (07:42)Тип издания: CD, Web, VinylЖанр: Psydub, Downtempo, Psychill •Продолжительность: 00:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978BD5B27F0A29A2CF98A368AF192BB024A8279A
 ```
 
 https://mybot314.ru/tekegram_catalog/

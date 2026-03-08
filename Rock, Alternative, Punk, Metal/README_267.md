@@ -1,32 +1,3 @@
-###  Публикация: 1118914   (811489) от 26.03.2017
-
-VA - Охота 72 (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Скворцы Степанова - Ж*па 2.0
-02. Свободный полёт/Павел Пиковский - Не ждал
-03. CL.EVER - Стены
-04. Fast-mo - Beat(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFB46F139D40BC426F0A3EA324A9DA9B41E98AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118399   (811482) от 26.03.2017
 
 Barock Project - Detachment (2017) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Neo-Prog, Art Rock>
@@ -739,6 +710,35 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85592DF40C71A7B8EA47B1BE91E07E2ABF16467E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383604   (809973) от 16.05.2020
+
+Paradise Lost - Obsidian (2020) Limited Edition [FLAC|Lossless|image + .cue] <Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darker Thoughts
+02. Fall from Grace
+03. Ghosts
+04. The Devil Embraced(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821D5A0B69642DB285636E91436DC4F6E232B833
 ```
 
 https://mybot314.ru/tekegram_catalog/

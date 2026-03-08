@@ -1,3 +1,90 @@
+###  Публикация: 1507807   (798295) от 05.11.2021
+
+Decapitated - Nihility (2002) German Special Edition [WavPack|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Perfect Dehumanisation (The Answer?) (5:26)
+02 - Eternity Too Short (4:33)
+03 - Mother War (4:09)
+04 - Nihility (Anti‐Human Manifesto) (5:00)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA0BB8DCBFCE813CBAC22E0F99C79B346FE3D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507707   (798270) от 05.11.2021
+
+Bullet for My Valentine - Bullet for My Valentine (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parasite
+02. Knives
+03. My Reverie
+04. No Happy Ever After(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D93351431C2D84CA2A8DA5DE665A684A8F4ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508281   (798021) от 07.11.2021
+
+Monte Pittman - The Power of Three (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dark Horse
+02. Delusions Of Grandeur
+03. Everything's Undone
+04. Blood Hungry Thirst(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73904AE8E1E60F10FBEBA3889BE44F751370359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508280   (798020) от 07.11.2021
 
 Monte Pittman - Inverted Grasp Of Balance (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -655,93 +742,6 @@ SIG:AR:TYR - Northen (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91CDDAD9F3C08CD396DD96262A73E69B00F1789B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011173   (796396) от 28.04.2016
-
-October Tide - Winged Waltz (2016) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swarm 07:10
-02. Sleepless Sun 06:10
-03. Reckless Abandon 06:36
-04. A Questioin Ignite 05:13(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0280963A74A3E328CAFCF818EB86B3E8B7528936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011364   (796394) от 28.04.2016
-
-Bombus - Repeat Until Death (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes on the Price    04:11
-02. Rust    04:04
-03. Deadweight    04:11
-04. Horde of Flies    03:38(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED159A3A5D00BABD90FF630CBB52096158EA317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011687   (796389) от 28.04.2016
-
-Kick Axe - Welcome To The Club (1985) 2001, Rewind Records [APE|Lossless|image + .cue] <Heavy Metal, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Club (4:50)
-02. Feels Good, Don't Stop (3:21)
-03. Comin' After You (5:00)
-04. Make Your Move (3:53)(   Читать дальше...   )Жанр: Heavy Metal, Glam MetalПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF59F318BE1FDC7E16351EAF0BE5A677B78FBBEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

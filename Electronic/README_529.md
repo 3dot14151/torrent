@@ -1,3 +1,61 @@
+###  Публикация: 1762869   (35834) от 28.11.2024
+
+VA - Dance the Night Away, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loud Seduction - Heaven (Original Mix) (04:01)
+02. Amelie Elizèe - Crazy (02:32)
+03. Mojo - Set You Free (Original Version) (05:11)
+04. Valdemossa - Find Your Way (Radio Instrumental) (03:29)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13EC24DAE00F32CF99E7AC37BD10BABBD69667E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762873   (35823) от 28.11.2024
+
+VA - Dance the Night Away, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VarZet - Flashback (02:22)
+02. Jones, Brock & Nicole Cross - Losing My Religion (Extended Mix) (04:06)
+03. Köbes - Seen Before (05:50)
+04. Alex Nocera, Nico Zandolino & Roy Batty - Out of My Head (02:50)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E3BCC9A8B0A91263F3169DD49DF7994E26F0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763153   (35728) от 29.11.2024
 
 VA - Vocal House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -684,64 +742,6 @@ VA - Lounge Philosophy Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A1C073D196C5AC17BD5AD2F9FB85B1E973EF59A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764851   (34694) от 09.12.2024
-
-Alphaville - I Die For You Today (2023) The Blank & Jones Mixes [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Die For You Today (Blank & Jones so8os Mix) [00:03:34]
-02. I Die For You Today (Blank & Jones so8os Extended Mix) [00:05:26]
-03. I Die For You Today (Blank & Jones Club Mix) [00:07:46]
-04. I Die For You Today (Blank & Jones Dub Mix) [00:07:46](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E0713072041B681D78B0F86FBB059CB086776DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764956   (34685) от 09.12.2024
-
-The Orb - Orboretum: The Orb Collection (2024) 2CD [FLAC|Lossless|tracks + .cue] < Ambient, Ambient House, Dub, Chillout>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lunik (Komplott E.P. Version) (5:18)
-02. Captain Korma (5:15)
-03. Appletree In My Back Yard (Abakus Remix) (8:50)
-04. DDD (Dirty Disco Dub) (Belka & Strelka Remix) (5:06)(   Читать дальше...   )Жанр: Ambient, Ambient House, Dub, ChilloutПродолжительность: 02:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC19571818A95FC189294C327A5E915F1F4882D
 ```
 
 https://mybot314.ru/tekegram_catalog/

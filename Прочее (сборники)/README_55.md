@@ -1,3 +1,119 @@
+###  Публикация: 1279992   (763526) от 01.02.2019
+
+VA - Billboard Hot 100 Singles Chart 02.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763526.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Travis Scott - SICKO MODE
+002. Halsey - Without Me
+003. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
+004. Ariana Grande - thank u, next(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B17CCBA872E1CEE3A93AD3F8849D1D70D2310E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017175   (763262) от 16.05.2016
+
+VA - Weekend Anthems - 40 Party Floorfillers (2016) [MP3|320 кб/с] <Tropical, Club, Vocal, Melodic, Nu Disco, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oleska & Otter Berry - Far Behind 03:31
+02. Cosmo & Skoro feat. Nathan Brumley - Feel So Deep (Alexey Lexx Remix) 04:16
+03. Amersy And Romeo Blanco - Change (Romeo's TML Radio Edit) 03:04
+04. Alan Walker Feat. Iselin Solheim - Faded (Tiesto Deep House Remix) 04:30(   Читать дальше...   )Жанр: Tropical, Club, Vocal, Melodic, Nu Disco, Indie DanceПродолжительность: 03:23:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F86196EEB32277BA471B15F25332658FA832C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521652   (763218) от 04.01.2022
+
+VA - Winter Car Music 2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arem Ozguc, Arman Aydin, Jordan Rys - Astronaut In The Ocean
+02. Onur Atli, J R - STAY
+03. ATB, Topic, A7S - Your Love (9PM)
+04. Tamer Kaan, Jordan Rys - Blinding Lights(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA10A4EE4F4DF816B632B9C60CFF296FFADB992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214856   (763183) от 23.03.2018
+
+VA - This Wild West (2018) [MP3|320 Kbps] <Funk Blues, Rock Blues, Country>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arthur Neilson — When It's Over
+02. Sunny Sweeney — Better Bad Idea
+03. The Cadillac Three — This Accent
+04. Heart & Feather — Cold Wind(   Читать дальше...   )Жанр: Funk Blues, Rock Blues, CountryПродолжительность: 03:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CEF9CEFE09E2FB3968DE0BA8326B96B8B246BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017304   (763129) от 16.05.2016
 
 VA - UK Dancefloor Hits Return (2016) [MP3|192-320 кб/с] <Eurodance, Nu Disco, Hands Up, Club, Happy Sound>
@@ -629,119 +745,6 @@ VA - New Music Friday UK From Spotify 24-03 (2018) [MP3|320 Kbps] <Britpop Reviv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE2BE0F57868E499091E6F6C204A29EA167BD56D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280336   (759741) от 03.02.2019
-
-Nelly Furtado - Say It Right (2019) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759741.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nelly Furtado - Say It Right (Jamie Williams) RemixЖанр: Club, DanceПродолжительность: 00:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8639D7BD8A88782E39E7C4021DC87D7BCFEE2A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017925   (759088) от 18.05.2016
-
-VA - Союз XXXL - Весенний Драйв (2016) [MP3|320 кб/с] <Pop, Dance, Disco, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yotto - Aviate (Original Mix)
- 02. As I Am feat. Jedd Roberts - Closer (Original Mix)
- 03. Rauschhaus - A Place Beyond Belief (Original Mix)
- 04. m.O.N.R.O.E. - Seeing Things (Original Mix)(   Читать дальше...   )Жанр: Pop, Dance, Disco, RockПродолжительность: 07:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B95BFE637F66594C7081BFAED81698D913EA562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280780   (758729) от 04.02.2019
-
-VA - New Music Releases Week 5 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758729.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A$AP Twelvyy - Child's Play
-002. Aaron May - Let Go
-003. Ady Suleiman - Strange Roses
-004. AJR - 100 Bad Days(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 11:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0478BA928EC82CEA1CEE5B4DB0DE8A82393D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280831   (758606) от 04.02.2019
-
-VA - Громкие новинки месяца Vol.23 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тима Белорусских - Я больше не напишу
-02. Jony - Пустой Стакан
-03. Luis Fonsi - Poco A Poco
-04. Galantis, OneRepublic - Bones(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC5654773717F6CBF6965BA58B514CDAF44E5E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

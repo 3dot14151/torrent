@@ -1,3 +1,61 @@
+###  Публикация: 1272503   (143075) от 28.12.2018
+
+VA - Sexy Funky House Annual 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DCP - For U (Original Mix ) 05:07
+02. Antoine Clamaran - Good for Me (Original Mix ) 05:48
+03. House of Prayers - Stomp ( New York, Detroit ) (Original Mix ) 06:06
+04. Mazai - Disco Babe (Original Mix ) 04:35(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8610DEC3516499E454AF6094153FEBD288FBCB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272528   (143037) от 28.12.2018
+
+Neptune Project - A Question Of Reality (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neptune Project & Terence Mckenna – From The Past Into The Present Future
+02. Neptune Project – Bioluminessence
+03. Neptune Project & Polly Strange – Pulse
+04. Neptune Project – Proteus(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964CD61E5C070948DCA3DE9CF2F94FFC47118D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590576   (142959) от 17.12.2012
 
 VA - Toolroom Knights (Mixed By Forza) (26.11.2012) [MP3|320 кб/с]<Progressive House, Tech House>
@@ -690,64 +748,6 @@ VA - FSOE UV - Best of (2018) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EB95FADAF59EA98FC00BC0FBDACFFB00A0E87F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348831   (141511) от 29.12.2019
-
-Sparks - Past Tense: The Best Of (2019) 3CD [FLAC|Lossless|tracks + .cue] <Synthpop, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141511.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Computer Girl
-02. Wonder Girl
-03. (No More) Mr. Nice Guys(   Читать дальше...   )Жанр: Synthpop, Pop Rock |Продолжительность: 03:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CD57BA6AB6F7D6AD7B5CACD6EB6D2CC0305461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272773   (141503) от 29.12.2018
-
-VA - Markus Schulz - Global DJ Broadcast (Classics Showcase 2019) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond - Filmic
-02. Sasha & Maria - Be As One
-03. FC Kahuna - Hayling (Markus Schulz Remix)
-04. David West - Carrier(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B638F634703BBBD6BC584D28EE1EE91CAE3EEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

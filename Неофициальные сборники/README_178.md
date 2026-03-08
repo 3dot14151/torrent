@@ -1,3 +1,177 @@
+###  Публикация: 1202337   (790409) от 28.01.2018
+
+VA - Red And Black (2018) [MP3|230-320 Kbps] <Rap, Hip Hop, RnB>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790409.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Raahiem - Love & War
+002. Dude26, Sonne Ra - 26 Sonnen
+003. Bodega BAMZ - Actual Love Feat. Lil Tune
+004. Freeway - Addiction(   Читать дальше...   )Жанр: Rap, Hip Hop, RnBПродолжительность: 12:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E10A69131BD75FD3E5999DB1AFCCCAE60D5B4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508936   (790281) от 18.11.2021
+
+Cheeps - Аппликация (2021) Bootleg [MP3|192 Kbps] <IndiRock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheeps - Что-нибудь
+02. Cheeps - Жизнь - это странная штука (Cover Burgelo)
+03. Cheeps - Двадцатая весна
+04. Cheeps - Сердце моё(   Читать дальше...   )Жанр: IndiRockПродолжительность: 00:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6891D5BDC0CB756F0F56342F3624E368B2C6FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202242   (790228) от 28.01.2018
+
+VA - Лучшие клубные новинки Vol.10 (2018) [MP3|320 Kbps] <Dance, Club, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3LAU - Walk Away (Hibell Remix) (feat. Luna Aura) 3:25
+02. 3rd Prototype - Dancefloor 2:55
+03. A_C - Voices (Original Mix) 4:44
+04. Abandoned & InfiNoise - Night Caller (feat. Project Nightfall) 4:14(   Читать дальше...   )Жанр: Dance, Club, OtherПродолжительность: 18:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7A41E0A29404687081045B2D5371BD212F6B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388072   (790092) от 04.06.2020
+
+VA - Funky Disco House: Soulful Extended Mix (2020) [MP3|320 Kbps] <Funky, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serial Thrilla - Fresh To Def
+02. Kevin Andrews - Movin' On
+03. Lego Edit & Vito Lalinga - Bob's Groove
+04. Disco Dandies - Move 'n Groove(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 06:26:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625D6B75830BCED13663669B20A9BD90E8DD6EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388076   (790091) от 04.06.2020
+
+VA - Happy Race: Indie Pop Rock Music (2020) [MP3|320 Kbps] <Indie, Pop Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790091.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Spirit Desire - We Are Everything
+002. Huey Blue - Sugar Mama
+003. Brenn - Ingensteds
+004. Tumppi Varonen - Ihan Sama(   Читать дальше...   )Жанр: Indie, Pop Rock, AlternativeПродолжительность: 08:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3370D5F52C24912BD121747A7A8020F9CC84A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388094   (790085) от 04.06.2020
+
+VA - Music News vol.15 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Qveen Herby - Sugar Daddy (03:24)
+ 02. Qveen Herby - Dump Truck (03:01)
+ 03. Qveen Herby - Mind Games (03:00)
+ 04. Qveen Herby - Check (02:11)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BFB815D2FB2CD04B485E6324DE28F11A0F9B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388069   (790083) от 04.06.2020
 
 VA - Beatport Electro House: Sound Pack #97 (2020) [MP3|320 Kbps] <House>
@@ -565,180 +739,6 @@ VA - SunSet On The Coast Original Chillout Mix (2018) [MP3|320 Kbps] <Chillout L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CCB2D3E2BFB09D69B3ABF419AFD956655F7FDA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275752   (789452) от 13.01.2019
-
-VA - German Top 50 Official Dance Charts 11.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz, Erika Sirola - Speechless (feat. Erika Sirola)
-02. Fatboy Slim - Praise You (Purple Disco Machine Remix)
-03. Chic - Le Freak (Oliver Heldens Remix)
-04. Hugel, Amber Van Day - WTF (feat. Amber Van Day)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F40A0F3DBB650E3ED98B2728EB306AB8EB66EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275790   (789446) от 13.01.2019
-
-VA - Techno Biogram (2019) [MP3|320 Kbps] <Techno, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789446.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. House Syndicate - Jam The Mace
-002. Ian Jose - Boo (Original Mix)
-003. Jamie Trench - That Teebs (Original Mix)
-004. Jeremy Stott - Caktuss(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD17B43DDDE5BDA6A8F65CEB8A7E109E911986A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275786   (789442) от 13.01.2019
-
-VA - Jungle In A Box (2019) [MP3|320 Kbps] <DnB, Jungle, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789442.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anthony Kasper - Zuluu
-002. Dave Owen - Jungle Justice
-003. Dutta - Dominos
-004. Kolectiv & Medika - Revolutionaries(   Читать дальше...   )Жанр: DnB, Jungle, DubstepПродолжительность: 09:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A29FC2F326C44EF356CC0FC6468F5338CCA85D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275772   (789439) от 13.01.2019
-
-VA - Billboard Hot 100 Singles Chart 12.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789439.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Halsey - Without Me
-002. Ariana Grande - thank u, next
-003. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
-004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F578357EECA09D365E05FF01C286B874191F814E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275767   (789438) от 13.01.2019
-
-VA - Record Super Chart 569 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-02.  Fisher  -  Losing It
-03.  Denis First & Reznikov & Bright Sparks - Shameless
-04.  Axwell - Nobody Else(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092727C64627E63B3A85EDD85265B8F68E088D77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275674   (789436) от 13.01.2019
-
-VA - New Techno: Winter Show (2019) [MP3|320 Kbps] <Techno, Electronic, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789436.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adverze Ft. Mc Instinct - On The Block
-002. 2Pole - Magnetar
-003. Alan Mille - Solaris
-004. Salim - Alchemy(   Читать дальше...   )Жанр: Techno, Electronic, Tech HouseПродолжительность: 13:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4787D8A53D2C335CCF568EFFD3D5FC9B05B224B
 ```
 
 https://mybot314.ru/tekegram_catalog/

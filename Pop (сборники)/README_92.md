@@ -1,3 +1,32 @@
+###  Публикация: 1254562   (373002) от 14.10.2018
+
+VA - Play Exclusive Cloud October 2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R3Wind - Behind
+02. Mystic Natives - All For You
+03. MRZY feat. Neila - But You (Original Mix)
+04. The Boatpeople - Es Vedra (Original Mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 04:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767DE11EEDC6924C55A1878FDF4C466C89AF1C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950043   (372870) от 25.10.2015
 
 VA - Autumn Dance Hits Vol.1 (2015) [MP3|320 кб/с]<Pop, Dance>
@@ -746,35 +775,6 @@ VA - New Music Releases Week 41 (2018) [MP3|192-320 Kbps] <Dance, Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B660B2EA725AA70AE8F13549124D5E3294459CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950972   (365985) от 28.10.2015
-
-VA - Acoustic (2015) [MP3|320 кб/с]<Pop, Acoustic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Sex on Fire (03:56)
-02. Dean Dyson - Better Together (03:39)
-03. Max Tanner - Blame It on Me (03:28)
-04. Karizma Duo - Domino (04:02)(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9CB7D7D3198BAA1804A59DD1ABED28BCFCEBFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

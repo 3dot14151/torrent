@@ -1,3 +1,32 @@
+###  Публикация: 1033380   (640204) от 10.07.2016
+
+VA - My Boo: R&B Dance (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Town DJs - My Boo - Hitman's Club Mix
+02. Usher - Pop Ya Collar
+03. Destiny's Child - Jumpin
+04. R. Kelly - Bump n' Grind(   Читать дальше...   )Жанр: PopПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9875FACC7075A48314EDE01C5F15635443B5A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033115   (640009) от 10.07.2016
 
 VA - Summer Running (2016) [MP3|320 Kbps] <Pop>
@@ -728,41 +757,6 @@ VA - Disco 80's Collection (198*) [MP3|320 кб/с]<Disco, Euro Disco, Italo Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B6A2F5BE1EEF8FC9A06B8C43CCA36214AD5CAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519380   (633733) от 08.07.2012
-
-VA - На Вершине Европейских Чартов 8 50/50 (2012) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633733.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Arash Ahangari - Ahange Zamoone
-002 Анна Семенович - Июльское Лето
-003 Mariucch & Joy El 3Mendo - Muevela
-004 140 Ударов В Минуту - Надышаться Тобой
-005 Basto! feat. Yves V - Cloud breaker (Basto radio edit)
-006 Макс Барских - Утомленное Солнце
-007 Maison feat. Dragen - Rio De Janeiro
-008 Тимати - Давай, До Свидания!
-009 Inna - Crazy Sexy Wild
-010 Владимир Левкин и Анна Герцен - Жаркое Лето(   Читать дальше...   )Жанр: РорПродолжительность: 05:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42844191768BC73FE507B063049B311AB46025FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

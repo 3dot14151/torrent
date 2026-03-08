@@ -1,3 +1,61 @@
+###  Публикация: 1259839   (316415) от 05.11.2018
+
+Hurts - Desire (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/13. Beautiful Ones (3:03)
+ 02/13. Ready To Go (2:46)
+ 03/13. People Like Us (3:39)
+ 04/13. Something I Need To Know (3:31)(   Читать дальше...   )Жанр: Electronic, Synthpop, PopПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F29A277473486BE923F4E2081A6A8D0D7086AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259858   (316411) от 05.11.2018
+
+VA - Buddha Gold Vol.2: The Finest In Mystic Bar Sounds (2018) [MP3|320 Kbps] <Downtempo, Meditation, NewAge, Relax>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Persia Beatz - Sha Hai (Morgenland Miles Cut) 6:48
+02. Frank Borell - Alive (Electric Dream Cut) 4:18
+03. Asian Chill Art - Bahai Jar (Continental Cut) 5:01
+04. Sean Hayman - Imagine (Dreamwave Mix) 5:21(   Читать дальше...   )Жанр: Downtempo, Meditation, NewAge, RelaxПродолжительность: 05:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D514A880CB085DD71114D6BFB333B36FEBB3AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075763   (316392) от 24.11.2016
 
 Voyeur – I  (2016) [MP3|320 kbps] <Deep House, Tech House>
@@ -692,64 +750,6 @@ VA - DJ Weapons 4 the Weekend, Vol. 3 (2016) [MP3|320 Kbps] <Tech House, Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:075DDCF83FBDB699D2FB375396980D75212D5DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076256   (314493) от 25.11.2016
-
-VA - Litho Twentyeight (2016) [MP3|320 Kbps] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boy Funktastic - Empire (Original mix) (5:01)
-02. Nicolas Buccafusca - Piping (Original mix) (8:00)
-03. Boy Funktastic - Square (Original mix) (4:20)
-04. Nicolas Buccafusca - Liebre (Original mix) (8:39)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F2CF2BF5CCA40DC7B9B203C35AB346551B70B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076222   (314491) от 25.11.2016
-
-VA - House Beach Vol.1 (2016) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nic Cherokee - Lights Ahead (House Room's 69 Mix) (2:42)
-02. Soapy Style - The Right Way (Secret Lovers Mix) (4:08)
-03. Ash Jaymes - Psyche (Moon Elements Mix) (3:41)
-04. Forty Four Seasons - Diving High (Underdeep Mix) (4:13)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF38C256D620B7BB406A73BA7C092B8FCD7BF73
 ```
 
 https://mybot314.ru/tekegram_catalog/

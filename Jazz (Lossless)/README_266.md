@@ -1,3 +1,32 @@
+###  Публикация: 1652795   (216252) от 13.08.2023
+
+Kenny Dorham - Sings And Plays: This Is the Moment! (1958) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Leaves [3:09]
+02. I Remember Clifford [2:59]
+03. Since I Fell For You [4:19]
+04. I Understand [4:16](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736D1ECCA6D0D7D0DF83D9C74DFE1271ADB643C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426139   (216164) от 23.11.2020
 
 Paula Atherton - Can You Feel It (2020) [FLAC|Lossless|image + .cue] <Smooth Jazz>
@@ -721,35 +750,6 @@ Wilbur Harden - Jazz Way Out (1958) 1991, Savoy Jazz [APE|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF6422AC235FEE9075AE22652A50AA5D5F85B1C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587086   (214039) от 29.10.2022
-
-Martial Solal & The Danish Radio Jazz Orchestra - Contrastes: The Jazzpar Prize (2000) Storyville Records [FLAC|Lossless|image + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DRJO No.1 [7:46]
-02. Ritournelle No.1 [9:41]
-03. Monster Piece [7:22]
-04. Summertime [7:35](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF321502E5630475D0D9629652C0FBBEA0064B0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

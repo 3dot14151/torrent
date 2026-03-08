@@ -1,3 +1,32 @@
+###  Публикация: 1198842   (802955) от 14.01.2018
+
+VA - Best Of LW House II (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Audiowhores  -  Sometimes (Sean Finn Recall)  5:56
+02.  JB & Charlie Hedges  -  Best Night Oml (Pt. 2) (Lindo Martinez Remix)  7:01
+03.  Damon Hess & Emilie Cunliffe  -  Dancefloor (Original Mix)  5:21
+04.  Afrojack  -  Chords (George F, Eran Hersh & Darmon 'Blow Your Mind' Remix)  9:03(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800C76E3BAF0631BB5173F4E52346DFE863715DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384468   (802744) от 20.05.2020
 
 VA - Top 35 Deep Summer '20 (2020) [MP3|320 Kbps] <House, Deep House, Electronic>
@@ -716,35 +745,6 @@ VA - Urban Party Alarm 11 (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5097F7DB50A4D03DC16BEA45389D86DB69CC5BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011620   (796441) от 28.04.2016
-
-VA - Dance Map, Electro Stops Vol.3 (2016) [MP3|320 кб/с] <House, Progressve House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuji -  Burn  6:39
-02. KountDown Project -  Moon Bass  7:56
-03. Sello -  Such as More  7:25
-04. DJ Afreek -  Orgasmo  6:30(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F78ECD807F9B493B94EDC8E91BFDA070E353B8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

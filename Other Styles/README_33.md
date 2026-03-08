@@ -1,3 +1,32 @@
+###  Публикация: 1112156   (843288) от 08.03.2017
+
+VA - No Stress Music Playlist 3: Pure New Age & Chillout Relax (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jez Poole - Renewable Energy [00:02:41]
+02. Jez Poole - Energy Constant [00:02:10]
+03. Thierry David - Sunset Islands (Main) [00:03:15]
+04. Adrian Kensington - Beyond the Blue [00:02:58](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C6F7F2404CCC9EC390C7AE1FF1DC80C216D1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112256   (843188) от 08.03.2017
 
 VA - Yoga Balance: Asian Traditional Music for Meditation, Yoga Pilates, Relaxed Body and Soul, Deep Relaxation (2017) [MP3|320 Kbps] <New Age>
@@ -717,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F24437C6C9D140F9247AE6C276DB62A794F7F8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378943   (835987) от 01.05.2020
-
-Gelka - Wishful Thinking (2020) [MP3|192 Kbps] <Electronica>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep Swimming 2:40
-02. Body 3:26
-03. Long As I Live 2:51
-04. Isolation Tank 3:44(   Читать дальше...   )Жанр: Electronica, Chillout, AmbientПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501072ACDC65DC5805F98291A2F3BFAB8C27FD55
 ```
 
 https://mybot314.ru/tekegram_catalog/

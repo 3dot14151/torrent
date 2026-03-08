@@ -1,3 +1,32 @@
+###  Публикация: 1209210   (779530) от 25.02.2018
+
+VA - Empire Records - Deep Blue (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Judge - Kinda Love (David K. Remix)
+02. AJ Afterparty - Sound of Heartbreak (Original Mix)
+03. Tolga Mahmut - Alive (Original Mix)
+04. Lost Frequencies & Zonderling - Crazy (Denis First & Reznikov Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B786E1F4D78A11797B1F5EE2175790ACD460ECA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209135   (779529) от 25.02.2018
 
 VA - PSY: Megapack Psychodelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
@@ -716,35 +745,6 @@ VA - Empire Records - Magic House 3 (2018) [MP3|320 Kbps] <House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:141F87AE33820099B5D33956792E77A6823AC081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013575   (777681) от 04.05.2016
-
-VA - Pulsed Future House Sounds (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazibiza Feat. Greg Note -  Sunshine Day (Jay C & Dave Rose Remix)  6:48
-02. David Vrong ft Amaelle -  Breaking Out (Extended Mix)  5:42
-03. Christopher S, Gino G & Alex Costanzo feat. Roby Rob -  Planets (feat. Roby Rob) (Radio Mix)  3:48
-04. Bounce Bro feat. Destiny -  My Life (Radio Edit)  3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD4803CDFE594BCC239D6DFABE613148A701BF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

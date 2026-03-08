@@ -1,32 +1,3 @@
-###  Публикация: 1202517   (789835) от 29.01.2018
-
-Heaven - Bent (1982) Unofficial, 1999, Heatsink Records [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789835.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fantasy
-2. Nothing To Lose
-3. Take You Higher
-4. Storm(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422E6850E465325A8D9154A7CFE3BE3286DF2D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511062   (789817) от 19.11.2021
 
 Barnabas Sky - Inspirations (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -748,6 +719,35 @@ MILKOVSKYI (Женя Мильковский) - Вернуться домой (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C2AA1A100368D3F7F1D7976BCDD312E91266133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511389   (789372) от 20.11.2021
+
+Power Reset - Dungeon Master (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Void (01:16)
+02. Mystic Quest (06:39)
+03. Instinctive Hunter (04:10)
+04. Faded Dreams (04:49)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E9AEE1598909905F51DA603DE16B225CD1F5AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

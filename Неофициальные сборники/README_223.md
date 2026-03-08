@@ -1,3 +1,177 @@
+###  Публикация: 1217135   (743356) от 04.04.2018
+
+VA - Welcome To The 90s (Vol.2) (2018) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743356.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dream Squad - Flow With the Fantasy
+002. E-Type - Back in the Loop
+003. The Free - Born Crazy
+004. 2alive - Tell it to My Heart Tonight(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32BE036E8E3B9DA0EABE825DC45CBE9127F07AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217288   (743347) от 04.04.2018
+
+VA - Another Moon Song (2018) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743347.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Detroit Blues Band - Back On My Feet Again
+002. Dutch's Basement Blues Band - Satchmo Scat
+003. Lo Greco Bros Quartet - Visions (Original Mix)
+004. Joe Elliott - A Timely Prayer(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 09:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D746EE1ECBFF0EA9968103CCD0C6B3CF6E509EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524516   (743318) от 16.01.2022
+
+Bellatrix - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic discotech
+02. Sunrise
+03. Highway To The Unknown
+04. Abyss(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 03:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5792A150C9E8D1D9C4B773372A25BCD9F6234D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217466   (743239) от 04.04.2018
+
+VA - New Music Friday (2018) [MP3|320 Kbps] <Rap, Hip Hop, RnB>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743239.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kaytranada - Got It Good (Ft. Craig David)
+002. Ca$his - Chief
+003. Freeway - Highway (feat. ROD)
+004. Young Scooter - The Grind Don't Stop Feat. Future(   Читать дальше...   )Жанр: Rap, Hip Hop, RnBПродолжительность: 07:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956A8DD7026C0E19542670280A3D5CCF0E873665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217326   (743236) от 04.04.2018
+
+VA - Ancient Spell (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743236.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Burning Witches - Black Widow
+002. Esclavitud - This Time
+003. Dark Sarah - Breath
+004. Ghost of Mary - The Moon and the Tree(   Читать дальше...   )Жанр: Heavy, Power, Death MetalПродолжительность: 10:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E147CDE1A037845A9BFF5DE42F248A9A58070BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217327   (743112) от 04.04.2018
+
+VA - Танцевальный Рай - The Best 90s (2018) [MP3|320 Kbps] <Dance, Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743112.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. No Mercy - Missing
+002. Culture Beat - Got To Get It
+003. Modjo - Lady(Hear Me Tonight)
+004. Take Twice - It's True(   Читать дальше...   )Жанр: Dance, Disco, EurodanceПродолжительность: 06:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5753F6424787FA9C694283BF2B516CF57C4FB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217189   (743056) от 04.04.2018
 
 VA - Enigma Alive Vol.4 (2018) [MP3|320 Kbps] <New Age, Enigmatic>
@@ -573,180 +747,6 @@ VA - Топовая сотня весенняя. Версия № 2 (2017) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEA4454A58C2F8F5B0D6372883B08980C1259221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125670   (741116) от 20.04.2017
-
-VA - Весенняя 100-ка популярных треков. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741116.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Лена Максимова - Слышишь Отошел 3:39
-002. Наталия Власова - Мне Не Хватает Тебя 3:42
-003. Cash'u - Хочу 3:29
-004. Lega - Она Мой Diamond 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BD2C1074E4496D29194DD6FBD94184DCC400D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021263   (741083) от 29.05.2016
-
-VA - Yoga Spirits: Wellness Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Crystal - Dream Energy
-02. Liquid Crystal - Fluidity
-03. Skye Dream - Sundown Chillout
-04. Lucidity - Ride the Tide(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03505218ADA95436D2D4141B7ED67AB7C5F72BF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125684   (741011) от 20.04.2017
-
-VA - Отдыхаем с лучшими хитами. Звездная тусовочка. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741011.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ханна - Невиновная 2:58
-002. Katya Tu - Неформатный 3:14
-003. G-Nise & Dj Настя Крайнова - Вдвоем 3:16
-004. Джаникс - Женщина-Лед 3:15(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8614B787385D9ED6A96497DBAD1DEA889CCB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021122   (740993) от 29.05.2016
-
-VA - DabSTEP Mistik MiX by zXz. Vol.1 (2013-2014) [MP3|192 кб/с] <DubStep, GlithHop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fr33m4n - Off We Go
-02.Access Denied - Black (Original Mix)
-03.Antiserum & Vinja Feat. Messinian - Murkulation (Original Mix)
-04.Nero - Promises (Nero & Skrillex Remix) (Tolgar's Symphony of Destruction Rework)(   Читать дальше...   )Жанр: DubStep, Drum&Bass, GlithHopПродолжительность: 02:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969FB5A964A5EA92F37D9D056C9FEE5D2B891E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021311   (740979) от 29.05.2016
-
-VA - Музыкальный заряд бодрости 3 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740979.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Альбина - Боль
-002. Jasmine Kara - Burn
-003. Lora Superfin - Пламя От Огня
-004. Ханна - Потеряла Голову(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31205786EE4415BC7D7A42F2889192F26CE64DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217749   (740946) от 06.04.2018
-
-VA - Psy Trance Timewarp (2018) [MP3|320 Kbps] <Psy Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740946.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tranceway - A Mind Trip
-002. Egorythmia - Anno Domini (Original Mix)
-003. Ovnimoon feat. Ascent & The Key - Spiritual Transformations (Original Mix)
-004. Psilocybe Project - I Am Darkness (Original Mix)(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 12:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E2AFCAA86FFEAB77930DAE6463627CF65C12EB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

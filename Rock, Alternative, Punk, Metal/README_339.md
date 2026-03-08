@@ -1,29 +1,3 @@
-###  Публикация: 1396265   (748688) от 14.07.2020
-
-Sentenced - Buried Alive (2006) 2xCD [MP3|320 Kbps] <Melodic Death Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748688.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:Жанр: Melodic Death Metal, Gothic MetalПродолжительность: 01:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE6D92BA79A9DCE7B621F884FEC224FCB420AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396232   (748687) от 14.07.2020
 
 Sentenced - Buried Alive (2006) 2CD German Edition [FLAC|Lossless|image + .cue] <Melodic Death Metal, Gothic Metal>
@@ -736,6 +710,35 @@ Realms Of Vision - Through All Unknown (2018) [MP3|320 кб/с]<Stoner Metal, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5B5A355068900838926E7B14692EBE99EB63A25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216780   (747926) от 01.04.2018
+
+Derketa - In Death We Meet (2012) Not On Label [MP3|320 Kbps] <Metal, Doom Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Derkéta - группа из города Питтсбурга, штат Пенсильвания, исполняющая музыку в стиле Doom/Death Metal. Команда знаменита тем, что на протяжении всего ее существования большей частью состава были женщины, а также тем, что большинство своих релизов группа издает самостоятельно, без поддержки лейблов. Название команды взято из древнегреческой мифологии, где Деркето (   Читать дальше...   )01. Goddess of Death 10:11
+02. Obscurities of Darkness 6:28
+03. Rest in Peace 5:14
+04. Until Our Death 4:39(   Читать дальше...   )Жанр: Metal, Doom Metal, Death MetalПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE1CC3E8F7CCFE2B3CDF7D737ACCDC18C96B5BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

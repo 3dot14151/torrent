@@ -1,3 +1,29 @@
+###  Публикация: 329772   (709212) от 29.04.2011
+
+VH1 All Classics Hits (2005) 10xDVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов, захваченных с цифрового спутникового канала VH1 (Video Hits One) — американского музыкального телеканала.Жанр: Pop, RockПеревод: Не требуетсяПродолжительность: 10 x ~ 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737EC825FEF26D66BC2C3872501391CE08F04814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286610   (708974) от 04.03.2019
 
 Квартирник НТВ у Маргулиса. Zdob si Zdub (02.03.2019) WEB-DL [H.264/1080p-LQ]
@@ -695,32 +721,6 @@ Anaal Nathrakh - Endarkenment (2020) WEBRip [VP9/2160p] <Grindcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD1141B903DA7A6AD07330B137CCE10293C73F2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 331787   (699526) от 04.05.2011
-
-Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 00:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADD91DFA5D21456D273FD65BC6390C32065FEAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

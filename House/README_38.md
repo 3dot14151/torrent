@@ -1,3 +1,32 @@
+###  Публикация: 913733   (600356) от 01.07.2015
+
+VA - BC2 Summer 2015 (2015) [MP3|320 кб/с]<Progressive House, Deep House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luciano Scheffer - Alamo (Spacebeat Remix) [09:27]
+02. Phonic Scoupe - Portico Garden (Original Mix) [07:43]
+03. GabiM - Punc Munc (Travis MacDonald Remix) [08:32]
+04. Midinoize - Exposed (David R Maddocks Remix) [06:51](   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 03:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECDBEEC84187828DE8E457ACB544E8696EE12E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232502   (600056) от 24.06.2018
 
 VA - Best Charts: Summer Of Dance (2018) [MP3|320 Kbps] <Deep House>
@@ -730,35 +759,6 @@ VA - Latin Fitness Workout 2017 (Ideal For Cardio, Gym, Running & Aerobics) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E41A9A983DF177269A66D7B3DE0717E85E317079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233497   (593019) от 30.06.2018
-
-VA - FG Top 10 June 2018 [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stan Kolev - Oblivion (Extended Mix) 07:21
-02. Max Freegrant - Drama King 06:49
-03. Orphyd - Replicant (Original Mix) 05:43
-04. AxelPolo - Mirage 06:36(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9235DE3AC25E2A7CCD246910FE19D970967A03
 ```
 
 https://mybot314.ru/tekegram_catalog/

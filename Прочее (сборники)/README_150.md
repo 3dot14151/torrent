@@ -1,3 +1,119 @@
+###  Публикация: 1268801   (224835) от 12.12.2018
+
+VA - HitZone Best Of Dance (2018) [MP3|320 Kbps] <Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224835.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Louis Peterson - Cold Cafe
+002. The Chainsmokers - Beach House
+003. Marshmello & Amr Diab - Bayen Habeit
+004. Nikkdbubble - Mercury's Meat (Radio Edit)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 10:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63690F04D3726FB9A64E72D4F8B45017F39157B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965610   (224121) от 15.12.2015
+
+VA - 100 Winter Dance 2016 (2015) [MP3|256-320 кб/с] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_224121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Fuldner feat. Polina Griffith - Do What You Like (Frankie Remix)
+02. Ellie Goulding - On My Mind (DJ Denis Rublev & DJ Anton Bootleg)
+03. Елена Темникова - Зависимость (Oleg Perets & Alexey Galin Remix)
+04. Madonna - Living For Love (Pankratov, DJ Cosmos & Gumanev Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5486FBD08AE6B10133E63F6A6851605BC1F7B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965891   (224092) от 15.12.2015
+
+VA - Lounge Latex Sexy Relax (2015) [MP3|320 кб/с] <Vocal Lounge, Lo-Fi, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michele Taylor - Morning Light (Original Mix)
+002. Jungle - Drops
+003. Da King feat. Xenya - In the Door (Cool Vocal Jazz Mix)
+004. Fragile State - The Facts and the Dreams(   Читать дальше...   )Жанр: Vocal Lounge, Lo-Fi, DowntempoПродолжительность: 09:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D9CEA78032CA17390EF9203DB8354DA3A9E2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342294   (224049) от 02.12.2019
+
+VA - Hardstyle Dance Music For Fitness (2019) [MP3|320 Kbps] <Hard Dance, Hardstyle>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224049.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Dj Producer - Killing Time
+002. Arachno Purgatory - Mad Hermit (Original Mix)
+003. Djpablo - Oldschool Rekord
+004. Klereherriekrew - Terror People (Original Mix)(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 08:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FFAB08EFC1DA9D178DED954843E9DFB8742A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513432   (223779) от 29.11.2021
 
 VA - Music News vol.152 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -629,122 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 20.11.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68FE648EB06841AD89182451F5515FE699D28E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425583   (220538) от 21.11.2020
-
-VA - Music News vol.50 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220538.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Эрика Герцег - Только Для Тебя (02:52)
- 002. Alex M.O.R.P.H. feat. Cheryl Barnes - Hidden Sun Of Serenity (Extended Mix) (07:41)
- 003. Allen Watts - Limitless (Steve Dekay Extended Remix) (06:19)
- 004. Bakhtin - Стержень (03:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402DF2746907079925ADE6989B4D20AF7CDD8CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342953   (220349) от 04.12.2019
-
-VA - Top 100 Зайцев.нет Ноябрь (Repack) (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220349.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tanir & Tyomcha - Da Da Da (Jarico Remix) 2019 3:34
-002. JONY - Комета (Ladynsax Deep Remix) 5:38
-003. Николай Басков - Зараза 3:22
-004. НаZима и Валерия - Тысячи историй 3:00(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A054A77D29CA9F4236E2808AAB93535FFB351B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966297   (219820) от 17.12.2015
-
-VA - Google Play хит-парад (November) (2015) [MP3|320 кб/с] <Pop, Русская поп-музыка, Рэп/Хип-хоп, Альтернативная музыка/инди, Метал, Рок, Брейкбит, Электронная музыка>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219820.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Скриптонит feat. Юрик Четверг, Truwer - Сука тащит нас на дно
-002. БИ-2 feat. Чичерина - Мой рок-н-ролл
-003. Баста - ЧК (Чистый кайф)
-004. Скриптонит - Вечеринка(   Читать дальше...   )Жанр: Pop, Русская поп-музыка, Рэп/Хип-хоп, Альтернативная музыка/инди, Метал, Рок, Брейкбит, Электронная музыкаПродолжительность: 10:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6F8558637C6B56956E587F7FE3E0480A274F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 125454   (219563) от 17.12.2015
-
-VA - Итоговый Superchart Radio Record 2008 (100 Best) [MP3|159 - 320 Kbps]<Electro House, House, Dance, Pop, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Meck Feat. Dino - So Strong
-2.Paul Van Dyk Feat. Rea Garvey - Let Go
-3.Armin Van Buuren Feat. Sharon Den Adel - In And Out Of Love (The Blizzard Remix)
-4.Rachael Starr - To Forever (Moonbeam Remix)(   Читать дальше...   )Жанр: Electro House, House, Dance, Pop, TranceПродолжительность: 08:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FCFC7BACC1BD5F060B65C7B052381998614A7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

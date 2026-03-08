@@ -1,32 +1,3 @@
-###  Публикация: 1450124   (1029224) от 25.02.2021
-
-Кайтэн - Рейс №8 (2021) EP [MP3|320 Kbps] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Рейс №8 [00:02:42]
-02 - Искать [00:04:47]
-03 - Цветы [00:03:36]
-04 - Город спит [00:03:12](   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B882844D0408169ED25946D87F7B5CEF61C5C775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450287   (1029202) от 25.02.2021
 
 Mr. Hide - Правда жизни (2021) [MP3|320 Kbps] <Punk Rock>
@@ -744,6 +715,35 @@ Freddie Mercury - Mr. Bad Guy (1985) [FLAC|Lossless|image + .cue] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D427D8642136535F64CC4C54B174184AEE306DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450284   (1029011) от 26.02.2021
+
+Слот - Инстинкт выживания (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Introduction [00:01:17]
+02 Инстинкт выживания [00:03:57]
+03 Норма [00:04:30]
+04 17 лет [00:03:42](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD106563FC850D51C8FB11CEA9015D38462CADA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

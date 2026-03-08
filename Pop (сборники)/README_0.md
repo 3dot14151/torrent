@@ -1,3 +1,32 @@
+###  Публикация: 1841896   (1048441) от 13.12.2025
+
+VA - No name compilation part 24  Dance, Synthwave,  Disco (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Talking Luna - I Miss the 80s
+02 - Nezon - Don’t Leave Me Tonight
+03 - Romantic Dreams - The Waiting Rose
+04 - Ai - White Silence  Inspired(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 02:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F813DF76A164EDDBDA9E166A34A07ADD494F7C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839728   (1046824) от 30.11.2025
 
 Talking Luna - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
@@ -716,35 +745,6 @@ VA - Big Retro Hits 90s (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9EFD612CD12F7D6A15682AF7CCD79102E9BEDA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443348   (1035727) от 28.01.2021
-
-VA - Festa Italiana (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нет равнодушных к мотивам знаменитых итальянских музыкантов. Итальянская музыка это не только творения популярнейших композиторов, исполненные звездами прошлых лет, но и музыка современных поп- и рок-музыкантов.01. 883 - Gli Anni (Bliss Team Classic Remix)
-02. Raffaella Carra - Mamma Dammi 100 Lire
-03. Bravo - Raggio Di Sole
-04. Pino Daniele - Cumba(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 01:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0AFA8CC9472FA13786745B5EE67591EA7ECE43
 ```
 
 https://mybot314.ru/tekegram_catalog/

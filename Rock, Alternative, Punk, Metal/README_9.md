@@ -1,32 +1,3 @@
-###  Публикация: 1847633   (1052279) от 13.01.2026
-
-N.Y.C. - Built To Destroy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy As Hell 03:55
-02. Twisted 03:57
-03. United 04:13
-04. Tired Of Smiling 03:50(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52DF3DDB1CC7097A2106CCAE5A12612305017A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847489   (1052223) от 12.01.2026
 
 Daymoon - Wednesday (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Folk Rock, Neo-Classical>
@@ -743,6 +714,35 @@ Linkin Park - Songs From The Underground (2008) Japan, WPCR-13468, 2009 [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3670C031775E29673AF605F4C8AC1785C39E35C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846884   (1051569) от 09.01.2026
+
+Alter Bridge - Alter Bridge (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Divide(5:04)
+02. Rue The Day(4:46)
+03. Power Down(4:08)
+04. Trust In Me(4:45)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D1E137BAC85D0971F0621DBF64386ABF465854
 ```
 
 https://mybot314.ru/tekegram_catalog/

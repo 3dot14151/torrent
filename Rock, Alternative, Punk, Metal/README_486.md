@@ -1,31 +1,3 @@
-###  Публикация: 959216   (589712) от 16.05.2022
-
-МПТРИ - 3 Albums + 7 Singles + Bonus (2003-2016) [MP3|112-320 kbps] <Ska-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589712.jpg" />
-</div>
-
-
-###  Подробнее
-
-2003 - Демо вирус
-2004 - Безалкогольный
-2011 - Максимка бросил питьЖанр: Ska-Punk |Продолжительность: 03:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB797D073DB2919B9C33C41289BB16C00A614DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917347   (589643) от 11.07.2015
 
 OverMaster - Madness Of War (2010) [FLAC|image + .cue]<Heavy Metal / Power Metal>
@@ -741,6 +713,35 @@ Ravanna - Девять Кругов (2022) [MP3|320 Kbps] <Alternative Metal, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C22736D94AD64D96294F7D82637CBC325C2C60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551770   (588910) от 18.05.2022
+
+Поиграем и Уйдём - Бронежилеты (2022) [MP3|320 Kbps] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Белые одежды [00:05:30]
+02 - Ты рядом [00:04:44]
+03 - Мне не жаль [00:04:31]
+04 - Полёты к Богу [00:03:29](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E1F19C74DFBE6BF509A00AC74B47EDBAA5C6CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

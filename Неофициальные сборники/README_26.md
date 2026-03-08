@@ -1,3 +1,177 @@
+###  Публикация: 1459841   (1022998) от 03.04.2021
+
+VA - Dread Lion Dub (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub, Ska>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reggae — это путь. Это такая тропинка. Через тьму, через страх, через cвои собственные ночные кошмары. Если у тебя в груди живет боль, и ты поешь, ты играешь ее — ты выводишь ее в мир. Выводишь себя к свету.01. Max Romeo - Chi Chi Bud
+02. Prince Fatty - Black Rabbit
+03. Mad Professor - Dub Dread
+04. Dennis Brown - Easy, Take It Easy(   Читать дальше...   )Жанр: Reggae, Riddim, Dub, SkaПродолжительность: 04:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7A3B957C54F391A1730708BDEB6D016D3C2592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459639   (1022990) от 03.04.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 02.04.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB & Topic & A7S - Your Love (9 PM) (2:30)
+02. Travis Scott, HVME - Goosebumps (Remix) (2:42)
+03. Masked Wolf - Astronaut In The Ocean (2:12)
+04. RAYE & Rudimental - Regardless (3:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59F2662348C4579CDC4FC940C2934EFA7515AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459730   (1022984) от 03.04.2021
+
+VA - Music News vol.88 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022984.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marlen feat. Luis & Alina Tim - Аритмия (02:41)
+ 002. 89ers - No Go Go Go! (02:59)
+ 003. Adam Bu & Moodygee & Paenda feat. Riley Kun - All 2 You (02:45)
+ 004. AdiL - Кружись (02:34)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A972945324DAF9B0D6BF120E6A785AA55A595D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459850   (1022959) от 03.04.2021
+
+VA - Rap Blender Mix (Vol.03) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тут Вы не найдёте тем, вроде – люблю, не люблю, слёзных соплей и бездушной электронной долбежки. Тут рай для души. Композиции создаются лучшими мастерами рэпа и хип-хопа, задают правильное настроение и отвязные речитативы, которые Вы сможете услышать в сборнике "Rap Blender Mix" третьей генерации.001. Nateboi - Worst Ways
+002. Bsuavee - Move Silent Big Moves
+003. 102 Boyz - Was Ich Trink
+004. Blockrepp Shad - Thug Tears(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A927D1D7D94968BE742467860DC8DCBE8EDDE303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459820   (1022934) от 03.04.2021
+
+VA - Hit Songs 2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Q - Take Me Where Your Heart Is (3:12)
+02. H.E.R. - Damage (3:43)
+03. King Princess - PAIN (3:38)
+04. The Kid LAROI - SO DONE (2:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9B6E0CF55916B6DA884C421D40CE4900F8F1B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459716   (1022926) от 03.04.2021
+
+VA - Весна на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB & Topic & A7S - Your Love (9 PM) (2:30)
+02. The Weeknd - Save Your Tears (3:35)
+03. Inna, Maesic - Flashbacks (2:33)
+04. Eneli, Monoir - 3 to 1 (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1596C6FD770E451601CDDA389CEF03793FCE0549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460122   (1022814) от 04.04.2021
 
 VA - German Top 100 Single Charts 02.04.2021 [MP3|320 Kbps] <Pop>
@@ -571,180 +745,6 @@ VA - Наш Тик Ток (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C6290CF6317A790D8057C038721D7B6F3782EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460609   (1022202) от 07.04.2021
-
-VA - Tender Loving Saxophone Blues (2021) 2CD [MP3|320 Kbps] <Blues, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddy Guy - A Man And The Blues
-02. Smooth Jazz Sax Instrumentals - Papa's Gotta Brand New Bag
-03. Fleetwood Mac - First Train Home (Mono)
-04. Erskine Oglesby - Fair Skin Woman(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 06:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B3F20D2ACB9CAC2DF7BBF8D3F26765544CAA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460790   (1022192) от 07.04.2021
-
-VA - Shazam Хит-парад World Top 200 Март (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022192.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Masked Wolf - Astronaut In The Ocean (2:12)
-002. Bruno Mars, Anderson .Paak, Silk Sonic - Leave The Door Open (4:02)
-003. Justin Bieber, Daniel Caesar, Giveon - Peaches (3:18)
-004. Olivia Rodrigo - drivers license (4:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5B9DA2A39B20A91CE39DE18858A48A9B486BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461013   (1022120) от 08.04.2021
-
-VA - Beatport Hardstyle Dance: Electro Sound Pack #271 (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Hardcore>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агрессивная, уничтожающая все на своем пути музыка с очень бешенным ритмом, полная индустриальных звуков, криков, шопота, скрежетов и воев синтезаторов. Живая и разрушительная энергия звука, музыкальный армагеддон в чистом виде!001. Tha Playah - The Awakening
-002. Nightshift - Cold Blood
-003. Vein - Ultimate Seduction
-004. Unnatural Selection - Quantum Tractate Delirium(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, HardcoreПродолжительность: 09:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443B838F134E5056A3BFD2FDBC3426E5B37B2C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461010   (1022036) от 08.04.2021
-
-VA - Back To 90's: Popular Hits (2021) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что 90-е года были уже очень давно и за это время музыка изменилась до неузнаваемости, стали появляться новые направления и стили, хиты 90-х до сих пор часто можно услышать по радио или в клубах. Представляем вам сборник из 165 лучших хитов тех времен, который позволит многим окунуться в атмосферу того времени, а более молодым слушателям прочувствовать (   Читать дальше...   )001. Joan Osborne - One Of Us
-002. Black Eyed Peas - I Gotta Feeling
-003. Cher - All Or Nothing
-004. Madonna - Express Yourself(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 10:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CD0E1181DB000B7FD102660E9E47EF9A680221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461016   (1021972) от 09.04.2021
-
-VA - R&B: Warm Time Of Representation (2021) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте весну с музыкой сборника "R&B War Time Representation"! Сегодня это современная музыка мегаполисов, где есть место для соула, танцевальной музыки и ритму. Вы непременно начнете отбивать в такт мелодии и ритму вслед за R&B исполнителями. Остаться равнодушным у Вас не получится!001. Rotimi, Wale - In My Bed
-002. Dornik feat. Zelly One - Temptation
-003. Lala Maria - Unapologetic
-004. Marvin Gaye - Running From Love(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B933E09024F818991FD34D5DDB4D206302D4E402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461203   (1021968) от 09.04.2021
-
-VA - Fitness Week: Electro House Mix (2021) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рады Вам представить отличный микс музыки в стиле Electro House для занятий активным спортом. Это не только ритмичные однообразные мелодии, а лучшим образом подходящие для тренировок мотивирующие треки разной интенсивности. Благодаря этому предполагается его использование этой музыки не только для силовых, но и для фитнесс занятий.001. Beth Lydi - Bulk
-002. The Houzeplayer - Me Gusta Balia
-003. Joseph Gray - Da La Belle
-004. Dongle Brothers - Read Up(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 09:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7431D132B8E99A3200EFFB7BB1FECF0A723A0512
 ```
 
 https://mybot314.ru/tekegram_catalog/

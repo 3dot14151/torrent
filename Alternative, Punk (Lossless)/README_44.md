@@ -1,3 +1,32 @@
+###  Публикация: 1330382   (341393) от 10.10.2019
+
+Elbow - Giants of All Sizes (2019) [FLAC|Lossless|tracks] <Britpop, Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dexter & Sinister (06:59)
+02. Seven Veils (04:35)
+03. Empires (03:59)
+04. The Delayed 3:15 (03:25)(   Читать дальше...   )Жанр: Britpop, Alternative Rock, Indie RockПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5804C3FA6992D982E644FEF31A49D1602EDE59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330576   (339107) от 11.10.2019
 
 Big Thief - Two Hands (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -716,35 +745,6 @@ Resist The Ocean - 3 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2508970718243394AB5560CAFF99A16FFB745C5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582277   (323592) от 09.10.2022
-
-A Sight in Veracity - Eternity Past (2022) Extended Edition [FLAC|Lossless|WEB-DL|tracks] <Nu Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divine Guidance [00:00:53]
-02. The Details of Life (feat. Atonalita) [00:04:00]
-03. The Perennial Discord [00:03:30]
-04. Sin Unto Death [00:03:22](   Читать дальше...   )Жанр: Nu Metalcore, DeathcoreПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C018F7B03EC43E0740A82FFA86607551EAAAB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

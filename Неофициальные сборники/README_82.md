@@ -1,3 +1,180 @@
+###  Публикация: 1366235   (923883) от 11.03.2020
+
+VA - Славянский Меч 1-5 (2010-2015) [MP3|320 Kbps/V1-2] <Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dagaz - Saga (2015) (RUS) [00:05:19]
+02. Владимир и Родосвет - Гой На Капище (2014) (RUS) [00:04:03]
+03. Волколак - Вороны да Вороги (2002) (RUS) [00:05:34]
+04. Сокира Перуна - Останній Дракар (2006) (UKR) [00:04:14](   Читать дальше...   )Жанр: FolkПродолжительность: 07:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97A8232DD3C2C0C24BF43B0023C2759F203DC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366378   (923874) от 11.03.2020
+
+VA - Beatport Chillout: Electro Sound Pack #28 (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maximilien - Crazy Vocoding
+002. Chris Le Blanc - Into My Dream (Original Mix)
+003. Ambrozia - Velvet (Peter Martin Remix)
+004. Ticane - Altitude(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A2423F28009551AAEAA213778FF6922D84C910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288041   (923699) от 28.01.2011
+
+VA - Ураган хитов (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36CB621E0BF076585F5268C66940C6501762561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095383   (923642) от 21.01.2017
+
+VA - Super Dance Party Vol.11 (2017) [MP3|320 Kbps] <Dance , House , Mash up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sigma feat. Birdy - Find Me  (Club Mix) 4:53
+002. Billie Eilish - Ocean Eyes  (Goldhouse Remix) 3:33
+003. Daniel Robu - Can't Get Over You  (Extended Version) 5:23
+004. Dami IM - Fighting For Love  (Radio Edit) 3:34(   Читать дальше...   )Жанр: Dance , House , Mash upПродолжительность: 05:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BED74B5BEC0D9C088827F4419FA4BE28AB9D25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631481   (923614) от 18.03.2013
+
+VA - Той Единственной на Свете Женщине (2013) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стас михайлов - Все для тебя
+02. Елена Ваенга - По моей щеке
+03. Леонид Агутин и Анжелика Варум - Как не думать о тебе
+04. Александр Маршал - Парусник
+05. Денис Майданов - Я верю в любовь
+06. Михаил Круг - Давай поговорим
+07. Сергей Трофимов - Снегири
+08. Геннадий Жаров и Амнистия - Остров
+09. Вадим Казаченко - Запах счастья
+10. Владимир Захаров - Ключи от счастья(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBDC2767C9B31C7618D710D378910195745DB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366414   (923272) от 11.03.2020
+
+VA - B машину ремиксы Vol. 2 (2020) [MP3|320 Kbps] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goody - Panamera (Rakurs & Ramirez Remix)
+02. Robert Miles Vs. & Wham - Last Christmas Children (Djs & Mars Fm Remix)
+03. Иракли - Все Будет Оk (DJ. Noiz & DJ Rocket Radio Remix)
+04. Onika - Ищу Любовь (Demeter Remix)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 03:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31636343753B9937871DB794B5CFA96C587C32F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366374   (923271) от 11.03.2020
 
 VA - B машину ремиксы Vol. 1 (2020) [MP3|320 Kbps] <House, Pop, Dance>
@@ -568,178 +745,6 @@ VA - Sweet Caramel: Pop Dance Eurobeat (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E91C89890ABE7EA7540CFB2E5B81F9F62C15BC64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489734   (922262) от 18.08.2021
-
-Ringo Starr - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Photograph
-02. Only YouЖанр: RockПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A8C2CCB5C01D4916A2D81C12E19FCFA0506787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489736   (922251) от 18.08.2021
-
-George Harrison - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got My Mind Set On You
-02. My Sweet Lord
-03. Give Me Love (Give Me Peace On Earth)
-04. Don't Let Me Wait Too Long(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60EBAA8631163F4CB5B08CA1F879C0E7DB803E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489749   (922139) от 18.08.2021
-
-VA - Громкие новинки Августа (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кирилл Мойтон - Любовь (2:28)
-02. Jah Khalib, Tanir, TM - I go to the barbershop (3:52)
-03. G-Eazy, Martin Garrix, Sasha Alex Sloan - Love Runs Out (2:44)
-04. Тони Раут - Хобби (2:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E671BA831BB5144041126582DEBE3FFE4891FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489965   (922134) от 18.08.2021
-
-VA - 100 Greatest '90s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Céline Dion - Because You Loved Me (Theme from "Up Close and Personal")
-02. Luther Vandross - Here and Now
-03. Mariah Carey - Vision of Love
-04. Whitney Houston - I Will Always Love You(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 07:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44762D261E3EC94D97F147197F9EE17741B3AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366641   (922124) от 12.03.2020
-
-VA - Beatport Techno: Electro Sound Pack #23 (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922124.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Garez - Norefjell
-002. Paul Feris - On The Run
-003. Spektre - Forged In The Heart
-004. Dj Jordan - Acid Dreams (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E784FE20C35E59173F076E1884075FC953C33AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489912   (922123) от 18.08.2021
-
-VA - 100 Greatest 80s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Adams - Heaven
-02. Madonna - Crazy for You
-03. The Bangles - Eternal Flame
-04. Michael Jackson, Siedah Garrett - I Just Can't Stop Loving You (Remastered)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 07:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8765CD3F5C412B8A5B48FA6C186318F64A2EE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

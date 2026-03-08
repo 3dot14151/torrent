@@ -1,3 +1,177 @@
+###  Публикация: 1022568   (727699) от 03.06.2016
+
+VA - Romantic Vocal Trance (2016) [MP3|256-320 кб/с] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727699.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. LTN - Never Let Me Go (Beat Service Remix)
+002. NatLife feat. Inesse - Love Is The Feeling (Alpha Force Remix)
+003. RAM & XB - Symphonik (Original Mix)
+004. ReOrder - Friday (Original Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 11:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55AFB224997736F27D697B69E75AA63DA61A3A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022897   (727697) от 03.06.2016
+
+VA - Блатная жизнь с радио Шансон. Летний выпуск (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Илья Лукин - Моя Любимая Блондиночка
+ 02. Александр Туралин - Встречи С Друзьями
+ 03. Виктор Дорин - Белым Снегом
+ 04. Мариан - Колхоз(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC7F839E98B514D7E6111180855C75D5A87F307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022583   (727692) от 03.06.2016
+
+ЛаБуХи - Три аккорда (2016) [MP3|320 кб/с] <Pop Punk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727692.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пи...дато
+2. Дэнс-Дэнс
+3. Кукарача
+4. Твоя девушка(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8B596F0538C9D511683898E4BBDABE404F0A25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022790   (727685) от 03.06.2016
+
+VA - Drum and Bass, Dubstep (2016) [MP3|256-320 кб/с] <Drum and Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kubiks & Bcee - Ten Years On
+02. Formal One - Milky Way
+03. Nero - The Thrill (Fawks Flip)
+04. Kaz James - Show Me All Your Love (Smooth Remix)(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 05:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A484801E35B9040E132AAC080D168FAC591D5FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128523   (727661) от 25.04.2017
+
+VA - Brain Plugged: Big Room House Music (2017) [MP3|320 Kbps] <Electro House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fitz & Baron - Sunrise (Original Mix)
+002. Bartosz Brenes - Lovin' U (Original Mix)
+003. Helly Larson - Take Me
+004. Luca Debonaire - Yes It Does (Original Mix)(   Читать дальше...   )Жанр: Electro House, Club HouseПродолжительность: 10:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C0CD9403C1CB11C2997ACBDC07AF2EDB31F040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284533   (727652) от 22.02.2019
+
+VA - Громкие новинки месяца Vol.25 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Years & Years, MNEK - Valentino
+02. Open Kids - Под утро
+03. Chaka Khan - Like A Lady
+04. Robbie Williams - Good People(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF612F1921A27A1B9FA022EB29DC1EF4E38F6829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128516   (727564) от 25.04.2017
 
 VA - Pacific Trance 100 Art Of Trance (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -571,185 +745,6 @@ VA - Rautalanka Cocktail (2006) [MP3|320 кб/с] <Instrumental, Guitar, Beat, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D4F774827B6F325BBE8FEC958E5EB9FD907C35A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531018   (726433) от 13.02.2022
-
-Eric Street Band - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long
-02. Leaving
-03. Reconsider Baby
-04. Payback Time(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81CA676A9396CFE7851A755EE787ECE6903C4974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284807   (726424) от 23.02.2019
-
-VA - All Your Yesterdays: Hard Rock Compilation (2019) [MP3|320 Kbps] <Rock, Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726424.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2X - Fuerza Y Rebeldia
-002. Blood Of The Sun - Keep The Lemmys Comin
-003. King Company - One Day Of Your Life
-004. City Of Auburn - Better Off(   Читать дальше...   )Жанр: Rock, Hard Rock, AlternativeПродолжительность: 09:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6ED96AC376C493E9BF4A138D739DC6BCC374B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284825   (726410) от 23.02.2019
-
-VA - Melodic & Deep: Vocal House Mastermix (2019) [MP3|320 Kbps] <Vocal, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726410.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A1Bert - Full Control
-002. Bearson - Its Not This
-003. Bellaire - Respect
-004. Anymood - In Your Eyes(   Читать дальше...   )Жанр: Vocal, Deep HouseПродолжительность: 08:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7358231684DF8FB26D768D091BA2727169F5C857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023096   (726356) от 04.06.2016
-
-VA - SpaceSynth & ItaloDisco Hits - 1 (2016) [MP3|320 кб/с] <Italo-Disco, Synth-pop, Hi NRG>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digimax - Fading Memories (05:28)
-02. AMATERAS - Magellanic Stream (06:52)
-03. Baltimora - Tarzan boy (SlavaMaverick Rmx) (03:38)
-04. Alan Barry - Victim Of Love (04:59)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi NRGПродолжительность: 08:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3021E542D3718A45B59FAC948BAE29721CC352FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023248   (726195) от 04.06.2016
-
-VA - Новая Русская Дискотека - 5 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 140 ударов в минуту feat. DiscoBonus - Мурашки по телу (80-s rmx)
-02. Придет весна - Андрей Шпехт
-03. Ангел и Кот - А во дворе
-04. Сергей Хижняк и гр. Шоколад-Виктория - Дальнобойщик(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 05:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEF8F846C8C5AACC80444CE730F463D73FDACA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326333   (726166) от 21.04.2011
-
-VA - Дискотека Klub from AGR (2011) [MP3|320 kbps]<Pop, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alisiya - Колыбельная (Dj Pomeha Remix)
-02. Baby Alice - Pina Сolada Boy (Greysound Remix)
-03. Cutline - Let Me Go (Original Mix)
-04. Инфинити - Когда уйдешь (Privin & Reznik remix)
-05. sunny - Пилигрим
-06. Andy Stroke - Give Me A Sign Disco Lovers (Wicked Djs Rmx)
-07. Kerli - Army Of Love (WaWa Club Mix)
-08. Morandi - Rock The World
-09. Julia Lasker - Очень Заводит Меня (Dj Kirill Clash, Dj Night & Dj Dmitry Nema Remix)(   Читать дальше...   )Жанр: Pop, ClubПродолжительность: 06:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1AC9630C6394273F3372419528C4AB103383E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

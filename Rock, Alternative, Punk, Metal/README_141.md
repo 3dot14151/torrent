@@ -1,32 +1,3 @@
-###  Публикация: 1354886   (986157) от 24.01.2020
-
-Margenta - Сад развлечений им. И.Босха (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986157.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Останутся только вампиры-любовники
-2. Восьмёрка
-3. У времени нет времени
-4. Дикарь. Вне закона(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851BC7B55E82B4DF045A315224CA96B70B883009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612688   (986099) от 02.02.2013
 
 Local Natives - Hummingbird (Deluxe Edition) (2013) [MP3|320 кб/с]<Indie Rock>
@@ -772,6 +743,35 @@ Nightfall - Cassiopeia (2013) [MP3|320 кб/с]<Melodic Death / Dark Metal>
 08. Hyperion
 09. Akhenaton, The 9th Pharaoh Of The 18th Dynasty
 10. The Sand Reckoner(   Читать дальше...   )Жанр: Melodic Death / Dark MetalПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163689   (984169) от 09.01.2010
+
+Betray My Secrets - Betray My Secrets (1999) [MP3|320 kbps]<Atmospheric Ethnic Gothic/Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shamanic Dream (7:04)
+02. Ever Expanding Eternity (6:00)
+03. God And Me (4:30)
+04. Oh Great Spirit (6:23)(   Читать дальше...   )Жанр: Atmospheric Ethnic Gothic/Doom MetalПродолжительность: 01:08:20
 
 ## Скачать торент
 ```bash

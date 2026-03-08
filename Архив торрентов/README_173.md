@@ -1,3 +1,29 @@
+###  Публикация: 1468434   (1017218) от 07.05.2021
+
+Foxit Reader 10.1.4.37651 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Foxit Reader - профессиональное приложение для чтения PDF-файлов. Отличиями Foxit Reader являются весьма компактный размер дистрибутива и быстрая скорость работы, что, несомненно, сказывается на удобстве программы в целом. Программа не требует длительной инсталляции и не требовательна к программным и аппаратным средствам компьютера. Foxit Reader обладает всеми необходимыми (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6048518C448EA74689A9407825F2A1442EF76C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468352   (1017213) от 07.05.2021
 
 Wise Data Recovery Pro 5.1.9.337 (Repack & Portable) by elchupacabra [Multi/Ru]
@@ -654,33 +680,6 @@ L'Orange & Namir Blade - Imaginary Everything (2021) [FLAC|Lossless|Web-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F8BEAD9D4045AA681B1339C5295B38E39E12C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468900   (1016917) от 09.05.2021
-
-RAR Extractor Max - WinRAR 6.9.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016917.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR Extractor Max унаследовал преимущества RAR Extractor Pro, разработчики переработали интерфейс и добавили более мощные функции.
-Поддержка разархивирования RAR, winmail.dat, ZIP, 7z, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, lzma, exe, msi, cpio, lzx, jar, swf, xip, ace, arj, pak, pkg, apk, lbr, lqr, cab, rpm, cpt, sea, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.04.2021Разработчик: ElimisoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66CA891A56FD91F49DAE843D8C6F985F864A3C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

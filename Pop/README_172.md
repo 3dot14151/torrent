@@ -1,3 +1,61 @@
+###  Публикация: 1236157   (554756) от 16.07.2018
+
+VA - Split Dimension 1-3 (2011, 2012) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Electro, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keen K - Ouverture Imaginaire (4:13)
+02. Keen K - Touch Me (3:32)
+03. Keen K - Night Dancer (4:24)
+04. Keen K - Metaphysical (3:27)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Electro, Synth-popПродолжительность: 01:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAB9E96443A2A9FF46B40E53D63EC66B37FD0F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236123   (554752) от 16.07.2018
+
+Anna Tatangelo - Ragazza di periferia (2007)  [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Essere una donna Mastered (4:03) bonus track
+02. Colpo di fulmine (3:30) bonus track
+03. Quando due si lasciano (3:35)
+04. Dimmi dimmi (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB52E64EED0E602B6CE41DA84E195A715CE3C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236212   (554750) от 16.07.2018
 
 Celi Bee & The Buzzy Bunch - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -684,64 +742,6 @@ The Passage Players - Voyage Into Space (1978) LP [MP3|320 Kbps] <Electronic, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D683E276458A2F1A02DC5983BE3AA34C37776CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308491   (553710) от 15.06.2019
-
-Madonna - Madame X (2019) (Japanese Edition) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madonna & Maluma - Medellín
-02. Madonna - Dark Ballet
-03. Madonna - God Control
-04. Madonna & Quavo - Future(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC255EEAE21C756BA7E2CE9D4768E2F876E1741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236959   (553618) от 21.07.2018
-
-Ada Fijal - Ninoczka (2011) [FLAC|Lossless|tracks + .cue] <Pop, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zulejka (o poranku) (5:30)
-02. Abdul Bey (3:14)
-03. Rebeka tanczy tango (3:58)
-04. Blekitny Ekspres (3:20)(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9289736B1D68756EB0FED96E537DE17938376CBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

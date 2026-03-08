@@ -1,3 +1,32 @@
+###  Публикация: 1182551   (314463) от 11.11.2017
+
+Taylor Swift - reputation (2017) Scene [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ...Ready For It?
+02. End Game (Feat. Ed Sheeran & Future)
+03. I Did Something Bad
+04. Don’t Blame Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B06CFC7078868CEED8CB462BFAC0871D3D34DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260157   (314350) от 06.11.2018
 
 VA - 90s 00s and 10s Love Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -717,35 +746,6 @@ VA - Greatest Hits Instrumental (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D811B80C5CF2EB27AE1F151CCF03796BBFDDB4F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183758   (303522) от 16.11.2017
-
-Fitness Forever - Tonight (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303522.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tonight (feat. Kidsaredead) (05:39)
-2. Dance Boys (feat. Paulita Demaíz) (03:45)
-3. Canadian Ranger (04:55)
-4. Andrè (05:09)(   Читать дальше...   )Жанр: Pop, Electropop, DiscoПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E659EC69B6D66511933CE80496B9BCDAB8A5CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

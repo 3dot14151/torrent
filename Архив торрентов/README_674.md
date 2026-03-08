@@ -1,3 +1,32 @@
+###  Публикация: 992117   (902235) от 01.03.2016
+
+Astrix - He.Art (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Psy-Trance, Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astrix - Shamanic Tales (Original Mix) (13:01)
+02. Astrix - Deep Jungle Walk (Original Mix) (9:15)
+03. Astrix - Alien Turned Human (Original Mix) (8:08)
+04. Ace Ventura & Astrix - Valley of Stevie (Original Mix) (8:41)(   Читать дальше...   )Жанр: Psy-Trance, Full OnПродолжительность: 02:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB45C89341DF27375C5C5495E0AFB5B85687E19C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 851283   (902227) от 08.02.2015
 
 Библиотекари / The Librarians (2014) WEB-DLRip [H.264] (Сезон 1, серии 1-10 из 10) BaibaKo
@@ -651,35 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0CED611D51B466F1D98EAEC5958E9B799927369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369305   (902007) от 24.03.2020
-
-Bullet for My Valentine - Hand Of Blood (2005) Ep [FLAC|Lossless|tracks] <Alternative metal, Metalcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 Words (To Choke Upon) 3:46
-02. Hand Of Blood 3:38
-03. Cries In Vain 4:00
-04. Curses 4:00(   Читать дальше...   )Жанр: Alternative metal, MetalcoreПродолжительность: 00:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507D337A76C511109CF9B00C5081E8CE060A8AD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

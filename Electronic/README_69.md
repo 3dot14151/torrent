@@ -1,3 +1,61 @@
+###  Публикация: 1093368   (933851) от 15.01.2017
+
+VA - Buddah's Chill  Vol.8 (Buddha Asian Bar Lounge) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Phoungh Ann - Rufiyaa  4:51
+02.  Yantra Mantra - Pink City (Ayurveda Mix)  3:56
+03.  Shadi Fares - Champagne Beach  5:29
+04.  Latif Rayhan - Aleppo  2:26(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79A029D0BBA85B277527272FA3850551036B6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364890   (933816) от 05.03.2020
+
+Nathan Micay - Blue Spring (2019) LuckyMe [FLAC|Lossless|WEB-DL|tracks] <Experimental, Breaks, Techno, Ambient, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romance Dawn For The Cyber World (05:00)
+ 02. Join Me Or Die. Can You Do Any Less (05:09)
+ 03. Ecstacy Is On Maple Mountain (05:39)
+ 04. He Has The Key (05:15)(   Читать дальше...   )Жанр: Experimental, Breaks, Techno, Ambient, TranceПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30195178D218057310A7E316B213AA915468C0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364889   (933815) от 05.03.2020
 
 Toro Y Moi - Smartbeats (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
@@ -687,64 +745,6 @@ VA - Let It Lounge, Vol. 1 (2020) [MP3|320 Kbps] <Downtempo, Chillout, Relax, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:056E5AD787953C4547BDBD5BD609CED499C50164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365123   (932227) от 06.03.2020
-
-VA - Trip to Munich Lounge: Chillout Your Mind (2020) [MP3|320 Kbps] <Downtempo, Chillout, Relax, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Liege - Stream of Love (Original Mix) [04:19]
-02. Chillson feat. Marc Hartman - Easy Does It (Original Mix) [04:04]
-03. Michael E - Cafe Con Leche (Original Mix) [06:29]
-04. Pier-O - Elisa's Story (Space Dream Mix) [05:14](   Читать дальше...   )Жанр: Downtempo, Chillout, Relax, LoungeПродолжительность: 01:20:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12151449320051772AD7F221707475A32BDAB25A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985984   (931923) от 13.02.2016
-
-Dance With The Dead - The Shape (2016) [MP3|320 кб/с] <Synthwave, Synthpop, New Retro Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There's a storm coming
-02. Eyes of Madness
-03. Her Ghost
-04. Scream and Whispers(   Читать дальше...   )Жанр: Synthwave, Synthpop, New Retro WaveПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DDFA24B80AFC6015EBBC5D761F514C3AAFF8B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

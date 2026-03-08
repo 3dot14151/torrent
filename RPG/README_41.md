@@ -1,3 +1,29 @@
+###  Публикация: 1103691   (181730) от 29.11.2020
+
+Earthlock: Festival of Magic (2016) [Ru/Multi] (1.1.0/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Earthlock - приключенческая ролевая инди-игра с новыми возможностями пошагового боя и развития персонажей. Earthlock: Festival of Magic заставит попотеть даже опытных стратегов. Спаси Umbra - таинственную планету, которая перестала вращаться тысячи веков назад. Решив спасти дядю Amon из тисков древнего культа, ты окунешься в увлекательное приключение. Вместе с группой (   Читать дальше...   )Тип издания: LicenseРазработчик: SnowCastle GamesЖанр: RPG (Rogue, Action), 3D, IsometricЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470B103CCCB9A3AF6DD5C0B4D1EA6C12B6FAD999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593023   (181340) от 25.11.2022
 
 Bound By Blades (2022) [Multi] (1.7.2.0) License GOG
@@ -642,32 +668,6 @@ Ashen – это кооперативный экшн-RPG c открытым ми
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A51AE3C3D48BB17A95430F036B6350DF525ED70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971360   (169905) от 10.12.2019
-
-The Legend of Heroes: Trails in the Sky: Second Chapter (2015) [En] (2019.12.08) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы любите jRPG, а ваш список игр, которые надо пройти, ещё не вылезает за поля, то у студии XSEED есть новости специально для вас: The Legend of Heroes: Trails in the Sky: Second Chapter - вторая глава практически культовой The Legend of Heroes: Trails in the Sky - наконец-то вышла на Западе. Не прошло и десяти лет с японского релиза! Можно с уверенностью утверждать, (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom и Paon CorporationЖанр: RPG (Japanese-style), 3D, IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC0AB0655B929EB23D6B67789BC48B6994AE619
 ```
 
 https://mybot314.ru/tekegram_catalog/

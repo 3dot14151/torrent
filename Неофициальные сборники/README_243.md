@@ -1,3 +1,177 @@
+###  Публикация: 1130103   (716421) от 01.05.2017
+
+VA - Песни для души от радио Шансон Выпуск № 4 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716421.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Владимир Курский - Живу Тобой 4:32
+002. Виктор Тартанов - Юность 3:45
+003. Николай Искуснов - Засыпай 4:27
+004. Сборная Союза - А Потому Что Любовь 3:32(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E4B88F12CB227430A1A1416B98BCF86A765BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130052   (716406) от 01.05.2017
+
+VA - The Official UK Top 40 Singles Chart 28.04.2017 (2017) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716406.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jason Derulo - Swalla 3:36
+002. Ed Sheeran - Shape Of You 3:54
+003. Ed Sheeran - Galway Girl 2:51
+004. Harry Styles - Sign of the Times 5:41(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 02:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0B9858749BB64CDBB952DD2FD6AE7F55D93906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532169   (716396) от 18.02.2022
+
+VA - Beatport Chill Electronic: Sound Pack #405 (2022) [MP3|320 Kbps] <Electronic, Chillout, Synth Relaxation>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Целительные силы музыки способны пробудить в человеке его скрытый потенциал, который не используется по одной простой причине – для нормальной, привычной жизни этот скрытый потенциал не особенно то и нужен, но становится необходим в том случае, когда обычная жизнь заводит в тупик и обычных усилий преодолеть "подарки судьбы" уже не хватает.001. Maarja Nuut Ja Ruum - Cloths Of Heaven
+002. Cashminus - Paradise
+003. Edvard Hunger - Seems All Is Great
+004. Neutron 9000 - She Trails Flowers(   Читать дальше...   )Жанр: Electronic, Chillout, Synth RelaxationПродолжительность: 08:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8444AE0D86EA29756B98C6DEED399DE8A767A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130317   (716340) от 01.05.2017
+
+VA - Пацаны - Ваще Ребята! Vol.33 (2017) [MP3|192-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  5sta Family - Везувий (Buzzy Radio Edit)  4:15
+02.  Gaz feat. DJ Geny Tur & Techno Projec - Загадка (Radio Edit)  4:02
+03.  Anthony El Mejor - Такси Такси (Radio Cover Edit)  3:35
+04.  Настасья - Самолётами (Slider & Magnit Remix)  3:28(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4E4F2AE27A940A5F581F8DDA08B8CE234E8454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024516   (716141) от 09.06.2016
+
+VA - Surfer's Disco Waves (2016) [MP3|320 кб/с] <House, Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Palma - Cada Vez (Remember & Feedback Radio Remix) (3:27)
+02. Re-Tide - Tell Me Babe (7:01)
+03. Ramiro Mirgardo - Super Tubos (5:12)
+04. Spirale - Zum Beispiel (3:28)(   Читать дальше...   )Жанр: House, Funky, Club HouseПродолжительность: 02:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB0C62B56359EF0AE37762708D1513CAD3993DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024578   (716140) от 09.06.2016
+
+VA - Sky Air Trance: Progressive Session (2016) [MP3|320 кб/с] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716140.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Simon Patterson & Magnus - Evoke
+002. Ads Peri - I Miss You (Original Mix)
+003. Alpha Bit - Birthday (Original Mix)
+004. Mike Posner - I Took A Pill In Ibiza (Seeb Remix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 08:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D1069B2599405928E38412A35016D8DA442DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024655   (716133) от 09.06.2016
 
 VA - Ultimate Summer Trance: SunLight Project (2016) [MP3|320 кб/с] <Trance, Progressive Trance, Uplifting Trance>
@@ -575,181 +749,6 @@ VA - Душевный сборник радио Шансон (7) (2018) [MP3|256
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F88D0DCA69CB9FBC8BE0C300046A4DE5207FA582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219194   (715621) от 13.04.2018
-
-VA - Душевный сборник радио Шансон (3) (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715621.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сиран Агасаров - О Тебе
-002. Дмитрий  Фомин - Паровозик
-003. Валерий Палаускас - Раздолье Русское
-004. Сборная Союза - В Нас Бог И Дьявол(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7565D42418D60FF654A314708DF1808E6674492B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219182   (715619) от 13.04.2018
-
-VA - Back To 90 s’ Eurodance (2018) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715619.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nausikaa - Light My Fire
-002. Maduar - Mystic Party
-003. Daze - Call Girl
-004. John The Whistler - She's My Girl(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8EEED331DC7459AB02DF7735586F6A562B20E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219165   (715605) от 13.04.2018
-
-VA - Jazz With Blues Accent (2018) [MP3|128-320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715605.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Carmen McRae - I Only Have Eyes For You (Live)
-002. Renata Ghiso - I'm a Stranger Here Myself
-003. Bobby Short - Heebie Jeebies
-004. Y'Akoto - Come Down To The River(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 08:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3D2B0A81C413E9E70177EF79EEE69E53A35324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219172   (715363) от 13.04.2018
-
-VA - Настроение Весны От Авторадио (2018) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715363.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Андрей Леницкий - Подари Мне Любовь
-002. Сати Казанова - Спит Моё Счастье
-003. Sia - Ho Ho Ho
-004. Николас Кельм - Забывай Меня(   Читать дальше...   )Жанр: PopПродолжительность: 12:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C87D8DEC3C1D562666817D6BFEC03CBD80E5E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219143   (715351) от 13.04.2018
-
-VA - Mysterious: New Era Music (2018) [MP3|320 Kbps] <New Age, Ambient, Enigmatic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715351.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Entheogenic - Anima Mundi
-002. Physical Dreams - Nature Sounds N1
-003. beGun - Yoko
-004. Empire Of Love - Mysterious(   Читать дальше...   )Жанр: New Age, Ambient, EnigmaticПродолжительность: 08:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B3FA8C9DEE682BF79297BE94BE6382E538564D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 893006   (715208) от 28.04.2015
-
-VA - Без Тормозов vol.1 (2015) [MP3|320 кб/с]<Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D-Block & S-Te-Fan & Rebourne - Louder
-02. To-2-Bi - Deep in My Heart
-03. Paris Blohm & Tylr Renee - Left Behinds (The Vision Remix)
-04. Sylence - Trianglez
-05. Atmozfears & Audiotricz - Reawakening(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B157FA02F47CC6CDB67E340A0EB45F3F223DA3BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

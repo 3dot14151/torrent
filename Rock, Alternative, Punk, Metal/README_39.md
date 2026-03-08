@@ -1,32 +1,3 @@
-###  Публикация: 1438117   (1041451) от 07.01.2021
-
-Midnight Spell - Sky Destroyer (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood for Blood (04:11)
- 02. Between the Eyes (03:44)
- 03. Lady of the Moonlight (04:29)
- 04. Midnight Ride (02:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A54939FCAB34D904BEC7C963FE138346FEFB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438141   (1041444) от 07.01.2021
 
 Alta Reign - Mother's Day (2021) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
@@ -747,6 +718,35 @@ The Almas - Truth Sells (2021) [MP3|320 Kbps] <Original Modern Hard Rock, Female
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C37EB87CEF23C2C57EDE5755736DBCBEB50884F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438302   (1041062) от 08.01.2021
+
+Mother's Day - Alta Reign (2021) [FLAC|Lossless|tracks + .cue] <Heavy-Metal, Melodic-Progressive-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shine [00:04:43]
+02 - Witness [00:04:11]
+03 - Thin Red Line [00:05:42]
+04 - Never Say Never [00:04:59](   Читать дальше...   )Жанр: Heavy-Metal, Melodic-Progressive-MetalПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BEB72500F83C53BE9A6A4A368B15CBD3D6C18D
 ```
 
 https://mybot314.ru/tekegram_catalog/

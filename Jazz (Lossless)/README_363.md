@@ -1,3 +1,32 @@
+###  Публикация: 1758919   (38174) от 05.11.2024
+
+Lester Young - The Complete Aladdin Recordings (1942 - 1947) 2CD, 1995, Blue Note [APE|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumpin' with Symphony Sid [3:11]
+02. No Eyes Blues [3:00]
+03. Sax-O-Be-Bop [2:53]
+04. On the Sunny Side of the Street [3:00](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2AA94EEAF07987F3A3DD9E40AD641CB0FDED58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759419   (37879) от 08.11.2024
 
 Gerry Mulligan with Jane Duboc - Paraiso: Jazz Brazil (2013) First Impression Music [FLAC|Lossless|image + .cue] <Vocal Jazz, Latin Jazz>
@@ -716,35 +745,6 @@ Dakota Staton - Five Classic Albums (1957 - 1959) 2CD, 2017, Avid Jazz [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D0B6F476CB3F6B48A2ABC50BCE77F3F27C3AD2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766234   (33759) от 18.12.2024
-
-VA - Funk & Soul For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Anduze - Rich No Money/Reinvention (7:08)
-02.Alixia Mistral - What We Had And Might Have Lost (3:35)
-03.SLAMTWISTED - Close To You (3:54)
-04.Wendy D. Lewis - Wiser (4:02)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA74C9A4BF3FE8B27AF8F7A8D94496C03556FE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

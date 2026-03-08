@@ -1,32 +1,3 @@
-###  Публикация: 1126398   (765485) от 18.04.2017
-
-The Ryszard Kramarski Project - Music Inspired By The Little Prince (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Android B-612 (4:13)
-02. The Little Prince (5:12)
-03. The Rose With Four Thorns (6:33)
-04. Galaxy Freaks (6:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B301CFB94EB0C0B51803CBF2A780A436A3F37ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394115   (765473) от 03.07.2020
 
 Havok - V (2020) [MP3|320 Kbps] <Thrash Metal>
@@ -740,6 +711,35 @@ Carmine Appice - Carmine Appice's Guitar Heroes (2010) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:868812B1A3DFA0B8AE93B5119097DDA4425C5DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394275   (764638) от 04.07.2020
+
+Алексеевская площадь - Оставить след (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ночь
+2. Не забывай
+3. Выше
+4. Всё намного проще(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB5F3009A5F975EE4CCCA78629218AC01D2D54A
 ```
 
 https://mybot314.ru/tekegram_catalog/

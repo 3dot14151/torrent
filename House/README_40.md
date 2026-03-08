@@ -1,3 +1,37 @@
+###  Публикация: 526457   (575061) от 27.07.2012
+
+Groove Armada - Goodbye Country (Hello Nightclub) (2CD) (2001) [MP3|320 кб/с]<Electronic,  House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575061.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Superstylin' (Q.A. Discotek Mix) (5:47)
+ 2. Moira's Theme (3:53)
+ 3. Mali (6:27)
+ 4. Lazy Moon (Live Version) (6:45)
+ 5. Rap (Q.A. Alternative Mix) (4:09)
+ 6. Your Song (Tim "Love" Lee's Semi-Bearded Remix) (7:36)
+ 7. A Private Interlude (Kinobe Remix) (5:38)
+ 8. Old Father Rhyme (4:20)
+ 9. My Friend (Dorfmeister Vs. Madrid De Los Austrias Dub) (6:23)Жанр: Electronic,  HouseПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7ECE04FD6B855468A7CCF3660C8DA4DDB19965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234175   (574701) от 03.07.2018
 
 VA - Future Workout Summer '18 (2018) [MP3|320 Kbps] <Funky, Club House>
@@ -724,35 +758,6 @@ VA - Summer Megamix 2022 [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7D4F1A7CE4A001259F482DD8ABCB22AE73AD626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304255   (564092) от 26.05.2019
-
-VA - 25 Compost Records (2019) [MP3|320 Kbps] <Nu Disco, Deep House, Electronica, Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beanfield – Human Patterns (Roman Flugel Remix)
-02. Ron Deacon – Bring It On
-03. A Forest Mighty Black – Fresh In My Mind (I:Cube Remix)
-04. Marsmobil – It Doesn't Matter How You Are (Ripperton Remix Instrumental)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Electronica, DowntempoПродолжительность: 04:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BA83FA5088B873BD781D9923971D748045AC53
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1340204   (264279) от 22.11.2019
+
+Deodato - Knights Of Fantasy (1979) LP [MP3|320 Kbps] <Disco, Jazz-Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Dust, Sherlock (7:57)
+02. Shazam (7:57)
+03. Bachmania (7:07)
+04. Knights Of Fantasy (6:27)(   Читать дальше...   )Жанр: Disco, Jazz-FunkПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A7FEE7648CF19E2CE8CC5E0968D17B9CF0AF409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340152   (264276) от 22.11.2019
+
+Наталия Власова - 20. Юбилейный альбом (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264276.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Скучаю
+2. Dali
+3. Лунная
+4. Ангел(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D027D5720654FD135468D710BA65F28956D444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339895   (264272) от 22.11.2019
 
 VA - Italoconnection: Remixes Vol. 2 (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Electro>
@@ -687,64 +745,6 @@ VA - Winter Hits Dance (2019) [MP3|320 Kbps] <Dance, House, Big Room>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:327C5B83BAF138F623DA681240D13E13019F73F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192317   (263050) от 17.12.2017
-
-Марк Бернес - Актер и Песня (2001) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я люблю тебя, жизнь 02:29
-02. С чего начинается Родина 02:31
-03. Песенка фронтового шофера 02:00
-04. Темная ночь 03:21(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6697AC395014194EFA8593CBEC1C44EFBAB4F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341125   (262893) от 26.11.2019
-
-VA - ZYX Italo Disco Spacesynth Collection (2014) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserdance - Moon Machine (5:34)
-02. Galactic Warriors - Koto Tribute Mix (13:57)
-03. Protonic Storm - Dreamscape (Short Mix) (6:42)
-04. Rygar - Modulation (5:28)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6ED379C022C04DAFAEA3416894673F1D68CFF98
 ```
 
 https://mybot314.ru/tekegram_catalog/

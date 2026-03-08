@@ -1,3 +1,32 @@
+###  Публикация: 1333462   (303291) от 25.10.2019
+
+VA - Exotic Of Disco: The Best Of Summer (2019) [MP3|320 Kbps] <Disco, Eurodisco, Italodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303291.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Franz Matthews - Tutan Jamon
+002. Boogie Freaks - What's Up (Original Mix)
+003. Hot Streak - Body Work (Vocal Mix)
+004. Sidwho - Violet Run(   Читать дальше...   )Жанр: Disco, Eurodisco, ItalodiscoПродолжительность: 10:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AE5CB5AFB4B4D4323AB1DCF893D21DDAD1E8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261539   (303101) от 11.11.2018
 
 VA - MuviDance Russian Party Vol.2 (2018) [MP3|320 Kbps] <Dance, Disco, Pop>
@@ -716,35 +745,6 @@ VA - Хит FM. Попсовая Соточка. Выпуск №7 (2016) [MP3|2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC8771E065E18CF7B140455A5334120C6A9579D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079332   (292154) от 05.12.2016
-
-VA - Горячий хитовый драйв - 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292154.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Вика Воронина Feat. Storm Djs - Угги 3:41
-002.Kaiser Chiefs - Falling Awake 3:54
-003.Градусы - Вали Гуляй 3:48
-004.Greyson Chance - Hit & Run 3:50(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C90FE9CF574616FB986ECD8ADB371BC98C62996
 ```
 
 https://mybot314.ru/tekegram_catalog/

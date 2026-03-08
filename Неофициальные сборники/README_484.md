@@ -1,3 +1,177 @@
+###  Публикация: 1256719   (351894) от 23.10.2018
+
+VA - Rhythm And Blues: Maximum Live (2018) [MP3|320 Kbps] <RnB, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351894.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alice Smith - House Of The Rising Sun
+002. A.Chal - To The Light
+003. Aftertheparty - Numb
+004. Crys Nammour - On Reprend Là(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 10:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582C0536D5F448DFD231F282FF341008407C9A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256718   (351884) от 23.10.2018
+
+VA - Golden A Capella (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351884.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chrisjenkins - Chances
+002. Lil Marvaless - Pray For Me
+003. Selastoutseul - Sakura
+004. Whoisskitzo - Start Me Up(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FDFBBCBB5BD2FEF3BE73038280573AA305674B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256721   (351811) от 23.10.2018
+
+VA - Popular 90's & Coolhits! (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chesney Hawkes - The One And Only
+02. 4 Non Blondes - What's Up
+03. Fool's Garden - Lemon Tree
+04. Chumbawamba - Tubthumping(   Читать дальше...   )Жанр: PopПродолжительность: 04:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3031001B2CF4D711F3410DA27A4681FB66913B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952485   (351793) от 03.11.2015
+
+VA - Spaceman's Paradise (1996) [MP3|160 кб/с]<Electronic, Hard Trance, Euro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Einstein Doctor DJ - Back From Galaktica (05:58)
+02. Nostrum - Acid House (06:49)
+03. Wax Scientists - It's Time For House (05:36)
+04. DJ Khetama - Green Flow (05:54)(   Читать дальше...   )Жанр: Electronic, Hard Trance, Euro HouseПродолжительность: 01:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1C5EE523DD0665262B138429A3DEFFB60AB38A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953122   (351792) от 03.11.2015
+
+VA - Green Sky Reflection (2015) [MP3|320 кб/с]<Minimal House, Techno House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351792.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Diroma, Frystal Dj - Minimal Self 05:22
+002. Ian Page - So Deep, So Mean (FAWX Remix) 03:53
+003. Technasia & Green Velvet - Suga (Original Mix) 06:42
+004. Leechy Alexej - Minimal Balkan (Paul Haro Remix) 07:18(   Читать дальше...   )Жанр: Minimal House, Techno HouseПродолжительность: 10:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C06EEB78F860CCEF49E48A0C007622C5A8BE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952971   (351791) от 03.11.2015
+
+VA - Lazy Sundays (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lessovsky - Far Away (6:18)
+02. Aamon - Hidden Emotions (5:28)
+03. In-Deed - Feeling Good (7:00)
+04. Jacek Janicki - The World Without You - Bara Brost Remix (7:08)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BAC5887D13A79F02185037E85C17CD66C13429F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952179   (351786) от 03.11.2015
 
 Наугольник - Галлюцинатор (2015) [MP3|320 кб/с]<Electronic Rock, Psyhedelic, Dark Electro>
@@ -596,183 +770,6 @@ VA - Kiss FM Top 40: Октябрь (2017) [MP3|320 Kbps] <House, Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C1D42E8566E87D4F35CBA5BFA2D2563A834D9C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417970   (350496) от 23.10.2020
-
-VA - Music News vol.42 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350496.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelita - Karma (02:51)
- 002. 5sta Family - Эгоистка (03:04)
- 003. 36 Crazyfists - Installing the Catheter (03:51)
- 004. A.T feat. OKIAN - По Губам Дождь (02:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FA48F5D5F416F35936BC5F7F2291C72303946C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578928   (350435) от 22.11.2012
-
-VA - Зарубежная дискотека (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Secret Service - Ten O, Clock Postman
- 02 - Eraption - One Way Ticket
- 03 - Murray Head - One Night In Bangkok
- 04 - Dschinghis Khan - Rocking Son Of Dschinghis Khan
- 05 - Laura Branigan - Selfcontrol
- 06 - Neoton Familia - Marathon
- 07 - Fancy - Flames Of Love
- 08 - Videokids - Do The Rap
- 09 - C.C. Cath - Midnight Gambler
- 10 - Arabesque - Midnight DancingЖанр: PopПродолжительность: 04:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD21EB2EC1E220EF06647E0F726D614456A3D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329767   (350271) от 06.10.2019
-
-VA - Record Super Chart 607 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C-BooL - Catch You 3:13
-02. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
-03. Gamper & Dadoni feat. Emily Roberts - Bittersweet Symphony 3:15
-04. Slider & Magnit - Morze 3:11(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0FA4702D1A096BEB462B053A9FA53A759EDD184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578868   (350210) от 22.11.2012
-
-VA - The Official UK Top 150 Best-selling Singles Of The 21st Century (2000-2012) [MP3|320 кб/с]<Pop, Rock, Dance, RnB, TOP>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блуждая по просторам Википедии наткнулся на страничку "List of best-selling singles of the 21st century (UK)". Оказывается, компанией "Official Charts Company" ведется перечень самых продаваемых синглов недели Великобритании. С 2005 года топ был основан на продажах синглов как на физических, так и на цифровых носителях, при условии, что сингл (   Читать дальше...   )Жанр: Pop, Rock, Dance, RnB, TOPПродолжительность: 09:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C8D3CE6E954A883857EBFF5CF49962D3D04E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329760   (350152) от 06.10.2019
-
-VA - не Громкие новинки недели 37 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350152.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.5sta Family - Завязала (3:41)
-2.Adeli - Пока (3:09)
-3.AquaBlue feat. MARO - Манерная (3:15)
-4.Bahh Tee - Моей Последней Бывшей (3:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B84F835D36208213302673FFBBC7B826AAF26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072994   (350123) от 14.11.2016
-
-VA - Welcome Singles November (2016) [MP3|320 Kbps] <House,  Bass House, Bounce, Drumstep, Hardstyle, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - This Is What It Feels Like (feat. Trevor Guthrie) (Matt Lange Remix) 3:30
-02. Dimitri Vegas & Like Mike - Leaves 3:38
-03. Calvin Harris - My Way (Max Vangeli Remix) 4:59
-04. Deorro feat. DyCy - Goin Up 4:17(   Читать дальше...   )Жанр: House,  Bass House, Bounce, Drumstep, Hardstyle, TrapПродолжительность: 05:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A915DF3ACA92E30DABEFF0328A44D1F28F937EE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

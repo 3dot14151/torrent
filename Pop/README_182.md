@@ -1,3 +1,61 @@
+###  Публикация: 1157810   (524717) от 13.08.2017
+
+Kosmolok - Happy Birthday Rock 'N' Roll (A Rock Musical) (1980) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heading For The Stars (3:40)
+02. Hey You Guys (1:52)
+03. Supercharged Ladies (2:38)
+04. My Name Is ... (3:19)(   Читать дальше...   )Жанр: Electronic, Disco, Pop Rock, Rock & RollПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405C9EBA0AC5D52D576A222CFF59AF40A816E106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157885   (524645) от 13.08.2017
+
+VA - NRJ Summer Hits Only (3CD) (2017) [MP3|320 Kbps] <Pop, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jason Derulo & Nicki Minaj feat. Ty Dolla Sign - Swalla  3:37
+02.  Lartiste - Chocolat (feat. Awa Imani)  3:55
+03.  Bruno Mars - That's What I Like  3:27
+04.  Soprano - Coeurdonnier  3:47(   Читать дальше...   )Жанр: Pop, RnB, DanceПродолжительность: 03:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5BDE7C5F6C29F7C931618BE0E7C321C9DB142A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240466   (524526) от 12.08.2018
 
 Giusy Ferreri - Hits (2015) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -690,64 +748,6 @@ The Free - Lover On The Line (1994) Maxi-Single [FLAC|Lossless|tracks + .cue] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E2BE1F4B567FBA33653DFC632CD60FC153C81BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241235   (521059) от 16.08.2018
-
-Lady Gaga - Singles Collection (2017) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Bad Romance (Extended Version)
-02. Born This Way
-03. Alejandro(   Читать дальше...   )Жанр: Pop |Продолжительность: 02:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9374CC79FBFDAFB6AE2DF5C87622739AFD8D81D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241244   (521057) от 16.08.2018
-
-VA - 12 Inch Dance: 90s Remix (2018) 3CD [FLAC|Lossless|tracks + .cue] <Electronic, Synthwave, House, Pop, Breaks>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tori Amos – Professional Widow (Mr. Roy's Cosmic Cottage Mix) (07:56)
-02. Pete Heller – Big Love (The Dronez Mix) (08:23)
-03. Stetsasonic – Talkin' All That Jazz (Dim's Radio Edit) (04:26)
-04. The Brand New Heavies – Dream On Dreamer (David Morales Extended UK Version) (08:32)(   Читать дальше...   )Жанр: Electronic, Synthwave, House, Pop, Breaks |Продолжительность: 03:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B3BB67DF229EDD75FD55BAE7CBB862DE7D7455
 ```
 
 https://mybot314.ru/tekegram_catalog/

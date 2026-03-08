@@ -1,32 +1,3 @@
-###  Публикация: 1209226   (779395) от 26.02.2018
-
-The Monochrome Set - Maisieworld (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me Your Youth (03:32)
-02. Stage Fright (04:04)
-03. I Feel Fine (Really) (02:52)
-04. Cyber Son (03:39)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F973516D9D09F668D9275071D93420E875525571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209612   (779296) от 27.02.2018
 
 Secret Rule - The Key to the World (2017) [MP3|320 Kbps] <Symphonic melodic metal, Female Vocal>
@@ -741,6 +712,35 @@ Arcade была супергруппой glam metal, созданной в 1992 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DFCF0705B3031867266C956FF95F80E0E3D2D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210595   (778482) от 04.03.2018
+
+Greta Van Fleet - From The Fires (2017) mini-album [FLAC|Lossless|tracks + .cue] <Hard Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Safari Song		03:55
+02.	Edge Of Darkness		04:28
+03.	Flower Power		05:13
+04.	A Change Is Gonna Come		03:17(   Читать дальше...   )Жанр: Hard Rock, RockПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFA3CF0566E5565FD04DA1B1FBF4B285BBF9F5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

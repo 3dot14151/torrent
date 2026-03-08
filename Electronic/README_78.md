@@ -1,3 +1,61 @@
+###  Публикация: 990685   (910039) от 26.02.2016
+
+VA - Faith In A Wet Season (2012) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M. Ostermeier - Flying South (04:05)
+02. James Murray - Last Call (02:34)
+03. Nebulo - Rustles Vs Muscles (05:27)
+04. Strïe - Latent Hours (04:51)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCAF3B7E3AC599EBEEF0F3EFAF46F86DEE962A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990684   (910025) от 26.02.2016
+
+VA - Salvacion Ibiza (2003) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_910025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam La More - Takin' Hold (6:00)
+02. Demetreus - Better Love (5:50)
+03. Noferini & DJ Guy - A Sunny Day (5:19)
+04. Gaudino feat. Crystal Waters - Destination Unknown (5:05)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23976FCC2A27E61CB5EDCEF7AF1753C09480DC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990157   (910009) от 26.02.2016
 
 VA - Electric Walls: Dance Floor Vol 2 (2016) [MP3|320 кб/с] <Progressive House>
@@ -684,61 +742,6 @@ Sofi Tukker - Treehouse (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Indie P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AD883951A096EDD1509ACCF8A10B6E74938F521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364474   (907195) от 21.03.2020
-
-Enduser | end.user - Discography 71 Releases (2002-2020) Sonicterror, Ad Noiseam, Hands, Hymen Records [FLAC|Lossless|tracks+.cue, tracks] <Drum n Bass, Breakcore, Jungle, Industrial>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. November 2019 Promo Mix (43:00)Тип издания: CD, Web, VinylЖанр: Drum & Bass/BreakcoreПродолжительность: 38:12:36 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E037C37797A884766D61B33057C3533B1F0BD84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368802   (907085) от 21.03.2020
-
-VA - Sax & Sex 1 (1997) [FLAC|Lossless|image + .cue] <Easy Listening, Jazz, Pop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Sambario
-02 Lady In Red
-03 Anna
-04 San-Francisco Morning(   Читать дальше...   )Жанр: Easy Listening, Jazz, PopПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40EB8A7F458C578FE82C1D1EA7F448748CC24341
 ```
 
 https://mybot314.ru/tekegram_catalog/

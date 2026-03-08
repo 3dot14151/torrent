@@ -1,3 +1,58 @@
+###  Публикация: 1194899   (152464) от 27.12.2017
+
+VA - Fg Top 10: December 2017 [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Freegrant - Fall In Love (Emme Extended Remix ) 05:55
+02. Bodo Kaiser - Time Square (Original Mix) 04:46
+03. Aurean - Heatwave (Original Mix) 05:00
+04. Alex H - Rainforest (Extended Mix) 07:09(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D35110B25F0B017271A9DB56B1F9CE126373BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194883   (152406) от 27.12.2017
+
+Stanislav Vdovin | Unit 21 | Initial Run - Collection 11 Releases (2007-2017) Occasion [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Drone, Experimental, IDM, Abstract, Techno, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Big Picture (06:28)Тип издания: CD, WebЖанр: Techno/MinimalПродолжительность: 00:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:005D536703B0854940A3C8E4257E1E954D8F718A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194825   (152396) от 27.12.2017
 
 Manu Zain - Don't Give Yourself Away (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -686,64 +741,6 @@ VA - Armin van Buuren - A State Of Trance 1147 (2023) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB09EF0D3A0F685662B488DDCB3F507E06066870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968966   (151126) от 25.12.2015
-
-Jens Buchert - Electronic Space Odyssey-Transcending Lounge Music (2009) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Taxi (04:24)
- 02. Sanso Sheep (05:22)
- 03. Jelly Fish (03:58)
- 04. Wendy (04:48)(   Читать дальше...   )Жанр: Downtempo, Ambient |Продолжительность: 01:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85CE4D33C70D675E6026DE66C42D4622599D4347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677406   (151117) от 17.11.2023
-
-David Guetta - Live @ DJ Mag Top 100 DJs Awards, Ibiza, Spain (2023-11-15) [MP3|320 Kbps] <House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta Epic House Set From An Ibiza Villa - Intro
-02. Dennis Ferrer - Hey Hey (David Guetta Remix)
-03. &ME & Black Coffee - The Rapture Pt.III w/Kings Of Tomorrow ft. Julie McKnight - Finally (Acappella)
-04. ID - ID w/Jack Back & CeCe Rogers - Freedom (Acappella)(   Читать дальше...   )Жанр: House, Melodic House, TechnoПродолжительность: 01:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B97BCBECBA24093E975A879269A05466862AC5F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1300029   (594594) от 04.05.2019
-
-The Wildhearts - Renaissance Men (2019) [MP3|320 kbps] <Hard Rock, Punk'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dislocated (05:52)
-02. Let ‘em Go (04:12)
-03. The Renaissance Men (02:49)
-04. Fine Art Of Deception (02:56)(   Читать дальше...   )Жанр: Hard Rock, Punk'n'RollПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A3A7A24AE0812847C139F871497C2AC7241F8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300062   (594586) от 04.05.2019
 
 Cigarettes After Sex - Cigarettes After Sex (2017) Partisan Records [FLAC|Lossless|tracks + .cue] <Indie Rock, Dream Pop, Ambient>
@@ -745,6 +716,35 @@ Bullet for My Valentine - Gravity (2018) [MP3|320 Kbps] <Melodic Metalcore, Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4252D3BC5839FB760D11A2CB685C789DA48EA1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233191   (593760) от 28.06.2018
+
+Gorillaz - The Now Now (2018) [MP3|320 Kbps] <Alternative Rock, Hip-Hop, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humility (Feat. George Benson)
+02. Tranz
+03. Hollywood (Feat. Snoop Dogg & Jamie Principle)
+04. Kansas(   Читать дальше...   )Жанр: Alternative Rock, Hip-Hop, ElectronicПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A82E9D1ACA9BB078B97C31B821959112182EB25
 ```
 
 https://mybot314.ru/tekegram_catalog/

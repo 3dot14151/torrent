@@ -1,32 +1,3 @@
-###  Публикация: 1602294   (1046129) от 05.01.2023
-
-ДекаЛог - 2 Albums (2019-2022) [MP3|320 Kbps] <Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нам нужна любовь [00:04:46]
-02. Ты далеко [00:03:58]
-03. Кто ты [00:03:16]
-04. Ад для нас [00:04:32](   Читать дальше...   )Жанр: IndustrialПродолжительность: 2 CD, 01:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B92909552D611A3646B9B069005673C7230E56A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602266   (1046128) от 05.01.2023
 
 Istomin - Пустошь (2023) [MP3|320 Kbps] <Heavy Metal>
@@ -743,6 +714,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6A5046704C95705F79FB8B0430D8FFEB2F802C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606814   (1044296) от 23.01.2023
+
+The Hatters - По ходу люблю (2023) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044296.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Просто проваливай
+2. У-ля-ля
+3. Знаю
+4. Hey You(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E56D730437CC725496E59A9E677AA7550F9C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

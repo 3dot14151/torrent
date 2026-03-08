@@ -1,3 +1,177 @@
+###  Публикация: 1520939   (138886) от 30.12.2021
+
+Tony Joe White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beach Life
+02. Saturday Night in Oak Grove Louisiana
+03. We'll Live on Love
+04. High Horse(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 05:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A2F6059CB64A208E48E3E7E3ACE0FC87FDC11CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520935   (138869) от 30.12.2021
+
+Snowy White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riding the Blues
+02. Red Wine Blues
+03. Highway to the Sun
+04. Land of Plenty(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 07:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC55970637894BEE8AC9208D4368D0C8180F3CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195799   (138855) от 31.12.2017
+
+VA - super rock KYOi от NNNB (2017) [MP3|320 Kbps] <Rock, Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Toto  -  Africa  4:55
+02.  Van Halen  -  Jump  4:00
+03.  Van Stephenson  -  Modern Day Delilah  4:13
+04.  Ambrosia  -  How Much I Feel  4:44(   Читать дальше...   )Жанр: Rock, Disco, PopПродолжительность: 04:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29DB59C0CB504D4B765C0D4B6CE1E2F21513F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520964   (138818) от 30.12.2021
+
+Paul Mauriat - Compilation (2021) [MP3|320 Kbps] <Instrumental, Paul Mauriat>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Control
+02. Fiesta Finale
+03. Le Sud
+04. Sayonara(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 14:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF35D4281A371D295729E1AB4365AD74A6FDBA22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970767   (138808) от 31.12.2015
+
+VA - Rock Collection 1988 (2015) [MP3|320 кб/с] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+01. Death Angel - 3rd Floor
+02. Lita Ford - Back to the Cave
+03. Anthrax - Be All, End All(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 24:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9271A04310E45F697C71498566A5A23CCFF1B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435981   (138789) от 30.12.2020
+
+VA - The Urban Rock Music (2020) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на сеанс настоящей рок музыки! Представляем Вам разностилевой рок сборник под названием "Urban Rock Music". Исполнители представляемого лонгплея в своих песнях сочетают откровенную агрессию с довольно яркой и ранимой мелодикой. В результате получаются весьма драйвовые, забойные боевички, но не лишённые философской изюминки.001. Islander - Freedom
+002. Guns N' Roses - Sweet Child O' Mine
+003. Cathedral Bells - A Passing Phase
+004. Mrs. Green Apple - Stardom(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98903D428B49E17776D66E8457E3D9A67E0C62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195725   (138786) от 31.12.2017
 
 VA - De Top 100 Aller Tijden 1978 (RadioVeronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
@@ -577,177 +751,6 @@ VA - Iron Goddess: Experimental (2018) [MP3|320 Kbps] <Ambient, Electronic, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CAE5691E46D32437E2BB3E5D21C9951971442E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970653   (137891) от 31.12.2015
-
-VA - Новогодний Топ 100 От Зайцев.Нет (2015) [MP3|191 - 276 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137891.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Натали - Новогодние игрушки (03:44)
-002. Белый день - Новый год (03:00)
-003. Emin - Boomerang (02:56)
-004. Frank Sinatra - Jingle Bells jingle bells (02:04)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158F17911E66F111CCA46E646AC1A32691E1485E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521112   (137881) от 31.12.2021
-
-Roland Romanelli - Compilation (2019) [MP3|320 Kbps] <Instrumental,  Electronic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schiffbruch Des Herzens
-02. Soledad
-03. Ein Sommer Ohne Blumen
-04. Liebe Fur Einen Tag(   Читать дальше...   )Жанр: Instrumental,  ElectronicПродолжительность: 01:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66350EF4D5393A8D8802D1C567604C76245C755C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740512   (137840) от 31.12.2013
-
-VA - District of Trance (Compiled by sseless & Lazyra) (2013) [MP3|320 кб/с]<Trance , Uplifting Trance , Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 02:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A8B9261AB90B322C4B55699F77C4B320FB6008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273262   (137817) от 31.12.2018
-
-VA - Partybreaks and Remixes - All In One October 003 (2018) [MP3|320 Kbps] <Pop, House, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137817.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Muka  MK X CeCe Peniston - 17 X Finally (Muka Short Mashup)
-002. Starjack & Collini  Ini Kamoze - Hotstepper (Starjack vs Kuba & Neitan Festival Edit)
-003. Vegas & Dj Julo Cruz  Khia - Bodak Yellow X My Neck My Back 2017 (Acapella In My Neck My Back) (Moombahton Mash-Up RMX)
-004. #The Goodfellas  Lil Uzi Vert - Unfazed (Intro)(   Читать дальше...   )Жанр: Dancehall, Future Bass, ElectroПродолжительность: 09:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC5F2C76274A724AD76EC85C584EAC6E5F44191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521042   (137766) от 31.12.2021
-
-Saint-Preux - Compilation (2019) [MP3|320 Kbps] <Instrumental, Electronic. Easy Listening>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expression Part I
-02. Expression Part Ii
-03. Expression Part Iii
-04. Expression Part Iv(   Читать дальше...   )Жанр: Instrumental, Electronic. Easy ListeningПродолжительность: 04:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2000F5DD055A4C8BCD993D386664A49E382A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273270   (137760) от 31.12.2018
-
-VA - Drum Overcome (2018) [MP3|320 Kbps] <Drum And Bass>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137760.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Embrz Ft. Joan - Like It Or Not
-002. Dillinja - Luscious Nights
-003. 3Rdknd - Panger (Original Mix)
-004. Furney - Every One Of Us (Original Mix)(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 09:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2242776B50CBF4529A6D01FF75CDB3B50CE4419D
 ```
 
 https://mybot314.ru/tekegram_catalog/

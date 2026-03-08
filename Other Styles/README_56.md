@@ -1,3 +1,32 @@
+###  Публикация: 14963   (741701) от 05.04.2018
+
+Микаэл Таривердиев - 17 мгновений весны (1996) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На цветочной улице
+02. Где-то далеко
+03. Эхо войны
+04. В черно-белом ритме(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02FE6339B60A3862143E71559F97D7F57FA65D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397217   (741333) от 19.07.2020
 
 VA - Smooth Piano for Romantic Lovers (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -710,35 +739,6 @@ Deep Forest - Evo-Devo (2016) [MP3|320 кб/с] <New-Age, World-Music, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3780AB8F12DB65DB6A7E7371B2F12CFF03617A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021324   (732471) от 29.05.2016
-
-Deep Forest - Evo-Devo (2016) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simply Done (03:10)
-02. Stutter Dream (03:59)
-03. B-Vatar (03:27)
-04. Oyme’s Song (05:14)(   Читать дальше...   )Жанр: New-Age, Ambient, ElectronicПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7456F8C8F00799897E4C9B8211946803B158340F
 ```
 
 https://mybot314.ru/tekegram_catalog/

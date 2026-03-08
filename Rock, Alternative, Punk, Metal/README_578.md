@@ -1,32 +1,3 @@
-###  Публикация: 1565610   (492182) от 24.07.2022
-
-Красная плесень - Абсурдные куплеты (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492182.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Финская румынка (Huggy Wuggy full version)
-2. По реке плывёт болгарка (Чебуратор remix)
-3. Шоколадный Хагги Вагги (Polkka new version)
-4. Блоггеры, лесник-маньяк и санитар (Pampampam remix)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DA65AA77D795B4B740427ADBEF8DDE8D61AFEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243285   (492114) от 27.08.2018
 
 The Amity Affliction - Misery (2018) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Alternative Rock>
@@ -747,6 +718,35 @@ Guided by Voices - Mirrored Aztec (2020) [FLAC|Lossless|tracks + .cue] <Indie Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3F25F409AA91F384C8B0E86F5368C7FA7371ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404678   (491177) от 26.08.2020
+
+VA - Discover More Classic Rock (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rolling Stones - Gimme Shelter
+02. John Mellencamp - Pink Houses
+03. Guns N' Roses - Sweet Child O' Mine
+04. The Who - Baba O Riley(   Читать дальше...   )Жанр: RockПродолжительность: 02:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49AFB547629F9D76009E2A43702A162FC26C10B
 ```
 
 https://mybot314.ru/tekegram_catalog/

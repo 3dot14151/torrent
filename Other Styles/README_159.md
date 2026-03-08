@@ -1,3 +1,32 @@
+###  Публикация: 1085913   (154584) от 23.12.2016
+
+Ветер всем - Колыбель (2010) [FLAC|Lossless|tracks] <Folk-Rock, World Music, Ethno>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. У Егорья
+02. Полно
+03. Девушка
+04. Ходом водом(   Читать дальше...   )Жанр: Folk-Rock, World Music, EthnoПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C8077C76C9F68E474B621F402C08027EC1889A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270982   (154231) от 21.12.2018
 
 Laura Sullivan - Healing Music for Meditation and Well Being (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
@@ -722,35 +751,6 @@ Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0865C08EBF727F0518B7E6C110E9EF18EF06B65A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271440   (148693) от 24.12.2018
-
-VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adios Muchachos ( Louis Ferrari )
-02. Suave Milonga ( Louis Ferrari )
-03. Viajes ( Louis Camblor )
-04. La Vuelta Del Tango ( Louis Camblor )(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 01:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F83BC587A9C0A3508085358FA0B05FEFB8F2E0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

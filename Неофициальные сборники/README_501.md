@@ -1,3 +1,177 @@
+###  Публикация: 1421225   (322105) от 03.11.2020
+
+VA - не Громкие новинки недели 86 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agunda - Смысл Души (2:16)
+02. Ailssi - Малолетки (2:40)
+03. Alex Demian - Love Is Going (3:11)
+04. ASAVVI - Слёзы (2:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746CA22061FB2FD9D5B4CB4E6E27F23769B13AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421191   (322014) от 03.11.2020
+
+VA - Music News vol.45 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322014.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Al Fakher - Девочка VIP (02:15)
+ 002. Ailssi - Малолетки (02:41)
+ 003. Aisha Vibes - Undercover (02:28)
+ 004. Юля Годунова - Смотри Как Надо (02:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B7B3A5D17777318A1A1ED0ECCAEF6BDAF406A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421050   (322012) от 03.11.2020
+
+VA - Sonic Music Background (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322012.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aaron Tesser - I Want You To Stay
+002. Anthony Smith - Surrealism
+003. Eric Knight - Keep Control
+004. Martin Liege - Jungle Groove(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 11:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CF1307D7B7AEFA6DBEE12A5653474706F0E80D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958803   (321876) от 22.11.2015
+
+VA - Beatport Zone Of Trance Goa: November Pack (2015) [MP3|320 кб/с]<Psychedelic, Psytrance, GOA>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321876.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zen Mechanics - Off the Grid 08:06
+002. Earthling - Mandelbrot 07:50
+003. Wrecked Machines - Bandbox 07:21
+004. Tikal - Tequila 06:31(   Читать дальше...   )Жанр: Psychedelic, Psytrance, GOAПродолжительность: 12:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2A098A43CCDAEE579C418788D94DD206781532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958764   (321858) от 22.11.2015
+
+VA - Lounge & Vocal Jazz (2015) [MP3|320 кб/с]<Lounge, Chillout, Vocal Jazz>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lukas Termena & Angelika Borof - Endless (04:04)
+02. Hauba - In Your Bodies Life (04:03)
+03. Arshia Alipour - Noise of Angels - Chillout Mix (04:17)
+04. Aaron The Baron Feat. Markus Puhl, M - A Tu Lado - Salsa on the Beach Mix (04:48)(   Читать дальше...   )Жанр: Lounge, Chillout, Vocal JazzПродолжительность: 03:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AAAFCAAEAD2F40B3CDFD13B555AA57C12EA5C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958954   (321842) от 22.11.2015
+
+VA - Passion City Angel: 100 Mega Dance Hit (2015) [MP3|320 кб/с]<Dance, Club, Pop, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321842.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Klinx - Passion (Radio Mix)
+002. Ed Sheeran - Photograph
+003. AURORA - Half the World Away
+004. Jamie Lawson - Wasn't Expecting That(   Читать дальше...   )Жанр: Dance, Club, Pop, HouseПродолжительность: 08:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5711ADCD49CE7FB4A6A094D4589870AFD8F00404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181756   (321796) от 08.11.2017
 
 VA - Русская Дискотека ХХ Века от Ovvod7 - 017 (2017) [MP3|320 Kbps]<Pop>
@@ -579,180 +753,6 @@ VA - Best Of Trance Victory (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Emot
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C01CF8AC8C52243BC767DB4365454DD582856ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075316   (320991) от 22.11.2016
-
-VA - Музыкальные новинки mp3. Сборник 3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320991.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Анжелика Варум & Игорь Крутой - Опоздавшая Любовь 4:17
-002.Danny Avila Feat. Haliene - High 3:10
-003.Владимир Винс - Хватит 3:51
-004.Franky - После Тебя 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3933990FFC7069347D7D2305D619EC5E8A64FF19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075481   (320433) от 22.11.2016
-
-VA - The Best World Ballads - 31 (2016) [MP3|320 Kbps] <Pop, Rock, Blues, Rap, R'n'B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320433.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Bea Miller-Yes Girl 3:51
-002 Gavin DeGraw-Something Worth Saving 3:38
-003 Charli XCX-Set Me Free(Feel My Pain) 3:53
-004 The Weeknd Feat.Daft Punk-Starboy 3:50(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 15:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB7D20673C6F1DBD6B9C95B4689213CF76BEC7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331390   (320222) от 17.10.2019
-
-VA - Жизнь и немного любви из русского рока-2 (2019) [MP3|320 Kbps] <Русский рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320222.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ДВУРЕЧЬЕ - Ветер в облаках.
-002. Квартет им. Достоевского - Наши глаза.
-003. Fort Royal - Не впускай зверя в дверь.
-004. Мегаполис и Ёлка - Посвящение Деннису Силку.(   Читать дальше...   )Жанр: Русский рокПродолжительность: 09:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E8E8A329CB8DF961B0B231092D684E719C9A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421186   (319694) от 04.11.2020
-
-VA - Happy Holidays (2020) [MP3|320 Kbps] <Christmas, Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Thank God It's Christmas (2011 Remaster)
-02. John Lennon,Yoko Ono - Happy Xmas (War Is Over) (Ultimate Mix)
-03. Sam Smith - Have Yourself A Merry Little Christmas
-04. Katy Perry - Cozy Little Christmas(   Читать дальше...   )Жанр: Christmas, Pop, RockПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CEFBEB7580A36B60A3B703117CFED5FCB0FD6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959133   (319489) от 23.11.2015
-
-VA - White Chill-Out Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Bailey - Kafan - Radio Edit
-02. Bastian Clark - Take a Break - Original Mix
-03. Chuck Mertens - Moshy - Original Mix
-04. Alec Gonzalez - Lia - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA86EFC93FB61EAF6CB5FFE2296F51FEECB54C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959159   (319487) от 23.11.2015
-
-VA - Bermuda Island: Uplifting Vocal Trance (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319487.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jennifer Rene, Somna - Back to Life (Original Mix) 07:01
-002. Ana Criado - Arms Of Surrender - Original 06:13
-003. Special - Express To Callisto (Stella Project Remix) 09:24
-004. Stephane Badey & DJ T.h. With Eva Kade - Checkmate (Denis Sender Radio Edit) 03:23(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 09:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FBA142369DBA2A31835673039F501EF1F32B25
 ```
 
 https://mybot314.ru/tekegram_catalog/

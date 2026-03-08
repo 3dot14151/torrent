@@ -1,3 +1,32 @@
+###  Публикация: 1683385   (128391) от 11.12.2023
+
+Jabarov - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soulful
+ 02.  Eternal Love
+ 03.  High Pressure
+ 04.  Cosmic Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBAD6043CA2860E9E0D871F7A854887DED0C8F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683799   (128259) от 12.12.2023
 
 Faniz - Compilation (2023) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - Aquarelle Chilled (2024) [MP3|320 Kbps] <Chillout, Relax, Downtembo, Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE5D9F04F20D1F2EBD23A697052F11C09880F51F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693584   (121739) от 21.01.2024
-
-VA - Record Super Chart 20.01.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. АИГЕЛ - Пыяла (3:30)
-02. Zerb feat. Sofiya Nzau - Mwaki (Tiesto's VIP Mix) (2:40)
-03. Dezko - Ascend (3:20)
-04. James Hype feat. Kim Petras - Drums (Turno Remix) (2:59)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BAFDDCD854429085A6A8181797D6469270629E
 ```
 
 https://mybot314.ru/tekegram_catalog/

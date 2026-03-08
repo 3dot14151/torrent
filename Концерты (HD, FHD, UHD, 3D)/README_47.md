@@ -1,3 +1,31 @@
+###  Публикация: 1713334   (40898) от 09.10.2024
+
+Rammstein: Paris (2017) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40898.jpg" />
+</div>
+
+
+###  Подробнее
+
+With 22 songs from the band’s whole repertoire, the resulting film isn’t just the most spectacular concert film to date about the band that is currently the most successful German rock band – it’s a masterpiece of music cinema! A total tapestry of ever-changing images awaits the viewer.
+
+Åkerlund is notorious for his radical, pioneering videos, which are ablaze (   Читать дальше...   )Производство: Universal MusicЖанр: IndustrialАктеры: Flake Lorenz, Till Lindemann, Christoph SchneiderПродолжительность: 02:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF17F2FCAC9837DB4970763598A75FFFC0302EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754389   (40793) от 10.10.2024
 
 The Weeknd - São Paulo Livestream (2024) WEBRip [H.264/1080p]
@@ -695,33 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92453DED03CDB915F0C86F44E51C8015F2DAC98A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779004   (27929) от 11.02.2025
-
-МузЛофт-подкаст / МузLoft. Лада Дэнс (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лада Дэнс. Жить нужно в кайф, а не пытаться выжить.
-В гостях настоящая «Девочка-ночь»! Лада поделится историями из жизни от 90-х до настоящего времени, а их бесчисленное количество: как поменяла Америку на Сибирь, об аресте автомобильной коллекции, о конфликте с группой «Непара», гастролях с Киркоровым… Будет интересно, не переключайтесь!Производство: Россия | Y-GenerationУчастники: Лада ДэнсПродолжительность: 01:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2434231A707988B6983C64DE27629080481CD4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

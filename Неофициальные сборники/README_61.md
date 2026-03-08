@@ -1,3 +1,177 @@
+###  Публикация: 978694   (960941) от 25.01.2016
+
+VA - Зимний Муз-драйв 100-ка популярной музыки (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NikitA - Вдыхай
+02. Sasha Lopez - Moments ft Ale Blake & Broono (Extended Club Mix)
+03. Дима Билан - Неделимые
+04. Alex Kafer & Lera Feat. Ural Djs - Алешка(   Читать дальше...   )Жанр: PopПродолжительность: 06:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126BB984306825319E14C44DA370626654966C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747821   (960907) от 20.01.2014
+
+Александр Барыкин - Лучшие песни (4CD) (1981-2011) (2014) [MP3|320 кб/с]<Rock, Reggae, New Wave>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960907.jpg" />
+</div>
+
+
+###  Подробнее
+
+51. Осень пришла (2003)
+52. Ночь-голубая тайна (Ая!) (2003)
+53. Спасательный круг (2004)
+54. О любви (2005)(   Читать дальше...   )Жанр: Rock, Reggae, New WaveПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8390386D23705F24A0D00B8AF208FD70C695419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979079   (960816) от 25.01.2016
+
+VA - Blues Forever vol.08 - vol.12 (2015) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blues Forever vol.09
+01. Pepe Ahlqvist - Dont Leave Me Again
+02. John Lawton - Tomorrow
+03. Sherman Robertson - In The Here And Now(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A91F0671A7CD60154B0157B433523FBA3B6CA2CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360378   (960630) от 15.02.2020
+
+VA - Rap NNM 2020 [MP3|320 Kbps] <Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960630.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Mac Miller - Good News (5:42)
+2.H.E.R., Pop Smoke, A Boogie wit da Hoodie, Chris Brown - Slide (4:56)
+3.Madchild, Tom MacDonald, Nova Rockafeller - Sober (4:33)
+4.NF - Time (4:00)(   Читать дальше...   )Жанр: RapПродолжительность: 03:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5493A3DF4D8E3C48AD2E7EC124486111A17C2E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360276   (960294) от 15.02.2020
+
+VA - Громкие новинки Февраля (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960294.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.A$AP Ferg - Value (2:47)
+2.AJR - Bang! (2:50)
+3.Anivar feat. Adamyan - Руку Держи (3:57)
+4.Anne-Marie - Birthday (3:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67ACCC173C5C0DEEBAE96227D67BC581D3463BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979575   (959963) от 26.01.2016
+
+VA - Restart The Game (2016) [MP3|320 кб/с] <Tech, Deep, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959963.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hardwell & Armin van Buuren - Off the Hook (Radio Edit)
+002. Kollektiv Turmstrasse - Sorry I Am Late
+003. Sander Van Doorn & Sunnery James & Ryan Marciano - ABC (Extended Mix)
+004. Technasia, Green Velvet - Suga(   Читать дальше...   )Жанр: Tech, Deep, Progressive HouseПродолжительность: 09:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA26AFE56DCE1BA4E4E98E6DCF6F6C2AE9CAB930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979297   (959962) от 26.01.2016
 
 VA - Consciousness Determines Reality (2016) [MP3|320 кб/с] <Psy, Goa Trance>
@@ -579,180 +753,6 @@ VA - Space And Time (2016) [MP3|320 кб/с] <Disco, Electonic, Space rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E41394E2B7E762DC3403BFC5FF633E5194E2E3F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748548   (957163) от 23.01.2014
-
-Deep Forest - 25 Best Songs (2012) [MP3|~245 кб/с]<New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Forest 1992
-02. Madazulu 1997
-03. Marta's Song 1995
-04. Sweet Lullaby (2004 version) 1992(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8842E904E2FEC459004E1D7F267E291CB9FE2C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748541   (957048) от 23.01.2014
-
-Enigma - 25 Best Songs (2012) [MP3|~245 кб/с]<New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadeness (Part 1) 1990
-02. Mea Culpa (Orthodox Version) 1990
-03. Principles Of Lust 1990
-04. Rivers Of Belief 1990(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E00A2F80E31B4553774D3FCA823C4B8E006A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979501   (956385) от 29.01.2016
-
-2011stress - Language of the Universe (NNM) (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic styling>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Перекати - Космос
-02. Кружение в невесомости
-03. Переменное ускорение
-04. Странные , но безобидные(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic stylingПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6688CB35440EE35B54D40735C257D5F14A0D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980510   (956290) от 29.01.2016
-
-VA - After Work Lounge, Vol. 5 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Formentera Quartett - Lover (03:45)
-02. Magic Mike - Kb (02:33)
-03. Cafe Ibiza - Your Everything (04:14)
-04. The Cotton Groove - Gava (03:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE106F3B003F397AD113A38234871C77CFE92F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980480   (956288) от 29.01.2016
-
-2011stress - Ген Счастья (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic Styling>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Блюз пивных пуз
-02. Верхом на Кенгуру
-03. Оставляя шумный город
-04. Дождь в Пустыне(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic StylingПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B6C21CF2CE8627E8140996C3730C2D3F2A8392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980515   (956284) от 29.01.2016
-
-VA - Christmas Chillout Gift 2015 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rega Avoena - Earth Angels (Original Mix) [05:11]
-02. 1Touch - Creamsun (Original Mix) [03:17]
-03. LuOrchestra - OdaMare (Original Mix) [04:27]
-04. Doors in the Sand - Red Triangle (Original Mix) [02:58](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2326B4F93241A5387BD237EB3CEA00DA4F3F19C
 ```
 
 https://mybot314.ru/tekegram_catalog/

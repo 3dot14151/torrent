@@ -1,3 +1,29 @@
+###  Публикация: 1089701   (950386) от 04.01.2017
+
+Мария Круз, Майкл Мар | Успеть повернуть направо (2016) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прилетев из Лондона, Маргарита предвкушает встречу с любимым и возвращение к безумному московскому ритму жизни, где расписана каждая минута. Маргарита красива и успешна, она знает, чего хочет, и знает, как этого добиться. У нее есть все, о чем многие могут только мечтать, но счастлива ли она? Судьба заставляет пересмотреть свои взгляды и оказаться в невероятном, (   Читать дальше...   )Жанр: Современные любовные романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B94040C087955B459AEF1517B829A9877834D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 858086   (950385) от 10.01.2015
 
 X3D5 - Warehouse (2015) [FLAC|Lossless|WEB-DL]<Drone, Dark Ambient, Abstract, Ambient, Experimental>
@@ -670,35 +696,6 @@ VA - D.MAX Recordings - Best of 2015 (Mixed by Bryan Summerville, Dave Cold & Un
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D139A7D85034BD1D17E8E93B4FA29B7A86AA8E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981810   (950107) от 02.02.2016
-
-ESA - Themes of Carnal Empowerment Pt. 3: Penance (2015) [FLAC|Lossless|WEB-DL|tracks] <Rhythmic Noise, Tribal, Techno, Industrial>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Men Will Only Break Themselves (08:46)
-02. Be Still and I Shall Tell You Why (07:12)
-03. The Tempters Triumph (06:35)
-04. Master, No Servant (06:37)(   Читать дальше...   )Жанр: Rhythmic Noise, Tribal, Techno, IndustrialПродолжительность: 01:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47543E2105D9C820DE46E68507DD6DA50976FFF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

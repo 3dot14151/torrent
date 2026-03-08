@@ -1,3 +1,29 @@
+###  Публикация: 1819232   (1683) от 21.09.2025
+
+Any Video Downloader Pro 9.6.0 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Video Downloader Pro - это приложение для Windows, которое поможет вам загружать видео с YouTube, Facebook, Dailymotionи многих других сайтов обмена видео. Это ускоряет ваши загрузки до 5 раз. В программе есть возможность конвертировать видео и плеер для их просмотра.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A8CBBEFC40A48B24E8940FD99FFF8661163EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819225   (1676) от 21.09.2025
 
 MetaProducts Offline Explorer Enterprise 8.8.0.5004 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -652,32 +678,6 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5266F17BDCCAD698721E40642416F8CB0EE0F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819735   (1191) от 24.09.2025
-
-Google Chrome 140.0.7339.208 Stable + Enterprise [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:696BDFD6C91BC4524B90D045DCB5B363780ED728
 ```
 
 https://mybot314.ru/tekegram_catalog/

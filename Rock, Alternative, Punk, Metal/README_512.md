@@ -1,35 +1,3 @@
-###  Публикация: 530223   (560971) от 03.08.2012
-
-Jess And The Ancient Ones - Jess And The Ancient Ones (2012) [FLAC|Lossless]<Psychedelic/Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jess And The Ancient Ones - рок группа из Финляндии, образовавшаяся в 2010 году.01. Prayer For Death And Fire (6:00)
-02. Twilight Witchcraft (5:52)
-03. Sulfur Giants (Red King) (12:02)
-04. Ghost Riders (7:14)
-05. 13th Breath Of The Zodiac (5:53)
-06. Devil (In G Minor) (4:02)
-07. Come Crimson Death (11:43)Жанр: Psychedelic Rock/Hard RockПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923945   (560921) от 02.08.2015
 
 Rachael Yamagata - Happenstance (2004) [MP3|320 кб/с]<Soft Rock, Pop Rock, Indie Rock>
@@ -767,6 +735,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:611FF9645D8DA55D800E49F1B4E8C47558A76FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304860   (559642) от 28.05.2019
+
+Калинов Мост - Tribute 2 (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559642.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Утро Моне - Надоест нам суета
+2. Разные Люди - Надо было
+3. Александр Пантыкин - На Урал
+4. Ангел Небес - Гон в полдень(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2532E1664F27C9EAA128CA18AF0CE3FDE192E752
 ```
 
 https://mybot314.ru/tekegram_catalog/

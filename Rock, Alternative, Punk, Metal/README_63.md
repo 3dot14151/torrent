@@ -1,32 +1,3 @@
-###  Публикация: 1445929   (1033229) от 07.02.2021
-
-The Damn Devils - The Damn Devils (2021) [MP3|320 Kbps] <Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone (03:19)
- 02. Hush (04:12)
- 03. The Line (03:26)
- 04. Liarmageddon (04:24)(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D967C22902C78D921E9034EBF25F415138441096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619324   (1033222) от 15.03.2023
 
 Make Them Suffer - Neverbloom (2012) Remaster, 2023, Greyscale Records [FLAC|Lossless|WEB-DL|tracks] <Blackened Deathcore, Symphonic Metalcore>
@@ -745,6 +716,35 @@ Strongbow - Strongbow (1975)  [FLAC|Lossless|image + .cue] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:343D6EFA583344A68169C1680460FD6D8D03C7C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446621   (1032588) от 10.02.2021
+
+WinaSchnitzel - In The Light (2020) [MP3|320 Kbps] <Prog Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Void (00:58)
+ 02. Run (03:03)
+ 03. Out of Order (03:39)
+ 04. Waiting (Intro) (01:19)(   Читать дальше...   )Жанр: Prog Folk RockПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D39A81CAB2B27DD3A7E12F0315E09C4525ADDED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1333384   (305516) от 24.10.2019
+
+VA - Future City Records Compilation Vol. V (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sung - Thunder Love (3:55)
+02. Vincenzo Salvia - Together (4:18)
+03. Ron Cannon - Shock Waves (4:52)
+04. An88 - High Explosives (4:20)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 01:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B1DB9D5508F911C70138FD2A72EB875E29B483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333391   (305512) от 24.10.2019
+
+VA - Future City Records Compilation Vol. VII (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat Plastic - Teen Steam (5:07)
+02. Andy Fox - Mechanismo (6:25)
+03. Bonx - Disco..But Not As We Know It (6:55)
+04. Maxthor - Black Fire (5:00)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 02:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055190BB5590F5B14713B091937D883980081A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333395   (305510) от 24.10.2019
 
 VA - Future City Records Compilation Vol. VIII (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
@@ -687,64 +745,6 @@ VA - Not Just Chill Out Vol.6 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F38E6B133264D7042A60C61FCF334CC8D2450118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078408   (303014) от 30.11.2016
-
-VA - Chill The Stress Away Vol. 1 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da Gatsi - Fine of Nine - Instrumental Version (04:04)
-02. Heso - Time for a Break (05:17)
-03. Strike Donnovan - Sequel Cords (02:37)
-04. Stiller - Rain in May (05:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCDB3762FFD0A62238169EEDED9F92D93F0FF59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078177   (303012) от 30.11.2016
-
-VA - Noble Chillout Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Ocean of Secrets 6:01
-02. D & G - Cercando Di Te 5:16
-03. Sunset Session Group - Underworld 5:48
-04. Juicy Lotta - Close Your Eyes 6:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0A05C9C6B3B8CB35CEED367FE6D1AF148AC17F
 ```
 
 https://mybot314.ru/tekegram_catalog/

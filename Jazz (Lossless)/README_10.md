@@ -1,3 +1,32 @@
+###  Публикация: 1448394   (1030937) от 17.02.2021
+
+Workshy - Love Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Funk, Soul-Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside Out (3:58)
+02. Ooh Child (3:39)
+03. Don't Ask My Neighbours (4:16)
+04. Didn't I (Blow Your Mind This Time) (3:34)(   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Smooth JazzПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45394646BCB23131D7FF5CEED9C4E01C9D0F2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309931   (1030846) от 25.03.2023
 
 Louis Armstrong (Луи Армстронг) - Original Album Classics (5CD Box Set) (2010) [FLAC|Lossless]<Jazz>
@@ -717,35 +746,6 @@ Silje Nergaard - Japanese Blue (Acoustic Version) (2020) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAC7ABF28CDC10EE7B4A2896239BE63DEA2D666A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623881   (1029085) от 03.04.2023
-
-Keiko Matsui - Euphoria (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steps On The Globe
-02. The Choice
-03. Prairie Morning
-04. Neo(   Читать дальше...   )Жанр: Contemporary Jazz, Smooth JazzПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D34D04BB96D1952CF4901AD600171ED6FB92EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

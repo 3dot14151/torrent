@@ -1,3 +1,61 @@
+###  Публикация: 1743776   (46389) от 18.08.2024
+
+Toto Cutugno - Greatest Hits (2006) [WavPack|Lossless|image + .cue] <Pop, Stage>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Italiano
+ 02. Soli
+ 03. Voglio L'Anima
+ 04. Donna Donna Mia(   Читать дальше...   )Жанр: Pop, StageПродолжительность: 01:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80255C41C934256AEF9B6F7A52EAE1ABA522A803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744092   (46300) от 19.08.2024
+
+Лада Дэнс - Ночной альбом (1993) Reissue, 2024, Maschina Records [FLAC|Lossless|image + .cue] <Pop, Electronic>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пойду С Тобой
+02. Ночные Танцы
+03. Мы Друзьями Не Станем (1)
+04. Девочка-Ночь(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5355A62B1A217FB4476D11FC8E6BC53F722D864B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744239   (46167) от 20.08.2024
 
 Duran Duran - Is There Something I Should Know? (1983) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock>
@@ -687,64 +745,6 @@ Various Artists - 80s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA928CF13D61303458B5B6B729E37FFB207DBCE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749099   (43654) от 13.09.2024
-
-VA - Bravo Hits (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shirin David - Bauch Beine Po[2:15]
-02. AYLIVA & Apache 207 - Wunder[2:57]
-03. Adam Port, Stryv, Keinemusik, Orso & Malachiii - Move[2:58]
-04. Bl3ss & CamrinWatsin feat. bbyclose - Kisses (feat. bbyclose)[2:19](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143A95BEA42EEE324E543EF57E46DA585CAFADC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596295   (43643) от 14.09.2024
-
-Николай Гнатюк - Золотой альбом (Лучшие песни) (2011) [FLAC|Lossless]<Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Галина
-02. Птица счастья
-03. Барабан
-04. Малиновый звон(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62966A735AF4004B6072DDDCF5710AD041AE3473
 ```
 
 https://mybot314.ru/tekegram_catalog/

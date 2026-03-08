@@ -1,3 +1,119 @@
+###  Публикация: 1428981   (178240) от 04.12.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 04.12.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pascal Letoublon & Leony - Friendships (3:02)
+02. Jason Derulo - Take You Dancing (3:10)
+03. Michael Patrick Kelly - Beautiful Madness (2:55)
+04. Foushee - Deep End (2:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDD16F322056D48D282A919C8812D35788E76C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429242   (177557) от 05.12.2020
+
+VA - Music News vol.53 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177557.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elli - Любить (03:18)
+ 002. 5WEST - Last Time (Kokiri Remix) (03:04)
+ 003. 24kgoldn feat. DaBaby - Coco (02:22)
+ 004. A.T & Merik - Девочка Востока (02:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115058100D4A9F781C09B9B6EF299199E082A856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667162   (177382) от 07.10.2023
+
+VA - Music News vol.304 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177382.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юля Паршута - Играя в Минор (02:41)
+ 002. Alex Matthew feat. Silvia - Ultima Vara (02:56)
+ 003. Alex Say feat. Subo - Зараза (Elvira T Remix) (02:19)
+ 004. Ami - Nostalgia (03:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F145D15B67F706FD2BD2E696C6092F5BBD5416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429274   (176703) от 06.12.2020
+
+VA - Music News vol.54 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_176703.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Inna - Thicky (03:05)
+ 002. Amanda Tenfjord - Then I Fell In Love (03:32)
+ 003. ANIKV - Лень (02:19)
+ 004. ANIKV - Молодость (03:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1ACF8A129DD206F80CF276F801F4324C201F29F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594538   (176631) от 03.12.2022
 
 VA - Music News vol.228 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ VA - The Official UK Top 100 Singles Chart 20.10.2023 [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC13A19CC789F4172CFC84590C6C10A0D1484A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671324   (171343) от 24.10.2023
-
-VA - Music News vol.309 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171343.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anitta - Mil Veces (02:34)
- 002. Adriana Minune feat. Karmen & Adrian Minune Jr. - Mama, Spune-mi (03:26)
- 003. Aexcit feat. Kalkovich - Ladadadida (02:10)
- 004. ALLERGIA - Доволен (02:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43C896963F82803BE73DC64E320F0EEC3E3BA4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671893   (170969) от 26.10.2023
-
-VA - Sensual Sexy Songs (2023) [MP3|320 Kbps] <Pop, R&b, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. zandros - obsessed (3:00)
-02. Ashlee - Alone With You (3:16)
-03. Lolo Zouaï - Desert Rose (4:24)
-04. Omido - Toxic (2:39)(   Читать дальше...   )Жанр: Pop, R&b, OtherПродолжительность: 03:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3249B3D453183D107A7B8D9B4FA098B8514EB04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514821   (170890) от 05.12.2021
-
-VA - Shazam Хит-парад World Top 200 Ноябрь (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170890.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ACRAZE, Cherish - Do It To It (2:37)
-002. Elton John, Dua Lipa, PNAU - Cold Heart (3:22)
-003. Akon - Bananza (Belly Dancer) (3:58)
-004. GAYLE - abcdefu (2:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D197E005DC158CE50E4161821F0BC54627C7FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515394   (170382) от 06.12.2021
-
-VA - You & Me (2021) [MP3|320 Kbps] <Pop,Folk, Indie, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Local Natives - You & I (4:21)
-002. The Kooks - Westside (3:30)
-003. Kings of Leon - On Call (3:21)
-004. Craft Spells - Komorebi (4:23)(   Читать дальше...   )Жанр: Pop,Folk, Indie, OtherПродолжительность: 06:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84A547B8FA2AB7B7D9B7524FF9EADB7C2F21FFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

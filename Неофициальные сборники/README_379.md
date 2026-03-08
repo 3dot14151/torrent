@@ -1,3 +1,175 @@
+###  Публикация: 1240236   (529536) от 10.08.2018
+
+VA - Мега Хиты Discoteka 80 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Video Kids - Woodpeckers From Space (Extended Mix)
+02. Baltimora - Tarzan boy (12 version)
+03. Alphaville - Big in Japan (Extended Mix)
+04. Blue System - Magic Symphony (Long Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2CDCE96E835D4E188D4949548249706384B11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156099   (529474) от 05.08.2017
+
+VA - My Favourite Hits of 1969 (9CD) от DON Music (2017) [MP3|320 Kbps] <Blues Rock, Pop, Easy Listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beatles - Here Comes The Sun (03:05)
+02. Paul Mauriat - Parce Que Tu Me Quittes Lontano Dagli Occhi (02:31)
+03. Deep Purple - Blind (05:23)
+04. Gershon Kingsley - Pop Corn (02:20)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues Rock, Pop Rock, Pop, Chanson, Easy ListeningПродолжительность: 10:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C6F3B39B5DCEB64C450C3170507222237F1A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155957   (529465) от 05.08.2017
+
+Fair Warning - Beautiful Rock Ballads (Compiled by Виктор31Rus) (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All On Your Own  5:10
+02.  Angel Of Dawn  3:56
+03.  Break Free  5:03
+04.  Falling  4:50(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9DBE2EF6EAE35BF86E8EA1FA3534B0B11A3B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052108   (529293) от 13.09.2016
+
+VA - Dancing Machines: Techno House Set (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529293.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Entoniu & Agape - Matisse & Milu (Original Mix)
+002. Monocorde - Ihnua (Original Mix)
+003. Right Mood - Don't Worry
+004. Dancing Machines - Queen Of The Castle (Original Mix)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 11:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5CDDE7D7BBB8839FE3C9571762D200138ACD15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052143   (529277) от 13.09.2016
+
+VA - LUXEmusic - Dance Super Chart Vol.85 (2016) [MP3|192~320 Kbps] <House, Electro House, Mash Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crew 7 & Geeno Smith  -  Ghostbusters (Moombahton Mix)  4:13
+02. Quintino & Yves V feat. Gia Koka  -  Unbroken (DJ Richard Noise Remix)  5:36
+03. Artik & Asti  -  Я твоя (DJ Denis Rublev & DJ Prezzplay Remix)  4:46
+04. Юлианна Караулова feat. ST  -  Море (Astero Remix)  3:15(   Читать дальше...   )Жанр: House, Electro House, Mash Up, Club, DanceПродолжительность: 03:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF810C8F00C6950F27647FCED4C43AC13EB17B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051969   (529267) от 13.09.2016
+
+VA - Promo September Technology (2016) [MP3|256-320 Kbps] <UK Garage, Speed Garage, UK Funky, R&B, Post-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Presents Booom & Boris Dlugosch - Hold Your Head Up High (Julian Jonah's Bad Boy Mix) 07:01
+02. Disclosure - You & Me (Feat. Eliza Doolittle)Жанр: UK Garage, Speed Garage, UK Funky, R&B, Post-DiscoПродолжительность: 04:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE1D42247CD200959D19FE3E194712C78C099A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052344   (529069) от 13.09.2016
 
 VA - Только хиты Хит FM 6 (2016) [MP3|256 Kbps] <Pop>
@@ -571,180 +743,6 @@ VA - Свежаки Radio Record Сентябрь (2016) [MP3|320 Kbps] <House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B9B5B4BD2A4638A62932773B9863A0117B8E855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052552   (527907) от 14.09.2016
-
-VA - My Favourite Hits of 1966 (8CD) от DON Music (2016) [MP3|320 Kbps] <Easy Listening, Pop, Funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527907.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Beatles - Paperback Writer (02:16)
-002. The Beach Boys - Good Vibrations (03:35)
-003. Four Tops - Standing In The Shadows Of Love (02:34)
-004. Bobby Hebb - Sunny (02:43)(   Читать дальше...   )Жанр: Easy Listening, Pop, Funk, Soul, Pop Rock, Rock, Blues RockПродолжительность: 09:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8994BB96E4D0696695B23884381D1ED0D5A180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 228706   (527887) от 07.07.2019
-
-VA - Хит Парад 90-х (2008) [MP3|320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Комиссар - Ты скажешь да
-02. Женя Белоусов - Девочка моя синеглазая
-03. Кар-Мэн - В Багдаде все спокойно
-04. Комбинация - Russian Girls(   Читать дальше...   )Жанр: PopПродолжительность: 06:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31024BFCE3D4BDC5061FEDC4E182370450FF55C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052444   (527854) от 14.09.2016
-
-VA - Velvet Jazz: Soul Emotions Mix (2016) [MP3|320 Kbps] <Jazz, Free Jazz, Lyric Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527854.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sergio Mendes & Brasil '66 - Mais Que Nada
-002. Stan Getz, Joao Gilberto - Desafinado
-003. Tingvall Trio - Den Gamla Eken
-004. Stan Getz, Joao Gilberto - The Girl From Ipanema(   Читать дальше...   )Жанр: Jazz, Free Jazz, Lyric SoulПродолжительность: 08:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85220EC05C9BA1743C3A63DC569CFB926E548DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156539   (527725) от 07.08.2017
-
-VA - Aural Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527725.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kusuma Orchestra - Down The Path
-002. Alphawezen - Gun Song (Original Mix)
-003. Chillelektro - Pag
-004. LastEDEN - Cold Fingers (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 09:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F38560BE44819F98C810A35EDC20132859A5104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156450   (527637) от 07.08.2017
-
-VA - Золотые семидесятые vol. 10-12 (2017) [MP3|192-320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5000 Volts - I'm On Fire
-02. Al Martino - Volare (Nel Blu Dipinto Di Blu..Long Version)
-03. Barbara Mandrell - Sleeping Single in a Double Bed
-04. Bob And Marcia - To Be Young, Gifted And Black(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A728757D1F164CB1CC4AF911CB5160276EE02F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156442   (527592) от 07.08.2017
-
-VA - Автодискотека Клубная (2017) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleur East x Pep & Rash - Sax Rabbit (DJ Agamirov & DJ Stylezz MashUp)
-02. Basement Jaxx - Never Say Never (Galin Remix)
-03. Justin Bieber - Sorry (Dj Natasha Baccardi & Dmitriy Rs Extended)
-04. T-killah - Невидимая (Dj Squeeze & Dj Vlad Hardy Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:15:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01854F68EED85845C8F949F3F8C3D6FA9287E185
 ```
 
 https://mybot314.ru/tekegram_catalog/

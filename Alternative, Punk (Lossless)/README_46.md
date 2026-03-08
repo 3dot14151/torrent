@@ -1,3 +1,32 @@
+###  Публикация: 1260475   (312050) от 07.11.2018
+
+Daniel Lanois - For the Beauty of Wynona (1993) American Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Messenger (5:27)
+ 02. Brother L.A. (4:18)
+ 03. Still Learning How to Crawl (5:18)
+ 04. Beatrice (4:22)(   Читать дальше...   )Жанр: Alternative Rock, Folk RockПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B93EDFF0994112F375E88A4C3F6425A749FFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260526   (311618) от 07.11.2018
 
 Muse - Simulation Theory (2018) Deluxe [FLAC|Lossless|tracks + .cue] <Alternative Rock, Electronic Rock>
@@ -713,35 +742,6 @@ Chelsea Wolfe - Birth of Violence (2019) [FLAC|Lossless|tracks + .cue] <Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F8A3AD43676D92E7E8FDFB18ACC3F9DA9E67FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334573   (293360) от 30.10.2019
-
-INXS - X (1990) 2011, Petrol Electric, RM. RE. [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suicide Blonde (3:53)
- 02. Disappear (4:11)
- 03. The Stairs (4:57)
- 04. Faith In Each Other (4:09)(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20768BE7955FDDA2020604C32E7B088D1CCCAA11
 ```
 
 https://mybot314.ru/tekegram_catalog/

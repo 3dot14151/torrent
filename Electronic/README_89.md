@@ -1,3 +1,61 @@
+###  Публикация: 1372751   (883845) от 04.04.2020
+
+Simon Le Grec - Singles (Unique Lounge Music) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge Dub, Ambient, Breaks, Drum & Bass>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hating Myself (Break Mix Edit) (4:02)
+ 02. Hating Myself (Break Mix) (8:15)
+ 03. Hating Myself (Chillout Mix) (8:58)
+ 04. Hating Myself (Lounge Dub Mix) (3:38)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge Dub, Ambient, Breaks, Drum & BassПродолжительность: 02:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA94871C59718B537444A3CA39655734E889D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372928   (883844) от 04.04.2020
+
+SUN (GR) - Sonic Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. SUN (GR); Sudha - Healing Drop (Original Mix) (7:00)
+2. Infinity Edge (Original Mix) (6:39)
+3. Forever Alone (Original Mix) (6:45)
+4. Solarscape (Original Mix) (5:27)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90052B344555DB3B7ED0C8BB794AEF0551A07172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995582   (883806) от 11.03.2016
 
 M.A.S.S. - The Music of Jean-Michel Jarre (2000) [FLAC|Lossless|tracks + .cue] <Electro, Ambient>
@@ -685,64 +743,6 @@ VA - Warm & Loving Chillout Selections (2017) [MP3|320 Kbps] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18F58E8122A9197B4334132DD64C41F3DECCA072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104181   (881902) от 14.02.2017
-
-VA - Chill Out Collection, To Lift Your Soul, Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alex Greenhouse - Winter  4:00
-02.  Takt 3 - Too Sheep For You  6:25
-03.  Alexander Saykov - Dmitrovka  6:24
-04.  Oskar Broken - Looking At From The Moon  4:27(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B96C58F88A168BADE9D6A89DDD6703FDFF6B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104112   (881895) от 14.02.2017
-
-VA - Best Love Winter Music (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiotto - Love Story (Original Mix) [00:03:33]
-02. Alex Leader - Hot Stuff (Radio Mix) [00:04:39]
-03. Alexander Gorya - Eclipse [00:04:09]
-04. Antoxa Project - Super World [00:03:17](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9E66D1B09CF9F854FAC600D5AABB95D34947F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1855056   (1057906) от 22.02.2026
+
+Decoside - Reload (2012) 2CD [FLAC|Lossless|tracks + .cue] <Techno, Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disorder 8:10
+02. Reload 1 7:05
+03. Reload 2 8:28
+04. Reload 3 6:51(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 02:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3977F8E3BBFD329E1625350DB1A19B0EB51275B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854939   (1057893) от 20.02.2026
+
+Spacehawk - Destination Moon (2026) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Explorer (4:32)
+02. Man Machine (5:39)
+03. Star Chaser (5:16)
+04. Destination Moon (5:37)(   Читать дальше...   )Жанр: Spacesynth, SpacedanceПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214D56CA5C07B2E11291F0ACBED10ED718C003F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854925   (1057892) от 20.02.2026
 
 VA - Festival Anthems 2026 (2026) [MP3|320 Kbps] <Trance>
@@ -687,63 +745,6 @@ VA - Dance EDM Workout 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:734BBCD0B68D65959FBB6523D8B85B63BE1E096E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852952   (1056509) от 12.02.2026
-
-cv313 - Altering Illusions (Chapter One) (2014) 2CD [FLAC|Lossless|tracks + .cue] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Longing For Darkness	12:32
-02. Hypnosphere	9:53
-03. Standing StillЖанр: Dub Techno, AmbientПродолжительность: 01:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8491F988FA0233114953F517BE0877B3FBFEA57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853355   (1056508) от 12.02.2026
-
-VA - Uplifting Trance Collection, vol.1 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polzn Bladz - Awkward Silence (Extended Mix) [6:52]
-02. Elatex - Lost in Keys (Extended Mix) [5:55]
-03. Polzn Bladz - Intended Outcome (Extended Mix) [7:40]
-04. DJ Willbo - Cosmic Star (Original Mix) [7:47](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5FCD7ECEE4CA927CF22541F131ED55CA5B3F88
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1465973   (1018833) от 28.04.2021
+
+Kenny Garrett - Happy People (2002) Warner Bros. Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for DiFang [5:26]
+02. Happy People [5:12]
+03. Tango in 6 [5:53]
+04. Ain't Nothing but the Blues [5:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1B574C1752D237153182EEE7A0C62447B3AC22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465878   (1018827) от 28.04.2021
 
 André (Andre) Manoukian - Les pianos de Gainsbourg (2021) [FLAC|Lossless|WEB-DL|tracks] <Chanson, Cool Jazz>
@@ -716,35 +745,6 @@ CD1-  West Coast Jazz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13FC86A6DD7621A8E340599668B3CB4AC43F8640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469393   (1016466) от 12.05.2021
-
-Goat’s Notes - Machine (2020) [FLAC|Lossless|image + .cue] <Free Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Mechanics / Asteroid
-02. Connections
-03. Home Outside / Deep Drilling
-04. Citylights / Dance & Steam(   Читать дальше...   )Жанр: Free Jazz, Free ImprovisationПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4044EBC379D227FF5A7328D98AADD1E23406F3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

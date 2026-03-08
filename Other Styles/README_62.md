@@ -1,3 +1,32 @@
+###  Публикация: 1219324   (715500) от 13.04.2018
+
+Danheim - Fridr (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fridr 4:24
+02. Ginnung 4:55
+03. Fegurð 4:45
+04. Yggdrasil 4:32(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F682CB24D57E632E687F6FE75AC4C42B8E4C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024413   (715453) от 09.06.2016
 
 Toby Fox - Undertale Soundtrack (2015) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Chiptune, Midi, Orchestral>
@@ -715,35 +744,6 @@ Toby Keith - Greatest Hits Volume One (1998) [FLAC|Lossless|tracks + .cue] <Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AD87F7878A3A3264DDD51D65BDCBD45E2D09E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286738   (711206) от 03.03.2019
-
-Toby Keith - Greatest Hits 2 (2004) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711206.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	How Do You Like Me Now?! 	3:27
-2 	Country Comes To Town 	3:38
-3 	You Shouldn't Kiss Me Like This 	3:42
-4 	I'm Just Talkin' About Tonight 	2:45(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963D425B830B635F8A6840EE38BF9A0B2FF328EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

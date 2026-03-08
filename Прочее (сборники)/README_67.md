@@ -1,3 +1,116 @@
+###  Публикация: 1028439   (690092) от 22.06.2016
+
+VA - Легенды ВИА 70-80-х мы из СССР (2016) [MP3|320 кб/с] <Pop, Retro, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.ВИА Земляне - А жизнь идёт
+002.ВИА Земляне - Взлётная полоса
+003.ВИА Земляне - Жизнь идёт
+004.ВИА Земляне - Каскадёры(   Читать дальше...   )Жанр: Pop, Retro, RockПродолжительность: 13:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE48712BDD2D6E6B054C4B0B324511D5B3B99F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288932   (689697) от 14.03.2019
+
+Elton John - Sorry Seems To Be The Hardest Word (2019) Radio Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689697.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Elton John - Sorry Seems To Be The Hardest Word (Igor Frank Radio Remix)Жанр: Club, DanceПродолжительность: 00:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB34C9E17E1507CE85C5D3B2E0F770184B20ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221954   (689433) от 27.04.2018
+
+VA - The Light And Warm (2018) [MP3|320 Kbps] <New Age, Ambient, Relaxation,>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слушание мантр или просто музыки релакс направления способно ввести сознание в состояние медитации. Подобная практика обладает очищающим воздействием, которое обязательно со временем приносит результаты – снятие стресса и напряжений, улучшение работоспособности и памяти, увеличение жизненных сил, сияние души любовью и радостью01. Midori - The Light and Warmth
+02. Patrick Bernard - Sita Ram Hanuman Mantra
+03. Wychazel - Akasha
+04. Akoviani - Transgressus III(   Читать дальше...   )Жанр: New Age, Ambient, Relaxation,Продолжительность: 04:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5AF612D8180E5B347A60480B864A3FDFB72C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134302   (689371) от 15.05.2017
+
+VA - Hot Future Dancefloor Tracks (2017) [MP3|320 Kbps] <R&B, New Jack Swing, Latin, Future House, Reggae, Trap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack & David Guetta Ft Ester Dean – Another Life (Intro Outro) 06:02
+02. Clean Bandit Ft. Zara Larsson – Symphony (Cloudnine Short Edit) (Clean) 02:14
+03. Future – Mask Off (Mr. Collipark Remix) (Dj Rukus Quickhitter) (Clean) 02:57
+04. Yaz – Dont Go (Dj Jay Mmp Intro) (Clean) 03:13(   Читать дальше...   )Жанр: R&B, New Jack Swing, Latin, Future House, Reggae, TrapПродолжительность: 05:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A890D823FFCD1C1D37409669459F7E245CA9581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 505879   (689212) от 05.06.2012
 
 VA - Русская Дискотека 80-90-Х Remix DJ (2012) [MP3|256 kbps]<Dance|Club|Disco>
@@ -658,119 +771,6 @@ VA - Лучший Клубный Хит Vol.2 (2018) [MP3|320 Kbps] <Club, House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D03903BB95093018FA7A9234DBD4C806AA4FC0ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222531   (684439) от 29.04.2018
-
-VA - Лучший Клубный Хит (2018) [MP3|320 Kbps] <Club, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & Glowinthedark - Clap Your Hands (Original Mix)
-02. George Kwali & Kideko - All On Me
-03. Lucas & Steve - Make It Right (Extended Mix)
-04. Exodus & Kapkano - Let's Get Weird (Original Mix)(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 02:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA2ABD48BD3682365AF952FB8146433B74C1F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222570   (684436) от 29.04.2018
-
-Кино (Виктор Цой) - Печаль (2018) Remix [MP3|256 Kbps] <Инструментальный рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684436.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Печаль (Remix)Жанр: Инструментальный рок, ЭлектроПродолжительность: 00:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8CC548211EC19A91119C004352AAE8B8289DCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404033   (684395) от 23.08.2020
-
-VA - The Official UK Top 40 Singles Chart 21.08.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry - Head & Heart (feat. MNEK)
-02. Cardi B - WAP (feat. Megan Thee Stallion)
-03. Nathan Dawe - Lighter (feat. KSI)
-04. Drake - Laugh Now Cry Later (New Entry)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25CD02834E2A406A1D10C3B7C4775BC3FE67FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029200   (684288) от 25.06.2016
-
-VA - Pop Rock 90s: Vol 02 (2016) [MP3|320 кб/с] <Pop, Rock, Retro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684288.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Temple of the Dog - Wooden Jesus
-002. Foo Fighters - Everlong
-003. 2 Unlimited - Twilight Zone
-004. The Cure - Lullaby(   Читать дальше...   )Жанр: Pop, Rock, RetroПродолжительность: 08:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4205961B17242DCA4F83FFAC1DEBCEFF8A2C1541
 ```
 
 https://mybot314.ru/tekegram_catalog/

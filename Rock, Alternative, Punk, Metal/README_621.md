@@ -1,32 +1,3 @@
-###  Публикация: 1409847   (440445) от 19.09.2020
-
-The Last Reign - Evolution (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis [00:03:21]
-02. Evolution of a Decaying Race [00:04:45]
-03. Annihilation of the Ancients [00:05:34]
-04. Ironclad Torment [00:05:00](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6CD28B1FB5462E772E47445DB8E7134F6CF217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944693   (440378) от 07.10.2015
 
 Максим Леонидов и Hippoband - Hippopotazm (2003) [FLAC|image+.cue]<Rock>
@@ -162,35 +133,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49E0FE51869A8AF5A071A4D2F44EE7DE3D43CFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623940   (440210) от 18.08.2022
-
-Lacrimosa - Revolution (Limited Edition Digipack) (2012) [APE|lossless] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irgendein Arsch ist immer unterwegs (05:00)
-02. If The World Stood Still A Day (03:34)
-03. Verloren (07:29)
-04. This Is The Night (05:25)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76799FEBBB09DFAA12990024B23C0CF6D3F62CC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -744,6 +686,67 @@ Tori Amos - Native Invader (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC333F9FD07C7DBAFCCDA405DF9756F35B33FA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554429   (438900) от 30.09.2012
+
+Ereb Altor - Gastrike (2012) [WavPack|Lossless]<Viking Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_438900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gathering Of Witches (5:39)
+02. Dance Of Darkness (6:19)
+03. Dispellation (6:41)
+04. The Boatman's Call (5:39)
+05. The Mistress Of Wisdom (8:26)
+06. I Djupet Så Svart (6:16)
+07. Seven (6:11)Жанр: Viking Black MetalПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062624   (438869) от 14.10.2016
+
+Валентин Стрыкало - Развлечение (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ускользает
+02. О брат
+03. 92
+04. Решится само собой(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA206099F98A7D2C6317CC973E95BC5ACE7D494F
 ```
 
 https://mybot314.ru/tekegram_catalog/

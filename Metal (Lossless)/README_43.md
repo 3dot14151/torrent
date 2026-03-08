@@ -1,3 +1,90 @@
+###  Публикация: 1356030   (980552) от 29.01.2020
+
+Marko Hietala - Pyre of the Black Heart (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stones (05:15)
+02. The Voice of My Father (04:37)
+03. Star, Sand and Shadow (05:01)
+04. Dead God's Son (04:42)(   Читать дальше...   )Жанр: Symphonic Rock, Heavy MetalПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E5CAC057E219C089FCAF712BE7C8A07C3C4DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973396   (980327) от 08.01.2016
+
+Status Minor - Ouroboros (2012) Japan [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Wind
+02.Hollow
+03.Glass Wall
+04.Like a Dream(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8444F6D01A0F082B34387C147C9EBDE59C2CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973398   (980323) от 08.01.2016
+
+Love Might Kill - 2 Big 2 Fail (2012) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Save My Soul
+02.XTC
+03.Burn the Night
+04.The One(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E2B0DAF6D31A51D209EBAC1DB7A64AF1B3D70B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973315   (980247) от 08.01.2016
 
 Burning Point - 13 альбомов (2001 - 2015) Discography [APE, FLAC, WavPack|Lossless|image + .cue] <Power Metal>
@@ -689,93 +776,6 @@ Staind - 8 Альбомов (1996-2012) Дискография [FLAC|Lossless] <
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976337   (969839) от 17.01.2016
-
-Odin's Court - Turtles All the Way Down (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Turtles All the Way Down, Pt. 1	03:14
-02.	And the Answer Is.	04:22
-03.	But What's the Question?	04:54
-04.	Insomnia	03:40(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A2A946387BC0AAE4BF82E485F3580417A2D207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358243   (969766) от 07.02.2020
-
-Godsticks - Inescapable (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denigrate (03:54)
-02. Victim (06:14)
-03. Relief (05:04)
-04. Surrender (04:45)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E360B8449DE1D62F22BA4EBB156E771BC1BDAEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358185   (969750) от 07.02.2020
-
-Rage - Wings of Rage (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True (5:02)
-02. Let Them Rest In Peace (4:31)
-03. Chasing The Twilight Zone (4:30)
-04. Tomorrow (5:02)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Speed MetalПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C486C32BE3141F7AD3644DC569577DA83CD320
 ```
 
 https://mybot314.ru/tekegram_catalog/

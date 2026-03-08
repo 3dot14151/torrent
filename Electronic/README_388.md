@@ -1,3 +1,63 @@
+###  Публикация: 503435   (259555) от 30.05.2012
+
+Groove Coverage feat. Rameez - Think About The Way (WEB) (2012) [MP3|320 кб/с]<Electronic, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Think About The Way (Single Edit) 03:13
+02. Think About The Way (Club Mix) 04:40
+03. Think About The Way (Extended Version) 04:38
+04. Think About The Way (Rob & Chris Remix) 04:55
+05. Think About The Way (DJane HouseKat Remix) 04:01Жанр: Electronic, DanceПродолжительность: 00:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F73FE04C67C17BCAEC451C670151883E039566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503408   (259522) от 30.05.2012
+
+Alice DeeJay - Better Off Alone (Laidback Luke Remixes) (WEB) (2011) [MP3|320 кб/с]<Electronic, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Off Alone (Laidback Luke Hit Radio Remix) 02:46
+02. Better Off Alone (Laidback Luke Dance Radio Remix) 03:15
+03. Better Off Alone (Laidback Luke Full Length Remix) 05:02
+04. Better Off Alone (Remastered 1999 Original Hit Radio Mix) 03:34
+05. Better Off Alone (Remastered 1999 Original Mix) 06:49Жанр: Electronic, DanceПродолжительность: 00:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEDE66AB739E25BFAC22FEEC4F61EC9F97BBE8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501310   (258752) от 27.05.2012
 
 VA - Dada Life's Musical Freedom (2012) [MP3|~245 кб/с ]<House, Vocal House>
@@ -702,63 +762,6 @@ VA - Century Groove Innovation Vol. 1 (Mixed by Hiroshi Watanabe) - 2012 [FLAC|L
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499268   (256223) от 20.05.2012
-
-Front Line Assembly - 47 albums (1987-2012) [FLAC|Lossless] <Industrial, Electro-Industrial, EBM, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shifting Through The Lens (06:06)
-02. Angriff (06:41)
-03. Endless Void (09:31)1987-2012Жанр: Industrial, Electro-Industrial, EBM, ExperimentalПродолжительность: 00:22:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836777   (255941) от 13.11.2025
-
-EVO (Eternal Voice of Orbits) - Мультивселенная (2017) [FLAC|Lossless|tracks] <Trancecore, Nintendocore, Electronic Post-Hardcore>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orbital Speed (Intro)
-02. Настя
-03. Льдистый путь
-04. Атом ft. Sasha Gray(   Читать дальше...   )Жанр: Trancecore, Nintendocore, Electronic Post-HardcoreПродолжительность: 01:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97DDF3D048B3D882690656B9D5E05F6B7389BF2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

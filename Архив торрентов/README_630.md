@@ -1,3 +1,29 @@
+###  Публикация: 1097457   (914283) от 27.01.2017
+
+Soft4Boost Secure Eraser 4.3.5.503 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобная утилита, которая позволяет быстро и эффективно выполнить безвозвратное удаление данных с жесткого диска.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7C2388E697B2B1E13DABA2B54F6AAA4E6E1F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097485   (914282) от 27.01.2017
 
 Q-Dir 6.49.1 + Portable [Multi/Ru]
@@ -677,40 +703,6 @@ Tidy Up - приложение предназначено для поиска д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA2C79030BBA8FF7C1DE037E81F1F1F1BDAE0D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289503   (914190) от 03.02.2011
-
-Static Insane - Break the Seal (2009) [MP3|320 kbps] <Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Static Insane - Break the Seal (2009)
-Год: 2009
-Жанр: Full On
-Лейбл: Psy Brasil
-Продолжительность: 01:14:47
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Break The Seal [06:45](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8FC14E367624CB8F47D54A3C7EB780BC9A3629
 ```
 
 https://mybot314.ru/tekegram_catalog/

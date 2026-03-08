@@ -1,38 +1,3 @@
-###  Публикация: 520720   (631310) от 09.07.2012
-
-Motley Crue - Loud As F@*k (2003) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 01:15:34
- 01. Kickstart My Heart [0:04:42.06]
- 02. Looks That Kill [0:04:07.11]
- 03. Louder Than Hell [0:02:31.66]
- 04. Take Me To The Top [0:03:43.69]
- 05. Girls, Girls, Girls [0:04:29.51]
- 06. Afraid [0:04:06.70]
- 07. Hooligan's Holiday [0:05:48.16]
- 08. Knock 'Em Dead, Kid [0:03:43.66]
- 09. Slice Of Your Pie [0:04:30.74](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041875F15A34D2145A7592F4D364686333FCEF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294104   (631234) от 06.04.2019
 
 Born of Osiris - The Simulation (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Metalcore>
@@ -773,6 +738,35 @@ Outrun The Sunlight - Red Bird (2017) [FLAC|Lossless|image + .cue] <Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D96352582E558D530001CD4662CA570B9159D08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908049   (630029) от 16.06.2015
+
+FFS (Franz Ferdinand and Sparks) - FFS (2015) [FLAC|tracks|WEB]<Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Delusional [3:12]
+02. Call Girl [3:21]
+03. Dictator’s Son [4:15]
+04. Little Guy from the Suburbs [5:09](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568B27221BED1D1EDED19ABF4E358E6B81B078EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

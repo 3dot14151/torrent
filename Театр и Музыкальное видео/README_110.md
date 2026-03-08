@@ -1,3 +1,38 @@
+###  Публикация: 504043   (260518) от 02.06.2012
+
+Slash: Apocalyptic Love Album Release - Live From New York City (2012) HDTVRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт01. Mean Bone (Slash's Snakepit song)
+02. Dirty Little Thing (Velvet Revolver song)
+03. Nightrain (Guns N' Roses song)
+04. One Last Thrill
+05. Back From Cali
+06. Ghost
+07. Standing in the Sun
+08. Rocket Queen (Guns N' Roses song)
+09. Doctor Alibi
+10. Speed Parade (Slash's Snakepit song)(   Читать дальше...   )Жанр: Hard Rock, Хэви-металПеревод: ОтсутствуетПродолжительность: 01:44:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503126   (259360) от 29.05.2012
 
 Robin Gibb - Live with The Neue Philharmonie Frankfurt Ochestra / Robin Gibb - Live with The Neue Philharmonie Frankfurt Ochestra (2005) DVD5
@@ -704,33 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED9D665DA2CA1A822E292256AC056EA632D5B080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638031   (247655) от 11.06.2023
-
-Божественная комедия (1973) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по знаменитому спектаклю знаменитого театра кукол Сергея Образцова. Вступительное слово — С.В. Образцов.
-Сценарий написал Исидор Шток, вдохновившись серией весёлых рисунков французского художника Жана Эффеля под названием «Сотворение мира», где художник остроумно и озорно пересказал библейскую версию сотворения мира.Производство: СССР, ГостелерадиофондЖанр: комедия, cпектакльРежиссер: Сергей Образцов, Семен Самодур, Владимир КусовАктеры: Зиновий Гердт, Константин Гуркин, Роберт Ляпидевский, Екатерина Сипавина, Надежда СамошинаПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7101F8CE80D42BCE8D0943398A13BF17C5D0898
 ```
 
 https://mybot314.ru/tekegram_catalog/

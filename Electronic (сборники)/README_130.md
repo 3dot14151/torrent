@@ -1,3 +1,32 @@
+###  Публикация: 932494   (509470) от 29.08.2015
+
+VA - Ibiza DJ Compilation Summer 2016 (2015) [MP3|320 кб/с]<Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altar Boys - Ordinary Day (DJ Mauro Vay Gf Mix) [04:56]
+02. Teckel - God You and Myself (Danzamatrix Extended Mix) [07:23]
+03. Flaunt - Kemical Luv (Extended Mix) [06:06]
+04. The Dreamers - Dancefloor (Ms Extended Mix) [06:14](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44828A0FF74C9006CD565A86696CD95D4A7F3359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316015   (508799) от 23.07.2019
 
 VA - Electrozombies Dance House (2019) [MP3|320 Kbps] <House, Electro>
@@ -737,35 +766,6 @@ VA - Delicious Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59F5F22618A99DAE668F8A2634BA39F0DA11D7A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934653   (502532) от 05.09.2015
-
-VA - Delicious Deep House Vol 2 (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Bee - Satisfy - D Troit's Subway Mix
-02. Fashion Masters - Night Club - La Vida Mix
-03. Anthony Smith - Stellar Light - Club Mix
-04. Blue Terrace - Sophia - Pianistic Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7D0BBABF278383A1CFFD56EE56F416B69A7690
 ```
 
 https://mybot314.ru/tekegram_catalog/

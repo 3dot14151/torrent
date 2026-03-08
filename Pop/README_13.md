@@ -1,3 +1,61 @@
+###  Публикация: 1446610   (1032735) от 09.02.2021
+
+J.J. Mack - You Can Make It Dancin' (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Street Dancin' (5:02)
+02. Hang On Sloopy (5:34)
+03. You Can Make It Dancin' (5:01)
+04. Na, Na, Hey, Hey, Kiss Him Goodbye (5:01)Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:20:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39AADE04907E3F75F10023F3BD30039467B72996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446498   (1032728) от 09.02.2021
+
+Samantha Fox - I Wanna Have Some Fun (1988) [FLAC|Lossless|image + .cue] <Synth-pop, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Have Some Fun (5:03)
+02. Love House (4:36)
+03. Your House or My House (3:56)
+04. Next to Me (5:26)(   Читать дальше...   )Жанр: Synth-pop, Pop, DanceПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676FA6530496E69D90E01B2C9ABA7675257C9F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619960   (1032581) от 18.03.2023
 
 VA - Songs for the Car (2022) [OGG Vorbis|480 Kbps] <Pop>
@@ -687,64 +745,6 @@ Ricchie E Poveri - Le Canzoni La Nostra Storia 3CD (2011) [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87129BD6EB013CC5EE89787AE2CE62C00EF855F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447758   (1031691) от 14.02.2021
-
-Stroer - Stroer (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Jazz, Rock, Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Think It Over (5:26)
-02. Show-Stopper (6:09)
-03. Some People... (5:16)
-04. Don't Stay For Breakfast (5:15)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Jazz, Rock, Disco, Synth-popПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4708A6DB2FF396CFDC4ADFDF5E2D2B59ED996B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447706   (1031660) от 14.02.2021
-
-VA - The Glory Of Love: A 1990 Super Popgala (1990) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну какой ещё релиз "запиливать" в День всех влюбленных? Конечно - "Слава любви"! И хоть нидерландское отделение Polydor выпустило эти баллады о любви в далёком 1990 году, надеюсь, в этом году они помогут вам найти общий язык с любимыми, кто ещё не успел этого сделать и укрепить отношения остальным. В путь, по волнам любви...01. Linda Ronstadt feat. Aaron Neville - Don’t Know Much  (3:36)
-02. Phil Collins - Groovy Kind of Love  (3:32)
-03. Carly Simon - It’s Hard to Be Tender  (3:35)
-04. Van Morrison - Have I Told You Lately That I Love You  (4:22)(   Читать дальше...   )Релиз состоялся: 1990Жанр: Pop, Rock, BalladПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91FAD2BB15E5B9DD09B3D20A1D866A33515C2DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

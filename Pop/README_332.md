@@ -1,3 +1,61 @@
+###  Публикация: 1737993   (106456) от 20.07.2024
+
+Пётр Лещенко - Любимые песни (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Всё, что было [00:02:49]
+02 - У самовара [00:03:01]
+03 - Моё последнее танго [00:03:12]
+04 - Чёрные глаза [00:03:12](   Читать дальше...   )Жанр: PopПродолжительность: 01:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B0940C0B41FA17E731B6BEF8DF5B4087AF460F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737844   (106437) от 20.07.2024
+
+Fancy - Fancy For Fans (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slice Me Nice / S.L.I.C.E.
+ 02. Fools Cry / Whenever Fools Cry
+ 03. When Guardian Angels....Rap
+ 04. Flames Of Love / Love Flames(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486ADB64FA0875D3629F574AFAD3A39FC46A056A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737835   (106429) от 20.07.2024
 
 Светлана Разина - Всё самое лучшее (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -684,64 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D2BAE7DA0BFA48EDED6DEA88C58309823D9A615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739399   (105950) от 31.07.2024
-
-Happy Sovok - Happy Sovok (2009) [WavPack|Lossless|image + .cue] <Pop, Folk, Stage>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Супер мега шашлыки
- 02. Мы пели караоке
- 03. Зачем ты мне влезла в душу
- 04. Женись(   Читать дальше...   )Жанр: Pop, Folk, StageПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B12D3FA93F70BE155C33CC1943AE4F9A563247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740007   (105946) от 31.07.2024
-
-Jasmin - Тебе Понравится (2005) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тебе Понравится
- 02. Как Ты Мне Нужен
- 03. Индийское Диско
- 04. Тук-Тук(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A052A52EF4A4061306D8AB28C092DA5CCC69A40
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 932735   (508396) от 30.08.2015
+
+Clark Terry with Thelonious Monk - In Orbit (1958) /1987, Riverside/[FLAC|tracks+.cue]<Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Orbit [04:43]
+02. One Foot In The Gutter [07:22]
+03. Trust In Me [04:33]
+04. Let's Cool One [04:57](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8240A907AFEA8CBF4B325D02778E654AAF0221A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932627   (508393) от 30.08.2015
 
 Akua Dixon - Akua Dixon (2014) [FLAC|Lossless|WEB-DL]<Jazz>
@@ -716,35 +745,6 @@ Teddy Edwards Quartet - Good Gravy (1981) /2015, Solid Records/[FLAC|tracks+.cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61E21EA8AA312389277E7C383FB2516E02F5DE53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933358   (505502) от 02.09.2015
-
-Thomas Chapin Trio - Third Force (1991) /Knitting Factory/ [FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahab's Leg [10:15]
-02. Poet O Central Park [04:50]
-03. Iddly [07:40]
-04. Tale of the Sands [08:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5ECCD7EAB33B441C536E6D72349BA72097029B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

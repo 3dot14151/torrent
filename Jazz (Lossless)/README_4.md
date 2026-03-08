@@ -1,3 +1,32 @@
+###  Публикация: 1438586   (1040948) от 09.01.2021
+
+Sun Ra - Cosmos (1976) 2008, Inner City Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mystery of Two [5:52]
+02. Interstellar Low-Ways [5:24]
+03. Neo Project #2 [5:04]
+04. Cosmos [2:59](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C8FC2C05283354BEB44770D4296F2F02B0C98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611788   (1040842) от 13.02.2023
 
 VA - Ladies In Love classees X (1939 - 1956) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
@@ -715,35 +744,6 @@ Jeremy Pelt - Men Of Honor (2010) HighNote [FLAC|Lossless|tracks + .cue] <Post-B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:035639A5F3CD7F71A97FA5E9811765978A7DDEA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440706   (1038528) от 18.01.2021
-
-Maria Pia De Vito & Burnoguala Large Vocal Ensemble - Moresche e altre invenzioni (2018) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz, Renaissance>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alla Lafia Calia (Di Lasso) - 8:35
-02. Lafia Calia (De Vito-Marcotulli) - 2:12
-03. Hai, Lucia (Di Lasso) - 2:57
-04. Tambilili (De Vito-Coulibaly) - 1:45(   Читать дальше...   )Жанр: Vocal Jazz, Contemporary Jazz, RenaissanceПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159BCFF9CEC8F9DFCDC900A28F793F7FF81EC88B
 ```
 
 https://mybot314.ru/tekegram_catalog/

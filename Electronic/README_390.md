@@ -1,3 +1,61 @@
+###  Публикация: 1628488   (254877) от 23.04.2023
+
+VA - Saturday Chill (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petya Sound - Give You More (2:38)
+02. Cristian Ferrer - Crush (Ballester Remix) (3:03)
+03. Berke Kılınc - In My Blood (2:39)
+04. Sharapov - Bring Me Back (Mant Deep Remix) (5:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14FD6B56EFB8BAD569DE4D8225509AB26067D955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628535   (254813) от 25.04.2023
+
+VA - Nothing But... Trancetopia, Vol. 02 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Surok - Forever Alone (Radio Edit) [3:40]
+02. Grande Piano - Message From Space (Calvin O'Commor Remix) [8:42]
+03. Sanani & Henry Caster - Code Yellow (Original Mix) [2:48]
+04. A.R.T. Conspiracy - Michael Jefferson (Earthling & Virtual Light Remix) [6:43](   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FF16AEF5EFC1BF5CCB1DC893CA09590D8C97E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836590   (254355) от 11.11.2025
 
 VA - Ibiza Winter Session 2026 (The Lounge Cookies) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -723,64 +781,6 @@ Skrillex и Дэмиан Марли, младший сын Боба Марли, 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835613   (251252) от 06.11.2025
-
-VA - Workout Remixes (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teddy Swims - Bad Dreams (HUGEL Remix) (3:02)
-02. Bennett - Vois sur ton chemin (Techno Mix) (2:58)
-03. David Guetta - Beautiful People (Extended) (4:20)
-04. Robin Schulz - World Gone Wild (feat. Sam Martin) (2:28)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:061F12FBFF016A6A722314F819317401C8D2CCDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835353   (250962) от 06.11.2025
-
-AM 1984 - Best Of Remixes & Vocals (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juliette (Vocal Remix) (4:18)
-02. Miami Beach (Beach Vocal Remix) (4:14)
-03. From Dusk Till Dawn (Dusk Vocal Remix) (4:42)
-04. Testarossa (Rossa Vocal Remix) (4:36)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB914BCE4C25D993E2971615CCB914ABC1A05E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

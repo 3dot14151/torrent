@@ -1,32 +1,3 @@
-###  Публикация: 996114   (880960) от 13.03.2016
-
-Порт(812) - Абсолютно всех (2016) [MP3|320 кб/с] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
- 02. Сомнения
- 03. Война
- 04. Проснись!(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0823FE51F8DBDC5A35F5D431FD35EB3D53698FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495430   (880725) от 12.09.2021
 
 Эсента - Под знаком беды (2021) [MP3|320 Kbps] <Symphonic, Heavy Metal>
@@ -733,6 +704,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40C820CF014F8C4D9808F09825D3BD42A52E5B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374698   (870589) от 11.04.2020
+
+Пневмослон - Первый Оральный (минус) (2018) [MP3|320 Kbps] <Electronic Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Адовый адок
+02 - Аккумулятор
+03 - В пиццу
+04 - Я в кашу как в последний раз(   Читать дальше...   )Жанр: Electronic Punk RockПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E8AB0FB26011A4470E6C193E1E41FAC004CD0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

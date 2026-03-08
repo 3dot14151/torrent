@@ -1,3 +1,61 @@
+###  Публикация: 1577851   (350290) от 21.09.2022
+
+Fun Boy - The Album (2022) [MP3|320 Kbps] <Italo-Disco, Euro Disco, Hi-NRG>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fun Boy Turbomix [00:10:24]
+02. D. A. N. C. I. N. G (feat. Budia) [00:05:42]
+03. Breaking My Heart (feat. Sascha) [00:05:57]
+04. Can't Stop Moving (feat. Sascha) [00:07:15](   Читать дальше...   )Жанр: Italo-Disco, Euro Disco, Hi-NRGПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764A501E10B12D7FDC6079AE2C0248FD5541C171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577760   (350167) от 21.09.2022
+
+Haddaway - Let's Do It Now (1998) [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Do It Now (Matrix Radio Edit)	3:27
+02. You're Taking My Heart (DJ Stevie Steve's Radio Edit)	3:21
+03. Touch	4:31
+04. Who Do You Love (Matrix Radio Edit)	3:26(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A435F412546F64F929E0934209D37708ED1FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329354   (350146) от 06.10.2019
 
 Hot Cold - Love Is Like A Game (2019) Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Italo-Disco, Hi-NRG>
@@ -694,64 +752,6 @@ VA – Новая игрушка 13 (2002) [FLAC|Lossless|tracks + .cue]<Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CEAA7E0CBD34FC46D6DBC049B8C285241B84CA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257127   (347779) от 25.10.2018
-
-Bryce - Best Of (2018) [MP3|320 Kbps] <Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Megamix (Edit)
-02. We're In Heaven (Radio Edit)
-03. Bryce Ft. J-Malik - Body Rock (Radio Edit)
-04. Bryce Ft. Nitro - Weekend (Radio Edit)(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 01:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A32721233A8DBC3D249C0ED5F93F6ABFFA09F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257040   (347772) от 25.10.2018
-
-Устинья Малинина - Влюбишься (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Влюбишься (3:17)
-02. Без тебя (3:56)
-03. Непобедимы (3:40)
-04. Зима (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB44A1629BC0A8CFA1B2E6238A11A94654D488CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

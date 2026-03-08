@@ -1,3 +1,61 @@
+###  Публикация: 987916   (924494) от 18.02.2016
+
+VA - Sugar Mambo - Heat Express (2000) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jon Secada - Stop (4:16)
+02. Shaft - Mambo Italiano (2:48)
+03. Los Del Duego - Cabello VleJo (3:25)
+04. Jennifer Lopez - Let,s Get Loud (3:58)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58BA8A5266CC60F7E9A7F125F36105CB33C19A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095571   (924392) от 21.01.2017
+
+Emma King - Emma King (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Devil City  (03:16) 
+02|  All The Other Fools  (03:16) 
+03|  Keep It Coming  (04:17) 
+04|  Rollin' In  (03:59) (   Читать дальше...   )Жанр: Pop, Soul, FolkПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5372D88602A614DA1EE0893862C56B900EE3766F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094044   (924320) от 21.01.2017
 
 VA - 10 песен о любви (2004) бесплатное приложение к журналу Yes! [FLAC|Lossless|image + .cue] <Pop, Rock>
@@ -692,62 +750,6 @@ VA - MTV Top the Hits 2013 3CD (2013) [FLAC|Lossless]<Pop, Dance, Rock, R&B, Tra
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096555   (919211) от 24.01.2017
-
-Andromeda - Star Ship/Shooting Star (1978) 7" [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star Ship  (3:41)
-02. Shooting Star  (3:35)Жанр: Electronic, DiscoПродолжительность: 00:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D554E148A449E1CA74011D333911F44398E84AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096466   (919074) от 24.01.2017
-
-Iowa - Remixes (2016) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919074.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мои стихи, твоя гитара (Astero Remix)
-2. 140 (Astero Remix)
-3. Три дня холода (Ivan Spell Remix)
-4. Мои стихи, твоя гитара (Ivan Spell Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 00:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767DC195E498390C329EA0DE2F9F7E524C29FEE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

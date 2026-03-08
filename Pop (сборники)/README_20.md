@@ -1,3 +1,32 @@
+###  Публикация: 1374769   (871188) от 11.04.2020
+
+VA - German Top 100 Single Charts 10.04.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ramon Roselly - Eine Nacht
+02. The Weeknd - Blinding Lights
+03. Shindy - What's Luv
+04. SAINt JHN - Roses(   Читать дальше...   )Жанр: PopПродолжительность: 05:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB65A7879E5F857E5B72831A37295988A7E37EC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374718   (871185) от 11.04.2020
 
 VA - Popular Twerk Party (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -710,35 +739,6 @@ VA - Лучшая дискотека от Европы Плюс (2017) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7550D60D30B489AD07D36BB4AAE054CA09E7C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376543   (858921) от 18.04.2020
-
-VA - German Top 100 Single Charts 17.04.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Samra - BaeBae
-03. Drake - Toosie Slide
-04. Bonez MC - Shotz Fired(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F05E2F667AFD1F7564C8CB337D53DBCC0CAEAEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

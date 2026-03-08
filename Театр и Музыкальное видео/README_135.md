@@ -1,3 +1,32 @@
+###  Публикация: 1795505   (66806) от 16.05.2025
+
+Scooter - Live at Highfield festival (2016) WEBRip [H.264/1080p-LQ] [hand made upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт состоялся в рамках фестиваля "Highfield" 19 августа 2016 года в Лейпциге на сцене "Blue Stage".01. Ten seconds before sunrise / Ace
+02. Oi
+03. Riot
+04. One (Always hardcore)(   Читать дальше...   )Производство: ГерманияЖанр: ScooterTechno, Hard Trance, Happy HardcoreРежиссер: Jens TheleУчастники: H.P. Baxxter, Michael Simon, Phil SpeiserПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD6FD1CEF64602A18469AE12D052CD73D70222D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793467   (66805) от 16.05.2025
 
 NiziU - Need U (2021) WEBRip [H.265/2160p] [60fps, Upscale AI]
@@ -688,35 +717,6 @@ Synthony: Live at Auckland Domain with Auckland Philharmonia (2024) WEB-DL [H.26
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99C3B3882184BEF2FE5993A5E6DB8397A8646213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716316   (59614) от 15.04.2024
-
-Andrea Bocelli & CeCe Winans: An Easter Music Special from Lakewood Church with Joel Osteen (2022) HDTV [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из церкви Лейквуд в Хьюстоне, штат Техас, Андреа Бочелли выступил с прекрасной программой прославления и поклонения. Не похожей ни на одного другого, итальянский тенор и икона мировой музыки Андреа Бочелли дал самое необычное выступление в своей карьере в церкви Лейквуд в преддверии пасхального воскресенья.
-Треклист:
-01. You'll Never Walk Alone - Andrea Bocelli
-02. (   Читать дальше...   )Производство: США / Trinity Broadcasting NetworkЖанр: концертная программа, вокал, классика, попРежиссер: Андреа БочеллиАктеры: Андреа Бочелли, Таурен Габриэль Уэллс, Клара Барбье Серрано, Майкл Уитакер Смит, Вирджиния Бочелли, Присцилла Мари УайнансПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: английскийСубтитры: отсутствуютПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BEF17B862415EB629FDA0E94860D8DBE8AEC33
 ```
 
 https://mybot314.ru/tekegram_catalog/

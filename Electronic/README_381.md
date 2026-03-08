@@ -1,3 +1,61 @@
+###  Публикация: 1267171   (267902) от 05.12.2018
+
+Dead Beat Project | O.S. - Discography 4 Releases (2007-2014) Aesthetic Death Records, AD Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tribal, New Age, World>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Playa Del Amor (07:46)
+ 02. Light Bulbs (06:42)
+ 03. Twilight On Fullerton Bay (05:53)
+ 04. The Blue Shadow (Vocal Mix) (07:45)(   Читать дальше...   )Тип издания: WebЖанр: New Age/Ambient/Tribal/HouseПродолжительность: 01:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D55B21455908492BA079D8E74514726B05C9D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267117   (267809) от 05.12.2018
+
+HOME - Odyssey (2014) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (3:09)
+02. Native (4:02)
+03. Decay (4:11)
+04. Oort Cloud (3:26)(   Читать дальше...   )Жанр: Synthpop, Synthwave, AmbientПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDEC47F6C1300FB0F8CDB574F0E6205ABE9643F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190144   (267778) от 09.12.2017
 
 Faderhead - Night Physics (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, Darkwave>
@@ -687,64 +745,6 @@ VA - Cosmic Cubes - A Cosmic Trance Compilation Vol. 1-6 (1994-1997) 6x2CD, Comp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8927DAAD59DF37DA94ECDB3C69C0A431E8FF9EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339484   (266157) от 19.11.2019
-
-VA - Chill Out Pearls, Vol. 2 (Lazy Chill Out Tunes) (2019) [MP3|320 Kbps] <Electronica, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alwood Johnson – Fly (5:45)
-02. Danny Hay – Expectations (7:40)
-03. Chuck Mertens – Moshy (5:51)
-04. Alec Gonzalez – Lia (3:38)(   Читать дальше...   )Жанр: Electronica, DowntempoПродолжительность: 03:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F4247642D262FFF21CEEEEFCF226C8B58405EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190929   (266034) от 11.12.2017
-
-VA - The Verse Uplifting Trance Journey 2016-2017 (Mixed by Philip Langham) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance >
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alcyone Project - Gate To Another World (Original Mix)
-02. Melodic Culture & Magdalen Silvestra - Way Of Light (Trance mix)
-03. Alternate High - You Are Not Alone (Original Mix)
-04. Alternate High - On My Mind (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 05:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B815F21901BE1A418F2AFC40BC34944FEA08EFF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

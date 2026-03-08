@@ -1,3 +1,61 @@
+###  Публикация: 946561   (425258) от 14.10.2015
+
+Lord - Set In Stone (2009) [FLAC|image +.cue]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spectres Of The Ascendant 00:48
+02. Redemption 05:31
+03. 100 Reasons 04:44
+04. Eternal Storm 05:31(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B7E896B2177ECDFF025861C9974BAE0496B5F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946595   (425254) от 14.10.2015
+
+Lord - Digital Lies (2013) [FLAC|image +.cue]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incipio 00:34 instrumental
+02. Betrayal Blind 05:00
+03. Digital Lies 05:51
+04. Point of View 06:56(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:07;10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7AA30838712276C96B5ACCE8B37128FB615300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250375   (424606) от 28.09.2018
 
 Powerwolf - The Sacrament Of Sin (2018) 2CD, Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
@@ -688,64 +746,6 @@ FireForce - March On (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B56460F0BA6618B9B425AF88DC7F6BB5209359F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065172   (421896) от 22.10.2016
-
-Herman Frank - Loyal To None (2009) 2016 reissue [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon II
-02. 7 Stars
-03. Father Buries Son
-04. Heal Me(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159164A832C2A231B34FF966F47C44C1F285E9A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065159   (421641) от 22.10.2016
-
-Eden's Curse - Cardinal (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prophets Of Doom
-02. Sell Your Soul
-03. The Great Pretender
-04. Messiah Complex(   Читать дальше...   )Жанр: Melodic Hard Rock, Melodic Heavy MetalПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD592B563C97D1DD780471CF433796F2A5023A22
 ```
 
 https://mybot314.ru/tekegram_catalog/

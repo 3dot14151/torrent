@@ -1,3 +1,119 @@
+###  Публикация: 1811865   (8285) от 12.08.2025
+
+VA - Musical kaleidoscope part 49 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sisco Le Voyageur - Voyage Du Voyageur
+02 - Сергей Грищук - Журавлиная Акварель
+03 - Sergey Chekalin - Song of the Forest
+04 - Giovanni Marradi - Soleado(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, SaxПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E6865F6F9E62B7977867CAFC5286A9A1D44D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812092   (8153) от 13.08.2025
+
+VA - Radio Hits 2025 - Radio Music Playlist [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8153.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lola Young - Messy (4:44)
+002. Kendrick Lamar - Not Like Us (4:34)
+003. Doja Cat - Agora Hills (4:25)
+004. Billie Eilish - WILDFLOWER (4:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C7ED89F31B10897DA89538A2016F70427ED814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812444   (7882) от 14.08.2025
+
+VA - Music News For Forum vol.125 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7882.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bella - Ich Glaub Ich (02:46)
+ 002. Adam Maniac - Give It To You (01:57)
+ 003. AFROZO & KENSHI - Nadie Como Tu (02:28)
+ 004. Alanis Morissette & Carly Simon - Coming Around Again (03:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCC837260D4E4CA7E810799C54DD84CC9D88CA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812557   (7712) от 15.08.2025
+
+VA - Music News For Forum vol.126 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7712.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aura Tag - All Right (03:08)
+ 002. 58TAKASHI - Hardest Worker in the Room (02:16)
+ 003. aairamm - ILL (02:09)
+ 004. AbdulHamid & DAANNI - Midnight Symphony (02:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6084DAC02B75453EDF18E452999AF860B9D2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813132   (7254) от 17.08.2025
 
 VA - National Pop Dance Music Vol.117 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
@@ -629,119 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 05.09.2025 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6DFD639ED027D5FFC04AB95BE05EC442F7C2DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816745   (4094) от 06.09.2025
-
-VA - National Pop Dance Music Vol.119 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4094.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Morgan Wallen - Just In Case (02:46)
- 002. Mats Radberg - Mamma, Lat Inte Din Grabb Vaxa (03:05)
- 003. Imera - Vazgectim (04:28)
- 004. Leif Bloms - Hall Mej Hart (03:01)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0858EEA581EB4CEF6D3DD9FFCD35AE16F23914E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816985   (3943) от 07.09.2025
-
-VA - Дискотека 2025 Dance Club Vol. 230 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, OtherПродолжительность: 18:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E933CF30B5927A22FC8C27145F005742745669B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816211   (3897) от 07.09.2025
-
-Reyvi - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Eyes Are Silent
- 02 - You Left Me
- 03 - No No No
- 04 - Sans Ton Amour(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC6350C71BF1670A4164D76A68669CEB6509A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816210   (3862) от 07.09.2025
-
-Frezee - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Chillout, Female Vocal, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Там Где Ждут
- 02 - Шапито
- 03 - Колыбельная
- 04 - Твои Шаги(   Читать дальше...   )Жанр: Pop, Chillout, Female Vocal, OtherПродолжительность: 00:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3529883EB6906B83C8E0A93EFCFAA0119E98D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

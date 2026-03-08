@@ -1,3 +1,32 @@
+###  Публикация: 1091423   (941438) от 10.01.2017
+
+George Streicher - Howard Lovecraft and the Frozen Kingdom / Говард и Замерзшее королевство  (2016) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title
+02. The Asylum
+03. Dark Journeys
+04. The Journal(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A54048F14D194ED368C54169C08D0B7DDD075A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 250185   (941155) от 16.01.2015
 
 Eric Chiryoku - 3 альбома (2006-2012) [MP3|320 кб/с]<New Age, Easy Listening, Piano>
@@ -714,35 +743,6 @@ Richard Clayderman - When A Man Loves A Woman (1995) 2002  Universal Music Russi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5C30C23D63A68C40F20FFDE8D2876DBC50D1BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985187   (935269) от 11.02.2016
-
-Fausto Papetti - Oggi 4: Quarantaseiesima raccolta (1988) [FLAC|Lossless|tracks + .cue] <Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dicitencello vuje (4:23)
-02. April in Paris (Dal film Bird) (3:07)
-03. Blue Skies (2:36)
-04. Tristesse (Studio in Mi maggiore Op. 10 n. 3) (3:30)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE494D3D8D996BB39A3258B1BA7C1504CB67E1BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

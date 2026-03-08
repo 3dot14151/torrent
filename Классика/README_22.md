@@ -1,3 +1,32 @@
+###  Публикация: 1223417   (671523) от 06.05.2018
+
+New London Chorale - Young Christmas (2001) Reissue [FLAC|Lossless|image + .cue] <Crossover Classical, Traditional>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	See Amid The Winter’s Snow
+02	O Little Town Of Bethlehem
+03	In The Bleak Mid Winter
+04	The Holly And The Ivy(   Читать дальше...   )Жанр: Crossover Classical, TraditionalПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE1A0D8E305A7E7C7C04B8372231FE3FD43B6BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223769   (671516) от 06.05.2018
 
 VA - Angelica (1997) Compilation [FLAC|Lossless|image + .cue] <Rock, Crossover Classical, Vocal>
@@ -740,35 +769,6 @@ VA - Tenorissimi Mondeale '90 (1990) [APE|Lossless|image + .cue] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE900D17199A7AC7B3269892A6AA49E2D5C13563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905691   (647319) от 07.06.2015
-
-Mozart - Concertos for 2 & 3 Pianos (Katia & Marielle Labeque, Semyon Bychkov & Berlin Philharmonic Orchestra) (1999) [FLAC|Lossless]<Classical, Classical Period, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto for 2 pianos & orchestra in E flat major ("Concerto No. 10"), K. 365 (K. 316a)
-01. Allegro (10:03)
-02. Andante (08:04)
-03. Rondeaux (Allegro) (07:07)(   Читать дальше...   )Жанр: Classical, Classical Period, ConcertoПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93062EAE09A915FC69D476BF2897D1B3AE080A90
 ```
 
 https://mybot314.ru/tekegram_catalog/

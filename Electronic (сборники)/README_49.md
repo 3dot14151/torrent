@@ -1,3 +1,32 @@
+###  Публикация: 1009706   (808238) от 22.04.2016
+
+VA - After Midnight (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808238.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bonsugi - Under the Cool Rain
+002. Monroe Days - A Gentle Wind
+003. Cane Garden Quartet - Toca Me
+004. Baghira - Put Your Arms(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA8140B313AA5342A11B712D6460268C9BB91E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009657   (808234) от 22.04.2016
 
 VA - Megalodon Bass (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
@@ -716,35 +745,6 @@ VA - Hands Up Freaks Vol. 5 (Deejay Edition) (2016) [MP3|256 кб/с] <Club, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F61C6C6240D271E80790449B5ABE19DD1AE753EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384314   (804269) от 19.05.2020
-
-VA - Beatport Progressive House: Electro Sound Pack #86 (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Sobrino - Dark Brain
-02. Alfoa - A New Life (Original Mix)
-03. Jonnas B - Ancestral
-04. Chris Burke - Keygen(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 07:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339A07EBE8C78F3ACFE435A967C4A507608517E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

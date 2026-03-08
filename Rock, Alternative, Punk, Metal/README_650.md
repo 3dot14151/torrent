@@ -1,119 +1,3 @@
-###  Публикация: 948887   (409352) от 21.10.2015
-
-Ulytau - Jumyr Kylysh (2006) [MP3|320 кб/с]<Ethno-Rock, Folk, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Adai
-02. Winter (Four Seasons)
-03. Kurishiler
-04. Jumyr - Kylysh(   Читать дальше...   )Жанр: Ethno-Rock, Folk, InstrumentalПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45CF96E253E3E99B9F301E91A473BD7E735198FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252404   (409315) от 05.10.2018
-
-Redemption - Long Night's Journey Into Day (2018) Limited Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes You Dare Not Meet in Dreams (5:23)
-02. Someone Else's Problem (7:02)
-03. The Echo Chamber (8:16)
-04. Impermanent (5:11)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952FCD318F51E14C850BBA4680DA4826AE59ACC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252565   (409312) от 05.10.2018
-
-Phideaux - Infernal (2018) 2CD [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409312.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. Cast Out and Cold (5:32)
- 02. The Error Lives On (7:15)
- 03. Crumble (0:56)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: CD1 - 00:42:09 + CD2 - 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE5ADB5D21F2D7270CF968214C42295C485EC6B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711573   (409301) от 17.10.2013
-
-Paul McCartney - New (2013) [FLAC 2.0 96/24 |tracks (WEB-DL)]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Us [2:39]
-02. Alligator [3:27]
-03. On My Way To Work [3:43]
-04. Queenie Eye [3:48](   Читать дальше...   )Жанр: RockПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC425D7FD174F75C3A4C1FED107472C9D9A4978D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066871   (409270) от 27.10.2016
 
 Avenged Sevenfold - The Stage (2016) [MP3|320 Kbps] <Heavy Metal, NWOAHM>
@@ -745,6 +629,122 @@ Blind Guardian - The God Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2943390B69FD4186A19F61F9E756FB52E5E21EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573791   (408809) от 02.09.2022
+
+Epica - Live At Paradiso (2022) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hunab K'u (Live At Paradiso) [00:01:58]
+02 - Dance Of Fate (Live At Paradiso) [00:05:47]
+03 - Sensorium (Live At Paradiso) [00:04:58]
+04 - The Last Crusade (Live At Paradiso) [00:04:26](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0D946179C536A0DB68097EBA93E62DB3515158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168581   (408791) от 24.09.2017
+
+The Alan Parsons Project - Tales of Mystery and Imagination (1976) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dream Within A Dream (Instrumental) (4:14)
+02. The Raven (3:58)
+03. The Tell-Tale Heart (4:39)
+04. The Cask Of Amontillado (4:33)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B840D30861DB814BF79E2D9D8328C70A0AFD072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168193   (408786) от 24.09.2017
+
+VA - Клинское Продвижение (2002) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жуки & 20000 ЗажЫгалок - Клей
+02. Любаша & 20000 ЗажЫгалок & Хули Ганы - Ванная
+03. BER-LINN - Линки
+04. Роберт Ленц & Люда Кравцова - В твоих глазах(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841877F4C87F131057FCFFC01250BC88D90A33F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168467   (408781) от 24.09.2017
+
+Flash And The Pan - 6 Albums (1978-1992) CD Collection [MP3|320 Kbps] <Electronic, Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальная, с мировым именем, но не получившая большую известность у нас в СССР, рок-группа из Австралии со своим запоминающимся, неповторимым и своеобразным вкусом звучания.Список альбомов:
+1978 - Flash and the Pan
+1980 - Lights in the Night
+1982 - Headlines(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 04:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3164E6D6F2F9B3FA71F4B99ADDE8752AD3AD7C29
 ```
 
 https://mybot314.ru/tekegram_catalog/

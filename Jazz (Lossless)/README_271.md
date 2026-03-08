@@ -1,3 +1,32 @@
+###  Публикация: 1660405   (189383) от 13.09.2023
+
+VA - Montreal Jazz Club 2023, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebastián Soler - Have Yourself a Merry Little Christmas (Piano Jazz Version) (3:17)
+02. Lights Out Orchestra - Kalimper (3:55)
+03. Carsten Weidenhaupt - Indien (2:29)
+04. Gino Santana - Groove dos Metais (3:32)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BAA3076CA206BC6DA32CF384C27BD47B91DA2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660386   (189380) от 13.09.2023
 
 VA - Luxury Jazz Essentials 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -715,35 +744,6 @@ Ahmad Jamal (Ahmad Jahal) & Wynton Marsalis - Modern Jazz (2005) KM Internationa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA53735D5B094AB10B70A4B8C58665249A427AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663309   (186893) от 21.09.2023
-
-Tubby Hayes - Three Classic Albums Plus (1955 - 1960) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day In, Day Out [6:08]
-02. Tin Tin Deo [9:36]
-03. Embers [5:15]
-04. Like Someone In Love [5:54](   Читать дальше...   )Жанр: Bop, Hard Bop, Mainstream JazzПродолжительность: 02:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E51FEB89F5B41BF0F9EE574A34338FBC0619017
 ```
 
 https://mybot314.ru/tekegram_catalog/

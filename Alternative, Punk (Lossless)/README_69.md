@@ -1,3 +1,38 @@
+###  Публикация: 473194   (84389) от 25.03.2012
+
+Shinedown - Amaryllis (2012) [FLAC|Lossless]<Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrenaline (3:26)
+ 02. Bully (4:03)
+ 03. Amaryllis (4:04)
+ 04. Unity (4:13)
+ 05. Enemies (3:08)
+ 06. Im Not Alright (3:07)
+ 07. Nowhere Kids (3:12)
+ 08. Miracle (3:39)
+ 09. Ill Follow You (3:59)
+ 10. For My Sake (3:47)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454607   (77364) от 20.02.2012
 
 Sigue Sigue Sputnik - 2 Альбома (1988, 2001) [FLAC|Lossless]<Electronic, Rock, Synth-pop>
@@ -729,35 +764,6 @@ Pretenders - The Pretenders (1979) CD, Album, Reissue 1980 [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DFD732BC970BE505F5A057B55872D2A946F4F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804261   (65609) от 29.06.2025
-
-Scott Sellers - One and, and, and, and One and, and Three and, and (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk / New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now Or Never [00:02:35]
-02. Commit-Submit [00:03:03]
-03. Conquer [00:03:11]
-04. Feel Better [00:02:39](   Читать дальше...   )Жанр: Punk / New WaveПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8748DB7941904023D5671600A142245A61D88E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1718600   (110683) от 28.04.2024
+
+VA - Dario Caminita: Classic Revibes Collection Vol. 03 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Whispers - And The Beat Goes On (Dario Caminita Revibe) (6:09)
+02. Delegation - Put A Little Love On Me (Dario Caminita Revibe) (5:55)
+03. Chic feat. Sugarhill Gang - Good Times (Dario Caminita Revibe) (8:37)
+04. Lipps Inc. - Funkytown (Dario Caminita Revibe) (5:47)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF7551008F6289A5413BB7E96282340348D1B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718365   (110677) от 28.04.2024
 
 VA - Dario Caminita: Classic Revibes Collection Vol. 01 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
@@ -794,41 +823,6 @@ VA - Солнечный музыкальный отрыв (2012) [MP3|256 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:574A99F2664FD0B874EE81A9CFEE313BC9EE0EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479013   (99054) от 09.04.2012
-
-VA - С Нами Не Соскучишься 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 A-VIA & Extasy Project - Мама-Любовь
-002 Arno Cost - Lise Together (Mike Newman & Julien Nolan Bootleg)
-003 Руслана - Скучаю
-004 Niels Van Gogh Feat. Emilio Verdez - Beatrocker (Radio Version)
-005 Валерий Меладзе - Потерян И Не Найден
-006 Special vs.Dj Virus Feat. Syntheticsax & Aruba Ice - The Sign Of Jupiter (Kazantip 2011 Mix)
-007 НеАнгелы - Твоя
-008 Stonebridge And Dayeene - The Morning After (Sgt Slick Remix)
-009 Авраам Руссо и Рухшона - Благодарю
-010 Frankmusik - Do It In The AM (Dave Aude Club Mix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131980E89AAA23C820A4A1BD415798AE3AA5C883
 ```
 
 https://mybot314.ru/tekegram_catalog/

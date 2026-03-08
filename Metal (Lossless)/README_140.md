@@ -1,3 +1,90 @@
+###  Публикация: 1564199   (500676) от 18.07.2022
+
+Besatt - Demonicon (2010) [APE|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exordium (00:35)
+02. The Leader Of Fallens (Azazel) (03:24)
+03. The Ninth Spirit (Paimon) (04:06)
+04. Holding The Seal (Forneus) (04:23)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBDD07C946D59909471DB0ABAE8BBCB25617502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564345   (500674) от 18.07.2022
+
+Khariot - Esoteric (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Astralign
+02 - Hydra
+03 - Khatharsis
+04 - Infinite, Intrinsic Eye(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D850A0ED7C6C35FB173339C2E8009C334A86A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563164   (500672) от 18.07.2022
+
+Ablaze in Hatred - 2 albums (2006-2009) [FLAC|Lossless|image + .cue] <Melodic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.A Walk Through the Silence
+2.Perfection of Waves
+3.The Wandering Path
+4.Beyond the Trails of Torment(   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 01:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6AB9AAF29AB8FF1112D668EBF80309C0F18E37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564352   (500670) от 18.07.2022
 
 Khariot - Disymposium (2011) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
@@ -661,93 +748,6 @@ With the Dead - With the Dead (2015) [FLAC|Lossless|tracks + .cue] <Doom, Stoner
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40D5CECEC004D64A19102AC0F2D0837053D1C4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565000   (496752) от 22.07.2022
-
-Marlugubre - Maladie (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Milady (00:05:29)
-02 - Bleak Are The November Nights (00:08:51)
-03 - The Coeur of Magdalene (00:09:26)
-04 - Le Valtzer Macabre (00:06:53)(   Читать дальше...   )Жанр: Progressive Death Metal, Post-Black MetalПродолжительность: 01:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E2ACFADA4F5097548A12056FD47D185A1E56AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565009   (496751) от 22.07.2022
-
-With the Dead - Love from with the Dead (2017) Japan Edition [FLAC|Lossless|image + .cue] <Doom, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496751.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Isolation
-2.Egyptian Tomb
-3.Reincarnation of Yesterday
-4.Cocaine Phantoms(   Читать дальше...   )Жанр: Doom, Stoner MetalПродолжительность: 01:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15FC39822BD4EC6E4AF3C4D345A56E4261FE6DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318188   (496677) от 05.08.2019
-
-Oddland - Origin (2016) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Esotericism (3:44)
-02. Thanatos (5:29)
-03. Penumbra (3:46)
-04. Untrue (6:14)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D99803B68E0F2CC7A08B15E35164D72A8818BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1818906   (1985) от 19.09.2025
+
+Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prelude [2:36]
+02 - Something Beautiful [4:32]
+03 - End of the World [4:11]
+04 - More to Lose [4:36](   Читать дальше...   )Жанр: PopПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0657D4092AFA431BC5E76162355842119E38A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818904   (1983) от 19.09.2025
+
+Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prelude [2:36]
+02 - Something Beautiful [4:32]
+03 - End of the World [4:11]
+04 - More to Lose [4:36](   Читать дальше...   )Жанр: PopПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8670E0FFE267A0E8B3E777863C293D63B5D9708D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819041   (1842) от 20.09.2025
 
 VA - cool hits and cosy music 100 songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>

@@ -1,3 +1,177 @@
+###  Публикация: 965929   (222815) от 16.12.2015
+
+VA - Sunrise Avenue Vol 6 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jasper Jones - I Want to Meet You Again - Original Mix
+02. Nat Wood - Te Quiero Mi Vida - Original Mix
+03. Frederic Flores - Groove Therapy - Original Mix
+04. James Wilson - Reggae Morning - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59BBA0A94632A906EBA77A3D19BE7C39BC48DA58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965981   (222805) от 16.12.2015
+
+VA - Soothing Music Finest in Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Florea - Garden of Balance
+02. Relaxea - Into the Blue
+03. Oscar Salguero - We Have to Go Back
+04. M. Vitoria - Shakra Naom(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DF882E346D155DD8C59A5919BC0D3F25FCECBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342452   (222794) от 03.12.2019
+
+VA - Beatport Techno 01 (2019) [MP3|320 Kbps] <Techno, Edm>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222794.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Empty Fridge - Fckw
+002. Spencer Dunning - Rave Report
+003. Anton'x - Threesome
+004. Concepto - Frb (Original Mix)(   Читать дальше...   )Жанр: Techno, EdmПродолжительность: 12:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30392162F4B49749EFA78B9EA668E7D3C2D46358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342451   (222775) от 03.12.2019
+
+VA - Dream City: Urban Electro House (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222775.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Subandrio - Lydian Manuscript
+002. Mental Order - High Level
+003. Golden Hour - Oaxaca
+004. Panca Borneo - Back 2 Oldskool(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B85029021754D7063E8FFD7BAB67EF192707FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342604   (222739) от 03.12.2019
+
+VA - New Habitat: Synth Electronic Music (2019) [MP3|320 Kbps] <Synthwave, Electronic, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222739.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mentallo - Tachyon
+002. Omicron - Victory
+003. Pixelrust - Fulton (Original Mix)
+004. Knight$ - What's Your Poison(   Читать дальше...   )Жанр: Synthwave, Electronic, SynthspaceПродолжительность: 13:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A175C47DC53443DF06DAF5549B1B05749BBDC1C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425216   (222676) от 20.11.2020
+
+VA - crazyДвиж number chetyre (2020) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 50 Cent - Candy Shop (DJ Vini Remix) (5:05)
+02. Disco Gurls - Pole Cat (Extended Mix) (5:46)
+03. Alex Megane - Little Lies 2020 (Ramba Zamba Extended Remix) (4:05)
+04. Alex Pizzuti - Memories (Extended Version) (3:37)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F26067EDD845048A399FFEB87816F318A06D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965977   (222647) от 16.12.2015
 
 VA - German Top 50 Official Dance Charts (21.12.2015) [MP3| 128-320 кб/с] <Dance>
@@ -577,180 +751,6 @@ VA - After Christmas Lounge Chilled and Relaxed Lounge Tunes (2015) [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DA69742005F0764ACFC6A1723F984F712602DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513989   (221130) от 01.12.2021
-
-VA - Soft Pop (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221130.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alicia Keys - Girl on Fire (3:44)
-002. Andy Grammer - Keep Your Head Up (3:09)
-003. OneRepublic - Counting Stars (4:17)
-004. Rachel Platten - Fight Song (3:24)(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9C09FFC75A40B5FAB4365E5327B6C57424FC16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966513   (221095) от 17.12.2015
-
-VA - Bedroom Chillout and Ambient (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bluesolar - Believe in Me - Chill Out Mix
-02. G. Papadopoulos - Love Is Everywhere
-03. The Fantasy 7 - Final Soundtrack
-04. Minka - Little Cat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63677845196C8BE473A7F44F5F074299B2D1934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083996   (221069) от 18.12.2016
-
-VA - Radio Top musicFM - October (2016) [MP3|128-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221069.jpg" />
-</div>
-
-
-###  Подробнее
-
-LOVE радио - Тор 20
-01. Max Barskih - Туманы (3:26)
-02. DJ Snake ft. Justin Bieber - Let Me Love You (3:26)
-03. MONATIK - Кружит (3:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 20:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA5340743FA6901E107F3A9EDEEB375CEAC12A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966319   (221047) от 17.12.2015
-
-VA - Dance Fight Track Hits (2015) [MP3|251-320 кб/с] <Club, Happy Sound, Vocal, Commercial>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanilla Monk - Headlights (Wings & Rider Remix Edit) 03:53
-02. Dr Meaker - Good Fight (Diskord Remix) 03:30
-03. Knife Party - Parliament Funk 04:21
-04. Dropclusive & DJ Jay-T - Streets (Club Edit) 03:22(   Читать дальше...   )Жанр: Club, Happy Sound, Vocal, CommercialПродолжительность: 05:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0653715E421ED04BD1E29D30AFCD5CA7A0391ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966326   (221028) от 17.12.2015
-
-VA - Mega Party Hits - Headlights Message (2015) [MP3|192-320 кб/с] <Club, EuroDance, Hands Up, Progressive, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Brown Feat. Jack Savoretti - Jack In A Box 03:10
-02. Endanger - Das Ist Alles 03:36
-03. David Tort And Federico Scavo With Alex Kenji - Saxophonic 06:36
-04. Mab Feat. Jim Clay - We Are 03:04(   Читать дальше...   )Жанр: Club, EuroDance, Hands Up, Progressive, DanceПродолжительность: 09:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B594FC2303D0C7943CD6A3B30B214A55329CD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083901   (221014) от 18.12.2016
-
-VA - Top 100 Amnezia Hits (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221014.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marcus & Martinus feat. Samantha J. - Light It Up 3:15
- 002. Enrique Iglesias feat. Tinashe & Javada - Duele El Corazon 3:20
- 003. BBX feat. Tony T & Alba Kras - Crazy (Radio Edit) 3:20
- 004. Mohombi - InfinityЖанр: Pop, DanceПродолжительность: 05:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0842CF0EA8275CFBE2208D073FF7F0F98259418E
 ```
 
 https://mybot314.ru/tekegram_catalog/

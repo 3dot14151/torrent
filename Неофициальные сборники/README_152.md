@@ -1,3 +1,177 @@
+###  Публикация: 1117271   (817039) от 23.03.2017
+
+VA - Шальной шансон в дорогу. Часть № 2 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817039.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Илья Лукин - Полуночный Вокзал 4:17
+002. Артем Амаро - Бессонница 5:23
+003. Раиса Отрадная & Катерина Голицына - Подруга 3:23
+004. Эдгард Грусть - Заскулила Тоска 5:18(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D5327A07659FA276C5E32656F3EA6744E8E747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117264   (817036) от 23.03.2017
+
+VA - The Jazz Story (2017) [MP3|320 Kbps] <Jazz, Jazz-Pop, Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817036.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Lori Cullen - Don't Go Yet  2:52
+002.  Paul Brown - Sunrise On Sunset  4:21
+003.  Norah Jones - Carry On  2:48
+004.  Holy Moly Jazzband Deluxe - No Room For Compromise  3:18(   Читать дальше...   )Жанр: Jazz, Jazz-Pop, VocalПродолжительность: 06:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1E59A8FFBB36701EE8A1E85DFEE496C353A7CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382701   (816939) от 12.05.2020
+
+VA - Dream House (2020) [MP3|320 Kbps] <House, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henrik Villard - It's Just love 6:37
+02. Matthias Zimmermann - Searching Everywhere 4:46
+03. Ruff Stuff - U Call 6:28
+04. Anthony Naples - A.I.R. 5:30(   Читать дальше...   )Жанр: House, ElectronicПродолжительность: 05:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE119A73F38E71112E73568DD8B654BAC4D566C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117253   (816907) от 23.03.2017
+
+VA - Лучшая дискотека на Europa Plus выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816907.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 140 Ударов В Минуту - Катажина 3:46
+002. Слава Благов - Она Как Солнце 3:17
+003. Mary-A - Целуй Меня 3:17
+004. Иван Тетенов - Море Магнит 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE9352D7592679522EC80092D37420B753CC958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117474   (816895) от 23.03.2017
+
+Eddy Clearwater - 30 most slow Blues (2017) [MP3|256-320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Good Leavin' Alone
+02. Reservation Blues
+03. Hypnotized
+04. Gotta Move On(   Читать дальше...   )Жанр: BluesПродолжительность: 02:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2A6345932D0B476187018109C31470D0985BD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117658   (816894) от 23.03.2017
+
+KSHMR - The Best (2017) [MP3|320 Kbps] <House, Dutch, Electro House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  KSHMR - Paradesi Intro  0:38
+02.  KSHMR & Crossnaders Ft. Micky Blue - Back To Me (Extended Mix)  3:56
+03.  Nero - Two Minds (KSHMR & Crossnaders Remix)  3:56
+04.  Martin Garrix & MOTi - Virus (VIP House Version) (KSHMR Remix)  4:10(   Читать дальше...   )Жанр: House, Dutch, Electro House, ProgressiveПродолжительность: 04:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712F871B07B2213CCA4B54085A396B6CA06CC359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117380   (816889) от 23.03.2017
 
 Dieter Bohlen & Blue System - Threemixed (The Remix Album) (2008) [MP3|320 Kbps] <Euro-Disco>
@@ -571,180 +745,6 @@ VA - Tech House Vol. 2 (2017) b84 Version [MP3|320 Kbps] <Techno, Tech-House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9BC74CA49D9548FF3AE91C0F54AF357CFAA9241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118080   (815622) от 24.03.2017
-
-VA - Tech House Vol. 3 (2017) b84 Version [MP3|320 Kbps] <Techno, Tech-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aren Suarez - Oh!! You!! (Original Mix)
-02. Armand Van Helden - Funk Phenomena (Extended Mix)
-03. Artefakt - Return To Reason (Original Mix)
-04. CamelPhat - Hangin Out With Charlie (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech-HouseПродолжительность: 01:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A988F97CA96E9E66AC5A712461A5445024C69B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117791   (815620) от 24.03.2017
-
-VA - Beatport Trance Pack (23.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DIM3NSION - Voorpret (Original Mix)  7:02
-02.  Armin Van Buuren pres. Rising Star ft. Betsie Larkin - Again (Alex M.O.R.P.H. Remix)  3:22
-03.  Ben Stone & Mrozer - Astoria (Extended Mix)  6:45
-04.  JamX & De Leon - Can U Dig It (Dave Cold Remix)  6:33(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 03:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A015355608B7879D6AEA4932FF52D2005AD97D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382886   (815573) от 13.05.2020
-
-VA - Feel Good Dance (2020) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas - Mr. Saxobeat 2:31
-02. Dayvi, Victor Cardenas, Kelly Ruiz - Baila Conmigo 3:10
-03. Sevenn - Loco Papi 2:59
-04. Jax Jones, Martin Solveig & Dragonette, Madison Beer, Europa - All Day And Night 2:49(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC16D6E00441E8B01013BF0AF3641A729489A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117727   (815485) от 24.03.2017
-
-VA - Private Lounge - Spring Session (2017) [MP3|320 Kbps] <Lounge, Chillout, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KTB - Another Day in Paradise (Highpass Remix)
-02. Skyfall 5 - Free (Deep Dub)
-03. Kim McNichols - Frozen
-04. Genevieve Somers - Moon Dust(   Читать дальше...   )Жанр: Lounge, Chillout, Deep HouseПродолжительность: 03:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB80BE60616C210EABD1C3E2AF62C569FCC83B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117815   (815479) от 24.03.2017
-
-VA - Chillout Hits Vol.3 (2017) [MP3|320 Kbps] <Chillout, Chilltrap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fliflo M. & SinDator - Winter Snow
-02. Michelle Buzz ft. Unlike Pluto - Found You
-03. Ember Island - Need You (Not Your Dope & Jakoban Remix)
-04. Fabian Mazur & Dia Frampton - Young Once(   Читать дальше...   )Жанр: Chillout, ChilltrapПродолжительность: 02:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6990C6B097B509C6304918E8383B21B4918C0DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382988   (815450) от 13.05.2020
-
-VA - Kraftsport Mix (2020) [MP3|320 Kbps] <Rock,  Hip Hop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815450.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Sum 41 - Still Waiting (2:38)
-2.Hilltop Hoods - Cosby Sweater (3:37)
-3.Papa Roach - Last Resort (3:19)
-4.Machine Gun Kelly - why are you here (2:55)(   Читать дальше...   )Жанр: Rock,  Hip Hop, OtherПродолжительность: 05:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16779F8EEC608BF369822F889955A45566DD1D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

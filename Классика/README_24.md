@@ -1,3 +1,32 @@
+###  Публикация: 1036602   (618836) от 21.07.2016
+
+Peter Szuts, Alfredo Bernardini, Paolo Grazzi, Concerto Armonico - Tomaso Albinoni: Concerti A Cinque Op.9 (Libro I) (1722) 1995 [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Concerto n.1 with violin in B flat major - Allegro    03:45
+02.  Concerto n.1 with violin in B flat major - Adagio    01:19
+03.  Concerto n.1 with violin in B flat major - Allegro    02:40
+04.  Concerto n.2 with oboe in D minor - Allegro e non presto    04:11(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2EAAB96617706F28A23B26EAFE85E4CC1ABB51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523107   (618536) от 15.07.2012
 
 Antonio Vivaldi - Shades of Red - Concertos & Sonatas for Recoder & Strings - Matthias Maute, Rebel / Jorg-Michel Schwarz (2005) [FLAC|Lossless]<Classical, Chamber Music,  Concert, Symph ...
@@ -736,35 +765,6 @@ Concerto For Piano And Orchestra No. 2 In B Flat Major Op. 83
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CB69A240887365F2CCFFF913A0A8EE55F04BD5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038435   (604756) от 29.07.2016
-
-Danzi - Der Berggeist, Oder Schicksal und Treue (2013) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франц Игнац Данци (1763—1826).
-«Горный дух, или Судьба и верность», романтическая опера в двух действиях (перв. исп. 1813).
-01—09. Увертюра и Действие I [41:33].
-10—21. Действие II [35:57].(   Читать дальше...   )Жанр: Classical, liveПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616728C9DE0C66BAAF390C57C64F92A1AA6AD3C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

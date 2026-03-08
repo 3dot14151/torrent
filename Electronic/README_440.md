@@ -1,3 +1,61 @@
+###  Публикация: 1518007   (161098) от 18.12.2021
+
+Buddha Lounge - The Best Of Lounge: Buddha Lounge Vol. 2 (2007) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rag-And-Bone Man (4:54)
+02. Beware Of The Rhythm King (4:32)
+03. Twisted Minds (4:55)
+04. Lunar Mix (4:16)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54ABE3BBC28E784F189C90063984DB26132D496B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518193   (160986) от 18.12.2021
+
+Markus Schulz - Global DJ Broadcast Year in Review (2021) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Hanging in a Moment
+02. Matt Fax & Estiva - Found
+03. London Grammar - Lose Your Head (CamelPhat Remix)
+04. Spada - Fantasya 3000(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 04:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19D9FFF634100512159EFEF75ED6803021FC73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433306   (160965) от 20.12.2020
 
 Барто - Светлое завтра (2017) [MP3|320 Kbps] <Electro-Punk, Electro-Clash>
@@ -682,64 +740,6 @@ VA - Relaxing Echoes: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94A84859E20466B3EE2BA99ADF7E00169104F633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599577   (159621) от 24.12.2022
-
-VA - Trance 2023 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig Connelly - Got To Give (3:59)
-02. Metta & Glyde - Build A Bridge (3:41)
-03. Stargazers - Stand Me Up Alive (3:47)
-04. Raz Nitzan - Moon Phases (3:47)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042D478D9F863491601DA4B77CD86083E5EE7AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599631   (159612) от 24.12.2022
-
-John Dopping - The Losing Struggle (2022) [FLAC|Lossless|WEB-DL|tracks] <Break Beat, House>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Dopping - Strange Place For Notes
-02. John Dopping - Hurt Me
-03. John Dopping feat. Remeya Kingston - What It Is To Fall
-04. John Dopping - Liberate(   Читать дальше...   )Жанр: Break Beat, HouseПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD6638FC3212B4DE231B17EBB62752276AE9C1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

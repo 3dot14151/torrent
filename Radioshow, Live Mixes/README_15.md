@@ -1,3 +1,61 @@
+###  Публикация: 1335433   (287910) от 02.11.2019
+
+Euphoric Nation - Live @ Armory Minneapolis, United States 2019-10-26 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287910.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Clawz SG - Xanax
+2. Estiva - Eclipse
+3. David Wise - Aquatic Ambience (Wæde Wätts Remix)
+4. Andretta - Fragments(   Читать дальше...   )Жанр: TranceПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278C29ABD65D8F9094CED82A84FD0ABCF53EA435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335414   (287863) от 02.11.2019
+
+Timmy Trumpet - Tomorrowland One World Radio Halloween Freak Show 2019-11-01 [MP3|320 Kbps] <Electro House, Hardstyle>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carnage ft. Timmy Trumpet & KSHMR - Toca
+02. Timmy Trumpet ft. Charlott Boss - Therapy
+03. Carnage & Timmy Trumpet ft. Wicked Minds - Nah Nah
+04. Knife Party - Internet Friends(   Читать дальше...   )Жанр: Electro House, HardstyleПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE20DE30B60B9FEF6931729D43DBB1C20ABD19A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335424   (287743) от 02.11.2019
 
 Nitrous Oxide - Live @ Club Mecca Prague, Czech Republic 2019-10-10 [MP3|192 Kbps] <Trance>
@@ -686,64 +744,6 @@ VA - Aly & Fila - Future Sound of Egypt 527 (2017) [MP3|320 Kbps] <Trance, Uplif
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80CE5ABF658B6BA214B4FA2D7FB9A52889338950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193687   (261975) от 22.12.2017
-
-VA - Markus Schulz - 3 Hour Set for Afterhours.fm End of Year Countdown (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solarstone & Forerunners - Dying Star
-02. Jeremy Olander - Araoz
-03. Gabriel & Dresden feat. Sub Teal - White Walls
-04. Jerome Isma-Ae & Tone Depth - Kiera(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 03:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792A3269956B72A313C3B3615ED0FC2F7111C59A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193873   (261819) от 23.12.2017
-
-VA - Ori Uplift & Darren Porter - Uplifting Only 254 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.FAN FAVORITE: illitheas - Levity
-02.FAN FAVORITE: Manuel Rocca - Amortentia
-03.Ross Rayer - Dreamer (Greg Dusten Remix) (EXCLUSIVE PREMIERE)
-04.Phynn Feat. Tiff Lacey - Try Again (Arctic Moon Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4B4FF09F5D2943EEBD4B66A2B942ACE9881730
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 921940   (569783) от 28.07.2015
+
+VA - 100 Золотых Танцевальных Хитов (2013) [MP3|256 - 320 кб/с]<Шансон, Поп-шансон>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569783.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ирина Круг - Перелетная Птица (03:50)
+002. Анатолий Полотно И Федя Карманов - Не Жалей! (03:43)
+003. Жека - Гуд Бай (04:14)
+004. Виктор Королев - Три Часа (03:29)(   Читать дальше...   )Жанр: Шансон, Поп-шансонПродолжительность: 07:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0062A9B66BF48FDEDC9CE1CD1D2FE620705129D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922489   (569742) от 28.07.2015
+
+VA - Хиты Забытых Дискотек (2015) [MP3|256 - 320 кб/с]<Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joy Michael - Dancin' (05:43)
+002. Nikita - Boys Boys (05:37)
+003. Paula Fina - Loving All The Night (06:28)
+004. Dust Man - King Of The Chetto (06:40)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 06:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5D3AFFA5F4E9EFDA783E5ABAC5FE59A27B27C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922377   (569682) от 28.07.2015
+
+VA - Top 100 Бешеный Клубняк в Машину 50x50 (2015) [MP3|256-320 кб/с]<Dance, Pop, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569682.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.140 Ударов В Минуту И Джинсовые Мальчики - Выше Тополей
+002.92 Redfoo - New Thang
+003.Alessiee - Помню Как Тебя Зовут
+004.Adam Lambert - Ghost Town(   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 07:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8EECCF3D982604B304743605559510CC29E579D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922413   (569616) от 28.07.2015
+
+VA - 100 Самых Красивых Песен (2015) [MP3|320 кб/с]<Pop, R&B, Rock, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569616.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mariah Carey - Without You (03:35)
+002. Sarah Connor - From Sarah With Love (05:07)
+003. Barbra Streisand - Woman In Love (03:52)
+004. Gary Moore - Still Got The Blues (06:11)(   Читать дальше...   )Жанр: Pop, R&B, Rock, RapПродолжительность: 07:22:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC9E6D1CAE81A3F0141D31F9B41D3D737DD741A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528995   (569581) от 30.07.2012
 
 VA - 538 Hitzone Best Of 2008 2CD (2012) [MP3|320 кб/с]<Dance, Pop>
@@ -671,134 +787,6 @@ VA - Hits Cocktail Vol.10 (2017) [MP3|320 Kbps] <Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F917B29195B3BAF07721A07CAE3BB466319B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555310   (565366) от 06.06.2022
-
-VA - The Golden Soul (2022) [MP3|320 Kbps] <Pop, Jazz, RnB, Soul>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565366.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marvin Gaye - Ain't No Mountain High Enough
-002. Bill Withers - Ain't No Sunshine
-003. Ledisi - my baby just cares for me
-004. The Jacksons - Push Me Away(   Читать дальше...   )Жанр: Pop, Jazz, RnB, SoulПродолжительность: 08:03:57 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BC88FBF401192E949B5CDF5C722ADEB24056C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555299   (565340) от 06.06.2022
-
-VA - Soft Pop Hits (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565340.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Easy On Me
-002. John Legend - All of Me
-003. Justin Bieber - Ghost
-004. Taylor Swift - Lover(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF02473E8DDD9C14E3BC162BF848C79350F1B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529837   (565281) от 01.08.2012
-
-VA - 538 Hitzone Best Of 2011 2CD (2012) [MP3|320 кб/с]<Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565281.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Продолжительность 01:18:59
-
-01 - Adele - Rolling In The Deep
-02 - Gotye feat. Kimbra - Somebody That I Used To Know
-03 - Pitbull feat. Ne-Yo,Afrojack & Nayer - Give Me Everything
-04 - Racoon - No Mercy
-05 - Gers Pardoel - Ik Neem Je Mee
-06 - Katy Perry - Firework
-07 - Glennis Grace - Afscheid
-08 - Lucenzo feat. Don Omar - Danza Kuduro(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DA7A984E25D8ECF4BEC50CF113BB2EC2661A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529988   (565247) от 01.08.2012
-
-VA - Солнечный Дэнс Музон. Зарубежный (2012) [MP3|256 кб/с]<Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565247.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Factorfunk - Checkmate (original mix)
-002. Coldplay - Paradise (Fedde Le Grand remix)
-003. Maroon 5 - I Shall Be Released
-004. Shakira - La Quiero A Morir (Je Laime A Mourir)
-005. Pitbull feat. Chris Brown - International love (UK Pop radio edit)
-006. Lady GaGa - Bloody Mary (Clinton Sparks Remix)
-007. Lucian Base feat. Eilah - I've Got No Reason (Radio Edit)
-008. Splash feat. Nick Austin - Adagio for strings (Scotty vocal mix)
-009. Bel Suono feat. DJ Magic Finger - Te quiero
-010. David Guetta feat. Sia - Titanium(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE02002C56BA47472CB570DC9AD5F201166F920
 ```
 
 https://mybot314.ru/tekegram_catalog/

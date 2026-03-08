@@ -1,3 +1,61 @@
+###  Публикация: 1144758   (625770) от 23.06.2017
+
+Asc - Trans-Neptunian Objects (2017) [MP3|320 Kbps] <Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625770.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sedna (12:48)
+2. Dysnomia (07:31)
+3. Eris (06:45)
+4. Haumea (09:49)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6CB58C37BB2113A1D3B7EA06EFA06DB143A094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144757   (625756) от 23.06.2017
+
+VA - Armada Sunset Vol.4 (2017) [MP3|320 Kbps] <Deep House, Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lost Frequencies feat. Axel Ehnstrom - All Or Nothing (Todiefor Remix)  3:34
+02.  Galavant - Falling (Acoustic Version)  3:12
+03.  Kraak & Smaak feat. Parcels - Stumble  4:31
+04.  Autograf feat. WYNNE - Nobody Knows  3:32(   Читать дальше...   )Жанр: Deep House, Downtempo, ChilloutПродолжительность: 02:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6D5009F0CE661F6919400C02F414F7F9D4F2B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144885   (625641) от 23.06.2017
 
 Hybrid Minds - Elements (2017) [MP3|320 Kbps] <Drum & Bass>
@@ -679,64 +737,6 @@ VA - Bella Mar 03 (Compiled by Einmusik) (2016) [FLAC|Lossless|WEB-DL|tracks] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66864478C35D2C8809CFA3D36AAE96F8E70E5F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035976   (622817) от 19.07.2016
-
-VA - A Place to Chill (2016) [MP3|320 Kbps] <Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillelektro - Poel (6:50)
-02. La Forge - Kiss the Cook (4:20)
-03. Solanos - Night Fishermen (5:36)
-04. Vincent Vegas - I Don't Miss It (4:53)(   Читать дальше...   )Производство: Ibiza Lounge RecordsЖанр: Lounge, Chill OutПродолжительность: 02:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6604D3A93B58F3C7BA1E66A5094BA9C261943326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036024   (622748) от 19.07.2016
-
-VA - Melodic Progressive House Vol. 06 (2016) [MP3|320 Kbps] <House, Melodic House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregory Esayan -  Make a Wish (Original Mix) 7:33
-02. Blugazer -  Ethereal Concepts (Shingo Nakamura Remix) 5:52
-03. BXT -  White Lynx (Original Mix) 6:10
-04. LavKastor -  E3 (Terry Da Libra Remix) 6:56(   Читать дальше...   )Жанр: House, Melodic House, Progressive HouseПродолжительность: 02:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E72DF714CDA3AB6BFE51C0B6C15B9D36A57541
 ```
 
 https://mybot314.ru/tekegram_catalog/

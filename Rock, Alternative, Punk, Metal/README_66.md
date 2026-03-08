@@ -1,32 +1,3 @@
-###  Публикация: 1620397   (1032117) от 20.03.2023
-
-Orphan - Lonely at Night (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely at Night (04:19)
-02. What Kind of Love Is This (04:07)
-03. Miracle (04:55)
-04. She Told Me (03:35)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19CF149A95438AA402D531DC98980328CBAF2499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620314   (1032116) от 20.03.2023
 
 Burn In Hell - Biological Warfare (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -739,6 +710,35 @@ Nightbreak - King Of The Rumble (2019) [FLAC|Lossless|image + .cue] <Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3C6EA1E3D573E7AC74FE236814BCBD08A45CCDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447491   (1031877) от 13.02.2021
+
+Love And Death - Perfectly Preserved (2021) [MP3|320 Kbps] <Nu-Metal, Christian-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infamy [00:01:51]
+02. Tragedy [00:03:36]
+03. Down [00:04:00]
+04. Let Me Love You (feat. Lacey Sturm) [00:03:52](   Читать дальше...   )Жанр: Nu-Metal, Christian-RockПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF418E07D95339B06938C8A4E078AEB642AC4D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

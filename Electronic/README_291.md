@@ -1,3 +1,61 @@
+###  Публикация: 938983   (475704) от 21.09.2015
+
+Alexander Volosnikov - All These Melodies (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bridges (05:38)
+02. Quiet Morning (04:31)
+03. I Want to Go to the Shore With You (04:05)
+04. Dark Nights, Bright Souls (06:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA00BB652A7B85E2FE5F52514233E319FF559112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406561   (475145) от 03.09.2020
+
+Pessimist - Atyeo (2020) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle, Breaks>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love In The Jungle (06:00)
+ 02. The Crawlers (06:03)
+ 03. Ridge Racer Revolution (06:35)
+ 04. No Fxxxing Soul (05:42)Жанр: Drum & Bass, Jungle, BreaksПродолжительность: 00:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB46674ACB3E21DAF3713DB4AC316559FC0EE93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057339   (475019) от 28.09.2016
 
 VA - Ministry Of Sound: Chilled Electronic 80s (2016) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
@@ -693,64 +751,6 @@ Bakradze - Restless (2016) LP [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A958C55B1B0F93AFCF90AAF4EBFE3EC310276FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057887   (473299) от 29.09.2016
-
-VA - Cocktail Lounge: Sexy Sounds for Lazy Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Mestizo Ensemble - Relax - Vonkerne Remix
-02. Bande-A-Part - Black Soul
-03. Berk & The Virtual Band - Suburbia - Happier Remix
-04. Selfish - Under Pressure(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656356D6D957AA813C7A23B92FC15730205B7045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320247   (473277) от 17.08.2019
-
-VA - Go Sports! Vol. 1 Maximum Level Workout Sounds (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473277.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Syke'n'Sugarstarr feat. Alexandra Prince - Are You Watching Me (Danielle Diaz Remix) [04:15]
-02.Joseph Armani & Baxter - Happy People (Ridwello Remix) [02:37]
-03.Marc Kiss, Sawo & Crystal Rock - Feels Good (Original Radio Edit) [03:06](   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 2:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A4CD308F8B8AB4E5D0FA96E08E3983030D6B62A
 ```
 
 https://mybot314.ru/tekegram_catalog/

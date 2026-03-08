@@ -1,3 +1,32 @@
+###  Публикация: 869309   (890832) от 15.02.2015
+
+VA - BRAVO Hits 88 (2015) [FLAC|Lossless]<Pop, Rock, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890832.jpg" />
+</div>
+
+
+###  Подробнее
+
+BRAVO Hits представляет собой серию музыкальных сборников с актуальными хитами из европейских чартов и регулярно издается на CD с 1992 года. "Основателем" серии был популярный молодежный журнал BRAVO. В дополнение к основной ряду BRAVO Hits, насчитывающем на данный момент 87 выпусков, в серии появились также BRAVO: The Hits (раньше - BRAVO: Best Of) и BRAVO (   Читать дальше...   )01. Mark Ronson feat. Bruno Mars - Uptown Funk
+02. Charli XCX - Break The Rules
+03. Calvin Harris feat. Ellie Goulding - Outside
+04. David Guetta feat. Sam Martin - Dangerous(   Читать дальше...   )Жанр: Pop Compilation, Pop, Indie Pop, Rock, Pop Rock, Electronic, Hip Hop, Electro, Synthpop, Europop, R&B, Pop Rap, Euro House, Indie RockПродолжительность: 02:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493ACA5319E6FD657CF87B541AB2622C45FD2522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494018   (890494) от 06.09.2021
 
 ABBA - Still Have Faith In You, Don't Shut Me Down (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop>
@@ -713,35 +742,6 @@ Hermes House Band - No.1 Gold Selection (Greatest Hits) (2006) [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D20BBF4B2DF2988DE7B6599671A05C54D1D1DAA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995691   (882844) от 12.03.2016
-
-VA - Got Hits! Perfect Pop Album (2003) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Can’t Get You Out of My Head (3:51)
-02. Justin Timberlake - Like I Love You (Basement Jaxx vocal mix) (4:29)
-03. Aaliyah - Try Again (4:46)
-04. DJ Sammy & Yanou feat. Do - Heaven (3:53)(   Читать дальше...   )Жанр: RnB, Swing, EuropopПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F05296EDD8D1BD5044C0DF0D63159AB531B0062
 ```
 
 https://mybot314.ru/tekegram_catalog/

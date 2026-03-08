@@ -1,3 +1,62 @@
+###  Публикация: 617300   (969884) от 14.02.2013
+
+VA - Welcome To Ibiza (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Offshore (Hayley Parsons & Future Disciple Remix) - Futuristic Polar Bears
+02. Sweet Dreams (Timo Juuti & Hector 87 Remix) - Avicii
+03. Rock That Beat (Original Mix) - Duher
+04. Armada (Luke Tolosan & Max Tiger Dirty Remix) - Luke Tolosan
+05. Bingo (Frankox Remix)Жанр: HouseПродолжительность: 03:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652E1FE58740E3BB8B707B5BFAAE85A5BD2DA474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358272   (969767) от 07.02.2020
+
+Rupesh Cartel - Contract (2005) [FLAC|Lossless|image + .cue] <Synth-pop, Trance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969767.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Contract 3:22
+2 One Pair Of Hands 4:04
+3 Contract (Breach Mix) 7:10
+4 Childhood's Faith 3:44(   Читать дальше...   )Жанр: Synth-pop, TranceПродолжительность: 00:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844B995AF886B00A65497B2A1BE28C9F2F8C0307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358328   (969761) от 07.02.2020
 
 Stars Crusaders - Welcome To Hydra (2017) [FLAC|Lossless|image + .cue] <Synth-pop>
@@ -698,64 +757,6 @@ VA - Euphonic 300 (Compiled and mixed by Kyau & Albert) (2019) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC15B5BCBD96114FE8DB402038C28807B5EEB7AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358450   (967309) от 09.02.2020
-
-VA - Bodybuilding 2020: 100 Motivational Tracks [MP3|320 Kbps] <Melodic House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967309.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Candy Winterfeld - Tonestar 4:01
-2. Brian Chesnik - Butch 4:01
-3. Bouks - Lifeform 4:01
-4. Bollen - Tiptop 4:01(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 06:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1EDED43A70B0108172D4F522FBD9E4097A90C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358856   (967236) от 09.02.2020
-
-Pet Shop Boys - Monkey Business (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Dance-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Monkey Business (Radio Edit) [3:10]
- 02 - Monkey Business (Prins Thomas Discomiks) [8:46]
- 03 - At Rock Bottom [3:17]
- 04 - Monkey Business (Friend Within Remix) [5:45]Жанр: Synthpop, Dance-popПродолжительность: 00:20:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4000C8E667651E09A386B47424F3844205125785
 ```
 
 https://mybot314.ru/tekegram_catalog/

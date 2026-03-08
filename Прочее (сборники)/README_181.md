@@ -1,3 +1,119 @@
+###  Публикация: 1709178   (62024) от 23.03.2024
+
+VA - Music News vol.355 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62024.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Loboda - Имя (03:24)
+ 002. Andery Toronto feat. Диман Брюханов - Надежда На Завтра (02:28)
+ 003. Arkanne - Полный Газ (02:20)
+ 004. AURORA - Some Type Of Skin (03:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B54348E900323BC79219CAFEC51F50E554147E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709191   (62004) от 23.03.2024
+
+VA - Music News vol.356 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62004.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юлия Савичева - Циклон (02:57)
+ 002. 2xA - Hypnotize (01:34)
+ 003. 4K feat. Макси АК - Блики Катаного Лба (04:17)
+ 004. 140 Ударов В Минуту - Я Останусь С Тобой (03:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF46CDDB1EF189F6C15F33BCBF38794AF4FBFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315207   (61965) от 24.03.2024
+
+VA - Понемногу отовсюду by Yuridar #B (1961-2022) Compilation Album [MP3|192-320 Kbps] <Rock, Blues, Others>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B-Zet - Ancient Person of My Heart (Le Tonnere Dance remix)
+02. Baba Blues - St. James Infirmary
+03. Baba Blues - Walk On
+04. Balligomingo - Goodbye(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 06:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5FE95A6686E46F82041218980DD6C8CB6593E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711280   (61377) от 29.03.2024
+
+VA - Music News vol.358 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61377.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. TUMANOVA - Влюбись, Если Осмелишься (02:36)
+ 002. After Forever, Doro - Who I Am (04:38)
+ 003. Akord - Rapirea Din Seray (03:51)
+ 004. Alex Rasov - There's Nothing That We Couldn't Be (03:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A20AAE91A7BC3CD88C62DA3F9DDEDF0D8EFAB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711029   (60782) от 04.04.2024
 
 VA - 70s Throwbacks Hits (2023) [MP3|320 Kbps] <Pop, Disco, New Wave, Ballad, Classic Rock>
@@ -629,122 +745,6 @@ VA - РАДИО БАТЯ - 004 (2024) [MP3|320 Kbps] <Different genres>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E80A7494C33CA2604B4DDC826E37ED615F4ECFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723937   (56234) от 17.05.2024
-
-VA - Music News vol.377 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56234.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Жасмин - Любовь-Морковь (03:06)
- 002. A'DI - Девочка Ночь (02:50)
- 003. ADRIAN HIS - Забыл Сказать (02:53)
- 004. AGAYAN - Темных Дел (01:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1766E83D7CB8515AF923558D9C9E3743D1ACBBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724077   (56188) от 18.05.2024
-
-VA - ЕвроХит Топ 40 Europa Plus 17.05.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jung Kook - Standing Next To You (3:26)
-02. Fred again, Baby Keem - leavemealone (3:42)
-03. Disturbed - The Sound Of Silence (Cyril Remix (3:05)
-04. Purple Disco Machine, Asdis - Beat Of Your Heart (3:29)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464BD0D571D16F5D5A8E88C9E0E2011906BA8448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723706   (56083) от 19.05.2024
-
-VA - РАДИО БАТЯ - 005 (2024) [MP3|320 Kbps] <Поп, Рок, Шансон, Другие>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дима Билан - Я просто люблю тебя (04:21)
-02. Андрей Губин - Ночь (03:42)
-03. HYDY - Невыносима (02:51)
-04. Форум - Что сравнится с юностью... (03:22)(   Читать дальше...   )Жанр: Поп, Рок, Шансон, ДругиеПродолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B579589BB51759FEAD296086326C600CB3CA914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724052   (56080) от 19.05.2024
-
-VA - РАДИО БАТЯ - 006 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Банд'Эрос - Китано (3:43)
- 02. Кино - Группа крови (4:49)
- 03. Игорь Тальков - Моя любовь (6:23)
- 04. Ace Of Base - Beautiful Life (3:40)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FABC673AFA53C37B655E42E7FE3CA59CB76397B
 ```
 
 https://mybot314.ru/tekegram_catalog/

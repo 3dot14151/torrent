@@ -1,3 +1,32 @@
+###  Публикация: 1674112   (161266) от 05.11.2023
+
+Rose Laurens - Compilation (2023) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  American Love
+ 02.  La Difference
+ 03.  Jouets cass s
+ 04.  Quand Tu Pars(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0440EE86E41BB9666B432E76B1BAE3F234783F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675052   (160544) от 07.11.2023
 
 VA - Chill Hits 2 (2023) [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Только хиты тебе в уши (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD130C6A1406A36C5211E37367287A4BE6104D41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270888   (153293) от 21.12.2018
-
-Adele - 100% Adele (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153293.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hello
-2. Someone Like You
-3. Send My Love (To Your New Lover)
-4. Water Under The Bridge(   Читать дальше...   )Жанр: PopПродолжительность: 03:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D5F6DEE9864E70777E1A86B9FDFEBB2555A892
 ```
 
 https://mybot314.ru/tekegram_catalog/

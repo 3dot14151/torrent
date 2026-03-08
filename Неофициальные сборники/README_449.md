@@ -1,3 +1,183 @@
+###  Публикация: 1067293   (408238) от 28.10.2016
+
+VA - Journey. Relaxing Instrumental Piano Bar and Smooth Jazz Music (2016) [MP3|320 Kbps] <Jazz, Lounge>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instrumental Jazz Music Ambient - Journey
+02. Jazz Piano Bar Academy - Smile Again
+03. Piano Jazz Calming Music Academy - What a Wonderful World
+04. Good Morning Jazz Academy - Shimmer of Mystery(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29695D6AE7AC68CAD186B6BAC30CD350E7F90689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413471   (408200) от 04.10.2020
+
+VA - Worldwide Rap Singles - Сентябрь 2020 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые синглы из США, России, Германии, Франции, Испании и Кореи выпущенные в сентябре 2020 годаUS (США) - 148 треков
+RU (Россия) - 255 треков
+DE (Германия) - 45 треков
+FR (Франция) - 29 треков(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 26:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5296A419E4EACC8DE89880DBCFC116665EAAC179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948856   (408146) от 22.10.2015
+
+VA - Музыкальное свежье русский выпуск 4 (2015) [MP3|320 кб/с]<Pop, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Lexx & Katya Tu - Заполняй (03:22)
+02. Open Kids - Не Танцуй! (03:34)
+03. Ева Бушмина - Не Преступление (04:05)
+04. Таня Степанова - Открой Глаза (03:31)(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 01:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0945C75C2067F62DF66C1D67CE8CD881DA0C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559158   (408118) от 13.10.2012
+
+VA - Top 100 Самые скачиваемые треки vol.8 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инь - Ян - Oh, Yeah!
+ 02. Юлия Волкова - Давай Закрутим Землю
+ 03. DJ Sanny J feat. Los Tiburones - Chaka Chaka (Sax Mix)
+ 04. Полина Гагарина - Нет
+ 05. Tacabro - Ritmo Della Calle (Radio Edit)
+ 06. One Republic - Feel Again
+ 07. Нюша - Воспоминание (Dj Nejtrino & Dj Baur Radio Remix)
+ 08. Dee & Crane - Let the Music Play (Radio Edit)
+ 09. Ocean Drive - Revolution (Radio Edit)
+ 10. Юлия Войс - Ненавижу Любя(   Читать дальше...   )Жанр: PopПродолжительность: 06:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C148D6BFE6828A897F2CAB69B9D962ABDA5C35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413519   (408097) от 04.10.2020
+
+VA - Свежак Vocal Trance NNM (2020) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond feat. Zoe Johnston - Reverie (3:52)
+02. Alex M.O.R.P.H. feat. Cheryl Barnes - Against The Wind (3:24)
+03. Alexander Popov & Enzo feat. Cari - Stranger Inside (3:14)
+04. Alpha 9 - Tell Me (4:07)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 06:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0633D5DAFA345A0132EEDE95BA1C7BBF4487E30D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413635   (408095) от 04.10.2020
+
+VA - Beatport Deep House: Electro Sound Pack #176 (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408095.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ryan Fuller - Virgin Of Rock (Original Mix)
+002. Davix Project - Caribe
+003. Jeff Bhaume - Caraibe
+004. Immure - Time (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FD6A16364A35A05B6F6D59EABD30A3127DAB0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413637   (408079) от 04.10.2020
 
 VA - Beatport Progressive House: Electro Sound Pack #179 (2020) [MP3|320 Kbps] <Progressive House, Electro>
@@ -613,192 +793,6 @@ Dance:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA5F7D65B4B8811BE51C9866210DF86AAAC51AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326040   (407363) от 18.09.2019
-
-VA - Rock Concept: Euro Edition (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407363.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sep7ember - Bullet
-002. Big Mother Gig - Obliterate
-003. Gene Simmons - Carnival Of Souls
-004. Northward - Timebomb(   Читать дальше...   )Жанр: RockПродолжительность: 10:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5F897A2525126B7F935508A9A86C133194A924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560046   (407306) от 14.10.2012
-
-VA - German TOP100 Single Charts (13.10.2012) [MP3|192-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psy - Gangnam Style
-02. Asaf Avidan & The Mojos - One Day-Reckoning Song
-03. Marteria, Yasha & Miss Platnum - Lila Wolken
-04. Rihanna - Diamonds
-05. Xavas - Schau Nicht Mehr Zuruck
-06. Lena - Stardust
-07. Lykke Li - I Follow Rivers
-08. Klangkarussell - Sonnentanz
-09. Onerepublic - Feel Again
-10. David Guetta Feat. Sia - She Wolf (Falling To Pieces)(   Читать дальше...   )Жанр: PopПродолжительность: 06:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F0CE1A78D795FE9238ECB6FCA9D4CA974B0E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413701   (407245) от 05.10.2020
-
-VA - Beatport Psy Trance: Electro Sound Pack #183 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407245.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Teorema - Tar Tak (Original Mix)
-002. Kiraz - Avenue 13
-003. Shyisma - Antana (Original Mix)
-004. X-Side - Unexplained(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E2ABB05712D6741C781897332D2010376D241F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413702   (407239) от 05.10.2020
-
-VA - Beatport Drum And Bass: Electro Sound Pack #184 (2020) [MP3|320 Kbps] <Drum & Bass, Bass, Bassline>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407239.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Deformaty - Dimension 5
-002. Furney - New York Silver Haze
-003. Evergen - Mind Bender
-004. Soul Intent - Rude Raver(   Читать дальше...   )Жанр: Drum & Bass, Bass, BasslineПродолжительность: 08:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73053C8AB029F5C467182372321923A10B210E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559825   (407194) от 14.10.2012
-
-VA - Рок в Авто (Power Metal) (2012) [MP3|320 кб/с]<Power Metal, Speed Metal, Heavy Metal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angra - Spread Your Fire
-02. Gamma Ray - To Mother Earth
-03. Dragonforce - Give Me The Night
-04. Helloween - First Time
-05. Wisdom - All Alone
-06. Avercage - In My Dream
-07. WINTERSTORM - Return To Glory
-08. Dragon Guardian - Fate
-09. Kerion - Everlasting Flight
-10. Dunedain - Fiel a mi libertadЖанр: Power Metal, Speed Metal, Heavy MetalПродолжительность: 05:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FB931C36A01FDAE767655FB85CB53C0BBA890F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413684   (407088) от 05.10.2020
-
-VA - Лучшие из лучших: Top 100 хитов радиостанций за Сентябрь (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407088.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dimitri Vegas & Like Mike & Quintino - The Chase (Klaas & MATTN Remix) (2:37)
-002. Steve Aoki & Timmy Trumpet feat. STARX - Tarantino (3:18)
-003. Дора - Втюрилась (Vincent & Diaz Radio Mix) (2:46)
-004. Storm DJs & Grishina - До кипения (3:28)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7444FC8623E807A68AA0E8F144E642F2987DBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

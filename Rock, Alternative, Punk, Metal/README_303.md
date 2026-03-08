@@ -1,32 +1,3 @@
-###  Публикация: 1276783   (787237) от 18.01.2019
-
-Maggie Rogers - Heard It In A Past Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give a Little (03:46)
-02. Overnight (03:20)
-03. The Knife (03:59)
-04. Alaska (03:08)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFA7E44AF2D604C8A90F5319439E39EA4289CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276780   (787230) от 18.01.2019
 
 The Twilight Sad - It Won/t Be Like This All The Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Post-Punk>
@@ -741,6 +712,35 @@ John Paul Jones - 5 albums, 7 CD (1985-2010) [FLAC|Lossless|image + .cue] <Prog 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:560142FCA858B92F5BF35B4B06CFAD83F88C9972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277124   (786974) от 19.01.2019
+
+VA - Rock Legends vol.1: All-Time Greatest Rock Ballads (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Styx - Boat On The River
+02. Supertramp - Breakfast In America
+03. Status Quo - In The Army Now
+04. Eagles - Hotel California(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF54EAAEEA1264F818AA73327E9E52AC94262B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

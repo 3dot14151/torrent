@@ -1,3 +1,61 @@
+###  Публикация: 1742801   (105510) от 13.08.2024
+
+Eric De Vries - My Battle (2024) [MP3|~245 Kbps (V0)] <Industrial, Rhythmic Noise, Techno-Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Maximum Chemical Dose [00:07:14]
+02 - Du Du Du [00:07:10]
+03 - Seven Tools [00:05:50]
+04 - I Kill My Endboss [00:09:19](   Читать дальше...   )Жанр: Industrial, Rhythmic Noise, Techno-IndustrialПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940010C30F31FB36C453DE7FD166DAAE51522D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742763   (105508) от 13.08.2024
+
+VA - Nahawand: Best of Emotional Trance (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ash K & Junior - The Sound Of Hope (Extended Mix) [8:05]
+02. W!SS with Ash K & Junior - Lonely Path (SounEmot Remix) [8:28]
+03. Iberian - And The Beginning Is Over (DreamLife Remix) [8:04]
+04. DreamLife & Grande Piano - Nemezis (Original Mix) [7:18](   Читать дальше...   )Жанр: TranceПродолжительность: 01:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA9FC0264EA81100013B3682BB4EB932379BF9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742771   (105506) от 13.08.2024
 
 VA - Essential Selection Ibiza 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
@@ -687,62 +745,6 @@ Ben Gold played:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A201E4300CC14A695C775AA7D8E69D8B375AC80F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745123   (105167) от 24.08.2024
-
-VA - Balearic Bar & Beach Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calmabohain - Benirras (Endless Summer Mix) (5:03)
-02. Lounge Groove Avenue - Te Quiero (Original Mix) (4:07)
-03. Jamiro Ferreirao - Expression (3:40)
-04. Living Room - Soul on Wax (Original Mix) (3:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5B8842DFAD4636916F12B18457278450AE2215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744973   (105162) от 24.08.2024
-
-Andrea Giuditta - Code-258 (2019) [FLAC|Lossless|tracks] <Techno, Peak Time Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Giuditta - 132 Beats (7:26)
-02. Andrea Giuditta - Black Out (7:08)Жанр: Techno, Peak Time TechnoПродолжительность: 00:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078D123B0E20189C2B3E59C570581F35B36C1318
 ```
 
 https://mybot314.ru/tekegram_catalog/

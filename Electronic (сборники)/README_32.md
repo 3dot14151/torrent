@@ -1,3 +1,32 @@
+###  Публикация: 1492091   (902352) от 30.08.2021
+
+VA - Ambient Budda Groove Party (2021) [MP3|320 Kbps] <Ambient, New Age, Meditation>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902352.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Magenta Room - Air Tomorrow
+002. Night Sky Pulse - Luminescence
+003. Cephas Teom - The Kingdom Of Heaven
+004. Intelligent Life - Lost In Translation(   Читать дальше...   )Жанр: Ambient, New Age, MeditationПродолжительность: 10:21:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D25ABCDB3B4593A82A3A53EEECC0795AC95AA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492158   (902348) от 30.08.2021
 
 VA - Deep & Electro House Vol.2 (2021) [MP3|256 Kbps] <Deep House, Electro House>
@@ -719,35 +748,6 @@ VA - Tropical Beach: Ibiza Progressive Trance (2016) [MP3|320 кб/с] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17F8EC7B98B1F467A21C782F8011B2566B82E53B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991512   (897767) от 04.03.2016
-
-VA - Minimal Party (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaboo - Ducking
-02. Alberto Bandiera - He He He (DJ Ciruzz Remix)
-03. Zareh Kan - No3287 (Beats Sounds Remix)
-04. Uriel Lakost - Minimal India(   Читать дальше...   )Жанр: HouseПродолжительность: 02:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2838675E924A471BAF3F5B6A3A67B689B95134
 ```
 
 https://mybot314.ru/tekegram_catalog/

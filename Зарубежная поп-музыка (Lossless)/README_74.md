@@ -1,3 +1,32 @@
+###  Публикация: 587398   (223526) от 10.12.2012
+
+Wilson Phillips - Wilson Phillips (1990) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On
+02. Release Me
+03. Impulsive
+04. Next To You (Someday I'll Be)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 852251   (222982) от 21.12.2014
 
 Selena Gomez - For You (2014) /Scene/ [FLAC|Lossless]<Pop>
@@ -716,35 +745,6 @@ VA - Blow Up Disco Vol 1: Club Series Italodisco Grooves (2019) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1F469DCE1C8384904AE14330572730E1A7F53D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343185   (218585) от 06.12.2019
-
-VA - Blow Up Disco Vol 5: Italo Heaven (A Sexy Selection Of Italodisco!) (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mikron's – Vision (instrumental Italo version) (7:06)
-02. Mikron's – Vision (Club mix) (7:29)
-03. E.B.'87 – Song Of Love (Italo mix) (4:54)
-04. E.B.'87 – Easy Love (4:20)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:207A1B3A2B4502E60EBDE29CDA7EF824FF009F57
 ```
 
 https://mybot314.ru/tekegram_catalog/

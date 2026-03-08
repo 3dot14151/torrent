@@ -1,3 +1,61 @@
+###  Публикация: 1142633   (641061) от 15.06.2017
+
+VA - Ibiza Beach Chill House Club Party Del Mar (2017) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterhour FlicFlac - Into Silence - Beach Summer Ibiza House Mix
+02. Beachsurfer Reloaded - Beachball - Extended Del Mar Version
+03. Robin Rhodes - Falling in the Ocean - No Chainsmokers Mix
+04. Dimitrova Burak - Balkan Express - Bucovina Yeter Clubmix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655A1D0BF66174CF2AD3187E62DE13F03DC1C00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142710   (641060) от 15.06.2017
+
+VA - Bifrost (Compiled by Erot) (2017) [MP3|320 Kbps] <Electronic, Ambient, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Periskop – Horizon (08:08)
+02. Erot – In a Distant Dream (Live Edit) (06:50)
+03. Erot – Empty Thoughts (One Arc Degree Live Edit) (06:28)
+04. One Man Orchestra – Tranquility (Erot Remix) (08:26)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 01:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A88860B046B76329EE00435CF31D09080AE368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142608   (641053) от 15.06.2017
 
 VA - Clubfete 2017.02 (63 Summer Club & Party Hits)  [MP3|320 Kbps] <Funky, Club House>
@@ -687,64 +745,6 @@ VA - Chillout Music For Cafes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81D0F90220225B99C5FFBC50D6CC60C9365239F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907572   (638084) от 12.06.2015
-
-VA - New Age Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oscar Salguero - With You [05:05]
-02. M. Vitoria - Love Devotion Surrender [05:05]
-03. The Synths - Moby Dick [04:19]
-04. Oscar Salguero - Lounge, Shopping and Go [04:54](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB5E9114CB8576F3E7162EE4DB0C71738DF139D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907210   (637979) от 12.06.2015
-
-Dj Feel - TOP 30 OF MAY (2015) [MP3|320 kbps]<Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jamaster A vs Solid Skill - One Touch (NLVi Remix)
-02. Anske - Little Dreamer (Original Mix)
-03. Super8 & Tab feat. Julie Thompson - Patience (Estiva Remix)
-04. Thomas Hayes feat. Joni Fatora - Neon (Alluvion) (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6A1F50ADC9617650C3FBBB4EDC5A791ADB31E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

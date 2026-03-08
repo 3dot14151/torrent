@@ -1,32 +1,3 @@
-###  Публикация: 1046387   (553055) от 26.08.2016
-
-Chariot - Chariot (1971) Reissue, 2007, Radioactive [MP3|320 Kbps] <Rock, Blues Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553055.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yolanda Jones
-2. You Let Me Love You
-3. Gamblin' Man
-4. The War Is Over(   Читать дальше...   )Жанр: Rock, Blues Rock, Hard RockПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:180E79C6E52A285826FE36BECC5548A1A725391D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046064   (553049) от 26.08.2016
 
 Winterstorm - Cube Of Infinity (2016) [FLAC|Lossless|image + .cue] <Power, Folk Metal>
@@ -745,6 +716,35 @@ Vasco Rossi - Stupido Hotel (2001) [FLAC|Lossless|tracks + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B3BE78273BEE19EB5D6CEF68200E820088425D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046713   (551929) от 27.08.2016
+
+Blue Stahli - Blue Stahli Instrumentals (2012) [MP3|320 Kbps] <Alternative Rock, Electro, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ULTRAnumb (Instrumental)  04:15
+02. Scrape (Instrumental)  04:46
+03. Anti You (Instrumental)  03:29
+04. Doubt (Instrumental)  03:58(   Читать дальше...   )Жанр: Alternative Rock, Electro, PunkПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A217003E82DC17A0A65ED44AC81B5D2599099B6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 590291   (146176) от 16.12.2012
+
+VA - SoSexy - Deep House Selection Vol.1-2 (2012) [MP3|320 кб/с]<House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diego Suarez - Bossa and Trip
+02. Marco Van Erpen - Keep On Dreamin
+03. Tiapason - Day Dream
+04. Tiapason - Wasting Time
+05. DJ Joseph B - All Kinds of Everything
+06. DJ Jerry - Keep in Mind
+07. Diego Suarez - Guitar Reverse
+08. Love Pacific Industries - Conselvee
+09. Musixx - Test Giose
+10. 4th Floor - A Night in New York(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 06:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F9DDAFA046960BB915A38AB0C29C83BE70530A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519976   (145529) от 26.12.2021
 
 VA - Seveneves Best of 2021 (2021) [MP3|320 Kbps] <Funky, Club-House>
@@ -740,35 +775,6 @@ VA - The Best Of House 2023 Part 4 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A9E9D0F56003ABC0411A13006C0B0BB4A8D5AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681237   (133099) от 02.12.2023
-
-VA - The Best Of House 2023 Part 3 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Clarke - Stayin Forever (Original Mix) [02:45]
-02. Floating Brothers - I Remember (Original Mix) [02:38]
-03. David Thompson - Crash Dance (Original Mix) [03:20]
-04. Sean Newman - Emptiness (Original Mix) [03:05](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C567DB424ADF9FAE915B826095CEA1E5BB54D53
 ```
 
 https://mybot314.ru/tekegram_catalog/

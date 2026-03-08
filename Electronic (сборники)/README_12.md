@@ -1,3 +1,32 @@
+###  Публикация: 1486521   (1004604) от 01.08.2021
+
+VA - Beatport Psy Trance: Sound Pack #321 (2021) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004604.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rugrats, Cosmic Illusion - Successful Digits
+002. Psykoveda - Equilibrium Point
+003. Magic Mizrahi - Existence
+004. Need One - Under The Shadow(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D951FFC522B2BD1A8CAAEA6B2316BB7941C534CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486536   (1004602) от 01.08.2021
 
 VA - Beatport Hard Dance: Electro Sound Pack #319 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
@@ -716,35 +745,6 @@ VA - Neurochemistry: Psychedelic Trance (2020) [MP3|320 Kbps] <Psy Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A85AD826BEA78E4A264C231CC861EC1FB501D1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350764   (1003006) от 07.01.2020
-
-VA - Light Up With Us: Deluxe House (2020) [MP3|320 Kbps] <Club, Dance House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003006.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jose Vilches - Groove Music (Original Mix)
-002. Jp Lantieri - Intimacy (Original Mix)
-003. Jerome Isma-Ae - Opium (Quivver Remix)
-004. Eimear - Wake Up (Talamanca Remix)(   Читать дальше...   )Жанр: Club, Dance House, ElectroПродолжительность: 09:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782BD06ADEF9E515021FF3FBCE615F69E288C72B
 ```
 
 https://mybot314.ru/tekegram_catalog/

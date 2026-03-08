@@ -1,3 +1,94 @@
+###  Публикация: 1352696   (1000888) от 15.01.2020
+
+Rage - Wings of Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000888.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - True [5:02]
+2 - Let Them Rest in Peace [4:31]
+3 - Chasing the Twilight Zone [4:30]
+4 - Tomorrow [5:02](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD14794B6C8166B47ECCCB157E8DFC616180725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352720   (1000864) от 15.01.2020
+
+Nightwish - Decades: Live in Buenos Aires (2019) 2CD [FLAC|Lossless|tracks + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Swanheart [2:50]
+ 02 - End Of All Hope [4:01]
+ 03 - Wish I Had An Angel [4:20]
+ 04 - 10th Man Down [5:28](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 02:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C5C723F4F18E357D068557811290810C9B1408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597274   (1000543) от 02.01.2013
+
+Compos Mentis - Fragments Of A Withered Dream (2003) [WavPack|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drained [05:17]
+02. Temptation [04:04]
+03. My Inner Beast [05:18]
+04. Within Me [03:51]
+05. Dead Among The Dead [04:15]
+06. The Prophecy [04:23]
+07. Black Clouds Gather [03:32]
+08. The Innate God [06:23]Жанр: Melodic Death MetalПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597503   (1000473) от 02.01.2013
 
 Seventh Wonder - The Great Escape  (2011) / Japanese Edition / [FLAC|Lossless]<Progressive Metal>
@@ -753,95 +844,6 @@ Angellore - La Litanie Des Cendres (2015) [FLAC|Lossless|image + .cue] <Doom Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A9C150ECE251D29BEB4851DF9E4704E657A6A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353670   (991987) от 18.01.2020
-
-Grin - Translucent Blades (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Shoegaze, Stoner Rock, Post Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helix (5:23)
-02. Orbital Grace (3:19)
-03. Translucent Blades (5:46)
-04. Husk (4:04)(   Читать дальше...   )Производство: Crazysane RecordsЖанр: Doom Metal, Shoegaze, Stoner Rock, Post Metal, Sludge Metal, Grunge, D'n'BПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6ECEEA9C368BBE0F206ECDF427B06B8E38FFB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389027   (991196) от 28.01.2013
-
-Defeated Sanity - 4 альбома (2004-2013) [FLAC|Lossless]<Technical Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда Defeated Sanity образовалась в 1994 году в Германии как проект Wolfgang Teske (гитара) и Lille Gruber (ударные). Цель у музыкантов была банальней некуда - играть настолько брутальный дэт-метал, насколько это возможно.01. Initiation
-02. Naraka
-03. Verblendung
-04. Lusting For Transcendence
-05. The Purging
-06. Verses Of Deformity
-07. Perspectives
-08. Frenzy
-09. MartyriumЖанр: Technical Brutal Death MetalПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432299   (990906) от 06.01.2012
-
-Royal Hunt - Show Me How to Live (2011) [FLAC|Lossless]<Progressive Neoclassical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive Neoclassical MetalПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

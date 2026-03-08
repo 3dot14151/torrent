@@ -1,3 +1,61 @@
+###  Публикация: 1045445   (559827) от 23.08.2016
+
+VA - DUBAI: Best Lounge Music, Vol. 3 (2016) [MP3|320 Kbps] <Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sesion de Los Flores - Gotas de Agua Dolce (6:32)
+02. Cazintel - Beerenmixtur (Radio Version) (3:49)
+03. Alex Nothlich - Our Work Is Done (5:23)
+04. Fred and Flow - Chill Bill (5:47)(   Читать дальше...   )Жанр: Lounge, ChillOutПродолжительность: 02:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6461C51FD7B4F17EC166CF07206437CF6D43745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045373   (559816) от 23.08.2016
+
+VA - Yellow Bikini, Vol. 1 (2016) [MP3|320 Kbps] <Deep House, Electronic, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B3nLizz - Heat [3:30]
+02. Da Angerboyz - Dreaming 2 [6:12]
+03. DJ Luciano - If U Come Closer [4:21]
+04. Dj 4Real - I'm Free [7:08](   Читать дальше...   )Жанр: Deep House, Electronic, Progressive HouseПродолжительность: 01:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617B615422F5550030324FAA97677445B8861C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304922   (559785) от 28.05.2019
 
 VA - Technique Summer (100 Percent Drum and Bass) (2019) [MP3|320 Kbps] <Drum & Bass>
@@ -687,64 +745,6 @@ Luther Vandross - Greatest Hits 1981-1995 (1995) Compilation [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F48BD7F4829128750056AD85FEC1B4265ED6FE70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045683   (558044) от 24.08.2016
-
-VA - Ibiza (2016) [FLAC|Lossless|tracks] <House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baum, Caal - Ridearound (Original Mix) (06:35)
-02. Level Groove - Disco Maniacs (Original Mix) (06:57)
-03. Wade - Hypnotic Beat (Chus & Ceballos Remix) (06:39)
-04. UnoMas (MIA), Roland Clark - I'm Coming In (Original Mix) (06:00)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C85F701EA78DEAE3C4506310A9A9ED84DFB9D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924668   (557675) от 04.08.2015
-
-VA - Beach Lounge Sounds (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miraflores - Waves of Love [05:25]
-02. Clementine Calaway - Like Electric [03:43]
-03. Saba Rock - Euforia do Amor [05:31]
-04. Alice Shelton - Lost Fear [03:48](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421A34F75875184DD24EC8784B55764FF5BAFD31
 ```
 
 https://mybot314.ru/tekegram_catalog/

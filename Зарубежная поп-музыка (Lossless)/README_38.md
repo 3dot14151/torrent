@@ -1,3 +1,32 @@
+###  Публикация: 1224128   (668106) от 08.05.2018
+
+West End Players and Singers - Highlights from Grease (2000) [FLAC|Lossless|image + .cue] <Musical, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Grease
+02.	Summer Nights
+03.	Hopelessly Devoted To You
+04.	You're The One That I Want(   Читать дальше...   )Жанр: Musical, PopПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD52C0EEA786807C365E7A9FCC0D6A6ABE8F896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137568   (667880) от 26.05.2017
 
 Вelindа Сarlislе - The Соlleсtiоn (2002) Japanese Edition [WV|Lossless|image + .cue] <Pop, Pop Rock>
@@ -715,35 +744,6 @@ Gianni Morandi - Questa E' La Storia Da "Canzoni Stonate" A "Banane E Lampone" (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE7B85B3F1AA5445D09148C0A53BDB141510B41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031581   (651488) от 04.07.2016
-
-Al Bano - The Best Platinum Collection (2007) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bianca Di Luna (3:32)
-02. Nel Sole (3:50)
-03. Quando Il Sole Chiude Gli Occhi (2:48)
-04. L'Oro Del Mondo (3:31)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD426CFCA3A989B354D9FCC1CFC6357C5BC10FE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

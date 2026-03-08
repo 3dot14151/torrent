@@ -1,3 +1,61 @@
+###  Публикация: 1801014   (66269) от 07.06.2025
+
+Markus Schulz - Global DJ Broadcast World Tour, Epic Club Prague, Czech Republic (2025-06-05) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KRISPR - The Angel Full of Eyes
+02. Kölsch & Kevin de Vries - Masterplan
+03. Massano - System
+04. Markus Schulz presents Dakota - Kanan(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 02:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8DA076E528F06D2214C772CDB90586B3ED3375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801430   (66205) от 11.06.2025
+
+Jennifer Lopez - The Reel Me (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Latin, Dance, Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby I Love U!    [0:04:29.22]
+02. Jenny From the Block (Seismic Crew's Latin Disco Trip)    [0:06:41.40]
+03. Jennifer Lopez feat. LL Cool J / All I Have (Ignorants mix)    [0:04:03.60]
+04. I’m Glad (Paul Oakenfold Perfecto mix)    [0:05:47.73](   Читать дальше...   )Жанр: Electronic, Latin, Dance, PopПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2C491F3BAC62FF308EB67FBBEA66FB5C5CCD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801536   (66201) от 11.06.2025
 
 VA - Nothing But... Late Night Deep House, Vol. 02 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -685,62 +743,6 @@ Last Grasp - Southern Malaise (2025) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D94A6A23613DC03056E2BF96CEB2EAC4F0DE3A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802921   (65944) от 20.06.2025
-
-VA - Ori Uplift - Uplifting Only Episode 645 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ADOVE – Lavender Field (Intro Edit) (Pre-Release Pick)
-02. Ronny K. vs Ziki – Memories (New World Remix)
-03. Twin View – Papillon (Sergey Salekhov Remix)
-04. XiJaro & Pitch – Unite Again (Corrado Baggieri Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADC51E9C463960D0538531FEAF4C93D0D699ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803181   (65926) от 21.06.2025
-
-Sander van Doorn - Punk'd (2004) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Punk'd (S.V.D. Remix) 10:43
-02 Punk'd (Original Mix) 11:33Жанр: TranceПродолжительность: 22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BA6B02B6116FB792A2BAE3842AF7C179B0A22D
 ```
 
 https://mybot314.ru/tekegram_catalog/

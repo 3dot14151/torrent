@@ -1,3 +1,183 @@
+###  Публикация: 1069776   (371387) от 05.11.2016
+
+Хроноп - Избранное (2006-2014) [MP3|320 Kbps] <Soft Rock, Indie Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лежу на луне (2006)
+02. Напиваются (2006)
+03. Не певец (2006)
+04. Девушка и кошка (2007)(   Читать дальше...   )Жанр: Soft Rock, Indie RockПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA090CF2F92DF734471697861E91E858C62557F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572859   (371379) от 14.11.2012
+
+VA - Furious Dubstep Attacks From Evolinte Vol.2 (2012) [MP3|320 кб/с]<Dubstep, Drumstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371379.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Furious Dubstep Attacks From Evolinte Vol.2 (2012)
+Год: 2012
+Жанр: Dubstep, Drumstep
+Продолжительность: 02:25:26Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:01.	Badklaat - Freq Skank (Instigate Remix)
+02.	Bare & Mark Instinct - Fucking Vicious(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3F62374C5F9F0BE52BFBC7052A148627387E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415889   (371330) от 14.10.2020
+
+VA - Шансон Осень (2020) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Розенбаум - Почти (5:22)
+02. Игорь Ашуров - Всё Равно Тебя Люблю Я (5:20)
+03. Наталья Лапина - Потрёпанная кукла (5:00)
+04. Тимур Темиров - Капитальные Друзья (4:56)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D498B4C7295F26D1D0AB37B4DA70C26168860EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069608   (371085) от 05.11.2016
+
+Airbourne - The Very Best (2016) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ready To Rock
+02. Runnin' Wild
+03. When The Girl Gets Hot (The Love Don't Stop)
+04. Raise The Flag(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B95BCBB4B466879BB3964F4A77F716D92D78CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069855   (371010) от 05.11.2016
+
+VA - Rock Collection 1990 (2016) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+
+01. Demolition Hammer - .44 Caliber Brain Surgery
+02. Sodom - An Eye for an Eye(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 27:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C82F07C25BE7470464D3FD9F17700FB781BB66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070062   (370875) от 05.11.2016
+
+VA - Hits of My Soul Vol. 17 (2016) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Breaking Benjamin - The Diary Of Jane (03:21)
+02. Megadeth - Symphony Of Destruction (04:07)
+03. Staind - Fade (04:06)
+04. Deep Purple - Highway Star (06:09)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45635E511A22BF479B702AE6A3674903D0B13283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254774   (370821) от 15.10.2018
 
 VA - After Time: Electronics Music (2018) [MP3|320 Kbps] <Electronic, Techno, Experimental>
@@ -571,180 +751,6 @@ VA - Jazz Piano Essentials - Calming & Relaxing Jazz Piano (2015) [MP3|320 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CBCB54896CF2EDA117B12BB841CC943CE791E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416313   (369532) от 15.10.2020
-
-VA - Love Songs Best 100 (2020) [MP3|320 Kbps] <Pop, Soul, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369532.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. John Lennon - Love (03:22)
- 002. Maroon 5 - Sugar (03:55)
- 003. Avicii - Waiting For Love (03:51)
- 004. Lady Gaga - Million Reasons (03:27)(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 06:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51195D05C31101EAA36A0F40AE860973F46B0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416129   (369531) от 15.10.2020
-
-VA - The Tropical Summer: Fresh Chillout Mix (2020) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inward Universe - Don't Stop
-02. DJ Santiyago - Where You Are
-03. Harro Triptrap - Mother Sun
-04. Sunlight Project - I See You(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC23360B11C20450E20DF06F413E6E83C8A0203D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176540   (369514) от 22.10.2017
-
-VA - По волне моей памяти: Том 7 (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Владимир Кузьмин - Когда меня ты позовёшь  5:31
-02.  Максим Леонидов - Не забудь  4:07
-03.  Юрий Антонов - Если пойдем вдвоем  3:05
-04.  Алла Пугачёва - До свиданья, лето  4:40(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CA9D1094F2B9842E9D81A7E03CFFD3B2431E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327850   (369499) от 27.09.2019
-
-VA - Dance Hits Collection 90s Vol.3 (2019) [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369499.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. B.B.E. - Flash (Club Mix) 7:53
-002. Klubbheads - Klubbhopping (Klubbheads Edit) 3:10
-003. DJ BoBo - Pray (Airplay Mix) 3:51
-004. Dr. Alban - One Love (Extended Version) 6:04(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 08:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484BF2CBDA61ECEA56743AB8DAA12CF7D17A0DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949435   (369468) от 26.10.2015
-
-VA - Сборник - 78 оборотов (Эстрада 1940-1960-х годов на 78 оборотных пластинках) - Коллекция (1940-1960) [MP3|320 кб/с]<Эстрада, Инструментальная Музыка, Джаз>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369468.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Потанцуем - фокстрот, Ланни Дэй, оркестр
-002. По набережной - фокстрот, ансамбль ЭМИ
-003. Колокола - танец, концертный ансамбль
-004. Анна - полька, концертный ансамбль п/у Ф.Криша(   Читать дальше...   )Жанр: Эстрада, Инструментальная Музыка, ДжазПродолжительность: 28:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA34CDEEE00730D5E10F05AF5C5663EB1D1FD7BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 721468   (369443) от 12.11.2013
-
-Александр Новиков - Избранное [4CD] (1984-2013) (2013) [MP3|320 кб/с]<Авторская песня, шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Голубок (2003) (03:00)
-02. А в Париже (2007) (04:45)
-03. Люблю сейчас (2007) (03:50)
-04. Вчера (2007) (04:38)(   Читать дальше...   )Жанр: Авторская песня, шансонПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F5F09589D30C18F3D81C2CAE704C17D031F3C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

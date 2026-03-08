@@ -1,3 +1,32 @@
+###  Публикация: 1104083   (880188) от 15.02.2017
+
+VA - Автозвук. Отборный зимний хит. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880188.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mainstream One - Нам Солнце Светит Ярче 3:00
+002. Weel - Раздевать Тебя 3:48
+003. Стас Видяев - Рандеву 2:46
+004. The Vamps Feat. Matoma - All Night 3:18(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02CA6FBA5C50A5F312846407307C5B3C950C2AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104430   (880179) от 15.02.2017
 
 VA - Полный отрыв выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
@@ -719,35 +748,6 @@ VA - 100 пудовые зимние хиты на Europa Plus. Сборник �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4B10733BF3C535D9FDEE6F46D3E07E4C1D1CDDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374769   (871188) от 11.04.2020
-
-VA - German Top 100 Single Charts 10.04.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ramon Roselly - Eine Nacht
-02. The Weeknd - Blinding Lights
-03. Shindy - What's Luv
-04. SAINt JHN - Roses(   Читать дальше...   )Жанр: PopПродолжительность: 05:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB65A7879E5F857E5B72831A37295988A7E37EC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

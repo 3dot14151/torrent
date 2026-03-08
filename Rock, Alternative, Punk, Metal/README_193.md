@@ -1,32 +1,3 @@
-###  Публикация: 1099677   (903582) от 02.02.2017
-
-Penelope Houston - Cut You (1996) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Sign 4:12
-02. Sweetheart 4:20
-03. Scratch 2:43
-04. Locket 3:37(   Читать дальше...   )Жанр: Rock, Alternative Rock, Folk RockПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E355B2054E6C95C3E593786802B248B0E7940E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369275   (903567) от 23.03.2020
 
 Santana - Supernatural (1999) Special Russian Version, Golden Collection [FLAC|Lossless|image + .cue] <Latin Rock>
@@ -748,6 +719,35 @@ Pink Floyd - Delicate Sound Of Thunder (1988) [FLAC|Lossless|tracks + .cue] <Psy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:892407FD3EDCEA8BA6BC1853E1F4F58EDDAD3F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369626   (902031) от 24.03.2020
+
+Stephen Malkmus - Traditional Techniques (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACC Kirtan (06:19)
+02. Xian Man (04:06)
+03. The Greatest Own In Legal History (03:47)
+04. Cash Up (04:06)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D056E4B1493C3B42AECD57EA97506899ADC611
 ```
 
 https://mybot314.ru/tekegram_catalog/

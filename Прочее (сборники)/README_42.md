@@ -1,3 +1,119 @@
+###  Публикация: 1505465   (802739) от 28.10.2021
+
+VA - Music News vol.144 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Елена Бергер - Я Не Вернусь (03:51)
+ 02. Alfons feat. B3nte & Jessica Chertock & B3va - Puppeteer (02:33)
+ 03. A-Mase feat. Sharliz - I Never Felt So Right (03:31)
+ 04. Besomage feat. Antomage & Bromage - Thank You (02:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48973F017C09C558A160953D8DE9872BD78515D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384419   (802655) от 20.05.2020
+
+VA - Hot New Rock (2020) [MP3|320 Kbps] <Dance, Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pretty Reckless - Death By Rock And Roll
+02. Grey Daze - Soul Song
+03. Biffy Clyro - Tiny Indoor Fireworks
+04. Frank Carter & The Rattlesnakes - Bleed(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 03:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4381524BB0A2BBA58B4975AF85315B11457C83C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384371   (802643) от 20.05.2020
+
+VA - Acoustic Covers (2020) [MP3|320 Kbps] <Pop, Rock, Acoustic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passenger - Dancing in the Dark (Recorded At Deezer, Sao Paulo)
+02. José González - Heartbeats
+03. Birdy - Skinny Love
+04. Isaac Gracie - you Only Live Once(   Читать дальше...   )Жанр: Pop, Rock, AcousticПродолжительность: 03:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF871A41C1A604D1B68CF4BC0B68052A77560CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199139   (802382) от 14.01.2018
+
+VA - Авторадио: Парад ретро-хитов (2018) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802382.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Silent Circle  -  Touch In The Night  5:32
+002.  Gloria Gaynor  -  I Will Survive  3:19
+003.  Dschinghis Khan  -  Moscau  5:03
+004.  Земляне  -  Трава у дома  4:24(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 14:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F552173FEF3A316DF9FCCE776BA4D7A39CAA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010558   (802250) от 25.04.2016
 
 VA - Русский хит на все 100 №3 (2016) [MP3|256-320 кб/с] <Pop>
@@ -629,122 +745,6 @@ VA - New Year's Eve Party Hits 2019 (2018) [MP3|320 Kbps] <Dance, Electronic, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65DC3F07F727CDD0FECF6073A82130B27C6749D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273621   (799361) от 03.01.2019
-
-VA - ЕвроХит Топ 40 Europa Plus Итоги Года 2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Whatever It Takes 3:22
-02. Merk & Kremont feat. DNCE - Hands Up 2:46
-03. Jax Jones feat. Ina Wroldsen - Breathe 3:28
-04. Luis Fonsi & Demi Lovato - Echame La Culpa 2:54(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0085C539BDDAE0B6DCED6E1CC5AB95F0B40BD86A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505060   (799294) от 01.11.2021
-
-VA - Ремейки и каверы NNM 3 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инна Желанная, Gruppa L'eto - Время есть, а денег нет (5:03)
-02. ЛАВ - Это не любовь (4:34)
-03. Кватро - Немного Жаль (Филипп Киркоров Cover) (4:19)
-04. Моя Мишель - Зима в Сердце (Гости из Будущего Cover) (4:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3109D1EB20F86C9F4EC3FD81785CDCEEC5765C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121899   (799256) от 04.04.2017
-
-VA - Beatport Trance  Pack (04.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  TrancEye - Ad Astra (Extended Mix)  6:38
-02.  Andre Visior & Mind X - Eclipse (Original Mix)  6:57
-03.  Solis & Sean Truby pres. S&ST - Roots (Extended Mix)  6:40
-04.  Sheridan Grout & Michele C - One Chance (Steve Allen Remix)  5:47(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 02:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9D75446FF95B484B81E84F327AD12B4A31674B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122236   (799171) от 04.04.2017
-
-VA - Хитовая Автодискотека 50х50 (2017) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799171.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  DJ Tarantino - Кукушка (Cover Виктор Цой)  4:20
-002.  Estradarada - Вите надо выйти (Slider & Magnit Official Remix)  4:45
-003.  Kristina Si - Mama Boss (DJ AlexMini Remix)  4:45
-004.  MCB 77 - Dangerous Game (Original Mix)  4:03(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 07:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E503C267A8BF949ED73A310D792273D53EFB9642
 ```
 
 https://mybot314.ru/tekegram_catalog/

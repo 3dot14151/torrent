@@ -1,3 +1,196 @@
+###  Публикация: 1316277   (507713) от 24.07.2019
+
+VA - Blues Forever, Vol.87 (2018) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Sponza - Fire (4:10)
+02. Alan Gerber - Bye Bye Baby Blues (4:13)
+03. Anthony Gomes - The Whiskey Made Me Do It (3:01)
+04. Backbone - Midnight Silhouette (5:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:945800F647EA56B6DDE42680F291A9A32A1E966E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316140   (507710) от 24.07.2019
+
+VA - This Merry Planet - Super Rare Disco Vol.4 (2019) [MP3|320 Kbps] <Disco, Funk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+
+01.El Coco - Cocomotion (10:30)
+02.Michele - Can't You Feel It (09:48)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711CA571D7764F48CECEA6E175F3CC1B0EF9D823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537359   (507670) от 25.08.2012
+
+VA - Ultimate (2004-2012) [MP3|320 кб/с]<Drum & Bass,Trance,House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507670.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dub Zero - Ragga Hammer
+        2. DNB Exclusive neurofank mix DJ Leo - Bez nazvaniya
+        3. DsT Filthstep C99 - Stop You Every Single Time
+        4. Level 67 - Fistf*cker
+        5. Muffler - Pinball FantasiesЖанр: Drum & Bass,Trance,HouseПродолжительность: 11:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0853BB88B4954138BDEBEF461BC741093DF90D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538952   (507631) от 25.08.2012
+
+VA - Just Great Songs (2012) 3CD BoxSet[MP3|320 кб/с]<Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Buble - Lost [03:42]
+02. Damian Rice - Cannonball [05:11]
+03. Charlene Soraia - Wherever You Will Go [03:19]
+04. Daniel Merriweather - Red [03:55]
+05. Sade - Soldier Of Love [04:35]
+06. Lemar - 50/50 [03:26]
+07. Natalie Imbruglia - Torn [04:06]
+08. Gavin DeGraw - I Don't Want To Be [03:39]
+09. Newton Faulkner - Dream Catch Me [03:58]
+10. John Mayer - Heartbreak Warfare [03:54](   Читать дальше...   )Жанр: Pop, RockФормат: BoxSet 3CDПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F205B5EA9AB438438FB416A15F1F6B6024A6091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538984   (507624) от 25.08.2012
+
+VA - Latest And Greatest Great British Artists (2012) 3CD BoxSet[MP3|320 кб/с]<Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01:10:19
+
+01. Dusty Springfield - You Don't Have To Say You Love Me [02:50]
+02. Tom Jones - Delilah [03:24]
+03. Cliff Richard - Move It [02:23]
+04. The Shadows - Apache [02:55]
+05. The Troggs - I Can't Control Myself [03:06]
+06. The Zombies - She's Not There (Live) [03:27]
+07. Donovan - Mellow Yellow [03:42]
+08. Mott The Hoople - All The Young Dudes [03:32](   Читать дальше...   )Жанр: Pop, RockФормат: BoxSet 3CD ( Remastered Version 2009 )Продолжительность: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA616CB96A2D155877ED4C534019DDFA8356E62B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539157   (507619) от 25.08.2012
+
+VA - Территория Зарубежных Новинок (2012) [MP3|256 kbps]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Don Omar - Zumba
+002. David Argunetta feat. Andrew Mastilias - Indigo
+003. Marlon Roudette - Anti hero (Brave New World)
+004. Selena Gomez &amp; the Scene - Hit the Lights
+005. Richard Durand feat. Hadley - Run To You
+006. Lady Gaga - You And I (10 Kings Radio Edit)
+007. Madonna feat. LMFAO &amp; Nicki Minaj - Give Me All Your Luvin'
+008. Shakira - La Quiero A Morir (Je Laime A Mourir)
+009. Daddy Yankee feat. Don Omar - Lovumba (Official Remix)
+010. David Guetta feat. Nicki Minaj - Turn Me On (Extended Mix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8EDC4746A4008289BB3E6601F60E35C0093DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538950   (507596) от 25.08.2012
 
 VA - Абсолютный Хит. Зарубежный (2012) [MP3|256 кб/с]<Dance, Pop>
@@ -612,180 +805,6 @@ VA - В машине с музыкой Vol.284 (2022) [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:711F42A5680CEEAF6F4F72A1996B360DC9AF47D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933430   (506167) от 01.09.2015
-
-VA - TOP August (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alla Pugacheva - Kafe Tantsuyuschih Ognei' (Anton Ishutin Nu Disco Edit) (05:19)
-02. Parov Stelar feat. Angela McCluskey - Don't Believe What They Say (04:33)
-03. Noiseshaper - Movin' Together (02:57)
-04. Natema, Enzo Gomez feat. Jeremy Goddard - BMW (Original Mix)Жанр: Electronic, Lounge, Pop, DeepПродолжительность: 01:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9552972D5A880DC1541195FC848BA2C07761748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562787   (506113) от 12.07.2022
-
-Kim Wilde - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. View From A Bridge
-02. Cambodia
-03. Action City (2020 Remaster)
-04. 1969(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:211D2EC75EA19C438F050DF48C39531EA267B6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562569   (506108) от 12.07.2022
-
-VA - В машине с музыкой Vol.285 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodybangers Feat. & Stephen Oaks - Hot In Herre (02:17)
-02. Faruk Orman  - Work Bitch (03:04)
-03. Группа Кукла М  - Абдулла (03:06)
-04. Лекко - На Весь Район (02:55)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9944B1A36226DE5675A8E9B3444C051B900DB0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933336   (506064) от 01.09.2015
-
-VA - Rock Collection 1982 (2015) [MP3|320 кб/с]<Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1Жанр: Rock, MetalПродолжительность: 01:13:41
-
-01. Girlschool - Screaming Blue Murder
-02. Aerosmith - Lightning Strikes(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC5547B379D5BA147FA224F5A0DE5BCB2A57292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933329   (506011) от 01.09.2015
-
-VA - Rock Collection 1983 (2015) [MP3|320 кб/с]<Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1Жанр: Rock, MetalПродолжительность: 01:14:22
-
-01. Journey - Chain Reaction
-02. Europe - Memories(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C2B897FB86243870C03C3DCFD737C05A5DC789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933370   (506001) от 01.09.2015
-
-VA - Всё сразу 200 хитов Выпуск 5 (2015) [MP3|128 - 320 кб/с]<Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506001.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ленинград - Сладкий сон
-002. Movetown feat. Ray Horton - Here Comes The Sun (Radio Edit)
-003. Ленинград - Менеджер
-004. Rammstein - Mutter(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842F4DF614BCEE6D7A2DE922866B21CB8EA46C3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

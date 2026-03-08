@@ -1,3 +1,61 @@
+###  Публикация: 1155115   (531357) от 04.08.2017
+
+Milli Vanilli - Greatest Hits (2006) [FLAC|Lossless|tracks + .cue] <Europop, Hip-Hop, 80's>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Or Nothing (3:22)
+ 02. Baby Don't Forget My Number (4:10)
+ 03. Blame It On The Rain (4:09)
+ 04. Boy In The Tree (3:12)(   Читать дальше...   )Жанр: Europop, Hip-Hop, 80'sПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E0C1C7E3F69EEE24C3E20318D0BDC71AA91FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240199   (531281) от 09.08.2018
+
+VA - Kiss Kiss Play Summer 2018 [MP3|320 Kbps] <Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531281.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. I Do not Say No - Boomdabash & Loredana Berte
+02. From Zero A Cento - Baby K
+03. A Great Party - Luca Carboni(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 02:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EA88CA214585E7D956C280ACD4F1425499B9CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926750   (531272) от 11.08.2015
 
 VA - NOW That's What I Call Music! 91 (2015) 2CD[FLAC|track+.cue]<Pop, Electronic, Pop-Rock, Dancepop, Funk, Soul, House, R&B, Hip-Hop>
@@ -698,64 +756,6 @@ VA - Together As One (A Tribute To Damilola Taylor) (2003) [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44A1A1D0A099DBFE1DBC43285D1803C232181745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313255   (528175) от 07.07.2019
-
-Karen Cheryl - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карен Шерил, настоящее имя - Изабель Моризе (Isabelle Morizet). Французская диско-поп певица до 90х, в настоящее время ведущая на телеканале "France 3". Выпустила только эти два предлагаемых альбома на английском языке в стиле классического диско.01. There's A Sweet Melody (5:02)
-02. Sing To Me Mama (3:10)
-03. Let Me Be (4:02)
-04. Hold On (3:11)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63183F977A71DFDF01470EBA55258ED2246AE89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052391   (528121) от 14.09.2016
-
-VA - Le Son Dancefloor Summer (2016) [MP3|256~320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528121.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Imany - Don'T Be So Shy (Filatov & Karas Remix)
-02. Sia Feat. Sean Paul - Cheap Thrills
-03. Kungs & Cookin On 3 Burners - This Girl(   Читать дальше...   )Жанр: PopПродолжительность: 03:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669A6CFE98D4FB4C62E9DD2E5E8BA51652E7B454
 ```
 
 https://mybot314.ru/tekegram_catalog/

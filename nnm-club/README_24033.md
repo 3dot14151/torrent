@@ -1,26 +1,31 @@
-###  Публикация: 477865   (98606) от 04.04.2012
+###  Публикация: 478354   (98671) от 05.04.2012
 
-[Wallpapers] Desktop Wallpapers Pack 37
+VA - Absolute Dance April (2012) [MP3|320 кб/с]<Dance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98606.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 37 
-Название:  Desktop Wallpapers Pack 37 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 4342х1558
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Vincent Voort - Driven (original mix)
+02. Rico Bernasconi & Beenie Man feat. Akon - Girls (T & K remix)
+03. Dazzle - Global Forcast (original mix)
+04. Sander Van Doorn - Outro (Edx's festival mix)
+05. Rene Rodriguez & DJ Antoine feat. MC Yankoo - Shake 3X (radio edit)
+06. Infected Mushroom - Pink Nightmares
+07. Cut & Run - Bangkokd (original mix)
+08. Stan Kolev & Matan Caspi - Nirvana (original mix)
+09. Alexey Romeo & Plage feat. Alateya - Summer Night (Dabruck & Klein remix)
+10. Fresh - Hot Pursuit (Dave Lebon remix)2012Жанр: DanceПродолжительность: 05:25:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D3EBA47A1612E962BDB33648CF95209E4D44277
+magnet:?xt=urn:btih:9E4692B90BC96A07F216EA20C5930E3A7FF02CFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,115 +33,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822157   (98605) от 05.10.2025
+###  Публикация: 478122   (98670) от 05.04.2012
 
-Sparks - MADDER! (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porcupine
-02. Fantasize
-03. Mess Up
-04. TheyЖанр: SynthpopПродолжительность: 00:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148E6D222494EFE4DB8AF097E6DDEFC8E04712A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478154   (98604) от 04.04.2012
-
-Каникулы в Мексике - 2. Выпуск №23 (2012.04.04) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98604.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6411DCBA68916AD46FB23516410DE46A6CF73AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822158   (98603) от 05.10.2025
-
-Отцы и деды (1982) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой фильма, недавно вышедший на пенсию, остается человеком энергичным и жизнелюбивым. И решил этот мужчина в полном расцвете сил, способный остановить трактор и спрыгнуть с балкона, доказать окружающим, что все еще впереди и что он, если захочет, сможет все, даже жениться...Производство: СССР / Киностудия им. М.ГорькогоЖанр: мелодрама, комедияРежиссер: Юрий ЕгоровАктеры: Анатолий Папанов, Валентин Смирнитский, Алексей Ясулович, Галина Польских, Людмила Аринина, Лидия Кузнецова, Евгений Лазарев, Николай Трофимов, Вадим Андреев, Николай МерзликинПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E1D15445DB131B771E186E4E7257CE1DFB7C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477480   (98602) от 04.04.2012
-
-FK - Музыка сильных (Mixtape) (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+VA - EveryBody Dance Now! Весна (2012) [MP3|256 kbps]<Pop | Dance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98602.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Музыка сильных (Интро от Diamon)
- 02. Не гони (Feat Зомб & E.R.KraFT & FILIMON )
- 03. До конца (Feat Diamon & Зомб)
- 04. Кушать подано (Feat N.A.)
- 05. Ночная жизнь (Feat E.R.KraFT & Diamon & Mister Mars)
- 06. Скит от Аттилы
- 07. Начало (Feat Attila)(Attila Prod.; Scratch Electro DJz)
- 08. Чувак это рэпчик (Feat h1Gh & B.NoFace ) (GreySide prod.)
- 09. Большего счастья нет (Feat Зомб)
- 10. Проверено временем (B.NoFace & E.R.KraFT & Mister Mars)(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 01:08:10
+01. Astero & Inusa Dawuda - I don't know
+02. Azuro feat. Elly - Toca me (Video Edit)
+03. Radio Killer - You and me
+04. Drei Ros feat. Diedra - Crazy
+05. Mohombi - Maraca
+06. Offbeat Orchestra feat. Sunstroke Project - Epic sax
+07. David Guetta feat. Jennifer Hudson - Night of your life
+08. Nirvana - Smells like teen spirit (Larin Disco Fever remix)
+09. Deepside Deejays - Never be alone
+10. Slam DJ's feat. Zeni - Touch(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:47:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7F4466947AA1AF2216606F2117ED77FDB44EFD6
+magnet:?xt=urn:btih:96EB52D9DB2A4CD4AFBB31F6451D4E1E02FAB16C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -144,28 +68,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822117   (98601) от 05.10.2025
+###  Публикация: 478640   (98669) от 05.04.2012
 
-Lola Young - I’m Only F**king Myself (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+VA - Club music for Djs vol.11 (2012) [MP3|320 кб/с]<Dance, Club>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98601.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. how long will it take to walk a mile? (interlude) [00:00:36]
-02. F**K Everyone [00:03:23]
-03. One Thing [00:03:28]
-04. d£aler [00:02:40](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:46:35
+01. Laurent Davidsson - Nebula (Maarten Wuyts Remix)
+02. Nick Hussey & Jamie van Goulden feat Peter Hook & IMU - Salty (Original Mix)
+03. Usher, Mell Tierra - Yeah Eagle (Anton Neumark MashMix)
+04. Anton Neumark - Ultimate Music Mix 171 Chicago Only music (20.02.12)
+05. Anton Neumark - Ultimate Music Mix 174 Birthday in St.Petersburg (12.03.12)
+06. Stonebridge, Chris Kaeser, Funky Junction - MDF (Fred Lilla Remix)
+07. Liubo Dummec - Vibe (Original Mix)
+08. Geler, Sasha Flash - In The Fog (Original)
+09. Anton Neumark - Ultimate Music Mix 172 Manila Only music (27.02.12)
+10. Anton Neumark - Ultimate Music Mix 173 Barcelona Only music (6.03.12)2012Жанр: Dance, ClubПродолжительность: 06:27:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0C4252BA9249BAC987C7FAD20D96ED3DBD5D973
+magnet:?xt=urn:btih:D0FE177AA451677857C37FD2558DF6657D6DD425
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -173,33 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477212   (98600) от 04.04.2012
+###  Публикация: 478670   (98668) от 05.04.2012
 
-Dimension Act - Manifestation Of Progress (2012) [MP3|320 кб/с]<Progressive Metal>
+[Wallpapers] HQ Wallpapers by KSV (05.04.12)
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98600.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Cosmic Chaos
-2. Industrial Evilution
-3. Uncharted Waters
-4. Drawing the Lines of Mortal Existence
-5. Perspectives ch.1-Drawing the Lines of Mortal Existence-I.Pre-Spective
-6. Perspectives ch.1-Drawing the Lines of Mortal Existence-II.Transparent Reality
-7. Perspectives ch.1-Drawing the Lines of Mortal Existence-III.Illusion
-8. Perspectives ch.1-Drawing the Lines of Mortal Existence-IV.Counterparts-A.Solitude
-9. Perspectives ch.1-Drawing the Lines of Mortal Existence-IV.Counterparts-B.Lifeline2012Жанр: Progressive MetalПродолжительность: 00:54:52
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90844E4F3428FE5462F9BA6B28B8557DBA886263
+magnet:?xt=urn:btih:1F0AFB9F4911AEBC57F53B6442E11CF53A8C9275
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,26 +129,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822160   (98599) от 05.10.2025
+###  Публикация: 478272   (98667) от 05.04.2012
 
-Проекты - VideoHive - Text Presets - Modern Pack - 59612842 [AEP]
+[Wallpapers] HD Wallpapers №3
 
->>Проекты
->>Титры (проекты)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98599.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор «Text Presets – Modern Pack» включает 15 чистых, минималистичных и готовых к использованию текстовых анимаций для After Effects.
-Каждый пресет включает гибкие настройки цветов, фона, частиц и других элементов, что позволяет настраивать их для любого проекта.Формат: AEP
+[Wallpapers] HD Wallpapers №3
+Название: HD Wallpapers №3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A873A223A439004CC656713AB718240234740C9
+magnet:?xt=urn:btih:2BBA4795946E7E0BA8093F53805048ED9467E18B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,30 +159,307 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478025   (98598) от 04.04.2012
+###  Публикация: 477979   (98666) от 05.04.2012
 
-Down Below - Zeichen (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock>
+VA - Танцевальный клубный поп хит vol.3 (2012) [MP3|256 кб/с]<Pop,Dance, Club>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98598.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Leuchtfeuer (Intro) [2:30]
- 02. Zeichen (3:48)
- 03. Du Und Ich (3:54)
- 04. Dein Licht (3:40)
- 05. Stark (4:02)
- 06. Unser Lied (3:29)
- 07. Mit Goldenen Segeln (3:39)
- 08. Alles Was Zahlt (3:14)
- 09. Moment Unseres Lebens (3:31)
- 10. Sie Sieht Nicht Wie Schon Sie Ist (3:44)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 00:45:30
+01. Dj Fait! Aka Raving Stuff - Spring Passion (Radio Edit)
+02. Vanilla Ninja-When The Indians Cry
+03. Geri Holliwell - Let Me Love You More
+04. Bush - The Sound Of Winter
+05. Андрей Ковалёв И Пилигрим - Кленовый Лист
+06. Diego Poblets, Vanessa Da Matta - Ai Cross (Anton Neumark Btl Mix)
+07. Adele - Set Fire to the Rain
+08. Anton Neumark, Stephano Noferini - Spaceball 2012 (Buenos Aires Live Mashup)
+09. Emin - Сердце Бьётся
+10. Example - Changed the Way You Kiss Me (Radio Edit)2012Жанр: Pop,Dance, ClubПродолжительность: 06:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056A26A3E012EBB7904E6E3F7BACE53145FA250E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478664   (98664) от 05.04.2012
+
+[Wallpapers] Avto Wallpapers №1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98664.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers №1
+Название: Avto Wallpapers №1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD30B228770E669401B508027D6F93ECCF94AFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478667   (98663) от 05.04.2012
+
+[Wallpapers] Nature Pictures №36
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98663.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №36
+Название: Nature Pictures №36
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBAA4A1C98145F6753A29CF666BD6A193CD4156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478660   (98661) от 05.04.2012
+
+[Wallpapers] HD Wallpapers №4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98661.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №4
+Название: HD Wallpapers №4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A2ACDA5A604021A17EFDF3B712C33ACB6D47CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477841   (98658) от 04.04.2012
+
+VA - Гуляночка блатного радио (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98658.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Александр Закшевский - Гуляем (3:29)
+2. Сергей Рыбачев - Ресторанчик (2:54)
+3. Лукьяновка - А мне бы все забыть (3:32)
+4. Палыч - Мадам (4:07)
+5. Светлана Калина и группа ЖАrА - Сигареточка (3:46)
+6. Маша Вакс - Жига (3:44)
+7. Владимир Утёсов - Сирень (3:18)
+8. Александр Дюмин - Пили Водочку (3:24)
+9. С. Михайлов - Родная (3:38)
+10. И.Круг - Милая зайка моя (3:13)2012Жанр: ШансонПродолжительность: 06:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29651C9206FBB1D8BE097806A725157DB6A26D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476474   (98655) от 04.04.2012
+
+VA - Platin Chill Out & Bar Grooves (25 Wonderful Island Lounge Tunes) (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Lemmer-I Like It (Letting Go Mix)
+02. Simon Le Grec-Sophie
+03. Fenena Mijas-Be With You (feat. Sandrina Middleton) (Cafe Buddha Edit)
+04. Aimee Sol (feat. Jamie Fishburn)-Walls (Aqua Del Mar Edit)
+05. Lounge Deluxe-Ocean Dreams (Hotel Bar Mix)
+06. Michael E-The Nature of Sound
+07. Aqualise (feat. Jane Henley, Tony Remy)-Plonge avec moi
+08. Johannes Huppertz (feat. Twila.too)-Sapristi
+09. Thomas Lemmer-Is It Too Late (feat. Lena Belgart) (Original Album Mix)
+10. Andrea Depp-Canot(   Читать дальше...   )Жанр: Downtempo, ChillOut, LoungeПродолжительность: 02:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E091CBBEBDF342D851845C9B7291422D1C554D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477860   (98654) от 04.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 26
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98654.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers Pack 26 
+Название:  Girls Desktop Wallpapers Pack 26 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 5616х3744
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB6393884F5787AA98A5A36268E8E98727E81BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478086   (98653) от 04.04.2012
+
+Глеб Черниговцев | 100 cпособов найти работу [2004] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книгу «100 способов найти работу» можно уверенно назвать учебным пособием, которое поможет вам не растеряться в современном деловом мире.
+
+Многие из нас мечтают найти работу, которая соответствовала бы нескольким требованиям. Каковы же эти требования? Прежде всего, разумеется, достойная оплата труда. Еще хотелось бы, чтобы работа была интересной и давала возможность для полной самореализации.
+
+«Мечта», – скажете вы. Может быть, но не такая уж несбыточная. А вот чтобы воплотить данную мечту в реальность, вам просто необходимо прочитать эту книгу.
+
+В ней вы найдете не только способы поисков работы, причем довольно оригинальные, но и научитесь вести себя на собеседовании, что просто необходимо для получения долгожданной работы.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A536E1EF41E9334194D922F6890B8F76CBB445CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478129   (98651) от 04.04.2012
+
+Подшивка журналов | The Finer Edge [2006-2007] [PDF] [EN]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о ножах и другом холодном оружии. Коллекционирование, описание.2006-2007Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169E7BE15C7C412235C91E4059DED06349C4DBBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477752   (98648) от 04.04.2012
+
+Arnett Cobb With The Red Garland Trio - Blue And Sentimental (1960) [FLAC|Lossless]<Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98648.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Sweet Georgia Brown (5:06)
+2.Black Velvet (5:22)
+3.Blue Sermon (7:43)
+4.Georgia On My Mind (6:55)(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 01:12:30
 
 ## Скачать торент
 ```bash
@@ -269,25 +471,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822163   (98597) от 05.10.2025
+###  Публикация: 478057   (98647) от 04.04.2012
 
-Зомби Marvel / Marvel Zombies (2025) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-4 из 4) LostFilm
+9-мм самозарядный пистолет для бесшумной и беспламенной стрельбы. Краткое руководство службы. [1984] [PDF]
 
->>Мультфильмы
->>Зарубежные Мультсериалы
+>>Разное (категория книг)
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98597.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98647.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мультсериал рассказывает об альтернативной временной линии, когда вселенная Marvel попадает в пучину глобального зомби-апокалипсиса, вызванного вирусом под названием «Голод».Производство: США / Marvel Animation, Marvel StudiosЖанр: мультфильм, ужасы, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Брайан ЭндрюсАктеры: Иман Веллани, Тодд Уильямс, Дэвид Боут, Робин Аткин Даунс, Терри Дуглас, Петр Вальчук, Мэттью Ян Кинг, Эндрю Моргадо, Эшли Пелдон, Кари УолгренПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:30:00 серия
+Настоящее Краткое руководство службы является руководством при изучении и эксплуатации 9-мм автоматического пистолета для бесшумной и беспламенной стрельбы.1984Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B55F74C68B4A02BE12D8C95A0684808F84A757D6
+magnet:?xt=urn:btih:91946F98FBE48EAAAB71E1252C8BACD850FA853C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,34 +497,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477408   (98596) от 04.04.2012
+###  Публикация: 477515   (98646) от 04.04.2012
 
-Solitude - Tied To The Anchor (2012) [MP3|256 кб/с]<Melodic Metalcore>
+Микки Спиллейн | Змея [1992] [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98596.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Under Fading Skies 03:35
- 02. The Beautiful Noise 03:17
- 03. Ricochet 03:17
- 04. Tied To The Anchor 03:40
- 05. Last Division 03:38
- 06. This Is The End 03:25
- 07. All Eyes On Me 03:43
- 08. Light The Fire 04:04
- 09. Sincerity 04:43
- 10. Oceans Away 03:35(   Читать дальше...   )2012Жанр: Melodic MetalcoreПродолжительность: 00:41:09
+Серия: Майк Хаммер
+Оригинальное название:1992Жанр: Детектив
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E47C968E2E651ED8D2CEE31A0EB87485C0EA6237
+magnet:?xt=urn:btih:5F5E3B0CFBD79BDDBA397B968D1B48B0F7993900
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -330,51 +524,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822164   (98595) от 05.10.2025
+###  Публикация: 477867   (98644) от 04.04.2012
 
-Re: Minimal Firewall 2.4 Portable [En]
-
->>Безопасность
->>Firewalls
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minimal Firewall — это портативный интерфейс брандмауэра Windows, который оповещает пользователей о подключениях к Интернету без необходимости внесения специальных изменений в ядро ​​или отключения изоляции ядра, обеспечивая баланс между безопасностью Window Defender и функциональностью Simplewall.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A0F5A4582873B1F1D583CAEE3B6CA0E83FEB42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478048   (98594) от 04.04.2012
-
-Журнал | Вяжем сами №7 (апрель 2012) [JPEG]
+[Wallpapers] Desktop Wallpapers Pack 38
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98594.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция модной женской одежды, выполненной на спицах и крючком: жилеты, болеро, пуловеры, жакеты, платья, а также сумочки – красиво, романтично, современно!Формат: JPEG
+[Wallpapers] Desktop Wallpapers Pack 38 
+Название:  Desktop Wallpapers Pack 38 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 4486х3163
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:841408AC9DFAE884B9D7E6722C2EA86256013C94
+magnet:?xt=urn:btih:FB1084DFC8BA8E065E2EB7FF3D51BF9F08D9CE36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -382,28 +554,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822131   (98593) от 05.10.2025
+###  Публикация: 478052   (98642) от 04.04.2012
 
-Taylor Swift - The Life of a Showgirl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+К жизни вечной (2008) DVDRip
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98593.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98642.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Fate of Ophelia [00:03:46]
-02. Elizabeth Taylor [00:03:28]
-03. Opalite [00:03:55]
-04. Father Figure [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:45
+Праведный Симеон Верхотурский родился в начале XVII века в европейской части России в семье благочестивых дворян. Повинуясь Божественному водительству, он оставил почести и земное богатство и удалился за Урал. В Сибири праведный Симеон жил как простой странник, скрывая свое происхождение. Чаще всего он посещал село Меркушинское, находившееся недалеко от города Верхотурья, где молился в деревянной церкви.Жанр: ДокументальныйРежиссер: студия "Мост"Продолжительность: 00:20:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB95FE375DDECD0EE6B590A098035B1890EF397D
+magnet:?xt=urn:btih:87CA956ED5C49574A4BFDF1706508C44ACF5F8F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -411,25 +580,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477749   (98592) от 04.04.2012
+###  Публикация: 477876   (98641) от 04.04.2012
 
-Тяжелый вторник / Tuesday (2007) DVD5
+[Wallpapers] Full HD Wallpapers Pack 5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98641.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Full HD Wallpapers Pack 5 
+Название:  Full HD Wallpapers Pack 5 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199907B1F2C6DC610997F8E26891E5BD6CB59C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477730   (98639) от 04.04.2012
+
+Пойманный в раю / Trapped in Paradise (1994) DVD5
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький провинциальный городок под названием «Рай», канун Рождества. Бил Фирпо, человек честный, приезжает сюда по делу с двумя только что вышедшими из тюрьмы братьями — хитрецом Дэйвом и клептоманом Элвином.
+
+Когда братья решают ограбить местный банк, Билу не удается их отговорить. К тому же дело на редкость простое и «верное«: в здании отсутствует охрана и сигнализация. И, как ни странно, затея удается.
+
+Но сразу же возникает проблема посерьезней: как выбраться из маленького городка с большой добычей, если полиция уже поднята на ноги?Жанр: Комедия, Криминал, ПриключенияРежиссер: Джордж ГаллоАктеры: Николас Кейдж, Джон Ловиц, Дэна Карви, Ричард Б. Шалл, Медкен Эмик, Джек Хеллер, Флоренс Стэнли, Дональд Моффет, Майк СтейнерПеревод: Многоголосый закадровыйЯзык субтитров: английский, польский, румынский, русский, украинскийПродолжительность: 01:46:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478276   (98637) от 04.04.2012
+
+[Wallpapers] Magnificent Airplanes HD Wallpapers №1
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98637.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Magnificent Airplanes HD Wallpapers №1
+Название: Magnificent Airplanes HD Wallpapers №1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E4CB1A398561BEA947286644492456265812AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475793   (98632) от 04.04.2012
+
+[EN] Вернись, малышка Шеба / Come Back, Little Sheba (1952) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сентиментальные, с некоторым оттенком сожаления, мечты и воспоминания женщины-домохозяйки Лолы Делани (Ширли Бут) о том далеком, и, к сожалению, уже невозратном прошлом, где она - молодая, красивая девушка, а её вечно пьяный супруг - красавец-мужчина (Берт Ланкастер).Жанр: ДрамаРежиссер: Дэниэл МаннАктеры: Берт Ланкастер, Ширли Бут, Терри Мур, Ричард Джэкел, Филип Обер, Эдвин Макс, Лиза Голм, Уолтер Келли, Нед Глэсс, Уильям Хааде, Вирджиния Холл, Энтони Джоким, Питер Лидз, Китти МакХью, Пол МакВей, Вирджиния МалленПеревод: ОтсутствуетЯзык субтитров: РусскиеПродолжительность: 01:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D903726D14975E06D9DC916D87A9A09CFBA1534B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477857   (98631) от 04.04.2012
+
+Собака кусает собаку / Gau ngao gau (2006) DVDRip
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98592.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98631.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Три группировки грабителей решают обокрасть один и тот же банк в один и тот же день. Кому же из них посчастливится уйти с наживой, а кому отвечать по полной за совершенное преступление?..Жанр: Боевик, Триллер, КриминалРежиссер: Саша БеннеттАктеры: Филип Гленистер, Эшли Уолтерс, Кристиан Солимено, Кевин МакНэлли, Джон Симм, Кейт Магован, Кирсти Митчел, Линал Хафт, Алекс МакКвин, Дилан Браун, Эмил Марва, Мик Барбер, Ричард Браун, Вероника Браун, Дэвид Гарри, Бет Годдар, Роджер Лэйтон, Джеймс Миллман, Джонатан Парсонс, Дэвид Гарри, Энди Коуди, Пол Форнел, Найджел Блисс, Джим Александр, Брайан Босли, Делл ТейлорПеревод: Двуголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:18:37
+В Гонконг приезжает тайский киллер — молодой парень, выросший среди убийц в мире, где за кусок хлеба перегрызают горло. Его цель — пожилая женщина, которую «заказал» ее собственный муж. Задание выполнено, и по следам убийцы бросаются гонконгские полицейские, однако первое столкновение копов с ним приводит к нескольким трупам.
+  Чем ближе детективы подбираются к «гостю», тем отчаяннее тот сопротивляется, безжалостно уничтожая все преграды на своем пути. Но и у него есть слабое место — несчастная девушка, которую парень подобрал на свалке.Жанр: Боевик, триллер, драма, криминалРежиссер: Поу-Сои ЧингАктеры: Эдисон Чен (Pang), Сэм Ли (Insp. Ti Wai), Weiying Pei (Yu), Siu-Fai Cheung (Chief Insp. Sum), Yiu-Cheung Lai (Insp. Tang Wing Cheung), Сует Лам (Insp. 'Fat' Lam), Ка Ва Лам (Insp. Ti - Wai's Father), Хо Ям (Mr. Lee), Kam-wah Koo, Аск Ли (Ben), Чи Вэй Лао (Internal Affairs Officer), Ка Уинг Ли (Taxi Driver)Перевод: Одноголосый закадровыйПродолжительность: 01:48:33
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:51E362DBF18566C102C8C14922124EF3745CD99F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -437,28 +723,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822168   (98591) от 05.10.2025
+###  Публикация: 476237   (98630) от 04.04.2012
 
-Lemongrass - Journey Backwards (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chillout, Balearic>
+Джонни Белинда / Johnny Belinda (1948) DVDRip
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98591.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98630.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Somewhere
-02. Finca Del Sol
-03. Grand Canyon Du Verdon
-04. French Dinner(   Читать дальше...   )Жанр: Lounge, Chillout, BalearicПродолжительность: 00:24:04
+Островок у северного побережья новой Шотландии — это всего лишь клочок земли, торчащий из вод Атлантики, куда попасть можно только морем, и только с опытным лоцманом, способным провести судно через мели, особенно в летний шторм. Поселок там совсем небольшой: есть маяк и церковь, которой гордятся все жители, построенной на их сбережения. Их фермы не приносят большого дохода, но в рыбный сезон все приходит в движение, а гавань заполняется лодками и оживает. Именно сюда «на край земли» прибывает молодой доктор Роберт Ричардсон.Жанр: ДрамаРежиссер: Жан НегулескоАктеры: Джейн Уаймэн, Лью Эйрз, Чарльз Бикфорд, Агнес Мурхед, Стефен МакНалли, Джен Стерлинг, Розалинд Иван, Дэн Сеймур, Мэйбл Пейдж, Ида Мур, Алан Напье, Барбара Бейтс, Монте Блу, Джеймс Крэвен, Франклин Фэрнум, Крейтон Хейл, Джонатан Хейл, Холмс Херберт, Чарльз Хорват, Дуглас Кеннеди, Рэй Монтгомери, Снуб Поллард, Джефф Ричардс, Йен Вульф, Джоан Винфилд, Фредерик УорлокПродолжительность: 01:42:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:439611E1E0C8E26D5A1FBF1EDCE85B11CE0F1DF7
+magnet:?xt=urn:btih:F11CAB4E9A1AD38BD94D4B65E21A86302C6E90FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,278 +749,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822132   (98589) от 05.10.2025
+###  Публикация: 476944   (98628) от 04.04.2012
 
-Carter Faith - Cherry Valley (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+[Wallpapers] Обои для рабочего стола
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98589.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98628.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cherry Valley [00:03:52]
-02. Sex, Drugs, & Country Music [00:03:36]
-03. Arrows (Die For That Man) [00:03:51]
-04. Bar Star [00:02:52](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
+Обои для рабочего стола,  в темных тонах
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8B10F1147985A26CD5DB83AC1FF1CF44CD58595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822169   (98587) от 05.10.2025
-
-Токсичный мститель / The Toxic Avenger (2023) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда уборщик-неудачник Уинстон Гус падает в чан с токсичными отходами, он мутирует в героя нового типа: Токсичного мстителя. На глазах у обезумевшей толпы Токсик превращается из изгоя в спасителя. Он сражается с безжалостными корпоративными крысами и коррумпированными чиновниками, которые угрожают его сыну, друзьям и обществу. В мире, где свирепствуют жестокость (   Читать дальше...   )Производство: США / Legendary Entertainment, Troma EntertainmentЖанр: ужасы, боевик, комедияРежиссер: Мэйкон БлэрАктеры: Кевин Бейкон, Элайджа Вуд, Питер Динклэйдж, Джейкоб Тремблей, Юлиан Костов, Джейн Леви, Тейлор Пейдж, Мэйкон Блэр, Сара Нилс, Джулия ДэвисПеревод: Дублированный (Vox Records)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62206AEE17726AA220AEA027CCE1E6F4A236856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822119   (98585) от 05.10.2025
-
-Kitchen Timer / Кухонный мульти-таймер v5.2.2 GP Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный и простой таймер для кухонных дел. Можно запустить несколько таймеров одновременно. Весьма красиво выглядит. В наличии тёмная тема и подробные настройки таймера.
-Легко управляйте своим временем с помощью нашего универсального приложения для таймера на кухне, созданного для того, чтобы удовлетворить все ваши потребности в тайминге с лёгкостью и стилем. Будь (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 04.10.2025Разработчик: Maxim KablukaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C1FAA4E602417854075C43EE87A1756FCA2A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477953   (98584) от 04.04.2012
-
-Hopelezz - Black Souls Arrive (2012) [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tragedy (Intro) (1:11)
-02. Made Of Stainless Steel (4:04)
-03. Devils Ride (4:18)
-04. Black Souls Arrive (5:53)
-05. The New Delight (4:45)
-06. Atheist (3:37)
-07. Surrounded By Destruction (3:27)
-08. Milk The Goat (3:38)
-09. Monster Inside (4:57)
-10. Eternal Night (4:43)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD8A330E4235FA53FBA4677DFA3A6EEFA5BDF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822152   (98583) от 05.10.2025
-
-Titan Quest (2016) [Ru/Multi] (2.10.21415/dlc) Repack Let'sРlay [Anniversary Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98583.jpg" />
-</div>
-
-
-###  Подробнее
-
-В десятый день своего рождения Titan Quest заиграет новыми красками. Юбилейное издание объединяет в одну игру Titan Quest и Titan Quest Immortal Throne, которые претерпели серьезную переработку, чтобы вы могли как следует насладиться нашей action RPG.Тип издания: RepackРазработчик: THQ Nordic, Iron Lore EntertainmentЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83AD9FE68823BE055E5BED82C07B91BF64E23154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478043   (98582) от 04.04.2012
-
-Андрею Тарковскому исполнилось бы 80 лет...
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98582.jpg" />
-</div>
-
-
-###  Подробнее
-
- Андрею Тарковскому исполнилось бы 80 лет... 
-Всемирно известному режиссеру Андрею Тарковскому 4 апреля 2012 года могло бы исполниться 80 лет, однако ему было отпущено лишь 54 года. Создателя фильмов "Иваново детство", "Зеркало", "Андрей Рублев", "Сталкер" и "Солярис" не стало 29 декабря 1986 года.Имя Андрея Тарковского в России известно практически всем, на Западе его творчество также прекрасно знают. Многие из популярных голливудских или европейских актеров на вопрос, картины какого русского режиссера им нравятся, тут же назовут ленты Тарковского, фильмы которого стали классикой.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822156   (98581) от 05.10.2025
-
-Titan Quest II (2025) [Ru/En] (0.2.0-public.102611+win.1879) Repack Let'sРlay [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немезида, богиня возмездия, потеряла рассудок. Она заражает нити судьбы порчей и карает всех, кто смеет ей помешать. Возьмите в руки оружие, встаньте бок о бок с богами и измените свою судьбу в Titan Quest II – экшен-RPG по мотивам греческой мифологии.Тип издания: RepackРазработчик: Grimlore GamesЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A122EC0E948DBE7E344320BEADE8A59F2B7EC870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385876   (98579) от 05.10.2025
-
-Общество мертвых поэтов / Dead Poets Society (1989) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Китинг — новый преподаватель английской словесности в консервативном американском колледже. От чопорной массы учителей его выгодно отличают легкость общения, эксцентричное поведение и пренебрежение к программе обучения.
-Однажды он посвящает своих подопечных в тайну Общества мёртвых поэтов. С этого момента каждый из учеников старается обрести свой собственный (   Читать дальше...   )Производство: США / Touchstone Pictures, Silver Screen Partners IVЖанр: Драма, комедияРежиссер: Питер УирАктеры: Робин Уильямс, Роберт Шон Леонард, Итэн Хоук, Джош Чарльз, Гейл Хэнсен, Дилан Кассман, Аллелон Руджеро, Джеймс Уотерстон, Норман Ллойд, Кертвуд СмитПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Русские (Forced, Full, SDH), английские (SDH, Commentary)Продолжительность: 02:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC616FCAA2AC714CDE17241619A6DF1C988D7834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822171   (98577) от 05.10.2025
-
-Счастье / Happiness (1998) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина знакомит с жизнью нескольких персонажей, объединённых жутким внутренним одиночеством. Из лёгкой последовательности эпизодов складывается органичная мозаика повествования. Хотя фильм называется «Счастье», речь в нём идёт о его отсутствии. Все герои жаждут счастья, пытаются его поймать, но… Семейство Джорданов несёт под откос. Младшей дочери Джой катастрофически (   Читать дальше...   )Производство: США / Good Machine, Killer FilmsЖанр: драма, комедияРежиссер: Тодд СолондзАктеры: Филип Сеймур Хоффман, Джейн Адамс (II), Дилан Бэйкер, Лара Флинн Бойл, Синтия Стивенсон, Джастин Элвин, Бен Газзара, Луиз Лэссер, Джаред Харрис, Джон Ловиц, Лила Гланцман-Лейб, Джерри Бекер, Руфус Рид, Камрин Менхейм, Артур Дж. НаскареллаПеревод: профессиональный многоголосый, авторский (Пётр Карцев)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06EE209B28D97A38C75BA125DFEE7BFEACE3F83B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822155   (98575) от 05.10.2025
-
-Windows 11 (v25h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MDSN: 26200.6584.250915-1905.25h2_ge_release
-_svc_refresh_CLIENT_CONSUMER_x64FRE_ru-ru.iso.
-Использован переработанный установщик от Windows 11 25h2 (SecureBoot и TPM 2.0 не требуется).
-Отключено несколько компонентов, задействован протокол SMB.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FE78C3150F37F7D44E58E890E5260E2F203154
+magnet:?xt=urn:btih:F606D5A64ED6957F6F464140E39C90E980E74BDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

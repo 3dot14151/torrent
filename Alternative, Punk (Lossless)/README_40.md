@@ -1,3 +1,32 @@
+###  Публикация: 1252982   (385446) от 08.10.2018
+
+Starsailor - Love is Here (2001) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tie Up My Hands
+02. Poor Misguided Fool
+03. Alcoholic
+04. Lullaby(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47556A07BD76BA7483F16A3B53BC3A9EF0FF5A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574591   (383855) от 06.09.2022
 
 Ends With A Bullet - I´m Still Standing (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore, Electronic>
@@ -719,35 +748,6 @@ A Vicious End - The Hills Will Burn (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E4DA768881609031D0606325C4499B77F9A17AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949456   (377346) от 23.10.2015
-
-Dave Gahan & Soulsavers - Angels & Ghosts (2015) [FLAC|tracks|WEB-DL]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine (3:40)
-02. You Owe Me (4:22)
-03. Tempted (4:19)
-04. All of This and Nothing (4:18)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AAB33B4E6D06D8605E7366DC19831C7AFF0B1A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

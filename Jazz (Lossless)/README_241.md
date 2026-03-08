@@ -1,3 +1,32 @@
+###  Публикация: 1610803   (244274) от 09.02.2023
+
+Steve Khan - Backlog (2017) Tone Center [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Criss Cross (Entrecruzado) [5:49]
+02. Concepticus in C [5:42]
+03. Latin Genetics (Genetica Latina) [8:10]
+04. Our Town (Nuestro Pueblo) [7:14](   Читать дальше...   )Жанр: Jazz Fusion, Latin JazzПродолжительность: 01:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D94AC46DCA4963CCFC9C8CD049E301279A4E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072445   (244266) от 13.11.2016
 
 Tony Kofi Quartet - Plays Monk (2004) Specific Jazz[FLAC|Lossless|image + .cue] <Post-Bop>
@@ -716,35 +745,6 @@ Pasadena Roof Orchestra - Roots Of Swing (2008) [FLAC|Lossless|tracks + .cue] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC68262FC629D70A30EAC47A91E83F562A05D239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076521   (243680) от 26.11.2016
-
-Patti Austin - Havana Candy (1977) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's Enough For Me (5:50)
-02. Little Baby (4:15)
-03. I Just Want To Know (4:57)
-04. Havana Candy (4:37)(   Читать дальше...   )Жанр: Vocal Jazz, R&BПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39DB9B7E6E0906E3B3F1304B048480C88D203D86
 ```
 
 https://mybot314.ru/tekegram_catalog/

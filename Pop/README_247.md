@@ -1,3 +1,61 @@
+###  Публикация: 1028176   (289590) от 18.11.2018
+
+Евгений Осин - Золотые хиты (1999) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Портрет работы Пабло Пикассо
+02. Две девушки
+03. Иволга
+04. Ялта(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67519574C897E566E2D0EB92ABE60086022F8853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335175   (289412) от 01.11.2019
+
+Burito - Samskara (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289412.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Samskara
+3. Дети закатов
+4. Стих 1(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA8E1B7FEBFDDD36B855D0A3354A5DED5164C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335174   (289401) от 01.11.2019
 
 #2Маши - Всем нашим (2019) [MP3|320 Kbps] <Pop>
@@ -682,64 +740,6 @@ SX - Eros (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CA7C6128ABC9481D62BEF0E89EDB7C457C8B780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263683   (286296) от 20.11.2018
-
-Die Priester - Das Beste (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop Crossover, Gregorian Chant>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiritus Dei
-02. Hallelujah
-03. Glorificamus Te
-04. Die Moldau(   Читать дальше...   )Жанр: Pop Crossover, Gregorian ChantПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990A1A7A68C271567DC187FB9236A8C31F3AAB27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081071   (286270) от 08.12.2016
-
-Baciotti - Black Jack (1977) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкант и певец из Тулузы, Франция. Стал знаменит, особенно в Италии, с его электронно-дискотечной песней "Black Jack".01. Black Jack  (10:41)
-02. Ridin' The Rails  (4:37)
-03. A Clown  (3:49)
-04. Musical  (3:26)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48DC5F5E6703B83FC309C417C0A95844D6ADA1BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

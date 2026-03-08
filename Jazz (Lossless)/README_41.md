@@ -1,3 +1,32 @@
+###  Публикация: 1100615   (899930) от 04.02.2017
+
+Art Blakey And The Jazz Messengers - Backgammon (1976) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Uranus [07:00]
+ 02.Whisper Not [06:35]
+ 03.Backgammon [05:30]
+ 04.Blues March [05:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5899B0F93509457AB56F1059A41EE09A694886B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100573   (899916) от 04.02.2017
 
 Manu Katche - Unstatic (2016) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
@@ -717,35 +746,6 @@ Opus 5 - Progression (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-Bop, Contemporar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38CB8AE254060A408DCAD7DEBD40C388DC25626B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993613   (895911) от 05.03.2016
-
-Sam Morrison - Dune (1976) Remaster, 2015, Universal[FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Song Of Landa [10:18]
- 02.I Knew It Right A Way [07:29]
- 03.Miles Away [08:28]
- 04.Wonder [04:42](   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A4E9358D0951DD71F7F700E9541B9E76551C793
 ```
 
 https://mybot314.ru/tekegram_catalog/

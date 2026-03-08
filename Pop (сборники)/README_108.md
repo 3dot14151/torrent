@@ -1,3 +1,32 @@
+###  Публикация: 1108458   (242023) от 25.02.2017
+
+VA - German Top 40 DBC Deutsche Black Charts 24.02.(2017) [MP3|192-320 Kbps] <Hip-Hop, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242023.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Brown feat. Usher & Gucci Mane - Party 5:02
+002. Missy Elliot Ft. Lamb - I'm Better 3:33
+003. Migos Ft. Lil Uzi Vert - Bad And Boujee 5:35
+004. Busta Rhymes Ft. Swizz Beatz - Aaahhhh!!! 2:37(   Читать дальше...   )Жанр: Hip-Hop, R&BПродолжительность: 02:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B4F41DEA9455A6AC2D7E02E8910FDED0763936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108435   (241992) от 25.02.2017
 
 VA - Музыкальный презент хорошей музыки от Европы Плюс (2017) [MP3|256 Kbps] <Pop>
@@ -728,35 +757,6 @@ VA - Радио Шторм - NeРусский Шторм - 82 (2012) [MP3|320 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A61BC3E64F28F09CB51E92B0C62BB2E320D6048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513989   (221130) от 01.12.2021
-
-VA - Soft Pop (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221130.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alicia Keys - Girl on Fire (3:44)
-002. Andy Grammer - Keep Your Head Up (3:09)
-003. OneRepublic - Counting Stars (4:17)
-004. Rachel Platten - Fight Song (3:24)(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9C09FFC75A40B5FAB4365E5327B6C57424FC16
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 605150   (995799) от 19.01.2013
+
+Chen Xi - Yesterday Once More (2011) [FLAC|Lossless]<Jazz Vocal / Audiophile>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Just a Country Boy [03:51]
+02. Baby Can I Hold You Tonight [03:18]
+03. Home [03:47]
+04. When You Say Nothing at All [04:17]
+05. You Raise Me Up [03:48]
+06. Borderline [04:07]
+07. Angel [04:29]
+08. Promises Don't Come Easy [03:35]
+09. Let's Start From Here [03:38]
+10. Yellow [04:52](   Читать дальше...   )Жанр: Jazz Vocal / AudiophileПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605707   (995660) от 20.01.2013
 
 VA - Cool Vibes - An Acid Jazz Adventure (1997) [FLAC|Lossless]<Acid jazz>
@@ -823,35 +858,6 @@ John Pizzarelli - Double Exposure (2012) Telarc [FLAC|Lossless|tracks + .cue] <V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4142AF4A93428F68589401BC14184B46D1425F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353819   (990731) от 19.01.2020
-
-Diana Krall - Wallflower (2015) [FLAC|Lossless]<Vocal Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01   California Dreamin'   (3:17)
-02   Desperado   (3:32)
-03   Superstar   (4:17)
-04.  Alone Again (Naturally) (duet with Michael Buble)   (3:51)(   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80384410894DB223D8F15FA8EA23333A1168E597
 ```
 
 https://mybot314.ru/tekegram_catalog/

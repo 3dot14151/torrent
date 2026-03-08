@@ -1,3 +1,32 @@
+###  Публикация: 1547694   (602053) от 30.04.2022
+
+Red Mitchell & Jimmy Rowles - Red'N Me (1978) 1991, Dreyfus [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama G. [6:38]
+02. In the Middle of a Kiss [4:44]
+03. The Persian [6:13]
+04. The Woman in the Shoe [4:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E47490D979C1D5674616FB18F2522B5B922B17D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547868   (602048) от 30.04.2022
 
 Budapest Ragtime Band - The Best Of (2001) 2CD, BRB Records [FLAC|Lossless|tracks + .cue] <Dixieland, Ragtime>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E173B96D0747E80766BA822BE19B118524181F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149800   (598633) от 12.07.2017
-
-Bria Skonberg - So Is The Day {ECD} (2012) Random Act Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep Me in the Back of Your Mind [04:11]
-02. So Is the Day [07:36]
-03. Hip Check [07:31]
-04. I Wish I Hadn't Forgotten [04:04](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 01:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D55AF19373D500EFA1286F263B10685FE5C05EE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1101428   (895686) от 06.02.2017
+
+VA - Имена на все времена. Застольные песни (2016) [MP3|320 Kbps] <Ретро, Поп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  А.Герман - Надежда  3:43
+02.  И.Кобзон - На тебе сошелся клином белый свет  3:28
+03.  О.Воронец - Расцвела под окошком белоснежная вишня  3:39
+04.  Е.Камбурова - Шумел камыш  5:39(   Читать дальше...   )Жанр: Ретро, ПопПродолжительность: 04:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62AA642361FCFF30E5AF3E1CDF70BA96D121653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993439   (895677) от 05.03.2016
+
+VA - Шоферской Хит (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей И Светлана Сухачёвы - 5 Минут Прощания
+02. Юрий Герляйн - А за окнами дождь
+03. Александр Кирсс - А За Поворотом
+04. Евгений Коновалов - Автоколонна 1948(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF139EC06779C8C8E39603E5093F4AA3695B828F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993457   (895665) от 05.03.2016
+
+VA - Калина Красная (Шоферской Спецвыпуск) (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Добронравов - Дом
+02. Михаил Сурский - Городские Фонари
+03. Сборная Союза - Мы С Тобой Вечорили
+04. Александр Забазный - Деревенские Страсти(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E773A51DEECAAB966EB9FC1D064777B273B43763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993465   (895536) от 05.03.2016
+
+VA - Зажигательный музыкальный отрыв (2016) [MP3|320 кб/с] <Pop, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895536.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dj Herby — Waht A Feels (Original Mix) (08:34)
+2. Derek Howell — Lickety Split (Original Mix) (08:13)
+3. Florence & The Machine — You've Got the Love (123XYZ Bootleg Mix) (08:10)
+4. Rotan — Venus (Rotan Remix) (07:55)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 09:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF5984F0DCC9916E07DBA7B2A3B45CB8D55BFC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993658   (895534) от 05.03.2016
+
+VA - Smooth and Sexy - Premium Jazz Grooves (2016) [MP3|320 кб/с] <Jazz, Chill Out, Lounge>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De el Mar a la Luna (Jazz Loungebar Mix) - Vladi Strecker
+02. It's a Good Life (Sax Mix) - Bar Blue
+03. Honeytrap (Keys and Trumpet Mix) - Noise Boyz
+04. Blown Away (Acoustic Mix) - Orange Music(   Читать дальше...   )Жанр: Jazz, Chill Out, LoungeПродолжительность: 05:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FCCBBB993EFB88A7D32159B51856C1842B1F6F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993683   (895477) от 05.03.2016
+
+VA - Best of Piano and Acoustic Guitar: Spa Music for Yoga Massage and Healing (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Miller - Lizzie's Rhapsody
+02. Meadowlark - Gratitude
+03. Relaxation Guitar Maestro - Soft Moonlight
+04. Robin Miller - In Loving Hearts(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A0D78289FF52897FFFDAD3DCD04A6C35A238E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993539   (895434) от 05.03.2016
 
 VA - 8 Марта. Корпоратив №1 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
@@ -589,180 +763,6 @@ VA - Качай и слушай Vol 6 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:152D276967707CA06289225FAE770706E78384DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101519   (894543) от 07.02.2017
-
-VA - Душевная музыка на радио Шансон. Сборник №10 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894543.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Андрей Широков - Голубые Города 3:34
-002. Александр Блик - Телогрейка 3:18
-003. Milen - Вишенка На Торте 3:34
-004. Владимир Курский - Колода 3:08(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E6FD1648512EB81B02401063C361A8447F9122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993679   (894285) от 06.03.2016
-
-VA - Deep House Flavour Vol 7 (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mario Chris - Who's Got Your Love Tonight (feat. Eleonora La Luna)
-02. Escadia - Far Cry
-03. Jaques Le Noir - Better Believe
-04. Marcelo Wallace - Breath(   Читать дальше...   )Жанр: HouseПродолжительность: 04:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BCE5405EC05AB7C42F40B5E661BABB1C117D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993893   (894259) от 06.03.2016
-
-VA - Sweet and Sexy: 20 Amazing Lounge Anthems Vol.1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maurice Sanders - Someone Calls
-02. The Beach Hotel - Nothing True
-03. Mediterranean Soul - I Gasp for You
-04. Chill Ars Project - Attached to Life - International Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65BCEEEB13B5EE68779ACEC8262AE17E6C248F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993717   (894126) от 06.03.2016
-
-Spring Party - Hits For Your Car N3 (2016) [MP3| 191-320 кб/с] <Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerome Feat. Ace Young - Dont Walk Away (Radio Edit)
-02. Matteo Marini - Rush (Original Mix)
-03. Futuristic Polar Bears - Jetlag
-04. Deep Divas & Rehnoir - Phaze (Original Mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 09:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB88CE725F88A437FACC987831A00B45409069D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493665   (894122) от 04.09.2021
-
-VA - Best New DnB Hype (2021) [MP3|320 Kbps] <D&B, Bassline, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894122.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Krusty - Friction
-002. Psyek, Spoi - Graham's Number
-003. Alcemist - Repression
-004. Radist - Paralel(   Читать дальше...   )Жанр: D&B, Bassline, Electro BassПродолжительность: 11:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835C803523E8BABE5AE8CDC1F07C438BFB8CE9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993797   (894114) от 06.03.2016
-
-VA - Spring Relaxation Cafe: Cool Ambient And Chillout Moments (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillplaza - White Horse - Aurora Burials Mix
-02. Guilty by Innocence - Thief of Heart - Shades of Stalker Erotic Downbeat Buddha Mix
-03. Sterling Ground - El Nino - Spting Break Part Mix
-04. Marry Me - Deep Crush - Goa Beach Bar Lounge Edit(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416D147B53CE0D73C020CB9D6263F938ABAB72BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

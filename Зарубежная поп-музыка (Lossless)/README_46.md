@@ -1,3 +1,32 @@
+###  Публикация: 690726   (564170) от 18.08.2013
+
+Selena Gomez - Stars Dance (Deluxe Edition) (2013) /Scene/ [FLAC (tracks)|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birthday
+02. Slow Down
+03. Stars Dance
+04. Like a Champion(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A604CF12C691A9737841104A7839D26C6C8E7E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044933   (563254) от 21.08.2016
 
 VA - The Best Nostalgia Album. In The World... Ever! (1997) Compilation [FLAC|Lossless|tracks + .cue] <Retro, Pop, Pop Rock>
@@ -717,35 +746,6 @@ The University of Newcastle Choir - Battle Cry (2008) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4A652A8391C6FF586E052128FF9C48C14C794C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307429   (555086) от 09.06.2019
-
-Bo Katzman Chor - Spirit of Joy (2001) [FLAC|Lossless|image + .cue] <Pop, Cover, Gospel>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Of Joy (4:27)
-02. Joshua (2:54)
-03. Soul Searchin' (5:54)
-04. Our Father (4:49)(   Читать дальше...   )Жанр: Pop, Cover, GospelПродолжительность: 00:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48196ABE56FD374FE589711671E3FAAE67CCF87
 ```
 
 https://mybot314.ru/tekegram_catalog/

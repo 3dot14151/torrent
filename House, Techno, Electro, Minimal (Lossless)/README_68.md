@@ -1,3 +1,89 @@
+###  Публикация: 1748420   (44100) от 09.09.2024
+
+Jean-Michel Jarre - Paris Stadium (2024) EP, Live [FLAC|Lossless|WEB-DL|tracks] <Electronic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris Stadium (Live)
+02. Industrial Revolution P2 Stadium (Live)
+03. Time Machine Stadium (Live)Жанр: Electronic TechnoПродолжительность: 00:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE47D56AFCD9A1FE0027CC5D24D147CD500E7AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748453   (44090) от 09.09.2024
+
+VA - Arabtronica 2024 - The Best Eastern Rhythms (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burak Abulso'oud - Guli Mata (5:18)
+02. Profesor Esteban - Ya Rayah (5:39)
+03. Saad Leela Bhansali - Alo Aleky (4:45)
+04. Davide Angiuli - Ensay (5:48)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5B668019357DDE99DE25CFC7A59E559D23D888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748823   (43871) от 11.09.2024
+
+VA - Lebanon Arabic Ethnic Deep House Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nouri Fateh - Aah-W-Noss (6:30)
+02. Rachid Fairuz - Habiby Da (4:30)
+03. Burak Abulso'oud - Paro (5:41)
+04. Sanjay Lamjarred - Min Awel Dekika (5:45)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC008E2A7C184EB0A784934D4F371CF23F48F6E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749884   (43339) от 16.09.2024
 
 VA - Buddha Luxury Bar - Arabian Chillout Deluxe 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
@@ -653,93 +739,6 @@ Mikhail Catan, Tibetania - Secret Garden (Tibetania Records) (2024) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAC62D130168F60435EBC62EF1A5498D80E18B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759158   (38081) от 06.11.2024
-
-VA - Autumn Car Music Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VOLB3X - Return of the Tres (Original Mix) (1:34)
-02. Jozua - Moonlight (Original Mix) (2:02)
-03. Ellister - Prayer in C (Original Mix) (1:50)
-04. Nickobella - Bella Ciao (Original Mix) (2:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0BA8A40838EBD5F859084B387D9E74CF2EB895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759387   (37875) от 08.11.2024
-
-Diego Galloso, Noam Garcia, Tibetania - Eastern Sun (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37875.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Central (9:07)
-2. Monet (8:58)
-3. Marena (7:51)
-4. Smile (12:22)(   Читать дальше...   )Жанр: Organic House, Downtempo, Progressive HouseПродолжительность: 01:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9081E91EB756869636D5FC8F9BA274013E06F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759488   (37866) от 08.11.2024
-
-VA - Sun Sand & Spirit, Vol. 1 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musical Religion - Byzantium (6:19)
-02. Noam Garcia - Marena (7:51)
-03. Tibetania - El Sol De Petra (6:12)
-04. Tamer ElDerini - Zaman (6:24)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4117BC7C04BD05653540D111AB69B3E6ADA3B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

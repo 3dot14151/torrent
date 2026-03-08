@@ -1,3 +1,32 @@
+###  Публикация: 1262654   (293510) от 16.11.2018
+
+VA - Ambient Silver Sounds (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293510.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Rostej - Call Me Helen (Original Mix)
+002. Alex Brynskich - Rain (Original Mix)
+003. Guitamar - Selva Negra (Original Mix)
+004. Mytron & Ofofo - Medicine Man (Original Mix)(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 10:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E90BDC6BBFE702D127416656F3BD1137E3C7D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185335   (293492) от 21.11.2017
 
 VA - Лучшие клубные новинки Vol.4 (2017) [MP3|320 Kbps] <House, Trance, Club>
@@ -716,35 +745,6 @@ VA - LUXEmusic: Dance Super Chart Vol.97 (2016) [MP3|256~320 Kbps] <House, Mash 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BAE66F3530F89132A5F25EE55D3D74013FEE0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080172   (290388) от 06.12.2016
-
-VA - Electro Life 43 (by ZiP)(2016) [MP3|320 kbps]<Electro House, Electro Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amphibious Zoo Music - Truth Is No (Dubstep Version)
-02. Arash ft. Snoop Dogg - OMG (Mike Candys Extended Remix)
-03. Banvox - Summer (Getter Remix)
-04. Blasterjaxx - The Silmarillia (Original Mix)(   Читать дальше...   )Жанр: Electro House, Electro Progressive, Dubstep, Deep House, House, TranceПродолжительность: 03:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47214CE6A38C858268CB57E719535CE019B4F377
 ```
 
 https://mybot314.ru/tekegram_catalog/

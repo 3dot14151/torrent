@@ -1,29 +1,3 @@
-###  Публикация: 1009069   (811477) от 20.04.2016
-
-Проекты - VideoHive - Lower 3rds - Clean Lines [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания 10 чистых нижних плашек.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CDD9BA70FCD533ADAE112F251B2BAFFF74CB27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008963   (811468) от 20.04.2016
 
 Проекты - VideoHive - Geometric Opener - 15081030 [AEP]
@@ -672,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4CDC9180986ABBACDC78F5E2C1E6DE7E745118D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009534   (809777) от 21.04.2016
+
+Проекты - VideoHive - Amazing GraPhix - 59227 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впечатляющая презентация для вашей компании и ваших клиентов! Легко изменить цвет и текст. Удивите своих клиентов эффективной и мощной презентацией.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6ABFCC6688FD784A11907E71646EE44E4F7DDE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

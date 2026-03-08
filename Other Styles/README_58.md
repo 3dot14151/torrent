@@ -1,3 +1,32 @@
+###  Публикация: 1284297   (729925) от 20.02.2019
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  9 (1994) [MP3|320 Kbps] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonata in D
+02. Sound of a song
+03. Hear my song
+04. Solveig's song(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CE33304A986829D2EE8BEF9C946ECD7896624A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022285   (729765) от 01.06.2016
 
 Emily Rowe - Daydream (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Violin>
@@ -721,35 +750,6 @@ Ramin Djawadi - Варкрафт / Warcraft (Original Motion Picture Soundtrack)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFB3161AED7FD40DD1C14B1DD2AC5771E66D4941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023199   (726104) от 04.06.2016
-
-Yanni - The Dream Concert: Live from the Great Pyramids of Egypt (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Man's Dream
-02. For All Seasons
-03. Yanni Welcome
-04. Felitsa(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A019B44CDD7A877C3006D08229A4EC6A80D8733
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 762435   (734907) от 01.02.2022
+
+VA - Super Eurobeat Vol. 227 (2014) [FLAC|Lossless]<Electronic, Disco, Hi NRG, Synth-Pop, Eurobeat>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dejo -  Wilder Faster Louder  (5:15)
+02. Hotblade -  Showdown  (4:13)
+03. Pamsy -  Crazy and Free  (4:03)
+04. Manuel -  Manga Style  (4:11)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRG, Synth-Pop, EurobeatПродолжительность: 01:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057286EA796A4FBB8B98743C6BB852C4D399C00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 662828   (734888) от 01.02.2022
+
+Various Artists - Super Eurobeat Vol. 223 (15 May 2013) [FLAC|Lossless]<Electronic, Disco, Hi NRG, Synth-Pop, Eurobeat>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_734888.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dave Rodgers - Into The Sunrise (4:36)
+2. Belight - Tonight In Paradise (4:38)
+3. David Dima - Heart's On Fire (4:54)
+4. Megan - Walking Alone In London (4:41)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRG, Synth-Pop, EurobeatПродолжительность: 01:11:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528583   (734463) от 02.02.2022
 
 Shyguys - Venture (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
@@ -686,64 +744,6 @@ autoisolation - Into the mist (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6406A6408FFCCC421ED22A22AAB431147CB04769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283886   (732141) от 18.02.2019
-
-Key4050 (Bryan Kearney & John O'callaghan) - Tales From The Temple (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Beetlejuice (Original Mix)
-02.Wendle (Original Mix)
-03.Birch (Original Mix)
-04.Utterly Butterly (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B63E9E73F9C545FAFB3E0CF7F0380A2113EA6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127415   (732075) от 21.04.2017
-
-00.db (John 00 Fleming & The Digital Blonde) - Heaven & Hell (2009) [FLAC|Lossless|tracks+.cue] <Trance, Psy-Trance, Progressive Trance, Ambient>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 00.db - Magna (2:17)
-02. 00.db - Indigo (9:48)
-03. 00.db - Lantra (Album Version) (8:41)
-04. 00.db - Ark (Album Version) (7:28)(   Читать дальше...   )Жанр: Trance, Psy-Trance, Progressive Trance, AmbientПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91BB5C4A127F7E1E2472F728DF51D7DC7E6D277
 ```
 
 https://mybot314.ru/tekegram_catalog/

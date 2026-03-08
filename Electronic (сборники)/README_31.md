@@ -1,3 +1,32 @@
+###  Публикация: 991349   (906065) от 28.02.2016
+
+VA - Record Super Chart № 425 (2016) [MP3|128-320 кб/с] <Club House, Electro House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kadebostany - Teddy Bear (Astero Remix)
+02. Sander Van Doorn, Moti - Lost
+03. Major Lazer, Nyla, Fuse ODG - Light It Up
+04. KSHMR, Marnik - Bazaar!(   Читать дальше...   )Жанр: Club House, Electro House, DanceПродолжительность: 1:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE3DEFD41AAB24352402BE260526F1DA39C5200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368954   (905648) от 22.03.2020
 
 VA - Record Super Chart 630 (2020) [MP3|320 Kbps] <Pop, House, Dance>
@@ -720,35 +749,6 @@ VA - Soft Chaos: Electronic Set (2021) [MP3|320 Kbps] <Synthetic, Electronic, Ex
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B8E1A9E193C7DAF02E216A5768811B9EE23B4E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492091   (902352) от 30.08.2021
-
-VA - Ambient Budda Groove Party (2021) [MP3|320 Kbps] <Ambient, New Age, Meditation>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902352.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Magenta Room - Air Tomorrow
-002. Night Sky Pulse - Luminescence
-003. Cephas Teom - The Kingdom Of Heaven
-004. Intelligent Life - Lost In Translation(   Читать дальше...   )Жанр: Ambient, New Age, MeditationПродолжительность: 10:21:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D25ABCDB3B4593A82A3A53EEECC0795AC95AA23
 ```
 
 https://mybot314.ru/tekegram_catalog/

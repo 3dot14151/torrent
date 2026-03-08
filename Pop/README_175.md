@@ -1,3 +1,61 @@
+###  Публикация: 1047884   (548251) от 31.08.2016
+
+Carly Rae Jepsen - Emotion Side B (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Time
+02. Higher
+03. The One
+04. Fever(   Читать дальше...   )Жанр: PopПродолжительность: 00:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F24308131EEB947EC6D29A097E13B42B92BC4D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048027   (548081) от 31.08.2016
+
+VA - Хитовый Dance (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юлианна Караулова - Море (feat. ST)
+02. Анна Седокова - Я буду
+03. Karabass - Танцы
+04. Митя Фомин - Следуй за солнцем (DJ Noiz Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9439FDA96D15B3697694E65666386C02AF69336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310194   (547852) от 23.06.2019
 
 Sailor - 2 Albums (1976, 1977) LP [MP3|320 Kbps] <Pop Rock, Disco>
@@ -697,64 +755,6 @@ Helen Shapiro - 'Tops' With Me / Helen Hits Out! (2000) [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4906B09A338BF459967994F5C364F351C29F87F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310994   (544582) от 27.06.2019
-
-Helen Shapiro - At Abbey Road 1961-1967 (1998) [FLAC|Lossless|tracks + .cue] <Blues, Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Treat Me Like A Child (Mono) (02:36)
-02. You Don't Know (Mono) (03:12)
-03. Walkin' Back To Happiness (Take 2 Plus Studio Conversations) (Stereo) (02:51)
-04. Walkin' Back to Happiness (Take 13 Master) (Stereo) (02:34)(   Читать дальше...   )Жанр: Blues, Pop, Soul, FunkПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE4B3F3ECEA801D89EC0057BA363DF844CEC3ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310966   (544537) от 27.06.2019
-
-VA - Mellow Gold: 70s Classics (2019) [MP3|320 Kbps] <Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bread – If
-02. Seals and Crofts – Hummingbird
-03. America – Muskrat Love
-04. Gerry Rafferty – Look at the Moon(   Читать дальше...   )Жанр: Pop, Soul, FunkПродолжительность: 01:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0428220E97F5D539B094CAD7A8524FE3AE881C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

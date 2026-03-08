@@ -1,3 +1,29 @@
+###  Публикация: 635271   (909083) от 26.03.2013
+
+Parov Stelar Trio - The Invisible Girl (2013) [FLAC (tracks+cue)|Lossless]<Nu Jazz, Acid Jazz, Downtempo>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Nu Jazz, Acid Jazz, DowntempoПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098614   (909032) от 30.01.2017
 
 Houston Person - Island Episode (1997) Prestige[FLAC|Lossless|tracks + .cue] <Post-Bop, Soul Jazz>
@@ -716,35 +742,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE796DD78452E4550774B8B05191DE2BDC6449B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991936   (904555) от 29.02.2016
-
-Dizzy Reece - Soundin' Off (1960) 2003, Toshiba[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Ghost Of A Chance [05:06]
- 02.Once In A While [07:58]
- 03.Eb Pob [07:30]
- 04.Yesterdays [07:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE480B009A467D89DB9FC352C6199E64040AC707
 ```
 
 https://mybot314.ru/tekegram_catalog/

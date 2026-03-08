@@ -1,3 +1,32 @@
+###  Публикация: 1266378   (270963) от 01.12.2018
+
+Blonker - The Sound Of Blonker (1995) 3CD-Box [MP3|320 Kbps] <Instrumental Pop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дитер Гайке (нем. Dieter Geike, 25 декабря 1946 года) — немецкий композитор и музыкант, мультиинструменталист, известный как «Blonker». Играл на клавишных, бас-гитаре, гитаре, мандолине, перкуссии и драм-машине. В его музыке можно услышать переплетения разных стилей и жанров: джаз, рок, классика и нью-эйдж.01. Indigo (4:27)
+02. The Rose (3:52)
+03. When A Man Loves A Woman (2:45)
+04. Inside (3:21)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 03:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D555910EB0A744D121637AFE436A9D6C1E3E7CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499255   (270685) от 01.12.2018
 
 Геннадий Заволокин - Играй, Гармонь! - 12 альбомов (1994 - 2002) [MP3|224 кб/с]<Folk>
@@ -713,35 +742,6 @@ Leonhardt North - The Spirit Of Pandora (2010) [MP3|256 kbps] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CCB555B0F19330C789E7BCBD58DBAA78281636A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 80962   (267387) от 05.12.2018
-
-Kartsy Hatakka & Kimmo Kajasto - Max Payne 2: The Fall Of Max Payne (Original Soundtrack) (2003) [MP3|186 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Payne Theme (3:59)
-02. Max's Duty Corrupted / Winterson (3:15)
-03. Max's Passion / Mona (3:38)
-04. Max's Choice / Duty vs. Passion (3:42)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F6B104ABBD96124AA08870AA2E5FD9D63C703B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 1065279   (419216) от 23.10.2016
+
+VA - Orient Express (2016) [MP3|320 Kbps] <Arabic, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebastien Casanova - Cloudy Others (feat. Arthur Alfocea) 4:07
+02. Terakaft - Karambani 3:23
+03. A-WA - Habib Galbi 3:22
+04. Viken Arman - Souq 6:21(   Читать дальше...   )Жанр: Arabic, Lounge, ChilloutПродолжительность: 01:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2020EBD8AE7F2F0BA2E594580CE0E76DA4669E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572581   (419141) от 28.08.2022
+
+VA - В машине с музыкой Vol.297 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seo - Адам И Ева (03:54) 2022
+02. Макс Вертиго - Полжизни За Рулём (03:38) 2022
+03. Trfn Feat. & Siadou - Make Your Move (02:15) 2022
+04. Luckysmoke Feat. & Lxe & Haebal - Не Моя Вина (02:22) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B41DE3F328A982232C21F1F989BD53E730DB94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167188   (419076) от 19.09.2017
+
+VA - 1000 Разных Групп & ВИА ХХ Века (от Ovvod7) Vol.01 (2017) [MP3|320 Kbps] <Pop, Rock, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419076.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Мираж - Я Больше Не Прошу  3:57
+002.  Комбинация - Не Забывай  3:55
+003.  Иван Купала - Кострома (Remix)  5:20
+004.  Инспектор - Звезда По Имени Солнце  5:06(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 11:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9515157E01208E898AE477AF26D63653FB152C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557672   (418508) от 08.10.2012
+
+VA - Сборник Советского Рока (2012) [MP3|320 кб/с]<Rock, Punk, Heavy Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gorky Park - Bang
+02. Агата Кристи - Танго с дельтапланом
+03. ДДТ - Церковь
+04. Кино - Звезда по имени Солнце
+05. Мастер - Воля и Разум
+06. Сектор газа - Ой, ты травушка зелёная
+07. Чёрный Кофе - Чёрный кофе
+08. Телевизор - Дальний Восток
+09. Разные Люди - Будь! (Пиво и рыба)
+10. Пикник - Иероглиф(   Читать дальше...   )Жанр: Rock, Punk, Heavy MetalПродолжительность: 23:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63CFED5F340757ADD3BC8F15792E6E5D6FA24119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947563   (418261) от 17.10.2015
 
 VA - Amsterdam Music Festival - The 2015 Compilation (2015) [MP3|320 кб/с]<Trance, House, Progressive, Dance>
@@ -641,120 +763,6 @@ VA - Tribais Dark Folk (2020) [MP3|320 Kbps] <Folk Ambient, Dark Ambient, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B805C5F4F12225665C0163FA0295BA8CB8D1ECF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572758   (412522) от 31.08.2022
-
-VA - Music News vol.211 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412522.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Haliene - Butterfly (02:48)
- 002. ABI - Будь Ближе (02:19)
- 003. Ad Voca feat. Exlls - I Can't Take It (Na Na Na) (02:24)
- 004. ALEKS ATAMAN feat. Finik - Белыми Ночами (03:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B575BB6C016D2D5E4CA8EB1F2D139A63043090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572777   (412373) от 31.08.2022
-
-VA - Music News vol.212 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412373.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alethia - Много Или Мало (03:05)
- 002. Abbasov - Было Не Было (02:26)
- 003. Agnes - Love And Appreciation (Radio Edit) (03:08)
- 004. Akris & Teddy - Мамасита (02:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7862C4B46C78FFF833E71A94CA33F0D58979C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413199   (411884) от 02.10.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 02.10.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Eilish - ilomilo (MBNN Remix) (4:54)
-02. NRD1 - All Good Things (Come To An End) (Extended) (4:24)
-03. BTS - Dynamite (3:19)
-04. RAYE - Natalie Don't (3:14)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD3047B5D2CE418F95BFAE185D42BB6AD4ED4DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948397   (411603) от 20.10.2015
-
-VA - Passion (After Midnight Edition) (2015) [MP3|320 кб/с]<Funky, Club House, Deep House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jet Sex - Jet Sex (Minigroove Mix) (05:16)
-02. Yves Rocher - This Is My Sound (Glitter Rhythms Mix)Жанр: Funky, Club House, Deep House, DanceПродолжительность: 01:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010F6FE575FA815E9906DD42549DA12C7A2B221A
 ```
 
 https://mybot314.ru/tekegram_catalog/

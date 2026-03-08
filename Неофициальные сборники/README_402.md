@@ -1,3 +1,177 @@
+###  Публикация: 1405103   (487378) от 28.08.2020
+
+VA - Cyber World: Part Of Techno (2020) [MP3|320 Kbps] <Techno, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Leonardo Pancaldi - Before You Go
+002. Johao Bodj - Future
+003. Stu & Brew - Others (Original Mix)
+004. Overshift - Cinema(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191D7DB9C2FA3661F5425341234156552259DDE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405102   (487284) от 28.08.2020
+
+VA - Silent Mutiny: Alternative Punk Rock (2020) [MP3|320 Kbps] <Punk Rock, Alternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487284.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Codename Colin - Losing Touch
+002. Braincoats - These Hospital Halls
+003. Hawaiian6 - Skull And Bones
+004. Mikey Erg - Mother Nature's Son(   Читать дальше...   )Жанр: Punk Rock, Alternative RockПродолжительность: 07:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDBD10DA0729C6DF23F5EE91ACA1B5E3FF5DD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319194   (486814) от 10.08.2019
+
+VA - The Official UK Top 40 Singles Chart 09.08.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486814.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Shawn Mendes & Camila Cabello - Señorita (3:10)
+2.Ed Sheeran - Beautiful People (feat. Khalid) (3:17)
+3.Ed Sheeran;Justin Bieber - I Don't Care (3:39)
+4.Ariana Grande, Social House - boyfriend (3:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97E631C0B706B93339ED181506E11FCBB206AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319161   (486685) от 10.08.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 09.08.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran & Justin Bieber - I Don't Care 3:40
+02. Daddy Yankee feat. Katy Perry & Snow - Con Calma (Remix) 3:01
+03. Shawn Mendes & Camila Cabello - Senorita 3:11
+04. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C74B35A57EBD3E3BBB9CDBABD2B72835B2BBAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566157   (486283) от 27.07.2022
+
+Dana Winner - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman In Love
+02. Je Pense A Toi
+03. Where Your Road Leads
+04. Never Never Never(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB8B45EB94EC47A001BE7B3BAE67A3A3B4E56736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158992   (486249) от 19.08.2017
+
+VA - Uplifting DJ Master Mix (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486249.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alizera - Galaxy
+002. Roman Messer - Lost (Radio Edit)
+003. Cygnus X - The Orange Theme
+004. Attila Syah & Cari - Dark Side Of The Moon (Radio Edit)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 11:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A65A22764383F425BAD25C8805A0F75CC33D19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159133   (486243) от 19.08.2017
 
 VA - Summer House (Special Edition) (Compiled by ZeByte) (2017) [MP3|320 Kbps] <House, Deep House, Tech House>
@@ -619,186 +793,6 @@ VA - Future Ambient Electronic (2018) [MP3|320 Kbps] <Ambient, Downtempo, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAA093F671D4DCCFF3E28EF259A7891B6DCAF93C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319355   (484720) от 11.08.2019
-
-VA - New Wave Disco Vol.02 (2019) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484720.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jarred Gallo - Fancy Freak
-002. Alan Dixon - La Danza
-003. Riche Boom - Intellectual (Original Mix)
-004. Larombé - Train Of Thought(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 10:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15913FDCF5A7031574B764A5FDA987F2347CCE49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319367   (484716) от 11.08.2019
-
-VA - Record Super Chart 599 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484716.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Aaron Smith - Dancin (Krono Remix) (4:15)
-2.Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) (3:25)
-3.Billie Eilish - Bad Guy (3:14)
-4.Meduza feat. GOODBOYS - Piece Of Your Heart (2:32)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43A0E6D83071B828EB7835F6D937F90297C1E0CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319369   (484709) от 11.08.2019
-
-VA - Velvet Blues (2019) [MP3|320 Kbps] <Blues, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernard Allison - Backdoor Man
-02. Jimmy Reiter - Hooked
-03. Popa Chubby - Hey Joe
-04. Harpdog Brown - A New Day Is Dawnin(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 04:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6655DD4A5BA38653B19FCFC66399A5F6E823F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544278   (484564) от 10.09.2012
-
-VA - Новинки электронной музыки №1-2 [02.09.12] (2012) [MP3|320 кб/с]<Deep, Dubstep, Progressive House, Tech House, Techno, Trance, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484564.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Armin Van Buuren pres. Gaia - J'ai Envie De Toi (Tom Fall Remix) (7:03)
-2. Dankann - Unika (Antillas Rework) (5:55)
-3. Exostate - Easily I Fell (Norin & Rad Remix) (6:30)
-4. Faruk Sabanci feat. Josie - Wake Up (Original Mix) (7:40)
-5. Larkin & Lange - Obvious (Wezz Devall Remix) (6:01)
-6. Las Salinas Vs. Gofman & Tsukerman - El Clasico (Original Mix) (6:38)
-7. Markus Schulz Feat - Adina Butar - Caught (Club Mix) (6:16)
-8. Orjan Nilsen - PhireWorX (Original Mix) (7:02)
-9. Paul Webster - Nailed (James Dymond Remix) (8:06)
-10. Paul Webster ft Angelic Amanda - Time (MaRLo Remix) (5:20)(   Читать дальше...   )Жанр: Deep, Dubstep, Progressive House, Tech House, Techno, Trance, Electro HouseПродолжительность: 07:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C7F0D5C389D5133D4C6B97D9CE97BB5939413E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319406   (484455) от 11.08.2019
-
-VA - Eurobeat Club Dance (2019) [MP3|320 Kbps] <Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484455.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Afterchain - The Sound Of Chaos
-002. 4Ward - Obsessive
-003. 120 Dance - Nothing Else Matters
-004. Alison Candy - Next To Me(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 11:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3285A2D9303A462F79CB10048989AE3FD098262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056032   (484258) от 24.09.2016
-
-VA - The Best Lounge Vol.45 (Compiled by Sergio) (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - In a Quiet Moment 6:18
-02. Abakus - Dreamer 5:48
-03. Cats Love Dogs - Sunpearls 5:42
-04. Noise Boyz - My Own 6:25(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A1C72458AAC994E3F0F526DD7116ABD6DE1EA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

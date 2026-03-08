@@ -1,29 +1,3 @@
-###  Публикация: 963351   (288648) от 07.12.2015
-
-Kung Fu Panda: Showdown of Legendary Legends (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kung Fu Panda: Showdown of Legendary Legends – стилизованный под мультфильм двухмерный файтинг на базе знаменитой серии, посвященной приключениям панды По и Неистовой Пятерки. Игру разрабатывает студия Vicious Cycle, ответственная за выпуск адаптаций по анимационным лентам «Турбо» и «Мадагаскар».Тип издания: UnofficialРазработчик: Vicious Cycle SoftwareЖанр: FightingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E41D98D25420F0717D1976261BC33558E94AFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335507   (287348) от 02.11.2019
 
 The History Channel: Battle for the Pacific (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
@@ -689,6 +663,33 @@ Score International Baja 1000: World Championship Off Road Racing (2008) [PS3] [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC882AED17444B109D056B676C0A4BF2559F34DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273729   (272262) от 24.12.2010
+
+Trauma Team [Wii] [NTSC] [Eng] (2010)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая игра во вселенной Trauma Center, эксклюзив для Wii. 
+ATLUS решила внести кардинальные перемены в серию — если раньше играющий был преимущественно хирургом, то теперь нам предоставляется возможность побыть еще и например, судебно-медицинским экспертом, сотрудником скорой помощи и эндоскопедистом. Всего в игре будет 6 вариантов профессий, 6 основных героев, которые (   Читать дальше...   )Разработчик: AtlusЖанр: Визуальная новелла/Логическая/Симулятор/AнимеЯзык интерфейса: EngФормат: Образ в формате
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65ECCD3992CB77BD54EB87C0E7A8A6FCD9CBD84E
 ```
 
 https://mybot314.ru/tekegram_catalog/

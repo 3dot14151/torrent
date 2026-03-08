@@ -1,3 +1,32 @@
+###  Публикация: 1041512   (582612) от 09.08.2016
+
+Mike Pachelli - electricite (2007) [FLAC|Lossless|image + .cue] <Avant Garde Jazz, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Alligator Shoes - 5:56
+02. Down The Upstairs - 6:24
+03. Martini Lounge - 5:43
+04. Right Around The Corner - 4:23(   Читать дальше...   )Жанр: Avant Garde & Free JazzПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2F3801B76B44EAD45519A477AEA9836C46ADFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041350   (582608) от 09.08.2016
 
 Don Pullen - Richard's Tune (1975) 2014, Delmark Records[FLAC|Lossless|tracks + .cue] <Post-Bop,  Avant-Garde Jazz>
@@ -726,35 +755,6 @@ Nicolai Gromin Trio (Николай Громин) - Blue In Green (1997) [WavPac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83739956E96B6599FB796686A9B6E57F9086CD2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042254   (579597) от 12.08.2016
-
-Players (Jeff Berlin, Steve Smith, Scott Henderson, T Lavitz) - Players (1987) [WavPack|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579597.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Crystal (4:25)
-2. Valentine (5:31)
-3. 50/50 (4:38)
-4. Vehicle (4:20)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3EAB7D6C74256380796A0746333E3917063290
 ```
 
 https://mybot314.ru/tekegram_catalog/

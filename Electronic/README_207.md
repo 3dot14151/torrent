@@ -1,3 +1,61 @@
+###  Публикация: 1291601   (668916) от 25.03.2019
+
+V I C I M - Convenience (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668916.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. untitled universe (06:32)
+2. sarus the witness (10:56)
+3. call for gold (05:15)
+4. detour (06:15)(   Читать дальше...   )Жанр: Electronic, Ambient, DroneПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8207FD0F79130E0400C74B914D3087E1B561CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031181   (668895) от 03.07.2016
+
+VA - EDM Flash Trance Vol.1 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Meyers -  Play House (Vocal Edit) 5:41
+02. Brothers -  My Battle (Trvpers Mix) 4:44
+03. P.N.O -  In the Air 3:40
+04. Mart Sine -  Don't Turn Away (Matt Chowski Remix) 6:44(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B43B85D989DE3F0967C415016A41B39BB7BF944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031180   (668893) от 03.07.2016
 
 Thomalla - Imaginary Solutions (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -692,64 +750,6 @@ VA - Sunshine Dance 6 (2017) [MP3|320 Kbps] <Future House, Progressive, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B8E8891C5E06D6DEB5F82A1A0C03A60C3142D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138051   (665708) от 28.05.2017
-
-VA - Seven Stories: Voyage & Return (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yacine Dessouki & Alani - Distant Reflections [06:33]
-02. Luis Leon - Die Blaue Blume [08:27]
-03. No Gravity - Escape The Forest [05:41]
-04. Quartz - Redemption [08:08](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5583AC90E57E9AAD35B6EC8B94AE0058DDF3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137815   (665660) от 28.05.2017
-
-Giacomo Bondi - Songset Boulevard (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Dying Softly
-02 – Do What the Grown Folks Do
-03 – Chercher
-04 – Days(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EC255AC9E0CAC83D36DB21E8F5F10FDAB32066
 ```
 
 https://mybot314.ru/tekegram_catalog/

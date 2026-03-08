@@ -1,3 +1,58 @@
+###  Публикация: 756711   (848874) от 26.03.2014
+
+Alex M.O.R.P.H. - 6 Albums , 7 Compilations (2006 - 2014) [MP3|320 кб/с]<Trance , Uplifting Trance , Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 02:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE734D7708BE4F61B0550149FA9850B86FEB90E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111196   (848853) от 05.03.2017
+
+VA - Easy Listening Lounge Affairs Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York - Cruisin'
+02. Lazy Hammock - Feel So Free
+03. Simon Le Grec - Stella
+04. Glam Sam And His Combo - Just Because(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABEE2A1CFC1BA389C92694BDF54FA728D69C3B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111604   (848846) от 05.03.2017
 
 VA - A Kind of Relax (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -687,64 +742,6 @@ VA - The Remixes, Vol.27 (2021) [MP3|320 Kbps] < House, Progressive House, Minim
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9629DA838644F405EA8998A6DE8F38F4B4AC972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189249   (846143) от 25.04.2020
-
-Ulrich Schnauss (The Extremist, Ethereal 77, View To The Future) - Discography 40 Releases (1997-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, IDM, Leftfield, Shoegaze, Drum &am ...
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apotheosis (08:03)
- 02. Sirius (10:07)
- 03. Zodiac (08:59)
- 04. Pacific Stereo (08:07)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Drum & Bass/AmbientПродолжительность: 40:43:10 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19730E9FCFCD4E79DF4ACAA960DE11005E5C9651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048421   (846043) от 03.10.2021
-
-Ioann Darkovski - Ivory Tower (2016) [MP3|320 Kbps|image + .cue|tracks + .cue] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkside - A2
-02. David August feat. Sissi Rada – Patria
-03. Canson – Kamtschatka
-04. David Mayer feat. Sooma - Bold (Touchdown Mix / KM Shop Exclusive)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B457AA0E65E3D312A0A85EF88EB18EF2EC8AC7FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

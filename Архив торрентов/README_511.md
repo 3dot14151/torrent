@@ -1,3 +1,38 @@
+###  Публикация: 282351   (943578) от 15.01.2011
+
+VA - Trancemaster 7002 (14.01.2011) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_943578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstract Vision & Elite Electronic - Horizons (Original Mix) (7:10)
+02. Tom Colontino - Palladium (Original Mix) (7:54)
+03. Andre Visior & Kay Stone - Sunrise (Ronski Speed Remix) (3:54)
+04. Michael Burian - Wacker Drive (Alex M.O.R.P.H. Burning Fire Remix) (8:14)
+05. Luca De Maas - Desert Nights (Original Mix) (7:05)
+06. Suncatcher - First Day (Original Mix) (9:03)
+07. Mike Danis - Cosmic Diary (Original Mix) (7:12)
+08. Astronomers - Moonstarers (Johan Ekman Mix) (8:25)
+09. Sied van Riel - Crossroads (Original Mix) (5:22)
+10. Blast88 & Gabriel Miller - Tasty & Nasty (Original Mix) (8:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4AB6989013071D8062885FF8E8A27B9E91562E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363347   (943563) от 27.02.2020
 
 iZotope - Neutron 3 Advanced 3.1.1 VST, VST3, AAX (x64) RePack by R2R [En]
@@ -645,32 +680,6 @@ Tor Browser Bundle 5.5.1 Final [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5275CF22C8A677C2A5FC8F5B23036EA104EF4D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982783   (943263) от 06.02.2016
-
-Andy 46.2.53 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Andy - приложение, которое позволяет вам соединять мобильное устройство и компьютер вместе в виртуальной среде, которая прекрасно подойдет для игр. Приложение предоставляет неограниченный объем хранилища, обладает полноценной совместимостью с ПК и предоставляет полную свободу запуска мобильных игр на обычном компьютере. Andy синхронизируется с учетной записью Google (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1E3C505B56058F9F5ADEACBCC6D44AEE7952BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 994277   (891546) от 07.03.2016
+
+VA - Die Hit-Giganten - Partyklassiker (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, House, Pop Rap>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvis vs. JXL - A Little Less Conversation (JXL radio edit remix) (3:33)
+02.Madness - Our House (3:22)
+03.The Clash - Should I Stay or Should I Go (3:09)
+04.Cyndi Lauper - Girls Just Want to Have Fun (3:47)(   Читать дальше...   )Жанр: Pop Rock, House, Pop Rap, Schlager, Disco, Synth-pop, Classic RockПродолжительность: 02:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8523C05AC6F6481588921C2CFB58874EF9CDC953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994372   (891442) от 07.03.2016
+
+Eighth Wonder - Fearless (1988) Reissue, 2010, Cherry Pop [FLAC|Lossless|image + .cue] <Pop, Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cross My Heart
+02. When The Phone Stops Ringing
+03. Baby Baby
+04. Will You Remember?(   Читать дальше...   )Жанр: Pop, Dance PopПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2EE78715831661BDBF62BE14F1DFB114FD9B633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994417   (891322) от 07.03.2016
 
 VA - Die Hit-Giganten: Best of Disco (2013) Box Set, 3CD [FLAC|Lossless|image + .cue] <Pop>
@@ -685,64 +743,6 @@ Leda - Welcome To Joyland (1978) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A8826028234B126DD46A9C43A8213982A74495E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494537   (887739) от 08.09.2021
-
-VA - Summer Break 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Bieber - Peaches (03:18)
-02. Sam Smith - Like I Can (02:46)
-03. Kungs - This Girl (Kungs Vs. Cookin' On 3 Burners) (03:15)
-04. Sera - Only Us (03:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0333A89A3C1F1FD9C47E66EDDC29CE1D7544E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494694   (887537) от 08.09.2021
-
-VA - 100 Greatest ’60s Rock Songs (2021) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887537.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Van Morrison - Brown Eyed Girl (3:03)
-002. Eric Burdon & the Animals - House of the Rising Sun (4:31)
-003. The Beatles - Come Together (2019 Mix) (4:20)
-004. Creedence Clearwater Revival - Fortunate Son (2:20)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D1BB6890BBEF08F2A011B9042DADA5649DC0DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

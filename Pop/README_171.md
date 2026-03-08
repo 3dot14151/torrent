@@ -1,3 +1,61 @@
+###  Публикация: 1305629   (556452) от 31.05.2019
+
+Richard Vimal - Migrations (1978) LP [MP3|320 Kbps] <Electronic, Synth-pop, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Migrations (05:15)
+02. Nuances (02:53)
+03. Evanescence (03:25)
+04. Septentrion (03:40)(   Читать дальше...   )Жанр: Electronic, Synth-pop, AmbientПродолжительность: 00:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF62F7C0336B9B21D14D3E8A662660A0815C8F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305508   (556446) от 31.05.2019
+
+VA - Simplified More Than Acoustic (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freestyle - So Slow
+02. Aiza Seguerra - Power of Two
+03. Paolo Santos - Moonlight over Paris
+04. Side A - Sailing(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3406FDE883D6DE14433243A6B6994CC0E7320756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556942   (556398) от 12.06.2022
 
 Vanessa Mai - No Hard Feelings (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Pop>
@@ -685,64 +743,6 @@ CD01
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D321DF571ABB6AC6C0E773AA17FBA45A64CFBF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236157   (554756) от 16.07.2018
-
-VA - Split Dimension 1-3 (2011, 2012) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Electro, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keen K - Ouverture Imaginaire (4:13)
-02. Keen K - Touch Me (3:32)
-03. Keen K - Night Dancer (4:24)
-04. Keen K - Metaphysical (3:27)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Electro, Synth-popПродолжительность: 01:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAB9E96443A2A9FF46B40E53D63EC66B37FD0F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236123   (554752) от 16.07.2018
-
-Anna Tatangelo - Ragazza di periferia (2007)  [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Essere una donna Mastered (4:03) bonus track
-02. Colpo di fulmine (3:30) bonus track
-03. Quando due si lasciano (3:35)
-04. Dimmi dimmi (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB52E64EED0E602B6CE41DA84E195A715CE3C08
 ```
 
 https://mybot314.ru/tekegram_catalog/

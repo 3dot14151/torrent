@@ -1,3 +1,61 @@
+###  Публикация: 914785   (596505) от 03.07.2015
+
+VA - Sunset Chill Lounge Lush Tropical Laid Back Chillout Selection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fairlight - Moments in Love - DJ Ravel Chill Version [06:18]
+02. Far Out - Sunset Swim [04:19]
+03. Nikolas Miyakis - Melrose Avenue [05:08]
+04. Liam Van Dyke - Cafe Del Mar - Balearic Lounge Remix [04:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4FA15FC07043630E7180E51D71FB998100081F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232822   (596480) от 26.06.2018
+
+VA - Active Agent Of Sound (2007) Klangwirkstoff Records [FLAC|Lossless|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toshra - Venera (08:15)
+ 02. Mirror System - Flex-E-Fun (07:26)
+ 03. Motom - Aum (09:20)
+ 04. Brain Entertainment Laboratory - Solardrifting (13:01)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 02:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D28B1A5C149385770D937B555DA8F21B788EC08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232744   (596470) от 26.06.2018
 
 VA - Ibiza Deep House (2018) [MP3|320 Kbps] <Deep House>
@@ -695,64 +753,6 @@ VA - One Night In St. Tropez 2017 [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B98F6A7E90FB5B47454C5CB0096B8DB228086956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150410   (594069) от 15.07.2017
-
-VA - Destination Ibiza 2017 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danev - Shaggy (Extended Mix) 05:20
-02. Seal De Green - Licky (Original Mix) 03:34
-03. Filatov - Back In The Love (Swanky Tunes Remix) 06:35
-04. Aminata - Love Injected (Karl G Remix) 05:37(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5CE3C7B7E9910C8E869386B48D78790B42FAAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150301   (594067) от 15.07.2017
-
-VA - Black Hole House Music 07-17 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jes & Game Chasers - Carry Me Away (Game Chasers Deeper Mood Extended Mix)  5:46
-02.  Zoo Brazil And Dirty South - Never Had (Dirty South Remix) (feat. Niara)  7:29
-03.  Kokaholla - High With Me (feat. Quinn Bates)  3:39
-04.  Drop Department & SuitStatic - Sarod  5:11(   Читать дальше...   )Жанр: HouseПродолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3BCBDF8EE1F54CA7BEFB9B58DD99E609398503
 ```
 
 https://mybot314.ru/tekegram_catalog/

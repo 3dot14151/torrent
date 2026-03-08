@@ -1,327 +1,25 @@
-###  Публикация: 1261683   (301294) от 12.11.2018
+###  Публикация: 1333895   (301348) от 26.10.2019
 
-Manimal - Purgatorio (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Plague
-02. Purgatorio
-03. Manimalized
-04. Spreading the Dread(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4378DC4196B7166F042887854911250188D3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184319   (301293) от 17.11.2017
-
-Студия Союз (2017.11.16) WEB-DL [H.264/720p-LQ] (выпуск 15)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E77EF7ADC822476E88EAD710A59F0F861A9F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261887   (301292) от 12.11.2018
-
-MacroVision - Skyroom (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skyroom (Rework)   (08:15)
-02. Glow (Original Mix)  (10:52)
-03. Pollux (Original Mix) (09:38)Жанр: Progressive HouseПродолжительность: 00:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FE9B7D6FD8B362EBEFBCAC9DF65673CF0C4055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184462   (301291) от 17.11.2017
-
-Растровый клипарт - Soon New Year #10 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Скоро Новый Год на прозрачном фонеФормат: PNGРазрешение файлов: 395x1400-3704x2035
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C435F97066EC8E0F18F894D5B100C55AFFF1525B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184383   (301290) от 17.11.2017
-
-Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.11.16) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 20)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301290.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A6F5CB5D9DCF3175BDB4065FA166E96EFF5BC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184284   (301289) от 17.11.2017
-
-Algoriddim djay Pro (Complete FX Pack) 1.4.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Algoriddim djay Pro – это программа для управления и микширования музыкальной коллекции.
-Ее особенностью является наличие двух реалистичных виртуальных интерактивных вертушек, а также возможность записывать и передавать музыку через сеть Bonjour на подключенные к сети компьютеры с установленной программой. Программа поддерживает все основные форматы файлов, включая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 ноября 2017Разработчик: Algoriddim GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEC6AB911845BB361FD727C8793FE875F1381DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261768   (301288) от 12.11.2018
-
-Anita O'Day - Jazz 'Round Midnight (1954 - 1962) 1997, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Eyes [3:41]
-02. A Nightingale Sang in Berkeley Square [4:04]
-03. We'll Be Together Again [3:39]
-04. I Cover the Waterfront [3:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26BA653FC760473357B1547631CA000E1257F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184464   (301287) от 17.11.2017
-
-Растровый клипарт - Soon New Year #9 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Скоро Новый Год на прозрачном фонеФормат: PNGРазрешение файлов: 72x150-7143x2676
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099D0EFEE6F761F7EADEFAB79B4C237E4CFFCB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261677   (301286) от 12.11.2018
-
-A Dying Planet - Facing The Incurable (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Resist (14:06)
-02.Facing The Incurable (10:22)
-03.Human Obsolescence (7:43)
-04.Poison The Well (8:08)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D6031E1486AB9F2E0E3F49E51E9CBF36AA8B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184404   (301285) от 17.11.2017
-
-Владислав Выставной | Кремль 2222. Охотный ряд (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман из межавторского цикла «Кремль 2222».
-
-Враг приходит, когда не ждешь. Откуда не ждешь. И помощи ждать неоткуда.
-Никто не знал, что у самых стен Кремля притаилась угроза, ждавшая своего часа две сотни лет. Эхо Последней Войны грозит обернуться падением древней крепости. Единственный предвестник грядущей катастрофы – кремлевский семинарист Книжник. Он пытается (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3069AF01EF6CD80F28EE9DDAC735B1A20BFF92F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184351   (301284) от 17.11.2017
-
-Audirvana Plus 3.1.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audirvana Plus - мощный аудиофильский плеер с широчайшими возможностями.
-Audirvana Pro понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2017Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D265BE4340F97351CDB874E160C768DDDDE72B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184370   (301283) от 17.11.2017
-
-VA - Blank & Jones Presents Chilltronica No.6 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+VA - Drizzly Music presents: Magic Island Of Lounge Series (Life Is A Journey) - 5 Releases (2015-2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301283.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Blank & Jones - Waves (Original Mix)  2:54
-02.  Blank & Jones - The Very End (Original Mix)  5:36
-03.  Sven Weisemann - Falling Leaves  7:12
-04.  Antonymes - Film One (Original Mix)  5:35(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:22:41
+2015 - Magic Island Of Lounge • Volume 1 (Life Is A Journey)
+2015 - Magic Island Of Lounge • Volume 2 (Life Is A Journey)
+2016 - Magic Island Of Lounge • Volume 3 (Life Is A Journey)
+2017 - Magic Island Of Lounge • 2017 Edition (Life Is A Journey)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 11:16:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:170DEAC8A1A5746CAF022ECC4C88D1BE4DAA9FAE
+magnet:?xt=urn:btih:AFE854AF911E88963F32138B4C9238C8D44A59C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184313   (301282) от 17.11.2017
+###  Публикация: 1333599   (301347) от 26.10.2019
 
-Стелла Геммел | Город (2017) [MP3]
+Frederator Studios | Артбук по мультсериалу Храбрейшие Воины / The Art of Bravest Warriors (2019) [CBR] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Комиксы и Артбуки
+>>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301282.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Город — государство без имени, просто Город, но стоит кому-нибудь из смертных упомянуть его название вслух, как людей охватывает страх. Уже много десятилетий правит городом Ареон, император-воитель, который, кроме войны и смерти, в этом мире не признает ничего. Бесконечные сражения с «синекожими» — так презрительно называют приспешники Ареона своих соседей — довели (   Читать дальше...   )Жанр: Зарубежное фэнтезиПродолжительность: 22:57:30
+Артбук содержит эскизы и концепт-арты по мультсериалу "Храбрейшие Воины"Жанр: АртбукФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D65E362E4DE343A13B6A1370C7C6641C933A505
+magnet:?xt=urn:btih:655CCD8EE5999BA9FB73C4FF30F2D0B832D24EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -355,80 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184458   (301281) от 17.11.2017
+###  Публикация: 1333708   (301346) от 26.10.2019
 
-Растровый клипарт - Soon New Year #11 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Скоро Новый Год на прозрачном фонеФормат: PNGРазрешение файлов: 247x343-2831x2836
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0919148086F548CAB8A8D57734734B5E93A4911A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184023   (301280) от 17.11.2017
-
-А.М. Черепащук. Лекция «Как увидеть чёрную дыру» (2017) WEBRip [H.264] [MP4|1920x1080]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301280.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последние годы достигнуты большие успехи в исследовании черных дыр как методами межконтинентальной радиоинтерферометрии с угловым разрешением лучше 10-5 секунды дуги, так и методами гравитационно-волновой астрономии. Исследование стадии затухающего звона в гравитационно-волновом сигнале при образовании горизонта событий черной дыры, сформировавшейся в результате (   Читать дальше...   )Жанр: Лекция, ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFE4595B364D0C147EC4F3AB20D331CA5BCD643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261709   (301279) от 12.11.2018
-
-Paolo Lucchi - The Dawn Sessions (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+Blank & Jones - The Singles (The Hitmix by Oliver Momm) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301279.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Episode 1 (07:10)
- 02. Episode 2 (06:14)
- 03. Episode 3 (07:09)
- 04. Episode 4 (07:42)Жанр: Dub Techno, Ambient, TechnoПродолжительность: 00:28:15
+01. Heartbeat (The Hitmix Version) (3:37)
+ 02. A Forest (The Hitmix Version) (3:18)
+ 03. Perfect Silence (The Hitmix Version) (3:19)
+ 04. Summer Sun (The Hitmix Version) (3:18)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 00:55:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4764E68BC5BAB61565BFAA513F70AAA14447CC0
+magnet:?xt=urn:btih:5B256F50B974BDB422FE7059B11300C9255667BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,28 +82,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184461   (301278) от 17.11.2017
+###  Публикация: 1333563   (301345) от 26.10.2019
 
-VA - Balearic Lounge (2017) [MP3|320 Kbps] <Relax Balearic, Downtempo, Chillout>
+Борис  Ляпунов | По следам Жюля Верна (1960) [FB2]
 
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301278.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Kometenschweif - Kusst Du Mich, Kuss Ich Dich
-002. Deep Azur - Sunset Island (Chillout Remix)
-003. The Boatpeople - Hurt (Instrumental Version)
-004. Leotone - Day (Jazz Maestro Style)(   Читать дальше...   )Жанр: Relax Balearic, Downtempo, ChilloutПродолжительность: 11:30:31
+Почти столетие отделяет нас от тех времен, когда Жюль Верн, великий фантаст, поэт науки и техники, написал первую книгу из серии романов-путешествий — «Пять недель на воздушном шаре».
+Многое изменилось с тех пор. И все же…
+Идя по следам героев Жюля Верна, путешественники не всегда повторяли сделанное ими. Но перед ними стояла та же цель: искать и находить! Проникнуть (   Читать дальше...   )Жанр: Научная фантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1F18AA52D51E55C679F150E75E27D7AB311EDBA
+magnet:?xt=urn:btih:F8A1DB83D93466421A69472885720C0E5A089E8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -465,28 +110,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261775   (301277) от 12.11.2018
+###  Публикация: 1329682   (301344) от 26.10.2019
 
-Ella Fitzgerald - Jazz 'Round Midnight Again (1956 - 1966) 1995, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Как вырвать зуб у кита / Jak vytrhnout velrybe stolicku (1977) DVDRip [H.264] [VO]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301277.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Flower Is a Lovesome Thing [5:04]
-02. Easy to Love [3:27]
-03. Embraceable You [4:54]
-04. Midnight Sun [4:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:59
+Трогательная история о 8-летнем Вашике, который всю жизнь мечтал стать альпинистом, как и его папа, погибший в горах под лавиной еще до его рождения. Смышленый мальчишка всеми силами старается найти для своей хрупкой мамы-балерины нового мужа. Поиски не дают результатов, ведь «все порядочные мужчины уже давно женаты»…
+Поездка в горы на каникулы знакомит Вашика с (   Читать дальше...   )Производство: Чехословакия / Ceskoslovenská televize Praha, Filmové Studio BarrandovЖанр: Комедия, СемейныйРежиссер: Мария ПоледняковаАктеры: Яна Прейссова, Томаш Холы, Франтишек Немец, Властимил Харапес, Яна Дитетова, Бланка Валеска, Габриэла Вранова, Петр Костка, Стелла Зазворкова, Мирек ВыдлакПеревод: Одноголосый любительский (Палата №6 для NNM-CLUB)Субтитры: ОтсутствуютПродолжительность: 01:19:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B684C3634D2CDB9FB719020EE7F2F77ED15B899D
+magnet:?xt=urn:btih:0CCFED9C15583CF95AF3BF489800B33FC6575F30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,28 +137,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184374   (301276) от 17.11.2017
+###  Публикация: 1333910   (301343) от 26.10.2019
 
-Jeff Lynne's ELO - Wembley Or Bust (2017) Live [MP3|320 Kbps] <Rock, Progressive Rock>
+DjVu Reader Pro 2.3.1 [En]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301276.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Standin' In The Rain
-02. Evil Woman
-03. All Over The World
-04. Showdown(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:38:16
+DjVu Reader Pro предельно простое в использовании приложение, которое не перегружено лишними функциями, позволяя полностью сосредоточиться на чтении книги. Приложение поддерживает индексы страниц и содержания. Для быстрой навигации предусмотрена панель с миниатюрами страниц. Есть возможность масштабирования страниц.
+
+В целом, DjVu Reader Pro это отличная читалка (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2019Разработчик: FirmShell LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5FA5A017BECF417383259F5A9A08E72DC691D05
+magnet:?xt=urn:btih:F1429B85A69228201AFD8C0BD6C468FE69D60A20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,28 +165,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261777   (301275) от 12.11.2018
+###  Публикация: 1333899   (301342) от 26.10.2019
 
-Clifford Brown - Jazz 'Round Midnight (1954 - 1956) 1993, Verve [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Phoenix Labs | Артбук по игре Dauntless / The Art of Dauntless (2019) [CBR] [EN]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Комиксы и Артбуки
+>>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301275.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lands End [4:57]
-02. (I Don't Stand A) Ghost of a Chance [7:21]
-03. Willow Weep for Me [3:27]
-04. September Song (feat. Sarah Vaughan) [5:47](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:03:39
+Артбук содержит эскизы и концепт-арты по игре DauntlessЖанр: АртбукФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94420C3D7198EE35CA7B757947B73EA869737763
+magnet:?xt=urn:btih:DF5A9E5B3D61B16FC6AE3EEA26AE94F137F399D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,28 +191,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261766   (301274) от 12.11.2018
+###  Публикация: 1333617   (301341) от 26.10.2019
 
-Billy Eckstine - Jazz 'Round Midnight (1950-e - 1960-e) 1994, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-паук: Через вселенные (Soundtrack + Score) (2018) [FLAC|Lossless|tracks] <Soundtrack, Score>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Other Styles
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301274.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Someone to Watch over Me [3:17]
-02. My Old Flame [3:19]
-03. The Song Is You [2:53]
-04. Star Dust [2:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:49
+01. Blackway & Black Caviar - What's Up Danger (03:42)
+02. Post Malone & Swae Lee - Sunflower (02:38)
+03. Jaden Smith - Way Up (02:34)
+04. Nicki Minaj & Anuel Aa - Familia (feat. Bantu) (02:55)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:12:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25A70636C37CA11105AA3B17AFAEAC641CE634E4
+magnet:?xt=urn:btih:BFE4643A84B154C62C01743321387A736BC807C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,112 +220,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184234   (301273) от 17.11.2017
+###  Публикация: 961299   (301340) от 01.12.2015
 
-Луиза Пенни | Старший инспектор Гамаш (Книга 2). Смертельный холод (2017) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301273.jpg" />
-</div>
-
-
-###  Подробнее
-
-В деревне Три Сосны, что к югу от Монреаля, произошло невероятное убийство. Смерть настигла Сесилию де Пуатье на заснеженной поверхности замерзшего озера, где она вместе с другими болельщиками наблюдала за матчем по кёрлингу, а орудием убийства стал металлический стул, подсоединенный к источнику тока. Кто-то тщательно продумал и спланировал убийство, не оставив жертве (   Читать дальше...   )Жанр: ДетективПродолжительность: 12:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5874D5517AC116F4AF5D45187E8E81C0C260C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261784   (301272) от 12.11.2018
-
-Sun Ra And His Arkestra - Super-Sonic Jazz (1956) 1991, Evidence [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. India [4:52]
-02. Sunology [5:43]
-03. Advice to Medics [2:05]
-04. Super Blonde [2:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B7787665FCFE7985B828525CF4E7247CBBB284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261773   (301271) от 12.11.2018
-
-Milt Jackson - Jazz 'Round Midnight (1964 - 1968) 1997, Verve [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just for a Thrill [3:59]
-02. For Someone I Love [4:34]
-03. For All We Know [3:28]
-04. Lazy Melody [2:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538FC140C8094FF873738B4137C25E744630C303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261631   (301270) от 12.11.2018
-
-VA - Spartaque - Codex Podcast 001 (2018) [MP3|320 Kbps] <Techno>
+Dominik von Francois - Last Resort (2015) [FLAC|Lossless|WEB-DL]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301270.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301340.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Chris Veron - Fury Road
-02 Cappo, Mondragon - Ragnarok
-03 Stiv Hey - Alexander
-04 Thomas Evans - Acidatlantic (Skober Remix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:56
+01. Another Chance (Original Mix) (7:35)
+02. Over The Sky (Original Mix) (8:27)
+03. Last Resort (Original Mix) (9:11)
+04. Hopeful Dreams (Original Mix) (7:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8340B2688FA12864378D5ACD54505CB21BFFF24
+magnet:?xt=urn:btih:CADE6A9A4CBB5F81CB9E7B5F06A85DC8D3D0736B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +249,459 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261736   (301269) от 12.11.2018
+###  Публикация: 961195   (301339) от 01.12.2015
 
-Морэ&Рэльсы (Морэ & Рэльсы) - Ломая Суть Демо (ЛСД) (2018) [MP3|320 Kbps] <Indie Rock, Alternative>
+Н.Г. Головнина (ред.) | Арабы-христиане в истории и литературе Ближнего Востока (2013) [PDF, DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301269.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301339.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Legal
-02. Похоже ты тоже
-03. Трусики в руках
-04. Вдоль стен(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:26:54
+Исследования, посвященные проблемам Христианского Востока, в настоящее время приобретают новое звучание в связи с укреплением интереса к всестороннему изучению духовных традиций тех Церквей, которые начиная с VII в. были отторгнуты от Византии в ходе арабского завоевания и со временем восприняли арабский язык в качестве разговорного и литературного. Именно он и служит (   Читать дальше...   )Жанр: Сборник статейФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4226B876C0FCE76818B0B553878381A4F92D90FD
+magnet:?xt=urn:btih:F6660D2DCCBEA58328F6EBA6A38E0255B1B880DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961418   (301338) от 01.12.2015
+
+Газета | Морфей №24 (322) (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как защитить своё сокровище? Как прогнать дурной сон? Мандариновая ворожба?
+Это и много другое, что поможет вам сохранить душевное равновесие и разгадать вещий сон, который вам обязательно присниться в новогоднюю ночь.Жанр: Сны, гадания, приметыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB20529F2D5437CCA4614FDEE0FC3492AF733F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960934   (301337) от 01.12.2015
+
+А. В. Подосинов, М. В. Скржинская | Римские географические источники (2011) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной выпуск свода «Древнейшие источники по истории Восточной Европы» посвящен историко-географическим сведениям, содержащимся в «Хорографии» Помпония Мелы — древнейшем из сохранившихся целиком географических сочинений римских авторов (середина I в. н. э.) — и в «Естественной истории» римского энциклопедиста Плиния Старшего (вторая половина I в. н. э.). Эти памятники (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2CA648051137E2AA4348B8AE9687BD887A22F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960319   (301336) от 01.12.2015
+
+VA - Kineta Lounge (2015) [MP3|CBR|320 кб/с] <Chill Out, Downtempo, Ambient, Trip Hop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Side Liner - Little Whale (Original Mix) (05:43)
+  02. Zen Garden - Morning May (Original Mix) (03:48)
+  03. Fourth Dimension - Standing Still (Original Mix) (05:33)
+  04. Germind - Freediving (Original Mix) (05:33)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Ambient, Trip HopПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2AD531B749555219462CDC183240541FCF5464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960925   (301335) от 01.12.2015
+
+Генрих Латвийский | Хроника Ливонии (1938) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выходящая ныне в свет Хроника Ливонии Генриха Латвийского является важнейшим источником для изучения далекого прошлого Прибалтийских народов. Она говорит о временах давно минувших. Однако, значение этого памятника не ограничено тем, что он является первоклассным историческим источником для познания истории Прибалтики и северо-западной Руси.
+Произведение средневекового (   Читать дальше...   )Жанр: ИсторияПеревод: С. А. АннинскийФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF55F72D9EC9A7BE6AAE7A3DB9777488F9E25029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961252   (301334) от 01.12.2015
+
+Джеймс Алисон | Жизнь в последние времена. Иной взгляд на эсхатологию (2010) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не надо думать, что последние времена близки или, наоборот, что конец света настанет еще не скоро. Прочитавший книгу Джеймса Алисона поймет, что последние времена уже наступили и от него самого зависит, найдет ли он свой путь на небо и будет ли он там рядом с Христом на стороне агнцев, тех, кто сам стал жертвой или встал на сторону жертв, изгоев этого мира.
+Есть (   Читать дальше...   )Жанр: Богословие, эсхатологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DB46BB9DF8FCFBED4D8D2BFF6721F7CEAA7C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961307   (301333) от 01.12.2015
+
+CocCoc 52.2.98 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301333.jpg" />
+</div>
+
+
+###  Подробнее
+
+CocCoc Browser - браузер, который является продуктом вьетнамской компании Cốc Cốc. Браузер основан на открытом исходном коде проекта Chromium, поэтому браузер очень похож на Google Chrome.Язык интерфейса: Русский, Английский и Другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744E4D2596CD2DDA6A7040992632DC349AEE76FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961424   (301332) от 01.12.2015
+
+Beamer 3.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beamer for Mac: смотрите видео любого формата на Apple TV
+Приложение Beamer предназначено для стриминга вашего видеоконтента непосредственно на Apple TV. Оно подкупает своей простотой и удобством. В приложении нет никаких настроек, а только окошко, куда необходимо «перетянуть» видеофайл.
+Для обладателя обширной видеотеки iTunes, приобретение Apple TV является самим (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 декабря 2015Разработчик: Tupil B.V.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6FEC0D37C522922F0E3583BEBD3745A476030B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961328   (301331) от 01.12.2015
+
+Rumpus PRO 8.0.14 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rumpus - простой в использовании, высокопроизводительный FTP, WebDAV сервер для Mac OS X.
+Встроенные, удобные в администрировании пользовательские учетные записи, интегрированная передача файлов в сети Интернет, уведомления о загрузке файлов, обширные настройки безопасности, потрясающе высокая производительность, и многое другое... Также включает монитор активности (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 ноября 2015Разработчик: MaxumПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95232436D22F057AD180663EC1D15DB8B62CAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961485   (301330) от 01.12.2015
+
+The Future Sound of London - Life in Moments (2015) [FLAC|Lossless|WEB-DL|tracks]<Ambient, IDM, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taken Leave Of All Sense (05:59)
+ 02. Viewed From Across The Room (02:17)
+ 03. I Turn To Face The Sun (04:04)
+ 04. Bring (06:18)(   Читать дальше...   )Жанр: Ambient, IDM, ExperimentalПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC96F0EF9C604C8FBB046CF9FCCFDDBD52C5E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961035   (301329) от 01.12.2015
+
+Создан симулятор, позволяющий воссоздать чрезвычайные условия стихии морей и океанов
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_301329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Строители морских нефтяных платформ, морских судов, портовых сооружений, ветряных электростанций и многого другого, сталкиваются с одним и тем же вопросом - смогут ли их творения выдержать бурный натиск морской стихии? Ответ на этот вопрос остается в области гипотетических предположений до тех пор, пока реальная конструкция или сооружение не столкнется с реальным (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961304   (301328) от 01.12.2015
+
+VA - Recoverworld Radio 003 (Mixed by Rich Smith) (2015) [FLAC|Lossless|WEB-DL]<Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Le Saux - Bodhisattva (Original Mix) (6:38)
+02. Liam Wilson & Grez Turner - The Optimist (Original Mix) (8:00)
+03. Billy Rutts - Alpha Male (Original Mix) (7:20)
+04. Lost Man - Destination Nowhere (Original Mix) (7:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D09075F641A842860DF850E5F7654E2870E344A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961373   (301327) от 01.12.2015
+
+Журнал | Сад своими руками №12 (декабрь 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301327.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сад своими руками» - ведущее российское издание о саде. Рассказывает о том, как без помощи специалистов создать свой, неповторимый сад, как ухаживать за растениями, как своими руками построить беседку, сделать дорожки, забор, водоем и многое другое. В каждом номере журнала представлены проекты садов и «энциклопедии» растений, что поможет вам собрать коллекцию практических (   Читать дальше...   )Жанр: СадоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B049B3A7BF7D9589693637D21F458C1415E1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961237   (301326) от 01.12.2015
+
+Reece (ex.Accept) - Universal Language (2009) [FLAC|image+.cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before A Die 4:42
+02. All The Way 4:40
+03. Flying Too Close To The Flame 3:50
+04. Fantasy Man 3:30(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632960661E6079E0C575F85BFCD710A907DE3110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961233   (301325) от 01.12.2015
+
+Наука 2.0. EXперименты с Антоном Войцеховским. Мультикоптеры. Часть 1 (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экспериментатор телеканала «Наука 2.0» Антон Войцеховский обладает невероятным талантом рассказывать просто о самом сложном - необычных явлениях и научных открытиях. У него в помощниках speed–камера, которая снимает 7 тысяч кадров в секунду! Эксперименты – всегда незабываемое зрелище!Телекомпания: Наука 2.0Жанр: Документальный, научно-познавательный, исследованиеПродолжительность: ~ 00:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E4EAD0A5B45B183BDFB8DEB9875626855F984D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961245   (301324) от 01.12.2015
+
+Песня первой любви (1958) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый ереванский двор. Свой мир. Молодой певец Арсен, рано познавший славу, не может справится в ее грузом. Распадается семья, пропадает голос. Любящий жену Арсена архитектор Варужан помогает ему вновь обрести веру с свой талант и вернуть любовь жены.Производство: СССР, АрменфильмЖанр: МелодрамаРежиссер: Лаэрт Вагаршян, Юрий ЕрзинкянАктеры: Хорен Абрамян, Э.Судакова, Рачия Нерсесян, Вагарш Вагаршян, Семен Соколовский, О.Гулазян, А.Согомонян, Н.Тер-Семенов, Варшалус Мириджанян, Т.Киманян-Ланько, А.Селимханов, Т.Бахшинян, А.Каракаш, Амаси Мартиросян, И.Грикуров, Т.ДилакянПродолжительность: 01:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E18DC25594B4F3440B73FEC1BB7A3F90B95140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961331   (301323) от 01.12.2015
+
+360 Extreme Explorer 8.5.0.124 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301323.jpg" />
+</div>
+
+
+###  Подробнее
+
+360 Extreme Explorer- браузер, который можно смело назвать многофункциональным и безопасным, он направлен на борьбу с окружающими вас угрозами при Интернет серфинге. Если рассматривать внешний вид: удобно в работе, достаточно информативно, плюс часто посещаемые сайты будут отображаться в виде миниатюр на новой вкладке. Если вы являетесь экспертом, то можете смело (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A25A98662CB76D60BFE9E4BFC4A98D2CD29123
 ```
 
 https://mybot314.ru/tekegram_catalog/

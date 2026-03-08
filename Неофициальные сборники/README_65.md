@@ -1,3 +1,177 @@
+###  Публикация: 980605   (952809) от 31.01.2016
+
+VA - Турбо Модные Хиты В Зимний Вечер (2016) [MP3|225-256 кб/с] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952809.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Miriam Bryant — Serendipity
+002. Hannah Montana & Miley Cyrus — Rockin Around the Christmas Tree
+003. Паола — Девочки Такие Девочки
+004. Эдуард Хиль — Зима(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 08:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44435967D2786D1AE2C0FB497EB490BBB67F8BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980502   (952781) от 31.01.2016
+
+VA - Billboard Hot 100 Singles Chart 23.01.2016 (2016) [MP3|320 кб/с] <Pop, Dance, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - Sorry
+02. Adele - Hello
+03. Justin Bieber - Love Yourself
+04. Drake - Hotline Bling(   Читать дальше...   )Жанр: Pop, Dance, Hip-Hop, RnBПродолжительность: 06:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C18471A5DAD110E4AB0D2C3A69C737919E801A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981131   (952680) от 31.01.2016
+
+VA - Наша Музыка (Лучшее 2014 - 2015) [MP3|256 кб/с] <Поп, Рок, Рэп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шекспир - Повесть (Single 2015) (03:52)
+02. Exister - C. F. B. D (04:07)
+03. Eyes To See - Quest For Ideal (05:54)
+04. The Irbis - Посмотри! (04:22)(   Читать дальше...   )Жанр: Поп, Рок, РэпПродолжительность: 05:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B68A95656A14D2B8F3D0E22B514E2E08274428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981291   (952542) от 31.01.2016
+
+VA - Pussy Brats - Vintage American Adult Film Soundtrack Music (2013) [MP3|~245 кб/с (V0)] <Electronic, Jazz-Funk, Disco, Synth, Adult Soundtrack>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Bennett - Ergon (From "Box Ball" 1977) (1:35)
+02. Brian Bennett & Alan Hawkshaw - Wallop (From "Barbara Broadcast" 1977) (3:31)
+03. Brian Bennett - Rocking Horse (From "Babyface" 1977) (3:30)
+04. Duncan Lamont - The Fuzz (From "The Opening Of Misty Beethoven" 1975) (2:48)(   Читать дальше...   )Жанр: Electronic, Jazz-Funk, Disco, Synth, Adult SoundtrackПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3713EB37AB99AC285795B1FD65A27CC40A95CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981414   (952536) от 31.01.2016
+
+VA - Зайцев нет. Январский топ 100 (2016) [MP3|256 - 320 кб/с] <Pop, Dance, Rap, R&B, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952536.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алексей Воробьев - Сумасшедшая (02:57)
+002. Ost Up (Остап) - Всё равно моя (03:46)
+003. Егор Крид - Будильник (03:25)
+004. Аполлинария - Лучший из лучших (03:16)(   Читать дальше...   )Жанр: Pop, Dance, Rap, R&B, RockПродолжительность: 06:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05C5ABE66FDCE44C5CCC01368A62D139867161B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361944   (952240) от 21.02.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 21.02.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952240.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Billie Eilish - Everything I Wanted (4:05)
+2.Carla Morrison - Disfruto (Audioiko Remix) (3:15)
+3.The Weeknd - Blinding Lights (3:21)
+4.Anthony Keyrouz - Love Yourself (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C96FB5A960A359CDB82956F915DE252DB6B387F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089305   (951945) от 03.01.2017
 
 VA - Noire Flawless Deep House (2017) [MP3|320 Kbps] <Deep House, Electro>
@@ -572,180 +746,6 @@ VA - Русский зимний музобоз (2017) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04622693EDDD9943B6D0B487F97745674E952EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089430   (950697) от 04.01.2017
-
-VA - Гуляночка от радио Шансон Выпуск № 10 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950697.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ирина Кильфин - Моим Друзьям 3:16
-002. Рома Рязанский - Письмо 4:01
-003. Максим Куст - Банька 3:15
-004. Виктор Калина - Остаться Собой 3:49(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF31F7A082CBB4415A2107F8CC37C3D666EF5F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089722   (950640) от 04.01.2017
-
-VA - Взрывной хит-парад. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950640.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vikki - Помолчим 3:16
-002. Mc Bad - Растопим Снег 3:12
-003. Таня Герман - Эмоции Мысли 3:20
-004. Gwen Stefani - Used To Love You 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D63681432646226650C5B53A6E5C7AC1819A0A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089423   (950598) от 04.01.2017
-
-VA - Orbital - Best275z (1992 - 2016) [MP3|320 Kbps] <Electronic, Techno, Downtempo, Experimental>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Technologicque Park 05:44
-02 Beached ( feat. Angelo Badalamenti) 03:38
-03 The Saint 04:33
-04 Funny Break (One Is Enough) 04:56(   Читать дальше...   )Жанр: Electronic, Techno, Downtempo, ExperimentalПродолжительность: 05:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D09C92831A7BA8DAFACA89F8B3592E897DBFB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089526   (950561) от 04.01.2017
-
-VA - Acoustic Pop Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hannah Dorman - Hurts
-02. Ginnie - Secret Love Song
-03. Landa - Can't Feel My Face
-04. Karizma Duo - Video Games(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159324C00D3F4B9314990FEF25BF0515EDF14F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088782   (950556) от 04.01.2017
-
-VA - Хитовый бум на Europa Plus. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950556.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stevie Wonder Feat. Ariana Grande - Faith 2:41
-002. Sia - Never Give Up 3:42
-003. John Legend - Surefire 4:03
-004. Tommy Trash - Lover 3:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B62B8F65ACE4BF6BA8762877CFEE22A09F2C64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089404   (950381) от 04.01.2017
-
-Amure - Unknown (2017) [MP3|320 Kbps] <Enigmatic, New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  First Contact [00:06:40]
-02.  I Can Close My Eyes [00:05:33]
-03.  Mysterious Voices [00:08:14]
-04.  Water Park [00:05:26](   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 02:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C916B7FB690C362D87B658BA606964008DB552B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

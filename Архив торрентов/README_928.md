@@ -1,31 +1,3 @@
-###  Публикация: 1005149   (834352) от 08.04.2016
-
-Kaleidoscope 2.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaleidoscope — приложение, предназначенное для сравнения текстовых или графических файлов и быстрого поиска различий в них.
-Область применения программы предельно ясна.
- Если вы  программист, то с помощью Kaleidoscope всегда будете видеть различия в коде двух версий файлов. При этом зелёным цветом будут подсвечиваться добавленные строки, красным — удалённые, а синим (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 июня 2015Разработчик: Black PixelПоддерживаемая ОС: 10.7.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982BA438CB045E03571DF1D24A7311DA6FD81176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380283   (834325) от 02.05.2020
 
 CCleaner 5.66.7716 Free / Professional / Business / Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -697,6 +669,32 @@ Chief Architect Premier - практически идеальная програ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23866BB9CA804C8A0B3FDB62BAD6D5A29B85E394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005325   (834011) от 08.04.2016
+
+Your Universal MultiBoot Installer 2.0.2.1 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_834011.jpg" />
+</div>
+
+
+###  Подробнее
+
+YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFDA9008A19763D060900CCC17EF28B02CC116C
 ```
 
 https://mybot314.ru/tekegram_catalog/

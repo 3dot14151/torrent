@@ -1,3 +1,32 @@
+###  Публикация: 1478647   (1010176) от 20.06.2021
+
+VA - Acoustic 10s and 20s Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Break My Heart (Acoustic) (03:34)
+02. Nora & Will - My Future (Acoustic) (03:19)
+03. Shannon & Keast - Falling (Acoustic) (03:59)
+04. Logan York - Señorita (Acoustic) (04:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050EF2820DF47712D0E735C0EF6FCAD7B16D2257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479073   (1009857) от 22.06.2021
 
 Percy Faith - Columbia Singles Volume III 1959-1967 (2005) [FLAC|Lossless|image + .cue] <Easy Listening>
@@ -717,35 +746,6 @@ VA - 100 Hits Number 1's (2018) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAE4F3E95494B5BF7A7600AADDF4AD4C13C9D75E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351247   (1002425) от 09.01.2020
-
-a-ha - Lifelines (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifelines (Demo) (5:16)
-02. You Wanted More (Demo) (4:01)
-03. Forever Not Yours (Demo) (4:12)
-04. There's A Reason For It (Demo) (4:14)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD51D4A73CCBDFA44B27A40800C62D9F626F9D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

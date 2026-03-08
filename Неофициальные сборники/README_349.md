@@ -1,3 +1,177 @@
+###  Публикация: 1303130   (576460) от 19.05.2019
+
+VA - German Top 100 Single Charts 24.05.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576460.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Juju - Vermissen (feat. Henning May)
+002. Shindy - Nautilus
+003. Ed Sheeran & Justin Bieber - I Don't Care
+004. Lil Nas X - Old Town Road(   Читать дальше...   )Жанр: PopПродолжительность: 05:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC1F0E3EA2DD878DF9FC6AA4694C70BD2D640EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303153   (576457) от 19.05.2019
+
+VA - The Official UK Top 40 Singles Chart 17.05.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran & Justin Bieber - I Don't Care
+02. Lil Nas X - Old Town Road
+03. Stormzy - Vossi Bop
+04. Lewis Capaldi - Someone You Loved(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731E1C240C0B6B3BA4E209AC75BDD97A1CC9342F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042630   (576449) от 14.08.2016
+
+VA - Europa Plus №5 50х50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576449.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elefunt's Groove - На Одной Волне
+002. Алиса Кожикина - Мы Вместе
+003. Джокеры - Параллели
+004. Слава - 2 Л 2 Ю(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9983F6CFE17FA63ABD7859A8568227DC3131554A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233470   (576331) от 02.07.2018
+
+VA - German Top 50 Party Schlager Charts (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna-Maria Zimmermann - Scheiß egal
+02. Beatrice Egli - Verliebt, verlobt, verflixt nochmal
+03. Andreas Gabalier - Verdammt lang her
+04. Michelle - In 80 Küssen Um Die Welt(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C9CB0C7B94C02850602D3DC2CCCFB113FA162B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303169   (576328) от 19.05.2019
+
+VA - Record Super Chart 587 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Calvin Harris & Rag'n'Bone Man - Giant (3:47)
+02.Aaron Smith - Dancin (Krono Remix) (4:15)
+03.MARUV - Siren Song (2:51)
+04.Mabel - Don't Call Me Up (R3hab Remix) (2:33)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D483689189FAD16A6F158CB3CD28F9682EC32AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302917   (576310) от 19.05.2019
+
+VA - German Top 40 DBC Deutsche Black Charts 17.05.2019 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, R&B>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blueface - Thotiana (feat. Cardi B, YG) (Remix)
+02. MERO - Wolke 10
+03. Chris Brown - Wobble Up
+04. dj spanish fly - Bailemos(   Читать дальше...   )Жанр: Rap, Hip-Hop, R&BПродолжительность: 02:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04427484660FAAC6EF9CFF035D109B499261858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150977   (576222) от 17.07.2017
 
 VA - Empire Records - Progressive Trance (2017) [MP3|320 Kbps] <Trance>
@@ -574,180 +748,6 @@ VA - Популярная летняя соточка (2011) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B43C233F6C266048710315343ACF40CE422A8D91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361992   (575089) от 11.07.2011
-
-VA - Хит-парад 200 50/50 (2011) [MP3|128 kbps]<Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ПопПродолжительность: 12:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CA76E83C598B5C8F5C0BC8E668C8E45BA7858E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361957   (574980) от 11.07.2011
-
-VA - Мне Не Хватает Твоих Глаз  (2011) [MP3|256 kbps]<Pop / Шансон >
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop / ШансонПродолжительность: 06:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33BE759FA6892A50776B115A6D8CFFE9A5C239B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042864   (574799) от 15.08.2016
-
-VA - LUXEmusic - Dance Super Chart Vol.80 (2016) [MP3|320 Kbps] <House, Electro House, Progressive, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artik pres. Asti  -  Больше, чем любовь (V.Reznikov & Denis First ft. Portnov Remix)  5:19
-02. David Guetta vs Shishkin  -  The World Is Mine (Alex Becker mashup)  5:34
-03. Showtek, Tony Martinez, DJ Josepo  -  I Feel Your Cannonball (DJ Melloffon Mashup)  6:18
-04. DJ Antoine vs Slash Junior & Diamond  -  Bella Vita (DJ Nejtrino vs DJ Baur Mashup)  3:41(   Читать дальше...   )Жанр: House, Electro House, Progressive, Dance, ClubПродолжительность: 04:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B40E04119D9FBDDA87539C7DE97AE4ADD2FB21D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043009   (574790) от 15.08.2016
-
-VA - Super Dance Party Vol.3 (2016) [MP3|320 Kbps] <Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lana Del Rey - Summertime Sadness (DJ Favorite & DJ Kharitonov Radio Edit)
-02. Calvin Harris & Rihanna - This Is What You Came For (Denis First Radio Edit)
-03. Jahkarta - Never Seen The Sun (Denis First Radio Edit)
-04. Galantis - No Money (Denis First Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 05:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF678D0638C62F94ED68BE5E8517C8A05A113778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043170   (574787) от 15.08.2016
-
-VA - The Best of Melodic Trance (Compiled by Zebyte ) (2016) [MP3|320 Kbps] <Melodic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moein - Flashback {07:16}
-02. Santerna - Envision {08:11}
-03. Nap 'till Nine - We Fly {07:55}
-04. Sunlight Project - Golden Shores (Talamanca Remix) {07:39}(   Читать дальше...   )Жанр: Melodic TranceПродолжительность: 04:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1081C6A168816072BA85771C177909FBFB46266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527515   (574735) от 27.07.2012
-
-VA - 100 Лучших хитов от Русского радио Спецвыпуск летний (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 T1One - Девочка Поверь
-02 Земфира - Дождь
-03 Faktor-2 - Никто Не Забыл
-04 Алексей Кабанов - Легкие
-05 Алсу - Поговорим Перед Сном
-06 Дмитрий Маликов - Прости
-07 Ани Лорак - Why
-08 Слава - Sex Не Любовь
-09 Lilu - Солнышко (Dj Jedy Radio Edit)
-10 Арман Габриелян И Юлия Савичева - Мир, В Который Верю Я(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23F17E22D6933A1F413667807066557809E710A
 ```
 
 https://mybot314.ru/tekegram_catalog/

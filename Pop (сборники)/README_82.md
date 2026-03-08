@@ -1,3 +1,32 @@
+###  Публикация: 944258   (440224) от 07.10.2015
+
+Toto Cutugno - Good Songs (2015) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440224.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A... Rio
+002. Adulele
+003. Aeroplani
+004. Aeroporto Kennedy(   Читать дальше...   )Жанр: PopПродолжительность: 12:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C1F682F4ECC1BD2C3443C949AA214A18157D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062661   (439413) от 14.10.2016
 
 VA - Живи стильно! Наслаждайся музыкой с Hit Fm. Русский сборник (2016) [MP3|256 Kbps] <Pop>
@@ -740,35 +769,6 @@ VA - Top 100 Зайцев.Нет Август (Зарубежный выпуск
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81F7465ECB20D85CF4CB107DBEC5A8BED2BE9D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063867   (432141) от 17.10.2016
-
-VA - Best Of 80s (2016) [MP3|320 Kbps] <Pop, Disco, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Fugitive
-02. Paula Evans - Ciao (Extended Version)
-03. John Christian - Ebony Eyes (Maxi Version)
-04. Patty Ryan - Stay With Me Tonight(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 06:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E952882087536BDC696EF9A19E2E7DC445A536D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

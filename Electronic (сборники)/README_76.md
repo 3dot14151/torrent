@@ -1,3 +1,32 @@
+###  Публикация: 1021968   (731111) от 31.05.2016
+
+VA - Ibiza Sundowner Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Parent - Awakening (Radio Edit) [03:59]
+02. Praana - Garden Of Nightingales (Radio Edit) [04:14]
+03. Lounge Hours - Balance (Radio Edit) [04:46]
+04. Endless All - Mothers Arms (Radio Edit) [07:05](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A72CE5778445C58FA93DE06A6C0385E35D7DFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283942   (731030) от 19.02.2019
 
 VA - Kamlanie: Psychedelic Trance (2019) [MP3|320 Kbps] <Psy, Goa Trance>
@@ -722,35 +751,6 @@ VA - Drum and Bass, Dubstep (2016) [MP3|256-320 кб/с] <Drum and Bass, Dubstep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A484801E35B9040E132AAC080D168FAC591D5FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128523   (727661) от 25.04.2017
-
-VA - Brain Plugged: Big Room House Music (2017) [MP3|320 Kbps] <Electro House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fitz & Baron - Sunrise (Original Mix)
-002. Bartosz Brenes - Lovin' U (Original Mix)
-003. Helly Larson - Take Me
-004. Luca Debonaire - Yes It Does (Original Mix)(   Читать дальше...   )Жанр: Electro House, Club HouseПродолжительность: 10:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C0CD9403C1CB11C2997ACBDC07AF2EDB31F040
 ```
 
 https://mybot314.ru/tekegram_catalog/

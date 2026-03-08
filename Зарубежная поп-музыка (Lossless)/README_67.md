@@ -1,3 +1,32 @@
+###  Публикация: 1335844   (284391) от 04.11.2019
+
+Celine Dion - Courage (Deluxe Edition) (2019) Scene [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying On My Own
+02. Lovers Never Die
+03. Falling In Love Again
+04. Lying Down(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B326C72A89ED730A8754DD2D7E746C6D228E306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264002   (284359) от 21.11.2018
 
 VA - Romantic Easy Listening (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal Jazz, Easy Listening>
@@ -711,35 +740,6 @@ Kygo - Kids In Love (2017) [FLAC|Lossless|tracks + .cue] <Electro House, Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:795BA27B36B3ABCFF974EEC8749A2AE593FE212A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189200   (271049) от 05.12.2017
-
-Joe Dassin - La Selection (Best Of) 3CD (2016) [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Les Champs-Elysees
-02. Le dernier slow (Blu)
-03. Excuse Me Lady(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 02:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26CE72C02447DE91458041584D2A2AADB328A6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1321743   (454800) от 26.08.2019
+
+VA - German Top 100 Single Charts 30.08.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shawn Mendes & Camila Cabello - Senorita
+02. Loredana - Eiskalt (feat. Mozzik)
+03. Luciano - Yeah
+04. DJ Snake, J Balvin, Tyga - Loco Contigo(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C051E31359068493617BCA7FBC928CAAE5F9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162987   (454767) от 03.09.2017
+
+VA - Levitate: Chill Ambience Party (2017) [MP3|320 Kbps] <Chill Ambience, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454767.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Flight74 - Piano Relaxation
+002. Emma Luna - Eschbannja
+003. Glady Gowans - Playing Around
+004. Nano Banani - Tales of Angels(   Читать дальше...   )Жанр: Chill Ambience, Lounge, DowntempoПродолжительность: 07:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935E25BDEF354528B791C8DB0C1BECCC4135675C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060416   (454728) от 07.10.2016
+
+VA - 100 World Best Chillout Classics (2016) [MP3|178-320 Kbps] <Lounge, New Age, Meditation>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marian Closca - Sophia (Original Mix) 05:50
+02. Paul Hided & Airzoom - The Soul Of Tabity (Chillout Mix) 04:45
+03. Aurosonic & Frainbreeze And Katty Heath - All I Need (Chill Out Mix) 06:13
+04. Andy Moor & Ashley Wallbridge Feat. Gabriela - World To Turn 04:29(   Читать дальше...   )Жанр: Lounge, New Age, MeditationПродолжительность: 07:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00ED22DB715B730DFE5922BF9A9BBDCC2AE600A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321839   (454693) от 26.08.2019
+
+VA - Radio DFM Top D-Chart Август 2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilkay Sencan & Dynoro - Rockstar 3:32
+02. Slider & Magnit - Morze 3:11
+03. Rompasso - Paradise 2:51
+04. Meduza feat. GOODBOYS - Piece Of Your Heart 4:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3C80BE7A5BD7FD7A9A858EE1331251C98D4660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247219   (454641) от 14.09.2018
+
+VA - Big Workout & Fitness Music (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rudimental - Waiting All Night (Radio Edit; feat. Ella Eyre)
+02. Amped Up Fitness - Do It Again
+03. Thors - Nirvana
+04. Gomer Edwin Evans - Melodies Of ZEN(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2116BC4408B2970BE37404293D553CB82A2CD63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389695   (454268) от 19.09.2011
+
+VA - Самый Свежак DFM (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454268.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алисия & П. Есенин И Hi-Fi - Ангелы Вечны
+002. Shahzoda - Все Только Начинается
+003. Ika - Дорогой Мой
+004. Инфинити - Ты Мой Герой (Original)
+005. Е. Терлеева - Боль
+006. Потап И Н. Каменских - Если Вдруг
+007. Спа-Сити - Малолетняя Дочь (DJ Viduta Remix)
+008. Д. Суворова - Звезды Кому-То Нужны
+009. Чи-Ли - Ромашковое Поле (Snake Edit)
+010. 5ivesta Family - Тук-Тук(   Читать дальше...   )2011Жанр: PopПродолжительность: 11:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E1E197BE617F2B1D849EA931D841F68F56A64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162752   (454151) от 03.09.2017
 
 VA - Самая популярная музыка (2017) [MP3|320 Kbps] <Pop, Dance>
@@ -619,198 +799,6 @@ VA - 100 пудовый хит. Выпуск 50/50 (2012) [MP3|256 кб/с]<Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF93357F65295799EF057CA595C97BF2D452340B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942633   (453250) от 01.10.2015
-
-VA - Rock Хит. Высокое Напряжение (2015) [MP3|256 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeff Buckley - Hallelujah
-02. Би-2 - Три сантиметра над землёй
-03. Сплин - Сын
-04. Мара - Где-то моя любовь(   Читать дальше...   )Жанр: RockПродолжительность: 06:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2512D9ECA724EAA59BF6AE57A7C6563AEE36A8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942581   (453234) от 01.10.2015
-
-Mylene Farmer - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453234.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cendres De Lune (1986)
-002. Chloe (1986)
-003. Libertine (1986)
-004. Maman A Tort (1986)(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 08:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134AEBD4837483CAEDF3FC6B1AE13E71F0B665CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060490   (453231) от 08.10.2016
-
-VA - Душевный Сборник От Радио Шансон 8 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453231.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Белое Золото - Ангел
-002. Леонид Телешев - Исповедь Волка
-003. Миша Мирный - Пьяный Ветер
-004. Макс Волга - Я Маленький Человек(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440010181ED14B12E774E912074465A85F020D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551261   (453136) от 24.09.2012
-
-VA - Клубняк в Тачку Vol. 5 (2012) [MP3|320 кб/с]<Electro House, Electro, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Hiding All The Stars (Original Club Mix)
- 02. Bozzi & Castaman - Feel the Music (Club Mix)
- 03. Archie.V - Our World (Club Mix)
- 04. ManDee - Camasutra (Electro Foundation Remix)
- 05. Sheff - The Kitchen (Darth & Vader Remix)
- 06. Essbenci - Rise (Purple Project Remix)
- 07. Vova Baggage feat. Olya Milaxa - Black Angel (Slin Project Remix)
- 08. Hot Samples - Mighty Real (Luca Bisori Elektro Mix)
- 09. Rene De La Mone - I Believe In Love (Dirty Electro Mix)
- 10. Freeman & Drilla - Sweet Word (Locco Lovers Remix)Жанр: Electro House, Electro, ClubПродолжительность: 04:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B3AAF358F5D5AA2FB56DD5D063330F6092049F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550988   (453127) от 24.09.2012
-
-VA - Тачки, Девочки, Музон (2012) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da Buzz - Got This Feeling (Single Mix)
-02. Paco Maroto - Oh Yeah (Coqui Selection Mix)
-03. Sheikh feat. Nicco - Hold Tight (Funkwell Remix)
-04. Cosmic Gate - Back To Earth (Jochen Miller Remix)
-05. Scooter - 4 A.M. (Radio Version)
-06. The Sleepover & Prendii - Bitch Please (Tonic Remix)
-07. Maria Chirkova - Rainbow (Dub makers Remix)
-08. Planet Funk - These Boots Are Made For Walkin` (Radio Edit)
-09. Rico Bernasconi feat. Oraine & Ski - Undercover Lover (Extended Mix)
-10. La Chris - Dirty Girl (Original Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 04:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31C7ECFB744D5B5E1D486519B3FE64C4BE866E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550981   (453109) от 24.09.2012
-
-VA - Русский Свежачок Сезона (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453109.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tisha feat. Reforma - В главных ролях (DJ Nejtrino & DJ Kirill Clash remix)
-002. Coctail Royal feat. Марина Алиева - Ты Сводишь С Ума
-003. Интонация (In2nation) - Не со мной
-004. Снежана Фирсова - Благодарю
-005. Кирил Андреев - Не Умирает Любовь
-006. Амилио - Все, что захочешь
-007. Игорь Саруханов - Черно-белые полосы
-008. Татьяна Овсиенко - Тому, кого люблю
-009. Audio Girls feat. Батишта - Игра
-010. DJ Fisun feat. Ika - Москва слезам не верит(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50DF825444E7CADE162133AA8889E7B4BD1DEFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

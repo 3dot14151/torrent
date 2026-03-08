@@ -1,3 +1,177 @@
+###  Публикация: 1375759   (864011) от 15.04.2020
+
+VA - Beatport Psychedelic Trance: Sound Pack #59 (2020) [MP3|320 Kbps] <Psy Trance, Goa>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864011.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Antaluk - Gita Sun
+002. Estefano Haze - Spirituality In Action
+003. Sunrazers - Karma
+004. Eguana - Holographic Artifact(   Читать дальше...   )Жанр: Psy Trance, GoaПродолжительность: 12:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9681D94A4E025174A62800FDF68A0DF095079D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375754   (863885) от 15.04.2020
+
+VA - Pool Party Techno (2020) [MP3|320 Kbps] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Norbeev - Glitch
+002. Tidal Lock - Heavenly Bodies
+003. Oxven - Warm
+004. Dшу - Spaces (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 13:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250EE5AEAC3FF350446056C23E7D9AE0D789434D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375761   (863874) от 15.04.2020
+
+VA - Happy Time: House Spring Edition (2020) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jazzy X - Bandie Bandie
+002. Benjamin Philippe Zulauf - A Degree Of Disorder
+003. Hannes Bruniic - Seks
+004. Congatronic - Markauasy(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 13:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A259D3B1A0DCE5A6CBC0AE82011E57C62EFEA47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999322   (863835) от 22.03.2016
+
+VA - Музыкальное ассорти хитов. (Зарубежный сборник) (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nao - Fool To Love
+02. Vaults - Midnight River
+03. Gestort Aber Geil - Demons
+04. Alvaro Soler - El Mismo Sol(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5CEC28513F4EAE0B285D01D46A098C1140F588D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375757   (863756) от 15.04.2020
+
+VA - April Planet Disco (2020) [MP3|320 Kbps] <Disco, Italo Disco, New Generation>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863756.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kraak & Smaak - In Plain Sight
+002. Mindbuster - Feel My Love
+003. Miami Dade Beats - Let The Tigers Free
+004. Solitario - Take Your Time(   Читать дальше...   )Жанр: Disco, Italo Disco, New GenerationПродолжительность: 09:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D20D33BEDADED17CF6A6719BEE2DF51AB5E0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375768   (863602) от 15.04.2020
+
+VA - Reggae Vibes (2020) [MP3|320 Kbps] <Reggae>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Marley & The Wailers - Jamming
+02. Fugees - No Woman, No Cry (L.P. Version)
+03. Toots & The Maytals - Pressure Drop
+04. Anthony B - World A Reggae Music(   Читать дальше...   )Жанр: ReggaeПродолжительность: 03:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44534C49E515BA0A5FA7CDC8C607034628E6D3DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375716   (863515) от 15.04.2020
 
 Kiss - 100% KISS (2020) [MP3|320 Kbps] <Rock>
@@ -571,180 +745,6 @@ VA - 200 Tracks for Running & Jogging (2016) [MP3|320 кб/с] <Fitness & Workou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06834EC5689827999777581C653BE426BA3B0B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108540   (862581) от 25.02.2017
-
-Livin' Blues - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shylina
-02. I Came Home At Night
-03. One Night Blues
-04. Sunrise(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE51AA87096C13B03C9E5B35F23127CF44FA4CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999585   (862520) от 23.03.2016
-
-James Brown - 10 Of The Best (2015) [MP3|320 кб/с] <Funk, Soul, R&B>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please, Please, Please
-02. Papa’s Got a Brand New Bag
-03. Cold Sweat
-04. Say It Loud – I’m Black and I’m Proud(   Читать дальше...   )Жанр: Funk, Soul, R&BПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FAA5AA9F9858F24730B4D8BCD5D2C5E723D464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108811   (862339) от 25.02.2017
-
-Gary Moore - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Blues
-02. Always Gonna Love You
-03. Don't Believe A Word
-04. Love Me Now(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68EFC65B994ADEF18B9C9DF5369515045366518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999920   (862307) от 23.03.2016
-
-VA - California Dreamin: Progressive House (2016) [MP3|320 кб/с] <Progressive House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862307.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joe Stone & Daser - Freak (And You Know It) (Edit) 03:14
-002. Ticli And Gas feat Malcolm - Summer Love (Radio Version) 03:46
-003. DVBBS - Never Leave (Radio Edit) 03:07
-004. Matisse & Sadko - Lock 'N' Load (Extended Mix) 03:55(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 12:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6731200F532751B578CB813D13B996FF8654204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999915   (861829) от 23.03.2016
-
-VA - Elite Eurodance Mix (2016) [MP3|320 кб/с] <EuroDance, Club, Electro, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861829.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bobina - Music Box (Radio Edit) 03:31
-002. Adam Lambert vs Adam Aesalon & Murat Salman - Ghost Town (Max Maikon Mash-Up) 03:42
-003. Saint Tropez Caps feat. Damae - Human Nature (Luca Debonaire Club Mix) 05:40
-004. Ro-MINA & Christiano Jordano - Insane (Dave Aude Remix) 05:35(   Читать дальше...   )Жанр: EuroDance, Club, Electro, HouseПродолжительность: 07:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B578348014B2FE4AF104516F082106140DB7408E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375991   (861618) от 16.04.2020
-
-Dire Straits - 100% Dire Straits (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sultans Of Swing (Live At The Royal Albert Hall)
-02. Brothers in Arms
-03. Walk of life
-04. Calling Elvis(   Читать дальше...   )Жанр: RockПродолжительность: 02:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3B044E7DF38B6861E990054AD2E78B41AC4D7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

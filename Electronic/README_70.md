@@ -1,3 +1,61 @@
+###  Публикация: 1365123   (932227) от 06.03.2020
+
+VA - Trip to Munich Lounge: Chillout Your Mind (2020) [MP3|320 Kbps] <Downtempo, Chillout, Relax, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Liege - Stream of Love (Original Mix) [04:19]
+02. Chillson feat. Marc Hartman - Easy Does It (Original Mix) [04:04]
+03. Michael E - Cafe Con Leche (Original Mix) [06:29]
+04. Pier-O - Elisa's Story (Space Dream Mix) [05:14](   Читать дальше...   )Жанр: Downtempo, Chillout, Relax, LoungeПродолжительность: 01:20:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12151449320051772AD7F221707475A32BDAB25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985984   (931923) от 13.02.2016
+
+Dance With The Dead - The Shape (2016) [MP3|320 кб/с] <Synthwave, Synthpop, New Retro Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's a storm coming
+02. Eyes of Madness
+03. Her Ghost
+04. Scream and Whispers(   Читать дальше...   )Жанр: Synthwave, Synthpop, New Retro WaveПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DDFA24B80AFC6015EBBC5D761F514C3AAFF8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129446   (931812) от 06.03.2020
 
 Xabec - Collection 6 Releases (2001-2020) Hands Productions [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, Downtempo, Industrial>
@@ -687,64 +745,6 @@ VA - Extreme Cardio Vol 1 (2015) [MP3|320 Kbps] <Hard House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C78EC99AA4587C6C0CF2F25AEB299AC9DB37691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094955   (927809) от 19.01.2017
-
-VA - Extreme Cardio Vol 2 (2017) [MP3|320 Kbps] <Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbie Teeze - Go Away (Original Mix) 06:29
-02. Karlston Khaos - The Drop (Original Mix) 06:32
-03. Bassik - Dark Dreams (Original Mix) 06:56
-04. Fierce Djs - Animal Funk (Original Mix) 06:44(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D015F05948C3CE0CFA600FB2C2BB2854DF0922B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987120   (927767) от 16.02.2016
-
-VA - Best Of Dance 2005 (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Believe in Me (3:15)
-02. Florida Inc. - Let Me Show You (3:00)
-03. Siria - Endless Summer (3:37)
-04. Global Deejays - What a Feeling (3:15)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38C1164ABAACA94D28007820C0742CD27003E31
 ```
 
 https://mybot314.ru/tekegram_catalog/

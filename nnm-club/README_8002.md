@@ -1,25 +1,25 @@
-###  Публикация: 1127375   (732074) от 21.04.2017
+###  Публикация: 1127536   (732175) от 21.04.2017
 
-Solarstone - .---- (2017) [FLAC|Lossless|WEB|tracks] <Progressive Trance>
+John Primer & Bob Corritore - Ain't Nothing You Can Do! (2017) [MP3|320 Kbps] <West Coast Blues>
 
->>Electronic
->>Trance (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732074.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Solarstone - Leap Of Faith (7:01)
-02. Solarstone - Eclipse (6:02)
-03. Solarstone with Rabbii - Untitled Love (5:20)
-04. Solarstone with Alex Karweit - Choosing His Angels (4:41)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 00:50:31
+01. Poor Man Blues (04:08)
+02. Elevate Me Mama (05:30)
+03. Hold Me In Your Arms (04:39)
+04. Big Leg Woman (04:21)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:52:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73FBDE641C7923422E120DFB69F970ED713129AA
+magnet:?xt=urn:btih:FF503BFFC9C00E69CC421DDD1E2942D9C7F9A8A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,216 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127297   (732073) от 21.04.2017
+###  Публикация: 1127398   (732174) от 21.04.2017
 
-Bonfire - Byte The Bullet (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Train
-02. Stand up 4 Rock
-03. Praying 4 A Miracle
-04. Some Kinda Evil(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40FAB40E26FA07F2A78636CAFC995B931F51E7DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127533   (732072) от 21.04.2017
-
-Журнал | Маленькая Diana №5 (май 2017) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая Diana - ежемесячный журнал по вязанию для женщин. Пользуется любовью читательниц благодаря практичным моделям на любой вкус: спортивным и классическим, для работы и отдыха. Изюминка журнала - модели для вязания на спицах и крючком, подчеркивающие женственность и сексуальность.Жанр: ВязаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8BAA0A08932B22A1F71E92CA0DB27E680D2362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127449   (732071) от 21.04.2017
-
-Process Lasso Pro 9.0.0.300 Final RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67628F7EAF88944187905640C6AF7345485A24D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127388   (732070) от 21.04.2017
-
-TunesKit iBook Copy 2.1.2 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный конвертер iBook DRM. Удаление защиты без потери качества в IBOOK EPUB DRM Free. TunesKit IBook Copy является уникальным инструментом для удаления IBook DRM на рынке, TunesKit IBook Copy может легко снять защиту DRM от компании Apple …
-
-Обход защиты DRM iBook EPUB файлов.
-Не можете читать ваши EPUB файлы на других устройствах для чтения, как Amazon Kindle, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20 апреля 2017Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CAF0C36BCF143F66141D6550A30219825E6110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127466   (732069) от 21.04.2017
-
-AnyMP4 Blu-ray Player 6.2.22 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732069.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Blu-ray Player - комфортный проигрыватель Blu-ray дисков, папок и ISO образов, поддерживает просмотр Full HD форматов: MP4, FLV, MTS, WKV, TRP, MXF, MPEG, M2TS и других популярных, ну а также многоканального звука, обход региональных защит, содержит ряд стандартных функций: сменные скины, проигрывание графики, маркировка и закладки, эффекты и настройка на (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7EFB0E5DF7DE8F8AA961B07E9E8EA00747FDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127386   (732068) от 21.04.2017
-
-Журнал | Forbes [Россия] №5 (158) (май 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732068.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Forbes" - ведущий деловой журнал в мире. Миссия журнала – обеспечивать читателей информацией, гарантирующей им успех. Журнал Forbes - независимое бизнес-издание. Forbes не публикует информацию, которая уже вышла в других СМИ. Каждый материал в журнале - эксклюзивный. В журнале: статьи экономистов и политиков специально для Forbes, экономические новости, (   Читать дальше...   )Жанр: Деловой журнал, Бизнес и ПолитикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C31E96195AA276B175178594D47192982C862B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127529   (732067) от 21.04.2017
-
-Avant Browser Ultimate 2017 build 06 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не знаете какой браузер лучше - Internet Explorer, Chrome или Firefox? Испытайте Avant Browser - современный браузер, использующий 3 движка (Trident, Webkit и Gecko), между которыми можно быстро и легко переключаться. Avant Browser имеет удобный интерфейс, умеет блокировать всплывающие окна, флеш-ролики и рекламу, включает в себя массу нужного для работы в интернете.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904D5B75DA5664575A8302E49B8D94A0885F8411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127284   (732066) от 21.04.2017
-
-DJ Khaled - Major Key (2016) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap, R'n'B>
+Gas - Narkopop (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electronic, Neo Classical>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732066.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Got the Keys (feat. Future & Jay-Z) (3:39)
-02. For Free (feat. Drake) (3:03)
-03. Nas Album Done (feat. Nas) (3:16)
-04. Holy Key (feat. Betty Wright, Big Sean & Kendrick Lamar) (4:41)(   Читать дальше...   )Производство: Epic, We The Best Music Group – 88985355482Жанр: Hip-Hop, Trap, R'n'B, SwingПродолжительность: 00:57:53
+1. Narkopop 1
+2. Narkopop 2
+3. Narkopop 3
+4. Narkopop 4(   Читать дальше...   )Жанр: Ambient, Electronic, Neo ClassicalПродолжительность: 01:18:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7538B65B431D8AA3BEBD4136378F994B6DBFCCAF
+magnet:?xt=urn:btih:8E95765599E62B3330877C0465B6A4996CB70B4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127473   (732065) от 21.04.2017
+###  Публикация: 1127396   (732173) от 21.04.2017
 
-Gas - Narkopop (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
+Al Caiola - Bonanza! 1960-1969 (2002) CD [MP3|320 Kbps] <Instrumental, Easy Listening, Pop>
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732065.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Narkopop 1 (04:52)
-02. Narkopop 2 (11:22)
-03. Narkopop 3 (04:24)
-04. Narkopop 4 (04:10)(   Читать дальше...   )Жанр: Ambient, TechnoПродолжительность: 02:29:57
+Alexander Emil Caiola (1920 - 2016) - американский гитарист, композитор и аранжировщик, охвативший множество музыкальных жанров, включая джаз, кантри, вестерн, рок  и поп. Известен как студийный музыкант и актер. Записал более пятидесяти альбомов, работал с некоторыми из самых больших звезд 20-го века. Гастролировал на регулярной основе со Стивом Лоуренсом.01. The Magnificent Seven (1:58)
+02. Bonanza! (2:20)
+03. The Lonely Rebel (2:37)
+04. The Bounty Hunter (2:25)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, PopПродолжительность: 01:17:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4E1B611106CD51248DED93E0AA18C185A790C9F
+magnet:?xt=urn:btih:A3FD1B7DAAEEA4B15199E6CCEAFC4709F824A18B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127065   (732064) от 21.04.2017
+###  Публикация: 1127271   (732172) от 21.04.2017
 
-Компания Lockheed Martin раскрывает детали будущего боевого вертолета, создаваемого на базе Sikorsky X2
+Roger Creager - Surrender (2012) [FLAC|Lossless|tracks + .cue] <Country>
 
->>Поговорим
->>DailyTechInfo
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_732064.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В свое время мы рассказывали о том, что компания Sikorsky Helicopters, которая сейчас является своего рода филиалом компании Lockheed Martin, совместно с компанией Boeing занимается разработкой нового боевого вертолета, основой которого является хорошо зарекомендовавший себя прототип Sikorsky X2 demonstrator, который в 2010 году установил неофициальный рекорд скорости. (   Читать дальше...   )
+01 - Turn It Up (3:07)
+02 - Something To Believe In (3:23)
+03 - Dead Love (4:10)
+04 - If You Really Love Me (3:53)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:53
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:176741A06A22971B8DA5BF1C4DF323494E6F2BE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,28 +114,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283824   (732063) от 18.02.2019
+###  Публикация: 1127551   (732171) от 21.04.2017
 
-Postico 1.5.5 [En]
+Инна Гамазкова и др. | Веселая переменка (2011) [DJVU]
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732063.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простой, но мощный менеджер PostgreSQL баз данных для Mac
-Цель - сделать работу с базами данных PostgreSQL немного проще с помощью коллекции интуитивно понятных инструментов в удобном интерфейсе. PostgreSQL является одним из самых мощных и комплексных систем управления базами данных, поэтому работать с ним не так просто, как может показаться.
-
-Postico - рациональный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2019Разработчик: Jakob EggerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+«Весёлая переменка» — сборник смешных рассказов о забавных проделках современных мальчишек и девчонок в школе и дома. Создали эту книгу замечательные детские писатели, лауреаты многочисленных премий Тамара Крюкова, Марина Дружинина, Валентин Постников, авторы искромётных сюжетов юмористического журнала «Ералаш» — Илья Ильин, Сергей Степанов, незаурядные прозаики (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7C4B94CBD90DF0848357F28CB27F0EA4E223F18
+magnet:?xt=urn:btih:97266AB867FF44D72C56940E729B07E774686BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,83 +140,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283703   (732062) от 18.02.2019
+###  Публикация: 1127245   (732170) от 21.04.2017
 
-Macsome iTunes Converter 2.4.3 [En]
+Barock Project - Skyline (2015) 2CD [FLAC|Lossless|tracks + .cue] <Neo-Prog, Classic Rock, Art Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (3:40)
+02. Tired (9:57)
+03. Skyline (10:20)
+04. The Longest Sigh (7:54)(   Читать дальше...   )Жанр: Neo-Prog, Classic Rock, Art Rock, Symphonic RockПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AE597FC9EE67728EDDD920A72B1F3370DB5172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127374   (732169) от 21.04.2017
+
+RAW Power 1.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732062.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Macsome iTunes Music Converter - программа для пакетного удаления DRM-защиты с различных типов файлов. Приложение поддерживает все айдио форматы, которые поддерживает iTunes. Преобразование происходит на 5X скорости с качеством Audio-CD.
-Macsome iTunes Music Converter позволяет преобразовывать M4P в MP3, конвертировать Аудиокниги, AAC в MP3 а так же из M4P в AAC (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: Macsome Inc.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B807422C3A5B51300AEEE0D4B9F52F42C84FB8D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283795   (732061) от 18.02.2019
-
-VA - German Top 100 Single Charts 25.02.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eno - Ferrari (feat. Mero)
-02. Capital Bra - Prinzessa
-03. Azet & Zuna - Hallo Hallo
-04. Ariana Grande - 7 rings(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710ED193364A3FE452B69231B9607AB8B1BFC3C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283689   (732060) от 18.02.2019
-
-Уголовный кодекс РСФСР (1950) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный текст с изменениями на 1 июля 1950 г. и с приложением постатейно-систематизированных материалов.
+Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь  от Apple's RAW  с простыми, легкими в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
 
-Уголовное законодательство РСФСР имеет задачей охрану социалистического государства рабочих и крестьян и установленного в нем правопорядка от общественно-опасных действий (преступлений) путем применения к лицам, их совершающим, указанных в настоящем Кодексе (   Читать дальше...   )Жанр: История, политология, социология, правоведениеФормат: DJVU
+Если бы вы любили дополнительные регулировки RAW обработки Aperture, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 апреля 2017Разработчик: Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C534DB1A9099BAB01B6D6014302E55FDD315C20
+magnet:?xt=urn:btih:D61020E519DA35542FB1D37CB86F992B980887A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,51 +197,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283855   (732059) от 18.02.2019
+###  Публикация: 1127469   (732168) от 21.04.2017
 
-Векторный клипарт - Happy valentines day vector design #3 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очаровательные открытки, приглашения, рамки к 14 февраля.Формат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D31558BA6C67ACDC9DC79E12CDC6164CB26FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283877   (732058) от 18.02.2019
-
-Журнал | AD / Architectural Digest [Россия] №3 (181) (март 2019) [PDF]
+Журнал | Овощи и фрукты [Украина] №4 (89) (апрель 2017) [PDF] [Ru, Ua]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732058.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов, в России с сентября 2002 года. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
+Журнал для фермеров, дачников и огородников, которые хотят не только получить прекрасный урожай, но использовать выращивание овощей и фруктов для получения дохода. В журнале – информация о сортовом разнообразии овощных и плодово-ягодных культур, мировые тенденции развития, современные технологии выращивания, хранения и переработки овощей и фруктов, рекомендации по (   Читать дальше...   )Жанр: Сад, огород, дачаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E745021698E1B63AF93CFBA2951485FCF2287E02
+magnet:?xt=urn:btih:0AC8799B0BCF4AC4CBBB98C14D8D0AF1227BD2A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,25 +223,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283857   (732057) от 18.02.2019
+###  Публикация: 1127435   (732167) от 21.04.2017
 
-Векторный клипарт - Happy valentines day vector design #1 [EPS]
+Back In Time - Back In Time (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732057.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роскошные иллюстрации к 14 февраля с сердцами и цветами в векторе.Формат: EPS
+01. The Sound Of Silence (4:16)
+02. El Condor Pasa (If I Could) (7:09)
+03. All I Wanna Love Is Love (6:57)
+04. Love Is What We Need (5:00)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:36:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:497F7713DC720411844BD3C626144F5E4E93AB07
+magnet:?xt=urn:btih:76C5CA9C292447E2D7303BE9CF7F115E8917B498
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,25 +252,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283229   (732056) от 18.02.2019
+###  Публикация: 1127573   (732166) от 21.04.2017
 
-Раджниш Ошо | Сострадание: Наивысший расцвет любви (2013) [MP3]
+Madame - Dance, Madame De ... (1980) LP [MP3|320 Kbps] <Electronic, Disco>
 
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732056.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сострадание прежде всего означает, что вы принимаете недостатки и слабости других людей и не ожидаете, что они будут вести себя как боги. Вы признаёте достоинство каждого человека, вы помогаете людям осознать, что просветление заложено в природу каждого. Сострадание так бесконечно правильно, что всё, что из него делается, становится соответствующим Закону. Ум законника (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 09:31:13
+01. Dance Madame (Won't Cha Come Outside) (5:16)
+02. Quand Tout Va Par Deux (5:49)
+03. Show Me How Your Feel And Dance (6:14)
+04. Gettin' On With The Thing (9:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:939124C50376E988587B0F9707A2A42060B0AE07
+magnet:?xt=urn:btih:6E225A5A1EA3A5ED004C28B4AF9AF7F046779471
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,25 +281,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283859   (732055) от 18.02.2019
+###  Публикация: 1127440   (732165) от 21.04.2017
 
-Векторный клипарт - Happy valentines day vector design #5 [EPS]
+Kite Compositor —  Animation and prototyping for macOS and iOS 1.2 [En]
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732055.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нежно-розовые фоны с объемными сердцами для поздравления с днем влюбленных - 14 февраля.Формат: EPS
+Kite Compositor -  дизайн анимации и прототипирования для Mac. Kite построен непосредственно на основе основной анимации Apple, которая обеспечивает весь тяжелый процесс для создания красивых анимаций интерфейса. Это та же структура, которая используется в iOS, macOS и tvOS для компоновки графики и анимации интерфейса.
+
+Kite предлагает ряд базовых строительных блоков, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20 апреля 2017Разработчик: Rhodes SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DF13B5C5BCB6EEDC139FF3903ACE31E311F7F95
+magnet:?xt=urn:btih:1B4A7D4E8D739B2EDF58CAC4D1094E50EF36FE8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,25 +309,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283808   (732054) от 18.02.2019
+###  Публикация: 1127187   (732164) от 21.04.2017
 
-Midnight Calling 4: The Wise Dragon (2017) [En] (1.0) Unofficial [Collector's Edition]
+Arthemis - Blood - Fury - Domination (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal, Heavy Metal, Thrash Metal>
 
->>Win Игры
->>Adventure/Quest (Casual)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732054.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732164.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Письмо от вашего отца ведет вас в ваш родной город. Когда вы приедете, вы найдете его в огне! Ваша единственная надежда состоит в том, чтобы расшифровать исследования вашего отца и найти Мудрого Дракона, но являются ли они другом или врагом? У вас есть все, что нужно для борьбы со злом, чтобы спасти ваших людей от разрушения?Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+01. Undead 03:51
+02. Black Sun 03:37
+03. Blood Red Sky 04:33
+04. Blistering Eyes 03:31(   Читать дальше...   )Жанр: Power Metal, Heavy Metal, Thrash MetalПродолжительность: 00:52:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE93506A5DF54BEA708CBA64D82EB0F92EBCD2BC
+magnet:?xt=urn:btih:1A4AECF874B17E3DD036AA42EE9349D4D6AB397D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,25 +338,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283854   (732053) от 18.02.2019
+###  Публикация: 1127410   (732163) от 21.04.2017
 
-Векторный клипарт - Happy valentines day vector design #7 [EPS]
+VA - Spectra Of Trance Vol.2 (Mixed by Daniel Kandi) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance, Uplifting Trance, Progressive Trance>
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Electronic
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732053.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красивые иллюстрации с объемными красными сердцами, открытка с надписью love, нежные фоны с цветами в векторе.Формат: EPS
+01. ToShuk - Amentia (Original Mix) (6:55)
+02. Andrei Pavlov - Elysium (Original Mix) (7:08)
+03. Hesham Watany - Twisted Thoughts (Original Mix) (5:59)
+04. Gabriel Volt - Night Mode (Original Mix) (7:07)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 05:41:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D3231FA8C21F80F13716DE6842ABE302387FD65
+magnet:?xt=urn:btih:3794ECACF701D8F2D317562A5A0FBC878ED500E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -594,28 +367,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283310   (732052) от 18.02.2019
+###  Публикация: 1127471   (732162) от 21.04.2017
 
-Julien Marchal - INSIGHT III (2017) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
+Jeff Lorber Fusion - Prototype (2017) [FLAC|Lossless|tracks + .cue] <Smooth-Jazz, Funk, Fusion>
 
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732052.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. INSIGHT XXIV (2:41)
- 02. INSIGHT XXV (6:04)
- 03. INSIGHT XXVI (3:59)
- 04. INSIGHT XXVII (2:48)(   Читать дальше...   )Жанр: Neoclassical, Piano, MinimalПродолжительность: 00:35:31
+01. Hyperdrive (4:57)
+02. Prototype (5:23)
+03. Test Drive (5:20)
+04. What's The Deal (4:47)(   Читать дальше...   )Жанр: Smooth-Jazz, Funk, FusionПродолжительность: 00:49:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E06A834B17E46412206AB31F41C3F35752FCEB1F
+magnet:?xt=urn:btih:E6C83E545DB052398AF89568BAC2899511799FF9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,25 +396,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283813   (732051) от 18.02.2019
+###  Публикация: 1127470   (732161) от 21.04.2017
 
-Donna Brave: And the Strangler of Paris (2017) [En] (1.0) Unofficial [Collector's Edition]
+Журнал | Le Tabouret (март-апрель 2017) [PDF]
 
->>Win Игры
->>Adventure/Quest (Casual)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732051.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Друзья вашего дяди были таинственно убиты, и он вызвал вас в Париж, чтобы выследить убийцу, прежде чем они снова нападут! Но скоро вы найдете то, что вы ищете, это не обычный преступник- Мистический монстр на свободе... Можете ли вы спасти своего дядю вовремя или вы станете следующей жертвой?Тип издания: UnofficialРазработчик: MadHeadЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+Журнал «Le Tabouret» — иркутский модный журнал о дизайне и архитектуре.
+
+Если вдохнуть наполненный безграничной свободой воздух и со сдержанной уверенностью двинуться вперед, то можно создать замечательную историю рождения нового дома – смелых решений и совместных побед. Когда Дом перестает быть просто объектом, люди, его создающие, теряют сухой статус «заказчиков», (   Читать дальше...   )Жанр: Дизайн интерьеровФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E707D24655A301C7ED2E7FAFEF9DBB249CC8E1B3
+magnet:?xt=urn:btih:416055B1058448D7B9BD603E206B888E735A8388
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,28 +424,199 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283508   (732050) от 18.02.2019
+###  Публикация: 1127501   (732160) от 21.04.2017
 
-VA - Reggae And Love: Soul Music (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
+Вечерний Ургант (2017.04.21) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA9415DD0B5EA6E675E73A6404E237BA7722F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127499   (732159) от 21.04.2017
+
+Joanne Shaw Taylor - White Sugar (2009) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Home  (04:50) 
+02. Just Another Word  (04:07) 
+03. Bones  (05:22) 
+04. Who Do You Want Me to Be?  (03:35) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1368BFD724E6C8B7BB1847AF009CB510008166A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283767   (732158) от 18.02.2019
+
+Chet Baker - The Trumpet Artistry Of Chet Baker (1955) 2018, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Glad There Is You [3:17]
+02. Moon Love [3:19]
+03. Moonlight Becomes You [2:56]
+04. Imagination [3:03](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C23ECEA8C86FD033C9BAD2CA24AACBB13CE5846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283894   (732157) от 18.02.2019
+
+Ambrose Akinmusire - Origami Harvest (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz,  Hip Hop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. a blooming bloodfruit in a hoodie (12:57)
+02. miracle and streetfight (15:05)
+03. Americana / the garden waits for you to match her wilderness (10:40)
+04. particle / spectra (08:04)(   Читать дальше...   )Жанр: Contemporary Jazz,  Hip HopПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5D1BC8C209D44A1981CE8B4CE2FE7F2D8A54A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283890   (732155) от 18.02.2019
+
+Illl vs. irma - 10-15mA (2012) Soun Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Modern Classical, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illl vs. Irma - Washily (04:05)
+02. Illl - Hearts (04:44)
+03. Illl - Self Irreality (06:16)
+04. Illl - The Last Ride Of The Old Funicular (03:41)(   Читать дальше...   )Жанр: IDM, Downtempo, Modern Classical, AmbientПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A76592B4ABEA74D16B02280F7E3CAAFEF87505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283794   (732152) от 18.02.2019
+
+Tethered Moon - Plays Jimi Hendrix+ (1998) Media Rings [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Haze [10:19]
+02. Machine Gun [3:05]
+03. Little Wing [7:50]
+04. Castle Made of Sand [11:08](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8091F11FE442376EAE546F626718B7EDA9271ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283883   (732151) от 18.02.2019
+
+VA - German Top 50 Party Schlager Charts 18.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 
 >>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732050.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ze-Ion - The Vibes
-002. Basha Binghi - Feel Like Giving Up
-003. Doubutsu System - Three Choice Loins Dub
-004. Carl Meeks - You Are(   Читать дальше...   )Жанр: Reggae, Dub, SkaПродолжительность: 08:27:22
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Maite Kelly - Die Liebe Siegt Sowieso(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:03:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF1D6D7F695B364832722A20462F0AD270913FCB
+magnet:?xt=urn:btih:170A00C8B57F67473920BD2CB5C7B4842B078FED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,25 +624,113 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283644   (732049) от 18.02.2019
+###  Публикация: 1283866   (732149) от 18.02.2019
 
-Валерия Носова | Комиссаржевская (2019) [MP3]
+log(m) & Laraaji - The Onrush Of Eternity (2019) Invisible, Inc. [FLAC|Lossless|WEB-DL|tracks] <Dub, Tribal, Experimental>
 
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732049.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга рассказывает о выдающейся русской актрисе — Вере Федоровне Комиссаржевской, яркой представительнице русского реалистического театра.Жанр: ЖЗЛПродолжительность: 11:54:43
+01. Daisy Fields (03:35)
+ 02. Sruthi Dub Resonance (04:35)
+ 03. Barefoot (08:23)
+ 04. Oregano In Dub Minor (08:36)(   Читать дальше...   )Жанр: Dub, Tribal, ExperimentalПродолжительность: 01:41:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2F58C376B19A0C236927FFB2A90343F2C62E39F
+magnet:?xt=urn:btih:480CD3E5213A28B7BBC3FD52670D1AD98B4D2AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283881   (732147) от 18.02.2019
+
+Bookends 13.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bookends - мощное приложение, которое представляет собой полнофункциональную библиографическую, справочно-информационную систему для студентов и профессионалов. Доступ к данным приложения можно получить из программ: Mellel, Nisus Writer Pro, MS Word (включая MS Word 2011), а так же Apple Pages и OpenOffice.
+
+Bookends позволяет сканировать существующие файлы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.02.2019Разработчик: Sonny SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940C58B8B6CC02DB4D14BE3D5E45FAFD2A4A3FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283888   (732144) от 18.02.2019
+
+autoisolation - Into the mist (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Electronic, Dark Jazz>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulterior Motives (2:10)
+02. A Torture By Hope (3:11)
+03. Apathic Fingertips (3:07)
+04. Blueberry Eyes (3:23)(   Читать дальше...   )Производство: floe - FLOE009Жанр: Dark Ambient, Electronic, Dark JazzПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6406A6408FFCCC421ED22A22AAB431147CB04769
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283745   (732143) от 18.02.2019
+
+iSoftPhone Pro 4.2.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732143.jpg" />
+</div>
+
+
+###  Подробнее
+
+iSoftPhone - приложение представляет весьма симпатичный и функциональный VoIP-клиент для macOS. Интерфейс приложения выполнен в виде телефона. iSoftPhone обеспечивает отличное качество голосовой связи. При этом программа довольно проста в настройке, имеет встроеную адресную книгу, а так же позволяет создавать виртуальную частную телефонную сеть.
+
+Программа также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2019Разработчик: Xnet CommunicationsПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA3D60E8CA908FCD1F6F9D663CFEE94D31A37C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

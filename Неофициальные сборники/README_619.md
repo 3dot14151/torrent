@@ -1,3 +1,213 @@
+###  Публикация: 591098   (135905) от 21.12.2012
+
+VA - Poker Lounge (4CD) (2008) [MP3|320 кб/с]<Lounge, Jazzy>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для  NoNaMe Club PokerTourПродолжительность: 01:02:52
+
+1. Seven Smiles - City Light (3:19)
+ 2. DJ Coltsilvers - After The Party (3:50)
+ 3. Zaia - Bugle Sound (3:59)
+ 4. Brenda Wilson - What A Differenc E A Day Makes (4:59)
+ 5. Michel Leca - Los Colores De La Rosa (4:02)
+ 6. John T'man Taylor - Don't Wanna Sleep (5:27)
+ 7. Liza Everson Feat. Alvin S - Le Freak (4:46)
+ 8. Nicco - One Day In July (3:21)(   Читать дальше...   )Жанр: Lounge, JazzyПродолжительность: 03:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58CC7DB12E9B0C27B9FE1C61EB3BBDC425EDF38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592863   (135722) от 22.12.2012
+
+VA - Trancern 2012.5 - Official Compilation (Best of 2012) (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
+ 02. Gareth Emery - Concrete Angel (Original Mix)
+ 03. Akira Kayosa & Bevan Miller feat. Carly Kling - Phase 3 (Original Mix)
+ 04. Lange vs. Gareth Emery - Another You Another Me (Rafael Frost Remix)
+ 05. Solarstone With Giuseppe Ottaviani - Falcons (John O'Callaghan Remix)
+ 06. DubVision - All By Myself (David Jones Remix)
+ 07. Delerium feat. Michael Logen - Days Turn Into Nights (Solarstone Pure Mix)
+ 08. Andrew Rayel - Believe (Original Mix)
+ 09. Andy Tau & Sean Truby - Rapture (Suncatcher Remix)
+ 10. The Thrillseekers feat. Fisher - Angel (Eximinds Remix)(   Читать дальше...   )Жанр: Trance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822E91B81BF0AADE5C8F94111C059B1E77FC1051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592849   (135721) от 22.12.2012
+
+VA - Keri Gen - True Trance Nation (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epos - Polarized (Magic Island 200th Episode Theme) (Original Mix)
+ 02. Armin van Buuren & Orjan Nilsen - Belter (Original Mix)
+ 03. Moonbeam feat. Jacob A - Only You (Club Mix)
+ 04. 2Players - Signet (Wellenrausch Remix)
+ 05. KhoMha - Days Gone Bye
+ 06. Aly & Fila vs. Ummet Ozcan - FSOE 200 Anthem (Keri Gen 2 in 1 Mashup)
+ 07. Above & Beyond feat. Zoë Johnston - Alchemy (Myon & Shane 54 Redemption Mix)
+ 08. Richard Durand vs. The World - Stand Again (Original Mix)
+ 09. Alexandre Bergheau - Adduria (Original Mix)
+ 10. Armin van Buuren feat. Jan Vayne - Serenity (Andrew Rayel Aether Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8528D18543B5A1A39328A7EFE1096370F21C1863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593334   (135451) от 23.12.2012
+
+VA - Dance Vibration Vol 2 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B-A-D-B-O-Y-Take Me Away (Vinylbreaker Remix) 05:41
+ 02. Basewalker & Vyrus-Dancing Through the Night 06:12
+ (DJ Locos Summer Remix)
+ 03. Clark Owen-Melody 05:45
+ (Wavepuntcher & Sexual Energy Remix)
+ 04. Dittin & Jockiboi-VI Dricker Redbull Och Vodka 05:19
+ (Saamen Van Aaren & Nrg-Boy Summer Remix)
+ 05. DJ Darroo-Black Magic 08:34
+ 06. DJ Equan-I'm Destination 06:47
+ 07. Edvard Hunger-Close My Eyes 05:41(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79843F382DC8FB8D76DAF39134FDA516C495C35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592072   (135410) от 23.12.2012
+
+VA - Creative Music Box 6 (2012) [MP3|320 кб/с]<Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Asking Alexandria - A Lesson Never Learned
+2. Bassex - Tinnitus
+3. Butch Clancy - Xlam
+4. Butch Clancy- The Devil's Quid Pro Quo
+5. Cenob1te - Hyperion
+6. Deltron 3030 - Upgrade (Figure Remix)
+7. Demented Dimensions - I Swear to God
+8. Document One feat. Maksim - Kick Snares And Brehs
+9. Dubwoofer - Carol Of The Bass
+10. Eliminate - Devil Theory(   Читать дальше...   )Жанр: Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal StepПродолжительность: 02:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D9A6E0E12F409DF5BC70019504C1BF1BF2A7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591856   (135372) от 23.12.2012
+
+VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Degrees Of Motion & North Base - Shine On (Dubstep Mix)
+02. Other Echoes feat. Julian Huggins - Free Running
+03. Delerium feat. Michael Logen - Days Turn Into Nights (Seven Lions Remix)
+04. Waverokr - Gravity Switch
+05. Dubba Jonny - Smack It!
+06. Molecule - Ghetto Superstar
+07. DKS - Can't Get Enough (Original Mix)
+08. Hardwell feat. Amba Shepherd - Apollo (3rd Prototype Bootleg)
+09. TS7 - Struggle (DJ Q Remix)
+10. Smooth feat. Tasha Baxter - Nowhere(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE01CE8DE485381BFF5BAC1C0EDFCA34F86E334C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591841   (135288) от 23.12.2012
 
 VA - DubStep Pro V.8 (2012) [MP3|320 кб/с]<DubStep>
@@ -640,216 +850,6 @@ VA-New Age Style - Christmas Chill (2011) [MP3|320 кб/с]<New age, Chillout, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25FD509D450D49B8D49110AFA9A4E363EB10422F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593413   (134792) от 24.12.2012
-
-VA - Песни для души (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Руслан Березовский - Ромашка
-02. Сергей Артемьев - Одной тебе
-03. Андрей Рубежов - Красотки-бортпроводницы
-04. Кабриолет - Не ревнуешь
-05. Бумер - Она одна
-06. Алексей Свешников - По снегу
-07. Сергей Сухачев - Первые цветы
-08. Жека - Кони
-09. Михаил Штукин - Любовницы, любовники
-10. Денис Мафик - Миллион разлук(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C66601CE98C90AC3F9FF02DE50D6517FFEC7888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593910   (134779) от 24.12.2012
-
-VA - Rare Groove Moods: Chillout Lounge Bootleg Classics Vol.1 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134779.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Quantum Of Soul - Greece - The Solace Remix (3:44)
-2. Liquido - Violetta - Ultra Lounge Dub (5:06)
-3. Joerdi - Dolphins - Tomtempi Mix (4:19)
-4. Anna Goda - Sweetest Dreams - Terra Incognito Mix (3:29)
-5. Clara Bell - Looking Forward - Bargrooves Edit (3:38)
-6. Jost Hohenberg - Space Design - Inner Peace Remix (4:31)
-7. Lauren Lee - Strandbar - Re-Jazzed Mix (3:46)
-8. Cafe Paraiso - Don't Sleep - Jon Del Mar Dub (3:09)
-9. Jenny Casparius - Thank You Darling - Nu Cool Ibiza Mix (3:19)
-10. Tom Lang - Babyclock - Fluxxx Remix (3:49)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:016726E05C3FBBCE33E37CED0CCB04C33241B8FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593761   (134771) от 24.12.2012
-
-VA - Хитовый Запах Нового года (2012) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Настя Любимова - Новый Год Со Вкусом Детства
-02. Андрей Леницкий - Не Сумела (Новый Год)
-03. ТЕО - Ты Моя Планета
-04. Санта - Поцелуи
-05. Сергей Лазарев - Under The Moon
-06. Светлана Лобода - Happy New Year (ABBA Cover)
-07. Винтаж и Рома Кенга - Танцуй в последний раз
-08. Дискотека Авария - Ноги-Ноги
-09. Жека Баянист - Bara Bara Bere Bere (Russian Version)
-10. Анжелика Агурбаш - Ты всегда и навсегда(   Читать дальше...   )Жанр: РорПродолжительность: 05:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0373D2C85DBF31F2BFFEC97966BC600A834D7088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592710   (134760) от 24.12.2012
-
-VA - So Fresh: Songs For Christmas 2012 (2 CD) (2012) [MP3|320 кб/с]<Holiday, Pop, Blues, Jazz, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wham! - Last Christmas (4:28)
-02. Band Aid - Do They Know It's Christmas (3:49)
-03. Maroon 5 - Happy Xmas (War Is Over) (3:29)
-04. Human Nature - Away In A Manger (2:02)
-05. Michael Bolton - Joy To The World (4:06)
-06. George Michael - December Song (I Dreamed Of Christmas) (3:35)
-07. Diana Krall - Jingle Bells (2:13)
-08. Hillsong - Born Is The King (3:21)
-09. Marvin Gaye - I Want To Come Home For Christmas (3:28)
-10. The Jackson 5 - Up On The Housetop (3:14)(   Читать дальше...   )Жанр: Holiday, Pop, Blues, Jazz, RockПродолжительность: 02:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5208771003BD6F1446E5BD2FDAC4AB689208D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593764   (134710) от 24.12.2012
-
-VA - Зимний extrim. Самые новые хиты 2 (2012) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Шахзода - Давай До Свидания
-02 Жанна Фриске & In-Grid - Падает Снег (Remix)
-03 Фабрика - Она Это Я
-04 Иля - Это - любовь
-05 Лаурита - Новое поколение
-06 Технология - Сестра
-07 Eva Kade - Любовь была
-08 DJ Цветкоff & Оля Милакса - Белая ночь (Andry Makarov remix)
-09 DJ Skazka - Неоновый свет
-10 Ангелина Сланевская - Тебя мне так мало(   Читать дальше...   )Жанр: РорПродолжительность: 05:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319F377514D7678BF7116C8ECBACE51DF238BB4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593528   (134691) от 24.12.2012
-
-VA - Новогодний cборник зарубежной музыки (2012) [MP3|256 кб/с]<Рор,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134691.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 DJ Smash & DJ Vengerov - Только вперед (Bobina Remix)
-002 Brooklyn Bounce & Giorno - Raving (G! Mix Edit)
-003 Scooter - Army Of Hardcore (Radio Edit)
-004 DJ Aligator fe Airbase - Resurrection
-005 PSY - Gangnam Style (Crystal Lake Remix)
-006 Calvin Harris feat. Tinie Tempah - Drinking From The Bottle
-007 Basshunter - Dream On The Dancefloor (Radio Edit)
-008 La Familia Loca & Gabry Ponte - Imaginate (Club Edit)
-009 Darius & Finlay Feat. Nicco - Get Up (Money G Radio Mix)
-010 Bombs Away - Party Bass (Krunk Remix)(   Читать дальше...   )Жанр: Рор,DanceПродолжительность: 06:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F7929D86934B26A11A8DFA887CD5CA064983482
 ```
 
 https://mybot314.ru/tekegram_catalog/

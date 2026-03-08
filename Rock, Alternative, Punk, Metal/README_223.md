@@ -1,32 +1,3 @@
-###  Публикация: 998063   (867798) от 20.03.2016
-
-Виктор Зинчук - Триумф гитары (2015) Compilation [FLAC|Lossless|image + .cue] <Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Попурри на темы В.А. Моцарта и Л.В. Бетховена (03:18)
-02. Итальянская полька (С. Рахманинов) (03:09)
-03. Марш Радецкого (И. Штраус) (03:56)
-04. Полька (М. Глинка) (03:26)(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507F705CAC530C50A42CDA37DD04BD9BF36C65F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 767007   (867745) от 16.03.2014
 
 Ruby the RabbitFoot - New as Dew (2014) [MP3|320 кб/с]<Indie Rock, Pop>
@@ -741,6 +712,35 @@ Night Ranger - ATBPO (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:325899B08DE6E5DA2B9B91A319B2137074AC732B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497239   (866596) от 21.09.2021
+
+Save The World - Two (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camera Obscura
+02. Bones
+03. Miss Muse
+04. Defenders Of The Faith(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58110F7D3386A2A6270136D093F3EA4E585A68C
 ```
 
 https://mybot314.ru/tekegram_catalog/

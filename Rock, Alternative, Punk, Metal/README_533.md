@@ -1,32 +1,3 @@
-###  Публикация: 1154845   (537226) от 01.08.2017
-
-Wolverine - The Windows Purpose (2001) Remaster, 2006, Earache Records [FLAC|Lossless|image + .cue] <Progressive Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End (00:43)
-02. My Room (08:06)
-03. His Cold Touch (part I: Within These Walls) (09:42)
-04. His Cold Touch (part II: A Silent Outside) (01:52)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A7DCFEBB83D415F6FBA4FAB364641643E4FC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925768   (537196) от 08.08.2015
 
 Chaos Divine - Colliding Skies (2015) [FLAC|tracks|WEB-DL]<Progressive Metal>
@@ -744,6 +715,35 @@ Smokie - The World And Elsewhere (1995) [APE|Lossless|image + .cue] <Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC0B7F48D5BF7110F107E905ABC1EF659D1B1B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050584   (536460) от 09.09.2016
+
+Jimi Hendrix - Live At Monterey Pop Festival (1992) [WavPack|Lossless|image + .cue] <Blues Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536460.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Can You See Me (3:35)
+2. Hey Joe (4:12)
+3. Purple Haze (3:15)
+4. The Wind Cries Mary (3:20)(   Читать дальше...   )Жанр: Blues Rock, Psychedelic RockПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E488A2D84FD8B8A62414F77F7BA4C72A6CC6CB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

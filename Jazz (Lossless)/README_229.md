@@ -1,3 +1,32 @@
+###  Публикация: 1337308   (275028) от 10.11.2019
+
+Jay Thomas / Gary Smulyan - Lowdown Hoedown (2016) CUG Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lowdown Hoedown [5:44]
+02. Melanie [7:15]
+03. Star Eyes [7:19]
+04. Lotus Blossom [6:35](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8582A009BC61CEE0E90C70BBE66EC77D7850DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337300   (275026) от 10.11.2019
 
 Benny Carter - Four Classic Albums Plus 1958 - 1960 (2012) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Big Band>
@@ -727,35 +756,6 @@ Sonny Stitt and Bennie Green - My Main Man (1964) Remaster, 2004, Universal[FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B837F069758C8408D3F0CEA426F9D052190399A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083983   (272650) от 17.12.2016
-
-Wes Montgomery & Clark Terry - Straight, No Chaser (1965) 1992, Jazz Door[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Straight, No Chaser [08:06]
- 02.Just Friends [09:02]
- 03.In a Mellow Tone [14:38]
- 04.We Got Rhythm [08:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3393ED3ED6A67B2CF3F25A3F70023B5AD8837B58
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1572356   (423511) от 26.08.2022
+
+Satin Jackets - Reunion (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For What We Have (4:02)
+ 02. Move On (ft.Panama) (4:27)
+ 03. First Thing (ft. Tailor) (4:00)
+ 04. Coffee and Feels (4:08)(   Читать дальше...   )Жанр: Electronic, Indie Pop, House, Nu DiscoПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7F11A943CC859F8D9AD8B076A4D98F3EC1A419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572303   (423384) от 26.08.2022
+
+VA - A State Of Trance, Ibiza 2022 (Mixed by Armin van Buuren) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Maia Wright - One More Time (Mixed) (Worakls Remix) (3:03)
+02. This Culture - Your Love (Mixed) (2:24)
+03. Armin van Buuren & Shapov - Welcome Home (Mixed) (4:15)
+04. Vintage Culture & Three Drives - Greece 2000 (Mixed) (2:51)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C420B4BF2A7943A756966BEC7C1612EDC7F806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412049   (423151) от 27.09.2020
 
 VA - Aly & Fila - FSOE Top 20: September (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
@@ -690,64 +748,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CCBA48C46D634FE01C3994867BB21CF202C9B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412287   (420447) от 28.09.2020
-
-VA - Autumn Grooves (The Lounge & Chill out Deluxe Collection) Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Tomorrow Is a New Day (Original Mix) (05:40)
-02. Erick Morillo - Live Your Life (Eddie Thoneick's Chill out Mix) (03:57)
-03. Krystian Shek - Black Chocolate (Original Mix) (03:54)
-04. David Tort - Chase the Sun (Musica Feliz Ibiza Beat Remix) (05:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DBECB3454DBF37932BF5AF4A80C1C15F8236DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251061   (420285) от 30.09.2018
-
-Moolsaasa - Sleepless EP (2016) Kopoc Label [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:35)
- 02. Centerkords (06:47)
- 03. Freeze3.1 Short (06:12)
- 04. D.teck.m2 (03:45)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC3668C3FD3DDBF58203601070D2D2D75FE6A7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

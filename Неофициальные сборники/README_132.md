@@ -1,3 +1,177 @@
+###  Публикация: 1002707   (847011) от 01.04.2016
+
+VA - Наша весна с радио Шансон (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олег Безъязыков - Наша Весна
+02. Олег Ершов - Здравствуй Мама
+03. Александр Заваринский - В Небе Над Туношной
+04. Сергей Сорос - Я В Доме Соберу Друзей(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA3F959EA44E29F8D6269E837904BA66047DED90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002476   (846997) от 01.04.2016
+
+VA - Звездный удар XXXL (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олег Кензов - Номером Один
+02. Artem Display - Жизнь Хороша
+03. Саша Санта - Чужие Ладони
+04. Olisha - Лабиринт(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2860A1BA85A6901FD5A8D65B59AC8BAE9FAC59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002273   (846927) от 01.04.2016
+
+VA - Lets Get Fit Running Music (2016) [MP3|320 кб/с] <House, Progressive, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Mydca-Do You Feel My Love (Dance-Pop Workout Mix) 03:39
+02 California Sun-Touch The Sky (Mydca Radio Remix) 03:28
+03 Melbourne Freaks-Trumpet Bounce (Radio Edit) 03:22
+04 Balearic Kings-Vamos A Bailar (Club Mix) 05:29(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 04:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A896F62AEE3ADC3E454B7C58CEADB37D28AFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002583   (846922) от 01.04.2016
+
+VA - I Love Ballads - Part V (2016) [MP3|256 кб/с] <Pop, Rock, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yves Montan - Girofle, Girofla
+02. Demis Roussos - From Souvenir To Souvenirs
+03. Tanita Tikaram - Cathedral Song
+04. Bro-Sis - Do You(   Читать дальше...   )Жанр: Pop, Rock, ChansonПродолжительность: 01:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A198997415D054625477BACFA7BB191DE1C612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002811   (846850) от 01.04.2016
+
+VA - The House of Jazz Vol.1: The Best Lounge and Jazz Music for your Evening (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St Project - Stars
+02. Robertinho De Paula Jazz Quartet - Stormy
+03. Jazzistic - Round Midnight
+04. Gabrielle Chiararo - Fool Me(   Читать дальше...   )Жанр: JazzПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA654FFF4F442A8EDD6A9D15C81BC1278E1FB611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002489   (846846) от 01.04.2016
+
+VA - Популярные весенние хиты (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инфинити - Я Тебя Знаю (Sergey Pakhomov Remix)
+02. Денис Клявер - Не Узнает Она
+03. Serpo & Dj Boor Feat. Женя Юдина - Небо Это Ты
+04. Ирина Билык - Я Все Равно Его Люблю(   Читать дальше...   )Жанр: PopПродолжительность: 05:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A9324BE64BBCFA6C887E97FE0557E191701227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111616   (846800) от 06.03.2017
 
 VA - Society Clubbing Smashing House (2017) [MP3|247-320 Kbps] <Dance, Club, Funky>
@@ -571,180 +745,6 @@ VA - Spring Vocal Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B29B24598B717D862595D4DCD4CB536E1FC0F75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003225   (845301) от 02.04.2016
-
-VA - LUXEmusic Топ Март (2016) [MP3|320 кб/с] <Dance, House Music, Mash Up, Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Hello (DJ Zhukovsky Remix)
-02. Alekseev - Пьяное солнце (DJ Gilevich Remix)
-03. Andry B & JJ - Fallen (DJ Antonio Remix)
-04. Ariana Grande - Focus (DJ Favorite & DJ Lykov Remix)(   Читать дальше...   )Жанр: Dance, House Music, Mash Up, PopПродолжительность: 03:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968BA5B28D4EFF5B5DF8C2508849EDF6BCEAA2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003248   (845300) от 02.04.2016
-
-VA - Top 100 Club Tracks (March) (2016) [MP3|320 кб/с] <Club House, Vocal House, House, Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 19EIGHTY7 - Get It On (Benny Benassi & MazZz Remix)
-02. 4G - Звонки (Luxesonix Remix)
-03. A-Sen feat. Samoel - Сладкие Ночи (Denis Agamirov & Stylezz Remix)
-04. Alan Walker - Faded (Ian Davecore Remix)(   Читать дальше...   )Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 07:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D339BA53B53688FEBCD18E62E6CF2B6A928A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002991   (845290) от 02.04.2016
-
-VA - Laboratory Chemicals: Bass Techno House (2016) [MP3|320 кб/с] <Minimal, Tech House, Bass Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845290.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. King Unique - Raydrop (7 Hours) Feat. Natalie Arnold
-002. Laing - Morgens Immer Mude
-003. Brodinski Feat. Louisahhh!!! - Let The Beat Control Your Body
-004. The Fog Vs Chus & Ceballos - Been A Long Time (Mark Knight Remix)(   Читать дальше...   )Жанр: Minimal, Tech House, Bass TechnoПродолжительность: 10:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B12BCBAE391DA955BE217E150E4EFAA68AD748F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003156   (845289) от 02.04.2016
-
-VA - Милая девочка. Душевный шансон (2014) [MP3|256-320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Виктор Королев - Алая Роза
-02. Игорь Воронцов - За Любовь Твою
-03. Сергей Гвоздика - Жёнушка родная
-04. Валерий Юг - Володарка(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9710FEDDBE48D9914BB047C8427D94535A3F04C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003083   (845200) от 02.04.2016
-
-VA - Лучшая 100-ка. Пой, гуляй, моя душа (2015) [MP3|256 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алексей Созонов - Мимолетное Чудо
-02. Максим Захаров - Разлуки-расставания
-03. Мафик - Хватит Быть Далеко
-04. Сергей Гвоздика - Кривляться Хватит И Чудить(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85BD73B100DB7DA7BBC22E4B0F38AC726D68557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002513   (845196) от 02.04.2016
-
-VA - Израненный вечер (2016) [MP3|256 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Федосей - Улечу
-02. Олег Белый - Знаю Мама
-03. Константин Жиляков - Вступление
-04. Паша Юдин - Лезгинка(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:24:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3034CC5EF0242B1E081B00BF2EE038A16EB06EDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

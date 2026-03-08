@@ -1,3 +1,29 @@
+###  Публикация: 600215   (998756) от 08.01.2013
+
+Владимир Высоцкий в записях Михаила Шемякина (1987) [APE 2.0 24/192|image + .cue (Vinyl-Rip)]<Авторская песня>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Авторская песняПродолжительность: 7 LP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B503E0A8B712F3C939C06855116C0CD01EEAD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600279   (998755) от 08.01.2013
 
 Inkscape 0.48.4 + Portable by PortableAppZ [Multi/Русский]
@@ -748,32 +774,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB9E27BC52B1608D2396D64BA552519F8DB6CCA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600605   (998674) от 09.01.2013
-
-Sexy Girls Pack Wallpapers (07.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2380D7C3B7A6BB9959A2F4BCB565CCFE9159296
 ```
 
 https://mybot314.ru/tekegram_catalog/

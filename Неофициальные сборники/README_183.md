@@ -1,3 +1,177 @@
+###  Публикация: 1123523   (786406) от 08.04.2017
+
+VA - Музыкальный подарок выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786406.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. G-Nise - Если Меня Попросишь Ты 3:25
+002. Ужезима - Города 3:20
+003. Сати Казанова - Happiness Hey 3:19
+004. София Ротару - Не Забывай Меня 3:25(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B4ED66F0F97372485A0A4EBA8136A64275E2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123511   (786401) от 08.04.2017
+
+VA - Популярные весенние новинки (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786401.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Жанна Прохорихина - Стилистам 3:31
+002. Алиса Кожикина - В Стране Чудес 3:32
+003. Caravella - Твой Последний Уикенд 3:24
+004. Виктор Поплеев - Половина Мира 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FFF823DDC6B81916687EBFD88E13FDACFAA0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123529   (786397) от 08.04.2017
+
+VA - Весенние заводные хиты. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786397.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Миша Майер - Вспоминай 3:29
+002. Alex Kafer & Lera - Я У Твоих Ног 3:36
+003. Proвокация - Два Сердца 3:35
+004. Елка - Впусти Музыку 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F219625DA59877AAADC70F17D8C09B01E2EE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123711   (786377) от 08.04.2017
+
+VA - Best Chillout Vol.28 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786377.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Acustic Live Trio & Eric Daniel - Englishman In New York (feat. Eric Daniel) 5:02
+002. Adler District - Utopia 4:00
+003. AK - Discovery (original mix) 3:31
+004. Alex Lustig - Away (Original mix) 3:08(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A90DE4168B0294AF9C8EB189250EF6522CAFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123661   (786332) от 08.04.2017
+
+Magic Slim - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Buddy Buddy Friends
+02. Cold Women With Warm Hearts
+03. She Is Mine
+04. Poorman But A Good Man(   Читать дальше...   )Жанр: BluesПродолжительность: 05:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6889EFCF7065B1C857DC9C44EE737DF269FF90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123545   (786218) от 09.04.2017
+
+VA - Любимые хиты весны. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786218.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Фаган Сафаров - Сарай-Караван 3:00
+002. Лена Максимова - Слышишь Отошел 3:39
+003. Russell Ray Feat. Sergey Kutsuev - Хамелеоны 3:41
+004. Юлианна Караулова - Больше Никогда 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348F129E9D045255ED2FCCCCCB45F0DE54F9A968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123573   (786215) от 09.04.2017
 
 VA - Отдыхаем с лучшими хитами. Звездная тусовочка. Часть № 5 (2017) [MP3|256 Kbps] <Pop>
@@ -571,180 +745,6 @@ VA - Record Super Chart #481 (2017) [MP3|320 Kbps] <House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EFB8A5846F0E9909D1C4C46A0CF7CC65EE99367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123703   (786119) от 09.04.2017
-
-VA - Deep House Collection Vol.116 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786119.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A - mase - Spring Love, Mad Love (Original Mix) 6:24
-002. Alessio Pagliaroli - Magazine (Original Mix) 7:58
-003. Alex Aguayo - Action (Saturn Keys Remix) 7:23
-004. Alex Greenhouse, Julia Cage - I Don't Know (Original Mix) 5:48(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2F604E590F0608317748E4F84CAE66B33923CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123804   (786073) от 09.04.2017
-
-VA - Eurovision Song Contest – Kyiv 2017  [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lindita – World (Albania) 02:56
-02. Artsvik – Fly With Me (Armenia) 02:59
-03. Isaiah – Don’t Come Easy (Australia) 03:05
-04. Nathan Trent – Running On Air (Austria) 02:48(   Читать дальше...   )Жанр: PopПродолжительность: 02:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39987DDD728F044CD0E422169F6C1F9BB4DDCC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123983   (786044) от 09.04.2017
-
-VA - 100 Новых Красивых Песен (2017) [MP3|320 Kbps] <Pop, Rock, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michelle Branch - Hopeless Romantic (03:31)
-02. Matthew Koma - Kisses Back (03:47)
-03. James Blunt - Bartender (03:13)
-04. LP(Laura Pergolizzi) - No Witness (03:28)(   Читать дальше...   )Жанр: Pop, RnB, Rock, ChansonПродолжительность: 06:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE545E4A73B18D0603F70B007E5CA4E4E8B56F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124219   (785973) от 10.04.2017
-
-VA - Tropical House Vol.2 (2017) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Ribeira – La Luna (Gypsetter Mix)
-02. Massimo Vanoni – Flash (Radio Edit)
-03. Davide Mazzara – Cassablanca Rhythm
-04. Ante Perry & Moonbootica – Hold On(   Читать дальше...   )Жанр: HouseПродолжительность: 06:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3339A1173414867369F284D5370FF34DD3FE614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124203   (785960) от 10.04.2017
-
-VA - Music For Peaceful Sleep (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785960.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  351 Lake Shore Drive - Black Coffee  5:23
-002.  Lazy Hammock - Naked Being  4:42
-003.  Javier Orlando - Deep In My Corazon (Martin Trevis Remix)  5:16
-004.  Velvet Dreamer - Night Raindrops  5:01(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9807ED91E1723E8A1086424D3C8B6FDB589D1E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124197   (785957) от 10.04.2017
-
-VA - Chillout Hits Vol.6 (2017) [MP3|320 Kbps] <Chillout, Chillstep >
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eva Elekktra - Brain Cells Cycle (West Coast Beach Mix)  5:28
-02.  Don Gorda Project - Dedicado  5:21
-03.  Tony Donner - And You Know It's True  5:46
-04.  Eric Norman & Mighty Real - Hot Gambles  6:25(   Читать дальше...   )Жанр: Chillout, ChillstepПродолжительность: 05:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B614E018B3041A6DC6F429C15FC63BD22DB696
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1114596   (831599) от 15.03.2017
-
-r.roo - shilly - shally (2017) [MP3|320 Kbps] <Downtempo, Glitch, IDM>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. babes in the wood (10:50)
- 02. die in your eyes (07:57)
- 03. refusal (08:09)
- 04. to the bottom (07:01)(   Читать дальше...   )Жанр: Downtempo, Glitch, IDMПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18D66A97CD1AF93474F74553EFEF8DCD0492FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114794   (831596) от 15.03.2017
 
 QTranslate 6.3.1 + Portable [Multi/Ru]
@@ -679,6 +650,32 @@ HDCleaner – многофункциональный программный пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B124BE431A458BD8A2150FD8AA0EBA666313F818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380827   (831364) от 04.05.2020
+
+CoolUtils Total PDF Converter 6.1.0.219 RePack (& portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG, BMP, GIF, WMF, EMF, PNG).Преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и множество PDF файлов одновременно. Вам больше не нужен дорогой Adobe Acrobat, наш конвертер сэкономит Ваши деньги. Зарегистрированные пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A932EC2FADE771BE101213CFFFF7A2E92413EB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

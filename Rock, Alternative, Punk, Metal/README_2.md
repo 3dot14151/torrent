@@ -1,3 +1,32 @@
+###  Публикация: 1855316   (1057959) от 22.02.2026
+
+Slik Helvetika - Walk Through Fire (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solarhead 03:41
+02. Beautiful 04:07
+03. Shoot 03:50
+04. Walk Through Fire 04:17(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423502275488069F576E87ABBA66C58FD57CC0B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855350   (1057916) от 22.02.2026
 
 Elvis Presley - EPiC: Elvis Presley In Concert (Original Motion Picture Soundtrack) (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop, Folk, Rock & Roll, OST>
@@ -716,35 +745,6 @@ Gomez - Bring It On (1998) [FLAC|Lossless] <Indie Rock, Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12BCD72206B848A76584C6401BB7AE62C26F2DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854420   (1057291) от 18.02.2026
-
-INXS - Kick (1987) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guns in the Sky [0:02:20.73]
-02. New Sensation [0:03:40.25]
-03. Devil Inside [0:05:15.42]
-04. Need You Tonight [0:03:05.48](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6DB9B9690868B0B5698BEBE4683F551C0913B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

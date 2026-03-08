@@ -1,3 +1,32 @@
+###  Публикация: 515510   (655936) от 26.06.2012
+
+VA - Club Session, Summer Edition (House Music Collection) (2012) [MP3|320 кб/с]<Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Train (Original Mix) - Fisher & Fiebak
+02. Keep On Groovin (Original Mix) - Funkstar
+03. Ethamin (Kid Shakers Remix) - SL Curtiz, Domovnik
+04. Knock On Your Heart (feat. Alec Sun Drae)Жанр: Funky, Club HouseПродолжительность: 01:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B951A0D06FFD61EAC96EFB303D0914313693069F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226302   (655854) от 20.05.2018
 
 VA - Amsterdam Trance Factory (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -734,35 +763,6 @@ Timur Mingazov - MBS Mix #26 (Spring Song / Trance Mar`16) (2016) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5446D5CAFFFE4E8A219CEACEE8A3620EA6D38627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031363   (652171) от 04.07.2016
-
-Timur Mingazov - MBS Mix #27 (Why Spring- - Deep House Apr `16) | (2016) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Born In Silence Intro
- 1.Yotto – Crosswalk
- 2.Kyle Watson – Moments
- 3.Sons Of Mafia – Chimera(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFAE80FDD8DEC930819903DD23CA0019A695C58
 ```
 
 https://mybot314.ru/tekegram_catalog/

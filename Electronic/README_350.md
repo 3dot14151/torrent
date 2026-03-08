@@ -1,3 +1,61 @@
+###  Публикация: 1421509   (319811) от 04.11.2020
+
+Jose Vizcaino - Transitions (2020) Seven Villas [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atras (06:38)
+ 02. Graffiti (06:32)
+ 03. Road Trip (06:58)
+ 04. Transitions (06:21)Жанр: Deep HouseПродолжительность: 00:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3494A6AA7CBB6C39F2DD1D7A5F56AFDB37D41CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421513   (319810) от 04.11.2020
+
+Jose Vizcaino - Disconnection (2019) Seven Villas Voyage [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creaures Of The Deep (03:44)
+ 02. Hachiko (04:59)
+ 03. Juani (04:13)
+ 04. The Escapist (05:13)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED937CC6BF365A26FD089BFEDC196E87192D934C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421442   (319625) от 04.11.2020
 
 Sorrow - Discography 27 Releases (2011-2020) Inspected, Fent Plates, Monotreme [FLAC|Lossless|tracks+.cue, tracks] <UK Garage, Dubstep, Grime, Ambient>
@@ -684,64 +742,6 @@ Power Music Workout - 40 Best Running and Workout Songs 2018 [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:590073B2F020C8F5DEB88E39059C02530CA2E075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582794   (318757) от 11.10.2022
-
-V.A. - Chill Out Days, Vol. 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemongrass & Jane Maximova – Frozen Bo
-02. Pierre Moore – Cafe Del Mar (Ambient Mix)
-03. Marc Hartman – Don't Wanna Loose You
-04. Weathertunes – Morpheus(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0896BC1221DBB2F2C79CAA916D6110655DD832F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075614   (318685) от 23.11.2016
-
-VA - Milk & Sugar Winter Sessions 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giom - Last Dance (Karol Xvii & Mb Valence Loco Remix) 07:35
-02. Lexer - Disrupted Signals (Original Mix) 05:56
-03. Alexander Remus - Sheets (Feat Liza Flume - Original Mix) 06:03
-04. Superlounge - Unfold (Original Mix) 07:13(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDC94B8192FC67AC939FF418896EB42D0E8E208
 ```
 
 https://mybot314.ru/tekegram_catalog/

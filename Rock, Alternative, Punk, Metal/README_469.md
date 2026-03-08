@@ -1,32 +1,3 @@
-###  Публикация: 1231886   (603706) от 20.06.2018
-
-Broken Teeth - Blood On The Radio (2004) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Gonna Blow  (2:59)
- 02. Pull the Plug  (3:45)
- 03. Stick it in  (3:48)
- 04. Chaingang  (5:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECAE7720DE98919F4972878C41D157690C087C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231779   (603697) от 20.06.2018
 
 The White Stripes - Icky Thump (2007) [FLAC|Lossless|tracks + .cue] <Blues Rock, Garage Rock, Indie Rock>
@@ -744,6 +715,35 @@ Ringo & His New All-Starr Band - King Biscuit Flower Hour Presents (2002) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C592CE72ADAB7A20FA633840B6D0A0C570DD032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547124   (603346) от 27.04.2022
+
+Hammerschmitt - Dr. Evil (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Evil
+02. Restart Your Fire
+03. Say My Name
+04. Fly(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC376BC25B593CE7AC2AEAE258B0278B867FFE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1401188   (711191) от 09.08.2020
+
+Dead Eyes Open - In Times Like These (1991) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Future Days [00:03:41]
+02. I Want to Live Tomorrow [00:03:50]
+03. Easy Come, Easy Go [00:05:42]
+04. Normal [00:04:37](   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61BF962FCAD1806DBB2FF155D859DF7A5B4C5D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401189   (711184) от 09.08.2020
+
+Elegant Machinery - Degraded Faces (1991) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Safety in Mind [00:03:59]
+02. Strange Behaviour [00:04:02]
+03. A Decade of Thoughts [00:04:09]
+04. State of the Nation [00:04:13](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03CA17C1008816F47DC76424101E540160C8A751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286708   (711155) от 03.03.2019
 
 Gigi D'Agostino - The Greatest Hits (1996/2007) Compilation, Reissue [MP3|320 Kbps] <Progressive Trance>
@@ -684,62 +742,6 @@ Mees Salome - Ya Amar (2018) EP [MP3|320 Kbps] <Electronic, House, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41EFE0627FCA8A4F31C17E7E30019DB8E4310273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220162   (708239) от 17.04.2018
-
-VA - The Best Of JamX & De Leon (Edits & Album Specials) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Binary Finary - 1998 (JamX & De Leons)
-02. DuMonde - Tomorrow (Edit)
-03. DuMonde - See the Light (Special)
-04. DuMonde vs Lange - Memory Jamx & De Leon Mix (Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F50E7E3AEBA9CDCF54389E878C5DC3C0D00A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025848   (708216) от 13.06.2016
-
-Jerome Froese - Far Side of the Face (2012) [MP3|320 кб/с] <Electronic, Ambient, New-Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight Of Fancy 05:53
-02. Novembernauts 14:19Жанр: Electronic, Ambient, New-AgeПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807D1F0E2BBFD598DFAC5DEE30DF3484E608B57D
 ```
 
 https://mybot314.ru/tekegram_catalog/

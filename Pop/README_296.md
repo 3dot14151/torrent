@@ -1,3 +1,61 @@
+###  Публикация: 1431194   (168866) от 12.12.2020
+
+1er Discopera - Carmen (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fickle Love (4:14)
+02. Call To Mama (4:16)
+03. Close To The Wall Of Sevilla (4:55)
+04. Ouverture (3:01)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD0D0F6EE1C115E0135E886AD15F562A66DBB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596725   (168861) от 11.12.2022
+
+ВИА "Самоцветы" - 4 Albums (1973-1983) LP Collection [MP3|320 Kbps] <Pop, Pop Rock, Beat>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168861.jpg" />
+</div>
+
+
+###  Подробнее
+
+ВИА «Самоцветы» - советский и российский вокально-инструментальный ансамбль (ВИА), музыкальная группа. Создатель и бессменный руководитель - Народный артист России Юрий Маликов. Наиболее известен исполнением таких песен, как «Увезу тебя в тундру», «Мой адрес - Советский Союз», «Вся жизнь впереди», «Всё, что в жизни есть у меня».Список альбомов:
+1973 - Самоцветы
+1975 - У нас молодых
+1980 - Путь к сердцу(   Читать дальше...   )Жанр: Pop, Pop Rock, BeatПродолжительность: 02:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A3B8F31E6DA7F435734C8B8D0C1AACDBF77839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431136   (168854) от 12.12.2020
 
 Queen Samantha - 3 Albums (1978, 1979) 2 Reissue CD, 2020 [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8860FAE91AB1C710458FC15F65B27C8A7B4B5ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345296   (167209) от 14.12.2019
-
-Loboda - SOLD OUT (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167209.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Хиросима
-2. Новый Рим
-3. Синие волны
-4. В зоне риска(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5ACDCEA51CF86B37F26D606F4DA2A18B0F615C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345299   (167156) от 14.12.2019
-
-Loboda - SOLD OUT (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167156.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Хиросима
-2. Новый Рим
-3. Синие волны
-4. В зоне риска(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3762A21A0B914CE7DF0D9CF30464AE218AF97F0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

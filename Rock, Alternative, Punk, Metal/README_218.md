@@ -1,32 +1,3 @@
-###  Публикация: 1496393   (873366) от 17.09.2021
-
-Robin Red - Robin Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t Leave Me (With A Broken Heart)
-02. (I’m A) Bad Habit
-03. Everlyn
-04. Freedom(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B410EB84E61BD89F8A5F34F62DB07EFC08711A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496419   (873364) от 17.09.2021
 
 AveNue - Килиманджаро (2013) [MP3|320 Kbps] <Rock>
@@ -762,6 +733,35 @@ The Dream Syndicate - The Universe Inside (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF799ED1654D84EBC88967208E20FDE557743D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374521   (872990) от 10.04.2020
+
+Dream On Dreamer - What If I Told You It Doesn't Get Better (2020) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel so Empty
+02. Disappear
+03. Explicit
+04. Fade Away(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4661B67156E0AE76D7735053AC61D8F4A1109DE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

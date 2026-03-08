@@ -1,3 +1,32 @@
+###  Публикация: 453277   (93524) от 16.02.2012
+
+Red Garland Trio - Can't See For Lookin' (1996) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't See For Lookin' (9:29)
+02. Soon (6:57)
+03. Blackout (8:56)
+04. Castle Rock (9:45)1996Жанр: JazzПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453261   (93517) от 16.02.2012
 
 Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
@@ -826,41 +855,6 @@ VA - RCA Victor: 80th Anniversary (1997)[9CD Box Set] [FLAC|Lossless]<Jazz>
 01.Original Dixieland 'Jass' Band - Livery Stable Blues (3:09)
 02.Original Dixieland 'Jass' Band - Dixieland 'Jass' Band One Step (2:46)
 03.Charles Mingus - A Colloquial Dream (10:54)1997Жанр: JazzПродолжительность: 09:14:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467408   (82482) от 16.03.2012
-
-Caravan Palace - Panic (2012) [FLAC|Lossless]<Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queens (4:04)
-02. Maniac (4:10)
-03. The dirty side of the street (3:37)
-04. 12 juin 3049 (3:23)
-05. Rock it for me (3:10)
-06. Clash (4:12)
-07. Newbop (2:49)
-08. Glory of Nelly (3:43)
-09. Dramophone (3:23)
-10. Cotton Heads (3:38)(   Читать дальше...   )2012Жанр: SwingПродолжительность: 00:50:53
 
 ## Скачать торент
 ```bash

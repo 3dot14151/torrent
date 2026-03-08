@@ -1,32 +1,3 @@
-###  Публикация: 1568779   (457919) от 10.08.2022
-
-Black Earth - Path of the Immortal (2019) Compilation [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Burn on the Flame
-2.	The Immortal
-3.	Dead Inside
-4.	Bury Me an Angel(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD767921E3F169A7F4B96AF0EA14A438D99FC991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408101   (457862) от 11.09.2020
 
 Нуки (Слот) - Акустика (2020) Live [MP3|320 Kbps] <Alternative>
@@ -752,6 +723,35 @@ Porno Wolves - Shine Like Gold (2015) [MP3|320 Kbps] <Psychedelic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6DA3F51C4368D8864D8549EA7B838084A780B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321750   (456570) от 25.08.2019
+
+Tool - Fear Inoculum (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fear Inoculum
+02. Pneuma
+03. Invincible
+04. Descending(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0EF09F5A269F614FF9EBA5A34E8D6BE0918B45
 ```
 
 https://mybot314.ru/tekegram_catalog/

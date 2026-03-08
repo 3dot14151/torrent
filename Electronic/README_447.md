@@ -1,3 +1,61 @@
+###  Публикация: 1434737   (149471) от 25.12.2020
+
+VA - Nitrous Oxide Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nitrous Oxide; Aneym - Follow You (Extended Mix) (6:48)
+02. Above & Beyond; Andy Moor - Air For Life (Extended Mix) (8:02)
+03. Above & Beyond; Zoë Johnston - You Got To Go (Kyau & Albert Extended Mix) (6:47)
+04. Nitrous Oxide - Magenta (Extended Mix) (7:17)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AA3C68EA286D6E8CEEE000F8F87AE41C1E5950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677929   (149413) от 19.11.2023
+
+Symphony of Unity - Live @ Atmosphere Stage, Tomorrowland, Belgium (2023-07-29) [MP3|320 Kbps] <EDM, Various>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer - Tomorrowland Hymn (Live Orchestal Version)
+02. Kölsch - Grey (Live Orchestal Version)
+03. Joris Voorn - Ringo (Live Orchestal Version)
+04. Swedish House Mafia ft. John Martin - Don't You Worry Child (Live Orchestal Version)(   Читать дальше...   )Жанр: EDM, VariousПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1822EC4997EC58B910FC45694CF2222F7C66EE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677902   (149257) от 19.11.2023
 
 Classix Nouveaux - Battle Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
@@ -686,64 +744,6 @@ VA - White Sensation Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4D4EEE9886F76D44098D5AD8EA71F7B8D9769DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272045   (147367) от 25.12.2018
-
-VA - Space Holidays Vol. 10 (2018) 3CD [MP3|320 Kbps] <Spacesynth, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NM - Interstellar Discovery (4:06)
-02. SynthOne - Electric Legend (5:39)
-03. Rama - Organix (5:13)
-04. Galaxy Hunter - Space Ship Two (One) (Instrumental) (5:35)(   Читать дальше...   )Жанр: Spacesynth, Synth-popПродолжительность: 02:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCE7F4F6A86F82C450CD4E9EB00A23AFFB405A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519790   (147182) от 25.12.2021
-
-VA - Anjunadeep. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lakou Mizik – Ogou (Pran Ka Mwen) (Mixed) (04:32)
-02. Il:lo – Meliadi (Mixed) (02:38)
-03. lycoriscoris – Shizumu (Mixed) (06:48)
-04. Qrion – Your Love (Mixed) (04:36)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F33320B699BBC9E4DA5347BDDAEB9E08F86FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

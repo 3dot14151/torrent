@@ -1,3 +1,88 @@
+###  Публикация: 1449581   (1029777) от 22.02.2021
+
+Planet of Sound & Cider Sky - Together (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Together (Radio Edit) (03:05)
+02. Together (Vocal Mix) (05:44)Жанр: House, Deep HouseПродолжительность: 00:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F238D94CADE84AE4B4076D832C3EFB8C7C444B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449847   (1029579) от 23.02.2021
+
+VA - Soul Diary Chapter.1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rory Gallagher & Arzuk - Soul De Anima (Thomas Gandey Last Communication edit)
+02. Hypersleep - Reason With The Sky (original mix)
+03. Ben Weber - Jetzt (original mix)
+04. Westseven - The Promise (feat Gabriel Lynch - Hypersleep remix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC4F622EA47730A4C4BFC67B1D5DE6E404A9604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261469   (1029323) от 24.02.2021
+
+The Field - Discography 19 Releases (2005-2018) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Tech House, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cupid's Head (Gas Mix) (10:35)
+ 02. No. No... (Tim Hecker Mix) (06:32)
+ 03. Cupid's Head (Vatican Shadow Mix) (05:41)
+ 04. No. No... (John Tejada Mix) (08:03)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno, Minimal, Tech House, Ambient, Experimental •Продолжительность: 13:44:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF7008E3C6D661648EB78EA533FAA1420E3BD410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 245735   (1029247) от 24.02.2021
 
 Orbital - Discography 120 Releases (1989-2019) FFRR, Internal, ACP Recordings [FLAC|Lossless|tracks+.cue, tracks]<Techno, Breakbeat, Leftfield, Electro, House, Ambient>
@@ -654,93 +739,6 @@ VA - A Call Too Close (2021) Brokntoys [FLAC|Lossless|WEB-DL|tracks] <Electro, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED56B2CD5DBD84D7D90A4B2686EE0E80B322F5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457702   (1024436) от 26.03.2021
-
-VA - Schneeweiss 12 (Presented by Oliver Koletzki) - 2021 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malandra Jr. - Illusion
-02. Deckert, Studio Apartment, Like Lovers - In the Unknown
-03. Julian Wassermann - Doppler
-04. Le Croque, Robert Owens - The Need(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D1CB5049C3AAB1CEB6E26FF7DA693FB13FB734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215886   (1024313) от 26.03.2021
-
-Rone - Discography 40 Releases (2008-2021) Infiné [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, IDM, Downtempo, House, Ambient, Leftfield>
-
->>След.
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening, La Nuit Venue (Main Theme) (03:32)
- 02. Noël (聖誕節) (02:27)
- 03. La Nuit Venue feat. Camélia Jordana (03:09)
- 04. Vers Marseille (01:21)(   Читать дальше...   )Жанр: Techno, Minimal, IDM, Downtempo, House, Ambient, Leftfield •Продолжительность: 17:10:47 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6178E9AEAAAAC3D9EDEEC5C10981C6EB9DF5C7C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014786   (1024285) от 26.03.2021
-
-Martin Nonstatic | EskoStatic - Discography 34 Releases (2011-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Downtempo, Psybient, IDM, Ambient>
-
->>След.
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky Cottage (03:05)
- 02. Morning Star (07:38)
- 03. Shadow (07:10)
- 04. Spring Harbour (05:06)(   Читать дальше...   )Тип издания: CD, WebПродолжительность: 26:00:55 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D71CB6B9B89A7F528F2089388EC8837849550F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

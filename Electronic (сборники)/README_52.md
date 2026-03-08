@@ -1,3 +1,32 @@
+###  Публикация: 1121692   (799596) от 03.04.2017
+
+VA - Music For Your Car Vol.2 (2017) [MP3|320 Kbps] <Hand Up, Hardcore, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799596.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Pulsedriver - Keep On Reaching (Hard Dance Mix)  5:03
+002.  Scooter - Friends (Alari Remix)  6:02
+003.  DJ Paffendorf - Dream & Dance (Max R. 2017 Radio Edit)  3:16
+004.  Jens O - On And On (Extended Mix)  4:24(   Читать дальше...   )Жанр: Hand Up, Hardcore, Dance, ClubПродолжительность: 07:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE65E0DE173DBE97AAD9990B9995BF4BE8FFD5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273721   (799411) от 03.01.2019
 
 VA - Infinite Moment (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -719,35 +748,6 @@ VA - Record Super Chart 637 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECB1DF87FE913C98CA068F483A0DE08FA7A7BCD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385358   (797760) от 24.05.2020
-
-VA - Beatport Trance: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797760.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Future State - Heliosphere
-002. Sunmote - Melancholy
-003. Ex-S & Escobar - Spiritual Dimension
-004. Sunny Lax - Moonlight(   Читать дальше...   )Жанр: TranceПродолжительность: 13:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645ED1B912C43C97F2D458C5B8DAF24CB907ADB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

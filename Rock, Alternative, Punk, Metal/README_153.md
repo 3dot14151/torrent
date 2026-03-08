@@ -1,32 +1,3 @@
-###  Публикация: 978454   (963708) от 23.01.2016
-
-Resurrection Kings - Resurrection Kings (2016) Japanese Edition [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963708.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Distant Prayer (4:36)
-2. Livin' Out Loud (5:27)
-3. Wash Away (3:57)
-4. Who Did You Run To (4:46)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C63E78D5A556EFB285D2E97B6263F250C0E78A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978525   (963642) от 23.01.2016
 
 Kroda - Навiй Схрон (2015) [MP3|320 кб/с] <Ambient, Black Metal, Dark Folk, Pagan Metal>
@@ -745,6 +716,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A3370E700950F4E2C8C2EF05F98E03ACF74345C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360010   (961849) от 14.02.2020
+
+Ночные Снайперы - эксперимент (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. экспериментЖанр: RockПродолжительность: 00:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1365C130B4BC3449619A074A666FDD1D44FBDC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1733600   (107264) от 30.06.2024
+
+Tiësto - Tomorrowland Friendship Mix (2024-06-27) [MP3|320 Kbps] <Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Port & Stryv ft. Malachii - Move
+02. RAFFA GUIDO - Famax
+03. Disclosure ft. Eliza Doolittle - You & Me (Rivo Remix)
+04. Tiësto & Prophecy - My City(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE92B80AF1C1D62282D8C9CF6A8EB664F336A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733716   (107257) от 30.06.2024
+
+V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 24 (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Da Praia, Mayla Da Viola - Water (Bossa Nova Version)
+02. Cassandra Beck - Be the One
+03. Banda Do Sul - Over and Over
+04. Stella Starlight Trio, Shelly Sony - Georgy Porgy(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0CEEF9C583D8BC31431EAB108ED0FA44455D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733731   (107239) от 30.06.2024
 
 Billie Piper - Day & Night (2020) Mix, 2024, Virgin Records [FLAC|Lossless|WEB-DL|tracks] <House, Synth-pop>
@@ -674,64 +732,6 @@ Empyre One Feat. Scarlet - I Turn To You 2k20 (2020) [FLAC|Lossless|tracks] <Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7350A6082340831592A23BA2CB8EEF56A90EE90C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736027   (106756) от 11.07.2024
-
-Glis - Phoenix (2013) Deluxe Edition, 2024 , Glis [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Industrial, Futurepop>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse Parties [00:05:19]
-02. Insomniac [00:05:30]
-03. Dead Set 7AM [00:03:46]
-04. Keep the Memory [00:02:56](   Читать дальше...   )Жанр: EBM, Industrial, FuturepopПродолжительность: 01:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4E16B2DCC9D33E27B5870CA7CA7C2DBB2F250B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736173   (106755) от 11.07.2024
-
-VA - Time for Summer Chillhouse: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christoph Kardek - Terra (Alveol Dub Remix) (7:40)
-02. Continuum - Xpress (Ilias Katelanos Remix) (6:31)
-03. Eskadet - Time Goes By (Original Mix) (9:58)
-04. Digby Jones - Liquid (Full Mix) (3:27)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A4F1ED84E70A50AD010C140BD28567EFF9E9F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

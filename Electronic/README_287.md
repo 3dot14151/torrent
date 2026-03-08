@@ -1,3 +1,61 @@
+###  Публикация: 936936   (488321) от 15.09.2015
+
+VA - Sensualist Future Jazz Soft Chillout Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harry Maes - Somewhere
+02. Nicola Donchev - Stay With Me
+03. Michael Crowther - When the Moon Beckons
+04. Vincent Pace - A New Day(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA009378100E80B4C19B4046B89DF7F9DB67F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243860   (488286) от 29.08.2018
+
+VA - A Light, A Glimmer (2018) Polar Seas Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James A McDermid – Sere (05:07)
+02. Benoît Pioulard – As voice are static take (04:37)
+03. Celer – Of a Celestial Body (09:21)
+04. Anthéne – Whatever fire is Burning (04:40)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 02:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDFF559DDF28AF3951B059886CBE37914EDEEC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243757   (488283) от 29.08.2018
 
 Andrea Bellucci (Red Sector A, Subterranean Source, Son-Dha) - Collection 4 Releases (2001-2014) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Techno, Dark Ambient, Experimental>
@@ -693,64 +751,6 @@ Crystal Moon - Temple (1997) Kinetix [FLAC|Lossless|tracks+.cue] <Ambient, Psybi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:035A8017B3F852C14E06AB35B7EAF08A061E931D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244042   (486176) от 30.08.2018
-
-VA - Funky Disco House Grooves, Vol. 12 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eaze - What You Need (Rampus Remix)
-02. James Teej - The Only Constant Is Change (Original Mix)
-03. Mike Mac - Disko Biskit (Original Mix)
-04. Klima Project - Gravity Material (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12618E421A73B32B4A42602444D6197E7064FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244095   (486170) от 30.08.2018
-
-VA - To Get Her in the Mood Feed Her Music Workout Tracks (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joelina Haak - Palms [03:10]
-02. Joel Fuel - Knittle [03:10]
-03. Jetsetta - The Tap [03:10]
-04. Jeff Haymaker - Glites [03:10](   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8FCF2136F780E2A2A86C43AD213321C05F709E
 ```
 
 https://mybot314.ru/tekegram_catalog/

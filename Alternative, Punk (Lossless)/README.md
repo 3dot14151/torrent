@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857703   (1059848) от 07.03.2026
+
+Coldplay - X&Y (2005) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Square One [0:04:47.29]
+02. What If [0:04:57.03]
+03. White Shadows [0:05:28.12]
+04. Fix You [0:04:54.74](   Читать дальше...   )Жанр: Rock, Alternative Rock, Pop RockПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6877564A8E37BC00452360CD09C8105979E7592A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857384   (1059612) от 05.03.2026
 
 R.E.M. - Reckoning (1984) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -716,35 +745,6 @@ Caspian - On Circles (2020) [FLAC|Lossless|tracks + .cue] <Post Rock, Alternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8996F652B83563D1B58A880AE1725292A66EA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438079   (1041501) от 07.01.2021
-
-Catherine Wheel - Adam and Eve (1998) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041501.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. untitled (01:24)
-2. Future Boy (05:15)
-3. Delicious (05:10)
-4. Broken Nose (05:21)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7D39118B5C53C66CF8BB956517B05E5E7ACC33
 ```
 
 https://mybot314.ru/tekegram_catalog/

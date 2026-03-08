@@ -1,32 +1,3 @@
-###  Публикация: 903026   (659154) от 30.05.2015
-
-George Kollias - Invictus (2015) /Limited Edition/ [FLAC|Lossless]<Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoes Of Divinity
-02. Invictus
-03. The Passage
-04. Aeons Of Burning Galaxies(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 01:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F80102B1D8C6C1F6201498FBCBB09D1B80DD4F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538916   (659151) от 24.03.2022
 
 Стольный ГрадЪ - Молот Войны (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Neofolk, Nordic Folk>
@@ -750,6 +721,35 @@ Sister Sparrow & The Dirty Birds - The Weather Below (2015) [MP3|320 кб/с]<Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E48BB51CACEC0ECFCD819DB0716CA424D9F2087C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139853   (658039) от 04.06.2017
+
+Liv Sin (ex-Sister Sin) - Follow Me (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fall
+02. Hypocrite
+03. Let Me Out
+04. Black Souls(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396E997026329E7DE89F0DAB52E24E22456AB87D
 ```
 
 https://mybot314.ru/tekegram_catalog/

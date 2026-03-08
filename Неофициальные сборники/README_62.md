@@ -1,3 +1,177 @@
+###  Публикация: 748548   (957163) от 23.01.2014
+
+Deep Forest - 25 Best Songs (2012) [MP3|~245 кб/с]<New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Forest 1992
+02. Madazulu 1997
+03. Marta's Song 1995
+04. Sweet Lullaby (2004 version) 1992(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8842E904E2FEC459004E1D7F267E291CB9FE2C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 748541   (957048) от 23.01.2014
+
+Enigma - 25 Best Songs (2012) [MP3|~245 кб/с]<New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sadeness (Part 1) 1990
+02. Mea Culpa (Orthodox Version) 1990
+03. Principles Of Lust 1990
+04. Rivers Of Belief 1990(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E00A2F80E31B4553774D3FCA823C4B8E006A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979501   (956385) от 29.01.2016
+
+2011stress - Language of the Universe (NNM) (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic styling>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перекати - Космос
+02. Кружение в невесомости
+03. Переменное ускорение
+04. Странные , но безобидные(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic stylingПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6688CB35440EE35B54D40735C257D5F14A0D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980510   (956290) от 29.01.2016
+
+VA - After Work Lounge, Vol. 5 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Formentera Quartett - Lover (03:45)
+02. Magic Mike - Kb (02:33)
+03. Cafe Ibiza - Your Everything (04:14)
+04. The Cotton Groove - Gava (03:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE106F3B003F397AD113A38234871C77CFE92F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980480   (956288) от 29.01.2016
+
+2011stress - Ген Счастья (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic Styling>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Блюз пивных пуз
+02. Верхом на Кенгуру
+03. Оставляя шумный город
+04. Дождь в Пустыне(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic StylingПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B6C21CF2CE8627E8140996C3730C2D3F2A8392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980515   (956284) от 29.01.2016
+
+VA - Christmas Chillout Gift 2015 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rega Avoena - Earth Angels (Original Mix) [05:11]
+02. 1Touch - Creamsun (Original Mix) [03:17]
+03. LuOrchestra - OdaMare (Original Mix) [04:27]
+04. Doors in the Sand - Red Triangle (Original Mix) [02:58](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2326B4F93241A5387BD237EB3CEA00DA4F3F19C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980277   (956278) от 29.01.2016
 
 The Grid - Collection (1990-2008) [OGG|438-522 кб/с] <Downtempo, Ambient, Techno>
@@ -577,183 +751,6 @@ VA - Record Dance Label: Compilation Vol.7 (Christmas Edition) (2017) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:044AE027BECEA8CBAAE49E9BA597D6D854F787CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088896   (955061) от 01.01.2017
-
-VA - Piano Collection (2017) [MP3|320 Kbps] <Classical, Piano>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Ernesto Cortazar - Beyond  (03:46) 
-02|  Gary Girouard - Beyond Tomorrow  (03:50) 
-03|  Gary Girouard - Redemption  (04:00) 
-04|  Maxence Cyrin - Feuilles d'Acanthe  (02:06) (   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 02:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830952A24B2BE8D8CFD2BE905A91A0D8048333FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088689   (955060) от 01.01.2017
-
-VA - Новинки С  Разных Популярных MP3 сайтов Выпуск #56 (2016) [MP3|256~320 Kbps] <House, Pop, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955060.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ofenbach - Be Mine 2:41
-002. Armin Van Buuren vs. Vini Vici feat. Hilight Tribe - Great Spirit 3:36
-003. Alan Walker - Alone 2:41
-004. KSHMR & Marnik feat. Mitika - Mandala (Official Sunburn 2016 Anthem) 2:57(   Читать дальше...   )Жанр: House, Pop, Club, DanceПродолжительность: 07:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA2AD3111C50954C9FA2F671A9BE355E526C674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088469   (955009) от 01.01.2017
-
-VA - Hits of My Soul Vol. 20 (2016) [MP3|320 кб/с]<Pop, Dance, Retro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Несчастный Случай - С 1-го по 13-е (03:44)
-02. Триплекс - Новогодняя история (03:35)
-03. ABBA - Happy New Year (04:29)
-04. DJ Nejtrino, Nikita Malinin - Новогодняя (02:53)(   Читать дальше...   )Жанр: Dance, Pop, Retro, RockПродолжительность: 02:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC78402FCE8E56375F266BD79C3C2E53AEBC3EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978487   (954745) от 30.01.2016
-
-VA - Extra House: Bonus [05] (2016) [MP3|320 кб/с] <Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cahio, Alternative Kasual, Diana Alencar - Wicked Game (Moe Turk Remix) (05:01)
-02. Deepjack, Kinspin - Make Me Cry (Anton Ishutin Remix) (06:40)
-03. Luxx feat. Alice - The Things You Do (Extended Mix) (05:07)
-04. Pretty Pink feat. ARC - Run (Extended Mix) (06:24)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 00:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3010348C8E0BBC615DD86217B59572D03572F30F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980823   (954664) от 30.01.2016
-
-VA - Душевный Шансон Зимняя Метелица (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954664.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Светлана Астахова – Ночная песня
-2. Константин Куклин — Тебе И Мне
-3. Юрий Сергеев — Цыпа Ненаглядная
-4. Александр Переверзин — Ты Лучшая(   Читать дальше...   )Жанр: ШансонПродолжительность: 07:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCAB516EF21FE7949063FA4C4D9948B426CB2CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857225   (954626) от 07.01.2015
-
-VA - My Favourite Hits of 1971 (8CD) (2015) [MP3|320 кб/с]<Easy Listening, Chanson, Funk, Pop, Pop Rock, Classic Rock, Hard Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954626.jpg" />
-</div>
-
-
-###  Подробнее
-
-138. Lobo - Another Hill To Climb
-139. Rory Gallagher - For The Last Time
-140. The Byrds - B.B. Class Road
-141. James Gang - Walk Away(   Читать дальше...   )Жанр: Easy Listening, Chanson, Funk, Pop, Pop Rock, Classic Rock, Hard RockПродолжительность: 09:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDF2A07BE9A171454FA48A758F9587395874DBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

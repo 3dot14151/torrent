@@ -1,32 +1,3 @@
-###  Публикация: 1480073   (1009181) от 27.06.2021
-
-De Arma - Strayed in Shadows (2021) [MP3|320 Kbps] <Gothic Rock, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pain of the Past [00:08:04]
-02 - City Vultures [00:06:45]
-03 - Illusions of Love [00:06:32]
-04 - Funeral in my Brain [00:06:23](   Читать дальше...   )Жанр: Gothic Rock, Post RockПродолжительность: 00:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6815DD3028AE4A21715A7DF5FB682316977A9D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480075   (1009178) от 27.06.2021
 
 Arabs in Aspic - 3 Albums (2021) [MP3|320 Kbps] <Heavy Progressive Rock>
@@ -745,6 +716,35 @@ Sin73 - Kicked out of Heaven (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D011983A3B7B45AE0442B86164A7F01D7AA2896C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481170   (1008481) от 02.07.2021
+
+Noisy Diners - The Princess Of The Allen Keys (The History Of Manto) (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiresias (12:10)
+02. Manto And Tibrys (11:14)
+03. Duel Pt. 1 (06:05)
+04. Duel Pt. 2 (05:03)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59AD3B436C248012E30DC9B6A00F152F8C426810
 ```
 
 https://mybot314.ru/tekegram_catalog/

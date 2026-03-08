@@ -1,3 +1,61 @@
+###  Публикация: 1647396   (208613) от 18.07.2023
+
+VA - Morning Mood: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Just Dropping By (Original Mix) (3:57)
+02. Leo de la Rosa - No Me Hagas Volar (5:46)
+03. La Estación Del Mar - Aminata (3:16)
+04. Martin Hiska - Meet Me in the Moonlight (4:51)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FCF165C42CC01F2AC63DEC6EAEAD6414906A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647809   (208284) от 22.07.2023
+
+VA - Armada Music - Ibiza 2023 [MP3|320 Kbps] <Progressive House, Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.O.D - So Much In Love (Extended Mix) (4:08)
+02. Eelke Kleijn - Transmission (Joris Voorn Extended Remix) (6:09)
+03. Something Good & Yotto feat. Sansa - Before Dawn (Extended Mix) (6:42)
+04. Tensnake - Fiesta Mágica (Extended Mix) (4:46)(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 04:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D04CA57E14ED1F4ADDD546ACC782382F92E17F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647630   (208275) от 22.07.2023
 
 Marco Rochowski - Voyage Of Discovery (2023) [MP3|320 Kbps] <Spacesynth>
@@ -687,64 +745,6 @@ Sam Goku - The Things We See When We Look Closer (2023) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53830F21F462891DC405151E7BE582B78C518077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654396   (205895) от 20.08.2023
-
-V.A. - Buddha Bar XXV (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205895.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Benou, Ravin - Alula Desert
-02. Gotama - Elsewhere
-03. Hajna, Mina Shankha - Muocalé(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill Out, Trip Hop |Продолжительность: 03:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB48212AF94B6F596CBD3CA846ECF75DFDC505CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616832   (205775) от 05.03.2023
-
-Sex Music Zone - Spicy Fantasy: Slow Sexy Sensual Chill, Erotic Hot (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretend We're Stranger (2:24)
-02. Queen of this Castle (2:05)
-03. Let's Make a Movie (2:05)
-04. Get Frisky in Public (2:18)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C2BBE4548D2C9E4BA9E9B803EE02B12B037C22
 ```
 
 https://mybot314.ru/tekegram_catalog/

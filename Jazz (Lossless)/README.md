@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857851   (1059770) от 07.03.2026
+
+Rick Braun - Rick Braun Plays Chuck Mangione (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Land Of Make Believe (4:58)
+02.  Rick Braun, Grant Geissman - Doin' Everything With You (4:52)
+03.  Rick Braun, Richard Elliot - Feels So Good (6:58)
+04.  Long Hair Soulful (4:22)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E440999843AA76EBC088765D75253E34F45FB3A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856061   (1058558) от 26.02.2026
 
 VA - Jazz Bar Vibes – Smooth Jazz for Relaxing Evenings (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -718,35 +747,6 @@ Threestyle - Christmas Is My Favourite Season (2025) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53E883CAD2AF6AB845A43B2B0883D5C6B30C07F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844696   (1050283) от 27.12.2025
-
-Threestyle, Magdalena Chovancova, Robert Fertl, Damon Dae - We Have That Magic (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Love for Free (3:49)
-02.  Change of Heart (3:54)
-03.  Real Love (4:38)
-04.  All over Again (4:16)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal JazzПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB4F92F8732CE5C8274029FD55199AA16AC5982
 ```
 
 https://mybot314.ru/tekegram_catalog/

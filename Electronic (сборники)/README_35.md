@@ -1,3 +1,32 @@
+###  Публикация: 1494623   (887745) от 08.09.2021
+
+VA - HGM: Organic House Deep Downtempo Mix (2021) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ben Pierre - Shima
+002. Báez - Is It Real
+003. Facundo Borras - Anyone
+004. Raffaele Ciavolino - Do You Love Me(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 09:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8AFA863C948439AA0DDB4706494501BF1EC7B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494588   (887744) от 08.09.2021
 
 VA - Beatport Hard Techno: Sound Pack #342 (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
@@ -715,35 +744,6 @@ VA - Amnezia Super Hits 01 (2016) [MP3|320 кб/с] <EuroDance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4EEEEB4839F67FCBF6BC63058F1424401F1A45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373173   (882181) от 05.04.2020
-
-VA - Spring Day: Chill House Selected (2020) [MP3|320 Kbps] <Chill House, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parvenu - Side Step
-02. Sebastian - Movement
-03. Beamy - Big Sur (Original Mix)
-04. Dreamweaver - Aurora Borealis(   Читать дальше...   )Жанр: Chill House, ChilloutПродолжительность: 03:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F72AB534850703A8ECC7567A55E28D9D9C43F9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

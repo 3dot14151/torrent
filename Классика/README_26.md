@@ -1,3 +1,32 @@
+###  Публикация: 1039894   (593473) от 03.08.2016
+
+Salvatore Accardo, Orchestra da Camera Italiana - Vivaldi: The Four Seasons / Baroque Music (1995) Compilation, Promo, Reissue [APE|Lossless|image + .cue] <Classical, Baroque>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Primavera - Allegro    03:57
+02. La Primavera - Largo e pianissimo sempre    02:44
+03. La Primavera - Allegro - Danza pastorale    04:33
+04. L'estate - Allegro non molto    05:39(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2E8A51AFAEB99DB8CD78400BCE190A57510AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549408   (593318) от 07.05.2022
 
 Vikingur Olafsson - Mozart & Contemporaries: Galuppi, C.P.E. Bach, Cimarosa, Haydn (2021) [FLAC|Lossless|image + .cue] <Classical>
@@ -722,35 +751,6 @@ Kronos Quartet - 25 Years - 10CD BoxSet (1998) [FLAC|Lossless]<Classical, Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E653E931188EA072348BCEB25902A3740FC417CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044212   (566582) от 19.08.2016
-
-VA - Шедевры Классики В Современной Обработке Vol.2 (2016) [MP3|256 Kbps] <Классика, Classic>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bach - Two Part Inventions In F-Major
-02. Royal Philharmonic Orchestra - Also Sprech Z
-03. Rimsky-Korsakov - Fly Of The Bunble Bee
-04. Bach - Badinerie(   Читать дальше...   )Жанр: Классика, ClassicПродолжительность: 05:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0A1BB45929A4C67A45BEEB7D5C470781CBB079
 ```
 
 https://mybot314.ru/tekegram_catalog/

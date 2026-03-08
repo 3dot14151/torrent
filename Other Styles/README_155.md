@@ -1,3 +1,34 @@
+###  Публикация: 290832   (185846) от 25.11.2020
+
+Wes - Welenga (1996) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wes Madiko (Вес Мадико) родился 15 января 1964 года в небольшой камерунской деревне в семье бухгалтера.
+Еще в детстве дед начал обучать Веса игре на традиционном музыкальном инструменте — санса, основам древней медицины, истории и философии банту.
+С десятилетнего возраста мальчик стал выступать в составе Kwa Kwassi Orchestra на различных торжественных мероприятиях (   Читать дальше...   )01. Awa Awa (4:29)
+02. Alane (3:43)
+03. Kekana (3:19)
+04. Wezale (4:40)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C622899CCA277622A2F65C32B78A4849E9980E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591191   (185460) от 20.11.2022
 
 Basteiro-Bertoli - Boh (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Songwriter, Rock>
@@ -715,35 +746,6 @@ VA - Body Language: Hot Sexual Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Instr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA2C35EFA208592CD20A02860258E96B16C8DD9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826920   (173516) от 19.10.2025
-
-VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indiano - The Moon of Flowers (7:43)
-02. Noam Garcia - The Dreams (9:40)
-03. Tibetania - Zawadi (8:58)
-04. Juantxo Munoz - Black Empire (7:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF86EB36FFE7576EA3E14427F4ED732EF8E0748
 ```
 
 https://mybot314.ru/tekegram_catalog/

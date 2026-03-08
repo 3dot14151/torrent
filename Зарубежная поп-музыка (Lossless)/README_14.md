@@ -1,3 +1,32 @@
+###  Публикация: 1367077   (918969) от 14.03.2020
+
+VA - 90s Guitar Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918969.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All Saints - Under the Bridge
+2. Jannik - The Power of Love
+3. a-ha - Move to Memphis
+4. Tori Amos - God(   Читать дальше...   )Жанр: PopПродолжительность: 02:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C841E7E5505FFB12D1BA4E6B35455E50214814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367101   (918763) от 14.03.2020
 
 VA - 80's Gold (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Disco>
@@ -711,35 +740,6 @@ Tomita Lab - Shipahead (2010) [FLAC|Lossless|tracks + .cue] <JPop, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4819E755A27C0F182C0211C74FD7F856DB25E1DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099093   (906782) от 31.01.2017
-
-Marian Hill - Act One (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic, Minimalist>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down
-02. Talk to Me
-03. Wild
-04. Bout You(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Minimalist, R&B, Synthpop, Nu JazzПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E243C848BADF6F195A22DCEB347D24D54ABD2926
 ```
 
 https://mybot314.ru/tekegram_catalog/

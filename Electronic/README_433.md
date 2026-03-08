@@ -1,3 +1,61 @@
+###  Публикация: 1669243   (172827) от 16.10.2023
+
+VA - Mr Sam Opus Quinto (2022) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive House, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peer Kusiv ft. Johanson - Bring You Back [6:13]
+02. Romulus - The Hut [6:12]
+03. Rosewall & Shyam - Destiny (Reiym Remix) [4:08]
+04. Luttrell - Twin Souls [6:28](   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 02:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDD03486EBA4CBBA766A38A2F1BAB651916375B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669401   (172808) от 16.10.2023
+
+The Orb & David Gilmour - Metallic Spheres In Colour (2023) [MP3|320 Kbps] <Ambient, Dub, Electronic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Round Side: Seamless Solar Spheres of Affection Mix: Movement 1 [11:27]
+02. Round Side: Seamless Solar Spheres of Affection Mix: Movement 2 [08:41]
+03. Flat Side: Seamlessly Martian Spheres of Reflection Mix: Movement 3 [10:47]
+04. Flat Side: Seamlessly Martian Spheres of Reflection Mix: Movement 4 [09:08]Жанр: Ambient, Dub, ElectronicПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C09F993521BFA81D56A8A29CCA567F7669AFA0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669682   (172647) от 17.10.2023
 
 VA - Black Hole House Music 10-23 (2023) [MP3|320 Kbps] <House, Progressive House>
@@ -682,62 +740,6 @@ VA - Levitated - Trance Essentials Vol. 3 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A147C56586949AD5C7EA817E3981DF6C9443E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344429   (170438) от 10.12.2019
-
-VA - A Strangely Isolated Place 2019 (2019) ASIP [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Techno, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olga Wojciechowska – Memory Of The Pioneers (04:52)
-02. 36 – D.R.E.A.M Link (Reinterpreted)Жанр: Ambient, Techno, DowntempoПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0A650B40BF14FBC31011ADAD8188DDBEF3A0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671827   (170434) от 27.10.2023
-
-VA - Silent Shore Trance - Essential Classics Vol. 3 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air Night - Remember (Original Mix) [7:44]
-02. Jo Micali - Resynthesize (Original Mix) [7:21]
-03. ReOrder - Driven By Moment (Original Mix) [7:25]
-04. Martin Everson & B.Prime - Rubby (Original Mix) [7:44](   Читать дальше...   )Жанр: TranceПродолжительность: 01:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E265788EEAFBB08D7DAAB69FEF40D2A2B22739
 ```
 
 https://mybot314.ru/tekegram_catalog/

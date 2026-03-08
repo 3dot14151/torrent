@@ -1,3 +1,61 @@
+###  Публикация: 1802918   (14008) от 20.06.2025
+
+V.A. - ZYX Italo Disco Spacesynth Collection 11 (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Spacesynth, Synthwave>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - Astroventure
+02. Spacehawk - Star Chaser
+03. Italo Emotion - Back To Life (Primero Remix) 
+04. Kebu - Fourth Rendez-Vous(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthwaveПродолжительность: 02:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83300A99AFFD31090523C58DC1596CD3D26E4DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802856   (13980) от 20.06.2025
+
+Людмила Сенчина - Камушки и другие песни (1981) [MP3|320 Kbps] <Советская эстрада>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Дети спят [00:02:46]
+02 - Черёмуха [00:03:58]
+03 - Шутка [00:02:34]
+04 - Полынь [00:02:29](   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A77EA4822936CB1E9560E4AE72A5482769798F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803104   (13931) от 21.06.2025
 
 Thomas Anders - …Sings Modern Talking - Ready for Romance (Thomas' Version) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -685,64 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAD23521ABE84993E41A04BE487305988BE3D063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807844   (10787) от 21.07.2025
-
-ВИА "Поющие гитары" - Санкт-Петербург (Авторский сборник Валерия Кочегуро) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Санкт-Петербург [00:03:48]
-02. Асталависта [00:03:23]
-03. Ночь [00:03:55]
-04. Мужская дружба [00:03:34](   Читать дальше...   )Жанр: PopПродолжительность: 00:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B5C0BFE7279C2CED1A5AA4F75E58DD3ECB445D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807839   (10773) от 21.07.2025
-
-Соня Белькевич, Крестов - Линия сердца (2025) [MP3|320 Kbps] <Pop, Chanson>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Линия сердца [00:03:32]
-02 - Скажи, почему [00:04:51]
-03 - Голуби [00:03:16]
-04 - Zолотом [00:03:01](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BCCB388584D02D826C256286CFBA3FB0CA3C3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

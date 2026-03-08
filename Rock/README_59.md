@@ -1,61 +1,3 @@
-###  Публикация: 1413828   (407266) от 05.10.2020
-
-Trilogy - Here It Is (1980) Reissue CD, 2009, MALS [MP3|320 Kbps] <Electronic, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venice  (4:34)
-02. Breakthrough  (6:07)
-03. Changing Scene  (9:22)
-04. Andy  (6:12)(   Читать дальше...   )Жанр: Electronic, Progressive RockПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8723FF8AD72AEBCD7D833DBEA9CB5D1FEC3ED161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563337   (404447) от 21.10.2012
-
-VA - 100 Hits. Driving Rock 5 СD (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:17:21
-
-1. Don McLean - American Pie (Part 1)
-2. Al Stewart - Year Of The Cat(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169287   (404060) от 26.09.2017
 
 38 Special - 38 Special (1977) Remastered, 2013, Vivid Sound [MP3|320 Kbps] <Classic Rock, Southern Rock>
@@ -85,41 +27,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563762   (403893) от 22.10.2012
-
-Vanilla Ninja - "Traces Of Sadness" (Extended Fan Bootleg 2012) [MP3|192 кб/с]<Pop, Pop rock, Glam rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part A: Original "Traces Of Sadness" (2004 album) ---
-[01] Tough Enough
-[02] Traces Of Sadness
-[03] Stay
-[04] When The Indians Cry
-[05] Don't Go Too Fast
-[06] Heartless
-[07] Liar
-[08] Don't You Realize
-[09] Wherever(   Читать дальше...   )Жанр: Pop, Pop rock, Glam rockПродолжительность: 01:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822A6FF94C6A9E0201461CE23AF926D648DAB95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563958   (403776) от 22.10.2012
 
 Moody Blues - Collected [3 CD] (2007) [MP3|320 кб/с]<Progressive Rock | Psychedelic Rock | Rhythm & Blues>
@@ -139,41 +46,6 @@ Moody Blues - Collected [3 CD] (2007) [MP3|320 кб/с]<Progressive Rock | Psych
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A5ADBDB15DE86FE0368ABCE5897D3B5B5ACC913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564269   (403033) от 23.10.2012
-
-South Of Georgia - S.O.G. (2005) [MP3|320 кб/с]<Alternative Country Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403033.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:51) 01. Ten Minutes From Tampa
-(5:03) 02. Swamp Child
-(5:02) 03. Ain't Got Nothing
-(4:17) 04. Thick And Thin
-(3:51) 05. Down Home Country Boy
-(3:59) 06. Southern Angel
-(3:45) 07. Walkin Shoes
-(4:26) 08. Graceland
-(3:06) 09. I Need A Woman
-(2:57) 10. Sell That Bitches CarЖанр: Alternative Country Rock, Southern RockПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F428A1214B0A1B3B7840D71CC2AC489210438A61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -782,6 +654,124 @@ VA - Wish You Were Here (2017) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E47A514F492EDF1A91588BAAA37B4F81B5687D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571886   (388187) от 07.11.2012
+
+Larry And His Flask  - Hobo's Lament(EP)(2012) [MP3|320 kbps] <Folk Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.closed doors (02:34)
+02.big ride (03:38)
+03.my name is cancer (02:14)
+04.hobo's lament (04:20)
+05.swing (03:01)
+06.so long(03:30)Жанр: Folk Rock, AlternativeПродолжительность: 00:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C4D0CA87C929694AEC8247E01C65C27806CC7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253114   (387904) от 07.10.2018
+
+Pulatova - Рой (2018) [MP3|320 Kbps] <Post-Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вокалистка Flёur Ольга Пулатова представила первый альбом своего сольного проекта Pulatova: "Рой".1. Падение
+2. Сердце покоя
+3. Норадреналин
+4. Ящер(   Читать дальше...   )Жанр: Post-Rock, Indie RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EDB0449AFAA802D02B0560D0FB03C1D488FC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414138   (387872) от 07.10.2020
+
+Molly Hatchet - Battleground (2019) 2xCD Live [MP3|320 Kbps] <Hard Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387872.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. Bounty Hunter (Live) (03:11)
+ 02. Whiskey Man (Live) (03:46)
+ 03. Why Woun't You Take Me Home (Live) (03:20)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 01:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC17A6EF1E99F41965DC34E3595D74A8E0EFEB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574555   (385708) от 05.09.2022
+
+The Butterfly Effect - IV (2022) [MP3|320 Kbps] <Alt.Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IV (2:53)
+02. Dark Light (4:55)
+03. Wave of Tides (3:24)
+04. Nil By Mouth (3:12)(   Читать дальше...   )Жанр: Alt.Rock, Progressive RockПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C73B8748050C886A0061C4F69C77E9E1DEC824
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1095002   (927347) от 19.01.2017
+
+Adobe Acrobat Pro DC 2015.023.20056 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acrobat DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8519CE6D41AB1DF32FD5F1DCDDC939A07198477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094969   (927342) от 19.01.2017
 
 Джек Ричер 2: Никогда не возвращайся / Jack Reacher: Never Go Back (2016) BDRip [H.264/720p]
@@ -651,35 +677,6 @@ mAh Battery Pro позволяет отслеживать текущее сос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0ACD2AFAC69D592EED91162386D333524BC2799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489303   (927149) от 15.08.2021
-
-Vintage Culture - Live @ Ibirapuera Park Sao Paulo, Brazil (2021-08-03) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927149.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Virgil Abloh ft. Serpentwith - Delicate Limbs (Vintage Culture e Bruno Be Remix)
-2.  Monolink - The Prey (Gui Boratto & Vintage Culture Remix)
-3.  Eelke Kleijn ft. Diana Miro - You w/Tiësto & Vintage Culture - Coffee (Give Me Something) w/Stylo & Goom Gum - Teleport w/Goom Gum - Flora
-4.  Shouse - Love Tonight (Vintage Culture & Kiko Franco Remix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBC9C3002D1792E6E4049702B9EB7593DA04CDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

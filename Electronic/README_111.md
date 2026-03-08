@@ -1,3 +1,61 @@
+###  Публикация: 1006843   (825578) от 13.04.2016
+
+VA - Trance Spring Essentials (2016) [MP3|320 кб/с] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage & Morelli & Arielle Maren - Sweet Surrender (Original Mix) 08:06
+02. Toby Hedges - Images (Johan Vilborg Remix) 07:34
+03. Tom Fall - Dive (Tom Fall Remode) 07:36
+04. Schodt - Wild at Heart Feat. Aida Fenhel (Schodt M1dn1t3 Mix) 05:40(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153654D602C4FDA95D043FB3995B11A9C438C3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006853   (825488) от 13.04.2016
+
+VA - Driving EDM (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Driving EDM 2016 DJ Mix (Short Mix) 28:45
+02. DJ Mix - Driving EDM 2016 DJ Mix (Long Mix) 82:21
+03. Tom Valley - And One (Radio Version) 03:19
+04. Age of Dance - What's Up (Radio Version) 03:23(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9620AB7B33A839F407B579F3323FD9E7F736B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006878   (825477) от 13.04.2016
 
 The New Deal - Mercury Switch (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
@@ -692,64 +750,6 @@ Gabriel and Dresden - Toolroom Knights Mix2 (2007 original) [MP3|256 kbps]<House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC319C0877BFF87E5635294468B80416E29F4610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116425   (823101) от 20.03.2017
-
-VA - Total Trance Selections Vol.03 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mike Demirele - The Chosen One (James Kitcher Remix)  8:42
-02.  Frainbreeze - Black Eagle (Original Mix)  5:25
-03.  Olegkooo - 7Sky (Original Mix)  7:40
-04.  InnerSync - Synergy (Original Mix)  6:37(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6C66B4EE5103A2492D19681D271A63A4C55FDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007327   (823020) от 14.04.2016
-
-Klartraum - E (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skyfall (Club Mix) (06:53)
-02. Dark Space Night (07:40)
-03. Sweetness (07:47)
-04. Bell Birds Dub (08:08)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 02:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA53FED156D79A94E675E45666A8B742C33DE04
 ```
 
 https://mybot314.ru/tekegram_catalog/

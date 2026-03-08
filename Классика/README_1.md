@@ -1,3 +1,32 @@
+###  Публикация: 1471765   (1014805) от 22.05.2021
+
+Relaxing Classical Piano Music - The Unforgettable Piano Mix (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Lounge>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chopin 24 Preludes, Op. 28 No. 7 in A Major (3:56)
+02. The Piano Melody (3:47)
+03. Chopin 24 Preludes, Op. 28 No. 4 in E Minor (3:45)
+04. Liszt Consolation No. 1 in E Major Andante con moto (3:26)(   Читать дальше...   )Жанр: Classical, LoungeПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B577BB2ADF75AF431274E65D0067618A3047C140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474082   (1013206) от 01.06.2021
 
 Le Concert des Nations - L'Orchestre du Roi Soleil Symphonies, Ouvertures & Airs a jouer (1999) [MP3|320 Kbps] <Classical, Baroque>
@@ -778,41 +807,6 @@ Et resurrexit – Primo tempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0662A6CAB5479F8D77833C0B09D326C9AF5D1E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605487   (995525) от 20.01.2013
-
-Antonio Lucio Vivaldi - Harmonic Inspirations: Concertos for Strings & Harpsichord for Strings & Orchestra (1994)/1999, Weton-Wesgram [WavPack (iso.wv)|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto in A minor, Op.3/8
-01. - Allegro (4:00)
-02. - Larghetto (4:20)
-03. - Allegro (3:49)
-Concerto in B minor, Op. 3/10
-04. - Allegro (4:15)
-05. - Largo - Larghetto (3:20)
-06. - Allegro (3:33)
-Concerto for Strings and Harpsichord, in G Major
-07. - Presto (2:35)(   Читать дальше...   )Жанр: ChamberПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F6929AC331E6B0B0061F2AFA00D2DFACBD74C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

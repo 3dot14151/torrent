@@ -1,32 +1,3 @@
-###  Публикация: 1319167   (486342) от 10.08.2019
-
-Slipknot - We Are Not Your Kind (2019) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insert Coin (01:40)
-02. Unsainted (04:21)
-03. Birth of the Cruel (04:36)
-04. Death Because of Death (01:20)(   Читать дальше...   )Жанр: Heavy Metal, Nu MetalПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0F780070E5BBC4EDE7B7524FA1E77F294DE904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 820551   (486259) от 15.09.2014
 
 Motorjesus - 4 Альбома + 1 EP (2004-2014) [MP3|320 кб/с]<Hard Rock, Heavy Metal, Stoner Rock>
@@ -740,6 +711,35 @@ The Agonist - Orphans (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C7B1D8C242BF0B309F70DDA9FD3FD9335510CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405272   (485725) от 29.08.2020
+
+Ramos - My Many Sides (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Today Is The Day (feat. Joe Retta) (04:59)
+02. Unbroken (feat. Terry Ilous) (05:03)
+03. Blameless Blue (feat. Danny Vaughn) (05:17)
+04. Immortal (feat. Tony Harnell) (05:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798441C68B64047A1CF4306476D3B6D10E90EE3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

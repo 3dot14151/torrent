@@ -1,3 +1,61 @@
+###  Публикация: 1471507   (1014961) от 21.05.2021
+
+Денис Клявер - Тебя удача найдёт (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014961.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тебя удача найдёт
+2. Брачный кортеж
+3. Ответ
+4. Кто, если не я(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008FED3D73158897F934A8F4557187F2443A521B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471461   (1014803) от 22.05.2021
+
+VA - Hit Music (лето 2021) от Мяу (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014803.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker feat. Conor Maynard - Believers
+002. Jack Savoretti feat. Nile Rodgers - Who's Hurting Who
+003. DaBro - На Часах Ноль-Ноль
+004. BeatItPunk & SICKOTOY feat. Yoelle - Hollywood(   Читать дальше...   )Жанр: PopПродолжительность: 18:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAE61F49A151435B88BF3F7A12C6971C63A414C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471753   (1014800) от 22.05.2021
 
 VA - Мужские песни (2003) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -683,64 +741,6 @@ VA - Fresh Pop Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:859F002CD72CE6819046123A33AD120E4F4E6DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474287   (1013216) от 01.06.2021
-
-VA - ZYX Italo Disco History 1982 (2021) 2CD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klein & MBO - Dirty Talk (European Connection Mix) (8:26)
-02. Sylvi Foster - Hookey (6:29)
-03. Sun La Shan - Catch (Vocal Version) (6:54)
-04. Koto - Chinese Revenge (Maxi Version) (6:19)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 02:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15BA0C44A650EA81894D07B379FD7DA176037EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474093   (1013205) от 01.06.2021
-
-Boys Don't Cry - All the Very Best (серия "Другие восьмидесятые") (2020) Compilation [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cities On Fire
-02. Lipstick
-03. I Wanna Be A Cowboy
-04. Josephine(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A05AD15B61639462A21A23922552A8E62264EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

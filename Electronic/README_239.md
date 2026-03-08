@@ -1,3 +1,61 @@
+###  Публикация: 1297717   (603094) от 24.04.2019
+
+The Future Sound Of London - Yage 2019 (2019) FSOLdigital [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, IDM, Leftfield, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yage 2019 (07:22)
+ 02. Floating Into Focus And Then Moving Away (03:15)
+ 03. Purged (04:54)
+ 04. We Flew Together (02:43)(   Читать дальше...   )Жанр: Abstract, Ambient, IDM, Leftfield, ExperimentalПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF01B51E7670BFA512B6187BB6ED32082BC92AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148927   (602971) от 08.07.2017
+
+VA - Ori Uplift - Uplifting Only 230 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etasonic - Farewell Forever (Intro Edit)
+02. Robert Nickson feat. Cat Martin - Every Sun (Factor B's Extended Perfect Sunrise Remix)
+03. First Sight - Contact
+04. Ikerya Project & O.B.M. Notion Feat Danny Claire - Goodbye(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935C9D5CA9F3B8B4AC26147AEE212748BB362543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232087   (602782) от 22.06.2018
 
 VA - Euphoric Trance (2018) [MP3|320 Kbps] <Trance>
@@ -685,64 +743,6 @@ VA - Orchestral Trance Vol.3 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24A81440A9B69164DAE84EA39998A77EBF01DE4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232242   (602286) от 23.06.2018
-
-Sabbath In The Suburbs - The Lounge Tribute  To Ozzy Osbourne & Black Sabbath (2002) [MP3|320 Kbps] <Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iron Man /3:56/
-02. Paranoid /3:27/
-03. Mr. Crowley /2:51/
-04. Crazy Train /5:10/(   Читать дальше...   )Жанр: LoungeПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACECF5936BFB030859D61525CE5285CB7BBF7B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298115   (602209) от 26.04.2019
-
-VA - The Sounds Of Minimal Techno (2019) [MP3|320 Kbps] <House, Electronic, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Kid - I Am Nobody
-02. Ebony Willis - Nobody
-03. Sammy La Marca - Jungle
-04. Jus Deelax - Jagermeister(   Читать дальше...   )Жанр: House, Minimal, Techno, ProgressiveПродолжительность: 04:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0269B5F4B0BE4E0EE646668DFDDC26959D833AF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

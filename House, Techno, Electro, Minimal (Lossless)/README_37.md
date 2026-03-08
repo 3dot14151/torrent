@@ -1,3 +1,90 @@
+###  Публикация: 1151410   (572742) от 19.07.2017
+
+New Order - Music Complete: Remix (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo, New Wave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tutti Frutti (Takkyu Ishino Remix) (7:55)
+ 02. The Game (Mark Reeder Spielt Mit Version) (6:48)
+ 03. Academic (Mark Reeder's Akademix) (7:23)
+ 04. People on the High Line (Purple Disco Machine Remix) (7:05)(   Читать дальше...   )Жанр: House, Downtempo, New WaveПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E13ED1BDC371A5AF7F41D4B50B9BF817F3B1A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555111   (572218) от 02.06.2022
+
+VA - Digital Emotions (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redspace - Zest (Original Mix) 6:42
+02. Fabri Lopez - Abstract Idea (Original Mix) 7:57
+03. MONNER - Katarsis (Original Mix) 7:20
+04. Proluction - Neon Dance (Original Mix) 6:02(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47347F591CA3A9FC70EAF1C52F5D1B658C67EC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043764   (571176) от 17.08.2016
+
+Rafael Cerato & The White Shadow - Distance (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories (7:36)
+02. Distance (7:19)
+03. Distance (Marc Marzenit's Cinematic Edition) (9:24)
+04. ID (7:16)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC2AD77F3BCA0F9313464DDC289C597DF4DC164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922532   (569925) от 28.07.2015
 
 Alter Ego - Alter Ego (1995) [FLAC|tracks +.cue]<Techno, Acid Ambient>
@@ -655,93 +742,6 @@ VA - Ibiza (2016) [FLAC|Lossless|tracks] <House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C85F701EA78DEAE3C4506310A9A9ED84DFB9D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235750   (557363) от 13.07.2018
-
-Paul St. Hilaire + Rhauder - Derdeoc (2017) Sushitech Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Control (09:59)
- 02. Redeem (06:45)
- 03. Redeem (Version) (06:52)
- 04. Meanwhile (08:49)(   Читать дальше...   )Жанр: Dub Techno, Dub, AmbientПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6838BE4DBFCACF7DA3C963D1959AA19A388937CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045866   (556782) от 25.08.2016
-
-Dinka - Tales Of The Sun (2011) 2CD [FLAC|Lossless|tracks + .cue] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motion Picture (04:34)
-02. Superstitious (04:54)
-03. On The Beach (03:00)
-04. Campfire (04:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE862534D1B30F7DE3DB863B538CF05E4B207DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235862   (556608) от 14.07.2018
-
-VA - Schneeweiss 8 (Presented by Oliver Koletzki) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super Flu - Mygut (Solomun remix) [08:22]
-02. Oliver Koletzki - A Tribe Called Kotori (Koletzki's Woodfloor version) [06:55]
-03. Bloody Shelby Feat. Lazarusman - Ready [07:53]
-04. Rampa - Fluke [06:39](   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 03:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9D51D32E736DB2E6A4BD797C987B84756C1C4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

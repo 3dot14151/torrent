@@ -1,3 +1,29 @@
+###  Публикация: 1766577   (33684) от 19.12.2024
+
+Katy Perry feat. Snoop Dogg - California Gurls (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33684.jpg" />
+</div>
+
+
+###  Подробнее
+
+«California Gurls» — песня в стиле электропоп, написанная и исполненная американской певицей и автором Кэти Перри. Она стала главным синглом с 3-го её альбома Teenage Dream. Соисполнителем песни стал рэпер Snoop Dogg. Съемки клипа начались 14 мая 2010 года. Премьера состоялась 14 июня 2010 года.Жанр: Диско-поп, фанк-попПродолжительность: 00:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA6E22E50D750086250577FE842F15586754707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766579   (33670) от 19.12.2024
 
 Shakira - Empire (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -669,35 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD6930E68398B3AA17529D297AF2F849CF371B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776408   (28975) от 01.02.2025
-
-Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.265/2160p] [50 fps, Upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записанный в марте 2004 года в MGM Grand в Лас-Вегасе во время мирового турне поддержки альбома Harem Сары Брайтман, этот концерт демонстрирует склонность музыкальной соблазнительницы к слиянию музыкальных жанров — музыкального театра, классики, рока и мировой музыки — и звучит как сборник лучших хитов, исполненных вживую. DVD представляет собой двойной диск, содержащий (   Читать дальше...   )01. Kama Sutra
-02. Harem (Cancao do Mar)
-03. Beautiful
-04. It's a Beautiful Day(   Читать дальше...   )Производство: США / Angel RecordsЖанр: Classical CrossoverРежиссер: Bruce Gowers, David MalletУчастники: Sarah Brightman, Violet Brightman, Shweta ShettyПродолжительность: 01:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7398C72F9DCF0309AD06910F7C69723EE8CED020
 ```
 
 https://mybot314.ru/tekegram_catalog/

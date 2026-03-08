@@ -1,3 +1,177 @@
+###  Публикация: 1158507   (491261) от 16.08.2017
+
+VA - Зайцев.Нет: Лучшие Новинки Августа (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aly & Fila with Philippe El Sisi & Omar Sherif feat. Karim Youssef - The Chronicles (Extended Mix)  8:34
+02.  P!nk - What About Us  4:32
+03.  Dan Balan feat. Вера Брежнева - Наше лето  3:47
+04.  Альбина - Не со мной  3:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36664B18AF38FAD808AC41B1F78A5BC88FBE7C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404596   (491184) от 26.08.2020
+
+VA - RnB Euronation (2020) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491184.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gashi - Forbes List
+002. Jade - High
+003. Derek Pope - Satellite
+004. Midtown Social - Candle Lit(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F8B4054CFAD7F957BF291DF99F8FE60A609520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318935   (490890) от 08.08.2019
+
+VA - Top50: Tracks Deep House Ver.8 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imany - Slow Down (Yammix Remix Short Edit) 5:28
+02. Armin Van Buuren feat. Sharon Den Adel - In And Out Of Love (Nikko Culture Remix) 5:19
+03. Sean Sago & Linde Sagen - Cloud (Original Mix) 6:00
+04. DJ Nil - I'm A Rainbow (Kapral Remix) 4:35(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive House, Vocal HouseПродолжительность: 04:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F0EC7500F8F9B2B7D5B66E92A1007C2BD540427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318944   (490883) от 08.08.2019
+
+VA - Top50: Tracks Deep House Ver.11 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morandi - Angels (Dmitriy Rs & DJ Cheeful Remix) 5:16
+02. Dani Corbalan - Today (Original Mix) 3:51
+03. Tebra - Suton (Original Mix) 6:35
+04. A-Mase feat. Polina Makarova - Morning (Extended Mix) 5:48(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive HouseПродолжительность: 04:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA77BAE3D1164609799356ADDD7B20B935C5437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318941   (490768) от 08.08.2019
+
+VA - Top50: Tracks Deep House Ver.10 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Platon feat. Joolay - Melt (Dmitry Glushkov Remix) 5:37
+02. TRU Concept feat. Pershard Owens - Save Me (Pirogov Remix) 5:23
+03. Corona - Rythm Of The Night (Kamikarzy & L14M Remix) 6:39
+04. Инфинити - Где ты (Olmega & Skill Remix Radio Edit) 4:08(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive HouseПродолжительность: 04:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F9D288C3447D3E49E396D9834C8ED7C2D815D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565422   (490351) от 25.07.2022
+
+Las Ketchup - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desafina Como Quieras
+02. Kusha Las Payas
+03. Tengo Un Novio Tantriko
+04. Un Blodymary(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC24F1B3989925F6621075CC3117D2673E193EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565470   (490337) от 25.07.2022
 
 Geri Halliwell - Compilation (2022) [MP3|320 Kbps] <Pop>
@@ -583,198 +757,6 @@ VA - Золотые Цыганские Романсы и Песни (2012) [MP3|
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243423   (489458) от 28.08.2018
-
-VA - Club Dance Ambience Vol.161 (2018) [MP3|320 Kbps] <Dance, Club, Club House, House, Electro House, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489458.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aevion - Telling Me  (Extended Mix)
-002. Akcent - Jo Kero (Dj Rush Extazy Club Mix)
-003. Alex Ross & FUTURECLUB - Deep In Your Heart (Original Mix)
-004. Anthony Abou Jaoude feat. Maritta Al Hellani - I Will Survive (Remix)(   Читать дальше...   )Жанр: Dance, Club, Club House, House, Electro House, ElectroПродолжительность: 07:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F965022334E34AB94376246B7439B4DB4B2AB753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243645   (489457) от 28.08.2018
-
-VA - Deep House Collection vol.184 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489457.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adrian Pricope & 1Riddim - Mirrors  (Original Mix)
-002. Adrian Pricope & Allen Constantine - Pheonix  (Original Mix)
-003. Aladin - Believe In Me  (Original Mix)
-004. Aladin - Believe In Me  (Pete Bellis & Tommy Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech House, Vocal HouseПродолжительность: 14:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBF07A8BFDA9BFA5598C9215EFA3982E594FA6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937255   (489406) от 14.09.2015
-
-VA - Playlist для бега (2015) [MP3|320 кб/с]<Dance, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vicetone - Tremble (Original Mix)
-02. Swedish House Mafia - Greyhound
-03. Matthew Koma - One Night (Vicetone Remix)
-04. Diplo, Kai, Faustix & Imanos - Revolution (feat. Imanos & Faustix & Kai & Travis Porte)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 08:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397E9877301BF462C17F704DA6734A3A0A0E1250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543958   (489331) от 08.09.2012
-
-VA - Радио Шторм - Русский Шторм - 71 (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489331.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. All Davaj & Mika - Это Любовь (Radio Edit)
-2. Bahh Tee - Я Наверное (Mike Crystal Remix)
-3. Bass Ace & Dj Skazka - Твоё Лето (3:32)
-4. Dan Balan Dj Favorite - Не Любя (Alex Life S Mash Up)
-5. Danila Rastv Ft. Alexey Sender - Ядами
-6. Di Bronks I Natali - Все Пройдет (Dj Garik Vertuha Remix 2012)
-7. Erika (Erika) - Последний Раз
-8. F. Jay & Олеся - Любовь
-9. Hi-Fi - Земляничный Дождь
-10. Jandro - Не УходиЖанр: Pop, DanceПродолжительность: 02:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65899F330D4BC0D62EE4CAE892B698B582687436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543963   (489325) от 08.09.2012
-
-VA - Радио Шторм - NeРусский Шторм - 72 (2012) [MP3|128-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489325.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adrian Sina - Hypnotised (Original Edit)
-2. Annagrace - Alive (Radio Edit)
-3. Chanee - Fallen
-4. Ciara - Livin It Up
-5. Clinton Sparks feat. Pitbull And The Disco Fries - Watch You
-6. Connect-R - Love Is The Way
-7. Deejaymas feat. Any & Catalin D - Don't Break My Heart (Extended Version)
-8. Devin - Un Amor (Ai Le Le Song) (Radio Edit)
-9. Dj Dark And Shidance Ft. Violet - Turn It Up (Radio Edit)
-10. Dyland And Lenny feat. Pitbull And Beatriz Luengo - Sin TiЖанр: Pop, DanceПродолжительность: 02:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6317D9F7822376A4C7A93991C3A886CB3BE4309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544665   (489227) от 08.09.2012
-
-VA - Горячая Сотка Новинок 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi-Fi - Земляничный Дождь (Новая Версия)
-02. Maroon 5 - One More Night
-03. Galla - NY Лето (Нью-Йоркское Лето)
-04. Mc Lion - Breathing (Dance Mix)
-05. Ksenona - Далеко-Далеко
-06. Nas feat. Mary J. Blige - Reach Out
-07. Pulse - Ты Убиваешь Меня
-08. Rita Ora - Roc The Life
-09. Vetra-N - Долго Нельзя
-10. The Cataracs - Roll The Dice(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FD5A64E91D3C879347FA2F4156B0A7587C040C
 ```
 
 https://mybot314.ru/tekegram_catalog/

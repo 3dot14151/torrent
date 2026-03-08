@@ -1,3 +1,32 @@
+###  Публикация: 1088839   (955152) от 01.01.2017
+
+VA - The Best Running Beats 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suzie Kju - Baby! (Classic edit)
+02. Million Colours - I Hold On (radio edit)
+03. Cheap Sunglasses - Till The End (Endless mix)
+04. Ibiza Groove Squad - I Don't (DJ Absinth Fitness remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F354D3FB8702D739658BA9C5AF0DAE67EC9617F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089207   (954005) от 02.01.2017
 
 VA - Syndicated Soul, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -701,41 +730,6 @@ VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6C6F2B2837931A8C02A68EA2A8ECCE211BD183A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175505   (939275) от 15.02.2010
-
-VA - House Vip (09.02.10) [MP3|128 - 320 kbps]<Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Spencer - Let's Rock (Scotty Remix) (5:24)
-02. David Guetta feat Kid Cudi - Memories (Armand Van Helden Vocal Remix) (5:29)
-03. Dirty Disco Youth - Minds...Off (4:52)
-04. Dj Cargo Pres. Kei Morton - Get Back (Easy Tech Extended Remix) (5:04)
-05. DJ Ivan Flash - Spin Around (Original Mix) (4:38)
-06. Flo Rida - Sugar(Electrical Brothers Radio Edit 2010) (5:17)
-07. Franco Maldini - This Is A Journey (STFU Remix) (6:10)
-08. Martin Solveig feat. Dragonette - Boys & Girls (Alex Astero & Evan Sax Club Mix) (6:01)
-09. MasterBlaster - Come Clean (Electrical Brothers Remix) (6:50)
-10. Ne!tan - 2night (Scott And Dave Remix) (3:39)(   Читать дальше...)Жанр: Electro House
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

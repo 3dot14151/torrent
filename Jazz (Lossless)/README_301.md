@@ -1,3 +1,32 @@
+###  Публикация: 1685875   (126868) от 20.12.2023
+
+Pharoah Sanders Quartet - Live at Fabrik, Hamburg (1980) 2023, Jazzline [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Gotta Have Freedom [18:04]
+02. It's Easy to Remember [12:57]
+03. Dr. Pitt [20:20]
+04. The Creator Has a Masterplan [8:36](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Post-BopПродолжительность: 01:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C41A9CB6BD84515F727BAC2340BA531547A789A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685836   (126852) от 20.12.2023
 
 The Brecker Brothers - Score (1988) 1991, Jazz Door [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Crossover Jazz>
@@ -715,35 +744,6 @@ Boston Brass & The Brass All-Stars Big Band - The Stan Kenton Christmas Carols (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFA0D6128701B181153C184D51675F660AABDF29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687380   (125428) от 27.12.2023
-
-VA - Smooth Easy Going Relax Lounge Luxury Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Mellifluous (4:27)
-02. Kool&Klean - Scent of Spring (4:52)
-03. Chillaxing Jazz Kollektion - Blue Water (4:00)
-04. Kool&Klean - Stellar Nights (4:14)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159939337089C2A1AD83BB44DC4E283A617CEBAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

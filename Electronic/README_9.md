@@ -1,3 +1,61 @@
+###  Публикация: 1840690   (1047512) от 06.12.2025
+
+VA - YHV Melodic Progressive Sampler 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giannutzo - Fili (Extended Mix) [6:25]
+02. Jezz (EG) - Echoing Chant (Original Mix) [6:19]
+03. Triple A - Fragments (Original Mix) [5:29]
+04. GLF & AnAmStyle - Escape (Original Mix) [5:44](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 06:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCE3DE012B63FA3B866A7FD65037A1DCABDFEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840681   (1047511) от 06.12.2025
+
+VA - A Journey Through Time and Trance (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rixson & Eternal Waves - Contagion (extended version) [7:50]
+02. Sauli - Imagine (Alternate High Extended Remix) [7:00]
+03. JimZima & Jason Gray - Halcyon (extended version) [7:42]
+04. Jochen Gareth - Coastal Breeze (extended version) [6:37](   Читать дальше...   )Жанр: TranceПродолжительность: 05:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC15F099720305B6E828338914B450BA8C1E8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840706   (1047498) от 06.12.2025
 
 VA - The Orient Collective: Mystical Stories (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -687,64 +745,6 @@ VA - Nocturnal Knights Best Of 2025 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F37A03B205800C8386B5C0DCB515E20DF380D598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839345   (1046476) от 28.11.2025
-
-VA - Elliptical Sun Recordings 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mully & Shvman with Dare County - Domino (Extended Mix) [5:31]
-02. John Grand - Stars (Extended Mix) [6:12]
-03. Titus1 & Travis Lydian - Demons (Extended Mix) [4:27]
-04. Nay Jay - Rosa (Extended Mix) [4:33](   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DDB9FCD6967402304ACDFDA42C6739A044BC024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839334   (1046475) от 28.11.2025
-
-VA - The Best Of Suanda Music 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Anton Pallmer & Jennifer Rene - When I Hear Your Voice (Extended Mix) [7:21]
-02. Adip Kiyoi - You Love Me (Extended Mix) [6:04]
-03. Alex M.O.R.P.H. & Roman Messer - Millennium Falcon (Extended Mix) [7:27]
-04. NoMosk & Daniela Presta - Same Old Sky (Extended Mix) [5:41](   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534DF3F5A2EBA4765F3340833E99FA8E0EC71B1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

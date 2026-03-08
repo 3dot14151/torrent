@@ -1,3 +1,61 @@
+###  Публикация: 1253934   (377386) от 12.10.2018
+
+St. Vincent - MassEducation (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Baroque Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Disco
+02. Savior
+03. Masseduction
+04. Sugarboy(   Читать дальше...   )Жанр: Indie Pop, Baroque PopПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F0FDF7C497159AAAF4704D8ECF939D2C21C995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253873   (377372) от 12.10.2018
+
+VA - 100 Hits - The Best Nineties Album (2018) 5CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377372.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. TLC - No Scrubs
+02. Jennifer Lopez - If You Had My Love
+03. NSYNC - I Want You Back(   Читать дальше...   )Жанр: PopПродолжительность: 06:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DB2859A7B16D7B96E12B56602343492EA594F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949135   (377340) от 23.10.2015
 
 VA - Monster Halloween Hits (2010) 3CD [MP3|320 кб/с]<Pop, Rock>
@@ -693,64 +751,6 @@ Selena Gomez - Revival (2015) Japanese Edition [FLAC|image+.cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E55A00A06D371BCCFFC39FE04ECCE9123F332B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318516   (374501) от 25.09.2019
-
-Bat For Lashes - 14 releases (2007-2019) [FLAC|Lossless|tracks + .cue|tracks] <Dream Pop, Indie Rock, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374501.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 - Fur and Gold
-2009 - Two Suns (Special Edition)
-2012 - The Haunted Man
-2016 - The BrideЖанр: Dream Pop, Indie Rock, Indie PopПродолжительность: 05:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F33085E69001598FABD6F314DD330CF65E4A312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175862   (374427) от 20.10.2017
-
-Hi-Gloss - You'll Never Know (1981) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll Never Know (5:27)
-02. It's Up To You (5:48)
-03. Cash (6:55)
-04. I'm Totally Yours (5:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD945A923E6E7481E141707C569676877DC193E
 ```
 
 https://mybot314.ru/tekegram_catalog/

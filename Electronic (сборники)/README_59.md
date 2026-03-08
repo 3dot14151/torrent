@@ -1,3 +1,32 @@
+###  Публикация: 1512298   (787464) от 24.11.2021
+
+VA - Beatport Tech House: Sound Pack #372 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787464.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joseph Diaz - Funky Guitar
+002. Qlank - Badd
+003. Filter B - Tales From The Inside
+004. Joel Carry - Strong Enough(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13236CB64ADE3E4F2F73E39FC1F87D141E2FD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512352   (787406) от 24.11.2021
 
 VA - Synthspace Electronic Music (2021) [MP3|320 Kbps] <Synthspace, Synthwave, Electronic>
@@ -719,35 +748,6 @@ VA - Empire Records - Electro Chill 3 (2018) [MP3|320 Kbps] <Chillhouse, Chillel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B28747396C47C5C8414985354B16D99E391FA06A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204866   (784406) от 07.02.2018
-
-VA - Empire Records - House Swinging 2 (2018) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Swingrowers  -  Butterfly (Phibes Remix)  3:56
-02.  Jaques Le Noir  -  Boy (Push My Botton) (Radio Edit)  3:16
-03.  Faul & Wad Ad vs. Pnau  -  Changes (Radio Mix)  3:21
-04.  Freddy Verano feat. Natalia Doco  -  Comets (HUGEL Remix)  4:27(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27CC1F782AB53F0AE04EE2D6BC073B5FCFE1C6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

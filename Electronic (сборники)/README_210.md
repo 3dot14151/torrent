@@ -1,3 +1,32 @@
+###  Публикация: 1703048   (115340) от 27.02.2024
+
+VA - Electronic compilation part 58 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adik - Hold Me
+02. Karimov - Magic
+03. Muvi - Impossible
+04. Adik - Rasputin(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16CBC14F9B34EEFBAD45B5C060604E67E0913BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703175   (115247) от 28.02.2024
 
 VA - Deep House, Baby 7 (2024) [MP3|320 Kbps] <Deep House>
@@ -716,35 +745,6 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 6 (2024) [MP3|192-320 Kbps] <De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C80F5C45EF1297AF4D22CF237C3E791327041C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822924   (104395) от 09.10.2025
-
-VA - Compilation Part 197 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Jumanov - Love’s a Game
-02 - Jumanov - Everything is Temporary
-03 - Jumanov - A Coincidence
-04 - Jumanov - Block Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:899D43E662B82763A9D5C07B42A18338CDDC59A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

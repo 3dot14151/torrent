@@ -1,3 +1,177 @@
+###  Публикация: 1115565   (826647) от 18.03.2017
+
+VA - Молодежный хитовый бум. Версия №7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826647.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Доминика Feat. Suncreepers - Океаны 3:04
+002. Sputnik Project - Дождиком 4:28
+003. Катя Нова & Tunicates - Меняй 3:07
+004. Фатима Гаглоева - Больше Чем Любовь 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB5AB482FD496230B64FB90AA2FE38D22786559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115576   (826645) от 18.03.2017
+
+VA - Лучший русский шансон. Версия № 5 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Белое Золото - Холодное Небо 3:26
+002. Рома Рязанский - Непутевый 3:20
+003. Братва  Денис Мафик &  Централ - Друганы 4:43
+004. Сергей Куренков - Бессонница 3:21(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DE7DDAF49D16FD9F82668622065F54F22C58F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006387   (826632) от 12.04.2016
+
+VA - New Age Style - Enigmatic 24 (2016) [MP3|320 кб/с] <New Age, Enigmatic, Electronic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dagda - Hold Me Now ('Til I Die) (6:25)
+02. Voyager - Venus (6:35)
+03. Dagda - Tuath De Danaan (4:00)
+04. Nelson Oliveros - Moment In Time (4:50)(   Читать дальше...   )Жанр: New Age, Enigmatic, ElectronicПродолжительность: 02:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7410D268BE017CFE32CB08C88CC1CDF2B0CE304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115580   (826557) от 18.03.2017
+
+VA - Козырная песня на радио Шансон выпуск №4 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826557.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Келеберда - Кафе-Шантан 4:01
+002. Олеся Атланова - Цветочек Аленький 3:12
+003. Игорь Тузов - Ты Пацан По Жизни Не Грусти 4:03
+004. Игорь Махачкалинский - Ворон Над Зоной 4:02(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EB36AC687C002B7A0D69550DE98DF381ACC6EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115562   (826552) от 18.03.2017
+
+VA - Весна пришла. Лучшие хиты. Часть №12 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826552.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юлианна Караулова - Так Близко 3:42
+002. Митя Фомин - Звезды Вселенной 3:42
+003. Света Корцман - Небо-Купол 3:18
+004. Леля - Грешная 3:43(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D73BCCB0C1423A4A2CCD896F9E054D8A852299F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115573   (826547) от 18.03.2017
+
+VA - Шальной шансон в дорогу (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олеся Гришина - Метель 4:42
+002. Виктория Калистратова - Ну Прости Меня 3:39
+003. Сборная Союза - Здравствуйте Люди Добрые 3:41
+004. Андрей Никольский - От Весны И До Весны 3:36(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA095D05E784C7404CF0ED1EBFB162D21FF7DF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115581   (826349) от 18.03.2017
 
 VA - Я слушаю шансон. Реальный блатняк выпуск №10 (2017) [MP3|256 Kbps] <Шансон>
@@ -568,180 +742,6 @@ Deep House:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A11119161993C66292334F0C4E046AC3358DD727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006824   (824983) от 13.04.2016
-
-VA - Весенние хиты популярный сборник (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Павел Воля - Если Б
-02. Профилактика - Это Не Сон
-03. Dr Meaker Feat. Laurent John - Good Fight
-04. Dimitri Vegas & Like Mike Vs. Ummet Ozcan - The Hum(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C1D129FBFC383E3228423FBF06FC9F69563A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116122   (824968) от 19.03.2017
-
-VA - Minimal Tech House: 120 Club Party (2017) [MP3|320 Kbps] <Dance, Club, Minimal Tech House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824968.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Branzei - I'll Never Be Free (Original Mix)
-002. Luc Angenehm - Glow (Feat. Matthias Propach)
-003. Dogus Cabakcor - Trouble (Original Mix)
-004. Soukie & Windish - Flatemate Ghost (Kellerkind Remix)(   Читать дальше...   )Жанр: Dance, Club, Minimal Tech HouseПродолжительность: 13:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97AF19092E6AE145E07D6647A2DF96F8D3DABD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007014   (824921) от 13.04.2016
-
-VA - 50 оттенков музыки 18+ (01.2016) [MP3|128-320 кб/с] <House, Blues, Rock, Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824921.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ben Howard - Oats In The Water
-002. Yuna - Lullabies (Bentley Grey Remix)
-003. Hess Is More - Yes Boss
-004. Tori Amos - Cornflake Girl(   Читать дальше...   )Жанр: House, Blues, Rock, Downtempo, Chillout, LoungeПродолжительность: 13:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24DE009D6B7E4F052D282A4C120386BBC1A1D0B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381879   (824605) от 08.05.2020
-
-VA - Chill Tracks By Blank & Jones (2020) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones, Zoe Durrant - One Evening 3:34
-02. Runsq - Stay Home & Chill 2:55
-03. Blank & Jones - High Fly 4:20
-04. Blank & Jones - Desire (The Swan And The Lake Remix) 4:32(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 04:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D316BDD59ED50A2ED5259A3E2EF5025C0D59D9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115812   (824579) от 19.03.2017
-
-Mungo Jerry - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Skiffle Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All That A Woman Should Be (Bonus)
-02. Hello Nadine
-03. I've Got The Blues
-04. In The Summertime(   Читать дальше...   )Жанр: Blues, Skiffle BluesПродолжительность: 02:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B172BEE8151E196E1689C1C911C6297F0CD725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381717   (824475) от 08.05.2020
-
-VA - Italo Disco (2020) [MP3|320 Kbps] <Italo Disco, Euro-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Bano & Romina Power - Felicità 3:12
-02. Ryan Paris - Dolce Vita 3:56
-03. Sabrina - Boys (Summertime Love) 3:58
-04. Baltimora - Tarzan Boy 3:50(   Читать дальше...   )Жанр: Italo Disco, Euro-DiscoПродолжительность: 03:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E42AB82C16B86B2A805482E6607F2C78D4F087E
 ```
 
 https://mybot314.ru/tekegram_catalog/

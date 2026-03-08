@@ -1,32 +1,3 @@
-###  Публикация: 1613847   (1039127) от 20.02.2023
-
-Blond Viper - Boom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tear The House Down (00:04:30)
-02 - Go (00:04:45)
-03 - Secret Box (00:04:49)
-04 - Time For Love (00:04:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D50139791F013F16CCFBA0A1C22A5A911450EF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613567   (1039126) от 20.02.2023
 
 Абвиотура - Тридуги (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -745,6 +716,32 @@ XTC - English Settlement (1982) Reissue, 1988, Geffen [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:119D8DFBB648A51884AA76F155EC2A3E911AFA40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614298   (1038827) от 21.02.2023
+
+Юрий Шевчук & Дмитрий Емельянов - Родина, вернись домой (2023) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038827.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Родина, вернись домойЖанр: RockПродолжительность: 00:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81AA65DBA100F4ECAF399D27B7238F8E04A929D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

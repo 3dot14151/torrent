@@ -1,3 +1,177 @@
+###  Публикация: 1213104   (773347) от 15.03.2018
+
+VA - German Top 100 Single Charts 16.03.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773347.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olexesh - Magisch (feat. Edin)
+002. Marshmello & Anne-Marie - FRIENDS
+003. Drake - God's Plan
+004. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02866798FA0037840C2A826AF56341627023AFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125048   (773326) от 13.04.2017
+
+VA - Relax to House Vol. 7 (2017) [MP3|320 Kbps] <House, G-House, Chillout, NuDisco, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2Disco - My World (Roman Depthsound Remix)
+02. Above & Beyond feat. Gemma Hayes - Counting Down The Days (MiRo Remix)
+03. Abriviatura IV - Never Gonna Say Goodbye (Hugobeat Remix)
+04. Acidbro - Hold You (Original Mix)(   Читать дальше...   )Жанр: House, G-House, Chillout, NuDisco, TrapПродолжительность: 15:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67281EB77E45F9B34E57E9B62470BEE9ED7DA841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278223   (773295) от 24.01.2019
+
+VA - Velkomst Nu Disco Dance (2019) [MP3|320 Kbps] <Nu Disco, Dance Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be Svendsen - Falling
+02. C. Da Afro - Expand (Original Mix)
+03. Dionigi - Italo Girls 80 (Original Mix)
+04. Emre Kaymasli - Vintage (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Dance DiscoПродолжительность: 07:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08856280594E2A73BFD4FADD3CA75EFC77B8EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015957   (773270) от 12.05.2016
+
+VA - Future Trance Energy 002 May TOP (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer Ft. LJ Ayrten - Break The Ice (Aimoon Remix) 6:35
+02. Accelerator & Johnny The Boy - Tears in the Rain (Ciro Visone mix) 6:42
+03. Alex Shevchenko - Dreamlands of Kadath (Original Mix) 8:45
+04. Ciro Visone - Trust (Original Mix) 8:04(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C6479359FFFA8F2E1EF719F42E7124D69691E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015798   (773265) от 12.05.2016
+
+VA - Trance Desire Vol. 69 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sied Van Riel feat. Alicia Madison - Gravity 7:11
+02. David Forbes, Emma Gillespie - Hurricane (Original Mix) 7:01
+03. Julie Thompson with Super8 & Tab - Your Secrets Safe 7:44
+04. Andain - What It's Like (Sneijder Remix) 6:10(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722BF522051CC756C4A1D5A803AE09246345C76E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391520   (773247) от 21.06.2020
+
+VA - German Top 100 Single Charts 19.06.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UFO361 - Emotions
+02. Pashanim - Airwaves
+03. DaBaby - ROCKSTAR (feat. Roddy Ricch)
+04. Apache 207 - Boot(   Читать дальше...   )Жанр: PopПродолжительность: 04:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54E37903550BE2964CD732C893C7DB103258A7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391705   (773245) от 21.06.2020
 
 VA - Beatport Disco House: Sound Pack #108 (2020) [MP3|320 Kbps] <Funky, Disco House>
@@ -580,180 +754,6 @@ VA - Blues Forever vol.49 - vol.52 (2016) [MP3|320 кб/с] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C267A2C48628ECA00110B01BA854541680D836D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125368   (772101) от 14.04.2017
-
-VA - The Quest For Beauty Progressive Party House (2017) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772101.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Airwave - The Quest For Beauty (Jam El Mar Remix)
-002. Vintage & Morelli - Desire (Dezza Remix)
-003. Set Collins - Strangers
-004. Stan Kolev - Forsaken (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4776F4484F3E59EFAEA7CB047324AC6341E0DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213342   (772006) от 16.03.2018
-
-VA - Neotrance Selected Works [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Neotrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synasthesie - Lotus (Clawz Sg Remix) [07:19]
-02. Nick Devon - Skyline (Mallone's City Lights Remix) [07:25]
-03. Frankye Lova, Stephan Seddel - Unstable [08:15]
-04. Jos & Eli, Sean Doron, Jenia Tarsol - Amore [08:27](   Читать дальше...   )Жанр: NeotranceПродолжительность: 04:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876E9994534FC2E3C2CD6B3E5AACE69ED1E228F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278346   (771915) от 25.01.2019
-
-VA - Urban Drum And Bass Arena (2019) [MP3|320 Kbps] <Drum and Bass, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771915.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danger - Unknown Object
-002. Maverick Soul - Stranded
-003. Aweminus - Pants Floor
-004. Fourward - Make Some(   Читать дальше...   )Жанр: Drum and Bass, Electro BassПродолжительность: 10:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F336FA61F6A7F9159FC77BFF3632E1FD319954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213283   (771860) от 16.03.2018
-
-VA - Metropolis: 200 Popular Euro Hits (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771860.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blink-182 - Cynical
-002. Justin Timberlake - Can't Stop The Feeling!
-003. Bananarama - Venus (12'' Hellfire Mix)
-004. Galantis - No Money(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 12:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD4658D54668E1305C58F4B403878EB76F77F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213418   (771859) от 16.03.2018
-
-VA - Empire Records - Church (2018) [MP3|320 Kbps] <Pop, Pop-Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Jet - Breaking The Stones
-02. X Ambassadors - Torches
-03. Lea Michele - Heavenly
-04. Jena Lee - Le Temps(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACFA481797A6D8165525C8D0FD82960C8A7E8EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213185   (771854) от 16.03.2018
-
-E-Type - Russian Lullaby (1998) [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Russian Lullaby (3:14)
-02. Until the End (3:32)
-03. When Religion Comes to Town (3:23)
-04. You Will Always Be A Part of Me (4:08)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3764EDD436AF4EBE2CE3012CBC2639AA1E83AF37
 ```
 
 https://mybot314.ru/tekegram_catalog/

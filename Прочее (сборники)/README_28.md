@@ -1,3 +1,119 @@
+###  Публикация: 994199   (891644) от 07.03.2016
+
+VA - Ibiza Dance Sensation (2016) [MP3|320 кб/с] <Soulful, House, Funky, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankyboy - You Make Me (Original Mix) 05:00
+02. Escadia - Far Cry (Original Mix) 06:48
+03. Delighters, Viofly & Stev Dive - My Music (Original Mix) 05:01
+04. Yanter - Down Dugs (Original Mix) 05:21(   Читать дальше...   )Жанр: Soulful, House, Funky, Nu DiscoПродолжительность: 02:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E590AE97341FF0617FB7909F1B0820EDDA676031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994177   (891599) от 07.03.2016
+
+VA - Isle Ibiza 2 Grooves White (2016) [MP3|320 кб/с] <Future House, Tropical, UK Garage, Bigroom, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891599.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kaskade feat Kolaj - Whatever (Neus Remix) 03:54
+002. Noisy Bears - Hold You (Feat SevenEver) (Original Mix) 06:54
+003. Gestort Aber Geil & Marc Narrow - geh nicht weg (extended mix) 04:41
+004. Aki - Heroin (Club Mix) 03:39(   Читать дальше...   )Жанр: Future House, Tropical, UK Garage, Bigroom, Nu DiscoПродолжительность: 09:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4293611B2300902F4BF0DDBC27E0385B64C415D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994284   (891552) от 07.03.2016
+
+VA - Blues Memories (2016) [MP3|128-320 кб/с] <Rock Blues, Retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891552.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rob Tognoni - Lost Our Blues In The City Of Rome
+002. B.J. Sharp - Never Felt No Blues
+003. Coco Montoya - Never Seen You Cry This Way Before
+004. H2O - Use Your Voice(   Читать дальше...   )Жанр: Rock Blues, RetroПродолжительность: 07:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA42630A22A93A61BDE4CBF114B34FACD4DED31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994381   (891534) от 07.03.2016
+
+VA - Acoustic Pop Covers (2016) [MP3|320 кб/с] <Pop, Acoustic, Covers>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Somebody That I Used to
+02. Alice Lamb - Use Somebody
+03. Meg Birch - Say You Love Me
+04. Thom Cooper - Next to Me(   Читать дальше...   )Жанр: Pop, Acoustic, CoversПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2A0BEBE7A09E33A656A7D3347519D303427CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994386   (891436) от 07.03.2016
 
 VA - Дискотека на 8 марта (2016) [MP3|256 кб/с-320 кб/с] <Pop, Dance>
@@ -629,122 +745,6 @@ VA - Big Workout Hits 2017  [MP3|320 Kbps] <Dance, Club, Electro, Funky>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F2A1FB7C7101517494C800DFC8FF8FA67C2C544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996051   (883109) от 12.03.2016
-
-VA - Chilling Time (2016) [MP3|320 кб/с] <Downtempo, Chill House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaxamalka - Mincing Matters
- 02. Takt 3 - Slinky Birds
- 03. Alexey Lisin - Try My Soul (feat. Alexandra Pride)
- 04. Peter Pearson - Whispering Light(   Читать дальше...   )Жанр: Downtempo, Chill HouseПродолжительность: 02:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A4DF3D1EB70544D023A12C8F6E32EB00C1389C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995962   (882960) от 12.03.2016
-
-VA - The Top Hits Insider (2016) [MP3|257-320 кб/с] <Progressive, Nu-Disco, Bigroom, UK Garage, Italo House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe Carolina & Shanahan Feat. Haliene - Stars & Moon (Original Mix) 05:00
-02. Dj Kamera - Time Machine (Original Mix) 07:01
-03. Disco Fries & Kaaze Feat. Danyka Nadeau - We Are One (Extended) 04:05
-04. D.Marco - New Day 06:59(   Читать дальше...   )Жанр: Progressive, Nu-Disco, Bigroom, UK Garage, Italo HouseПродолжительность: 08:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA2842DA02B38D68DC8B3F77FBB4F1D0644B4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995983   (882846) от 12.03.2016
-
-VA - German Top 100 Single Charts (14.03.2016) [MP3|256-320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882846.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker - Faded
-002. Stereoact - Die immer lacht (Radio 2016 Mix) (feat. Kerstin Ott)
-003. Twenty One Pilots - Stressed Out
-004. Jonas Blue feat. Dakota - Fast Car(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B671A9CA0D07DA620187A4917DEC0C9C1B533F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995725   (882690) от 12.03.2016
-
-VA - Billboard Hot 100 (2016-03-05) (2016) [MP3|320 кб/с] <Pop, Euro, Indie, Folk, Hip-Hop, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882690.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rihanna - Work (Feat. Drake) .mp3
-002. Justin Bieber - Love Yourself  .mp3
-003. Twenty One Pilots - Stressed Out .mp3
-004. Justin Bieber - Sorry .mp3(   Читать дальше...   )Жанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7C82FC1708F5D92CBC83EEA8433290337047D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

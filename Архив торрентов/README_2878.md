@@ -1,270 +1,3 @@
-###  Публикация: 560177   (407500) от 14.10.2012
-
-Подборка журналов | Аппетитные истории №№2...14 + спецвыпуски [2012] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание представляет коллекцию лучших рецептов, которые прислали в редакцию читатели журнала!Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22D197456146206A1EC3C5F1A4158F5E3D69DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560162   (407498) от 14.10.2012
-
-Журнал | Гастрономъ №9 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный красочный и модный журнал, для тех кто любит вкусную пищу и всё, что с ней связано. Отечественный кулинарный журнал европейского уровня. Его цель не столько развлекать, сколько вдохновлять читателей на кулинарное творчество, помочь им почувствовать настоящий вкус жизни. Интервью со звездами и их фирменные рецепты, рассказы о кулинарных традициях других стран и аппетитные истории из жизни известных людей, модные диеты, лучшие рестораны, правила этикета и сервировки, секреты приготовления блюд.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BC1A0E67C571853A07BFFFBA862054D18AF161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560453   (407496) от 14.10.2012
-
-VA - Новая клубная волна (2012) [MP3|256 кб/с]<Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Ruslan Nigmatullin - Relax and relax
-02. Батишта & Shaplin Feat. Ульяна Глушкова - Когда Наступит Ночь (Sandrique Remix)
-03. Лиза Макеева - Не Исчезай (Dj Pasha Lee Remix)
-04. Руки Вверх - Чужие Губы (Fatalism Project Remix)
-05. Андрей Губин - Время Романтиков 2012 (Dj Fisun Remix)
-06. G - Nise & Алексей Кабанов feat. DJ Half - Наше Лето (DJ Evans Remix)
-07. DJ Sandro Escobar vs. Блестящие feat. Katrin Queen - Чао Бамбино (Extended)
-08. Tom Boxer - Deep in love (DJ Nejtrino & DJ Baur radio mix)
-09. Дима Билан И Юлиана Крылова - Слепая Любовь (The1 & Andrey Li Remix)
-10. Катя Чехова - Я Посылаю Код (DJ Kotlyarov AGSM Radio Remix)(   Читать дальше...   )Жанр: ClubПродолжительность: 06:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830DC8C38370A0EDFDF1BFE0175AB98C01056ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559246   (407485) от 14.10.2012
-
-Computer Desktop Wallpapers Collection (11.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511605B5FE9EA4406D4BD54745C6BFCFB6CFED08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559839   (407482) от 14.10.2012
-
-Roni Size - Return to V (2005) [MP3|256 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bump N Grind feat. Sweet Pea
- 02. Shoulder to Shoulder feat. Die & Holly G
- 03. Fassyhole feat. Wilks
- 04. Pull Up feat. Viktor Duplaix
- 05. Groove On feat. Faye
- 06. Cheeky Monkety feat. Tali & Dynamite
- 07. Time feat. Darrison
- 08. Problems feat. Blaze
- 09. Rise feat. Sweetie Irie
- 10. Want Yout Body feat. Joe Roberts(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACC45DE8D6CA460DB9CA8757486B02CA35774FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559903   (407480) от 14.10.2012
-
-Blu Mar Ten - Natural History Revision (2010) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starting Over (2009 Remix) (5:50)
-02. Above Words (5:30)
-03. God's Lonely Man (5:33)
-04. By The Time My Light Reaches You Ill Be Gone (6:01)
-05. Grey Area (5:10)
-06. Believe Me (6:43)
-07. Close (VIP) (5:54)
-08. Clipjoint (5:08)
-09. If I Could Tell You (5:18)
-10. Nobody Here (6:24)(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 02:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D80919712D1CD976059264C650E8D0B402C107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559639   (407477) от 14.10.2012
-
-Дуэты / Duets (2000) [1080p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_407477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир полон добрых, невинных душ, которым просто не везет в жизни. Шесть таких неудачников, отчаянных и смелых, готовы отправиться в долгий и опасный путь, пережить уйму приключений и невероятных событий, чтобы, преодолев полстраны, оказаться на сказочном конкурсе караоке и, набравшись смелости, выиграть пять тысяч долларов.
- Там, на залитой магическим светом сцене они обретут свое счастье, найдут новых друзей и поймут, что вместе можно справиться с любыми трудностями, которые готовит нам коварная судьба.Жанр: Драма, Комедия, МузыкаРежиссер: Брюс ПэлтроуАктеры: Мария Белло, Андре Брогер, Пол Джаматти, Гвинет Пэлтроу, Скотт Спидман, Локлин Манро, Кэрол Александр, Майкл Роджерс, Хьюи Льюис, Аманда Крават, Йен Робисан, Роджер ХэскетПеревод: Профессиональный (многоголосый, закадровый) / Авторский (Антон Карповский)Язык субтитров: Русские, английскиеПродолжительность: 01:52:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559910   (407470) от 14.10.2012
-
-Chopstick Dubplate - Chopstick Dubplate Meets River Nile (2010) [MP3|128 - 320 кб/с]<Drum and Bass, Dubwise, Jungle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chopstick Dubplate feat Natty King - My Story
-02.Chopstick Dubplate feat Wildlife - Jungle King
-03.Chopstick Dubplate feat Jah Mason - Cool With The Fire
-04.Chopstick Dubplate feat Antonio West and Stikki - Say Goodbye
-05.Chopstick Dubplate feat Utan Green and Hikee and Stikki - Believe
-06.Chopstick Dubplate feat Shaka Mello - Bush TeaЖанр: Drum and Bass, Dubwise, JungleПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010A7DA7415D305C6FAD8710E9DC66C2EBF93C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559279   (407465) от 14.10.2012
-
-Best Mixed Wallpapers (12.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D029C3E675C45B8D683EE46BFE4AD57682E98CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559907   (407462) от 14.10.2012
 
 Break - Commercial Suicide Presents Break (2011) [MP3|320 кб/с]<Drum and Bass>
@@ -732,6 +465,264 @@ Money Pro сократит расходы и покажет полную кар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37C7C08FEFA42EA967533838A4F49B171A1F5E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560506   (407409) от 14.10.2012
+
+Развод по-русски. Выпуск №78. Трагедии звездных семей (14.10.2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407409.jpg" />
+</div>
+
+
+###  Подробнее
+
+У нас в России — все по-особенному. У нас даже обманывают иначе. Впаривают, втюхивают, надувают, обвешивают-обсчитывают и кидают на каждом шагу. Это — Россия, и это — развод. Развод по-русски. А его жертвы, которых в сухих сводках называют обманутыми потребителями, клиентами, потерпевшими, — это все мы, обычные люди и телезрители.
+«Развод по-русски» — это то, с чем мы сталкиваемся каждый день в магазине, в больнице, в приемной чиновника… Что мы едим, где отдыхаем, как лечимся, кому доверяем наших детей — изобретены сотни хитроумных способов нажиться на нашей доверчивости. Но терпение русского человека небезгранично, а доверие требует проверки.
+В новом еженедельном проекте НТВ репортеры программы работают под прикрытием, чтобы изнутри раскрыть технологию обмана. Наше дело — правое, потому что у каждого из нас есть права. Эксперты — защитники потребителей, адвокаты, врачи и профессионалы из других областях помогут не словом, а делом, и расскажут, как правильно составить претензию, возместить ущерб и потребовать (   Читать дальше...   )В выпуске: Жена Эдуарда Успенского оказалась на улице. Что бы сказал Чебурашка? Как болезнь разрушила брак Светланы Разиной? И интимная тайна Кафельникова. «Трагедии звездных семей» — в программе «Развод по-русски».Жанр: ТелепередачаТелекомпания: Продолжительность: ~ 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A59D5AFFE4FEC81D73D4F2586093A88569CF56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560312   (407406) от 14.10.2012
+
+[Фотография] Photos from  Hind alNuaimi
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы фотографа Hind alNuaimi.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B527D7FE81F61F598500D0DBC8D40192FE51EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559864   (407404) от 14.10.2012
+
+[Рисованая графика] Artworks by Stroody
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника под ником Stroody.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22ED43E137BBDADDCD516D67091F3EF6B87BF483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560409   (407403) от 14.10.2012
+
+Журнал | Лиза. Гороскоп №11 [ноябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407403.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лиза Гороскоп» — глянцевый журнал для женщин, которые сверяют свою жизнь со звездами и любят получать положительные эмоции. Как стать хозяйкой своей судьбы? Звезды Вам советуют. Ежемесячные прогнозы для всех знаков Зодиака. Любовь: ее психология и выбор партнера. Погода на завтра. Исцели себя сама. Великие маги и пророки.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681A41B9C60B36333C483AE111F0814DF30A3A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560042   (407399) от 14.10.2012
+
+Bobina - Russia Goes Clubbing 214 (10.10.12) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadmau5 - October (from "Album Title Goes Here" CD)
+02. Tim Besamusca - The Sky People (TRANCE-ALL-STARS)
+03. Shaun Gregory - Liquid Neon (GARUDA)
+04. Sunspectre - Piercing Through The Sky (MONDO)
+05. EXCLUSIVE FROM RUSSIA - Bobina & Betsie Larkin - No Substitute For You (MAGIK MUZIK)
+06. Lisa Lashes - Interconnect (ENHANCED)
+07. Armin van Buuren feat. Ana Criado - I'll Listen (Super8 & Tab remix) (ARMIND)
+08. Ayda - Queen (ALTER EGO)
+09. Thomas Datt - Evaporate (Part 2) (DISCOVER)
+10. Mark Sherry - My Love (Outburst Vocal Mix) (NIGHT VISION)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DEA08499E5F20D27845984B5D7EA68915BD8897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559873   (407397) от 14.10.2012
+
+Art of Noise - The Drum And Bass Collection (1996) [MP3|128 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something Always Happens (Remixed By Doc Scott) (7:40)
+ 02. Ode To Don Jose (Remixed By Dom And Roland) (6:42)
+ 03. Art Of Love (Remixed by ILS) (6:12)
+ 04. Yebo (Remixed By Lightfoot) (5:29)
+ 05. Opus 4 (Remixed By PFM) (9:22)
+ 06. Island (Remixed By Seiji) (6:06)
+ 07. Camilla The Old Story (Remixed By J. Majik) (5:54)
+ 08. Kiss (Haitian Vampire Mix By Digital Pariah) (6:19)
+ 09. Eye Of A Needle (Remixed By Lemon D) (7:36)
+ 10. Peter Gunn (Remixed By Flyright) (6:01)(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFA4483CD29C968E854048C7692B632AF1A2FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574120   (407387) от 03.09.2022
+
+Bootstrap Studio 6.1.3 RePack (& Portable) by xetrin [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bootstrap Studio - мощная программа для создания красивых веб-сайтов с использованием структуры Bootstrap. Bootstrap Studio помогает создавать стильные сайты. Он идет с большим количеством встроенных компонентов, которые вы можете перетаскивать, чтобы собрать удобные по навигации веб-страницы. Он построен на основе чрезвычайно популярной структуры Bootstrap и экспортирует (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A29161D2EAE991675979637C1961E18A53DFB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574166   (407381) от 03.09.2022
+
+Soft Organizer Pro 9.26 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soft Organizer - утилита для полного удаления ненужных программ из системы.
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного (   Читать дальше...   )Язык интерфейса: Русский, английский, украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171F0BE40878690AD0136D9ADDD2364D62DCCF6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326162   (407371) от 18.09.2019
+
+Dälek (Dalek) - Respect To The Authors (2019) EP [FLAC|Lossless|tracks] <Hip-Hop, Turntablism, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Respect To The Authors (5:02)
+02. ...With These Mics (3:56)
+03. Molten (4:46)
+04. Defiant (5:30)(   Читать дальше...   )Производство: Exile On Mainstream Records – EOM89VЖанр: Hip-Hop, Trip-Hop, Turntablism, ExperimentalПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5031C414540113B1043AC89D8A23611E161E66F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1078194   (300706) от 01.12.2016
+
+VA - Best of Hits Touch Sound (2016) [MP3|262-320 Kbps] <Tropical, Synthpop, Nu Disco, Vocal, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starmain - Gravity (Cosmicspace Radio Edit) 04:24
+02. Fais And Afrojack - Used To Have It All 03:18
+03. Lady Bee Ft Grace Tither - Homeless Heart (Tank And Cheetah Remix) 04:24
+04. Francesco Rossi Feat. Ozark Henry - Godspeed You (Charming Horses Edit) 03:18(   Читать дальше...   )Жанр: Tropical, Synthpop, Nu Disco, Vocal, Indie DanceПродолжительность: 02:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC3BB41425D6BA568E52D2CAFBA26896C332E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078632   (300705) от 01.12.2016
+
+VA - Armand Van Helden - Best275z (1995 - 2016) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Funk Phenomena (Edit) 04:04
+02 Play The World 07:54
+03 Ultrafunkula 05:40
+04 04 You Don't Know Me (feat. Duane Harden)Жанр: HouseПродолжительность: 04:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7DC87C4CA35C96F51EED7677C228AF92975D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078341   (300686) от 01.12.2016
+
+VA - Perfect Strangers: Deep Chilled House (2016) [MP3|320 Kbps] <Deep House, Chilled House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300686.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sam Feldt ft. Lucas & Steve - Summer On You (feat Wulf) 2:40
+002. Mathias D - Stop Being Naive (Original Mix) 6:22
+003. Chiffre 100 - Backshore 6:49
+004. Kungs - Don't You Know (feat Jamie N Commons) 3:05(   Читать дальше...   )Жанр: Deep House, Chilled HouseПродолжительность: 09:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FD7F6989BF44736DA36C2A7C5D482C3C7629AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078054   (300517) от 01.12.2016
+
+VA - November Planet Pop (2016) [MP3|192~320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300517.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Black Eyed Peas - Pump It 3:34
+002. Lost Kings ft Emily Warren - Phone Down 3:35
+003. Olivia O Brien - Find What You Are Looking For 3:07
+004. Sia - Elastic Heart (Piano Version) 4:10(   Читать дальше...   )Жанр: PopПродолжительность: 07:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39B8960573BA1CBBA2E6858997C5CA70D922D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078170   (300153) от 01.12.2016
+
+VA - Panama Sky: Chillout Relax Mix (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300153.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Domestic Sol - Autumn Eyes (Cool Midnight Suite Mix) 4:41
+002. CJ RcM - Every Night in Almaty 3:25
+003. Ted Mitch - Everybody's Talking 4:17
+004. Van - Rain Bue Sayrosa 6:39(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200BE593D344BE3D218DC2C9479E5DBEE69951BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423468   (300092) от 13.11.2020
+
+Leæther Strip - Introspective & Aggressive Dark Electro-Industrial (The best) (2009-2018) Compilation Album [MP3|320 Kbps] <Industrial, EBM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almost Too Much
+02. Anal Staircase
+03. Battle Mind
+04. Beat My Guest(   Читать дальше...   )Жанр: Industrial, EBMПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3DE31427340ED73453DB74FEE83AB163A9C900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423520   (300091) от 13.11.2020
 
 VA - Future Party Trance (2020) [MP3|320 Kbps] <Trance, Psy Trance, Psychedelic>
@@ -583,180 +757,6 @@ VA - не Громкие новинки недели 40 (2019) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:852DD3C2518B55839BF5FB5189A97D27C1565F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333720   (298838) от 27.10.2019
-
-VA - German Top 100 Single Charts 25.10.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298838.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Apache 207 - Wieso tust Du dir das an? (2:57)
-2.Tones and I - Dance Monkey (3:29)
-3.Apache 207 - Roller (2:38)
-4.Capital Bra x Samra - 110 (feat. LEA) (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B888D45EFA4DF5090CC199933F60A47769BE9B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184693   (298774) от 18.11.2017
-
-VA - The Best Of 80's (2014) [MP3|320 Kbps] <Disco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ABBA - Super Trouper  4:14
-02.  K.B.Caps - Do You Really Need Me  7:27
-03.  Pet Shop Boys - Was It Worth It  4:24
-04.  Blue System - My Bed Is Too Big  3:15(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 06:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633C07216AB8298ECFC5D87D98C364DD4DAB73E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261963   (298765) от 13.11.2018
-
-VA - Ambient Kandi (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298765.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Musicformessier - Aeon
-002. Sverre Knut Johansen - Contact
-003. Lillie Marceau - Fievreux (Original Mix)
-004. Nanda - Plains Beyond(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 12:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845B36E26926D9776B2DB91511A999CF5A5E359F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333696   (298747) от 27.10.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 25.10.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes & Camila Cabello - Senorita 3:11
-02. Tones And I - Dance Monkey 3:30
-03. Tiesto & Jonas Blue feat. Rita Ora - Ritual 3:19
-04. C-BooL - Catch You 3:13(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE56C7F64AE1B5ECFCECA48CE906315332D80C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334156   (298742) от 27.10.2019
-
-VA - Last Day Of Summer (2019) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298742.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lonr. - A.M.
-002. Tom Tripp - Quick
-003. Raheem Devaughn - Any Everywhere
-004. Sasha Keable - Mr Always Impatient(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 11:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874C7988ED7759F5B112331B90021FBD564095B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184535   (298704) от 18.11.2017
-
-VA - Soul Survivor Delux Edition Hard Rock (2017) [MP3|192-320 Kbps] <Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298704.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. All but One - Square One
-002. Xiu Xiu - Crank Heart
-003. Jeff Buckley - Mojo Pin
-004. Last Revelations - If This Could Last Forever(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 10:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928753F98A4989523672FC0109E524208CD24476
 ```
 
 https://mybot314.ru/tekegram_catalog/

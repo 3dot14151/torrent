@@ -1,3 +1,61 @@
+###  Публикация: 1369116   (905627) от 22.03.2020
+
+VA - We Love Trance (2020) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj SanNny - Ghost Ship 06:24
+02. Dj Mig - Relax 06:10
+03. Jean Luvia - Remembrance (Extended Mix) 06:55
+04. Crying Mask - Back Home 08:00(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26EE892997C78D8381AAEFE9A33AD0AEAD6A802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369224   (905574) от 22.03.2020
+
+VA - DJ Maretimo - Masterpieces Vol. 2 (2020) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Maretimo, Vladi Strecker - I Love The Night (Moonlight Flow Mix) 7:48
+02. Cinematic - Memories (Red Carpet Mix) 6:00
+03. Sean Hayman - Moments Of Silence (Back In Time Mix) 5:50
+04. Dj Maretimo, Stereo Gringos - Ipanema Injection (The Bossa Master Mix) 5:51(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFEFC2021FD65461AC334895397B02E7DA45A1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491951   (905338) от 28.08.2021
 
 Technimatic | Technicolour & Komatic - Discography 57 Releases (2007-2021) Shogun Audio, SGN:LTD, Technique Recordings [FLAC|Lossless|tracks+.cue, tracks] <Drum n Bass, Jungle, Liquid Funk>
@@ -675,64 +733,6 @@ VA - Red Velvet Erotic Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chill Ou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ACE67D463416B0F8A6E1BA547D1330E16C4E604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369354   (903114) от 23.03.2020
-
-Infected Mushroom - More than Just a Name (2020) [MP3|320 Kbps] <Psy-Trance, Dubstep, Electro House>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903114.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. More of Just the Same
-2. Only Solutions
-3. Ani Mevushal
-4. Symphonatic (Infected Mushroom & Astrix Remix)(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3E0BFFA6E6ABFC06E6190E01870B9C8C97FCE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991408   (902714) от 01.03.2016
-
-Malk & StarJam - Elements (2016) [MP3|320 кб/с] <Electronic, Deep Dubstep>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elements (04:15)
-02. Arabica (03:17)
-03. Take Away (feat. Dakooka) (04:46)
-04. Wrong (feat. Dakooka) (04:10)(   Читать дальше...   )Жанр: Electronic, Deep DubstepПродолжительность: 00:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881492AF5FFE3E0F6915030C8F9206AACEC1DAF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

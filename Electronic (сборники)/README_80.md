@@ -1,3 +1,32 @@
+###  Публикация: 1130259   (716788) от 01.05.2017
+
+VA - Empire  Records: Chill Trance 2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kim McNichols - Better Off Alone (Summer Pool Party Mix)  4:03
+02.  Michael Ribeira - Ecuador (Slowsphere Remix)  4:07
+03.  Marga Sol - Beautiful Morning (Marga Sol Deep Mix)  3:54
+04.  Kid Vibes - I See You (Instrumental Version)  4:16(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E26199F73908A5979DA4A00B691C67A7DC67F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130410   (716654) от 01.05.2017
 
 VA - LUXEmusic - Dance Super Chart Vol.116 (2017) [MP3|320 Kbps] <Club House, Deep House, Electro House>
@@ -718,35 +747,6 @@ VA - Imaginary World Electronic (2020) [MP3|320 Kbps] <09:36:35>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:837C13DD874A101820479270F8B04B33B0714C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401016   (713344) от 08.08.2020
-
-VA - Expression Vocal House (2020) [MP3|320 Kbps] <Vocal House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713344.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cocino - Where Do We Go
-002. Jay Fox - Heartbeat
-003. Sunnery James - Pray (Extended Mix)
-004. Asher Postman - Walk Away(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 08:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6DD1F0E3C5C55A47EA2341DCC56971DD72A2E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

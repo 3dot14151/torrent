@@ -1,3 +1,61 @@
+###  Публикация: 1759638   (37401) от 13.11.2024
+
+Градусы - Голая (2011) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Кто Ты?
+02		Бледные Поганки
+03		Лох
+04		Режиссёр(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FDA2E027E0AE00DC324A560024F9A5939006752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760678   (37221) от 15.11.2024
+
+Алиса Фрейндлих - Избранное, Часть 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37221.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Посвящение (Из спектакля "Люди и страсти")
+2. Вопросы (Из спектакля "Люди и страсти")
+3. Мария-Антуанетта (Из спектакля "Люди и страсти")
+4. Ход жизни (Из спектакля "Люди и страсти")(   Читать дальше...   )Жанр: RetroПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A99794483978E811E76A20F05EF3B00A72F46FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760671   (37198) от 15.11.2024
 
 Алиса Фрейндлих - Избранное, Часть 1 (2024) [MP3|320 Kbps] <Retro>
@@ -683,64 +741,6 @@ Olivia Newton-John - Angels In The Snow (2008) Reimagined, 2024, Primary Wave Mu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC56AC86B7206A5C1433A227A61A4241B805BDDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763225   (35614) от 30.11.2024
-
-Lara Fabian - Je suis La (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Je suis là (2:26)
-02. Ta peine (2:46)
-03. Je t'ai cherché (3:37)
-04. Hypersensible (2:28)(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EDDDF8DB7B111175DA1E4AEE3322218D9F4689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763477   (35518) от 01.12.2024
-
-Patrick Cowley - From Behind (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iko Iko
-02. 20th Century Fox (feat. Paul Parker)
-03. Ride My See-Saw
-04. Shakin’ All Over(   Читать дальше...   )Жанр: Disco, Hi NRGПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9065B19AF722F1F27DD11014F6C3A11A67ED16B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

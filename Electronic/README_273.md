@@ -1,3 +1,61 @@
+###  Публикация: 1155646   (531682) от 04.08.2017
+
+VA - FSOE pres. Ibiza (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aly & Fila - Beyond The Lights (Original Mix)  3:53
+02.  Dan Stone & Ferry Tayle - Vona (Original Mix)  3:54
+03.  The Thrillseekers feat. Katherine Amy - I Gotta Let You Know (Original Mix)  2:34
+04.  James Dymond - Carry Me Away (Original Mix)  3:25(   Читать дальше...   )Жанр: TranceПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1993AA073B4172B72AE0643023AA9E645308902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155689   (531678) от 04.08.2017
+
+VA - Ori Uplift - Uplifting Only 234 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PRE-RELEASE PICK: InnerSync - Fairies from the Magic Forest (EXCLUSIVE PREMIERE)
+02. Sunsitive feat. Angel Falls - Summer Love (Derek Palmer Remix)
+03. Aurosonic & Sue McLaren - Captured By Gravity (Omar Sherif Extended Mix)
+04. Bryan Kearney & Plumb - All Over Again (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8903C5C9B2F4E8FF403137C97E6E6A92536573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155639   (531576) от 04.08.2017
 
 Hauschka - What If (2017) [FLAC|Lossless|WEB-DL|tracks] <Prepared Piano, Modern Classical, Contemporary>
@@ -685,64 +743,6 @@ Alan Fitzpatrick - System Addict (2018) Unknown To The Unknown [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1787A5799C1CBBC044C511CD5AA73F90B575F51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155768   (529790) от 05.08.2017
-
-VA - Freudentanz - Ibiza Party (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melbourne Freaks - Deep Deep Down (Extended Mix) 05:42
-02. Prince Ringo - Don Trumpet (Clubmix) 06:43
-03. Dj Absinth - Revolution (Club Edit) 04:36
-04. The Fakies - Real Love 04:55(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0969D49203511500565EFB932AD668F40D3A0ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156081   (529789) от 05.08.2017
-
-VA - BBQ Chilling Vol.1 (Smooth Summer Dinner & BBQ Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  James Butler - Montmartre Impressions  2:04
-02.  Martin Liege - Baby Come On  3:39
-03.  Gordon Geco - Frequencys  5:05
-04.  Guna Nada Das - Jaya Ganesha  7:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7873EC13C8F6B2D977C475A1DAEC501D66298D
 ```
 
 https://mybot314.ru/tekegram_catalog/

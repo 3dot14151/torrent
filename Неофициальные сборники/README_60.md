@@ -1,3 +1,177 @@
+###  Публикация: 978282   (963502) от 23.01.2016
+
+VA - Relaxing Acoustic Folk Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Blues, Folk>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liz Madden - Night & Day
+02. Olga Holding - The End of the Trail
+03. Devin Sinha - Orion
+04. manintheraw - Hallway Song(   Читать дальше...   )Жанр: Downtempo, Chillout, Blues, FolkПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB93954570248350DA120A8367E0C131494E5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978440   (963354) от 23.01.2016
+
+VA - Workout Mix vol.3 (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Andrey Vertuga & Juliana Neva & Wild Cat - Вперёд (DMC Mikael & Denis Zubov Remix)
+02-Busta Rhymes - Break Ya Neck (DJ Krec & DJ Dima House Remix)
+03-Bodybangers feat. Victoria Kern - Get Up (Club Mix)
+04-Ice Cube Ft. 2 Chainz & RedFoo vs DJ Niki - Drop Girl (Mikis Mash Up)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive House, TrapПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E94D4B046E59DDE9E1403C75CC5F2EB4E28CC92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978081   (963334) от 23.01.2016
+
+VA - Blues Forever (2015) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Christian - Wholly Cats
+02. Carl Kress - Jazz in G
+03. Blind Lemon Jefferson - Shuckin' Sugar
+04. Lefty Frizzell - Long Black Veil(   Читать дальше...   )Жанр: BluesПродолжительность: 05:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7368E426704B83A57D282E980F4AC02696E95EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359736   (963268) от 13.02.2020
+
+VA - Interior Lounge Sounds Vol.02 (2020) [MP3|320 Kbps] <Lounge, Relax, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963268.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hedflux, Alex Delfont - Manifolds
+002. Ron Sander - True Lies (Intense Mix)
+003. Nova Casa - Feel
+004. Juan Candados - Su Manzanu (Original Mix)(   Читать дальше...   )Жанр: Lounge, Relax, DowntempoПродолжительность: 09:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DBF15F86BB79CEDCB03AFB2D80A413BFB954BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359737   (963217) от 13.02.2020
+
+VA - Back In The Future: Indie Pop Rock (2020) [MP3|320 Kbps] <Indie, Pop, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963217.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Oh Pep! - Bleeding Hearts
+002. They Owe Us - Rest My Mind
+003. Zach Rogue - Mrs. Santa Claus
+004. Ella Blixt - Hellsinkin(   Читать дальше...   )Жанр: Indie, Pop, RockПродолжительность: 10:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F135038AE9576C8D4E530EDB66782FA53126B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359743   (963208) от 13.02.2020
+
+VA - Beatport Techno: Electro Sound Pack #11 (2020) [MP3|320 Kbps] <Techno, Tech House, Electro, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Mood - Thoughts Are Clear (Original Mix)
+02. Dj Dextro - Reflection (Original Mix)
+03. Mari Mattham - Foggy Destiny (Original Mix)
+04. Suspect Boyz - Madrid (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech House, Electro, MinimalПродолжительность: 07:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32040658692C20C7673CA518FC7499B9FD5F1901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359742   (963163) от 13.02.2020
 
 VA - House In Space (2020) [MP3|320 Kbps] <Future House, EDM, Electronic>
@@ -569,180 +743,6 @@ Accept - Heavy Ballads (2015) 2CD [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76DFAC8E80D7E9B23E03C80590BECFA2DE7A5CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978694   (960941) от 25.01.2016
-
-VA - Зимний Муз-драйв 100-ка популярной музыки (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NikitA - Вдыхай
-02. Sasha Lopez - Moments ft Ale Blake & Broono (Extended Club Mix)
-03. Дима Билан - Неделимые
-04. Alex Kafer & Lera Feat. Ural Djs - Алешка(   Читать дальше...   )Жанр: PopПродолжительность: 06:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126BB984306825319E14C44DA370626654966C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747821   (960907) от 20.01.2014
-
-Александр Барыкин - Лучшие песни (4CD) (1981-2011) (2014) [MP3|320 кб/с]<Rock, Reggae, New Wave>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960907.jpg" />
-</div>
-
-
-###  Подробнее
-
-51. Осень пришла (2003)
-52. Ночь-голубая тайна (Ая!) (2003)
-53. Спасательный круг (2004)
-54. О любви (2005)(   Читать дальше...   )Жанр: Rock, Reggae, New WaveПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8390386D23705F24A0D00B8AF208FD70C695419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979079   (960816) от 25.01.2016
-
-VA - Blues Forever vol.08 - vol.12 (2015) [MP3|320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blues Forever vol.09
-01. Pepe Ahlqvist - Dont Leave Me Again
-02. John Lawton - Tomorrow
-03. Sherman Robertson - In The Here And Now(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A91F0671A7CD60154B0157B433523FBA3B6CA2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360378   (960630) от 15.02.2020
-
-VA - Rap NNM 2020 [MP3|320 Kbps] <Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960630.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Mac Miller - Good News (5:42)
-2.H.E.R., Pop Smoke, A Boogie wit da Hoodie, Chris Brown - Slide (4:56)
-3.Madchild, Tom MacDonald, Nova Rockafeller - Sober (4:33)
-4.NF - Time (4:00)(   Читать дальше...   )Жанр: RapПродолжительность: 03:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5493A3DF4D8E3C48AD2E7EC124486111A17C2E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360276   (960294) от 15.02.2020
-
-VA - Громкие новинки Февраля (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960294.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.A$AP Ferg - Value (2:47)
-2.AJR - Bang! (2:50)
-3.Anivar feat. Adamyan - Руку Держи (3:57)
-4.Anne-Marie - Birthday (3:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67ACCC173C5C0DEEBAE96227D67BC581D3463BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979575   (959963) от 26.01.2016
-
-VA - Restart The Game (2016) [MP3|320 кб/с] <Tech, Deep, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959963.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hardwell & Armin van Buuren - Off the Hook (Radio Edit)
-002. Kollektiv Turmstrasse - Sorry I Am Late
-003. Sander Van Doorn & Sunnery James & Ryan Marciano - ABC (Extended Mix)
-004. Technasia, Green Velvet - Suga(   Читать дальше...   )Жанр: Tech, Deep, Progressive HouseПродолжительность: 09:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA26AFE56DCE1BA4E4E98E6DCF6F6C2AE9CAB930
 ```
 
 https://mybot314.ru/tekegram_catalog/

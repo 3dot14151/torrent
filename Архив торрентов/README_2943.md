@@ -1,285 +1,3 @@
-###  Публикация: 569460   (392263) от 03.11.2012
-
-DJ EXTAZ - Electro Progressive Attack (2012) [MP3|320 кб/с]<Electro, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392263.jpg" />
-</div>
-
-
-###  Подробнее
-
-N/AЖанр: Electro, HouseПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFDE3EE15315446F5FDB073B6861E7C9F333A141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569992   (392261) от 03.11.2012
-
-[Wallpapers] Weapon Desktop Wallpapers Pack 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392261.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Weapon Desktop Wallpapers Pack 1
-Название: Weapon Desktop Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1925х1444
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:360DA8D809CAA5D0DD603D3F0DC75C8B0DB2A2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569809   (392236) от 03.11.2012
-
-VA - Танцевальный Рай 3 (2012) [MP3|128 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392236.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arash feat. Sean Paul - She Makes Me Go
-002. Павел Воля - Я Танцую!
-003. Alexandra Shine - Moscow (Radio Edit)
-004. DJ Boyko & DJ Noiz feat. Katy Queen - Между Нами (Radio Mix)
-005. Joa Lucas E Marcelo - Eu Quero Tchu Eu Quero Tcha (Tchu Tcha Tcha) (Rico Bernasconi Remix)
-006. Дискотека Авария - Ноги-Ноги
-007. Godlike Music Port - Jambo Jambo Jambo (Radio Edit)
-008. MMDance - По 50
-009. Maroon 5 - One More Night (Seamus Haji Remix)
-010. Руки Вверх - Я Тебя Люблю(   Читать дальше...   )Жанр: PopПродолжительность: 11:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5C195CDC245C04D14B2E74920842A18CBB93B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568743   (392231) от 03.11.2012
-
-VA - Радио Шторм - Русский Шторм - 78 (2012) [MP3|128 кб/с]<Pop, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392231.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 3D-Mix - Я Улетаю (Remix)
-        2. Anton Pavlovsky feat.Anisa - Без Тебя
-        3. Archi-M - О Боже
-        4. Artik pres. Asti - Сладкий Сон
-        5. B.K. - Просто Забудь
-        6. Bel Suono & Dj Magic Finger - Любовь Бесконечна
-        7. Enevika - Найди Меня (Official Remix)
-        8. Glamour - Осень
-        9. LiLi - Самурайка
-        10. Music People Deejays (MPDJ&) - ФлюидыЖанр: Pop, DanceПродолжительность: 02:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E53C574E8E4856C91A5F89A2A4C8BD1895ABFFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569386   (392224) от 03.11.2012
-
-VA - Русский Осенний Авто Хит (2012) [MP3|256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MaXimA - Так тихо (Fidel Wicked radio edit)
-02. Ажур - Не надо искать
-03. Алекс Малиновский и Сергей Рига - Белые Ночи
-04. VITA - Вставай!
-05. Юлия Савичева - Привет, Любовь Моя
-06. D1N feat. DJ Denis Serbolin - Только Твой
-07. Julia Lasker - Хочу (Ivan Frost Remix)
-08. T - Killah feat. Настя Петрик - Маленький Солдат
-09. Lайт - Я Люблю Тебя
-10. Рок - Острова & Сердце - Я Не Верю(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C1EBEEDEEF66F7984FD3D42B2F9E1E03B5599E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 402501   (392205) от 21.10.2011
-
-Formula Racing: Ultimate Drive (1.3) [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Formula Racing: Ultimate Drive - Формула один уже теряет популярность в игровой индустрии. Компания NITRO решила вдохнуть в данный вид гонок новую жизнь. Она переработали внешний вид автомобилей, и снабдили каждую машину реактивным двигателем. На ваш выбор двадцать четыре автомобиля и 120 гонок с наградами. Вас ждут неплохая графика и очень динамический геймплей. (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 20 октября 2011 г.Разработчик: NITROПоддерживаемая ОС: 1.6+Жанр: Racing (Гонка)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569061   (392193) от 03.11.2012
-
-[Wallpapers 16+]Sexy Gilrs Wallpaper Collection
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень большая подборка (9540шт) обоев для рабочего стола. Разбита на папки по разрешениям.Разрешение файлов: 1024х768~2560х1600.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63E517B86E28E37CD6253DAA84021DE9F7E1D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569305   (392191) от 03.11.2012
-
-VA - MAXI. Музыкальные новинки осень (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Размер Project - В Облаке Неба
-02. Milena & Murzin Denis - Города (ReWork Radio Edit)
-03. Artik pres. Asti - Сладкий Сон
-04. Kato & Electric Lady Lab - Alive
-05. Рената Штифель - Опускаю Оружие
-06. Sean Kingston feat. Cher Lloyd - Rum And Raybans
-07. Sandra N. - Obsession (Radio Edit)
-08. Narcotic Sound & Christian D - Ciuci Mami (Radio Edit)
-09. Samo'L - Двигаем Телами
-10. Massivedrum & Gabriela - Just Touch (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7ED99A008192986CE3AF11EAE4AAA3DCBB0FBB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569831   (392190) от 03.11.2012
-
-VA - Mind Over Matter (Compiled By DJ Horizon) (2012) [MP3|320 кб/с]<Trance, Psychedelic Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinerider - Gyroscopter (09:05)
-02. Neuroplasm - Regenesis (08:42)
-03. Cyclon - Medicated (07:51)
-04. Materia Vs Plasmotek - Uncivilised World (08:20)
-05. Waid - Sonic Infusion (08:44)
-06. Brainiac - Dream Sequence (09:01)
-07. Intelligence Vs Attic - Future Disclosure (08:09)
-08. Tron Vs Glitch - It Vaporizer (07:36)
-09. Ilai - Bunga Bunga (08:47)Жанр: Trance, Psychedelic TranceПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFB03B2F519CEA8A272BFBE3A3C09793E74DD61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569917   (392186) от 03.11.2012
 
 Win7codecs 3.8.4 + x64 Components [MULTi / Русский]
@@ -763,6 +481,260 @@ Coda 2.6.7 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F105451BCFD9D9DFD92C058AA29BBAC572710D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172787   (392043) от 09.10.2017
+
+save2pc Ultimate 5.5.2 Build 1572 RePack by вовава [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392043.jpg" />
+</div>
+
+
+###  Подробнее
+
+save2pc Ultimate - новая версия неплохой программы, которая позволяет скачивать видеофайлы со множества разнообразных онлайн-видеосервисов, таких как Youtube, Google Video, Myspace Video, Break.com и многих других. Крайне простая в использовании. Просто вставьте ссылку на нужный файл в окошке программы, выберите нужный формат и запустите автоматическую загрузку / (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C2813E8F63761CFDFF8DC6475F3DA4DF3D9601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172780   (392041) от 09.10.2017
+
+Mellel 4.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mellel – продвинутый мультилингвистический текстовый редактор, созданный специально для студентов, писателей, журналистов и всех, кто хочет комфортно набирать текст.
+
+Mellel предлагает специальные инструменты для написания и оформления длинных документов. Mellel отличный выбор для работы с документами на арабском, персидском, иврите и сирийском языках. Но даже если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2017Разработчик: RedleXПоддерживаемая ОС: OS X 10.6 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527E94FB136C3A74AFBFBACF65F93A8AE8F7BF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172727   (392039) от 09.10.2017
+
+Alix Perez - Nighthawks (2017) EP [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky Charm (05:18)
+ 02. Blips (03:54)
+ 03. Nighthawks (04:36)
+ 04. Missing Pieces (feat. Javeon) (04:59)Жанр: Drum & BassПродолжительность: 00:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C873490911A49BF0E8003951BAA162F645766F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569528   (392036) от 03.11.2012
+
+Cheek ft. Jonne Aaron - Anna Ma Meen (2012) [H.264] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BA1C320BEDF59900AE1997C491263DD5D5FD52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569168   (392032) от 03.11.2012
+
+Celine Dion - Sans Attendre (2012) (Deluxe Edition) [MP3|~245 кб/с (V0)]<Pop, French Vocal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parler Á Mon Pére 2:55
+02. Le Miracle 3:57
+03. Qui Peut Vivre Sans Amour 3:29
+04. L'amour Peut Prendre Froid (Duet With Johnny Hallyday) 3:29
+05. Attendre 3:28
+06. Une Chance Qu'on S'a (Duet With Jean-Pierre Ferland) 3:32
+07. La Mer Et L'enfant 3:08
+08. Moi Quand Je Pleure 3:51
+09. Celle Qui M'a Tout Appris 3:48
+10. Je N'ai Pas Besoin D'amour 3:32(   Читать дальше...   )Жанр: Pop, French VocalПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E537A1AAF84AD6DE1BF7F1584AE4F8188CE37CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 402585   (392017) от 21.10.2011
+
+Неудовлетворенное сексуальное напряжение / Tension sexual no resuelta (2010) [H.264] DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392017.jpg" />
+</div>
+
+
+###  Подробнее
+
+В знойной Испании красавицы и красавцы увлеченно разбираются в хитросплетениях своей сексуальной жизни — кто, с кем, когда и к чему приводят мимолетные увлечения.Производство: Испания /  Amiguetes Entertainment, Aragón Television, Bowfinger InternationalЖанр: КомедияРежиссер: Мигель Анхель ЛаматаАктеры: Норма Руис, Пилар Рубио, Салом Джименез, Мигель Анхель Муньос, Феле Мартинес, Амайя Саламанка, Адам Езерски, Сэмюэл Миро, Хоакин РейсПеревод: ДублированныйСубтитры: HeTФормат: MKVПродолжительность: 01:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CEB83CEC30274150976AF12AA2C91EB148A5C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 402224   (392016) от 21.10.2011
+
+Кунг-фу Панда 2 / Kung Fu Panda 2 (2011) DVD9
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Панда По наконец-то исполнит свою мечту, станет Воином Дракона и со своими друзьями и мастерами кунг-фу — Неистовой Пятеркой — защитит Великую Долину от страшного злодея и его легиона…Производство: СШАЖанр: Мультфильм, Боевик, Комедия, Приключения, СемейныйРежиссер: Дженнифер ЮПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60D00FCA674CC1E583CF1247AEE0B0D1396E3E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172460   (391963) от 09.10.2017
+
+CunninLynguists - Rose Azura Njano (2017) [MP3|320 kbps] <Hip-Hop, Rap, Soul>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red, White & Blues f. Jason Coffey (3:47)
+02. Riot! (4:04)
+03. Red Bird (4:21)
+04. Violet (The Upper Room) (3:47)(   Читать дальше...   )Жанр: Hip-Hop, Rap, SoulПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36C5582AAE0D1C3D4B298415AE65594576976A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172719   (391961) от 09.10.2017
+
+Royalston - Popular Mechanics (2017) [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Late Heavy Bombardment (04:21)
+ 02. Diorama (05:03)
+ 03. We Were Told (feat. Amy Kisnorbo) (03:50)
+ 04. Spladerunner (04:09)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9C6EAAA3CB057A974AF34FD20D1113A735D7E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

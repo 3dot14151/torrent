@@ -1,3 +1,61 @@
+###  Публикация: 1309475   (551139) от 19.06.2019
+
+VA - Summer Hits (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer feat Roxanne Emery  -  Lullaby (LTN Extended Sunset Remix)
+02.  Neil Bronson feat. Lorela & Bertello  -  Can't Get Over (Original Mix)
+03.  Liezl & Adip Kiyoi  -  Words (Extended Mix)
+04.  Ayda  -  Higher (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Progressive TranceПродолжительность: 01:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75278613985DABCDDA8B8017631B2270229F4F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046879   (551102) от 28.08.2016
+
+VA - Chill Crossover - The 21st Century Soul Music (2016) [MP3|320 Kbps] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music Candy - Aching (2:21)
+02. Eddie Caldwell - Changing People (4:10)
+03. Nicolas Panderis - Sunset in Your Eyes (4:23)
+04. Eddie Caldwell - Love Song (4:57)(   Читать дальше...   )Производство: Ecstasy RecordsЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887F30D3E4711FC7E7D2747A7070200AE7B64DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046919   (551101) от 28.08.2016
 
 VA - Suanda Chillout - Mixed By RIB & Seven24 (2016) [MP3|320 Kbps] <Chillout, Lounge, Melodic>
@@ -687,64 +745,6 @@ Hot Chip - A Bath Full of Ecstasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1C2DF4EB7716092763C74480F6D0350CF1E9D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047731   (549398) от 30.08.2016
-
-VA - Chilled Summer Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christos Fourkis - Sueno De Amor (6:59)
-02. Nova Casa - Back For More (6:54)
-03. Peter Pearson - Your Soft Caress (4:39)
-04. House Republic - Intillah (HR Deep Mix) (3:55)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D70F589E644C4CAE5CE1D556D5C1D0C0D9F74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047603   (549395) от 30.08.2016
-
-VA - Drift Perfect Chillout Tracks (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julienne Taylor - Song to the Siren
-02. Classical Sculptures - American Beauty
-03. Celtic Spirit - The Rosebud
-04. Classical Sculptures - Nimrod(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B4445D74FD352D2BBD8F23FD16660EC52177ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

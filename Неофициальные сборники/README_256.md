@@ -1,3 +1,177 @@
+###  Публикация: 1402552   (699572) от 15.08.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 14.08.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dotan - NUMB (3:38)
+02. R3HAB & GATTÜSO - Creep (2:41)
+03. twocolors - Lovefool (3:10)
+04. Imanbek & Martin Jensen - I'm Just Feelin' (Du Du Du) (2:45)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A4C5ADFAB3740628FD806AFE931774C57D1E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026836   (699457) от 17.06.2016
+
+VA - Record Russian Mix Top 100 June 2016 (16.06.2016) (2016) [MP3|320 кб/с] <House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699457.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Denis Rublev - Sweet Nothing (Night & Toni Aries Mashup) 5:12
+002. DJ Ilya Lavrov - DonT Fuck My Brain (Radio Mix) 3:37
+003. Andrey Exx, Shirshnev & Troitski feat. Sevenever - Go Insane (Original Mix) 4:31
+004. Alan Walker - Faded (Kolya Funk Eddie G Remix) 4:22(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 07:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C288090CB1CD5A86DD4543DB2B9FA70BD45C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533606   (699415) от 27.02.2022
+
+VA - Compilation Part 6 (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm All Right (You Can't See
+02. Got My Life
+03. Time
+04. Love That Hurts(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DA1BBD89A7E246A3FF6F0AD5DEC3FB3CB6C61D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287783   (699165) от 09.03.2019
+
+Sweet - The Platinum Collection (2019) 2CD [MP3|320 Kbps] <Classic Rock, Glam Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set Me Free
+02. Fountain
+03. Little Willy
+04. Rebel Rouser(   Читать дальше...   )Жанр: Classic Rock, Glam Rock, Hard RockПродолжительность: 02:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9B418844B25A65C7A862F8E102E081862D63DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401746   (699115) от 15.08.2020
+
+VA - Ремейки и каверы NNM (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lenka - Mr. Tambourine Man (5:29)
+02. Zivert - Ветер перемен (4:27)
+03. А - Студио, The Jigits - Прощай (4:18)
+04. Светлана Лобода - Текила-Любовь (4:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C454C6706798927A5F2DE1973C7322EF6E8765A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349805   (699055) от 27.02.2022
+
+VA - Понемногу отовсюду by Yuridar #U-Z (1984-2021) Compilation Album [MP3|160-320 Kbps] <Rock, Blues, Others>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U2 - Lemon (edit)
+02. U2 - Stay (Faraway, So Close)
+03. UNKLE - Blackout
+04. UNKLE - Looking for the Rain (feat. Mark Lanegan, Eska)(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 04:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F7E4F0DB7D671426228B6FC93A73A6350A35B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288102   (699041) от 09.03.2019
 
 VA - Шансон Весна 2019 [MP3|320 Kbps] <Шансон>
@@ -568,180 +742,6 @@ Sophia (Robin Proper-Sheppard) - Collection (1996 - 2009) [OGG|442-560 кб/с] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EABBEC93EBB2729701A811AEBAC0DE82838D5E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132924   (698246) от 10.05.2017
-
-VA - Ремиксы Русского Кино (2017) [MP3|320 Kbps] <OST, Remixes, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Грув - Вальс (Берегись автомобиля)  2:49
-02.  DJ Грув - Утро (Служебный роман)  3:22
-03.  DJ Паша Кореец - Перемен (АССА)  4:54
-04.  Natali - Звезда по имени Солнце (Игла)  4:16(   Читать дальше...   )Жанр: OST, Remixes, DanceПродолжительность: 01:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604820880077B321CFCD9305AD528C8F05664E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027234   (698243) от 18.06.2016
-
-VA - New Age: Deep Sleep Lullabies (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucinda Luvaas - Drifting Off to Sleep
-02. Ryan Rapsys - Inland Serenity
-03. Suzanne Schnite - Adrift
-04. Piotr Janeczek - Lost Souls(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60B4EEAF442FAA05C6FBC0D05BAD55663ED2AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027217   (698238) от 18.06.2016
-
-VA - I Love Ballads - Part VII (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charles Aznavour - Comme Ils Disent
-02. E-Type - Star
-03. Eternal - Don't You Love Me
-04. Eros Ramazzotti & Cher - Piu Che Poi(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C67E129D01D27B0981E932D1E17E12A3ECCCC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026988   (698236) от 18.06.2016
-
-VA - Грехи юности. Академия хитов шансона (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698236.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Келеберда - Пиастры
-002. Виктор Матросов И Наталья Штерн - Спасибо Тебе
-003. Евгений Коновалов - Три Аккорда
-004. Александр Альтергот - Одесская(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34018A9D1115E091273FC450BF9464480F75E0F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220950   (698143) от 22.04.2018
-
-VA - Club Dance Ambience Vol.144 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698143.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Betta Lemme - Bambola (Konstantin Ozeroff & Sky Remix)
-002. Feduk - Хлопья Летят Наверх  (Dj Richi Remix)
-003. Sigrid - Strangers (Jolyon Petch Club Mix)
-004. The Bestseller - Da Bomb (Original Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA89A8793B5E2293D436CAF86E9E0329F87774B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220951   (698142) от 22.04.2018
-
-VA - Absolute Dance Spring 2018 [MP3|256-320 Kbps] <Dance, Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daft Punk - One More Time (Short Radio Edit)
-02. Tiesto - Adagio For Strings (Radio Edit)
-03. The Prodigy - Smack My Bitch Up
-04. Underworld - Born Slippy (Nuxx / Remastered)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 04:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106D6706D0C0F674318EB2DE8FF4A61E44D0E4AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1627030   (199705) от 17.04.2023
+
+VA - Крутые пушки Весна 2023 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.Diddy Feat Keyshia Cole - Last Night (Max Flame & Dacks Remix) (2:52)
+02. Wongo - - The Preacher feat. Chuck Roberts (Sammy Porter Extended Remix) (2:59)
+03. Floral - Need To Feel Loved (MYRON x ZAN Remix) Radio Edit (3:48)
+04. Eminem Feat Nate Dogg - Shake That (Max Flame & Dacks Radio Remix) (4:04)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 04:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B91D3700381007CED9EBA4ABFC6B816ED449ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626888   (199666) от 16.04.2023
 
 Pawel-Wisniewski - Compilation (2023) [MP3|224 Kbps] <Electronic, Instrumental, Relax>
@@ -716,35 +745,6 @@ VA - Record Super Chart 05.11.2022 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3420F018BDE45A0CF321329681178E886991944A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589411   (190149) от 09.11.2022
-
-VA - Deep House, Baby 5 (2022) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_190149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Durand & Ellie Lawson - Wide Awake (RoelBeat Remix) (3:38)
-02. Costa Mee - Remembering Your Touch (Housenick Remix) (4:16)
-03. Katie Melua - Wonderful Life (Scanna Remix) (2:49)
-04. NekliFF, Mary S.K. - Parallel Life (Original Mix) (4:34)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B72ABB514BD57519779215AD1F4B3D8BD2A8362
 ```
 
 https://mybot314.ru/tekegram_catalog/

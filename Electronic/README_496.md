@@ -1,3 +1,71 @@
+###  Публикация: 454329   (93843) от 19.02.2012
+
+VA - Psychology Vol.3 (2012) [MP3|320 kbps]<Psychedelic / Ambient, Psy Chill>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lauge & Baba Gnohm - Nordlys 13:39
+ 02. Bob Tracker - 17 Grand Way 07:44
+ 03. Bahramji and Mashti - All About You 04:56
+ 04. MIC - Visite Champetre 16:53
+ 05. Nalepa - Snowflakes 06:00
+ 06. Metaphorical Cloud - Substance 06:04
+ 07. E-Mantra - If there is Nothing 07:29
+ 08. Soulalive - Undercurrent 05:10
+ 09. Easily Embarrassed - Blurred Clouds Under The Gloomy Moon 08:02
+ 10. Side Liner - A Hand To Hold 09:02(   Читать дальше...   )2012Жанр: Psychedelic / Ambient, Psy ChillПродолжительность: 01:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EFC983498F7E72FA4968BCC5ECD551FAE0A697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454308   (93829) от 19.02.2012
+
+Sanathana - Saraswati (2012) [MP3|192-320 kbps]<Psychedelic / PsyAmbient, Electronika>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Land of Nod 7:02
+ 02. Raghupati Raghava Rajaram 9:50
+ 03. Monsoon Dreams 9:43
+ 04. The Tree That Swayed Me 9:47
+ 05. Light Seeking Dancer 8:49
+ 06. The Purpose of Existence 9:12
+ 07. Down The Memory Lane 8:26
+ 08. Dark is So Bright 11:152012Жанр: Psychedelic / PsyAmbient, ElectronikaПродолжительность: 01:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D54CD38EDF12F71D8C065AFA68683E403D25D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 449672   (92879) от 09.02.2012
 
 Indra - Old Skool (2011) [MP3|320 kbps]<Psychedelic / Full On>
@@ -781,70 +849,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E8979805EB29322ED11BDF52B283B0E9C32DCB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476281   (85471) от 31.03.2012
-
-VA - The Ultimate Chilled Album (2008) [FLAC|Lossless]<Chillout, Lounge, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Man Called Adam - Love Forgotten
-02. Cagedbaby - Strawberry Letter 23
-03. The Cobra Experience - On The Verge (Blissed Out Mix)
-04. Kooka - Wanted
-05. Bridge Avenue - Momido
-06. The Sansom Affair - Emerald Dreams
-07. The Economist - Global Diffusion
-08. Yellow Stars - Roll The Dice
-09. Mister Rose And The Electric Birdcage - Running Lights
-10. The Glug Glug Cartel - Weightless (Heaven Mix)(   Читать дальше...   )2008Жанр: Chillout, AmbientПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474488   (84902) от 28.03.2012
-
-Катя Чехова - Сердце тебе в ответ (Сингл) (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84902.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Оригинал
-2. Лёгкая версия
-3. Агент Смит клаб микс
-4. Акапеллп2012Жанр: HouseПродолжительность: 00:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CC6CC2442559A197290C0AA3EE51293EAEE134
 ```
 
 https://mybot314.ru/tekegram_catalog/

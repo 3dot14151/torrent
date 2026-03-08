@@ -1,3 +1,32 @@
+###  Публикация: 1295528   (618606) от 13.04.2019
+
+Le Winston Band - Zig Zag Zydeco Zoo (2019) [FLAC|Lossless|tracks + .cue] <Zydeco, Cajun, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zoo Town Zydeco (4:32)
+02. En haut de la montagne (4:30)
+03. Chère Aline (5:02)
+04. Bureaucrates (4:29)(   Читать дальше...   )Жанр: Zydeco, Cajun, FolkПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEDB9AB40C6ED42276642AF727443233CC649AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 804149   (613686) от 13.07.2014
 
 Blood And Sun – White Storms Fall (2014) [FLAC|Lossless|tracks + .cue]<Neofolk, Dark Ambient, Folk>
@@ -722,35 +751,6 @@ Kacey Musgraves - Same Trailer Different Park (2013) [FLAC|Lossless|tracks] <Cou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58ED960956602402404E7D8F13AC34CD57599F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305638   (556132) от 01.06.2019
-
-Kacey Musgraves - Golden Hour (2018) [FLAC|Lossless|tracks] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Slow Burn  (4:06)
-02 - Lonely Weekend  (3:45)
-03 - Butterflies  (3:39)
-04 - Oh, What A World  (4:00)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812B037988A89D19AFA02A7ABD57B7914D535A4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1615597   (1037576) от 26.02.2023
+
+VA - Disco House Vol. 3 (2023) [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Afrobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Moy - Tribal Garden
+02. Cut Wax - A CW V1
+03. Dj Moy - NY City
+04. Phil Disco - Disco Deluxe From Tokyo(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, AfrobeatПродолжительность: 02:09:56 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E6BC0737166666709B856B8FCEBC37A6EEC2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615612   (1037574) от 26.02.2023
+
+VA - Play It!: Funky & Disco Vibes Vol. 55 (2023) CD, Compilation [MP3|320 Kbps] <Indie Dance, Funky, Nu Disco, Soulful>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K & K - Locked (Extended Mix)
+02. Stev Dive - Around (Extended Mix)
+03. Mikey Jubbly - You Are
+04. J.B. Boogie - Getting Back (Original Mix)(   Читать дальше...   )Жанр: Indie Dance, Funky, Nu Disco, SoulfulПродолжительность: 01:42:29 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B93E96C878A5075033A247175A1285410FFCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615527   (1037534) от 26.02.2023
 
 VA - Romantic Collection. Sweden (1999) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
@@ -686,64 +744,6 @@ VA - Calming Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8CCC301CC0C56664DABB54899436F2046958D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443197   (1035707) от 28.01.2021
-
-Steps - What the Future Holds (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop, Euro Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What the Future Holds (Single Mix) [03:49]
-02. Something in Your Eyes [03:02]
-03. Clouds [03:55]
-04. To the Beat of My Heart [03:10](   Читать дальше...   )Жанр: Dance Pop, Euro DiscoПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8374C7A1593273BFD1997E5DA150BBEA712AC74B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617221   (1035558) от 05.03.2023
-
-Various - Here It Is: A Tribute To Leonard Cohen (2022) [FLAC|Lossless|image + .cue] <Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продюсер Ларри Кляйн отдает дань уважения своему другу Леонарду Коэну, выпустив альбом, который представляет потрясающие новые исполнения композиций легендарного певца и автора песен в исполнении экстраординарного состава вокалистов.01. Norah Jones — Steer Your Way
-02. Peter Gabriel — Here It Is
-03. Gregory Porter — Suzanne
-04. Sarah McLachlan — Halleluja(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE33E170C44A58EBCD0961721604CA4946B0B9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

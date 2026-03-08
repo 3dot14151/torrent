@@ -1,3 +1,32 @@
+###  Публикация: 1120286   (803657) от 30.03.2017
+
+Gregory Fine (Григорий Файн) Trio - Happy Bluesday (1999) Boheme Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.There Is No Greater Love [06:13]
+ 02.Waltz fo Natalie [04:55]
+ 03.Hoe Deep Is The Ocean [06:46]
+ 04.Georgia On My Mind [06:49](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B1A0172F252AC43117B7877C1E24148EEEF5F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120280   (803651) от 30.03.2017
 
 VA - Blue Note Blend (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
@@ -716,35 +745,6 @@ Cliff Jackson - 1930-1945 (1997) Classics [FLAC|Lossless|tracks + .cue] <Early J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F074C97848099FC5209C9BDB2E6135D32B852A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199496   (801134) от 16.01.2018
-
-Coleman Hawkins & Pee Wee Russell - Jam Session In Swingville (1961) 1994, Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jammin In Swingville [09:35]
-02. Cool Sunrise [10:43]
-03. Spring's Swing [07:58]
-04. Love Me Or Leave Me [07:19](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1C5AAE84A2B374256A0CF8DC4FCAA8CA2FBC9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

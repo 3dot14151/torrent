@@ -1,3 +1,61 @@
+###  Публикация: 1045207   (561529) от 22.08.2016
+
+Jan Hammer - Beyond The Mind's Eye (1993) [FLAC|Lossless|image + .cue] <Downtempo, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seeds (4:10)
+02. Too Far (3:26)
+03. Magic Theater (3:43)
+04. Sunset (3:10)(   Читать дальше...   )Жанр: Downtempo, SynthpopПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD260ABEBE86D0C395D1B8615DA322CE390324E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045181   (561393) от 22.08.2016
+
+The Fixx - 15 Albums (1982-2014)(16 CD) [MP3|320 Kbps] <Electronic, New Wave, Pop-Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561393.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Fixx — британская рок-группа из Лондона, игравшая в жанре Новой волны. Не являясь звездами первой величины, группа смогла завоевать успех на мировой сцене, включая США благодаря хитам One Thing Leads to Another, Saved by Zero, Red Skies, оказав влияние на этот жанр музыки в 1980-е годы. The Fixx работали в стиле новых романтиков, сочетая клавишные, подобно Tears (   Читать дальше...   )Список альбомов:
+1982 - Shuttered Room
+1983 - Reach The Beach
+1984 - Phantoms(   Читать дальше...   )Жанр: Electronic, New Wave, Pop-RockПродолжительность: 13:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000F42C10A93D65621627D5892EA4B2E1990E30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044583   (561389) от 22.08.2016
 
 Isao Tomita - Kosmos (1978) RCA Victor, 1991 [FLAC|Lossless|image + .cue] <Electronic, Ambient>
@@ -685,64 +743,6 @@ VA - I Love Chill: Finest Ambient Lounge and Chillout Music (2016) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CB6A2DDCA491A9E65F3179D1AA67A42F10CC5C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045445   (559827) от 23.08.2016
-
-VA - DUBAI: Best Lounge Music, Vol. 3 (2016) [MP3|320 Kbps] <Lounge, ChillOut>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sesion de Los Flores - Gotas de Agua Dolce (6:32)
-02. Cazintel - Beerenmixtur (Radio Version) (3:49)
-03. Alex Nothlich - Our Work Is Done (5:23)
-04. Fred and Flow - Chill Bill (5:47)(   Читать дальше...   )Жанр: Lounge, ChillOutПродолжительность: 02:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6461C51FD7B4F17EC166CF07206437CF6D43745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045373   (559816) от 23.08.2016
-
-VA - Yellow Bikini, Vol. 1 (2016) [MP3|320 Kbps] <Deep House, Electronic, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B3nLizz - Heat [3:30]
-02. Da Angerboyz - Dreaming 2 [6:12]
-03. DJ Luciano - If U Come Closer [4:21]
-04. Dj 4Real - I'm Free [7:08](   Читать дальше...   )Жанр: Deep House, Electronic, Progressive HouseПродолжительность: 01:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617B615422F5550030324FAA97677445B8861C4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

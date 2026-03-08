@@ -1,3 +1,61 @@
+###  Публикация: 1652210   (218497) от 10.08.2023
+
+VA - Deep House Relief (2023) CD, Compilation [MP3|320 Kbps] <Deep House, Downtempo, Soulful, Beach House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_218497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M-Sol DEEP, Tomas Zolan - Naomi (Original Mix)
+02. Duel (HU), M-Sol DEEP - Scarlet Sun (Original Mix)
+03. NatureVibes, M-Sol DEEP - Fantasy (Original Mix)
+04. DMTunes, Teeka, M-Sol DEEP - Bodhi (Original Mix)(   Читать дальше...   )Жанр: Deep House, Downtempo, Soulful, Beach HouseПродолжительность: 01:30:01 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B055011C83A1125349C8994CC42AE6F0190D9882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425797   (218460) от 22.11.2020
+
+VA - House Clubhits Megamix 2021 (2020) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caleidescope, Gxldjunge - Enjoy The Silence (Caleidescope Version) 2:31
+02. Dj Blackstone - Somebody To Love (Dj Kone & Marc Palacios Remix) 5:12
+03. Mathy - Snak (Original Mix) 4:46
+04. Ka!Ro - Seven Nation Army 3:01(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FEDB64704ADAE646D194724F2EA67E3FAC02A74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966716   (218345) от 18.12.2015
 
 VA - Digiseeds (Compiled by Ambientium) (2015) Ultimae Records [FLAC|Lossless|WEB-DL|24Bit|tracks] <Ambient, Psybient, Dub Techno, IDM, Downtempo, Glitch>
@@ -685,64 +743,6 @@ VA - Hot All Night Erotic Background Chill out Lounge Music for Lovers (2016) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93F4C35A56C320047AFB0701A2BC0A55C82C32C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966962   (216747) от 19.12.2015
-
-VA - 40 Top Downtempo & Ambient Chillout Hits 2016 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Redux - The Story [05:23]
-02. Illuminus - Dern Cowboys [07:03]
-03. Krusseldorf - Water Cooler [02:57]
-04. KLIMENT - Melting Touch [09:04](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F337FFDC3015B5C058C862EC146DCD72FFDABB2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426117   (216685) от 23.11.2020
-
-VA - Black Hole Trance Music 11-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & London Thor & Valentino Alessandrini - Feel Alive (Extended Mix) 5:42
-02. Dennis Sheperd & George Jema & Eric Lumiere - In Your Hands (Extended Mix) 5:12
-03. Bobina & Roxanne Emery - Rising Tide (Extended Mix) 4:53
-04. Giuseppe Ottaviani & Sue Mclaren - Not One Goodbye (Extended Mix) 6:38(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE217DBDC3FAF6D0DA5C4DCCB879AEFA5049FF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

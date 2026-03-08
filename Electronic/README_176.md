@@ -1,3 +1,61 @@
+###  Публикация: 1526931   (737808) от 26.01.2022
+
+VA - Sleep over to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Drifting Closer (Original Mix) (5:22)
+02. Michael E, Ashley Slater, Fabio Testa - Mind Games (Original Mix) (4:48)
+03. Leo de la Rosa, Iolanda Rodríguez - No Me Hagas Volar (5:46)
+04. Marga Sol - Deeper Love (Original MIx) (5:50)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032E2EAEB6D2993C8F9C78EA6A13C3D1F5F4EB0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526866   (737803) от 26.01.2022
+
+Burial - Antidawn (2022) EP [FLAC|Lossless|tracks + .cue] <Abstract, Dubstep, UK Garage, Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Neighbourhood (11:04)
+ 02. Antidawn (8:44)
+ 03. Shadow Paradise (10:21)
+ 04. New Love (7:14)(   Читать дальше...   )Жанр: Abstract, Dubstep, UK Garage, Ambient, ExperimentalПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A01D21E9B271E1A209880543831C4D991E51A92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527194   (736921) от 28.01.2022
 
 VA - Chilled Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Trip-Hop>
@@ -685,64 +743,6 @@ Planetarium - альбом, состоящий из четырех музыка�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA5AD47F4C11DB5AD09D3FDF41974A6868CB57D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762435   (734907) от 01.02.2022
-
-VA - Super Eurobeat Vol. 227 (2014) [FLAC|Lossless]<Electronic, Disco, Hi NRG, Synth-Pop, Eurobeat>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dejo -  Wilder Faster Louder  (5:15)
-02. Hotblade -  Showdown  (4:13)
-03. Pamsy -  Crazy and Free  (4:03)
-04. Manuel -  Manga Style  (4:11)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRG, Synth-Pop, EurobeatПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057286EA796A4FBB8B98743C6BB852C4D399C00B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662828   (734888) от 01.02.2022
-
-Various Artists - Super Eurobeat Vol. 223 (15 May 2013) [FLAC|Lossless]<Electronic, Disco, Hi NRG, Synth-Pop, Eurobeat>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734888.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dave Rodgers - Into The Sunrise (4:36)
-2. Belight - Tonight In Paradise (4:38)
-3. David Dima - Heart's On Fire (4:54)
-4. Megan - Walking Alone In London (4:41)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRG, Synth-Pop, EurobeatПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1642888   (233087) от 29.06.2023
+
+Roberto Tola - Under The Leo Sign (2023) [FLAC|Lossless|WEB-DL|tracks] <Smoonth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Driving To Madrid (feat. Marco Rasa) (Radio Edit) (3:48)
+02. Maraya (feat. Bill McGee) (4:38)
+03. Says (4:39)
+04. Sun Kiss (4:36)(   Читать дальше...   )Жанр: Smoonth JazzПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD43D21B505870B40AC51C784FD695A59B99E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634775   (233065) от 22.05.2023
 
 Count Basie & Joe Williams - The Greatest!! Count Basie Plays... Joe Williams Sings Standards (1957) 1999, Verve [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band>
@@ -716,35 +745,6 @@ Thomas Hardin Trio - Jazz de kiku Chopin (2006) Victor Entertainment [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80DD2872C5A44F1CECE37E47D5D1EE9BA1AB424A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640527   (232369) от 18.06.2023
-
-Horace Silver - And The Jazz Messengers (1955) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Room 608 [5:23]
-02. Creepin' In [7:26]
-03. Stop Time [4:07]
-04. To Whom It May Concern [5:11](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50EBEB4DDB70686658AB701FA741180F01C71FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

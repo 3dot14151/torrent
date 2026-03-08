@@ -1,3 +1,119 @@
+###  Публикация: 1082101   (276672) от 13.12.2016
+
+VA - MEGA Dance Hits Collection (1990 - 2001) [MP3|320 кб/с] <Eurodance, Euro-House, Italodance, Happy Hardcore, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276672.jpg" />
+</div>
+
+
+###  Подробнее
+
+0001. Mr. John - It's Not Too Late (Extended Club Version)
+0002. King Of Paradise - Give Me Your Love (My Desire Mix)
+0003. Space Master - World Of Confusion (Extended Mix)
+0004. DJ Bobo - Respect Yourself (B+B Remix)(   Читать дальше...   )Жанр: Eurodance, Euro-House, Italodance, Happy Hardcore, TranceПродолжительность: 398:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6CD457A97FD52747859F7E69718EA62009ABCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337225   (276332) от 09.11.2019
+
+VA - The Official UK Top 40 Singles Chart 08.11.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Dua Lipa - Don't Start Now
+03. Regard - Ride It
+04. Ed Sheeran - South of the Border(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D68FC2F1387D51FB3543958A10A40140611345E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188113   (276107) от 01.12.2017
+
+VA - Club Dance Hiuse Top 100: DJ Project (2017) [MP3|320 Kbps] <Electro, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Antonio Casertano - Downtown
+002. Niki Taylor - Coach
+003. LYP - Endless Bliss (Original Mix)
+004. Nadeem Ruil - Mylan(   Читать дальше...   )Жанр: Electro, Dance, HouseПродолжительность: 09:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240F44BB740A09C3B0A3E153057695757942DCD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188008   (276090) от 01.12.2017
+
+VA - По волне моей памяти 2: Том22 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Машина Времени  -  В добрый час 3:29
+02.  Аракс  -  Шумят дожди 2:44
+03.  Кино  -  Печаль 5:33
+04.  гр. Стаса Намина  -  Вступление и Гимн Cолнцу 4:44(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9ED7644D5CE269C332B0BA7CDC4D0C7A3E09BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083126   (276037) от 14.12.2016
 
 VA - Latin Amigos Con Privilegios (2016) [MP3|320 Kbps] <Dembow, Cumbia, Reggaeton, Latin Pop>
@@ -626,122 +742,6 @@ VA - Дискотека 2017 Eurodance Club - Назад в 90-е (1990-2000) Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7803C9B216A208844C4854CABD4210591F1845E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083972   (272485) от 17.12.2016
-
-VA - Empire Records - Club Hit (2016) [MP3|268-320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yoyum - Tears
-02. Daviddance - Time (Feat. J. Cockburn) (Original Mix)
-03. Steve van gur - Hello
-04. Anne deist - First time(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C871935E95BBD5BCADC9EB7D4FE887191E8604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188969   (272080) от 04.12.2017
-
-VA - The Best Dancing Hits of The 90’s years (2017) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-Session – Lucky Number
-02. Missing Heart – Charlene
-03. Music Instructor – Super Fly
-04. Look Twice – Feel The Night(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B9FDB5C50DE48F71BF8E7469CCA4F0FD158C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337863   (271517) от 13.11.2019
-
-VA - Осенняя свежая 30-тка Vol 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271517.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Alekseev - Камень и вода (3:13)
-2.Andy Panda, Miyagi, TumaniYO - Jumanji (3:36)
-3.Anivar - Крыльями (3:24)
-4.Elman - Лети (2:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8357061B4C59E3E29B070FCFC885F0FF28E499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189219   (271290) от 05.12.2017
-
-VA - Top 50 Brazil (2017) [MP3|~203-283 Kbps] <Latino>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anitta, J Balvin - Downtown - 03:14
-02. MC Jhowzinho e MC Kadinho - Agora Vai Sentar - 03:49
-03. Mc Don Juan - Amar Amei - 03:38
-04. Matheus & Kauan, MC Kevinho - Deixa Ela Beijar - 02:46(   Читать дальше...   )Жанр: LatinoПродолжительность: 02:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCFDC030F86F691E5268BB99F07CAA4641D7030
 ```
 
 https://mybot314.ru/tekegram_catalog/

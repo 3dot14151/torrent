@@ -1,32 +1,3 @@
-###  Публикация: 1447491   (1031877) от 13.02.2021
-
-Love And Death - Perfectly Preserved (2021) [MP3|320 Kbps] <Nu-Metal, Christian-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infamy [00:01:51]
-02. Tragedy [00:03:36]
-03. Down [00:04:00]
-04. Let Me Love You (feat. Lacey Sturm) [00:03:52](   Читать дальше...   )Жанр: Nu-Metal, Christian-RockПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF418E07D95339B06938C8A4E078AEB642AC4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620663   (1031866) от 21.03.2023
 
 Константин Ступин и Алексей Ракитин - Когда я умер (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -745,6 +716,35 @@ Durbin - The Beast Awakens (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DCAC94D3406A2615E00E69CF0A66F2A57DB64BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447876   (1031393) от 15.02.2021
+
+Sirenia - Riddles, Ruins & Revelations (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addiction No. 1
+02. Towards An Early Grave
+03. Into Infinity
+04. Passing Seasons(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8AC26A73391F5579A69E6169802E72F9945C4C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 983831   (942199) от 07.02.2016
-
-The Stranglers - Feline (1982) [FLAC|Lossless|image + .cue] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Midnight Summer Dream
-02 - It's a Small World
-03 - Ships That Pass in the Night
-04 - The European Female (In Celebration of)(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995B8866D5CD65216596904E526F7B66F836AFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984008   (942121) от 07.02.2016
 
 The Cult - Hidden City (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -750,6 +721,35 @@ Status Quo - Hello! (1973) 2CD, remaster, 2016, Vertigo, Japan [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB000FF8A778D47A6C8A91085B4CE37378F7CED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984325   (940215) от 08.02.2016
+
+Suede - Night Thoughts (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Art Rock, Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You Are Young (04:17)
+02. Outsiders (03:54)
+03. No Tomorrow (03:52)
+04. Pale Snow (02:43)(   Читать дальше...   )Жанр: Alternative Rock, Art Rock, BritpopПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D1BCCFBF08B7E5F6199D8AA147B2FEB892F200
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1261208   (305336) от 10.11.2018
+
+Sarah Brightman - Hymn (2018) [MP3|320 Kbps] <Pop, Classical Crossover>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hymn Overture
+02. Hymn
+03. Sogni
+04. Sky And Sand(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136E480FD70D955FA106E6703661BDC2FD53D0B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333408   (305259) от 24.10.2019
+
+Cigarettes After Sex - Cry (2019) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let Me Go (04:22)
+02. Kiss It Off Me (04:29)
+03. Heavenly (04:48)
+04. You're the Only Good Thing in My Life (04:35)(   Читать дальше...   )Жанр: Dream Pop, Indie-PopПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F481A578CADDE397028D9256EDBB014C0C7D642F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261232   (305204) от 10.11.2018
 
 VA - 80s Symphonic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -685,64 +743,6 @@ VA - Top Of The Pops '1979 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23B378850A9D8A0C60306017B131BCCF986CD2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960823   (303087) от 30.11.2015
-
-Fancy - Greatest Hits (2004) [FLAC|image + .cue]<Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dragostea Din Tei [03:32]
-02. A Voice In The Dark [04:00]
-03. Fools Cry [03:15]
-04. Pretty Woman [02:54](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24B0D89A68E25F8F89D52EA2AA8E06BA3EF68C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184119   (302730) от 16.11.2017
-
-Григорий Лепс - ТыЧегоТакойСерьёзный (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302730.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.ТыЧегоТакойСерьёзный (feat. Тимати)
-2.Самолёты, поезда или машины (feat. Артём Лоик)
-3.Время
-4.Без тебя(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92445C57B1D9C2736AF57F64DE95821C573CBCF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

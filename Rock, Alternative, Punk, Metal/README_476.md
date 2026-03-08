@@ -1,32 +1,3 @@
-###  Публикация: 1299716   (598122) от 02.05.2019
-
-ПГ "Дагон" - Некрономикон (2019) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Величество страх
-2. Обычный демон
-3. Некрономикон
-4. Ведьма(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDDCA373F7D12478F9A37A0637B17A0D84DCCC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299483   (598120) от 02.05.2019
 
 Pendulum Of Fortune - Return To Eden (2019) [FLAC|lossless|tracks + .cue] <Hard Rock>
@@ -758,6 +729,41 @@ Scorpions - Taken By Force (1977) 50th Anniversary Deluxe Edition, Remastered, 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:295A54CF8731D124272D4DD0D8D39180FAC01934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526418   (597074) от 24.07.2012
+
+Heart - Greatest Hits (1985-1995) (2000) [MP3|320 кб/с]<Hard Rock / Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What About Love
+ 02. If Looks Could Kill
+ 03. Never
+ 04. These Dreams
+ 05. Nothin' At All
+ 06. Alone
+ 07. Who Will You Run To
+ 08. There's The Girl
+ 09. Surrender To Me (Ann Wilson & Robin Zander)
+ 10. All I Wanna Do Is Make Love To You(   Читать дальше...   )Жанр: Hard Rock / RockПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30DB858FB646CB06086FB66AADB5BB4E1E91FD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1366961   (916662) от 15.03.2020
+
+VA - B машину ремиксы Vol. 5 (2020) [MP3|320 Kbps] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Света - Ты не мой (Smotra Remix)
+02. Леша Свик - Девчонка (Rakurs & Ramirez Remix)
+03. Мята Feat. & Ivan Navi - Ти Мене Кохай (Bakun Remix)
+04. Филипп Киркоров - Цвет Настроения Синий (Eugene Star Remix)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 03:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D72764CA3E4E6B40E8A34F084E06307B0A0E9F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097261   (916051) от 26.01.2017
 
 VA - Снежный презент Выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
@@ -728,35 +757,6 @@ VA - 100 пудовые зимние хиты на Europa Plus. Версия 6 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C79BA18218AFCE6A4ECA972296A970771ECDC9AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098069   (910266) от 29.01.2017
-
-VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск - 42) (2017) [MP3|256-320 Kbps] <Italo-Disco, Euro Disco, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910266.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jenkki - Goodbye (Savage) 3:29
-002. Tom Dot Kom - One Night in Bangkok (HouseTronic Edit) 3:39
-003. DJ Brainstorm - Save Me (A Place In Your Heart) (Clubbticket Remix) 4:41
-004. Mike Mareen - Dancing In The Dark (Galactica Remix) 7:07(   Читать дальше...   )Жанр: Italo-Disco, Euro Disco, DiscoПродолжительность: 04:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F678CE7E06B521811C5A8720A0AB11599DBAD38F
 ```
 
 https://mybot314.ru/tekegram_catalog/

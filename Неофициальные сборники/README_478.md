@@ -1,3 +1,197 @@
+###  Публикация: 951852   (360942) от 30.10.2015
+
+VA - Piano Dream House (2005) [MP3|192-256 кб/с]<House, Piano, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pisano - Dreaming (04:00)
+02. Blue Heaven - Memories (03:56)
+03. Blue Heaven - Everlasting (04:11)
+04. Sweet Flowers - 2 Feel You (04:24)(   Читать дальше...   )Жанр: House, Piano, InstrumentalПродолжительность: 06:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B81478D361E065E7FAC1A0AE7B55A2716BB12F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576870   (360809) от 18.11.2012
+
+VA - Sylt Finest Lounge Music Vol. 1-7 (2002-2010) [MP3|256 кб/с]<Lounge, downtempo, easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koop - Come To Me
+02. Yuliet Topaz - That's The Way Love Goes
+03. Tape Five Feat. Iain Mackenzie - The Sky Is Not The Limit
+04. Jazzamor - Fly Me To The Moon
+05. Crystin - Save A Little Love (Fab Samperi Remix)
+06. Anna Luca - Desperatly Trying
+07. Boozoo Bajou - Sign
+08. Club Des Belugas Feat. Anna Luca - Passing On The Screen
+09. Dinah Washington - Smoke Gets In Your Eyes
+10. Callmecat - Toxic(   Читать дальше...   )01. Nightcruzer - Lazy Day
+02. Stargazer - Eastend
+03. Eduardo Arroya - Ring ...Hello (Close Your Eyes)
+04. Chammbre Individuelle - Journey To A Friend
+05. Comuna De Musica - Ramonesque Interlude
+06. Akmusique - And Suddenly It`s Morning
+07. Frame By Frame - Seaguls
+08. Flunk - Sugar Planet
+09. Velocity - Among The Reed
+10. Dreamweaver - Delicate Emotions (Island Mix)(   Читать дальше...   )Жанр: Lounge, downtempo, easy listeningПродолжительность: 02:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A1E64A17B24613A40E2FE0317F0BD2895F5DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577285   (360598) от 18.11.2012
+
+VA - Dubstep Planet 3 (2012) [MP3|320 kbps]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nero - Promises (Skrillex Remix)
+02. Skrillex - Ruffneck (Full Flex Remix)
+03. Ali Love - Diminishing Returns (Alvin Risk Remix)
+04. Avicii - Levels (Skrillex Remix)
+05. Flux Pavilion & SKisM ft. Foreign Beggars - Jump Back
+06. Skrillex - First Of The Year (Equinox Mix)
+07. Oiki - Get It Now (VIP Mix)
+08. Swedish House Mafia vs. Knife Party - Antidote (Schoolboy Remix)
+...Жанр: DubstepПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA9C38645580CFB5BE5668629F5F0C29AAA4950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417233   (360393) от 19.10.2020
+
+VA - Beatport Deep House. Electro Sound Pack #189 (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mikimoto - Don't Do That
+002. Little Hado - Experiment
+003. Artmann - Understatement
+004. Echevo - Go Away(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2BF03DDB1A5056F4243DF4930E2C20277410FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586739   (360292) от 30.10.2015
+
+VA - Рок в Авто (vol. 5) (2012) [MP3|320 кб/с]<Heavy Metal, Power Metal, Nu Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragonforce - Through The Fire And Flames
+02. The Dogma - Black Widow
+03. Accept - Shadow Soldiers
+04. Axel Rudi Pell - Only the Strong Will Survive(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Nu MetalПродолжительность: 05:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB753A9FE50DB8475F14B68E54FFDBD9F9FD955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495525   (360286) от 30.10.2015
+
+VA - Русский рок - Новая генерация (2012) [MP3|256-320 кб/с]<Heavy Metal, Alternative Metal, Metalcore, Symphonic Metal, Progressive Metal, Industrial Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5diez - Моя Весна
+ 02. 7000$ - Я вернусь
+ 03. Atakama - Холодное Сердце (feat. Кэш (Слот) и К.Немоляев)
+ 04. Bog-morok - г.м.о.(   Читать дальше...   )Жанр: Heavy Metal, Alternative Metal, Metalcore, Symphonic Metal, Progressive Metal, Industrial MetalПродолжительность: 04:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C5E41840D99092F8B4D4B33EB8EFBC4987BCD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545045   (360285) от 30.10.2015
 
 VA - Рок в Авто (vol. 4) (2012) [MP3|214-320 кб/с]<Heavy Metal, Glam Metal, Thrash Metal, Alternative Metal, Power Metal>
@@ -580,180 +774,6 @@ VA - Hedkandi: Hardstyle Edition (2019) [MP3|320 Kbps] <Hard Dance, Electro, Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4B65BC3ACB850FF9B6A46DBAB60D351F3575488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328728   (359268) от 02.10.2019
-
-VA - Virus Attack: Psy Trance Set (2019) [MP3|320 Kbps] <Psychedelic Trance, Goa>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner State - Free Drop
-02. Talpa & Purple Hayes - Born This Way
-03. Blind-Ox - Captured Dreams Connected
-04. Coexist - Maze(   Читать дальше...   )Жанр: Psychedelic Trance, GoaПродолжительность: 04:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2A88A5541146E53E7E09AEA8AA33AA80035387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328716   (359254) от 02.10.2019
-
-VA - Amber Arcades: October Rock Compilation (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359254.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Atlas - Signal Of Hope
-002. Awakebutstillinbed - Interlude
-003. Earthless - Black Heaven
-004. Viagra Boys - Shrimp Shack(   Читать дальше...   )Жанр: RockПродолжительность: 10:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3112150C3F5D86875CF8436EF55AABF2CFF35FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577157   (359244) от 17.09.2022
-
-VA - Шансон 2020 Музыкальный хит-парад [часть.03] (2022) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тамара Кутидзе  - Докурю И Брошу (03:40) 2022
-02. Александр Айвазов  - Где ты (03:37) 2022
-03. Виталии Аксенов  - Разговор (04:32) 2022
-04. Евгений Путилов - Неприступная (03:55) 2022(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97AADEFEAA66CCD55267CCBE60AEEBF79F3EE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256011   (359043) от 20.10.2018
-
-VA - German Top 100 Single Charts 22.10.2018 (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359043.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bonez MC & RAF Camora - 500 PS
-002. Bonez MC & RAF Camora - Kokain (feat. Gzuz)
-003. Bonez MC, RAF Camora - Nummer unterdrückt
-004. Dynoro & Gigi D'Agostino - In My Mind(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFD88C77389D1F0192CB59FEF92C9A5DB1A8407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255733   (359028) от 20.10.2018
-
-VA - Age Of Rebelion: Rock Revue (2018) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359028.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Genesis - In Hiding
-002. I, The Lion - Escape
-003. Leader Of Down - Paradise Turned Into Dust
-004. Beartooth - Manipulation(   Читать дальше...   )Жанр: RockПродолжительность: 10:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B41727C77D852DCDB1D9068F83686E15A0105C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951950   (358969) от 31.10.2015
-
-VA - Trance Traveling 70 (2015) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bolier & Natalie Peris - Forever And A Day (Extended Mix) (04:05)
-02. Somna & Jennifer Rene - Back To Life (Hazem Beltagui Remix) (04:12)
-03. Armin van Buuren feat. Rock Mafia - Hands To Heaven (Club Mix) (05:04)
-04. ClearSky - Waves (Original Mix) (04:24)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A311C9B207F6347FC24CF26FF633F713992144
 ```
 
 https://mybot314.ru/tekegram_catalog/

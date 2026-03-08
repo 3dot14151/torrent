@@ -1,3 +1,177 @@
+###  Публикация: 1629699   (237840) от 27.04.2023
+
+VA - 60 minutes. Old School Dance Music vol.18 (mixed by Dj V) (2023) [MP3|320 Kbps] <Club House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-2Black - Waves of Luv (The Disco Boys Full Vocal Mix)
+02-Queen vs The Miami Project - Another One Bites The Dust (Cedric Gervais & Second Sun Club Mix)
+03-Eddie Thoneick feat. Berget Lewis - Deeper Love (Eddie Thoneick's Ruff Mix)
+04-Moby feat. Mylene Farmer - Slipping Away (Crier la Vie) (Axwell Remix)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive HouseПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BAB46BF19E638EA3CD6A2732A8746FF2D7FDB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548332   (237732) от 03.05.2022
+
+VA - MEGA HITS 2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Animals - Heat Waves 3:59
+02. Felix Jaehn, The Stickmen Project, Calum Scott - Rain In Ibiza 2:22
+03. Justin Bieber - Ghost 2:33
+04. Olivia Rodrigo - Good 4 U 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4593662B03C155459A4B18F90278690132E8CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629042   (237715) от 27.04.2023
+
+Deep Purple - Live Archive 1972 Vol. 1 (1972) 7CD  [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Kind of Woman (Live in Quebec 06/04/1972) [08:33]
+02. Into the Fire (Live in Quebec 06/04/1972) [06:07]
+03. Child in Time (Live in Quebec 06/04/1972) [14:48]
+04. The Mule (Live in Quebec 06/04/1972) [10:53](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 09:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809EC49180956DFCCB27188B824FD9DD01DCB3D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449109   (237698) от 21.02.2021
+
+VA - EDM Banger Tools (2021) [MP3|320 Kbps] <Techno, House, Electro, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцевальная электро музыка это источник неисчерпаемой энергии поступательного движения, это символ жизни выраженный в прогрессирующем темпе. Мелодии и ритмы сборника под названием "EDM Banger Tools" погрузят вас в полное безумство электронной музыки, а также подарят массу положительных эмоций. Вас ждет великолепная, первосортная музыкальная пластинка от (   Читать дальше...   )001. Lovehouse - Music Don't Stop
+002. Dawnfire - Madness
+003. Chen Leiba - Dance In The Rainbow
+004. Xfour - Miles(   Читать дальше...   )Жанр: Techno, House, Electro, EDMПродолжительность: 09:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80372D0DEFE08E36532D0C5E34DB647641BDA886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449110   (237539) от 21.02.2021
+
+VA - Deep House: Soulful Melodic Sound (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Побалуйте себя любимого отличной музыкой! Прекрасная в своем естестве и будоражащая в силу своей атмосферности музыка сборника "Deep House: Soulful Melodic Sound", способна стать эскортом к любой жизненной ситуации.001. Leonardo Bortolotto - Dear Lord
+002. Daweird - Again
+003. Echo Boy - How You Feel
+004. Robert Jake - Lavenham(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3BA9D4689397FF8A5EAC57BBDADBEC7ABA2960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640314   (237449) от 17.06.2023
+
+VA - Bedroom Jams 2 (2023) [MP3|320 Kbps] <Pop, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_237449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tank - When We (5:35)
+02. The Weeknd - The Morning (5:19)
+03. The Weeknd - The Zone (5:15)
+04. H.E.R. - Slide (Remix) (feat. Pop Smoke) (4:57)(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 03:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC6E49750D327630D4A3034CA9F1FFAFFE3F11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630066   (237436) от 30.04.2023
 
 VA - Dancefloor Hits 2023 (Extended Mix) (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -571,178 +745,6 @@ VA - Music News vol.263 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D617C5C0EAA3EBB7A029E87D23ADE2333FFA2601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632541   (234935) от 12.05.2023
-
-VA - 90's Indie (2023) [MP3|320 Kbps] <Alternative, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blur - Coffee and TV (Radio Edit)
-02. Red Hot Chili Peppers - Under the Bridge
-03. Coldplay - High Speed
-04. New Order - Regret(   Читать дальше...   )Жанр: Alternative, Indie, RockПродолжительность: 02:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EC0431DC1ED2B9A3EADB07338258E16786AE30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632425   (234920) от 12.05.2023
-
-VA - For Those About to Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - Black Dog (Remaster) [04:55]
-02. Megadeth - Symphony Of Destruction [04:07]
-03. Slayer - South Of Heaven [04:59]
-04. Black Sabbath - Paranoid (2012 - Remaster) [02:48](   Читать дальше...   )Жанр: RockПродолжительность: 06:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9141A16FEEB275A075334C97608E1733070A79DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632974   (234803) от 13.05.2023
-
-Teresa James & The Rhythm Tramps - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Time Low
-02. I Know I Ain't Been So Perfect
-03. I Know What Love Can Do
-04. Here In Babylon(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0B6185DBD6CC2B4F3F46108560E24D71E8B5F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632976   (234772) от 13.05.2023
-
-Danielle Nicole - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crawl
-02. I'm Going Home
-03. Hot Spell
-04. Take It All(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2F936D8DAF0EC3D4AF64DB63459246F34DE1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633183   (234735) от 13.05.2023
-
-VA - Country House Classic 90's (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blur - Country House (2012 Remaster)
-02. Tina Turner - Goldeneye (Single Edit)Жанр: Pop, Rock, RnB, DanceПродолжительность: 03:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A4AF2CFD6215364D857E25E593F9C1619D5C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633151   (234709) от 13.05.2023
-
-VA - The Contemporary Jazz (2023) [MP3|320 Kbps] <Jazz, Instrumental, Improvisation>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234709.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3Men In A Boat - Peace In Heart
-002. Judah Sealy - Christmas Vibe
-003. Sitka Sun - Long Shadow
-004. Mary Halvorson - 892 Teeth(   Читать дальше...   )Жанр: Jazz, Instrumental, ImprovisationПродолжительность: 11:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A3CAA02FD472A847EA686B38C67A6689266E87
 ```
 
 https://mybot314.ru/tekegram_catalog/

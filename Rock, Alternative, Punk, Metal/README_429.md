@@ -1,32 +1,3 @@
-###  Публикация: 1142219   (644864) от 13.06.2017
-
-Dream Evil - Six (2017) Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Evil  (05:19) 
-02. Antidote  (03:25) 
-03. Sin City  (04:55) 
-04. Creature Of The Night  (04:44) (   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:08:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF8DDAEF192D49C1616A5F751F5DBC3F0E996A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141934   (644852) от 13.06.2017
 
 Nemesis - The Day of Retribution (1984) [MP3|320 Kbps] <Doom Metal>
@@ -744,6 +715,35 @@ Withering Soul - Adverse Portrait (2015) [MP3|320 кб/с]<Melodic Black / Gothi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE3C303DA267B56BE958F2436DA95FEA71499D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906517   (643710) от 09.06.2015
+
+Our Last Crusade - The Ideal & The Actual (2015) [MP3|320 кб/с]<Progressive Metal, Djent, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643710.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Don't Let Your Dreams Die
+2. Machination
+3. Vessel of Vices
+4. Borne By the Best Intentions(   Читать дальше...   )Жанр: Progressive Metal, Djent, ExperimentalПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CBD685CA52C05A3529E8C829EDE83C8F4D1BDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

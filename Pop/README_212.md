@@ -1,3 +1,61 @@
+###  Публикация: 1252711   (407980) от 06.10.2018
+
+VA - School Days - The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407980.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Human League - Don't You Want Me
+02. Soft Cell - Tainted Love
+03. Madness - Baggy Trousers(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3C20AE2CA6A32678517142C9FDA75377855F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252752   (407968) от 06.10.2018
+
+Frederic Mirage - Atlantic (1979) LP [MP3|320 Kbps] <Electronic, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный альбом, в отличии от гуляющего по сети пиратского сборника с одноименным названием и перебитыми заголовками треков.01. Atlantic (4:53)
+02. Birth Of A Planet (6:03)
+03. Future Dance (5:42)
+04. Power Sense (3:30)(   Читать дальше...   )Жанр: Electronic, Space-DiscoПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F84F7EF40DD7D95539A04EEC9A12E6295CDE77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252783   (407656) от 06.10.2018
 
 C. C. Catch - Greatest Hits (2018) [MP3|320 Kbps] <Euro-Disco>
@@ -728,64 +786,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:814078CB0987B90EAE569C010E3D8DB7B1B82EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169226   (403945) от 26.09.2017
-
-Татьяна Снежина - Я не могу без тебя (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой старый дом (4:58)
-02. На далёкой станции (5:37)
-03. Ночь пришла (5:32)
-04. Млечного пути мостик (7:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDBD4A5BBFFFAC8B49A62E9CD41A3ED955C553C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169270   (403812) от 26.09.2017
-
-Bagarre - Circus (1982) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemonsweet (6:32)
-02. Little Ladies (4:31)
-03. Circus Is Gone (4:31)
-04. Dirty Love (4:53)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980ABBF2D411F4B7FCA3B08B2B1FA35D5EE20DF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

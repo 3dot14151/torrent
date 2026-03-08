@@ -1,3 +1,32 @@
+###  Публикация: 1826920   (173516) от 19.10.2025
+
+VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indiano - The Moon of Flowers (7:43)
+02. Noam Garcia - The Dreams (9:40)
+03. Tibetania - Zawadi (8:58)
+04. Juantxo Munoz - Black Empire (7:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF86EB36FFE7576EA3E14427F4ED732EF8E0748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668634   (173341) от 13.10.2023
 
 VA - Love & Passion: The Sexiest Tantric Sensual Music for Sex (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AB0363EDC9B93165569D2BD0502B84FD0D03345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344631   (167252) от 14.12.2019
-
-Shinnobu - The Enigma VI (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return to Myself (5:01)
-02. Beyond the After (6:16)
-03. Kissing the Moon (5:33)
-04. Deep Inside of Me (5:29)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7DA0708B56CE47E74DAF567A53A0ECA55DCFA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 979563   (958418) от 27.01.2016
+
+Fake - New Art (2009) Remastered [MP3|320 кб/с] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone With The Moonlight (03:45)
+02. Empty Garden (04:26)
+03. Memories Of Pan (03:21)
+04. Rain Over The Nile (05:17)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003BDCF99A84AA46FE4F40CDCBD83121DD1D36C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979142   (958101) от 27.01.2016
+
+Sia - This Is Acting (2016) Deluxe Edition [MP3|320 кб/с] <Pop, Indie, Chillout>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Set Free
+02. Alive
+03. One Million Bullets
+04. Move Your Body(   Читать дальше...   )Жанр: Pop, Indie, ChilloutПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746BD764025D993C901B525341E9D1A235267A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361162   (957077) от 18.02.2020
 
 Karizma Duo - Acoustic Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -687,64 +745,6 @@ VA - Всем, кто любит песню 3 (1968) [MP3|320 кб/с] <Сове
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:658B1C45763F954ABCB78CB237FA30555F2A8A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361998   (952475) от 21.02.2020
-
-Andreas Martin - Single Hit-Collection (1993) [FLAC|Lossless|image + .cue] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952475.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Amore Mio
-2 Solo Tu (Du Allein)
-3 Der Himmel Kann Warten
-4 Das Erste Mal Im Leben(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FA4FA1D4BDD42AFD5E39BA3DE8FC7CD719BDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361896   (952253) от 21.02.2020
-
-Таисия Повалий - Ейфорія (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952253.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дай мені любов
-2. Ейфорія
-3. Алло
-4. Я його вдихаю(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E80C23181341C33BA43DFDB4EDFE02E6D708377
 ```
 
 https://mybot314.ru/tekegram_catalog/

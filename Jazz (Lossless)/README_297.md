@@ -1,3 +1,32 @@
+###  Публикация: 1680404   (134275) от 29.11.2023
+
+Shakatak - Eyes of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Disco, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Gonna Getcha [00:04:37]
+02. Eyes of the World [00:05:13]
+03. Sunflowers [00:05:28]
+04. Love Will Take You There [00:05:12](   Читать дальше...   )Жанр: Smooth-Jazz, Disco, FunkПродолжительность: 01:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D646E331769DBF7DBBEF273B34BC817F9FBD67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594260   (134227) от 25.12.2012
 
 Dan Berglund's - Tonbruket (2010) [FLAC|Lossless]<Jazz>
@@ -746,35 +775,6 @@ Smooth Jazz Music Ensemble - Warm Winter Wine (2023) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A9A07E6842C3FECB4EC78C03B3BA5CC42D0B674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682213   (131850) от 06.12.2023
-
-Coffee Jazz Melody - Autumn Colors (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All In Ways
-02. Amazing Things
-03. Color Mystery
-04. Friendly Dreams(   Читать дальше...   )Жанр: Pop Jazz, Easy ListeningПродолжительность: 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6EAB2868DF15782A7964BAD2BAEC4F6141CFDC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

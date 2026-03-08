@@ -1,3 +1,29 @@
+###  Публикация: 260336   (330692) от 20.11.2010
+
+Billie Holiday - Collection (5 альбомов) (1956 - 2002)[FLAC, APE|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_330692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: JazzПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956249   (330392) от 14.11.2015
 
 Alex Pangman - New (2015) [FLAC|image+.cue]<Vocal Jazz>
@@ -718,35 +744,6 @@ The Diego Rivera Quartet - Hercules (2004) 2006, Rivera Records [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0865D1F4A33E446FDA4869B39FA817C81CFD531F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860471   (325370) от 07.10.2022
-
-Yehudi Menuhin & Stephane Grappelli - Menuhin And Grappelli Play Gershwin (1973 - 1981) 2000, EMI[APE|Lossless]<Jazz, Swing, Chamber Music>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fascinating Rhythm [02:17]
-02. Soon [03:46]
-03. Summertime [04:22]
-04. Nice Work If You Can Get It [02:29](   Читать дальше...   )Жанр: Jazz, Swing, Chamber MusicПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714602166E241B5BA02C489AA216DB848F99E71E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1179924   (344570) от 02.11.2017
+
+VA - Exotic Lounge: Relax Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344570.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cafe Americaine - Across The Equator
+002. Puremusic - Unsaid (State Azure Remix)
+003. The Sura Quintet - Walking On The Sand
+004. Sine - Glittering Water(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023AA5F7CF8754E77F9559F25465324CC8E6F887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418832   (344557) от 26.10.2020
+
+VA - Record Super Chart 659 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rauf & Faik feat. NILETTO - Если тебе будет грустно (3:11)
+02. Bastard! - F..k That (3:38)
+03. Jason Derulo - Take You Dancing (3:10)
+04. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A68F4EDF501191A61F37CD9C4C417BE524EF9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418961   (344555) от 26.10.2020
+
+VA - Yellow Day: National Pop Music (Vol.04) (2020) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andriamad - Foule Sentimentale
+002. Cheeze - Excuse
+003. Nct Dream - Puzzle Piece
+004. Violeta Ikari - Aperanti Erimia(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 07:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624A4E917A513AEDA8D3D144E4E1AA750F536E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418820   (344546) от 26.10.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 23.10.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RAYE - Natalie Don't (3:14)
+02. twocolors - Lovefool (3:10)
+03. Dotan - NUMB (3:38)
+04. Hurts - Redemption (4:18)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1787742CC8F27AFC50E5DEACD375F8B6DDF03F06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579794   (344532) от 24.11.2012
+
+VA - Танцевальный рай Dream House (2007) [MP3|320 кб/с]<Dance,House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJ Dado - Metropolis '2006
+ 02 Project Driver - Join the dream
+ 03 Ronald Snypes vs. Robert Miles - Children (dreamphase vers.)
+ 04 Mid Air - Killing me softly (Fugees)
+ 05 Wisehand - Timeless
+ 06 Adriatic - Memories
+ 07 Zhi-Vago - Celebrate (the love) radio mix
+ 08 Floribunda - Floribunda
+ 09 F-Project - Cry for love
+ 10 Taucher - WinterloveЖанр: Dance,HouseПродолжительность: 04:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1559CFA68529CF686E5B338230488B47405CA68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418948   (344435) от 26.10.2020
+
+VA - Listen To Your Heart: Vocal House Session (2020) [MP3|257-320 Kbps] <Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344435.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Block & Crown - Can't Get You Out
+002. Kastomarin - Mindreader
+003. Vzxx - Want U More
+004. Slippy And Ash - Swing (Extended Mix)(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2FAFCA11226E150F505502ABB79450FBB2158A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418952   (344431) от 26.10.2020
 
 VA - Open Air House (2020) [MP3|320 Kbps] <Club, Dance, Future House>
@@ -601,180 +781,6 @@ VA - Creative Music Box 5 (2012) [MP3|320 кб/с]<Dub Step/Drum'n'Bass/Drumstep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEA96D95C6EDE99EA9EA092252B3027AFE0B10B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257668   (343129) от 27.10.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 26.10.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Natural 3:09
-02. Dynoro & Gigi D'Agostino - In My Mind 3:05
-03. The Chainsmokers feat. Emily Warren - Side Effects 2:57
-04. Clean Bandit feat. Demi Lovato - Solo 3:41(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE27B3E26151386904A147675113F5349D7A282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578693   (342994) от 24.09.2022
-
-VA - ЕвроХит Топ 40 Europa Plus 23.09.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klangkarussell - Home (3:45)
-02. Cassette - Tell me why (3:07)
-03. Sofia Reyes feat. Jason Derulo & De La Ghetto - 1, 2, 3 (3:21)
-04. Maneskin - Supermodel (3:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC0BE4EDA9ABF642D80DE1AACF7835CC265FE20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330131   (342841) от 09.10.2019
-
-VA - Качай и слушай Vol 3 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342841.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Alessia Cara - What's On Your Mind? (3:13)
-2.Camila Cabello - Liar (3:27)
-3.Camila Cabello - Shameless (3:39)
-4.Charli XCX - White Mercedes (3:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34E6E408D859988AD4B0865A9141A09A3C156E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179980   (342798) от 03.11.2017
-
-VA - Sinemotion 150 Extended Ambient Mix (2017) [MP3|320 Kbps] <Ambient, Downtrmpo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342798.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Custom 7 - Breath Unwind
-002. James Butler - Dinner in Milano
-003. Miper - Hide (Original Mix)
-004. Alexander S. Karlov - Sex With Yoga Girl(   Читать дальше...   )Жанр: Ambient, DowntrmpoПродолжительность: 11:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E932D62583D6B2B2007F238244811564847EDAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180212   (342642) от 03.11.2017
-
-VA - Empire Records - Dancenudisco 18 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Boxer, Leeloo in Wonderland - Stop
-02. Vika Grand - First Day (Original Mix)
-03. No Doubt - Don't Speak (Doreen & Enzo Extended Remix)
-04. Alateya, Lisitsyn, Mbnn - Call Me Now (Pavel Velchev & Dmitriy Rs Remix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7936A9DB4509BA45769F109B27F1E3B8CD12E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180287   (342639) от 03.11.2017
-
-VA - German Top 100 Single Charts 03.11.2017 (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342639.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bausa - Was du Liebe nennst
-002. Post Malone - rockstar (feat. 21 Savage)
-003. ZAYN - Dusk Till Dawn (feat. Sia)
-004. Camila Cabello - Havana (feat. Young Thug)(   Читать дальше...   )Жанр: PopПродолжительность: 05:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C1A700027A5C0A2D0E7E3DD5331D4F22C64F23
 ```
 
 https://mybot314.ru/tekegram_catalog/

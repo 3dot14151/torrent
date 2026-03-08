@@ -1,3 +1,32 @@
+###  Публикация: 1066052   (414464) от 25.10.2016
+
+VA - NRJ hits Exclusive №5 (2016) [MP3|192-320 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414464.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Heavy Anarchy & Onur Ormen – Raw Passion
+002. Lika Morgan – Shed Light (Luca Debonaire Radio Mix)
+003. Maala – Notorious
+004. Sam Feldt & Lucas & Steve feat. Wulf – Summer On You (Club Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20AF99272313E9A7343C9DC7AF40A55B7B09BE2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066306   (414177) от 25.10.2016
 
 VA - Pop Rock Disco 80s (2016) [MP3|320 Kbps] <Pop, Dance, Disco>
@@ -722,35 +751,6 @@ VA - Попсовый мегахит от Русского радио (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:404CEC59E4A5FB57A59F37B80B8252B9C081E364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413409   (409662) от 03.10.2020
-
-VA - German Top 100 Single Charts 02.10.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24kgoldn - Mood (feat. Iann Dior)
-02. Loredana & DeLara - Checka
-03. Internet money, Gunna & Don Toliver - Lemonade (feat. NAV)
-04. Bonez MC - NIEMALS UNTER 1000 (feat. Lx)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EFBC528CE69FCBA3D4E70FBBE39D2EDF34216B
 ```
 
 https://mybot314.ru/tekegram_catalog/

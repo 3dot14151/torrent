@@ -1,3 +1,32 @@
+###  Публикация: 1597558   (165884) от 15.12.2022
+
+Jennifer Lopez - This Is Me...Then (2022) 20th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still
+02. Loving You
+03. I'm Glad
+04. The One(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 01:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6524F0A4DEC8D77A6E4FDAA3C57AE32B8F1B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345552   (165107) от 17.12.2019
 
 VA - MNM Big Hits - Best Of 2019 (2019) 3CD Box Set [FLAC|Lossless|tracks + .cue] <Pop, House, Other>
@@ -722,35 +751,6 @@ Marc Almond - In Session Volume One (2003) [FLAC|Lossless|tracks + .cue] <Synth-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A33FF709E6D2E8FEA68A1777B08B19AA20216FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675972   (157136) от 13.11.2023
-
-Mireille Mathieu - Mireille Mathieu chante Piaf (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Shanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jezebel (3:44)
-02. La vie en rose (3:44)
-03. L'accordéoniste (3:25)
-04. Exodus (3:43)(   Читать дальше...   )Жанр: Pop, French ShansonПродолжительность: 01:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452AEF1CF8B5979121B28945084DCE60DC54D8E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

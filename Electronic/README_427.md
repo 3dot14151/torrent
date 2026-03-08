@@ -1,3 +1,61 @@
+###  Публикация: 1663645   (186450) от 23.09.2023
+
+VA - Nothing But... Trancetopia, Vol. 08 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaWTone - Romplambpi (Original Mix) [4:21]
+02. Solo Drive - Apex (Original Mix) [7:22]
+03. Joseph Vega - Twin Souls (Original Mix) [3:31]
+04. Skyvol & Djoy - Inverse (Original Mix) [3:40](   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C38A1438CC93EE4AE84753BF5560DE28B4F750C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663763   (186436) от 23.09.2023
+
+Klubbheads - Pump Up The Heads! (2021) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiphopping
+02. Big Bass Bomb
+03. Turn Up The Bass
+04. Let The Party Begin(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E042799253BC9D2AC42DF377851432A5668B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663816   (186435) от 23.09.2023
 
 Ibiza Lounge - Hot Summer Vibes 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Relax>
@@ -681,64 +739,6 @@ VA - Club Trance 4 (1997) Exclusive Edition [FLAC|Lossless|tracks] <Trance, Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E10769B7536AF9C2DE3839C6A333D193CF90C262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664601   (184632) от 27.09.2023
-
-ScAnDroid Experiment's - Mental Solubility (2023) авторская раздача [MP3|320 Kbps] <Experimental, Lo-Fi, Downtempo>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mental Solubility (Intro)
-02. Irreversible Nature
-03. Zero Mood
-04. Traces Of Geometric Dreams(   Читать дальше...   )Жанр: Experimental, Lo-Fi, DowntempoПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84560FB2ED5FD1D99F2E1DA2302E4822C0DF2E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663898   (184472) от 27.09.2023
-
-David Guetta - 7 (2018) 3CD, Anniversary Edition, 2023, Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Deep House, Reggaeton>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD-01
-CD-02
-CD-03Жанр: Dance-pop, Electro House, Tropical House, House, Chiptune, Electro, Synth-pop, Deep House, Reggaeton, Trap, Tech House, Deep TechnoПродолжительность: 3CD, 02:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66808E80BB056D655B777B9AB027A616A25D1C23
 ```
 
 https://mybot314.ru/tekegram_catalog/

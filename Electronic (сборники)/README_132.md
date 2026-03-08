@@ -1,3 +1,32 @@
+###  Публикация: 935894   (497581) от 10.09.2015
+
+VA - The Chillout Players - Music For Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoboken - Loungin it
+02. Il Greco - Nippon Horn
+03. Belloq - Naples Bay
+04. Sabado Playground - Ipanema Beach(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A73FD401B4026DA6AF0307348DB86C0A58FB29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935782   (497576) от 10.09.2015
 
 VA - Looking For The Summer (2015) [MP3|320 кб/с]<Funky, Club House>
@@ -716,35 +745,6 @@ VA - Moscow Underground (2015) [MP3|320 кб/с]<Electronica, Deep House, Techno
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9DF4803F43E5427FF28185FB0FF553751CC584A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158653   (492003) от 16.08.2017
-
-VA - Chill Ambient: 150 Advanced Relax Mix (2017) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492003.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drew Cox - Lake in Autumn
-002. Double Go - Well & Ness
-003. al l bo - On The Dance Floor (Spill Remix)
-004. Alexander Tarasov - The Light of My Soul(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 11:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C4B34291113A31633AB8C53B762900FD71C584
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1121075   (800425) от 02.04.2017
+
+David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Television Soundtrack) (2012-2017) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Was Different (03:49)
+02. Doing a Good Thing (02:17)
+03. 3 Suspects (02:11)
+04. Pick Up (05:15)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 05:02:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E03AE893A3206B585512BE855DD41598E85CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121231   (800424) от 02.04.2017
 
 VA - The Young Pope / Молодой Папа (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -716,35 +745,6 @@ VA - Intimate Piano: Canadian Sunset (1999) [FLAC|Lossless|image + .cue] <Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C8FEDC6C2E584E08DAFAAEFAF99E497358A6B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200110   (796889) от 19.01.2018
-
-First Aid Kit - Ruins (2018) [FLAC|Lossless|tracks] <Indie Folk, Country Folk, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebel Heart
-02. It's a Shame
-03. Fireworks
-04. Postcard(   Читать дальше...   )Жанр: Indie Folk, Country Folk, AmericanaПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66CA868B2E161D981C585A091E6303E0AF5C9FC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

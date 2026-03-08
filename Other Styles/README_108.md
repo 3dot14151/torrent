@@ -1,3 +1,32 @@
+###  Публикация: 1161968   (463649) от 30.08.2017
+
+Jules Calmer - Deserted Paradise (2017) [MP3|320 Kbps] <Ambient, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Dream (Original Mix)
+02. For The First Time (Original Mix)
+03. In The Stories (Original Mix)
+04. King Emar (Original Mix)(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D8761851E7FA604B359AF787820C8E0C5BDF1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161403   (463225) от 30.08.2017
 
 VA - Baby Driver / Малыш на драйве (Music from the Motion Picture) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -721,35 +750,6 @@ Slavik...Kemmler - Close To Heaven (1998) [OGG|485 Kbps] <New Age, Tribal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:574A3FFC11787C1B88272D3338BBD23369621442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569198   (453494) от 12.08.2022
-
-Enigma - MCMXC a.D. (1990) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Voice Of Enigma	2:20
-02. Principles Of Lust (Sadeness) 4:04
-03. Principles Of Lust (Find Love) 4:50
-04. Principles Of Lust (Sadeness (Reprise) 2:48(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF97AB2438AFA8099E1553B63A013BDDA6DE1B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1568656   (459763) от 09.08.2022
+
+VA - Toolroom Killer Cuts (2022) [MP3|320 Kbps] <House, Tech House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illyus & Barrientos - Sublime (Extended Mix)
+02. Leftwing : Kody - Mallet (Extended Mix)
+03. LOVRA, Hugel - Madonna (Extended Mix)
+04. Astrotrax, Martin Ikin, Shola Phillips - Feel The Vibe feat. Shola Phillips (Extended Mix)(   Читать дальше...   )Жанр: House, Tech House, ClubПродолжительность: 04:56:33 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE369815BBD633E50C6BA73E42C659A96ECAD70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059787   (459698) от 05.10.2016
 
 VA - Ultra Adrenalin Festival EDM (2016) [MP3|238~320 Kbps] <House, Electro House, Future House, Dirty House, Bassline, Club, Dance>
@@ -727,35 +756,6 @@ VA - Progressive House Vol.5 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF9DB877CA3D115CA7F82B04125EF3F9E9CB7E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321675   (456794) от 25.08.2019
-
-VA - Record Super Chart 601 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
-02. Billie Eilish - Bad Guy 3:14
-03. Aaron Smith - Dancin (Krono Remix) 4:16
-04. Slider & Magnit - Morze 3:11(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F621E930FAD2C2CE46E66C6CC992D0B3920099A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 613377   (981677) от 05.02.2013
+
+Various Artists - The Art Of The Ballad (The Best of Mapleshade) (1999) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Murray, Bobby Battle Quartet - Ballad For Frederick
+02. Andy McKee & NEXT - In A Perfect World
+03. Jack Walrath & Larry Willis - Bess, You Is My Woman
+04. Norris Turney Quartet - Come Sunday
+05. Rebecca Kane Sextet - Outside Michael's Window
+06. Warren Smith, Stanley Cowell  - Descent Into Kangnung
+07. King Bluiett Trio - These Foolish Things
+08. Chris Anderson - Send In The Clowns
+09. C.I. Williams Quintet - I'll Close My Eyes
+10. Frank Kimbrough Trio - Lonely In London(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355840   (981213) от 28.01.2020
 
 Bruce Ackley Trio - The Hearing (1998) Avant [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
@@ -715,35 +750,6 @@ Brian Culbertson - Winter Stories (2019) [FLAC|Lossless|WEB-DL|tracks] <Contempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97759404F2260D3EB0FA5993D0044AE4B3E4FB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356371   (979023) от 30.01.2020
-
-Spyro Gyra - Vinyl Tap (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Agent Mash
-02. Sunshine Of Your Love
-03. Can't Find My Way Home
-04. What A Fool Believes(   Читать дальше...   )Жанр: Fusion, Smooth JazzПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49441514EAC21AEE5CAFE5EC23063DB1EF23F28
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1402748   (697719) от 16.08.2020
+
+VA - Record Super Chart 649 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaBro - Юность (3:39)
+02. twocolors - Lovefool (3:10)
+03. Zivert feat. NILETTO - Fly 2 (3:25)
+04. Topic feat. A7S - Breaking Me (2:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212EFEDE178E4F050D9E2F0DA1DB78A42293E6DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402899   (697328) от 16.08.2020
 
 VA - TOP Non-Stop 2010-2019 - Deep House (2020) [MP3|192-320 Kbps] <Deep House, Techno House, Progressive House>
@@ -715,35 +744,6 @@ VA - Beatport Progressive House: Electro Sound Pack #145 (2020) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40759B8694B3119153E1F7BF8F179BF658B18897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133553   (693436) от 13.05.2017
-
-VA - World Wide Trance # 01 (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Farhad Mahdavi - Argentina (Extended)  7:18
-02.  Hamza Khammessi - La Dicha (Original Mix)  7:24
-03.  JES - Photograph (Roger Shah Remix)  7:24
-04.  Sam Laxton - Searching (Original Mix)  6:00(   Читать дальше...   )Жанр: TranceПродолжительность: 03:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4FFCFF75566AFA76519BD4554FAF82A7C7FC84
 ```
 
 https://mybot314.ru/tekegram_catalog/

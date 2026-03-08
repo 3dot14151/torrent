@@ -1,3 +1,201 @@
+###  Публикация: 531515   (542743) от 05.08.2012
+
+VA - Ibiza Chillout (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bells of Babylon - Anthony Grant
+02. Gemini Infinity - Thai Chai
+03. Deep Vibes - Tito Torres
+04. Forever Walking - Forever walking
+05. Zucca Vuota - Peter Flower
+06. Don't Know - DJ Commy
+07. Be Together - Studio 15
+08. Galactica Soul - Dr. Drummer
+09. Soulsalicious - The Speakers
+10. DJ Boost - Sa Trincha Feeling(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C925562CF37F2F539B66E4524FADD43D4672237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924968   (542673) от 05.08.2015
+
+VA - Top 100 Популярный Сборник (2015) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deepside Deejays - Highways
+02. DJ Antoine Vs Mad Mark Feat. Jason Walker - Wild Side
+03. NikitA - Я Ни О Чём Не Жалею
+04. 30.02 - Звезды В Лужах(   Читать дальше...   )Жанр: РорПродолжительность: 06:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52AAB9336DB830F077C3B68D2C604425C0047CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531615   (542600) от 05.08.2012
+
+VA - German TOP 100 Single Charts (05.08.2012) [MP3|~186~276 кб/с]<Dance, Pop, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lykke Li - I Follow Rivers [04:41]
+ 02. Asaf Avidan & The Mojos - One Day / Reckoning Song [03:33]
+ 03. Gusttavo Lima - Balada (Tche Tcherere Tche Tche) [03:23]
+ 04. Tacabro - Tacate [03:31]
+ 05. Loreen - Euphoria [03:02]
+ 06. Carly Rae Jepsen - Call Me Maybe [03:14]
+ 07. Lana Del Rey - Summertime Sadness [04:25]
+ 08. Flo Rida - Whistle [03:45]
+ 09. Cro - Du [02:54]
+ 10. Triggerfinger - I Follow Rivers [03:37](   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 06:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F2201ED7B6A7B150BD67E10B879E15D2059853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531298   (542596) от 05.08.2012
+
+VA - Скорая музыкальная помощь 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Delta pro. - Наше лето
+02 Mike Indigo - Bam Baram (Original Radio Edit)
+03 Dan Balan - Не любя
+04 Sean Paul feat. Pitbull - She Doesn't Mind
+05 Бьянка - Весна-Лето 3 (Про Зою)
+06 Jennifer Lopez feat. Flo Rida - Goin' In
+07 SPACE4 и Антон Зацепин - Невозможно Не Любить
+08 Linkin Park - Burn It Down
+09 Слава - Sex не любовь
+10 Nelly Furtado - Big Hoops (Bigger The Better) (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627B5B197CC50021CF7A593B31B751C428BB3CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531737   (542586) от 05.08.2012
+
+VA - Песня года 2012. Летний спецвыпуск (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542586.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Dan Balan - Люби.
+002 Ирина Дубцова - Ешь Молись Люби.
+ 003 Дмитрий Маликов - Прости.
+ 004 Ирина Аллегрова - Жаль.
+ 005 Maks Barskih - Пылай.
+ 006 Анжелика Варум - Шепот Нежный.
+ 007 Стас Михайлов - Где-То Там.
+ 008 София Ротару - Два Солнца.
+ 009 Леонид Агутин - Что Есть Любовь.
+ 010 Катя Лель - С Днем Рождения.(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43926680C488DCD36F69A2A9166DEFF3FFA0EEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924981   (542563) от 05.08.2015
+
+VA - Новый Русский Рок Vol.2 (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Светотень - Как снег (feat. Тэм)
+02. Северный Флот - Революция на вылет
+03. Сектор Газовой Атаки - Шабаш
+04. СерьГа - Время готовить костёр(   Читать дальше...   )Жанр: RockПродолжительность: 05:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C15E65574EFAE7D0E532970CC531B0D9BFD92972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531508   (542458) от 05.08.2012
 
 VA - Relax FM (04.08.2012) [MP3|320 кб/с]<Relax, ballads>
@@ -595,189 +793,6 @@ VA - Chillout September 2016 Top 10 September Relaxing Chill Out and Lounge Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78849D5B48A6F13975CEF572876B1AC0199B1247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050233   (540757) от 07.09.2016
-
-VA - Digital Turbo Trance Sunset (2016) [MP3|320 Kbps] <Trance, Energy, Harmonic, Melodic, Emotional>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Tyas  -  Turbo (Original Mix)  7:19
-02. Ciro Visone & Semper T  -  Revolution (Original Mix)  6:52
-03. Amos & Riot Night  -  Leap of Faith (Original Mix)  6:38
-04. Mind-X  -  Eternal Waves (Extended Mix)  6:33(   Читать дальше...   )Жанр: Trance, Energy, Harmonic, Melodic, EmotionalПродолжительность: 03:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8A98F7A135A2356DCC45A76748F29963D1ABF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531892   (540752) от 06.08.2012
-
-VA - Star House Vocal (19.07.2012) [MP3|320 кб/с]<House Vocal, Dance, Club, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Alex Gaudino feat. Taboo - I Don't Wanna Dance feat. Taboo (Original Mix)
- 02 - Alexandra Stan - Lemonade (Single Version)
- 03 - Basshunter - Northern Light (Club Mix)
- 04 - Meiko - Leave The Lights On (Crystal Method Remix)
- 05 - Basslovers United - Was Wollen Wir Trinken (Rob & Chris Remix)
- 06 - Cascada - The Rhythm Of The Night (Extended Mix)
- 07 - Coffee & Honey Feat Diana J & David Ferrari - Dont Stop (Datniele Remix)
- 08 - DJ Feel & DJ Rich-Art - This Feeling (Pop Extended)
- 09 - Dual Playaz - Alone Again (Gordon & Doyle Remix)
- 10 - Electric Dance Theatre - Crack Monkey (Belmond & Parker Remix)(   Читать дальше...   )Жанр: House Vocal, Dance, Club, ElectroПродолжительность: 04:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021B44CB9FB72555D57C3B0951F89450ECA29C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365720   (540714) от 21.07.2011
-
-VA - TOP 100 Зайцев.нет от 20 июля 2011 (2011) [MP3|128-320 kbps]<Pop, Chanson, Rock, Dance, Club, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Chanson, Rock, Dance, Club, RapПродолжительность: 06:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3295450A0CAD374E7AB9E40CF8A0D3D9631CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925310   (540679) от 06.08.2015
-
-VA - Украинский Рок (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Океан Ельзи - Африка
-02. O.Torvald - Все з початку
-03. Сергей Бабкин - Сокровище
-04. Антитіла - Молоком(   Читать дальше...   )Жанр: RockПродолжительность: 06:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE2DA80B1A19EF15ECC22CE55945824BF2B684D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049962   (540669) от 07.09.2016
-
-VA - Лето в кайф. Часть 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540669.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сестры Толмачевы - Молчание
-002. Zion & Lennox - Embriagame
-003. Ken Carlter Feat. Tommy Driker - Push The Boundaries
-004. Виктор Дорин - Если Нет Тебя(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41B138374D535942C692D08798226D118482A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531944   (540609) от 06.08.2012
-
-VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.22 (2012) [MP3|128-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Гера - Зажигай
-02.Sonny Flame - It's My Life (Radio Edit)
-03.LiLi - Выкаблучиваюсь
-04.Guy Sebastian feat. Lupe Fiasco - Battle Scars
-05.Mona - Грани
-06.Connect-R - Love Is The Way (Radio Edit)
-07.Мари Краймбрери - Остыла
-08.REEA - Come And Get My Love (Radio Edit)
-09.ВегаS - Слезы
-10.Singjar - AlyaЖанр: Pop, DanceПродолжительность: 05:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F74CD3755E4E0E0824223EAF2DC7D85850F078
 ```
 
 https://mybot314.ru/tekegram_catalog/

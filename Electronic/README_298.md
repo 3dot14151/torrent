@@ -1,3 +1,61 @@
+###  Публикация: 1321438   (459079) от 24.08.2019
+
+Vortex - As Gods Fall (2018) Cyclic Law [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Tribal, Industrial, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (05:53)
+ 02. Awareness (03:18)
+ 03. War Is Coming (07:43)
+ 04. The Slain (05:54)(   Читать дальше...   )Жанр: Dark Ambient, Tribal, Industrial, ExperimentalПродолжительность: 01:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A671E4B9046012E1421046E42DEFAD84F2DBF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162380   (459059) от 01.09.2017
+
+VA - Goa Vol.64 (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ellinio & DJ Bim - Burning Spear  7:07
+02.  Bitkit - The Four Elements  6:58
+03.  Drukverdeler & DJ Bim - Into The Vortex (Serenity Flux Remix)  7:36
+04.  Mindbenderz - Sacred Rituals  9:09(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB1247245ADBAE47E71BCE72494B72289A1EDD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162303   (459036) от 01.09.2017
 
 Physical Illusion - Solitary (2017) EP [MP3|320 Kbps] <Drum & Bass>
@@ -685,64 +743,6 @@ VA - Ultra Step Pop Hits 2020 Fitness Session [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA57291FA33DFCC98286891E932DA82F687CE826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942112   (455763) от 30.09.2015
-
-Jjos - Balearic Chill Оut Vibes Compilation (2015) [FLAC|tracks]<Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me the Way (with Manu Lopez) (Chill Mix) (05:04)
-02. All I Need (Sensual Chill Mix) (04:16)
-03. Dreamer 0.2 (Chill Mix) (04:57)
-04. Paradise (Tim Angrave Utopia Remix) (05:47)(   Читать дальше...   )Производство: Contrasena Records S.LЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D134CD972DBE3BDC3D82CA6E9C151C72FC9249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569160   (455695) от 11.08.2022
-
-Robert Miles - Dreamland (1996) [OGG|485 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children (Dream Version)	6:47
-02. Fable (Message Version)	6:29
-03. Fantasya	5:39
-04. Landscape	5:57(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C596EB242FDACCCC4E55AD0EEF5AFCB74F4CDF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

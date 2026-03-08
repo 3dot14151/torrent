@@ -1,3 +1,32 @@
+###  Публикация: 1128523   (727661) от 25.04.2017
+
+VA - Brain Plugged: Big Room House Music (2017) [MP3|320 Kbps] <Electro House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fitz & Baron - Sunrise (Original Mix)
+002. Bartosz Brenes - Lovin' U (Original Mix)
+003. Helly Larson - Take Me
+004. Luca Debonaire - Yes It Does (Original Mix)(   Читать дальше...   )Жанр: Electro House, Club HouseПродолжительность: 10:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C0CD9403C1CB11C2997ACBDC07AF2EDB31F040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128516   (727564) от 25.04.2017
 
 VA - Pacific Trance 100 Art Of Trance (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -727,35 +756,6 @@ VA - Mystica Depth (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6F51F7B2BB7DBC516EF627E7E6574D40EA7F6F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285015   (724774) от 24.02.2019
-
-VA - Tech House Electro Sessions (2019) [MP3|320 Kbps] <Electro, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Interfacer - Truck
-002. Kid Massive - Hideway
-003. Luca Beni - Always That Boogie
-004. Ilias Takahamovic - Shuck(   Читать дальше...   )Жанр: Electro, Tech HouseПродолжительность: 08:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C971D7FED5C4C29FE66303B9AD3CBDD80F10AEFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

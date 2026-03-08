@@ -1,25 +1,22 @@
-###  Публикация: 1577711   (352557) от 20.09.2022
+###  Публикация: 1417946   (352666) от 22.10.2020
 
-Weeping Wound - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Metalcore>
+Любовь и монстры / Love and Monsters (2020) WEB-DLRip [H.264] [MVO]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352557.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ... [00:00:52]
-02. idontbelonghere. [00:02:30]
-03. dreaming.room [00:03:19]
-04. dirty.goeldn [00:05:25](   Читать дальше...   )Жанр: Nu-Metal, MetalcoreПродолжительность: 2 CD, 00:56:05
+Спустя семь лет после нападения на человеческую расу ужасных монстров, Джоэль Доусон вместе с остальными выжившими прячется под землей от огромных существ, которые теперь чувствуют себя хозяевами на планете. Однажды парень ловит сигнал по радио и слышит голос девушки Эйми, в которую был влюблён ещё в старшей школе. Она укрылась в прибрежной колонии, расположенной (   Читать дальше...   )Производство: Канада, США / 21 Laps Entertainment, Entertainment One, MTV FilmsЖанр: Комедия, фантастика, боевик, приключенияРежиссер: Майкл МэтьюзАктеры: Дилан О Брайен, Джессика Хенвик, Майкл Рукер, Эллен Холлман, Мелани Занетти, Ариана Гринблатт, Амали Голден, Тэнди Райт, Тэсним Рок, Ларри СедарПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: АнглийскиеПродолжительность: 01:48:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BBC22FEA71CEB8D27A3EABF07AA8CA7AD0512A9
+magnet:?xt=urn:btih:DA71A70A1826934EB5A28E3D07F80B2C6420BEF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577754   (352556) от 20.09.2022
+###  Публикация: 1416944   (352665) от 22.10.2020
 
-Yevabog - Between Two Fires (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Metal>
+Сборник эротических фильмов - Большая эротическая подборка / The collection of the erotic films (1885 -1928) DVDRip
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>След.
+>>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352556.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - A Golden Reaper (04:46)
-02 - In Veste Maculatum (03:14)
-03 - Host (04:52)
-04 - Rituale Romanum (02:54)(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:22:33
+Сборник содержит 10 эротических фильмов - начиная от оживших фотографий Мейбриджа для зоопраксископа (1885) до профессиональных картин американской студии "Cine Art Productions", снятых в 1927-1928 годахПроизводство: США, Австро-Венгрия. Saturn-Film, Cine Art ProductionsЖанр: Эротика, короткометражный, немое киноРежиссер: Эдвард Мейбридж, Йохан ШварцерАктеры: НеизвестныЯзык озвучки: НемойСубтитры: Русские отдельным файлом (в двух фильмах)Продолжительность: 00:02:00 серия (10 серий)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87D46A8DA1AC06D9BAF7CBB115DE9F3E2A0B5E0D
+magnet:?xt=urn:btih:3D53AF5D70418FCB7CB7F879936437F95B79D856
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577465   (352555) от 20.09.2022
+###  Публикация: 1415604   (352664) от 22.10.2020
 
-Crust - Wanderers (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Post Black, Death, Doom Metal>
+Мосгаз. Катран (2020) SATRip (сезон 7, серии 1-8 из 8)
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>След.
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352555.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Serpent of Doom [00:05:43]
-02. Sleeping in My Grave [00:06:47]
-03. Terra [00:04:59]
-04. Until Our Swords Get Blunt [00:04:08](   Читать дальше...   )Жанр: Sludge Post Black, Death, Doom MetalПродолжительность: 00:41:51
+1978 год. Группа Черкасова начинает новое расследование: на подмосковной даче убиты молодая игроманка Кира Миллер и ее любовник полковник Потапенко. Выясняется, что незадолго до гибели Кира проиграла 400 тысяч рублей в катране – подпольном казино. Чтобы узнать все обстоятельства дела, майор Черкасов решает отправить в катран Соню Тимофееву. В казино Соня встречает (   Читать дальше...   )Производство: Россия / Красный квадрат, Студия Русский ПроектЖанр: ДетективРежиссер: Сергей КоротаевАктеры: Андрей Смоляков, Марина Александрова, Максим Аверин, Алёна Бабенко, Алексей Бардуков, Александр Голубев, Даниэла Стоянович, Евгения Крюкова, Екатерина Климова, Луиза Мосендз, Олег Морозов и др.Продолжительность: ~00:50:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E700A68507E553EDC9926E4E8D5473ADAF87D7B7
+magnet:?xt=urn:btih:0F717C3EE4F9DCE64CA34F93FFDD93DB399D3AD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577724   (352554) от 20.09.2022
+###  Публикация: 1417964   (352663) от 22.10.2020
 
-Hollywood Nightmare - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+ESET NOD32 Internet Security 14.0.21.0 [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352554.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Inferno [00:02:37]
-02. The Haunted [00:03:26]
-03. Interlude [00:00:32]
-04. Fade Out [00:03:06](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 2 CD, 01:03:20
+ESET NOD32 Internet Security – комплексный антивирус и интернет-защита с облачными и проактивными технологиями. Включает фаервол, инструменты для безопасных онлайн-платежей и защиты домашней сети, родительский контроль. ESET NOD32 Internet Security поможет сделать работу в интернете максимально защищенной и безопасной. Надежное распознавание всех видов угроз и высокая (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFF8984A21152E3F52A53450F7D553F5453AC853
+magnet:?xt=urn:btih:16B51A5D2A8143D7676B409A39D49E6704EF9BA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577733   (352553) от 20.09.2022
+###  Публикация: 1415752   (352662) от 22.10.2020
 
-Witchery - Nightside (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Thrash, Speed Metal>
+Мосгаз. Катран (2020) WEBRip [H.264/1080p-LQ] (сезон 7, серии 1-8 из 8)
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>След.
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352553.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Witching Hour (03:03)
-02 - Don't Burn the Witch (03:22)
-03 - Storm of the Unborn (04:36)
-04 - Er steht in Flammen (01:45)(   Читать дальше...   )Жанр: Blackened Thrash, Speed MetalПродолжительность: 00:35:50
+1978 год. Группа Черкасова начинает новое расследование: на подмосковной даче убиты молодая игроманка Кира Миллер и ее любовник полковник Потапенко. Выясняется, что незадолго до гибели Кира проиграла 400 тысяч рублей в катране – подпольном казино. Чтобы узнать все обстоятельства дела, майор Черкасов решает отправить в катран Соню Тимофееву. В казино Соня встречает (   Читать дальше...   )Производство: Россия / Красный квадрат, Студия Русский ПроектЖанр: ДетективРежиссер: Сергей КоротаевАктеры: Андрей Смоляков, Марина Александрова, Максим Аверин, Алёна Бабенко, Алексей Бардуков, Александр Голубев, Даниэла Стоянович, Евгения Крюкова, Екатерина Климова, Луиза Мосендз, Олег Морозов и др.Продолжительность: ~00:48:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95AA538E8492A4401347A9BAA374F5C2C5E07A21
+magnet:?xt=urn:btih:5C9DAC81208CCB9573CE84BAEF5B293573A0BDB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577412   (352552) от 20.09.2022
+###  Публикация: 1417809   (352661) от 22.10.2020
 
-Небокрай - Моровая Язва (2012) EP [FLAC|Lossless|image + .cue] <Pagan Black Metal>
+Skillbox | Продвижение в Instagram (2020) PCRec
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352552.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. В Стужу И Ночь...
-02. Моровая Язва
-03. Der Tod In Flandern
-04. Волки МорейЖанр: Pagan Black MetalПродолжительность: 00:26:35
+Вы научитесь создавать яркий фото- и видеоконтент, который понравится вашей аудитории, поймёте, как работать с блогерами и запускать таргет. Сможете привлекать новых подписчиков и легко превращать их в клиентов. В конце курса у вас будут готовый к продвижению аккаунт и набор инструментов для вашего бизнеса.Жанр: БизнесПродолжительность: 11:39:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:660C706E2C29EF65B35FD134C74EA6D5646AF6C0
+magnet:?xt=urn:btih:40FB7AA16BB6FBA2F8B015D42323FA21612E64D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,26 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577785   (352551) от 20.09.2022
+###  Публикация: 1415486   (352660) от 22.10.2020
 
-Downcast 2.11.14 [En]
+Территория (2020) WEB-DLRip (сезон 1, серии 1-7 из 7)
 
->>Архив торрентов
->>Архив 4Apple
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352551.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downcast - популярное приложение подкаста iOS теперь доступно для OS X. Загрузка, проигрывание и синхронизация. Ваши любимые подкасты с интуитивным интерфейсом, созданным исключительно для подкастов.
-Downcast – программа для загрузки и прослушивания подкастов без необходимости использовать iTunes. Поиск, подписка и скачивание видео и аудио подкастов любого размера, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.09.2022Разработчик: © 2012-2022 Jamawkinaw Enterprises LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+19-летний Егор Чудинов отправляется на поиски родителей, которые пропали во время этнографической экспедиции по Пермскому краю. Вместе со своим дядей Николаем и двумя случайными попутчицами — студентками-филологами Таней и Надей — Егор продвигается вглубь территории, которая живет по своим законам и традициям. Здесь мрачная природа, здесь в землянках живут отшельники, (   Читать дальше...   )Производство: Россия / Good Story MediaЖанр: драма, триллерРежиссер: Игорь ТвердохлебовАктеры: Андрей Мерзликин, Глеб Калюжный, Анастасия Чистякова, Алексей Розин, Евгений Мундум, Ксения Отинова, Клавдия Коршунова, Николай Шрайбер, Сергей Колесов, Константин ИтунинПродолжительность: ~00:52:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:496A4BC4DB2B31CBCD8C086A83BAB6A349BD8DD9
+magnet:?xt=urn:btih:50FFDA5E0CEA0041CF025FE4EE2BA7148DC09BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,25 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577495   (352550) от 20.09.2022
+###  Публикация: 1417636   (352659) от 22.10.2020
 
-Stilgar - 4 Releases (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Crysis: Remastered (2020) [Ru/Multi] (1.2.0) License CPY
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352550.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352659.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Холодный Воздух [00:03:23]Жанр: Hard RockПродолжительность: 4 CD, 01:30:19
+Классический шутер от первого лица от Crytek возвращается с динамическим игровым процессом, режимом «песочницы» и захватывающими эпическими битвами. В игре вас ждёт обновленная графика, оптимизированная для оборудования нового поколения.Тип издания: LicenseРазработчик: CrytekЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52510AC4D4CE8FE1D1D2541D396D7F34876B9BFC
+magnet:?xt=urn:btih:44FAD2343C76B25C8E9BEF702D75FD8C8D1BBF4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,28 +206,275 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577622   (352549) от 20.09.2022
+###  Публикация: 1417556   (352658) от 22.10.2020
 
-Rob "Wild Boar" Moore - Used to Be Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Microsoft Windows 10.0.19042.508 Version 20H2 - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.508.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A38E182827702EFC04D65F1D0A3A9239F45DCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417441   (352657) от 22.10.2020
+
+W10 Digital Activation v1.3.9 by Ratiborus [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352657.jpg" />
+</div>
+
+
+###  Подробнее
+
+W10 Digital License Activation - инструмент от Ratiborus для активации Windows 10 с помощью цифровой лицензии.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BCC16F2737AC3D54AA7939A234AB2A8807B8F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330198   (352654) от 22.10.2020
+
+Дем Михайлов | «Низший» [10 книг] (2019-2020) [FB2]
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл: «Низший» книги 1-10.
+
+Безымянный мир, где рождаешься уже взрослым и в долгах.
+Мир, где даже твои руки и ноги тебе не принадлежат, а являются собственностью бездушной системы. Безумно жестокий мир, где жизнь не стоит ни единого сола, где ты добровольно низший со стертой памятью, где за ошибки, долги и преступления тебя лишают конечности за конечностью, медленно (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, АнтиутопияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FA10303DBA575D142E0C02C0DDCB6475DBBE94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417417   (352649) от 22.10.2020
+
+Неистовый / Unhinged (2020) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нет ничего опаснее человека, доведенного до точки кипения. Особенно, если жизнь обошлась с ним несправедливо и теперь ему нечего терять. Именно таким оказывается водитель автомобиля, с которым повздорила на дороге обычная мать-одиночка, не подозревая, что нажила себе безжалостного врага. Теперь он не остановится пока не преподаст страшный урок своей жертве и всем, (   Читать дальше...   )Производство: США, Burek Films, Ingenious, Solstice StudiosЖанр: ТриллерРежиссер: Деррик БортеАктеры: Расселл Кроу, Джимми Симпсон, Карен Писториус, Гэбриел Бейтман, Остин П. МакКензи, Энн Мари Лейтон, Майкл Пападжон, Люси Фауст, Сильвия Грэйс Крим, Стивен Луис ГрашПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full)Продолжительность: 01:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA3568B10C51434A9B713083C7693F1EBA47BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 724054   (352647) от 19.11.2013
+
+Журнал | WoodCarving №131 (март-апрель 2013) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Woodcarving - журнал, посвященный декоративной резьбе по дереву. Представлены проекты различных фигурок (звери, птицы, люди, сказочные существа). Иллюстрирован весь процесс производства, материалы и инструменты. Описаны приемы работы и типичные ошибки. Журнал выходит 1 раз в два месяца.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FBA310393EDAE840980CAA2E0C0DD0009D1DB01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 408287   (352615) от 10.11.2011
+
+Chiyomaru SHIKURA - THE WORKS ~Chiyomaru Shikura Music Collection~: VA (2008-2009) [FLAC|Lossless]<J pop-rock/Game/Anison>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_352615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 追想のディスペア いとうかなこ
+02. 磔のミサ ファンタズム(榊原ゆい)
+03. flower of bravery fripSide
+04. その先にある、谁かの笑顔の为に (   Читать дальше...   )Жанр: J pop-rock/Game/AnisonПродолжительность: 01:09:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072585   (352614) от 13.11.2016
+
+VA - Greatest Kitts Vol.4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonwalk - Breath (original mix) [07:08]
+02. Phil Fuldner - Needin' Someone (Sascha Braemer remix) [07:57]
+03. Juliet Sikora - Larrys Garage (original mix) [06:03]
+04. Tube & Berger - When They Come (original mix) [06:20](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6EB9D2A838C5F48F5912DC2B8BDD78996E3F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072521   (352613) от 13.11.2016
+
+VA - Осенняя Дискотека По-Русски 3 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352613.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Helena Shadia - О Тебе 3:00
+002.Толя Famous & Сергей Пичугин - Заведи Мой Пульс 3:49
+003.Елена Темникова Feat. Natan - Наверно 3:21
+004.Сестры Толмачевы - Молчание 4:06(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE9978106C01C4C61EBDCCDAEDAE1C0DFAFDB81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072662   (352612) от 13.11.2016
+
+КиношоУ (2016.11.13) SATRip (выпуск 6)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киношлягеры, кинокадры, кинопробы, киноремейк и даже киновикторина — это «Киношоу»! Беспрецедентный проект, который не имеет аналогов на российском телевидении. 12 артистов соревнуются между собой за звание истинного знатока кино. Зрители увидят любимых актеров и музыкантов в образах известных киноперсонажей и откроют шедевры киноискусства с неожиданной стороны. (   Читать дальше...   )Производство: НТВЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 02:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484057EDA6C72510FBD23B50D66A3D520DFE7611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072601   (352611) от 13.11.2016
+
+Danny Bryant's Redeyeband - Just As I Am (2010) [FLAC|Lossless|image + .cue] <Blues Rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352549.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352611.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Used to Be Wild (feat. Tom Linsk) (4:29)
-02. I Need You so Bad (feat. Heather Tackett) (4:58)
-03. There for You (feat. Vince Salerno) (4:40)
-04. Forty-Nine Years Between Kisses (feat. Vince Salerno) (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:44
+01|  Shut Out The Light  (03:09) 
+  02|  Blues For Buddy  (04:27) 
+  03|  For The Last Time  (05:35) 
+  04|  Every Time the Devil Smiles  (04:28) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A50A16DDBC55876A76B427E70875B2A069DFD98
+magnet:?xt=urn:btih:4F5748E867798161BBFC9DEF8F287CA58EB8A3E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,28 +482,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577685   (352548) от 20.09.2022
+###  Публикация: 1072389   (352610) от 13.11.2016
 
-Kaine - After Extinction (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+VA - Deep and Sexy: 20 Deep House and Funky House Music Tunes Vol.8 (2016) [MP3|320 Kbps] <Funky, Club House>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352548.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_352610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Second Coming (The Cycle) [00:04:26]
-02. A Slave To The Grind [00:04:31]
-03. The Storm Is Coming [00:05:58]
-04. Protesting For Profit [00:05:21](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:21
+01. Alexandre Sander - Touch the Film - Original Mix
+02. Quantic System - Saving Hope - Original Mix
+03. Ron Carlton - Difficult Choice - Original Mix
+04. Kord Steven - Horizon Blind - Original Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:09:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6F4CDD6DF3F7C4373C00A0CFA95395811E5C9C1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,28 +511,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577573   (352547) от 20.09.2022
+###  Публикация: 1072669   (352609) от 13.11.2016
 
-S.C.A.L.P. - 2 Albums, 2 Singles (2019-2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+VA - Best City Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352547.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. К Истоку [00:01:07]
-02. Промах [00:03:53]
-03. Карусель [00:05:33]
-04. Я Поделюсь [00:04:06](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 4 CD,
+01. Chillelektro – Punta Roja (05:56)
+ 02. Oscar Salguero – Strings (03:58)
+ 03. Cane Garden Quartet – Out With Friends (05:21)
+ 04. Alexander Dancaless – Coffee Morning (02:36)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37D06BEDEF2B8EDC30CD094A5FD7C2459D610E79
+magnet:?xt=urn:btih:3E540C402D7E083AD583A9DB04528A62053087B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,28 +540,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577665   (352546) от 20.09.2022
+###  Публикация: 1072416   (352608) от 13.11.2016
 
-Epoch Of Unlight - At War With The Multiverse (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+VA - Premier League Lounge: Groovy Cool and Smooth Sounds for Easy Listening (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352546.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Anthropocene
-02. The Numbing Stillness
-03. Wrath Of The Cryomancer
-04. An Amaranthine Line(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:53
+01. Atrium – Praise for the Beach – Radio Edit
+ 02. Moodchill – I Thought You Were the One – Radio Mix
+ 03. Zenyatta – Too Good – Radio Edit
+ 04. Suite Unique – Beach Talk(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3C46A16DBE8D45D942A9B68E1CCAA791EEFEA69
+magnet:?xt=urn:btih:09D5F736B586BFB9ECE6BD8033821DD6704C8D5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -341,54 +569,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 723739   (352525) от 19.11.2013
+###  Публикация: 1072618   (352607) от 13.11.2016
 
-Околофутбола (2013) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о самой закрытой части футбольных болельщиков — околофутбольных хулиганах. Они — самые агрессивные и жестокие представители мира футбольных фанатов. Они — элита околофутбола. Кем бы они ни были в обычной жизни — студентами или банкирами, музыкантами или автомеханиками, на самом деле все они — одна «фирма». Попасть в «фирму» очень сложно, но если ты в ней оказался — это на всю жизнь. И обратного пути нет.Жанр: драма, криминалПродюсер: Сергей Сельянов, Елена Быкова, Денис ЛосьВ ролях: Александр Ратников, Иван Фоминов, Григорий Иванец, Павел Ерлыков, Дарья Мингазетдинова, Юлия Маньковская, Евгений Березин, Никита Кукушкин, Сергей Шнырев, Максим ПавловПеревод: Не требуетсяПродолжительность: 01:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C19B281E76CF3972B118B7B11A3733131F7774D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072604   (352500) от 13.11.2016
-
-VA - Ultimate Quick Pop Hits! (2016) [MP3|224-320 Kbps] <Pop, Dance, Southern Hip-Hop>
+VA - Заключительная осенняя дискотека - 7 (2016) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352500.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001.Anthem Kingz - St. Patricks Day Friends (Kingz Drunk as Fuck Trapsistion) 4:26
-002.Bob Sinclair X Henry Fong - Rock This Party 2016 (Bootleg) 2:39
-003.Rudy Zensky X Luciana - Stay Up Till The Mornin (Bootl)2:27
-004.Mike Posner X Snoop Dogg - I Took A Pill In Ibiza (Mash-U) 2:43(   Читать дальше...   )Жанр: Pop, Dance, Southern Hip-HopПродолжительность: 06:06:20
+001.Vanic Feat. Katy Tiz - Samurai 3:22
+002.Алексей Кудрявцев - Не Было Тебя 3:32
+003.Александр Шоуа - Натали 3:37
+004.Сандра Круглова - Бит Любви 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B47B0DE125FF14691582B01F2E36AC759439E7B
+magnet:?xt=urn:btih:88A27B0ADD4FCFD362EBE08A72886BD8A0141C3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,109 +598,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072622   (352499) от 13.11.2016
+###  Публикация: 1072541   (352606) от 13.11.2016
 
-Журнал | Добрые советы. Цветы в доме №7 (июль 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная часть издания — письма читателей, в которых они делятся своим опытом по выращиванию цветов, защите их от болезней и вредителей, обустройству балкона, террасы и зимнего сада. Выбор растений для интерьера, лечение и меры по защите растений, паутинная лилия, перец на подоконнике. И другие письма с рекомендациями по уходу за комнатными растениями - в номере.Жанр: ЦветоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D698AF8887BBC7604BC423CDC0134D5ECBA63553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072544   (352498) от 13.11.2016
-
-VA - Club Dance Ambience Vol.93 (2016) [MP3|320 Kbps] <Dance, Club, Club House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352498.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Antoine Clamaran, Agua Sin Gas - Comin' (Original Mix) 5:51
-002.Alex Blue - Still Losing Control (Tropical Mix) 4:30
-003.Alex Indigo - Xo4y (Niral Remix) 6:01
-004.AlunaGeorge & A - One - Not Above Love (DJ Vadim Adamov Mash UP) 3:58(   Читать дальше...   )Жанр: Dance, Club, Club House, HouseПродолжительность: 07:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E9A1EF0B03D5D055DD4281E46CF1C5C5B32BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072571   (352497) от 13.11.2016
-
-Later - Create Quick Reminders With Presets 1.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Later позволяет планировать напоминания естественным образом, выбирая время, как в этот вечер, завтра утром или на следующей неделе. Чтобы добавить простое напоминание, позже приложение будет идеальным для вас.
-
-Основные преимущества:
-• Напоминания, которые появляются, когда вы вернулись на свой Mac(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2016Разработчик: Regular SIAПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5735192C23AA1736401AB0FC4E5F8897155568F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072657   (352496) от 13.11.2016
-
-Добров в эфире (13.11.2016) SATRip
+Первая передача на НТВ. Автомобильная передача (2016.11.13) HDTV [H.264/1080i] (выпуск 269)
 
 >>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352496.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В последний час уходящей недели известный российский журналист и политолог Андрей Добров расскажет о самом интересном в стране и в мире. Самые обсуждаемые события недели. Все, о чем говорили, спорили и писали. О том, что осталось за кадром. Как все было на самом деле. Неожиданные факты. Эксклюзивные съемки. Авторские репортажи. Главные ньюсмейкеры страны. Динамично. (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 01:13:00
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВ HDЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:33:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17DF53DEB021D57387F729F26C937B680DC33169
+magnet:?xt=urn:btih:1BDD53CDC744085217C8B1DFCBFCCE795C075AFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,28 +624,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072497   (352495) от 13.11.2016
+###  Публикация: 1072443   (352605) от 13.11.2016
 
-Rich Robinson - Flux (2016) [FLAC|Lossless|image + .cue] <Folk-Rock, Blues-Rock>
+VA - Trance Amsterdam 2016 (The Hottest Dutch Trance Sounds) (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352495.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Upstairs Land 03:15
-02. Shipwreck 03:57
-03. Music That will Lift Me 03:59
-04. Everything's Allright 05:49(   Читать дальше...   )Жанр: Folk-Rock, Blues-RockПродолжительность: 00:59:32
+01. Matt Pincer - Final Exit
+02. Vechigen - Do Not (Trance Mix)
+03. I5land - Bukowski (I5land Remix) (Feat. J.A.Z.Z.Y.)
+04. Fedde Van Diemen - Illumination (Kaiyah Radio Edit)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:10:05
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:05BC7A977E7A72B32D93AC9730046D23DCC64F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,27 +653,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072382   (352494) от 13.11.2016
+###  Публикация: 1072407   (352604) от 13.11.2016
 
-Формула 1. Гран-При Бразилии. 3-я практика (2016.11.12) HDTV [H.264/1080i]
+VA - Space Cafe, Vol. I (Finest Chillout & Lounge Tracks) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>
->>
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352494.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 ноября 2016 года.
-Этап 20. Гран-при Бразилии.
-Арена: Автодром Интерлагос - Жозе Карлос Пасе (Сан-Паулу, Бразилия)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 01:08:23
+01. Jazzy System – Another World (00:05:05)
+ 02. CiYou – Sphere City (Lounge Input Mix) (00:04:07)
+ 03. Soundset City – Space Key (Lounge Mix) (00:03:57)
+ 04. Jean Mare – Insani (00:05:15)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:44
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B38280EF73324E63ABF8A953FB6A6D752F3B555F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,165 +682,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072414   (352493) от 13.11.2016
+###  Публикация: 1072399   (352603) от 13.11.2016
 
-П. И. Стучка | 13 лет борьбы за революционно-марксистскую теорию прав (1931) [PDF]
+Danny Bryant's Redeyeband - Covering Their Tracks (2004) [FLAC|Lossless|image + .cue] <Electric Blues, Blues Rock>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352493.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352603.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сборнике статей я наметил новое разделение на этапы. Во-первых, я включил единственную революционную статью но правовым вопросам за весь период буржуазной революции 1917 г., представляющую собою почти только перепечатку слов К. Маркса пред Кельнским судом присяжных (из плохого перевода цензурного экземпляра дореволюционных времен). Слова эти повторяются неоднократно. (   Читать дальше...   )Жанр: История, политология, правоведение, экономикаФормат: PDF
+01|  This Is The Blues  (04:12) 
+  02|  Hendrix Jam  (03:56) 
+  03|  Old Love  (05:11) 
+  04|  Blues Before Sunrise  (03:56) (   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:50:43
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072611   (352492) от 13.11.2016
-
-Воскресное время - Первый канал (13.11.2016) SATRip
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-аналитическая программа Первого канала, выходящая в эфир каждое воскресенье (кроме праздников) с начала сентября по начало июля в 21:00 с хронометражем в 1 час. Рубрик не имеет. Состоит из двух частей примерно по полчаса каждая, разделенных рекламным блоком. Производится Дирекцией информационных программ ОАО «Первый канал».Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 01:21:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072438   (352491) от 13.11.2016
-
-Noveria - Forsaken (2016) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost 01:46
-02. Shock 05:56
-03. Denial (feat. Kelly Sundown Carpenter) 04:54
-04. When Everything Falls 05:09(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072560   (352490) от 13.11.2016
-
-VA - Best Chillout Vol.20 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352490.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.adamlondon - tethered (Original mix) 3:06
-002.Arrow Flow - Let Yourself Be Free (Chill Out Mix) 7:04
-003.Alpines - Another River (Original mix) 3:48
-004.Benta - Lover In Dark (AObeats Remix) 4:46(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:42:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072027   (352489) от 13.11.2016
-
-VA - Шальной музон от радио Шансон - 9 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352489.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Денис Мафик - За Все Хорошее 3:23
-002.Илья Лукин - Оттепель 4:00
-003.Вадим Крестный - Два Черных Лебедя 4:01
-004.Владимир Захаров - Я Не Пойму 3:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BD2D6F229131CF6EBAF9C7A621F890600A18D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072619   (352488) от 13.11.2016
-
-Газета | 1000 советов дачнику №20 (октябрь 2016) [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352488.jpg" />
-</div>
-
-
-###  Подробнее
-
-«1000 Советов дачнику» - полезная и интересная газета для всех, у кого есть приусадебный участок.
-Собственный скан, без рекламы.Жанр: Дом, сад, огород, дачаФормат: PDF
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:4430FB50D8B011DD534E1E25C6DB83F53DCC6431
 ```
 
 https://mybot314.ru/tekegram_catalog/

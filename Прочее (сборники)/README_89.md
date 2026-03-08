@@ -1,3 +1,119 @@
+###  Публикация: 920287   (580005) от 22.07.2015
+
+VA - Дискотека 2015 Deep House - The Best (2015) [MP3|320 кб/с]<Deep, Progressive House, NuDisco, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZHU - Faded (Original Mix)
+ 02. Feder feat. Lyse - Goodbye (Maxim Kurtys Remix) (DEEP ONE radio edit)
+ 03. Kadebostany - Castle In The Snow (Ivan Spell Radio Mix)
+ 04. Charming Horses feat. Emma Carn - You And I (Original Mix)(   Читать дальше...   )Жанр: Deep, Progressive House, NuDisco, Indie DanceПродолжительность: 15:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D99FEE1BFFA3AC01307789058BA316FEB23B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920445   (579998) от 22.07.2015
+
+VA - (Score) Sonic The Hedgehog 4 Episode I & II (2012) [MP3|320 кб/с]<Score>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип собранный из Lossless качества01. Sylvania Castle Zone Act 3
+02. White Park Zone Act 1
+03. White Park Zone Act 2
+04. White Park Zone Act 3(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A05E5EF48C0CE1C62915DA8DB02A5A63C78092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920508   (579617) от 22.07.2015
+
+VA - Hot Dance Summer 2015 Vol. 4 (2015) [MP3|320 кб/с]<Club , Dance , House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579617.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Donati & Amato - You Are My Lover (Original mix) [07:33]
+002. Hellberg feat. Cozi Zuehlsdorff - The Girl (Anevo Remix) [05:04]
+003. Alesso ft. Nejtrino & Stranger - Heroes (Dj Bogdan Ivanov Mash-Up) [03:38]
+004. Damae, Mekki Martin - Shine (Luca Debonaire Keep Shinin Mix) [05:54](   Читать дальше...   )Жанр: Club , Dance , HouseПродолжительность: 10:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC0D4F184CFDEAC1B46D851D20EA311F5B5EE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042118   (579605) от 12.08.2016
+
+VA - I Met Her in Ibiza (2016) [MP3|320 Kbps] <Club, Tech House, Funky, Tribal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microwave Monkeys - I've Been Thinking About You 05:49
+02. Eddy Chrome - Island Of Love (Radio Edit) 03:54
+03. Mattei, Omich & Re-Tide - Soul Man 06:28
+04. Sounds Of Summer - Praise The Sun (Radio Version) 03:46(   Читать дальше...   )Жанр: Club, Tech House, Funky, TribalПродолжительность: 05:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6203CF39C3F12AD53CE5F2205D5B433C6F02EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042195   (579603) от 12.08.2016
 
 VA - Ultra Pleasure Music DJ (2016) [MP3|320 Kbps] <UK Garage Club, Funky, Jackin, Tech House>
@@ -620,122 +736,6 @@ Andru Donalds - the voice of the Enigma - Snowin’ Under My Skin (1999) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42583C73DC62AE956B148AC99ED3CFEF375CE005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757378   (575991) от 19.05.2019
-
-VA - Любителям цыганской песни (2014) [MP3|256 кб/с]<Folk, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575991.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Василий Васильев - Повисла в окне луна-уголёк
-002. Кабриолет - Ай-я
-003. Сестры Богдановы - Душа
-004. Edgar Orchestra - Amaiorka (инструментальная)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 10:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D21AA4AD9578DFD70830CBEC401B377AF5F7D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303072   (575655) от 19.05.2019
-
-VA - Зайцев.нет Лучшие новинки Мая 2019 [MP3|256 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Баста feat. Daria Yanina - Зажигать (5:53)
-02.Storm DJs & Grishina - На Ощупь (Back To USSR Version) (4:56)
-03.Григорий Лепс - Life Is Good (4:38)
-04.Юлия Коган - Танцы На Столе (4:30)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEFEC2F07E5ACBAF454C66E9A8D2B7CE934A58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554177   (575451) от 31.05.2022
-
-VA - Mega Hit Mix (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZAYN - Dusk Till Dawn (feat. Sia) (Radio Edit) (4:27)
-02. The Kid LAROI - WITHOUT YOU (2:41)
-03. Taylor Swift - The Man (3:10)
-04. Taylor Swift - cardigan (3:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF811100DD2A5798BA11D2F341C8E82721B09C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921664   (575407) от 25.07.2015
-
-Aldo Lesina - Castles & Dungeons (2015) [MP3|320 кб/с]<Electronic, Eurobeat, Italo Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illusion
-02. Goodbye (Extended Romance Mix)
-03. Look Me In The Eyes (Plain Mix)
-04. Another Time(   Читать дальше...   )Жанр: Electronic, Eurobeat, Italo Dance, DiscoПродолжительность: 01:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1368F8BFAADD5C13BDD33A23FFBB4554E73101DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

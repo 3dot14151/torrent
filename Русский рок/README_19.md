@@ -1,32 +1,3 @@
-###  Публикация: 1371346   (892126) от 30.03.2020
-
-HAGAT - Извращение (2020) [MP3|320 Kbps] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892126.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Цветы зла [4:16]
- 2. Ожидание [4:33]
- 3. Смерть Анны [3:55]
- 4. Сладострасть [4:21](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6CDF17821FDFDD4F1C7104221D71CB8650D629C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869488   (891346) от 15.02.2015
 
 РадиоЦех - Панове Президенте (2015) [MP3|320 кб/с]<Rock>
@@ -759,6 +730,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F47FA079F4CEF693A24DEFB7580582F0ADB846EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996114   (880960) от 13.03.2016
+
+Порт(812) - Абсолютно всех (2016) [MP3|320 кб/с] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+ 02. Сомнения
+ 03. Война
+ 04. Проснись!(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0823FE51F8DBDC5A35F5D431FD35EB3D53698FB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1291054   (672320) от 23.03.2019
+
+Cappuccino - Cappuccino (1979) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Dance With Me (6:01)
+02. San Francisco (5:18)
+03. Lucky Woman (5:54)
+04. Tomorrow (5:05)(   Читать дальше...   )Жанр: Electronic, Funk, DiscoПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA048B8D9984BF5F69A1986F15F4A2C7F9750648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030684   (672294) от 01.07.2016
+
+VA - In The Loving Memory Of Diana, Princess Of Wales (1997) Unofficial Release [APE|Lossless|image + .cue] <Pop, Funk, Soul, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John - Candle In The Wind
+02. George Michael - You Have Been Loved
+03. Lisa Stansfield - Don't Cry For Me
+04. Seal - Kiss From A Rose(   Читать дальше...   )Продолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA8E0A187AA85849F6C23E1B126C9C873DC27C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291249   (672226) от 23.03.2019
 
 VA - Italo Holiday, New Generation Italo Disco Vol.11 (2019) [MP3|320 Kbps] <Euro Dance, Pop, Dance>
@@ -687,64 +745,6 @@ Script - редкое французское космическое диско �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6EEC59811ADCF988F0EFA1454891DF50E919545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537179   (669260) от 15.03.2022
-
-VA - Mastermix Pro Disc 258 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ACRAZE feat. Cherish - Do It To It
-02. Adele - Easy On Me
-03. ArrDee - Flowers (Say My Name)
-04. Beyonce - Be Alive (Original Song from the Motion Picture King Richard)(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:16:12 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4971316C51384A8C8D20DD9E004D3E817DC5C4EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137033   (669215) от 25.05.2017
-
-Dionne Warwick - The Real... Dionne Warwick (2015) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Easy Love
-2. Love Power
-3. Heartbreaker(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 03:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F70D395A0D2B3C3120B16F57E6D694B26A885E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

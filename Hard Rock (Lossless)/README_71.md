@@ -1,32 +1,3 @@
-###  Публикация: 1645088   (232990) от 08.07.2023
-
-Liliac - Madness (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carousel 03:35
-02. Rise Up 03:15
-03. Rebel Girl 02:49
-04. Somber Cry 03:22(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD17037489D6EF36B42EDCB4F877CF4D7393E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635863   (232955) от 27.05.2023
 
 Gorilla Pulp - Mask Off! (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -743,6 +714,35 @@ Heezer - Sungrinder (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Gr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F14F80CF04DED79837981598291C3845C7000E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644859   (232004) от 08.07.2023
+
+Degreed - Public Address (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Plans (3:50)
+02. Who Are You (To Say) (4:04)
+03. Way of The World (3:15)
+04. This Is Love (3:16)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25B774FC006343102DD7F232A00FF4134FC55B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

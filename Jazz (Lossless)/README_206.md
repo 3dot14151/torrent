@@ -1,3 +1,32 @@
+###  Публикация: 1071503   (357129) от 11.11.2016
+
+Sam "The Man" Taylor - Sam Taylor Pops Daizen Shu (2003) [FLAC|Lossless|image + .cue] <Instrumental, saxophone>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harlem Nocturne (2:49)
+02. Danny Boy (2:57)
+03. Stardust (3:03)
+04. Smoke Gets In Your Eyes (3:15)(   Читать дальше...   )Жанр: Instrumental, saxophoneПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5664F0E6C32063AE6F843AE4754A3F7F55464A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256280   (356906) от 21.10.2018
 
 Benny Goodman - The Legendary Small Groups (1935 - 1938) 2003, BMG [FLAC|Lossless|tracks + .cue] <Swing>
@@ -716,35 +745,6 @@ Glenn Miller Orchestra - The 40's Glenn Miller Orchestra (1993) [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54AF4C0175947B3EBEAB7B8448695A239A3BCBD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952815   (353669) от 02.11.2015
-
-Harry Connick, Jr. - That Would Be Me (2015) /Columbia Records/[FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.(I Like It When You) Smile [03:34]
- 02.(I Do) Like We Do [03:48]
- 03.Tryin' To Matter [04:25]
- 04.Songwriter [03:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A8E1DA51D080E88B241341B8C44C3C31FBA558
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1613144   (1039622) от 18.02.2023
-
-Issa - Lights Of Japan (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live Again
-02. Lights Of Japan
-03. Seize The Day
-04. Stop The Rain(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:408BC5A6315532CAD9E853EE47C367EF66A283B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613345   (1039620) от 18.02.2023
 
 The Sweet - At The Beeb: The BBC Radio Sessions (Remastered 2023) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Glam Rock>
@@ -745,6 +716,35 @@ Disc One:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24CEB65FE2D3E4041B73C6DF1401367A39CC28F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613626   (1039383) от 19.02.2023
+
+Sonic Bong - 3 Albums (2017-2023) [MP3|320 Kbps] <Stoner, Sludge, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2017 - DEMO
+2017 - SMOKE WEED FUCK JESUS
+2023 - Sonic BongЖанр: Stoner, Sludge, Doom MetalПродолжительность: 3 CD, 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA1F184C526EA677D0D1875E49833AEE97BDC08
 ```
 
 https://mybot314.ru/tekegram_catalog/

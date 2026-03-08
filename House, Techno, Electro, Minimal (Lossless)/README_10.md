@@ -1,3 +1,91 @@
+###  Публикация: 860901   (937279) от 18.01.2015
+
+V.A. - Hed Kandi: Summer Of Sax (2014) 2CD [FLAC|Lossless]<House, Lounge, Jazzy>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937279.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Mix One - Dusk (01:17:47)
+CD2 - Mix Two - Dawn (01:16:40)Треклист CD1:
+01. Faul & Wad Ad Vs. Pnau - Changes
+02. Oliver $ & Jimi Jules - Pushing On
+03. Mr. Probz - Waves (Robin Schulz Remix)(   Читать дальше...   )Жанр: House, Lounge, Jazzy |Продолжительность: 02:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB24C61520F4172BB24C9C55E2B143D32B251BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092970   (937077) от 13.01.2017
+
+Satin Jackets - Panorama Pacifico (2016) [FLAC|Lossless|tracks + .cue] <House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel Good (2:46)
+ 02. We Can Talk (4:14)
+ 03. Shine On You (5:38)
+ 04. Keep Moving On (4:12)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8045905C07F8D4039FC7B49E733A220DD9B60F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093312   (933954) от 15.01.2017
+
+Cristian R - New Frequency (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Frequency (original Intro) (4:34)
+ 02. Alphard (original mix) (7:04)
+ 03. Spaceship (original mix) (8:33)
+ 04. Bamboo Forest (original mix) (7:32)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 02:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A288976A5226A6A1C797DEA671CAF952130BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364890   (933816) от 05.03.2020
 
 Nathan Micay - Blue Spring (2019) LuckyMe [FLAC|Lossless|WEB-DL|tracks] <Experimental, Breaks, Techno, Ambient, Trance>
@@ -657,89 +745,6 @@ Adani & Wolf - Here Comes the Hero (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A18618FBC2002397388E92F2C85EE99BD62D06D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366841   (920306) от 13.03.2020
-
-Boris Brejcha - Violet Pill (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920306.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Violet Pill (8:33)
-2. On His Way (9:00)
-3. Babamba (7:50)Жанр: Tech House, MinimalПродолжительность: 00:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2710AD6A5382532C8F8CE0C5C0D378F82C842840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304244   (918643) от 20.08.2021
-
-Kölsch (Kolsch) - Discography 32 Releases (2010-2021) Kompakt [FLAC|Lossless|tracks+.cue, tracks] <Techno, House, Tech House, Progressive House, Leftfield>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. US1873 (06:46)
- 02. LH479 (07:07)
- 03. SK1550 (05:53)
- 04. EZY865 (05:12)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno, House, Tech House, Progressive House, Leftfield •Продолжительность: 14:33:36 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C02331D7CEF5792E483794500F2164FBEB4B89A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490537   (917572) от 21.08.2021
-
-Leaving Laurel - Leaving Laurel (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Deep House, Progressive HouseПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1E0745986B31210F15989AF2206F47E6C656A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

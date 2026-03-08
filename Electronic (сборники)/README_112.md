@@ -1,3 +1,38 @@
+###  Публикация: 358663   (585223) от 03.07.2011
+
+VA - Amnezia Super Hits 60 (02.07.2011) [MP3|320 kbps]<Dance, Euro Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romeo Cooper ft. Megane - Je Veux (Radio Edit)
+ 02. Robert Abigail & Dj Rebel ft. The Gibson Brothers - Cuba (Radio Edit)
+ 03. Miani - Balkanica (Slowbrothers Radio Mix)
+ 04. Maria - Acredita (Believe)
+ 05. Flow 212 & Juan Magan - Ritmo Do Meu Flow
+ 06. Karmin Shiff ft. Juliana Pasini & Kryz Santana - Ole Ola (Radio Edit)
+ 07. Lucenzo ft. Don Omar - Danza Kuduro
+ 08. Willy William & Lylloo - Hula Hoop (US Radio Edit)
+ 09. El Simbolo - Ritmo Bomba (Acordeon Mix)
+ 10. Javier Voltaje & Vitamina C - La Chica Baila(   Читать дальше...   )Жанр: Dance, Euro DanceПродолжительность: 04:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4A7E1524A4F097C8446BE45C2DC07BB8EBD2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040606   (585049) от 06.08.2016
 
 VA - Hits of My Soul Vol. 09 (2016) [MP3|320 кб/с]<Synthpop, Synthwave, Electronic>
@@ -726,35 +761,6 @@ VA - Mechanoids Carnival (2016) [MP3|320 Kbps] <Dubstep, Drumm and Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C43E906781DEB1C79AA7260CE4152A19C17DB2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041684   (581466) от 10.08.2016
-
-VA - The Best - In Music We Trust  Vol.5 (2016) [MP3|320 Kbps] <House, Trance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581466.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andrew Rayel & Digital X feat. Sylvia Tosun  -  Winterburn (Jorn van Deynhoven Extended Remix)  5:30
-002. Crew 7  -  Bounce (Melbourne Bounce Project Edit)  3:29
-003. Melbourne Bounce Project & Gemeni  -  Melbournia Superstars (Extended Mix)  4:10
-004. Kaimo K & Sarah Russell  -  Why Can't You Love Me (Original Mix)  6:50(   Читать дальше...   )Жанр: House, Trance, ClubПродолжительность: 06:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E71E6C930F9FD8C0D35CEB88B243C418FD54826
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1522247   (760236) от 06.01.2022
+
+Bebe Rexha - Compilation (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pillow
+02. Mine
+03. I'm Gonna Show You Crazy
+04. Pray(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E882AD47ACBD3A63D8198C8A5355F454F650CF5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522169   (760225) от 06.01.2022
 
 VA - Route Music: Disco Night (2021) [MP3|320 Kbps] <Disco, Funky, Nu Disco>
@@ -716,35 +745,6 @@ VA - Килобитный взрыв хитов - 5 (2016) [MP3|256 кб/с] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25875A5EA1089E078BBC1AA7DFC31D9A17AE40FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019581   (748458) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 5 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricchi E Poveri - Mamma Maria ( 1982 )
-02. Latin Lover - Laser Light ( 1986 )
-03. Samantha Fox - Touch Me ( 1986 )
-04. Secret Service - Oh Susie ( 1979 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC845507DDEC6CC59BF12CCF398D4D2CD1ECCCC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

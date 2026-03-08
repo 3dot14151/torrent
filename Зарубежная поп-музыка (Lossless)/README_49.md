@@ -1,3 +1,38 @@
+###  Публикация: 532562   (536430) от 08.08.2012
+
+VA - The Late '50s - The Top 10 Collection (1998) 4CD [FLAC|Lossless]<Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fats Domino - I'm In Love Again [02:03]
+02. Ricky Nelson - Lonesome Town [02:16]
+03. Chuck Berry - Johnny B. Goode [02:42]
+04. Georgia Gibbs - Dance With Me, Henry [02:20]
+05. Teresa Brewer With The Dick Jacobs Orchestra - A Tear Fell [02:38]
+06. Sarah Vaughan - Broken-Hearted Melody [02:25]
+07. Gale Storm - Ivory Tower [02:46]
+08. The McGuire Sisters - Sugartime [02:34]
+09. Patti Page - Allegheny Moon [02:54]
+10. The Chordettes - Lollipop [02:12](   Читать дальше...   )Жанр: Pop, Rock, Retro, OldesФормат: 4CD BoxSetПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311755   (536391) от 02.07.2019
 
 Heather Nova - Pearl (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -722,36 +757,6 @@ VA - Together As One (A Tribute To Damilola Taylor) (2003) [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44A1A1D0A099DBFE1DBC43285D1803C232181745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313235   (528109) от 07.07.2019
-
-VA - Top Of The Pops '1984 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528109.jpg" />
-</div>
-
-
-###  Подробнее
-
-И так -  продолжаем путешествие по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
-Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского сингла. (   Читать дальше...   )CD1:
-01. Chaka Khan - I Feel For You  (4:11)
-02. Cyndi Lauper - Girls Just Wanna Have Fun  (3:48)
-03. Kenny Loggins - Footloose  (3:42)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 03:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4F66040D374319A3D08E378561B83F2EDD3889
 ```
 
 https://mybot314.ru/tekegram_catalog/

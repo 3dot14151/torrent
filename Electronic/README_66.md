@@ -1,3 +1,61 @@
+###  Публикация: 1363647   (941890) от 28.02.2020
+
+VA - Best Remixes, Vol. 2 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddie Bitz - Believe (Sincere Sound Remix) (6:34)
+02. Phillipo Blake - Ripples (Zmey Remix) (6:34)
+03. Nikk Nova - 4 Seasons (Alexey Sorokin Remix) (5:53)
+04. Briana - Life Keeps On Going (Goldhands Remix) (6:36)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82FA1C355E70C2E6F9FD4F77E68D29A5FFECA9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363646   (941888) от 28.02.2020
+
+VA - Best Remixes, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stunner feat. Sofy Soprano - The One (Mixail Remix) (8:15)
+02. Nik Mechikov - Nice Thing (Katrin Souza Remix) (6:58)
+03. Zadmax - Nightly Motion (B-Fairy Remix) (7:08)
+04. Stunner feat. Sofy Soprano - The One (Andrew StetS Dub Mix) (5:47)(   Читать дальше...   )Жанр: Progressive Trance, HouseПродолжительность: 01:24:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5606FDB5B16A091CD0D91F97B4F817085E35AF15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363651   (941886) от 28.02.2020
 
 VA - Best Remixes, Vol. 3 (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Tech House>
@@ -691,64 +749,6 @@ VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6C6F2B2837931A8C02A68EA2A8ECCE211BD183A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092246   (940247) от 11.01.2017
-
-VA - Music for Pregnant Women: Soft Relaxing Chill for those expecting a baby (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.I.B. - Games Rain - Chillout Mix
-02. Georgy Om - Ocean
-03. The Orange - Anywhere Anytime Is You - Chillout Mix
-04. Tony Sit - Expectation - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A1A4A36F7A8D446F4EBF6F8860D354DABBFE08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092305   (940246) от 11.01.2017
-
-VA - Nu-Discoteque (Finest Nudisco and House) (2017) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Alex Hook - Right Now (feat. Rene) (Original Mix) [05:14]
-02 Dmitrii G - Antidote (Original Mix) [06:05]
-03 Rony Breaker - Something More (feat. Che Cherry) (Deeplomatik Vocal Mix) [06:32]
-04 Jazzyfunk - I Wanna Know (feat. Rene) (Alex Hook Remix) [05:41](   Читать дальше...   )Жанр: HouseПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701CFC253F8CD82D9B64D8FB7C2F2B3AC79FA93A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1412585   (416192) от 30.09.2020
+
+Duke Ellington - Complete Prestige Carnegie Hall Concerts (1946, 1947) 2001, 3CD, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416192.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Caravan [4:00]
+02. In a Mellotone [3:06]
+03. Solid Old Man [3:42](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA71CD86D2A72AA16F09050200976531C747D912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412582   (416186) от 30.09.2020
 
 Duke Ellington - The Carnegie Hall Concerts, December (1944) 1992, 2CD, Prestige [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ VA - The Newport Jazz Festival All-Stars & Bern Concert '89 (1990) Concord Jazz 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D949783B6A55DFAA83D64F405A902DB4971405B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168022   (412903) от 22.09.2017
-
-Bill Leslie - Diggin' the Chicks (1962) 2004, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Night Irene [05:24]
-02. Angel Eyes [04:51]
-03. Madge [04:35]
-04. Margie [04:30](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88163AF4D39F6759C6D24A352F0AFCB51B352B50
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1102793   (889579) от 10.02.2017
+
+VA - Resident Advisor Top 50 Charted Tracks January (2017) [MP3|320 Kbps] <Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cubicolor - Dead End Thrills (Patrice Baumel Remix) 07:24
+02. Luca Bacchetti - Vento (Original Mix) 10:05
+03. Isolee - Pisco (Original Mix) 07:46
+04. DJ Koze - Driven (Original Mix) 06:40(   Читать дальше...   )Жанр: Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech HouseПродолжительность: 06:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F4AC362085B6B8549F90762311B28988959F51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102660   (889557) от 10.02.2017
+
+VA - Молодежный бум хитовый. Сборник № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889557.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Funpills - Страсти 3:23
+002. Восемь По Гринвичу - Родились Побеждать 3:37
+003. Ira Smith - Буду Выше 3:36
+004. Александр Гужов & Николай Зайцев - Волны 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8446BCB8B272031126BF4D0CA9E6DEA7865C8669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102664   (889466) от 10.02.2017
+
+VA - Я слушаю шансон. Зимние хиты. Версия № 5 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889466.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сборная Союза - Але Любимая Привет 4:28
+002. Сергей Сорокин - Здравствуйте 3:10
+003. Сергей Луневич - Прощание 5:06
+004. Рома Рязанский - Банька 3:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F38B10E4994CEA80952C2CA98A56DD75490DE56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102662   (889355) от 10.02.2017
+
+VA - На волне позитива. Русский сборник (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889355.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tiana - Телеграммы 3:33
+002. Герр Антон (Herr Anton) - Так Тому И Быть 3:33
+003. Натали Янковских - Ты Мой 3:34
+004. Sunsay Feat. Тося - Поезд 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79F89EE8C4E47B99BA828545A1F8999B3AA0267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102799   (889353) от 10.02.2017
+
+VA - Underwater The Shadow Of Life (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889353.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Step - New Island (Alluna Remix) 05:01
+002. Tafubar - The Wicked Thoughts Of You (Lemongrass Snowflake Mix) 05:06
+003. Adrian Shepherd - Eronika (Original Mix) 04:31
+004. Oscar Stringz - Time For A Break 06:18(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47C82429D678126AF75DE080E58F255344E44A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102669   (889333) от 10.02.2017
+
+VA - The Best - In Music We Trust Vol.12 (2016) [MP3|320 Kbps] <House, Electro House, Hand Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andy Jay Powell - The Bankster (Calderone Inc Remix)  6:05
+02.  DJ Wajs - This Is How We Party (DNF & Vnalogic Remix)  4:57
+03.  Simon Lee & Alvin - Xcelerate (Extended Mix)  5:03
+04.  Borgeous - Wildfire (Original Mix)  5:00(   Читать дальше...   )Жанр: House, Electro House, Hand Up, Club, DanceПродолжительность: 07:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014CC3F0C19BC017AC74ABA749189E998054521B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102795   (889218) от 10.02.2017
 
 VA - The Best - In Music We Trust Vol.13 (2017) [MP3|320 Kbps] <House, Melbourne Bounce, Dutch, Electro House, Club, Dance>
@@ -571,180 +745,6 @@ VA - Maniac Hard Dance (2021) [MP3|320 Kbps] <Club, Hard Dance, Hardstyle, Core 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA7600603AA2F24BB12CDDC6A1BF1C73545353CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494628   (887828) от 08.09.2021
-
-VA - Like Everyday! (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The National - About Today
-002. The Snuts - Glasgow
-003. Nicolas Michaux - Une Seconde Chance
-004. When Saints Go Machine - Far Cry(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 07:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383936DFA290DB7ACA7616982F1C990E70B775DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494589   (887819) от 08.09.2021
-
-VA - Beatport Electronic: Sound Pack #343 (2021) [MP3|320 Kbps] <Electronic, synthetic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887819.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Trees Speak - Transforming
-002. Mmyylo - Venamy
-003. Darkside - Liberty Bell
-004. Fairtone - Riviera(   Читать дальше...   )Жанр: Electronic, syntheticПродолжительность: 12:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753BE5CD414D63A2DFD6A445773E15A4C79AF7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494614   (887746) от 08.09.2021
-
-VA - Clubbing Dance House: Energy Playlist (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887746.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dream Frequency - A.I.
-002. Dawne - Tequila For Breakfast
-003. Sentinel Groove - Feel Good
-004. Sound-X-Monster - Rock It!(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95413B2CB88CC020A230B2D566305061EE422535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494623   (887745) от 08.09.2021
-
-VA - HGM: Organic House Deep Downtempo Mix (2021) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887745.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ben Pierre - Shima
-002. Báez - Is It Real
-003. Facundo Borras - Anyone
-004. Raffaele Ciavolino - Do You Love Me(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 09:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AFA863C948439AA0DDB4706494501BF1EC7B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494588   (887744) от 08.09.2021
-
-VA - Beatport Hard Techno: Sound Pack #342 (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887744.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Sinner - Catalyst
-002. The Sinner - Oracle
-003. Ben Tyler - 20s Rave
-004. Kontain - Neck Crank(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A4DABC68390236FF3EBD8FFEF39DDE4F6EBAD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494611   (887743) от 08.09.2021
-
-VA - Break Of Day: Ambient & Chillout Mix (2021) [MP3|320 Kbps] <Chillout, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887743.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Moodyfreaks - Flow Of Time
-002. Observatories - Sounds From Another Room
-003. Kaleidoscope - Miss Saigon
-004. Tears - Slipped Away(   Читать дальше...   )Жанр: Chillout, AmbientПродолжительность: 08:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D33E6EBC232F22D49237C7A0FEC9EA56B129191
 ```
 
 https://mybot314.ru/tekegram_catalog/

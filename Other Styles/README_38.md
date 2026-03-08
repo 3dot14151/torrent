@@ -1,3 +1,32 @@
+###  Публикация: 1117463   (816785) от 23.03.2017
+
+Jon Henrik Fjallgren - Goeksegh - Jag ar fri (2015) [FLAC|Lossless|tracks] <Ethnic, Folk, Joik>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jag ar fri | Jag ar fri (03:01)
+02. Daniel's Joik | Daniel's Joik (06:32)
+03. The Reindeer Herder's Joik | The Reindeer Herder's Joik (05:58)
+04. Utoya | Utoya (07:59)(   Читать дальше...   )Жанр: Ethnic, Folk, JoikПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A0B3766C19E0729833DA6CF185251E3C62610D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503976   (815876) от 21.10.2021
 
 VA - Peaceful Night Instrumental Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Soft Rock>
@@ -710,35 +739,6 @@ Ryan Farish - United (2017) [FLAC|Lossless|tracks] <Electronic, New Age, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A93B7AD97752C0F2C74FB92444BEF24D897429F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118299   (811227) от 26.03.2017
-
-VA - Intimate Piano: Moonlight Love (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811227.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roger Williams - Ebb Tide (2:55)
-2. Ronnie Price, London Pops Orchestra - Full Moon and Empty Arms (3:38 )
-3. Roger Williams - Moonlight Love (Clair de Lune) (3:43)
-4. Norman Percival & Orchestra - Tennessee Waltz (2:23)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC1BB326DA39ACF2FC39DAEE1B858DD739F9B31
 ```
 
 https://mybot314.ru/tekegram_catalog/

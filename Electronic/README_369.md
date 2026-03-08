@@ -1,3 +1,61 @@
+###  Публикация: 963594   (285481) от 09.12.2015
+
+Dieter Bohlen & VA - Greatest Hits (2002) [FLAC|tracks+.cue]<Europop, Synth-pop, Ballad, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - You're My Heart, You're My Soul ('84Mix) (3:23)
+02. Modern Talking - Cheri Cheri Lady (3:47)
+03. Chris Norman - Midnight Lady (4:10)
+04. C.C. Catch - Strangers By Night (3:38)(   Читать дальше...   )Жанр: Europop, Synth-pop, Ballad, DiscoПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D0546430807F8002F5DDECE24F5111BF9EDF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653253   (285410) от 08.12.2016
+
+Pulsedriver - 7 Albums + 63 Singles/Remixes + 3 Compilations + DJ Mixes (1997-2016) [MP3|128 - 320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Coverage - Riot On The Dancefloor (2:39)
+02. Pulsedriver - Slammin The Beat (2:56)
+03. Genial - No Games (Timmy G. vs. Sigi Di Collini Remix) (3:40)
+04. 2-4 Grooves - Rockset (Extended Club Mix) (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6248E404EADA77769DCA3ED63FF286BD995D0D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963339   (285323) от 09.12.2015
 
 Bad Boys Blue - You're A Woman (1994) [FLAC|tracks+.cue]<Synth-pop, Disco>
@@ -687,64 +745,6 @@ Boytronic - Jewel (2017) [FLAC|Lossless|image + .cue] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BECE98CE30F47FF95AC3A4D61BFC0AE1BB10444A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335966   (284390) от 04.11.2019
-
-UHF - Strange Days Of Happiness (2017) Borg Recordings [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electro>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circular Brain (05:11)
- 02. Escape From The Planet Frozen (05:35)
- 03. Strange Days Of Happiness (05:58)
- 04. Ain't No Place For A Hero (05:28)Жанр: ElectroПродолжительность: 00:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEA68B47DAFBDD6A052FC74D90C0A4F73353C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263895   (284351) от 21.11.2018
-
-MC Xander - Hymns (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Vocal>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Muni (06:24)
-02. Heresy (06:17)
-03. We Take On (06:09)
-04. Higher Nature (04:44)(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D3AAE0ECC666DC98841D4C0A081E2039CB4AD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

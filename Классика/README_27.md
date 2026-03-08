@@ -1,3 +1,32 @@
+###  Публикация: 1044212   (566582) от 19.08.2016
+
+VA - Шедевры Классики В Современной Обработке Vol.2 (2016) [MP3|256 Kbps] <Классика, Classic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bach - Two Part Inventions In F-Major
+02. Royal Philharmonic Orchestra - Also Sprech Z
+03. Rimsky-Korsakov - Fly Of The Bunble Bee
+04. Bach - Badinerie(   Читать дальше...   )Жанр: Классика, ClassicПродолжительность: 05:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0A1BB45929A4C67A45BEEB7D5C470781CBB079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044210   (566569) от 19.08.2016
 
 VA - Шедевры Классики В Современной Обработке (2016) [MP3|320 Kbps] <Классика, Classic>
@@ -729,35 +758,6 @@ Ludovico Einaudi - Seven Days Walking (Day 4) (2019) Decca Records [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3987793E0C4A428DC5B85225ADBF59D9AC04109D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048896   (545513) от 03.09.2016
-
-Lindsey Stirling - Shatter Me (2014) Limited Edition, 2015, Lindseystomp Music [FLAC|Lossless|image + .cue] <Classical Crossover, Electronic>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Beyond The Veil (4:15)
- 02.Mirror Haus (3:56)
- 03.V-Pop (3:46)
- 04.Shatter Me (ft. Lzzy Hale) (4:41)(   Читать дальше...   )Жанр: Classical Crossover, ElectronicПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7073F492EB31054D8425FC069695C27A513B98
 ```
 
 https://mybot314.ru/tekegram_catalog/

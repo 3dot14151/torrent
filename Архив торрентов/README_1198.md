@@ -1,251 +1,3 @@
-###  Публикация: 1208956   (779419) от 25.02.2018
-
-Adobe Acrobat Reader DC 2018.011.20038 RePack by KpoJIuK  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Acrobat Reader DC — совершенно новое приложение Reader для самых важных документов. Работайте с файлами PDF на любых устройствах. Бесплатная программа Adobe Acrobat Reader DC предлагает больше возможностей, чем другие программы для чтения, печати и рецензирования файлов PDF. Интеграция с облачными сервисами Adobe Document Cloud дает дополнительное преимущество (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E137A15F8ED839BA50BABE00DA207B48AA487A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209062   (779412) от 25.02.2018
-
-Тайна Коко / Coco (2017) BDRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779412.jpg" />
-</div>
-
-
-###  Подробнее
-
-12-летний Мигель живёт в мексиканской деревушке в семье сапожников и тайно мечтает стать музыкантом. Тайно — потому что в его семейном клане музыка считается проклятием. Когда-то его прапрадед оставил свою жену, прапрабабку Мигеля, ради мечты, которая теперь не даёт спокойно жить Мигелю. С тех пор музыкальная тема в семье стала табу. Мигель обнаруживает, что между (   Читать дальше...   )Производство: США / Pixar Animation StudiosЖанр: мультфильм, фэнтези, комедия, детектив, приключения, семейный, музыкаРежиссер: Ли Анкрич, Эдриан МолинаАктеры: Энтони Гонсалес, Гаэль Гарсиа Берналь, Бенджамин Брэтт, Аланна Юбак, Рене Виктор, Хайме Камиль, Альфонсо Арау, Херберт Сигенса, Габриэль Иглесиас, Ломбардо БойярПеревод: Дублированный (iTunes)Субтитры: Русские (Форс.+Полные), Английские (Full+SHD+SHD Colored)Продолжительность: 01:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64742E5C1E1C680FD10EF9FFD50DEC1631930DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209159   (779408) от 25.02.2018
-
-Тор: Рагнарёк / Thor: Ragnarok (2017) BDRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события — Рагнарёка. По легенде это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие (   Читать дальше...   )Производство: США / Marvel Entertainment, Marvel Studios, Walt Disney PicturesЖанр: Фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Кейт Бланшетт, Идрис Эльба, Джефф Голдблюм, Тесса Томпсон, Карл Урбан, Марк Руффало, Энтони Хопкинс, Бенедикт КамбербэтчПеревод: Дублированный (iTunes)Субтитры: Русский (форсированные, полные, SDH), АнглийскийПродолжительность: 02:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB9B4B10415B4803035EFAE3A65CCBCBD3BE0E80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209296   (779399) от 26.02.2018
-
-VA - Etui Winter Camp 4 (2018) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Tech House, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bony Stoev – TWICE
-02. Submoon – Unknown Places For Thoughts Of Hope
-03. Monomood – Fall
-04. Insect O. – Forest Of The Monkeys(   Читать дальше...   )Жанр: Dub Techno, Tech House, AmbientПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58AE0B307AF633AFBFCE56B958FB3AC31B993C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209254   (779394) от 26.02.2018
-
-Hockey Dad - Blend Inn (2018) [FLAC|Lossless|tracks + .cue] <Garage Rock, Indie Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Stride (03:41)
-02. Homely Feeling (02:21)
-03. I Wanna Be Everybody (03:39)
-04. Danny (03:31)(   Читать дальше...   )Жанр: Garage Rock, Indie RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D492D88BAB870FC4EEBDCDB8806D49D3998FEEC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209319   (779390) от 26.02.2018
-
-Lewis James - Shapeshifter (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep Drum & Bass, Future Beats>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shapeshifter (04:17)
- 02. Ferro (05:31)
- 03. Your Love Is A PowerЖанр: Deep Drum & Bass, Future BeatsПродолжительность: 00:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A67253A5C34EB2C57AB52B3DF80284E1BE3488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209323   (779387) от 26.02.2018
-
-Mohican Sun - Cold Earth (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Wait (03:49)
- 02. Cold Earth (04:17)
- 03. Spiralled (04:00)
- 04. Calgary (04:36)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F9CC614FE1169C92055B5DB66FDFF4D299D1B9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209422   (779384) от 26.02.2018
-
-save2pc Ultimate 5.5.3 Build 1574 RePack by вовава [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779384.jpg" />
-</div>
-
-
-###  Подробнее
-
-save2pc Ultimate - новая версия неплохой программы, которая позволяет скачивать видеофайлы со множества разнообразных онлайн-видеосервисов, таких как Youtube, Google Video, Myspace Video, Break.com и многих других. Крайне простая в использовании. Просто вставьте ссылку на нужный файл в окошке программы, выберите нужный формат и запустите автоматическую загрузку / (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F661ADAB98D905D9E36A099D424AB62A7F3E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209314   (779382) от 26.02.2018
-
-Arkaik - Shadow Creatures (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special Place (04:23)
- 02. Infra Red (04:06)
- 03. Shadow Creatures (04:38)
- 04. Gaze Into The Abyss (04:03)Жанр: Deep Drum & BassПродолжительность: 00:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697FD605241FEEA96B7A192F19CE3A8A32584721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209361   (779370) от 26.02.2018
 
 iA Writer 4.2.1 [En]
@@ -701,6 +453,254 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8688F34C2D53184A2D8A980F53650999C7BB6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209591   (779282) от 27.02.2018
+
+HumaNature, Skeletone, Silence Groove - There's Delight (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HumaNature & Skeletone & Silence Groove - Sparkling Orb (07:03)
+ 02. Silence Groove - There's Delight (05:36)
+ 03. HumaNature & Silence Groove - People Don't Care (05:39)Жанр: Drum & BassПродолжительность: 00:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1964F883D7B866A33200280123E517640DED2FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209628   (779280) от 27.02.2018
+
+Vivaldi 1.14.1077.55 Stable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA1077E0DB83C824D1C7565BD69FEFE5EFAB2F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209514   (779279) от 27.02.2018
+
+VA - Polychrome Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gunston - Thing Changes (05:53)
+ 02. Gunston - Thing Changes (Zero T Remix) (05:14)
+ 03. Phonograph - Pressure Funk (05:00)
+ 04. Phonograph - Revolutionary (05:11)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C9FD317444A1B01E4400F445467E9C6CD29AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209583   (779274) от 27.02.2018
+
+Alaska - Venera (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Drumfunk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venera (06:44)
+ 02. Criterion (feat. Kiyomi Grounds) (09:03)Жанр: Drum & Bass, DrumfunkПродолжительность: 00:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DD94873CAF1475FBE7FDEAFCDCF52874C2E18A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209579   (779270) от 27.02.2018
+
+Spirit - Seventh Heaven / Delirium (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Atmospheric, Drumfunk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seventh Heaven (07:55)
+ 02. Delirium (05:43)Жанр: Drum & Bass, Atmospheric, DrumfunkПродолжительность: 00:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9711FCA6CB8DD5F78F3E4AAEFA932B5D2D15D309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209598   (779266) от 27.02.2018
+
+Seba - Node 46 (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Drumfunk, Atmospheric>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machine (feat. Robert Manos) (05:29)
+ 02. Node 46 (05:52)
+ 03. The Unholy (Digital Bonus) (05:31)
+ 04. Unreal Adventures (Digital Bonus) (05:32)Жанр: Drum & Bass, Drumfunk, AtmosphericПродолжительность: 00:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:953EC2A83A983CFE508B9FEC461611BBDAC1ACEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209539   (779258) от 27.02.2018
+
+Maxthon Browser 5.2.0.900 beta + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maxthon (официально называется Облачный браузер Maxthon, изначально известный как MyIE2) — это бесплатный веб-браузер для Windows, Linux и OS X, разработанный в Китае компанией Maxthon Ltd.
+MX5 - новая версия веб-браузера от Maxthon для Windows наглядно показывает прогресс продукта, который превратился из классического браузера в персонального ассистента для всех (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1184FBAF81AEB2880A5DCFF0DF42717F6468158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209609   (779253) от 27.02.2018
+
+Pola & Bryson - Unsaid (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Intelligent, Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delphic Underworld (05:32)
+ 02. Unsaid (feat. Blake) (05:06)
+ 03. Hyperborean (feat. Data 3) (05:11)
+ 04. Mind Seasons (05:08)Жанр: Intelligent, Drum & BassПродолжительность: 00:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1828CE1B539CAFDC7FC9F34300BC4E52DE54877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209555   (779252) от 27.02.2018
+
+BluffTitler Ultimate 13.7.0.2 RePack (& Portable) by TryRooM  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779252.jpg" />
+</div>
+
+
+###  Подробнее
+
+BluffTitler - программа для создания красивых текстовых 3D эффектов и простейшей мультипликации, применяемых при монтаже видео. Результат можно просматривать в реальном времени с последующим экспортом в картинку или видео-формат. Вся создаваемая анимация состоит из слоев, которые могут модифицироваться независимо.BluffTitler поддерживает большое количество различных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D772D760AE797736EDED9B2E1467ED502B0D78DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

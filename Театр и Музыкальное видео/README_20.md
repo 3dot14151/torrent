@@ -1,3 +1,32 @@
+###  Публикация: 625827   (940955) от 07.03.2013
+
+Сборник клипов - VA - Various Music part. 40 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940955.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2Elements - Tell Me Boy 1080p (3:24)
+2. Akcent feat. Anushka Manchanda - I'm Sorry 1080p (4:04)
+3. Alina Grosu - Let Go (Eurovision 2013) 1080p (3:10)
+4. Arty, Nadia Ali & BT - Must Be The Love 1080p (4:57)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D36F0EF9148FA4B3BD96D5FD9F402BC3FAC8D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363758   (940915) от 29.02.2020
 
 Квартирник НТВ у Маргулиса. Мот (28.02.2020) WEB-DL [H.264/1080p-LQ]
@@ -694,32 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:527E01DFDDB837CBCD63D130F516A1BA0E1834B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284699   (936636) от 19.01.2011
-
-[EN] Крис Ри. Дорога в ад и обратно - Прощальный тур / Chris Rea.The Road to Hell and Back The - Farewell Tour (2006) HDTV
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Блюз , РокРежиссер: George ScottПеревод: ОригинальныйПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

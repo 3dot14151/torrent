@@ -1,3 +1,32 @@
+###  Публикация: 1766234   (33759) от 18.12.2024
+
+VA - Funk & Soul For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Anduze - Rich No Money/Reinvention (7:08)
+02.Alixia Mistral - What We Had And Might Have Lost (3:35)
+03.SLAMTWISTED - Close To You (3:54)
+04.Wendy D. Lewis - Wiser (4:02)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA74C9A4BF3FE8B27AF8F7A8D94496C03556FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766233   (33750) от 18.12.2024
 
 VA - Merry Swingmas (Electro Swing Christmas) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
@@ -716,35 +745,6 @@ Brian Simpson - Midnight Groove (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD62072D9E80AFB66A8337AEB16CF1CB9F7FB16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794692   (19756) от 30.04.2025
-
-Charles Rouse - Two Is One (1974) 1992, Strata-East [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bitchin' [7:21]
-02. Hopscotch [7:19]
-03. In a Funky Way [4:54]
-04. Two Is One [11:17](   Читать дальше...   )Жанр: Hard Bop, Jazz FusionПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B8F17819B17B923DDBAEFBC38EA4F32CAED8E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

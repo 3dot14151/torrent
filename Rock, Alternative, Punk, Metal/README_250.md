@@ -1,32 +1,3 @@
-###  Публикация: 1004355   (834577) от 08.04.2016
-
-Novembre - URSA (2016) [FLAC|Lossless|tracks + .cue] <Progressive-metal, Doom-metal, Dothic-metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Australis (7:37)
-02. The Rose (5:30)
-03. Umana (5:50)
-04. Easter (5:03)(   Читать дальше...   )Жанр: Progressive-metal, Doom-metal, Gothic-metalПродолжительность: 01:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339ED7BFAF96EEB3A5A6D19F9CD5B3AC8DB160FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005309   (834566) от 08.04.2016
 
 BlackRain - Released (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
@@ -746,6 +717,35 @@ Deep Purple - Man Alive (2020) Single [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D19A1EA375A6FCE7CB7AC18FA725EBCCB55FCA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541796   (832865) от 20.03.2015
+
+Lord Of The Lost - 5 Альбомов (2010-2015) Дискография [MP3|320кб/с]<Gothic Metal, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porcelain
+02. Lost In A Heartbeat
+03. Annabel Lee
+04. So Good It Hurts(   Читать дальше...   )Жанр: Gothic Metal, Gothic Rock |Продолжительность: 07:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7839BAD64FC9F448AA87277188263808BE6388
 ```
 
 https://mybot314.ru/tekegram_catalog/

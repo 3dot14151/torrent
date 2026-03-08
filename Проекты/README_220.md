@@ -1,29 +1,3 @@
-###  Публикация: 1157765   (495148) от 14.08.2017
-
-Проекты - VideoHive - News Complete Package - 19581960 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495148.jpg" />
-</div>
-
-
-###  Подробнее
-
-News Complete Package - удобный, с очень простой настройкой и быстрой визуализацией расширяемый новостной проект с динамичным современным дизайном.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0414FA5EE8FC17D71DEDE3AAC4DB0C09D98B5DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318523   (494396) от 06.08.2019
 
 Проекты - Проект ProShow Producer - Games of Shadows [PSH]
@@ -676,6 +650,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61FC24D0FBDDE9AB6FAE635257C9ACAE24409067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 820827   (492044) от 12.09.2014
+
+Pond5 - Hi-Tech Robot Dance - 876631 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересный , динамичный проект ,  :redface:  мне понравился, потому и выкладываю
+проект 2010 года, может у всех и есть уже, но я в видео ниче не соображаю   :eek7: , мне простительноФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B7C0C2C1D3599FBD1EC3852AA75A939D426293
 ```
 
 https://mybot314.ru/tekegram_catalog/

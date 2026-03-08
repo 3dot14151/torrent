@@ -1,3 +1,32 @@
+###  Публикация: 1106400   (873641) от 19.02.2017
+
+VA - The Da Vinci Mysteries (2006) [FLAC|Lossless|tracks + .cue] <Gregorian, New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelly O'Neill – Mystic Dream
+02. Emerald Singers – Adiemus
+03. Massini – Mystera
+04. Tranceparence – Sadeness Part I(   Читать дальше...   )Жанр: Gregorian, New Age, EnigmaticПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE40006D68CF45C3C624E6F82D01F32B1D5F090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106399   (873528) от 19.02.2017
 
 VA - The Da Vinci Mysteries (2006) [MP3|320 Kbps] <Gregorian, New Age, Enigmatic>
@@ -714,35 +743,6 @@ Celtic Woman - Solo (2015) [MP3|320 кб/с] <Celtic folk, World, New age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC9659DA7613E1BEF7E7838CD733870D92487111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998755   (868437) от 20.03.2016
-
-Roc Chen, Rob King, Paul Romero - Might & Magic Heroes VII (2015) [FLAC|Lossless|image + .cue] <Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roc Chen - Gathering of the Council (Might & Magic Heroes VII Main Theme) (02:07)
-02. Rob King & Paul Romero - Hope For Green Falls (Haven Theme) (02:41)
-03. Rob King & Paul Romero - Mystos Mountains (Necropolis Theme) (02:30)
-04. Rob King & Paul Romero - The Wizards Waltz (Academy Theme) (02:55)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DD2F87CB3EC23F390717EF035AB2DDB1ED85CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

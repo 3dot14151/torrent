@@ -1,3 +1,32 @@
+###  Публикация: 989615   (915689) от 23.02.2016
+
+VA - TOP Non-Stop 2010-2015 - Lounge & Chillout [vol.4] (2010-2015) [MP3|320 кб/с] <Ambient, Lounge, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ewonee - 1.23 (intro)  02:51
+02. Damon Albarn - Everyday robots  03:57
+03. Air - Who Am I Now  03:01
+04. Damon Albarn - Seven high  01:00(   Читать дальше...   )Жанр: Ambient, Lounge, HouseПродолжительность: 04:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E9414D36622AECFFA638950B912439400BD7EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367584   (915447) от 16.03.2020
 
 VA - Лучшие Trance треки Ver.14 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -716,35 +745,6 @@ VA - Winter Fragment: Relax Party (2016) [MP3|320 кб/с] <Chillout, Lounge, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0AFECB473D536BFF686A1338B2063DF07593FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990792   (909922) от 26.02.2016
-
-VA - Sunrise Lovers Vol.2: 20 Relaxing Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UK One - Levitate
-02. Sarah Martin - Paradise
-03. James Walden - Maria Maria
-04. Lounge Surfers - Angel(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEBE10F93AA872249E6FC7BB2A9E14C5AD9A720
 ```
 
 https://mybot314.ru/tekegram_catalog/

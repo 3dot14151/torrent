@@ -1,3 +1,32 @@
+###  Публикация: 957318   (327544) от 17.11.2015
+
+VA - Fast and Furious 7 (original motion picture soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kid Ink, Tyga, Wale, YG & Rich Homie Quan - Ride Out    [03:31]
+02. T.I. & Young Thug - Off-Set                             [03:14]
+03. Sevyn Streeter - How Bad Do You Want It (Oh Yeah)       [03:44]
+04. Dillon Francis & DJ Snake - Get Low                     [03:33](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A863EA48A44C489A5708203C493A2A99433A46CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957122   (327503) от 17.11.2015
 
 VA - TANGO. selected by Eduardo Makaroff (2007) / Wagram Music [FLAC|image+cue]<tango>
@@ -719,36 +748,6 @@ VA - Игла. Remix (2010) [FLAC|Lossless|image + .cue] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE136B9BF4EEA3E75637AA21BB08CBC855D617EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 62985   (321528) от 03.11.2020
-
-Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ке́вин Ке́рн (англ. Kevin Kern; род. 22 декабря 1958) — американский композитор и пианист. Кевин Керн родился пятым из шести детей в семье хирурга и домохозяйки в Детройте, штат Мичиган, США.
-Начал учиться играть на фортепиано с четырёх лет, с восьми стал писать музыку. В 14 он уже выступал с группой, которую основал сам. Кевин был полон решимости стать (   Читать дальше...   )Альбомы:
-1996 - In the Enchanted Garden
-1997 - Beyond the Sundial
-1998 - Summer Daydreams(   Читать дальше...   )Жанр: New AgeПродолжительность: 06:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE60C49FFDDA24CE055FCF84A4CC7174EE1405F
 ```
 
 https://mybot314.ru/tekegram_catalog/

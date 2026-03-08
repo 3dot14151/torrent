@@ -1,3 +1,32 @@
+###  Публикация: 1340501   (263610) от 24.11.2019
+
+VA - Record Super Chart 614 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
+02. Audiosoulz - Dancefloor 3:13
+03. C-BooL - Catch You 3:13
+04. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDBB877CF06B9767FA793C9E8595B03F6A14542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192130   (263530) от 16.12.2017
 
 VA - Empire Records - Vanilla Sky (2017) [MP3|320 Kbps] <Trance>
@@ -734,39 +763,6 @@ Sardø - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF89F61EF7EC00A5F79C58E35E904C319BBB0318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503972   (259931) от 31.05.2012
-
-VA - Sexy Trance #36 (31.05.2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259931.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Sexy Trance #36 (31.05.2012)
-
-Год: 31.05.2012
-Жанр: Vocal Trance
-Продолжительность: 03:44:52Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix) [06:59](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549CC45C6E5801F13BE6AAF87D523A8ED673236F
 ```
 
 https://mybot314.ru/tekegram_catalog/

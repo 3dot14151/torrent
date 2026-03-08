@@ -1,32 +1,3 @@
-###  Публикация: 1648811   (231001) от 25.07.2023
-
-Desolator - Unearthly Monument (2013) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thy Flesh Consumed
-02. Desolated
-03. Gravefeast
-04. Mass Human Pyre(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C174EEC204A8F512DDA3E0296E6A5706B3C9823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648818   (230986) от 25.07.2023
 
 Desolator - Spawn of Misanthropy (2016) EP [MP3|320 Kbps] <Death Metal>
@@ -748,6 +719,35 @@ Stone Sour - Straight Outta Burbank (2015) EP [MP3|320 кб/с] <Alt. Metal, Nu-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40A36AB85574CC071B478DC18AA5C7010972DEE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583868   (226944) от 17.10.2022
+
+Octane - 2 Albums (2020-2021) [MP3|320 Kbps] <Sludge Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fifteen Days [00:03:29]
+02. Starfuckers [00:03:47]
+03. Madness [00:04:02]
+04. Another Scar [00:03:23](   Читать дальше...   )Жанр: Sludge Stoner MetalПродолжительность: 2 CD, 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E301DA732B748F492D2723A857863305024090F
 ```
 
 https://mybot314.ru/tekegram_catalog/

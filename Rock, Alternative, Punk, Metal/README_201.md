@@ -1,32 +1,3 @@
-###  Публикация: 1101827   (893078) от 08.02.2017
-
-Hasswut - Falsch! (2017) 2CD [MP3|320 Kbps] <Industrial Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893078.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Falsch!
-2. Dunkler Tanz
-3. Freund(   Читать дальше...   )Жанр: Industrial Metal, IndustrialПродолжительность: 01:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A62AEE1C1F2BD1CBC1E595989EFEC48AB9D037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101751   (893067) от 08.02.2017
 
 Setanera - New Era (2015) [FLAC|Lossless|tracks + .cue] <Gothic Metal>
@@ -747,6 +718,35 @@ At Vance – немецкая метал-группа, основанная в 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:578920D1836D2890FC03C6E4A40648624DFF7A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493935   (892411) от 05.09.2021
+
+Николай Емелин ( Никола Емелин ) - Коло колъ  (2005) [FLAC|Lossless|tracks + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Русь
+02. Царские забавы
+03. Вечерком
+04. Хватит стрелять(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BC70A54ADFB99C1F572FF5BAF67B71657332CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

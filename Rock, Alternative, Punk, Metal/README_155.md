@@ -1,32 +1,3 @@
-###  Публикация: 1089738   (959393) от 16.02.2020
-
-Inevitable End - The Oculus (2011) [FLAC|Lossless|image + .cue] <Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Us, Parasites  (02:36)
-02. Escaping The Black Hole  (02:28)
-03. Zen  (01:50)
-04. Dogmaties Paralies (02:39)(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53EFCC879384862A9A62BB7FD8F72B3C386D7B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 784737   (959334) от 16.02.2020
 
 Holy Mother - Agoraphobia (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -745,6 +716,35 @@ Memorain - Duality of Man (2016) [MP3|320 кб/с] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42741555EA74AA497626F3797C8B9BACE97EDECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980152   (956391) от 29.01.2016
+
+Disquiet - The Condemnation (2016) [MP3|320 кб/с] <MDM, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascending
+02. The Condemnation
+03. Fist Of Persistence
+04. Born To Dissent(   Читать дальше...   )Жанр: MDM, Thrash MetalПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2359C57F923DC400028254B828E8D9BC6C4000F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

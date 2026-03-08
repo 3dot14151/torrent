@@ -1,3 +1,32 @@
+###  Публикация: 1356371   (979023) от 30.01.2020
+
+Spyro Gyra - Vinyl Tap (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Agent Mash
+02. Sunshine Of Your Love
+03. Can't Find My Way Home
+04. What A Fool Believes(   Читать дальше...   )Жанр: Fusion, Smooth JazzПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49441514EAC21AEE5CAFE5EC23063DB1EF23F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939184   (978897) от 30.01.2020
 
 Spyro Gyra - Fast Forward (1993) GRP Records [FLAC|image+.cue]<Smooth, Jazz-Pop>
@@ -733,35 +762,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2A141B61D2443A8C871058FFA737443DBB3F419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975359   (973436) от 14.01.2016
-
-Roscoe Mitchell and the Sound Ensemble - Snurdy McGurdy and her Dancin' Shoes (1980) 2003, Nessa[APE|image+.cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sing Song [07:53]
- 02.CYP [07:17]
- 03.Stomp and the Far East Blues [05:18]
- 04.March (Composition 40 Q) [04:46](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CA54A74838FFE442FD418E814D085707CE42C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

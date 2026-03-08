@@ -1,3 +1,32 @@
+###  Публикация: 1013575   (777681) от 04.05.2016
+
+VA - Pulsed Future House Sounds (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazibiza Feat. Greg Note -  Sunshine Day (Jay C & Dave Rose Remix)  6:48
+02. David Vrong ft Amaelle -  Breaking Out (Extended Mix)  5:42
+03. Christopher S, Gino G & Alex Costanzo feat. Roby Rob -  Planets (feat. Roby Rob) (Radio Mix)  3:48
+04. Bounce Bro feat. Destiny -  My Life (Radio Edit)  3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD4803CDFE594BCC239D6DFABE613148A701BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013484   (777678) от 04.05.2016
 
 VA - True Trance Sounds High Shades (2016) [MP3|320 кб/с] <Trance>
@@ -716,35 +745,6 @@ VA - Deep House: Deep Calm (2018) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:844DF43B507ACBADD9B068D74011BF79D57C50B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212024   (776501) от 10.03.2018
-
-VA - 100 Hits DJ Trance Mastermix (2018) [MP3|320 Kbps] <Vocal Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776501.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elypsis & Fenna Day - Who You Are (Extended Mix)
-002. Roman Messer feat. Christina Novelli - Fireflies (Original Mix)
-003. Cern - The Message (Northern Mix)
-004. Maarten De Jong & Katty Heath - Free To Feel Again (Extended Mix)(   Читать дальше...   )Жанр: Vocal Trance, ElectroПродолжительность: 10:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3030277AEFD5BE0D69FC3F472136F4F565B41946
 ```
 
 https://mybot314.ru/tekegram_catalog/

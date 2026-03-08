@@ -1,3 +1,32 @@
+###  Публикация: 1042534   (578514) от 13.08.2016
+
+VA - Motel Atlantique: Gold Selection (2016) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roy Real - Is to the Work - Deep Guitar Mix
+02. Rick Warrol - Wide Panoramas - Deep Lady Mix
+03. Matt Maxim - Spontaneous Lightness - Early Morning Deep Mix
+04. Nic Cherokee - Lights Ahead - House Room's 69 Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA63380621FB0B47F20BB000E2EBA2A9A19BB35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042514   (578510) от 13.08.2016
 
 VA - Summer Chillout & Lounge Session (2016) [MP3|320 Kbps] <Balearic, Ambient, Downtempo>
@@ -722,35 +751,6 @@ VA - Club Dance Ambience Vol.154 (2018) [MP3|320 Kbps] <Dance, Club House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD8379B70F44BCF3434E228FF66BD2638E51C0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554450   (575565) от 31.05.2022
-
-VA - 60 Minutes. Old School Dance Music vol.8 (mixed by Dj V) (2022) [MP3|320 Kbps] <Club House, Dancecore, Eurotrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sasha Dith - Russian Girls (Club Mix)
-02-Commander Tom - Attention (Original Club Mix)
-03-Disco Construction - Can't Get Enough (Steve Angello's Re-Mode mix)
-04-DJ Ivan Scratchin' - Госнаркоконтроль (Whiskey & Cola Extended Mix)(   Читать дальше...   )Жанр: Club House, Dancecore, EurotranceПродолжительность: 59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D868FFFF9459F4FE10B274543F550284B48019DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

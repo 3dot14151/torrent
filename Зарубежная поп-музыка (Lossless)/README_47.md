@@ -1,3 +1,32 @@
+###  Публикация: 1307429   (555086) от 09.06.2019
+
+Bo Katzman Chor - Spirit of Joy (2001) [FLAC|Lossless|image + .cue] <Pop, Cover, Gospel>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Of Joy (4:27)
+02. Joshua (2:54)
+03. Soul Searchin' (5:54)
+04. Our Father (4:49)(   Читать дальше...   )Жанр: Pop, Cover, GospelПродолжительность: 00:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48196ABE56FD374FE589711671E3FAAE67CCF87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307397   (555084) от 09.06.2019
 
 Горячий шоколад - Береги (2009) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -719,35 +748,6 @@ Sophie Ellis-Bextor - Familia (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC5EE8E2B8489031EE74B633649A936D12F935FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049277   (544785) от 04.09.2016
-
-Mariah Carey - Music Box (1993) [FLAC|Lossless|image + .cue] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544785.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Dreamlover 3:53
-2 Hero 4:19
-3 Anytime You Need A Friend 4:26
-4 Music Box 4:57(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C79618A0E139ED2471D2399240F4A9F3AD612DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

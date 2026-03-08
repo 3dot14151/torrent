@@ -1,3 +1,177 @@
+###  Публикация: 1512354   (245524) от 24.11.2021
+
+VA - Clubbing Tech House: November Set (2021) [MP3|320 Kbps] <Tech House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245524.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. F4t4l3rr0r - Electricity
+002. Kurl - Dark Innocence
+003. Lefthand Soundsystem - Toz
+004. Dino Maggiorana And Mindcoded - It's(   Читать дальше...   )Жанр: Tech House, Club, DanceПродолжительность: 10:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C62543FB7FEDA2AC4EA3B1275900504FED142AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060933   (245430) от 08.10.2016
+
+VA - Beatport Trance Pack  (07.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Uplifting Trance, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Tyas - Perfect World (Radio Edit) (feat. Victoriya)  3:50
+02. Ben Gold - Until We Meet Again (Ben Nicky Remix)  3:48
+03. Ferry Tayle - Tomorroworld (Radio Edit)  3:51
+04. Atragun & Cederquist - Nightstorm (A.R.D.I Remix)  7:06(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Uplifting Trance, Energy, ProgressiveПродолжительность: 04:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7771EEAE317EE734FFD8FA758745871E854EB88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449308   (245376) от 21.02.2021
+
+VA - EDC Radio Clubbing Sound (2021) [MP3|320 Kbps] <Club House, Techno, Trance, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно разноплановый альбом под названием "EDC Radio Clubbing Sound" в котором нашли своё место самые разнообразные стили танцевальной электроники. Музыка лонгплея подарит Вам отличное настроение и доставит отличные эмоции. А если вы являетесь откровенным поклонником Electro House, то здесь вы обязательно найдёте для себя не один десяток треков001. DJ Magic Mike - Call Me
+002. Format Groove - Strength
+003. Scorpia - Kern
+004. Forever 80 - Universe Of Love(   Читать дальше...   )Жанр: Club House, Techno, Trance, EDMПродолжительность: 11:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE96F99F144CC1C9EC901D82B69F64A73369799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621357   (245306) от 24.03.2023
+
+VA - Music News vol.253 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Grishina - Двигайся Парень (Rdsagitario Deep Mix) (03:48)
+ 002. Absofacto feat. Niteshift - Unquit You (03:15)
+ 003. ADA - Слёзы От Версаче (02:30)
+ 004. Aize feat. Danna Max - Just One Last Dance (02:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B0B0F41D1A52CCE5FC2283357007BFF685B12E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621528   (245063) от 25.03.2023
+
+Mantovani and His Orchestra - Compilation (2023) [MP3|320 Kbps] <Easy Listening>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than Ever (Come Prima)
+02. Autumn Leaves
+03. Love is All
+04. Love Story Theme(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 02:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98296878C4097BAF8CF19877F806225E71D5EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450983   (244957) от 28.02.2021
+
+VA - Beatport Progressive Trance: Sound Pack #249 (2021) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда твое сердце бьется быстрей и быстрей, когда тело требует движения, а душа – полета, тебе нужен верный проводник. И этим нужным элементом является музыка 249-го сборника от Beatport. Только свежие релизы, проверенные временем треки и полюбившиеся композиции для настоящих меломанов001. La Remedy - Kenzo
+002. Tyron Hapi - Euphoria
+003. Dj Tomsten - It Happend
+004. Dj Tomsten - The Last On Earth(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 10:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A89BE7740AAD4DF8C4DA0399BC56908B54856E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450985   (244910) от 28.02.2021
 
 VA - Beatport Club Techno: Sound Pack #248 (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
@@ -571,180 +745,6 @@ VA - Dancefloor Clubbing (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17551023AD8EE15F52A4B58BFB5D678F94EAB170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567113   (244410) от 01.08.2022
-
-VA - Новички в попсе Vol 14 (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. НАТОМИ - Давно и не правда (3:21)
-02. P. PAT - Как звёзды (3:20)
-03. SOKOLL & MAIS - В дурака (2:25)
-04. Nastya Ramy - Зачем мне (3:05)(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D872DCA64FCDD91D863E932ECB7D2A8210CC8A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567337   (244183) от 02.08.2022
-
-VA - Кайфуем Лето (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ЕГОР ШИП - Наше имя знают все (3:01)
-02. IVAN VALEEV - Bye Bye (2:28)
-03. VAVAN, Galibri & Mavik - Сказочный десант (2:13)
-04. DZHARO - Привет маме (2:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9ADE1BF172B024E9CC87D716C64212B1EE5BF10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072524   (244182) от 13.11.2016
-
-VA - Музыкальный Заряд 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244182.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Milen - Гори Огнем 4:45
-002.Inna & 3 Sud Est - Mai Stai 3:22
-003.Кристина Орбакайте - Я Гадаю На Ромашке 3:52
-004.Zip92 Pres. Диана Зварич - Слишком Привыкла 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6513971C1A62A519D3D38E5A7EC20E969B69070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072569   (244162) от 13.11.2016
-
-VA - Dance Floor Autumn Edition (2016) [MP3|320 Kbps] <Dance, Nu Disco, Future Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244162.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kap Slap Ft M. Bronx - Felt This Good (Clean) (Extended) 04:34
-002. Steve Kroeger Ft Skye Holland - Waiting For The Break (Clean) (Short Edit) 02:19
-003. Disco Killerz, Liquid Todd, Jimmy Gnecco - Stellar (Clean) (Extended) 05:21
-004. Black Caviar - You Ain't Gotta Bounce To This (Lean) (Dirty) (Radio Edit) 03:07(   Читать дальше...   )Жанр: Dance, Nu Disco, Future BassПродолжительность: 07:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BCE8148C0262081C96D712B6BD399A708FEBE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072600   (244146) от 13.11.2016
-
-VA - Top Baile Make It Work (2016) [MP3|270-320 Kbps] <R&B, Trap, Hip Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244146.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Nick Jonas ft Tove Lo - Close (Max Sanna & Steve Pitron Remix) 5:48
-002.Jonn Hart ft Dozay - Hurt Yo Body (Dirty) 3:29
-003.Mightyfools & Justin Prime - Zero Three Five 3:23
-004.Mightyfools - Ass Clap (Twerk / Dirty) 3:10(   Читать дальше...   )Жанр: R&B, Trap, Hip HopПродолжительность: 04:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749ABECD1BADFD75F8E0792CC59F5ECDE3D8CD49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072430   (244133) от 13.11.2016
-
-VA - Source Of Inspiration Festival Trance (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Emotional, Harmonic, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244133.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Van Dyk & Ummet Ozcan - Come With Me (We Are One) (Paul Van Dyk Festival Mix) 5:26
-002. Allen & Envy feat. Jess Morgan - The Heart That Never Sleeps (Original Mix) 7:08
-003. Sunset - Circle Of Life (Original Mix) 8:34
-004. Ascania - Monochromatic World (Original Mix) 8:28(   Читать дальше...   )Жанр: Trance, Melodic, Energy, Emotional, Harmonic, ProgressiveПродолжительность: 11:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FEC593CA9715D0B0E29EDF859090B9F52D3DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1091502   (943108) от 09.01.2017
+
+VA - Resident Advisor - RA Poll Top 50 Tracks of 2016 (2017) [MP3|254-320 Kbps] <Minimal, Dancehall, Dub, Juke, IDM, Abstract и другие>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traumprinz - 2 Bad (Metatron's What If Madness Is Our Only Relief Mix) 10:20
+02. Pearson Sound - XLB (Original Mix) 06:19
+03. Avalon Emerson - The Frontier 07:35
+04. Willow - Untitled A2 04:32(   Читать дальше...   )Жанр: Minimal, Dancehall, Dub, Juke, IDM, Abstract, Experimental, Tribal, Downtempo, Funk, Deep HouseПродолжительность: 06:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B1A665042CE2DD633580851428765A3272C53E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091055   (943007) от 09.01.2017
 
 VA - Russian DJs In Da House Vol. 173 (2017) [MP3|256-320 Kbps] <Electro House, Remixes, Club House>
@@ -716,35 +745,6 @@ VA - In The Language Of Trance (2016) [MP3|320 кб/с] <Uplifting, Progressive,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A87599AA065326CE95A91C3B4942B9B87F6CC48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092530   (938947) от 12.01.2017
-
-VA - Best Electronic Republic Trance (2017) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Richard Durand - Breakdown (Original Mix)  7:40
-02.  Miroslav Vrlik - Soul Of Darkness  6:00
-03.  Denis Kenzo & Alexandra Badoi - More Time (Original Mix)  5:49
-04.  Gordey Tsukanov - Flight To Infinity (Original Mix)  6:47(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 02:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274F3E2F23DF81C766446D86280D4F501F8A61ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

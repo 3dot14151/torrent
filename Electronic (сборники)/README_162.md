@@ -1,3 +1,32 @@
+###  Публикация: 952971   (351791) от 03.11.2015
+
+VA - Lazy Sundays (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lessovsky - Far Away (6:18)
+02. Aamon - Hidden Emotions (5:28)
+03. In-Deed - Feeling Good (7:00)
+04. Jacek Janicki - The World Without You - Bara Brost Remix (7:08)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BAC5887D13A79F02185037E85C17CD66C13429F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952179   (351786) от 03.11.2015
 
 Наугольник - Галлюцинатор (2015) [MP3|320 кб/с]<Electronic Rock, Psyhedelic, Dark Electro>
@@ -729,35 +758,6 @@ VA - Uplifting Elegance Trance (2017) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:381E0D38FDB9B55051BA9045CBA2E98D8CEC5558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178994   (349339) от 31.10.2017
-
-VA - Synthetic  vol.7 (2017) [MP3|243-320 Kbps] <Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heliophile - Tranen Van De Regen (04:09)
-02. Lay Your Ghost - The Flame (04:30)
-03. Torul - Further Skies (04:23)
-04. Loewenhertz - Wer sind Wir (03:40)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61DE91438F30FA2190EC55AA101180BA0C57760
 ```
 
 https://mybot314.ru/tekegram_catalog/

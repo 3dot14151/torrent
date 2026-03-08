@@ -1,3 +1,32 @@
+###  Публикация: 1133553   (693436) от 13.05.2017
+
+VA - World Wide Trance # 01 (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Farhad Mahdavi - Argentina (Extended)  7:18
+02.  Hamza Khammessi - La Dicha (Original Mix)  7:24
+03.  JES - Photograph (Roger Shah Remix)  7:24
+04.  Sam Laxton - Searching (Original Mix)  6:00(   Читать дальше...   )Жанр: TranceПродолжительность: 03:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4FFCFF75566AFA76519BD4554FAF82A7C7FC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133549   (693324) от 13.05.2017
 
 VA - Synthetic  vol.3 - Electropop Edition (2017) [MP3|320 Kbps] <Electropop, Synthpop, Electroclash >
@@ -716,35 +745,6 @@ VA - Vocal Trance Charts (2016) [MP3|232~277 кб/с] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:973C504FB6467F397B39BFDAD7EA83F620912663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028714   (688855) от 23.06.2016
-
-VA - Dream Music for Deep Sleep (2016) [MP3|320 кб/с] <Downtempo, Chillout, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholas Watson - New Wonders On Distant Planets
-02. Haven McInerney - Dream Float
-03. Joey Frybarger - Please Send Us a Signal
-04. Serge Ozeryan - Lost World(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 02:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310628CD86826D84A89D3CBB33DBF08CA634D240
 ```
 
 https://mybot314.ru/tekegram_catalog/

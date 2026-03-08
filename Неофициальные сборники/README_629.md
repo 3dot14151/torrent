@@ -1,3 +1,177 @@
+###  Публикация: 1699624   (117712) от 14.02.2024
+
+VA - It's Glam Rock (2024) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice Cooper - School's Out [03:30]
+02. T. Rex - 20th Century Boy [03:41]
+03. Elton John - Saturday Night’s Alright (For Fighting) (Remastered) [04:55]
+04. Queen - Killer Queen (Remastered 2011) [03:00](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 03:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22F435DAE6C03DA1E9EEED707CAFD3280D6C248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699279   (117703) от 14.02.2024
+
+VA - Nu Jazz & Electro Swing compilation part 55 (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Swing House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan Palace - Mighty
+02. Riff Kitten - Fire Dance
+03. Caravan Palace - Lone Digger
+04. Kate Earl - Tongue Tied(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Swing HouseПродолжительность: 01:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A668213403F7B96A0F6E3BA2F17B2DD85BFD75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699684   (117701) от 14.02.2024
+
+VA - Music News vol.341 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117701.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beyonce - 16 Carriages (03:54)
+ 002. 84 feat. Lookbuffalo - Провокация (02:53)
+ 003. Aizalia - Buenas Noches (01:47)
+ 004. Akha - Сердечко (03:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7111B916729502FF172172B6DFBBC9925B0183AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699487   (117685) от 14.02.2024
+
+Riff Kitten - Compilation (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Swing House, Chillout, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dark Sun
+ 02.  Divine Realms, Pt. 1
+ 03.  Frequently Flustered
+ 04.  Little Dancing Skeletons(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Swing House, Chillout, DowntempoПродолжительность: 02:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8217AC720928772D4EEDD6B3737EE97D59A125E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699513   (117643) от 14.02.2024
+
+Alanna Lyes - Compilation (2024) [MP3|320 Kbps] <Electro Swing/Nu Jazz | Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  20s Are Here
+ 02.  Am I Real
+ 03.  Intergalactic
+ 04.  Stay(   Читать дальше...   )Жанр: Electro Swing/Nu Jazz | PopПродолжительность: 01:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608D4B9034061DC21D7E9CA88EA868A59F4815FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699537   (117492) от 15.02.2024
+
+Юрий Антонов - Коллекция (2024) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Антонов, мой самый любимый композитор и исполнитель. Ещё во времена СССР, у нас дома были все его пластинки. С самого раннего детства, знаю песни наизусть и слушаю до сих пор. Его творчество - лучшее лекарство от тоски и дипрессняка. Когда 7 лет назад я делал собрание песен, на тот момент у меня не было апаратуры должного уровня. В то время я только учился работать (   Читать дальше...   )01. От печали до радости
+02. Несет меня течение
+03. Все, как прежде
+04. У берез и сосен(   Читать дальше...   )Жанр: PopПродолжительность: 04:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269CFB0B30A03FC296117F37953A291CC48C3F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700317   (117303) от 16.02.2024
 
 VA - Winter Ukrainian Calm Songs (2024) [MP3|320 Kbps] <Pop>
@@ -571,180 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 23.02.2024 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A0AC50B710EE39AF4FBD948D50505953A1446B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702326   (115720) от 25.02.2024
-
-Extreme - Collection (2024) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Extreme - одна из любимых команд. Винил альбома Pornograffitti - 1990 года, с самой юности хранится у меня дома. Именно этот пласт был у многих в начале и середине 90х. На нём нет никаких данных об издателе. Скорее всего, кто то из барыг - делюганов, нашлёпал их огромную партию и распихал по Союзу. Сам альбом очень круто сделан. Мощная, напористая, немного хулиганская (   Читать дальше...   )01. Decadence Dance
-02. Li'l Jack Horny
-03. When I'm President
-04. Get The Funk Out(   Читать дальше...   )Жанр: RockПродолжительность: 06:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C780DD2CBE691B7430BC1A9A96D5031D4580F9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702521   (115713) от 25.02.2024
-
-VA - D.Trance 105 (2024) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daxson - The Awakening (Transmission Theme 2023) [2:38]
-02. Dim3nsion - Functionlust (Original Mix) [6:57]
-03. Cold Blue - A Beautiful Mind (Original Mix) [5:57]
-04. Doppenberg - After All These Years (Extended Mix) [6:46](   Читать дальше...   )Жанр: TranceПродолжительность: 05:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F757CA21B575F2494F351173A16AA1C48C29BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316535   (115658) от 26.02.2024
-
-VA - Понемногу отовсюду by Yuridar #C (1958-2021) Compilation Album [MP3|192-320 Kbps] <Rock, Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carmen Linares - El Que se Tenga por Grande
-02. Carmen McRae - When I Fall in Love
-03. Caro Emerald - The Wonderfull in You
-04. Caro Emerald - Whatchugot(   Читать дальше...   )Жанр: Rock, Blues, OtherПродолжительность: 07:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF02D4FCF5303FF817B4EFA57C5AA340BD90114B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702699   (115582) от 26.02.2024
-
-VA - Record Super Chart 24.02.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zerb feat. Sofiya Nzau - Mwaki (Tiesto's VIP Mix) (2:40)
-02. Ofenbach feat. Norma Jean Martine - Overdrive (Extended Mix) (3:39)
-03. АИГЕЛ - Пыяла (3:30)
-04. Dua Lipa - Houdini (3:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CBB230CB8B3E5F21E0667FF8FBA1DE624D74B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702265   (115569) от 26.02.2024
-
-VA - Best  Instrumental Jazz and Bossa Nova (2024) [MP3|320 Kbps] <Smooth Jazz, Easy Listening, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115569.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bossa Jazz Instrumental - A Little Paper Umbrella [03:03]
-002. Cafe Jazz Deluxe - Jazz Lounge Bar Bossa Edition [03:55]
-003. Bossa Jazz Instrumental - Bossa in a Relaxing Room [03:27]
-004. Cafe Jazz Deluxe - Favourite Jazz Cafe [03:45](   Читать дальше...   )Жанр: Smooth Jazz, Easy Listening, InstrumentalПродолжительность: 09:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27FCB8C84649913F3C2CBC545A9D7186008F3EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701926   (115539) от 26.02.2024
-
-Micki Free - Warrior People (2024) Compilation [MP3|320 Kbps] <Blues, Blues Rock, Native American>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wounded Knee [03:46]
-02. Judicator Blues [03:43]
-03. Lavender Kiss [06:08]
-04. Six Feet Down In The Blues [04:43](   Читать дальше...   )Жанр: Blues, Blues Rock, Native AmericanПродолжительность: 04:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EE753E9BDD5AAA596726EA5B13DDB527082185
 ```
 
 https://mybot314.ru/tekegram_catalog/

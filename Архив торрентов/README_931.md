@@ -1,30 +1,3 @@
-###  Публикация: 1501886   (833641) от 11.10.2021
-
-WinSCP 5.19.3 Build 11749 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833641.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinSCP, это FTP и SFTP клиент с открытым исходным кодом для Windows систем, который поддерживает старый протокол SCP. Он обеспечивает безопасное передачу данных и файлов между разными компьютерами и позволяет использовать защищенный своего рода «туннель».
-При помощи WinSCP можно соединиться с сервером SSH (Secure Shell) по протоколу SFTP (SSH File Transfer Protocol) (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD44E68CBE1C407721AA91D8C328F7DFB9F5FC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501770   (833640) от 11.10.2021
 
 Glary Utilities Pro 5.174.0.202 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -698,6 +671,32 @@ Infix PDF Editor Pro 7.6.5 RePack by KpoJIuK [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E16989D216DBBE5636B53498293507CEA774EB59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501773   (833366) от 11.10.2021
+
+CCleaner 5.85.9170 Free / Professional / Business / Technician Edition RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833366.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBE9C44564490305650E4225E2CE36972738B48
 ```
 
 https://mybot314.ru/tekegram_catalog/

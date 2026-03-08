@@ -1,3 +1,32 @@
+###  Публикация: 925779   (539212) от 07.08.2015
+
+VA - Trance Desire Volume 52 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H feat. Natalie Gioia - 4Ever (Original Mix) (06:22)
+02. Hazem Beltagui & Shannon Hurley - An Open Heart (Original Mix) (07:02)
+03. Masoud feat. Melissa Loretta - Best Days (Progressive Mix) (06:28)
+04. Driftmoon vs. Geert Huinink feat. Kim - Forever (Original Mix) (08:40)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A38B38FBEBA03B23E4BD0C29D49179D1C795C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239474   (538973) от 05.08.2018
 
 VA - Record Super Chart 547 (2018) [MP3|320 Kbps] <House, Club, Dance>
@@ -720,35 +749,6 @@ VA - Global Music 155 DJ Vector Beauty (2016) [MP3|320 Kbps] <House, Electro Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D7AFCE86E6AA3906FA653DBBC0D1C1EE2D9312E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051029   (535126) от 10.09.2016
-
-VA - DJ Bass Master (2016) [MP3|320 Kbps] <Dubstep, Drumm And Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535126.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tritonal - Blackout (feat. Steph Jones)
-002. Myrne - Celestial
-003. The Prodigy - Wild Frontier (Wilkinson Remix)
-004. Matrix & Futurebound - Glow Worm(   Читать дальше...   )Жанр: Dubstep, Drumm And BassПродолжительность: 09:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA31FBCD19A950F51487D67363F8B5DAB2AC3D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

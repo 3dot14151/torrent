@@ -1,3 +1,32 @@
+###  Публикация: 681704   (45712) от 25.08.2024
+
+Deep Purple 1972/1973 Copenhagen - New-York (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несжатая версия двух ремастеров концертов группы Deep Purple в Копенгагене (1972) и в Нью-Йорке (1973).Copenhagen
+01. Highway Star
+02. Strange Kind Of Woman
+03. Child In Time(   Читать дальше...   )Жанр: Hard RockФормат: DVD VideoКачество: DVD9Продолжительность: 01:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207CECD633C1CE4C8FB27C1133F800BA6A92A22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 53450   (45640) от 26.08.2024
 
 Uriah Heep / Acoustically Driven (Classic Rock Legends) [2001, Classic Rock, DVD5]
@@ -690,35 +719,6 @@ Drummatix — сценическое имя Екатерины Бардыш, и�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:481DD81CB9FEDB027CF94824C48C4CEFDE7FD816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 307909   (43535) от 15.09.2024
-
-Manfred Mann's Earth Band - Unearthed. The Best of 1973-2005 (2006) DVD5 <Rock>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник концертных выступлений, рекламных роликов и видеоклипов известной британской группы «Manfred Mann's Earth Band».01. Blinded By The Light (Top Of The Pops, BBC TV UK - 1976)
-02. Joybringer (Hits A Go-Go, Swiss TV - 1973)
-03. Don't Kill It Carol (Promo Video - 1979)
-04. Brothers And Sisters Of Africa (Tour Cartoon - 1983)(   Читать дальше...   )Жанр: Rock, Jazz-Rock, Pop-Rock, British Invasion, Prog-Rock, Art RockПродолжительность: 01:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEE1B41FFFF741D81F9C0A698A45C2E517D7262
 ```
 
 https://mybot314.ru/tekegram_catalog/

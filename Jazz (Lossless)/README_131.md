@@ -1,3 +1,32 @@
+###  Публикация: 1147043   (611329) от 01.07.2017
+
+Ted Rosenthal Trio - Rhapsody in Gershwin (2014) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhapsody in Blue [17:11]
+02. Let's Call the Whole Thing Off [04:57]
+03. Fascinatin' Rhythm [05:58]
+04. I Loves You Porgy [05:45](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1317A3151F15C9A95B9CBD883A5884B9C918C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147053   (611327) от 01.07.2017
 
 Steve Lacy Sextet - The Gleam (1986) Silkheart Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -713,35 +742,6 @@ VA - Мой любимый старый джаз (My Loved Old Jazz) (1930-e - 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:605C2BFD1F1C3A997DF6E08E758AB92C683EC5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231053   (608768) от 16.06.2018
-
-Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) GMCD092 [FLAC|Lossless|tracks + .cue] <Jazz, Vocal Jazz, Pop, Acoustic>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riviera Life
-02. Dr. Wanna Do
-03. A Night Like This
-04. Just One Dance(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Pop, AcousticПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D94F94F5D52360602B214F7331EF1D6F00768E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

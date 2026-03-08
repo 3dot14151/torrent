@@ -1,3 +1,32 @@
+###  Публикация: 1134212   (689247) от 15.05.2017
+
+Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lovers (Intro & Title) (03:04)
+02. Tell Her! (01:22)
+03. Lying to Lucy (01:38)
+04. Do You Want Some? (01:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC029DB42DF1E1FACD4685232BC14AF8F878A683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133471   (689244) от 15.05.2017
 
 Really Slow Motion - Battle Angel (2016) [MP3|320 Kbps] <Soundtrack, Instrumental>
@@ -710,35 +739,6 @@ VA - The Buddy Holly Story (1978) 2020 / Original Motion Picture Soundtrack / De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4BA1B9353C5123262AC56298282A643762F1DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289563   (686476) от 16.03.2019
-
-VSOP (Vienna Symphonic Orchestra Project) - Classic Meets Pop (1989) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686476.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Hand In Hand
-2.	Medley: Golden Slumbers, Carry That Weight, You Never Give Me Your Money, The End
-3.	Orinoco Flow
-4.	The First Time(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A72142843CFD029653773E743E02C4A076F258
 ```
 
 https://mybot314.ru/tekegram_catalog/

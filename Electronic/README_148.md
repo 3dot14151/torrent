@@ -1,3 +1,61 @@
+###  Публикация: 1390514   (782697) от 16.06.2020
+
+Logic Moon - 2017 (2020) Logic Moon Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2017 (06:52)
+ 02. 2017 - Drone (04:29)
+ 03. Ethereum (06:23)
+ 04. Oktober And Your Smile (08:18)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5241390664EC4C7B4B02044CE4743EDB7BD872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390528   (782688) от 16.06.2020
+
+Approaching Black - Dusk (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Chill House, Ambient House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening A Different Door (4:47)
+ 02. Entering Eden (5:09)
+ 03. No More Grey (7:28)
+ 04. Stand By My Side (4:54)(   Читать дальше...   )Жанр: Deep Progressive House, Chill House, Ambient HouseПродолжительность: 02:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33432DBDF88F43EE3617F5ABE60A7D25D9E09070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390703   (782663) от 16.06.2020
 
 VA - CP OneHundred (2020) Counter Pulse [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -687,64 +745,6 @@ VA - Quadrophobia V.1 (1998) Pendragon Records [FLAC|Lossless|tracks+.cue] <IDM,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4194BD44A9239A6B66413A3C696DE6205454A073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390720   (782251) от 17.06.2020
-
-VA - Club Music (2020) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Louie Vega & Marc Anthony - Ride On The Rhythm (Masters At Work Dub Mix) 6:16
-02. Tori Amos - Professional Widow (Armand's Star Trunk Funk Mix) 3:47
-03. K-Klass - Let Me Show You (Klub Mix) 6:45
-04. Clubland - Hypnotized (PKA Full Philly 12' Mix) 6:31(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DAC629DB51D3B343DA19F8394026DCF048D3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206545   (782168) от 14.02.2018
-
-VA - House Life Vol.19 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daviddance  -  Lose Control (Extended Mix)  7:22
-02.  Andy Pitch  -  Good Time (Original Mix)  6:31
-03.  Sato Fujima  -  Sin Da (Original Mix)  6:30
-04.  Daviddance  -  Groove It (Original Mix)  7:51(   Читать дальше...   )Жанр: HouseПродолжительность: 01:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ACDEBB6AF3EBC388EBCE2B93D0E08A37013303
 ```
 
 https://mybot314.ru/tekegram_catalog/

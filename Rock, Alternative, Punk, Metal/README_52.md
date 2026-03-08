@@ -1,32 +1,3 @@
-###  Публикация: 1615455   (1037537) от 26.02.2023
-
-Harlem Lake - Volition Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern-Rock, Blues, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The River (Live At Culemborg Blues, 27.08.22) (4:30)
-02. Beware (Live At Culemborg Blues, 27.08.22) (3:53)
-03. Whiskey Drinking Woman (Live At Better Get Hit Festival, 10.09.22) (6:25)
-04. Deaf & Blind (Live At Culemborg Blues, 27.08.22) (7:04)(   Читать дальше...   )Жанр: Southern-Rock, Blues, PsychedelicПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63F05234E1436FA793E9E677EE61A1C0FD61ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441706   (1037519) от 22.01.2021
 
 Labyrinth - Welcome to the Absurd Circus (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
@@ -744,6 +715,35 @@ W.E.T. - Retransmission (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1D1DD794FE366A2F9EA615926EF22A2A45C78C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441931   (1037196) от 23.01.2021
+
+Escape The Fate - Chemical Warfare (2021) [MP3|~245 Kbps (V0)] <Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lightning Strike [00:02:46]
+02. Invincible (feat. Lindsey Stirling) [00:03:52]
+04. Chemical Warfare [00:03:14]
+05. Erase You [00:02:28](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE424D0671207BBD8F9DB402C34120F1B089A31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1042603   (578441) от 13.08.2016
+
+Sandra Van Nieuwland - Breaking New Ground (2015) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking New Ground (3:50)
+02. Stop The Clocks (3:38)
+03. Another Life (3:01)
+04. Truth (3:14)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B843E40F23432B5AE673F4FD658837758DD74B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554273   (577492) от 30.05.2022
 
 Ed Sheeran - = (Tour Edition) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
@@ -720,35 +749,6 @@ VA - Now That's What I Call Music! 69 (2019) USA Series [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AE9C0B963F8516421CE6A183DBC82255CD72461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690726   (564170) от 18.08.2013
-
-Selena Gomez - Stars Dance (Deluxe Edition) (2013) /Scene/ [FLAC (tracks)|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birthday
-02. Slow Down
-03. Stars Dance
-04. Like a Champion(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A604CF12C691A9737841104A7839D26C6C8E7E56
 ```
 
 https://mybot314.ru/tekegram_catalog/

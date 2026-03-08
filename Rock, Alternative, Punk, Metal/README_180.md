@@ -1,32 +1,3 @@
-###  Публикация: 1096551   (919397) от 24.01.2017
-
-Arktis - On The Rocks (1976) Reissue, 1997, Garden Of Delights [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919397.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dangerous Love
-2. Since You've Been Gone
-3. Never Come Back
-4. Please, Call Me(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B18375F67EAC85843411F6741CFEE5C0726623A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096490   (919380) от 24.01.2017
 
 Svartby - Swamp, My Neighbour (2015) [MP3|320 Kbps] <Folk Metal>
@@ -746,6 +717,35 @@ John Ford - No Talkin' (2014) [FLAC|Lossless|image + .cue] <60's Guitar's Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD6D0C858A7066E366DB0870F769A1395847EDA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988753   (918986) от 21.02.2016
+
+Judas Priest  - Collections (2008) Compilation [FLAC|Lossless|image + .cue] <Speed Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Breaking The Law 	02:36
+02. 	Living After Midnight 	03:31
+03. 	Out In The Cold 	06:28
+04. 	Love Bites 	04:49(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41342ACADC2BF1DBE17C8C1623466B4018F1086
 ```
 
 https://mybot314.ru/tekegram_catalog/

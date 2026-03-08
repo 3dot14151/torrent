@@ -1,3 +1,38 @@
+###  Публикация: 476789   (85877) от 02.04.2012
+
+VA - Top 200 Радио DFM Весна 50/50 (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85877.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алисия & Влад Корса - Здесь и сейчас
+002. Klaas & Bodybangers - I like (Bodybangers mix)
+003. Dan Balan - Лишь до утра (DFM special mix)
+004. JuicyTrax feat. Jess - Fuck your girlfriend
+005. Иракли - Ты одна (DJ Kirill Clash & DJ Dmitriy Nema remix)
+006. Madonna feat. Lmfao & Nicki Minaj - Give me all your luvin (Party Rock remix)
+007. Milena & Murzin Denis - До утра (Filipp Aniskin remix)
+008. David Guetta - Without you (feat. Usher)
+009. Блестящие - Милый мой
+010. Chris Parker - Space(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8C6461DABDAEEC0839EF08D0BAF1232495BFBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476462   (85525) от 31.03.2012
 
 VA - Популярная поп музыка (2012) [MP3|256 кб/с]<Pop>
@@ -837,35 +872,6 @@ VA - 8 марта! (2024) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23729E6E8055374503D3586A17548B873E89AF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707505   (62648) от 17.03.2024
-
-VA - Easy Pop 00s (2024) [MP3|320 Kbps] <Pop, Dance, RnB, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay - Sparks
-02. Michael Bublе - Home
-03. Jason Mraz - I’m Yours
-04. Uncle Kracker - Follow Me(   Читать дальше...   )Жанр: Pop, Dance, RnB, RockПродолжительность: 03:21:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BA1E1825D006B5EF65B95ECC7820833B0681AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

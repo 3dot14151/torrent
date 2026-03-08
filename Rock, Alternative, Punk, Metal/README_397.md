@@ -1,32 +1,3 @@
-###  Публикация: 1290533   (678487) от 20.03.2019
-
-Jonathan Coulton - Some Guys (2019) [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Golden Hair
-02. On and On
-03. Alone Again (Naturally)
-04. The Things We Do for Love(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90050BAB5073424765FC031DA9D0B9AAB352F32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290420   (678484) от 20.03.2019
 
 Pallbearer - Heartless (2017) [FLAC|Lossless|tracks + .cue] <Doom Metal, Progressive Metal, Epic Doom Metal>
@@ -777,6 +748,35 @@ Shrinebuilder ‎– Shrinebuilder (2009) [FLAC|Lossless] <Stoner / Doom Metal, 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 898752   (677164) от 17.05.2015
+
+Whitesnake - The Purple Album (2015) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn  (6:56)
+02. You Fool No One  (Interpolating "Itchy Fingers") (6:23)
+03. Love Child  (4:13)
+04. Sail Away  (Featuring "Elegy For Jon") (4:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459B3A9E5B3CF5439A07DB84B415127F7BA99FF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

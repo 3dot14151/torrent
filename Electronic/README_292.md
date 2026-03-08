@@ -1,3 +1,61 @@
+###  Публикация: 1057887   (473299) от 29.09.2016
+
+VA - Cocktail Lounge: Sexy Sounds for Lazy Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Mestizo Ensemble - Relax - Vonkerne Remix
+02. Bande-A-Part - Black Soul
+03. Berk & The Virtual Band - Suburbia - Happier Remix
+04. Selfish - Under Pressure(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656356D6D957AA813C7A23B92FC15730205B7045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320247   (473277) от 17.08.2019
+
+VA - Go Sports! Vol. 1 Maximum Level Workout Sounds (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473277.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Syke'n'Sugarstarr feat. Alexandra Prince - Are You Watching Me (Danielle Diaz Remix) [04:15]
+02.Joseph Armani & Baxter - Happy People (Ridwello Remix) [02:37]
+03.Marc Kiss, Sawo & Crystal Rock - Feels Good (Original Radio Edit) [03:06](   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 2:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4CD308F8B8AB4E5D0FA96E08E3983030D6B62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319307   (473276) от 17.08.2019
 
 Chill Out Lounge Cafe Essentials, Chilled Ibiza - Mysterious Sexy Chillout (2019) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -704,64 +762,6 @@ U96 & Wolfgang Flur - Transhuman (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E41EC254C355A576C712E1945090B5C96CC53BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407059   (470842) от 05.09.2020
-
-Dhamika - Point of No Return (2020) Dhamika Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By the Lighthouse (Remix) (05:17)
- 02. Gnyan (06:46)
- 03. Lifeforce (07:47)
- 04. Point of No Return (08:50)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58DB9FEE6161B51D9EB81495FE6FA8A9C7C515D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407002   (470728) от 05.09.2020
-
-Tricky - Fall to Pieces (2020) [MP3|320 Kbps] <Trip-Hop, E﻿lectronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thinking Of (feat. Marta) (2:11)
-02. Close Now (feat. Marta) (1:38)
-03. Running Off (feat. Oh. Land) (1:44)
-04. I’m in the Doorway (feat. Oh. Land) (2:51)(   Читать дальше...   )Жанр: Trip-Hop, E﻿lectronicПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D6A096AE7A286F36778F043019ED24B7ECC492
 ```
 
 https://mybot314.ru/tekegram_catalog/

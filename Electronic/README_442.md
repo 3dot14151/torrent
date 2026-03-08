@@ -1,3 +1,58 @@
+###  Публикация: 968113   (158245) от 22.12.2015
+
+VA - The Silence Was Warm, Vol. 2 (2008) [FLAC|Lossless|tracks + .cue] <Ambient, Modern Classical, IDM, Post-Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient, Modern Classical, IDM, Post-Rock |Продолжительность: 00:52:55+00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C4AAD6C3A163721F4A30F675EB0CFEB39C547B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277469   (157995) от 20.12.2020
+
+Rave The Reqviem - Discography 16 Releases (2013-2020) [MP3|320 Kbps] <Industrial Metal, Dubstep, Drum & Bass, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157995.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013 - Reqviem v1.0 (EP)
+2013 - Reqviem v1.5 (EP)
+2014 - Rave The Reqviem (Limited Edition)
+2015 - Remix The Reqviem(   Читать дальше...   )Жанр: Industrial Metal, Dubstep, Drum & Bass, IndustrialПродолжительность: 05:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92E2CF481115BF209B27F5E513CE3512CEDA9DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 696231   (157962) от 22.12.2015
 
 Exoplanet - Discography 2 Albums & 26 EP (2005-2014) [MP3|320 кб/с]<Progressive House, Techno, Downtempo, Breaks, IDM, Deep House>
@@ -679,64 +734,6 @@ VA - Hed Kandi Anthems (2015) [MP3|320 кб/с] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:882D4D50F2D66E40B620F8E99DEE45F6811F2796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968329   (156496) от 23.12.2015
-
-E-Mantra - Raining Lights (2015) Altar Records [FLAC|Lossless|WEB-DL|24Bit|tracks] <Psybient, Downtempo, Progressive Trance, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlights (06:36)
-02. I Shall Not Care (07:32)
-03. Veiled Clouds (07:11)
-04. Kaleidoscope Clouds (Main Sequence Star Remix) (08:51)(   Читать дальше...   )Жанр: Psybient, Downtempo, Progressive Trance, AmbientПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C575F0EB5E90C22CFD79C475DC588498699FC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433665   (156476) от 21.12.2020
-
-Choir of King's College, Cambridge and Daniel Hyde - Carols From King's (2020 Collection) (2020) [FLAC 24/48.0|Lossless|WEB-DL|tracks] <Ambient, New Age, Easy Listening>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once in Royal David's City (Live) (5:14)
-02. A Maiden Most Gentle (Live) (3:03)
-03. There is No Rose of Such Virtue (Live) (1:57)
-04. Herefordshire Carol (This is the Truth Sent from Above)Жанр: Ambient, New Age, Easy ListeningПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F41186D905D7004B32926DB55A7C090BA17E31
 ```
 
 https://mybot314.ru/tekegram_catalog/

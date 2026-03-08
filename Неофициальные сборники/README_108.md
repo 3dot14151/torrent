@@ -1,3 +1,177 @@
+###  Публикация: 1372218   (886378) от 02.04.2020
+
+VA - Top50: Tracks Deep House Ver.20 (2020) [MP3|320 Kbps] <House, Deep House, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicolas Hilton - Karmadelika (Playa Banjo Edit) 3:41
+02. North Sea - Rainbow Arch (Extended House Edit) 3:44
+03. E Point - Another Story (Deep Edit House) 3:43
+04. Leonard Michael - Chek Yourself (Deep House Edit) 3:43(   Читать дальше...   )Жанр: House, Deep House, ElectronicПродолжительность: 03:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E0C71733AF90FE9DF58E0A6050C7205E7BE1F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371961   (886374) от 02.04.2020
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver.94 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+1.AC Slater, Jack Beats & Sinden Boss - Like That feat. Flowdan (DALCO Remix) (1:54)
+2.Akon Feat. Eminem - Smack That (Frost & TWIST SOUND Remix) (3:13)
+3.A-One & KIDY - What Is What (3:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86B89B0E0929F2A52ECC7DEA2DF022BC75D4F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995130   (886234) от 10.03.2016
+
+VA - Лучшие новинки. Non-Stop Весенний (2016) [MP3|256-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886234.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yanka - Skip A Little Love
+002. Shami Feat. Gidayyat - В Сердце У Меня
+003. Анна Добрыднева - Пасьянс
+004. Pitbull Feat. Bebe Rexha - This Is Not A Drill(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE7909937C295DFE179001F441A27647B52AEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103548   (886074) от 12.02.2017
+
+VA - Planet of Chillout: Fifteen Organic Downtempo and Chillout Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anuwat Chamroon - Funky Organs
+02. Doktor Gigi - Rich and Healthy
+03. Thai Ragga Collective - Sunny Afternoon
+04. Baramee Thawan - Sunthat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B251D2B090500BFDC1917607952893D05BC3425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103566   (885966) от 12.02.2017
+
+VA - Empire Records - Dancenudisco 8 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nami, Taspin, Diaz - Closing Time (Andrey Keyton Remix)
+02. Michael Gray - The Weekend (Extended Vocal Mix)
+03. Sandy Rivera - So Good
+04. Oliver Koletzki, Nord - After All (Claptone Remix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD2FF81B7FEECD518AA52947103F839DC60CF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103580   (885945) от 12.02.2017
+
+VA - Empire Records - Club Hit 9 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DRegi - Shoul'dve Been There For You (Dj Antonio remix)
+02. De Hofnar, MOWE & Freddie Verano - Crazy Love
+03. Emeli Sande - Read All About It (Amice Remix)
+04. Mida - Believe (Extended Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F815DDA9BA132A35A52DD986518B76F17EE67BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494799   (885930) от 09.09.2021
 
 VA - Music News vol.130 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -576,180 +750,6 @@ VA - Вспоминая СССР. По-новому о главном [6CD] от
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C1F1AE2368894674141863579390A345CBF9BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103792   (883647) от 13.02.2017
-
-VA - Dance 2017  [MP3|320 Kbps] <Electronic, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883647.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ethyl/Flori - Shelter (07:33)
-2. Brawther - Spaceman Funk (Deep Club mix) (08:12)
-3. Shanti Celeste - Nu4him (06:21)
-4. BLM - Chemistry (07:14)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 01:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA4BCE468C19138B7800885EFF2C79BFAB9C3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103845   (883642) от 13.02.2017
-
-VA - Снегопад новинок. Часть № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883642.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Зара - Забыть О Тебе 3:32
-002. Alex 67 - Сумасшедшая 3:18
-003. Alvarez - Sin Miedo 4:12
-004. Far East Movement Feat. Yoonmirae & Autolaser - Fighter 4:14(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42ED724DB9CDC717AD7B161F983D67A481B2806A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103831   (883640) от 13.02.2017
-
-VA - Музыкальное потрясение зимы от Русского радио выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883640.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A-Sen - Губы Любят 3:16
-002. Proвокация - Два Сердца 3:35
-003. Моника - Корпоратив 3:08
-004. Елена Есенина - Тамтамы 3:00(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022E3F0FC85E2C0CD64A5BF9F6E7BEA45BF65D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103842   (883639) от 13.02.2017
-
-VA - Зимняя русская радиоволна (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883639.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Стас Костюшкин - Бабушка 2:58
-002. Lega - Она Мой Diamond 3:31
-003. Ira Smith - Мир В Тебе 3:12
-004. Егор Крид - Мало Так Мало 3:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279EF977EC8DCF075E8C064833DCF558AA8AE49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103837   (883638) от 13.02.2017
-
-VA - Музыкальное зимнее настроение. Русский сборник (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883638.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Андрей Ковалев - Ты Моя Любовь Сумасшедшая 3:02
-002. Iowa - Мои Стихи Твоя Гитара 3:14
-003. Карина - Мой Мир 2:31
-004. Галина Боб - Только С Тобой 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A148B84D2EE3B7944DD346ED30971F08631D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103834   (883631) от 13.02.2017
-
-VA - Стопудовые зимние хиты. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883631.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Аполлинария - Околдована 3:00
-002. Sigala & Digital Farm Animals - Only One 3:24
-003. Элемент - Не Мое Кино 3:03
-004. Oleynik - Остановись 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC1B4C6B945C7A30975673C747A5063D121F1A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,22 @@
-###  Публикация: 1778683   (70781) от 10.02.2025
+###  Публикация: 1778696   (70820) от 09.02.2025
 
-Григорий Герасимов - Душа бродяги (2025) [MP3|320 Kbps] <Chanson>
+Шрифты - Bronco Bandit - Wild West Typeface [OTF, TTF]
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70781.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Слово пацана [00:03:15]
-02 - Эти белые цветы [00:03:25]
-03 - Заходите ко мне на огонёк [00:03:10]
-04 - Ох, девоньки, красотки [00:03:16](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:52
+Садитесь в седло и отправляйтесь на Дикий Запад с Bronco Bandit, смелым и резким шрифтом, вдохновленным суровым очарованием ковбоев, салунов и необузданной границы. Этот шрифт передает дух приключений и бунтарства с его отличительными острыми краями и вневременным дизайном. Благодаря своему незабываемому стилю и сильной индивидуальности, Bronco Bandit является лучшим (   Читать дальше...   )Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26D6AA8A0942CB074AFC4F3F492BC46507F24DDB
+magnet:?xt=urn:btih:DC5297EA64F1DF3E63051544609822946FC5B305
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778672   (70780) от 10.02.2025
+###  Публикация: 1778677   (70819) от 09.02.2025
 
-Юрий Карпенко - Лирика шансона (2025) [MP3|320 Kbps] <Chanson>
+Спокойной ночи... Раз! Сборник мультфильмов (1950-1972) DVDRip
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70780.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Большеглазая
-02. Без тебя
-03. Застолье
-04. Вечер для двоих(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:43:52
+Вам теперь не нужно забирать с улицы ребёнка и бежать с ним домой в 20:45, что бы успеть к ващей любимой передаче. Вы сможете включать эту программу непосредственно перед сном ребёнка. На этом сборнике 9 мультфильмов, рассчитанных на 10 минут. Надеюсь эта программа поможет родителям правильно планировать своё время.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Ольга Ходатаева, Леонид Аристов, Владимир ДегтяревАктеры: Борис Чирков, Георгий Милляр, Николай Александрович, Жанна Балашова, Юльен Балмусов, Владимир Конкин, Борис Токарев,  Виталий Ованесов,  Александр Котов, Юрий Хржановский и другиеСубтитры: отсутствуютПродолжительность: 01:35:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:191D1912C8F1F971564F2D24D61D9480466C919C
+magnet:?xt=urn:btih:6196A171F9383FF4F1CACDBCEA55A4155789E62D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778712   (70779) от 10.02.2025
+###  Публикация: 1778709   (70818) от 09.02.2025
 
-Динара Швец - Бегу к тебе (2025) [MP3|320 Kbps] <Pop>
+Шрифты - MyFonts - Estandar [TTF, WOFF, WOFF2, EOT]
 
->>Pop
->>Отечественная поп-музыка
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70779.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70818.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Бегу к тебе [00:03:38]
-02 - Ветром улечу [00:03:08]
-03 - Позвони [00:03:23]
-04 - Я скучаю по тебе [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:32:53
+Estandar — это ретро- и винтажный шрифт без засечек для навигации, вдохновленный старыми сигнальными знаками в Центральном парке и Европе.
+
+Кириллица не поддерживается.Формат: TTF, WOFF, WOFF2, EOT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B98E63FDDF21D391FD5027A001FB8013C7C6537C
+magnet:?xt=urn:btih:D225874D949A57E86611E1D4B307BEE85CA995A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,86 +78,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778704   (70778) от 10.02.2025
+###  Публикация: 1778684   (70817) от 09.02.2025
 
-Юрий Истомин - Пересадка в Стамбуле (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Побег с ChatGPT [00:03:53]
-02 - Ну, как тебе такое, Илон Маск [00:02:44]
-03 - Пересадка в Стамбуле [00:03:50]
-04 - Макконахью [00:04:09](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA00EBEA86AF4B0D7BC8A560C412C670B32E02E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778714   (70777) от 10.02.2025
-
-Андрей Таныч - Воспитала улица меня (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Влюбиться заново в жену [00:04:25]
-02 - Воспитала улица меня [00:03:54]
-03 - Оленька [00:04:48]
-04 - Облик твой [00:03:52](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAB63971CB53C0F4345446C059CC31FC5C59EF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778970   (70776) от 10.02.2025
-
-VA - Latin Jazz House & Beats (2025) [FLAC|Lossless|WEB-DL|tracks] <Latin Jazz, House>
+V.A. - Pop International Hits Vol. 2 (Bossa Nova Lounge Jazz Covers) (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Nu Jazz, Pop Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70776.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70817.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Ltj Xperience - When The Rain Begins To Fall (6:48)
-02.  Sicania Soul - Sorriso Do Universo (9:19)
-03.  Jù Cassou - Brisa (4:30)
-04.  The Black Mighty Orchestra - Rua Escondida (4:04)(   Читать дальше...   )Жанр: Latin Jazz, HouseПродолжительность: 01:52:32
+01. Lo Greco Bros, Mariva Cory - Careless Whisper
+02. Papik, Sarah Jane Morris - Sweet Love
+03. The Blue Hammock - Wonderwall
+04. Sugarpie And The Candymen - Lithium(   Читать дальше...   )Жанр: Bossa Nova, Nu Jazz, Pop JazzПродолжительность: 01:20:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8F7B7F4AA95833DBF525FCF318B5019D78FEA59
+magnet:?xt=urn:btih:41CBE82F302EFBA129E395604F1A0E19FF980ACF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +107,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778965   (70775) от 10.02.2025
+###  Публикация: 1778694   (70816) от 09.02.2025
 
-VA - Jazz Collection Tracks For Stress Relief (Volume 1) (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+PrivaZer Pro 4.0.98 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70816.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C87DFE8E816572204A0EF3DEFDDDD06B16D8E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778662   (70815) от 09.02.2025
+
+Шрифты - Hiruko Pro™ by HyperFluro [TTF, WOFF, WOFF2, EOT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hiruko Pro — это совершенно новая, улучшенная версия нашего оригинального релиза 2008 года. Мы внесли множество улучшений в оригинальное семейство, которое теперь включает в себя множество перерисованных символов, улучшенный кернинг и 4 совершенно новых начертания, чтобы помочь придать всему семейству больше баланса. Hiruko Pro хорошо работает как в качестве заголовков, (   Читать дальше...   )Формат: TTF, WOFF, WOFF2, EOT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13EFAE6FED0F32EA4A83AD05B97C599FDCB144B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778646   (70814) от 09.02.2025
+
+Todd Cochran TC3 - Then And Again, Here And Now (2021) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70775.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Soulstance - Around Me (4:35)
-02.  Renato Cantini - Cloud (3:21)
-03.  Flow Bop - Blue Rainbow (5:11)
-04.  Modulo5 - Day Off (8.00 am) (2:31)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:35:49
+01. Softly as in a Morning Sunrise [4:34]
+02. A Foggy Day in London [6:15]
+03. I Got Rhythm [4:12]
+04. Verselet for the Duke [1:27](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5778B58AE0642BDD408BFB544D754384DBC4F0E0
+magnet:?xt=urn:btih:08CCB47C7390E0B370E748066F5A9630B985BEC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +188,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778968   (70774) от 10.02.2025
+###  Публикация: 1778643   (70813) от 09.02.2025
 
-VA - Jazz House Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Max Greger - Super Tanzmusik (1985) Polydor [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Big Band, Latin Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70774.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Belladonna - Midnight Piano (7:38)
-02.  Mellowtones - Tushita (5:34)
-03.  Zone - London Dance (5:45)
-04.  Viani Dj & Aaron T - Funker (Original Mix) (7:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:59:36
+01. Playa Blanca [3:00]
+02. Jenseits von Eden/Abschied ist ein scharfes Schwert [3:19]
+03. Black and White Holiday [3:05]
+04. Time After Time/Send Me an Angel [2:49](   Читать дальше...   )Жанр: Jazz-Pop, Big Band, Latin JazzПродолжительность: 00:40:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:101B88AE5C28BC55533EDA61C05C33E5DF6F8A67
+magnet:?xt=urn:btih:A202B6BFC16DA959786F4E8CC680EF346730962E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +217,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778957   (70773) от 10.02.2025
+###  Публикация: 1778702   (70812) от 09.02.2025
 
-VA - Afro Funky House 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
+Футбол. Winline Зимний Кубок РПЛ. Группа B. Зенит (Санкт-Петербург) - ЦСКА (Москва) (04.02.2025) IPTVRip [H.264]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70773.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Jestofunk - Colour (Remix) (5:47)
-02.  Dj Ebreo - Boliban (5:19)
-03.  Belladonna - Tangent (4:05)
-04.  Bantukemistry - Zoma (3:49)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:40:09
+Амбиции обоих клубов по статусу превращают эту игру больше, чем в товарищескую или сугубо контрольную. К тому же, новичкам и там, и там необходимо завоёвывать место составе. А не очень довольный собой на этот момент «Зенит», вероятно, постарается перевернуть ход событий последнего времени и большими силами пойдёт вперёд, рискуя нарваться на быструю контратаку.
+Футбол: (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 02:10:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C402DE95F964CA677AB9BD678A436449BE9E5CA4
+magnet:?xt=urn:btih:512575D046B581F074EA5C330844A4BEA10125CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +244,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778671   (70772) от 10.02.2025
+###  Публикация: 1778639   (70811) от 09.02.2025
 
-Елена Фролова - Дыши, душа моя, дыши (2025) [MP3|320 Kbps] <Авторская песня>
+Mad Parish - The Dust Of Forever (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70772.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Дыши, душа моя, дыши
-02. Цыганская молитва
-03. Сезам
-04. Не умирай, моя радость…(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:16:36
+01 - Prophecy (01:31)
+ 02 - Defecther (04:33)
+ 03 - Possess The Child (04:46)
+ 04 - Outerest In Irisius (01:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:10:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D69C77529219F90724C7259A43F7FF39E8B2BDF
+magnet:?xt=urn:btih:8851EEE800D7A1DD021144132F71C5AEE721030E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,26 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778975   (70771) от 10.02.2025
+###  Публикация: 1778366   (70810) от 09.02.2025
 
-VA - Slow and Smooth Jazzy Beats and Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Ebonheart - Face our Fear (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Progressive-Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70771.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Papik, The Soultrend Orchestra & Anna Fondi - Summer Madness (5:01)
-02.  Montefroid - The Way You DoЖанр: Smooth JazzПродолжительность: 01:24:37
+01. Face our Fear [00:04:02]
+02. The Bringer of Light [00:03:28]
+03. Hold me Now [00:04:30]
+04. Entity [00:03:38](   Читать дальше...   )Жанр: Power, Progressive-MetalПродолжительность: 00:37:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86CD1D4157AAEEE742A3A3EDDBD68E657815FE1B
+magnet:?xt=urn:btih:CBFD8D647EAAFF5C689934C38964F4094F4F25DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -315,28 +302,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778981   (70770) от 10.02.2025
+###  Публикация: 1778655   (70809) от 09.02.2025
 
-VA - Soul R&B and Funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, R&B, Funk>
+Squid - Cowards (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Krautrock, Post-Punk>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70770.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Curtis Mayfield - Move On Up (2:46)
-02.  The Spinners - Working My Way Back to You (4:03)
-03.  CHIC - Good Times (8:15)
-04.  George Benson - Give Me the Night (3:43)(   Читать дальше...   )Жанр: Jazz, Soul, R&B, FunkПродолжительность: 03:11:42
+1. Crispy Skin (06:19)
+2. Building 650 (03:51)
+3. Blood on the Boulders (05:46)
+4. Fieldworks I (02:23)(   Читать дальше...   )Жанр: Indie Rock, Krautrock, Post-PunkПродолжительность: 00:44:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD56B8992588AAB21EF9E0538863D918F8193C70
+magnet:?xt=urn:btih:A3565F68CEA0700720CF649693FDDDF219D39D94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,112 +331,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778843   (70769) от 10.02.2025
+###  Публикация: 1778669   (70808) от 09.02.2025
 
-VA - The Orient Collective: Echoes Beyond Borders (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Slick - Astral Illusion (7:18)
-02. Kalico Jak - Across the Sands (7:36)
-03. Tibetania - Nomad (4:56)
-04. Tibetania - Terra (6:12)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F97428616A64F7BDF6556F8B33E65BF1BF08ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778936   (70768) от 10.02.2025
-
-Газета | Загадки истории №4 (630) (2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70768.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF53F64957A61BB4641A1475F806E866DD2695D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778960   (70767) от 10.02.2025
-
-VA - fun and funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul/Funk/R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  CHIC - Good Times (8:15)
-02.  George Benson - Give Me the Night (3:43)
-03.  Sister Sledge - He’s the Greatest Dancer (6:15)
-04.  Chicago - Street Player (9:11)(   Читать дальше...   )Жанр: Soul/Funk/R&BПродолжительность: 02:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A4529C3D00D25B58C40D6C68B82B966F57555FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778946   (70766) от 10.02.2025
-
-Ilan Bluestone - Anthem Test (2025) [MP3|320 Kbps] <Trance>
+VA - Redux Selection, Vol. 3 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70766.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ilan Bluestone & Jerome Isma-Ae - Under My Skin (Original Mix) (06:25)
-02. Ilan Bluestone - Spheres (Extended Mix) (06:59)
-03. Above & Beyond & Oceanlab - Satellite (Ilan Bluestone Extended Mix) (07:00)
-04. Ilan Bluestone & Jerome Isma-Ae - Tension (Extended Mix) (06:21)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:14
+01. Kiyoi & Eky vs. Atragun - Heritage (Matthew Dreamer Extended Remix) [7:24]
+02. Brian McCalla - One Way Trip (Extended Mix) [6:10]
+03. Wesley Verstegen - Universe (Extended Mix) [6:08]
+04. Mark Hide - S.E.T.I. (Extended Mix) [6:58](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:20:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7DA88631E507A14D77A61D6289980099312D5BF
+magnet:?xt=urn:btih:88BB702AD8FFADC62A5EF52681D839312734D080
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,28 +360,246 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778876   (70765) от 10.02.2025
+###  Публикация: 1778670   (70807) от 09.02.2025
 
-Dave Stryker - Eight Track (2014) Strikezone Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
+Первая передача на НТВ. Автомобильная передача (09.02.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автокатастрофа в райцентре Благодарный: кто был за рулем, в курсе даже судья и прокурор. Но судят совершенно другого. Что произошло на дороге?
+ Виновник ДТП установлен и наказан. Почему же потерпевший должен возмещать ему вред?
+ «SOS!» — кричит указатель уровня топлива. Что делать, если нет возможности залить рекомендуемый бензин?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF02176C162601F5724A06EB6AB02FC41801CEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778584   (70806) от 09.02.2025
+
+Делия Росси | Лёд твоих объятий (2022) [MP3, Екатерина Пермякова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда отец отправил меня в древний замок, я и представить не могла, во что выльется эта поездка. Ночь, проведённая в древнем склепе, портрет Истинного Ледяного, вечеринка в старинном стиле — думаете, это всё мелочи? Как бы не так! Оказалось, что это лишь звенья цепи, накрепко связавшей меня с человеком, имя которого было предано забвению много лет назад, а в душе (   Читать дальше...   )Жанр: любовно-фантастические романы, романтическое фэнтезиИздательство: АСТПродолжительность: 13:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CC5A8077694152DF50379B87DF179955DAF096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778739   (70805) от 09.02.2025
+
+Своя игра (09.02.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED43C780C931D082880AC49D7490BA1E89FEA74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778647   (70804) от 09.02.2025
+
+Biig Piig - 11:11 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 4AM
+02 Ponytail
+03 Cynical
+04 Favourite Girl(   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332285D177EC2A17D98D26180082EA87C96262A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778657   (70803) от 09.02.2025
+
+Inhaler - Open Wide (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70803.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Eddie In The Darkness (00:03:35)
+✧ 02 - Billy (Yeah Yeah Yeah) (00:04:05)
+✧ 03 - Your House (00:03:47)
+✧ 04 - A Question of You (00:03:42)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A43A46E05BB33BE0EE63A28D6D1A2F63055FCAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778764   (70802) от 09.02.2025
+
+Матильда Старр, Мира Славная | Спорим, ты влюбишься? (2019) [MP3, Наталия Штин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70802.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первый же день на новой работе в должности администратора я попала в передрягу: владелец нашего отеля заключил пари, связанное со мной. И теперь либо я ему подыграю, либо он останется без отеля. Правильно было бы отказаться от этой авантюры. Но мне тоже кое-что от него нужно…Жанр: остросюжетные любовные романы, современные любовные романы, юмористическая прозаИздательство: АрдисПродолжительность: 05:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC00FD37FF49F71A25667A685380B3A750EA803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778616   (70801) от 09.02.2025
+
+Дэвид Симандз | Исцеление чувств (2015) [MP3, Неизвестен]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие из нас никак не могут примириться со своими эмоциями. Эмоциональные расстройства выражаются в депрессиях, отсутствии самоуважения, болезненном стремлении к совершенству. Боль прошлого остается с нами, несмотря на то, что вызвавшие ее причины давно забыты. Доктор Симандз написал книгу, в которой органично соединились четкое библейское богословие, глубинная (   Читать дальше...   )Жанр: ПсихологияИздательство: ТриадаПродолжительность: 05:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7676670A3A18846C9F45E17DFD0618F0C4955C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778805   (70800) от 10.02.2025
+
+Шрифты - MyFonts - Arboria™ [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт назван в честь столицы планеты Монго, футуристического города с влиянием ар-деко в зданиях.
+
+Кириллица не поддерживается.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B85BA203EDBB6EB44D42F343D575CFE012BA90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778959   (70799) от 10.02.2025
+
+VA - Electro Swing Back to Old School (Jazzy Electro and Vintage Swing Reloaded) (2013) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70765.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'll Be Around [4:55]
-02. Pusherman/Superfly [7:16]
-03. Wichita Lineman [6:04]
-04. Aquarius [7:18](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 01:00:27
+01.  Réseau - Caravan (4:35)
+02.  Emsy Prank - Backside (Original Mix) (3:20)
+03.  Cristian Stolfi - Escucha la Musica (Original Mix) (6:00)
+04.  Sugarpie And The Candymen - Tell Me Boy (2:45)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 01:20:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00A294BEC18DB953DB7FFCFF812EA2C7E2A261A9
+magnet:?xt=urn:btih:EB0AC97961D020066781E66A1D2A67C42127AAD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,28 +607,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778881   (70764) от 10.02.2025
+###  Публикация: 1778915   (70798) от 10.02.2025
 
-Hal Galper And The Youngbloods - Live At The COTA Jazz Festival (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Журнал | Просто, вкусно и полезно! №2 (февраль 2025) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70764.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Speak with a Single Voice [17:42]
-02. O's Time [11:06]
-03. Goodbye [13:56]
-04. Scufflin' [14:39]Жанр: Post-BopПродолжительность: 00:57:22
+Журнал кулинарных рецептов. Все рецепты в этом журнале от читателей, они проверены ими не раз, из доступных продуктов и с простым способом приготовления. А чтобы довести их до совершенства - сделать еще вкуснее и полезнее, то тут вам помогут комментарии специалистов: шеф-повара и врача-диетолога.Жанр: КулинарияИздательство: Александр ИоффеФормат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B3BC85AB0146B23719DA585C5528668ECF886EF
+magnet:?xt=urn:btih:9DE587291CE598192C286FFB11F567128D275164
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,26 +633,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778935   (70763) от 10.02.2025
+###  Публикация: 1778686   (70797) от 10.02.2025
 
-НХЛ 2024-2025. Юта - Вашингтон Кэпиталз (09.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Роман Рябцев - Слушай воздух (2025) [MP3|320 Kbps] <Pop>
 
->>Спорт и активный отдых
->>Хоккей
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70763.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-9 февраля 2025, воскресенье. 20:30 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Митч Даннинг (Текумсе, Канада); Линейный: Либор Суханек (Стод, Чехия); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:02:14
+01 - Нажми на кнопку [00:03:25]
+02 - Странные танцы [00:05:18]
+03 - Песни ни о чём [00:04:19]
+04 - Рано или поздно [00:04:02](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52B2D6A949BD81A6A2FEDB10859F3778C5B924D5
+magnet:?xt=urn:btih:6BC2E7EA91660968316CA4012121627834051FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,26 +662,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778940   (70762) от 10.02.2025
+###  Публикация: 1778842   (70796) от 10.02.2025
 
-НХЛ 2024-2025. Питтсбург Пингвинз - Филадельфия Флайерз (08.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Журнал | Монокль №7 (1375) (10-16 февраля 2025) [PDF]
 
->>Спорт и активный отдых
->>Хоккей
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70762.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-9 февраля 2025, воскресенье. 03:00 МСК. Стадион: Уэллс Фарго-центр (Филадельфия, США), 19 280 зрителей (96% при вместимости 20 011)
-Главный судья: Морган Макфи (Канада); Главный судья: Крис Руни (Бостон, США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:27
+Деловой журнал «Монокль» – новое и старое издание одновременно. С 16 октября 2023 года его издает команда журналистов, которая в течение 28 лет делала журнал «Эксперт».
+В «Монокле» вы найдете макроэкономический анализ, прогнозы, обзоры конъюнктурных рынков и отраслей – от природного газа до изготовления манекенов, анализ финансовых рынков и новости финансовой политики (   Читать дальше...   )Жанр: Деловой журналИздательство: Александр ПопцовФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC3C165FADB046A51F43700952C656C127C48289
+magnet:?xt=urn:btih:8C7A1DBA2A4FE10149B3E02EFD5A095B0D05B487
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,166 +689,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778951   (70761) от 10.02.2025
+###  Публикация: 1778955   (70795) от 10.02.2025
 
-Его несчастная любовь / His Luckless Love (1915) WEBRip [PR]
+Шрифты - MyFonts - Revia [TTF, WOFF, WOFF2, EOT]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70761.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшая история про солидного семейного господина. Но несмотря на солидность, господин не упускает случая поволочиться за юбками. И вечно попадает в различные комичные ситуации. Качество картинки, конечно, ниже всякой критики, но фильма забавная.Производство: США / Keystone Film CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Фрэнк ГриффинАктеры: Фриц Шод, Билли Броуэлл, Вивиан Эдвардс, Сесиль Арнольд, Эдгар Кеннеди, Фрэнк ОпперманПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:12:16
+Revia — семейство шрифтов display sans serif, доступное в 6 весах. Щедро сжатое с высококонтрастными штрихами, Revia представляет собой элегантное, компактное и универсальное семейство шрифтов с высокими строчными буквами (высокая высота x). В то время как более тонкие веса полагаются на элегантность, более толстые — темнее, особенно черный, который выглядит как (   Читать дальше...   )Формат: TTF, WOFF, WOFF2, EOT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2C5F67493EF3E98B128896AFA177E6FFD6C6E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778873   (70760) от 10.02.2025
-
-John Bunch Trio - Love Songs (1997) 2001, LRC [FLAC|Lossless|tracks + .cue] <Mainstream jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody Else Has Taken My Place [4:06]
-02. I'll Get By [3:13]
-03. Do Nothin' Till You Hear From Me [4:40]
-04. We'll Meet Again [3:54](   Читать дальше...   )Жанр: Mainstream jazz, Piano JazzПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DA3B6F5FB8696CA5971B4E53D2A9A2A616BFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779127   (70759) от 11.02.2025
-
-Футбол. Чемпионат Испании 2024/25. Ла Лига 23-тур. Реал Сосьедад - Эспаньол (09.02.2025) IPTVRip [H.264]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70759.jpg" />
-</div>
-
-
-###  Подробнее
-
-В матче 23-го тура чемпионата Испании сойдутся лицом к лицу игроки «Реал Сосьедада» и «Эспаньола». «Реал Сосьедад» в этом сезоне показывает средний уровень игры. В трех последних матчах команда уступила противникам. А «Эспаньол» располагается на 17-й строчке, но они недавно смогли переиграть «Реал» Мадрид.
-Реал Сосьедад (Сан-Себастьян) - Эспаньол (Барселона)
-Стадион: (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0638B2339E2C49F374EFA0DB4B1AAE46105BC29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779073   (70758) от 11.02.2025
-
-Dave Stryker Organ Trio - One For Reedus (2008) 2010, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pure Imagination [6:33]
-02. Burn for Ern [7:45]
-03. One for Reedus [7:12]
-04. Alone Again (Naturally) [7:18](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680A8CAD26A719DD43E106D939CAD91CFB082B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779071   (70757) от 11.02.2025
-
-Sivuca & Guitars Unlimited - Let's Vamos (1987) Sonet Records [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coisa No 10 [4:09]
-02. Vassourinhas [3:08]
-03. Chorinho p'ra Ele [2:24]
-04. Trem Caipira [3:31](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA5320141245E70F9AE9746F1ADA58558D7ADB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778914   (70756) от 11.02.2025
-
-Футбол. Winline Зимний Кубок РПЛ. Группа А. Динамо (Москва) - Спартак (Москва) (07.02.2025) IPTVRip [H.264]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70756.jpg" />
-</div>
-
-
-###  Подробнее
-
-За последние пару лет Динамовцы были сильнее только один раз: в октябре 2023-го, на групповом этапе Кубка России, когда Спартак досрочно обеспечил себе первое место и не имел турнирной мотивации. У Динамо ужасные результаты в матчах со Спартаком. Есть риск, что тенденция перенесётся и на товарищеские игры. Однако, в отличие от РПЛ, на сборах Спартак чаще ошибается (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболПродолжительность: 02:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C6FC03ADCC621DBFE345379F7E65468EAB0E61
+magnet:?xt=urn:btih:A34A34996E9E3B9E952F0B774DA580B9B11D4131
 ```
 
 https://mybot314.ru/tekegram_catalog/

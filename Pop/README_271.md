@@ -1,3 +1,64 @@
+###  Публикация: 1643434   (232655) от 01.07.2023
+
+Sam Brown - The A&M Years 1988-1990 (2016) 4 x CD, Compilation, Remastered, Caroline International [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Samanhta Brown (7.10.964) - английская певица и автор песен. Ее родители - Joe Brown и Vicki Brown, к моменту рождения дочери, были уже известными фигурами на британской музыкальной сцене, поэтому, видимо, неизбежным стало то, что Samanhta последовала по их стопам. Первой студийной записью, которая принесла Sam первый гонорар, стали ее подпевки на альбоме In The (   Читать дальше...   )CD1 - Stop!:
+01. Walking Back to Me (3:43)
+02. Your Love Is All (4:09)
+03. Stop! (4:56)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 05:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9F82EC790CE3E88C9F21FF42E8333455B37BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635283   (232465) от 25.05.2023
+
+Tina Turner - Foreign Affair (Deluxe) (1989) 2021, Remaster [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_232465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steamy Windows (2021 Remaster) (4:06)
+02. The Best (2021 Remaster) (5:30)
+03. You Know Who (Is Doing You Know What) (2021 Remaster) (3:48)
+04. Undercover Agent for the Blues (2021 Remaster) (5:20)(   Читать дальше...   )Жанр: PopПродолжительность: CD1: - 00:52:39
+CD2: - 01:26:12
+CD3: - 00:47:25
+CD4: - 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63EBD0D2986D6BCE1E2F9D6E68F73FDFC33B6C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635604   (232450) от 26.05.2023
 
 Sparks - The Girl Is Crying In Her Latte (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
@@ -692,64 +753,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A935C34B67D2FDC538ABC5A898C1822E839D09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268180   (229993) от 09.12.2018
-
-Beth Adams - Always Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229993.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Always Christmas
-2. The First Noel
-3. Coventry Carol / What Child Is This?
-4. Silent Night(   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 00:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F3EA801A9DC0A3E08ECCA109C7744B79818A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268076   (229812) от 09.12.2018
-
-VA - Pop Music from the 00s (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travie McCoy - We'll Be Alright
-02. All Saints - Pure Shores
-03. CeeLo Green - F**K You
-04. Eliza Doolittle - Pack Up(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0541750C0F18ABA1D8F9CDCBC7F948A2CD3D81BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

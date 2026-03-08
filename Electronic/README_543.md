@@ -1,3 +1,61 @@
+###  Публикация: 1811809   (8264) от 12.08.2025
+
+VA - 25 Years Of Anjuna Mixed By HANA (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nox Vahn & Marsh - Come Together (Extended Mix) [8:07]
+02. The Dualz - Your Eyes (Extended Mix) [6:16]
+03. 16BL - Beat Organ (Original Mix) [6:24]
+04. Joseph Ray - Cos Of You (Original Mix) [6:14](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C1EDCA114E182B8CC7486CFD116A30878FC851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812152   (8061) от 13.08.2025
+
+VA - Trance Essentials 2025, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jnsl - Blueshift 05:47
+02. Sam Vance - Purple Monkey Dishwasher 04:59
+03. Pure Oxide - No More Lies 04:02
+04. Xidosmusic - The Darkside 05:33(   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2621961FCE1BBBB9C1DF04133C0E23871A6643E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812044   (8011) от 13.08.2025
 
 DJ T. - Rising (2005) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Acid>
@@ -685,64 +743,6 @@ VA - A State Of Trance, Ibiza 2025 (Mixed by Armin van Buuren) (2025) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F73904D4DA7B8982996FA6C058AA17E0A1D8A0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813963   (6420) от 22.08.2025
-
-VA - Summer Is Calling - Summer Is Calling, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Is Calling & Felix Leiter - Be Free (Extended Mix) 03:55
-02. Summer Is Calling, Audien & M.Bronx - Leaving You (Extended Mix) 04:08
-03. Summer Is Calling, Nadia Ali & IRO - Almost Home (Extended Mix) 04:55
-04. Summer Is Calling & Karen Overton - Your Loving Arms (Extended Mix) 04:04(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7000E757448400F62DCD6F8B345F236F4D5AD318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813941   (6419) от 22.08.2025
-
-VA - Ori Uplift - Uplifting Only Episode 654 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocoro – Jikimi (Intro Mix)
-02. DreamLife & Aleksey Gunichev – Autumn Meeting (Orchestral Uplifting Classic)
-03. Ciaran McAuley & Sean Tyas & Clara Yates – Runaway (Fan Favorite (653))
-04. New World & Geert Huinink – Empyrean (Breakdown Of The Week)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6E1D5E89F7567EB1A0B08020ED3F6A62696947
 ```
 
 https://mybot314.ru/tekegram_catalog/

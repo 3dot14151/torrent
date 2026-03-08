@@ -1,3 +1,32 @@
+###  Публикация: 1229933   (620970) от 09.06.2018
+
+Andre Hodeir - Essais Par Le Jazz Groupe De Paris (1949 - 1954) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cross Criss [4:01]
+02. Paraphrase Sur Saint-Tropez [4:22]
+03. On A Standard [3:44]
+04. Esquisse I [2:39](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1341D26AC1BCC851E27501CC184F9A23BA937C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295392   (620772) от 12.04.2019
 
 Anthony Wilson - Campo Belo (2010) Goat Hill Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
@@ -716,35 +745,6 @@ The Modern Jazz Quartet - Fontessa - The Little Comedy (1960) Remaster, 1996, Gi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AE6CA128824C7A1C962C284E3EF5385BC6B75B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145894   (618225) от 27.06.2017
-
-Rita Reys - The Real… Rita Reys (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Summertime
-02. Raindrops Keep Fallin' On My Head
-03. The Windmills Of Your Mind(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 03:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6304E1128B9C815E70621C44412F2B7AD9DB15D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

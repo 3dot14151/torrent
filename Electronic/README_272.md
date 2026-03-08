@@ -1,3 +1,58 @@
+###  Публикация: 1050893   (535127) от 10.09.2016
+
+Housework - Follow The Groove (2016) [MP3|320 Kbps] <Funky House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Housework - I Believe (Second Mix) 05:17
+02. Housework - First Time (Beginner Mix) 06:36
+03. Housework - If You Lonely (Lost Souls Mix) 07:02
+04. Housework - Partyline (Glitter And Space Mix) 07:17(   Читать дальше...   )Жанр: Funky House, Club HouseПродолжительность: 04:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F910ADE7B73BE4A8810988F740D8813A175AD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312387   (534299) от 03.07.2019
+
+VA - Radio Gladiators, Vol. 2 (2019) [MP3|320 Kbps] <Melodic House & Techno, Dance, House, Deep House, Big Room, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ipanov – Greece 2000Жанр: Melodic House & Techno, Dance, House, Deep House, Big Room, Future HouseПродолжительность: 01:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80AD114F5B4C6F77352F772F262B523D0BA1C820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312345   (534295) от 03.07.2019
 
 VA - Meditation Music for Inner Peace Vol.4 (Beautiful Ambient and Chillout Music) (2019) [MP3|320 Kbps] <Ambient, Chillout, New Age>
@@ -683,64 +738,6 @@ VA - Armada Today - Ibiza 2022 [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A25C5CF6D72012A6838B329656E7B62768754E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155646   (531682) от 04.08.2017
-
-VA - FSOE pres. Ibiza (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aly & Fila - Beyond The Lights (Original Mix)  3:53
-02.  Dan Stone & Ferry Tayle - Vona (Original Mix)  3:54
-03.  The Thrillseekers feat. Katherine Amy - I Gotta Let You Know (Original Mix)  2:34
-04.  James Dymond - Carry Me Away (Original Mix)  3:25(   Читать дальше...   )Жанр: TranceПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1993AA073B4172B72AE0643023AA9E645308902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155689   (531678) от 04.08.2017
-
-VA - Ori Uplift - Uplifting Only 234 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PRE-RELEASE PICK: InnerSync - Fairies from the Magic Forest (EXCLUSIVE PREMIERE)
-02. Sunsitive feat. Angel Falls - Summer Love (Derek Palmer Remix)
-03. Aurosonic & Sue McLaren - Captured By Gravity (Omar Sherif Extended Mix)
-04. Bryan Kearney & Plumb - All Over Again (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8903C5C9B2F4E8FF403137C97E6E6A92536573
 ```
 
 https://mybot314.ru/tekegram_catalog/

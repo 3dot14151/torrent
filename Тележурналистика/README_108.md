@@ -1,3 +1,55 @@
+###  Публикация: 1803350   (13776) от 22.06.2025
+
+«Титан»: Трагичная судьба OceanGate / Titan: The OceanGate Disaster (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [MVO]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13776.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2023 году батискаф «Титан» компании OceanGate потерпел крушение при погружении к «Титанику». Фильм раскрывает, как амбициозная идея обернулась катастрофой.Производство: США / Diamond Docs, Story Syndicate, NetflixЖанр: документальныйРежиссер: Марк МонроУчастники: Stockton Rush, Emily Hammermeister, David Lochridge, Tony Nissen, Sidonie Nargeolet, Jason Neubauer, Джозеф Асси, Rob McCallum, Bonnie Carl, Mark HarrisПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: русские, украинские, английские (forced, full, SDH)Продолжительность: 01:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB29279636A6B24FDECF59606B30622CEB908B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803669   (13595) от 24.06.2025
+
+«Титан»: Трагичная судьба OceanGate / Titan: The OceanGate Disaster (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13595.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2023 году батискаф «Титан» компании OceanGate потерпел крушение при погружении к «Титанику». Фильм раскрывает, как амбициозная идея обернулась катастрофой.Производство: США / Diamond Docs, Story Syndicate, NetflixЖанр: документальныйРежиссер: Марк МонроУчастники: Stockton Rush, Emily Hammermeister, David Lochridge, Tony Nissen, Sidonie Nargeolet, Jason Neubauer, Джозеф Асси, Rob McCallum, Bonnie Carl, Mark HarrisПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английские, немецкие и др.Продолжительность: 01:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291385913C769A149FE25A7F7E8FA8214C3C64C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804314   (13161) от 28.06.2025
 
 Следствие вели... (28.06.2025) WEBRip [H.264/1080p]

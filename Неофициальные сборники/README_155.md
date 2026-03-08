@@ -1,3 +1,177 @@
+###  Публикация: 1009213   (811487) от 20.04.2016
+
+VA - The Best World Ballads - 29 (2016) [MP3|320 кб/с] <Pop, Rock, Blues, Rap, R'n'B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811487.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Sia-House On Fire 4:01
+002 Gavin DeGraw-Soldier 3:31
+003 The Hardkiss-Helpless 3:37
+004 Ronan Keating-Grow Old With Me 4:18(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 16:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE87620548BF826C8F1EEE6A9D145EDE522C28B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118499   (811486) от 26.03.2017
+
+VA - Лирика Весны: Авторская Песня (2017) [MP3|256 Kbps] <Шансон, Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811486.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дмитрий Кубасов - Не Вернуть 03:24
+002. Олеся Гришина - Метель 04:43
+003. Александр Малинин & Елена Ваенга - Две Души 03:39
+004. Лариса Гордьера - Родной Человек 04:18(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 09:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7476E5B5C2643DCF69C0A1AD64E8A3B192D02AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118875   (811485) от 26.03.2017
+
+VA - Hits Cocktail vol.4 (2017) [MP3|192-320 Kbps] <Dance , Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thimlife Feat. BibianeZ - Home (CandyCrash & Black Due Bootleg)
+02. Lizot Feat. Emelie Cyreus - On The Top
+03. Kungs Feat. Ephemerals - I Feel So Bad
+04. Sick Individuals & Holl & Rush - Helix (Extended Mix)(   Читать дальше...   )Жанр: Dance , ClubПродолжительность: 06:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529D0B7BE1AB47F349E6AC78A01D4539F9AAD225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118262   (811480) от 26.03.2017
+
+VA - Кафе-шантан. Академия хитов шансона (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811480.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ольга Стельмах - Кафе шантан
+002. Евгения Шишова - Стали чужими
+003. Аркадий Северный - Вернется Снова Счастье К Нам
+004. Добролевский Игорь - Не зови(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623EF1BD22701FBE9ED9A58A8FA6BD389563D05F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118681   (811476) от 26.03.2017
+
+VA - Весна В Эфире: Популярный Русский Хит (2017) [MP3|256-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811476.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Artik & Asti - Неделимы 03:27
+002. K.Stelmah - Не Вернусь 03:06
+003. Lana B & Efiel - Испания 04:03
+004. Ro-Dion - Закрываю Глаза 03:31(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95CD69E03F948D930B0119509A2FC6A175058152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118773   (811370) от 26.03.2017
+
+VA - Record Super Chart #480 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  3:20
+02.  Estradarada - Вите Надо Выйти (Misha Klein Remix)  4:18
+03.  Consoul Trainin - Take Me To Infinity (Amice Remix)  4:44
+04.  Klaas - Riot (Extended Mix)  4:00(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456A148EEDB59799C68382CEB2061C18F90BAC71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118826   (811366) от 26.03.2017
 
 VA - Зажигательный Eurodance Vol.2 (2017) [MP3|192-320 Kbps] <Eurodance>
@@ -571,180 +745,6 @@ VA - German Top 100 Single Charts 15.05.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB97FD928AE58038227AA8465A6A85D4EAA92D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198068   (810117) от 10.01.2018
-
-VA - New Italo Disco: Greatest Hits & Remix (2017) [MP3|320 Kbps] <Disco, Italo Disco, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810117.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Italove - We Don't Care
-002. Emy Care - Once in a Lifetime (Radio Mix)
-003. Limelight - Falling in Love (Radio Beach Club Remix)
-004. Mr.Zivago - Tell By Your Eyes (Den Airy disco remix)(   Читать дальше...   )Жанр: Disco, Italo Disco, RemixПродолжительность: 10:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BFD6C992F6205ADB6584F071680540F1C3CBAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197947   (810103) от 10.01.2018
-
-VA - Best Chillout vol.35 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810103.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.108 Music - On My Way Home (Original mix)
-002.3 Doors Down - Here Without You (DJ V1t & DJ Johnny Clash feat. Syntheticsax Remix)
-003.6LACK - One Way (feat. T-Pain) (Original mix)
-004.al l bo - Angel Of Music (Whitewildbear Instrumental Remix)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 08:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F7442ACB22F8DB2569663E3CAD042B3192FF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383494   (810096) от 16.05.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 15.05.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SAINt JHN - Roses (Imanbek Remix) 2:56
-02. The Weeknd - Blinding Lights 3:22
-03. Little Big - UNO 2:41
-04. NRD1 - All Good Things (Come To An End) 3:27(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494589D393B29249E19D75FCF06F3983C64E35AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009394   (810035) от 21.04.2016
-
-VA - 100 Пудовые хиты 2 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810035.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Akon - Holiday
-002. Виктория Ланевская - Начать С Нуля
-003. Willy William - Te Quiero
-004. Misty & Aslan - Мой Герой(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76376AE8D622610DE995D971C39407C19D1C15BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198168   (809987) от 10.01.2018
-
-VA - Female Soul RnB: Mastermix December (2017) [MP3|320 Kbps] <RnB, Hip Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joslyn - Circle
-02. Rosie Gaines - It's Been a Long Time
-03. Beverlei Brown - Dedicate
-04. Lulu - Restless Moods(   Читать дальше...   )Жанр: RnB, Hip SoulПродолжительность: 03:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558812632FD879BBFA02481A671B401D29D8E104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198284   (809967) от 10.01.2018
-
-VA - The World of Enigmatic Melody vol. 3 (2018) [MP3|320 Kbps] <Enigmatic, New Age, Electronic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexey Medvedev - Sentir el Color (6:52)
-02. Ailo - Avaton (6:39)
-03. Heilung - Krigsgaldr (10:14)
-04. Chanting Stones - Firelight Ceremony (7:54)(   Читать дальше...   )Жанр: Enigmatic, New Age, ElectronicПродолжительность: 03:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C47C66658A72A539B78EAD78E5712B957BCA26E
 ```
 
 https://mybot314.ru/tekegram_catalog/

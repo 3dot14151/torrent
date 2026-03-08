@@ -1,3 +1,61 @@
+###  Публикация: 1798887   (17098) от 24.05.2025
+
+VA - Dance Pop Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Paul Feat. Dua Lipa - No Lie (03:41)
+02. Katy Perry - Firework (03:47)
+03. Spice Girls - Wannabe (02:53)
+04. Baby Queen - Buzzkill (03:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4031B61A180E44D2CB9EAAC2427816932299449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810676   (17058) от 05.08.2025
+
+Crystal Ice - In My Fantasy World (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_17058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make a Memory (4:40)
+02. You and Me (3:23)
+03. Lonely Rebel (3:58)
+04. All That I Need (4:09)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7485857C6C980039632527A12E0FB89FA0B0BD45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799248   (16855) от 26.05.2025
 
 Леонид Агутин - Н.В.Л. (2025) Deluxe Version [MP3|320 Kbps] <Pop>
@@ -685,64 +743,6 @@ VA - Some Great 90s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DB00A67CA451A8808BB3670007D3C4A46892883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802918   (14008) от 20.06.2025
-
-V.A. - ZYX Italo Disco Spacesynth Collection 11 (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Spacesynth, Synthwave>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserdance - Astroventure
-02. Spacehawk - Star Chaser
-03. Italo Emotion - Back To Life (Primero Remix) 
-04. Kebu - Fourth Rendez-Vous(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthwaveПродолжительность: 02:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83300A99AFFD31090523C58DC1596CD3D26E4DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802856   (13980) от 20.06.2025
-
-Людмила Сенчина - Камушки и другие песни (1981) [MP3|320 Kbps] <Советская эстрада>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Дети спят [00:02:46]
-02 - Черёмуха [00:03:58]
-03 - Шутка [00:02:34]
-04 - Полынь [00:02:29](   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A77EA4822936CB1E9560E4AE72A5482769798F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

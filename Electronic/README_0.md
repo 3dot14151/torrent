@@ -1,3 +1,61 @@
+###  Публикация: 1856277   (1058943) от 27.02.2026
+
+VA - Ori Uplift - Uplifting Only Episode 681 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ReOrder & Breakevin – Struggle for pleasure
+02. Manuel Rocca & NELLY TGM – Love Is In The Air (Pre-release Pick)
+03. SoundLift – Horizonte (Andy Blueman Remix) (Orchestral Uplifting Classic)
+04. Ciaran McAuley & Deirdre McLaughlin – Why Do We Hide (Fan Favorite (675))(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DCB763452631C8D08497B35FC4C78013A94E17D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856354   (1058931) от 27.02.2026
+
+VA - The Orient Collective: Organic Rituals (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Slick - Astral Illusion (7:18)
+02. Michael Simon - Umami (6:45)
+03. Indiano - Astral (8:04)
+04. Tibetania - Magic Amulet (5:11)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BFAB8E8DC9AC236E81A2A967DD9FE1339BEB98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856268   (1058929) от 27.02.2026
 
 VA - Armin van Buuren - A State Of Trance 1266 (UNFILTERED, NOW&WOW, Netherlands) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -684,64 +742,6 @@ VA - February Afro House Essentials (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:389C54CFE13514CFBC0E221EC5741CA2FB1DD794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855056   (1057906) от 22.02.2026
-
-Decoside - Reload (2012) 2CD [FLAC|Lossless|tracks + .cue] <Techno, Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disorder 8:10
-02. Reload 1 7:05
-03. Reload 2 8:28
-04. Reload 3 6:51(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 02:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3977F8E3BBFD329E1625350DB1A19B0EB51275B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854939   (1057893) от 20.02.2026
-
-Spacehawk - Destination Moon (2026) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Explorer (4:32)
-02. Man Machine (5:39)
-03. Star Chaser (5:16)
-04. Destination Moon (5:37)(   Читать дальше...   )Жанр: Spacesynth, SpacedanceПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:214D56CA5C07B2E11291F0ACBED10ED718C003F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

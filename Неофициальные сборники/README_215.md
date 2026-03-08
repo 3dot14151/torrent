@@ -1,3 +1,177 @@
+###  Публикация: 1522855   (755184) от 09.01.2022
+
+VA - The Winter Pop Kaleidoscope (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию зимний калейдоскоп популярной музыки. Сборник содержит популярные произведения классических и эстрадных жанров в адаптированном поп-изложении. Представленные артисты очень разные личности, но все они очень талантливые и одинаково влюблены в музыку и просто обожают свое дело.001. Benr - Geworden Wie Ik Ben
+002. Priscilla - Keep It For Tonight
+003. DJ Dean - Going Nowhere Reloaded
+004. Eklypt - My Way Out(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F867AF58BE9955598C0EED357E380116117FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522879   (755167) от 09.01.2022
+
+Karen Cheryl - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liars Beware
+02. Pense А Moi, Quand Meme
+03. Sing to Me Mama
+04. Tchoo Tchoo Hold on the Line(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9C5DD066AA39B46BF4B340170DDF9EB728F810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522880   (755154) от 09.01.2022
+
+VA - German Top 100 Single Charts 07.01.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GAYLE - abcdefu
+02. Pajel - 10von10
+03. Acraze - Do It To It (feat. Cherish)
+04. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA52CB03A2ABEAB13CB106F2C54AA50A79815925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522891   (755060) от 09.01.2022
+
+Dancing Fantasy - Compilation (2020) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icedrift
+02. Malibu
+03. California Girls
+04. Dancing on a Summernight with YouЖанр: InstrumentalПродолжительность: 03:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B7B4098750D67A7D502B9F068145FC7B20AAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522857   (754939) от 09.01.2022
+
+VA - E-Dance Tech House: Club Trendy Session (2022) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый трек в этом плейлисте имеет нечто особенное. Эти записи пробуждают очень много прекрасных чувств и воспоминаний, и я надеюсь, что то же самое произойдёт и с Вами.001. Eserex - Tricks & Sticks
+002. Danil Gurov & Broska - Hotta
+003. Paul Parsons - Dog Days
+004. Defunkt Hau5 - Poison(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 09:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C4868747CCE7B1CE57D50482CA7AFA6DB4582A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215871   (754853) от 28.03.2018
+
+VA - The Seven Sense (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754853.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Florito - Konja Tokyo De
+002. Sean Hayman - So Beautiful (Skyscraper Cut)
+003. Blue Side - Final Word
+004. Dreamscape - Nautica (Ambient Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4F43AEE4E381A76F9202E62F302970152C88B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281022   (754696) от 06.02.2019
 
 Natune - Obsession (2018) Army Of Lovers Cover Remix [MP3|192 Kbps] <Club, Dance>
@@ -568,181 +742,6 @@ VA - Rock & Metal Collection от ALEXnROCK часть 6 (2018) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31E49B5367CDC8906AE09F95A92235ADEEAF0555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019262   (752345) от 22.05.2016
-
-VA - Trance Anthems 6 (2016) [MP3|320 кб/с] <Trance, Melodic, Harmonic, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wearealienss - Polar (Radio Cut) 3:08
-02. Tranc Eye - Two Different Worlds (Space Raven Radio Cut) 3:24
-03. Dereck Recay - Dream Way 2015 (DJ T.h. in Love Radio Cut) 3:24
-04. Rene Ablaze & Ian Buff And DJ T.H. - 10 Years (Nolita Remix Edit) 3:16(   Читать дальше...   )Жанр: Trance, Melodic, Harmonic, ProgressiveПродолжительность: 02:23:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2A5F58045CE094B6FD8D09B3DCF0221F29C5EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017090   (752343) от 22.05.2016
-
-Авраам Руссо - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2016) [MP3|128 кб/с] <Поп, Интервью>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752343.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Авраам Руссо - Не Моя
-2. Авраам Руссо и Иванна - Через Любовь
-3. Авраам Руссо - Песня о России
-4. Авраам Руссо и Мими - Бомба(   Читать дальше...   )Жанр: Поп, ИнтервьюПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A82A0397783F3FEFC9A1598A0EE152393F0001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019276   (752332) от 22.05.2016
-
-VA - Cosmic Machine (2013) [MP3|320 кб/с] <Electronic, Experimental, Synth-pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный сборник  "A Voyage Across French Cosmic & Electronic Avantgarde (70-80)" или "Путешествие по Франции в космическо-электронном Авангарде (70-80)".
-Первая часть проекта.01. Patrick Juvet - Le Reve   (1:39)
-02. Didier Marouani - Temps X   (5:07)
-03. Droids - Shanti Dance Pt1 & Pt2   (6:28)
-04. Francois De Roubaix - Survol   (1:31)(   Читать дальше...   )Жанр: Electronic, Experimental, Synth-popПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C10853AF061561C8817E60CFCA91807E0684ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018999   (752331) от 22.05.2016
-
-VA - Sun Revelation: Relax Edition (2016) [MP3|320 кб/с] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752331.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gjc - On the Floor - Chill Version
-002. Sun & Sadness - On a Beach - Sexy Sunset del Mar Mix
-003. Jarome Adam - Apue (Chilling Mix)
-004. Amy More - Brighton Beach Dreams(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 08:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF7AFCB036FC71A528D41B32292EBD2065C908F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019025   (752328) от 22.05.2016
-
-VA - Electroshock Vol. 07 (2016) [MP3|320 кб/с] <House, Electro House, Trance, Electrorock>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VNV Nation - Lost Horizon 5:17
-02. Solitary Experiments - Delight 4:49
-03. SITD - Purgatorium 5:54
-04. Nachtmahr - Tanzt Fur Mich 4:34(   Читать дальше...   )Жанр: House, Electro House, Trance, ElectrorockПродолжительность: 03:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18EA39CAC6EBEAA46C640E1DDECFB67CFE33422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019358   (752265) от 22.05.2016
-
-VA - Trance 100 Symmetry Nostalgic (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752265.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Markus Schulz Ft Lady V - Erase You (Omair Mirza Remix) 6:08
-002. Arman Dinarvand & Bager - Hope (Astuni Re-Lift) 6:51
-003. Chris Schweizer - Scorpion (Extended Mix) 5:55
-004. Ben Gold - Im In A State Of Trance (Asot 750 Anthem) (Extended Mix) 7:44(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 11:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5057FD9C67377E6BCF404C5397660545EF0D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

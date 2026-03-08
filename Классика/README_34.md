@@ -1,3 +1,32 @@
+###  Публикация: 1412734   (413617) от 01.10.2020
+
+Dirk Maassen - An Evening at Wilhelmsburg (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, New Age>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viva (4:25)
+ 02. Peace of Mind (3:50)
+ 03. Fjara (Solo Piano Version) (3:30)
+ 04. La Mer (5:55)(   Читать дальше...   )Жанр: Modern Classical, Piano, New AgeПродолжительность: 00:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7120B81508AD4E6C9658C848A4468155946B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251806   (413353) от 03.10.2018
 
 Annabel Parker - The New Classics (1994) A Tom Parker Project [FLAC|Lossless|image + .cue] <Neo-Classical, Pop, Classical>
@@ -744,34 +773,6 @@ Mozart, Beethoven, Schumann, Schubert, Grieg - Piano Concertos: Svjatoslav Richt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:830FFE0C9B0D0BA2F60CC255BC2586F94D54882E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566870   (394862) от 31.10.2012
-
-Giuseppe Verdi - La Forza del destino (1986) 3CD [FLAC|Lossless]<Classical, Romantic Period, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Romantic Period, OperaПродолжительность: 01:03:51 - CD1
-01:06:19 - CD2
-00:33:44 - CD3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D19348A8E80AB079D586D72EE20EA95084191F
 ```
 
 https://mybot314.ru/tekegram_catalog/

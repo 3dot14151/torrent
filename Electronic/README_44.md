@@ -1,3 +1,60 @@
+###  Публикация: 1382416   (1009978) от 21.06.2021
+
+Insect O. - Collection 20 Releases (1999-2021) Etui Records, Primary [colours] [FLAC|Lossless|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icebergs (05:53)
+ 02. Unrush (07:38)
+ 03. Coiba (05:37)Тип издания: Web, VinylЖанр: Dub Techno, Ambient, Techno •Продолжительность: 05:20:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DE0F740AD22F212F599372F86720C173FFA94F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479139   (1009867) от 22.06.2021
+
+Absis - Found Ritual (2021) Hivern Discs [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Around (07:59)
+ 02. Break Through Fear (08:23)
+ 03. Search And Find (07:12)
+ 04. Running Up Hill (06:09)(   Читать дальше...   )Жанр: Techno, AcidПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0663B7D4F91C953BBBA3556A1FEE12D675C86834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479201   (1009852) от 22.06.2021
 
 Vivian Koch - Discography 3 Releases (2019-2021) OMNIDISC, AD 93, a.r.t.less [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, Ambient>
@@ -680,64 +737,6 @@ Balmorhea - The Wind (2021) [FLAC|Lossless|tracks + .cue] <Modern Classical, Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7BD86A46FCA02D0F800A92CEA3CE8C4953B667A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480223   (1009180) от 27.06.2021
-
-VA - Summer In Space Vol. 4 (2021) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlab - Bionic Mind (6:48)
-02. Mind Vision - Cosmic Rain (6:01)
-03. Atomic Space Orchestra - Space Envoy (5:51)
-04. Rama - The Sea Of Tranquility (4:56)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9473A9784F9EEED3FA4C04140D21D0D79BBC53E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480085   (1009169) от 27.06.2021
-
-VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Psybient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Nonstatic - Dreamscapes (07:26)
- 02. Misled Convoy - Fire On The Mountain (06:18)
- 03. Nigel Mullaney - Lost At Sea (06:44)
- 04. Akuratyde - Rouge (05:12)(   Читать дальше...   )Жанр: Ambient, IDM, Psybient, DowntempoПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32EABF42CE53167F2393C4363DC0F8F24207913
 ```
 
 https://mybot314.ru/tekegram_catalog/

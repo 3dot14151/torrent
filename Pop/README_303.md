@@ -1,3 +1,61 @@
+###  Публикация: 652635   (160940) от 05.11.2023
+
+Георгий Виноградов - Король пронзительного танго (2008) [FLAC|Lossless]<Pop, Романсы , Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160940.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Счастье моё (Е. Розенфельд – Г. Намлегин) – 2:37
+2. Весенний вальс (М. Блантер – Б. Яковлев) – 2:57
+3. Зачем, танго (Э. Рознер – Ю. Цейтлин) – 2:31
+4. На полянке, вальс (А. Гаррис – Ю. Цейтлин) – 3:09(   Читать дальше...   )Жанр: Pop, Романсы , RetroПродолжительность: 02:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D2131B7241F47CB9D4F5CB7DBD0787BA9851B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659346   (160939) от 05.11.2023
+
+VA - " Золотой фонд эстрады " - Главное, ребята, сердцем не стареть (1995) [FLAC|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. М. Бернес - Я работаю волшебником (3:15)
+02. Р. Неменова - Текстильный городок (2:47)
+03. Э. Хиль - Как провожают пароходы (3:12)
+04. О. Анофриев - Песня (из к/ф ''Там, где кончается асфальт'') (3:02)(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B3F717D673D0DEE400C260129BBF3249201831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454433   (160935) от 05.11.2023
 
 Евгений Мартынов - Я Тебе Весь Мир Подарю (2001) [FLAC|Lossless|image + .cue] <Pop>
@@ -696,64 +754,6 @@ VA - The Very Best of Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DF68F9A07EA2A44B5ED2A1CDCAECA351A429F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675022   (160263) от 09.11.2023
-
-VA - Hit News Vol. 10 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Bobo - Let Yourself Be Free
-02. 2 Unlimited - The Real Thing
-03. 2 Brothers On The 4th Floor - Dreams
-04. Black Label - Givin' You My Love(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11FF66FE76F167D4E775E47C0654ED6E85D52D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599264   (160070) от 22.12.2022
-
-VA - THE BEST OF EFFECTIVE RECORDS 2022 (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160070.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Imanbek/BYOR - Belly Dancer
-2. Антон Токарев - Седьмой лепесток
-3. GaoDagamo/Nesvyat/Miyagi - На уверенном
-4. RASA - ПОГУДИМ(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182F22F51E3684D57A4BBB3B104EF52DA0A77D2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

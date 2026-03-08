@@ -1,3 +1,61 @@
+###  Публикация: 1120995   (801189) от 01.04.2017
+
+Чи-Ли - В голове ветер (2015) [APE|Lossless|WEB|tracks] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А потому
+02. Северный ветер
+03. Ангел на моём плече
+04. Аргентина(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552883CDBA64B180B64A649187946D2496C7807B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121211   (801186) от 01.04.2017
+
+VA - Italo Disco - The Lost Legends Vol. 1 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801186.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ryan Paris – Besoin D'amour (04:49)
+2. Toys For Boys – Your Body, Your Feeling (04:24)
+3. Regina – Mira Me (06:23)
+4. Gatsby – Love Sign (05:41)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D92DB417C9ED58DE2E8CA830EE0E83646BAC20D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120882   (801179) от 01.04.2017
 
 VA - 90s Festivals Soundtrack 2017 (Special Eurodance Edition) (2017) [MP3|320 Kbps] <Eurodance>
@@ -687,64 +745,6 @@ VA - Italo Disco: The Lost Legends Vol.12 (2017) [MP3|320 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FF230778EDD5C068FFBD14E9224AF094A5A7DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199540   (800366) от 17.01.2018
-
-VA - Italo Disco: The Lost Legends Vol.13 (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anthony's Games  -  Hey, Hey, Girl  5:57
-02.  Italian Boys  -  Gigolo (Remix)  4:52
-03.  Joli Band  -  Paradiso  5:37
-04.  Max Coveri  -  In The Night  7:10(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D217A349935CBF0F7708F7E5B37EE131FA44735B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199813   (800364) от 17.01.2018
-
-Charlotte Gainsbourg - 5:55 (2007) US Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5:55 (4:52)
- 02. AF607105 (4:30)
- 03. The Operation (3:59)
- 04. Tel Que Tu Es (3:10)(   Читать дальше...   )Жанр: Indie Pop, French Pop-RockПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6C97FBEEAC1208A81D219CEC7D7625D419DC98
 ```
 
 https://mybot314.ru/tekegram_catalog/

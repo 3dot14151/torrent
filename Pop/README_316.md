@@ -1,3 +1,61 @@
+###  Публикация: 1681080   (133513) от 01.12.2023
+
+Daisy Jones & The Six - AURORA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora (3:25)
+02. Let Me Down Easy (3:24)
+03. Kill You To Try (5:12)
+04. Two Against Three (3:53)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCE8DF1BB36F62D15493A5F080BD80CDD4A3599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680956   (133350) от 01.12.2023
+
+Fancy - Viva La Vida (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viva La Vida (Radio Edit)
+02. My Heart Is Cold As Ice
+03. Feel The Heat
+04. Brothers & Sisters(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED177C699D52E1F3CF25EF5D009D43D48486ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681242   (132967) от 02.12.2023
 
 VA - 1993% ХИТОВ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -710,64 +768,6 @@ James Morrison - The Awakening (2011) [MP3|320 кб/с]<Soul, Adult Contemporary
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA3543B3BE5AEF7C0BB4B4E48166E92B75759079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525560   (129598) от 20.01.2022
-
-Ozo - 4 Albums (1976-1982) LP Collection [MP3|320 Kbps] <Electronic, Reggae, Dub, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ozo были уникальной многонациональной группой музыкантов, полностью преданных своей музыке и тому посланию, которое они передают. Музыкальное направление Оза находилось под влиянием вест-индийского регги в аранжировках диско ритмов в сочетании с концепцией буддизма.Список альбомов:
-1976 - Listen To The Buddha
-1978 - Museum Of Mankind
-1980 - In Disco Town(   Читать дальше...   )Жанр: Electronic, Reggae, Dub, Funk Soul, DiscoПродолжительность: 02:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE150D5200A540DCE6678C4ED38FC3CEEC62FDDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525630   (129389) от 21.01.2022
-
-Aurora - The Gods We Can Touch (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Forbidden Fruits Of Eden (0:40)
- 02. AURORA, Pomme - Everything Matters (3:34)
- 03. Giving In To The Love (3:01)
- 04. Cure For Me (3:22)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170F1580BA3B065BD8054B963AF407CB5AF1255D
 ```
 
 https://mybot314.ru/tekegram_catalog/

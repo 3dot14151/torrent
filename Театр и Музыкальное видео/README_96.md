@@ -1,3 +1,32 @@
+###  Публикация: 1179409   (348902) от 31.10.2017
+
+Avantasia - The Flying Opera: Around The World In Twenty Days (2011) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый концертный альбом Avantasia, выпущенный в марте 2011 года. Он был записан в 2008 году во время первого мирового турне Avantasia в поддержку альбома The Scarecrow.01. Twisted Mind
+02. The Scarecrow
+03. Another Angel Down
+04. Prelude / Reach Out For The Light(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Heavy Metal, Symphonic Metal, Power MetalПродолжительность: 02:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4EE971407267EE944EFD49FFA90BC997DBB48D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 724547   (348423) от 21.11.2013
 
 ZZ Top - Definitely Then (Double Down) 1980 (2008) DVDRip
@@ -680,32 +709,6 @@ Sandra Valterović Siso lažljiva (2012) [H.264/1080p] WEB-DLRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3054A63E3502D4BA992A3BD3224C6F59CB22F524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580473   (340462) от 26.11.2012
-
-Pretty Mesha - World Star Honeys (Uncensored) (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip hop, RnBПродолжительность: 00:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24F685A8DFA485310EB47834D31E74D6208877D
 ```
 
 https://mybot314.ru/tekegram_catalog/

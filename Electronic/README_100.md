@@ -1,3 +1,61 @@
+###  Публикация: 1000306   (857431) от 26.03.2016
+
+VA - Retro Chic 100 (2014) [MP3|320 кб/с] <Balearic, Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857431.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Never Gonna Give You Up - Karen Souza
+002. Space Cowboy - Eve St. Jones
+003. Wicked Game - Groovy Waters
+004. Somebody That I Used to Know - Freedom Dub(   Читать дальше...   )Жанр: Balearic, Downtempo, LoungeПродолжительность: 06:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8B5B37DAE0998C1F5AB4DD4EC5D7075FA5445A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109791   (857377) от 28.02.2017
+
+Aly & Fila - Future Sound Of Egypt 485 (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John 00 Fleming - Spirit Awaking
+02. A.R.D.I. ft. Allam - Never Look Back
+03. The Thrillseekers ft. Shannon Hurley - Stay (Here With Me) (Club Mix)
+04. Solis & Sean Truby pres. S&ST - Roots(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B268EA4ED9E2C9FA7ED39100306CDD0BDBAB242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000615   (857376) от 26.03.2016
 
 VA - Armin van Buuren - A State Of Trance Festival (Warm Up Sets) (2016) [MP3|320 кб/с] <Deep House, Techno, Tech House, Progressive Trance, Progressive House>
@@ -683,64 +741,6 @@ VA - Mind & Soul Music (Ambient Sounds & Down Beats) (2016) [MP3|320 кб/с] <L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9816C2A3819C6EB6F7BA73F691D395FB6F90FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109945   (855612) от 01.03.2017
-
-VA - Welcome EDM Vol.9 (2017) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Simon Delf - Down (Original Mix)  5:08
-02.  Twinkle Sound - Future Strings (Original Mix)  4:21
-03.  Twinkle Sound - Fly (Original Mix)  3:15
-04.  Essiuah - Tik Tok (Original Mix)  5:21(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F194D83FD3436A1D9ABF495AB8268E7FF220BB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000846   (855125) от 27.03.2016
-
-Нейромонах Феофан - Велики Силы Добра (2016) [FLAC|Lossless|tracks] <Drum and Bass, Neurofunk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ураган (03:12)
-02. Везде пляшу (02:22)
-03. Здесь Феофан (03:29)
-04. Велики силы добра (03:45)(   Читать дальше...   )Жанр: Drum and Bass, NeurofunkПродолжительность: 00:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9554F6390F8E271C1039CAB187882F05003DC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

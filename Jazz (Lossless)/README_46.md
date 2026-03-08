@@ -1,3 +1,32 @@
+###  Публикация: 1104215   (880264) от 15.02.2017
+
+McCoy Tyner Quartet - New York Reunion (1991) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Recorda Me [09:49]
+ 02.Miss Bea [07:10]
+ 03.What Is This Thing Called Love? [08:05]
+ 04.My Romance [06:37](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FDCEE1EB06871FD2BE6E0A96E4AB313596C3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104289   (880263) от 15.02.2017
 
 Elisabeth Melander - Reflections Of A Voice (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Gabin - TAD|Replay (2012) [FLAC|Lossless]<Nu Jazz, Jazzy Lounge>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106012   (875174) от 18.02.2017
-
-Frank Rosolino - The Last Recording (1978) 2006, See Breeze Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Misty (Radio Edit) [09:35]
- 02.I Thought About You (Radio Edit) [07:56]
- 03.Waltz For Diane (Take Two) [05:45]
- 04.Misty [16:08](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12339937EA15C9D6CDD5F518A73A366A87E8503A
 ```
 
 https://mybot314.ru/tekegram_catalog/

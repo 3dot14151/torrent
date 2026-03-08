@@ -1,77 +1,25 @@
-###  Публикация: 1804179   (65697) от 28.06.2025
+###  Публикация: 1803912   (65736) от 26.06.2025
 
-Юлия Прозорова | Сны из детства. Шелковая книга о счастье-бабочке, теплом доме и волшебном мостике, ведущем к гармонии (2024) [MP3, Ольга Седова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65697.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Эта книга – про маленький мир в большом. всё в ней – про удивительное, скрытое в привычных вещах. Про то, как важно научиться видеть и слушать». Юлия Прозорова – автор теплых и душевных рассказов с аудиторией более 35 тысяч читателей! Апельсиновый джем, где зимой прячется солнце. Весенний воздух с ароматом свежести… Хомячок в колесе – и тот медленнее бегает, чем (   Читать дальше...   )Жанр: ПсихологияИздательство: АСТПродолжительность: 05:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3AC11C650640F43E5DF94D766685A8806C302D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804225   (65696) от 28.06.2025
-
-Конвертер Валют Плюс v3.0.3 Mod by vadj [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конвертер Валют Плюс, разработанный создателями Калькулятора Плюс, - это простой конвертер для перевода курсов валют, который сообщит тебе на что расчитывать при обмене денег.Тип издания: ModРелиз состоялся: 27.06.2025Разработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833CB6316441DFE755311D8C240706420B969E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804298   (65695) от 28.06.2025
-
-Zig Zags - Deadbeat At Dawn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Muzzy - Do You Know the Muzzy Man (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65695.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65736.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Not Of This World (3:30)
-02.  Altered States (3:15)
-03.  Deadbeat At Dawn (3:58)
-04.  At War With Hell (3:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:19
+01.  Plaything (3:06)
+02.  Hurricane (2:21)
+03.  Burst (2:26)
+04.  Like a Movie (2:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72605DCB9B4C7DEABF5AB2AD744BB8B31E7F603A
+magnet:?xt=urn:btih:32078F56E4C982238E98C597481DD11B49CB8B0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804281   (65694) от 28.06.2025
+###  Публикация: 1803911   (65735) от 26.06.2025
 
-Nathan East & Noah East - Father Son (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Gregory James Falcon - Something Blue (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65694.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65735.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Intro (0:06)
-02.  Eric Clapton - Close to Home (1:25)
-03.  UTOPIANOAH (5:25)
-04.  My Favorite Things (4:49)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:08
+01.  Jupiter In July (1:09)
+02.  Message To Myself (4:09)
+03.  Surviving A Nightmare (3:52)
+04.  Something Blue (4:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5902D4281AF648B88E094C28A9FD450722951190
+magnet:?xt=urn:btih:8175B2BE97A5B4D8629C38F2CA7AF7888AD1F225
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804293   (65693) от 28.06.2025
+###  Публикация: 1803915   (65734) от 26.06.2025
 
-Sonic Mood - Sunny Guitars - Neo Jazz LoFi (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Wisemary - Awake (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65693.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65734.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Breakfast (2:35)
-02.  Easy (2:54)
-03.  Flower (2:31)
-04.  Healing (2:48)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:32:11
+01.  Keep Me Awake (3:34)
+02.  Flashbang (2:47)
+03.  Cold War (2:54)
+04.  Dancin' with the Devil (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CE3E068F1B084AC7ED409165584E387FE5D68B3
+magnet:?xt=urn:btih:CB34B652255E4F4B2D0AA600AFB7E09CC23AC328
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,57 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804264   (65692) от 28.06.2025
+###  Публикация: 1803858   (65733) от 26.06.2025
 
-Paul Brown - So Much To Say (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  So Much To Say (3:57)
-02.  Summertime (4:17)
-03.  Vice Versa (4:13)
-04.  My Sweet Baby (3:47)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446BF38C14540AF3B829C49F46877FCF7F317739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804214   (65691) от 28.06.2025
-
-Adrian Quesada - Boleros Psicodelicos II (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin, Funk, Soul, Bolero, Psychedelic>
+The Red Moon Macabre - Baleful Gathering (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65691.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ojos Secos [00:03:52]
-02. Bravo [00:03:28]
-03. No Juego [00:03:16]
-04. Cuatro Vidas [00:04:01](   Читать дальше...   )Жанр: Latin, Funk, Soul, Bolero, PsychedelicПродолжительность: 00:42:20
+01. CLANDENSTEIN SORROW [00:04:07]
+02. BALEFUL GATHERING [00:03:57]
+03. RAVENS BLOOD (UK Version) [00:05:25]
+04. MARCHESA VAMPIRE [00:06:41](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:45:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A1B8FFC0F47CFE11A04E4C0AA03BFD154A64354
+magnet:?xt=urn:btih:040E13B83798284E63CD0E553FA0C6B5C8A82B07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,341 +114,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804247   (65690) от 28.06.2025
+###  Публикация: 1803916   (65732) от 26.06.2025
 
-Tiffany Kills - World On Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Come Running
-02. Star Rider
-03. Breathless
-04. The Higher They Climb(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B086D5C493FC03D1D22AE97CE7E9168CE018EB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804306   (65689) от 28.06.2025
-
-Black Adder - Hellraiser (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Adder (04:33)
-02. Hellraiser (03:16)
-03. Shepherd of the Rats - Intro (01:54)
-04. Shepherd of the Rats (04:27)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13E21A0177FED16A2B3560D181DB05B81C0F3C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804248   (65688) от 28.06.2025
-
-Тест-драйв GEELY EX5 2025 — Минтранс (28.06.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65688.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Юридические тонкости. Что будет, если не явиться в суд за выезд на полосу встречного движения? Чем это грозит?
-🔸 Тест-драйв GEELY EX5 2025. Что удивит, а что расстроит?
-🔸 Водительский туризм. Можно ли открыть категорию в правах, если учился не на родине?
-🔸 Срочное дело. Что делать, если потёк антифриз?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5420BAB5B7FA032CA949F4EE92745EFDD19E23C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804139   (65687) от 28.06.2025
-
-Алина Шелег - Первый альбом (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зачем
-02. Лишь тебе подарю любовь
-03. Любимый мой
-04. С тобой(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7806685C1583283D3971AFF117E13070C506F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804267   (65686) от 28.06.2025
-
-VA - A Tribute to the King of Zydeco (2025) [FLAC|Lossless|WEB-DL|tracks] <Rhythm and Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Rolling Stones - Zydeco Sont Pas Salés (2:45)
-02.  Charley Crockett - Easy Easy Baby (4:00)
-03.  Taj Mahal - Hey 'Tite Fille (3:58)
-04.  Lucinda Williams - Release Me (3:55)(   Читать дальше...   )Жанр: Rhythm and BluesПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7911CB4FAF914F48A5A9EA3150685C39238883F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804282   (65685) от 28.06.2025
-
-Orianthi - Some Kind of Feeling (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Attention (3:48)
-02.  Some Kind of Feeling (4:44)
-03.  What I've Been Looking (5:15)
-04.  Sharp Dressed Man (2:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654929BAC7129FF19DB5FC110C8A3001945AFDFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804208   (65684) от 28.06.2025
-
-PowerDirector – Video Editor v15.4.0 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.06.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BFDE21BD5138A55551600AF708EDA75DFCA9D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804279   (65683) от 28.06.2025
-
-Mute Balloon - Out of the Red (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Always Be Enough (3:18)
-02.  A Little Bit (3:14)
-03.  Solar Man (3:22)
-05.  Brown Eyed Blues (3:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C93A83C85C70347575584DCAED859E89A359BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804289   (65682) от 28.06.2025
-
-Qbiq - Endless Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anno Domini 1600 (0:46)
-02.  The Light (4:14)
-03.  Whispers (4:26)
-04.  The Mask (3:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B110DCB90BD31F4A6CF85600B2F717C50447EB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804292   (65681) от 28.06.2025
-
-Shiver. - Topsfield Fair (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Down (1:14)
-02.  Get Up (2:59)
-03.  Far Away (3:28)
-04.  You Remain (3:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91DA2AF7DB83045074256B8F918870E78CB42DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804297   (65680) от 28.06.2025
-
-Игра с судьбой / Flirting with Fate (1916) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65680.jpg" />
-</div>
-
-
-###  Подробнее
-
-От художника Августа (Оги) Холлидея ушла девушка, у него украли самую ценную картину, денег нет... Все плохо, жизнь не удалась, и он решает покончить с собой, причём необычным способом. Оги на последние 50 долларов нанимает для себя киллера, чтобы не знать заранее, где и каким способом его настигнет смерть. Тут внезапно все жизненные проблемы решаются, кроме одной (   Читать дальше...   )Производство: США / Fine Arts Film CompanyЖанр: комедия, приключения, немое киноРежиссер: Кристи КэбэннАктеры: Дуглас Фэрбенкс, У.Е. Лоуренс, Джевел Кармен, Дж.П. МакКарти, Лиллиэн Лэнгдон, Ховард ГайеПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02FF5C0FD9F4BDD40CE9D1E83D743DFF14B77D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804118   (65679) от 28.06.2025
-
-The Slime - Crab-Walk to Oblivion (2025) [MP3|320 Kbps] <Thrash Metal, Crossover, Hardcore>
+The Howling Void - The Glow of a Distant Fire (2025) [MP3|320 Kbps] <Symphonic, Funeral Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65679.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65732.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Washout Revenge
-02. Sludge
-03. Moving Target
-04. Russian Roulette(   Читать дальше...   )Жанр: Thrash Metal, Crossover, HardcoreПродолжительность: 00:15:19
+01. The Glow Of A Distant Fire (17:55)
+02. Towards A Storm-Cloaked Summit (15:17)
+03. Tat Tvam Asi (18:55)Жанр: Symphonic, Funeral Doom MetalПродолжительность: 00:52:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD161A21E0CE681CD6648D8578FC75AC739D66C2
+magnet:?xt=urn:btih:C26395AA9C394E51708C8A9766DD755F76A83E1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,28 +142,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804295   (65678) от 28.06.2025
+###  Публикация: 1803956   (65731) от 26.06.2025
 
-Steve Marriner - Hear My Heart (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Anthony Krizan - Cool Shade of Blue (2025) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Into The Groove (03:47)
+ 02 - Strawberry Wine (03:58)
+ 03 - If You're Tired of Being Lonely (04:42)
+ 04 - It's All Coming Back to Me (04:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD627B73C4DC94191A7DAD1E8E24990378CFA51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803983   (65730) от 26.06.2025
+
+Lord Belial - Unholy Trinity (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65678.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Workin' On Somethin' (6:14)
-02.  Got To Be An Answer (3:44)
-03.  I Can't Dance (4:00)
-04.  I Don't Know What To Say (3:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:35
+01. Ipse Venit (4:59)
+02. Glory to Darkness (6:19)
+03. Serpent's Feast (5:43)
+04. Blasphemy (3:49)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C7ACCE9512AAF5086CFD74D138F7258DF5CB05E
+magnet:?xt=urn:btih:5745B062294DD04A5A862610EE583CCF0CC92AAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,28 +200,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804296   (65677) от 28.06.2025
+###  Публикация: 1803913   (65729) от 26.06.2025
 
-Tommy Baldwin - Nappy Headed White Boy (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+Rosetta West - Gravity Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65677.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Feel It (3:03)
-02.  Summertime Lovin' (3:13)
-03.  Sooner or Later (4:22)
-04.  Stay Awhile (5:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:12
+01.  Dora Lee (Gravity) (3:13)
+02.  Suzie (Gravity) (2:51)
+03.  Broken Glass (Gravity) (3:42)
+04.  Deeper Than Magic (Gravity) (5:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:25:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B67D0DF76ADE93FEED1DA63008DDA2C2456B725B
+magnet:?xt=urn:btih:B0510C6ADF9DB8F1E676355BF6CA083FD1F914E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,28 +229,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804224   (65676) от 28.06.2025
+###  Публикация: 1803910   (65728) от 26.06.2025
 
-Vhäldemar - XX Anniversary - Live At BEC Barakaldo (2025) 2XCD, Recorded 19.04.2022 [FLAC|Lossless|image + .cue] <Power Metal>
+A-Z - A2Z² (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Progressive Hard Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65676.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc One:
-01. Black Beast
-02. Death To The Wizard!
-03. 1366 Old King's Visions part V(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:37:10
+01.  Fire Away (4:38)
+02.  Running in Place (4:58)
+03.  Nothing Is Over (4:18)
+04.  A Wordless Prison (6:05)(   Читать дальше...   )Жанр: Hard Rock, Progressive Hard RockПродолжительность: 00:48:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49908A16C05E9350B55E31575DF292FE910BCB7B
+magnet:?xt=urn:btih:A678EB2216A5DDAC1997AA160559208D966ACA76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,51 +258,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804300   (65675) от 29.06.2025
+###  Публикация: 1803967   (65727) от 26.06.2025
 
-А.А. Домбровский | Банно-прачечное хозяйство (1941) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представляется раритетное издание учебной направленности для обучаемых ВТУЗов коммунального назначения того времени. Также материал будет полезен и тем читателям, для которых пособие представляет определенный интерес, не только в организационном, техническом и даже по отношению государства к важности вопроса аспекте, но в историческом плане (издание (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Наркомхоз РСФСРФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC88B71C1553CFE97BF200844FB72DAC9E6E4ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804489   (65674) от 29.06.2025
-
-Гарри Гаррисон | Мастер на все руки (2020) [MP3, Puffin Сafe]
+Александр Вельтман | Иоланда (Инсценировка) (1995) [MP3, Игорь Дмитриев, Эрнст Романов и др.]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65674.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После открытия гиперпространства, где направление движения имеет весьма условное значение, стало очевидно, что двигаться между звездами без подпространственных маяков фактически невозможно. Самым старым из маяков уже многие сотни и даже тысячи лет, и их необходимо обслуживать, так как от их исправности зависит судьба космических кораблей. Гиперпространственные маяки (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:34:00
+Серия/Цикл: Звучащая библиотека. Малая проза.
+Александр Фомич  Вельтман (1800–1870) – русский писатель, поэт, лингвист, археолог, пользовавшийся широкой известностью в пушкинские времена.
+Инсценировка по мотивам одноимённого рассказа А.Ф. Вельтмана.
+Знатный вельможа Раймонд заводит роман с простолюдинкой Иоландой. Иоланда знает, что Раймонд собирается жениться на (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:39:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED9423773811CA37F4950E94E6DF600BB33D2462
+magnet:?xt=urn:btih:7202AB01585F0081E5F666CD122079142406BAC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,25 +287,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743640   (65673) от 29.06.2025
+###  Публикация: 1803903   (65726) от 26.06.2025
 
-Андрей Усачёв | Дед Мороз из Дедморозовки (книга 1). Школа снеговиков (2023) [PDF, FB2, EPUB, MOBI]
+Pasquale Grasso - Fervency (2025) Sony Music [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65673.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как-то раз перед новым годом Дед Мороз решил, что ему очень не хватает внуков-помощников. И они со Снегурочкой слепили 11 снеговиков и 9 снеговИчек. И тут его спокойная и размеренная жизнь закончилась…Жанр: весёлые приключения, детская литература, сказки с картинкамиИздательство: Вимбо, РосмэнФормат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
+01. Sub City [5:12]
+02. A Trip with C.C. [4:24]
+03. Milestones [3:41]
+04. Cherokee [3:46](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:59:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C97078BDF631234A0C6352C069BDE479EAF3FE9C
+magnet:?xt=urn:btih:69AE2AF6D7465A8D2F615295EE7205A7B4C0F982
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,25 +316,422 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804346   (65672) от 29.06.2025
+###  Публикация: 1803847   (65725) от 26.06.2025
 
-Слепой меч / Mu zhong wu ren / Eye for an Eye (2022) BDRip [H.264]
+Wicked Bluesman - Dreams & Destiny (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Зарубежное кино
->>Азиатское кино (SD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65672.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65725.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Слепой мастер боевых искусств Чэн И зарабатывает на жизнь ловлей беглых преступников. Однажды он становится свидетелем массового убийства — наследник богатой семьи Юйвэнь вырезает всю семью виноделов, и удаётся выжить только девушке по имени Ни Янь. Чэн И решает помочь Ни Янь добраться до Лояна, где та надеется добиться наказания для преступников.Производство: Китай / Er Dong Pictures (Tianjin)Жанр: боевик, драмаРежиссер: Ян БиньцзяАктеры: Се Мяо, Гао Вэймань, Сян Хао, Лю Бэнь, Чжан Ди, Чжан Хаосэнь, Гао И, Лю Цзюнь, Кан СюаньПеревод: Дублированный (OKKO)Язык озвучки: русский, китайский, английскийСубтитры: английские (forced, full)Продолжительность: 01:17:19
+01. Louder, Heavier, Nastier [00:04:56]
+02. The Feeling You Know Me [00:05:12]
+03. Shed My Pride [00:05:46]
+04. Lonely Traveller Blues [00:02:25](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70E26A2FCEA3B95D9DA09A2BB7443245318C7F98
+magnet:?xt=urn:btih:63E2FF2A2DC76B04D773146F42AC373CB0A2120B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803914   (65724) от 26.06.2025
+
+Triumph - Magic Power: All Star Tribute to Triumph (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  24 Hours a Day (1:22)
+02.  Rock & Roll Machine (4:51)
+03.  Magic Power (5:29)
+04.  Spellbound (4:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7278DC242E550150590E5DF54FCF91A4980CD148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803853   (65723) от 26.06.2025
+
+Unterschicht - Golem Akt 1 - Die Erweckung (2025) [MP3|320 Kbps] <Dark Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Die Erweckung [00:01:20]
+02 - Hone Your Hate [00:04:56]
+03 - Submission and Dominance [00:05:14]
+04 - Bitte Tötet Mich [00:04:42](   Читать дальше...   )Жанр: Dark ElectroПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBE7BCA47864A69C5B2B2B8785C4A903737A3FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803909   (65722) от 26.06.2025
+
+Abys - Telegraph (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dancing with the Devil (4:54)
+02.  Fighting Spirit (2:54)
+03.  Stranger (3:46)
+04.  Better for each other (4:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AEFCD08D34FFC17B2B28C01179C1B6D1B9F0DE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804004   (65721) от 26.06.2025
+
+Anthony Krizan - Cool Shade of Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Into The Groove (3:47)
+02.  Strawberry Wine (3:58)
+03.  If You're Tired of Being Lonely (4:42)
+04.  It's All Coming Back to Me (4:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D174D5999BE01812DF79EB622BBA444ECE5F038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803957   (65720) от 26.06.2025
+
+VA - Ablazing Summer Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rene Ablaze - Aestas Baleares (Extended Mix) [6:56]
+02. Mhammed El Alami & Exolight - Velvet Skies (Transaphonic Extended Remix) [6:50]
+03. Nikolauss - Lost In Transition (Guava Extended Remix) [6:49]
+04. Peter Miethig & Van Cosmic - Sunshine (Extended Mix) [6:30](   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A30618ED9BDC15272E32B1B39754F665BAFD6DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804019   (65719) от 27.06.2025
+
+Mint Club - Slice Of Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulp [00:03:34]
+02. Closer To Closure [00:02:53]
+03. Punch Me Out [00:02:39]
+04. Sick Invite [00:02:33](   Читать дальше...   )Жанр: Pop-PunkПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F85C3BBEE919B1AC12CA61E7E2BCF88F6CA414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804185   (65718) от 28.06.2025
+
+Уникум (1983) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65718.jpg" />
+</div>
+
+
+###  Подробнее
+
+У рядового советского программиста Кости Шапошникова обнаружилась необычная способность - телепатировать свои сны окружающим. В одну прекрасную ночь все его коллеги увидели один и тот же сон: они стали участниками необычного шоу в кабаре, где их руководитель - женщина внушительных размеров - исполняла стриптиз. Феномен становится достоянием гласности, чем не замедлили (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: МелодрамаРежиссер: Виталий МельниковАктеры: Василий Бочкарёв, Евгения Глушенко, Ольга Старостина, Татьяна Плотникова, Станислав Садальский, Галина Волчек, Иннокентий Смоктуновский, Светлана Крючкова, Михаил Козаков, Евгений Леонов, Юрий Богатырёв, Нина Русланова, Баадур Цуладзе, Борислав Брондуков, Алла Мещерякова, Зинаида Шарко, Екатерина Дурова, Ольга Иванова, Сергей ЛосевСубтитры: отсутствуютПродолжительность: 01:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A37792528947FEE4B98C6D064404B59A4E27426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804235   (65717) от 28.06.2025
+
+Chillaxing Jazz Kollektion - Groove Jazz N Chill #10 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Chill Out, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherish Life
+02. My Path Leads to You
+03. Cool Tides
+04. Sun, Sand & Cocktails(   Читать дальше...   )Жанр: Pop Jazz, Chill Out, InstrumentalПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6827CC4A748282B6A6912C663E03D52CB2A164A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804252   (65716) от 28.06.2025
+
+Главная дорога (28.06.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Казахский пленник: угнанный автомобиль найден… за границей. Как его вернуть на родину?
+ Ремонт, замена или продажа — что делать с авто без двигателя?
+ Бессильная электроника: актриса Ксения Кутепова осваивала торможение в повороте.
+ Машины-луноходы и тайные подземелья: самое интересное в путешествии по Самарской области.(   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4697A53380529EE4BE92F9E187248E73B9974A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804243   (65715) от 28.06.2025
+
+Александр Дюма, Жорж Санд, Жюль Верн | Классики детям. Сказки (2013) [MP3, Татьяна Телегина и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перу классиков французской литературы – Александру Дюма, Жорж Санд, Ж. Верну – принадлежат не только всемирно известные романы, но также замечательные детские сказки. Несмотря на то, что в каждой из этих историй чувствуется неповторимый стиль автора, в них есть все, чему полагается быть в сказках: чудеса и превращения, добрые феи и злые волшебники, прекрасные принцессы (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 07:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729A2B5C8BF0AADB48F4F3E95475CC5C20A87FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804237   (65714) от 28.06.2025
+
+Lorde - Virgin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Electropop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hammer [00:03:13]
+02. What Was That [00:03:29]
+03. Shapeshifter [00:04:17]
+04. Man Of The Year [00:03:00](   Читать дальше...   )Жанр: Indie, ElectropopПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9259D406A8574693252BDDAB5737C086F004B397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804310   (65713) от 28.06.2025
+
+Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcist in Another World | Перерождение сильнейшего экзорциста [2023, TV, 13 из 13 эп.] BDRemux 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харуёси — сильнейший онмёдзи (предсказатель) в своём мире. Его предали друзья, и, находясь на грани смерти, он хочет быть счастливым в следующей жизни. Затем он пытается применить секретное заклинание реинкарнации. Заклинание срабатывает, и он перевоплощается , но каким-то образом оказывается в другом мире. Он перерождается в выдающейся семье волшебников, но считается, (   Читать дальше...   )Производство: Studio Blanc.Жанр: приключения, фэнтезиРежиссер: Нагаяма НобуёсиПеревод: CrunchyRollОзвучка: Original + Commentary (ep. 01, 02)Язык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 13 эп по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F0C308C6FF28A30A2B89624289257AE7867B80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804262   (65712) от 28.06.2025
+
+3rd Force - Lifeforce (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Time For Wonderful (5:59)
+02.  Onward and Upward (4:44)
+03.  Precious (4:31)
+04.  Show Me The Way (4:26)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF95AB9FC25256B08624F01E5688397A5F275E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804188   (65711) от 28.06.2025
+
+Уникум (1983) DVD5
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65711.jpg" />
+</div>
+
+
+###  Подробнее
+
+У рядового советского программиста Кости Шапошникова обнаружилась необычная способность - телепатировать свои сны окружающим. В одну прекрасную ночь все его коллеги увидели один и тот же сон: они стали участниками необычного шоу в кабаре, где их руководитель - женщина внушительных размеров - исполняла стриптиз. Феномен становится достоянием гласности, чем не замедлили (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: МелодрамаРежиссер: Виталий МельниковАктеры: Василий Бочкарёв, Евгения Глушенко, Ольга Старостина, Татьяна Плотникова, Станислав Садальский, Галина Волчек, Иннокентий Смоктуновский, Светлана Крючкова, Михаил Козаков, Евгений Леонов, Юрий Богатырёв, Нина Русланова, Баадур Цуладзе, Борислав Брондуков, Алла Мещерякова, Зинаида Шарко, Екатерина Дурова, Ольга Иванова, Сергей ЛосевСубтитры: отсутствуютПродолжительность: 01:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10D793F2B7EDEC0B99596ACB023928BC82D2842
 ```
 
 https://mybot314.ru/tekegram_catalog/

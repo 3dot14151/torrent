@@ -1,3 +1,177 @@
+###  Публикация: 1332884   (309725) от 22.10.2019
+
+VA - EDM Heartbeat Extended Mix (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309725.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chrizz Morisson - Here I Go 2k19
+002. Exit 11 - Wait (Extended Mix)
+003. Valefim Planet - The Scream Of My Heart
+004. Mosangels - Trend Forecaster (Dub Mix)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 11:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70804D57B9C545D0BA31FD1BB7FB62C6D3495D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332880   (309722) от 22.10.2019
+
+VA - Mushrooms Of Psychedelic, Vol.02 (2019) [MP3|320 Kbps] <Psy Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Tone - Physical Sounds (Original Mix)
+02. Wave Funktion - Alien Conduit
+03. Norma Project - Heart Of Stone
+04. E-Beiz - Enigma(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 09:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3716D50CE39A4029C35C5363D44574AB46EAAC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332888   (309713) от 22.10.2019
+
+VA - Always On Your Side: Indie Music (2019) [MP3|320 Kbps] <Indie, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309713.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Babykatze - Eternal (Original Mix)
+002. Ambrosia - Biggest Part Of Me
+003. Soviac - Borrhalan
+004. Cherry Glazerr - Juicy Socks(   Читать дальше...   )Жанр: Indie, Pop RockПродолжительность: 09:12:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B9C1E5C7B7EE49D3303B727DE138B66534B967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332879   (309694) от 22.10.2019
+
+VA - New Rootz: Reggae And Ska Music (2019) [MP3|320 Kbps] <Reggae, Dancehall>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309694.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ub40 Featuring - Hush Darling
+002. Mr Lex - Bruck It Off
+003. Walshy Fire - No Laziness
+004. Dipmatik - What Is This(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 05:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4656B08947E97466175F7D1480302A2DB84FBED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332872   (309691) от 22.10.2019
+
+VA - Universal Nation: Soul And Rnb Music (2019) [MP3|320 Kbps] <Soul, Rnb>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309691.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Raheem Devaughn - Magnet
+002. Next Town Down - Front Seat
+003. Arin Ray - Old School
+004. Cupid - Whats Your Flava(   Читать дальше...   )Жанр: Soul, RnbПродолжительность: 11:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5ED2742796EC0C3D880C93E836716141C8D1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332874   (309689) от 22.10.2019
+
+VA - Somatic Cell: Hyperactive Psy Trance (2019) [MP3|320 Kbps] <Trance Psychedelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309689.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ukauka & Mechanical Species - Triangular
+002. 3 Of Life - Santa Catarina
+003. X-Side - Symbolic World
+004. U-Recken - Whale Song(   Читать дальше...   )Жанр: Trance PsychedelicПродолжительность: 13:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC68F5418A4C7F6CFB635BC03DF217A772EB161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332883   (309568) от 22.10.2019
 
 VA - Hip Hop: The World Stories (2019) [MP3|320 Kbps] <Hip-Hop>
@@ -571,192 +745,6 @@ VA - Pop Dance Exclusive Megamixes (2020) [MP3|320 Kbps] <Pop, Dance, Electropop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B148452DB1EC76D2C511F2DE0A21AECB24F9A377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422578   (308568) от 09.11.2020
-
-VA - No Doubt: Music RnB Collection (2020) [MP3|320 Kbps] <Rnb, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308568.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Oral Cigarettes - Wagamama
-002. Jayy Malik - Committed
-003. Teddy Bryant - Autumn Love
-004. Tamalaneh - Once In A Lifetime(   Читать дальше...   )Жанр: Rnb, SoulПродолжительность: 07:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7F37A09A239E1E039E8FFBC83FC87BA7F50FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422545   (308567) от 09.11.2020
-
-The Dead South - Broken Cowboy (Compilation) (2020) [MP3|320 Kbps] <Bluegrass, Gothic Country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Gone
-02. Broken Cowboy
-03. In Hell I'll Be in Good Company
-04. Banjo Odyssey(   Читать дальше...   )Жанр: Bluegrass, Gothic CountryПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE5F4616F73378CFA425D2E9EBD4D20F479130C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422587   (308439) от 09.11.2020
-
-VA - Velvet Evening: Classical Vocals In Jazz (2020) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308439.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jamie Cullum - Everlasting Love
-002. Madeleine Peyroux - Smile
-003. Kathleen Grace - Embarcadero
-004. Eliane Elias - You’re Getting(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 06:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F94FF073EAC53AD07169256BFED8AA95FBAD5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077106   (308394) от 27.11.2016
-
-Nightwish - From the Tarja Turunen Era (2015) 2CD, Compilation [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nimphomaniac Fantasia 4:46
-02. Sleeping Sun 4:04
-03. Come Cover Me 4:34
-04. Dead To The World 4:20(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2686BDF5E1557D0AD5CFFE9721E47648DAA1A191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584362   (308175) от 04.12.2012
-
-VA - Улетная сотня осеннего Trance vol.11 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive Trance, Uplifting Trance, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7 Baltic - Guantanamo (Original Mix) (7:42)
-02. 7 Baltic - Rescue (Original Mix) (7:54)
-03. Aaron Beta - The Sky (Original Mix) (5:56)
-04. Above & Beyond vs. Andy Moor - Air For Life (Above & Beyond 2012 Update) (8:51)
-05. Abstract Vision & Elite Electronic - Always Loved U (Original Mix) (7:37)
-06. Ad Brown - Vanilla (Orignal Mix) (8:03)
-07. Aimoon - Will Be Mine (Original Mix) (7:14)
-08. Air-T & ISTAR - Whisper Of The Sea (Original Mix) (6:33)
-09. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (7:25)
-10. Andrew Stets - War Will Never Come (Original Mix) (6:55)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Progressive TranceПродолжительность: 11:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D8CAABC71E9E9D7507092CB5BFBC08F1797834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583739   (308069) от 04.12.2012
-
-Moonbeam feat. Aelyn - You Win Me (2012) [MP3|320 кб/с]<Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308069.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.    Moonbeam feat. Aelyn- You Win Me (Original Soundtrack Mix) (Black Hole)
-2.    Tube & Berger & Milan Euringer - Lovebreak (Original Mix) (Kittball)
-3.    Christian Burkhardt - Delight (Original Mix) (Oslo) (
-4.    Dancaless feat. Katinda - Together (Promo CDR)
-5.    Bent - As You Fall (Guy J Remix) (G&E Analogue)
-6.    Max Vertigo- Tonight (Original Mix) (Aura Music)
-7.    Hells Kitchen- Silent Scream (Original Mix) (Aura Music)
-8.    Pan-Pot- Confronted (Adam Beyer & Jesper Dahlback Remix) (Mobilee Records)
-9.    Simon Vuarambon- Inverted Pole (Luis Junior Remix) (Flow Vinyl)
-10.  HVOB- Dogs (Niko Schwind Remix) (Stil Vor Talent)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124833B5CE7E3BECD3C1193550AECD5646843E49
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1150410   (594069) от 15.07.2017
+
+VA - Destination Ibiza 2017 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danev - Shaggy (Extended Mix) 05:20
+02. Seal De Green - Licky (Original Mix) 03:34
+03. Filatov - Back In The Love (Swanky Tunes Remix) 06:35
+04. Aminata - Love Injected (Karl G Remix) 05:37(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5CE3C7B7E9910C8E869386B48D78790B42FAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150301   (594067) от 15.07.2017
+
+VA - Black Hole House Music 07-17 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jes & Game Chasers - Carry Me Away (Game Chasers Deeper Mood Extended Mix)  5:46
+02.  Zoo Brazil And Dirty South - Never Had (Dirty South Remix) (feat. Niara)  7:29
+03.  Kokaholla - High With Me (feat. Quinn Bates)  3:39
+04.  Drop Department & SuitStatic - Sarod  5:11(   Читать дальше...   )Жанр: HouseПродолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3BCBDF8EE1F54CA7BEFB9B58DD99E609398503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150417   (594066) от 15.07.2017
 
 VA - Italo Dance Rimini 2017 [MP3|320 Kbps] <Funky, Club House>
@@ -687,64 +745,6 @@ VA - Meditation Music For Inner Peace Vol.3 Beautiful Ambient And Chillout Music
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B1ABA9FCA35084014F574C448358603CF686228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549901   (592931) от 08.05.2022
-
-Enrico Sangiuliano - Live @ Awakenings Festival Easter Edition (2022-04-15) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mattia Saviolo - Twilight Of The Idols
-02. Psyk - First Trail
-03. Wlderz - Algo
-04. Alex Lentini & Stomp Boxx - ID(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9BFD9E240F9087DADF84F3F36D625355B5DADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549795   (592894) от 08.05.2022
-
-VA - Progressive House 100 - The Ultimate Selection (2022) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592894.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. SØNIN & Grigoré - Serpento (Original Mix) (8:50)
-002. Quivver - Brothers & Sisters (Cid Inc. Remix) (9:06)
-003. RUE - The Cult (Enamour’s Free Love Extended Mix) (7:01)
-004. All Living Things - Rave Culture (Jerome Isma-Ae Extended Remix) (7:38)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0831EEA4EF8AA3DABB1CC8D7D7D89A1D856472FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

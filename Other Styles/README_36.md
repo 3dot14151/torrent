@@ -1,3 +1,32 @@
+###  Публикация: 1381386   (824465) от 08.05.2020
+
+New Age, Creative Mind Master, Asian Zen - Home Zen Learning (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824465.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Deep Focus with Tibetan Bowls 03:52
+2. Better Stimulation 03:32
+3. All Day Motivation 03:31
+4. Pineal Gland Activation 03:34(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2D7DA2F5F62192B5031DF9FED7FA9CBC011048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116154   (824442) от 19.03.2017
 
 Петр  Dранга (Петр Дранга) - Перспектива (2011) Полная Версия 22 трека [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCAD7E68050C2514346AAB711CFB574B5EE14AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007215   (819657) от 16.04.2016
-
-George Winston - Remembrance (A Memorial Benefit) (2001) [MP3|320 кб/с] <Folk, World, Country>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lament    02:23
-02. Where Are You Now    04:03
-03. Remembrance    03:50
-04. Where The Sun Rises First    05:06(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E2EC89E7D556D152AC649802BEEE4FDFF60112
 ```
 
 https://mybot314.ru/tekegram_catalog/

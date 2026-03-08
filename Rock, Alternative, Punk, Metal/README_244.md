@@ -1,32 +1,3 @@
-###  Публикация: 1003794   (841700) от 04.04.2016
-
-Phil Collins - Hello, I Must Be Going! (1982) 2CD Deluxe Edition, 2016, Atlantic [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Care Anymore (Live) (6:31)
-02. I Cannot Believe It's True (Live) (5:29)
-03. Like China (Live) (5:42)
-04. You Can't Hurry Love (Live) (3:04)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945D972D2F734ACD6E4325D6BDEC49BEA7440DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 746400   (841686) от 04.04.2016
 
 Electric Light Orchestra - Secret Messages (1983) [FLAC|Lossless]<Classic Rock, Symphonic Rock>
@@ -750,6 +721,35 @@ Condition Critical - Extermination Plan (2016) [MP3|320 кб/с] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B7372C913A18A0C01D6C4549E26A8D335ACA7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004135   (840202) от 05.04.2016
+
+Novembre - Ursa (2016) [MP3|320 кб/с] <Progressive Metal, Doom-Death Metal, Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840202.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Australis
+2. The Rose
+3. Umana
+4. Easter(   Читать дальше...   )Жанр: Progressive Metal, Doom-Death Metal, Dark MetalПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB70EF2C9DBB399E8C33DDDCA491A1C7C1E4B99
 ```
 
 https://mybot314.ru/tekegram_catalog/

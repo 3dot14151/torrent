@@ -1,3 +1,177 @@
+###  Публикация: 1279579   (765317) от 30.01.2019
+
+VA - Empire Records - Fake 3 (2018) [MP3|320 Kbps] <Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765317.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nathia Kate - The Mission (Original Mix)
+002. Luke Terry, Paul Gibson - Achelous (Radio Edit)
+003. Talla 2XLC - It Makes Me Wonder (Steve Allen Remix)
+004. Sunset, Jess Morgan - The Gift of Giving (Original Mix)(   Читать дальше...   )Жанр: Trance, DanceПродолжительность: 10:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40B92174164549C4907680CD9865995E3EF1780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521326   (765216) от 02.01.2022
+
+Samantha Fish - Compilation (2019) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nearer to You
+02. Otherside Of The Bottle
+03. Are You Ready
+04. Push Comes To Shove(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73119D95C7C8C7513978F8E97EDC8AEC1EB0AE0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126569   (765197) от 18.04.2017
+
+VA - I Love Music! - Hard Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Hard Rock, Melodic Rock, Glam Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765197.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angels Or Kings - When The Heart Is Wrong 4:25
+002. Black Hole Raven - Do Not Luv Me 3:34
+003. Black Paisley - Coming Home 3:59
+004. Black Star Riders - Fade 4:23(   Читать дальше...   )Жанр: Hard Rock, Melodic Rock, Glam MetalПродолжительность: 07:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F9AB25E998A0DDFD9A856B7F05076CD54F4DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521464   (765170) от 02.01.2022
+
+VA - Beatport Psychedelic Trance: Sound Pack #388 (2021) [MP3|320 Kbps] <Psychedelic Trance, Goa>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Является ли Psy Trance музыка танцевальной? Ответ один, без сомнения это танцевальная музыка. Некоторые почему-то относятся к танцевальным стилям достаточно легкомысленно и настойчиво ассоциируют их только с развлекательными и увеселительными мероприятиями. Не отрицая этого, все же стоит заметить, что танец является одной из самых древнейших техник, которую использовали (   Читать дальше...   )001. Galactic Cowboy - Supersonic Fly
+002. Neutro - Hypnosis
+003. N3xu5 & Gu - 5th Dimension
+004. E-Mov - Mystic(   Читать дальше...   )Жанр: Psychedelic Trance, GoaПродолжительность: 12:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A45A6AF5E9D9A48DA1D424877744AFF755EA80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521441   (765159) от 02.01.2022
+
+Imelda May - Compilation (2019) [MP3|320 Kbps] <Alternative rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsy In Me
+02. Levitate
+03. It's Your Voodoo Working
+04. Round The Bend(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 02:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47A2A5819DF1A69AC10515FE58B14FE701BDCA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521288   (765154) от 02.01.2022
+
+VA - Music News vol.158 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765154.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Kristina Mailana - Little Bit Lovin (03:29)
+ 002. 7vvch - Bam Barabam (02:29)
+ 003. Akon - Bananza (Belly Dancer) (Vadim Adamov & Hardphol Remix Radio Edit) (03:13)
+ 004. Alan Walker feat. Winona Oak - World We Used To Know (Amice Remix) (03:22)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 09:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10574861D874DF95E071AA32CBCADB261E7D5C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279472   (765151) от 30.01.2019
 
 ДиДюЛя - Седьмое чувство (2019) [MP3|320 Kbps] <Instrumental, Flamenco>
@@ -568,180 +742,6 @@ VA - Сегодня на радио хиты FM Vol.3 (2019) [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86243C215EA149ADD141CBEBE5370BEB3234ECC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521535   (764271) от 03.01.2022
-
-Joe Dassin - Compilation (2020) [MP3|320 Kbps] <Pop, Chanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marie-Ange (Fallen Angel)
-02. L'albatros
-03. Quand On Sera Deux
-04. La Ligne De Vie(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D098361EF5D3937E3AD1602DD783709A5366229B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126765   (764252) от 19.04.2017
-
-VA - My Favourite Hits of 1968 (10CD) от DON Music (2017) [MP3|320 Kbps] <Blues Rock, Pop, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764252.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Beatles - Lady Madonna (02:16)
-002. Tom Jones - Delilah (03:21)
-003. Deep Purple - Hush ! (04:25)
-004. Paul Mauriat - Alouette (02:11)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues Rock, Pop Rock, Pop, Chanson, Easy ListeningПродолжительность: 11:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE26FBC656E8430C88CB38BB41815582F43DC5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214488   (764146) от 22.03.2018
-
-VA - Moon Walk (2018) [MP3|320 Kbps] <House, Deep House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amx - Feeling Down
-02. Moonsound - Say My Name (Manuel Riva Remix)
-03. Paale - Patience Is A Virtue
-04. Sound Knight - Plastic City (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, Progressive HouseПродолжительность: 05:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457BA7BC4273B2E03338AB5CB8906DA26A295A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214509   (764071) от 22.03.2018
-
-VA - AmBeat Party (2018) [MP3|320 Kbps] <Club House, Progressive House, Big Room>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kisma - Fingertips
-02. Calum Scott - You Are The Reason (MOTi Extended Remix)
-03. Lost Frequencies & Zonderling - Crazy (Dash Berlin Extended Remix)
-04. Kaaze Ft. Elle Vee - Opera (Instrumental Mix)(   Читать дальше...   )Жанр: Club House, Progressive House, Big RoomПродолжительность: 05:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36214D3FA45FB259B19782C8EC854D6606F7D898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214510   (763998) от 22.03.2018
-
-VA - Best Vocal Trance 2018 Vol.2 (2018) [MP3|320 Kbps] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Phil Dinner  -  Playing With Your Heart (Extended Mix)  7:04
-02.  Maes-tro & Christine Tran  -  Ocean Tides (Giuseppe Ottaviani Remix)  6:33
-03.  Aly & Fila with Sue McLaren  -  Surrender (Extended Mix)  7:29
-04.  Costa feat. Veronica K  -  The Missing Piece (Extended Mix)  7:00(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB880286EA599228E10090159E8633762827AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214464   (763997) от 22.03.2018
-
-VA - Best Club Hits of February (2018) [MP3|320 Kbps] <Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Active Surfers - Everyday In My Lie (Original Mix)
-02. Froidz - Easy Lover (Danny Dove Remix)
-03. Newclaess - Be The One (Extended Mix)
-04. Luis Fonsi & Demi Lovato - Echame La Culpa (Nejtrino & Baur Remix)(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 04:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F6EBCA16C92B30BDDD2B3B519F47B1CD11E2279
 ```
 
 https://mybot314.ru/tekegram_catalog/

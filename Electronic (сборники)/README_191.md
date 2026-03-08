@@ -1,3 +1,32 @@
+###  Публикация: 1343127   (220226) от 05.12.2019
+
+VA - Madjestic Drum And Bass (2019) [MP3|320 Kbps] <Drum And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220226.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Forge - Are You Ready
+002. Shisdess - Speak To Me
+003. J Select - Unruly
+004. Bro Safari - The Drop(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 15:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC584B038A9ADDD602A2211A6D4AF1C78DFCFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585662   (219956) от 23.10.2022
 
 VA - Autumn Light Deep (2022) [MP3|320 Kbps] <Deep House>
@@ -722,35 +751,6 @@ VA - Beatport Electro House December Pack #01 (2019) [MP3|320 Kbps] <Electro Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F307EC2040D045BE04B2F45E961A0F90B433DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343338   (218478) от 06.12.2019
-
-VA - EDM Hardstyle For Heavy Fitness (2019) [MP3|320 Kbps] <Hard Dance, Hardstyle, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218478.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aksys - Kick The Choir
-002.  Stereotype - Primal Instinct (Radio Edit)
-003. Dj Mad Dog - The Missing Channel (Original Mix)
-004. Dr. Peacock - Trip To Poland(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, EDMПродолжительность: 08:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C47E7D409611DE3A043646853354EDF0E579E4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

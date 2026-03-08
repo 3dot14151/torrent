@@ -1,32 +1,3 @@
-###  Публикация: 1164433   (441311) от 09.09.2017
-
-Tori Amos - Native Invader (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reindeer King
-02. Wings
-03. Broken Arrow
-04. Cloud Riders(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFA157DF9171D008B875C934374B73F5C850959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164430   (441297) от 09.09.2017
 
 Би-2 feat. John Grant - Виски (2017) Single [MP3|320 Kbps] <Rock>
@@ -738,6 +709,35 @@ Disc 3 - Gathered Around the Oaken Table (1999)Жанр: Viking, Black MetalПр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E4A7BE5DD33837787BA010F86E0C9637087E2C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409847   (440445) от 19.09.2020
+
+The Last Reign - Evolution (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genesis [00:03:21]
+02. Evolution of a Decaying Race [00:04:45]
+03. Annihilation of the Ancients [00:05:34]
+04. Ironclad Torment [00:05:00](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B6CD28B1FB5462E772E47445DB8E7134F6CF217
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1276909   (787019) от 19.01.2019
+
+VA - Dreamlover vol.1 (1994) [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Adams - Please Forgive Me
+02. Mariah Carey - Without You
+03. Michael Bolton - Said I Love You ... But I Lied
+04. Roxette - Almoust Unreal(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7566DB9ACDD176A03D3FC8CF24EBC40A167F024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277091   (787002) от 19.01.2019
 
 Sarah Brightman - Hymn (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
@@ -716,35 +745,6 @@ Giorgia - Oronero Live (2018) Deluxe Edition [FLAC|Lossless|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:099B3B77A4651CD5E7E86584C47954269A9B9756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207476   (780568) от 18.02.2018
-
-DJ Piligrim - 3 Albums (2011-2014) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Way
-02. Yulduz (feat. Lola)
-03. Ты Да Я...
-04. Я Дышу Сердцем(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7024447AE7F2EDF8E9BDF22345C4BEAFF3EDBEA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

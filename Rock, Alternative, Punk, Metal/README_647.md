@@ -1,117 +1,3 @@
-###  Публикация: 948614   (411264) от 20.10.2015
-
-Тараканы! - Что я могу изменить? (2015) Single [MP3|320 кб/с]<Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заглавный трек сингла — это антимилитаристский гимн группы, впервые исполненный еще в марте этого года, но представленный широкой общественности в своем законченном виде только на летнем фестивале «Нашествие». Вторым номером сингла значится кавер-версия классической антивоенной песни авторства Аркадия Островского и Льва Ошанина «Солнечный круг», более известная как (   Читать дальше...   )01. Что я могу изменить?
-02. Солнечный кругЖанр: Punk RockПродолжительность: 00:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9BB8F7A0939B8DFDF582F63CBD82A8AA468FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252147   (411163) от 04.10.2018
-
-Дядя Ваня - #Люди (2018) [MP3|320 Kbps] <Rock, Hard Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Комнатный рок
-02. Восток
-03. Вой-На
-04. Человек-сигарета(   Читать дальше...   )Жанр: Rock, Hard Rock, SkaПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1251D5E33D5E069460A352B17244C2D76DA87FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252154   (411154) от 04.10.2018
-
-Дядя Ваня - Воля (2015) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воля
-02. Короткая ночь
-03. Битва титанов
-04. Зачистка(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Blues Rock, Blues, Country RockПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E85D5BD8683E2B79662966398AFFEB11600FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252145   (410827) от 04.10.2018
-
-Дядя Ваня и группа One Hell Thing - The Best #1 (2009) [MP3|320 Kbps] <Blues Rock, Blues, Reggae>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поезд Питер-Брест
-02. Дворник
-03. Декольте
-04. Не называй(   Читать дальше...   )Жанр: Blues Rock, Blues, Rock, ReggaeПродолжительность: 00:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C96FE19796B49F25540022414846B33035E7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251812   (410819) от 04.10.2018
 
 Ice Nine Kills - The Silver Scream (2018) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
@@ -739,6 +625,122 @@ Machine Head - ØF KINGDØM AND CRØWN & Bonus Tracks (2022) [FLAC 2.0|48/24|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9B7C3125FC26D9098C17F51DDD2181A17AA4155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573604   (410475) от 01.09.2022
+
+Teen Suicide - honeybee table at the butterfly feast (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop, Rock, Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. you were my star [00:01:01]
+02. death wish [00:02:44]
+03. get high, breathe underwater (#3) [00:03:51]
+04. unwanted houseguest [00:03:33](   Читать дальше...   )Жанр: Pop, Rock, Alternative & IndieПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A5B36E06763CC7093FC9106AA00FB26327ECF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573536   (410413) от 01.09.2022
+
+Nightwish - Oceanborn (1998) Remaster, 2015, Spinefarm Records [OGG Vorbis|485 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stargazers	4:27
+02. Gethsemane	5:21
+03. Devil & The Deep Dark Ocean	4:46
+04. Sacrament Of Wilderness	4:12(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F5CAC289D269312830A67D4BA1F71D027544C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573721   (410411) от 01.09.2022
+
+Ghost Wish - Dimension (2022) [MP3|320 Kbps] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exogenesis (04:04)
+02. Event Horizon (04:28)
+03. Paradox (02:58)
+04. Oblivion (04:00)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C7D783A33AFD3D9F5EF48930E38031380A7432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573726   (410408) от 01.09.2022
+
+Mad Max - Wings Of Time (2022) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Hot To Handle (4:11)
+02. Days Of Passion (4:55)
+03. A Woman Like That (3:13)
+04. Best Part Of Me (3:00)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23294E2910B9AB2E42F554E5C912C1786725A01
 ```
 
 https://mybot314.ru/tekegram_catalog/

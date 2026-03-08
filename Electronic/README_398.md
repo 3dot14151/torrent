@@ -1,3 +1,61 @@
+###  Публикация: 1372123   (242030) от 03.04.2020
+
+Synthatic - Take A Ride (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242030.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Take A Ride (7:33)
+2. Deeper (5:21)
+3. This Is The Time (5:48)
+4. Synthatic; Tijah - Trust Me (6:07)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9A1E63823213BBDCA805A7C69C366F56A5EF67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108620   (241974) от 25.02.2017
+
+Craig Connelly - One Second Closer (2017) [FLAC|Lossless|WEB|tracks] <Trance , Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Connelly - Alive (4:41)
+02. Craig Connelly feat. Emma Connelly - We Are (6:51)
+03. Craig Connelly feat. Kat Marsh - Light The Way (4:55)
+04. Craig Connelly feat. Jessica Lawrence - How Can I (6:33)(   Читать дальше...   )Жанр: Trance , Progressive TranceПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A045ECA18450345E6019282C1BEAF86777B4A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617745   (241894) от 08.03.2023
 
 Vosh - Vessel (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Darksynth, Synthpop, Gothic, Industrial, Post-Punk>
@@ -687,64 +745,6 @@ VA - Black Hole Trance Music 03-23 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EEBDAEF7EA187EE6B68D9949CE4D100F37ED951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390465   (241336) от 16.04.2022
-
-VA - Electrozombies Records • Compilations Collection - 14 Releases (2016-2022) [MP3|320 Kbps] <EBM, Darkwave, Synthpop, Futurepop, Synth Wave>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241336.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Apop We Love You (A Tribute to Apoptygma Berzerk)
-2016 - Prism (A Tribute to Pet Shop Boys)
-2017 - Ultra > Angel (A Tribute to Depeche Mode)
-2017 - Universe > Spirit (A Tribute to Depeche Mode)(   Читать дальше...   )Жанр: EBM, Darkwave, Synthpop, Futurepop, Synth WaveПродолжительность: 17:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:005AA25A4222CD7994F9A9EB9AF73D37953E5B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618740   (241334) от 12.03.2023
-
-Toxxic Project - Secrets of Planet Helios (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Formalhaut [00:04:43]
-02. Sentinels [00:04:25]
-03. Crystal Sands [00:05:22]
-04. S.S. Helios [00:03:52](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA45BB413DED9B7F471F8309F84FDD25856852C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

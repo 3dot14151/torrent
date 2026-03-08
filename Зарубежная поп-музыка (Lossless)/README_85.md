@@ -1,3 +1,32 @@
+###  Публикация: 1690723   (123781) от 08.01.2024
+
+Penfield - We All Fall Apart (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Caleb + Sophia
+02 - Hang On
+03 - We Belong
+04 - We All Fall Apart(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7B2C2EF3D0FA575F80C903109A95F6F2EC9FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688158   (121938) от 20.01.2024
 
 A-HA - Hunting High And Low (1985) 1st German Press Gold disc [APE|Lossless|image + .cue] <Pop>
@@ -714,35 +743,6 @@ Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:346B7E2318A4B807F6ECD46A4AC2F5688374CC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702159   (116016) от 23.02.2024
-
-Al Corley - Square Rooms (1984) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Square Rooms (03:42)
-02. Hungry for Your Love (04:13)
-03. Lie Detector (03:31)
-04. One of a Kind (05:33)(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFCEDB3F613904BD03518B1B83BE13269522D59
 ```
 
 https://mybot314.ru/tekegram_catalog/

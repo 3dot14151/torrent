@@ -1,3 +1,119 @@
+###  Публикация: 1214037   (766548) от 19.03.2018
+
+VA - Kiss FM: Top 40 / Mарт (2018) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Post Malone feat. 21 Savage  -  Rockstar (Ilkay Sencan Remix)  4:10
+02.  Platon feat. Joolay  -  Taking Me Higher  4:25
+03.  Vanotek feat. Eneli  -  Tara  3:34
+04.  Matt Nash & Delayers  -  Run  4:02(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 02:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9ADEF868CFA5447C0898CC37E9F8EC3818323B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279420   (765962) от 29.01.2019
+
+VA - Самые скачиваемые треки ВКонтакте Зима (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Rag'n'Bone Man - Giant 3:48
+002. Gimmy Weaver feat. Tony T. - It's Your Night 3:17
+003. Nexeri feat. November Lights - You & I 3:46
+004. Adam K & Soha - Need To Feel Loved 3:15(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EEDA041CECF832904683D6300AB3CB86D9A4C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214129   (765768) от 20.03.2018
+
+VA - The Ultimate Classic Deep House (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765768.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Matt Darey - One More Night in Stars
+002. Abriviatura IV - Bringing Me Down (Original Mix)
+003. Haldo feat. Leggo Thomas - A Better Place (Steven Stone Remix)
+004. Forced Voyage - Why Did You Do It (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 13:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B192B068845AFD128365212800433EAA6119EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279600   (765466) от 30.01.2019
+
+VA - German Top 50 Party Schlager Charts 28.01.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Maite Kelly - Die Liebe Siegt Sowieso
+03. Kerstin Ott - Regenbogenfarben
+04. Maite Kelly - Heute Nacht für immer(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA464CC1C067BA665749BF424BD026AC53DD9BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394094   (765426) от 03.07.2020
 
 VA - Music News vol.25 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -626,122 +742,6 @@ VA - Rock & Chill (2020) [MP3|320 Kbps] <Rock, Pop, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F11A480B9E9DBBEF2309D13BA0159CDBA5AD7111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279992   (763526) от 01.02.2019
-
-VA - Billboard Hot 100 Singles Chart 02.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763526.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Travis Scott - SICKO MODE
-002. Halsey - Without Me
-003. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
-004. Ariana Grande - thank u, next(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B17CCBA872E1CEE3A93AD3F8849D1D70D2310E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017175   (763262) от 16.05.2016
-
-VA - Weekend Anthems - 40 Party Floorfillers (2016) [MP3|320 кб/с] <Tropical, Club, Vocal, Melodic, Nu Disco, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oleska & Otter Berry - Far Behind 03:31
-02. Cosmo & Skoro feat. Nathan Brumley - Feel So Deep (Alexey Lexx Remix) 04:16
-03. Amersy And Romeo Blanco - Change (Romeo's TML Radio Edit) 03:04
-04. Alan Walker Feat. Iselin Solheim - Faded (Tiesto Deep House Remix) 04:30(   Читать дальше...   )Жанр: Tropical, Club, Vocal, Melodic, Nu Disco, Indie DanceПродолжительность: 03:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F86196EEB32277BA471B15F25332658FA832C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521652   (763218) от 04.01.2022
-
-VA - Winter Car Music 2022 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arem Ozguc, Arman Aydin, Jordan Rys - Astronaut In The Ocean
-02. Onur Atli, J R - STAY
-03. ATB, Topic, A7S - Your Love (9PM)
-04. Tamer Kaan, Jordan Rys - Blinding Lights(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA10A4EE4F4DF816B632B9C60CFF296FFADB992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214856   (763183) от 23.03.2018
-
-VA - This Wild West (2018) [MP3|320 Kbps] <Funk Blues, Rock Blues, Country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arthur Neilson — When It's Over
-02. Sunny Sweeney — Better Bad Idea
-03. The Cadillac Three — This Accent
-04. Heart & Feather — Cold Wind(   Читать дальше...   )Жанр: Funk Blues, Rock Blues, CountryПродолжительность: 03:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CEF9CEFE09E2FB3968DE0BA8326B96B8B246BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

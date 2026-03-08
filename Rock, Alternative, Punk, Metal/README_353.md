@@ -1,32 +1,3 @@
-###  Публикация: 1021722   (731987) от 30.05.2016
-
-VA - Greatest Oldies 70's (unknown year) Unofficial Release [APE|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steely Dan - Do It Again
-02. Gilbert O'Sullivan - Get Down
-03. Elton John - Crocodile Rock
-04. Albert Hammond - It Never Rains In Southern California(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA359A15387001FA23929DD8A6D2F9C542635B65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021665   (731986) от 30.05.2016
 
 Bonnie Tyler - The Very Best Of (1993) [APE|Lossless|image + .cue] <Pop Rock>
@@ -742,6 +713,35 @@ Brymir - Slayer Of Gods (2016) Japanese Edition [MP3|320 кб/с] <Symphonic Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:778E4352A1C548A7C281A256668E190DDBF2089E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283606   (730960) от 19.02.2019
+
+Steve Hackett - At The Edge Of Light (2019) Limited Edition, Mediabook [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallen Walls And Pedestals (2:17)
+02. Beasts In Our Time (6:21)
+03. Under The Eye Of The Sun (7:07)
+04. Underground Railroad (6:23)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87895CD15C7F9AEC7012B9D03EA766E2CC7BA2EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

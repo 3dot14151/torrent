@@ -1,3 +1,32 @@
+###  Публикация: 1617221   (1035558) от 05.03.2023
+
+Various - Here It Is: A Tribute To Leonard Cohen (2022) [FLAC|Lossless|image + .cue] <Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продюсер Ларри Кляйн отдает дань уважения своему другу Леонарду Коэну, выпустив альбом, который представляет потрясающие новые исполнения композиций легендарного певца и автора песен в исполнении экстраординарного состава вокалистов.01. Norah Jones — Steer Your Way
+02. Peter Gabriel — Here It Is
+03. Gregory Porter — Suzanne
+04. Sarah McLachlan — Halleluja(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE33E170C44A58EBCD0961721604CA4946B0B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617573   (1035008) от 07.03.2023
 
 Grace Jones - Hurricane (2008) [FLAC|Lossless|tracks + .cue] <Pop, Reggae>
@@ -716,35 +745,6 @@ Pentatonix - The Lucky Ones (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90FD2381D6D787FDA34F29BF284F75566FB8077E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447880   (1031329) от 15.02.2021
-
-Sia - Music (Songs From And Inspired By The Motion Picture) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Together
-02. Hey Boy
-03. Saved My Life
-04. Floating Through Space (feat. David Guetta)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38BCB79C193C1CCDEEC3054094B4D8D1E79386A
 ```
 
 https://mybot314.ru/tekegram_catalog/

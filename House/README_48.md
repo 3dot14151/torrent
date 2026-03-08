@@ -1,3 +1,38 @@
+###  Публикация: 548464   (463331) от 20.09.2012
+
+VA - DJ Antoine - Live In Bangkok (2008) [MP3|~190 кб/с (V2)]<Electro House / House / Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Antoine - Back From The Tour 2:25
+02. DJ Antoine - December (Original mix) 3:05
+03. DJ Antoine - Bangkok Street Party (Every Sensation) (Original mix) 3:08
+04. DJ Antoine - On My Way (Original mix) 3:42
+05. Remady "P&R" - I"m Not A Superstar (Mr.Pink remix) 2:50
+06. DJ Antoine - One Night In Bangkok (Original mix) 3:12
+07. DJ Antoine - Figaro (Original mix) 2:59
+08. Remady "P&R" - What Ever (Gated Vocal edit) 2:38
+09. DJ Antoine - Don"t You Hide (Original mix) 3:25
+10. DJ Antoine vs Mad Mark - Be Yourself (Original mix) 5:05(   Читать дальше...   )Жанр: Electro House / House / Progressive HouseПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879645B879D43D5DFC777C5E8C3E8D3AE09D6A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 388171   (463248) от 15.09.2011
 
 DJ Грув - Я верю (2011) [MP3|320 kbps]<Progressive House, Electro House>
@@ -746,35 +781,6 @@ Armada Deep - Ibiza Closing Party (2018) [MP3|320 Kbps] <Minimal,Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17A4701124F6890D53DB314F03E76F3141E72DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322469   (448379) от 29.08.2019
-
-VA - House Classic Hits Summer Playlist (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bacci Bros. - Joy And Pain (Original Mix) 6:55
-02. The Miami Collective feat. Angie Brown - Never Gonna Give Up (Dub Mix) 6:45
-03. Barbara Tucker - Spread Love (Ferrari Mix) 7:39
-04. Carlos Rubio - The Feeling (Jack Da House Mix) 7:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F8E8363ACD5998DE06E3D666EF3CCDB06C9255
 ```
 
 https://mybot314.ru/tekegram_catalog/

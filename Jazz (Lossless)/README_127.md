@@ -1,3 +1,38 @@
+###  Публикация: 522131   (625044) от 12.07.2012
+
+Blake Aaron - Desire (2007) [FLAC|Lossless]<Smooth, Pop-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bumpin' On The Wes Side
+02. Come On Over
+03. Will I Go 'Round In Circles
+04. Shine
+05. If You Were Mine
+06. In Her Sweet Way
+07. Desire
+08. Forever
+09. There Will Come A Day
+10. Baby Likes The Blues(   Читать дальше...   )Жанр: Smooth, Pop-JazzПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522173   (625031) от 12.07.2012
 
 Blue Knights - Night Talk (2000) [FLAC|Lossless]<Smooth Jazz>
@@ -722,35 +757,6 @@ Blue Mitchel - Blue Mitchel (1971) 2014, Boplicity Records [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:281F9F46C7370FAA927E1A8A2D74557B328EFF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229933   (620970) от 09.06.2018
-
-Andre Hodeir - Essais Par Le Jazz Groupe De Paris (1949 - 1954) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cross Criss [4:01]
-02. Paraphrase Sur Saint-Tropez [4:22]
-03. On A Standard [3:44]
-04. Esquisse I [2:39](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1341D26AC1BCC851E27501CC184F9A23BA937C77
 ```
 
 https://mybot314.ru/tekegram_catalog/

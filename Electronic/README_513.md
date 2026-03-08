@@ -1,3 +1,59 @@
+###  Публикация: 1802921   (65944) от 20.06.2025
+
+VA - Ori Uplift - Uplifting Only Episode 645 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ADOVE – Lavender Field (Intro Edit) (Pre-Release Pick)
+02. Ronny K. vs Ziki – Memories (New World Remix)
+03. Twin View – Papillon (Sergey Salekhov Remix)
+04. XiJaro & Pitch – Unite Again (Corrado Baggieri Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADC51E9C463960D0538531FEAF4C93D0D699ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803181   (65926) от 21.06.2025
+
+Sander van Doorn - Punk'd (2004) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Punk'd (S.V.D. Remix) 10:43
+02 Punk'd (Original Mix) 11:33Жанр: TranceПродолжительность: 22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BA6B02B6116FB792A2BAE3842AF7C179B0A22D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803298   (65863) от 22.06.2025
 
 VA - Sounds Like Summer, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -685,64 +741,6 @@ Oliver Heldens - Live  @ Marquee Skydeck, The Edge NYC, United States (2025-06-2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3172B37F0B733E7879BD73E426523916F73F3C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806285   (65386) от 12.07.2025
-
-Steve Angello - Live @ Ibiza Global Festival, Spain (2025-07-05) [MP3|320 Kbps] <Tech House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia ft. Sting - Redlight (Intro Edit)
-02. Steve Angello & Sebastian Ingrosso - Tear The Club Up
-03. Magnificence & Corey James ft. Rion S - Time Machine
-04. Yaro vs. Travis Scott & Kendrick Lamar vs. Zombie Nation & James Hype - Deep vs. Goosebumps vs. Kernkraft 400 (Axwell Mashup)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 01:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C6DA02612573EDE5EDE3B2FA6A0E77AE0D667F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806283   (65384) от 12.07.2025
-
-Markus Schulz - Global DJ Broadcast World Tour (Ciné Saigon, Vietnam) (2025-07-10) [MP3|320 Kbps] <Trance, Techno, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kay D. Smith & Marc Tall - Hoipolloi (Ben Gold Remix)
-02. Zhu - Faded (HNTR Edit)
-03. Joy Orbinson - Flight FM (Danny Avila Remix)
-04. Anyma & Argy & Son Of Son - Voices In My Head(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 01:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C4F45AA86DDB67DE7895D7F58A2D044FCD0A8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

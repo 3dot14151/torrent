@@ -1,3 +1,177 @@
+###  Публикация: 1317893   (498573) от 03.08.2019
+
+VA - Empire Records - Church 3 (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emma McGrath - Other Side
+02. Imagine Dragons - Natural
+03. Leann Rimes - Humbled
+04. Billie Eilish - When the Party's Over(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB812BF21588831F62E1AA29178AAA641E41096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317761   (498571) от 03.08.2019
+
+VA - не Громкие новинки недели 28 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498571.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Aletov - Мало Тебя (2:14)
+2.Andgelina Di - Звезда (3:40)
+3.Ars-N - На Краю (3:08)
+4.A-Sen - Вызови Такси (3:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CF828189DA7E9FCFC90E7C9ED0EC7D86492661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564732   (498530) от 20.07.2022
+
+VA - Celestial Drift: Clubbing Disco Set (2022) [MP3|320 Kbps] <Club, Dance, Synthdisco, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond The Struttosphere - Celestial Drift
+02. Switchvilla - Free
+03. Frank Hatchett - Which Way Is Up
+04. Frank Hatchett - Stratus(   Читать дальше...   )Жанр: Club, Dance, Synthdisco, ElectronicПродолжительность: 08:19:31 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670F29B08F155706105CA7E03FBBAEB09A366A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564652   (498526) от 20.07.2022
+
+VA - 2047 Spacehawk (2022) Compiled by mCITY [MP3|320 Kbps] <Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koto - Tron (D.J. Version) (6:56)
+02. Future Synth - Lost Astronauts (6:33)
+03. Lars La Ville - Roger (La Ville Radio Edit) (3:43)
+04. Nick Spirit - Far Beyond Space (4:01)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D72295FEAE89F80CA80DFD93C4DC263D31E10C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564742   (498522) от 20.07.2022
+
+VA - Dance Selected Summer (2022) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cast feat Ansony Martinez & J Peralta - Es una bomba (Prioli concept)
+02. Damian Breath feat Tom Bright - When You're Calling (Extended Mix)
+03. Dave Rodgers - Dancing In The Fire (Choreo 2020 Version)
+04. Del Prez & Eleanor May - Self Destruct(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 03:18:16 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB57275244BC445C4A5064CC1B135AB2E2E31522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564617   (498520) от 20.07.2022
+
+Ten Sharp - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You
+02. Beautiful
+03. Rumours In The City
+04. Stay(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189AAFD3EE7AEFF27661A12C18636BA922D35BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934773   (498512) от 09.09.2015
 
 Various Artists - Guitars & Machines (1995) [MP3|192 кб/с]<EBM, Industrial>
@@ -606,183 +780,6 @@ VA - Осенний звездный Hit-парад (2015) [MP3|256-320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8652420ABC1995821E52542C4729716F65A2FF53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935914   (497267) от 10.09.2015
-
-VA - Лучшая Музыка прямиком из Клубов (2015) [MP3|320 кб/с]<Club, Dance, Trap, House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497267.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Er$ & Soniye - Combo (Original Mix)
-002. Bazzbusterz - Bomb The Bass (Club Version)
-003. Akcent feat. Lidia Buble & Ddy Nunes - Kamelia (DJ Ackym Mombahton Remix Edit)
-004. Akcent feat. Meriem - Dilemma (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, Trap, House, Electro HouseПродолжительность: 07:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39765B10808917FA27DB1F8E49534FE435E7DA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 190660   (497145) от 10.09.2015
-
-VA - Arabian Club Night (2010) [MP3|256 kbps]<Pop | Club | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_497145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop | Club | DanceПродолжительность: 05:58:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542847   (497131) от 04.09.2012
-
-VA - The Best From Need For Speed (2012) [MP3|140-320 кб/с]<Rock, Electro, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petey Pablo - Need For Speed
- 02. Buraka Som Sistema feat. Pongolove - Kalemba (Wegue - Wegue)
- 03. Overseer - Doomsday (Album version)
- 04. Rancid - Out of Control
- 05. Snoop Dogg ft The Doors - Riders on the Storm(fredwreck remix)
- 06. Styles of Beyond - Nine Thou (Superstars remix)
- 07. Lil Jon & the Eastside Boyz - Get Low
- 08. Anberlin - We Owe This To Ourselves
- 09. Amon Tobin - Mighty Micro People
- 10. Ekstrak feat. KNOW-1 - Hard Drivers(   Читать дальше...   )Жанр: Rock, Electro, RapПродолжительность: 08:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1B5C178F3A370FF7A7771918B6C7C60F6168E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565220   (496715) от 22.07.2022
-
-VA - HarDD NRG OverDoZZe 8 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance, Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496715.jpg" />
-</div>
-
-
-###  Подробнее
-
-(+*CUE)
-01 The Unknown - Raising Cain (Original Mix) (BLACK ICE,2000)
-02 Yves Deruyter - Music-Non-Stop (Push Remix) (BONZAI,2002)
-03 Orbit Catcher - We Are Free (Mr Sam's Space Traveller Mix) (INTENSIVE MUSIC,2004)(   Читать дальше...   )Жанр: Trance, Hard Trance, HardstyleПродолжительность: 02:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7536B6E509301E94775C4F8ACF2046CA02E0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564860   (496712) от 22.07.2022
-
-VA - В машине с музыкой Vol.286 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Соланж  - Простить
-02. Ed. Breezy - Рафинад
-03. Ari Sam Vii - Звони В Такси
-04. Mahmut Orhan Feat. & Selin - Donmem Ben Sana(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:32:30 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A219264B41796E33820ED08579012192F5E443A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564857   (496711) от 22.07.2022
-
-VA - В машине с музыкой Vol.287 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babushka Misha   - Ты - Я
-02. Lianto  - В Душе Туман
-03. Noon  - La La Land
-04. Grzegorz Hyzy  - I Ten Numer Na Lato(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:33:55 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E3F35747373C5CCE666EF3667558DC624920DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

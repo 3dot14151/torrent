@@ -1,3 +1,29 @@
+###  Публикация: 1345541   (165481) от 16.12.2019
+
+Mylene Farmer 2019 – Le Film (2019) BDRip [H.264/1080p-LQ] [PR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165481.jpg" />
+</div>
+
+
+###  Подробнее
+
+После шестилетнего перерыва Милен Фармер триумфально вернулась на сцену, дав серию концертов в знаменитом парижском La Defense Arena — самом большом зале Европы. В программу вошли как уже любимые публикой хиты, так и песни из нового альбома.Производство: Франция / Stuffed Monkey, Sony MusicЖанр: Pop, КонцертРежиссер: Франсуа АнссСубтитры: ОтсутствуютПродолжительность: 02:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B92D114A46C16DA189EC7CB615AE07EA6F6B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516935   (164319) от 13.12.2021
 
 Квартирник НТВ у Маргулиса. Дана Соколова  (11.12.2021) WEBRip [H.264/1080p]
@@ -691,41 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F87D653D1B14E0E9AA882841EBFFD5DF9D9FF8C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588262   (156800) от 13.12.2012
-
-Hammerfall: Gates of Dalhalla (2012) [1080p] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_156800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сто тридцати пяти минутное шоу, которое группа дала 28 июля в честь своего пятнадцатилетия в Шведской деревушке Rattvik снял Шведский режиссер Patric Ullaeus.01. Patient Zero
-02. Heeding The Call
-03. Any Means Necessary
-04. B.Y.H.
-05. Riders Of The Storm
-06. Let's Get It On
-07. Crimson Thunder
-08. Renegade
-09. Blood Bound (special guest: Stefan Elmgren)
-10. Last Man Standing (special guest: Stefan Elmgren)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:21:20
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

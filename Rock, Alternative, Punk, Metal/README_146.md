@@ -1,32 +1,3 @@
-###  Публикация: 1278316   (977534) от 31.01.2020
-
-Devin Townsend - 26 Albums, 8 Compilations & Live, 4 EPs & Promos (1996 - 2019) 68CD [FLAC|Lossless|image + .cue|tracks+.cue] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девин Гаррет Таунсенд (англ. Devin Garrett Townsend, родился в городе Нью-Уэстминстер 5 мая 1972 года) — канадский певец, гитарист и продюсер. Характерным для его композиций жанром является прогрессивный метал, хотя музыкант не ограничивает себя рамками какого-то одного направления в музыке. Его произведения подвержены влиянию многих жанров, среди которых эмбиент, (   Читать дальше...   )Список альбомов:
-1995 - Heavy As A Really Heavy Thing
-1996 - Punky Bruster
-1997 - City(   Читать дальше...   )Жанр: Progressive Rock, Progressive Metal, Industrial Metal, Thrash Metal, Heavy Metal, Ambient, FolkПродолжительность: 41:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F433C22BB5D8E90DFE86161654D03BABFA95898C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615523   (977506) от 08.02.2013
 
 David Knopfler - Songs for the Sire (2006) [FLAC|Lossless]<Rock>
@@ -778,6 +749,41 @@ Evans Blue - 4 Альбома (2006-2012) Дискография [FLAC|Lossless]
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615480   (975953) от 09.02.2013
+
+Marty Friedman - 11 albums (1988-2011) Discography [MP3|224 - 320 кб/с] <thrash/speed/instrumental neoclassical metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975953.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.   Tsume Tsume Tsume (5:27)
+2.   GIFT (4:24)
+3.   Amagigoe (4:21)
+4.   Story (5:01)
+5.   Polyrhythm (4:36)
+6.   Kaeritakunattayo (5:55)
+7.   Tsunami (4:54)
+8.   Yuki No Hana (4:01)
+9.   Eki (4:45)
+10. Sekai Ni Hitotsu Dake No Hana (4:16)(   Читать дальше...   )Жанр: thrash/speed/instrumental neoclassical metalПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750B0288E733FBB55E88A27594B1FF24F1DB78CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

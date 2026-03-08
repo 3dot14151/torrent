@@ -1,3 +1,61 @@
+###  Публикация: 1562158   (511486) от 08.07.2022
+
+VA - Digitally Enhanced Volume Seven (Mixed by Farius & Elevven) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lycii & Demi & Verest – Escape
+02. DT8 Project – Half Awake
+03. Notaker – The Distance
+04. Kudus & Farius – Select Player Mode(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 03:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FC3011B5C510EAAFE5EFA7E9753F244BBC2DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562215   (511485) от 08.07.2022
+
+VA - Milk & Sugar Summer Sessions 2022 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Sinclar - Save Our Soul (Extended Rework 2021) (4:34)
+02. Milk & Sugar - Riding High (Milk & Sugar Re-Rub) (5:26)
+03. David Penn - Losing You (Crusy & Kpd Remix) (5:51)
+04. Ben Delay feat. Tess Leah - Before I Let Go (Superdope Extended Remix) (5:09)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0AD11FA606B4A6A54BB2E52D3C840E6A80425EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315599   (510982) от 22.07.2019
 
 VA - Future House (2019) [MP3|320 Kbps] <House, Progressive House, FutureHouse, ClubHouse>
@@ -704,64 +762,6 @@ VA - Organic Beats Vol. 1-4 (Compiled by DJ Zen) (2012-2015) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46A256C17B3B9ACB66D0F21194D0CD06157A663E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316312   (506916) от 25.07.2019
-
-Jóhann Jóhannsson (Johann Johannsson) - Fordlandia (2008) Japan [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Contemporary>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fordlandia
-02. Melodia(I)
-03. The Rocket Builder
-04. Melodia(II)(   Читать дальше...   )Жанр: Modern Classical, Ambient, ContemporaryПродолжительность: 01:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186B4130F3B4F58B12EF80178491011DC7672E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563182   (506307) от 12.07.2022
-
-Lucas & Steve & DubVision - Exclusive Mix (2022-07-08) [MP3|320 Kbps] <Big Room, Future House, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucas & Steve & DubVision ft. Joe Taylor - Feel My Love
-02. Arno Cost & Quentyn & Antoine Larsen - Entrevue
-03. DubVision & The Him ft. Rupert Blackman - Sometimes
-04. Oliver Heldens & Tchami & Anabel Englund - LOW(   Читать дальше...   )Жанр: Big Room, Future House, Electro PopПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B091D0F4E4552C4696E9C0485670CB5CA1412154
 ```
 
 https://mybot314.ru/tekegram_catalog/

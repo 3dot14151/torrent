@@ -1,66 +1,25 @@
-###  Публикация: 541160   (501502) от 31.08.2012
+###  Публикация: 1564016   (501675) от 17.07.2022
 
-VA - Just Tell Me That You Want Me: A Tribute To Fleetwood Mac (2012) [MP3|320 кб/с]<Indie, Blues, Rock, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501502.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lee Ranaldo Band Feat. J Mascis - Albatross (4:16)
-2. Antony - Landslide (3:33)
-3. Trixie Whitley - Before The Beginning (4:46)
-4. Billy Gibbons & Co. - Oh Well (4:45)
-5. Best Coast - Rhiannon (3:07)
-6. The New Pornographers - Think About Me (2:55)
-7. Marianne Faithfull - Angel (4:59)
-8. Lykke Li - Silver Springs (4:10)
-9. Karen Elson - Gold Dust Woman (5:42)
-10. Matt Sweeney & Bonnie "Prince" Billy - Storms (4:56)(   Читать дальше...   )Жанр: Indie, Blues, Rock, PopПродолжительность: 01:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3638A8A68E2BC2298B93802ACFCDDF7DFD368D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541110   (501501) от 31.08.2012
-
-Heretic - A Time Of Crisis (2012) [FLAC|Lossless]<Power Metal/Thrash Metal>
+Alestorm - Seventh Rum Of A Seventh Rum (2022) [FLAC|Lossless|image + .cue] <Power Metal, Folk>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501501.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Divine Inquisition (1:02)
-02. Tomorrow's Plague (5:18)
-03. Betrayed (4:38)
-04. Remains (5:21)
-05. A Time Of Crisis (4:33)
-06. For Your Faith (4:38)
-07. Raise Your Fist (4:22)
-08. Heretic (2:29)
-09. Child Of War (3:23)
-10. Police State (3:34)(   Читать дальше...   )Жанр: Power Metal/Thrash MetalПродолжительность: 00:46:09
+Alestorm — фолк/пауэр-метал-группа из города Перт (Шотландия). Песни Alestorm посвящены пиратам, и свою музыку они называют «Настоящий шотландский пиратский метал» (англ. True scottish pirate metal).01. Magellan's Expedition (4:39)
+02. The Battle of Cape Fear River (3:06)
+03. Cannonball (3:57)
+04. P.A.R.T.Y. (3:23)(   Читать дальше...   )Жанр: Power Metal, FolkПродолжительность: 00:43:03
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:60734E813FA423FBCF9AAAEC9FF51D8489A55E46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -68,34 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 541183   (501499) от 31.08.2012
+###  Публикация: 1564020   (501674) от 17.07.2022
 
-Aimee Mann - Charmer (2012) [FLAC|Lossless]<Indie/Rock/Folk>
+Fallen Sanctuary - Terranova (2022) [FLAC|Lossless|image + .cue] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501499.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Charmer (3:26)
-02. Disappeared (3:25)
-03. Labrador (3:49)
-04. Crazytown (3:21)
-05. Soon Enough (3:59)
-06. Living A Lie (Feat. James Mercer Of The Shins) (3:26)
-07. Slip & Roll (4:12)
-08. Gumby (2:53)
-09. Gamma Ray (3:01)
-10. Barfly (4:00)(   Читать дальше...   )Жанр: Indie/Rock/FolkПродолжительность: 00:38:02
+Новая Power Metal группа FALLEN SANCTUARY, которую возглавляют Georg Neuhauser, фронтмен австрийских симфо-металлистов SERENITY, и Marco Pastorino, гитарист итальянских мелодик-металлистов TEMPERANCE выпустили дебютный альбом  "Terranova" 24 июня 2022 года на лейбле AFM.01. Terranova
+02. Now And Forever
+03. Broken Dreams
+04. Rise Against The World(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:51
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:05B51173DE49A0A4FA08A881971B3FFA06182100
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,519 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 541464   (501496) от 31.08.2012
+###  Публикация: 1564158   (501673) от 17.07.2022
 
-VA - Ночной эфир - Выпуск 50/50 (2012) [MP3|320 kbps]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501496.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wynter Gordon - Stimela
-002. Андрей Леницкий &amp; St1ff И Mc Pasha - Любовь Сохрани
-003. Gary Barlow &amp; The Commonwealth Band - Sing
-004. Sandro Monte Feat. Mischa Daniels &amp; J-Son - Simple Man
-005. Lmfao - Party Rock Anthem
-006. Rudimental Feat John Newman - Feel The Love
-007. T.O.T.A.L. И Антитіла - Весна-Любовь
-008. The Saturdays - All Fired Up
-009. Eleni Foureira - Ti Poniro Mou Zitas
-010. Arash Ahangari - Ahange Zamoone(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC4A34633C4E8FDFE090DC382449230301A4E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541161   (501495) от 31.08.2012
-
-VA - Super вечеринка радио Рекорд 50/50 (2012) [MP3|256 кб/с]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Fresh feat. Rita Ora - Hot Right Now (Radio Edit)
-02. Chukie Feat Gregor Salto - What Happens In Vegas
-03. Loreen - Euphoria
-04. Ole van Dansk - Mary's Prayer
-05. Nelly Furtado - Big Hoops
-06. The Party Must Go On (feat. Lori Glori)Жанр: ClubПродолжительность: 06:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C67245B09555479E8E2CDC1C8BEBEA08362F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541774   (501494) от 31.08.2012
-
-Count Indigo – Homme Fatale (2003) [FLAC|Lossless]<House, Downtempo, Synth-pop, Disco>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воистину роковой мужчина ("homme fatale") - знойный мулат, со жгуче сияющим черепом и бородой-эспаньолкой. Граф Индиго! (Настоящее имя - Брюс Маркус). Трепещите, герцогини и пейзанки, дамы и телки! Зажигательное диско, вкрадчивый сексуальный голос и аристократические манеры способны совратить любую. Включая вашу подругу. К счастью, граф далеко. (А.К.Троицкий)01. Trinity, Part II (Bringing Out the Devil) :: 05:27
-02. What Makes You So Special :: 05:21
-03. Low Fidelity :: 04:51
-04. Loving It Back Again :: 03:05
-05. Sly Comforts :: 05:03
-06. Homme Fatale :: 05:46
-07. If I Could Give You Anything :: 04:07
-08. Exclusively Yours :: 04:06
-09. Shopping for Love :: 05:10
-10. Playboys R'Us :: 05:07(   Читать дальше...   )Жанр: House, Downtempo, Synth-pop, DiscoФормат: CD, AlbumПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516521   (501492) от 31.08.2012
-
-Paul Oakenfold - Full On Fluoro 001 - 016 (2011-2012) [MP3|256 кб/с]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full On Fluoro - Intro (00:54)
-02. Day.Din - Halkidiki (04:54)
-03. Day.Din & Alfredo Garcia - Theory Of Mind (05:47)
-04. Paul Oakenfold - Tokyo (06:50)
-05. Vaishiyas - Satisflaxion (04:38)
-06. Neelix vs. PPK - Ask The Right Questions (Dirtyloud Remix) vs. Resurrection (Paul Oakenfold Mash Up) (05:19)
-07. Underworld vs. Danny Corsten - Timeless (03:14)
-08. Zuri vs. Narcotic Influence - Giving Them Drugs (ID Mash Up) (04:38)
-09. Beatman & Ludmilla - In Breaks We Trust (07:11)
-10. Solesystem & El Aero - Birds (Line Of Sight Remix) (05:04)(   Читать дальше...   )01.	Full On Fluoro - Intro	(00:56)
-02.	Lou Pigalle - Brothers In The World	(02:58)
-03.	John Moss - Green Landings	(02:57)
-04.	Adele vs. Paolo Mojo & Eric Prydz - Set Fire To 1983 (Kenneth Thomas Mashup)	(04:40)
-05.	Alessandro - At Night	(04:22)
-06.	Poncho feat. Paul Oakenfold & Maxi Trusso - Please Me (Flesh & Bone Remix)	(05:03)
-07.	Stefano Noferini - That's Good (Christian Cambas Remix)	(03:12)
-08.	School Of Seven Bells - Reappear (Thomas Datt Remix)	(05:08)
-09.	TeeEx - Unbreakable	(04:22)
-10.	Ronski Speed - Proton12 (Maor Levi Remix)	(05:48)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA43659A84B14B9CF812A8156917FCC47FF6701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541682   (501491) от 31.08.2012
-
-PLC - Воздух (2012) [MP3|320 кб/с]<Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Начало
- 02. Первый (при уч. Chest)
- 03. Это Юг
- 04. Время
- 05. Для Тебя (при уч. Nady)
- 06. Город спит (при уч. Nady и Вероника Ли)
- 07. Пепел (при уч. СКВО и А.Труфман)
- 08. Последний день
- 09. Я иду вперед
-10. Воздух(   Читать дальше...   )Жанр: Hip-Hop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC39BCD6D3B4FC69FAEAEC74DC3979F5A71C9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541559   (501490) от 31.08.2012
-
-Landscapes HD Wallpapers (30.08.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E9433F432A0F82D15AC96A96EA4882BB214030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541205   (501489) от 31.08.2012
-
-Get Well Soon - The Scarlet Beast O'Seven Heads (2 CD Limited Edition) (2012) [FLAC|Lossless]<Alternative, Indie Rock, Folk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501489.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Prologue
-02. Let Me Check My Mayan Calendar
-03. The Last Days Of Rome
-04. The Kids Today
-05. Roland, I Feel You
-06. Disney
-07. A Gallows
-08. Oh My! Good Heart
-09. Just Like Henry Darger(   Читать дальше...   )Жанр: Alternative, Indie Rock, FolkПродолжительность: 00:54:18 / 00:18:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541645   (501488) от 31.08.2012
-
-Markus Schulz - Scream (Extended Mixes) (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz - Scream (Extended Mixes) (2012)
-
-Год: 2012
-Жанр: Trance
-Продолжительность: 02:25:13Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Markus Schulz - Our Moment (Intro Mix) (1:36)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A8196BAF70C9BE3EF3E327B20423BE4D7CE182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564240   (501487) от 17.07.2022
-
-InShot - Фото и видеоредактор 1.840.1360 Mod by Apps Store [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501487.jpg" />
-</div>
-
-
-###  Подробнее
-
-InShot - Фото и видеоредактор - очень впечатляющее своими возможностями и удобством приложение, что завоевало стойкую положительную репутацию у пользователей мобильных гаджетов. Проект представляет собой фоторедактор и видеоредактор, а так же обладает функцией превращения статичных изображений в так называемые живые фотографии. Не стоит ожидать от программы внешность (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.07.2022Разработчик: InShot Video EditorЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43281354209FF4C2138F0055C465BD6257156A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463223   (501485) от 17.07.2022
-
-Синяя птица / The Blue Bird (1940) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая история, основанная на германских сказаниях, как брат и сестра ищут Синюю птицу для исполнения своего желания и попадают в разные места и времена. Основан фильм на пьесе бельгийского драматурга Мориса Метелинка (опубликованной в 1908 году и первая экранизация была в 1910 году) и был задуман как ответ на фильм студии "Twentieth Century-Fox", которые (   Читать дальше...   )Производство: США, Twentieth Century Fox Film CorporationЖанр: фэнтези, драма, семейныйРежиссер: Уолтер ЛэнгАктеры: Ширли Темпл, Спринг Байингтон, Найджел Брюс, Гэйл Сондергаард, Эдди Коллинз, Сибил Джейсон, Джесси Ралф, Хелен Эриксон, Джонни Расселл, Лора Хоуп Крюз, Расселл Хикс, Сесилия Лофтус, Эл Шин, Леона Робертс, Джин РейнолдсПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDDBECF1F3DA709EB3C438463034299BA0D67E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317356   (501484) от 31.07.2019
-
-A Hundred Birds - To The EdEN (2007) [MP3|320 Kbps] <Ambient, Jazzdance>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hundred Birds feat. TeN - Feeling Your Bright Light (Album Version) (5:54)
-02. A Hundred Birds feat. TeN - Jungle Kitten (6:24)
-03. A Hundred Birds feat. TeN - Because THe Way Love Is (Album Version) (5:20)
-04. A Hundred Birds - Love Is A Master of Disguise (5:40)(   Читать дальше...   )Жанр: Ambient, JazzdanceПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18B7221388303A74CD6CE170F45F396CDF5C0B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317370   (501483) от 31.07.2019
-
-Anouar Brahem - Blue Maqams (2017) ECM Records [FLAC|Lossless|image + .cue] <World Fusion, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Day [7:01]
-02. La Nuit [10:29]
-03. Blue Maqams [8:42]
-04. Bahia [8:46](   Читать дальше...   )Жанр: World Fusion, Modern CreativeПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20061B5CCEF1348DF3F1FE4049CD0DA95803AD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317282   (501482) от 31.07.2019
-
-maria - Cor e Forma (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (fonte) (1:41)
-02. Padrão de azul (5:17)
-03. Volta (feat. João Tamura) (9:31)
-04. I can feel your green Vibes (3:07)(   Читать дальше...   )Производство: Monster JinxЖанр: Hip-Hop, Instrumental, ElectronicПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7802BEFA054D9044BEEC1BF1BBAB909D9C67010A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564143   (501480) от 17.07.2022
-
-Cockos REAPER 6.64 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEF86BD559528BDD5F18EB275A870CBBB51B393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317301   (501479) от 31.07.2019
-
-Outsidr - Rapture EP (2019) [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twilight (03:42)
-02. Nomad (03:28)
-03. Obsidian (03:51)
-04. Rapture (03:51)(   Читать дальше...   )Жанр: Future Garage, AmbientПродолжительность: 00:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7386965432965AA04A285A2F15AB8795B098A85A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317412   (501475) от 31.07.2019
-
-Туфли с золотыми пряжками (1976) DVD5 (серии 1-2 из 2)
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_501475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец Иванушки плетёт лучшие во всей округе лапти. Своё умение он передал сыну, но что-то грустно стало в последнее время Ивану и он отпросился у родителей сходить на ярмарку, купить себе немного счастья. Деньги — полный кошель медяков, он по дороге истратил. Половину дал разбойникам, чтобы выручить из беды скомороха Тимоню, а другую у него выманил ярмарочный плут. (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: Детский, сказка, мьюзикл, комедияРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Лев Дуров, Александр Хочинский, Вера Кузнецова, Ирина Малышева, Юрий Медведев, Владимир Старостин, Павел Винник, Владимир Герасимов, Петр Бенюк, Георгий ШтильСубтитры: ОтсутствуютПродолжительность: 01:04:02 + 01:04:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564054   (501474) от 17.07.2022
-
-Последняя миссис Андерсон / La ultima senora Anderson (The Fourth Victim) (1971) BDRip [H.264/720p] [AVO]
+Это случилось при свете дня / Es geschah am hellichten Tag (1958) BDRip [H.264/720p] [VO]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501474.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Супруга Артура Андерсона Глэдис погибла при таинственных обстоятельствах, которые дали почву для подозрений против ее мужа. Тем не менее, суд полностью оправдал Артура, несмотря на то, что инспектор Скотланд-Ярда Данфи сделал все, чтобы тот оказался на скамье подсудимых. Вскоре вернувшийся домой мистер Андерсон обнаружил, что в доме по соседству поселилась очаровательная (   Читать дальше...   )Производство: Италия, Estudios Cinematográficos, Filmayer, Tritone CinematograficaЖанр: детектив, мелодрама, триллер, ужасыРежиссер: Эухенио МартинАктеры: Кэррол Бейкер, Майкл Крэйг, Миранда Кампа, Хосе Луис Лопес Васкес, Энцо Гаринеи, Филип Росс, Альберто Фернандес, Мануэль Галлардо, Альберто Гонзалес Эспиноза, Марина МалфаттиПеревод: Авторский (Андрей Дольский)Субтитры: АнглийскиеПродолжительность: 01:28:21
+В лесу, поблизости от дороги найдена убитая девочка. Полиция в растерянности - два похожих убийства, произошедших несколько лет назад, так и остались нераскрытыми. Уличный торговец Жакье сразу попадает под подозрение, хотя именно он указал полиции на местонахождение тела девочки. Но комиссар Маттей уверен в его невиновности. Комиссару показывают рисунок убитой девочки, (   Читать дальше...   )Производство: Испания, Германия (ФРГ), Швейцария, CCC Filmkunst GmbH, Chamartín Producciones y Distribuciones, Praesens-FilmЖанр: драма, криминал, триллерРежиссер: Ладислао ВайдаАктеры: Хайнц Рюман, Зигфрит Штейнер, Зигфрид Ловиц, Мишель Симон, Генрих Гретлер, Герт Фрёбе, Берта Древс, Эвальд Бальзер, Роджер Ливси, Мария Роса СальгадоПеревод: любительский одноголосыйСубтитры: русские (gera), немецкие, английскиеПродолжительность: 01:39:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AE8B49C82673F91665622F1FA4E5234211B7A4B
+magnet:?xt=urn:btih:7E202440726230DBEAD2F66B84AF290AD673E1D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,25 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317409   (501472) от 31.07.2019
+###  Публикация: 1564108   (501672) от 17.07.2022
 
-Туфли с золотыми пряжками (1976) DVDRip [H.264] (серии 1-2 из 2)
+Петр Орловец | Приключения Шерлока Холмса против Ната Пинкертона в России (2020) [MP3, Александр Бордуков]
 
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501472.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отец Иванушки плетёт лучшие во всей округе лапти. Своё умение он передал сыну, но что-то грустно стало в последнее время Ивану и он отпросился у родителей сходить на ярмарку, купить себе немного счастья. Деньги — полный кошель медяков, он по дороге истратил. Половину дал разбойникам, чтобы выручить из беды скомороха Тимоню, а другую у него выманил ярмарочный плут. (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: Детский, сказка, мьюзикл, комедияРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Лев Дуров, Александр Хочинский, Вера Кузнецова, Ирина Малышева, Юрий Медведев, Владимир Старостин, Павел Винник, Владимир Герасимов, Петр Бенюк, Георгий ШтильСубтитры: ОтсутствуютПродолжительность: 01:04:02 + 01:04:19
+А вы знали, что знаменитый лондонский сыщик с Бейкер-стрит Шерлок Холмс и его незаменимый помощник и компаньон доктор Ватсон, боролись с преступностью не только в туманном Альбионе, но и в далекой России. Более того, на бескрайних российских просторах Холмсу суждено было встретиться с еще одним прославленным детективом – Натом Пинкертоном. Уверены, эта встреча не (   Читать дальше...   )Жанр: Исторические детективы, Исторические приключения,Продолжительность: 05:02:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFC66F55CBF010E53ECDBF3B6394388624251350
+magnet:?xt=urn:btih:BA4457C8BC59B2F99CCD237BDFB58CD9B6C965D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,25 +108,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564193   (501471) от 17.07.2022
+###  Публикация: 1564204   (501671) от 17.07.2022
 
-CrystalDiskInfo 8.17.4 RePack (& Portable) by 9649 [Multi/Ru]
+Kingpin Private Browser 2.0.24 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingpin browser — полнофункциональный браузер в режиме инкогнито и adblock всегда включаемым. Он не запоминает историю, пароли или cookies.
+Браузер использует поисковик Yandex в качестве дефолта (может быть изменен на Google или DuckDuckGo в параметрах настройки). Браузер может использоваться для просмотра информации деликатного характера, покупок онлайн и банковского (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.05.2022Разработчик: © Limelick Software s.r.o.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499D2DB4A665385F789501D6DD2ECA551FD983CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563990   (501670) от 17.07.2022
+
+DubVision & Third Party - S2O Songkran Music Festival Korea, South Korea (2022) [MP3|320 Kbps] <Progressive House, Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501670.jpg" />
+</div>
+
+
+###  Подробнее
+
+DubVision @ S2O Songkran Music Festival Korea, South Korea 2022-07-10:
+
+01. DubVision - No More w/Dave Kurtis - Raise Your Hands
+02. Afrojack - ID (Co-Prod. by Magnificence)(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 01:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D404249E1B34B47FDF0964EA70AFCEAAF99300FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564078   (501669) от 17.07.2022
+
+Vinegar 2.3.9 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501471.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+YouTube5 был расширением Safari, когда Flash был еще в ходу. Он заменил проигрыватель YouTube (написанный на Flash) <video> тегом HTML .
+И теперь ситуация с проигрывателем YouTube стала настолько плохой, что нам нужно другое расширение, чтобы исправить это. Вот где на помощь приходит Vinegar. Vinegar также заменяет проигрыватель YouTube с минимальным <video> (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2022Разработчик: © 2022 Zhenyi TanПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73EEB93145BC921071925614168B5776EEEF492A
+magnet:?xt=urn:btih:CD0DF2A2486D8688342450D43B48A2640E50EE80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,26 +191,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317347   (501469) от 31.07.2019
+###  Публикация: 1564229   (501668) от 17.07.2022
 
-студия Диафильм | Разные колеса (1955) [JPG]
+А.М. Брагин | Знакомые незнакомцы (1992) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501469.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сказки советских писателей.
-Для детей младшего возраста.Жанр: Детская проза, СказкаФормат: JPG
+Короткие рассказы о животных для дошкольного возраста.Жанр: Познавательная литература, энциклопедия, путеводительФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F32086C3E511FC7843B3F630E3E59F925C602A76
+magnet:?xt=urn:btih:6C3585351C25466C6EA236800A7AAAE219D5DC9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,25 +217,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564058   (501468) от 17.07.2022
+###  Публикация: 1564175   (501667) от 17.07.2022
 
-Новое понимание: наука о псилоцибине / A New Understanding: The Science of Psilocybin (2015) WEB-DL [H.264/1080p-LQ]
+Martina - Disco 'Round The World (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Central Park (7:35)
+02. Touch Me (7:12)
+03. Panchuco (3:02)
+04. Disco Around The World (10:56)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD54451F9566D0F006848ED3CD575F1BD9D902A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563988   (501666) от 17.07.2022
+
+Midnight Road - Ready For The Fight (2022) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ready For The Fight (03:56)
+02. Voodoo Queen (03:38)
+03. Road To Death (03:49)
+04. Red Lips (03:26)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163599ECC3AFB5073CD517A719BB06AEAB852124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564110   (501665) от 17.07.2022
+
+Таблоид / Tabloid (2010) DVDRip
 
 >>Документалистика и Телепередачи
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501468.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Новое понимание" исследует лечение тревоги конца жизни у неизлечимо больных раком пациентов с помощью псилоцибина, психоактивного соединения, содержащегося в некоторых грибах, для облегчения глубоко духовных переживаний. Документальный фильм исследует слияние науки и духовности начиная с первых психоделических исследований с неизлечимо больными пациентами (   Читать дальше...   )Производство: СШАЖанр: документальный, научно-популярный, медицинаРежиссер: Роберт Дж. БарнхартПеревод: одноголосый профессиональный (digi)Субтитры: русскиеПродолжительность: 00:54:12
+В 1977 году 28-летняя Джойс МакКинни отставная королева красоты из Вайоминга — идеалистка, мечтательница и, как позже выяснится, успешная голливудская девушка по вызову, — прилетела в Англию спасать жениха от окрутивших его мормонских миссионеров.Телекомпания: США / Air Loom Enterprises, Moxie PicturesЖанр: Документальный, криминалРежиссер: Эррол МоррисПеревод: Двуголосый профессиональный (24ДОК)Язык озвучки: РусскийПродолжительность: 01:27:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D81379D568CD8EF2E4FE9BBE15CF3A3E3BC8B22F
+magnet:?xt=urn:btih:E9A31AA1E49653993C070D4D8E243117677534E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -728,26 +301,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317468   (501467) от 31.07.2019
+###  Публикация: 1564140   (501664) от 17.07.2022
 
-студия Диафильм | Знаменитый утенок Тим (1963) [JPG]
+Военная приемка.  “НИТИ”. Подводный. Закрытый. Ядерный (17.07.2022) WEBRip [H.264/1080p-LQ]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
+>>Документалистика и Телепередачи
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501467.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сказки зарубежных писателей. Великобритания.
-Для детей младшего возраста.Жанр: Детская проза, СказкаФормат: JPG
+Атомное сердце подводных лодок и радиоактивные опыты в лабораториях, секреты устройства ядерных реакторов и самые смелые способы их испытаний. Главный герой этого выпуска «Военной приемки» - «НИТИ», научно-исследовательский технологический институт имени академика Александрова. Распложенный на берегу Балтийского моря, в сотне километров от Санкт-Петербурга «НИТИ» (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаРежиссер: Александр ШильниковСубтитры: ОтсутствуетПродолжительность: 00:40:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88143ECB32CCD6C1B3EACA0815DDA73CD6D58965
+magnet:?xt=urn:btih:94C98ECF90C97F6926F88DE33C2992D3D4402AD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -755,26 +327,404 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507824   (501465) от 17.07.2022
+###  Публикация: 1563951   (501663) от 17.07.2022
 
-Мой лучший друг Шейлок / Shiloh (1996) DVDRip
+Bill Bruford - Making a Song and Dance: A Complete-Career Collection (2022) Box Set, 6 CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Rock>
 
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501465.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шейлок — прелестный щенок охотничьей собаки — сбежал от жестокого хозяина и нашел Марти, мальчика-подростка. Марти знает, что собака принадлежит другому, но хочет спасти ее от боли и грубости.
-Он идет против желания своего отца и хозяина собаки. Мальчик жертвует всем, выкладывается из последних сил, чтобы сделать щенка своим.Производство: США, Good Dog Productions LLC, Utopia Pictures, Zeta Entertainment Ltd.Жанр: драма, семейный, детскийРежиссер: Дэйл РозенблюмАктеры: Скотт Уилсон, Блейк Херон, Бонни Бартлетт, Род Стайгер, Дж. Мэдисон Райт, Энн Дауд, Майкл Мориарти, Шира Рот, Тори РайтПеревод: Дублированный (Варус Видео, Первый канал)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:30:39
+CD1 - The Collaborator:
+01. Yes - I've Seen All Good People (6:55)
+02. Yes - Heart of the Sunrise (10:41)
+03. Yes - And You & I (10:09)(   Читать дальше...   )Жанр: Jazz, RockПродолжительность: 06:45:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A14311689A8A4D49121C9C925382D75E1B31408
+magnet:?xt=urn:btih:5D75854817C54656B1CA02950B0B14250AA8B0D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564019   (501662) от 17.07.2022
+
+Свой Путь - Пустозвон (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Это рок [00:04:21]
+02 - Песенка старого панка [00:03:20]
+03 - Время [00:05:18]
+04 - Анархия [00:03:55](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADDCED33CA3FEAE2F60ABFAAC7F986FDBB654A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564267   (501661) от 17.07.2022
+
+Киногоризонты (2020) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зритель увидит эксперименты подробно объясняющие, как создавались настоящие кино-открытия, посетит хранилище с пленочными исходниками революционного в техническом исполнении фильма «Война и Мир», сравнит систему стереокино и современный кинотеатр IMAX. Спикеры и ведущие попробуют рассказать просто о сложном, чтобы ответить на вопрос о том, как разработки отечественных (   Читать дальше...   )Производство: Россия, киностудия им. М.ГорькогоЖанр: документальный, история, кинематографРежиссер: Владислав АриаларЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D0305EC1887DB6D139A674027A3D1CBBB2D91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564239   (501660) от 17.07.2022
+
+Big Story - Beast (2022) [MP3|320 Kbps] <Alternative-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rabbit [00:04:03]
+02 - Daydream [00:03:32]
+03 - Losing Sleep [00:03:06]
+04 - Listen [00:03:55](   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B39519616D656B14C67FD1131FE618BDD7D95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564180   (501659) от 17.07.2022
+
+Лео Перуц | Мастер страшного суда (2005) [MP3, Виктор Рудниченко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501659.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мастер Страшного суда» - самый известный роман Лео Перуца. В центре действия романа - череда загадочных смертей нескольких человек, принадлежащих миру искусства. Каждый из них совершил самоубийство, повинуясь чьему-то внушению. Мистический колорит этой прозы, вызывающей в памяти атмосферу книг Гофмана и Майринка, сочетается с увлекательной интригой.Жанр: Зарубежная проза, Детектив, РоманПродолжительность: 06:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB31FC28B4A21D5F4C865B9696019E62E5D411D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541412   (501632) от 31.08.2012
+
+Полицейский по найму / Rent-a-Cop (1987) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501632.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате неудачно проведенной операции по поимке торговцев наркотиками, чикагский полицейский Фрэнк Черч потерял своегонапарника и два миллиона долларов. Он вынужден уйти из полиции и стать наемным охранником.
+
+Делла Робертс, проститутка по вызову, преследуемая таинственным убийцей-психопатом, нанимает Фрэнка, чтобы найти и обезвредить маньяка. Став свидетельницей жестокого убийства, она сама превратилась в мишень…Жанр: Боевик, Триллер, КомедияРежиссер: Джерри ЛондонАктеры: Берт Рейнолдс, Лайза Миннелли, Джеймс Римар, Ричард Мейсер, Дайонн Уорвик, Берни Кейси, Робби Бенсон, Джон Стэнтон, Джон П. Райан, Ларри ДолгинПеревод: Профессиональный (многоголосый закадровый)Продолжительность: 01:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4154868C05043512F824D3B47EA9589AE081FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540726   (501631) от 31.08.2012
+
+VA - Auto Mix 9 (2012) [MP3|320 кб/с]<Dance,Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.DJ Ella Feat. Ricky J . - Welcome to the Club (Extended Mix)
+02.Carly Rae Jepsen vs. P.S.Y. & Houseshaker - Call Me Maybe (Houseshaker & P.S.Y. Club Mix)
+03.Delayers - Everything Moves (Gregori Klosman Remix)
+04.Kat DeLuna - Wanna See U Dance (La La La) (Radio Edit)
+05.Fedde Le Grand & Nicky Romero - Sparks (Original Mix)
+06.Body & Soul - Fly With You (Stereo Elements Remix)
+07.Disco Superstars - I'm So Hot (Jackie & Jones Remix)
+08.Alexandra Stan Feat. Carlprit - 1.000.000 (Rico Bernasconi Remix Edit)
+09.Jack' OrLando - Play My Shit (Original Mix )
+10.Robb - Faster (Original Mix)(   Читать дальше...   )Жанр: Dance,ClubПродолжительность: 04:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0011CF0726D118570F54A96BBA336424064BC0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 234168   (501630) от 08.09.2010
+
+Живая история. «Война дефекторов» / «Война перебежчиков»(2009) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Холодная война началась со знаменитой речи Уинстона Черчилля в Фултоне в феврале 1946-го и закончилась падением Берлинской стены и прекращением существования Советского Союза. Но есть и другая хронология, отмеченная вехами тайного противостояния спецслужб.
+В этой системе координат холодная война началась 5 сентября 1945 года, когда шифровальщик советского военного (   Читать дальше...   )Телекомпания: ООО „Аквила ТВ“по заказу ОАО "ТРК "Петербург - Пятый канал"Жанр: ДокументальныйРежиссер: А. МалухинПеревод: не требуется (фильм на русском)Продолжительность: 00:47:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541714   (501627) от 31.08.2012
+
+Портрет убийцы / The Rendering (2002) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подвергнувшись нападению сумасшедшего, честолюбивая художница использует свой талант и рисует портрет своего преследователя. Ее работа помогает ей пройти через все и дает возможность помочь другим жертвам. Спустя годы Сара Рейнолдс выходит замуж и хранит секрет своего прошлого. Содействуя полиции и рисуя портрет человека, который изнасиловал и убил несколько женщин, Сара понимает, что человек, которого она рисует — Майкл, ее муж. Несмотря на ее попытки защитить его, Майкла сажают в тюрьму, так как одна из жертв опознает его. Пока Майкл в тюрьме, Теодор Грей, который напал на Сару, просит ее не выступать против него в суде. Но когда Сара отказывается, и тогда Грей открывает свои карты: он контролирует судьбу Майкла в тюрьме. Чтобы спасти Майкла, Сара должна выпустить убийцу на свободу и насобирать как можно больше доказательств вины Грея…Жанр: ДрамаРежиссер: Питер СватекАктеры: Шэннен Доэрти, Питер Аутербридж, Стивен Янг, Джон Х. Бреннан, Джон Мур, Холли О’Брайн, Дженнифер Рэй Уэстли, Ноэль Бертон, Тэмми Исбелл, Конрад ПлаПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C40104C2C8CEC9E42A8C6CA62331AAEEBEAD7DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540531   (501621) от 31.08.2012
+
+Отпусти / Let Go (2011) DVDRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parole officer Walter Dishman (David Denman) has a seemingly perfect marriage but lately is feeling trapped by domestic bliss. Then, he meets Darla (Gillian Jacobs), Artie (Ed Asner) and Kris (Kevin Hart) - three eccentric ex-convicts, who unexpectedly help him turn his life around.
+
+Надзиратель за досрочно освобожденными заключенными Вальтер Дишман (David Denman) состоит казалось бы в идеальном браке, но в последнее время его семейная жизнь стала давать трещину. Все началось с того, что под его начало попадают трое бывших эксцентричных заключенных Дарла (Gillian Jacobs), Арти (Ed Asner) и Крис (Kevin Hart), которые неожиданно помогают Вальтеру вернуть его жизнь в привычное русло.Жанр: КомедияРежиссер: Брайан ДжеттАктеры: Дэвид Денман, Гиллиан Джейкобс, Кевин Харт, Эдвард Эснер, Дайо ЭдПеревод: ОтсутствуетПродолжительность: 01:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53841C8EA38F48C0E7A3A60C6A275BFF6DC7B891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541127   (501619) от 31.08.2012
+
+VA - Самый Улетный Летний Хит (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. S.Jeff feat. Kiso - Дождись
+002. Delise (Дилайс) & Пыльца - Отпусти
+003. Би-2 feat. Ёлка - Коламбия Пикчерз
+004. Дмитрий Колдун - Корабли
+005. Глюкоза - Деньги
+006. Алёна Свиридова - Се Ля Ви
+007. Арина и Размер Project - My Moscow Love
+008. Дядя Жора - Губки Уточкой
+009. Biffguyz - Меня Все Телки Любят
+010. Dress Code - Кучерявое лето(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE852394D4D357F9E736291D52478EC9A26C7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541248   (501618) от 31.08.2012
+
+BloYaTop - Why Waltz (2012) [FLAC|Lossless]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poker Joker (4:23)
+ 02. Fire Arm (3:00)
+ 03. Transistor Sister (2:57)
+ 04. Wrong Side Of The Door (3:51)
+ 05. Why Waltz (3:26)
+ 06. Demolition Crush (3:13)
+ 07. Tampico Honey (4:22)
+ 08. Make It Work (7:06)
+ 09. Lez Burn (4:28)
+ 10. Rusty Rooster (4:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541520   (501616) от 31.08.2012
+
+Собачий завтрак / A Dog's Breakfast (2007) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды, Мэрлин, работающая гримером на одном из из популярных ТВ сериалов, приглашает в гости звезду сериала Райна, и объявляет семье об их помолвке, что окончательно выводит из себя ее брата — Патрика. А когда Патрик узнает, что Райан готовится «прибить» его сестричку, он берется спланировать для него идеальное убийство. Но сам все рушит, и история закручивается так, что черт ногу сломит.Жанр: КомедияРежиссер: Дэвид ХьюлеттАктеры: Дэвид Хьюлетт, Кейт Хьюлетт, Пол МакДжиллион, Кристофер Джадж, Рэйчел Латтрелл, Аманда Байрам, Майкл ЛеникПеревод: Профессиональный (двухголосый)Продолжительность: 01:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AFA2043069FFB4D2CCD8E80895154F0ECF1B5EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540622   (501614) от 31.08.2012
+
+Журнал | Меню. Худеем правильно №2 [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое и единственное в России издание, в котором публикуются рецепты диетических блюд на основе эксклюзивной методики журнала "Худеем правильно". Это мини-энциклопедия о вкусной и здоровой пище, в которой каждый сможет найти что-то для себя: практические советы от ведущих шеф-поваров и опытных домохозяек, рекомендации лучших диетологов и нутриционистов, (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E64D1C0FC15953833120BF0359478FBCB0C8A26
 ```
 
 https://mybot314.ru/tekegram_catalog/

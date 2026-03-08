@@ -1,32 +1,3 @@
-###  Публикация: 1608524   (1043649) от 30.01.2023
-
-Freeroad - Do What You Feel! (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Do What You Feel! (00:04:24)
-02 - Rock Chaser (00:03:48)
-03 - Pray for the King (00:04:17)
-04 - Movin' On (00:03:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A35ED739D2B4281CD477EE7D82988C6F673F0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608380   (1043648) от 30.01.2023
 
 Starspawn of Cthulhu - The Cursed Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
@@ -744,6 +715,35 @@ Xandria - The Wonders Still Awaiting (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEB848DF2598DA2D697D47E6D57EA9AD2AC525B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609735   (1043190) от 04.02.2023
+
+Азбука Борзых - Дартс (2023) [MP3|320 Kbps] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Слава селу [00:04:21]
+02 - Примочка [00:03:45]
+03 - Дартс [00:03:56]
+04 - Приют [00:03:20](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11635BB882602A28B594810B2E12B62ECEE0B9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

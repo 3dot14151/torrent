@@ -1,3 +1,32 @@
+###  Публикация: 1358804   (967234) от 09.02.2020
+
+Vintage Gramola - Welcome to the Vintage Sound (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Layla
+02. Smooth Criminal
+03. These Boots Are Made for Walkin'
+04. Miss Cellie's Blues(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, BluesПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B30C06B219FFFB33D6DDCED93A40DF3CADBB28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977292   (966886) от 20.01.2016
 
 Mongezi Feza & Bernt Rosengren Quartet - Free Jam (1972) 2CD, 2004, Ayler Records[FLAC|tracks+.cue] <Avant-Garde Jazz, Free Improvisation>
@@ -716,35 +745,6 @@ Actis Dato Quartet - World Tour (2009) Actisdato[FLAC|tracks+.cue] <Avant-Garde 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF2FC03D34F8145185E263AC3002A890DE30F0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978831   (962614) от 24.01.2016
-
-Eumir Deodato - First Cuckoo (1975) 2006, Universal[FLAC|tracks+.cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Funk Yourself [04:15]
- 02.Black Dog [04:16]
- 03.Crabwalk [07:41]
- 04.Adam's Hotel [03:40](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4364E9DE3DE0BCE22402C27C1445989614DBFA7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1850787   (1054700) от 29.01.2026
-
-Uriah Heep - Salisbury (1971) 2XCD, Japanese Edition, SHM-CD, Remastered, 2026, BELLE [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Bird Of Prey
-02. The Park
-03. Time To Live(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 02:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB19732C84EB814302BB1DDCCFE105A39297CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850613   (1054699) от 29.01.2026
 
 Мёртвая Вера - 2 Albums (2025-2026) [FLAC|Lossless|WEB-DL|tracks] <black-metal, death-metal, doom-metal>
@@ -744,6 +715,35 @@ Fabio Boka - Atrocidade (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94D3AB8A7DA54C345C20548FB1204EE44037B8DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849769   (1053639) от 24.01.2026
+
+Introduce Wolves - A Modern Mountain Romance (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Self Help (4:24)
+02.  I Am an Artist (4:14)
+03.  Kanada (5:23)
+04.  Cheating in Her Dreams (4:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB92A2BD8F4BA6ABB46073060164A40AB5377C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

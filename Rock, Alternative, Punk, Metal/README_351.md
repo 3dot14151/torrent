@@ -1,32 +1,3 @@
-###  Публикация: 1398812   (734860) от 28.07.2020
-
-Eluveitie - Helvetios (2012) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (01:25)
-02. Helvetios (04:01)
-03. Luxtos (03:56)
-04. Home (05:17)(   Читать дальше...   )Жанр: Melodic Death Metal, FolkПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC24AD642798CD35F81DAEB8A2D22FD67CECF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398881   (734798) от 28.07.2020
 
 AYOKI - Дети Света (2019) [MP3|320 kbps] <Alternative Metal, Female Vocal>
@@ -743,6 +714,35 @@ Blue October - Дискография (1998-2009) [MP3|320 Kbps] <Alternative ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:682B9BD6BDB2824E8B5B6D61D70E75B9DC16B380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399527   (732971) от 01.08.2020
+
+Ensiferum - Iron (2004) [FLAC|Lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferrum Aeternum (03:28)
+02. Iron (03:53)
+03. Sword Chant (04:45)
+04. Mourning Heart - Interlude (01:24)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A0D15671984CBB48C77CC2EA148FDD8E347D25
 ```
 
 https://mybot314.ru/tekegram_catalog/

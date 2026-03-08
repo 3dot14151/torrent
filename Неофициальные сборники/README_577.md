@@ -1,3 +1,177 @@
+###  Публикация: 1615516   (206330) от 26.02.2023
+
+VA - ЕвроХит Топ 40 Europa Plus 24.02.2023 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn feat. Ray Dalton - Call It Love (2:34)
+02. Oliver Tree feat. Robin Schulz - Miss You (3:26)
+03. Rema feat. Selena Gomez - Calm Down (3:59)
+04. The Future X - This Kind Of Love (2:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D906AC34CC134800F40238720914FDDFE51FFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582348   (206269) от 10.10.2022
+
+VA - В машине с музыкой Vol.309 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rasmus - Clouds (03:17) 2022
+02. Марина Пачева  - Привет (03:50) 2022
+03. Baur Karbon - Чувство Одиночества (02:43) 2022
+04. Саша Санта Feat. & Kalvados - Кавычки (Remix) (02:42) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5443BA242E81E5CB0327FA0D4BE371EC3E0E82C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582495   (206251) от 10.10.2022
+
+Nickelback - Compilation (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animals
+02. Kiss It Goodbye
+03. How You Remind Me
+04. Do This Anymore(   Читать дальше...   )Жанр: RockПродолжительность: 02:52:5
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE11E152FB64BEDAAD8814A0F26F39F58079E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616038   (206215) от 28.02.2023
+
+VA - DOWN LOW 3 (2023) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACRAZE, Cherish, Tiësto - Do It To It (Tiësto Remix) (2:05)
+02. Matroda - BO$$ (2:11)
+03. Maga - 007JB (2:11)
+04. Felix SchornHr. Troels - Down Low (2:12)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 03:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FDD37C00E777C3519506A7784C08D3CF941AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615200   (206197) от 28.02.2023
+
+DJ PafTron - TechnoTron Transformers (2023) [MP3|320 Kbps] <Techno, Hard Techno, Minimal Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rise Of The Machines Transformers (skit 1)
+02 DJ PafTron-TechnoTron Megatron
+03 Rise Of The Machines Transformers (skit 2)
+04 DJ PafTron-TechnoTron 2 Optimus Prime(   Читать дальше...   )Жанр: Techno, Hard Techno, Minimal TechnoПродолжительность: 11:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC362E8E0BD7DF472DD72A0A0E660C7A5DA77CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582912   (206068) от 12.10.2022
+
+VA - Жирные Хиты Осени Remix NNM (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Егор Крид, Михаил Шуфутинский - 3-е Сентября (klee intro edit) (3:14)
+02. Мираж - Я Больше Не Прошу (Matuno Remix) (5:07)
+03. Люся Чеботина - Плакал Голивуд (DJ Andersen Radio Mix) (2:20)
+04. DJ Smash feat Artik & Asti - CO2 (DJ Andersen Radio Remix) (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B5937EC7DC9207DB712F2E307F7C90F54C72DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653802   (206043) от 17.08.2023
 
 VA - Music News vol.290 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,177 +745,6 @@ VA - Music News vol.293 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3451C90EDC83C1295915ECCB894959C02E8765A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654971   (204487) от 25.08.2023
-
-Danny Bryant - Compilation (2023) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best of Me
-02. Blood Money (Feat. Walter Trout)
-03. Revelation
-04. Between the Lines(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228B9A1640ED38C1BF75378C8084B9806E46AC9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602497   (204430) от 05.01.2023
-
-VA - Радио Рекорд Итоговый Суперчарт 2022 - 100 лучших треков (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204430.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alis Shuka - Not About Us (2:09)
-002. James Hype & Miggy Dela Rosa - Ferrari (3:06)
-003. Robin Schulz feat. David Guetta - On Repeat (3:10)
-004. Imanbek feat. BYOR - Belly Dancer (2:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDE9431A6892034B3C843C52613280D0696114E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602521   (204404) от 06.01.2023
-
-VA - Зима на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Красавцы Love Radio - Танцуем! (3:11)
-02. TSOY - Покажу Паранойю (3:06)
-03. Anna Asti - Ночью На Кухне (3:52)
-04. Alma - Summer Really Hurt Us (2:48)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03778C83F5CD52240B91744E378F2CEAE1294A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602550   (204393) от 06.01.2023
-
-VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Йорш - Половинки (3:25)
-002. Nagart - Сирена (4:15)
-003. Эпидемия - Письмо Ведьмаку (5:37)
-004. 25/17 - Остаться (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 06:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E80F6435977DD0EA1E6982AB84AD0EFFD40F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602805   (204367) от 07.01.2023
-
-VA - Car Music Mix 3 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204367.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. WhyBaby - HARLEY (MVDNES Remix) (1:21)
-002. AQUANEON - BAKU (1:26)
-003. KALVADOS - Простыни (karmv Remix) (1:39)
-004. Jakomo - Эй, Братик (1:46)(   Читать дальше...   )Жанр: G-House, Bass Progressive, OtherПродолжительность: 06:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEA92D671134C1140342A501F75B5FE869B857F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356395   (204243) от 10.01.2023
-
-Wildways (ex-Sarah Where Is My Tea) - Коллекция (Дискография) (9 альбомов) (2009-2022) [MP3|128-320 Kbps] <Металкор, Постхардкор, Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wildways — Российская метал-группа была создана в конце августа 2009 года гитаристом Сергеем Новиковым и изначально носила название «Sarah Where Is My Tea». 17 июня 2014 года группа меняет название на Wildways (англ. дикие пути). «Просто захотели сделать новый шаг, стать более серьезными. Название Sarah Where Is My Tea звучало слишком саркастично. В какой-то момент (   Читать дальше...   )Жанр: Постхардкор, Металкор, РокПродолжительность: 07:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7FD9DB49F6326D84C6637A7063680372A37394
 ```
 
 https://mybot314.ru/tekegram_catalog/

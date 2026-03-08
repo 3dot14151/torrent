@@ -1,3 +1,31 @@
+###  Публикация: 566870   (394862) от 31.10.2012
+
+Giuseppe Verdi - La Forza del destino (1986) 3CD [FLAC|Lossless]<Classical, Romantic Period, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Romantic Period, OperaПродолжительность: 01:03:51 - CD1
+01:06:19 - CD2
+00:33:44 - CD3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D19348A8E80AB079D586D72EE20EA95084191F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 717446   (391525) от 31.10.2013
 
 Lindsey Stirling - Lindsey Stirling (Target Exclusive Deluxe Edition) (2013) [FLAC|Lossless]<Dance-Pop, Classical, Dubstep>
@@ -791,35 +819,6 @@ Ludovico Einaudi - Seven Days Walking (Day 7) (2019) Decca Records [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3520B867C0DC040DBFBACAD284F1B6D87F596594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068449   (380142) от 01.11.2016
-
-Stokowski / London S. O. / Rca: Bach - Stokowski: Transcriptions / Handel: Music for the Royal Fireworks (1961 & 1974) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bach transcription. London Symphony Orchestra.
-1.Chaconne
-2.Preludio
-3.Ein feste Burg(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF2C8AA2F2FB0C3F030F9EB2F0A7004E09E60ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

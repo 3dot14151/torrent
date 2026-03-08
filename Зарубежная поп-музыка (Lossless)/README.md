@@ -1,5 +1,34 @@
 https://t.me/izofen
-###  Публикация: 1857451   (1059684) от 
+###  Публикация: 1857835   (1060039) от 07.03.2026
+
+Julio Iglesias - Starry Night (1990) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Stage & Screen>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Help Falling In Love [0:03:22.10]
+02. And I Love Her [0:03:15.05]
+03. Mona Lisa [0:03:59.20]
+04. Cryin' Time [0:03:31.60](   Читать дальше...   )Жанр: Electronic, Pop, Stage & ScreenПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3CA64603B46EBFA68EEB8AF4A5E01FCD4EC3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857451   (1059684) от 06.03.2026
 
 Robyn - Robyn Is Here (1997) [FLAC|Lossless|tracks + .cue] <Pop, Synth-pop>
 
@@ -715,35 +744,6 @@ VA - The 100 Greatest Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B95116DE2D5403868D88C105ED28C199CF7A655C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851471   (1055332) от 02.02.2026
-
-VA - Undercover Angel: 70's Nostalgia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul, R&B, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055332.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Undercover Angel - Alan O'Day - (03:31)
-002. What a Fool Believes - The Doobie Brothers - (03:40)
-003. Right down the Line - Gerry Rafferty - (04:28)
-004. Da Ya Think I’m Sexy - ROD STEWART - (05:31)(   Читать дальше...   )Жанр: Pop, Rock, Soul, R&B, Funk, DiscoПродолжительность: 6:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766898C3509B9965280081BA3A53E636690AAA67
 ```
 
 https://mybot314.ru/tekegram_catalog/

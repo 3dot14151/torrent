@@ -1,3 +1,32 @@
+###  Публикация: 1369305   (902007) от 24.03.2020
+
+Bullet for My Valentine - Hand Of Blood (2005) Ep [FLAC|Lossless|tracks] <Alternative metal, Metalcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 Words (To Choke Upon) 3:46
+02. Hand Of Blood 3:38
+03. Cries In Vain 4:00
+04. Curses 4:00(   Читать дальше...   )Жанр: Alternative metal, MetalcoreПродолжительность: 00:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:507D337A76C511109CF9B00C5081E8CE060A8AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369731   (902005) от 24.03.2020
 
 VA - Bossa Nova Flavors (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -675,35 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100096   (901731) от 03.02.2017
-
-Paws for Trello 2.0.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paws for Trello красивый Trello клиент для Mac.
-Trello уже полон полезных ярлыков и опций. В том числе сочетания клавиш, drag & drop и многое другое.
-
-- Красивый минимальный интерфейс, который позволяет Вам оставаться продуктивным.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 февраля 2017Разработчик: Milosz FalinskiПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA19FA68A7A31FC19DA2C62CE39B1CB89406DA99
 ```
 
 https://mybot314.ru/tekegram_catalog/

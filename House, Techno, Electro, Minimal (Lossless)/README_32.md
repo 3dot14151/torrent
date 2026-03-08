@@ -1,3 +1,90 @@
+###  Публикация: 344431   (645204) от 05.06.2011
+
+GusGus - Arabian Horse (2011) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_645204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Selfoss
+02. Be With Me
+03. Deep Inside
+04. Over(   Читать дальше...   )Жанр: House, Downtempo, Tech HouseПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227619   (644885) от 27.05.2018
+
+Hells Kitchen - The End of Us (2012) Aura Music [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End Of Us (05:01)
+ 02. I Close The Door (feat. Irina Makosh) (05:51)
+ 03. Never See Me Cry (feat. Irina Makosh) (06:15)
+ 04. Regrets (feat. Irina Makosh) (07:01)(   Читать дальше...   )Жанр: Downtempo, Tech House, MinimalПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC441BA2C872BCA74A33AECF05507B49CDC6AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142139   (644711) от 13.06.2017
+
+Robin Schulz & David Guetta & Cheat Codes - Shed A Light: The Remixes Part 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Robin Schulz - Shed a Light (Extended Version) [05:05]
+02 Robin Schulz - Shed A Light (MOTi Remix) [04:31]
+03 Robin Schulz - Shed A Light (HUGEL Remix) [04:31]
+04 David Guetta - Shed A Light (Oliver Moldan Remix) [04:55](   Читать дальше...   )Жанр: HouseПродолжительность: 00:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1ECB94EF390C29C740A360AAA8E1857205548A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142142   (644603) от 13.06.2017
 
 Robin Schulz & David Guetta & Cheat Codes - Shed A Light (The Remixes Part 2) (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -657,93 +744,6 @@ Irazu & Regis - Shtamm (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D089A0BA4EDD75C9C7F67D196D9D0E5DC038EF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144369   (627754) от 22.06.2017
-
-Ronny Vergara - Remixes Compilation Vol.02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627754.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chelsy (original mix) (09:32)
-2. Background (Many Reasons AKA Minicoolboyz & Minicoolboyz remix) (07:46)
-3. Background (Virgil Enzinger remix) (06:42)
-4. Background (D-Unity remix) (06:27)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B29F3056294EE185130E54307675E021DDC4A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144367   (627748) от 22.06.2017
-
-Mike Dehnert - Providing Home (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627748.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (02:16)
-2. Between No Words (05:09)
-3. Want Be (04:00)
-4. Providing Home (05:20)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046A04FD5D01E5E6E008D736BCF5873470F3247D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144373   (627744) от 22.06.2017
-
-VA - House On My Soul: Summer Edition (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627744.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ultrasound - Energy (original mix) (08:23)
-2. Steve Mola - Tropical Hotel (Following Light remix) (07:25)
-3. Stergios - Regeneration (Sunshine mix) (08:15)
-4. J-Sevilla - Delphinus (Ivanshee remix) (07:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0AF058AF36807F441724A53CE9B252AF5A7489
 ```
 
 https://mybot314.ru/tekegram_catalog/

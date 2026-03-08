@@ -1,3 +1,177 @@
+###  Публикация: 1572920   (412369) от 31.08.2022
+
+VA - Music For You vol. 24 (2022) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rush - La Villa Strangiato (09:35)
+ 02. Genesis - The Cinema Show (10:41)
+ 03. Camel - Echoes (07:20)
+ 04. John Paul Jones - Leafy Meadows (05:10)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E92E1F89FB4B7A074E2C8D20A2CAF6048AE6D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066459   (412247) от 26.10.2016
+
+VA - The Best - In Music We Trust Vol.9 (2016) [MP3|320 Kbps] <House, Electro House, Future House, Dirty House, Bassline, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uberjak'd - Gash King (The Partysquad Remix)  4:19
+02. Mark Knight & D.Ramirez V Underworld - Downpipe (Armin Van Buuren Remix)  5:27
+03. Duso - Zeus (Original Mix)  5:09
+04. SomeWire - Bounce Now Partycrowd (Original Mix)  5:16(   Читать дальше...   )Жанр: House, Electro House, Future House, Dirty House, Bassline, Club, DanceПродолжительность: 06:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72D816F7420029CF530DA5512510A661072307E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066503   (412244) от 26.10.2016
+
+VA - Record Super Chart #459 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KSHMR & Tigerlily - Invisible Children (Extended Mix)  3:45
+02. Apashe & Splitbreed - Day Dream  2:58
+03. DBSTF & Maurice West - Temple (Extended Mix)  4:01
+04. Eric Saade feat Gustaf N - Wide Awake (Filatov & Karas Extended Mix)  4:11(   Читать дальше...   )Жанр: House, Electro House, Progressive House, Club, DanceПродолжительность: 02:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCAB499F8FF9AEE5B2005F1BA346652A3A916BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066395   (412239) от 26.10.2016
+
+VA - Music For Everyone - Drum and Bass & Liquid Vol.5 (2016) [MP3|320 Kbps] <Drum and Bass, Liquid Funk>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412239.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aero Chord – Time Leap (Original Mix)
+2. Feint – Sky Dance (Gavin G Remix)
+3. Ember Island – Need You (Jay Cosmic Remix)
+4. Urbandawn – Spectrum (Original Mix)(   Читать дальше...   )Жанр: Drum and Bass, Liquid FunkПродолжительность: 01:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B620896BC9B3408905DEB4F9B9A4C5FDE3235A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413199   (411884) от 02.10.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 02.10.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Eilish - ilomilo (MBNN Remix) (4:54)
+02. NRD1 - All Good Things (Come To An End) (Extended) (4:24)
+03. BTS - Dynamite (3:19)
+04. RAYE - Natalie Don't (3:14)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD3047B5D2CE418F95BFAE185D42BB6AD4ED4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573086   (411764) от 31.08.2022
+
+VA - Свежий Русский Хит от ALEXnROCK часть 11 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411764.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2022 год. Это 11я часть. Приятного прослушивания. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Filatov & Karas - Движ
+02. 4Etvergov, Dayren - Инсомния
+03. Reflex - Там Где Живет Любовь
+04. Эмин и JJONY - Лунная ночь(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC58A85236A7CE30BD6663ACD7729D349ADF026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066647   (411674) от 26.10.2016
 
 VA - Любимая Музыка Для Твоей Тачки Зарубежный (2016) [MP3|256 Kbps] <Pop>
@@ -569,177 +743,6 @@ Bon Jovi - 25 Best Songs (2015) [MP3|~245 кб/с (V0)]<Soft Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F18ABDB875DE8BDAC495BEB3FD5A1AF6980FEC15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948260   (410924) от 20.10.2015
-
-Roxette - Good Songs (2015) [MP3|320 кб/с]<Pop-Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Want To Get Hurt
-02. She Doesn't Live Here Anymore
-03. Vulnerable
-04. Queen Of Rain(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 05:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A2F7DDF535BF422EE75CE750CA44295E4016F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711560   (410887) от 16.10.2013
-
-VA - Saxophone Collection (45CD) (1985-2010) [MP3|320 кб/с]<Jazz, Soul, Instumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, Soul, InstumentalПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73FC221E9E7E4B7F140C12696B22B8E75AAC491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717758   (410817) от 20.10.2015
-
-Smokie - Super Hits (1975-1982) (2013) (3CD) [MP3|320 кб/с]<Glam Rock, Hard Rock, Rock'N'Roll, Soft Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Other Side Of The Road (1979)
-02. Do To Me (1979)
-03. Don't Take Your Love Away This Time (1979)
-04. London Is Burning (1979)(   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Rock'N'Roll, Soft RockПродолжительность: 03:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CCAD6AE38DE940CB09C59C69AEDB3D7B15F23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781946   (410812) от 20.10.2015
-
-Kraftwerk - 25 Best Songs (2014) [MP3|~245 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Telephone Call 1986
-02. The Model 1978
-03. Sex Object 1986
-04. The Robots 1978(   Читать дальше...   )Жанр: SynthpopПродолжительность: 02:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0631CC8F7201879351316E18B8545F4A7426DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719028   (410808) от 20.10.2015
-
-Chris Norman - 100 Best Hits (6CD) (1978-2013) (2013) [MP3|320 кб/с]<Glam Rock, Soft Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Caravan Moves On (2003) (04:15)
-02. Only You (2003) (03:25)
-03. Nothing Stays The Same (2003) (03:56)
-04. Amazing (2004) (04:20)(   Читать дальше...   )Жанр: Glam Rock, Soft RockПродолжительность: 01:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE641AF75981E7F428E44B8BCF2A4C330A54D4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948652   (410704) от 20.10.2015
-
-Queen - 25 Best Songs (2015) [MP3|~245 кб/с (V0)]<Pop-Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Show Must Go On 1991 (04:24)
-02. I Want To Break Free 1984 (04:19)
-03. Under Pressure 1982 (03:57)
-04. I'm Going Slightly Mad 1991 (04:09)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84EAB9B3B2057107244070D34263182926950A55
 ```
 
 https://mybot314.ru/tekegram_catalog/

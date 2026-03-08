@@ -1,3 +1,177 @@
+###  Публикация: 769854   (855253) от 23.03.2014
+
+VA - Deep Mood: Smooth Deep House (selected by Alex3107) (2014) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855253.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sandrino, Frankey - Save (Original Mix)
+002. Sandrino, Frankey - The Edge (Original Mix)
+003. David August - Epikur (Original Mix)
+004. Lello B - L.O.V.E (Robbie F Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3257BAEB8EB6DF0211034CF33C029F836A3049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376998   (855204) от 20.04.2020
+
+VA - Beatport Psychedelic Trance: Sound Pack #62 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855204.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cosmos Vibration - Dreamscape
+002. Fractal Vivisection - Interstellar Gliding
+003. Luminaria - Gamma Wave
+004. Starlab - Symphonic Universe(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBDAAAC1545AC9DCCA770CF4BE8C4F1242F781E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110139   (855113) от 01.03.2017
+
+Chris Rea - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Come Home
+02. Sweet Love
+03. Electric Memphis Blues
+04. Bob Taylor(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4726C783DA2884FEFE45F34FD84CDFA3CFE9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110210   (855106) от 01.03.2017
+
+VA - Romantic Collection. Rock Ballads (2017) [MP3|320 Kbps] <Rock , Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855106.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Rack Doll - Pain In My Heart 4:34
+002. Bill Leverty - You're A Natural 5:57
+003. Tokyo Motor Fist - Love 3:30
+004. Steel Panther - Weenie Ride 4:20(   Читать дальше...   )Жанр: Rock , MetalПродолжительность: 07:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404BEF5759E2715B6CD9C5065C2D5442B7EA3AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376997   (855061) от 20.04.2020
+
+VA - Beatport Space House: Sound Pack #65 (2020) [MP3|320 Kbps] <Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innellea - Visionquest
+02. La Fleur - Second Story
+03. Groofeo - Fox Mountain
+04. Jonathan Northtribe - Andromeda(   Читать дальше...   )Жанр: Future HouseПродолжительность: 06:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B293833D8D0DD900896B5105D9FEA5166B757D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946747   (854977) от 27.03.2016
+
+Alex Neo (DJ Alex-Mar) - Remixes and covers (2008-2016) [MP3|320 кб/с]<Italo Disco, Eurodance, Synth-Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Экsтаz - Скорость (Maxx - Get Away Cover Alex Neo Remix 2015) (3:46)
+02. Enigma - Return To Innocence (Alex Neo Remix 2014) (4:23)
+03. Vocal Circus - Peace Etc (Alex Neo Remix) (4:18)
+04. Mo-Do - Eins Zwei Polizei (Alex Neo Remix 2013) (4:27)(   Читать дальше...   )Жанр: Italo Disco, Eurodance, Synth-PopПродолжительность: 11:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B466E069FBB69BF7C0029BA6E4AD0E086C06DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110073   (854837) от 01.03.2017
 
 VA - Новинки С  Разных Популярных MP3 сайтов Выпуск #58 (2017) [MP3|256-320 Kbps] <Pop, House, Club, Dance>
@@ -568,178 +742,6 @@ VA - Empire Records - ANDRS Parody 2 (2017) [MP3|320 Kbps] <Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D390C709B82CBB24375A46FCE507EA8CA7FC652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001434   (853797) от 28.03.2016
-
-Владимир Потапов - Двустволка (2016) [MP3|256 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Давала и даю
-02. Без даты
-03. Буржуйская походочка
-04. Двустволка(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3DB03514296F53ECC9BDA8CEE69DA1C9306D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001485   (853784) от 28.03.2016
-
-VA - Dubstep 100 Top Hits Bass Blast DJ Mix (2016) [MP3|320 кб/с] <Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dubster Spook & Dj Random - Dubstep 100 Top Hits Bass Blast (Trap DnB DrumStep 2hr DJ Mix 2016)
-02. K Theory - The Tower (Dubstep Bass Blast 2016 Remix DJ Edit)Жанр: DubstepПродолжительность: 10:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DFD301148E36C4F428475ACCBF5B60A936C739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110206   (853775) от 02.03.2017
-
-VA - Снежный популярный отрыв. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853775.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Генри - На Север 3:20
-002. Tiger Family - Нравится Мне 3:03
-003. Bubble Gum - Вытворяют Чудеса 3:34
-004. Ira Smith - Буду Выше 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DCEB7BED8D0716092308BA5FCBB34F2E7D6113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110309   (853771) от 02.03.2017
-
-VA - Music For Everyone - Tropical House Vol.1 (2017) [MP3|320 Kbps] <House, Tropical House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853771.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deep Chills - Lighthearted (Original Mix)
-2. Lost Kings feat. Katelyn Tarver - You (OutaMatic Remix)
-3. Tobu & Jordan Kelvin James - Summer Breeze (Original Mix)
-4. The Chainsmokers feat. ROZES - Roses (Chambo Remix)(   Читать дальше...   )Жанр: House, Tropical HouseПродолжительность: 01:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3532E2FE2ED659764C7407DF2BE2B0AD8F9DE4D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110321   (853759) от 02.03.2017
-
-VA - Ultimate Hits Hottest Moves (2017) [MP3|320 Kbps] <Dancehall, Latin, Reggae, R&B, Hip Hop, Electro, Future Bass, Trap, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R3hab Ft Verite - Trouble (Dirty-Short Edit) - 8A 02:22
-02. Ariana Grande Feat Future - Everyday (Transition 90-66 / Clean) 03:47
-03. Jolivi - Love Who You Wanna Love (Flrivn & Nikki X Remix) 04:42
-04. Kungs Ft Ephemerals - I Feel So Bad (Hem Remix) 04:00(   Читать дальше...   )Жанр: Dancehall, Latin, Reggae, R&B, Hip Hop, Electro, Future Bass, Trap, Indie DanceПродолжительность: 07:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A23FE200220648BDB4B0CFF12B1E6B781074487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001335   (853698) от 28.03.2016
-
-VA - Рок в Качалку - Мотивация (vol. 4) (2016) [MP3|320 кб/с] <Heavy Metal, Alternative Metal, Industrial Metal, Metalcore, Electonic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abandon All Ships - Take One Last Breath
-02. Five Finger Death Punch - Can't Heal You
-03. The Exies - A Fear Of Being Alone
-04. Theory Of A Deadman - By the Way(   Читать дальше...   )Жанр: Heavy Metal, Alternative Metal, Industrial Metal, Metalcore, ElectonicПродолжительность: 02:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB021C3EC6CB20577D376E13A5A6D826E6510A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

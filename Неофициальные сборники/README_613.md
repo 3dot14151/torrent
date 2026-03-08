@@ -1,3 +1,177 @@
+###  Публикация: 969384   (143013) от 29.12.2015
+
+VA - Виртуозы жанра: Women's Blues 2CD, vol. 24 (2015)[MP3|320 кб/с] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143013.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (04:33:07):
+01. Anna Rudolph - A Glimpse of Joy (02:56)
+02. Etta James - If You Want Me To Stay (05:22)
+03. Sandy Carroll - Messin' With Me (04:04)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 08:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59EF9E242CB4099B079C8BF4CD4722B5E5F1C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969946   (143011) от 29.12.2015
+
+VA - My Favourite Hits of 1962 (4CD) (2015) [MP3|320 кб/с] <Instrumental, Funk, Soul, Rhythm & Blues, Rock & Roll, Pop Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joey Dee & The Starliters - Peppermint Twist (03:43)
+02. Ben E. King - Dream Lover (02:37)
+03. Duane Eddy - (Dance With The) Guitar Man (02:38)
+04. Brian Hyland - Sealed With A Kiss (02:41)(   Читать дальше...   )Жанр: Instrumental, Funk, Soul, Rhythm & Blues, Rock & Roll, Pop RockПродолжительность: 04:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F601399B6AEC968025DCBAE82E87C0BF517DE8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272594   (142962) от 28.12.2018
+
+VA - Vocal Chillout Music (2018) [MP3|320 Kbps] <Downtempo, ChillOut, NewAge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Donna De Lory - Heaven (Original Mix) 4:07
+002. David Wahler - Mosaic (Original Mix) 5:56
+003. Tomasz Pauszek - Airy Monday (Original Mix) 7:43
+004. Eugene Kush - Yellow (Original Mix) 3:41(   Читать дальше...   )Жанр: Downtempo, ChillOut, NewAge, Ambient, Relax, ElectronicaПродолжительность: 07:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28BF7349BBB19AA30B39081367F7086EB941954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272555   (142828) от 28.12.2018
+
+VA - Pop Rock Chart Music (2018) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dusty Springfield - Son Of A Preacher Man
+002. Miro Zbirka - Love Shines
+003. Danny L Harle - Super Natural (Original Mix)
+004. Bovska - Komfort(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 12:18:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15096C954963AEC46AA90AAB43E964D36624477A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194994   (142770) от 29.12.2017
+
+VA - Finding Around Blessing (Energy Tech Trance) 012 (2017) [MP3|320 Kbps] <Trance, Tech Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andrew Rayel & Bogdan Vix and KeyPlayer feat. Roxana Constantin  -  Soul On The Run (Extended Progressive Mix)  4:30
+02.  Carl Daylim  -  Stay With Me (Intro Mix)  6:40
+03.  LTN pres. White Ghost  -  Memory (Extended Mix)  5:26
+04.  PvR  -  Melting Skies (Original Mix)  8:31(   Читать дальше...   )Жанр: Trance, Tech Trance, Uplifting Trance, Harmonic, EnergyПродолжительность: 01:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D16E8AA5CDA3B539C1884C7A64A749BDB3BC6213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195289   (142733) от 29.12.2017
+
+VA - Empire Records - Classic Disco 3 (2017) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eucariontes - Tell Me More (Original Mix)
+02. al l bo, Semenovb - City Is My Band (Original Mix)
+03. Ariana Grande, The Weeknd - Love Me Harder (Duvals Remix)
+04. Maslin - Bir (Original Mix)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B7BE58EC1B8679B33E4FB0A74D58933123DF6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195231   (142697) от 29.12.2017
 
 VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 28) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
@@ -571,183 +745,6 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83C8EBEA161440D1561AE00EEAC5AFA034B773AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195251   (142421) от 29.12.2017
-
-VA - Empire Records - Classic Disco 2 (2017) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brooklyn Guy - Cold Stuff (Original Mix)
-02. Astero feat. Tiana - Satellite
-03. Anthony Chocco - Oh My Baby (Sensoniques Deep Mix)
-04. A Club Tunes - Cry(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81C316F1E744346F9380F689D0BDEE8D283B049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195391   (142400) от 29.12.2017
-
-VA - De Top 100 Aller Tijden 1974 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142400.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. George Mccrae - Rock Your Baby (3:18)
-002. Rubettes - Sugar Baby Love (3:26)
-003. Cats - Be My Day (2:59)
-004. Mud - Dyna-Mite (2:58)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881A0617FD51D796D4265E63DA6379526830E4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087806   (142355) от 29.12.2016
-
-VA - Hits of My Soul Vol. 19 (2016) [MP3|320 кб/с]<Post Rock, Post Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Eleventh Vibration - Whales (05:25)
-02. Lights & Motion - Snow (06:39)
-03. Trifonic - Transgenic (Rust Mix) (03:41)
-04. Code I - The Ending That We Dream Of (04:55)(   Читать дальше...   )Жанр: Post Rock, Post MetalПродолжительность: 04:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05020C001D7214E3D44913713447E03F3D99B55B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348498   (142350) от 28.12.2019
-
-VA - Качай и слушай Vol 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142350.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.2 Маши - Не Буди (Video Edit) (3:59)
-2.Adon - Want You (2:51)
-3.Bear Grillz feat. Rx Soul - Nightmare (3:56)
-4.Camilo - La Difícil (By Dimelonacho) (2:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566E8E09E00546787FB413D5F5ABEC70BADC875D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087935   (142240) от 29.12.2016
-
-VA - Unknown 80's (part I) (2016) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intimate Strangers - Let Go - 1986
-02. Strange Advance - She Controls Me - 1982
-03. Pete Shelley - Telephone Operator - 1983
-04. Picnic At The Whitehouse - Human - 1987(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E0F6F232DB6497DBC2C3C5DD5E0499F4395533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195613   (142229) от 29.12.2017
-
-VA - Kiss FM Top 40: December (2017) [MP3|320 Kbps] <House, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Probass & Hardi  -  Indy  4:34
-02.  Lost Frequencies & Netsky  -  Here With You  3:41
-03.  Zhu & Nero  -  Dreams  4:28
-04.  Matt Nash & Delayers  -  Run  4:02(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 02:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CA9080A9CDCC4AB363F932505FA11D7467693D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1104181   (881902) от 14.02.2017
+
+VA - Chill Out Collection, To Lift Your Soul, Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alex Greenhouse - Winter  4:00
+02.  Takt 3 - Too Sheep For You  6:25
+03.  Alexander Saykov - Dmitrovka  6:24
+04.  Oskar Broken - Looking At From The Moon  4:27(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B96C58F88A168BADE9D6A89DDD6703FDFF6B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104112   (881895) от 14.02.2017
+
+VA - Best Love Winter Music (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aiotto - Love Story (Original Mix) [00:03:33]
+02. Alex Leader - Hot Stuff (Radio Mix) [00:04:39]
+03. Alexander Gorya - Eclipse [00:04:09]
+04. Antoxa Project - Super World [00:03:17](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9E66D1B09CF9F854FAC600D5AABB95D34947F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103943   (881888) от 14.02.2017
 
 VA - Chill Out Dreams Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -683,64 +741,6 @@ VA - Glamour Chill House - Fashion and Rafinated Beats (2016) [MP3|320 кб/с] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4411EFB2229C168BBFA3BAF8A08E26FC69652CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996623   (879412) от 14.03.2016
-
-VA - Cycles 7 (Mixed By Max Graham) (2016) [MP3|320 кб/с] <Progressive House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy J - Equinox (07:32)
-02. Brian Cid - Errors (08:00)
-03. Rick Pier O'Neil - To Declare (07:40)
-04. Ewan Rill featuring Avenax - Lotos (Vocal Mix) (07:17)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311FE89E9FBB4A4D17EE16D85D8A76ACB29A9BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994725   (879410) от 14.03.2016
-
-VA - This Is Our House Music Miami- Finest Groovy House Tunes (2016) [MP3|320 кб/с] <Funky, Tech House, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reza & Barry Obzee - Jump (Original Mix)
-02. Peverell Bros, R.O.N.N. & Ron Carroll - Way Back (Roger Sanchez Dirty Beats Dub Remix)
-03. Barry Obzee & Lawrence Friend - Get Up (Original Mix)
-04. Jefty Ft Jibberish - Raise The Bar (Original Mix)(   Читать дальше...   )Жанр: Funky, Tech House, ClubПродолжительность: 02:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA0DA6D068D59508A882B92CA6E4ECDDAF9DC1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

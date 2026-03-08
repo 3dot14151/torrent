@@ -1,251 +1,3 @@
-###  Публикация: 1209591   (779282) от 27.02.2018
-
-HumaNature, Skeletone, Silence Groove - There's Delight (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HumaNature & Skeletone & Silence Groove - Sparkling Orb (07:03)
- 02. Silence Groove - There's Delight (05:36)
- 03. HumaNature & Silence Groove - People Don't Care (05:39)Жанр: Drum & BassПродолжительность: 00:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1964F883D7B866A33200280123E517640DED2FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209628   (779280) от 27.02.2018
-
-Vivaldi 1.14.1077.55 Stable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA1077E0DB83C824D1C7565BD69FEFE5EFAB2F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209514   (779279) от 27.02.2018
-
-VA - Polychrome Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gunston - Thing Changes (05:53)
- 02. Gunston - Thing Changes (Zero T Remix) (05:14)
- 03. Phonograph - Pressure Funk (05:00)
- 04. Phonograph - Revolutionary (05:11)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C9FD317444A1B01E4400F445467E9C6CD29AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209583   (779274) от 27.02.2018
-
-Alaska - Venera (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Drumfunk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venera (06:44)
- 02. Criterion (feat. Kiyomi Grounds) (09:03)Жанр: Drum & Bass, DrumfunkПродолжительность: 00:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DD94873CAF1475FBE7FDEAFCDCF52874C2E18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209579   (779270) от 27.02.2018
-
-Spirit - Seventh Heaven / Delirium (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Atmospheric, Drumfunk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seventh Heaven (07:55)
- 02. Delirium (05:43)Жанр: Drum & Bass, Atmospheric, DrumfunkПродолжительность: 00:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9711FCA6CB8DD5F78F3E4AAEFA932B5D2D15D309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209598   (779266) от 27.02.2018
-
-Seba - Node 46 (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Drumfunk, Atmospheric>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machine (feat. Robert Manos) (05:29)
- 02. Node 46 (05:52)
- 03. The Unholy (Digital Bonus) (05:31)
- 04. Unreal Adventures (Digital Bonus) (05:32)Жанр: Drum & Bass, Drumfunk, AtmosphericПродолжительность: 00:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953EC2A83A983CFE508B9FEC461611BBDAC1ACEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209539   (779258) от 27.02.2018
-
-Maxthon Browser 5.2.0.900 beta + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxthon (официально называется Облачный браузер Maxthon, изначально известный как MyIE2) — это бесплатный веб-браузер для Windows, Linux и OS X, разработанный в Китае компанией Maxthon Ltd.
-MX5 - новая версия веб-браузера от Maxthon для Windows наглядно показывает прогресс продукта, который превратился из классического браузера в персонального ассистента для всех (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1184FBAF81AEB2880A5DCFF0DF42717F6468158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209609   (779253) от 27.02.2018
-
-Pola & Bryson - Unsaid (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Intelligent, Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delphic Underworld (05:32)
- 02. Unsaid (feat. Blake) (05:06)
- 03. Hyperborean (feat. Data 3) (05:11)
- 04. Mind Seasons (05:08)Жанр: Intelligent, Drum & BassПродолжительность: 00:20:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1828CE1B539CAFDC7FC9F34300BC4E52DE54877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209555   (779252) от 27.02.2018
-
-BluffTitler Ultimate 13.7.0.2 RePack (& Portable) by TryRooM  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779252.jpg" />
-</div>
-
-
-###  Подробнее
-
-BluffTitler - программа для создания красивых текстовых 3D эффектов и простейшей мультипликации, применяемых при монтаже видео. Результат можно просматривать в реальном времени с последующим экспортом в картинку или видео-формат. Вся создаваемая анимация состоит из слоев, которые могут модифицироваться независимо.BluffTitler поддерживает большое количество различных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D772D760AE797736EDED9B2E1467ED502B0D78DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209686   (779243) от 27.02.2018
 
 K-Lite Codec Pack Update 14.0.3 [En]
@@ -701,6 +453,252 @@ Camp Cope - How to Socialise & Make Friends (2018) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F65CF405A55D52B7834489AEDE86F7B6F407CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209775   (779124) от 28.02.2018
+
+Alaska - Jasheri (V2) / Zoranine (V2) (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Drumfunk, Atmospheric>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jasheri (V2) (10:24)
+ 02. Zoranine (V2) (09:07)Жанр: Drum & Bass, Drumfunk, AtmosphericПродолжительность: 00:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF18D9EDA088D22F6094B09C562AD9E580607441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209750   (779116) от 28.02.2018
+
+Movavi Video Editor 5.3.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: macOS SoftwareРелиз состоялся: 26.02.2018Разработчик: MovaviПоддерживаемая ОС: OS Х 10.7 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1DBCC75CAA26BF5C14C1DC1369F30567ECCBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209801   (779113) от 28.02.2018
+
+USDownloader 1.3.5.9 Portable (28.02.2018)  [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1FFA58AC0E0A950ECF5518AC90589906E803B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209610   (779112) от 28.02.2018
+
+VA - Call Of Goa Vol.3: New Horizons (2018) [MP3|320 Kbps] <Psy Trance, GOA, Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nova Fractal & Median Project  -  Gravitational Field (Original Mix)  7:48
+02.  Omneon  -  Deep Space  (Original Mix)  7:50
+03.  Median Project  -  Unearthly Winds (Original Mix)  7:42
+04.  Consept Lightwork  -  Between Dimensions (Original Mix)  7:24(   Читать дальше...   )Жанр: Psy Trance, GOA, Full OnПродолжительность: 02:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C858FA4819310CECCBB3C707C4CF2245B34266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209757   (779108) от 28.02.2018
+
+NeoOffice 2017.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779108.jpg" />
+</div>
+
+
+###  Подробнее
+
+NeoOffice это полнофункциональный набор офисных приложений (в том числе для обработки текстов, создания электронных таблиц, презентаций и программ для работы) для macOS.
+
+NeoOffice создан на основе офисного пакета OpenOffice.org и включает в себя десятки родных для Mac функций, подходит для импортирования, редактирования и обмена файлами с другими популярными офисными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.02.2018Разработчик: Planamesa Inc.Поддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D0C2DD8B77F0E70DDA16B508F531A2DF002AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209310   (779105) от 28.02.2018
+
+VA - Sports Megamix 2018.1 (2018) [MP3|~224-258 Kbps] <Dance, Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779105.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+
+01 Sound Of Legend - Push The Feeling On (Radio Edit)
+02 Russo & Aquagen - Eternity (Future House Radio Edit)(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 03:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4332031EC7A75AC7A63CE06993E44D48B0C568E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209861   (779104) от 28.02.2018
+
+Журнал | Квант №1 (январь 2018) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779104.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квант» — научно-популярный физико-математический журнал, рассчитанный на массового читателя. Материалы, накопленные в журнале за годы его существования, практически бесценны. Идею создания издания такой тематики высказал П.Л. Капица в 1964 году. Издается с 1970-го года.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525ADC398AF064E282CBEB1EF7326EC5DC616886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209818   (779099) от 28.02.2018
+
+Мама и папа / Mom and Dad  (2017) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со стороны семья Райан кажется идеальной - муж хорошо зарабатывает, красавица-жена, двое детей. Но проблемы есть в любой семье. Дочь-старшеклассница перестала общаться с матерью и таскает у неё деньги из кошелька. Младший брат постоянно задирает сестру, родители тоже с трудом находят общий язык. Внезапно по телевизору начинают передавать странный сигнал, и все услышавшие (   Читать дальше...   )Производство: США / Armory Films, Zeal MediaЖанр: ужасы, триллер, комедияРежиссер: Брайан ТейлорАктеры: Николас Кейдж, Сэльма Блэр, Лэнс Хенриксен, Энн Уинтерс, Рэйчел Мелвин, Джозеф Д. Рейтман, Лорена Диас, Оливия Крочиккия, Закари Артур, Саманта Лемоул, Энджи Уиллмотт, Кэти СтэнлиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F50B3584D007258C65DB03239462A6AC24C8DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209765   (779097) от 28.02.2018
+
+VA - Beautiful Songs For You Vol.2 (Compiled by Виктор31Rus & Людмила Light) (2018) [MP3|320 Kbps] <Romantic Ballads>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gary Barlow  -  Don't Need A Reason  4:36
+02.  Alice Cooper  -  How You Gonna See Me Now  3:51
+03.  Lighthouse Family  -  Run  4:01
+04.  Julio Iglesias  -  Nathalie  3:57(   Читать дальше...   )Жанр: Romantic BalladsПродолжительность: 04:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC463EA09C1FE1874D8F2FA4A07660217593B90E
 ```
 
 https://mybot314.ru/tekegram_catalog/

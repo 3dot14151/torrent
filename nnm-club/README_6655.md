@@ -1,22 +1,25 @@
-###  Публикация: 1277465   (785379) от 20.01.2019
+###  Публикация: 1277284   (785441) от 20.01.2019
 
-Обои - Desktop Wallpapers Азиатки [JPG]
+Труды Первого Всероссийского Съезда по борьбе с торгом женщинами и его причинами [2 тома] (1911-1912) [PDF]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785379.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник обоев на тему АзиаткиФормат: JPGРазрешение файлов: 1920x1200
+Труды первого всероссийского съезда по борьбе с торгом женщинами и его причинами, происходившего в С.-Петербурге с 21 по 25 Апреля 1910 года.
+
+Среди вызванных условиями современной жизни прискорбных явлений, содействующих физическому и нравственному развращению населения, одно из первых мест принадлежит торговле женщинами и проституции во всех ее видах.
+(   Читать дальше...   )Жанр: История, политология, экономика, психология, криминология, правоведение, документалистика, публицистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0ECD2A91C8F0A5780E792BCF89EECB168953B34
+magnet:?xt=urn:btih:B68201265E55CD31751EFDE65DB1505A0CB0DAA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,106 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277471   (785378) от 20.01.2019
+###  Публикация: 1203891   (785440) от 04.02.2018
 
-Обои - Desktop Wallpapers Full HD. Part (360) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C30ADB92F4C642E9BA2D0F617AFB17B72F039C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277486   (785377) от 20.01.2019
-
-Обои - Desktop Wallpapers Full HD. Part (370) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BFB956BE1A1A98D04D373541A8F39186533B25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277255   (785376) от 20.01.2019
-
-Loaris Trojan Remover 3.0.75.210 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Loaris Trojan Remover - средство удаления вредоносного ПО, среди которых есть троянские программы, интернет-черви, рекламные и шпионские программы. Утилита предназначена для удаления угроз с Вашего компьютера, когда постоянная антивирусная защита не в состоянии обнаружить или полностью удалить их. Очень часто антивирусные решения хороши в обнаружении вредоносных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAEB8D91810A5F44B169B085DF8A955EBC02C1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277389   (785375) от 20.01.2019
-
-VA - Громкие новинки месяца Vol.21 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+VA - The Official UK Top 40 Singles Chart 02.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785375.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Макс Барских - Странная
-02. Ariana Grande - 7 rings
-03. HammAli & Navai - Как тебя забыть
-04. Inna - Sin Ti(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:36:43
+01. Drake - God's Plan
+02. Ramz - Barking
+03. Eminem - River (feat. Ed Sheeran)
+04. Dua Lipa - IDGAF(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:25:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ABB1FFAED2B3F73759E57AD7DA16C53907742D0
+magnet:?xt=urn:btih:45E6C389F7126A955FDD90DFA40B6F6DD6B1192E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +56,336 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277342   (785374) от 20.01.2019
+###  Публикация: 1203929   (785439) от 04.02.2018
 
-save2pc Ultimate 5.5.7.1584 RePack (& Portable) by TryRooM [Ru/En]
+VA - Art of Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talking Toy - Oort Cloud - Epic Soundtrack Intro Mix
+02. Leslie Dhani - What I Need - Deep House Dance Mix
+03. Out Of Balance - Black Sky Falling - 808 Lounge Mix
+04. Madam Charlton - Your Voice Is in My Mind - Vocal Pop Lounge Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:933F93CDFFF6FEAFB532342405A7CD0056C6E436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204100   (785438) от 04.02.2018
+
+Приход храма Св. Духа сошествия на Лазаревском кладбище (изд.) | Молитвенное последование с покаянным каноном о грехе убийства чад во утробе (аборте) (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для покаяния в грехе аборта существует исповедь, на которой священник в частном порядке назначает епитимью в соответствии с духовным и телесным состоянием кающегося, возрастом, состоянием здоровья и прочими обстоятельствами. Аборт – один из самых тяжких грехов. Святая Церковь, согласно канонам, отлучала совершивших грех аборта от причастия на 10 лет, наравне с убийцами. (   Читать дальше...   )Жанр: МолитваФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7451E1E91D0794A678F260128556D815A4B6C4D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203969   (785437) от 04.02.2018
+
+Antendex - Take Shelter (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravitational Phantom (05:32)
+ 02. Spring Will Come As Always (04:38)
+ 03. Home-grown Drone (06:20)
+ 04. Boreal Estate (04:04)(   Читать дальше...   )Жанр: Ambient, AcousticПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9896C655FA3CD1CB37168EC04A79957C91A48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203984   (785436) от 04.02.2018
+
+Линда Ховард | Гора Маккензи (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда школьная учительница и старая дева Мэри Элизабет Поттер столкнулась с Вульфом Маккензи, отцом бросившего школу мальчика, она оказалась лицом к лицу с ожесточенным и опасно-привлекательным мужчиной, который до сих пор расплачивается за несовершенное преступление. Но в том, в ком горожане видят опасного полукровку, Мэри разглядела честного, хорошего человека. (   Читать дальше...   )Жанр: Любовный романПродолжительность: 09:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADABF6D1EFECB92F4C702CD0D7A3FC8D859E96C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203945   (785435) от 04.02.2018
+
+VA - Age Of Love 10 Years (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age Of Love - The Age Of Love (Jam & Spoon Watch Out For Stella Mix) 06:48
+02. Niels van Gogh - Pulverturm (DJ Tomcraft Remix) 09:12
+03. The Pusher - Sinthy (Pluto Mix) 05:56
+04. BBE - Seven Days And One Week 08:27(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 08:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC174DAA67E9E1EEC23620D7D5E5CC75A9DF3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203834   (785434) от 04.02.2018
+
+VA - Chillout Lovers: Introspective Chillout Sounds (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vincenzo Ricca  -  Oceanic Love (Original Mix)  5:00
+02.  Marga Sol  -  Feelings For Free (Original Mix)  5:06
+03.  Flor De Lis  -  Carinhoso (Original Mix)  1:55
+04.  Gianni Tommas  -  Peacefull Aim (Original Mix)  5:08(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E91D1615AA63288A2DB9199BB28D15A3348BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203906   (785433) от 04.02.2018
+
+John Dummer Blues Band - Cabal (1969) Reissue, 2003, Sunrise Records [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785433.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Need Love
+2. Just A Feeling
+3. No Change With You
+4. Young Fashioned Ways(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781F9E84AE745A2BE41F3D5E264B158F2A5A3460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203973   (785432) от 04.02.2018
+
+Auto Reverse - Loneliness Of The Deep Space Traveller (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthwave>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apparent Magnitude (06:24)
+02. The Sirius Conspiracy (05:52)
+03. Quantum Leak (06:08)
+04. Neon Galaxy (05:20)(   Читать дальше...   )Жанр: Electro, SynthwaveПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3615A5CAD0A1F9350657126070F022ADC694B66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204049   (785431) от 04.02.2018
+
+VA - Timeless in Space: Universe Lounge Journey (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raphael Van Sandern - Timeless in Space - Space Edit Mix
+02. Substrata - Theresa - Electronic Dance Pop Mix
+03. Crimson Stone - What Is the Meaning - Electronip Space Night Mix
+04. Roleystone - Galactica - Space Club Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B929FB28766E4021AF2E3C455E9AFC28803CB12A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203988   (785430) от 04.02.2018
+
+Елена Чижова | Планета грибов (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Елена Чижова – автор романов «Время женщин», премия «РУССКИЙ БУКЕР», «Орест и сын», «Терракотовая старуха», «Лавра», «Крошки Цахес», «Полукровка».
+Как гриб не растет без грибницы, так и человек вырастает из прошлого: страны, города, семьи. Но что делать, если связь с родительским домом принимает болезненные формы? Не лучше ли ее разорвать, тем самым изменив свою (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 13:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B8F3C3FCB67673BBE2B8CE353CD55D7C1EAD81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204025   (785429) от 04.02.2018
+
+Laura Branigan (Лора Брэниган) - Laura Branigan (1990) Atlantic, 7567-82086-2, Europe [MP3|320 Kbps] <House, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Moonlight On Water 4:40
+02. Bad Attitude 4:03
+03. Never In A Million Years 4:11
+04. Smoke Screen 4:07(   Читать дальше...   )Жанр: House, Pop Rock, Synth-popПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B3C65F83176000D0EF146E9F8DCCB1737944CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204050   (785428) от 04.02.2018
+
+CoolUtils PDF Combine 6.1.0.117 RePack by вовава [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785374.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-save2pc Ultimate - это простая в использовании программа, которая позволяет сохранять видео с известного файлового хранилища YouTube. При помощи YouTube Downloader можно загрузить любой видеофайл с веб-сервиса YouTube по приведенной на его страничке ссылке. Все, что требуется от юзера - это скопировать и вставить ссылку в окно save2pc Ultimate, выбрать нужный формат (   Читать дальше...   )Язык интерфейса: Русский | Английский
+PDF Combine - надежный инструмент и незаменимая программа для быстрого склеивания нескольких файлов PDF в один. Утилита работает с любыми типами PDF файлов очень быстро и качественно, что позволяет в считанные секунды получить нужный нам результат. Результат работы всегда точен и аккуратен, что важно для инвойсов, контрактов, банковских указов и других документов. (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3A958B4A567A3D30B52D1E66798473454B4E487
+magnet:?xt=urn:btih:23C7966507E164C1EFD9796C3AF14C6DBD547D35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +393,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277485   (785373) от 20.01.2019
+###  Публикация: 1203968   (785427) от 04.02.2018
 
-Обои - Desktop Wallpapers Full HD. Part (369) [JPG]
+David Myles - Real Love (2018) [MP3|320 Kbps] <Pop>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785373.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+01 – Night & Day
+02 – Real Love
+03 – Night After Night
+04 – Knockout(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:285D8B05C8CD9B23F49C914D4329B7AF5F106129
+magnet:?xt=urn:btih:4B3FEC15C3A9F2BE73DD40DBB860D55F6A509C5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,25 +422,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277484   (785372) от 20.01.2019
+###  Публикация: 1203926   (785426) от 04.02.2018
 
-Обои - Desktop Wallpapers Full HD. Part (368) [JPG]
+В. Г. Трухановский (отв. ред.) | Против фальсификации истории (1959) [DJVU, PDF]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785372.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785426.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+Сборник статей подготовлен коллективом сотрудни­ков Института истории Академии наук СССР. На основе большого фактического материала авторы статей опровергают антинаучные концепции буржуазных истори­ков по некоторым основным проблемам всемирной истории. В статьях сборника дается марксистское освещение поставленных проблем, вскрывается ложный путь, по которому развивается (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5338357E203FFF7EED44E52B41DF68A3B48A3B5E
+magnet:?xt=urn:btih:EB7715BC83AD832F4BC5DCCE5C5E5C154F5A2DB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,25 +448,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277329   (785371) от 20.01.2019
+###  Публикация: 1204129   (785425) от 04.02.2018
 
-CyberLink PhotoDirector Ultra 10.0.2302 [Multi]
+VA - Silk Music Pres. Talamanca 01 (2018) [MP3|320 Kbps] <Trance>
 
->>Программы для macOS
->>Графика для macOS
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785371.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Универсальное решение для редактирования фотографий, которое предлагает широкий спектр простых в использовании инструментов для создания потрясающих семейных фотографий, фото путешествий и пейзажных снимков, а также идеальных портретов. Программа поддерживает форматы RAW, разнообразные профили объективов, а теперь и создание снимков с 360º фото и видео.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: Ciberlink Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+01. Talamanca – Departure (Extended Mix)
+02. Roald Velden, Talamanca & Morrison Kiers – Savannah (Original Mix)
+03. Shingo Nakamura – Sapporo (Talamanca Remix)
+04. Talamanca – A Day At The Beach (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CCFAD6D576B8F4DBBD69C28A57CBB9F318B480D
+magnet:?xt=urn:btih:5B3A8F5761965524C1CF4F62652C564ED0E264E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -235,25 +477,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277407   (785370) от 20.01.2019
+###  Публикация: 1203974   (785424) от 04.02.2018
 
-NG: Тайна гималайских мумий / Mystery of the Himalayan Mummies (2016) DVB
+VA - Pool Party Hits (2018) [MP3|320 Kbps] <Pop, R&B>
 
->>Зарубежные TV-бренды
->>National Geographic
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785370.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тайна гималайских мумий привлекает к себе международную группу ученых, исследователей и археологов, которые отправляются в экспедицию, чтобы исследовать целый ряд пещерных захоронений, открытых в одном из самых удаленных мест в Гималаях.Производство: США, National GeographicЖанр: Документальный, исследованиеРежиссер: Дэнни ТиппингПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+CD1
+01. Selena Gomez Feat Gucci Mane - Fetish
+02. Demi Lovato - Sorry Not Sorry
+03. Shawn Mendes - There's Nothing Holdin' Me Back(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 02:24:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF7FF4CAEBEE985D434475F8F08E145A72A763D8
+magnet:?xt=urn:btih:50606048222B7B9777AA669345AE59F156FB436A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -261,25 +506,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277267   (785369) от 20.01.2019
+###  Публикация: 1204048   (785423) от 04.02.2018
 
-Calibre 3.38.1 + Portable [Multi/Ru]
+Laura Branigan (Лора Брэниган) - Remember Me (2005) Dance Street, DST 75080-2, Russia [MP3|320 Kbps] <Trance, House>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785369.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785423.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. The Challenge 5:08
+02. If That's What It Takes 4:41
+03. I Can See Again 3:59
+04. The Winner Takes It All 5:21(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 00:30:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE11F28C38C20C53E9B280AF8678A6379C092441
+magnet:?xt=urn:btih:D72D3D00C2698C63F8D56EFCDEBA7822E814A75B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +535,88 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277310   (785368) от 20.01.2019
+###  Публикация: 1204000   (785422) от 04.02.2018
 
-ZE FISH punk-rchstr (orchestra) - Welcome to Russia, если не страшно (2018) [MP3|320 Kbps] <Ska, Punk, Rock>
+Laura Branigan (Лора Брэниган) - Branigan 2 (1983) Atlantic, 78 0066-1, UK & Europe [MP3|320 Kbps] <Ballad, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Solitaire 4:05
+02. Deep In The Dark 3:51
+03. Close Enough 3:42
+04. Lucky 3:57(   Читать дальше...   )Жанр: Ballad, DiscoПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F59F323D36F758ED4FC31D9E40E463565F8013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204014   (785421) от 04.02.2018
+
+Laura Branigan (Лора Брэниган) - Touch (1987) Atlantic, 81747-1, US [MP3|320 Kbps] <Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Over Love 3:50
+02. Shadow Of Love 5:05
+03. Angels Calling 3:48
+04. Meaning Of The Word 5:42(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9CC91549D2F9FAC604D01910111A9837D0A290
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277060   (785420) от 20.01.2019
+
+Inkubus Sukkubus - Beltaine (Original Recordings 1990/91) (1996) Reissue, 2006, CD-Maximum [FLAC|Lossless|tracks + .cue] <Pagan Rock, Gothic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785368.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для ознакомления третий альбом альтернативной Шнуру и Ленинграду группы. Вокально и музыкально интереснее, ИМХО!01. Дисклеймер
-02. Питер-Питер!
-03. Ни*уя хорошего
-04. Судья-пи*орас(   Читать дальше...   )Жанр: Ska, Punk, RockПродолжительность: 00:53:32
+"Beltaine" – такое название носит дебютный альбом культовой британской pagan gothic rock группы Inkubus Sukkubus, изначально изданный на кассетах, но, позднее в 1996 году, по многочисленным просьбам поклонников, переизданный в виде компакт-диска компанией Resurrection Records.
+
+"Beltaine" содержит много песен, впоследствии вошедших в другие диски (   Читать дальше...   )01.Beltaine (4:31)
+02.Wytches I (3:26)
+03.Pagan Born (3:25)
+04.Song To Pan (2:59)(   Читать дальше...   )Жанр: Pagan Rock, Gothic RockПродолжительность: 00:58:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1D90420241D7742B0229AF33E8B761CA369C2D5
+magnet:?xt=urn:btih:487CD6FDFA6536BE21F941F9E6E1E8C85DD78D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,25 +624,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277313   (785367) от 20.01.2019
+###  Публикация: 1277312   (785419) от 20.01.2019
 
-К. А. Попов (ред.) | Допрос Колчака (1925) [DJVU]
+Х. Рейхель | Русские придут наверняка: Антикоммунистические вымыслы и фальсификации (1987) [DJVU]
 
 >>Разное (категория книг)
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785367.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Публикуемые Центрархивом протоколы заседаний Чрезвычайной Следственной Комиссии по делу Колчака воспроизводятся по стенографической записи, заверенной заместителем председателя Следственной Комиссии, К. А, Поповым, и хранящейся в Архиве Октябрьской Революции (Фонд LXXV, арх. № 51). Некоторые места стенограммы и отдельные слова, не поддававшиеся прочтению, в подлиннике (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+В книге прогрессивного западногерманского публициста рассказывается о том, как западные спецслужбы и средства массовой информации фабрикуют и активно используют фальшивки о «советской угрозе». Временные рамки книги охватывают период с 20-х гг. по настоящее время.
+
+Показаны укрывательство и использование нацистских преступников и изменников Родины для борьбы против (   Читать дальше...   )Жанр: История, политология, экономика, публицистика, психологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA41D519DF47878F642ECDD86C0C50E32604DF19
+magnet:?xt=urn:btih:D871A8E699EED07B0EDD34F8F124C249B12B9CA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,25 +652,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277293   (785366) от 20.01.2019
+###  Публикация: 1277411   (785418) от 20.01.2019
 
-A House of Many Doors (2017) [En] [macOS Native game]
+Омела - Тайная Тропа (2019) [MP3|320 Kbps] <Folk Metal>
 
->>Игры для macOS
->>Strategy, RPG для macOS
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785366.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Добро пожаловать вТип издания: macOS Native gameРелиз состоялся: 2017Разработчик: Pixel TrickeryПоддерживаемая ОС: OS XЖанр: Ролевые игрыЯзык озвучки: английскийЯзык интерфейса: английский
+01. Тайная Тропа
+02. Игра
+03. Другая Жизнь
+04. Отпускаю(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:08:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A103B46F5B0E33AB4EDC4774B051C4E2F113A05
+magnet:?xt=urn:btih:426BF5A8EEF87F2218B616D35CEA6AE67C9D3E63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,25 +681,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277432   (785365) от 20.01.2019
+###  Публикация: 1277295   (785417) от 20.01.2019
 
-Product Key Explorer 4.0.10.0 RePack (& Portable) by elchupacabra [Ru/En]
+VA - Record Super Chart 570 (2019) [MP3|320 Kbps] <House, Club, Dance>
 
->>Архив торрентов
->>Архив Программ
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785365.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785417.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Product Key Explorer - программа позволяет расшифровать, увидеть и сохранить серийные номера продуктов Microsoft, CD-ключи установленных на компьютере программ, и не только их. Неполный список ПО, регистрационные данные которых можно увидеть и сохранить: Microsoft Windows (XP, 2003, Vista, 7, 8, 10), Microsoft Office 2003, Microsoft Office 2007, Microsoft Office (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01.  Fisher  -  Losing It
+02.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+03.  Axwell - Nobody Else
+04.  Denis First & Reznikov & Bright Sparks - Shameless(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:47:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99C3DD28DB7CA67685DCD0A0D28D004A649DBF2C
+magnet:?xt=urn:btih:14D8276C1FB2BA1A5996349BDA9B24C8E7A863BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,301 +710,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277292   (785364) от 20.01.2019
+###  Публикация: 1277356   (785416) от 20.01.2019
 
-Demis Roussos - The Demis Roussos Collection (2008) 4CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1: Forever And Ever - The Greatest Hits
-01. Forever And Ever
-02. Happy To Be On An Island In The Sun
-03. Marie Jolie(   Читать дальше...   )Жанр: PopПродолжительность: 04:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2240C2EE9CE4872155F01E1B2D6EE5C9C4B152C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277435   (785363) от 20.01.2019
-
-VA - Best Of 2018 (2019) [MP3|320 Kbps] <Drum & Bass, Neurofunk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Facade - Division Of The Synth (04:36)
-02. Vecster - Critical Level (04:36)
-03. Sequential - Time Dilation (05:15)
-04. Distributor - Hypertension (05:18)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755DB103C2392D362391F677234455B788901512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277381   (785362) от 20.01.2019
-
-Явление / L'apparition (2018) AC3 5.1, HDRezka studio [hand made]
-
->>Остальное
->>Звуковые дорожки и субтитры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жак, известный репортёр ежедневной французской газеты, получает таинственный телефонный звонок из Ватикана. В маленьком городке на юго-востоке Франции 18-летняя девушка утверждает, что видела явление Девы Марии. Слух быстро распространяется, феномен приобретает такую ​​величину, что тысячи паломников стекаются к месту предполагаемого явления. Жак, далёкий (   Читать дальше...   )Производство: Франция, Бельгия, Иордания / Canal+, Centre National de la Cinematographie (CNC), ProximusЖанр: ДрамаРежиссер: Ксавье ДжаннолиАктеры: Анатоль Таубман, Венсан Линдон, Патрик д’Асумсао, Жоффруа де ла Тай, Аврора Брутена, Аксель Симон, Сандрин Ферраро, Галатеа БеллуджиПеревод: Многоголосый закадровый, профессиональный (HDRezka studio)Продолжительность: 02:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6D3E0BC8271AC1F205B1E63F4AFF0536280301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277318   (785361) от 20.01.2019
-
-Сергей Садов - Ближний восток (2018) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785361.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ближний восток (6:22)
-2.На крыльях ангела (7:18)
-3.Алтай (11:49)
-4.Танец дарвиша (3:36)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6693EF39EC1B989D69FAB7E47D3036BCB0F7FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204037   (785360) от 04.02.2018
-
-Stephen Rhodes - Relax II: Your Essential Spa Music (2013) [FLAC|Lossless|image + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discovery
-02. Voices From The Past
-03. Air of Tenderness
-04. Love Remembered(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89BF26A12FD4AB1C0D565FAFA0AD583705E0F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204124   (785359) от 04.02.2018
-
-Waterfox 56.0.4.1 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D370604312158865DD2C4F8A1C73C3C43A02697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204016   (785358) от 04.02.2018
-
-Растровый клипарт - Animals #16 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт зверушки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 118x500-4179x3332
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFB58082C15C538758C756CB895E020F8E13D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203244   (785357) от 04.02.2018
-
-Горные лыжи. Кубок мира 2017–2018. Кортина д Ампеццо (Италия). Женщины. Скоростной спуск (20.01.2018) HDTV [H.264/720p] [hand made 50fps] [ITA]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785357.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 января 2018 года, суббота. 12:00 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Кортина д Ампеццо (Италия).
-Женщины. Скоростной спускТелекомпания: RSI La 2 HDЖанр: СпортЯзык озвучки: Интершум, ИтальянскийСубтитры: отсутствуютПродолжительность: 01:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D79502C707E78F6030C7ABF435FD3F9A599FEB26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204054   (785356) от 04.02.2018
-
-Клэр Сибер | 24 часа (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда подруга Лори по имени Эмили трагически гибнет в огне пожара, женщина понимает, что это не случайность. Тот, кто преследует ее, просто ошибся, и на месте Эмили должна была быть сама Лори. Лори считают мертвой, ведь на шее Эмили был ее медальон. Лори понимает, что теперь опасность угрожает не только ей, но и ее близким. Например, дочери Полли, которая сейчас (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C054726B8F1C9AAE318C73803E9024556019F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203996   (785355) от 04.02.2018
-
-Первая передача на НТВ. Автомобильная передача (2018.02.04) SATRip
+Цзиндэчжэньский фарфор / Jingdezhen Porcelain (2017) HDTVRip [H.264/720p-LQ]
 
 >>Документалистика и Телепередачи
->>За рулем
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785355.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаСубтитры: ОтсутствуютПродолжительность: 00:30:08
+Цзиндэчжэнь в провинции Цзянси на севере Китая можно без преувеличения назвать керамической столицей страны. История местного производства фарфора, насчитывает не одну тысячу лет. Гуляя по улицам Цзиндэчжэня, нельзя не заметить дома с отделкой из фаянса, выложенные кусочками керамической плитки переулки и удивительно красивые керамические уличные фонари. Изготавливать (   Читать дальше...   )Производство: Китай, CGTNЖанр: Документальный, история, путешествияРежиссер: Ван БиньПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F080D7F64BA16F54B3D7E6F116E2FFF5913DE66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204160   (785354) от 04.02.2018
-
-Я.И. Перельман | Ракетой на луну (1930) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит интересные сведения о Луне, её устройстве, конструкции ракет для полета на Луну.
-«...В детстве мне казалось, что если забраться на крышу дома, то до луны будет уже не так далеко. Однажды в лунный вечер я залез на чердак, подошел к слуховому окну и выглянул оттуда. Я думал, что увижу луну вблизи. Куда там! Она висела в небе по-прежнему высоко, словно (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6179B2DB8723676B4F62F12D3FB2C3420BC89E
+magnet:?xt=urn:btih:C3A718BDECA1171F324B48C38D93537C550DF135
 ```
 
 https://mybot314.ru/tekegram_catalog/

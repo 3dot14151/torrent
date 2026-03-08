@@ -1,32 +1,3 @@
-###  Публикация: 1596748   (169279) от 11.12.2022
-
-Ofdrykkja - 5 Albums (2014-2022) [MP3|320 Kbps] <Atmospheric Rock, Melancholic Folk, Nordic Mournfulness>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2014 - A Life Worth Losing
-2015 - Urban Negativism
-2017 - Irrfärd(   Читать дальше...   )Жанр: Atmospheric Rock, Melancholic Folk, Nordic MournfulnessПродолжительность: 5 CD, 04:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3577004E43A2975FF3BC9D3B17BBCC3727584491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672376   (169134) от 28.10.2023
 
 Doro - Conqueress - Forever Strong and Proud (2023) [MP3|320 Kbps] <Heavy-Metal, Hard-Rock>
@@ -743,6 +714,35 @@ Northern Flame - Twisted Reality (2020) [MP3|320 Kbps] <Melodic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:457DFFCDEAA5B5C6021D802E157FB536C9294E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598568   (162091) от 20.12.2022
+
+Jrago - Disconnect (2022) [MP3|320 Kbps] <Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Unspoken [00:03:11]
+02 - This Vicious Cycle [00:04:33]
+03 - Tranquility [00:04:00]
+04 - Run Away [00:03:21](   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018BEA29E4992BB3DF904AAFF71718F8E8A1B9E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

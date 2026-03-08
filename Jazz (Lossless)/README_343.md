@@ -1,3 +1,32 @@
+###  Публикация: 1773708   (71675) от 17.01.2025
+
+Enrico Pieranunzi, Enzo Pietropaoli, Roberto Gatto - Moon Pie (1988) Divox [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Today [3:05]
+02. Occasions [2:39]
+03. Martina [3:15]
+04. Skies [3:40](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCC052D9D7E65B9385C4C5A6AF2C7840A095BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773906   (71615) от 18.01.2025
 
 VA - More Blue Notes, Vol.2: Milestones of Jazz Legends (1948 - 1962) 10CD, 2018, The Intense Media [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
@@ -716,35 +745,6 @@ VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. I (2023) Signora Ward Recor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D35BA7105BDEA28D4AB86287AE4F54988F0B9A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776853   (71165) от 02.02.2025
-
-VA - The Midnighters Vol. II (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nigel Sanders - Midnight Shades of Black (3:55)
-02. Hard Shadow - Coffin Wood Park (4:37)
-03. Ghostwoods - Brighter Now (gartr0n Remix) (6:00)
-04. Pleasure Of Decay - Vendetta (7:00)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Jazz NoirПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F166BAAB2C99810306BCEA519FBB0F6C94C9F1F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

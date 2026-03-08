@@ -1,3 +1,32 @@
+###  Публикация: 1759168   (37997) от 07.11.2024
+
+VA - Pop-Rock Hits Of The New Generation (2024) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37997.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beyonce - Flamenco - (01:40)
+ 002. Landon Barker - Friends With Your Ex - (01:59)
+ 003. Anitta - Fria - (02:07)
+ 004. Bella Poarch - Don't Like Anybody - (02:11)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 11:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A1EE682DF75227518214D540AFF655383EF96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760056   (37462) от 12.11.2024
 
 VA - Pop Dance Summer Caramel (2024) [MP3|320 Kbps] <Pop, Pop-Rock, Dance>
@@ -716,35 +745,6 @@ Blondie & Deborah Harry - Compilation (1976-2017) [MP3|320 Kbps] <New wave, Pop 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E95143029E03609D7BE1F2D31029339180EDB8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781009   (26971) от 21.02.2025
-
-VA - 100 Pop Hits (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - Locked Out of Heaven (03:53)
-02. Madonna - Like a Prayer (05:42)
-03. Coldplay - Viva La Vida (04:02)
-04. Fleetwood Mac - Dreams (2018 Remaster) (04:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BB54ADEC809E5668F6C21675733AB777DE078D
 ```
 
 https://mybot314.ru/tekegram_catalog/

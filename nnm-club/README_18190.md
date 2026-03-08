@@ -1,111 +1,22 @@
-###  Публикация: 1083343   (274972) от 15.12.2016
+###  Публикация: 1337458   (275018) от 10.11.2019
 
-Tyron - Rebels Shall Conquer (2016) [MP3|320 Kbps] <Heavy Metal ,Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mens Fate
-02. From Prey To Predator
-03. Murder
-04. Maverick(   Читать дальше...   )Жанр: Heavy Metal ,Thrash MetalПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F915C9EB7AF58E466D30CABC6575DBCB04E5FE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083366   (274971) от 15.12.2016
-
-VA - Lonely Nights Beats Vol.1 (The Beat For Lonely Hours) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pharaon - Rio Grande (Extended Mix) 3:57
-02. Kobes - Kanoa (Extended Mix) 5:48
-03. Keyklova - Straight (Extended Mix) 7:46
-04. S.D.J. - You Were Mine 4:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619515DB27BA25268A6F54FB5639252D937D274E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083172   (274970) от 15.12.2016
-
-VA - Global Chillounge Revolution, Vol. 3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflex Artists - Like Twerking - HK Mix (05:40)
-02. Active Waves - Cathedral of Dreams (06:19)
-03. Yvonne Black - Short and Sweet - Radio Edit (03:29)
-04. Silent Breeze - Exciting (05:32)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E68FBF9DC3228115264C67A2163C5CAC23A2799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083446   (274969) от 15.12.2016
-
-KCNcrew Pack 12-15-16 + Bonus [En]
+FilePane 1.10.6 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274969.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-KCNcrew Pack  -  это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и периодически обновляется!
-
-База серийных номеров проекта KCNcrew по состоянию на декабрь 2016 года.Тип издания: OS X SoftwareРелиз состоялся: 15 декабря 2016Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 +Язык интерфейса: Английский
+FilePane - легкий, универсальный мультиинструмент для быстрого управления файлами. FilePane является универсальным и очень простым в использовании приложением, специально разработанным для ускорения рабочего процесса и повышения производительности при работе с изображениями, текстовыми документами и файлами. Самое приятное то, что FilePane живет в строке состояния (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: mymixapps.comПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:350CF8634F9B16BFBA0792952B1F6A091FF84470
+magnet:?xt=urn:btih:D5992332573C4CD40FDD0163D6D88572FA3F6D89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,28 +24,676 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083389   (274968) от 15.12.2016
+###  Публикация: 1188311   (275017) от 02.12.2017
 
-VA - Now Sound Year Greetings (2016) [MP3|320 Kbps] <Club, Bass Music, Synthpop, Indie Dance>
+Saul Blanch Revancha - Refugiado (2006) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detrás de aquellos ojos
+02. Negras noches, tristes días
+03. Prisionero del dolor
+04. Qué te está pasando en la cabeza?(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0050E4B528BD361F12176BD0E8F1438F2B2F8262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337319   (275016) от 10.11.2019
+
+Duplicate Manager Pro 1.3.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Manager Pro обнаруживает, управляет и удаляет:
+Дублированные фото, размноженное видео, размноженные звуковые дорожки, размноженные документы, размноженные другие файлы.
+
+Простота в использовании и скорость работы - это основные принципы в концепции приложения. Ваше время является самым ценным, что у вас есть! Мы заботимся о вашем времени. Не тратьте свое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2019Разработчик: GreenWorldSoftПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F3343D9BFF1305B279CFD8D950CF46A3863054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188276   (275015) от 02.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Мужчины. Индивидуальная гонка (30.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275015.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 ноября 2017 года, четверг. 19:15 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Мужчины. Индивидуальная гонка 20 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5E3964DB2C33BC6ABF5782A7B1E50AAC4F1AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337419   (275014) от 10.11.2019
+
+Журнал | Дачный совет №10 (2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Верный помощник для садоводов и огородников в самый разгар дачных работ. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации адвоката, а также календарь дачных работ.Жанр: Дача, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6E0112B452BA6A8E7DB4150F212A2796A6E97C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188454   (275013) от 02.12.2017
+
+Nepal - Demos Originales + Ineditos (2012) [APE|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Te Destruiré
+02. Ciudadano De Las Tinieblas
+03. El Ojo Del Infierno
+04. Aquellos Bastardos(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86F9E7FB48821FD7ECD7030F538410F36DADAEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337334   (275012) от 10.11.2019
+
+Wirecast Pro 13.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wirecast предлагает доступное программное обеспечение в качестве альтернативы дорогим аппаратным решениям организации видео-трансляций в сети Интернет. Благодаря Wirecast вы можете выводить на вещание несколько потоков с камер, в реальном времени вставляя в программный поток видеоклипы, изображения, звуки и такие необходимые элементы, как переходы, титры, хрома-кеинг, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74814393ACAF11C6D1B2F4FA670351D79C2BFE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337344   (275011) от 10.11.2019
+
+Николай Блохин | Владимирская (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275011.jpg" />
+</div>
+
+
+###  Подробнее
+
+1395 год. В русские земли вторгаются войска Хромого Тимура (Тамерлана), прославившегося своими военными подвигами и невероятной жестокостью. Уже захвачен и разорен Елец, следующая - Москва. Навстречу его полчищам выдвигается наспех собранное войско молодого князя Василия, сына Дмитрия Донского. Но силы несопоставимы…
+Спасти Русь может только чудо. И оно свершается. (   Читать дальше...   )Жанр: Историческая повестьПродолжительность: 02:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB395F0E4FB4626285B1D15B1E1BFD52FF9180C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188278   (275010) от 02.12.2017
+
+Mirzadeh - Ancient Rites (2003) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All For One Immortal
+02. Under The Veil of Misery
+03. Verenkantaja
+04. Winter Ceremony(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6158CBAE1B25695B758555694AE0E001D0C45522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188383   (275009) от 02.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Женщины. Спринт (01.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 декабря 2017 года, пятница. 19:45 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Женщины. Спринт 7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7AC1894C08CC784A1CF4A4F7E5984085822EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188458   (275008) от 02.12.2017
+
+Nepal - Manifiesto (1997) [APE|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Saga
+02. Perfil Siniestro
+03. Besando La Tierra
+04. Más Allá Del Asfalto(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BB6D7D42985445829131E716417D79CC518470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337228   (275007) от 10.11.2019
+
+Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cosmic Waterfall 04:22
+2. Yoga Mat Sessions 02:02
+3. Serenity  02:44
+4. In the Distance 02:24(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7307F1F9456EE3A2076745741C9D289402712DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188391   (275006) от 02.12.2017
+
+310 - The Dirty RoPE (1999) Leaf [FLAC|Lossless|tracks+.cue] <Leftfield, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tequila Priest (02:08)
+02. NOD (07:58)
+03. Frosty Bardum (02:57)
+04. Me Head Is Light (05:36)(   Читать дальше...   )Жанр: Leftfield, DowntempoПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2331519223D49F1DBE897F73D952AF6DD971840F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337445   (275005) от 10.11.2019
+
+Elimisoft App Uninstaller 2.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elimisoft App Uninstaller разумно находит ВСЕ оставшиеся файлы (кеши, журналы, настройки, отчеты о сбоях) приложения и очищает ваш Mac. Освободите это ценное дисковое пространство.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Elimisoft Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3910DCA08DCA5B675424187354456CD162F4B771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337411   (275004) от 10.11.2019
+
+Т.И. Королёва, В.Ю. Перелешина | Регентское мастерство: Учебное пособие (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие рассматривает основные положения спецкурса «Регентское мастерство», разработанного на кафедре регентования ПСТГУ. В книге рассматриваются концептуальные, историко-теоретические и практические вопросы церковного пения и руководства церковным хором. Подробно анализируются специфика церковного пения и чтения, система регентского показа, принципы подбора (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030116CE110E97C8FF85CAE4147580A565A37B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188559   (275003) от 02.12.2017
+
+VA - Creativeness #1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morgan & YokoO – Spiraling (07:03)
+02. Franca – Vortex (Genii Interpretation) (08:06)
+03. Milez – Questions feat. Chappell (Gumz Remix) (08:32)
+04. Kotelett & Zadak – Rebrand (07:19)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A730F216F8245F6AA35E8EB27BFE41360CF23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188054   (275002) от 02.12.2017
+
+VA - Rielism - Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rene Ablaze & Universal Sense  -  Island Of Dreams (Original Mix) 7:04
+02.  8 Wonders & Arnej  -  Together We Will Rise (Jak Aggas Remix) 6:22
+03.  Eryon Stocker  -  Skyscrapers (Perrelli & Mankoff Remix) 7:02
+04.  Amy Kirkpatrick & Dark Fusion  -  Be There For You (Original Mix) 4:33(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE05AD35671792A3C6409AB5C9F6D5EE0733878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188280   (275001) от 02.12.2017
+
+Mirzadeh - Desired Mythic Pride (2014) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secrets
+02. The Forger Of Celestial Sphere
+03. Aino
+04. Ukon Vakka(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3FD39A445ADF3871D30F8864FB979FA0093B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188643   (275000) от 02.12.2017
+
+To Travel Without Any Certain Destination - Traveling For The Pleasure Of It (2013) SEALT [FLAC|Lossless|tracks] <Tribal, IDM, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275000.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Traveling For The Pleasure Of It (03:08)
+A2. And Then She Lied Again (03:14)
+A3. Scared To Say Farewell (04:50)
+A4. Brave At Life (04:42)(   Читать дальше...   )Тип издания: Vinyl, CompilationЖанр: Tribal, IDM, AmbientПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9521512F106A01570DB55DCDB98CB9007723C7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188644   (274999) от 02.12.2017
+
+VA - Trance Favorites EPisode #010 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ER7E - Revelation (Original Mix)
+02. Airosource - Rising Love (Original Mix)
+03. Dave Deen - Forgotten Promise (Original Mix)
+04. Hartrone - Crossroad (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEF18B8FBDB08FFF3A96CD11295D3D8E58402D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188439   (274998) от 02.12.2017
+
+Paul Desmond Quartet - First Place Again (2005) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "I Get a Kick Out of You" (Cole Porter) – 8:38
+02. "For All We Know" (J. Fred Coots, Sam M. Lewis) – 5:33
+03. "Two Degrees East, Three Degrees West" (John Lewis) – 7:28
+04. "Greensleeves" (Traditional) – 2:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADF25E7DBF976CF5262819D599D1B24D24BBF1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188429   (274997) от 02.12.2017
+
+Stan Kenton - Kenton's West Side Story (1961) 1994, Capitol Records [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue [04:06]
+02. Something's Coming [03:40]
+03. Maria [04:30]
+04. America [04:41](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B40425CF1A68EC674E1BBEAC76EF4EB31D70B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083384   (274994) от 15.12.2016
+
+Carl Allen - The Pursuer (1994) Atlantic Recording Corporation[FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The pursuer [05:23]
+ 02.Hidden agenda [07:05]
+ 03.Pinocchio [05:04]
+ 04.Alternative thoughts [08:53](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27703121EDC9C171278C85F215E0D860CD827CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273938   (274993) от 22.12.2010
+
+VA - Зимний Best Hits (2010) [MP3|256 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46833141315FBB48E83F7AE54E8ED7BE33233221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083379   (274992) от 15.12.2016
+
+VA - Trance Elegance On This Year 002 (2016) [MP3|320 Kbps] <Trance, Tech Trance, Stadium Trance, Progressive>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274968.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kukuzenko - Forgotten Muse (Original Mix) 06:14
-02. Breathe Carolina & Shanahan Feat. Haliene - Stars & Moon (Apek Remix) 03:24
-03. Cj Stone Feat. Jonny Rose - Wait Up For Me (Radio Edit) 03:30
-04. Aki - Heroin 03:04(   Читать дальше...   )Жанр: Club, Bass Music, Synthpop, Indie DanceПродолжительность: 05:02:44
+01. Richard Durand - Proxima C (Original Mix) 6:29
+02. Ana Criado - Vulnerable (Denis Kenzo Remix) 6:45
+03. Binary Finary - The Vortex (Original Mix) 6:56
+04. Quervo - Velocity (Original Mix) 5:32(   Читать дальше...   )Жанр: Trance, Tech Trance, Stadium Trance, ProgressiveПродолжительность: 02:39:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E185D3A6AF50BEB32A24B00642DC192E054C39CF
+magnet:?xt=urn:btih:0B29B97EDE20C6D9C2A9C2D2D8725CE1982C0A3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,557 +701,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083353   (274967) от 15.12.2016
+###  Публикация: 1083463   (274991) от 15.12.2016
 
-Downie 2.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
-
-Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14 декабря 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F07AA7C0C283A9C2053BE9EE88C5B0D6C4F9294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083170   (274966) от 15.12.2016
-
-VA - Global Chillounge Revolution, Vol. 1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Mountain Ski-Lounge Beats (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274966.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Milfy Cougar - Under Your Skin (06:07)
-02. Mick Thammer - First - Chill Mix (05:46)
-03. Reflex Artists - Lost Fear - Reflex Mix (03:34)
-04. Michael Ruland - Spectre - Radio Edit (03:36)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:32:51
+01. The Echo of Koenigssee - Entirely Retrospective
+02. Soda Lounge - The Love We Share - Radio Edit
+03. Dr. Diver - Landing
+04. Oliver Backstrom - Up to You(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:21:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD382452634B8158AA230D949F8ED06957838F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607451   (274965) от 27.11.2018
-
-Lost: Via Domus / Lost. Остаться в живых (2008) [Ru/En] (1.0) License
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый герой со своей собственной историей, которая постепенно раскрывается на протяжении игры. Вы открываете глаза и видите перед собой догорающие обломки самолета, следовавшего рейсом 815. Со всех сторон слышни крики и стоны уцелевших пассажиров. Вы пытаетесь мысленно воспроизвести последние события, но понимаете, что ничего не помните. Вам предстоит увидеть остров (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Ubisoft MontrealЖанр: Adventure, Arcade, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BE060FACD395F7D0268C02471A9ABADB95FB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263740   (274964) от 27.11.2018
-
-Мама (2018) WEB-DLRip [H.264/720p-LQ] (серии 1-16 из 16)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая учительница русского языка и литературы Вера Субботина начала новую жизнь: переехала из Санкт-Петербурга в Москву и устроилась на работу в лицей. Новый коллектив, новые ученики, новые знакомства, но старые ошибки прошлого неожиданно напомнили о себе… Встреча с негласным лидером класса, трудным подростком Кристиной и ее родителями, Надеждой и Кириллом Успенскими, (   Читать дальше...   )Производство: Россия / Студия 2ВЖанр: мелодрамаРежиссер: Гузэль КирееваАктеры: Юлия Мельникова, Павел Трубинер, Марина Дровосекова, Борис Щербаков, Галина Польских, Юлия Куварзина, Анна Попова, Валерия Шкирандо, Мариам Мерабова, Владимир Кошевой и др.Продолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757CC1FE03168143A26D9F551C4719D339B3D0F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356440   (274963) от 27.11.2018
-
-Grotesque Tactics: Evil Heroes / Grotesque Tactics: Настоящие негодяи (2011) [Ru] (1.0) Repack Fenixx
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274963.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Grotesque Tactics: Настоящие негодяи" - это ироничная фэнтезийная РПГ с интересным сценарием и тактическими элементами. Юный призывник Дрейк проваливается на экзамене в Военную академию, и поэтому ему отказывают в праве сражаться за королевство Глория. Униженный и расстроенный, он ищет способ броситься в пасть беспощадного плотоядного гриба. Но вдруг Дрейк (   Читать дальше...   )Тип издания: RepackРазработчик: Silent DreamsЖанр: StrategyЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7795C41F5CBE5015E1F3ECD983FB655D900A9166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265454   (274962) от 27.11.2018
-
-Робин Гуд: Начало / Robin Hood (2018) TS [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_274962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветеран Крестовых походов Робин из Локсли и его командир-мавр по возвращении в Англию видят, что родная страна погрязла в коррупции. Вместе они решают изменить положение дел и запускают маховики массовой революции, в центре которой окажется загадочный разбойник.Производство: США / Summit Entertainment, Appian Way, Pixoloid StudiosЖанр: Боевик, триллер, приключенияРежиссер: Отто БатхёрстАктеры: Тэрон Эджертон, Джейми Фокс, Бен Мендельсон, Ив Хьюсон, Джейми Дорнан, Тим Минчин, Пол Андерсон, Ф. Мюррэй Абрахам, Йен Пек, Корнелиус БутПеревод: Многоголосый закадровый, любительский (КОЛОБОК)Субтитры: ОтсутствуютПродолжительность: 01:46:33Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497195   (274961) от 27.11.2018
-
-Warlock. Master Of The Arcane (2012) [Ru] (1.4.1.56/dlc) Repack Fenixx
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warlock: Master of the Arcane - новая стратегическая игра в фантастическом мире Ардания. Игроку предстоит взять на себя роль Великого Волшебника и построить могущественную волшебную империю, собрать армию и сразиться за Арданию от имени одного из восьми божеств.Тип издания: RepackРазработчик: Ino-Co PlusЖанр: Strategy (Turn-based), 3DЯзык озвучки: РусскийЯзык субтитров: РусскиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61925F511A2F2433FC483A9019B460AC24715458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265335   (274960) от 27.11.2018
-
-Хищник / The Predator (2018) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, бывший морпех, обнаруживает злобную инопланетную расу на Земле, но никто не верит ему, что эти твари существуют. Его сын-аутист, которого все обижают в школе, становится ключевой фигурой в схватке с Хищниками, поскольку мальчик умеет невероятно быстро учить языки и, судя по всему, сможет понять пришельцев.Производство: США, Канада, 20th Century Fox Film Corporation, Canada Film Capital, Dark Castle Entertainment, Davis Entertainment, TSG EntertainmentЖанр: Ужасы, Фантастика, Боевик, Триллер, ПриключенияРежиссер: Шейн БлэкАктеры: Бойд Холбрук, Треванте Роудс, Джейкоб Тремблей, Кигэн-Майкл Ки, Оливия Манн, Стерлинг К. Браун, Томас Джейн, Алфи Аллен, Августо Агилера, Джейк БьюзиПеревод: Многоголосый закадровый (HDrezka Studio)Субтитры: Английские (Full)Продолжительность: 01:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2FCE9E4B55A6D24B1E081CFFDBCC21A06BC2313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 269506   (274958) от 27.11.2018
-
-Elemental: War of Magic / Elemental: Войны магов (2010) [Ru] (1.09) Repack R.G. ReCoding
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магия - единственная сила, которая имеет значение в этом мире, и те немногие, что могут управлять ею, обладают истинной властью. Но эту власть ещё нужно удержать. Королевства людей бросают в бой многотысячные армии в попытке отбиться от орд тёмных существ - Падших. Пробудившиеся от сна могучие драконы испепеляют целые города. Демоны, призванные чернокнижниками, сеют (   Читать дальше...   )Тип издания: RepackРазработчик: Stardock EntertainmentЖанр: Strategy (Turn-based, Grand strategy), IsometricЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22D24E7D34ED532A369E1007B5D4A93F6A2818A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216145   (274957) от 27.11.2018
-
-NVIDIA GeForce Game Ready Driver 417.01 - WHQL [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драйверы Game Ready обеспечивают лучшие игровые возможности во всех недавно выпущенных играх, включая игры в виртуальной реальности. Перед выходом новой игры команда по разработке драйверов работает до последней минуты над повышением производительности драйвера и исправлением ошибок, чтобы обеспечить лучший игровой процесс с самого первого дня.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06AB16B0188B1BADF27AC744FC48384565F2AC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445872   (274956) от 27.11.2018
-
-Миллениум: Трилогия Девушка с татуировкой дракона / Девушка, которая играла с огнем / Девушка, которая взрывала воздушные замки / Man som hatar kvinnor / Flickan som lekte med elden / Luftslottet s ...
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микаэль Блумквист — талантливый журналист, который верой и правдой добивается справедливости в самых скандальных делах — неожиданно терпит фиаско в своей деятельности, в результате чего вынужден отбыть срок лишения свободы.
-В то же время влиятельный человек Хенрик Вангер поручает ему дело о пропаже его племянницы, которая таинственным образом исчезла из имения Вангеров, (   Читать дальше...   )Жанр: Триллер, Детектив, КриминалРежиссер: Дэниэл Альфредсон / Daniel AlfredsonАктеры: Микаэл Нюквист, Нуми Рапас, Лена Эндре, Анника Халлин, Джейкоб Эрикссон, София Ледарп, Андерс Албом, Георги СтайковПеревод: Профессиональный (многоголосый закадровый)Субтитры: Русские
-АнглийскиеФормат: MKVПродолжительность: 02:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAF6AFBA4CF3693B3A2C7418FDB553AA263D794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215529   (274955) от 27.11.2018
-
-Jack to Mame no Ki / Jack and the Beanstalk / Джек в Стране Чудес [1974, Movie] DVDRip raw+ru
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместо того, чтобы продать единственное имущество их бедной семьи — корову, которая больше не дает молока, Джек умудряется поменять ее на 5 волшебных бобов. Раздосадованная мать выбрасывает бесполезные бобы. Но за ночь они вырастают до небес и Джек вскарабкивается по стеблю вместе со своим верным псом Кросби.
-Там за облаками в огромном замке он встречает прекрасную (   Читать дальше...   )Производство: Nippon Herald Films, Group TACЖанр: приключения, сказка, музыкальныйРежиссер: Сугии ГисабуроЯзык озвучки: Русский, ЯпонскийСубтитры: нетФормат: MKV DVDRipПродолжительность: 98 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C5AF054DAADE5A570D758D15705D3009E25256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292635   (274954) от 27.11.2018
-
-Аполлон 13 / Apollo 13 (1995) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о неудачной лунной миссии «Аполлон-13» — одном из самых драматических моментов освоения космоса. В 1970 «Аполлон-13» должен был стать третьим космическим кораблём, который доставил бы астронавтов на Луну. Однако уже на подлёте к цели на корабле произошла серьёзная авария, которая не только поставила крест на высадке, но и создала угрозу жизни экипажа.Жанр: Драма, приключения, история..Актеры: Том Хэнкс, Билл Пэкстон, Кевин Бейкон, Гэри Синиз, Эд Харрис, Кэтлин Куинлен, Мэри Кейт Шеллхардт, Эмили Энн Ллойд, Мико Хьюз, Макс Эллиотт Слэйд, Jean Speegle Howard, Трэйси Рейнер, Дэвид Эндрюс, Мишель Литтл, Крис Эллис..Перевод: Дублированный, Профессиональный (одноголосый, А.Гаврилов), Профессиональный (многоголосый, ОРТ),Субтитры: Russian, English, French, Romanian, Portuguese, TurkishФормат: MatroskaПродолжительность: 02:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145A6653B31705F382245E773A5A921DEAF3370D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265355   (274953) от 27.11.2018
-
-Acronis True Image 2019 Build 14690 RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC476B01E0DE0119C2E0E4AE959E248D89F2F38B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703528   (274952) от 27.11.2018
-
-Шулер (2013) WEB-DLRip [H.264/1080p] (серии 1-10 из 10)
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одесса, 1980 год. У Костика Волошина есть мечта — удрать за кордон — социализм он строить не намерен. Костик ведет двойную жизнь — должность научного сотрудника НИИ — лишь прикрытие для шулерской деятельности, в которой Костик абсолютный профи.
-Спасаясь от расправы крутого карточника Гоги, которому он задолжал крупную сумму, он едет в Одессу, откуда сам родом. Его (   Читать дальше...   )Производство: "Star Media", Россия / УкраинаЖанр: Драма, КриминалРежиссер: Эдуард ПарриАктеры: Антон Феоктистов, Ольга Лерман, Сергей Сосновский, Алексей Ведерников (II), Алексей Горбунов, Сергей Алимпиев, Кирилл Козаков, Екатерина Волкова, Юлия Галкина, Владимир Карпов (III), Александр Робак, Павел Трубинер, Александр Савенков, Алексей Смолка, Вадим ЦаллатиПродолжительность: 10 x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229C7F3D990B6122ED90E04BD5EBFA27DDABC24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 424194   (274951) от 27.11.2018
-
-Спрут / La piovra (1984-2001) 12xDVD5/19xDVD9 (сезоны 1-10)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная версия самого грандиозного итальянского телепроекта, снятого по реальным cобытиям …Микеле Плачидо ("Афганский излом") в криминальной драме "Спрут".В небольшой сицилийском городке убивают начальника уголовного розыска Маринео. Кажется, что это преступление мафии. В тот же день становиться известно еще об одной смерти. Покончила с собой маркиза (   Читать дальше...   )Клятва, которую дала Сильвия Конти над телом погибшего комиссара Каттани, выполнена. В ходе долгого расследования ей, не раз рисковавшей жизнью, удалось найти и заказчиков, и исполнителей убийства, и воздать им по заслугам. Глава преступной организации «Экстрема Туле» профессор Рамонте отделался небольшим сроком тюремного заключения, но из-за тяжелой болезни также (   Читать дальше...   )Жанр: Драма, Криминал, ДетективРежиссер: Луиджи ПереллиАктеры: Ремо Джироне, Патриция Милларде, Elena Arvigo, Рольф Хопп,е Артуро Паглия, Франческо Сичильяно, Джилберто Идонеа, Джампьеро Бьянчи, Пьетро Бионди, Франко Грациози...Перевод: Многоголосый закадровый(профессиональный).Субтитры: Русские, ИтальянскиеЯзык субтитров: ИтальянскиеПродолжительность: 2х~01:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2998027B1409C332B6798B29F2C6BECAB2196AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473013   (274950) от 27.11.2018
-
-Светлячок / Firefly (2002) BDRip [H.264/720p-LQ] (сезон 1, серии 1-14 из 14) Tycoon
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Малькольм Рейнольдс — закаленный в боях ветеран галактической гражданской войны, сражавшийся не на той (проигравшей) стороне, зарабатывает на жизнь мелкими преступлениями и перевозит грузы на своем корабле «Серенити».
-Он возглавляет небольшую разношерстную команду, которая порядком смахивает на самую обычную семью — ее члены вечно ссорятся, не соблюдают дисциплину, (   Читать дальше...   )Производство: США, 20th Century Fox Television, Mutant EnemyЖанр: фантастика, боевик, драма, приключенияРежиссер: Джосс Уидон, Верн Джиллам, Тим МинеарАктеры: Натан Филлион, Джина Торрес, Алан Тьюдик, Морена Баккарин, Адам Болдуин, Джуэл Стэйт, Шон Маэр, Саммер Глау, Рон Гласс, Блейк Роббинс и др.Перевод: Двуголосый закадровый - Tycoon-StudioЯзык субтитров: РусскийПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D81A0DFEF90EC1D08A1464921291D696AAE1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 28117   (274949) от 27.11.2018
-
-Diablo & Diablo: Hellfire (1997) [Ru] (1.0) Unofficial
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diablo - это action/RPG, в которой вам предстоит проложить свой путь через шестнадцать случайно генерируемых уровней подземелья, под завязку заполненных монстрами и сокровищами. Ваша финальная цель – демон Диабло, повелитель ужаса, который и стал причиной всех бед, постигших не только тихую деревушку Тристрам (Tristram), но и все королевство. Вы можете выбрать, кем (   Читать дальше...   )Тип издания: UnofficialРазработчик: Blizzard Entertainment, Synergistic SoftwareЖанр: Action (Rogue-like), RPGЯзык озвучки: Русский
-Локализация: Фаргус
-Версия: 1.0Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DAFAC10EB75D27CCAB8C49FFDE2BC26768047D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280008   (274948) от 27.11.2018
-
-Студия "Диафильм" и другие | Волшебный мир диафильмов [1949 -] [JPEG]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый из нас бережно хранит в своем сердце воспоминания детства. Радостные или грустные, светлые или полные горечи, они служат как бы мостиком, который связывает нас сегодняшних, взрослых и солидных, с теми маленькими детьми, которыми мы были когда-то. Иногда, испытывая ностальгию по ушедшему детству, мы достаем эти воспоминания из глубин своей памяти, чтобы вернуться (   Читать дальше...   )Жанр: диафильмФормат: JPEG + PDF+DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163372F3F938928B800F02AE93EB16B0CEDE11AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 94181   (274947) от 27.11.2018
-
-Sen to Chihiro no Kamikakushi / Spirited Away / Унесённые призраками (2001) DVDrip j+r
-
->>След.
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая Тихиро вместе с мамой и папой переезжают в новый дом. Заблудившись по дороге, они оказываются в странном пустынном городе, где их ждет великолепный пир. Родители с жадностью набрасываются на еду и к ужасу девочки превращаются в свиней, став пленниками злой колдуньи Юбабы, властительницы таинственного мира древних богов и могущественных духов. Теперь, оказавшись (   Читать дальше...   )Производство: Жанр: Приключения, комедия, драма, фэнтезиРежиссер: Миядзаки Хаяо / Miyazaki Hayao / 宮崎駿Продолжительность: 125 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFF0D8560D4F4AB35A3F56C9F79A17E79FE216A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 151178   (274946) от 27.11.2018
-
-Konung 3: Ties of the Dynasty / Князь 3: Новая династия (2009) [Ru] (1.0) License
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения в легендарной Лесной стране — мире, созданном на основе мифов трех великих народов — славян, скандинавов и византийцев — продолжаются в новой ролевой игре из серии «Князь». Завершилась эпоха Титанов, ушли в прошлое славные богатыри и великие властители. Час новых героев пробил, когда опустел престол великого княжества. Многие отважные воины и искатели (   Читать дальше...   )Тип издания: LicenseРазработчик: 1СЖанр: RPGЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861602F56CD51DD1DB1823C6CB579A466D8BA6F3
+magnet:?xt=urn:btih:1811EBC4F580C8F37698344553DBE55FDDFFAEA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

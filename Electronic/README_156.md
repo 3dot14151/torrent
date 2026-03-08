@@ -1,3 +1,61 @@
+###  Публикация: 1212455   (776056) от 11.03.2018
+
+BCee - Volume Three (2018) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Say No feat. Lomax (Cyantific Remix) (05:20)
+ 02. Cultural Shift (05:47)
+ 03. Diagnosis Murder feat. S.P.Y (Metrik Remix) (04:58)
+ 04. Outlaw (06:42)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39FEDA12592BE002BD126CC4C0FBFE7E34D0BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212029   (776012) от 11.03.2018
+
+Onuka - Onuka (2014) [FLAC|Lossless|image + .cue] <Electronic, Folk, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (02:26)
+02. Around Me (03:47)
+03. When I Met U (04:08)
+04. Look (03:37)(   Читать дальше...   )Жанр: Electronic, Folk, Ethno, Ambient, DowntempoПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C533DBE7E429C5C227822DE77A2A85A2A9962E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015155   (775859) от 09.05.2016
 
 VA - Recoverworld Radio 006 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Trance>
@@ -678,64 +736,6 @@ Gescom - Discography 17 Releases (1994-2011) Skam, OR, Warp [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1A2EC1FD4E07996C16A5494E74E1BB12092AB6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015323   (774992) от 10.05.2016
-
-VA - Grand Masters Collection Voices of Africa (2015) [MP3|320 кб/с] <Lounge, Reggae, African Music>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hotline - Jabulani (03:50)
-02. Simphiwe Dana - Mayine (06:50)
-03. Ladysmith Black Mambazo - Because I Love You (04:06)
-04. Cesaria Evora - Angola (04:25)(   Читать дальше...   )Жанр: Lounge, Reggae, African Music, WorldПродолжительность: 02:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C9700087EC10682D11AB256CE55316905D0B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015476   (774986) от 10.05.2016
-
-VA - Best of Trip-Hop (2016) [MP3|320 кб/с] <Electronic, Downtempo, Trip-hop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reverie - Dancing on the Wind (03:27)
-02. Lajana - Coming Down (03:48)
-03. Syntheticsax - Emotionless (06:13)
-04. Idiosyncrasy, Red Richards & Aris - Mobilis in Mobili (04:55)(   Читать дальше...   )Производство: Tokyo Women RecordsЖанр: Electronic, Downtempo, Trip-hopПродолжительность: 02:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD09462757A613BF14E69ED1DC97CD4E4A7AE4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

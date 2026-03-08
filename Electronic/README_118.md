@@ -1,3 +1,61 @@
+###  Публикация: 1119075   (809599) от 27.03.2017
+
+Cloudz - Light Spirit Body (2017) [MP3|320 Kbps] <Ambient, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Everything All At Once (8:46)
+02.  Golden Rays of Divinity (9:05)
+03.  Liquid Light (9:21)
+04.  LOVE (13:10)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 01:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0B8D68B2BB095BE58677D2A473985477038B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119059   (809598) от 27.03.2017
+
+VA - Formentera Beach Sunset & Sunrise Chill Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  St Project - Have You Seen The Sea  3:34
+02.  Luca Savoldi - Solea'  4:12
+03.  Yano - Nostalgia  2:59
+04.  Deep Emos - Sunset Connections  4:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B01AD2720E44BDA010FEDBB72723046BF4190F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119068   (809468) от 27.03.2017
 
 VA - Lounge System Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -685,61 +743,6 @@ Boris Brejcha - 22 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D37EEBB41C4B909CB2DA31CBE27016DBEAAC053C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119472   (807494) от 28.03.2017
-
-VA - Progressive House Spring Essentials (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vintage & Morelli - Desire (Dezza Remix)  5:42
-02.  LTN - Whispers In The Night (Original Mix)  6:44
-03.  Sam Davies - Cosmos (Sundriver Remix)  8:22
-04.  Eskai - Tides (Original Mix)  5:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1062A07EDB3649F9A469AF0136B1BBCBFCA16FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658290   (807279) от 19.05.2013
-
-Scooter - Age Of Love (20 Years Of Hardcore Expanded Edition) (2013) [3CD|FLAC|Lossless] <Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Techno, TranceПродолжительность: 02:33:42
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1341679   (228645) от 29.11.2019
+
+MARUV - Hellcat Story (2019) EP [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228645.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To Be Mine
+2. Don't Stop
+3. Don't U Waste My Time
+4. If You Want HerЖанр: Dance, Pop, ElectronicПродолжительность: 00:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AAF320435DB7E626D43B70B683B175F152C49A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649850   (228570) от 29.07.2023
+
+Narada Michael Walden - The Dance Of Life (1979) LP [MP3|320 Kbps] <Disco, Funk / Soul, Jazz-Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're So Good (6:05)
+02. I Shoulda Loved Ya (6:38)
+03. Lovin' You Madly (5:18)
+04. Crazy For Ya (3:56)(   Читать дальше...   )Жанр: Disco, Funk / Soul, Jazz-FunkПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DCC4A20C5F242DADFCAA57B004A03ECC04943D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583375   (228544) от 15.10.2022
 
 Various Artists - NOW #1s - 70 Years Of The Official Singles Chart (5 CD Box Set ) (2022) Box Set [MP3|320 Kbps] <Pop, Rock>
@@ -693,69 +751,6 @@ Savage Garden - Affirmation (1999) [FLAC|Lossless|tracks + .cue] <Pop Rock, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:035AE55DC6D8A97471CE0368F5E39425A5D1E878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584075   (226180) от 17.10.2022
-
-Cerrone - Cerrone by Cerrone (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отмечая 50-летие своей музыкальной карьеры Cerrone со товарищи выпустил свои 16 культовых классических произведений в версии 2022 года, переработав и смикшировав их собственноручно.01. Give Me Love (feat. Brendan Reilly)
-02. My Desire (feat. Brendan Reilly)
-03. Got to Have Lovin' (feat. Brendan Reilly)
-04. Look for Love (The Reflex Revision)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E4AB074948FA16A1EFFC2C5C12FD480F280D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586716   (226142) от 09.12.2012
-
-Adriano Celentano - Live Adriano (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый двойной альбом Адриано Челентано, запись концерта проходившего 8-9 октября в Вероне, маэстро дополнил его еще девятью отличными студийными композициями в виде бонуса...1. Solo da un quarto d'ora (5:45)
- 2. Io sono un uomo libero (5:48)
- 3. Quel casinha (Il ragazzo della via Gluck) (4:28)
- 4. 24.000 baci (2:19)
- 5. Nata per me - Remix (2:58)
- 6. Dormi amore (5:31)
- 7. Tir (4:29)
- 8. Per sempre (5:10)
- 9. Gelosia (4:31)Жанр: PopПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE7ABE0DA4263C6DFEE11D628829D1EB179DCEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

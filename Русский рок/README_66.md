@@ -1,90 +1,3 @@
-###  Публикация: 1072735   (351703) от 13.11.2016
-
-Z-exit - 3д в кино (2016) [MP3|320 Kbps] <Rock>
-
->>След.
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351703.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пора решить
-2. Острова
-3. Герой романов
-4. Суета переходов (feat. Gmatik)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B31DDF7FF35B59F4F04C74443212347DE1F7C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418086   (351244) от 23.10.2020
-
-Пётр Налич - Morra (2020) [MP3|320 Kbps] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flowerbed
-2. Lady Bear
-3. Baking Brothers
-4. Early Days(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777ACCF87B571B35E59D156B47AE5E595ECD36BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418084   (351238) от 23.10.2020
-
-ГРОМЫКА - 20000 ЛЕТ ПОД ВОДОЙ (2020) [MP3|320 Kbps] <Heavy Psychedelic Twist>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Питекантропы
-2. Плеоназмы
-3. Колдунами и цунами
-4. Звёзд немало(   Читать дальше...   )Жанр: Heavy Psychedelic TwistПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7642EBB5B05B4E26F2E5A95815A888B2ECFE13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418235   (350793) от 23.10.2020
 
 Борис Гребенщиков (БГ) - Услышь меня, хорошая (2020) [MP3|192 Kbps] <Folk>
@@ -752,6 +665,93 @@ Restless Oblivion - 2 Albums (2014-2022) [MP3|320 Kbps] <Gothic Metal, Melosic D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:360632B03892A5A3D67FA66F0123CCF093101257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578330   (345836) от 23.09.2022
+
+Аборт Мозга (Brain Abortion) - 2 Albums (2022) [MP3|320 Kbps] <Hardcore Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Да, Звезда! [00:02:51]
+02. Бог со знаком минус [00:02:52]
+03. Брат и Сестра [00:01:47]
+04. Попугайчик [00:02:58](   Читать дальше...   )Жанр: Hardcore Punk RockПродолжительность: 2 CD, 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937D84FECB9AE847B94BB346D5C81E4D901CEFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578551   (345695) от 23.09.2022
+
+Магелланово Облако - Духовный Бедуин (2022) Deluxe Version [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345695.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Духовный Бедуин (Intro)
+2. Аксиома (Комментарий)
+3. Аксиома
+4. Дом Огня (Комментарий)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB28F6E2C7DBEAF5CDDA4E0FCCC3CBF4622C2F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330056   (345615) от 08.10.2019
+
+Ботаника - Эй (2019) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345615.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Эхрусьмать
+2. Мистер рейв
+3. Боевик
+4. Мы тонем(   Читать дальше...   )Жанр: RockПродолжительность: 00:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB6CF98093C6D352500B8484ECC02635F263BE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

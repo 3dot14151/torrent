@@ -1,3 +1,31 @@
+###  Публикация: 1082373   (278755) от 12.12.2016
+
+VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Rock, R&B>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ConfidentialMX - I Started a Joke (feat. Becky Hanson) (03:11)
+02. Grace - You Don't Own Me (feat. G-Eazy) (03:20)
+03. Sweet - Ballroom Blitz (04:01)Жанр: Soundtrack, Hip-Hop, Rock, R&B •Продолжительность: 01:37:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFDF62859174C56B1E6B0887D17B75FA8F24218B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187692   (278721) от 29.11.2017
 
 Sean Evenett - My Peaceful Heart (2017) [MP3|320 Kbps] <New Age>
@@ -710,35 +738,6 @@ VA - Greatest Hits of Classical Rock Vol. 4 (1993) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4BE2640995D9B99C7191C0287974481E7794388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336706   (274580) от 10.11.2019
-
-Back to Earth - Peace of Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274580.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Away from Home 05:16
-2. Open Skies 04:00
-3. As Beautiful as You	04:44
-4. Hope in Sight	04:35(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:17:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE7F66C2438D59F0D623A5AA06F5885F6C28286E
 ```
 
 https://mybot314.ru/tekegram_catalog/

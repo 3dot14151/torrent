@@ -1,3 +1,32 @@
+###  Публикация: 1063559   (432516) от 17.10.2016
+
+Johnny Jewel - Lost River / Как поймать монстра (Original Motion Picture Soundtrack) (2015) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Jewel feat. Saoirse Ronan - Tell Me (02:42)
+02. Chromatics - Yes (Love Theme from Lost River) (03:24)
+03. Glass Candy - Shell Game (03:07)
+04. Johnny Jewel - Echoes (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917FB72FF8C7320AA3D3BD081BEBBB1FC26B64FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063653   (432387) от 17.10.2016
 
 Petri Alanko - Quantum Break (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Ambient>
@@ -724,35 +753,6 @@ Mauricio Nader - Our Soul Revealed (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56D2EC25F9506E858C902900931F78F721EC2322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945435   (428644) от 12.10.2015
-
-Мельница - Алхимия (2015) [MP3|320 кб/с]<Folk, Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaudete
- 02. Анестезия
- 03. Марсианский экспресс
- 04. Никогда(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45CD8035D543E208139644C42B6D729149BC474
 ```
 
 https://mybot314.ru/tekegram_catalog/

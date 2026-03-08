@@ -1,3 +1,58 @@
+###  Публикация: 1119472   (807494) от 28.03.2017
+
+VA - Progressive House Spring Essentials (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vintage & Morelli - Desire (Dezza Remix)  5:42
+02.  LTN - Whispers In The Night (Original Mix)  6:44
+03.  Sam Davies - Cosmos (Sundriver Remix)  8:22
+04.  Eskai - Tides (Original Mix)  5:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1062A07EDB3649F9A469AF0136B1BBCBFCA16FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 658290   (807279) от 19.05.2013
+
+Scooter - Age Of Love (20 Years Of Hardcore Expanded Edition) (2013) [3CD|FLAC|Lossless] <Techno, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Techno, TranceПродолжительность: 02:33:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119436   (807110) от 28.03.2017
 
 Shingo Nakamura - Best of Shingo Nakamura (2017) [MP3|320 Kbps] <House,Progressive House>
@@ -682,64 +737,6 @@ VA - Best Of LW Trance II (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:096C9E8A43B27DDCD1D3BD64ADE271EB85D0D3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198775   (804406) от 13.01.2018
-
-Flyance Records - Label-Pack 10 Releases (2014-2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House, Ambient, Dub Techno, Acid House>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FK (08:54)
- 02. CYFI (07:17)
- 03. R2A (06:51)
- 04. AE (05:55)Тип издания: WEBЖанр: TechnoПродолжительность: 00:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499887099B545662AE6F19C968650EAB171AE6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010342   (804394) от 24.04.2016
-
-VA - Venera Music Vol.9 (2016) [MP3|320 кб/с] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob Decyno - Trip 07:51
-02. A. Chagochkin - Give Me Key 04:59
-03. Chemical Poison - Skyward 07:01
-04. Creatique - Talskaf 05:34(   Читать дальше...   )Жанр: House, Tech House
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337D7EA374467BD850AA72B1B8E96A3B2EA7A1FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

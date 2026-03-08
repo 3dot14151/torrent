@@ -1,3 +1,32 @@
+###  Публикация: 1050671   (536731) от 09.09.2016
+
+VA - Disco Dance Italy (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cazintel - Over The Sea (Radio Version) 03:55
+02. Ivan Herb - Larga Vida En Vivo 03:07
+03. Jane Doe - Knight Rider (Ray Livingstone Rework) 04:26
+04. Jimmy & Wenzel - Dreamer 04:56(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58EA0E067587C8241F27862FB08554664B7CDD2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050833   (536572) от 09.09.2016
 
 Way Out West - Set My Mind (Single) (2016) [MP3|320 Kbps] <House>
@@ -707,35 +736,6 @@ VA - Black Hole House Music 09-16 (2016) [MP3|320 Kbps] <House, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F219E3342EC18768C423D4025D954FC622F0BC6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156913   (526455) от 09.08.2017
-
-VA - Vibes Del Mar (50 Progressive House Tunes) (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcelos Pi, Swooney - Live (Alex Greed Remix)
-02. Max Lean - Dreamer (PROMI5E Remix)
-03. POINT BLVNK, TAAMY - Full Smash (Original Mix)
-04. Mark Bale, Lost Identity - Get Ready (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27B1228CA3C9322A8B0C60834CA5990DE2E8ADB
 ```
 
 https://mybot314.ru/tekegram_catalog/

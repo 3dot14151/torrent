@@ -1,3 +1,143 @@
+###  Публикация: 471509   (97449) от 22.03.2012
+
+VA - XXXL Клубный Весна (2012) [MP3|192 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ritmo Playaz - Everybody Loves The Sunshine (Mike La Funk Remix)
+02. DJ Shevtsov feat. Shena - Face Control (Marty Fame Radio Edit)
+03. Shakira feat. Pitbull - Rabiosa (DJ Pasha Lee & DJ Dmitriy Tsoy Remix)
+04. Morandi - Serenada (Roma Star Remix)
+05. DJ Mafia - Love (DJ Kapuzen & DJ Paul Taylor Remix)
+06. Cabballero - Paris Latino 2k11 (Sean Finn Remix)
+07. Kevin R feat. Naomy - Kiss Me (Damien N-Drix Remix)
+08. Akcent - My Passion (Emin K & Ansarov Remix)
+09. Sander Van Doorn - Koko (Original Mix)
+10. DJ Vengerov feat. Plazma - Angel of Snow (Radio Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 08:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244458298CC507A5E3291D285D28A519ECB2AEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471529   (97433) от 22.03.2012
+
+VA - Sound RMX (2012) [MP3|320 kbps]<Club | Dance | House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dom Omar - Ella Ella (DJ Spice)
+02. Emir Kusturica - Nexboy Daan Mahalageasca Maxim Play Ilya Steklov Bootleg Remix
+03. Christopher S Feat. Mc X-Large - Horny! (Johan K Arcade Bootleg)
+04. Ruslan Nigmatulin feat Syntheticsax DJ Half Diss BoyZ - Equinox Time Freaky DJs Mash Up
+05. Black White feat Robson - Do You Know Dj Rmx
+06. Dirty South and Those Usual Suspects feat. Erik Hecht - Walking Alone (DJ ViTaLiKe Bootleg)
+07. Rihanna - We Found Love (Dj Stifmaster Remix)
+08. Syster - Navi G Nothing You Can Do (Alex Boot Remix)
+09. Unikall Project - I Love Rock-N-Roll (Unikall Project Mush Up)
+10. Flashtronica - I Can't Stop (Aleks Foton Remix)(   Читать дальше...   )2012Жанр: Club | Dance | HouseПродолжительность: 04:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08712387B5C91C5A5A78E973A7C5B73386FD959E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470386   (97388) от 21.03.2012
+
+VA - Весенние Танцевальные Хиты. Зарубежный (2012) [MP3|256 кб/с]<Dance, Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97388.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Otherview - So Long (Rivaz Club Mix)
+ 002. Sugababes - Freedom (Radio Rip)
+ 003. Jack Holiday & Mike Candys - Children (Radio Edit)
+ 004. Christina Perri - Jar of Hearts
+ 005. E-Partment feat. Kandy - Hang On (Original Mix)
+ 006. LaRoxx Project - Jabba Jabba (Radio Edit)
+ 007. Jochen Miller - Flashback (Gregori Klosman Remix)
+ 008. BunHeaD - Am The Best (Kuba S Remix)
+ 009. The Disco Boys - Around The World
+ 010. Sophie Zelmani - Dreamer2012Жанр: Dance, РорПродолжительность: 05:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793F300312D8159CEA0059BC8CB100FB0F6B2561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469413   (97193) от 18.03.2012
+
+VA - Ретро Дискотека глазами диджеев Vol-2 (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E - Rotic - D.I.S.C.O. (lust for life)
+02. Gazebo - Megamix
+03. Vinylshakerz - One night in Bangkok (Vinylshakerz screen cut)
+04. C.C.Catch - Baby I need your love
+05. Sabrina - I feel love (Good sensation mix)
+06. Radiorama - Aliens
+07. Sandra - In the heat of the night
+08. 4 Clubbers - Someday
+09. Shot - Disco beat
+10. Dschinghiz Khan - Moskau(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 07:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20397A5DC9F01E6ACF0A6E0C2C64D308FFC440B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469433   (97189) от 18.03.2012
 
 VA - Super Electro. Сборник клубных суперхитов (3CD) (2012) [MP3|320 kbps]<Dance | Electro | Club>
@@ -746,146 +886,6 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD30EF915755DB0706D3B08B859658B3E4CEC26B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483704   (88756) от 16.04.2012
-
-VA - Взрывной танцевальный Top DFM (2012) [MP3|192-248 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Set Fire To The Rain (Party Vs. Stylez & D-Vine Remix)
-02. R.I.O - Hot Girl (Amboza Remix)
-03. The Crazylovers - Love Again (Original Mix)
-04. Electro Makerz - U Got Me Rocking (Original Mix
-05. Jason Derulo - Fight For You (Gordon & Doyle Bootleg Mix)
-06. Marishka - Play That Game (Stephan F Remix Edit)
-07. Alessandro Vinai & Andrea Vinai - Take Me Away (Club Mix)
-08. Jasper Forks - River Flows In You (Empyre One
-09. T-M-S - Life Dream & Memories (Radio Edit)
-10. Elena Gheorghe Vs. Katy B. - Your Lights On (Lexx & Milaan'D Mashup 2012)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 07:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEAC26CB67B6B5435D7BCEE9F605E42FF71C8F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483080   (88611) от 15.04.2012
-
-VA - Romantic Collection - Spring Tenderness (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celine Dion - The Power Of Love
-02. George Michael - Careless Whisper
-03. Kanzas - Dust In The Wind
-04. Ricky Martin & Madonna - Be Careful
-05. Berlin - Take My Breath Away
-06. Foreigner - I Want To Know What Love Is
-07. Garbage - The World In Not Enough
-08. Haddaway - I Miss You
-09. Richard Marx - Hazard
-10. A-Ha - Crying In The Rain2012Жанр: PopПродолжительность: 06:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C163664550945C56DF8DE49663150F911D70A585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483015   (88607) от 15.04.2012
-
-VA - Russian Tracks Remix DJ(2012) [MP3|256 kbps]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr.Credo - Клен (DJ Dima LR & DJ Konstantin Remix)
-02. Robertino Loretti - Jamaika (Dj Ruslan Nigmatullin Radio Edit)
-03. Снежно - Близнецы (Dj Denis Rublev & Dj Natasha Baccardi Radio Mix)
-04. Ангел А - Холодный дождь (GASpromo Radio Mix)
-05. Монако - Дело мое (Dj Miv Full Remix)
-06. Ева Польна - Не расставаясь (Official Club Version)
-07. Андрей Губин - Девушки, Как Звезды (Larin & Sasha Sky Radio Mix)
-08. Emin - Just For One Night (DJ Fisun Remix)
-09. Вася Обломов - Магадан (Pimenov & Agent Smith U Bobra Remix Radio Edit)
-10. МакSим - Весна (Dj Antonenko GASpromo Remix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 06:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E190A62C6AE8705C0E238E48192DE7B23BAD7AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482809   (88579) от 15.04.2012
-
-VA - Красота медленных хитов (2012) [MP3|~256 kbps]<Pop | Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88579.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-
-001. Макsим - Знаешь ли ты
-002. Reflex - Сойти с ума
-003. Ю.Савичева - Высоко
-004. Чай вдвоем - Прости
-005. Mr.Credo - Медляк
-006. Виа Гра - Не оставляй меня любимый
-007. К.Лель - Две капельки
-008. Валерия - Была любовь(   Читать дальше...   )2012Жанр: Pop | RockПродолжительность: 12:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D855ED02C127E80221A8333D29BF75BB9E29C654
 ```
 
 https://mybot314.ru/tekegram_catalog/

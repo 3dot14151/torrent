@@ -1,3 +1,198 @@
+###  Публикация: 573908   (378966) от 11.11.2012
+
+VA - Coca-Cola Hit Осень (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378966.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rihanna - Diamonds
+002. Тамерлан и Алена Омаргалиева - Может Это Ты
+003. Inna feat. Play & Win - INNdiA (Radio Edit)
+004. Светлана Лобода - 40 Градусов
+005. Olly Murs feat. Flo Rida - Troublemaker
+006. Тимати и Григорий Лепс - Лондон (Michael Yousher Remix)
+007. Bob Sinclar - Groupie (Radio Edit)
+008. Джиган - Держи меня за руку
+009. Arash feat. Sean Paul - She Makes Me Go
+010. Сергей Лазарев - Нереальная любовь(   Читать дальше...   )Жанр: PopПродолжительность: 12:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0599880F84B41DD879A26C50FB4CF058045D92C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573890   (378964) от 11.11.2012
+
+VA - Осенний Клубный (2012) [MP3|320 кб/с]<Club,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Holiday & Mike Candys - The Riddle Anthem (Radio Mix)
+02. Antoine Clamaran - Promised Land (Radio Edit)
+03. Dennis Cartier & Mc Sherlock - That Feeling (Radio Edit)
+04. Fedde Le Grand & Nicky Romero feat. Matthew Koma - Sparks (Turn Off Your Mind) (Radio Edit)
+05. Chris Decay & Re-lay - Love Junkie (Club Mix Edit)
+06. Francesco Diaz & Shena Winchester - Addicted To My Dreams (Radio Killer Remix)
+07. La Chris - Dirty Girl (Original Edit)
+08. Example - Kickstarts 2012 (DJ Antoine & Mad Mark remix)
+09. Dance Dealers - 2nd Chance (Dancefloor Kingz Remix Edit)
+10. Miami Club feat. Nicci - Supernova (R.I.O. Radio Edit)Жанр: Club,DanceПродолжительность: 03:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D4A5C8F376571865A0D16553E3AAF26A640A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573470   (378962) от 11.11.2012
+
+VA - Супер Танцевальный Музон (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Emeli Sande - Heaven (Radio Edit)
+002. Basto - I Rave You (Give It To Me) (Radio Edit)
+003. M.R. - To France
+004. The Babysitters Circus - Everything's Gonna Be Alright
+005. Qwote Feat. Mr Worldwide - Letting Go (Cry Just A Little) (Radio Edit)
+006. Lacuna - Celebrate The Summer (Money G. Radio & Video Edit)
+007. Loft - Summer, Summer
+008. Tom Pulse & E-Wok - Go Back 2 The Oldschool (Rico Bernasconi S Asskick Mix Edit)
+009. Antoine Clamaran & Vince M. feat. Soraya - Feeling You (Radio Edit)
+010. Despina Vandi - Katalaveno(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E415BD5FCB890A58FA5EE34AA03BC19E2D3651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253869   (378932) от 11.10.2018
+
+Supermode - Tell Me Why (2017) Radio Version Remix [MP3|320 Kbps] <Club, Dance, Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378932.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tell Me Why ★ Radio Version ★ RemixЖанр: Club, Dance, Deep HouseПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A0BBD15F771CD38E433916BD4EB777243204B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253708   (378927) от 11.10.2018
+
+VA - Options Remake 150 Tracks (2018 September) (2018) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378927.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eimear - Wake Up (Talamanca Remix)
+002. Capa (Official) - Blue Llama (Original Mix)
+003. Jay FM - Mirage
+004. Tom Bro - The Ocean (Spark Remix)(   Читать дальше...   )Жанр: House, Tech, Progressive, Club, DanceПродолжительность: 17:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF486CEF710AC9C39C611DA84519792DEF88225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573922   (378841) от 11.11.2012
+
+VA - Лучшая молодёжная 100-ка. Русская версия (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Varda - Я Тебе Не Верю
+002. Атаманка - Босиком
+003. Виктория Дайнеко И Корни - Многоточие
+004. Баnzай - Ради Тебя
+005. Silana - Биоволны
+006. Дима Билан & Nikki Jamal - Come Into My World
+007. 2front - Навсегда
+008. Иля - Это Любовь
+009. Dato - Я Любил
+010. Дина Мереуца - Мой Рай(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B1DF566439F028C2A7356AAE43D25060EC4351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573803   (378827) от 11.11.2012
 
 VA - Euphoric Emotions Vol.40 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
@@ -637,201 +832,6 @@ VA - Новинки Русского Рока (2012) [MP3|256 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC55F680DBE21C78C9346A9E934C802B9D8EDF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573833   (378022) от 11.11.2012
-
-VA - Cosmic Chill Lounge Vol. 1-5 (2007-2011) [MP3|320 кб/с]<Instrumental, Lounge, Chill Out>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378022.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:01. The Man Behind C. feat. Miriam - See You Again
-02. Magica Fe - Words
-03. Soulcraft feat. Jill Noom - Rain In My Hair
-04. Sine - Always
-05. The Man Behind C. - Make You Mine
-06. Jeela - So Jealous
-07. The Man Behind C. - What Can U Do
-08. Soundbuffet - So Blue
-09. 4 Tunes - Let The Rhythm Take Control
-10. The Man Behind C. - Need You(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:12:43
-01. Faro-Toscan dawn
-02. Merge Of Equals-Heart and mind
-03. Ganga-New beginning
-04. Five Seasons-Love Apple (Lemongrass Wet Dreams Rem)
-05. Jens Buchert-The falling star (NYC Mix)
-06. Vargo-One language
-07. Sine-The return
-08. Gold Lounge-Promised land
-09. Fade-Wonderful time(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C9AC8A4BDA41A6E25693D5687F594C5AD86C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175402   (377908) от 18.10.2017
-
-VA - Club Night 2 (2017) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Feldt & Alex Schulz - Be My Lover (Original Mix)
-02. Two Modest & Hugobeat feat. SevenEver – All Night (DJ ALEX MOSCOW M-p)
-03. Tyron Hapi feat. Mimoza - Anyway (Original Mix)
-04. Burak Yeter - Echo (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FBDF3F0F05332227A4D3A5A6C27FE2292031AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949413   (377703) от 23.10.2015
-
-VA - Sunset Cafe Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klartraum - Unique Shadow (Steve Rachmad Reprise) [03:10]
-02. Jon Donson - Synkope [07:56]
-03. Helly Larson - Ganja Fx [06:08]
-04. Klartraum - Sell Your Soul (Chillout Mix) [08:24](   Читать дальше...   )Жанр: Downtempo, Chillout, Chill HouseПродолжительность: 04:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEAFBBB7E8D1F98610BFC49184A675A9F5174E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949536   (377698) от 23.10.2015
-
-VA - Club Trance Shows (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Miller & Nicole McKenna - This Time Last Year (Original Mix) (07:03)
-02. Tim Lighterz & Simple Art - La Via Lattea (Yarik Djan Remix) (06:22)
-03. Mark Sherry & Clare Stagg - How Can I (Solis & Sean Truby Remix) (07:01)
-04. Ana Criado & Aurosonic - The Force Of The Blow (Original Mix) (08:37)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 04:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC0A0D854CE12503855575795F63589B1F20E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572446   (377658) от 11.11.2012
-
-Swing Republic - Midnight Calling (2012) [MP3|320 кб/с]<Electro Swing, Nu-Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377658.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fall feat. Karina Kappel (3:20)
-2. Mama (3:23)
-3. Midnight Calling feat. Karina Kappel (Down the Road) (3:45)
-4. Sugar Bubble feat. Karina Kappel (3:42)
-5. My Baby Bad (4:14)
-6. I Dream of You (3:57)
-7. Shape Up (3:08)
-8. On the Rooftop (3:32)
-9. High Hat (3:30)
-10. My Man (3:48)Жанр: Electro Swing, Nu-JazzПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5962876AE38875953DAE182A9C5FF6C0C8A698D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949429   (377578) от 23.10.2015
-
-VA - Original Mix Vocal Trance Vol.07 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila vs. Jwaydan - Coming Home (Original Mix) (08:24)
-02. Dennis Sheperd & Molly Bancroft - Silence (Club Mix) (06:59)
-03. D-Mad, Ana Criado - Little Signs Of Distance (Original Mix) (06:57)
-04. Hanski - Sunlight Showers (Original Mix) (05:52)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 08:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6015BDB5A6F5F924669C23AB0A439C92A8B5FBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

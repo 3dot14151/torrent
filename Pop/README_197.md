@@ -1,3 +1,61 @@
+###  Публикация: 1246134   (465682) от 09.09.2018
+
+Cosmo's Midnight - What Comes Next (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Hip Hop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/12. Confidence (4:29)
+ 02/12. Lowkey (3:40)
+ 03/12. Montego (3:08)
+ 04/12. With U (3:32)(   Читать дальше...   )Жанр: Electronic, Pop, Hip Hop, Soul, R&BПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4B2F6D1D1CC4DE4451AD774636698DD8CAC837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246172   (465660) от 09.09.2018
+
+VA - Hits Rewind 90s (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brandy, Monica - The Boy Is Mine (Radio Edit)
+02. Alannah Myles - Black Velvet
+03. En Vogue - Don't Let Go (Love)
+04. Donna Lewis - I Love You Always Forever(   Читать дальше...   )Жанр: PopПродолжительность: 02:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823190FF63BCECFBC11D4876B28BC7145B5F4DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246168   (465602) от 09.09.2018
 
 Екатерина Шаврина - Ой мороз, мороз... (2001) [FLAC|Lossless|image + .cue]<Pop, Retro, Folk>
@@ -712,64 +770,6 @@ VA - Abbamania (1999) Compilation [MP3|320 Kbps] <Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:751AFFE83654BC4E5B7F10DEA2D0BFE8CBF27EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246693   (461484) от 11.09.2018
-
-VA - Хочите танцев? (Got dance?) (2004) [FLAC|Lossless|tracks + .cue] <Euro house, italodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orlando - Seasons In The Sun (Factory Dance Remix) (4:16)
-02. The Flippers - Hootchie Cootchie (Extended Version) (5:04)
-03. Blockhouse - Disco Hit (Blockhouse Mix) (4:44)
-04. Killer Shadows - Don't You Want Me Baby (Hard Version) (5:25)(   Читать дальше...   )Жанр: Euro house, italodanceПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0CBDB05DE45F79C7EEA1AAA46323D4263C1036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246562   (461324) от 11.09.2018
-
-VA - ZYX Italo Disco New Generation Vol. 13 (2018) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stockholm Nightlife feat. Nathalie Hanberg - Stay One Day (Cliff Wedge Special ZYX Remix 2018) (6:08)
-02. Carino Cat - Balabina (7:38)
-03. Italoconnection - Neon Disco (Flemming Dalum Remix) (6:50)
-04. Lian Ross & Mode-One - I Still Love You (Extended Version) (5:38)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F89F5AC5F3490475B3FB01A253FD6CBF1B4034E
 ```
 
 https://mybot314.ru/tekegram_catalog/

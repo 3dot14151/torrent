@@ -1,32 +1,3 @@
-###  Публикация: 1223953   (668182) от 08.05.2018
-
-Yes - Tormato (1978) Remaster, 1994, Atlantic [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Times/Rejoice (04:05/02:41) (Total time: 06:46)
-02. Don'T Kill The Whale (03:55)
-03. Madrigal (02:21)
-04. Release, Release (05:40)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B45A77FF1CD6244FEB84864D702A7F4A89AD3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224095   (668178) от 08.05.2018
 
 Bias (feat. Rick Lambe) - Ships In The Night (1978-1981) Remastered, 2014, WEB [MP3|320 Kbps] <Soft Prog-Rock>
@@ -757,6 +728,35 @@ Los Colognes - The Wave (2017) [FLAC|Lossless|tracks] <Classic Rock, Art Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FCB262112F7D9CF06D041B1A2CA4C99D01CAA35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537220   (666706) от 17.03.2022
+
+Dream Master - A World Without People (2022) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - With Honour [00:05:40]
+02 - Circle Of Deceit [00:05:16]
+03 - House Of Cards [00:04:49]
+04 - Dreamland [00:04:22](   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5816351EC1EF32C7D04839122F5921148E7C48EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

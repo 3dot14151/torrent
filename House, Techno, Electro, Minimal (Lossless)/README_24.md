@@ -1,3 +1,87 @@
+###  Публикация: 1392306   (769385) от 25.06.2020
+
+Viill & Aura Minimum - Full Harvest (2020) Modern Nature [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viill - Lost SignalЖанр: Dub Techno, AmbientПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB6BAA61C35AD0916F92BC1725782BD0F09805B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392782   (769105) от 27.06.2020
+
+Soul Button - Phantom Existence (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Pattern (3:07)
+ 02. Imagine to Be Free (The Concept) (6:04)
+ 03. Deception (7:00)
+ 04. Awaken the Soul (feat Photographs.) (6:48)(   Читать дальше...   )Жанр: Electronic, Tech House, Deep Progressive HouseПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652818766EEA87CE6E33A7A59B5ADF0210151E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393190   (768487) от 29.06.2020
+
+Soul Button - Phantom Existence (Remix Edition) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utopia (Armen Miran Remix) (8:30)
+ 02. Silhouettes (Clawz SG Remix) (7:15)
+ 03. Shapeshifter (Matan Caspi Remix) (7:09)
+ 04. Deception (Whirl Remix) (7:51)(   Читать дальше...   )Жанр: Electronic, Tech House, Deep Progressive HouseПродолжительность: 01:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5048BD084FAAFB8808BFF31A78658FD92DC6DBAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278853   (767857) от 27.01.2019
 
 VA - Experimenta (1994) A13 [FLAC|Lossless|tracks+.cue] <Electro, IDM, Techno>
@@ -656,93 +740,6 @@ Luke Vibert - Arcadia (2018) De:tuned [FLAC|Lossless|WEB-DL|tracks] <Electro, Ac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2259CCC457C4E31BEE5C12ACB58D48160CB1F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018217   (757629) от 19.05.2016
-
-Tripswitch - Vagabond (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way Home (08:45)
-02. Divine Falsehood (08:33)
-03. Vagaries (07:06)
-04. Glass Heart (08:14)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1CCF7FC0598A4A05A78FB8E683457C6A2FB166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280874   (756978) от 05.02.2019
-
-VA - Jeju 濟州 (2019) Oslated [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyme – Biyangdo 비양도 (08:00)
-02. Earthen Sea – Seolmundae 설문대할망 (07:49)
-03. Asymmetric – The Rain & The Storm (07:53)
-04. Alume – Hy'naku (06:23)(   Читать дальше...   )Жанр: Ambient, TechnoПродолжительность: 02:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24493A2C80CF6818E554847362C20B455432AF5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280877   (756975) от 05.02.2019
-
-Downscope - Sojourn in Canaan (2019) alternating.bit music [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sojourn Initium (32:39)
-02. Sojourn Consummavi (23:13)
-03. Sojourn Ultimo (29:43)
-04. Sojourn Deinde (24:34)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 02:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E56A8E122D1D70FBFCBC2375EC8E69756F791B
 ```
 
 https://mybot314.ru/tekegram_catalog/

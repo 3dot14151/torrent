@@ -1,3 +1,61 @@
+###  Публикация: 1209385   (779406) от 26.02.2018
+
+VA - Contemporary Chilling (2018) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Falkonis  -  Crybot (Original Mix)  5:00
+02.  Aeon Waves  -  One Day I'll Be Gone (Forever) (Original Mix)  6:45
+03.  Cardmoth  -  Treatment Of Additive Love (Original Mix)  4:26
+04.  Soty  -  Mind Games (Original Mix)  4:42(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77BCFB3143BE30C145C72B77F5738CF8DC38FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209408   (779402) от 26.02.2018
+
+VA - Relax Vibration Vol.01 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Random BPM  -  Dreams (Original Mix)  5:54
+02.  R.I.B.  -  I Remember You (Original Mix)  6:01
+03.  The Orange  -  Touching Care (Bonus Track)  6:19
+04.  Alex Lead  -  Witchcraft (Original Mix)  4:49(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7B132896B9CC8DCAB3899C18977E4522DE0719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209399   (779401) от 26.02.2018
 
 VA - Lounge Coffee Break (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
@@ -687,64 +745,6 @@ Moby - Everything Was Beautiful And Nothing Hurt (2018) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47C16EC264655C84FF0FFA6BBB806136FD0CD20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210577   (778730) от 03.03.2018
-
-Aether - Flower in Winter (2018) [MP3|320 Kbps] <Ambient, Chill Step, Garage>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778730.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flower in Winter (03:43)
-2. Remnant (Ft. Tsubame) (02:57)
-3. Florescence (02:49)
-4. Elegy for Ixia (04:35)Жанр: Ambient, Chill Step, GarageПродолжительность: 00:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C57342ECF011EE3CE306CFEBCA34382B8760395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210330   (778725) от 03.03.2018
-
-Oliver Schories - Blitzbahn (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fakir (6:24)
- 02. Cobra (5:49)
- 03. Relief (6:21)
- 04. Serum (6:23)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B374420AA10B4261F0786B6ADC5FEB0F63F4161
 ```
 
 https://mybot314.ru/tekegram_catalog/

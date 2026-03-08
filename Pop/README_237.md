@@ -1,3 +1,61 @@
+###  Публикация: 1075891   (318060) от 23.11.2016
+
+Нэнси - Чувства (Сборник лучших медленных композиций) (2015) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дым сигарет с ментолом (Remix)
+02. Фотография
+03. Сладкая ночь
+04. Я стану ветром(   Читать дальше...   )Жанр: PopПродолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91712E73804A327387566B6B9B36516A32620940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421477   (317645) от 05.11.2020
+
+Анжелика Варум - Стоп, любопытство! (2002) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Будешь рядом ты
+02. Летние огни
+03. Зимние сны
+04. Ты не спросил(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65E64B93E56CB1CB1D997147D319FBF50821BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421480   (317480) от 05.11.2020
 
 Ольга Воронец - Гляжу в озера синие... (2002) [FLAC|Lossless|tracks + .cue]<Ретро>
@@ -684,64 +742,6 @@ Kylie Minogue - DISCO (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36F8555DD443F5A055834348E231B57A71880289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837929   (314635) от 11.11.2017
-
-VA - Sunlover Records Compilation Vol. 1-3 (2014-2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Dreamwave, Synthwave>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VHS Dreams - Space Race (5:34)
-02. RetroSynther - Technocity (6:05)
-03. Les Chic Voltage - Disco Gallo 84 (3:21)
-04. Apollo Zapp feat Reo - Hula Hoop! (3:03)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Dreamwave, SynthwaveПродолжительность: 03:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F226FF653E974D9F1187C74F58C61D656DFFEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259927   (314571) от 06.11.2018
-
-The Ting Tings - The Black Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic Pop Rock, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estranged
-02. Basement
-03. A & E
-04. Blacklight(   Читать дальше...   )Жанр: Alternative Pop, Electronic Pop Rock, Dance-Punk, Synthpop, IndieПродолжительность: 00:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F3C1EB65ACEBE59CC192E6C755A8A778CA31DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

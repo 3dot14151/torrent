@@ -1,3 +1,32 @@
+###  Публикация: 1283310   (732052) от 18.02.2019
+
+Julien Marchal - INSIGHT III (2017) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INSIGHT XXIV (2:41)
+ 02. INSIGHT XXV (6:04)
+ 03. INSIGHT XXVI (3:59)
+ 04. INSIGHT XXVII (2:48)(   Читать дальше...   )Жанр: Neoclassical, Piano, MinimalПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06A834B17E46412206AB31F41C3F35752FCEB1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283323   (731953) от 18.02.2019
 
 Julien Marchal - INSIGHT IV (2019) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
@@ -716,35 +745,6 @@ Sonata for solo violin No. 1 in G minor, BWV 1001
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FAA936D6884DD02E3064C3D61A1EC6085019015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027289   (696197) от 19.06.2016
-
-Aaron Rosand - Brahms: 3 Violin Sonatas; 21 Hungarian Dances; Joachim: Romance in B Flat (1991, 1993) 2007, Musical Concepts [FLAC|Lossless|tracks] <Classical, Chamber Mu
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696197.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Sonata for violin & piano No. 1 in G major ("Regen"), Op. 78 
-1. Vivace ma non troppo 	Aaron Rosand 	 10:08
-2. Adagio 	Aaron Rosand 	 7:59(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 02:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391F6DDCF7D58373D8C7659D58E36673C00AE999
 ```
 
 https://mybot314.ru/tekegram_catalog/

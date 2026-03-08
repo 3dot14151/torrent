@@ -1,32 +1,3 @@
-###  Публикация: 1110367   (853777) от 02.03.2017
-
-Van Rockman - The Lost Tapes (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harley To The Party (04:16)
-02. Which Way Does The River Flow (02:49)
-03. Ricky On The Bridge (03:35)
-04. Rock Me Crazy (03:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F76CB4406AEEA607842ECF87EE9BD22E779165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110433   (853773) от 02.03.2017
 
 Blaze Bayley - Endure and Survive (Infinite Entanglement Part II) (2017) [MP3|320 Kbps] <Heavy Metal>
@@ -744,6 +715,35 @@ Ember Falls - Welcome To Ember Falls (2017) [FLAC|Lossless|WEB-DL|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD3043AD0BB220A9B7FF0FD1F75147FC771DE1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001602   (852197) от 29.03.2016
+
+Jorck - BLACK SUN (2016) [FLAC|Lossless|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As We Are Changing (2:33)
+ 02. Black Sun (3:29)
+ 03. It Sure Wasn't Easy (3:41)
+ 04. You Thought You Had It All (4:08)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B570A2593448E874F3240E22DF89AB1466188E
 ```
 
 https://mybot314.ru/tekegram_catalog/

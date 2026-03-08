@@ -1,3 +1,61 @@
+###  Публикация: 1030851   (670335) от 02.07.2016
+
+VA - Summer Emotions (Mixed By Aurosonic) (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Offshore Wind & Roman Messer Ft. Ange - Suanda (Aurosonic Intro Progressive Mix) (08:04)
+02. Nomosk & Roman Messer Ft. Christina Novelli - Lost Soul (Illitheas Remix) (06:59)
+03. Elite Electronic & Three Faces Ft. Amy K - Firefly (06:10)
+04. Denis Sender - Cold Wave (06:08)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E14FD6A0401128E9D3B6B60FA867887E0BE38D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030967   (670249) от 02.07.2016
+
+VA - Ibiza Sunset Dreams Vol.2 (Compiled & mixed by Dj Zappi) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babak Shayan & Pino Shamlou - Baran (Ilias Katelanos_remix)
+02. Chymera - Fathoms (Clemens Ruh remix)
+03. YokoO & Morgan - Spiraling
+04. Hernan Cattaneo & Soundexile - Lunar (Simon Vuarambon Interpretation)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA854D472218CB508581C71A02F9AB6DFE8E7E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 510275   (670213) от 14.06.2012
 
 Akshan - The Tree Of Life (2012) [FLAC|Lossless]<Psychill, Ambient, Downtempo, Trance>
@@ -689,64 +747,6 @@ Son of Mars - Interdimensional (2017) [MP3|320 Kbps] <Deep Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE5A9110167042459CD072216E176E487B8A2EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291601   (668916) от 25.03.2019
-
-V I C I M - Convenience (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668916.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. untitled universe (06:32)
-2. sarus the witness (10:56)
-3. call for gold (05:15)
-4. detour (06:15)(   Читать дальше...   )Жанр: Electronic, Ambient, DroneПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8207FD0F79130E0400C74B914D3087E1B561CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031181   (668895) от 03.07.2016
-
-VA - EDM Flash Trance Vol.1 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Meyers -  Play House (Vocal Edit) 5:41
-02. Brothers -  My Battle (Trvpers Mix) 4:44
-03. P.N.O -  In the Air 3:40
-04. Mart Sine -  Don't Turn Away (Matt Chowski Remix) 6:44(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B43B85D989DE3F0967C415016A41B39BB7BF944
 ```
 
 https://mybot314.ru/tekegram_catalog/

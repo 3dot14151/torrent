@@ -1,3 +1,32 @@
+###  Публикация: 1329090   (356632) от 03.10.2019
+
+Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356632.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cana (01:40)
+002. The Mustard Seed (02:11)
+003. The Dress (01:31)
+004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010B545F1DADF20478E467A6567FE3A5D215594D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329084   (356631) от 03.10.2019
 
 Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -728,35 +757,6 @@ VA - Cytus OST v.5.0.0 (2013) [MP3|128-192 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F7AE0995C5789E8C02EB027BF5051A44DA3787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952306   (353514) от 02.11.2015
-
-Carlos Rodrigo - Argentine Tango (2001) [MP3|~160 кб/с (V4)]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sur
-02 - Tinta Roja
-03 - Flor De Lino
-04 - Cambalache(   Читать дальше...   )Жанр: TangoПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F00377DB9739D713706C7F68F4304CD484C4248
 ```
 
 https://mybot314.ru/tekegram_catalog/

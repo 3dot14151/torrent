@@ -1,3 +1,90 @@
+###  Публикация: 1263848   (282891) от 22.11.2018
+
+VA - In The Mix 007 (Airwave Progressive Sessions) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pranav Mayekar - Elixier (Original Mix)                         [09:46]
+02. Eric Lune - Benji (Original Mix)                                [06:57]
+03. Eelke Kleijn - The Calling (Original Mix)                       [08:12]
+04. Laurent Chanal - Marlin (Nicolas Rada Remix)                    [07:19](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2C60D3420CE549DEA65828959FEE5A91D4A322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264157   (282883) от 22.11.2018
+
+Parra for Cuva - Paspatou (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paspatou (4:29)
+ 02. Out Here with Us (4:08)
+ 03. Useless Magic (3:57)
+ 04. Cupa Cupa (6:05)(   Читать дальше...   )Жанр: Electronic, Chill House, Tech House, DowntempoПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD96C0508B434370F4BE62680EBB747AA2527623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264326   (281242) от 23.11.2018
+
+SMX - Hinterland EP (2018) Blank Mind [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hinterland (05:15)
+ 02. Mono (06:30)
+ 03. Study One (09:07)
+ 04. Uakari (07:57)Жанр: Techno, AmbientПродолжительность: 00:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D56A9A1C2C6B180B6AFF97A8E77FC85D907FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964857   (280782) от 12.12.2015
 
 Hardwell - United We Are Remixed (Extended Mixes) (2015) [FLAC|Lossless|WEB-DL]<Trance, House>
@@ -653,93 +740,6 @@ Alfred Heinrichs - YOUR TEARS (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B57EF3C003271A873BCD26FD4187A1063602A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265761   (272045) от 30.11.2018
-
-Bob Moses - Battle Lines (2018) Domino Recording [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Pop Rock>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Only Knows (4:22)
- 02. Battle Lines (4:14)
- 03. Back Down (4:10)
- 04. Eye For An Eye (4:02)(   Читать дальше...   )Жанр: Electronic, Deep House, Pop RockПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75ADCAD93AFF012922E03064E04AA8AFC5A8F865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338104   (271686) от 13.11.2019
-
-Melquíades (Melquiades) - Lanterns (2019) Analogue Attic [FLAC|Lossless|WEB-DL|tracks] <Deep House, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lanterns Pt 1 & Pt 2 (10:52)
- 02. Neon Canal (07:17)
- 03. Cockatoo Horizon (05:43)
- 04. Embers ft. James Harbard (08:00)(   Читать дальше...   )Жанр: Deep House, AmbientПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7973A359BFDA278DF1F609ABC21F47F40EDFB0CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266194   (271160) от 01.12.2018
-
-VA - Kulor 001 (2018) Kulør [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schacke - Automated Lover (08:12)
- 02. Sugar - Drowner (06:05)
- 03. IBON - Forest Car (05:11)
- 04. RePRO - Det Går Dårligt (05:32)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F55A6BBBBAE45A5A433EA796529168EAD28DEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

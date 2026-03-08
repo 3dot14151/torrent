@@ -1,3 +1,61 @@
+###  Публикация: 1324536   (425362) от 09.09.2019
+
+Liz Mitchell - Share The World (1999) ex. Boney M. [MP3|320 Kbps] <Reggae, Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Have A Party (4:53)
+02. Good Timing (3:59)
+03. Share The World (5:52)
+04. My Love's A Ship (3:47)(   Читать дальше...   )Жанр: Reggae, Pop, BalladПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32AA721243690BAE3279C045C2FFD994D34CDD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946716   (425052) от 14.10.2015
+
+Tom Jones - Long Lost Suitcase (2015) [FLAC|Lossless]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opportunity To Cry
+02. Honey, Honey (ft. Imelda May)
+03. Take My Love (I Want To Give It)
+04. Bring It On Home(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14811B5B2BA147E052984DCFA84654AD8767D89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249303   (424748) от 28.09.2018
 
 Марк Артур (Marc Arthur) - Feel | Между нами (2007-2008) [MP3|320 Kbps] <Pop, Instrumental>
@@ -689,64 +747,6 @@ Emily Haines (of Metric) & The Soft Skeleton - Choir of the Mind (2017) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF36EB4B6BA52E4882469B7D742CF7472C81AC5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065192   (421763) от 22.10.2016
-
-VA - Decade of the Synth  Vol.1 (2016) [MP3|320 Kbps] <Disco, Nu Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vasiliy Arefiev - My Lost Melody  6:40
-02. Italo Brutalo - Velodrome  6:51
-03. Boy Funktastic - Beachs  4:16
-04. Ocsav - Move Your Soul  6:02(   Читать дальше...   )Жанр: Disco, Nu DiscoПродолжительность: 01:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCF77C5512116EEA62DEDE1328EEB1151E49CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324807   (421332) от 11.09.2019
-
-Nino De Angelo - Samuraj (1989) LP [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продюсер: Dieter Bohlen01. Samuraj (3:57)
-02. Who's Gonna Love You Tonight (3:53)
-03. Have You Ever Been Lonely (3:07)
-04. Stay With Me (3:09)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C515ED411E1518A85D45CE728E37543BDCDF4588
 ```
 
 https://mybot314.ru/tekegram_catalog/

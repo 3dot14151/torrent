@@ -1,29 +1,3 @@
-###  Публикация: 1087330   (145872) от 27.12.2016
-
-Проекты - VideoHive - Multifunction Particles Toolkit - 19070461 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Multifunction Particles Toolkit - инструментарий многофункциональных анимированных частиц, который может помочь сделать ваше видеопроизведение визуально интересным и удивительным!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987361021B277086CB7AF1ED0D95689CD09CBB90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087323   (145811) от 27.12.2016
 
 Проекты - VideoHive - Dynamic Fashion Package - 19164699 [AEP]
@@ -676,6 +650,32 @@ One Wish Christmas Bundle Template - этот Рождественский пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6590E6C21062EC26605A76A6529887268A363FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087667   (143862) от 28.12.2016
+
+Проекты - VideoHive - Christmas - 19152321 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Christmas - красивый новогодний поздравительный проект.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8704EC575393253E7B4779D2D6C26B940A4142AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

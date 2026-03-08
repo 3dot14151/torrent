@@ -1,3 +1,32 @@
+###  Публикация: 242674   (761668) от 06.07.2020
+
+Ennio Morricone: Peace Notes - Live in Venice (2008) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Эннио Морриконе в Венеции, прозвучали самые знаменитые произведения великого маэстро. Концерт записан в Венеции в ноябре 2007 года.Tre Adagi:
+1.Deborah's Theme (Once Upon a Time in America) 3:39
+2.Addio Monti (from The Betrothed) 3:18
+3.Vatel 4:23(   Читать дальше...   )Жанр: InstrumentalРежиссер: Giovanni MorriconeАктеры: Ennio Morricone, сопрано Susana Rigacci, оркестр Roma Sinfonietta Orchestra, хор Choir La FeniceПродолжительность: 01:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5A0AA5F3D951F01F997CA71C940D1AC8E9D7BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 320121   (761350) от 07.04.2011
 
 Горе от ума (1952) DVDRip (Малый Театр)
@@ -678,35 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC7796AEB101E78F7D66E19F50FD974271A3369D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522958   (754658) от 09.01.2022
-
-Сборник видеоклипов (2021) WEBRip [H.264/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркие и незабываемые клипы, некоторые из которых стали настоящими хитами.1.Ava Max - Everytime I Cry
-2.Becky G, Natti Natasha - Sin Pijama
-3.Benny Benassi feat. Gary Go - Let This Last Forever
-4.BLACKPINK - How You Like That(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136207894285ADDFCF0AE349466AFC0106DE61A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

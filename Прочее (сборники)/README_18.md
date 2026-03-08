@@ -1,3 +1,119 @@
+###  Публикация: 1361727   (954163) от 20.02.2020
+
+VA - не Громкие новинки недели 56 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954163.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.CYGO - Девочка С Красивыми Глазами (2:46)
+2.Dakooka - Слова Солгать (3:04)
+3.Daria Yanina - Темнота (3:14)
+4.Dava - Последний Танец (3:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821AAB89FBE97AC9163D42FB9FEF731949587ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361538   (953748) от 20.02.2020
+
+VA - Listen Life: Neo Classical Collection (2020) [MP3|320 Kbps] <Neo Classical, Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricky King - Sail Along Silv'ry Moon
+02. Rhian Sheehan - Reaching The Moon
+03. Shida Shahabi - All In Circles
+04. Frédéric Scarfone - La Livri(   Читать дальше...   )Жанр: Neo Classical, InstrumentalПродолжительность: 05:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4EF96C48194BC8385371775F6118A3BB029845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088908   (953739) от 02.01.2017
+
+VA - On The Wave Of My Memory: Hit 70-80s (2016) [MP3|320 Kbps] <Pop Rock, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953739.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abc - Poison Arrow (Jazz Remix) 6:55
+002. Alphaville - Sounds Like A Melody (Special Long Version) 7:43
+003. Cock Robin - The Promise You Made (Extended Version) 6:34
+004. Cyndi Lauper - Girls Just Want To Have Fun (Extended Version) 6:03(   Читать дальше...   )Жанр: Pop Rock, ElectronicПродолжительность: 14:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FA5336CA1CE2DA86893410BFE5C7CD9008F3E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088809   (953593) от 02.01.2017
+
+VA - УЛИ-ганские ПЕСНИ (2016) [MP3|96-320 Kbps] <Поп, Шансон, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953593.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Несчастный Случай - Песня без названия 4:24
+002. Катетер - Люда 3:32
+003. Ленинград - Геленджик 3:12
+004. Рабфак - Новая песня о правде 3:13(   Читать дальше...   )Жанр: Поп, Шансон, РокПродолжительность: 09:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10595B898F89F0747EDBDBF7A12D00D4C87B078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088842   (953490) от 02.01.2017
 
 VA - Новогодние песни (1945-2016) [MP3|256-320 Kbps] <Pop, Rock, Disco>
@@ -630,122 +746,6 @@ VA - Greatest Dance Rainbow Hits (2017) [MP3|251-320 Kbps] <Funky, Electronica, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F68466152E16A4AA66FF78BDE102BEF3806EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090134   (947505) от 06.01.2017
-
-VA - SpaceSynth & ItaloDisco Hits - 18 оt Vitaly 72 (2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Hi NRG>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947505.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Citizens! - True Romance (Gildas Kitsuné Club Night remix) 6:12
-002. Clock On 5 - Romantic Dreams 2:51
-003. Apostackers - Apostackers (Synthleslie ft. Leroy Version) 5:27
-004. Alexander Pierce - Sunlights  (New Retro Wave 80's Mix) 4:48(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi NRGПродолжительность: 05:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1124AAB363B1C3F8A9F3A082C31C8ACEFEC1CEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090022   (947441) от 06.01.2017
-
-VA - EuroHit Top 40 - Итоги Года (2016) [MP3|320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947441.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eva Simons & Sidney Samson - Bludfire 3:10
-002. Sia - Unstoppable 3:38
-003. Adele - Hello (Cosmic Dawn Club Mix) 6:11
-004. The Weeknd - The Hills 4:02(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 02:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81192C477B7A2C79B6C6ED38E05B7584BB56A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090114   (947431) от 06.01.2017
-
-VA - Dancefloor Winter Christmas Hits (2017) [MP3|320 Kbps] <Electro, Reggae, Moombahton, Synthpop, R&B, Holiday, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Bisbal - Antes Que No (Sak Noel Remix) 03:25
-02. The Chainsmokers Ft Phoebe Ryan - All We Know (Oliver Heldens Remix) 03:03
-03. Cupid - Cupid Shuffle (Shan Tha Don Remix) 03:21
-04. Devolve - Gal Dem Roll 03:04(   Читать дальше...   )Жанр: Electro, Reggae, Moombahton, Synthpop, R&B, Holiday, DanceПродолжительность: 02:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58687D4741C03C1F71FE4AD1149852C8EEAECDFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089956   (947117) от 06.01.2017
-
-VA - Winter Hits (2017) [MP3|320 Kbps] <Club , Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947117.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3LOGY - The Banjo (Dj Desving Refresh)
-002. Will Fast - You & I (Original Mix)
-003. Morandi - Keep You Safe (Dj Andy Light & Dj O'Neill Sax Remix)
-004. Ste Essence feat. Vicky Jackson - Don't Play With My Love (Original Mix)(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 05:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A17E92BFEA8948AF155D75F021B2F3807BEABDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

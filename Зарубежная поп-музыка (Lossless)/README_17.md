@@ -1,3 +1,32 @@
+###  Публикация: 995691   (882844) от 12.03.2016
+
+VA - Got Hits! Perfect Pop Album (2003) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Can’t Get You Out of My Head (3:51)
+02. Justin Timberlake - Like I Love You (Basement Jaxx vocal mix) (4:29)
+03. Aaliyah - Try Again (4:46)
+04. DJ Sammy & Yanou feat. Do - Heaven (3:53)(   Читать дальше...   )Жанр: RnB, Swing, EuropopПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F05296EDD8D1BD5044C0DF0D63159AB531B0062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 871109   (882698) от 20.02.2015
 
 VA - Pure... Crooners (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Vocal Pop, AM Pop>
@@ -717,35 +746,6 @@ Stella - Works for You (2017) [FLAC|Lossless|tracks] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5050CE0AD6CDCB741B1AB509313B95DFDB8ED493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997470   (873556) от 17.03.2016
-
-VA - Best Of The 90s (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поскольку 90-е от нас убежали не так уж и далеко, наверное у каждого из нас свой best музыки этого времени. Поэтому предвижу ворчание, что вот этого нет, а этот не бэст... Но вот в UM посмотрели хитпарады тех недалеких лет и на их основе родился этот небольшой сборник. Ну чтож пусть каждый сравнит со своим "лучшим" того времени...01. Freddie Mercury - Living On My Own  (3:38)
-02. Ace Of Base - All That She Wants (Remastered Version)  (3:27)
-03. Michael Jackson - They Don’t Care About Us  (4:45)
-04. Crazy Town - Butterfly  (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9D3E5221FFE41B232344C4E0A546CDDF2C2273
 ```
 
 https://mybot314.ru/tekegram_catalog/

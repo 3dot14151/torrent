@@ -1,3 +1,61 @@
+###  Публикация: 1199940   (797534) от 18.01.2018
+
+Tioan - Cinemagic (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tioan - Connect (Original Mix)
+02.Tioan - Echo Help (Original Mix)
+03.Tioan - Eleutheria (Original Mix)
+04.Tioan - Platonic (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9B540D351B37643A725BC7ABF0065B2BBDDDEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199967   (797532) от 18.01.2018
+
+VA - We Are Trance - January (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DIM3NSION – Once a Day
+02. Ralphie B. – Homestead
+03. Mike Saint-Jules – Luna
+04. Solarstone – A State of Mind(   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE89823B49E0352029A96AF25E14CA75136B895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199372   (797530) от 18.01.2018
 
 VA - Vip Room Saint-Tropez Famous Club - 20th Anniversary (2009)( mixed by Jean-Roch) [FLAC|Lossless|tracks] <House, Dance-pop, Electro House>
@@ -687,64 +745,6 @@ Emotions Music - Summer Vol 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8503BE2544A2E34A2B5F57E2EDFF48AC7A81EB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200085   (796993) от 19.01.2018
-
-VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz Presents Dakota - The Spirit Of The Warrior (Transmission 2017 Theme - extended mix)
-02. Dennis Sheperd - Copenhagen (extended mix)
-03. Ayla - Ayla (Ben Nicky & Luke Bond remix)
-04. Gabriel & Dresden - White Walls (extended mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9C4DECEAA850CBE5C2F7C707AE16A827A01402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200056   (796990) от 19.01.2018
-
-VA - Ori Uplift & Miss Cortex - Uplifting Only 258 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FAN FAVORITE: Eric Senn - Kharon (Intro Mix)
-02. FAN FAVORITE 256: RAM & Arctic Moon with Stine Grove - A Billion Stars Above (Extended Mix)
-03. FAN FAVORITE 256: Syntouch & Angel Falls - Alone (Plutian Remix)
-04. PRE-RELEASE PICK: Jericho Frequency feat. Emma Chatt - Do You See Me?(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996C40801B8D1E092E7DFD0F10F59A153E4E42A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

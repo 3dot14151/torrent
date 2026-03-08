@@ -1,3 +1,32 @@
+###  Публикация: 1260015   (314025) от 06.11.2018
+
+VA - Soulful House & Chillout from 2000 to 2017 [Re-compiled by Firstlast] (2018) [MP3|192-320 Kbps] <Chillout, Deep House, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Silence - What the Wind Brings [3:51]
+02. Dr Freebs - Luce [5:59]
+03. Sacral Reason - Deux Coeurs [6:34]
+04. Bianco Soleil - Maybe Friends [3:50](   Читать дальше...   )Жанр: Chillout, Deep House, Funky HouseПродолжительность: 108:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819576DC95949C0834CA023D4CF7F63145CEF6E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583644   (313946) от 02.12.2012
 
 Afrojack - DJ Mag Top 100 (2012) [MP3|320 кб/с]<house / electro house / progressive>
@@ -738,35 +767,6 @@ VA - Mushrooms Of Psychedelic, Vol.02 (2019) [MP3|320 Kbps] <Psy Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3716D50CE39A4029C35C5363D44574AB46EAAC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332874   (309689) от 22.10.2019
-
-VA - Somatic Cell: Hyperactive Psy Trance (2019) [MP3|320 Kbps] <Trance Psychedelic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309689.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ukauka & Mechanical Species - Triangular
-002. 3 Of Life - Santa Catarina
-003. X-Side - Symbolic World
-004. U-Recken - Whale Song(   Читать дальше...   )Жанр: Trance PsychedelicПродолжительность: 13:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC68F5418A4C7F6CFB635BC03DF217A772EB161
 ```
 
 https://mybot314.ru/tekegram_catalog/

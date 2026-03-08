@@ -1,3 +1,32 @@
+###  Публикация: 979703   (958192) от 27.01.2016
+
+ABBA – Number Ones (2006) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme! Gimme! Gimme! (A Man After Midnight)
+02. Mamma Mia
+03. Dancing Queen
+04. Super Trouper(   Читать дальше...   )Жанр: Europop, DiscoПеревод: ОтсутствуетПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADE29579240FC3DF27FD1AE1CDBD91E614308AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 748924   (957360) от 23.01.2014
 
 Легенды Ретро FM (2013) HDTV->DVD9
@@ -691,35 +720,6 @@ VA - Зимний марафон № 222: Праздничный Зимний Х
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89F2EDB357E283E5BDCF8D1FC9F6DF54FDE50C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088585   (953650) от 02.01.2017
-
-Volbeat & Amon Amarth - Rock am Ring (2016) HDTV [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступления датского heavy metal бэнда Volbeat и шведского melodic death metal бэнда Amon Amarth на ежегодном рок фестивале Rock am Ring в немецком Нюрбурге june 03, 2016Volbeat - The Devil's Bleeding Crown
-Volbeat - For Evigt
-Volbeat - Doc Holliday
-Volbeat - Seal the Deal(   Читать дальше...   )Производство: 3SAT. july 11, 2016Жанр: Рок-концертПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F7AB6652CCEBE0CADB2E24F6EB06F993294D75
 ```
 
 https://mybot314.ru/tekegram_catalog/

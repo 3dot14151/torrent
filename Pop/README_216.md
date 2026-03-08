@@ -1,3 +1,64 @@
+###  Публикация: 571289   (384936) от 08.11.2012
+
+Pink - 8 Studio Album's + 2 Compilation's + 5 EP's & Single's + 1 live  (2000-2011) [MP3|320 кб/с]<Pop, Pop-Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Pop-Rock, R&BПродолжительность: 09:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29845FEE2750FDFC6944D8A4F384D44909150467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572288   (384914) от 08.11.2012
+
+VA - Лучшая 100ка Ретро FM 8 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384914.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. А. Серов - Мадонна
+002. Grant Miller - Lost In Paradise
+003. А. Глызин - Зимний сад
+004. Danuta - Touch My Heart
+005. В. Леонтьев и Л. Вайкуле - Вернисаж
+006. Touche - What Can I Gay
+007. Твой День - Хуанхэ-Желтая Река
+008. Fancy - Fools Cry
+009. Шахерезада - Командир Полка
+010. Video Kids - Do The Rap(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9A230A77293686F3E26EB9FA736C5476D367EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326496   (384841) от 20.09.2019
 
 Андрей Державин и Сталкер - Песни о хорошем, Часть 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -684,70 +745,6 @@ Billie Eilish - No Time To Die (2020) Single [FLAC 2.0|44/24|tracks|WEB-DL]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A376F8FD7E617F9C0A9FA48F24B9893F41BAD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572585   (382592) от 09.11.2012
-
-VA - Лучшие песни Ретро FM (2012) [MP3|256 кб/с]<Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юрий Антонов - Я вспоминаю
-02. Hi - Fi - Седьмой Лепесток
-03. Ирина Аллегрова - Когда любовь умирает
-04. Александр Серов - Я Люблю Тебя До Слёз
-05. Вячеслав Малежик - Мозаика
-06. Самоцветы - Все, что в жизни есть у меня
-07. Демо - Солнышко
-08. Кристина Орбакайте и Авраам Руссо - Просто любить тебя
-09. Лада Дэнс - Один Лишь Раз
-10. Стас Пьеха - На ладони линия(   Читать дальше...   )Жанр: PopПродолжительность: 06:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3B80E9D0D05BC99BC347B410F15ADB9365AB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068096   (382499) от 31.10.2016
-
-Laban - Caught By Surprise (1985) Remastered, 2010, EMI [MP3|320 Kbps] <Italo-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love In Siberia
-02. Donna Donna
-03. Now And Forever
-04. Let Me Know(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E36A91F8AC1841D15F91717BD56497DABF4FE4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

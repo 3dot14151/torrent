@@ -1,3 +1,177 @@
+###  Публикация: 1441488   (1037487) от 22.01.2021
+
+VA - Beatport Deep House: Sound Pack #222 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляемый лонгплей без угрызения совести можно порекомендовать абсолютно всем. Легкий Deep House вместе с лирическими мотивами Funky делает музыку 222-го релиза от Beatport легкой, универсальной и запоминающейся. Приятного прослушивания!001. House Of Noise - Don't Look Any Further
+002. Anthony Maserati - Cat Paws
+003. Tell - I'll Pass Out But Something
+004. Francis Leone - In The Sky(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60548044C052FFC729A7C5AF68AE0FFC446F830F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441492   (1037453) от 22.01.2021
+
+VA - Beyond The Airwaves: EDM Essentials Hits (2021) [MP3|320 Kbps] <Electro, Dance, Techno, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступило время украсить воскресный вечер активной и стильной музыкой в жанре танцевального House. Представленные клубные хиты зимнего сезона 2021 в миксе под названием "Beyond The Airwaves: EDM Essentials Hits" от европейских мастеров электронной сцены обязательно придутся Вам по нраву.001. Yuri Salgado - Small Circle Of Friend
+002. Natixx , Lyonbrotherz - Different Ways
+003. Ixdream - Sax-A-Boom
+004. Dehalf - Ruden(   Читать дальше...   )Жанр: Electro, Dance, Techno, HouseПродолжительность: 09:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627BA8C2E3C4B295AE9B56310EF616EC0A8730AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441496   (1037376) от 22.01.2021
+
+VA - Party Retro Hits 80s (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некогда самые известные, а ныне немного подзабытые популярные мелодии из прошедшего столетия в лонгплее под названием "Party Retro Hits 80s", накатят волну ностальгии и как и прежде порадуют Вас своими заводными мелодиями.001. Kylie Minogue - Hand On Your Heart
+002. The Whispers - And The Beat Goes On
+003. Re-Flex - The Politics Of Dancing
+004. Clannad, Bono - In A Lifetime(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D6C921A1EECF1E3987DF0BE2F33CFCB51380CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441871   (1037178) от 23.01.2021
+
+VA - German Top 100 Single Charts 22.01.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kasimir1441, badmómzjay & WILDBWOYS - Ohne Dich
+02. Olivia Rodrigo - drivers license
+03. Katja Krasavice - HIGHWAY (feat. ELIF)
+04. Rin - Dirty South(   Читать дальше...   )Жанр: PopПродолжительность: 04:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6343AC13E61BB1E04506823B51F28BF4336BA782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441782   (1037165) от 23.01.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 22.01.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burak Yeter - Body Talks (3:56)
+02. Nea & Nio Garcia - DIABLO (2:46)
+03. Marshmello & Imanbek feat. Usher - Too Much (2:49)
+04. Joel Corry feat. MNEK - Head & Heart (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FD3C8E6C8C5EC30F9795CCF1ECD5E83C3AA8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442037   (1037160) от 23.01.2021
+
+VA - не Громкие новинки недели 95 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Любавин - Холодает (4:00)
+02. KIRILL - Застелила (4:01)
+03. Элбой feat. Eskin - На Небе (3:52)
+04. ДжаЯмми - Брат (3:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85227F5E01266B514674EF87887661C927AA2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441762   (1037123) от 23.01.2021
 
 VA - Ibiza Lounge Music 2021 [MP3|320 Kbps] <Pop. Vocal Chillout, Other>
@@ -571,180 +745,6 @@ VA - 30(1) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F497BE8D39E2E3FEF26DBBCCB0C2003FC7585A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616317   (1036157) от 03.03.2023
-
-VA - Impressive Sound 2022.2: Volume IV (2022) [MP3|320 Kbps] <Jazz, art-pop, avant-prog>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solar Ship - So Wet
-02. Madison Cunningham - All I’ve Ever Known
-03. Carlos Fischer - Swing Trigger
-04. Under The Reefs Orchestra - Ants(   Читать дальше...   )Жанр: Jazz, art-pop, avant-prog, art rock, electronic, experimentalПродолжительность: 01:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20CCF9FF23F1DADFFA2D05D6DEE78E86F2BF0724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616319   (1036152) от 03.03.2023
-
-VA - Impressive Sound 2022.2: Volume V (2022) [MP3|320 Kbps] <Instrumental, progressive metal, math-rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strawberry Girls - Nightmare / Dream Sequence (feat. Ben Rosett, Zachary Garren)
-02. Poly-Math - Velociter
-03. Jakub Tirco - The End of All Things (feat. Baard Kolstad)
-04. Lee McKinney - Stormrage(   Читать дальше...   )Жанр: Instrumental, progressive metal, math-rock, progressive rock, jazz-fusionПродолжительность: 01:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542E9066C69F2836210E13E0AA47D468E65AE5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616321   (1036147) от 03.03.2023
-
-VA - Impressive Sound 2022.2: Volume VI (2022) [MP3|320 Kbps] <Hardcore, metalcore, mathcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ithaca - The Future Says Thank You
-02. End - Eden Will Drown
-03. Amongst The Giants - Adversary
-04. Glassing - Sulk(   Читать дальше...   )Жанр: Hardcore, metalcore, mathcore, deathcore, post-hardcore, grindcoreПродолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972D663CB678B3E1827986437AB74725745CDD2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616185   (1036128) от 03.03.2023
-
-Тюрген Кам - Collection (2013-2019) [MP3|320 Kbps] <Ethnic, World Music, Горловое пение>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrows of Shaman [02:23]
-02. Beginning of the Journey [03:36]
-03. Christmas Greeting [03:36]
-04. Grandfathers's Song [04:58](   Читать дальше...   )Жанр: Ethnic, World Music, Горловое пениеПродолжительность: 01:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9273EBE2888B5E97FCA495BA53E9B50884E9F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616640   (1036122) от 03.03.2023
-
-VA - Music News vol.249 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036122.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anivar - Дышать (02:48)
- 002. 22Bullets feat. Seb Mont - Call My Name (02:46)
- 003. 22Bullets feat. Wilhelmina - On My Way (02:54)
- 004. Adik feat. Aziza Qobilova - I Lost You (03:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841617BA3825DF84D56E81DD03A329298A82E650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616828   (1035848) от 04.03.2023
-
-VA - An Easy Slide On ... (2023) [MP3|320 Kbps] <Jazz, Electro Jazz, Easy Listening>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035848.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Loiriplukari - Suomalaisia [02:56]
-002. Zenel - 5Db Freestyle [04:30]
-003. Sam Gendel - 3Flutes [01:20]
-004. Shabaka - Memories Don’t Live Like People Do [01:39](   Читать дальше...   )Жанр: Jazz, Electro Jazz, Easy ListeningПродолжительность: 09:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C914A59A1E975263E945C5EEB27C75FC778D5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

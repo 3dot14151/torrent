@@ -1,29 +1,3 @@
-###  Публикация: 1062828   (438868) от 14.10.2016
-
-Проекты - VideoHive - Quick Minimal Clicking Logo - 17537012 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для быстрой демонстрации анимационного логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BA93FB365F51F4ED555FBDABAE3BE85FBBB9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062824   (438865) от 14.10.2016
 
 Проекты - VideoHive - Kinetic Typography - 17533582 [AEP]
@@ -678,6 +652,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C08FA30217AC7A742E53F3B5D3DBC2FF59716EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945257   (435073) от 09.10.2015
+
+Проекты - VideoHive - Architect Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E328FB84AF1278384A730E3DE41B34A7CEA05FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

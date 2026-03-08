@@ -1,32 +1,3 @@
-###  Публикация: 1285003   (724999) от 24.02.2019
-
-Telekinesis - Effluxion (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Effluxion (03:32)
-02. Cut the Quick (04:22)
-03. Like Nothing (02:53)
-04. Running Like a River (01:49)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC414339519D0A9D3AAC9E4F1B946FD91B8CBF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399707   (724980) от 02.08.2020
 
 Dark Wizardry - Burden Of Salvation (2020) [MP3|320 Kbps] <Symphonic Metal, Progressive Metal>
@@ -753,6 +724,35 @@ Keane - Greatest Hits (2007) [FLAC|Lossless|tracks] <Rock, Pop Rock, Brit Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DA928171AD8EA644DCD3739E11E13A059530DF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023211   (724240) от 05.06.2016
+
+The Kelly Family - Almost Heaven (1996) [FLAC|Lossless|image + .cue] <Country Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Boys Come Into Town
+02. Every Baby
+03. I Can't Help Myself
+04. Nanana(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083DAD1FBD0186DC0AA83902B1E97E387A243D62
 ```
 
 https://mybot314.ru/tekegram_catalog/

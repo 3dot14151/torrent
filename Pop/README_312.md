@@ -1,3 +1,61 @@
+###  Публикация: 1348412   (144718) от 27.12.2019
+
+VA - 100 Greatest Ballads (2019) [MP3|320 Kbps] <Pop, Rock, Ballads>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144718.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Prince - Purple Rain 8:41
+002. Coldplay - Everglow 3:48
+003. Foreigner - I Want To Know What Love Is (2013 Remaster) 5:06
+004. Spandau Ballet - True (Single Edit) 5:28(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 06:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E91BFF3D8F2DAEC1B6D61B5A5BEE7D3FA70E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348223   (144678) от 27.12.2019
+
+E-Rotic - Thank You For The Music (1997) [MP3|320 Kbps] <Europop, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (3:02)
+02. The Winner Takes It All (4:43)
+03. Angel Eyes (4:24)
+04. Fernando (4:16)(   Читать дальше...   )Жанр: Europop, EurodanceПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66743B434DE3DF88829419D34320116F40BBB02B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086919   (144573) от 28.12.2016
 
 C.C. Catch - MusicBox (2003) [MP3|320 Kbps] <Disco>
@@ -684,64 +742,6 @@ Michele - Magic Love (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A5A4A7AB2FEBB180E89D7418CBC9B0029DBDC5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272484   (143015) от 28.12.2018
-
-VA - Happy Pop Hits (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Indie>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Wow
-02. All Saints - Lady Marmalade (Remix)
-03. Donna Lewis - I Love You Always Forever
-04. Hard-Fi - Hard To Beat (Radio Edit)(   Читать дальше...   )Жанр: Pop, RnB, Alternative, IndieПродолжительность: 01:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B034BEC12706C71BF9CDEFCE178E95C45866456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272545   (142999) от 28.12.2018
-
-Mirko Hirsch - Undercover - Free Christmas Edition (2018) Compilation, Remastered [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick De Moore - It's Love (Maxi Version) (6:19)
-02. Dario Silver - Lonely In The Name Of Love (5:06)
-03. Dario Silver - Electric Heartbeat (6:36)
-04. Dario Silver - Computer Girl (5:34)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EEDF1F2B79E022F2DFCABB121EE2127888A52C
 ```
 
 https://mybot314.ru/tekegram_catalog/

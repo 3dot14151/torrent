@@ -1,3 +1,183 @@
+###  Публикация: 1357734   (972940) от 04.02.2020
+
+VA - Зима на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972940.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Niletto - Любимка (3:39)
+2.Carla Morrison - Disfruto (3:50)
+3.Tones And I - Dance Monkey (3:29)
+4.The Black Eyed Peas, J Balvin - RITMO (Bad Boys For Life) (3:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A806A635A89E10BEA26E0FD50ABD004C3AAA8E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357533   (972711) от 04.02.2020
+
+VA - Ремиксы от MGDC FM Vol 3 (2020) [MP3|320 Kbps] <Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972711.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.5sta Family - Первый снег (Struzhkin & Vitto Remix)(Radio Edit) (3:22)
+2.ALEX&RUS - Дикая львица (Olmega & Eugene Star Remix) (3:08)
+3.Batousai - Bombava (Struzhkin Remix)(Radio Edit) (2:29)
+4.Big Baby Tape - Trap Luv (Arteez x VeX & Myers Radio Edit) (3:22)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6C7DF31B8264A0174FE0B6351D61AB8C80F27E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615565   (972603) от 12.02.2013
+
+VA - Drum and Bass Pro V.8 from AGR (2013) [MP3|320 кб/с]<Drum&Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTJ Bukem - Music (Technicolours Rework)
+02. N4m3 - Against The Storm (Original Mix)
+03. Dominic Ridgway, Quentin Hiatus - Discomfort (Original Mix)
+04. The Clamps - Antinomic
+05. DJ Marky & Makoto ft. Deeizm - Free
+06. Survival and Silent Witness - System Fault
+07. Rihanna and Jacob Plant and Mike di Scala & Chris Henry - Diamonds (Electro Killer Bo
+08. Severity Zero - Analsys Paralysis
+09. Static - Bad For Me
+10. Titus1, Breez.E - We Can Have It All (Bass Farmers Remix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCF86D5DD10C4A9EDA00B2169C2C54CD62555B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617294   (972404) от 12.02.2013
+
+VA - The Official UK Top 40 Singles Chart (10-02-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую очередной UK Singles Chart — официальный хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Составляется с 1952 года как аналог американского Billboard Hot 100.
+Существует и «братский» хит-парад альбомов — UK Albums Chart.
+Во все треки вшиты обложки альбомов.Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 02:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB457FB3BB2AAA90DF5C884B90A7037DC1CECB09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975467   (972190) от 15.01.2016
+
+VA - After Work Lounge Vol.4 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Kam - Cellular
+02. G.N.Z. Ensemble
+03. P.P. Tone - Deeper Love
+04. Mike Van Gogh - Somewhere in Paradise(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABABA76D8B39BD1410D3A36CED3C30B18E23FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975717   (972182) от 15.01.2016
+
+VA - Dance - Floor Hits (2015) [MP3|219-320 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Ferrini & Majuri - Dancing On The Clouds (Kris Reen Funky Extended Mix) 05:31
+02. Dj Gary Hendon - You Sure Do (Ibiza Club Mix) 03:52
+03. Hitmakers Feat. Kna Connected - Fire (Fuego) (Dj Gollum Remix) 04:47
+04. Dj Fait & Adrima - Can't Stop Raving (Andy Jay Powell 2012 Remix) 05:47(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588BEB607E6614682C837EA8A968B5BA84894F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975624   (972098) от 15.01.2016
 
 VA - 100 Forgotten Sixties Classics(4CD) (2005) [MP3|192-320 кб/с ] <Oldies, Rock, Pop>
@@ -577,180 +757,6 @@ VA - Super Bomb Electro: The Best Hit 13 (2016) [MP3|320 кб/с] <Electro House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFE9174D2830536A84EB44FEB016BF7E2A1CD796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975722   (970943) от 16.01.2016
-
-VA - Beatport Indie Dance / Nu Disco Top 100 December 2015 (2016) [MP3|320 кб/с] <Indie Dance, Nu Disco, G-House, Electronica>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970943.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sugar Hill, Nytron - Oooh (Original Mix) 03:56
-002. Me & My Toothbrush - Gold Member 05:00
-003. Platinum Doug - Play with Me (Original Mix) 05:14
-004. Giacca & Flores - Last Night A DJ Saved My Life (Original Mix) 05:12(   Читать дальше...   )Жанр: Indie Dance, Nu Disco, G-House, ElectronicaПродолжительность: 10:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC9E529CB6D2CD9AC5FC2DD58F897B1EE805F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975883   (970939) от 16.01.2016
-
-VA - Lounge Music For Your Soul (2016) [MP3|320 кб/с] <Downtempo, Lounge, ChillOut, New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaxamalka - Mincing Matters (05:50)
-02. Rhythmphoria - Highlights (05:32)
-03. Mick Thammer - First (Chill Mix) (05:45)
-04. Dj Kalani - In the Wane of the Moon (05:51)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOut, New AgeПродолжительность: 01:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95DBF2743ADDE5B92522160EDFDC325CDC58ED97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975768   (970938) от 16.01.2016
-
-VA - I Love Italo Disco ot Vitaly 72 - 4 (2015) [MP3|320 кб/с] <Italo-Disco, Synth-pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Brando - Love Is A Fantasy (Radio Remix) (04:17)
-02. Boris Zhivago - Love In Russia (Radio Remix) (04:45)
-03. Birizdo I Am - Maybe Baby (Radio Edit) (04:04)
-04. Casanova - Angel Eyes (Short Version) (04:31)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 04:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F6500CDE5AD50243039720FC5330E0AF30D02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975900   (970928) от 16.01.2016
-
-VA - Top 100 Sounds Inception Massive DJs (2016) [MP3|320 кб/с] <Club, House, Electro, Bigroom, Dutch, Dirty, Bounce>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970928.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. W & W And Moti - Spack Jarrow (Original Mix) 04:31
-002. Showtek Feat. Vassy - Satisfied 04:19
-003. Global Deejays & Frontload - Get Up! 04:28
-004. Starjack Feat. Mimoza - Thunder (Starjack Club Mix) 05:30(   Читать дальше...   )Жанр: Club, House, Electro, Bigroom, Dutch, Dirty, BounceПродолжительность: 09:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19BCBF1115E9901188A467B791EB382F38CCF48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976080   (970872) от 16.01.2016
-
-VA - Disco Party Nights (2016) [MP3|320 кб/с] <Disco, Italo Disco, Eurodisco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Cheatham - Get Down Saturday Night (Club Mix) [06:52]
-02. Magazine 60 - Rendez-Vous Sur La Costa Del Sol (Maxi Version) [05:21]
-03. Boney M. - Gotta Go Home (Club Mix) [04:26]
-04. Dance Department - Paradise (Extended Dance Remix) [08:03](   Читать дальше...   )Жанр: Disco, Italo Disco, EurodiscoПродолжительность: 05:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F55827469263974D2E5A65392B657DD1D23032A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975773   (970869) от 16.01.2016
-
-VA - Вечное движение с лучшими хитами радио Шансон (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алексей Ром - У Ворот Рая
-02. Елена Ваенга И Михаил Бублик - Что Мы Наделали
-03. Валерий Вави - Я Не Жду
-04. Наталья Лапина - Дождись Хороший Мой(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF9C666C85C93DB5200B06F3B8A81170DF88847
 ```
 
 https://mybot314.ru/tekegram_catalog/

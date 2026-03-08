@@ -1,5 +1,31 @@
 https://t.me/izofen
-###  Публикация: 1857521   (1059669) от 
+###  Публикация: 1857898   (1060044) от 07.03.2026
+
+Николай Сорокин | Промт-ниндзя. Искусство выуживания гениальных идей у ИИ (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена искусству задавать правильные вопросы и направлять ответы ИИ в нужное русло. В ней подробно рассматриваются методы создания эффективных промтов, структуры взаимодействия с ИИ, примеры применения в разных сферах. Читатель научится использовать ИИ как партнера по креативной и аналитической работе, ускоряя процессы и повышая их качество. Эта книга (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Самиздат в RideroФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F494520F59CDC62D41DA20CDA50B509D85251D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857521   (1059669) от 06.03.2026
 
 А.В. Постолит | Компьютерное зрение и искусственный интеллект в приложениях на Python и Django (интерактивная цифровая книга) (2025) [PDF]
 
@@ -25,7 +51,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857515   (1059668) от 
+###  Публикация: 1857515   (1059668) от 06.03.2026
 
 Дмитрий Зверев | Создание видео через нейросети. 3.0 версия (2026) [PDF]
 
@@ -52,7 +78,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857511   (1059667) от 
+###  Публикация: 1857511   (1059667) от 06.03.2026
 
 Бренден Мэтьюз | Паттерны проектирования Rust. Пишем идиоматический код как профи (2026) [PDF]
 
@@ -78,7 +104,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857507   (1059666) от 
+###  Публикация: 1857507   (1059666) от 06.03.2026
 
 А.В. Постолит | Самоучитель Python с интерактивными примерами (2025) [PDF]
 
@@ -104,7 +130,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857505   (1059665) от 
+###  Публикация: 1857505   (1059665) от 06.03.2026
 
 Ganeshkumar Patil | Django REST APIs Demystified. Simplifying API Development with Django. First Edition (2025) [PDF, EPUB] [EN]
 
@@ -132,7 +158,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857501   (1059664) от 
+###  Публикация: 1857501   (1059664) от 06.03.2026
 
 Jason W. Eckert, triOS College | CompTIA Linux+ and LPIC-1 Guide to Linux Certification. 7th Edition (2026) [PDF] [EN]
 
@@ -158,7 +184,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857497   (1059663) от 
+###  Публикация: 1857497   (1059663) от 06.03.2026
 
 John Schwartzman | Assembly Language Reimagined. Programming the Intel x64 Microprocessor in Linux. First Edition (2025) [PDF, EPUB] [EN]
 
@@ -186,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857495   (1059662) от 
+###  Публикация: 1857495   (1059662) от 06.03.2026
 
 Bert Gollnick | PyTorch. The Practical Guide to Building, Training, and Deploying Deep Learning Models (2026) [PDF] [EN]
 
@@ -212,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857493   (1059661) от 
+###  Публикация: 1857493   (1059661) от 06.03.2026
 
 Jason Hodson | Applied Machine Learning. A Practical Guide to Preparing Data, Selecting Algorithms, and Implementing Machine Learning Models in the Real World (Rheinwerk Computing) (2026) [PDF] [EN]
 
@@ -238,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857489   (1059660) от 
+###  Публикация: 1857489   (1059660) от 06.03.2026
 
 Дэвид Мерц | Функциональное программирование на Python в примерах сообщества StackOverflow (2026) [PDF]
 
@@ -670,34 +696,6 @@ The book is organized into three main parts. Part I: Foundations lays the ground
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9032761B239137FA11FBB9484270417288A50D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855066   (1058061) от 23.02.2026
-
-Artur Guja, Marlena Siwiak, Marian Siwiak | Starting Data Analytics with Generative AI and Python (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Whether you're a data novice or an experienced pro looking to do more work, faster, Starting Data Analytics with Generative AI and Python is here to help simplify and speed up your data analysis! Written by a pair of world-class data scientists and an experienced risk manager, the book concentrates on the practical analytics tasks you'll do every day.
-
-Inside Starting (   Читать дальше...   )Жанр: Software Design Tools, Software Development, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B52F3D04F66FE582AEE0F51E9EC36D76A1AA826
 ```
 
 https://mybot314.ru/tekegram_catalog/

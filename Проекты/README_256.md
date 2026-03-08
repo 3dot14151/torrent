@@ -1,31 +1,3 @@
-###  Публикация: 833374   (384300) от 22.10.2014
-
-VideoHive - Corporate Timeline - 4518505 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для презентации вашей компании.
-Легко настроить. Плагины не требуются.
-Превью и видеоурок - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544977C6DB7FBEB3035916F499478CC554AE6D3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 833553   (384188) от 22.10.2014
 
 VideoHive - Wedding Slideshow - 5993525 [AEP]
@@ -688,6 +660,34 @@ ProShow Producer - Through the Frame [PSH]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99C74684BA8A327B7C8C2C0BE1258105BD828A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834303   (380387) от 24.10.2014
+
+VideoHive - Renaissance - 111382 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для начала фильма или презентации логотипа в стиле "триллер". Плагины не требуются. Превью и видеоурок - в раздаче.
+
+От автора проекта: Proudly presenting this short and cinematic video, based on typography and on an epic renaissance style. It’s a sure choice for DVD menus, impressive titles and any kind of intro you can think about.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7BE5760DEC72EE11A828B42216B2FAB6AB30C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

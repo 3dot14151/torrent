@@ -1,3 +1,32 @@
+###  Публикация: 1804367   (13036) от 29.06.2025
+
+VA - Record Super Chart 28.06.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Clementine Douglas - Blessings (3:39)
+02. AY YOLA - Homay (4:04)
+03. David GuettaSia - Beautiful People (3:07)
+04. Rudimental & Khalid - All I Know (Ely Oaks Remix) (2:29)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3A54E89E0A10D754D1FB6A8D5F741A2947E7C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804602   (12845) от 01.07.2025
 
 VA - Compilation Part 171 Electronic (2025) [MP3|320 Kbps] <Electronic>
@@ -718,35 +747,6 @@ Sardø - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:881BCA551336B0E90587B3390ED2DAC664B77B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815909   (4817) от 01.09.2025
-
-VA - Compilation Part 189 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hamidshax - I Can't Stop
-02 - A-Sultan - Here I Am
-03 - A-Sultan - Lost Signal
-04 - Jumanov - Target(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7636FEF2AB93B4D958CD657E01F3BD02B6D5E612
 ```
 
 https://mybot314.ru/tekegram_catalog/

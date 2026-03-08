@@ -1,3 +1,61 @@
+###  Публикация: 1393211   (767697) от 30.06.2020
+
+Yota - Hazy Paradise (2020) [MP3|320 Kbps] <Female Vocal, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hazy Paradise (04:22)
+ 02. The Vibe (03:52)
+ 03. Number One (03:28)
+ 04. The Switch (03:44)(   Читать дальше...   )Жанр: Female Vocal, PopПродолжительность: 00:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B14C47B35A8DB78439FD93AAE1C8B0A351EF84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278722   (767684) от 27.01.2019
+
+Шан-Хай - Звездная коллекция (2000) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солнечный зайчик [04:20]
+02. Ничего такого [04:59]
+03. Незнакомка [03:36]
+04. Пленник [04:50](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE951B677FA4578969B978A09B7627200F5AFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278727   (767679) от 27.01.2019
 
 Backstreet Boys - DNA (2019) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -682,64 +740,6 @@ VA - Club Latino (2000) приложение к журналу Stereo & Video 03
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B80D33BA0CC1D8D9F9FD33EC6B3F90BDBBB921A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126625   (765440) от 18.04.2017
-
-Espionage - Espionage (1983) Vinyl, LP [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sound Of Breaking Hearts
-02. Your Love Is For Sale
-03. The Great Escape
-04. Freedom(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550FBAABC0D7E47A24062955B826D8D2D3C38E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126548   (765410) от 18.04.2017
-
-Tam Harrow - Incredible Idiot (2015) LP, The Italo Disco Album [MP3|320 Kbps] <Electronic, Italo-Disco, Eurobeat, Parody, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incredible (3:44)
-02. I Look Into Your Eyes (5:26)
-03. Not Today Not Tonight (4:17)
-04. Toledo (5:00)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Eurobeat, Parody, PopПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FF41B01B6BF511622AF688AE8E2F96432D9CC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

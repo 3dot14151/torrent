@@ -1,3 +1,59 @@
+###  Публикация: 1217470   (743481) от 04.04.2018
+
+VA - United Colors Of Trance Vol.11 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Inc - Strong
+02. Vol Deeman - Fantasy
+03. Daniel Wanrooy & Marc Simz - Komaru
+04. Ryoji Takahashi & EpicFail feat. Amy K - Moments(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD47B86B589DBDF9FAE9A395DC5B471D2460CAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928676   (743294) от 13.02.2019
+
+Ott - Discography 12 Releases (2003-2018) [FLAC|Lossless|tracks+.cue, tracks]<Psydub, Downtempo, Psychill>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Load Up At Nunney Catch (07:22)
+ 02. Scilly Automatic (07:42)Тип издания: CD, Web, VinylЖанр: Psydub, Downtempo, Psychill •Продолжительность: 00:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978BD5B27F0A29A2CF98A368AF192BB024A8279A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217310   (743226) от 04.04.2018
 
 Phelian - Quadrivium (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Downtempo, Future Garage>
@@ -684,64 +740,6 @@ VA - Jungle Essence 11th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2997004D1509CEDEDF4FFEC4EB03CD065AA905F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126943   (741192) от 20.04.2017
-
-VA - Chilling Poolside (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sombra Modos - Shared Happiness  6:05
-02.  Sombra Modos - Botavara  5:34
-03.  Lamar Ensemble - Inspirational Shortcut  5:47
-04.  Lamar Ensemble - A Personal Perspective  6:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACA0960F826E6431370B19F7B427678D23A7435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126998   (741184) от 20.04.2017
-
-Nuta Cookier - Space Age (2017) [MP3|320 Kbps] <Ambient, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Space Temple (9:09)
- 02 – Ocean Travelling (8:34)
- 03 – Saturn Breathe (7:47)
- 04 – Space Age (6:00)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:489274B60C508EE7F43B1AC57440ECE6C9414AF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

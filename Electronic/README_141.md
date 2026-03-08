@@ -1,3 +1,61 @@
+###  Публикация: 1123883   (785975) от 10.04.2017
+
+VA - Get Down Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Konsiglio - Oleico  5:05
+02.  Davide Leonardo - Beginning The Journey  5:55
+03.  Marcus Koch - Isolde  4:05
+04.  Denis Rusnak - Welcome From The Holiday City  6:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751DF25D50FBED07985480E426308B6D1A81369F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124082   (785972) от 10.04.2017
+
+VA - Central Agency Of Sound (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Michael Ruland - Dreamer (Extended Mix)  6:24
+02.  Mykel Mars - L.A. Nights (Paul Aus Berlin Remix)  5:12
+03.  Suzie Kju - Baby! (Extended Classic Mix)  6:29
+04.  Sounds Of Summer - In My Head (Oh You) (Dub Mix)  6:45(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D46C38265FE03E2A21A94CCE62CC8E5E3E7CCED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123500   (785971) от 10.04.2017
 
 VA - Armada Miami 2017 (The Club Edition) (2017) [MP3|320 Kbps] <House, Electro House, Progressive House>
@@ -687,64 +745,6 @@ VA - Acoustic Covers of Pop Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E09B2183B15558BAAEC29F9CD3347B3D9191EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124433   (785755) от 11.04.2017
-
-Between Interval - legacy (2017) [FLAC|Lossless|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tunnel [00:03:22]
-02. On Track [00:04:04]
-03. Accelerant [00:06:20]
-04. The Hour Appointed [00:04:59](   Читать дальше...   )Жанр: AmbientПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF5BA7C8EDA51E5C272FA0A8A88524CDDFC9330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124841   (785674) от 12.04.2017
-
-VA - Contemporary New Lounge. Aperitif Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady White - The Rules of Love - Oversise Mix
-02. Monowork - Dapper - Lake Version
-03. Roben Bucks - Shallow - Keep Mix
-04. Ephemeral - Frogs Rain - Stereo Version(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27EEB4A256004E64944E2177E070BBBA45E0E75
 ```
 
 https://mybot314.ru/tekegram_catalog/

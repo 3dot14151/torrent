@@ -1,3 +1,61 @@
+###  Публикация: 1681140   (133028) от 02.12.2023
+
+Korolova - Tomorrowland Friendship Mix (2023-11-30) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piero Pirupa - Change Your Mind (Korolova Remix)
+02. ID - ID
+03. ARTBAT - Remember
+04. ID - ID(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C7749E56E17739637F856F428E8108B1E93558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199034   (132447) от 03.12.2023
+
+Fonarev - Эфиры радиошоу/подкаста «Znaki / Digital Emotions» (2008-2023) [MP3|128-320 kbps]<Trance, House, Breaks>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132447.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Joan Retamero - Through Revival (Ezequiel Arias Remix) /Onedotsixtwo/
+2. Juan Sapia - Magic Moon /Or Two Strangers/
+3. Emika - Battles (Eleven Sins Remix) /Soundcloud/
+4. East Cafe - Being Kind Is Overrated (Sam Heyman Rmx) /Superordinate/(   Читать дальше...   )Жанр: Trance, House, Breaks, TechnoПродолжительность: 790:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3B025BD68B3826D2EFB905818CF4942CB15783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682821   (129833) от 09.12.2023
 
 VA - Armin van Buuren - A State Of Trance 1150 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -681,64 +739,6 @@ Space 92 - Live @ Input Barcelona, Spain (2024-01-06) [MP3|320 Kbps] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D9FB1F44E394162320AA706942F7374A073C2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692282   (122504) от 16.01.2024
-
-Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2024-01-03) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rēbüke - Along Came Polly (Konstantin Sibold, Carmee & Zac Remix)
-02. Mila Journée - Three
-03. Sam Shure - Maybe (Original Mix)
-04. Ticon - 1987(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 02:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947AD64CA6AE983431E79D890BEB18CA9BD800B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693079   (121852) от 20.01.2024
-
-VA - Armin van Buuren - A State Of Trance 1156 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTY - Favorite Sound
-02. Armin van Buuren & GOODBOYS - Forever (Armin van Buuren Club Mix)
-03. Alex Prima ft. Adara - Teleport
-04. Super8 & Tab & Lürum ft. Lyca - Hold The Fire(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394BB43DE120F77DD2C2135EBBABE019A77200D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

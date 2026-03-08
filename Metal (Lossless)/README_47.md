@@ -1,3 +1,90 @@
+###  Публикация: 1364113   (939178) от 01.03.2020
+
+Five Finger Death Punch - F8 (2020) [FLAC|Lossless|image + .cue] <Groove Metal, Alternative Metal, Heavy Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F8 [1:15]
+ 02. Inside Out [3:47]
+ 03. Full Circle [3:24]
+ 04. Living the Dream [3:38](   Читать дальше...   )Жанр: Groove Metal, Alternative Metal, Heavy Metal, Nu MetalПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50E6373AC0636DC055CBDA4742101F1123D62CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364119   (939154) от 01.03.2020
+
+Machine Head - The Blackening (2007) [FLAC|Lossless|image + .cue] <Groove Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clenching The Fists Of Dissent (10:37)
+02. Beautiful Mourning (4:46)
+03. Aesthetics Of Hate (6:30)
+04. Now I Lay Thee Down (5:35)(   Читать дальше...   )Жанр: Groove Thrash MetalПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C561FEF85999FBD40FEE08D80DD5999A4FBF165C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984579   (938853) от 09.02.2016
+
+VA - 15 Песен Для Вашей Девушки (2004) [FLAC|Lossless|tracks + .cue] <Goth Rock, Darkwave, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fear Cult - Girls & Boys (4:07)
+02. Theatre Of Tragedy - Envision (3:51)
+03. Beseech - Drama (5:01)
+04. Wolfsheim - Care For You (5:07)(   Читать дальше...   )Жанр: Goth Rock, Darkwave, Doom Metal, EBM, Synth-popПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB2976DB7F78F9D78E7B706C6DB403765776550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092337   (938416) от 12.01.2017
 
 Sepultura - Machine Messiah (2017) Limited Edition [FLAC|Lossless|tracks]<Thrash Metal, Groove Metal>
@@ -658,93 +745,6 @@ Lancer - Mastery (2017) Limited Edition [FLAC|Lossless|image + .cue] <Power, Spe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD8DE0D8132C3F40EFCA4A47203ED4C88026F374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365559   (930896) от 07.03.2020
-
-Stalino - Conflict (2010) EP [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bitter Poison (3:32)
-02. Multifaced (4:53)
-03. Cared by Prejudices (2:51)
-04. Feeding the Carnivorous (4:23)(   Читать дальше...   )Производство: Eclectic Productions – EP022Жанр: Death MetalПродолжительность: 00:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804FD7B84BEDB91DAD1CDB9FB9E910FA7D16A484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365530   (930807) от 07.03.2020
-
-Masi - Downtown Dreamers (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Promised A Paradise
-02. Thunder And Lightning
-03. Movin' On
-04. Undercover (Rock And Roll Lover)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC643BC2FD12DEDA7DC2297C7EDF63861BC53FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498215   (930141) от 17.01.2017
-
-U.D.O. - Celebrator (Rare Tracks) (2012) 2CD, 2012, AFM Records [FLAC|Lossless|image + .cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Of A Clown (Orchestral Version) (4:18)
-02. Man A King Ruler (Remix) (3:34)
-03. Hardcore Lover (Remix) (4:46)
-04. Scream Killers (Remix) (4:18)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E2563AAEAF8B1D04FB3CC3EFC98FDAFE5B06E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

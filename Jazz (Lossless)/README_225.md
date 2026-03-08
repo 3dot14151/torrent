@@ -1,3 +1,32 @@
+###  Публикация: 1080591   (286688) от 08.12.2016
+
+Bill Evans Trio - with Symphony Orchestra (1965) 1989, Verve [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Granadas [05:55]
+ 02.Valse [05:53]
+ 03.Prelude [03:02]
+ 04.Time Remembered [04:11](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75A80502BD1FA1A8DB349E597209C5B13E7A26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080598   (286645) от 08.12.2016
 
 Kenny Wheeler, Peter O' Mara, Wayne Darling, Bill Elgart (1991) Koala Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -715,35 +744,6 @@ VA - A Jazz Christmas (2015) 2CD [FLAC|track+.cue]<Jazz, Christmas>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A855BD861A646C22C98FD268E74205EFC0045FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849490   (283158) от 12.12.2014
-
-Ulf Wakenius - Vagabond (2012) [FLAC|Lossless]<Jazz, World Fusion, Contemporary Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vagabond [05:18]
-02. Message In A Bottle [06:16]
-03. Bretagne [05:01]
-04. Psalmen [04:36](   Читать дальше...   )Жанр: Jazz, World Fusion, Contemporary Jazz, Guitar JazzПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E44E2BD418947766A4446B9BCB3DE4E542988B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,38 +1,3 @@
-###  Публикация: 517152   (645826) от 02.07.2012
-
-Bonded By Blood - The Aftermath (2012) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Hear You (3:40)
-02. Shepherds of Rot (5:05)
-03. The Aftermath (5:12)
-04. Crawling in the Shadows (3:08)
-05. In a Wake (3:28)
-06. Repulsive (3:09)
-07. Among the Vultures (2:11)
-08. Show No Fear (5:18)
-09. Restless Mind (4:10)
-10. Left Behind (5:18)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C91DFF0226B68E3AF6CB3B6A2CBFB5174E1A90F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906297   (645802) от 08.06.2015
 
 Sensorium - The Art Of Living (2015) [MP3|320 кб/с]<Power Metal, Female Vocal>
@@ -762,6 +727,35 @@ The Bai Bang - Ridin' High (1996) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:538E6FE238B6CA88B7120A8B50BCD8AFBBCB30CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142219   (644864) от 13.06.2017
+
+Dream Evil - Six (2017) Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Evil  (05:19) 
+02. Antidote  (03:25) 
+03. Sin City  (04:55) 
+04. Creature Of The Night  (04:44) (   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF8DDAEF192D49C1616A5F751F5DBC3F0E996A82
 ```
 
 https://mybot314.ru/tekegram_catalog/

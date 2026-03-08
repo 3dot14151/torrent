@@ -1,3 +1,29 @@
+###  Публикация: 598735   (999774) от 05.01.2013
+
+Computer Desktop Wallpapers Collection (03.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874CFC885A9686B3D23F2CBF7802A67DA4391D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599130   (999772) от 05.01.2013
 
 [Wallpapers] Christmas mood Pack 2 (05.01.13)
@@ -691,32 +717,6 @@ Hypnose - Притяжение (2012) [MP3|320 кб/с]<Alt. Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C9E02B474F33994AC817243C9EADF7A7CE9D7CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597778   (999716) от 05.01.2013
-
-Sexy Girls Pack Wallpapers (02.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1ACA3ECFDAB8E698634944F620C798171ADD4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

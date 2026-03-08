@@ -1,3 +1,61 @@
+###  Публикация: 919583   (583010) от 19.07.2015
+
+Tangerine Dream - Les Genies du Rock - Rockoon (1995) [MP3|320 кб/с]<Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big City Dwarves [06:06]
+02. Red Roadster [08:13]
+03. Touchwood [04:28]
+04. Graffiti Street [04:48](   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946D3E0BB703DDFB62B4E3285DC8980A25381333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919580   (583009) от 19.07.2015
+
+VA - Sirup House Anthems Las Vegas 2015 (2015) [FLAC|Lossless|WEB-DL]<Progressive House, House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lika Morgan - Relax (Don't Do It) (Short Edit) [2:44]
+02. Shanahan - Hold On (Radio Mix) [3:32]
+03. Esquire - Over Now (Darone Radio Mix) [3:39]
+04. EDX - Empathy (Radio Edit) [3:10](   Читать дальше...   )Жанр: Progressive House, House, Deep HouseПродолжительность: 01:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC50C53502F0E9FD539F9A5E568626936263773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919457   (582863) от 19.07.2015
 
 VA - Ministry Of Sound: Sessions Twelve (Mixed By Tenzin & Generik) (2015) [FLAC|tracks + .cue]<Club House,House>
@@ -693,64 +751,6 @@ VA - Poolside Ibiza (Mixed by Ghassemi & Televisor) (2016) [MP3|320 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46F6A59C82376B9DF938463767AB3EDE0AB93D54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041966   (580458) от 11.08.2016
-
-Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1993 - 1999
-2007 - In London
-2011 - From The Beginning(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 02:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1D044395DE80D5D7C712430D2CFDDD5C91CD1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042223   (580429) от 11.08.2016
-
-VA - Armada Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cedric Gervais - With You (Remix) (feat. Jack Wilby)
-02. Two Friends - Forever (feat. Ktpearl)
-03. Armin van Buuren - Freefall (feat. BullySongs)
-04. Patrick Baker - Call Me Up(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 02:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9385871F0D3418150A9C5B7D4BCE3D8EF666599A
 ```
 
 https://mybot314.ru/tekegram_catalog/

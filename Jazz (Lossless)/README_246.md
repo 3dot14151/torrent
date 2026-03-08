@@ -1,3 +1,32 @@
+###  Публикация: 1459828   (241713) от 03.04.2021
+
+Von Freeman And Frank Catalano - You Talkin' To Me?! (2000) Delmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Out [6:11]
+02. Good Bait [10:41]
+03. When I Fall In Love [3:57]
+04. You Talkin' To Me?! [7:32](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F85BCF3A14A16A0481B0D22DC083F2C024AE8BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111315   (241708) от 05.03.2017
 
 Andrew Hill - Time Lines (2006) Blue Note [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
@@ -716,35 +745,6 @@ VA - Sensual Rhythm and Romance Jazzy Chilly Instrumentals (2023) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F236D1C1A02C9FA36F9742E6E602BAA507FB14D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462348   (241204) от 14.04.2021
-
-Red Norvo - Wigwammin' (1938) 1996, Hep Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daydreaming (All Night Long) [2:40]
-02. A Cigarette & A Silhouette [3:04]
-03. (I've Been) Savin' Myself for You [3:10]
-04. You Leave Me Breathless [2:49](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0ACADAC85C3F831443F450DD74FE85ADD630773
 ```
 
 https://mybot314.ru/tekegram_catalog/

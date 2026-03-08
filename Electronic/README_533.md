@@ -1,3 +1,61 @@
+###  Публикация: 1411225   (31602) от 08.01.2025
+
+Markus Schulz - Escape (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Escape (Original Mix)
+02. Markus Schulz & London Thor feat. Valentino Alessandrini - Feel Alive (Original Mix)
+03. Markus Schulz & Singa - Turn Me Down (Original Mix)
+04. Markus Schulz & Ethan Thompson feat. Soundland - Make It Last Forever (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A4DC841CAF5E9DB43118B8B6DC8CF3C07D82E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678498   (31589) от 08.01.2025
+
+VA - Pure Bliss Vocals Volume 4 (2013) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ana Criado - How Will I Know - Daniel Kandi & Dennis Pedersen Radio Edit (04:36)
+02. Beat Service - Reach The Sun - Radio Edit (04:00)
+03. Faruk Sabanci - Discover - Radio Edit (04:01)
+04. Giuseppe Ottaviani - Love Will Bring It All Around - Radio Edit (03:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADC282333F26C7BE87D17B87F9A1442BB3DD1B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771854   (31583) от 08.01.2025
 
 VA - Disco Down The Best of 2021 (2021) [MP3|320 Kbps] <House, Nu-Disco, Electro>
@@ -687,64 +745,6 @@ VA - Dream Dance Vol. 96 - The Annual (2025) [MP3|320 Kbps] <Trance, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDB0252314A5DD19A0FEDB431DA264C2452E6871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775016   (29904) от 24.01.2025
-
-VA - Deep-House Hunters, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris le Blanc, Roberto Sol, Karmaloft & Rana - Labyrinth of Life (Christos Fourkis Remix Extended) (07:20)
-02. Living Room - Strand (04:29)
-03. Eiaua - Play The Beat (02:44)
-04. Dark Tunnes - Soul Rising (06:10)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982F7C9E0A46BDA5D7053A166E070169A7D27F5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774981   (29903) от 24.01.2025
-
-VA - Armin van Buuren - A State Of Trance 1209 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten – Punk (ID Remix)
-02. Giuseppe Ottaviani pres. Ottagon – Find You
-03. MRPHLNDR – Rave
-04. NUMJA & Soultrain & Howe – We Go (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65E97CE93DE7829C3721BD659F07D89AC82EBE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

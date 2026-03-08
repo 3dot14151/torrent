@@ -1,3 +1,90 @@
+###  Публикация: 1139035   (661290) от 01.06.2017
+
+VA - Endless Music (Mixed & Compiled by Paul Lomax) Vol. 1,2 (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Oceanvs Orientalis - Revenge of the Wankers [09:05]
+02 Matt Correa - Euphony (feat. Alexey) [06:46]
+03 Mika Olson - What I Need (feat. Jermaine Fleur) [07:35]
+04 PopArt - Florescent Love (Miguel Campbell Remix) [05:43](   Читать дальше...   )Жанр: Deep House, Chill House |Продолжительность: 02:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7EA59B8BFD52B8F55D6E1F3C3651364DF88EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539095   (660083) от 23.03.2022
+
+Tensnake - L.A. Noir (2022) Mixed & Unmixed [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightshift (Mixed) (Enduro Disco Noir Mix) (5:22)
+ 02. Simpansi (Mixed) (Factory Sequences Noir Mix) (5:24)
+ 03. Call Me (Mixed) (Tensnake Noir Mix) (4:31)
+ 04. Antibodies (Mixed) (Street Player Noir Mix) (4:29)(   Читать дальше...   )Жанр: EDM, Nu Disco, Club HouseПродолжительность: 01:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B227F425E1EDC6ED871A9B2AC805907B0C89BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225514   (659843) от 16.05.2018
+
+Simian Mobile Disco - Murmurations (2018) Wichita [FLAC|Lossless|tracks+.cue] <Tech House, Ambient, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boids (04:33)
+ 02. Caught In A Wave (feat. Deep Throat Choir) (06:44)
+ 03. We Go (feat. Deep Throat Choir) (08:31)
+ 04. Gliders (03:40)(   Читать дальше...   )Жанр: Tech House, Ambient, Deep HouseПродолжительность: 00:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FED1C19172861F5500B9704C584855FF0DCC1E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902963   (659835) от 29.05.2015
 
 Alesso - Forever (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Progressive House>
@@ -664,93 +751,6 @@ Actress x London Contemporary Orchestra - LAGEOS (2018) Ninja Tune [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF2B7C61DCBC76AAD0C879639F79431F1CC1C60F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344431   (645204) от 05.06.2011
-
-GusGus - Arabian Horse (2011) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_645204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Selfoss
-02. Be With Me
-03. Deep Inside
-04. Over(   Читать дальше...   )Жанр: House, Downtempo, Tech HouseПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227619   (644885) от 27.05.2018
-
-Hells Kitchen - The End of Us (2012) Aura Music [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End Of Us (05:01)
- 02. I Close The Door (feat. Irina Makosh) (05:51)
- 03. Never See Me Cry (feat. Irina Makosh) (06:15)
- 04. Regrets (feat. Irina Makosh) (07:01)(   Читать дальше...   )Жанр: Downtempo, Tech House, MinimalПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC441BA2C872BCA74A33AECF05507B49CDC6AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142139   (644711) от 13.06.2017
-
-Robin Schulz & David Guetta & Cheat Codes - Shed A Light: The Remixes Part 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Robin Schulz - Shed a Light (Extended Version) [05:05]
-02 Robin Schulz - Shed A Light (MOTi Remix) [04:31]
-03 Robin Schulz - Shed A Light (HUGEL Remix) [04:31]
-04 David Guetta - Shed A Light (Oliver Moldan Remix) [04:55](   Читать дальше...   )Жанр: HouseПродолжительность: 00:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1ECB94EF390C29C740A360AAA8E1857205548A
 ```
 
 https://mybot314.ru/tekegram_catalog/

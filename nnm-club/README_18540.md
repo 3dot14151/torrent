@@ -1,25 +1,23 @@
-###  Публикация: 1193679   (261805) от 23.12.2017
+###  Публикация: 1193200   (261845) от 22.12.2017
 
-VA - Italo Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Italo-Disco>
+Очередное достижение: 100+ TB отданного трафика от наших Одноклубников!!!
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261805.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Tom Dollar  -  Love Is Something  6:44
-02.  C'Zar  -  I Remember (Look Me Baby)  6:29
-03.  Steve Martin  -  Roxide  6:30
-04.  Laura Angel  -  lf You Want  4:29(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:32
+Очередное достижение: 100+ TB отданного трафика от наших Одноклубников!!!Уважаемые друзья! - есть повод поздравить наших товарищей-одноклубников, перешагнувших планку более 100 ТB отданного разнообразного контента!!!
+Это верные сиды и релизеры, участники различных РГ и Модераторы.(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81EB32E2CC724313D6FAB7245068AF0D2F4060EF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +25,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194082   (261804) от 23.12.2017
+###  Публикация: 1193783   (261844) от 22.12.2017
 
-Журнал | Дачный спец №12 (декабрь 2017) [PDF]
+Салют-7 (2017) BDRip [H.264/1080p]
 
->>Журналы
->>Домоводство (журналы)
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261804.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261844.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для тех, кто стремится вести свое хозяйство грамотно, с умом. В каждом выпуске вы сможете найти для себя полезную информацию от известных ученых, агрономов-практиков, садоводов-опытников.Жанр: Садоводство, растениеводство, огородничестваФормат: PDF
+Космическая станция «Салют-7», находящаяся на орбите в беспилотном режиме, неожиданно перестает отвечать на сигналы центра управления полетом. Принято решение об отправке на орбиту спасательной экспедиции. Космический экипаж должен найти «мертвую» станцию и впервые в мире провести стыковку с 20-тонной глыбой неуправляемого железа.
+
+Космонавты понимают, что шансов (   Читать дальше...   )Производство: Россия / Канал РоссияЖанр: драма, приключения, триллерРежиссер: Клим ШипенкоАктеры: Владимир Вдовиченков, Павел Деревянко, Александр Самойленко, Виталий Хаев, Оксана Фандера, Любовь Аксенова, Роман Перелыгин, Полина Руденко, Александра Серебрякова, Мария МироноваПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:50:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46A91F4455D93BE79FE8B4CD576ED7D28B34EF80
+magnet:?xt=urn:btih:1F886A22EDDE7A164EF4DEAA9EB1C743CC592E5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193802   (261803) от 23.12.2017
+###  Публикация: 1174697   (261843) от 22.12.2017
 
-VA - Euro Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+Heliborne (2017) [Ru/Multi] (0.87.11/dlc) Repack Other s [Winter Complete Edition]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>След.
+>>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261803.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261843.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bam Boo - Foreign East Love (5:42)
-02. Claudia Benn - Mister Hasta La Vista (6:14)
-03. Alberto D'Arco - Dai Dai Dai (Dolce Vita) (6:21)
-04. Nadia Dorine - Help Is On It's Way (5:53)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:16:09
+Heliborne — военный экшн про вертолетную авиацию. В распоряжении игроков десятки вертолетов различных эпох, от 1950-х до 2000-х годов, карты по мотивам реальных конфликтов и несколько игровых режимов. Пилотам предстоит не только охотиться за вражеской авиацией, но также перевозить и поддерживать собственные наземные силы.Тип издания: RepackРазработчик: JetCat GamesЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B490F9AF53D014881030C8521433567474F8B585
+magnet:?xt=urn:btih:585052C4BA2BA2FD3714D112C1C35DEB68BB3002
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193903   (261802) от 23.12.2017
+###  Публикация: 1151271   (261842) от 22.12.2017
 
-Расширенное заседание коллегии Министерства обороны России (22.12.2017) WEB-DL [H.264/720p-LQ]
+Ballroom e Youkoso / Welcome to the Ballroom / Добро пожаловать на паркет [2017, TV, 24 ep] HDTV 720p Raw+Rus
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261802.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261842.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Владимир Путин посетил Военную академию Ракетных войск стратегического назначения имени Петра Великого (ВА РВСН), где принял участие в ежегодном расширенном заседании коллегии Министерства обороны Российской Федерации.Производство: Президент.РФЖанр: ПолитикаПродолжительность: 01:03:30
+Обучение в средней школе уже подходило к концу, а Татара Фуджита до сих пор не имел понятия о том, чем ему хочется заниматься в этой жизни. И пока его одноклассники уже строили планы о том, в какую старшую школу им поступить, он всё ещё смутно представлял, куда ему двигаться дальше. Так бы он и провёл остаток времени в раздумьях и сомнениях, если бы не один случай, (   Читать дальше...   )Жанр: комедия, романтика, драма, школа, сёнэнРежиссер: Итадзу ЁсимиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизода по 25 минут
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F29C7834034E29D4467701DD4CC997608E5AD83
+magnet:?xt=urn:btih:3AC4D8A031E465A58EEC0D52D109ECD422525D27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194093   (261801) от 23.12.2017
+###  Публикация: 1185883   (261841) от 22.12.2017
 
-VA - The Official UK Top 40 Singles Chart 22.12.2017 [MP3|192-320 Kbps] <Alternative, Synthpop, Other>
+Долгая дорога домой / The Long Road Home (2017) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) IdeaFilm
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>След.
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261801.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ed Sheeran - Perfect 4:23
-02. Eminem - River (Feat. Ed Sheeran) 3:41
-03. Wham! - Last Christmas 6:49
-04. Mariah Carey - All I Want For Christmas Is You 3:58(   Читать дальше...   )Жанр: Alternative, Synthpop, OtherПродолжительность: 02:27:29
+В основу сюжета легла трагическая история, которая произошла с солдатами американской армии 4 апреля 2004 года в столице Ирака. На окраинах Багдада военные попали под огонь борцов за свободу Ирака, устроивших им засаду. Эти события в США принято называть "Черное воскресенье".Производство: США / Finngate Pictures, Phoenix PicturesЖанр: драма, военныйРежиссер: Фил Абрахам, Микаэл СаломонАктеры: Э.Дж. Бонилья, Франклин Сильверио, Джон Биверс, Джошуа Бреннан, Хорхе Диас, Дариус Хомайоун, Джозеф Лутман, Томас МакДонелл, Девонн Палмер, Чарли Пэрриш и др.Перевод: Многоголосый закадровый, любительский (IdeaFilm)Продолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BD29143272D3BD971146608C9C48C7BA725DD8D
+magnet:?xt=urn:btih:EC6260FE68E9F15D40084D1F0C37CEB965F07327
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +131,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193887   (261800) от 23.12.2017
+###  Публикация: 1164135   (261840) от 22.12.2017
 
-Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Lossless|WEB-DL|tracks] <Techno>
+Мир Наизнанку. Япония / Світ навиворіт з Дмитром Комаровим (2017) WEB-DLRip [H.264/1080p-LQ] (Сезон 9, серии 1-15 из 15)
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261800.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261840.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Complex Chemistry (06:15)
- 02. Morning Rain (06:18)
- 03. Lost In The Jungle (07:03)
- 04. Low Center Of Gravity (06:56)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:31:29
+Стоит отметить, что экспедиция в Японию стала особенной для команды проекта "Мир наизнанку". Впервые в истории программы Дмитрий Комаров и Александр Дмитриев отправились в одну из самых развитых и высокотехнологичных стран мира. Но какой окажется ее "обратная сторона"?
+"Что мы знаем о Японии? Первые слова, которые приходят на ум: суши, "Тойота", (   Читать дальше...   )Телекомпания: Украина, 1+1 ProductionЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый профессиональный (на фрагменты иностранной речи)Язык озвучки: Изначально русскийПродолжительность: 01:05:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7117753AFC579D5D39A3150890FA000F21FB5C5E
+magnet:?xt=urn:btih:0A3C073486AB525BA25340FC2E4509E634256311
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193865   (261799) от 23.12.2017
+###  Публикация: 1193789   (261839) от 22.12.2017
 
-VA - Euro Disco: The Lost Legends Vol.7 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+Acronis True Image 2018 Build 10640  RePack by KpoJIuK  [Multi/Ru]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261799.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Elvin  -  Luggi, Luggi, Ludwig  5:26
-02.  First Cut  -  Tell Me Tell Me  7:14
-03.  Thai Break  -  Flowers In The Rain  5:38
-04.  Kenny Masters  -  Time To Fly (Sing My Song)  6:02(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:14:29
+Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0E59EF46014199B3F35BA633370448FB027BC66
+magnet:?xt=urn:btih:4E28203C0CC2EA5FBFC147AF2BF0EA0DA46B4A71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,25 +184,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193923   (261798) от 23.12.2017
+###  Публикация: 1193589   (261838) от 22.12.2017
 
-Журнал | Загадки истории №51 (2017) [PDF]
+Adobe Photoshop CC 2018 (19.0.1) x86-x64 RePack by D!akov [Multi/Ru]
 
->>Журналы
->>Другие журналы
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261798.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261838.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Популярный журналФормат: PDF
+Adobe Photoshop CC 2018 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8034EEAABE0E4333ECA3F952311AEED78950E786
+magnet:?xt=urn:btih:CAD88C0FB3041FB8D53170AB0322BE9489ADAFC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,57 +210,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193894   (261797) от 23.12.2017
+###  Публикация: 1193364   (261837) от 22.12.2017
 
-Faydee - Patterns (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More (3:16)
- 02. Friendzone (feat. Demarco) (3:15)
- 03. Patterns (3:29)
- 04. When I'm Gone (3:13)(   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 00:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33E5C4B145A30DD995E3D0574AFEDC9227669A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193904   (261796) от 23.12.2017
-
-Плавание. Чемпионат Европы на короткой воде 2017. Копенгаген (Дания). 5-й День Финалы (2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Оно / It (2017) BDRip [H.264/1080p-LQ]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261796.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261837.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17 декабря 2017 года
-Чемпионат Европы по плаванию на короткой воде 2017 года.
-Копенгаген (Дания). Финалы
-5-й День(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:30:04
+В маленьком городке Дерри, штат Мэн, уже много веков орудует воплощение липкого ужаса под видом клоуна из бродячего шапито. Его жертвами становятся преимущественно подростки с неокрепшей психикой, которых он предварительно запугивает до аморфного состояния, чтобы затем устроить детишкам кровавую вакханалию в марсианском аду. Местные власти ничего не предпринимают, (   Читать дальше...   )Производство: СШАЖанр: Ужасы, Триллер, ДрамаРежиссер: Андрес МускеттиАктеры: Джейден Либерер, Джереми Рэй Тейлор, София Лиллис, Финн Вулфард, Чоузен Джейкобс, Джек Грейзер, Уайатт Олефф, Билл Скарсгард, Николас Хэмилтон, Джейк Сим, Логан Томпсон, Оуэн Тиг, Джексон Роберт Скотт, Стивен Богерт, Стюарт ХьюзПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full)Продолжительность: 02:14:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDAFDCB268171A1901CCA9513C1149FE1DD48350
+magnet:?xt=urn:btih:6C615D5078B1D03B09F195725EF01497B856F896
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,28 +236,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193690   (261795) от 23.12.2017
+###  Публикация: 1035346   (261836) от 22.12.2017
 
-VA - Italo Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Italo-Disco>
+Бегущий по лезвию / Blade Runner (1982) BDRip [H.264/1080p] [The Final Cut]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261795.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261836.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Tony Moore D.J.  -  Tonight  7:06
-02.  Paciscopi  -  Love's Harmony  6:40
-03.  David Gray  -  I Wanna Fly (Only For DJ)  5:33
-04.  F & M  -  Te Gusta  5:26(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:28
+Отставной детектив Рик Декард вновь восстановлен в полиции Лос-Анджелеса для поиска возглавляемой Роем Батти группы киборгов, совершившей побег из космической колонии на Землю. В полиции считают, что киборги пытаются встретиться с Эндолом Тайреллом, руководителем корпорации, ставящей эксперименты над кибернетическим интеллектом. Рик Декард получает задание выяснить (   Читать дальше...   )Производство: США, Гонконг, Великобритания / The Ladd Company, Shaw Brothers (Hong Kong) Limited, Norman Lear/Tandem ProductionsЖанр: Фантастика, Триллер, Драма, МелодрамаРежиссер: Ридли СкоттАктеры: Харрисон Форд, Рутгер Хауэр, Шон Янг, Эдвард Джеймс Олмос, М. Эммет Уолш, Дэрил Ханна, Уильям Сэндерсон, Брайон Джеймс, Джо Тёркел, Джоанна Кэссиди, Джеймс Хонг, Морган Полл, Кевин Томпсон, Джон Эдвард Аллен, Кэролин ДемирьянПеревод: Дублированный, профессиональный (многоголосый закадровый), профессиональный (двуголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 01:57:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD3A03AEA876B14764B099DF42AD1B9A01155CAC
+magnet:?xt=urn:btih:B656DC7A0A15030248E3F35D177514042AC1BE8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,28 +262,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193987   (261794) от 23.12.2017
+###  Публикация: 1193972   (261835) от 23.12.2017
 
-VA - Club Night Vol.4 (2017) [MP3|320 Kbps] <Club, Dance>
+Antonio Ciacca Quintet - Rush Life (2008) Motema Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261794.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261835.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lost Kings - Don't Call (Original Mix)
-02. Andy S - Getcha (Original Mix)
-03. Starley - Been Meaning To Tell You (Leeyou & Danceey Club Mix)
-04. DJ Valdi Ft. Elena - Hot Bhangra (Original Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:33:46
+01. Squazin [05:51]
+02. Chipewha [07:25]
+03. I Remember Clifford [05:34]
+04. Flat 5 Flat 9 [06:49](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD6DE6E06925EC303943526DE2892BCF105AF5A6
+magnet:?xt=urn:btih:6379997529140ADCC717727250C07B160454D514
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,25 +291,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194058   (261793) от 23.12.2017
+###  Публикация: 1193831   (261834) от 23.12.2017
 
-Эллен Датлоу | Легенды о призраках (2017) [MP3]
+Horace Tapscott - Little Afrika (1983) 2010, Absord Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261793.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261834.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мрачные и захватывающие, эти двадцать рассказов о привидениях заставят вас дрожать от ужаса! Все истории о призраках написаны в традиционном стиле, но при этом каждый рассказ является уникальным переложением страшных городских легенд со всего мира. Лауреат множественных премий Эллен Датлоу и номинант нескольких премий, автор и редактор Ник Маматас соединили в одну (   Читать дальше...   )Жанр: МистикаПродолжительность: 10:10:46
+01. Swing On A Limb [10:15]
+02. Little Afrika [09:01]
+03. Niger's Theme [17:13]
+04. Tapscott's Thoughts [02:17]Жанр: Post-Bop, Piano JazzПродолжительность: 00:38:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C2FB355847CF962AF6A937DD031D8232D3AC1C7
+magnet:?xt=urn:btih:7D813DED296797EAF12C570F0EDFC207B133D434
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,28 +320,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193979   (261792) от 23.12.2017
+###  Публикация: 1193968   (261833) от 23.12.2017
 
-VA - Disco Italo: Emotional Party (2017) [MP3|192-320 Kbps] <Italo Disco, Remix>
+Steve Kuhn - Oceans In The Sky (1989) 2001, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261792.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261833.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Angelico - Forever Love (Bcr Extended New Generation Mix)
-002. Mflex feat. Fresh - Йn is imбdlak
-003. Nick Festari - Web kiss the radio (Extended Mix)
-004. Stylove Feat. Naoky - Tango In The Night (Original Mix)(   Читать дальше...   )Жанр: Italo Disco, RemixПродолжительность: 14:38:31
+01. The Island [08:00]
+02. Lotus Blossom [05:09]
+03. La Plus Que Lente [06:40]
+04. Do [04:36](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:56:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAA5736BCE489D7F47E0DBD04ECF956528D3ECF6
+magnet:?xt=urn:btih:B376FCF48A7BB740C4D554A42746DB5003AAF7F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,111 +349,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193872   (261791) от 23.12.2017
+###  Публикация: 1194114   (261832) от 23.12.2017
 
-VA - Euro Disco: The Lost Legends Vol.8 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Phantom Of The Blue  -  Silent Killer  6:08
-02.  The Back Bag  -  Dial My Number  5:35
-03.  Good News  -  You Turn Me On (Girl You Drive Me Crazy)  7:31
-04.  Scala  -  The Perfume Of Love  6:57(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCBFDD3ABB55168446A20BF54EC33573EFB449F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194127   (261790) от 23.12.2017
-
-VA - Record Super Chart #517 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alan Walker  -  The Spectre  3:14
-02.  Joe Stone  -  Let's Go Together  4:12
-03.  EKTONIX  -  Vuono Matyn  2:30
-04.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521E4BC259EA93B3C704CAE3C83875895C75AD8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193963   (261789) от 23.12.2017
-
-Открытый микрофон (2017.12.22) WEB-DLRip (сезон 2, выпуск 19 - Финал)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261789.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8D730D10161F5801020D09878FACF20134B40C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193884   (261788) от 23.12.2017
-
-Critical Event - Fifth Move (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+VA - Recoverworld Trance Sessions 17.10 (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261788.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261832.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Critical Event - 5th Move (05:02)
- 02. Incident & Critical Event - Nostalgia (05:47)
- 03. Critical Event & Conrad Subs - Silhouettes (05:01)Жанр: Drum & BassПродолжительность: 00:15:50
+01. Para X - Laguna (Intro Mix)
+02. Alessandra Roncone - Down the Rabbit (Original Mix)
+03. Nikolauss - New Beginning (Original Mix)
+04. Sean Tyas - Lift (Chris Voro & Ode ReChill)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45615D1C976157EB43B6846E0D97C01ED0462199
+magnet:?xt=urn:btih:BC86D17D6CDFBB214BFB91FBFA7713E965725C6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,222 +378,345 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193893   (261787) от 23.12.2017
+###  Публикация: 1194103   (261831) от 23.12.2017
 
-VA - Euro Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+VA - Digital Society Recordings 2017: The Yearmix (Mixed by Chis Sx) (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Sx - La Santa
+02. Ciaran Mcauley - Tears
+03. Andre Visior - Nightfly
+04. Temple One - Ocean Paradise(   Читать дальше...   )Жанр: TranceПродолжительность: 03:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A7D344B259792FB1E6F56DC6371BCE54A4E3DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193908   (261830) от 23.12.2017
+
+VA - Black Hole House Music 12-17 (2017) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zoo Brazil  -  From A Distance (feat. Wolf & Moon) (Monkey Safari Remix)  8:46
+02.  Electric Dunes  -  Crossfire (Extended Mix)  7:47
+03.  Jack Trades  -  High (feat. Thomas Daniel) (Extended Mix)  4:25
+04.  Chris Bushnell & Cory Enemy  -  Keep It Coming (Club Mix)  3:40(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:239EC99DE0B3DF23FFDC1766FCE753F27F4BA8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193947   (261829) от 23.12.2017
+
+Ahmad Jamal - Macanudo (1959, 1962) 2014, Solar Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Latin Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Montevideo [03:01]
+02. Bogota [04:01]
+03. Sugar Loaf at Twilight [03:17]
+04. Haitian Market Place [02:58](   Читать дальше...   )Жанр: Mainstream Jazz, Latin Jazz, Piano JazzПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5442132D0185DCD2EF7EB64DEDF6D216E6A4D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194036   (261828) от 23.12.2017
+
+VA - Best of Lifted (Mixed bi Azima) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motion Sound - Phantom (Darryn M Remix)
+02. Libra - Resolution Of Minds (Extended Mix)
+03. Hypersia - Cassiopeia (Fresh Code Remix)
+04. Azima - Singularity (Last Soldier Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9736FACE3D8D421E45A4827DEF5E327B34B1C5C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193965   (261827) от 23.12.2017
+
+Oliver Nelson - Skull Session (1975) 2002, Flying Dutchman [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Big Band, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skull Session [06:07]
+02. Reuben's Rondo [03:01]
+03. 125th St. and 77th Ave. [06:25]
+04. One for Duke [04:36](   Читать дальше...   )Жанр: Jazz Fusion, Big Band, Jazz-RockПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CD718BE19123445BFF30C25B3EBB22D22723D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193874   (261826) от 23.12.2017
+
+VA - Spectral Decay (2017) City Forest Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental, Dub Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veteran Lovers - Windmill (06:04)
+ 02. Knabe - Tairminal (07:39)
+ 03. THControll - Yage (06:39)
+ 04. Indo - Florax (11:09)(   Читать дальше...   )Жанр: Ambient, Drone, Experimental, Dub TechnoПродолжительность: 01:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E517ED2E07913A6F41B7A21653A5B04455C36290
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193971   (261825) от 23.12.2017
+
+В. Мирошевский (ред.) | Поколение войны и революции (1923) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для чтения по истории международного юношеского пролетарского движения.
+
+Капитализм вызвал усиленное привлечение в промышленность молодых рабочих. Малолетние являются наиболее беззащитным, наиболее „удобным" объектом капиталистической эксплуатации; естественно поэтому, что каждый молодой рабочий представляет собою „лакомый кусок" для капитализма. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA591B22E117E6A022CB701333B13D09A3CD8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193755   (261824) от 23.12.2017
+
+Telefon Tel Aviv - Map of What Is Effortless (2004) Japan Reissue, 2017 [FLAC|Lossless|tracks + .cue] <IDM>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When It Happens It Moves All By Itself (03:28)
+02. I Lied (05:53)
+03. My Week Beats Your Year (04:09)
+04. Bubble And Spike (04:00)(   Читать дальше...   )Жанр: IDMПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1878B836CC5E3F9906FF2BA969246E6AD06868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193919   (261823) от 23.12.2017
+
+ViceVersa - The Electric Flame (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love The Way (03:18)
+02. Next One (03:17)
+03. So Fine (03:30)
+04. Get Down (03:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E34CCC0A760C706AAFE2E2B690E27EB23685944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194110   (261822) от 23.12.2017
+
+VA - MNMN FOR HAPPY ANIMALS (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Breaks, Bass Music, Downtempo, Post Rock, Ambient, Synth-pop, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Art Electronix – Illbimatic (04:32)
+02. Backdoor Beauty – Big Friend (04:22)
+03. Hobotek – Cyberdog Revival (05:07)
+04. InSpectr – Phatramb (06:21)(   Читать дальше...   )Жанр: IDM, Breaks, Bass Music, Downtempo, Post Rock, Ambient, Synth-pop, ExperimentalПродолжительность: 01:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25CB180F307E50AABE6590AAB83CB4D599A31B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193804   (261821) от 23.12.2017
+
+Митрополит Иерофей (Влахос) | Господские праздники (2001) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателей предлагается перевод книги одного из известнейших современных греческих богословов, Митрополита Навпакта и Святого Власия Иерофея (Влахоса) "Господские праздники"
+Автор подробно и систематически, с привлечением богатого святоотеческого материала, анализирует богословский и литургический смысл всех двенадцати Господских праздников.
+Примеры (   Читать дальше...   )Жанр: Литургическое богословиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9683C3D1DFF8032C9F2F295AFF11CA1D59A524C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193885   (261820) от 23.12.2017
+
+VA - Euro Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
 
 >>Pop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261787.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Kerim Khan  -  Seaside Rendezvous  5:54
-02.  Avenue  -  Voices Of Animals  6:09
-03.  Rio  -  Beside You  5:43
-04.  Anouschka Renzi  -  Robot Love  6:49(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:19:44
+01.  Buckingham Palace  -  Give Me Your Name  3:48
+02.  ZITA  -  Shadow  5:14
+03.  Uffe Soderberg  -  Lady Lady  3:04
+04.  Wayne Scott  -  Rambo  5:27(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:16:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EF0A09168543DD34FD9E325EAE7D70F967288F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194045   (261786) от 23.12.2017
-
-Jon Richards - The Sacred Tree (2012) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song of the Seasons
-02. The Triple Goddess
-03. Lady of the Forest
-04. The Sacred Tree(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0279908A35900E11DEAFA800A62447A75E7065BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193851   (261785) от 23.12.2017
-
-VA - Alternative Range: New Age Relaxing Groove (2017) [MP3|256-320 Kbps] <New Age, Relaxing Instrumental, Ambient>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261785.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Molly Valentine - Luchia
-002. Jill Garcia - Heaven Is Real
-003. Gabriel V4C - Erminig
-004. Mars Lasar - Beyond Utopia(   Читать дальше...   )Жанр: New Age, Relaxing Instrumental, AmbientПродолжительность: 09:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A48CA131380F42FDA6A3CBB94905C5B4BECEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193959   (261784) от 23.12.2017
-
-Comedy Woman (2017.12.22) WEB-DLRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Развлекательное шоу, в котором пресловутая женская логика оказывается как нельзя кстати. Девушки с выдающимся юмором и не менее выдающимися формами не позволят заскучать самому закоренелому снобу и накажут смехом даже законченного шовиниста. Сomedy Woman - место, в котором приятно побывать и не стыдно об этом вспомнить! Особенно зажигательные танцы, очень смешные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-Шоу, юморАктеры: Наталья Еприкян, Екатерина Скулкина, Екатерина Варнава, Мария Кравченко, Полина Сибагатуллина, Татьяна Морозова, Надежда Сысоева, Надежда Ангарская, Марина Федункив.Субтитры: ОтсутствуютПродолжительность: ~ 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDF97DAB302EF68CB46E0AA71613CC4FFA24213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194026   (261783) от 23.12.2017
-
-Студия Союз (2017.12.21) HDTV [H.264/1080p-LQ] (выпуск 20)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A85E3EFCB12E215AB393A831A44E26DB55BA8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193961   (261782) от 23.12.2017
-
-Камеди Клаб в Барвихе / Комеди Клаб / Comedy Club (2017.12.22) WEB-DLRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261782.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: ~ 00:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345B51575640F07382EF7CAE03A4C04F729CC77B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193745   (261781) от 23.12.2017
-
-VA - Euro Disco: The Lost Legends Vol.1 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Men Of Romantic  -  Girls Destroy Hearts  3:43
-02.  Steven Dale  -  Together Forever  5:53
-03.  Wanda Cross  -  Dancing In The Desert  6:32
-04.  Kashmir  -  I Want To Be  7:03(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D020BBA5C6A547EAA9914DA4A4A444347E591106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193825   (261780) от 23.12.2017
-
-VA - Euro Disco - The Lost Legends Vol. 4 (2017) [MP3|320 Kbps] <Synth-pop, Hi NRG, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kanji - Dancing Star (4:47)
-02. Marc Flores - Magic Moment (Do It! Do It!) (4:44)
-03. J.S.R. - Understars (5:21)
-04. Phemius Dee - Lady Fantasy (5:46)(   Читать дальше...   )Жанр: Synth-pop, Hi NRG, Italo-DiscoПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5546A29457670E26A82D53779A8A4163C0962E57
+magnet:?xt=urn:btih:ABADA4B8CF1A84D57DE05E1C92820BBFB5BA4265
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1062766   (434675) от 16.10.2016
+
+Arianna Savall - Peiwoh (2009) [FLAC|Lossless|tracks + .cue] <Classical, Vocal Music, Chamber Music>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preghiera   (06:34)
+02. El llenguatge dels ocells   (06:16)
+03. Liebes-Lied   (03:10)
+04. She Moved Through The Fair   (03:32)(   Читать дальше...   )Жанр: Classical, Vocal Music, Chamber MusicПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F623ACCF4500821DAF5D9904B9D7B3AFCA3535E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063350   (434291) от 16.10.2016
 
 Wolfgang Amadeus Mozart - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classical>
@@ -710,35 +739,6 @@ The New London Chorale - The New Amadeus Mozart (1997) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:301F9C0949DF704BE5486C60FE5886A04A54D7FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412734   (413617) от 01.10.2020
-
-Dirk Maassen - An Evening at Wilhelmsburg (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, New Age>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viva (4:25)
- 02. Peace of Mind (3:50)
- 03. Fjara (Solo Piano Version) (3:30)
- 04. La Mer (5:55)(   Читать дальше...   )Жанр: Modern Classical, Piano, New AgeПродолжительность: 00:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7120B81508AD4E6C9658C848A4468155946B3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

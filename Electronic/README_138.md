@@ -1,3 +1,61 @@
+###  Публикация: 1203239   (788664) от 01.02.2018
+
+VA - Chai Cafe (Early Morning Music For Awakening & Relaxation) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Phillipson – Spare A Thought 02:51
+02. Aleksandar Dimitrijevic – Illuminate No Drums Version 05:05
+03. Anaamaly – I Am Perfect Either Way 04:59
+04. Matt Starling – Music For Nina 07:28(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46330FC0DFBE60BFA0733DBE3ED5099373DC4B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203155   (788663) от 01.02.2018
+
+VA - Aurora Borealis Chillout 1 (2018) [MP3|320 Kbps] <Chillout, Instrumental, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max Zierke  -  Memories (Instrumental Version)  2:38
+02.  Duplicity  -  Matte White Magic (Original Mix)  6:04
+03.  Morris Jones feat. Kim Greene  -  Let It Flow (Radio Edit)  3:39
+04.  Andre Schluter  -  Miss You (Patricio AMC Remix)  4:16(   Читать дальше...   )Жанр: Chillout, Instrumental, AmbientПродолжительность: 02:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F05485BCBAC6CA684CB8D580E4BC68B5BBC6136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203211   (788657) от 01.02.2018
 
 VA - Aly & Fila - Future Sound of Egypt 533 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -687,64 +745,6 @@ VA - Valentines Day Collection, King Street Sounds, 25 Years Essentials (2018) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2CB20403601D458949DFA11F3C2B48FFD4BF602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203786   (787731) от 03.02.2018
-
-Voskoley - Uninhabited Planet (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landing (06:01)
-02. Chameleon (06:31)
-03. Regulator (06:17)
-04. Infinite Space (06:52)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D134AC38ACD38D69E812CE9AF6E81B35AC4A7B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203727   (787729) от 03.02.2018
-
-VA - EDM Dance For Valentines Day (2018) [MP3|320 Kbps] <House, Nu Disco, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Urban Sound Collective  -  I Need Your Love  3:54
-02.  New Electronic Soundsystem  -  Digital Love  4:03
-03.  CDM Project  -  I Got U  4:46
-04.  Vibe2Vibe  -  Firestone  4:32(   Читать дальше...   )Жанр: House, Nu Disco, DanceПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC93D882B247294D2E2F4D1BC0DF5B65183008F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

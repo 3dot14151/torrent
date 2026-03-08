@@ -1,3 +1,32 @@
+###  Публикация: 1360720   (959456) от 16.02.2020
+
+Philter - The Queen of Crows (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise
+02. Neon Riders
+03. Miyazaki Mountain
+04. Black Lotus(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B15E6455D00B28C9553956B558CD2FE0FFC781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360630   (959455) от 16.02.2020
 
 Биатлон. Чемпионат Мира 2020. Антхольц-Антерсельва (Италия). Мужчины. Спринт (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -665,32 +694,6 @@ Adobe Zii - это небольшая и замечательная утилит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A04DF4A5B4FCFB1E0662A3E6FF0FD2306816DEEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360756   (959177) от 16.02.2020
-
-Format Factory 5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Format Factory - многофункциональный конвертер различных файлов мультимедиа. Имеет ряд дополнительных функций, превращающих FormatFactory в универсальный инструмент для работы с мультимедийными файлами разных форматов. Поддерживается конвертация популярных видеоформатов в MP4, 3GP, MPG, AVI, WMV, FLV, SWF, а также конвертация аудиоформатов в MP3, WMA, MMF, AMR, OGG, (   Читать дальше...   )Язык интерфейса: Русский/Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEE221E78084BA945B037520BD88F7D7EF5594C
 ```
 
 https://mybot314.ru/tekegram_catalog/

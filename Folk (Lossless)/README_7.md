@@ -1,3 +1,32 @@
+###  Публикация: 1305638   (556132) от 01.06.2019
+
+Kacey Musgraves - Golden Hour (2018) [FLAC|Lossless|tracks] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Slow Burn  (4:06)
+02 - Lonely Weekend  (3:45)
+03 - Butterflies  (3:39)
+04 - Oh, What A World  (4:00)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812B037988A89D19AFA02A7ABD57B7914D535A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306342   (555681) от 04.06.2019
 
 Spencer Lewis - Riffs on a Broad Reach (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Instrumental>
@@ -737,35 +766,6 @@ Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A95A9BA77FD2752CA18B15FAE2508AC81FF257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244291   (484104) от 31.08.2018
-
-Kevin Crawford - Carrying the Tune (2012) [FLAC|Lossless|tracks + .cue] <Traditional Folk, Irish Traditional>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Clare Connection (reels): McHugh’s / Michael Murphy’s / Humours of Tullycrine (3:17)
- 02. 2 Day's (slip jigs): Lá Ollámh / Lucky Lucky Day (4:03)
- 03. Paddy Sean Nancy's (reels): Autumn Apples / Cormac O’Lunny’s / Paddy Sean Nancy’s (3:46)
- 04. Phil & Rory's (waltz's): Flatwater Fran / Mrs Jean Campbell BSC (4:07)(   Читать дальше...   )Жанр: Traditional Folk, Irish TraditionalПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AE47314DB865EB6C6C190DEEB66BEC9D420D26
 ```
 
 https://mybot314.ru/tekegram_catalog/

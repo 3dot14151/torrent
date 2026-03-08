@@ -1,3 +1,61 @@
+###  Публикация: 1303361   (572878) от 21.05.2019
+
+VA - Sirup Music Ibiza (2019) [MP3|320 Kbps] <House, Electro House, Techno, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calippo – Never Really Liked You (Original Club Mix) (6:01)
+02. Xenia Ghali – Dopamine (Original Club Mix) (4:54)
+03. Gil Glaze – How We Do (Original Club Mix) (4:40)
+04. Gino G & CATALI – Cold Fire feat. CATALI (Original Club Mix) (3:30)(   Читать дальше...   )Жанр: House, Electro House, Techno, Tech HouseПродолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464040C14BD5453C385F83753A2A5D7E6801BA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303576   (572848) от 21.05.2019
+
+VA - Sweet Lounge Session Vol 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titron - Mali (Original Mix) 3:28
+02. Krystian Shek - Coming Back Soon (Original Mix) 3:20
+03. Xemplify - I Have A Dream (Original Mix) 5:49
+04. Monodeluxe - Steel Vibes (Original Mix) 4:21(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B045AB944594C5A78F02C6B6E92D5A2D8FB49D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043464   (572830) от 16.08.2016
 
 VA - Ultimate Workout Music: Bigroom Hits (2016) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic>
@@ -694,64 +752,6 @@ VA - Best Sound of Chill & Lounge 2019 (33 Chillout Downbeat Songs with Ibiza Ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA71AD656E4E261F1CF875D73B232A003DF87410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043713   (570804) от 17.08.2016
-
-VA - Fckng Serious (One Year) (2016) [MP3|320 Kbps] <Techno, Minimal Techno, Tech House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boris Brejcha, Deniz Bul - R U Fckng Serious (07:47)
-02. Boris Brejcha, Ann Clue - Roadtrip (08:14)
-03. Ann Clue - Rumbling Conversation (07:30)
-04. Boris Brejcha - I Am The Joker (08:18)(   Читать дальше...   )Жанр: Techno, Minimal Techno, Tech HouseПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC81AC08999B9FDDFA07FF32B45E2D82BDFF1DB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151498   (570742) от 20.07.2017
-
-VA - Voice Of Suanda Vol.4 (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lucid Blue - Eyes Wide Open (Original Mix)  8:36
-02.  Bogdan Vix & Lucid Blue - I Am Now (Mhammed El Alami Extended Remix)  6:41
-03.  Boostereo & Lucid Blue - Rise To Fall (Original Mix)  4:02
-04.  Eximinds & Lucid Blue - A Higher Love (Original Mix)  5:33(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2664595479E5D96086FED7ABADB8A6E5D300B571
 ```
 
 https://mybot314.ru/tekegram_catalog/

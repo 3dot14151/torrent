@@ -1,3 +1,38 @@
+###  Публикация: 607621   (994221) от 24.01.2013
+
+Postmortem - Bloodground Messiah (2012) [MP3|217-302 kbps VBR]<Death Metal / Death'n'Roll>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Exordium [00:00:39]
+ 02 - Under Attack [00:03:07]
+ 03 - Down For The Count [00:03:52]
+ 04 - Santa Muerte [00:05:44]
+ 05 - Machinegun Preacher [00:03:56]
+ 06 - Calling The Undead [00:04:55]
+ 07 - Black Flame [00:05:12]
+ 08 - White Raven Black Sun [00:03:28]
+ 09 - Falling From Hell [00:03:24]
+ 10 - Drowned In Black [00:03:35](   Читать дальше...   )Жанр: Death Metal / Death'n'RollПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41478C31C5055188F929F72BD54A1416C6C2E1C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606757   (994220) от 24.01.2013
 
 Patti Smith Group - Wave (1979) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Post-Punk>
@@ -706,33 +741,6 @@ Advanced System Optimizer - это новая версия многофункц�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607837   (994029) от 24.01.2013
-
-Картинки - Клеточная Биология [JPG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клеточная Биология
-Автор сборки:  necromussРазрешение файлов: от 5700х3809 до 5700х3776Формат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C11B080AE9C5BC04AD44D369F36A03202FDB781
 ```
 
 https://mybot314.ru/tekegram_catalog/

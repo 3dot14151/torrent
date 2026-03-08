@@ -1,3 +1,177 @@
+###  Публикация: 1495223   (882369) от 11.09.2021
+
+VA - Music of the Night (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doja Cat - Streets (3:47)
+02. Color Me Badd - I Wanna Sex You Up - Single Mix (3:56)
+03. PARTYNEXTDOOR, Drake - Recognize (5:11)
+04. Pop Smoke, Lil Tjay - Mood Swings (3:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E2D38DC5D07D32A6CCB675B685C9AC603887D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495031   (882262) от 11.09.2021
+
+VA - Remix NNM 3 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yeah Yeah Yeahs - Heads Will Roll (Kubi Remix) (4:15)
+02. The Black Eyed Peas - Don39t Phunk With My Heart (Sulim Dj Chicago Extended Remix) (4:46)
+03. La Bouche - Sweet Dreams (Struzhkin Vitto Remix) (3:37)
+04. Oceana - Cry Cry (Layer Bootleg) (4:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18EA3E7E0530F1074E5637BFD6DB0F49421B5F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373173   (882181) от 05.04.2020
+
+VA - Spring Day: Chill House Selected (2020) [MP3|320 Kbps] <Chill House, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parvenu - Side Step
+02. Sebastian - Movement
+03. Beamy - Big Sur (Original Mix)
+04. Dreamweaver - Aurora Borealis(   Читать дальше...   )Жанр: Chill House, ChilloutПродолжительность: 03:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F72AB534850703A8ECC7567A55E28D9D9C43F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372769   (882148) от 05.04.2020
+
+VA - The Official UK Top 40 Singles Chart 03.04.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. SAINt JHN - Roses (Imanbek Remix)
+03. Dua Lipa - Physical
+04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30BE7FB8E6194A6FEA7C2A8BB1B4050B1BF411A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372826   (882128) от 05.04.2020
+
+VA - German Top 100 Single Charts 03.04.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zuna x Loredana - Du bist mein
+02. The Weeknd - Blinding Lights
+03. UFO361 - Allein sein
+04. Kontra K - Puste sie weg(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E860BA541196E93BAD3AD025C0DBF2D848EC9CF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372907   (882108) от 05.04.2020
+
+VA - Record Super Chart 631 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARIA - Bleu Chanel (NA-NO Remix) 2:43
+02. SAINt JHN - Roses (Imanbek Remix) 3:58
+03. NRD1 - All Good Things (Come To An End) 3:27
+04. Carla Morrison - Disfruto 3:57(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B60B05D2639C148069C0A96F6233102F96CA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373168   (882068) от 05.04.2020
 
 VA - Space Song: Synthspace Electronic (2020) [MP3|320 Kbps] <Synthspace, Synth Wave>
@@ -568,180 +742,6 @@ VA - Beatport Deep House: Sound Pack #346 (2021) [MP3|320 Kbps] <Deep House, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:340F15992927D126038049DEBE9C94F9FC17512D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495295   (880716) от 12.09.2021
-
-VA - Beatport Techno: Sound Pack #345 (2021) [MP3|320 Kbps] <Techno, Tech House, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880716.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Di Saronnojohnick - Instant Coffee
-002. Rondon - Lost In Da Pond Rd
-003. Pvlsx - Drvmvlator
-004. Sir Vee The Great - A Feeling(   Читать дальше...   )Жанр: Techno, Tech House, Minimal, ElectroПродолжительность: 11:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D080E318CF390C124C3F5FC349EFA3A5AB35C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996015   (880628) от 13.03.2016
-
-VA - Зайцев нет. Лучшие новинки марта (2016) [MP3|160-320 кб/с] <pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880628.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nicky Romero & Nile Rodgers – Future Funk
-2. Леонид Агутин – Отец
-3. Brazzaville – The Oceans of Ganymede
-4. Потап и Настя – Умамы(   Читать дальше...   )Жанр: popПродолжительность: 03:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6E55360538C5C2B6278B24BAC98BB3B8742B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495505   (880611) от 12.09.2021
-
-VA - Best Of 2021 - Herbst/Winter (2021) 2CD [MP3|320 Kbps] <Hip Hop, Latin, Dancehall, Post-Disco, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Take My Breath
-02. Felix Jaehn & Robin Schulz - I Got A Feeling (feat. Georgia Ku)
-03. Tinlicker & Helsloot - Because You Move Me
-04. Pascal Letoublon - Friendships (Lost My Love) (feat. Leony)(   Читать дальше...   )Жанр: Hip Hop, Latin, Dancehall, Post-Disco, SynthpopПродолжительность: 01:01:05 + 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C65071171754BAADD2965CC2ACAE608384FD04D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495332   (880610) от 12.09.2021
-
-VA - The Loveliness Disco (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Koulz & More - Feeling Blue
-002. Tina B - Jazzy Sensation
-003. Martello - All The Things
-004. Softmal & Llшlita - So Glad(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 11:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4D0DD51541DB8DF1D83D808DA9E323F97FAD31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495470   (880609) от 12.09.2021
-
-VA - Music News vol.131 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880609.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Xana - XXL (03:21)
- 002. Akon feat. Tariku Gankisi - Dishtagina (03:32)
- 003. Akris & Teddy - Жениться Не Хочу (02:04)
- 004. Alsina - Стерва (02:10)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0AF13235A3AD34CD3521E59643F362E4EDE70F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495561   (880605) от 12.09.2021
-
-VA - Cardio Music 2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Dobrel, Robbie Rosen - So Far Away - Remix (3:19)
-02. Topic, A7S, Lil Baby - Why Do You Lie To Me (2:51)
-03. Rasster, Matvey Emerson - Another Lonely Night (2:56)
-04. SI US PLAU, Veronica Bravo - Toxic (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D106B0A22CC4C89113B0C5F0920C9CEB5F15B676
 ```
 
 https://mybot314.ru/tekegram_catalog/

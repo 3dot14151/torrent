@@ -1,3 +1,32 @@
+###  Публикация: 1226536   (654770) от 21.05.2018
+
+Atom Music Audio - Mechanize, Vol. 1: Industrial Hybrid Rock Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 6th Gear [02:05]
+02. ReDesign [02:05]
+03. Kill Switch [02:25]
+04. Sprocket [02:36](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0BBA16CA8FDD41D2D312F90170F1DFE40BBC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140583   (654768) от 07.06.2017
 
 Indiajiva - Inner Sanctum (2017) [MP3|320 Kbps] <New Age>
@@ -725,35 +754,6 @@ Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B23E626A8FD16036EFBFCDFD207515D597DF63EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291804   (648641) от 28.03.2019
-
-Claire Hastings - Those Who Roam (2019) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lothian Hairst (04:44)
-02. Jack the Sailor (03:50)
-03. Seven Gypsies (03:33)
-04. Sailin's a Weary Life (04:16)(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C193470160CB672D17538CD63F671716DA69271
 ```
 
 https://mybot314.ru/tekegram_catalog/

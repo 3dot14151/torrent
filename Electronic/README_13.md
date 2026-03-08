@@ -1,3 +1,61 @@
+###  Публикация: 1436915   (1042774) от 02.01.2021
+
+Koan - Munchausen Trilemma (Side A.B) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Deep House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind (Koan Remix) (7:08)
+02. Commitment (Roeth & Grey Remix) (8:37)
+03. How Big Is a Blue Whale (8:46)
+04. Thawed Sounds (8:54)(   Читать дальше...   )Жанр: Electronic, Ambient, Deep House |Продолжительность: 01:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C8A9F4AFF422059C5426AFB7F7B1C6FC68D475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436867   (1042728) от 02.01.2021
+
+David Guetta - United at Home - Paris Edition from the Louvre (2020-12-31) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN ft. Lanie Gardner - Dreams
+02. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
+03. Jack Back - Performance
+04. David Guetta & MORTEN & Lovespeake vs. Fatboy Slim - Save My Life vs. Sunset (Bird Of Prey) (David Guetta & MORTEN Edit)Жанр: Electro House, Progressive HouseПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFEC223EC5D67EE2458F110FAA7F0A44EE70D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610063   (1042669) от 06.02.2023
 
 VA - Move Ibiza Radio Annual: Progressive House (2023) [MP3|320 Kbps] <House, Progressive House>
@@ -687,64 +745,6 @@ VA - NaHiM Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BD25B6F1F9A63AD65838596B967689A4BAC3AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610968   (1041173) от 12.02.2023
-
-VA - The Sound Of 2023 Mix 2: Seoul (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blufeld - Allusive Alive (Original Mix) [6:00]
-02. Gabriel Carminatti & Abel Mezzomo - Ignition (Original Mix) [4:19]
-03. Vladislav Maximov & 3-YA - Heartbeat (Original Mix) [3:52]
-04. DatabassЖанр: Trance, Progressive, ElectronicПродолжительность: 03:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECCF098231711DC2E5653386E7556FF42FE0884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438426   (1041155) от 08.01.2021
-
-VA - Markus Schulz - Global DJ Broadcast (Deeper Shades) (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massane - No Return
-02. Marsh & Phenoir featuring Mariel Beausejour - Don't Wait
-03. Beije - Standing Between the Worlds
-04. Markus Schulz & Adina Butar - In Search of Sunrise (Watercraft Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEE758610A12A7DAB5E3476BA49A44CCA183795
 ```
 
 https://mybot314.ru/tekegram_catalog/

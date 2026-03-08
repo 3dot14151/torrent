@@ -1,3 +1,61 @@
+###  Публикация: 1278593   (767730) от 27.01.2019
+
+Giorgos Zaras - 2 Albums (2013, 2017) [MP3|320 Kbps] <Electronic, New-Age, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insertion Of Thought (4:32)
+02. Mission (4:50)
+03. Trip Into The Body (10:03)
+04. Common Experience (4:34)(   Читать дальше...   )Жанр: Electronic, New-Age, AmbientПродолжительность: 01:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA681F82090318A34AD1E6534B5A2B3A0942249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393495   (767689) от 30.06.2020
+
+VA - Sport Music 2020 [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Snake, Justin Bieber - Let Me Love You (03:23)
+02. Alexander Oscar - Bad Intentions (Faustix Remix) (02:37)
+03. Vigiland, Tham Sway - Shots & Squats (02:51)
+04. LittGloss - L.A. Traffic (02:55)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49ACA535FEB914FC59D6E481229F0B0A28D1620B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278803   (767678) от 27.01.2019
 
 Royal Gigolos - California Dreamin' (2004) [FLAC|Lossless|tracks + .cue] <House, Tech House>
@@ -687,64 +745,6 @@ VA - Best Of Trance Vol.02 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ACF6C4CFF62515791BBD4F9C5973925227CE694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125946   (766393) от 17.04.2017
-
-VA - Transmission Express Vol.2 - Electro House (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  George Morillo - Bass Boobing  7:26
-02.  Cass & Mangan - Bible Belt (Cass & Mangan Play Early)  7:24
-03.  Daniel Forbes & DJ Mogwai - Underground Technology (Quinten de Rozario Tek Remix)  7:06
-04.  Adrian Davis - Burning Boy (Ztarbuc Remix)  6:54(   Читать дальше...   )Жанр: HouseПродолжительность: 02:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52F298DA4CA4BE5600F0CA9EBE4C99221DCC1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126248   (766383) от 17.04.2017
-
-VA - Vocal House Maniacs, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Express - Freedom (feat Sabrina Johnston - Midnight Express Dream mix) 05:46
-02. Robbie Act - I Want You 03:53
-03. Niko Deejay - Black Queen Black Machine (feat Janet Gray - Funky version - Piano Chic) 06:11
-04. Blade/Masquenada Family - Private Life (feat Noel McCalla - Frank Dancers Demosphere remix) 05:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD22F335462A39A5E18921EF1BDF20B0CBC49FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

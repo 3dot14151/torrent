@@ -1,3 +1,61 @@
+###  Публикация: 1277424   (785415) от 20.01.2019
+
+VA - Kamsutra Chillout Lounge - Spicy Sensual India Exotic Music (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Banghra Lounge Voices - Kamasutra In Heaven 5:09
+02. Bedroom Buddha - Mumbai Nights (Bar Del Mar Cafe Mix) 5:31
+03. Buddha Vibes - Summer Breeze In India (Goa Beach Extended Mix) 10:12
+04. Kamasutra Girl - Goodbye My Love (Sunset Bangarang Mix) 5:16(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FCADED7A561ED181AA0509FF33E0CA4918B0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204063   (785397) от 04.02.2018
+
+VA - Best of Lounge 2018: Special Selection Vol.1 [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christoph Spendel Trio - Unknown Events
+02. Karen Gibson Roc - Slow Down
+03. Marcus Koch - Forever
+04. UFO - Purple Sun Down(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E02DDF73FE874BC4DEBB48CFD47100CB86060EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203967   (785392) от 04.02.2018
 
 VA - Winter Sessions 2018 (Mixed by Milk & Sugar) (2018) [MP3|320 Kbps] <House, Afro House, Deep House>
@@ -687,64 +745,6 @@ VA - Psychedelic Awakening (Compiled by Ace Ventura) (2018) Future Music Records
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFC76AFC59CA162F466A224AEF95005FAFB0D753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204341   (784918) от 05.02.2018
-
-VA - Best Deep House Music 2017 Vol.4 (Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ferhat Sonsoz  -  Wilde Rose (Original Mix)  6:47
-02.  Aida & Berkhan Baser  -  All (Original Mix)  5:31
-03.  Mozkai & Pocohontas  -  Fall In Love (Original Mix)  5:26
-04.  Zara & DJ Nil  -  Dle Yaman (Original Mix)  5:38(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D2A9B35725B32762699C7153D7CE02DB86C8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204281   (784860) от 05.02.2018
-
-VA - A State Of Trance 850 (The Official Album) (Mixed by Armin van Buuren) (2018) 2CD [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784860.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Armin van Buuren  -  Be In The Moment (A State Of Trance 850 Anthem) (Extended Mix)  6:36
-02.  Purple Haze  -  Choir 1.0 (Extended Mix)  4:43
-03.  Ilan Bluestone feat. Giuseppe de Luca  -  Frozen Ground (Extended Mix)  6:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 03:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1AB2D2CC6F0B3BEB7C8535857724CDABDDFA3D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

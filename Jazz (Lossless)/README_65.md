@@ -1,3 +1,32 @@
+###  Публикация: 1009680   (808358) от 22.04.2016
+
+The Ray Bryant Trio - Little Susie (1959/1960) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Little Susie [04:50]
+ 02.By Myself [03:26]
+ 03.Blues For Norine [04:40]
+ 04.Moon-Faced, Starry-Eyed [03:31](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D25BE0BB6E352E69B6A3CD4381C300D808EB4CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198516   (808294) от 11.01.2018
 
 Miles Davis - Miles Davis Featuring John Coltrane (2005) 4CD [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -713,35 +742,6 @@ Jazz Crusaders featuring Wayne Henderson - Kick The Jazz (2008) [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A37B999E3CDF0A01793D26C450E41B59A9EB41A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120286   (803657) от 30.03.2017
-
-Gregory Fine (Григорий Файн) Trio - Happy Bluesday (1999) Boheme Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.There Is No Greater Love [06:13]
- 02.Waltz fo Natalie [04:55]
- 03.Hoe Deep Is The Ocean [06:46]
- 04.Georgia On My Mind [06:49](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B1A0172F252AC43117B7877C1E24148EEEF5F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

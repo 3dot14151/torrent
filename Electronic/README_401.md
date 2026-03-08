@@ -1,3 +1,61 @@
+###  Публикация: 1638282   (238987) от 09.06.2023
+
+Menschdefekt - Empty World (2020) [FLAC|Lossless|image + .cue] <EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empty World
+02. Cursed
+03. Freedom In Chains
+04. Guilty(   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFDE7E9E207251183E78DC848C080D3DCDF59830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636582   (238907) от 31.05.2023
+
+IzangoMa - Ngo Ma (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agenda Remember (3:02)
+02. Birds (Of A Feather) (5:39)
+03. City Lights (8:41)
+04. Le Nna Mfana (6:22)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F252DAC5D2AAA0A79EEE1F4CFB4EB60E9211ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440190   (238791) от 16.01.2021
 
 Rafael Osmo - Allure (2021) [MP3|320 Kbps] <Trance>
@@ -684,64 +742,6 @@ VA - Markus Schulz & Dan Thompson - Global DJ Broadcast (2021) [MP3|320 Kbps] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:759D698D61C24166552F5FDE024D12CEA349C643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445998   (237999) от 07.02.2021
-
-Gacha Bakradze - Obscure Languages (2021) Lapsus Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Electro>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indivisible (07:40)
- 02. Thank You For This Upload (04:31)
- 03. Driver (02:53)
- 04. Frame (05:46)(   Читать дальше...   )Жанр: Ambient, IDM, ElectroПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FE4AB5B35DFAD4E569A9EC3380A78C112335C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446294   (237910) от 08.02.2021
-
-Sangam - Until (2016) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignore (01:38)
- 02. Split Apart (03:04)
- 03. Tapestry of Taize (04:06)
- 04. Letting Go (01:20)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C220D582446426097A6B58A63502FC9EE918AFA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1094414   (927706) от 19.01.2017
-
-Magnum - The Valley Of Tears: The Ballads (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream About You (remastered) (from 2002 - Breath of Life)
-02. Back In Your Arms Again (newly re-recorded) (from 1994 - Rock Art)
-03. The Valley Of Tears (remixed, remastered) (from 2014 - Escape From the Shadow Garden)
-04. Broken Wheel (newly re-recorded) (from 1992 - Sleepwalking)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D4A70D444578FE5A2E60754231CFC6F2A52A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094958   (927700) от 19.01.2017
 
 Peter Cetera - One More Story (1988) [FLAC|Lossless|image + .cue] <Soft Rock>
@@ -745,6 +716,35 @@ Sweet & Lynch (Stryper, Dokken) - Only To Rise (2015) Japanese Edition [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B10A78EA56D3A42B107BE2AAC238E6E46497623E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365892   (927129) от 09.03.2020
+
+Kamelot - The Black Halo (2005) [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - March of Mephisto
+02 - When the Lights Are Down
+03 - The Haunting (Somewhere in Time)
+04 - Soul Society(   Читать дальше...   )Жанр: Progressive Metal, Melodic Power MetalПродолжительность: 01:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA85845DB96D0052F77165F9DE20796A34AEA90
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1041910   (580588) от 11.08.2016
+
+VA - Шансон на лето. Часть 7 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580588.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Игорь Тузов - Никогда Бродяга Не Сдавайся
+002. Попутчик - Ша
+003. Вячеслав Московкин - Зачем Ходили Хулиганы
+004. Богдан Галий - Одинокой Души Листопад(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706B26CEDFE9BB0503FCEE802BDB76702A44B1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041914   (580538) от 11.08.2016
+
+VA - Шансон на лето. Часть 8 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Светлана Аверочкина - Я Нежных Рук Твоих Коснусь
+002. Вадим Васильев - Свиристель
+003. Оксана Иванова - Фортуна
+004. Никита Хазановский - Я Посмеюсь Над Проходящими Годами(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C66405040367F2C42327A0187AFAF40AA5BD5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041965   (580532) от 11.08.2016
+
+VA - Beatport Top 100 Deep House July (2016) [MP3|320 Kbps] <Deep House, House, Electronica, Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580532.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marc Romboy, Stephan Bodzin - Atlas (Adriatique Remix)
+002. Golden Summer - In The City (Claptone Edit)
+003. Ferreck Dawn and Rene Amesz - Lord (Extended Mix)
+004. Audiojack - Turya (Original Mix)(   Читать дальше...   )Жанр: Deep House, House, Electronica, DiscoПродолжительность: 11:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E86D52903D5CC99C0934CE1FBADB4B0450F7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810197   (580503) от 08.08.2014
+
+VA - Alterportal HITS 14 Vol. 71 - July (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Stahli - Enemy
+02. Nomy - Chaos
+03. A Million Souls - Rise
+04. Eluveitie - The Call of The Mountains(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019768E56EF474846F78D92DEBF6C48884C2DCC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041969   (580474) от 11.08.2016
+
+VA - Beatport Top 100 Techno July (2016) [MP3|320 Kbps] <Techno, Minimal Techno, Electronica, Deep Techno, Detroit Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580474.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dubfire, Oliver Huntemann - Fuego (Julian Jeweil Remix)
+002. Dubfire, Oliver Huntemann - Terra (Joseph Capriati Remix)
+003. Cirez D - IN THE REDS (Original Mix)
+004. WhoMadeWho - Hi & Low (Konstantin Sibold Acid Mix)(   Читать дальше...   )Жанр: Techno, Minimal Techno, Electronica, Deep Techno, Detroit TechnoПродолжительность: 12:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE690373A2A931A0C40FCFE97FE3ED42B4542B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042090   (580472) от 11.08.2016
+
+VA - Drum & Bass - Gold Collection (2016) [MP3|320 Kbps] <Drill and Bass, Liquid Funk>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mailky - Big Up 05:19
+02. BrightLight - Space Bugs 04:29
+03. Mailky - The Night 04:19
+04. Xorgen - Memories 06:14(   Читать дальше...   )Жанр: Drill and Bass, Liquid FunkПродолжительность: 05:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379C18C832ACE7CF46539CBA423BCE3200DD682E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042052   (580422) от 11.08.2016
 
 VA - I Like An Indian (Indian Heart) (2016) [MP3|256-320 Kbps] <Native american, Ethnic, Folk>
@@ -583,177 +757,6 @@ VA - Hot Dance Summer 2015 Vol. 4 (2015) [MP3|320 кб/с]<Club , Dance , House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EC0D4F184CFDEAC1B46D851D20EA311F5B5EE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042118   (579605) от 12.08.2016
-
-VA - I Met Her in Ibiza (2016) [MP3|320 Kbps] <Club, Tech House, Funky, Tribal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Microwave Monkeys - I've Been Thinking About You 05:49
-02. Eddy Chrome - Island Of Love (Radio Edit) 03:54
-03. Mattei, Omich & Re-Tide - Soul Man 06:28
-04. Sounds Of Summer - Praise The Sun (Radio Version) 03:46(   Читать дальше...   )Жанр: Club, Tech House, Funky, TribalПродолжительность: 05:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6203CF39C3F12AD53CE5F2205D5B433C6F02EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042195   (579603) от 12.08.2016
-
-VA - Ultra Pleasure Music DJ (2016) [MP3|320 Kbps] <UK Garage Club, Funky, Jackin, Tech House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Octave One Feat Ann Saunderson - Just Dont Speak (Blue Sunset Vocal) 06:40
-02. Dj Sgz Feat Elliott Blackler - Love Vibration (Original Mix) 09:08
-03. Malikk - Favourite Addiction 05:06
-04. Doug Gomez Feat Ayaba - Disruptive (Tambortech Vocal) 07:41(   Читать дальше...   )Жанр: UK Garage Club, Funky, Jackin, Tech HouseПродолжительность: 07:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DB39D9BAB8AED873922C3B533374BFDB4D7AEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042299   (579601) от 12.08.2016
-
-VA - Music For Everyone - Progressive house Vol.5 (2016) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579601.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DEEZDLUX – Sunlight (Original Mix)
-2. Joshua Ollerton – Foreplay (Original Mix)
-3. The Madison – Overnight (Original Mix)
-4. Nigel Good feat. Sarah Clark - This Is You (Blood Groove & Kikis Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:328A5C4BA090129A8F11BEBDC8F7AA9E958A54B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042263   (579590) от 12.08.2016
-
-VA - Летняя хитмания №4 Best (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579590.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arseniya - Найти Тебя
-002. Jarina De Marco - Paranavigar
-003. T-Killah - Привет Как Дела
-004. The Avener & Kadebostany - Castle In The Snow(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9D54C1AAADE1AAB4116155E8B2C2399BA08294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360423   (579555) от 08.07.2011
-
-VA - Музыкотерапия. Повышение потенции (2011) [MP3|320 kbps]<Instrumental / Саксофон>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental / СаксофонПродолжительность: 06:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821A6F8225836AEAC19B9A05832507DA3F3D1563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042109   (579529) от 12.08.2016
-
-VA - Billboard Hot 100 Singles Chart 20.08.2016 (2016) [MP3|128-320 Kbps] <Pop, Folk, Hip-Hop, RnB>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579529.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sia Feat Sean Paul - Cheap Thrills
-002. Drake Feat Wizkid And Kyla - One Dance
-003. Calvin Harris Feat Rihanna - This Is What You Came For
-004. Justin Timberlake - Cant Stop The Feeling(   Читать дальше...   )Жанр: Pop, Folk, Hip-Hop, RnBПродолжительность: 06:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B75E21838CFC556274FB493FB50CC6BD74B9AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

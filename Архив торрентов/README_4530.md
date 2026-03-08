@@ -1,301 +1,3 @@
-###  Публикация: 467365   (96609) от 14.03.2012
-
-Black Light Discipline - 2 albums (2008, 2012) [MP3|320 кб/с]<Industrial Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96609.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. For All You Heavy Hearted (Feat.Proteus)
-2. Tides
-3. On The Stars
-4. Out Of This Place
-5. Words Have A Meaning
-6. Same Story,Different People
-7. Hey Boy,I Know
-8. Confession Equals Salvation
-9. The Song By Heart
-10. No Perfect Plan(   Читать дальше...   )2008, 2012Жанр: Industrial MetalПродолжительность: 01:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CE1C38EB2CB189CBDBFA854FD0C8A881BD902F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467134   (96603) от 14.03.2012
-
-Масакра / Масакра (2010) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96603.jpg" />
-</div>
-
-
-###  Подробнее
-
-В загадочное имение графа Владимира Пазуркевича прибывает Николай Казанцев — молодой человек, намеревающийся учиться изобразительному искусству в Италии, однако, не имея средств, рискнувший на авантюру! Представившись профессором, Казанцев старается убедительно делать вид, что изучает обширную библиотеку графа, параллельно успевая активно приударять за невестой Пазуркевича, красавицей Анной.
-
-Однако странные события, происходящие в имении, втягивают гостя в водоворот мистической и жуткой истории…Жанр: Ужасы, ТриллерРежиссер: Андрей КудиненкоАктеры: Андрей Назимов, Дмитрий Миллер, Мария Курденевич, Александр Колбышев, Вячеслав Павлють, Полина Сыркина, Сергей Власов, Оксана Лесная, Елена Одинцова, Геннадий Фомин, Филипп Филимонов, Александр Кашперов, Иван Мацкевич, Алексей Сенчило, Светлана Зеленковская, Сергей Журавель, Олег ГарбузПеревод: не требуетсяПродолжительность: 01:38:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467245   (96601) от 14.03.2012
-
-VA - Best of Club 2012 (01.03.2012) [MP3|320 кб/с]<Progressive House, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rafael Santti – Wireless (Original Mix)
- 02. Alex Rodriguez – Limit  (Original Mix)
- 03. Soul Playerz – Reload (Original Mix)
- 04. Diogo Menasso feat. Vuk Lazar – Dub Me (Vocal Mix)
- 05. Eric Destler, Franka – On Fire (Suplozz Remix)
- 06. Martyn Negro – Cataleya (Original Mix)
- 07. Cavin Viviano – S.Y.M.P.A. (Original Mix)
- 08. Alvita feat. Levy Pro – Baby (Upside Down) (Original Mix)
- 09. Drama – Life (ErXon & Spinne Remix)
- 10. Shena, Pedro Carrilho, DJ Xenon – 5 Elements (DJ Mause Remix)(   Читать дальше...   )01.03.2012Жанр: Progressive House, HouseПродолжительность: 01:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E433909D87916BC813A1AB19036876FAE18FDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467909   (96599) от 14.03.2012
-
-VA - White Night vol.1 (2012) [MP3|320 кб/с]<Electro-House, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sound Access - The Sunny Time (Slayback Edit Remix)
-02.Robbie Neji & A-Peace - Can't Get Enough (Matthieu Dorsay Remix)
-03.Freestyler - Cracks (Sickstrophe Remix)
-04.Axwell - I Found U (Locco Lovers remix)
-05.LMFAO - Sexy and I know it (Disco Reason Remix)
-06.Danny S & TAITO - Rainbow (Downlow'd Remix)
-07.Kristian Tuska - Final Dance (Original mix)
-08.LMFAO feat. Lauren Bennett, GoonRock - Party Rock Anthem (Downlow'd + MAD-SIN Bootleg Mix)
-09.Skream & Example - Shot Yourself In The Foot Again (Dj nErU Remix)
-10.Ian Carey - Keep On Rising (Dj nErU Remix)(   Читать дальше...   )2012Жанр: Electro-House, HouseПродолжительность: 01:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EFE1EE3434B69245629FED9DC985AA662A500B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467366   (96594) от 14.03.2012
-
-UCS - No Rules (2012) [MP3|~205 кб/с (V1)]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Universe Creation (7:21)
-02. My World (8:10)
-03. Artificia Intelligencel (7:43)
-04. Strange Dream (6:53)
-05. Dancing in The Air (7:48)
-06. Inception (6:41)
-07. The Mental Trip (7:09)
-08. Lsd (7:26)
-09. No Rules (5:27)
-10. Vortex (5:59)Жанр: Psychedelic / Full OnПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597178F996F0DA7DD7A60446E675DB56537C87F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466932   (96589) от 14.03.2012
-
-Adam Nitti - Liquid Blue (1995) [FLAC|Lossless]<Fusion>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song Of The City
-02. Detroit
-03. Liquid Blue
-04. Kung Fu
-05. Avenue E
-06. Grace
-07. Rebound (for Marcus)
-08. Crybaby
-09. Miss X1995Жанр: FusionПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467803   (96584) от 14.03.2012
-
-Журнал | Это вкусно! №1 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96584.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале «Это вкусно!» вы найдете изысканные блюда для любителей приготовить что-то необычное и быстрые рецепты для тех, кто не любит долго стоять у плиты, десерты для сладкоежек и низкокалорийные блюда для желающих сбросить несколько лишних килограммов.	”2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B72FE1C89769E35D107E6E997F5F9CF211EBD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467552   (96580) от 14.03.2012
-
-VA - 538 Dance Smash 2011 vol.1 (2011) [MP3|320 кб/с]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 martin solveig and dragonette - hello 03:11
-02 tim berg, oliver ingrosso and otto knows - itrack 03:06
-03 david guetta featuring rihanna - who's that chick 03:18
-04 duck sauce - barbra streisand 02:43
-05 roger sanchez and far east movement featuring kanobby 02:30
-06 eric prydz - niton (the reason) 03:02
-07 alex gaudino - i'm in love 02:46
-08 joshua khane - love don't cost a thing 03:34
-09 sander van doorn featuring carol lee - love is darkne 03:18
-10 dominik de le=n featuring burhan g - everything chang 03:00(   Читать дальше...   )2011Жанр: DanceПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C88FDCB9DB163D2B6A87A3E1C896001186F5652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467326   (96576) от 13.03.2012
-
-VA - Ibiza Chill Session (2011) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Persia Beatz - Princess Of Persia (Miracle mixxx) (04:52)
-02. Pascal Dubois - Beach Pearl On Ibiza (White Waves cut) (04:57)
-03. Skysurfer - Circling Elements (feat Lovay - Down By The Sea mix) (05:09)
-04. Kosta Rodrigez - Gale In The Waterglass (My Love) (feat Amy - Anthony Island remix) (04:41)
-05. Cafe Americaine - Bring Back Silence (Cool & Lazy Afternoon cut) (04:48)
-06. Jazz Connection - Tranquility Station (Smooth Evening cut) (04:29)
-07. Frank Borell - Why Do We Always Fall In Love (feat Oliver - No Question mix) (05:34)
-08. Thermodynamics - Visions Of Astronauts (Blue Planet mix) (06:37)
-09. Pascal Dubois - Jetset To LA (Arline mix) (04:21)
-10. Kid Coconutz - Cinematic Grooves (Afroelectric mix) (05:44)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5177113EF7049B3D7349D80261EBD12C251BAF1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466527   (96575) от 13.03.2012
 
 Девушка и волки / La jeune fille et les loups / The Maiden and the Wolves (2008) [720p] BDRip
@@ -813,6 +515,271 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B20DD6AF071DF65AD117AAC52605053EF850141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466139   (96489) от 12.03.2012
+
+Фрост против Никсона / Frost/Nixon (2008) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96489.jpg" />
+</div>
+
+
+###  Подробнее
+
+США, 1977 год. Спустя три года после своей бесславной отставки, последовавшей после Уотергейтского скандала, экс-президент США Ричард Никсон нарушил молчание и дал эксклюзивное интервью британскому телеведущему Дэвиду Фросту. Но исповедь одиозного политика, на которую все рассчитывали, внезапно вылилась в захватывающую интеллектуальную баталию, вошедшую в золотые анналы американской тележурналистики.Жанр: Драма, историяРежиссер: Рон ХовардАктеры: Фрэнк Ланджелла, Майкл Шин, Сэм Рокуэлл, Кевин Бейкон, Мэтью Макфейден, Оливер Плэтт, Ребекка Холл, Тоби Джонс, Энди Милдер, Кейт Дженнингс ГрантПеревод: ДублированныйПродолжительность: 02:01:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466693   (96487) от 12.03.2012
+
+Когда низвергнутся небеса / When the Sky Falls (2000) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96487.jpg" />
+</div>
+
+
+###  Подробнее
+
+К журналистке Шинед Гамильтон попадает сенсационный материал о преступных связях «отцов города» с торговлей наркотиками и мафией: известный грабитель банков Мартин Шагнесси рассказывает Шинед о коррупции и продажности властей Дублина. Но после публикации интервью, Шагнесси находят убитым, и Гамильтон решает провести собственное расследование. Судьба сводит ее с детективом Мэки — уставшим и озлобленным полицейским. И хотя у них общая цель, методы ее достижения диаметрально противоположны. Продираясь сквозь паутину лжи и преступных заговоров, Шинед и Мэки попадают в замкнутый круг зверских убийств, наркотиков и продажных полицейских. В конечном счете Гамильтон понимает, что это расследование может стоить ей жизни…Жанр: Драма, КриминалРежиссер: Джон МаккензиАктеры: Джоан Аллен, Патрик Бергин, Лиам Каннингэм, Кевин МакНэлли, Герард Мэнникс Флинн, Джейсон Бэрри, Пит Постлетуэйт, Дес МакАлир, Оуэн РоуПеревод: Двуголосый закадровыйПродолжительность: 01:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3562579860D0D8C2491EE8C5980F7AC6A9B86679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466697   (96485) от 12.03.2012
+
+Steve Howe - Time (2011) [FLAC|Lossless]<Progressive rock, Instrumental rock,>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bachianas Brasileiras No. 5 (3:58)
+02. King's Ransom (4:31)
+03. Cantata No. 140 (Wachet Auf) (3:58)
+04. Orange (2:44)
+05. Purification (3:52)
+06. Rose (3:41)
+07. The Explorer (5:09)
+08. Kindred Spirits (5:10)
+09. Concerto Grosso In D Minor Op. 3 No. 11 (5:25)
+10. The 3rd Of March (5:51)(   Читать дальше...   )2011Жанр: Progressive rock, Instrumental rockПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465329   (96484) от 12.03.2012
+
+На разрыв / Torn Apart (2004) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Вики Вестин получает в день рождения страшный «подарок«: кто-то похитил ее мужа и дочь, и она сама должна выбрать,
+кого из них оставят в живых! Не понимая причин злодеяния, Вики должна распутать адский клубок, чтобы спасти жизнь самых дорогих ей людей,
+имея в запасе всего 48 часов!Жанр: Триллер, ДрамаРежиссер: Стюарт АлександрАктёры: Тиа Каррере, Дэйл Мидкифф, Ричард Берджи, Ли Александр, Майкл Арата, Маркус Лайл Браун, Захари Кэнон, Энтони Майкл Фредерик...Перевод: Профессиональный двуголосый.Продолжительность: 01:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845077335C6C80895F88C1387F4BAF5188A717F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466586   (96480) от 12.03.2012
+
+Газета | Сеньор помидор №2 [февраль 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96480.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сеньор Помидор» - издание о выращивании томатов. Большинство статей выпуска посвящено органическому земледелию – это не дань моде, а необходимость восстановить естественное плодородие.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3046200C09F1A5E09747E800E549B760D4BA34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466857   (96478) от 12.03.2012
+
+SuperDетки - Бикини-мини (2007) [FLAC|Lossless]<Pop-Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мама, не ругайся [3:01]
+02. Бикини-мини (Version 2007) [3:00]
+03. Буду танцевать (саундтрек к к/ф 'Свободное плавание') [3:15]
+04. Лето без вопросов [3:20]
+05. Упрямый дождь (саундтрек к к/ф 'Свободное плавание') [3:42]
+06. Не такой уж он плохой [3:18]
+07. Ла-ла-ла-ла [3:53]
+08. Ну и что ж (дуэт с Блокбастером) [5:17]
+09. Почему ты такой [3:39]
+10. Вот такая ты подруга [3:34](   Читать дальше...   )2007Жанр: Pop-DanceПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466733   (96466) от 12.03.2012
+
+Kyau & Albert - 15 Years (The Album) (12.03.2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96466.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kyau & Albert - This Love (Original Mix) (6:37)
+ 2. Kyau & Albert - Made Of Sun (Stoneface & Terminal Remix) (7:16)
+ 3. Kyau & Albert - Are You Fine (Arty Remix) (6:48)
+ 4. Kyau & Albert - A Night Like This (Original Mix) (6:04)
+ 5. Kyau & Albert - 7Skies (Ellez Marinni Tech Mix) (7:00)
+ 6. Kyau & Albert - On The Way (Original Mix) (6:26)
+ 7. Kyau & Albert - Neo Love (Dennis Sheperd Remix) (6:19)
+ 8. Kyau & Albert - Once In A Life (Tritonal Remix) (6:51)
+ 9. Kyau & Albert - Always A Fool (2011 Rework) (6:48)
+ 10. Kyau & Albert & Marc Marberg - Megashira (Ronski Speed Remix) (6:16)(   Читать дальше...   )12.03.2012Жанр: TranceПродолжительность: 03:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB700FCC02B9235E17B5BE206AFE2DD326035F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466662   (96465) от 12.03.2012
+
+Ministry Of Sound - The Sound Of Dubstep 4 2CD (2012) [MP3|~224 кб/с ]<Dubstep , Grime>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96465.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01D3DB6275FEFAE535081F1A746685B07966A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466606   (96461) от 12.03.2012
+
+Призрачный мир / Ghost World (2001) DVD9
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96461.jpg" />
+</div>
+
+
+###  Подробнее
+
+В то время, как все благовоспитанные выпускники средней школы отправились в колледж, наши героини Энид и Ребекка решили, что учиться дальше — это скука смертная и бесполезная трата времени. Гораздо лучше отдохнуть в свое удовольствие; поглядеть, что к чему; ну и, конечно, как следует «перемыть косточки» всем несовершенным представителям рода человеческого. А их, к счастью, повсюду превеликое множество!
+
+Но вот однажды, «пулестойкое» сердце нашей язвительной и саркастичной Энид дрогнуло. Это произошло после встречи со скромным и нерешительным холостяком-неудачником, торгующим старыми виниловыми пластинками. Девушку начинает необъяснимым образом тянуть к этому одинокому и застенчивому человеку…Жанр: Драма, КомедияРежиссер: Терри ЦвигоффАктеры: Скарлетт Йоханссон, Тора Бирч, Стив Бушеми, Брэд Ренфро, Иллиана Даглас, Боб Бэлабан, Стэйси Трэвис, Дейв Шеридан, Том МакГоуэнПеревод: Многоголосый закадровыйЯзык субтитров: отсутствуютПродолжительность: 01:47:05
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

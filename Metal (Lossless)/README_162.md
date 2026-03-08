@@ -1,3 +1,61 @@
+###  Публикация: 1250857   (420201) от 30.09.2018
+
+VA - Blackend - The Black Metal Compilation Vol. 1 (1995) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420201.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Emperor - I Am the Black Wizards (6:13)
+02. Impaled Nazarene - Hate (5:52)
+03. Mayhem - Pagan Fears (6:22)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 02:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6FABE6E6FC22491DF2B41745C2D519EEE0AE5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065217   (419100) от 23.10.2016
+
+Amaranthe - Maximalism (2016) [FLAC|tracks|WEB-DL]<Modern Melodic Metal, Male and Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419100.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:10] 01. Maximize
+[03:22] 02. Boomerang
+[03:13] 03. That Song
+[03:05] 04. 21(   Читать дальше...   )Жанр: Modern Melodic Metal, Male and Female VocalПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC59894076F6AD49E00CBB64B152AD909BCED806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412453   (418358) от 29.09.2020
 
 Kataklysm - Unconquered (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Death Metal>
@@ -690,64 +748,6 @@ Dawnlight - Until The Dark Sun Rises (2019) [FLAC|Lossless|image + .cue] <Power 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:607E02169E68ED2F5642818A1553ACAB44FBA427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412825   (413836) от 01.10.2020
-
-Legion Of The Damned - Malevolent Rapture (2006) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Legion of the damned
-02 Death's head march
-03 Werewolf corpse
-04 Into the eye of the storm(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4270D32EEA8537091D14E037E518C2C74DF1E5E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412853   (413834) от 01.10.2020
-
-Fairyland - Osyrhianta (2020) [FLAC|Lossless|tracks + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Age Of Birth
-02. Across The Snow
-03. The Hidden Kingdom Of Eloran
-04. Eleandra(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7562F2480BD4B1BF22DD97BBAE75B5F7C4C4DAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

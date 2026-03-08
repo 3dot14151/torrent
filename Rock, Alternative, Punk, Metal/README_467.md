@@ -1,32 +1,3 @@
-###  Публикация: 1147851   (605751) от 04.07.2017
-
-Terrifier - Weapons of Thrash Destruction (2017) Japan [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reanimator
-02. Deceiver
-03. Nuclear Demolisher
-04. Violent Reprisal(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3131660B5284A7A0646B9B3654F695E8C1FB53AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147848   (605744) от 04.07.2017
 
 Roger Clyne And The Peacemakers - Native Heart (2017) [FLAC|Lossless|tracks + .cue] <Rock, Alternativecountry>
@@ -748,6 +719,35 @@ Riot Act - Closer To The Flame (2022) 2CD Digipack, Global Rock Records  [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2EAD4FAF7352F2B56F1C83C98EA857A19140528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546710   (604491) от 25.04.2022
+
+Destruction - Diabolical (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under The Spell
+02. Diabolical
+03. No Faith In Humanity
+04. Repent Your Sins(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77073F59F9784E386D6BE1FA3DEC8C70B803078F
 ```
 
 https://mybot314.ru/tekegram_catalog/

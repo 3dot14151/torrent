@@ -1,3 +1,61 @@
+###  Публикация: 1092246   (940247) от 11.01.2017
+
+VA - Music for Pregnant Women: Soft Relaxing Chill for those expecting a baby (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.I.B. - Games Rain - Chillout Mix
+02. Georgy Om - Ocean
+03. The Orange - Anywhere Anytime Is You - Chillout Mix
+04. Tony Sit - Expectation - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A1A4A36F7A8D446F4EBF6F8860D354DABBFE08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092305   (940246) от 11.01.2017
+
+VA - Nu-Discoteque (Finest Nudisco and House) (2017) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Alex Hook - Right Now (feat. Rene) (Original Mix) [05:14]
+02 Dmitrii G - Antidote (Original Mix) [06:05]
+03 Rony Breaker - Something More (feat. Che Cherry) (Deeplomatik Vocal Mix) [06:32]
+04 Jazzyfunk - I Wanna Know (feat. Rene) (Alex Hook Remix) [05:41](   Читать дальше...   )Жанр: HouseПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701CFC253F8CD82D9B64D8FB7C2F2B3AC79FA93A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984120   (940163) от 08.02.2016
 
 Jordan F - Timelines (2016) [MP3|320 кб/с] <Dreamwave, Synthwave, 80s>
@@ -689,64 +747,6 @@ VA - Chill On the Board (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:388ECCA7C01EE7829AC787C5DAEECD19B980F53D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092890   (937411) от 13.01.2017
-
-VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alkalino - Distant Future [6:42]
-02. Ritmo Du Vela - It's Good [6:00]
-03. Dany Cohiba - Just Be Real [6:24]
-04. Twism & B3rao - Don't Hold Back [6:46](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 03:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D51D6B0D2CF5D4DB3BFE0B11022352F767B0F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091039   (937332) от 13.01.2017
-
-VA - Colours II. Ice (selected by AstroPilot) (2016) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skytechnic - Immersion (7:40)
-02. Forgotten Future - Breakthrough (Chroma Mix) (6:49)
-03. Cabeiri - Plants Telling (7:53)
-04. Noya Project - Kaleidoscope (AstroPilot Edit) (7:21)(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 01:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB20D1DE05A229FE4900679357554F2B0E312ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

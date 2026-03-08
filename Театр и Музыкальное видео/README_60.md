@@ -1,3 +1,30 @@
+###  Публикация: 682869   (629995) от 23.07.2013
+
+Сборник клипов - VA - Various Music part. 44 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629995.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2 Chainz, Wiz Khalifa - We Own It (Fast & Furious) 1080p (2:37)
+2. AK Babe - We Don't CareЖанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF2926975F5E8188E470F7D477943713E5F9D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034797   (629931) от 15.07.2016
 
 Сборник клипов - Philizz "Tropical Summer" (2016) HDTV [1080p]
@@ -658,35 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61D2BFD89827D3058C186FF51006EE414DE6307D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683113   (623550) от 26.07.2013
-
-Dream Theater - Live At Budokan (2011) Blu-Ray [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт в токийском Ниппон Будокане 26 апреля 2004 года. Релиз Eagle Rock в Blu-ray формате 18 октября 2011 года.01. As I Am
- 02. This Dying Soul
- 03. Beyond This Life
- 04. Hollow Years(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC92EB7CE351BE40D17A92731813C7C7FED2D4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

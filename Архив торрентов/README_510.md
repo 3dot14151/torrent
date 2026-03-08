@@ -1,3 +1,29 @@
+###  Публикация: 1363392   (943748) от 27.02.2020
+
+Wondershare Filmora 9 v9.3.6.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9E70448B852EB045AD11B5B04661DC4900DBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363139   (943747) от 27.02.2020
 
 Apple MainStage 3.4.4 [Multi]
@@ -659,41 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:819C0C62EC25AB75B95CD1EC1738357981FEA274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 282351   (943578) от 15.01.2011
-
-VA - Trancemaster 7002 (14.01.2011) [MP3|320 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_943578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstract Vision & Elite Electronic - Horizons (Original Mix) (7:10)
-02. Tom Colontino - Palladium (Original Mix) (7:54)
-03. Andre Visior & Kay Stone - Sunrise (Ronski Speed Remix) (3:54)
-04. Michael Burian - Wacker Drive (Alex M.O.R.P.H. Burning Fire Remix) (8:14)
-05. Luca De Maas - Desert Nights (Original Mix) (7:05)
-06. Suncatcher - First Day (Original Mix) (9:03)
-07. Mike Danis - Cosmic Diary (Original Mix) (7:12)
-08. Astronomers - Moonstarers (Johan Ekman Mix) (8:25)
-09. Sied van Riel - Crossroads (Original Mix) (5:22)
-10. Blast88 & Gabriel Miller - Tasty & Nasty (Original Mix) (8:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4AB6989013071D8062885FF8E8A27B9E91562E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

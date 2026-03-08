@@ -1,3 +1,38 @@
+###  Публикация: 586472   (135570) от 22.12.2012
+
+Sviatoslav Richter in Prague [FLAC|Lossless]<Classical, Sonata, Fantasy, Variations, Etude>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: classical, pianoПродолжительность: 01:03:17
+
+Composer: Franz Schubert (1797-1828)
+Composer: Franz Liszt (1811-1886)
+Performer: Sviatoslav Richter - piano
+
+Tracklist:
+Piano Sonata No. 21 in B flat major, D. 960:
+01. Molto moderato    (25:50)
+02. Andante sostenuto    (09:57)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592448   (135191) от 23.12.2012
 
 Gergely Boganyi - Frederic Chopin: The Complete Nocturnes (2008) [DST 2.0 1bit/2822,4kHz |SACD-R] <Classical>
@@ -738,35 +773,6 @@ VA - Beautiful Piano Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59463212A816AF60950F96B533D54019A97A836B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693579   (121176) от 24.01.2024
-
-VA - The Best Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-02. Denis Shapovalov, Alexander Vershinin - 14 Romances, Op. 34 No. 14, Vocalise (Arr. for Cello and Piano) (5:26)
-03. Sergey Bryukhno - Sonnet in C Major (1:25)
-04. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB33BF7266D84E59C71022F47965061171D3DEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

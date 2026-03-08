@@ -1,3 +1,32 @@
+###  Публикация: 1822924   (104395) от 09.10.2025
+
+VA - Compilation Part 197 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Jumanov - Love’s a Game
+02 - Jumanov - Everything is Temporary
+03 - Jumanov - A Coincidence
+04 - Jumanov - Block Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899D43E662B82763A9D5C07B42A18338CDDC59A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822848   (104379) от 09.10.2025
 
 VA - Compilation Part 196 Electronic (2025) [MP3|320 Kbps] <Electronic>
@@ -782,41 +811,6 @@ VA - Points of Interest (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABCC7948F018442598E864A8FFACEA907D13CCEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481321   (99328) от 12.04.2012
-
-VA - Out Of Body (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orion Signs - I Believe In Other Earth 08:25
- 02. Aviron - Tonal (original mix) 07:08
- 03. Smoke Sign - Out Of Body (original mix) 07:41
- 04. Interactive Noise And Fabio And Moon - Coming Home Late 06:56
- 05. Elevated Mix - Humidity Gro 07:23
- 06. Principles Of Flight - Sputnik (White Russian edit) 07:44
- 07. Inner Peace - Nothing Really Dies 06:46
- 08. Rocky - Largetto (Gaudium remix) 07:45
- 09. Felucia - Fly In The Sand 08:40
- 10. Dimension X - Eyeless 11:30(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61545CA525958DE99FCAEB240036C82633874BEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

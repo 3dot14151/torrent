@@ -1,3 +1,61 @@
+###  Публикация: 1463732   (1020303) от 19.04.2021
+
+Soulya ID - Only One We're Need Is Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:43)
+02. Vampirella's Song (Remastered) (5:27)
+03. Everybody (Remastered) (5:19)
+04. When I'll See The Sea (Mix 2021) (4:25)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701955253C318DEEB5746066087F01407C99E73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463685   (1020294) от 19.04.2021
+
+Barbados Climax - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянская диско-группа во главе с продюсером - аранжировщиком и автором песен Джанкарло Тромбетти. Выпустили два этих альбома.01. California U.S.A. (8:25)
+02. Making Love With You (5:00)
+03. Samos (3:37)
+04. Las Vegas Climax (8:46)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEF793A0D9A56CD7AC6DEBFAF36F4C6B01979E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463485   (1020271) от 19.04.2021
 
 VA - Beat Unlimited (1994) [FLAC|Lossless|image + .cue] <Pop, Dance, Reggae-Pop, Euro-House, Euro-Dance>
@@ -684,64 +742,6 @@ Amy Shark - Cry Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:152A724D542523A60571BFB6E342638BDB71789A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466484   (1018431) от 30.04.2021
-
-Чёртово колесо инженера Ферриса - Тьматематика (2021) [MP3|320 Kbps] <Power Pop, Dance Punk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018431.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тьматематика
-2. Синяки и шишки
-3. Давай попробуем наоборот
-4. Девушка без девиаций(   Читать дальше...   )Жанр: Power Pop, Dance PunkПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46ADB37BE1EA3A360D764E014E307871C5A2B61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466503   (1018424) от 30.04.2021
-
-Modern Boots - Tell Me the Reason (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me the Reason You Said Goodbye (Extended Vocal Fantasy Mix) 6:19
-02. A Lonely Romance 6:22
-03. Boulevard of My Dreams (Extended Vocal Fantasy Mix) 7:42
-04. Tears of a Broken Heart (Extended Vocal Fantasy Mix) 5:37(   Читать дальше...   )Жанр: Italo-Disco, Synth-PopПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27F988110CAA8F55290F511269C34225254BE01
 ```
 
 https://mybot314.ru/tekegram_catalog/

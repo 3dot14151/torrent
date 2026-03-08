@@ -1,3 +1,61 @@
+###  Публикация: 1142084   (646723) от 12.06.2017
+
+VA - Balearic 3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Balearic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cantoma - Abando (Original Mix)  5:12
+02.  The Madrigal - Ride To The Moon (Original Mix)  3:58
+03.  Fuga Ronto - Daydreams (Original Mix)  6:21
+04.  Shy Layers - Black & White (Original Mix)  3:03(   Читать дальше...   )Жанр: Downtempo, Chillout, BalearicПродолжительность: 02:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768BCA7E4CA428684EE36E10775FD82F83A36F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227447   (646699) от 26.05.2018
+
+Klaus Schulze - Silhouettes (2018) SPV, Oblivion [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-School>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silhouettes (15:48)
+02. Der Lange Blick Zurück (22:15)
+03. Quae Simplex (21:47)
+04. Châteaux Faits De Vent (15:08)Жанр: Ambient, Berlin-SchoolПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECD7A57B02BC42E96B7AA3D6BE2F5D00FA3949D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292248   (646683) от 29.03.2019
 
 VA - Secret Lounge - Erotic Pleasure (2009) 3CD [FLAC|Lossless|image + .cue] <Easy Listening, Chillout, Lounge>
@@ -687,64 +745,6 @@ Argus - The Invisible Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7E64E2D2731EC2A08DF9A9E6B625F4D516D9139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142335   (644964) от 13.06.2017
-
-VA - My Fitness Week Thursday: Swimming Chillout Playlist (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivier Renoir - Water Games - Main
-02. Christophe Goze - Carpe Diem - Main
-03. Christophe Goze - Take a Breath - Main
-04. Giacomo Bondi - Under Different Suns(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49326D58748A8FD785279245FC719B0579A149ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227711   (644888) от 27.05.2018
-
-VA - Inner Light: Music For Meditation Vol.03 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masterio - Mountain (Original Mix) 8:04
-02. Andrew Riqueza - Pray (Original Mix) 3:05
-03. M.D. - Day After Tomorrow (Original Mix) 3:18
-04. R.I.B. - Reflection About The Sea (Original Mix) 4:33(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651F9B1C50453D409ED52E4601C5759221919801
 ```
 
 https://mybot314.ru/tekegram_catalog/

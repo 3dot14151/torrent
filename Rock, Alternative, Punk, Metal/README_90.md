@@ -1,32 +1,3 @@
-###  Публикация: 1460641   (1022438) от 06.04.2021
-
-Bloodshed Walhalla - Second Chapter (2021) [FLAC|Lossless|WEB-DL|tracks] <Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reaper (28:20)
-02. Hermodr (16:06)
-03. The Prey (15:29)
-04. After the End (17:55)Жанр: Viking MetalПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26541DFA165F31CF59B2447A6D24FF8722EECFF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460715   (1022427) от 06.04.2021
 
 Вячеслав Бутусов & Орден Славы - Гудбай, Америка! (2021) Single [MP3|320 Kbps] <Rock, Electronic>
@@ -741,6 +712,35 @@ Night Spirit - The Spark (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2985F4F522A83917C8D1EC0D4F2B97D249A69365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461275   (1021969) от 09.04.2021
+
+Perfect Storm - No Air (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strength (08:21)
+02. The Search (06:58)
+03. Sun For Life (08:11)
+04. Hope (07:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CB0C999403D623EBFA425108C20633496B5526
 ```
 
 https://mybot314.ru/tekegram_catalog/

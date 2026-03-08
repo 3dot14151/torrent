@@ -1,32 +1,3 @@
-###  Публикация: 989182   (917387) от 22.02.2016
-
-Hell Theater - Reincarnation of Evil (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dark Shadows Room
-02. Lady of the Candles
-03. The Room of a Million Voices
-04. Smell of Blood(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D327B9F01DBC6C8639FFD6F3F5A1733601F030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989187   (917379) от 22.02.2016
 
 Hyborian Steel - Blood Steel And Glory (2012) [FLAC|Lossless|image + .cue] <Epic Heavy Metal>
@@ -746,6 +717,35 @@ National Suicide - Anotheround (2016) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97A8329DCE06C16D88AC42A6D95732A1C13E1306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097135   (915971) от 26.01.2017
+
+Kreator - Live Antichrist (2017) Metal Hammer Promo CD [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enemy Of God (05:48)
+02. Phobia (03:26)
+03. Pleasure To Kill (04:17)
+04. Mars Mantra (01:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE91CB5D911821C8B2B6C39E063624CA80198E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

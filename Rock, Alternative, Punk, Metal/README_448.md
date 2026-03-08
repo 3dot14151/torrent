@@ -1,32 +1,3 @@
-###  Публикация: 909771   (626280) от 18.06.2015
-
-Scream Silence - Heartburnt (2015) [MP3|320 кб/с]<Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born With Blood On My Hands 06:10
-02. Art Remains 03:35
-03. The Seventh Sorrow 06:03
-04. We Can Do No Wrong 04:22(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8E3C74A0EB2CFC8E9833A6AABA76E78D1BECFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294692   (626264) от 09.04.2019
 
 The Coral - Move Through the Dawn (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
@@ -745,6 +716,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0B4972D1BDE578BF4B42D9E942F2A68C74FFF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909604   (625291) от 18.06.2015
+
+Алиса - Лучшее за 30 лет. Часть 1 (2014) 2CD [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тоталитарный рэп
+02. Дождь и я
+03. Мы держим путь в сторону леса
+04. Воздух(   Читать дальше...   )Жанр: RockПродолжительность: 02:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B71B70C1C0F981528041F069158AF7119219560
 ```
 
 https://mybot314.ru/tekegram_catalog/

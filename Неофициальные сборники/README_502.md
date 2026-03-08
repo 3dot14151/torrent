@@ -1,3 +1,177 @@
+###  Публикация: 1075316   (320991) от 22.11.2016
+
+VA - Музыкальные новинки mp3. Сборник 3 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320991.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Анжелика Варум & Игорь Крутой - Опоздавшая Любовь 4:17
+002.Danny Avila Feat. Haliene - High 3:10
+003.Владимир Винс - Хватит 3:51
+004.Franky - После Тебя 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3933990FFC7069347D7D2305D619EC5E8A64FF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075481   (320433) от 22.11.2016
+
+VA - The Best World Ballads - 31 (2016) [MP3|320 Kbps] <Pop, Rock, Blues, Rap, R'n'B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Bea Miller-Yes Girl 3:51
+002 Gavin DeGraw-Something Worth Saving 3:38
+003 Charli XCX-Set Me Free(Feel My Pain) 3:53
+004 The Weeknd Feat.Daft Punk-Starboy 3:50(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 15:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB7D20673C6F1DBD6B9C95B4689213CF76BEC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331390   (320222) от 17.10.2019
+
+VA - Жизнь и немного любви из русского рока-2 (2019) [MP3|320 Kbps] <Русский рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320222.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ДВУРЕЧЬЕ - Ветер в облаках.
+002. Квартет им. Достоевского - Наши глаза.
+003. Fort Royal - Не впускай зверя в дверь.
+004. Мегаполис и Ёлка - Посвящение Деннису Силку.(   Читать дальше...   )Жанр: Русский рокПродолжительность: 09:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E8E8A329CB8DF961B0B231092D684E719C9A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421186   (319694) от 04.11.2020
+
+VA - Happy Holidays (2020) [MP3|320 Kbps] <Christmas, Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Thank God It's Christmas (2011 Remaster)
+02. John Lennon,Yoko Ono - Happy Xmas (War Is Over) (Ultimate Mix)
+03. Sam Smith - Have Yourself A Merry Little Christmas
+04. Katy Perry - Cozy Little Christmas(   Читать дальше...   )Жанр: Christmas, Pop, RockПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39CEFBEB7580A36B60A3B703117CFED5FCB0FD6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959133   (319489) от 23.11.2015
+
+VA - White Chill-Out Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Bailey - Kafan - Radio Edit
+02. Bastian Clark - Take a Break - Original Mix
+03. Chuck Mertens - Moshy - Original Mix
+04. Alec Gonzalez - Lia - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA86EFC93FB61EAF6CB5FFE2296F51FEECB54C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959159   (319487) от 23.11.2015
+
+VA - Bermuda Island: Uplifting Vocal Trance (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319487.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jennifer Rene, Somna - Back to Life (Original Mix) 07:01
+002. Ana Criado - Arms Of Surrender - Original 06:13
+003. Special - Express To Callisto (Stella Project Remix) 09:24
+004. Stephane Badey & DJ T.h. With Eva Kade - Checkmate (Denis Sender Radio Edit) 03:23(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 09:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FBA142369DBA2A31835673039F501EF1F32B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959069   (319479) от 23.11.2015
 
 VA - After Work Lounge Vol 3   (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -570,180 +744,6 @@ VA - Шансон Осень (2019) [MP3|320 Kbps] <Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CEFE69DA31AFF5BB26040E32BF83DC02A425252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075641   (318049) от 23.11.2016
-
-VA - Музыка На Новогодний Корпоратив От Зайцев.Нет (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burak Yeter Ft. Danelle Sandoval - Tuesday 4:06
-02. Серебро - Мало Тебя 3:44
-03. Самоцветы - Все, Что В Жизни Есть У Меня (DJ Nejtrino & DJ Baur Remix) 4:36
-04. Пьер Нарцисс & Алеся Боярских - Новый Год 3:03(   Читать дальше...   )Жанр: PopПродолжительность: 03:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8D88660FDB0FF4CE096274EF9F17FC2F582697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844212   (318036) от 25.11.2014
-
-VA - 100 Hits Total Rock (2014) 5 CD (2014) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318036.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Disc:
-01 Meat Loaf - Bat Out of Hell (4:49)
-02 Alice Cooper - Poison (4:30)
-03 Boston - More Than a Feeling (3:29)(   Читать дальше...   )Жанр: RockПродолжительность: 06:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D1A24B592B67B6D2ABF8A2A5DAB53707B8A1B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332019   (317914) от 18.10.2019
-
-VA - Top50: Tracks Deep House Ver.13 (2019) [MP3|320 Kbps] <House, Deep House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betoko & Haze-M - Raver Ever (Original Mix) 7:30
-02. NHAR - Hohman Transfer (Original Mix) 7:34
-03. Martin Eyerer & Craig Walker - Confident Journey (Gorge Remix) 7:04
-04. NTFO - Blissed Out (Original Mix) 7:11(   Читать дальше...   )Жанр: House, Deep House, Progressive House, Melodic HouseПродолжительность: 05:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA97D5C3CE5B5E57B39714D3F09436765E4C36C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332024   (317912) от 18.10.2019
-
-VA - Top50: Tracks Deep House Ver.14 (2019) [MP3|320 Kbps] <House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fejka feat. Marie Angerer - Reunion (Original Mix) 4:56
-02. Nora En Pure - Birthright (Marius Drescher Remix) 7:19
-03. ATB - 9PM (Till I Come) (Anton Liss & Andrew Rai Vip Club Mix) 4:45
-04. DJ JEDY feat Александр Юрченко - 3 сентября (М.Шуфутинский ) (Deep Cover) 3:42(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 04:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BE1E8C8FE153D09744D001B6A3CEC336569048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332014   (317910) от 18.10.2019
-
-VA - Dance Hits Collection 90s Vol.7 (2019) [MP3|320 Kbps] <Eurodance, Euro-House, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317910.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Double 99 - Ripgroove (Radio Edit) 3:20
-002. Mark 'Oh - Love Song (Original Mix) 5:10
-003. DJ Bobo - Take Control (Club Dance Mix) 5:58
-004. Scatman John - Only You (Album Version) 3:44(   Читать дальше...   )Жанр: Eurodance, Euro-House, Pop, DanceПродолжительность: 07:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67A99AE36851460BFA4BD1E10D2BC8D57A179F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421487   (317659) от 05.11.2020
-
-VA - Summer Time: Hot Trance Session (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317659.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dave Steward - The Rabbit Hole
-002. Above & Beyond - Long Way From Home
-003. Chris Lyf - Alive (Original Mix)
-004. Matthias Bishop - Mystic Planet (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 08:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDC4727FEE7AD63F0E94C371BF75C57F67930D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

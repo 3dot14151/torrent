@@ -1,3 +1,32 @@
+###  Публикация: 908441   (634254) от 14.06.2015
+
+Yves Rousseau 4tet - Akasha (2015) [FLAC|Lossless|WEB-DL]<Contemporary Jazz, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'eau, Pt. 1 [06:41]
+02. L'eau, Pt. 2 [04:43]
+03. L'eau, Pt. 3 [04:03]
+04. La terre [06:31](   Читать дальше...   )Жанр: Contemporary Jazz, Modern CreativeПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D01B4024531A3E21311591C43F5B5564E68852B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908446   (634181) от 14.06.2015
 
 Elina Duni - Muza E Zeze (2015) [FLAC|Lossless|WEB-DL]<Contemporary Jazz, Vocal Jazz, Balkan Jazz>
@@ -716,35 +745,6 @@ Peggy Lee - A Portrait of Peggy Lee 1941-1942 (1986) Sony [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8FD3F75067B00AF78C358FFAE34CF6EE04842C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229163   (630087) от 04.06.2018
-
-Chet Baker & Gerry Mulligan - Original Quartet 1952, 1953 (2018) 2CD, Jazz Images [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630087.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Bernie'S Tune [2:53]
-02. Lullaby Of The Leaves [3:15]
-03. Utter Chaos #1 [0:35](   Читать дальше...   )Жанр: CoolПродолжительность: 02:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D575A6E0F65E9443491D393F0D1CF2B159E09946
 ```
 
 https://mybot314.ru/tekegram_catalog/

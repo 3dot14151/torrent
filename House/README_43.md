@@ -1,3 +1,32 @@
+###  Публикация: 1309708   (549604) от 21.06.2019
+
+VA - Chill House Ibiza 2019 (2019) [MP3|320 Kbps] <House, Chill House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adonai - Say (Edit Mix)
+02. Guilhem Mariposa & Idiocrate - Dawn (Original Mix)
+03. Takticals feat. Simply Oktaver - Just For One Day (Beach Mix)
+04. Ben Brummitt - A Story To Be Told (Edit Mix)(   Читать дальше...   )Жанр: House, Chill House, Deep HouseПродолжительность: 02:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A50C4D714B593A02F92900F98CC4E85987532E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310012   (548841) от 22.06.2019
 
 VA - Airbeat One Dance Festival (2019) [MP3|320 Kbps] <House, Trance, Electronic, Dance>
@@ -709,35 +738,6 @@ VA - Oh Yes This Is Summer 2017 Fantastic Holiday [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD0C50DF3680C278F37D42C6E0ABF5BB17B5C82C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050671   (536731) от 09.09.2016
-
-VA - Disco Dance Italy (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cazintel - Over The Sea (Radio Version) 03:55
-02. Ivan Herb - Larga Vida En Vivo 03:07
-03. Jane Doe - Knight Rider (Ray Livingstone Rework) 04:26
-04. Jimmy & Wenzel - Dreamer 04:56(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58EA0E067587C8241F27862FB08554664B7CDD2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

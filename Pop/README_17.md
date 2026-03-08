@@ -1,3 +1,61 @@
+###  Публикация: 1453391   (1027062) от 10.03.2021
+
+Selena Gomez - Revelacion (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Una Vez 2:36
+02. Buscando Amor 3:08
+03. Baila Conmigo (With Rauw Alejandro) 3:06
+04. Damelo To' (Feat. Myke Towers) 3:04(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF94161186DB48C7DF9E8A8ED4B8E19A1D7003BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453409   (1027045) от 10.03.2021
+
+Imperio - Best of Imperio (2020) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Dreampop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amor Infinitus (Album Version) (4:55)
+02. Veni Vidi Vici (Radio Mix) (3:52)
+03. Cyberdream (Cyber Video Mix) (4:54)
+04. Never Go Away (4:28)(   Читать дальше...   )Жанр: Eurodance, DreampopПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0BA31FA4240A07A3F1171AF80A094283D98B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453450   (1026926) от 11.03.2021
 
 Michael Bedford - When Angels Talk (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo-Disco, Euro-Disco>
@@ -684,64 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DBDE3C5BC53B2D0C3CD48194341039DFA914CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455813   (1025484) от 20.03.2021
-
-Umberto Tozzi – Seine Grossten Erfolge (1990) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ti Amo
-02. Eva
-03. Notte Rosa
-04. Tu(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFDD15A3D9A7928B4EC0FFD63E493CA42D432D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455921   (1025437) от 20.03.2021
-
-Мари Краймбрери - Нас узнает весь мир (Part 1) (2021) [FLAC|Lossless|WEB-DL|tracks] <Europop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты меня не забудешь (2:50)
- 02. Иди танцуй (2:52)
- 03. Океан (3:28)
- 04. Холостяк (3:18)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E0F310BD470D3716377DD8DE28F3A39B4F586B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1020912   (743797) от 27.05.2016
+
+VA - 70s Disco Classics Reloaded (2016) [MP3|320 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Booty Jocks - Night Fever [5:24]
+02. The Booty Jocks - You Should Be Dancing (Steve Cypress Remix Edit) (feat. Miloud & El D) [3:39]
+03. Leemar Project - Queen of Chinatown (feat. Lola Lee) [3:43]
+04. Natalie Grant - I Will Survive (Radio Mix) [3:32](   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79442B267C430F292B902EF1E6E41B6C836FC72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020896   (743709) от 27.05.2016
+
+VA - Танцевальный Рай: Sport & Fitness Vol 3 (2016) [MP3|320 кб/с] <Urban Pop & Dance, UK Garage, Tropical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristian Marchi - Keep Calm & Twerk On (Cristian Marchi Perfect Edit) 03:12
+02. Timmy Trumpet - Freaks (Radio Edit) 02:56
+03. Jt Crown - Streets Of Cairo (Arnold Palmer Remix Edit) 02:43
+04. Chris Wittig - Egypt (Radio Edit) 03:50(   Читать дальше...   )Жанр: Urban Pop & Dance, UK Garage, TropicalПродолжительность: 03:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA3FED4614D32E6F5BE51565A96935B702561EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524435   (743635) от 16.01.2022
+
+VA - The Official UK Top 100 Singles Chart 14.01.2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. GAYLE - abcdefu
+002. Adele - Easy On Me
+003. Carolina Gaitán - La Gaita - We Don't Talk About Bruno
+004. Lauren Spencer-Smith - Fingers Crossed(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B198D6018E5C8AAB8673861FDE5BAFDDACB7B653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524581   (743631) от 16.01.2022
+
+VA - Music News vol.160 (2022) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743631.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. La La Life - My First Kiss (03:05)
+ 002. Alex Hosking & Majestic - Need Your Love (Jonasu Remix) (02:14)
+ 003. Alice Cooper - $1000 High Heel Shoes (03:25)
+ 004. Alice Cooper - Drunk And In Love (03:50)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 13:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9746A97A313A53226E86FEAEF182FCBBDC7F6E26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282605   (743617) от 13.02.2019
 
 VA - Billboard Hot 100 Singles Chart 16.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
@@ -630,128 +746,6 @@ Part 1 (Discoteka)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D85EF43DA40C42042C145C4697F98C529FB228C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527640   (736409) от 29.01.2022
-
-VA - Music News vol.162 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736409.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Гузель Хасанова - Как Ты Там (02:57)
- 002. Al Rakhim feat. Dialect - Рожден Быть Выше (03:38)
- 003. Ally Brooke - Por Ti (03:00)
- 004. Andy Grammer - Joy (03:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD31AD20A4A1E03365DF5EAD65D6A64295A9D822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527637   (736387) от 29.01.2022
-
-VA - ЕвроХит Топ 40 Europa Plus 28.01.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil Nas X & Jack Harlow - Industry Baby (3:32)
-02. Calum Scott & Lost Frequencies - Where Are You Now (2:28)
-03. Masked Wolf & Tom Walker - Something Beautiful (3:07)
-04. Ed Sheeran - Bad Habits (3:52)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E937A87D7CAEDDE63AE9F6512614EA3D038D3CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787860   (736315) от 18.05.2014
-
-DJ P@F - Made In ZP City (2011) [MP3|256 кб/с]<Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prodigy ( DJ P@F mix) - Rat Poison & Girls
-02. Timeriders & Ray Clarke & Twilight ( DJ P@F mix) - Future Generation & Electronic & Can U Feel Da Bass
-03. Eminem & Linkin Park (DJ P@F) - The Real Slim Shady & In The End
-04. Global Deejays - The Sound Of San Francisco (DJ P@F remix)
-05. P.O.D & The Crystal Method.( DJ P@F mix) - Boom (cut version)
-06. D12 & Linkin Park & X-ecutioners ( DJ P@F) - Blow My Buzz & It's Goin' Down (Exclusive Bonus Treack)
-07. 50 Cent & Linkin Park (DJ P@F mix) - Hustlers Ambition & One Step Closer (Extreme mix)
-08. Freestyle Project (DJ P@F mix) - Los Angeles Lakers (MUSIC DONT STOP) (NBA version)
-09. Freestyle Project (DJ P@F mix) - All Stars (ELECTRIC REALITY) (NBA version)
-10. Fatboy Slim (DJ P@F mix) - Ya Mama (Counter-Strike 1.6 version)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C06BBB7F977290E858C85296822247504D2D3702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398297   (736195) от 25.07.2020
-
-VA - The Official UK Top 40 Singles Chart 24.07.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry Feat MNEK - Head & Heart
-02. Jawsh 685 - Savage Love (Laxed - Siren Beat)
-03. DaBaby Feat Roddy Ricch - ROCKSTAR
-04. Lady Gaga Feat Ariana Grande - Rain On Me(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D96B8C60F5F429FF86D5A3C97C20F0FABB412E
 ```
 
 https://mybot314.ru/tekegram_catalog/

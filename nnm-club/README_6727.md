@@ -1,25 +1,287 @@
-###  Публикация: 1205455   (783502) от 10.02.2018
+###  Публикация: 1388514   (783564) от 13.06.2020
 
-Jay Sewall - Payin' My Dues: 50 Years Of Blues (2018) [MP3|320 Kbps] <Acoustic Blues, Harmonica Blues>
+Чёрная лестница (2019) WEBRip [H.264] (сезон 1, серии 1-20 из 20)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вадим Тельцов переезжает в столицу, где получает должность оперативника уголовного розыска и «однушку» в спальном районе Москвы. Однажды одно вроде бы стандартное дело переворачивает жизнь циничного опера с ног на голову: расследование убийства бизнесмена Юсова знакомит Тельцова с молодым руфером Максом, сыном убитого. Коллеги Тельцова подозревают Макса в убийстве (   Читать дальше...   )Производство: Россия | «АН-фильм»Жанр: Драма, триллерРежиссер: Сахат ДурсуновАктеры: Алексей Матошин, Алексей Ушаков, Марина Коняшкина, Денис Васильев, Игорь Жижикин, Марина Куделинская, Азамат Нигманов, Денис Старков, Евгений Березовский, Павел Фартуков и др.Продолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32AFACFD00947D7067A9FDD72226D219AB5408B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390026   (783563) от 13.06.2020
+
+Windows 7 SP1 х86-x64 by g0dl1ke 20.06.11 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по июнь 2020 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE033FB9491A47BA111EBF1CA6E38F6BD32E13A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390115   (783562) от 13.06.2020
+
+Пресеты - 1,000 Professional Lightroom Presets [LRTEMPLATE]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_783562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта коллекция была создана, чтобы дать фотографам-профессионалам и энтузиастам прекрасный, уникальный эффект для их свадебных, модных, портретных и семейных образов.Формат: LRTEMPLATE
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390060   (783561) от 13.06.2020
+
+Модификация / Variant (2020) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_783561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда художница, которая борется за своё предназначение, встречает таинственного, но очаровательного незнакомца, она запутывается в его извращенных попытках "пережить идеальный момент".Производство: США / Culture Shock ProductionsЖанр: Фантастика, триллерРежиссер: Тони ЛичАктеры: Эшлинн Йенни, Дино Антониу, Сонали Костилло, Джош Цуккерман, Челси Кертц, А. Дж. Тэннен, Джошуа Дж. Грин, Тайлер Россо ...Перевод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:30:42Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390014   (783560) от 13.06.2020
+
+Артемис Фаул / Artemis Fowl (2020) WEB-DLRip [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_783560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Укрытый от посторонних глаз, глубоко под поверхностью земной коры таится целый мир, населенный гномами, эльфами, пикси, лепреконами, брауни и другими волшебными существами. Они спрятались от людей и создали свою собственную весьма развитую цивилизацию. Их тайна так и оставалась бы нераскрытой, если бы не юный Артемис Фаул, прирожденный мошенник и единственный наследник (   Читать дальше...   )Производство: США / Marzano Films, Tribeca Productions, Walt Disney PicturesЖанр: Фантастика, фэнтези, приключения, семейныйРежиссер: Кеннет БранаАктеры: Хонг Чау, Колин Фаррелл, Джош Гэд, Джуди Денч, Миранда Рэйсон, Нонсо Анози, Grace Molony, Эдриан Скарборо, Фердия Шоу, Никеш ПателПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:33:26Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389828   (783559) от 13.06.2020
+
+Тайна печати дракона (2019) HDRip
+
+>>След.
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский путешественник Джонатан Грин получает от Петра I заказ на изготовление карт Дальнего Востока России. Ему вновь предстоит долгий путь, полный невероятных приключений, который приведет его в Китай. Картограф столкнется с массой головокружительных открытий, неожиданных встреч с диковинными существами, китайскими принцессами, мастерами смертоносных боевых (   Читать дальше...   )Производство: Россия, Китай / Buffalo 8 Productions, CTB Film Company, China Film Group CorporationЖанр: Приключения, фэнтезиРежиссер: Олег СтепченкоАктеры: Джейсон Флеминг, Арнольд Шварценеггер, Чарльз Дэнс, Джеки Чан, Синтун Яо, Кристофер Фэйрбэнк, Рутгер Хауэр, Мартин Клебба, Юрий Колокольников, Павел ВоляПеревод: Дублированный (Лицензия BD RUS)Субтитры: Русские (forced)Продолжительность: 02:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A6BF7C7F9A342CB4DF20824A4A79C7AA16A6BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390013   (783558) от 13.06.2020
+
+Артемис Фаул / Artemis Fowl (2020) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_783558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Укрытый от посторонних глаз, глубоко под поверхностью земной коры таится целый мир, населенный гномами, эльфами, пикси, лепреконами, брауни и другими волшебными существами. Они спрятались от людей и создали свою собственную весьма развитую цивилизацию. Их тайна так и оставалась бы нераскрытой, если бы не юный Артемис Фаул, прирожденный мошенник и единственный наследник (   Читать дальше...   )Производство: США / Marzano Films, Tribeca Productions, Walt Disney PicturesЖанр: Фантастика, фэнтези, приключения, семейныйРежиссер: Кеннет БранаАктеры: Хонг Чау, Колин Фаррелл, Джош Гэд, Джуди Денч, Миранда Рэйсон, Нонсо Анози, Grace Molony, Эдриан Скарборо, Фердия Шоу, Никеш ПателПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:33:26Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389674   (783557) от 13.06.2020
+
+Тайна печати дракона / The Iron Mask (2019) BDRip [H.264/1080p]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_783557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский путешественник Джонатан Грин получает от Петра I заказ на изготовление карт Дальнего Востока России. Ему вновь предстоит долгий путь, полный невероятных приключений, который приведет его в Китай. Картограф столкнется с массой головокружительных открытий, неожиданных встреч с диковинными существами, китайскими принцессами, мастерами смертоносных боевых (   Читать дальше...   )Производство: Россия, Китай /  Buffalo 8 Productions, CTB Film Company, China Film Group CorporationЖанр: Приключения, фэнтезиРежиссер: Олег СтепченкоАктеры: Джейсон Флеминг, Арнольд Шварценеггер, Чарльз Дэнс, Джеки Чан, Синтун Яо, Кристофер Фэйрбэнк, Рутгер Хауэр, Мартин Клебба, Юрий Колокольников, Павел ВоляПеревод: Дублированный (Лицензия BD RUS)Субтитры: Русские (форс.)Продолжительность: 01:54:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388844   (783556) от 13.06.2020
+
+Эви Немет и др. | Unix и Linux. Руководство системного администратора [5-е издание] (2020) [PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_783556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это современное и полное руководство по инсталляции, настройке и обслуживанию любой системы UNIX или Linux, включая системы, предоставляющие базовую инфраструктуру Интернета и облачную инфраструктуру.
+
+Обновленное с учетом новых дистрибутивов и облачных сред, это всестороннее руководство охватывает лучшие практики для всех аспектов системного администрирования, включая (   Читать дальше...   )Жанр: Операционные системы и утилиты для ПКФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388195   (783555) от 13.06.2020
+
+Navitel / Навител Навигатор 9.13.51 Full для карт релиза Q1-2020 [Ru/Multi]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навител Навигатор - точная офлайн GPS навигация, геосоциальные сервисы и подробные карты 65 стран мира.  Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 04.06.2020Разработчик: NAVITELПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BAC2C093C48FE3E02E061188141E97DD8421E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205492   (783554) от 10.02.2018
+
+Georgie Auld - 1946 - 1951 (2004) Classics [FLAC|Lossless|image + .cue] <Swing, Bop, Big Band>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783502.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  I Like It Like That (2:41)
-02.  Maggie's Farm (2:39)
-03.  Quebec Blues (3:10)
-04.  Jay's Boogie Woogie (4:11)(   Читать дальше...   )Жанр: Acoustic Blues, Harmonica BluesПродолжительность: 00:52:24
+01. Canyon Passage [02:56]
+02. You're Blase [03:01]
+03. Handicap [02:56]
+04. Mo Mo [02:42](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 00:59:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C545B06934C7AF17FE970A436E20AABE1F89E9F1
+magnet:?xt=urn:btih:C13785BADFFCE8E90F34F173452F1EBBF607E7B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,83 +289,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205240   (783501) от 10.02.2018
+###  Публикация: 1205489   (783553) от 10.02.2018
 
-Журнал | Моя прекрасная дача №3 (февраль 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моя прекрасная дача - это самые лучшие советы дачников и садоводов, это ваш надёжный друг и помощник! Семена, рассада, полив, уход, хранение урожая, благоустройство участка - вы на всё найдете ответ в выпусках журнала.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C627C73D5E8984C105F051DEC6CEB760402EC1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205473   (783500) от 10.02.2018
-
-Homemade Weapons & Red Army - Sleep Terror EP (2016) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep Terror (05:53)
- 02. Cavity (06:11)
- 03. Buzzkill (06:06)
- 04. Colony (06:14)Жанр: Drum n BassПродолжительность: 00:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E987C41090A7EDD1ED2B2A3A5A55EE66488491A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205625   (783499) от 10.02.2018
-
-Blindstone - Blues-O-Delic Celebration (A Tribute To The Blues) (2017) Grooveyard Records [MP3|320 Kbps] <Blues Rock, Rock, Soul>
+Eddie Jefferson - Letters From Home (1962) 1987, Original Jazz Classics [APE|Lossless|image + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783499.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Rock Me Baby 2:58
-02. Blood Stream 2:27
-03. Pack It Up 4:03
-04. Me and My Woman 4:36(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 00:57:56
+01. Letter from Home [03:02]
+02. Take the 'A' Train [03:13]
+03. Billie's Bounce (take 4) [02:48]
+04. Billie's Bounce (take 3) [02:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FE397221E6515ADF60F41D826386DED38DFE4CC
+magnet:?xt=urn:btih:F8B94CD9452E14FAD71A05A3CC2D9DFB5DB16AEE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,54 +318,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205475   (783498) от 10.02.2018
+###  Публикация: 1205394   (783552) от 10.02.2018
 
-Кристофер Мур | Венецианский аспид (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы соскучились по шуту Карману – герою романа Мура «Дурак»? А может, вы и вовсе пока не знакомы? Пришло время вновь встретиться или познакомиться – кому как .Итак, Венеция. Сюда Корделия посылает Кармана, дабы тот предотвратил очередной крестовый поход, который затевается интриганом Монтрезором Брабанцио, сенатором, и его подельниками – купцом Антонио и солдатом (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 11:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73933C1DD3A410CBBA8B4754A970CA0103492D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205085   (783497) от 10.02.2018
-
-Son Lux - Brighter Wounds (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Experimental>
+Silent Strangers - Anagram 4: Lume (2017) Selection 27 & IDMf [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Abstract, Glitch>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783497.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Forty Screams (04:02)
-02. Dream State (05:02)
-03. Labor (04:08)
-04. The Fool You Need (04:25)(   Читать дальше...   )Жанр: Indie Rock, ExperimentalПродолжительность: 00:44:44
+01. Torture (03:03)
+02. Frntc (03:52)
+03. 6616 (05:46)
+04. Black Leaf (05:51)(   Читать дальше...   )Жанр: IDM, Experimental, Abstract, GlitchПродолжительность: 00:53:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C58F22591EF4A6D569ED0D71439E43705E03F0C
+magnet:?xt=urn:btih:6EE0BC47228D8A8FFBF939B807F30ACE4F6AB525
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,167 +347,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205527   (783496) от 10.02.2018
+###  Публикация: 1205056   (783551) от 10.02.2018
 
-The Wombats - Beautiful People Will Ruin Your Life (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783496.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cheetah Tongue (03:53)
-2. Lemon to a Knife Fight (03:26)
-3. Turn (03:27)
-4. Black Flamingo (03:21)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C85D8E683FC03B35080D827165F6E6756056803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205617   (783495) от 10.02.2018
-
-VA - Greatest Ever Indie Disco: The Definitive Collection (2016) 3CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left Hand Free - Alt-J (2:52)
-02. Henrietta (single version) - The Fratellis (3:30)
-03. Farewell To The Fairground - White Lies (4:16)
-04. All The Rage Back Home - Interpol (4:20)(   Читать дальше...   )Жанр: RockПродолжительность: 03:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E18524CFC30A8BA93CD5FC038ED4015B4AD7FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205563   (783494) от 10.02.2018
-
-Robert Rich - The Biode (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Recalcitrant Malfeasance (03:14)
-02. Particles (04:35)
-03. Protista Mephista (08:21)
-04. Elevate the Hive Mind (07:29)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBD8710A095CC701EADD042D1DB1B783B52DBF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205442   (783493) от 10.02.2018
-
-Беседа с Евгением Федоровым (27.01.2018) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783493.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у депутата Государственной Думы России, координатора НОД Евгения Федорова общественная организация «Федерация ветеранов спорта». Темы беседы: кто управляет миром, существует ли мировое правительство; как работает управление однополярным миром; почему бизнес не хочет возвращать капиталы в Россию; как работает низкая ключевая ставка; «государство-убежище» (   Читать дальше...   )Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 02:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55809DD24D1E7F7076813DC3DC310CD824447ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205559   (783492) от 10.02.2018
-
-Владислав Реймонт | Последний сейм Речи Посполитой (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Определяя исторический путь белорусского народа и государства, привычно говорят, что он полон драматизма. Да, это несомненно. Но можно ли о другом каком народе сказать, что у него была безмятежная история и счастливая судьба? Не найти такого народа. История цивилизации, к сожалению, изобилует фактами поглощения слабых государств более сильными и организованными, (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 15:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BADC06A00B9B7A4BABEFC9DD491FF27FD8744F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205449   (783491) от 10.02.2018
-
-Blank & Jones - Morning Of The Earth | My Island (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
+VA - Le Son Dancefloor (2009) [FLAC|Lossless|tracks] <House, Electro, Europop>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783491.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Morning Of The Earth (Stardelay Mix) (3:40)
- 02. Morning Of The Earth (Cassara Mix) (6:10)
- 03. Morning Of The Earth (2:53)
- 04. My Island (3:26)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 00:23:03
+01.David Guetta Feat. Kelly Rowland - When Love Takes Over (3:08)
+02.Antoine Clamaran Feat. Annie C - Reach For The Stars (3:14)
+03.Helmut Fritz - Ça M'énerve (3:38)
+04.Bob Sinclar Feat. The Sugar Hill Gang - Lala Song (3:17)(   Читать дальше...   )Жанр: House, Electro, EuropopПродолжительность: 01:51:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:549240C514917D22149C80B49FDF1B74A3FEEAE4
+magnet:?xt=urn:btih:25BAC30AEAF6B8A4D61068053E7D8871C935D141
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,25 +376,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205486   (783490) от 10.02.2018
+###  Публикация: 1205401   (783550) от 10.02.2018
 
-4K YouTube to MP3 3.3.3.1777 [Multi/Ru]
+VA - EE Compilation (2012) Electronic Explorations [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Techno, Dubstep, Bass>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783490.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K YouTube to MP3 был создан специально для скачивания аудио с YouTube, VEVO, Soundсloud и Facebook в MP3, M4A, OGG. Вставляйте ссылки на ваши любимые песни в приложение и сохраняйте их в формате MP3 на ваш компьютер. Прямое скачивание на iPod, iPhone и iPad позволит наслаждаться музыкой, где бы вы не находились. Никаких сложных настроек, только простой в обращении (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.10 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+Тип издания: WEB |Жанр: IDM, Experimental, Techno, Dubstep, Bass |Продолжительность: 05:46:38 |
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56D7DAE1860E93EABA163A5349244EB9CEDC712F
+magnet:?xt=urn:btih:D13D57BAE9815E0668ACB605F5EDF8F0CD60A3E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,27 +402,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205626   (783489) от 10.02.2018
+###  Публикация: 1205508   (783549) от 10.02.2018
 
-ExpanDrive 6.1.11 [En]
+VA - Beats For Life Vol.1 (20 Big Room Monsters) (2018) [MP3|320 Kbps] <House, Big Room, Progressive>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783489.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783549.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работа с удалёнными данными всё чаще встречается в нашей жизни. Домашняя локальная сеть, Dropbox. Все эти вещи для многих давно стали привычны. Разработчики софта рады предложить нам множество программ, которые должны помочь привести к общему виду все эти носители и облачные сервисы.
-
-Эта программа позволяет монтировать удалённые хранилища информации (FTP, WebDAV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: ExpanDrive, Inc.Поддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+01.  Justin Point  -  Weekend Players (Original Mix)  5:32
+02.  Mark Bale & Bobby Rock feat. Roger Horton  -  The Bass (Ferdinands Feld Festival Anthem 2017)  4:03
+03.  Reevo & Point BLVNK  -  Timemachine (Original Mix)  6:16
+04.  The Guru Project & OneZeroOne  -  Ding A Ling (Original Mix)  4:08(   Читать дальше...   )Жанр: House, Big Room, ProgressiveПродолжительность: 01:47:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:799EA64D6FDD8CA9324EA03D65F7C2C17C4CEAE4
+magnet:?xt=urn:btih:F655C0AB8A9FF348DC4275B265754D37504AED98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,28 +431,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204622   (783488) от 10.02.2018
+###  Публикация: 1205499   (783548) от 10.02.2018
 
-Music maestro. Brahms, The complete live and music of the great composers (1992) VHSRip (H.264)
+The Three Sounds - Moods (1960) 1987, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
 
->>Театр и Музыкальное видео
->>Концерты (SD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783488.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(временная метка - название)
-06:48 - Symphony No.1 in C minor 4th movement
-15:36 - Hungarian dance No.5
-19:23 - Variations on a theme of Paganini Emil Gilels-piano Russian Archive Footage(   Читать дальше...   )Жанр: Концерт классической музыкиРежиссер: Presenter, David PalmerПеревод: ОтсутствуетСубтитры: НетПродолжительность: 00:59:02
+01. Love for Sale [06:38]
+02. Things Ain't What They Used To Be [08:55]
+03. On Green Dolphin Street [05:37]
+04. Loose Walk [04:56](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:42:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C743DD91D2FD447D13490CBDA9D8EF93F51EC45
+magnet:?xt=urn:btih:C8AA43B50F40DA44EB9EEEDAC86A9504DEE1BE8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,83 +460,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205244   (783487) от 10.02.2018
+###  Публикация: 1205261   (783547) от 10.02.2018
 
-Журнал | AD / Architectural Digest [Россия] №2 (169) (февраль 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов, в России с сентября 2002 года. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9870E6199F6C87AEFC49F67D38BA599B98FC480F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205585   (783486) от 10.02.2018
-
-VA - Sanremo (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ermal Meta & Fabrizio Moro  -  Non Mi Avete Fatto Niente  3:27
-02.  Ornella Vanoni, Bungaro, Pacifico  -  Imparare Ad Amarsi  3:26
-03.  Noemi  -  Non Smettere Mai Di Cercarmi  3:10
-04.  Le Vibrazioni  -  Cosi Sbagliato  3:28(   Читать дальше...   )Жанр: PopПродолжительность: 01:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89463860B041A2ACC85F21144ACF25FBEA8FBFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205098   (783485) от 10.02.2018
-
-VA - Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
+VA - The Sound Of Trance Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783485.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Maarten de Jong feat. Katty Heath  -  Free To Feel Again (Extended Mix)  5:47
-02.  Ferrin & Morris feat. Hysteria!  -  Horizon (Alan Morris Extended Mix)  5:43
-03.  Nitrous Oxide feat. Jess Morgan  -  Golden Horizon (Extended Mix)  7:01
-04.  Kaimo K  -  Uncharted (Extended Mix)  7:04(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:42:56
+01.  Cold Stone  -  Skyline (Extended Mix)  6:10
+02.  Lee Coulson  -  Lomachenko (Original Mix)  6:34
+03.  Venetica  -  Force Majeure (Original Mix)  3:37
+04.  Paul Pollux  -  Lights Of Abell (Original Mix)  6:54(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:34:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E079713A4978C3F4FB979147EF5BC31E0003E06C
+magnet:?xt=urn:btih:619B000DAC769E36512CEFD05A011804328465FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,28 +489,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205422   (783484) от 10.02.2018
+###  Публикация: 1205263   (783546) от 10.02.2018
 
-Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1988) Atlantic, Compilation [MP3|320 Kbps] <Europop, Ballad, Vocal>
+VA - Tech Trance Essentials Vol.11 (2018) [MP3|320 Kbps] <Trance, Tech Trance, Uplifting Trance>
 
->>Pop
->>Зарубежная поп-музыка
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783484.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Gloria 4:50
-02. Shattered Glass 3:41
-03. Find Me 3:23
-04. Touch 4:07(   Читать дальше...   )Жанр: Europop, Ballad, VocalПродолжительность: 00:49:43
+01.  Sulaco  -  Requiem Of Souls (5thDimension Remix)  8:48
+02.  Thomas Kelly  -  Wasted Talent (Original Mix)  5:55
+03.  S5 & ReDrive  -  This Love (Original Mix)  7:22
+04.  Josef Linecker  -  Back (Original Mix)  5:29(   Читать дальше...   )Жанр: Trance, Tech Trance, Uplifting TranceПродолжительность: 02:42:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:867CF3E55BBFF072C860CB3BB96FB3B8BA6606A0
+magnet:?xt=urn:btih:34E68116322FF2ED8BA8A5F8B0008A95E8B541D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,27 +518,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205664   (783483) от 10.02.2018
+###  Публикация: 1205517   (783545) от 10.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Церемония открытия (09.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+VA - Deep House Architects Vol.8 (2018) [MP3|320 Kbps] <Deep House, Tech House>
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783483.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-09 февраля 2018 года, пятница. 14:00 МСК
-XXIII Зимние Олимпийские игры 2018 пройдут с 9 по 25 февраля 2018 года в городе Пхёнчхане, Республика Корея. На Олимпийских играх в Пхенчхане будут представлены 84 страны. Впервые в них примут участие две новые страны: Эритрея и Косово.
-МОК включил шесть новых дисциплин в программу Олимпиады-2018, добавлены дисциплина биг-эйр (   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: Церемония, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:30:09
+01.  Alexander Koning  -  Uncertainty Principle (Original Mix)  6:18
+02.  Curly Project  -  Ventriloquism (Original Mix)  8:05
+03.  Sacke  -  In Asteptare (Original Mix)  6:26
+04.  Koyser  -  Sun & Moon (Original Mix)  6:14(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:57:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4020E099D7E8857CCF6A7EF4AF7C294B7C175528
+magnet:?xt=urn:btih:13913D7235C823FA0FFAB060A93FBC14F4DA28B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,56 +547,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205621   (783482) от 10.02.2018
+###  Публикация: 1205385   (783544) от 10.02.2018
 
-Майкл Симс | Артур и Шерлок. Конан Дойл и создание Холмса (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – прекрасный подарок всем почитателям знаменитого Шерлока Холмса. Написанная в стиле, напоминающем манеру его создателя, Артура Конан Дойла, она рассказывает поистине детективную историю о том, как молодой шотландский доктор стал писателем с мировым именем, а его герой – величайшим сыщиком всех времен и народов.
-
-Погрузив читателя в атмосферу викторианской (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная публицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41241067851B23C5F217EB1BB292670EB30C1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205203   (783481) от 10.02.2018
-
-Propellerheads - Decksandrumsandrockandroll (1998) [FLAC|Lossless|tracks + .cue] <Breaks, Breakbeat, Big Beat>
+Phylum Sinter - Colony Collapse Reorder (2014) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch, Experimental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783481.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Take California (07:21)
-02. Velvet Pants (05:47)
-03. Better? (02:03)
-04. 360° (Oh Yeah?) (feat. De La Soul) (04:28)(   Читать дальше...   )Жанр: Breaks, Breakbeat, Big BeatПродолжительность: 01:07:53
+01. Back 2,1 (04:32)
+ 02. Das Bootie (04:34)
+ 03. Everybody Made Me (04:54)
+ 04. calmasicanbe (02:26)(   Читать дальше...   )Жанр: IDM, Ambient, Glitch, ExperimentalПродолжительность: 01:02:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D664BC6A49A50FC0D6A898BAD42647ADDA683B67
+magnet:?xt=urn:btih:15950E74FE11E944FBD2A3AE5339D39617DA975A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,25 +576,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205464   (783480) от 10.02.2018
+###  Публикация: 1205204   (783543) от 10.02.2018
 
-Athentech Perfectly Clear + Essentials + WorkBench 3.5.6.1150 [En]
+VA - House Goes 80's Vol. 3 (2009) [FLAC|Lossless|tracks] <House>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783480.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Perfectly Clear - последняя версия программы, которая идет также как плагин для Photoshop & Lightroom (можно использовать также в других редакторах). Суть данной разработки проста, у вас имеется снимок, вам он не нравится, кожа тусклая, прыщики, короче говоря есть дефекты, теперь можно не утруждать себя редактированием, пару кликов и вот перед нами откорректированная (   Читать дальше...   )Язык интерфейса: Английский
+01.Rilod - Thriller (6:20)
+02.Prime Time - Right Round (Ippytraxx Radio Edit) (3:03)
+03.Jay Jay - Let The Music Play (Belmond & Parker Radio Mix) (3:49)
+04.Alan Master T. - People Hold On (Radio Edit) (3:14)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:23:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02420FBEAB357A58795B2802A3532E38D28716AE
+magnet:?xt=urn:btih:48D30C09DD3CD223F038760F3663380C35AB27F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,25 +605,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205549   (783479) от 10.02.2018
+###  Публикация: 1205487   (783542) от 10.02.2018
 
-Теория заговора (2016) WEB-DL [H.264] (2 сезон: 37 выпусков из 37) [MP4|1280x720]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 3-й тур. США — Швейцария (09.02.2018) WEB-DL [EN]
 
->>Мультимедиа и прочее
->>Мобильное Видео
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783479.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Авторы документального цикла «Теория заговора» дают ответы на простые вопросы, которые обычно не приходят в голову. Почему литр воды стоит дороже литра бензина? Почему в аптеках продают лекарства, которые ни от чего не лечат? Почему один крем в десятки раз дороже другого, если их состав идентичен? Нас обманывают и пытаются нажиться на наших проблемах и нуждах. Нас (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаРежиссер: Алексей Булейко, Кирилл ВащенкоСубтитры: ОтсутствуютПродолжительность: ~ 00:45:00 серия
+09 февраля 2018 года, пятница. 02:35 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 3-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:48:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:905D4E3339E4E678E79FBB3E3AD72A5E48A0AA03
+magnet:?xt=urn:btih:F1E4C3EDDDBE621FFACF3F529395EAF42A4D5A02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,26 +634,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205493   (783478) от 10.02.2018
+###  Публикация: 1205483   (783541) от 10.02.2018
 
-3D модели - Daz 3D - Elijah 7 Pro Bundle - 36169 [DUF]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 3-й тур. Россия (ОАР) — Финляндия (09.02.2018) WEB-DL [H.264/720p-LQ]
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783478.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Elijah 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+09 февраля 2018 года, пятница. 02:35 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 3-й тур.(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:31:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76DEA7A2A0853172899EAC34A3E6D16EE977C5F9
+magnet:?xt=urn:btih:27578FBFB601C89D89066B73C0C79729D5CB983E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,25 +663,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205605   (783477) от 10.02.2018
+###  Публикация: 1205485   (783540) от 10.02.2018
 
-Aiseesoft 4K Converter 9.2.18 RePack (& Portable) by ZVSRus [Ru/En]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 3-й тур. Россия (ОАР) — Финляндия (09.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Архив торрентов
->>Архив Программ
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783477.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Aiseesoft 4K Converter – универсальный видео конвертер формата 4K. Специально создан для преобразования 4K видео высокого разрешения с передовыми кодировками, в том числе HEVC / H.265, VP8, vp9, H.264, MPEG и XviD. Лучший выбор для обработки видео в формате 4K с разрешением 1080p или 1080p 4К, который также служит для работы со стандартными форматами видео и HD.Язык интерфейса: Русский (от Kopejkin.) | Английский
+09 февраля 2018 года, пятница. 02:35 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 3-й тур.(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:36:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42F28EB9FD1C642DCB90827CF384711D9A5259E7
+magnet:?xt=urn:btih:27D6DD10D6168D3CB29140081387F1D56774DA06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205202   (783539) от 10.02.2018
+
+David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [MP3|320 Kbps] <Progressive House, Euro-House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Vendetta feat. Akram - Unidos Para La Musica (Cosa Nostra Mix)
+02. David Vendetta vs. Keith Thompson - Break 4 Love
+03. David Vendetta - Love To Love You Baby
+04. David Vendetta feat. Audrey Valorzi - Be The Best(   Читать дальше...   )Жанр: Progressive House, Euro-House, ElectroПродолжительность: 02:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DEA98CA537910754C9AF1323C70F5A80DD36840
 ```
 
 https://mybot314.ru/tekegram_catalog/

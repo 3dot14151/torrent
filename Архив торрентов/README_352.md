@@ -1,3 +1,29 @@
+###  Публикация: 1355220   (984986) от 25.01.2020
+
+CaptureGRID 4 v4.13 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984986.jpg" />
+</div>
+
+
+###  Подробнее
+
+CaptureGRID - это приложение для работы с цифровыми фотографиями для привязной съемки, дистанционного захвата и расширенного управления камерой. CaptureGRID поддерживает все последние зеркальные камеры Canon и Nikon, а также некоторые камеры из серии Sony Alpha. Мы регулярно обновляем приложение, поэтому добавляется поддержка новых камер по мере их появления на рынке. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Kuvacode OyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF75EAF8070579A7523F86F57957A29674B37ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355169   (984982) от 25.01.2020
 
 Studies 1.7.6 [En]
@@ -689,41 +715,6 @@ Windows 10 Manager — программа-оптимизатор все в од�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD718EDEB55B2BA05A8823FBC923F3DE08F1D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613143   (984712) от 03.02.2013
-
-Agathodaimon - 5CD (1998 - 2009) Discography [WavPack|Lossless]<Melodic Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heliopolis [04:36]
-02. Devil's Deal [04:33]
-03. Decline [05:32]
-04. Ground Zero [04:46]
-05. Ghost Of A Soul [04:29]
-06. Winterchild [05:33]
-07. Time Is The Fire [04:58]
-08. To Our Ashes [06:40]
-09. Amongst The Vultures [03:21]
-10. Oncoming Storm [06:26](   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

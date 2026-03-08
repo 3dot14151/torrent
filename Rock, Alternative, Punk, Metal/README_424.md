@@ -1,32 +1,3 @@
-###  Публикация: 905573   (649477) от 06.06.2015
-
-R-Genium - Wonderful Wonderful World (2015) [MP3|320 кб/с]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Sky (08:40)
-02. One Day (05:05)
-03. Fantastic Story (04:07)
-04. I Know Your Lie (03:33)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB56AF78F4F0D7D8F46E0C221D50D2FCA628707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517086   (649441) от 30.06.2012
 
 The Agonist - Prisoners (2012) [FLAC|Lossless]<Melodic Death Metal, Metalcore, Female Vocal>
@@ -763,6 +734,35 @@ Leon Paul-Phillips - London's Underground (1972) Remastered, 2016, Paisley Press
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E9C2714F9389C7BDF6376CE7DC94330F6607EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540858   (648656) от 01.04.2022
+
+Trick Or Treat - Creepy Symphonies (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trick or Treat (1:07)
+02. Creepy Symphony (4:39)
+03. Have a Nice Judgment Day (4:32)
+04. Crazy (4:17)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A11BDB830027CB3E3AFCC58A1394A5DCE68AD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

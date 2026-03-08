@@ -1,32 +1,3 @@
-###  Публикация: 793765   (688263) от 15.03.2019
-
-Misery Index - 6 Альбомов + 2 EP (2003-2019) [MP3|~245-320 кб/с]<Death Metal, Grindcore, Deathgrind>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688263.jpg" />
-</div>
-
-
-###  Подробнее
-
-2003 - Retaliate
-2004 - Dissent (EP)
-2006 - Discordia
-2007 - Hang Em High (EP)(   Читать дальше...   )Жанр: Death Metal, Grindcore, DeathgrindПродолжительность: 04:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A4C031F799B0B67AC965E7FB65D348B81732B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 675036   (688248) от 02.07.2013
 
 Кирпичи - Summertime (2013) [MP3|320 кб/с]<Rap Rock>
@@ -754,6 +725,35 @@ Neal Morse - Life & Times (2018) [FLAC|Lossless|tracks + .cue] <Rock, Acoustic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C104061AF05B5810F7EBF53E08C28DB3ADCE069C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289463   (686743) от 16.03.2019
+
+Tess Parks & Anton Newcombe - Tess Parks & Anton Newcombe (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686743.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Life After Youth (04:03)
+2. Monochrome Wound (03:16)
+3. Mount Pleasant (04:40)
+4. Bindle (02:18)(   Читать дальше...   )Жанр: Rock, Indie Rock, Psychedelic RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345432BEAB89CB0A8455112A0162AC78323AD820
 ```
 
 https://mybot314.ru/tekegram_catalog/

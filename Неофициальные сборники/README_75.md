@@ -1,3 +1,180 @@
+###  Публикация: 984810   (937157) от 10.02.2016
+
+VA - Этапом к северу. Академия хитов шансона (2016) [MP3|256-320 kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937157.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Запретка - Освободился
+002. Игорь Корнилов - Он Не Первый
+003. Сева Городской - Десятая Весна
+004. Ольга Ильч - Этапом к северу(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BF289560C5E689C92D0547BF36C01026F90594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984782   (937139) от 10.02.2016
+
+VA - Evolution of Disco - CD2 (1964-2015) [MP3|192-320 кб/с] <Funk,Disco,House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Debonair - Tell You More  06:14
+02. Oliver Cheatham - Get Down Saturday Night (special extended)  07:34
+03. Dj Steef - It's Cool  06:48
+04. Phats And Small - Turn Around  03:45(   Читать дальше...   )Жанр: Funk,Disco,HouseПродолжительность: 05:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13015E19BE7429459EFF76FF6D6C88ABFF54FDA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092664   (937129) от 13.01.2017
+
+VA - Hits of My Soul Vol. 21 (2016) [MP3|320 кб/с]<Drum & Bass, Dubstep, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Drumsound & Bassline Smith - Through the Night (Club Mix) (05:20)
+02. Spor ft. James Hadouken! - Empire (04:25)
+03. Vanic ft. K.Flay - Cant Sleep (04:22)
+04. Flux Pavilion & Whethan ft. MAX - Savage (03:24)(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, Electro House, Electronic, House, TrapПродолжительность: 03:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2515EDB73E60CF235EC4FC988077DB714D617CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985004   (937036) от 10.02.2016
+
+VA - German dance hits №3 (2016) [MP3|256-320 kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937036.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Coldplay - Adventure of a Lifetime
+002. Sido - Astronaut (feat. Andreas Bourani)
+003. K.I.Z. - Hurra die Welt geht unter
+004. Shawn Mendes - Stitches(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E5A23BF62994A577F3B2A153F07AE24C181F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984755   (937002) от 10.02.2016
+
+VA - Каюсь. Сборник хитов русского шансона (2016) [MP3|256 kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937002.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Вадим Петров - Три Дороги
+002. Папа Радж - Мадам Постойте
+003. Вася Пряников - Сочи В Феврале
+004. Mr. Bleden - Маленькое Счастье(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43076EE0D75A0896B6500BF4976DF5EA9D4AA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985032   (936882) от 10.02.2016
+
+VA -Танцевальная Зима 2016 Тор 100 (2016) [MP3|320 кб/с] <Dance, Club, House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936882.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. R3hab & Ciara - Get Up 03:14
+002. KastomariN - Beautiful (Original Mix) 04:40
+003. Rick Pier O'neil - Abstractions 09:45
+004. X-Killer - Everlasting (Original Mix) 04:16(   Читать дальше...   )Жанр: Dance, Club, House, TranceПродолжительность: 08:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C6FAC979149C1FC880A1F225C07BCC4D261437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984765   (936772) от 10.02.2016
 
 VA - Русская дискотека. Энергия хитов (2016) [MP3|256 kbps] <Pop>
@@ -567,180 +744,6 @@ VA - The Official UK Top 40 Singles Chart (10-03-2013) [MP3|320 кб/с]<Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70E2F86FD2A4C72CC4F6932D3D513C33957DA13C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364582   (934473) от 04.03.2020
-
-VA - Rock Archive (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934473.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evanescence - Bring Me To Life
-002. Bon Jovi - Its My Life
-003. Alice Cooper - Poison
-004. Black Sabbath - Sabbath Bloody Sabbath(   Читать дальше...   )Жанр: RockПродолжительность: 07:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750D064D0FD012F9302A7A359AD8BDC42D611514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985873   (934113) от 12.02.2016
-
-VA - Sunrise Lovers Vol 1: 20 Relaxing Lounge Tunes (2016) [MP3|320 kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934113.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jessica Hathaway - Africanism Look (Bonus Track) 03:23
-2. Sarah Martin - Little Expression 03:54
-3. Lounge Surfers - Fairground 06:09
-4. James Walden - Guitar Dreams 04:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90AA6CAB88D54FE93B1ECCB5C94F939948B2E7A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984852   (934085) от 12.02.2016
-
-Фляус и Кляинн - Тестирование потустороннего гидровелосипеда в многомерном пространстве Remaster (2015) [MP3|320 кб/с] <Brit-pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 ******
-02 Воздушный шар
-03 Импровизация в синтетическом парке
-04 Говорящий вакуум(   Читать дальше...   )Жанр: Brit-popПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11E170CC6FC87076C7DF9AF308E3E5E63244AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985378   (934084) от 12.02.2016
-
-VA - Deep Flover Dance (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934084.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sanil Fenice - Before Dawn - Vocal Mix 06:13
-002. Matthias Freudmann - Metropolis 06:23
-003. Scot & Millfield - It's a Fine Day - Summer Fifteen Remix 05:31
-004. Matthias Freudmann - City Life 07:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508D07C2239D489D29D5C70BC9622CD08C72EF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093528   (934013) от 15.01.2017
-
-VA - Empire Records: Trance 2 (2017) [MP3|320 Kbps] <House, Electro House, Progressive House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bakun - Out Of Control (Phetros Remix)  6:01
-02.  Pirate Jams - Sweets From Heaven (Jolyon Petch's Late Night Mix)  5:06
-03.  Dainpeace - It's Not Too Late (Radio Edit)  2:42
-04.  Sam Feldt - What About The Love (Extended Mix)  4:14(   Читать дальше...   )Жанр: House, Electro House, Progressive House, Club, DanceПродолжительность: 01:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8E7C752FEE6E9EDE07DA1E0979E1CD30EBB482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985797   (933993) от 12.02.2016
-
-VA - Медлячок в машину. Зарубежная версия 1 (Из треков 2014) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933993.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Richard Marx - Inside
-002. Patrick Fiori - Demain
-003. Alex Lloyd - Last Bell
-004. Danny Fernandes - Breathe Again(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F705D643A70EBFE2DEB194454F08EAF4562636C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

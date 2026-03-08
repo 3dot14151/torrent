@@ -1,3 +1,32 @@
+###  Публикация: 1208140   (780129) от 21.02.2018
+
+VA - Power Sounds (Volume 1) (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound  04:18
+02. Denis Dawydow, Simon Aces - F.A.Q.  05:15
+03. Julian Blaze, StarBouncers - Valentine (Time to Groove)  04:43
+04. Grimm Brothers - Back to Trumpets  04:52(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE5201ABF7BB3643285CE8A64BEA1FDCFA0C1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208607   (779818) от 23.02.2018
 
 VA - Deep House Look in the Mirror, Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
@@ -716,35 +745,6 @@ VA - Marathon 2018: 50 Great Running Tracks (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32F79BEEB46EECBD1725A1DD5C3A5D888D953550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212514   (775816) от 12.03.2018
-
-VA - JOOF Editions Vol.4 (Mixed by John 00 Fleming) (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  John 00 Fleming  -  JOOF Editions Vol.4 (Continuous DJ Mix)  4:36:19
-02.  John 00 Fleming  -  JOOF Editions Vol.4 (Pt. 1 - Continuous DJ Mix)  1:13:05
-03.  John 00 Fleming  -  JOOF Editions Vol.4 (Pt. 2 - Continuous DJ Mix)  1:13:05
-04.  John 00 Fleming  -  JOOF Editions Vol.4 (Pt. 3 - Continuous DJ Mix)  1:13:05(   Читать дальше...   )Жанр: Progressive House, Progressive Trance, Techno, Psy-Trance, BreaksПродолжительность: 15:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF028FD7209162396883842A12551E35E8FDF7DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

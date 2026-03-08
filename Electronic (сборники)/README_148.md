@@ -1,3 +1,32 @@
+###  Публикация: 947894   (416134) от 18.10.2015
+
+VA - Top 20 October Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LuOrchestra - Midsummer
+02. S.A.T - Dream of the Sea
+03. Jack-o-Lantern - This Game Is Over
+04. A-mase - This Pristine Land(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:288A58736E11624FC5B23555027E48BA4B5E9E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947939   (416133) от 18.10.2015
 
 VA - Jazz Chill House (2015) [MP3|320 кб/с]<Chill House, Lounge, Jazzy>
@@ -722,35 +751,6 @@ VA - Sound Of A Feeling (2018) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5CA2EFB7A70127E8F28E9A8DCEC96712BF03024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948527   (411109) от 20.10.2015
-
-Laid Back - Best Hits (3CD) (1981-2013) (2015) [MP3|320 кб/с]<Electronic, Synth-pop, Reggae, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bolivia (1981)
-02. Night Train Boogie (1981)
-03. We Don't Do It (1981)
-04. Maybe I'm Crazy (1981)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Reggae, DowntempoПродолжительность: 03:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461013EDD68C9F99BB6D7E5CF6F52AE6A9CDBE1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

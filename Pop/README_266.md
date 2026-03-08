@@ -1,3 +1,61 @@
+###  Публикация: 1372248   (242074) от 03.04.2020
+
+Leonid Agutin - La Vida Cosmopolita (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funky Cha
+02. Quédate
+03. Y Quién Eres Tú
+04. Just a Rainy Day (feat. Al Di Meola)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F4C225206C658BAA36F3D1C620145F87E44AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372161   (242050) от 03.04.2020
+
+VA - Female Pop Hits (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242050.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Lady GaGa - Paparazzi (3:28)
+2. June - A Little Messed Up (2:48)
+3.Christina Aguilera and Lil' Kim and Mya and P!nk - Lady Marmalade (From "Moulin Rouge" Soundtrack) (4:24)
+4.EMMA WAHLIN - Make A Move (Pt. 2) (3:01)(   Читать дальше...   )Жанр: PopПродолжительность: 01:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E25960509CC2223B7904AC7BF6D69199D7ED4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635377   (241880) от 25.05.2023
 
 VA - NOW: 80s Alternative (2023) 4CD, Compilation, Special Edition [MP3|320 Kbps] <New Wave, Synth-pop, Alternative, Britpop>
@@ -687,64 +745,6 @@ VA - Sommerhits (2023) [MP3|320 Kbps] <Pop/Rock Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ACFA99FC1ACAD997424D63BA2F623A0FB400BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548631   (240793) от 03.05.2022
-
-Midnight Gang - Love Is Magic (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Game (6:01)
-02. The Whole World's Singin' (6:58)
-03. Love Is Magic (6:45)
-04. Let's Go Dancin' (7:21)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDB21BC8FC0669FDE2ED92369FA5D6E572C1C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625825   (240700) от 12.04.2023
-
-VA - 00's Super Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay - Viva La Vida                                          [04:02]
-   02. Jay-Z - Numb / Encore                                            [03:25]
-   03. Gorillaz - Feel Good Inc                                         [03:42]
-   04. Green Day - Wake Me Up When September Ends                       [04:45](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C4595A5F51FC882575A82E63545E02F0DFF65E
 ```
 
 https://mybot314.ru/tekegram_catalog/

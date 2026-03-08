@@ -1,3 +1,61 @@
+###  Публикация: 1227921   (643137) от 28.05.2018
+
+VA - Ibiza Beats Volume 11 - Sunset Chill and Beach Lounge (2018) [MP3|320 Kbps] <Bossa Nova, Balearic, Easy Listening, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Hartman - Jazzalike
+02. Marco Moli - Amore And More
+03. Dj Deviance - Vanilla Sky
+04. Anne Chris - Skyscraping(   Читать дальше...   )Жанр: Bossa Nova, Balearic, Easy Listening, LoungeПродолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839F10BBB9C07A75EA21E220AF5D26EF7C56F85E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142054   (643109) от 14.06.2017
+
+VA - Trance Runner - Episode Five (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Air-T - Moments Of Life (Radio Drive Mix)  3:09
+02.  Philip Mayer - Darkside (Radio Edit)  4:04
+03.  Surisan - Where Have You Gone (Trancephonic Radio Edit)  3:07
+04.  DJ Rosso - I Will Try (Radio Edit)  3:12(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4C0C4ACF098D501C9666A93F5B8BA9A14444C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292770   (643085) от 31.03.2019
 
 VA - Back To The Trance (2019) [MP3|320 Kbps] <Trance>
@@ -684,64 +742,6 @@ VA - Chill House Ibiza 2017 (Finest Chill House Music) (2017) [MP3|320 Kbps] <Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36F5C9C0FFF121B0CEC09236B16862EBFDADF00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142633   (641061) от 15.06.2017
-
-VA - Ibiza Beach Chill House Club Party Del Mar (2017) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterhour FlicFlac - Into Silence - Beach Summer Ibiza House Mix
-02. Beachsurfer Reloaded - Beachball - Extended Del Mar Version
-03. Robin Rhodes - Falling in the Ocean - No Chainsmokers Mix
-04. Dimitrova Burak - Balkan Express - Bucovina Yeter Clubmix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655A1D0BF66174CF2AD3187E62DE13F03DC1C00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142710   (641060) от 15.06.2017
-
-VA - Bifrost (Compiled by Erot) (2017) [MP3|320 Kbps] <Electronic, Ambient, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Periskop – Horizon (08:08)
-02. Erot – In a Distant Dream (Live Edit) (06:50)
-03. Erot – Empty Thoughts (One Arc Degree Live Edit) (06:28)
-04. One Man Orchestra – Tranquility (Erot Remix) (08:26)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 01:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A88860B046B76329EE00435CF31D09080AE368
 ```
 
 https://mybot314.ru/tekegram_catalog/

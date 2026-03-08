@@ -1,3 +1,61 @@
+###  Публикация: 1407626   (462431) от 09.09.2020
+
+VA - Midnight Man: Tribute to Songs and Sounds of Michael Cretu (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Rein - Angel 07 (4:16)
+02. Octolab - Samurai (Did You Ever Dream) (4:14)
+03. RetroTeque & MJ feat. Louise Marchione - The Different Story (World Of Lust And Crime) (4:24)
+04. Eurotix - Midnight Man (3:23)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDAB2210F7F4E26533B5A5B614607F57F9F06B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059303   (462276) от 04.10.2016
+
+VA - Electro Housearrest Of ADE (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Meyers - Play House (Vocal Edit) (5:41)
+02. Brothers - My Battle (Trvpers Mix) (feat. Ranieri) (4:44)
+03. G-Pol, Saint Valentine & Strell - Klondike (4:40)
+04. Nathalie Vanessa - If You Really Want Me (Jay Outback Instrumental Mix) (5:46)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5461C6B9CEDCF1CCC465A5850BD88C9EC1BC270B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407852   (462186) от 09.09.2020
 
 VA - Cafe Bhutan (2020) Avatar Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Tribal, Downtempo, Ambient>
@@ -687,64 +745,6 @@ Zero Cult - Arabesque (2015) [FLAC|Lossless|WEB-DL]<Psychill, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E3463B02EC417F817F7AFF22C9F940D248C803C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941739   (460045) от 28.09.2015
-
-Paul van Dyk - Reflections (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk feat. Second Sun - Crush (Original Mix) (7:46)
-02. Paul van Dyk feat. Vega4 - Time of Our Lives (Original Mix) (4:23)
-03. Paul van Dyk feat. Jan Johnston - Like a Friend (Original Mix) (3:53)
-04. Paul van Dyk - Reflections (Original Mix) (7:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B887FDFDFEF6EAEC0E4198034DF165924D746F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568427   (459933) от 09.08.2022
-
-Laserdance - Ambiente (1991) [OGG|480 Kbps] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459933.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Galactic Dream 5:05
-2. Moon Dusk 5:24
-3. Cosmic Revanche 5:32
-4. Voices From Another Planet 5:54(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627FD7DCA2B66339D42CDE7042D67A6732946D12
 ```
 
 https://mybot314.ru/tekegram_catalog/

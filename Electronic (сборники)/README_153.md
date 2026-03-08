@@ -1,3 +1,38 @@
+###  Публикация: 571314   (389414) от 06.11.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #100 (2012) [MP3|320 кб/с]<Voca Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389414.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Protoculture - Cobalt (Original Mix)
+002. Serge Devant feat. Emma Hewitt - Take Me With You
+003. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
+004. Starkillers & Nadia Ali - Keep It Coming (Basto Remix)
+005. The Blizzard & Yuri Kane feat. Relyk - Everything About You (Original Mix)
+006. Tritonal feat. Cristina Soto - Everafter (Tritonal Club Mix)
+007. Will Holland feat. Jeza - Every Heartbeat (Beat Service Intro Mix)
+008. Roger Shah feat. Inger Hansen - Dance With Me (Extended Mix)
+009. Sean Tyas feat. David Berkeley - Take My Hand (John O'Callaghan Remix)
+010. Sunlounger feat. Zara Taylor - Try To Be Love (Roger Shah Naughty Love Mix)(   Читать дальше...   )Продолжительность: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2836162CDA5924022704FA6610984A38DFF41908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173859   (388932) от 13.10.2017
 
 VA - Private Lounge - Autumn Session Vol.3 (2017) [MP3|320 Kbps] <Lounge , Deep House>
@@ -749,35 +784,6 @@ VA - Summer Melodies Vol. 8 (2022) [MP3|320 Kbps] <Electronic, House, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD5FB9C8CA608E2A80193B6753EE6AA9E948C9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068407   (383082) от 31.10.2016
-
-VA - Extra Trance: Bonus [10] (2016) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lostly - Galaxy of Blue (Extended Mix) (6:38)
-02. Solarstone - Herald (Transwave Remix) (7:26)
-03. Darren Porter - Human (Extended Mix) (7:05)
-04. Formal One & Sarah Lynn - In Winter (Progressive Mix) (4:36)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9343AD853F988F5F006ACB558A166C282ACC8AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

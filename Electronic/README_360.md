@@ -1,3 +1,58 @@
+###  Публикация: 1184510   (299434) от 18.11.2017
+
+VA - Chilling Process Vol.04 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Seven24 & Soty - Vision (Vocal Mix) (feat. Angel Falls)  4:41
+02.  Dmitry Lee'O - Like A Sky (Original Mix) (feat. Svetlana Silverfoxx)  5:15
+03.  Erase & D - Tears (Original Mix)  5:44
+04.  Sad Radio On Cassini - You Have To Be A Perfect Man (Original Mix)  2:43(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD71602C6083F42C49388FD0B1259EF0348A4D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025333   (299092) от 13.11.2020
+
+Unknown Reality - Discography 51 Releases (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Psychill, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silently (05:31)Тип издания: WEBЖанр: Psybient, Ambient, Psychill, Downtempo •Продолжительность: 10:48:13 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A185C8E1D937F2C0020D91E757A1CF9C57D6D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030809   (299074) от 13.11.2020
 
 Kruder & Dorfmeister - Discography 18 Releases (1993-2020) Studio !K7, G-Stone [FLAC|Lossless|tracks+.cue, tracks] <Dub, Downtempo, Drum n Bass, Breaks, Trip-Hop>
@@ -688,64 +743,6 @@ VA - Lounge Season: New Year Party (2016) [MP3|320 Kbps] <Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5D5B98A9D8D97223C52AB2F4C91428430E097C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078906   (298213) от 02.12.2016
-
-NX-Trance - CY 3000 (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cy 3000 (Introduction) (1:16)
-02. Will See (Original Mix) (8:53)
-03. Xcite (Nxt Techlifting Mix) (8:24)
-04. Never Be Yours (Original Mix) (5:12)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3A469252C64B96B8E7DC47A3CFDDD959D8CD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078809   (298138) от 02.12.2016
-
-Deadmau5 - W:/2016ALBUM/ (2016) [MP3|320 Kbps] <Downtempo, Electro House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4ware (08:39)
-02. 2448 (06:25)
-03. Cat Thruster (05:36)
-04. Deus Ex Machina (06:31)(   Читать дальше...   )Жанр: Downtempo, Electro House, Progressive HouseПродолжительность: 01:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5721228A4651C0B760B60C61FD3B1CB376598EED
 ```
 
 https://mybot314.ru/tekegram_catalog/

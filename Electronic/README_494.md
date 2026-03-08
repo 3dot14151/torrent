@@ -1,3 +1,61 @@
+###  Публикация: 1766254   (101253) от 17.12.2024
+
+VA - Extrema Global Music - Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kohta Imafuku - Paradiso (04:30)
+02. Fisco & Shaka - Freeman (03:14)
+03. Spy - Dark Star (03:22)
+04. Db Mokk & Dny'l - I Still Breathe (03:23)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EF22053DB6620F801E47594E67C44E443BEB82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766705   (101230) от 20.12.2024
+
+VA - This is Ablazing 2024 (Mixed & Selected by Rene Ablaze) (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rene Ablaze - Red Sea 2030 (Ron with Leeds Extended Remix) [08:12]
+02. Afterus - More (Extended Mix) [05:50]
+03. Last Soldier & Farnoodex - Rugged (Extended Mix) [07:32]
+04. Derek Ryan - Wild (Rene Ablaze Extended Remix) [06:17](   Читать дальше...   )Жанр: TranceПродолжительность: 04:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86C3CA1F410FE3C15C51ED8288AF99D92E8B007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766701   (101228) от 20.12.2024
 
 VA - Alter Ego Progressive - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progressive>
@@ -681,64 +739,6 @@ Markus Schulz - Global DJ Broadcast Classics Showcase 20th Edition (2024-12-26) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65A30505EA080930FD46B3FFF1F838E5EF3C2A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769458   (100679) от 28.12.2024
-
-VA - Reason II Rise: Uplift Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TP One & D`Arcangel - Jade Eyes Of Asia (Mixed) [05:02]
-02. Mike Van Fabio - Love Of Yesterday (Mixed) [03:45]
-03. Kaselia & N-sKing - Endless Horizon (Mixed) [04:54]
-04. Laucco - Yinghu (Mixed) [04:26](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73C4B1745B5D314744F701065D210C0442DAFD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769444   (100668) от 28.12.2024
-
-VA - DANCE CUBE 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DEEP INJECTION - Unspoken (03:02)
-02. Dj D.A.N.I. & M3SSDI3N3R - Welcome To The Clockwork Show (02:43)
-03. ElektroHerz - Fernglas (R3Wind Remix) (02:46)
-04. Wright & Davids - Darkness Night (02:52)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C352CD24CDE52AE0A3C94D8DEDFA237F8ABCBB4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

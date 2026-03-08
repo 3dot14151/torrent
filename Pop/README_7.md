@@ -1,3 +1,61 @@
+###  Публикация: 1609818   (1042859) от 05.02.2023
+
+VA - Romantic Collection. Volume 3 (1997) [OGG Vorbis|480 Kbps] <Pop Rock, Swing, Blues Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beatles — Yesterday
+02. The Platters — Only You
+03. Lois Armstrong — Go Down Moses
+04. Frank Sinatra — Stranges In The Night(   Читать дальше...   )Жанр: Pop Rock, Swing, Blues RockПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B5B88A948D89085D94500A19B024CD07E3E8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609969   (1042856) от 05.02.2023
+
+Chilly - Devils Dance (1983) 2023 Reissue, Remastered, Unofficial [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devils Dance
+02. One Moment One Second
+03. Love On The Rebound
+04. Peep Peep(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832898A3436C54DA7F7C8E77C85C6DA7416DE163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437002   (1042555) от 03.01.2021
 
 Karizma Duo - Late Night Karizma (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -688,64 +746,6 @@ VA - 80s Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D27EDFF57D74DD1856B62F907E2B7C1EA1FECC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611635   (1041040) от 12.02.2023
-
-Secret Service - Secret Mission (2022) [FLAC|Lossless|image + .cue] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Mission 3:33
-02. How Can I Get Over You 4:05
-03. You Stole My Heart 3:43
-04. Jane 3:09(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4274F49CA4DF9CAA2984ED68C70BF435B58F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438581   (1040890) от 09.01.2021
-
-VA - Italian Classics (1998) 2CD [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice - Per Elisa
-02. Alan Sorrenti - Tu Sei L'unica Donna Per Me
-03. Antonello Venditti - Buona Domenica
-04. Toto Cutugno - Soli(   Читать дальше...   )Жанр: PoрПродолжительность: 02:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E93EB4C1DC8DA26360474A5EC88B0BBE7717CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

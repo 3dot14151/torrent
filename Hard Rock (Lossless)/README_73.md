@@ -1,32 +1,3 @@
-###  Публикация: 1583477   (229070) от 15.10.2022
-
-Jaded Heart - Heart Attack (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Red Skies [00:03:39]
-02. Sweet Sensation [00:03:49]
-03. Heart Attack [00:03:27]
-04. Harvester Unknown [00:04:58](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E530FE38B64F69FA7A166E5970380868BCF9A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268026   (229039) от 09.12.2018
 
 Scorpions - Blackout (1982) 2018, Remastered, Reissue [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -745,6 +716,35 @@ Love - Reel to Real (1974) 2015, High Moon Records [FLAC|lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5126C6A43E16E6FB375917BC3AC099F31A5736D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651014   (224161) от 04.08.2023
+
+Mammoth WVH - Mammoth WVH II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alt.Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_224161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right? [00:04:30]
+02. Like a Pastime [00:03:45]
+03. Another Celebration at the End of the World [00:04:35]
+04. Miles Above Me [00:04:02](   Читать дальше...   )Жанр: Hard Rock, Alt.Rock, Post-GrungeПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992E18A98DD2BAB46DC47840B237A7BA10BB524D
 ```
 
 https://mybot314.ru/tekegram_catalog/

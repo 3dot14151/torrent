@@ -1,3 +1,90 @@
+###  Публикация: 1499571   (846313) от 03.10.2021
+
+Jerro - Coming Home (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Home (3:52)
+ 02. Too Weak (4:01)
+ 03. Sweeping (4:04)
+ 04. Lost for Words (feat Panama) (3:19)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep HouseПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E515388B9939FCA492AB9479ACE002A6281233CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378683   (843138) от 27.04.2020
+
+Booka Shade - Galvany Street (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Indie Pop, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digging a Hole (4:41)
+ 02. Numb the Pain (4:25)
+ 03. Magnolia (1:41)
+ 04. Broken Skin (4:47)(   Читать дальше...   )Жанр: Electronic, Tech House, Indie Pop, DowntempoПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E00A6E7095EA62DF48EA5441E37BBC45FCA64F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112791   (841543) от 09.03.2017
+
+lorian MSK - Le Vacarme De Diavel (2016) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L Insondable Grandeur De L Ombre (08:55)
+02. Resonances Tourmentees Du Comte De L Aube (07:43)
+03. Dissonances Letargiques (09:13)
+04. La Portail De La Coisee Des Vents (08:06)(   Читать дальше...   )Жанр: Techno, Psy-Trance, MinimalПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66342B48892B4BDE1411E24229CA9AC93138FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003352   (841493) от 04.04.2016
 
 Moderat - III (Box Set, 3CD, Limited Edition) (2016) [FLAC|Lossless|tracks+.cue] <Techno, IDM, Electro, Experimental>
@@ -654,93 +741,6 @@ U96 - Das Boot (1992) [FLAC|Lossless|image + .cue] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28B7A7B560E523F8F6DC3AF6F09302D81D2ADAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006530   (826985) от 12.04.2016
-
-U96 - The Dark Matter EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Of The Rose [04:18]
-02. Dark Matter [04:02]
-03. Human Cosmic [04:17]
-04. Run With It [05:29](   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 00:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A3781332DA0FBD204CD791C1C8271B17181F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502660   (826512) от 15.10.2021
-
-Tiesto - Together Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oohla Oohla (2:23)
-02. Money (2:50)
-03. I’ll Take You High (2:52)
-04. Be Something (2:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5363F9D4AC462186AE0197508CB46A92135037CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006878   (825477) от 13.04.2016
-
-The New Deal - Mercury Switch (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark One (4:51)
-02. Mercury Switch (7:03)
-03. Very Good Then (3:56)
-04. Eazy Lazy (6:18)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D16A552B571BBE9C4435E71ED8FD0AC36D3283
 ```
 
 https://mybot314.ru/tekegram_catalog/

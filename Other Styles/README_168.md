@@ -1,3 +1,38 @@
+###  Публикация: 460011   (94941) от 29.02.2012
+
+VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Pruess - Waiting For The Beloved (07:28)
+02. Ranga - Phoenix (04:33)
+03. Deliter - Yellow Mandala (08:36)
+04. Bhakta - Third Eye (06:41)
+05. Chinmaya Dunster - Hanuman In New Delhi (04:15)
+06. Rasa - Jaya Radha (08:28)
+07. Niladri Kumar - Dhun (Raga Bhairavi) (09:22)
+08. Tanmoy Bose - Communion (04:04)
+09. Chinmaya Dunster & The Celtic Ragas Band - Wedding In Kotree (05:09)
+10. Galactic Agents - Kailash Baba (04:52)(   Читать дальше...   )2004Жанр: New Age, Meditative, RelaxПродолжительность: 01:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04822FF0AE94C86D9C27DA9469208A05D77023EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457630   (94708) от 26.02.2012
 
 Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
@@ -187,41 +222,6 @@ Kiss The Anus Of A Black Cat - 6 albums (2005-2012) [mp3|320 kbps] <Neofolk, Apo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61EA4D30E8E291E9C01490A2FCC2F04D822107DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485299   (89613) от 20.04.2012
-
-The Days of the Trumpet Call - 5 albums (1999-2010) [FLAC/APE|Lossless] <Neoclassical, Martial Industrial, Neofolk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Days of the Trumpet Call - Das Ewige Begrabnis (03:47)
-02. The Days of the Trumpet Call - Rendez Vous (04:04)
-03. The Days of the Trumpet Call - Viriato (02:54)
-04. The Days of the Trumpet Call - Nevoeiro (02:19)
-05. Von Thronstahl - The Musicians Of Our Time (04:26)
-06. Von Thronstahl - Flut, Trance, Traum, Nacht (04:50)
-07. Von Thronstahl - Interregnum (03:16)
-08. Von Thronstahl - O Quinto Imperio (03:10)
-09. Von Thronstahl - O Encoberto - The Concealed (03:30)
-10. Von Thronstahl - O Encoberto - The Hidden One (03:26)(   Читать дальше...   )1999-2010Жанр: Neoclassical, Martial Industrial, NeofolkПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEB88808A9B304BD3E85BA8FC3B44FA9AF956F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

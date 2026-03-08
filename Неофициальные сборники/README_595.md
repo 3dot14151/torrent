@@ -1,3 +1,177 @@
+###  Публикация: 1345224   (167249) от 14.12.2019
+
+VA - House Garden Music: Edm Extended Mix (2019) [MP3|320 Kbps] <House, Electro, Edm>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167249.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nevermore - Sleep (Original Mix)
+002. Silkwolf - Mothertown
+003. Moshic - Cabalana
+004. Funk Manifesto - Light Of Day(   Читать дальше...   )Жанр: House, Electro, EdmПродолжительность: 10:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3621286C1BF5E1C314DCA41F064BB953D9D45F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431394   (167081) от 13.12.2020
+
+VA - 90's Best Eurodance: New Years Edition 2021 (2020) [MP3|320 Kbps] <Eurodance, Euro-House, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167081.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Snap! - Oops Up (Vocal Version) [6:21]
+002. 2 Unlimited - Tribal Dance (Extended Rap) [5:12]
+003. Cappella - U Got 2 Let The Music (Pagany KM 1972 Mix) [5:25]
+004. Masterboy - I Got To Give It Up (Get Away Mix) [6:03](   Читать дальше...   )Жанр: Eurodance, Euro-House, Electronic, DanceПродолжительность: 18:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C15D5D8F4C62A328721660879687D37144BCEAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431347   (167076) от 13.12.2020
+
+VA - Новый год 2021 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юрий Шатунов - Утренний снег (6:02)
+02. Дискотека Авария - Новогодняя (DJ Fazzer Radio Remix) (4:32)
+03. Лэйна - Новый год (4:22)
+04. Алмас Багратиони - С Новым Годом (4:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F3EEDD892749FFAE23DE6095E3B73E534641AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345185   (166856) от 14.12.2019
+
+VA - Remixes 2020 NNM (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam - Нелегальная (2:52)
+02. Anella feat Arash vs Struzhkin vs Tarantino & Dyxanin- Chori Chori (DJ ZIROV MASH) (3:47)
+03. B.O.B Feat. Hayley Williams - Airplanes (Soul Beast Remix) (2:39)
+04. Billy Ray Cyrus, Lil Nas X - Old Town Road (Remix) (2:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9077CE7226C4E7D68E988B0C0EF331E87301D729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345493   (166636) от 15.12.2019
+
+VA - Hot Dancehall Pool Party (2019) [MP3|320 Kbps] <Dancehall, Riddim, Reggaeton>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166636.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Snipa - Shatta Style
+002. Dj Bullet - Yo Mele Raboday
+003. Clevience - Tek Bwoy Gyal
+004. I-Octane - Raw Raw(   Читать дальше...   )Жанр: Dancehall, Riddim, ReggaetonПродолжительность: 05:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB768ABB1AD5C0CCE5A606A93DCE074152BABD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597372   (166619) от 14.12.2022
+
+VA - Music News vol.231 (2022) [MP3|320 Kbps] <Pop, Dance, Soul>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. SZA - Love Language (03:04)
+ 002. 4K - Эй Молодой (03:08)
+ 003. 3333 feat. Леонид Агутин - Последний Трек (03:10)
+ 004. Adam Lambert - Ordinary World (03:20)(   Читать дальше...   )Жанр: Pop, Dance, SoulПродолжительность: 05:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5395C060C75A4B175088001C010798A5DC183B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345452   (166586) от 15.12.2019
 
 VA - Record Super Chart 617 (2019) [MP3|320 Kbps] <Pop, House, Dance>
@@ -571,180 +745,6 @@ VA - Record Super Chart 11.12.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:420772D4E9E270087D1F1BB3F63DC30FF07F1542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673474   (165037) от 01.11.2023
-
-VA - Saxophone Dreamsound (2023) [MP3|320 Kbps] <Jazz, Saxophone, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165037.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Lengwood - You're Beautiful [03:31]
-002. The Golden Saxophones - I Can't Stop Loving You [03:14]
-003. The Royal Sax Company - I Just Can' t Stop Loving You [04:19]
-004. Saxophone Dreamsound - Unfaithful [03:48](   Читать дальше...   )Жанр: Jazz, Saxophone, InstrumentalПродолжительность: 06:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB6A72ED50D1C799AB9785390EB9073FA07FE9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597852   (164891) от 16.12.2022
-
-VA - Top Dance Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Electro Pop, Indie Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta, Bebe Rexha - I'm Good (Blue)
-02. KSI, Tom Grennan - Not Over Yet (feat. Tom Grennan)
-03. LF SYSTEM - Afraid to Feel
-04. Oliver Tree, Robin Schulz - Miss You(   Читать дальше...   )Жанр: Synthpop, Disco, Electro Pop, Indie DanceПродолжительность: 01:30:49 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E103E8BC8610F433BCBB160BA6381CBE601F7384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516690   (164881) от 12.12.2021
-
-VA - 200 mp3  часть 2 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164881.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Locked Club - Devchonka (5:49)
-002. Timofey, Bartosz Brenes, Terri B! - Heaven (Club Mix) (5:19)
-003. Oxia, David Guetta - Domino (4:56)
-004. Kasablanca - Cronus (4:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19AC845A801EC334BAF2FD1B1C9F28FD11F75C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597879   (164786) от 16.12.2022
-
-VA - 100 Club Hits - Edition 2023 (2022) [MP3|320 Kbps] <Electro Pop, Dance, Future House, Groove>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164786.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Klaas - Ocean Eyes
-002. Hight - I'm with You
-003. Dino Mileta - Up
-004. The Disco Boys - Promised Land(   Читать дальше...   )Жанр: Electro Pop, Dance, Future House, GrooveПродолжительность: 04:38:14 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433578816DF4576DB9CA3C7D0C403C7235BD723D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597903   (164772) от 16.12.2022
-
-VA - Кайфуем Зиму (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164772.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artem Smile - Танцуй принцесса (1:29)
-002. ARCHI - Всё для своих (1:34)
-003. ROBBI - ТАМ GUN (1:36)
-004. IKON - Ты не та (1:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B2E55A1ECDD56A0241F6104F51DA23909E219A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346107   (164548) от 18.12.2019
-
-VA - Dark Goa Psychedelic Trance (2019) [MP3|320 Kbps] <Trance Psychedelic, Goa>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164548.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aquila - The Locals
-002. Yoake - Square Pusher
-003. Juelz - Future Facing
-004. Aphid Moon - Feed The Beast(   Читать дальше...   )Жанр: Trance Psychedelic, GoaПродолжительность: 12:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198A3CAD2A67D8196660D20BD4A0B62D12C3D1BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

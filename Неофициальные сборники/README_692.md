@@ -1,3 +1,177 @@
+###  Публикация: 1819725   (1130) от 24.09.2025
+
+VA - Buddha Bar - Premium Playlist {b} (2007-2025) [MP3|320 Kbps] <Lounge, Chill-Out, World Music>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B.A.Z - Zameen Aasman {Buddha-Bar A Trip To India, 2016}.mp3
+02. Bahramji & Mashti - All About You {A Night At Buddha-Bar Hotel, 2011}.mp3
+03. Bahramji & Mashti - Being With Your {Siddharta Budapest, 2010}.mp3
+04. Bahramji & Mashti - Jodaie Separation {Buddha-Bar - 25, 2023}.mp3(   Читать дальше...   )Жанр: Lounge, Chill-Out, World MusicПродолжительность: 07:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D958F0C5E127441D5DD7348A8F56192745627227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819877   (1033) от 25.09.2025
+
+VA - Gym Hits (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loofy, Anyma, Layton Giordani - Last Night - Anyma x Layton Giordani Remix (5:14)
+02. Steve Angello, Modern Tales - Darkness In Me (4:28)
+03. Adam Beyer, Chris Avantgarde - Desolate Lands (4:18)
+04. Swedish House Mafia - Ray Of Solar (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767861FE70C20269B3B2125309553DA1B2A8C512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819941   (989) от 25.09.2025
+
+Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Amore Vero
+ 02 - Cerco Ancora Quella Voce
+ 03 - Che Figata!
+ 04 - Tra Le Mani(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4B3C1C56D97777A1A33EC24997888C616B0668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819848   (986) от 25.09.2025
+
+Van Halen - Compilation (1978-2012) [MP3|320 Kbps] <Hard rock, Arena rock, Glam metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eruption. instrumental {Van Halen}1978
+02. Humans Being {Balance}1995
+03. Hear About It Later {Fair Warning}1981
+04. Jump {1984}1984(   Читать дальше...   )Жанр: Hard rock, Arena rock, Glam metalПродолжительность: 05:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBD1353FD73F5E86A3D57FD016F1EEA0BE7DC92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597856   (906) от 26.09.2025
+
+VA - Свежий Русский Хит от ALEXnROCK часть 12 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_906.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2022 год. Это 12я часть. Приятного прослушивания.  Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Ислам Итляшев - Ресторан
+02. Jony - Давай На Ты (Nervouss Remix Radio Edit)
+03. Subbota - Бом Бом Бом
+04. Satiba - Новый Год в Стиле Диско(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9B1AF12067EA68B9F3F239279750E35966E473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820195   (802) от 26.09.2025
+
+Reyvi - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stay With Me
+ 02 - My Woman
+ 03 - Love is a Memory
+ 04 - Crying in the Dark(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7CA8E0D2F6F5C482D4379D4B14BD31612B568A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820204   (789) от 26.09.2025
 
 Sardø - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal>

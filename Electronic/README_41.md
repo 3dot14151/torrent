@@ -1,3 +1,61 @@
+###  Публикация: 1470655   (1015635) от 17.05.2021
+
+Vladi Strecker - Sax the Night Away - Saxophone Lounge Music & Chillout Grooves (2021) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Midnight Hour (Zero O Clock Remastered Mix)
+02. Sleep on the Beach (The Bossa Cut)
+03. I Am Calling You (Dial My Number Mix)
+04. Just Be Here (Early Morning Mix)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B65DA81AA6819BCB3E7E4588A118E6B7023AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470595   (1015634) от 17.05.2021
+
+VA - Mellow Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol, Digby Jones - What I Need - Instrumental Mix (4:38)
+02. Living Room - The Hippojazz (2:45)
+03. Lounge Groove Avenue - Count the Days (4:21)
+04. Patiotic - Welcome to the Infinite Sense (2:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA5EA6D35C56BD8628B324EF82534BAAE305259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470168   (1015629) от 17.05.2021
 
 VA - EDM 2021 Ibiza Opening Party (2021) [MP3|320 Kbps] <House, Deep House, Progressive House, Big Room>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:085BF518954B0E3DBA818C05D22F0C9F3743089F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475102   (1012568) от 05.06.2021
-
-Shingo Nakamura - Best of Shingo Nakamura 03 (2019) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hakodate (Denis Laurent Remix) (Mixed) (6:15)
- 02. Tribute, Chapter II (Terry Da Libra Remix) (Mixed) (5:46)
- 03. Hakodate (Digital Sixable Remix) (Mixed) (5:38)
- 04. Move On (ft. Kazusa) (Matao Remix) (Mixed) (6:13)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01EF5A938F17DAF35D1415D0D506D36BB6FDD07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474961   (1012566) от 05.06.2021
-
-Steen Thottrup - Diversities (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One (feat Eva Scolaro) (05:49)
-02. Kisses & Flirts (03:52)
-03. Time (feat Lunamila) (05:07)
-04. Faces (feat Evamaria Linnet) (03:32)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A64AD68AC7D97D94EBB4F05696711835636425
 ```
 
 https://mybot314.ru/tekegram_catalog/

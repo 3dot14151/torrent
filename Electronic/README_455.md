@@ -1,3 +1,61 @@
+###  Публикация: 1679051   (134181) от 29.11.2023
+
+Infected Mushroom - Part of the Dream (2023) [MP3|320 Kbps] <Psy-Trance, Electro-House>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134181.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Infected Mushroom & Skazi - I Wish (Skazi edit) 04:48
+2. Omiki, Skazi & Lynn - Stay 03:40 (radio edit)
+3. Vini Vici - Damage 02:57 (radio edit)
+4. Blazy & Kathy Brauer - Hologram 07:39(   Читать дальше...   )Жанр: Psy-Trance, Electro-HouseПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA346AB53615DDBB44B215689F369BB291CA7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680725   (133839) от 30.11.2023
+
+Hiholl - Illusion Of Life.Lost Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, dark ambient, neoclassic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Is A Straight Way To Death [00:02:01]
+02. Echoes Of Departed Souls [00:04:39]
+03. Imminence [00:03:20]
+04. Masks Of Death Under The Gleam Of A Burning Sun [00:04:30](   Читать дальше...   )Жанр: Ambient, dark-ambient, neoclassicПродолжительность: 00:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2FA51F375D92802EED625A96D517490E56EC425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594424   (133764) от 26.12.2012
 
 VA - Housepital's Secret Club Weapons Vol.1 (2012) [MP3|320 кб/с]<Funky, Club House>
@@ -699,64 +757,6 @@ VA - Nothing But... Trancetopia Vol. 10 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC8FB5403F03FCD1EE6FA402828E928C140FDB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681862   (132105) от 05.12.2023
-
-VA - The Best Of Suanda Dark 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Somnia - The Edge (Extended Mix) [5:23]
-02. Tom Exo - Sidereum (Extended Mix) [6:34]
-03. Somnia - Afterglow (Extended Mix) [5:26]
-04. Trance Reserve & DaWTone - This Is My DNA (Extended Mix) [6:38](   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92FBEC1E741035BE403D22D4368DEC9CE60B467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682053   (132093) от 05.12.2023
-
-VA - Top 7 November 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gayax - Until The End (Original Mix) [6:35]
-02. Juan Almiñana Obando - Atlantis (Original Mix) [5:55]
-03. TbO&Vega - Elysian (POINoir Remix) [7:59]
-04. Masaru Hinaiji - Stairway To Heaven (Original Mix) [7:25](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698918CEC859399E4AE6B14E5A57D58755ABF5BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

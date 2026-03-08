@@ -1,3 +1,61 @@
+###  Публикация: 1607601   (1043940) от 27.01.2023
+
+Activa - Origins (2023) Expanded Edition [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Activa - For Emily (Album Mix) [3:38]
+02. Activa & Lo - Leave A Light On (Extended Mix) [8:27]
+03. Activa feat. Rolo Green & Julie Harrington - Reach Out (Extended Mix) [8:29]
+04. Orkidea - Z21 (Activa's Origins Extended Mix) [8:13](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A8A6122C052F9E017CACC1EFAAA94C5F41E32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607684   (1043936) от 27.01.2023
+
+VA - The Soundgarden: Winter Collection 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Organic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nick Newman -  A Happening  (6:39)
+02.  Oliver Harper -  Strawberry Thief  (8:12)
+03.  Dastan  -  Observer  (6:51)
+04.  Bodaishin, Thales Senses -  Chants Of Whales  (7:44)(   Читать дальше...   )Жанр: Melodic House & Techno, Organic HouseПродолжительность: 01:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA39D72570894420467DD8F681B294C9EDA04A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608041   (1043833) от 28.01.2023
 
 Hammock - Love in the Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric, Post-Rock, Ambient>
@@ -684,64 +742,6 @@ VA - Victor Special Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBE18CDF275BBE1C2BFF31CF38A8FF2642CA9BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436915   (1042774) от 02.01.2021
-
-Koan - Munchausen Trilemma (Side A.B) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Deep House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind (Koan Remix) (7:08)
-02. Commitment (Roeth & Grey Remix) (8:37)
-03. How Big Is a Blue Whale (8:46)
-04. Thawed Sounds (8:54)(   Читать дальше...   )Жанр: Electronic, Ambient, Deep House |Продолжительность: 01:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C8A9F4AFF422059C5426AFB7F7B1C6FC68D475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436867   (1042728) от 02.01.2021
-
-David Guetta - United at Home - Paris Edition from the Louvre (2020-12-31) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN ft. Lanie Gardner - Dreams
-02. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
-03. Jack Back - Performance
-04. David Guetta & MORTEN & Lovespeake vs. Fatboy Slim - Save My Life vs. Sunset (Bird Of Prey) (David Guetta & MORTEN Edit)Жанр: Electro House, Progressive HouseПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFEC223EC5D67EE2458F110FAA7F0A44EE70D9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

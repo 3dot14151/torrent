@@ -1,3 +1,64 @@
+###  Публикация: 1704750   (114030) от 06.03.2024
+
+VA - Live @ RAI, Amsterdam Dance Event (2023) [MP3|320 Kbps] <Melodic House, Progressive House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114030.jpg" />
+</div>
+
+
+###  Подробнее
+
+DubVision @ IDEM (All Ages Show), RAI, Amsterdam Dance Event 2023-10-21:
+01. DubVision - ID (Intro Edit)
+02. DubVision & Jem Cooke - Take Me To Another World (DubVision Festival Mix) w/Jamie Lewis ft. Michael Watford - For You (Put Your Hands Up In The Air Acappella)
+03. DubVision vs. Corona - P.R.O.G.2 vs. The Rhythm Of The Night (DubVision Mashup)(   Читать дальше...   )Жанр: Melodic House, Progressive House, TechnoПродолжительность: 00:45:49
+01. Citadelle & Clér Letiv - Emptiness
+02. Citadelle - Pilot (Feel Tonight)
+03. Citadelle & Aramis - Fading Out (Faye Mia Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7AF4A42CD9A60915885102099D8424483742F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705360   (113899) от 08.03.2024
+
+VA - Armin van Buuren - A State Of Trance 1163 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Bayer & Rob Tirea - Fear Of Losing You
+02. Ahmed Helmy - Turn Off Your Conscious
+03. Das Pharaoh & Ginchy - Dot Matrix (Progressive Pick)
+04. Devloe & Daniel Pinho - Athon(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2FB2D095660D9E888A6AFECB7A92EE13E62DC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707200   (113428) от 15.03.2024
 
 Armin van Buuren - Tomorrowland Friendship Mix (2024-03-14) [MP3|320 Kbps] <Trance>
@@ -687,64 +748,6 @@ Pretty Pink - Live @ DxB Boat Party Dubai, United Arab Emirates (2024-03-23) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A59AAAD656ED1B1071ABA7DE031489C0022B727B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719826   (110312) от 03.05.2024
-
-James Grant & Jody Wisternoff - Live @ Anjunadeep London, Roundhouse London, United Kingdom (2024-03-09) [MP3|320 Kbps] <Progressive House, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. The Chemical Brothers - Escape Velocity (Ezequiel Arias Remix)
-03. ID - ID
-04. Dosem - Beach Kisses (2023 Mix)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6C3928814D5291DB236D017132AA3D50A3C316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720347   (110311) от 03.05.2024
-
-VA - Armin van Buuren - A State Of Trance 1171 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & D.O.D ft. Laura Welsh - By Now (Tune Of The Week)
-02. Joris Voorn & AVIRA - The Orange Theme
-03. Mhammed El Alami & EGGSTA - Through An Avalanche
-04. Protoculture - In Bloom (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C707C65D9D7414424AF58841FDDE083911C3179
 ```
 
 https://mybot314.ru/tekegram_catalog/

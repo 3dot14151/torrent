@@ -1,3 +1,177 @@
+###  Публикация: 993156   (897769) от 04.03.2016
+
+VA - Tropical Beach: Ibiza Progressive Trance (2016) [MP3|320 кб/с] <Progressive Trance, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897769.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Myde - Castle In The Sand (Radio Edit) 03:27
+002. 4 Strings - Illumina (Original Mix) 05:17
+003. Aeden - Traveler (Radio Cut) 03:45
+004. Addliss - Care For You (DJ Ives M & DJ T.H. Radio Cut) 03:26(   Читать дальше...   )Жанр: Progressive Trance, Club, ElectroПродолжительность: 07:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F8EC7B98B1F467A21C782F8011B2566B82E53B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991512   (897767) от 04.03.2016
+
+VA - Minimal Party (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaboo - Ducking
+02. Alberto Bandiera - He He He (DJ Ciruzz Remix)
+03. Zareh Kan - No3287 (Beats Sounds Remix)
+04. Uriel Lakost - Minimal India(   Читать дальше...   )Жанр: HouseПродолжительность: 02:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2838675E924A471BAF3F5B6A3A67B689B95134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100798   (897709) от 05.02.2017
+
+VA - Зимний Хаус Калейдоскоп ТОП 50 (2017) [MP3|320 Kbps] <House, Deep House, Nu Disco, Tropical House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bravve Feat. Li'Raw vs. DJ Romeo & Anton Liss - Love That Goes Around [05:07]
+02. Coldplay Feat. Avicii & Syntheticsax - A Sky Full Of Stars (DJ Legran & DJ Alex Rosco Remix) [06:44]
+03. Maroon 5 Feat. Nicki Minaj - Sugar (Jack & Coke Remix) [04:23]
+04. Part Of Me Feat. Froya - Loan You My Eyes (Patrick Podage Remix) [06:44](   Читать дальше...   )Жанр: House, Deep House, Nu Disco, Tropical HouseПродолжительность: 04:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C06C46794652E63D3C8CBE0317F920F3F6BBE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761155   (897680) от 27.02.2014
+
+Phil Collins - 25 Best Songs (2014) [MP3|~245 кб/с]<Progressive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Air Tonight 1981
+02. Another Day In Paradise 1989
+03. One More Night 1985
+04. Everyday 1993(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F2E77B322D48A7F3D5BB287FC15C52FD1740E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993043   (897647) от 04.03.2016
+
+Va - Top Eurodance Tunes (2016) MP3 (2016) [MP3|320 кб/с] <Pop, Dance, Eurodance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Garden - And She Said (Eurotrance Remix)
+02. Basement Three - Catch Your Wave
+03. Housecream - Still Not Sorry (Remix)
+04. Asya - Like a Dream(   Читать дальше...   )Жанр: Pop, Dance, Eurodance, HouseПродолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A0F2EC528F3E14FE1190386E5540DCEBC25578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993144   (897585) от 04.03.2016
+
+Леонид Азбель и Катенька Дроздовская - Старая Одесса (2001) [MP3|320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Иволга
+03. Перебиты, поломаны крылья
+04. Однажды сценку я наблюдал(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0FF58597676804597B2FA1B38D4EEE279F90FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992678   (897582) от 04.03.2016
 
 VA - Vocal Trance Seduction Vol 7 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
@@ -570,180 +744,6 @@ VA - Девочки продолжают танцевать (mixed by Dj V) (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9DA876484589B6AAD902622E1B7231D1D2C5A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101428   (895686) от 06.02.2017
-
-VA - Имена на все времена. Застольные песни (2016) [MP3|320 Kbps] <Ретро, Поп>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  А.Герман - Надежда  3:43
-02.  И.Кобзон - На тебе сошелся клином белый свет  3:28
-03.  О.Воронец - Расцвела под окошком белоснежная вишня  3:39
-04.  Е.Камбурова - Шумел камыш  5:39(   Читать дальше...   )Жанр: Ретро, ПопПродолжительность: 04:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62AA642361FCFF30E5AF3E1CDF70BA96D121653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993439   (895677) от 05.03.2016
-
-VA - Шоферской Хит (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей И Светлана Сухачёвы - 5 Минут Прощания
-02. Юрий Герляйн - А за окнами дождь
-03. Александр Кирсс - А За Поворотом
-04. Евгений Коновалов - Автоколонна 1948(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF139EC06779C8C8E39603E5093F4AA3695B828F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993457   (895665) от 05.03.2016
-
-VA - Калина Красная (Шоферской Спецвыпуск) (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Добронравов - Дом
-02. Михаил Сурский - Городские Фонари
-03. Сборная Союза - Мы С Тобой Вечорили
-04. Александр Забазный - Деревенские Страсти(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E773A51DEECAAB966EB9FC1D064777B273B43763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993465   (895536) от 05.03.2016
-
-VA - Зажигательный музыкальный отрыв (2016) [MP3|320 кб/с] <Pop, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895536.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Herby — Waht A Feels (Original Mix) (08:34)
-2. Derek Howell — Lickety Split (Original Mix) (08:13)
-3. Florence & The Machine — You've Got the Love (123XYZ Bootleg Mix) (08:10)
-4. Rotan — Venus (Rotan Remix) (07:55)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 09:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF5984F0DCC9916E07DBA7B2A3B45CB8D55BFC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993658   (895534) от 05.03.2016
-
-VA - Smooth and Sexy - Premium Jazz Grooves (2016) [MP3|320 кб/с] <Jazz, Chill Out, Lounge>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De el Mar a la Luna (Jazz Loungebar Mix) - Vladi Strecker
-02. It's a Good Life (Sax Mix) - Bar Blue
-03. Honeytrap (Keys and Trumpet Mix) - Noise Boyz
-04. Blown Away (Acoustic Mix) - Orange Music(   Читать дальше...   )Жанр: Jazz, Chill Out, LoungeПродолжительность: 05:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FCCBBB993EFB88A7D32159B51856C1842B1F6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993683   (895477) от 05.03.2016
-
-VA - Best of Piano and Acoustic Guitar: Spa Music for Yoga Massage and Healing (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Miller - Lizzie's Rhapsody
-02. Meadowlark - Gratitude
-03. Relaxation Guitar Maestro - Soft Moonlight
-04. Robin Miller - In Loving Hearts(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A0D78289FF52897FFFDAD3DCD04A6C35A238E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

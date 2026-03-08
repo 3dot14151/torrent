@@ -1,3 +1,177 @@
+###  Публикация: 1299595   (241512) от 15.04.2022
+
+Rainbow - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starstruck
+02. Catch The Rainbow
+03. L.A. Connection
+04. Fool For The Night(   Читать дальше...   )Жанр: RockПродолжительность: 03:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B159DD7718B0B0F5767837FD8606C9B40D16BDF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625186   (241418) от 09.04.2023
+
+VA - Record Super Chart 08.04.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto - Lay Low (2:33)
+02. Oliver Tree feat. Robin Schulz - Miss You (3:26)
+03. Miley Cyrus - Flowers (3:20)
+04. The Future X - This Kind Of Love (2:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C190B90217B5EBBB504E24D877FD33AF16D332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625679   (241349) от 11.04.2023
+
+VA - Discotheque Miss Soul (2023) [MP3|320 Kbps] <Jazz, Soul, R'B>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241349.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. George McCrae - Mechanical Body [02:52]
+002. Robert Finley - Make Me Feel Alright [03:44]
+003. Arlo Parks - Hurt [03:36]
+004. Swamp Dogg - Good, Better, Best [02:50](   Читать дальше...   )Жанр: Jazz, Soul, R'BПродолжительность: 06:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C9201BD7FB7E5FB92F5AFC19E3B4C030DA42AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119792   (241340) от 29.03.2017
+
+VA - Music For Everyone - Club House Vol.5 (2017) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241340.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gigamesh - The Music (Original Mix)
+2. Christofi feat. Malia - Higher (Original Mix)
+3. Ed Sheeran - Shape Of You (DJ Denis Rublev & DJ Anton Remix)
+4. L'Tric - This Feeling (JUUN Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF849BBE988402B13135B8829C987B217A67519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569813   (241339) от 15.08.2022
+
+VA - В машине с музыкой Vol.296 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5sta Family - Дистанция (02:34) 2022
+02. Julian Lennon - Lucky Ones (04:42) 2022
+03. Антон Небо  - Из - За Таких Как Ты (02:13) 2022
+04. Маргарита Лисовина  - Я Буду Любить (03:04) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5F25D3A805C3C255247FBF7AAA33CA94BE4B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618610   (241328) от 12.03.2023
+
+Болот Байрышев - Shaman's Dance (2022) [MP3|256-320 Kbps] <Ethnic, World Music, Горловое пение>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alas [02:31]
+02. Altin-Tuu [09:13]
+03. Ancestors' Call [06:09]
+04. Destiny Lake [04:12](   Читать дальше...   )Жанр: Ethnic, World Music, Горловое пениеПродолжительность: 02:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1EC4BBB9CBD1BA5C0E3E44B8F3F03F698E733B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544739   (241225) от 16.04.2022
 
 VA - Дискотека 2022 Dance Club Vol. 211 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,180 +745,6 @@ VA - Rule Number On Dancehall Mixtape (2023) [MP3|320 Kbps] <Reggae, Dub, Danceh
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47BE447F6C275EA4136D89E7B0ED0C5F4988FB1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571449   (240123) от 21.08.2022
-
-VA - Юрий Шатунов и другие... (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юрий Шатунов - А лето цвета (4:03)
-02. Андрей Картавцев - А любовь не при чём (3:42)
-03. Milen - Ночь седая (3:46)
-04. ФЕДЯ - Белые розы (3:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3480E11344AF8F03D5E88A6141580E74B1AE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571514   (239946) от 22.08.2022
-
-VA - The Best of Dance (2022) [MP3|320 Kbps] <Europop, Dance, Deep House, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Claver - Play It Good (Original Mix)
-02. Dusty Rockers - On My Mind (Original Mix)
-03. The Street Dancer - Anymore (Original Mix)
-04. Joseph Ferrero - How You Movin (Original Mix)(   Читать дальше...   )Жанр: Europop, Dance, Deep House, ClubПродолжительность: 01:22:22 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A28B8CD3067B356E2B4E0CFD3350BF2CC689B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627062   (239943) от 18.04.2023
-
-VA - The Morning Mist (2023) [MP3|320 Kbps] <Ambient, Meditation, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239943.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ian Hawgood - Call Me When The Leaves Fall [01:55]
-002. Rhucle - Lost My Way [02:24]
-003. Relief - Tor [02:26]
-004. Laraaji - All Pervading [02:32](   Читать дальше...   )Жанр: Ambient, Meditation, RelaxПродолжительность: 11:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C3DC0C5F93E26AF090A956B23EE102D6960F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627297   (239927) от 18.04.2023
-
-VA - Motivation Mix 4 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supermode - Tell Me Why - MEDUZA Remix (8:28)
-02. FISHER - Yeah The Girls (6:22)
-03. GENESI - Everything You Have Done - Meduza Edit (5:39)
-04. Mau P - Drugs From Amsterdam (5:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F101D97482EEF7900742ED295383E5D957D9057D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635355   (239899) от 25.05.2023
-
-VA - Alright Feelings Dances (2023) [MP3|320 Kbps] <Dance, Synthpop, Electro House, Hip-Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Collini / Tough Love - Love Goes (Extended Mix)
-02. Collini / Spooner Street - La Vida (Leonardo La Mark Remix)
-03. Collini / Titus1 & Travis Lydian & Andy Villa - Second Hand Love (Re-rub)
-04. Collini / Todd Terry, Tobtok & Richard Judge - All Of Me (Future Kings Extended Remix)(   Читать дальше...   )Жанр: Dance, Synthpop, Electro House, Hip-HopПродолжительность: 05:51:07 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D376098B52DA1792BBE1ADE31F04625101C26DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571535   (239897) от 22.08.2022
-
-VA - TOP Non-Stop 2010-2019 - Progressive House (2022) [MP3|192-320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burhan Yuksekkas - Awaking (2013) (4:54)
-02. Christopher Fafa - 05.20 A.M. (Diego Ferran's 'deep mix', 2016) (6:09)
-03. Kaito Aman - Comand Ashtar (2019) (9:24)
-04. Santini & SpeakOf - Melodrama (2018) (5:30)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 10:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F579A9296D5B9A18A6F56B01603944A18638C930
 ```
 
 https://mybot314.ru/tekegram_catalog/

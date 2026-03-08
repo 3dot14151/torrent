@@ -1,3 +1,61 @@
+###  Публикация: 1849589   (1054007) от 26.01.2026
+
+VA - Sounds of the 70s (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. December, 1963 (Oh What a Night!) - Frankie Valli & The Four Seasons  - (03:20)
+ 02. Feel like Makin’ Love (2015 Remaster) - Bad Company  - (05:15)
+ 03. Right down the Line - Gerry Rafferty  - (04:28)
+ 04. Right Back Where We Started From - Maxine Nightingale  - (03:12)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D53F162B83AE056F00B1EF291D9CE8EEC380EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849397   (1053768) от 23.01.2026
+
+VA - Best Of The 70s. (2006) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heat Wave - Boogie Nights (3:42)
+02. Atlanta Rhythm Section - So Into You (6:53)
+03. Taste of Honey - Boogie Oogie Oogie (5:24)
+04. Stephen Bishop - On And On (3:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95CFF649459BD0A94F6CDE4A4E516FD83A8BF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849620   (1053688) от 24.01.2026
 
 2 Unlimited - Get Ready! (1992) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
@@ -687,64 +745,6 @@ Blue - Reflections (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:209C7904FFC75BBC889BC5B232C332C05003C746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847119   (1052086) от 11.01.2026
-
-VA - ДЖЕМ Дискотека 85/98 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Технология - Нажми на кнопку (4:28)
-02. Мираж - Я жду тебя (4:12)
-03. Сталкер и Андрей Державин - Не плачь, Алиса! (4:35)
-04. Дмитрий Маликов - Ты одна,ты такая (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 02:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A49773098254F710BDF0553BB51186BF7BFF0D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847118   (1051941) от 10.01.2026
-
-VA - ДЖЕМ Дискотека 85/98 (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Технология - Нажми на кнопку (4:28)
-02. Мираж - Я жду тебя (4:12)
-03. Сталкер и Андрей Державин - Не плачь, Алиса! (4:35)
-04. Дмитрий Маликов - Ты одна,ты такая (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 02:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D4DE84966CB6140C2D1B4DE8126DEFA67096FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

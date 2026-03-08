@@ -1,3 +1,32 @@
+###  Публикация: 1479362   (1009538) от 24.06.2021
+
+VA - HGM: Deep House Project June (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mundos Sutis - Something Elegant
+002. Deeperwalk - Back Home
+003. Truvor - Broken
+004. Cup & String - No Pressure(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B79200295347718A241B0A5EBBB3DBE74678F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480271   (1009050) от 28.06.2021
 
 VA - Music Cloud: Synthetic Party (2021) [MP3|320 Kbps] <Electronic, Synthetic, Synthvawe>
@@ -716,35 +745,6 @@ VA - Record Super Chart 24.07.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:229B3473D5F65FB1BCAFE5EC75D2455625CD6C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486521   (1004604) от 01.08.2021
-
-VA - Beatport Psy Trance: Sound Pack #321 (2021) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004604.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rugrats, Cosmic Illusion - Successful Digits
-002. Psykoveda - Equilibrium Point
-003. Magic Mizrahi - Existence
-004. Need One - Under The Shadow(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D951FFC522B2BD1A8CAAEA6B2316BB7941C534CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

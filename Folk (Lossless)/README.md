@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857829   (1060040) от 07.03.2026
+
+Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Do You Like Me Now?! [0:03:29.05]
+02. When Love Fades [0:03:07.25]
+03. Blue Bedroom [0:03:30.12]
+04. New Orleans [0:04:13.53](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:41:04.733 (108 694 740 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EB9509EC8463CD445092F57627D5AA6353CACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856526   (1058980) от 01.03.2026
 
 Phil Vassar - Shaken Not Stirred (2004) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
@@ -715,35 +744,6 @@ Leonard Cohen - Popular Problems (2014) [FLAC|Lossless]<Contemporary folk, Soft 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E595AC3E693FD766F63A049757B867C37C352168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658858   (987773) от 22.01.2020
-
-Gipsy Kings - Volare: The Very Best Of The Gipsy Kings (1999) [FLAC|Lossless] <Flamenco, Latin>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volare (Nel Blu Di Pinto Di Blu) - 3:39
-02. Bamboleo - 3:24
-03. Djobi Djoba - 3:25
-04. Bem, Bem, Maria - 3:04(   Читать дальше...   )Жанр: Flamenco, LatinПродолжительность: 00:75:40 + 00:75:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04360229AA315A5F9C118B9BB139F777306E0B8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

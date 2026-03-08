@@ -1,3 +1,32 @@
+###  Публикация: 1675972   (157136) от 13.11.2023
+
+Mireille Mathieu - Mireille Mathieu chante Piaf (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Shanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jezebel (3:44)
+02. La vie en rose (3:44)
+03. L'accordéoniste (3:25)
+04. Exodus (3:43)(   Читать дальше...   )Жанр: Pop, French ShansonПродолжительность: 01:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452AEF1CF8B5979121B28945084DCE60DC54D8E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967870   (157130) от 23.12.2015
 
 Marc Almond - Stardom Road (2007) [FLAC|Lossless|tracks + .cue] <Ballad>
@@ -713,35 +742,6 @@ Thomas Anders - …Sings Modern Talking: Romantic Warriors (2025) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D67B04E09C9168FB9B0FBE456EFEC50B186E4C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677324   (150649) от 17.11.2023
-
-Vaya Con Dios - Shades of Joy (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kissing Slow
-02. Shades of Joy
-03. Leaving Home
-04. La Vie(   Читать дальше...   )Жанр: Pop-JazzПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493C1FD545622B4DAE488D240D815E826BB450E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

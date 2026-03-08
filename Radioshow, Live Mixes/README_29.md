@@ -1,3 +1,58 @@
+###  Публикация: 1713746   (59946) от 12.04.2024
+
+VA - Live @ Tomorrowland Winter, France (2024) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance, Techno, Melodic HouseПродолжительность: 39:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A14150E7E6D596CB89AB47C801288514F926FC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717785   (58977) от 21.04.2024
+
+Korolova - Live @ Tulum Jungle, Mexico (2024-04-04) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonas Saalbach & Guzy - Take Me Away
+02. TH;EN & Carlo Whale - Say It
+03. Monastetiq - Dnipro
+04. Anyma - Pictures Of You(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D99B35FEE7DE97E7728CCB3304F7B11FB6F0D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707961   (56060) от 19.05.2024
 
 VA - A State Of Trance Festival, Ahoy Rotterdam, Netherlands (2024) [MP3|320 Kbps] <Trance, Techno, Melodic House>
@@ -684,61 +739,6 @@ CERERA - CERERA pres Echo Of The Universe #022 Live @Zig Zag 25 Years 14 02 (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:922A4B1381A36B9FFE8B4BD24B9EE5022BD07A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762626   (36031) от 26.11.2024
-
-Korolova - Live @ Bali, Indonesia (2024-11-22) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RÜFÜS DU SOL - Pressure
-02. Argy & Omiki & Son Of Son - RITMO
-03. Rivo - Last Night
-04. Korolova & EYNKA - ID(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2547BF00B17D64EA13CBB50B98DDE66E79B7A280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763813   (35319) от 03.12.2024
-
-VA - Amsterdam Music Festival, Johan Cruijff ArenA, Netherlands (2024-10-19) [MP3|320 Kbps] <Progressive House, Hard Dance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive House, Hard Dance, TechnoПродолжительность: 08:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791920F9D9BCF48871ADEA2DC802F359A7B03316
 ```
 
 https://mybot314.ru/tekegram_catalog/

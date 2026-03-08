@@ -1,3 +1,32 @@
+###  Публикация: 1853698   (1056612) от 14.02.2026
+
+Austen Starr - I Am The Enemy (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remain Unseen
+02. Medusa
+03. I Am The Enemy
+04. Read Your Mind(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274E7E39598945722F2ABABD18B02116EE1B225E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853654   (1056605) от 14.02.2026
 
 Красная Плесень - Платиновый альбом (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
@@ -716,35 +745,6 @@ Wicked Smile - When Night Falls (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B47DD476A0D1DC72B5BBCE17429D258FD1C2006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852065   (1055982) от 07.02.2026
-
-ЗакЛинания - Омуты сознания (2026) [MP3|320 Kbps] <Punk, Grunge, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Сквозь 5:06
-02 - Белым 3:59
-03 - Мираж 3:11
-04 - Мысли в моей голове 2:48(   Читать дальше...   )Жанр: Punk, Grunge, PsychedelicПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67A46DA06E2F517AD74B7AD5596C9926F1DC9D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

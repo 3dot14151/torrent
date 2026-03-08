@@ -1,3 +1,177 @@
+###  Публикация: 1079472   (290158) от 06.12.2016
+
+Медвежья икра - Сборник (2010-2015) [MP3|128 Kbps] <Рок, фолк>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. И на камнях растут деревья (256 Kbps)
+02. Кен и Барби (256 Kbps)
+03. Весна (256 Kbps)
+04. Камни (256 Kbps)(   Читать дальше...   )Жанр: Рок, фолкПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AAB2D9FF224E4A38D40F67CE51A9BF37C6ED67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080131   (290150) от 06.12.2016
+
+VA - Jamiroquai - Best275z (1993 - 2013) [MP3|320 Kbps] <Acid Jazz, Funk, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Virtual Insanity 05:41
+02 Deeper Underground 04:43
+03 Love Foolosophy 03:48
+04 Corner of the Earth 05:40(   Читать дальше...   )Жанр: Acid Jazz, Funk, ElectronicПродолжительность: 03:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F5315F0EEF801B4F4FC57272E89EF4EBFE5F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263168   (290013) от 18.11.2018
+
+VA - Record Super Chart 562 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fisher  -  Losing It
+02.  Gaulin  -  Moonlight
+03.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+04.  Rompasso  -  Ignis(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4154C1C8AC657C3E34317C2D5328AFE1B3BC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263189   (289904) от 18.11.2018
+
+VA - Empire Records - Saloon (2018) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aretha Franklin - Good Times
+02. Nina Simone - Gimme A Pigfoot
+03. Richard Freitas - Piano Man's Heat
+04. Professor Longhair - Every Day, Every Night(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 02:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C6EE4CC19113A018CBA0FF72D484F6BDA1E25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185937   (289822) от 23.11.2017
+
+VA - German Top 100 Single Charts 24.11.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289822.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bausa - Was du Liebe nennst
+002. Camila Cabello - Havana (feat. Young Thug)
+003. Ed Sheeran - Perfect
+004. Post Malone - rockstar (feat. 21 Savage)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ACA53BA3576D6FFDA93A03761DF2AF0D999ECFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263117   (289769) от 18.11.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 16.11.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Calvin Harris & Sam Smith  -  Promises
+02.  KAZKA  -  Плакала
+03.  David Guetta feat. Sia  -  Flames
+04.  Loud Luxury feat. Brando  -  Body(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7B19266C2E3A91E23753DC11C79AAD36458A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079819   (289652) от 06.12.2016
 
 VA - Новогодний хит-парад. Новинки (2016) [MP3|256-320 Kbps] <Pop>
@@ -576,180 +750,6 @@ VA - По волне моей памяти 2: Том6 (Compiled by Виктор3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A16160025E13CCA74193E40B6EDECBFB172D226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186308   (287961) от 24.11.2017
-
-VA - По волне моей памяти 2: Том7 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Самоцветы  -  Олимпиада-80 6:04
-02.  Лейся песня  -  Я так и знал 3:24
-03.  Земляне  -  Маленький кораблик 5:03
-04.  Синяя птица  -  До свадьбы заживет 4:34(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079DE5950E1B0F5312466EB33E5BA8FFFC88D5C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186205   (287959) от 24.11.2017
-
-VA - По волне моей памяти 2: Том5 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Наутилус Помпилиус  -  Взгляд с экрана 4:26
-02.  Здравствуй, песня  -  Старый костёр 4:16
-03.  Ансамбль 'Фестиваль'  -  Мой друг-художник и поэт 5:39
-04.  ВИА 'Музыка'  -  Там далеко-далеко 3:20(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C9A48D3B320DE912D0A7DAE6DC9FBA56545BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335354   (287878) от 02.11.2019
-
-VA - German Top 100 Single Charts 01.11.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey
-02. Apache 207 - Roller
-03. Apache 207 - Wieso tust Du dir das an?
-04. Apache 207 - 200 km/h(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAA8B24EEB2C2E401E77B907AA4A080805DC189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263386   (287814) от 19.11.2018
-
-VA - Jazz Symphonic (2018) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287814.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Steven Taetz Feat. Sonia Johnson - Meet in Montreal
-002. Annabel - Circles
-003. Pete Beardsworth - To The Place
-004. Richard Spaven - Spin(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 10:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55AA10FDA28F5B75E4647E55006E4B2B9E3E32D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263495   (287796) от 19.11.2018
-
-VA - The Landscape Of Pleasure (2018) [MP3|320 Kbps] <Ambient, Downtempo, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287796.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Relaxraum - Cascaya
-002. Stergios - Regeneration (Piano Mix)
-003. Jean Hoyoux - Troisieme Hymne
-004. Ladamar - Meunwa (Radio Edit)(   Читать дальше...   )Жанр: Ambient, Downtempo, InstrumentalПродолжительность: 10:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E06AC083FF9773FEF467209934E1798E245DA3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263415   (287634) от 19.11.2018
-
-VA - Mastermix Pro House: Cool Dance Hit (2018) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287634.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christian Monique - Wind Of Passion
-002. Carlprit Ft. Edwan - My Kind Of Trouble (Radio Edit)
-003. Beatghosts - Spell (Radio Mix)
-004. Beckers - Radiation (Original Mix)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABD59856E3898A4A16C087FA0C0AC84BD6F36D26
 ```
 
 https://mybot314.ru/tekegram_catalog/

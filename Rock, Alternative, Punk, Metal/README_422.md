@@ -1,32 +1,3 @@
-###  Публикация: 905271   (651734) от 05.06.2015
-
-Ozric Tentacles - Technicians Of The Sacred (2015) 2CD [MP3|320 кб/с]<Psychedelic, Progressive, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epiphlioy
-02. The Unusual Village
-03. Smiling Potion
-04. Rubbing Shoulders With The Absolute(   Читать дальше...   )Жанр: Psychedelic, Progressive, Space RockПродолжительность: 01:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A4EC30E0CBBD99665E442F1C3BC2BD27C4767F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905044   (651733) от 05.06.2015
 
 Trixter - Human Era (2015) [MP3|320 кб/с]<Melodic Hard Rock>
@@ -749,6 +720,35 @@ Marc Bolan & T. Rex - Star King (2021) Remastered Version [FLAC 2.0|44.1/24|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71FF16902B2B0AF9C55648542249FA6FE077850E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291897   (650603) от 27.03.2019
+
+Whitechapel - The Valley (2019) [MP3|320 Kbps] <Deathcore, Alternative Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When a Demon Defiles a Witch
+02.Forgiveness Is Weakness
+03.Brimstone
+04.Hickory Creek(   Читать дальше...   )Жанр: Deathcore, Alternative Metal, Groove MetalПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64707E29BC8564F896DD04A0EB4AD91D9E94CE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

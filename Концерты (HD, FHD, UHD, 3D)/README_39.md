@@ -1,3 +1,38 @@
+###  Публикация: 588262   (156800) от 13.12.2012
+
+Hammerfall: Gates of Dalhalla (2012) [1080p] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_156800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сто тридцати пяти минутное шоу, которое группа дала 28 июля в честь своего пятнадцатилетия в Шведской деревушке Rattvik снял Шведский режиссер Patric Ullaeus.01. Patient Zero
+02. Heeding The Call
+03. Any Means Necessary
+04. B.Y.H.
+05. Riders Of The Storm
+06. Let's Get It On
+07. Crimson Thunder
+08. Renegade
+09. Blood Bound (special guest: Stefan Elmgren)
+10. Last Man Standing (special guest: Stefan Elmgren)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:21:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588773   (156516) от 13.12.2012
 
 DJ Tiesto in Concert 2003 (2012) BDRip 720p
@@ -709,32 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A194640B3729F5CB835E5A8211263F1AB9AFF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519753   (146589) от 25.12.2021
-
-The World of Hans Zimmer: A Symphonic Celebration - Hollywood in Vienna 2018 (2021) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертный Blu-ray Ханса Циммера под названием ''World of Hans Zimmer: Hollywood in Vienna'' был записан в 2018 году в классическом концертном зале Вены, по случаю вручения композитору 10-й премии Макса Штайнера за достижения в области киноискусства. Прозвучали известные оркестровые композиции из фильмов, частично специально переделанные им, совместно с Венским симфоническим (   Читать дальше...   )Производство: Германия / DWTC BalgavyЖанр: Musical ScoreРежиссер: Питер РэбинджерАктеры: Martin Gellner, Lisa Gerrard, Valentina Nafornita, Pedro Eustache, Luis Ribeiro, Eliane Correa, Rusanda Panfili, ORF Vienna Radio Symphony Orchestra, Neue Wiener StimmenПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6916D6747F4742D11D69A15F6DF5D67A2A791097
 ```
 
 https://mybot314.ru/tekegram_catalog/

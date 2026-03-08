@@ -1,3 +1,32 @@
+###  Публикация: 1056190   (484007) от 24.09.2016
+
+VA - Body Pump #1 - Best of Workout (2016)  [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light In Color - Take Cover 05:27
+02. David K (Ger) - In Love : In Love (Robin Schulz Remix) 06:49
+03. Acido Domingo - Lagerfeuer 05:08
+04. David K (Ger) - Open Eyes 06:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E8A5F6D8C7B548586B3D3338AE92CA48E06546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244584   (480045) от 02.09.2018
 
 VA - EDM Bass Running (Workout Music) (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
@@ -738,41 +767,6 @@ Mobbing (Alle Benassi) - Rock the dog (2008) [MP3|320 кб/с]<Electro House, Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34B06F62838555AF727CCF7393E78519EACD0135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548464   (463331) от 20.09.2012
-
-VA - DJ Antoine - Live In Bangkok (2008) [MP3|~190 кб/с (V2)]<Electro House / House / Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Antoine - Back From The Tour 2:25
-02. DJ Antoine - December (Original mix) 3:05
-03. DJ Antoine - Bangkok Street Party (Every Sensation) (Original mix) 3:08
-04. DJ Antoine - On My Way (Original mix) 3:42
-05. Remady "P&R" - I"m Not A Superstar (Mr.Pink remix) 2:50
-06. DJ Antoine - One Night In Bangkok (Original mix) 3:12
-07. DJ Antoine - Figaro (Original mix) 2:59
-08. Remady "P&R" - What Ever (Gated Vocal edit) 2:38
-09. DJ Antoine - Don"t You Hide (Original mix) 3:25
-10. DJ Antoine vs Mad Mark - Be Yourself (Original mix) 5:05(   Читать дальше...   )Жанр: Electro House / House / Progressive HouseПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879645B879D43D5DFC777C5E8C3E8D3AE09D6A98
 ```
 
 https://mybot314.ru/tekegram_catalog/

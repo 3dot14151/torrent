@@ -1,3 +1,61 @@
+###  Публикация: 1428873   (178205) от 04.12.2020
+
+VA - Armada Music 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loud Luxury & Frank Walker feat. Stephen Puth - Like Gold
+02. Armin van Buuren feat. Duncan Laurence - Feel Something
+03. Lost Frequencies, Zonderling & Kelvin Jones - Love To Go
+04. Brando - Don't Call Me(   Читать дальше...   )Жанр: Melodic House, DanceПродолжительность: 03:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD32A7AC79C68B1F2238824330C9F155E7A361A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667039   (178194) от 06.10.2023
+
+VA - Milk & Sugar House Nation Ibiza 2023 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milk & Sugar & Jens Lissat - Can U Hear Me (Extended Mix) (5:57)
+02. Reza & Kroose - In the House Tonight (Extended Mix) (5:39)
+03. Andre Espeut & Alaia & Gallo - Unify (Extended Mix) (6:45)
+04. Earth n Days - In My House (Extended Mix) (5:08)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C894A2B0FCEFBAFD9EBAB6B8E25747375F96AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666959   (178070) от 06.10.2023
 
 V.A. - Vintage Cafe – The Remixes Vol. 1-2 (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Pop,>
@@ -687,64 +745,6 @@ MEDUZA - Live @ Our House, Hi Ibiza, Spain (2023-09-29) [MP3|320 Kbps] <Tech Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A22D7745B119D88EBEEF56F9A6DE4BF1BFBCB814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667859   (175307) от 10.10.2023
-
-Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Due Sono Uno A Roma
-02 – Sin Retorno
-03 – Pensar No Es Sentir
-04 – Los Viernes Siempre Llueve(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8AFC76427C95EC33F41F0F65E611873FE363E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595669   (175103) от 06.12.2022
-
-Menschdefekt - Recombination (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Futurepop>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:57]
-02. Violence (No End In Sight) [00:05:04]
-03. Emptiness [00:04:21]
-04. Hurt [00:04:58](   Читать дальше...   )Жанр: Dark Electro, EBM, FuturepopПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468C8B3B915F08960BC8F125020F24028B6A07AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

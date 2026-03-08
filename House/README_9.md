@@ -1,3 +1,32 @@
+###  Публикация: 1105072   (878127) от 16.02.2017
+
+VA - EDM Invasion 5 (2017) [MP3|320 Kbps] <House, Electro House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Phun & Key - System Crash (Radio Edit)  3:05
+02.  Ronny Rox - Let's Go (Radio Edit) (feat. Tony T)  3:06
+03.  Ali Deger & Blackjax - I'm Spartacus (Radio Edit)  3:44
+04.  Derek Faze - Escape (feat. Avari) (Radio Edit)  3:30(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 02:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE45FBC802BD64863523A879AD71E9CFB0383DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996996   (877681) от 15.03.2016
 
 Gai Barone - Towards (2016) [MP3|320 кб/с] <Progressive House>
@@ -714,35 +743,6 @@ VA - House Ladies Vol.1 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC3C9ED270A1A030FEA044DEDD606F877726F1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108743   (861077) от 26.02.2017
-
-VA - Deep House Connection Vol.2 Night Selection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861077.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zhukhevich - Flowers Energy 3:44
-002. Chris Coulen - S.M. 4:21
-003. Andrey Butuzov & 7Sky Project - Empty Streets - Original Mix 4:05
-004. The Mord - New Year in City Deep 4:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01A5F9C1B2056DEFCE827D0DE192A6F30F3DACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

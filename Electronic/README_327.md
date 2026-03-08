@@ -1,3 +1,61 @@
+###  Публикация: 1175873   (375987) от 19.10.2017
+
+Paul Van Dyk - From Then On (2017) [FLAC|Lossless|WEB-DL] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. While You Were Gone (feat. Vincent Corver) 5:20
+02. Inhale (feat. M.I.K.E. Push & Fred Baker) 6:41
+03. Touched By Heaven 7:29
+04. I Am Alive 4:38(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B30D541772F268389D7487A956B1188D7C3FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175694   (375854) от 19.10.2017
+
+VA - Porno Traxx - Amsterdam ADE (2017) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Antoine Clamaran & Agua Sin Gas - Keep On (Original Mix)  6:30
+02.  Charles J - Balkan (Original Mix)  5:04
+03.  Crazibiza - Banana Pop (Stormasound Remix)  4:25
+04.  Chicco Secci - African Vanilla (Original Mix)  6:51(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69ADD3D301BB4B4B76825F4196B398AE08ECB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327505   (374619) от 25.09.2019
 
 Star Inc. - Earthborn: Modern Synthesizer Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synth-pop>
@@ -675,64 +733,6 @@ Jean-Michel Jarre - Oxygene Trilogy (2016) [FLAC|Lossless|tracks + .cue] <Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ED82D977808C14EEFF838829C9F828CFF41F62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950022   (372572) от 25.10.2015
-
-Сикрет Сервис (Secret Service) - Когда Наступает Ночь (When The Night Closes In) (1986) Vinyl LP [MP3|320 кб/с]<Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночной город (03:34)
-02. Давайте ещё потанцуем (04:24)
-03. Наша песня (03:29)
-04. Ты помнишь (03:25)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2917B22CFBF8D1CF427243A5BC82B70A08F21DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327635   (372568) от 26.09.2019
-
-Ahmed Romel - RUYA (2019) [FLAC|Lossless|WEB|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahmed Romel - Be My Eyes (Original Mix) (3:39)
-02. Ahmed Romel - Dystopia (Original Mix) (5:13)
-03. Ahmed Romel - Vanya (Original Mix) (3:54)
-04. Ahmed Romel & Simon O'Shine - The Love Potion (Original Mix) (4:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D168592DD1831A2209D749F535F3236BD12AC39
 ```
 
 https://mybot314.ru/tekegram_catalog/

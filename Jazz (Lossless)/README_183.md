@@ -1,3 +1,32 @@
+###  Публикация: 1249013   (438023) от 22.09.2018
+
+Arianna Neikrug - Changes (2018) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Moon at All [4:49]
+02. Spring Can Really Hang You Up the Most [6:09]
+03. Let's Stay Together [5:16]
+04. Changes [4:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F55169B209E9F55C7EA0FF38D464DD9BE30A99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249019   (438018) от 22.09.2018
 
 Katica Illenyi & Friends (2017) IKP Music [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -716,35 +745,6 @@ Lars Erstrand Trio & Quartet - The Complete Songs (2005) Opus 3 [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B366C75C9314055CEC7FC73FE6A9AF0C48808AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249248   (436017) от 23.09.2018
-
-JF Girard - Jazz Waves (2017) Productions Bros [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Waves [6:21]
-02. Icarus [5:37]
-03. Jour de pluie a la Satie [4:34]
-04. Belle sauvageonne [4:49](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB38D11350A12B2DBD36CE183C54FA3B15CABFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1517268   (163719) от 14.12.2021
+
+Hodel - Live @ Monday Bar (God Rave The Queen Cruise), Tallink Silja, Sweden (2021-11-06) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto vs. Mark Norman - Flight 643 Overkill (Hodel's AMS Intro Mash)
+02. Randy Katana - Play Gemini Louder (Hodel's Phat Mash)
+03. Divini & Warning vs. Fable - 4LB Nightshift (Hodel Mashup)
+04. Armin vs. M.I.K.E. - Intruder (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327B3B7ABECD6B558BE14C53327DB6858A2E3030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517284   (163705) от 14.12.2021
+
+Tim van Werd - Live @ Pyramid of Austerlitz, Netherlands (2021-12-09) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim van Werd - Come Back To Me
+02. Delhia De France, Anyma, Janus Rasmussen - Claire (feat. Delhia De France)
+03. Eel1ke Kleijn - Mont Saint-Michel
+04. Tim van Werd - Tell It All(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD5CB21ABA51E412BF923809D30711739ED5E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518181   (161143) от 18.12.2021
 
 VER:WEST (Tiësto) - Tiësto's Club Life 767 (AFTR:HRS Yearmix) (2021-12-11) [MP3|320 Kbps] <Progressive House, Deep House>
@@ -684,64 +742,6 @@ VA - Armin van Buuren - A State Of Trance 1149 (2023) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44BF282212EAB0BFAFD65710B6D82BCE5629745D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681140   (133028) от 02.12.2023
-
-Korolova - Tomorrowland Friendship Mix (2023-11-30) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piero Pirupa - Change Your Mind (Korolova Remix)
-02. ID - ID
-03. ARTBAT - Remember
-04. ID - ID(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C7749E56E17739637F856F428E8108B1E93558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199034   (132447) от 03.12.2023
-
-Fonarev - Эфиры радиошоу/подкаста «Znaki / Digital Emotions» (2008-2023) [MP3|128-320 kbps]<Trance, House, Breaks>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132447.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Joan Retamero - Through Revival (Ezequiel Arias Remix) /Onedotsixtwo/
-2. Juan Sapia - Magic Moon /Or Two Strangers/
-3. Emika - Battles (Eleven Sins Remix) /Soundcloud/
-4. East Cafe - Being Kind Is Overrated (Sam Heyman Rmx) /Superordinate/(   Читать дальше...   )Жанр: Trance, House, Breaks, TechnoПродолжительность: 790:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3B025BD68B3826D2EFB905818CF4942CB15783
 ```
 
 https://mybot314.ru/tekegram_catalog/

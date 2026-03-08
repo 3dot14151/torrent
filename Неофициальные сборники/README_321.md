@@ -1,3 +1,186 @@
+###  Публикация: 1037350   (613551) от 24.07.2016
+
+VA - Радио Мелодия (январь-июнь) (2016) [MP3|320 Kbps] <Поп, Ретро, Диско>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613551.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Harry Nilsson - Without You
+002 Marty Balin - Hearts
+003 Roy Orbison - You Got It
+004 Demis Roussos - Forever And Ever(   Читать дальше...   )Жанр: Поп, Ретро, ДискоПродолжительность: 08:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CAD7D24EBFF31CA118B822993D1580B9E6EEA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296231   (613457) от 16.04.2019
+
+VA - German Top 100 Single Charts 22.04.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samra - Harami
+02. Capital Bra - Cherry Lady
+03. Shindy - Affalterbach
+04. Dardan - Coco Mama(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C10ED4B3D30DE60C71C4434388421F6B6CE30C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296223   (613454) от 16.04.2019
+
+VA - The Official UK Top 40 Singles Chart 12.04.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved (3:02)
+02. Lil Nas X - Old Town Road (1:53)
+03. Billie Eilish - bad guy (3:14)
+04. Calvin Harris, Rag'n'Bone Man - Giant (3:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECB3988E43E9D498DF115BE06F6D519DC65BEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037504   (613357) от 24.07.2016
+
+VA - Guitar Collection 6 (2016) [MP3|320 Kbps] <Instrumental, Acoustic, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613357.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tomoyasu Hotei - Dark Wind    02:48
+002. Nick Johnston - Ghost of the Robot Graveyard    05:14
+003. Chequerboard - Like A Bell To A Southerly Wind    04:26
+004. Mike Howe - Summer Road    03:12(   Читать дальше...   )Жанр: Instrumental, Acoustic, RockПродолжительность: 07:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD56B0A79B2BB39974C2FB64288F7588C448741B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037025   (613344) от 24.07.2016
+
+VA - Hits of My Soul Vol. 07 (2016) [MP3|320 кб/с]<Dance, Electronic, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки, разных жанров.
+Его должен услышать каждый кто хочет насладится: яркими, эмоциональными, красивыми, нежными, и атмосферными треками.
+Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественною музыку.01. Avicii & Conrad Sewell - Taste the Feeling (03:11)
+02. TIK - Люби Ти Україну (Tapolsky & The Jackass Remix) (04:45)
+03. Home - Resonance (03:33)
+04. Chromatic - Jaw Dropper (Gutter Brothers Remix) (03:06)Жанр: Dance, Deep House, Electronic, House, Hip-hop, Pop, Trap, TranceПродолжительность: 04:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7B285E8C63D5658F9D84092A9AF70DB58519E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524284   (613202) от 18.07.2012
+
+VA - Electro Life 18 (by ZiP) (2012) [MP3|320 kbps]<Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Armin Van Buuren - We Are Here To Make Some Noise (Maison Dragen Remix)
+02 - Bodybangers ft. Victoria Kern - Gimme More (Extended Mix)
+03 - Camel - Greysound Remix
+04 - David Guetta ft. Flo Rida & Nicki Minaj - Where Them Girls At (Extended Mix)
+05 - DJ JIM & Extasy Project ft. Timo - Very Good (Extended Mix)
+06 - DJ Satellit & Marlena vs. Narcotic Thrust - Я люблю (DJ XM Remix)
+07 - DJ Solovey - Time For Music (Original Mix)
+08 - EDX ft. John Williams - Give It Up For Love (Mysto & Pizzi Remix)
+09 - EmSlice vs. Denga - So Sexy (Club Mix)
+10 - Florida - Whistle (DJ Micaele & Moscow Club Bangaz Remix)Жанр: Electro House, Dubstep, Electro Progressive, DanceПродолжительность: 02:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907DCF8886F0864640FCEBB6567F8D919FD0CB21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146709   (613074) от 30.06.2017
 
 VA - Pacific Trance Vol. 06 (2017) [MP3|256-320 Kbps] <Trance, Progressive Trance>
@@ -577,186 +760,6 @@ VA - Ballads for Lovers Vol.2 (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F21F10097F13C35804D109D344B5BA15243D35B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037846   (611879) от 25.07.2016
-
-VA - Русское радио. Летний Best (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611879.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Елена Темникова - Тепло
-002. Настя Задорожная - Условный Рефлекс
-003. Malika - Я Стала Зависима
-004. Алсу - Тепло От Любви(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE1BB377164211AAAB9302076AD355F1E1E223A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296391   (611754) от 17.04.2019
-
-VA - Dance Rotations In Motion (2019) [MP3|320 Kbps] <Club, Hands Up, Dancehall>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611754.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. StoneBridge ft DiscoVer - Not Alone
-002. Starcat - Adventures
-003. Human Pattern - Kalimbira
-004. X-ite project feat. Lynn, Raw D. - It Can Go By (Feat. Lynn, Raw D.) (Extended Mix)(   Читать дальше...   )Жанр: Club, Hands Up, DancehallПродолжительность: 08:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDDA61EF305FDD37D649E19D799D14341BFF6650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296411   (611745) от 17.04.2019
-
-VA - Billboard Hot 100 Singles Chart 20.04.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611745.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lil Nas X - Old Town Road
-002. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
-003. Post Malone - Wow.
-004. Ariana Grande - 7 rings(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A46D566E576D87951443B272504AD4A58B21DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296463   (611740) от 17.04.2019
-
-VA - Kiss FM: Top 40 (14.04) (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zivert - Life (Lavrushkin & Mephisto Remix) 3:16
-02. MARUV - Siren Song 2:51
-03. Don Diablo feat. Emeli Sande & Gucci Mane - Survive (Ozeroff & SKY Remix) 3:17
-04. Filatov & Karas - Au Au 4:13(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 02:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BB12E0C36F3FC67A43FABD49C1ADA10C193549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523872   (611692) от 19.07.2012
-
-VA - UK Top 40 Singles Chart (15.07.2012) [MP3|320 кб/с]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Florence + The Machine - Spectrum (Say My Name) (Calvin Harris Remix)
-02 Maroon 5 Feat Wiz Khalifa - Payphone (Explicit Edit)
-03 Will.i.am Feat Eva Simons - This Is Love
-04 Chris Brown - Don't Wake Me Up
-05 Stooshe - Black Heart
-06 Flo Rida - Whistle
-07 Rudimental Feat John Newman - Feel The Love
-08 Coldplay Feat Rihanna - Princess Of China
-09 Katy Perry - Wide Awake
-10 Nicki Minaj - Pound The Alarm (Explicit Edit)Жанр: Pop, Dance, ClubПродолжительность: 02:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1EA93D63053B72839116E2AD6CB3BE8E7A47C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037679   (611379) от 25.07.2016
-
-VA - Discoteka 2016 Dance Club Vol.154 (2016) [MP3|320 Kbps] <House, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611379.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rico Bernasconi & Lotus feat. Flo Rida -  Keep Playing (Filatov & Karas Edit) 3:18
-002. DJ Feel -  Bali (Radio Edit) 3:38
-003. Eric Saade feat Filatov & Karas, Gustaf Noren -  Wide Awake (Extended Mix) 4:11
-004. DJ Snake & Yellow Claw -  Ocho Cinco 3:42(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 10:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190ADE997D991FE4F81813E3E002C654B2C39992
 ```
 
 https://mybot314.ru/tekegram_catalog/

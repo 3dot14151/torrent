@@ -1,3 +1,32 @@
+###  Публикация: 840692   (333691) от 13.11.2014
+
+Richard Clayderman - The Ultimate Collection (2005) 3CD [APE|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Seasons: Spring (2:58)
+02. The Swan (3:06)
+03. Italian Symphony No 4 Sharp: Op 90 Allegro (3:56)
+04. Waltz In A Flat (3:13)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F14DACDFE97D8BA9EB14B5D385F0B1E234258A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331343   (333646) от 14.10.2019
 
 Michel Pépé - La montagne sacrée (Michel Pepe - La montagne sacree) (2019) [MP3|320 Kbps] <New Age, Relaxation>
@@ -717,35 +746,6 @@ Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FE8BBDB20325FB468539F0D16B90D88AFF1CD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957318   (327544) от 17.11.2015
-
-VA - Fast and Furious 7 (original motion picture soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kid Ink, Tyga, Wale, YG & Rich Homie Quan - Ride Out    [03:31]
-02. T.I. & Young Thug - Off-Set                             [03:14]
-03. Sevyn Streeter - How Bad Do You Want It (Oh Yeah)       [03:44]
-04. Dillon Francis & DJ Snake - Get Low                     [03:33](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A863EA48A44C489A5708203C493A2A99433A46CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

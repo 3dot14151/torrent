@@ -1,32 +1,3 @@
-###  Публикация: 1394275   (764638) от 04.07.2020
-
-Алексеевская площадь - Оставить след (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764638.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ночь
-2. Не забывай
-3. Выше
-4. Всё намного проще(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB5F3009A5F975EE4CCCA78629218AC01D2D54A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126716   (764617) от 19.04.2017
 
 Evocatus - Mortem in Deos (2017) [MP3|320 Kbps] <MDM, Thrash Metal>
@@ -739,6 +710,35 @@ Sleepsculptor - Sleepsculptor (2020) [MP3|320 Kbps] <Mathcore, Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB960982275B7E6D6CFD3D71AC6C5B2D25224100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394515   (763749) от 05.07.2020
+
+Time Thieves - Space (2020) [MP3|320 Kbps] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seasons in (Intro) (00:52)
+ 02. Flicker of Light (02:04)
+ 03. Message (02:24)
+ 04. Road (03:06)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88ABA27C83FCB617ADBC1207A9FA9FAF1A39E4F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

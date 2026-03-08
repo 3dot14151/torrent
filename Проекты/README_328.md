@@ -1,30 +1,3 @@
-###  Публикация: 968464   (155653) от 23.12.2015
-
-Проекты - VideoHive - Disintegration Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A7734E30E31B41BFFA735F65EC4865022553BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085368   (155620) от 22.12.2016
 
 Проекты - VideoHive - Editable Santa — Christmas Opener - 18817364 [AEP]
@@ -674,6 +647,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A93294B608DC49A8BC64B4029F0FDEDA52645B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968652   (152857) от 24.12.2015
+
+Проекты - VideoHive - On the Screen [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания превью к фильму.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D559D17E144EAE573E1D37CCD78CD95DE3059641
 ```
 
 https://mybot314.ru/tekegram_catalog/

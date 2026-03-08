@@ -1,3 +1,61 @@
+###  Публикация: 1439911   (1039332) от 15.01.2021
+
+Showaddywaddy - Greatest-Hits-Medley (1991?) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Showaddywaddy, Intro (1:10)
+02. Twist And Shout (1:09)
+03. Alley Oop (1:22)
+04. Three Steps To Heaven (1:07)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514BBCA47DA8AA0D9B325A49C435894B9675CA65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613211   (1039312) от 19.02.2023
+
+VA - Romantic Collection. Golden 60s (2000) [OGG Vorbis|480 Kbps] <Jazz, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Ben E. King–	Stand By Me
+02.	Everly Brothers–	Dreams
+03.	Brian Hyland–	Sealed With A Kiss
+04.	Otis Redding–	(Sittin' On) The Dock Of The Bay(   Читать дальше...   )Жанр: Jazz, Rock, PopПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF4BC90FE7B755EE90CFE3962D2C43BEE3110B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613709   (1039288) от 19.02.2023
 
 VA - Vintage Café – The Remixes (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Lounge>
@@ -684,64 +742,6 @@ VA - Keep It Disco Vol. 08 (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3FAA8B2E37625F24579B949AED76ED24B79010D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615597   (1037576) от 26.02.2023
-
-VA - Disco House Vol. 3 (2023) [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Afrobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Moy - Tribal Garden
-02. Cut Wax - A CW V1
-03. Dj Moy - NY City
-04. Phil Disco - Disco Deluxe From Tokyo(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, AfrobeatПродолжительность: 02:09:56 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E6BC0737166666709B856B8FCEBC37A6EEC2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615612   (1037574) от 26.02.2023
-
-VA - Play It!: Funky & Disco Vibes Vol. 55 (2023) CD, Compilation [MP3|320 Kbps] <Indie Dance, Funky, Nu Disco, Soulful>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K & K - Locked (Extended Mix)
-02. Stev Dive - Around (Extended Mix)
-03. Mikey Jubbly - You Are
-04. J.B. Boogie - Getting Back (Original Mix)(   Читать дальше...   )Жанр: Indie Dance, Funky, Nu Disco, SoulfulПродолжительность: 01:42:29 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B93E96C878A5075033A247175A1285410FFCE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

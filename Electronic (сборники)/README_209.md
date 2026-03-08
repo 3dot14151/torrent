@@ -1,3 +1,32 @@
+###  Публикация: 1693584   (121739) от 21.01.2024
+
+VA - Record Super Chart 20.01.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. АИГЕЛ - Пыяла (3:30)
+02. Zerb feat. Sofiya Nzau - Mwaki (Tiesto's VIP Mix) (2:40)
+03. Dezko - Ascend (3:20)
+04. James Hype feat. Kim Petras - Drums (Turno Remix) (2:59)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BAFDDCD854429085A6A8181797D6469270629E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823192   (121513) от 10.10.2025
 
 VA - VA - Compilation Part 200 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
@@ -716,35 +745,6 @@ VA - Record Super Chart 24.02.2024 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6CBB230CB8B3E5F21E0667FF8FBA1DE624D74B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703048   (115340) от 27.02.2024
-
-VA - Electronic compilation part 58 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adik - Hold Me
-02. Karimov - Magic
-03. Muvi - Impossible
-04. Adik - Rasputin(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16CBC14F9B34EEFBAD45B5C060604E67E0913BC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

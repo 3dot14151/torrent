@@ -1,3 +1,32 @@
+###  Публикация: 1008850   (813935) от 19.04.2016
+
+VA - Whatpeopleplay Top 100 Topseller March (2016) [MP3|320 кб/с] <House, Deep House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813935.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mr. Fingers - Qwazars [06:17]
+002. Frank Wiedemann - Moorthon II (Original Mix) [08:56]
+003. Borrowed Identity - Mary Jane [07:12]
+004. Soulphiction - Make it Burn [05:25](   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 11:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF293D329CC28C621937B88C4B056948CC267542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 711820   (813819) от 14.04.2014
 
 VA - Italo Super Hits vol. 1 - 17 (2014) Часть 1[MP3|171 - 320 кб/с]<Hi-NRG, Italo Disco, Synth-Pop,Spacesynth>
@@ -716,35 +745,6 @@ VA - Trance Maniacs Party -  Melody Of Heartbeat #162 (2016) [MP3|320 кб/с] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1C72F37D97F4A8EC08227246B9E7706F32BAB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009706   (808238) от 22.04.2016
-
-VA - After Midnight (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808238.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bonsugi - Under the Cool Rain
-002. Monroe Days - A Gentle Wind
-003. Cane Garden Quartet - Toca Me
-004. Baghira - Put Your Arms(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA8140B313AA5342A11B712D6460268C9BB91E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

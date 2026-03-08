@@ -1,25 +1,159 @@
-###  Публикация: 1410429   (436156) от 21.09.2020
+###  Публикация: 554568   (436245) от 01.10.2012
 
-Burning Witches - Dance With The Devil (2020) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+Танкодром (1981) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436245.jpg" />
+</div>
+
+
+###  Подробнее
+
+О создании в конструкторском бюро Министерства обороны новейших приборов ночного видения. В центре фильма — образ молодого командира танковой роты капитана Сергея Кольцова, физика по образованию, испытывающего эти системыЖанр: Военный, киноповестьРежиссер: Владимир ДовганьАктеры: Николай Сектименко, Елена Ивочкина, Анатолий Ромашин, Владимир Самойлов, Евгений Киндинов, Александр Ануров, Вячеслав Гостинский, Мурад Джанибекян, Виталий Дорошенко, Анатолий Матешко, Павел Морозенко, Николай Олейник, Виталий Розстальный, Игорь Славинский, Нина Ургант, Игорь ЧерницкийПродолжительность: 01:13:34+01:05:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550027   (436244) от 01.10.2012
+
+Григорий Палама | Триады в защиту священно-безмолвствующих [2012] [OGG]
+
+>>Обучающие аудиоматериалы
+>>Религия (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Григорий Палама (Gregorios Palamas) (1296, Константинополь, — 14.11. 1359, Салоники), византийский богослов и церковный деятель, поборник и систематизатор мистического учения исихазма, давший ему философское оформление. В полемике с представителями теологического рационализма (Варлаам Калабрийский, Акиндин, Григора) отстаивал тезис, согласно которому аскет-исихаст в состоянии экстаза непосредственно воспринимает несотворённое и невещественное излучение бога (т. н. "Фаворский свет", который, согласно Евангелию, видели апостолы на горе Фавор).  По учению Паламы и его собратьев-исихастов (Симеона Нового Богослова, Григория Синаита и других), человек, который достиг совершенства в любви, возлюбив Бога без всякого эгоизма и корысти, может посредством молитвы приобщиться к Божественной энергии, то есть живой и повсеместной действующей благодати Бога (по-гречески energeia означает действенность) и возвыситься до самого Бога, увидев воочию Свет его предвечной славы - обожиться. Многие подвижники исихазма видели (   Читать дальше...   )Жанр: История религии
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84D7DEA7FB34CEAAADE062E154319E9CA6609B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553261   (436243) от 01.10.2012
+
+Digital Juice - Editor's Toolkit Pro Singles 240: Layer Lining (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice - Editor's Toolkit Pro Singles 240: Layer Lining (High Impact Tools) - Набор анимированной графики для оформления вашего видеоматериала. Все Editor's Toolkits Pro Singles являются универсальными коллекциями абстрактной графики, с помощью которых можно легко и быстро создавать профессиональные видео-изображения высокого качества. Каждая коллекция включает анимированные фоны, видео-переходы, анимированные элементы, маски, звуковые эффекты. Все элементы с альфа-каналом и могут быть использованы в любой программе видеомонтажа.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691EAA5E4CA773438787F4EE517AE87BF80E33D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555023   (436237) от 01.10.2012
+
+Н.А.Коновалов и др. | Ручное огнестрельное оружие бесшумного боя. [2008] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436237.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии рассмотрены вопросы проектирования и экспериментальной отработки глушителей - приборов снижения уровня звука выстрела (ПСУЗВ) для автоматов. Приведены сведения об истории создания и образцах автоматов, стоящих на вооружении. Проанализированы состояние разработки и направления совершенствования конструкций автоматов. Дана информация о находящихся на вооружении силовых структур бесшумных стрелковых комплексах на базе автоматов.
+Отсутствуют страницы 32, 33, 34.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E2415C03826DE8B40E53C1DACD6F907ED6EF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410502   (436232) от 21.09.2020
+
+Allen Farnham - 5th House (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fifth House [7:20]
+02. It's Not Always Where You Think It Is [6:38]
+03. You Stepped Out of a Dream [4:49]
+04. You Know I Care [5:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA624322DDEB4162B7507D0C5907FD7755D0B8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410432   (436231) от 21.09.2020
+
+Drifter - The Demos 1985 & 1986 (2006) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436156.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 The Incantation
-02 Lucid Nightmare
-03 Dance With The Devil
-04 Wings Of Steel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:31
+Tales Of Dragonia (demo 1985):
+01. Intro / Dark Kingdom
+02. Fire Of Dragonia
+03. Drifter(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:54:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:997C24601E74F904A87B07B8370FFD5CE16544D3
+magnet:?xt=urn:btih:8E4B84736C90C21246DA34385F0A6265597AFDCE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +161,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410166   (436155) от 21.09.2020
+###  Публикация: 1410500   (436230) от 21.09.2020
 
-Overland - Scandalous (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Classic Rock>
+Duke Ellington And His Orchestra - Early Ellington (1927 - 1934) 1989, BMG Music [APE|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black And Tan Fantasie [3:11]
+02. Washington Wabble [2:51]
+03. Creole Love Call [3:13]
+04. Blues I Love To Sing [3:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3409345A6233FF4968F2E5D826721493FCDCC00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410434   (436229) от 21.09.2020
+
+Horror on Black Heels - An Empty Throne (2014) [FLAC|Lossless|image + .cue] <Symphonic Black Metal, Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436155.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don’t Give Up
-02. Never Say Die
-03. Lost In The City
-04. Closest Thing To Heaven(   Читать дальше...   )Жанр: Melodic Hard Rock, Classic RockПродолжительность: 00:48:28
+1 Her Legend
+2 ...And the Wounded God Slept
+3 Beheading the Queen
+4 Goddess Incomplete(   Читать дальше...   )Жанр: Symphonic Black Metal, Melodic Death MetalПродолжительность: 00:33:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49DD10A0EC47BA5337CE63F0AABC39C7AEA8EE83
+magnet:?xt=urn:btih:DB25AFC6CAC9233E0A3EDACBD4394F94377314A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +219,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410570   (436154) от 21.09.2020
+###  Публикация: 1410430   (436228) от 21.09.2020
 
-MC Eiht - Lessons (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+Drifter - Reality Turns to Dust (1988) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dust To Dust
+02. Reality Turns To Dust
+03. Crime Of A Lifetime
+04. Spiritual Diary Of Opression(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6572D272B2EE89DC0C8B5C871FA26626C7B85A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410482   (436227) от 21.09.2020
+
+VA - Trance Asylum Vol.9 (2020) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436154.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Get Money Man (feat. B-Real) (4:00)
-02. That's Perfect (feat. Tha Chill) (4:05)
-03. Honcho (feat. Conway the Machine & DJ Premier) (3:55)
-04. Bluue Wave (4:43)(   Читать дальше...   )Производство: Blue Stamp MusicЖанр: Hip-HopПродолжительность: 01:18:04
+01. Ariams feat. Arabax - Beatrice (Radio Edit)
+02. Oen Bearen - Effra (Radio Mix)
+03. Brent Rix - Desert Sun (Original Mix)
+04. Con Phillips - Varanasi (Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFFAF2369A67957C4466A1E06A13E22FB7955110
+magnet:?xt=urn:btih:C09317CB13355E49EB9CC2BB328BB9228DB7D9BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,215 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410536   (436153) от 21.09.2020
+###  Публикация: 1410496   (436226) от 21.09.2020
 
-CherryPlayer 3.1.5 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436153.jpg" />
-</div>
-
-
-###  Подробнее
-
-CherryPlayer - уникальный проигрыватель аудио -, видеофайлов всех популярных форматов с возможностью прослушивания и просмотра контента прямо из Интернета. Особенно удобен этот проигрыватель для таких ресурсов как ВКонтакте , Last.fm, YouTube, BBC, BillBoard, т.к. тесно интегрирован с ними и их огромными архивами.
-Кроме того, это приложение поможет загрузить понравившийся (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A37E8C9CFD5F4FEB23E03464CC5F47B8E1C53D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410579   (436152) от 21.09.2020
-
-Национальное первенство Германии по шоссейно-кольцевым автогонкам ДТМ 2020. Нюрбургринг Спринт, Гонка 1-2 / DTM. Nurburgring Sprint, Race 1-2 (2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deutsche Tourenwagen-Meisterschaft (DTM, ДТМ; Немецкий кузовной чемпионат) — немецкий чемпионат по кузовным гонкам, проводившийся в 1984—1996 годах. В свою очередь, в 2000 году чемпионат возродился как нынешний ДТМ (Deutsche Tourenwagen Masters), ввиду чего старый чемпионат также может называться «старый ДТМ».Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:32:01 + 01:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243049374E3AF68E4DE43EAE1879FDDFD1A357CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410555   (436151) от 21.09.2020
-
-Q-Dir 8.93 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
-Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6993F15723A7FA9CBBF37F8A3C12FAC3BF28A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410475   (436150) от 21.09.2020
-
-Glary Utilities Pro 5.151.0.177 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9CB6AA22A5FD0F0C145D31FB4F3D7C7810D154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410417   (436149) от 21.09.2020
-
-В. Н. Дурденевский, С. Ю. Крылов (общ. ред.) | Международное право [учебное пособие] (1947) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник в основном выполнен в 1946 году и подготовлен к печати в начале 1947 года; последняя правка, внесенная редакторами, относится к августу 1947 года.
-
-Во время печатания учебника, 15 сентября 1947 г., в Москве и Париже произошла одновременная сдача ратификационных грамот по Мирным Договорам с Италией, Румынией, Болгарией, Венгрией и Финляндией (§ 117 учебника), (   Читать дальше...   )Жанр: История, экономика, политология, дипломатия, социология, правоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC7BBC5D9DF0C61B0D1BD85BCB76C2DF806CF3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410540   (436148) от 21.09.2020
-
-Ashampoo Music Studio 8.0.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo Music Studio – полнофункциональный программный пакет, предназначенный для работы с аудиофайлами, умеющий копировать аудиодорожки на жесткий диск в форматах WMA, MP3, OGG, FLAC и WAV. Также программа позволяет пользователю создавать плейлисты, записывать диски всевозможных форматов, редактировать аудиодорожки и т.д. Программа пригодится всем, кто имеет дело (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501ED8C65DE0D8B1697BFDEE9904AF98B18165A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410425   (436147) от 21.09.2020
-
-Tritik - Irid 1.0.0 VST, VST3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Irid - это креативный плагин реверберации, в основе которого лежит специализированный алгоритм реверберации и 3 настраиваемых голоса с контролем обратной связи для дополнительной гибкости. Он выделяется великолепными текстурами и мерцающей атмосферой.
-Благодаря тщательно продуманным элементам управления параметрами Feedback, Size и Diffusion процессор реверберации (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73637C0C824ACF71F60B8B3592A29136C7C978E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410569   (436146) от 21.09.2020
-
-Kupla - Life Forms (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hip-Hop, Chillhop, Electronic>
+VA - Trance Impact Vol. 4 (2020) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436146.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eons (3:27)
-02. Heroes (2:20)
-03. A Waltz for My Best Friend (2:14)
-04. Magic (3:06)(   Читать дальше...   )Производство: ChilledCowЖанр: Hip-Hop, Instrumental Hip-Hop, Chillhop, ElectronicПродолжительность: 00:43:30
+01. Sun Liquide - New Dawn (Radio Mix)
+02. All Sandu - Pollux (Radio Edit)
+03. 7 Baltic - Galaxy (Radio Edit)
+04. André Visior & Rene Ablaze - Drawn Inside (TrancEye Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7717551116EE71D3C5BC61A56DC5EF55D279B8E
+magnet:?xt=urn:btih:B9A80DEB21ADA08465D79D9D72633AC4332616F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -301,25 +306,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 554587   (436145) от 01.10.2012
+###  Публикация: 1410431   (436225) от 21.09.2020
 
-Татьяна  Коростышевская| Невеста Кащея[2012] [FB2][TXT][JAVA (jar+jad)]
+Gwar - Blood Of Gods (2017) [FLAC|Lossless|image + .cue] <Thrash Metal, Hardcore>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436145.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2-я книга из серии "Владычица ветра"Формат: FB2,TXT,JAVA (jar+jad).
+01. War on GWAR (7:21)
+02. Viking Death Machine (4:16)
+03. El Presidente (4:21)
+04. IХll Be Your Monster (3:09)(   Читать дальше...   )Жанр: Thrash Metal, HardcoreПродолжительность: 00:55:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CA8E818578C4ED781CE65B66903DA38D831630E
+magnet:?xt=urn:btih:96EE46A82EFD4242DC4706C1791C3A99BD07076A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -327,25 +335,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 552888   (436142) от 01.10.2012
+###  Публикация: 1410509   (436224) от 21.09.2020
 
-[Рисованая графика]Иллюстратор Владимир Казак
+Master of Typing - Мастер Печати на Китайском  7.3.1 [Multi/Ru]
 
->>Графика, Арт, Разное
->>Современное изобразительное искусство
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436142.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Artworks by Владимир Казак.
+Теперь общепринятая версия Master of Typing доступна на китайском языке! Это эффективный курс ввода текста TOUCH, в котором используется самый быстрый метод ввода китайского языка - пиньинь.Тип издания: macOS SoftwareРелиз состоялся: 21.09.2020Разработчик: Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Китайский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DC9EA06B83B26801617593915AC7A9F7A3B1BF4
+magnet:?xt=urn:btih:BC3D80E7C72F6CDEAD09864437F7E104D405F0C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -353,25 +361,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 554849   (436141) от 01.10.2012
+###  Публикация: 1410380   (436223) от 21.09.2020
 
-Книжная серия | Коллекция (43 книги) [2002-2004] [FB2]
+Scrutiny 9 v9.11.0 [En]
 
->>Художественная литература
->>Многоавторские серии и сборники
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436141.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия выходила в 2002-2004 годах и включала в себя несколько подсерий, сходных оформлением. Через некоторое время на местоЖанр: ФэнтезиФормат: FB2
+Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2020Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20907CC6B37F9D3AAB4A8AE375777694FCE31382
+magnet:?xt=urn:btih:81124C4DFAD61933B28A5A1569CFBC3B65DF026C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -379,69 +388,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 554788   (436139) от 01.10.2012
+###  Публикация: 1410457   (436222) от 21.09.2020
 
-Шесть пуль / 6 Bullets (2012) [720р] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывшего наемника, получившего известность благодаря спасению похищенных детей, нанимает боец боев без правил, чью дочь во время пребывания в Молдове, выкрали торговцы людьми. Но как принять предложение и взяться за эту работу, если последняя операция по спасению похищенного мальчика закончилась смертью четырех детей? А следы торговцев людьми ведут к самой верхушке коррумпированной власти? Расправиться с преступниками, спасти девочку и побороть призраки прошлого... Такая задача стоит перед гером Жан Клода ВанДамма в новом остросюжетном фильме "Шесть пуль".Жанр: боевик, триллер, криминалРежиссер: Эрни БарбарашВ ролях: Жан-Клод Ван Дамм, Джо Флениган, Бьянка Бри, Анна-Луиза Плауман, Кристофер Ван ВаренбергПеревод: Двухголосый закадровыйПродолжительность: 01:54:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550288   (436138) от 01.10.2012
-
-VA - Kontor - Sunset Chill (2001-2012) [MP3|320 кб/с]<Ambient / Lounge / Downtempo / Chill House / Deep House / Chillout / Lo-Fi>
+VA - Trance Revolution vol.11 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436138.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD-1
-01. Lovebirds feat. Stee Downes - Want You In My Soul
-02. Alain Ho - Into A Deep (Hot Toddy Remix)
-03. Evren Ulusoy - Cherry Picker
-04. UNER - Cocoua
-05. Kollektiv Turmstrasse - Was bleibt (Jimpster Instrumental)
-06. Todd Terje - Inspector Norse
-07. Pachanga Boys - Time
-08. Kraak & Smaak feat. Romanthony - Lets Go Back (Solomun Remix)
-09. Claptone - Cream(   Читать дальше...   )CD1
-1. Bedrock - Beautiful Strange (Ambient Mix
-2. Roger Sanchez - Another Chance (Afterlife Mix)
-3. Rank 1 feat. Shanokee - Such is life (Sunday Afternoon
-4. Alex Cortiz - my favourite moment
-5. Jakatta - American Dream (Afterlife Mix)
-6. ATB with Enigma - Enigmatic Encounter
-7. LTJ X-Perience - Moon Beat
-8. Tosca - Suzuki
-9. Yoshinori Sunahara - Love Beat(   Читать дальше...   )Жанр: Ambient / Lounge / Downtempo / Chill House / Deep House / Chillout / Lo-FiПродолжительность: 03:52:33
+01. Fischer & Miethig - On The Run (Nab Brothers Radio Edit)
+02. TrancEye - Lonesome Feelings (Radio Edit)
+03. Derek Ryan feat. Melissa R. Kaplan - Ripples (Skyline Edit)
+04. Team Condura - One Hundred (Radio Edit)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:20:38
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CF9C437441A05B6A61B0542158E30B80BDEBA697
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,84 +417,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 554927   (436137) от 01.10.2012
+###  Публикация: 1410463   (436221) от 21.09.2020
 
-Шесть пуль / 6 Bullets (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о бывшем наёмнике, занимавшимся розыском пропавших детей, которому предстоит отыскать дочь бывшего бойца смешанных единоборств.Жанр: Боевик, Триллер, КриминалРежиссер: Эрни БарбарашПродюсер: Джастин Бёрш, Брэд Кревой, Патрик НьюэллАктеры: Жан-Клод Ван Дамм, Джо Флениган, Бьянка Бри, Анна-Луиза Плауман, Кристофер Ван ВаренбергПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: den904 и DeadSnoПродолжительность: 01:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386A0A85D1BF0DCE0180040F84F889280C8C81C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554210   (436136) от 01.10.2012
-
-Digital Juice - Motion Design Elements Standart 13: Line Items 2 (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice - Motion Design Elements Standart 13: Line Items 2 (Full ISO)Название: Digital Juice Motion Design Elements 013: Line Items 2
-Официальный сайт: Digital Juice
-Homepage: (not available)
-Тип раздаваемого: Video FX, Footage
-Разрешение файлов: 1080x1080 to 1920x1080 at 60 fps
-Расширение (тип) файлов: .iso (.mov)Motion Design Elements 013: Line Items - это второй сборник из библиотеки анимированных элементов Line Items, такой же полезный и гибкий как его предшественник - Volume 7. Содержит 60 линейно-ориентированного элементов с альфа-каналом. Будь это рябь из красной ленты или прозрачные стеклянные трубки, скручивание золотого металлического стержня или строки из акробатики блестящих кубиков, содержание этого сборника поможет вам замечательно акцентировать логотипы или подчеркнуть важность текста или графики. Простые, инновационные и визуально разнообразные элементы библиотеки Line Items делают работу над современными видео-проектами проще, чем когда-либо.
------------------------
-Motion Design Elements (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8583814B2598FC1C52F7E2E0DF699E46B806181A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554941   (436135) от 01.10.2012
-
-Crash Time 5: Undercover [En] (RePack) 2012 | DangeSecond
+VA - Trance Summer Season (2020) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
->>Архив Игр
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436135.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Crash Time 5: Undercover продолжает гоночную серию Crash Time и рассказывает о том, как полицейский под прикрытием пытается вывести на чистую воду контрабандистов. Во время выполнения задания, вам предстоит побывать в различных локациях, таких как горы, автобан, ипподром, стадион и других. В игре на выбор представлено около 50-ти транспортных средств.(   Читать дальше...   )Тип издания: RePackРазработчик: SyneticЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+01. Inner Heart - Strong (Original Mix)
+02. Arek Adamczyk - Invincible (Original Mix)
+03. Mix-Roman - 28 (Original Mix)
+04. FRAM! feat. ANGE - Limits (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C746250561F3978C16664A9C14A1C96E2D6F56F2
+magnet:?xt=urn:btih:30A08EBAC61EA712C69D46EBA5172EF2452F191C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,28 +446,191 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 554338   (436132) от 01.10.2012
+###  Публикация: 1410372   (436220) от 21.09.2020
 
-[Программа] (Android 2.2+) FxCamera - Наложение эффекта на фото
+Lowrider - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Desert, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red River [00:05:11]
+02. Ode to Ganymede [00:06:46]
+03. Sernanders Krog [00:08:14]
+04. Ol' Mule Pepe [00:05:01](   Читать дальше...   )Жанр: Desert, Stoner RockПродолжительность: 2 CD, 02:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56D7A27B06AC9ADA13CE44B3BA03DE43A2BA070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410520   (436219) от 21.09.2020
+
+Благовест (изд.) | Афонский цветник (2010) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издревле православные христиане стремились на Афон, чтобы научиться молитве, жизни с Богом и по Богу. Как писал иеросхимонах Сергий в «Письмах Святогорца к друзьям своим о Святой Горе Афонской»: «Если бы люди знали, если бы хоть раз испытали теплоту наших чувств, огонь той сладкой любви к Богу, в которой расплавляются сердца афонских «медведей» и, как золото в горниле, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047BD247A6A112138E51BCB06D51E21B9F0C7E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410468   (436218) от 21.09.2020
+
+VA - Trance Generator 2 (2020) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436132.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Потрясающее приложение добавляет различные эфекты вашей камере.
-Среди эффектов, поддерживаемых камерой есть следующие:
-Цветовой фильтр (ToyCam)
-Полароид
-Рыбий глаз
-Симметрия
-Эффект Уорхола
-Обычная съемкаЯзык интерфейса: ENG
+01. Domi Re - The Rider (Original Mix)
+02. DJ Sakin & Frank Kohnert - Elevation (Frank Kohnert Mix)
+03. Marky - Barracuda (Original Mix)
+04. Red-nax - Our Future (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3599C4853090C0FC3598F7C3953E5FA1B00B7A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410453   (436217) от 21.09.2020
+
+VA - Trance Love Songs (2020) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate feat. Foret - Need To Feel Loved (Original Mix)
+02. Richard Durand & Christina Novelli - Save You (Original Mix)
+03. Ciaran McAuley feat. Clare Stagg - All I Want (Original Mix)
+04. Dan Thompson with JES - Here With Me (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16C03BFFF3E5603387B40807D8E4A0A3B0AC0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410505   (436216) от 21.09.2020
+
+Master of Typing : Состязание 2 v8.5.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прими участие в соревновании на скорость набора текста!Тип издания: macOS SoftwareРелиз состоялся: 21.09.2020Разработчик: Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E91B75D0A517F7B619CC288717264C4A3F9F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410492   (436215) от 21.09.2020
+
+VA - Uplifting Trance Essentials Vol.4 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Nytigen - Illumination (Original Mix)
+02.Allan Dark - On Waves (Nytigen Remix)
+03.Micro Out - Message (Original Mix)
+04.Dan Smooth - About Life (Original Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 01:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26464C64544E6A4E3661974EDB38F335DFE8CA17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554218   (436213) от 01.10.2012
+
+Total Commander 8.01 Final [MAX-Pack 2012.9.6] AiO-Smart-SFX [RUS/ENG]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер Total Commander с лучшими плагинами и отобранными портативными (portable) программами. Популярный файловый менеджер с практически всеми необходимыми для таких программ функциями. Кроме всех функциональностей, характерных для файловых менеджеров, в Total Commander встроены очень удобные просмотрщики для мультимедиа и графических файлов, распаковщики ZIP, 7Z, ARJ, LZH, RAR, UC2, TAR, GZ, CAB, ACE и дополнительные dll для других архивных файлов; встроенный ftp-клиент, можно скачивать/закачивать файлы в несколько потоков, есть докачка, поддержка www-прокси при работе с ftp. Не будут лишними и такие функции, как UUE/MIME/XXE кодирование/декодирование и разрезка/склейка длинных файлов, а также множество других функций, крайне необходимых для работы с файлами.
+Кроме самого Total Commander, есть утилиты для настройки и слежения за работой системы, архиваторы и другие полезные мелочи.
+Универсальная сборка: при минимальном весе обладает огромным количеством всевозможнейших плагинов и доп. утилит, благодаря (   Читать дальше...   )Название программы: Total CommanderЯзык интерфейса: RUS/ENG
 
 ## Скачать торент
 ```bash
@@ -567,25 +642,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 554460   (436131) от 01.10.2012
+###  Публикация: 1571207   (436194) от 20.08.2022
 
-38-я параллель / Taegeukgi hwinalrimyeo / Tae Guk Gi: The Brotherhood of War (2004) HDRip
+Brightly Pro 2.1.6 [Multi/Ru]
 
->>Зарубежное кино
->>Азиатское кино (SD)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436131.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На фоне трагических событий корейской войны 1950—53 годов — самой кровопролитной после окончания Второй мировой, показана судьба одной семьи. Мирное благополучие, счастливые ожидания, мечты и надежды рушатся в единый миг, когда страну охватывает хаос и ужас войны. Под грохот танков, свист пуль и разрывы бомб главный герой фильма Джин-тае пытается спасти своих близких, (   Читать дальше...   )Производство: Корея ЮжнаяЖанр: Боевик, Драма, Военный, ИсторическийРежиссер: Чже-Гю КенгАктеры: Чан Дон Гон, Бин Вон, Юн-чу Ли, Хен-чжин Конг, Ён-ран Ли, Кил-Канг Ан, Джо Каппеллетти, Мин-Сик Чои, Д.С. Дуглас, Мин-хо ЧанПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 02:28:13
+Приложение Brightly Pro разработано для macOS Monterey с интуитивно понятным интерфейсом, в котором есть все функции редактирования фотографий, какие вы ожидаете, чтобы показать ваши фотографии и видео в лучшем свете, и изначально работает на компьютерах Mac с процессором Apple M1. Поднимите редактирование на новый уровень с помощью обязательных профессиональных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.08.2022Разработчик: © 2022 Code Organa LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CC56E889F2D7817D62CDD69632D9F5A7F8D1BAF
+magnet:?xt=urn:btih:5378E5B7A292FDE304C8B69239893CCC63EF7D9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,25 +668,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 554798   (436130) от 01.10.2012
+###  Публикация: 1571211   (436193) от 20.08.2022
 
-Ограбление по-бельгийски / Il etait une fois, une fois (2012) [H.264] HDRip
+Days - Countdown for Menu Bar 1.6.1 [En]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436130.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сексуальная блондинка Сесиль — девушка с богатым криминальным прошлым, находится в поисках нового «дела». Очередная жертва не заставляет себя долго ждать — мошенница положила глаз на наследного бельгийского принца Вилли, который проживает в шикарном пятизвездочном отеле в Париже. Но авантюристка сама становится жертвой обмана, зато теперь все козыри в ее руках, и (   Читать дальше...   )Производство: Франция / Canal+, TF1 Droits Audiovisuels, TF1 Films Production, Scope PicturesЖанр: КомедияРежиссер: Кристиан Маррет-ПальмарАктеры: Франсуа-Ксавье Демезон, Энн Маривин, Жан-Люк Кучар, Чарли Дюпон, Абделхафид Металси, Дидье Фламан, Ксавьер Лемэтр, Стефан Войтович, Джонатан КоэнПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:35:18
+Отслеживайте с помощью приложения количество дней до следующего важного события, удобно отображая его на видном месте в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 19.08.2022Разработчик: © 2022 Paul MasonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0AFF68B39288C76BC6CA04CA22E1298C6778B00E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,114 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 554329   (436129) от 01.10.2012
+###  Публикация: 1570858   (436192) от 20.08.2022
 
-Повар, вор, его жена и ее любовник / The Cook The Thief His Wife And Her Lover (1989) DVDRip
+Paganizer - Beyond The Macabre (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436129.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предводитель одной из преступных группировок каждый вечер приходит со своей женой и своими сообщниками во французский ресторан, который является его собственностью. Устав от постоянных издевательств и унижений со стороны мужа, жена находит себе любовника среди посетителей ресторана и занимается с ним любовью с молчаливого согласия повара...
-
-Европейская киноакадемия, 1990 год
-Номинации (1):
-Лучшая работа художника-постановщикаЖанр: Драма, Криминал, Авторское кино, Арт-хаус, ГротескРежиссер: Питер Гринуэй / Peter GreenawayАктеры: Майкл Гэмбон / Michael Gambon, Хелен Миррен / Helen Mirren, Ришар Боринже / Richard Bohringer, Алан Ховард / Alan Howard, Тим Рот / Tim RothПеревод: Многоголосый закадровыйПродолжительность: 02:04:06
+01. Down The Path Of Decay	3:14
+02. Left Behind To Rot	3:17
+03. Meatpacker	2:57
+04. Sleepwalker	3:15(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0A28425BAB01E9552ED0C6BC12154BA0DB012E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554126   (436128) от 01.10.2012
-
-Клятва / Wu ji (2005) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпоха древних распрей. Великие цари сражаются за сердце прекрасной принцессы и верховное господство над богатыми землями и миллионами жизней. Юный раб, наделенный даром «обгонять ветер», получает приказ спасти своего царя от гибели. Но судьба, предначертанная колдуньей, уготовила герою тяжелое испытание. Отважный раб защитит прекрасную принцессу, но убьет своего царя. И теперь впереди у героя суровый путь воина, на котором ему суждено сразиться за свою жизнь и за свою любовь, изведав все опасности и тайны своей великой судьбы.Жанр: Фэнтези, Боевик, ДрамаРежиссер: Чэнь КайгэАктеры: Чан Дон Гун, Хироюки Санада, Сесилия Чунг, Николас Тсе, Е Лю, Чэнь Хун, Чэн Цянь, Ксяо Вэй Ю, Чун-Сяо, Тоби МурПеревод: Профессиональный (многоголосый)Продолжительность: 02:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6670E1BD0DD0E6D46D449EB6125E8AA40CE17EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553598   (436127) от 01.10.2012
-
-Digital Juice - Motion Design Elements Standart 01: Revealers (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice - Motion Design Elements Standart 01: Revealers (Full ISO)Название: Digital Juice Motion Design Elements 001: Revealers
-Официальный сайт: Digital Juice
-Homepage: (not available)
-Тип раздаваемого: Video FX, Footage
-Разрешение файлов: 1080x1080 to 1920x1080 at 30 fps
-Расширение (тип) файлов: .iso (.mov)Motion Design Elements 001: Revealers - это сборник, состоящий из анимированных элементов дизайна, которые помогут творчески, со вспышкой, щегольством и изощренностью, выделить линейный текст или логотипы на экране, тем самым привлекая к ним глаза зрителя. Сборник содержит 100 анимированных элементов в MOV-формате с альфа-каналом, с видео-разрешением от 1080x1080 до 1920x1080.
------------------------
-Motion Design Elements 001: Revealers - Revealing the Expanding Universe. What if we put that MDE on top of the logo, instead of behind it? Of course it would obscure the logo, which defeats the entire purpose of even having a logo on the screen in the first place. But what if we animated the MDE to fade (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F01E3A101B4AEE4B7F3AE139FF4F202F1CA4320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571083   (436125) от 20.08.2022
-
-Сергей Лазарев | Диагностика кармы (Книга 5). Ответы на вопросы 1998-1999 (2022) [MP3, Сергей Лазарев]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга называется «Ответы на вопросы», и, вероятно, многие не получат ответов на то, что их тревожит. Хорошо было бы, если читатели поняли, что главное — не конкретный вопрос и не конкретный ответ. Путь к выздоровлению — это путь к Богу. И здесь чувства важнее мыслей. Когда человек концентрируется не на ощущении правильного пути, а на удовлетворении своего сознания, (   Читать дальше...   )Жанр: Психология, эзотерикаПродолжительность: 15:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3DBC145A3D314F5E6E645A757E7067E5F3FA1C
+magnet:?xt=urn:btih:9835E3992BC814A49C78FB9F97BACA2974C28D8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,33 @@
+###  Публикация: 957306   (327548) от 17.11.2015
+
+Bon Jovi - Super Rock (1984) VHSRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Bon Jovi на фестивале Japan Super Rock,
+Seibu Stadium, Tokyo, Japan, 11-08-198401. She don't know me
+02. Breakout
+03. Get ready
+04. RunawayЖанр: RockПродолжительность: 00:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967E014D1639B960ABBC83230C543389A4B6BFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956696   (327495) от 17.11.2015
 
 Дима Билан - 33 (2014) HDTVRip [H.264/1080i-LQ]
@@ -691,32 +721,6 @@ Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE7FED1E461A19167FA026B379E996836EE95CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582075   (320949) от 29.11.2012
-
-Green Day. Nuclear Family (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ROCK
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F1476174D2BDDAD5DB5716E9E8C63ED5EDC4E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

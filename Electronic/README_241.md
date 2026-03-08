@@ -1,3 +1,61 @@
+###  Публикация: 1299124   (600847) от 30.04.2019
+
+Puff Dragon - Reflections (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psychill, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zephyr (07:12)
+02. Refracted Light (07:04)
+03. Sympathetic Resonance (07:19)
+04. Cascade (07:45)(   Читать дальше...   )Жанр: Downtempo, Psychill, AmbientПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5874D271C416F2261E8C0D3B1A2142BA4F0636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299188   (600843) от 30.04.2019
+
+VA - Milchbar Seaside Season 11 (2019) Compiled by Blank & Jones [FLAC|Lossless|WEB-DL|tracks] <Downtempo, ChillOut, Relax, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - Sweet Spot (Original Mix) 3:38
+02. Blank & Jones - C'est Mieux Comme Ca (Original Mix) 2:59
+03. Bel - Ready To Die (Mudd's Extended Mix-Blank & Jones' Milchbar Edit) 7:07
+04. Mike Salta - Hey Moloko (Original Mix) 8:11(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, LoungeПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068B3654127B9E43FD74D689ABE917021A67364E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299122   (600749) от 30.04.2019
 
 Puff Dragon - Reflections (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Downtempo, Psychill, Ambient>
@@ -679,64 +737,6 @@ Troxellemott - Blood Moon (2019) Someone Records [FLAC 2.0|48/24|tracks|WEB-DL] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A825BC2232A4CFB31EA1446B87B14C73739DC41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299258   (599897) от 01.05.2019
-
-Orbital ‎ - Orbital 2 (1993) [FLAC|Lossless|tracks + .cue] <Trance, Techno>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Becomes (01:44)
-02. Planet Of The Shapes (09:36)
-03. Lush 3-1 (05:40)
-04. Lush 3-2 (04:41)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73328B8BDE0C0E16493E608B0EA7B48986A0B84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039041   (599523) от 30.07.2016
-
-Richard Clayderman - Plays the Songs of Love (2003) [FLAC|Lossless|image + .cue] <Easy Listening, Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have I Told You Lately That I Love You 03:28
-02. Just The Way You Are [0:03:34.60]
-03. Something About The Way You Look Tonight 03:27
-04. When A Man Loves A Woman 02:55(   Читать дальше...   )Жанр: Easy Listening, ClassicalПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C9CF0F7C5CA3B7B773C04DE3C21494239E5E71
 ```
 
 https://mybot314.ru/tekegram_catalog/

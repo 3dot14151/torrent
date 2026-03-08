@@ -1,3 +1,38 @@
+###  Публикация: 571358   (388611) от 07.11.2012
+
+VA - Recordная осень 2 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Hackers feat. Чи-Ли - Я Буду Помнить (Club Radio Version)
+02. Moonbeam feat. Aelyn - You Win Me (Radio Edit)
+03. RAЯ - Всё Не Просто (DJ Cosmo Rekord Remix)
+04. Dragon & Jontron feat. Lea Luna - Tonight (Original Mix)
+05. DJ Сателлит & Marlena - Дай Мне Слово (Tonada Radio Mix)
+06. David Guetta feat. Taped Rai - Just One Last Time (Hard Rock Sofa Big Room Mix)
+07. Sasha Prozet & DJ Andy First - Ради Тебя (Radio Edit)
+08. Ruslan Nigmatullin vs. Michel Telo - If I Catch You (Radio Mix)
+09. Анна Семенович - Любовь под облаками
+10. Deejaymas feat. Any & Catalin D - Don't Break My Heart (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B0979533A5495D8388011E0CC1701BEF1EB6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571826   (388502) от 07.11.2012
 
 VA - Дискотека Best Hits (2012) [MP3|256 кб/с]<Pop>
@@ -770,35 +805,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AB8E32DDDCEEC3123324251FB4DAF91B528E2C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068017   (382481) от 31.10.2016
-
-VA - XXXL Радио Хиты 50х50 (2016) [MP3|320 Kbps] <Поп, Dance, Рок>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alan Walker - Faded 3:33
-02.Alan Walker - Sing Me to Sleep 3:09
-03.Alekseev - Снов осколки 4:03
-04.Artik & Asti - Тебе всё можно 4:03(   Читать дальше...   )Жанр: Поп, Dance, РокПродолжительность: 05:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D9EE1F749884D0B1D264AA04F7ABD32255ED98
 ```
 
 https://mybot314.ru/tekegram_catalog/

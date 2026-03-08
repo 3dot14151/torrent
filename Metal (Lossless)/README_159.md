@@ -1,3 +1,58 @@
+###  Публикация: 1249638   (428940) от 26.09.2018
+
+VA - Death ... Is Just The Beginning Vol. I - VII (1990 - 2002) 13 CD [FLAC|APE|Lossless|image + .cue] <Thrash, Goth Rock, Speed Metal, Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все сборники из легендарной Nuclear Blast'овской серии! Сначала Death ... Is Just the Beginning были сугубо death metal'ическими компиляциями, впоследствии на них оказалось представлено всё разнообразие "конюшни" этого лейбла.Жанр: Thrash, Goth Rock, Speed Metal, Black Metal, Death Metal, Heavy MetalПродолжительность: 16:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487F3561179B1779EAA7CDEFA8118306803284CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064026   (428374) от 19.10.2016
+
+Worshipper - Shadow Hymns (2016) [FLAC|Lossless|tracks] <Classic Heavy Metal, Classic Hard Rock, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Above the Clouds
+02. Step Behind
+03. Ghosts and Breath
+04. Darkness(   Читать дальше...   )Жанр: Classic Heavy Metal, Classic Hard Rock, Stoner MetalПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7F23E3DFE79E469D529D0DBD7518FF05D1DBA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063940   (428222) от 19.10.2016
 
 Metal Clone X - Metal Clone X (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -687,64 +742,6 @@ Akashic - Timeless Realm (2001) [FLAC|image +.cue]<Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:386E0788FD03C41B34B7E9868F6C0F5831FAFC09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946561   (425258) от 14.10.2015
-
-Lord - Set In Stone (2009) [FLAC|image +.cue]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spectres Of The Ascendant 00:48
-02. Redemption 05:31
-03. 100 Reasons 04:44
-04. Eternal Storm 05:31(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B7E896B2177ECDFF025861C9974BAE0496B5F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946595   (425254) от 14.10.2015
-
-Lord - Digital Lies (2013) [FLAC|image +.cue]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incipio 00:34 instrumental
-02. Betrayal Blind 05:00
-03. Digital Lies 05:51
-04. Point of View 06:56(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:07;10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7AA30838712276C96B5ACCE8B37128FB615300
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1573182   (407453) от 03.09.2022
+
+Enigma - The Screen Behind The Mirror (2000) [OGG Vorbis|485 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gate                                 	2:04
+02. Push The Limits                      	6:27
+03. Gravity Of Love                      	3:59
+04. Smell Of Desire                      	4:57(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DB5775AC8178908C8165160739F7ED474F68B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559860   (407116) от 14.10.2012
 
 VA - Сборник Cаундтреков (1966-2012) [MP3|320 кб/с]<Soundtrack>
@@ -751,35 +780,6 @@ Danny Elfman - Men In Black (1997) [MP3|320 Kbps] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C78778920ADD9A550C0BE8FE03DB342F082FE4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170806   (397682) от 03.10.2017
-
-VA - Music In Love, Movie Collection Vol. 1 (2017) [MP3|320 Kbps] <Soundtrack, Easy Listening, Pop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Bacalov, Rocky Roberts - Django (From "Django") 02:56
-02. Luis Bacalov - The Last Chance (From "The Last Chance - L'ultima chance") (Titles) 02:59
-03. Luis Bacalov - The Grand Duel - Parte prima (From "The Grand Duel - ll Grande duello") 03:27
-04. Gato Barbieri - Last Tango in Paris (From "Last tango in Paris - Ultimo tango (   Читать дальше...   )Жанр: Soundtrack, Easy Listening, PopПродолжительность: 00:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E0FE49F119C342C78EFD16CB2DFD9D937F7DB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -234,41 +234,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 560261   (407118) от 14.10.2012
-
-Doro - Raise Your Fist (2012) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raise Your Fist In The Air (3:48)
-02. Coldhearted Lover (3:35)
-03. Rock Till Death (3:02)
-04. It Still Hurts (4:09)
-05. Take No Prisoner (3:08)
-06. Grab The Bull (Last Man Standing) (4:57)
-07. Engel (5:14)
-08. Freiheit (Human Rights) (3:44)
-09. Little Headbanger (Nackenbrecher) (3:15)
-10. Revenge (4:49)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5EA8ED7FAAC6AE688399A639B4127F62A5DBC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 560981   (406431) от 16.10.2012
 
 VA - Made In Tribute (1997) [MP3|320 кб/с]<Heavy Metal>
@@ -807,6 +772,41 @@ Cryogenic Implosion - Creation Of The New World (2011) [MP3|320 кб/с]<Death M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B0B9246B6222B0976B5043A51E5EA1AAB31E8F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569707   (392222) от 03.11.2012
+
+Chaosweaver - 2 Albums (2008-2012) [MP3|320]<Industrial/Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392222.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Red Dawn Rises
+2. Wings Of Chaos
+3. Maelstrom Of Black Light
+4. The Great Cosmic Serpent
+5. Infected
+6. A Requiem For A Lost Universe
+7. Crystal Blue
+8. Repulsion
+9. Ragnarok Sunset
+10. Enter The Realm Of The Doppelganger(   Читать дальше...   )Жанр: Industrial/Symphonic Black MetalПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C891B757C406A97374309538E20F877C4AF3B896
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1133949   (691553) от 14.05.2017
+
+VA - Cosmotronica Vol.1 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dub House, Dub Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691553.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Klartraum - Flight To Berlin (Feat Thalstroem - Vynyard Dub Mix) 11:21
+002. Vadim Lankov - Peky Park 25 8:17
+003. Paul Moore - Hollow Inside (Feat Little Mouse) 7:09
+004. Nikosf. - Our Road Home 7:42(   Читать дальше...   )Жанр: Dub House, Dub TechnoПродолжительность: 02:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5988111E4EAFF67172F01421A81C2E89ACD803EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133599   (691552) от 14.05.2017
+
+VA - Tropical House Vol.3 (2017) [MP3|320 Kbps] <House , Tech House , Tropical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691552.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Namito - Dropkick (Wally Lopez Remix) 6:24
+002. Fg - Purified Dream 5:17
+003. Simone Cristini - Flutter (Simone Cerquiglini Remix) 5:42
+004. Mkrkc - Sunwaves (DJ Viva & Md DJ Remix) 4:21(   Читать дальше...   )Жанр: House , Tech House , TropicalПродолжительность: 06:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B85792FCB778796AD85ED226A61CFF00E1608BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133956   (691541) от 14.05.2017
+
+VA - Русский отрыв на Русском радио. Версия № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691541.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ракета - Танцуй 3:18
+002. Oleynik - Остановись 3:20
+003. Sputnik Project - Дождиком 4:28
+004. Виктор Поплеев - Половина Мира 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC03E0BA3DFEA9FBE5C9456F327CAFC7015C1963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133935   (691539) от 14.05.2017
+
+VA - Deep & Dark Dubstep Vol.17 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691539.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Unicorn Fukr, Quickie Mart & Werd2jah - Dem Man (Truth Remix) 4:38
+002. C-side & Talabun Mc - Last Of Us 4:31
+003. Olie Bassweight - Primal Feat. Mc Messinan 6:10
+004. Resonata - Returned To Dust (Phelian Remix) 5:34(   Читать дальше...   )Жанр: DubstepПродолжительность: 03:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6D925ACF3CE0A1F21E516D3756808700A3CA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133617   (691496) от 14.05.2017
+
+VA - Весенняя 100-ка популярных треков. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691496.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Дорошенко - Мне Хочется Влюбиться 3:37
+002. Xana - Красивыи Мужчина 4:00
+003. Инесса Михно - На Десять Минут 3:59
+004. Смирнов & Комапния - Я Люблю Тебя 3:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1742D793624ACDDE5881268EEED29CB230E88DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133958   (691485) от 14.05.2017
+
+VA - Драйвовый молодежный весенний музон выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691485.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. D'dorian - Fever 3:06
+002. Lana B & Efiel - Испания 4:02
+003. Алекса Пол - Любовь На Расстоянии 3:09
+004. Татьяна Чубарова - Тебя Любить Нельзя А Хочется 4:03(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E338313440750823D12F82E5B36EC21F92E04287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133589   (691480) от 14.05.2017
 
 VA - Disco Forgotten (2017) [MP3|320 Kbps] <Disco, Pop, Italo Disco>
@@ -571,186 +745,6 @@ VA - Music News vol.170 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CBAB15852F322A03DF0B64EA25B341B01598096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534584   (690371) от 04.03.2022
-
-VA - Make Love, not War (2022) 2CD [MP3|320 Kbps] <Rock, Pop, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rolling Stones - She's A Rainbow (Original Single Mono Version) (04:11)
-02. Kelly Clarkson - The War Is Over (03:57)
-03. Janis Joplin,Big Brother & The Holding Company - Piece of My Heart (04:09)
-04. The Beatles - While My Guitar Gently Weeps (Remastered 2009) (04:45)(   Читать дальше...   )Жанр: Rock, Pop, Blues, ReggaeПродолжительность: 07:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AE1E9F60027A15DBD85B65F299340353716B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534650   (690366) от 04.03.2022
-
-Billy F Gibbons - Vagabond Man (2022) 2CD, Compilation [MP3|320 Kbps] <Blues Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Missin’ Yo’ Kissin’ (03:19)
- 02. My Baby She Rocks (03:50)
- 03. Rollin’ And Tumblin’ (02:57)
- 04. Shuffle, Step & Slide (03:10)(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97A5DF46B93954E27C52884E5C9C89B4A4172C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028425   (690266) от 22.06.2016
-
-VA - Hits of My Soul Vol. 01 (2016) [MP3|320 кб/с]<Deep House, House, Progressive House, Electronic, Pop, Dance, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 99 Souls feat. Destiny's Child & Brandy - The Girl Is Mine (Original Mix) (03:34)
-02. King Arthur & TRM - Talking About Love (Original Mix) (03:28)
-03. Coldplay - A Sky Full Of Stars (Robin Schulz Edit) (03:15)
-04. DJ Smash feat. Ridley - Lovers 2 Lovers (04:39)(   Читать дальше...   )Жанр: Deep House, House, Progressive House, Electronic, Pop, Dance, TechnoПродолжительность: 03:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B8B6C9C22092B07FAE97E3EFB4FD77CB2AD208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289043   (690227) от 14.03.2019
-
-VA - Magic Moment: Original European Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690227.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mаrshmеllo & Bаstillе - Hаppiеr
-002. Mаxim & Dаncеfloor Kingz - Strong (Rаdio Edit)
-003. Amаndа Pаris - Go Whеrе It Tаkеs Us
-004. Audiorush And Mаrc E B - Anothеr Onе (Originаl Mix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 12 :07 :52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210C9FDADFD43BF98E3E578F8E8EF9AB7BA3A317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505979   (690111) от 05.06.2012
-
-VA - Шоферской хитовичок в дорогу Vol. 3 (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690111.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Владимир Черняков - Дорога (3:18)
-2. Александр Новиков - Соломенный шалаш (3:24)
-3. Новенькие Мурки - Дальнобой (3:24)
-4. Алексей Александрин - Домой (3:46)
-5. Александр Хамов - Бродяга (шоферская) (4:03)
-6. Андрей Каргин - Дальнобойщикам (3:36)
-7. Борис Шварцман - Пробочный кошмар (3:35)
-8. Виталий Аксенов - Ива (3:26)
-9. Евгений Полотно - Дорожка моя (5:04)
-10. Владимир Тимофеев - Казачья (3:46)2012Жанр: ШансонПродолжительность: 06:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B982CC655123DB8DABABF176843C4A2D4A2E182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028195   (690110) от 22.06.2016
-
-VA - Romantic 80s (2016) [MP3|320 кб/с] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690110.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bucks Fizz - The Land Of Make Believe
-002. Spandau Ballet - Spandau Ballet - To Cut A Long Story Short
-003. New Order - New Order - Temptation
-004. Aztec Camera - Somewhere In My Heart(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 09:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4F784F290826A7459727377EC33A68871220FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

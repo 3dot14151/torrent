@@ -1,3 +1,32 @@
+###  Публикация: 979941   (957409) от 28.01.2016
+
+VA - Atmosphere Bliss: Vocal And Uplifting Trance (2016) [MP3|320 кб/с] <Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957409.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beat Service - Reach The Sun (Chris SX Edit)
+002. Denise Rivera - The Day (Radio Edit)
+003. Dan Chase - Life Won't Let Us Fall (Radio Edit)
+004. Katty Heath - Love Again (Radio Edit)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 09:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6943F56C88933278292C7A6FC9D5E7734B8CED82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979501   (956385) от 29.01.2016
 
 2011stress - Language of the Universe (NNM) (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic styling>
@@ -728,35 +757,6 @@ VA - Private Lounge Cafe, Vol. 4 (25 Delicious Lounge Anthems) (2016) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6B5CF6FA6BEACD691DE2A3C93053414503B3ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089392   (950792) от 04.01.2017
-
-VA - Trance Elegance On This Year 006 (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal Trance, Energy, Emotional, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex M.O.R.P.H Ft Song & The Moon - Dont Talk Away The Magic (Heatbeat Extended Mix) 6:42
-02. Fisherman & Hawkins Ft. Sir Adrian - Never The Same (Radion6 Remix) 5:24
-03. Hasso & Maxime Luft ft. Lucida - Blossoms In The Winter (Original Mix) 6:49
-04. Aimoon - Fusion (Extended Mix) 6:07(   Читать дальше...   )Жанр: Trance, Harmonic, Vocal Trance, Energy, Emotional, UpliftingПродолжительность: 02:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29881BCB63204D1AD995FD8CDCE01754A6E8F725
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1470161   (1015711) от 16.05.2021
+
+VA - NRJ 300 % HITS 2021 (3CD) [MP3|320 Kbps] <Dance, R&B, Hip Hop, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aya Nakamura - Doudou
+02. Ava Max - My Head & My Heart
+03. HATIK - La meilleure (feat. Jok'Air)
+04. Tom Gregory - Rather Be You(   Читать дальше...   )Жанр: Dance, R&B, Hip Hop, PopПродолжительность: 02:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01DB64D846B9FA734ABBB5C6D34BE0C554E51C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470894   (1015308) от 19.05.2021
 
 VA - 200 Ethnic Pop Songs (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Summer BBQ (2021) [MP3|320 Kbps] <Rhythm & Blues, Folk, Rock & Roll, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C186354C852D51DDBA08E34192155355DAA422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475952   (1011972) от 09.06.2021
-
-VA - Evrybody Clap: Disco Party (Vol.03) (2021) [MP3|320 Kbps] <Disco, Dance, Remixes>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011972.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michael Rimini - Walking In The Sky
-002. Love Doves - Drive
-003. Jaime Lynn - You Aint Got No Money
-004. Rudy's Midnight Machine - Shy Smile(   Читать дальше...   )Жанр: Disco, Dance, RemixesПродолжительность: 09:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2609347332D944C036D7D114A539AC97693594
 ```
 
 https://mybot314.ru/tekegram_catalog/

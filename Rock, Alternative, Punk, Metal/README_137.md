@@ -1,32 +1,3 @@
-###  Публикация: 1353016   (993229) от 16.01.2020
-
-Dirtwire - Electric Rivеr (2019) [MP3|320 Kbps] <Indie, Electronica, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talking Bird (feat. Mbilou & Aya)
-02. Cannonball
-03. The Eagle and the Condor
-04. Seem to Freeze (feat. Emma Lucia)(   Читать дальше...   )Жанр: Indie, Electronica, ExperimentalПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1812F589BBC5FA3DC7143769CC0E208C879272E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352959   (993120) от 16.01.2020
 
 Queen - Greatest Hits In Japan (2020) [MP3|320 Kbps] <Rock>
@@ -777,6 +748,40 @@ Theory of a Deadman - 3 Альбома (2002-2011) [FLAC|Lossless]<Alternative R
 ###  Подробнее
 
 Жанр: Alternative Rock / Post-GrungeПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389027   (991196) от 28.01.2013
+
+Defeated Sanity - 4 альбома (2004-2013) [FLAC|Lossless]<Technical Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда Defeated Sanity образовалась в 1994 году в Германии как проект Wolfgang Teske (гитара) и Lille Gruber (ударные). Цель у музыкантов была банальней некуда - играть настолько брутальный дэт-метал, насколько это возможно.01. Initiation
+02. Naraka
+03. Verblendung
+04. Lusting For Transcendence
+05. The Purging
+06. Verses Of Deformity
+07. Perspectives
+08. Frenzy
+09. MartyriumЖанр: Technical Brutal Death MetalПродолжительность: 00:38:23
 
 ## Скачать торент
 ```bash

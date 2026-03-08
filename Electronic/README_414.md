@@ -1,3 +1,61 @@
+###  Публикация: 1343231   (220187) от 05.12.2019
+
+VA - Alter Ego Records: Best Of (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soren Andrews - Llamagasm (Original Mix)
+02. Massif & Isaac Fisherman & Sam Stroke - Frontseat 2019 (Haris C Remix)
+03. Rob Curtis & D-Clips & Digital Knights - Icarus (Original Mix)
+04. Eimear & Angel Falls - Fleeting Moments (Duncan Newell Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71A16FB2EF60EDBE5DDE8F815E76A2AE316EA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343268   (220151) от 05.12.2019
+
+Frankmusik - Day Break (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overdrive (3:28)
+ 02. Heartbeat (feat. Highway Superstar) (3:37)
+ 03. High on You (feat. Lindsay Lowend) (3:36)
+ 04. Closer (3:17)(   Читать дальше...   )Жанр: Electronic, Synthwave, ElectropopПродолжительность: 00:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07ED3118A8B266876EA2E296350A325A56C18E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343063   (220134) от 05.12.2019
 
 Jo Berger Myhre & Olafur Bjorn Olafsson (Jo Berger Myhre & Ólafur Björn Ólafsson) - The Third Script (2017) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Ambient, Dark Jazz ...
@@ -686,64 +744,6 @@ Fancy - Strip Down (2000) [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66E224B5296E58333F530DA982BCBAF7100A135E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652210   (218497) от 10.08.2023
-
-VA - Deep House Relief (2023) CD, Compilation [MP3|320 Kbps] <Deep House, Downtempo, Soulful, Beach House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M-Sol DEEP, Tomas Zolan - Naomi (Original Mix)
-02. Duel (HU), M-Sol DEEP - Scarlet Sun (Original Mix)
-03. NatureVibes, M-Sol DEEP - Fantasy (Original Mix)
-04. DMTunes, Teeka, M-Sol DEEP - Bodhi (Original Mix)(   Читать дальше...   )Жанр: Deep House, Downtempo, Soulful, Beach HouseПродолжительность: 01:30:01 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B055011C83A1125349C8994CC42AE6F0190D9882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425797   (218460) от 22.11.2020
-
-VA - House Clubhits Megamix 2021 (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caleidescope, Gxldjunge - Enjoy The Silence (Caleidescope Version) 2:31
-02. Dj Blackstone - Somebody To Love (Dj Kone & Marc Palacios Remix) 5:12
-03. Mathy - Snak (Original Mix) 4:46
-04. Ka!Ro - Seven Nation Army 3:01(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEDB64704ADAE646D194724F2EA67E3FAC02A74
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 538488   (507582) от 25.08.2012
+
+VA - Cafe del Mar Recommends Music For Dreams (2010) [MP3|320 кб/с]<Lounge, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valentin Huedo & Atfunk (CDM) - Until The Sun Goes Down
+02. Kenneth Bagger - Speak My Name
+03. Kenneth Bagger - And I Kept Hearing (Radio Edit)
+04. Kenneth Bagger - Love Won't Leave Me Alone
+05. Kenneth Bagger - Time Is Up
+06. Bird - Some Boys (Valentin Huedo Remix)
+07. Bird - Sweetheart
+08. Bird - Wind It Up
+09. Bird - Bad Connection
+10. DJ Disse - Spanish Reggae(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6D3FF62E6D40FF4A281A31F508C4D93E41A568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316299   (506824) от 25.07.2019
 
 VA - Salsa Summer Hits 2019 [MP3|320 Kbps] <Kizomba, Merengue, Sonero, Other>
@@ -772,40 +807,6 @@ Christopher Phillips - Piano Chill: Songs of the Beatles (2019) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D50353DFAE0B2AE86EE18D210ECC8BEE87D46F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 234728   (500669) от 09.09.2010
-
-Bodhi - Trans Ukraine (2006) [MP3|320 kbps]<New age, Flute, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500669.jpg" />
-</div>
-
-
-###  Подробнее
-
-(10:38) 1. Crimea I
-(04:51) 2. Crimea II
-(05:58) 3. Crimea III
-(05:38) 4. Kiev I
-(07:30) 5. Kiev II
-(08:58) 6. Kiev III
-(07:58) 7. Odessa I
-(04:56) 8. Odessa II
-(06:36) 9. Odessa IIIЖанр: New age, Flute, ElectronicПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

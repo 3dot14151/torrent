@@ -1,32 +1,3 @@
-###  Публикация: 1393875   (766415) от 02.07.2020
-
-Alarum - Circle’s End (2020) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sphere of Influence (02:41)
- 02. Syzygy (04:48)
- 03. Delta (03:15)
- 04. Crystals (01:20)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E42697426352237F859333DD3C9B747A401AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125923   (766378) от 17.04.2017
 
 Akoma - Revangels (2017) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic, Gothic Metal>
@@ -744,6 +715,35 @@ Danger Danger - Danger Danger (1989) Japanese Edition [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1A33834E607785C56A96A7689EF54CE035A712E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126398   (765485) от 18.04.2017
+
+The Ryszard Kramarski Project - Music Inspired By The Little Prince (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Android B-612 (4:13)
+02. The Little Prince (5:12)
+03. The Rose With Four Thorns (6:33)
+04. Galaxy Freaks (6:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B301CFB94EB0C0B51803CBF2A780A436A3F37ECB
 ```
 
 https://mybot314.ru/tekegram_catalog/

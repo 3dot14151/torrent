@@ -1,3 +1,61 @@
+###  Публикация: 1620473   (249398) от 20.03.2023
+
+Schiller - Tag Und Nacht (2005) [FLAC|Lossless|tracks + .cue]<Trance, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willkommen 1:09
+02. Nachtflug 5:56
+03. Die Nacht... Du Bist Nicht Allein ( Mit Thomas D ) 4:26
+04. What's Coming ( Mit Jette Von Roth ) 4:26(   Читать дальше...   )Жанр: Trance, Downtempo, AmbientПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:920E14705878D9AEB0A64DD3A06FF0E77A6B062D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620536   (249381) от 20.03.2023
+
+VA - Space Odyssey - Trip Three: New Year’s Voyage 2018 (2017) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Introduction - Pavel Kuznetsov
+02 - AlimkhanOV A. - Space Odyssey
+03 - Oblivion - Running On The Milky Way
+04 - Laserlight - Flight Of The Dream(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 02:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1FD22D79276FB03C0A72197848A2032D56A100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 494161   (249170) от 09.05.2012
 
 VA - Balance 021: Nic Fanciulli (2012) [MP3|~245 кб/с (V0)]<Deep House Tech House>
@@ -711,64 +769,6 @@ VA - World Of Trance (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28504E4024424269FFF1A519D6EB15D654C7645E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511666   (245806) от 21.11.2021
-
-VA - Chillout Lounge 2021 [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rafo - Love Bridge (02:40)
-02. Burak Cilt - Can't Get You Out Of My Head (03:34)
-03. Dani Corbalan - Beautiful (03:06)
-04. Deepsan - Wish I Could Stay With You (05:50)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AB7676A8854EB6C4FFCB4BAD4BEAE66D782591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630257   (245761) от 30.04.2023
-
-VA - Progressive Dreamland (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goblin Hulms - You're Not Alone (Extended Mix) [06:41]
-02. Humbaba - Back to Me (Extended Mix) [06:45]
-03. Mike van Olsen - Oblivion (Original Version) [05:00]
-04. Jacob Ireng - Nobody (Extended Mix) [04:15](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90EC9294249F3BF056D18A18E0AF6A6ACD9B307
 ```
 
 https://mybot314.ru/tekegram_catalog/

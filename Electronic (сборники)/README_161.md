@@ -1,3 +1,32 @@
+###  Публикация: 1256581   (354426) от 22.10.2018
+
+Roger Shah - Live I Love Qiev (2008) [MP3|192 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingsha - Niavara
+02. Sunlounger feat. Eller van Buuren - Catwalk
+03. Black Pearl - Coral Sea
+04. Magic Wave - Galapagos (DJ Shah & Ralph Fritsch Tribute Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07AC1BB2B8A215ABF34A1AC83C08081DC5169377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256557   (354409) от 22.10.2018
 
 VA - Record Super Chart 558 (2018) [MP3|320 Kbps] <House, Club, Dance>
@@ -728,35 +757,6 @@ VA - Green Sky Reflection (2015) [MP3|320 кб/с]<Minimal House, Techno House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2C06EEB78F860CCEF49E48A0C007622C5A8BE8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952971   (351791) от 03.11.2015
-
-VA - Lazy Sundays (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lessovsky - Far Away (6:18)
-02. Aamon - Hidden Emotions (5:28)
-03. In-Deed - Feeling Good (7:00)
-04. Jacek Janicki - The World Without You - Bara Brost Remix (7:08)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BAC5887D13A79F02185037E85C17CD66C13429F
 ```
 
 https://mybot314.ru/tekegram_catalog/

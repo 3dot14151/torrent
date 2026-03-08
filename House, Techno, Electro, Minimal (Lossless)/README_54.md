@@ -1,3 +1,90 @@
+###  Публикация: 1462336   (241087) от 14.04.2021
+
+O-Wells - Subfriction (2021) a.r.t.less [FLAC|Lossless|WEB-DL|tracks] <Detroit Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gemini (05:30)
+ 02. Iscnue (06:46)
+ 03. Scope (04:38)
+ 04. Headspace (05:41)Жанр: Detroit TechnoПродолжительность: 00:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583D330E84D226D421920D9F86F5B3A8E6582AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462444   (241056) от 14.04.2021
+
+RAC - RAC_UNRELEASED (2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Breakbeat, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UNTITLED_UNR (07:12)
+ 02. TRYBE_UNR (06:18)
+ 03. STORM_UNR (05:16)
+ 04. AQUAPLANE_UNR (06:49)(   Читать дальше...   )Жанр: Techno, Electro, Breakbeat, AcidПродолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E462DC1B89C9E1163E7C351AB5DAD7856495B55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453399   (240581) от 18.08.2022
+
+RÜFÜS DU SOL (RUFUS DU SOL) - Collection 7 Releases (2014-2022) [FLAC|Lossless|tracks + .cue, tracks] <EDM, Indie Pop, Electro House, Deep House, Synthpop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Next to Me (Vintage Culture Remix) (6:22)
+02. Make It Happen (Dom Dolla Remix) (4:27)
+03. See You Again (Carlita Remix) (4:14)
+04. I Don't Wanna Leave (Innellea Remix) (6:23)(   Читать дальше...   )Жанр: EDM, Indie Pop, Electro House, Deep House, Synthpop |Продолжительность: 01:31:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38773801BA0A0B6FFDC0A1D15AA6AE3D52B68B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626833   (240291) от 16.04.2023
 
 VA - Chill & Dance Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -654,93 +741,6 @@ Livio & Roby - Phantom Circle (2016) Desolat [FLAC|Lossless|WEB-DL|tracks] <Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E067B77E0E24E868E4A838CA988323A592AF01F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268314   (226544) от 11.12.2018
-
-VA - Poker Flat Recordings Best Of 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simone Vitullo & Jinadu – Memories (Original Mix) 7:34
-02. Steve Bug & Langenberg – NGC 6240 (Vince Watson Reshape) 8:20
-03. youANDme – Pattern Of Greed (Jonathan Kaspar Remix) 8:23
-04. Kotelett & Zadak – Clovis (Original Mix) 9:39(   Читать дальше...   )Жанр: Tech House, Techno, Deep HouseПродолжительность: 01:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30524831C9F026097A72FFA46534154632CFCB19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342371   (225816) от 01.12.2019
-
-X-Mode - О! Неожиданно! (2008) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Место встречи изменить нельзя (Из к/ф Место встречи изменить нельзя) (3:38)
-02. Джаная (3:36)
-03. Шоу Бенни Хилла (3:02)
-04. Белая ночь (3:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F72887280603E781ED9DA5AC9A5B9BD1A1C688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852492   (221979) от 22.12.2014
-
-Alic - Sliders (2014) EP [FLAC|tracks|WEB-DL]<Progressive, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sliders   (6:03)
-02.  Sliders (Trilingo Remix)   (6:40)
-03.  Sliders (Pallida Remix)   (8:09)
-04.  Esperanto   (6:18)Жанр: Progressive, TechnoПродолжительность: 00:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8DBA24241D9E5F7B81414FA57995FDD4238FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

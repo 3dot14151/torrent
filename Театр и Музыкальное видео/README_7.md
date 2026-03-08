@@ -1,3 +1,32 @@
+###  Публикация: 601824   (997663) от 12.01.2013
+
+Black Veil Brides - Legion Of The Black (2012) [H.264/1080p-LQ] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wretched and Divine
+02. I Am Bulletproof
+03. Lost it All
+04. New Year's Day(   Читать дальше...   )Жанр: Glam-MetalРежиссер: Патрик ФогартиПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6D2F4647AB315628A601AEC905B42F158A5AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602313   (997650) от 12.01.2013
 
 Пётр Чайковский - Щелкунчик / Tchaikovsky: The Nutcracker (2012) (Мариинский театр) BDRip [720p/H.264]
@@ -706,35 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6DC77AB62214043740DBE27A22A2796670D7E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607111   (994637) от 22.01.2013
-
-Лучшие клипы / The best videos of all time (Rock'n'roll) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Richard - Lucille
-02. Bill Haley And His Comets - Vive La Rock 'N' Roll
-03. AC DC - That's the Way I Wanna Rock N' Roll
-04. Britney Spears - I Love Rock 'N' Roll(   Читать дальше...   )Жанр: Музыка, Rock, Rock'n'rollПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85A64ECB7F1C1CCEF837049CBCBB0047FAE871E
 ```
 
 https://mybot314.ru/tekegram_catalog/

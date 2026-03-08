@@ -1,3 +1,32 @@
+###  Публикация: 1203965   (785280) от 04.02.2018
+
+VA - Лидеры чартов танцевальных FM станций 8 (2018) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785280.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Даша Русакова - Шах И Мат
+002. Руслан Костов - Модели
+003. Букатара - Парализованы Чувствами
+004. Дарья Кумпаньенко - Первая Планета От Солнца(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4D2393A5DF3E6F5F897CED2F85461CA1D26FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277625   (785023) от 21.01.2019
 
 VA - German Top 100 Single Charts 28.01.2019 [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Top 80 Dance Club Discotheque (2016) [MP3|320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07D5E44CBA97C51398DF03C05B7D8DA25C002AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013181   (777620) от 04.05.2016
-
-VA - Euro Best Hits N7 Top 100 (2016) [MP3|192-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X Ambassadors - Renegades
-02. The Chainsmokers feat. Rozes - Roses
-03. Zara Larsson - Lush Life
-04. Yall feat. Gabriela Richardson - Hundred Miles(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77CE850A7C74EC9E04DBD3A99AC5FD4F61A0D6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

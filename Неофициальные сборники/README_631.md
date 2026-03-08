@@ -1,3 +1,177 @@
+###  Публикация: 1707765   (113301) от 17.03.2024
+
+VA - Music News vol.353 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113301.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cascada - Aint No Mountain High Enough (03:08)
+ 002. 24kGoldn - I Remember (02:25)
+ 003. 24kGoldn - I'm Here (02:31)
+ 004. 24kGoldn - Innocence (02:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171083B014F2AF210CF6AA89A2CACE92468A7465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707475   (113295) от 17.03.2024
+
+Lyre le temps - Compilation (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Summer Leaves
+ 02.  About the Trauma Drum
+ 03.  Dump You
+ 04.  Beautiful Day(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Rap, Hip-HopПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA8472094BA83D0F5BA4FD9F5BE211FD4556059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710546   (112696) от 27.03.2024
+
+VA - Music News vol.357 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112696.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анна Калашникова - Не Ври Мне в Риме (Kalashnikoff Сlub Mix) (03:13)
+ 002. Aitkulov - Last Day (02:24)
+ 003. Alex Andreev - Липнет (03:12)
+ 004. Amaya Gloor - Hurting (02:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A349D44BE27084876072A91722C50E8BC6F3A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708992   (112693) от 27.03.2024
+
+VA - Pop Spring Melodies (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112693.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Doobie Brothers - Long Train Runnin’ - (03:27)
+ 002. Chaka Khan - I’m Every Woman - (04:04)
+ 003. Chenoa - Maybe This Time - (03:13)
+ 004. Geri Halliwell - It’s Raining Men - (04:15)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1F63603C36C0F73BF104C3915F34D413EF279D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710328   (112648) от 27.03.2024
+
+VA - Trance In Motion Vol.373 (2024) [MP3|320 Kbps|image + .cue]
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamy & Josie Sandfeld - Pathetic Fallacy (Extended Mix)
+02. Vinny DeGeorge Official - Paradiso (Extended Mix)
+03. Alex Wright - Isthmus (Extended Mix)
+04. ALIGASH - Quicksand (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E236F18182B9FC042CD3FCBA73068714E610B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711312   (112496) от 30.03.2024
+
+VA - Dance Party Night (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galantis - One, Two, & 3 (03:26)
+02. Tiësto - Waterslides (02:38)
+03. Bebe Rexha - Satellite (Alle Farben Remix) (03:24)
+04. Robin Schulz - One by One (feat. Oaks) (02:41)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA21FABD878453E33A012FCB7833E6B120C04EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823070   (112352) от 09.10.2025
 
 VA - Only Pop Bangers (2025) [MP3|320 Kbps] <Pop>
@@ -571,180 +745,6 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 05 (2021) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4367399DF793441F36A7C573B1E3C2B9EF6CE891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719789   (110434) от 02.05.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 07 (2022) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KC and the Sunshine Band - That's The Way (I Like It) (Dario Caminita Revibe) (6:11)
-02. Robin S - Show Me Love (Dario Caminita Revibe) (6:30)
-03. Gazebo - I Like Chopin (Dario Caminita Revibe) (5:20)
-04. Toto - Africa (Dario Caminita Revibe) (6:13)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 01:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7279A1C76C03FA0E9CC66B2D9FD1283431224F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720371   (110326) от 03.05.2024
-
-VA - Trance In Motion Vol.374 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angelus - Knock (Extended Mix)
-02. Adam Reece - Zion (Extended Mix)
-03. TH3 ONE - Horizon (Extended)
-04. 0Gravity - Another Dimension (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02DA37433EAE1821E85C3C6CFE81A75002B78B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720373   (110322) от 03.05.2024
-
-VA - Trance In Motion Vol.375 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary McPhail - The Big Babushka - My Everything (Extended Mix)
-02. Armin van Buuren & GRYFFIN - What Took You So Long (Extended Mix)
-03. Craig Connelly - Perseverance (Extended Mix)
-04. Angelus - Deus Volente (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56372F29BC275DC4A0F8CC77B4F9EF143519F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720261   (110276) от 04.05.2024
-
-Kovacs - Compilation (2024) [MP3|320 Kbps] <Pop, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  50 Shades Of Black
- 02.  My Love
- 03.  Adickted
- 04.  Goldmine(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE9DD42C07CFD9AEB2882F41C62966CF99D05BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721811   (109927) от 09.05.2024
-
-Blues Saraceno - Compilation (2024) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Evil Ways (Justice Mix)
- 02.  The Bible Or the Gun
- 03.  The Devil You Know
- 04.  The River(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CF29C927D4A48D0C5F7ABE20A0C476000505CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722245   (109850) от 10.05.2024
-
-VA - Music News vol.374 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109850.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сола Монова - Миу Миу Мяу (03:11)
- 002. Adam Marcos feat. Foldes & Alessa - Worthy (02:36)
- 003. Akcent - Miracle Of Love (02:51)
- 004. Akris & Teddy - Растопи Мой Лёд (Tarzan Kurtizan Remix) (02:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614642DBF168825236991978C3D813E1192A7AED
 ```
 
 https://mybot314.ru/tekegram_catalog/

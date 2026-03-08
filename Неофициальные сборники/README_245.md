@@ -1,3 +1,177 @@
+###  Публикация: 1219346   (713902) от 14.04.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 13.04.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C-BooL Giang Pham - DJ Is Your Second Name
+02. Jax Jones feat. Ina Wroldsen - Breathe
+03. ZAYN feat. Sia - Dusk Till Dawn
+04. CamelPhat Elderbrook - Cola (Robin Schulz Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D944F59BFC004B623FFA9D36C05B106C676BFF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219415   (713897) от 14.04.2018
+
+VA - Kontor Top of the Clubs (2018.02) (2018) [MP3|320 Kbps] <House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MC Fioti - Bum Bum Tam Tam (Jax Jones Remix) (feat. Future & Juan Magan)
+02. Marc Scibilia - Unforgettable (Plastik Funk Remix)
+03. Martin Garrix - So Far Away (TV Noise Remix) (feat. Jamie Scott & Romy Dya)
+04. Last Night - Close My Eyes (Airplay Edit) (feat. Max Landry)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 08:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF60443A04B0591096241C37E72BFB8A4B031266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219416   (713896) от 14.04.2018
+
+VA - A State Of Deep [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Progressive House, Melodic Techno, Neotrance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aguizi & Fahim - Enigma [08:55]
+02. Bjork - New World (Stefan Biniak Private Edit) [06:34]
+03. Fran Guzman - The Two Of Us [06:39]
+04. Nopopstar Feat. Max Vertigo - Waiting For Cold (Sans Sommeil Remix) [08:40](   Читать дальше...   )Жанр: Progressive House, Melodic Techno, NeotranceПродолжительность: 06:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58682E335A51C1FA4827D9B215BBDE226D63FA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219341   (713893) от 14.04.2018
+
+VA - Душевный шансон в хорошей компании (5) (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713893.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Валерий Курас - Мужская История
+002. Вхип (Владимир Хомутов Игорь Павлов) - Непьющий
+003. Игорь Добролевский - Не Зови
+004. Юрий Востров - Ночка Белая(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3C9C3BE677B5AC33DC43684961BCC464595583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219394   (713783) от 14.04.2018
+
+VA - DFM Top 30 D-Chart 13.04.2018 [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Janieck - Does It Matter
+02. Katy Perry - Roulette
+03. Avicii - Lonely Together (feat. Rita Ora)
+04. David Guetta Afrojack feat. Charli XCX French Montana - Dirty Sexy Money(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608329DBC380AFFD641934C44FD47207BA92AD01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219344   (713776) от 14.04.2018
+
+VA - Душевный шансон в хорошей компании (6) (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713776.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олег Карпович - Друзьям
+002. Александр Вервайн - Питер-Отец
+003. Стас Михайлов - Я Столько Не Выпью
+004. Мариан - Атаман(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACC350A7DACFA7E7995A33F6ADAE7DAE62FA576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219469   (713774) от 14.04.2018
 
 VA - Любимая волна для души (2) (2018) [MP3|256 Kbps] <Шансон>
@@ -571,180 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 07.08.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B6D0ABAC3E7C5617939463C869527ED1BAC0B96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400878   (712962) от 08.08.2020
-
-VA - Громкие новинки Августа (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #2Маши - Я забираю твою подругу (3:24)
-02. 3-ий Январь - Шкатулка (2:58)
-03. 6IX9INE - PUNANI (1:55)
-04. Alyona Alyona Feat. Kalush, Otoy, Білий Бо, Шершень, Dyktor, Дядя Вова - Стержень (5:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C06AB3663D22C3F19CA60785F2BB9DD5789214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400888   (712948) от 08.08.2020
-
-VA - 100 Greatest Party Songs (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prince - 1999 (Edit) 3:39
-02. The B-52's - Love Shack 5:22
-03. Taylor Swift - Shake It Off 3:39
-04. Black Eyed Peas - I Gotta Feeling (Edit) 4:06(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BB528A258C0F5F63136DF180946299A88CCD74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286406   (712888) от 02.03.2019
-
-VA - Transform Uplifting Melodic Reality: Superwave (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Emotional>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila - It's All About The Melody (Extended Mix) 8:59
-02. Mike Sanders - Mediterranean (Extended Mix) 6:31
-03. Para X - Revive (Original Mix) 7:36
-04. Martin Libsen - Proxima Centauri (Original Mix) 6:23(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Emotional, EpicTrance, Euphoric, Harmonic, Susceptive, EnergyПродолжительность: 02:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDBDCC173A42D36E5EFF00B0862EBA73CB8821E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286340   (712882) от 02.03.2019
-
-Bad Company - Ready For Love (2019) Compilation [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Smoke Without A Fire
-02. Ready For Love
-03. Dangerous Age
-04. Painted Face(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407F5F4288DE11FA89A199D1DB75A0F41E9A1A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532653   (712832) от 20.02.2022
-
-VA - Feel The Paradise: Uplifting Trance Mix (2022) [MP3|320 Kbps] <Uplifting, Vocal Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушателю предлагается отличная, очень лиричная, наполненную чувствами музыка. Аплифтинг транс всегда подразумевает наличие крайне эмоциональных нот и музыкальных тематик. А авторы этих композиций прекрасно знают, как их создавать!001. Luca Dean - When You Paint Me
-002. Daxson - Ethereal
-003. Henry Caster & Sanani - Scirocco
-004. Huvagen & Hidden Tigress - Lost My Way(   Читать дальше...   )Жанр: Uplifting, Vocal Trance, ElectroПродолжительность: 09:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B943CDDC0070F8EF10FE09C5D1D27416A9A515E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130859   (712783) от 03.05.2017
-
-VA - Finding Around Blessing (Energy Tech Trance) 004 (2017) [MP3|320 Kbps] <Trance, Tech-Trance, Harmonic, Stadium Trance, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andrew Rayel & Emma Hewitt - My Reflection (Extended Mix)  6:13
-02.  AirLab7 - Reminiscent Of My Teen Life (George Crossfield Remix)  8:00
-03.  Roman Messer & Betsie Larkin - Unite (Extended Mix)  5:30
-04.  Aly & Fila - Beyond The Lights (Extended Mix)  7:46(   Читать дальше...   )Жанр: Trance, Tech-Trance, Harmonic, Stadium Trance, EnergyПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7CB9DBCAA5D833C39E59433120EFEAE573008A
 ```
 
 https://mybot314.ru/tekegram_catalog/

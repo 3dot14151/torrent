@@ -1,3 +1,32 @@
+###  Публикация: 1760553   (37196) от 15.11.2024
+
+Gwen Stefani - Bouquet (2024) [FLAC|Lossless|WEB-DL|tracks] <RnB/Swing, Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Somebody Else's [3:44]
+02 - Bouquet [3:26]
+03 - Pretty [3:14]
+04 - Empty Vase [2:59](   Читать дальше...   )Жанр: RnB/Swing, Electronic, PopПродолжительность: 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB4FEE2F4CDFF279FF7B80AB701AF72BB3633F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761221   (36859) от 18.11.2024
 
 VA - WORKOUT HITS (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -715,35 +744,6 @@ VA - 70s Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD9A0C1DC4A7E36DB60D6BB3396477E0A97591A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771292   (31891) от 05.01.2025
-
-VA - Morning Chill Lounge Vibes (Relaxing Background Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kóstja - Horses (4:06)
-02.  Paolo Sessa - Because Of You (3:34)
-03.  Diego Damiani - Bookworm (2:04)
-04.  Francesco Montisano - Growing Up (2:00)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE57F4D8F335C185F79509B44810C9EE6AE82D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

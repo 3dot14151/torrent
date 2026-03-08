@@ -1,3 +1,38 @@
+###  Публикация: 568865   (394127) от 01.11.2012
+
+VA - Trance Hits Great 100% (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dart Rayne - Four Steps To Eternity (Alex Larichev Remix) 07:06
+ 02. Store N' Forward - Sugar (Original Mix) 06:59
+ 03. Emrah Barut - Anatolian Sirens (Original Mix) 06:58
+ 04. Andrew Rayel - Coriolis (Original Mix) 07:38
+ 05. Skytech - What's Wrong (Skytech Stadium Mix) 06:54
+ 06. Bardalimov - Points Of Departure (Original Mix) 06:26
+ 07. 2 Players - Signet (Wellenrausch Remix) 08:50
+ 08. Armin Van Buuren Feat. Ana Criado - Suddenly Summer (Heatbeat Remix) 07:08
+ 09. Will Holland Feat Jeza - Every Heartbeat (Beat Service Remix) 07:00
+ 10. Allure Feat. Emma Hewitt - Stay Forever (Park Dassenger Remix) 08:53Жанр: TranceПродолжительность: 02:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E643DD1646002052369F800EFDF9B2F7EDD492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172331   (393921) от 07.10.2017
 
 VA - Record Super Chart #506 (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -800,41 +835,6 @@ VA - Empire Records - House Clinic 2 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41DF10F025F4B7B09A13514F7759EFEB2F85B47B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571314   (389414) от 06.11.2012
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #100 (2012) [MP3|320 кб/с]<Voca Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389414.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Protoculture - Cobalt (Original Mix)
-002. Serge Devant feat. Emma Hewitt - Take Me With You
-003. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
-004. Starkillers & Nadia Ali - Keep It Coming (Basto Remix)
-005. The Blizzard & Yuri Kane feat. Relyk - Everything About You (Original Mix)
-006. Tritonal feat. Cristina Soto - Everafter (Tritonal Club Mix)
-007. Will Holland feat. Jeza - Every Heartbeat (Beat Service Intro Mix)
-008. Roger Shah feat. Inger Hansen - Dance With Me (Extended Mix)
-009. Sean Tyas feat. David Berkeley - Take My Hand (John O'Callaghan Remix)
-010. Sunlounger feat. Zara Taylor - Try To Be Love (Roger Shah Naughty Love Mix)(   Читать дальше...   )Продолжительность: 
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2836162CDA5924022704FA6610984A38DFF41908
 ```
 
 https://mybot314.ru/tekegram_catalog/

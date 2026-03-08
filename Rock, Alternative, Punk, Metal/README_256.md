@@ -1,32 +1,3 @@
-###  Публикация: 1006746   (825197) от 13.04.2016
-
-Brazzaville - The Oceans Of Ganymede (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Oceans Of Ganymede (2:19)
-02. Happy Man (3:19)
-03. Aurelia (3:19)
-04. Girl (feat. Renars) (3:41)(   Читать дальше...   )Жанр: Indie, Pop Rock, Easy Listening, BalladПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05438580D0C5B063497D5CF32B5DB358C0D9694E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006937   (825160) от 13.04.2016
 
 Yngwie Malmsteen - Angels Of Love (2009) [FLAC|Lossless|image + .cue] <Rock, Symphonic Rock>
@@ -748,6 +719,33 @@ In Extremo - Kompass zur Sonne (2020) [MP3|320 Kbps] <Folk Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAA6665CD5E46E693D8FADFFA5B5FA52F74C693C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381790   (824589) от 08.05.2020
+
+Танцы Минус - Привет, весна! (2020) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824589.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Привет, весна!
+2. Уехал автобусЖанр: RockПродолжительность: 00:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98E67773672BC48DC660138EE4A601C68835296
 ```
 
 https://mybot314.ru/tekegram_catalog/

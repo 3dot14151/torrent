@@ -1,24 +1,22 @@
-###  Публикация: 1083750   (273716) от 16.12.2016
+###  Публикация: 1083824   (273773) от 16.12.2016
 
-Газета | Обереги от порчи и сглаза №17 (121) (2016) [PDF]
+Вечерний Ургант (2016.12.14) SATRip (cезон 10, выпуск 67)
 
->>Журналы
->>Другие журналы
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273716.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вас преследуют неудачи? Нет денег? Муж изменяет? Хотите найти новых друзей?
-Об этом и многом другом на страницах газеты.
-Сканирование и обработка Алёнка 007.Жанр: Магия, приворот, заговор, эзотерикаФормат: PDF
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20735AA5683C20DC2231581608319D4AF45CEEEA
+magnet:?xt=urn:btih:EE9A139993B98D67C7BEE878BC4BF9573E434B99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,115 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337509   (273715) от 11.11.2019
+###  Публикация: 1083619   (273772) от 16.12.2016
 
-Stargazers - Crystalize (The Best Of) (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stargazers & Fenna Day - Crystalize
-02. Stargazers & Neev Kennedy - Walk Between Your Shadows
-03. Stargazers & Kate Louise Smith - Black Diamond (Radio Edit)
-04. Stine Grove & Stargazers - Time Travel Away (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79239C344E66BD80ABCE93CB1DC59F833338BA67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083574   (273714) от 16.12.2016
-
-VA - Музыкальный плен на Europa Plus 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273714.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Tv Noise Feat. Oisin - Remember 2:43
-002.Нужный Ритм - Незабываемая 3:12
-003.Fallulah - Slow Love 3:02
-004.Ruslan Nigmatullin - Москва Не Город А Целый Мир 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827E9685DC3825BD3DEFF603FA720147043ABE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337500   (273713) от 11.11.2019
-
-VA - Club Later Night (2019) [MP3|320 Kbps] <Club, Dance, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273713.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maliki - Darkside
-002. Blood Groove - Diver (Original Mix)
-003. Fernandes - Con Escala En Medellin
-004. Frank Sonic - Bloooom(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 13:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104C3B68B911FC99D811D05489322F682A47045B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083644   (273712) от 16.12.2016
-
-Dante Fox - Breathless (2016) [MP3|320 Kbps] <Hard Rock, AOR>
+Slaughter And The Dogs - Vicious (2016) [MP3|320 Kbps] <Punk Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273712.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Young Hearts 3:57
-02. All Eyes on You 4:07
-03. Breathless 5:00
-04. Break These Chains 5:59(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:49:58
+01|  Trust (All I Want From You)  (03:03) 
+02|  Hollywood Whores  (02:28) 
+03|  Get It On (Bang A Gong)  (04:50) 
+04|  Someday  (03:28) (   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:45:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30FC3D62D47DE97D309431E020E22DE04DAF3F82
+magnet:?xt=urn:btih:3846421C213D05EAF5D0F1234F74D91ABBE4A6A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,27 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337633   (273711) от 11.11.2019
+###  Публикация: 1083734   (273771) от 16.12.2016
 
-Adobe InCopy 2020 v15.0.0.155 [Multi/Ru]
+iLock 2.2.1 [Multi/Ru]
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273711.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe InCopy CC 2020 - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign CC 2020 для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy CC 2020 идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
+iLock  - защита паролем любого приложения
+iLock - небольшая утилита, которая защищает любое приложение Mac OS X от несанкционированного доступа (в том числе системное), не внося никаких изменений, как в настройки собственно приложения, так и в настроки системы.
 
-Adobe InCopy CC 2020 входит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe Systems IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+iLock очень проста в использовании. Выберите любое приложение, которое вы хотите защитить от drag'n'drop. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 декабря 2016Разработчик: osxbytesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1851C10DB434CB29FF97E72C496C2EF55AD065E1
+magnet:?xt=urn:btih:EEE81CF899EACEF3F02CDC38D9F7923C4F2B2684
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083577   (273710) от 16.12.2016
+###  Публикация: 1083713   (273770) от 16.12.2016
 
-VA - Beatport In The Remix (2016) [MP3|320 Kbps] <Progressive House, Minimal, Deep House>
+VA - Black Hole Trance Music 12-16 (2016) [MP3|320 Kbps] <Melodic Trance, Progressive Trance, Uplifting Trance>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273710.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Deep House
-01. Ralphi Rosario, Linda Clifford - I Hear The Music (Demuir's Deep Inside U Remix)
-02. Rick Wade - Daedalus (Rogerio Martins Deep Down Inside Remix)
-03. Four Tet - Aerial (Jay Daniel Remix)(   Читать дальше...   )Жанр: Progressive House, Minimal, Deep HouseПродолжительность: 16:58:10
+01. Ferry Corsten - Event Horizon (Extended Mix) 04:49
+02. Michael Badal - Heartbeat 03:28
+03. Eco - Darkness In The Light (Extended Mix) 06:52
+04. Roger Shah - Fire (Extended Mix) 07:34(   Читать дальше...   )Жанр: Melodic Trance, Progressive Trance, Uplifting TranceПродолжительность: 02:02:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C727619795415CFC5E6600A90A3AA7124D9A09C1
+magnet:?xt=urn:btih:F1AE8F4BCC043410050C3DC4F6CE0274980748D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,25 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337518   (273709) от 11.11.2019
+###  Публикация: 1083442   (273769) от 16.12.2016
 
-Кен Лю | Бумажный зверинец. Сборник рассказов (2019) [MP3]
+VA - The Best Of Suanda Voice 2016 (Mixed By Lucid Blue) (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273709.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кен Лю, популярный китайско-американский писатель, троекратный обладатель премии «Хьюго», а также других премий и наград, представляет сборник рассказов «Бумажный зверинец». В этом сборнике прошлое смыкается с будущим, мифология Древнего Китая прорастает в реалии современного мира, боги сходят со страниц ветхих манускриптов, чтобы помочь простым людям, попавшим в (   Читать дальше...   )Жанр: Фантастика, фэнтезиПродолжительность: 16:54:23
+01. Kayat feat. Clare Stagg - The Calling (Denis Kenzo Intro Mix) 7:39
+02. Ruta - Like A Dream (NoMosk Remix) 6:26
+03. CubeTonic feat. Dilara Gadel - So Strong (Original Mix) 5:03
+04. Vito Fognini - True To Myself (Ruslan Radriges Remix) 5:55(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 02:39:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09F07D5BF65EF29D70EC02E118AF6B0CA7326D8F
+magnet:?xt=urn:btih:DFC1240ADBD88D4305BFAB9C9CBA21253C0A71C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,28 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083576   (273708) от 16.12.2016
+###  Публикация: 1083695   (273768) от 16.12.2016
 
-VA - Душевная музыка на Шансоне. Выпуск 3 (2016) [MP3|256 Kbps] <Шансон>
+DJ Drez - The Capture Of Sound (2003) [FLAC|Lossless|tracks + .cue] <hip-hop, instrumental, acid jazz>
 
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273708.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001.Сиран Агасаров - Все У Нас Впереди 3:24
-002.Александр Казанцев (Сотник) - Интелегент 3:01
-003.Валерий Курас - Шансон 3:13
-004.Алена Шарапова - Детство 2:57(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
+1. Intro
+2. The Prescription
+3. Wise Dread
+4. Cuba (Interlude)(   Читать дальше...   )Жанр: hip-hop, instrumental, acid jazz, oldschoolПродолжительность: 01:12:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9073C341B4374711FDA61E76BD31E56609AB0907
+magnet:?xt=urn:btih:B16E67E0217B70A2F96FD43B4CF64A69113AFB7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,15 +169,102 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337600   (273707) от 11.11.2019
+###  Публикация: 1337557   (273767) от 11.11.2019
 
-Grum - Deep State (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Progressive Trance>
+Robin Eubanks & Steve Turre - Dedication (1989) JMT [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The New Breed [6:22]
+02. V.O. [6:11]
+03. Red, Black & Green Blues [6:33]
+04. Trance Dance [6:43](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A2D789198820152B098C294BC7FEC433DF9366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337508   (273766) от 11.11.2019
+
+Jivko Petrov Trio (JP3) - Between The Worlds (2015) [FLAC|Lossless|image + .cue] <Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renaissance
+02. Between The Worlds
+03. The 3rd Day Of The Year
+04. Alfonsina Y El Mar(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A0EE175D5EE33B9FB64A6CD1B394024DB0189B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337620   (273765) от 11.11.2019
+
+The Presidents of the United States of America - Kudos to You (2014) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Slow Fly (3:26)
+02. Crappy Ghost (2:26)
+03. Good Morning Tycoon (2:30)
+04. Poor Little Me (2:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C809B58EC747121AFBDFB5671451E0AB8755B000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337599   (273764) от 11.11.2019
+
+Grum - Deep State (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273707.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273764.jpg" />
 </div>
 
 
@@ -275,7 +277,7 @@ Grum - Deep State (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Progr
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1431F4A9BF46AB579D916D169585D5B46D7CA19A
+magnet:?xt=urn:btih:FC67EA75DE6D885EDE1B53C09ABFD89CDE91CFC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,25 +285,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083537   (273706) от 16.12.2016
+###  Публикация: 1337575   (273763) от 11.11.2019
 
-Леонид Пантелеев, Юрий Владимиров и др. | О братьях наших меньших (1999) [MP3]
+Glary Utilities Pro 5.131.0.157 RePack (& Portable) by TryRooM [Multi/Ru]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273706.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Золотая коллекция" - это серия лучших инсценировок русских и зарубежных классических сказок и рассказов, это бесценная и неисчерпаемая кладовая русской и зарубежной культуры, это духовное наследие поколений, это первые "учебники жизни" ребенка.Жанр: Детская литератураПродолжительность: 02:16:02
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C857832FA58EB669D2CE451A0A1BCD196FFAB8AA
+magnet:?xt=urn:btih:BC761496DFAEDF8332458AD03BCB0D4C2A0C9CB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,15 +311,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337484   (273705) от 11.11.2019
+###  Публикация: 1337510   (273762) от 11.11.2019
 
-Журнал | Сваты на даче №10 (58) (октябрь 2019) [PDF]
+Тимоте де Фомбель | Между небом и землёй (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273762.jpg" />
+</div>
+
+
+###  Подробнее
+
+1934 год, площадь перед собором Парижской Богоматери. Через мгновение на глазах огромной толпы Ванго станет священником. Красавица Этель, отчаянно влюбленная в юношу, неотрывно наблюдает за ним. Внезапно какой-то незнакомец, прервав церемонию, стреляет в Ванго. Юноша спасается бегством, однако теперь его преследует еще и французская полиция… Страх погони знаком Ванго (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 14:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B727694D9DC5BDFDDB77B888913BD2EC7B4A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337482   (273761) от 11.11.2019
+
+Журнал | Сваты на даче №8 (56) (август 2019) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273705.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273761.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C295F97AFC2E20D1989210CB6B227074DABD09A
+magnet:?xt=urn:btih:3D0FEFF6A53F0E149C130B8C8657B0E7A36466E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,54 +363,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083691   (273704) от 16.12.2016
+###  Публикация: 1188379   (273760) от 03.12.2017
 
-Champagne Explosion - Champagne Explosion (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Action Is Tight  (5:27)
-02. Sexy Changes  (6:02)
-03. Love Now Hurt Later  (7:03)
-04. Jesus Christ Super Star  (4:06)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF52B544078B0ED4CD484B13115232F76681462B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337626   (273703) от 11.11.2019
-
-European Rally Championship (ERC) 2019. Rally Hungary / Этап 8. Венгрия. День 2 (10.11.19) IPTV [H.264/1080i-LQ] [RU, EN]
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Мужчины. Индивидуальная гонка (30.11.2017) WEB-DL [H.264/1080p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273703.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-8 этап European Rally Championship (ERC) Rally Hungary в Венгрии. День 2.Телекомпания: Eurosport 1 HDЖанр: Автоспорт, РаллиЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:23:04
+30 ноября 2017 года, четверг. 19:15 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Мужчины. Индивидуальная гонка 20 кмТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:50:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:619ED6C43E352C458B68CFCF9E59DBD8B09769B7
+magnet:?xt=urn:btih:00CEE74B80291F6BB9A72F046CB495219A89E098
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,52 +391,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083753   (273702) от 16.12.2016
+###  Публикация: 1188090   (273759) от 03.12.2017
 
-Журнал | Санта-Барбара. Кухня №2 (2) (декабрь 2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем новый кулинарный журнал от Издательского Дома "Толока"!
-В номере: рецепты с модовой квашеной капустой, котлетки на любой вкус, фаршированный карп и многое другое! Читайте нас! С нами Вам будет вкусно!Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5197A9A68BB8C049E46F34CA067008ABB9832D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337579   (273701) от 11.11.2019
-
-Any Video Converter Professional 6.3.5 RePack (& Portable) by TryRooM [Multi/Ru]
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Смешанная эстафета (26.11.2017) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273701.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Профессиональная программа для быстрого и удобного конвертирования видеофайлов между собой в нужные Вам форматы. Позволяет перекодировать распространённые форматы видео (AVI, MOV, RM, MPEG, DVD, WMV, MP4, FLV) в DVD, VCD, MP4 или FLV. Присутствует возможность использовать для кодирования файлов как готовые профили с установленными параметрами видео, которые ориентированы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+26 ноября 2017 года, воскресенье. 19:10 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Смешанная эстафета 2x6 км + 2x7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:13:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:871D8756C6EB193198EA2610D1F9498F6961CF95
+magnet:?xt=urn:btih:25734AB313ED0F605300967191D284DB3D765BD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,86 +419,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083580   (273700) от 16.12.2016
+###  Публикация: 1188560   (273758) от 03.12.2017
 
-VA - Beatport Winter Sounds (2016) [MP3|320 Kbps] <Electronic, Deep House, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep House
-01. Cubicolor - Fictionalise (Lindstrom & Prins Thomas Remix)
-02. Andhim - German Winter (Original Mix)
-03. Johannes Brecht, Christian Prommer - Voix Grave (Johannes Brecht Version)(   Читать дальше...   )Жанр: Electronic, Deep House, MinimalПродолжительность: 17:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CCEFC982CE874198BD7BE752AA2D860E7939BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337496   (273699) от 11.11.2019
-
-VA - End Time Vision: Hard Rock And Metal Selection (2019) [MP3|320 Kbps] <Hard Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273699.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dedicate - A Reason
-002. Minus - Action
-003. Dprive - Sub-Version
-004. Choice To Make - Think Twice(   Читать дальше...   )Жанр: Hard Rock, Metal, AlternativeПродолжительность: 07:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860B717CDF50802C65080C49AB966A2566F08C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083465   (273698) от 16.12.2016
-
-Ellen Allien - BBC Radio 1 Essential Mix 10.12 (2016) [MP3+cue|192 Kbps] <Tech House>
+Горные лыжи. Кубок мира 2017–2018. Лейк-Луиc (Канада). Женщины. Скоростной спуск (01.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273698.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.	Essential Mix - Intro	(01:20)
-02.	Steve Reich - Come Out	(04:27)
-03.	Joey Anderson - Dive Deep	(07:21)
-04.	K-Alexi - Sex-N-R-001 (Slow Sexx Mixx)	(02:50)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:03:12
+1 декабря 2017 года, пятница. 22:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Лейк-Луиc (Канада).
+Женщины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:11:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68E451300E0D8F7EDD7D86D8E2889C10E2B341A6
+magnet:?xt=urn:btih:DDE655CDABC9BF36A076504D54E2319FE53B57C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,80 +448,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337604   (273697) от 11.11.2019
+###  Публикация: 1188103   (273757) от 03.12.2017
 
-Хэллоуин 5 / Halloween 5 (1989) BDRip [H.265/1080p-LQ] [10-bit] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошёл год. А это означает, что вновь близится Хэллоуин и снова людям предстоит надевать страшные маски. Джейми, как мы помним, определили в хэддонфилдскую психушку, где она имела астральную связь с маньяком и видела все его действия, а также могла предсказать опасность для людей, находящихся рядом с ним.Производство: США / Magnum Pictures Inc., The Return of Myers, Trancas International FilmsЖанр: ужасы, триллерРежиссер: Доминик Отенен-ЖирарАктеры: Дональд Плезенс, Даниэль Харрис, Элли Корнелл, Бо Старр, Джеффри Лэндмэн, Тамара Глинн, Джонатан Чейпин, Мэттью Уолкер, Венди Каплан, Бетти КарвальоПеревод: Авторский, любительский одноголосыйСубтитры: ОтсутствуютПродолжительность: 01:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2FF6295519FD94DD965C60502614413B64987A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083655   (273696) от 16.12.2016
-
-Ruby Dee And The Snakehandlers - Little Black Heart (2016) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not For Lond (03:13)
-02. Can You Spare A Match? (02:23)
-03. All Knocked Up (02:23)
-04. Put You Down (03:51)(   Читать дальше...   )Жанр: Rockabilly, Hillbilly, Western Swing, Rock & RollПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627B9CA6B99A904838249510817A7E8595A6CA4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337639   (273695) от 11.11.2019
-
-Adobe Prelude 2020 v9.0 [Multi/Ru]
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Смешанная эстафета (26.11.2017) HDTV [H.264/1080i]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273695.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Prelude CC 2020 - программа для профессиональной оцифровки видеоматериалов, позволяющая преобразовывать любые форматы файлов и расставлять теги. Приложение предлагает эффективное управление процессом подготовки файлов, моментально создавая журналы по маркерам и другим временным метаданным, обеспечивающим возможность поиска в ходе окончательной обработки. С (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe Systems IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+26 ноября 2017 года, воскресенье. 19:10 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Смешанная эстафета 2x6 км + 2x7,5 кмТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:22:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0873674A115AAB09AE29B2EBC7C6C121102B6E1
+magnet:?xt=urn:btih:EE6C6B3B08592BBBC6307C012FBA27D40A1CDD6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,108 +476,257 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337468   (273694) от 11.11.2019
+###  Публикация: 1188075   (273756) от 03.12.2017
 
-Алексей Чернышёв и Алексей Булгаков - Память (2019) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Еловый Аромат
-02. Укрощение Огня
-03. Скользкий Путь
-04. Не Жалей(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47A28D973F8D161F4D9A0D3D9220AAEA17C7CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337586   (273693) от 11.11.2019
-
-MetaMovie 2.4.3 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы создаете свою собственную библиотеку фильмов в iTunes, тогда вы хотите, чтобы она выглядела идеально. Представьте себе, что у вас есть вся информация о фильме под рукой - актеры, дата выхода, режиссеры, обзор и т. Д. И, конечно же, вам нужны красивые обложки для вашей библиотеки. MetaMovie приносит все это в ваши фильмы.
-
-Просто оставьте свои видеофайлы в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2019Разработчик: Holger JansenПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FE8DEF3E8CC6EA152355F44D13C5E07681D139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337619   (273692) от 11.11.2019
-
-Image2Icon Pro 2.10 [En/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Image2Icon Pro - простая в использовании программа для создания иконок файлов и папок. Создание иконок еще никогда не было проще, чем с использованием Image2Icon. Достаточно перетащить нужное изображение, настроить вид стилизованного изображения и выбрать формат экспортируемого файла - и все.Тип издания: macOS SoftwareРелиз состоялся: 05 ноября 2019Разработчик: Shiny Frog Ltd.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45339C6E1B620B6CDA2B279E94AD35152F789C2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337588   (273691) от 11.11.2019
-
-Glary Utilities Pro 5.131.0.157 Repack (& Portable) by elchupacabra [Multi/Ru]
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Одиночная смешанная эстафета. Супермикст (26.11.2017) HDTV [H.264/1080i]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273691.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+26 ноября 2017 года, воскресенье. 16:15 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Одиночная смешанная эстафета. СупермикстТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:42:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6786A6344CA0B9294F5CB065C2438C2DC5473984
+magnet:?xt=urn:btih:8D9C4C51D8E46D027D318678B609ED6FEB7F4562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188751   (273755) от 03.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Мужчины. Спринт (02.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273755.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 декабря 2017 года, суббота. 16:45 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Мужчины. Спринт 10 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327170ED02C375D3347F19224CAB9C21C67733AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188749   (273754) от 03.12.2017
+
+VA - Deugene Music Winter Selection Vol. 10 (2017) [MP3|320 Kbps] <Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alizera - Icarus (Original Mix)
+02. Avery - Promises (Original Mix)
+03. Centaurus B - Exctasy (Original Mix)
+04. Biggoose - Martines (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20284D0BFEF5AAC38D5AEB28019959DBDCDA822F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188522   (273753) от 03.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Бивер-Крик (США). Мужчины. Супергигантский слалом (01.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273753.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 декабря 2017 года, пятница. 20:45 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года.
+Бивер-Крик (США)
+Мужчины. Супергигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A562CF312CFE7CD0BD3E48AF66717428A3F218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188815   (273752) от 03.12.2017
+
+VA - Electric Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. boris vicious - Tonight (Original Mix)
+02. TIJUANA DIABLA - Sillon Rojo (Original Mix)
+03. Biologik - Strange (Original Mix)
+04. Mr. Galaxy - Alien Conspiracy (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F30BCC12A45BF875EC98BA3D8C71F02568DA3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188260   (273751) от 03.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Женщины. Индивидуальная гонка 15 км (29.11.2017) WEB-DL [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273751.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 ноября 2017 года, среда. 19:15 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Женщины. Индивидуальная гонка 15 кмТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B269DDDC496010FF2971998239D641F14542BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188853   (273750) от 03.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Бивер-Крик (США). Мужчины. Скоростной спуск (02.12.2017) WEB-DL [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273750.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 декабря 2017 года, суббота. 21:00 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Бивер-Крик (США).
+Мужчины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F51705BCB938D831468604F624E130DBBAF690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188487   (273749) от 03.12.2017
+
+Футбол. РФПЛ. Чемпионат России 2017-2018. Обзор матчей 18-го тура (27.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273749.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 ноября 2017 года, понедельник
+РФПЛ. Чемпионат России 2017 - 2018. Обзор матчей 18-го тура
+24.11.2017, 17:30 МСК	Амкар – Динамо М
+25.11.2017, 16:30 МСК	Тосно – Арсенал(   Читать дальше...   )Телекомпания: Матч! Наш ФутболЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CAB245B33495635E6FF679BCD58B6F69A10F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188640   (273748) от 03.12.2017
+
+VA - Tag Und Nacht (2016) Total Black [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phase Fatale - Totale (06:11)
+02. Blush Response - Scalebound (05:25)
+03. Stärker - Stark (06:14)
+04. SΛRIN - E.C.M. (04:20)(   Читать дальше...   )Жанр: Techno, Industrial, ExperimentalПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D310AB6D1CD337C76328C1622F50221A4A632B
 ```
 
 https://mybot314.ru/tekegram_catalog/

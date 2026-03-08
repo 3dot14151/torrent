@@ -1,3 +1,61 @@
+###  Публикация: 1734320   (107110) от 03.07.2024
+
+Чай Вдвоем - Вечернее Чаепитие (2005) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А Ты Все Ждешь
+ 02. Камчатка
+ 03. Не Родная
+ 04. Белая Ночь(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BD222BB2C69996158037C26E6AF44D4E9A3EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734494   (107104) от 04.07.2024
+
+Billie Piper - Walk Of Life (2CD) (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day & Night (StarGate Mix) [00:03:15]
+02. Something Deep Inside [00:03:22]
+03. Walk Of Life [00:03:49]
+04. Safe With Me [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB93021FC070AB738D0B871385C2E26B01BD2CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734578   (107097) от 04.07.2024
 
 VA - DJ Hits Vol. 140 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -687,64 +745,6 @@ Bugatti And Musker - 2 Albums (1981, 1982) [MP3|320 Kbps] <Electronic, Funk/Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A67817D5509BE456AE95C88F9AA670C26A60817E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737993   (106456) от 20.07.2024
-
-Пётр Лещенко - Любимые песни (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Всё, что было [00:02:49]
-02 - У самовара [00:03:01]
-03 - Моё последнее танго [00:03:12]
-04 - Чёрные глаза [00:03:12](   Читать дальше...   )Жанр: PopПродолжительность: 01:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B0940C0B41FA17E731B6BEF8DF5B4087AF460F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737844   (106437) от 20.07.2024
-
-Fancy - Fancy For Fans (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slice Me Nice / S.L.I.C.E.
- 02. Fools Cry / Whenever Fools Cry
- 03. When Guardian Angels....Rap
- 04. Flames Of Love / Love Flames(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486ADB64FA0875D3629F574AFAD3A39FC46A056A
 ```
 
 https://mybot314.ru/tekegram_catalog/

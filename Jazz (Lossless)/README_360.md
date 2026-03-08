@@ -1,3 +1,32 @@
+###  Публикация: 1751724   (42300) от 26.09.2024
+
+VA - Italian Restaurant Lounge Music (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Matteo Brancaleoni, Fabrizio Bosso, Stephanya - Senza fine
+02 Papik, Frankie Lovecchio, Stefy Gamboni - Questione di feeling
+03 Fred Buccini, Grazia Di Michele - Stai con me
+04 Melania - Caruso(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B466238E7C3DD4738E48956A2EA58B585FA75C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752484   (41889) от 30.09.2024
 
 Frank Sinatra & Tommy Dorsey - Love Songs (1940 - 1941) 1997, RCA Victor [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
@@ -716,35 +745,6 @@ Steve Lacy - Only Monk (1985) 1993, Soul Note [FLAC|Lossless|tracks + .cue] <Ava
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99C0BAB61BB7F3E11715C12EC72F6824771C450F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755808   (40062) от 17.10.2024
-
-VA - Acid Retro Soul Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anduze - Priority (3:05)
-02. Alixia Mistral - Run Away Or Face The Day (2:45)
-03. Tamashi Pigiama - If You Wanna Go (3:25)
-04. Anna Fondi - Nothing Better Than You (4:49)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718CAB68C47D1174A589E9D20782FA574C58B8D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

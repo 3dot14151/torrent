@@ -1,3 +1,61 @@
+###  Публикация: 1691841   (122928) от 14.01.2024
+
+VA - Real Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dusty Rockers - Tell Me Why (Deep Mix) [03:14]
+02. Burning Grooves - Deserve It (Original Mix) [03:24]
+03. Incredible Motion - Goodbye (Original Mix) [02:46]
+04. Max Clarke - Stayin Forever (Original Mix) [02:45](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EE6081D6CDCB1345354882F2BB7DF58057C37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692053   (122904) от 14.01.2024
+
+Antarsys - The North Star (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. North Star [00:04:13]
+02. Star Divination [00:04:38]
+03. Infinity Soundwaves [00:03:56]
+04. Frozen Dragon [00:04:45](   Читать дальше...   )Жанр: Synthwave, Retrowave, DarkwaveПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F38353CD85859D129810F9CD4421726EA0FB2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692191   (122772) от 15.01.2024
 
 VA - Chronicles, Vol. 1 (2024) [MP3|320 Kbps] <Progressive House>
@@ -684,64 +742,6 @@ VA - Armin van Buuren - A State Of Trance 1246 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78A39DB596B46DF10FEE591271C62BE5C7E6DE1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693741   (121502) от 22.01.2024
-
-VA - This Is Bass 2023 (2023) [MP3|320 Kbps] <Breaks, Breakbeat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Funk - Cruel Summer ft. Mcfly Slim (Extended Mix) [04:26]
-02. Wicked Wes - Dirty Sound [03:56]
-03. SluG (FL) - Good For You [04:59]
-04. Jim Funk - Frequency (Rolling Mix) [04:33](   Читать дальше...   )Жанр: Breaks, BreakbeatПродолжительность: 01:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068CAF88A9CCB62B92558CD58E132268B4937847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693830   (121474) от 22.01.2024
-
-VA - Lounge O'Clock, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - One Love (5:24)
-02. Moshang - Recurring Dream (3:59)
-03. Karen Gibson Roc - We Can Shine Together (4:39)
-04. J.a.z.z.matic - Alone Now (4:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8444BFC65903FDB3AD71A392D53D4CA58B57C73
 ```
 
 https://mybot314.ru/tekegram_catalog/

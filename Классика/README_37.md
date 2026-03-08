@@ -1,3 +1,35 @@
+###  Публикация: 1328397   (359054) от 02.10.2019
+
+Jordi Savall, La Capella Reial de Catalunya, Hesperion XXI - Christophorus Columbus Paraisos Perdidos - Lost Paradise [2CD] (2006) Alia Vox [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концепция программы, выбор текстов, песен и музыкальные адаптации Жорди Саваль
+Драматургия и арамейские, еврейские, арабские и наухатльские тексты Мануэль Форчано
+Рассказчики: Нурия Эсперт - испанский (Диск 2 №18)
+Франсиско Рохас - испанский(   Читать дальше...   )01. Introduccion (00:57)
+02. Invocacion Tethysque novos detegat orbes (01:06)
+03. Evocacion 1 Medea Nunc iam cessit pontus et omnes patitur leges (02:34)
+04. Invocacion Coro Tethysque novos detegat orbes (01:28)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E064F93D29D66C902E9DFCE71BC01D0498A757EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328719   (358926) от 02.10.2019
 
 Jordi Savall, La Capella Reial de Catalunya, Hesperion XXI - Don Quijote de la Mancha, Miguel de Cervantes - Romances y Musicas [2CD] (2005) Alia Vox [MP3|320 Kbps] <Classical, Baroque>
@@ -749,35 +781,6 @@ Requiem No.1 ( la mmoire de Louis XVI), for chorus & orchestra in C minor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04F2B7600F7997732A35B7A963B912ED181C7D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954701   (339830) от 08.11.2015
-
-Mozart - Piano Concertos nos.17 & 20 (Leif Ove Andsnes & Norwegian Chamber Orchestra) (2008) [FLAC|image +.cue]<Classical, Concerto, Classical Period>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto No. 17 in G major, K. 453
-01. Allegro (cad. Mozart) (11:34)
-02. Andante (cad. Mozart) (09:20)
-03. Allegretto (07:19)(   Читать дальше...   )Жанр: Classical, Concerto, Classical PeriodПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB8D9C9B56CF1161B0E842A4FAF44806AE2E8769
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1223138   (679367) от 02.05.2018
+
+PHCK - Natu (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natu (Original Mix) (10:40)
+ 02. Cecilia (Original Mix) (7:10)
+ 03. Magnolia (Original Mix) (8:11)
+ 04. Natu (El Mundo Remix) (8:31)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34877643729E8AE8E8F3222F5054CB1B5A473940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222733   (679253) от 02.05.2018
+
+Hazem Beltagui - VIVID (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Made Of Light (In Memory Of Helena Copto) [05:09]
+02. Reasons To Love (Original Mix) [04:39]
+03. You Were Always Mine (Original Mix) [05:19]
+04. Fade Away (Original Mix) [06:14](   Читать дальше...   )Жанр: Electronic, Trance, Progressive TranceПродолжительность: 01:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34E0AFF2FD5042F10398EEEFA9C316E21EEA946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029747   (678610) от 28.06.2016
 
 VA - The Best of House on the Beach - 30 Sexy Chillout Tunes (2016) [MP3|320 Kbps] <House>
@@ -687,64 +745,6 @@ VA - Driving EDM Vol 2 (2017) [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1A9E128789B3764AB359A447E573EA3861A9E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223249   (677285) от 03.05.2018
-
-Liquid Bloom - ReGen Mose Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Tribal, Ethnic>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emerging Heart (Mose Remix) (feat. Rara Avis)
-02. Ensename (Mose Remix)
-03. Fire Gathering (Mose Remix)
-04. Ecstatic Grounding (Mose Remix)(   Читать дальше...   )Жанр: Psychill, Psydub, Tribal, EthnicПродолжительность: 01:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACB5FC2F21FDE8FF64FD7A10D9D23480A0CFB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135707   (677282) от 21.05.2017
-
-VA - Ori Uplift - - Uplifting Only, Episode 223 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BREAKDOWN OF THE WEEK: Carl Daylim - Believe In You (Intro Mix) (Maraphobia) (EXCLUSIVE PREMIERE)
-02. FAN FAVORITE 217: Twin View - Eris (illitheas Remix) (Silent Shore Deep)
-03. Volmax - I'll Never Stop (Sundance) (EXCLUSIVE PREMIERE)
-04. PRE-RELEASE PICK: Damian Wasse - In The Sky (Classical Mix) (Music Hotel) (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A27C03B12E1C01F46C4A45C452ADCC85C4DEA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

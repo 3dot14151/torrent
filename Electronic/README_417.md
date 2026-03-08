@@ -1,3 +1,61 @@
+###  Публикация: 1085297   (214791) от 21.12.2016
+
+VA - Christmas and Chill Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bes & Meret - Ko Samui Nights (04:20)
+02. Roberto Sol - Momentos Azules (04:22)
+03. Chris Le Blanc - Shiva And The Sea - Sunset Ashram Mix (06:13)
+04. Florian Fai - Lakeshore Morning (04:57)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F7A2929C04467E2A03EA93188FAD0D6FD85AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085581   (214788) от 21.12.2016
+
+VA - Cosy Christmas Lounge, Vol. 1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chambre 7 - Rising To The Top (03:56)
+02. Lemongrass - Nostalgia (03:45)
+03. Chambre 41 - Promenade No.2 (06:18)
+04. Dreamcatcher - LoveI s The Key (04:39)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457B8E9009069CF1BBBA9DC9785DBC59037FC75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085527   (214738) от 21.12.2016
 
 VA - Best of Bedrock 2016 (2016) [MP3|320 Kbps] <Tech House, Techno, Progressive House>
@@ -684,64 +742,6 @@ Blank & Jones (feat. Marcus Loeber) - Silent Piano (Hourglass EP) (2019) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA0434ABC8DB82CD394B24F05D026BEE9048C93A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426565   (213677) от 25.11.2020
-
-Cpektir & Survey Channel - Myriagon Atlas (2020) Music Is The Devil [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off World Power Lines (00:43)
- 02. Sinepuxent (03:40)
- 03. Turquoise Waters (01:04)
- 04. Mt. Norquay (04:20)(   Читать дальше...   )Жанр: Ambient, IDM, Downtempo, ExperimentalПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD06407C8D8F5EF933FE50DDC980D4CD88F36951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344239   (213659) от 09.12.2019
-
-Armin van Buuren - Balance (Extended Versions) (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Trance, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Avalan - Sucker For Love (Original Mix)
-02. Armin van Buuren & Avian Grays feat. Jordan Shaw - Something Real (Extended Mix)
-03. Armin van Buuren feat. Sam Martin - Wild Wild Son (Original Mix)
-04. Armin van Buuren & Garibay - Phone Down (Original Mix)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 02:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F329C51826CC057AB4F4B91857839DBCEA0C19
 ```
 
 https://mybot314.ru/tekegram_catalog/

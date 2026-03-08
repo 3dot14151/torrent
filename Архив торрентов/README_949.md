@@ -1,38 +1,3 @@
-###  Публикация: 196049   (829039) от 26.04.2010
-
-VA - House Vip (23.04.10) [MP3|320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadmau5 - Ghosts N'Stuff (DJ Viduta Remix) (5:51)
-02. Dirty Midget - Electro Party (Original Mix) (6:09)
-03. Electro Own - Dance Eletric You (Original Mix) (5:47)
-04. Fabio Considera - Just Push (Manuel Costa and DJ Falaska Remix) (7:01)
-05. Fred Worx - High Volume (Original Mix) (6:45)
-06. Funkastarz - Going To London (Mark Laurenz Remix) (5:33)
-07. Hot Noizes - Sun Is Shining (Original Mix) (4:27)
-08. Jamiroquai - Deeper Underground (DJ Denis Rublev & DeRom Remix) (5:54)
-09. Julian Airia - Freak Me Baby (Original Mix) (6:45)
-10. We Love Bitches! (Thomas You Remix) (5:39)(   Читать дальше...)Жанр: Electro House
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 196057   (829038) от 26.04.2010
 
 VA - House Vip (25.04.10) [MP3|192-320 kbps]<Electro House>
@@ -702,6 +667,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2016FFC4E7556EF326A1882B0D1EF70A4468465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005863   (828717) от 11.04.2016
+
+Артур Херцог | Смерть среди айсбергов (1993) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828717.jpg" />
+</div>
+
+
+###  Подробнее
+
+В остросюжетном романе Артура Херцога говорится о противоборстве человека с природой и животным миром, китами убийцами.
+Поставленный по роману фильм Дино Де Лауцрентиса был хитом советского кинопроката.Жанр: ПриключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660C719565DD4E3B0C6EDE02C8A3895860E55AC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

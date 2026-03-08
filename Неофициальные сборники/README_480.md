@@ -1,3 +1,177 @@
+###  Публикация: 1178189   (357857) от 27.10.2017
+
+VA - Для Тех, Кто Помнит! Русский Рок Vol.6 от Ovvod7 (2017) [MP3|320 Kbps] <Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  ДДТ - Что такое осень 4:57
+02.  Кузьмин Владимир - Когда я стану другим 4:09
+03.  Альфа - Воробей 4:19
+04.  Воскресение - Воскресение 6:50(   Читать дальше...   )Жанр: РокПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B15447E7AEBBB905502208D9ED046CC94768DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951915   (357826) от 31.10.2015
+
+VA - Танцы до рассвета. Русский сборник от Хит FM (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357826.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Bahroma - Пока Пора
+002 Mot Feat. Виагра - Кислород (Dj Shtopor Remix)
+003 Jamala - Песня о дружбе
+004 Катя Чехова - Крылья (Dj Timur Giniyatov Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEE3B7FE7D725731BA9C549379A5B32558AAD88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071524   (357348) от 11.11.2016
+
+VA - The Treasure Of Illumina: Vocal Trance (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance, Melodic, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357348.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stoneface & Terminal, Neev Kennedy - Lost (Radio Edit) 3:32
+002. Store N Forward & Elles De Graaf - Distant Hearts (Radio Edit) 4:16
+003. 4 Strings Vs Kaimo K & Sue Mclaren - The Treasure Of Illumina (Radio Edit) 3:23
+004. Audrey Gallagher & Reorder - Your Own Way (Radio Edit) 3:47(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Melodic, EnergyПродолжительность: 07:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A549B037D625A045793F1E627D6E9C481381A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 255208   (357341) от 07.11.2010
+
+VA - Музыка нового дня (2006) Ридерз Дайджест, 3CD [MP3|320 kbps]<New age, Relax>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_357341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это музыка, которая используется фоном для медитаций, релаксаций и других практик, или под которую приятно засыпать. Она наполнена ненавязчивыми мелодиями, медленным успокаивающим ритмом, приятными обертонами, звуками природы, пением птиц, мурлыканьем котят - все это Музыка Нью-Эйдж. CD 1 - Музыкальные водопады; CD 2 - Лунный презент; CD 3 - Дух солнца01. Sun Spirit
+02. Matras & Names Remix VII
+03. Sherab Jamma
+04. Prelude(   Читать дальше...   )Жанр: New ageПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952086   (357280) от 31.10.2015
+
+VA - Дискотека Казанова Старые Песни По Новому vol.5 (2015) [MP3|320 кб/с]<Club, Dance, Hands Up, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pandora - Don t You Know (Aleks Version 2015)
+02. Solid Base - Together (Sergey Zar Refresh)
+03. Blue Heart - Singin' I'm Happy (Martik C Rmx)
+04. Snap! - Rhythm Is A Dancer (Max R. Remix)(   Читать дальше...   )Жанр: Club, Dance, Hands Up, EurodanceПродолжительность: 01:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE33DBA78D373CA45BBF0D4FCF88DC740DA9184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071814   (357245) от 11.11.2016
+
+VA - Beatport Trance Pack 11.11 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Emotional, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357245.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Markus Schulz - The Lost Oracle (Transmission 2016 Theme) 7:45
+002. Allen & Envy ft. Mark W & Michele C - Going Under (Extended Mix) 6:39
+003. Kaimo K - Rise & Smile (Original Mix) 7:58
+004. A.R.D.I. - Invictus (Original Mix) 7:02(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Emotional, HarmonicПродолжительность: 09:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE83C8E72F6437E1D8E5DF18ABC554C48BDFB790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071650   (357232) от 11.11.2016
 
 VA - Record Super Chart #461 (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -573,184 +747,6 @@ VA - Beatport Top 100 30.10.2015 (2015) [MP3|320 кб/с]<House, Electro, Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C617E2268F15610F70CECD2EC5F189A216D0B3D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178552   (355939) от 28.10.2017
-
-VA - Melodic Techno Tom III [Compiled by ZeByte] (2017) [MP3|320 Kbps] <Melodic Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Huntemann - Vertigo [05:41]
-02. Glenn Morrison - Twisted [06:13]
-03. Hans Zimmer - Time (Nihilum Remix) [06:47]
-04. Mashk & Soul Button - Pensees [07:36](   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 03:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97FAE2C4BE92804B501882F6A3CFC24DE2ADBA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952122   (355891) от 01.11.2015
-
-VA - TOP 100 Club Tracks (October) (2015) [MP3|320 кб/с]<Club House, Vocal House, House, Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 6A - Gwen Stefani - Hollaback Girl (DJ Max Maiskii Edit)
-02. ABBA - Gimme gimme gimme (FuzzDead remix)
-03. Abel Almena - Damager (Original Mix)
-04. Ace Of Base & Alex Slam - All That She Wants (D' Luxe Mash Up)(   Читать дальше...   )Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 08:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0D1F6910A91F6F444CD6AFA76C35BF394BC94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952539   (355862) от 01.11.2015
-
-VA - TOP October (2015) [MP3|320 кб/с]<Electronic, Lounge, Chillout, Pop, Deep>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rafael Lambert feat. Fred Ventura - Looking For The Summer (07:07)
-02. Blank&Jones - WYB  (Deeper) (07:35)
-03. Ursula 1000 feat. The Lovers Key - I Got What You Need (04:05)
-04. Mazde feat. La Mar - Shifted Thoughts (03:25)(   Читать дальше...   )Жанр: Electronic, Lounge, Chillout, Pop, DeepПродолжительность: 02:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079309AFCA3C4E1C61612343D05659C056D3ED48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952421   (355860) от 01.11.2015
-
-VA - In the Name of the Blues (2015) [MP3|320 кб/с]<Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Malley - Feel All Right Feel All Wrong (4:09)
-02. Shay Dillon - Holdin' On (4:01)
-03. Riff Raff-N-Blue - Can't Stop (5:38)
-04. Robert Farrell - Gtr (6:04)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F037161CA1F0C0D6751B9BE0490C7ABDBAEC4A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256257   (355820) от 21.10.2018
-
-VA - Rare Disco Dance (2018) [MP3|320 Kbps] <Electronic, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Gypsy - I'm Ok, You're Ok (1980) (5:27)
-02. Angie Gold - No Alibi (1982) (3:03)
-03. Aural Exciters - Paradise (1979) (3:11)
-04. B.B. And Band - That Special Magic (You Better Straighten Up Baby) (1982) (6:56)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 04:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670D4726A0882B3BE96925EF401756C21F4657D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578098   (355798) от 20.11.2012
-
-VA - Trance Maniacs Party: Trancefer Wave #116 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355798.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Trance Maniacs Party: Trancefer Wave #116 (2012)
-Год: 2012
-Жанр: Trance
-Продолжительность: 03:11:39Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-
-001. Running Man pres. Inca - Freefall (Original Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05381D6E1DB21383266ADA585DEF0F1AD080A73B
 ```
 
 https://mybot314.ru/tekegram_catalog/

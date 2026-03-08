@@ -1,3 +1,61 @@
+###  Публикация: 1304400   (565532) от 25.05.2019
+
+Venus Dodson - Night Rider (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's My Turn (6:48)
+02. Shining (7:35)
+03. Night Rider (6:43)
+04. Where Are We Headed (4:14)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758C449A8D2B585B9D42DC275E53DA13278EC560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304305   (565528) от 25.05.2019
+
+Diva Gray And Oyster - Hotel Paradise (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Tropez (5:29)
+02. Up And Down (6:12)
+03. Hotel Paradise (5:13)
+04. Good Good Tequila (6:29)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D25639786D0AEEAD47D447B0A17B65AA86F21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555803   (565477) от 06.06.2022
 
 Christina Aguilera - Aguilera (2022) [MP3|320 Kbps] <Pop>
@@ -693,64 +751,6 @@ Juli Fabian & Zoohacker - Shine (2015) [MP3|320 кб/с]<Euro Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BF7C019229965BAAB257F2C7689DBCC8F0A1446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923910   (560919) от 02.08.2015
-
-VA - Ibiza Lounge Deluxe (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Tokeo - Riva (Restart the Game) (03:00)
-02. Vibe2Vibe - Cheerleader (03:05)
-03. Vibe2Vibe - Lean On (02:57)
-04. DJ Tokeo - Ain't Nobody (Loves Me Better) (03:06)(   Читать дальше...   )Производство: Sugar & Lime RecordsЖанр: Pop, DanceПродолжительность: 01:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396E7C242D15BF324B52FD39A103BFB763E9BBAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923921   (560908) от 02.08.2015
-
-Natalie Imbruglia - Male (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instant Crush
- 02. Cannonball
- 03. The Summer
- 04. I'll Follow You Into The Dark(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA2D37683855EA2FA6D025309845166CD768AAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1068407   (383082) от 31.10.2016
+
+VA - Extra Trance: Bonus [10] (2016) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lostly - Galaxy of Blue (Extended Mix) (6:38)
+02. Solarstone - Herald (Transwave Remix) (7:26)
+03. Darren Porter - Human (Extended Mix) (7:05)
+04. Formal One & Sarah Lynn - In Winter (Progressive Mix) (4:36)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9343AD853F988F5F006ACB558A166C282ACC8AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068203   (382820) от 31.10.2016
 
 VA - Record Super Chart #460 (2016) [MP3|320 Kbps] <House, Electro House, Future House, Club, Dance>
@@ -775,38 +804,6 @@ VA - Trance Traveling 82 (Mixed By VNP) (2016) [MP3|320 Kbps] <Trance, Melodic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18954690368FF110B788E44119789DB13C74C19E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326534   (380772) от 22.09.2019
-
-VA - Hits of My Soul Vol. 49 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Banco De Gaia - Lamentations (03:02)
-02. Banco De Gaia - Wimble Toot (07:59)
-03. DJ Klubbingman & Savon - Aurora (Club Mix) (06:07)
-04. Heatbeat - Arganda (Original Mix) (07:04)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1081A88CDABF89BC478FF812735765A8A58130CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

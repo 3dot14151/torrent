@@ -1,3 +1,32 @@
+###  Публикация: 1065465   (419640) от 23.10.2016
+
+Os 3 Morais - Os 3 Morais -1971 (2015 Japan Edition), [FLAC|Lossless|tracks + .cue] <Bossa Nova, MPB>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Se Quiser Valer (2:21)
+02. Odeon (3:07)
+03. Tao Preso Pelo Teu Olhar (2:55)
+04. Sambachiana (2:10)(   Читать дальше...   )Жанр: Bossa Nova, MPBПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640B2A00332C3DAEE3DB8EFDEB66FBD11D7F808C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065509   (419638) от 23.10.2016
 
 Nat King Cole - Every Time I Feel The Spirit (1958) 2007, Collectors' Choice Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -722,35 +751,6 @@ Betty Carter - The Music Never Stops (1992) 2019, Blue Engine Records [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31750A61E5F87189C410314AD10ACA17CCBC94CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412585   (416192) от 30.09.2020
-
-Duke Ellington - Complete Prestige Carnegie Hall Concerts (1946, 1947) 2001, 3CD, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416192.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Caravan [4:00]
-02. In a Mellotone [3:06]
-03. Solid Old Man [3:42](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA71CD86D2A72AA16F09050200976531C747D912
 ```
 
 https://mybot314.ru/tekegram_catalog/

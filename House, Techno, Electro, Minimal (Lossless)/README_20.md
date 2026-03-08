@@ -1,3 +1,89 @@
+###  Публикация: 1387259   (791846) от 01.06.2020
+
+Resoe - Discography 15 Releases (2007-2020) Baum Records, Echocord [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Minimal, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Larm (07:06)
+ 02. Larm (Joey Anderson Remix) (05:40)
+ 03. Low Identity (08:48)Тип издания: CD, WebЖанр: Dub Techno/TechnoПродолжительность: 06:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E518EEAA61E906ACAB2EA696349EF089478385EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387604   (791338) от 02.06.2020
+
+Eric Prydz vs. Floyd - Proper Education (2007) Maxi-Single [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Proper Education (Radio) (3:26)
+02. Proper Education (Club Mix) (6:11)
+03. Proper Education (Dub Mix) (8:40)
+04. Proper Education (Instrumental) (2:31)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66C2F01A978FF566BE1750961F9CF8B4EE420FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387502   (791200) от 02.06.2020
+
+Moby - All Visible Objects (2020) Little Idiot [FLAC|Lossless|WEB--24Bit|tracks] <House, Ambient, Dance-pop, Leftfield>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morningside (05:31)
+ 02. My Only Love (05:45)
+ 03. Refuge (05:45)
+ 04. One Last Time (05:34)(   Читать дальше...   )Жанр: House, Ambient, Dance-pop, LeftfieldПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E1EEEF1BCBA8464B0BB917D6CB6EB8A4A651EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275275   (791156) от 10.01.2019
 
 Danniel Selfmade - Parallel Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
@@ -656,93 +742,6 @@ Adverb - Collection 6 Releases (2013-2019) Etoka Records [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B5A5FC6C0377290EEAFD78F6E61B62ABAE2AB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512657   (787056) от 25.11.2021
-
-Dirty Disco Stars - Body Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Funky House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Rock (3:13)
- 02. Dance Till We Die (3:46)
- 03. Shine A Little Brighter (2:42)
- 04. Time To Go (3:37)(   Читать дальше...   )Жанр: EDM, Funky House, Nu DiscoПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F99DAA3EFE919CA1FB2151CA327BDCBF76FD1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277089   (786990) от 19.01.2019
-
-Danger - Origins (2019) 1789 Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthwave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9:20 Intro (02:46)
- 02. 9:20 (05:19)
- 03. 22:01 (04:36)
- 04. 11:17 (02:59)(   Читать дальше...   )Жанр: Electro, SynthwaveПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D8D6E83F8D86ED008B0535588C43BE6B516C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388427   (786736) от 06.06.2020
-
-Meute - Puls (2020) [FLAC|Lossless|tracks + .cue] <Deep House, Nu-Jazz, Broken Beat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panda (03:42)
-02. Holy Harbour (05:15)
-03. What Else Is There (06:45)
-04. Push (06:47)(   Читать дальше...   )Жанр: Nu-Jazz, Broken Beat, Deep HouseПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D3FAA5ADB1FEDF4CAF956BCD99F2D2D9305D8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

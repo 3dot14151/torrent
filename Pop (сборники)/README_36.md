@@ -1,3 +1,32 @@
+###  Публикация: 1019581   (748458) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 5 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricchi E Poveri - Mamma Maria ( 1982 )
+02. Latin Lover - Laser Light ( 1986 )
+03. Samantha Fox - Touch Me ( 1986 )
+04. Secret Service - Oh Susie ( 1979 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC845507DDEC6CC59BF12CCF398D4D2CD1ECCCC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019576   (748454) от 24.05.2016
 
 VA - Зарубежная Дискотека ХХ Века - 4 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
@@ -716,35 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 18 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:261B1542955404CA8D5229C3E121915C8D19CEF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020874   (743694) от 27.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 20 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flo Astaire - Monkey Monkey ( 1986 )
-02. Alan Cook - Bad Dreams ( 1986 )
-03. Queen Of Times - Holiday ( 1999 )
-04. Mike Mareen - Here I Am ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6734F0269787CEEA74AB4639C4AE932B0761AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

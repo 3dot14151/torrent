@@ -1,3 +1,32 @@
+###  Публикация: 1206194   (782511) от 13.02.2018
+
+Tom Parker Featuring Berdien Stenberg & Jaap van Zweden - Bach - The Brandenburgs - The Concertos 1, 2 & 3 (A Tom Parker Project) (1995) 1997 [FLAC|Lossless|image + .cue] <Classical, Neo ...
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto No. 1
+1	Allegro	4:37
+2	Adagio	3:36
+3	Allegro	5:10(   Читать дальше...   )Жанр: Classical, Neo-ClassicalПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED3AC30438511152F62343156AF34CE27B50DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391496   (781016) от 20.06.2020
 
 Andrew Jasinski - Embracing the Universe (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neo-Classical, Instrumental, Piano>
@@ -708,35 +737,6 @@ Maxence Cyrin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF0349AA8A5C891478974977AD697451BA0E0974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199232   (767395) от 27.01.2019
-
-Д.Д.Шостакович-Симфония №7 'Ленинградская' дирижёр Марис Янсонс (1995) [FLAC|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_767395.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 августа 1942 года по планам фашистского командования Ленинград должен был пасть, на этот день был назначен парад немецких войск в городе. Но в этот день в Большом зале Ленинградской филармонии, на стене которой красовалась надпись: "Граждане! Осторожно! При артобстреле эта сторона опасна!" – в городе, где люди каждый день гибли от голода и бомбёжек – (   Читать дальше...   )1. Allegretto (26:03)
-2. Moderato (Poco allegretto) (10:02)
-3. Adagio (16:22)
-4. Allegro non troppo (16:17)Жанр: Classical, симфоническая музыкаПродолжительность: 01:08:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

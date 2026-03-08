@@ -1,3 +1,32 @@
+###  Публикация: 759952   (900155) от 26.02.2014
+
+Peter Tosh - Captured Live (2002) DVDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сам концерт записан 23 августа 1983 года, Greek Theater, Los Angeles.01. Intro (Live) 1:32
+02. Pick Myself Up (Live) 4:01
+03. African (Live) 4:09
+04. Coming In Hot (Live) 4:13(   Читать дальше...   )Жанр: Концерт, ReggaeПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE09F282090543BDE0710B8A7034B90CF914798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 760676   (899531) от 26.02.2014
 
 Новогодний концерт Венского Филармонического оркестра / Neujahrskonzert - Daniel Barenboim & Wiener Philharmoniker (2014) Blu-Ray [1080i]
@@ -678,38 +707,6 @@ Accept - Restless And Live (2017) Blu-ray [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C5797DB9F4BA2F610A465B244AD601CB9EFD9E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638908   (892066) от 04.04.2013
-
-Lana Del Rey - The Video Collection 2011-2012 [1080] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Born To Die (2011), 00:04:46
-2. Video Games (2011), 00:04:45
-3. Blue Jeans (2012), 00:04:20
-4. Ride (2012), 00:10:08
-5. National Anthem (2012), 00:07:48
-6. Summertime Sadness (2012), 00:04:39
-7. Blue Velvet (2012), 00:02:13Жанр: Indie Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8BDF7D4636A6E25A90617CA45E0402F4BAD9F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1097664   (242841) от 29.01.2017
+
+Paul Smith Quartet - Softly, Baby (1957) Remaster, 2011, Capitol[FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Softly [04:19]
+ 02.Taking A Chance On Love [04:03]
+ 03.Easy To Love [04:00]
+ 04.Long Live Phineas [02:36](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1E40BE02430F9BCD5937B8C58602BE24C37842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098193   (242828) от 29.01.2017
 
 Paul Gonsalves - Gettin' Together! (1960) 1987, Original Jazz Classics[FLAC|Lossless|image + .cue] <Mainstream Jazz, Hard Bop>
@@ -716,35 +745,6 @@ Joe Williams - A Man Ain't Supposed To Cry (1958) 1998, Roulette [APE|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62BAC6A7EF5836245C01CC403217788EDABD9714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106320   (242184) от 19.02.2017
-
-Julio Barreto Cuban Quartet - Iyabo (2002) Pimienta Records [FLAC|Lossless|tracks + .cue] <Ethnic Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Latineo [05:56]
- 02.Spider Strings [05:41]
- 03.Cantar Bueno [03:33]
- 04.Coming Home Baby [05:26](   Читать дальше...   )Жанр: Ethnic Jazz, Latin JazzПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB9E9FE73C4370AE1A5FED17BD3C48711CCFDB85
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1857869   (1060057) от 07.03.2026
+
+VA - Pool Lounge 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lex Field - Memories (3:16)
+02. Fatten Klaus - Getting Better (5:30)
+03. KMÖBA - Moments (3:56)
+04. Ballester - On the Edge (3:18)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FCB02AE85F664EE27E80F6C3D3295A84DF3AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857893   (1060056) от 07.03.2026
+
+VA - Poolside Lounge 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anka - Gravity (3:04)
+02. The Fly - No Go Back (2:43)
+03. Kevin Havis - Without (2:14)
+04. Johny Luv - Ocean Drive (3:22)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55B085B9AE1926FC8E5417F8F4FF020B3D421BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857659   (1059765) от 07.03.2026
+
+VA - Afro House Weekend Selection (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abee Sash - Keep Us High (3:06)
+02. CHARZZ - Pieces of You (4:00)
+03. Cristian Ferrer - Alright (5:58)
+04. Cristian Ferrer - Away (4:43)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6132B96EF8D5E233F5A4029F7E03C8DAD092DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857322   (1059515) от 05.03.2026
 
 VA - Lounge 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -657,93 +744,6 @@ VA - Chill House Classics (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:246424FFD2EE4CBBB8CFCAB046CC8650DE52DC55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852529   (1056163) от 08.02.2026
-
-Rigooni - Serenade (2020) [FLAC|Lossless|tracks] <Deep House, Organic House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Blue Rose For Daniele 09:03
-02. Serenade 09:02
-03. Eudaimonia 10:08
-04. August Tears 08:25Жанр: Deep House, Organic HouseПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83ACF3BB0C7915E3435DD66967C8860E3392551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851610   (1055305) от 02.02.2026
-
-VA - Lounge Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmonize - Show Me Love (5:10)
-02. Abee Sash - Memories (3:36)
-03. DeepTurco - Energy (4:00)
-04. Faraón - Love of My Life (4:20)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09E303ED80ACC20105A6500A7F8219111B00FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848679   (1052935) от 18.01.2026
-
-VA - Winter Lounge Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegant Ape - Feel The Fire (3:58)
-02. Silvan7 - Summer Emotions (3:57)
-03. Fly - Live (Radio Edit) (3:13)
-04. N.E.O.N - Monday Blues (Radio Edit) (4:21)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976528B256B45A21E2FE9AD15A530CD11E1B1E8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

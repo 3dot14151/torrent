@@ -1,3 +1,32 @@
+###  Публикация: 960388   (296796) от 03.12.2015
+
+Бряц-Band - 2 альбома (2005-2008) [MP3|320 кб/с]<Folk, Rock, Instrumental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Boney M
+02 Тарантіноманія
+03 Реальні мультики
+04 Искала тебя(   Читать дальше...   )Жанр: Folk, Rock, InstrumentalПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80F5A6F227E70C31A68F7E3E613D3C75FCA6C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078825   (296246) от 03.12.2016
 
 Brian Tyler - Brake / Тормоз (Original Motion Picture Soundtrack) (2012) [MP3|320 кб/с]<Soundtrack>
@@ -713,35 +742,6 @@ VA - Fifty Shades Of Grey (Original Motion Picture Soundtrack) (2015) Target Exc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B5BE5A117C9DAE876D7B22DAF700DDCE1DAC8B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079857   (291990) от 05.12.2016
-
-Greg Maroney - The Light Within (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reverie [00:06:59]
-02. Time Without End [00:07:06]
-03. Waking Dream [00:10:05]
-04. Walking with the Moon [00:07:31](   Читать дальше...   )Жанр: New Age, Ambient, PianoПродолжительность: 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B0ABFCEE99E7D23DCEC44F588810C79A779D9A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

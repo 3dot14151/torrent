@@ -1,3 +1,207 @@
+###  Публикация: 553561   (443738) от 28.09.2012
+
+VA - L.O.V.E. Vol.11: Chillout Music Collection (2012) [MP3|320 кб/с]<Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andain - You Once Told Me
+02. Dinka - Innocence (Original Mix)
+03. George Holliday - Never Gonna Grow (Original Mix)
+04. Matt Tilli - A Drug (Original Mix)
+05. Natalie Marchenko - Lily Was Here
+06. Bryan Milton - Astronomy (Original Mix)
+07. Store N Forward - Listen To Life (Masoud Remix)
+08. Electrico - Liberation (Shigeki Str1ng Orchestra Remix)
+09. New Believers feat. Ike Sofunky - Read My Mind (Drexmeister Rework)
+10. Thomas Lemmer - Traveller (Setsuna Remix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 04:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942D637501FFE5284970928F5AE2607C3CB63760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552825   (443605) от 28.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 86[MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricky King - Dalilah
+02. J.Last - Concierto De Arangues
+03. Alain Musichini - La Polka Musette
+04. Armik - Gypsy Romance
+05. А.Серов - Пою тебе
+06. Arabian Night - Fantasia
+07. Ocarina - Camilleva
+08. Karunesh - Sahara Sunset
+09. А.Зацепин - Темы из кинофильмов VII
+10. Roy Etzel - Tell Laura I Love Her(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CAC7A4923B39E1C1BC21C0AE5E3C71BEB98B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552821   (443603) от 28.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 85 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conquistador - Granada
+02. В.Ковтун - Встреча
+03. Jackson - Say Say Say
+04. The Ventures - The House Of The Rising Sun
+05. D.Luca - Unchained Melody
+06. J.Last - Cracklin Rosie Rose Garden
+07. G.Marradi - Thoughts
+08. Karunesh - Call Of The Unknown
+09. Antonio De Lucena - Sotto La Luna
+10. J.Borelly - Toute La Pluie Tombe Sur Moi(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1935E32AA066A82CF3C9D1AF5E45AE493608B5D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553267   (443598) от 28.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 87 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оскар Строк - Черные глаза
+02. G.Marradi - Romantico
+03. The Romantic Sax - End Of The Night
+04. Antonio De Lucena - My Sunshine
+05. Mario Battaini - Le Sirene Del Ballo
+06. Dana Dragomir - Skallgang
+07. Space - On The Air
+08. В.Зинчук - Колыбельная для Антуанетты
+09. VA - Instrumental Theme
+10. А.Зацепин - Темы из кинофильмов VIII(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F2F742B1ADD3EDA7E77F728E0CF7D09272E1D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553269   (443534) от 28.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 88 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Govi - Lovers Moon
+02. G.Marradi - Just For You
+03. Carlos Areias - Sombras Du Madrugada
+04. A.Findon - One Man, One Woman
+05. А.Серов - Улыбка
+06. Mario Battaini - Sul Bel Danubio Blu
+07. Neal Schon - Caruso
+08. Karunesh - Sapphire
+09. Armik - Maracles
+10. Golden Sax - Saving All My Love For You(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793BA79B6CBEC51938585CD472AE9CDCA5A05626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409589   (443271) от 18.09.2020
+
+VA - Tight Drum And Bass: Bassline Positive Session (2020) [MP3|320 Kbps] <Drum And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443271.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Liquid Jazz - Need Your Love
+002. Pltx - Late Night Liquid
+003. Tarz - Friday Feeling
+004. Sonic - Then(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 13:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76C2A7D35A4CA89268B896C0685D426D881E681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409588   (443266) от 18.09.2020
 
 VA - Panopticum: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Rock Punk>
@@ -574,192 +778,6 @@ VA - Record Russian Mix Top 100 Октябрь (2016) [MP3|319-320 Kbps] <Club H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A21741F562E90C5F4975BEA87C95C3A39678F3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553424   (441903) от 29.09.2012
-
-VA - Спорт FM (26.09.2012) [MP3|320 кб/с]<Pop, Rock, Retro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rasmus - I'm a Mess
-02. Cady Groves - Love Actually
-03. Adam Lambert - Never Close Our Eyes
-04.The Offspring - Cruising California (Bumpin' In My Trunk)
-05. Linkin Park - Burn It Down
-06. Foster The People - Houdini
-07. The Black Keys - Gold On The Ceiling
-08. The Black Keys - Gold On The Ceiling
-09. The Offspring - Days Go By
-10. Maroon 5 - One More Night(   Читать дальше...   )Жанр: Pop, Rock, RetroПродолжительность: 01:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B27885B9ADA6272EC507851F54B72B68BDDEC3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164448   (441510) от 09.09.2017
-
-VA - Billboard Hot 100 Singles Chart (16.09.2017) [MP3|192-320 Kbps] <Pop, Dance, Euro, Indie, Folk, Hip-Hop, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441510.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Taylor Swift - Look What You Made Me Do
-002. Luis Fonsi feat. Daddy Yankee - Despacito
-003. Cardi B - Bodak Yellow
-004. DJ Khaled feat. Rihanna & Bryson Tiller - Wild Thoughts(   Читать дальше...   )Жанр: Pop, Dance, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 05:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D317EF6398FA1F31FA377ACF2D37711D48C80DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322910   (441425) от 01.09.2019
-
-VA - Dance Summer Party Generation (2019) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441425.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Floorfillaz Feat. V-Star - Don't Say Anything (Kritikal Mass Remix)
-002. Giuseppe Saviero - Everyday
-003. Alexskyspirit - Forbidden
-004. Rory Hoy - Bass Slave(   Читать дальше...   )Жанр: DanceПродолжительность: 08:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC665C86E5A924D11319D24C937942B40637BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323011   (441420) от 01.09.2019
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver.87 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-1.Bbno$ & Y2k - Lalala (Ice & Nitrex Remix) (2:50)
-2.Beyoncé feat. Jay - Z - Crazy In Love (Lavrushkin & Max Roven Remix) (3:07)
-3.Burak Balkan - Boy (3:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC17FE59BB1421B2EE507FC2E369C3B6C7356500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552015   (441361) от 29.09.2012
-
-VA - Deep+   Vol. 1 (2012) [MP3|320 кб/с]<Deep House,Tech House,NuDisco,Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441361.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 33 MOONS - Free As The Rain (Original Mix) (4:33)
-2. Ace of Base - Cruel Summer (OK Corral`s Remix) (5:51)
-3. Alias Rhythm featuring Neysa - Showing Me Love (Vocal Mix) (7:10)
-4. Analog People In A Digital World – Izlela Neda feat. Vlada Tomova (Zombie Disco Squad Got Garage Remix) (6:01)
-5. Ange - Make Me Feel (Original Mix) (6:24)
-6. Asten - Memories (Escenda Remix) (6:16)
-7. Atapy - Knight Rider (Atapy Let's Ride Rework) (6:33)
-8. Blank & Jones, Jason Caesar - Paradise (Original Mix) (5:22)
-9. boral kibil - come back (original mix) (8:31)
-10. Boral Kibil - The Day We Died (Original Mix) (8:30)(   Читать дальше...   )Жанр: Deep House,Tech House,NuDisco,Vocal HouseПродолжительность: 08:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0FE0A858D29BA6EB04E71442FC59987BF889D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162196   (441221) от 09.09.2017
-
-(OST) Sonic Mania (Tee Lopes, Falk Au Yeong, Hyper Potions) (2017) [MP3|320 кб/с]<Score>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cборник собранный из оригинального Flac01. Drowning
-02. Super Sonic
-03. Title Screen (Discovery)
-04. Main Menu (Comfort Zone)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB93F76D31F2CD03A6A43FA1190D7151462C6C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1375577   (865385) от 14.04.2020
+
+Винтаж - Навсегда (2020) Special Version [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Об альбоме (Intro)
+2. Удивительный мир (Intro)
+3. Удивительный мир
+4. Спичка (Intro)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93B01F205E60B4148BDCBF0D64F595D8DF9EED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375578   (865257) от 14.04.2020
+
+SHLAKOBLOCHINA - FATALITY (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865257.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Новая сила киски (feat. FEARMUCH)
+2. Самолетная
+3. Х**вый карпарат
+4. Не тревожь папайю(   Читать дальше...   )Жанр: PopПродолжительность: 00:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE80673EB1C8367E2DE0C731FF5A20740D12199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497542   (864945) от 22.09.2021
 
 Sergio Y Estibaliz - Beans (1979) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -685,64 +743,6 @@ Natalie Imbruglia - Firebird (2021) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A96CFFD8C5AF402711F997ADEE1BA795D4058BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109047   (860938) от 26.02.2017
-
-Player [1] - Game Over (1980) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Invaders (4:12)
-02. We're All Players (2:38)
-03. Under Control (3:03)
-04. My Babe Is A Cool Player (3:03)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A72A5AC970EB838C95E9E2AF952607C2497A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109094   (860750) от 26.02.2017
-
-Sandra - Paintings In Yellow (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiroshima (6:52)
- 02. ( Life may be ) A big insanity (4:30)
- 03. Johnny wanna live (4:29)
- 04. Lovelight in your eyes (5:29)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBA509042102224CDFFDFB04591B8A5EB0A4AAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

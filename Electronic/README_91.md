@@ -1,3 +1,61 @@
+###  Публикация: 996623   (879412) от 14.03.2016
+
+VA - Cycles 7 (Mixed By Max Graham) (2016) [MP3|320 кб/с] <Progressive House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy J - Equinox (07:32)
+02. Brian Cid - Errors (08:00)
+03. Rick Pier O'Neil - To Declare (07:40)
+04. Ewan Rill featuring Avenax - Lotos (Vocal Mix) (07:17)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311FE89E9FBB4A4D17EE16D85D8A76ACB29A9BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994725   (879410) от 14.03.2016
+
+VA - This Is Our House Music Miami- Finest Groovy House Tunes (2016) [MP3|320 кб/с] <Funky, Tech House, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reza & Barry Obzee - Jump (Original Mix)
+02. Peverell Bros, R.O.N.N. & Ron Carroll - Way Back (Roger Sanchez Dirty Beats Dub Remix)
+03. Barry Obzee & Lawrence Friend - Get Up (Original Mix)
+04. Jefty Ft Jibberish - Raise The Bar (Original Mix)(   Читать дальше...   )Жанр: Funky, Tech House, ClubПродолжительность: 02:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA0DA6D068D59508A882B92CA6E4ECDDAF9DC1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994383   (879293) от 14.03.2016
 
 VA - Fitness Beats (2016) [MP3|320 кб/с] <House>
@@ -687,64 +745,6 @@ VA - Chillout Sounds Of Nature (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:479763126432F851C202AF7E1DB338328BFCD99C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105121   (876416) от 17.02.2017
-
-Vacuum - Your Whole Life Is Leading Up To This (2007) [FLAC|Lossless|image + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:24)
- 02. Your Whole Life Is Leading Up To This (3:56)
- 03. They Do It (3:56)
- 04. Mind Your Mind (3:47)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A187F30CDF8AECD7C748D6830C07CA65E6B4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105285   (876348) от 17.02.2017
-
-Christine - Atom From Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Future Beat>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atom From Heart (3:09)
- 02. Drama (feat. T La Rock) (4:19)
- 03. Maniac (4:13)
- 04. Error 218 (2:38)(   Читать дальше...   )Жанр: Synthwave, Future BeatПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A2BB81EF12EB75D0788A8005E8580A597CF53C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,84 +1,3 @@
-###  Публикация: 1852668   (1056153) от 08.02.2026
-
-Joyce Farrell | Microsoft Visual C#. Introduction to Object Oriented Programming (MindTap Course List). 8th Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Develop strong programming skills needed for professional success with Farrell's MICROSOFT VISUAL C#: INTRODUCTION TO OBJECT ORIENTED PROGRAMMING, 8th Edition. Approachable, clear and straightforward examples and style help you understand structured and object-oriented programming concepts. Master critical principles and techniques that easily transfer to other programming (   Читать дальше...   )Жанр: Object-Oriented Design, Microsoft Programming, Introductory & Beginning ProgrammingЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE6A57E196CFD8C10AA0B8180DC8F5FDD5F5440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852671   (1056152) от 08.02.2026
-
-Chandradev Prasad Sah | Ultimate Blazor WebAssembly for Web Development. Unlock the Full Potential of Blazor WebAssembly 8.0 and C# to Build High-Performance Web Applications with Ease (English Edi ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Empower Your Web Development with Blazor WASM 8.0
-
-Book Description
-Ultimate Blazor WebAssembly for Web Development is your comprehensive guide to mastering the latest advancements in Blazor technology. This book will equip you with the knowledge and skills needed to leverage Blazor Web Assembly 8.0 and C# effectively and seamlessly to enhance the performance of (   Читать дальше...   )Жанр: Microsoft .NET, C# Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Orange EducationФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45530900FA67563CB1675BD9A32C232AC8083EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852673   (1056151) от 08.02.2026
-
-Б. Страуструп | C++11. Язык программирования C++. Четвертое издание (2024) [PDF, DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет стандарт ISO/IEC 14882-2011 (называемый в обиходе C++11) и призвана помочь программистам быстро и доступно перейти от стандарта С++98 и любых других языков программирования к С++11. Традиционно, как и в предыдущих изданиях, автор демонстрирует свой «фирменный стиль» — эффективные подходы к решению разнообразных задач проектирования и программирования, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БИНОМ-МЕДФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE68159E93F4FA1FC819F1F1865047FF366E7215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852675   (1056150) от 08.02.2026
 
 Tom Graves, Slade Beard | Doing Enterprise-Architecture. A Maturity-Model Guide to Architecture Development. First Edition (2025) [PDF, EPUB] [EN]
@@ -688,6 +607,86 @@ Great (   Читать дальше...   )Жанр: Computer Systems Analysis &
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E5848C41C12277386B6616D5F8EA17F21938ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851602   (1055244) от 03.02.2026
+
+Katya Gorshkova | Kafka for Architects. Event-driven architecture, logs, microservices, real-time event processing (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055244.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book teaches you how to incorporate Kafka into enterprise applications. This book stays above the code-level details, focusing instead on how to use Kafka to achieve your technical and business goals.
+
+Architects across industries are turning to Kafka for its unparalleled speed, reliability, and scalability. In this book, author Katya Gorshkova lays out how (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Databases & Big Data, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2529C5A329A218CF1FFFE8DD47BE1C1C6817D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851601   (1055243) от 03.02.2026
+
+Justin Mitchel | Road to Kubernetes (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055243.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Should we use Kubernetes?” This unique guide condenses 15 years of deployment experience to help answer that very question. It teaches you sustainable deployment practices you can use with any programming language and nearly any kind of modern app. You’ll create portable and containerized applications that can move across deployment options and cloud providers and (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5451941C37CCB1F227FC7CF5562B18242753D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851613   (1055242) от 03.02.2026
+
+Jay Borthen | Building Data Integration Solutions. Unifying Data for Enhanced Decision Making. 1st Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Are you struggling to manage and make sense of the vast streams of data flowing into your organization? In today's data-driven world, the ability to effectively unify and organize disparate data sources is not just an advantage—it's a necessity. The challenge lies in navigating the complexities of data diversity, volume, and regulatory demands, which can overwhelm (   Читать дальше...   )Жанр: Data Warehousing, Data Processing, Data Modeling & DesignЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDE5F925D1B5577E234B2525D510D28AA57E1E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

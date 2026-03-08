@@ -1,3 +1,32 @@
+###  Публикация: 1472923   (1014013) от 27.05.2021
+
+Llynya - The Guiding Light - Celtic Mantras (2002) [FLAC|Lossless|image + .cue] <Celtic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014013.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Northern Star 4:03
+2 Come And Lay Down 6:10
+3 At Home 4:36
+4 Fare Thee Well 6:21(   Читать дальше...   )Жанр: Celtic, New AgeПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F87231602CCD8D93E93485D1A6070A09821C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473053   (1013858) от 28.05.2021
 
 Aethera - The Caelic Mystery (2005) [FLAC|Lossless|image + .cue] <New Age, Celtic, Folk>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43AA388DE73D693D6409128DF5BB9B6ED73C40B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485551   (1005204) от 27.07.2021
-
-Gheorghe Zamfir - Pan Flute Improvisations (1988) [FLAC|Lossless|image + .cue] <Instrumental, Folk, World>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gheorghe Zamfir - румынский музыкант, играющий на модернизированной версии румынского национального инструмента, пан-флейте (най), которая состоит из 20-30 трубок, с расширенным звуковым диапазоном и большим количеством тонов. Gheorghe Zamfir стал известен широкой публикев 1960-х, в частности, благодаря швейцарскому музыканту Marcel Cellier, исследователю румынской (   Читать дальше...   )1. Domasnea (5:14)
-2. Jebel (4:41)
-3. Arad (6:54)
-4. Oltera (6:46)(   Читать дальше...   )Жанр: Instrumental, Folk, WorldПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE6AD143B079E8F6FFE7F17D0299CFE61C7810D
 ```
 
 https://mybot314.ru/tekegram_catalog/

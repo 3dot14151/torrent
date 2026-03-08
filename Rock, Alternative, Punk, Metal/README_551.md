@@ -1,38 +1,3 @@
-###  Публикация: 534571   (517168) от 16.08.2012
-
-Nightstalker - Dead Rock Commandos (2012) [MP3|320 кб/с]<Stoner Rock / Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Get Some 04:08
- 02. Soma 03:35
- 03. Dead Rock Commandos 03:18
- 04. One Million Broken Promises 03:47
- 05. Children Of The Sun 04:46
- 06. Back To Dirt 04:37
- 07. Keystone 03:43
- 08. Rockaine 03:56
- 09. The Boogie Man Plan 03:29
- 10. The Underdog 04:58Жанр: Stoner Rock / MetalПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8CE0486200254FEC90C7ADC4BF5740CCC62141F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929935   (517126) от 21.08.2015
 
 Disturbed - Immortalized (2015) Deluxe Edition [FLAC|tracks+.cue]<Alternative / Nu Metal>
@@ -760,6 +725,35 @@ Lynch Mob - Rebel (2015) [MP3|320 кб/с]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:400988C3FAB1DBAD4B5DDB15F220C681A0DFBE10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930299   (516268) от 22.08.2015
+
+The Strypes - Little Victories (2015) Japanese Deluxe Edition [MP3|320 кб/с]<Alternative, Blues Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Into It
+02. I Need to Be Your Only
+03. A Good Night’s Sleep and a Cab Fare Home
+04. Eighty-Four(   Читать дальше...   )Жанр: Alternative, Blues Rock, Indie RockПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E890B55FF0AB7CEE4272F8B3C440C0FEE824190F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1696561   (119461) от 03.02.2024
+
+VA - Smooth Jazz Hits 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan La Valette - Highway 10 (4:24)
+02. Nathan Mitchell,Nick Colionne - Boss Man (4:24)
+03. Cindy Bradley - For The Cool In You (4:31)
+04. Vincent Ingala - New Bounce (4:48)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7883B55398EDF7B191C259E40DBB2666FD1532ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696582   (119437) от 03.02.2024
 
 Anita O'Day - Live At Ronnie Scott's (1986) Wadham [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -717,35 +746,6 @@ Grant Geissman - Bop! Bang! Boom! (2012) Futurism Records [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D13B7FC983DA578968B98A8D8421818D627C4845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697652   (118728) от 07.02.2024
-
-Alternative Jazz Lounge, Everyday Jazz Academy - Aperitif Jazz Delights Smooth Sounds for Cocktail Hour (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aperitif Jazz (2:47)
-02. Midnight Celebration (3:26)
-03. Easy Comfort (3:17)
-04. Time for Lovers (3:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D691F3EB2FE192D4811AF68297AB10131997F33
 ```
 
 https://mybot314.ru/tekegram_catalog/

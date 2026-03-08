@@ -1,3 +1,32 @@
+###  Публикация: 1197996   (810368) от 10.01.2018
+
+VA - Best of Nuevadark 2017 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blufeld - Rakete Zum Mond (You Are My Salvation Remix) (10:46)
+02. Jetride - Sad Piano (Gordey Tsukanov Remix) (6:36)
+03. Mavrek - Burst on Fire (Inspireds Remix) (5:46)
+04. Blufeld - Rakete Zum Mond (Alan Cuevas Remix) (7:15)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F382ECBD729A127B4ECED7A427338C07628BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009351   (810295) от 21.04.2016
 
 VA - Venera Music Vol.5 (2016) [MP3|320 кб/с] <House, Electro House>
@@ -710,35 +739,6 @@ VA - Best Of LW Tech House II (2018) [MP3|320 Kbps] <Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:883CAFE5C1FB0D033C587C0C90B61DCDCAFB047C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198842   (802955) от 14.01.2018
-
-VA - Best Of LW House II (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Audiowhores  -  Sometimes (Sean Finn Recall)  5:56
-02.  JB & Charlie Hedges  -  Best Night Oml (Pt. 2) (Lindo Martinez Remix)  7:01
-03.  Damon Hess & Emilie Cunliffe  -  Dancefloor (Original Mix)  5:21
-04.  Afrojack  -  Chords (George F, Eran Hersh & Darmon 'Blow Your Mind' Remix)  9:03(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800C76E3BAF0631BB5173F4E52346DFE863715DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

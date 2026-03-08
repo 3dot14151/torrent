@@ -1,3 +1,183 @@
+###  Публикация: 946217   (429420) от 12.10.2015
+
+VA - Music For Everyone - Chillout & Lounge Vol.4 (2015) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429420.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. WiSkiM - Mind Control (Part 1) (Original Mix)
+2. Leonard Sign - L'eau Bleue (Original Mix)
+3. Kalev & Midliife - Closer (Original Mix)
+4. Together Alone - Morning Solution (Original Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E5635E576A83C6F4EAB61A0A09F4F5A3021DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945959   (429284) от 12.10.2015
+
+Amanda Lear - Good Songs (2015) [MP3|160 кб/с]<Pop, Shanson>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429284.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alligator (1977)
+002. Alphabet (1977)
+003. Blood and Honey (1977)
+004. Blue Tango (1977)(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 10:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B1778EB3A33E4FC804987FB2B1B32A8D7987DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 556095   (429279) от 04.10.2012
+
+VA - Инструментальная музыка (2012) vol. № 98 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henry Mancini  - The Pink Panter
+02. J.Last - Paradiso
+03. Armik - Pure Paradise
+04. Caravelli - It Was Long Ago
+05. G.Marradi - Somewhere
+06. Анс. Мелодия - В старых ритмах
+07. Bergman - The Way We Were
+08. O.Denayer - Espoirs Perdus
+09. F.Goya - Classical Dream
+10. И.Крутой - Мне нравится дождь(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355A7C6B46BC2E8250C8E43A8611639F4F7A0EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249983   (429247) от 26.09.2018
+
+VA - Techno Funk: 100 Sounds New Generation (2018) [MP3|320 Kbps] <Techno, Electo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dirty Intentions - Sniff (Original Mix)
+002. Anna Conda - Code
+003. Daniele Mondello - Self Control
+004. 2pole - Magnum (Original Mix)(   Читать дальше...   )Жанр: Techno, ElectoПродолжительность: 11:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF0E32CC1D0E9D39717CFB51423F80EAD396225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411073   (429203) от 24.09.2020
+
+VA - Осень на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alok & Thrdl!fe - Hear Me Tonight (3:08)
+02. Ava Max - Who's Laughing Now (2:59)
+03. BTS - Dynamite (3:19)
+04. DaBro - Юность (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E4C824DF00B5AFE85677EABBBF2A4431038D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946210   (429176) от 12.10.2015
+
+Dalida - Good Songs (2015) [MP3|128 кб/с]<Pop, Shanson>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429176.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A chaque fois j'y crois
+002. A ma maniere
+003. Aba daba honey moon
+004. Alabama song(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 12:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58875F8539292BA106FEA14689E871530E89A4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249988   (429140) от 26.09.2018
 
 VA - Hendkandi: Vocal Trance (2018) [MP3|320 Kbps] <Vocal Trance>
@@ -596,192 +776,6 @@ VA - Vocal Dubstep Vol.2 (2017) [MP3|320 Kbps] <Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB4E2912F4A9DA00586B45538A3248E9EE0D2964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555901   (426580) от 05.10.2012
-
-VA - Радио DFM - D Чарт - Top-30 (03.10.2012) [MP3|320 кб/с]<Pop ,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Ferrari - Bara Bara Bere Bere (Cj Dmitriy Sova remix)
- 02. Tonic Feat. Tarantula Ma - Big Fat (DFM MIX)
- 03. Yves V & Basto - Cloud Breaker (Basto Radio Mix)
- 04. Flo Rida - Whistle
- 05. PLAYMEN ft. Demy - Fallin (Radio Edit)
- 06. Far East Movement Feat. Cover Drive - Turn Up The Love (DFM MIX)
- 07. Romano & Sapienza feat. Rodriguez aka Tacabro - Tacata (Extended Mix)
- 08. Нюша - Воспоминание
- 09. Martin Solveig - The Night Out (Madeon Remix)
- 10. JOAO LUCAS E MARCELO - EU QUERO TSHU EU QUERO TCHA (DJ FAVORITE & DJ KHARITONOV)(   Читать дальше...   )Жанр: Pop ,DanceПродолжительность: 03:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD7B685AB9D924480E71426A864D96EFD5E91A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555902   (426414) от 05.10.2012
-
-VA - Радио DFM: Горячие Ремиксы (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426414.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Kerim Muravey - Лето, Лето (Original Mix)
- 002. Артур Пирожков - Красивая Песня (Dj Favorite & Dj Kristina Mailana Summer Radio Edit)
- 003. Андрей Губин - Время Романтиков 2012 (Dj Fisun Remix)
- 004. Т9 - Ода Нашей Любви (Dj Generous Remix)
- 005. Mixadance Pro - Feeling (Oleg-Off & Jim Remix)
- 006. Бурановские Бабушки - Party For Everybody (Official Eurovision 2012 Dj Slon Party Remix)
- 007. Nikita - Авокадо (Dj Jedy Radio Remix)
- 008. Ева Польна - Я Тебя Тоже Нет (Je T'aime) (Dj Smash Chinkong Remix)
- 009. Dj Smash Feat. Винтаж - Moscow (Dj Miller Radio Edit)
- 010. All Давай Feat. Dj Ihlas - Москва-Дубай(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 11:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6D1A64AC57FBDBB2CDD4EAF7316F3D54791E69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064356   (426394) от 20.10.2016
-
-VA - Deep Mood, Chillhouse Selection (2016) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piet Lorrigan - Drink and Relax - The Bahia's Friends Mix
-02. Harley Coles - Drink Evolution - Fusion Mix
-03. Jaasiel Vega - Social Groove - Deep Groovers Mix
-04. Flat Crumb - Cool Emoticon - On The Beach Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7BFA0AF6D5E6319C0AA8E1D026D5A056BF4F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064345   (426388) от 20.10.2016
-
-VA - Sunny Refill Vol.1: Warm and Sunny Chill out Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fous De La Mer - Good Bye Lawrence
-02. R.I.B. - Sunset
-03. JM Mantecon - Children's Sun
-04. Wilton de Grey - All-Seeing Power of the Mind - Short Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7AADC35EC529CA7A5A0FE6EC5888AE685856C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064341   (426385) от 20.10.2016
-
-VA - Cayo Coco Lounge Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Emilio Flynn - Santa Tae - Dert Remix
-02. Jacob Gurevitsch - Little Things
-03. Kluster - I Feel Love - Tim "Love" Lee Remix
-04. Sofian Rouge - Tranquility(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A4055B67D198AFDD17294B1A288567CF6D2FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166292   (426303) от 16.09.2017
-
-VA - Best 320 tracks of HML 2007-2015 (mixed by Cyno\Cone,Cizano) Compiled by Firstlast (2017) [MP3|192-320 Kbps] <Deep House, Chill House, Nu-Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пpодолжительность: 05:24:11
-01. Hot Chip - Colours (Fred Falke remix) [6:36]
-02. Stisch - Turn Around (Barfly mix) [7:07]
-03. Carl Kennedy & MYNC Project feat. Roachford - Ride The Storm (Life Goes On, club mix) [6:43](   Читать дальше...   )Жанр: Deep House, Chill House, Nu-DiscoПродолжительность: 34:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFA808C57B332E3E22609591B0365648A8743A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

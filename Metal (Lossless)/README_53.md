@@ -1,3 +1,90 @@
+###  Публикация: 992033   (902759) от 01.03.2016
+
+Textures - Phenotype (2016) [FLAC|Lossless|image + .cue] <Progressive Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902759.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Oceans Collide
+2. New Horizons
+3. Shaping of a Single Grain of Sand
+4. Illuminate The Train(   Читать дальше...   )Жанр: Progressive Metal, MetalcoreПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153512765B2F07E7490D5E2071F1485A8B0A7253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992038   (902753) от 01.03.2016
+
+Omnium Gatherum - Grey Heavens (2016) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pit
+02. Skyline
+03. Frontiers
+04. Majesty and Silence(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D72D4BDC849FF75A056F4243ECCA127B80C489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992032   (902622) от 01.03.2016
+
+Lost Society - Braindead (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902622.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Am The Antidote
+2. Riot
+3. Mad Torture
+4. Hollow Eyes(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AD578667C8BE5376B323CCD54196A09138C5F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492557   (902479) от 30.08.2021
 
 Limuria - Limuria (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -659,93 +746,6 @@ Thyrane - Travesty Of Heavenly Essence (2005) [FLAC|Lossless]<Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E801B01658F552C683D5AABEA6707D51699705B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657615   (897358) от 02.09.2021
-
-The Suicider - Death Surround (2010) [FLAC|Lossless]<Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Road to Silence [04:07]
-02. Death Surround [03:49]
-03. Someone Who Wasn't Me [04:54]
-04. Mayakovsky [04:36](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0DEA374EE575568DDB085F8DE3251710DDA6A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493217   (897189) от 02.09.2021
-
-Iron Maiden - Senjutsu (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senjutsu
-02. Stratego
-03. The Writing On The Wall
-04. Lost In A Lost World(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB4EE9FF6FC04796CFC84EB4411C56CF8B9DC43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370534   (897063) от 27.03.2020
-
-Svengali - Sayonara (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alcatraz (04:34)
-02. Breakaway (03:55)
-03. This Is Kombat (03:33)
-04. Better Off (03:27)(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE8E7F7AF7230ABE9E66AABA554205172F21727
 ```
 
 https://mybot314.ru/tekegram_catalog/

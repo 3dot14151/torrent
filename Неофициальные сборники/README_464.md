@@ -1,3 +1,180 @@
+###  Публикация: 1326966   (380781) от 22.09.2019
+
+VA - House Of The Rising Sun (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380781.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beak - The Brazilian
+002. Steady Hands - Drop D And Dance Beats
+003. Newman - Ghost In The Night
+004. Tuka Tuka Version - House Of The Rising Sun(   Читать дальше...   )Жанр: RockПродолжительность: 09:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B32C3FC93BF57958F88AA96916CFAC2F85A86DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326899   (380777) от 22.09.2019
+
+VA - Rock Drive 7 (2019) 4CD [MP3|320 Kbps] <Rock, Hard Rock, Heavy Metal, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380777.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Savoy Brown - Payback Time
+02. Mindi Abair & The Boneshakers - Seven Day Fool(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy Metal, Blues RockПродолжительность: 04:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8946F9D2529647ED86F7AE4ACD2A3A92CEEB6C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326534   (380772) от 22.09.2019
+
+VA - Hits of My Soul Vol. 49 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Banco De Gaia - Lamentations (03:02)
+02. Banco De Gaia - Wimble Toot (07:59)
+03. DJ Klubbingman & Savon - Aurora (Club Mix) (06:07)
+04. Heatbeat - Arganda (Original Mix) (07:04)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1081A88CDABF89BC478FF812735765A8A58130CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068419   (380738) от 01.11.2016
+
+VA - LUXEmusic: Dance Super Chart Vol.92 (2016) [MP3|320 Kbps] <House, Electro House, Mash Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACDC - T.N.T (DJ Zarubin Radio Edit)  3:46
+02. Madonna - Frozen (A-Mase Nu Disco Remix)  5:32
+03. USB и Илья Зудин - Губы Губы (Oleg Perets Club Remix)  4:26
+04. Елена Князева - Сильная (DJ Noiz Remix)  3:01(   Читать дальше...   )Жанр: House, Electro House, Mash Up, Club, DanceПродолжительность: 03:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD76B4CB6DBA3E5B305069ADC17284027D4E906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068382   (380733) от 01.11.2016
+
+VA - Ballermann Karnevals Hits 2017 (2016) [MP3|~245 Kbps] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lorenz Buffel - Johnny Dapp
+02. Tim Toupet - Nein, nein, nein, nein - Sind wir nicht gewesen
+03. Peter Wackel - Die Nacht von Freitag auf Montag (DJ Fosco Mix Edit)
+04. Tobee - Aua im Kopf(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 02:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0D4CD1C352C52E6393346902682848573CD023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068485   (380588) от 01.11.2016
+
+VA - Singles Chart Billboard Hot 100 (05 November 2016) (2016) [MP3|32-320 Kbps] <Charts>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chainsmokers Feat. Halsey - Closer 04:06
+02. The Weeknd Feat. Daft Punk - Starboy 03:50
+03. Twenty One Pilots - Heathens 03:15
+04. Dj Snake Feat. Justin Bieber - Let Me Love You 03:25(   Читать дальше...   )Жанр: ChartsПродолжительность: 06:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6B06A885FD6AB5830D2C3C508D42A52C3C6B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068512   (380445) от 01.11.2016
 
 VA - 80s Disco Magical: Italo Set (2016) [MP3|320 Kbps] <Disco, Italo Disco, Dance>
@@ -598,201 +775,6 @@ VA - Самая звездная дискотека 2 (2012) [MP3|256 кб/с]<P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0C21D25D0302085D102624A4C0ACD40D19FCB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573908   (378966) от 11.11.2012
-
-VA - Coca-Cola Hit Осень (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378966.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rihanna - Diamonds
-002. Тамерлан и Алена Омаргалиева - Может Это Ты
-003. Inna feat. Play & Win - INNdiA (Radio Edit)
-004. Светлана Лобода - 40 Градусов
-005. Olly Murs feat. Flo Rida - Troublemaker
-006. Тимати и Григорий Лепс - Лондон (Michael Yousher Remix)
-007. Bob Sinclar - Groupie (Radio Edit)
-008. Джиган - Держи меня за руку
-009. Arash feat. Sean Paul - She Makes Me Go
-010. Сергей Лазарев - Нереальная любовь(   Читать дальше...   )Жанр: PopПродолжительность: 12:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0599880F84B41DD879A26C50FB4CF058045D92C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573890   (378964) от 11.11.2012
-
-VA - Осенний Клубный (2012) [MP3|320 кб/с]<Club,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Holiday & Mike Candys - The Riddle Anthem (Radio Mix)
-02. Antoine Clamaran - Promised Land (Radio Edit)
-03. Dennis Cartier & Mc Sherlock - That Feeling (Radio Edit)
-04. Fedde Le Grand & Nicky Romero feat. Matthew Koma - Sparks (Turn Off Your Mind) (Radio Edit)
-05. Chris Decay & Re-lay - Love Junkie (Club Mix Edit)
-06. Francesco Diaz & Shena Winchester - Addicted To My Dreams (Radio Killer Remix)
-07. La Chris - Dirty Girl (Original Edit)
-08. Example - Kickstarts 2012 (DJ Antoine & Mad Mark remix)
-09. Dance Dealers - 2nd Chance (Dancefloor Kingz Remix Edit)
-10. Miami Club feat. Nicci - Supernova (R.I.O. Radio Edit)Жанр: Club,DanceПродолжительность: 03:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D4A5C8F376571865A0D16553E3AAF26A640A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573470   (378962) от 11.11.2012
-
-VA - Супер Танцевальный Музон (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378962.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Emeli Sande - Heaven (Radio Edit)
-002. Basto - I Rave You (Give It To Me) (Radio Edit)
-003. M.R. - To France
-004. The Babysitters Circus - Everything's Gonna Be Alright
-005. Qwote Feat. Mr Worldwide - Letting Go (Cry Just A Little) (Radio Edit)
-006. Lacuna - Celebrate The Summer (Money G. Radio & Video Edit)
-007. Loft - Summer, Summer
-008. Tom Pulse & E-Wok - Go Back 2 The Oldschool (Rico Bernasconi S Asskick Mix Edit)
-009. Antoine Clamaran & Vince M. feat. Soraya - Feeling You (Radio Edit)
-010. Despina Vandi - Katalaveno(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E415BD5FCB890A58FA5EE34AA03BC19E2D3651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253869   (378932) от 11.10.2018
-
-Supermode - Tell Me Why (2017) Radio Version Remix [MP3|320 Kbps] <Club, Dance, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378932.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tell Me Why ★ Radio Version ★ RemixЖанр: Club, Dance, Deep HouseПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A0BBD15F771CD38E433916BD4EB777243204B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253708   (378927) от 11.10.2018
-
-VA - Options Remake 150 Tracks (2018 September) (2018) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378927.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eimear - Wake Up (Talamanca Remix)
-002. Capa (Official) - Blue Llama (Original Mix)
-003. Jay FM - Mirage
-004. Tom Bro - The Ocean (Spark Remix)(   Читать дальше...   )Жанр: House, Tech, Progressive, Club, DanceПродолжительность: 17:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF486CEF710AC9C39C611DA84519792DEF88225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573922   (378841) от 11.11.2012
-
-VA - Лучшая молодёжная 100-ка. Русская версия (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Varda - Я Тебе Не Верю
-002. Атаманка - Босиком
-003. Виктория Дайнеко И Корни - Многоточие
-004. Баnzай - Ради Тебя
-005. Silana - Биоволны
-006. Дима Билан & Nikki Jamal - Come Into My World
-007. 2front - Навсегда
-008. Иля - Это Любовь
-009. Dato - Я Любил
-010. Дина Мереуца - Мой Рай(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B1DF566439F028C2A7356AAE43D25060EC4351
 ```
 
 https://mybot314.ru/tekegram_catalog/

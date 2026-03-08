@@ -1,3 +1,61 @@
+###  Публикация: 1294809   (626110) от 09.04.2019
+
+Captain & Tennille - Song Of Joy (1976) CD, Album, Remastered, 2005, Universal Music Special Markets [MP3|320 Kbps] <Pop, Soft Rock, Blues Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song Of Joy
+02. Lonely Night (Angel Face)
+03. Mind Your Love
+04. Smile For Me One More Time(   Читать дальше...   )Жанр: Pop, Soft Rock, Blues RockПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7A0832FBFA5F9ED9942D38F711F4B95451422A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294835   (626104) от 09.04.2019
+
+Герр Антон - Одинокий мужчина и другая честная попса (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокий мужчина (3:30)
+02. А он её (3:15)
+03. Так тому и быть (3:33)
+04. Пухленькие девушки (3:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA91040D58F83CA6EE11308AA9E8E689E5EA4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294827   (626098) от 09.04.2019
 
 Аурика Ротару - Счастье - свободная птица (2006) [FLAC|Lossless|image + .cue] <Pop>
@@ -691,64 +749,6 @@ Joe Yellow - Greatest Hits & Remixes (2017) 2CD, Compilation [MP3|320 Kbps] <Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FE001A6938158C9F8C189329DFB844C1BE6036B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910170   (623728) от 19.06.2015
-
-Алена Апина - Золотая Коллекция (2000) [FLAC|image +.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Электричка (4:35)
-02. Тополя (4:02)
-03. Узелки (3:09)
-04. Ксюша (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B809D7A767D3535F08BCB8272F8896F940B8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910149   (623427) от 19.06.2015
-
-Александр Малинин - Выбираю тебя (2015) [FLAC|image +.cue]<Pop, Romanse, Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дорогой длинною (3:40)
-02. Дон (5:02)
-03. Две души (дуэт с Е.Ваенгой) (3:37)
-04. Кони (3:31)(   Читать дальше...   )Жанр: Pop, Romanse, FolkПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E667F11B64F8C978210CD265A18783E72A49D86
 ```
 
 https://mybot314.ru/tekegram_catalog/

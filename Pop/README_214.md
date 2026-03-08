@@ -1,3 +1,61 @@
+###  Публикация: 1171978   (394032) от 07.10.2017
+
+Blue Hawaii - Tenderness (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dreampop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free At Last (4:43)
+02. No One Like You (5:06)
+03. Pregame (0:19)
+04. Versus Game (3:53)(   Читать дальше...   )Жанр: Electronic, Dreampop, Female VocalПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5374BC557D94435E08C9569FBFC7646D7611B5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172229   (393969) от 07.10.2017
+
+VA - Best Of 2017 - Die Hits Des Jahres (2017) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393969.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Luis Fonsi - Despacito (feat. Daddy Yankee)  3:48
+02.  Kay One - Senorita (feat. Pietro Lombardi)  3:59
+03.  Axwell & Ingrosso - More Than You Know  3:23(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC422BF8E449C975AEDBBD290EEA780A8CDFD48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171616   (393947) от 07.10.2017
 
 Lili & Susie - The Sisters (1990) [FLAC|Lossless|image + .cue] <Europop>
@@ -704,70 +762,6 @@ Vicki Brown - Lady Of Time (1989) [FLAC|Lossless|image + .cue] <Pop,  Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D0FB9840A19A7813D7B50068EF9ACC0E1C8FF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252732   (387907) от 07.10.2018
-
-Vicki Brown - Vicki Brown (1987) [FLAC|Lossless|image + .cue] <Pop,  Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387907.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Look At Me
-2.	Once Again
-3.	Can't Let Go
-4.	Plaisir D'Amour(   Читать дальше...   )Жанр: Pop,  ClassicalПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223A4325BF877F2D181DF49D010AB045E001EB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571284   (387622) от 07.11.2012
-
-Céline Dion - Sans Attendre (2012) (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, French Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parler A Mon Pere (2:55)
-02. Le Miracle (3:57)
-03. Qui Peut Vivre Sans Amour (3:29)
-04. L'Amour Peut Prendre Froid (Duet With Johnny Hallyday) (3:29)
-05. Attendre (3:28)
-06. Une Chance Qu'on S'a (Duet With Jean-Pierre Ferland) (3:32)
-07. La Mer Et L'enfant (3:08)
-08. Moi Quand Je Pleure (3:51)
-09. Celle Qui M'a Tout Appris (3:48)
-10. Je N'ai Pas Besoin D'amour (3:32)(   Читать дальше...   )Жанр: Pop, French VocalПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2A06A5AAE5B26333255FBD3FDF5959A5BDBA29
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 509289   (675310) от 12.06.2012
+
+The Bill Holman Band - Brilliant Corners: The Music of Thelonious Monk (1997) [FLAC|Lossless]<Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight, No Chaser
+02. Bemsha Swing
+03. Thelonious
+04. 'Round Midnight
+05. Bye-Ya
+06. Misterioso
+07. Friday the 13th
+08. Rhythm-A-Ning
+09. Ruby, My Dear
+10. Brilliant Corners1997Жанр: Hard Bop, Post-BopПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536518   (675127) от 12.03.2022
 
 Papik - Cocktail Mina Vol.2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Soul, Pop>
@@ -716,35 +751,6 @@ Duke Ellington - Sophisticated Lady: Duke's Greatest Hits (1992) Classic Jazz [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30B7DCB23B2EDAEA3A3429D94001885DB94D3F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136594   (673245) от 23.05.2017
-
-Dizzy Gillespie - The Greatest Of Dizzy Gillespie (1946 - 1949) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manteca [03:08]
-02. Dizzier and Dizzier [03:07]
-03. Night in Tunisia [03:09]
-04. Anthropology (take 1) [02:40](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26499F382D54B0B2C2E5CC4C379052446CAF5F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1392858   (769108) от 27.06.2020
-
-Falconer - From a Dying Ember (2020) [MP3|320 Kbps] <Power Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kings and Queens (04:40)
- 02. Desert Dreams (03:59)
- 03. Redeem and Repent (04:22)
- 04. Bland Sump Och Dy (03:14)(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C472BCC8139CEFFA22510AE98E49E56FA3C5BA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392401   (769106) от 27.06.2020
 
 Long Distance Calling - How Do We Want to Live? (2020) [MP3|320 Kbps] <Post-Rock, Progressive Rock>
@@ -744,6 +715,35 @@ Digimortal - Создатель (2019) [MP3|320 Kbps] <Industrial Metal, Modern 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4379B7708B795A994A4173B25186B592AF515650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213564   (768194) от 17.03.2018
+
+Self Deception - Self Deception (2018) [MP3|320 Kbps] <Alternative Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768194.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Eat Sleep Rock Repeat (3:43)
+ 2. Don't (2:57)
+ 3. Let Go (2:55)
+ 4. Broken Generation (3:11)(   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 00:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5094B139F9192D96B8D09F94792252E7E222C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1045989   (556972) от 25.08.2016
+
+VA - Dance Workout Trax 2016 (2016) [MP3|206-320 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Byron Keno Vs Demin – Holiday (Extended Mix)
+ 02. Andreas Agiannitopoulos, T.F – How Does It Feel (Original Mix)
+03. Jasper Forks – J’aime Le Diable (Single Mix)
+  04. Alesso, Onerepublic – If I Lose Myself (Alesso Vs. Onerepublic Extended Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 06:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41209F0E3E5F69328CAF5CC0F6D0183502675573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153777   (556940) от 28.07.2017
+
+VA - Elegant Rock And Roll (2017) [MP3|320 Kbps] <Rock & Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chuck Berry - Johnny B. Goode  2:38
+02.  Jackie Brenston & His Delta Cats - Rocket 88  2:46
+03.  Bo Diddley - Who Do You Love  2:30
+04.  Sugar Boy & His Cane Cutters - Jock-A-Mo  2:27(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B895B307FA56DE9ECF77FB468BC15E9E2788E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045906   (556919) от 25.08.2016
+
+VA - Ultimate bass music Vol.3 (2016) [MP3|263-320 Kbps] <Deep House, Dubstep, Future Bass, Drum & Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556919.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Abor - WTHN (3:23)
+ 2. Aero Chord - Break Them (feat. Anna Yvette) (4:19)
+ 3. Andrew Luce & MYRNE - Rebound (3:18)
+ 4. Anna Yvette & Laura Brehm - Summer Never Ends (3:51)(   Читать дальше...   )Жанр: Deep House, Dubstep, Future Bass, Drum & BassПродолжительность: 04:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61BD8E4D82002820D9A4F5AAB8186B4B75A48D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045902   (556917) от 25.08.2016
+
+VA - Soul and Love (2016) [MP3|320 Kbps] <Rock & Roll, Vocal, Rhythm & Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Platters - Only You 02:36
+02. Aretha Franklin - Right Now (Feat. Ray Bryant Combo) 02:23
+03. The Isley Brothers - Turn To Me (Feat. Orchestre Hugo Peretti) 02:45
+04. Sam Cooke - I Fall In Love Everyday 02:10(   Читать дальше...   )Жанр: Rock & Roll, Vocal, Rhythm & BluesПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069F311E5EB9D2CFB05DBAB446EC12B2118B5D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305277   (556903) от 30.05.2019
+
+VA - Силовая Тренировка (2019) [MP3|320 Kbps] <Hard Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.10 Years - Shoot It Out (3:19)
+02.Adelitas Way - Cage The Beast (3:16)
+03.Adept - Shark! Shark! Shark! (4:18)
+04.Amaranthe - Invincible (3:11)(   Читать дальше...   )Жанр: Hard Rock, Metal, OtherПродолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC9224A5227BF74F5400049A2D8D772C5979EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154040   (556876) от 28.07.2017
+
+VA - Romantic Songs: Summer Edition (2017) [MP3|320 Kbps] <Pop, RnB, Lyric Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556876.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Chris De Burgh - All For Love  4:00
+002.  Sia - Angel By The Wings  5:19
+003.  Bee Gees - Wish You Were Here  4:47
+004.  Jennifer Paige - The Devil’s In The Details  5:19(   Читать дальше...   )Жанр: Pop, RnB, Lyric RockПродолжительность: 07:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1948F5E8E3C1A9524CAA4147D84490950F178083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045876   (556840) от 25.08.2016
 
 VA - Country Family Book (2016)3CD [MP3|320 Kbps] <Country, Blues, Rock Blues>
@@ -570,180 +744,6 @@ VA - Hip Hop Be All Right: Delux Edition (2019) [MP3|237-320 Kbps] <Hip Hop, Rap
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFDACC461306E2BCA6B8CEF6C2322FE98EBE3A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306408   (555657) от 04.06.2019
-
-VA - Прокачай Уши BASS 2019 vol. 2 [MP3|320 Kbps] <Bass, Drum'n'Bass, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555657.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Total Destruction - Mechanical warriors (6:52)
-2.Junkie XL - Heart Of Darkness (6:48)
-3.Neoid - My Life (Original Mix) (6:47)
-4.Spy - By your side (6:34)(   Читать дальше...   )Жанр: Bass, Drum'n'Bass, OtherПродолжительность: 02:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5973B46A75F9099BE10EACC5210884F317C7CB1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306563   (555561) от 05.06.2019
-
-VA - Friendly Reminder: Punk Rock Collection (2019) [MP3|320 Kbps] <Punk, Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555561.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Down Memory Lane - Xenophobic
-002. Sharp Sleeves - Old Soul
-003. Burn Burn Burn! - Fugue State
-004. Big Black - Pavement Saw(   Читать дальше...   )Жанр: Punk, Punk RockПродолжительность: 08:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CF4BEDBBD82C61F4CE7B26F01233D0B41C814E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306356   (555547) от 05.06.2019
-
-VA - Summer Pool: European Dance Hit (2019) [MP3|320 Kbps] <Pop Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aksel - Fading Pictures
-002. Agus - Voices
-003. Factory Of Souls - Big Game (Original Mix)
-004. Fabio Gandolfo - Hьtchenspieler(   Читать дальше...   )Жанр: Pop Dance, Club, HouseПродолжительность: 09:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0A482989BFB8487CAE8AC8B61A4AF2583E73B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306494   (555531) от 05.06.2019
-
-VA - Новинки Русского Рэпа (2019) [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555531.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Onlife, Deesmi - Влюбился в неё (3:56)
-2.Коста Лакоста - Эротика (3:37)
-3.YAMAN - Groove (3:34)
-4.Мэд Райта - Волны (3:25)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 01:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19449B08F6C9E628E82CEEB86CBA38C231CF314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306774   (555444) от 06.06.2019
-
-VA - This Merry Planet: Instrumental Disco Hits Vol.3 (2019) [MP3|320 Kbps] <Disco, Funk, Instrumental>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-
-01.Biddu Orchestra - Black Magic Man (03:25)
-02.Montana Orchestra - Ride Like The Wind (05:13)(   Читать дальше...   )Жанр: Disco, Funk, InstrumentalПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1414AA88801E6CB7FAAB83DB6D5B6E663977719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306850   (555210) от 08.06.2019
-
-VA - не Громкие новинки недели 19 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555210.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Слава Благов feat. Владимир Павлещук - Vера, Nадежда, Lюбовь (5:15)
-2.Олег Попков - Виновато Вино (4:34)
-3.Sokratova feat. Kson & Ditro - Небо Чёрного Цвета (4:10)
-4.Mark Ovski - Двойной Апероль (4:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495ED3932A06B1D14E23240D9DBED294C567A233
 ```
 
 https://mybot314.ru/tekegram_catalog/

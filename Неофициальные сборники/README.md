@@ -1,5 +1,179 @@
 https://t.me/izofen
-###  Публикация: 1857421   (1059678) от 
+###  Публикация: 1857909   (1060048) от 07.03.2026
+
+VA - No Name Compilation Part 70 Remixes (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Electronic, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Celine Dion - All By Myself
+02 - Gershon Kingsley - Popcorn (Ænnovation Remix)
+03 - Modern Talking - Cherokee Highway  (Bollekman Remix)
+05 - C.C.Catch - Cause You Are Young (Andex Disco Remix)(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Electronic, RemixПродолжительность: 00:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC799315FDF3640B93295A0F838E091BAB6579C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857896   (1060043) от 07.03.2026
+
+VA - Узоры (mixed by Dj V) (2026) [MP3|320 Kbps] <Organic House, Melodic House, Folk Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Белолуна - Русалки (Extended Mix)
+02-Amonita - Улетай (Alexey Union & ETNE Remix)
+03-Ranta, Katya Olszewska - Сказка (Original Mix)
+04-Krasa Rosa & M.O.S. - Соловей (Extended Mix)(   Читать дальше...   )Жанр: Organic House, Melodic House, Folk DanceПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CDBBC0F4D400346A3CF97D9665B2A5A9D5FB1BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857906   (1060022) от 07.03.2026
+
+Adriano Celentano best (1960-2021) [MP3|320 Kbps] <pop,electronic,rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060022.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:02] . 001-Impazzivo Per Te
+[2:22] . 002-24 000 Baci
+[2:46] . 003-Nata Per Me (& Orchestra Giulio Libano)
+[2:31] . 004-La Mezza Luna (& Orchestra Giulio Libano)(cover Martin Lauer)(   Читать дальше...   )Жанр: pop,electronic,rockПродолжительность: 10:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD185F4BD75726F91E1DA096FDB4D1DE3D9C7E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857568   (1059995) от 
+
+Ai - No name compilation part 68 S. Yesenin covers (2026) [MP3|320 Kbps] <Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мне Осталась Одна Забава  (Cover Dj Malinova)
+02 - Не Жалею, Не Зову, Не Плачу  (Cover Dj Malinova)
+03 - Отговорила Роща Золотая  (Cover Dj Malinova)
+04 - Пускай Ты Выпита Другим...  (Cover Dj Malinova)(   Читать дальше...   )Жанр: OtherПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6655188BE2CAA6A325B0ECC61524615A868985D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857664   (1059896) от 07.03.2026
+
+VA - No name compilation part 69 Other (2026) [MP3|320 Kbps] <Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Davpulse - Heart Again
+02 - Dynave - I Regret Loving You
+03 - Nezon - Neon Wildflower
+04 - Dynave - You Didn’t Know Why I Loved(   Читать дальше...   )Жанр: OtherПродолжительность: 01:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE79097BACB11C1A94F385F4796E6C98B945AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857804   (1059830) от 07.03.2026
+
+VA - Music - Pop vol.Two (2026) [MP3|320 Kbps] <Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DISCOMAN - Яка ж ти красива (03:36)
+ 02. MATRANG - Заманчивая (03:36)
+ 03. REFLEX - Всё, что хотела (03:09)
+ 04. T-Killah - Ты нежная (03:45)(   Читать дальше...   )Жанр: Pop, OtherПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A6AEFECA7D3B46AF3C6FC0405F67F28D10CDF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857421   (1059678) от 06.03.2026
 
 VA - No name compilation part 67 Assorted (2026) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
 
@@ -572,180 +746,6 @@ Romantic Dreams - Favorites Collection Part 11 (2026) [MP3|320 Kbps] <Italodisco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0DED066F99960399E15F648A4C9977D1B6B5AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855476   (1058101) от 23.02.2026
-
-VA - Music News For Forum vol.163 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058101.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ирина Завадская - Живу я как душе моей угодно (02:11)
- 002. 7 Отличий - Где-то ты (02:59)
- 003. 7 Отличий - Мечта (04:09)
- 004. 7 Отличий - Вне формата (03:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC5682870595C634F127BDDC4725F0FB52145FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855162   (1058046) от 21.02.2026
-
-VA - Euro Hits 2021 (2021) [MP3|320 Kbps] <Pop, Dance, Electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058046.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:00]. 001-Melisa & Tommo - I'm Alone
-[3:01]. 002-Paul Oakenfold & Zhu & Velvet Cash - I Am Into It
-[3:30]. 003-Md DJ- The Real Slim Shady (cover Eminem)
-[3:13]. 004-Bruno Martini & Timbaland & Mayra - Riot(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 05:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9B8602D2B7F2E51FB5D5B0A0C691F2CE1A7A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855134   (1058041) от 21.02.2026
-
-Reteox - Favorites Collection Part 4 (2026) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Love in the Echo
-02 - In My Dream Tonight
-03 - December Nights
-04 - Silent Desire(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C7A5B55FE24893BD39825A44773A7AE8DD7C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854990   (1058026) от 21.02.2026
-
-Reyvi - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Flowers
-02 - Mi Noche Cambia
-03 - With Goodbye
-04 - My Life(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A32031C0764DEB9F70AE470127523D000EFD9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854985   (1058025) от 21.02.2026
-
-25/17 - Compilation (2004-2025) [MP3|320 Kbps] <Hip-Hop, Alternative>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058025.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Два Пять Один Семь ❂ Только Для Своих 2009
-002. Подорожник (п.у. Дмитрий Ревякин) ❂ Русский Подорожник 2014
-003. Лифт ❂ Байки Из Склепа 2020
-004. Пока Не Выключат Свет ❂ Весь Мир Идёт На Меня Войной 2015(   Читать дальше...   )Жанр: Hip-Hop, AlternativeПродолжительность: 05:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CB6FDDB8681D30040437D6E8133AF74BA7FE61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855349   (1057920) от 22.02.2026
-
-Secret Service best (1979-2025) [MP3|320 Kbps] <electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057920.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:40] . 01-Ten O'Clock Postman
-[3:03] . 02-Angel On Wheels
-[4:37] . 03-Oh Susie
-[3:11] . 04-She Wants Me(   Читать дальше...   )Жанр: electronicПродолжительность: 03:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B03381F7800EDFB318EBEC85DEBC4D0D215534F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

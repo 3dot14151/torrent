@@ -1,32 +1,3 @@
-###  Публикация: 1358833   (967428) от 09.02.2020
-
-GZR - Ohmwork (2005) [Geezer Butler, bass - Black Sabbath] [FLAC|Lossless|image + .cue] <Sludge Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misfit [03:24]
-02. Pardon My Depression [04:37]
-03. Prisoner 103 [03:09]
-04. I Believe [06:54](   Читать дальше...   )Жанр: Sludge Metal, Industrial MetalПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52F7E4470CE971038C13C670D1235B4383066EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358751   (967425) от 09.02.2020
 
 Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -754,6 +725,35 @@ Lordi - Blood Red Sandman (2016) bootleg [MP3|320 кб/с] <Hard Rock, Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A714CE3BDF8B3F77E9A696AEB625AEEA0C1D461D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977385   (965311) от 21.01.2016
+
+БИ-2 - Лучшее (2010) 2CD, Compilation [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Реки Любви (04:08)
+02. - Шамбала (03:35)
+03. - Достучаться До Небес (05:30)
+04. - Мой Рок-Н-Ролл (06:45)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019595A0D1F64DC7DE7E320D942492D95E9DA12C
 ```
 
 https://mybot314.ru/tekegram_catalog/

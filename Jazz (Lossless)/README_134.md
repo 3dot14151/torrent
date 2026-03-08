@@ -1,3 +1,32 @@
+###  Публикация: 1148190   (603945) от 06.07.2017
+
+The Pharaohs - Awakening (1971) 1996, Scarab Records, Luv 'N Haight, Ubiquity Recordins  -  LHCD 025 [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damballa (8:03)
+02. Ibo (3:51)
+03. Tracks of My Tears (4:08)
+04. Black Enuff (2:57)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7C3CFB8EF04C5E3BCC343F5771FF72C6E69F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148403   (603944) от 06.07.2017
 
 Roland Kirk - I Talk With The Spirits (1964) 1998, Verve [WavPack|Lossless|image + .cue] <Hard Bop>
@@ -715,35 +744,6 @@ Carol Welsman - I Like Men: Reflections Of Miss Peggy Lee (2009) Welcar Music [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C150BBC3ADE3F5D0C361CA4E56D0A1ECCA95895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547694   (602053) от 30.04.2022
-
-Red Mitchell & Jimmy Rowles - Red'N Me (1978) 1991, Dreyfus [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama G. [6:38]
-02. In the Middle of a Kiss [4:44]
-03. The Persian [6:13]
-04. The Woman in the Shoe [4:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E47490D979C1D5674616FB18F2522B5B922B17D
 ```
 
 https://mybot314.ru/tekegram_catalog/

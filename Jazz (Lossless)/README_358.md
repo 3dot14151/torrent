@@ -1,3 +1,32 @@
+###  Публикация: 1809687   (64695) от 31.07.2025
+
+VA - Under The Umbrella (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Banda Brasileira - Stars (3:57)
+02.  Don Carlos - Free (4:52)
+03.  Sarah Jane Morris - Let The Music Play (4:03)
+04.  LTJ XPerience - You Will Know (6:45)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017C945AD8C126C444EA906A963C3FC1D266C7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809681   (64694) от 31.07.2025
 
 VA - Summer Chill Mood (Warm & Elegant Relaxing Instrumentals, Vol. 1) (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Smooth Jazz>
@@ -716,35 +745,6 @@ Mildred Bailey - 1940 - 1942 (2002) Classics [FLAC|Lossless|tracks + .cue] <Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21E6090E959408FD0FE0AA062C504CF5E3F053DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729438   (53623) от 11.06.2024
-
-Jack Walrath - Neohippus (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Village of the Darned [6:43]
-02. Watch Your Head [6:44]
-03. Fright Night [6:13]
-04. Annie Lee [5:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B3443C65B7BDF67957F333F955B42EEC4F464F
 ```
 
 https://mybot314.ru/tekegram_catalog/

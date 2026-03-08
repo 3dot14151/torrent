@@ -1,3 +1,32 @@
+###  Публикация: 1270888   (153293) от 21.12.2018
+
+Adele - 100% Adele (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153293.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hello
+2. Someone Like You
+3. Send My Love (To Your New Lover)
+4. Water Under The Bridge(   Читать дальше...   )Жанр: PopПродолжительность: 03:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D5F6DEE9864E70777E1A86B9FDFEBB2555A892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825720   (151694) от 17.10.2025
 
 Romantic Dreams - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
@@ -716,35 +745,6 @@ VA - Музыкальные новинки. Only Best Hits № 3 (2016) [MP3|256
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A18A58A85B17C42CB288E47061C061BBCA9AFD99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087288   (145352) от 28.12.2016
-
-VA - Отрывайся с лучшими хитами. Сборник № 6 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145352.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Jennifer Lopez Feat. Travie Mccoy - A.K.A 3:05
-002.Тамерлан & Алена - Потоки Ветра 3:05
-003.Steve Angello & An21 - Last Dance 4:20
-004.Борис Моисеев - Вишни 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8974FB51499C83116B4A02B064F67D40FBCE530
 ```
 
 https://mybot314.ru/tekegram_catalog/

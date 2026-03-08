@@ -1,3 +1,63 @@
+###  Публикация: 1143655   (634661) от 18.06.2017
+
+Modern Talking - Back For Gold (The New Version) (2017) [MP3|320 Kbps] <Eurodance, Euro-Disco, Europop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Brother Louie (New Version 2017)  3:21
+02.  You're My Heart You're My Soul (New Version 2017)  3:33
+03.  Cheri Cheri Lady (New Version 2017)  3:41
+04.  You Can Win If You Want (New Version 2017)  3:26(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, EuropopПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CDAE6D1B73D5B97E45663A5CEBF0BF466612E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034468   (634224) от 13.07.2016
+
+Pino D'Angio - 7 Albums (1981-1991) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя артиста - Giuseppe Chierchia, он родился в небольшом городке Pompei на юге Италии 14 августа 1952 года.
+Первый успех пришел к нему в 1980 году после записи сингла "Ma Quale Idea", годом позже вышел первый альбом исполнителя, продажи которого превысили миллион экземпляров.
+Последующие альбомы Pino D'angio имели гораздо меньший успех. Возможно, (   Читать дальше...   )Список альбомов:
+1981 - ...Balla!
+1982 - Ti regalo della musica
+1983 - Una notte maledetta(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 04:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A963B3A585FAD9B518B00FEBAF99A17AF04E3AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908317   (633990) от 14.06.2015
 
 Marie Fredriksson - I En Tid Som Var (1996) [FLAC|image + .cue]<Pop, Pop-Rock>
@@ -712,70 +772,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:551EE29E1021A86C21794BF283CC2078A9994654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143998   (631486) от 20.06.2017
-
-VA - Venti Compilation 3 (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi NRG, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Hooker - Nobody Loves Me (Iventi Remix)
-02. Ken Laszlo - S.O.S.(Vocal Version)
-03. Miko Mission - Universal Feeling (Vocal Mix)
-04. Victor Ark - Coming Back (80s Remix)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 02:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAAE7B626D8A2E7FED32C56918DEB7325BBC235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520565   (631435) от 09.07.2012
-
-Medina - Forever (2012) [MP3|320 кб/с]<Pop, Dance, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever (03:31)
-02. Butterflies (03:41)
-03. Scars (03:39)
-04. Happening 04:03)
-05. Boring (04:02)
-06. Hotels (03:29)
-07. Good To You (04:02)
-08. Close To Nothing 03:52)
-09. Keep Me Hangin' (03:20)
-10. Black Lights(03:45)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43FA30E071F123A49EA8528C00891A150E79F7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

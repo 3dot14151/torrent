@@ -1,3 +1,32 @@
+###  Публикация: 285534   (46651) от 16.08.2024
+
+Grand Funk & Mark Farner (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46651.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом диске собраны ранее не издававшиеся видео материалы, а также пиратские записи концертов и выступлений (бутлеги).Жанр: RockУчастники: Mark Farner
+Don Brewer
+Mel Schacher
+Craig Frost(   Читать дальше...   )Продолжительность: 0:55:17 + 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA45CC4AD4F07714EFF97A8144F5A690B7B457DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602816   (46641) от 16.08.2024
 
 Styx -Counght In The Akt- 1984 (2007) DVD9
@@ -688,35 +717,6 @@ Paul McCartney,Bryan Adams, Keith Airley, Atomic Kitten, Shirley Bassey, Tony Be
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CAE5843BAF648FFA10C2F7B843D53407E9135EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 681704   (45712) от 25.08.2024
-
-Deep Purple 1972/1973 Copenhagen - New-York (2005) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несжатая версия двух ремастеров концертов группы Deep Purple в Копенгагене (1972) и в Нью-Йорке (1973).Copenhagen
-01. Highway Star
-02. Strange Kind Of Woman
-03. Child In Time(   Читать дальше...   )Жанр: Hard RockФормат: DVD VideoКачество: DVD9Продолжительность: 01:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:207CECD633C1CE4C8FB27C1133F800BA6A92A22C
 ```
 
 https://mybot314.ru/tekegram_catalog/

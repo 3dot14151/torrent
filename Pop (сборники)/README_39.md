@@ -1,3 +1,32 @@
+###  Публикация: 1022658   (726857) от 03.06.2016
+
+VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск - 33 ) (2016) [MP3|256-320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Thomas Anders - You're My Heart, You're My Soul (New Hit Version) (03:28)
+02 Chilly - We Are The Popkings (DMC Mikael Remix) (04:49)
+03 Gazebo - I Like Chopin (DM Remix) (05:06)
+04 Groove Addiction - Live Is Life (Phill Kay Remix) (05:23)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A51BBDC870B8284704B396E4F7F6EBE4E01E192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023096   (726356) от 04.06.2016
 
 VA - SpaceSynth & ItaloDisco Hits - 1 (2016) [MP3|320 кб/с] <Italo-Disco, Synth-pop, Hi NRG>
@@ -716,35 +745,6 @@ VA - Живи стильно! Наслаждайся музыкой с Hit FM (1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AED4EAB8E4AE4CE263A8C97BD348F3E6743597D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218284   (723213) от 09.04.2018
-
-VA - Живи стильно! Наслаждайся музыкой с Hit FM (5) (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723213.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алёна Свиридова - Ранен
-002. Alex Simons - Вчера
-003. Тома Полак - Отпусти
-004. Тамерлан & Алена - Давай Поговорим(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C96DC96B5869E6FE4C99EB48578E8875C7E830
 ```
 
 https://mybot314.ru/tekegram_catalog/

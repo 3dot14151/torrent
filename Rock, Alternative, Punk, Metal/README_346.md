@@ -1,32 +1,3 @@
-###  Публикация: 1126690   (740813) от 20.04.2017
-
-Slowdive - Slowdive (2017) [FLAC|Lossless|tracks] <Indie-Pop, Rock, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740813.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Slomo (06:53)
-2. Star Roving (05:38)
-3. Don't Know Why (04:36)
-4. Sugar for the Pill (04:30)(   Читать дальше...   )Жанр: Indie-Pop, Rock, ShoegazeПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DB2F8683392ED0EB55F0339F318D98F406DC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126780   (740798) от 20.04.2017
 
 Rainbow - Live in Japan (1984) 2015, Digital remaster [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -745,6 +716,35 @@ We Are The Catalyst - Ephemeral (2019) [MP3|320 Kbps] <Alternative Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5AFA24FEEF0492A2B2E0F6AF084D3B91645C94B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283435   (739729) от 17.02.2019
+
+Norvhar - Kauna (2019) [MP3|320 Kbps] <Folk Metal, Viking Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739729.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. From Fire...
+2. Fest In Midgard
+3. Of Stone, Gold & Blood
+4. Mystic Forest(   Читать дальше...   )Жанр: Folk Metal, Viking Metal, Melodic Death MetalПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C51959198D403071A2B941F033AAEB344C6331
 ```
 
 https://mybot314.ru/tekegram_catalog/

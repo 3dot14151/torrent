@@ -1,32 +1,3 @@
-###  Публикация: 923514   (562704) от 01.08.2015
-
-Kataklysm - Of Ghosts And Gods (2015) [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaching The Asylum
-02. The Black Sheep
-03. Marching Through Graveyards
-04. Thy Serpent's Tongue(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F272D1F6E3BA4E0112446644C1C1C20B38980FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923535   (562701) от 01.08.2015
 
 Kataklysm - Of Ghosts And Gods (2015) Limited Edition [FLAC|image+.cue]<Death Metal>
@@ -754,6 +725,38 @@ Year Of The Goat - The Unspeakable (2015) [MP3|320 кб/с]<Occult Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BC9F4D62CEE4C0100A752EF40B925D50F589C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530223   (560971) от 03.08.2012
+
+Jess And The Ancient Ones - Jess And The Ancient Ones (2012) [FLAC|Lossless]<Psychedelic/Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jess And The Ancient Ones - рок группа из Финляндии, образовавшаяся в 2010 году.01. Prayer For Death And Fire (6:00)
+02. Twilight Witchcraft (5:52)
+03. Sulfur Giants (Red King) (12:02)
+04. Ghost Riders (7:14)
+05. 13th Breath Of The Zodiac (5:53)
+06. Devil (In G Minor) (4:02)
+07. Come Crimson Death (11:43)Жанр: Psychedelic Rock/Hard RockПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

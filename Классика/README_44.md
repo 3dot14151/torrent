@@ -1,3 +1,38 @@
+###  Публикация: 495526   (251372) от 12.05.2012
+
+Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Neoclassical, Martial Industrial>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Amerika (04:05)
+02. Black Sun (04:25)
+03. Flamme Empor (03:05)
+04. Beinhaus (04:39)
+05. Pingo (03:49)
+06. Richards Lied (03:43)
+07. Them (04:15)
+08. Tripod (03:25)
+09. Dismembered Memories (06:09)
+10. Blood (04:45)(   Читать дальше...   )2007Жанр: Apocalyptic Folk, Neoclassical, Martial IndustrialФормат: CD, Album, Limited EditionПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 494957   (251122) от 11.05.2012
 
 Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [FLAC|Lossless] <Dark Ambient, Neoclassical, Neofolk>
@@ -728,35 +763,6 @@ Rick Wakeman - Christmas Portraits (2019) [FLAC|Lossless|WEB-DL|tracks] <Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3589665E9A55670893D179D386DF713FF1282B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341994   (225207) от 01.12.2019
-
-Rick Wakeman - Christmas Portraits (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL]<Classical, Piano, Instrumental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225207.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - The First Noel [3:26]
- 2 - In The Bleak Midwinter [3:36]
- 3 - Deck The Halls  / Away In A Manger [3:29]
- 4 - The Holly & The Ivy / Mary's Boy Child [3:25](   Читать дальше...   )Жанр: Classical, Piano, InstrumentalПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78648C6F69A0D70C4392FF31D64FD91588E90A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

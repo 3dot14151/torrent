@@ -1,32 +1,3 @@
-###  Публикация: 971172   (987316) от 02.01.2016
-
-Элизиум - Снегири и драконы (2015) [FLAC|Lossless|image + .cue] <Ska Punk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Всё или ничего...
-02. Где-то сжигают книги
-03. Как мотылёк
-04. Снегири и Драконы(   Читать дальше...   )Жанр: Ska Punk, RockПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E86231A3F2BA1759E5D34DD313E451A83D05CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971206   (987313) от 02.01.2016
 
 Avril Lavigne - Under My Skin (2004) [FLAC|Lossless|image + .cue] <Pop-Rock>
@@ -749,6 +720,35 @@ Andy Shauf - The Neon Skyline (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D8334A1E4623A544F27809C0B2B3F3E0C6EDE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354886   (986157) от 24.01.2020
+
+Margenta - Сад развлечений им. И.Босха (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986157.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Останутся только вампиры-любовники
+2. Восьмёрка
+3. У времени нет времени
+4. Дикарь. Вне закона(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:851BC7B55E82B4DF045A315224CA96B70B883009
 ```
 
 https://mybot314.ru/tekegram_catalog/

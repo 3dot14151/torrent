@@ -1,3 +1,61 @@
+###  Публикация: 1725535   (108934) от 25.05.2024
+
+VA - United Trance Alliance (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyperphycron - First Contact 2024 (Rework Radio Edit) [04:27]
+02. Athema - Exod (Short Mix) [03:54]
+03. Bluebear Project - Endless Journey (Extended Mix) [07:25]
+04. E-Hunterz - Golden Ten (Radio Mix) [03:11](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF03B01C3ADED05523E4D570B5ECB599D3A8573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725642   (108933) от 25.05.2024
+
+VA - Beach Bar Chill Grooves, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Noella - So Wonderful (6:20)
+02. Luke Mornay - The System F'ed Us Up (Kastilla Lounge Mix) (4:02)
+03. Mike d'Abo - Reach out for Starlight (Syper Chill Mix) (3:36)
+04. Smooth Deluxe - Le violon rouge (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E13A21FD72D09A9EE2A21FBEE993F104BABC06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725500   (108929) от 25.05.2024
 
 VA - Ibiza Opening Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -687,64 +745,6 @@ VA - Armada Chill - Summer 2024 (2024) [MP3|320 Kbps] <Deep House, Melodic House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0A3A9069B292E1217C847D2484863C5EC6208D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727163   (108560) от 01.06.2024
-
-Pinhdar - A Sparkle on the Dark Water (2024) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Woods [00:04:59]
-02. Cold River [00:04:24]
-03. Home [00:03:58]
-04. Little Light [00:04:24](   Читать дальше...   )Жанр: Trip HopПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B9AD352CA1DFF29730C8A4ABA90506A61BC24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727179   (108554) от 01.06.2024
-
-VA - Ibiza Chilled Nights (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Soul, Jayanth Ak & AVNG - Testify (02:45)
-02. Anka - Darling (02:44)
-03. Harmonize - Show Me Love (05:10)
-04. Ijan Zagorsky, Katya Olszewska & Sean Sago - End Of The Night (05:27)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6C5116F65CF4BD27F18FA06DD7FBEC95709A70
 ```
 
 https://mybot314.ru/tekegram_catalog/

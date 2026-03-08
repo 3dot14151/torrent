@@ -1,3 +1,143 @@
+###  Публикация: 497471   (253696) от 17.05.2012
+
+VA - The Best Sixties Album In The World...Ever! Vol. I - IV (1995-1998) [MP3|320 кб/с]<Pop, Rock, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253696.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Best Sixties Album In The World...Ever! Vol. I(1995)
+
+Disc 1
+
+01 The Monkees - I'm A Believer
+02 Sonny & Cher - I Got You Babe
+03 Carole King - It Might As Well Rain Until September
+04 Cliff Richard & The Shadows - The Young Ones
+05 Del Shannon - Runaway
+06 The Four Seasons - Let's Hang On(   Читать дальше...   )1995-1998Жанр: Pop, Rock, BluesПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A872124A3E92F1E1763358700C5EC2FE1BB90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497764   (253691) от 17.05.2012
+
+VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.17 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Glorya - Habibi (Radio Edit)
+02.Гейдар Багиров - Ты Украла (Radio Edit)
+03.Jim Noize - Play Girl (Radio Edit)
+04.Danila Rastv - Отпусти
+05.Dr. Shiver vs Cekky Sound ft. Pro Bangah - Sexy Babe (Radio Mix)
+06.Secret Baby! - Мой Сон (Radio Mix)
+07.Darius & Finlay feat. Carlprit & Nicco - Do It All Night (Video Mix)
+08.Караты feat. D.Lemma - Достигая Вершин
+09.Tom Boxer & Lexter - Jammin (Radio Edit)
+10.140 Ударов В Минуту - Подснежники(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 04:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B646F137C13C0192F73D49BEE2627BCA6563DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497994   (253634) от 17.05.2012
+
+VA - Убойная вечеринка по-русски (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253634.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пропаганда - Нет-Да (Dance Version) (3:51)
+2. Светлана Разина - Радио НАХ (3:33)
+3. Женя Юдина - Помнишь Ли Ты (DJ Lumiere Remix) (4:07)
+4. DJ Miller feat. Батишта - Почти Ничего (3:06)
+5. НеАнгелы - Твоя (DJ Jedy Club Remix) (4:33)
+6. Время и Стекло - Гармошка (3:03)
+7. Настя Задорожная - До Дна (3:39)
+8. Reflex - Я буду небом твоим (3:40)
+9. Тимур TimBigFamily & Лючана - Dance With Me (4:15)
+10. Коля Серга - Плаксивая (3:15)2012Жанр: PopПродолжительность: 06:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0F1BD76BD5B66DABF5BFFAAF3E1C8B2ECA0412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497894   (253629) от 17.05.2012
+
+VA - Зарубежные Новинки Vol.50 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dony feat. Alex Mica - Mi Hermosa (Club Mix)
+02. Rex Riot - New (Original Mix)
+03. DJ Robert Georgescu feat. Lara - Sunshine (Extended Mix)
+04. Emil Lassaria & F.Charm - Guantanamera (2012 Rework)
+05. Metrik - It's My Turn
+06. Sara Bareilles - Stay
+07. Moby feat. Inyang Bassey - The Right Thing (Dan Levy From The DA Remix)
+08. Beto Cuevas feat. Flo Rida - Quiero Creer
+09. Seven Lions feat. Shaz Sparks - Below Us
+10. Tarkan feat. Ayhan Dogan - Gulusu Bir Baska2012Жанр: PopПродолжительность: 03:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F7C854B552E5B18EB1183DD7F759FF0E72DA0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497883   (253606) от 17.05.2012
 
 VA - Клубные Новинки Vol.79 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
@@ -725,146 +865,6 @@ VA - Hits Of The Moment (10.05.2012) (2CD)[MP3|320 кб/с]<House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D03CD44A47F033725D5D3B8F818DA86BD1676A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495399   (251446) от 12.05.2012
-
-VA - Правильная Рэпчина Часть 8 (2012) [MP3|256 кб/с]<Рэп>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251446.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Тимати feat. Джиган - Reebok Is Back
-002 Легальный Бизне$ - Все Говорят
-003 Западный Сектор (Объединенная Каста) - Сюрпризы
-004 Крестная семья - Гоп-Гоп
-005 АК-47 - Еду в Ленинград
-006 Dino MC 47 & Nano - Moscow
-007 Влади (Каста) feat. Хамиль & Змей - Тебе в прикол
-008 Bad Balance - Мир будет таким!
-009 25-17 feat. Вячеслав Бутусов - Русская
-010 T1One & Анастасия К. - Мама2012Жанр: РэпПродолжительность: 05:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A22315AE267BCB4A91BECD329CF40961C30777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495488   (251386) от 12.05.2012
-
-VA - MAXI. Хитовые новинки MTV (2012) [MP3|256-320 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251386.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Taylor Swift - Ours (4:07)
-2. Дмитрий Колдун - Не С Той (3:52)
-3. Tom Stem - Love (Mennn Bass Remix) (4:11)
-4. Marina And The Diamonds - Primadonna (3:40)
-5. Eric Church - Springsteen (4:20)
-6. Dj Boor & Dj Frost Music feat SERPO & Парабит - А мне так хочется (2012) (сегодня танцуем) (Rework Version) (3:51)
-7. Аслан Махов - Улетаю (2:56)
-8. Train - Drive By (3:10)
-9. T-Killah feat. Виктория Дайнеко - Mirror Mirror (3:27)
-10. MainstreaM One - Один Шанс (M. One & Dj Seroff prod) (3:14)2012Жанр: Pop,DanceПродолжительность: 05:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16EBEBFFE875A27B4B5DE26E6A52D20ED863EE8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494937   (251150) от 11.05.2012
-
-VA - Продвинутый Клубняк 50+50 (2012) [MP3|320 кб/с]<Pop,Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ M.E.G feat. Карина Кокс - Там Где Ты (UnorthodoxX Classic Vox Remix)
-02. Asino Di Medico vs Terry Stone - In My Mind (Club Mix)
-03. Инфинити - Где ты (Alex Menco 2012 remix)
-04. Rico Bernasconi - Hit The Dust '12 (Official Video Version)
-05. DJ Miller feat. Батишта - Почти Ничего
-06. Christopher S feat. Max Urban - Star (Organ Mix)
-07. Каста - Сочиняй Мечты (DJ Kopernik Remix)
-08. DJ Antoine vs. Empire Of The Sun - Walking On A Dream (DJ Pitchugin Booty Mix)
-09. Руки Вверх - Крошка моя (Wellski Radio Remix)
-10. Brilliant - Action Mode (Radio Edit)2012Жанр: Pop,Dance, ClubПродолжительность: 04:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E663934BEBBF1F12211133F8213470A91AD11F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495164   (251070) от 11.05.2012
-
-VA - Зарубежные Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.o.B feat. Playboy Tre - Just A Sign
-02. Bijue - All The Stars (Extended Mix)
-03. Sunset54 - Another Day (Fly Records Extended)
-04. Jay Toss ft. DeepSound - Sexy Senorita (Remake 2012)
-05. Travis Garland - Right Here
-06. Inna - Alright
-07. Meek Mill ft. Wale, Big Sean - Take U Home
-08. Lasgo - Sky High (Radio Edit)
-09. Cash Out feat. Akon - Cashin Out (Remix)
-10. Taylor Swift - Eyes Open (Jason Nevins Tempo Mix)2012Жанр: PopПродолжительность: 03:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB7E41B96C36CE165F1C7886ED79107590C02C7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 986344   (931079) от 14.02.2016
-
-Mitochondrion - Parasignosis (2011) [APE|Lossless|image + .cue] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plague Evockation (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part I),
-02. Lex Ego Exitium (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part II)
-03. Tetravirulence (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part III)
-04. Trials(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5545D9670EF6519FDC8226A8257834CC5903C1BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986223   (931053) от 14.02.2016
 
 Baldrs Draumar - Aldgillissoan (2015) [FLAC|Lossless|image + .cue] <Folk, Viking Metal>
@@ -745,6 +716,35 @@ Indica - Shine (2014) Limeted Digipack [FLAC|Lossless]<Symphonic Rock, Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA5E2D78EC8B4AA0D4BB69E8352EAF3E28A5F45F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094517   (929385) от 18.01.2017
+
+Mahogany - Mahogany (1969) Reissue, 2006, Walhalla Records [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coolin'
+2. Best Woman, Best Friend
+3. Live Your Love A Lie
+4. Easy(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE26C4DF8C273805023FD6107E3D5009F41EAA34
 ```
 
 https://mybot314.ru/tekegram_catalog/

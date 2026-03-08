@@ -1,3 +1,61 @@
+###  Публикация: 1627713   (237145) от 20.04.2023
+
+Petite Noir - MotherFather (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – 777
+02 – Blurry (feat. Sampa the Great)
+03 – Numbers
+04 – Concrete Jungle(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F897263C342A7AD26C29D2654DCA3AB2A63D1E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630306   (237109) от 30.04.2023
+
+Апельсин (Apelsin) - 4 Albums (1976-1989) LP [MP3|320 Kbps] <Pop, Soft Rock, Country Rock, Folk Rock>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Апельсин (эст. Apelsin) - советская и эстонская музыкальная группа, созданная в 1974 году и существующая до настоящего времени. Музыка представляет смесь разных стилей: джаза, кантри, рок-н-ролла, блюза и многих других с добавлением достаточно нетрадиционных инструментов.Список альбомов:
+1976 - Apelsin
+1981 - Apelsin 81
+1988 - Ансамбль «Апельсин» (III)(   Читать дальше...   )Жанр: Pop, Soft Rock, Country Rock, Folk RockПродолжительность: 02:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2361A23870F4568BD65A488840F09523E04B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627742   (237102) от 20.04.2023
 
 VA - ZYX Italo Disco New Generation Vol. 6 (2015) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
@@ -685,64 +743,6 @@ Olivia Newton-John - Just The Two Of Us: The Duets Collection (Vol. 1) (2023) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6EC6B2DB7D48262E13072F7B3EF0A1A1E9320EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632105   (235565) от 08.05.2023
-
-Cerrone - A Part of You (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Part of You (Edit)
-02. A Part of You (Club Mix)
-03. A Part of You
-04. A Part of You (Club Mix Instrumental)Жанр: DiscoПродолжительность: 00:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BBC3395ECC96DC4E0CDB90A180DBDBA6B97868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632454   (235403) от 10.05.2023
-
-Ed Sheeran — «-» (Deluxe) (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop, Acoustic>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boat
-02. Salt Water
-03. Eyes Closed
-04. Life Goes On(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49633819FAE8FF171A41380B09DD878FEB1A007B
 ```
 
 https://mybot314.ru/tekegram_catalog/

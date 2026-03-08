@@ -1,3 +1,177 @@
+###  Публикация: 1214129   (765768) от 20.03.2018
+
+VA - The Ultimate Classic Deep House (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765768.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Matt Darey - One More Night in Stars
+002. Abriviatura IV - Bringing Me Down (Original Mix)
+003. Haldo feat. Leggo Thomas - A Better Place (Steven Stone Remix)
+004. Forced Voyage - Why Did You Do It (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 13:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B192B068845AFD128365212800433EAA6119EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214186   (765755) от 20.03.2018
+
+VA - Black Aphrodite (2018) [MP3|320 Kbps] <Heavy, Power, Death Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765755.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Absolva - Harsh Reality
+002. Horrified - Allure Of The Fallen
+003. Avantasia - Seduction Of Decay
+004. Cromonic - Prophecy(   Читать дальше...   )Жанр: Heavy, Power, Death MetallПродолжительность: 08:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27D87A3A59BA9BDBDF2DCF0659C4AB59A6990E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126451   (765553) от 18.04.2017
+
+VA - Драйвовый молодежный весенний музон. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765553.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Маньяна - Наши Песни 3:03
+002. Чаян Фамали - Моделька 3:31
+003. Kaminski - Полюби Меня 3:47
+004. Непара - Не Плачь 3:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CE4FED1507B2CF43D79B6A7035AA4B55ACB91A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126507   (765551) от 18.04.2017
+
+VA - Ice Mountain: Tech House Party (2017) [MP3|320 Kbps] <Tech House, Electro, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765551.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vadim Yershov - Slow Burn
+002. DYS (Italy) - I Love It
+003. Ramacod - Granotes
+004. Maxime Dangles - Mentor(   Читать дальше...   )Жанр: Tech House, Electro, ClubПродолжительность: 11:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31751CCB2EE1EEFAFBCC15DEC02A703537924E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126448   (765546) от 18.04.2017
+
+VA - Русский отрыв Русского радио. Выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765546.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Восьмой - Новыми Глазами 2:45
+002. Доминик Джокер - Напополам 3:32
+003. Елена Яловик - Лодочка 3:32
+004. Баян Микс Сергея Войтенко - Ямаечка 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E0A0E9FAF017AB77C61604B0C1EB9CDA5AF86A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126580   (765544) от 18.04.2017
+
+VA - Beatport Trance  Pack (18.04.) (2017) [MP3|320 Kbps] <Trance, Energy, Tech Trance, Uplifting, Emotional, Blissful, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Khomha - Dance Electric (Edit)  2:45
+02.  Sean Tyas - Black & White (Original Mix)  7:41
+03.  Ram & Cari - Soulfood (Extended Mix)  6:51
+04.  Alan Morris & Elles De Graaf - Calm The Night (Ferrin & Morris Remix)  6:54(   Читать дальше...   )Жанр: Trance, Energy, Tech Trance, Uplifting, Emotional, Blissful, ProgressiveПродолжительность: 04:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426917D5C0CB9E6864744C0F56D54888A417A24C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126445   (765543) от 18.04.2017
 
 VA - Музыкальный подарок на Europa Plus. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
@@ -571,180 +745,6 @@ VA - I Love Music! - Indie amp Soft Rock Edition Vol.33 (2017) [MP3|320 Kbps] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:582784820AAC9F5C855DD9231C5FC95A0CCE2A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279579   (765317) от 30.01.2019
-
-VA - Empire Records - Fake 3 (2018) [MP3|320 Kbps] <Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765317.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nathia Kate - The Mission (Original Mix)
-002. Luke Terry, Paul Gibson - Achelous (Radio Edit)
-003. Talla 2XLC - It Makes Me Wonder (Steve Allen Remix)
-004. Sunset, Jess Morgan - The Gift of Giving (Original Mix)(   Читать дальше...   )Жанр: Trance, DanceПродолжительность: 10:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40B92174164549C4907680CD9865995E3EF1780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521326   (765216) от 02.01.2022
-
-Samantha Fish - Compilation (2019) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nearer to You
-02. Otherside Of The Bottle
-03. Are You Ready
-04. Push Comes To Shove(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73119D95C7C8C7513978F8E97EDC8AEC1EB0AE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126569   (765197) от 18.04.2017
-
-VA - I Love Music! - Hard Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Hard Rock, Melodic Rock, Glam Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765197.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angels Or Kings - When The Heart Is Wrong 4:25
-002. Black Hole Raven - Do Not Luv Me 3:34
-003. Black Paisley - Coming Home 3:59
-004. Black Star Riders - Fade 4:23(   Читать дальше...   )Жанр: Hard Rock, Melodic Rock, Glam MetalПродолжительность: 07:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F9AB25E998A0DDFD9A856B7F05076CD54F4DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521464   (765170) от 02.01.2022
-
-VA - Beatport Psychedelic Trance: Sound Pack #388 (2021) [MP3|320 Kbps] <Psychedelic Trance, Goa>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Является ли Psy Trance музыка танцевальной? Ответ один, без сомнения это танцевальная музыка. Некоторые почему-то относятся к танцевальным стилям достаточно легкомысленно и настойчиво ассоциируют их только с развлекательными и увеселительными мероприятиями. Не отрицая этого, все же стоит заметить, что танец является одной из самых древнейших техник, которую использовали (   Читать дальше...   )001. Galactic Cowboy - Supersonic Fly
-002. Neutro - Hypnosis
-003. N3xu5 & Gu - 5th Dimension
-004. E-Mov - Mystic(   Читать дальше...   )Жанр: Psychedelic Trance, GoaПродолжительность: 12:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A45A6AF5E9D9A48DA1D424877744AFF755EA80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521441   (765159) от 02.01.2022
-
-Imelda May - Compilation (2019) [MP3|320 Kbps] <Alternative rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gypsy In Me
-02. Levitate
-03. It's Your Voodoo Working
-04. Round The Bend(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 02:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E47A2A5819DF1A69AC10515FE58B14FE701BDCA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521288   (765154) от 02.01.2022
-
-VA - Music News vol.158 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765154.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Kristina Mailana - Little Bit Lovin (03:29)
- 002. 7vvch - Bam Barabam (02:29)
- 003. Akon - Bananza (Belly Dancer) (Vadim Adamov & Hardphol Remix Radio Edit) (03:13)
- 004. Alan Walker feat. Winona Oak - World We Used To Know (Amice Remix) (03:22)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 09:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D10574861D874DF95E071AA32CBCADB261E7D5C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

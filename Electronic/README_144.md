@@ -1,3 +1,61 @@
+###  Публикация: 1204341   (784918) от 05.02.2018
+
+VA - Best Deep House Music 2017 Vol.4 (Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ferhat Sonsoz  -  Wilde Rose (Original Mix)  6:47
+02.  Aida & Berkhan Baser  -  All (Original Mix)  5:31
+03.  Mozkai & Pocohontas  -  Fall In Love (Original Mix)  5:26
+04.  Zara & DJ Nil  -  Dle Yaman (Original Mix)  5:38(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D2A9B35725B32762699C7153D7CE02DB86C8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204281   (784860) от 05.02.2018
+
+VA - A State Of Trance 850 (The Official Album) (Mixed by Armin van Buuren) (2018) 2CD [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784860.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Armin van Buuren  -  Be In The Moment (A State Of Trance 850 Anthem) (Extended Mix)  6:36
+02.  Purple Haze  -  Choir 1.0 (Extended Mix)  4:43
+03.  Ilan Bluestone feat. Giuseppe de Luca  -  Frozen Ground (Extended Mix)  6:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 03:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AB2D2CC6F0B3BEB7C8535857724CDABDDFA3D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204255   (784849) от 05.02.2018
 
 VA - Fifty Shades of Jazz, Vol. 1 - Erotic, Sensual, Music Therapy (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
@@ -687,64 +745,6 @@ VA - Love Hits Vol.3 (2018) [FLAC|Lossless|tracks] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2E4A1C981A59DD5CA8337455662D553F2926A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389650   (784254) от 11.06.2020
-
-Hibernation - Organic Technology (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Glitch, IDM, Dub, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Familiar Stars (Album Intro) (01:25)
- 02. Thought Becomes Form (05:36)
- 03. Mix It With The Relish (05:55)
- 04. Transition (05:27)(   Читать дальше...   )Жанр: Psychill, Downtempo, Glitch, IDM, Dub, AmbientПродолжительность: 02:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1FB6EB3A2690315A5608AEDD3DA2C7090537C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204719   (784221) от 07.02.2018
-
-Scooter - 100% Scooter (25 Years Wild & Wicked) - The Belgian Edition (2018) [MP3|320 Kbps] <Hard Trance, Hardcore, Jumpstyle>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Scooter  -  The Logical Song  3:54
-02.  Scooter  -  How Much Is The Fish  3:46
-03.  Scooter  -  One (Always Hardcore)  3:50
-04.  Scooter  -  Move Your Ass!  3:55(   Читать дальше...   )Жанр: Hard Trance, Hardcore, JumpstyleПродолжительность: 03:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD477E7516822E9F88EEFBE68AAE34F85F17174
 ```
 
 https://mybot314.ru/tekegram_catalog/

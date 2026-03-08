@@ -1,3 +1,32 @@
+###  Публикация: 1606893   (1044228) от 24.01.2023
+
+Era - The Very Best Of (2004) [OGG Vorbis|480 Kbps] <Rock, Pop, Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno remix
+02. Don't go away
+03. The mass
+04. Mother remix(   Читать дальше...   )Жанр: New Age, Pop, ClassicalПродолжительность: 01:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B6CFB194865C537A764E426E974E68A23FB07D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607598   (1043899) от 27.01.2023
 
 Земфира & Дмитрий Емельянов - CACTUS (2023) [MP3|320 Kbps] <OST>
@@ -716,35 +745,6 @@ DJ Chill del Mar - Fresh Mix Chillout 2021 [FLAC|Lossless|WEB-DL|tracks] <New ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C147765482517699476D883E01A37B0673DC09B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443332   (1035730) от 28.01.2021
-
-Langhorne Slim - Strawberry Mansion (2021) [FLAC|Lossless|tracks + .cue] <Folk, Indie, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mighty Soul (01:57)
-02. Dreams (02:19)
-03. No Right Way (02:30)
-04. Lonesome Times (01:53)(   Читать дальше...   )Жанр: Folk, Indie, AmericanaПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030238033B3B5F5870E24D92C89A29250A9D6A20
 ```
 
 https://mybot314.ru/tekegram_catalog/

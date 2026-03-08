@@ -1,32 +1,3 @@
-###  Публикация: 1369470   (900423) от 25.03.2020
-
-Рось - Русалка и Купала (Compilation) (2006) [MP3|320 Kbps] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом Русалка
-01	Кольцо	3:44
-02	Купальнка	2:33
-03	Кленовая	2:13(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4298E17FDB770AB6809DAD0299262D0CDAAA8C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369504   (900337) от 25.03.2020
 
 Медведь - Вставайте сильные с нами / Прими мой меч! (2016-2020) 2 CDr [MP3|320 Kbps] <Rock, Folk, World, & Country>
@@ -736,6 +707,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56B932A20308310DE9B44C1F22BD774A1F28498E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371346   (892126) от 30.03.2020
+
+HAGAT - Извращение (2020) [MP3|320 Kbps] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892126.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Цветы зла [4:16]
+ 2. Ожидание [4:33]
+ 3. Смерть Анны [3:55]
+ 4. Сладострасть [4:21](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6CDF17821FDFDD4F1C7104221D71CB8650D629C
 ```
 
 https://mybot314.ru/tekegram_catalog/

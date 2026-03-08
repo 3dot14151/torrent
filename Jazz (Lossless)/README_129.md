@@ -1,3 +1,32 @@
+###  Публикация: 1145894   (618225) от 27.06.2017
+
+Rita Reys - The Real… Rita Reys (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Summertime
+02. Raindrops Keep Fallin' On My Head
+03. The Windmills Of Your Mind(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 03:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6304E1128B9C815E70621C44412F2B7AD9DB15D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146004   (617977) от 27.06.2017
 
 Wynton Marsalis - Black Codes (From The Underground) (1985) [FLAC|Lossless|image + .cue] <Post Bop, Contemporary Jazz, Modal>
@@ -724,35 +753,6 @@ Art Blakey And The Jazz Messengers - Roots & Herbs (1961) /2014, Universal/[FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCC428EDAA9D2A805153BF9BFE1F9C622574B3D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230579   (614114) от 13.06.2018
-
-McCoy Tyner - Suddenly (1991) 2001, Past Perfect [APE|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Love [3:29]
-02. Suddenly [5:30]
-03. Giant Steps [3:52]
-04. Darn That Dream [6:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7737A76C11AD9E42C263811CD1963DE5E6FB57
 ```
 
 https://mybot314.ru/tekegram_catalog/

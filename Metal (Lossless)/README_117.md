@@ -1,3 +1,90 @@
+###  Публикация: 1549149   (593965) от 06.05.2022
+
+Salamandra - Opus Bohemica (2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bohemica
+02. Awakening
+03. Set the Fire
+04. Mannequins(   Читать дальше...   )Жанр: Sympho Power MetalПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB84C95DC6C629D04E785897B13FC2A2E8EAF62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549114   (593894) от 06.05.2022
+
+Sabaton - The Symphony To End All Wars (2022) Symphonic Version [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarajevo (4:45)
+02. Stormtroopers (3:53)
+03. Dreadnought (3:25)
+04. The Unkillable Soldier (3:36)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41555484270A5CCAA2FD0A0144B716B7E5EC7315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300219   (593883) от 05.05.2019
+
+Mark Morton - Anesthetic (2019) [FLAC|Lossless|tracks + .cue] <Groove Metal, Heavy Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cross Off (feat. Chester Bennington) (4:13)
+02. Sworn Apart (feat. Jacoby Shaddix) (3:57)
+03. Axis (feat. Mark Lanegan & Myles Kennedy) (4:13)
+04. The Never (feat. Chuck Billy & Jake Oni) (4:06)(   Читать дальше...   )Жанр: Groove Metal, Heavy Metal, Alternative MetalПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA40DCC5C2BED98B2541B86173634D9801289CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039964   (593653) от 03.08.2016
 
 Holy Blood - Волны Танцуют (2004) [FLAC|Lossless|image + .cue] <Black Metal, Folk Metal>
@@ -658,93 +745,6 @@ Evergrey - A Heartless Portrait (The Orphean Testament) (2022) [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:196949C0F63F1ED53501A10FE585415DC378CCDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915991   (591444) от 07.07.2015
-
-Before Eden - The Legacy of Gaia (2005) [FLAC|Lossless]<Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nomad Soul
-02. Wizard of the South
-03. Essence
-04. I. Earth Cry(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E21D006753B48539015B1D1E1A41B0EBB3C444A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915987   (591442) от 07.07.2015
-
-Accuser - Double Talk (1991) [FLAC|Lossless]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Double Talk" (02:53)
-02. "The Freeze" (05:29)
-03. "Money" (06:59)
-04. "Flag Waver" (08:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9489CB36F6EEE9C3CBC56F71904E1C1BEB30B856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915993   (591441) от 07.07.2015
-
-Edenshade - The Lesson Betrayed (2006) [FLAC|Lossless]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tmesis
-02. Thatblind
-03. They
-04. The Drop(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B125A1A4F3BB32FB55B81AF62E81B08F86CC238C
 ```
 
 https://mybot314.ru/tekegram_catalog/

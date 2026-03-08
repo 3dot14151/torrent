@@ -1,3 +1,30 @@
+###  Публикация: 1453621   (1026907) от 11.03.2021
+
+Mozilla Firefox 86.0.1.7739 Portable by JolyAnderson [Multi/Ru] (авторская раздача)
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. В него изначально входит проверка сайта на отслеживание, поддержка расширений и многое другое.
+Вашему вниманию предоставляется Portable версия браузера Firefox.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CC3A299FD2870562F873BA6529671E644FEB38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453618   (1026904) от 11.03.2021
 
 Wireshark 3.4.4 + Portable [Multi/Ru]
@@ -650,32 +677,6 @@ Camtasia for Mac — эффективное приложение для созд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CBA7E38D7FE57172FBCAF053E134E14C4CBC79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453889   (1026750) от 12.03.2021
-
-Easy Data Transform 1.14.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преобразование файлов Excel и CSV без программирования с помощью Easy Data Transform.Тип издания: macOS SoftwareРелиз состоялся: 08.03.2021Разработчик: Oryx Digital LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208F203582D8E02F7372E52A74052E7B083DA8F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1239242   (540356) от 04.08.2018
+
+VA - Your Songs: The All Summertime Greatest Hits (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540356.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mahmut Orhan - 6 Days
+002. Enrique Iglesias x Pitbull - MOVE TO MIAMI
+003. Train feat. Cam - Call Me Sir
+004. Namika - Je ne parle pas français(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 13:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622FC31DE6A3C5982AC71F4DBBE6268CD8115451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239234   (540352) от 04.08.2018
 
 VA - ЕвроХит Топ 40 Europa Plus 03.08.2018 [MP3|320 Kbps] <Pop, Dance>
@@ -740,35 +769,6 @@ VA - Музыкальные Новинки Интернета Осенний В�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A98605D96D1851FF14EB62E3E896B56DD634A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052344   (529069) от 13.09.2016
-
-VA - Только хиты Хит FM 6 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529069.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scooter Feat. Maidwell  -  Stargazer  3:34
-002. Aisha  -  Новое Поколение  3:49
-003. Макsим  -  Хорошо  3:34
-004. Ellie Goulding  -  Don't Need Nobody  3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F322EC4393C0BBB2286C60D4E0E4926314F82E1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

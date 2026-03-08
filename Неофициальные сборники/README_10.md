@@ -1,3 +1,177 @@
+###  Публикация: 1610207   (1042591) от 06.02.2023
+
+VA - Music News vol.243 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042591.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gerda - За Такую Любовь (02:16)
+ 002. 52Ghz - Спасибо Тебе Бать (02:06)
+ 003. 220 Kid feat. Kangdaniel & Willim - Look Where We Are (03:12)
+ 004. Adesse - Dance With Me (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3427BF1EF23A7A3F41E7DB3968A56E5DDF3E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436985   (1042559) от 03.01.2021
+
+VA - Best New Hype Drum & Bass (2020) [MP3|320 Kbps] <D&B>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надоели соседи, которые устраивают вечеринки до 4 утра, а потом в 6 просыпаются и начинают сверлить стены, двигать мебель, играть в футбол, устраивать кошачьи бои и снова веселятся до рассвета? Решение есть! И оно гораздо проще, чем всякие обращения в правоохранительные органы!001. Qzb And Phentix - Indigo Heart
+002. New Age Cult - Diamonds Never Break
+003. Phibes - Third Dimension
+004. Maduk And Lachi - Taking Control(   Читать дальше...   )Жанр: D&BПродолжительность: 09:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F371BAC9BAA962C1EF16EC7631FF7385CE5FDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610383   (1042436) от 07.02.2023
+
+VA - Impressive Sound 2022.2: Volume II (2022) [MP3|320 Kbps] <Technical death metal, progressive black metal, deathcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xenobiotic - The Wretched Strive
+02. Sigh - Shoujahitsumetsu
+03. Psycroptic - Enslavement
+04. Sun Eater - Vermin (feat. Charles Pierron & Daniel Bramley)(   Читать дальше...   )Жанр: Technical death metal, progressive death metal, progressive black metal, deathcoreПродолжительность: 01:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EB1E81BD5CCB2E6BBE48C19282BC2A89665176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610389   (1042407) от 07.02.2023
+
+VA - Impressive Sound 2022.2: Volume III (2022) [MP3|320 Kbps] <Post-metal, blackgaze, sludge metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Mal En Pire - L'Astre de Velours
+02. Asunojokei - Heavenward
+03. Adolf Plays The Jazz - Cinnamon
+04. Lodz - This Mistake Again(   Читать дальше...   )Жанр: Post-metal, blackgaze, sludge metalПродолжительность: 01:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF685F925DD75B78D71BCBC014B5CBDFF10444E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610269   (1042405) от 07.02.2023
+
+VA - Impressive Sound 2022.2: Volume I (2022) [MP3|320 Kbps] <Progressive metal, progressive rock, avant-garde metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Irist - Gloria
+02. Aenaon - Psyche
+03. The Blank Canvas - Epitaph For A Friend
+04. Charlie Griffiths - Arctic Cemetery(   Читать дальше...   )Жанр: Progressive metal, progressive rock, avant-garde metal, melodic death metalПродолжительность: 01:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DE56D2C2D9B7D409A6DE3A0B9DD2525BDEC13C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437176   (1042300) от 04.01.2021
+
+VA - Club Techno Electronics: EDM Liveset (2020) [MP3|320 Kbps] <Techno, Electronics>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для того, чтобы окунуться в мир клубной жизни, не обязательно посещать чопорный клуб для избранных. Достаточно просто скачать новый сборник танцевальной электроники "Club Techno Electronics: EDM Liveset" и устроить клуб у себя дома или на даче и весело зажечь с друзьями!001. Boki Fetish - Hardcatz
+002. Extra - La Pin (Fiesta Version)
+003. Dj Jackson - Hannibal
+004. Ferum - Arabian Acid(   Читать дальше...   )Жанр: Techno, ElectronicsПродолжительность: 13:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D9220DBEF90C43805FFAF7BFD14A44803F75F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437163   (1042297) от 04.01.2021
 
 VA - Electronic Glitch (2020) [MP3|320 Kbps] <Electronic, Synth, Techno>
@@ -571,180 +745,6 @@ VA - Sexy Chilling Lounge Music (2023) [MP3|320 Kbps] <Downtempo, Chill Out, Eas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A1B87F14D9E8E3B9B31EADC9A79FB0F966431CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437887   (1041448) от 07.01.2021
-
-Ian Gillan - Unchain Your Brain (2021) 2CD, Compilation  [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unchain Your Brain
-02. You Make Me Feel So Good
-03. Don't Stop
-04. Born Again(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7EEEB04A004E1FEA8AE8237D61C09DB254CC49D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611310   (1041422) от 11.02.2023
-
-Timi Yuro - Compilation (2023) [MP3|320 Kbps] <Vocal, Soul, Easy Listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry
-02. I Waited Too Long
-03. I'll Never Fall in Love Again
-04. Fever(   Читать дальше...   )Жанр: Vocal, Soul, Easy ListeningПродолжительность: 02:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3064B763D0BF3372ECB0C96C3790168FEEE043C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610851   (1041383) от 11.02.2023
-
-Dorothy - Compilation (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Beautiful Life
-02. Down to the Bottom
-03. Flawless
-04. Get Up(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594995FD73F7861F34D2C312F632B6B2FF50C7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610859   (1041380) от 11.02.2023
-
-Ivy Levan - Compilation (2023) [MP3|196-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dame Says (Final Audio)
-02. Biscuit
-03. Carol of the Bells
-04. Hot Damn(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B3441F40FE7DD5CB06F45DCB13379A07BB00FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611114   (1041378) от 11.02.2023
-
-VA - Pop Punk Motivation (2023) [MP3|320 Kbps] <Rock, Punk Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Day - American Idiot
-02. Simple Plan - Addicted
-03. All Time Low - Blinding Lights
-04. My Chemical Romance - Teenagers(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 02:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95746C3D3F4A2EAF06944A4DEC79CE1BD22F1D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611115   (1041362) от 11.02.2023
-
-Davit Barqaia - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia
-02. Frozen Heart
-03. Don T Cry
-04. No War(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB7ACB17208ABF3967736E4B1B478C6B81F0997
 ```
 
 https://mybot314.ru/tekegram_catalog/

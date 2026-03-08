@@ -1,3 +1,32 @@
+###  Публикация: 1117510   (819100) от 22.03.2017
+
+Vera Lynn - Vera Lynn 100 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| We'll Meet Again  (03:28) 
+02| Sailing  (03:05) 
+03| (There'll Be Bluebirds Over) The White Cliffs Of Dover  (03:19) 
+04| Wish Me Luck As You Wave Me Goodbye  (03:29) (   Читать дальше...   )Жанр: VocalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3A5C0637C2F5DDC44FFA4D7703D6C7D5000DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197016   (819051) от 05.01.2018
 
 Betsy - BETSY (2017) [FLAC|Lossless|tracks] <Pop>
@@ -717,35 +746,6 @@ Camila Cabello - Camila (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E19F0B88897691657E7D67D3939C5DBF9F047FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384071   (806159) от 18.05.2020
-
-Lara Fabian - Papillon(S) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papillon
-02. Je Suis A Toi
-03. Changer Le Jeu
-04. Par Amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF53B2CEDBE90ADDE89D98E5DF648BF245332A3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

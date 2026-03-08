@@ -1,32 +1,3 @@
-###  Публикация: 1461275   (1021969) от 09.04.2021
-
-Perfect Storm - No Air (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strength (08:21)
-02. The Search (06:58)
-03. Sun For Life (08:11)
-04. Hope (07:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20CB0C999403D623EBFA425108C20633496B5526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461274   (1021964) от 09.04.2021
 
 Primal Fear (feat. Tarja) - I Will Be Gone (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -744,6 +715,35 @@ Dominoe - одна из лучших немецких мелодик-рок гр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B89888B0723B117100D09D9C20A28377D227C465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461700   (1021623) от 11.04.2021
+
+Sons Of Angels - Sons Of Angels (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cowgirl
+02. Spend The Night
+03. Look Out For Love
+04. Lonely Rose(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D15C560E9FDD55EA6E0B24974913BA79908E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

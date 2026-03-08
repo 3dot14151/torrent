@@ -1,3 +1,179 @@
+###  Публикация: 906591   (643423) от 09.06.2015
+
+Tiesto - Burn (2015) [MP3|192 кб/с]<House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chapter 1 of 9
+02. Chapter 2 of 9
+03. Chapter 3 of 9
+04. Chapter 4 of 9(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533158DAE25A70A5B3AED9DCB9CE4CCBDC3A195B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906452   (643418) от 09.06.2015
+
+Вольфганг Амадей Моцарт - Музыка Моцарта для игр (1997) [MP3|320 кб/с]<Класика>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643418.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник музыки Моцарта для игр вошли самые разнообразные произведения. Благодаря этому можно подобрать мелодию, которая лучше всего подходит для той или иной игры. Например, для занятий, требующих сосредоточенности и внимания, лучше всего использовать спокойные мелодичные произведения. Тогда как для подвижных забав подойдет что-то более активное и быстрое.
+
+Специально (   Читать дальше...   )01. Champagne Aria from Don Giovanni
+02. Rondo Alla Turca
+03. Die Leyerer, K. 611
+04. 'La Bataille', K. 535(   Читать дальше...   )Жанр: КласикаПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71651DF38FB975D00A13078B04B6CBBEFD3132B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906514   (643406) от 09.06.2015
+
+Kylie Minogue - Super Hits Collection (2015) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cant Get You Out Of My Head
+02. Spinning Around
+03. I Should Be So Lucky
+04. Love At First Sight(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA4CD021E43388FF5C95B838720929059F763F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906449   (643323) от 09.06.2015
+
+VA - Клубные хиты в тачку на прокачку (2015) [MP3|256 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Base Elements - Trust Me (H@ppy Tunez Project Remix)
+02. Bsharry - I Like It (Original Mix)
+03. Alexx Slam - Take Me Away (Original Mix)
+04. Above & Beyond feat. Zoe Johnston - Alchemy (Above & Beyond Club Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320A2F0A6BBE4A6E0354F7AEA3920F0992125A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292767   (643309) от 31.03.2019
+
+VA - Roly-Poly: Bass Line Music (2019) [MP3|320 Kbps] <Drum & Bass,  Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643309.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A Sides - Encounter
+002. Kryzys - Connections
+003. Noisia - Shibuya Pet Store
+004. Orenwaves - Waiting For Autumn (Original Mix)(   Читать дальше...   )Жанр: Drum & Bass,  DubstepПродолжительность: 08:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C1C9700B2D35844D398918CFB7DC6B088ACEAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292766   (643308) от 31.03.2019
+
+VA - Urban Life: Progressive Trance Project (2019) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643308.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Makj X Linka - Fire
+002. Introtrance - Blizzard (Radio Edit)
+003. Rexuss - Chase In The Forest
+004. Leonid Gnip - Says Moscow(   Читать дальше...   )Жанр: TranceПродолжительность: 10:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C90D259C3978FDD39FB461534BF89FAA9D9A0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292936   (643306) от 31.03.2019
 
 VA - Harmony Of Sound: Psy Trance Mix (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
@@ -579,180 +755,6 @@ VA - Спасибо Песня: Сборник Шансона (2018) [MP3|256 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:241FCCBC87CE705293AD825560A62767ADE18BA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227759   (642622) от 28.05.2018
-
-VA - Короли и Герои: Сборник Русского Рока (2018) [MP3|192-320 Kbps] <Рок, Альтернатива>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проникновенные тексты, сильные голоса, настоящая гитара, живое звучание! Это всё наш рок! Здесь всё дышит жизнью, здесь всё дышит правдой! Презентуем Вам очередной сборник рок музыки под названием "Короли и Герои". Неповторимое звучание представленных композиций, собственный стиль исполнителей, широкий насыщенный саунд, которого музыканты добились благодаря (   Читать дальше...   )001. КняZZ - Наука Билли Бонса
-002. Северный Флот - Любовь и время
-003. Noize MC - Последний герой
-004. АлоэВера - Беги (EP версия)(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 10:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BA1C6246631920D0571BA7D15F11524465DD3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541098   (642611) от 04.04.2022
-
-DJ PafTron - My Name Is DJ (2022) [MP3|320 Kbps] <G-House, Deep House, Trance, Techno, Dance, Rave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 My Name Is DJ (skit)
-02 DJ Battle Africa Club set
-03 Train Techno
-04 My House Party(   Читать дальше...   )Жанр: G-House, Deep House, Trance, Techno, Dance, RaveПродолжительность: 09:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55654FC59DDFF6EA9BDEF2D15CA74B7D268D1490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541897   (642599) от 04.04.2022
-
-VA - All New Rock 2 (2022) [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642599.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stands on Sapphires - For the Fight (7:48)
-002. John Lodge - Isn't Life Strange - Live (6:52)
-003. Mal Hombre - Now That You're Mine (6:19)
-004. Poets of the Fall - Requiem for My Harlequin - Radio Edit (5:40)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 06:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3350E49DFDB8DDE10CA3801612BD9DD9CDD1E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142415   (642573) от 14.06.2017
-
-Рома Жуков - Ремиксы и лучшее (2017) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Все Эти Песни  4:05
-02.  Я автор твоей любви  3:35
-03.  Давайте вместе  4:08
-04.  Подари Мне Эти Звезды (Версия 2003)  4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5650AD8644DC110B0EB777609FB2A46A9338446A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142492   (642448) от 14.06.2017
-
-VA - Топ 50: Русские Песни Про Любовь (2017) [MP3|192-320 Kbps] <Поп, Рок, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Пикник - Твоё сердце должно быть моим  4:15
-02.  Оскар - Между мной и тобой  4:52
-03.  Калинов мост - Родная  5:09
-04.  Рок-Острова - Ничего не говори  4:18(   Читать дальше...   )Жанр: Поп, Рок, РетроПродолжительность: 03:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEE5826BA4D667D0FE218EEC425534E3379096B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032865   (642099) от 09.07.2016
-
-VA - Ballermann Mega Party (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Wendler - Rock Me Dancer (DJ Mix)
-02. Peter Wackel - Die Nacht von Freitag auf Montag
-03. Jorg And Dragan ft. Micaela Schafer - Deine Freundin
-04. Menderes - Mittendrin (Party Version)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB85922EE2392D1B3345823B4E2B39768DFCF32
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1353914   (990733) от 19.01.2020
+
+VA - Beatport Tech House: January Pack #02 (2020) [MP3|320 Kbps] <Tech, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990733.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gravity 99 - Music Life
+002. Rafael Paste - O Chamar Do Dia (Original Mix)
+003. Motiv - Bad Signal
+004. Flatfoot Jones - Funk (Original Mix)(   Читать дальше...   )Жанр: Tech, Deep HouseПродолжительность: 09:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1731F2890B75206633F4AA7A697B93AFE8AEEFD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353908   (990732) от 19.01.2020
+
+VA - Vocal House: Club Edition (2020) [MP3|320 Kbps] <Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990732.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Jedy - Tell Me
+002. Thornton - I'm Watching You (Radio Edit)
+003. Mike Brubek - Hero
+004. The Glitterboys - Running(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 11:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E856D5185B668D999557B2FDD2B6F0C65D9244A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353612   (990727) от 19.01.2020
+
+VA - не Громкие новинки недели 52 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990727.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.3-ий Январь - Фиолетовые Мотыльки (3:12)
+2.A.T feat. Maria's Secret - В Невесомости Неба (4:10)
+3.Chinar - Это Не Вода (2:24)
+4.DJ Tarantino & Bogdi - Половина (3:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7EB05657F27BC2B8F76004D05722599710B95D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353686   (990703) от 19.01.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 17.01.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) 3:42
+02. FILV & Edmofo feat. Emma Peters - Clandestina 2:29
+03. Anthony Keyrouz - Love Yourself 2:56
+04. Tones And I - Dance Monkey 3:30(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78E9971E3886A76E88C965DFE41A72D0D4F1DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353791   (990697) от 19.01.2020
+
+VA - Chillout: Supreme Relaxation (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Butler - Dinner In Milano
+02. Hexciv - Empathica (Original Mix)
+03. Wavedrops - Lazy Hammock
+04. Vanilla Potatoyes - Summer Breeze(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 06:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF09043C14BB79A4E5E46A8DB920FC15872BDDDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609440   (990638) от 29.01.2013
+
+VA - Exotic Wafture #33 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990638.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shogun - Skyfire (Alex M.O.R.P.H. Remix)
+002. Robbie Rivera feat. Ana Criado - The Sound Of The Times (Dance Or Die Juicy Mix)
+003. Rex Mundi - Valley Of Dreams
+004. Space RockerZ & Tania Zygar - Puzzle Piece (Daniel Heatcliff's Farewell Remix)
+005. Vadim Dreamer - Amsterdam (Tucandeo remix)
+006. Vinny Troia feat. Jaidene Veda - Do For Love
+007. Ronski Speed Presents Sun Decade feat. Emma Lock - U Got Me (club mix)
+008. Poshout - Delusion (Original Mix)
+009. Running Man - Eternity (Original Mix)
+010. TyDi feat. Tania Zygar - Half Light (Max Graham Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEBE06E648829F9D336F265322F1AD6E60414BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 432220   (990633) от 06.01.2012
 
 VA - Дискотека Зеленоглазое Такси Золотой выпуск (2012) [MP3|224 kbps]<Dance, Club>
@@ -636,180 +816,6 @@ VA - Sublime Electro House: Progressive Mix (2020) [MP3|320 Kbps] <Progressive H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35E5BE938CEC7453348B55202F8EB83E535F8738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354178   (989043) от 21.01.2020
-
-VA - Subtle Vibrations: Relax Compilation (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989043.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aiden Baker & Faith Coloccia & Jon Mueller - Harmony In Distance
-002. La Bors - Tanami (Original Mix)
-003. Inside The Second - Uptown Sounds
-004. Jimmy Freeplace - Last Parfume (Radio Version)(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, LoungeПродолжительность: 07:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D3379F57B0EA0FC9580FEB4533852F8E67BED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433431   (988895) от 08.01.2012
-
-VA - World songs. Night in Paris (2005) [MP3|224 kbps]<Chanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988895.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Edith Piaf - Sous Le Ciel De Paris (3:24)
-2. Joe Dassin - Salut (3:23)
-3. Daliada Avec Alain Delon - Paroles Paroles (4:04)
-4. Herve Roy - Emmanuelle Song (3:12)(   Читать дальше...   )Жанр: ChansonПродолжительность: 07:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6400654ADB64CD24F72A69E0D3D11222E1CC609A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354241   (988868) от 21.01.2020
-
-VA - Роза Января (2020) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Andre TAY - Снежная Ночь (5:02)
-2.Александр Вестов - Загадаю Желание (3:06)
-3.Александр Забазный - Памяти Друга (3:47)
-4.Александр Курган - Потом (3:19)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDDA7EF31BD0BBBC6F8ED036909F47D00496C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971174   (988657) от 01.01.2016
-
-VA - DJ's Choice: Best Electronic Lounge (2015) [MP3|320 кб/с] <Club, Progressive House, Power Electronics>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Terence - Feel That Vibe 04:22
-02. J & V - Walk Away (Randy Norton Edit) 04:54
-03. Trancemaster File - Time To Say Goodbye 08:54
-04. Naxwell - Living On Video (Radio Mix) 04:00(   Читать дальше...   )Жанр: Club, Progressive House, Power ElectronicsПродолжительность: 02:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B16C99016BA7BEB66DF08587A21A670B9C1DC77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971031   (988627) от 01.01.2016
-
-VA - Sounds & Cocktails (2015) [MP3|320 кб/с] <Electronic, Downtempo, Trip-hop, Future Jazz, Nu Disco, Nu Soul>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afro Paris - Solar Sides 06:49
-02. Everything Is Changing - Groove Collective 07:09
-03. Summer - Booster 07:22
-04. Heartfixer - Heartfixer 03:33(   Читать дальше...   )Жанр: Electronic, Downtempo, Trip-hop, Future Jazz, Nu Disco, Nu SoulПродолжительность: 02:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6CE4F2D9129703AF2D891875AF71F69E5E2138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971040   (988594) от 01.01.2016
-
-VA - Kontor Top Of The Clubs 2016.01 (2015) [MP3|320 кб/с] <Bigroom, Nu Disco, Future House, Tropical, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deejay Y - Over the Rainbow (Original Mix) [05:24]
-02. Jerome & Eric Chase - Close to You (Extended Mix) [04:25]
-03. Sigala - Easy Love (Radio Edit) [02:40]
-04. Stereoact - Die immer lacht (Extended 2016 Mix) (feat. Kerstin Ott) [05:17](   Читать дальше...   )Жанр: Bigroom, Nu Disco, Future House, Tropical, Indie DanceПродолжительность: 08:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CB1A543DBADA5337B5D049DA51962893F9E419
 ```
 
 https://mybot314.ru/tekegram_catalog/

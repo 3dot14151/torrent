@@ -1,3 +1,61 @@
+###  Публикация: 1649503   (229146) от 28.07.2023
+
+Qulonium - Hexia (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_229146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HEXIA [00:03:47]
+02. Dark Matter [00:05:09]
+03. Cold [00:04:06]
+04. For The Last Time [00:04:01](   Читать дальше...   )Жанр: Dark Electro, EBM, IndustrialПродолжительность: 00:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC819C9A37E85947C1A91595CAAB5D073BB159E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649537   (229130) от 28.07.2023
+
+VA - Armin van Buuren - A State Of Trance 1131 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_229130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Ferry Corsten - Follow You (FLASHOVER)
+02.	Ferry Corsten - Voeman (FLASHOVER)
+03.	Ferry Corsten & Betsie Larkin - Not Coming Down (FLASHOVER)
+04.	Ferry Corsten & Ciaran McAuley - Mo Chara (FLASHOVER)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D65529CD48572141CCB33E53B7027A6E1CD7466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424435   (229123) от 16.11.2020
 
 Polar Moon - As Above, So Below (2020) Past Inside The Present [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient>
@@ -687,62 +745,6 @@ Hour 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4D69D0239906360522DDF5A45249207AA3B0C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424454   (227771) от 17.11.2020
-
-Lamasz - Nature Morte (2020) Past Inside The Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227771.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Esquisse (01:51)
-2. Dégradé (06:47)
-3. Détails (03:57)
-4. Relief (06:30)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4028FCB301D181ABF8936E70C611A3FEAB22E59B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964998   (227768) от 13.12.2015
-
-Arno Hoddinghaus (A/R/N/O/, ARNO, Höddinghaus) - Discography (1994-2014) [FLAC|Lossless|tracks+.cue, tracks, image+.cue]<Ambient, New Age>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abbey 1 (39:05)
- 02. Abbey 2 (21:23)Тип издания: CD, WebЖанр: Ambient, New Age |Продолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B9DDC4BEA273ACF93357B48B2B6195780A366D
 ```
 
 https://mybot314.ru/tekegram_catalog/

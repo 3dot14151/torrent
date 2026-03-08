@@ -1,3 +1,61 @@
+###  Публикация: 1008573   (813706) от 19.04.2016
+
+VA - Acoustic (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Say You Love Me (04:03)
+02. Josh Franklin - Let Her Go (03:41)
+03. Karizma Duo - Wrecking Ball (03:31)
+04. Chelsea Hart - Thousand Miles (03:17)(   Читать дальше...   )Производство: This is AcousticЖанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C2DBBF0EFD2F3A0A577A93704316E7F303252D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008610   (813674) от 19.04.2016
+
+VA - Maretimo Sessions Edition Jazz House - Smooth Grooves Deluxe (2016) [FLAC|Lossless|WEB-DL|tracks] <Soulful House, Beach House, Left-Field>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skindive Inc. - Wishing Love (Feat. Ino) (Groove Mix) 07:03
+02. Chillhouse Department - Adriatic Islands (Surfers Cut) 05:20
+03. Jazz City - The Next Day (To The Sea Mix) 04:52
+04. Phil Kinley - Groove Is In The Air (Welcome 2 Da Beach Mix) 06:46(   Читать дальше...   )Жанр: Soulful House, Beach House, Left-FieldПродолжительность: 03:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6231B7A7CA14779116D65E12FB77B78342DC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118221   (813613) от 25.03.2017
 
 VA - Civil Dance Vol.1 (2017) [MP3|320 Kbps] <House>
@@ -686,64 +744,6 @@ ScAnDroid Experiment's - The Geometry of Life (2018) Авторская разд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1E5EFF828B862615C509F2406BC52985F47AF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383508   (811723) от 15.05.2020
-
-VA - Extreme Sports Music Vol 4 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hr. Troels - 6Am (Radio Edit)
-02. Phun And Key ft Patrick Metzker - Hang Out (Radio Edit)
-03. Dacos And Lucas Crapanzano - Ronker (Lucas Likes This Radio Cut)
-04. Steve Cypress - Move Ya Body (Edit)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AEB60482250FDB9A7F6B2A6A69A9E4F73441A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197174   (811613) от 09.01.2018
-
-VA - Space Holidays vol.8 (2016) 3CD [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terminal One - Skyway (04:40)
-02. Synthesis - The question (05:50)
-03. MindXpander - Synchronicity (05:59)
-04. Chris Van Buren - Arctic Spring (05:21)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 03:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4481B2C43987EDA756F3626995AA1A56F0F67E
 ```
 
 https://mybot314.ru/tekegram_catalog/

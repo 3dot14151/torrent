@@ -1,3 +1,32 @@
+###  Публикация: 1350875   (1003003) от 07.01.2020
+
+SPINNIN' - 2020 Future Hits (2019-12-30) [MP3|320 Kbps] <Progressive House, Electro House, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. SLVR - ID
+03. Vintage Culture & Adam K Feat. MKIA-Deep Inside Of Me
+04. Choomba - La Luh(   Читать дальше...   )Жанр: Progressive House, Electro House, HouseПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8D46A78D5C3398F9E6735443E9E3A7D16D9EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350696   (1002989) от 07.01.2020
 
 Reasonandu - Zephyr (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, Psychill, Downtempo>
@@ -668,32 +697,6 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:310507A0D25AF518877C4A1768E726EB3F2CC32D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351028   (1002681) от 08.01.2020
-
-Format Factory 4.10.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Format Factory - многофункциональный конвертер различных файлов мультимедиа. Имеет ряд дополнительных функций, превращающих FormatFactory в универсальный инструмент для работы с мультимедийными файлами разных форматов. Поддерживается конвертация популярных видеоформатов в MP4, 3GP, MPG, AVI, WMV, FLV, SWF, а также конвертация аудиоформатов в MP3, WMA, MMF, AMR, OGG, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62878D18F70B7A604D2432E9EB8E645C310D512
 ```
 
 https://mybot314.ru/tekegram_catalog/

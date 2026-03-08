@@ -1,3 +1,61 @@
+###  Публикация: 959954   (312251) от 26.11.2015
+
+Madonna - Something To Remember (1995) [FLAC|tracks+.cue]<Downtempo, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madonna With Massive Attack , - I Want You (6:23)
+02. I'll Remember (4:22)
+03. Take A Bow (5:21)
+04. You'll See (4:41)(   Читать дальше...   )Жанр: Downtempo, BalladПродолжительность: 00:65:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB05B86E55F756F2B94F0626D1B6A2BEFB331F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182756   (312204) от 12.11.2017
+
+VA - Nu Cool Covers (Pop Classics ReStyled) (2017) [FLAC|Lossless|tracks] <Lounge, Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik feat. Alan Scaffardi - Crazy (4:33)
+02. Sugarpie And The Candymen - Toxic (4:00)
+03. Melania - Killing Me Softly (3:32)
+04. Papik feat. Sarah Jane Morris - Let The Music Play (4:03)(   Читать дальше...   )Жанр: Lounge, Jazz, PopПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DF2158102FA81E3F0A10458528E545C478D46F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260299   (312185) от 07.11.2018
 
 Rasmus Seebach - Ingen Kan Love Dig I Morgen (2013) [MP3|320 Kbps] <Pop>
@@ -692,64 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69E7391FBE20D79083EA4C203ACBD31548F973EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729191   (309093) от 02.12.2013
-
-Владимир Макаров - Последняя электричка (2002) [FLAC|Lossless]<Retro, Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Последняя электричка   (2:31)
-02.  Буфер бьется пятаком зеленым   (2:38)
-03.  Мне б только знать   (2:22)
-04.  Тайга-Париж   (2:52)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDFDC78EF03DDA9F33AFE1A9A994473898F7EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332923   (308789) от 22.10.2019
-
-Blue System - Magic Symphonies (The Very Best Of Blue System) (2009) 3CD, BoxSet, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/14. Sorry Little Sarah (Long Version) (5:16)
-02/14. My Bed Is Too Big (No Longer Too Big Bed Mix) (5:27)
-03/14. Under My Skin (12'' Version) (5:16)
-04/14. Silent Water (Long Version) (4:51)(   Читать дальше...   )Жанр: Electronic, Euro-Disco, Synthpop |Продолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C395F5AACF544DD7C6093B410189784C503E17
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1683056   (129926) от 09.12.2023
+
+Duran Duran - A Hollywood High: Live In Los Angeles (2022) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prepare for an explosive journey through a blistering setlist with Duran Duran's 'A Hollywood High' on Blu-ray and DVD. Visually stunning, this electrifying high-rise rooftop performance was filmed in Los Angeles at The Aster, framed against an iconic LA skyline and the Capitol Records building. Experience the pulsating energy of the band's timeless music in crystal-clear (   Читать дальше...   )Производство: Last Man MusicЖанр: Rock, New WaveПеревод: ОтсутствуетПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985A845DF4FB92260AB545145B758E34F3F7BA6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683455   (128396) от 11.12.2023
 
 Квартирник у Маргулиса. Трио «Лойко» (10.12.2023) WEBRip [H.264/1080p]
@@ -677,35 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA5D7348C1020CFDBC0F1E02A7C054CD191FD106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719171   (110670) от 28.04.2024
-
-Квартирник у Маргулиса. Иван Замотаев и «Замотаев Бэнд» (27.04.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все участники коллектива не только музыканты, но и профессиональные артисты театра и кино. Кроме игры в спектаклях театра «Русская песня», «Другого театра» и знаменитого «Квартета "И"», солист и лидер группы Иван Замотаев также пишет музыку для театральных постановок и телепроектов. Выступления артистов отличает удивительно проникновенная музыка, яркие (   Читать дальше...   )00:00:05 Ожидание
-00:05:45 Перекати поле
-00:13:02 Я тебя помню босой и прекрасной
-00:19:44 Песня(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC7993ACB8D7042AE929B18DCA1A0CCBFBFC3D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

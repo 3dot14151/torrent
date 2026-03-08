@@ -1,3 +1,32 @@
+###  Публикация: 1212024   (776501) от 10.03.2018
+
+VA - 100 Hits DJ Trance Mastermix (2018) [MP3|320 Kbps] <Vocal Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776501.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elypsis & Fenna Day - Who You Are (Extended Mix)
+002. Roman Messer feat. Christina Novelli - Fireflies (Original Mix)
+003. Cern - The Message (Northern Mix)
+004. Maarten De Jong & Katty Heath - Free To Feel Again (Extended Mix)(   Читать дальше...   )Жанр: Vocal Trance, ElectroПродолжительность: 10:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3030277AEFD5BE0D69FC3F472136F4F565B41946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212170   (776432) от 10.03.2018
 
 VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House и Trance от LORDEGRAF vol. 14 (2018) [MP3|320 Kbps] <Electro, Deep, Techno, House, Trance>
@@ -716,35 +745,6 @@ VA - Morning Coffe Chillout Original Party (2018) [MP3|320 Kbps] <Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09C7C479E3563F612E457F2AB929257E53F9682E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015495   (775080) от 10.05.2016
-
-VA - Luxury Chill House (2016) [MP3|320 кб/с] <Chillout, Downtempo, Chillhouse>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Kohlstedt - Ell (Christian Loffler Rework)
-02. Kiasmos - Looped
-03. Weus - For The Night
-04. Rodg - Life Is Life (Chill Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo, ChillhouseПродолжительность: 03:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432E9768B035E402DB8965203F4304136C835278
 ```
 
 https://mybot314.ru/tekegram_catalog/

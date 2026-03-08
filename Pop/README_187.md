@@ -1,3 +1,61 @@
+###  Публикация: 1563723   (503519) от 15.07.2022
+
+Dina Summer - Rimini (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo Disco, Indie Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominator (4:02)
+ 02. Mars (4:54)
+ 03. Uranos (5:32)
+ 04. Revenge (3:35)(   Читать дальше...   )Жанр: Electronic, Italo Disco, Indie DanceПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B59AAEF6CC2E3C508AE1313AB9560D533F071D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563576   (503513) от 15.07.2022
+
+Eruption - Eruption - The Best Of Eruption (1981) Compilation, Remastered, 2017, Big Break Records [MP3|320 Kbps] <Funk, Soul, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Stand The Rain (3:09)
+02. Go Johnny Go (Keep On Walking, John B.) (3:30)
+03. Leave A Light (I'll Keep A Light In My Window) (4:21)
+04. Movin' (4:27)(   Читать дальше...   )Жанр: Funk, Soul, Pop, DiscoПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C12FA8D65282D348365E29516FFDBB5E23B994D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934176   (503272) от 04.09.2015
 
 a-ha - Cast In Steel (Deluxe Edition) (2015) 2CD [FLAC|Lossless|WEB-DL]<Pop>
@@ -759,64 +817,6 @@ Lenka - Lenka (2008) [MP3|320 kbps]<Pop, Easy-listening>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564774   (498577) от 20.07.2022
-
-King Sporty - Mr. Rhythm (1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Rhythm (4:18)
-02. Good Loving (4:34)
-03. Shake It, Shake It (3:43)
-04. Keep On Dancing (4:09)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C691EAD2E01218CFD86779E1A2F7D78E55313B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317969   (498501) от 03.08.2019
-
-Adriano Celentano - World Name (2003) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confessa
-02. Amore No
-03. Dimenticare E Recominciare
-04. I Passi Che Facciamo(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB71890D3499C2C7EC48DF60D4B684B686E6984A
 ```
 
 https://mybot314.ru/tekegram_catalog/

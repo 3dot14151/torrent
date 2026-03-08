@@ -1,3 +1,119 @@
+###  Публикация: 1158555   (491262) от 16.08.2017
+
+VA - Дискотека VerClub (2017) [MP3|320 Kbps] <Mash Up, Remixed, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491262.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Руки Вверх - Капают слезы (DJ Shulis aka Sergey Remix) (DJ Mikola Cover)  4:49
+002.  Натали - Давай Со Мной За Звёздами (DJ X Project Remix 2015)  3:16
+003.  Иван Дорн - Ты Всегда В Плюсе (DJ Bars Club Mix 2015)  5:37
+004.  Moyyo - Пить и Танцевать (DJ Solovey Remix)  3:46(   Читать дальше...   )Жанр: Mash Up, Remixed, DanceПродолжительность: 08:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA26FAFC95327F90F7FBADC5627319E52743A56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158507   (491261) от 16.08.2017
+
+VA - Зайцев.Нет: Лучшие Новинки Августа (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aly & Fila with Philippe El Sisi & Omar Sherif feat. Karim Youssef - The Chronicles (Extended Mix)  8:34
+02.  P!nk - What About Us  4:32
+03.  Dan Balan feat. Вера Брежнева - Наше лето  3:47
+04.  Альбина - Не со мной  3:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36664B18AF38FAD808AC41B1F78A5BC88FBE7C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565573   (490335) от 25.07.2022
+
+VA - В машине с музыкой Vol.290 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna Door  - Смотри В Глаза (03:16) 2022
+02. Madison Beer  - I Have Never Felt More Alive (03:21) 2022
+03. Группа Журавли  - Баю Бай (03:21) 2022
+04. Лисицын  - Карамельный Мир (02:29) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA21B241FD394E46F7F1AFC5C2B3320151A72246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565831   (490329) от 25.07.2022
+
+VA - Music News vol.205 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490329.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bakhtin - Королева (02:17)
+ 002. Amirchik - Эта Любовь (02:23)
+ 003. Ampris feat. Nik Taylor & Lulux - Backstreet Boy (02:13)
+ 004. Anais - 44 (02:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E55F87734E71479EAF127018431DEE22D946F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563861   (490324) от 25.07.2022
 
 VA - В машине с музыкой Vol.286 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -656,128 +772,6 @@ VA - Музыка Для Избранных: Убойная Вечеринка �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACBE133BC7C89566ACF00306F66B395D07C5B6EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319409   (484724) от 11.08.2019
-
-VA - Anoter Love Song (2019) [MP3|320 Kbps] <Pop, Rock, Lyric>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484724.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christa Vi - Futureproof
-002. Dawid Kwiatkowski - Melodia
-003. Keo - Kriptonita Mea
-004. Anna Rossinelli - Eyes Closed(   Читать дальше...   )Жанр: Pop, Rock, LyricПродолжительность: 08:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F238667CDAC0F762633A439148134C64D809F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319355   (484720) от 11.08.2019
-
-VA - New Wave Disco Vol.02 (2019) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484720.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jarred Gallo - Fancy Freak
-002. Alan Dixon - La Danza
-003. Riche Boom - Intellectual (Original Mix)
-004. Larombé - Train Of Thought(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 10:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15913FDCF5A7031574B764A5FDA987F2347CCE49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544278   (484564) от 10.09.2012
-
-VA - Новинки электронной музыки №1-2 [02.09.12] (2012) [MP3|320 кб/с]<Deep, Dubstep, Progressive House, Tech House, Techno, Trance, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484564.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Armin Van Buuren pres. Gaia - J'ai Envie De Toi (Tom Fall Remix) (7:03)
-2. Dankann - Unika (Antillas Rework) (5:55)
-3. Exostate - Easily I Fell (Norin & Rad Remix) (6:30)
-4. Faruk Sabanci feat. Josie - Wake Up (Original Mix) (7:40)
-5. Larkin & Lange - Obvious (Wezz Devall Remix) (6:01)
-6. Las Salinas Vs. Gofman & Tsukerman - El Clasico (Original Mix) (6:38)
-7. Markus Schulz Feat - Adina Butar - Caught (Club Mix) (6:16)
-8. Orjan Nilsen - PhireWorX (Original Mix) (7:02)
-9. Paul Webster - Nailed (James Dymond Remix) (8:06)
-10. Paul Webster ft Angelic Amanda - Time (MaRLo Remix) (5:20)(   Читать дальше...   )Жанр: Deep, Dubstep, Progressive House, Tech House, Techno, Trance, Electro HouseПродолжительность: 07:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C7F0D5C389D5133D4C6B97D9CE97BB5939413E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319406   (484455) от 11.08.2019
-
-VA - Eurobeat Club Dance (2019) [MP3|320 Kbps] <Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484455.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Afterchain - The Sound Of Chaos
-002. 4Ward - Obsessive
-003. 120 Dance - Nothing Else Matters
-004. Alison Candy - Next To Me(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 11:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3285A2D9303A462F79CB10048989AE3FD098262
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 974499   (976946) от 11.01.2016
+
+VA - Coming Home - Pop Lounge Music Deluxe (2015) [MP3|320 кб/с] <Lounge, Easy Listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Risasi - How U Like [04:02]
+02. Jnr Robinson - Wanna Praise [03:47]
+03. Trevor Jackson - Can You Blame Me [04:47]
+04. Rocklike - Holding On (Acoustic Version) [04:25](   Читать дальше...   )Жанр: Lounge, Easy ListeningПродолжительность: 03:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7269B7B59D96CE4EF9E6BA189C54B602F31C65E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974491   (976937) от 11.01.2016
+
+VA - 50 Modern Club Tracks Party Beats (2016) [MP3|320 кб/с] <Funky, Club House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VINAI & Harrison - Sit Down (Extended Mix) [03:42]
+02. Giorno - The Floor (Mainfloor Edit) [03:12]
+03. The Squatters, Little Nikki - Rude Boy (Extended Mix) [04:23]
+04. Criminal Vibes Ft Kilian - Pump It Up [04:01](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2695D58972A3DBC22D0B544939C2C06A68E8D0C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615362   (976899) от 09.02.2013
+
+VA - 20 Trance Hits (2005-2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amex & Bartlett Bros. feat Lizzie Curious - A New Dawn (Fabio XB Rework)
+02. Armin van Buuren feat Ana Criado - I'll Listen (Original Mix)
+03. Armin van Buuren pres. Gaia - Stellar (DNS Project Remix)
+04. ATB & Dash Berlin - Apollo Road
+05. ATB & Amurai feat Melissa Loretta - Heartbeat
+06. Cerf, Mitiska & Jaren - Beggin' You (Armin van Buuren Remix)
+07. DJ HaLF Ivan Flash - The Sound Of Disco (DJ PLSCH Remix)
+08. Fabio XB Feat. Micky Vi - Make This Your Day (Original Vocal Mix)
+09. Frank Lamboy - No Fear (extended mix)
+10. Gareth Emery feat. Christina Novelli - Concrete Angel (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0554A4AC41FE0D1E5A9F2D3F2B7868C94BD43EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356845   (976863) от 01.02.2020
+
+VA - The Official UK Top 40 Singles Chart 31.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Before You Go
+02. The Weeknd - Blinding Lights
+03. Roddy Ricch - The Box
+04. Eminem - Godzilla(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580529C2F4FE64B5788F73AC08F94A2124C215F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356620   (976774) от 01.02.2020
+
+VA - Consolidated DnB Party (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Duoscience - Wonderland
+002. Boombassbrothers - Pompadour
+003. Digital - Abducted
+004. Tubba T - The Light Of The Day (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 09:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA15315FDB150F1C37305CCF3D38894CAA82103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356773   (976766) от 01.02.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 31.01.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix) 2:56
+02. Billie Eilish - Everything I Wanted 4:05
+03. Rompasso - Paradise 2:51
+04. The Weeknd - Blinding Lights 3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B09B65EB5F8D32F5A143D98AC3725EC869438B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356886   (976759) от 01.02.2020
 
 VA - Лучшие Trance треки Ver.13 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -616,183 +796,6 @@ VA - Белая вьюга (2015) [MP3|256 кб/с] <Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D83A01FF671A5A6CFD823B826A5A12BF4CC129F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357011   (975614) от 02.02.2020
-
-VA - German Top 100 Single Charts 31.01.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juju x Loredana - Kein Wort (feat. Miksu & Macloud)
-02. The Weeknd - Blinding Lights
-03. Gzuz - Donuts
-04. Samra & Elif - Zu Ende(   Читать дальше...   )Жанр: PopПродолжительность: 05:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA949361155F6C12B61E341A959CDAA862632BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974251   (975565) от 12.01.2016
-
-VA - Акварели (Super DISCOTEKA 70s|80s) (2016) [MP3|320 кб/с] <Disco, Pop, Dance, Ballad>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Boney M. - Rasputin (7:32)
-002. Sabrina - Boys (Sommertime Love) (3:52)
-003. Toni Esposito - Kalimba De Luna (4:59)
-004. Pupo - Burattino Telecomandato (3:01)(   Читать дальше...   )Жанр: Pop, Disco, Dance, BalladПродолжительность: 11:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E131BEE5E130D59927A883343615D63A7DCA90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357026   (975544) от 02.02.2020
-
-VA - Record Super Chart 623 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carla Morrison - Disfruto 3:57
-02. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
-03. SAINt JHN - Roses (Imanbek Remix) 3:58
-04. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41BBF16BB12735BC37141B34D6F96D36F5C9248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357119   (975374) от 02.02.2020
-
-VA - 100 Greatest Modern Pop Songs (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975374.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Justin Bieber - Sorry
-002. The Chainsmokers - Closer
-003. Taylor Swift - Shake It Off
-004. The Weeknd - Can't Feel My Face(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59B48754AB73CFC6E3D43955EFF0EFF5117509C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357133   (975288) от 02.02.2020
-
-Schiller - Hit Collection (Presents Elgujakviso) (2019) [MP3|320 Kbps] <Electronic, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ruhe (Fernseh-Fassung)
-02 Ruhe (Langspiel-Fassung)
-03 Distance (Feat. Kim Sanders)
-04 Dream Of You (Feat. Heppner)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 07:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C06AE75101665921E443AC2648E9406172EA3CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357264   (975178) от 02.02.2020
-
-Александр Галич - Тематический сборник (2020) 5 CD, Remaster SMRP, De-Noised[MP3|320 Kbps] <Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Шуточные и Сатирические песни
-------------------------------------------
-01-У жены моей спросите, у Даши (1970) (03:33)
-02-Спи, Семён, спи (1970) (02:10)(   Читать дальше...   )Жанр: Авторская песня, Песни под гитару, СтихиПродолжительность: 01:10:20
-01-Ударение, ударение (Философский этюд) (1968) (00:26)
-02-Прилетает по ночам ворон (1969) (00:42)
-03-Я не сумел понять Тебя в тот раз (Песня о Тбилиси) (1970) (04:24)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C74DB093A8B863A3347E48B59A1CBDFC1B19713
 ```
 
 https://mybot314.ru/tekegram_catalog/

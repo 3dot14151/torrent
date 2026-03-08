@@ -1,3 +1,61 @@
+###  Публикация: 1126943   (741192) от 20.04.2017
+
+VA - Chilling Poolside (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sombra Modos - Shared Happiness  6:05
+02.  Sombra Modos - Botavara  5:34
+03.  Lamar Ensemble - Inspirational Shortcut  5:47
+04.  Lamar Ensemble - A Personal Perspective  6:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACA0960F826E6431370B19F7B427678D23A7435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126998   (741184) от 20.04.2017
+
+Nuta Cookier - Space Age (2017) [MP3|320 Kbps] <Ambient, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Space Temple (9:09)
+ 02 – Ocean Travelling (8:34)
+ 03 – Saturn Breathe (7:47)
+ 04 – Space Age (6:00)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489274B60C508EE7F43B1AC57440ECE6C9414AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126698   (741182) от 20.04.2017
 
 VA - Beach Party Sunset (2017) [MP3|320 Kbps] <Electro House>
@@ -687,64 +745,6 @@ VA - Female Vocal Trance (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D20DD8683C43F9332DA96EA64F4B88F7C9245CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127186   (740908) от 20.04.2017
-
-VA - Training Hits 2017 Workout Music (2017) [MP3|320 Kbps] <House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Bambadang (Radio Edit) [03:13]
-02. Flip Capella - Hava Nagila (Radio Mix) [03:14]
-03. Teknova - E (Radio Edit) [03:24]
-04. Noelia - A Volar (Radio Edit) [03:43](   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE53F4D0275069B312295E1073FC85958A2B9922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021414   (740894) от 29.05.2016
-
-VA - Lounge Deluxe, Vol 4 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Diventa Project - Impossible Dream - Ibiza Chillout Mix [04:31]
-02. Jean Honeymoon - Bang Bang - Pianochocolate Mix [04:26]
-03. Roberto Sol - Desire - Original Mix [04:30]
-04. Ganga - Carry You Home - Original Mix [04:45](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D90E04ABFFF2683699640E72E15C6D9AB8C38C
 ```
 
 https://mybot314.ru/tekegram_catalog/

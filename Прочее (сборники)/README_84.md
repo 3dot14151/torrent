@@ -1,3 +1,119 @@
+###  Публикация: 1038368   (606834) от 28.07.2016
+
+VA - Hot Dancing On The Beach (2016) [MP3|320 Kbps] <Pop, Club, House, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Feldt vs. Lucas & Steve ft. Wulf - Summer On You
+02. Lost Frequencies ft. Sandro Cavazza - Beautiful Life
+03. Vasiliy Francesco x WildMilk x Iggy Azalea - Team (John Rocks Mash Up)
+04. W&W - How Many(   Читать дальше...   )Жанр: Pop, Club, House, ElectronicПродолжительность: 06:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7401B4FA2DB60AE8D785D7AE48D8FDC4F83174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038572   (606718) от 28.07.2016
+
+VA - Lemon Dance Hit (2016) [MP3|320 Kbps] <Dance, Pop, House, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606718.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Саlvin Наrris & Rihаnnа - Тhis Is Whаt Yоu Cаmе Fоr
+002. Zara Larsson - Lush Life (Denis First Radio Edit)
+003. Will I Аm - Bоуs & Girls (Nejtrino & Baur Remix)
+004. Twenty One Pilots - Stressed Out (No Hopes, Misha Klein Remix)(   Читать дальше...   )Жанр: Dance, Pop, House, RnBПродолжительность: 08:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB128979E4D0B735B77EDCFF7993253CA884F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546519   (606103) от 24.04.2022
+
+VA - The Official UK Top 100 Singles Chart 22.04.2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606103.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Harry Styles - As It Was (2:47)
+002. Jack Harlow - First Class (2:53)
+003. Aitch - Baby (2:57)
+004. Dave - Starlight (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C6E87AA5D3856F876E9CCDD21E667650C8601E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038422   (606065) от 28.07.2016
+
+VA - Вечный хит (2016) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leonard Cohen - Waiting for the miracle
+02. Houston - Runaway
+03. Tasmin Archer - Sleeping Satelite
+04. IamX - Your Joy Is My Low (You Are X Remix  By Thomas Sari)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0912EDAD217149E6B942EFEADA7B1D953B3B2498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546561   (605929) от 24.04.2022
 
 VA - Music News vol. 183 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -632,122 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79D7BE4DC4E43A0E47B3D82AACB34C4AEEA8488F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149233   (602535) от 09.07.2017
-
-VA - Airbeat One (2017) [MP3|320 Kbps] <Club, Future Bass, Indie Dance, и другие>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airbeat Inc. - Won't Come Down (Airbeat One Anthem 2017) (Feat. Pearl Andersson) 03:27
-02. Neelix - 1000 Sterne (Extended Mix) 06:41
-03. Galantis - Rich Boy (Quintino Remix) 03:37
-04. Alle Farben - Far Green (Feat. Lahos) 06:57(   Читать дальше...   )Жанр: Club, Future Bass, Indie Dance, и другиеПродолжительность: 08:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064EDDBB5C24563D2034A2AE4024E3CDCA3DB8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149223   (602512) от 09.07.2017
-
-VA - The 90’s (2017) [MP3|320 Kbps] <Pop, Rock, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Candlebox – Far Behind.mp3
-02. Mase – Feel So Good.mp3
-03. Barenaked Ladies – Alcohol.mp3
-04. Faith No More – Easy.mp3(   Читать дальше...   )Жанр: Pop, Rock, AlternativeПродолжительность: 03:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0C91A3F72269843B8B7D92497668889E3BDFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148869   (602411) от 09.07.2017
-
-VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.23 (2017) [MP3|128-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michel Telo - Ai Se Eu Te Pego
-002. Taio Cruz feat FloRida - Hangover
-003. Ёлка - Около тебя
-004. Serge Devant and Coyle Girelli - On your Own(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE9811BE1ED72B6EDD5B7E4258D2F40616488AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298099   (602171) от 26.04.2019
-
-VA - Bassline Megamix: Spring Party (2019) [MP3|320 Kbps] <Drum And Bass, Dubstep, Bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602171.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anile - Earth & Mars
-002. Fishy - Suspense (Original Mix)
-003. Hoover1 - Hoover1A
-004. Dj Tiny M - Sanity Killz Dat (Original Mix)(   Читать дальше...   )Жанр: Drum And Bass, Dubstep, BassПродолжительность: Drum And Bass, Dubstep, Bass
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0441F44A51BD824376383D40B96B6F5069D95FB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

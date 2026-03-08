@@ -1,54 +1,30 @@
-###  Публикация: 1577418   (348065) от 22.09.2022
+###  Публикация: 256921   (348177) от 11.11.2010
 
-Лёша Закон (Алексей Глухов) - Душевные Песни (2015) Remastered, 2022, Zymotic Productions [MP3|320 Kbps] <Chanson, Acoustic>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Я вернулся [00:02:08]
-02-Самая-самая [00:02:02]
-03-Надя [00:02:16]
-04-Мама говорила [00:01:30](   Читать дальше...   )Жанр: Chanson, AcousticПродолжительность: 00:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552819CC671221DC53D1C487A2732BD2D62CD52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578208   (348064) от 22.09.2022
-
-Stratovarius - Survive (2022) [MP3|262-274 kbps VBR] <Power Metal>
+Philip Oakey & Giorgio Moroder - Remastered (2003 (1985)) [FLAC|Lossless]<Pop, Synthpop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348064.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_348177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01-Survive [00:04:39]
-02-Demand [00:04:03]
-03-Broken [00:04:57]
-04-Firefly [00:03:38](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:05
+01. Why Must The Show Go On
+02. In Transit
+03. Good-Bye Bad Times
+04. Brand New Love (Take a Chance)
+05. Valerie
+06. Now
+07. Together In Electric Dreams
+08. Be My Lover Now
+09. Shake It UpЖанр: Pop, SynthpopПродолжительность: 01:07:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DC49203AD21252E2A0C3EDEED7E58EF56791242
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,106 +32,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578381   (348063) от 22.09.2022
+###  Публикация: 1578265   (348168) от 22.09.2022
 
-Эрнст Любич. Парад любви / The Love Parade (1929) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348063.jpg" />
-</div>
-
-
-###  Подробнее
-
-В небольшом европейском королевстве Сильвания, все граждане, начиная от дворников и заканчивая кабинетом министров, переживают, что молодая королева Луиза не замужем. Граф Рене — военный атташе королевы был с позором выслан из Франции за многочисленные любовные романы в Париже с женами высокопоставленных чиновников, возвращается в Сильванию, чтобы отчитаться перед (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: мюзикл, мелодрама, комедияРежиссер: Эрнст ЛюбичАктеры: Морис Шевалье, Жанетт МакДональд, Лиллиэн Рот, Лэйн Лупино, Юджин Паллет, Е.Х. Кэлверт, Эдгар Нортон, Лайонел Бельмор, Вирджиния Брюс, Джун Бапп, Розалинд ЧарльзПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF9C4A08CCB06146E9A86CB65C303CC85263A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578344   (348062) от 22.09.2022
-
-Наталья Александрова | Артефакт-детектив. Золотая булавка Юлия Цезаря (2022) [MP3, Андрей Леонов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348062.jpg" />
-</div>
-
-
-###  Подробнее
-
-«И ты, Брут?» Одно из главных предательств в мировой истории имеет прямое отношение к этому сюжету, который начинается задолго до возвышения Цезаря, а заканчивается – и заканчивается ли? – в наши дни в обычной черногорской деревушке, куда предпочитают ездить не самые богатые российские туристы. Золотая фибула не просто скрепляла полы плаща – она укрепляла могущество (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF08986A2FDE067D748F3E3B9028E8CB6093ABD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578295   (348061) от 22.09.2022
-
-Часы отчаяния / The Desperate Hours (1955) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основан на одноимённых романе и пьесе Джозефа Хейса. Трое преступников, братья Гленн и Хэл Гриффины и Сэм Кобиш, бегут из тюрьмы. Гленн должен дождаться свою подружку, которая привезёт им деньги. Они захватывают первый попавшийся дом на окраине Индианаполиса, где проживает семья Сэма Хилларда. Тем временем, сбежавших преступников разыскивают... Лента была удостоена (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: нуар, драма, криминал, триллерРежиссер: Уильям УайлерАктеры: Хамфри Богарт, Фредрик Марч, Артур Кеннеди, Марта Скотт, Дьюи Мартин, Гиг Янг, Мэри Мерфи, Ричард Айер, Роберт Миддлтон, Алан РидПеревод: профессиональный многоголосый (Film Prestige)Субтитры: русские (Film Prestige), английские (Amazon SDH)Продолжительность: 01:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEDE8D80DC06B6C535FBA530D6C6A797876E7445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578304   (348060) от 22.09.2022
-
-Stratovarius - Survive (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+Anthea - Illusion (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348060.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Survive (04:39)
-02. Demand (04:03)
-03. Broken (04:57)
-04. Firefly (03:38)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:58:04
+01 - Reach (04:57)
+02 - Eclipse (03:52)
+03 - Moirai (04:31)
+04 - Illusion (04:10)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:42:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9396FC1F9A3A6685B63863B0205A9E02C0EFD867
+magnet:?xt=urn:btih:4475E0482469D54AA380D2FCE1A2D2EEEF53A170
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,111 +61,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578300   (348059) от 22.09.2022
+###  Публикация: 1578176   (348167) от 22.09.2022
 
-Часы отчаяния / The Desperate Hours (1955) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основан на одноимённых романе и пьесе Джозефа Хейса. Трое преступников, братья Гленн и Хэл Гриффины и Сэм Кобиш, бегут из тюрьмы. Гленн должен дождаться свою подружку, которая привезёт им деньги. Они захватывают первый попавшийся дом на окраине Индианаполиса, где проживает семья Сэма Хилларда. Тем временем, сбежавших преступников разыскивают... Лента была удостоена (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: нуар, драма, криминал, триллерРежиссер: Уильям УайлерАктеры: Хамфри Богарт, Фредрик Марч, Артур Кеннеди, Марта Скотт, Дьюи Мартин, Гиг Янг, Мэри Мерфи, Ричард Айер, Роберт Миддлтон, Алан РидПеревод: профессиональный многоголосый (Film Prestige)Субтитры: русские (Film Prestige), английские (Amazon SDH)Продолжительность: 01:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7B5E0F09D7EF5B243DBF25BBE37DEBDE6552C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578332   (348058) от 22.09.2022
-
-Владимир Дудинцев | Белые одежды. Книга 2 (2022) [MP3, Петр Каледин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиостудия «Ардис» предлагает вашему вниманию вторую часть романа Владимира Дудинцева «Белые одежды», посвящённого периоду «лысенковщины» в советской биологической науке, когда генетика была объявлена идейно-враждебным течением, а «официальной наукой», одобренной партийным руководством, стали научные воззрения академика-агронома Трофима Лысенко.
-
-Главный герой молодой (   Читать дальше...   )Жанр: советская литератураПродолжительность: 08:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B8270656654EE5F559AF00251321D4EA6AA3F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577511   (348057) от 22.09.2022
-
-TagTräumer (TagTraumer) - Zuviel ist nicht genug (2001) Remaster, 2018, West 7 [FLAC|Lossless|WEB-DL|tracks] <Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tausend Tage [00:03:46]
-02. Ich vermisse dich [00:03:46]
-03. Träumen und Hoffen [00:03:40]
-04. Für immer [00:03:22](   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3176370123033E80338BD31D00354C21AEAF65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578221   (348056) от 22.09.2022
-
-Alice in Chains - Dirt (1992) Remaster, 2022, Columbia [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge, Hard Rock>
+One Mind Ministry - Gates of Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348056.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Them Bones (2022 Remaster) [00:02:29]
-02. Dam That River (2022 Remaster) [00:03:09]
-03. Rain When I Die (2022 Remaster) [00:06:01]
-04. Down In A Hole (2022 Remaster) [00:05:38](   Читать дальше...   )Жанр: Alternative Rock, Grunge, Hard RockПродолжительность: 00:57:33
+01. No Funeral [00:03:36]
+02. Her Shadows [00:03:32]
+03. Beholder [00:04:21]
+04. Revelation [00:04:52](   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:32:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7427A487A9DC59F7410D683015BC1AFB2053B9B4
+magnet:?xt=urn:btih:25CC6775FBFFF9E9D2722042896027864B7E552D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -275,28 +90,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578217   (348054) от 22.09.2022
+###  Публикация: 1578371   (348166) от 22.09.2022
 
-трансильвания для андрея - Лопата (2022) [MP3|320 Kbps] <Rap, Hip Hop, Stoned Punk>
+Mutautu - 2 Albums (2019-2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Bluesy Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348054.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Лопата [00:03:08]
-02 - Мираж [00:02:17]
-03 - Накуренный воробей [00:03:30]
-04 - Гимн юного поклонника Сатаны [00:03:24](   Читать дальше...   )Жанр: Rap, Hip Hop, Stoned PunkПродолжительность: 00:21:24
+01. Ruins [00:04:20]
+02. Lost Shoes Blues [00:06:23]
+03. Hear Them Coming [00:04:16]
+04. Graveyard Of Giants [00:05:09](   Читать дальше...   )Жанр: Heavy Psych, Stoner, Bluesy RockПродолжительность: 2 CD, 01:12:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F50FB5C050127F9EFC8BEF159EBB3F597B492BB
+magnet:?xt=urn:btih:3C6A5154E000D3E139DF36E485AFE8E5F7DE9B3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -304,25 +119,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578386   (348052) от 22.09.2022
+###  Публикация: 1578306   (348165) от 22.09.2022
 
-4K YouTube to MP3 4.6.5.5010 RePack (& Portable) by elchupacabra [Multi/Ru]
+Stratovarius - Fright Night (1989) Remastered, 1994, Victor [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348052.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url"Язык интерфейса: Русский, Английский и другие
+01. Future Shock 	4:33
+02. False Messiah	5:16
+03. Black Night    	3:40
+04. Witch-Hunt      	3:19(   Читать дальше...   )Жанр: Rock, Speed Metal, Heavy MetalПродолжительность: 00:40:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D7A3C2173079080844FCD564441AD81BB963CFB
+magnet:?xt=urn:btih:E7308C6E5CE58FACAA4FFDB82DBA892EF0F4FE3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -330,28 +148,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 724879   (348049) от 21.11.2013
+###  Публикация: 1578365   (348164) от 22.09.2022
 
-А. Полонская | У источника жизни. Настольная книга по половому воспитанию (Раритетное издание) (1909) [PDF]
+Stratovarius - Dreamspace (1994) Remastered, 1994, T&T [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Metal>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348049.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348164.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настольная книга по половому воспитанию.
-Результат конкурса, устроенного союзом имени Дюрера.
-Перевод с немецкого А. Полонской.
-С предисловием проф. А.П. Нечаева и вступительной статьей женщины-врача Л.В. Писаревой.Формат: PDF
+01. Chasing Shadows	4:38
+02. 4th Reich	5:49
+03. Eyes Of The World	5:57
+04. Hold On To Your Dream	3:34(   Читать дальше...   )Жанр: Rock, Speed Metal, Heavy MetalПродолжительность: 01:08:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36D9E6DE1736BAC700CF1A6DFFB175013BFBAE6C
+magnet:?xt=urn:btih:FC335291AAE17EEF1CF2C0027A593FD7C1521CB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,27 +177,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 409725   (348015) от 12.11.2011
+###  Публикация: 1578178   (348163) от 22.09.2022
 
-Порки / Porky's (1982) DVDRip
+Moritz - About Time Too (2017) [FLAC|Lossless|image + .cue] <AOR, Melodic Rock>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348015.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Невозможно даже представить какие нелепые идеи могут прийти в голову американским подросткам в период полового созревания. Они только что открыли для себя мир секса и теперь пытаются применить свои скудные познания на практике.
-
-Мальчики и девочки выплескивают свою сексуальную энергию, буквально на все что их окружает. Их «безобидные» шалости приводят в ужас старшее (   Читать дальше...   )Жанр: КомедияРежиссер: Боб КларкАктеры: Ким Кэтролл, Дэн Монахан, Марк Херриер, Уайэт Найт, Роджер Уилсон, Сирил О’Райлли, Тони Гэниос, Кэки Хантер, Нэнси Парсонс, Скотт КоломбиПеревод: Одноголосый закадровыйПродолжительность: 01:38:27
+01. About Time Too
+02. One More Beautiful Day
+03. To The Moon and Back
+04. Chance Of A Lifetime(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:52:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B1C32B81EE107B6368A9935DF52F5751DE60D63
+magnet:?xt=urn:btih:60A955551BAAC28E615C258E2AAF0B4B519ABA06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -387,26 +206,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 409587   (348014) от 12.11.2011
+###  Публикация: 1578287   (348162) от 22.09.2022
 
-Директмедиа | Энциклопедия-раскраска: рисуй с великими живописцами [2006] [ISO]
+Stratovarius - Enigma: Intermission II (2018) [OGG Vorbis|484 Kbps] <Rock, Power Metal, Ballad>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Мультимедийные материалы для детей
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348014.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кто из нас в детстве, разглядывая полотна известных живописцев, не грезил научиться рисовать как великий мастер? Научиться держать в руках кисть и испытать радость от создания собственного шедевра?
-"Энциклопедия-раскраска" - первый шаг к знакомству с миром искусства и творчества. На диске представлено около 80 раскрасок, созданных на базе известных полотен (   Читать дальше...   )Жанр: Интерактивная энциклопедияФормат: ISO
+01. Enigma
+02. Hunter
+03. Hollowed
+04. Burn Me Down(   Читать дальше...   )Жанр: Rock, Power Metal, BalladПродолжительность: 01:15:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6CC21F4B22D860C23B7501D0E322F943F3EC310
+magnet:?xt=urn:btih:E4055A801266A687250634CF97BC271C2C211DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,28 +235,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329933   (348013) от 07.10.2019
+###  Публикация: 1578303   (348161) от 22.09.2022
 
-Tubby Hayes Quartet - Grits, Beans and Greens: The Lost Fontana Sessions (1969) 2CD, 2019, Fontana [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+Ellis Marsalis - Whistle Stop (1994) Columbia [WavPack|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348013.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Where Am I Going? (take 1) [8:30]
-02. Where Am I Going? (take 2) [7:40]
-03. Where Am I Going? (take 3) [8:06](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:42:48
+01. Whistle Stop [4:58]
+02. Dee Wee [6:33]
+03. A Moment Alone [4:18]
+04. Magnolia Triangle [6:07](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:12:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A54029B17FF4B74D4A281709A62FA77F53BEF26
+magnet:?xt=urn:btih:5D51D56FD7674E99B40B63CFC863BD4009931A4C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,28 +264,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329785   (348012) от 07.10.2019
+###  Публикация: 1578201   (348160) от 22.09.2022
 
-Torche - Admission (2019) [FLAC|Lossless|tracks + .cue] <Sludge Metal>
+Distant Mantra - Solitude Republic (2022) [MP3|320 Kbps] <Rock, Prog-Related>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348012.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. From Here [01:38]
-02. Submission [02:59]
-03. Slide [02:52]
-04. What Was [01:29](   Читать дальше...   )Жанр: Sludge MetalПродолжительность: 00:36:04
+1. Maniac (05:51)
+2. A Girl (04:41)
+3. So Jealous (05:16)
+4. Emptiness (05:09)(   Читать дальше...   )Жанр: Rock, Prog-RelatedПродолжительность: 00:46:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F24EBBB67612460E348AA9ED09177BAAC5AB195
+magnet:?xt=urn:btih:83252CC79D9ADEC71DCFF6DB72BADC1551DB207B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,28 +293,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329783   (348011) от 07.10.2019
+###  Публикация: 1578166   (348159) от 22.09.2022
 
-Exhumed - Horror (2019) [FLAC|Lossless|tracks + .cue] <Death Metal, Grindcore>
+Prayer - Silent Soldiers (2018) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348011.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unsound (01:54)
-02. Ravenous Cadavers (01:49)
-03. Scream out in Fright (01:47)
-04. The Red Death (02:55)(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:26:11
+01. Silent Treatment
+02. Rock And A Hard Place
+03. Fires Of The Heart
+04. Feel Like A Prisoner(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:57:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DE7A508DACAB25713DD04A28EFD879D5C6D617A
+magnet:?xt=urn:btih:BA3BE97C53D8203A81193627A702F48399EFA8A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,28 +322,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329863   (348010) от 07.10.2019
+###  Публикация: 1578216   (348158) от 22.09.2022
 
-Michiko - No Place Like Home (2010) Lemongrassmusic [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo, Deep House>
+water, please - Welcome to Waterline (2022) [MP3|320 Kbps] <post rock, indie rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348010.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Morning Delight (01:25)
- 02. Pieces Of Your Heart (03:38)
- 03. No Place Like Home (04:03)
- 04. Everything About You (04:03)(   Читать дальше...   )Жанр: Trip Hop, Downtempo, Deep HouseПродолжительность: 00:53:24
+01 - Sandking [00:06:01]
+02 - Welcome to the City [00:05:05]
+03 - Nostromo [00:06:37]
+04 - Poseidon [00:04:18](   Читать дальше...   )Жанр: post rock, indie rockПродолжительность: 00:46:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4394F7F559946D070891272AC3BF97DCEA9CE0B0
+magnet:?xt=urn:btih:665A8B3BEFE6453BE7A236FBEDFE96C9657F5CFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,57 +351,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329949   (348009) от 07.10.2019
+###  Публикация: 1578223   (348157) от 22.09.2022
 
-Portico Quartet - Memory Streams (2019) [MP3|320 Kbps] <Ambient, Crossover Jazz>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348009.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. With, Beside, Against [04:11]
-2. Signals in the Dusk [05:31]
-3. Gradient [04:34]
-4. Ways of Seeing [06:10](   Читать дальше...   )Жанр: Ambient, Crossover JazzПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97751ABB4562A6715651A6ECC48D7A3E52DC53C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329851   (348008) от 07.10.2019
-
-Surf Curse - Heaven Surrounds You (2019) Scene [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
+Supergrass - Supergrass (1999) 2CD, Remaster, 2022, Echo [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Britpop>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348008.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maps to the Stars (02:38)
-02. Labyrinth (03:08)
-03. Disco (02:32)
-04. River's Edge (03:34)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:57
+01. Moving (John Leckie 2022 Remix) [00:05:23]
+02. Beautiful People (2022 Remix) [00:03:54]
+03. Pumping On Your Stereo (John Leckie & Mick Quinn 2022 Remix) [00:03:46]
+04. Born Again (2022 Remix) [00:03:34](   Читать дальше...   )Жанр: Alternative Rock, BritpopПродолжительность: 01:57:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BBA354F23D5D7CB7047FC41187CE38BD5846F61
+magnet:?xt=urn:btih:F927E3E3BC05DF688042DB105BB82F3699B1B28E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,28 +380,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329794   (348007) от 07.10.2019
+###  Публикация: 1578369   (348156) от 22.09.2022
 
-Nad Sylvan - The Regal Bastard (2019) [FLAC|Lossless|tracks + .cue] <Prog Rock, Art Rock>
+Deadheaven - 2 Albums (2014-2022) [MP3|320 Kbps] <Modern Metal, Cyber Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348007.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Am the Sea (07:48)
-02. Oahu (04:20)
-03. Whoa (Always Been Without You) (07:22)
-04. Meet Your Maker (06:35)(   Читать дальше...   )Жанр: Prog Rock, Art RockПродолжительность: 00:56:01
+01. Интро [00:01:02]
+02. Продай свою душу [00:04:08]
+03. Мишень [00:03:44]
+04. Система - смерть [00:05:12](   Читать дальше...   )Жанр: Modern Metal, Cyber MetalПродолжительность: 2 CD, 01:59:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B4CADFB1E3CE247F861F69DA0EA78573F0208C9
+magnet:?xt=urn:btih:79DF3699372EB1842249FF08231C79846AC7F4E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,28 +409,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330010   (348006) от 07.10.2019
+###  Публикация: 1578377   (348155) от 22.09.2022
 
-F. McDonald, C. Rae, B. De Souza - Wings (1976) LP [MP3|320 Kbps] <Funk, Instrumental, Disco>
+Маленький патриот из Падуи / Il piccolo patriota padovano (1915) WEBRip [H.264]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348006.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Only 16's (2:45)
-02. Keep On The Right Side (2:28)
-03. Swamp Dog (3:06)
-04. Speed Freak (2:44)(   Читать дальше...   )Жанр: Funk, Instrumental, DiscoПродолжительность: 00:44:28
+Драматическая история о маленьком итальянце, который волею судеб попадает в бродячий цирк, но сбегает оттуда. И всеми силами пытается вернуться на родину. А родину свою, солнечную Италию, он помнит и преданно любит. И готов отстаивать ее честь на чужбине.Производство: Италия, Film Artistica Gloria (Torino)Жанр: драма, короткометражный, немое киноРежиссер: Леопольдо КарлуччиАктеры: Ermanno RoveriПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:14:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00F1651772EEE721CE95230AF0A6D2A8D6D3CF74
+magnet:?xt=urn:btih:3F0E472649F03AAE56A08B60A86CA900C242291A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,80 +435,304 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330009   (348005) от 07.10.2019
+###  Публикация: 1578286   (348154) от 22.09.2022
 
-Виталий Бугров (сост.) | Только один старт [Сборник] (1971) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошлое изменить нельзя. А можно ли изменить будущее? За известную плату диктатор Лазурии получил возможность отправить в будущее разведчика на машине времени, чтобы тот сообщил, как будут обстоять дела в стране в ближайшее время.Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B32D3005C214306FCD5D2432365C7753E138FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329987   (348004) от 07.10.2019
-
-Коллектив авторов | В мареве атолла [сборник] (1973) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для освоения иных планет земляне разрабатывают полностью автоматизированный комплекс. Но прежде, чем отправиться к звёздам комплекс должен пройти испытания на Земле.Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9280BAE26DBB572460B74521F55BF7A57107F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329777   (348003) от 07.10.2019
-
-Magic Pie - Fragments of the 5th Element (2019) [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphonic Rock>
+Anthea - Tales Untold (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348003.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Man Who Had It All (05:25)
-02. P & C (05:34)
-03. Table for Two (04:07)
-04. Touched by an Angel (08:04)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:46:09
+01 - Tales Untold (04:09)
+02 - Ascendence (03:21)
+03 - Song for Winter (04:03)
+04 - The Deceiver (05:11)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF7AD06766BCCC6B15129DBDAFBC75C1E73D2D91
+magnet:?xt=urn:btih:41DD9D7F978DAACAC9CA382D30572C9B01C69FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 724428   (348150) от 21.11.2013
+
+Бестолковые / Clueless (1995) BDRip [H.264/720p-LQ]  [Hi10P]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Папа-адвокат получает 500 долларов в час за то, что ругается с клиентами. Его дочь выбирает одежду для школы по компьютеру - богата. Ее подруга Дионн устраивает на голове сооружения, выполняющие функции головного убора при полном отсутствии головного мозга. У всех школьников пэйджеры и мобильные телефоны.
+Представляете, каково приходится их бедным, низкооплачиваемым (   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Эми ХекерлингАктеры: Алисия Сильверстоун, Стейси Дэш, Бриттани Мерфи, Пол Радд, Дональд Фэйсон, Элиза Донован, Брекин Мейер, Джереми Систо, Дэн Хедайя, Уоллес Шоун и др.Перевод: Профессиональный (многоголосый закадровый), Профессиональный (двухголосый закадровый), Авторский (одноголосый закадровый)Язык субтитров: АнглийскийФормат: MKVПродолжительность: 01:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC60FF94D690E4C65AD556F70BD0CD4675DC71EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 409712   (348129) от 12.11.2011
+
+Александр Бушков | Бешеная (Книга 1) (2000) [MP3, Владимир Сушков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающая история, разворачивающаяся на страницах романа "Бешеная", начинается с череды зверских убийств, отмеченных почерком маньяка. Очаровательная девушка, сотрудница уголовного розыска, идя по следам убийцы, проникает в самое логово секты сатанистов.
+ Роман «Бешеная» – первая книга из цикла произведений о капитане Дарье Шевчук, старшем оперуполномоченном (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишь
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E09FCD52FE05B2CF9EC6434A295E5EF8D8B3658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 409589   (348126) от 12.11.2011
+
+Карлос Руис Сафон | Кладбище Забытых Книг (Книга 1). Тень ветра [2011] [MP3, Николай Бенцлер]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие романа начинается в 1945 году в Барселоне, где герой, будучи еще десятилетним мальчиком, знакомится с некой таинственной книгой, которая совершенно меняет его жизнь. На протяжении двадцати лет герой пытается разгадать тайны, связанные с этой книгой, встречая на своем пути странных незнакомцев, ослепительно красивых женщин, изучая заброшенные владения проклятого (   Читать дальше...   )Жанр: МистикаИздательство: Нигде не купишьПродолжительность: 18:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458E4E7B9683289B2D8CE7D785AB0B460AF87616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 409812   (348122) от 12.11.2011
+
+Андрей Вознесенский | Ров [1987] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Андреевич Вознесенский (1933–2010) – русский поэт, прозаик, художник, архитектор. Один из самых известных поэтов-шестидесятников.
+Вы услышите необычное чтение поэтом своих стихов, хотя по природе своей оно всегда необычно.Жанр: ПоэмаПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3474FE1F8CA4C9290CBF9427D3EDA529EEABE6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 409434   (348115) от 12.11.2011
+
+Владислав Крапивин | Гуси-гуси, га-га-га... (2011) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корнелий Глас, благополучный обыватель, в одночасье оказывается на самом дне жизни. В буквальном смысле. На пороге смерти он знакомится с детьми без будущего, и это знакомство переворачивает все его существование... Возможен ли взлет со дна к небу?..Жанр: ФантастикаПродолжительность: 08:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAADCDBD15D3C75F845FBB89DE1A6F26BC5A81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467679   (348113) от 23.11.2012
+
+Beneath The Massacre - 3 альбома (2007/2008/2012) [FLAC/APE|Lossless]<Brutal / Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_348113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beneath The Massacre - технодэт/брутал-команда из Монреаля, Квебек, Канада, собравшаяся в 2004 году. Их музыка частично инспирирована хардкором и разбавлена странными брейкдаунами и "грувовыми" риффами.01. Symptoms (3:06)
+02. Hunted (2:28)
+03. Left Hand (2:42)
+04. Hopes (3:33)
+05. It (2:57)
+06. Light (2:51)
+07. Incongruous (1:04)
+08. Pedestal (3:32)
+09. Grief (2:15)
+10. Damages (3:49)(   Читать дальше...   )Жанр: Brutal / Technical Death MetalПродолжительность: 00:31:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576736   (348112) от 23.11.2012
+
+Ben Vida - Esstends-Esstends-Esstends (2012) [MP3|~245 кб/с (V0)]<Abstract, Musique Concrète, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348112.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Qweek Plus Enner (Outro Too)
+2. Zizzlerz
+3. Ssseeeeiiiiii
+4. Pin Ans Sweep
+5. EnnerForrance (Esstend III)Жанр: Abstract, Musique Concrète, ExperimentalПродолжительность: 00:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EFA32CC234DC18D05A8A7B440938DDEF0F89B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579826   (348110) от 23.11.2012
+
+Журнал | Shape №12 [декабрь 2012] [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348110.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Shape" - журнал для женщин, которые желают быть собой, но при этом стремятся к совершенствованию. На страницах журнала представлены материалы о том, как стать модной, выглядеть привлекательной, правильно заботиться о своем здоровье, изменить и сохранить свою фигуру, справляться с жизненными проблемами, где отдыхать, что читать, как организовать свой досуг и многое другое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB6ED2867FD7B7959127264E71334B01E294142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579950   (348105) от 23.11.2012
+
+Геттисбург/ Gettysburg (1993) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осень 1863 года. Армия конфедератов продвигается к северу Пенсильвании. Впереди их ожидают вражеские дивизии. Две великие армии встретятся в Геттисбурге. Три долгих дня судьба будущей неделимой нации будет висеть на волоске…Производство: СШАЖанр: Драма, Военный, ИсторияРежиссер: Рональд Ф. МаксвеллАктеры: Том Беренджер (Tom Berenger), Мартин Шин (Martin Sheen), Стивен Лэнг (Stephen Lang), Джефф Дэниелс (Jeff Daniels), Ричард Джордан (Richard Jordan), Эндрю Прайн (Andrew Prine), Купер Хукаби (Cooper Huckabee), Патрик Горман (Patrick Gorman)Перевод: Профессиональный (многоголосый)Субтитры: ОтсутствуютПродолжительность: 04:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267EB251952F2E63A233160606ACD92F638B32B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579065   (348103) от 23.11.2012
+
+Чеви Стивенс | Похищенная [2011] [TXT, FB2, RTF]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Целый год взаперти, один на один с похитителем-психопатом - и некогда самодостаточная Энни О'Салливан уже не властна над своим телом и близка к потере рассудка. Но даже в ее воспаленном мозгу не могла родиться мысль о том, что она не случайная жертва и кто-то помог маньяку сделать выбор. Выжить любой ценой... Теперь Энни не остановится даже перед убийством.Формат: TXT, fb2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F7F7970EFD3B04518A82EC0C21F82DF41B74A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

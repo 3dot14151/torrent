@@ -1,3 +1,61 @@
+###  Публикация: 1316730   (339452) от 28.10.2020
+
+Seph - Discography 19 Releases (2007-2020) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Experimental, Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulizen (06:57)
+ 02. MB4 (05:31)
+ 03. Glass (05:59)
+ 04. MB4 (BLNDR Remix) (05:32)Тип издания: CD, WebЖанр: Techno, Minimal, Experimental, Dub Techno, Ambient •Продолжительность: 09:51:39 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CE953FDE4B5875BD671C71A2892777041D57DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330350   (339102) от 11.10.2019
+
+VA - Live @ Ultra Music Festival Japan (2019) [MP3|~245 Kbps (V0)] <Trance, Techno, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash Berlin @ Mainstage, Ultra Music Festival Japan 2019-09-15:
+01. Intro
+02. Omnia & Whiteout - U
+03. Alan Walker - Faded (Dash Berlin Remix)(   Читать дальше...   )Жанр: Trance, Techno, Progressive HouseПродолжительность: 05:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76AA7417BBC868A94F157961D278A9B1D2CB708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330661   (339097) от 11.10.2019
 
 SYNTHEVER - Around The World Hits Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
@@ -684,61 +742,6 @@ VA - Best Of Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46E4C65CB37A394FF97982A8480C02E028E48037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038580   (337233) от 29.10.2020
-
-Bersarin Quartett - Discography 6 Releases (2008-2020) Denovali Records [FLAC|Lossless|tracks+.cue, tracks] <Dark Ambient, Modern Classical, IDM, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agate Or Barium (Bersarin Quartett Remix) (04:33)Жанр: Dark Ambient, Modern Classical, Ambient •Продолжительность: 04:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9528683B6F17085F67F7609EC50B0ED0E043E2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276650   (337231) от 29.10.2020
-
-Kitchen. Label - Label-Pack 28 Releases (2008-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Modern Classical, Folk, Contemporary, Acoustic>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 船出 (06:38)
- 02. ray (03:37)
- 03. SUN DANCE (04:32)
- 04. one day (03:49)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Ambient, Modern Classical, Folk, Contemporary, Neo-Classical, Acoustic •Продолжительность: 22:58:51 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535E4A3F872869F855F5FAA06CF4D0F63A41CD2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

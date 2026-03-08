@@ -1,3 +1,61 @@
+###  Публикация: 1066249   (414619) от 25.10.2016
+
+VA - Schneeweiss V (Presented by Oliver Koletzki) (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Jeremy Olander - Lunar
+02-Hvob - Tender Skin (DJ Tennis Remix)
+03-Julian Wassermann & H.B.C. - 1000 Times
+04-Benotmane & Darlyn Vlys feat. Haptic - Quarantine(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FA40B85C218EE67C049EFDA0E7619653377960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065760   (414614) от 25.10.2016
+
+VA - Kontor Top Of The Clubs - The Biggest Hits Of The Year MMXVI (2016) [MP3|320 Kbps] <Electronic, House, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414614.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD: 1
+
+ 1. Alan Walker – Faded
+ 2. Stereoact feat. Kerstin Ott – Die Immer Lacht(   Читать дальше...   )Жанр: Electronic, House, ClubПродолжительность: 03:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551C70AB8FCE6145297C70CC6C381577F5725544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 710695   (414091) от 15.10.2013
 
 VA - So Fresh Dance (2013) [FLAC|Lossless|tracks + .cue]<House, Dance>
@@ -685,64 +743,6 @@ Fossil Hunting Collective - Vacancy (2020) Ambientologist [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A412894618A1EA164B2497C5182B140ACC5B8897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066616   (411936) от 26.10.2016
-
-Lost Frequencies - Less Is More (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Or Nothing (feat. Axel Ehnstrom) (2:38)
-02. What Is Love 2016 (3:08)
-03. Beautiful Life (feat. Sandro Cavazza) (2:42)
-04. Sky Is The Limit (feat. Jake Reese) (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A92479874BE705526B7141080135C78FA746CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413059   (411925) от 02.10.2020
-
-Henrik Meierkord - Refuge (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Neoclassical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411925.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Human 09:42
-2. Henrik Meierkord, Marco Lucchi & Rocco Saviano - The Rain 06:36
-3. Jordgloben 09:23
-4. Harmonia 10:18Жанр: Ambient, Drone, NeoclassicalПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43793EB8310A46A88653B51455C4AE59A334D201
 ```
 
 https://mybot314.ru/tekegram_catalog/

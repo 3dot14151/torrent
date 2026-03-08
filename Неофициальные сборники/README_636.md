@@ -1,3 +1,213 @@
+###  Публикация: 483294   (99723) от 15.04.2012
+
+VA - Chaos Machine Vol.2 (Compiled By Urban Freaks) (2012) [MP3|320 кб/с]<Trance, Psychedelic Trance, Dark Psytrance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fryquenciezz & Seven Dark - PsykaDelika
+02. Darkologik - Distortion
+03. Kozvox - A Few Of These
+04. Urban Freaks - Freakin’ Show
+05. MetaNoize - Sponge Of The Forest
+06. Nammah Ohm & Cerebellum Withdrawal - Expect The Unexpect
+07. Micozatka - Critical Sequence
+08. Viatoxik - Reason To Dream
+09. Irrsin - Solium Kaya
+10. Mentalecho - Anonymous2012Жанр: Trance, Psychedelic Trance, Dark PsytranceПродолжительность: 01:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810F0A85457C36B5286E1D62A0177EF06CD40C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482292   (99707) от 15.04.2012
+
+VA - Return To Eternya (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.T.K. - Eternya 09:44
+ 02. Prahlad - Shantified (Smoke Sign rmx) 07:24
+ 03. Pop Art - Declaration Of A Nation 07:44
+ 04. Funk Truck - Overall (original mix) 07:39
+ 05. Ace Ventura - Genesis (Flegma & Nerso remix) 07:01
+ 06. Zyce & Nok - Wonderland (Unseen Dimensions remix) 07:17
+ 07. Unseen Dimensions - Airglow 06:42
+ 08. Gandulk & Odiseo - Time To Listen 07:39
+ 09. North Sector - Raw 06:56
+ 10. Flegma & Nerso - Sensei 07:56(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9F5D6C933181244B2ABE354C631CA09F610D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482288   (99693) от 15.04.2012
+
+VA - Points of Interest (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frost Raven - Points of Interest (Nimerix's Fullon mix) 08:20
+ 02. Hanzo - My World 06:08
+ 03. Shyisma - Slot 06:58
+ 04. Virtual Attack - Can't Stop 06:57
+ 05. Solar Spectrum - Space Travellers 07:26
+ 06. Day.Din - The Radio Star (original mix) 07:17
+ 07. Project Sketch - With A Herring 08:02
+ 08. Vice - With In (Phaxe Remix) 08:00
+ 09. DNA - Signal 5 (original mix) 07:08
+ 10. Potter And Neelix - On The Run (Fusi And Johnson remix) 08:13(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCC7948F018442598E864A8FFACEA907D13CCEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483372   (99691) от 15.04.2012
+
+VA - Зарубежные Новинки Vol.41 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bros Project feat. Rella Rox & Shayan - Leyra (Extended Version)
+02. Tony Ray feat. Gianna - Chica Loca (Iulian Florea Remix)
+03. Nicki Minaj feat. Nas, Drake & Young Jeezy - Champion
+04. Mike T feat. Rawanne - This Is The Night (Albert Kick Club Mix)
+05. Fat Joe feat. Chris Brown, Mary J Blige, Fabolous & Kirko Bangz - Another Round (Remix)
+06. Andrew Bayer feat. Alison May - Brick
+07. Joan Osborne - Broken Wings
+08. Madonna - Love Spent (Acoustic)
+09. Trina feat. Kid Cadet & Vinny Venditto - Outer Space
+10. PJ Morton feat. Lil Wayne - Lover(   Читать дальше...   )2012Жанр: PopПродолжительность: 03:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A7DD0027A7883A32A64F6F9BC3091BA813053A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482782   (99647) от 14.04.2012
+
+VA - Радио Energy - NRJ HOT30 (13.04.2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii - Levels.
+02. Example - Changed The Way You Kiss Me (Mike Candys RMX).
+03. LMFAO - Sexy And I Know It.
+04. Basto - Again and Again.
+05. Leventina - Freak It Out.
+06. David Guetta & Sia - Titanium.
+07. Rihanna & Calvin Harris - We Found Love.
+08. Maison & Dragen - Rio De Janeiro.
+09. Fonzerelli - Moonlight Party 2011.
+10. Michael Mind Project & Bobby Anthony & Rozette - Rio De Janeiro.(   Читать дальше...   )13.04.2012Жанр: Pop, DanceПродолжительность: 01:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2601A429674CE8C929C814078C1FF5F91D13E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482781   (99638) от 14.04.2012
+
+VA - Авто Дискотека DFM Зарубежная (2012) [MP3|256 kbps]<Pop | Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Selena Gomez & The Scene - Love You Like (A Love Song) (The Alias Radio Mix)
+02. Dj Antoine Feat. Tom Dice - Sunlight (Dj Antoine Vs. Mad Mark Radio Edit)
+03. Buzz Junkies Feat. Elesha - If You Love Me (Moto Blanco Club Remix)
+04. Nicole Scherzinger - Dont Hold Your Breath (Cahill Remix)
+05. Jonathan Carey & Gamma Dj & Elena Capatina - Feel The Heat (Radio Edit)
+06. Djs From Mars & Fragma - Insane (In Da Brain) (Radio Edit)
+07. Lmfao - Sexy & I Know It (Dj Ilsur Energy Party Edit)
+08. Peter Latino - Willenlos (Vincent Vega Remix)
+09. Ph Electro - Stereo Mexico (Ph Dirty Fun Mix)
+10. Ruslan Nigmatulin Feat. Syntheticsax - Equinox (Radio)(   Читать дальше...   )2012Жанр: Pop | ClubПродолжительность: 06:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3FE8D81B5096B4ABB44AB9AA8C175198CC4235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482673   (99603) от 14.04.2012
 
 VA - The Best Pop Albums of 2011 on Amazon (2011) [MP3|320 кб/с]<Pop>
@@ -683,216 +893,6 @@ VA - 90's PartyMix (2009) [MP3|256 кб/с]<eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E863C37C1FC750F479DB4784DFFA27EE0E8B5449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479152   (99133) от 09.04.2012
-
-VA - В Машину! Русский (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Размер Project - My Moscow Love
-02. T1One - Одна На Миллион
-03. Юля Волкова (Julia Volkova) - All Because Of You
-04. Макс Барских - Dance
-05. Полина Гагарина - Спектакль Окончен
-06. Тимати feat. Григорий Лепс - Реквием По Любви
-07. Потап и Настя Каменских - Если Вдруг тебя не станет
-08. Филипп Киркоров - Мне Не Жаль Тебя
-09. Каста (Влади) - Сочиняй Мечты (ft. Уля (Wow Band))
-10. Легенды Про & Centr - Город Дорог(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C90744FE29443684335751E21FBA2A4A4DE5116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479239   (99132) от 09.04.2012
-
-VA - Авто Дискотека DFM (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99132.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Катюша & Гуслимэн - Русская Весна (Instrumental Edit)
-002. Aba, Simonsen - Soul Bossa Nova (Original Mix)
-003. Dan Balan - Лишь До Утра (Dfm Special Mix)
-004. Sak Noel - Paso (The Nini Anthem) (Extended Edit)
-005. Градусы - Заметает (Timur Karabaev & Denis Agamirov Rmx)
-006. Angel X & Ural Dj's - Welcome To The Soul
-007. Джиган (Geegun) Feat. Жанна Фриске - Ты Рядом (Dj M.E.G. & N.E.R.A.K. Remix)
-008. Dr Alban Vs Haddaway - I Love The 90's (Amanii Extended - Remix Edition)
-009. Катя Баженова - Ой, Люли (А Девочки Танцуют)
-010. Caro Emerald - A Night Like This (Synthminx Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7945DD771B8FAA3F9CFE08E4E078E0CFDB2E3BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479213   (99117) от 09.04.2012
-
-VA - Только Хиты Хит FM 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Виктория Дайнеко - Always
-02 R.i.o. Feat. U-Jean - Animal (Video Edit)
-03 Shaplin & Siatria - Я Река
-04 Morandi - Serenada (radio Edit)
-05 Тина Кароль - Никогда
-06 Andrew Spencer - Hippie Dreams (Movetown Remix Edit)
-07 5Ivesta Family - Тук-Тук
-08 Patrick Stump ft. Lupe Fiasco This City
-09 Марсель - Эта Песня Для Тебя
-10 Shogun - Lotus (Id Dfm)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7F7D1057A924E11647C994EB434BD33B89D577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479991   (99100) от 09.04.2012
-
-VA - In Da Club Vol.60 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99100.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Signum - Shamisan (Shogun Remix)
- 002. Sean Tyas - Banshee
- 003. Rafael Frost - Smash (Original)
- 004. Veracocha - Carte Blanche (Alex M.O.R.P.H. Remix)
- 005. Vertruda - Night Highway (Original)
- 006. The Waves - Sakura (Luigi Lusini & Thomas Schwartz Mix)
- 007. Pulser - In My World (Activa Remix)
- 008. Orjan Nilsen - Shoutbox! (Cressida Remix)
- 009. Ruben de Ronde - Forever In Our Hearts (Danny Chen Remix)
- 010. Ray Costa - Rainy Days (Original)(   Читать дальше...   )2012Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB593E61996F2E170A1C6501DBDBB031BF40728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480026   (99094) от 09.04.2012
-
-VA - US TOP 25 Rock Song Chart (2012) [MP3|320 kbps]<Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gotye - Somebody That I Used To Know [4:04]
-02. Fun. Feat. Janelle Monae - We Are Young [4:11]
-03. Shinedown - Bully [4:01]
-04. The Black Keys - Lonely Boy [3:13]
-05. Foo Fighters - These Days [4:58]
-06. The Black Keys - Gold On The Ceiling [3:44]
-07. Chevelle - Face To The Floor [3:36]
-08. Seether - No Resolution [3:08]
-09. Grouplove - Tongue Tied [3:38]
-10. Five Finger Death Punch - Remember Everything [4:38](   Читать дальше...   )2012Жанр: RockПродолжительность: 01:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D907500C819E091EC8AFE9F1692CDB235976262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479256   (99089) от 09.04.2012
-
-VA - Dance Charts Арлекина. Часть 1 (2012) [MP3|256 kbps]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99089.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Michel Telo - Ai Se Eu Te Pego (Elkana pAz & Gili Kaneti Remix)
-002 Simon from Deeo Divas feat. Goody - Disco Dancer (Simon Original Radio Mix)
-003 Modana & Carlprit - Party Crash (Video Mix)
-004 Kim Appleby - The World Today Is a Mess
-005 1950 and the Chu Chi Girls feat. Hayley Jo - The Chu Chi Sway (Radio Mix)
-006 Frisco Disco feat. Ski - One Way Ticket (Radio Version)
-007 Tom Boxer & Morena feat. Meital De Razon - Voulez-Vous (Radio Edit)
-008 Mohombi - In Your Head (High Level Radio Edit)
-009 Kittens - I'm In Love (La La La) (Radio Edit)
-010 Mishelle feat. Randi - It Feels So Good (Radio Edit)(   Читать дальше...   )2012Жанр: DanceПродолжительность: 05:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111D65FD74386165FCBD63EC1A9A52F9AE8E8DEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

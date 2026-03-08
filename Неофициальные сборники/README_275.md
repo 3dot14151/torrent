@@ -1,3 +1,183 @@
+###  Публикация: 509955   (673051) от 13.06.2012
+
+VA - World R&B Delux (2012) [MP3|320 кб/с]<R&B, Hip, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_673051.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Labrinth - Earthquake (4:35)
+2. Urban Floorfillers - Pass Out-Tinie Tempah (3:57)
+3. Nicki Minaj - Starships (Explicit Edit) (3:30)
+4. Skepta - Make Peace Not War (3:10)
+5. Lloyd feat Andre 3000 & Lil W - Dedication To My Ex (Miss Tha (3:56)
+6. Dj Fresh feat Rita Ora - Hot Right Now (3:02)
+7. Cover Drive - Sparks (2:58)
+8. Mann - Buzzin (3:45)
+9. Drake feat. Lil Wayne - The Motto (3:53)
+10. Tyga - Rack City (2:30)2012Жанр: R&B, Hip, RapПродолжительность: 03:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B034A5B3724ED64CF6B13003A94C2F7492110937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136539   (673009) от 23.05.2017
+
+VA - Весенний хит-парад Шансона. Версия № 9 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_673009.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ярослав Сумишевский - Самая Милая 5:24
+002. Лена Семенова - Занято 3:07
+003. Сборная Союза - Нудавайда 3:10
+004. Виталий Теринг - В Осколках Зеркал 4:03(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929BC70DE31D0F6F0BEEE820570C1BE77551F899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136521   (673008) от 23.05.2017
+
+VA - Зажигай вместе с Europa Plus. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_673008.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. K.Stelmah - Не Вернусь 3:05
+002. Alex Milano & Squeeze Feat. Max Ten - Первая 3:08
+003. Полиграф Шарикoff (Серега) - Гелик Вани 3:08
+004. Isabelle - Не Играй 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D36B1EA88CCDF067EA9FAE1304CAFF8E2F366F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136533   (673005) от 23.05.2017
+
+VA - Топовая весенняя сотня выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_673005.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ejen & Lunna - Гармония 3:10
+002. 2 Маши - Не Буди 4:03
+003. Татьяна Буланова & Михаил Боярский - Единственный Дом 4:01
+004. Hann - На Больничном 4:04(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEABD28CC02E444D3FD3669359DBCF42D2C4838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136505   (673004) от 23.05.2017
+
+VA - Deep House Collection Vol.122 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_673004.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abriviatura IV - Mister Dance With Me (Original Mix) 5:42
+002. Addex - Blazing (Original Mix) 6:12
+003. Alex Niggemann - Legacy (Original Mix) 7:49
+004. Alateya, Lisitsyn, MBNN - Call Me Now (Pavel Velchev & Dmitriy Rs Remix) 4:36(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F30E073271094C7A5DE987E7EB84246A5CAC9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136548   (672997) от 23.05.2017
+
+VA - Грешная любовь. ХХХL от радио Шансон выпуск № 2 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672997.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сборная Союза - А Потому Что Любовь 3:32
+002. Александр Солодуха - Вечно Молодой 3:31
+003. Смирнов & Компания - Далеко Далеко 3:39
+004. Попутчик - Ша 3:16(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33598D7E102AA24B628AD9A11C40279EC43CE28C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509963   (672916) от 13.06.2012
 
 VA - Asia Lounge (2012) [MP3|320 кб/с]<Ethnic, Lounge, Relax>
@@ -592,186 +772,6 @@ VA - Desert Dream Lounge (2016) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F903F84C7AE2BD3341651DF006B0DCAE7875570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030644   (672403) от 01.07.2016
-
-VA - Country Fever (2016) [MP3|320 Kbps] <Blues, Folk, Gospel, Soft Rock>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waylon Jennings - Don't Think Twice It's Alright 02:38
-02. Willie Nelson - One Step Beyond 02:03
-03. Kenny Rogers - Ruby Don't Take Your Love To Town 02:51
-04. Lynn Anderson - Rose Garden 02:54(   Читать дальше...   )Жанр: Blues, Folk, Gospel, Soft RockПродолжительность: 03:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222B8CB9824CED3D8FF57DA5D929906306F17F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030626   (672401) от 01.07.2016
-
-VA - Electro-Bass Rock It Again (2016) [MP3|320 Kbps] <Bigroom, Dutch, Bounce>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pat Farrell - Mintaka 04:17
-02. Hardwell Feat Jake Reese - Mad World (Radio Edit) 02:38
-03. Slammer - Ashes 04:52
-04. Hardwell & Thomas Newson - 8Fifty (Extended Mix) 03:48(   Читать дальше...   )Жанр: Bigroom, Dutch, BounceПродолжительность: 05:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639994AB20B992E3F9738AC785DFFBB4BC98CD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509838   (672384) от 13.06.2012
-
-VA - Жизненные Песни Шансона (2012) [MP3|256 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672384.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Денис Майданов - Мама
-002 Рада Рай - Прости, мама
-003 Андрей Бандера - Мама
-004 Демидыч - Мамина сирень
-005 Мафик - Спасибо тебе, мамочка
-006 Таисия Повалий - Мама-мамочка
-007 Стас Михайлов - Мама
-008 Елена Ваенга - Курю
-009 Игорь Наджиев - Мамина память
-010 Сергей Трофимов - 5000 миль(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 06:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACFC7A61B87D92459ECAB83E4281B7021FB89B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291053   (672356) от 23.03.2019
-
-VA - The Official UK Top 40 Singles Chart 22.03.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved
-02. Calvin Harris, Rag'n'Bone Man - Giant
-03. Mabel - Don't Call Me Up
-04. Tom Walker - Just You and I(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DE66B11F45BA65CAA0ABEE07347BDB18D95CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290912   (672331) от 23.03.2019
-
-VA - Ashes Of My Enemies: Hard Rock And Metall Compilation (2019) [MP3|320 Kbps] <Hard Rock, Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672331.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. '77 - Bread & Circus
-002. Audium - Alive
-003. Costas Varras - The Swedish King
-004. Diabolical Mental State - Long Way Down(   Читать дальше...   )Жанр: Hard Rock, MetallПродолжительность: 09:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B435BADDF13E4945EDF1CE04896581C6127BA0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291045   (672324) от 23.03.2019
-
-VA - Наурыз (2019) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ALAR - Osyndaimyn
-02. Aлия Aбикен - Гул-гул жайна
-03. Ninety One - Бyгинги кyн
-04. Ninety One - Мyз(   Читать дальше...   )Жанр: PopПродолжительность: 02:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75042641954D2F8A52CEDD980E7308860336058
 ```
 
 https://mybot314.ru/tekegram_catalog/

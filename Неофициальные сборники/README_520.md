@@ -1,3 +1,177 @@
+###  Публикация: 1185451   (291375) от 22.11.2017
+
+VA - Partybreaks From The Collection (2017) [MP3|320 Kbps] <Rar, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291375.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J Dilla - Fight Club (Feat. Nottz & Boogie)
+002. Gucci Mane - Fuck The World (Feat. Future)
+003. Tragedy Khadafi - Men Of Honnor
+004. Mike Posner - In the Arms of a Stranger(   Читать дальше...   )Жанр: Rar, Hip-Hop, RnBПродолжительность: 09:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D4EDEE43E0CDEF9E3D092B89E53CB41C15C191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962816   (291348) от 06.12.2015
+
+VA - Winterpearls A Lovely Cold Breeze Lounge & Chillout Vol.2 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Waltz - Club des Belugas
+02. A Good Thing - Mirage Of Deep
+03. Time for Two - Jean Mare
+04. Lost - Naoki Kenji(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5170AF4B54CD1076A03174A5D405F0CEB04CCDC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185627   (291212) от 22.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 028 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маки - Расскажи ( 1987 )
+02. Фристайл - Принцесса ( 1989 )
+03. Глызин Алексей - Новый Танец Робинзон ( 1986 )
+04. Николаев Игорь и Владимир Матецкий - Катя, Катерина ( 1987 )(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F0C3C643D0866ED912D742595D25F13B83403F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079776   (291196) от 05.12.2016
+
+VA - Top 100 DJs Drive Sounds Massive (2016) [MP3|320 Kbps] <Stadium Trance, House, Bigroom, Dutch, Bassline, Melodic Tech>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291196.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Simon Lee And Alvin - Xcelerate (Extended Mix) 5:24
+002. Andrew Rayel & Jwaydan - Until The End (MaRLo Remix) 5:41
+003. Mark Sixma And Jonathan Mendelsohn - Way To Happiness (Club Mix) 4:47
+004. Armin van Buuren Ft Eric Vloeimans - Embrace (Andrew Rayel Extended Remix) 5:13(   Читать дальше...   )Жанр: Stadium Trance, House, Bigroom, Dutch, Bassline, Melodic TechПродолжительность: 08:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329369AD8E75B776B2C004F196ECF290869A39E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962967   (291161) от 06.12.2015
+
+VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 4 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audrey Langston - After Dinner - Martin Wesser Mix
+02. Thomas Garner - Blue Panorama - Original Mix
+03. Danny Hay - Officially Excl. - Original Mix
+04. Tedd Easy - The Night - Selected Soul Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E3F87DE00802360695837EEBB2143C7175135E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334859   (291107) от 31.10.2019
+
+VA - Modern Blues (2019) [MP3|320 Kbps] <Blues,Modern,Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenny Wayne Shepherd – The Place You’re In
+02. Beth Hart – Am I the One
+03. Dzem – Piosenka ekologiczna
+04. ZZ Top – 2000 Blues(   Читать дальше...   )Жанр: Blues,Modern,RockПродолжительность: 02:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9327E7CAFB84D046407E927431281D317493D526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962992   (290987) от 06.12.2015
 
 VA - Extra Trance: Bonus [03] (2015) [MP3|320 кб/с]<Trance>
@@ -570,180 +744,6 @@ VA - Euphoric Dream: Relax Mix (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5DCBEFCC012A139F4DCD0D1CFF666F258E35EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079472   (290158) от 06.12.2016
-
-Медвежья икра - Сборник (2010-2015) [MP3|128 Kbps] <Рок, фолк>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. И на камнях растут деревья (256 Kbps)
-02. Кен и Барби (256 Kbps)
-03. Весна (256 Kbps)
-04. Камни (256 Kbps)(   Читать дальше...   )Жанр: Рок, фолкПродолжительность: 01:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AAB2D9FF224E4A38D40F67CE51A9BF37C6ED67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080131   (290150) от 06.12.2016
-
-VA - Jamiroquai - Best275z (1993 - 2013) [MP3|320 Kbps] <Acid Jazz, Funk, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Virtual Insanity 05:41
-02 Deeper Underground 04:43
-03 Love Foolosophy 03:48
-04 Corner of the Earth 05:40(   Читать дальше...   )Жанр: Acid Jazz, Funk, ElectronicПродолжительность: 03:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F5315F0EEF801B4F4FC57272E89EF4EBFE5F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263168   (290013) от 18.11.2018
-
-VA - Record Super Chart 562 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fisher  -  Losing It
-02.  Gaulin  -  Moonlight
-03.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-04.  Rompasso  -  Ignis(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4154C1C8AC657C3E34317C2D5328AFE1B3BC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263189   (289904) от 18.11.2018
-
-VA - Empire Records - Saloon (2018) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aretha Franklin - Good Times
-02. Nina Simone - Gimme A Pigfoot
-03. Richard Freitas - Piano Man's Heat
-04. Professor Longhair - Every Day, Every Night(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 02:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C6EE4CC19113A018CBA0FF72D484F6BDA1E25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185937   (289822) от 23.11.2017
-
-VA - German Top 100 Single Charts 24.11.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289822.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bausa - Was du Liebe nennst
-002. Camila Cabello - Havana (feat. Young Thug)
-003. Ed Sheeran - Perfect
-004. Post Malone - rockstar (feat. 21 Savage)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ACA53BA3576D6FFDA93A03761DF2AF0D999ECFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263117   (289769) от 18.11.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 16.11.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Calvin Harris & Sam Smith  -  Promises
-02.  KAZKA  -  Плакала
-03.  David Guetta feat. Sia  -  Flames
-04.  Loud Luxury feat. Brando  -  Body(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7B19266C2E3A91E23753DC11C79AAD36458A69
 ```
 
 https://mybot314.ru/tekegram_catalog/

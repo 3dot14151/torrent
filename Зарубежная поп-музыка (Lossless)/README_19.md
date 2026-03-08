@@ -1,3 +1,32 @@
+###  Публикация: 1000839   (857498) от 26.03.2016
+
+Ardis - Love Addict (1994) [APE|Lossless|image + .cue] <Electronic, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prayer For Africa [03:41]
+02. Sweet As Candy [04:00]
+03. Ain't Nobody's Business [03:12]
+04. Fugitive [03:21](   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA54DA67BB4CE9106F990009F976DF8FBEA5AA9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000635   (857429) от 26.03.2016
 
 Cher - The Millennium Collection: The Best of Cher (2000) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
@@ -719,35 +748,6 @@ Charles Aznavour - After love (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D447F9C107A7E4DFCE122E43C86E8BDFA9BD2DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112190   (844226) от 07.03.2017
-
-Demis Roussos - Complete 28 Original Albums (2016) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844226.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - On the Greek Side Of Mind (1971)
-CD02 - Forever And Ever (1973)
-CD03 - My Only Fascination (1974)
-CD04 - Auf Wiedersehen (1974)Жанр: PopПродолжительность: 27:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B3383117064A315938E15B1CCA22198568B95C
 ```
 
 https://mybot314.ru/tekegram_catalog/

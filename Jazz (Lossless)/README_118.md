@@ -1,3 +1,32 @@
+###  Публикация: 1140143   (657003) от 05.06.2017
+
+Franck Avitabile - Short Stories (2006) Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arabesque [04:25]
+02. Chilhood Memory [04:10]
+03. Reverso [02:54]
+04. Twisted Nerve [02:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF3A60C752C13BCA97D18561D4892ED6DF9E5C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903860   (656887) от 01.06.2015
 
 Duke Ellington - Duke Ellington At The Bal Masque (1958) [FLAC|Lossless]<Jazz>
@@ -757,35 +786,6 @@ Lester Young - The President Plays (2008) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8422FD303CD59E7926CC9759D6ACF75B7F98C296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140953   (654021) от 08.06.2017
-
-Harry Allen - Here's To Zoot (2001) Novus J [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Cover the Waterfront [5:07]
-02. Stars Fell on Alabama [4:27]
-03. Spring Is Here [4:48]
-04. I Cried for You [4:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181791E099714C6C0ECEEB3F26D27962106936D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

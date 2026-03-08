@@ -1,32 +1,3 @@
-###  Публикация: 1396022   (750172) от 13.07.2020
-
-Sycamyre - Illuminations (2020) [MP3|320 Kbps] <Progressive Metal, Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Heir to Tragedy (04:57)
- 02. Soken (06:26)
- 03. Bastard (04:20)
- 04. Path to Fate (07:23)(   Читать дальше...   )Жанр: Progressive Metal, Heavy Metal, Thrash MetalПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B66A6793EF9C2253CCA3F4A2556E8C8744823C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281648   (750140) от 09.02.2019
 
 Yak - Pursuit of Momentary Happiness (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -745,6 +716,32 @@ Heidi Happy - Golden Heart (2014) [MP3|320 кб/с]<Pop Rock, Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FE84B06A1ECF4E1AB3F041954C8B43D84B85D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396265   (748688) от 14.07.2020
+
+Sentenced - Buried Alive (2006) 2xCD [MP3|320 Kbps] <Melodic Death Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748688.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:Жанр: Melodic Death Metal, Gothic MetalПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE6D92BA79A9DCE7B621F884FEC224FCB420AC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

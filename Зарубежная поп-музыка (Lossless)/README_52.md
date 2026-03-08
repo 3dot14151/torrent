@@ -1,3 +1,31 @@
+###  Публикация: 542993   (497302) от 04.09.2012
+
+Marie Claire D'Ubaldo - 2 Альбома (1990, 1994) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marie Claire D'Ubaldo - Аргентинская певица и композитор. Известна многим по альбому 1994-го года "Marie Claire D'Ubaldo" и композиции "The Rhytm Is Magic". Альбом пользовался огромным успехом в Италии, США, Японии и России, однако он не является дебютом Marie, как принято считать, поскольку в 1990-м году выходил менее известный и очень редкий альбом под названием "Marie Claire", который был выпущен только в Японии.Альбомы:
+1990 - Marie Claire
+1994 - Marie Claire D'UbaldoЖанр: PopПродолжительность: 01:28:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565247   (496710) от 22.07.2022
 
 Bananarama - Masquerade (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -724,33 +752,6 @@ VA - Espresso Mega-Mix: Italo Hits Nonstop (1998) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B088361800D32BFCF819357228C79AEF45F2780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405180   (485609) от 29.08.2020
-
-The Smashing Pumpkins -  Cyr (2020) Single [FLAC|Lossless|tracks] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyr (04:03)
-02. The Colour Of Love (04:23)Жанр: Rock, PopПродолжительность: 00:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB64DD1E08E02F62333941BB720F460781E093B
 ```
 
 https://mybot314.ru/tekegram_catalog/

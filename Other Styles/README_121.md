@@ -1,3 +1,32 @@
+###  Публикация: 950216   (367283) от 27.10.2015
+
+VA - Romantic Collection - Instrumental vol.3 (2000) [APE|image+.cue]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chi Mai - Ennio Morricone
+ 02. My Serenade - Whitehall Mystery Orchestra
+ 03. Love Story - Paul Mauriat
+ 04. Bridge Over the Stars - Keiko Matsui(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895AB3A6198AB1259BB34B470B29E1E650494B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070689   (366531) от 07.11.2016
 
 Gustavo Santaolalla - Last of Us (2013) [FLAC|Lossless|tracks + .cue] <Soundtrack, Instrumental, Ambient>
@@ -736,35 +765,6 @@ Ennio Morricone - So Sweet,So Sensual Erotica Morricone (2004) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B09F10E507120504C41B31066599BE56D3065BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328533   (363108) от 30.09.2019
-
-Angel Olsen - All Mirrors (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lark (06:18)
-02. All Mirrors (04:42)
-03. Too Easy (02:57)
-04. New Love Cassette (03:26)(   Читать дальше...   )Жанр: Indie Folk, Dark FolkПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:774461401C84D2746F094EA401E7F88DAC3AB57A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1263683   (286296) от 20.11.2018
+
+Die Priester - Das Beste (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop Crossover, Gregorian Chant>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiritus Dei
+02. Hallelujah
+03. Glorificamus Te
+04. Die Moldau(   Читать дальше...   )Жанр: Pop Crossover, Gregorian ChantПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990A1A7A68C271567DC187FB9236A8C31F3AAB27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081071   (286270) от 08.12.2016
+
+Baciotti - Black Jack (1977) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкант и певец из Тулузы, Франция. Стал знаменит, особенно в Италии, с его электронно-дискотечной песней "Black Jack".01. Black Jack  (10:41)
+02. Ridin' The Rails  (4:37)
+03. A Clown  (3:49)
+04. Musical  (3:26)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DC5F5E6703B83FC309C417C0A95844D6ADA1BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186660   (286017) от 25.11.2017
 
 Bjork (Björk) - Utopia (2017) [FLAC|Lossless|tracks + .cue] <Pop, Experimental>
@@ -682,64 +740,6 @@ S.E.X. Appeal - Russian Roulette (2013) 3H Dance, 2019 [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF8D7D3B2384B441DF5155E88F3E7ED66C8ECE59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186431   (284239) от 26.11.2017
-
-Charlotte Gainsbourg - Rest (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ring-a-Ring o' Roses (4:30)
- 02. Lying with You (3:19)
- 03. Kate (3:41)
- 04. Deadly Valentine (6:05)(   Читать дальше...   )Жанр: Indie Pop, French Pop-RockПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6543205967D66DC6474069D022EB27ADE710D7AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964240   (283956) от 10.12.2015
-
-Ayala - This Year (2015) [OGG|469-523 кб/с]<Alternative Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Russian Roulette
-02. Maybe
-03. 5157 Miles
-04. Don't Fix It(   Читать дальше...   )Жанр: Alternative Indie PopПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627E605B35086F77DEA34A475A4FF1EC4B3FE028
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,90 +1,3 @@
-###  Публикация: 1608978   (1043358) от 02.02.2023
-
-Мачете - Ambassador (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Войны света [00:03:56]
-02. Молитва Мачете [00:05:14]
-03. Аллилуйя [00:06:26]
-04. Душа [00:04:02](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289798B21C0B2675A40330C45E362977B51199F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609208   (1043324) от 02.02.2023
-
-Сектор Газовой Атаки - Классика (2023) [FLAC|Lossless|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Большая Грудь [00:03:01]
-02. Фанат [00:03:37]
-03. С Бодуна [00:02:06]
-04. Эту Песню Напеваем [00:02:56](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A9AFF50B9869886188A85E55877EEF83A33D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609384   (1043176) от 04.02.2023
-
-Виталий Дубинин - Бал-Маскарад. Постскриптум (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Evil In Your Eyes [00:05:28]
-02 - Здесь и сейчас [00:05:44]
-03 - Следуй за мной [00:04:20]
-04 - Наполеон (No Orchestra Version) [00:08:52](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43155CF3B59C3671327D0BDBB8B73C8CA2CA2D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609671   (1043175) от 04.02.2023
 
 Слот - XX лет (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
@@ -744,6 +657,93 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E093F08BDD84EC899610852355BFCA20E7050F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612813   (1039911) от 17.02.2023
+
+LASCALA - El Dorado (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039911.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. АН-2 (2022)
+2. Sex, Rock'n'Roll & Alcohol (2022)
+3. Жалость неуместна (2022)
+4. Пятница (Edit)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0148F0EC91955CF751B1C2376622CA4E8C0F5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439412   (1039908) от 13.01.2021
+
+Аффинаж - Сделай море (2017) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039908.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Первая мысль - это ты
+2. Страдать
+3. Заметь меня
+4. Новый номер(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248C8A7A9D2D2A2920F97472AECC39FBBFC6448C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439547   (1039902) от 13.01.2021
+
+Рви Меха Оркестр - Сильная & Независимая (2020) [FLAC|Lossless|image + .cue] <Ska-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Сильная & независимая
+02. Валера
+03. Мы с тобою
+04. Hello, Новосибирск!(   Читать дальше...   )Жанр: Ska-PunkПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E82B059D5B3D0181292F6FDF02A719A08170FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

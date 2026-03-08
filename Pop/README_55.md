@@ -1,3 +1,61 @@
+###  Публикация: 1494537   (887739) от 08.09.2021
+
+VA - Summer Break 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - Peaches (03:18)
+02. Sam Smith - Like I Can (02:46)
+03. Kungs - This Girl (Kungs Vs. Cookin' On 3 Burners) (03:15)
+04. Sera - Only Us (03:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0333A89A3C1F1FD9C47E66EDDC29CE1D7544E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494694   (887537) от 08.09.2021
+
+VA - 100 Greatest ’60s Rock Songs (2021) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887537.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Van Morrison - Brown Eyed Girl (3:03)
+002. Eric Burdon & the Animals - House of the Rising Sun (4:31)
+003. The Beatles - Come Together (2019 Mix) (4:20)
+004. Creedence Clearwater Revival - Fortunate Son (2:20)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D1BB6890BBEF08F2A011B9042DADA5649DC0DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103005   (887480) от 11.02.2017
 
 Frederic Mirage - Timemachine (1980) LP, Released 2014, Private Records [MP3|320 Kbps] <Electronic, Synth-pop, Ambient, Space-Disco>
@@ -688,61 +746,6 @@ Belinda Carlisle - California (1997) [FLAC|Lossless] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B9D3003D5CDDE9E7863306BEAEC83168A617317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495042   (884425) от 10.09.2021
-
-Patty Ryan - You Are My Lover (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are My LoverЖанр: Italo-Disco, Euro-DiscoПродолжительность: 00:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E92671E96B1EC22334EFF90CFF069E9C4836230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995267   (884399) от 11.03.2016
-
-Mandy - Mandy (1988) [FLAC|Lossless|image + .cue] <Europop, Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный и единственный альбом!01. Stay With Me Tonight
-02. I Just Can't Wait
-03. Victim Of Pleasure
-04. Duel(   Читать дальше...   )Жанр: Europop, Synth-PopПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFDF856943C5045E3F0BBA4FFB449167D2E1E4BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

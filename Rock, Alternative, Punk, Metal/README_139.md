@@ -1,32 +1,3 @@
-###  Публикация: 432309   (989661) от 07.01.2012
-
-System Of A Down - Kill Rock n Roll greatest hits (2008) [FLAC|Lossless] <Nu-Metal, Alternatve>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989661.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-1  Attack
-2  Innervision
-3  Revenga(   Читать дальше...   )Жанр: Nu-Metal.AlternativeПродолжительность: 02:39:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611025   (989607) от 30.01.2013
 
 Arise - 3CD (2003 - 2009) [WavPack|Lossless]<Melodic Death Metal / Thrash Metal>
@@ -793,6 +764,35 @@ Status Quo - Accept No Substitute: The Definitive Hits (2015) 3CD [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23E54292DA9DFA4DC6AF9573B180F975F0900596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971172   (987316) от 02.01.2016
+
+Элизиум - Снегири и драконы (2015) [FLAC|Lossless|image + .cue] <Ska Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё или ничего...
+02. Где-то сжигают книги
+03. Как мотылёк
+04. Снегири и Драконы(   Читать дальше...   )Жанр: Ska Punk, RockПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E86231A3F2BA1759E5D34DD313E451A83D05CD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

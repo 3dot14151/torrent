@@ -1,3 +1,36 @@
+###  Публикация: 503972   (259931) от 31.05.2012
+
+VA - Sexy Trance #36 (31.05.2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259931.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Sexy Trance #36 (31.05.2012)
+
+Год: 31.05.2012
+Жанр: Vocal Trance
+Продолжительность: 03:44:52Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix) [06:59](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549CC45C6E5801F13BE6AAF87D523A8ED673236F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501423   (258490) от 26.05.2012
 
 VA - Music my life (2011-2012) [MP3|320 кб/с]<Electro house, dubstep>
@@ -774,35 +807,6 @@ VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:457BFDFBA2CF764FF91BB432A0AAFC4C4C55D532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618396   (250004) от 11.03.2023
-
-zero-project - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkness Falls (Jabberwock Version)
-02. Killing Earth
-03. Once Upon a Time
-04. Princess of My Heart(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 03:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4445BA5F2537ABDFB48E4EA6F35D07D744B9516
 ```
 
 https://mybot314.ru/tekegram_catalog/

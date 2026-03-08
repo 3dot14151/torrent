@@ -1,3 +1,32 @@
+###  Публикация: 1378631   (844803) от 26.04.2020
+
+VA - Record Super Chart 633 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Big - UNO 2:41
+02. Billie Eilish - Everything I Wanted (Arroy & Sergey Raf Remix) 3:28
+03. El Capon - Shut Up Chicken 2:31
+04. NRD1 - All Good Things (Come To An End) 3:27(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCA5E1F63A1670E6B88952342483B227558231C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499823   (844305) от 04.10.2021
 
 DJ Ramezz - Collection Of Remixes (2020-2021) [MP3 320 Kbps] <Eurodance, Dance Pop>
@@ -716,35 +745,6 @@ VA - Welcome House Atomic (2016) [MP3|160-320 кб/с] <Progressive, Club, House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C05772BEF4D76744CAE69BEF35B7BEC0BCD0427E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004590   (838528) от 06.04.2016
-
-VA - Goa Session by X-Noize (2016) [MP3|320 кб/с] <Trance, Progressive Trance, PsyTrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-NoiZe vs. SpaceCat - No Rules 06:43
-02. Iliuchina - Lucid Dream 06:47
-03. X-NoiZe & Volcano - Volcanoize 06:49
-04. Capital Monkey vs. Burn in Noise - Capital Noise 06:41(   Читать дальше...   )Жанр: Trance, Progressive Trance, PsyTranceПродолжительность: 02:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773ECCB049A39917609393B113962705CE1DFC59
 ```
 
 https://mybot314.ru/tekegram_catalog/

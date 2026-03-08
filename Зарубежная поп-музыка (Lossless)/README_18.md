@@ -1,3 +1,32 @@
+###  Публикация: 997470   (873556) от 17.03.2016
+
+VA - Best Of The 90s (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку 90-е от нас убежали не так уж и далеко, наверное у каждого из нас свой best музыки этого времени. Поэтому предвижу ворчание, что вот этого нет, а этот не бэст... Но вот в UM посмотрели хитпарады тех недалеких лет и на их основе родился этот небольшой сборник. Ну чтож пусть каждый сравнит со своим "лучшим" того времени...01. Freddie Mercury - Living On My Own  (3:38)
+02. Ace Of Base - All That She Wants (Remastered Version)  (3:27)
+03. Michael Jackson - They Don’t Care About Us  (4:45)
+04. Crazy Town - Butterfly  (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9D3E5221FFE41B232344C4E0A546CDDF2C2273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106341   (872877) от 19.02.2017
 
 Supermax - 25 Years Of Magic Dance Music 1977-2002 (2002) Limited Edition, 6CD BoxSet [FLAC|Lossless|image + .cue] <Pop, Reggae, Funk, Soul>
@@ -721,35 +750,6 @@ Masha Qrella - Keys (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9A47D5663A979ED2B85C8C9E3290BB71EC284CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000839   (857498) от 26.03.2016
-
-Ardis - Love Addict (1994) [APE|Lossless|image + .cue] <Electronic, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer For Africa [03:41]
-02. Sweet As Candy [04:00]
-03. Ain't Nobody's Business [03:12]
-04. Fugitive [03:21](   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA54DA67BB4CE9106F990009F976DF8FBEA5AA9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

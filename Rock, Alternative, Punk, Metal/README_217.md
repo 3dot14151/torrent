@@ -1,32 +1,3 @@
-###  Публикация: 997674   (873900) от 17.03.2016
-
-Mob Rules - Tales From Beyond (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dykemaster's Tale
-02. Somerled
-03. Signs
-04. On The Edge(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12C8B38B313C4C64DF2162E269C7DBDED973C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997640   (873897) от 17.03.2016
 
 Mystic Prophecy - War Brigade (2016) [MP3|320 кб/с] <Power Metal>
@@ -745,6 +716,35 @@ Vega - Anarchy And Unity (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B0E958860AF4FD80E774CF5CB264AC27164F2F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496393   (873366) от 17.09.2021
+
+Robin Red - Robin Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t Leave Me (With A Broken Heart)
+02. (I’m A) Bad Habit
+03. Everlyn
+04. Freedom(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B410EB84E61BD89F8A5F34F62DB07EFC08711A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

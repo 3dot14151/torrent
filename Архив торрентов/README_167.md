@@ -1,3 +1,29 @@
+###  Публикация: 1466310   (1018571) от 29.04.2021
+
+Vivaldi 3.8.2259.37 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59EAE1BF1AE017BDF97495F504D125367043C14C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466284   (1018564) от 29.04.2021
 
 WinMerge 2.16.12 + Portable [Multi/Ru]
@@ -650,35 +676,6 @@ Analog Lab V - это плагин, который объединяет в од�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC7ADB33D495CE3D85F19DF18E4037392EDC583A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466547   (1018412) от 30.04.2021
-
-Tetrarch - Unstable (2021) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Not Right 3:47
-02. Negative Noise 4:07
-03. Unstable 3:27
-04. You Never Listen 3:21(   Читать дальше...   )Жанр: Alt. Metal, Nu MetalПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7FE1DF97C85F948A9E7ABEFE5401BE9680885D
 ```
 
 https://mybot314.ru/tekegram_catalog/

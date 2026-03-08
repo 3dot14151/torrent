@@ -1,3 +1,32 @@
+###  Публикация: 1013051   (777576) от 04.05.2016
+
+Francis Goya - Musica Espectacular (2016) [FLAC|Lossless|WEB-DL|tracks] <Easy-Listening, Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say You Say Me (4:03)
+02. The Lady In Red (4:06)
+03. Against All Odds (3:20)
+04. Nothing's Gonna Change My Love For You (4:05)(   Читать дальше...   )Жанр: Easy Listening, Instrumental, GuitarПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17997FDAAD78532303D119F521BB8F6F7443AA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211273   (777564) от 07.03.2018
 
 Maximus & Felix - 2 Albums (1993, 1996) [MP3|320 Kbps] <New Age>
@@ -714,35 +743,6 @@ Brian Crain - Piano and Night (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C38DC252E66C4C8BCDCFA5C15C91D0DF6B663D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014691   (776071) от 08.05.2016
-
-Zhou Zifeng - Hotel California (1999) [MP3|320 кб/с] <Guitar, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry For Me, Argentina 4:46
-02. Yesterday 5:37
-03. Hotel California 6:23
-04. My Heart Will Go On 4:38(   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E9B6A022C545626D44FEABDD86C421148B8B75
 ```
 
 https://mybot314.ru/tekegram_catalog/

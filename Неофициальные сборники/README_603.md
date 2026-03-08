@@ -1,3 +1,177 @@
+###  Публикация: 1086096   (154684) от 23.12.2016
+
+VA - Underworld - Best275z (1988 - 2016) [MP3|320 Kbps] <Electronic, Progressive House, Techno, Downtempo, Alternative Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Cowgirl 08:30
+02 Dinosaur Adventure 3D 07:57
+03 Pearls Girl 09:37
+04 I Exhale 08:13(   Читать дальше...   )Жанр: Electronic, Progressive House, Techno, Downtempo, Alternative DanceПродолжительность: 07:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F24BB29A2247B34856C6FAA22B42689C63FCCCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600734   (154652) от 28.12.2022
+
+VA - 50 лучших треков Шансон 2022 [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Розенбаум - Да Ладно (3:47)
+02. Евгений Григорьев - Женский Каприз (3:46)
+03. Денис Майданов - Все будет гуд (4:17)
+04. Стас Михайлов - Я Жду Звонка (3:24)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E564A4F79BE9F1CD41A7BD29F775E1841CEDE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433787   (154564) от 22.12.2020
+
+VA - Sunset Event: Chillout Sound Mix (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настрой музыкальной подборки "Sunset Event" как нельзя лучше передает обложка, которая исполнена в привычной стилистике этого музыкального жанра. Музыка музыкальной подборки как бы призывает остановить свой скоростной ритм современной жизни и погрузиться в состояние релакса.001. Weber & Weber - Fly On Wings
+002. Hamam Mounier - Oriental Wellness
+003. C.Cil - Calm & Quiet
+004. Chico Torres - Casual(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 07:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B3248BA86785295E227594A2EB1388B377C60C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194296   (154514) от 25.12.2017
+
+VA - Корпоратив 2018 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Disco House, Dance, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154514.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Preparty
+01-Gloria Gaynor  - I Will Survive (Yuriy Poleg Remix - Dj V Edit)
+02-Block & Crown - Good Night (Club Mix)
+03-Stefan Rio Feat. Franca Morgano - Ai No Corrida (Extended Mix)(   Читать дальше...   )Жанр: Club House, Disco House, Dance, Deep HouseПродолжительность: 03:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5D005CFCD80AB96AA2A206CF971749A7AC2B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433846   (154495) от 22.12.2020
+
+VA - Ремиксы от MGDC FM Vol 8 (2020) [MP3|320 Kbps] <Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Navai - Зачем Ты Врёшь (Vadim Adamov & Hardphol Radio Edit) (2:14)
+02. Ханна - Навсегда твоя (Alex Shik & Kirill Duck Radio Edit) (2:22)
+03. Artik & Asti - Все мимо (Chad & Eugene Star Radio Edit) (2:25)
+04. KARA KROSS - Поколение (Ramirez & Yudzhin Radio Edit) (2:13)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3A9C4AC68A7E752EB19DC43740907CDD9DA3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085981   (154488) от 23.12.2016
+
+VA - Christmas Jazz And Lounge Music (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arturo Annecchino - Lazy Moon 7:32
+02. Luis Bacalov - La Fete 3:13
+03. Piero Piccioni - Flirt 3:52
+04. Evan - Fall in Love (Part 1) 3:52(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765AE4D3C0C2BAAFC4C912D193F4D3DE2EF25982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270978   (154375) от 21.12.2018
 
 VA - Relax Winter Sound (2018) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
@@ -571,179 +745,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC072BBC03062906D1C0B29BFC52B207948CDB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968543   (153535) от 24.12.2015
-
-VA - Truly Passionate Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Logophilia - Igualmente
-02. Midnite Tiger - Deeper Trouble
-03. Laurent de Paris - Leaving the Dark
-04. Aqua Mundi - Simple ou double(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB0429E4DE80E3DCCFE6938CC6570DC7A8751B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084700   (153528) от 24.12.2016
-
-DigitalPuffy - Technology (2016) EP [MP3|320 Kbps] <Breaks>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Cent & Justin Timberlake - Ayo Technology (DigitalPuffy Remix)
-02. Grebs - Cops (DigitalPuffy Remix)
-03. Ellie Lawson - Wide Awake (DigitalPuffy Remix)Жанр: BreaksПродолжительность: 00:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6A1821C2B6CE506671210A57B94FDF31A3E10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968595   (153504) от 24.12.2015
-
-VA - My Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chill Bill - Harlem Chillout
-02. Oscar Salguero - Boss a Nova
-03. M. Vitoria - Chill in Out
-04. NGS - National Geographic Sound(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA1E6463FE19D582AE4CD3011712A78AC6E6AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086423   (153496) от 24.12.2016
-
-VA - Empire Records - Club Hit 3 (2016) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brascon & Anna - Beautiful Creatures
-02. Niia - Body
-03. Cj Stone Feat. Lyck - Lost (Radio Edit)
-04. Odesza - Say My Name (Feat. Zyra)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B13AC4F23A3ADD9ED81C666532DAF43FF69CFE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434232   (153491) от 23.12.2020
-
-VA - не Громкие новинки недели 92 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Олег Кензов feat. Леся Никитюк - Кое-что ещё (3:13)
-02. Drako Valeria - На Танцполе (3:29)
-03. Наталья Гончарова - Ты Поверил (4:08)
-04. Andro - Спокойная Ночь (1:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AE232133604264E859C8281F8593610EF4EF5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086257   (153489) от 24.12.2016
-
-VA - House In My Head New Edition (2016) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153489.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Firebeatz - Arsonist (Original Mix)
-002. Luca Debonaire - Loosin' Sleep (Original Mix)
-003. Armando Rosario - Pulse
-004. Dzeko & Torres ft MOTI - Ganja (Original Mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77894D935A690CD4ED586761E2D52F84CA18DA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

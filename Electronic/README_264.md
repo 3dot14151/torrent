@@ -1,3 +1,61 @@
+###  Публикация: 1046500   (552122) от 27.08.2016
+
+VA - Dream City Lounge, Vol. 1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panorama - Fantastic Road (Original Mix) (5:48)
+02. The Circle - In the Black Money (Original Mix) (5:33)
+03. SPA - Come to Love (Original Mix) (4:54)
+04. Mossignor - Il Mostro (Chillout Mix) (5:09)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC944819438DB66CB425F15112186BB0A1277546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046503   (552117) от 27.08.2016
+
+VA - Dream City Lounge, Vol. 4 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo & Roby Ruini - La Suite - Original Mix [05:26]
+02. Michel Haimann - Rain - Original Mix [03:15]
+03. W Ensemble - Contento - Original Mix [05:13]
+04. Re Vera - Pensiero Leggero - Original Mix [03:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D66125B322C66317FE95DFAD16E189EBBFAFC22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046501   (552116) от 27.08.2016
 
 VA - Dream City Lounge, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ VA - Advanced Modern Mood Music Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41F332CCF3D23620114879A1058F90E8C0C9B3A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309475   (551139) от 19.06.2019
-
-VA - Summer Hits (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer feat Roxanne Emery  -  Lullaby (LTN Extended Sunset Remix)
-02.  Neil Bronson feat. Lorela & Bertello  -  Can't Get Over (Original Mix)
-03.  Liezl & Adip Kiyoi  -  Words (Extended Mix)
-04.  Ayda  -  Higher (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Progressive TranceПродолжительность: 01:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75278613985DABCDDA8B8017631B2270229F4F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046879   (551102) от 28.08.2016
-
-VA - Chill Crossover - The 21st Century Soul Music (2016) [MP3|320 Kbps] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Candy - Aching (2:21)
-02. Eddie Caldwell - Changing People (4:10)
-03. Nicolas Panderis - Sunset in Your Eyes (4:23)
-04. Eddie Caldwell - Love Song (4:57)(   Читать дальше...   )Производство: Ecstasy RecordsЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887F30D3E4711FC7E7D2747A7070200AE7B64DA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

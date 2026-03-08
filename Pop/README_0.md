@@ -1,3 +1,61 @@
+###  Публикация: 1853688   (1056915) от 15.02.2026
+
+Sotomayor - Wabi Sabi (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dance, Pop, Electronic>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me dejo llevar [00:04:24]
+02. Who's there [00:03:29]
+03. Vida [00:02:19]
+04. Si no duermo [00:03:02](   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D286F80AFFFAFF90C8903FE9A4A3F6ED71A119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854015   (1056911) от 15.02.2026
+
+VA - Pure... 80s Soul Grooves (2013) 4 x CD [FLAC|Lossless|tracks + .cue] <Pop, R&B, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rob Base & DJ E-Z Rock - Get On The Dance Floor (12 Inch Mix) (7:36)
+02. S-Express - Theme From S-Express (5:53)
+03. Breakwater - Release The Beast (4:57)
+04. Jacksons - Walk Right Now (6:30)(   Читать дальше...   )Жанр: Pop, R&B, Soul, DiscoПродолжительность: 05:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670E5D7B22059D64A4DE3DFA8641638FCCF84E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853810   (1056906) от 15.02.2026
 
 Александр Барыкин - Букет (1987) [FLAC 24/44.1, FLAC 24/48 |Lossless|WEB-DL|tracks] <Pop-Rock>
@@ -681,64 +739,6 @@ Blue Rita - Blue Rita 5 - Crépuscule - The Album (2026) [MP3|320 Kbps] <euro di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30ED794284CB44402CB38D683AD5ABEFD9A62A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849589   (1054007) от 26.01.2026
-
-VA - Sounds of the 70s (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. December, 1963 (Oh What a Night!) - Frankie Valli & The Four Seasons  - (03:20)
- 02. Feel like Makin’ Love (2015 Remaster) - Bad Company  - (05:15)
- 03. Right down the Line - Gerry Rafferty  - (04:28)
- 04. Right Back Where We Started From - Maxine Nightingale  - (03:12)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D53F162B83AE056F00B1EF291D9CE8EEC380EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849397   (1053768) от 23.01.2026
-
-VA - Best Of The 70s. (2006) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heat Wave - Boogie Nights (3:42)
-02. Atlanta Rhythm Section - So Into You (6:53)
-03. Taste of Honey - Boogie Oogie Oogie (5:24)
-04. Stephen Bishop - On And On (3:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95CFF649459BD0A94F6CDE4A4E516FD83A8BF77
 ```
 
 https://mybot314.ru/tekegram_catalog/

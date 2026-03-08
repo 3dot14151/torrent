@@ -1,3 +1,30 @@
+###  Публикация: 1288696   (694311) от 12.03.2019
+
+Fire! Orchestra - Exit (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exit! Part One (19:29)
+ 02. Exit! Part Two (24:54)Жанр: Free Jazz, Free ImprovisationПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558A63BDF9409848DE6F04D2F6FB77A411D9BE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288688   (694309) от 12.03.2019
 
 The Bobs - Sing The Songs Of... (1991) Reissue [FLAC|Lossless|tracks + .cue] <Vocal, Parody>
@@ -713,35 +740,6 @@ Warren Wolf - Convergence (2016) Mack Avenue Records[FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82609F1270DD93F95A2EE36C1D757277809C85F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028109   (690965) от 22.06.2016
-
-Benjamin Faugloire Project - Birth (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foundations
-02. Beautiful Day for a Birth
-03. Heavy Idea
-04. In a Loop(   Читать дальше...   )Жанр: Contemporary Jazz, PianoПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB40075DD726D32CAAA066ACB63B455C3E3A41C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

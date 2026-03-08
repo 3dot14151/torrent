@@ -1,3 +1,177 @@
+###  Публикация: 1059495   (462113) от 04.10.2016
+
+VA - Trance Peper Progect (2016) [MP3|320 Kbps] <Uplifting, Vocal, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462113.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A.R.D.I & Linnea Schossow - Your Everything (Extended Mix)
+002. Aurosonic, Denis Karpinskiy & Kate Louise Smith - They Wait For Us
+003. Christina Novelli - Where We Began
+004. Denis Kenzo & Vika - Reasons Why (Extended Mix)(   Читать дальше...   )Жанр: Uplifting, Vocal, Progressive TranceПродолжительность: 11:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA24EA33E76F153401828AE5BC6AF15C9D33180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059527   (461979) от 04.10.2016
+
+VA - Ibiza Workout 30 Fitness Hits Party (2016) [MP3|277-320 Kbps] <Reggaeton, Club, Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bunt Feat. Sons Of The East - Coming Home 04:18
+02. Dr. Alban - Hurricane (Raggaton Mix) 03:25
+03. Dimmi - No One Can 04:38
+04. Cash Cash Ft Sofia Reyes - How To Love 03:39(   Читать дальше...   )Жанр: Reggaeton, Club, VocalПродолжительность: 02:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1DC201317FBAE618A830162298D24230611191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059532   (461816) от 04.10.2016
+
+VA - Дорожный шансон с любимой музыкой. Часть 6 (2016) [MP3|128-256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461816.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олег Петелин - Для Друзей
+002. Артем Еременко - Выходи На Круг
+003. Любовь Попова - А Сердце Верит
+004. Олег Горте - Ты Моя Судьба(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6CF79F69ED63BFDD5F4227CABC5982CE39AB8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568510   (461807) от 08.08.2022
+
+VA - Record Super Chart 06.08.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elley Duhe - Middle Of The Night (3:04)
+02. Purple Disco Machine feat. Sophie And The Giants - In The Dark (3:05)
+03. Robin Schulz, David Guetta - On Repeat (3:10)
+04. James Hype & Miggy Dela Rosa - Ferrari (5:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B051A1F49C0A12E27C9999D92848F2F5EF9C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059360   (461728) от 04.10.2016
+
+VA - Relaxation Well-Being and Serenity Music (2016) [MP3|320 Kbps] <New Age, Relax, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicolas Dri - Ouverture 06:13
+02. Nicolas Dri - Union Du Corps Et De L'esprit 08:33
+03. Nicolas Dri - Sagesse Innee 01:52
+04. Nicolas Dri - Trois Dimensions Part.1 01:51(   Читать дальше...   )Жанр: New Age, Relax, LoungeПродолжительность: 04:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C1B18371C10C7B98C01E2E6F257139835D86A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059458   (461726) от 04.10.2016
+
+VA - Vocal Jazz Lady (2016) [MP3|320 Kbps] <Vocal Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ceu - Perfume Do Invisível
+02. Nina Simone - The Other Woman
+03. Astrud Gilberto - Love For Sale
+04. Dinah Washington - Smoke gets in your eyes(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC71C5B284BDC8004C2FC9CC5789CCD4EF16117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059122   (461634) от 04.10.2016
 
 VA - Classic Rock (2016) 3CD Box Set [MP3|320 Kbps] <Rock, Pop>
@@ -600,180 +774,6 @@ VA - TOP 100 Зайцев.нет (19.09.2012) [MP3|124-320 кб/с]<Pop, Chanson
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11B1ABB8AEBC9B2A570699B98D5F18FD5F1BDCF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703729   (460262) от 25.09.2013
-
-VA - Осеннее настроение в СССР [2CD] (1972-1991) (2013) [MP3|320 кб/с]<Ретро, советская эстрада, поп, рок>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алла Пугачева - Осень (1984)
-02. Форум - Улетели листья (1985)
-03. Юрий Лоза - Опять  (1986)
-04. Валерий Леонтьев - Исчезли солнечные дни (1986)(   Читать дальше...   )Жанр: Ретро, советская эстрада, поп, рокПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19FFCAA988475DA7DAA73410E5164474F05A7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407926   (460102) от 10.09.2020
-
-VA - Music News vol.35 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polina - Джанга (03:01)
- 02. ALLI - Семицветик (02:34)
- 03. Alok - Alive (It Feels Like) (02:23)
- 04. Anivar feat. Adamyan - Руку Держи (RJS Remix) (05:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF60ECFE89B80B95A83FDF00B7419D0D67F36D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941838   (460059) от 28.09.2015
-
-VA - Erotique Lounge (Finest Chill Out & Lounge Grooves Vol 1) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony Daxter - It's Raining Inside (05:06)
-02. Michael E - Look to the Sky (06:23)
-03. Kondencuotas Pienas & Ahbee - Evolution (03:08)
-04. Mirage of Deep - Hechizo de Luna (05:32)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FB8CAD1F164E7E11F9CBC68A00ADD85549A219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941728   (459898) от 28.09.2015
-
-VA - Звездные Xиты. Only Best Hits (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Sandro Escobar - Блеск-Шик
-02. Vaults - Mend This Love
-03. VISA feat. D.I.P Project - Ночь В Огне (Radio Version)
-04. Cheryl Cole - Fight On(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E109C7A29B3A4632E0203FDAE09DD45AADC84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941764   (459885) от 28.09.2015
-
-Tina Turner - The Best song (2015) [MP3|320 кб/с]<Rock, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459885.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A Change Is Gonna Come
-002. A Fool in Love
-003. A Letter from Tina
-004. Addicted to Love(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 04:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AF87B5CAA4AF234153956E29FBA5FDBEA34468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407902   (459780) от 10.09.2020
-
-Wychazel - Earth Dance (2020) Compilation, 2CD [MP3|320 Kbps] <New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deja Vu
-02. Sacred Mountain Drumming
-03. White Wolf Spirit
-04. Breath of Life(   Читать дальше...   )Жанр: New AgeПродолжительность: 12:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4930047BA0CD07818DF50B96EEE42785C0AC2449
 ```
 
 https://mybot314.ru/tekegram_catalog/

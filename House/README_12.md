@@ -1,3 +1,32 @@
+###  Публикация: 1003162   (843571) от 03.04.2016
+
+VA - 5 Years With Macarize (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Thomas Feijk - Hi (Original Mix) 08:30
+02 Hazem Beltagui - She Came (Terry Da Libra Remix) 08:26
+03 Atlantis Ocean - Fuji (Original Mix) 07:15
+04 Labtracks - Robotic Love (Lenno Remix) 04:27(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE4668A1C63600DB04A288FE51860C216E6108D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112498   (843386) от 08.03.2017
 
 VA - Summer Is Coming So Get Ready For Some Running (2017) [MP3|320 Kbps] <Progressive House>
@@ -717,35 +746,6 @@ VA - Never Miss A Beat (25 Crazy Deep-House Tunes) Vol.2 (2017) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:375D04956B4F0A6737F6DB54AD0F0B0E1FEDBBBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114910   (830065) от 16.03.2017
-
-VA - Best Of Deep House 2017 Vol.02 (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Justin Oh - Good Morning (Claes Rosen Remix)  6:51
-02.  Dezza - Brit  5:49
-03.  Eskai - Tides  5:16
-04.  Dan Sieg - Everything U Need  5:56(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD91578171B0727CDCFAC0E9CE6DD5B7C086A45
 ```
 
 https://mybot314.ru/tekegram_catalog/

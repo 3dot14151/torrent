@@ -1,3 +1,61 @@
+###  Публикация: 1343385   (218757) от 06.12.2019
+
+VA - Ori Uplift & Phoenix - Uplifting Only 356 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frainbreeze & VIKA - Better Day (Sunset Remix)
+02. FAN FAVORITE 352: Elated & Thea Riley - Take Me As I Am (Aldo Henrycho Extended Remix)
+03. S.H.O.K.K. & Bodo Kaiser feat. Jennie Osborn - Fever 2019 (Original/Dub Splice)
+04. Kajis feat. Ylona - Bodyswing (Venetica Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F40A3FA85D1E7E78FA86A242FB9A7606C45D963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515059   (214077) от 05.12.2021
+
+DJ Sinatra - Deep n Funky Show #5 Guest Mix by Guido P on KISS FM 2.0 (2015) [MP3|320 Kbps|tracks+.cue] <Soulful House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiko Navarro feat. Ladybird - Fly Angel (Soulfuledge Chill Out Remix) (3:36)
+02. C&M Productions - Possible (1:18)
+03. DJ Tonka - My House (1:56)
+04. Andy Tee, Danny Losito, Kareem Shabazz - Spend Some Time (Micky More Deep Mix) (2:01)(   Читать дальше...   )Жанр: Soulful HouseПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7403A9026E5F7EB8C8A87957BD6703652FFCA6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193864   (213903) от 23.12.2017
 
 VA - Armin Van Buuren - A State Of Trance Episode 845 (TOP 50 Special) (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
@@ -684,64 +742,6 @@ Renton - Birthday Mix (2018) [FLAC|Lossless|WEB-DL|image + .cue] <Chillout, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A974D7DF1628CDF707420056D4CB32FC07082033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517268   (163719) от 14.12.2021
-
-Hodel - Live @ Monday Bar (God Rave The Queen Cruise), Tallink Silja, Sweden (2021-11-06) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto vs. Mark Norman - Flight 643 Overkill (Hodel's AMS Intro Mash)
-02. Randy Katana - Play Gemini Louder (Hodel's Phat Mash)
-03. Divini & Warning vs. Fable - 4LB Nightshift (Hodel Mashup)
-04. Armin vs. M.I.K.E. - Intruder (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327B3B7ABECD6B558BE14C53327DB6858A2E3030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517284   (163705) от 14.12.2021
-
-Tim van Werd - Live @ Pyramid of Austerlitz, Netherlands (2021-12-09) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim van Werd - Come Back To Me
-02. Delhia De France, Anyma, Janus Rasmussen - Claire (feat. Delhia De France)
-03. Eel1ke Kleijn - Mont Saint-Michel
-04. Tim van Werd - Tell It All(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD5CB21ABA51E412BF923809D30711739ED5E9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

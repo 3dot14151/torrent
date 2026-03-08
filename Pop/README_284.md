@@ -1,3 +1,61 @@
+###  Публикация: 1654803   (205060) от 22.08.2023
+
+Toto Cutugno - Лучшие песни (2011) Серия Новая коллекция [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Litaliano
+02. Solo Noi
+03. Davvero
+04. Innamorati(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BDC60E5F7BC5D3477E4214700D3B069A1B9359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247403   (204969) от 21.10.2022
+
+Dresden China - Dresden China (1986) 2010 Reissue, Remastered, DWS Records [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steam Roller Introduction
+02. Fire And Rain
+03. Tonight You've Got No Friend
+04. So Young And Wild(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD697BADCECE202F87FD0CD571F581B8BA8699F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654776   (204655) от 24.08.2023
 
 Requiem - POPulist Agendas (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
@@ -685,64 +743,6 @@ VA - Pop Stars (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC82F867CEEE239BF83DF72BAF764E89A265B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619906   (201172) от 18.03.2023
-
-Татьяна Буланова - Таня, дыши! (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201172.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Таня, дыши!
-2. Ты моё безумие
-3. Без тебя одиноко
-4. Бриллианты на снегу(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71119475A3A08A61796283A296B18ADDC97755E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620362   (201146) от 19.03.2023
-
-Татьяна Буланова - Таня, дыши! (2023) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201146.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Таня, дыши!
-2. Ты моё безумие
-3. Без тебя одиноко
-4. Бриллианты на снегу(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B471AD30D58DE992E8E8C7D97D3A66FED0C795B
 ```
 
 https://mybot314.ru/tekegram_catalog/

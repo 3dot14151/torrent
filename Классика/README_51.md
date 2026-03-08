@@ -1,3 +1,33 @@
+###  Публикация: 479872   (87153) от 08.04.2012
+
+Johann Friedrich Fasch - Johann Friedrich Fasch Oboe Sonatas: Burkhard Glaetzner& Ingo Goritzki etc. (1989)/2008/[WavPack|Lossless]<Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соната соль минор для двух гобоев фагота и basso continuo
+1. 1. Largo	2:02
+2. 2. Allegro	2:17
+3. 3. Largo	2:10
+4. 4. Allegro	2:202008Жанр: ClassicalПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75EF4A1461CEB4E306510DFC82F4B6DFEE3E20B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478792   (86785) от 06.04.2012
 
 Telemann, Schaffrath, Fasch, Torriani, Waterson, Donizetti - Virtuosity of Bassoon 2: Valery Popov, Alexander Bakhchiev etc. (1983-1991)/2003, Vista Vera/[FLAC|Lossless]<Classical>
@@ -819,35 +849,6 @@ Jon Schmidt & Steven Sharp Nelson (The Piano Guys) - Hits Volume I: Limited Foun
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776777   (71211) от 02.02.2025
-
-VA - Classical Music Brilliance (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-03. Sergey Bryukhno - Concerto for Solo Keyboard No. 3 in D Minor, BWV 974 II. Adagio (3:17)
-04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80312BEDBC07533921E20A6537A516EE33C7C947
 ```
 
 https://mybot314.ru/tekegram_catalog/

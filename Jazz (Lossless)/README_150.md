@@ -1,3 +1,32 @@
+###  Публикация: 1236433   (554253) от 18.07.2018
+
+Tony Bennett - Life Is Beautiful (1975) Reissue, Remastered 2003 [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Is Beautiful
+02. All Mine
+03. Bridges
+04. Reflections(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F33CB977D1B90CED98D3012D2F0E3B5B6CCB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236549   (554067) от 19.07.2018
 
 Joe Marsala - 1944 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing>
@@ -714,35 +743,6 @@ Fission - Waves // And // Flow (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76B3DB477CA79B60286BF4F98A50167EC9B60459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237601   (550634) от 25.07.2018
-
-Ron Carter - The Puzzle (1986) SMS [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loose Change [8:40]
-02. Double Bass [6:44]
-03. El Rompe Cabeza [8:25]
-04. Sometimes I Feel Like A Motherless Child [1:53](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C963A7F426C63480D3E3173637D3941361564C
 ```
 
 https://mybot314.ru/tekegram_catalog/

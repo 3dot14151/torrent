@@ -1,3 +1,116 @@
+###  Публикация: 1258142   (337988) от 29.10.2018
+
+Teriyaki Boyz - Tokyo Drift (2017) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337988.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Teriyaki Boyz - Tokyo Drift ★ DJ SAVIN & Alex Pushkarev ★ Remix Radio VersionЖанр: Club, DanceПродолжительность: 00:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DA801B435704DAEB825F221F501A62975D2D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180936   (337364) от 05.11.2017
+
+VA - По волне моей памяти P.S (Постскриптум ) диск 2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Николай Трубач - Научись играть на гитаре  4:10
+02.  Александр Кальянов - Старое кафе  3:44
+03.  Игорь Иванников - Мила моя  4:27
+04.  Александр Мураев - Птица счастья  3:20(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56EB4D5B98DB1E00947C0F003C7B87158F11C3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180875   (337198) от 05.11.2017
+
+VA - По волне моей памяти P.S (Постскриптум) диск 1 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Саша Айвазов - Лилии  3:55
+02.  Кай Метов - На сердце грусть  4:18
+03.  Марина Журавлёва - На сердце рана у меня  4:11
+04.  Александр Барыкин - Больше не встречу  3:46(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD52FFF45A854BDB1996F75A2B4065EB1AAB5404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330829   (336724) от 12.10.2019
+
+VA - The Official UK Top 40 Singles Chart 11.10.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336724.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Tones and I - Dance Monkey (3:29)
+2.Travis Scott - HIGHEST IN THE ROOM (2:55)
+3.Regard - Ride It (2:37)
+4.AJ Tracey - Ladbroke Grove (3:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08AC0B2F677F45E7D03E6955A6B24E5F6612DDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330705   (336588) от 12.10.2019
 
 VA - ЕвроХит Топ 40 Europa Plus 11.10.2019 [MP3|320 Kbps] <Pop, Dance>
@@ -614,122 +727,6 @@ VA - Popular November Hit (2015) [MP3|320 кб/с]<Pop, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36660BF7B6F8E614B766EA7702D785729D2A5E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420513   (332356) от 01.11.2020
-
-VA - Лучшие из лучших Top 100 хитов радиостанций за Октябрь (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332356.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. JAKONDA & NEJTRINO - No More Tears (3:00)
-002. Savage - Lonely Night (Club Version) (3:05)
-003. Александр Гужов - Она его уже не ждёт (3:32)
-004. Мирон Еремеев feat. DJ Steel Alex - Мурашки (2:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB98D7F80CF96A5F369C223ADA722028A1705CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420594   (331899) от 01.11.2020
-
-VA - Новинки С Разных Популярных MP3 Сайтов Vol. 101 (2020) [MP3|320 Kbps] <Club, Pop, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. 7UBO feat. LexBlaze - TikTok (Extended Mix)
-02. Above & Beyond - Diving Out Of Love
-03. Adam Delight - Tension (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 07:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDEEBCD8A3F477FBE3ABD9FAD3ACC9F7FF49DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579472   (331662) от 30.09.2022
-
-VA - ВКонтакте Top 100 VK-Chart 24.09.2022 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markul, Тося Чайкина - Стрелы [2:57]
-02. Ramil' - Просто лети [2:29]
-03. INSTASAMKA - POPSTAR [2:18]
-04. ANNA ASTI - По барам [3:58](   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182A1BDD98BD220FF8ADDCDCBC4D0ECF863D2359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420793   (331190) от 02.11.2020
-
-VA - Осенняя свежая 30-тка Vol 3 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 10AGE - Время (2:38)
-02. 25 17 - Снег (4:10)
-03. Face2Face - В Объятьях Ночи (Ivan ART Remix) (3:50)
-04. Loc-Dog - Вспоминай меня (2:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF81858C78C3D932E40A053085EB109D9594AF17
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1297451   (955302) от 19.02.2020
-
-Pendragon - 16 albums, 27 CD (1985-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Prog Rock, Neo-Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых известных групп нео-прогрессива "Pendragon" (это имя носил род знаменитого короля Артура из Камелота) была образована в 1978-м году в английском городе Страуд. Тогда группа называлась Zeus Pendragon и занималась преимущественно исполнением кавер-версий композиций различных арт-роковых групп. Впервые Pendragon заявили о себе в 1983 году, когда (   Читать дальше...   )--------------------------
-
-01. Everything (5:40)
-02. Starfish And The Moon (3:37)(   Читать дальше...   )Жанр: Prog Rock, Neo-Progressive Rock |Продолжительность: 28:06:43 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7852710222B5485B87A722F2EE0809EB5ECB618E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361527   (955220) от 19.02.2020
 
 Ногу Свело! - Хочу Бодаться! (2020) [MP3|320 Kbps] <Rock>
@@ -742,6 +713,35 @@ Coma Void - Stormking Twilight (2001) [FLAC|Lossless|image + .cue] <Death Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6C50F6ED3CCEA9A593CBE83A0F97D28776B8262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981297   (953061) от 31.01.2016
+
+Viikate - XII - Kouvostomolli (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Rautalanka>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elämä on katiska (3:22)
+02. Mantelinmakuinen (3:50)
+03. Rottinki (4:58)
+04. Puolikulkijat (3:58)(   Читать дальше...   )Жанр: Hard Rock, RautalankaПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F8E96759798B5F2F80D405537E14B28AB7D4AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

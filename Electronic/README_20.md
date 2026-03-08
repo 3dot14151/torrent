@@ -1,3 +1,61 @@
+###  Публикация: 1443188   (1035783) от 28.01.2021
+
+Dawn Wall - Kythera (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Between The Sheets (feat. Artificial Intelligence) (04:50)
+02. Angel Field (04:32)
+03. Kythera (05:17)
+04. Seeds Of Change (04:36)Жанр: Drum & BassПродолжительность: 00:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F001D6A5CD0F880B99B1F0B54D777150EA8530F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443180   (1035780) от 28.01.2021
+
+Dawn Wall - Longshanks (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spears (04:21)
+02. Round Table (04:33)
+03. Longshanks (04:57)
+04. Lose Face (05:12)Жанр: Drum & BassПродолжительность: 00:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18DEA1B109867890AAA3793C15B4F2C44C45D92C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443199   (1035776) от 28.01.2021
 
 Dawn Wall - Twin Falls (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -685,64 +743,6 @@ VA - Summer Melody: Best Of 2020 (Mixed Version With Full Compilation DJ Mix) (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65EF1C54DCDD95336F35BFB35AC4EC226D8D6452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217112   (1035415) от 29.01.2021
-
-In The Branches | The Adaptive - Discography 27 Releases (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Post Rock, Soundscape, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Way Home (Live In Santa Fe) (05:44)
- 02. Places You Been (Live In Santa Fe) (06:07)
- 03. Black Sea Coast (Live In Santa Fe) (05:56)
- 04. We Are Limitless (Low Sun Remix) (Live In Santa Fe) (05:21)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo/Dub/AmbientПродолжительность: 17:13:57 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3967E9ABFE48B33B476C3448132FF28A35CAD89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617408   (1035364) от 06.03.2023
-
-Magnavolt - Nexus (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwave>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nexus City [00:01:48]
-02. Prime Complex [00:03:30]
-03. Supreme Being [00:03:53]
-04. Brutal Rampage [00:03:09](   Читать дальше...   )Жанр: Darksynth, SynthwaveПродолжительность: 00:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D111A6D24F5344FA338D891D5C3B64931799C38
 ```
 
 https://mybot314.ru/tekegram_catalog/

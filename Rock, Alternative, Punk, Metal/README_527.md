@@ -1,32 +1,3 @@
-###  Публикация: 1048997   (544795) от 04.09.2016
-
-New Model Army - Winter (2016) [MP3|320 Kbps] <Alternative Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beginning     (06:59)
-02. Burn The Castle     (03:12)
-03. Winter     (04:19)
-04. Part The Waters     (04:25)(   Читать дальше...   )Жанр: Alternative Rock, Folk RockПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D535D54A34E2607E381E8F582532050FEA3530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048969   (544756) от 04.09.2016
 
 Метанойя - Новый позывной (2015) [MP3|320 Kbps] <Acoustic Art Rock>
@@ -748,6 +719,35 @@ Saralee - Darkness Between (2006) [MP3|320 кб/с]<Gothic Metal, Love Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30495B3123FEE6F570B58787FF80A214767F9D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557307   (542831) от 14.06.2022
+
+Cult Of Endtime - In Charnel Lights (2015) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Vast Cosmic Horror (5:19)
+02. Cairns On Mercury (5:13)
+03. Prognatus De Sigillum (6:25)
+04. The Colossus Fell (5:09)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B78EEF46CF52169762C7D8A74322FD40B0DA013
 ```
 
 https://mybot314.ru/tekegram_catalog/

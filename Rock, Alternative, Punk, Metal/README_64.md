@@ -1,32 +1,3 @@
-###  Публикация: 1446621   (1032588) от 10.02.2021
-
-WinaSchnitzel - In The Light (2020) [MP3|320 Kbps] <Prog Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Void (00:58)
- 02. Run (03:03)
- 03. Out of Order (03:39)
- 04. Waiting (Intro) (01:19)(   Читать дальше...   )Жанр: Prog Folk RockПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D39A81CAB2B27DD3A7E12F0315E09C4525ADDED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446627   (1032570) от 10.02.2021
 
 Elder - Omens (2020) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Stoner Rock, Doom Metal>
@@ -745,6 +716,35 @@ Magnum - Dance Of The Black Tattoo (2021) [FLAC|Lossless|image + .cue] <Melodic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DACA8C63F2B0620DE56A041025B177881AD3E69B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446962   (1032287) от 11.02.2021
+
+Sirenia - Riddles, Ruins & Revelations (2021) [MP3|320 Kbps] <Symphonic Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addiction No. 1 (04:03)
+ 02. Towards an Early Grave (05:28)
+ 03. Into Infinity (04:42)
+ 04. Passing Seasons (04:43)(   Читать дальше...   )Жанр: Symphonic Melodic MetalПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12942053610A9702C03675899463E4DD2BB0DD71
 ```
 
 https://mybot314.ru/tekegram_catalog/

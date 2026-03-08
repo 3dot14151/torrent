@@ -1,3 +1,61 @@
+###  Публикация: 1465292   (240334) от 25.04.2021
+
+Locust Toybox - When We Implode (2021) [FLAC|Lossless|WEB-DL|tracks] <Leftfield, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absorb (08:05)
+ 02. Tardigrade (06:21)
+ 03. Gopher Dance (13:52)
+ 04. I Can't See (08:26)(   Читать дальше...   )Жанр: Leftfield, IDM, AmbientПродолжительность: 02:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA279314718E6F0C5157416DCE47558D1E9BBA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626833   (240291) от 16.04.2023
+
+VA - Chill & Dance Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase - Tremble (6:23)
+02. Alessio Cappelli - I Have Been Before (6:26)
+03. Andrey Keyton - I Want Your Soul (5:58)
+04. Anton Ishutin - Always (5:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D0E5C6560DB99F9854241F3C5221C13C4C475E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626933   (240184) от 17.04.2023
 
 Midnight Fury - Metamorph (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
@@ -686,64 +744,6 @@ VA - Sola Presents: Miami (2023) [MP3|320 Kbps] <House, Funky House, Tech House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29F680618A49D6D4B9036C0124AC6CB1D61B83D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638282   (238987) от 09.06.2023
-
-Menschdefekt - Empty World (2020) [FLAC|Lossless|image + .cue] <EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empty World
-02. Cursed
-03. Freedom In Chains
-04. Guilty(   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDE7E9E207251183E78DC848C080D3DCDF59830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636582   (238907) от 31.05.2023
-
-IzangoMa - Ngo Ma (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agenda Remember (3:02)
-02. Birds (Of A Feather) (5:39)
-03. City Lights (8:41)
-04. Le Nna Mfana (6:22)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F252DAC5D2AAA0A79EEE1F4CFB4EB60E9211ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/

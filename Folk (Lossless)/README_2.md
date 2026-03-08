@@ -1,3 +1,32 @@
+###  Публикация: 1386296   (793469) от 30.05.2020
+
+The Louvin Brothers - Tragic Songs Of Life (1956) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kentucky
+02. I'll Be All Smiles Tonight
+03. Let Her Go, God Bless Her
+04. What Is Home Without Love(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA39C4557D2D9F7241C19E47CB494EF34C4435B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386398   (793465) от 30.05.2020
 
 Marty Robbins - Gunfighter Ballads And Trail Songs (1959) Remastered 1999 [FLAC|Lossless|tracks] <Country>
@@ -717,35 +746,6 @@ Hang Massive - Beats For Your Feet (2012) [FLAC|Lossless|tracks] < Folk, World, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6425163A5582C8A217C49E3CB34629259719FB29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125272   (768808) от 14.04.2017
-
-Caroline Reese and the Drifting Fifth - Tenderfoot (2017) [FLAC|Lossless|tracks] <Country,Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Unlocked (3:48)
-02 - Airshow (3:35)
-03 - New Tricks (2:31)
-04 - Snake Eyes (3:06)(   Читать дальше...   )Жанр: Country,FolkПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F5447EAFF0C709E1DA3525325FD2CDABDC509A
 ```
 
 https://mybot314.ru/tekegram_catalog/

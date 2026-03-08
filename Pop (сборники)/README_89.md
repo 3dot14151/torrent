@@ -1,3 +1,38 @@
+###  Публикация: 568927   (393130) от 02.11.2012
+
+VA - Взорви Танцпол. Русский Сборник (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393130.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. LiLi - Моя Подруга-Стерва!
+002. DJ Skazka - Неоновый свет
+003. Авраам Руссо - Как быть
+004. Божья коровка - Гранитный камушек
+005. Ангелина Сланевская - Тебя мне так мало
+006. RiDer - Побуду Один
+007. VITA - Вставай!
+008. Братья Борисенко - Что такое любовь
+009. David - Надо Ли Нам
+010. DJ Цветкоff & Оля Милакса - Белая ночь (Andry Makarov remix)(   Читать дальше...   )Жанр: PopПродолжительность: ~ 5.8 часов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5A8C568E813DBE292427727CC38FF606694A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 568910   (393127) от 02.11.2012
 
 VA - Из Каждого Утюга (2012) [MP3|320 кб/с]<Pop>
@@ -860,41 +895,6 @@ VA - Танцевальный Extrim 50/50 (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6031B5B049CDC9BC777171E15FBF92AA939579A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571358   (388611) от 07.11.2012
-
-VA - Recordная осень 2 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound Hackers feat. Чи-Ли - Я Буду Помнить (Club Radio Version)
-02. Moonbeam feat. Aelyn - You Win Me (Radio Edit)
-03. RAЯ - Всё Не Просто (DJ Cosmo Rekord Remix)
-04. Dragon & Jontron feat. Lea Luna - Tonight (Original Mix)
-05. DJ Сателлит & Marlena - Дай Мне Слово (Tonada Radio Mix)
-06. David Guetta feat. Taped Rai - Just One Last Time (Hard Rock Sofa Big Room Mix)
-07. Sasha Prozet & DJ Andy First - Ради Тебя (Radio Edit)
-08. Ruslan Nigmatullin vs. Michel Telo - If I Catch You (Radio Mix)
-09. Анна Семенович - Любовь под облаками
-10. Deejaymas feat. Any & Catalin D - Don't Break My Heart (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B0979533A5495D8388011E0CC1701BEF1EB6A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

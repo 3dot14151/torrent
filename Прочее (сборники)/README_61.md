@@ -1,3 +1,118 @@
+###  Публикация: 1217984   (724733) от 08.04.2018
+
+ZODIAC - Reload (2017) Remix [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Reload
+2. DJ YASTREB
+3. Up MusicЖанр: Electro HouseПродолжительность: 00:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C3155BF67BD19387A904A002C243585BAB0C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023515   (724547) от 05.06.2016
+
+VA - 100% Proof Pop! Friction Hits (2016) [MP3|320 кб/с] <Gospel, Alternative, Country, Latin Urban, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Flo Rida - That's What I Like (feat. Fitz) 03:16
+002. The Piano Guys - Kung Fu Piano: Cello Ascends 04:06
+003. Yandel - No Sales de Mi Mente (feat. Nicky Jam) 03:25
+004. Carrie Underwood - Choctaw County Affair 03:31(   Читать дальше...   )Жанр: Gospel, Alternative, Country, Latin Urban, SynthpopПродолжительность: 08:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397D6EC4C01FEFE0AC41A3CA46FDD4571BD5346C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128887   (724237) от 27.04.2017
+
+VA - Singles Chart Hot 100 Billboard (05 May) (2017) [MP3|320 Kbps] <Pop, Rap, Soul, R&B, Alternative, Bro-Country, Dancehall>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724237.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Kendrick Lamar - Humble  2:58
+002.  Ed Sheeran - Shape Of You  3:54
+003.  Luis Fonsi feat. Daddy Yankee - Despacito  3:48
+004.  The Chainsmokers & Coldplay - Something Just Like This  4:08(   Читать дальше...   )Жанр: Pop, Rap, Soul, R&B, Alternative, Bro-Country, DancehallПродолжительность: 06:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B64963DBFEEAE437CFD273D4FDEBA69505B4213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129182   (724224) от 27.04.2017
+
+VA - Music for Your Car Vol.3 (2017) [MP3|320 Kbps] <Club , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724224.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abramo & DJ Lacros - U Know Y (Original Mix) 3:01
+002. Adam De Great - Pretty Sick (Original Mix) 3:19
+003. Aleo - Hospital (Original Mix) 6:41
+004. Aleo - Sex Orgazm (Original Mix) 4:26(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 07:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F77C8D08AEFD5A1401447F782C1D5CACC8DACFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129187   (724219) от 27.04.2017
 
 VA - Need For Speed Vol.5 (2017) [MP3|320 Kbps] <Dance , Hands Up>
@@ -627,122 +742,6 @@ VA - Mush-Up Dance Music (2017) [MP3|320 Kbps] <Club, Dance, House, Mush Up>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0543F8EE33C1E305B4FA8600CA52C91BB4C8E561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130019   (718710) от 30.04.2017
-
-VA - Empire Records - Club Hit 13 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kim McNichols - Better off Alone (Summer Pool Party Mix)
-02. Michael Ribeira - Ecuador (Slowsphere Remix)
-03. Damon Paul, Beccy - I Was Made for Lovin' You (Patricio Amc Remix)
-04. Tenishia & Sue Mclaren - Strong (Chill Out Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5C245789D100C4151EC8A01991C20BE63DBDF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129927   (718354) от 30.04.2017
-
-VA - Disco 80 Dance Premium (2017) [MP3|320 Kbps] <Disco, Euro-Pop, Italo-Disco, Synthpop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roger Meno - I Find The Way  6:47
-02.  Modern Talking - Your'e My Heart, Your'e My Soul (Paul Masterson's Extended Remix)  7:19
-03.  C.C.Catch - One Night's Not Enough (Maxi Version)  5:17
-04.  K.B.Caps - Do You Realy Need Me (Extended Version)  6:36(   Читать дальше...   )Жанр: Disco, Euro-Pop, Italo-Disco, Synthpop, DanceПродолжительность: 13:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E11783A1E29733A74B74CBE3F1376FAE3AAEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129773   (717871) от 30.04.2017
-
-VA - Nostalgia Collection (Volume Second) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717871.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Francis Goya - Nostalgia  3:53
-002.  Liza Minelli - Cabaret  3:37
-003.  Boyz II Men - End Of The Road  5:54
-004.  SuperMax - Camillo  4:05(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 10:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143CBF4077D35A42828E80B9808BA903E8A3EF9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129696   (717870) от 30.04.2017
-
-VA - Nostalgia Collection (Volume One) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717870.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Demis Roussos - From Souvenirs To Souvenirs  2:38
-002.  F.R.David - Words  3:28
-003.  Enigma - Principles Of Lust  4:13
-004.  Earth, Wind & Fire - Fantasy  3:48(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 09:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E912F2350EEED93428E62175E7ABF41CFEC12C6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1042579   (576717) от 14.08.2016
+
+La Machine Ronde - Music Makes The World Go Round (2015) [FLAC|Lossless|tracks + .cue] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ten BucksЖанр: Jazz, Vocal JazzПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8A207AE80F58103D82F2BE97DCA747900FEF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042929   (576716) от 14.08.2016
 
 Paulinho da Viola - Samba E Choro Negro (1993) [APE|Lossless|tracks + .cue] <Brazilian Jazz, Samba Jazz, Bossa Nova>
@@ -716,35 +742,6 @@ Jimmy Smith - Fourmost (1991) /2000, Milestone/[FLAC|tracks+.cue]<Jazz, Hard Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85C8E98F9978319791C1E528156B91D8C8D47781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303514   (573137) от 21.05.2019
-
-Horace Parlan, Jesper Lundgaard, Ed Thigpen - Relaxin' With Horace (2004) Stunt Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Someone in Love [7:00]
-02. Don't Take Your Love from Me [6:25]
-03. Thinking of You [6:07]
-04. Theme for Ernie [7:14](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE0CA2F6B1801A1633A82459ED0D06966FF0C94
 ```
 
 https://mybot314.ru/tekegram_catalog/

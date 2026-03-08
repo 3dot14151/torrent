@@ -1,3 +1,177 @@
+###  Публикация: 1347815   (147308) от 25.12.2019
+
+VA - не Громкие новинки недели 49 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147308.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Alex Nikov - Малышка (3:18)
+2.Chacha - Куранты В Тумане (1:25)
+3.Chernika - По Беспределу (3:19)
+4.DeeSpace - Стань Моим Ангелом (3:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9CAEB002EA75A88DBE31D63FC57B4035316C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678237   (147285) от 20.11.2023
+
+VA - Музыка для машины Vol.39 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5Утра - Давай сбежим (Искорки) (02:32)
+02. 2xA - We Got a Love (01:35)
+03. A R I Z O N A - Hanging On (03:12)
+04. Bryan Adams - You're Awesome (02:50)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F2BF009EAB7AAEECDBF0CE986CB87790835AF56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678243   (147255) от 20.11.2023
+
+VA - Музыка для машины Vol.40 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Amor - Like The First Time (03:07)
+02. Slavique Green - I Like That (02:55)
+03. Юлия Колерт - Давай Танцевать (03:18)
+04. Эдуард Хуснутдинов - Распустилась Cирень (03:38)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEC02D56750AFF3977C18437266979A36D72D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271959   (147196) от 25.12.2018
+
+VA - Громкие новинки месяца Vol.19 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147196.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lil' Wayne, Kid Ink, Saweetie - YUSO
+002. Lena Katina - Куришь
+003. Доминик Джокер, Екатерина Кокорина - Новый день и Новый год
+004. Grivina - Девочку несёт(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C793D0D3519955C9DB7B53A6BA24F6FA8CEE9946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519533   (147083) от 25.12.2021
+
+VA - HarDD NRG OverDoZZe 3 (2021) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147083.jpg" />
+</div>
+
+
+###  Подробнее
+
+(+*CUE)
+01. Gavyn Mytchel - Vocoder (Mike Koglin Remix) (NOYS,2005)
+02. The Generator - Where Are You Now? (Moonman Remix) (POLAR STATE,1999)
+03. Andy Jay Powell & Mike Nero - Skyliner (Hiver & Hammer Remix) (AUDIOPLAST,2002)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 03:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7827785C2065EF634E1C8D5384E5D0E14AAFC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087342   (147031) от 27.12.2016
+
+VA - Neon Plasma EDM Party (2016) [MP3|320 Kbps] <Electro, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147031.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dino Lenny - The Magic Room
+002. Turbotronic - Kkulbam (Radio Edit)
+003. Dan Sieg, Jhana - Everything U Need (Original Mix)
+004. Martin Garrix & Third Party - Lions in the wild(   Читать дальше...   )Жанр: Electro, Progressive HouseПродолжительность: 07:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51060758DD3D5970C47B63617D98D5977567298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087435   (147016) от 27.12.2016
 
 VA - MuviSpace. Christmas Edition (2016) [MP3|320 Kbps] <Spacesynth>
@@ -577,180 +751,6 @@ VA - Шансон в натуре (2015) [MP3|320 кб/с] <Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EB5D9DA2AE15182E532F5F960E59604B7E564F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678294   (145547) от 21.11.2023
-
-VA - Trance In Motion Vol.368 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synthasia - Lumi (Original Mix)
-02. Nebula - 1999 (Extended Mix)
-03. Angelus - Sanctuary (Extended Mix)
-04. Vinny DeGeorge - Meaning Of Life (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940D46A13CC389BA1C84B639835318BF18E3C7F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520027   (145535) от 26.12.2021
-
-VA - Top 100: Most-Read Lyrics (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Rodrigo – drivers license (04:02)
-02. Olivia Rodrigo – good 4 u (02:58)
-03. Yuuri – Dried Flower (04:45)
-04. BTS – Dynamite (03:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9F4032A41F41A67AD1EA2FA90A21A948A53487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348007   (145473) от 26.12.2019
-
-VA - Дискотека 2020 Dance Club Vol. 196 Новогодний выпуск! (2019) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-01. МС Вспышкин и Никифоровна - Новогодняя (Cheeful Remix Radio Edit) (3:18)
-02. Steve Aoki x Ummet Ozcan x Dzeko - Popcorn (3:33)
-03. 5sta Family - Первый Cнег (Dj Sasha White Remix) (3:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 34:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0445D8F6A944FD264C37D9E344BCCD75DD6E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348051   (145466) от 26.12.2019
-
-VA - Корпоратив 2020 (mixed by Dj V) (2019) [MP3|320 Kbps] <Club House, Disco House, Dance, Pop, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145466.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Preparty
-Продолжительность: 01:00:24
-
-01-Neytram - Last Christmas (V.I.P Edit)(   Читать дальше...   )Жанр: Club House, Disco House, Dance, Pop, Deep HouseПродолжительность: 03:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3450F9EA985C8584A797BA9C7DB5581B3C680C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087259   (145414) от 28.12.2016
-
-VA - Взрывной Хит-Парад выпуск № 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145414.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Sunsay Feat. Тося - Поезд 3:34
-002.Альбина - Не Со Мной 3:09
-003.N.A.O.M.I. (Наоми) - Надо Бы 3:05
-004.Eric Prydz Feat. Rob Swire - Breathe 3:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B180E44F61D8FEFA1773BE28C79677D2A8C800E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272158   (145401) от 26.12.2018
-
-VA - Хиты под водочку: Поворот на 360 (2005) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145401.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Водка водка - Михаил Шуфутинский
-002. Водочку пьём - Михаил Круг
-003. Желаю - Елена Ваенга
-004. Муж муженек - Вилли Токарев(   Читать дальше...   )Жанр: ШансонПродолжительность: 20:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C5C71F98ABA7007EB76CA8E005C6596DAB2493
 ```
 
 https://mybot314.ru/tekegram_catalog/

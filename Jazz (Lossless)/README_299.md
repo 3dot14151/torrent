@@ -1,3 +1,32 @@
+###  Публикация: 1683106   (128681) от 10.12.2023
+
+VA - Sister Bossa Vol. 11 (Cool Jazzy Cuts With A Brazilian Flavour) (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulstance - Light Size (Turnaround Version) (6:33)
+02. Papik - Passos De Esperança (3:15)
+03. Cafe Safado - A Mil Por Hora (3:15)
+04. Duzzy - Dino Ferrari (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth Jazz, Easy ListeningПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5261E1667D1C49C2095681BEC480288AA24BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683294   (128678) от 10.12.2023
 
 VA - Jazz Hop #1 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -716,35 +745,6 @@ The Howard Alden Trio - Plus Special Guests Ken Peplowski & Warren Vache (1989) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BD647050AB553EB2AD08A7E186B7E1E7D97ED58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684404   (127773) от 15.12.2023
-
-Phil Woods, Vincent Herring, Antonio Hart - Alto Summit (1996) Milestone [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Minor [5:40]
-02. The Summer Knows (Theme from Summer of '42) [9:44]
-03. Minority [6:47]
-04. Stars Fell on Alabama [6:17](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB58F155C07C397EF7140C7E84708573373EB8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

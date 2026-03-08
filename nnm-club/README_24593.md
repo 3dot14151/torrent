@@ -1,22 +1,22 @@
-###  Публикация: 1798586   (66633) от 22.05.2025
+###  Публикация: 1796650   (66672) от 19.05.2025
 
-PowerDirector – Video Editor v15.3.0 Mod by Balatan [Ru/Multi]
+Фоны - Graphic Studio - Creative Fabrica - Butterfly Backgrounds [PNG]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66633.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.05.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+Фоны с бабочками.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B593D34EC8285BFE997B5B6C4122E0C01A6F3EC
+magnet:?xt=urn:btih:30F21D6CF54EEBB485EABB9FAD91FF1F966CA503
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798573   (66632) от 22.05.2025
+###  Публикация: 1796647   (66671) от 19.05.2025
 
-Smart AudioBook Player Pro v11.4.3 Mod by Balatan [Ru/Multi]
+Растровый клипарт - Dream Creation - Creative Fabrica - Colorful Spring Butterfly Clipart [PNG]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66632.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: Pro / FullРелиз состоялся: 22.05.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
+Красочный клипарт с бабочками.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8309853E00CACF26D585970BB4F9C8AB4F2B25E7
+magnet:?xt=urn:btih:13BBCBA8FD6DA1815B0508970EA80E5C4E7D2C66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798592   (66631) от 22.05.2025
+###  Публикация: 1796539   (66670) от 19.05.2025
 
-Йога для похудения v3.0.1 Mod by Alex.Strannik [Ru/Multi]
+Фоны - Graphic Studio - Creative Fabrica - Musical Love Backgrounds [PNG]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66631.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данное приложение предоставляет доступ к обширному каталогу упражнений йоги и нескольким готовым программам, следование которым поможет вам похудеть и улучшить своё физическое тело. Безусловно в наличии возможность самостоятельно собрать программу занятий на базе предоставленных упражнений, снабжённых фото- и видеоиллюстрациями. Внутри приложения присутствует система (   Читать дальше...   )Тип издания: ProРелиз состоялся: 22.05.2025Разработчик: mEL StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+Фоны на тему любви и музыки.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AE5418AF5E987A295A01A7B350DB8F0CCD5C298
+magnet:?xt=urn:btih:FCD46479272E460B7CCC27C6E0A9773A6E9FEA8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +76,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798489   (66630) от 22.05.2025
+###  Публикация: 1796339   (66669) от 19.05.2025
 
-Сашка (1981) DVDRip [H.264]
+Фоны - Monika Ratan - Behance - Liquid Marble Gold Backgrounds - 192068387 [JPG]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66630.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1942 год. Под Ржевом идут жесточайшие бои. Среди солдат, ведущих неравные бои с врагом, новобранец Сашка. Простому деревенскому парню не сразу дается «наука побеждать» и умение в любых ситуациях находить общий язык с однополчанами и любимой девушкой.Производство: СССР, МосфильмЖанр: военныйРежиссер: Александр СуринАктеры: Андрей Ташков, Марина Яковлева, Владимир Симонов, Юрий Веялис, Леонид Ярмольник, Юрий Гребенщиков, Вячеслав Молоков, Михаил Шулейкин (Михаил Крылов), Любовь СоколоваСубтитры: отсутствуютПродолжительность: 01:25:11
+12 бесплатных фонов под  мрамор и золото.
+Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 1024 x 1024
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBC60C3769EEB54348BAE97994A790BAEB033A54
+magnet:?xt=urn:btih:DD49800CBF7B8D035E4882ABE4C26816A898466D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,28 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798425   (66629) от 22.05.2025
+###  Публикация: 1796538   (66668) от 19.05.2025
 
-VA - Ultimate Dance Divas (2003) CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Dance, Soul, R&B, Funk>
+Фоны - Graphic Studio - Creative Fabrica - Purple Blue Butterfly Backgrounds [PNG]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66629.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Aretha Franklin - A Deeper Love (C + C Tribesman mix) - (04:11)
-  02 - Whitney Houston - Love That Man (Peter Rauhofer mix) - (04:06)
-  03 - Toni Braxton - Un-Break My Heart (Soul Solution & Hex Hector mix) - (04:47)
-  04 - Deborah Cox - Nobody’s Supposed to Be Here (Hex Hector mix) - (04:14)(   Читать дальше...   )Жанр: Pop, Dance, Soul, R&B, FunkПродолжительность: 01:02:08
+Бесплатные фоны с бабочками.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0034503F4F10CA36674E758E8DFE3F5B4693DC6F
+magnet:?xt=urn:btih:7414E5E655F53006FBECB627F24CB041B898CAC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,28 +129,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798512   (66628) от 22.05.2025
+###  Публикация: 1797913   (66667) от 19.05.2025
 
-VA - Trance In Motion Vol.388 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+Andrea Bocelli - Sogno (1999) [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Классика
+>>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66628.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DIM3NSION - Revelation (Extended Mix)
-02. Ciaran McAuley with Zara Taylor - Stay (Extended Mix)
-03. BIXX & Susana - Believe In Me (Extended Mix)
-04. Cygnus X - Superstring (Nilsix Extended Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:25:58
+01. Canto della terra (4:03)
+02. The Prayer (4:30)
+03. Sogno (4:04)
+04. ’O mare e tu (4:37)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 01:01:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF86651B4A9D925211D8DDA20BBD5FAD59691ACD
+magnet:?xt=urn:btih:DF3840CE98EB4B55FE7B5DF5A6D8CC0182DB9867
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,25 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798563   (66627) от 22.05.2025
+###  Публикация: 1798019   (66666) от 19.05.2025
 
-Гайчи (1938) WEBRip [H.264/1080p]
+Журнал | Тайны ХХ века №21 (1167) (май 2025) [PDF]
 
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66627.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В тайге остается на зимовку научная экспедиция. Шифрованные материалы, имеющие важное оборонное значение, отправляются с инженером Саповым в сопровождении бывшего партизана Олони, который должен посадить инженера на самолет. На одной из стоянок к Сапову неожиданно является инспектор Петров, который в действительности является бывшим белогвардейцем Яныгой и в настоящее (   Читать дальше...   )Производство: СССР / СоюздетфильмЖанр: детский, приключения, шпионскийРежиссер: Владимир ШнейдеровАктеры: Ердык Манджиев, Георгий Субботин, Виктор Третьяков, В. Толгаев, Юлия Цай, Ю. Фей-Бустрем, Петр СавинСубтитры: русские (пояснительные интертитры), в некоторых эпизодахПродолжительность: 01:01:13
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:273E236AF723252CAE3B3095C49D08ACF8EF5834
+magnet:?xt=urn:btih:B0FE36C0A9B0BFBBC5607622FB1027914440D232
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,28 +184,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798459   (66626) от 22.05.2025
+###  Публикация: 1796655   (66665) от 19.05.2025
 
-VA - The Wedding Singer: Music From the Motion Picture (1997) CD, Compilation [FLAC|Lossless|tracks + .cue] <New Wave, Electro, Pop Rock>
+Фоны - Graphic Studio - Creative Fabrica - Retro Geometric Swirls Backgrounds [PNG]
 
->>Other Styles
->>OST (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66626.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Presidents of the United States of America / Video Killed the Radio Star    [0:03:21.30]
-02. Culture Club / Do You Really Want to Hurt Me    [0:04:19.60]
-03. The Police / Every Little Thing She Does Is Magic    [0:04:18.55]
-04. The Smiths / How Soon Is Now?    [0:06:41.73](   Читать дальше...   )Жанр: New Wave, Electro, Pop RockПродолжительность: 00:57:53
+Фоны с геометрическими завитками.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:111B29578A100FE43C253C185513C9D19400B5DB
+magnet:?xt=urn:btih:797FA42462B068C0A33BE66514EFD3D8FDCC88C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,25 +210,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798473   (66625) от 22.05.2025
+###  Публикация: 1796651   (66664) от 19.05.2025
 
-Танцуй, Вини / Vini Jr. (2025) WEBRip [H.264/1080p] [MVO] [AD]
+Растровый клипарт - Dream Creation - Creative Fabrica - Butterfly Flowers Sublimation Clipart [PNG]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66625.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Vini Jr.», документальный фильм о жизни Винисиуса Жуниора, одного из самых перспективных нападающих в футболе. Обладая впечатляющими показателями, Вини-младший является звездой сборной Бразилии, и сюжет следует за ним в решающий год 2024. Победитель Лиги чемпионов УЕФА и с возможностью выиграть награду FIFA The Best. Также признанный за его мужество в борьбе с расизмом, (   Читать дальше...   )Производство: Бразилия / Conspiração FilmesЖанр: документальный, спорт, биографияРежиссер: Эмилио Домингос, Андруша УоддингтонУчастники: Винисиус ЖуниорПеревод: Многоголосый (1win Studio)Язык озвучки: русскийСубтитры: русские (forced hardsub)Продолжительность: 01:48:33Реклама: присутствует пара вставок видеорекламы и статичный логотип
+Клипарт с бабочками и цветами для сублимации.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:739B7C5631EB3AA70F1F4D6DC53CA7E18A5E8D1A
+magnet:?xt=urn:btih:B53365F43E50906548CFFAE5B0AE2237BD06A5D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,25 +236,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798509   (66624) от 22.05.2025
+###  Публикация: 1796646   (66663) от 19.05.2025
 
-Стромболи, земля божья / Stromboli (Terra di Dio) (1950) BDRip [H.264/720p] [MVO]
+Растровый клипарт - Dream Creation - Creative Fabrica - Watercolor Butterfly Sublimation Bundle [PNG]
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66624.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Литовская беженка Карин в ходе Второй мировой войны оказывается в итальянском лагере для перемещённых лиц и там, чтобы получить гражданство и вид на жительство, выходит замуж за рыбака Антонио. Супруги отправляются жить на малую родину Антонио остров Стромболи. Однако это удалённое от цивилизации местечко сразу же разочаровывает привыкшую к большим городам Карин. (   Читать дальше...   )Производство: Италия, США / Berit Films, RKO Radio Pictures Inc.Жанр: драмаРежиссер: Роберто РосселлиниАктеры: Ингрид Бергман, Марио Витале, Ренцо Чезана, Марио Спонцо, Джетано Фамуларо, Роберто ОноратиПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 01:40:30
+Акварельный клипарт с бабочками для сублимации.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01CC805DF9E4C99246D8C97A22C556D88F72272E
+magnet:?xt=urn:btih:994C6E186187AAE843322C124386DA55D72C6309
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,25 +262,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798419   (66623) от 22.05.2025
+###  Публикация: 1797957   (66662) от 19.05.2025
 
-Неуязвимый / Invincible (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-8 из 8) Condor Films Studio, RHS, Flarrow Films, TVShows, LostFilm, HDRezka, NewComers
+Zealotry - The Last Witness (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Мультфильмы
->>Зарубежные Мультсериалы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66623.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17-летний Марк Грэйсон узнаёт, что его отец является самым могучим супергероем на Земле. Теперь подростку предстоит совладать с силами, которые достались ему по наследству. Основано на комиксах Роберта Киркмана, автора серии комиксов «Ходячие мертвецы» (2003-2019).Производство: США / Amazon Studios, Image Comics, Skybound EntertainmentЖанр: мультфильм, ужасы, фантастика, фэнтези, боевик, триллер, драма, приключенияРежиссер: Джефф АлленАктеры: Сандра О, Дж.К. Симмонс, Стивен Ян, Зази Битц, Уолтон Гоггинс, Гиллиан Джейкобс, Джейсон Манцукас, Грэй Гриффин, Кевин Майкл Ричардсон, Закари КуинтоПеревод: Дублированный (Condor Films Studio, Red Head Sound, Flarrow Films), многоголосый (TVShows, LostFilm, HDRezka, NewComers)Субтитры: Русские (Full), украинские, английские (Full, SDH)Продолжительность: ~00:45:00 серия
+01. Arc Of Eradication (04:53)
+02. Heralding The Black Apostle (06:33)
+03. Cybernetic Eucharist (05:07)
+04. Progeny Omega (09:11)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0C1404CF660810443C0AF407B9346C191B129F8
+magnet:?xt=urn:btih:38548283445FDF45FE28EE913887B7129B476864
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,82 +291,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798588   (66622) от 22.05.2025
+###  Публикация: 1797927   (66661) от 19.05.2025
 
-Microsoft Visual Studio 2022 Enterprise 17.14.1 (Offline Cache) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Enterprise 2022 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70AB5EDF0B051A3E6A232E71A05E332DEC3CF717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798420   (66621) от 22.05.2025
-
-Владимир Пресняков – Только ты никогда (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Пресняков - Только ты никогда (Official Video)
-
-Песня «Только ты никогда» основана на реальных событиях. Она о самом большом и светлом чувстве, которое будет, несмотря ни на что, всегда жить в сердце родителей.Производство: РоссияЖанр: PopРежиссер: Надя Михалкова, Артемий АбрамовАктеры: Анастасия Тарасова, Иван Бровин, Самсонова Софья, Первакова НадеждаПродолжительность: 00:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E4F35D7ED6E581183A0643392BA4B8F0831D54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798602   (66620) от 22.05.2025
-
-Degenerate - Rituals Of Rage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
+Caliban - I`m Nemesis (2012) Released, 2023, Arising Empire [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66620.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Servitor (03:49)
- 02 - Xenon Equilibrium (03:24)
- 03 - The Cult (03:41)
- 04 - Illuminate (03:31)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:25
+A1-We Are the Many
+A2-The Bogeyman
+A3-Memorial
+A4-No Tomorrow(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C361C53339682D8EECB95A7F04445B4137A08F3
+magnet:?xt=urn:btih:CA70B4AC39FB8D2E3FCF2F44C7D27EAEBC61590C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,26 +320,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798551   (66619) от 22.05.2025
+###  Публикация: 1797921   (66660) от 19.05.2025
 
-НХЛ. Кубок Стэнли 2025. Запад - Финал. 1-й матч. Эдмонтон Ойлерз - Даллас Старз (21.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+Martoriator - Bloodpainted Visions of Perpetual Conflict (2025) [MP3|320 Kbps] <Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cannibal Dictatorship
+02. Nail Rain
+03. Chaos Protocol
+04. Red Flowers Of Nanjing(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0DE54DF19E375085BFAEE26A9206010B9BBA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798002   (66659) от 19.05.2025
+
+Виртуоз сердечных дел / Hjertevirtuosen (1916) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавная история. Прославленный и тщеславный виолончелист Карел поражает княжескую чету своей виртуозной игрой на концерте. В благодарность княгиня приглашает артиста на прогулку. Карел был очень талантлив и ... очень глуп и тщеславен. Он вообразил, что княгиня влюбилась в него и пустился во все тяжкие. Но любовь к царственным особам может быть и опасной...Производство: Дания / Dania Biofilm KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Альфред КонАктеры: Карл Альструп, Knud Lumbye, Эльза ВенгПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55E64A9728EC1E48A2BFA2F2865313D5AD5E2CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797919   (66658) от 19.05.2025
+
+Футбол. FONBET Кубок России 2024/2025. Путь регионов Финал. Спартак (Москва) - Ростов (Ростов-на-Дону) (15.05.2025) TVRip [H.264]
 
 >>Спорт и активный отдых
->>Хоккей
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66619.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-22 мая 2025, четверг. 03:00 МСК, 1/2 финала. 1-й матч. Стадион: Американ Эйрлайнс-центр (Даллас, США), 18 532 зрителя (98% при вместимости 18 889)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Франсис Шаррон (Оттава, Канада); Линейный: Трент Кнорр (Пауэлл Ривер, Канада); Линейный: Скотт Черри (Дрэйтон, Канада)Телекомпания: Setanta Storts 2Жанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 03:08:55
+«Спартак» два матча не может забить, и это большая проблема. Кризисом, наверное, назвать нельзя. Кризисом можно назвать всю весеннюю часть чемпионата, а конкретно два матча. И мы видим, как Деян Станкович нервничает: что происходит на скамейке, его жесты и поведение – всё это передаётся команде. Провальный первый тайм с «Динамо», чуть исправление ситуации во втором, (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболПродолжительность: 02:25:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D6C1A5B8F327D8918955AA26181949AABDED313
+magnet:?xt=urn:btih:7446DB940F8035BE2EA728D6A079D592015219A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798571   (66618) от 22.05.2025
+###  Публикация: 1797961   (66657) от 19.05.2025
 
-Салехард - Заочница (2025) [MP3|320 Kbps] <Chanson>
+Chris Connor - Four Classic Albums Plus (1953 - 1956) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66618.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Заочница [00:03:33]
-02 - Я тебя позову [00:04:50]
-03 - Финочка [00:03:53]
-04 - По той дороге [00:05:27](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:38:55
+01. From This Moment On [2:33]
+02. The Thrill Is Gone [2:50]
+03. Someone to Watch over Me [3:14]
+04. I Concentrate on You [3:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:37:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C198A2B8FADFCDEEDA7613C4D98D52AFF1D8B7DA
+magnet:?xt=urn:btih:58385CA090EF733AA1D20423E4537D7D93BA4CED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,28 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798477   (66617) от 22.05.2025
+###  Публикация: 1797924   (66656) от 19.05.2025
 
-Savage Oath - Divine Battle (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Warfield - With the Old Breed (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66617.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Knight Of The Night (7:20)
-02. Wings Of Vengeance (6:51)
-03. Blood For The King (6:45)
-04. Smoke At Dawn (2:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:56
+01. Melting Mass
+02. Appetitive Aggression
+03. Soul Conqueror
+04. Fragmentation(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D54CF95F88248AFB07B78327619783FB3CA6C963
+magnet:?xt=urn:btih:B026F27C061D6CEC27F74628C668A193F7B46562
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,57 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798071   (66616) от 22.05.2025
+###  Публикация: 1797848   (66655) от 19.05.2025
 
-Grails - Miracle Music (2025) [FLAC|Lossless|tracks + .cue] <Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Bells (5:10)
- 02. Primeval Lite I-III (6:35)
- 03. Earthly Life (4:44)
- 04. Homemade Crucifix (3:19)(   Читать дальше...   )Жанр: Post RockПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641879210C51A84805BDF4B694CAF9BEBD2B0946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798606   (66615) от 22.05.2025
-
-...and Oceans - The Regeneration Itinerary (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+Fear Factory - Recoded (2022) Released, 2023, Nuclear Blast [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66615.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Inertiae (04:30)
- 02 - Fornyelse i Tre Akter (05:07)
- 03 - Chromium Lungs, Bronze Optics (04:29)
- 04 - The Form and the Formless (03:32)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:21
+A1. Adapt or Die (Intro Narrative by Jake Stern, sound FX by Zardonic)
+A2. Hatred Will Prevail (Monolith Remix by Rhys Fulber)
+A3. Disobey (Disruptor Remix by Zardonic)
+A4. I Am The Nightrider (Fuel Injected Suicide Machine Remix by Dualized/Zardonic)(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:02:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B28AFB8FFCA50E5A203E4CA1F1EC71CEDEB524A
+magnet:?xt=urn:btih:606BC69336610CF1241D8E5E2924B7227192F44D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,57 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798300   (66614) от 22.05.2025
+###  Публикация: 1797823   (66654) от 19.05.2025
 
-VA - EZ Ridin’ (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steppenwolf - Born to Be Wild    [0:03:29.72]
-02. Lynyrd Skynyrd - Call Me the Breeze    [0:05:08.68]
-03. Elvin Bishop - Rollin’ Home  [0:04:58.07]
-04. Bachman–Turner Overdrive - Free Wheelin’ (instrumental)    [0:03:46.38](   Читать дальше...   )Жанр: Pop Rock, RockПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7614EFD7ED7BCF4F23B5BA964EAEA21FD9621B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798604   (66613) от 22.05.2025
-
-Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66613.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66654.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - A Miracle (05:38)
- 02 - Stormy (04:26)
- 03 - Chandelier (04:59)
- 04 - Don't Fool Me (04:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:42
+01. Dystopia (04:24)
+02. Ascent Of The Blessed (04:10)
+03. Virus (03:55)
+04. Phantom Pain (04:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00: 43:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BD0BAEEE4399FE2CB6AF34D389923B11F5C6E10
+magnet:?xt=urn:btih:4C6F9FFCD0578F4C13EDEFB94F6C52F5F74B5EAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,27 +517,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798516   (66612) от 22.05.2025
+###  Публикация: 1797970   (66653) от 19.05.2025
 
-Николай Лесков | Привидение в Инженерном замке. Маленькая ошибка (1993) [MP3, Вадим Лобанов]
+Марина Цветаева | Фортуна (Радиоспектакль) (2024) [MP3, Светлана Письмиченко, Александр Лыков и др.]
 
 >>Художественные аудиокниги и публицистика
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66612.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Звучащая библиотека. Малая проза.
-Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
-Рассказы (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:59:28
+Серия/Цикл: Театр у вас дома.
+Марина Ивановна Цветаева (1892–1941) – русский поэт и прозаик.
+«Фортуна» – пьеса в пяти картинах, в стихах, написанная в феврале 1919 года. Сюжет: история реального исторического персонажа – герцога Лозэна, жившего в эпоху Французской революции. Цветаева отобрала пять эпизодов из биографии героя и объединила их образом Фортуны…
+(   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:43:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5253B4838A8D4A0195BBF4CF6732EE1656D88101
+magnet:?xt=urn:btih:C411F2827FB0AEA062B9A400D55A5EED8535A578
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,28 +546,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798490   (66611) от 22.05.2025
+###  Публикация: 1797871   (66652) от 19.05.2025
 
-Tokyo Blade - Knights Of The Blade (2017) 4 x CD, Compilation, Remastered, Hear No Evil Recordings [FLAC|Lossless|image + .cue] <Heavy Metal>
+Confessions of a Traitor - This Pain Will Serve You (2025) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Starve [00:02:14]
+02 - Fatal Frame [00:03:19]
+03 - Doomsayer [00:03:45]
+04 - Midnight Sun [00:03:28](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E17E15FFB46AC3C266552BFB0BFCBDD2A0AE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797918   (66651) от 19.05.2025
+
+DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66651.jpg" />
+</div>
+
+
+###  Подробнее
+
+DevilDriver - американская грув-метал-группа, образованная в 2002 году в городе Санта-Барбара, Калифорния.2003 - DevilDriver
+2005 - The Fury Of Our Maker's Hand
+2007 - The Last Kind Words
+2009 - Pray For VillainsЖанр: Groove Metal/MetalcoreПродолжительность: 08:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347A2B3C6F8438A65436CE8E46E5E3C2FE99DEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797953   (66650) от 19.05.2025
+
+Monhell - A Last Sigh of Pain (2025) [MP3|320 Kbps] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fade to Dust
+02. Shadows of the Abbey
+03. Paths and Betrayal
+04. The Last Seal(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE87DF3F45D807DE5C5F6F42B77C80AC1F5889F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797875   (66649) от 19.05.2025
+
+The Sherlocks - Everything Must Make Sense! (2025) [MP3|320 Kbps] <Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Everything Must Make Sense [00:03:59]
+02 - Man on the Loose [00:03:43]
+03 - How Are You Feeling_ [00:03:42]
+04 - Death of Me [00:04:41](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D21D04E096143BADB2E5B62AF8937A9EAA96FCDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797846   (66648) от 19.05.2025
+
+Venator - Psychodrome (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66611.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66648.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1 - Tokyo Blade:
-1-1 Powergame 4:13
-1-2 Break The Chains 5:08
-1-3 If Heaven Is Hell 6:05(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 03:18:31
+01. Into the Drome
+02. Steal the Night
+03. Children of the Beast
+04. Ravening Angel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E25EA0B7B6585441169EAC085349B54ED88AB86
+magnet:?xt=urn:btih:34405F46C711E1A0D9AA0E92FB873B3FDE0D5236
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,85 +691,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798521   (66610) от 22.05.2025
+###  Публикация: 1798264   (66647) от 21.05.2025
 
-Николай Лесков | Зверь (2021) [MP3, Юрий Елагин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
-«Зверь» – рассказ (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017AE624740473EC3DC42CE7B2BB8D60E1E50B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797565   (66609) от 22.05.2025
-
-Willie Nelson - Oh What A Beautiful World (2025) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66609.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. What Kind of Love (3:42)
-2. Banks of the Old Bandera (3:26)
-3. The Fly Boy & The Kid (3:51)
-4. Forty Miles from Nowhere (4:27)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1FB5FB1D06118D027170D17A2F462D37D2FCEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798480   (66608) от 22.05.2025
-
-Anoraak - Golden Hour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <synthpop, synthwave, disco>
+Azure Riff - Thunder in My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66608.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66647.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Reasoning Heavy (2025 Remaster) [00:04:36]
-02. Tension (2025 Remaster) [00:04:30]
-03. Words (2025 Mix) [00:03:52]
-04. Family Matters (2025 Remaster) [00:05:03](   Читать дальше...   )Жанр: synthpop, synthwave, discoПродолжительность: 01:26:07
+01.  Gone Too Soon (4:26)
+02.  You Cannot Break a Broken Heart (3:37)
+03.  Blues Got You (3:43)
+04.  Now She's Saying She's Pregnant (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DF3A8D4F15FC6C2A075DF388A062BA7F8EE0E0F
+magnet:?xt=urn:btih:A575A373CE268AC03070DF40D0CDE0CB4EA8C784
 ```
 
 https://mybot314.ru/tekegram_catalog/

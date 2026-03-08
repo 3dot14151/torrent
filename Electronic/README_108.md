@@ -1,3 +1,61 @@
+###  Публикация: 1114340   (833802) от 14.03.2017
+
+VA - Chill out Collection to Lift Your Soul Vol.5 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cracked - Syne
+02. Luminodisco - La mission
+03. Julian Maier-Hauff - Digging for Gold
+04. Leandro Da Silva - T.U.C. - Chills Mix(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD07C0DD89DA34F1E83878EF3CD2DF26F1646FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501818   (833751) от 11.10.2021
+
+Artefact - Agit' Pop (1981) LP [MP3|320 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Match (3:30)
+02. Soviet Comet (5:01)
+03. M.A.E. (3:24)
+04. Sex Computer (3:31)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:894C2FFC1E7F005CC3BFD5B87D373C0F3657B6F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114413   (833734) от 14.03.2017
 
 VA - Deliberate Mistakes (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
@@ -685,64 +743,6 @@ Phillip Sollmann | Efdemin - Discography 24 Releases (2005-2019) Curle Recording
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AC80CC99A4D03D118EF7B66DB052992340A8501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380642   (831210) от 04.05.2020
-
-VA - Love Ibiza & House Music (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Deep House, Minimal, Tech House>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Delon - The Bride Sold (Edit) (3:10)
-02. Sinthon - Kid Brother (Boys Mix) (3:12)
-03. Human House - Deep Stringse (Fantastic House Fools Mix) (2:40)
-04. Mental Department - Closed (Underground Mix) (3:15)(   Читать дальше...   )Жанр: Deep House, Minimal, Tech HouseПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A446C1EDA0C39DF977E2F115537C68E7C5301293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005748   (831065) от 10.04.2016
-
-JIN SHI - My Digital Madness (2013) [MP3|320 кб/с] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831065.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. JIN SHI - My Digital Madness (continuous DJ mix) (01:17:35)
-01. Four Tet - Lion (Jamie XX Remix) (5:25)
-02. Erdbeerschnitzel - Cushion (Original Mix) (4:40)
-03. Archie Pelago feat. Becca Stevens - Avocado Roller (Original Mix) (3:34)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:35:03 (01:17:35 + 01:17:28)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADBE694E89110B5518C721631FAFAC804C44E52
 ```
 
 https://mybot314.ru/tekegram_catalog/

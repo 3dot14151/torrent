@@ -1,3 +1,61 @@
+###  Публикация: 1030475   (674688) от 30.06.2016
+
+S'express - Enjoy This Trip (2016) [FLAC|Lossless|tracks] <House, Deep House, Soul>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme From S'Express (Tom Furse Update) (4:37)
+02. Pimps Pushers Prostitutes (Horsemeat Disco Remix) (feat. Billie Ray Martin) (5:47)
+03. Hey Music Lover' (Punks Jump Up Excursion Album Version) (4:01)
+04. Mantra Mania (Monarchy Remix) (4:53)(   Читать дальше...   )Жанр: House, Deep House, SoulПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:094636209A8D00565F30FD04210E13A9FBEAC097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030617   (674572) от 30.06.2016
+
+VA - In The Mix 002 - Progressive Sessions (Mixed by Audio Noir) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manu Delago - Chemical Reaction (feat Rahel) (7:05)
+02. Lux Departure - Twenty Forty Six (Yoky Playground remix) (7:20)
+03. Moonbeam - Black Skies (feat Loolacoma - extended mix) (7:07)
+04. Dofamine - Moon (8:35)(   Читать дальше...   )Жанр: Progressive House, Tech House, TechnoПродолжительность: 05:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5564A9D456A1338EFAFD3472B459845C6B78B211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536593   (674471) от 12.03.2022
 
 The Prodigy - More Music For The Jilted Generation (1994) 2CD Compilation, Remastered, 2008 [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Techno, Big Beat>
@@ -686,64 +744,6 @@ VA - Dance Essentials Vol.10 (2019) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A942A76133FDE7937B9153E9659F8760EC1C4D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291256   (672463) от 23.03.2019
-
-VA - Mind the Gap #137 (2019) Gonzo Circus [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Indie>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aquarian - Ten Years (Leather Jacket Mix)
-02. Li Yilei - 05:28
-03. Zero Years Kid - Alles komt wel uit
-04. Deadline Paranoia - Summer of 87(   Читать дальше...   )Жанр: Electronic, Ambient, IndieПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6D859017AC38C2125BE5FE35BE4E5518CE0858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291180   (672459) от 23.03.2019
-
-VA - Songspire Records In Miami (2019) [MP3|320 Kbps] <House, Deep House, Melodic House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klunsh - Anyway (Original Mix) 3:30
-02. Rue & Alastor - Contact (Gallago Remix) 4:19
-03. Rui - Acceptance (ALMA (GER) Remix) 4:11
-04. Arturia - Canella (Original Mix) 3:24(   Читать дальше...   )Жанр: House, Deep House, Melodic House, Progressive HouseПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3246459A69C4413638E0226E268E65CA56E6CF75
 ```
 
 https://mybot314.ru/tekegram_catalog/

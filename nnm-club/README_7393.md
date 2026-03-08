@@ -1,109 +1,25 @@
-###  Публикация: 1280600   (760538) от 03.02.2019
+###  Публикация: 1280525   (760628) от 03.02.2019
 
-Ancient Bards - Origine (The Black Crystal Sword Saga Part 2) (2019) Japanese Edition [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760538.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:15] 01 - Origine
-[5:41] 02 - Impious Dystopia
-[4:51] 03 - Fantasy's Wings
-[5:42] 04 - Aureum Legacy(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1D0271DEE195CB6EE5EA475B19B8856AD5E0E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280363   (760537) от 03.02.2019
-
-VA - Ethneomystica Vol. 7 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psydub, Psychill>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hinkstep - Eyes Goodbye (10:29)
-02. Chronos - Erbium (08:48)
-03. Entheogenic - Panspermia (07:09)
-04. Globular - The Zeno Effect (09:19)(   Читать дальше...   )Жанр: Downtempo, Psydub, PsychillПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D6D126EC5B60A4B609E6143C2DC844CF705F100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280639   (760536) от 03.02.2019
-
-Brave Browser 0.59.34 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDEEF7A9DCF8BD5A6459A7583598246967EF072B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005557   (760535) от 03.02.2019
-
-Phil Von - Discography 4 Releases (2001-2019) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, Electro, IDM, Tribal>
+Fortunato & Montresor - Imagine (Original & Reissue) (1997 / 2003) Elektrolux, Bedrock Records [FLAC|Lossless|tracks+.cue, tracks] <Progressive House, Breaks, Deep House>
 
 >>Electronic
->>IDM (Lossless)
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760535.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760628.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Exhaler La Nuit (05:10)
- 02. Capsized Poetry (05:22)
- 03. Modern Times Nostalgia (05:19)
- 04. Where Is The Other Side? (05:19)(   Читать дальше...   )Тип издания: CD, WebЖанр: Abstract/Ambient/IDM/SoundtrackПродолжительность: 00:52:56
+01. Imagine (Radio Edit) (03:49)
+ 02. Imagine (Imagination 1) (06:42)
+ 03. Imagine (Chris Fortier Dub) (08:29)
+ 04. Imagine (Chris Fortier Remix) (10:42)(   Читать дальше...   )Тип издания: CD, WebЖанр: Progressive House/Breaks/Deep HouseПродолжительность: 00:40:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44919D853CCE37ECED965775FB430E2EA04D0EBD
+magnet:?xt=urn:btih:16BC443775FFBD0ECB1A0B570127AA91425895F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280524   (760534) от 03.02.2019
+###  Публикация: 1280310   (760627) от 03.02.2019
 
-VA - Jam Electronic House (2019) [MP3|320 Kbps] <House, Dance, Club, Electro>
+VA - German Top 50 Official Dance Charts 01.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760534.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760627.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cat Dealers - Infinity
-002. Benny Montaquila Dj - In Pure Love
-003. Zviangy - All Around
-004. Findike - Our Story Love (Original Mix)(   Читать дальше...   )Жанр: House, Dance, Club, ElectroПродолжительность: 08:30:58
+01. Robin Schulz - Speechless (feat. Erika Sirola)
+02. Hugel - WTF (feat. Amber Van Day)
+03. Chic - Le Freak (Oliver Heldens Remix)
+04. Picco - Cubano(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:00:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BC5BAB92B4FBF6874D8BC8519DB6416B052D721
+magnet:?xt=urn:btih:384762A18BFCB3910BF3AD6E9C2DF0AABC730D4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,385 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280529   (760533) от 03.02.2019
+###  Публикация: 1280404   (760626) от 03.02.2019
 
-Waterfox 56.2.7.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открытый браузер, созданный на основе Mozilla Firefox для 64-разрядных систем. Поскольку официальной версии Firefox для 64-разрядной операционной системы macOS долгое время не существовало, Waterfox являлся (и продолжает являться) его довольно хорошей заменой. По утверждению разработчиков, Waterfox ориентирован на высокую скорость работы. Он собран компилятором Intel (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2019Разработчик: Mozilla Inc.Поддерживаемая ОС: macOS 10.5 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C87A0025FE24281B08F3BB31D3C4A6843FFD5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280431   (760532) от 03.02.2019
-
-VA - Sweet Vocal Lounge (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonnight, Natune - I Need a New Love (Original Mix) 03:45
-02. Alex Field, Natune - Wake Me (Bryan Milton Remix) 05:31
-03. Seven24, MAA, R.I.B. - Frozen (Original Mix) 05:01
-04. Marga Sol - Beautiful Morning (Deep Mix) 03:53(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272A65CE3F505D9788293B344569E484BD40C18C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280541   (760531) от 03.02.2019
-
-VA - Best Chill Out & Ambient Music For Sleep (2019) [MP3|320 Kbps] <Chill-Out, Lounge, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BabbaSouls - Hugging You (6:27)
-02. Mantrox - Arena De Playa (5:58)
-03. Mountains, Rivers - Eternal Heart (4:51)
-04. Zunnas Meditation - On The Bed (4:50)(   Читать дальше...   )Жанр: Chill-Out, Lounge, AmbientПродолжительность: 02:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3382B65E20A7F41D3AF1826C28EBBCE8E8749A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280475   (760530) от 03.02.2019
-
-Jann Beaudry - Legere (2019) [MP3|320 Kbps] <Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isi a
-02. Paris perdu
-03. Ce matin
-04. Le second soir(   Читать дальше...   )Жанр: EthnicПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6DBAFC3DCB581B65034651DFB2356C6868AE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280477   (760529) от 03.02.2019
-
-Beyond the Invisible 2: Darkness Came (2017) [En] (1.0) Unofficial [Platinum Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на немалый опыт детектива, вы все таки попали в ловушку. Сможете ли вы выйти за пределы этого мира и сразиться с Тьмой в самом ее логове? Или станете очередной жертвой?Тип издания: UnofficialРазработчик: Graphium StudioЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE118740176B2D42F25FD92694E4902FA9057F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280455   (760528) от 03.02.2019
-
-VA - Record Super Chart 572 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Axwell - Nobody Else
-02.  Fisher  -  Losing It
-03.  Merk & Kremont - Sushi
-04.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3E4230A19EA4EB8D33E8D67A6EC4103C88217D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280410   (760527) от 03.02.2019
-
-Dark City: London (2017) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон близок к празднованию открытия крупнейшей в мире башни с часами, пока не появляется безголовый призрак, угрожающий уничтожить Лондон и убить сотни людей на церемонии открытия. Исследуйте темные переулки и собирайте подсказки, чтобы выследить убийцу и разблокировать смертельные тайны, скрытые внутри башни с часами.Тип издания: UnofficialРазработчик: 4 Friends GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D341955DFFED8A4447DB346551348873324D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280286   (760526) от 03.02.2019
-
-TSR Watermark Image 3.6.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watermark Image - приложение для нанесения так называемых "водяных знаков" на фото и иные изображения. Программа позволяет использовать в качестве такого знака как текст, так и графику. Водяной знак может быть настроен - пользователь волен выбрать цвет, уровень прозрачности, расположение и его размер (в процентах). Поддерживается программой изменения размера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB10CED1C7D33C1890775F2C9901ACE0E656FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280568   (760525) от 03.02.2019
-
-Даниэль Шенпфлуг | Время кометы. 1918. Мир совершает прорыв (2019) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркой вспышкой кометы оказывается 1918 год для дальнейшей истории человечества. Одиннадцатое ноября 1918 года - не только последний день мировой войны, швырнувшей в пропасть весь старый порядок. Этот день - воплощение зародившихся надежд на лучшую жизнь. Вспыхнули новые возможности и новые мечты, и, подобно хвосту кометы, тянется за ними вереница картин и лиц.
-
-В (   Читать дальше...   )Жанр: Исторические науки, Всемирная историяПеревод: Ирина АлексееваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD08949A30C813482564169A0354C9DB29AC6450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394862   (760524) от 07.07.2020
-
-Журнал | Losange Magazine №54 (июль 2020) [PDF] [Nl]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_760524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал посвящен автомобильной марки Renault.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394914   (760523) от 07.07.2020
-
-Виктория Ледерман | Светлик Тучкин и Пузырь желаний (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Светлик Тучкин ходил в детский сад, он мечтал поскорее стать школьником. Ведь в школе не заставляют спать днем, там очень весело и интересно!
-
-Но, став первоклассником, мальчик понимает: учить уроки ему не нравится, а в детсаду было гораздо лучше. Поэтому во время шоу мыльных пузырей, которое проводит для детей настоящая Фея Желаний, Светлик загадывает возможность (   Читать дальше...   )Жанр: Детская литература, Приключения, ФантастикаПродолжительность: 03:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24D9930FC3473B5C5BE67DE74ACAF08737B9340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394814   (760522) от 07.07.2020
-
-Neru Thee Fourth Fugee - The Almanac (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Trip Hop, Neo Soul>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doom (4:08)
-02. The Tzolkin (3:47)
-03. Apple Of Antagonism (4:17)
-04. 30 Billion (Doesnt Matter) (5:00)(   Читать дальше...   )Жанр: Hip-Hop, Trip Hop, Neo SoulПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36A7AB0A710BB57A3C62FA55355808C77EEDBF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394924   (760521) от 07.07.2020
-
-Heraw - You Won't Play (Ultra Mood Kick Edit) (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Won't Play (Ultra Mood Kick Edit)Жанр: HardstyleПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07545D97D69AD7250FF7B9D893F8C73CF5307FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394803   (760520) от 07.07.2020
-
-Black Light Animals - Playboys Of The Western World (2020) [MP3|320 Kbps] <Rock, Psychedelic Rock>
+Methods Of Mayhem - A Public Disservice Announcement (2010) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760520.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760626.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dark Fantasies (04:20)
- 02. Golden Child (04:54)
- 03. Special FX (02:56)
- 04. The Revolution's After Party (03:08)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:38:44
+01. Drunk Uncle Pete (2:47)
+ 02. Time Bomb (3:23)
+ 03. Louder (4:38)
+ 04. Fight Song (3:57)(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Hard RockПродолжительность: 00:52:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89A8C9FBCE7F71DD4C19B169B2875EF3291444D7
+magnet:?xt=urn:btih:6274441CCAB59FE12FC74B6566F7D5F1EF206BE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,28 +85,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394889   (760519) от 07.07.2020
+###  Публикация: 1279853   (760625) от 03.02.2019
 
-VA - Twelve (2001) TIP.World [FLAC|Lossless|tracks+.cue] <Ambient, Psychill>
+Хари Нараян Апте | Чандрагупта (2019) [MP3]
 
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760519.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760625.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Logic Bomb - A (05:56)
- 02. Bus & Siddartha - D (06:20)
- 03. Cyberbabas & Paul - G (06:14)
- 04. Process - C (06:01)(   Читать дальше...   )Жанр: Ambient, PsychillПродолжительность: 01:12:01
+Роман «Чандрагупта», принадлежит перу одного из крупнейших писателей Индии, родоначальника художественной прозы на маратхи — Хари Нараяна Апте.
+Чандрагупта — основатель династии Маурьев, в IV веке отвоевал у греков исконно индийские земли и сумел объединить страну после ухода войска Александра Македонского.Жанр: Историческая прозаПродолжительность: 11:05:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDE4CBFAA1F06D711BD52CAD448EE05FCF91F93D
+magnet:?xt=urn:btih:341B1EE1B03A3717833C1FD249869470A0DA2E22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,54 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394930   (760518) от 07.07.2020
+###  Публикация: 1280334   (760624) от 03.02.2019
 
-Журнал | Elle Sweden №8 (август 2020) [PDF] [Se]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elle, женский журнал о моде и моде в мире. Его страницы приблизят вас к миру моды, эстетики, последних тенденций, культурного авангарда, социальных вкусов или любого прогресса, направленного на улучшение вашего стиля жизни.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274488BC9A7A458F78C0ED4E4F2A3C09938A92ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394819   (760517) от 07.07.2020
-
-Moses Boyd - Dark Matter (2020) [FLAC|Lossless|Web-DL|tracks] <Contemporary Jazz, Nu Jazz, Electronic, Hip-Hop>
+Ant Law - Life I Know (2018) [FLAC|Lossless|tracks+.cue] <Contemporary Jazz, Fusion>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760517.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760624.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stranger Than Fiction (4:55)
-02. Hard Food (Interlude) (1:00)
-03. B.T.B (6:00)
-04. Y.O.Y.O (5:31)(   Читать дальше...   )Производство: Exodus RecordsЖанр: Contemporary Jazz, Nu Jazz, Electronic, Hip-Hop, Trip Hop, GrimeПродолжительность: 00:50:18
+01. Movies. 4:52
+02. Searching. 2:40
+03. Aquilinus. 7:45
+04. Pure Imagination. 2:50(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:41:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03EC23D774278C6A9EC274F5B9E401CFE08E91D0
+magnet:?xt=urn:btih:3839CE322AFD9E918F58B9AA365A456863579B35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,28 +141,462 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394709   (760516) от 07.07.2020
+###  Публикация: 1280579   (760623) от 03.02.2019
 
-Moonlight Haze - Lunaris (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal, Female Vocal>
+Paperless 3.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paperless - поможет создать базу данных эллектронных документов, где пользователи смогут каталогизировать, управлять и просматривать документы в удобном и доступном виде. Paperless поможет отсканировать чеки, отчеты и другие бумажные документы, а система OCR распознает их и использует полученную информацаю для заполнения соответствующих полей. А внести в базу электронные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2019Разработчик: MarinersoftwareПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C342DAE09588B7600D01834C8E55FC12ED6EEC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394850   (760622) от 07.07.2020
+
+Andre Previn - Plays Songs By Harold Arlen 1960 (1994) Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Old Black Magic [4:36]
+02. Come Rain or Come Shine [4:38]
+03. My Shining Hour [3:42]
+04. Happiness Is a Thing Called Joe [4:32](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194A9BF809C9927C0DEA8480CB11CC9E4CA98B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394744   (760621) от 07.07.2020
+
+Журнал | Autopista [ES] №20 (май 2020) [PDF] [Es]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autopista является журналом декана автомобильного сектора в Испании и справочником для экспертов и читателей в целом. На его страницах вы найдете общую информацию об отрасли, новости о продуктах, тщательный анализ моделей с помощью тестов и сравнений, а также обо всем, что происходило каждую неделю в основных спортивных событиях автомобиля. Кроме того, каждую неделю (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0751208EC88B7DA910E5BB538EB1F6F02C374629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394742   (760620) от 07.07.2020
+
+Журнал | Autopista [ES] №24 (июнь 2020) [PDF] [Es]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autopista является журналом декана автомобильного сектора в Испании и справочником для экспертов и читателей в целом. На его страницах вы найдете общую информацию об отрасли, новости о продуктах, тщательный анализ моделей с помощью тестов и сравнений, а также обо всем, что происходило каждую неделю в основных спортивных событиях автомобиля. Кроме того, каждую неделю (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563B568CC19ACCDD9DE292F48FA3A8944ED312C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394749   (760619) от 07.07.2020
+
+Журнал | Autopista [ES] №22 (май 2020) [PDF] [Es]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autopista является журналом декана автомобильного сектора в Испании и справочником для экспертов и читателей в целом. На его страницах вы найдете общую информацию об отрасли, новости о продуктах, тщательный анализ моделей с помощью тестов и сравнений, а также обо всем, что происходило каждую неделю в основных спортивных событиях автомобиля. Кроме того, каждую неделю (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA01E5505DDBE1899191DE6B7BAAAE8912670A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394845   (760618) от 07.07.2020
+
+Yank Lawson-Bob Haggart Jazz Band - Jelly Roll's Jazz & Louis' Hot 5's And 7's 1951, 1954 (2007) Membran Music [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Porter Stomp [3:16]
+02. Dead Man Blues [3:14]
+03. Wolverine Blues [3:05]
+04. Jelly Roll Blues [3:29](   Читать дальше...   )Жанр: SwingПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE166F82169066515206D02F8111FBB79275EF06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394747   (760617) от 07.07.2020
+
+Журнал | Autopista [ES] №9 (февраль 2020) [PDF] [Es]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autopista является журналом декана автомобильного сектора в Испании и справочником для экспертов и читателей в целом. На его страницах вы найдете общую информацию об отрасли, новости о продуктах, тщательный анализ моделей с помощью тестов и сравнений, а также обо всем, что происходило каждую неделю в основных спортивных событиях автомобиля. Кроме того, каждую неделю (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D0CA4524C80762CB82F2040552FAF7FABDE511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394741   (760616) от 07.07.2020
+
+J.T. Wilde - Enjoy the Show (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enjoy the Show (03:27)
+ 02. One Last Drag (03:46)
+ 03. Beautiful Black Sky (03:40)
+ 04. Digital Soldiers (03:22)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF0A518B602CE73E870E50DC6F32B0A03CE44AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394761   (760615) от 07.07.2020
+
+Журнал | Auto Bild España №26 (июнь 2020) [PDF] [Es]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый продаваемый еженедельный универсальный автомобильный журнал в Испании. Направленный на всех поклонников автомобильного мира, он очаровывает даже читателей, которые не привыкли покупать автомобильные журналы. Надежный и строгий в обработке информации. Это практично, понятно, просто и прямо во всех темах. Он предлагает читателю все, что его интересует: эксклюзивные (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFB19002E57863D7DF1F9826A3BCED9DCF2246E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394837   (760614) от 07.07.2020
+
+Сто к одному (05.07.2020) WEBRip [H.264] [MP4|1280x720]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_760614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394806   (760613) от 07.07.2020
+
+Megatherium - GOD (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (generate) (2:51)
+02. The One (6:33)
+03. The Holy (6:09)
+04. The Truth (8:20)(   Читать дальше...   )Производство: Argonauta RecordsЖанр: Doom Metal, Stoner RockПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CF002614196A0AC48A7D882ADB0E79D0D1238C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394852   (760612) от 07.07.2020
+
+Ella Fitzgerald & Andre Previn - Nice Work If You Can Get It (1983) Pablo [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Foggy Day [6:10]
+02. Nice Work If You Can Get It [5:16]
+03. But Not for Me [3:55]
+04. Let's Call the Whole Thing Off [2:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6D98369B512A9337FB9B0EA03D411445403613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394859   (760611) от 07.07.2020
+
+Журнал | Car Plus №6 (июнь 2020) [PDF] [Cn]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Car Plus - Основанный с 1993 года, Car Plus является самым профессиональным и самым продаваемым автомобильным журналом в Гонконге. Журнал собирает самые информативные и обширные автомобильные новости, позволяя читателям не отставать от постоянно меняющегося автомобильного рынка.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1401E7686A82C3C5B0A56EB70121718F9CE751FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394867   (760610) от 07.07.2020
+
+Журнал | NZ Hot Rod №7 (июль 2020) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издается с 1967 г. NZ Hot Rod посвящен Hot Rodding. От традиционных и современных Hot Rods до уличных машин, Muscle Cars и гоночных автомобилей, в NZ Hot Rod есть все. Кроме того, есть освещение многих из 100 или около того горячих событий, в том числе Дрэг встречается по всей Новой Зеландии и за рубежом. В NZ Hot Rod также есть персоны, которые делают все возможное, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D12788AAFB0ACF3040E3E0DABEB00127527841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394786   (760609) от 07.07.2020
+
+Fire Tiger - All The Time (2020) [MP3|320 Kbps] <Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Take Me Home (02:27)
+ 02. So Many Fishes (03:51)
+ 03. Magical Brew (02:50)
+ 04. Undeniable (04:05)(   Читать дальше...   )Жанр: Rock, Melodic RockПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A2DE7C966DBE4E4B5770AAFBF0F2618B1D4BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394759   (760608) от 07.07.2020
+
+Журнал | Auto Zeitung Classic Cars №8 (август 2020) [PDF] [De]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Classic Cars предлагает любителям подержанных классических автомобилей из прошлого все, что душе угодно. С классическими автомобилями вы получаете подробные отчеты каждые два месяца, а также множество фотографий ретро автомобилей прямо у вас дома.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097C9AA3D2DF7B83F16360CAFB055F469A3751C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394854   (760607) от 07.07.2020
+
+The Last Renegades - Valley of the Kings (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760516.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Till The End (03:34)
- 02. The Rabbit Of The Moon (03:54)
- 03. Lunaris (03:57)
- 04. Under Your Spell (03:49)(   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, Female VocalПродолжительность: 00:51:57
+01. Colonel Kill (07:56)
+ 02. Mr Smile (04:18)
+ 03. 300 Strong (05:49)
+ 04. Valley of the Kings (06:34)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:58:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:068474E3C86E6FC4B8859C8614C0545B873F1664
+magnet:?xt=urn:btih:A35BF227D348E9624E14D8274550ECB38B2F0496
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,28 +604,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394887   (760515) от 07.07.2020
+###  Публикация: 1394676   (760606) от 07.07.2020
 
-VA - Workout Body Man Extreme (2020) [MP3|320 Kbps] <House, Dance>
+Operus - Score Of Nightmares (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760515.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Stan Kinley - The Party G (4:49)
-2. Yuri Salgado - Small Circle of Friend (3:43)
-3. Quentin - Dream X (4:33)
-4. Leo DJ - Bear Music (6:15)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:05:07
+01. Overture of Madness (01:25)
+ 02. Phantasia (05:33)
+ 03. Lost (05:04)
+ 04. Dance with Fire (05:38)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 00:48:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7674F83ADF3BED756034D25E7DDC06D7D77AA8E
+magnet:?xt=urn:btih:7B5D11F7EF5061E408247BA3B4D12AB017CF9AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,28 +633,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394825   (760514) от 07.07.2020
+###  Публикация: 1394670   (760605) от 07.07.2020
 
-VA - Chasing Sunrise: Heroes Of Modern Rock Vol.02 (2020) [MP3|320 Kbps] <Rock, Hard, Alternative>
+Ergus - Insomnium (2020) [MP3|320 Kbps] <Symphonic Metal>
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760514.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. The Silence - Sarabande
-002. Stonefield - The Eyes Of The Dawn
-003. Gatsby In A Daze - Summer Mushi
-004. The Morganatics - Gloria(   Читать дальше...   )Жанр: Rock, Hard, AlternativeПродолжительность: 08:05:49
+01. Ride into Darkness (01:06)
+ 02. Sleep Paralysis (03:55)
+ 03. Something to Believe (The Awakening) (04:26)
+ 04. Doubts (05:16)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:44:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25E3212C7D0B1F49FC4977942FBC454BB8F85BB2
+magnet:?xt=urn:btih:0D980AA030F2FC4194389CF9D01E6330DA50C8C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,28 +662,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394801   (760513) от 07.07.2020
+###  Публикация: 1017493   (760604) от 17.05.2016
 
-VA - Acoustic Sing Along (2020) [MP3|320 Kbps] <Pop>
+Три девятки / Triple 9 (2016) HDRip
 
->>
->>
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_760513.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lady GaGa - Million Reasons
-02. The Living End - White Noise (Acoustic)
-03. Swedish House Mafia, John Martin - Don't You Worry Child (Acoustic Version)
-04. Ladyhawke - My Delirium (Acoustic)(   Читать дальше...   )Жанр: PopПродолжительность: 02:21:52
+Сюжет разворачивается вокруг компании коррумпированных копов, решившихся на крупное ограбление. Но ради того, чтобы выйти сухими из воды, им необходимо убить кого-то из своих.
+Название «999» — соответственно — восходит к коду опасности американских полицейских.Производство: США / Open Road Films, Worldview Entertainment, Sierra PicturesЖанр: Боевик, Криминал, ДрамаРежиссер: Джон ХиллкоутАктеры: Вуди Харрельсон, Норман Ридус, Кейт Уинслет, Кейси Аффлек, Чиуител Эджиофор, Галь Гадот, Аарон Пол, Тереза Палмер, Энтони Мэкки, Клифтон Коллинз-мл., Мишель АнгПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:55:45Реклама: Отсутствует.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A5A73D153D8E3D4B376AEB8B62A4D43AB304288C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017404   (760603) от 17.05.2016
+
+Сваты (2009) WEB-DLRip (сезон 3, серии 1-12 из 12)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные герои сериала «Сваты» — девочка Женя и ее такие разные бабушки и дедушки: городские интеллигенты Ковалевы и типичные сельские жители Будько.
+Родители Женечки — Маша и Максим — уезжают в Голландию и оставляют дочь в поселке на попечение Будько. Ковалевы приезжают помочь присмотреть за любимой внучкой, а заодно подготовить ее к поступлению в лицей! Так под (   Читать дальше...   )Производство: Украина / "Студия Квартал-95", телеканал "Интер"Жанр: семейная комедияРежиссер: Андрей ЯковлевАктеры: Людмила Артемьева, Фёдор Добронравов, Татьяна Кравченко, Анатолий Васильев, София Стеценко, Николай Добрынин, Маргарита Шубина и др.Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2ECC3AFE5FC8AA1F7E5FEA2F6C0BA0D3BCD3BB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

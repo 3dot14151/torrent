@@ -1,3 +1,90 @@
+###  Публикация: 1193762   (261986) от 22.12.2017
+
+VA - Alpine Grooves IX (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joris Voorn & Kid A – So Long (Christian Loeffler Remix) (05:07)
+02. Liza Flume & Alexander Remus – Sheets (06:03)
+03. SAAND – Mysterious Power (Powel Remix) (06:30)
+04. Just Her – Follow You Down (07:48)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F32696ABF87DE6E06820FFBD6CFF6FD972419A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193615   (261974) от 22.12.2017
+
+VA - Nothing But... Essential Nu-Disco, Vol. 3 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olej – Submarine (TeckSound Remix) (06:06)
+02. Mieczyk & Funky Dee – Feel It In Your Soul (Daniel Puz Remix) (06:28)
+03. Woobtech – Beautiful Lie (06:46)
+04. Oliver Schmitz, Micah Sherman & Deniz Reno – Waiting (05:45)(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 02:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E252AA8002B88F892AD0960222ACE9D7A95FE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193709   (261963) от 22.12.2017
+
+VA - Twelve Inch Nineties: Feels Like Heaven (2017) [FLAC|Lossless|WEB-DL|tracks] <House, Euro-House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Groove Armada feat. Gram'ma Funk  -  I See You Baby (Fatboy Slim Remix)  5:45
+02.  Robert Miles  -  Children (Dream Version)  7:35
+03.  Urban Cookie Collective  -  Feels Like Heaven (Extended To The Max Mix)  5:59
+04.  Rozalla  -  Are You Ready To Fly (Rainbow Mix)  6:58(   Читать дальше...   )Жанр: House, Euro-HouseПродолжительность: 03:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3C896D3DB964448A293190588FA6EE106E4E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193887   (261800) от 23.12.2017
 
 Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -672,93 +759,6 @@ VA - Miami Downtempo Hits 2023 [FLAC|Lossless|tracks] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:341B4A61ACA8D58F601C0EA84B2C4343FABBE1AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462336   (241087) от 14.04.2021
-
-O-Wells - Subfriction (2021) a.r.t.less [FLAC|Lossless|WEB-DL|tracks] <Detroit Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gemini (05:30)
- 02. Iscnue (06:46)
- 03. Scope (04:38)
- 04. Headspace (05:41)Жанр: Detroit TechnoПродолжительность: 00:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583D330E84D226D421920D9F86F5B3A8E6582AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462444   (241056) от 14.04.2021
-
-RAC - RAC_UNRELEASED (2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Breakbeat, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UNTITLED_UNR (07:12)
- 02. TRYBE_UNR (06:18)
- 03. STORM_UNR (05:16)
- 04. AQUAPLANE_UNR (06:49)(   Читать дальше...   )Жанр: Techno, Electro, Breakbeat, AcidПродолжительность: 01:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E462DC1B89C9E1163E7C351AB5DAD7856495B55F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453399   (240581) от 18.08.2022
-
-RÜFÜS DU SOL (RUFUS DU SOL) - Collection 7 Releases (2014-2022) [FLAC|Lossless|tracks + .cue, tracks] <EDM, Indie Pop, Electro House, Deep House, Synthpop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Next to Me (Vintage Culture Remix) (6:22)
-02. Make It Happen (Dom Dolla Remix) (4:27)
-03. See You Again (Carlita Remix) (4:14)
-04. I Don't Wanna Leave (Innellea Remix) (6:23)(   Читать дальше...   )Жанр: EDM, Indie Pop, Electro House, Deep House, Synthpop |Продолжительность: 01:31:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38773801BA0A0B6FFDC0A1D15AA6AE3D52B68B53
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1586766   (215638) от 27.10.2022
+
+Bjork - Fossora (2022) [FLAC|Lossless|image + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_215638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atopos
+02. Ovule
+03. Mycelia
+04. Sorrowful Soil(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B890FBE5C050C6EF70D5251E0E2369FE89C74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966811   (215537) от 19.12.2015
+
+МакSим - Хорошо (2015) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_215537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любовь алого цвета
+02. Золотыми рыбками
+03. Иди
+04. В лето(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7600B585C4F5F086B7FA8188405306D86CC9446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514716   (215338) от 04.12.2021
 
 Digital Emotion - Moving to the Top / Supernova (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Disco, Electronic>
@@ -688,64 +746,6 @@ Riccardo Fogli - I Grandi Successi (2008) 2CD [FLAC|Lossless]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19961003A615EF5597453B61AC85D549C562DB21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638140   (212056) от 07.06.2023
-
-VA - Pop Blockbusters 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troye Sivan - Angel Baby
-02. Shawn Mendes - Treat You Better
-03. Maroon 5 - Animals
-04. The Weeknd - Out of Time(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DBE4A405EFF39C1856AD42BC36505B4AF20E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 630651   (211738) от 22.10.2022
-
-Zоряна - Play (2012) [FLAC|lossless|tracks + .cue] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Включаю iPlay (03:54)
-02. Кіно (03:17)
-03. Мохіто (03:12)
-04. Квітка (03:00)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C545CB92F319A9C66F50370EABDBDFCC45737FB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

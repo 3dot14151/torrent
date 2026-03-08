@@ -1,3 +1,58 @@
+###  Публикация: 1495042   (884425) от 10.09.2021
+
+Patty Ryan - You Are My Lover (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are My LoverЖанр: Italo-Disco, Euro-DiscoПродолжительность: 00:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E92671E96B1EC22334EFF90CFF069E9C4836230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995267   (884399) от 11.03.2016
+
+Mandy - Mandy (1988) [FLAC|Lossless|image + .cue] <Europop, Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный и единственный альбом!01. Stay With Me Tonight
+02. I Just Can't Wait
+03. Victim Of Pleasure
+04. Duel(   Читать дальше...   )Жанр: Europop, Synth-PopПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFDF856943C5045E3F0BBA4FFB449167D2E1E4BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 870785   (884193) от 19.02.2015
 
 VA - Pure... 90s Dance Party (2010) Box Set, 4CD [FLAC|Lossless]<Dance, Pop, Rock, Pop-Rock>
@@ -689,64 +744,6 @@ Spagna - Dedicated To The Moon (1987) 1988, Epic International (Tokyo Japan) [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C239FB684BD937FAD3440F1012BC8769BE55CFD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996251   (880832) от 13.03.2016
-
-Николай Эрденко - Старинные романсы (LP) (1975) [MP3|320 кб/с] <Романс>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Всё, как прежде, всё та же гитара
-02. О, если б мог выразить в звуке
-03. Отрада
-04. Калитка(   Читать дальше...   )Жанр: РомансПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD96A31069F77898E2C2F1BA6C674BC8725CC3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495487   (880718) от 12.09.2021
-
-Света - Не надо больше  (2005) [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Я запру дверь
-02 Не надо больше
-03 Ночь
-04 Не называй(   Читать дальше...   )Жанр: РорПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3030C0ECF3F03862731C1CDC4966A809A294BCED
 ```
 
 https://mybot314.ru/tekegram_catalog/

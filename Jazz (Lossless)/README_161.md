@@ -1,3 +1,38 @@
+###  Публикация: 374646   (515660) от 12.08.2011
+
+Shakatak - Street Level (1993) [APE|Lossless]<Jazz, Soul-Jazz, Jazz-Funk, Soul-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Day At A Time (3:57)
+02. Street Level (4:08)
+03. Sleepin' Alone (4:27)
+04. Siberian Breeze (3:36)
+05. Anyway You Want It (3:48)
+06. The Night Ain't Over Yet (4:12)
+07. Watchin' The Rain (4:19)
+08. Without You (4:29)
+09. Jump 'N' Pump (3:39)
+10. Empty Skies (5:01)(   Читать дальше...   )Жанр: Jazz, Soul-Jazz, Jazz-Funk, Soul-FunkПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561327   (515645) от 04.07.2022
 
 Michael Feinstein - Gershwin Country (2022) Craft Recordings [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -714,35 +749,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64131EAC69DFF839DE240EF2AA13120474671E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561707   (513602) от 06.07.2022
-
-Tape Five - Both Sides of the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Rascal You (feat Ashley Slater)
-02. Big Blue Swing
-03. Geraldines Stomp Routine
-04. Tommy Gun Shuffle(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7214E866BD32B189389EE18542D95CEC5B4F7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

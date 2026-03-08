@@ -1,3 +1,61 @@
+###  Публикация: 1593127   (181782) от 25.11.2022
+
+Various - Pure... 70s (2013) 4 CD [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jacksons–	Show You The Way To Go
+02. Andrea True Connection–	More, More, More
+03. Baccara–	Yes Sir, I Can Boogie
+04. Gladys Knight & The Pips–	Baby, Don't Change Your Mind(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 04:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C9E8FCBCD03F70AA1C77E9D085EE56B9579256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593049   (181620) от 25.11.2022
+
+Полина Гагарина - Вдох (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181620.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бабочки
+2. Вдох
+3. Тени
+4. Плакали(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7546F17D537B32B851A8686C690D9AF81EC77571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593076   (181535) от 25.11.2022
 
 Mylene Farmer - 1 Album, 1 Single (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -685,64 +743,6 @@ VA - Giorgio Moroder - On The Groove Train Volume 1 - 1975 - 1993 - Best Of (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56E1EDABBC0C98BAFF7FF0C2DAA36B222A0F80D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667207   (177508) от 07.10.2023
-
-Dorian Electra - Fanfare (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphony [00:03:16]
-02. Idolize [00:02:25]
-03. Freak Mode [00:02:37]
-04. Sodom & Gomorrah [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26BDD0227A884983B5CAC32086AD8B2C412C2C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422057   (177507) от 05.12.2020
-
-Екатерина Бужинская - 4 Альбома (1998 - 2012) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Як у нас на Україні
-02. Духмяна ніч
-03. Суха тополя ( дует с Олегом Шаком )
-04. Червона ружа(   Читать дальше...   )Жанр: PopПродолжительность: 04:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C91683BF97A95EA406F5022928817E912154FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

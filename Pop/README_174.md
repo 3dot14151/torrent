@@ -1,3 +1,61 @@
+###  Публикация: 1237506   (551535) от 24.07.2018
+
+VA - We Love Summer (2018) 2CD [MP3|320 Kbps] <Dance, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551535.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Luis Fonsi & Stefflon Don - Calypso [03:20]
+02. Alvaro Soler - La Cintura [03:23]
+03. Jax Jones Feat. Mabel & Rich The Kid - Ring Ring [03:37](   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 02:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE4C9F17251F0BDCFD377902C273647B5169D3EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237557   (551476) от 24.07.2018
+
+VA - New Italo Disco: Reloaded Hits & New Songs (2018) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Reason - I Like Chopin (Radio Mix) (3:34)
+02. Casandra - Take Me Away (Birizdo 80s Italo Radiomix) (3:24)
+03. Lola Lee - Ding Dong Song (4:03)
+04. Den Harrow - Don't Break My Heart (Reload Mix) (2:55)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01656BB711BDAC8640A4A171D94C97ACE94A24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237552   (551473) от 24.07.2018
 
 VA - Star 80 New Generation Vol. 1 (2015) [MP3|320 Kbps] <Disco>
@@ -687,64 +745,6 @@ Barry Manilow - Live On Broadway (1990) [FLAC|Lossless|image + .cue] <Ballad, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B47A9EB00A9B1160E00C46E305ACE6D9790490A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047884   (548251) от 31.08.2016
-
-Carly Rae Jepsen - Emotion Side B (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Time
-02. Higher
-03. The One
-04. Fever(   Читать дальше...   )Жанр: PopПродолжительность: 00:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F24308131EEB947EC6D29A097E13B42B92BC4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048027   (548081) от 31.08.2016
-
-VA - Хитовый Dance (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юлианна Караулова - Море (feat. ST)
-02. Анна Седокова - Я буду
-03. Karabass - Танцы
-04. Митя Фомин - Следуй за солнцем (DJ Noiz Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9439FDA96D15B3697694E65666386C02AF69336
 ```
 
 https://mybot314.ru/tekegram_catalog/

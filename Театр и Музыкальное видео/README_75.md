@@ -1,3 +1,32 @@
+###  Публикация: 931188   (511631) от 26.08.2015
+
+The Best of... 40 Rock Song! (2015) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличная 40-ковка отличных групп!01. Creedence Clearwater Revival - I put a spell on you [04:38]
+02. Rammstein - Du Hast [04:10]
+03. Queen - Bohemian Rhapsody [05:39]
+04. Suzi Quatro - A Girl Like Me [04:21](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 04:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE655B38A5F70DA00FF8943C02DA623F0599C46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 230830   (510970) от 29.08.2010
 
 Сурганова и Оркестр - Чужие как свои (видеоряд) [Rock ] WebRip
@@ -696,34 +725,6 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A30458A58AEC6D3DDEFE71FB1FEFA8F02217D30E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934508   (502136) от 05.09.2015
-
-Madonna - Sticky and Sweet Tour (2008) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись шоу поп-певицы Мадонна составлена по материалам южноамериканской части мирового турне, озаглавленного "Sticky and Sweet", а именно выступлений 4, 6 и 7 декабря 2008 года на концертной площадке River Plate Stadium в Буэнос-Айресе (Аргентина). "Sticky and Sweet" — восьмой по счету мировой тур Мадонны, приуроченный к выходу одиннадцатого альбома (   Читать дальше...   )1. Intro: The Sweet Machine
-2. Candy Shop Medley
-3. Beat Goes On MedleyЖанр: PopРежиссер: Nathan Rissman, Nick WickhamПродолжительность: 02:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FFDA01B7B4DCD47B4B9895CDB89CA850EF4666
 ```
 
 https://mybot314.ru/tekegram_catalog/

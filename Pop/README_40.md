@@ -1,3 +1,61 @@
+###  Публикация: 1361998   (952475) от 21.02.2020
+
+Andreas Martin - Single Hit-Collection (1993) [FLAC|Lossless|image + .cue] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952475.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Amore Mio
+2 Solo Tu (Du Allein)
+3 Der Himmel Kann Warten
+4 Das Erste Mal Im Leben(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FA4FA1D4BDD42AFD5E39BA3DE8FC7CD719BDB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361896   (952253) от 21.02.2020
+
+Таисия Повалий - Ейфорія (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952253.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дай мені любов
+2. Ейфорія
+3. Алло
+4. Я його вдихаю(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E80C23181341C33BA43DFDB4EDFE02E6D708377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361747   (952250) от 21.02.2020
 
 Allie X - Cape God (2020) [FLAC|Lossless|tracks] <Synth Pop,Indie-Pop>
@@ -692,64 +750,6 @@ Poppy - I Disagree (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F8F8B0138A398D010B1E192459A6DAD578B77F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362337   (949492) от 23.02.2020
-
-VA - Great Songs (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben E. King - Stand By Me 2:55
-02. The Monkees - I'm A Believer (2006 Remaster) 2:47
-03. Alanis Morissette - Ironic 3:49
-04. Aretha Franklin - I Say A Little Prayer 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 03:20:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF255B2C588304B2BF61054608A8A792661DF12F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362401   (949488) от 23.02.2020
-
-Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Heavy I Fell Through The Earth (6:08)
-02. Darkseid (feat. 潘PAN) (3:44)
-03. Delete Forever (3:57)
-04. Violence (feat. i_o) (3:41)(   Читать дальше...   )Производство: 4AD, Crystal Math Music – CM80207CDЖанр: Pop, Indie Pop, Electronic, Synthpop, IndustrialПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BFE07AC5A0483211A0EE6E378D72E0479736B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

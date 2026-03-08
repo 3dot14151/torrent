@@ -1,3 +1,61 @@
+###  Публикация: 1229930   (620969) от 09.06.2018
+
+VA - Trance Runner - Episode Seven (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Off - Sunset (Radio Cut)
+02. Steve Bengaln - Broken Heart Phase 2 (Radio Cut)
+03. Inglide - Let Me Love You (Radio Cut)
+04. George Harrold - Ayuhuasca (Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71CE6C50A3EE7D627B81C526D5BFB802D5D6561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229950   (620892) от 09.06.2018
+
+Chicane - The Place You Can't Remember, The Place You Can't Forget (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running to the Sea
+02. Gorecki
+03. Serendipity
+04. A Love That’s Hard to Find(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8420A8AE022A2FB2E1E8EDFA2A8AEAFCE43FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230013   (620890) от 09.06.2018
 
 VA - In The Blink Of An Eye (2018) Disco Gecko [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient>
@@ -684,64 +742,6 @@ VA - Beautiful Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB3BFE0C75144EDD4BAFF2E896FC55F026A7AE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544797   (618306) от 17.04.2022
-
-Swedish House Mafia - Paradise Again (2022) [MP3|320 Kbps] <Bass House, Disco House, French House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia feat. Mapei - Time (Co-Prod. by Enzo Ingrosso)
-02. Swedish House Mafia & Connie Constance - Heaven Takes You Home (Co-Prod. by Klahr)
-03. Swedish House Mafia feat. Jacob Mühlrad - Jacob's Note
-04. Swedish House Mafia & The Weeknd - Moth To A Flame(   Читать дальше...   )Жанр: Bass House, Disco House, French HouseПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E4B115E0644D7534A52C7C21AAA42F8C2DF0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146043   (618239) от 27.06.2017
-
-VA - Get On Your Surfboard: Summer (2017) [MP3|320 Kbps] <Progressive, Electro, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duna Shain - Dolce 02:37
-02. Dexter Morgan - Galaxy 02:33
-03. Distances - Note 02:37
-04. Chris Folkz - Travel 02:56(   Читать дальше...   )Жанр: Progressive, Electro, Future HouseПродолжительность: 01:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE74F432EDE81C235699E2E4837C1CC1BE210E51
 ```
 
 https://mybot314.ru/tekegram_catalog/

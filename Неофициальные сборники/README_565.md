@@ -1,3 +1,177 @@
+###  Публикация: 1342287   (224165) от 02.12.2019
+
+VA - Hedkandi Dance House (2019) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_224165.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dany West - Shaking (Original Mix)
+002. Viktop - Rw3 (Savvas Remix)
+003. Dj Luciano - Minuet
+004. Tommer Mizrahi - We Are All Connected(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499E2889D2DE509115FF99D8B4F094611B0576D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342394   (224156) от 02.12.2019
+
+VA - Future Horizon: Tech House Movements (2019) [MP3|320 Kbps] <Tech House, Electro, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224156.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mark Hand - All Caught Up
+002. Red Led - About You
+003. Alvaro Wade - Somos Musicos
+004. Djorda Luigia - Fonky French(   Читать дальше...   )Жанр: Tech House, Electro, EDMПродолжительность: 13:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C6308927265FCF3A7F0E30211313E62C2D75B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965575   (224152) от 15.12.2015
+
+VA - Eurodance Radio Mix Club House (2015) [MP3|320 кб/с] <Club, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_224152.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Snake & Alunageorge - You Know You Like It
+002. DJ Fresh ft Ella Eyre - Gravity
+003. Robin Schulz ft Francesco Yates - Sugar
+004. Hayden James - Something About You(   Читать дальше...   )Жанр: Club, Electro HouseПродолжительность: 06:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7EE1AF5D3A57E4AD2AD171A41C4024022EC592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342309   (224143) от 02.12.2019
+
+VA - EDM Classical Melodies For The Dancefloor (2019) [MP3|320 Kbps] <Electro Dance, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224143.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Obsidian Project - U.F.O. 2019
+002. Huda Hudia - Grillin
+003. Social Fever - Why The Moon
+004. L'anno Neam - Victory(   Читать дальше...   )Жанр: Electro Dance, Club HouseПродолжительность: 12:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE74C8269E5933B4472AC79D1746133F5E00AE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965610   (224121) от 15.12.2015
+
+VA - 100 Winter Dance 2016 (2015) [MP3|256-320 кб/с] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_224121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Fuldner feat. Polina Griffith - Do What You Like (Frankie Remix)
+02. Ellie Goulding - On My Mind (DJ Denis Rublev & DJ Anton Bootleg)
+03. Елена Темникова - Зависимость (Oleg Perets & Alexey Galin Remix)
+04. Madonna - Living For Love (Pankratov, DJ Cosmos & Gumanev Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5486FBD08AE6B10133E63F6A6851605BC1F7B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965891   (224092) от 15.12.2015
+
+VA - Lounge Latex Sexy Relax (2015) [MP3|320 кб/с] <Vocal Lounge, Lo-Fi, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michele Taylor - Morning Light (Original Mix)
+002. Jungle - Drops
+003. Da King feat. Xenya - In the Door (Cool Vocal Jazz Mix)
+004. Fragile State - The Facts and the Dreams(   Читать дальше...   )Жанр: Vocal Lounge, Lo-Fi, DowntempoПродолжительность: 09:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D9CEA78032CA17390EF9203DB8354DA3A9E2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342315   (224086) от 02.12.2019
 
 VA - Club EDM Mysterious (Vol. 01) (2019) [MP3|320 Kbps] <Club, Dance, House>
@@ -571,180 +745,6 @@ VA - Music News vol.287 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:455B26B74D76BD2EA8CDA9B80EFC0A9DD9A4BF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965929   (222815) от 16.12.2015
-
-VA - Sunrise Avenue Vol 6 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jasper Jones - I Want to Meet You Again - Original Mix
-02. Nat Wood - Te Quiero Mi Vida - Original Mix
-03. Frederic Flores - Groove Therapy - Original Mix
-04. James Wilson - Reggae Morning - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59BBA0A94632A906EBA77A3D19BE7C39BC48DA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965981   (222805) от 16.12.2015
-
-VA - Soothing Music Finest in Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Florea - Garden of Balance
-02. Relaxea - Into the Blue
-03. Oscar Salguero - We Have to Go Back
-04. M. Vitoria - Shakra Naom(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DF882E346D155DD8C59A5919BC0D3F25FCECBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342452   (222794) от 03.12.2019
-
-VA - Beatport Techno 01 (2019) [MP3|320 Kbps] <Techno, Edm>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222794.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Empty Fridge - Fckw
-002. Spencer Dunning - Rave Report
-003. Anton'x - Threesome
-004. Concepto - Frb (Original Mix)(   Читать дальше...   )Жанр: Techno, EdmПродолжительность: 12:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30392162F4B49749EFA78B9EA668E7D3C2D46358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342451   (222775) от 03.12.2019
-
-VA - Dream City: Urban Electro House (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222775.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Subandrio - Lydian Manuscript
-002. Mental Order - High Level
-003. Golden Hour - Oaxaca
-004. Panca Borneo - Back 2 Oldskool(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B85029021754D7063E8FFD7BAB67EF192707FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342604   (222739) от 03.12.2019
-
-VA - New Habitat: Synth Electronic Music (2019) [MP3|320 Kbps] <Synthwave, Electronic, Synthspace>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222739.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mentallo - Tachyon
-002. Omicron - Victory
-003. Pixelrust - Fulton (Original Mix)
-004. Knight$ - What's Your Poison(   Читать дальше...   )Жанр: Synthwave, Electronic, SynthspaceПродолжительность: 13:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A175C47DC53443DF06DAF5549B1B05749BBDC1C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425216   (222676) от 20.11.2020
-
-VA - crazyДвиж number chetyre (2020) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Cent - Candy Shop (DJ Vini Remix) (5:05)
-02. Disco Gurls - Pole Cat (Extended Mix) (5:46)
-03. Alex Megane - Little Lies 2020 (Ramba Zamba Extended Remix) (4:05)
-04. Alex Pizzuti - Memories (Extended Version) (3:37)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F26067EDD845048A399FFEB87816F318A06D06
 ```
 
 https://mybot314.ru/tekegram_catalog/

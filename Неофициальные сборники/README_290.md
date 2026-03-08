@@ -1,3 +1,183 @@
+###  Публикация: 1141079   (653473) от 08.06.2017
+
+Иван Кучин - Лучшие песни (2017) [MP3|320 Kbps] <Авторская песня, шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653473.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. А в кабаке
+002. А на чёрных ресницах
+003. Ах, январь мой
+004. Багульник(   Читать дальше...   )Жанр: Авторская песня, шансонПродолжительность: 06:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72EB72C50551B74A65BBDD703C2EB10107849E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140924   (653443) от 08.06.2017
+
+VA - Суперхиты (2017) [MP3|320 Kbps] <Downtempo, Ambient, Vocal, Chillout, Trip Hop, Industrial, Balearic, Big Beat>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Everything But The Girl - Missing (Todd Terry Remix)  4:08
+02.  The Beloved - Sweet Harmony  3:29
+03.  Robert Miles - Children  4:02
+04.  Enigma - Sadeness  4:14(   Читать дальше...   )Жанр: Downtempo, Ambient, Vocal, Chillout, Trip Hop, Industrial, Balearic, Big BeatПродолжительность: 03:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F25CB6942AEAAAEADC973DED0E1F6CAACED28E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140939   (653441) от 08.06.2017
+
+VA - DEEP'КАЧ 90-х от NNNB (2017) [MP3|256-320 Kbps] <Deep House, Nu Disco, Tropical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ace of Base - All She Wants (SNBRN & KLATCH Remix)  6:04
+02.  Bob Marley - No Woman No Cry (SLAPFISK Remix)  4:26
+03.  Corona - Rhythm Of The Night (Hotel Garuda Remix ft. AObeats)  4:06
+04.  Metallica - Nothing Else Matters (YASTREB Remix) (Radio Version)  3:50(   Читать дальше...   )Жанр: Deep House, Nu Disco, TropicalПродолжительность: 07:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC16C309832BF7698A28D66F2ECE8606BCEE376D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516283   (653109) от 28.06.2012
+
+VA - Радио Чарт Energy - Жгучий Танцевальный Сборник 50/50 (2012) [MP3|256 kbps]<Pop|Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653109.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Bad Boys Blue - I'll Be Good
+002 Группа Red Energy - Capital Nigt
+003 Mayari Project - Hayati
+004 Ольга Lucky - Последний Поцелуй (Руки Вверх)
+005 Itaka - La Danza De Ibiza (Zumpa Remix Radio Edit)
+006 Дискотека Авария и Нюша - Moscow Never Sleeps
+007 Demi Lovato - All Night Long (Feat. Missy Elliott & Timbaland)
+008 Тимур Темиров - Лето Жаркое
+009 Radio Killer - Is It Love Out There (Radio Edit)
+010 Vilana - Море(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 05:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5446CC9046D3254DD93AD633D2281AF0271A7B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540952   (652783) от 04.06.2015
+
+VA - A State Of Vocal Trance Volume 01 - 50 (2012-2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652783.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abstract Vision & Elite Electronic - Always Loved U (Original Mix)
+002. Aiera - Dunes (Original Mix)
+003. Ana Criado & Beat Service - Whispers (Original Mix)
+004. Denis Kenzo feat. Sveta B. - Lullaby Lonely (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 148:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E934F6E8B2974580BC7453C7C118361E2E7455E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291679   (652663) от 26.03.2019
+
+VA - German Top 50 Party Schlager Charts 25.03.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Mosaik
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Roland Kaiser - Stark(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EC2E48372F280816570F021120E27223ABA21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291703   (652658) от 26.03.2019
 
 VA - Ultimate Dance House (2019) [MP3|320 Kbps] <Dance, House>
@@ -595,177 +775,6 @@ Music Born In Silence Intro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EFAE80FDD8DEC930819903DD23CA0019A695C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031638   (652170) от 04.07.2016
-
-VA - Relevant Freak Future Massive (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652170.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nicky Romero -  Novell (Original Mix) 5:35
-002. KSHMR feat. Sidnie Tipton -  Wildcard (Radio Edit) 3:09
-003. Sam Feldt -  Been A While (Madison Mars Remix) 3:39
-004. Tiesto & Bobby Puma -  Making Me Dizzy (Extended Mix) 4:40(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 08:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00818734E28D77A6E02C2ABFBC6816233B7F3202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031352   (652163) от 04.07.2016
-
-A.S.T - The Planet Of Music CD 4 - Mix By A (2016) [MP3|320 Kbps] <Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652163.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ сборникЖанр: Future HouseПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD597BF5A84579E2759AE746286BA6989D0D16BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031508   (652155) от 04.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 53 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Den Harrow - Overpower ( 1985 )
-02. Fun Fun - Could This Be Love ( 1987 )
-03. Divine - Jungle Jezebel ( 1982 )
-04. Gilla - Willst Du Mit Mir Schlafen Gehen ( 1975 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CB08126D72D6C8917BC0C9F333E1DE7372E6A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031538   (652153) от 04.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 58 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bay City Rollers - Give A Little Love ( 1975 )
-02. Paul Parker - Too Much To Dream ( 1983 )
-03. Europe - Carrie ( 1986 )
-04. Mozzart - Devil's Rendezvous ( 1988 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A33188B044E81201803B2DD49B170910A757790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031506   (652149) от 04.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 51 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U. K - Roadrunner ( 1987 )
-02. T. Ark - Under Cover Lover ( Extended Version 1988 )
-03. Mauro - Lady Africa ( 1987 )
-04. Trans X - 3-D Dance ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487B772467ED98FC3CD7776957CE5FC50B55658A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031514   (652148) от 04.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 55 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Blue - Come Back And Stay ( 1987 )
-02. C. C. Catch - Summer Kisses ( 1988 )
-03. Falco - Coming Home ( Jeanny Part II, One Year Later 1986 )
-04. ABBA - I Saw It In The Mirror ( 1973 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87A1D9D1A440DF67AA2D775948592BA0FC1349E
 ```
 
 https://mybot314.ru/tekegram_catalog/

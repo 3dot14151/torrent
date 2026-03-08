@@ -1,3 +1,192 @@
+###  Публикация: 1837841   (257592) от 19.11.2025
+
+LIYNA - Favorites Collection (2025) [MP3|320 Kbps] <Vocal Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In Your Silence
+ 02 - Tease
+ 03 - The Last Level
+ 04 - Unnamed(   Читать дальше...   )Жанр: Vocal Deep HouseПродолжительность: 00:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED13B8003BE14AC443511A925986ADD4B636C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837833   (257591) от 19.11.2025
+
+Smtve - Favorites Collection (2025) [MP3|320 Kbps] <Romantic / Cinematic Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Beautiful Again
+ 02 - The Morning
+ 03 - Stay
+ 04 - Streetlight(   Читать дальше...   )Жанр: Romantic / Cinematic PopПродолжительность: 02:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00685F5EBFC73E94F483E1B37A7E75EDC494DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500304   (257295) от 23.05.2012
+
+VA - Сборник классных хитов (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radu Sirbu feat. Sianna - Осколки сердца
+02. Далински Аника - Навстречу друг-другу
+03. Юдина Женя - Небо это я (Vitalik Solt Radio Edit 2012)
+04. Roma Kenga - Ты будешь счастливой
+05. Разина Светлана - Радио НАХ
+06. Пропаганда - Наберу (Sergey Sunny Remix)
+07. Скрябин - Ниби в раю
+08. T1One - Чтобы ты улыбнулась
+09. MainstreaM One & Handyman - Мы не одиноки
+10. Марка - Спокойной ночи, Москва (Remix)(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF96D1A10DC6FB1EA43EA758CB57235D1BAAB04C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500339   (257262) от 23.05.2012
+
+VA - Чарочка та шкварочка (2011) [MP3|256 кб/с] <Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: FolkПродолжительность: 05:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B539D198D8399E6202DA1D61DB0353001677507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499356   (257210) от 23.05.2012
+
+VA - Гуляй душа. Блатной шансон (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257210.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Миша Комаров - Смайлик (3:45)
+2. Валерий Шунт - Прощай, Жиган (3:42)
+3. Беломорканал - Памяти Вора (4:38)
+4. Макс Азаркин - Гуляй душа (3:28)
+5. Денис Майданов - Ничего Не Жаль (3:42)
+6. Александр Овчаренко - Девочка (3:37)
+7. Александр Закшевский - Сонька Золотая ручка (4:22)
+8. Александр Блик - Девочка-Волк (3:08)
+9. Александр Донцов - Самара-бабушка (3:54)
+10. Петлюра - Споем, Жиган (3:18)2012Жанр: ШансонПродолжительность: 06:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684689E23DB0A6D803FBA82B7ADC66D4E25F59C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499911   (256942) от 22.05.2012
+
+VA - Radio DFM - Рашн Дэнс (21.05.2012) from AGR (2012) [MP3|320 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Каста - Наши Люди (Dj Miller  Hard Rock Sofa Bassline Remix)
+02. Виктор Павлик - Город Зеленого Цвета (DJ Stranger Mix)
+03. Максим - Наверно это мой рай
+04. Quest Pistols - Я Твой Наркотик (Dj Denis Rublev Vox Mix)
+05. DJ Vini feat. Stephenie Coker - Жестокая любовь
+06. MC 77 & MainstreaM One - Я Твой (Dj Gorelov Remix)
+07. DJ Piligrim - Ты меня забудь
+08. Градусы - Голая (GASpromo Sunshine Radio Remix)
+09. Михаил Боярский - Спасибо,Родная(Dj Kvant Radio Mix)
+10. Ирина Дубцова - Ешь, Молись, Люби(   Читать дальше...   )2012Жанр: Pop, Dance, ClubПродолжительность: 02:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8F4BD2634F1F3594D240A473053F98FF107F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499920   (256873) от 22.05.2012
 
 VA - Клубные Новинки Vol.82 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
@@ -607,210 +796,6 @@ VA - Клубные Новинки Vol.81 from AGR (2012) [MP3|320 кб/с]<Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:234B09B3FF4D3FF4E5EC9E9CE5032C8D92D3B24E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498851   (256199) от 20.05.2012
-
-Алиса - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эй ты там на том берегу
-02. Моё Поколение
-03. Энергия
-04. Армия жизни
-05. Танец на палубе тонущего корабля
-06. Стерх
-07. Лодка
-08. Шабаш
-09. Бес Паники
-10. Белая невеста(   Читать дальше...   )2012Жанр: RockПродолжительность: 03:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C11B9008EC8D07A5DCEACAF2EA7E737214BF82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499177   (256097) от 20.05.2012
-
-VA - XXXL Союз: Super новинки 50/50 (2012) [MP3|236-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Balan - Не Любя
-02. Sandra - Maybe Tonight (Extended Version)
-03. Юрий Шатунов - Летний Ливень
-04. Labrinth - Express Yourself (Radio Edit)
-05. Olly Murs feat. Chiddy Bang - Heart Skips a Beat
-06. MC Zali & Fidel Wicked - Носом По Кокосам
-07. Эрика (Ерика) - Порцеляна
-08. Sammy Adams - Only One
-09. NY - Music
-10. A-Sen - Давай Поженимся(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:12:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499050   (256068) от 20.05.2012
-
-VA - Ночное движение хитов (2012) [MP3|256-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Balan - Люби
-02. V2G Feat. Женя Юдина - Если Не Ты (Dj Goman Remix)
-03. Dj Fudge - Мы Будем Вместе
-04. Настя Кочеткова - Жара
-05. Пальчики Оближешь - Любовь, Как Сон
-06. Винтаж - Стерео
-07. Юрий Шатунов - Летний Ливень (320 кб/с)
-08. Лоя - Розы Темно-Алые
-09. Ассорти - Плакала
-10. Титан Feat. Тамерлан И Алена Омаргалиева - Seninle(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:14:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498970   (256011) от 20.05.2012
-
-VA - Trancern 35.1 - Official Compilation (May 2012) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fafaq - 21st Century (06:37)
-02. Aly & Fila - 200 - FSOE 200 Anthem (Ummet Ozcan Mix) (06:31)
-03. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) (08:28)
-04. Dan Stone - Baltic (Ost & Meyer Remix) (08:28)
-05. John Askew - Bastard (Original Mix) (07:56)
-06. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix) (08:49)
-07. Miroslav Vrlik - Charisma (Original Mix) (06:51)
-08. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix) (05:12)
-09. Darren Porter - Daytona (Eight Minus Eight Remix) (07:27)
-10. Andreas Mats - Elate (Mike Danis Remix) (07:50)(   Читать дальше...   )May 2012Жанр: Trance, Vocal TranceПродолжительность: 03:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2186A8661C21703F25C4C34451947C8FEC2827C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836918   (255942) от 13.11.2025
-
-John Lee Hooker and John Lee Hooker, Jr. - Best of (1959-2006) Compilation Album [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Lee Hooker - Annie Mae
-02. John Lee Hooker &... - Bank Robbery (from The Hot Spot)
-03. John Lee Hooker &... - Blackmail (from The Hot Spot)
-04. John Lee Hooker - Bluebird(   Читать дальше...   )Жанр: BluesПродолжительность: 02:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95938193B5D3E98E62157C2F072A6A0677B69FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498459   (255840) от 19.05.2012
-
-VA - Музыкальные летние хиты (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255840.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Neonilin & Lantra - Буду Любить (Radio Version) (3:13)
-2. Тимур Timbigfamily & Лючана - Dance With Me (4:15)
-3. LiLi - Lady GaGa Отдыхает! (4:07)
-4. Dj Fenix & Kathy Soul - Скажи Мне Да (3:36)
-5. Дмитрий Губич - Эхо Любви (3:12)
-6. СтаЯ - Душа (2:40)
-7. Макс Барских - Dance (Russian Version) (3:21)
-8. V2G feat. Boris Bredin - Цунами (3:13)
-9. T - Killah feat. Виктория Дайнеко - Mirror Mirror.mp3 (3:23)
-10. Dj Smash Feat. Maury - Rendez-Vous (Melloffon Extended Remix) (6:18)2012Жанр: PopПродолжительность: 06:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6368C688259339555DE146404CA966A51F2E1975
 ```
 
 https://mybot314.ru/tekegram_catalog/

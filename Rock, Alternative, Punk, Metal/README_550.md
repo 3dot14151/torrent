@@ -1,32 +1,3 @@
-###  Публикация: 1560883   (517896) от 02.07.2022
-
-Sorgeldom - Vithatten (2011) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Vithatten
-03. De Gångnas Skalder
-04. Inom Bergets Salar(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B1B185B656E605B4F461E373AB865A566DB7CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560344   (517895) от 02.07.2022
 
 Bongbongbeerwizards - Ampire (2022) [MP3|320 Kbps] <Drone, Doom, Stoner Metal>
@@ -744,6 +715,41 @@ Fervent Hate - Tales Of Hate, Lust And Chaos (2018) Limited Edition [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E66BFF106D30428E43B446F2CBCCC99C519FC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534571   (517168) от 16.08.2012
+
+Nightstalker - Dead Rock Commandos (2012) [MP3|320 кб/с]<Stoner Rock / Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Get Some 04:08
+ 02. Soma 03:35
+ 03. Dead Rock Commandos 03:18
+ 04. One Million Broken Promises 03:47
+ 05. Children Of The Sun 04:46
+ 06. Back To Dirt 04:37
+ 07. Keystone 03:43
+ 08. Rockaine 03:56
+ 09. The Boogie Man Plan 03:29
+ 10. The Underdog 04:58Жанр: Stoner Rock / MetalПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8CE0486200254FEC90C7ADC4BF5740CCC62141F
 ```
 
 https://mybot314.ru/tekegram_catalog/

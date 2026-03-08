@@ -1,3 +1,38 @@
+###  Публикация: 175505   (939275) от 15.02.2010
+
+VA - House Vip (09.02.10) [MP3|128 - 320 kbps]<Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer - Let's Rock (Scotty Remix) (5:24)
+02. David Guetta feat Kid Cudi - Memories (Armand Van Helden Vocal Remix) (5:29)
+03. Dirty Disco Youth - Minds...Off (4:52)
+04. Dj Cargo Pres. Kei Morton - Get Back (Easy Tech Extended Remix) (5:04)
+05. DJ Ivan Flash - Spin Around (Original Mix) (4:38)
+06. Flo Rida - Sugar(Electrical Brothers Radio Edit 2010) (5:17)
+07. Franco Maldini - This Is A Journey (STFU Remix) (6:10)
+08. Martin Solveig feat. Dragonette - Boys & Girls (Alex Astero & Evan Sax Club Mix) (6:01)
+09. MasterBlaster - Come Clean (Electrical Brothers Remix) (6:50)
+10. Ne!tan - 2night (Scott And Dave Remix) (3:39)(   Читать дальше...)Жанр: Electro House
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092731   (937425) от 13.01.2017
 
 VA - Best Release Of The Season (2016) [MP3|320 Kbps] <House>
@@ -716,35 +751,6 @@ VA - Machine Prototype 12 (2019) [MP3|320 Kbps] <House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E5E6781A1CD5B87F7C6D72B4DA07819C4DDCE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366285   (924121) от 11.03.2020
-
-VA - Machine Prototype 13 (2020) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ernesto Ortega - Deep Thought (Joe De Renzo Remix) [06:15]
-02. Big Bunny - Atom (Sergii Petrenko Remix) [06:40]
-03. DJ Ex - Soze Ngiphinde (feat. Imasterz) (Radio Edit) [03:25]
-04. Denys Victoriano - Piece Of Your Heart (Radio Edit) [03:18](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04E3678EFB2088A514EF32CBF62B03C1DFB53D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

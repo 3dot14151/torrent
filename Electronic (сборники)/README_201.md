@@ -1,3 +1,32 @@
+###  Публикация: 1346629   (157783) от 20.12.2019
+
+VA - Little Sea Lounge (2019) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157783.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luzzana - Tlvi
+002. Sodur - Benatural
+003. Davide Paganotto - Va Pensiero
+004. Soul Train - Jules Renauld And Von Mondo(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 09:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0F01D0CCAF6EDA61858B83CB4F1C8A3471F6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270492   (157540) от 19.12.2018
 
 VA - Winter Chillout Compilation (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -718,35 +747,6 @@ VA - Empire Records - Chill Out 3 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB29661A8221D4E19854E183A86E067907350CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086428   (153284) от 24.12.2016
-
-VA - Empire Records - Chill Out 5 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn - Shine (Extended Mix)
-02. Deep Brother Feat. Rehane & Pasquier - Lost In Time
-03. Rino Da Silva - Trip To Rimini
-04. Enrico Donner - Untouched Ground(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1E0B177CC17161843187B2F0C778B3EB78434D
 ```
 
 https://mybot314.ru/tekegram_catalog/

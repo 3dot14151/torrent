@@ -1,3 +1,61 @@
+###  Публикация: 915502   (592221) от 05.07.2015
+
+VA - 100 Hits - 80s Love (2007) 5CD Box Set [FLAC|tracks + .cue]<Pop, Dance, Soul, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luther Vandross - Stop To Love [04:21]
+02. Five Star - Rain Or Shine [03:53]
+03. Boy Meets Girl - Waiting For A Star To Fall [04:25]
+04. Jason Donovan - Every Day (I Love You More) [03:23](   Читать дальше...   )Жанр: Pop, Dance, Soul, VocalПродолжительность: 06:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0757523DFD523C645523252A3B225012CE23010A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550399   (592163) от 11.05.2022
+
+Amaya - Sensation (2020) [MP3|~245 Kbps (V0)] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensation (2020 Juan Martinez Remix) (3:54)
+02. Trapped (2020 Juan Martinez Remix) (4:26)
+03. L'Amour Toujours (3:42)
+04. Stereo Love (3:45)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9061385437AE47403A2C393DECB487BCA53A8F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550434   (592161) от 11.05.2022
 
 Gianni Safred - Futuribile (The Life to Come) (1978) Reissue LP, 2019, Four Flies Records [MP3|320 Kbps] <Electronic, Jazz-Funk, Fusion, Disco>
@@ -704,64 +762,6 @@ Little Boots - Working Girl (2015) [MP3|320 кб/с]<Synthpop, Indie Pop, Nu-Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D720D995DE15D61DC33EBDA84CCC8AF7BBB57200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917056   (589942) от 10.07.2015
-
-The Bird and The Bee - Recreational Love (2015) [MP3|320 кб/с]<Indie Pop, Electronic, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young and Dumb
-02. Recreational Love
-03. Will You Dance
-04. Runaway(   Читать дальше...   )Жанр: Indie Pop, Electronic, Female VocalПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35515670AB4527BD67E374EE8B3E3887D90E57A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917034   (589918) от 10.07.2015
-
-VA - Pure... Dance Party (2014) Box Set, 4CD [FLAC|Image+.cue]<Pop, Rock, Electronic, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжаю популярную серию от Sony. Лето – пора самых ярких музыкальных впечатлений, вот наша Соня и собрала все лучшие танцевальные треки за несколько лет в одном месте! Серия Pure... – это тематические сборники, где каждый трек по новому раскрывает заданную тему! Убедитесь в этом сами, ведь в одной компиляции сосредоточены самые горячие танцевальные треки.CD1:
-01. One Direction - Live While We're Young (2012)  (3:21)
-02. Wham - Wake Me up Before You Go-Go (1984)  (3:53)
-03. Rita Ora - Radioactive (2012)  (4:13)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, R&BПродолжительность: 04:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C96055E8BC4D388FBAF629F5B7F9EA0623F0CA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

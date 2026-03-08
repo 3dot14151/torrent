@@ -1,3 +1,61 @@
+###  Публикация: 1490780   (915654) от 22.08.2021
+
+Talisha Karrer - Acoustic Covers 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here with Me (Acoustic) (3:51)
+02. Hallelujah (Acoustic) (4:26)
+03. Fix You (Acoustic) (3:42)
+04. Bridge over Troubled Water (Acoustic) (4:27)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E692DB4FEBA5FAF2E63D44EB10F4B4DBFD49D065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490813   (915375) от 22.08.2021
+
+Mylene Farmer - Plus grandir: Best Of 1986 - 1996 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plus grandir
+02. Libertine (Mix 2001)
+03. Tristana
+04. Sans contrefaçon(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8612CC873D2F62746E15A28C4FCCA7932E6292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096808   (915256) от 26.01.2017
 
 VA - 69 Hits Winter (2017) [FLAC|Lossless|tracks] <Pop>
@@ -682,64 +740,6 @@ London Boys - Requiem: The London Boys Story (2021) 5CD Expanded Box Set [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE16EA56EC76FDF33F122098250736F533932AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491476   (910344) от 25.08.2021
-
-VA - Disco Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bee Gees - More Than A Woman (From "Saturday Night Fever" Soundtrack) (03:16)
-02. Donna Summer - Hot Stuff (Single Version) (05:14)
-03. Abba - Waterloo (02:45)
-04. Kool & The Gang - Celebration (04:58)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC8A840E002B52A16E22ADA2A885E8B25A25177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990843   (909992) от 26.02.2016
-
-VA - World Dance Music (2004) [FLAC|Lossless|tracks + .cue] <Trance, World & Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rahmaj - Fly to India (1:59)
-02. Gitan Suite - Spanish Dream (1:54)
-03. Lya Cannes - Vuela Vuela (3:00)
-04. Kariber - Mueve (3:29)(   Читать дальше...   )Жанр: Trance, Folk, World, & Country, PopПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4105AE9EFD27D4F3362A1B4929BC9A23598CB5B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

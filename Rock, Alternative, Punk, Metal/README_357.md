@@ -1,32 +1,3 @@
-###  Публикация: 1284641   (727648) от 22.02.2019
-
-Avril Lavigne - Head Above Water (2019) Japan Edition [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Head Above Water
-02. Birdie
-03. I Fell in Love with the Devil
-04. Tell Me It's Over(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE49CA856F0C7A228A75F255332B0DB2BAD990C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022912   (727580) от 03.06.2016
 
 Elvis Presley, Jerry Lee Lewis, Fats Domino, Little Richard - Heroes Of Rock 'N' Roll (1996) 4CD Box Set, 1-3 Recorded Live [APE|Lossless|image + .cue] <Rock'n'Roll>
@@ -743,6 +714,35 @@ Sister Hazel - Fire (2019) [FLAC|Lossless|WEB-DL|tracks] <Southern rock, Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6265019C3164C881A9883556BFE70AA0F1655F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128642   (726560) от 26.04.2017
+
+Elffor - Dra Sad (2017) [FLAC|Lossless|image + .cue] <Medieval Ambient, Dungeon Synth>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726560.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Funereal Depths of the Dark - 15:13
+2. The Litany of Abandonment - 13:06
+3. Kaosa Datorrela - 10:11
+4. Dra Sad - 07:38Жанр: Medieval Ambient, Dungeon SynthПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD602564CC924F936982A28DEF005CC184804E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

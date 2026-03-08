@@ -1,3 +1,32 @@
+###  Публикация: 1109998   (855754) от 01.03.2017
+
+James Moody - Quadromania: Just Moody (1948-1955) 4CD, 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855754.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.The Fuller Bop Man [02:59]
+02.Workshop [03:19]
+03.On Henry [02:32](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 03:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300A3013EFA4C66396CC2361AFD0A7A6980CB666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110068   (855683) от 01.03.2017
 
 Duke Ellington - Paris, March 1964 (2013) La Maison du Duke [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -716,35 +745,6 @@ Guillermo Gregorio, Mats Gustafsson, Kjell Nordeson - Background Music (1998) Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB6828294F9AA5E8432A297137E4DB4EF332BE48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110917   (850441) от 04.03.2017
-
-Gerry Mulligan - Modern Jazz Archive (1950 - 1980) 2CD, 2004, Membran Music [APE|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850441.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Walking Shoes:
-01.It May Be Wrong [03:28]
-02.So What [02:46]
-03.Bernie's Tune [02:55](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F556C1D02C69EBEF2387EAEF35267FF67B228AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1755097   (40399) от 14.10.2024
+
+VA - Music News For Forum vol.032 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40399.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anna Bryanskaya - Эйфория (02:19)
+ 002. 4K - Найки (03:25)
+ 003. 22bullets feat. DJs From Mars - Ain't Nobody (02:45)
+ 004. ABI - Над Парижем (04:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C943445141E87640742B87478B45CDC0230764C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755267   (40371) от 14.10.2024
+
+Indian Spirit - Fire Dance (2024) Compilation [MP3|320 Kbps] <Native American, New Age, World>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ani Kuni (Radio Edit) [03:39]
+02. Circle Of Fire [05:03]
+03. Music Comes From The Heart [05:15]
+04. The Return of the Great Spirit [04:53](   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 04:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF98420F82D6BC535A32BE57623E6944CD08E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755611   (40213) от 16.10.2024
+
+VA - Sexy Bath 5 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Portishead - Glory Box (5:08)
+02. Tory Lanez - Say It (3:57)
+03. The Weeknd - Die For You (4:20)
+04. Snoh Aalegra, Vince Staples - Nothing Burns Like The Cold (3:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD6E307F3EC16F907B8DC050AB3DA4CEB94504D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755444   (40177) от 16.10.2024
+
+VA - AI song, AI music (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evgenypt - Hi Love My
+02. Ai Talking - Love Hotel
+03. Evgenypt - To Danger (Continuation)
+04. Evgenypt - Totally Miss You(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC25AE01115F573D67A26F67B04D5DBA0E547C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755677   (40083) от 17.10.2024
+
+VA - Summer's End Autumn blues (2024) [MP3|320 Kbps] <Blues, Blues Rock, Pop>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40083.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Birdy - Terrible Love (Live at the Tabernacle) [04:59]
+002. Blue Royal Blues Group - Autumn Blues Cafe [03:06]
+003. Sean Rowe - Madman [03:59]
+004. Shakey Graves - Roll The Bones (Audiotree Live Version) [04:52](   Читать дальше...   )Жанр: Blues, Blues Rock, PopПродолжительность: 06:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221555D84FE8F9956FD390C74D9716ABA98B122A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755949   (39989) от 18.10.2024
+
+VA - Music News For Forum vol.033 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39989.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. SUZA - Сам выдумай рай (02:26)
+ 002. 5 Пятниц feat. ASATIANI - Ушла любовь (02:12)
+ 003. 10 Years - The Trench (04:15)
+ 004. 10 Years feat. Conquer Divide - The Optimist (02:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8977198FF30B357AEA1D39F311E2C517A504A659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 883886   (39867) от 19.10.2024
 
 (OST) Toy Story 2 - Buzz Lightyear to the Rescue [DC] (Swallow Studios) (1991) [MP3|320 кб/с]<Score>
@@ -571,180 +745,6 @@ Aleksey Boychenko - Compilation of enigmatics (2024) [MP3|320 Kbps] <Enigmatic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1AF6FDF41F403E467C66265BC34B35C3A640FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757658   (39007) от 28.10.2024
-
-VA - Music News For Forum vol.036 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39007.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Belinda feat. Kenia Os - Jackpot (03:13)
- 002. Ahzee - Got It (02:49)
- 003. ALTUNIN - For You (01:50)
- 004. Arthur Freedom - Little Love (02:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCFB5438A324436096E8FC9AD9AABD574321E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757754   (38925) от 29.10.2024
-
-VA - Musical kaleidoscope part 10 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Boychenko - Requiem
-02. Sisco Le Voyageur - Peace of the Sand
-03. Besso - Nobody Else
-04. Kames, Umar Keyn - Love(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DF6D8F71319B22EA064615B8C2D849D44AEBE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757969   (38784) от 30.10.2024
-
-VA - Trap Second Edition (2024) [MP3|320 Kbps] <TRAP>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skan, Krale, M.I.M.E, Drama B - No Glory (feat. M.I.M.E & Drama B) (4:36)
-02. TroyBoi, Diplo, Nina Sky - Afterhours feat. Diplo & Nina Sky (4:35)
-03. Skan, Krale, Veronica Bravo, Drama B - Rise (4:39)
-04. Bellorum - Front (2:22)(   Читать дальше...   )Жанр: TRAPПродолжительность: 04:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1638BC57D8D4AEBA43279D71E02FB7DB90DF0251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757870   (38782) от 30.10.2024
-
-VA - AI song, AI music CD 2 (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ai Talking - The Girl Out of My Dream
-02. Ai Talking - Intrigue in Versailles
-03. Ai Talking - Miss Universe
-04. Evgenypt - My Dear Alena(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 00:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069E3750AFA52B41BA43D1803973E76B52BFC9FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758114   (38740) от 31.10.2024
-
-Сергей Грищук - Музыка для души Compilation Part 5 (2024) [MP3|320 Kbps] <Instrumental, electronic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Листопады
- 02.  Лист Осенний
- 03.  Капли Дождя
- 04.  Журавлиный Крик(   Читать дальше...   )Жанр: Instrumental, electronicПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5731B9EE9747D575ECAB5916FB3BFA122E7EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758117   (38719) от 31.10.2024
-
-Danekoo1 - Compilation (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Beauty
- 02.  Broken Angel
- 03.  Love and Love
- 04.  For Soul(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9F953015789996CAF85AAD7C96E4E5B847CAD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

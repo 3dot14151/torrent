@@ -1,32 +1,3 @@
-###  Публикация: 1506081   (798446) от 04.11.2021
-
-The Darkness - Motorheart (2021) [FLAC 2.0|96.0/24|tracks|WEB-DL] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome Tae Glasgae (2:49)
-02. It's Love, Jim (3:23)
-03. Motorheart (4:59)
-04. The Power and the Glory of Love (3:59)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BCBC006AC65B386FE4563917AAC44AD840D916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507390   (798430) от 04.11.2021
 
 Second Reign - Gravity (2021) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
@@ -745,6 +716,35 @@ Dragonland - Astronomy (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Sym
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C9B67FBDEE5A17C5696DEF7783C20B153BD2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508558   (797559) от 08.11.2021
+
+Dragonland - The Battle Of The Ivory Plains (2001) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragondawn
+02. Storming Across Heaven
+03. A Last Farewell
+04. Ride For Glory(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA19EBE71EBE155ECC3506C5F79580433161840
 ```
 
 https://mybot314.ru/tekegram_catalog/

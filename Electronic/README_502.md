@@ -1,3 +1,61 @@
+###  Публикация: 1780552   (70392) от 19.02.2025
+
+Krieg-B - War Drums' resonance (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special Operation [00:04:14]
+02. Under Pressure [00:04:32]
+03. Napalm Girl [00:03:29]
+04. King of Emptiness [00:04:32](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3243E004FC41F45281FB8F536486192D3EC53EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780611   (70384) от 19.02.2025
+
+djdtime - Relaxing Deep House & Melodic Techno Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake up, the world is calling (4:53)
+02. Close your eyes, leave the fear behind (3:54)
+03. I'm chasing you, through the night (3:44)
+04. Every heartbeat, I'm closer still (4:29)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C737B307015A1289D26D8028EF85F0C909FCCFFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780927   (70364) от 20.02.2025
 
 Dionigi - Hot Oxygen (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco>
@@ -687,64 +745,6 @@ VA - Armin van Buuren - A State Of Trance 1214 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A1F966DB3A936460EE6238295CC40D3960BA081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782574   (69973) от 01.03.2025
-
-VA - D.Trance 109 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BVDE vs. Myde - The Katla Breathe Fire (Extended Mix) [6:11]
-02. Alan Morris - Think Twice (Extended Mix) [5:23]
-03. XiJaro & Pitch - Bittersweet (Original Mix) [3:48]
-04. AYDA - ATLAS (Extended Mix) [5:45](   Читать дальше...   )Жанр: TranceПродолжительность: 03:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32B54A2408F9CF8AF04B7EE80C868A75F9441FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782642   (69956) от 02.03.2025
-
-VA - Trance Top 100, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69956.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rene Ablaze - Red Sea 2030 (Original Mix) [6:53]
-002. Christopher Corrigan - Delectation (Original Mix) [3:28]
-003. Carl Daylim feat. T'eira - Hand In Hand (Original Mix) [3:20]
-004. Daniel Cesana - Phoenix (Original Mix) [3:32](   Читать дальше...   )Жанр: TranceПродолжительность: 06:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFBF255B138CAB04525451A061078F4C227FEE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

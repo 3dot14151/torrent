@@ -1,32 +1,3 @@
-###  Публикация: 1372148   (886885) от 02.04.2020
-
-Phish - Sigma Oasis (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Psychedelic Rock, Progressive Rock, Jam Bands>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sigma Oasis (05:50)
-02. Leaves (07:03)
-03. Everything's Right (12:22)
-04. Mercury (07:31)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, Jam BandsПродолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:268F6A498796818F38F850D96F3E13F67361B302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366694   (886753) от 02.04.2020
 
 Testament - Titans Of Creation (2020) [MP3|320 Kbps] <Thrash Metal>
@@ -750,6 +721,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE17F5F8D2ABB62806D48C35E7DDFA10ED91A10D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103519   (885886) от 12.02.2017
+
+St James - Resurgence (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885886.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Attitude (3:00)
+ 2. Worth Fighting For (3:32)
+ 3. This Distance (3:35)
+ 4. Let It Rain (3:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B592988466981523C16BE41A1303F28F584C9165
 ```
 
 https://mybot314.ru/tekegram_catalog/

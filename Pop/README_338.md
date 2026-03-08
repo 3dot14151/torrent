@@ -1,3 +1,67 @@
+###  Публикация: 483955   (89262) от 18.04.2012
+
+5sta Family - Зачем ?(2012) [MP3|320 kbps]<Pop | RnB>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_89262.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Spring Summer (В.Косинский, В.Ефремов)
+2. Зачем (О.Засульская, В.Косинский, В.Ефремов)
+3. Покажи мне смысл (В.Косинский, В.Ефремов)
+4. Мы здесь2012Жанр: Pop | RnBПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823A11CFF34D4D96BEDC76D767E78B4C365B9648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483681   (88809) от 16.04.2012
+
+Тамара Гвердцители - The Best (2010) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:58:35
+
+01 - Мамины глаза [4:19]
+02 - Украденное сердце [4:41]
+03 - Песня Маргариты [4:37]
+04 - Кавказская пленница [4:15]
+05 - Сильней любите [4:14]
+06 - Осень [3:59]
+07 - Расскажите, ангелы [4:04]
+08 - У последней черты [4:18](   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481593   (88048) от 12.04.2012
 
 Sandra - Greatest Hits (2008) [MP3|320 кб/с]<Pop>
@@ -825,76 +889,6 @@ VA - Родные хиты семидесятых (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2599B2A93A636D8943F1CE8F1053B94B3B88A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471113   (83651) от 22.03.2012
-
-Stefanie Heinzmann - Stefanie Heinzmann (2012) [MP3|320 кб/с]<Soul, Indie Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83651.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fire
-2. Diggin' In The Dirt
-3. Not At All
-4. Coming Up For Air
-5. Everyone's Lonely
-6. Another Love Song
-7. Stain On My Heart
-8. Second Time
-9. Ain't No Way
-10. Show Me The Way(   Читать дальше...   )Жанр: Soul, Indie Pop, Female VocalПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AEACAABB41F9DEB9F7D2391D64BE8E8558C8586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470959   (83459) от 21.03.2012
-
-Michael Bolton - Gems: The Very Best Of (2012) [MP3|320 кб/с]<Pop-Rock | Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83459.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 :
- 01. Soul Provider
- 02. (Sittin' On) The Dock Of The Bay
- 03. How Am I Supposed To Live Without You
- 04. How Can We Be Lovers.
- 05. When I'm Back On My Feet Again
- 06. Georgia On My Mind
- 07. Time, Love And Tenderness
- 08. When A Man Loves A Woman
- 09. Missing You Now(   Читать дальше...   )2012Жанр: Pop-Rock | BalladПродолжительность: 02:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86531B08ACAD656C4CAE67FC53798AD30DD537A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

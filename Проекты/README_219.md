@@ -1,29 +1,3 @@
-###  Публикация: 935577   (497206) от 10.09.2015
-
-Проекты - VideoHive - Quick Flip Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BDA1AEA27E433AF033CDB6F2C30CA229E77D75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935766   (497159) от 10.09.2015
 
 Проекты - VideoHive - Favorite Company Timeline [AEP]
@@ -673,6 +647,32 @@ Luxury Promo - это проект премиум класса для демон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A994DCFBBC1492AD0C644B85370B1F10EAB44CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157765   (495148) от 14.08.2017
+
+Проекты - VideoHive - News Complete Package - 19581960 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495148.jpg" />
+</div>
+
+
+###  Подробнее
+
+News Complete Package - удобный, с очень простой настройкой и быстрой визуализацией расширяемый новостной проект с динамичным современным дизайном.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0414FA5EE8FC17D71DEDE3AAC4DB0C09D98B5DDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

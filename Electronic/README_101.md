@@ -1,3 +1,61 @@
+###  Публикация: 1109945   (855612) от 01.03.2017
+
+VA - Welcome EDM Vol.9 (2017) [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Simon Delf - Down (Original Mix)  5:08
+02.  Twinkle Sound - Future Strings (Original Mix)  4:21
+03.  Twinkle Sound - Fly (Original Mix)  3:15
+04.  Essiuah - Tik Tok (Original Mix)  5:21(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F194D83FD3436A1D9ABF495AB8268E7FF220BB98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000846   (855125) от 27.03.2016
+
+Нейромонах Феофан - Велики Силы Добра (2016) [FLAC|Lossless|tracks] <Drum and Bass, Neurofunk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ураган (03:12)
+02. Везде пляшу (02:22)
+03. Здесь Феофан (03:29)
+04. Велики силы добра (03:45)(   Читать дальше...   )Жанр: Drum and Bass, NeurofunkПродолжительность: 00:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9554F6390F8E271C1039CAB187882F05003DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 769910   (854998) от 23.03.2014
 
 Tycho - Awake (2014) [MP3|320 kbps] <Chill Out, Ambient, Electronic>
@@ -687,62 +745,6 @@ VA - Bye Bye Winter! (20 Crazy House Tunes) (2017) [MP3|320 Kbps] <Funky, Club H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:080899BAFF939987A63EB9C907DEC3552CFAB533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110543   (852163) от 03.03.2017
-
-VA - Bye Bye Winter! (20 Groovy Deep-House Tunes) (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain Soul – Love in the Net [03:08]
-02. Paul Smith – Into the Night [02:57]
-03. Johnny Sonny – Clap Your Hands [03:12]
-04. Goldeep – One Last Dance [03:38](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473B8145F6E93C171426C208558BDDE62D225C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110689   (852083) от 03.03.2017
-
-Katri - Shamanic Dream (2017) EP [MP3|320 Kbps] <Psytrance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shamanic Dream (6:38)
-02. Time Traveler (6:47)Жанр: PsytranceПродолжительность: 00:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EADB59B39312C70A4C9A04F61CE765B8901B8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

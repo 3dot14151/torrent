@@ -1,3 +1,32 @@
+###  Публикация: 1713564   (111830) от 07.04.2024
+
+VA - Relaxing House & Dance Music (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sharapov - Bring Me Back (Mant Deep Remix) (05:00)
+02. CHARZZ - Better (03:39)
+03. Raffa Maru - On My Mind (05:38)
+04. Gianmarco Staccone DJ - Feel The Love (04:05)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA90C75D912C7692EC81EA8C0D744C8C1520C1AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715301   (111600) от 11.04.2024
 
 VA - Timeless Ibiza 2024 [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
@@ -713,35 +742,6 @@ VA - Footsteps On The Dancefloor, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51EF801ACC93317DE3E84096156A463F250C3768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727039   (108576) от 01.06.2024
-
-VA - Summer Body Fit 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disciple Beats - Get Down The Business (Original Mix) [02:46]
-02. Jayson Brown - Wast Your Life (Original Mix) [02:42]
-03. Black Shivers - Stay Alive (Original Mix) [02:50]
-04. Stasy Brown - Round & Round (Original Mix) [02:45](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE56534F188A4CB92078B867C9603E6FD7B7B372
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1025042   (712058) от 11.06.2016
-
-VA - The Best Air Guitar Album in the World... II (2002) 2CD [MP3|320 кб/с] <Funk Metal, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Who - Pinball Wizard [03:02]
-02. Cream - Sunshine of Your Love [04:11]
-03. Deep Purple - Black Night [03:26]
-04. Steppenwolf - Born to Be Wild [03:25](   Читать дальше...   )Жанр: Funk Metal, Hard Rock, Classic RockПродолжительность: 02:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A7DE23068EBE0D217A98D285B3427B8F8E546F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219666   (711971) от 15.04.2018
 
 Tamarisk - Breaking the Chains (2018) [FLAC|Lossless|tracks + .cue] <Neo-Prog>
@@ -747,6 +718,35 @@ Backyard Babies - Sliver & Gold (2019) Limited Edition [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E4C8033CEA7DE509D4F6CCA39EF246BED775495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401350   (711305) от 09.08.2020
+
+VA - Rock Poetry (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jim Morrison, The Doors - A Feast of Friends 02:11
+02. Tori Amos - Happiness Is a Warm Gun 09:56
+03. The Sharing Patrol - Like a Rolling Stone 05:08
+04. Tim Buckley - Song to the Siren 03:28(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C958636E041E845F3E14674F110805C00F3FBE7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

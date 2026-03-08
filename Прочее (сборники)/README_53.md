@@ -1,3 +1,117 @@
+###  Публикация: 1016810   (769682) от 15.05.2016
+
+VA - EDM Ibiza: Eurodance Party (2016) [MP3|238-320 кб/с] <Club, House, Eurodance, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769682.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Guenta K and Andy Ztoned feat. Elaine Winter - Hey Hello (Club Mix) 05:05
+002. Middle Milk - Little Sister (Radio Edit) 03:37
+003. Klingande - Losing U (feat. Daylight) 03:36
+004. Aquanova - Walk Alone (Radio Version) 03:55(   Читать дальше...   )Жанр: Club, House, Eurodance, ElectroПродолжительность: 09:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35F316C213AABAC202BC9291069BC6CD5039999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016830   (769628) от 15.05.2016
+
+VA - Весенний хит супер популярный 7 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769628.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Katrin Mokko - В Моем Кино
+002. Parson James - Waiting Game
+003. D1n Feat. Виктория Лоскутова - Сука-Любовь
+004. Molella Feat. Airtones - Bring Back The Love(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77CC30A063384ADF6FCEC2C5D967976EA3864308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016862   (769521) от 15.05.2016
+
+VA - Promo DJ TOP 100 Remixes Spring (2016) [MP3|320 кб/с] <Club House, Vocal House, Deep House, Dance Pop, Electro House, Progressive House, Trance, Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769521.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Disciples - How Deep Is Your Love (DJ Shevtsov Remix) 05:02
+002. Ane Brun - Big In JapanЖанр: Club House, Vocal House, Deep House, Dance Pop, Electro House, Progressive House, Trance, ChilloutПродолжительность: 07:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C6ABB62EA954EDC341B28E5349ECB26FE46004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392747   (768927) от 28.06.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 26.06.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mari Ferrari with M.Z.I & S-ELM feat. Vianne - Drop Dead 2:32
+02. Ava Max - Salt 3:00
+03. Pascal Letoublon - Friendships 4:02
+04. Surf Mesa feat. Emilee - ily (i love you baby) 2:57(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFDE5C739ACB6E8ECBD0C01F3F8F8F2EF0396AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392933   (768866) от 28.06.2020
 
 VA - Sexy Music or Songs to Striptease to or Songs to Have Sex (Fuck Music 2CD) (2020) [MP3|320 Kbps] <Easy Listening, Rock, Pop>
@@ -625,122 +739,6 @@ VA - Latín Natural En La Disco (2018) [MP3|192-320 Kbps] <Trap Latino, Reggaeto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8AAA5D0BD8800204BD178EDFC2294D7154D3CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214037   (766548) от 19.03.2018
-
-VA - Kiss FM: Top 40 / Mарт (2018) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Post Malone feat. 21 Savage  -  Rockstar (Ilkay Sencan Remix)  4:10
-02.  Platon feat. Joolay  -  Taking Me Higher  4:25
-03.  Vanotek feat. Eneli  -  Tara  3:34
-04.  Matt Nash & Delayers  -  Run  4:02(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 02:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9ADEF868CFA5447C0898CC37E9F8EC3818323B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279420   (765962) от 29.01.2019
-
-VA - Самые скачиваемые треки ВКонтакте Зима (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765962.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Rag'n'Bone Man - Giant 3:48
-002. Gimmy Weaver feat. Tony T. - It's Your Night 3:17
-003. Nexeri feat. November Lights - You & I 3:46
-004. Adam K & Soha - Need To Feel Loved 3:15(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EEDA041CECF832904683D6300AB3CB86D9A4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214129   (765768) от 20.03.2018
-
-VA - The Ultimate Classic Deep House (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765768.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Matt Darey - One More Night in Stars
-002. Abriviatura IV - Bringing Me Down (Original Mix)
-003. Haldo feat. Leggo Thomas - A Better Place (Steven Stone Remix)
-004. Forced Voyage - Why Did You Do It (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 13:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B192B068845AFD128365212800433EAA6119EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279600   (765466) от 30.01.2019
-
-VA - German Top 50 Party Schlager Charts 28.01.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Maite Kelly - Die Liebe Siegt Sowieso
-03. Kerstin Ott - Regenbogenfarben
-04. Maite Kelly - Heute Nacht für immer(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA464CC1C067BA665749BF424BD026AC53DD9BC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

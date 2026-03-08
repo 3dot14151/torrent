@@ -1,3 +1,29 @@
+###  Публикация: 331787   (699526) от 04.05.2011
+
+Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПродолжительность: 00:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADD91DFA5D21456D273FD65BC6390C32065FEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534010   (699419) от 27.02.2022
 
 Квартирник у Маргулиса. Татьяна Зыкина (26.02.2022) WEBRip [VP9/2160p]
@@ -701,35 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B89461F1990A8469C75C47BE507E0F8272C668F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897268   (687415) от 12.05.2015
-
-Uriah Heep - Live At Koko (2014) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uriah Heep выпускают концертный альбом Live At Koko, London 2014. Диск поступил в продажу 20 февраля в Европе и 24 февраля в Северной Америке, причем в разных форматах, как на обычном CD, так и на DVD/Blu-ray.01. Against The Odds
-02. Overload
-03. Traveller In Time
-04. Sunrise(   Читать дальше...   )Жанр: Rock, Prog Rock, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7172A9357F3EED5726FB1554E741A510BFFF71FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

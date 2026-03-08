@@ -1,3 +1,32 @@
+###  Публикация: 1455319   (1025813) от 18.03.2021
+
+Peggy Lee - Black Coffee & Dream Street: The Complete Sessions (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Coffee (1956)
+01. Black Coffee (3:09)
+02. I've Got You Under My Skin (2:32)
+03. Easy Living (2:47)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A48B0D3FEB8110FBA7C2B527C6DE7CB8428BCD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455216   (1025746) от 18.03.2021
 
 Frank Sinatra - Reprise Rarities - Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -716,35 +745,6 @@ Yaniv Taubenhouse - Perpetuation: Moments In Trio, Vol.II (2019) Fresh Sound Rec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36BAD88D6F63EE57B0B20375DFCBB7582C8E7963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461828   (1021598) от 11.04.2021
-
-V.A. - Women Of Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etta James – At Last
-02. Norah Jones – Don’t Know Why
-03. Nina Simone – Feeling Good
-04. Ella Fitzgerald – Mack The Knife (Live)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40649C02F49FB3AA59B7B5A6F2C6F44A4E786CE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

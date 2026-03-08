@@ -1,3 +1,61 @@
+###  Публикация: 1206892   (781337) от 16.02.2018
+
+VA - Freaky House 2018 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugarboys - Nah Nah Nah (Original Mix)
+02. Adam Walker - Pump It (Original Mix)
+03. Nicole Palmer - Little Divine (Original Mix)
+04. Recovery Mafia - Make Love (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8095DFD9CC7FFAABBFBBC3437147689CCD7CAD6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206562   (781334) от 16.02.2018
+
+VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Deep House, Hip-House, Garage House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Nightwriters - Let The Music (Use You) (Original Mix) (8:11)
+02.Sterling Void & Paris Brightledge - It's Alright (Original 12'House Mix) (6:51)
+03.Adeva - Respect (Extended Mix) (7:32)
+04.Chanelle - One Man (One Mix) (7:45)(   Читать дальше...   )Жанр: Acid House, House, Disco, Deep House, Hip-House, Garage HouseПродолжительность: 02:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B8BE726AF5989A0A416D31D772AC65040FE3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206920   (781333) от 16.02.2018
 
 LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental>
@@ -685,64 +743,6 @@ Sam Feldt - After The Sunset (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5874450711664DFA1A3CB1918D1F78B8B457B839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207291   (780277) от 20.02.2018
-
-Хеnturiоn Prime - Humаnitу Plus (2017) [FLAC|Lossless|image + .cue] <FuturePop, SynthPop, EBM>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artifact I (4:27)
- 02. Propulsion (4:58)
- 03. Milestone (4:52)
- 04. Artifact II (2:14)(   Читать дальше...   )Жанр: FuturePop, SynthPop, EBMПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6AC40A212BFCDB5CF356175763F1ABE700BC0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207686   (780251) от 20.02.2018
-
-VA - Ladies Of Synth (Compiled by Scott Forte) (2017) [MP3|320 Kbps] <Synthpop, Synthwave, Retrosynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roxi Drive & Neon Black  -  All Night Long  5:02
-02.  Night Vision  -  Never Enough  5:22
-03.  Radio Wolf  -  Song On The Radio (feat. Marika Gauci)  3:55
-04.  Love Impasse  -  Reflex In My Tears  4:00(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrosynthПродолжительность: 03:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD92A606BB87BD17E2807EA29B11E35C2F796CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

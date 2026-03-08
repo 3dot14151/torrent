@@ -1,3 +1,61 @@
+###  Публикация: 1548733   (598364) от 03.05.2022
+
+VA - Tani-Disco Rumba & Flamenco Boogie 1976-1979 (2018) CD [MP3|320 Kbps] <Disco, Rumba, Flamenco, Boogie>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sangre Gitana - Yo Me Siento Muy Feliz (2:32)
+02. Rumba Tres - Y No Te Quedan Lagrimas (2:36)
+03. Los Gachos - Estrella (4:20)
+04. Tobago - Oye Chiquilla (3:46)(   Читать дальше...   )Жанр: Disco, Rumba, Flamenco, BoogieПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71700F751BEABDE1050AEC4188E1EE2587142421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548576   (597903) от 03.05.2022
+
+Demis Roussos & We Five - Demis Roussos & We Five (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demis Roussos - When a Man Loves a Woman [00:02:41]
+02. We Five - Wild Thing [00:03:53]
+03. Demis Roussos - Black Is Black [00:04:01]
+04. Demis Roussos - Paint in Black [00:02:33](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD247BD75D163AF7CD6F69FEA47C4F1619B73AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039342   (597789) от 31.07.2016
 
 Lipstique - At The Discotheque (1977) Reissue, 1993, Lollipop Records [MP3|320 Kbps] <Electronic, Disco, Pop>
@@ -696,64 +754,6 @@ VA - Знакомые все песни (2013) [FLAC|image + .cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:988346A14D3AEF5843E285212170A44F886A6323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299907   (595980) от 03.05.2019
-
-VA - 90s Dance Hits, Vol. 3 (2019) [MP3|320 Kbps] <Dance, Electronic,  Eurodance,  Eurobeat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C+C Music Factory - Gonna Make You Sweat (Everybody Dance Now) 4:06
-02. Salt-N-Pepa - Push It 4:29
-03. Robin S. - Luv 4 Luv (Stone's Radio Edit) 4:13
-04. La Bouche - Sweet Dreams (Radio Edit) 3:26(   Читать дальше...   )Жанр: Dance, Electronic,  Eurodance,  EurobeatПродолжительность: 02:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2664F42F7788FC9A10319A62CA4750FCBEC2F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039603   (595917) от 01.08.2016
-
-Catherine Clarnette - Bold (2016) [MP3|320 Kbps] <Alternative Pop, Dark Pop, Jazz Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Couldn't Let You Win
-02. Tango
-03. It Won't Be Me
-04. Never Live the Same Way(   Читать дальше...   )Жанр: Alternative Pop, Dark Pop, Jazz PopПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A7C99703A8D06A28F2ED4A8A7AF83BE05639CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

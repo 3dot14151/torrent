@@ -1,32 +1,3 @@
-###  Публикация: 1202083   (790504) от 28.01.2018
-
-Orphaned Land - Unsung Prophets & Dead Messiahs (2018) Limited Edition [FLAC|Lossless|image + .cue] <Middle Eastern Folk, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790504.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1: Unsung Prophets & Dead Messiahs
-
-01. The Cave 08:10
-02. We Do Not Resist 03:24(   Читать дальше...   )Жанр: Middle Eastern Folk, Progressive MetalПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AEF40A22E1793E2B9745DD1A93A98A9F1147607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275310   (790487) от 11.01.2019
 
 Alter Bridge - AB III (2010) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
@@ -742,6 +713,35 @@ Cherokee - Blood & Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FEF924294D74031AE67B20B1C7951766C37E093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202517   (789835) от 29.01.2018
+
+Heaven - Bent (1982) Unofficial, 1999, Heatsink Records [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789835.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fantasy
+2. Nothing To Lose
+3. Take You Higher
+4. Storm(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422E6850E465325A8D9154A7CFE3BE3286DF2D49
 ```
 
 https://mybot314.ru/tekegram_catalog/

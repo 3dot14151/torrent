@@ -1,3 +1,116 @@
+###  Публикация: 1816745   (4094) от 06.09.2025
+
+VA - National Pop Dance Music Vol.119 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4094.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Morgan Wallen - Just In Case (02:46)
+ 002. Mats Radberg - Mamma, Lat Inte Din Grabb Vaxa (03:05)
+ 003. Imera - Vazgectim (04:28)
+ 004. Leif Bloms - Hall Mej Hart (03:01)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0858EEA581EB4CEF6D3DD9FFCD35AE16F23914E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816985   (3943) от 07.09.2025
+
+VA - Дискотека 2025 Dance Club Vol. 230 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dance, OtherПродолжительность: 18:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E933CF30B5927A22FC8C27145F005742745669B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816211   (3897) от 07.09.2025
+
+Reyvi - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Eyes Are Silent
+ 02 - You Left Me
+ 03 - No No No
+ 04 - Sans Ton Amour(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC6350C71BF1670A4164D76A68669CEB6509A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816210   (3862) от 07.09.2025
+
+Frezee - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Chillout, Female Vocal, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Там Где Ждут
+ 02 - Шапито
+ 03 - Колыбельная
+ 04 - Твои Шаги(   Читать дальше...   )Жанр: Pop, Chillout, Female Vocal, OtherПродолжительность: 00:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3529883EB6906B83C8E0A93EFCFAA0119E98D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817123   (3744) от 08.09.2025
 
 VA - Music News For Forum vol.133 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -630,122 +743,6 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [c003, Bonus] (2012-2025) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C11128B1277B8C182C47F3E0AC5EF0E9DFD1385F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818864   (1301) от 23.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [a001] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1301.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A R I Z O N A - Summer Days.mp3
-002. A&G, Northmark feat. Gabri - Run With Me (Radio Edit).mp3
-003. A. Lee - Gotta Let Go (Dub Mix).mp3
-004. A. Rassevich - Come One Way (Original Mix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD6A633F06A0E897C78D63F47E21387D6AAB539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819676   (1163) от 24.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [a002] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1163.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aelyn - Believe In Us (Radio mix).mp3
-002. Aelyn - Hypnosis.mp3
-003. Aerobatics & Cotry - Intuition (Feat. Cotry) (Original Mix).mp3
-004. Aeron Aether & Bobalino - Titans  feat. Jay Furze (Album Mix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D34D6CCBACC5131F4A8C9ACC52A91CAF2E4EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819642   (1157) от 24.09.2025
-
-Зоя Ященко и Белая Гвардия - Premium Playlist (1993-2020) [MP3|320 Kbps] <Sentimental Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1157.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. А в лесу сосновом... (Когда ты вернёшься, 2002).mp3
-002. Абсолютная ночь (Другие острова, 2001).mp3
-003. Айседора Дункан (Так восходит луна, 2013).mp3
-004. Алый парус (Кукла в кармане, 2005).mp3(   Читать дальше...   )Жанр: Sentimental RockПродолжительность: 08:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0EE3E96B703B2C04FC7D1176EEF13506E7E26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819877   (1033) от 25.09.2025
-
-VA - Gym Hits (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loofy, Anyma, Layton Giordani - Last Night - Anyma x Layton Giordani Remix (5:14)
-02. Steve Angello, Modern Tales - Darkness In Me (4:28)
-03. Adam Beyer, Chris Avantgarde - Desolate Lands (4:18)
-04. Swedish House Mafia - Ray Of Solar (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767861FE70C20269B3B2125309553DA1B2A8C512
 ```
 
 https://mybot314.ru/tekegram_catalog/

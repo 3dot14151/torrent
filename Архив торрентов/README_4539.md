@@ -1,314 +1,3 @@
-###  Публикация: 461348   (95108) от 02.03.2012
-
-DJ LEV - Night Style (2012) [MP3|320 кб/с]<Electro House, Dutch House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bingo Players, Lil Jon - Mutate Rattle (Base Music, DJ Zarubin Mash-Up)
-02. Chuckie - Who Is Ready To Jump (Dada Life Remix)
-03. The Sleepover & Reece Low & Meltek - Disco Slut (D-Jastic Remix)
-04. Spencer & Hill - I Want You (The Koch Remix)
-05. David Guetta - Stay (Johan K Horny Bootleg)
-06. MC Zali - Girls Made In Russia (DJ Melnikoff Remix)
-07. Adrian P & Carl Novy - Sensation (Sferlazzo Remix)
-08. Sasha Veter - Proletayut Dni (DJ Prado & DJ Timakoff Remix)
-09. LMFAO - Sexy And I Know It (Blood Dance Project Remix)
-10. Enrique Iglesias - Tonight (Blood Dance Project Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A88DCED50FB29A13E50B90F6FB286886D8FF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460964   (95094) от 02.03.2012
-
-VA - Face Disco (2011) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Hertz - Money for nothing [7:12]
-02. D-Vision - Juicy pad song [7:28]
-03. Timestretch - Dullday [8:02]
-04. Philter - Attribute [8:25]
-05. Lightsphere - Aeroplan [8:04]
-06. Timestretch - Endless Maze [8:09]
-07. Connexx - With Me [8:18]
-08. Shyisma - Harmonic Elements [7:37]
-09. HMB - Special Dreams [6:54]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461219   (95091) от 02.03.2012
-
-Xtatic Shiva - Traces (2012) [MP3|320 кб/с]<Psychedelic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death of A Dwarf Star 07:15
- 02. Dominant Alien Culture 07:37
- 03. Maharashtra 05:13
- 04. Sawhead (Original Version) 08:46
- 05. Solar Effect 07:49
- 06. Sulphur 08:01
- 07. There is Truth Beyond Knowledge 08:11
- 08. To Shi Ban 06:14
- 09. Traces 09:192012Жанр: PsychedelicПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17AC8878841F6541F23C1A84FE74FD583340AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461212   (95087) от 02.03.2012
-
-Lamat - V (2011) [MP3|~250 кб/с (V0)]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95087.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Predators 8:45
- 2. Perfect System (The Legacy) 8:31
- 3. Cartell Me About It (FFT RMX) 6:48
- 4. Remastered Controller 7:15
- 5. New Technologies 8:18
- 6. Mind Control Neuro Transmitor 7:53
- 7. The Resistance 7:38
- 8. Magnetic Interference 6:562011Жанр: Psychedelic / Full OnПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B1063E8C8EC907651C6B0908C377860DC43BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461352   (95085) от 02.03.2012
-
-VA - Armada Top 15: March 2012 (02.03.2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kirsty - Twilight (Armin van Buuren Remix) (6:03)
- 02. tyDi feat. DJ Rap - Talking To Myself (Maison & Dragen Remix) (6:06)
- 03. Mischa Daniels & Solid Gaz - TW3LVE (Original Mix) (5:05)
- 04. Heatbeat - Rocker Monster (Original Mix) (6:43)
- 05. Andrew Bennett feat. Shena - Alright (Sebjak Remix) (6:33)
- 06. Da Hool feat. Jay Cless - She Plays Me Like A Melody (Global Deejays Remix) (5:33)
- 07. Matt Darey & Stan Kolev feat. Aelyn - Follow You (Milan & Phoenix Remix) (6:00)
- 08. Nash & Pepper Pres. Ostrega - First Scream (We aRe Extended Mix) (5:20)
- 09. Orjan Nilsen - Lucky Strike (Original Mix) (7:49)
- 10. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix) (7:20)(   Читать дальше...   )02.03.2012Жанр: TranceПродолжительность: 01:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B407D0539C7A045E1B4ADEB439497116AAB24FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461391   (95077) от 02.03.2012
-
-VA - The Dance Cube XXXIV 2CD (2011) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95077.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Продолжительность: 01:11:31
-===============================
-01 - Xtigma - Burnout (Original Mix)
-02 - Ost & Meyer - Scarlet Heaven (Original Mix)
-03 - Mike Foyle And ReFeel - Universal Language (Original Mix)
-04 - Dave202 - Alive (Fabio XB Vs. Nicologik & Zephyr Remix)
-05 - The Cloudy Day - Freedom of Soul (Original Mix)
-06 - DJ Butterfly - Will Be (Original Mix)
-07 - Lunarbeam - From Dusk Till Dawn (Original Mix)
-08 - Nexus 3 - State Of Wonder (Original Mix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D30D2D8D73786B7666B905B274A55A55C419B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461172   (95073) от 02.03.2012
-
-Nate Wooley Quintet - Hands Together (2011) [FLAC|Lossless]<ree Jazz, Modern Creative>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shanda Lea (3:33)
-02. Hands Together (9:49)
-03. Erna (4:06)
-04. Shanda Lea (2:58)
-05. Ethyl (5:20)
-06. Cecelia (9:05)
-07. Pearl (2:16)
-08. Elsa (5:51)
-09. Hazel (3:45)
-10. Shanda Lea (4:01)2011Жанр: ree Jazz, Modern CreativeПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461421   (95068) от 02.03.2012
-
-Amy Ray - Lung Of Love (2012) [MP3|320 кб/с]<Folk Rock/Indie Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95068.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. When You're Gone, You're Gone (3:15)
-2. Glow (1:55)
-3. I Didn't (4:06)
-4. From Haiti (3:10)
-5. Crying In The Wilderness (2:53)
-6. Little Revolution (2:51)
-7. The Rock Is My Foundation (3:13)
-8. Lung Of Love (3:40)
-9. Give It A Go (2:47)
-10. Bird In The Hand (3:40)2012Жанр: Folk Rock/Indie RockПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11077CC13C834E12E42A0AFD6DC32C6F2AA4908D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461162   (95067) от 02.03.2012
-
-Trance Maniacs Party - Progressive Session #33 (2012) [MP3|320 кб/с]<Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95067.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Matt Skyer - Locust (Original Mix) (7:30)
- 2. Paul Webster feat. Angelic Amanda - Forever Today (Tom Colontonio Remix) (6:22)
- 3. Rex Mundi - Interstate Of Lightning (Original) (8:22)
- 4. John Askew - Intimate Strangers (Aly & Fila Remix) (7:55)
- 5. Christian Drost & DK Project - Always Connected (Original Mix) (8:03)
- 6. Lisa Lashes - The Bends (Heatbeat Remix) (6:18)
- 7. Arnej feat. Sally Saifi - Free Of You (8 Wonders Vocal Mix) (8:05)
- 8. Sektor V pres. Austin V - The Caveman (Original Mix) (7:28)
- 9. James Dymond - Shallop (Adham Ashraf Remix) (7:22)
- 10. Activa - Telic (Indecent Noise Dark Sessions Remix) (6:58)(   Читать дальше...   )2012Жанр: Progressive TranceПродолжительность: 03:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51ED894F18F6E0789C2041613DCAA099C00D0D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 460775   (95063) от 01.03.2012
 
 Nightwish - The Crow, The Owl And The Dove (Single) (2012) [MP3|192 кб/с]<Symphonic Metal>
@@ -842,6 +531,286 @@ VA - House Vip (25.02.2012) [MP3|320 кб/с]<Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E1799CA65CE19D1D3E13EDBA752D49489D1798D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459273   (94894) от 28.02.2012
+
+Журнал | Автомир [Россия] №9 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94894.jpg" />
+</div>
+
+
+###  Подробнее
+
+АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A9ACEDDCFEF19CDCF0B8055AFBC5159F6C20AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459587   (94893) от 28.02.2012
+
+Призрачная армия Китая / China's ghost army (2010) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Терракотовые воины - название, известное миллионам людей по всему миру. Однако археологи до сих пор раскрывают их секреты. Как древние мастера добились небывалого - создали 8-тысячную армию из глины? Сегодня, ученые XXI века совершают поразительные открытия.Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE094260791A7D06D6A69FEB2047B63578B6202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459090   (94884) от 28.02.2012
+
+Фотография - Храмы из оружия [JPG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эл Фэрроу, скульптор из Сан-Франциско, на протяжении 30 лет создаёт уменьшенные копии различных религиозных храмов, используя в качестве строительного материала различное оружие, пули, сталь, стекло, кости... Почему именно такие расходники? Ответ на этот вопрос даёт сам автор:
+«Меня всегда удивляло тесное соседство войны и религии, ведь зверства, совершенные во время военных действий, нарушают абсолютно все догмы любой религии. Вопреки здравому смыслу мужи от религии очень редко выступают против нарушений права человека на жизнь, причем совершаемые, как это не парадоксально, во имя Бога. Исторически сожилось так, что Папа Римский даже предлагал вечное спасение тем, кто воевал от его имени (крестовые походы и т.п.)
+В моих работах при создании реликвариев я использовал символы войны, религии и смерти во имя архитектурной красоты и гармонии. У меня довольно глубокие познания в областях истории искусств, археологии и антропологии, которые очень пригодились. Эти скульптуры – ироническая игра на струнах средневекового (   Читать дальше...   )Разрешение файлов: 689х491-1024х1009
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995A870984AA3024492941A2D5CBF9C2F07B3C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459613   (94880) от 28.02.2012
+
+VA - Mysteries Of Psytrance vol. 2 (Compiled by Ovnimoon) (2012) [MP3|320 кб/с]<Psytrance, Goa Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94880.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность - 01:19:06
+
+ 01. Ectima - Insufferable User (Opsy rmx) [08:45]
+ 02. Psypheric - Pandorum [09:00]
+ 03. Ovnimoon - Love is the Key [08:31]
+ 04. Psilocybian & Yashpal - Freeloaders [07:07]
+ 05. Attik - Maquinarium [08:14 ]
+ 06. Existence - Solar Activity [07:34]
+ 07. Spirit Architect - New Born [06:49](   Читать дальше...   )2012Жанр: Psytrance, Goa TranceПродолжительность: 02:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED520089F8E3180CE4167AB6E416B33BDA59389C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459328   (94872) от 28.02.2012
+
+Meat-Grinder - Воскрешение из пепла (2004) [MP3|320 кб/с]<Sympho Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Intro
+02.Иногда они оживают
+03.Аркона
+04.Непокорная душа
+05.Воскрешение из пепла
+06.Моя вера
+07.Леда
+08.Забытый храм
+09.Бал теней2004Жанр: Sympho Black MetalПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD65465504279CFB397875D3FBBE396988C2CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459148   (94867) от 28.02.2012
+
+[Wallpapers] Desktop Wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пак из 293 обоин с различными красивостями
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE870D79A26AB24889491357685DBBAAFB4A115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459010   (94863) от 28.02.2012
+
+David Guetta - DJ Mix 087 (25.02.2012) [MP3|224 кб/с]<Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Intro (00:32)
+ 02. Jack Back feat. David Guetta, Nicky Romero & Sia - Wild One Two (05:20)
+ 03. Norman Doray - Leo (04:00)
+ 04. Afrojack feat. Shermanology - Can't Stop Me (Club Mix) (05:16)
+ 05. Zedd - Stars Come Out (Tim Mason Remix) (04:55)
+ 06. Sander van Doorn - Chasin' (04:25)
+ 07. Starkillers feat. Nadia Ali - Keep It Coming (Dmitry KO Remix) (04:46)
+ 08. Deadmau5 - Maths (06:37)
+ 09. Hard Rock Sofa - Quasar (05:49)
+ 10. DJ DLG & Alternative Reality - Califaction (05:10)(   Читать дальше...   )25.02.2012Жанр: Progressive HouseПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D6BE047432795406459ED2447FA49514FABDCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459075   (94845) от 28.02.2012
+
+VA - Special Places (2012) [MP3|320 кб/с]<Ambient, Modern Classical>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.D. Expression - Alpae-3717 (4:44)
+ 02. Cygna - Camaras De Lamento (7:14)
+ 03. Chronos - Dandelions As Memory (8:56)
+ 04. Irukanji feat. JazzyFlute - Out From Little Box (AstroPilot Edit) (6:26)
+ 05. Ambient Intelligent Application - Via Lactea (AstroPilot Edit) (8:13)
+ 06. Rabitza - Port (6:12)
+ 07. AstroPilot - Svoboda (5:13)
+ 08. Access To Arasaka - AUG (5:32)
+ 09. Field Rotation - Disappear (7:14)
+ 10. Nexar - Jewel (AstroPilot Edit) (5:21)(   Читать дальше...   )2012Жанр: Ambient, Modern ClassicalПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30931CAFA318942D6F304898B88C50E086281C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459169   (94841) от 28.02.2012
+
+VA - Copy Kills (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day.Din - Copy Kills (original mix) 06:37
+02. Twins - Speaking Mantra (original mix) 06:54
+03. Interactive Noise - Vienna 06:51
+04. Flegma - Oriented 07:14
+05. Virtual Attack vs Underbeat - 2nd Show 07:07
+06. Liftshift - Ritual Energy 08:49
+07. Eight Sin - Star Of Picker 06:38
+08. Ephedrix - Mexican Wave 07:11
+09. Ace Ventura - Baby Boom (original mix) 09:43
+10. Helber Gun - Swing Drop 07:08(   Читать дальше...   )2011Жанр: Psychedelic / Full On, Psy-ProgПродолжительность: 02:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96D818BA0BE3F51CADCC05F28721CAFDA09840B
 ```
 
 https://mybot314.ru/tekegram_catalog/

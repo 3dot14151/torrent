@@ -1,3 +1,32 @@
+###  Публикация: 1068449   (380142) от 01.11.2016
+
+Stokowski / London S. O. / Rca: Bach - Stokowski: Transcriptions / Handel: Music for the Royal Fireworks (1961 & 1974) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bach transcription. London Symphony Orchestra.
+1.Chaconne
+2.Preludio
+3.Ein feste Burg(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF2C8AA2F2FB0C3F030F9EB2F0A7004E09E60ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949101   (379144) от 22.10.2015
 
 David Garrett - Explosive (2015) 2CD [FLAC|image+.cue]<Classical, Crossover>
@@ -701,38 +730,6 @@ Giuseppe Verdi - Un Ballo in Maschera: Herbert von Karajan, Vienna Philharmonic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDCA6250A137A3CA42106CFE0DC95D904AADE486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328397   (359054) от 02.10.2019
-
-Jordi Savall, La Capella Reial de Catalunya, Hesperion XXI - Christophorus Columbus Paraisos Perdidos - Lost Paradise [2CD] (2006) Alia Vox [MP3|320 Kbps] <Classical>
-
->>Классика
->>Концерты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концепция программы, выбор текстов, песен и музыкальные адаптации Жорди Саваль
-Драматургия и арамейские, еврейские, арабские и наухатльские тексты Мануэль Форчано
-Рассказчики: Нурия Эсперт - испанский (Диск 2 №18)
-Франсиско Рохас - испанский(   Читать дальше...   )01. Introduccion (00:57)
-02. Invocacion Tethysque novos detegat orbes (01:06)
-03. Evocacion 1 Medea Nunc iam cessit pontus et omnes patitur leges (02:34)
-04. Invocacion Coro Tethysque novos detegat orbes (01:28)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E064F93D29D66C902E9DFCE71BC01D0498A757EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

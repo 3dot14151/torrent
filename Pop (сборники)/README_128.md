@@ -1,3 +1,32 @@
+###  Публикация: 1764679   (5225) от 30.08.2025
+
+Emin - Compilation (2006-2025) [MP3|320 Kbps] <Soul, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Keeps Beating (After The Thunder 2012)
+02. Always (Good Love 2019)
+03. Always On My Mind (Obsession 2008)
+04. Отпусти и Лети (Love Is 2021)(   Читать дальше...   )Жанр: Soul, PopПродолжительность: 05:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFFA089E5E8BAF43EEE80DE4FB009ECCAE95598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814229   (4303) от 05.09.2025
 
 Reyvi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>

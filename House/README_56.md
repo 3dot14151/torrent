@@ -1,3 +1,32 @@
+###  Публикация: 1074742   (336355) от 20.11.2016
+
+VA - Afterglow Vol.2: Deep Electronic Sounds (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Dassi - The Right Side
+02. Sascha Braemer - Touchdown
+03. Marcio Kantana - Fresh
+04. Alexander Koning - Out of Firsts(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49B9628E7C583A55C24C2A0E85AEC63BB5962BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074400   (336351) от 20.11.2016
 
 VA - This Is Deep House Vol.1 (2016) [MP3|320 Kbps] <House>
@@ -722,35 +751,6 @@ VA - 55 Dancefloor Minimal Hits (2015) [MP3|320 кб/с]<House, Tech House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AD4BBB7DB454FF9861F6DE6D75AF0241C8DAFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959340   (317316) от 24.11.2015
-
-VA - 55 Bombs Of Minimal (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus Escobar Kiffen - King [06:41]
-02. Efeckt Mnml - Feel The Reeverb [06:35]
-03. Whisperer - Gibbons [05:36]
-04. The Mnml Robots - Where Is My Sputnik [06:56](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68E733104AA44CFCEA53B066238646F4265653F
 ```
 
 https://mybot314.ru/tekegram_catalog/

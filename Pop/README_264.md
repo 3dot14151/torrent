@@ -1,3 +1,58 @@
+###  Публикация: 1625804   (244333) от 11.04.2023
+
+VA - Choices (2023) [MP3|320 Kbps] <Disco, Soulful, Afrobeat, Nu Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Kelli - Contagious (FunkHut Yourbody Full Vocal)
+02. Tracy Hamlin - Secrets (Charles Dockins Secret Sauce Mix)
+03. Dee Jay Sound, Morris Revy - Gonna Get My Crown (Original Vocal Mix)
+04. Arnaud D, Earl W. Green - When We Dance (Club Mix)(   Читать дальше...   )Жанр: Disco, Soulful, Afrobeat, Nu DiscoПродолжительность: 01:19:02 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C853D491BE79A2B42C768E934DB4F8D4DDD2518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567163   (244321) от 01.08.2022
+
+VA - I Love The 90's 10 Years Anniversary Edition (2017) 5CD, Compilation [FLAC|Lossless|tracks + .cue] <Eurodance, House, Dance, Eurobeat>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Eurodance, House, Dance, EurobeatПродолжительность: 01:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BFBE6BAB3D8B74E8E91133088EE2D973CAECD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632300   (244316) от 09.05.2023
 
 Shakin' Stevens - Re-Set (2023) [FLAC|Lossless|image + .cue] <Pop-Rock, Rock 'N' Roll>
@@ -683,64 +738,6 @@ VA - Slay Queen! (2023) [MP3|320 Kbps] <Pop, Rock, RnB,>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F4FC3CD76D23C60963A6B330691FA4DC8817C85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359609   (242813) от 15.02.2020
-
-Акула - Кислотный DJ (2001) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кислотный DJ (3:56)
-02. Я Убегаю (3:43)
-03. Не Молчи (4:12)
-04. С Тобою Рядом (4:24)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8875206BBC3036EF74BB23F086D26AD4A04DD3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624225   (242804) от 05.04.2023
-
-VA - Deutscher Schlager Hit Mix (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders - Sie hat es wieder getan (feat. Florian Silbereisen) (3:33)
-02. Zimmermann - Himmelblaue Augen (Single Mix) (3:25)
-03. Nino de Angelo - Jenseits von Eden (3:54)
-04. Tanja Lasch - Marie (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:526E7691579B05D732D471B83123DF81D728C9C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1355378   (983626) от 26.01.2020
+
+VA - Klangkunst Vol.2 (2014) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruede Hagelstein & The Noblettes - Berlin (4:03)
+02. Paul Kalkbrenner - Platscher (4:12)
+03. KlangTherapeuten vs. Melokind - Perlentaucher (Melokind Remix) (7:32)
+04. Nora En Pure - Come With Me (Radio Mix) (2:55)(   Читать дальше...   )Жанр: House, Downtempo, AmbientПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61828A7356C24D934C3EC549B81E9D6B0A46EE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355501   (983519) от 26.01.2020
+
+Jeff & Jane Hudson - Flesh (1983) Reissue CD, 2000, Daft Records [MP3|320 Kbps] <Electronic, Industrial, Electro, Synth-pop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special World (4:41)
+02. 3 x 3 (4:38)
+03. Fat Of The Land (3:36)
+04. Mystery Chant (4:03)(   Читать дальше...   )Жанр: Electronic, Industrial, Electro, Synth-popПродолжительность: 01:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15D6110ADC7C569E7E2EF86A45602C4F08BCF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972241   (983518) от 05.01.2016
 
 VA - Soleados Chillout Beats (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -700,64 +758,6 @@ VA - Deep Insane Sensation Vol 1 (2016) [MP3|320 кб/с] <Deep House, Club Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4DD738E14EBE7AEAAEC8F1CEF06AB757A82DD42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973363   (980101) от 08.01.2016
-
-VA - Viper Presents: Drum & Bass Annual 2016 (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brookes Brothers - Climb High (feat. Danny Byrd - radio edit)
-02. The Prototypes - Hypercube
-03. InsideInfo & Mefjus - Pulsation
-04. Matrix & Futurebound - Glow Worm(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B188D4F0ACA2422919C9D66574920157F6A5E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972360   (979211) от 09.01.2016
-
-Jaffa - 2 albums (2000, 2011) [MP3|320 кб/с] <Electronic, Ambient, Jazz>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979211.jpg" />
-</div>
-
-
-###  Подробнее
-
-За спиной Дэвида Кейкона, он же Jaffa, пятнадцать лет школы классической игры на фортепиано. Большой поклонник органа и коллекционер старинных синтезаторов, в своей музыке он использует такие инструменты, как Fender Rhodes, Moog MultiMoog, Roland Alpha-Juno 2, Waldorf Pulse, Hammond B3, Hohner Clavinet и Wurlitzer EP.
-Дебютный альбом Jaffa не укладывается в рамки (   Читать дальше...   )Список альбомов:
-2000 - Elevator
-2011 - EchoesЖанр: Electronic, Ambient, JazzПродолжительность: 01:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD4C922288B69F51B5F26BFDE85A8FC9C079262
 ```
 
 https://mybot314.ru/tekegram_catalog/

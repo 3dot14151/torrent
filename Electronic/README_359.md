@@ -1,3 +1,60 @@
+###  Публикация: 1261887   (301292) от 12.11.2018
+
+MacroVision - Skyroom (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyroom (Rework)   (08:15)
+02. Glow (Original Mix)  (10:52)
+03. Pollux (Original Mix) (09:38)Жанр: Progressive HouseПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FE9B7D6FD8B362EBEFBCAC9DF65673CF0C4055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184370   (301283) от 17.11.2017
+
+VA - Blank & Jones Presents Chilltronica No.6 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blank & Jones - Waves (Original Mix)  2:54
+02.  Blank & Jones - The Very End (Original Mix)  5:36
+03.  Sven Weisemann - Falling Leaves  7:12
+04.  Antonymes - Film One (Original Mix)  5:35(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170DEAC8A1A5746CAF022ECC4C88D1BE4DAA9FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261709   (301279) от 12.11.2018
 
 Paolo Lucchi - The Dawn Sessions (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
@@ -684,61 +741,6 @@ VA - This Is Chill Out (20 Chill Out, Lounge For Relaxing) (2017) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ED7C10C9A0223A9A88C715AC9ACF2DBEB3F476F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184510   (299434) от 18.11.2017
-
-VA - Chilling Process Vol.04 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Seven24 & Soty - Vision (Vocal Mix) (feat. Angel Falls)  4:41
-02.  Dmitry Lee'O - Like A Sky (Original Mix) (feat. Svetlana Silverfoxx)  5:15
-03.  Erase & D - Tears (Original Mix)  5:44
-04.  Sad Radio On Cassini - You Have To Be A Perfect Man (Original Mix)  2:43(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD71602C6083F42C49388FD0B1259EF0348A4D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025333   (299092) от 13.11.2020
-
-Unknown Reality - Discography 51 Releases (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Psychill, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silently (05:31)Тип издания: WEBЖанр: Psybient, Ambient, Psychill, Downtempo •Продолжительность: 10:48:13 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A185C8E1D937F2C0020D91E757A1CF9C57D6D82
 ```
 
 https://mybot314.ru/tekegram_catalog/

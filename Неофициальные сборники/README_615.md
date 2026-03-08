@@ -1,3 +1,177 @@
+###  Публикация: 1348803   (141270) от 29.12.2019
+
+VA - Record Super Chart 2019 Итоговый [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141270.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Rag'n'Bone Man - Giant 3:48
+002. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
+003. Billie Eilish - bad guy 3:14
+004. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 05:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F3027EB2E022334ADFEA4FB75EDC41092190DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088214   (141215) от 30.12.2016
+
+VA - Antagon Cybernetic: 130 Hard Technostyle (2016) [MP3|320 Kbps] <Hardstyle, Electro Hardcore>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 6-Pack - Drunken Piece Of Shit
+002. Ace The Space - 9 Is A Classic (Ultimate Rave Mix)
+003. Adrenalize - Robot Love
+004. Advanced Dealer - Back To The Rave (Edit)(   Читать дальше...   )Жанр: Hardstyle, Electro HardcoreПродолжительность: 11:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F734E49D2FF7439E41B93386611FFA1A0E3A2A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088291   (141213) от 30.12.2016
+
+VA - Apollo Four Forty - Best275z (1994 - 2012) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ain't Talkin' 'bout Dub 04:31
+02 Stop The Rock 03:36
+03 Charlie's Angels 2000 03:56
+04 Raw Power 03:55(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42EC92BEB1E9FE9AA1F6E151A7FFF86E1843719A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088151   (141199) от 30.12.2016
+
+Илья Гусев - Игры с Луною (2016) [MP3|192 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игры с Луною 04:34
+02. Миллион 04:19
+03. Времени нет 04:22
+04. Маленький рай 04:20(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FB7EA2945C0A0AB71E9BD5270AD3F48F5696D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272521   (141153) от 29.12.2018
+
+VA - Amaranthine: Hard Rock & Metal Collection (2018) [MP3|320 Kbps] <Hard Rock, Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141153.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mindwars - The Fourth Turning
+002. Splendidula - Dollywood
+003. Flipzyde - Witness The Sickness
+004. Heavy Kind - Sneaky Moves(   Читать дальше...   )Жанр: Hard Rock, MetallПродолжительность: 09:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAD7E1CBC4DE130C533D644B0AB3AD40E0488DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195116   (141150) от 29.12.2017
+
+VA - Русский Рок. Лучшее 2017 (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7Б - Солнцу решать
+02. СерьГа - Сказочный лес
+03. 25-17 - Она не такая, как все
+04. Casual - Сквозь дым(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5254B0B0080BAA630451A5C318F8D9B12E4BCB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435819   (141030) от 29.12.2020
 
 VA - Громкие новинки Декабря 3 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -585,181 +759,6 @@ VA - Музыка для машины Vol.43 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32C327A307DAF99162C01A5A862DBF9A49AA94C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740443   (139753) от 31.12.2013
-
-VA - The Official UK Top 40 Singles Chart (29-12-2013) [MP3|MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую последний в этом году UK Singles Chart — официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. Составляется с 1952 года как аналог американского Billboard Hot 100. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Pharrell Williams - Happy (3:53)
-02. Sam Bailey - Skyscraper (3:41)
-03. Avicii - Hey Brother (4:14)
-04. Jason Derulo - Trumpets (3:37)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, Other |Продолжительность: 02:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B52319EEC8151F05C11D238656A5262CEDB4B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348994   (139703) от 30.12.2019
-
-VA - Popular Winter Dance Pack (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139703.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Banks - Till Now
-002. Бцїў‚ь - Wonderland
-003. Igit - Caroline
-004. Linda Sundblad - Velkommen Hem(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7557FE647F3EA9355E11647E337F8F157C6D88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679228   (139698) от 24.11.2023
-
-VA - Music News vol.318 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139698.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Emmett Zetto feat. Talentless - Sexy (01:47)
- 002. 7 Skies - Tokyo777 (03:01)
- 003. Adil - Сердце Мое (02:48)
- 004. ADRIAN HIS - London (02:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBBF3C67EB2B1182C6D944D2648B7AC29088F431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435987   (139668) от 30.12.2020
-
-VA - DNA Techno Mix (2020) [MP3|320 Kbps] <Techno, Tech House, Electro, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139668.jpg" />
-</div>
-
-
-###  Подробнее
-
-За лаконичностью мелодий и однообразием музыкального ряда усматривается потаённый посыл к теме техно апокалипсиса. Вне всякого сомнения, поклонники техно и минимала с футуристическим оттенком, которые любят не только «чтобы рубило», будут не разочарованы данной подборкой.001. Dj Octopus - Quieora
-002. Scarper - Rhodopsin
-003. Mark Knight - Tonight
-004. Flaws - Gaiter(   Читать дальше...   )Жанр: Techno, Tech House, Electro, EDMПродолжительность: 12:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662567C61CA5D23993C285DD8CDA25FB6CFBA7F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088418   (139605) от 30.12.2016
-
-VA - Дискотека 2017 Dance Club Vol. 159 от NNNB (2016) [MP3|320 Kbps] <Club, Deep House, Dance и другие>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryos, Wasback, & Teseo feat. Karra - I'll Be Gone
-02. Паола - Новый год
-03. Helena Legend - RU Feeling It (Radio Edit) (feat. LYRE)
-04. DJ Sava feat. Irina Rimes - I Loved You (Monoir Radio Edit)(   Читать дальше...   )Жанр: Club, Deep House, Dance и другиеПродолжительность: 12:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AEF5CE88BC72AE6CE192B4AAA507935F3A5588A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273046   (139571) от 30.12.2018
-
-VA - Best Config Top 2018 (2018) [MP3|320 Kbps] <Melodic, Caribbean, Tropical>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139571.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rosy Dem - All I Wanna Do ((Radio Edit))
-002. Drop G feat. Burak Cilt - Everytime
-003. Nick Skitz & Basslouder - In My Mind (Wings & Rider Remix Edit)
-004. Bernasconi and Belmond feat. Sunny D and De Reche - La Vida Loca (Rico and Rico Edit)(   Читать дальше...   )Жанр: Melodic, Caribbean, TropicalПродолжительность: 07:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA2093D199FF38FC9581781DBA02EDED62FF50B
 ```
 
 https://mybot314.ru/tekegram_catalog/

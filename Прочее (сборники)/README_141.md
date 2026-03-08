@@ -1,3 +1,116 @@
+###  Публикация: 509494   (263569) от 24.11.2019
+
+VA - Маме - для души и сердца (2012) [MP3|320 кб/с]<POP>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 04:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144E06F85A219A672CCDEA3FD7E9B43D38C4F495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192006   (263498) от 16.12.2017
+
+VA - Electro Rhythms Funky Disco House (2017) [MP3|320 Kbps] <Dance, Funky, Disco House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263498.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Phuture Point - The Mission (Wavegrooves Mix)
+002. Dele Sosimi Afrobeat Orchestra - Too Much Information
+003. Frank Vision - My Dad Is Gone (Dolphin Mix)
+004. Osunlade - Envision (Yoruba Soul Mix)(   Читать дальше...   )Жанр: Dance, Funky, Disco HouseПродолжительность: 14:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96916A3D1020FA8AF20EA8F6741C9735869BD8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192209   (263393) от 16.12.2017
+
+VA - Top 100 Зайцев.Нет Ноябрь (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  DJ Slon & Katya feat. Роман Василенко  -  Life Is Good  3:01
+002.  J. Balvin & Willy William  -  Mi Gente  3:09
+003.  Дима Билан  -  Держи  3:41
+004.  Serebro  -  Между нами любовь  3:11(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDAB62FDF644C27FEB1F7AC12AB45EF203966740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192398   (263207) от 17.12.2017
+
+VA - The Official UK Top 40 Singles Chart 15.12.2017 [MP3|192-320 Kbps] <Alternative, Indie, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect 4:23
+02. Mariah Carey - All I Want For Christmas Is You 3:58
+03. Wham! - Last Christmas 6:49
+04. Camila Cabello - Havana (Feat. Young Thug) 3:37(   Читать дальше...   )Жанр: Alternative, Indie, OtherПродолжительность: 02:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C03E5E7C265E9A6D6AD6B5F9A920684B6643BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340738   (263093) от 25.11.2019
 
 VA - Нормас Пати (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,146 +742,6 @@ VA - Music News For Forum vol.149 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC53FFBD9DA5D2F45D10221C0B5931C1C5AF8EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505480   (261274) от 04.06.2012
-
-VA - Музыка для кача (1996-2012) [MP3|320 кб/с]<Metall, Heavy Metal, Industrial>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261274.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:46] 09. Scooter - How Much Is the Fish?
-[03:32] 04. Scooter - Fire
-[05:30] 01. Manowar - Call to Arms
-[05:52] 08. Manowar - Warriors Of The World United
-[03:49] 12. Primal Fear - Conviction
-[03:56] 11. Primal Fear - Blaze Of Glory
-[04:39] 02. Primal Fear - Strike
-[04:10] 02. Rammstein - Der Meister
-[04:18] 03. Manowar - King Of Kings
-[05:19] 01. Manowar - Return Of The Warlord(   Читать дальше...   )1996-2012Жанр: Metall, Heavy Metal, IndustrialПродолжительность: 01:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9792F4B46EE4C4B6C6579AD6868499FB4474AFB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505057   (261040) от 03.06.2012
-
-VA - Русская Дискотека 80-90-Х Remix DJ Vol.2 (2012) [MP3|256 kbps]<Dance|Club|Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наташа Королева - Конфетти (Carnaval Version 2011)
-02. Анжелика Варум - Зимняя вишня (Ural Djs Ritm Version)
-03. Dj Нил & Андрей Аверин - Бабло побеждает зло (Radio Gansta House Rap Mix)
-04. A-Europa - Белые Небеса (Dj Nastasya Radio Mix)
-05. DJ Mikola vs. Руки Вверх - Крошка моя (DJ XM Remix)
-06. Натали - Черепашка (DJ Melnikoff Remix)
-07. DJ Andrew S.Mile & Syntheticsax - Лезгинка (House Style)
-08. Балаган Лимитед - Че те надо (DJ Dron Remix)
-09. Ева Польна - Не расставаясь (Official Club Version)
-10. Света & DJ Jump - Город рая 2011 (Aleksey Kraft Remix)(   Читать дальше...   )2012Жанр: Dance|Club|DiscoПродолжительность: 06:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA299C1CE87E21A20050AEEC216D007033A09B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505073   (260808) от 03.06.2012
-
-VA - Maxi. Mega Italo Disco (2012) [MP3|320 kbps]<Dance|Pop|Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Zivago - Tell By Your Eyes
-02. Robin - Flames Of Love
-03. Latin Rose - Everybody Is Gay
-04. Ken Laszlo - Tonight
-05. Den Harrow - Don't Break My Heart 2k
-06. Righeira - La Bionda - Vamos A La Playa
-07. Mikki - Meteor Man 2k - Rainbow
-08. Larabell - Up And Down
-09. Grooove - Black Is Black
-10. Alan Cook - Bad Dreams(   Читать дальше...   )2012Жанр: Dance|Pop|DiscoПродолжительность: 05:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A56706A0DEED7364CEE3EEF0A79CB99F89A879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505083   (260722) от 03.06.2012
-
-VA - MAXI. Горячее Лето в стиле Dance (2012) [MP3|320 kbps]<Dance|Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradisco ft. Giorgio - Kokoloko (Radio Edit)
-02. The Wanted - Satellite
-03. Ola - I'm In Love
-04. Kelly Clarkson - Dark Side (Varsity Team Radio Edit)
-05. B.o.B ft. Ryan Tedder - Never Let You Go
-06. Valdi ft. Catalin D & Drago - Summer Is Crazy (Radio Edit)
-07. Nick Kamarera ft. Alinka - Nada Mas (Pego Pego) (Club Radio Edit)
-08. MainstreaM One ft. Anya - Смейся, Плачь (Petroff Remix)
-09. King & White - Rock This Club (R.I.O. Radio Edit)
-10. KET-U - Не Надо(   Читать дальше...   )2012Жанр: Dance|PopПродолжительность: 04:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84455DABA545DB69D0250B28BB5B64DAAF91F293
 ```
 
 https://mybot314.ru/tekegram_catalog/

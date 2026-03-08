@@ -1,3 +1,61 @@
+###  Публикация: 1257476   (345641) от 26.10.2018
+
+Scandroid - Scandroid (2016) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2517 (4:39)
+ 02. Salvation Code (5:50)
+ 03. Aphelion (5:35)
+ 04. Shout (3:58)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 01:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE91BE630528828E53159541094614A77DB96E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257277   (345492) от 26.10.2018
+
+Scandroid - Dreams In Monochrome (2018) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterglow (Michael Oakley Remix) (3:36)
+ 02. Rendezvous (VHS Dreams Remix) (3:52)
+ 03. Monochrome (Sunset Neon Remix) (3:34)
+ 04. Time Crime (Turboslash Remix) (4:13)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE5483AE89A454B4A8ABAD11720D99D3FA52B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257547   (345178) от 26.10.2018
 
 VA - Techno Club Vol.55 (Mixed By Talla 2xlc & Arctic Moon)(2CD) (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -687,64 +745,6 @@ hologram_ - Discography 6 Releases (2014-2017) Ant-Zen, Audiotrauma [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2CABC29FED531837D0071E2E01D864C8802EF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180347   (342649) от 03.11.2017
-
-The Seven Fields Of Aphelion - Discography 2 Releases (2010-2017) Graveface Records, Rad Cult [FLAC|Lossless|tracks+.cue] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divining (Naming Of The Lost) (04:51)
- 02. Horizon Obscure (02:01)
- 03. The Crossing (02:25)
- 04. Drift (Losing Light) (02:39)(   Читать дальше...   )Тип издания: CDЖанр: AmbientПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B87157FD109E7403E1494173F5EA85103B5A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180256   (342526) от 03.11.2017
-
-VA - Psygressive Vol.1 (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maitika & Tronsho - Dreams (Original Mix)
-02. Cosmic Tone & Cosmic Flow - Boombay (Original Mix)
-03. Egorythmia & Static Movement - Mutation (Original Mix)
-04. Mindbenderz - Sacred Rituals (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401BF6F7C0B93702F70FBE0A56AE7FD3065F4069
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1262571   (293500) от 16.11.2018
+
+Jacob Singer - Elohim (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elohim (Original Mix)
+02. The Book Of Enoch (Original Mix)Жанр: Progressive HouseПродолжительность: 00:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FA980DB4F96820799092268BA6D046CEE4D5AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185297   (293477) от 21.11.2017
+
+Purple Disco Machine - Soulmatic (2017) [MP3|320 Kbps] <House, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Disco Machine feat. Lorenz Rhode - Music in You (4:31)
+02. Purple Disco Machine - Body Funk (4:17)
+03. Purple Disco Machine & Boris Dlugosch feat. Karen Harding - Love for Days (3:16)
+04. Purple Disco Machine feat. CeeLo Green - Pray for Me (5:42)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8152C1D4D727DE0D3563C6D879AF006926600A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262718   (293336) от 16.11.2018
 
 VA - Sensual Spa Lounge Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -687,64 +743,6 @@ VA - Sarah Lynn - Clear As The Sky: The Best Of (Extended Mixes) (2018) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34DFF3B7E691354F31B76F4637AD82B389A40847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262909   (291548) от 17.11.2018
-
-VA - Cafe Del Mar - Ibiza - Volumen Dos (1995) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Poets - Moment Scale (Dubmaster X Remix)
-02. Psychedelic Research Lab - Tarenah (Chill Mix)
-03. DxNote - Dxvotion
-04. Eddie Parker - Easter Song(   Читать дальше...   )Жанр: Downtempo, Ambient, LoungeПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1D05FE7DED89EC60599666F1522BB2D197E54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334827   (291532) от 31.10.2019
-
-ADN' Ckrystall - Jazz' Mad (1982) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, Minimal>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cocaina Vitamina (7:15)
-02. Pour L'amour D'Un Cygne (3:35)
-03. Puckies' Power (6:07)
-04. Le Blues De La Fille Aux Jambes De Jeans (4:52)(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-pop, MinimalПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0758B7978B59E372A90D23EFD1F8603AC5512700
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1523738   (748207) от 13.01.2022
+
+VA - Best New Electro Bass (2022) [MP3|320 Kbps] <D&B, Electro Bass, Dubstep, Bassline, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы понять, что бас музыка – это не просто удар и "рубилово", но и прежде всего настоящий звук, настоящая мелодия и ярко выраженный ритм - предлагаем послушать треки сборника с последними новинками с просторов басслайн музыки.001. Physics - Quest For Life
+002. D.Amadeus - Dreamland
+003. Jenks - New York
+004. Karmin Scales - Abigor(   Читать дальше...   )Жанр: D&B, Electro Bass, Dubstep, Bassline, JungleПродолжительность: 11:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4413D269774D5BBCF197F45A8495D9A6658B1C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523742   (748206) от 13.01.2022
 
 VA - Deep House White Party: Winter Release (2022) [MP3|320 Kbps] <Deep House, Electro>
@@ -716,35 +745,6 @@ Various Artists - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B788633CEFBBF6329B51264A470929D2514FBBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396843   (744076) от 17.07.2020
-
-VA - EDC Clubbing House (2020) [MP3|320 Kbps] <Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744076.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Davide Alpino - Atlantis (Original Mix)
-002. Scheffwell - I Just Want To Party
-003. Empire B - Beautiful Life
-004. Brown Sneakers - Am I Wrong(   Читать дальше...   )Жанр: Club HouseПродолжительность: 08:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D5F7224089470895B964C51AE90161066A5381
 ```
 
 https://mybot314.ru/tekegram_catalog/

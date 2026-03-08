@@ -1,3 +1,61 @@
+###  Публикация: 966962   (216747) от 19.12.2015
+
+VA - 40 Top Downtempo & Ambient Chillout Hits 2016 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project Redux - The Story [05:23]
+02. Illuminus - Dern Cowboys [07:03]
+03. Krusseldorf - Water Cooler [02:57]
+04. KLIMENT - Melting Touch [09:04](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F337FFDC3015B5C058C862EC146DCD72FFDABB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426117   (216685) от 23.11.2020
+
+VA - Black Hole Trance Music 11-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & London Thor & Valentino Alessandrini - Feel Alive (Extended Mix) 5:42
+02. Dennis Sheperd & George Jema & Eric Lumiere - In Your Hands (Extended Mix) 5:12
+03. Bobina & Roxanne Emery - Rising Tide (Extended Mix) 4:53
+04. Giuseppe Ottaviani & Sue Mclaren - Not One Goodbye (Extended Mix) 6:38(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE217DBDC3FAF6D0DA5C4DCCB879AEFA5049FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967107   (216411) от 19.12.2015
 
 Entheogenic - A Singularity Encoded (2015) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Tribal, Downtempo, Ambient, Psy-Trance>
@@ -691,64 +749,6 @@ VA - Sensual Christmas Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1FA81DD37A4B4F83EBE7A58BDDBEA69AF8C40C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085297   (214791) от 21.12.2016
-
-VA - Christmas and Chill Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - Ko Samui Nights (04:20)
-02. Roberto Sol - Momentos Azules (04:22)
-03. Chris Le Blanc - Shiva And The Sea - Sunset Ashram Mix (06:13)
-04. Florian Fai - Lakeshore Morning (04:57)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F7A2929C04467E2A03EA93188FAD0D6FD85AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085581   (214788) от 21.12.2016
-
-VA - Cosy Christmas Lounge, Vol. 1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chambre 7 - Rising To The Top (03:56)
-02. Lemongrass - Nostalgia (03:45)
-03. Chambre 41 - Promenade No.2 (06:18)
-04. Dreamcatcher - LoveI s The Key (04:39)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457B8E9009069CF1BBBA9DC9785DBC59037FC75B
 ```
 
 https://mybot314.ru/tekegram_catalog/

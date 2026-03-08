@@ -1,3 +1,180 @@
+###  Публикация: 935914   (497267) от 10.09.2015
+
+VA - Лучшая Музыка прямиком из Клубов (2015) [MP3|320 кб/с]<Club, Dance, Trap, House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497267.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Er$ & Soniye - Combo (Original Mix)
+002. Bazzbusterz - Bomb The Bass (Club Version)
+003. Akcent feat. Lidia Buble & Ddy Nunes - Kamelia (DJ Ackym Mombahton Remix Edit)
+004. Akcent feat. Meriem - Dilemma (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, Trap, House, Electro HouseПродолжительность: 07:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39765B10808917FA27DB1F8E49534FE435E7DA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 190660   (497145) от 10.09.2015
+
+VA - Arabian Club Night (2010) [MP3|256 kbps]<Pop | Club | Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_497145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop | Club | DanceПродолжительность: 05:58:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542847   (497131) от 04.09.2012
+
+VA - The Best From Need For Speed (2012) [MP3|140-320 кб/с]<Rock, Electro, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petey Pablo - Need For Speed
+ 02. Buraka Som Sistema feat. Pongolove - Kalemba (Wegue - Wegue)
+ 03. Overseer - Doomsday (Album version)
+ 04. Rancid - Out of Control
+ 05. Snoop Dogg ft The Doors - Riders on the Storm(fredwreck remix)
+ 06. Styles of Beyond - Nine Thou (Superstars remix)
+ 07. Lil Jon & the Eastside Boyz - Get Low
+ 08. Anberlin - We Owe This To Ourselves
+ 09. Amon Tobin - Mighty Micro People
+ 10. Ekstrak feat. KNOW-1 - Hard Drivers(   Читать дальше...   )Жанр: Rock, Electro, RapПродолжительность: 08:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1B5C178F3A370FF7A7771918B6C7C60F6168E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565220   (496715) от 22.07.2022
+
+VA - HarDD NRG OverDoZZe 8 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance, Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496715.jpg" />
+</div>
+
+
+###  Подробнее
+
+(+*CUE)
+01 The Unknown - Raising Cain (Original Mix) (BLACK ICE,2000)
+02 Yves Deruyter - Music-Non-Stop (Push Remix) (BONZAI,2002)
+03 Orbit Catcher - We Are Free (Mr Sam's Space Traveller Mix) (INTENSIVE MUSIC,2004)(   Читать дальше...   )Жанр: Trance, Hard Trance, HardstyleПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7536B6E509301E94775C4F8ACF2046CA02E0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564860   (496712) от 22.07.2022
+
+VA - В машине с музыкой Vol.286 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Соланж  - Простить
+02. Ed. Breezy - Рафинад
+03. Ari Sam Vii - Звони В Такси
+04. Mahmut Orhan Feat. & Selin - Donmem Ben Sana(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:32:30 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A219264B41796E33820ED08579012192F5E443A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564857   (496711) от 22.07.2022
+
+VA - В машине с музыкой Vol.287 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babushka Misha   - Ты - Я
+02. Lianto  - В Душе Туман
+03. Noon  - La La Land
+04. Grzegorz Hyzy  - I Ten Numer Na Lato(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:33:55 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E3F35747373C5CCE666EF3667558DC624920DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564905   (496704) от 22.07.2022
 
 VA - Music News vol.204 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -606,186 +783,6 @@ VA - Сборник медленных хитов Vol.12 (2012) [MP3|96-320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91D98AB0CAAAE7362B00441557ECF7D3E844409A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242946   (495907) от 25.08.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 24.08.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Dua Lipa - One Kiss 3:35
-02. David Guetta feat. Sia - Flames 3:15
-03. Alvaro Soler - La Cintura 3:25
-04. Anton Powers - Heart For Sale 3:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C2BDE8157302BDF864EC0B07D4DB0F59051B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157856   (495692) от 14.08.2017
-
-VA - Girls Romances Vol.2 (2017) 4СD [MP3|320 Kbps] <Pop, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Allie X - Paper Love  3:16
-02.  Indila - Derniere Danse  3:25
-03.  Lacey Sturm - Run To You  3:39
-04.  XYLO - Blk CLD  3:41(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0C4CCDAA89BAB8AD2D1DEA36F505A90654A150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158018   (495687) от 14.08.2017
-
-VA - Disco Beach: Nu Disco House Original Mix (2017) [MP3|320 Kbps] <Nu Disco, House, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495687.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Mauama & Fabiana Rosh - Take Me Higher (Extended Mix)  5:33
-002.  Above & Beyond feat. Gemma Hayes - Counting Down The Days (MiRo Remix)  7:36
-003.  Jones & Brock feat. Anica - Join Me (Hang Mos & Alexx Slam Remix)  5:01
-004.  Greg Gelis - Shine (Art Alive Remix) (feat. Idrise)  4:53(   Читать дальше...   )Жанр: Nu Disco, House, Funky HouseПродолжительность: 10:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8159D5848C0F347114606E4AD88BB88BF51FDA3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053564   (495647) от 18.09.2016
-
-VA - Russian Dance (2016) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время И Стекло - Навернопотомучто (Dj Miracle Radio Remix) 2:38
-02. Валерий Сюткин - 7000 тысяч над землёй (Vitaly Klime Remix)(Radio Ver ) 3:01
-03. Artik & Asti - Я Твоя (Kolya Dark & Mickey Martini Radio Edit) 3:05
-04. Мари Краймбрери - Пьяную (Dj Alex Shik Remix) 3:27(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B932D39A9C93370DBC90E581A69C2DF0842CD3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543395   (495593) от 05.09.2012
-
-VA - TOP100 Зайцев.нет (04.09.2012) [MP3|112-320 кб/с]<Pop, Chanson, Rock, Dance, Club, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495593.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clara Lago - La cama (OST Три метра над уровнем неба 2: Я тебя хочу) (2:53)
- 002. Fly Project - Musica (Radio Edit) (3:39)
- 003. 5sta Family - Вместе Мы (Prod by T.Y.) (3:40)
- 004. Нюша - Воспоминание (3:39)
- 005. Alex Ferrari - Bara Bara Bere Bere
- 006. Alphaville - Forever Young (песня из фильма три метра над уровнем неба) (3:46)
- 007. Big Som & Luina - "Один" (3:12)
- 008. Flo Rida - Whistle (3:45)
- 009. Александр Киреев и Ирина Ортман - Навсегда (3:35)
- 010. Полина Гагарина - Нет (3:56)(   Читать дальше...   )Жанр: Pop, Chanson, Rock, Dance, Club, RapПродолжительность: 08:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55359766AF726B0826BEFEFE6FF7573DBD7F99E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404313   (495287) от 24.08.2020
-
-VA - Beatport Uplifting Trance: Electro Sound Pack #158 (2020) [MP3|192-320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495287.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nicholson - Dirty Lil Bastard
-002. Niko Hoffre'n - Leave Me Again
-003. Arjans - Whispers (Extended Mix)
-004. Tinlicker - When The Light Fades(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 11:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA573167896CE75A93D23C5791C2128AA28A62F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

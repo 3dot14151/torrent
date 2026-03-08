@@ -1,22 +1,25 @@
-###  Публикация: 1743364   (105465) от 15.08.2024
+###  Публикация: 1742835   (105504) от 13.08.2024
 
-Феи: Волшебное спасение / Tinker Bell and the Great Fairy Rescue (2010) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
+Battle Lost - Into The Realms (2024) [MP3|320 Kbps] <Power Metal>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105465.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Однажды Фея Динь-Динь встретила Лизи, маленькую девочку с твердой верой в волшебство. У Динь-Динь возникает привязанность к любопытной девочке, которой так нужен друг. Ради нее она идет на огромный риск, подвергая опасности свою жизнь и будущее всей страны Фей.Производство: США, Индия, Канада / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Брэдли РэймондАктеры: Мэй Уитман, Лорен Мот, Майкл Шин, Памела Адлон, Люси Лью, Рэйвен, Кристин Ченоуэт, Анджела Бэртис, Роб Полсен, Джефф БеннеттПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:13:19
+01. Into The Realms (02:34)
+ 02. Ascension's Call (04:40)
+ 03. Last Warrior's Oath (04:01)
+ 04. Fire In The Heart (04:25)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C3F8FBEF8AE2B3B4E5AC44EF6E8EF6190A8EDE6
+magnet:?xt=urn:btih:5FB4469339F5703D1AB4308C7957AAB262FEF4D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743144   (105464) от 15.08.2024
+###  Публикация: 1742766   (105503) от 13.08.2024
 
-VA - Compilation part 113 Electronic (2024) [MP3|320 Kbps] <Electronic>
+VA - Anjunabeats pres. Summer House 01 (DJ Mix) (2024) [MP3|320 Kbps] <Progressive House, Deep House, Melodic House & Techno>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105464.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jambeats - Hostage
-02. Akmalov - Limitless
-03. Akmalov - Daylight
-04. Hamidshax - Unstoppable(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:03:18
+01. gardenstate & Bien & anamē (SE) - The Best Part (Extended Mix) [6:02]
+02. Above & Beyond feat. Alex Vargas - Blue Sky Action (EDX's Indian Summer Extended Mix) [5:10]
+03. Tinlicker feat. Thomas Oliver - Need You (Extended Mix) [6:58]
+04. Dirty South feat. Anima! - I Swear (Dirty South Extended Mix) [7:26](   Читать дальше...   )Жанр: Progressive House, Deep House, Melodic House & TechnoПродолжительность: 03:03:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3752ADED801543B509C2796C4267B830A60BA0EE
+magnet:?xt=urn:btih:9852B4B27627E8C19F71AF7F2C864AC68447391A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743383   (105463) от 15.08.2024
+###  Публикация: 1742741   (105502) от 13.08.2024
 
-Беспредельные путешествия во времени / Time Addicts (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
+Виктория Шорикова | Огненный разум (2024) [MP3, Николай Прокофьев]
 
->>
->>
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105463.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Два неудачника берут на себя непыльную, как им кажется, работу — выкрасть сумку из заколоченного дома. Оказавшись внутри, они понимают, что внутри дома там и сям разбросаны аномальные зоны, перемещающие их во времени.Производство: Австралия / Exile Entertainment, LexNeville ProductionsЖанр: фантастика, триллерРежиссер: Сэм ОдлумАктеры: Фрея Тингли, Чарльз Граундс, Джошуа Мортон, Элиз Джэнсен, Кейт Брабант, Мэйсон Натт, Джонатан Каралис, Джампс Хадивала, Дэйл Куотермейн, Фиби ЛеПеревод: Дублированный (Leff Sound) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:09Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+Захватывающий детективный рассказ, где разворачивается напряженная борьба между служителем Фемиды и изворотливым преступником… Или не преступником? Тогда кто в действительности совершил преступление? И как понять, что является правдой, а что лишь частью хитроумного плана? Дело особенно усложняется, когда речь заходит о помраченном болезнью сознании…Жанр: Интеллектуальный детективИздательство: ЛитРес: чтецПродолжительность: 02:09:17
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6E26DDC2A4184A4D5FB9458FCA69F2C6B16718AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +82,228 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743176   (105462) от 15.08.2024
+###  Публикация: 1742770   (105501) от 13.08.2024
 
-Femme Fatale - Live + Demos (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
+Журнал | Дачный сезон №7 (июль 2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаИздательство: ООО Бауэр МедиаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449D59E05B65E6D74CBD9FC70523597F4F615106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742718   (105500) от 13.08.2024
+
+keldin - There is no future (Будущего нет) (2024) [MP3|320 Kbps] <Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Машина [00:02:55]
+02 - Сталь [00:03:10]
+03 - Технобитва [00:03:44]
+04 - Техноконструктор [00:03:04](   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC236E884511CC5997C28F657CFA148CA5A90E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742716   (105499) от 13.08.2024
+
+S.I.N.A - Alte Liebe... (2024) [MP3|~245 Kbps (V0)] <EBM, Industrial, Female Vocal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105499.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nicht Ich [00:04:29]
+2. Little Girl [00:04:36]
+3. Gefühlschaos [00:04:37]
+4. Bauchgefühl [00:03:39](   Читать дальше...   )Жанр: EBM, Industrial, Female VocalПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB76004B41DFB419DF3910CDD926E8C0FC6E94F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742702   (105498) от 13.08.2024
+
+moiii - moiii (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tangled Chords [00:04:18]
+02. Turtle Legs [00:04:16]
+03. Shhhhhhhhhhhhh [00:05:01]
+04. You Won't Be Alive To Feel It [00:04:39](   Читать дальше...   )Жанр: Industrial, ExperimentalПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2FB37BECF176FBB43ABF26C08B2EDD0CB6A593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742898   (105497) от 13.08.2024
+
+Hyperion - Seraphical Euphony (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remnants Of The Fallen (02:08)
+02. Novus Ordo Seclorum (06:59)
+03. Flagellum Dei (05:07)
+04. Seraphical Euphony (08:20)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0077065CA50CE43D2D87C388E311A5AD011BF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742738   (105496) от 13.08.2024
+
+Rahsaan Roland Kirk - The Case Of The 3 Sided Dream In Audio Color (1975) 2004, Atlantic [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conversation [0:59]
+02. Bye Bye Blackbird [2:39]
+03. Horses (Monogram/Republic) [0:19]
+04. High Heel Sneakers [4:49](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8D4385D05F56EEC0E25A1AE5EA22C48D789F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743002   (105495) от 14.08.2024
+
+Deville - 20 Years (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dust [00:04:35]
+02. The Hand That Feeds [00:02:54]
+03. Lava [00:03:20]
+04. What Remains [00:04:29](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876CD114421EEC619A851241EFB59885FD16BFC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742989   (105494) от 14.08.2024
+
+No Love Lost - Bliss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105462.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fortune and Fame (Live) [00:04:58]
-02. My Babys Gun (Live) [00:04:58]
-03. Touch and Go (Live) [00:05:16]
-04. Back in Your Arms Again (Live) [00:05:32](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:11:58
+01. Keeping Up With The Jones
+02. Believe In Love
+03. Love Song
+04. Heart Strings(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7E99F4453B9E0F9075EE2B928B65AC5E450C760
+magnet:?xt=urn:btih:96BFC1FC7D43AAA6088813EAE3D2D0295C1B9E30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +311,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743181   (105461) от 15.08.2024
+###  Публикация: 1742994   (105493) от 14.08.2024
 
-Miazma - 5 Albums (2011-2018) [MP3|320 Kbps] <Gothic Rock, Darkwave>
+VA - Rated in the Mix with Grant Trowbridge (2024) [MP3|320 Kbps] <Trance>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105461.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Oblivion - Momentum Overdrive (Extended Mix) [6:36]
+02. Drumm & Fletch - Hallucinate (Extended Mix) [5:55]
+03. A-Rival - Meridian (Zach Zlov Remix) [7:47]
+04. Solarshift Project - Echoes Athanasia (Extended Mix) [7:38](   Читать дальше...   )Жанр: TranceПродолжительность: 04:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F9B95136554805B1A5A8DACEE19173DAABA630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743019   (105492) от 14.08.2024
+
+Pentagram - Sub-Basement (2001) Remastered, 2024, Heavy Psych Sounds [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, heavy metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodlust [00:02:28]
+02. Buzzsaw [00:02:29]
+03. Drive Me To The Grave [00:04:28]
+04. Sub-Intro [00:03:54](   Читать дальше...   )Жанр: Doom Metal, heavy metalПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3E521D6DA7B650EAC602426E39FF38A6CE8CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743106   (105491) от 14.08.2024
+
+My Dying Bride - A Mortal Binding (2024) [FLAC|Lossless|image + .cue] <Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Her Dominion 06:13
+02. Thornwyck Hymn 06:50
+03. The 2nd of Three Bells 06:54
+04. Unthroned Creed 07:03(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC967715D417B19A2D867FC0ABD900CDDEBDDC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742793   (105490) от 14.08.2024
+
+Fernruf.Berlin (Дистанционный Звонок В Берлин) - 1 Album, 4 Singles (2024) [MP3|~245 Kbps (V0)] <Ebm, Electro, Darkwave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105490.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Список альбомов:
-Miazma - 2011 - Dressed in black
-Miazma - 2016 - Miazma (Compilations)
-Miazma - 2017 - Dollar Rush (10th Anniversary)(   Читать дальше...   )Жанр: Gothic Rock, DarkwaveПродолжительность: 5 CD, 03:43:08
+Dystopie Und Tr​a​umerei (2024)
+Allein (Single) 2024
+Immer Lieben 80s Maxi Mix (Single) 2024(   Читать дальше...   )Жанр: Ebm, Electro, DarkwaveПродолжительность: 5 CD, 00:39:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF9AC54D1B916068A75C02736C265759911EA31F
+magnet:?xt=urn:btih:DB0697DD2D590D02641CB1999AC994D0802489CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,83 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743384   (105460) от 15.08.2024
+###  Публикация: 1742781   (105489) от 14.08.2024
 
-Беспредельные путешествия во времени / Time Addicts (2023) WEB-DLRip [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два неудачника берут на себя непыльную, как им кажется, работу — выкрасть сумку из заколоченного дома. Оказавшись внутри, они понимают, что внутри дома там и сям разбросаны аномальные зоны, перемещающие их во времени.Производство: Австралия / Exile Entertainment, LexNeville ProductionsЖанр: фантастика, триллерРежиссер: Сэм ОдлумАктеры: Фрея Тингли, Чарльз Граундс, Джошуа Мортон, Элиз Джэнсен, Кейт Брабант, Мэйсон Натт, Джонатан Каралис, Джампс Хадивала, Дэйл Куотермейн, Фиби ЛеПеревод: Дублированный (Leff Sound) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:09Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743331   (105459) от 15.08.2024
-
-Robse - Harlekin und Krieger (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Viking Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonata Arlecchino (1:39)
-02. Harlekin und Krieger (5:00)
-03. Hey Sturm (4:23)
-04. Amenthes (3:24)(   Читать дальше...   )Жанр: Melodic Death Metal, Viking Folk MetalПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04F0D06219F36D972CB55DE69C09DCCA3E24704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742479   (105458) от 15.08.2024
-
-MEDUZA - Radio 1's Essential Mix (2024-07-13) [MP3|~245 Kbps (V0)] <Progressive House, Melodic House, Techno>
+Ian - Minden Eletemben (2024) [MP3|~245 Kbps (V0)] <Industrial>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105458.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Daft Punk ft. Giorgio Moroder - Giorgio by Moroder
-02. The Weeknd - In Your Eyes (MEDUZA Remix)
-03. Bea Miller & Arcane - Playground (From The Series Arcane League Of Legends) (MEDUZA Remix)
-04. Depeche Mode - Enjoy The Silence (Mavee Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:59:57
+01 - Szállok Csendben [00:04:20]
+02 - Legyél Nekem [00:03:36]
+03 - Látni Fogják [00:03:52]
+04 - Minden Életemben [00:03:39](   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:52:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B149510079E7210773E90DFD03C381B2ACF4AC4
+magnet:?xt=urn:btih:EA176B07AC1974FB890FC7BB73ABB7AE60D8B37A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,83 +456,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743272   (105457) от 15.08.2024
+###  Публикация: 1742713   (105488) от 14.08.2024
 
-Всегда / Ojik geudaeman (O-jik geu-dae-man) / Always (2011) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший боксёр Чхоль-мин теперь работает охранником на парковке и развозит воду в бутылях. Однажды, во время вечернего дежурства, к нему приходит слепая девушка, которая с прежним охранником «смотрела» сериалы по вечерам. Между молодыми людьми завязывается дружба, а затем и любовь. Чхоль-мин чувствует, что должен защищать свою любимую и сделать всё возможное, чтобы (   Читать дальше...   )Производство: Южная Кореяb / HB Entertainment, Showbox/MediaplexЖанр: драма, мелодрама, боевикРежиссер: Иль Гон СонВ ролях: Чжи Соп Со, Хё Чжу Хан, Чжон Хва Юн, Син Иль Кан, Чхоль Мин Пак, Сун Ха Чо, Чжин Гу, Кван Рок О, Чон Хак Ким, Ми Гён Ким (I), Сын Пэ Ви, Чжэ Чжин Чон, Кён Джин Мин, Хе Ран Ём, Се Хо АнПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Samjogo Subbing Squad), английскиеПродолжительность: 01:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68689C496E15344E2E9A0A5AD0E8D56ABC4C732B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743339   (105456) от 15.08.2024
-
-Dark Tranquillity - Endtime Signals (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shivers and Voids (3:48)
-02. Unforgivable (3:44)
-03. Neuronal Fire (4:32)
-04. Not Nothing (4:53)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D125D476B53723D5E8184422EE17ECB9E1C843BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742786   (105455) от 15.08.2024
-
-Hoc Eritis - What we will be (complete edition) (2024) [MP3|~245 Kbps (V0)] <Synthpop, Darkwave, Female Vocal>
+Mondmann - Celestial Shifts (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
 
 >>Electronic
->>Synthpop, New Wave
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105455.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - between darkness and dawn [00:05:09]
-02 - does the past still exist [00:04:19]
-03 - our mortal existence [00:05:03]
-04 - you [00:04:50](   Читать дальше...   )Жанр: Synthpop, Darkwave, Female VocalПродолжительность: 01:30:27
+01. Ride Away [00:04:44]
+02. We Got the Fire [00:04:02]
+03. I Like That [00:04:11]
+04. Moonlight [00:04:24](   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:51:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22462732EA3BC3CAE425D749395A54BFBBC132E4
+magnet:?xt=urn:btih:6B508A7F8BC3CCB9948CDE8C0BEF4298D79C8F80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,28 +485,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743271   (105454) от 15.08.2024
+###  Публикация: 1743048   (105487) от 14.08.2024
 
-Orville Peck - Stampede (2024) [FLAC|Lossless|image + .cue] <Folk, World, Country>
+Matt Mitchell & the Coldhearts - Mission (2022) Ultimate Edition, 2024, Matt Mitchell[FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 
->>Other Styles
->>Folk (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105454.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Daniel Pitout, более известный как Orville Peck, - южноафриканский кантри-музыкант, проживающий в США и Канаде. Он известен тем, что носит маску и не показывает свое лицо публично. Orville Peck, спродюсировав самостоятельно, выпустил свой дебютный альбом Pony в 2019 году, второй студийный альбом Bronco был выпущен в 2022 году. А после перерыва в 2023 году Peck выпустил (   Читать дальше...   )01. Orville Peck & Willie Nelson - Cowboys Are Frequently Secretly Fond of Each Other (3:38)
-02. Orville Peck & Midland - The Hurtin’ Kind (3:06)
-03. Orville Peck & Elton John - Saturday Night’s Alright (For Fighting) (4:11)
-04. Orville Peck & Debbii Dawson - Back at Your Door (3:32)(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:50:39
+01. Mission [00:03:53]
+02. Razor Tongue [00:03:34]
+03. Someone New [00:03:14]
+04. Just Like I knew You Would [00:03:00](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:00:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05A2E96E640CE2A26C503F900A666C6B789C0701
+magnet:?xt=urn:btih:B25870CF825D5825B437C4A775FB87F909D41CFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,103 +514,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743373   (105453) от 15.08.2024
+###  Публикация: 1742961   (105486) от 14.08.2024
 
-PhotoDirector v19.5.2 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105453.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.08.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FF5223021BF0C8712AAF3A2B234111919C85A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743210   (105452) от 15.08.2024
-
-Журнал | Юный эрудит №5 (261) (май 2024) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105452.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Юный эрудит» - Журнал для самых любознательных. В занимательной форме журнал расскажет любознательным читателям об истории и сегодняшнем дне науки и техники, выдающихся ученых и первооткрывателях. Ребята узнают, как устроены машины и механизмы, от чего возникают смерчи и циклоны, что вызывает землетрясения и извержения вулканов. Специальные рубрики посвящены современным (   Читать дальше...   )Жанр: Детский научно-популярный журналИздательство: Издательский дом «Лев»Формат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B4709E5D2C75E5EE2875222EEF2F0F9BE91B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743341   (105451) от 15.08.2024
-
-Негр из Шеридана (1933) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105451.jpg" />
-</div>
-
-
-###  Подробнее
-
-О разжигании расовой вражды в США в конце 1920-х годов. О забастовке в поселке лесорубов.Производство: СССР / УкраинфильмЖанр: социальная драма, немое киноРежиссер: Павел КоломойцевАктеры: Габриэль Нелидов, И. Маркс, Иван Кононенко, Николай Пальников, Борис Загорский, Иван Гузиков, Вячеслав Гомоляка, Николай Витовтов, А. Кернер, Григорий ДолговСубтитры: русские (интертитры)Продолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36874FB236EC187093F47EDBF3236A88C97AA7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743216   (105450) от 15.08.2024
-
-Журнал | Российское военное обозрение №7 (июль 2024) [PDF]
+Журнал | Лечитесь с нами №8 (224) (август 2024) [PDF]
 
 >>Журналы
->>Научно-популярные журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105450.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Российское военное обозрение» — ежемесячное информационно-аналитическое издание Министерства обороны Российской Федерации. Эксклюзивная информация Министерства обороны и других силовых структур государства. Интервью с высшими военачальниками, аналитические статьи и экспертные оценки развития Вооруженных сил.Жанр: Информационно-аналитическое изданиеИздательство: Агентство "Военинформ" МО РФФормат: PDFКачество: Обработанный скан
+Журнал «Лечитесь с нами» - уникальное издание о здоровье. Каждый номер составляется по письмам читателей. На страницах представлены подборки советов и рекомендаций по лечению трёх конкретных заболеваний, перечень которых анонсируется заранее. В журнале также есть раздел, посвящённый здоровью детей, — «Румяные щёчки». Самые свежие читательские письма публикуются в (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3185B0ACA39AA45B8F345CE7E9CD943052E13B2
+magnet:?xt=urn:btih:C30860BB65F4F9599A50C4D892D480E770383977
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,25 +540,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743212   (105449) от 15.08.2024
+###  Публикация: 1742960   (105485) от 14.08.2024
 
-Журнал | Юный эрудит №6 (262) (июнь 2024) [PDF]
+Журнал | Лечитесь с нами №7 (223) (июль 2024) [PDF]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105449.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Юный эрудит» - Журнал для самых любознательных. В занимательной форме журнал расскажет любознательным читателям об истории и сегодняшнем дне науки и техники, выдающихся ученых и первооткрывателях. Ребята узнают, как устроены машины и механизмы, от чего возникают смерчи и циклоны, что вызывает землетрясения и извержения вулканов. Специальные рубрики посвящены современным (   Читать дальше...   )Жанр: Детский научно-популярный журналИздательство: Издательский дом «Лев»Формат: PDFКачество: Обработанный скан
+Журнал «Лечитесь с нами» - уникальное издание о здоровье. Каждый номер составляется по письмам читателей. На страницах представлены подборки советов и рекомендаций по лечению трёх конкретных заболеваний, перечень которых анонсируется заранее. В журнале также есть раздел, посвящённый здоровью детей, — «Румяные щёчки». Самые свежие читательские письма публикуются в (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F63ADA5F6B376E77588BA0F36F4A92EECD900530
+magnet:?xt=urn:btih:FD1B5D4E2BBDA6843EDFB326B9DA28D700DF459F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,25 +566,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743297   (105448) от 15.08.2024
+###  Публикация: 1742822   (105484) от 14.08.2024
 
-Всегда / Ojik geudaeman (O-jik geu-dae-man) / Always (2011) BDRip [H.264/720p] [MVO]
+VA - SkyFall Summer 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
 
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105448.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105484.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бывший боксёр Чхоль-мин теперь работает охранником на парковке и развозит воду в бутылях. Однажды, во время вечернего дежурства, к нему приходит слепая девушка, которая с прежним охранником «смотрела» сериалы по вечерам. Между молодыми людьми завязывается дружба, а затем и любовь. Чхоль-мин чувствует, что должен защищать свою любимую и сделать всё возможное, чтобы (   Читать дальше...   )Производство: Южная Кореяb / HB Entertainment, Showbox/MediaplexЖанр: драма, мелодрама, боевикРежиссер: Иль Гон СонВ ролях: Чжи Соп Со, Хё Чжу Хан, Чжон Хва Юн, Син Иль Кан, Чхоль Мин Пак, Сун Ха Чо, Чжин Гу, Кван Рок О, Чон Хак Ким, Ми Гён Ким (I), Сын Пэ Ви, Чжэ Чжин Чон, Кён Джин Мин, Хе Ран Ём, Се Хо АнПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Samjogo Subbing Squad), английскиеПродолжительность: 01:45:52
+01. Al.ER - New Vibrations (Extended Mix) [7:02]
+02. Tony Godzen - Gdevolk (Extended Mix) [6:09]
+03. St.Ego - Let Me Know (Extended Mix) [7:09]
+04. Devaloka - Valley (Extended Mix) [7:29](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 01:49:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:121128327B3584003254EEF0C0CB221876C9F92B
+magnet:?xt=urn:btih:FFD095DAEF1FE4C57AC6268CC329A46B4CAC5648
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,27 +595,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743278   (105447) от 15.08.2024
+###  Публикация: 1743112   (105483) от 14.08.2024
 
-Т.Е. Ванагель | Животные (2013) [PDF, JPG]
+Органчик (1933) WEBRip
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105447.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Из этой книги ваш малыш узнает, как по-английски называются животные. Решая интересные задания в игровой форме вместе с веселым персонажем девочкой Мери - он быстро запомнит новые слова, научится произносить и писать их, и сможет даже строить простые предложения.
-О серии.
-Автор книг Т.Е. Ванагель имеет многолетний стаж преподавания английского языка детям дошкольного (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Рипол КлассикФормат: PDF, JPGКачество: Необработанный скан
+Мультсатира.
+По мотивам произведений М.Е.Салтыкова-Щедрина.Производство: СССР / Московский кинокомбинатЖанр: корткометражный, анимация, экранизацияРежиссер: Николай ХодатаевСубтитры: русские (интертитры)Продолжительность: 00:20:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F1284E88C2D726B1F8D5DE9BCF87C98B445C121
+magnet:?xt=urn:btih:AC2D8E0E86EA4CB3A2AAD640DDD10CCCC89CB0FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,25 +622,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743275   (105446) от 15.08.2024
+###  Публикация: 1742715   (105482) от 14.08.2024
 
-Т.Е. Ванагель | Времена года (2013) [PDF, JPG]
+Metroland - Forum (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal Electro, Synthpop, Technopop>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105446.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Из этой книги ваш малыш узнает, как по-английски называются времена года, и выучит "зимние", "весенние", "летние" и "осенние" слова. Решая интересные задания в игровой форме вместе с веселым персонажем - девочкой Мери - он быстро запомнит новые слова, научится произносить и писать их, и сможет даже строить простые предложения (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Рипол КлассикФормат: PDF, JPGКачество: Необработанный скан
+01. Cooperation In A Fragmented World [00:04:55]
+02. The Great Reset [00:07:33]
+03. Activity As A Timetrigger [00:03:58]
+04. Happy Nothing [00:05:43](   Читать дальше...   )Жанр: Minimal Electro, Synthpop, TechnopopПродолжительность: 00:48:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:344D0F83C7B8BDD304955B15880308FE092E9215
+magnet:?xt=urn:btih:12796BFB556B9A0B9FE98F7C13E9B48F40A61949
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,111 +651,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743279   (105445) от 15.08.2024
+###  Публикация: 1743016   (105481) от 14.08.2024
 
-Лукавый / Lord of Misrule (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Натуральное хозяйство, дом, окруженный вековыми деревьями — подлинная мечта уставшей от столицы семьи. Здесь, в уютном городке, где все друг друга знают, они готовятся встретить овеянный легендами языческий праздник. В самый разгар торжества исчезает дочка — но кажется, никто не спешит ее искать. Где-то глубоко в чаще леса оживает (   Читать дальше...   )Производство: Великобритания, Ирландия / Riverstone Pictures, The Machine Room, BCP Asset ManagementЖанр: ужасыРежиссер: Уильям Брент БеллАктеры: Таппенс Мидлтон, Ральф Айнесон, Мэтт Стокоу, Рэйчел Джоэнн Браун, Саймон Бундок, Джо Ситроу, Алекса Гудолл, Роберт Гудман, Марк Хокли, Люк АйнесонПеревод: Дублированный (Pride Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23663918B0BC72143F9665B2954C7284028FE36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743301   (105444) от 15.08.2024
-
-Т.Е. Ванагель | Цвета (2013) [PDF, JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из этой книги ваш малыш узнает, как называются все цвета по-английски. Выполняя несложные и интересные задания, он легко запомнит их названия в процессе игры.
-О серии.
-Автор книг Т.Е. Ванагель имеет многолетний стаж преподавания английского языка детям дошкольного и младшего школьного возраста
-Серия этих книжек поможет вашему ребёнку выучить английские слова по различной (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Рипол КлассикФормат: PDF, JPGКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04677BC6EA862E8E52287B0A4D1B70D1328D7CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743290   (105443) от 15.08.2024
-
-Т.Е. Ванагель | Моя семья (2013) [PDF, JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из этой книги ваш малыш узнает, как по-английски называются члены вашей семьи. Решая интересные задания в игровой форме вместе с веселым персонажем - девочкой Мери - он быстро запомнит новые слова, научится произносить и писать их, и сможет даже строить простые предложения.
-О серии.
-Автор книг Т.Е. Ванагель имеет многолетний стаж преподавания английского языка детям (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Рипол КлассикФормат: PDF, JPGКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3C3DEC9E13105FAAD8897105EA88FD75BF8C6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743335   (105442) от 15.08.2024
-
-Ritual - The Story Of Mr. Bogd - Part 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog>
+Mauro Montobbio - Scattered Memories (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105442.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A hasty departure (6:29)
-02. The Inn of The Haunted Owl (4:48)
-03. Dreams in a brougham (3:40)
-04. Chichikov Bogd (4:19)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:45:39
+01. Destinazioni (feat. Anna Marra) [00:06:48]
+02. Take a Mile in My Shoes [00:04:30]
+03. Into the Light (feat. Valeria Caucino, Pete Hicks & Dik Cadbury) [00:06:03]
+04. No Man's Land (feat. Stefano Guazzo) [00:09:20](   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:56:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F311ADC411F5960DBF7DAC80EC4E6062B1EA0DE
+magnet:?xt=urn:btih:C9DE00359027D922ADD87B8A328ACFF015955A32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,28 +680,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743262   (105441) от 15.08.2024
+###  Публикация: 1742998   (105480) от 14.08.2024
 
-Battle Lost - Into The Realms (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+Orgone - Pleroma (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105441.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Into The Realms 02:34
-02. Ascension's Call 04:39
-03. Last Warrior's Oath 04:00
-04. Fire In The Heart 04:25(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:49
+01. Silentium (1:26)
+02. Approaching Babel (2:25)
+03. Valley of the Locust (9:45)
+04. Hymne à la Beauté (4:58)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:05:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8D8683874889689FC8CCB9148FC5DA703A183C9
+magnet:?xt=urn:btih:AA4E87A154E19D96AA61F956D4EC26F28CDCCB3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,28 +709,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743122   (105440) от 15.08.2024
+###  Публикация: 1742975   (105479) от 14.08.2024
 
-Allan Wylco and the Voltanics - Time in Time Out (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Altar Of Oblivion - In The Cesspit Of Divine Decay (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy, Doom Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105440.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Smile (4:06)
-02. Lies Don't Work (3:55)
-03. Until We Die (4:53)
-04. See You Again (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:36
+01. Nothing Grows from Hallowed Ground 06:06
+02. The Fallacy 05:49
+03. Ghosts in the Trenches 01:12
+04. Mark of the Dead 06:45(   Читать дальше...   )Жанр: Epic Heavy, Doom MetalПродолжительность: 00:46:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0B0EAB965ABC682EE06FB50D4D39627A00CEC51
+magnet:?xt=urn:btih:516BAE1F7A9ACC215AED25930466E58082C1CACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

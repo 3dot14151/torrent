@@ -1,3 +1,211 @@
+###  Публикация: 466107   (96350) от 11.03.2012
+
+VA - Italo - Eurodisco (2012) [MP3|256 кб/с]<Italo-Disco, Euro-Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miko Mission - Let It Be Love (Savino Mix)
+02. Magic System D.J. - I Wanna Touch Your Body Now (Extended Version)
+03. Fred Ventura & Andy Romano - I Want You Back (Extended Version)
+04. Mirko Hirsch - Pandora's Box
+05. Ajello Featuring Fred Ventura - I'm Not Ready (Savino Remix)
+06. Peter Arcade - The Fairytale (Vocal Version)
+07. Eddy Huntington feat. Discobonus - Honey, Honey (Extended)
+08. Riccardo Campa - Cyborg Woman
+09. Gina T. - Money For My Honey (Extended Dance Version)
+10. Galaxy Hunter - Make You Feel Alright(   Читать дальше...   )2012Жанр: Italo-Disco, Euro-Disco, PopПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F985BB60A8EC53BAFE7719E27E7995563BB2308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466105   (96349) от 11.03.2012
+
+VA - The best from the West (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96349.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lalo Project feat Aelyn - Listen To Me, Looking At Me
+002. Keane - Stop For A Minute
+003. Rasel Feat. Baby Noel - Let's Dance
+004. Steve Aoki feat. Miss Palmer & Afrojack - No beef
+005. Sak Noel - Paso (The Nini Anthem)
+006. Pitbull & Ne-yo & Nayer & Afrojack - Give Me Everything
+007. Professor Green feat. Emeli Sande - Read All About It
+008. Taio Cruz feat. Pitbull - There She Goes
+009. Dj Antoine Feat. The Beat Shakers - Ma Cherie (Dj Antoine Vs. Mad Mark 2k12 Radio t)
+010. Headhunterz - Doomed (original mix)2012Жанр: Dance, PopПродолжительность: 07:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9106830318C63D678DAE5B92F13115F63B62A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466118   (96297) от 11.03.2012
+
+VA - Абсолютный Свежачок Сезона (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96297.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Винтаж - Деревья
+002. Samo`l feat. A-Sen - Малиновые Сны
+003. Алиби - Черевички
+004. Shura - Воздушные Шары (Official Club Remix)
+005. T.A.T.U - Нас Не Догонят (Dj Jurij Radio Edit 2011)
+006. Глюкоzа - Взмах
+007. Даша Суворова - На Су...
+008. Alexey Romeo feat. J Well - Расправь мои крылья
+009. Александр Розенбаум и Зара - Любовь на бис
+010. DJ A-Newman & Lexa feat. V.i. So Fly - Помоги Мне (Radio)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA25AC519556AE7CD312906A75A67F107ACCC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465595   (96231) от 10.03.2012
+
+VA - Count Down Rock Ballads (5CD Boxset) (1993) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96231.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD11993Жанр: RockПродолжительность: 01:17:43
+01. Deep Purple - Child In Time
+ 02. K's Choice - Not An Addict
+ 03. Oasis - Wonderwall
+ 04. Gary Moore - Still Got The Bl
+ 05. Scorpions - Still Loving You
+ 06. Heart - Alone
+ 07. Foreigner - That Was Yesterda
+ 08. Santana - She's Not There
+ 09. Vandenberg - Different Worlds(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DAE3B72FC59D78D9D6BF363AFDB3C4FD94DA7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465298   (96211) от 10.03.2012
+
+VA - Весенний хит-парад Record 6 50/50 (2012) [MP3|256 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 MM Dance - Отдыхаем (Dj Alfred extended mix)
+02 DJ Robert.T - Disco Crazy (Radio Edit)
+03 DJ HaLF & Tom Stem - Ready 2 Go (Radio Mix)
+04 Kay - M.A.J.O.R. (Tiesto Remix)
+05 DJ Half & Tom Stem - Любовь По Венам (MainstreamOne feat. DJ
+06 DJ Feel feat. Loona - I ll Find Myself (original mix)
+07 ViRUS! - ЧЗF
+08 Aly & Fila - Rising Sun (Bjorn Akesson remix)
+09 Mc Zali & Don Omar - Девочки мэйд ин раша (Dima Molotov Russian bootleg)
+10 Nicky Romero - Toulouse (original mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 08:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF6F0268A36985B545864967EFEE0CDA300A96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465817   (96188) от 10.03.2012
+
+VA - High Rankin presents This Is Suicide Dub Volume 1 (2010) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sekklow – Be Alright (original mix) (04:56)
+02. High Rankin – Losing My Way (original mix) (04:11)
+03. Cliffhanga – I Love It (original mix) (05:43)
+04. Decibel – Gadget (original mix) (06:15)
+05. Evolve Or Die – Wheel &d Come (original mix) (04:24)
+06. Sticky Disco – Fuck Acid (original mix) (04:18)
+07. Temper D & Balkansky – In Pictures (original mix) (04:44)
+08. Cutline & Barbarix – Hey! Plane Rave (original mix) (05:42)2010Жанр: DubstepПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4845516FB28C01F76D8FD5E42680DEDF2F3D9487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465133   (96172) от 10.03.2012
 
 VA - Ultimate Dance & Trance Vol.1 (2012) [MP3|320 кб/с]<Dance, Trance>
@@ -662,216 +870,6 @@ VA - Minimal Art v.11 (19.02.2012) [MP3|320 kbps]<Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25E95BCE5B94CBE4FCC3C63E090C95714D07F61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455743   (94328) от 25.02.2012
-
-VA - Progressive Music (20.02.2012) [MP3|320 kbps]<Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anjiro Rijo – Sunshine (Original Mix) (7:07)
- 02. Carl Louis & Martin Danielle - FiveAM (Thomas Sagstad Remix) (6:41)
- 03. Carl Louis, Martin Danielle - Five AM (Original Mix) (6:08)
- 04. Daviddance - South Bitchs feat Rona Geffen (Original Mix) (7:16)
- 05. Dirty South & Thomas Gold & Kate Elsworth - Alive (Idriss Chebak Xmas Remode) (5:25)
- 06. Domestic Technology - Split It Up (Original Mix) (8:00)
- 07. Garuso - I Need You (Original Mix) (7:07)
- 08. Jane Maximova - Amid The Road (Original Mix) (5:20)
- 09. Jeremy Rowlett - Vanilla Skies (Wilson & Mclennan Cruise Control Remix) (9:48)
- 010. Kanov - Meditations (Andrew Benson Remix) (7:03)20.02.2012Жанр: Progressive HouseПродолжительность: 01:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD9F888C57903B51D72C45C78B504CF348DEA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455805   (94145) от 23.02.2012
-
-VA - Minimal Art v.12 (20.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Fortis - Disharmonic Orchestra (6:54)
- 02. Antonio Forester – Fourth Reactor (Original Mix) (6:02)
- 03. Cyberx, Manolow - Tag Gun (Tekhoover Remix) (7:07)
- 04. Danase - Now What's That (7:10)
- 05. Dapayk & Midnight - Emergency (7:30)
- 06. Electronomica - Troupial (Djase Dub Remix) (5:59)
- 07. Fabio Miotto - Dolmen (Original Mix) (7:00)
- 08. Koobique - Fear Factory (Original Mix) (5:05)
- 09. Luke Shayer - Absynth (Muto Remix) (7:15)
- 10. Manu Sami - Musaka (Original Mix) (6:01)(   Читать дальше...   )20.02.2012Жанр: MinimalПродолжительность: 02:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1B4E78F8697A1A18BA98152CA8FDD5205C7D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455003   (94091) от 22.02.2012
-
-VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiho - Purple Haze (Giuseppe Visciano Psychedelic Remix) (6:05)
- 02. Artem Abdrakhmanov - Fire Blood (Original Mix) (7:33)
- 03. Bodyscrub - Resolution (Original Mix) (8:42)
- 04. Ciaran Osborne - Don't Hold Back (Original Club Mix) (6:59)
- 05. Danase - Come On, We Play (6:25)
- 06. Dani Sbert - Otherside (Original Mix) (7:01)
- 07. Deep Inside Sistem - Violence (Original Mix) (7:11)
- 08. Diamandy - Breezer (Original Mix) (8:07)
- 09. Doubleton - Diluente (Original Mix) (6:20)
- 10. Dubfloor - Tropa Tropa (Original Mix) (6:50)(   Читать дальше...   )18.02.2012Жанр: MinimalПродолжительность: 02:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE05E1089EA0849955044BA64E2D8CAC0A261CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454998   (94083) от 22.02.2012
-
-VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afonso Maia - D Rather (Original Mix) (6:42)
- 02. Andres Guerra - Bheis (Original Mix) (6:38)
- 03. Brunno Santos - I'm Done With You (Juliano Silva Remix) (7:10)
- 04. Cryteque - Sunny Flash (Original mix) (7:01)
- 05. Daniele Petronelli and Steve Russell - Kat-I (Original Mix) (6:45)
- 06. Domshe – Temptation (Tobias Hertz & Stefan Rieger Remix) (7:38)
- 07. Hakan Ludvigson & Joachim Broeckers - Audiovit (Original Mix) (7:14)
- 08. Ian F - Coming Back (Original) (7:15)
- 09. Jill Bellac & Suspect One - Shaped (Min & Mal Remix) (6:11)
- 10. Joel Fletcher & JDG - China Town (Original Mix) (7:03)(   Читать дальше...   )16.02.2012Жанр: MinimalПродолжительность: 02:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2B6992696D22FBF66562B0F79D2F2A677FE610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454996   (93989) от 21.02.2012
-
-VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adelmo - Angela (Oscar And Chester Remix) (7:08)
- 02. Anton Ishutin - April 12 (Original Mix) (7:17)
- 03. Damolh33 - Sweep (Original Mix) (6:27)
- 04. David Temessi – De Ja Vu (Zareh Kan Remix) (7:05)
- 05. Dich - Erza Fire (Dub Dummies Remix) (8:21)
- 06. Droplex - Descript (Mr. Wise Remix) (6:30)
- 07. Edoardo Spolaore - Hope (Original Mix) (7:10)
- 08. Emrah Celik - Let's Get Dangerous (Gokhan Guney, Emrah Celik Remix) (6:08)
- 09. Gianni Ruocco – Caribean Week (Original Mix) (6:45)
- 10. Marcel Knopf - Blood Smell (Dapayk Remix) (7:19)(   Читать дальше...   )15.02.2012Жанр: MinimalПродолжительность: 02:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455001   (93985) от 21.02.2012
-
-VA - Minimal Art v.9 (17.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afonso Maia - Playhead (Original Mix) (6:03)
- 02. Cristian Glitch - One (Alessandro Grops Remix) (6:24)
- 03. Destructo - Technology feat. Oliver (Original Mix) (5:09)
- 04. Insect Elektrika - Man In Love With Fish (Original Mix) (6:43)
- 05. Johnny Kaos – Lsd (7:40)
- 06. Keira - Sguitara (Min & Mal Remix) (6:01)
- 07. Was Bleibt (Jimpster Vocal Remix) (8:01)
- 08. Kontak - Triangle (Minimal Law Remix) (6:00)
- 09. Kriece - Ginger Explosion (Original Mix) (7:45)
- 10. Lazy M - Stranger (Dani Sbert Big Bully Remix) (7:01)(   Читать дальше...   )17.02.2012Жанр: MinimalПродолжительность: 02:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C9E3BF5BF53918349DE66079E0DEB9A40E73D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

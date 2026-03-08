@@ -1,3 +1,61 @@
+###  Публикация: 1049870   (542015) от 06.09.2016
+
+Thanks - No Mercy in the Mountain (2016) [MP3|320 Kbps] <Alternative Pop, Alternative Rock, Dark Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Magic
+02. No Diamond
+03. Warm Hands
+04. I'll Try(   Читать дальше...   )Жанр: Alternative Pop, Alternative Rock, Dark SoulПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F92D0E6762D563FE41009B4416BE0DAE33C897A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311191   (541975) от 29.06.2019
+
+Helen Shapiro - Sensational (Uncollected Helen Shapiro) (2003) [FLAC|Lossless|image + .cue] <Pop, Blues, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Teenager Sings the Blues
+  02. Blues in the Night
+  03. Are You Lonesome Tonight?
+  04. Tearaway Johnny(   Читать дальше...   )Жанр: Pop, Blues, SoulПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D654E906DBA075A4E95EF6B60D5AEC09504AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311446   (541974) от 29.06.2019
 
 Q - Dancin' Man (1977) LP [MP3|320 Kbps] <Pop, Disco, Funk Soul>
@@ -699,64 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53E0284609A4607D8D13BC1998CDB4148088494E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154570   (538949) от 31.07.2017
-
-ЕVгеника - Оптимистка (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оптимистка 3:44
-02. Бабы 3:47
-03. Мигалки 3:20
-04. Остров 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C8BDED8E5DE126B398ED2D10319FBCE234214C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239414   (538873) от 05.08.2018
-
-VA - New Italo Disco Top 25 Compilation Vol.9 (2018) [MP3|320 Kbps] <Italo-Disco, NuDisco, HiNRG, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limelight - Forever Lovers (Re-Tubed Radio) 4:29
-02. Angelico - Forever Love (Short New Generation Dance Mix) 4:04
-03. Ken Martina - Another Melody (Short NRG Mix) 4:39
-04. Tommy Sun - Dancers (Mega Short Dance Mix) 5:16(   Читать дальше...   )Жанр: Italo-Disco, NuDisco, HiNRG, DanceПродолжительность: 01:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A1F6519EE13AC6C8EB0BC393AB37516C5D4660
 ```
 
 https://mybot314.ru/tekegram_catalog/

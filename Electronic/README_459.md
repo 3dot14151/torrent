@@ -1,3 +1,61 @@
+###  Публикация: 1686601   (126443) от 23.12.2023
+
+Markus Schulz - Global DJ Broadcast Year in Review (2023) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Adina Butar - Waves of High
+02. Anske - Confidence
+03. Estiva - Via Infinita
+04. Artche - Weightless(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 04:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5417F19A850BDB723CAF544795859B82072DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686514   (126435) от 23.12.2023
+
+VA - Black Hole Recordings - Best Of 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate - Just the Beginning [04:01]
+02. Markus Schulz - Eternally [03:43]
+03. Richard Durand - Fall Through the Earth [03:40]
+04. Paul Oakenfold - Ripples [02:31](   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C74320393654EEFF7BE21B3FFE1F42DDB228B754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686927   (126260) от 24.12.2023
 
 Knight Wolf 1981 - R.A.G.E. (2023) [MP3|320 Kbps] <Darksynth, Synthwave>
@@ -687,64 +745,6 @@ Eguana - Connect (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFB2693D65DE23AC741F1E1EAA8D360559FA54ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689133   (124906) от 31.12.2023
-
-Eguana, Qeight - Call Of The Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124906.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Coast to Coast (7:00)
-2. Keep On Dreaming (7:50)
-3. Deep Forest (8:53)
-4. Mystery (6:42)(   Читать дальше...   )Жанр: Ambient, LoungeПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3638B8E1D0E13E5684AD0791EE9209005A41C72C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689145   (124884) от 31.12.2023
-
-Blank & Jones - Chilltronica EP 8 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pure Shores (Chilltronica)
-02. Winter Whites
-03. Hourglass (Marcus Loeber Ambient Mix)
-04. Concept OneЖанр: Electronic, Downtempo, Chill outПродолжительность: 00:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CB856DF67A591DCB493A24ED509EF579A147CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

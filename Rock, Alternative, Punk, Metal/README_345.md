@@ -1,32 +1,3 @@
-###  Публикация: 1396553   (741359) от 19.07.2020
-
-Alestorm - No Grave But the Sea (2017) Napalm Records [FLAC|Lossless|image + .cue] <Folk Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Grave But the Sea (03:30)
-02. Mexico (03:10)
-03. To the End of the World (06:43)
-04. Alestorm (03:57)(   Читать дальше...   )Жанр: Folk Metal, Power MetalПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D053A6947CB78CEA0343502FD908B15077C762E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397216   (741339) от 19.07.2020
 
 Pretenders - Hate for Sale (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -741,6 +712,35 @@ Underoath - Erase Me (2018) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCAB0E094B5C9861AE6D1C4BF75626B1D8A340E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126690   (740813) от 20.04.2017
+
+Slowdive - Slowdive (2017) [FLAC|Lossless|tracks] <Indie-Pop, Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740813.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Slomo (06:53)
+2. Star Roving (05:38)
+3. Don't Know Why (04:36)
+4. Sugar for the Pill (04:30)(   Читать дальше...   )Жанр: Indie-Pop, Rock, ShoegazeПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DB2F8683392ED0EB55F0339F318D98F406DC52
 ```
 
 https://mybot314.ru/tekegram_catalog/

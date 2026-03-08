@@ -1,3 +1,61 @@
+###  Публикация: 1233747   (576190) от 02.07.2018
+
+VA - Speech №3-Новогодний бал (1994) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Фантастический бал - Фантастический бал
+02. Светлана Владимировская - Пусть длится ночь
+03. Ван Моо - Народное техно
+04. Кабаре-дуэт Академия - Тома(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C84DB116BBFF0A8D4C3217B13D8DB9FD76BD07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233711   (576185) от 02.07.2018
+
+Виктория Дайнеко - Смайлы (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Смайлы
+02. Иду
+03. Бьётся сердце
+04. Таешь(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB96D6EA3AB4EDA3FA7C6532B144C79DCBF9928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303103   (576164) от 19.05.2019
 
 Various Artists - Eurovision Song Contest Tel Aviv 2019 - Dare To Dream (2019) Compilation [FLAC|Lossless|tracks] <Electronic, Rock, Pop>
@@ -746,64 +804,6 @@ VA - New Generation Italo Disco - The Lost Files Vol.4 (2017) [MP3|320 Kbps] <It
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCF0466015F523991678A1AD54FB26ABB148702F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554926   (573810) от 01.06.2022
-
-Gilla - Disco Collection (2001) [FLAC|Lossless|tracks + .cue] <Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny
-02. Tom Cat
-03. The Heat Is On
-04. Go Down Mainstreet(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468423F962DF40367908675996375FC591EBD0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921935   (573794) от 26.07.2015
-
-Fear of Tigers - Zoipa (2014) EP [MP3|320 кб/с]<Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weekend In Harlem
-02. Ailuropoda Melanoleuca
-03. Golden Age
-04. Twisted Biscuit(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB7D938AD7F3559FA6FCBD068B111D54E96CE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

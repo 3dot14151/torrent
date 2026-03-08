@@ -1,32 +1,3 @@
-###  Публикация: 981297   (953061) от 31.01.2016
-
-Viikate - XII - Kouvostomolli (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Rautalanka>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elämä on katiska (3:22)
-02. Mantelinmakuinen (3:50)
-03. Rottinki (4:58)
-04. Puolikulkijat (3:58)(   Читать дальше...   )Жанр: Hard Rock, RautalankaПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F8E96759798B5F2F80D405537E14B28AB7D4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981129   (953047) от 31.01.2016
 
 TNT - A Farewell To Arms (2011) [MP3|201~295 кб/с (V0) ] <Rock, Hard Rock>
@@ -760,6 +731,35 @@ Inexist - Relax And Feel Free (2006) [FLAC|Lossless|image + .cue] <Melodic Death
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9BC2B4F0F9228E0BC7AA902AF24B060BBDB3035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362097   (951159) от 22.02.2020
+
+Indica - A Way Away (2010) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Islands of Light (03:02)
+02.Precious Dark (03:50)
+03.Children of Frost (05:21)
+04.Lilja's Lament (05:54)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA904FA015C61DBDB08FF6325CC850E98CAD3D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

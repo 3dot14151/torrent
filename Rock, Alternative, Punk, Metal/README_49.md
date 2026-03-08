@@ -1,32 +1,3 @@
-###  Публикация: 1440620   (1038497) от 18.01.2021
-
-Fortid - World Serpent (2020) [FLAC|Lossless|image + .cue] <Viking Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part I : Disorder:
-01. AI 2020
-02. The True Awakening
-03. Controlled Patterned Mental Process(   Читать дальше...   )Жанр: Viking Metal, Black MetalПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38572D5281926BBD37E1397DF68C4A122FCAF231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270213   (1038484) от 22.02.2023
 
 LaScala - 8 Альбомов + 1 Live + 12 Синглов (2012-2023) [MP3|320 Kbps] <Alternative Rock>
@@ -745,6 +716,35 @@ Tanzwut - Silberne Hochzeit (2023) [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65860CDFDA6498B5D91545E280DA6E1B971B01EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615144   (1038115) от 24.02.2023
+
+Megaton Sword - Might & Power (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Raving Light of Day [00:05:05]
+02. Iron Plains [00:05:53]
+03. Power [00:04:30]
+04. Cowards Remain [00:04:15](   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF2430A200647EE082E576D7A4E8901DBFFDF0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

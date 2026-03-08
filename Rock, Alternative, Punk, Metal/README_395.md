@@ -1,32 +1,3 @@
-###  Публикация: 1289946   (682164) от 18.03.2019
-
-Fever Feel - Fever Feel (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spitting Silver (3:57)
-02. Lose Your Mind (3:53)
-03. Far Beyond the Path You See (5:23)
-04. Who Are You? (1:48)(   Читать дальше...   )Жанр: Rock, Indie, PopПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E910B1C71D47255D82497AAF85EFA15C8F1FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289873   (682156) от 18.03.2019
 
 Hollowheart - Hollowheart (2016) [FLAC|Lossless|WEB-DL|tracks] <Love, Gothic Rock>
@@ -751,6 +722,35 @@ Linkin Park - One More Light (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BF427A56BE30BEFAFE3E50B3C0384E581F21E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123026   (680528) от 19.05.2017
+
+Deep Purple - Infinite (2017) Deluxe Edition [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time for Bedlam
+02. Hip Boots
+03. All I Got is You
+04. One Night in Vegas(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C3452A8F5CD791BBE96DAD3768E889C78CAA5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

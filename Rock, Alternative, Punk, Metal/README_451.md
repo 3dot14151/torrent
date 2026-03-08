@@ -1,32 +1,3 @@
-###  Публикация: 1544213   (623662) от 14.04.2022
-
-Rush - Moving Pictures (1981) 2CD, 40th Anniversary Super Deluxe, 2022, Mercury Records [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2112 - Overture (4:26)
-02. 2112 - The Temples of Syrinx (2:17)
-03. Freewill (5:51)
-04. Limelight (4:47)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 2CD, 02:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FA9D75020CA091DA748E46AE6A847E20EBCFFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544004   (623652) от 14.04.2022
 
 Аракс - Звёздная Серия (2002) Compilation [FLAC|Lossless|image + .cue] <Rock>
@@ -768,6 +739,35 @@ Monuments - In Stasis (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Djent, Math Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46DB3391AE6EC071CC5C4BD001A45D0285F922F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910239   (622235) от 20.06.2015
+
+Weird. - Desert Love For Lonely Graves. (2013) [OGG|404-434 кб/с]<Shoegaze, Psychedelic Rock, Space Rock, Ethereal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Was The Sky, Cold Was The Rain
+02. Echo & The Lullaby
+03. A New Beginning
+04. Desert Love(   Читать дальше...   )Жанр: Shoegaze, Psychedelic Rock, Space Rock, EtherealПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F20E429E9FC5D3F42F37FD792309CBF359D838
 ```
 
 https://mybot314.ru/tekegram_catalog/

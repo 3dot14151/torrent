@@ -1,3 +1,32 @@
+###  Публикация: 1684404   (127773) от 15.12.2023
+
+Phil Woods, Vincent Herring, Antonio Hart - Alto Summit (1996) Milestone [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Minor [5:40]
+02. The Summer Knows (Theme from Summer of '42) [9:44]
+03. Minority [6:47]
+04. Stars Fell on Alabama [6:17](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB58F155C07C397EF7140C7E84708573373EB8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684414   (127766) от 15.12.2023
 
 Toshiko Akiyoshi - Finesse (1978) 1990, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -716,35 +745,6 @@ George Gee Swing Orchestra - Winter Wonderland (2023) Self-Released [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5188D509535CEE5AA4A1D82D56CAF192E7A7DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685875   (126868) от 20.12.2023
-
-Pharoah Sanders Quartet - Live at Fabrik, Hamburg (1980) 2023, Jazzline [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Gotta Have Freedom [18:04]
-02. It's Easy to Remember [12:57]
-03. Dr. Pitt [20:20]
-04. The Creator Has a Masterplan [8:36](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Post-BopПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C41A9CB6BD84515F727BAC2340BA531547A789A
 ```
 
 https://mybot314.ru/tekegram_catalog/

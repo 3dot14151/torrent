@@ -1,3 +1,61 @@
+###  Публикация: 1102861   (889687) от 10.02.2017
+
+VA - A Peaceful Day: The Lounge Act (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Gorda Project - Um Momeno  5:37
+02.  Enrico Donner - Abstract Dream  5:31
+03.  Don Gorda Project - Surfing Emotional Waves  5:46
+04.  Cane Garden Quartet - Toca Me  6:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A309BEF31E029C48EC8999C0B0A8F6148233DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102842   (889678) от 10.02.2017
+
+VA - Timeless Sunsets: The Ultimate Chillout Experience (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)  7:00
+02.  Enrico Donner - I Need A Love  6:11
+03.  Don Gorda Project - Rising Sun  6:25
+04.  DJ Riquo - Tribalism  5:32(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74946089650A4DB2B3F6D1187C7010DD57D48B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102661   (889673) от 10.02.2017
 
 VA - Uplifting Only Top15: February (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -684,64 +742,6 @@ Sundaze - Saturnia (2020) Melusine Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8136DCB37BDB8DC788266105017CB8DE9000812A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371697   (888439) от 01.04.2020
-
-Nicolas Jaar - Cenizas (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Experimental,  Downtempo>
-
->>Electronic
->>Downtempo, Ambient (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanish (03:11)
-02. Menysid (03:58)
-03. Cenizas (04:39)
-04. Agosto (02:47)(   Читать дальше...   )Жанр: Experimental,  DowntempoПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839DC04B4978C21101EE42B35913087B6A2DE6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287359   (888426) от 01.04.2020
-
-Flowers for Bodysnatchers - Alive with Scars (2019) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Heart Less Darkened (08:18)
- 02. Looking For Bernard Herrmann (08:22)
- 03. Shiraz And Suicide (03:42)
- 04. Vertigo (05:54)(   Читать дальше...   )Жанр: Dark Ambient, AmbientПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151E469D1D26F12ED7CC73F9A012DBA6D8D605B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

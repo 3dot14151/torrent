@@ -1,3 +1,32 @@
+###  Публикация: 1524002   (746634) от 14.01.2022
+
+Ayako Hosokawa - Call Me (1979) 1989, Three Blind Mice [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotch and Soda [4:17]
+02. Call Me [4:25]
+03. Love Is Here to Stay [2:55]
+04. Just the Way You Are [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F19B2579111988D765E491259FB3000F97B683A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282247   (746562) от 11.02.2019
 
 Charlotte Lee - Superwise Company (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Hybrid Pop>
@@ -714,35 +743,6 @@ Buddy De Franco - Sweet And Lovely (1956) Remaster, 2012, Universal [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D287D7FFF7C1A07691ED7045DAF82B59D161EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020721   (742512) от 28.05.2016
-
-Ron Carter / Cedar Walton Duo - Heart & Soul (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Heart And Soul [03:05]
- 02.Django [05:35]
- 03.Frankie And Johnie [05:00]
- 04.Little Waltz [06:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149618DF58ABA7719B0F5D6987F54EA08BF49498
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1320335   (471391) от 18.08.2019
+
+VA - German Top 100 Single Charts 23.08.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471391.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shawn Mendes & Camila Cabello - Señorita
+002. Loredana - Eiskalt (feat. Mozzik)
+003. DJ Snake, J Balvin, Tyga - Loco Contigo
+004. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C904EA2C550BFFE9330D79AEC6D8090E106E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057805   (471314) от 30.09.2016
 
 VA - Хитовый Бум 6 (2016) [MP3|256 Kbps] <Pop>
@@ -740,41 +769,6 @@ VA - Dream Hits vol.13 (2005) [MP3|256 кб/с]<Pop/Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E707F025382E8AFC5C3DF0631607524C9F46B2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548862   (464679) от 19.09.2012
-
-VA - Зарубежная Дискотека СССР (2012) [MP3|192 кб/с]<Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Radiohead - Creep
-02 Cb Milton - A Real Love
-03 Kaoma - Lambada
-04 Depeche Mode - I Feel Loved
-05 Intrance - Te Quierro Puta (Original Mix)
-06 Ivan - Fotonovella
-07 Whitney Houston - I Learned From The Best
-08 Maxi Priest - Close To You
-09 White Town - Your Woman
-10 Kellee - My Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 08:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A101F32AE4348D160DD9805BA8FFF3D0969B52
 ```
 
 https://mybot314.ru/tekegram_catalog/

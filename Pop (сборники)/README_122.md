@@ -1,3 +1,38 @@
+###  Публикация: 484394   (89148) от 18.04.2012
+
+VA - Танцевальный Рай Русский (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_89148.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Девушки Эйнштейна - Suga (Radio Edit)
+002 ЭffekT - Ночная Жизнь
+003 Joni Bek - Забери
+004 Dasha & Demo-so Hard( Extended Club Mix)
+005 Dj Smash, Dj Рыжов, Chinlong - На Заре
+006 Светлана Разина - Радио НАХ
+007 Тина Корн - По Тропинке
+008 Иракли & Даша Суворова - Нелюбовь
+009 Игорь Маркс - Только Вчера
+010 Лера Туманова (Электра) - Здравствуй2012Жанр: PopПродолжительность: 06:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E38454908F5365F2609E87C4F5E0809FFE4765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483503   (88776) от 16.04.2012
 
 VA - NeРусский Шторм 57 (2012) [MP3|320 kbps]<Pop | Dance>
@@ -866,41 +901,6 @@ VA - Дискотека Бездна Original 50/50 vol. 3 (2012) [MP3|128-320 k
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A520584EA4957F78BDFC4E0A532DF0095FAA3531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476789   (85877) от 02.04.2012
-
-VA - Top 200 Радио DFM Весна 50/50 (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85877.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алисия & Влад Корса - Здесь и сейчас
-002. Klaas & Bodybangers - I like (Bodybangers mix)
-003. Dan Balan - Лишь до утра (DFM special mix)
-004. JuicyTrax feat. Jess - Fuck your girlfriend
-005. Иракли - Ты одна (DJ Kirill Clash & DJ Dmitriy Nema remix)
-006. Madonna feat. Lmfao & Nicki Minaj - Give me all your luvin (Party Rock remix)
-007. Milena & Murzin Denis - До утра (Filipp Aniskin remix)
-008. David Guetta - Without you (feat. Usher)
-009. Блестящие - Милый мой
-010. Chris Parker - Space(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8C6461DABDAEEC0839EF08D0BAF1232495BFBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

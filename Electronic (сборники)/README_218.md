@@ -1,3 +1,32 @@
+###  Публикация: 1725663   (55407) от 25.05.2024
+
+VA - Electronic compilation part 80 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Menda - Believe
+02. Cooldeep - Bodrum
+03. Elno - Call Me
+04. Ramseen - Desire(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E102E4AD22884C149F7E53A7090D461763230C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726795   (54885) от 30.05.2024
 
 VA - Electronic compilation part 82 (2024) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - Record Super Chart 27.07.2024 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BE337D2CBD6AB01C18D36998A5E8DCDD44963FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740778   (47953) от 03.08.2024
-
-VA - VA - compilation part 111 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azimov - Turn of Lights
-02. Limora - Flower
-03. Muvi - Passion
-04. Elno - London(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0E10471699F8120F3E9813C1137E01FC204CFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

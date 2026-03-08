@@ -1,32 +1,3 @@
-###  Публикация: 1019104   (752251) от 22.05.2016
-
-Joe Cocker - Hymn For My Soul (2007) [APE|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Haven't Done Nothin'
-02. One Word (Peace)
-03. Love Is For Me
-04. Don't Give Up On Me(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688715113F48DB7C2778ACA6F8C0A8C743863B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395820   (752196) от 12.07.2020
 
 Enuff Z'Nuff - Brainwashed Generation (2020) [MP3|320 Kbps] <Hard Rock>
@@ -753,6 +724,35 @@ Clear Sky Nailstorm - The Inner Abyss (2016) [MP3|320 кб/с] <Thrash Metal, He
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60992CA38C0152E9F1FB3BF6FAD043BBBA8E6D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396022   (750172) от 13.07.2020
+
+Sycamyre - Illuminations (2020) [MP3|320 Kbps] <Progressive Metal, Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Heir to Tragedy (04:57)
+ 02. Soken (06:26)
+ 03. Bastard (04:20)
+ 04. Path to Fate (07:23)(   Читать дальше...   )Жанр: Progressive Metal, Heavy Metal, Thrash MetalПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B66A6793EF9C2253CCA3F4A2556E8C8744823C
 ```
 
 https://mybot314.ru/tekegram_catalog/

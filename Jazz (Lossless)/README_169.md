@@ -1,3 +1,32 @@
+###  Публикация: 1055712   (486117) от 23.09.2016
+
+Billy Taylor - One For Fun (1959) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Summertime [03:51]
+ 02.One For Fun [03:39]
+ 03.That's For Sure [01:58]
+ 04.A Little Southside Soul [04:29](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20527B016EF912A46BF5C9ED2C9C57C5D593E36F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055710   (486116) от 23.09.2016
 
 David Williams, Cedar Walton, Billy Higgins - Up Front (1986) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -734,35 +763,6 @@ Natalie Cole - As Time Goes By (Single, 1993) /Elektra/[FLAC|tracks+.cue]<Vocal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7BAD88BD516E46895C8EE59D0B85F24FC2CF764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244441   (482085) от 01.09.2018
-
-Andrea Motis - Emotional Dance (2017) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's Funny That Way [4:50]
-02. I Didn't Tell Them Why [2:30]
-03. Matilda [6:52]
-04. Chega de Saudade [5:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BBB9FCC7CF1EE1448827C44F635A2FB4E2F4E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

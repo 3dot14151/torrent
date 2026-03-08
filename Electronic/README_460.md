@@ -1,3 +1,61 @@
+###  Публикация: 1689133   (124906) от 31.12.2023
+
+Eguana, Qeight - Call Of The Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124906.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coast to Coast (7:00)
+2. Keep On Dreaming (7:50)
+3. Deep Forest (8:53)
+4. Mystery (6:42)(   Читать дальше...   )Жанр: Ambient, LoungeПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3638B8E1D0E13E5684AD0791EE9209005A41C72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689145   (124884) от 31.12.2023
+
+Blank & Jones - Chilltronica EP 8 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pure Shores (Chilltronica)
+02. Winter Whites
+03. Hourglass (Marcus Loeber Ambient Mix)
+04. Concept OneЖанр: Electronic, Downtempo, Chill outПродолжительность: 00:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CB856DF67A591DCB493A24ED509EF579A147CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689350   (124807) от 01.01.2024
 
 Нейромонах Феофан - Акустическая стихия (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Russian Folk Rock>
@@ -680,64 +738,6 @@ Antania - The God Complex (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ABEF74A9CD1651C19AD2599D90C169311253205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690402   (123908) от 07.01.2024
-
-VA - Winter Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TwoRule - Shivers [03:03]
-02. Moses - Let Me Down Slowly [03:32]
-03. Alperen Ocak - Creepin' (I Don't Wanna Know) [02:54]
-04. TwoRule - Numb [02:41](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE3266E4F7A0683588AF2D7F3CC94B023A24D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690730   (123827) от 08.01.2024
-
-VA - Музыка для сна и прослушивания перед сном (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.I.B. - Games Rain (Chillout Mix) (7:28)
-02. S.A.T - Dream Of The Sea (Chillout Mix) (6:25)
-03. Soulalive - After Sun (Chillout Mix) (6:25)
-04. Seven24 - The Journey (Chris Wonderful Remix) (3:41)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B205BFE085203FC882D718EBEFCEC654DFF1D50
 ```
 
 https://mybot314.ru/tekegram_catalog/

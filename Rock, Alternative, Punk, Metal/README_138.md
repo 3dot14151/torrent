@@ -1,37 +1,3 @@
-###  Публикация: 389027   (991196) от 28.01.2013
-
-Defeated Sanity - 4 альбома (2004-2013) [FLAC|Lossless]<Technical Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда Defeated Sanity образовалась в 1994 году в Германии как проект Wolfgang Teske (гитара) и Lille Gruber (ударные). Цель у музыкантов была банальней некуда - играть настолько брутальный дэт-метал, насколько это возможно.01. Initiation
-02. Naraka
-03. Verblendung
-04. Lusting For Transcendence
-05. The Purging
-06. Verses Of Deformity
-07. Perspectives
-08. Frenzy
-09. MartyriumЖанр: Technical Brutal Death MetalПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609847   (991158) от 28.01.2013
 
 Black Light Burns - Lotus Island (2013) [MP3|320 кб/с]<Alternative>
@@ -813,6 +779,35 @@ Bon Jovi - CrossRoad - The Best Of (1994) [FLAC|Lossless]<Rock>
 8 - Bed Of Roses
 9 - Blaze Of Glory
 10 - In These Arms(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432309   (989661) от 07.01.2012
+
+System Of A Down - Kill Rock n Roll greatest hits (2008) [FLAC|Lossless] <Nu-Metal, Alternatve>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989661.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+1  Attack
+2  Innervision
+3  Revenga(   Читать дальше...   )Жанр: Nu-Metal.AlternativeПродолжительность: 02:39:22
 
 ## Скачать торент
 ```bash

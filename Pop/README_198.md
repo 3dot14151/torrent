@@ -1,3 +1,61 @@
+###  Публикация: 1246693   (461484) от 11.09.2018
+
+VA - Хочите танцев? (Got dance?) (2004) [FLAC|Lossless|tracks + .cue] <Euro house, italodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orlando - Seasons In The Sun (Factory Dance Remix) (4:16)
+02. The Flippers - Hootchie Cootchie (Extended Version) (5:04)
+03. Blockhouse - Disco Hit (Blockhouse Mix) (4:44)
+04. Killer Shadows - Don't You Want Me Baby (Hard Version) (5:25)(   Читать дальше...   )Жанр: Euro house, italodanceПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0CBDB05DE45F79C7EEA1AAA46323D4263C1036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246562   (461324) от 11.09.2018
+
+VA - ZYX Italo Disco New Generation Vol. 13 (2018) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stockholm Nightlife feat. Nathalie Hanberg - Stay One Day (Cliff Wedge Special ZYX Remix 2018) (6:08)
+02. Carino Cat - Balabina (7:38)
+03. Italoconnection - Neon Disco (Flemming Dalum Remix) (6:50)
+04. Lian Ross & Mode-One - I Still Love You (Extended Version) (5:38)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F89F5AC5F3490475B3FB01A253FD6CBF1B4034E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246606   (461323) от 11.09.2018
 
 VA - 100 Greatest 80s (2017) 5CD [MP3|320 Kbps] <Pop>
@@ -694,64 +752,6 @@ Various - The Best Of Italo-Disco Vol. 10 (1988) [OGG|485 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60FC63988F84E6DA7EE83915F8545BBFBADF2708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568751   (457773) от 10.08.2022
-
-Bad Boys Blue - Love Is No Crime (1987) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Come Back And Stay (7:37)
-02.If You Call On Me (3:33)
-03.Victim Of Your Love (4:31)
-04.Love Is No Crime (3:37)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C11889C3348E266AB0C9C7E74CACF995413BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568854   (457620) от 10.08.2022
-
-Божья Коровка - Гранитный Камешек (1995) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гранитный камешек
-02. В каком неведомом краю
-03. Я верю (Исповедь)
-04. Четыре буквы(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B875A44A5E027F285EE94B5966A399F203931431
 ```
 
 https://mybot314.ru/tekegram_catalog/

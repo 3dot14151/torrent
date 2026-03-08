@@ -1,3 +1,32 @@
+###  Публикация: 1526357   (738473) от 24.01.2022
+
+Massimo Farao' Trio - Luiza (2015) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So In Love [6:09]
+02. Beautiful Love [6:43]
+03. Dear Old Stockholm [6:04]
+04. Luiza [5:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A8FBB0344566DD4AF8A0B2BC165E1A0A290BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526607   (738149) от 25.01.2022
 
 VA - Hammond Organ Organized: Milestones Of Jazz Legends (1960 - 1962) 10CD, 2019, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Organ Jazz>
@@ -716,35 +745,6 @@ Lizz Wright - Fellowship (2010) [FLAC|Lossless]<Vocal Jazz, Gospel>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D29435334A7BC307160E98E0EB9E7283739BA2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529369   (732734) от 06.02.2022
-
-VA - Male Jazz Singers: Milestones Of Jazz Legends (1952 - 1962) 10CD, 2017, The Intense Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732734.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - Louis Armstrong, Jimmy Rushing - Louis Plays Fats & Little Jimmy Rushing And The Big Brass:
-01. Honeysuckle Rose [2:56]
-02. Blue Turning Grey Over You [4:56]
-03. I'm Crazy 'Bout My Baby [4:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 11:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973DB375591324B2CB9852CB7D95F67A6F3C9DAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

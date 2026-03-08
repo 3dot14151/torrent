@@ -1,3 +1,58 @@
+###  Публикация: 1038580   (337233) от 29.10.2020
+
+Bersarin Quartett - Discography 6 Releases (2008-2020) Denovali Records [FLAC|Lossless|tracks+.cue, tracks] <Dark Ambient, Modern Classical, IDM, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agate Or Barium (Bersarin Quartett Remix) (04:33)Жанр: Dark Ambient, Modern Classical, Ambient •Продолжительность: 04:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9528683B6F17085F67F7609EC50B0ED0E043E2A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276650   (337231) от 29.10.2020
+
+Kitchen. Label - Label-Pack 28 Releases (2008-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Modern Classical, Folk, Contemporary, Acoustic>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 船出 (06:38)
+ 02. ray (03:37)
+ 03. SUN DANCE (04:32)
+ 04. one day (03:49)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Ambient, Modern Classical, Folk, Contemporary, Neo-Classical, Acoustic •Продолжительность: 22:58:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535E4A3F872869F855F5FAA06CF4D0F63A41CD2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125549   (336930) от 29.10.2020
 
 Mika Tapio Vainio (Mika Vainio, Ø, Philus) - Discography 61 Releases (1993-2020) Touch, Noton, Sähkö [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Minimal, Ambient, Techno, N ...
@@ -684,64 +739,6 @@ Talla 2XLC - Fascinated (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B23A26B39C86A7F4D3C5588B49CF97C6D95220BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074695   (336241) от 20.11.2016
-
-VA - Sundown Flavor of Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rey Salinero - Flor de Almendro [00:05:52]
-02. Logophilia - Gaillardia [00:05:49]
-03. Maikos - Ambient 5 [00:06:13]
-04. Dreams Machine - Real Pleasure [00:01:43](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B21C6F07ED33E12A1CD1C18CE72C06DB304CDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075065   (336238) от 20.11.2016
-
-VA - Doux Pour La Nuit, Vol. 4 - A Whisper for Deep Moments Selection Chillout by Kolibri Musique (2016) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Lost in My Dreams [00:05:00]
-02. Johannes Huppertz - At Frederun [00:04:23]
-03. Angela Puxi - Anima [00:06:00]
-04. Aiemo - Special Emotions [00:04:40](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC90812EAE5982EFD6563DE8DAF90359C4DACD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

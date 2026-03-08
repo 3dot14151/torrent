@@ -1,32 +1,3 @@
-###  Публикация: 984325   (940215) от 08.02.2016
-
-Suede - Night Thoughts (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Art Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You Are Young (04:17)
-02. Outsiders (03:54)
-03. No Tomorrow (03:52)
-04. Pale Snow (02:43)(   Читать дальше...   )Жанр: Alternative Rock, Art Rock, BritpopПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D1BCCFBF08B7E5F6199D8AA147B2FEB892F200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984315   (940160) от 08.02.2016
 
 Status Quo - Rockin' All Over The World (1977) 2CD, remaster, 2016, Mercury, Japan [FLAC|Lossless|image + .cue] <Classic Rock>
@@ -751,6 +722,35 @@ Aqueous - Best in Show (2016) [FLAC|Lossless|tracks + .cue|WEB-DL] <Crossover Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1C6325317D20A7430B424B2C6F4AC0D193741E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984619   (938936) от 09.02.2016
+
+The Veer Union - Decade (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Defying Gravity
+02. Watch You Lose
+03. You Can't Have It All
+04. I Said(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock, Modern RockПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CD6EF134F360BB44F48076EF655C7C00959AF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

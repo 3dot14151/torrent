@@ -1,3 +1,177 @@
+###  Публикация: 1125670   (741116) от 20.04.2017
+
+VA - Весенняя 100-ка популярных треков. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741116.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лена Максимова - Слышишь Отошел 3:39
+002. Наталия Власова - Мне Не Хватает Тебя 3:42
+003. Cash'u - Хочу 3:29
+004. Lega - Она Мой Diamond 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BD2C1074E4496D29194DD6FBD94184DCC400D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021263   (741083) от 29.05.2016
+
+VA - Yoga Spirits: Wellness Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Crystal - Dream Energy
+02. Liquid Crystal - Fluidity
+03. Skye Dream - Sundown Chillout
+04. Lucidity - Ride the Tide(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03505218ADA95436D2D4141B7ED67AB7C5F72BF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125684   (741011) от 20.04.2017
+
+VA - Отдыхаем с лучшими хитами. Звездная тусовочка. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741011.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ханна - Невиновная 2:58
+002. Katya Tu - Неформатный 3:14
+003. G-Nise & Dj Настя Крайнова - Вдвоем 3:16
+004. Джаникс - Женщина-Лед 3:15(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8614B787385D9ED6A96497DBAD1DEA889CCB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021122   (740993) от 29.05.2016
+
+VA - DabSTEP Mistik MiX by zXz. Vol.1 (2013-2014) [MP3|192 кб/с] <DubStep, GlithHop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fr33m4n - Off We Go
+02.Access Denied - Black (Original Mix)
+03.Antiserum & Vinja Feat. Messinian - Murkulation (Original Mix)
+04.Nero - Promises (Nero & Skrillex Remix) (Tolgar's Symphony of Destruction Rework)(   Читать дальше...   )Жанр: DubStep, Drum&Bass, GlithHopПродолжительность: 02:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969FB5A964A5EA92F37D9D056C9FEE5D2B891E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021311   (740979) от 29.05.2016
+
+VA - Музыкальный заряд бодрости 3 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740979.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Альбина - Боль
+002. Jasmine Kara - Burn
+003. Lora Superfin - Пламя От Огня
+004. Ханна - Потеряла Голову(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31205786EE4415BC7D7A42F2889192F26CE64DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217749   (740946) от 06.04.2018
+
+VA - Psy Trance Timewarp (2018) [MP3|320 Kbps] <Psy Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740946.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tranceway - A Mind Trip
+002. Egorythmia - Anno Domini (Original Mix)
+003. Ovnimoon feat. Ascent & The Key - Spiritual Transformations (Original Mix)
+004. Psilocybe Project - I Am Darkness (Original Mix)(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 12:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2AFCAA86FFEAB77930DAE6463627CF65C12EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021300   (740885) от 29.05.2016
 
 VA - Весенний хит супер популярный 9 (2016) [MP3|256 кб/с] <Pop, Dance>
@@ -572,180 +746,6 @@ VA - Soulful Deep House (2019) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A4AB0F1D194C15BBE9653C681A19EC8CCC6ED1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283442   (739598) от 17.02.2019
-
-VA - Walking To New Orleans (2019) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739598.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alabama Jr. Pettis - I'm A Lover
-002. Deep Purple - Smoke On The Water
-003. Blues Trackers - Looking For Myself
-004. Bootleggers - Red Nekkid(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 09:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C32AF356330361AC555274A9EFCB5D1D2CDB85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283553   (739524) от 17.02.2019
-
-VA - Empire Records - Red Star 4 (2019) [MP3|320 Kbps] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ogre - Revengeance Overcharge
-02. Blaze of Gunfire - We Were So Young
-03. Dance With The Dead - Venom
-04. Powernerd - Dystopia(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58E2906E7094AB4E8620FF9886E57335B1FFF9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283564   (739520) от 17.02.2019
-
-VA - Empire Records - Red Star 5 (2019) [MP3|320 Kbps] <SpaceSynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. STARLANDER - One Last Thing
-02. Starfounder - It's All About Darkness
-03. NightStop - Backseat Lover
-04. Syntax - Startseite(   Читать дальше...   )Жанр: SpaceSynthПродолжительность: 01:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018743718D0E079587C24A0E397D6682B8B08214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283471   (739476) от 17.02.2019
-
-VA - Flower Sound Chill House (2019) [MP3|320 Kbps] <Chill, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739476.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Crossing Colors - Feel The Sun (Original Mix)
-002. Bearson Ft. Mndr - I Only Need One
-003. Imran Khan - Dark Waves
-004. Schwarz & Funk - Chudera(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 08:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E166F1BA1ABFCB0B09A5BEF603DF857E1FB669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525797   (739128) от 22.01.2022
-
-Tony Birch - Introspective Waves (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introspective (3:37)
-02. Sundown City (3:17)
-03. Into The Flow (3:33)
-04. Ocean Breeze (3:56)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F8F095DC46B847B377BDF80906E75B14D6CA1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525724   (739036) от 22.01.2022
-
-VA - All New Rock (2022) [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739036.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shaman's Harvest - Pretty People (3:12)
-002. Simple Minds - Act of Love (3:59)
-003. Skillet - Destiny (4:02)
-004. Slash, Myles Kennedy And The Conspirators - Call Off The Dogs (3:15)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 05:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC12A3C01EBCEEDB67E919FBCE0C5C2E6E0EAC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 971101   (987538) от 02.01.2016
+
+VA - 2016 Alive Project (2016) [MP3|320 кб/с] <Disco, Vocal, Euro, Latin Music, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L.A.R.5 & Mg King - Work It Out (Club Mix) 04:17
+02. Malena Gracia - Despertar (Club Mix) 05:13
+03. Dj Gio - You & Me (Extended) 05:22
+04. Beatghosts Feat. Yuli - Spell (Extended Version) 04:52(   Читать дальше...   )Жанр: Disco, Vocal, Euro, Latin Music, DanceПродолжительность: 03:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:826539610D21EB1A2D3EA9087908A168F98555D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971146   (987321) от 02.01.2016
+
+VA - Снежный Хит. Самые Сливки (2016) [MP3|128-320 кб/с] <Поп, Dance, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сплин - Три цвета (Первый снег)
+02. Salvatore Adamo - Tombe la neige
+03. Dean Martin - Let It Snow, Let It Snow, Let It Snow (1998 Digital Remaster)
+04. Земфира - Снег(   Читать дальше...   )Жанр: Поп, Dance, РокПродолжительность: 02:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E0F9BEC340FF9A32DB3ED7DA1F5CD50F124730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354573   (986727) от 23.01.2020
+
+VA - Зайцев.нет Лучшие новинки Января (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986727.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.2 Chainz feat. Future - Dead Man Walking (2:15)
+2.Alicia Keys - Underdog (3:28)
+3.Anti-Flag - The Disease (2:55)
+4.Apocalyptica - Cell-0 (9:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A800975682FF4792ACB8E132BD37476098BADF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354806   (986038) от 24.01.2020
+
+VA - 100 Greatest Guilty Pleasures (2020) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986038.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bryan Adams - (Everything I Do) I Do It For You
+002. Simply Red - Stars
+003. MC Hammer - U Can't Touch This
+004. Limp Bizkit - Rollin' (Air Raid Vehicle)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6358A5780A3FD93FACC7BF366A48702E2B4E699A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971583   (985944) от 03.01.2016
 
 VA - World 2016 Future (2016) [MP3|264-320 кб/с] <Club, Tropical, Future House, Indie Dance>
@@ -629,128 +745,6 @@ VA - Зимний Hit-Mix (2016) [MP3|256-320 кб/с] <Pop, Dance, Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3940C955C2B8EFF0AB273651606858EF6E261F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972838   (980682) от 07.01.2016
-
-VA - (OST) Scarface Лицо Со Шрамом (1983) [MP3|320 кб/с]
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scarface (Push it to the limit)
-02. Rush Rush
-03. Turn out the light
-04. Vamos a Bailar(   Читать дальше...   )Жанр: OSTПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0FD5DABCE16FD5CB3F4E92A23C8C16EF105740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972819   (980174) от 08.01.2016
-
-VA - (OST) Люди в Черном / Men in Black (1997) [MP3|320 кб/с]
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M.I.B. Main Theme
-02. M.I.B. Closing Theme
-03. Edgar's Truck - A New Man
-04. D's Memories - Chase(   Читать дальше...   )Жанр: OST-ScoreПродолжительность: 01:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49DA9D24A34559B8BFE3FEE3AE34E3E95567A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612967   (979992) от 06.02.2013
-
-VA - Итоговый Независимый Хит–Парад - «Чартова Дюжина 2011» (2011) [MP3|128-320 кб/с]<Rock, Punk-Rock, Folk-Rock, Soft-Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979992.jpg" />
-</div>
-
-
-###  Подробнее
-
-14. Калинов Мост - Толокно (3:16)
- 15. KняZz - Человек-Загадка (4:53)
- 16. Би-2 - Ее Глаза (из Шекспира) (4:52)
- 17. Алексей Мурашов и Максим Леонидов - Полмили до дна (4:05)
- 18. KняZz - В пасти тёмных улиц (4:16)
- 19. Lumen - Не надо снов (3:19)
- 20. Мураками - Нулевой километр (3:36)
- 21. Глеб Самойлоff & The Matrixx - Опасность (3:28)
- 22. Кипелов - Власть огня (4:47)
- 23. Алиса - Дождь и Я (4:10)(   Читать дальше...   )Жанр: Rock, Punk-Rock, Folk-Rock, Soft-RockПродолжительность: 05:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2606C3BC7CC99342B160436E79B98AEE24D64F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356023   (979615) от 29.01.2020
-
-VA - Громкие новинки Января Vol 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.2 Chainz, Future - Dead Man Walking (2:15)
-2.3-ий Январь - Фиолетовые мотыльки (3:12)
-3.Arash, Ilkay Sencan - Mary Jane (3:18)
-4.Kygo, Avicii, Sandro Cavazza - Forever Yours (3:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4CAC05BD670BFE4B05A8C3970FACCAFEC775B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

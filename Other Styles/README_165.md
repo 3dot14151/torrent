@@ -1,3 +1,32 @@
+###  Публикация: 1703088   (114831) от 01.03.2024
+
+VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darles Flow, José Sierra & Tibetania - Sahra (6:06)
+02. Project Blue Sun & Tibetania - Desert Girl (Dacosta Remix) (5:46)
+03. Tibetania & Hansonic - Streets of Khartoum (6:40)
+04. The Mystic & Tibetania - Johera (6:45)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8BAC9B36BD1963844A7820922EB504E79AEAE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704225   (114180) от 05.03.2024
 
 Syntheticsax - Silhouettes (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
@@ -708,35 +737,6 @@ VA - The Orient Collective: Red Carpet (2024) [FLAC|Lossless|WEB-DL|tracks] <Wor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0784070B69AEA5FAC2865C87AF9103FC45E15884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726312   (108578) от 01.06.2024
-
-Werner Ahrens - Horst Bosing - Crystal Spheres (2006) [WavPack|Lossless|image + .cue] <Wellness / Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chin Begin - Essania
- 02. Crystal And Metal Part 1
- 03. Crystal And Metal Part 2
- 04. Crystal And Metal Part 3(   Читать дальше...   )Жанр: Wellness / MeditationПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3560FC10E55D2933E2C6D20397F76B22ADE8D06
 ```
 
 https://mybot314.ru/tekegram_catalog/

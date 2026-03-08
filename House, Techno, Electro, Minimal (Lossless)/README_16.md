@@ -1,3 +1,90 @@
+###  Публикация: 1006530   (826985) от 12.04.2016
+
+U96 - The Dark Matter EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood Of The Rose [04:18]
+02. Dark Matter [04:02]
+03. Human Cosmic [04:17]
+04. Run With It [05:29](   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 00:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A3781332DA0FBD204CD791C1C8271B17181F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502660   (826512) от 15.10.2021
+
+Tiesto - Together Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oohla Oohla (2:23)
+02. Money (2:50)
+03. I’ll Take You High (2:52)
+04. Be Something (2:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5363F9D4AC462186AE0197508CB46A92135037CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006878   (825477) от 13.04.2016
+
+The New Deal - Mercury Switch (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark One (4:51)
+02. Mercury Switch (7:03)
+03. Very Good Then (3:56)
+04. Eazy Lazy (6:18)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D16A552B571BBE9C4435E71ED8FD0AC36D3283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502862   (824843) от 16.10.2021
 
 Miss Monique - FGIX (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
@@ -654,92 +741,6 @@ David Guetta Feat. Nicki Minaj, Bebe Rexha & Afrojack - Hey Mama (2015) Remixes 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50BC93667174E3AAD852C808A235C17CED199AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008610   (813674) от 19.04.2016
-
-VA - Maretimo Sessions Edition Jazz House - Smooth Grooves Deluxe (2016) [FLAC|Lossless|WEB-DL|tracks] <Soulful House, Beach House, Left-Field>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skindive Inc. - Wishing Love (Feat. Ino) (Groove Mix) 07:03
-02. Chillhouse Department - Adriatic Islands (Surfers Cut) 05:20
-03. Jazz City - The Next Day (To The Sea Mix) 04:52
-04. Phil Kinley - Groove Is In The Air (Welcome 2 Da Beach Mix) 06:46(   Читать дальше...   )Жанр: Soulful House, Beach House, Left-FieldПродолжительность: 03:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6231B7A7CA14779116D65E12FB77B78342DC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198067   (812135) от 09.01.2018
-
-Drumcell - Collection 7 Releases (2012-2016) CLR, Droid Recordings [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empathy Box (Hypoxia Mix) (06:24)
- 02. Conflict Divide (05:39)
- 03. Terminus Effect (06:29)Тип издания: CD, WEBЖанр: TechnoПродолжительность: 00:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CEE8F97B4B7EC30002BC1338B5E60A71A1D89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197496   (812134) от 09.01.2018
-
-VA - Spring Tube Vocal Themes, Vol.12 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zatonsky, Aves Volare & Alula - Saw The Way (Original Mix) (06:25)
-02. Mysteria (UK) & Nick Sinckler - Turn (Nebogitel remix) (06:15)
-03. Phrakture & Maria Carmela - Curve Sound (Da Funk's Recovery dub) (04:51)
-04. Mistol Team & Eli Nadra - Fate (Original Mix) (05:55)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2326A8F5C42939F418276EB2C0529C37956D042
 ```
 
 https://mybot314.ru/tekegram_catalog/

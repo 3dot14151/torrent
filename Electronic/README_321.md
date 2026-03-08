@@ -1,3 +1,66 @@
+###  Публикация: 662465   (389640) от 12.10.2017
+
+Rildrim - Discography 9 Releases (2006-2017) [FLAC|Lossless|WEB-DL|tracks]<Ambient, Ethereal, Psybient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moving Inward (04:42)
+ 02. Descent into Matter (04:48)
+ 03. Changing Horizons (06:03)
+ 04. Shifting Sands (05:36)(   Читать дальше...   )Жанр: Ambient, Ethereal, Psybient |Продолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C49662489469785E590145AB61D76FB41AEDF86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571123   (389367) от 06.11.2012
+
+VA - Gleaner (2011) [FLAC|Lossless|WEB]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_389367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.Balter & Eitan Reiter - Too Much (Original Mix) (9:21)
+02. Karl Johan - Plus (Original Mix) (8:12)
+03. Fred White - Exile (Original Mix) (7:17)
+04. Human Element - Digital Reality (Original Mix) (7:15)
+05. Dominic Thomas - Breather (Original Mix) (8:00)
+06. Bakke - Voiceprint ID (Original Mix) (8:05)
+07. Fresh - Let It Roll (Original Mix) (7:46)
+08. Paulina Cewe - Vaporware (Original Mix) (8:11)
+09. Sleek - Rhodes Rodeo (Original Mix) (7:46)Жанр: Progressive HouseПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173719   (389055) от 13.10.2017
 
 Empire Of Love - Mysterious II (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -680,64 +743,6 @@ VA - Take a Trip, Pt. 5 (2019) [FLAC|Lossless|Web-DL|tracks] <Trip-Hop, Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DD0CBA7BDC2CB1F44E6327CF2E7C1CC678005AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414301   (387411) от 07.10.2020
-
-VA - Spacesynth Revolutions, Episode One (2010) [FLAC|Lossless|tracks + .cue] <Synthpop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyreon - Mars Raider (6:05)
-02. Galaxion - Nekomimi's Song (5:08)
-03. Resource X - Space Station 38 (4:47)
-04. Alek Szahala - Crystal Thunder (4:47)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA8676A2A194A7B7B4ECC12A4FEFF2FA3601E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414280   (387401) от 07.10.2020
-
-Sex Music Zone - Kamasutra Music 2020 [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye of Tiger (3:48)
-02. Kama Sutra (3:46)
-03. Around the Dance Pole (3:35)
-04. Get Over Here (3:47)(   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6114206FD829C394802BE440E2DA05134F8E718
 ```
 
 https://mybot314.ru/tekegram_catalog/

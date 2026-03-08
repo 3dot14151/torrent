@@ -1,32 +1,3 @@
-###  Публикация: 1405644   (478979) от 01.09.2020
-
-РАССАЛИЛА - На волю (2020) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Какаду [00:04:21]
-02 - Порог [00:04:26]
-03 - Рассалила [00:03:55]
-04 - Святой [00:04:20](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C494D7314D5FAD1128CDC18EE00617FD05B47DEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406007   (478966) от 01.09.2020
 
 Deep Purple - Live On The BBC (2004) SACD Version [MP3|320 Kbps] <Hard Rock>
@@ -773,6 +744,35 @@ Burning Rain - американская хард-рок-группа, основ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C7D32C1CF0DE5A6617EA2B0AE729293E5E01422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938836   (478028) от 20.09.2015
+
+Diaboli - Wiking Division (2015) [FLAC|image+.cue]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478028.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Destroying the Destroyers
+2. Internationalist Usurpers
+3. False Indoctrination
+4. 33rd Degree Hoax(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E54D086D1601BA8BB30CC4336D5E8722B864147
 ```
 
 https://mybot314.ru/tekegram_catalog/

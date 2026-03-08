@@ -1,3 +1,61 @@
+###  Публикация: 1570768   (438301) от 19.08.2022
+
+A-Ha - Lifelines (2002) Deluxe Edition, Remastered, 2019, Warner Music [OGG|485 Kbps] <New Wave, Synthpop, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifelines
+02. You Wanted More
+03. Forever Not Yours
+04. There's a Reason for It(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop RockПродолжительность: 02:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441E89362247D2F2FBFAA616A4C933B54EB32073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570911   (438298) от 19.08.2022
+
+VA - Black Hole Trance Music 08-22 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Nathan Nicholson - Follow You Anywhere (Extended Mix)
+02. BT & JES - Every Other Way (MaRLo Extended Remix)
+03. D72 & Natalie Gioia - For Our Freedom (Extended Mix)
+04. Dennis Sheperd & MR. CLN with Gid Sedgwick - Wishful Thinking (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63610B4976CEA0323C2470CBA4AD81FC4F0557FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410208   (438061) от 20.09.2020
 
 VA - Crossfit Selection 2 (2020) [MP3|320 Kbps] <Techno, Melodic House>
@@ -695,64 +753,6 @@ VA - Coffee Tunes: Brasil (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2E483AFBFD326D73DFEE87555EE5AB01F6F83BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165227   (435439) от 12.09.2017
-
-VA - Night Tunes: Shanghai (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alexander Volosnikov - Echoes Behind The Screen Of Time (Original Mix)  4:38
-02.  Soty - The Assent (Original Mix)  3:46
-03.  Matthew Billings - Unplanned Detours (Original Mix)  2:59
-04.  Seven24 & S.A.T - Infinity (feat. Allam)  4:56(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABD2F4FF2528181CB552194225F17C07CEAA411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164919   (435229) от 12.09.2017
-
-VA - Amsterdam Trance Sessions Vol.12 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  D-Mad vs. Ispolins - The Voice (Extended Mix)  4:58
-02.  Cold Stone - Mustang (Extended Mix)  7:32
-03.  James Kelly & Craig Johnstone - Return To Reality (Original Mix)  6:11
-04.  Novan - Royal Clipper (Extended Mix)  5:26(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFAD43D837FD979DBA8C5F33FFA5D8C8445020D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1617447   (1035056) от 07.03.2023
-
-Holur - Foul Utterings (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Foul Utterings (06:09)
-02 - Atop the Throne of Wickedness (04:12)
-03 - Arachnid (04:04)
-04 - Centipede Orgy Christ (04:31)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E081201E8117751DF869C98524FC3EFEA3DA0C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617499   (1035055) от 07.03.2023
 
 Defleshed - Grind Over Matter (2022) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
@@ -741,6 +712,35 @@ Voivod - Lost Machine: Live (2020) Jараnеsе Еditiоn [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B0F53999534E8EF36A439ED18B91C58D375FF28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444272   (1034676) от 01.02.2021
+
+Storm Seeker - Guns Don't Cry (2021) [FLAC|Lossless|image + .cue] <Folk Metal, Pirate Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How to be a Pirate (3:23)
+02. Naval Hitchhike (2:55)
+03. Shoot This Ship Down (4:19)
+04. Guns Don't Cry (3:39)(   Читать дальше...   )Жанр: Folk Metal, Pirate MetalПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B0A1A76B4D0F1371CE084169611F1F1C649F1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

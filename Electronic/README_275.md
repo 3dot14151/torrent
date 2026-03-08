@@ -1,3 +1,61 @@
+###  Публикация: 1114465   (528108) от 07.07.2019
+
+Supersimmetria - Discography 6 Releases (2012-2019) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Rhythmic Noise, IDM, Dark Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fusion (05:11)
+ 02. CHNOPS (06:37)
+ 03. Supernovae (05:36)
+ 04. Scattered Stardust (05:56)(   Читать дальше...   )Тип издания: WEBЖанр: Industrial/Techno/Tribal/AmbientПродолжительность: 01:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4043D13834EBB08F54753BD59A52ED9A3FC959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559108   (527801) от 23.06.2022
+
+VA - Summer In Space Vol. 5 (2022) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spacehawk - Droids (4:52)
+02. Mind Vision - Legacy Time (6:55)
+03. Ultra Synergy - The Secret Of  Fight (5:42)
+04. Space Marine - The Flight To Mars (5:54)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9337AF121C358E7874FE1F5D507A29CB77A7FF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156345   (527782) от 07.08.2017
 
 VA - Summer Selection (2017) [MP3|320 Kbps] <Progressive Trance>
@@ -686,64 +744,6 @@ VA - Pure Deep Sexy Vol.2 (2016) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70BE7AC7559D59DB25BFFA37C4691D60C068CB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053455   (526036) от 17.09.2016
-
-VA - 10 Years Diynamic (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Mnml>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kollektiv Turmstrasse - Jupiter Sunrise
-02. Adriatique - Jekaterinburg
-03. Solomun - Let It Out (feat Liu Bei)
-04. Johannes Brecht - 2nd Movement(   Читать дальше...   )Жанр: Tech House, Deep House, MnmlПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84BB2DD6654ED67B5CBA9F870C5B3A907D2A486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157102   (525879) от 10.08.2017
-
-VA - Fresh Moods Present Ambience Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo-Fi>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  BK Duke feat. Axel B. - Did You Know (Ibiza Chillout Mix)  5:31
-02.  York & Wadadli Acoustics - Nothing Is Over  4:49
-03.  Don Gorda Project - Uma Alegria Contagiante  6:12
-04.  PNFA - Color Dust  6:19(   Читать дальше...   )Жанр: Downtempo, Chillout, Lo-FiПродолжительность: 02:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF25FAF43BD84AB0C166207A414DC937C704F99
 ```
 
 https://mybot314.ru/tekegram_catalog/

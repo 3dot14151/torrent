@@ -1,90 +1,3 @@
-###  Публикация: 1572934   (417122) от 29.08.2022
-
-1914 - Where Fear And Weapons Meet (2021) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War In
-02. FN .380 ACP #19074
-03. Vimy Ridge
-04. Pillars Of Fire (The Battle Of Messines)(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516B076A7936410E815CBB14627B1D358C649D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573007   (417119) от 29.08.2022
-
-The Fae - 2 Albums (2020-2022) [MP3|320 Kbps] <Stoner, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satyrs & Scherzos (Quaerendo Invenietis) [00:01:23]
-02. Faerie Rock [00:07:12]
-03. A Corner of Avalon [00:03:19]
-04. Alguien Ma?s en Quien Confiar [00:04:02](   Читать дальше...   )Жанр: Stoner, Hard Rock, Heavy MetalПродолжительность: 2 CD, 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E8671EE95AE3AEAAF057554DCD4C7A64513969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573012   (417117) от 29.08.2022
-
-Включай Микрофон! - Позывные ретритизма, Часть 1 (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417117.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выпили и погнали
-2. Улицы помнят каждого
-3. Никакой лирики!
-4. Хватит на всех!(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50AB2D78F70C12E894593834DF53BD4212A698C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573015   (417093) от 29.08.2022
 
 Алексей Горшенёв - Калининград (2022) Single [MP3|320 Kbps] <Rock>
@@ -735,6 +648,93 @@ King Mothership - The Ritual (2020) [MP3|320 Kbps] <Alternative Rock, Punk Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A18039E63E8DF848448FF0434FEE2A9B498597F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947906   (415986) от 18.10.2015
+
+Karnataka - Secrets Of Angels (2015) [FLAC|tracks + .cue]<Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road To Cairo (05:27)
+02. Because Of You (04:53)
+03. Poison Ivy (04:14)
+04. Forbidden Dreams (05:48)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68267FE317149951824DA48D79B89CABB4441372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412666   (415887) от 30.09.2020
+
+Ram Jam - Greatest Hits (2020) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down And Dirty 04:08
+02. Black Betty 03:57
+03. Ram Jam Thank You Mam 03:06
+04. Rock Hard 03:26(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6569EC8F561CE4DDB92E6677DE646749087815BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412714   (415883) от 30.09.2020
+
+VA - Body Pump Rock Classics (2020) [MP3|320 Kbps] <Rock, Dance>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Tasker - Highway to Hell (Workout Mix 115 BPM)
+02. Billie Tasker - Rock and Roll (Workout Mix 170 BPM)
+03. Chandler FX - Smells Like Teen spirit (Workout Mix 124 BPM)
+04. Chandler FX - Ace of Spades (Workout Mix 141 BPM)(   Читать дальше...   )Жанр: Rock, DanceПродолжительность: 02:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9E9E6B6D47CC1D789CDF7E7F35DB601F9B6E7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

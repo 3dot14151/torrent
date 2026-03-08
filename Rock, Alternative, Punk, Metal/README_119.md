@@ -1,32 +1,3 @@
-###  Публикация: 1479965   (1009345) от 26.06.2021
-
-Light The Torch - You Will Be the Death of Me (2021) [MP3|320 Kbps] <Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - More Than Dreaming [00:03:09]
-02 - Let Me Fall Apart [00:03:27]
-03 - End of the World [00:03:17]
-04 - Wilting in the Light [00:03:48](   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC991042011B1B71D4BC5FD3CB89390F2DB392AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479951   (1009343) от 26.06.2021
 
 Lacuna Coil - Live From The Apocalypse (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Alternative Metal>
@@ -743,6 +714,35 @@ Amenra - 6 Albums (2012-2021) [MP3|320 Kbps] <Doom, Sludge Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E2C5CE6BA50401B096ADD773751560B21F91E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480073   (1009181) от 27.06.2021
+
+De Arma - Strayed in Shadows (2021) [MP3|320 Kbps] <Gothic Rock, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pain of the Past [00:08:04]
+02 - City Vultures [00:06:45]
+03 - Illusions of Love [00:06:32]
+04 - Funeral in my Brain [00:06:23](   Читать дальше...   )Жанр: Gothic Rock, Post RockПродолжительность: 00:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6815DD3028AE4A21715A7DF5FB682316977A9D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

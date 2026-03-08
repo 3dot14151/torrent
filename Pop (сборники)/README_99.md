@@ -1,3 +1,38 @@
+###  Публикация: 583671   (312125) от 02.12.2012
+
+C.C. Catch - All Very Best (2012) [MP3|320 кб/с]<Pop,Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven And Hell
+02. Are You Man Enough
+03. Midnight Gambler
+04. Born On The Wind
+05. Little By Little
+06. Soul Survivor
+07. Hollywood Nights
+08. Cause You Are Young
+09. Summer Kisses (12'' Version)
+10. Back Seat Of Your Cadillac(   Читать дальше...   )Жанр: Pop,DiscoПродолжительность: 02:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA5DD9BD7E381E419C2B24A300DB4BECB0A217F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182857   (312074) от 12.11.2017
 
 VA - Unknown 80's (part IX) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
@@ -716,35 +751,6 @@ VA - Dont Stop The Music: New Disco Party (2019) [MP3|320 Kbps] <Disco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA9C0F7E925372E5EEC8755A07CB743E56A3E33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333462   (303291) от 25.10.2019
-
-VA - Exotic Of Disco: The Best Of Summer (2019) [MP3|320 Kbps] <Disco, Eurodisco, Italodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303291.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Franz Matthews - Tutan Jamon
-002. Boogie Freaks - What's Up (Original Mix)
-003. Hot Streak - Body Work (Vocal Mix)
-004. Sidwho - Violet Run(   Читать дальше...   )Жанр: Disco, Eurodisco, ItalodiscoПродолжительность: 10:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18AE5CB5AFB4B4D4323AB1DCF893D21DDAD1E8E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

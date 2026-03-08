@@ -1,3 +1,32 @@
+###  Публикация: 1416679   (365532) от 17.10.2020
+
+Ray Bryant Trio - Gotta Travel On (1966) 2011, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gotta Travel On [4:27]
+02. Erewhon [3:10]
+03. Smack Dab in the Middle [4:04]
+04. Monkey Business [2:53](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Piano JazzПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25DCAC1E6008C0E754E595DD682CB47855DB10D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416686   (365399) от 17.10.2020
 
 Donald Byrd - Slow Drag (1967) 1993, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -713,35 +742,6 @@ Club Des Belugas & Thomas Siffling - The Chinchin Sessions (2013) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4AB7A29F1C9D366A6E8E7764C84FC4BD24FB325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255829   (361769) от 19.10.2018
-
-Bob Cooper - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361769.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Group Activity [2:34]
-02. Excursion [3:42]
-03. Polka Dots And Moonbeams [3:03](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, West Coast JazzПродолжительность: 03:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7548A3DE7E2D47BB3C661373C1C9B0EE41C4468A
 ```
 
 https://mybot314.ru/tekegram_catalog/

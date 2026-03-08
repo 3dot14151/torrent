@@ -1,3 +1,177 @@
+###  Публикация: 1190645   (266907) от 10.12.2017
+
+VA - Heavy Metal Collections Vol. 5 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266907.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. W.A.S.P. - Mean Man (1989) (4:51)
+02. Lunatica feat. John Payne - Farewell My Love (2010) (5:17)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 06:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2440ED4FA7A52E0C5FD3A7C29F6BE7E327ACBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190579   (266904) от 10.12.2017
+
+VA - Hed Kandi - Diamond Collection of Beach House 2000-2017 (2017) [Compiled by Firstlast] [MP3|320 Kbps] <Chill House, Disco House, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 05:07:39
+01. Julius Papp - Pacific State (12'' mix) [7:01]
+02. Factor 15 - Summer Love (Beach House Dub) [7:12]
+03. Nightsource - Just Right [7:01](   Читать дальше...   )Жанр: Chill House, Disco House, Funky HouseПродолжительность: 08:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01D8EE4F284B7B4BE64ECD23200E02532240641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190658   (266834) от 10.12.2017
+
+VA - Heavy Metal Collections Vol. 1 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266834.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01.Judas Priest - Turbo Lover (2008) (5:34)
+02.Running Wild - Preacher (1984) (4:22)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 04:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2A6446384CA988C70277DAACACFCBBE115EA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190531   (266831) от 10.12.2017
+
+VA - Музыкальная Акварель: Русский Сборник (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nanik - Июль My Love
+002. Валерий Леонтьев - Ты Где-То Там
+003. Нэлли Мотяева - По Лезвию Небаа
+004. Дима Билан - Монстры В Твоей Голове(   Читать дальше...   )Жанр: PopПродолжительность: 12:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336E3FC5F8AAC82FB9C5C7FBE56B8FE3BE2D7636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267515   (266731) от 06.12.2018
+
+VA - German Top 100 Single Charts 30.11.2018 (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266731.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mero - Baller los
+002. Ava Max - Sweet but Psycho
+003. Sido - Tausend Tattoos
+004. Samra - Cataleya(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB411397AD9E769B75F24C1E2D8E1D5CD8B2F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267312   (266730) от 06.12.2018
+
+VA - We Are Humans: Synth Electronics Mix (2018) [MP3|320 Kbps] <Synthetic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266730.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Klangstrahler Projekt - Adore
+002. Alberto Remondini - Double Bacon (Radio Edit)
+003. Astrovoyager - We Are Humans
+004. Carles Dj - Action Soul(   Читать дальше...   )Жанр: SyntheticПродолжительность: 10:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4926209B3C2C2C83503F3C542D50AC33CEDF31A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267282   (266665) от 06.12.2018
 
 VA - Billboard Hot 100 Singles Chart 08.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
@@ -571,180 +745,6 @@ VA - Мадам: Сборник Шансона и Авторской Песни 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3344EE6EB69D9B4108C015494BFA54F3048846A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191010   (265764) от 11.12.2017
-
-VA - Heavy Metal Collections Vol. 4 (6CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265764.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01. King Diamond - At the Graves (1989) (8:58)
-02. Innerwish - Spacerunner (1998) (4:31)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 07:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46DEB293AF28435FF365F821FD3D9B6107FB231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190974   (265608) от 11.12.2017
-
-VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House и Trance от LORDEGRAF vol. 13 (2017) [MP3|320 Kbps] <Electro, Deep, Techno, House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Adam Lambert - Ghost Town (RAFO Remix) [4:52]
-02.	Awolnation - Run (Highsociety Remix) [4:00]
-03.	Bebe Rexha feat. Lil Wayne - The Way I Are (Dance With Somebody) [3:08]
-04.	Bengro - Basskiller [4:02](   Читать дальше...   )Жанр: Electro, Deep, Techno, House, TranceПродолжительность: 06:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88793FAC8FDFA21354E8B58F553294270B1A4FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 207643   (265566) от 07.12.2018
-
-VA - Relax Max Vol.1 (2010) [MP3|320 kbps]<Chillout,Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Androcell - Vital Signs
-02. Anro - Tranquilo
-03. Applescal - The Curle In Me (Original Mix)
-04. Atrium Sun - Abyss (Elfsong's Deep In The Abyss Mix)(   Читать дальше...   )Жанр: Chillout,RelaxПродолжительность: 04:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1734C9316012ADA0075E93F0178462B887C24E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267537   (265461) от 07.12.2018
-
-VA - Club Dance Ambience Vol.168 (2018) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265461.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Mytton - Sugar (Original Mix)
-002. Alyssa Salt - Не отпускает (DJ ANDREY NASH Remix)
-003. Bad Boys Blue - Mon Amie  (KaktuZ Remix)
-004. Black Blood & Crazibiza - Tokoriki (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B9D89309DA88EBB49FFE2D0F04E80FFFD64D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339496   (265346) от 20.11.2019
-
-VA - Different Space: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265346.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shock Therapy - Paradise Moments
-002. Monod - Forbidden Dreams
-003. Mirage, Mental Flow - Subliminal Message
-004. Ital - Strange Light(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED018D6957AF8713D4EE12571DC102F95D4A288C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339562   (265345) от 20.11.2019
-
-VA - Night In The Jungle (2019) [MP3|320 Kbps] <Jungle, D&B>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265345.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sainmusic - Inner Peace
-002. Jonaro - Eternity (Original Mix)
-003. Satoru - Istanbul
-004. Bioglard - Modification (Original Mix)(   Читать дальше...   )Жанр: Jungle, D&BПродолжительность: 07:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0596D7709FC3FF816B9E9F376211BD703010705
 ```
 
 https://mybot314.ru/tekegram_catalog/

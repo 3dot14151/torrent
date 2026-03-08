@@ -1,3 +1,61 @@
+###  Публикация: 1279734   (499437) от 02.08.2019
+
+Der Blaue Reiter - Discography 9 Releases (2006-2019) [MP3|320 Kbps] <Dark Ambient, Apocalyptic Ambient, Neo-Classical, Matrial Industrial>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499437.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 - Le Paradise Funèbre • L'Envers Du Tristesse
+2008 - Silencis
+2009 - Nuclear Sun • Chronicle Of A Nuclear Disaster
+2014 - Le Paradis Funèbre II • L'Adieu Du Silence(   Читать дальше...   )Жанр: Dark Ambient, Apocalyptic Ambient, Neo-Classical, Matrial IndustrialПродолжительность: 09:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5015F9836F5F1964DD0EFCD8874FBCF7EDA96F8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935713   (498443) от 09.09.2015
+
+VA - The Very Best of Chill Out Vol 2 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. But & Memo - Black Betty (But & Memo) - Alexander Metzger Chillout Mix [06:31]
+02. Alexandru Florea - Secrets from Your Lips - Ancient Culture Mix [06:17]
+03. Arshia Alipour - Waiting for You [03:01]
+04. Five Seasons - Floating Spell [03:46](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E105BF2D83B585956415A73EFB1DCA78B31ADA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935612   (498408) от 09.09.2015
 
 VA - Woman Trance Voices vol.12 (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
@@ -706,64 +764,6 @@ VA - Retrospective Drum 'n' Bass: 10 Years (2018) [MP3|320 Kbps] <Drum'n'Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DEBF7ABDBB2146E0021AEFB49700B1802D80938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936465   (495651) от 11.09.2015
-
-Infected Mushroom - Converting Vegetarians II (2015) [MP3|320 кб/с]<Psychedelic, Psy-Trance, Dubstep>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Zoremet
-02. Yamakas in Space
-03. Sense of Direction
-04. Animatronica(   Читать дальше...   )Жанр: Psychedelic, Psy-Trance, DubstepПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D240595C785E2FC4C7BF107B339B5874476177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243020   (495572) от 25.08.2018
-
-VA - Progressive Creators (2018) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryuku Underground - Seragaki (Junkie Xl Remix) 11:20
-02. Nick Catano - Euphoria (Original Mix) 7:49
-03. Gerardo Boscarino - Numb (Original Mix) 7:16
-04. Heads Down Music - Turned Out (Original Mix) 7:52(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90AB4A6948E675D1501905702F02E909B8D07D9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

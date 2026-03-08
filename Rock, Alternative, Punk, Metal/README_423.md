@@ -1,32 +1,3 @@
-###  Публикация: 1291897   (650603) от 27.03.2019
-
-Whitechapel - The Valley (2019) [MP3|320 Kbps] <Deathcore, Alternative Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When a Demon Defiles a Witch
-02.Forgiveness Is Weakness
-03.Brimstone
-04.Hickory Creek(   Читать дальше...   )Жанр: Deathcore, Alternative Metal, Groove MetalПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64707E29BC8564F896DD04A0EB4AD91D9E94CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540620   (650590) от 31.03.2022
 
 Placebo - Never Let Me Go (2022) Remixes [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
@@ -746,6 +717,35 @@ FAQ - Цирковые Псы (2007) [MP3|320 кб/с]<Rock,Punk,Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6163996307437E6B1404F7415ED8D2E56EE7DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905573   (649477) от 06.06.2015
+
+R-Genium - Wonderful Wonderful World (2015) [MP3|320 кб/с]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Sky (08:40)
+02. One Day (05:05)
+03. Fantastic Story (04:07)
+04. I Know Your Lie (03:33)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB56AF78F4F0D7D8F46E0C221D50D2FCA628707
 ```
 
 https://mybot314.ru/tekegram_catalog/

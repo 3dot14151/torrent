@@ -1,3 +1,61 @@
+###  Публикация: 1094006   (930619) от 17.01.2017
+
+Linda Jo Rizzo - Fly Me High (The Album) (2015) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Fly Me High  (07:20) 
+02|  There's A Fire  (05:37) 
+03|  Only One Night  (07:34) 
+04|  Heartflash  (05:58) (   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1CF64748983CD8E367B585E5EAF38C78F11A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365415   (930571) от 07.03.2020
+
+Dreamcatcher (드림캐쳐) - Dystopia : The Tree of Language (2020) [FLAC|Lossless|tracks + .cue] <KPop, KRock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:20)
+02. Scream (03:24)
+03. Tension (03:11)
+04. Red Sun (03:05)(   Читать дальше...   )Жанр: KPop, KRockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2F9A5767AAE1C6E7630AB8178B771E22FD2FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986535   (930555) от 14.02.2016
 
 VA - BRAVO Hits 92 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Pop Rock>
@@ -686,64 +744,6 @@ Dimash Kudaibergen (Димаш Кудайберген) - ID - 1st digital album 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89ED41DD3C772DDB4E8A06665336EFD0C8040762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987916   (924494) от 18.02.2016
-
-VA - Sugar Mambo - Heat Express (2000) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jon Secada - Stop (4:16)
-02. Shaft - Mambo Italiano (2:48)
-03. Los Del Duego - Cabello VleJo (3:25)
-04. Jennifer Lopez - Let,s Get Loud (3:58)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58BA8A5266CC60F7E9A7F125F36105CB33C19A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095571   (924392) от 21.01.2017
-
-Emma King - Emma King (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Devil City  (03:16) 
-02|  All The Other Fools  (03:16) 
-03|  Keep It Coming  (04:17) 
-04|  Rollin' In  (03:59) (   Читать дальше...   )Жанр: Pop, Soul, FolkПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5372D88602A614DA1EE0893862C56B900EE3766F
 ```
 
 https://mybot314.ru/tekegram_catalog/

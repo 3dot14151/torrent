@@ -1,3 +1,32 @@
+###  Публикация: 1507650   (798269) от 05.11.2021
+
+Fancy - Hit Party (1998)(Compilation)[FLAC|Lossless|image + .cue] <Euro-disco, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames of Love (bass up version)
+02. Blue Eyes and a Broken Heart
+03. Fools Cry
+04. Slice Me Nice(   Читать дальше...   )Жанр: Euro-disco, SynthpopПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B2A605627524887A6F1E1BB5B082E18D85DBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507598   (798243) от 05.11.2021
 
 ABBA - Voyage (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ CD - 1 - Romantica:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBEF02CDCEC95F548E248A01D9B53608FBFE0632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201468   (792699) от 24.01.2018
-
-VA - 2018 Grammy Nominees (2018) [FLAC|Lossless|tracks] <Pop, Hip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792699.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом году вручать Grammy будут в воскресенье, 28 января, в 19:30 вечера (по местному времени) и не в Лос-Анджелесе. Впервые за 15 лет самая большая ночь музыки возвращается в Нью-Йорк  в Мэдисон-Сквер-Гарден. Но как всегда за несколько дней до этого звездного часа музыки выпускается диск с основными номинантами. Обычно награждение Grammy происходит в середине февраля, (   Читать дальше...   )01. Bruno Mars - 24K Magic  (3:46)
-02. Kelly Clarkson - Love So Soft  (2:52)
-03. Luis Fonsi & Daddy Yankee - Despacito (Feat. Justin Bieber) (Remix)  (3:50)
-04. Kendrick Lamar - Humble  (2:58)(   Читать дальше...   )Жанр: Pop, Hip HopПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA517C035B706A6FBDBCE67F6A1E8DABBB8D1FED
 ```
 
 https://mybot314.ru/tekegram_catalog/

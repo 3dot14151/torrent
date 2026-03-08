@@ -1,3 +1,61 @@
+###  Публикация: 1611635   (1041040) от 12.02.2023
+
+Secret Service - Secret Mission (2022) [FLAC|Lossless|image + .cue] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Mission 3:33
+02. How Can I Get Over You 4:05
+03. You Stole My Heart 3:43
+04. Jane 3:09(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4274F49CA4DF9CAA2984ED68C70BF435B58F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438581   (1040890) от 09.01.2021
+
+VA - Italian Classics (1998) 2CD [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice - Per Elisa
+02. Alan Sorrenti - Tu Sei L'unica Donna Per Me
+03. Antonello Venditti - Buona Domenica
+04. Toto Cutugno - Soli(   Читать дальше...   )Жанр: PoрПродолжительность: 02:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E93EB4C1DC8DA26360474A5EC88B0BBE7717CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438624   (1040886) от 09.01.2021
 
 VA - Gym Motivation Mix (2021) Explicit [MP3|320 Kbps] <Pop>
@@ -687,64 +745,6 @@ Showaddywaddy - Under The Moon Of Love (1993) [FLAC|Lossless|image + .cue] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F27BCA98E3225DF316F5F357F5218F58C1A279BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439911   (1039332) от 15.01.2021
-
-Showaddywaddy - Greatest-Hits-Medley (1991?) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Showaddywaddy, Intro (1:10)
-02. Twist And Shout (1:09)
-03. Alley Oop (1:22)
-04. Three Steps To Heaven (1:07)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514BBCA47DA8AA0D9B325A49C435894B9675CA65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613211   (1039312) от 19.02.2023
-
-VA - Romantic Collection. Golden 60s (2000) [OGG Vorbis|480 Kbps] <Jazz, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Ben E. King–	Stand By Me
-02.	Everly Brothers–	Dreams
-03.	Brian Hyland–	Sealed With A Kiss
-04.	Otis Redding–	(Sittin' On) The Dock Of The Bay(   Читать дальше...   )Жанр: Jazz, Rock, PopПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF4BC90FE7B755EE90CFE3962D2C43BEE3110B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

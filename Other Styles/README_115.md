@@ -1,3 +1,32 @@
+###  Публикация: 1168068   (412848) от 22.09.2017
+
+VA - Eurotrip (2004) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lustra - Scotty Doesn't Know
+02 - Chapeaumelon - My Generation
+03 - Wakefield - Wild One
+04 - Goldfinger - 99 Red Balloons(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EED80D78584205E59BB3A81D4C421D3B7659DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167986   (412722) от 22.09.2017
 
 VA - Knockin' on Heaven's Door (1997) [MP3|320 Kbps] <Soundtrack, Score>
@@ -723,35 +752,6 @@ Reservoir Dogs / Бешеные псы - OST (1992) [MP3|320 кб/с]<OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:845783EDBD4A0F79CD595893064A438E17790658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573182   (407453) от 03.09.2022
-
-Enigma - The Screen Behind The Mirror (2000) [OGG Vorbis|485 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gate                                 	2:04
-02. Push The Limits                      	6:27
-03. Gravity Of Love                      	3:59
-04. Smell Of Desire                      	4:57(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DB5775AC8178908C8165160739F7ED474F68B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

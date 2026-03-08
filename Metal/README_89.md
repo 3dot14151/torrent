@@ -1,32 +1,3 @@
-###  Публикация: 1638263   (238078) от 07.06.2023
-
-Ekrom - Uten N​adigst Formildelse (2023) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bell Witch
-02. The Black Flame of Seth
-03. The Black Hearted Ragana
-04. Abyss of Eternity(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C474F0D00E094D76F1CC36EEEA9F8B05F7007BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638231   (238031) от 07.06.2023
 
 Dieth - To Hell and Back (2023) [MP3|320 Kbps] <Death, Thrash Metal>
@@ -746,6 +717,35 @@ Otu - Moonic Of A Down (2022) [MP3|320 kbps] <Sludge, Drone, Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31593DFAADE308D9124623DDB3C366B6BDD75C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457965   (235796) от 28.03.2021
+
+Sunborn - Imperishable (2021) [MP3|320 Kbps] <Melodic Death, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Praeludium - Flood [00:01:23]
+02 - Grinder [00:04:16]
+03 - Circularity [00:06:02]
+04 - Eisenherz [00:05:07](   Читать дальше...   )Жанр: Melodic Death, Groove MetalПродолжительность: 00:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614E20F61760FA4E7B7E6E14405A19380882F5CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

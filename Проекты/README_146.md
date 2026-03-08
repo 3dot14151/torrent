@@ -1,29 +1,3 @@
-###  Публикация: 1026366   (703434) от 15.06.2016
-
-Проекты - VideoHive - Freeze Frames: Comic Pack [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания стиля стоп-кадр. Используйте его для заставок кино, Youtube-канала, клипа, домашнего видео или просто для удовольствия, чтобы произвести впечатление на своих друзей.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B885315FA7C6679929B5C1F5EB67880295081054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026395   (703428) от 15.06.2016
 
 Проекты - VideoHive - Text Animator 01: Creative Modern Titles - 16491525 [AEP]
@@ -671,6 +645,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E35281DB77F2C73A3754AA91A2FA4252B3597ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026645   (702065) от 16.06.2016
+
+Проекты - VideoHive - Integrated Typography - 9861533 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Integrated Typography - вариант анимированных элементов текстовой типографики.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C61AD97B7A1DAF29324B0A41E494C0CC03CF4952
 ```
 
 https://mybot314.ru/tekegram_catalog/

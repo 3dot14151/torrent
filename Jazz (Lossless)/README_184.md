@@ -1,3 +1,32 @@
+###  Публикация: 1249248   (436017) от 23.09.2018
+
+JF Girard - Jazz Waves (2017) Productions Bros [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Waves [6:21]
+02. Icarus [5:37]
+03. Jour de pluie a la Satie [4:34]
+04. Belle sauvageonne [4:49](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DB38D11350A12B2DBD36CE183C54FA3B15CABFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249243   (436006) от 23.09.2018
 
 Jan Lundgren - Potsdamer Platz (2017) ACT Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -716,35 +745,6 @@ The Orchestra Of Mirrored Reflections - Frequency Jazz (2015) [FLAC|Lossless|Web
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3907FCC083883A4D1543B89D3FF05279ACDB8C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249557   (433601) от 24.09.2018
-
-Kenny Dorham - Eight Classic Albums (1953 - 1960) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433601.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. An Oscar For Oscar [2:48]
-02. Ruby My Dear (take 2) [3:06]
-03. Be My Love [3:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 05:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109BE283C85C408E1204001F17CAAF2A5733A3ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1485863   (1005078) от 28.07.2021
+
+VA - Feel Good Classic Hits (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prince - Let's Go Crazy (2015 Paisley Park Remaster)
+02. a-ha - Take on Me
+03. Queen - Fat Bottomed Girls (Single Version / Remastered 2011)
+04. ABBA - Take A Chance On Me(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8076E5410675BDB744F6E439EED7E05C7AC32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486089   (1004838) от 30.07.2021
+
+VA - 100 Greatest Soft Rock Songs (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toto - Africa
+02. The Police - Every Breath You Take (Remastered 2003)
+03. Eurythmics, Annie Lennox, Dave Stewart - Sweet Dreams (Are Made of This) (Remastered)
+04. Daryl Hall & John Oates - You Make My Dreams (Come True)(   Читать дальше...   )Жанр: RockПродолжительность: 07:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7242325D7AFE6B195138814E43642CB11969AEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513185   (1004715) от 31.07.2021
+
+VA - 30 The Final Countdown covers (2009) [MP3|128-320 кб/с]<Rock, Metal, Ska, Reggy>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axel Boys Quartet - The Final Countdown
+02. Norther - The Final Countdown
+03. Skam - The Final Countdown (original mix)
+04. Boney Nem - The Final Countdown(   Читать дальше...   )Жанр: Rock, Metal, Ska, ReggyПродолжительность: 01:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD082E143ABB2D261E0DDC60066E66DD6A041E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524409   (1004698) от 31.07.2021
+
+VA - Тараканы! covers (2010) [MP3|192 kbps] <Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bizness Band - Там, где руины превращаются в нас (02:32)
+02. Дочки-Матери - Я не верю (02:24)
+03. Hot Toys - Я смотрю на них (03:01)
+04. Серцевий напад - Кордони гетто (02:50)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C1A8A86690E2DD87073DD649DDD3FFD8697542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486521   (1004604) от 01.08.2021
+
+VA - Beatport Psy Trance: Sound Pack #321 (2021) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004604.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rugrats, Cosmic Illusion - Successful Digits
+002. Psykoveda - Equilibrium Point
+003. Magic Mizrahi - Existence
+004. Need One - Under The Shadow(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D951FFC522B2BD1A8CAAEA6B2316BB7941C534CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486536   (1004602) от 01.08.2021
+
+VA - Beatport Hard Dance: Electro Sound Pack #319 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004602.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lenny Dee - Thunderdome Go Boom
+002. Mike Efex - The Fallen
+003. Sharkey - The Warning
+004. Leighton Smith - Diagnostic(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 08:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D66BA767AA010A49832A955FAD71DF63AE0ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486540   (1004601) от 01.08.2021
 
 VA - Beatport Hardstyle: Sound Pack #326 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro Core>
@@ -571,180 +745,6 @@ VA - Hardstyle Dance Music For Fitness Vol.03 (2019) [MP3|320 Kbps] <Hard Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81D2100EBB87508DFBFEAAFC80154773D0778C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349591   (1004267) от 02.01.2020
-
-VA - Cyber Space: Future Synth Electronic (2020) [MP3|320 Kbps] <Synthwave, Synthetic, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004267.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Collective Machine - Mamba
-002. Sporting Life - Approach
-003. Future Beat Alliance - Machines Can Help
-004. Frédéric Auger - Dark Liquid(   Читать дальше...   )Жанр: Synthwave, Synthetic, ElectronicПродолжительность: 13:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D21921854A09B3D4CF09BFFD31B8E50B3F25226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349556   (1004222) от 02.01.2020
-
-Amure - Euphoria (2020) [MP3|320 Kbps] <New age, Enigmatic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Euphoria (6:42)
-2.Trust (6:03)
-3.Sacred Fire (5:25)
-4.Always On My Mind (3:56)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDB0B0BB6E81114AE1B69432F3C2A8D254C03C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487073   (1004153) от 03.08.2021
-
-VA - Tropical Jungle Club (2021) [MP3|320 Kbps] <Drum & Bass, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004153.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dynamite MC - It's Just What Lovers Do
-002. Amplify - Omg
-003. Brusten - In Motion
-004. Fushara - The Rave(   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 08:08:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A640BD378EEB20A04796AE0857B45763D819375B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487074   (1004136) от 03.08.2021
-
-VA - Trance Energy: Emotional Electro Mix (2CD) (2021) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004136.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Blackstorm - Crystal Skies
-02. Evolving Suns Audio - Outside The Box(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 11:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3C33910184DC3673FD84C3A9D6DC4D22FC2F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487070   (1004056) от 03.08.2021
-
-VA - The Classic Blues (2021) [MP3|320 Kbps] <Blues, Classic, Retro Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004056.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. John Lee Hooker - Drifting Blues
-002. T-Bone Walker - Blues For Marili
-003. Jan James - Where You Gonna Run To
-004. Alastair Greene - No Longer Amused(   Читать дальше...   )Жанр: Blues, Classic, Retro BluesПродолжительность: 09:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D360DD9C055B5478D91C647A2BEB032DC7D7CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487072   (1004055) от 03.08.2021
-
-VA - The Melancholy Blues (2021) [MP3|320 Kbps] <Blues, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004055.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Delta Moon - House Of Dolls
-002. Paul Gillings - I Dont Know When Im Beaten
-003. John Lee Hooker - Amazing Grace
-004. Lynn August - The Lords Gonna Fix It(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 08:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7EA03FA732CB3294E80AFB40BB2E31EC02A1CED
 ```
 
 https://mybot314.ru/tekegram_catalog/

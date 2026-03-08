@@ -1,32 +1,3 @@
-###  Публикация: 1103519   (885886) от 12.02.2017
-
-St James - Resurgence (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885886.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Attitude (3:00)
- 2. Worth Fighting For (3:32)
- 3. This Distance (3:35)
- 4. Let It Rain (3:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B592988466981523C16BE41A1303F28F584C9165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995259   (885827) от 10.03.2016
 
 3 Doors Down - Us and the Night (2016) [MP3|320 кб/с] <Alternative Rock, Post - Grunge>
@@ -739,6 +710,35 @@ Sunsay - Благодари (2013) [MP3|320 кб/с]<Funk / Experimental / Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F7DA74D2B31A9646B0D030CD377242FE567DEEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614921   (884358) от 10.09.2021
+
+Red - Release The Panic (2013) Deluxe Edition [FLAC|lossless|tracks + .cue] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Release The Panic (03:02)
+02. Perfect Life (02:51)
+03. Die For You (02:46)
+04. Damage (03:41)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7D52249850964936F8D573A3894311C978225D
 ```
 
 https://mybot314.ru/tekegram_catalog/

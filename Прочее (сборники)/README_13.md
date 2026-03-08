@@ -1,3 +1,143 @@
+###  Публикация: 596318   (999652) от 05.01.2013
+
+DJ Smash - Новый мир (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Новый Мир feat. Наталья Подольская
+02. Любовь На Расстоянии feat. Вера Брежнева
+03. Москва feat. Винтаж
+04. Rendez-Vous feat. Mauri
+05. Магнит feat. T-Killah & Los Devchatos
+06. Young Hearts
+07. Together feat. Mauri
+08. Мерси Баку feat. Достучаться До Небес
+09. Jump feat. Тимур Родригез
+10.Атом feat. Асти(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15FBEB94D693EB2D64D1641C4D202FBC740F4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598302   (999485) от 05.01.2013
+
+VA - Дискотека 80-х. Лучшее (2013) [MP3|320 кб/с]<Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999485.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Facts & Fiction - Love Game (feat.Jerome)
+002.Michael Jackson - Pretty Young Thing
+003.Hank Shostak - Don'T Tell Me
+004.Curacao - You
+005.Stage - Can't Get You Out Of My Mind
+006.Jessica - Chinese Magic
+007.Boney M - Let It All Be Music
+008.Thomas Anders - Soldier
+009.Fancy - Fools Cry
+010.Ricchi E Poveri - Malinteso(   Читать дальше...   )Жанр: DiscoПродолжительность: 08:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2715D1FB34AC72196F9005EA5DEB6C290FACAC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598867   (999064) от 07.01.2013
+
+VA - Итоговый Независимый Хит–Парад - «Чартова Дюжина 2012» (2012) [MP3|128-320 кб/с]<Rock, Punk-Rock, Folk-Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999064.jpg" />
+</div>
+
+
+###  Подробнее
+
+14. Ю-Питер - 10 шагов* (4:51)
+ 15. Кукрыниксы - Хрустальный мир (4:15)
+ 16. Би-2 - Девушки (3:45)
+ 17. Пилот - Сумасшедшим жить легко* (4:00)
+ 18. Оргия Праведников - Наша Родина - СССР (3:51)
+ 19. ДДТ - Напиши мне, напиши (5:43)
+ 20. Король и Шут - Счастье (3:24)
+ 21. Земфира - Деньги (3:37)
+ 22. Ночные Снайперы - Что мы делали прошлым летом (2:49)
+ 23. Чайф - Для Него (4:24)(   Читать дальше...   )Жанр: Rock, Punk-Rock, Folk-Rock, Soft-RockПродолжительность: 05:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8580217263D144F1BD0069F9295EEEBBA2501E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600419   (998952) от 08.01.2013
+
+VA - Top 100 Зимний драйв - 2013 (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Ferrari - Te Pego E Pa (Official Remix 2013)
+02. Samo'L - Двигаем Телами
+03. DJ Smash feat. Radio Killer - Save Me Tonight
+04. СтаЯ feat. Murzin Denis - Не Я (Radio Version)
+05. Доминика - Зима
+06. 5sta Family - Без Ума
+07. Misty & Тельман - Только Ты
+08. Вячеслав Самарин - Снег Кружит
+09. Винтаж и ChinKong - Свежая Вода
+10. Animal ДжаZ и МакSим - ЖивиЖанр: PopПродолжительность: 06:05:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600726   (998633) от 09.01.2013
 
 VA - Дискотека 2013 Dance Club Vol. 99 (2013) [MP3|320 кб/с]<Dance, Club, Pop>
@@ -698,122 +838,6 @@ VA - Ремиксы 2К20 2 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7568D61DC5B12766318958D4BABB1F58568572FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971101   (987538) от 02.01.2016
-
-VA - 2016 Alive Project (2016) [MP3|320 кб/с] <Disco, Vocal, Euro, Latin Music, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L.A.R.5 & Mg King - Work It Out (Club Mix) 04:17
-02. Malena Gracia - Despertar (Club Mix) 05:13
-03. Dj Gio - You & Me (Extended) 05:22
-04. Beatghosts Feat. Yuli - Spell (Extended Version) 04:52(   Читать дальше...   )Жанр: Disco, Vocal, Euro, Latin Music, DanceПродолжительность: 03:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826539610D21EB1A2D3EA9087908A168F98555D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971146   (987321) от 02.01.2016
-
-VA - Снежный Хит. Самые Сливки (2016) [MP3|128-320 кб/с] <Поп, Dance, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сплин - Три цвета (Первый снег)
-02. Salvatore Adamo - Tombe la neige
-03. Dean Martin - Let It Snow, Let It Snow, Let It Snow (1998 Digital Remaster)
-04. Земфира - Снег(   Читать дальше...   )Жанр: Поп, Dance, РокПродолжительность: 02:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E0F9BEC340FF9A32DB3ED7DA1F5CD50F124730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354573   (986727) от 23.01.2020
-
-VA - Зайцев.нет Лучшие новинки Января (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986727.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.2 Chainz feat. Future - Dead Man Walking (2:15)
-2.Alicia Keys - Underdog (3:28)
-3.Anti-Flag - The Disease (2:55)
-4.Apocalyptica - Cell-0 (9:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A800975682FF4792ACB8E132BD37476098BADF8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354806   (986038) от 24.01.2020
-
-VA - 100 Greatest Guilty Pleasures (2020) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986038.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bryan Adams - (Everything I Do) I Do It For You
-002. Simply Red - Stars
-003. MC Hammer - U Can't Touch This
-004. Limp Bizkit - Rollin' (Air Raid Vehicle)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6358A5780A3FD93FACC7BF366A48702E2B4E699A
 ```
 
 https://mybot314.ru/tekegram_catalog/

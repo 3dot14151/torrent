@@ -1,32 +1,3 @@
-###  Публикация: 1553777   (580924) от 27.05.2022
-
-Пилот - ТЫГЫДЫМ (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580924.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Апрель
-3. Иордань
-4. Заживо (Полная Версия)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398EF1DB15C4F98B261CC57944CB021023E61D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359876   (580890) от 07.07.2011
 
 Battle Beast - Steel (2011) [FLAC|Lossless]<Heavy Metal>
@@ -748,6 +719,35 @@ Blue Heron - Ephemeral (2022) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC97DCE33D64F66014EBFED8ABD67F676692B2B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553766   (580079) от 28.05.2022
+
+The Heretic Order - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue
+02. Children Of The Sun
+03. King Of The Damned
+04. Dark Shadows(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C6A5ED3EFA95B14A9E02537D8B614DC8BFFBFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

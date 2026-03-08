@@ -1,3 +1,32 @@
+###  Публикация: 1060654   (453722) от 08.10.2016
+
+VA - Autumn Chillout Journey 2016, Relaxing Mix (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denis Rusnak - Orbit King
+02. Deeper Sublime - Night Breeze
+03. Alexander Saykov - Pokrovka
+04. de Cima - K.A.T. - Torrent Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61453E26FCD32AF5D3563F6633F850DD01416190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060594   (452950) от 08.10.2016
 
 VA - Hits of My Soul Vol. 13 (2016) [MP3|320 кб/с]<Dance, Electronica, House>
@@ -742,35 +771,6 @@ VA - BacauHouseMafia Vol.13 (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2590B390053C8D4B212AD9BAD88B822448831B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061513   (448854) от 10.10.2016
-
-VA - Deep House Collection Vol.92 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448854.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.2pac - Changes (Lowderz Remix) (05:15)
-002.20 Fingers - Short Dick Man (Dima Flash Remix) (04:46)
-003.Aathee - The Rise (Original Mix) (06:24)
-004.Adam Foster Ft. Daniela - Don't Give It Up (Astero Remix) (04:42)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C4F5FE18A3C273C990065E3D431E9670F772C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1045468   (559099) от 23.08.2016
-
-Проекты - VideoHive - Logo Reveal Flicker - 16055586 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213027D30165E191F538061907EB00BB11F1749B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045363   (558987) от 23.08.2016
 
 Проекты - VideoHive - Epic Logo - 17240049 [AEP]
@@ -672,6 +646,32 @@ Lovely Slideshow - красивое слайд-шоу высокого каче�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA5DDCF3CD77F089853F8206DCCD12AB9C5775AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045641   (557487) от 24.08.2016
+
+Проекты - VideoHive - Dynamic Fashion Pack - 15351970 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Fashion Pack - модный промо-проект. Походит для создания презентации, динамического слайд-шоу, видео-открывалки и т.д.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732EB86A30DCD08E66A875A68414C869BD06A603
 ```
 
 https://mybot314.ru/tekegram_catalog/

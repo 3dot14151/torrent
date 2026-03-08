@@ -1,3 +1,119 @@
+###  Публикация: 988458   (920401) от 20.02.2016
+
+VA - Легенды Ретро FM. Лучшее. Зарубежный Выпуск (2016) [MP3|320 кб/с] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920401.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maywood - Pasadena
+002. Boney M. - Dreadlock Holiday
+003. London Beat - I've Been Thinking About You
+004. Vaya Con Dios - Nah Neh Nah(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 07:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C457FBCAAFEB11C51F7722CCF888442082AF1F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096200   (920107) от 23.01.2017
+
+VA - Дискотека 2017 Dance Club Vol. 160 от NNNB (2017) [MP3|320 Kbps] <House, Synth Pop, Trance, Dubstep, Pop, Breaks, Drum & Bass, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Digital Emotion - Full Control  6:05
+002.  Filterkat - Don't You Wanna (Fabron Remix)  3:24
+003.  ZHU & Evergreen - Hometown Girl  3:56
+004.  Virtual Riot - In My Head (feat. PRXZM)  3:42(   Читать дальше...   )Жанр: House, Synth Pop, Trance, Dubstep, Pop, Breaks, Drum & Bass, Nu DiscoПродолжительность: 14:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8059EFA37C59E5F133DC59124EBB7F0F9BD8F9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988771   (919276) от 21.02.2016
+
+2011stress - Лоскутный Мир (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Classic styling>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance for one
+02. Жеребёнок
+03. Потомки Звёздной Пыли
+04. James Blond(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Classic stylingПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7704F4A4B932F1F109AA2669AC85A3DB6B6D92DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367071   (919146) от 14.03.2020
+
+VA - The Official UK Top 40 Singles Chart 13.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd, Max Martin, Oscar Holter, Abel Tesfaye - Blinding Lights 3:22
+02. Saint Jhn - Roses 2:57
+03. Aitch, Aj Tracey, Tay Keith - Rain 3:03
+04. Roddy Ricch - The Box 3:17(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0D0809C1224D46CA90589F8616A3B5E7559F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367095   (919069) от 14.03.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 13.03.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -629,124 +745,6 @@ VA - New Italo Disco (2017) [MP3|320 Kbps] <Italo Disco , Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B252043FA536562C1662CF85606FDBA929B71DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367704   (914040) от 17.03.2020
-
-VA - не Громкие новинки недели 59 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914040.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.СредиНас - Мёд (5:23)
-2.Say Long feat. Lirity & Lapatin - Вселенная (4:22)
-3.ANIKV feat. Saluki - Меня Не Будет (4:13)
-4.Евгений Путилов - Без Тебя (4:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEE12FE9A6FE2C9A94ADC6CEAF2C0BD7214ACC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367911   (913888) от 17.03.2020
-
-VA - 100 Greatest 60s Classics (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913888.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Zombies - Shes Not There
-002. Martha Reeves & The Vandellas - Dancing In The Street
-003. The Rolling Stones - (I Cant Get No) Satisfaction
-004. The Beatles - She Loves You(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 05:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C4DC187E3F6E9B9B7FAAC57B5B413BE5904319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491120   (913265) от 23.08.2021
-
-VA - Ностальгия 6 NNM-Remix (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Руки Вверх - 18 мне уже (Dj Karas Remix) (6:38)
-02. ТаТу - Я Твоя Не Первая (Fly Dream Remix) (6:19)
-03. Отпетые Мошенники - Люби меня люби (SNEBASTAR Remix) (6:22)
-04. Reflex - Non Stop (Dj Scorpio & Dj Duck Reboot) (4:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51B07F92DC09FAAEB01B74D9FCE7DA724E841C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 865614   (913150) от 02.02.2015
-
-VA - The Official UK Top 40 Singles Chart (01-02-2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почти месяц прошел с момента опубликования предыдущего традиционного UK Singles Chart  - официального хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
-Все изменения (а их достаточно много) по сравнению с прошлым чатом Вы можете посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Mark Ronson Feat Bruno Mars - Uptown Funk  (4:31)
-02. Hozier - Take Me To Church  (4:03)
-03. Fergie - L.A.LOVE (La La)  (3:13)
-04. Meghan Trainor - Lips Are Movin  (3:01)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BC0E81B88055E7BC190927B74A5BC208E501A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1612330   (207289) от 15.02.2023
+
+VA - Romantic Collection. Classic For Love (2001) [OGG Vorbis|480 Kbps] <Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Mauriat-Symphony No. 40 Movement (Mozart)
+02. N. De Angelius-Menuet (Boccherini)
+03. R. Clayderman-Moonlight Sonate (Beethoven)
+04. Ricky King-Aria (Bach)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEBB6915352970F025F990E074D25D6E786DECB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612634   (207212) от 16.02.2023
+
+Radiorama - The Best Of (1989) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chance to Desire
+02. Desire
+03. Hey, Hey (Remix '89)
+04. Flight of Fantasy (Remix '89)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DC0DE168B8785C603D55E7AABD536C21D2BF8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651258   (207157) от 05.08.2023
 
 VA - Discotek 90's (2023) CD, Compilation [MP3|320 Kbps] <Eurodance, Club, Euro House, Technopop>
@@ -685,64 +743,6 @@ SuperShy - Happy Music (2023) [FLAC|24/44.1|tracks|WEB-DL] <Pop, Electropop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A74C5CC906BDE96E3EC966268751A0E669EC661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654803   (205060) от 22.08.2023
-
-Toto Cutugno - Лучшие песни (2011) Серия Новая коллекция [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Litaliano
-02. Solo Noi
-03. Davvero
-04. Innamorati(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BDC60E5F7BC5D3477E4214700D3B069A1B9359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 247403   (204969) от 21.10.2022
-
-Dresden China - Dresden China (1986) 2010 Reissue, Remastered, DWS Records [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steam Roller Introduction
-02. Fire And Rain
-03. Tonight You've Got No Friend
-04. So Young And Wild(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD697BADCECE202F87FD0CD571F581B8BA8699F
 ```
 
 https://mybot314.ru/tekegram_catalog/

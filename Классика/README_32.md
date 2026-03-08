@@ -1,3 +1,32 @@
+###  Публикация: 942183   (453558) от 01.10.2015
+
+Schubert - The Complete Impromptus, Moments Musicaux (Alfred Brendel) (2CDs) (1997) [FLAC|image +.cue]<Classical, Romantic Period, Character Piece, Dance - Classical, Impromptu, Ecossaise>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453558.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 Klavierstcke, D.946
+01. No.1 in E flat minor (Allegro assai) (09:03)
+02. No.2 in E flat (Allegretto) (09:36)
+03. No.3 in C (Allegro) (05:06)(   Читать дальше...   )Жанр: Classical, Romantic Period, Character Piece, Dance - Classical, Impromptu, EcossaiseПродолжительность: 02:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0A29B9840F120BA6253F5FEF00EEE0E4312B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247404   (452643) от 15.09.2018
 
 Chris Snelling - Piano Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
@@ -720,35 +749,6 @@ David Garrett - Explosive (2015) Deluxe Edition [MP3|320 кб/с]<Classical, Cro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD7406012F7635D26B0EC79AC6648120A8270F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062766   (434675) от 16.10.2016
-
-Arianna Savall - Peiwoh (2009) [FLAC|Lossless|tracks + .cue] <Classical, Vocal Music, Chamber Music>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preghiera   (06:34)
-02. El llenguatge dels ocells   (06:16)
-03. Liebes-Lied   (03:10)
-04. She Moved Through The Fair   (03:32)(   Читать дальше...   )Жанр: Classical, Vocal Music, Chamber MusicПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F623ACCF4500821DAF5D9904B9D7B3AFCA3535E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

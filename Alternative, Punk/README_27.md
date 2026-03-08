@@ -1,61 +1,3 @@
-###  Публикация: 1416387   (367496) от 16.10.2020
-
-Fever 333 - Wrong Generation (2020) EP [MP3|320 Kbps] <Rapcore, Hardcore Punk, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 BITE BACK [00:03:10]
-02 BLOCK IS ON FIRE [00:02:16]
-03 WRONG GENERATION [00:02:22]
-04 YOU WANTED A FIGHT [00:02:17](   Читать дальше...   )Жанр: Rapcore, Hardcore Punk, Post-HardcoreПродолжительность: 00:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA23F63960D1EE9A4A8AB2B228804B777C2D250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070697   (366756) от 07.11.2016
-
-Memphis May Fire - This Light I Hold (2016) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of It
-02. Carry On
-03. Wanting More
-04. Sever the Ties(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF09CF95B9C7E6277D18E30621EED028E6FB4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575997   (365431) от 16.11.2012
 
 3 Doors Down - The Greatest Hits (2012) [MP3|320 кб/с]<Alternative Rock,Post-Grunge>
@@ -759,6 +701,64 @@ Low & Behold - Uppers (2015) [OGG| 467-519 кб/с]<Alternative, 80's Darkwave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42F04627B2BF615DA0237AA8A4FB0C29B1D93263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953878   (346607) от 05.11.2015
+
+Celldweller - End of an Empire (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Industrial, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End of an Empire
+02. Heart On
+03. Down to Earth
+04. New Elysium(   Читать дальше...   )Жанр: Industrial, AlternativeПродолжительность: 01:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1627AE27EE688364C5394D2758257FE913CA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257416   (345360) от 26.10.2018
+
+Bullet for My Valentine - Gravity (2018) Deluxe Edition [MP3|320 Kbps] <Melodic Metalcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leap Of Faith
+02. Over It
+03. Letting You Go
+04. Not Dead Yet(   Читать дальше...   )Жанр: Melodic Metalcore, Alternative RockПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7F647FCA53A580B8523B28462B5ABEF6343914
 ```
 
 https://mybot314.ru/tekegram_catalog/

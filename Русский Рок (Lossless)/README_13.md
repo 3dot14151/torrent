@@ -1,90 +1,3 @@
-###  Публикация: 1376817   (856905) от 19.04.2020
-
-Олег Скобля - Крылатый Лев (2004) [FLAC|Lossless|image + .cue] <Christian Rock (Православный рок)>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поиграй в любовь  (5:30)
-02. Музыкант (4:58)
-03. Реквием (5:38)
-04. Содом  (5:28)(   Читать дальше...   )Жанр: Christian Rock (Православный рок)Продолжительность: 01:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:930B2E99B4D2C32CDA172C33110CF766CC8D3F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498568   (855911) от 27.09.2021
-
-Красная плесень - Памяти В.Цоя (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855911.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А может это сон (New Version)
-2. Электричество (New Version)
-3. Уничтожили ночь (New Version)
-4. У кого-то есть... (New Version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:105E9513C735E9CEAFAE8AEE4BA290D0C894AE68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376957   (855064) от 20.04.2020
-
-Nobody.one - Mercy, Please Mercy! (2020) [FLAC|Lossless|tracks] <Instrumental, rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855064.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jaguar [3:05]
-2. Tribe Solder [2:55]
-3. Sombrero [2:52]
-4. Mercy [4:28](   Читать дальше...   )Жанр: Instrumental, rockПродолжительность: 50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B55A6109BF1E5AF4CA47D2F2A411725C506F527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376893   (854590) от 20.04.2020
 
 Френдзона - Не разлей вода (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
@@ -747,6 +660,93 @@ VA - Отражения (Tribute to Каталог) (2016) [FLAC|lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B20BAB5670159215F094D5E6DEA4E62C5E5C3C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501299   (836563) от 09.10.2021
+
+Мураками - Среди акул (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836563.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ласточки
+2. Ошибки
+3. Кепочка
+4. Встречи не будет(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7AAF37DD7FA82D80C15C7B0F15B8D1A1408D542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501298   (836558) от 09.10.2021
+
+Рабфак 2.0 - Живая классика (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836558.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Наш дурдом
+2. Раскачивать лодку
+3. Просрали страну
+4. Хватит кормить Канзас(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43E911FA0B33D68229D14CE04144042235B3551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004677   (836416) от 07.04.2016
+
+Би-2 - #16плюсTour @ Stadium Live (2016) [FLAC|Lossless|image + .cue] <Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не умирать молодым
+02. Темные небеса
+03. Революция
+04. Дурочка(   Читать дальше...   )Жанр: РокПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3851E9D9ED79503A4A93D92CDDD322D9FAA58FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

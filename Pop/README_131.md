@@ -1,3 +1,61 @@
+###  Публикация: 1225417   (660763) от 15.05.2018
+
+Syreeta - The Essential (2001) Compilation [FLAC|Lossless|image + .cue] <Soul, Disco, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660763.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Spinnin & Spinnin'
+2	Your Kiss Is Sweet
+3	Harmour Love
+4	Come And Get This Stuff(   Читать дальше...   )Жанр: Soul, Disco, FunkПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC0C0C612AE0771C1521E0FC67C8443D918608C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902899   (660224) от 29.05.2015
+
+HOLYCHILD - The Shape of Brat Pop To Come (2015) [OGG|522-579 кб/с]<Alternative Pop, Brat Pop, Electronic, Indietronica>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barbie Nation (03:20)
+02. Nasty Girls (03:15)
+03. Happy With Me (02:48)
+04. Tell Me How It Is (03:12)(   Читать дальше...   )Жанр: Alternative Pop, Brat Pop, Electronic, IndietronicaПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDB4285CA4E76659322316D619FC76DC7FDA1B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902875   (660219) от 29.05.2015
 
 French Horn Rebellion - Next Jack Swing pt.I (2014) [MP3|320 кб/с]<Alternative Dance, Nu Disco, Electropop>
@@ -695,64 +753,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A22FBFFA7D433E744E25FB1A2A26BD03B301222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539767   (656118) от 27.03.2022
-
-VA - The 80s (2022) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656118.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fleetwood Mac - Everywhere (2018 Remaster) (3:43)
-002. Joy Division - Love Will Tear Us Apart (3:24)
-003. The Smiths - This Charming Man (2011 Remaster) (2:42)
-004. a-ha - Take On Me (3:49)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4111D10955AE143BD6B33B4DFE9DAC3F720A7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539645   (656116) от 27.03.2022
-
-Scotch - Disco Collection (2003) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Band
-02. Take Me Up
-03. Mirage
-04. Money Runner(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C9CD34C302C4BDB418B96F76D47F63DC687863
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1038435   (604756) от 29.07.2016
+
+Danzi - Der Berggeist, Oder Schicksal und Treue (2013) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франц Игнац Данци (1763—1826).
+«Горный дух, или Судьба и верность», романтическая опера в двух действиях (перв. исп. 1813).
+01—09. Увертюра и Действие I [41:33].
+10—21. Действие II [35:57].(   Читать дальше...   )Жанр: Classical, liveПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616728C9DE0C66BAAF390C57C64F92A1AA6AD3C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148160   (604203) от 05.07.2017
 
 Wolfgang Amadeus Mozart - Le Nozze di Figaro - (Безумный день, или Женитьба Фигаро) (2003)(2CD) [FLAC|Lossless|image + .cue] <Opera, Classical>
@@ -719,35 +748,6 @@ New London Chorale - The Young Puccini (A Tom Parker Project) (1991) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93570C806848040ECB97E77F1AEEC0BE94CD7A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039894   (593473) от 03.08.2016
-
-Salvatore Accardo, Orchestra da Camera Italiana - Vivaldi: The Four Seasons / Baroque Music (1995) Compilation, Promo, Reissue [APE|Lossless|image + .cue] <Classical, Baroque>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Primavera - Allegro    03:57
-02. La Primavera - Largo e pianissimo sempre    02:44
-03. La Primavera - Allegro - Danza pastorale    04:33
-04. L'estate - Allegro non molto    05:39(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2E8A51AFAEB99DB8CD78400BCE190A57510AD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

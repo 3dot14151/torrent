@@ -1,3 +1,32 @@
+###  Публикация: 939386   (476032) от 21.09.2015
+
+Thomas Chapin - I've Got Your Number (1993) /Arabesque Jazz/[APE|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I've Got Your Number [05:48]
+02.Drinkin' [07:42]
+03.Time Waits [07:34]
+04.Moon Ray [07:47](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0F2FC70027442B987A168B85825F33C64CE8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546340   (475892) от 14.09.2012
 
 VA - Acoustic Audiophile Voices (2004) [FLAC|Lossless]<Vocal jazz>
@@ -722,35 +751,6 @@ Gil Evans Orchestra - Giants Of Jazz (1957-1959) /1994, Giants Of Jazz/[FLAC|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBFAA201AE3F9474A57DE324613ABFD3A1C62627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940102   (471630) от 23.09.2015
-
-Shelly Manne and His Men - Septet and Quintet Sessions 1951-1958 (2008) (3CDs) [FLAC|tracks+.cue]<Jazz, Bebop, West coast jazz, Third Stream, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moose The Mooche (7:28)
-02. Pint Of Blues (9:54)
-03. Quartet - Part I (3:17)
-04. Quartet - Part II (4:49)(   Читать дальше...   )Жанр: Jazz, Bebop, West Coast Jazz, Third Stream, FusionПродолжительность: 03:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4945F123815B18B97F4B00A2C80CD646E609AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

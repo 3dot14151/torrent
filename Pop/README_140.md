@@ -1,3 +1,61 @@
+###  Публикация: 907623   (638191) от 12.06.2015
+
+Nate Ruess - Grand Romantic (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grand Romantic (Intro) (0:42)
+2. AhHa (4:23)
+3. Nothing Without Love (3:56)
+4. Take It Back (4:23)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DD3CD62BC93AEA8CD476307BAC26C013BE5BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033448   (638138) от 11.07.2016
+
+VA - The Best Ever: Summer (2016) [MP3|320 Kbps] <Disco, Pop, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icona Pop feat. Charli XCX – I Love It 02:34
+02. Rudimental feat. John Newman – Feel The Love 03:37
+03. B.O.B – So Good 03:29
+04. CeeLo Green – Forget You 03:41(   Читать дальше...   )Жанр: Disco, Pop, RnBПродолжительность: 01:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8298CB61C08C0712E7DC532819273D246C3BE64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907579   (637987) от 12.06.2015
 
 Hilary Duff - Breathe In. Breathe Out. (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
@@ -699,64 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81F9F09ED4F428A61B520967AA19837F366A8831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033796   (636129) от 12.07.2016
-
-VA - Woman In Love (1983) Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Brown - Stop
-02. Elaine Page & Barbara Dickson - I Know Him So Well
-03. Terence Trent D'Arby - Suddenly You Crossed My Heart
-04. Timmy T. - One More Try(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303D992444B9037C155D971212A103EB284CDD04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907897   (636052) от 13.06.2015
-
-Jenni Vartiainen - 3 альбома (2007-2014) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2007 - Ihmisten Edessa
-2010 - Seili
-2013 - Terra (Platinum Edition)Жанр: PopПродолжительность: 02:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3170E703BA0C2A039240478855862657C266EFE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

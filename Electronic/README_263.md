@@ -1,3 +1,58 @@
+###  Публикация: 1237254   (553278) от 22.07.2018
+
+Gayalaxy - Ashes of Time (2018) Astropilot Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashes of Time (11:50)
+02. Hang on the Moon (10:21)
+03. Duduk Spell (10:18)
+04. Gayalaxy & Joyfull Natives – Triskel Gateway (06:56)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E062F005F057234CC24170575188C842A31C6F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 709850   (553200) от 22.07.2018
+
+Woulg - Discography 15 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks]<IDM, Glitch, Experimental, Abstract, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Did You Think Would Happen? (04:03)Жанр: IDM/ElectroПродолжительность: 00:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F693A07CDC11FD160E2758EA3A93FBC74F4093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046156   (553130) от 26.08.2016
 
 VA - MOMENTS - Chill-Out & Lounge Series, Vol. 4 (2014) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -690,64 +745,6 @@ VA - Ice Cream Sampler Vol.2 (2016) [MP3|320 Kbps] <House, Nu-Disco, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC67100EC866F79A86933FCA65426C54B5FCDD55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046500   (552122) от 27.08.2016
-
-VA - Dream City Lounge, Vol. 1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panorama - Fantastic Road (Original Mix) (5:48)
-02. The Circle - In the Black Money (Original Mix) (5:33)
-03. SPA - Come to Love (Original Mix) (4:54)
-04. Mossignor - Il Mostro (Chillout Mix) (5:09)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC944819438DB66CB425F15112186BB0A1277546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046503   (552117) от 27.08.2016
-
-VA - Dream City Lounge, Vol. 4 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo & Roby Ruini - La Suite - Original Mix [05:26]
-02. Michel Haimann - Rain - Original Mix [03:15]
-03. W Ensemble - Contento - Original Mix [05:13]
-04. Re Vera - Pensiero Leggero - Original Mix [03:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D66125B322C66317FE95DFAD16E189EBBFAFC22
 ```
 
 https://mybot314.ru/tekegram_catalog/

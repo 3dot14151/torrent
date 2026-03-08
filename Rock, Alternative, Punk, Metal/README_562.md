@@ -1,32 +1,3 @@
-###  Публикация: 1562568   (507321) от 11.07.2022
-
-Duster 69 - With Best Regards (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507321.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Remember
-2. Oppose
-3. Upcoming
-4. 50 Miles(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DDEC2A274284A604E21320585B43A2B807841A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932967   (507259) от 31.08.2015
 
 Epidemic - The Truth Of What Will Be (1989) [APE|image +.cue]<Death Metal / Thrash Metal>
@@ -746,6 +717,41 @@ Weedsnake - Cannabinoide (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Doo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:982A23386ED9212041C34ECA7201990DFAC7C95E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539631   (506742) от 26.08.2012
+
+VA - Good Rockin' Tonight: The Legacy of Sun Records (2001) [MP3|320 кб/с]<rock & roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506742.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. That's All Right Mama - Paul McCartney
+2. Mystery Train - Jeff Beck & Chrissie Hynde
+3. My Bucket's Got a Hole in It - Jimmy Page & Robert Plant
+4. Blue Suede Shoes - Johnny Hallyday
+5. Whole Lotta Shakin' Goin' On - Elton John
+6. Blue Moon of Kentucky - Tom Petty
+7. Sitting on Top of the World - Van Morrison & Carl Perkins
+8. Don't Be Cruel - Brian Ferry
+9. Red Cadillac and a Black Moustache - Bob Dylan
+10. Walkin' in the Rain - Eric Clapton(   Читать дальше...   )Жанр: rock & rollПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66A45BB7824940B3B7DBDCD99F8746877788CD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

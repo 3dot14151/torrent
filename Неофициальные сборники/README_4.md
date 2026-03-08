@@ -1,3 +1,177 @@
+###  Публикация: 1845263   (1050706) от 31.12.2025
+
+Ai - Inspired Blues & Soul Songs Part 2 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1050706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Two Minutes at the Window
+02 - Let’s Make it Right
+03 - Signed With a Kiss
+04 - Whisper My Name(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 01:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C2E8B1D41557EB60DA662ED463F5510F129DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845298   (1050702) от 31.12.2025
+
+VA - Свежий Русский Хит от ALEXnROCK часть 19 (2025) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1050702.jpg" />
+</div>
+
+
+###  Подробнее
+
+С интересом наблюдаю, как в умах и сердцах просыпается Родина и отечественные музыканты меняют вектор развития творчества. Постепенно уходя от подражательства новодельной западной шляпы и всякой навязанной чуши, вроде мямлей и блеяния. Ищут и вырабатывают именно наш стиль и звучание. И это в масштабах всей страны. Много ерунды конечно творят, не без этого. Но как (   Читать дальше...   )01. Валя Карнавал - Мы в клуб
+02. R.Riccardo & Nabolelo - Зима пришла
+03. Григорий Лепс - Рок-н-ролл в кармане
+04. Элвин Грей & Скани - Письма(   Читать дальше...   )Жанр: PopПродолжительность: 03:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B44FC8727A10CC14D1B11D3D1B91F542E0CFE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845400   (1050657) от 31.12.2025
+
+VA - Beat, Bass, Melody vol.4 (mixed by Dj V) (2025) [MP3|320 Kbps] <Euro Trance, Hardgroove, Hyper Pop, Mainstage>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1050657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Pickle - Dragostea Din Tei (Original Mix)
+02-Lammer - Diamonds (EuroTrance Mix)
+03-Lady Gaga - Bad Romance (Chromedodied)
+04-Ollie Lishman - Move It (Original Mix)(   Читать дальше...   )Жанр: Euro Trance, Hardgroove, Hyper Pop, MainstageПродолжительность: 01:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6013BF96D0AC57F5EDFBD9C95A20AA5069E16998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845219   (1050654) от 31.12.2025
+
+Ai - Inspired  Blues & Soul Songs Part 1 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1050654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - God in the Groove
+02 - Used to Be
+03 - She Knows Your Name
+04 - Ain’t No Love Like Mine(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 01:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F20186E045D7E44D5796AB74C1690543E5FC73F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844414   (1050427) от 28.12.2025
+
+Frezee - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz, Chillout, Female Vocal, Other>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мечты
+02 - Новый Карабас
+03 - Майские Грозы
+04 - Зефир(   Читать дальше...   )Жанр: Swing Jazz, Nu Jazz, Chillout, Female Vocal, OtherПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D6D6446B20058579C4555E803A3497C55DA9DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844460   (1050426) от 28.12.2025
+
+AI - Russian Covers Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Я Замерзаю (Nada - San Remo 1969)
+02 - Падам Падам   (Русский Кавер)
+03 - The Last of Us Take on Me (Русский Кавер)
+04 - Песня О Погоде(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ACF12F338525BEEB239283734B7F32B1372395B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844676   (1050423) от 28.12.2025
 
 VA - Blues compilation part 1  Blues (2025) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -571,180 +745,6 @@ Dakota Lane - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC503CB1DDEC65ED3066B6DC171B7794B30FA943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843695   (1049546) от 21.12.2025
-
-Dakota Lane - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Crying in the Night
-02 - You Wrote My Life
-03 - In 100 Years
-04 - Samba, Sweet Elena (Samba Mix)(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B4316D071419B0598D377D3010BAFCDF2B514F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843691   (1049545) от 21.12.2025
-
-Dakota Lane - Favorites Collection part 3 country music (2025) [MP3|320 Kbps] <country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Yeehaw Shenanigans
-02 - Country Nights Alive
-03 - Backroads and Memories
-04 - Hometown Heartbeat(   Читать дальше...   )Жанр: country, AiПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28299F1CA52927CCAA0E2FA0534F23AE2374E62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843303   (1049544) от 21.12.2025
-
-Marius - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Deep Chill House, Ai>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sunset Dance
-02 - Within the Dream (Version)
-03 - Sensual Flare Dub
-04 - A Silent Language We Both Know(   Читать дальше...   )Жанр: Deep Chill House, AiПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558A2D177A145055A93483506096AAB834A02DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843301   (1049543) от 21.12.2025
-
-Marius - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Reggae, Ai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Time of My Life
-02 - The Present of the Past Dub (Version)
-03 - Sensual Flare Dub (Version)
-04 - Tease Me Even More(   Читать дальше...   )Жанр: Reggae, AiПродолжительность: 00:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BCBC25CBCCF7DBABBF5BCDAEC9C8CBB04322EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843298   (1049542) от 21.12.2025
-
-VA - No name compilation part 29 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dj Calma - Hold Me Closer
-02 - Kasimoff - Missed Call
-03 - Mr Salama - Feel Your Love
-04 - Adex - Low Battery(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6B756B1FE1A86B0805252099E9C2C74A7EF54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843294   (1049541) от 21.12.2025
-
-VA - No name compilation part 30 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ai - Library of Muses
-02 - Marius Feat. the Amazing Ai Machine - Sunset Dance
-03 - Diazza - If You Love
-04 - Hande Ercel - Lightning(   Читать дальше...   )Жанр: Electronic, Vocal, Other, AiПродолжительность: 02:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D40338742392252985BEDB68BA409B956FA2CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

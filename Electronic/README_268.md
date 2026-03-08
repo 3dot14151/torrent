@@ -1,3 +1,61 @@
+###  Публикация: 1310386   (547015) от 24.06.2019
+
+Xoki - Specular (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Ambient, Dub Techno, Abstract>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frame (01:20)
+ 02. Pneuma (33:33)
+ 03. Liquid (02:02)
+ 04. Crystalline (17:54)(   Читать дальше...   )Жанр: Ambient, Dub Techno, AbstractПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24EC0914A6D0583287DBE3AEC6DED1035D8999CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310517   (546959) от 24.06.2019
+
+VA - A State Of Trance Festival 900 (IEC, Kyiv) (2019-06-22)[MP3|192 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armin van Buuren
+01 Armin van Buuren & Shapov – La Resistance De L’Amour
+02 Cosmic Gate – Come With Me
+03 Armin Van Buuren & Vini Vivi & Hilight Tribe vs. Orjan Nilsen – Great Spirit vs. Wait 4 It (Armin van Buuren Mashup)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B3FEC52A3891C0410C01FEBD39BCB23DE142B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310511   (546891) от 24.06.2019
 
 Patience - Dizzy Spells (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop,  Synth-pop>
@@ -687,64 +745,6 @@ The American Dollar - You're Listening (2018) Yesh Music [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A9A5BFC375D1E7E614A7962FC46DB17D3E9F672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238789   (544655) от 01.08.2018
-
-Aly & Fila - Quiet Storm (Extended Versions) (2013) [FLAC|Lossless|tracks] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila ft. Chris Jones - Running Out Of Time (Original Mix)
-02. Aly & Fila ft. Sue McLaren - Mysteries Unfold (Extended Mix)
-03. Aly & Fila ft. Tricia McTeague - Speed Of Sound (Album Extended Mix)
-04. Aly & Fila vs Arctic Moon - Daydreaming (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2B8209ECE1C66F0741F18BB6B8784F1E4076DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048871   (544630) от 04.09.2016
-
-Skye & Ross (from Morcheeba) - Skye | Ross (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Repay The Saviour (2:12)
-02. Light Of Gold (3:35)
-03. All My Days (4:32)
-04. How To Fly (3:15)(   Читать дальше...   )Жанр: Electronic, Alternative, Trip Hop, Downtempo, Southern Soul, Swamp BluesПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB263AA8D81D7E10E6131EF5EC641598413EA7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1261385   (303436) от 11.11.2018
+
+VA - Record Super Chart 561 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fisher - Losing It 4:08
+02. Gaulin - Moonlight 2:54
+03. Rompasso - Ignis 3:32
+04. Summer Cem - Tamam Tamam 2:27(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2670A6EAE1FAAF9FCB4B84D4AF8BAAFA2853EB88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333458   (303423) от 25.10.2019
+
+VA - Ultimate Synthpop Anthems (2019) [MP3|320 Kbps] <Syntpop, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303423.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Korgis - Everybody's Got To Learn Sometime
+002. Like Wolves In The Night - Too Young To Care
+003. New Order - Blue Monday '88
+004. Vicious Pink - Cccan't You See(   Читать дальше...   )Жанр: Syntpop, ElectronicПродолжительность: 09:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7AB859A2B00F1E2F06FC2AD6C049B0E9AEC16B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261393   (303402) от 11.11.2018
+
+VA - Best Of Dance (2018) [MP3|320 Kbps] <EuroHouse, Eurobeat, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 89ers - Words 3:27
+02. Milky - Be My World 3:46
+03. Andrea Montorsi - History (2001 Remix) 3:50
+04. Ian Van Dahl - Will I 6:25(   Читать дальше...   )Жанр: EuroHouse, Eurobeat, DanceПродолжительность: 05:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52529B5B528AB1FB23C4F5C4DF6FCD0FB67E4E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333269   (303382) от 25.10.2019
+
+VA - Dont Stop The Music: New Disco Party (2019) [MP3|320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303382.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stephane Deschezeaux - The Party (Original Mix)
+002. Boogie Freaks - Don't Let Go (Original Mix)
+003. Rayko - Joice
+004. Solitario - Magic Carillon (Goodbye)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 12:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9C0F7E925372E5EEC8755A07CB743E56A3E33C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184194   (303327) от 16.11.2017
+
+VA - Best of Deep House. Volume 9. Shake it Baby [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep House, Funky House, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hotmood - Disco Flava (Felipe Gordon remix) [5:37]
+02. Doc Daneeka - Stay Away From Music [8:09]
+03. Soultronic - You & I [6:11]
+04. Denise Montana & Goody Goody - Nr 1 Dee Jay (Pagany Back 2 Disco mix) [7:12](   Читать дальше...   )Жанр: Deep House, Funky House, Disco HouseПродолжительность: 03:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA5847F879562D525C077C27489A8FC33218007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333462   (303291) от 25.10.2019
+
+VA - Exotic Of Disco: The Best Of Summer (2019) [MP3|320 Kbps] <Disco, Eurodisco, Italodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303291.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Franz Matthews - Tutan Jamon
+002. Boogie Freaks - What's Up (Original Mix)
+003. Hot Streak - Body Work (Vocal Mix)
+004. Sidwho - Violet Run(   Читать дальше...   )Жанр: Disco, Eurodisco, ItalodiscoПродолжительность: 10:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AE5CB5AFB4B4D4323AB1DCF893D21DDAD1E8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333358   (303288) от 25.10.2019
 
 VA - Осенняя свежая 30-тка Vol 3 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -572,180 +746,6 @@ P.S Если кто то знает еще клевые вещи в стиле �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86049CC21589C119E69F367BC77B6515DFB9092B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078194   (300706) от 01.12.2016
-
-VA - Best of Hits Touch Sound (2016) [MP3|262-320 Kbps] <Tropical, Synthpop, Nu Disco, Vocal, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starmain - Gravity (Cosmicspace Radio Edit) 04:24
-02. Fais And Afrojack - Used To Have It All 03:18
-03. Lady Bee Ft Grace Tither - Homeless Heart (Tank And Cheetah Remix) 04:24
-04. Francesco Rossi Feat. Ozark Henry - Godspeed You (Charming Horses Edit) 03:18(   Читать дальше...   )Жанр: Tropical, Synthpop, Nu Disco, Vocal, Indie DanceПродолжительность: 02:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC3BB41425D6BA568E52D2CAFBA26896C332E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078632   (300705) от 01.12.2016
-
-VA - Armand Van Helden - Best275z (1995 - 2016) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Funk Phenomena (Edit) 04:04
-02 Play The World 07:54
-03 Ultrafunkula 05:40
-04 04 You Don't Know Me (feat. Duane Harden)Жанр: HouseПродолжительность: 04:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7DC87C4CA35C96F51EED7677C228AF92975D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078341   (300686) от 01.12.2016
-
-VA - Perfect Strangers: Deep Chilled House (2016) [MP3|320 Kbps] <Deep House, Chilled House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300686.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sam Feldt ft. Lucas & Steve - Summer On You (feat Wulf) 2:40
-002. Mathias D - Stop Being Naive (Original Mix) 6:22
-003. Chiffre 100 - Backshore 6:49
-004. Kungs - Don't You Know (feat Jamie N Commons) 3:05(   Читать дальше...   )Жанр: Deep House, Chilled HouseПродолжительность: 09:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00FD7F6989BF44736DA36C2A7C5D482C3C7629AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078054   (300517) от 01.12.2016
-
-VA - November Planet Pop (2016) [MP3|192~320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300517.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Black Eyed Peas - Pump It 3:34
-002. Lost Kings ft Emily Warren - Phone Down 3:35
-003. Olivia O Brien - Find What You Are Looking For 3:07
-004. Sia - Elastic Heart (Piano Version) 4:10(   Читать дальше...   )Жанр: PopПродолжительность: 07:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39B8960573BA1CBBA2E6858997C5CA70D922D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078170   (300153) от 01.12.2016
-
-VA - Panama Sky: Chillout Relax Mix (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300153.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Domestic Sol - Autumn Eyes (Cool Midnight Suite Mix) 4:41
-002. CJ RcM - Every Night in Almaty 3:25
-003. Ted Mitch - Everybody's Talking 4:17
-004. Van - Rain Bue Sayrosa 6:39(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200BE593D344BE3D218DC2C9479E5DBEE69951BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423468   (300092) от 13.11.2020
-
-Leæther Strip - Introspective & Aggressive Dark Electro-Industrial (The best) (2009-2018) Compilation Album [MP3|320 Kbps] <Industrial, EBM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost Too Much
-02. Anal Staircase
-03. Battle Mind
-04. Beat My Guest(   Читать дальше...   )Жанр: Industrial, EBMПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3DE31427340ED73453DB74FEE83AB163A9C900
 ```
 
 https://mybot314.ru/tekegram_catalog/

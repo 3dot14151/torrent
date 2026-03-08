@@ -1,3 +1,32 @@
+###  Публикация: 1075865   (314227) от 25.11.2016
+
+VA - Xmas Jukebox 2016 (2016) [MP3|320 Kbps] <Soundtracks>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Luciano - Stronger [00:04:18]
+02. Young 13izz - Floi Oi [00:03:52]
+03. DJ Luciano - By Your Side [00:04:53]
+04. Djkam - Higher [00:03:41](   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5C48070B7CB8E4258784C7DFDB7A330C3FAFC36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260255   (314222) от 06.11.2018
 
 VA - For Women vol. 1-3 (2014-2016) [MP3|320 Kbps] <Ambient, Electronic, Instrumental, New Age>
@@ -728,35 +757,6 @@ VA - 50 Awaited Peace of Mind: Music for Meditation (2016) [MP3|320 Kbps] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D75A449D24B5DD4F55C5B3472FA3A055FCABD754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332832   (308806) от 22.10.2019
-
-Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah Schachner - Modern Warfare Main Theme (03:26)
-02. Sarah Schachner - Piccadilly Circus (05:16)
-03. Sarah Schachner - Going Dark (03:23)
-04. Sarah Schachner - Highway (06:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D417652B9660B10B1C04C8A3DEE412FB0549DBCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 911782   (614086) от 24.06.2015
-
-Юта - Лучшие песни (2009) [FLAC|image+.cue]<Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хмель и солод
-02. Одинокое шоссе
-03. Имя
-04. Сигнал(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DB59CFD3079784FF9641A85366847D74364130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912033   (614012) от 24.06.2015
 
 Чайф - 30 лет. Рожденный в Свердловске (2015) 2CD [FLAC|Lossless]<Rock>
@@ -757,6 +728,35 @@ Scorpions - The Best Of (1994) Unofficial Release [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B088B80AE7777EA5E83588B48E72D7B3F650770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545478   (613177) от 20.04.2022
+
+Nocturnal Alliance - Death Among Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rise (00:10:24)
+02 - Dancing In The Dark (00:10:10)
+03 - Sea Of Wolves (00:09:17)
+04 - Healer (00:09:47)(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB2135DC13742B1BCA2DFC7B367171F7C3A93C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

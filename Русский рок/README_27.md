@@ -1,32 +1,3 @@
-###  Публикация: 1118914   (811489) от 26.03.2017
-
-VA - Охота 72 (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Скворцы Степанова - Ж*па 2.0
-02. Свободный полёт/Павел Пиковский - Не ждал
-03. CL.EVER - Стены
-04. Fast-mo - Beat(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFB46F139D40BC426F0A3EA324A9DA9B41E98AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 883789   (811041) от 01.04.2015
 
 Jane Air - Чёрная гавань (2015) [MP3|320 кб/с]<Alternative Rock>
@@ -732,6 +703,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01E2DC84687DB09D5E663806C37AD289E0FA3B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385134   (800342) от 23.05.2020
+
+666 - Мясо с кровью (2020) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800342.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пули в тело - деньги в дело
+2. Летучие мыши
+3. Под прицелом
+4. Ад(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600D27C868143ECCB1CF5F78C7486D808F9BB513
 ```
 
 https://mybot314.ru/tekegram_catalog/

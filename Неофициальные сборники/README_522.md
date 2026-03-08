@@ -1,3 +1,177 @@
+###  Публикация: 1186308   (287961) от 24.11.2017
+
+VA - По волне моей памяти 2: Том7 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Самоцветы  -  Олимпиада-80 6:04
+02.  Лейся песня  -  Я так и знал 3:24
+03.  Земляне  -  Маленький кораблик 5:03
+04.  Синяя птица  -  До свадьбы заживет 4:34(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079DE5950E1B0F5312466EB33E5BA8FFFC88D5C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186205   (287959) от 24.11.2017
+
+VA - По волне моей памяти 2: Том5 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Наутилус Помпилиус  -  Взгляд с экрана 4:26
+02.  Здравствуй, песня  -  Старый костёр 4:16
+03.  Ансамбль 'Фестиваль'  -  Мой друг-художник и поэт 5:39
+04.  ВИА 'Музыка'  -  Там далеко-далеко 3:20(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C9A48D3B320DE912D0A7DAE6DC9FBA56545BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335354   (287878) от 02.11.2019
+
+VA - German Top 100 Single Charts 01.11.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Apache 207 - Roller
+03. Apache 207 - Wieso tust Du dir das an?
+04. Apache 207 - 200 km/h(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAA8B24EEB2C2E401E77B907AA4A080805DC189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263386   (287814) от 19.11.2018
+
+VA - Jazz Symphonic (2018) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287814.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Steven Taetz Feat. Sonia Johnson - Meet in Montreal
+002. Annabel - Circles
+003. Pete Beardsworth - To The Place
+004. Richard Spaven - Spin(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 10:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55AA10FDA28F5B75E4647E55006E4B2B9E3E32D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263495   (287796) от 19.11.2018
+
+VA - The Landscape Of Pleasure (2018) [MP3|320 Kbps] <Ambient, Downtempo, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287796.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Relaxraum - Cascaya
+002. Stergios - Regeneration (Piano Mix)
+003. Jean Hoyoux - Troisieme Hymne
+004. Ladamar - Meunwa (Radio Edit)(   Читать дальше...   )Жанр: Ambient, Downtempo, InstrumentalПродолжительность: 10:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E06AC083FF9773FEF467209934E1798E245DA3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263415   (287634) от 19.11.2018
+
+VA - Mastermix Pro House: Cool Dance Hit (2018) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287634.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christian Monique - Wind Of Passion
+002. Carlprit Ft. Edwan - My Kind Of Trouble (Radio Edit)
+003. Beatghosts - Spell (Radio Mix)
+004. Beckers - Radiation (Original Mix)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD59856E3898A4A16C087FA0C0AC84BD6F36D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262924   (287621) от 19.11.2018
 
 VA - Options Remake Of Tracks November -B- (2018) [MP3|320 Kbps] <House>
@@ -563,180 +737,6 @@ VA - Club Hits Special Authors (2016) [MP3|320 Kbps] <House, Electro, Hands Up, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11334AD60C9480790CD730358D723D4B648B0479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080671   (286632) от 08.12.2016
-
-VA - Осенняя дискотека по-русски. Выпуск 7 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286632.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Алла Пугачева - Не Звони 2:46
-002.Трио S Klass - Леди Вамп 4:28
-003.Пицца - Назад 3:49
-004.Avers-Djs Feat. Alexandria - Я Улетаю 3:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67540C716631CD49E71776F89FC1C669A6C3A1A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080710   (286566) от 08.12.2016
-
-VA - Русские Свежаки Радиостанций (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286566.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Слайд - Ближе И Ближе 3:31
-002.Дана Соколова - Разведи Небо 3:10
-003.Dj Jedy Feat. Личи - Пепел И Клавиши 3:16
-004.Мулат - Включила Заднюю 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D76E71AC60EB69E8BE112C98C4BB9AE60FA5869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080749   (286565) от 08.12.2016
-
-VA - Музыкальные Новинки 50x50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Alex Clare - Get Real 3:00
-002.Mainstream One - Пьяная 2:53
-003.Bruno Mars - Finesse 3:11
-004.Dnce - Doctor You 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1EBEF12EFE1FDBA301BEC06C6F26E7950941002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080838   (286564) от 08.12.2016
-
-VA - Сотка модных хитов. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286564.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Пропаганда - Забываю 3:25
-002.Marina And The Diamonds - Forget 4:10
-003.Джокеры - Параллели 3:40
-004.Kristina Si - Не Обижай Меня 3:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C489C7740B82719F6B111B2533731FEEF1E5FD10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080979   (286556) от 08.12.2016
-
-VA - Traxsource Top 100 November (2016) [MP3|320 Kbps] <Afro House, Minimal, Soulful, UK Jackin, Indie Dance, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286556.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Full Intention - Keep Pushing 6:27
-002. Kevin McKay - The Oooh Song (Original Mix) 5:30
-003. Kisch, Leela D - Love All Day (Extended Mix) 5:13
-004. 3 Winans Brothers feat Karen Clark Sheard - I Choose You (Louie Vega Chosen Dub) 8:47(   Читать дальше...   )Жанр: Afro House, Minimal, Soulful, UK Jackin, Indie Dance, Nu DiscoПродолжительность: 11:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084300E0CC0A4C90DA9B56046B9D549EFD78A59B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263644   (286467) от 20.11.2018
-
-VA - German Top 50 Party Schlager Charts 19.11.2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michelle feat. Matthias Reim - Nicht Verdient
-02. Maite Kelly - Die Liebe Siegt Sowieso
-03. Andrea Berg - Ja Ich Will
-04. De Lancaster - Rosenzeit (feat. Kay Dörfel)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D2D57150C484E8E719A626E1619321E725C1FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

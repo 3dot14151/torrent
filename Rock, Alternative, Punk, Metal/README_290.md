@@ -1,32 +1,3 @@
-###  Публикация: 1509425   (794897) от 12.11.2021
-
-Screaming Shadows - Legacy Of Stone (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Me
-02. Heaven Or Hell
-03. Crimes With No Name
-04. Love And Hate(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF078A73AC316BC3672CA9FCF8124527C142EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509345   (794891) от 12.11.2021
 
 LASCALA - ECUADOR (2021) [MP3|320 Kbps] <Alternative>
@@ -748,6 +719,35 @@ Der W - IV (2016) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24DC1EABE66F3F1FF9897F79132EA22369560FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201202   (794021) от 23.01.2018
+
+Kreolis - Театр Вампиров (2018) [MP3|320 Kbps] <Metal Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами проект группы KreoliS – метал-опера «Театр Вампиров», написанная по мотивам романа писательницы Энн Райс «Интервью с вампиром», также широко известному своей экранизацией 1994 года. Это драматическая история, затрагивающая самые волнительные струны души  каждого из нас - поиски себя, поиски истины, возможность сделать выбор, способный круто изменить всю (   Читать дальше...   )01. Пролог
+02. Проклятие
+03. Таинство древнего мира
+04. Последний рассвет(   Читать дальше...   )Жанр: Metal OperaПродолжительность: 01:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A31DA2D307FF2BD8B63EA320A09896B56104722
 ```
 
 https://mybot314.ru/tekegram_catalog/

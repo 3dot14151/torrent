@@ -1,3 +1,61 @@
+###  Публикация: 1041966   (580458) от 11.08.2016
+
+Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1993 - 1999
+2007 - In London
+2011 - From The Beginning(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 02:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1D044395DE80D5D7C712430D2CFDDD5C91CD1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042223   (580429) от 11.08.2016
+
+VA - Armada Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cedric Gervais - With You (Remix) (feat. Jack Wilby)
+02. Two Friends - Forever (feat. Ktpearl)
+03. Armin van Buuren - Freefall (feat. BullySongs)
+04. Patrick Baker - Call Me Up(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 02:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9385871F0D3418150A9C5B7D4BCE3D8EF666599A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042079   (580423) от 11.08.2016
 
 V.A. - Cafe del Mar XXII (Volumen Vientidos) (2016) 2CD [FLAC|Lossless|tracks + .cue] <Downtempo, Chillout, Lounge>
@@ -682,64 +740,6 @@ Asger Kudahl - Sketches For Revolution (2018) Resonans [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4D92E91F35FB5514AF7188F6B10ADE7DC477777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233660   (578179) от 01.07.2018
-
-MRUKS - Deja Vu (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MRUKS - Market
-02. MRUKS - Desert Fire
-03. SKURM - bass_ (MRUKS Remix)
-04. MRUKS & SKURM - Tnevda (Businka mix)(   Читать дальше...   )Жанр: Funky/Club House/RetrowaveПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E66936D1F9B0D7C0B2618C349B60D06125453B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150855   (578136) от 16.07.2017
-
-VA - The Body You Need For Summer 2017: Workout Edition [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xort Base - Mealst
-02. Xenias - Slutty
-03. Wunkeris - Guru
-04. Walo Pils - Ripped(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 06:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32248BFBCD2C7008EE2DFCFC43B088CB8CE6E7E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

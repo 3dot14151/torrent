@@ -1,3 +1,119 @@
+###  Публикация: 1671324   (171343) от 24.10.2023
+
+VA - Music News vol.309 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171343.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anitta - Mil Veces (02:34)
+ 002. Adriana Minune feat. Karmen & Adrian Minune Jr. - Mama, Spune-mi (03:26)
+ 003. Aexcit feat. Kalkovich - Ladadadida (02:10)
+ 004. ALLERGIA - Доволен (02:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43C896963F82803BE73DC64E320F0EEC3E3BA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671893   (170969) от 26.10.2023
+
+VA - Sensual Sexy Songs (2023) [MP3|320 Kbps] <Pop, R&b, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. zandros - obsessed (3:00)
+02. Ashlee - Alone With You (3:16)
+03. Lolo Zouaï - Desert Rose (4:24)
+04. Omido - Toxic (2:39)(   Читать дальше...   )Жанр: Pop, R&b, OtherПродолжительность: 03:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3249B3D453183D107A7B8D9B4FA098B8514EB04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514821   (170890) от 05.12.2021
+
+VA - Shazam Хит-парад World Top 200 Ноябрь (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170890.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ACRAZE, Cherish - Do It To It (2:37)
+002. Elton John, Dua Lipa, PNAU - Cold Heart (3:22)
+003. Akon - Bananza (Belly Dancer) (3:58)
+004. GAYLE - abcdefu (2:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D197E005DC158CE50E4161821F0BC54627C7FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515394   (170382) от 06.12.2021
+
+VA - You & Me (2021) [MP3|320 Kbps] <Pop,Folk, Indie, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170382.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Local Natives - You & I (4:21)
+002. The Kooks - Westside (3:30)
+003. Kings of Leon - On Call (3:21)
+004. Craft Spells - Komorebi (4:23)(   Читать дальше...   )Жанр: Pop,Folk, Indie, OtherПродолжительность: 06:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84A547B8FA2AB7B7D9B7524FF9EADB7C2F21FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344479   (170346) от 10.12.2019
 
 VA - НГ 2020 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ VA - Music News vol.231 (2022) [MP3|320 Kbps] <Pop, Dance, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5395C060C75A4B175088001C010798A5DC183B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345529   (166424) от 15.12.2019
-
-VA - не Громкие новинки недели 47 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166424.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Akim - НКМ (3:17)
-2.AMCHI feat. Мот - Манекен (2:52)
-3.Bolshevseh - Море Без Соли (2:24)
-4.Brandon Stone - Она Любит Тебя (4:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B27E70A47A987BB94DB73CBBD482FA41BD75CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345566   (166238) от 15.12.2019
-
-VA - Зайцев.нет Лучшие новинки Декабря (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.5sta Family - Первый снег (2:46)
-2.Big Russian Boss - ВАУ (2:29)
-3.Breaking Benjamin, Scooter Ward - Far Away (4:52)
-4.Camila Cabello - Should've Said It (3:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0AC179CCEF6B47F580AE6225CF4B9F3D9A0A006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431761   (166085) от 15.12.2020
-
-VA - Music News vol.56 (2020) [MP3|256-320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166085.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lina Lee - чмоК (02:16)
- 002. Agunda & BRuys - Закат (02:18)
- 003. Aisha - Чувства Цунами (03:28)
- 004. Alban Skenderaj feat. Arilena Ara - AISHEH (03:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25851639C3B82169C43955DDB00A4C537C08D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431839   (166034) от 15.12.2020
-
-VA - Громкие новинки Декабря 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker, Vize, Leony, Edward Artemyev - Space Melody (3:00)
-02. Amine, Rico Nasty - Back & Forth (3:01)
-03. Anivar - Высоко (3:45)
-04. Anivar - Капля кислорода (3:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A35912126D01087D114F8E815922F355583F3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

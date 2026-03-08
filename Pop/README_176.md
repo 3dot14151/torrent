@@ -1,3 +1,61 @@
+###  Публикация: 1310994   (544582) от 27.06.2019
+
+Helen Shapiro - At Abbey Road 1961-1967 (1998) [FLAC|Lossless|tracks + .cue] <Blues, Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Treat Me Like A Child (Mono) (02:36)
+02. You Don't Know (Mono) (03:12)
+03. Walkin' Back To Happiness (Take 2 Plus Studio Conversations) (Stereo) (02:51)
+04. Walkin' Back to Happiness (Take 13 Master) (Stereo) (02:34)(   Читать дальше...   )Жанр: Blues, Pop, Soul, FunkПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE4B3F3ECEA801D89EC0057BA363DF844CEC3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310966   (544537) от 27.06.2019
+
+VA - Mellow Gold: 70s Classics (2019) [MP3|320 Kbps] <Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bread – If
+02. Seals and Crofts – Hummingbird
+03. America – Muskrat Love
+04. Gerry Rafferty – Look at the Moon(   Читать дальше...   )Жанр: Pop, Soul, FunkПродолжительность: 01:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0428220E97F5D539B094CAD7A8524FE3AE881C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311024   (544532) от 27.06.2019
 
 Budka Suflera - Zlote Przeboje (Unknown) [FLAC|Lossless|image + .cue] <Pop Rock>
@@ -689,64 +747,6 @@ VA - Вас Поздравляют Звёзды! (2008) [APE|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57BA70A1487E04A0B3046DE0BAD07A7A1AD52FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049870   (542015) от 06.09.2016
-
-Thanks - No Mercy in the Mountain (2016) [MP3|320 Kbps] <Alternative Pop, Alternative Rock, Dark Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Magic
-02. No Diamond
-03. Warm Hands
-04. I'll Try(   Читать дальше...   )Жанр: Alternative Pop, Alternative Rock, Dark SoulПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F92D0E6762D563FE41009B4416BE0DAE33C897A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311191   (541975) от 29.06.2019
-
-Helen Shapiro - Sensational (Uncollected Helen Shapiro) (2003) [FLAC|Lossless|image + .cue] <Pop, Blues, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Teenager Sings the Blues
-  02. Blues in the Night
-  03. Are You Lonesome Tonight?
-  04. Tearaway Johnny(   Читать дальше...   )Жанр: Pop, Blues, SoulПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D654E906DBA075A4E95EF6B60D5AEC09504AFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

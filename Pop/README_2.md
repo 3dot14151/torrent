@@ -1,3 +1,61 @@
+###  Публикация: 1847119   (1052086) от 11.01.2026
+
+VA - ДЖЕМ Дискотека 85/98 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Технология - Нажми на кнопку (4:28)
+02. Мираж - Я жду тебя (4:12)
+03. Сталкер и Андрей Державин - Не плачь, Алиса! (4:35)
+04. Дмитрий Маликов - Ты одна,ты такая (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 02:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A49773098254F710BDF0553BB51186BF7BFF0D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847118   (1051941) от 10.01.2026
+
+VA - ДЖЕМ Дискотека 85/98 (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Технология - Нажми на кнопку (4:28)
+02. Мираж - Я жду тебя (4:12)
+03. Сталкер и Андрей Державин - Не плачь, Алиса! (4:35)
+04. Дмитрий Маликов - Ты одна,ты такая (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 02:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D4DE84966CB6140C2D1B4DE8126DEFA67096FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846646   (1051667) от 08.01.2026
 
 VA - AM Gold 1973 (1992) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
@@ -687,64 +745,6 @@ VA - AM Gold 1963 (1991) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D26A08DE94BD7D20B25D98D649CC94B61BCE3B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845560   (1050810) от 
-
-VA - This Is... Eurovision (1996) 2 CD [OGG Vorbis|480 Kbps] <Pop, Europop, Vocal, Ballad, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celine Dion - Ne Partez Pas Sans Moi
-02. Cliff Richard - Congratulations
-03. Bucks Fizz - Making Your Mind Up
-04. Brotherhood Of Man - Save Your Kisses For Me(   Читать дальше...   )Жанр: Pop, Europop, Vocal, Ballad, SchlagerПродолжительность: 01:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F435186CB6DE28DD24AB249B6AF537C75F4B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845587   (1050809) от 
-
-VA - Top Pop (14 Pop-Songs) (1997) [OGG Vorbis|480 Kbps] <Electronic, Rock, Funk / Soul, Blues, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Crazy Little Thing Called Love
-02. Roxette - Dangerous
-03. Tina Turner - Steamy Windows
-04. Joe Cocker - Now That The Magic Has Gone(   Читать дальше...   )Жанр: Electronic, Rock, Funk / Soul, Blues, PopПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988EC99E646E84F136C234FD1A653F455FB7B6B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

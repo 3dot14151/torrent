@@ -1,3 +1,32 @@
+###  Публикация: 1064176   (428378) от 19.10.2016
+
+Gary Burton & Friends - Departure (1997) [WavPack|Lossless|image + .cue] <Contemporary Jazz, Post Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September Song (5:13)
+02. Poinciana (8:26)
+03. Depk (5:02)
+04. Tenderly (5:50)(   Читать дальше...   )Жанр: Contemporary Jazz, Post BopПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156CA446DF5BE1DB65682FD502E148740A3EFB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064239   (428371) от 19.10.2016
 
 Peggy Lee - Black Coffee: Best Of The Decca Years (1952-1956) 1997, Half Moon[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Kenny Dorham Quintet with Jackie McLean - Complete Recordings (1961, 1962) 2007,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:421675FAFB940652F8F8FBDD2D0357AB5B3CB750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572296   (423678) от 26.08.2022
-
-Gerry Mulligan - The Art Of Gerry Mulligan: The Final Recordings (2000) Telarc [FLAC|Lossless|tracks + .cue] <Cool, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paraiso [5:36]
-02. Dragonfly [6:19]
-03. Dream a Little Dream [3:52]
-04. Wave [4:31](   Читать дальше...   )Жанр: Cool, Latin JazzПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D369543395CFEFCE0FE7DD39873F4908F508462A
 ```
 
 https://mybot314.ru/tekegram_catalog/

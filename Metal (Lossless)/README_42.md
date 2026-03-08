@@ -1,3 +1,90 @@
+###  Публикация: 1355297   (984983) от 25.01.2020
+
+Edenbridge - The Grand Design (2006) [FLAC|Lossless|image + .cue] <Sympho Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terra Nova (7:07)
+02. Flame Of Passion (5:20)
+03. Evermore (3:43)
+04. The Most Beautiful Place (3:07)(   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDB127DC3688C056E42E04F0D274771F1FC28ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355299   (984980) от 25.01.2020
+
+Ensiferum - Victory Songs (2007) [FLAC|Lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ad Victoriam (3:11)
+02. Blood is the Price of Glory (5:17)
+03. Deathbringer from the Sky (5:11)
+04. Ahti (3:56)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00::50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E8B3D80B527854265DDEF8CD113548E974B491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355213   (984975) от 25.01.2020
+
+Breaking Benjamin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking Benjamin - So Cold (Aurora Version) (04:32)
+02. Breaking Benjamin, Michael Barnes - Failure (Aurora Version) (03:37)
+03. Breaking Benjamin, Scooter Ward - Far Away (04:52)
+04. Breaking Benjamin - Angels Fall (Aurora Version) (03:46)(   Читать дальше...   )Жанр: Alt.Metal, Post-GrungeПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43631DF186D37CC77BF2356BF5D0B90ED4348987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355217   (984823) от 25.01.2020
 
 Ironsword - Servants of Steel (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -670,93 +757,6 @@ Ark - Ark (1999) Reissue, 2000, Avalon [FLAC|Lossless|image + .cue] <Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A14588A49ABC3D40968F87139C74130B0972A222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356030   (980552) от 29.01.2020
-
-Marko Hietala - Pyre of the Black Heart (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stones (05:15)
-02. The Voice of My Father (04:37)
-03. Star, Sand and Shadow (05:01)
-04. Dead God's Son (04:42)(   Читать дальше...   )Жанр: Symphonic Rock, Heavy MetalПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E5CAC057E219C089FCAF712BE7C8A07C3C4DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973396   (980327) от 08.01.2016
-
-Status Minor - Ouroboros (2012) Japan [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Wind
-02.Hollow
-03.Glass Wall
-04.Like a Dream(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8444F6D01A0F082B34387C147C9EBDE59C2CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973398   (980323) от 08.01.2016
-
-Love Might Kill - 2 Big 2 Fail (2012) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Save My Soul
-02.XTC
-03.Burn the Night
-04.The One(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E2B0DAF6D31A51D209EBAC1DB7A64AF1B3D70B
 ```
 
 https://mybot314.ru/tekegram_catalog/

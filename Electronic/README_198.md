@@ -1,3 +1,61 @@
+###  Публикация: 1403739   (688556) от 21.08.2020
+
+VA - Need For Synth (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MicroMatscenes - Sunrise Road (3:53)
+02. Rogue VHS - Burnout (3:50)
+03. Akura - Night Ride (5:05)
+04. From Ashes - Daydream (2:55)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0F065E530B89EC76B06CAC90FC5DCA88E6F096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403740   (688555) от 21.08.2020
+
+NINA feat. LAU - Synthian (The Remixes) (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wire (feat. Kim Wilde) (Ricky Wilde Remix) (4:53)
+02. Unnoticed (Robert Parker Remix) (4:44)
+03. Synthian (Das Mortal Remix) (3:48)
+04. Synthian (Ends 84 Remix) (4:08)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373580909CA627CFE8DED0B5B9667F3CEFA5F95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403710   (688465) от 21.08.2020
 
 VA - Armin Van Buuren  - Live At Tomorrowland  (The Digital Festival) (2020) [MP3|320 Kbps] <Trance>
@@ -683,64 +741,6 @@ Cassy - Donna LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AE5005471444A27D055DD11FC3845B53BCD3AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534635   (686721) от 06.03.2022
-
-LAU - Circumstance (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undecided (4:11)
-02. Give Her Your Love (3:42)
-03. What To Do (4:29)
-04. Broken Hearts (3:02)(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrowaveПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FE233E63AA4F3774E8A11E2CD8F3A95BD79A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535429   (686716) от 06.03.2022
-
-GARRISON (Игорь Савосин) - The Dreams of Morpheus (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dreams of Morpheus (5:10)
-02. Dreamer (5:16)
-03. Bad Signal (5:15)
-04. Mirage (4:39)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE108F02B009990A61C054BB910F728749C551FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

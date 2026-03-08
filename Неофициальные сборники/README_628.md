@@ -1,3 +1,177 @@
+###  Публикация: 1695353   (120312) от 29.01.2024
+
+VA - Compilation Electronic part 48 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dndm - Morocco
+02. Musdige - The Mafia Has Feelings
+03. Jeem Dj - Sofia
+04. Kasimoff - Baby(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85705F723D8988C7E1733BB45F55B8E988790F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695835   (120128) от 30.01.2024
+
+VA - Compilation Electronic part 49 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jambeats - See the Sun
+02. Sansasmody - Eyslay
+03. Imazee - All My Fault
+04. Alsa - Teneritas(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8710D450DB089EAA8948039ED25A5DB9E12A3CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696221   (119863) от 01.02.2024
+
+VA - Compilation Electronic part 50 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azimov - Galaxy
+02. Enza - Maldives
+03. Umar Keyn - Last Minute
+04. Dndm - Not Mine(   Читать дальше...   )Жанр: ElectronicПродолжительность: 08:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95D4D083481A8A762A7DC875D9F28B3AA3736DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696171   (119828) от 01.02.2024
+
+VA - Music News vol.336 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alosa feat. Catching Sunrises - Breaking Me (02:58)
+ 002. Abraham Colona feat. David Emde - Horizon (So Blue) (02:15)
+ 003. Adam Maniac feat. Bogdan Kiyashko - Братишка (01:55)
+ 004. Adam Maniac feat. Bogdan Kiyashko - Кажется (03:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA99DDF23D730122F1F4341BD48030AE29620FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696827   (119421) от 04.02.2024
+
+VA - Deep Night Deep House 6 (2024) [MP3|320 Kbps] <Deep House, House, G-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pete Tong, Jem Cooke, Jules Buckley - Heat Rising (CamelPhat Extended Remix) (7:52)
+02. Anton Ishutin - Eternal (7:43)
+03. Gar1sson, Margaryan - HOT (Original Mix) (7:36)
+04. Forrest - Bad Girls Go to Heaven (Los Suruba Remix) (7:28)(   Читать дальше...   )Жанр: Deep House, House, G-HouseПродолжительность: 08:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F2D6B84AD44DD1B474E40B5748FF51C80C8876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696788   (119395) от 04.02.2024
+
+VA - Зима на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa - Houdini (3:05)
+02. Клава Кока & FEDUK - Кабы не было тебя (2:40)
+03. Gayazov$ Brother$ - Нужна Перезагрузка (2:57)
+04. Ofenbach feat. Norma Jean Martine - Overdrive (Extended Mix) (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0FA4B6FA6C2C1A6F47E0F160E884D64FB86C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696802   (119352) от 04.02.2024
 
 VA - Music News vol.337 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,180 +745,6 @@ VA - Rock 'n' Roll 50s (2024) [MP3|320 Kbps] <Rock 'n' Roll>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CBB021E90667F625493BFA9C68152E9544235D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699624   (117712) от 14.02.2024
-
-VA - It's Glam Rock (2024) [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice Cooper - School's Out [03:30]
-02. T. Rex - 20th Century Boy [03:41]
-03. Elton John - Saturday Night’s Alright (For Fighting) (Remastered) [04:55]
-04. Queen - Killer Queen (Remastered 2011) [03:00](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 03:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22F435DAE6C03DA1E9EEED707CAFD3280D6C248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699279   (117703) от 14.02.2024
-
-VA - Nu Jazz & Electro Swing compilation part 55 (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Swing House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caravan Palace - Mighty
-02. Riff Kitten - Fire Dance
-03. Caravan Palace - Lone Digger
-04. Kate Earl - Tongue Tied(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Swing HouseПродолжительность: 01:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A668213403F7B96A0F6E3BA2F17B2DD85BFD75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699684   (117701) от 14.02.2024
-
-VA - Music News vol.341 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117701.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beyonce - 16 Carriages (03:54)
- 002. 84 feat. Lookbuffalo - Провокация (02:53)
- 003. Aizalia - Buenas Noches (01:47)
- 004. Akha - Сердечко (03:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7111B916729502FF172172B6DFBBC9925B0183AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699487   (117685) от 14.02.2024
-
-Riff Kitten - Compilation (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Swing House, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dark Sun
- 02.  Divine Realms, Pt. 1
- 03.  Frequently Flustered
- 04.  Little Dancing Skeletons(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Swing House, Chillout, DowntempoПродолжительность: 02:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8217AC720928772D4EEDD6B3737EE97D59A125E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699513   (117643) от 14.02.2024
-
-Alanna Lyes - Compilation (2024) [MP3|320 Kbps] <Electro Swing/Nu Jazz | Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  20s Are Here
- 02.  Am I Real
- 03.  Intergalactic
- 04.  Stay(   Читать дальше...   )Жанр: Electro Swing/Nu Jazz | PopПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608D4B9034061DC21D7E9CA88EA868A59F4815FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699537   (117492) от 15.02.2024
-
-Юрий Антонов - Коллекция (2024) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Антонов, мой самый любимый композитор и исполнитель. Ещё во времена СССР, у нас дома были все его пластинки. С самого раннего детства, знаю песни наизусть и слушаю до сих пор. Его творчество - лучшее лекарство от тоски и дипрессняка. Когда 7 лет назад я делал собрание песен, на тот момент у меня не было апаратуры должного уровня. В то время я только учился работать (   Читать дальше...   )01. От печали до радости
-02. Несет меня течение
-03. Все, как прежде
-04. У берез и сосен(   Читать дальше...   )Жанр: PopПродолжительность: 04:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269CFB0B30A03FC296117F37953A291CC48C3F4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

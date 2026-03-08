@@ -1,3 +1,61 @@
+###  Публикация: 1712969   (60763) от 04.04.2024
+
+V.A. - 70's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pretenders – Brass in Pocket (2006 Remaster)
+02. Curtis Mayfield – Move On Up
+03. Gerry Rafferty – Baker Street (2011 Remaster)
+04. Bad Company – Feel like Makin’ Love (2015 Remaster)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED9F8BC93ABB4AFA239BC1BB1F0A1EAB966EC36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713007   (60655) от 05.04.2024
+
+VA - 100 Greatest Covers of All Time - Cover Versions (2024) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60655.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - Rolling in the Deep (Live) - Black Stone Cherry - 03:48min
+ 002 - Don’t Stop Believing - Teddy Swims - 04:08min
+ 003 - All Summer Long - Kid Rock - 04:58min
+ 004 - Cats in the Cradle - #90s Update - 02:53min(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 06:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF4DD6D9D0AAFAF6FCB9C2B10FA2B07FB45D32C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713788   (60447) от 07.04.2024
 
 VA - Mega Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -684,64 +742,6 @@ CD4 - The Best 12 Inch VersionsЖанр: Disco / PopПродолжительно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7B23993111CD18A8C01BC14A85233CA50F99B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 111761   (57562) от 05.05.2024
-
-МакSим - Трудный возраст (2006) [FLAC|lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Трудный Возраст
-02 - Сантиметры Дыханья
-03 - Нежность
-04 - Лолита(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F4544CFA2D34A65AAEC3ECD9ED614CC90C9CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769933   (57541) от 05.05.2024
-
-Николай Караченцов - Что тебе подарить (2008) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Пролог   (3:15)
-02.  Кленовый лист   (3:25)
-03.  Что тебе подарить    (3:38)
-04.  Серенада Риккардо    (1:44)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F446D9EFE3549D7508AE0ABEFFF1F8DBAA1228
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 1366701   (1023101) от 02.04.2021
+
+nthng | Trancemaster  - Discography 13 Releases (2014-2021) Lobster Theremin, Mörk [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It (04:22)
+ 02. Above The Clouds (04:40)
+ 03. Mad About You (05:53)Тип издания: WebЖанр: Techno, Ambient, Dub Techno •Продолжительность: 07:33:37 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E85CBA5DF2CD55E5AFC5CC0619C543118D9B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391455   (1023090) от 02.04.2021
+
+Gold Lounge - Discography: 9 Releases (2011-2021) [MP3|320 Kbps] <Chillout, Electronic, Lounge, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023090.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 - Spirals
+2012 - Double Life
+2015 - Livin' In A Golden State (Single)
+2018 - Floating(   Читать дальше...   )Жанр: Chillout, Electronic, Lounge, AmbientПродолжительность: 05:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C32B04713FA17861EA7F13E177F03487A8577BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009444   (1023060) от 02.04.2021
 
 Infinite Scale - Discography 11 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Dubstep, Abstract, Ambient>
@@ -684,64 +741,6 @@ Roberto Sol - Discography 9 Releases (2012-2020) [MP3|320 Kbps] <Chillout, Nu Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A98320413362E8137C6C3C2350C9B4487F77E770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346757   (1022053) от 08.04.2021
-
-Thierry David - Discography 32 Releases (1988-2021) [MP3|320 Kbps] <New Age, Lounge, Ambient, World>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022053.jpg" />
-</div>
-
-
-###  Подробнее
-
-1988 - Moonstorm (Reissue '98)
-1991 - Humaninhuman
-1992 - Tales Of Sand (Reissue '93)
-1993 - Tones & Colours (Reissue '98)(   Читать дальше...   )Жанр: New Age, Lounge, Ambient, World, Electronic, Tribal, Space & Relaxing MusicПродолжительность: 32:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B108C1115E99A887962329414999093AB99AC4F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461283   (1022048) от 08.04.2021
-
-Jean-Michel Jarre - Amazonia & "Binaural Audio - Headphones Only" Version (2021) Columbia Local [FLAC|Lossless|WEB-DL|tracks] <Ambient, Field Recording, Tribal, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazonia, Pt. 1 (07:42)
- 02. Amazonia, Pt. 2 (10:00)
- 03. Amazonia, Pt. 3 (08:10)
- 04. Amazonia, Pt. 4 (03:17)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Field Recording, Tribal, Experimental •Продолжительность: 01:45:47 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19FEFDE6E6E87B967B0A695A12B24E96C9CC984
 ```
 
 https://mybot314.ru/tekegram_catalog/

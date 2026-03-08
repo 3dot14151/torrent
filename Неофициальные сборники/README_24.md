@@ -1,3 +1,174 @@
+###  Публикация: 1456350   (1025119) от 22.03.2021
+
+VA - Happier Day: Best Country Songs (2021) [MP3|320 Kbps] <Country, Blues, Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, это самый популярный музыкальный жанр в Америке, после поп-музыки. Его особенности повсюду - в интерьере, одежде, образе жизни - настолько американцы влюблены в него. В сборнике «Happier Day» вы найдете огромное количество песен кантри и блюз композиций, от самых раритетных до современных.001. Luke Combs - Forever After All
+002. Eli Young Band, Jimmy Buffett - Saltwater Gospel
+003. Riley Green - If It Wasn’t For Trucks
+004. Little Big Town - Wine, Beer, Whiskey(   Читать дальше...   )Жанр: Country, Blues, FolkПродолжительность: 07:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA3B58BDBCDEFD41F15EA944EAE09DDFBC93E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456347   (1025116) от 22.03.2021
+
+VA - Best New Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это относительно спокойная, гармоничная и содержательная музыка, помогающая расслабиться и улететь в страну своих грёз. Именно такую музыку вы сможете услышать в представляемой Вашему вниманию подборке. Только качественный саунд, идеально подходящий для спокойного отдыха или для прослушивания в уютной домашней обстановке за чашкой ароматного кофе.001. Joe.N - Kvällsdagbok
+002. Don Gorda Project - Recurring Events
+003. Gidge - New Light
+004. Per Nord - Miami(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D76A669B1476B2C9C6DFA74A8B17137B8A2661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456357   (1025111) от 22.03.2021
+
+VA - Welcome To Spring (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличная подборка поп музыки от европейских исполнителей, завёрнутая в весеннюю обертку солнечного позитива! Вы легко сможете подобрать для себя самые любимые треки, а также отсортировать, что и когда слушать: под хорошее настроение, солнечную погоду, веселую вечеринку дома, для пробежек или за рулём своего автомобиля.001. Little Mix - Break Up Song
+002. Baby Queen - Raw Thoughts
+003. Itzy - Wannabe
+004. Koda Kumi - I'm Lovin'(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172C4F64A7DC3A4EC4BF1F8C149ED58D37CBA12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456354   (1025109) от 22.03.2021
+
+VA - The Deep Sleep Music (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз "The Deep Sleep Music" несомненно понравиться почитателям атмосферной и спокойной музыки. Судя по названию, под звучание такой музыки удастся хорошо выспаться и отдохнуть. Отличная пластинка, что безукоризненно вписывается в настрой вечернего нуара. Приятного Вам отдыха!001. Lemongrass - Smooth Moments
+002. Marie Therese - Silencio
+003. Mirage Of Deep - From Heaven & Earth
+004. Eskadet & Amethyste - Aurora(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E9650BF9319FE8974A13C3FA65E60F51312030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456079   (1025067) от 22.03.2021
+
+VA - Baker Street - 100 Classics from the 70's (2021) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025067.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gerry Rafferty - Baker Street [00:06:10]
+002. Chicago - If You Leave Me Now [00:03:55]
+003. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!) [00:03:21]
+004. Kate Bush - Wuthering Heights [00:03:25](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 06:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA13F4CF92B09BB7FBF5E1052E7241C856431178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456407   (1025006) от 22.03.2021
+
+VA - 120 Best Slow Songs For Relax (2021) [MP3|320 Kbps] <Blues-Rock, Country, Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если пасмурный день испортил вам настроение, не грустите - сварите ароматный кофе, добавьте бальзам, опуститесь в удобное кресло и окунитесь в волшебство искусства блюза, его глубоких и чувственных мелодий, он поможет вам «воскреснуть» своей задумчивой нежностью, мудростью, позволяя посмотреть внутрь себя. Блюзовые мелодии не стареют, а наоборот, как хорошее вино, (   Читать дальше...   )001. Snowy White - How Was It for YouЖанр: Blues-Rock, Country, BalladПродолжительность: 11:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D896B83950B8D7E7BC21FD6534A75D1F8C856A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456632   (1024925) от 23.03.2021
 
 VA - Music News vol.84 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -573,180 +744,6 @@ VA - Blood And Soul (2021) [MP3|320 Kbps] <Soul, Blues, Lyric Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:007E2CF12A0672647F7DB0AB89C1301E4052770B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458057   (1024075) от 28.03.2021
-
-VA - Neon: Uplifting Trance Party (2021) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неон – символ ночной жизни большого города. Вас тоже манят неоновые вывески и огни? Широкие сияющие проспекты манят умчаться на край света, а реклама ночных клубов соблазняет, чтобы зайти на часок и остаться до утра, оставляя все силы на выплеск своих эмоций в танце!001. Grande Piano - Stay With Me
-002. Mike Rivera - Parallax
-003. Hyperphysics - New Awakening (Original Mix)
-004. Farius - Free Now (Extended Mix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 11:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49AF5DD95CD61E43B2B8DB52615B5ABE444DA523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458061   (1024005) от 28.03.2021
-
-VA - Soul Of My Life (2021) [MP3|320 Kbps] <Soul, Jazz, Funk Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем послушать приятные вокальные джаз и соул произведения, которые понравятся не только ценителям этих стилей музыки. Все они испытаны временем и критикой музыкальных знатоков и любовью поклонников. Прибавьте звук и настраивайтесь на волну эстетического удовольствия!001. Bizzi Dixon - Superstition
-002. Aretha Franklin - Good Times
-003. Etta James - Spoonful
-004. Carrie Cleveland - Make Love To Me(   Читать дальше...   )Жанр: Soul, Jazz, Funk BluesПродолжительность: 09:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9108FB7D27FECA08C324D6024BE59B71C5342F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458319   (1023863) от 29.03.2021
-
-VA - Beatport Bassline House: Sound Pack #265 (2021) [MP3|320 Kbps] <Bass House, Dub House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треки из подборки объединяет одно - всеми вариантами представленного здесь звучания можно основательно прокачать звуковую систему дома, в машине или на любой электронной вечеринке с качественной акустикой. В этой музыке главное в звучании - массивная, жирная бас-партия, которая мутирует в зависимости от идей музыканта от трека к треку.001. Terny Turny - Monster Kill
-002. Second Sense - Low Life
-003. Mike Porter - Its Gonna Be Alright
-004. Serge Devine - Waiting So Long(   Читать дальше...   )Жанр: Bass House, Dub HouseПродолжительность: 07:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590E415BBF13666FE77364EC99B0B7F65A328CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458323   (1023846) от 29.03.2021
-
-VA - Beatport Electro Trance: Sound Pack #264 (2021) [MP3|320 Kbps] <Trance, Uplifting, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023846.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 264-м релизом от Beatport у нас будет возможность послушать отличный микс от небезызвестных авторов транс электроники, чьи работы пусть не всегда, но периодически подпрыгивают к верхним позициям чартов радиостанций, да и просто знакомы широкой аудитории, для которой словосочетание "клубная музыка" — это не пустой звук.001. 4 Strings & Kaimo K - Diving
-002. Rafael Osmo - Run (Original Mix)
-003. Fuimadane - Hymn For Nanna
-004. Jason Ross Ft Lauren Ray - Coaster Amun Tonight(   Читать дальше...   )Жанр: Trance, Uplifting, ProgressiveПродолжительность: 09:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B368222CB4F07333EAD1507EC2CF680C158CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458316   (1023834) от 29.03.2021
-
-VA - Aura Landscape: Ambient Sound (2021) [MP3|320 Kbps] <Ambient, Downtempo, Relax, Meditative>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы захотите услышать нечто впечатляющее и успокаивающее, что будет сопровождать Ваше времяпрепровождение мерным ритмом и атмосферными мелодиями, то рекомендуем обратить внимание на новый релакс сборник с наименованием "Aura Landscape". На протяжении всего лонгплея вы сможете погрузиться в непередаваемую атмосферу релакса и безмятежности.001. Matt Tondut - Before You Sleep
-002. Mehrdad Kanani - Response
-003. Red Shift Mantra - Rain
-004. Shinji Wakasa - Raven(   Читать дальше...   )Жанр: Ambient, Downtempo, Relax, MeditativeПродолжительность: 10:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A699B5015650CD4C8AC9CEC0292EFC4168E8EDAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458326   (1023814) от 29.03.2021
-
-VA - National Pop Dance Music (Vol.14) (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый депрессивный период года - "уже не зима, но ещё не весна"! Как раз самое время чтобы компенсировать его пагубное влияние хорошей музыкой! А поможет Вам в этом 14-й релиз "National Pop Dance Music", в котором собрано 180 популярно-танцевальных хитов.001. Misterraffy - E Se Non Ti Sta Bene
-002. Ava Max - My Head & My Heart
-003. Nora Grand - Hallelujah
-004. Showmain feat Lucyliao - Alive(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7BD371607728E646CD660CCA2C438F3A34DA53
 ```
 
 https://mybot314.ru/tekegram_catalog/

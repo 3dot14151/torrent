@@ -1,3 +1,35 @@
+###  Публикация: 1273170   (137620) от 31.12.2018
+
+VA - Hit Mania 2019 (2018) [MP3|320 Kbps] <Synthpop, Hip Hop, Dancehall>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137620.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Cesare Cremonini - Possibili scenari
+02. Shawn Mendes - Lost in Japan(   Читать дальше...   )Жанр: Synthpop, Hip Hop, DancehallПродолжительность: 00:44:35
+
+01. Tool Street - It's like your
+02. Wonderful Sensations - Feeling free(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B99971BD5EC305044AB81C8CF84F8511D77DD5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591609   (136486) от 19.12.2012
 
 Roberto & Bobby Schnitzer - Lifescapes: Spanish Escape (2012) [MP3|320 кб/с]<Instrumental, Flamenco, Acoustic guitar>
@@ -785,35 +817,6 @@ Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B2853A1E5C9EE2FEC6CDB0B27E00C57410AAB4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 171886   (128787) от 10.12.2023
-
-Lauluyhtye Rajaton - Nova (2001) [FLAC|Lossless]<A Capella, Harmonic Voices>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128787.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своем творчестве финская "Вокальная группа без границ" - именно так можно перевести название коллектива - с равным успехом использует элементы джаза, финского фольклора и академического пения, выстраивая музыкальную гармонию при помощи одних лишь голосов. У нас есть свой аналог - "Camerata" из Беларуссии. Очень красиво и интересно.01. Läksin minä kesäyönä käymään
-02. Mitä kaikatat, kivonen?
-03. Purrelle tuulta
-04. Kutsu(   Читать дальше...   )Жанр: A Capella, Harmonic VoicesПродолжительность: 0:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82F0553C0B0D62161EEA6B09C7DCC58F0BE1C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

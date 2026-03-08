@@ -1,3 +1,32 @@
+###  Публикация: 1330621   (336252) от 12.10.2019
+
+VA - Perfect Tech House: Deep Session (2019) [MP3|320 Kbps] <Techno, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336252.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Toni Noack - Trouble Boy
+002. Larry Lan - Greenwich
+003. Joan Fibla - Right Now (Original Mix)
+004. Cristian Matrix - Permanent Blackened(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 08:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002C4933187F8002F3691B9E7A8D774DE48E8D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074819   (336122) от 20.11.2016
 
 Альберт Артемьев - Планета Глория (2016) [MP3|192 Kbps] <New Age>
@@ -722,35 +751,6 @@ VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 3 (2015) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:314030B549BF80B03801D380CAC3448722E2BF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955482   (333854) от 11.11.2015
-
-VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 2 (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dexter Morrison - Night Bird - Original Mix
-02. Joshua Green - For a Night - Original Mix
-03. Robert Reston - I'm Sending You - Original Mix
-04. Paul Moana - The Rapid Plastic - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380C8622E2B805A15B685B7278882EE8DFC09838
 ```
 
 https://mybot314.ru/tekegram_catalog/

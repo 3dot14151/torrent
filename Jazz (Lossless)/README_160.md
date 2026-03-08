@@ -1,3 +1,32 @@
+###  Публикация: 928975   (520640) от 18.08.2015
+
+Franz Koglmann - Orte Der Geometrie (1989) /hat ART/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Banker's [04:35]
+02. Slow Fox [04:35]
+03. Quotations [06:38]
+04. Der Gast [04:16](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:415B9D1A5EAAF8514A7D28BF46E20F062880D3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929123   (520639) от 18.08.2015
 
 Dave Brubeck - The New Brubeck Quartet Live At Montreux (1977) /1989, Tomato/[FLAC|image+.cue]<Jazz, Cool, Mainstream Jazz>
@@ -734,41 +763,6 @@ Louis Hayes And The Cannonball Legacy Band - Maximum Firepower (2006) Savant [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECDF462B2BD8C4E1A2E7F3F39534DA7FD7B753AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374646   (515660) от 12.08.2011
-
-Shakatak - Street Level (1993) [APE|Lossless]<Jazz, Soul-Jazz, Jazz-Funk, Soul-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Day At A Time (3:57)
-02. Street Level (4:08)
-03. Sleepin' Alone (4:27)
-04. Siberian Breeze (3:36)
-05. Anyway You Want It (3:48)
-06. The Night Ain't Over Yet (4:12)
-07. Watchin' The Rain (4:19)
-08. Without You (4:29)
-09. Jump 'N' Pump (3:39)
-10. Empty Skies (5:01)(   Читать дальше...   )Жанр: Jazz, Soul-Jazz, Jazz-Funk, Soul-FunkПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 1422720   (306035) от 10.11.2020
+
+VA - не Громкие новинки недели 87 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5sta Family - Эгоистка (Yudzhin & Serg Shenon Radio Remix) (3:02)
+02. Ana Baston - Черные Очки (2:42)
+03. Asammuell - Идеал (3:27)
+04. DaBro - Тебе Лучше Меня Не Знать (3:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F9DDED64F7163A3136DADE9E0C435D21FC1701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584379   (305594) от 05.12.2012
+
+VA - Music For The Soul (2012) [MP3|320 кб/с]<Chillout, Trip-Hop, Downtempo, Acoustic, Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samba Nova Concepзao — Neptune's Heptune
+02. Sarah Vaughan — The Man I Love
+03. Deise Mikhail — The Picasso Suite
+04. Ben Sidran — Back Nine
+05. Christoph Spendel Trio — My Romance
+06. Mademoiselle Karen — To Ja Kobieta
+07. Tim Tim — Rum'n'cocacola
+08. Alice Francis — St. James Ballroom
+09. Alacran — Reflejo De Luna
+10. Ben Sidran — Don't Cry For No Hipster(   Читать дальше...   )Жанр: Chillout, Trip-Hop, Downtempo, Acoustic, Lounge, Jazz BlendsПродолжительность: 02:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E44C64212A9F08523E7B22B5B5C8DD4BF6830A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960819   (305552) от 29.11.2015
+
+VA - Ministry Of Sound: I Love Garage (2015) [MP3|320 кб/с]<House, Dance, Dubstep>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artful Dodger - Re-Rewind (feat. Craig David) [04:03]
+02. Daniel Bedingfield - Gotta Get Thru This (D'N'D Radio Edit) [02:42]
+03. DJ Luck & MC Neat - A Little Bit of Luck [05:51]
+04. M J Cole - Crazy Love [04:38](   Читать дальше...   )Жанр: House, Dance, DubstepПродолжительность: 05:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFCB503DF26B0AF24504FC1333DBEF369DFE6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183798   (305543) от 15.11.2017
+
+VA - The Gates: Synthspace Anthology (2017) [MP3|192-320 Kbps] <Synthspace, Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305543.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stars Crusaders - Gemini
+002. Gheist - Advent
+003. Zynic - Would
+004. Andromeda Dreams - Intergalactic Spaceship(   Читать дальше...   )Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 08:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0F15D8CB3F383B29F4CD364B0B6FFAF3DF5D310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261263   (305451) от 10.11.2018
 
 VA - The Official UK Top 40 Singles Chart 09.11.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Other П>
@@ -629,128 +751,6 @@ VA - Best of Hits Touch Sound (2016) [MP3|262-320 Kbps] <Tropical, Synthpop, Nu 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CC3BB41425D6BA568E52D2CAFBA26896C332E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554252   (300048) от 07.12.2012
-
-Gitarin.Ru - сборник песен проекта (2011 - 2012) (Обновляемая)[MP3|128 kbps] <Acoustic Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_300048.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. |  Красное на черном (АлисА) | (4:08)
-002. |  Жизнь (Горшок) | (2:54)
-003. |  В кармане у Насти (Gitarin.Ru) | (3:23)
-004. |  Заболели листья (Gitarin.Ru) | (2:12)
-005. |  Белая Ворона (Чайф) | (2:48)
-006. |  Группа Крови (В. Цой, Кино) | (3:58)
-007. |  Я верю (Ляпис Трубецкой) | (3:20)
-008. |  Ветер (Brainstorm) | (3:36)
-009. |  Я солдат (Пятница) | (3:13)
-010. |  Ты мне нужна  (Gitarin.Ru) | (4:33)(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 07:19:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078173   (299833) от 01.12.2016
-
-VA - 90s Hits Super Songs (2016) [MP3|320 Kbps] <Eurodance, Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snap! - Welcome To Tomorrow (Are You Ready) 4:16
-02. Yamboo - Fiesta De La Noche (The Sailor Dance) (Radio-Video Edit) 3:48
-03. B.G. The Prince Of Rap - The Colour Of My Dreams 3:55
-04. Mr. President - Coco Jamboo (Radio Version) 3:38(   Читать дальше...   )Жанр: Eurodance, Pop, RockПродолжительность: 05:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FECB8A8FBC521CC44F07FA3749D538BD84DEEE78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078570   (299699) от 01.12.2016
-
-VA - My Favourite Hits of 1967 (8CD) (2016) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock, Pop Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299699.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Beatles - Your Mother Should Know (02:27)
-002. Bee Gees - Massachusetts (02:23)
-003. Small Faces - Runaway (02:38)
-004. Tom Jones - Detroit City (03:26)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues Rock, Pop Rock, Folk, Pop, Easy ListeningПродолжительность: 09:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD15973BF971FEDFDB203A40B9C1468B6D5EA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333689   (298948) от 27.10.2019
-
-VA - The Official UK Top 40 Singles Chart 25.10.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey
-02. Regard - Ride It
-03. Post Malone - Circles
-04. Ed Sheeran - South of the Border(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FB5B778BC90FEB163D4129C41A480F9924A91BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

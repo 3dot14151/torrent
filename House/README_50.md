@@ -1,3 +1,38 @@
+###  Публикация: 555686   (431874) от 03.10.2012
+
+Various Artists - Club House 2012 (2012) [MP3|320 кб/с]<Club House, House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pain - Another Glass (Simone Cattaneo & Alex Gardini Remix) (5:50)
+02. Takeshy Kurosawa - Let Me Go (Rudeejay Remix) (1:57)
+03. Niky Martinez - Keep This Love Alive (Dub Mix) (7:32)
+04. Granite - One & Only (Original Mix) (5:20)
+05. A.D.M. - I Want You (David Jones Remix) (6:39)
+06. StoneBridge - I Love It (Album Mix) (3:21)
+07. Patric La Funk - Baltic (Original Mix) (6:33)
+08. Nightstylers - Up Your Rumpa (Original Mix) (8:19)
+09. Wally Lopez - House Of Mine (Simone Vitullo Remix) (8:16)
+10. SIKK - My Washing Machine (Leonardo Glovibes 2012 Remix) (6:10)(   Читать дальше...   )Жанр: Club House, House, Progressive HouseПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F472021AC646D087147424113276945213B3A94F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945460   (431747) от 11.10.2015
 
 Dustin Nantais - Cloak / A Long Road (The Remixes) (31.08.2015) [MP3|320 кб/с]<Electronic, Deep, House, Progressive>
@@ -732,41 +767,6 @@ VA - Ministry Of Sound - Chilled House Winter (unmixed tracks) (2016) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5BC2A267AB497B5A54882DA5370000E29BEB2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557897   (417242) от 09.10.2012
-
-VA - Soulful House (Twisted Remixes & Disco Sounds) (2012) [MP3|320 кб/с]<House, Deep House, Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulmagic - Someone Like You (Original)
-02. Rosie Gaines - Closer Than Close (Schwarz & Funk Classic House Mix)
-03. Angelina - Just Be Good to Me (feat. Angelina) (Robis Latin Breeze Mix)
-04. Erann - Is This Love (feat. Erann) (Deeper People Remix)
-05. Meshach Broderick - You (feat. Benjamin Broderick) (Benjamin Led & Rothmann Remix)
-06. Camille Jones - I AM (Jesse Funk's Lost in Space Dub)
-07. Clara Sofie - Flowing Over (feat. Clara Sofie) (Delicious Ibiza Remix)
-08. Deeper People - Missing (Matt Early Sunset Mix)
-09. ReUnited - Sing It Back (Sidelmann Funkelectric Mix)
-10. Sherell McKenzie - Any Love (feat. Sherell Mckenzie) (Scandall Sunset On Ibiza Remix)(   Читать дальше...   )Жанр: House, Deep House, Soulful HouseПродолжительность: 01:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31B30BAFB4A8CD216454937E6F8F8758A92587C
 ```
 
 https://mybot314.ru/tekegram_catalog/

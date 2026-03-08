@@ -1,3 +1,177 @@
+###  Публикация: 1119828   (806064) от 29.03.2017
+
+VA - Energy Adventure Melodies (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chris Raynor - Kuiper (Original Mix)  8:02
+02.  Aero 21 - Purple Sky (Original Mix)  8:00
+03.  Ahmed Romel - City Of Life (RAM Remix)  7:08
+04.  Ben Stone & Mrozer - Astoria (Extended Mix)  6:45(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 02:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1544D5C68D1D5AD642B7BD5993AD7F254296E1BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198694   (806054) от 12.01.2018
+
+Joe Dassin - Joe Dassin & Toto Cutugno (2018) Compilations [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il Etait Une Fois Nous Deux (3:58)
+02. L'ete Indien (4:33)
+03. Et Si Tu N'existais Pas (3:30)
+04. Cote Banjo Cote Violon (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E079C487CE5AAC37DC23295416EAC5412EC30EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009887   (805845) от 23.04.2016
+
+VA - Italian Holidays: Extended Remix (2016) [MP3|320 кб/с] <Disco, Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emy Care - Fly in the Sky (Dance Mix)
+02. Giorgia (feat. Eros Ramazzotti) - Inevitabile
+03. Romantic Avenue Feat. Michael - Dangerous Heart (TDH Driver Longdrink Remix)
+04. Modа (feat. Emma) - Arriverа(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 09:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F9591686AAA3FA2AA58AFC7A9279062661D42D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119774   (805764) от 29.03.2017
+
+VA - Best of Deep-House. Volume 2. Spectral Life [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moviero - Intro (Original Mix) (6:36)
+02. Aaron the Baron - The Time You Gave Me Love (Original Mix) (4:45)
+03. AFSHeeN - Tunnel - Radio Edit (3:40)
+04. Jaques Le Noir - Boy (Push My Botton)Жанр: Deep-HouseПродолжительность: 04:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D462429EA1A0A718005B31DC5C751B0DCCDED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384041   (805732) от 18.05.2020
+
+VA - Beatport Tech House: Sound Pack #81 (2020) [MP3|320 Kbps] <Tech, Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805732.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Subground - North Side
+002. Dave Allister - Panorama (Original Mix)
+003. Thomas Fehlmann - Triggerism
+004. Jack Liberto - Red Circle (Original Mix)(   Читать дальше...   )Жанр: Tech, Deep House, ElectroПродолжительность: 09:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D555723393D90A99A60E33E1B0928024F5F232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119777   (805605) от 29.03.2017
+
+VA - Best of Chill House 2017. Volume 1. Leave The Past [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Chill House, Deep-House, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamliki - La Renaissance (4:51)
+02. Dr. Feelx - Deep Is Love (Alex Barattini Sunset Mix) (5:55)
+03. Maxim Buldakov - Sunset (6:28)
+04. Solanos - Infinite Fields (5:24)(   Читать дальше...   )Жанр: Chill House, Deep-House, LoungeПродолжительность: 04:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7CAD27CDC3B25C4A3E072773F8B372F58984E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010048   (805573) от 23.04.2016
 
 VA - 50 оттенков музыки 18+ (03.2016) [MP3|128-320 кб/с] <Pop, Dance, Electronic, Dubstep, Other, Rock>
@@ -571,180 +745,6 @@ VA - Music News vol.2 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A2C950F859E4D3201D9EA3D961C49F6EBDA6259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384314   (804269) от 19.05.2020
-
-VA - Beatport Progressive House: Electro Sound Pack #86 (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Sobrino - Dark Brain
-02. Alfoa - A New Life (Original Mix)
-03. Jonnas B - Ancestral
-04. Chris Burke - Keygen(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 07:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339A07EBE8C78F3ACFE435A967C4A507608517E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384069   (804159) от 19.05.2020
-
-VA - Live Sounds Of Blues (2020) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walter Trout & The Radicals - Say Goodbye To The Blues
-02. Taj Mahal - Coconut Man (Live)
-03. Tedeschi Trucks Band - Made Up Mind
-04. Jimmie Vaughan - Scratch My Back(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 24:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0E52CFB99AEC3358901EFB57E4355DFDA0E1E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010266   (804083) от 24.04.2016
-
-VA - Running Trax 5k & 10k - Ministry of Sound (2016) [MP3|256 кб/с] <House, Techno, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various Artists - Running Trax 5k & 10k (Warm Up Mix) 09:10
-02. Various Artists - Running Trax 5k & 10k (Cool Down Mix) 10:48
-03. Various Artists - Running Trax 5k & 10k (5k Mix) 35:02
-04. Various Artists - Running Trax 5k & 10k (10k Mix) 65:04(   Читать дальше...   )Жанр: House, Techno, DanceПродолжительность: 04:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6991AA23F563FBC726132ABF81F3D4730092F834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384306   (804047) от 19.05.2020
-
-VA - Relaxing Piano: Neo Classical Collection (2020) [MP3|320 Kbps] <Piano Instrumental, Neo Classic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804047.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Christian Reindl - Northern Lights (2:52)
-2. Annie Warden - Sad Music (2:54)
-3. Annie Lennox - Papilio Machaon (8:57)
-4. Bruce Brubaker - Riley (4:51)(   Читать дальше...   )Жанр: Piano Instrumental, Neo ClassicПродолжительность: 05:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20A1598C2D9159F5977BA13BB6D9C5AA8C9B985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384027   (804044) от 19.05.2020
-
-VA - Hit Music (лето 2020) от Мяу (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Doja Cat feat. Nicki Minaj - Say So
-002. KSHMR, Sak Noel feat. TxTHEWAY - Bruk It Down
-003. DaBro - Юность
-004. Little Big - Hypnodancer(   Читать дальше...   )Жанр: PopПродолжительность: 07:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E408C80A5BB999EBE6576195FC35A8F64AC8C74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010328   (803957) от 24.04.2016
-
-VA - 100% Автохит (2016) [MP3|256 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R3hab & Kshmr - Strong
-02. Dr.Kucho Vs. Gregor Salto Vs. Lucas & Steve - Love Is My Game
-03. Anna Naklab & Younotus & Alle Farben - Supergirl
-04. Andreea D - Paradise(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A1FD16E1ED22CC49A87EC106F1927332FEB67AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

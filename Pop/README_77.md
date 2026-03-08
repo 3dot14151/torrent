@@ -1,3 +1,61 @@
+###  Публикация: 1384151   (804172) от 19.05.2020
+
+VA - Eurovision Song Contest 2020 - A Tribute to the Artists and Songs (2020) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804172.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Arilena Ara - Fall From the Sky (Albania) (3:10)
+02. Athena Manoukian - Chains on You (Armenia) (3:03)
+03. Vincent Bueno - Alive (Austria) (3:03 )(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B76D573A5E63E56ED7961D5CC159C022859A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010113   (803954) от 24.04.2016
+
+Dami Im - Classic Carpenters (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (They Long to Be) Close to You    03:43
+02. There's a Kind of Hush (All Over the World)    03:04
+03. Yesterday Once More    04:02
+04. Superstar    03:14(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3A5937221E02BAD0F6830F6C130ED4511EDE68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120134   (803457) от 30.03.2017
 
 Sergio Ferraresi - Horizons Vol. 7 Galaxi (1979) LP, Reissue 2013, Private Records [MP3|320 Kbps] <Electronic, Space - Disco>
@@ -687,64 +745,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA79CE29719B9E091B42276D39F7E68182209C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120995   (801189) от 01.04.2017
-
-Чи-Ли - В голове ветер (2015) [APE|Lossless|WEB|tracks] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А потому
-02. Северный ветер
-03. Ангел на моём плече
-04. Аргентина(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552883CDBA64B180B64A649187946D2496C7807B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121211   (801186) от 01.04.2017
-
-VA - Italo Disco - The Lost Legends Vol. 1 (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801186.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ryan Paris – Besoin D'amour (04:49)
-2. Toys For Boys – Your Body, Your Feeling (04:24)
-3. Regina – Mira Me (06:23)
-4. Gatsby – Love Sign (05:41)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D92DB417C9ED58DE2E8CA830EE0E83646BAC20D
 ```
 
 https://mybot314.ru/tekegram_catalog/

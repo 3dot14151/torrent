@@ -1,3 +1,76 @@
+###  Публикация: 523147   (618850) от 15.07.2012
+
+Demis Roussos - The Singles+ (2 CD) (2003) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618850.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1| Продолжительность: 01:15:18
+01. We Shall Dance
+02. Fire And Ice
+03. No Way Out
+04. My Reason
+05. Forever And Ever
+06. Velvet Mornings
+07. Goodbye My Love, Goodbye
+08. My Friend The Wind
+09. Schoes Madchen aus Arcadia(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:25
+01. Kyrila
+02. Mourir Aupres De Mon
+03. Ainsi-Soit-Il
+04. Life In The City
+05. That Once In A Lifetime
+06. Loin Des Yeux, Loin Du Coeur
+07. The Wedding Song
+08. Lost In Love
+09. I Need You(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A312BE9BC879C207812AAC78F801A9A456239C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295505   (618805) от 13.04.2019
+
+VA - The Definitive Harem Records 12 '' (1997) 2CD [MP3|320 Kbps] <Electronic, Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диско сборник хитов конца 70х - начала 80х от британского DJ, автора и продюсера Simon Soussan, выпущенных на студии"Harem Records" - дочерней фирме "Polydor".01. Pattie Brooks - After Dark (7:57)
+02. Arpeggio - Love And Desire (8:57)
+03. Simon Orchestra - Mr.Big Shot (8:02)
+04. Jessica Williams - Queen Of Fools (8:27)(   Читать дальше...   )Жанр: Electronic, Disco, Hi-NRGПродолжительность: 02:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61031E234E8F0F9FB48DFBD70856DBF02E912E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295618   (618804) от 13.04.2019
 
 Анжелика - Над Облаками (2003) [FLAC|Lossless|image + .cue] <Pop>
@@ -699,70 +772,6 @@ Bibio - Ribbons (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8611EEA91D86BEFE4F5E1AD0D9B5FD046DB4374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523548   (616988) от 16.07.2012
-
-Bananarama - 30 Years of Bananarama (2012) [MP3|242-290 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Aie A Mwana
-02 Really Saying Something
-03 Shy Boy
-04 Na Na Hey Hey Kiss Him Goodbye
-05 Cruel Summer
-06 Robert De Niro's Waiting
-07 Venus
-08 I Heard A Rumour
-09 Love In The First Degree
-10 I Can't Help It(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 1:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF35AE95401BF2EFCE19FEBD9CDE4192EF66F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295663   (616906) от 14.04.2019
-
-VA - 100 Greatest Number Ones (2019) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616906.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clean Bandit - Solo (feat. Demi Lovato) (3:42)
-002. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (3:31)
-003. Lukas Graham - 7 Years (3:57)
-004. Charlie Puth - Marvin Gaye (feat. Meghan Trainor) (3:10)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D04D46B248934E84592E570E03FCC48A8BD599
 ```
 
 https://mybot314.ru/tekegram_catalog/

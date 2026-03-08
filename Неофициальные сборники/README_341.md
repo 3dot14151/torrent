@@ -1,3 +1,177 @@
+###  Публикация: 1041077   (584465) от 07.08.2016
+
+VA - Самые Популярные Новинки Года. Русский Выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584465.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дмитрий Недоспелов - На Экскаваторе
+002. Аида Николайчук - Inner Power
+003. Sasha Holiday - Цвет Желаний
+004. Анимация - Не По-Русски(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327263301F423A1F896759F2FC70584FFEC95AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040876   (584462) от 07.08.2016
+
+VA - Awesome 80s Super Hits (2016) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lio - Le banana split
+02. Tapo & Roby - Under The Ice
+03. Francis Lalanne - On se retrouvera (BOF ''Le passage'')
+04. Veronique Jannot - J'ai fait l'amour avec la mer(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 06:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01B46342F53B9C960CA1C2FE5757D6E26170B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040856   (584461) от 07.08.2016
+
+VA - Relaxing Lounge Music For Your Sleeping Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bossa Nostra - Espera
+02. Neja - Crime of Passion
+03. 2 Men 4 Soul - Spread Your Love - Remastered
+04. United Peace Voices - Gangchen Song(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A1BCA2A8C1DE2C6444E898FF594F097772BBF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040969   (584430) от 07.08.2016
+
+VA - Никто кроме ты. Русское радио (2016) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584430.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Бьянка - Никто Кроме Ты (Летняя Песня)
+002. Olisha - Дай Мне
+003. Стрелки - Семь Морей
+004. Andre Tay - Детство(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EB1EFBF4B8BD92F0BD9B4665F414F04F01D9A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301189   (584349) от 12.05.2019
+
+VA - Joom Techno Grooves (2019) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584349.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Londono - Booster
+002. Act Of Rage - Brain Confusion
+003. Wildstylez - Run With The Wolves
+004. Akyra Ft. Mc Chucky - All The Ladies(   Читать дальше...   )Жанр: TechnoПродолжительность: 08:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8563F4EA3433F2F990BE25EE67A1F38BC02150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301177   (584343) от 12.05.2019
+
+VA - Republic Of Free Music: Trance Set (2019) [MP3|320 Kbps] <Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584343.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Istenia - Katrin (Original Mix)
+002. Betsie Larkin - Unite
+003. Distance Project - Run Off
+004. Andruboy - Memories (Original Mix)(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 10:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C17034823D98F1AD9F921E1711B4640796557A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301450   (584342) от 12.05.2019
 
 VA - New Gallery Soft House (2019) [MP3|320 Kbps] <Deep House, Electro>
@@ -568,178 +742,6 @@ VA - Lazy Sunday The Best Of Now, Then And Inbetween (2015) [MP3|320 кб/с]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96DB9DBF018085F1AFA28CFDD57471F746514D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744688   (583941) от 12.05.2019
-
-VA - Баллады Русского Рока (2014) [MP3|192-320 кб/с]<Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azazello - Осень
-02. De'cadenta - Босиком
-03. Materia Prima - Царство Теней
-04. R-Genium - Будь со мной(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 12:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4750D1B7431A278256897CD86EA9046FFA7BCEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541550   (583895) от 12.05.2019
-
-VA - Guitar Mania Vol.01-23 (1999-2004) [MP3|320 кб/с]<Instrumental / Surf / Rock'n'Roll>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental / Surf / Rock'n'RollПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7E0489F073EF8D49C0135FA19EE363647C88EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642595   (583894) от 12.05.2019
-
-VA - The Best Of LoungeLegends (7CD) (2013) [MP3|192-320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:857BC4F494952B2BA44647C85512CC030297B96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690392   (583872) от 12.05.2019
-
-VA - Heavy Japan Vol.01 - Vol.10 (2013-2015) [MP3|192-320 кб/с]<metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorpions - Cold [00:03:53]
-02. Altaria - Metality [00:05:02]
-03. Epica - Triumph Of Defeat [00:03:58]
-04. Tony Iommi - Let It Down Easy [00:04:31](   Читать дальше...   )Жанр: metalПродолжительность: 11:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21E0DDE1D3AC6BE34A6A75E37373E2BFE416E88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358874   (583867) от 04.07.2011
-
-VA - Sexy Trance #10 (03.07.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583867.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Sexy Trance #10 (03.07.2011)
-Год: 03.07.2011
-Жанр: Vocal Trance, Uplifting Trance, Trance
-Продолжительность: 02Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-001. Tritonal feat. Meredith Call - Broken Down (Shogun Remix)
-002. Bas van Essen - Walk Away(   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C5956F5050A77AD4C726B228D828C01E3FB88D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919143   (583843) от 18.07.2015
-
-VA - Car Audio. Басс, Ритм, Вокал (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Trap, Dubstep, Progressive, Techno, Drum-n-bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583843.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Affkt, Thomas Gandey - The Boss (Original Mix)
-2. Alina Baraz, Galimatias - Drift (Original Mix)
-3. Alphabet, Arc - Anymore (Lost Frequencies Remix)
-4. Andain - Beautiful Things (Andrey Kravtsov Remix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Trap, Dubstep, Progressive, Techno, Drum-n-bassПродолжительность: 14:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0E3C2D21B9FD9E49AF11878DE2E66276887268
 ```
 
 https://mybot314.ru/tekegram_catalog/

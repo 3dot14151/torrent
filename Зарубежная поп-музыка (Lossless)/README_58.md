@@ -1,3 +1,32 @@
+###  Публикация: 1413303   (410002) от 03.10.2020
+
+Robson Green - Moment In Time (2002) [FLAC|Lossless|image + .cue] <Rock, Pop Rock, Folk Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410002.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:13] 01. Love Hurts
+[3:31] 02. Make It With You
+[3:18] 03. Me And Mrs. Jones
+[3:45] 04. If Tomorrow Never Comes(   Читать дальше...   )Жанр: Rock, Pop Rock, Folk Rock, BalladПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F36DC1CA284E146E27FDC937AAC1D90FAAD061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066947   (409759) от 27.10.2016
 
 Oonagh - Märchen enden gut (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Ethno-Pop, Pop-Folk>
@@ -717,35 +746,6 @@ Madness - Can’t Touch Us Now (2016) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50836888C1582F81F460859F7E4D107DFC86CD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067705   (387377) от 29.10.2016
-
-Andy Williams - Reflections (1977) Compilation [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Moon River
-2. Sad
-3. Both Sides Now
-4. Home Lovin' Man(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10332C3F7ECBF3EC3904A85703C3E337CEE5AB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

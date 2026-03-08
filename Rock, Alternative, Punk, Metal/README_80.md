@@ -1,32 +1,3 @@
-###  Публикация: 1453831   (1026792) от 12.03.2021
-
-Heaven & Earth - A Taste Of Heaven (2004) Reissue, 2020, Stuart Smith [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Screaming For Redemption (4:00)
-02. Heaven (4:03)
-03. Nasty Piece Of Work (3:04)
-04. It'd Be True (5:22)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EDDCC155518E8CFE8D604F65AD2069762E088C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453806   (1026790) от 12.03.2021
 
 Black Diamonds - No-Tell Hotel (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -745,6 +716,35 @@ Sunstorm - Afterlife (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D2CF735E85125A90F542CE4165F5E9618FFA87E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453964   (1026598) от 13.03.2021
+
+Линда - Skop-Пионы (2008) [FLAC|Lossless|tracks + .cue]<Alternative Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skop-Пионы
+02. Пять минут
+03. Охота на ...
+04. Меланхолия(   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300F3FED7EEE7936A316E4D6D08BC7E1AE0D1BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1076521   (243680) от 26.11.2016
+
+Patti Austin - Havana Candy (1977) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's Enough For Me (5:50)
+02. Little Baby (4:15)
+03. I Just Want To Know (4:57)
+04. Havana Candy (4:37)(   Читать дальше...   )Жанр: Vocal Jazz, R&BПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39DB9B7E6E0906E3B3F1304B048480C88D203D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076503   (243629) от 26.11.2016
 
 Grover Washington, Jr. - Next Exit (1992) [FLAC|Lossless|image + .cue] <Smooth Jazz>
@@ -716,35 +745,6 @@ Mongo Santamaria - Mongo at the Village Gate (1963) 1990, Riverside[FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BBAFF71FB31B6F1DD60461EE30D9736BDA38208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538311   (243384) от 20.03.2022
-
-Junior Mance Trio - Junior's Blues (1963) 1998, Original Jazz Classics [WavPack|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down the Line [5:01]
-02. Creole Love Call [3:23]
-03. Rainy Mornin' Blues [4:03]
-04. Yancey Special [3:04](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Piano JazzПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8553447E5DCAD83271CC9E15A8C733CB0291981A
 ```
 
 https://mybot314.ru/tekegram_catalog/

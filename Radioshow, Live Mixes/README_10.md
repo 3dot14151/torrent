@@ -1,3 +1,61 @@
+###  Публикация: 1528352   (578849) от 29.05.2022
+
+Trance Wax - Trance Wax Radio (01-07) (2021-2022) [MP3|320 Kbps] <Trance, Breaks>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything But The Girl - Missing (Trance Wax Remix)
+02. Snap! - Rhythm Is A Dancer (Trance Wax Remix)
+03. Above & Beyond - Far From In Love (Trance Wax Remix)
+04. Trance Wax - Malu (Grum Remix)(   Читать дальше...   )Жанр: Trance, BreaksПродолжительность: 07:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16395451E450DD45C383AEFF7CDE368B3661A2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234691   (569369) от 06.07.2018
+
+VA - Ori Uplift & Danny Oh - Uplifting Only 282 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phillip J feat. Kim Casandra - Silent Emotion (Original Extended)
+02. Giuseppe Ottaviani featuring Thea Riley - On The Way You Go (OnAir Extended Mix)
+03. Saad Ayub & Christina Novelli - The Only One (Uplifting Mix)
+04. Sergey Lagutin - Waiting For (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8090B4B698EFE664816584B2155EDB96BBD6C46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152324   (567475) от 22.07.2017
 
 VA - Ori Uplift & Rich Triphonic - Uplifting Only 232 (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -687,64 +745,6 @@ David Guetta & MORTEN - Live @ kineticFIELD, EDC Las Vegas, United States (2022-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:170FB2D5DC435312D7A8C0B885F7AAB91204338E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558898   (528789) от 22.06.2022
-
-Swedish House Mafia & The Weeknd - Live @ Coachella Stage, Coachella Festival Weekend 2, United States (2022-04-24) [MP3|320 Kbps] <Electro House, R&B, Funk>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia - Can U Feel It
-02. Swedish House Mafia - It Gets Better vs. Greyhound (Swedish House Mafia Mashup) w/Swedish House Mafia - Can U Feel It (Acappella)
-03. Swedish House Mafia ft. Tinie Tempah - Miami 2 Ibiza (Swedish House Mafia 2022 Rework) w/Swedish House Mafia - Can U Feel It (Acappella)
-04. Axwell, Sebastian Ingrosso, Steve Angello & (   Читать дальше...   )Жанр: Electro House, R&B, FunkПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF60D1F07A4D1ADA77516FD606F4FE30613F411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559337   (527182) от 24.06.2022
-
-Hardwell - Tomorrowland Friendship Mix (2022-06-23) [MP3|320 Kbps] <Techno, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardwell - INTO THE UNKNOWN
-02. Hardwell - BLACK MAGIC
-03. J Balvin & Skrillex - In Da Getto (Hardwell Bootleg)
-04. Oxia - Domino (Hardwell Bootleg)(   Читать дальше...   )Жанр: Techno, Big RoomПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FF70D1E7473FBD19A0A0838790B4669BCD9DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

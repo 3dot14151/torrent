@@ -1,3 +1,119 @@
+###  Публикация: 1433663   (156736) от 21.12.2020
+
+VA - Music News vol.58 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156736.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. NK (Настя Каменских) - Vibe (Dance Version Remix) (02:51)
+ 002. Adamant & На-На - Фаина 2.0 (02:55)
+ 003. Alicia Keys feat. Diamond Platnumz & Kaash Paige - Wasted Energy (04:38)
+ 004. Alok feat. Mc Don Juan & DJ GBR - Liberdade (Quando o Grave Bate Forte) (02:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20538B6034E7A02929FDBFC928E0302A2A298294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085635   (156692) от 22.12.2016
+
+VA - Latin Favourites Baila Conmigo (2016) [MP3|320 Kbps] <Urban, Reggaeton, Dembow>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jory Boy - Detras De Ti (Dj Fuerte Acapella Starter) (Extended) 02:45
+02. Kanales - Feliciano (Clean) 03:19
+03. J Balvin Ft Yandel - Acercate (Djdx Remix) (Extended) (Unofficial) 02:48
+04. Feid Ft J Balvin - Que Raro (Djdx) (Intro Clean) 04:05(   Читать дальше...   )Жанр: Urban, Reggaeton, DembowПродолжительность: 03:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48163FD606DD8E4A1CE81B1FF654768A2D03E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085601   (156544) от 22.12.2016
+
+VA - Dance Paradise: December Party (2016) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156544.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye
+002. Hands Up Freaks - Waiting for Love (Original Mix)
+003. Addicted Craze feat. Kevin Kelly - Renegade
+004. Lady GaGa - Perfect Illusion(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 08:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD0876F4E0527828F284D8A802BB93CCBED8AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194241   (156523) от 24.12.2017
+
+VA - Музыка На Новогодний Корпоратив От Зайцев.Нет (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eurythmics  -  Sweet Dreams (Steve Angello & Sebastian Ingrosso Remix)  6:10
+02.  Don Omar  -  Danza Kuduro (feat. Lucenzo)  3:19
+03.  Afric Simone  -  Hafanana  2:53
+04.  Самоцветы  -  Всё, что в жизни есть у меня (DJ Nejtrino & DJ Baur Remix)  4:36(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563AD66F8FA50BA3DB3FDC6127B1F2A37AAFDE38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086766   (156390) от 24.12.2017
 
 VA - Снежная Новогодняя история (1956-2017) (24CD) от DON Music (2017) [MP3|320 Kbps] <Ретро, Советская Эстрада, Поп>
@@ -629,122 +745,6 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33818CB5C21C551332B481890E402846B45B4CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194740   (154201) от 26.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 20) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Вахтанг Кикабидзе  -  Пожелание  3:13
-02.  Эдуард Хиль  -  Так уж бывает  2:24
-03.  Марк Бернес  -  Любимый город  2:30
-04.  Олег Даль  -  Есть только миг  3:18(   Читать дальше...   )Жанр: PopПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE9F1A3EBF419A2F0361BEC084C1B43F742367F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194789   (154190) от 26.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 21) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Георг Отс  -  Мы с тобой не дружили  2:50
-02.  Татьяна Дасковская  -  Прекрасное далёко  4:08
-03.  Олег Даль  -  И солнце всходило  3:20
-04.  Вахтанг Кикабидзе  -  Проводы любви  3:25(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C2AB983E0F19262CDB1BD4CD847693B9B8471D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347000   (154152) от 22.12.2019
-
-VA - The Official UK Top 40 Singles Chart 20.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LadBaby - I Love Sausage Rolls New Entry
-02. Stormzy - Own It (feat. Ed Sheeran Burna Boy)
-03. Lewis Capaldi - Before You Go
-04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1040607993AEC9AF89EA326206B768710A3A4E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518501   (153983) от 20.12.2021
-
-VA - The Official UK Top 100 Singles Chart 17.12.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153983.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran, Elton John - Merry Christmas
-002. Adele - Easy On Me
-003. Wham! - Last Christmas
-004. Mariah Carey - All I Want for Christmas Is You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5853511D48D16CD15D7A0F73C6F90555D0A99DFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1285015   (724774) от 24.02.2019
+
+VA - Tech House Electro Sessions (2019) [MP3|320 Kbps] <Electro, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Interfacer - Truck
+002. Kid Massive - Hideway
+003. Luca Beni - Always That Boogie
+004. Ilias Takahamovic - Shuck(   Читать дальше...   )Жанр: Electro, Tech HouseПродолжительность: 08:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C971D7FED5C4C29FE66303B9AD3CBDD80F10AEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285012   (724770) от 24.02.2019
 
 VA - Stelllar Atmosphere Of Trance (2019) [MP3|320 Kbps] <Trance, Electro>
@@ -716,35 +745,6 @@ VA - Beatport Trance  Pack (28.04.) (2017) [MP3|320 Kbps] <Trance, Energy, Tech 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:292427FE6ED8C5B44541FCE504375E39EBEFF78C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129473   (722619) от 28.04.2017
-
-VA - Chill House Original Electro Mix 2017  [MP3|320 Kbps] <Downtempo, Chillout, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722619.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Krokodile Krugel - U and Me (Marcelo Wallace Remix)
-002. Dr. Beat - Be a Better You
-003. Maa - Elasia
-004. Flacoustics - Timewalking(   Читать дальше...   )Жанр: Downtempo, Chillout, Deep HouseПродолжительность: 08:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F623C3C35A266A1711E662E1AE2A839B2E40579
 ```
 
 https://mybot314.ru/tekegram_catalog/

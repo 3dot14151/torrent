@@ -1,3 +1,33 @@
+###  Публикация: 173688   (948628) от 08.02.2010
+
+Pink Floyd - Wish You Were Here (1975) [AC3 5.1|448kbps]<Psychedelic Rock / Art Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948628.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shine on You Crazy Diamond (Part 1) — 13:32
+2. Welcome to the Machine — 7:33
+3. Have a Cigar — 5:24
+4. Wish You Were Here — 5:17
+5. Shine on You Crazy Diamond (Part 2) — 12:29Жанр: Psychedelic Rock / Art Rock
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089737   (948627) от 05.01.2017
 
 Холодное сердце (2016) HDTV [H.264/1080i] (серии 1-2 из 2)
@@ -666,32 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBC2A79403D33FD8DA61B77BA3068EC36D30FCAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362724   (948419) от 24.02.2020
-
-Серия Кубков NASCAR 2020. 2-й Этап. Пеннзоил 400 / Nascar Cup 2020. Pennzoil 400 presented by Jiffy Lube (23.02.2020) WEB-DL [H.264/720p-LQ] (2020)
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948419.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 этап Nascar Cup, Pennzoil 400 presented by Jiffy Lube, Las Vegas Motor Speedway (267 laps, 400 miles).Телекомпания: A21 NetworkЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Продолжительность: 03:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981F66393D62D859A8584662C33027C575E95FEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

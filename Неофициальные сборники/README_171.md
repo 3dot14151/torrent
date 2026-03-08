@@ -1,3 +1,177 @@
+###  Публикация: 1012110   (795416) от 29.04.2016
+
+VA - Bass Killer 5 (2016) [MP3|320 кб/с] <Dubstep, Electro House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795416.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Awoltalk & Croix — Midnight Special (Original Mix) (3:36)
+ 2. Baby Eazy-E3 — Gangsta Gangsta (Dr. Fresch Remix) (3:21)
+ 3. Botnek — Clickbait (Original Mix) (3:33)
+ 4. BURNS — Beauty Queen (Original Mix) (3:21)(   Читать дальше...   )Жанр: Dubstep, Electro House, TrapПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5039AA0FA06D883BA76583B255F79C7AE4E43E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012156   (795415) от 29.04.2016
+
+VA - Новая Русская Дискотека - 2 (2016) [MP3|320 кб/с] <Поп, Диско, Танцевальный>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Синти Тайм - Жду Тебя
+02. Студия-80 - Я не жалею
+03. M.D.Project & Gurcan Erdem - Зима Достала (M.D.Project Italo Disco mix)
+04. Аркадиас - Художник(   Читать дальше...   )Жанр: Поп, Диско, ТанцевальныйПродолжительность: 05:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B7223E3810C84F45E865D3AF074729097CBE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011948   (795400) от 29.04.2016
+
+VA - My Favourite Hits of 1963 (4CD) (2016) от DON Music [MP3|320 кб/с] <Jazz, Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795400.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Beatles - Please Please Me (01:59)
+002. Salvatore Adamo - La Nuit (03:19)
+003. The Searchers - Love Potion No. 9 (02:03)
+004. Roy Orbison - In Dreams (02:48)(   Читать дальше...   )Жанр: Jazz, Pop, RockПродолжительность: 04:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010144C871CAF502A2FC59FCEEF6A73B294B3FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011870   (795390) от 29.04.2016
+
+VA - Super Disco DFM (2016) [MP3|320 кб/с] <Dance, Club, Pop, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795390.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 50 Cent Vs. Dj Kuba & Neitan - Disco Inferno Party On! (Aquila Mash-Up)
+002. Flo Rida Feat. Sam Martin - Dirty Mind (Esquire Remix)
+003. Fly & Mr.Chuck Feat Leo Grand - Delight (Original Mix)
+004. Johnny Smart & Dj Metropalitan , Psy Vs. Alexx Slam & Tony Sky - Daddy (Johnny Smart & Dj Metropalitan Mash-Up)(   Читать дальше...   )Жанр: Dance, Club, Pop, HouseПродолжительность: 08:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79C6FD3F7238A282654C9B9120DF589E72AEBD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200728   (795383) от 21.01.2018
+
+VA - Итоговый Еврохит TOP-100 от Европа Плюс за 2017 год (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795383.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rag'n'Bone Man - Human (03:19)
+002. Kaleo - Way Down We Go (03:40)
+003. Luis Fonsi feat. Daddy Yankee - Despacito (03:48)
+004. Ed Sheeran - Shape Of You (03:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F9076BB4BE79963A767BE3CE6B8F8063E1657F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386239   (795271) от 28.05.2020
+
+VA - Beatport Hard Dance: Sound Pack #96 (2020) [MP3|320 Kbps] <Hard Dance, Hardcore>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795271.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rob Iyf - Yade
+002. Francesco Zeta - Different Side
+003. Radical Redemption - Born Killers
+004. Vandal!Sm - Drums Of War(   Читать дальше...   )Жанр: Hard Dance, HardcoreПродолжительность: 08:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6C994F706B613F0552AE859E8B9EF48F7667BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386237   (795236) от 28.05.2020
 
 VA - Beatport Tech House: Electro Sound Pack #94 (2020) [MP3|320 Kbps] <Tech House, Deep House>
@@ -568,180 +742,6 @@ VA - Дискотека 2018 Deep House - The Best Vol.4 от NNNB (2018) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71B6E3A288253243C0ADAC2651870EDADB1F0F11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386507   (794482) от 29.05.2020
-
-VA - Sunset Lounge Sounds (2020) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794482.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Loungetrax - Spektralis
-002. Roberto Bronco - Wise
-003. Titus Koibra - Music Is All You Need
-004. Faro - Passion(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 07:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43006B3435DFB9EF1E0B558B876D4E05368B391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386534   (794433) от 29.05.2020
-
-VA - Music News vol.11 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794433.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abbe Lewis feat. Danny Baldursson & Jens East - Stay (03:28)
- 002. Alec Benjamin - I'm Not A Cynic (02:17)
- 003. Alexander Popov & Enzo feat. Cari - Stranger Inside (03:15)
- 004. Alina - Больно, Но Весело (03:03)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA93A0FBEB9904658539724BDDA37FAD1912CF5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386276   (794432) от 29.05.2020
-
-VA - Piano Ballads (2020) [MP3|320 Kbps] <Rock, Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794432.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jose James - I Found a Love (3:44)
-2. Leela James - Fall for You (3:25)
-3. Matt Maltese - In a New Bed (3:41)
-4. First Aid Kit - A Long Time Ago (4:01)(   Читать дальше...   )Жанр: Rock, Pop, OtherПродолжительность: 05:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300FE2F60DEACE6CEAC43630ADD5C413F067A5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386511   (794426) от 29.05.2020
-
-VA - Song Of The Most: Pop Music (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794426.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anita Parker - Oihukatu
-002. Avril Lavigne - We Are Warriors
-003. Charli Xcx - Claws
-004. Glasperlenspiel - Immer Da(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274067F4572A1669C79349D401A2104834E42CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386478   (794423) от 29.05.2020
-
-VA - Music for You vol.1 (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Theater - The Enemy Inside (06:17)
- 02. Jordan Rudess - Wired For Madness pt. 1 (11:46)
- 03. Dream Theater - Viper King (Bonus track) (04:01)
- 04. Dream Theater - Scene Eight The Spirit Carries On (06:38)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 05:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160E4144F8C4DE05EE005D668B269291D330CEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386484   (794402) от 29.05.2020
-
-VA - Led Zeppelin & worshippers - Live! (2020) 3CD [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - Heartbreaker (2007 Remastered Live Version from The Song Remains The Same)
-02. Led Zepagain - Immigrant Song
-03. Led Zeppelin - Over The Hills And Far Away (2007 Remastered Live Version from Song Remains The Same)
-04. Letz Zep; Billy Kulke; Andy Gray - Immigrant Song (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 24:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC0C51AF5946255DDFCA73F8CFD4E66765E476E
 ```
 
 https://mybot314.ru/tekegram_catalog/

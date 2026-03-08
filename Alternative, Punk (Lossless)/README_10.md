@@ -1,3 +1,32 @@
+###  Публикация: 996596   (879090) от 14.03.2016
+
+3 Doors Down - Us And The Night (2016) [FLAC|Lossless|image+.cue] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Broken (2:47)
+02. In The Dark (3:44)
+03. Still Alive (2:42)
+04. Believe It (3:22)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C3BA7E5BD07F97D33064D57BB8794680029B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105987   (874997) от 18.02.2017
 
 Electric Guest - Plural (2017) [FLAC|Lossless|tracks + .cue] <Indie, Rock, Synthpop, Electronic>
@@ -714,35 +743,6 @@ Asking Alexandria - Stand Up And Scream (2009) [FLAC|Lossless|image + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:678AEC4F30FE0E471EC1088D9E597797006C151D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378443   (846605) от 25.04.2020
-
-Paloma Faith ‎ - A Perfect Contradiction (2014) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Blues, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Rely On You (03:15)
-02. Mouth To Mouth (04:24)
-03. Take Me (03:10)
-04. Only Love Can Hurt Like This (03:53)(   Читать дальше...   )Жанр: Indie Rock, Blues, AcousticПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151C2C568BEE749714E80285ECBFD755570640E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

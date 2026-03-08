@@ -1,32 +1,3 @@
-###  Публикация: 768379   (690898) от 14.05.2017
-
-Warrant - 9 Studio Albums, 2 Live Albums, 1 CDS, 3 Compilations (1989-2017) [MP3|320 кб/с]<Glam Metal, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690898.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989 - Dirty Rotten Filthy Stinking Rich (Remastered 2004)
-1990 - Cherry Pie (Remastered 2004)
-1992 - We Will Rock You (Japan, CDS)
-1992 - Dog Eat Dog(   Читать дальше...   )Жанр: Glam Metal, Hard Rock, Heavy MetalПродолжительность: 11:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4BA305F6366E25B1A2A6EB2C1194F0C6BC1B959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028382   (690862) от 22.06.2016
 
 Erik Norlander - Surreal (2016) [MP3|320 кб/с] <Symphonic Prog Rock, Electronic Rock>
@@ -745,6 +716,35 @@ Kaleo - A/B (2016) [MP3|320 кб/с] <Alternative Rock, Indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F8F16A3B02B663417B36FC65EFE69F00B5DA80A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134375   (689570) от 15.05.2017
+
+Nullingroots - Take Care (2016) [FLAC|Lossless|image + .cue] <Post-Black Metal, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689570.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Why Have You Gone? 02:15
+2. 47 Years Stripped Away 12:00
+3. Faded Days 03:16
+4. Please Respond 08:27(   Читать дальше...   )Жанр: Post-Black Metal, ShoegazeПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204B3AA474527A503C89F9DB08CCF662E76CFDAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1236846   (553839) от 20.07.2018
+
+VA - TOP Non-Stop 2010-2015 - Trance. Volume 1. Set Of New Feelings (2016) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paronator - Sunset (original mix edit) [3:23]
+02. Timmy & Tommy feat. Leila - Perfect Motion [8:02]
+03. Embliss - Lemonakia [7:04]
+04. 16 Bit Lolitas - Snake Inverter [6:37](   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2ECAF5BF1599A9C1D88B742949AC63BD1210C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236847   (553836) от 20.07.2018
 
 VA - TOP Non-Stop 2010-2015 - Trance. Volume 2. Trance Around The World with Above & Beyond (2016) [MP3|256-320 Kbps] <Trance, Progressive House>
@@ -716,35 +745,6 @@ VA - LUXEmusic - Dance Super Chart Vol.83 (2016) [MP3|320 Kbps] <Club House, Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2D36F86909C1B2F52BDC5DA49AFC728DFFDE0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047559   (549256) от 30.08.2016
-
-VA - Groove Moonshine Lightings (2016) [MP3|251-320 Kbps] <Club, Funky, Tech, Soulful, UK Garage>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lina Fouro - Bang Bang Baby 03:20
-02. Spencer And Romez - Give You My Heart (Extended Mix) 03:53
-03. Smile Davis - I Cant Get Home (Tnr House Mix) 04:37
-04. Armin Van Buuren Feat. Bullysongs - Freefall (De Hofnar Remix) 03:08(   Читать дальше...   )Жанр: Club, Funky, Tech, Soulful, UK GarageПродолжительность: 06:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC7DBD88CF8F9555E3A2D23AE1B8F1AE82757B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

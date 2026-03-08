@@ -1,3 +1,32 @@
+###  Публикация: 1169882   (401598) от 29.09.2017
+
+Machito & His Afro-Cuban Orchestra - Vacation At The Concord (1959) 2004, Verve [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_401598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guaglione [02:30]
+02. Cocktails For Two [02:32]
+03. Patricia [02:30]
+04. El Aji Caribe [02:04](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16DFEE234B252043EBACE163307819E891AE46D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565363   (401281) от 25.10.2012
 
 Cy Coleman - It Started with a Dream (2002) [APE|Lossless]<Vocal Jazz, Piano Jazz>
@@ -755,35 +784,6 @@ Bria Skonberg - With A Twist (2017) Sony Music/Okeh [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C31C36E6555604877FBD0C407DC374889EE08D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171882   (394929) от 06.10.2017
-
-Chris Barber's Jazz Band - he Original Copenhagen Concert, Odd Fellow Palæet, 1954 (1995) Storyville Records [FLAC|Lossless|tracks + .cue] <Dixieland, Revival>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Shall Walk Through The Streets Of The City [03:46]
-02. Bugle Boy March [04:07]
-03. St. George's Rag [03:49]
-04. Making Whoopee [05:32](   Читать дальше...   )Жанр: Dixieland, RevivalПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47FC917022401E5E7C422E796AF03C801C3B1FA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

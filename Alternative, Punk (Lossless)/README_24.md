@@ -1,3 +1,32 @@
+###  Публикация: 1139920   (658214) от 04.06.2017
+
+Earshot - Two (2004) [FLAC|Lossless|tracks + .cue] <Alternative, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658214.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wait (3:33)
+2. Tongue-Tied (3:46)
+3. Fall Apart (4:31)
+4. Someone (3:45)(   Читать дальше...   )Жанр: Alternative, Nu MetalПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F2F2C0E0A604F335E6B1A71BE8BDB4681E87EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515092   (655429) от 26.06.2012
 
 If These Trees Could Talk - Red Forest (2012) [FLAC|Lossless|tracks + .cue] <Post-Rock, Atmospheric, Math-Rock>
@@ -716,35 +745,6 @@ From Ashes To New - Day One (2016) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64371AA598D10540BDAAD48304A2ED71DB2D4BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541623   (643129) от 04.04.2022
-
-H.E.R.O. - Alternate Realities (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravity (4:04)
-02. Lead the Blind (feat. Philip Strand of Normandie) (3:42)
-03. Never Be the Same (3:54)
-04. Oxygen (3:41)(   Читать дальше...   )Жанр: Alt. RockПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBE4443F074945C6C5155064980D2CA46C712CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

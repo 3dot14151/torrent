@@ -1,3 +1,59 @@
+###  Публикация: 1416427   (367178) от 16.10.2020
+
+Zenker Brothers - Cosmic Transmission (2020) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Electro, Dub, Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Nothing Is Safe (05:54)
+ 02. Who’s In Control (04:31)
+ 03. Intense Incense (04:39)
+ 04. Natural Connection (04:47)(   Читать дальше...   )Жанр: Electro, Dub, Techno, AmbientПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB062A0CC405C16F27F8F8C1755B1BBCC5F0056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209333   (367048) от 16.10.2020
+
+Aeon Waves - Discography 14 Releases (2015-2020) Onset Audio, Mindtrick Records, Easy Summer [FLAC|Lossless|WEB-DL|tracks] <Ambient, Future Garage, Drum & Bass, Downtempo, Breaks>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthropocene (05:05)
+ 02. Degenerate (06:37)Тип издания: WEBЖанр: Ambient, Future Garage, Drum & Bass, Downtempo, Breaks •Продолжительность: 05:32:13 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888301D8350497F076284E82C481E3CDF5F33512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070517   (367013) от 07.11.2016
 
 VA - Lounge at Heart (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -690,64 +746,6 @@ Tensnake - L.A. (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House, Nu Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8F0C999D4895A18E35F55631ADA3FCADE32E12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416645   (365111) от 17.10.2020
-
-VA - Calm Evening Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Sundowner (Original Mix) (3:41)
-02. Michael E - Where the River Flows (Original Mix) (5:33)
-03. The Soul Crusaders - When the Night Falls (4:15)
-04. Chillson, Marc Hartman - New Beginnings (4:58)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1577CCB19A340B04DE80DD3AC91377450D6EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416582   (365104) от 17.10.2020
-
-VA - Restaurant Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabrielle Chiararo - Smooth Operator (Instrumental Mix) (5:04)
-02. Augusto Alves - Frias Palavras (3:44)
-03. Brazil Beat - Englishman in New York (3:52)
-04. Alfredo Bochicchio - Gentle Kiss (4:36)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F4070F8749F55FB722719BCA287C700F9A5CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

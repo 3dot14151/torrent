@@ -1,3 +1,61 @@
+###  Публикация: 1198775   (804406) от 13.01.2018
+
+Flyance Records - Label-Pack 10 Releases (2014-2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House, Ambient, Dub Techno, Acid House>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FK (08:54)
+ 02. CYFI (07:17)
+ 03. R2A (06:51)
+ 04. AE (05:55)Тип издания: WEBЖанр: TechnoПродолжительность: 00:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499887099B545662AE6F19C968650EAB171AE6E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010342   (804394) от 24.04.2016
+
+VA - Venera Music Vol.9 (2016) [MP3|320 кб/с] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Decyno - Trip 07:51
+02. A. Chagochkin - Give Me Key 04:59
+03. Chemical Poison - Skyward 07:01
+04. Creatique - Talskaf 05:34(   Читать дальше...   )Жанр: House, Tech House
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337D7EA374467BD850AA72B1B8E96A3B2EA7A1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010247   (804391) от 24.04.2016
 
 VA - Vocal EDM Party (2016) [MP3|320 кб/с] <House, Electro House, Vocal House >
@@ -687,64 +745,6 @@ Dark Soul - Take Control (2016) [MP3|320 кб/с] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBF5D5F8726FD48F6A1B3D3A308BFD9F570EA3E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010848   (802319) от 25.04.2016
-
-VA - Erotica Vol 2 (Most Erotic and Chillout Tunes) (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Body Language (04:12)
-02. Euphonic Traveller - Loungin@ La Rue Boissy dґAnglais (06:32)
-03. Florito - Saigon Morning (04:06)
-04. Piero - Fermer les yeux (05:20)(   Читать дальше...   )Производство: M-Sol RecordsЖанр: Downtempo, Lounge, ChilloutПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C1C5ADBA7A6BC298595C3AB32294D908873E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384364   (802313) от 20.05.2020
-
-Armin van Buuren - A State Of Trance 2020 (2020) 2CD, DJ Mix [FLAC|Lossless|tracks + .cue] <Electronic, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren & Fatum – Punisher (03:00)
-02. OTIOT – The Beginning (03:00)
-03. Protoculture – Inu (03:45)
-04. Assaf – Lost Souls (feat Nathan Nicholson - AVIRA remix) (03:32)(   Читать дальше...   )Жанр: Electronic, Trance, DJ MixПродолжительность: 02:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2563360452771E7E55CA913598E1F1541AF2D3D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

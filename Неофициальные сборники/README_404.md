@@ -1,3 +1,180 @@
+###  Публикация: 544707   (482766) от 11.09.2012
+
+VA - Cafe Music. Collection (9CD) (1999-2005) [MP3|192-320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482766.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:49) 01. Love's Theme
+(4:20) 02. You Will Remember Whom You Lonely
+(4:18) 03. Lilac
+(3:37) 04. Gather Around With Deep Feeling
+(4:48) 05. Loving You Very Much
+(4:43) 06. The Naval Port Night
+(3:10) 07. Waving The Girl Of Wings
+(4:28) 08. That Stretch Of Sea
+(3:56) 09. Snow
+(4:35) 10. Depend On(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DF02817E81C80E0545E07CEBEB7F588A2DD9E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405541   (482724) от 30.08.2020
+
+VA - Shazam Хит-парад Russia Top 100 Август (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482724.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bastard! - F..k That (3:38)
+002. Dabro - Юность (3:39)
+003. Dj Smash and Poёt - Беги (3:06)
+004. Isyan Tetick ft. Camila Bennetta - Patlamaya Devam (2:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0872BF663C48151F10F2D4D126A45053F9D7318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319457   (482709) от 12.08.2019
+
+VA - Rap Victorious (2019) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482709.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Future - Afterlife
+002. Emune - By Da Note
+003. Rich The Kid - World Is Yours
+004. Mike Stud - Saved From The City(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 10:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95726F9020F8EE98DD92C2F601426A6EF90DE7AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544510   (482649) от 11.09.2012
+
+VA - New Age Style. Erotic Lounge 4 (2012) [MP3|320 кб/с]<New Age, Chillout, Downtempo, Erotic, Relax>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: New Age, Chillout, Downtempo, Erotic, RelaxПродолжительность: 03:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5903DB4F27A1B2E44B7F4284B232B91C359D2807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566585   (482337) от 29.07.2022
+
+Sonic Dream - Compilation (2022) [MP3|320 Kbps] <Pop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play Your Game
+02. Gravity
+03. Hide And Seek
+04. Oh, Baby All(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECF1F582D6B7E065661FDB1694492137DC2E326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244390   (482086) от 01.09.2018
+
+VA - German Top 100 Single Charts 31.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482086.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynoro & Gigi D'Agostino - In My Mind
+002. Bonez MC x RAF Camora - Risiko
+003. Bonez MC & RAF Camora - 500 PS
+004. Capital Bra - Melodien (feat. Juju)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4309CE710B781DD79DE0117B5A8A66ADC03179B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056230   (481985) от 25.09.2016
 
 VA - 100 Extreme Essentials Hits (2016) [MP3|242-320 Kbps] <Club, Progressive, UK Garage, Commercial, Indietronica, Bassline>
@@ -589,183 +766,6 @@ VA - Старые Песни По Новому vol.9 (2017) [MP3|320 Kbps] <Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1147F43C90CC2381178CE1D38890D3F50F4F374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546409   (480867) от 12.09.2012
-
-VA - Absolute Club Autumn Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LMFAO Feat. Chuckie - Make Somee Champagne (Staner Edit) [04:19]
- 02. Magnus & Timon - Triangle (Original Mix) [06:28]
- 03. Mike Candys feat. Sandra Wild - Sunshine (Fly So High) (2012 Original Mix) [04:22]
- 04. Matvey Emerson - Together (Igor Voevodin Remix) [06:41]
- 05. Nicky Romero & Zedd - Human (Original Mix) [04:17]
- 06. Mooresonny - Boom Stabs (Original Mix) [06:03]
- 07. Pulsedriver feat. Jonny Rose - Sound Of Celebration (Balkan Mix) [04:36]
- 08. Nicola Fasano, Steve Forest & Die Hoerer feat. Joel Edwards - We Belong (Original Mix) [06:15]
- 09. Vova Baggage feat. Arina Volchek - Closer (Radio Edit) [04:07]
- 10. Phase Difference - I'm Cleaning My Desk (Ahmet Sendil Edit) [06:15](   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11BB239CCEB4A5A7D4DA03065E2BC6867903E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056236   (480679) от 25.09.2016
-
-VA - Дискотека 80-90 годов по-новому (Dj Ikonnikov - E.x.c Version) (38) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Fugitive (Dj Ikonnikov E.x.c Version) (06:45)
-02. Вячеслав Диденко и гр. Компания - Девушка (Dj Ikonnikov E.x.c Version) (05:00)
-03. Boney M - Blue Beach (Dj Ikonnikov E.x.c Version) (04:08)
-04. C.C. Catch - House Of Mystic Lights (Dj Ikonnikov E.x.c Version) (03:01)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED07E647431DC25C4E4F611DF3F4234622A8395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545582   (480387) от 12.09.2012
-
-VA - Record Superchart № 257 (08.09.2012) [MP3|320 кб/с]<Electro House / Trance / Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro House / Trance / DanceПродолжительность: 02:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11DB64F088C7015590D168632883893E335ED32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566620   (480347) от 30.07.2022
-
-VA - В машине с музыкой Vol.291 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dianova - Танцуй (03:17) 2022
-02. Аркадий Грейк  - Губы Маки (02:59) 2022
-03. Charlie Puth  - Light Switch (Natty Rico Remix) (03:00) 2022
-04. Бьянка Feat. & Vesna305 - Мальчик На Баду (02:53) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0B9522F50DF744227FC67C0252A3F80F493C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938547   (479997) от 19.09.2015
-
-VA - Trance Desire Volume 55 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn & Eskova - One More Night (Original Mix) (07:46)
-02. Meridian And Vidoven With Tiff Lacey - Phoenix (Original Mix) (07:39)
-03. Andy Moor & Somna feat. Amy Kirkpatrick - One Thing About You (Original Mix) (05:54)
-04. Emma Louise - 17 Hours (Luigi Lusini Remix) (06:36)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D709929AA43DF7516D8BEE16234BBF24EC7EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159939   (479942) от 22.08.2017
-
-VA - Festival Tropical Fiesta (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479942.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Uberjak'd - Twisted (Robert S Bootleg)  3:54
-002.  Robert Miles - Children  4:03
-003.  KSHMR & JDG feat. Mariana Bo - Kolkata  3:26
-004.  MAKJ & Michael Sparks - Space Jam (feat. Fatman Scoop)  3:38(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15D87259630D1A2435F9110BCE0851499CCF3F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1236306   (554708) от 16.07.2018
-
-Bon Jovi (Jon Bongiovi) - Hollywood Dreams (2018) Scene [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Said It Would Last Forever
-02. Open Your Heart
-03. Stringin' A Line
-04. Don't Leave Me Tonight(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715B9790DA82B06357BA6BBFA202DE0914A3625B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307844   (554691) от 11.06.2019
 
 Hardbone - Tailor-Made (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -743,6 +714,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57F1DFC078A75381DB79986F89390EE04F45D95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046387   (553055) от 26.08.2016
+
+Chariot - Chariot (1971) Reissue, 2007, Radioactive [MP3|320 Kbps] <Rock, Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553055.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yolanda Jones
+2. You Let Me Love You
+3. Gamblin' Man
+4. The War Is Over(   Читать дальше...   )Жанр: Rock, Blues Rock, Hard RockПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180E79C6E52A285826FE36BECC5548A1A725391D
 ```
 
 https://mybot314.ru/tekegram_catalog/

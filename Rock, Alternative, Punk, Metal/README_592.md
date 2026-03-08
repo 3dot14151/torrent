@@ -1,32 +1,3 @@
-###  Публикация: 1567364   (474548) от 02.08.2022
-
-Turbo - Tozsamosc (2004) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Powitanie
-02. Ach! Nie badz taki smialy
-03. Wszystko bedzie OK
-04. Kawaleria Szatana II(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5358DB5C86541093B3966644F086F41E27892B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567345   (474543) от 02.08.2022
 
 Mordred - The Noise Years (2021) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Thrash Metal, Funk Metal>
@@ -744,6 +715,35 @@ Thousand Thoughts - The First Wave (2020) EP [MP3|320 Kbps] <Alternative Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A3328C411EBFE34F739E0F75F7136A008B50EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406558   (473070) от 04.09.2020
+
+Killer Deal - First One's Free (2020) [MP3|320 Kbps] <Blues Rock, Psychedelic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473070.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. It Could Be Better (3:27)
+2. Four Before the Train (3:18)
+3. Heavy Road (5:54)
+4. Stay Too Long (3:50)(   Читать дальше...   )Жанр: Blues Rock, Psychedelic Rock, Hard RockПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D5344BDBAE4FFFAAB1FEB97C1C97DE96DB5840
 ```
 
 https://mybot314.ru/tekegram_catalog/

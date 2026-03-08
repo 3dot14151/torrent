@@ -1,3 +1,116 @@
+###  Публикация: 1548306   (598198) от 03.05.2022
+
+VA - La Perla De Musica: New Latin (2022) [MP3|320 Kbps] <Latin, Dance, Reggaeton>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжетная линия музыки этого сборника буквально нашпигована этническими мотивами латино, но наложено это на вполне себе европейский бит и бас. Авторам очень удачно удалось использовать схожесть народных инструментов с различными современными электронными "фишками" и они очень удачно это обыграли.001. Anuel Aa - Nunca
+002. J. Balvin - Blanco
+003. Sech - Relacion
+004. Manuel Turizo - Una Vez Mбs(   Читать дальше...   )Жанр: Latin, Dance, ReggaetonПродолжительность: 08:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97F2F7E5ED9A053C63EDC845532196C9404E2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914440   (598168) от 02.07.2015
+
+VA - Summer Pop Mania (2015) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Major Lazer X DJ Snake Feat. MO - Lean On
+02. Fabio XB & Liuck Feat. Christina Novelli - Step Into The Light
+03. CJ Stone - Sound Of Infinity
+04. Madcon Feat. Ray Dalton - Don't Worry(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1741C29846D6680727EE3A50C2E89E3A5715BF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548224   (598019) от 03.05.2022
+
+VA - Music News vol.185 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598019.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anna Krishtal - Выходной От Тебя (02:57)
+ 002. 13Kai - Мишка (01:37)
+ 003. Adam feat. Mikki - Прошу Постой (04:09)
+ 004. Alan Walker - The Drum (03:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A5D2570089CBB9325252FDE09CE7257E1F9C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914331   (597993) от 02.07.2015
+
+VA - (OST - Score) Sonic Adventure 2 (2001) [MP3|320 кб/с]
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип собранный из Lossless качестваЖанр: Electronic / RockПродолжительность: 03:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A21FEB7A6ADAD561A671A78FC9121471EA78C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526341   (597811) от 24.07.2012
 
 VA - Волна Свежести 50/ 50 (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -669,122 +782,6 @@ VA - Зайцев.Нет - Лучшие Новинки Июля (2017) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFFE6B681F02C5F3B361F2059532C582DFDDDBE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233070   (593843) от 28.06.2018
-
-VA - World Of Latin Music (2018) [MP3|320 Kbps] <Latino, Pop, Hip Hop, Reggaeton>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593843.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lartiste - Catchu Catchu
-002. Veronica Vega, Pitbull - Wicked (DJ Papi Electric Club Remix)
-003. Luis Fonsi - Echame La Culpa
-004. Vakero - Anaisa (DJDX)(   Читать дальше...   )Жанр: Latino, Pop, Hip Hop, ReggaetonПродолжительность: 08:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D5C8F7B0C121413B07C17648B26C6F749DA9B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549232   (593819) от 06.05.2022
-
-VA - Music News vol.186 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593819.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Воробьёв - Сумасшедшая (Remix) (02:50)
- 002. 52Ghz - Будь Счастливой (03:03)
- 003. AIZZO - Voices in My Head (02:17)
- 004. Alderyn & Sick Individuals feat. Oscr - Tu Es Partout (03:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA34DBB91914A331495394D8169AF8FFE24CDF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549117   (593747) от 06.05.2022
-
-VA - 90's Love Songs (2022) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babyface - Wonderful Tonight (3:42)
-02. Mariah Carey - My All (3:50)
-03. Bonnie Raitt - I Can't Make You Love Me (4:44)
-04. Richard Marx - Right Here Waiting (4:22)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A062FF6A325DDBC885EF78011425650AEADE6DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300231   (593699) от 05.05.2019
-
-VA - не Громкие новинки недели 14 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593699.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Павел Мурашов - Девочка В Красивом Платье (4:44)
-2.Kamazz - Первое Свидание (4:26)
-3.VAVAN (Владимир Селиванов) - Как Хорошо (Grue & DJ Jungo Remix) (4:03)
-4.Дмитрий Фомин - Открывая Окно (4:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B924A3B0B15D045A49B935EACEF1F4309A5238E
 ```
 
 https://mybot314.ru/tekegram_catalog/

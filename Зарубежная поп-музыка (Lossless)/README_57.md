@@ -1,3 +1,32 @@
+###  Публикация: 1064919   (423479) от 21.10.2016
+
+Lady Gaga - Joanne (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Elecrtronic, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamond Heart (3:30)
+02. A-YO (3:27)
+03. Joanne (3:16)
+04. John Wayne (2:54)(   Читать дальше...   )Жанр: Pop, Elecrtronic, Rock, Dance, Pop RockПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB7CD6B2DB376FED10F11F6F682C079FE061210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411620   (423155) от 27.09.2020
 
 Will Butler - Generations (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -716,35 +745,6 @@ Fergie - Double Dutchess (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA49AA2576545E221EF97FD7B31F7F194301B47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413303   (410002) от 03.10.2020
-
-Robson Green - Moment In Time (2002) [FLAC|Lossless|image + .cue] <Rock, Pop Rock, Folk Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410002.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:13] 01. Love Hurts
-[3:31] 02. Make It With You
-[3:18] 03. Me And Mrs. Jones
-[3:45] 04. If Tomorrow Never Comes(   Читать дальше...   )Жанр: Rock, Pop Rock, Folk Rock, BalladПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F36DC1CA284E146E27FDC937AAC1D90FAAD061
 ```
 
 https://mybot314.ru/tekegram_catalog/

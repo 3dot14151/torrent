@@ -1,3 +1,61 @@
+###  Публикация: 1273970   (798776) от 04.01.2019
+
+310 - SMoKE DoGS (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Experimental, Ambient, Future Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SMoKE DoGS Theme (04:33)
+02. Put Down That Phone (03:27)
+03. Amaroq (05:00)
+04. Chin Music (04:27)(   Читать дальше...   )Жанр: Downtempo, Experimental, Ambient, Future JazzПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159738922D44D124668A8BC4D13FE402B156FC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273986   (798774) от 04.01.2019
+
+Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, Electro, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bugsmasher (04:50)
+ 02. Katacomb (05:43)
+ 03. Oceans 1300 (05:59)
+ 04. Taipei (05:22)Жанр: Breakbeat, IDM, Electro, AcidПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1F4FB8CE808F4B3C601E0283ECDD460023E187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273856   (798772) от 04.01.2019
 
 Oren Ambarchi - Grapes From The Estate (2004) Touch [FLAC|Lossless|tracks+.cue] <Glitch, Ambient, Minimal, Acoustic>
@@ -687,64 +745,6 @@ VA - Infrasonic Progressive Selection Volume 6 (2018) [MP3|320 Kbps] <Trance,Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CA14CAA7E4D37FE412CC1487D24987F15E1A149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199940   (797534) от 18.01.2018
-
-Tioan - Cinemagic (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tioan - Connect (Original Mix)
-02.Tioan - Echo Help (Original Mix)
-03.Tioan - Eleutheria (Original Mix)
-04.Tioan - Platonic (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9B540D351B37643A725BC7ABF0065B2BBDDDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199967   (797532) от 18.01.2018
-
-VA - We Are Trance - January (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DIM3NSION – Once a Day
-02. Ralphie B. – Homestead
-03. Mike Saint-Jules – Luna
-04. Solarstone – A State of Mind(   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE89823B49E0352029A96AF25E14CA75136B895
 ```
 
 https://mybot314.ru/tekegram_catalog/

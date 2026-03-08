@@ -1,3 +1,61 @@
+###  Публикация: 1207543   (780552) от 18.02.2018
+
+Алсу - Алсу (1999) Переиздание, 2001, J.R.S. [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Осень
+02. Когда любовь ко мне придет
+03. Босиком
+04. Зимний сон(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE66267001B4A2A6C60F92D501B4C64AB6CC6952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207602   (780546) от 18.02.2018
+
+Eros Ramazzotti - Duets (2017) Compilation [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eros Ramazzotti feat. Tina Turner - Cose Della Vita (Can't Stop Thinking Of You) 4:50
+02. Eros Ramazzotti feat. Nicole Scherzinger - Fino All'estasi 3:46
+03. Eros Ramazzotti feat. Giorgia - Inevitabile 3:56
+04. Eros Ramazzotti feat. Anastacia - I Belong To You (Il Ritmo Della Passione) 4:26(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3237C933BC43E6328A7E7ECFE07673E60CC813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207695   (780397) от 19.02.2018
 
 На-На - По накатанной (2018) EP [MP3|320 Kbps] <Pop>
@@ -683,65 +741,6 @@ VA - ZYX Italo Disco New Generation Vol. 11 (2017) 2CD [MP3|320 Kbps] <Italo-Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D75BE753BC2045380AA1A641A2B1209B2CCF54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209947   (779106) от 28.02.2018
-
-Donna Summer - The Journey. The Very Best Of Donna Summer (2003) 2CD [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Донна Саммер, настоящее имя - Ла Донна Адриан Гэйнс - американская певица, исполнявшая композиции в музыкальных направлениях ритм-н-блюз и диско. Наибольшим успехом пользовались её танцевальные записи со второй половины 1970-х и до начала 1980-х годов, изменившие лицо популярной музыки. Донну Саммер называли «королевой диско».
-Донне Саммер принадлежит рекорд по количеству (   Читать дальше...   )01. Love To Love You Baby (3:24)
-02. Could It Be Magic? (3:56)
-03. I Feel Love (3:49)
-04. I Love You (3:19)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 02:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8089811D95BCDF3B286250F7346AD07E4C681133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209923   (779102) от 28.02.2018
-
-A-Teens - Teen Spirit (2001) [MP3|320 Kbps] <Pop, Europop, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upside Down (3:16)
-02. ...To The Music (3:23)
-03. Halfway Around The World (3:40)
-04. Firefly (3:08)(   Читать дальше...   )Жанр: Pop, Europop, EurodanceПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7BE4A27425E88DFB3A75EDFCFEFB21DDFE4615
 ```
 
 https://mybot314.ru/tekegram_catalog/

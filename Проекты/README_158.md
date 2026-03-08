@@ -1,29 +1,3 @@
-###  Публикация: 897829   (670822) от 20.05.2015
-
-Проекты - VideoHive - Modern Fashion Promo - 10550361 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Fashion Promo проект для создания слайд шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB9E0EF89BD10406B440CC1A591445B852B86953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 899802   (670672) от 20.05.2015
 
 Проекты - VideoHive - Gold & Black Crystallized Glass Logo Reveal - 11316786 [AEP]
@@ -679,6 +653,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:940DCAB90A85DF3E213B9C076FACFFD04EF57776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137811   (666401) от 27.05.2017
+
+Проекты - VideoHive - Simple Words Slideshow - 19957475 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666401.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Simple Words Slideshow" - современный шаблон After Effects. Он поможет Вам создать оригинальное слайд-шоу из 12 фото заполнителей и 24 заполнителей текста. Имеется возможность настройки цвета фона, линий и текста.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB68280463ABFE2C7C4863949824E4709992B273
 ```
 
 https://mybot314.ru/tekegram_catalog/

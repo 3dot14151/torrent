@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1857773   (1059805) от 
+###  Публикация: 1857869   (1060057) от 07.03.2026
+
+VA - Pool Lounge 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lex Field - Memories (3:16)
+02. Fatten Klaus - Getting Better (5:30)
+03. KMÖBA - Moments (3:56)
+04. Ballester - On the Edge (3:18)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FCB02AE85F664EE27E80F6C3D3295A84DF3AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857893   (1060056) от 07.03.2026
+
+VA - Poolside Lounge 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anka - Gravity (3:04)
+02. The Fly - No Go Back (2:43)
+03. Kevin Havis - Without (2:14)
+04. Johny Luv - Ocean Drive (3:22)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55B085B9AE1926FC8E5417F8F4FF020B3D421BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857773   (1059805) от 07.03.2026
 
 VA - Ibiza Spring 2026 (Deep-House Smoothies from the Heart) (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
 
@@ -28,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857659   (1059765) от 
+###  Публикация: 1857659   (1059765) от 07.03.2026
 
 VA - Afro House Weekend Selection (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 
@@ -57,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857432   (1059677) от 
+###  Публикация: 1857432   (1059677) от 06.03.2026
 
 VA - Progressive Trance Awakening, Vol. 11 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
@@ -86,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857544   (1059656) от 
+###  Публикация: 1857544   (1059656) от 06.03.2026
 
 VA - Ori Uplift - Uplifting Only Episode 682 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
@@ -115,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857538   (1059655) от 
+###  Публикация: 1857538   (1059655) от 06.03.2026
 
 VA - Armin van Buuren - A State Of Trance 1267 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
@@ -688,64 +746,6 @@ VA - Uplifting Only Top 15: February 2026 (Extended Mixes) (2026) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A36CFEDEB379384E833E549AEA9BB864F3C2355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856277   (1058943) от 27.02.2026
-
-VA - Ori Uplift - Uplifting Only Episode 681 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ReOrder & Breakevin – Struggle for pleasure
-02. Manuel Rocca & NELLY TGM – Love Is In The Air (Pre-release Pick)
-03. SoundLift – Horizonte (Andy Blueman Remix) (Orchestral Uplifting Classic)
-04. Ciaran McAuley & Deirdre McLaughlin – Why Do We Hide (Fan Favorite (675))(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCB763452631C8D08497B35FC4C78013A94E17D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856354   (1058931) от 27.02.2026
-
-VA - The Orient Collective: Organic Rituals (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Slick - Astral Illusion (7:18)
-02. Michael Simon - Umami (6:45)
-03. Indiano - Astral (8:04)
-04. Tibetania - Magic Amulet (5:11)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BFAB8E8DC9AC236E81A2A967DD9FE1339BEB98
 ```
 
 https://mybot314.ru/tekegram_catalog/

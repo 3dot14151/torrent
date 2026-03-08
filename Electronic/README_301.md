@@ -1,3 +1,61 @@
+###  Публикация: 1247579   (451205) от 16.09.2018
+
+Aot-x - Per Aspera Ad Astra (2018) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulspice (03:32)
+ 02. Embrace Of Water (03:41)
+ 03. Electroveins (01:36)
+ 04. The Wildlife (05:59)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC53C4C7E54EC879D24C7402EF1EAF8A84994BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247700   (451203) от 16.09.2018
+
+The Digital Blonde - Neon (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Trance, Psy-Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcadia (Original Mix) (9:23)
+02. Autodrive (Original Mix) (7:43)
+03. Lavanta (Original Mix) (7:00)
+04. Serento (Original Mix) (9:12)(   Читать дальше...   )Жанр: Progressive Trance, Trance, Psy-TranceПродолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C48B3A38E8EDF327C95F5C1826B4B644FAA692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247593   (451202) от 16.09.2018
 
 Cabeiri - Temple Within (2018) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Progressive Trance>
@@ -711,64 +769,6 @@ VA - Progressive Ibiza (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C03075BE41D4AA729685CA3EBD695AC825A45244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247994   (448684) от 17.09.2018
-
-Armada Deep - Ibiza Closing Party (2018) [MP3|320 Kbps] <Minimal,Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448684.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yotto – The One You Left Behind (feat. Vok)
-2. Maya Jane Coles – Go on and Make It Through
-3. Lane 8 – The Disappearance of Colonel Mustard
-4. Jan Blomqvist – The Space in Between (Ben Böhmer Remix)(   Читать дальше...   )Жанр: Electronic, Deep House, HouseПродолжительность: 04:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A4701124F6890D53DB314F03E76F3141E72DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451096   (448579) от 14.08.2022
-
-Timmy Trumpet - SINPHONY Radio 001-077 (2021-2022) [MP3|320 Kbps] <Electro House, Hardstyle, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448579.jpg" />
-</div>
-
-
-###  Подробнее
-
-SINPHONY Radio 001
-01. Nick Strand & Mio & LUM!X - Annie Are You Ok (LUM!X Remix)
-02. Tom Westy - Tell Me
-03. Keanu Silva - Turn It Up(   Читать дальше...   )Жанр: Electro House, Hardstyle, Big RoomПродолжительность: 77:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7326B8005A51D175E1A16C1D2CDBB6F36A7F4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

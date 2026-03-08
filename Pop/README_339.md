@@ -1,3 +1,73 @@
+###  Публикация: 471113   (83651) от 22.03.2012
+
+Stefanie Heinzmann - Stefanie Heinzmann (2012) [MP3|320 кб/с]<Soul, Indie Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83651.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fire
+2. Diggin' In The Dirt
+3. Not At All
+4. Coming Up For Air
+5. Everyone's Lonely
+6. Another Love Song
+7. Stain On My Heart
+8. Second Time
+9. Ain't No Way
+10. Show Me The Way(   Читать дальше...   )Жанр: Soul, Indie Pop, Female VocalПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEACAABB41F9DEB9F7D2391D64BE8E8558C8586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470959   (83459) от 21.03.2012
+
+Michael Bolton - Gems: The Very Best Of (2012) [MP3|320 кб/с]<Pop-Rock | Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83459.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 :
+ 01. Soul Provider
+ 02. (Sittin' On) The Dock Of The Bay
+ 03. How Am I Supposed To Live Without You
+ 04. How Can We Be Lovers.
+ 05. When I'm Back On My Feet Again
+ 06. Georgia On My Mind
+ 07. Time, Love And Tenderness
+ 08. When A Man Loves A Woman
+ 09. Missing You Now(   Читать дальше...   )2012Жанр: Pop-Rock | BalladПродолжительность: 02:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86531B08ACAD656C4CAE67FC53798AD30DD537A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471096   (83458) от 21.03.2012
 
 VA - Звёзды царской эстрады (приложение к книге) (2011) [MP3|320 кб/с]<Retro>
@@ -799,76 +869,6 @@ Alphaville - 18 Legendary Hits (2003) [MP3|320 кб/с]<Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC3E4B25582975BFEAE1004EC74D695B4E997765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464852   (80961) от 09.03.2012
-
-Fancy - The Original Hit Collection (2007) [MP3|320 кб/с]<Disco, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames Of Love (4:03)
-02. Bolero (4:06)
-03. Slice Me Nice (5:27)
-04. Lady Of Ice (4:38)
-05. L.A.D.Y. O. (4:23)
-06. Chinese Eyes (4:29)
-07. Latin Fire (4:07)
-08. Bodyguard (6:27)
-09. Fools Cry (5:37)
-10. Way Of Love (4:26)(   Читать дальше...   )2007Жанр: Disco, PopПродолжительность: 01:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686800487AE1B343E3EDA7D1B14F9EFABFC46FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463191   (80695) от 07.03.2012
-
-ABBA - Collected (2011) [MP3|320 кб/с]<Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80695.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Продолжительность:00:55:52
-1. Ring Ring (English Version) (3:08)
-2.  People Need Love (2:45)
-3.  Love Isn't Easy (But It Sure Is Hard Enough) (2:56)
-4.  She's My Kind Of Girl (2:44)
-5.  Waterloo (English Version) (2:46)
-6.  Honey, Honey (2:56)
-7.  Dance (While The Music Still Goes On) (3:13)
-8.  Sitting In The Palmtree (3:40)(   Читать дальше...   )2011Жанр: Pop, DiscoПродолжительность: 03:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0689E137817D4648BBCB1F122EF11CD6BFAD868F
 ```
 
 https://mybot314.ru/tekegram_catalog/

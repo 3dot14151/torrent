@@ -1,3 +1,177 @@
+###  Публикация: 1223561   (669379) от 07.05.2018
+
+VA - Rock Ballads Collection от ALEXnROCK часть 1 (2018) [MP3|320 Kbps] <Rock,Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этим сборником начинаю коллекцию баллад. В него вошли самые чинные лирические рокерские песни на которых многие из вас выросли. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK001 Axel Rudi Pell - The Line
+002 Bon Jovi - Lie To Me
+003 Skid Row - I Remember You
+004 Joe Lynn Turner - Heart Of The Night(   Читать дальше...   )Жанр: Rock,MetalПродолжительность: 03:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55DE9A8F65EEB52F679CB24C87559B2DC35B4D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223965   (669370) от 07.05.2018
+
+VA - Club Dance Ambience Vol.145 (2018) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669370.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adri Blok - Be Good  (Original Mix)
+002. Ahzee feat. Emmaly Brown - Be mine  (Alexander Prinz Radio Remix)
+003. Alok, Zeeba & Iro - Ocean (Original Mix)
+004. Anthony El Mejor VS Denis Rublev - Солнце  (Extended)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053E38FC70B413AF32B5D8465B734524FDD3143D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223967   (669368) от 07.05.2018
+
+VA - Club Dance Ambience Vol.146 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669368.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Afgo - The Truth  (Moonsound Remix)
+002. al l bo - Man From The Moon (SeventhSense Remix)
+003. Alle Farben & RHODES - H.O.L.Y. (Mahmut Orhan Remix)
+004. Alok, Bhaskar & Jetlag Music Ft. Andre Sarate - Bella Ciao (Original Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E76748F471296CD8575B5EDB722636AC5D6914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137014   (669305) от 25.05.2017
+
+VA - Electro House Rarty. Volume. №2 (2017) [MP3|320 Kbps] <Club House, Electro House, Remix>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aine Aura - Uncover (Mountain Of Youth Remix)
+02. Croatia Squad - The Dance Machine (Original Mix)
+03. Dizco Dudes - World to Me (Radio Edit)
+04. Amade Landan - Inside (Original Mix)(   Читать дальше...   )Жанр: Club House, Electro House, RemixПродолжительность: 07:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1359D4D637C6FFCCC97F33D4B69F256C579A6D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537214   (669250) от 15.03.2022
+
+VA - Hipster Punk (Hipster Punk) [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это продукт рефлекторной попытки оглянуться назад и отыскать что-то светлое в прошлом, которая оборачивается довольно печальной констатацией факта, что и там на самом деле было мало хорошего. Но несмотря ни на что — это было не самое худшее время.001. Revenge Of The Psychotronic Man - Rrose Selavy
+002. The Thirtysevens - The Fools
+003. Grillijono K.O. - Kuluta Mut Loppuun
+004. Tove Lo - Are U Gonna Tell Her(   Читать дальше...   )Жанр: Punk, Rock Punk, AlternativeПродолжительность: 09:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F2FD6980C7607F8C9FDEC7E2A0CA233874CF676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137165   (669135) от 25.05.2017
+
+VA - Chillout Hits Vol.8 (2017) [MP3|320 Kbps] <Chillout , Chillstep , Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ArtSpace - Far Away (Paradise Mix)
+02. Gemma Hayes - Wicked Game (Aaron Static Bootleg)
+03. Golani - Red Moon (Original Mix)
+04. Marga Sol - Since You Are Gone(   Читать дальше...   )Жанр: Chillout, Chillstep, Chill HouseПродолжительность: 07:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A7DA201C79EF03C8AF12AA6178B100C66BC285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537218   (668977) от 15.03.2022
 
 VA - My Soul And Song: Rock Blues Compilation (2022) [MP3|320 Kbps] <Blues, Rock Blues>
@@ -564,180 +738,6 @@ VA - Interstellar Techno Mix (2018) [MP3|320 Kbps] <Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B30468B1BB956DF64A888178C243F26B261B4E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224100   (668094) от 08.05.2018
-
-VA - The Whisper Of The Ocean (2018) [MP3|320 Kbps] <Relax, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668094.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blank & Jones - Flowing (Original Mix)
-002. Masterio - Mountain (Original Mix)
-003. Singing Nomad - Lily (Original Mix)
-004. Alexander S. Karlov - I Sea(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 09:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8D0723E5FA0E4A389DCCA24C208D46BA0F3598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224075   (668009) от 08.05.2018
-
-VA - Зарубежный Хит В Машину (2018) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Lopez - El Anillo
-02. Jessica Mauboy - We Got Love (Австралия на «Евровидении-2018»)
-03. Aisel - X My Heart (Азербайджан на «Евровидении-2018»)
-04. Ariana Grande, Max Martin, Ilya Salmanzadeh - No Tears Left To Cry(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB95A119349A5C4DA70153DCFA9510BC343FC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137589   (667998) от 26.05.2017
-
-VA - Trance Attack 3.0 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tranc Eye - When The Sun Goes Down (Miroslav Vrlik Radio Cut) 3:19
-02.  7 Baltic - Elysium (Radio Cut) 3:08
-03.  Dan Delaforce - Shine Down (Radio Cut) 3:14
-04.  Maximal - Subject Lost (Radio Cut) 3:20(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A115178BB29AA14F248BB7D65E6EC3E2A8B9A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137357   (667940) от 26.05.2017
-
-VA - Eupforia: May Original Trance Party (2017) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667940.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Sixma - Requiem (Mark Sixma Presents M6 Remix) 2:48
-002. Ahmed Helmy - Lapetus (Radio Edit) 2:59
-003. Enlusion - Inverted Horizon (Radio Edit) 3:08
-004. Cubetonic Ft Dilara Gadel - So Strong (Radio Edit) 3:19(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 10:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34C4E5FA183C96EA6205670AFD718C30ABDE621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137458   (667938) от 26.05.2017
-
-VA - SpaceSynth & ItaloDisco Hits Vol.23 (2017) [MP3|320 Kbps] <Іtаlо-Dіsсо, Sуnthpор, Hі NRG>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  D.White - Generous Love (Extended Version) 7:13
-02.  Miko Mission - Rock Me Round The World (Club Version) 5:08
-03.  Ray Orion - A New Adventure Of Orion 5:53
-04.  Modern Tracking - Running Away 5:40(   Читать дальше...   )Жанр: Іtаlо-Dіsсо, Sуnthpор, Hі NRGПродолжительность: 04:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33964F404BF90D75103DF7055AF27539931166E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137333   (667927) от 26.05.2017
-
-VA - Star Marathon Spring Mix (2017) [MP3|192-320 Kbps] <Dance, Club, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667927.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sean Paul feat. Dua Lipa - No Lie (DJ Corto Radio Mix)
-002. The Weeknd Ft. Daft Punk - I Feel It Coming (Loud Bit Radio Edit)
-003. Fitz & The Tantrums - HandClap (D.Anuchin & Gilevich Radio Mix)
-004. The Chainsmokers & Coldplay - Something Just Like This (R3hab Remix)(   Читать дальше...   )Жанр: Dance, Club, Pop, HouseПродолжительность: 08:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A06C3745F6CDE27F36C83873060F643FAA9465
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,137 @@
+###  Публикация: 1834226   (248575) от 03.11.2025
+
+Ilaria Argento - Assorted (2025) [MP3|320 Kbps] <Pop, Dance,  rock, Other, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Qualcosa di vero
+ 02 - Fragilità
+ 03 - Let the love sing
+ 04 - Love is a stranger(   Читать дальше...   )Жанр: Pop, Dance,  rock, Other, AIПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D107DEA50122377FE4C1368B5DDE166753864003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493063   (248461) от 07.05.2012
+
+VA - Клубный Хит в Машину! Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Lopez feat. Adena - Lay Me Down (Extended Mix)
+02. Groove Breaks - Hands In The Ayer (Original Mix)
+03. Andrea Del Vescovo feat. Jay - Ibiza (Extended Mix)
+04. Phoenyx & Kunala - Feel (Original Mix)
+05. Marc Simz feat. Naomi Striemer - This Is Love (Radio Edit)
+06. Will.I.Am ft. JLO & Mick Jagger - Go Hard (R3hab vs The Eye Remix)
+07. Aura Dione - Geronimo (DJ RICH-ART Remix)
+08. Taito vs. Benny G - Make A Move (Original Mix)
+09. Инфинити - Другая (Extended Mix)
+10. Pascal & Pearce feat. Juliet Harding - Disco Sun2012Жанр: Dance, ClubПродолжительность: 05:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23587A09C11746AB2404814DD123E34810AD4AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493080   (248391) от 07.05.2012
+
+VA - Клубный Танцпол Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludovico Einaudi - Una Mattina (Alex D Remix)
+02. Rodion Suleymanov (Formula 2) & Seria - Формула Весны (Extended Mix)
+03. Froidz - Domino (Walker & Daniels Remix)
+04. DJ Oleg Klimov - Another Day (Fedor Smirnoff Edit)
+05. Sandro Silva & Oliver Twizt - Gladiator (Original Mix)
+06. Johnny Day feat. Matias Endoor & Evelyn - Only One (Marius Loves Club Mix)
+07. Fidel Wicked feat. MC Zali - Весна (Extended Mix)
+08. Ole Van Dansk - Boys Of Summer (Club Mix)
+09. Emil Lassaria & Caitlyn - Andale (Club Version)
+10. Remady & Manu-L feat. J-Son - Single Ladies (Bodybangers Club Mix)2012Жанр: Dance, ClubПродолжительность: 05:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C1864BCEB07F891135C33B7310024BB01E6DD36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492623   (248233) от 06.05.2012
+
+VA - Пиратская Станция Часть 13 (2012) [MP3|256 кб/с]<Pop,Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248233.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Егор Сесарев - Шаги
+002 Ruslan Nigmatullin - Kiss The Sun
+003 Саша Зверева & Sasha Dith & Steve Modana - Супербой
+004 Bodyrox feat. Chipmunk & Luciana - Bow Wow Wow (Bluestone vs Loverush Radio Edit)
+005 DJ M.E.G. feat. Сергеи? Лазарев & Тимати - Moscow to California (DJ Favorite Radio Edit)
+006 Aura Dione - Geronimo (The Disco Boys Remix Edit)
+007 Катя Чехова - Сердце тебе в ответ (Легкая версия)
+008 Bob Sinclar feat. Pitbull & DragonFly & Fatman Scoop - Rock The Boat (DJ Nejtrino & DJ Strang
+009 Мальчишник - Секс без перерыва (DJ Vengerov Remix)
+010 Jack Holiday & Mike Candys - Children 2012 (Original Higher Level Mix)2012Жанр: Pop,Dance, ClubПродолжительность: 06:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EBB5F70A58861F035D9DAB0020B1D66294225B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492791   (248146) от 06.05.2012
 
 VA - Готовься к Лету: СуперМегаДискотека (2012) [MP3|320 кб/с]<Alternative и др.>
@@ -688,122 +822,6 @@ VA - 100% Explode Dance Anthems (2016) [MP3|190-320 Kbps] <Electro-R&B, House, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAA65D4A3C393379368BC195BA6E3BF9F2D9C576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622892   (243964) от 30.03.2023
-
-VA - Morning Chill & Relax 3 (2023) [MP3|320 Kbps] <Pop, Chillout, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masego - Tadow (8:06)
-02. Cristoph feat. FEMME - Alone (7:05)
-03. Aurosonic, Katty Heath - My Good Place (7:00)
-04. Nu Aspect, Jamis, Poppy Baskcomb - Miss You (5:17)(   Читать дальше...   )Жанр: Pop, Chillout, OtherПродолжительность: 03:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9415C35B397B2DEE0259F820EBFC61390A449FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623441   (243607) от 01.04.2023
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 125 (2023) [MP3|320 Kbps] <Club, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. Audino, ELMY & Franz Kolo - Pump It Up (Extended Mix)
-02. Blondie - Heart of glass (Ayur Tsyrenov remix)
-03. Bob Sinclar - Rock This Party (Rakurs & EwellicK Radio Remix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5715394CE1599F5A8126F802625C53A779F53D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622148   (243603) от 30.03.2023
-
-VA - Country Dark Rock (2023) [MP3|320 Kbps] <Country, Blues, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Saraceno - Dogs of War [02:57]
-02. Dominic Marsh, Jonny Jones - Dark Cloud [02:21]
-03. Brother Dege - Too Old to Die Young [03:44]
-04. Chris Lewis, Dominic Marsh - Devil's Country [02:42](   Читать дальше...   )Жанр: Country, Blues, RockПродолжительность: 04:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A6A6DEAE147E4A875722F37B5FAE98C9196C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621981   (243545) от 30.03.2023
-
-VA - Top 100 DJs Chart (24-March-2023) (2023) [MP3|320 Kbps] <Pop, Dance, Electro, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta, Bebe Rexha - I'm Good (Blue)
-02. Wuki - Edge of Seventeen
-03. The Him, Oceans - Fool Me
-04. Mau P - Drugs From Amsterdam(   Читать дальше...   )Жанр: Pop, Dance, Electro, TechnoПродолжительность: 04:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C2D0EDE89227924E262E762FFCC7A1C746099A
 ```
 
 https://mybot314.ru/tekegram_catalog/

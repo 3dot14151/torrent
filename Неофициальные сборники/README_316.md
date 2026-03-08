@@ -1,3 +1,177 @@
+###  Публикация: 1145510   (621423) от 25.06.2017
+
+VA - Blues Collection 10 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supersonic Blues Machine - Let's Call It A Day (feat. Robben Ford)  (03:32) 
+02. Vargas Blues Band - Plegaria Para Un Niсo Dormido  (04:23) 
+03. Shaw Davis & the Black Ties - Missy  (04:21) 
+04. Oli Brown - All We Had To Give  (03:41) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B613CE0DD118E5AAB25EBAA833F2B4E921C57B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145362   (621221) от 25.06.2017
+
+VA - Старые Песни По-новому: Зарубежный Выпуск (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Eurodisco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  ATB pres. Daniel G. Sarr - I Want U (SQ-1 Mix)  6:49
+02.  2 Unlimited - No One (A. Kraft ReCover)  3:40
+03.  DJ Bobo - Love Is All Around (David May Mix)  3:23
+04.  Bad Boys Blue - From Heaven To Heartache (MC's Radio Edit) (feat. Brian Cornell)  3:55(   Читать дальше...   )Жанр: Eurodance, Euro-House, EurodiscoПродолжительность: 06:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C20A362971764B77BB3552DA6B1ECF1D1AB0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036458   (621169) от 20.07.2016
+
+VA - House EDM Witness Tech (2016) [MP3|~249 - 320 Kbps] <House, Funky, Progressive, Tribal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alessandro - Awake (Original Mix) 07:13
+02. 2Groove And Disord3r - Ready Or Not 05:05
+03. Loverdose - My Point Of View (Original Mix) 06:53
+04. Barry Obzee - Beat Da System 05:57(   Читать дальше...   )Жанр: House, Funky, Progressive, Tribal HouseПродолжительность: 07:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63339CA2DAE73B38FF44FF988260F8460D5310F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036317   (621165) от 20.07.2016
+
+VA - Best Cocktail Party Music: Lounge and Jazzy Moods Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonic Elements - Until The Morning
+02. Flip Segers - Tumbao
+03. One Groove - Your Turn
+04. Port Grimaud Project - Think To A Girl(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAD70314AD48E564F38FC9EBA93986BB03AD53B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036455   (621164) от 20.07.2016
+
+VA - Works Receptor Liquid Body (2016) [MP3|243-320 Kbps] <Club, Soulful, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Kane - Echoes 07:00
+02. Nick Holder - Black Jazz #4 08:00
+03. Kush - Drive 07:09
+04. Askery Ft. Jax - Castle (Extended Mix) 04:52(   Читать дальше...   )Жанр: Club, Soulful, Nu DiscoПродолжительность: 08:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E765F5180831DF1246900059EDE8AF735B9A8B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036394   (621158) от 20.07.2016
+
+VA - Top Radio Charts Sublime Multigenre (2016) [MP3|320 Kbps] <Trance, House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren -  Eiforya (Talla 2xlc 140 Radio Edit) 2:45
+002. Talla 2XLC pres. Alan Walker -  Faded (DJ Aleksard Mashup) 6:35
+003. W&W -  Lift Off! (Radio Edit) 3:04
+004. Photographer -  Airport (Radio Edit) 4:43(   Читать дальше...   )Жанр: Trance, House, ProgressiveПродолжительность: 09:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991D8E84C97AAD7096B78155E4282E541577C117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036334   (621157) от 20.07.2016
 
 VA - Clubbing Designer Long Days (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -631,180 +805,6 @@ VA - 100 хитов в дорогу: Русский выпуск (2019) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3026A35349D2E9285B70C087B296547DDBC3D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145665   (619981) от 26.06.2017
-
-VA - About EDM Modern World (2017) [MP3|320 Kbps] <Club, Bigroom, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grooveandyes - Destroying Your Mind 06:49
-02. Dmitry Vertyagin - When The Sun Goes Down 03:52
-03. Craig Townsend & Jay Hubbard - Humanities Dictation (Original Mix) 08:05
-04. Dawid Web - Portu 07:14(   Читать дальше...   )Жанр: Club, Bigroom, Future HouseПродолжительность: 09:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCEE540FC0EC87AE07680170BDE961FA5E0D8F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145635   (619815) от 26.06.2017
-
-VA - Empire Records - Trap (2017) [MP3|320 Kbps] <Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis The Child feat. Ashe – World On Fire
-02. Dennis Kruissen – Falling in Love (De Hofnar Remix)
-03. Kendl – Drive Slow (Original Mix)
-04. Martin Garrix, Bebe Rexha – In The Name Of Love (Original Mix)(   Читать дальше...   )Жанр: TrapПродолжительность: 01:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0407A64DA52A9D4B4542F606B8E6B97961AF9230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145672   (619608) от 26.06.2017
-
-VA - Planet Disco (2017) [MP3|192-320 Kbps] <Disco, Italo-Disco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619608.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ace of Base - Cruel Summer (Dmitry Glushkov Remix)
-002. Digitronic - Disco Night
-003. Laura Pausini - It's Not Good Bye
-004. Boney M. - Gotta Go Home (Extended Version)(   Читать дальше...   )Жанр: Disco, Italo-Disco, EurodanceПродолжительность: 08:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7666C61693D41DE0DA22249C7006C62CBD3393E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145629   (619603) от 26.06.2017
-
-VA - Italo Disco Collection (2017) [MP3|320 Kbps] <Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619603.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Heaven42 - Dancing And Moving  5:07
-002.  D.White - All The Story Is History  7:07
-003.  Siberian Heat - In Your City (Maxi Version)  7:47
-004.  Boris Zhivago - Don't Look Back  5:46(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 09:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E912685C5DBF839DE18A69917033CC80B95DB0C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145572   (619599) от 26.06.2017
-
-Pet Shop Boys - UltraTraxx Remixes Side (2017) [MP3|320 Kbps] <Synthpop, New Wave, Europop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Paninaro (Ian Levine Mix)  9:54
-02.  One More Chance (Remix '88)  4:58
-03.  The Man Who Has Everything (Hypnotizer Remix)  10:16
-04.  Liberation (Deep Vocal Mix)  4:34(   Читать дальше...   )Жанр: Synthpop, New Wave, EuropopПродолжительность: 02:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0173C7CC15DF4314A7990819EDBA0EBA48C38717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036787   (619334) от 21.07.2016
-
-VA - The Ingredient Of Intellect Psy Trance (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motion Drive -  The Substance 7:59
-02. Nibana -  The Ingredient Of Intelligence 7:00
-03. Vini Vici -  Veni Vidi Vici (Future Frequency Remix) 7:50
-04. VOEK -  Before (Neelix Well Done Remix) 8:15(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 10:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275D3CD375E867F478D4EDF82D709F8823883141
 ```
 
 https://mybot314.ru/tekegram_catalog/

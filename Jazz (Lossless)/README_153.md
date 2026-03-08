@@ -1,3 +1,32 @@
+###  Публикация: 1238822   (544661) от 01.08.2018
+
+Michael Dease - Reaching Out (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something in Common [5:04]
+02. Live and Let Die [3:56]
+03. Morning Shade [5:56]
+04. Tipping Point [5:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15F828F604FBBDD18AAECCD4E467F1868DFDAFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238951   (543841) от 02.08.2018
 
 Joe Sullivan - 1945 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
@@ -720,35 +749,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CB4D26DED4378D7D3D1F9CF19F74C8DE8C17545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557599   (539191) от 16.06.2022
-
-Grover Washington Jr. - Come Morning (1981) Elektra [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East River Drive [4:46]
-02. Come Morning [4:56]
-03. Be Mine (Tonight) [6:26]
-04. Reaching Out [4:09](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10473E339E3AEE86B7453A31E6F6C117B0304E0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1702159   (116016) от 23.02.2024
+
+Al Corley - Square Rooms (1984) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Square Rooms (03:42)
+02. Hungry for Your Love (04:13)
+03. Lie Detector (03:31)
+04. One of a Kind (05:33)(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFCEDB3F613904BD03518B1B83BE13269522D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702063   (116005) от 23.02.2024
 
 Elsa Esnoult - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
@@ -716,35 +745,6 @@ Caroline Polachek - Desire, I Want To Turn Into You (2023) [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BC1538E18300F328F8ED4FCD474858D81A5A462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712068   (112285) от 01.04.2024
-
-Norah Jones - Visions (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Jazz Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All This Time
-02. Staring at the Wall
-03. Paradise
-04. Queen of the Sea(   Читать дальше...   )Жанр: Pop, Jazz VocalПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB8FA081139588403557715184ACC9B9E225460
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 906933   (641855) от 10.06.2015
+
+Elvin Jones - Going Home (2005) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shell Game [12:06]
+02. Going Home [04:55]
+03. Cross Purpose [03:38]
+04. You've Changed [08:39](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4BE5D3E347C5F998BCF3AB48567EBB3745EA2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906935   (641852) от 10.06.2015
 
 Will Downing - A Dream Fulfilled (2008) [FLAC|Lossless]<Jazz,  Funk, Soul>
@@ -726,41 +755,6 @@ Wayne Shorter Quartet - Beyond The Sound Barrier (2002 - 2004) 2005, Universal [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D001C20CB3C149CFE74E0101BD1AB396B4038E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518836   (639110) от 05.07.2012
-
-Al Di Meola & Leonid Agutin - Cosmopolitan Life (2005) [FLAC|Lossless]<Fusion, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_639110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuba Africa – [05:34]
-02. Cosmopolitan Life – [04:09]
-03. Nobody – [04:47]
-04. Price to Learn – [05:27]
-05. Tango – [03:54]
-06. Smile – [04:19]
-07. Portofino – [03:37]
-08. If I'll Get a Chance – [04:07]
-09. Blue River – [04:44]
-10. Shade of Your World – [06:16]Жанр: Fusion, Latin JazzПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

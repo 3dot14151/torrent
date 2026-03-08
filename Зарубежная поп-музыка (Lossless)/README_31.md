@@ -1,3 +1,32 @@
+###  Публикация: 1397898   (736685) от 24.07.2020
+
+Alekseev (Никита Алексеев) - 2 Альбома (2017 - 2019) [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моя звезда
+02. Так буває
+03. Целуй
+04. Как ты там(   Читать дальше...   )Жанр: РорПродолжительность: 01:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85ABAF18A145648F034AF33BD609E10E5E4D05A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 787181   (736673) от 17.05.2014
 
 VA - Pure... 60s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Soft Rock, Pop-Roc>
@@ -714,35 +743,6 @@ The High Violets - Heroes and Halos (2016) [FLAC|Lossless|tracks] <Alternative P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5716830C68EABE214377CB2FB5C86C8842957ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022169   (729511) от 01.06.2016
-
-Supermax - The Magic Of Supermax (2015) [FLAC|Lossless|tracks + .cue] <Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovemachine [08:37]
-02. Dance Dance Dance [03:43]
-03. African Blood [08:34]
-04. Hollywood [04:02](   Читать дальше...   )Жанр: Pop, Funk, ReggaeПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6169D82607655412C1751EB6EA70A83F078762
 ```
 
 https://mybot314.ru/tekegram_catalog/

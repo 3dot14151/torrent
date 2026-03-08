@@ -1,3 +1,61 @@
+###  Публикация: 1551947   (589000) от 18.05.2022
+
+Alan Morris - Made Of Light - The Best Of (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Morris feat. Jess Morgan - Made Of Light (Radio Edit) (4:08)
+02. Ana Criado & Alan Morris - Border Line (Radio Edit) (3:14)
+03. Alan Morris & Katty Heath - Captive Of Your Heart (Original Mix) (3:40)
+04. Alan Morris & Ellie Lawson - Find Myself In Losing You (Radio Edit) (3:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807F30BC62E02F8D7C4C35574403D45F43EE6BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917883   (588600) от 13.07.2015
+
+Dance With the Dead - Send The Signal [EP] (2014) [MP3|320 кб/с]<Electronic, Retro Wave, Dreamwave .>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588600.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. They're here (intro) 02:39
+2. Poison 04:40
+3. Not of this earth 04:17
+4. Space walk 04:42(   Читать дальше...   )Жанр: Electronic, Retro Wave, Dreamwave .Продолжительность: 00:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B71A4AE30362056CF986EB36A1BDBABF62083B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552199   (588556) от 19.05.2022
 
 Angelo Taylor - Alone in the Universe (2006) [MP3|320 Kbps] <Synthpop, Space, Ambient>
@@ -687,70 +745,6 @@ VA - Ibiza Chillhouse Party (2015) [MP3|320 кб/с]<Deep House, Chill House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70AA0D023ADC5627BC9FC7AE31249361F0AF9122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358256   (585898) от 02.07.2011
-
-DJ Kocmoc - Эксклюзивные Хиты Дискотек (MEGAMIX 80-90х) (2.07.2011) [MP3|320 kbps]<Club,Dance,Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585898.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Opus - Life Is Life (DJ Fisun Remix)
- 2 DJ Smash vs Lyube feat. Mc Shayon - Atas
- 3 Virus - Ty menya ne ischi (Free Dj's Rework)
- 4 Ruki Vverh - Ya Ne Otdam Tebya Nikomu (Insomnia Radio Mix)
- 5 Platinum Monkey & D.Tarasyuk vs Evgeniy Osin - Plachet Devushka v avtomate
- 6 Arash - Boro Boro (Dj Kirill Clash & Dj Dmitriy Nema Mash-Up)
- 7 Irina Saltykova - Serye Glaza 2011 (Aleksey Kraft Remix Radio Edit)
- 8 Dirty Impact vs. Royal XTC - Tom's Diner (PH Electro Remix)
- 9 Leprikonsy - Haligali (DJ Skafelnikof & DJ BooF Disco House Remix)
- 10 Yura Shatunov - Metel' v bol'shom gorode (MusicKey 2011 Edit Version)(   Читать дальше...)Жанр: Club,Dance,PopПродолжительность: 01:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E788646090BBB51417F368D338E2AFCA3F51C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040796   (585534) от 06.08.2016
-
-VA - Las Vegas Chillout Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585534.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kroner - Kirche im Dorf [04:08]
-002. Manchester Snow - Stranger [03:31]
-003. Paul Rays - Moon [05:28]
-004. Sine Tunes - Disk Store [03:12](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 15:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BD6B31AE0D5976B9777BB3D6346AD46C7480BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

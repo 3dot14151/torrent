@@ -1,32 +1,3 @@
-###  Публикация: 1556948   (556107) от 13.06.2022
-
-Level Above Human - Final Anthropic Principle (EP) (2009) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalyptic Esotericism
-02. In Corrosive Shapes
-03. Famished Tellus
-04. Dilapidated SpeciesЖанр: Death MetalПродолжительность: 00:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E1D5AE2C00E520027CE700C3D42AAE2D4D2883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556958   (556104) от 13.06.2022
 
 Hyrgal - Fin De Règne (2020) [FLAC|Lossless|tracks] <Black Metal>
@@ -746,6 +717,35 @@ Santana - Africa Speaks (2019) [MP3|320 Kbps] <Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:020DFDE5E11D9C00A1A8FE168B9F2A3CD444AE7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306506   (555391) от 06.06.2019
+
+Rammstein - Rammstein (2019) [FLAC|Lossless|tracks + .cue] <Neue Deutsche Härte, Industrial Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deutschland (5:23)
+02. Radio (4:37)
+03. Zeig Dich (4:16)
+04. Auslander (3:52)(   Читать дальше...   )Жанр: Neue Deutsche Härte, Industrial Metal, RockПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99421619AC8D1A469DD659178706F48878F8C64A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1028714   (688855) от 23.06.2016
+
+VA - Dream Music for Deep Sleep (2016) [MP3|320 кб/с] <Downtempo, Chillout, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholas Watson - New Wonders On Distant Planets
+02. Haven McInerney - Dream Float
+03. Joey Frybarger - Please Send Us a Signal
+04. Serge Ozeryan - Lost World(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 02:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310628CD86826D84A89D3CBB33DBF08CA634D240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028776   (688851) от 23.06.2016
 
 VA - Premium Electro Lights: Electro House Mix (2016) [MP3|320 кб/с] <Electro, Club House, Dance>
@@ -714,35 +743,6 @@ VA - Essential Synthwave (2022) [MP3|320 Kbps] <Electronic, Syntwave, Synthspace
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D119B9B1E1A54A03CBEC1CE35CCE0E5012B240A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535198   (686428) от 06.03.2022
-
-VA - The Techno Streaming Sound (Vol.03) (2022) [MP3|320 Kbps] <Techno, Electro, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы диджей, желающий создать хаос на танцполе и взорвать главную сцену любого фестиваля, то этот уже 3-й релиз от проекта Techno Streaming для вас. Треклист представляемого релиза включает целых 120 треков техно электроники от мастеров электронной сцены.001. Gregor Size - Haute Couture
-002. Tommy Sunsets - Extraction
-003. Rngd - Forward Motion
-004. History Of Beatrice - Monologue Of Tyrans(   Читать дальше...   )Жанр: Techno, Electro, MinimalПродолжительность: 13:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809A84DDA429D64DA755221B2F6DE376F997A122
 ```
 
 https://mybot314.ru/tekegram_catalog/

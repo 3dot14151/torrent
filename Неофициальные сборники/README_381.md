@@ -1,3 +1,177 @@
+###  Публикация: 1157934   (524643) от 13.08.2017
+
+VA - Фитнес - Хит Vol.3 (2017) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Coverage - Runaway (Black Due 2k17 Remix)
+02. Stereo Slam - 2U (Extended Mix)
+03. Nadia ( - Feel The Summer (Radio Edit)
+04. Lotus & Rene Rodrigezz ft. Pitbull - Light up the dark (Trillogee Remix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CAFD2C3FCCDC8DE7C9B991060FEF6708DA2C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157952   (524625) от 13.08.2017
+
+VA - Фитнес-Хит Vol. 2 (2017) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr Matt - Alcoholic Party (Original Mix)
+02. Ian Davecore feat. SPHUD - For That Booty (Original Mix)
+03. B17 - Echo (Original Mix)
+04. Lucas & Steve x Mike Williams x Curbi (Best-Muzon.cc) - Let's Go(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01830CB589118895062B57F99F774C25B0C902F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157848   (524600) от 13.08.2017
+
+VA - 150 Hip Digest: August Edition (2017) [MP3|320 Kbps] <Hip-Hop, Rap, RnB>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524600.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brian Angel - Fareal
+002. YFN Lucci - Key To The Streets
+003. Charlie Wilson - Smile For Me (feat. Robin Thicke)
+004. Kid Cudi - Frequency (Clean)(   Читать дальше...   )Жанр: Hip-Hop, Rap, RnBПродолжительность: 09:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3CAC45C6FE9718264692C39834588C593802D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240387   (524581) от 12.08.2018
+
+VA - The Official UK Top 40 Singles Chart 10.08.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - In My Feelings (03:39)
+02. George Ezra - Shotgun (03:22)
+03. DJ Khaled feat. Justin Bieber, Chance the Rapper & Quavo - No Brainer (04:26)
+04. Jonas Blue - Rise (feat. Jack & Jack) (03:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3990B6217989ECC5E82B785E58076829688E571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240374   (524538) от 12.08.2018
+
+VA - German Top 100 Single Charts 10.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capital Bra - Melodien (feat. Juju)
+002. Dynoro & Gigi D'Agostino - In My Mind
+003. Bonez MC & RAF Camora - 500 PS
+004. El Profesor - Bella ciao (HUGEL Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48ACBE0E55D13DF417715C4CF65ED3FE9E8C83E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240561   (524534) от 12.08.2018
+
+VA - Record Super Chart 548 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & Showtek feat. Vassy - Your Love 3:06
+02. Lucas & Steve - Source 4:22
+03. Don Diablo feat. Paije - People Say 3:09
+04. Tom Walker - Leave A Light On (Radiology Remix) 4:15(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C36A2DCC36308754069DD2046892D6324E38885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157921   (524489) от 13.08.2017
 
 VA - Beach House: 130 DJ Selection Progressive Mix (2017) [MP3|320 Kbps] <Progressive House>
@@ -571,180 +745,6 @@ VA - Endless Drive: Progressive Nation (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70982236E54495F5AB4A7516C6F2EBDBD0C32E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313458   (523711) от 09.07.2019
-
-VA - Summer Euro Fest (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523711.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danny Vera - Roller Coaster
-002. Jonas Brothers - Cool
-003. Felivers - Dobrze
-004. Jennifer Lopez - Medicine(   Читать дальше...   )Жанр: PopПродолжительность: 09:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFCA5D74A6078B4A25F5385CDCDC3FFE51E5278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313465   (523707) от 09.07.2019
-
-VA - Elegant Jazz Vol. 02 (2019) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523707.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Quincy Jones - Pleasingly Plump
-002. Quincy Jones - Close Your Eyes
-003. Eric Lau - Uploading
-004. Wynton Marsalis - Dinah(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 07:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC1ACF12C2E3D8B1274012F426DC8C39D81F9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240799   (523665) от 13.08.2018
-
-VA - Neon Fusion Original Summer Mix (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523665.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mykel Mars - Real Love (Club Mix)
-002. Fedo Mora & Tony T feat. Alba Kras - The Only One (Original Mix)
-003. Captain Basscut - Kola (The Mix)
-004. Geo Da Silva - Summertime (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B050B44D5099C0C7DFB3D3F948DBAD9ED505D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313466   (523651) от 09.07.2019
-
-VA - Elegant Jazz Vol. 03 (2019) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523651.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ligia Piro - I'm Beginning To See The Light
-002. Al Joshua - Johnathan
-003. Brass Monkey Brass Band - The Jaywalker
-004. Brian Bromberg - Is That The Best You Can Do(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 07:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F1B872509703AE6908C8F461491D38CC296590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559275   (523424) от 26.06.2022
-
-Garou - Compilation (2022) [MP3|320 Kbps] <Pop, Pop-Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Felure
-02. Pour L`amour D`une Femme
-03. Gitan
-04. Mise ? Jour(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 03:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F984900B767BDA8BC78538785B3183DF859515E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559631   (523421) от 26.06.2022
-
-VA - В машине с музыкой Vol.277 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shir  - Поцелуй
-02. Alice Merton  - Blindside
-03. Гнилаялирика  - Корабли
-04. Митя Фомин  - Быть Собой(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:27:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B5F06C973A21CB93BD5BDBABFDA4CF660A5844
 ```
 
 https://mybot314.ru/tekegram_catalog/

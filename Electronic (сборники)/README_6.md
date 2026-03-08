@@ -1,3 +1,32 @@
+###  Публикация: 1455696   (1025490) от 20.03.2021
+
+VA - Glow Party: Trance Favorites (2021) [MP3|320 Kbps] <Trance, Uplifting, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка сборника "Glow Party: Trance Favorites" подкупает своего слушателя чистотой звучания, продуманной аранжировкой и прекрасным вокалом. Треки приятно слушать, они мелодичны и определенно создают положительное мнение о своих создателях.001. Paul Denton & Will Rees - Fluidity
+002. Smith & Brown - Phobos
+003. Tranzlift & Alternate - High Arcturus
+004. Aura Infinity - Phosphor(   Читать дальше...   )Жанр: Trance, Uplifting, ProgressiveПродолжительность: 13:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5865BBAD625CDFFF5E0C02C72864622F7CE13C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455676   (1025394) от 20.03.2021
 
 VA - Remixes 2021 [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Night Tropic Party: Clubbing Techno Mix (2021) [MP3|320 Kbps] <Club, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9C308AA1F70E17858BAE7D6865764FF21BD0781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459329   (1023310) от 01.04.2021
-
-VA - Oceanica (2021) [MP3|320 Kbps] <Ambient, Meditative, Relax, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чрезвычайно красивая и атмосферная музыка релиза "Oceanica" идеально впишется в любую ситуацию и во всякое время. Лонгплей отличает большое количество технических особенностей и незначительные нюансы, вдаваться в которые попросту нет смысла, просто необходимо это слушать001. Hakobune - Nebulous Sequence
-002. Espionage - May 28th
-003. Tarotplane - Ritual Believer
-004. Grigoni & Hatakeyama - To The Brim(   Читать дальше...   )Жанр: Ambient, Meditative, Relax, New AgeПродолжительность: 08:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2F92A427EA781313D69C78474C74FE8845901D
 ```
 
 https://mybot314.ru/tekegram_catalog/

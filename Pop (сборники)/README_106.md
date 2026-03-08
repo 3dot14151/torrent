@@ -1,3 +1,32 @@
+###  Публикация: 1837576   (257957) от 17.11.2025
+
+Romantic Dreams - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Exactly the Way You Are
+ 02 - Madness Or Love
+ 03 - Ends Up By You
+ 04 - Starlit Promise(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A155683C60A3DDE3157160E4C229781C79BA5752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837565   (257956) от 17.11.2025
 
 Reyvi - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -812,41 +841,6 @@ VA - Двигай Попой 50\50 (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C7C90C820D5210FD1AF1D24AE4052A4B4120D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491773   (246513) от 04.05.2012
-
-VA - Весенняя Вечеринка Non-Stop (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246513.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Елена Лордес - Ангелы (3:57)
-2. Лолита Gold Feat. Юля Grand - Этим Летом (3:06)
-3. Шима - Океан (3:22)
-4. Женя Юдина Feat. Pawbeat - Небо Это Я (4:10)
-5. Вельвеt - Нанолюбовь (LaTrack mix) (4:15)
-6. Лера Массква - Про тебя (3:18)
-7. V2G Feat. Женя Юдина - На Осколках Планет (2:51)
-8. Валерий Меладзе - Потерян И Не Найден (4:02)
-9. Тимати Feat. Аида – Fantasy (3:02)
-10. Ольга Плотникова - Лето (3:30)2012Жанр: PopПродолжительность: 06:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97DD2B12862588BFFCF4316C6941E183B8DDCB73
 ```
 
 https://mybot314.ru/tekegram_catalog/

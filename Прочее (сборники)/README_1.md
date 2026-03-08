@@ -1,3 +1,119 @@
+###  Публикация: 1845785   (1051005) от 03.01.2026
+
+VA - Hard Rock: Steel Anthems (2025) [MP3|320 Kbps] <Hard-Rock, Metal, Core>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051005.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Drive - Mrclaps  - (01:52)
+ 002 Gasoline Tongue - Noah Vale  - (02:43)
+ 003 Berliner Suffmarsch - Krawallonkel  - (04:14)
+ 004 County Queen - Jay Rosaa  - (04:58)(   Читать дальше...   )Жанр: Hard-Rock, Metal, CoreПродолжительность: 11:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3483B0A3AD94B8EC8CE88C3E69B12E72E83E696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845572   (1050789) от 02.01.2026
+
+Ai - No name compilation part 39 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - This Heart is Weary
+02 - Stay
+03 - When I’m No Longer Here
+04 - I Miss You So(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 01:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76612176BCBFE76C6184AFCD600E0542D371A9E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845537   (1050788) от 02.01.2026
+
+Ai - No name compilation part 38 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Whispers in the Wind
+02 - My Foolish Heart Never Saw His Devotion
+03 - Hold Me Close, Don't Ever Let Go
+04 - At the End of the Wait(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 01:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE99E37B7DD8AEE82C04625120A4508F13D51C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845195   (1050786) от 02.01.2026
+
+Ai - No name compilation part 37 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You're Drifting Away
+02 - Fallen
+03 - The Way You Move Me
+04 - Hidden Flame(   Читать дальше...   )Жанр: Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, AiПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78FA0F11E941BC90C7D63C65DC10C77DB94FCF3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845086   (1050785) от 02.01.2026
 
 Ai - No name compilation part 36 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
@@ -629,122 +745,6 @@ VA - No name compilation part 21 Instrumental, Other (2025) [MP3|320 Kbps] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1AA58CBCBFAB7CF5CE18D7784270E934E72368C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841223   (1047845) от 09.12.2025
-
-VA - About Something Good (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047845.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Akmalov - Only You (04:54)
- 002. Butch U - Enemies (03:47)
- 003. Dj Jedy - Midnight Mirage (02:46)
- 004. DndmDavvi - Te Fuiste (03:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077009C7B9DB8BF00CDEBD028791E88395DB1DCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841040   (1047741) от 08.12.2025
-
-VA - Music News For Forum vol.151 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047741.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elvira T - Всё решено (Index-1 Remix) (02:34)
- 002. 5sta Family - Снова вместе (Index-1 Remix) (02:41)
- 003. ACHE - Монстр (02:17)
- 004. Akamas - Be There With You (01:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB758DD851E0E9FCB628FD12CBC605AAE848A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840057   (1047039) от 02.12.2025
-
-VA - VA - No name compilation part 18 Instrumental, Other (2025) [MP3|320 Kbps] <Instrumental, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smtve - No More Pain
-02 - Sergey Chekalin - Golden Autumn
-03 - Dj Artur - Violin Soul
-04 - Smtve - Silent From the Other Side(   Читать дальше...   )Жанр: Instrumental, OtherПродолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B2A3328E0F08F68001FA487F2EE082F8DBC0E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839685   (1046867) от 30.11.2025
-
-VA - National Pop Dance Music Vol.125 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046867.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nexz - O-Rly (02:46)
- 002. Elva Quinara - Aku Mencintaimu (03:34)
- 003. Wardiyan - Aku Relakan Dirimu (02:46)
- 004. Frace - Atraccion Prohibida (02:50)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 13:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844CF3F451F7DC66793C31D9209794E50DFBAF2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1711029   (60782) от 04.04.2024
+
+VA - 70s Throwbacks Hits (2023) [MP3|320 Kbps] <Pop, Disco, New Wave, Ballad, Classic Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ac/Dc - Highway To Hell 3:26
+02. Earth, Wind & Fire - September 3:32
+03. Michael Jackson - Don't Stop 'til You Get Enough 5:58
+04. Bruce Springsteen - Born To Run 4:27(   Читать дальше...   )Жанр: Pop, Disco, New Wave, Ballad, Classic RockПродолжительность: 08:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766086AC91BA6D81FA9AFD572C18DDA2E2A650D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714231   (60408) от 08.04.2024
+
+VA - Remix NNM 8 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GUMA - Люба любовь (WeLife & SONETS DJS Remix) (4:09)
+02. GAYAZOV$ BROTHER$ - Соседям (KHAN & BENCHI Radio Edit) (3:58)
+03. 5Утра & Rakurs & Ramirez - Не повезло (Alex Botcher MashUp) (3:57)
+04. Bakhtin - Целовала (Roman Max Extended Remix) (3:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5CC6AB5CA991D8ED66D95C826EFA64C64F2798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714069   (60382) от 08.04.2024
+
+VA - Цой агент ЦРУ - Трибьют (2014) [MP3|320 Kbps] <Rock, Tribute>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. РОвнА - Когда-то ты был битником [03:25]
+02. Алеся Давыдова - Просто хочешь ты знать [03:57]
+03. Брем Стокер - Твой номер [02:16]
+04. Відстань - Красно-желтые дни [04:46](   Читать дальше...   )Жанр: Rock, TributeПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD23F3AED459F470199780C1C86A0B6CD4D3FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714119   (60346) от 08.04.2024
+
+VA - Music News vol.362 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60346.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Havana feat. Yaar - I Lost You (EGGO Remix) (03:08)
+ 002. A36 feat. Estraden - Alla Vill (02:54)
+ 003. Abraham Mateo - Me Acuerdo De Ti (02:26)
+ 004. Abraham Mateo - Me Di Cuenta (03:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6123274FBCD39F8520CE7BF6E04C1C222E94AAFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713976   (60343) от 08.04.2024
+
+VA - Electronic compilation part 68 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dnb - Alisa
+02. Hamidshax - Amelia
+03. Rodle - Amore
+04. Arsh - Aurora(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC61B08D30A6D16A5A8475686470E0D46A42333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713076   (60333) от 08.04.2024
+
+VA - 2010s Throwbacks Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Rap, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60333.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mark Ronson, Bruno Mars - Uptown Funk (feat. Bruno Mars)
+002. Tom Odell - Another Love
+003. John Legend - All of Me (Ti?sto's Birthday Treatment Remix - Radio Edit)
+004. Miguel - Sure Thing(   Читать дальше...   )Жанр: Pop, Rock, RnB, Rap, DanceПродолжительность: 06:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A4C1A42F98108AB7FA9628680B3C80F3B29008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714099   (60258) от 09.04.2024
 
 VA - 60 minutes. Old School Dance Music vol.24 (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Dancecore, Hard Trance, Euro Trance>
@@ -570,180 +744,6 @@ VA - Music News vol.368 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74FFA16AB26B487F8B96A0C40EAB6EB161B7B852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717598   (58799) от 23.04.2024
-
-Mark Knopfler - Compilation (2024) [MP3|320 Kbps] <Rock, Blues Rock, Folk Rock, Country, Acoustic>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Going Home (Theme From Local Hero)
- 02.  Golden Heart
- 03.  Kingdom of Gold
- 04.  Redbud Tree(   Читать дальше...   )Жанр: Rock, Blues Rock, Folk Rock, Country, AcousticПродолжительность: 01:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41F9CE2C3281B49E796D781381688ADCBC7224C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717516   (58787) от 23.04.2024
-
-VA - Electronic compilation part 71 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davit Barqaia - After You
-02. Dj Aurm - Beautiful Girl
-03. Sls - Before I Die
-04. Besso - Close to You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F636229EF1787B3240D54650FD6AA8B0E50ED3ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718025   (58782) от 23.04.2024
-
-VA - Electronic compilation part 72 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umar Keyn - 13 Jours En France
-02. Besso - Chilled Dreams
-03. Celhis - Cry
-04. Besso - Dancing in the Dark(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93770A74BD020BABF09DFA8E7860E66E14D3119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716517   (58779) от 23.04.2024
-
-VA - Blues Melancholy (2024) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58779.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dаvе Williаms - Аll Whо Аrе Wеаry
-002. Dаrnеll Соlе - Sоngbird
-003. Lоnе Stаr Mоjо - Hеy Hеy
-004. Jеаn Раul Rеnа - Рареr Bаg(   Читать дальше...   )Жанр: BluesПродолжительность: 09:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D33E602DCB345AF3A0E01873232959ACCB6CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718908   (58379) от 27.04.2024
-
-VA - Весна на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dua Lipa - Training Season (Live at the BRIT Awards 2024) (3:39)
-02. Alan Walker feat. Daya - Heart Over Mind (3:09)
-03. Artik & Asti - Качели (3:46)
-04. R3Hab & Vize & Jp Cooper - Jet Plane (2:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B985A2640962E339D22D4CE367D494E31C9272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718495   (58352) от 27.04.2024
-
-VA - HITS AND MORE HITS 2024 (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teddy Swims - Lose Control (03:30)
-02. Benson Boone - Slow It Down (02:41)
-03. Dua Lipa - Training Season (03:29)
-04. Dasha - Austin (02:51)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB259C6C63A48E337A4A179D2059D15575EECD1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

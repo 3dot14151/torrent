@@ -1,3 +1,61 @@
+###  Публикация: 1203008   (491108) от 26.08.2020
+
+Enabl.ed - Discography 15 Releases (2010-2020) CleanError Records, M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infantil (02:20)
+ 02. Delicate Memory (03:43)
+ 03. Last Taste (02:31)
+ 04. wearegrateful (03:53)(   Читать дальше...   )Тип издания: WEB •Жанр: IDM, Glitch, Abstract •Продолжительность: 08:34:11 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE0F31C610FE1C798D4B6FA45F2C4B1C846D264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318351   (490988) от 08.08.2019
+
+A Hundred Birds - In The Sky (2005) [MP3|320 Kbps] <Ambient, Leftfield>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hundred Birds feat. TeN - Sweet Lullaby (5:56)
+02. A Hundred Birds feat. TeN - In The Sky (5:22)
+03. A Hundred Birds - Batonga Beautiful (7:03)
+04. A Hundred Birds - Jaguar (6:59)(   Читать дальше...   )Жанр: Ambient, LeftfieldПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B37155B892A63A9D65660C096DCE168E6163DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318559   (490888) от 08.08.2019
 
 Remix Sport Workout - Hard Body Training 2019 [MP3|320 Kbps] <Funky, Club House, Dance>
@@ -705,64 +763,6 @@ VA - Orient Chill Out, Exotic Secrets 2K16 (2016) [MP3|320 Kbps] <Downtempo, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F9E2D0C7608C87660B3098D91BC001F57089695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936936   (488321) от 15.09.2015
-
-VA - Sensualist Future Jazz Soft Chillout Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harry Maes - Somewhere
-02. Nicola Donchev - Stay With Me
-03. Michael Crowther - When the Moon Beckons
-04. Vincent Pace - A New Day(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA009378100E80B4C19B4046B89DF7F9DB67F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243860   (488286) от 29.08.2018
-
-VA - A Light, A Glimmer (2018) Polar Seas Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James A McDermid – Sere (05:07)
-02. Benoît Pioulard – As voice are static take (04:37)
-03. Celer – Of a Celestial Body (09:21)
-04. Anthéne – Whatever fire is Burning (04:40)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 02:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDFF559DDF28AF3951B059886CBE37914EDEEC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

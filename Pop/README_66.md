@@ -1,3 +1,58 @@
+###  Публикация: 1378823   (842976) от 27.04.2020
+
+Noémie Wolfs (ex.Hooverphonic) - Hunt You (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night [03:13]
+02. All You Ever Wanted [03:55]
+03. Sleeper [03:04]
+04. Burning [03:12](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:00.35.10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566775920D2F08A680AF640C4D4A07280039EB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379063   (842972) от 27.04.2020
+
+Владимир Пресняков - Первый снег (Моральный Кодекс Cover) (2020) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842972.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Первый снег (Моральный Кодекс Cover)Жанр: PopПродолжительность: 00:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADDF7D8AE801CE0A0F89F7241E467A8C8E8F5AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379060   (842911) от 27.04.2020
 
 Демо - Rarities (2020) [MP3|320 Kbps] <Pop>
@@ -693,64 +748,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05669D11B6B51782C31265EFD951EDC600204EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004272   (839754) от 05.04.2016
-
-Zodiac - Zodiac (1998) [MP3|320 кб/с] <Electronic, Euro House, Happy Hardcore>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Again    03:39
-02. Every Time I See You    03:06
-03. Make Believe    03:56
-04. All The Things You Do    03:33(   Читать дальше...   )Жанр: Electronic, Euro House, Happy HardcoreПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE88FCA3C9C984D2CF9224469D242FDCDD32EB62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995107   (839619) от 05.04.2016
-
-VA - DJ Collection 7 (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T-Spoon – Sex On The Beach (3:44)
-02. Robin Cook & Bluedream – Comanchero (3:33)
-03. Los Umbrellos – No Tengo Dinero (3:37)
-04. Touché – I Can't Get No Sleep (3:56)(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EB24B97CF1C33077EC3E513044CE91C9B0ADF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

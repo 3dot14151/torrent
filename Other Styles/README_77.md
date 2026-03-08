@@ -1,3 +1,32 @@
+###  Публикация: 1032824   (639698) от 10.07.2016
+
+Levon Minassian & Armand Amar - Songs from a World Apart (2005) [FLAC|Lossless|image + .cue] <Folk, World, Armenian Duduk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hovern'engan    05:08
+02.  Tchinares    05:47
+03.  Ar Intch Lav Er    06:15
+04.  Nare Nare    05:21(   Читать дальше...   )Жанр: Folk, World, Armenian DudukПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BD570D73B4A70E6D6D7C50CAE7333D175A6C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142847   (639464) от 16.06.2017
 
 Gary Stewart - Boy Cries Wolf (2010) [MP3|128 Kbps] <Folk, Country>
@@ -754,35 +783,6 @@ Neu! - Neu! Box (1972-1986) 2010 / Gronland Rec (1972-1986) [MP3|320 кб/с]<Kr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B037A0E60FE242FD575375A554611483D79A88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228556   (635697) от 01.06.2018
-
-Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dreams of sunbeams
-02 Cloud pictures passing by
-03 Spring break
-04 Ein Adler landet auf dem Mond(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB76D2E3D2C9694214111F099CA6180AB4DE8E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

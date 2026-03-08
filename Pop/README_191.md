@@ -1,3 +1,61 @@
+###  Публикация: 1319031   (488871) от 09.08.2019
+
+Piero - Welcome Piero (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jalousie (5:02)
+02. Angelina (4:46)
+03. Fly Away (4:05)
+04. Kriminal Tango (3:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131B2C60055A15417080F0AA67C26487A5CFC90C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319019   (488543) от 09.08.2019
+
+VA - 80's Dance Story Original Italo Hits (2010) [MP3|320 Kbps] <Italo-Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary Low - You Are A Danger (Original Extended Version) (8:46)
+02. Topo & Roby - Under The Ice (Original Extended Version) (7:12)
+03. Paul Sharada - Dancin' All The Night (Original Extended Version) (6:20)
+04. Bo Boss - Tequila (Original Extended Version) (6:26)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRGПродолжительность: 08:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8CDDBE22F52C8DF61E53C3E5E8E85A31D97905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055518   (488356) от 22.09.2016
 
 Ultimate - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
@@ -698,61 +756,6 @@ Kelly Lee Owens - Inner Song (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11692DB95D8E3861A8197DB8B4238954E471C5F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405085   (485484) от 29.08.2020
-
-VA - Relaxing Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey (Stripped Back) (02:51)
-02. Dua Lipa - Be the One (Acoustic) (03:12)
-03. Maisie Peters - Take Care of Yourself (Live Acoustic) (03:19)
-04. Jess Glynne - My Love (Acoustic) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 02:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1527E5BD937F2FE3FC8E348242832611667ACE3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405190   (485308) от 29.08.2020
-
-Dua Lipa & The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [MP3|320 Kbps] <Pop, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Nostalgia (Joe Goddard Remix)Жанр: Pop, Electronic, DanceПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7A3D31D15B7291DAE976F16C38CBEC5BE3E8FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

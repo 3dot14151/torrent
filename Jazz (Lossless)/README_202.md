@@ -1,3 +1,32 @@
+###  Публикация: 949957   (370508) от 26.10.2015
+
+Omer Avital Quintet - Live at Smalls (2010) [FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme For A Brighter Future (7:48)
+02. Magic Carpet (14:25)
+03. One (9:58)
+04. Bass Intro (4:54)(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99988415D10EFDFC8AA8537A9365A38C8750DE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950512   (370499) от 26.10.2015
 
 Dave Douglas - Moving Portrait (1998) /DIW/[APE|image+.cue]<Modern Creative, Avant-Garde Jazz>
@@ -716,35 +745,6 @@ Buster Smith - The Legendary Buster Smith (1959) Remaster, 2012, Warner[FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:344666AF0C65C5708178A6CD7AC95BF7E956DF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255122   (368437) от 16.10.2018
-
-Jonathan Zwartz - The Remembering & Forgetting Of The Air (2013) 2CD, Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368437.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Shimmer [6:06]
-02. Luminous [10:32]
-03. Wait Until the Morning [8:24](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44206D598F68E700CE622807322DD2E0270AF440
 ```
 
 https://mybot314.ru/tekegram_catalog/

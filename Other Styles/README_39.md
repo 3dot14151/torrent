@@ -1,3 +1,32 @@
+###  Публикация: 1118299   (811227) от 26.03.2017
+
+VA - Intimate Piano: Moonlight Love (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811227.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roger Williams - Ebb Tide (2:55)
+2. Ronnie Price, London Pops Orchestra - Full Moon and Empty Arms (3:38 )
+3. Roger Williams - Moonlight Love (Clair de Lune) (3:43)
+4. Norman Percival & Orchestra - Tennessee Waltz (2:23)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC1BB326DA39ACF2FC39DAEE1B858DD739F9B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118127   (811083) от 26.03.2017
 
 VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [MP3|320 кб/с]<Soundtrack>
@@ -713,35 +742,6 @@ Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F9C04A6A67540C02A61C065B022397D055E72F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119641   (805494) от 29.03.2017
-
-Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Rangers Theme (04:22)
-02. Seek Those Who Are Worthy (02:50)
-03. Zordon Awakes (02:15)
-04. It's Morphing Time! (03:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB33A94814C5E4C37EB3D9875E028207CC010328
 ```
 
 https://mybot314.ru/tekegram_catalog/

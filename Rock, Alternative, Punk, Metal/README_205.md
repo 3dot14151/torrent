@@ -1,32 +1,3 @@
-###  Публикация: 1371884   (888715) от 01.04.2020
-
-Dead by Monday - Dead by Monday (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Lost Generation
-02 American Horror Story
-03 Dreamseeker
-04 Bed of Nails(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0C6FE1FFFE22D834BC4595ECA42451BAE49FC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371754   (888713) от 01.04.2020
 
 Reactory - Collapse to Come (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -737,6 +708,35 @@ Haeres - Trom (2014) [MP3|320 Kbps] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBEA3A4D4465ABA554C3D5C149AED67DFFB9417E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103173   (887903) от 11.02.2017
+
+Jim Crean - Insatiable (2016) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Jamieson Intro (00:19)
+02. Insatiable (04:00)
+03. Caught In The Middle (04:01)
+04. Touch  (03:59)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFE657D1D994492958E1E13687A73D0A3EA1C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

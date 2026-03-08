@@ -1,3 +1,61 @@
+###  Публикация: 1231634   (604149) от 19.06.2018
+
+VA - Nuyileq VA 001 (2018) End Of Perception [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hydrangea - Lucid Dreams (08:20)
+ 02. Yuka - Dark Crystals (05:43)
+ 03. Viels - Divided (07:01)
+ 04. Blazej Malinowski - Different Path (07:34)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7927DFA6ECEA2D42C415FE6C4A1812F0C4D72F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297445   (604071) от 22.04.2019
+
+Blazej Malinowski - Entity (2019) Semantica Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entity (07:45)
+ 02. ADD (07:15)
+ 03. In Reverse (07:18)
+ 04. vurt. (06:20)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC320DD13E0E28F4332BA32F3318F81306D598D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297434   (604069) от 22.04.2019
 
 Eluize - Confide (2019) Craigie Knowes [FLAC|Lossless|WEB-DL|tracks] <House, Leftfield, Deep House, Acid>
@@ -687,64 +745,6 @@ VA - Lounge & Summer Vol. 1 (2019) [MP3|320 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7E00E18A18C5F997D35F7AD6AB1993B485D3CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297717   (603094) от 24.04.2019
-
-The Future Sound Of London - Yage 2019 (2019) FSOLdigital [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, IDM, Leftfield, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yage 2019 (07:22)
- 02. Floating Into Focus And Then Moving Away (03:15)
- 03. Purged (04:54)
- 04. We Flew Together (02:43)(   Читать дальше...   )Жанр: Abstract, Ambient, IDM, Leftfield, ExperimentalПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF01B51E7670BFA512B6187BB6ED32082BC92AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148927   (602971) от 08.07.2017
-
-VA - Ori Uplift - Uplifting Only 230 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etasonic - Farewell Forever (Intro Edit)
-02. Robert Nickson feat. Cat Martin - Every Sun (Factor B's Extended Perfect Sunrise Remix)
-03. First Sight - Contact
-04. Ikerya Project & O.B.M. Notion Feat Danny Claire - Goodbye(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935C9D5CA9F3B8B4AC26147AEE212748BB362543
 ```
 
 https://mybot314.ru/tekegram_catalog/

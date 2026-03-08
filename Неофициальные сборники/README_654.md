@@ -1,3 +1,177 @@
+###  Публикация: 1707670   (62693) от 17.03.2024
+
+VA - In Your Dreams: Deep House Session (2024) [MP3|320 Kbps] <Deep-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62693.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anton Lacosta - Play (00:02:13)
+002. Alex Menco - Don't Leave Me Alone (00:02:18)
+003. Kate Linch - You Hate Me (00:02:18)
+004. Levorica - Moonshield (00:02:32)(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 11:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A44012A5C7AC22533C080776CDDA5F07B557E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707676   (62691) от 17.03.2024
+
+VA - Good Morning (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62691.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dave Harrington - The Pictures (00:01:19)
+002. Adrian Lane - Marking Time (00:02:32)
+003. Ialaz - Interlude (00:01:50)
+004. Magnus Moone - Cave Paintings (00:02:01)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E8FE8582DC91C031CF06089AE23B381BD94AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707681   (62689) от 17.03.2024
+
+VA - Deep Astral (2024) [MP3|320 Kbps] <Chill, Electronic, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillout Music Cafe - Secret Paradise (00:01:54)
+02. Luna Dreamscapes - Captain's Cuddle (00:02:20)
+03. Afternoon Bike Ride - Bois Dormant (00:02:28)
+04. Salami Rose Joe Louis - Dimcola Reprise (00:02:31)(   Читать дальше...   )Жанр: Chill, Electronic, Relax, ExperimentalПродолжительность: 08:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16DAC8F1CCACE3EC63A9519525553069470975C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707505   (62648) от 17.03.2024
+
+VA - Easy Pop 00s (2024) [MP3|320 Kbps] <Pop, Dance, RnB, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coldplay - Sparks
+02. Michael Bublе - Home
+03. Jason Mraz - I’m Yours
+04. Uncle Kracker - Follow Me(   Читать дальше...   )Жанр: Pop, Dance, RnB, RockПродолжительность: 03:21:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BA1E1825D006B5EF65B95ECC7820833B0681AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707632   (62637) от 17.03.2024
+
+VA - Rock & Blues Rock compilation part 65 (2024) [MP3|320 Kbps] <Rock & Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trixie Whitley - Pieces
+02. Medicine Head - Alibi
+03. Geordie - Little Boy
+04. Trixie Whitley - Closer(   Читать дальше...   )Жанр: Rock & Blues RockПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9623A9838993F3E3F79985ECCC2BFC657E80AE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706239   (62634) от 17.03.2024
+
+VA - Reggae Sun music (2024) [MP3|320 Kbps] <Reggae, Ska>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62634.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bob Marley & The Wailers - Is This Love [03:51]
+002. Sticky Fingers - How To Fly [03:22]
+003. Madness - Our House [03:23]
+004. Damian Marley, Stephen Marley - Medication [03:43](   Читать дальше...   )Жанр: Reggae, SkaПродолжительность: 09:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB075DE97DA3F5616C85247D8B7F160833E6B8B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708058   (62395) от 20.03.2024
 
 VA - Свежий Русский Хит от ALEXnROCK часть 15 (2024) [MP3|320 Kbps] <Pop>
@@ -571,180 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 78 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69DA9F707922D06376E027287C5DBE3576802595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711029   (60782) от 04.04.2024
-
-VA - 70s Throwbacks Hits (2023) [MP3|320 Kbps] <Pop, Disco, New Wave, Ballad, Classic Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ac/Dc - Highway To Hell 3:26
-02. Earth, Wind & Fire - September 3:32
-03. Michael Jackson - Don't Stop 'til You Get Enough 5:58
-04. Bruce Springsteen - Born To Run 4:27(   Читать дальше...   )Жанр: Pop, Disco, New Wave, Ballad, Classic RockПродолжительность: 08:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766086AC91BA6D81FA9AFD572C18DDA2E2A650D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714231   (60408) от 08.04.2024
-
-VA - Remix NNM 8 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GUMA - Люба любовь (WeLife & SONETS DJS Remix) (4:09)
-02. GAYAZOV$ BROTHER$ - Соседям (KHAN & BENCHI Radio Edit) (3:58)
-03. 5Утра & Rakurs & Ramirez - Не повезло (Alex Botcher MashUp) (3:57)
-04. Bakhtin - Целовала (Roman Max Extended Remix) (3:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5CC6AB5CA991D8ED66D95C826EFA64C64F2798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714069   (60382) от 08.04.2024
-
-VA - Цой агент ЦРУ - Трибьют (2014) [MP3|320 Kbps] <Rock, Tribute>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. РОвнА - Когда-то ты был битником [03:25]
-02. Алеся Давыдова - Просто хочешь ты знать [03:57]
-03. Брем Стокер - Твой номер [02:16]
-04. Відстань - Красно-желтые дни [04:46](   Читать дальше...   )Жанр: Rock, TributeПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD23F3AED459F470199780C1C86A0B6CD4D3FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714119   (60346) от 08.04.2024
-
-VA - Music News vol.362 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60346.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Havana feat. Yaar - I Lost You (EGGO Remix) (03:08)
- 002. A36 feat. Estraden - Alla Vill (02:54)
- 003. Abraham Mateo - Me Acuerdo De Ti (02:26)
- 004. Abraham Mateo - Me Di Cuenta (03:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6123274FBCD39F8520CE7BF6E04C1C222E94AAFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713976   (60343) от 08.04.2024
-
-VA - Electronic compilation part 68 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dnb - Alisa
-02. Hamidshax - Amelia
-03. Rodle - Amore
-04. Arsh - Aurora(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC61B08D30A6D16A5A8475686470E0D46A42333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713076   (60333) от 08.04.2024
-
-VA - 2010s Throwbacks Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Rap, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60333.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Ronson, Bruno Mars - Uptown Funk (feat. Bruno Mars)
-002. Tom Odell - Another Love
-003. John Legend - All of Me (Ti?sto's Birthday Treatment Remix - Radio Edit)
-004. Miguel - Sure Thing(   Читать дальше...   )Жанр: Pop, Rock, RnB, Rap, DanceПродолжительность: 06:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A4C1A42F98108AB7FA9628680B3C80F3B29008
 ```
 
 https://mybot314.ru/tekegram_catalog/

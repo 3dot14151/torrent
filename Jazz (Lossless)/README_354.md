@@ -1,3 +1,32 @@
+###  Публикация: 1797675   (66707) от 18.05.2025
+
+Kenny Dorham - Four Classic Albums: Second Set (1955 - 1961) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling in Love [9:12]
+02. I'll Remember April [12:06]
+03. Larue [4:30]
+04. My Old Flame [5:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E37676974D08B62DDCC14EEAD24FDA73E1CE509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797961   (66657) от 19.05.2025
 
 Chris Connor - Four Classic Albums Plus (1953 - 1956) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ VA - The Midnighters Vol. III (Last Chapter) (2025) Signora Ward Records [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FAFD45322D35381836616BB1B62A84CAAF923A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799760   (66375) от 29.05.2025
-
-Lowell Hopper - Opposite Direction (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Opposite Direction (4:33)
-02.  Midnight Breeze (4:37)
-03.  G. Vernon Burrell, Jr. - The Still Within (2:08)
-04.  Under the Moonlight (4:52)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13C33B746C72CDE48590347B09A1B709E5B6130
 ```
 
 https://mybot314.ru/tekegram_catalog/

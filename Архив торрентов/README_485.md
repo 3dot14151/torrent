@@ -1,3 +1,32 @@
+###  Публикация: 981810   (950107) от 02.02.2016
+
+ESA - Themes of Carnal Empowerment Pt. 3: Penance (2015) [FLAC|Lossless|WEB-DL|tracks] <Rhythmic Noise, Tribal, Techno, Industrial>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Men Will Only Break Themselves (08:46)
+02. Be Still and I Shall Tell You Why (07:12)
+03. The Tempters Triumph (06:35)
+04. Master, No Servant (06:37)(   Читать дальше...   )Жанр: Rhythmic Noise, Tribal, Techno, IndustrialПродолжительность: 01:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47543E2105D9C820DE46E68507DD6DA50976FFF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981974   (950102) от 02.02.2016
 
 Stargazers & Cynthia Hall - Scattered Pieces (2016) Single [MP3|320 кб/с] <Trance>
@@ -666,35 +695,6 @@ Germind - Elusive Shadows (2016) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B253FBE002E49484B779E4DEA354D90A030B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981873   (949825) от 02.02.2016
-
-A Tribe Called Quest - The Low End Theory (1991) [FLAC|Lossless|tracks + .cue] <Hip Hop, Conscious>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excursions (3:53)
-02. Buggin' Out (3:38)
-03. Rap Promoter (2:13)
-04. Butter (3:39)(   Читать дальше...   )Производство: Jive – 1418-2-JЖанр: Hip Hop, ConsciousПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AB0723C4997F2DFBD73824533C5B281F42492B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1146359   (616089) от 28.06.2017
+
+Way Out West - Tuesday Maybe (2017) [FLAC|Lossless|tracks + .cue] <Progressive House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Away (feat. Eli & Fur) (5:00)
+ 02. Set My Mind (3:42)
+ 03. Oceans (feat. Liu Bei) (5:01)
+ 04. Lullaby Horizon (5:13)(   Читать дальше...   )Жанр: Progressive House, DowntempoПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7455A8553A26721DFA016DE186E85F7AE9686E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146171   (615952) от 28.06.2017
+
+V.A. - Vintage Cafe: Lounge & Jazz Blends Vol.10 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cooltrane Quartet - Purple Rain
+02. Michelle Simonal - This Is What You Came For
+03. Stella Starlight Trio - Get The Party Started
+04. Michelle Simonal - When We Were Young(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65990ABAF8531D264034925F296D0881DCC23A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911654   (615857) от 23.06.2015
 
 Waveshaper - Exploration 84 (2015) [MP3|320 кб/с]<80's Retrowave, Synthwave, Electronic>
@@ -690,64 +748,6 @@ Entheogenic - Kykeon (2018) Universal Symbiosis [FLAC|Lossless|WEB-DL|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D34C41EC4108E228D70E0DB5961FFE8C187D46D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230551   (613864) от 13.06.2018
-
-Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Space>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Environment (06:10)
- 02. Road to Nowhere (04:18)
- 03. Solar Halos (05:01)
- 04. Beyond the Edge (05:14)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC12FDDEAF4B230D0F4EB810827EF2BA49E195B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037021   (613785) от 24.07.2016
-
-DeFilm - 2 Albums (1985, 1987) [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярная во второй половине 80-х. на родине и Западной Европе группа из Дании.
-Название происходит от частей слов названия старого датского театра - Kommende Film. Группа решила использовать театр как студию звукозаписи. Многие их сравнивают с норвежской группой "A-ha"Список альбомов:
-1985 - DeFilm
-1987 - Coming To Your Heart SoonЖанр: Electronic, New Wave, Synth-popПродолжительность: 01:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C797EE2AA06940722B55CDC3F92ED7B7EE2FD3CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

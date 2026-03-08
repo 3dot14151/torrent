@@ -1,3 +1,61 @@
+###  Публикация: 1623048   (243591) от 01.04.2023
+
+Armin van Buuren - Feel Again (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Wrabel - Feel Again (Extended Mix) [5:40]
+02. Armin van Buuren - Oumuamua (Original Mix) [5:26]
+03. Armin van Buuren & The Stickmen Project - No Fun (Extended Mix) [3:36]
+04. Armin van Buuren & Sam Gray - Human Touch (Extended Mix) [3:49](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6CAE07A0D4C5690158D372CB794F03C08C04623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076886   (243587) от 26.11.2016
+
+VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Sestertius [07:38]
+02. Ferry Corsten & Cosmic Gate - Event Horizon (Extended Mix) [05:40]
+03. Alex M.O.R.P.H. & Paul Van Dyk - We Are [07:20]
+04. Andy Moor & Somna - Look Back (Original Mix) [06:00](   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD962B83D3E9B46CD2823836EAA9BF0C9558DE36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612614   (243556) от 17.02.2023
 
 VA - Global Trance Masters Vol. 5 (2023) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Ibiza Opening Party 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F76A922ABE082D82114B2C4D13099C6E9D75FC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634194   (242437) от 21.05.2023
-
-VA - Armin van Buuren - A State Of Trance 1121 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & HRRTZ feat. Julia Church - Fire With Fire (Future Favorite)
-02. Super8 & Tab and Crowd+Ctrl feat. Jess Ball - Incomplete
-03. Kryder - The Eye Of Ra
-04. DIM3NSION - Stronger Now(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BC2DE68AC298BAEFC8BC4FAF9E8283EE60A317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624492   (242432) от 06.04.2023
-
-VA - Coastal Breeze: Chillout Your Mind (2023) FLAC [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Lazy Sundown (Original Mix) (2:28)
-02. Marga Sol - Day Dream (5:09)
-03. Michael E - Hands on Me (Original Mix) (4:38)
-04. Sayana - Again (5:46)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199CDDC050773C085C396BBB949CDCE038395D13
 ```
 
 https://mybot314.ru/tekegram_catalog/

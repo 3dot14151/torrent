@@ -1,3 +1,61 @@
+###  Публикация: 1573285   (414638) от 30.08.2022
+
+Various - The Best Of Italo-Disco Vol. 4 (1985) [OGG Vorbis|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betty Miranda – Dance	6:17
+02. Max-Him – Lady Fantasy (Remix)   6:33
+03. Koto – Visitors	6:18
+04. Camaro's Gang – Fuerza Major	5:36(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7DA0F3099DAA596BECE05EFDDB8F96B10801311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325263   (414481) от 14.09.2019
+
+Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M (2005) CD [MP3|320 Kbps] <Electronic, Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Woman No Cry (3:39)
+02. Mary's Boy Child (3:13)
+03. Heart Of Gold (3:27)
+04. Mandela (4:11)(   Читать дальше...   )Жанр: Electronic, Pop, VocalПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8728FEF74777C0FD8DBFBBCF46F49D7A493504C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573212   (414421) от 30.08.2022
 
 Mr.President - Up'n Away - The Album (1995) Remastered, 2022, Maschina Records [OGG Vorbis|485 Kbps] <Electronic>
@@ -684,64 +742,6 @@ CD1: HITS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10F4DD9149DCEC636AB110849B095A4F992F6447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066947   (409759) от 27.10.2016
-
-Oonagh - Märchen enden gut (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Ethno-Pop, Pop-Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aulë und Yavanna (3:36)
-02. Numenor (3:44)
-03. Das Mädchen und die Liebe (feat. Santiano) (2:56)
-04. Niënna (3:35)(   Читать дальше...   )Жанр: Pop, Folk, World, Ethno-Pop, Pop-Folk, Ethnic Fusion, Celtic, Fantasy MusicПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEEB14C4531832D3BC4D7F90449D3D13493F2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066878   (409757) от 27.10.2016
-
-Christina Aguilera - Stripped (2002) [APE|Lossless|image + .cue] <Pop, RnB, Pop Rap>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stripped (intro)
-02. Christina Aguilera feat. Lil’ Kim / Can't Hold Us Down
-03. Walk Away
-04. Fighter(   Читать дальше...   )Жанр: Pop, RnB, Pop RapПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BC38AF21E897F81A59C6E8A5E33F0335D38B7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

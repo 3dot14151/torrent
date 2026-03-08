@@ -1,3 +1,177 @@
+###  Публикация: 1045751   (557939) от 24.08.2016
+
+VA - Летние новинки интернета 50+50 Август (2016) [MP3|319-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gianni Kosta feat. Belle - Sirius
+02. Kryder & HIIO - La Luna (Radio Edit)
+03. Lindsey Stirling - Afterglow
+04. Алина Гросу - Вне Закона(   Читать дальше...   )Жанр: PopПродолжительность: 02:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F8563DA6B55B229F5D84264C38F2EE68A1C18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045714   (557845) от 24.08.2016
+
+VA - 80's Cardio Workout Playlist Vol.3 (2016) [MP3|112 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugo Strasser - Letkiss (Letka-Enka)
+02. Chak Berry - Johny Be Good
+03. ELO. - so serios
+04. Creedence clear water reviv al - Have you ever seen the rain(   Читать дальше...   )Жанр: PopПродолжительность: 06:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0663A46047744249C7A7DC3205948A9CB79AD1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153387   (557806) от 27.07.2017
+
+VA - Топ 100 Клубные Ремиксы Июль (2017) [MP3|320 Kbps] <House, Remixes, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557806.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  David Guetta & Nicki Minaj feat. Lil Wayne - Light My Body Up (Loud Bit Radio Edit)  3:08
+002.  DJ Ilya Lavrov & Pavel Stepanov - Тучи (Иванушки International Cover) (Radio Mix)  3:26
+003.  Enrique Iglesias - Bailando (DJ Tarantino Radio Remix)  3:48
+004.  Queen - The Show Must Go On (DJ Tarantino Radio Mix)  2:56(   Читать дальше...   )Жанр: House, Remixes, Dance, ClubПродолжительность: 07:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A172460EF56D4B6B397098FC1C416EBE0A6B7CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045747   (557733) от 24.08.2016
+
+VA - Зарубежная Дискотека Восьмидесятые (2016) [MP3|112~320 Kbps] <Pop, Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557733.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ABBA  -  Money,Money,Money  3:05
+002. Secret Service  -  Ten O'Clock Postman  3:38
+003. C. C. Catch  -  I Can Lose My Heart Tonight  5:54
+004. Boney M.  -  Daddy Cool  3:27(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 06:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4335193551508ED774632B677F12A55F806600B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045724   (557730) от 24.08.2016
+
+VA - Ambient Lounge Lyric (2016) [MP3|320 Kbps] <Chillout, Lounge, Ambient Lyric>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557730.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anthya - Voice of Desert
+002. Syd Walker - Floating In The Sea
+003. Bandora Tunes - Borghese Jazz
+004. Michael E. - Infinite Beauty(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient LyricПродолжительность: 08:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14759DE157C9289DCCC5BD94C60938D467133D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924717   (557671) от 04.08.2015
+
+VA - Sunset Beats - Ibiza Edition (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Sunset Beats - Ibiza Edition 2015 Mix, Pt. 1 [77:47]
+02. DJ Mix - Sunset Beats - Ibiza Edition 2015 Mix, Pt. 2 [76:28]
+03. Ella Fitzgerald - Wait Till You See Him (De Phazz Remix) [03:52]
+04. Casanovy - I Need Your Lovin' (Sin Plomo's Superlounger Mix) [05:42](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889F3754D44011C41BDE1E6AA54F72C814BBA1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924485   (557668) от 04.08.2015
 
 VA - The Sounds Of The Underground 03 (DJ Mix By Deeper82) (2015) [MP3|320 кб/с]<Deep House, Progressive House>
@@ -573,180 +747,6 @@ VA - Massive Dance Party Player Hits (2016) [MP3|254-320 Kbps] <Future House, UK
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ADDA0B7C907F5C2FBAB99DABF064DAA40C3C65C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045989   (556972) от 25.08.2016
-
-VA - Dance Workout Trax 2016 (2016) [MP3|206-320 Kbps] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Byron Keno Vs Demin – Holiday (Extended Mix)
- 02. Andreas Agiannitopoulos, T.F – How Does It Feel (Original Mix)
-03. Jasper Forks – J’aime Le Diable (Single Mix)
-  04. Alesso, Onerepublic – If I Lose Myself (Alesso Vs. Onerepublic Extended Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 06:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41209F0E3E5F69328CAF5CC0F6D0183502675573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153777   (556940) от 28.07.2017
-
-VA - Elegant Rock And Roll (2017) [MP3|320 Kbps] <Rock & Roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chuck Berry - Johnny B. Goode  2:38
-02.  Jackie Brenston & His Delta Cats - Rocket 88  2:46
-03.  Bo Diddley - Who Do You Love  2:30
-04.  Sugar Boy & His Cane Cutters - Jock-A-Mo  2:27(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B895B307FA56DE9ECF77FB468BC15E9E2788E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045906   (556919) от 25.08.2016
-
-VA - Ultimate bass music Vol.3 (2016) [MP3|263-320 Kbps] <Deep House, Dubstep, Future Bass, Drum & Bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Abor - WTHN (3:23)
- 2. Aero Chord - Break Them (feat. Anna Yvette) (4:19)
- 3. Andrew Luce & MYRNE - Rebound (3:18)
- 4. Anna Yvette & Laura Brehm - Summer Never Ends (3:51)(   Читать дальше...   )Жанр: Deep House, Dubstep, Future Bass, Drum & BassПродолжительность: 04:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61BD8E4D82002820D9A4F5AAB8186B4B75A48D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045902   (556917) от 25.08.2016
-
-VA - Soul and Love (2016) [MP3|320 Kbps] <Rock & Roll, Vocal, Rhythm & Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Platters - Only You 02:36
-02. Aretha Franklin - Right Now (Feat. Ray Bryant Combo) 02:23
-03. The Isley Brothers - Turn To Me (Feat. Orchestre Hugo Peretti) 02:45
-04. Sam Cooke - I Fall In Love Everyday 02:10(   Читать дальше...   )Жанр: Rock & Roll, Vocal, Rhythm & BluesПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069F311E5EB9D2CFB05DBAB446EC12B2118B5D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305277   (556903) от 30.05.2019
-
-VA - Силовая Тренировка (2019) [MP3|320 Kbps] <Hard Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.10 Years - Shoot It Out (3:19)
-02.Adelitas Way - Cage The Beast (3:16)
-03.Adept - Shark! Shark! Shark! (4:18)
-04.Amaranthe - Invincible (3:11)(   Читать дальше...   )Жанр: Hard Rock, Metal, OtherПродолжительность: 01:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC9224A5227BF74F5400049A2D8D772C5979EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154040   (556876) от 28.07.2017
-
-VA - Romantic Songs: Summer Edition (2017) [MP3|320 Kbps] <Pop, RnB, Lyric Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556876.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Chris De Burgh - All For Love  4:00
-002.  Sia - Angel By The Wings  5:19
-003.  Bee Gees - Wish You Were Here  4:47
-004.  Jennifer Paige - The Devil’s In The Details  5:19(   Читать дальше...   )Жанр: Pop, RnB, Lyric RockПродолжительность: 07:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1948F5E8E3C1A9524CAA4147D84490950F178083
 ```
 
 https://mybot314.ru/tekegram_catalog/

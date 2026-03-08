@@ -1,3 +1,61 @@
+###  Публикация: 1315357   (513733) от 19.07.2019
+
+Вячеслав Малежик - Октябрь (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Однажды (Когда-нибудь)
+2. Ночной звонок
+3. Превратности любви (Про вора)
+4. Бред мой(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F9548AE247B477C5B3CC4A279D5950D7904A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315356   (513721) от 19.07.2019
+
+VA - Best Radio Tracks, Vol. 17 (2019) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Элджей - Sayonara детка (feat. Era Istrefi)
+02. Rompasso - Paradise
+03. Dophamean - Hands on Me (feat. Saia Lake)
+04. Armin van Buuren - Don't Give Up On Me (feat. Josh Cumbee)(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86C4E3BA0C50F0EDB31A581C97E82AD160E594E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561538   (513530) от 06.07.2022
 
 Barbra Streisand - Rose Of New York City: Barbra, 1961-1962 Live Recordings (2022) Remastered [FLAC 2.0|96/24|WEB-DL|tracks] <Pop>
@@ -720,64 +778,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFAF395673715181E5A2610BC795563BDD00087E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932389   (509003) от 29.08.2015
-
-Modern Talking - The First Album & The Second Album (30th Anniversary Limited Special Edition) (2015) 3CD [MP3|320 кб/с]<Europop, Euro-Dance, Dance-Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul (05:35)
-02. You Can Win If You Want (03:51)
-03. There's too Much Blue in Missing You (04:42)
-04. Diamonds Never Made a Lady (04:06)(   Читать дальше...   )Жанр: Europop, Euro-Dance, Dance-PopПродолжительность: 02:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4528915B0D5C91BEF83663215FCDDA50E951A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932165   (508926) от 29.08.2015
-
-Halsey - BADLANDS (2015) Deluxe Edition [MP3|320 кб/с]<Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castle
- 02. Hold Me Down
- 03. New Americana
- 04. Drive(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE9F78EC8E546F194F9F7694699B6E279355564
 ```
 
 https://mybot314.ru/tekegram_catalog/

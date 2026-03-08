@@ -1,3 +1,175 @@
+###  Публикация: 1001434   (853797) от 28.03.2016
+
+Владимир Потапов - Двустволка (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Давала и даю
+02. Без даты
+03. Буржуйская походочка
+04. Двустволка(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3DB03514296F53ECC9BDA8CEE69DA1C9306D7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001485   (853784) от 28.03.2016
+
+VA - Dubstep 100 Top Hits Bass Blast DJ Mix (2016) [MP3|320 кб/с] <Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dubster Spook & Dj Random - Dubstep 100 Top Hits Bass Blast (Trap DnB DrumStep 2hr DJ Mix 2016)
+02. K Theory - The Tower (Dubstep Bass Blast 2016 Remix DJ Edit)Жанр: DubstepПродолжительность: 10:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DFD301148E36C4F428475ACCBF5B60A936C739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110206   (853775) от 02.03.2017
+
+VA - Снежный популярный отрыв. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853775.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Генри - На Север 3:20
+002. Tiger Family - Нравится Мне 3:03
+003. Bubble Gum - Вытворяют Чудеса 3:34
+004. Ira Smith - Буду Выше 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89DCEB7BED8D0716092308BA5FCBB34F2E7D6113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110309   (853771) от 02.03.2017
+
+VA - Music For Everyone - Tropical House Vol.1 (2017) [MP3|320 Kbps] <House, Tropical House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Deep Chills - Lighthearted (Original Mix)
+2. Lost Kings feat. Katelyn Tarver - You (OutaMatic Remix)
+3. Tobu & Jordan Kelvin James - Summer Breeze (Original Mix)
+4. The Chainsmokers feat. ROZES - Roses (Chambo Remix)(   Читать дальше...   )Жанр: House, Tropical HouseПродолжительность: 01:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3532E2FE2ED659764C7407DF2BE2B0AD8F9DE4D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110321   (853759) от 02.03.2017
+
+VA - Ultimate Hits Hottest Moves (2017) [MP3|320 Kbps] <Dancehall, Latin, Reggae, R&B, Hip Hop, Electro, Future Bass, Trap, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R3hab Ft Verite - Trouble (Dirty-Short Edit) - 8A 02:22
+02. Ariana Grande Feat Future - Everyday (Transition 90-66 / Clean) 03:47
+03. Jolivi - Love Who You Wanna Love (Flrivn & Nikki X Remix) 04:42
+04. Kungs Ft Ephemerals - I Feel So Bad (Hem Remix) 04:00(   Читать дальше...   )Жанр: Dancehall, Latin, Reggae, R&B, Hip Hop, Electro, Future Bass, Trap, Indie DanceПродолжительность: 07:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A23FE200220648BDB4B0CFF12B1E6B781074487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001335   (853698) от 28.03.2016
+
+VA - Рок в Качалку - Мотивация (vol. 4) (2016) [MP3|320 кб/с] <Heavy Metal, Alternative Metal, Industrial Metal, Metalcore, Electonic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abandon All Ships - Take One Last Breath
+02. Five Finger Death Punch - Can't Heal You
+03. The Exies - A Fear Of Being Alone
+04. Theory Of A Deadman - By the Way(   Читать дальше...   )Жанр: Heavy Metal, Alternative Metal, Industrial Metal, Metalcore, ElectonicПродолжительность: 02:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB021C3EC6CB20577D376E13A5A6D826E6510A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110212   (853678) от 02.03.2017
 
 VA - Music for your Car (2017) [MP3|320 Kbps] <Dance , House>
@@ -569,180 +741,6 @@ VA - In Love (2017) [MP3|320 Kbps] <Pop, Lounge, Soul, Easy Listening>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6F302DD9BBEF5A688075AE4449D31116BA28AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110662   (852169) от 03.03.2017
-
-VA - St. Moritz: Make Me Disco (2017) [MP3|320 Kbps] <Dance, nu-disco, deep-house, electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clemens Rumpf & Marcell Russell - Ain't Dancing Without You (Space Age Nu Disco Edit) (4:36)
-02. Ill Twin - Charlies (Max Laut Edit) (3:27)
-03. Funkatron - The Groove (6:49)
-04. Wyatt Ocean - See the Difference (3:56)(   Читать дальше...   )Жанр: Dance, nu-disco, deep-house, electronicПродолжительность: 03:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD6004FD9DBF6C6C124B6122EA4FC1B4916C99D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110551   (852166) от 03.03.2017
-
-VA - Ресторан Кураж весенний. Выпуск №6 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852166.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олеся Атланова - Водитель Автобуса 3:57
-002. Сборная Союза - Я В Жену Влюбленный Парень 3:12
-003. Богдан Галий - Осень 3:30
-004. Валерий Курас - Шансон 3:13(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EACBA2E7652EAAF29E5343FC47DCE46E48D19C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001828   (852100) от 29.03.2016
-
-VA - Masters Of Hardcore Chapter XXXVIII (2016) [MP3|320 кб/с] <Hardcore & Hardstyle, Speedcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss K8 & MC Nolz - Raiders Of Rampage (MOH 2016 Anthem) [04:01]
-02. Dyprax - The Future (Tha Playah Remix Edit) [03:58]
-03. Korsakoff & Furyan - A New Dawn (Edit) [03:38]
-04. Angerfist & MC Nolz - Raise & Revolt (Radio Edit) [03:27](   Читать дальше...   )Жанр: Hardcore & Hardstyle, SpeedcoreПродолжительность: 04:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C76A96C22A0D4E3D994F866A5585EEFF74F90D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110555   (852094) от 03.03.2017
-
-VA - Танцевальная вечеринка от Хит FM выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852094.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Самира - Совпали 3:30
-002. Бамбинтон - Зая 3:40
-003. Лариса Гордьера - Прости Меня 3:30
-004. Вероника Андреева - Я Люблю Своего Мужа 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868AA560A2A69165D743A31539AFF0B3C9CAAD40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110553   (852090) от 03.03.2017
-
-VA - Лучшие блатные хиты года на Шансоне. Выпуск № 9 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852090.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Михаил Шабашов - Не Быть С Тобой 3:00
-002. Олег Владимиров & Натаника - Заветные Слова 3:15
-003. Сергей Куприк - Какая Ты Красивая 3:12
-004. Дмитрий Константинов - Моя Рыбулечка 3:16(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161CC1C0B27E05EBC544E6AF6E4BF53F0F01C839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110545   (852087) от 03.03.2017
-
-VA - Popular Pikachu Chart (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852087.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rag'n'bone Man - Human 3:19
-002. Sia - Salted Wound (From The "Fifty Shades Of Grey" Soundtrack) 4:31
-003. Pharrell Williams - Happy 3:53
-004. The Chainsmokers - Selfie 3:04(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE72C695F5B64381C3E75221E6CDFEAB8F2F575C
 ```
 
 https://mybot314.ru/tekegram_catalog/

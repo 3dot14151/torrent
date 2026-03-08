@@ -1,3 +1,177 @@
+###  Публикация: 1609023   (1043331) от 02.02.2023
+
+Christos Stylianou - Compilation (2023) [MP3|320 Kbps] <Easy Listening>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agkalia
+02. Arravonas
+03. Crazy Land
+04. Smell of Roses(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C042448E927C9070F81C98EFEFEA4EF85201BDA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609102   (1043327) от 02.02.2023
+
+Airbourne - Hellfire (2023) 2CD Compilation [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thin The Blood [03:29]
+02. Runnin' Wild [03:38]
+03. Stand and Deliver [05:06]
+04. It’s Never Too Loud For Me [03:24](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B7B577A1BDF789B1C78560EECD08653FC5EB63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609021   (1043312) от 02.02.2023
+
+VA - Europa Plus: ЕвроХит Топ 40 20.01 (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Future X - This Kind Of Love (02:51)
+02. David Guetta & Bebe Rexha  - I'm Good (Blue) (02:55)
+03. Ava Max - Million Dollar Baby (03:04)
+04. Robin Schulz & David Guetta -  On Repeat (03:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D249B60A9757E31C186FEA1A35C29F119079E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609439   (1043229) от 03.02.2023
+
+VA - 60 minutes. Old School Dance Music vol.15 (mixed by Dj V) (2022) [MP3|320 Kbps] <Progressive Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Cara Dillon vs 2 Devine - Black Is The Colour (Above & Beyond's Divine Intervent Remix)
+02-BT feat. Jan Johnston - Mercury & Solace (Transa Remix)
+03-Nadia Ali - Rapture (Gareth Emery Extended Mix)
+04-Ayumi Hamasaki - M (Above and Beyond Typhoon Dub)(   Читать дальше...   )Жанр: Progressive Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22428FF29B929CCF9DF7D912623F99C805598569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609746   (1043169) от 04.02.2023
+
+VA - The Carbon Footprint (2023) [MP3|320 Kbps] <Psy, Goa, Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043169.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zen Machines - Interstellar Plumpton
+002. W.A.D - Alone
+003. Who Knows & Mr. Nobody - Bless This Mess
+004. Jacob And Jilax - Art & Melody(   Читать дальше...   )Жанр: Psy, Goa, Trance, ElectroПродолжительность: 12:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A4ECFD9471B55ABE66B645F5DA28DC041DDA55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609727   (1043164) от 04.02.2023
+
+VA - The Stress: Rock Psychedelic Compilation (2023) [MP3|320 Kbps] <Psychedelic-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043164.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gambardella - Ascensiones
+002. Kesem - No Future
+003. Liquify - Subzero Descent
+004. The Tyromancers - Behold ! The Tyromancers(   Читать дальше...   )Жанр: Psychedelic-RockПродолжительность: 09:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5647BF312DFB978D8FEFE482C118900545E3E140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609764   (1043159) от 04.02.2023
 
 VA - Ethnic House Selections (2023) [MP3|320 Kbps] <House, Electro, Dance>
@@ -571,180 +745,6 @@ Engelbert Humperdinck - Compilation (2023) [MP3|320 Kbps] <Pop, Vocal, Easy List
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75F87511DA437833F2AAA7CF2331FD0F9695F274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610207   (1042591) от 06.02.2023
-
-VA - Music News vol.243 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042591.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gerda - За Такую Любовь (02:16)
- 002. 52Ghz - Спасибо Тебе Бать (02:06)
- 003. 220 Kid feat. Kangdaniel & Willim - Look Where We Are (03:12)
- 004. Adesse - Dance With Me (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3427BF1EF23A7A3F41E7DB3968A56E5DDF3E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436985   (1042559) от 03.01.2021
-
-VA - Best New Hype Drum & Bass (2020) [MP3|320 Kbps] <D&B>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоели соседи, которые устраивают вечеринки до 4 утра, а потом в 6 просыпаются и начинают сверлить стены, двигать мебель, играть в футбол, устраивать кошачьи бои и снова веселятся до рассвета? Решение есть! И оно гораздо проще, чем всякие обращения в правоохранительные органы!001. Qzb And Phentix - Indigo Heart
-002. New Age Cult - Diamonds Never Break
-003. Phibes - Third Dimension
-004. Maduk And Lachi - Taking Control(   Читать дальше...   )Жанр: D&BПродолжительность: 09:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F371BAC9BAA962C1EF16EC7631FF7385CE5FDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610383   (1042436) от 07.02.2023
-
-VA - Impressive Sound 2022.2: Volume II (2022) [MP3|320 Kbps] <Technical death metal, progressive black metal, deathcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xenobiotic - The Wretched Strive
-02. Sigh - Shoujahitsumetsu
-03. Psycroptic - Enslavement
-04. Sun Eater - Vermin (feat. Charles Pierron & Daniel Bramley)(   Читать дальше...   )Жанр: Technical death metal, progressive death metal, progressive black metal, deathcoreПродолжительность: 01:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EB1E81BD5CCB2E6BBE48C19282BC2A89665176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610389   (1042407) от 07.02.2023
-
-VA - Impressive Sound 2022.2: Volume III (2022) [MP3|320 Kbps] <Post-metal, blackgaze, sludge metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Mal En Pire - L'Astre de Velours
-02. Asunojokei - Heavenward
-03. Adolf Plays The Jazz - Cinnamon
-04. Lodz - This Mistake Again(   Читать дальше...   )Жанр: Post-metal, blackgaze, sludge metalПродолжительность: 01:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF685F925DD75B78D71BCBC014B5CBDFF10444E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610269   (1042405) от 07.02.2023
-
-VA - Impressive Sound 2022.2: Volume I (2022) [MP3|320 Kbps] <Progressive metal, progressive rock, avant-garde metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irist - Gloria
-02. Aenaon - Psyche
-03. The Blank Canvas - Epitaph For A Friend
-04. Charlie Griffiths - Arctic Cemetery(   Читать дальше...   )Жанр: Progressive metal, progressive rock, avant-garde metal, melodic death metalПродолжительность: 01:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DE56D2C2D9B7D409A6DE3A0B9DD2525BDEC13C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437176   (1042300) от 04.01.2021
-
-VA - Club Techno Electronics: EDM Liveset (2020) [MP3|320 Kbps] <Techno, Electronics>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для того, чтобы окунуться в мир клубной жизни, не обязательно посещать чопорный клуб для избранных. Достаточно просто скачать новый сборник танцевальной электроники "Club Techno Electronics: EDM Liveset" и устроить клуб у себя дома или на даче и весело зажечь с друзьями!001. Boki Fetish - Hardcatz
-002. Extra - La Pin (Fiesta Version)
-003. Dj Jackson - Hannibal
-004. Ferum - Arabian Acid(   Читать дальше...   )Жанр: Techno, ElectronicsПродолжительность: 13:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D9220DBEF90C43805FFAF7BFD14A44803F75F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

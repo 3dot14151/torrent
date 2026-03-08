@@ -1,3 +1,32 @@
+###  Публикация: 1378943   (835987) от 01.05.2020
+
+Gelka - Wishful Thinking (2020) [MP3|192 Kbps] <Electronica>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep Swimming 2:40
+02. Body 3:26
+03. Long As I Live 2:51
+04. Isolation Tank 3:44(   Читать дальше...   )Жанр: Electronica, Chillout, AmbientПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501072ACDC65DC5805F98291A2F3BFAB8C27FD55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380107   (835912) от 01.05.2020
 
 Luca Stricagnoli - Change Of Rules (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Acoustic Guitar>
@@ -715,35 +744,6 @@ Vineyard - Unto the King (1989) [FLAC|Lossless|tracks + .cue] <Praise & Worship>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC2E82A4B67EE983C03D217C69F68E23CF4A57BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501928   (830003) от 13.10.2021
-
-Wychazel - Mirage (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830003.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sahara Breeze
-2. A Trick of the Light
-3. Touched by the Sun
-4. Illusions(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B26720604680B02E94858F2CC4207E27BA66E2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1287689   (701975) от 08.03.2019
+
+Renee Rosnes - Art & Soul (1999) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Connotation [6:25]
+02. With A Little Help From My Friends [6:19]
+03. Goodbye [5:37]
+04. Ancient Footprints [8:24](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC4DB942F2C86F307667E548BFA37AA10150005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287881   (701974) от 08.03.2019
 
 KAVver. - Antonio (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Jazz, Post Rock>
@@ -717,35 +746,6 @@ Miles Davis - Plays For Lovers (2012) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F7FA8ADC41FFA38BF2AFAE30976574B0B907D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026972   (698561) от 18.06.2016
-
-Joe Zawinul - The ESC Years (1992-1996) 2011, ESC Records[FLAC|Lossless|tracks + .cue] <World Fusion, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Borges Buenos Aires  (Part 1) [04:42]
- 02.Cafe Andalusia  (A Day in Tunesia) [07:14]
- 03.Introduction To A Mighty Theme [01:53]
- 04.Waraya [06:06](   Читать дальше...   )Жанр: World Fusion, Jazz FusionПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419914C5B5074DA068517E211740AC2B32C97687
 ```
 
 https://mybot314.ru/tekegram_catalog/

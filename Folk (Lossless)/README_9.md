@@ -1,3 +1,32 @@
+###  Публикация: 1171580   (395646) от 05.10.2017
+
+Fleur (Flёur) - Сияние (2004) Reissue, 2006, Masterwort Production [FLAC|Lossless|tracks] <Folk, Cardiowave>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро 0:37
+02. Кокон 4:41
+03. Зафиксировать вечность 4:21
+04. Небо хочет упасть 3:42(   Читать дальше...   )Жанр: Folk, CardiowaveПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFBEA27DEC0997095D2F4B0EF425B35DBAFDCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171893   (394845) от 06.10.2017
 
 Elizabeth Cook - This Side of the Moon (2004) [FLAC|Lossless|tracks + .cue] <Country>
@@ -722,35 +751,6 @@ Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5451569F3648D1D5FCF4191D0A89F6BBD81122C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189394   (271274) от 05.12.2017
-
-Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erda 05:08
-02. The Ruin 05:24
-03. Runatal 05:40
-04. Boudicca 04:54(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF677BD76ED160C61B9F3315FFB63A8D0E253FCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

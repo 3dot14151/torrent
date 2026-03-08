@@ -1,33 +1,4 @@
 https://t.me/izofen
-###  Публикация: 1857532   (1059709) от 
-
-Костя Кулясов & АнимациЯ - STAR'Ё (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059709.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А он всё стоит
-2. Про_Бали
-3. Островки безопасности
-4. Иван(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4803C0D876E07243FAB69A2669A301955CE6E250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856700   (1058964) от 01.03.2026
 
 Проект-А - Светлая и беззаботная жизнь (2026) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Alternative-Rock>
@@ -282,63 +253,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5CB070DF077F2A47F6843CA751DE3ED90FBF23E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852186   (1055650) от 06.02.2026
-
-Кино - 46 (1983) Reissue, Remastered, 2026, Maschina Records [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055650.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Демонстрационная запись «46»
-CD2 - Сессия в МДТ & Акустика
-CD3 - «Квартирник» у Павла КраеваЖанр: RockПродолжительность: 02:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD2648F7D4C1D8E037772CE76F310F9E2AD4B5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851736   (1055238) от 03.02.2026
-
-Би-2 - Сердцебиение (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Би-2 feat. Лу Геворкян (Louna) - Никто не спросит
-2. Чулпан Хаматова - Это не игра
-3. Би-2 - Как будто падает
-4. Би-2 feat. Данила Козловский - Он повернулся(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D8C8706E88217E0F0E076F87A49319949EA480
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -744,6 +658,93 @@ Rubicon - Mental Monsters (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B5C27C58C38E33E43993AEC7CD7D12C5523C14F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844537   (1050438) от 28.12.2025
+
+Велес (Veles) - 3 Albums (2013-2025) [FLAC|Lossless|WEB-DL|tracks] <Folk-Metal, Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Еднажден [00:06:51]
+02. Поема [00:10:57]
+03. Клони [00:07:26]
+04. Бодил [00:09:02](   Читать дальше...   )Жанр: Folk-Metal, Folk-RockПродолжительность: 01:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA6DA46B829EAEB9490927E15DB5675E6549121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844196   (1049977) от 26.12.2025
+
+Чёрный Кит - Время Перемен (2024) [FLAC|Lossless|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рок-н-Ролл                   [00:03:42]
+02. На Линии Огня             [00:03:54]
+03. Не Смотри Назад          [00:04:22]
+04. Больше Нет Надежд      [00:04:02](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:97
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD805B9AFE1F5AA3A981B8CFE953CD58EBC5CB93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843754   (1049504) от 21.12.2025
+
+Павел Пиковский - Для красоты (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049504.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Фергана (Album Version)
+2. Не родись (Album Version)
+3. Всё в порядке будет
+4. С чего ты взял(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94AA785AFC55740F7B1B0C1099A0D1C5B80657E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

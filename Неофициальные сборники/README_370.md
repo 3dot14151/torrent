@@ -1,3 +1,177 @@
+###  Публикация: 1048494   (546535) от 02.09.2016
+
+VA - Vocal House Need Massive (2016) [MP3|320 Kbps] <House, Electro House, Vocal House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardwell & Dannic Feat. Haris  -  Survivors (Radio Edit)  3:08
+02. Deadmau5  -  Some Chords (Andrei Stephen Remix)  4:23
+03. Jason Derulo feat. 2 Chainz  -  Talk Dirty (TJR Rmx)  4:08
+04. DBN &  Tony Romera  -  Gorilla (Original Mix)  4:06(   Читать дальше...   )Жанр: House, Electro House, Vocal House, Club, DanceПродолжительность: 07:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0AF3353C66B1F1BCE0D86ECF1389476EBE37B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048479   (546534) от 02.09.2016
+
+VA - Candy Beach Water Fiesta (2016) [MP3|240-320 Kbps] <Synthpop, Indie Dance, Tropical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546534.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Locus - Creatures
+002. On June Feat. Tesity - The Devil's Tears
+003. Jfk - Angel (Passion Theme 2015)
+004. Hedegaard Feat. Lukas Graham - Happy Home(   Читать дальше...   )Жанр: Synthpop, Indie Dance, TropicalПродолжительность: 08:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E726EE658AF1CF799F33FE88D236326A22A5AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048628   (546470) от 02.09.2016
+
+VA - Ladies of Jazz (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simona Parrinello - Everybody's Song but My Own
+02. Erin Dickins - Tain't What You Do
+03. Deborah J. Carter - Satin Doll
+04. Martie - Besame Mucho(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63C53C9B18B59849ED697393B8FB3A01B68CDA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048470   (546467) от 02.09.2016
+
+VA - Дорожный шансон с любимой музыкой. Часть 5 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546467.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Ильин - Весело И Хорошо
+002. Сиран Агасаров - Мечта
+003. Андрей Шпехт - Следом За Тобой
+004. Дмитрий Романов - Журавли(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3106D21781099094E3EAD8D20D954E666809E2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048640   (546424) от 02.09.2016
+
+VA - Dr. Metal Presents: Vol.8 (2016) [MP3|224 Kbps] <Heavy, Speed, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Astralion-Black Adder
+002. Evan-Blue Lightning
+003. Grave Digger-Enola Gay
+004. Hitten-Can't Bring Me Down(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE73CAD34550EE7AADC6FEFCF81224990E82C688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238495   (546240) от 30.07.2018
+
+VA - House Electric: July Compilation (2018) [MP3|320 Kbps] <House, Electro, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546240.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arcide - Bring The Heat
+002. Dana Blade - Keep on Reaching
+003. Danny Villagras - Sound Hungry (Original Mix)
+004. Outcode - Kung Fu (Original Mix)(   Читать дальше...   )Жанр: House, Electro, DanceПродолжительность: 09:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A9BE60A6B762FB3044402773CC0D56B444D77D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048519   (546165) от 02.09.2016
 
 VA - Sunshine Live Vol.58 (2016) [MP3|320 Kbps] <House, Electro House, Vocal House, Club, Dance>
@@ -570,180 +744,6 @@ VA - Party Every Night: Dancehall Music (2019) [MP3|320 Kbps] <Dancehall>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FCA6EAEA1C7172B885D5522925B693C3CC0C62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310938   (544453) от 27.06.2019
-
-VA - не Громкие новинки недели 22 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544453.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Agitti - Деньги (2:14)
-2.Ahmed Shad - Прощальное Письмо (2:43)
-3.Anastasia Stone - Я Влюблена (3:41)
-4.Arik - Мотылёк (3:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE21694E3826724F7CC73DBE31C6898F3B455CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311032   (544451) от 27.06.2019
-
-VA - Golden Composition R&B Style (2019) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544451.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. T-Pain - Keep This From Me
-002. Ahmed Sirour - Beautiful Soul
-003. Prince The Model - Change Your Life
-004. Ahmed Sirour - Groove Nocturnal(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6469BFB13B532C6191D5FAD34D6FF03C554EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310982   (544447) от 27.06.2019
-
-VA - Popular Summer Time (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544447.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samantha Jade - Best Of My Love
-002. Defensa - Borremos
-003. Evalyn - Angels
-004. Joan Osborne - Buckets Of Rain(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51BFACA2BB18D6285D28A7F1F1AB98E483B1F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049521   (543875) от 05.09.2016
-
-VA - Breathe Best Melody (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic, Emotional>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Rush  -  Unlimited (Extended Mix)  6:02
-02. Elite Electronic  -  Skydive (Original Mix)  6:21
-03. Xijaro & Pitch Vs Artifi  -  Arachnis (Radio Edit)  4:07
-04. Matt Chowski & Suzy Solar Pres. Xenera  -  Destination For Exploration (Radio Edit)  4:27(   Читать дальше...   )Жанр: Trance, Melodic, Harmonic, EmotionalПродолжительность: 01:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C8A9D25E4020C8E271F991D337CA289B5D54ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049283   (543871) от 05.09.2016
-
-VA - Trance Traveling Vol.80 (mixed by vnp) (2016) [MP3|320 Kbps] <Trance, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.E.L.O.A.D.  -  Psycho Killers (Original Mix)  7:32
-02. MaRLo  -  Join Us Now (Extended Mix)  4:24
-03. Omnia & Audrey Gallagher  -  I Believe (Extended Mix)  4:00
-04. Daniel Wanrooy & Sally Saifi  -  I See the Light (Extended Mix)  4:19(   Читать дальше...   )Жанр: Trance, Energy, ProgressiveПродолжительность: 04:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D68780D9B2A9BA7D3248E1CF555A006C9981E7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049392   (543816) от 05.09.2016
-
-VA - Боль души (2016) [MP3|256-320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543816.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виктор Матросов - Боль Моеи? Души
-002. Татьяна Чубарова - Сказки
-003. Алексей Брянцев & Елена Касьянова - Я Все Равно Тебя Люблю
-004. Сергей Куренков - Сочи(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46EC307C3CA22D1D3AB298FE4598AC56D240A993
 ```
 
 https://mybot314.ru/tekegram_catalog/

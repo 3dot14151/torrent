@@ -1,3 +1,32 @@
+###  Публикация: 1079623   (294187) от 04.12.2016
+
+Swing Republic - Midnight Calling (2012) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy In Love
+02. Fall
+03. Mama
+04. Midnight Calling(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE78175944421F28F11D830C1EE0766EF89ED3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962762   (293676) от 05.12.2015
 
 Stanley Cowell - New World (1978) 2014, Universal[FLAC|tracks+.cue]<Post-Bop>
@@ -716,35 +745,6 @@ Ray Charles & Betty Carter - Just You Just Me (1991) Traditional Line[FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9BBD247F3D35818A94CF957678721BCEC466B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263151   (290116) от 18.11.2018
-
-Eubie Blake - Memories Of You (1973) 2003, Shout! Factory [FLAC|Lossless|tracks + .cue] <Ragtime, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charleston Rag [3:07]
-02. Chevy Chase [2:44]
-03. Mirandy [2:43]
-04. Fizz Water [1:48](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7055C5D39E8514CA548D0549EFDFAA571EEF0CAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

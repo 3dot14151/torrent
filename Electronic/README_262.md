@@ -1,3 +1,61 @@
+###  Публикация: 1307375   (555079) от 09.06.2019
+
+Flying Cobra - Data (2019) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emergence (05:38)
+ 02. Errors And Faults (06:11)
+ 03. Through The Digital Fog (08:28)
+ 04. Blossoms Showered As Rain (06:05)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B909E3BBC67A6A229FABB5A9C067C8F9B6410C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307419   (555072) от 09.06.2019
+
+VA - Deep House Summer (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Matt Fax  -  To The Ground (Original Mix)
+02.  Dezza  -  Honey (Original Mix)
+03.  Upteka & Heard Right  -  Glimmer (Original Mix)
+04.  Sense8  -  Terra (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 01:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59CB62DB359DFBFA984D0A9CAFAB653790EF79EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307426   (555071) от 09.06.2019
 
 VA - Ibiza House Top 100 (2019) [MP3|320 Kbps] <House, Progressive House, Club House>
@@ -685,61 +743,6 @@ Jan Hammer - Seasons, Pt. 1 (2018) [MP3|320 Kbps] <Synth-Pop, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9CC9157FB3113043F2B21E5579AC5CAEC286BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237254   (553278) от 22.07.2018
-
-Gayalaxy - Ashes of Time (2018) Astropilot Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashes of Time (11:50)
-02. Hang on the Moon (10:21)
-03. Duduk Spell (10:18)
-04. Gayalaxy & Joyfull Natives – Triskel Gateway (06:56)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E062F005F057234CC24170575188C842A31C6F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709850   (553200) от 22.07.2018
-
-Woulg - Discography 15 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks]<IDM, Glitch, Experimental, Abstract, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Did You Think Would Happen? (04:03)Жанр: IDM/ElectroПродолжительность: 00:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F693A07CDC11FD160E2758EA3A93FBC74F4093
 ```
 
 https://mybot314.ru/tekegram_catalog/

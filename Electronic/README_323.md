@@ -1,3 +1,61 @@
+###  Публикация: 1067931   (384774) от 30.10.2016
+
+VA - Swedish Electro vol. 4: The Unsigned (2016) [MP3|320 Kbps] <Synthpop, EBM, Futurepop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonic Reunion - Black Roses (04:14)
+02. State Of The Nation - Departed (Leslie Bayne Remix) (03:35)
+03. Love In Progress - Electro Lovers Inn (04:56)
+04. Ogre Heat Backpackers - Lights Out (04:33)(   Читать дальше...   )Жанр: Synthpop, EBM, Futurepop, ElectropopПродолжительность: 02:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BB851F053518D9E1F050F597FA06AA6BEAE645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574727   (383763) от 06.09.2022
+
+Carpenter Brut - Leather Terror (2022) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwave, Horror>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383763.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Opening Title [2:09]
+2. Straight Outta Hell [3:22]
+3. The Widow Maker (feat. GUNSHIP) [3:56]
+4. Imaginary Fire (feat. Greg Puciato) [4:22](   Читать дальше...   )Жанр: Darksynth, Synthwave, HorrorПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FE3E5EF5A47EFBA0FF36D538549A70383E273C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574722   (383762) от 06.09.2022
 
 Nils Hoffmann - A Radiant Sign (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
@@ -684,64 +742,6 @@ Daniel Deluxe - Corruptor • Instruments of Retribution (2016-2017) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB76C159AEBB9A8BC5F81F0A16EA902EDFFEA756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415041   (381596) от 10.10.2020
-
-VA - Putting The Morr Back In Morrissey (2000) Morr Music [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hessen - Sylvester (New Years Day Remix) (04:42)
- 02. The Notwist - Scoop (ISAN Rmx) (05:13)
- 03. Kandis - Herbstzwilling (Tied & Tickled Trio Rmx) (06:22)
- 04. Tied & Tickled Trio - Utrom (Kandis Mix) (04:31)(   Читать дальше...   )Тип издания: CDЖанр: Abstract, IDM, Ambient •Продолжительность: 02:18:47 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DF956769660F332E06F1DA54C3B654169E72F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575014   (381559) от 07.09.2022
-
-Hypnotix - Star Gates (2006) [OGG Vorbis|485 Kbps] <Synthpop, Experimental>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  N.O.M.M.O                	0:59
-02.  Window To The Past	4:44
-03.  Contact                     	0:57
-04.  Star Gates                   	4:20(   Читать дальше...   )Жанр: Synthpop, ExperimentalПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A413963A91152D0996A7AB53CD14E424667CE23A
 ```
 
 https://mybot314.ru/tekegram_catalog/

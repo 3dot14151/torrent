@@ -1,3 +1,61 @@
+###  Публикация: 1200085   (796993) от 19.01.2018
+
+VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz Presents Dakota - The Spirit Of The Warrior (Transmission 2017 Theme - extended mix)
+02. Dennis Sheperd - Copenhagen (extended mix)
+03. Ayla - Ayla (Ben Nicky & Luke Bond remix)
+04. Gabriel & Dresden - White Walls (extended mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9C4DECEAA850CBE5C2F7C707AE16A827A01402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200056   (796990) от 19.01.2018
+
+VA - Ori Uplift & Miss Cortex - Uplifting Only 258 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE: Eric Senn - Kharon (Intro Mix)
+02. FAN FAVORITE 256: RAM & Arctic Moon with Stine Grove - A Billion Stars Above (Extended Mix)
+03. FAN FAVORITE 256: Syntouch & Angel Falls - Alone (Plutian Remix)
+04. PRE-RELEASE PICK: Jericho Frequency feat. Emma Chatt - Do You See Me?(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996C40801B8D1E092E7DFD0F10F59A153E4E42A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199970   (796971) от 19.01.2018
 
 Rameses B - Spacewalk (2018) [MP3|320 Kbps] <Chillout, Drum & Bass, Ambient>
@@ -685,64 +743,6 @@ glo - Discography 8 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BB40C1E9CEC09A3DAA4A5EDD2318A27AEFC4A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508994   (796189) от 10.11.2021
-
-V.A. - Cafe Del Mar XXVII (Volumen Veintisiete) (2021) 2CD [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Eric Hilton - The Impossible Silence
-02. Kraak & Smaak, iogi - All I Need
-03. Bent - Friends(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy Listening |Продолжительность: 02:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C06712C9B99A094619590161E0F47236610F7AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011518   (796153) от 28.04.2016
-
-The Comet Is Coming - Channel The Spirits (2016) [FLAC|Lossless|Web-DL|tracks] <Electronic, Jazz, Psychedelic Rock>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prophecy (1:49)
-02. Space Carnival (3:36)
-03. Journey Through The Asteroid Belt (5:33)
-04. Nano (1:16)(   Читать дальше...   )Производство: Leaf – BAY 104Жанр: Electronic, Jazz, Rock, Psychedelic RockПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91273F20D3989EB6A3C099317831683BF9A2124A
 ```
 
 https://mybot314.ru/tekegram_catalog/

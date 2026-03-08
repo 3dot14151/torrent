@@ -1,3 +1,61 @@
+###  Публикация: 1259033   (333037) от 01.11.2018
+
+Dance Mission - Italo Disco Chapter 80ies (2018) [MP3|320 Kbps] <Euro-Pop, Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TMY (3:21)
+02. Night After Night (4:10)
+03. Blinded by the Light (3:54)
+04. Deep in My Heart (3:52)(   Читать дальше...   )Жанр: Euro-Pop, Italo-DiscoПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33D6B24A9B3CC4F4483E97336D336CAEFA80D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259004   (333036) от 01.11.2018
+
+Dean Martin - Greatest Hits (2013) [FLAC|Lossless|tracks + .cue] <Vocal Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's Amore (3:08)
+ 02. Ain't That a Kick in the Head (2:25)
+ 03. Memories Are Made of This (2:16)
+ 04. Volare (Nel Blu Di Pinto Di Blu) (3:00)(   Читать дальше...   )Жанр: Vocal PopПродолжительность: 00:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD56CF7C058C52DB034E350D2B885EF3B2576E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258896   (333029) от 01.11.2018
 
 Johnny Hates Jazz - Magnetized (2013) InterAction Music [FLAC|Lossless|tracks + .cue] <Electronic, Pop, New Wave>
@@ -690,64 +748,6 @@ VA - Keep It Disco Vol. 02 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD80131ACE5E49064A2F6DB0DC4E7E6CA44839B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580377   (330812) от 01.10.2022
-
-VA - Keep It Disco Vol. 03 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maurizio Sacchi - All Night Long
-02. HDSN - Too Sweet To Lose
-03. Hotmood - Samba De Enredo
-04. Conan Liquid - Help Me Out Again (2022 ReMaster)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:13:44 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DAAA7BEEB5E8002854DBDD227C5611BF8BBE7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580415   (330810) от 01.10.2022
-
-Consequential - MicroComposed 1980-86 (2018) LP [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love Her (3:55)
-02. Magic Key (3:14)
-03. Behind The Soul (3:20)
-04. Vasiona Desire (3:20)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Italo-DiscoПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1287522F66F161F9BC94F537DB988FA193DC30CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

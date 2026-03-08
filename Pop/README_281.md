@@ -1,3 +1,61 @@
+###  Публикация: 1638140   (212056) от 07.06.2023
+
+VA - Pop Blockbusters 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_212056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troye Sivan - Angel Baby
+02. Shawn Mendes - Treat You Better
+03. Maroon 5 - Animals
+04. The Weeknd - Out of Time(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DBE4A405EFF39C1856AD42BC36505B4AF20E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 630651   (211738) от 22.10.2022
+
+Zоряна - Play (2012) [FLAC|lossless|tracks + .cue] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_211738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Включаю iPlay (03:54)
+02. Кіно (03:17)
+03. Мохіто (03:12)
+04. Квітка (03:00)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C545CB92F319A9C66F50370EABDBDFCC45737FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639215   (211615) от 12.06.2023
 
 New Baccara - Fun (1990) 2023 Reissue, Remastered [FLAC|Lossless|WEB-DL|tracks] <Dance, Euro-Disco>
@@ -684,64 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BBF543EC076FA1235ABD70BA4FE554A5CD79CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646694   (208917) от 15.07.2023
-
-Александр Журбин - 5 Альбомов (1983 - 2010) 6CD [MP3|320 Kbps] <Саундтрек, Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ж. Рождественская - У меня в Москве купола горят
-02. А. Стоцкая - Ария Магды из мюзикла Губы
-03. П. Смеян - Последний шанс
-04. М. Боярский - Осенняя баллада(   Читать дальше...   )Жанр: Саундтрек, Советская эстрада, РетроПродолжительность: 02:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D13C302CCE530AF0521749E07632B181F8199B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 676580   (208898) от 14.07.2023
-
-Brian McFadden - The Irish Connection (2013) [FLAC (tracks + .cue)]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Is The Colour (feat. sinead o'connor) [03:33]
- 02. All I Want Is You (feat. ronan keating) [03:53]
- 03. Crimes [02:51]
- 04. Dreams [03:44](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:790A7889DDBBA47AC42EB3EC3CF2B18CFFAB09ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

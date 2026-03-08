@@ -1,3 +1,61 @@
+###  Публикация: 1634194   (242437) от 21.05.2023
+
+VA - Armin van Buuren - A State Of Trance 1121 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & HRRTZ feat. Julia Church - Fire With Fire (Future Favorite)
+02. Super8 & Tab and Crowd+Ctrl feat. Jess Ball - Incomplete
+03. Kryder - The Eye Of Ra
+04. DIM3NSION - Stronger Now(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BC2DE68AC298BAEFC8BC4FAF9E8283EE60A317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624492   (242432) от 06.04.2023
+
+VA - Coastal Breeze: Chillout Your Mind (2023) FLAC [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Lazy Sundown (Original Mix) (2:28)
+02. Marga Sol - Day Dream (5:09)
+03. Michael E - Hands on Me (Original Mix) (4:38)
+04. Sayana - Again (5:46)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199CDDC050773C085C396BBB949CDCE038395D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106043   (242393) от 18.02.2017
 
 VA - Chilled & Timeless Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -680,64 +738,6 @@ Irrlicht - Feuerkind (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Darkwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AC735EC51BD198404D62DEB8A1A7AEC7F5BB88B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372123   (242030) от 03.04.2020
-
-Synthatic - Take A Ride (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242030.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Take A Ride (7:33)
-2. Deeper (5:21)
-3. This Is The Time (5:48)
-4. Synthatic; Tijah - Trust Me (6:07)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A1E63823213BBDCA805A7C69C366F56A5EF67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108620   (241974) от 25.02.2017
-
-Craig Connelly - One Second Closer (2017) [FLAC|Lossless|WEB|tracks] <Trance , Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig Connelly - Alive (4:41)
-02. Craig Connelly feat. Emma Connelly - We Are (6:51)
-03. Craig Connelly feat. Kat Marsh - Light The Way (4:55)
-04. Craig Connelly feat. Jessica Lawrence - How Can I (6:33)(   Читать дальше...   )Жанр: Trance , Progressive TranceПродолжительность: 01:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A045ECA18450345E6019282C1BEAF86777B4A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,131 @@
+###  Публикация: 552637   (449205) от 26.09.2012
+
+VA - Hot Dance Autumn Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phunk Investigation & Schuhmacher - Believe (Original Mix)
+02. Falko Niestolik, Roter & Lewis - Last Days Of Hip Hop (Vision Factory Remix)
+03. Bob Sinclar Feat
+04. Martin Wright - Can U Feel It (Original Mix)
+05. Evanescence - Bring Me To Life (DJ Andy Wait Remix)
+06. Dave Winnel - Make This Look Good (Original Mix) Nervous Records
+07. Dafhouse Feat. Soraya Vivian - Dreamer (Mandee Tech Rework Extended Mix)
+08. Gusttavo Lima - Balada Boa (Miki Love & Adrian Funk Club Mix) [2012]
+09. Divkid, Stusauce - Pucker Up (Jamie Berry Remix)
+10. Funk D - Legendary (Original Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D69AD240A97EAF8CB1945C1E3C15C3AEAACD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552468   (448751) от 26.09.2012
+
+VA - Хит Парад Танцевальной Музыки Русский (2012) [MP3|256 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Джиган - Нас больше нет (Michael Yousher Remix)
+02. Настя Любимова и DJ Haipa - Чужая я (Radio Edit)
+03. Илья Зудин feat. DJ U-Rich - Точки (DJ Hitretz Remix)
+04. Ева Польна - Я тебя тоже нет (Je T'aime) (DJ Smash ChinKong Remix)
+05. Иван Дорн - Стыцамэн (Danny Rockin & Dj Sedate Radio Mix)
+06. Вера Брежнева - Ищу Тебя (DJ Smile Extended Mix)
+07. DJ DreamTim feat. Ed-One & Elly Wel - Опа (Radio Edit)
+08. Алексей Воробьев - За твою любовь (Hitretz and Sergei Karpov Remix)
+09. Артур Пирожков - Красивая Песня (DJ Favorite & DJ Kristina Mailana Summer Radio Edit)
+10. Кирилл Андреев - Кофе С Ромом (DJ Arhipoff Original Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB8C26FBEB1D3DA085B67F76F74D4580232457C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163638   (448420) от 06.09.2017
+
+VA - Pandemonium: Syntwave Music (2017) [MP3|320 Kbps] <Synthwave, Synthpop, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448420.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Front 242 - Take One (Digital 440’s Last Order Remix)  6:34
+002.  Arcadise - RoboCop Stage Theme  4:33
+003.  Luxar - Passion (Gertrudda SynthMix)  7:06
+004.  Das Mortal - Youth Escape  3:21(   Читать дальше...   )Жанр: Synthwave, Synthpop, ElectronicПродолжительность: 07:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A826FF6375FF2381C3D26A6BD729E2E12971576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248050   (448313) от 17.09.2018
+
+VA - Зайцев.нет: Лучшие новинки Сентября 2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Van Dyk - Music Rescues Me 4:03
+02. Альбина - Не я 3:21
+03. Post Malone x Justin Bieber & Kanye West - No Reason 3:03
+04. Баста feat. Алсу - Мы с тобой 5:46(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33AF64A39CB3B64B82CCA34DD6EC97CA76859309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552462   (448164) от 26.09.2012
 
 VA-New Age Style - Enigmatic 7 (2012) [MP3|~245 кб/с (V0)]<New Age, Enigmatic, Ambient>
@@ -662,122 +790,6 @@ VA - The Official UK Top 40 Singles Chart 18.09.2020 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F5FE175A4E7C06A6643DF08D170187D4EE7915E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570673   (440657) от 18.08.2022
-
-VA - Whore House The House, Funk Disco Summer Jam (2022) [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Tech House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aruhtra - Come Get My Lovin
-02. Wildcard (US) - Shake Ya Junk
-03. Ivan Kay - Good Times
-04. Alec Lino - Brunch(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Tech HouseПродолжительность: 02:29:27 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595CCA6663BFD2E3409CA198A2892876BD2FD21B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570679   (440633) от 18.08.2022
-
-VA - Pina Colada Records Summer Party (2022) [MP3|320 Kbps] <Nu Disco, Soulful, Funky, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chemars - Sticky
-02. Hotmood - Never More
-03. Rick Marshall - The Music
-04. Paco Caniza - Sweet Talk(   Читать дальше...   )Жанр: Nu Disco, Soulful, Funky, Indie DanceПродолжительность: 05:34:59 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CFA4C74640BE0601FD104F3998C58B4CEABFAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570669   (440626) от 18.08.2022
-
-VA - Disco, Club & Dance (2022) [MP3|320 Kbps] <Nu Funky, Indie Dance, Disco, Soulful>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerry Ropero - Celebrate
-02. Block & Crown - One Day
-03. Giorgio Moroder - I Wanna Rock You (ENNE Radio Edit)
-04. Captain Morgan - Body to Body(   Читать дальше...   )Жанр: Nu Funky, Indie Dance, Disco, SoulfulПродолжительность: 02:16:24 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4753B2FC1C791082D8D9F2E744AE1500462D4B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409790   (440592) от 19.09.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 18.09.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Eilish - ilomilo (MBNN Remix) (4:54)
-02. twocolors - Lovefool (3:10)
-03. NRD1 - All Good Things (Come To An End) (Extended) (4:24)
-04. Filatov & Karas with Deepest Blue - Give It Away (3:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F2BF43FAD4E98D17BBB05DA5BC800678E17A14
 ```
 
 https://mybot314.ru/tekegram_catalog/

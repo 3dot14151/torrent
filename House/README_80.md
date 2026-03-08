@@ -1,3 +1,32 @@
+###  Публикация: 1785097   (69395) от 14.03.2025
+
+VA - Ibiza Nights 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anka - Lonelyy (Original Mix) (02:42)
+02. Jay Derson - Scream Out Loud (Radio Edit) (04:05)
+03. Göktuğ Erkün - Slowly (Original Mix) (02:55)
+04. Zonatto, Ricca & Diego Morillo - One More (Radio Edit) (02:54)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E88A22ECD89718F9730C4FE8F3A3A512A5A555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785413   (69344) от 15.03.2025
 
 VA - Exx Underground Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
@@ -713,35 +742,6 @@ VA - Luminaries 01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A63A3F52D922994F9BA30E5B9C6D29348199F77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790690   (68012) от 10.04.2025
-
-Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [MP3|320 Kbps] <House, Electro House, Dance-pop>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beat Goes On (Roger Sanchez Remix) [00:06:56]
-02. Kiss My Eyes (Angel Moraes Remix) [00:04:55]
-03. Sexy Dancer (Harlem Hustlers Remix) [00:07:42]
-04. Kiss My Eyes (Radio Slave Remix - Dub) [00:10:14](   Читать дальше...   )Жанр: House, Electro House, Dance-popПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36CAF92900269411F76EEF9BE48BD63A7884A4CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

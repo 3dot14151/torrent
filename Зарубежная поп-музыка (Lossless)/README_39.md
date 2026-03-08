@@ -1,3 +1,32 @@
+###  Публикация: 1031581   (651488) от 04.07.2016
+
+Al Bano - The Best Platinum Collection (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bianca Di Luna (3:32)
+02. Nel Sole (3:50)
+03. Quando Il Sole Chiude Gli Occhi (2:48)
+04. L'Oro Del Mondo (3:31)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD426CFCA3A989B354D9FCC1CFC6357C5BC10FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291971   (650605) от 27.03.2019
 
 VA - Die Grobe 4 Cd Party Box (1999) Box Set, 4CD, Compilation [FLAC|Lossless|image + .cue] <Rock, Funk, Soul, Pop>
@@ -710,35 +739,6 @@ ORIGINAL STEREO LP (1965)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C56DFA77C95BBBED1FCAC309C38D00816C5E7CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905846   (641520) от 10.06.2015
-
-Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delilah
-02. Help Yourself
-03. She's A Lady
-04. What's New Pussycat(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F6BAAF62C249BD93E450365DE54E004D516E44
 ```
 
 https://mybot314.ru/tekegram_catalog/

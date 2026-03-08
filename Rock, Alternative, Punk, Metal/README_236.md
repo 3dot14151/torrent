@@ -1,32 +1,3 @@
-###  Публикация: 1110515   (851842) от 03.03.2017
-
-Infant Annihilator - The Elysian Grandeval Galeriarch (2016) [MP3|320 Kbps] <Technical Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unholy Gravebirth (4:48)
-02. Crucifilth (4:55)
-03. Motherless Miscarriage (2:18)
-04. Baptised. Bastardised. Sodomised. (4:23)(   Читать дальше...   )Жанр: Technical DeathcoreПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4CCD02162E65F1879782928CF601C841E0DC176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110592   (851841) от 03.03.2017
 
 Танцы Минус - Три (2017) EP [MP3|320 Kbps] <Rock>
@@ -739,6 +710,35 @@ The Ghost Inside - Aftermath (2020) Single [MP3|320 Kbps] <Metalcore, Melodic Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42CF6CB6AC7A9BC4E89F51DF955AA6A98E9059DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377749   (850160) от 23.04.2020
+
+BONGTOWER - Oscillator (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Psychedelic Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phase I (2:35)
+02. Voskhod - 2 (10:10)
+03. Phase II (2:15)
+04. Apollo 11 (5:15)(   Читать дальше...   )Жанр: Doom Metal, Psychedelic Rock, Stoner RockПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D33EA4E2467D357F2987BEA2F70CCF44C148D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1181287   (335468) от 06.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 014 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маленький Принц - Прощай ( 1989 )
+02. Журавлёва Марина - Белая Черёмуха ( 1991 )
+03. Ласковый Май ( Юрий Шатунов ) - Седая Ночь ( 1989 )
+04. Жуков Рома - Слепой Рассвет ( 1991 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B9CAA9942E9B38AFEE6E0ED0D42DC2EEA9859C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181150   (335463) от 06.11.2017
 
 VA - Русская Дискотека ХХ Века от Ovvod7 - 012 (2017) [MP3|320 Kbps]<Pop>
@@ -716,35 +745,6 @@ VA - Eurobeat Pop Dance Music (2020) [MP3|320 Kbps] <Pop, Dance, Electro Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0031F4C52B8D6246D894DE5AC1D6547B0302114B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421041   (322108) от 03.11.2020
-
-VA - After Office: Electropop Dance Music (2020) [MP3|320 Kbps] <Pop, Dance, Electropop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322108.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bramd - In This Together
-002. Terminal - Enchantment
-003. Hybrid Funk Theory - Ready To Go
-004. Mauricio Cury - The Wolves(   Читать дальше...   )Жанр: Pop, Dance, ElectropopПродолжительность: 08:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205976F2574ECA66F89D79A0931F4BDFDEE965CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

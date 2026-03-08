@@ -1,3 +1,61 @@
+###  Публикация: 1125104   (1001359) от 13.08.2021
+
+Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Mesh [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Tech House, IDM, Experimental, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Lukas Boysen, Sebastian Plano - A Greater Pattern (05:17)
+ 02. Bing And Ruth - The How Of It Sped (05:48)
+ 03. Nils Frahm - For (Max Cooper Remix) (07:06)
+ 04. Bxentric - Afon (05:07)(   Читать дальше...   )Тип издания: WEBЖанр: Techno, Minimal, Tech House, IDM, Experimental, Ambient •Продолжительность: 34:39:53 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7B7F15D11403BAF5031022FF192DC5C9C9F990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488729   (1001191) от 14.08.2021
+
+VA - BBC Radio 1 Dance Weekend (2021-08-06) [MP3|~245 Kbps (V0)] <House, Tech House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia - It Gets Better
+02. Steve Angello - Teasing Mr. Charlie w/Jay Robinson - Free Again (Axwell Cut)
+03. Buy Now - For Sale (Swedish House Mafia Remode)
+04. Steve Angello & Sebastian Ingrosso - 555(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E0BC1DCB8207ACD02F962E399B00596894B866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352559   (1001090) от 14.01.2020
 
 Köhnen Pandi Duo (Kohnen Pandi Duo) - Darkness Comes In Two's (2017) Svart Lava [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Ambient, Dark Jazz, Future Jazz>
@@ -772,61 +830,6 @@ VA - Ministry Of Sound Pump It Up 2013 (2013) [MP3|320 kbps] <Club, House, Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23B26D3305E562E13E1FC2B40B0D886A5FBE07E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605635   (995662) от 20.01.2013
-
-David West Feat. Andreas Hermansson - Larry Mountains 54 (2005) [FLAC|Lossless]<Deep House, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Larry Mountains 54 (Original Mix) (8:43)
-02.  Larry Mountains 54 (Inkfish Remix) (7:32)Жанр: Deep House, Progressive TranceПродолжительность: 00:16:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606654   (995263) от 21.01.2013
-
-Cathy Battistessa - Une Nouvelle Humanite (2012) [FLAC|Lossless]<Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Une Nouvelle Humanite (The Rurals Remix) 7:54
-02. Une Nouvelle Humanite (Andy Compton's PENG Mix) 7:08
-03. Une Nouvelle Humanite (Da Capo's Touch) 7:29Жанр: Deep HouseПродолжительность: 00:22:30
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

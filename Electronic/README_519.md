@@ -1,3 +1,61 @@
+###  Публикация: 1732581   (52023) от 25.06.2024
+
+Whole - Hydra (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beast [00:04:28]
+02. Sudden Hydra [00:04:21]
+03. Ten Commandments [00:05:50]
+04. Dead Deer [00:04:03](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC381DA122676EC33063269E71F637194B2C0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732548   (52021) от 25.06.2024
+
+VA - Lounge Heaven, Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Hammock - Sanctuary (4:54)
+02. Marc Hartman - Angels In The Sky (5:16)
+03. Artur Bayramgalin - November Night (Jazz Hop Version) (4:06)
+04. Luis Hermandez - Endlessly (3:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD9117E95A2D160EE9BB417C94BED344E87D9BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732898   (51836) от 27.06.2024
 
 Robert Miles - Dreamland (1996) [FLAC|Lossless|tracks + .cue] <Trance, Electronic>
@@ -684,64 +742,6 @@ Mixed
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A1F50F84C601F54BA76AA01C6B3C457C07829E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739100   (48759) от 26.07.2024
-
-Empire Of The Sun - Ask That God (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, SynthPop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Changes
-02. Cherry Blossom
-03. Music On The Radio
-04. The Feeling You Get(   Читать дальше...   )Жанр: Electronic, SynthPop, New WaveПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D959DC6DC4E4036EDD6660C8C4162D37655E1F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739176   (48479) от 29.07.2024
-
-Ward White - Here Come The Dowsers (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Pop,  New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Continuity [00:03:59]
-02. Here Come the Dowsers [00:03:32]
-03. Cliffhanger [00:04:07]
-04. Our Town [00:03:28](   Читать дальше...   )Жанр: Power Pop,  New WaveПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B42D9ECD5A7ACAD6FB2ABC7ABBDADCF52F30BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

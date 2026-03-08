@@ -1,3 +1,32 @@
+###  Публикация: 1693627   (121735) от 21.01.2024
+
+VA - Festival Sounds 2024 by Kontor (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121735.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bennett - Vois Sur Ton Chemin (Techno Mix) (02:58)
+002. Neptunica; Jasper Forks; Alex Christensen - River Flows In You (02:33)
+003. Kyanu; Keanu Silva; Ninkid - O Fortuna (02:36)
+004. Le Shuuk - Alegria (03:32)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 06:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3138BD5D140713C0AB9AC14E9D208C4813959DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693489   (121729) от 21.01.2024
 
 VA - Winter Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -711,35 +740,6 @@ VA - Spring Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7102B790CB360E5CADE112D95270AFFC8EBD70FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713564   (111830) от 07.04.2024
-
-VA - Relaxing House & Dance Music (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sharapov - Bring Me Back (Mant Deep Remix) (05:00)
-02. CHARZZ - Better (03:39)
-03. Raffa Maru - On My Mind (05:38)
-04. Gianmarco Staccone DJ - Feel The Love (04:05)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA90C75D912C7692EC81EA8C0D744C8C1520C1AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

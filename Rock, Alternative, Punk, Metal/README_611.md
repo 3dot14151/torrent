@@ -1,32 +1,3 @@
-###  Публикация: 1569273   (451509) от 13.08.2022
-
-Kasabian - The Alchemist's Euphoria (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Indie Rock, Neo-Psychedelia, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - ALCHEMIST [00:02:39]
-02 - SCRIPTVRE [00:03:49]
-03 - ROCKET FUEL [00:03:02]
-04 - STRICTLY OLD SKOOL [00:03:07](   Читать дальше...   )Жанр: Indie Rock, Neo-Psychedelia, ElectronicПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C1E0643795A86F83C60681E05B00AC6B87C344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569520   (451508) от 13.08.2022
 
 Radioactive - xXx (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -751,6 +722,35 @@ Joe Lynn Turner - The Sessions (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8291518883B9C7A64D82931C8396CD047FBD924F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061047   (450787) от 09.10.2016
+
+Alter Bridge - The Last Hero (2016) Best Buy Edition [MP3|320 Kbps] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me a Leader
+02. The Writing On the Wall
+03. The Other Side
+04. My Champion(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9BE8FBFF1C13AC592D6195DCD281887F4A4B07
 ```
 
 https://mybot314.ru/tekegram_catalog/

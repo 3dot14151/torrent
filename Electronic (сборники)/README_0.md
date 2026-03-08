@@ -1,3 +1,32 @@
+###  Публикация: 1841992   (1048392) от 13.12.2025
+
+VA - Vocal Trance NNM 6 (2025) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quirin, SoKool, Konrad Dycke - Dangerous - SoKool & Konrad Dycke Remix (7:43)
+02. Fideles, CamelPhat, Be No Rain - Night After Night - CamelPhat Remix (6:58)
+03. Howling, Frank Wiedemann, RY X, Jen Cardini, Damon Jee - Lover - Jennifer Cardini & Damon Jee Remix (6:43)
+04. AIKON, Kyozo - Dark Horse - Club Mix (6:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C6EAF9B81DBCA62E47A17F038399CC7026A2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841729   (1048234) от 12.12.2025
 
 VA - No name compilation part 20 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
@@ -716,35 +745,6 @@ VA - Ремиксы 2К21 (2021) [MP3|320 Kbps] <Pop, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:618C6B4ED5950BE33305EFF93F9D6BB44B12DA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436985   (1042559) от 03.01.2021
-
-VA - Best New Hype Drum & Bass (2020) [MP3|320 Kbps] <D&B>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоели соседи, которые устраивают вечеринки до 4 утра, а потом в 6 просыпаются и начинают сверлить стены, двигать мебель, играть в футбол, устраивать кошачьи бои и снова веселятся до рассвета? Решение есть! И оно гораздо проще, чем всякие обращения в правоохранительные органы!001. Qzb And Phentix - Indigo Heart
-002. New Age Cult - Diamonds Never Break
-003. Phibes - Third Dimension
-004. Maduk And Lachi - Taking Control(   Читать дальше...   )Жанр: D&BПродолжительность: 09:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F371BAC9BAA962C1EF16EC7631FF7385CE5FDB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

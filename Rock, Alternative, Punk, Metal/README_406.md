@@ -1,32 +1,3 @@
-###  Публикация: 1537220   (666706) от 17.03.2022
-
-Dream Master - A World Without People (2022) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - With Honour [00:05:40]
-02 - Circle Of Deceit [00:05:16]
-03 - House Of Cards [00:04:49]
-04 - Dreamland [00:04:22](   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5816351EC1EF32C7D04839122F5921148E7C48EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537738   (666705) от 17.03.2022
 
 FM - Thirteen (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard Rock>
@@ -755,6 +726,35 @@ Acid King - 5 albums (1997-2006) [FLAC|Lossless] <Stoner Rock, Stoner Doom Metal
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137872   (664565) от 29.05.2017
+
+Svart Crown - Abreaction (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Sacrament 05:23
+02. Carcosa 03:44
+03. The Pact: To the Devil His Due 07:21
+04. Upon This Intimate Madness 04:38(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D821A1E24EC674C7BEEF600C7C292E73B997FF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

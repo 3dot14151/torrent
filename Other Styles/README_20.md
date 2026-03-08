@@ -1,3 +1,32 @@
+###  Публикация: 985187   (935269) от 11.02.2016
+
+Fausto Papetti - Oggi 4: Quarantaseiesima raccolta (1988) [FLAC|Lossless|tracks + .cue] <Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dicitencello vuje (4:23)
+02. April in Paris (Dal film Bird) (3:07)
+03. Blue Skies (2:36)
+04. Tristesse (Studio in Mi maggiore Op. 10 n. 3) (3:30)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE494D3D8D996BB39A3258B1BA7C1504CB67E1BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 233622   (934182) от 20.01.2015
 
 Prem Joshua - 18 альбомов (1991 - 2014) [MP3|160-320 kbps]<World, New age, Ethnic, Fusion>
@@ -722,35 +751,6 @@ Johnny Cash - Sings The Songs That Made Him Famous (1958) [FLAC 2.0 24/96|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD34BB920578802434747537DC5C8C8A8E1232DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987555   (926043) от 17.02.2016
-
-Liquid Mind - Liquid Mind XI. Deep Sleep (2016) [MP3|320 кб/с] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Night Whispers
-02.	Teach Me to Love, Part 1
-03.	Teach Me to Love, Part 2
-04.	Dreamland	8:01(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9A50CDC8DEF696383F017EB34BCB581FDA1C94
 ```
 
 https://mybot314.ru/tekegram_catalog/

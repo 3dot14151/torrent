@@ -1,3 +1,61 @@
+###  Публикация: 1127186   (740908) от 20.04.2017
+
+VA - Training Hits 2017 Workout Music (2017) [MP3|320 Kbps] <House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Bambadang (Radio Edit) [03:13]
+02. Flip Capella - Hava Nagila (Radio Mix) [03:14]
+03. Teknova - E (Radio Edit) [03:24]
+04. Noelia - A Volar (Radio Edit) [03:43](   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE53F4D0275069B312295E1073FC85958A2B9922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021414   (740894) от 29.05.2016
+
+VA - Lounge Deluxe, Vol 4 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Diventa Project - Impossible Dream - Ibiza Chillout Mix [04:31]
+02. Jean Honeymoon - Bang Bang - Pianochocolate Mix [04:26]
+03. Roberto Sol - Desire - Original Mix [04:30]
+04. Ganga - Carry You Home - Original Mix [04:45](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D90E04ABFFF2683699640E72E15C6D9AB8C38C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126817   (740709) от 20.04.2017
 
 VA - The Sound of Cafe del Mar (2017) [MP3|320 Kbps] <Downtempo, Deep House, Chillout>
@@ -680,64 +738,6 @@ Lane 8 - Reviver (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8287BC34175A9FE7C363BA4D16F021A85629B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526931   (737808) от 26.01.2022
-
-VA - Sleep over to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Drifting Closer (Original Mix) (5:22)
-02. Michael E, Ashley Slater, Fabio Testa - Mind Games (Original Mix) (4:48)
-03. Leo de la Rosa, Iolanda Rodríguez - No Me Hagas Volar (5:46)
-04. Marga Sol - Deeper Love (Original MIx) (5:50)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032E2EAEB6D2993C8F9C78EA6A13C3D1F5F4EB0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526866   (737803) от 26.01.2022
-
-Burial - Antidawn (2022) EP [FLAC|Lossless|tracks + .cue] <Abstract, Dubstep, UK Garage, Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Neighbourhood (11:04)
- 02. Antidawn (8:44)
- 03. Shadow Paradise (10:21)
- 04. New Love (7:14)(   Читать дальше...   )Жанр: Abstract, Dubstep, UK Garage, Ambient, ExperimentalПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A01D21E9B271E1A209880543831C4D991E51A92
 ```
 
 https://mybot314.ru/tekegram_catalog/

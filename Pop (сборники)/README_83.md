@@ -1,3 +1,32 @@
+###  Публикация: 1063867   (432141) от 17.10.2016
+
+VA - Best Of 80s (2016) [MP3|320 Kbps] <Pop, Disco, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Fugitive
+02. Paula Evans - Ciao (Extended Version)
+03. John Christian - Ebony Eyes (Maxi Version)
+04. Patty Ryan - Stay With Me Tonight(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 06:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E952882087536BDC696EF9A19E2E7DC445A536D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410760   (431920) от 23.09.2020
 
 VA - Yellow Day: Pop Folk Music (2020) [MP3|320 Kbps] <Pop, Folk, Dance>
@@ -744,35 +773,6 @@ VA - Дискотека забытых хитов (зарубежная) - 16 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A687D2D36D6030CCC437CB6F1E0AEE1BB2ED1A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064911   (423921) от 21.10.2016
-
-VA - Живи стильно! Наслаждайся музыкой с Hit FM (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423921.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Руки Вверх - Когда Мы Были Молодыми  4:33
-002. Hatsune Miku - Was Girl  5:28
-003. Sputnik Project & Andry Makarov - Медленно Таешь  4:00
-004. Иван Дорн - Телепорт  4:04(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9246932D70C8F5F23722F7DFB78302A098875DFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

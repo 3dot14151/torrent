@@ -1,3 +1,177 @@
+###  Публикация: 1013016   (777413) от 04.05.2016
+
+VA - Club Dance Ambience vol.67 (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777413.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Avoid & Chris Wittig -  Conclusion (Dualxess & Dj Mst Remix)  5:17
+002. al l bo -  Intergalactic (MAVIE Instrumental Remix)  4:53
+003. al l bo -  Intergalactic (MAVIE Remix)  4:53
+004. Alan Walker -  Faded (DJ Favorite & DJ Kharitonov Radio Edit)  3:35(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7201C80D66053016283E2F3F9085B62E432DCDDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013740   (777344) от 05.05.2016
+
+VA - Festival Anthems Club EDM (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotty -  On the Move (Cj Stone Edit)  2:57
+02. StadiumX -  Mombasa (Radio Edit)  3:17
+03. Alejandro Yanni -  Grenade (Original Mix)  5:25
+04. Saccao & Stage Rockers feat. Ryan Konline -  Sweetest Memory (Radio Edit)  3:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84ADB5E60EAF6A8BE7F98F61D44B832558055081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013647   (777343) от 05.05.2016
+
+VA - Straight Up Ear Candy Vol. 2 (2016) [MP3|320 кб/с] <Electro House >
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MitiS, Fathom - Breathe feat Fathom (Original Mix) [3:12]
+02. SugarBeats - Moon Walker feat Veronica RockStar [5:06]
+03. Khai - Do You Go Up (Madnap Remix) [3:29]
+04. Kicks n Licks - Young ft Adara (Original Mix) [4:09](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2409B666BA543C9B7B08EB471FB5FFA35D2DEEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013720   (777333) от 05.05.2016
+
+VA - 50 Dance Club Full of Essential Music (2016) [MP3|320 кб/с] <Club, Hands Up, Dancecore>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Housegeist -  This Dreams (Orange & Blue Remix)  3:58
+02. Boyz From TBG -  The Fatherland (Radio Edit)  3:44
+03. DJ Jawesome -  Street Sharks (Radio Edit)  3:29
+04. Floorfilla With P. Moody -  On & on (Radio Edit)  3:27(   Читать дальше...   )Жанр: Club, Hands Up, DancecoreПродолжительность: 03:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838AB6A7BA0F61A729F7D35B49595CB2C68FE053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013187   (777315) от 05.05.2016
+
+VA - Top Club Music World Hits Vol.75 (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777315.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Thomas Newson & Asonn Ft. Brad Mair - Home Is Where The Heart Is (Edit) (02:41)
+2. R3hab - Hakuna Matata (Hardwell Radio Edit) (02:46)
+3. Twoloud - Boston (Radio Edit) (02:55)
+4. Sam Feldt - Been A While (Madison Mars Remix Edit) (03:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16740E968B02B195C9C2C835D12B488EA4865C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013772   (777314) от 05.05.2016
+
+VA - International Web-Radio Playlist (Dance) (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danky & Brain - Chasing Cars (Radio Mix) (feat. Jenny Joao)
+02. Empir3 - Ride Like the Wind (Blutraxx's Remix) (feat. Pit Bailay)
+03. Marc Mounier - There Were Times (Radio Version)
+04. Honeyz - Definitely Something (Soulshaker Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D489F06754E85F022197CBDF55F6C3D7E3A85685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013710   (777297) от 05.05.2016
 
 VA - The After Work Smooth Jazz, Lounge (2016) [MP3|320 кб/с] <Jazz, Lounge>
@@ -571,180 +745,6 @@ VA - Crystal Bass: DnB Line (2018) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A917A36BC90712C60EE55CB194A6E570233075E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013975   (776886) от 06.05.2016
-
-VA - Best 100 Original Mix RNJ (2016) [MP3|320 кб/с] <Pop, Dance, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776886.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kygo Feat. Ella Henderson - Here For You (Radio Edit)
-002. Tom Snare & Mico C - Make Some Noise (Radio Edit)
-003. Lif3blood - Like The Sunshine (Radio Edit)
-004. Guard - Give It Up (Radio Edit)(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 05:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A739C4B3FE7788007BCF8929BF55B6C0DEF5F78D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013822   (776881) от 06.05.2016
-
-Va - Радио Шансон. Самые удачные хиты (2016) [MP3|256-320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776881.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Марина Александрова И Александр Домогаров - Не Будет Как Прежде
-002. Лера Огонек - Ветерок
-003. Алмас Багратиони - Пускай Ты Выпита Другим
-004. Вадим Орельский - Дочка(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E378EDDFA6D01DBBD6301DC9DDB42A0D55B52D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014012   (776877) от 06.05.2016
-
-VA - Ministry of Sound - Just Chillin' (2016) [MP3|320 кб/с] <Dance, Music>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Bieber - Love Yourself [03:54]
-02. The Weeknd - The Hills [04:03]
-03. Alessia Cara - Here [03:21]
-04. Snakehips - All My Friends (Feat. Oliver Dickinson, Chance The Rapper & Tinashe) [03:50](   Читать дальше...   )Жанр: DanceПродолжительность: 07:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46009E55B229ECA3E81456E7663AB4F7AAD9E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211860   (776870) от 09.03.2018
-
-VA - Pop Rock and RnB Romantic Songs (2018) [MP3|320 Kbps] <Pop Rock, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776870.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Miley Cyrus - Stay
-002. Espen Lind - Where The Lost Ones Go
-003. Mark Medlock - Never Let You Go
-004. Hooverphonic - Jacky Cane(   Читать дальше...   )Жанр: Pop Rock, RnBПродолжительность: 10:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98588A25D5928E4AD578820D9C300BB639B4285C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211911   (776857) от 09.03.2018
-
-VA - Good Times Roll (2018) [MP3|320 Kbps] <Rock and Roll, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776857.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hornbuckle - Knife In Your Hand
-002. Fatboy - Down At The Room
-003. The Boo Devils - Tonight
-004. Gaspard Royant - 7' Club(   Читать дальше...   )Жанр: Rock and Roll, RockПродолжительность: 05:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6130F6DBD23BEBA053FBF1C0DB8D2CFECCAED0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014199   (776843) от 06.05.2016
-
-VA - Super дискотека 5000 (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776843.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nicky Jam - Hasta El Amanecer
-002. Ляпис Трубецкой - Ау (Alex Shik & Dj Scorpio Radio Mix)
-003. Nikki - Give Me That Beat
-004. Тимати И Богдан Титомир - Грязные Шлюшки (Alex Shik & Dj Dobrynin Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C3D56F2FCC9E95C75243102B421BE5D7B0B76D
 ```
 
 https://mybot314.ru/tekegram_catalog/

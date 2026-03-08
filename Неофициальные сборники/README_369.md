@@ -1,3 +1,177 @@
+###  Публикация: 1047817   (548497) от 31.08.2016
+
+VA - Uplifting See You Again (2016) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Metcalfe & Sue McLaren  -  Stardust (Original Mix)  6:27
+02. Cold Rush And Elles De Graaf  -  Daydreamer (Alan Morris Remix)  7:20
+03. Sound Apparel  -  Making End Of Heart Tale (2016 Remaster)  12:13
+04. Omar Sherif feat. Crystal Blakk  -  Hear You Calling (Extended Mix)  7:08(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 04:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7224C5F1A8B87525198B4E307039482FD187BFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048013   (548430) от 31.08.2016
+
+VA - Beyond The Love Downspace (2016) [MP3|320 Kbps] <Electronica, Chill House, Trip Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southern Groove - You Took My Love 06:11
+02. Scerbas - Lamberet 07:23
+03. Sascha Braemer - Touchdown 05:40
+04. Sergey Silvertone & Magic Surfer - On This World (Audio Luxury Remix) 07:36(   Читать дальше...   )Жанр: Electronica, Chill House, Trip HopПродолжительность: 02:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33026ED5631D7351C8FA4F64CE48665CCA803740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047737   (548425) от 31.08.2016
+
+VA - Thats Ibiza 2016 (50 Gorgeous House Music Summer Tunes) (2016) [MP3|320 Kbps] <House, Club House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lex Luca - Hoop 06:28
+02. Wisqo - Mirrors 06:16
+03. Tom Appl - Badibidab 06:31
+04. Rick Marshall - In The Club 06:50(   Читать дальше...   )Жанр: House, Club House, Deep HouseПродолжительность: 04:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582B3B3E66AF65A2CBE640C05297BDA8B6394E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047849   (548420) от 31.08.2016
+
+VA - Options Remake 150 Tracks (AUGUST) (2016) [MP3|320 Kbps] <House, Tech, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548420.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roberto Palmero  -  Seruman (Original Mix)  6:39
+002. Serial Thrilla  -  Fresh To Def (Original Mix)  5:46
+003. Rick Marshall  -  Clare (Original Mix)  7:02
+004. Lucky Charmes  -  Bobotie (Extended Mix)  4:52(   Читать дальше...   )Жанр: House, Tech, Progressive, Club, DanceПродолжительность: 15:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C1D37114A258780EC4C5FAE7567BD899E8A7C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047746   (548416) от 31.08.2016
+
+VA - Hit Drive EDM: European Version (2016) [MP3|320 Kbps] <Progressive, Trance, House, Electro, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548416.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Clubwaver - Raise Your Glass (Floskel Remix)
+002. Digital Junkiez - Drumfire (Original Mix)
+003. Jordy Dazz & Bassjackers - Battle (Original Mix)
+004. Marcio Vicca - 4Life (Original Mix)(   Читать дальше...   )Жанр: Progressive, Trance, House, Electro, DanceПродолжительность: 09:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACDB3A06229BC9C7FA5C00A8AD14B7AAB93A3CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047924   (548268) от 31.08.2016
+
+VA - Workout Tribute to Summer Hits (2016) [MP3|320 Kbps] <R&B, Disco, Funk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Powter - Crazy All My Life (Dj Denis Rublev & Dj Anton Remix) 01:19
+02. Vasiliy Francesco X Wildmilk X Iggy Azalea - Team (John Rocks Mash Up) 02:47
+03. Blu Cantrell Feat. Sean Paul - Breathe (Remphil & Leo Bass Remix) 02:52
+04. Sia - Unstoppable (Stylezz & Denis Agamirov Remix) Radio 02:51(   Читать дальше...   )Жанр: R&B, Disco, FunkПродолжительность: 04:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552BA8B189355ADF4E3A8202D9FFC29AB8866F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047754   (548265) от 31.08.2016
 
 VA - Музыкальный адреналин. Top Hits (2016) [MP3|256 Kbps] <Pop>
@@ -574,180 +748,6 @@ VA - Just Now Dance Ladies (2016) [MP3|195~320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1E369EBB1252A492E7BAFCFE769B8BB09A7B072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048494   (546535) от 02.09.2016
-
-VA - Vocal House Need Massive (2016) [MP3|320 Kbps] <House, Electro House, Vocal House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardwell & Dannic Feat. Haris  -  Survivors (Radio Edit)  3:08
-02. Deadmau5  -  Some Chords (Andrei Stephen Remix)  4:23
-03. Jason Derulo feat. 2 Chainz  -  Talk Dirty (TJR Rmx)  4:08
-04. DBN &  Tony Romera  -  Gorilla (Original Mix)  4:06(   Читать дальше...   )Жанр: House, Electro House, Vocal House, Club, DanceПродолжительность: 07:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0AF3353C66B1F1BCE0D86ECF1389476EBE37B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048479   (546534) от 02.09.2016
-
-VA - Candy Beach Water Fiesta (2016) [MP3|240-320 Kbps] <Synthpop, Indie Dance, Tropical>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546534.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Locus - Creatures
-002. On June Feat. Tesity - The Devil's Tears
-003. Jfk - Angel (Passion Theme 2015)
-004. Hedegaard Feat. Lukas Graham - Happy Home(   Читать дальше...   )Жанр: Synthpop, Indie Dance, TropicalПродолжительность: 08:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E726EE658AF1CF799F33FE88D236326A22A5AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048628   (546470) от 02.09.2016
-
-VA - Ladies of Jazz (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simona Parrinello - Everybody's Song but My Own
-02. Erin Dickins - Tain't What You Do
-03. Deborah J. Carter - Satin Doll
-04. Martie - Besame Mucho(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63C53C9B18B59849ED697393B8FB3A01B68CDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048470   (546467) от 02.09.2016
-
-VA - Дорожный шансон с любимой музыкой. Часть 5 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546467.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Ильин - Весело И Хорошо
-002. Сиран Агасаров - Мечта
-003. Андрей Шпехт - Следом За Тобой
-004. Дмитрий Романов - Журавли(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3106D21781099094E3EAD8D20D954E666809E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048640   (546424) от 02.09.2016
-
-VA - Dr. Metal Presents: Vol.8 (2016) [MP3|224 Kbps] <Heavy, Speed, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546424.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Astralion-Black Adder
-002. Evan-Blue Lightning
-003. Grave Digger-Enola Gay
-004. Hitten-Can't Bring Me Down(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE73CAD34550EE7AADC6FEFCF81224990E82C688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238495   (546240) от 30.07.2018
-
-VA - House Electric: July Compilation (2018) [MP3|320 Kbps] <House, Electro, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546240.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arcide - Bring The Heat
-002. Dana Blade - Keep on Reaching
-003. Danny Villagras - Sound Hungry (Original Mix)
-004. Outcode - Kung Fu (Original Mix)(   Читать дальше...   )Жанр: House, Electro, DanceПродолжительность: 09:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A9BE60A6B762FB3044402773CC0D56B444D77D
 ```
 
 https://mybot314.ru/tekegram_catalog/

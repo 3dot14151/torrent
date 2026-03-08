@@ -1,3 +1,61 @@
+###  Публикация: 1201058   (1027864) от 05.03.2021
+
+Richard Devine (Richard Coleman Devine) - Discography 14 Releases (1996-2020) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Experimental, Leftfield, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entcid (19:00)
+ 02. Sinscur (13:07)
+ 03. TiMetrics (09:10)
+ 04. 5schim (04:33)Тип издания: CD, Vinyl, WebЖанр: IDM, Experimental, Leftfield, Abstract •Продолжительность: 10:45:10 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A56A05EC4092D78745D3E649E21C90D3885FFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188374   (1027820) от 05.03.2021
+
+Rod Modell (DeepChord, Waveform Transmission, Shorelights, Imax, Global Systems Silently Moving, A601-2) - Discography (1996-2019) [FLAC|Lossless] <Dub Techno, Ambient, Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Octal 6 (B1) “Part 9” (03:54)
+ 02. Octal 6 (B1) “Part 4” (07:29)
+ 03. Octal 6 (B1) “Part 3” (09:18)
+ 04. Octal 6 (B1) “Part 7” (04:48)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Dub Techno, Ambient, Techno, Experimental •Продолжительность: 70:06:45 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6576D4B73CDC00B3F3D0630883CE48183A6D119D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452293   (1027777) от 06.03.2021
 
 maximum movement theatre - songs from the shed (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
@@ -680,64 +738,6 @@ VA - Synthwave Dreams, Vol. 12 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF2CB2A611F3805A1F2692462F5D885A5D9A9C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454136   (1026419) от 14.03.2021
-
-VA - Synthwave Dreams, Vol. 10 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Tishkov - Feel So Good (Microsha 89 Remix) (3:18)
-02. Born In '82 - Night Never Ends (New Night Version) (4:38)
-03. Aurolab - You Are No More (7:38)
-04. #Mali - Brisbane (4:33)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9798A26CCC139011EB8A3E822B1C0EF31AD25F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454302   (1026418) от 14.03.2021
-
-Paradox Obscur - Singles & Rarities (2021) [MP3|320 Kbps] <Darkwave, Alternative>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026418.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Existence (3:11)
-2. Visions (3:39)
-3. Boulevard Voltaire (3:44)
-4. Fatal (4:00)(   Читать дальше...   )Жанр: Darkwave, AlternativeПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B646F47A0279AAD3CF44AB8C645F515A9EF4494E
 ```
 
 https://mybot314.ru/tekegram_catalog/

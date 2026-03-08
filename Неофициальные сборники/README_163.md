@@ -1,3 +1,177 @@
+###  Публикация: 1121361   (800438) от 02.04.2017
+
+VA - 60 minutes. Old School Dance Music (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Dancecore, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Klubbheads - Discohopping (Klubbheads Euro Mix)
+02 - Rollercoaster - Keep The Frequency Clear (Original Club Mix) - Vinyl
+03 - Underfish - Its My Beat (Original Mix)
+04 - The Beatshop - Read My Lips (Sex Me Up) (Dj Screw Remix)(   Читать дальше...   )Жанр: Club House, Dancecore, TranceПродолжительность: 1:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F726ABF78AF4247070AAB3D8FCAB85E5094646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385164   (800393) от 23.05.2020
+
+Павел Карачин - Вавилон (2020) [MP3|256 Kbps] <Punk, Necessary, Экспрессивная Мелодекламация>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800393.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.1 Вавилон
+1.2 Время
+1.3 Бури песнь
+1.4 Беглец(   Читать дальше...   )Жанр: Punk, Necessary, Экспрессивная МелодекламацияПродолжительность: 01:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73D19495A327E8E54A2013EC04C7EE55402B3A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384919   (800389) от 23.05.2020
+
+VA - Evening Chillout Sounds (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800389.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Compound - Retralogue
+002. Dan Guidance - Mixed Message
+003. Seven Palmberg - Under My Skin (Instrumental Mix)
+004. Enjoy - Controversial(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 08:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B85E76F14932C7FE67513ED9EA7E022441BB5F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120760   (800386) от 02.04.2017
+
+VA - Metal Collection (2017) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800386.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zero Down - No Limit to the Evil (03:39)
+002. Annihilator - Syn. Kill 1 (04:27)
+003. Anthem - Go Insane (04:43)
+004. Anthem - You (03:55)(   Читать дальше...   )Жанр: MetalПродолжительность: 04:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5C9F2A11EEC9D1D558B83BFF2929077FB30C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121115   (800384) от 02.04.2017
+
+VA - Shaman's Path (Sacred Land) (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Thomas -  Indians
+02. Big City Indians -  Uncle Peyote
+03. Navajo -  Ly-O-Lay Ale Loya
+04. Red Nativity -  Three Shaman(   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 05:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0350F50CF0C70FF9DD804078760D1F1A46DEFC18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121023   (800382) от 02.04.2017
+
+VA - Только хиты. Русский сборник от Хит fm выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800382.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Эмма М - Рядом 3:12
+002. Время & Стекло - Na Stile 3:45
+003. Никита Ломакин - 3000 Карат 3:44
+004. Зара - Забыть О Тебе 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810896E555844A939DEF7BAEEBEEB6856ABCA3D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385026   (800345) от 23.05.2020
 
 VA - The Official UK Top 40 Singles Chart 22.05.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,180 +745,6 @@ VA - Women of Rock (2020) [MP3|320 Kbps] <Alternative, Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E843441D17522B812CF2A38F725CAC52B01D249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384910   (800047) от 23.05.2020
-
-Gabriella Quevedo - Acoustic Cover Songs (2020) [MP3|~245 Kbps (V0)] <Acoustic, Pop>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800047.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. (2NE1) Come Back Home (3:43)
-002. (2NE1) Go Away (3:51)
-003. (2NE1) Lonely (3:26)
-004. (2NE1) Ugly (4:18)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 10:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D70C883628AF9568A8E348DE66730BC7E6FA68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121546   (800014) от 02.04.2017
-
-VA - Весенняя танцевальная вечеринка. Выпуск № 10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800014.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Миля - Выбирай Любовь 3:55
-002. Николаос Feat. Кристина - Каждую Ночь 3:58
-003. Адам Риф - Бал Принцесс 3:08
-004. Эллен - Неизбежность 3:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DE68EFC6DA7C7C4D0DA9C77C2690A8BE7D4E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506397   (800007) от 31.10.2021
-
-VA - German Top 100 Single Charts 29.10.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Shivers
-02. Adele - Easy On Me
-03. Elton John & Dua Lipa - Cold Heart (PNAU Remix)
-04. Glass Animals - Heat Waves(   Читать дальше...   )Жанр: PopПродолжительность: 04:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7962FD7A84AE2AFF90AF7D138251A701551A6963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506473   (800003) от 31.10.2021
-
-VA - Record Super Chart 30.10.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
-02. Calvin Harris feat. Tom Grennan - By Your Side (3:09)
-03. Tiesto & KAROL G - Don't Be Shy (2:20)
-04. Kungs - Never Going Home (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF40B2CCDA4B1FB509390F53B9C3CEBEB73618DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120961   (799952) от 02.04.2017
-
-VA - Новинки С Разных Популярных MP3 Сайтов Vol.59 (2017) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799952.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  MOLLY - Я Просто Люблю Тебя (Rakurs Ruslan Rost Remix)  3:23
-002.  Artik & Asti - Неделимы  3:26
-003.  Loboda - Случайная (DJ Bandit Remix)  3:25
-004.  MY vs Чугунныи Скороход - Половинка  4:02(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D226E8BEC2D07E36BBB57D21E999D9420B8FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121113   (799950) от 02.04.2017
-
-VA - Дискотека 80-90-2000 По-Новому (Зарубежный Выпуск #43) (2017) [MP3|320 Kbps] <Disco, Italo-Disco, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lian Ross - Say You'll Never (DJ Nikolay-D Remix)  6:31
-02.  Danuta - Touch My Heart (DJ Nikolay-D & DJ RONNY Remix)  7:01
-03.  Heaven 42 & DJ Nikolay-D - Just Tonight (Super Long Remix )  9:42
-04.  Angle Gold - Eat You Up (DJ Nikolay-D, DJ Olga-D & DJ Ronny Remix )  8:14(   Читать дальше...   )Жанр: Disco, Italo-Disco, DanceПродолжительность: 04:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEE2C0A9613F593858F9DB472C05CCC4BAF73FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

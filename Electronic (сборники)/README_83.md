@@ -1,3 +1,32 @@
+###  Публикация: 1026226   (706054) от 14.06.2016
+
+VA - Trip to Ibiza 2014 - House Set For V.I.P (2016) [MP3|256-320 кб/с] <Techno-House, Funky-House, Deep-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Grey - Sparta  06:16
+02. Ben Teufel - Gran Cassa  08:40
+03. Coyu - Balls (original mix)  06:49
+04. 2Lovers - So Good (radio edit)  04:18(   Читать дальше...   )Жанр: Techno-House, Funky-House, Deep-HouseПродолжительность: 06:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2251AC19B49988F0BA82BE3CD5F51430C9EB94DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220243   (705997) от 18.04.2018
 
 VA - Vocal Trance Collection Vol.11 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -725,35 +754,6 @@ VA - Green Therapy Music (2017) [MP3|320 Kbps] <Chillout, Lounge, Dountempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01311BE6E758C9AF016FA0C67E36DD32F35C04F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132634   (701118) от 09.05.2017
-
-VA - Deep Sourge: Beach Edition (2017) [MP3|320 Kbps] <Deep, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701118.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren & Garibay Feat. Olaf Blackwood - I Need You 3:27
-002. Deeppirate Feat. Vilia - Love (Audio Luxury Remix) 5:41
-003. Ilkay Sencan - Back To Life 3:11
-004. Loungetronic - Ready Or Not - Nu Deep Mix 3:15(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 08:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4FD3DA5A91983B73414AD0EDB917FE81B221DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

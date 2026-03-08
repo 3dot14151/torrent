@@ -1,3 +1,32 @@
+###  Публикация: 1175856   (376621) от 19.10.2017
+
+VA - Cosmic Interference (2017) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376621.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chasing Kurt - Sumatra Rain (Club Mix)
+002. Batteriebetrieb - Vibrations (Hellmekanism Remix)
+003. Atix - Pendola (Original mix)
+004. Fractal Vibe - C Song (Fly Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 11:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368FEBCAAD36D5AFDF26558D4166C3CA62F8C380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573534   (376554) от 12.11.2012
 
 VA - Club Dubstep - №18 (2012) [MP3|320 кб/с]<Dubstep>
@@ -731,35 +760,6 @@ VA - Gold Lounge - The Lounge of Luxury (2015) [MP3|320 кб/с]<Downtempo, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:999432AA06B12147F488032BCA8D50DDC5921019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950142   (373061) от 25.10.2015
-
-VA - Halloween Party (20 Trick or Treat Dance Hits) (2015) [MP3|320 кб/с]<Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Samuel Kimkт - La Zumbera (Video Mix) (03:08)
-02. Flip Capella - Moments in Love (03:23)
-03. Funky Chicos - Funky Town (03:45)
-04. NDS, Tom-E - 2GETHER 4EVER (Radio Mix) (03:52)(   Читать дальше...   )Жанр: Dance, Electro HouseПродолжительность: 01:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B49AADF5F4E071A978092633B0A8D42B3FEDDE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,195 @@
+###  Публикация: 1070336   (368886) от 06.11.2016
+
+VA - Заключительная осенняя дискотека. Часть 5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368886.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.N.A.O.M.I. - Ты Скажи 3:28
+002.Ваня Чебанов - Все Хорошо 3:05
+003.Юлия Адамчук - Хочу Огня 3:17
+004.Елена Есенина - Cup Your Hands 3:23(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CF2E8EB56EEA88AAB8F1F706D9A2BC0C9C4CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069874   (368804) от 06.11.2016
+
+VA - Горячий Музон (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368804.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Потап & Настя - Вадимка Зачем Ты 3:21
+002.Доминик Джокер - Лишь Небо Знает 3:20
+003.Эльбрус Джанмирзоев - Только Не Бойся 3:17
+004.Елена Теплякова - Новая История О Нас 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E212804B2AEF72EBA02241E1AEB1E2B6F2E1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575081   (368779) от 15.11.2012
+
+VA - A State Of Vocal Trance Volume 10 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368779.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - A State Of Vocal Trance Volume 10 (2012)
+Год: 2012
+Жанр: Vocal Trance
+Продолжительность: 03:04:13Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Allure feat. Emma Hewitt — Stay Forever (Extended)
+002. Ana Criado & Ronski Speed — Afterglow (Ronski Speed Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D772AE8B4AD2B5170EA85F7D53FE801D391F6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575073   (368778) от 15.11.2012
+
+VA - Trance Maniacs Party: Radio Shivers 2012.4 (Special Edition) (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368778.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Maniacs Party: Radio Shivers 2012.4 (Special Edition) (2012)
+Год: 2012
+Жанр: Trance, Uplifting Trance, Vocal Trance
+Продолжительность: 03:07:51Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Ashley Wallbridge - Zorro (Club Mix)
+002. Corderoy feat. Little Neve White - Run into the Sun (Original Vocal Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F453E9E4AFF7E75D9C20BF7754CF540CF3E348A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575308   (368777) от 15.11.2012
+
+VA - XXXL Турбомодный Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrique Iglesias Feat. Sammy Adams - Finally Found You
+02. Pink - Blow Me (One Last Kiss)
+03. Carly Rae Jepsen - Call Me Maybe
+04. Adam Lambert - Trespassing (Radio Edit)
+05. Kamelia - I Don't Care (Radio Edit)
+06. Inner Circle Feat. Pitbull & Peetah Morgan - 1 One 1 Love
+07. Feenixpawl Georgi Kay Ivan Gough - In My Mind (Axwell Radio Edit)
+08. Toni G Feat. Mar Souto - Lady (Radio Edit)
+09. Goldfish Feat. Morning Parade - Washing Over Me
+10. Agnes - All I Want Is You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B14FCD74D915019537A2EC31AFC584DE6D63A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575287   (368769) от 15.11.2012
+
+VA - Лучшие хиты осени (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вера Брежнева - Бессонница (Кинэтик Remix)
+02. Потап и Настя - РуРуРу
+03. Ани Лорак - Колыбельная
+04. Мила Нитич - Ты Самый Лучший
+05. Анжелика Агурбаш - Ты Всегда И Навсегда
+06. Пропаганда - Подруга
+07. Glamour - Осень
+08. DJ Niki feat. IKA - Так Люблю (Radio Edit)
+09. Светлана Светикова - Ночь (Dance Version)
+10. МакSим и Animal ДжаZ - Живи(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81305E548FD046CBD662DBE11E570404090D992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070035   (368685) от 06.11.2016
 
 Музыкальная Коллекция - Максим Леонидов (2016) [MP3|320 Kbps] <Поп, Рок, Рок-н-Ролл>
@@ -598,204 +790,6 @@ VA - Stereo 100 Hits Dance (2016) [MP3|234-320 Kbps] <Club, Progressive, Vocal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D16B6E152E37E69DAFA154E2B482EFF4BD1A8244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070554   (366651) от 07.11.2016
-
-VA - Big 1990s Twisted Hits (2016) [MP3|192~320 Kbps] <Pop, Techno, Rock, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366651.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Loft - Mallorca (Extended Beach Mix)  5:55
-002. Twenty 4 Seven feat. Stay-C & Nance - Is It Love (Single Mix)  3:57
-003. C&C Music Factory - Gonna Make You Sweat (Everybody Dance Now)  4:07
-004. Me & My - Dub-I-Dub  3:22(   Читать дальше...   )Жанр: Pop, Techno, Rock, DanceПродолжительность: 07:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6682852BBC8F90C94F451B08F6B692771D735036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575961   (366575) от 16.11.2012
-
-DJ Altuhov - Party Hard (2012) [MP3|320 кб/с]<House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366575.jpg" />
-</div>
-
-
-###  Подробнее
-
-N/AЖанр: HouseПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC7C0DE3187E2D9285EC5480B6FEBFA7A245BE5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575834   (366571) от 16.11.2012
-
-VA - TOP 100 Club Hits #5 (2012) [MP3|320 кб/с]<Club, Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acrylite - Tesseral Original
-02. Adam Element - Magnetic Environment (Kozi Komatsu Mix)
-03. Alex Kenji, Ndkj - Not That Kind Of Girl Feat. Marga Sol (Mike Vale Remix)
-04. Angelo Dore - One Vodka For the Girl (Original Mix)
-05. Calvin Harris Feat Example - Well Be Coming Back Klass Project Remix
-06. Carlos Roll, Muzikjunki, Toni Maravillas - Alive (David Mel & Saleem Razvi Remix)
-07. Christian Fischer - Hyper Draw-Drum
-08. Cole Jonson - Sneak Out (Original Mix)
-09. Cosmic Gate Feat. Jan Johnston - Raging (Alexander Popov Vocal Remix)
-10. D Quattro - Point 49 (Marc Systematic Remix)(   Читать дальше...   )Жанр: Club, Dance, PopПродолжительность: 03:59:54
-
-01. DJ Шанс feat. JayB (D.Lemma) - Ярче
-02. Руки Вверх - Крошка Моя (DJ Mikola Cover Ural DJs Remix)
-03. Сплин - Мое Сердце (DJ Kirillich Remix)
-04. Инфинити - Я так скучаю (Alex Menco Remix)
-05. Elvira T - Все решено (Fire Flame & Horizont Remix)
-06. Ияра - На Губах Тай (DJ Nariman Mix)
-07. Mr.Credo - Воздушный Шар (Ural Dj's Remix)
-08. Женя Вилль - Ты Для Меня (Alexey Frolof Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60586D0F60F628D0E23A4FB4B5CC84FC5315A2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575901   (366462) от 16.11.2012
-
-VA - Coca-Cola Music Чарт 3 (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366462.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Винтаж и Рома Кенга - Танцуй в последний раз
-002. Girls Aloud - Something New
-003. Слава Бодолика и Доминик Джокер - Фиеста
-004. Olly Murs feat. Flo Rida - Troublemaker
-005. DJ Smash feat. Вера Брежнева - Любовь на расстоянии
-006. Paradiso feat. Ria - Just Dance (Radio Edit)
-007. LMФАО - Полшестого
-008. Timati feat. Craig David - Sex In The Bathroom
-009. Елка - Хочу
-010. PSY feat. Hyuna - Oppa Is Just My Style (Gangnam Style 2)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCAAEC313BDB5DDD64DAC1318EA1270B81B5AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575850   (366458) от 16.11.2012
-
-VA - Осенние Русские Хиты (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366458.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Slon feat. LiLi - Krokodila
-002. Алина Гросу - Бросай
-003. Горячий Шоколад - За Тобой
-004. Светлана Лобода - 40 Градусов
-005. 140 ударов в минуту - Надышаться тобой
-006. Анастасия Стоцкая - Преступник
-007. Марка - Витамин С
-008. Artik pres. Asti - Сладкий Сон
-009. Ай-Q - Другая Мне Не Нужна
-010. Блестящие - Зеленые Глаза(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 5:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761B1D94F37F2218178BDD54057EF3B0A57E1B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328299   (366378) от 29.09.2019
-
-VA - Have A Good Time: Electropop Compilation (2019) [MP3|320 Kbps] <Synyhpop, Electropop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366378.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Veil Of Light - So Hard
-002. Doubts - Worries
-003. Team Rush Hour - Way Up
-004. Erasure - Am I Right(   Читать дальше...   )Жанр: Synyhpop, ElectropopПродолжительность: 10:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654B469F09DC30F5E318694021F5034655251AFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

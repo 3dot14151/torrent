@@ -1,3 +1,61 @@
+###  Публикация: 1782574   (69973) от 01.03.2025
+
+VA - D.Trance 109 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BVDE vs. Myde - The Katla Breathe Fire (Extended Mix) [6:11]
+02. Alan Morris - Think Twice (Extended Mix) [5:23]
+03. XiJaro & Pitch - Bittersweet (Original Mix) [3:48]
+04. AYDA - ATLAS (Extended Mix) [5:45](   Читать дальше...   )Жанр: TranceПродолжительность: 03:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32B54A2408F9CF8AF04B7EE80C868A75F9441FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782642   (69956) от 02.03.2025
+
+VA - Trance Top 100, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69956.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rene Ablaze - Red Sea 2030 (Original Mix) [6:53]
+002. Christopher Corrigan - Delectation (Original Mix) [3:28]
+003. Carl Daylim feat. T'eira - Hand In Hand (Original Mix) [3:20]
+004. Daniel Cesana - Phoenix (Original Mix) [3:32](   Читать дальше...   )Жанр: TranceПродолжительность: 06:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFBF255B138CAB04525451A061078F4C227FEE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782664   (69904) от 02.03.2025
 
 VA - Progressive Trance Awakening, Vol. 03 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -687,64 +745,6 @@ Fantas Braz - Reversal (2025) [MP3|320 Kbps] <Electroclash, Synthwave, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC8D15CA467811454016A20E5766C204F38CA458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784051   (69641) от 09.03.2025
-
-VA - Deep & Soul 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleanger & M-Sol DEEP - Call For Aid (Original Mix) [4:49]
-02. Yohai Mor & M-Sol DEEP - Soul's Voice (Original Mix) [5:57]
-03. Duel (HU) & M-Sol DEEP - Up With The Birds (Original Mix) [7:13]
-04. 4Moon Music & M-Sol DEEP - Open Heart (Original Mix) [6:25](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653378D2D80C4E90C9444520D3F514C302F5CDDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784230   (69640) от 09.03.2025
-
-Ernestronix (Ernesto) - Synths Earth Orbit (New Dimensions) (2025) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Space-Dance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legacy (4:15)
-02. Vision (6:58)
-03. Interceptor Adventure in the Hyperspace (6:16)
-04. Tunnel of Long Time (5:22)(   Читать дальше...   )Жанр: Spacesynth, Space-DanceПродолжительность: 01:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5AD2FEA934211B0961F3958614C08A7ECE4817
 ```
 
 https://mybot314.ru/tekegram_catalog/

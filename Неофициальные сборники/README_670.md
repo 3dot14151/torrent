@@ -1,3 +1,177 @@
+###  Публикация: 1761201   (36851) от 18.11.2024
+
+Hamidshax - Compilation Cd 2 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My Heart Hurts
+ 02.  Exhale
+ 03.  My World
+ 04.  Back to You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDE657EF6C8259A81B3A838A28DA4319A20ACAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761307   (36785) от 19.11.2024
+
+VA - Best of Electro Swing (2024) [MP3|320 Kbps] <Swing, Nu Jazz, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parov Stelar - Dirty Mariposa [05:24]
+02. Caravan Palace - Supersonics (Out Come the Freaks Edit) [02:53]
+03. Swingrowers - Love! [03:05]
+04. The Electro Swingers, Vaughn Monroe - Let It Snow! [03:36](   Читать дальше...   )Жанр: Swing, Nu Jazz, ElectroПродолжительность: 04:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F66B98A33B50790407BE09E6B9B7F98F51EDE03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761321   (36744) от 19.11.2024
+
+VA - Music News For Forum vol.044 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36744.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dasha - Heartbreaker From Tennessee (02:13)
+ 002. A.Losa feat. Danna Max & DRULZ - Grenade (02:21)
+ 003. Aklesso feat. Torey D’shaun - Destiny (03:53)
+ 004. Alexia - Ploua Cu Servetele (03:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180A9C1B3AC1EDCC9FE8757743EF1E3C0D2BB81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761408   (36702) от 20.11.2024
+
+Николай Гринько - Синглы (2020-2024) (2024) [MP3|320 Kbps] <Бард-рок, Поп-рок, Авторская песня>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сурикаты
+02. Видимо-невидимо
+03. Типакорочекакбы
+04. Лиссабон(   Читать дальше...   )Жанр: Бард-рок, Поп-рок, Авторская песняПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD94C6BDF4CDC0B83889915B22B718EC554452EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761515   (36665) от 20.11.2024
+
+Hamidshax - Compilation Cd 3 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  California
+ 02.  Black Sea
+ 03.  Help Me
+ 04.  No More(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5EC25224AF23D686724CE9C0F4B1C6D2C26A759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761635   (36578) от 21.11.2024
+
+VA - In ecstasy from metal (2024) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36578.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Accept - Humanoid [04:35]
+002. Metallica - 72 Seasons [07:39]
+003. BABYMETAL, Tom Morello - METALI!! (feat. Tom Morello) [03:29]
+004. Megadeth - We’ll Be Back [04:30](   Читать дальше...   )Жанр: Metal, Glam Metal, Hard RockПродолжительность: 11:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB02427F24F99DB6987E30AD7D78C01167EE33F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761783   (36551) от 22.11.2024
 
 VA - То, что доктор прописал 2 Remix NNM (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,180 +745,6 @@ VA - Music News For Forum vol.047 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:083A7CB7630F4DE5D5F59D0A26C927DDE23AF8B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762932   (35607) от 30.11.2024
-
-Anastacia - Compilation (2000-2023) [MP3|320 Kbps] <Pop rock, Soul, Dance pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Army Of Me (Ultimate Collection 2015)
-02. Beautiful (Our Songs 2023)
-03. Best Days (Our Songs 2023)
-04. Best Of You (& Foo Fighters) (It's A Man's World 2012)(   Читать дальше...   )Жанр: Pop rock, Soul, Dance popПродолжительность: 03:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7FBC8EFF95A84A652E22254699226FA387ABE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761293   (35548) от 01.12.2024
-
-A-ha - Compilation (1985-2022) [MP3|320 Kbps] <Synth pop, New wave, Pop rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me (Hunting High & Low 1985)
-02. Foot Of The Mountain (Foot Of The Mountain 2009)
-03. Lifelines (Lifelines 2002)
-04. A Fine Blue Line (Analogue 2005)(   Читать дальше...   )Жанр: Synth pop, New wave, Pop rockПродолжительность: 06:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2785B519802CB1A4672D7C48BF3761ADE65FBAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763604   (35458) от 02.12.2024
-
-VA - Christmas Glam Santa's Secret (2024) [MP3|320 Kbps] <Rock, Glam>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T. Rex - Christmas Bop [04:00]
-02. Slade - Here's to ... (The New Year) [03:11]
-03. Bay City Rollers - Money Honey [03:17]
-04. New York Dolls - 'Cause I Sez So [03:07](   Читать дальше...   )Жанр: Rock, GlamПродолжительность: 04:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AA4EEB3A17A48ECE60B8B0250223B16F8B2F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763661   (35439) от 02.12.2024
-
-VA - Trance In Motion Vol.383 (2024) [MP3|320 Kbps|image + .cue] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foxhill - When The Morning Comes (Intro vs Extended Mix)
-02. Max Freegrant & Slow Fish - Way To Heaven (Extended Mix)
-03. Ciaran McAuley pres. Elï - Love Loud (Original Mix)
-04. Siskin - Always You (Maratone Extended Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:22:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602ACEB290A01DBE5E44247FF14C8017F58614F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763751   (35360) от 03.12.2024
-
-VA - Pop Dance Weekend Party Non Stop (2024) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35360.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Triples - Dimension - (03:17)
- 002. Mindaryn - Fireworks - (04:43)
- 003. Paul Russell - Say Cheese - (02:33)
- 004. Ive - Off The Record - (03:09)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 10:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F3242385249F05D20450D7B9CF8A17BFFC6B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763753   (35328) от 03.12.2024
-
-VA - Rock Stream Mix (2024) [MP3|320 Kbps] <Soft rock, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35328.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 4Db - 45 Degrés - (06:17)
- 002. Endless Dive - Archimboldi - (06:53)
- 003. Cold Years - Die Tonight - (03:22)
- 004. Sunchild, Karfagen & Hoggwash - Grail And Time - (05:54)(   Читать дальше...   )Жанр: Soft rock, RockПродолжительность: 11:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66868B3C851B6B03A162B929365A16E1E7383D8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

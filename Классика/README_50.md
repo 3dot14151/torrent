@@ -1,3 +1,32 @@
+###  Публикация: 1721269   (109822) от 10.05.2024
+
+Architects (UK) - Unmasking My Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unmasking My Truth [00:01:39]
+02. Symphony of Self-Discovery [00:01:51]
+03. Unwritten Chapters [00:01:46]
+04. Becoming Who I'm Meant To Be [00:01:39](   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 00:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2422B90C345E23E987E2A504DADB26C46A9B3085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721494   (109809) от 10.05.2024
 
 Trance Opera - 11 Albums (1995-2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Neoclassical, Opera, Trance>
@@ -756,36 +785,6 @@ Concerto in E minor, RV484, F. VIII-6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A86C20ACD93F35DD8E0F79210A2E0925FA504BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479872   (87153) от 08.04.2012
-
-Johann Friedrich Fasch - Johann Friedrich Fasch Oboe Sonatas: Burkhard Glaetzner& Ingo Goritzki etc. (1989)/2008/[WavPack|Lossless]<Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соната соль минор для двух гобоев фагота и basso continuo
-1. 1. Largo	2:02
-2. 2. Allegro	2:17
-3. 3. Largo	2:10
-4. 4. Allegro	2:202008Жанр: ClassicalПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75EF4A1461CEB4E306510DFC82F4B6DFEE3E20B
 ```
 
 https://mybot314.ru/tekegram_catalog/

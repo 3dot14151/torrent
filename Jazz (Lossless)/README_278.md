@@ -1,3 +1,32 @@
+###  Публикация: 1670821   (171777) от 22.10.2023
+
+Grant Green - Sunday Mornin' (1961) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom March [8:42]
+02. Sunday Mornin' [4:02]
+03. Exodus [7:02]
+04. God Bless the Child [7:23](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6BEB0086D192AFDBC717444FFB9A52EF816ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670828   (171776) от 22.10.2023
 
 John Pizzarelli - Stage & Screen - Stage & Screen (2021) 2023, Palmetto Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ VA - Autumn Slow Chill-out Jams to Relax and Unwind (2023) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F76419487FCC186AE06F069D1C75EC45A41051AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671623   (171217) от 25.10.2023
-
-VA - 33 Relaxing Healing Jazz Vibes Chilly Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Aurora (5:13)
-02. Chillaxing Jazz Kollektion - Serendipity (4:38)
-03. Kool&Klean - I Can Only Imagine (4:55)
-04. Konstantin Klashtorni - Let's Chill (5:29)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02A079791DF1426CD998031844A2372D2B51205
 ```
 
 https://mybot314.ru/tekegram_catalog/

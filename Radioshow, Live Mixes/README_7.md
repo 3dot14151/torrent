@@ -1,3 +1,61 @@
+###  Публикация: 1511539   (734003) от 03.02.2022
+
+Goa Gil - Mahashivaratri (2002) Mixed Live In Goa [MP3|~245 Kbps (V0)] <Psy-Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Early Night pt. 1
+02 - Early Night pt. 2
+03 - Middle Night pt. 1
+04 - Middle Night pt. 2(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 07:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FC069ED3F392DF52E782DC26A2DF13C7D3A92D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283933   (731046) от 19.02.2019
+
+VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arkham Knights - First Light (World Premiere)
+02. Marcus Santoro - Give it All
+03. Above & Beyond - Distorted Truth
+04. Emme & Rodrigo Deem - Black Mamba(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA425E48326BC1544913739A7034D767408C60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989003   (729173) от 01.06.2016
 
 Armin van Buuren - A State of Trance 751 - 765 (2016) [MP3|320 кб/с] <House, Trance, Progressive>
@@ -687,64 +745,6 @@ VA - ASOT 900 After-Party @ Poema RAW, Utrecht (2019-02-24) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:040D8136EE01A8D864DF91AEA09EDE46375FB31C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403180   (694404) от 18.08.2020
-
-ALPHA 9 - Anjunabeats Worldwide 689 2020-08-17 [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694404.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ALPHA 9 - ID
-2. ALPHA 9 - All That I Cant
-3. Above & Beyond feat. Zoë Johnston - My Own Hymn (ALPHA 9 Remix)
-4. ALPHA 9 - Before The Dawn(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D870299A63EDF5D044B9D021C0468535C77F888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288935   (691964) от 13.03.2019
-
-VA - Armin van Buuren - A State Of Trance Festival 900 - (Madrid) (2019) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilan Bluestone & Maor Levi – Everybody (Ilan Bluestone & Maor Levi Club Mix)
-02. Maor Levi & OTIOT – Bandana
-03. Maor Levi & OTIOT ft. Ashley Tomberlin – Turn Out The Lights
-04. Ilan Bluestone & Maor Levi ft. El Waves – Will We Remain?(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 07:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F2D0758F5A395BB852F54BC786EFE57167AEC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

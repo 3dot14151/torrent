@@ -1,3 +1,29 @@
+###  Публикация: 1406371   (472536) от 04.09.2020
+
+Def Leppard: Hysteria at the O2 (2018) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Def Leppard - британская рок-группа из Шеффилда, Йоркшир, Англия, образована в 1977 году. Их стилевая манера с годами претерпела ряд изменений, двигаясь от хард-рока к глэм-металу. Def Leppard дебютировали как NWOBHM-группа с альбомом "On Through the Night" в 1980 году. Пик популярности этой группы пришёлся на 1984-89 годы, когда вышли их платиновые альбомы (   Читать дальше...   )Производство: Великобритания / Eagle Rock EntertainmentЖанр: hard rock, glam metal, heavy metal, pop rockАктеры: Def Leppard, Джо Эллиотт, Фил Коллен, Вивиан Кэмпбелл, Рик Сэвидж, Рик АлленПеревод: ОтсутствуетПродолжительность: 01:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27988AA32CA2EB79E6AD73018ACB1F971C1F94C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547677   (471962) от 16.09.2012
 
 Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
@@ -691,35 +717,6 @@ Aerosmith - Rocks Donington (2014/2015) BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A65D5D029D543B909FA96EE4B42ACDAA71B3EAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940360   (466563) от 25.09.2015
-
-Eminem - Live From New York City (2005) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eminem выступил в Madison Square Garden, в Нью-Йорке 8 августа 2005 года. Среди выступающих гостей вы можете увидеть артистов лейбла Shady Records - D12, Obie Trice и StAt Quo. Турне проходило в поддержку альбомов Encore и D12 World.01. Evil Deeds
-02. Mosh
-03. Business
-04. Rain Man(   Читать дальше...   )Производство: США, Eagle Rock EntertainmentЖанр: RapПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A9CC26054B1E02746EB5FBD439EEAE87239ADD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

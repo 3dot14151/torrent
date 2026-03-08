@@ -1,3 +1,125 @@
+###  Публикация: 1326546   (383247) от 21.09.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 20.09.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shawn Mendes & Camila Cabello - Senorita 3:11
+02. Halsey - Nightmare 3:52
+03. Billie Eilish - Bad Guy 3:14
+04. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE54EA1C9F2F6B6A21464ED687CA3482764141E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174913   (383007) от 16.10.2017
+
+VA - 80s Magic Turn Around (2017) [MP3|320 Kbps] <New wave, Italo Disco, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick Springfield – Jessie’s Girl 03:13
+02. Jean Michel Jarre – Arpegiator 06:22
+03. Mike Oldfield – Shadow On The Wall 03:06
+04. Jennifer Rush – Into My Dreams 03:59(   Читать дальше...   )Жанр: New wave, Italo Disco, OtherПродолжительность: 07:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2ECC02CDEF0A4C2E12F26E67EF0A6C4B44B1F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572931   (381479) от 10.11.2012
+
+VA - Жажда Скорости - Клубный Драйв (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Stardust & Benjamin Zane Feat. Pit Bailay - Famous (Pulsedriver's Oldschool Flavour Edit)
+02. Sander feat. Elissa & Foxx - Forever Para Ti 2K12 (Heartstyle Edit Mix)
+03. Clark Owen - Melody (BassDropz Remix)
+04. Plastik Bass Feat. Seaside Clubbers - Discotetris (Boom Boom) (Original Edit)
+05. D.O.N.S. & Maurizio Inzaghi Feat. Philippe Heithier - Searching For Love (9Five Radio Edit)
+06. Punkrockerz - Punk Rock Song (Chris Van Pain Edit)
+07. Seaside Clubbers - Twist (Megastylez Mix)
+08. Ryan Thistlebeck - Rising (X-Cess! & Jarno Remix)
+09. Hot Cherry - Wide Awake (Niccho Vs DRM Mix)
+10. Sol City feat. Johnny King - See Di Angel (Raindropz! Sunshine Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 06:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119039FFD987368917294E6E14D7F29B8B45DBBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414855   (381398) от 10.10.2020
+
+VA - The Official UK Top 40 Singles Chart 09.10.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 24kGoldn - Mood (feat. iann dior)
+02. Cardi B - WAP (feat. Megan Thee Stallion)
+03. Internet Money & Gunna - Lemonade (feat. Don Toliver & NAV)
+04. Headie One - Ain't It Different (feat. AJ Tracey & Stormzy)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54ECFD1BC4EA8CF57C532BBF9F083D27093B6E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414775   (381175) от 10.10.2020
 
 VA - Music News vol.39 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -665,143 +787,6 @@ VA - Лучшие клубные хиты Hot Club Hits (2012) [MP3|256 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1796993CE018B92A90B9552040D7777825D9663A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573474   (378027) от 11.11.2012
-
-VA - Новинки Русского Рока (2012) [MP3|256 кб/с]<Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сансара feat. Илья Лагутенко - Дискотека
-02. Гарик Сукачев и Неприкасаемые - Веревочка
-03. Сплин - Дочь самурая
-04. Пикник - Декаданс
-05. Вячеслав Бутусов и Ю-Питер - 10 шагов
-06. Ночные снайперы - Что мы делали прошлым летом
-07. Алиса - Саботаж
-08. Машина времени - Крысы
-09. Браво - На лунный свет
-10. Сурганова и оркестр - Ну почему же я вру!(   Читать дальше...   )Жанр: RockПродолжительность: 06:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC55F680DBE21C78C9346A9E934C802B9D8EDF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573833   (378022) от 11.11.2012
-
-VA - Cosmic Chill Lounge Vol. 1-5 (2007-2011) [MP3|320 кб/с]<Instrumental, Lounge, Chill Out>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378022.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:01. The Man Behind C. feat. Miriam - See You Again
-02. Magica Fe - Words
-03. Soulcraft feat. Jill Noom - Rain In My Hair
-04. Sine - Always
-05. The Man Behind C. - Make You Mine
-06. Jeela - So Jealous
-07. The Man Behind C. - What Can U Do
-08. Soundbuffet - So Blue
-09. 4 Tunes - Let The Rhythm Take Control
-10. The Man Behind C. - Need You(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:12:43
-01. Faro-Toscan dawn
-02. Merge Of Equals-Heart and mind
-03. Ganga-New beginning
-04. Five Seasons-Love Apple (Lemongrass Wet Dreams Rem)
-05. Jens Buchert-The falling star (NYC Mix)
-06. Vargo-One language
-07. Sine-The return
-08. Gold Lounge-Promised land
-09. Fade-Wonderful time(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C9AC8A4BDA41A6E25693D5687F594C5AD86C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175402   (377908) от 18.10.2017
-
-VA - Club Night 2 (2017) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Feldt & Alex Schulz - Be My Lover (Original Mix)
-02. Two Modest & Hugobeat feat. SevenEver – All Night (DJ ALEX MOSCOW M-p)
-03. Tyron Hapi feat. Mimoza - Anyway (Original Mix)
-04. Burak Yeter - Echo (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FBDF3F0F05332227A4D3A5A6C27FE2292031AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949433   (377420) от 23.10.2015
-
-VA - Balkan Dance Hits (2015) [MP3|320 кб/с]<Dance, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Klinx - Passion (Radio Mix) (03:01)
-02. Milan Nikolic - Summer In Belgrade (Original Mix) (05:54)
-03. Mike-D - Lie To Me (Fernando, Richard Spark Remix) (04:52)
-04. Xell Project - Feel High (Rowen 2.1 Balkanstyle Remix) (05:24)(   Читать дальше...   )Жанр: Dance, EurodanceПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3917EBB899650CDE779BF6735752EBE30D8DD8DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 1230258   (617198) от 11.06.2018
+
+VA - Popular Superstar (2018) [MP3|320 Kbps] <Pop, Dance, RnB, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617198.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maître Gims, Super Sako - Mi Gna
+002. Alvaro Soler - La Cintura
+003. Dua Lipa - IDGAF
+004. Bazzi - Star(   Читать дальше...   )Жанр: Pop, Dance, RnB, RapПродолжительность: 11:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63F3969F97F1827D158112B7DB6A0ED939A34A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523567   (617020) от 16.07.2012
+
+VA - Жаркий Хит-Парад MTV (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Аксиома - Новый Год В Июле
+002. Neon Hitch - Love U Betta
+003. Горячий Шоколад - Ты Обними
+004. Gotye feat. Kimbra - Somebody That I Used to Know
+005. Влад Соколовский - Ливни
+006. JLS - Proud
+007. Кэтрин Кэт - Наше Лето
+008. Savage - Dont Cry Tonight 2012 (Alexandra Damiani Radio Mix)
+009. Алена Винницкая - Я Жду
+010. Mishelle feat. Randi - It Feels So Good (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F4629A99FF959D521DC8DEC88C154F3EE4DC60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295819   (616919) от 14.04.2019
+
+VA - не Громкие новинки недели 11 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aletov - До Луны (3:05)
+02. ALON - Небо (2:19)
+03. Appledream - Баленсиага (3:25)
+04. Arsenium & Mianna - Я Лечу Над Танцполом (3:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD0F1DDAA3D75ECCEB6830A07CDE211F1E21629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295861   (616831) от 14.04.2019
+
+VA - Radio DFM Top D-Chart Апрель 2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Deeper - Broken 2:58
+02. Filatov & Karas - Au Au 4:13
+03. Mark Ronson & Miley Cyrus - Nothing Breaks Like A Heart (Don Diablo Remix) 3:37
+04. Pawl - Nirvana (Kolya Funk Remix) 4:00(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD44EB99CE110E030805DC255695E07BAC7F525A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523355   (616810) от 16.07.2012
 
 VA - 1000% Gold Ballads (2012) [MP3|256 кб/с]<Pop, Rock>
@@ -665,119 +787,6 @@ VA - Discoteka 2016 Dance Club Vol.154 (2016) [MP3|320 Kbps] <House, Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:190ADE997D991FE4F81813E3E002C654B2C39992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524782   (611146) от 19.07.2012
-
-VA - Сборник игровой музыки / In Game Music (Ultimate Music Pack) (2011) [MP3|320 кб/с]<Rock, Drum & Bass, Dubstep, Electronic, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611146.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Жанр: Rock, Drum & Bass, Dubstep, Electronic, TranceПродолжительность: 05:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946DD776B1D497DFD9DE74674EF28E2888E0B4C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912620   (610565) от 26.06.2015
-
-VA - Car Audio. Субботние ништяки [Sound Clinic - Special Edition] (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Dubstep, Progressive, Trance, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610565.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 303Bastard - Microphone Commando (Original Mix)
-2. Alex Herrera - Mesmerized (Original Mix)
-3. Alexey Union - Paris Trip (Original Mix)
-4. Alma - Supernatural (Original Mix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Dubstep, Progressive, Trance, TechnoПродолжительность: 12:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7393C9B324565F786DEEC597BBEEF236D888825F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912529   (610505) от 26.06.2015
-
-VA - Car Audio. Русский, Душевный (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Рок, Блюз, Регги, Шансон, Поп>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 25-17 - Горький туман
-2. 25-17 - Звезда
-3. 25-17 - Облако
-4. 25-17 - Полёты(   Читать дальше...   )Жанр: Рок, Блюз, Регги, Шансон, ПопПродолжительность: 07:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E9C711B47B27F879732870F918CE2577AA1C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037951   (610203) от 26.07.2016
-
-VA - 100 Summer Dance Hits Workout Energy for Fitness (2016) [MP3|240-320 Kbps] <Synthpop, Indie Dance, Tropical, Funky, Dancehall>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaarl - Cool Kids (Feat. Mathilde Hoslet) (Radio Edit) 03:07
-02. 19Eighty7 - Get It On (Original Mix) 04:14
-03. Rudimental - Lay It All On Me (Feat. Ed Sheeran) (Robin Schulz Remix) 06:19
-04. Edx - Missing (Ft. Mingue) (Extended Mix) 04:53(   Читать дальше...   )Жанр: Synthpop, Indie Dance, Tropical, Funky, DancehallПродолжительность: 08:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE662F4B40DD373AE201F201ABA7BDCC925A663
 ```
 
 https://mybot314.ru/tekegram_catalog/

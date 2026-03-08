@@ -1,3 +1,177 @@
+###  Публикация: 967649   (158451) от 21.12.2015
+
+VA - Levitation: Easy Listening And Chillout Party (2015) [MP3|320 кб/с] <EasyListening, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158451.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Euphonic Traveller - NYC Christmas Lights
+002. Peter Pearson - Cool Shade
+003. Steven Moore - In the Sunshine - Original Mix
+004. Cesar Martinez Ensemble - Que Mas?(   Читать дальше...   )Жанр: EasyListening, ChilloutПродолжительность: 06:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F89B99F0A7B36D014ED2FAA3A4085E04267D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967736   (158449) от 21.12.2015
+
+VA - Стая белых голубей. Академия хитов шансона (2015) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158449.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Геннадий Ура - Эх босяцкая ты доля
+002. Александр Яременко - Хорошо
+003. Павел Яцюк - Электричество
+004. Виктор Петлюра - Мужские cлёзы(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5409201D5FDD07626D352F377F04D7022D2BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967585   (158446) от 21.12.2015
+
+VA - Charming Bourgeois Vol 5 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lorenzino Playa - Dora Steps - Original Mix
+02. Santorini Sunset - Documento - Original Mix
+03. Slow Rhythms - Soul Sound Sista - Original Mix
+04. Sandrino - In the Right Cut - Sandrino's Late Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53CCA1E58B97E288F1E3B82CD8980C6338FC466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967753   (158432) от 21.12.2015
+
+VA - The Best Of Surf Rock & Spaghetti Western (2015) [MP3|224-320 кб/с] <Country, Instrumental, Surf Rock, Spaghetti Western>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dick Dale - Miserlou [02:14]
+02. Merv Griffin With Charles Grean Orchestra - House Of Horrors [01:57]
+03. The Woodies - Diamonds [02:24]
+04. Barbacoa - Gorilla Monsoon [01:56](   Читать дальше...   )Жанр: Country, Instrumental, Surf Rock, Spaghetti WesternПродолжительность: 02:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D11285A418DD48CA3CE3129D6EF8A5180F4166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966220   (158410) от 21.12.2015
+
+Artur (Artur Khlgatyan) - Armenian Rap (2011-2015) [MP3|320 кб/с] <Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amen inch pohvela
+02. Barcradzayn mtker
+03. Chem uzum
+04. Du es kyanq(   Читать дальше...   )Жанр: RapПродолжительность: 02:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6F5D63927FC1794E698321ADA2DC8F6797E96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967361   (158352) от 21.12.2015
+
+VA - Like FM. Слушай, что нравится! (2015) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Lambert - Ghost Town (03:29)
+02. Imany - Don't Be So Shy (Filatov & Karas Remix) (03:11)
+03. Kygo feat. Conrad Sewell - Firestone (04:34)
+04. Gorgon City feat. Katy Menditta - Imagination (03:39)(   Читать дальше...   )Производство: SBA ProductionЖанр: Pop, DanceПродолжительность: 01:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FBB87781161DADAC8E32880C22E8F4E65D40D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967913   (158270) от 22.12.2015
 
 VA - Soulful Love Smooth and Sexy Grooves 25 Tracks (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -571,180 +745,6 @@ VA - Winter Chillout Compilation (2018) [MP3|320 Kbps] <Chillout, Lounge, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C00659FC9A32B9CB6DDF86E69700E8CBE017E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270507   (157528) от 19.12.2018
-
-VA - Hardstyle Dance Music For Workout (2018) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157528.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alix Sniper - Clown (Original Mix)
-002. Alex Prospect - Snakebite
-003. Andy The Core - Innovhate (Extended Mix)
-004. D-Block & S-Te-Fan - Angels & Demons(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, ElectroПродолжительность: 09:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3711BC8136692F0B5B17A1ED73B4F98470AC776F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270502   (157487) от 19.12.2018
-
-VA - Cristmas Sexy Dance (2018) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157487.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adrenaline Depart - Feel The Heat
-002. 7Oast And Ifl And Roomp - In Lovemotion (Original Mix)
-003. Love Junkeez - Anywhere (Radio Edit)
-004. Manuel Santini - Caliente(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 10:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452EC37ED2BE4C1CEA0B701E0DA886C5D239B636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346754   (157481) от 20.12.2019
-
-VA - Funky Fever: Disco Mania (2019) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157481.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cerrone - The Impact
-002. Audio Jacker - Disco Star (Original Mix)
-003. Carolain Luf - Sinensis (From Beyond Remix)
-004. Bird In 1893 - Sprettur(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 16:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CDCDE494DB4D7AE6625B5CC6AF0C08B5220C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270515   (157440) от 19.12.2018
-
-VA - Equilibrium: Pure Deep House (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157440.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artur Muro - Deep
-002. Soulkeys - Morning After
-003. Deepraved - Give For Me (Extended Version)
-004. Dapayk Solo - Daydreaming(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4FECE069E7716FB0DC37745D0AA552690CF0EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968317   (157410) от 23.12.2015
-
-VA - Chillout Tour (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do0rs In The Sand - Love Touching [04:39]
-02. MARI IVA - Heartbeat [06:58]
-03. Blues at the crossroads - Without Meaning [03:41]
-04. Johnny Beast - I See You in My Dreams [07:41](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE4322AFCA4B63BFE12D3A493CD0D54E8D818CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968242   (157334) от 23.12.2015
-
-VA - After Work Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxea - Sunshine Delight
-02. Minka - Little Cat
-03. Kon Tiki - Zimmer Land
-04. M. Vitoria - Chill in Out(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAFF94F771ED3D8AFB8C5E0C1C07FB7C7201196
 ```
 
 https://mybot314.ru/tekegram_catalog/

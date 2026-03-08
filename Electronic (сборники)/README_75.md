@@ -1,3 +1,32 @@
+###  Публикация: 1527493   (736403) от 29.01.2022
+
+VA - New Electronic World: Neon Megamix (2022) [MP3|320 Kbps] <Synthwave, Electronic, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка сборника "New Electronic World" полна ослепительных и захватывающих мелодий из эпических приключений и духа фантастического мира синематографа, смешанного со звуковыми эффектами трейлера в современном гибридном стиле. Если Вам нравиться музыка из фильмов со сценами героизма и духом приключений, эта подборка для Вас.001. Dimi Mechero - The Balconist
+002. Reinhard Vanbergen - Rythm Ace Band
+003. Benjamin B. - Repeat After Me
+004. Robert Babicz - Gatekeeper(   Читать дальше...   )Жанр: Synthwave, Electronic, SynthspaceПродолжительность: 12:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9A6D2BE9FC14C25002983FF24D42F8103F33E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527651   (736247) от 29.01.2022
 
 VA - Крутые пушки Зима 2022 [MP3|320 Kbps] <Club, Dance, Other>
@@ -722,35 +751,6 @@ VA - Beatport Top 100 Drum & Base (March) (2017) [MP3|320 Kbps] <Drum & Base>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EAA136324D5AC8D8BEA73B7B687E386CDF60480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021968   (731111) от 31.05.2016
-
-VA - Ibiza Sundowner Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Parent - Awakening (Radio Edit) [03:59]
-02. Praana - Garden Of Nightingales (Radio Edit) [04:14]
-03. Lounge Hours - Balance (Radio Edit) [04:46]
-04. Endless All - Mothers Arms (Radio Edit) [07:05](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A72CE5778445C58FA93DE06A6C0385E35D7DFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

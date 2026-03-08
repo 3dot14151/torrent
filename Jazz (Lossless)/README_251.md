@@ -1,3 +1,32 @@
+###  Публикация: 1638377   (237945) от 08.06.2023
+
+Ike Quebec - Four Classic Albums (1961, 1962) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acquitted [5:40]
+02. Just One More Chance [5:50]
+03. Que's Dilemma [4:31]
+04. Brother Can You Spare A Dime [5:29](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Bossa NovaПродолжительность: 02:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938A41EAF60C70303F91BE82AB24BEBDD815F32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625163   (237944) от 09.04.2023
 
 Kjellerbandet - Mingus Schmingus (2004) Sonor Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band, Vocal Jazz>
@@ -716,35 +745,6 @@ Buck Clayton - Goin' To Kansas City (1960) 1990, Original Jazz Classics [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE51EA8366B561DF29FBBEDBCBE6C79C7B181741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627750   (237205) от 20.04.2023
-
-Phil Woods - Rights Of Swing (1961) 2001, King Record [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude and Part I [6:46]
-02. Part II (Ballad) [7:52]
-03. Part III (Waltz) [5:56]
-04. Part IV (Scherzo) [11:34](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDBDE12D7ED0450D413D7A18F43E8128082D10B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

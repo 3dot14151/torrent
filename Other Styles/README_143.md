@@ -1,3 +1,32 @@
+###  Публикация: 1339885   (264008) от 23.11.2019
+
+VA - Pacific Moon: Summer Collection (2001) [FLAC|Lossless|tracks + .cue] <New Age, Folk, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jalan Jalan - Sekar (Spirit of Plants) (6:20)
+02. Hae - Sunset Island (2:17)
+03. Hae - Chikinu Kaishiya (4:10)
+04. Jalan Jalan - Hug With the Wind (5:25)(   Читать дальше...   )Жанр: New Age, Folk, Modern ClassicalПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387C9707801599DE2D2BC8700C7EE77D7FB0ECDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339935   (263993) от 23.11.2019
 
 Musica Relajante - Spa for Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
@@ -734,41 +763,6 @@ Mato Grosso - Native Indian's Music (2006) [MP3|320 кб/с]<Native American, Pa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:743D14347AD3E09C04738C19586263EAA04D521E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503192   (259626) от 30.05.2012
-
-VA - Sgt. Pepper's Lonely Heart Club Band - Original Sound track (1978) [APE|Lossless]<OST/Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Got To Get You Into My Life" - Earth, Wind and Fire [03:36]
-   02. "Strawberry Fields Forever" - Sandy Farina [03:31]
-   03. "When I'm Sixty Four" - Frankie Howerd and Sandy Farina [02:40]
-   04. "Mean Mr. Mustard" - Frankie Howerd/Steven Tyler, The Bee Gees and [02:46]
-   05. "Fixing a Hole" - George Burns [02:25]
-   06. "Because" - Alice Cooper and The Bee Gees [02:45]
-   07. The Death of Strawberry [03:24]
-          "Golden Slumbers" - Peter Frampton [01:39]
-          "Carry That Weight" - The Bee Gees [01:45]
-   08. "Come Together" - Aerosmith [03:46](   Читать дальше...   )1978Жанр: OST/RockПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

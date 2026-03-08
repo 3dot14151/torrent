@@ -1,3 +1,32 @@
+###  Публикация: 1125062   (773311) от 13.04.2017
+
+Jamiroquai - Automaton (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Acid-jazz, funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake It On
+02. Automaton
+03. Cloud 9
+04. Superfresh(   Читать дальше...   )Жанр: Acid-Jazz, FunkПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517D734BCDB4290814E1AABC410D8BEEAE262E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277957   (773166) от 24.01.2019
 
 Shakira - Laundry Service (2001) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -716,35 +745,6 @@ Clean Bandit - What Is Love (2018) Japanese Edition [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD2AD34D5C5FD57F5ABCE35AEBEBD35D98F52E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280090   (763522) от 01.02.2019
-
-The Beloved - Sweet Harmony: The Very Best of The Beloved (2011) 2CD, RM. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, House, 80s, 90s>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loving Feeling (3:44)
-02. Satellite (4:15)
-03. Ease the Pressure (4:20)
-04. Scarlet Beautiful (4:40)(   Читать дальше...   )Жанр: Pop, Synthpop, House, 80s, 90s |Продолжительность: 02:38:59 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED3A78B2ED87167D53AFF30641CD9514DC72D84
 ```
 
 https://mybot314.ru/tekegram_catalog/

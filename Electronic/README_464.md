@@ -1,3 +1,61 @@
+###  Публикация: 1695234   (120471) от 28.01.2024
+
+VA - Friends V (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Afro House, Indie Dance, Melodic House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120471.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Emanuel Satie & Maga – Love Accelerator (06:17)
+2. Luca Saporito – Sonder (06:44)
+3. Angelos – Ages (05:56)
+4. Alican – Ride (05:46)(   Читать дальше...   )Жанр: House, Afro House, Indie Dance, Melodic House & TechnoПродолжительность: 01:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F425B8FAF98D1381A6660DF9985D6495A6E6715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695091   (120463) от 28.01.2024
+
+Cosmonaut & Satellites (Космонавт и спутники) - макси-синглы (2009-2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Progressive House, Breaks>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Know [00:07:43]
+02. I Don't Know (Radio Edit) [00:03:51]
+03. I Don't Know (Ksen Remix) [00:06:52]
+04. I Don't Know (MDK Remix) [00:05:11](   Читать дальше...   )Жанр: Progressive Trance, Progressive House, BreaksПродолжительность: 2 CD, 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABDD7A084A4BC9976DB30D34104394566947394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694961   (120459) от 28.01.2024
 
 Cosmonaut & Satellites (Космонавт и спутники) -  Наверх  (2010) [FLAC|Lossless|tracks + .cue] <Progressive Trance, Progressive House, Breaks>
@@ -687,64 +745,6 @@ Axwell - Axtone House Party (Dance Tent, MDLBEAST SOUNDSTORM, Saudi Arabia) (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD75756AB910A7013D3DEDD3F161B37D46D61BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696899   (119357) от 04.02.2024
-
-Kmfdm - Let Go (2024) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Industrial Rock, Electro-Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Go [00:04:12]
-02. Push! [00:04:34]
-03. Next Move [00:05:09]
-04. Airhead [00:04:41](   Читать дальше...   )Жанр: Progressive Rock, Industrial Rock, Electro-IndustrialПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A36F573E73581EE6FDC590D7D78CCB6B0E62756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696890   (119349) от 04.02.2024
-
-Eguana - Exploration (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Ambient Chill>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Consciousness Connection (8:19)
-02. Solar Vibrations (8:05)
-03. Association Patterns (8:26)
-04. Inner Exploration (8:03)(   Читать дальше...   )Жанр: Ambient, Ambient ChillПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25292C6BCADA5145912EC3B69E6028D6B2EB91B
 ```
 
 https://mybot314.ru/tekegram_catalog/

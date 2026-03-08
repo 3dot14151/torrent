@@ -1,3 +1,32 @@
+###  Публикация: 1775185   (71497) от 25.01.2025
+
+VA - Deep-House Hunters, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereolunga - Saxo (Radio Edit) (02:41)
+02. TOM ONE - Deeper & Deeper (03:15)
+03. VS Prjct - Hey Girl (05:07)
+04. Squib - Potzblitz (Radio Edit) (03:03)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1C614EDF5FF8BBD8F7742E5ED9EABD26B49DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775333   (71455) от 26.01.2025
 
 VA - 100 Greatest Workout Tracks (2025) [MP3|320 Kbps] <House, Dance>
@@ -714,35 +743,6 @@ VA - Black Hole House Music 03-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:246B8D0D098FC36470E63429E0BEEBC6E22318A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785097   (69395) от 14.03.2025
-
-VA - Ibiza Nights 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anka - Lonelyy (Original Mix) (02:42)
-02. Jay Derson - Scream Out Loud (Radio Edit) (04:05)
-03. Göktuğ Erkün - Slowly (Original Mix) (02:55)
-04. Zonatto, Ricca & Diego Morillo - One More (Radio Edit) (02:54)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E88A22ECD89718F9730C4FE8F3A3A512A5A555
 ```
 
 https://mybot314.ru/tekegram_catalog/

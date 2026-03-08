@@ -1,3 +1,61 @@
+###  Публикация: 1180347   (342649) от 03.11.2017
+
+The Seven Fields Of Aphelion - Discography 2 Releases (2010-2017) Graveface Records, Rad Cult [FLAC|Lossless|tracks+.cue] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divining (Naming Of The Lost) (04:51)
+ 02. Horizon Obscure (02:01)
+ 03. The Crossing (02:25)
+ 04. Drift (Losing Light) (02:39)(   Читать дальше...   )Тип издания: CDЖанр: AmbientПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B87157FD109E7403E1494173F5EA85103B5A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180256   (342526) от 03.11.2017
+
+VA - Psygressive Vol.1 (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maitika & Tronsho - Dreams (Original Mix)
+02. Cosmic Tone & Cosmic Flow - Boombay (Original Mix)
+03. Egorythmia & Static Movement - Mutation (Original Mix)
+04. Mindbenderz - Sacred Rituals (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401BF6F7C0B93702F70FBE0A56AE7FD3065F4069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179952   (342512) от 03.11.2017
 
 Brookes Brothers - Orange Lane (2017) LP [MP3|320 Kbps] <Drum & Bass>
@@ -680,64 +738,6 @@ VA - Flat ABS 80s Hits Fitness Compilation (2019) [MP3|320 Kbps] <Funky, Club Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D4BD4295FC1BCBC797AFACD72311E3A0AE12440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330444   (341001) от 10.10.2019
-
-Dave Steward - Rage (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uncontrolled (8:10)
-02. Cranked (7:53)
-03. The Verge (7:47)
-04. Shadows (7:11)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53A44751C7448F0C5BA523C0F7377AA356428ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578629   (340939) от 25.09.2022
-
-VA - Ana Criado - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic & Ana Criado - Ask Me Anything (Original Mix) (3:10)
-02. Yuri Kane & Ana Criado - Running Wild (Radio Edit) (3:34)
-03. Ana Criado & Costa - Love Is An Act Of Courage (Original Mix) (3:21)
-04. Stoneface & Terminal with Ana Criado - My Heart Won't Tell You No (Radio Edit) (4:35)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7E1BC57AA3CD8C4D0539FA5C1931DCF443FD3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

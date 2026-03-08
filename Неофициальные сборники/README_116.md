@@ -1,3 +1,175 @@
+###  Публикация: 1106125   (873649) от 19.02.2017
+
+VA - German Top 100 Single Charts 17.02.2017  [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You
+002. Zayn & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker)
+003. The Chainsmokers - Paris
+004. Ed Sheeran - Castle on the Hill(   Читать дальше...   )Жанр: PopПродолжительность: 05:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F0C667AB260AF86E5A0C19AB8B84D14CD7B39F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106101   (873639) от 19.02.2017
+
+VA - I Love Music! - Trap Edition Vol. 36 (2017) [MP3|320 Kbps] <Trap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Benasis - AK 3:49
+002. Big Wild - Invincible (feat. iDA HAWK)Жанр: TrapПродолжительность: 02:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E502AC562F63B560DCABF72FF449B79B01A0C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106289   (873636) от 19.02.2017
+
+VA - Empire Records - Club Hit 10 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hakan Akkus - I Can't Be (Eyup Celik Remix)
+02. Microwave Monkeys - Ive Been Thinking About You (feat. Nita)
+03. Danny Darko Ftjova Radevska - Butterfly (Grotesque Remix) Radiob.Mp3
+04. V.E.I feat. Metallica - Fade to Black (Deep House Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B14B45A5895706A89D68478231BB6579A87BE5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997401   (873557) от 17.03.2016
+
+Магаданцы (анс. "Парус") - Запись в ресторане Магадан 1 (1972) [MP3|320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Люблю цыгана
+02. Увяли розы
+03. Колымская ГЭС
+04. Ваше благородие(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53CA341C437E3D86A4BF2B866707C630D5DB77A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106401   (873523) от 19.02.2017
+
+VA - Record Super Chart #475 (2017) [MP3|320 Kbps] <House, Club, Danc>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ofenbach - Be Mine (Amice Remix)  3:23
+02.  Klaas - Riot (Extended Mix)  4:00
+03.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  3:20
+04.  Грибы - Копы (Vincent & Diaz Remix)  4:10(   Читать дальше...   )Жанр: House, Club, DancПродолжительность: 02:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E1748728C2B4588263552370CE1250A843C9FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106097   (873515) от 19.02.2017
+
+VA - I Love Music! - Trap Edition Vol. 35 (2017) [MP3|320 Kbps] <Trap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873515.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam Bomb & WKND BAES - Dab (Original Mix) 3:36
+002. Afrojack & Jay Karama - Diamonds (Extended Mix) 3:21
+003. Andres Fresko x Lit Lords - Fire Squad (Original Mix) 2:20
+004. Anevo & Kiso feat. Kayla Diamond - Black Beatles (Original Mix) 3:26(   Читать дальше...   )Жанр: TrapПродолжительность: 05:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA177840A5973D40D4B3D6A018D12A524F9448F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997695   (873451) от 17.03.2016
 
 VA - Золотые Медляки (2016) [MP3|320 кб/с] <Pop, Rock>
@@ -568,180 +740,6 @@ VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC3A2341EBC2F690EB4CCEC3A80CB6520105B770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496410   (872864) от 17.09.2021
-
-VA - Hard Punk Review (2021) [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872864.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scott Sellers - Back To Reality
-002. Authority Zero - Fire Off Another
-003. Riskee & The Ridicule - Millwall Brick
-004. Tim Vantol - You Will Never(   Читать дальше...   )Жанр: Punk, Rock Punk, AlternativeПродолжительность: 05:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413E5E3CB6C0E4CC08E1FE4C1E69FE012788A4E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496444   (872856) от 17.09.2021
-
-VA - The Deep Emotion: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout, Relax, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christoph Spendel - Afoxe Verao
-02. Mkk - Still Tryna
-03. Jusscomplex - Last Orders
-04. Five Seasons - Let Me Drive(   Читать дальше...   )Жанр: Lounge, Chillout, Relax, DowntempoПродолжительность: 04:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B96E25E67707F6A71DA8838608AA38A4C576BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496424   (872855) от 17.09.2021
-
-VA - RnB: Music Is My Life (2021) [MP3|320 Kbps] <Rnb, Soul, Funk>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872855.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Chantels - Never Let Go
-002. Pia Mia, Chris Brown - Do It Again
-003. Davide Shorty - Regina
-004. Sada Baby - Whole Lotta Choppas(   Читать дальше...   )Жанр: Rnb, Soul, FunkПродолжительность: 07:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADBA86CA6CB731382259F9CD0F81CE258A3A822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374389   (872835) от 10.04.2020
-
-VA - Beatport Bassline: Electro Sound Pack #50 (2020) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872835.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Schoco - Pressure Rising
-002. Magness - Bling Bling
-003. Solace - Occam's Razor
-004. Artificial Intelligence - Isolate(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 09:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2EBCBB49AB6AD683395FCE81C8BCC7A0BDC0456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106377   (872736) от 19.02.2017
-
-J. R. Blackmore - Destructive Mania (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destructive Mania
-02. Your Last Chance
-03. Beethoven
-04. Drivin' Song (It's Rock)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1269F0191DA039D8D349CAA3CBFC2F949FFE1773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374386   (872687) от 10.04.2020
-
-VA - Beatport Tech House: Electro Sound Pack #53 (2020) [MP3|320 Kbps] <Tech House, EDM, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872687.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Niereich & Shadym - Element 115
-002. S3ktor - Up Quark
-003. Vanepatch & Talee - Levitate (Original Mix)
-004. Exos - Green Beat (Original Mix)(   Читать дальше...   )Жанр: Tech House, EDM, TechnoПродолжительность: 13:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB7E52D4D7E830765D79D1CAB9D51FD17E51E66
 ```
 
 https://mybot314.ru/tekegram_catalog/

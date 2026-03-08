@@ -1,3 +1,61 @@
+###  Публикация: 1765398   (101410) от 13.12.2024
+
+Jessica Simpson - Sweet Kisses (1999) CD, Album [FLAC|Lossless|tracks + .cue] <Pop,  Ballad, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Love You Forever (4:26)
+02. I Think I’m in Love With You (3:19)
+03. Where You Are (4:33)
+04. Final Heartbreak (3:40)(   Читать дальше...   )Жанр: Pop,  Ballad, VocalПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E00CC6FF0AE63BD00D233CA07341481DC6660F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765718   (101356) от 14.12.2024
+
+Luther Vandross - Never Too Much: Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Too Much [00:03:48]
+02. Power of Love / Love Power [00:06:42]
+03. Give Me the Reason [00:04:42]
+04. Stop to Love [00:05:11](   Читать дальше...   )Жанр: R&BПродолжительность: 01:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4918FF6F9B65214CCD10A03ECE705F6AC0EA52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765932   (101312) от 15.12.2024
 
 Purple Disco Machine - Club Paradise (2024) [MP3|320 Kbps] <Electronic, Disco, Nu-Disco>
@@ -731,70 +789,6 @@ Sandra - 18 Greatest Hits (1992) (Japan press) [FLAC|Lossless]<Pop>
 ###  Подробнее
 
 Жанр: PopПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483955   (89262) от 18.04.2012
-
-5sta Family - Зачем ?(2012) [MP3|320 kbps]<Pop | RnB>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89262.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Spring Summer (В.Косинский, В.Ефремов)
-2. Зачем (О.Засульская, В.Косинский, В.Ефремов)
-3. Покажи мне смысл (В.Косинский, В.Ефремов)
-4. Мы здесь2012Жанр: Pop | RnBПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823A11CFF34D4D96BEDC76D767E78B4C365B9648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483681   (88809) от 16.04.2012
-
-Тамара Гвердцители - The Best (2010) [FLAC|Lossless]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:58:35
-
-01 - Мамины глаза [4:19]
-02 - Украденное сердце [4:41]
-03 - Песня Маргариты [4:37]
-04 - Кавказская пленница [4:15]
-05 - Сильней любите [4:14]
-06 - Осень [3:59]
-07 - Расскажите, ангелы [4:04]
-08 - У последней черты [4:18](   Читать дальше...   )
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,119 @@
+###  Публикация: 1292823   (643082) от 31.03.2019
+
+VA - не Громкие новинки недели 8 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Маши - О Нас (3:40)
+02. 3GUN feat. IZZY - Сердце (3:10)
+03. DallasK & Nicky Romero feat. XYLO - Sometimes (3:02)
+04. Ellen - Why (4:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BB0D7F7E7C97A6FF7F3EA471C51DED6BE433A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090104   (642836) от 14.06.2017
+
+VA - Legends Classics World (2017) [MP3|320 Kbps] <Classical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642836.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ivanovici - Donauwellen 5:31
+002. Mozart - Eine kleine Nachtmusik - Allegro 5:51
+003. Puccini - O mio babbino caro from Gianni Schicchi 2:30
+004. Beethoven - Violin Romance No.2 9:51(   Читать дальше...   )Жанр: ClassicalПродолжительность: 08:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317685309EB650E3ED2D5707B8653B4109D943D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142492   (642448) от 14.06.2017
+
+VA - Топ 50: Русские Песни Про Любовь (2017) [MP3|192-320 Kbps] <Поп, Рок, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Пикник - Твоё сердце должно быть моим  4:15
+02.  Оскар - Между мной и тобой  4:52
+03.  Калинов мост - Родная  5:09
+04.  Рок-Острова - Ничего не говори  4:18(   Читать дальше...   )Жанр: Поп, Рок, РетроПродолжительность: 03:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEE5826BA4D667D0FE218EEC425534E3379096B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907093   (641513) от 10.06.2015
+
+VA - Car Audio. Ракетное топливо (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Deep, G-House, Trap, Drum & Bass, Electro, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641513.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 3Lau, Nom De Strip, Estelle - The Night (Chris Bushnell Remix)
+2. Affect! - Akaria (Nick Devon Remix)
+3. Alok - Dance (Original Mix)
+4. Amado Olvera - Further (Original Mix)(   Читать дальше...   )Жанр: Deep, G-House, Trap, Drum & Bass, Electro, TranceПродолжительность: 11:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE8556430385D19AB85663817163E6591A990F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906841   (641378) от 10.06.2015
 
 VA - My Favourite Hits of 1976 (14CD) (2015) [MP3|320 кб/с]<Electronic, Chanson, Funk, Disco, Pop, Rock, Blues Rock>
@@ -659,134 +775,6 @@ VA - Empire Records - Retromania 3 (2017) [MP3|320 Kbps] <Nu Disco, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:140374D3E4DB2B1069E3C54473006B8C1BBFD7BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519390   (637348) от 06.07.2012
-
-VA - Blues & Rock Ballads (2012) [MP3|320 кб/с]<Blues, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alvin Lee - The blues best
- 02. Beefeaters - You Changed My Way Of Living
- 03. Bugs Henderson - Anthem For The Blues
- 04. Charlie Winston - Tongue Tied
- 05. Cinderella - Hard To Find The Words
- 06. Colin James - Standin On The Edge
- 07. David Denny - Without You
- 08. Dr. Hector - Safe In Your Arms Again
- 09. Eagles - Doolin-Dalton
- 10. Fred James - The Strength To Be Alone(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 02:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37249672D379435925111E4D5A341D680CF141F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519241   (636909) от 06.07.2012
-
-VA - The Best of 1980-1990 (20CD) (1990 - 1998) [MP3|320 кб/с]<Pop, Pop Rock, Synth-pop, Hip Hop, Electronic, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simple Minds - Don't You (Forget About Me) (Radio Edit)
- 02. David Bowie - Let's Dance
- 03. Yes - Owner of a Lonely Heart
- 04. Glenn Frey - The Heat Is On
- 05. Billy Idol - Catch My Fall
- 06. ZZ Top - Sleeping Bag
- 07. Whitesnake - Here I Go Again
- 08. Foreigner - Urgent
- 09. Pete Bardens - In Dreams (Album Version)
- 10. R.E.M. - The One I Love(   Читать дальше...   )Жанр: Pop, Pop Rock, Synth-pop, Hip Hop, Electronic, RockПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE375268A0991B8A389EB1D13F19AFA7DE09E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033837   (636139) от 12.07.2016
-
-VA - Kizomba Sexy Hits (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anarita - Sorry 04:11
-02. Kaysha - Raquel (feat. Nichols) 04:17
-03. Vanda May - Hello 04:37
-04. G.No - Viajar por Ti 04:00(   Читать дальше...   )Жанр: World, Zouk, KizombaПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1AB611C1807B2E716BC28446EE4714803C6E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033962   (636136) от 12.07.2016
-
-VA - Kizomba Sexy Hits Vol 2 (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liju - Without You 04:31
-02. Vanda May - Done with You (feat. Shana Kihal) 04:04
-03. Kaysha - One Love 03:59
-04. G.No - Sexy Mami 03:30(   Читать дальше...   )Жанр: World, Zouk, KizombaПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9038B6B87959F5FBB83152B653A7B49DF3E277
 ```
 
 https://mybot314.ru/tekegram_catalog/

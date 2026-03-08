@@ -1,3 +1,32 @@
+###  Публикация: 1458966   (1023472) от 31.03.2021
+
+VA - Just My Dream: Disco Dance Mix (2021) [MP3|320 Kbps] <Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почитатели и друзья диско музыки! Налетайте! Всё-таки надо и как-то отдохнуть от этих электро звуков и окунуться в мир живых и ярких мелодий. А потому почему бы не украсить время отдыха музыкальной подборкой танцевального направления в формате доброго диско? Представляем Вам танцевальный сборник для души и тела – «Just My Dream».001. Atfunk - Something About You
+002. Microsha 89 - 2021
+003. Da Lukas - Pretty Face
+004. Boogietraxx - On My Mind(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 11:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:431310F1E61BC5966BFC1ED54A50B2C4341890DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458970   (1023469) от 31.03.2021
 
 VA - The Dream Dance (2021) [MP3|320 Kbps] <Pop, Dance, Romantic>
@@ -713,35 +742,6 @@ VA - Soft Pop Hits 3 (2021) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6031A247E9BDA6C9A6EBDB02104957512A5CE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470161   (1015711) от 16.05.2021
-
-VA - NRJ 300 % HITS 2021 (3CD) [MP3|320 Kbps] <Dance, R&B, Hip Hop, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aya Nakamura - Doudou
-02. Ava Max - My Head & My Heart
-03. HATIK - La meilleure (feat. Jok'Air)
-04. Tom Gregory - Rather Be You(   Читать дальше...   )Жанр: Dance, R&B, Hip Hop, PopПродолжительность: 02:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01DB64D846B9FA734ABBB5C6D34BE0C554E51C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

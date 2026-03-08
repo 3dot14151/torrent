@@ -1,3 +1,32 @@
+###  Публикация: 973157   (980200) от 08.01.2016
+
+VA - Deep Insane Sensation Vol 1 (2016) [MP3|320 кб/с] <Deep House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Morais - We All Fall Down (07:03)
+02. Hyzan - Booty (08:45)
+03. Hyzan - So Icey (07:18)
+04. OTTOO - Growl (06:49)(   Читать дальше...   )Производство: Deep InsaneЖанр: Deep House, Club HouseПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DD738E14EBE7AEAAEC8F1CEF06AB757A82DD42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356466   (979118) от 30.01.2020
 
 VA - Chic & Shock (House Music Selection 2020) [MP3|320 Kbps] <Deep House>
@@ -735,35 +764,6 @@ VA - Next Destination: Summer Chill-Out (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6A9B6BF67CB426D827D79207BCFC203C4C59987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088839   (955152) от 01.01.2017
-
-VA - The Best Running Beats 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suzie Kju - Baby! (Classic edit)
-02. Million Colours - I Hold On (radio edit)
-03. Cheap Sunglasses - Till The End (Endless mix)
-04. Ibiza Groove Squad - I Don't (DJ Absinth Fitness remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F354D3FB8702D739658BA9C5AF0DAE67EC9617F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

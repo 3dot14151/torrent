@@ -1,3 +1,32 @@
+###  Публикация: 1095187   (924383) от 21.01.2017
+
+VA - Trance Mission: Best Of 2016 (Mixed by DJ Feel) (2017) [MP3|320 Kbps] <Trance, Energy, Emotional, Vocal, Uplifting, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Yoel Lewis feat. Sivan - Caesarea (Extended Mix)  3:05
+02.  Alan Walker - Faded (Dash Berlin Remix)  2:37
+03.  Above & Beyond feat. Alex Vargas - Sink The Lighthouse (Maor Levi Remix)  3:52
+04.  Simon Lee & Alvin - Xcelerate (Extended Mix)  2:47(   Читать дальше...   )Жанр: Trance, Energy, Emotional, Vocal, Uplifting, ProgressiveПродолжительность: 04:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54CD2158C02E481B8AE822145B349F19155420A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095414   (924377) от 21.01.2017
 
 VA - Chillout Hits (2017) [MP3|320 Kbps] <Chillout, Lounge>
@@ -730,35 +759,6 @@ VA - February Top 100 - Collection Trance (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DFA25BF89FDAAF27FDCA886565C1235937C379A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988785   (919178) от 21.02.2016
-
-VA - Smooth Jazz n' Chill (2016) [MP3|320 кб/с] <Smooth Jazz, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lebron - Kiss and Tell (04:06)
-02. Oli Silk - Get out Claws (03:28)
-03. Randy Scott - Kisses (04:52)
-04. Jaared - Jamaican Winds (03:41)(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9670DB3154EDBC275605F6A8F928702CB9028E
 ```
 
 https://mybot314.ru/tekegram_catalog/

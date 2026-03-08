@@ -1,3 +1,61 @@
+###  Публикация: 1247994   (448684) от 17.09.2018
+
+Armada Deep - Ibiza Closing Party (2018) [MP3|320 Kbps] <Minimal,Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448684.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yotto – The One You Left Behind (feat. Vok)
+2. Maya Jane Coles – Go on and Make It Through
+3. Lane 8 – The Disappearance of Colonel Mustard
+4. Jan Blomqvist – The Space in Between (Ben Böhmer Remix)(   Читать дальше...   )Жанр: Electronic, Deep House, HouseПродолжительность: 04:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A4701124F6890D53DB314F03E76F3141E72DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451096   (448579) от 14.08.2022
+
+Timmy Trumpet - SINPHONY Radio 001-077 (2021-2022) [MP3|320 Kbps] <Electro House, Hardstyle, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448579.jpg" />
+</div>
+
+
+###  Подробнее
+
+SINPHONY Radio 001
+01. Nick Strand & Mio & LUM!X - Annie Are You Ok (LUM!X Remix)
+02. Tom Westy - Tell Me
+03. Keanu Silva - Turn It Up(   Читать дальше...   )Жанр: Electro House, Hardstyle, Big RoomПродолжительность: 77:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7326B8005A51D175E1A16C1D2CDBB6F36A7F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322341   (448381) от 29.08.2019
 
 HIDE - Hell Is Here (2019) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Industrial>
@@ -687,64 +745,6 @@ VA - Falling in Love with Lounge Music, Vol. 2 (2017) [MP3|320 Kbps] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FFB131EE9F674FE5A2C59B787EBF6BC9551711D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248100   (446191) от 18.09.2018
-
-Double Fantasy - Food For Fantasy (1994) [MP3|320 Kbps] <Electronic>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.F. - The New Generation 6:28
-02. Universal Ave.  5:00
-03. Starride 5:41
-04. Energy Force 4:18(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A163AC51C4CF7B2A45F5F854D1CE5A4BFAD7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061760   (446140) от 11.10.2016
-
-Vangelis - Rosetta (2016) [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origins (Arrival) (04:23)
- 02. Starstuff (05:14)
- 03. Infinitude (04:30)
- 04. Exo Genesis (03:33)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9021E29CDB57EC47353D4A8B7F5D9C05820F168E
 ```
 
 https://mybot314.ru/tekegram_catalog/

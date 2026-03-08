@@ -1,3 +1,32 @@
+###  Публикация: 915502   (592221) от 05.07.2015
+
+VA - 100 Hits - 80s Love (2007) 5CD Box Set [FLAC|tracks + .cue]<Pop, Dance, Soul, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luther Vandross - Stop To Love [04:21]
+02. Five Star - Rain Or Shine [03:53]
+03. Boy Meets Girl - Waiting For A Star To Fall [04:25]
+04. Jason Donovan - Every Day (I Love You More) [03:23](   Читать дальше...   )Жанр: Pop, Dance, Soul, VocalПродолжительность: 06:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0757523DFD523C645523252A3B225012CE23010A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916002   (591404) от 07.07.2015
 
 Zucchero - BlueSugar (1998) [FLAC|image+.cue]<Pop, Soft Rock>
@@ -723,35 +752,6 @@ Zucchero - Spirito Di Vino (1995) [FLAC|Lossless]<Pop-Rock-Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73DFE1E2FA30B84A72E1670DE6ED2AE485D983FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042603   (578441) от 13.08.2016
-
-Sandra Van Nieuwland - Breaking New Ground (2015) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking New Ground (3:50)
-02. Stop The Clocks (3:38)
-03. Another Life (3:01)
-04. Truth (3:14)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B843E40F23432B5AE673F4FD658837758DD74B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

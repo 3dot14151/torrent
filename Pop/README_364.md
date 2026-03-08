@@ -1,3 +1,61 @@
+###  Публикация: 1776021   (29399) от 29.01.2025
+
+VA - MegaHits 2025 - Die Erste [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gracie Abrams - That’s So True (2:46)
+02. Billie Eilish - BIRDS OF A FEATHER (3:30)
+03. Jazeek - Ma Baby (2:18)
+04. The Weeknd - Timeless (4:16)(   Читать дальше...   )Жанр: PopПродолжительность: 02:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1A512EC4BE89280184DA18E1A0258B898A1D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775902   (29376) от 29.01.2025
+
+VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic, Pop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spinners - Working My Way Back To You Babe
+02. Real Thing - Can You Feel The Force
+03. Instant Funk - I Got My Mind Made Up
+04. Sugarhill Gang - Rapper's Delight(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C95E185476D1E4D10C64D9BE76B1430D74FEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775993   (29369) от 29.01.2025
 
 Secret Service - Aux Deux Magots (1987) [OGG Vorbis|480 Kbps] <Pop>
@@ -688,64 +746,6 @@ VA - Любэ 35. Всё опять начинается. Трибьют (час
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51AFC6E78A9C2961E15D2A34487474A7A3D2B612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781036   (26876) от 21.02.2025
-
-NЮ - Когда мы были львами (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26876.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ангел
-2. Обернись
-3. Ницше
-4. Смотри в меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0A71DB38BDA5F18F6AD4F661507AAF78C5A11E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781312   (26776) от 22.02.2025
-
-VA - Modern 80's - The Best Of Discopop (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You Can Win If You Want
-02. Fancy - Slice Me Nice
-03. C.C. Catch - I Can Lose My Heart Tonight
-04. Kylie Minogue - The Loco-Motion(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 02:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E29F3BB1E96C3BD8D3268BA11B07D375BFD1C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

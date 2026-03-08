@@ -1,3 +1,119 @@
+###  Публикация: 1455562   (1025621) от 19.03.2021
+
+VA - Music News vol.82 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025621.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. MeMaria - Кармен (02:22)
+ 002. 5sta Family & Eva Miller - Зачем (02:43)
+ 003. 22 - Отстаньте От Меня (02:09)
+ 004. Эдуард Хуснутдинов - Судьба Дорога (03:56)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1843D8414982680FD7829D6BE1C03A7CBE61DFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455583   (1025617) от 19.03.2021
+
+VA - Music News vol.83 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025617.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Polina - Поцелуй Со Вкусом Текилы (02:58)
+ 002. Alexander Oscar - One More Dance (03:01)
+ 003. Alok feat. Matheus & Kauan - TU (02:41)
+ 004. Avy - Сошла С Ума (02:43)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D72EBAF8A13A6E49CB3EE0825F276CD02E8E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455700   (1025443) от 20.03.2021
+
+VA - Moonlight: Neoclassical Collection (2021) [MP3|320 Kbps] <Neo Classic, Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник посвящается переосмыслению классики и современным композиторам, работающим в направлениях, так или иначе дружественных с классической музыкой в ее современных вариациях. Если традиционная классика требует строгого соблюдения канонов, то сегодня, когда границы жанров размываются, композиторы новой школы уделяют время экспериментам и привнесению новых стилистических (   Читать дальше...   )001. Ilio Barontini - Moonlight
+002. Elisabeth Brauß - Opus 2021
+003. Derek Hunter Wilson - Foolish
+004. Ramin Djawadi - White Walkers(   Читать дальше...   )Жанр: Neo Classic, InstrumentalПродолжительность: 06:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA65CE079242C8705ADAA69ECEBEF9110D147CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455945   (1025375) от 20.03.2021
+
+VA - Громкие новинки Марта (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Миа Бойка, ЕГОР ШИП - Наруто (1:45)
+02. RASA - По приколу (1:55)
+03. Тайпан, Agunda - Мерцают огни (1:58)
+04. Ваня Дмитриенко - Стерва (2:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AEAE02384AC5FB17BB3399F5DE58DBFC830C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456350   (1025119) от 22.03.2021
 
 VA - Happier Day: Best Country Songs (2021) [MP3|320 Kbps] <Country, Blues, Folk>
@@ -629,122 +745,6 @@ VA - 200 mp3 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DA17ABF65576E5F580E197968C93392CD3E09E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460057   (1022223) от 07.04.2021
-
-VA - Новинки с разных популярных MP3 сайтов, vol.106 (2021) [MP3|320 Kbps] <Club, Dance, Disco, Pop, Rap, RnB, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rus 
-001. 10AGE - Нету Интереса
-002. 104 feat. Miyagi, Скриптонит - Не Жаль
-003. Agunda, Тайпан - Мерцают Огни(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 06:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2624785F7D6FFD2BA71E9887D7344A75C3871640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460757   (1022206) от 07.04.2021
-
-VA - Наш Тик Ток (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Grey - Сложно (2:52)
-02. Моше Эд - Молодой и пьяный (2:16)
-03. FELIX - Лали 17 (2:18)
-04. Юля Годунова - Смотри как надо (2:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6290CF6317A790D8057C038721D7B6F3782EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460790   (1022192) от 07.04.2021
-
-VA - Shazam Хит-парад World Top 200 Март (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022192.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Masked Wolf - Astronaut In The Ocean (2:12)
-002. Bruno Mars, Anderson .Paak, Silk Sonic - Leave The Door Open (4:02)
-003. Justin Bieber, Daniel Caesar, Giveon - Peaches (3:18)
-004. Olivia Rodrigo - drivers license (4:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5B9DA2A39B20A91CE39DE18858A48A9B486BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461468   (1021764) от 10.04.2021
-
-VA - Music News vol.90 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021764.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zolita feat. Kailee Morgue - Bedspell (02:50)
- 002. ЯD - Катим-Катим Со Дворов (02:29)
- 003. Alana O. - Пока Ты Спишь (02:46)
- 004. Aly & AJ - Symptom of Your Touch (03:15)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1B67E11A569AA158C797E22FBFA6886073FBFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

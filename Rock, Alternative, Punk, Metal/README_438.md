@@ -1,32 +1,3 @@
-###  Публикация: 1228615   (635826) от 01.06.2018
-
-Kataklysm - Meditations (2018) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guillotine
-02. Outsider
-03. The Last Breath I’ll Take Is Yours
-04. Narcissist(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEAC6A8218736D0B1A1980803DE5AEC73492E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907976   (635721) от 13.06.2015
 
 Europe - War Of Kings (2015) Japanese Edition [FLAC|image+.cue]<Hard Rock>
@@ -745,6 +716,35 @@ Jeff Lynne And Friends - Every Little Thing (2010) Compilation [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F23DD5B33A1D7DAC6075E412595D6FCC89646EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143175   (635242) от 18.06.2017
+
+Lanskoy & Co. - Вопреки (2017) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты нравишься мне
+02. Корабли ушли
+03. Вопреки
+04. Повезло(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7536793C66FE936A7CB9475CCE6E2CA4D5BB45
 ```
 
 https://mybot314.ru/tekegram_catalog/

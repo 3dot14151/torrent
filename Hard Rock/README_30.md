@@ -1,32 +1,3 @@
-###  Публикация: 1665262   (182315) от 30.09.2023
-
-Graveyard - 6 (2023) [MP3|320 Kbps] <Blues rock, Hard Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godnatt (3:16)
-02. Twice (2:41)
-03. I Follow You (5:19)
-04. Breathe In Breathe Out (5:44)(   Читать дальше...   )Жанр: Blues rock, Hard Rock, Psychedelic RockПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9376D5DDF6815727A8DE905ACA98478A3492F59B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428327   (180104) от 02.12.2020
 
 Dygitals - God Save The King (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
@@ -745,6 +716,35 @@ Ozzy Osbourne - Ozzmosis Part Two (2019) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F500B42225E833357344F07E17B570B0DB9AB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086129   (154726) от 23.12.2016
+
+Madison - Best In Show (1986) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Rendez Vous
+02. Carry On
+03. Can't Take It
+04. Drama (instrumental)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADB020BEB94A79F1DBF60290C6DAE037C2769FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

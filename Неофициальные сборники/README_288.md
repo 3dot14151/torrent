@@ -1,3 +1,198 @@
+###  Публикация: 1226423   (655760) от 20.05.2018
+
+VA - Unique Disco (2018) vol 2 [MP3|320 Kbps] <Electronic, Funk-Soul, PopRock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amon Duul Ii - Kismet (1978) (3:57)
+02. Anilisi 91 - Disco Magic (1978) (3:24)
+03. Bogart - On Broadway (1979) (5:56)
+04. Captain Zorro - Phantasm (1979) (6:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, PopRock, DiscoПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203323022E2F8335B6D726E214C3E1F175E49E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515248   (655634) от 26.06.2012
+
+VA - Клубная Музыка Дискотек Июня  Record 2CD (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655634.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+001 Bryce feat. J-Malik - Nothing Can Hold Us Back (Radio Edit)
+002 Мира - Пока, Пока Мой Мальчик (Leo.k Remix)
+003 Gravitonas - Call Your Name
+004 Градусы - Не Надо Париться
+005 Roxette - It's Possible (version One)
+006 Kishe - Город (Dub Makers Remix)
+007 Black Eyed Peas - The Time (Dirty Bit) (Afrojack Remix)
+008 Ирина Билык И Ольга Горбачева - Люблю Его (Remix)
+009 Ferry Corsten - Check It Out(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 08:30:18
+01 Время и Стекло - Серебряное море (DJ Melloffon radio edit)
+02 Joe Made - The Ring (Original mix)
+03 БэбиSкул & Max DeLmar & Katy Soul - Одинокие (club edit)
+04 Blackman feat. MC Freedom - Bring me down
+05 Чи-Ли - Кошка (Sergei Karpov Minimal Pop remix)
+06 The Crystal Method feat. The Heavy - Play For Real (Dirtyphonics remix)
+07 MM Dance - Отдыхаем (Dj Alfred extended mix)
+08 Starkillers, Dmitry KO - Disco Fans (Butterfly Terrace mix)
+09 Lika Star - Точка росы (Tone Project club mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E66CCCEA257AD1B090F9697A10536C74603DF8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140382   (655605) от 06.06.2017
+
+VA - Retro Radio Party (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655605.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Army Of Lovers - Obsession 3:41
+002.  Wham! - Wham Rap 3:34
+003.  Tasmin Archer - Sleeping Satellite 4:34
+004.  Paul Young - Wherever I Lay My Hat (That's My Home) 4:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5263FAD6C019F091380560D97AFBFD3C2AF65C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226336   (655554) от 20.05.2018
+
+VA - Душа Птица Вольная: Сборник Шансона (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем поклонникам шансона представляем свежий альбом «Душа Птица Вольная: Сборник Шансона», где отобрано 155 песен от талантливых исполнителей, среди которых зарекомендовавшие себя звезды и подающие надежды новички.001. Сборная Союза - Ты-Динамит
+002. КЛИММ - Тебя я встретил
+003. Ирина Коган - Мани
+004. Катя Ростовцева - Из Фантиков Роман(   Читать дальше...   )Жанр: ШансонПродолжительность: 09:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50338EF13FF278D4C13B44FC7A2799919757FA00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515713   (655513) от 26.06.2012
+
+VA - Рэп С Понятием Часть 4 (2012) [MP3|256 kbps]<Русский Рэп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655513.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Влади (Каста) - Пусть пригодится
+002 Dino MC 47 - Все когда-то останется в прошлом
+003 Батишта - Обычные люди
+004 KReeD - Старлетка
+005 Бьянка - Весна-Лето 3
+006 T-Killah feat. Виктория Дайнеко - Мира мало
+007 Караты feat. D.Lemma - Достигая вершин
+008 Линда feat. ST - Марихуана
+009 Кажэ Обойма feat. Баста - Ангел
+010 St1ff & Mc Pasha feat. Александр Кварта - На позитиве(   Читать дальше...   )Жанр: Русский РэпПродолжительность: 06:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAF6909E5C7D52CEE321F51112B3F12919EE090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194821   (655452) от 20.05.2018
+
+Владимир Ждамиров - Где-то там... (2017) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солнце в решку (4:54)
+02. Звонок на откидной (5:06)
+03. Где-то там (3:44)
+04. Любовь и судьба (3:54)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67FB0918A027983F3311EB759D8368F79B642E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226360   (655442) от 20.05.2018
 
 VA - Русский Хит В Машину Выпуск 2 (2018) [MP3|256-320 Kbps] <Pop>
@@ -614,189 +809,6 @@ VA - Союз Клубный. Выпуск 8 (2012) [MP3|256 kbps]<Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69B837E6F86D5FDF25ED5A178A242B53F55765D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226531   (654711) от 21.05.2018
-
-VA - Music Live (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654711.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Natasha Barnes - Sun, Moon and Stars
-002. Seal - I Put A Spell On You
-003. Saba - LOGOUT
-004. Diplo - Suicidal(   Читать дальше...   )Жанр: PopПродолжительность: 08:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBFB630F52015E3461A4DAF2D04207871DC4895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226528   (654706) от 21.05.2018
-
-VA - Synthetic Prototype (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современную синтетическую популярную музыку от зарубежных исполнителей уже язык не поворачивается назвать просто попсой. Новые технологии, свежие идеи и многолетний опыт позволяет восходящим звездам и знаменитостям создавать настоящую музыку для всех меломанов, даже с самыми специфичными вкусами.001. Erasure - Love You To The Sky
-002. Loewenhertz - Irgendwann
-003. Run Vaylor - Disco Cross
-004. Retouch - Earthquake(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 08:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A9CE943B33732D1858097B50A4136684563D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226533   (654698) от 21.05.2018
-
-VA - Deep House Collection Vol.171 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654698.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Distance & Riddick - Where Did U Go (Original Mix)
-002. Lucas Keizer - Toxic Desire (Original Mix)
-003. Dassler - Orion Choir (Original Mix)
-004. Barratt - Collider (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3025C281AB38E6DFBF287376A722870E548BA958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140805   (654692) от 07.06.2017
-
-VA - Hits Cocktail Vol.8 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axwell & Ingrosso - More Than You Know
-02. ANGEMI feat. Angemi - 4ever (Original Mix)
-03. Der HouseKaspeR - You & I (Extended Mix)
-04. Said the Sky - Show & Tell (feat. Claire Ridgely)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4AEE631C6FDBC0A5BDC7E2EFF30F4E5B5481AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516114   (654659) от 27.06.2012
-
-VA - Sexy Trance #40 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Drost & DK Project - Always Connected (Original Mix) [08:03]
- 02. Faruk Sabanci - As Faces Fade (Alexander Popov Remix) [06:50]
- 03. Heatbeat feat. Josie - Because Of You (Original Mix) [07:08]
- 04. Danilo Ercole feat. Marcie - Broken Wings (Original Mix) [08:06]
- 05. Fadios & Raneem - Chromium (Max Graham Remix) [06:47]
- 06. Dayzanst - Double Bind (Light On Remix) [07:09]
- 07. Claessen & Martens - El Dorado [07:54]
- 08. Cymatics - Empire Of The Sun (Original Mix) [06:23]
- 09. Ikerya Project - End Of Begining (Original Mix) [08:51]
- 10. John Askew - Fade To Black (Sean Tyas Remix) [07:33](   Читать дальше...   )Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C2A9A751C7885DD8D5471D32D8A5F6CC40591D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226500   (654596) от 21.05.2018
-
-VA - Hits of My Soul Vol. 36 (2018) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. SOiL - Redefine (03:36)
-02. Twisted Sister - Feel Appeal (03:19)
-03. Prophets Of Rage - Prophets Of Rage (03:10)
-04. Bad Company - Run With The Pack (05:22)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A90E43D793B6FC142A4002FD9626667CDB16CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1630883   (236993) от 03.05.2023
+
+VA - Senssual Miami (2023) CD, Compilation [MP3|320 Kbps] <House, Funky House, Nu-Disco, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiva - Physical Aspects (Original Mix)
+02. Mariam, David Jager - Para Siempre (Original Mix)
+03. Coxswain - Take Me Home (Original Mix)
+04. Juan Chousa - Bring Me My Love Today (Original Mix)(   Читать дальше...   )Жанр: House, Funky House, Nu-Disco, Tech HouseПродолжительность: 02:50:11 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338ABC6B2703E9408AE54945AD9305D8D80995ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630886   (236979) от 03.05.2023
 
 VA - Tune Zone: Deep House Edition (2023) [MP3|320 Kbps] <Deep House, Deep Groove, Tech House, Soulful>
@@ -716,35 +745,6 @@ VA - DMC Dance Mixes 215 (September 2018) (2018) [MP3|320 Kbps] <House, Dance, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:087D8AF00C172A23B8D956DE744296D5C1CABE66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268111   (229973) от 09.12.2018
-
-VA - Ibiza 2019 Winter Clubbing (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bang Bang, Tidy Daps - Susan Cries (Tidy Daps Remix) 5:59
-02. Dubeats - Tender Love (Dub Mix) 6:23
-03. G Spice, Flected - Reshape (Flected Remix) 6:11
-04. Jeff El Jefe - Sensual (Original Mix) 6:04(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C7228E081DD87CA5A9398EF5F3BA83DB49C93B
 ```
 
 https://mybot314.ru/tekegram_catalog/

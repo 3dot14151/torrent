@@ -1,3 +1,61 @@
+###  Публикация: 1330914   (336731) от 12.10.2019
+
+Cloud One - 2 Albums (1976, 1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atmosphere Strut (9:23)
+02. Spaced Out (6:38)
+03. Charleston Hopscotch (6:26)
+04. Dust To Dust (4:33)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCF229EDC6115643C05D8C068B6B27694143B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258463   (336645) от 30.10.2018
+
+VA - Discofox Megahits Vol.4 (2018) [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockstroh - Vermissen
+02. Pures Glück - Uns verbrennt die Nacht
+03. Mike Bauhaus - Mr. Right
+04. Sonia Liebing - Tu nicht so(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA1C7B2B15C377B958F455F823F1069331445D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330820   (336600) от 12.10.2019
 
 VA – Популярная радиодвадцатка 3 (2005) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -685,64 +743,6 @@ Mylene Farmer - Interstellaires (2015) [APE|Image+cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75845C558B25BC7A34C6335784BC36475EEAADC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259033   (333037) от 01.11.2018
-
-Dance Mission - Italo Disco Chapter 80ies (2018) [MP3|320 Kbps] <Euro-Pop, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TMY (3:21)
-02. Night After Night (4:10)
-03. Blinded by the Light (3:54)
-04. Deep in My Heart (3:52)(   Читать дальше...   )Жанр: Euro-Pop, Italo-DiscoПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33D6B24A9B3CC4F4483E97336D336CAEFA80D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259004   (333036) от 01.11.2018
-
-Dean Martin - Greatest Hits (2013) [FLAC|Lossless|tracks + .cue] <Vocal Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's Amore (3:08)
- 02. Ain't That a Kick in the Head (2:25)
- 03. Memories Are Made of This (2:16)
- 04. Volare (Nel Blu Di Pinto Di Blu) (3:00)(   Читать дальше...   )Жанр: Vocal PopПродолжительность: 00:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD56CF7C058C52DB034E350D2B885EF3B2576E49
 ```
 
 https://mybot314.ru/tekegram_catalog/

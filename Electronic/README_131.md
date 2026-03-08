@@ -1,3 +1,60 @@
+###  Публикация: 1042029   (793225) от 30.05.2020
+
+Clubroot - Discography 9 Releases (2009-2020) Lo Dubs Records [FLAC|Lossless|tracks+.cue, tracks] <Future Garage, Ambient, Dubstep, Bass, UK Garage>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infatuated (07:41)
+ 02. Explorer (06:47)
+ 03. For You (05:10)Тип издания: CD, WEBЖанр: Future Garage, Ambient, Dubstep, Bass •Продолжительность: 00:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40636008D402ECFA49B7E07ED33DC577F9750A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274584   (793061) от 07.01.2019
+
+Yves De Mey - Bleak Comfort (2018) Latency [FLAC|Lossless|WEB-DL|tracks] <Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gruen (05:58)
+ 02. Mika (05:53)
+ 03. Vecto (08:37)
+ 04. Bleak Comfort (06:27)(   Читать дальше...   )Жанр: ExperimentalПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4350107FB071842827FB71978ACF8EDB6B1065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274476   (793058) от 07.01.2019
 
 Ümlaut (Umlaut) - Musique De Film (2019) Audiobulb [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal, Experimental>
@@ -681,64 +738,6 @@ Roly Porter - Discography 6 Releases (2011-2020) Subtext [FLAC|Lossless|tracks+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E75026DB53D5A214E95733889001A69E0C5C9B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387133   (792435) от 31.05.2020
-
-David Guetta - United At Home: Fundraising Live From New York City, United States 2020-05-30 [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JAY-Z ft. Alicia Keys - Empire State Of Mind (ID Remix)
-02. David Guetta & MORTEN ft. Aloe Blacc - Never Be Alone
-03. David Guetta & MORTEN ft. RAYE - Make It To Heaven
-04. David Guetta - ID w/Martin Luther King - I Have A Dream w/Axwell ^ Ingrosso ft. Trevor Guthrie - Dreamer (Acappella)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 02:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804485DBB4DC7F7335564D0FCE88C7D1F1E12DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123236   (792421) от 07.04.2017
-
-VA - Milchbar - Seaside Season 9 (Compiled by Blank & Jones) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blank & Jones - My Island  4:20
-02.  Blank & Jones with Zoe Dee - Adios Ayer  4:29
-03.  Cantoma - Sea Of Blue  4:14
-04.  Zee Erf feat. Francesca Mondi - Southern Freeez (Mudd's Mix for Emma)  3:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4B40598E1FDB2B46CD7D115B32196E1CCCC550
 ```
 
 https://mybot314.ru/tekegram_catalog/

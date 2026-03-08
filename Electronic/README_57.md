@@ -1,3 +1,61 @@
+###  Публикация: 974512   (975682) от 12.01.2016
+
+VA - Deep Club Sounds, Vol. 1 (2016) [MP3|320 кб/с] <House, Club House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Booka. Neal Porter - Hide Your Soul (Teenage Mutants Remix) (06:39)
+02. Benn Finn - Beautiful Instant (Beatamines Remix) (07:21)
+03. Marga Sol - Find Yourself (07:01)
+04. Mia Lemar - Squire Of Desire (Leon Rodt Remix) (07:06)(   Читать дальше...   )Производство: KarmablackЖанр: House, Club House, Deep HouseПродолжительность: 02:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF229C8F946C90BEB5F465F4536829AC3720F222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356643   (975613) от 02.02.2020
+
+VA - Workout Women (2020) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Ale B - Raid the Radio (6:24)
+2.Rossetti Matteo - Space Age (4:52)
+3.Andy Well - Neblina Del Verano (5:02)
+4.Supernocs - Chorando (4:03)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB3040807069F95EBD072FD4AAC276A6805AA05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356595   (975611) от 02.02.2020
 
 VA - Hit Sexy Groove (2020) [MP3|320 Kbps] <Minimal, Tech House>
@@ -712,65 +770,6 @@ Howard Jones - Celebration (30th Anniversary) (2013) [FLAC|Lossless]<SynthPop, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF5695E28BCD1C6D3A0CED341B0E5D1605104ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617300   (969884) от 14.02.2013
-
-VA - Welcome To Ibiza (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Offshore (Hayley Parsons & Future Disciple Remix) - Futuristic Polar Bears
-02. Sweet Dreams (Timo Juuti & Hector 87 Remix) - Avicii
-03. Rock That Beat (Original Mix) - Duher
-04. Armada (Luke Tolosan & Max Tiger Dirty Remix) - Luke Tolosan
-05. Bingo (Frankox Remix)Жанр: HouseПродолжительность: 03:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652E1FE58740E3BB8B707B5BFAAE85A5BD2DA474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358272   (969767) от 07.02.2020
-
-Rupesh Cartel - Contract (2005) [FLAC|Lossless|image + .cue] <Synth-pop, Trance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969767.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Contract 3:22
-2 One Pair Of Hands 4:04
-3 Contract (Breach Mix) 7:10
-4 Childhood's Faith 3:44(   Читать дальше...   )Жанр: Synth-pop, TranceПродолжительность: 00:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844B995AF886B00A65497B2A1BE28C9F2F8C0307
 ```
 
 https://mybot314.ru/tekegram_catalog/

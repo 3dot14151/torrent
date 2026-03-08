@@ -1,32 +1,3 @@
-###  Публикация: 1364596   (936498) от 03.03.2020
-
-Envy - Atheist's Cornea (2015) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Moonlight (04:09)
-02. Ignorant Rain at the End of the World (03:29)
-03. Shining Finger (07:04)
-04. Ticking Time and String (06:28)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00: 43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD9E16501593589ADB11FE8D96B3E22791D0DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364432   (936497) от 03.03.2020
 
 Tacocat - This Mess Is a Place (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -751,6 +722,35 @@ Envy - Insomniac doze (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEE493C268B312350A779F01BF94044E58D35769
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364598   (935040) от 04.03.2020
+
+Envy - All the Footprints You've Ever Left and the Fear Expecting Ahead (2001) [FLAC|Lossless|tracks + .cue] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero (02:05)
+02. Farewell To Words (02:47)
+03. Lies, And Release From Silence (04:49)
+04. Left Hand (03:02)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCBBFF3E96150AB4A09C88E90BA29D8789F2115
 ```
 
 https://mybot314.ru/tekegram_catalog/

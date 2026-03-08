@@ -1,3 +1,32 @@
+###  Публикация: 1040203   (587058) от 04.08.2016
+
+VA - Хитовые Летние Песни 7 (2016) [MP3|256 Kbps] <Поп, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587058.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Archi-M & Самира - Так Красиво
+002. Lvndscape & Holland Park Feat. Nico Santos - Waterfalls
+003. Milen - Тебе
+004. Usher - Clueless(   Читать дальше...   )Жанр: Поп, DanceПродолжительность: 06:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE35B3F6F64BFBE611338A31D32665F6071D149B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552259   (586688) от 21.05.2022
 
 VA - Laidback Acoustic (2022) [MP3|320 Kbps] <Pop>
@@ -692,35 +721,6 @@ VA - Awesome 80s Super Hits (2016) [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A01B46342F53B9C960CA1C2FE5757D6E26170B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040969   (584430) от 07.08.2016
-
-VA - Никто кроме ты. Русское радио (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584430.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Бьянка - Никто Кроме Ты (Летняя Песня)
-002. Olisha - Дай Мне
-003. Стрелки - Семь Морей
-004. Andre Tay - Детство(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EB1EFBF4B8BD92F0BD9B4665F414F04F01D9A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

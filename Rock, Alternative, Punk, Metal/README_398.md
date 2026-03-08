@@ -1,32 +1,3 @@
-###  Публикация: 898752   (677164) от 17.05.2015
-
-Whitesnake - The Purple Album (2015) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn  (6:56)
-02. You Fool No One  (Interpolating "Itchy Fingers") (6:23)
-03. Love Child  (4:13)
-04. Sail Away  (Featuring "Elegy For Jon") (4:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459B3A9E5B3CF5439A07DB84B415127F7BA99FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136057   (677160) от 21.05.2017
 
 The Deep - Psychedelic Moods (1966) Reissue, 2004, Radioactive [MP3|320 Kbps] <Garage, Psychedelic Rock>
@@ -749,6 +720,35 @@ Jeff Liberman - Songwriter / Musician (2016) [MP3|320 Kbps] <Blues-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCB4BBF57FFC327EFC118DA10B8B092A3D222E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029486   (676522) от 29.06.2016
+
+Cozy Powell - The Best Of Cozy Powell (1997) Reissue [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme One
+02. Killer
+03. Sweet Poison
+04. The Loner(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2735972A9F16631CD22DB20CDEE1F3BF1591A58A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,89 @@
+###  Публикация: 1104930   (878297) от 16.02.2017
+
+Pantaculo Mistico - Hermetico (Hermético) (2016) [FLAC|Lossless|image + .cue] <Pagan, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Onde os Extremos se Tocam (3:51)
+02. Viagem Astral (11:33)
+03. Vagando por Caminhos Desconhecidos (9:25)
+04. 666 + 777 - A Uniao do Treze (6:05)(   Читать дальше...   )Жанр: Pagan, Doom MetalПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A2AB6052625ADB4B714047E47ABE16B99F7173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104801   (878288) от 16.02.2017
+
+Solution .45 - Nightmares in the Waking State- Pt.I (2015) [FLAC|Lossless|image + .cue] <Melodic Groove Metal, Progressive Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanderer from the Fold 05:18
+02. Perfecting the Void 05:31
+03. Bleed Heavens Dry 05:09
+04. Winning Where Losing Is All 05:58(   Читать дальше...   )Жанр: Melodic Groove Metal, Progressive Melodic Death MetalПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A57848E1903031BA0F9F2F1016CA93E70FEB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997001   (877575) от 15.03.2016
+
+Mechina - Andromeda (2016) Single [FLAC|tracks|WEB-DL]<Industrial, Symphonic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877575.jpg" />
+</div>
+
+
+###  Подробнее
+
+[09:22] 01. Andromeda (2011 Version)
+[08:39] 02. Andromeda (2016 Remixed Version)
+[08:39] 03. Andromeda (2016 Instrumental Version)Жанр: Industrial, Symphonic Death MetalПродолжительность: 00:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3244731935D1D1E96985C4EBA402B6B0129F848B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495761   (877455) от 14.09.2021
 
 Ancient Empire - Priest Of Stygia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -657,93 +743,6 @@ Mr. Bungle выпустили специальный хэллоуинский в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DD7BC5B187947F2DD1C38456A5735A4854FD547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590711   (874201) от 09.04.2020
-
-Black Label Society - Hangover Music vol. VI (2004) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Or High [03:33]
-02. Queen Of Sorrow [04:15]
-03. Steppin Stone [04:54]
-04. Yesterday, Today, Tomorrow [03:42](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:66:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83046DE0FD9ACE5FFD4A167A3081A7372D2EC6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997454   (873910) от 17.03.2016
-
-Augrimmer - Moth and the Moon (2016) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873910.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Yonder
-2. Moth and the Moon
-3. Sultana
-4. The Lament of Gods 2(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5197F5F78DB9BE9B234F3FB7CEAD14A145636535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997449   (873907) от 17.03.2016
-
-Urgehal - Aeons in Sodom (2016) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dødsrite
-02. The Iron Children
-03. Blood of the Legion
-04. The Sulphur Black Haze(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D643E6C9FDB07BABAABA5AC8809050EB72459D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

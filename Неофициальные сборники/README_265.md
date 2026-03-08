@@ -1,3 +1,177 @@
+###  Публикация: 1535003   (686294) от 06.03.2022
+
+VA - Шансон о любви (2022) [MP3|320 Kbps] <Поп, шансон>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирина Круг - С праздником! (4:20)
+02. Виктор Королёв - Любимая (4:25)
+03. Иван Кучин - Черноокая (3:11)
+04. Алексей Брянцев - Ты заменишь мир (3:52)(   Читать дальше...   )Жанр: Поп, шансонПродолжительность: 05:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE8604100E542A115FDABF40AC3660E5660C0A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535237   (686290) от 06.03.2022
+
+Systems In Blue - Compilation (2020) [MP3|320 Kbps] <Eurodisco, Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System in Blue
+02. Two Faces
+03. Back in Blue
+04. You Kill Me With Your Smile (Instrumental)(   Читать дальше...   )Жанр: Eurodisco, Pop, DanceПродолжительность: 05:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96483C1A29C1DBA919BE1568A1A2133BDAEB748C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028848   (686247) от 24.06.2016
+
+VA - Любимая Музыка Для Твоей Тачки. Русский Выпуск (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Emin - Рядом Проснуться
+002. Fargo - Катя Любит Деньги
+003. Наталья Матроскина - Там Внутри
+004. Nastika - Че Качок(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640F37882AFBC01D5D84A60265DA6F228F288496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535186   (686159) от 06.03.2022
+
+VA - Подарок любимой женщине (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686159.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dan Balan и Indi - Дышат о любви (3:19)
+002. Ева Польна - Я тебя тоже нет (Je T'aime) (4:00)
+003. Алла Пугачёва - Не звони (2:47)
+004. Евгений Осин - 8 марта (3:43)(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF08058AF762438FE761F026D2E953317D75C3C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534956   (686154) от 06.03.2022
+
+VA - Compilation part 7 (Rock, Blues Rock) (2022) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricky T and the Rockets - Memory Pain
+02. Janiva Magness - Tell Me
+03. The Bluesbones - Believe Me (Symphonic Version)
+04. The Bluesbones - Wrong(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ACD051B33853BAC78721C873E2EB8AE8468EE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028951   (686090) от 24.06.2016
+
+VA - Need For Speed - Жажда Скорости (2016) [MP3|236-320 кб/с] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grinda And Ambrela - Good Morning (Original Mix)
+02. Simon Holmes - 2 B Free (Original Mix)
+03. Omauha - Little Demons In My Head (Original Mix)
+04. Kid Panel - R U Ready (Beatsmith & Generic (Bc) Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 08:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0397787F2453F971097930660866C3AB58A36182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403869   (686041) от 22.08.2020
 
 VA - Women in rock (Compilation) (2020) [MP3|320 Kbps] <Rock, Hard Rock, Hard 'N' Heavy>
@@ -577,180 +751,6 @@ VA - Deep House Collection Vol.121 (2017) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2B507976396D6D092CCBD94AF642E8FA101B673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134893   (684851) от 17.05.2017
-
-VA - Сотка популярных весенних хитов на Europa Plus выпуск № 10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684851.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алиса Вокс - Неподруги 4:37
-002. Tommy Feat. Helena-Shadia - Притяжение 4:40
-003. Марк Тишман - Города 3:45
-004. Владимир Винс - Зажигаю Любовь 4:05(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9A68AD1F4D4A259E97DC77E7C0E967A5FBB2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134926   (684850) от 17.05.2017
-
-VA - Mastermix Italo Disco (2017) [MP3|256-320 Kbps] <Disco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684850.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beach Of Fantasy - The Sky 6:07
-002. 1St Heavenue - E=mc 2 (Atlantis09 Remix) 4:04
-003. Birizdo I Am - Cannot Buy Happiness 5:54
-004. Boy Blue - Goodbye (Bcr Extended Nrg Remix) 5:39(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 11:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84F8EE39CB797E461493FBB3B04BC02B336DA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134930   (684847) от 17.05.2017
-
-VA - Big Room Party (2017) [MP3|320 Kbps] <Electro House , Club House , Techno House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684847.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alden Jacob feat. The Parakit - When I Hold You 3:11
-002. Midi Culture & Madeleine Jayne - Ocean Drive (DJ Villain & Quba Remix) 5:09
-003. Fedde Legrand feat. Mr V. - Back And Forth (Mike Cox Remix) 4:06
-004. Olsein feat. Sofia Lecubarri - Lullaby Stranger (AFX & Hypercode Remix) 4:27(   Читать дальше...   )Жанр: Electro House , Club House , Techno HouseПродолжительность: 07:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D214321183FA7CC74CCF99952D6C27E7388F74D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029058   (684756) от 25.06.2016
-
-VA - Global Club Anthems Vol.5 (2016) [MP3|320 кб/с] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leventina -  Grenoble (Radio Mix) 3:00
-02. Jochen Miller -  Flashback (Gregori Klosman Remix) 5:46
-03. Oscar Sanchez -  Tromp 5:21
-04. Tony Romera -  Drakarta 5:15(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 02:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E595472B37EF1D4D1AD4A2F0B0E09F8D17BC4070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134888   (684713) от 17.05.2017
-
-VA - Любимая музыка. Дискотека Хит FM выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684713.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Лена Максимова - Счастье Внутри 3:50
-002. Alex Opium - Не Обижу 3:45
-003. Бордо - Осталось 3:49
-004. Никита - Белыми Птицами 3:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C6B9790F344D10419FA09C09C1DC460C83834F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134932   (684707) от 17.05.2017
-
-VA - Hits Cocktail Vol.7 (2017) [MP3|320 Kbps] <Club , Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684707.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Magicstone, Tony Brown, Commander Tom - Everybody Free (Original Mix) 5:02
-002. Helena Paparizou - Colour Your Dream 3:05
-003. Breathe Carolina & Dropgun feat. Kaleena Zanders - Rhythm Is A Dancer (Original Mix) 3:20
-004. TooManyLeftHands feat. Casso - Mad For It 3:29(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 05:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F2CD34A49DA3349AFB6251704C8AA5D49D0D44
 ```
 
 https://mybot314.ru/tekegram_catalog/

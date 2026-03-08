@@ -1,3 +1,32 @@
+###  Публикация: 1367424   (915092) от 16.03.2020
+
+Сборник клипов 01 (03.2020) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за март 202001_C-BooL - Higher
+02_W&W x Lucas & Steve - Do It For You
+03_ШЕFF feat. Indigo - Я рисую!
+04_Shlakoblochina feat. Fearmuch - Новая сила киски(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 3:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAC1B2D1828F68EC7A1842127415B98EEF90744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989500   (914828) от 23.02.2016
 
 Квартирник у Маргулиса - Гарик Сукачев (2016) DVBRip
@@ -687,32 +716,6 @@ Dj Sava feat. Misha - Tenerife (2013) WEBRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F695E2FF9794065A303A1321FBD8579DC1C98A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635452   (909505) от 26.03.2013
-
-Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF8A52CE9EA3AF9C2A97D06878BEED5E029C763
 ```
 
 https://mybot314.ru/tekegram_catalog/

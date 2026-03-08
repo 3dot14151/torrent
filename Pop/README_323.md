@@ -1,3 +1,61 @@
+###  Публикация: 1700669   (116862) от 18.02.2024
+
+VA - Die Neue Heartbreakers Vol.3 (1991) [OGG Vorbis|480 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gloria Estefan - Anything for You
+02.  Earth, Wind & Fire - I'll Write a Song for You
+03.  Toto - Takin' It Back
+04.  Ian Hunter - Rose(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF1D0CA8298055EC7518EA293073AD495642BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700787   (116857) от 18.02.2024
+
+S Club - Say Goodbye / Love Ain’t Gonna Wait For You (2003) Reissue, Remastered, 2024, UMC (Universal Music Catalogue) [FLAC|Lossless|WEB-DL|tracks] <Europop, Ballad, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say Goodbye [00:03:57]
+02. Special Kind Of Something [00:03:40]
+03. Bittersweet [00:03:39]
+04. Love Ain't Gonna Wait For You (Single Remix) [00:03:48](   Читать дальше...   )Жанр: Europop, Ballad, DiscoПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E889036A502C790614EB27D58FE25E548EF2DC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701246   (116546) от 20.02.2024
 
 Spandau Ballet - The Twelve Inch Mixes (1986) Compilation, Reissue, Disky [FLAC|Lossless|image + .cue] <Pop, Electronic>
@@ -688,64 +746,6 @@ Ledisi - Good Life (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AB1C4CA6C24839E3F793561872720B53B26D11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704073   (114731) от 02.03.2024
-
-Алла Пугачёва - P.S. (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Монолог (4:13)
-02. Анестезия (3:46)
-03. Поживи в моей шкуре (3:30)
-04. Всё хорошо - ничего не случилось (3:45)(   Читать дальше...   )Жанр: PopПродолжительность: 01:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA8FDD4AF8862AAE08D2A0C053933C77D9E4469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703935   (114659) от 02.03.2024
-
-Martin Stevens - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Europop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский певец родился 3 октября 1953 года в Вердене - 5 июля 2023 года. Он смог покорить волну диско в Квебеке, выпустив в 1978 году кавер на песню "Love Is in the Air", изданную годом ранее Джоном Полом Янгом.01. Belle (3:38)
-02. Danser Pour Toi (3:31)
-03. Combien Faut-il De Jour (3:52)
-04. L'Amour Que J'Ai Perdu (4:09)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Europop, DiscoПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B3C0F346A63837245C61B1470E2E03E6B7F238
 ```
 
 https://mybot314.ru/tekegram_catalog/

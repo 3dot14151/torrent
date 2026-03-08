@@ -1,3 +1,32 @@
+###  Публикация: 1057453   (475347) от 28.09.2016
+
+VA - Infectious Sounds: Bass Line (2016) [MP3|188-320 Kbps] <Drum and Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475347.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Above Beyond ft. Richard Bedford - Sun Moon
+002. Monty - Dead Cells
+003. 3D Stas - Increased Power
+004. Radique - Simple Magic(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 12:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321F50E1537B7195D17206891EB29099A68078FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320116   (475199) от 16.08.2019
 
 VA - Neon Glow: Techno Sound Party (2019) [MP3|320 Kbps] <Techno>
@@ -734,41 +763,6 @@ VA - Music For Everyone - Dubstep & Drumstep Vol.5 (2017) [MP3|320 Kbps] <Dubste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0405C305E88962D88BDF53E97F95AA57D8EC84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547507   (469874) от 17.09.2012
-
-Vlad Cheis - Special Pre-Party a mix for Little Sweet Jamaica 28.01.12 (St. Petersburg) (2012) [MP3|320 кб/с]<Ragga-jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MikkiM - Rub a Dub Rock
- 02. Busy Signal - Brave & Bold (The-Ufa Remix) (Dubplate)
- 03. Parly B - Expensive & Dear (HoT remix) (Dubplate)
- 04. Cook's R - Sweet July (Dubplate)
- 05. Rihanna ft. Vybz Kartel - What's My Name (J Bostron Rmx) (Dubplate)
- 06. Deekline & Ed Solo Feat. Darrison - English Queens (Original Mix)
- 07. FeyDer feat. RasKar - RasTea (Unjustified Rec.)
- 08. Jessie J feat. B.o.B - Price Tag (Benny Page Remix) (Universal Music)
- 09. Ed Solo & Deekline - Man Down
- 10. Serial Killaz - Good Enough(   Читать дальше...   )Жанр: Ragga-jungleПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC06584D7D1F70EC0BE3A665BB9E80D668730CE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

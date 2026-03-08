@@ -1,3 +1,32 @@
+###  Публикация: 1700712   (116824) от 18.02.2024
+
+Joshua Redman, Ron Miles, Scott Colley, Brian Blade - Still Dreaming (2018) Nonesuch [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Year [6:37]
+02. Unanimity [5:09]
+03. Haze and Aspirations [5:58]
+04. It's Not the Same [2:46](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE66D3DB9D37896B6AF4879EB99CDA9478001523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700704   (116823) от 18.02.2024
 
 Barry Harris Trio - Plays Tadd Dameron & Thelonious Monk (1975 - 1984) 2008, Jazz Lips [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Stefan Karlsson - Below Zero (1993) Justice Records [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FFC31F2D2ED05C1FF40584A372BB8E226F416BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701701   (116157) от 22.02.2024
-
-Marian McPartland - In Concert (1951, 1953) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gypsy in My Soul [5:15]
-02. These Foolish Things [6:00]
-03. Get Happy [4:49]
-04. Strike Up the Band [2:11](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9232F39D65DBDB50537E404EFCB8568B6918BC3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1203786   (787731) от 03.02.2018
+
+Voskoley - Uninhabited Planet (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Landing (06:01)
+02. Chameleon (06:31)
+03. Regulator (06:17)
+04. Infinite Space (06:52)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D134AC38ACD38D69E812CE9AF6E81B35AC4A7B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203727   (787729) от 03.02.2018
+
+VA - EDM Dance For Valentines Day (2018) [MP3|320 Kbps] <House, Nu Disco, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Urban Sound Collective  -  I Need Your Love  3:54
+02.  New Electronic Soundsystem  -  Digital Love  4:03
+03.  CDM Project  -  I Got U  4:46
+04.  Vibe2Vibe  -  Firestone  4:32(   Читать дальше...   )Жанр: House, Nu Disco, DanceПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC93D882B247294D2E2F4D1BC0DF5B65183008F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203440   (787721) от 03.02.2018
 
 VA - Trance Favorites Episode #011 (2018) [MP3|320 Kbps] <Trance>
@@ -685,64 +743,6 @@ VA - Dance Mix Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCED6C595754207308D2BBA415B9F47273045FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277269   (787023) от 19.01.2019
-
-VA - Dance Mix Vol.10 (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CDJ Dima Donskoi - They Need A Happy Childhood (Original Mix) 4:05
-02. Stas Exstas - Needz You (Original Mix) 3:35
-03. Red Sensor - Need (Original Mix) 6:13
-04. Alternative Experience - I Need You (Alex B-Cube & Simon Pagliari Mix) 5:04(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C913010639727F1C916DB3CBE5CB6172A2D256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277246   (787018) от 19.01.2019
-
-VA - Cryo Chamber Sampler #1 (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Dark Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Body Disconnect - Rise Of The Dormant Host (07:07)
-02. Hoshin - Souvenir From The Sacred (06:56)
-03. Keosz - Low Down (05:48)
-04. Sabled Sun - Overgrown (04:11)(   Читать дальше...   )Жанр: Electronic, Dark AmbientПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F675A0629649F14C5941AF837D35413C20AA90F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

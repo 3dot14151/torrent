@@ -1,3 +1,38 @@
+###  Публикация: 503192   (259626) от 30.05.2012
+
+VA - Sgt. Pepper's Lonely Heart Club Band - Original Sound track (1978) [APE|Lossless]<OST/Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Got To Get You Into My Life" - Earth, Wind and Fire [03:36]
+   02. "Strawberry Fields Forever" - Sandy Farina [03:31]
+   03. "When I'm Sixty Four" - Frankie Howerd and Sandy Farina [02:40]
+   04. "Mean Mr. Mustard" - Frankie Howerd/Steven Tyler, The Bee Gees and [02:46]
+   05. "Fixing a Hole" - George Burns [02:25]
+   06. "Because" - Alice Cooper and The Bee Gees [02:45]
+   07. The Death of Strawberry [03:24]
+          "Golden Slumbers" - Peter Frampton [01:39]
+          "Carry That Weight" - The Bee Gees [01:45]
+   08. "Come Together" - Aerosmith [03:46](   Читать дальше...   )1978Жанр: OST/RockПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503774   (259588) от 30.05.2012
 
 CHAVEneeZ - Great Spirit (2006) [FLAC|Lossless]<Native American Ethno, New Age>
@@ -793,35 +828,6 @@ VA - Инструментальная музыка - Лучшие мировые
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF85689DDE560C8E4AE06B25A0BD9E889C62D540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630872   (254613) от 03.05.2023
-
-R. Carlos Nakai & AmoChip Dabney - Edge Of The Century (2001) [FLAC|Lossless|tracks + .cue] <Native American>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Mystery
-02. York
-03. Queztalcoatl
-04. Spirit Sharing(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4120CF7E95A5AD0C5190AC9C2F3B7784676DDF6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

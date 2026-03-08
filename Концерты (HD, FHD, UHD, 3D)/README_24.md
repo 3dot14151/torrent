@@ -1,3 +1,32 @@
+###  Публикация: 936944   (492231) от 13.09.2015
+
+The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
+02. When The Whip Comes Down
+03. Let s Spend The Night Together
+04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichАктеры: Mick Jagger (vocals, guitar), Keith Richards (guitars, vocals), Ronnie Wood (guitars, backing vocals), Bill Wyman (bass guitar), Charlie Watts (drums), Ian Stewart (piano), Ian McLagan (keyboards, backing vocals), Ernie Watts, Boby Keys (saxophone)Продолжительность: 02:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D8C88305F7B049FB5F8F53F98134D8C55A5E3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937213   (489551) от 14.09.2015
 
 James Last - Live at the Royal Albert Hall (2007/2013) BDRip [H.264/1080p]
@@ -700,35 +729,6 @@ Madonna - The MDNA Tour (2013) BDRemux [1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CE1CB851EC213E830C5052E202310569B0BC52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701371   (473926) от 19.09.2013
-
-Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) BDRemux [1080p]
-
->>След.
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473926.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 июля 1986 г., Queen дали крупнейший концерт из когда-либо проходивших в Будапеште, перед лицом огромной толпы ликующих фанатов. В запись вошли все самые известные треки группы, включая такие супер-хиты как «Bohemian Rhapsody», «Crazy Little Thing Called Love», «I Want To Break Free» и «We Are The Champions». Концерт в Будапеште состоялся в рамках «Magic Tour», (   Читать дальше...   )01. One Vision
-02. Tie Your Mother Down
-03. In the Lap of the Gods... Revisited
-04. Seven Seas of Rhye(   Читать дальше...   )Производство: США / Eagle Rock EntertainmentЖанр: RockРежиссер: Янош Жомбояи / János ZsombolyaiПеревод: ОтсутствуетСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (на диалоги), английский (на диалоги)Продолжительность: 01:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D170282FB2FA710BBBE53626F996743EFD5412C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

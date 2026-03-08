@@ -1,3 +1,177 @@
+###  Публикация: 1467051   (1018035) от 02.05.2021
+
+Miсk Kоlаssа - History Of The World Blues 2014-2020 (2021) [MP3|320 Kbps] <Blues, Rock Blues, Folk>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как говорят его современники - "он мог бы придумать аранжировку, спеть телефонную книгу из маленького городка на Миссисипи и сделать ее хитом"01. I Want To Be Seduced
+02. Grapes And Greens
+03. Early In The Morning
+04. Cake Walk Into Town(   Читать дальше...   )Жанр: Blues, Rock Blues, FolkПродолжительность: 04:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E3C655852EEB30CDC82E573A8C28A977DA2ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796594   (1018012) от 02.05.2021
+
+Richard Jacques, TJ Davis & Planet Perfecto - Metropolis Street Racer (1996-2021) [MP3|320 кб/с]<Soundtrack>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип музыки сделан на основе оригинальных дисков Dreamcast, добавлена музыка из альфа версии игрыAlpha Version
+01. Menu Theme (Alpha)
+02. California Demon (Alpha)
+03. Club Paris (Alpha)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412492E36478BCC863AC118C9229F4CB0DFD10F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467170   (1017945) от 03.05.2021
+
+VA - Red & Black: Hardstyle DJ Zone (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electrocore>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умение переносить всю хард-энергетику семи нот в один гармоничный коктейль в наши дни настолько стало популярным явлением, что в одной только Европе артистов, проповедующих данный стиль и сделавших на этом имя больше, чем в мире коммерчески направленных музыкантов, практикующих танцевально-карамельную субстанцию.001. Ophidian - Electric Resonance
+002. Bratkilla - Corona Virus
+003. Insane S - Natural Selection
+004. Darwin & Aos - What R U Waiting 4(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, ElectrocoreПродолжительность: 11:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9756B9A21C46D7DD01D71FF2157E9DEFC7615E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467167   (1017928) от 03.05.2021
+
+VA - The Flowers Jazz's (2021) [MP3|320 Kbps] <Instrumental, Smooth Jazz, Improvisatio>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ненавязчивые звуки рояля подобно струящемуся чёрному бархату обволакивают сознание и создают атмосферу спокойствия и умиротворения. Вашему вниманию новый сборник инструментальной музыки "The Flowers Jazz's". Волшебные звуки клавиш и плач саксофона унесут Вас в страну грёз и райского наслаждения.001. Peggy Lee - Whee, Baby
+002. Mindi Abair - Flirt
+003. Mindi Abair - F L A  Swing
+004. Jarez - Night Life(   Читать дальше...   )Жанр: Instrumental, Smooth Jazz, ImprovisatioПродолжительность: 10:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08CA4DF6452F3AB6D215DA065DB1A112EECC560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467169   (1017910) от 03.05.2021
+
+VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это крутая музыка, которую невозможно слушать тихо - ибо мощные гитарные запилы, сильный вокал и неиссякаемый драйв попросту не дадут сделать это. Если для вас слово "РОК" не пустой звук, а смысл жизни, - нам с Вами по пути!001. John Paul Keith - Keep On Keep On
+002. Wig Wam - Dirty Little Secret
+003. Møaa - Exist
+004. Superdrone - Find You(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 10:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3240C8223785A2221C5FA44BF43FC518802012A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467265   (1017841) от 03.05.2021
+
+VA - Shazam Хит-парад World Top 200 Апрель (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bruno Mars - Talking to the Moon (3:37)
+002. Lil Nas X - MONTERO (Call Me By Your Name) (2:17)
+003. Masked Wolf - Astronaut In The Ocean (2:12)
+004. Bruno Mars, Anderson .Paak, Silk Sonic - Leave The Door Open (4:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BD2423141503C7C1D68A1EE063CD74F1C6CDE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467571   (1017714) от 04.05.2021
 
 VA - Music News vol.97 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -571,180 +745,6 @@ VA - Trance Music Collections 2021 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF0E2AEE9D18C0CA7B8F27300801B27C1910272D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469635   (1016291) от 13.05.2021
-
-VA - Deep Is The Breath: Chill House Music (2021) [MP3|320 Kbps] <Chill House, Deep House, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неспешная и великолепная фоновая музыка. Придётся кстати как для отдыха, так и для работы и является наилучшим лекарством от хандры. Она печалит и веселит, создает приподнятое настроение и умиротворяет, наполняет жизнь смыслом и просто развлекает.001. Nodo - Kintsugi
-002. Phaze Dee - Heated Point
-003. Invōker - Nami
-004. Bninjas - Evidence(   Читать дальше...   )Жанр: Chill House, Deep House, ChilloutПродолжительность: 11:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438317669A64F48F81D1B676D06CAA7E41D52C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469650   (1016277) от 13.05.2021
-
-VA - Soft Pop Hits 3 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Great Big World, Christina Aguilera - Say Something (3:49)
-02. Harry Styles - Sweet Creature (3:44)
-03. 3 Doors Down - Here Without You (3:58)
-04. Christina Perri - Jar of Hearts (4:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6031A247E9BDA6C9A6EBDB02104957512A5CE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469859   (1016055) от 14.05.2021
-
-VA - Most live performances (2021) 10CD [MP3|320 Kbps] <Rock, Pop, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Gabriel - Sledgehammer (Live)
-02. Fleetwood Mac - Go Your Own Way (Live on PBS in Boston 2004)
-03. Billy Joel - Allentown (Live at Shea Stadium, Queens, NY - July 2008)
-04. Seal - Bring It On (Live in Paris)(   Читать дальше...   )Жанр: Rock, Pop, BluesПродолжительность: 67:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1C5A28A71293AEBD0460460EBEF459FAA599EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470165   (1015789) от 16.05.2021
-
-VA - Music News vol.98 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015789.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bebe Rexha - Better Mistakes (02:16)
- 002. A. G. Cook feat. Charli XCX - Xcxoplex (02:22)
- 003. Adam Maniac & Eva Maniac - Не Уходи (02:55)
- 004. Adelen - Safety Light (02:31)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC062BF09CCC0AB5B04F98C2B506E7907DAB3F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470272   (1015769) от 16.05.2021
-
-VA - Music News vol.100 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015769.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ela - Mein Herz (02:48)
- 002. Alex Sed feat. Darom Dabro & Lukrecia - Мама Говорит (02:44)
- 003. Amora - Ousadia (02:13)
- 004. Andreea D & Boyflow - Zuli Zuli (02:51)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3750D93E3719E7527524AC4E90B79486F956BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470416   (1015719) от 16.05.2021
-
-VA - Громкие новинки Мая (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жак-Энтони - Линия (3:54)
-02. VERBEE - Выдыхай (2:17)
-03. Skrillex, Four Tet, Starrah - Butterflies (3:15)
-04. Джаро & Ханза - Емаея (1:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC3CEEE6DA37D4981A31984C98B81043B7F1D73D
 ```
 
 https://mybot314.ru/tekegram_catalog/

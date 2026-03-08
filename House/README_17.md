@@ -1,3 +1,32 @@
+###  Публикация: 1011620   (796441) от 28.04.2016
+
+VA - Dance Map, Electro Stops Vol.3 (2016) [MP3|320 кб/с] <House, Progressve House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuji -  Burn  6:39
+02. KountDown Project -  Moon Bass  7:56
+03. Sello -  Such as More  7:25
+04. DJ Afreek -  Orgasmo  6:30(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F78ECD807F9B493B94EDC8E91BFDA070E353B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200284   (796424) от 20.01.2018
 
 VA - Dance Hits (2018) [MP3|320 Kbps] <House>
@@ -713,35 +742,6 @@ VA - Winter Super Beats '19 (2019) [MP3|320 Kbps] <Electronic, Future House, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F5498947EEC3BD14C2E3DA6DC0D08F62B36E00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275207   (791154) от 10.01.2019
-
-VA - Deep House Grooves, Vol. 14 (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loic Hoffman & Brrak - The Wind (Brrak Remix)
-02. Mert Avci - Forget Me Not (Original Mix)
-03. Superkluster - Timelapse (Original Mix)
-04. Lawrence Dix & Matt Prehn - Anima (Matt Prehn Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD26567AFDD90E9EC31F834C3CA7FD08D30996AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

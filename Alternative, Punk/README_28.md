@@ -1,61 +1,3 @@
-###  Публикация: 953878   (346607) от 05.11.2015
-
-Celldweller - End of an Empire (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Industrial, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End of an Empire
-02. Heart On
-03. Down to Earth
-04. New Elysium(   Читать дальше...   )Жанр: Industrial, AlternativeПродолжительность: 01:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1627AE27EE688364C5394D2758257FE913CA04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257416   (345360) от 26.10.2018
-
-Bullet for My Valentine - Gravity (2018) Deluxe Edition [MP3|320 Kbps] <Melodic Metalcore, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leap Of Faith
-02. Over It
-03. Letting You Go
-04. Not Dead Yet(   Читать дальше...   )Жанр: Melodic Metalcore, Alternative RockПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7F647FCA53A580B8523B28462B5ABEF6343914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 838969   (344349) от 08.11.2014
 
 Foo Fighters - Sonic Highways (2014) [MP3|320 кб/с]<Alt. Rock, Post-Grunge>
@@ -751,6 +693,64 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E137EC4653977393808C7082FD11368ABF81BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960049   (312122) от 26.11.2015
+
+Placebo - MTV Unplugged (2015) [MP3|320 кб/с]<Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jackie
+ 2. For What It's Worth
+ 3. 36 Degrees
+ 4. Because I Want You(   Читать дальше...   )Жанр: Alt. RockПродолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D543CDBF94813226BF6A9225705D4C071ACC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076498   (311894) от 26.11.2016
+
+Skillet - Интервью с Джоном Купером на радио УЛЬТРА (22.11.2016) [MP3|256 Kbps] <Alternative Rock, Christian Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интервью в честь 20-летия коллектива. Вокалист Джон Купер лично рассказывает ULTRA-слушателям о последней, на данный момент, пластинке SKILLET "Unleashed", и вспоминает о первых днях группы! Это и многое другое в эфире первой альтернативной радиостанции страны.1. Rebirthing
+2. Sick of it
+3. I Want To Live
+4. The Resistance(   Читать дальше...   )Жанр: Alternative Rock, Christian RockПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64D6EAC4C642DB82ACC81389F144189A6777608
 ```
 
 https://mybot314.ru/tekegram_catalog/

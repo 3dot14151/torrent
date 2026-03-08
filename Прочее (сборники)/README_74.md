@@ -1,3 +1,123 @@
+###  Публикация: 516122   (654734) от 27.06.2012
+
+VA - Союз Клубный. Выпуск 8 (2012) [MP3|256 kbps]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654734.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Горячий шоколад - Стены (Andry Makarov Club remix)
+002 Каролина - Летний дискобар (Версия 2012)
+003 Бурановские Бабушки - Party for Everybody (DJ Slon remix )
+004 Алина Гросу - Взрослая
+005 KSELA feat. DJ ALIX - Наше Лето (Summer Hit)
+006 Dj Tarantino & Katrin Moro - Я Буду Помнить (original mix)
+007 Artik & Asti - Облака (DFM mix)
+008 Dan Balan - Не любя
+009 AD Men's - Жара (extended mix)
+010 DJ Andrey Keyton feat. JWELL - Лететь (DJ Vitalik Vitamin remix)(   Читать дальше...   )Жанр: ClubПродолжительность: 07:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B837E6F86D5FDF25ED5A178A242B53F55765D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516067   (654588) от 27.06.2012
+
+VA - Летняя Туса 4 на Радио Record 50/50 (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 08:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240C0494AD3547883C6E2A1ACB5586390A6D5150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226565   (654550) от 21.05.2018
+
+VA - Зарубежный Хит В Машину Выпуск 2 (2018) [MP3|256-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Netta - Toy (Music Video Version)
+02. Selena Gomez - Back To You (из сериала «13 причин почему». Сезон 2)
+03. Christina Aguilera - Twice
+04. Charlie Puth - The Way I Am(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE79BEE935F7A6DD39D45A48C1EE5120EBC360E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903848   (654132) от 03.06.2015
+
+Вольфганг Амадей Моцарт - Музыка Моцарта для беременных (2000) [MP3|320 кб/с]<Класика>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Регулярно слушая сборник музыки Моцарта для беременных, молодые родители делают неоценимый вклад в развитие ребенка. Еще не родившийся малыш воспринимает мелодию и реагирует на нее, стимулируется его умственное развитие.
+Научно доказано, что музыка Моцарта для беременных, которую можно слушать онлайн или предварительно скачать, поднимает настроение и оказывает целительное (   Читать дальше...   )1. Andante, II, From the Divertimento in G Minor, K.158 : 04:43
+2. Adagio, II, From the String Quartet No. 12 in B Flat Major, K.172: 05:49
+3. Adagio, V, From the Divertimento in D Major, K.100: 02:42
+4. Andante, II, From the Divertimento, II, From the Cassation in D Major: 05:34(   Читать дальше...   )Жанр: МузыкаПродолжительность: 00:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749AA32417D085E58A9D0C2738B1C4B24EAFE2B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140928   (653851) от 08.06.2017
 
 VA - Beatport Top 100 Dance May (2017) [MP3|320 Kbps] <Dance, Club>
@@ -665,134 +785,6 @@ VA - Car Audio. Первый летний (Sound Clinic - Special Edition) (2015
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F453DB9BF54295B1638BC8BB5BE7CFEAEAA3E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516474   (651312) от 29.06.2012
-
-VA - Парад хитов русского рока (2012) [MP3|256 кб/с]<Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651312.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Вячеслав Бутусов и Ю-Питер - Аделаида
-002 Чайф - Для него, для себя, для меня
-003 Конец Фильма и Znaki - Абсурд
-004 Земфира - Деньги
-005 Танцы минус - Нна
-006 Сплин - Страшная тайна
-007 Би-2 - Девушки
-008 Е2 Знакомы - В лабиринтах
-009 Смысловые Галлюцинации - Демоны
-010 Бригадный Подряд, Король и шут, Пилот и Кукрыниксы - Питер Pок-Н-Ролл(   Читать дальше...   )Жанр: RockПродолжительность: 06:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DD5ECE4FB146F7CE5649982F7A7C7547982B84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516572   (651074) от 29.06.2012
-
-VA - Рок Искры Классические Хиты (2012) [MP3|256 kbps]<Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651074.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. John Lennon - Imagine
-002. Del Shanon - Runaway
-003. Lou Reed - Walk on the wild side
-004. Shocking blue - Venus
-005. Jimi Hendrix - All Along The Watchtower
-006. The Monkees - I'm a believer
-007. Platters - The Great pretender
-008. Little Eva - The Locomotion
-009. Eric Clapton - Cocaine
-010. The Stranglers - Strange little girl(   Читать дальше...   )Жанр: RockПродолжительность: 05:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D4117D384FA6A1017A85776169013AC29F052B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905072   (650923) от 05.06.2015
-
-Вольфганг Амадей Моцарт - Музыка Моцарта для новорожденных (2000) [MP3|320 кб/с]<Класика>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновляющая, проникновенная, легкая – все это можно сказать о музыке Моцарта. Однако кроме художественной значимости есть еще один нюанс, который делает ее уникальной. Она способствует умственному развитию человека. Родители, которые включают музыку Моцарта для новорожденных, делают неоценимый вклад в их будущее. Весь мир говорит об «эффекте Моцарта». Его суть (   Читать дальше...   )01. Rondo in C Major, K. 617
-02. Sinfonie in D The Peasant's Wedding 5. Finale Molot Allegro
-03. Variations on Ah Vous Dirai-Je, Maman, K. 265
-04. Lodron Night Music, K. 247 9. Allegro Assai(   Читать дальше...   )Жанр: КласикаПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4640DCE7113A496FEC46F623486955B90F03508E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291894   (650515) от 27.03.2019
-
-VA - Hyper Cool: Sport Dance Music (2019) [MP3|320 Kbps] <Hard Dance, Hardcore, Hardstyle>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650515.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blast & Manowarp - Snatchers
-002. Dj Weirdo & Dr. Phil Omanski - Young Birds
-003. Sprinky - Music Is Life (Original Mix)
-004. Audio Nitrate And Stylezzy - I Believe (Original Mix)(   Читать дальше...   )Жанр: Hard Dance, Hardcore, HardstyleПродолжительность: 07:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C99D20758609A6E7CBF0FABA3351CB9252097F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

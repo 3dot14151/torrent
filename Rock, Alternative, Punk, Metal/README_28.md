@@ -1,32 +1,3 @@
-###  Публикация: 1606119   (1044565) от 21.01.2023
-
-For I Am King - Crown (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Avarice (00:05:11)
-02 - Liars (00:03:22)
-03 - Trojans (00:03:14)
-04 - Pariah (00:03:22)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDCCB4294CCFAE8713A3838C55C4102B97C9F287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606156   (1044564) от 21.01.2023
 
 Richard Marx, Matt Scannell - Duo (2008) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock>
@@ -746,6 +717,35 @@ CD 04 - Real Time (Royal Festival Hall) Pt. 2(   Читать дальше...   
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3583F4568D4FA7E5A398D51729577DF8322A2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606585   (1044442) от 22.01.2023
+
+Rainbow - Difficult To Cure (1981) Reissue, 2013, Polydor [OGG Vorbis|450 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Surrender
+02. Spotlight Kid
+03. No Release
+04. Magic(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34006CB4C15AC474005B8671FE06C9605CCD88DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1658285   (191492) от 07.09.2023
+
+Supermax - 5 Albums (1982 - 1992) Remastered, 2007, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So I
+02. Honkey Curt
+03. Smoke Is Up
+04. Reggaesizer(   Читать дальше...   )Жанр: Electronic, Pop, Soul, FunkПродолжительность: 05:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A92956086154F37A158B596B0D06BE7DDC380A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588526   (191410) от 05.11.2022
+
+Blue System - Backstreet Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. History
+02. Operator
+03. Backstreet Heaven
+04. You Are An Angel(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FF47974EC6587E0C71875DD9BAFBEE545CA1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588612   (191409) от 05.11.2022
 
 Blue System - Hello America (1992) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -689,64 +747,6 @@ DJ Bobo - Evolut30n (Evolution) (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE670C2BCA3B6BC02AE969B68479B41060E9D3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659467   (189340) от 13.09.2023
-
-The Coral - Sea Of Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Psychedelic, Baroque, Alternative, Cinematic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189340.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Actor And The Cardboard Cowboy (1:10)
-2. Cycles Of The Seasons (2:54)
-3. Faraway Worlds (3:51)
-4. Wild Bird (3:12)(   Читать дальше...   )Жанр: Indie rock, Psychedelic folk, Baroque pop, Alternative, Cinematic rockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:815B65D0388781C67237457997C143BFB26A2390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590073   (189326) от 12.11.2022
-
-Юлия Савичева - Стихия (2022) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189326.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Скажи мне
-2. Жёлтое такси
-3. От его голоса
-4. Незнакомец(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB464733AA541E1BB725306A9D0B7115075EC193
 ```
 
 https://mybot314.ru/tekegram_catalog/

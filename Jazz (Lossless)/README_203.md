@@ -1,3 +1,32 @@
+###  Публикация: 1255122   (368437) от 16.10.2018
+
+Jonathan Zwartz - The Remembering & Forgetting Of The Air (2013) 2CD, Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368437.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Shimmer [6:06]
+02. Luminous [10:32]
+03. Wait Until the Morning [8:24](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44206D598F68E700CE622807322DD2E0270AF440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255042   (368302) от 16.10.2018
 
 Joe Lovano & Dave Douglas Sound Prints - Scandal (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
@@ -722,35 +751,6 @@ Basia - Butterflies (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz, Bossa Nova
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF7BC990AC12DB67A74027DC9DD962A6D6101DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416679   (365532) от 17.10.2020
-
-Ray Bryant Trio - Gotta Travel On (1966) 2011, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gotta Travel On [4:27]
-02. Erewhon [3:10]
-03. Smack Dab in the Middle [4:04]
-04. Monkey Business [2:53](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Piano JazzПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25DCAC1E6008C0E754E595DD682CB47855DB10D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 992099   (902778) от 01.03.2016
+
+Planet Boelex - Moments (2015) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moments (07:04)
+02. Disappointed Capacitor (04:28)
+03. Kleistpark (05:53)
+04. Galaxy Black (07:49)(   Читать дальше...   )Жанр: IDM, Ambient, DowntempoПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83181ED6B36DB3D278D0F17B5EE53DCFF45BC2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992089   (902774) от 01.03.2016
 
 Stefan Torto - Cosmopolis (2014) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Breaks, Psybient>
@@ -662,35 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9E37ED245EE0F5C22F571FDED13DC307E5F6737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099935   (902554) от 02.02.2017
-
-CleanMyMac 3.7.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902554.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanMyMac 3 - лучшее приложение для очистки Мака.
-CleanMyMac 3 сканирует каждый уголок вашей системы, удаляет гигабайты мусора в два клика и помогает вам поддерживать Мак в хорошем состоянии.
-
-CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, лишний код и прочее. Все данные визуально (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28 января 2017Разработчик: MacPaw Inc.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Русский, Английский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78667AF9FF711867EE8A34BC9406376058BEDDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1261966   (294805) от 15.11.2018
+
+Николай Караченцов - Антология Николая Караченцова (2007)(12CD) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Три кита (М.Дунаевский – Н.Олев) – 02:49
+02. Давай поговорим (М.Дунаевский – Н.Олев) – 04:28
+03. Вечный двигатель прогресса (М.Дунаевский – Н.Олев) – 02:12
+04. Два сердца (М.Дунаевский – Л.Дербенев) – 04:37(   Читать дальше...   )Жанр: PopПродолжительность: 12:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584D0B79982E5791E721FDC2D522A2185F371956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185122   (294804) от 20.11.2017
+
+VA - Now That's What I Call Music! 98 (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Hip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё не остыли эти диски от штамповки (17 ноября был выдан тираж), а вы уже можете насладиться этим релизом, состоящим из топовых треков из Великобритании и Ирландии. И если вам жалко отдавать за эти два диска £13.99, то возьмите их здесь - в любимом клубе NNM-Club.CD1:
+01. Camila Cabello feat. Young Thug - Havana  (2:58)
+02. Post Malone feat. 21 Savage - Rockstar  (3:39)
+03. Sam Smith - Too Good at Goodbyes  (3:23)(   Читать дальше...   )Релиз состоялся: 17 ноября 2017 годаЖанр: Pop, Electronic, Hip HopПродолжительность: 02:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEBF575808362D362C9917433EB052FD0E3B05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184349   (294797) от 20.11.2017
 
 Taylor Swift - reputation (2017) [MP3|320 Kbps] <Pop>
@@ -687,64 +745,6 @@ VA - На Луну (2007) [FLAC|Lossless|image + .cue] <Retro, Jazz, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B8D67D6BD8EE8FB79AF244A390500A8AC1F7B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263025   (291551) от 17.11.2018
-
-Jennifer - Walking In Space (1977) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouverture (1:14)
-02. I Don't Need Your Love - Part I (5:12)
-03. I Don't Need Your Love - Part II (4:19)
-04. Love Has A Taste Of Tears (3:00)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458388CD7D657CE6F3D4DEE295CAC14ED075A6C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334936   (291513) от 31.10.2019
-
-Julio Iglesias - Fidele & 1100 Bel Air Place (1995) 1981 и 1984, Star Ltd. [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viens M'Embrasser [03:31]
-02. Une Chanson Qui Revient [04:39]
-03. Les Derobades [03:33]
-04. L'Amour Au Grand Soleil [03:18](   Читать дальше...   )Жанр: PopПродолжительность: 01:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81AEFF323574BD998EEB9B78EA24D25E9B712DBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

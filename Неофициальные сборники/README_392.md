@@ -1,3 +1,177 @@
+###  Публикация: 933430   (506167) от 01.09.2015
+
+VA - TOP August (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alla Pugacheva - Kafe Tantsuyuschih Ognei' (Anton Ishutin Nu Disco Edit) (05:19)
+02. Parov Stelar feat. Angela McCluskey - Don't Believe What They Say (04:33)
+03. Noiseshaper - Movin' Together (02:57)
+04. Natema, Enzo Gomez feat. Jeremy Goddard - BMW (Original Mix)Жанр: Electronic, Lounge, Pop, DeepПродолжительность: 01:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9552972D5A880DC1541195FC848BA2C07761748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562787   (506113) от 12.07.2022
+
+Kim Wilde - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. View From A Bridge
+02. Cambodia
+03. Action City (2020 Remaster)
+04. 1969(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211D2EC75EA19C438F050DF48C39531EA267B6C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562569   (506108) от 12.07.2022
+
+VA - В машине с музыкой Vol.285 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodybangers Feat. & Stephen Oaks - Hot In Herre (02:17)
+02. Faruk Orman  - Work Bitch (03:04)
+03. Группа Кукла М  - Абдулла (03:06)
+04. Лекко - На Весь Район (02:55)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9944B1A36226DE5675A8E9B3444C051B900DB0F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933336   (506064) от 01.09.2015
+
+VA - Rock Collection 1982 (2015) [MP3|320 кб/с]<Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1Жанр: Rock, MetalПродолжительность: 01:13:41
+
+01. Girlschool - Screaming Blue Murder
+02. Aerosmith - Lightning Strikes(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC5547B379D5BA147FA224F5A0DE5BCB2A57292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933329   (506011) от 01.09.2015
+
+VA - Rock Collection 1983 (2015) [MP3|320 кб/с]<Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1Жанр: Rock, MetalПродолжительность: 01:14:22
+
+01. Journey - Chain Reaction
+02. Europe - Memories(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C2B897FB86243870C03C3DCFD737C05A5DC789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933370   (506001) от 01.09.2015
+
+VA - Всё сразу 200 хитов Выпуск 5 (2015) [MP3|128 - 320 кб/с]<Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506001.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ленинград - Сладкий сон
+002. Movetown feat. Ray Horton - Here Comes The Sun (Radio Edit)
+003. Ленинград - Менеджер
+004. Rammstein - Mutter(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:24:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842F4DF614BCEE6D7A2DE922866B21CB8EA46C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933422   (505999) от 01.09.2015
 
 VA - Рок-Весна (2015) [MP3|320 кб/с]<Rock>
@@ -614,186 +788,6 @@ VA - German Top 100 Single Charts 02.08.2019 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6914AC6700224E3E461E81E987C792977853D560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316796   (504218) от 28.07.2019
-
-VA - Record Super Chart 597 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504218.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Meduza feat. GOODBOYS - Piece Of Your Heart (2:32)
-2.Aaron Smith - Dancin (Krono Remix) (4:15)
-3.Billie Eilish - Bad Guy (3:14)
-4.Daddy Yankee, Snow - Con Calma (3:13)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C682CC64CE17BEF1BCB1BCE4B35A534D7D9E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934023   (504084) от 03.09.2015
-
-VA - Сто Хитов Из Прошлого: Дискотека 80х (2015) [MP3|320 кб/с]<Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandra - Secret Land (Remix)
-02. Corona - Baby Baby
-03. Technotronic - Recall
-04. Double You - Because I'm Loving You(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 06:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56302A9C780F906C8BD5288BB2107CCF3831839E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316825   (504053) от 28.07.2019
-
-VA - Top 100 Drum & Bass Vol.2 (2019) [MP3|320 Kbps] <Liquid Funk, Drumfunk, Soulful D&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504053.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Raybee Feat. Maya - Money Back (Original Mix)
-002. Enei Feat. Anastasia - Limits  (Original Mix)
-003. Mizo - Mechanical Paw (Original Mix)
-004. Onebyone Feat. Dj Satellite & Karina - Za Mechtoi (Original Mix)(   Читать дальше...   )Жанр: Liquid Funk, Drumfunk, Soulful D&BПродолжительность: 07:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422BCECC51119F942DBD0CB157D5D48DA325FDEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540332   (503799) от 29.08.2012
-
-VA - Ночная хитовая дискотека (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sola - По Ночному Городу (Original Mix)
- 02. Полина Гриффис - Ain't Givin' Up
- 03. T - Killah feat. Виктория Дайнеко - Mirror Mirror (DJ Marie Remix)
- 04. Барби - Когда ты рядом
- 05. Дискотека Авария и Кристина Орбакайте - Прогноз погоды
- 06. Никита - Найди Меня
- 07. Женя Вилль - Я Хочу Всегда (Natasha Beginner Remix)
- 08. Анна Герцен - Very Good
- 09. Inna - Crazy Sexy Wild (Acoustic Radio Version)
- 10. Стас Шуринс - Будь Собой (Версия 2012)(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF4F66AA7359D1204C60AAD2B7E60636A6B1979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934199   (503566) от 04.09.2015
-
-VA - Beatport Indie Dance / Nu Disco Top 100 August (2015) [MP3|320 кб/с]<Indie Dance / Nu Disco, G-House, Electronica>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giacca & Flores - Delight (Original Mix)
-02. Platinum Doug - Play with Me (Original Mix)
-03. Giacca & Flores - Can't Go for That (Original Mix)
-04. Dani Hageman - Hello (Original Mix)(   Читать дальше...   )Жанр: Indie Dance / Nu Disco, G-House, ElectronicaПродолжительность: 09:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C373EE58C52D636FACEE3DD8979B04613F1509D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934264   (503470) от 04.09.2015
-
-VA - Mojo Presents: David Gilmour & Friends (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503470.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. David Crosby & Graham Nash - Don't Dig Here (6:09)
-2. Ulver - Everybody's Been Burned (3:25)
-3. Phil Manzanera - Sacred Days (3:56)
-4. David & Joe Gilmour - Here, There & Everywhere (3:12)(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3082551D841AEEAF2664AD51895466F484534D
 ```
 
 https://mybot314.ru/tekegram_catalog/

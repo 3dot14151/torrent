@@ -1,32 +1,3 @@
-###  Публикация: 163689   (984169) от 09.01.2010
-
-Betray My Secrets - Betray My Secrets (1999) [MP3|320 kbps]<Atmospheric Ethnic Gothic/Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shamanic Dream (7:04)
-02. Ever Expanding Eternity (6:00)
-03. God And Me (4:30)
-04. Oh Great Spirit (6:23)(   Читать дальше...   )Жанр: Atmospheric Ethnic Gothic/Doom MetalПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355388   (983632) от 26.01.2020
 
 Meshiaak - Mask Of All Misery (2019) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -755,6 +726,35 @@ Distant Dream - A New Beginning (2005) [MP3|320 кб/с]<Progressive rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DD28F8E36848CF1862BB3F06E9BE2EFE99E4F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972663   (982081) от 06.01.2016
+
+Burning in Hell - 2 альбома (2004 - 2006) Discography Japan [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Freedom
+02.Shadows of the Wars
+03.The End of the World
+04.Forever I'll Be Here(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1E5F82AB8B8A368C78BD99D843B4BB955E0F80
 ```
 
 https://mybot314.ru/tekegram_catalog/

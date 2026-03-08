@@ -1,32 +1,3 @@
-###  Публикация: 986110   (932538) от 13.02.2016
-
-Bloodbound - One Night Of Blood - Live At Masters Of Rock MMXV (2016) [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodtale (Live at Masters of Rock 2015)
-02. Iron Throne (Live at Masters of Rock 2015)
-03. When Demons Collide (Live at Masters of Rock 2015)
-04. In the Name of Metal (Live at Masters of Rock 2015)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1731FE033BB6A78834BDA282B61E1E75946FF2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986064   (932527) от 13.02.2016
 
 U.D.O. - Timebomb (1991) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -747,6 +718,35 @@ Deep Purple - The Audio Fidelity Collection (2013) 4CD Box Set, 24K Gold, Audio 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9828E6767E73FDD085CB8EBF0C7D79F3F8CE0C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986344   (931079) от 14.02.2016
+
+Mitochondrion - Parasignosis (2011) [APE|Lossless|image + .cue] <Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plague Evockation (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part I),
+02. Lex Ego Exitium (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part II)
+03. Tetravirulence (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part III)
+04. Trials(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5545D9670EF6519FDC8226A8257834CC5903C1BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

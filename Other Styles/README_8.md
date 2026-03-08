@@ -1,3 +1,32 @@
+###  Публикация: 1352292   (1000894) от 15.01.2020
+
+Frantz Amathy - Heavenly Ways (2004) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Wind of Love (6:21)
+02. Heavenly Ways (9:35)
+03. Mystery (4:54)
+04. Crystal Song (5:09)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E93916572FEA2A13FB4147D40AFDB908FDF11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351473   (1000892) от 15.01.2020
 
 7 часов спустя (Обратный отсчёт) / 7 Hours to Go (Original Motion Picture Soundtrack) - EP (2016) [MP3|128 Kbps] <OST, Soundtrack>
@@ -840,35 +869,6 @@ V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352824   (992632) от 17.01.2020
-
-Evgeny Grinko - Naive Album (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Art Thou (4:12)
-02. Dusty Room (2:42)
-03. Someone Who Forgot His Watch (3:42)
-04. Short Memory (2:45)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F805D4D7DD4D641536183BFB80875FC3B8A8D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

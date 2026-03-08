@@ -1,3 +1,61 @@
+###  Публикация: 1444310   (1034653) от 01.02.2021
+
+VA - Acoustic Versions of Pop Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talisha Karrer - Hazard (03:30)
+02. Shannon & Keast - Jealous (04:32)
+03. Landa - Nothing Breaks Like a Heart (03:44)
+04. Logan York - Stay with Me (03:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2D8947FDDB4E485A2FEF0A3B58AE682D322DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444170   (1034647) от 01.02.2021
+
+VA - New Italo Disco Music Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven42 - Just Tonight (Extended Version) (7:25)
+02. Birizdo I Am - Melinda (EP Version) (7:33)
+03. Nikita Fomin - Stranger (Dream Version) (6:23)
+04. Fancy - Moscow Is Calling (On The Line Mix) (7:16)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA8B85DCB9552ED8B1FDFD51719EFA9C4A72262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444662   (1034454) от 02.02.2021
 
 Henri-Michel Raschle - Daemonia: The Magic Trip Through Your Soul (1981) LP [MP3|320 Kbps] <Electronic, Prog Rock, Disco>
@@ -684,64 +742,6 @@ VA - 80s Top Tracks (2022) [OGG Vorbis|480 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76BA0DEF898FC242A362BCE6628260A50DF8BA16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446610   (1032735) от 09.02.2021
-
-J.J. Mack - You Can Make It Dancin' (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street Dancin' (5:02)
-02. Hang On Sloopy (5:34)
-03. You Can Make It Dancin' (5:01)
-04. Na, Na, Hey, Hey, Kiss Him Goodbye (5:01)Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:20:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39AADE04907E3F75F10023F3BD30039467B72996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446498   (1032728) от 09.02.2021
-
-Samantha Fox - I Wanna Have Some Fun (1988) [FLAC|Lossless|image + .cue] <Synth-pop, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Have Some Fun (5:03)
-02. Love House (4:36)
-03. Your House or My House (3:56)
-04. Next to Me (5:26)(   Читать дальше...   )Жанр: Synth-pop, Pop, DanceПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676FA6530496E69D90E01B2C9ABA7675257C9F01
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1143923   (631494) от 20.06.2017
+
+VA - Diamond Euphoria: Night House Party (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631494.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Deep Spirit - Lonely 2K16 (Club Edit)  3:25
+002.  Moonrider - Resurrection (Radio Edit)  3:39
+003.  Arctic Motion - Black & White (Radio Edit)  3:33
+004.  Miguel Alcobia - We Get It Right Sometimes (Radio Edit)  3:12(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB6F1989719F3CAF4F15DD5534AC713A0BDB718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035080   (630591) от 15.07.2016
 
 VA - Summer Splash (2016) [MP3|320 Kbps] <Club, House, Funky, Progressive>
@@ -743,35 +772,6 @@ VA - 50 Best of Summer Workout Hits (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B678F11951E3DFAE6B419A256623AB3A4007F06E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035466   (626661) от 17.07.2016
-
-VA - Summer Session 2016 (mixed by Dj V) (2016) [MP3|320 Kbps] <Club House, Disco House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626661.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1. Light
-Продолжительность: 01:02:20
-
-01-Samantha Jade - Sweet Talk (Craig Welsh Pop Bootleg Mix)(   Читать дальше...   )Жанр: Club House, Disco House, DanceПродолжительность: 02:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513B28E8AD6E51C86072DEDE65CB4C8AE84C02AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

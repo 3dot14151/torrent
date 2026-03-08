@@ -1,3 +1,38 @@
+###  Публикация: 569559   (390602) от 04.11.2012
+
+Need for Speed Most Wanted  (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muse - Butterflies & Hurricanes (5:01)
+02. The Chemical Brothers - Galvanize (4:29)
+03. Foreign Beggars feat. Noisia - Contact (3:10)
+04. Popeska - Now Or Never (5:52)
+05. DJ Fresh - The Power feat. Dizzee Rascal (2:47)
+06. Last Dinosaurs - Zoom (4:00)
+07. Strange Talk - Cast Away (4:28)
+08. Ambassadors - Unconsolable (4:23)
+09. Deadmau5 - Channel 42 feat. Wolfgang Gartner (4:48)
+10. Icona Pop - I Love It (2:35)(   Читать дальше...   )Жанр: ScoreПродолжительность: 02:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF5E9F79599A05B68ADA51F4E4953B90ADBCC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570387   (389891) от 05.11.2012
 
 Carter Burwell - Seven Psychopaths (Семь психопатов) (2012) [MP3|320 кб/с]<OST>
@@ -720,35 +755,6 @@ Constance Demby - Sonic Immersion (1996) [FLAC|Lossless|tracks + .cue] <NewAge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3E2B4D0B6847C10BBCD3367004B2981A2C63447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253602   (381764) от 10.10.2018
-
-Constance Demby - Attunement (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bringing Down The Silence (14:53)
-02. Strings of my Heart (06:56)
-03. Out of the Mist (03:29)
-04. Eyes in the Mirror (04:40)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8FF65AD57F7C8D71142FA8F8865F7FD7BB86B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

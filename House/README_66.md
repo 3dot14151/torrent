@@ -1,3 +1,32 @@
+###  Публикация: 1268111   (229973) от 09.12.2018
+
+VA - Ibiza 2019 Winter Clubbing (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_229973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bang Bang, Tidy Daps - Susan Cries (Tidy Daps Remix) 5:59
+02. Dubeats - Tender Love (Dub Mix) 6:23
+03. G Spice, Flected - Reshape (Flected Remix) 6:11
+04. Jeff El Jefe - Sensual (Original Mix) 6:04(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C7228E081DD87CA5A9398EF5F3BA83DB49C93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341803   (229358) от 29.11.2019
 
 Dj De Key - Friday Evening Disco (2019) [MP3|320 Kbps] <Disco House, Tech House>
@@ -727,35 +756,6 @@ VA - Ibiza Dance Party (2023) CD, Compilation [MP3|320 Kbps] <Electro, Club, Fut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A027AC7FB4C789B9A8902EED7E6212AACADC3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652210   (218497) от 10.08.2023
-
-VA - Deep House Relief (2023) CD, Compilation [MP3|320 Kbps] <Deep House, Downtempo, Soulful, Beach House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M-Sol DEEP, Tomas Zolan - Naomi (Original Mix)
-02. Duel (HU), M-Sol DEEP - Scarlet Sun (Original Mix)
-03. NatureVibes, M-Sol DEEP - Fantasy (Original Mix)
-04. DMTunes, Teeka, M-Sol DEEP - Bodhi (Original Mix)(   Читать дальше...   )Жанр: Deep House, Downtempo, Soulful, Beach HouseПродолжительность: 01:30:01 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B055011C83A1125349C8994CC42AE6F0190D9882
 ```
 
 https://mybot314.ru/tekegram_catalog/

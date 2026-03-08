@@ -1,3 +1,177 @@
+###  Публикация: 1268685   (226246) от 11.12.2018
+
+VA - Blue Jean Bar Blues (2018) [MP3|320 Kbps] <Blues, Country, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226246.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Black Pistol Fire - Storm Cussin'
+002. Back To Blue - Jerusalem Blues
+003. Ciaram Granger - Way Down
+004. Dr. Feelgood - Two Times Nine(   Читать дальше...   )Жанр: Blues, Country, Rock BluesПродолжительность: 11:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F859D1ABC3718DEFF17C7B3CE5CF7D8300111A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342241   (226052) от 01.12.2019
+
+VA - Beatport Trance Pack #02 (2019) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226052.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Laura May - Devil With Yellow Eyes
+002. Life Extension - Overthrow (Original Mix)
+003. Oneworld - Isla Blanca (Original Mix)
+004. Mr. Greidor - Rescued In A Storm(   Читать дальше...   )Жанр: TranceПродолжительность: 13:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABCC33E9347BEFF4396E63B54E6E55CE43679AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965130   (225921) от 14.12.2015
+
+VA - Planeta Mix Hits 2016. Winter Edition (2015) [MP3|320 кб/с] <Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Bba Ra Bam (Radio Edit) 03:10
+02. Mario Sem - Run Again (Stephan F Remix Edit) (Feat. John Mood) 03:31
+03. The Klaim - Candy Girl (Radio Edit) (Feat. Federica) 03:20
+04. Hoxygen - Loca (Radio Edit) 02:57(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 02:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D385DDE0192219BA20D672AF0A850E02B50B76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424758   (225891) от 18.11.2020
+
+VA - не Громкие новинки недели 88 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3-ий Январь - До Небес (2:37)
+02. BAGARDI - Тики-так (2:36)
+03. Eli Wais & Lana B - Зодиак (3:06)
+04. HammAli & Мари Краймбрери - Медляк (DJ Prezzplay Radio Edit) (4:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE384E0FBFDA336D78C75D119BF4C12D5F1A1400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342232   (225594) от 01.12.2019
+
+VA - Лучшие Trance треки Ver.11: Classic Vocal Trance (2019) Special Edition [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk feat. Hemstock & Jennings - Nothing But You (UK Radio Edit) 3:17
+02. Armin vаn Buurеn fеаt. Susаnа - Shivers (Original Mix) 3:12
+03. Betsie Larkin & Andy Moor - Not Afraid (Extended Mix) 7:22
+04. Gareth Emery feat. Christina Novelli - Concrete Angel (Original Mix) 3:57(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, ProgressiveПродолжительность: 06:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2769D049E9A076AFBCC3147FDC243A7325486B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342240   (225578) от 01.12.2019
+
+VA - Beatport Trance Pack (2019) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225578.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Made Of Light - The Unforgiven
+002. Chronosapien - City Of Sion (Radio Cut)
+003. Kiyoi & Eky With Adam Morris - Sense
+004. 8 Mirrors - Alive (Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 12:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E433F0489F5C6A28E3F85ECFF4ED74E77B98788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342203   (225531) от 01.12.2019
 
 VA - Something In My Heart (2019) [MP3|320 Kbps] <Blues Rock>
@@ -574,180 +748,6 @@ VA - Abstrct Vision: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26EFE63CC77F5E72CC9D245D7F803E2E271944A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342287   (224165) от 02.12.2019
-
-VA - Hedkandi Dance House (2019) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224165.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dany West - Shaking (Original Mix)
-002. Viktop - Rw3 (Savvas Remix)
-003. Dj Luciano - Minuet
-004. Tommer Mizrahi - We Are All Connected(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499E2889D2DE509115FF99D8B4F094611B0576D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342394   (224156) от 02.12.2019
-
-VA - Future Horizon: Tech House Movements (2019) [MP3|320 Kbps] <Tech House, Electro, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224156.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Hand - All Caught Up
-002. Red Led - About You
-003. Alvaro Wade - Somos Musicos
-004. Djorda Luigia - Fonky French(   Читать дальше...   )Жанр: Tech House, Electro, EDMПродолжительность: 13:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C6308927265FCF3A7F0E30211313E62C2D75B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965575   (224152) от 15.12.2015
-
-VA - Eurodance Radio Mix Club House (2015) [MP3|320 кб/с] <Club, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224152.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Snake & Alunageorge - You Know You Like It
-002. DJ Fresh ft Ella Eyre - Gravity
-003. Robin Schulz ft Francesco Yates - Sugar
-004. Hayden James - Something About You(   Читать дальше...   )Жанр: Club, Electro HouseПродолжительность: 06:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7EE1AF5D3A57E4AD2AD171A41C4024022EC592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342309   (224143) от 02.12.2019
-
-VA - EDM Classical Melodies For The Dancefloor (2019) [MP3|320 Kbps] <Electro Dance, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224143.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Obsidian Project - U.F.O. 2019
-002. Huda Hudia - Grillin
-003. Social Fever - Why The Moon
-004. L'anno Neam - Victory(   Читать дальше...   )Жанр: Electro Dance, Club HouseПродолжительность: 12:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE74C8269E5933B4472AC79D1746133F5E00AE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965610   (224121) от 15.12.2015
-
-VA - 100 Winter Dance 2016 (2015) [MP3|256-320 кб/с] <Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Fuldner feat. Polina Griffith - Do What You Like (Frankie Remix)
-02. Ellie Goulding - On My Mind (DJ Denis Rublev & DJ Anton Bootleg)
-03. Елена Темникова - Зависимость (Oleg Perets & Alexey Galin Remix)
-04. Madonna - Living For Love (Pankratov, DJ Cosmos & Gumanev Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5486FBD08AE6B10133E63F6A6851605BC1F7B7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965891   (224092) от 15.12.2015
-
-VA - Lounge Latex Sexy Relax (2015) [MP3|320 кб/с] <Vocal Lounge, Lo-Fi, Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224092.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michele Taylor - Morning Light (Original Mix)
-002. Jungle - Drops
-003. Da King feat. Xenya - In the Door (Cool Vocal Jazz Mix)
-004. Fragile State - The Facts and the Dreams(   Читать дальше...   )Жанр: Vocal Lounge, Lo-Fi, DowntempoПродолжительность: 09:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D9CEA78032CA17390EF9203DB8354DA3A9E2AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

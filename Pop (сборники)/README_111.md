@@ -1,3 +1,32 @@
+###  Публикация: 1632938   (198185) от 19.05.2023
+
+VA - 90s Eurodance: XXL Super Sounds 90s (2020) Unofficial [MP3|320 Kbps] <Eurodance, Techno, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mach 7 - Real Love (Extended) (5:42)
+02. Sound Of R.E.L.S. - !Love Is The Powa! (The Powa Mix) (5:22)
+03. O-Zone - Engel 07 (Extended Version) (5:59)
+04. God's Groove - Back To Nature (Element Mix) (6:10)(   Читать дальше...   )Жанр: Eurodance, Techno, HouseПродолжительность: 76:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9D2389DDB0A3839944CB2596D04C0200EB0D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640460   (196897) от 19.06.2023
 
 VA - Музыка для машины Vol.27 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -715,35 +744,6 @@ VA - German Top 100 Single Charts 04.12.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F359800BF1BF8C9741441170981E44B5AA1533A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429310   (176616) от 06.12.2020
-
-VA - Pop Sun Hits: November Session (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это не просто очередной музыкальный сборник, это более восьми часов твоей любимой музыки, которая дарует заряд бодрости и позитива на весь день. 155 незаурядных композиций которые смогут обрадовать не только настоящих фанатов поп жанра, но и обычных меломанов, ведь только такая музыка лучшим образом подойдёт для отдыха с друзьями.001. Dua Lipa - Don't Start Now
-002. Hava - Krank
-003. Michael Patrick Kelly - Beautiful Madness
-004. Coleman Hell - Show 'em(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B84BFA2E62E7935D146FCBFC901D2FC107CBCBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

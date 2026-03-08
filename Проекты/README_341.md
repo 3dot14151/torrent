@@ -1,31 +1,3 @@
-###  Публикация: 1784200   (25206) от 09.03.2025
-
-Проекты - VideoHive - Valentines Flower Heart Intro - 56657264 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый проект ко дню святого Валентина.
-
-Музыка предоставлена в демо режиме.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9FCACEF22F8FAC595B34A1C0F62588CE375755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784347   (25114) от 10.03.2025
 
 Проекты - VideoHive - Romantic Wedding Slideshow - 56640628 [AEP]
@@ -693,6 +665,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75CA2C1EA3A99F22442CD7C99B2C012F76A3810C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788003   (23193) от 28.03.2025
+
+Проекты - VideoHive - Thunder Storm Logo Reveal - 56749990 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый проект с логотипом молниями.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5D18BCE61AED1961BA49463A1119E01953F48F
 ```
 
 https://mybot314.ru/tekegram_catalog/

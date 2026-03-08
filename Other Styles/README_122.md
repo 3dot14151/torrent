@@ -1,3 +1,32 @@
+###  Публикация: 1328533   (363108) от 30.09.2019
+
+Angel Olsen - All Mirrors (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lark (06:18)
+02. All Mirrors (04:42)
+03. Too Easy (02:57)
+04. New Love Cassette (03:26)(   Читать дальше...   )Жанр: Indie Folk, Dark FolkПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774461401C84D2746F094EA401E7F88DAC3AB57A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951361   (363067) от 29.10.2015
 
 Govi - The High Road (2015) [FLAC|Lossless]<New Age, New Flamenco>
@@ -732,35 +761,6 @@ Jуhann Jуhannsson - The Theory of Everything / Вселенная Стивен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF3EBAD0FDC86A95BF2ABEB1EC85E41732D791F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329090   (356632) от 03.10.2019
-
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356632.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010B545F1DADF20478E467A6567FE3A5D215594D
 ```
 
 https://mybot314.ru/tekegram_catalog/

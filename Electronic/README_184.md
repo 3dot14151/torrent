@@ -1,3 +1,61 @@
+###  Публикация: 1024047   (720578) от 07.06.2016
+
+Gai Barone - Towards (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Sides of Nowhere (Original Mix) (7:49)
+02. Bianca (Original Mix) (7:46)
+03. Mom's Clown (Original Mix) (8:01)
+04. Stripped (Original Mix) (9:10)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C03C4206D45D805C302EC9E6911D6B9A06966C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024189   (720558) от 07.06.2016
+
+VA - Live In Montreal - Finale (Mixed By John Digweed) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 1) (57:23)
+02. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 2) (59:11)
+03. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 3) (52:21)
+04. Adam Beyer - What You Need (6:41)(   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 06:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DEF068938555AA1155CEE8D6AA2ECB47BA15EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023921   (720552) от 07.06.2016
 
 Monochrome - Unforgettable Call Of The Octopus (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambient, Techno, Dark Ambient>
@@ -684,64 +742,6 @@ VA - LNG Music: Nick Skitz - Skitzmix 55 (2019) [MP3|320 Kbps] <House, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3DE0DC230334BA52C3EC4C6F370BF2165509D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285662   (719052) от 27.02.2019
-
-VA - Auralization (Mixed by OzzyXPM) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OzzyXPM - Khaleesi (Continuous Mix Version)
-02. Christian Monique - Take Me (Continuous Mix Version)
-03. Arctic Lake - Limits (Aurosonic Progressive Mix - Continuous Mix Version)
-04. Ataberk Onal - Smyrna (Continuous Mix Version)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59425295DD5E8BAB4E02CEA6837322C50EBF771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285666   (719050) от 27.02.2019
-
-VA - Uplifting Trance Sessions Vol.12 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tizer - With Got To Stars (Original Mix)
-02. Miroslav Vrlik - Coming Home (Extended Mix)
-03. Andy Kern - Float Away (Original Mix)
-04. Andy Blueman - Beyond The World We Know (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD453FF922FE08308C17C45B45CDB012289B3EB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

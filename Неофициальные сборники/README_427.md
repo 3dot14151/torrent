@@ -1,3 +1,177 @@
+###  Публикация: 943895   (445333) от 05.10.2015
+
+Dj Parafich - Pumping (Scouse) Romantica vol. 15 (2015) [MP3|192 кб/с]<Pumping house, Scouse house, Hard bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Save Me (Rusklubb Mix)
+02 After All (Tega Klubbed Remix)
+03 Bonkers Vs The Launch (Karlston Khaos Mix)
+04 Last Friday (Klubb Mix)(   Читать дальше...   )Жанр: Pumping house, Scouse house, Hard bassПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393D83D0BF49B5080201D6107D8E3B9D18EBE79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943851   (445213) от 05.10.2015
+
+VA - Vocal Trance Collection Vol. 138 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Aelyn - New Day (Original Mix)
+02 Dreamy Maratone feat. Danny Claire - You (Original Mix)
+03 Witness45 feat. Jess Morgan - Lightspeed (Original Mix)
+04 Andy Moor – K Ta (Lange Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB1B222508AFFB3E67CE7A89E4E937FD3C47A8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943905   (444921) от 05.10.2015
+
+Baccara - Good Songs (2015) [MP3|128-320 кб/с]<Pop, Dance pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes Sir, I Can Boogie (1977)
+02. Love You Till I Die (1977)
+03. Granada (1977)
+04. Gimme More (1977)(   Читать дальше...   )Жанр: Pop, Dance popПродолжительность: 05:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF18923EE9311D562AF7C4036454436B8D23935B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943916   (444915) от 05.10.2015
+
+VA - Sexy Jazz Guitar Lounge - Sensual Jazz Music Tantric Chillout Hot and Cool Instrumental Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instrumental Jazz Music Ambient - Sexy Jazz Guitar
+02. Sex Music Zone - Erotic Lounge Music
+03. Jazz Guitar Club - Very Hot Party
+04. Making Love Music Ensemble - True Feelings(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D08A4BA6FA216545A7CFDEEF8436B43B17372C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062040   (444776) от 12.10.2016
+
+VA - Beatport Trance Pack  (12.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Rocca - Against The Wind (Braulio Stefield Remix)  7:36
+02. Ferry Corsten & Cosmic Gate - Event Horizon (Extended Mix)  5:40
+03. Denis Kenzo & Angel Falls - Run Away (Original Mix)  6:06
+04. Francisco Echeverria - Galapagos (Original Mix)  7:36(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 06:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2E0CEFB263216BF024E41C35A9349225738D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062057   (444774) от 12.10.2016
+
+VA - Sound 155 Version Relentless (2016) [MP3|236~320 Kbps] <House,  Electro, Bigroom, UK Garage, Funky, Progressive, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mary G. feat. Ricardo Munoz - You & I (Bodybangers Radio Edit)  3:23
+002. Bodybangers Feat. Tony T. - Break My Stride (Extended Mix)  4:05
+003. Finger & Kadel - Kalinka (Club Mix Edit)  3:16
+004. Firebeatz - Wonderful  5:37(   Читать дальше...   )Жанр: House,  Electro, Bigroom, UK Garage, Funky, Progressive, ClubПродолжительность: 13:20:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F441162ACE7E0C58FEB69B928385B5EB53CF4F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943955   (444756) от 05.10.2015
 
 Chris Norman - Good Songs (2015) [MP3|320 кб/с]<Rock, Pop>
@@ -601,210 +775,6 @@ VA - Therapy Of The Soul: New Age Current Version (2017) [MP3|320 Kbps] <New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:882610442E8C50C54B2AC1C8ED4DC9B1BE2A1D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553561   (443738) от 28.09.2012
-
-VA - L.O.V.E. Vol.11: Chillout Music Collection (2012) [MP3|320 кб/с]<Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andain - You Once Told Me
-02. Dinka - Innocence (Original Mix)
-03. George Holliday - Never Gonna Grow (Original Mix)
-04. Matt Tilli - A Drug (Original Mix)
-05. Natalie Marchenko - Lily Was Here
-06. Bryan Milton - Astronomy (Original Mix)
-07. Store N Forward - Listen To Life (Masoud Remix)
-08. Electrico - Liberation (Shigeki Str1ng Orchestra Remix)
-09. New Believers feat. Ike Sofunky - Read My Mind (Drexmeister Rework)
-10. Thomas Lemmer - Traveller (Setsuna Remix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 04:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942D637501FFE5284970928F5AE2607C3CB63760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552825   (443605) от 28.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 86[MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricky King - Dalilah
-02. J.Last - Concierto De Arangues
-03. Alain Musichini - La Polka Musette
-04. Armik - Gypsy Romance
-05. А.Серов - Пою тебе
-06. Arabian Night - Fantasia
-07. Ocarina - Camilleva
-08. Karunesh - Sahara Sunset
-09. А.Зацепин - Темы из кинофильмов VII
-10. Roy Etzel - Tell Laura I Love Her(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CAC7A4923B39E1C1BC21C0AE5E3C71BEB98B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552821   (443603) от 28.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 85 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conquistador - Granada
-02. В.Ковтун - Встреча
-03. Jackson - Say Say Say
-04. The Ventures - The House Of The Rising Sun
-05. D.Luca - Unchained Melody
-06. J.Last - Cracklin Rosie Rose Garden
-07. G.Marradi - Thoughts
-08. Karunesh - Call Of The Unknown
-09. Antonio De Lucena - Sotto La Luna
-10. J.Borelly - Toute La Pluie Tombe Sur Moi(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1935E32AA066A82CF3C9D1AF5E45AE493608B5D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553267   (443598) от 28.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 87 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оскар Строк - Черные глаза
-02. G.Marradi - Romantico
-03. The Romantic Sax - End Of The Night
-04. Antonio De Lucena - My Sunshine
-05. Mario Battaini - Le Sirene Del Ballo
-06. Dana Dragomir - Skallgang
-07. Space - On The Air
-08. В.Зинчук - Колыбельная для Антуанетты
-09. VA - Instrumental Theme
-10. А.Зацепин - Темы из кинофильмов VIII(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F2F742B1ADD3EDA7E77F728E0CF7D09272E1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553269   (443534) от 28.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 88 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Govi - Lovers Moon
-02. G.Marradi - Just For You
-03. Carlos Areias - Sombras Du Madrugada
-04. A.Findon - One Man, One Woman
-05. А.Серов - Улыбка
-06. Mario Battaini - Sul Bel Danubio Blu
-07. Neal Schon - Caruso
-08. Karunesh - Sapphire
-09. Armik - Maracles
-10. Golden Sax - Saving All My Love For You(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:793BA79B6CBEC51938585CD472AE9CDCA5A05626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409589   (443271) от 18.09.2020
-
-VA - Tight Drum And Bass: Bassline Positive Session (2020) [MP3|320 Kbps] <Drum And Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443271.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Liquid Jazz - Need Your Love
-002. Pltx - Late Night Liquid
-003. Tarz - Friday Feeling
-004. Sonic - Then(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 13:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76C2A7D35A4CA89268B896C0685D426D881E681
 ```
 
 https://mybot314.ru/tekegram_catalog/

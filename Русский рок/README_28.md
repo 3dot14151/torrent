@@ -1,32 +1,3 @@
-###  Публикация: 1385134   (800342) от 23.05.2020
-
-666 - Мясо с кровью (2020) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800342.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пули в тело - деньги в дело
-2. Летучие мыши
-3. Под прицелом
-4. Ад(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600D27C868143ECCB1CF5F78C7486D808F9BB513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385130   (800332) от 23.05.2020
 
 7Б - Майская звезда (2020) Single [MP3|320 Kbps] <Rock>
@@ -742,6 +713,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:374E419C0C4BB71CA74DC23149CACC0894EF051F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386446   (794332) от 29.05.2020
+
+Би-2 - Депрессия (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794332.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Депрессия
+2. Депрессия (Tesla Boy 80’s remix)
+3. Депрессия (Куртки Кобейна summer remix)
+4. Депрессия (Elliot Moss remix)(   Читать дальше...   )Жанр: RockПродолжительность: 00:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FE625B96B9F33933EB0E8BB9852C6727902BC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

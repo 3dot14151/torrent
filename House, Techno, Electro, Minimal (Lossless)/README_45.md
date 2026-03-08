@@ -1,3 +1,90 @@
+###  Публикация: 710695   (414091) от 15.10.2013
+
+VA - So Fresh Dance (2013) [FLAC|Lossless|tracks + .cue]<House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pitbull feat. Christina Aguilera - Feel This Moment (02:58)
+ 02. Rihanna - Diamonds (Congorock Remix) (05:05)
+ 03. Havana Brown - Big Banana (03:11)
+ 04. PSY - Gangnam Style (Afrojack Remix) (03:41)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564DCD8D860073DBED8C6971342968356821D6BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066616   (411936) от 26.10.2016
+
+Lost Frequencies - Less Is More (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Or Nothing (feat. Axel Ehnstrom) (2:38)
+02. What Is Love 2016 (3:08)
+03. Beautiful Life (feat. Sandro Cavazza) (2:42)
+04. Sky Is The Limit (feat. Jake Reese) (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A92479874BE705526B7141080135C78FA746CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066921   (410066) от 27.10.2016
+
+VA - Seven Stories: The Quest (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nhar - Navigli [08:22]
+02. Dan Grassler - Going Back (feat KnowKontrol) [07:28]
+03. Alex Zed - Over My Head (feat Billie Fountain) [08:00]
+04. Teho - Back To The Forest [07:21](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4B2452DAC77A91E9DD8BFDA5E83457C37CBA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252174   (409321) от 05.10.2018
 
 VA - Incepto Deep Hybrid (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
@@ -657,92 +744,6 @@ Flight Facilities - Down To Earth (2014) [FLAC|Lossless|WEB-DL]<Tech House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A5675FBF6002539C56519236585EF8DCA991755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575355   (376915) от 09.09.2022
-
-U96 - 20.000 Meilen Unter Dem Meer (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Seven Seas (feat. Claude Oliver Rudolph)
-02. New Life
-03. Atlantis (feat. Claude Oliver Rudolph)
-04. Pressure(   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B3222812DFCF0D75676A9E97BC6A4FCD2E7923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415612   (376869) от 12.10.2020
-
-Martin Goodwin - Discography 6 Releases (2013-2020) Tehnofonika, Northallsen, Kornarion [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclosion Pt.1 (06:55)
- 02. Eclosion Pt.2 (12:08)
- 03. Eclosion Pt.3 (06:37)
- 04. Eclosion Pt.4 (08:15)(   Читать дальше...   )Тип издания: WebЖанр: Techno, Ambient, Dub Techno •Продолжительность: 04:50:59 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47BAF85EB491384EC2FB5E94B6C70B9D59D56F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303292   (376330) от 12.10.2020
-
-Aleja Sanchez - Discography 30 Releases (2010-2020) Northallsen Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Internal Dialogue (07:11)
- 02. The Language Of Silence (06:18)
- 03. Inner Voices (06:34)Тип издания: WebЖанр: Techno, Ambient, Experimental •Продолжительность: 14:27:01 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CD81AC27791EFB008D3B3B3B51B0F0242899F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

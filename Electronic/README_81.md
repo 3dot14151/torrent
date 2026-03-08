@@ -1,3 +1,61 @@
+###  Публикация: 1369354   (903114) от 23.03.2020
+
+Infected Mushroom - More than Just a Name (2020) [MP3|320 Kbps] <Psy-Trance, Dubstep, Electro House>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903114.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. More of Just the Same
+2. Only Solutions
+3. Ani Mevushal
+4. Symphonatic (Infected Mushroom & Astrix Remix)(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3E0BFFA6E6ABFC06E6190E01870B9C8C97FCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991408   (902714) от 01.03.2016
+
+Malk & StarJam - Elements (2016) [MP3|320 кб/с] <Electronic, Deep Dubstep>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elements (04:15)
+02. Arabica (03:17)
+03. Take Away (feat. Dakooka) (04:46)
+04. Wrong (feat. Dakooka) (04:10)(   Читать дальше...   )Жанр: Electronic, Deep DubstepПродолжительность: 00:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881492AF5FFE3E0F6915030C8F9206AACEC1DAF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 824663   (902434) от 01.03.2016
 
 Robbie van Doe - 16 Singles, 11 Remixes, 1 Tracks (2007 - 2016) [MP3|320 кб/с]<Trance>
@@ -687,64 +745,6 @@ VA - This Is My Church, Vol. 1 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6B429A60F4375FF865B95C98299C5021F1C3D5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100815   (899888) от 04.02.2017
-
-VA - Relaxation Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airlines - Mister
-02. Ed Kashinsky - Supreme
-03. Marie Therese - Endless Time - Chillout Mix
-04. Bryan Milton - Sunny Day(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F547259336174720F8D93B2A19FB86CF246F04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100720   (899842) от 04.02.2017
-
-VA - Hypnotized Creations Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amine K/Moroko Loko - Mayday [06:34]
-02. Nico Pusch - Get Me (Township Rebellion remix) [08:23]
-03. Kant - Dyster (Animal Trainer remix) [07:39]
-04. Betoko/Haze-M - Lusch (El Mundo remix) [06:56](   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 02:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F03D4825F7AAA2856FAD490503B6601104F86A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

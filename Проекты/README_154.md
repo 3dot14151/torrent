@@ -1,29 +1,3 @@
-###  Публикация: 1029074   (683777) от 25.06.2016
-
-Проекты - VideoHive - DeFocus Glitch Logo Intro - 12482044 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683777.jpg" />
-</div>
-
-
-###  Подробнее
-
-DeFocus Glitch Logo Intro - демонстрация вашего логотипа с имитацией расфокусировки камеры и эффектами глюков.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F717969355F6592395C92D176A88B209A3013F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029066   (683767) от 25.06.2016
 
 Проекты - VideoHive - Parallax History [AEP]
@@ -674,6 +648,32 @@ VideoHive – Wedding Photos - 6993270 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:238B399788AA91F1AC6AFBD23948E64C475A2702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135555   (680527) от 19.05.2017
+
+Проекты - VideoHive - Clean Photo Gallery - Image Slide Opener - 19494099 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clean Photo Gallery - Image Slide Opener это современный шаблон After Effects. Он поможет Вам быстро создать красивое слайд-шоу. Добавьте музыку и порадуйтесь полученному результату.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C4E2BE7804C0F9F1AB4B6B0F49249B57ADAACB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

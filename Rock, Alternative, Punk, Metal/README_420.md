@@ -1,38 +1,3 @@
-###  Публикация: 514631   (653028) от 28.06.2012
-
-Виктор Цой - Белый альбом (2002) [MP3|320 кб/с]<Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653028.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вопрос
-2. Сосны На Морском Берегу
-3. Blood Type
-4. Кончится Лето
-5. Красно-Желтые Дни
-6. Нам С Тобой
-7. Звезда
-8. Кукушка
-9. Когда Твоя Девушка Больна
-10. Муравейник(   Читать дальше...   )Жанр: РокПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E4968D08757639FE7116FE6DD36FAD68FAE964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540520   (652725) от 30.03.2022
 
 The Holy Family - The Holy Family (2021) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Krautrock, Experimental>
@@ -760,6 +725,35 @@ Reverb Gun - Rock Is Our Bussines (2015) [MP3|320 кб/с]<Heavy / Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAAE9144FA8051EFB90D0B92723342BB21952854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905259   (652098) от 05.06.2015
+
+Triaxis - Zero Hour (2015) [MP3|320 кб/с]<Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liberty
+02. Death machine
+03. Ministry of truth
+04. Terraform(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5F2849331DF3DF2D7B1B383168ABFDA8A41E63
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,176 @@
+###  Публикация: 1558257   (531642) от 20.06.2022
+
+VA - More More Disco (2022) [MP3|320 Kbps] <Disco, Dance, Remix>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Trаnsistоrсаkе - Pаri Pаri
+002. Bаrrу Bluе - Dаnсinоn A Sаturdау Night
+003. Cаrоl Dоuglаs - Night Fеvеr
+004. Clаudiо Tеmреstа - Mу Tаngо Is Hурnоtiс(   Читать дальше...   )Жанр: Disco, Dance, RemixПродолжительность: 11:24:59 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:197B42EFE279A5CCA1E9B9D98111E2D04D7AB97D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926972   (531624) от 11.08.2015
+
+Christian Grey - Shades of Sensuality Chill Out 50 Minutes Lounge Music Sexy Songs (2015) [MP3|320 кб/с]<Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensuality (04:38)
+02. Shades of Lounge (04:40)
+03. Armenian Duduk & Relaxing Ocean Waves Lounge (Nature Sounds - Nature Music) (05:20)
+04. Music Bar (Music for Dreaming) (05:00)(   Читать дальше...   )Жанр: Lounge, ChillOutПродолжительность: 02:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EE3B27583ADD73F8BC97A8530BAE688768830E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926713   (531616) от 11.08.2015
+
+VA - Sin City Lounge (Smooth Erotic Chill Music For Intimate Moments And Sensual Seduction) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Velvet - Sin City - Seductive Mix (04:38)
+02. Bb Flat - So Smooth (04:43)
+03. Loungeotic - Isolation (04:30)
+04. Soleil Fisher - After the Echoes - Instrumental Bar Mix (05:55)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26777A84E9C3DDC70540E1AF30627C576EB6631E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155707   (531575) от 04.08.2017
+
+VA - TOP Non-Stop 2010-2015 - Lounge & Chillout [vol.5] (2017) [MP3|320 Kbps] <Lounge, Chillout, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alveol - Dub Consolation [7:34]
+02. Bluemachine - Oh! Music [6:05]
+03. Maayan Nidam - On My Street [1:47]
+04. Selfie - Sambuca (Wet and Glitchy Waves edit) [4:38](   Читать дальше...   )Жанр: Lounge, Chillout, HouseПродолжительность: 04:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D6DEA28DDAE1EDD5E62712281733ABD97B844E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926940   (531493) от 11.08.2015
+
+VA - 40 Top Chart Summer (2015) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'Mixmasters - Lean On (R.P. Mix)
+02. Lawrene - Want To Want Me (B Remix)
+03. Dj Space'C - Cheerleader (A.R. Mix)Жанр: DanceПродолжительность: 03:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC279FA52C95179B2B2A62F40E9B0011E8CEB4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155849   (531467) от 04.08.2017
+
+VA - Italo Disco Collection Vol.3 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tom Hooker - I Want You Tonight  5:45
+02.  Italove & TQ - Rhythm Of Love  3:47
+03.  Modern Boots - Deep In Love (Classic Radio Version)  4:12
+04.  Lady Fantasy - You And Me (Extended Mix)  7:40(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 07:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CAEB48A5BD293A349EB0139C776022E48814D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155825   (531458) от 04.08.2017
 
 K.B. Caps - Dancing In The Dark (1986) [MP3|320 Kbps] <Disco Euro-Disco>
@@ -583,178 +756,6 @@ VA - EuroDance Party Vol.4 (2017) [MP3|320 Kbps] <Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7908E5AC61F1032392CA0A78B83CA5AF748FCDAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240236   (529536) от 10.08.2018
-
-VA - Мега Хиты Discoteka 80 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Video Kids - Woodpeckers From Space (Extended Mix)
-02. Baltimora - Tarzan boy (12 version)
-03. Alphaville - Big in Japan (Extended Mix)
-04. Blue System - Magic Symphony (Long Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2CDCE96E835D4E188D4949548249706384B11B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156099   (529474) от 05.08.2017
-
-VA - My Favourite Hits of 1969 (9CD) от DON Music (2017) [MP3|320 Kbps] <Blues Rock, Pop, Easy Listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beatles - Here Comes The Sun (03:05)
-02. Paul Mauriat - Parce Que Tu Me Quittes Lontano Dagli Occhi (02:31)
-03. Deep Purple - Blind (05:23)
-04. Gershon Kingsley - Pop Corn (02:20)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues Rock, Pop Rock, Pop, Chanson, Easy ListeningПродолжительность: 10:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C6F3B39B5DCEB64C450C3170507222237F1A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155957   (529465) от 05.08.2017
-
-Fair Warning - Beautiful Rock Ballads (Compiled by Виктор31Rus) (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All On Your Own  5:10
-02.  Angel Of Dawn  3:56
-03.  Break Free  5:03
-04.  Falling  4:50(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9DBE2EF6EAE35BF86E8EA1FA3534B0B11A3B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052108   (529293) от 13.09.2016
-
-VA - Dancing Machines: Techno House Set (2016) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529293.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Entoniu & Agape - Matisse & Milu (Original Mix)
-002. Monocorde - Ihnua (Original Mix)
-003. Right Mood - Don't Worry
-004. Dancing Machines - Queen Of The Castle (Original Mix)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 11:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5CDDE7D7BBB8839FE3C9571762D200138ACD15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052143   (529277) от 13.09.2016
-
-VA - LUXEmusic - Dance Super Chart Vol.85 (2016) [MP3|192~320 Kbps] <House, Electro House, Mash Up, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crew 7 & Geeno Smith  -  Ghostbusters (Moombahton Mix)  4:13
-02. Quintino & Yves V feat. Gia Koka  -  Unbroken (DJ Richard Noise Remix)  5:36
-03. Artik & Asti  -  Я твоя (DJ Denis Rublev & DJ Prezzplay Remix)  4:46
-04. Юлианна Караулова feat. ST  -  Море (Astero Remix)  3:15(   Читать дальше...   )Жанр: House, Electro House, Mash Up, Club, DanceПродолжительность: 03:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF810C8F00C6950F27647FCED4C43AC13EB17B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051969   (529267) от 13.09.2016
-
-VA - Promo September Technology (2016) [MP3|256-320 Kbps] <UK Garage, Speed Garage, UK Funky, R&B, Post-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Presents Booom & Boris Dlugosch - Hold Your Head Up High (Julian Jonah's Bad Boy Mix) 07:01
-02. Disclosure - You & Me (Feat. Eliza Doolittle)Жанр: UK Garage, Speed Garage, UK Funky, R&B, Post-DiscoПродолжительность: 04:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE1D42247CD200959D19FE3E194712C78C099A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

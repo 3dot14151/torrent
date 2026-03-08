@@ -1,3 +1,61 @@
+###  Публикация: 1455813   (1025484) от 20.03.2021
+
+Umberto Tozzi – Seine Grossten Erfolge (1990) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ti Amo
+02. Eva
+03. Notte Rosa
+04. Tu(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFDD15A3D9A7928B4EC0FFD63E493CA42D432D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455921   (1025437) от 20.03.2021
+
+Мари Краймбрери - Нас узнает весь мир (Part 1) (2021) [FLAC|Lossless|WEB-DL|tracks] <Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты меня не забудешь (2:50)
+ 02. Иди танцуй (2:52)
+ 03. Океан (3:28)
+ 04. Холостяк (3:18)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E0F310BD470D3716377DD8DE28F3A39B4F586B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455924   (1025429) от 20.03.2021
 
 Madonna - Bedtime Story (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -685,64 +743,6 @@ Roupa Nova - Show de Rock'n Roll (1985) [MP3|320 Kbps] <Pop rock, Rock & Roll, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F10D0F1181024EE9205A5EAF3F18D91A1C927809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458840   (1023699) от 30.03.2021
-
-Peter Wilson - Electricity (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Can Start Tonight [00:03:49]
-02. Tell Me Who You Are [00:04:28]
-03. Fire Alarm [00:04:35]
-04. Nothing but Love [00:04:38](   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520B7E37336458E27F7DD1D5469723D185A99C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458906   (1023694) от 30.03.2021
-
-AlimkhanOV A. - Right Time (2021) [MP3|320 Kbps] <Italo, Euro Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Right Time
-02.Eyes Of Delight
-03.Lonely
-04.Hot Nights In The City(   Читать дальше...   )Жанр: Italo, Euro DiscoПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0499E14BEF4679D14EFB497F8866BFA672A51AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,176 @@
+###  Публикация: 1178944   (353457) от 29.10.2017
+
+VA - Reggae: The House Of Love (2017) [MP3|192-320 Kbps] <Reggae, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353457.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jimmy Cliff - Many Rivers To Cross
+002. Dennis Brown - Sitting and Watching
+003. Clinton Fearon - Waiting
+004. Dobby Dobson - Dobby Dobson - Loving Pauper(   Читать дальше...   )Жанр: Reggae, SoulПродолжительность: 05:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA2E03BC54644E8EC643B9A652F26F21F42BB34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178772   (353456) от 29.10.2017
+
+VA - По волне моей памяти: Том 24 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Владимир Кузьмин - Я не забуду тебя никогда (Сибирские морозы) 6:05
+02.  Лариса Долина - Льдинка 4:00
+03.  Олег Газманов - Под стук колёс 4:07
+04.  Маша Распутина - Играй, музыкант 3:24(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D0075EB32928D423FD6A28270953A0109FCC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178918   (353443) от 29.10.2017
+
+VA - По волне моей памяти: Том 27 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Игорь Тальков - Летний дождь 7:20
+02.  Олег Кацура - Большая Медведица 3:55
+03.  Юрий Лоза - Одиночество 3:33
+04.  Алла Пугачёва - А знаешь, все еще будет 3:18(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7904183E8E034537FEBF8AD0B642442A486A6518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952762   (353439) от 02.11.2015
+
+VA - Galactic Party (2015) [MP3|320 кб/с]<Space, SynthDisco, Spacesynth>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solar Burst - Space Fever 04:47
+02. Fabian Del Priore - Twilight Zone 04:24
+03. Hainam - Galactic CharismaЖанр: Space, SynthDisco, SpacesynthПродолжительность: 08:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778D85D4CDFF4CE82F2E55A9262BF7133D959EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417482   (353428) от 22.10.2020
+
+T.Rex - Greatest Hits (2020) [MP3|320 Kbps] <Glam-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get It On (04:24)
+ 02. Solid Baby (02:40)
+ 03. Tame My Tiger (02:31)
+ 04. Metal Guru (02:30)(   Читать дальше...   )Жанр: Glam-RockПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53BA959A6C9CF85E62DB498247CAB7581470A382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417511   (353420) от 22.10.2020
+
+VA - Lounge Tropic: Background Music (2020) [MP3|320 Kbps] <Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353420.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Woogees - Summer Rain
+002. Ingo Herrmann - When There Was You
+003. Antreas Lopez - Call
+004. Chillson - Don't Look Back In Anger(   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 09:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02533C7DF67FB5B39808B672E43D574DC6C3983C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 578781   (353391) от 21.11.2012
 
 VA - Sense Of Trance #44 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
@@ -578,180 +751,6 @@ VA - Chill A Tropical Delight (2018) [MP3|320 Kbps] <Chillout, Downtempo, Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25A77121FCF34A2DCCC38A2D53E061936C0546E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256719   (351894) от 23.10.2018
-
-VA - Rhythm And Blues: Maximum Live (2018) [MP3|320 Kbps] <RnB, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351894.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alice Smith - House Of The Rising Sun
-002. A.Chal - To The Light
-003. Aftertheparty - Numb
-004. Crys Nammour - On Reprend Là(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 10:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582C0536D5F448DFD231F282FF341008407C9A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256718   (351884) от 23.10.2018
-
-VA - Golden A Capella (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351884.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chrisjenkins - Chances
-002. Lil Marvaless - Pray For Me
-003. Selastoutseul - Sakura
-004. Whoisskitzo - Start Me Up(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FDFBBCBB5BD2FEF3BE73038280573AA305674B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256721   (351811) от 23.10.2018
-
-VA - Popular 90's & Coolhits! (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chesney Hawkes - The One And Only
-02. 4 Non Blondes - What's Up
-03. Fool's Garden - Lemon Tree
-04. Chumbawamba - Tubthumping(   Читать дальше...   )Жанр: PopПродолжительность: 04:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3031001B2CF4D711F3410DA27A4681FB66913B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952485   (351793) от 03.11.2015
-
-VA - Spaceman's Paradise (1996) [MP3|160 кб/с]<Electronic, Hard Trance, Euro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Einstein Doctor DJ - Back From Galaktica (05:58)
-02. Nostrum - Acid House (06:49)
-03. Wax Scientists - It's Time For House (05:36)
-04. DJ Khetama - Green Flow (05:54)(   Читать дальше...   )Жанр: Electronic, Hard Trance, Euro HouseПродолжительность: 01:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1C5EE523DD0665262B138429A3DEFFB60AB38A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953122   (351792) от 03.11.2015
-
-VA - Green Sky Reflection (2015) [MP3|320 кб/с]<Minimal House, Techno House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351792.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Diroma, Frystal Dj - Minimal Self 05:22
-002. Ian Page - So Deep, So Mean (FAWX Remix) 03:53
-003. Technasia & Green Velvet - Suga (Original Mix) 06:42
-004. Leechy Alexej - Minimal Balkan (Paul Haro Remix) 07:18(   Читать дальше...   )Жанр: Minimal House, Techno HouseПродолжительность: 10:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C06EEB78F860CCEF49E48A0C007622C5A8BE8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952971   (351791) от 03.11.2015
-
-VA - Lazy Sundays (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lessovsky - Far Away (6:18)
-02. Aamon - Hidden Emotions (5:28)
-03. In-Deed - Feeling Good (7:00)
-04. Jacek Janicki - The World Without You - Bara Brost Remix (7:08)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BAC5887D13A79F02185037E85C17CD66C13429F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1345296   (167209) от 14.12.2019
+
+Loboda - SOLD OUT (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167209.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Хиросима
+2. Новый Рим
+3. Синие волны
+4. В зоне риска(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5ACDCEA51CF86B37F26D606F4DA2A18B0F615C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345299   (167156) от 14.12.2019
+
+Loboda - SOLD OUT (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167156.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Хиросима
+2. Новый Рим
+3. Синие волны
+4. В зоне риска(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3762A21A0B914CE7DF0D9CF30464AE218AF97F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345429   (167024) от 14.12.2019
 
 Modern Talking - Maxi & Singles Collection (2019) 3CD, Dieter Bohlen Edition [FLAC|Lossless|tracks + .cue] <Eurodance, Euro-Disco>
@@ -684,64 +742,6 @@ VA - Apres Ski Party Hits 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EABB725081140C5237F0972BBEADF8BC3790B692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516901   (164288) от 13.12.2021
-
-Elton John - The Lockdown Sessions (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John & Dua Lipa - Cold Heart (PNAU Remix)
-02. Elton John, Young Thug & Nicki Minaj - Always Love You
-03. Surfaces feat. Elton John - Learn To Fly
-04. Elton John & Charlie Puth - After All(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft RockПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A699347B7458D0A76647CBCBCB3611932849FD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432530   (164216) от 17.12.2020
-
-The Philarmonics - Philadelphia Disco (1977) LP [MP3|320 Kbps] <Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Elise (Beethoven) (4:39)
-02. Lullaby (Brahms) (4:10)
-03. Prince Igor 1st Theme From Polovetsian Dance (Borodin) (4:21)
-04. Symphony No. 5 From The New World (Dvorak) (4:30)(   Читать дальше...   )Жанр: Disco, InstrumentalПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B45CF91F1A74F6358D9FCCA8110992048F0106
 ```
 
 https://mybot314.ru/tekegram_catalog/

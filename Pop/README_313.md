@@ -1,3 +1,61 @@
+###  Публикация: 1272484   (143015) от 28.12.2018
+
+VA - Happy Pop Hits (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Indie>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Wow
+02. All Saints - Lady Marmalade (Remix)
+03. Donna Lewis - I Love You Always Forever
+04. Hard-Fi - Hard To Beat (Radio Edit)(   Читать дальше...   )Жанр: Pop, RnB, Alternative, IndieПродолжительность: 01:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B034BEC12706C71BF9CDEFCE178E95C45866456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272545   (142999) от 28.12.2018
+
+Mirko Hirsch - Undercover - Free Christmas Edition (2018) Compilation, Remastered [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick De Moore - It's Love (Maxi Version) (6:19)
+02. Dario Silver - Lonely In The Name Of Love (5:06)
+03. Dario Silver - Electric Heartbeat (6:36)
+04. Dario Silver - Computer Girl (5:34)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EEDF1F2B79E022F2DFCABB121EE2127888A52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088113   (142873) от 29.12.2016
 
 Elissa - A'ayashalak (2002) [FLAC|Lossless|tracks + .cue] <Lebanese Pop, Levantine Pop>
@@ -689,64 +747,6 @@ Don Ray - The Garden Of Love (1978) LP (Sound from Cerrone) [MP3|320 Kbps] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7B6DB84A887736E8FB08A864901B49CB09E685C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195801   (140568) от 30.12.2017
-
-Жанна Добровольская - Одна (1996) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Одна (4:49)
-02 Мартовская кошка (2:34)
-03 Останусь ветром вольным (4:46)
-04 Гавайская ночь (5:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6904143BF28855EE9E32B1E82AE68A973557F4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087662   (140269) от 30.12.2016
-
-VA - I Love Retro Dance 90's (2010) [MP3|320 Kbps] <Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. President - Megamix [00:04:46]
-02. Ice Mc - It's A Rainy Day [00:04:14]
-03. Real McCoy - Love & Devotion (Summer Remix) [00:05:35]
-04. Masterboy - Is This The Love (Special Mix) [00:04:39](   Читать дальше...   )Жанр: EurodanceПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4750DC11965A6569494172FF8A6F5C1B41A903D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

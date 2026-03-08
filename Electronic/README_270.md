@@ -1,3 +1,61 @@
+###  Публикация: 1049814   (542390) от 06.09.2016
+
+VA - Miami Underground (2016) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Maurice Deek - You Makin Me (Daniel Shepherd Remix) [06:37]
+02 Anie - Betty Ford [06:29]
+03 Ponyfarm - Run Away (Extended) [05:05]
+04 Julez Cordoba - Heat [07:44](   Читать дальше...   )Жанр: HouseПродолжительность: 02:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219F61F2730A168BA6E2E9FF77275917AF468380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239092   (542264) от 03.08.2018
+
+Blank & Jones - Relax (Edition Eleven) (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easin In (Original Mix) (5:07)
+ 02. Feel Like Makin Love (Original Mix) (3:33)
+ 03. South Sea Vagabounds (Original Mix) (5:39)
+ 04. Still The Same (Original Mix) (4:27)(   Читать дальше...   )Жанр: Electronic, Downtempo, ChilloutПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3466B726081D1FFAC6A12BDB4709709473D06DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049825   (542237) от 06.09.2016
 
 VA - Luxury Deep House 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
@@ -686,64 +744,6 @@ S'apex (Daniel Myer) - Audiodesign (1998/2015) Remastered [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B8C6489E87D41C233A194CB75746DED696B38A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239479   (538850) от 05.08.2018
-
-Morcheeba - Blaze Away (2018) [MP3|320 Kbps] <Trip Hop, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Undo (03:45)
-02. Blaze Away (feat. Roots Manuva) (04:04)
-03. Love Dub (03:49)
-04. It's Summertime (03:39)(   Читать дальше...   )Жанр: Trip Hop, DowntempoПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B47BB14A92EB45A1F775CB39CA2653674D314999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239471   (538595) от 05.08.2018
-
-Jan Hammer - Seasons, Pt. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Synth-Pop, Instrumental>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miami: Night
-02. 68 Reasons
-03. Ocean Drive
-04. Suite European(   Читать дальше...   )Жанр: Synth-Pop, InstrumentalПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F952A1EBC6F1846E5EE4ACD87C19C87F94D61F
 ```
 
 https://mybot314.ru/tekegram_catalog/

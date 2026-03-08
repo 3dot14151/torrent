@@ -1,3 +1,178 @@
+###  Публикация: 740443   (139753) от 31.12.2013
+
+VA - The Official UK Top 40 Singles Chart (29-12-2013) [MP3|MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую последний в этом году UK Singles Chart — официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. Составляется с 1952 года как аналог американского Billboard Hot 100. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Pharrell Williams - Happy (3:53)
+02. Sam Bailey - Skyscraper (3:41)
+03. Avicii - Hey Brother (4:14)
+04. Jason Derulo - Trumpets (3:37)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, Other |Продолжительность: 02:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B52319EEC8151F05C11D238656A5262CEDB4B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348994   (139703) от 30.12.2019
+
+VA - Popular Winter Dance Pack (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139703.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Banks - Till Now
+002. Бцїў‚ь - Wonderland
+003. Igit - Caroline
+004. Linda Sundblad - Velkommen Hem(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7557FE647F3EA9355E11647E337F8F157C6D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679228   (139698) от 24.11.2023
+
+VA - Music News vol.318 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139698.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Emmett Zetto feat. Talentless - Sexy (01:47)
+ 002. 7 Skies - Tokyo777 (03:01)
+ 003. Adil - Сердце Мое (02:48)
+ 004. ADRIAN HIS - London (02:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBBF3C67EB2B1182C6D944D2648B7AC29088F431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435987   (139668) от 30.12.2020
+
+VA - DNA Techno Mix (2020) [MP3|320 Kbps] <Techno, Tech House, Electro, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139668.jpg" />
+</div>
+
+
+###  Подробнее
+
+За лаконичностью мелодий и однообразием музыкального ряда усматривается потаённый посыл к теме техно апокалипсиса. Вне всякого сомнения, поклонники техно и минимала с футуристическим оттенком, которые любят не только «чтобы рубило», будут не разочарованы данной подборкой.001. Dj Octopus - Quieora
+002. Scarper - Rhodopsin
+003. Mark Knight - Tonight
+004. Flaws - Gaiter(   Читать дальше...   )Жанр: Techno, Tech House, Electro, EDMПродолжительность: 12:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662567C61CA5D23993C285DD8CDA25FB6CFBA7F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088418   (139605) от 30.12.2016
+
+VA - Дискотека 2017 Dance Club Vol. 159 от NNNB (2016) [MP3|320 Kbps] <Club, Deep House, Dance и другие>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryos, Wasback, & Teseo feat. Karra - I'll Be Gone
+02. Паола - Новый год
+03. Helena Legend - RU Feeling It (Radio Edit) (feat. LYRE)
+04. DJ Sava feat. Irina Rimes - I Loved You (Monoir Radio Edit)(   Читать дальше...   )Жанр: Club, Deep House, Dance и другиеПродолжительность: 12:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEF5CE88BC72AE6CE192B4AAA507935F3A5588A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273046   (139571) от 30.12.2018
+
+VA - Best Config Top 2018 (2018) [MP3|320 Kbps] <Melodic, Caribbean, Tropical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139571.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rosy Dem - All I Wanna Do ((Radio Edit))
+002. Drop G feat. Burak Cilt - Everytime
+003. Nick Skitz & Basslouder - In My Mind (Wings & Rider Remix Edit)
+004. Bernasconi and Belmond feat. Sunny D and De Reche - La Vida Loca (Rico and Rico Edit)(   Читать дальше...   )Жанр: Melodic, Caribbean, TropicalПродолжительность: 07:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA2093D199FF38FC9581781DBA02EDED62FF50B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435988   (139538) от 30.12.2020
 
 VA - Beatport Psy Trance: Electro Sound Pack #215 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
@@ -571,180 +746,6 @@ VA - The Official UK Top 40 Singles Chart 29.12.2017 [MP3|192-320 Kbps] <Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94F8AD78BCCA3863040F388236F896C0A7F013EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520939   (138886) от 30.12.2021
-
-Tony Joe White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Life
-02. Saturday Night in Oak Grove Louisiana
-03. We'll Live on Love
-04. High Horse(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 05:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A2F6059CB64A208E48E3E7E3ACE0FC87FDC11CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520935   (138869) от 30.12.2021
-
-Snowy White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riding the Blues
-02. Red Wine Blues
-03. Highway to the Sun
-04. Land of Plenty(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 07:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC55970637894BEE8AC9208D4368D0C8180F3CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195799   (138855) от 31.12.2017
-
-VA - super rock KYOi от NNNB (2017) [MP3|320 Kbps] <Rock, Disco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Toto  -  Africa  4:55
-02.  Van Halen  -  Jump  4:00
-03.  Van Stephenson  -  Modern Day Delilah  4:13
-04.  Ambrosia  -  How Much I Feel  4:44(   Читать дальше...   )Жанр: Rock, Disco, PopПродолжительность: 04:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29DB59C0CB504D4B765C0D4B6CE1E2F21513F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520964   (138818) от 30.12.2021
-
-Paul Mauriat - Compilation (2021) [MP3|320 Kbps] <Instrumental, Paul Mauriat>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Control
-02. Fiesta Finale
-03. Le Sud
-04. Sayonara(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 14:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF35D4281A371D295729E1AB4365AD74A6FDBA22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970767   (138808) от 31.12.2015
-
-VA - Rock Collection 1988 (2015) [MP3|320 кб/с] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-01. Death Angel - 3rd Floor
-02. Lita Ford - Back to the Cave
-03. Anthrax - Be All, End All(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 24:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9271A04310E45F697C71498566A5A23CCFF1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435981   (138789) от 30.12.2020
-
-VA - The Urban Rock Music (2020) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на сеанс настоящей рок музыки! Представляем Вам разностилевой рок сборник под названием "Urban Rock Music". Исполнители представляемого лонгплея в своих песнях сочетают откровенную агрессию с довольно яркой и ранимой мелодикой. В результате получаются весьма драйвовые, забойные боевички, но не лишённые философской изюминки.001. Islander - Freedom
-002. Guns N' Roses - Sweet Child O' Mine
-003. Cathedral Bells - A Passing Phase
-004. Mrs. Green Apple - Stardom(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98903D428B49E17776D66E8457E3D9A67E0C62F
 ```
 
 https://mybot314.ru/tekegram_catalog/

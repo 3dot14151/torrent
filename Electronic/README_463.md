@@ -1,3 +1,61 @@
+###  Публикация: 1693741   (121502) от 22.01.2024
+
+VA - This Is Bass 2023 (2023) [MP3|320 Kbps] <Breaks, Breakbeat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jim Funk - Cruel Summer ft. Mcfly Slim (Extended Mix) [04:26]
+02. Wicked Wes - Dirty Sound [03:56]
+03. SluG (FL) - Good For You [04:59]
+04. Jim Funk - Frequency (Rolling Mix) [04:33](   Читать дальше...   )Жанр: Breaks, BreakbeatПродолжительность: 01:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068CAF88A9CCB62B92558CD58E132268B4937847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693830   (121474) от 22.01.2024
+
+VA - Lounge O'Clock, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - One Love (5:24)
+02. Moshang - Recurring Dream (3:59)
+03. Karen Gibson Roc - We Can Shine Together (4:39)
+04. J.a.z.z.matic - Alone Now (4:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8444BFC65903FDB3AD71A392D53D4CA58B57C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693833   (121466) от 22.01.2024
 
 VA - Lounge O'Clock, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -684,64 +742,6 @@ VA - Nu Deep House, Vol. 8 (2024) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0E47E454772701B5A1DD9A32C9CDFDCD595BD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695234   (120471) от 28.01.2024
-
-VA - Friends V (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Afro House, Indie Dance, Melodic House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120471.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Emanuel Satie & Maga – Love Accelerator (06:17)
-2. Luca Saporito – Sonder (06:44)
-3. Angelos – Ages (05:56)
-4. Alican – Ride (05:46)(   Читать дальше...   )Жанр: House, Afro House, Indie Dance, Melodic House & TechnoПродолжительность: 01:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F425B8FAF98D1381A6660DF9985D6495A6E6715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695091   (120463) от 28.01.2024
-
-Cosmonaut & Satellites (Космонавт и спутники) - макси-синглы (2009-2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Progressive House, Breaks>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Know [00:07:43]
-02. I Don't Know (Radio Edit) [00:03:51]
-03. I Don't Know (Ksen Remix) [00:06:52]
-04. I Don't Know (MDK Remix) [00:05:11](   Читать дальше...   )Жанр: Progressive Trance, Progressive House, BreaksПродолжительность: 2 CD, 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABDD7A084A4BC9976DB30D34104394566947394
 ```
 
 https://mybot314.ru/tekegram_catalog/

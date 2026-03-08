@@ -1,32 +1,3 @@
-###  Публикация: 1286774   (707158) от 05.03.2019
-
-Simple Plan - No Pads, No Helmets...Just Balls (2002) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707158.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	I'd Do Anything 	3:17
-2 	The Worst Day Ever 	3:27
-3 	You Don't Mean Anything 	2:28
-4 	I'm Just A Kid 	3:18(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A67CB1EB5BFFF74C684C98E6582FA35F396AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131646   (707137) от 06.05.2017
 
 Ragnarok - Psychopathology 1994-2016: Collection Of The History (2016) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -744,6 +715,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B6AF6EF826EF7B58067470F926B3964A8338425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220164   (706091) от 18.04.2018
+
+Tax The Heat - Change Your Position (2018) [FLAC|Lossless|tracks] <Classic Rock, Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money In The Bank
+02. Change Your Position
+03. Playing With Fire
+04. All That Medicine(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A464446791AF31734B6F65DB8ED2185959BD70
 ```
 
 https://mybot314.ru/tekegram_catalog/

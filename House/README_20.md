@@ -1,3 +1,32 @@
+###  Публикация: 1203967   (785392) от 04.02.2018
+
+VA - Winter Sessions 2018 (Mixed by Milk & Sugar) (2018) [MP3|320 Kbps] <House, Afro House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mr Raoul K & Sona Diabate  -  Senekela (Raoul K & Laolu Version)  7:24
+02.  Keyano  -  Dan Dale (Original Mix)  7:09
+03.  Crazy White Boy feat. BehrEllips  -  The Forgotten People (Original Mix)  5:30
+04.  Dayne S  -  Sensor (Original Mix)  6:42(   Читать дальше...   )Жанр: House, Afro House, Deep HouseПродолжительность: 05:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4BE8CCCBD42A01D2E9FBC5F5F4FF72E941F902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277734   (785028) от 21.01.2019
 
 VA - Winter Music Top 1 (2019) [MP3|320 Kbps] <House, FutureHouse, Dubstep, Other>
@@ -716,35 +745,6 @@ VA - A New Year Of Vocal House Vol.2 (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8735BD6445F018E10262A1079B42F78C83ED16F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205470   (783434) от 10.02.2018
-
-VA - EDM (2018) [MP3|320 Kbps] <Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  John Dahlback  -  Everywhere (Elvis Benait Remix)  7:35
-02.  Joachim Garraud  -  X (Original Mix)  7:20
-03.  Tim Berg  -  Alcoholic (Niklas Gustavsson Ludvig Holm & Jonas Sellberg Remix)  7:36
-04.  Per QX & Don Tomaso  -  Introducing The Base (Original Mix)  6:48(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 02:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30E25423771628F59401A8E89806AC11958F6DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

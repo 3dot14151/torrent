@@ -1,3 +1,32 @@
+###  Публикация: 1153969   (542654) от 29.07.2017
+
+Brian Tyler - Мумия / The Mummy (2017) Dеluхе Еditiоn [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mummy (4:30)
+02. The Secret of the Mummy (4:42)
+03. Nick's Theme (2:04)
+04. Prodigium (2:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C248E98BBA3A3FC46CE0A66196AB16F0A80ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154063   (542653) от 29.07.2017
 
 Артель Роса - Ляпота (2017) EP [MP3|320 Kbps] <Russian Urban Folk>
@@ -752,39 +781,6 @@ Nazca - Indians, Songs, Nature, Dreams (2002) [MP3|192 кб/с]<Native American,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AD5667E18CE2FF25A72BA47B829AFAB1ACCF8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532252   (538244) от 07.08.2012
-
-Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/с (V2)]<Folk,Барабаны,Шоу,Япония>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beginnings
-2. Poeme Du bambou
-3. Hachijo
-4. Yamagoe
-5. Eisa
-6. Yuzuru
-7. Odaiko
-8. Yatai BayashiЖанр: Folk,Барабаны,Шоу,ЯпонияПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

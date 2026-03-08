@@ -1,3 +1,61 @@
+###  Публикация: 1483221   (1007008) от 12.07.2021
+
+Jim Brickman - Jim Brickman’s Piano Bar: 30 Love Songs Of The 50s and 60s (2021) [FLAC|Lossless|WEB-DL|tracks] <Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Tender (2:41)
+02. Secret Love (3:05)
+03. Moon River (3:13)
+04. All I Have To Do Is Dream (2:59)(   Читать дальше...   )Жанр: LoungeПродолжительность: 01:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57299D978E0A6380EDC584CA03902243B5E165D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281445   (1006971) от 12.07.2021
+
+Lucrecia Dalt - Discography 19 Releases (2011-2021) Human Ear Music, Pruna Recordings [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Minimal, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nu (02:18)
+ 02. Cao (01:49)
+ 03. Gt (03:10)
+ 04. Four Voices (01:47)(   Читать дальше...   )Тип издания: CD, WebЖанр: Experimental, Minimal, Ambient •Продолжительность: 08:58:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C131861BF60020F6A08A46B1446A3A3B43EED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483400   (1006914) от 13.07.2021
 
 Bloko Ono - Kev’s Dead (2021) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Glitch>
@@ -679,64 +737,6 @@ Inhmost - Discography 7 Releases (2015-2021) La Luna, Huinali, re:st [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0F0BE297C963AB1DF87AFB1DCAA0B6A828E2890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484368   (1006159) от 19.07.2021
-
-Tomoroh Hidari - The Reinterpretation of Dreams (小さな夢達 remixed) (2021) Mahorka [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Ambient, Breakcore>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Owl-Stretching Time (Captive Portal Remix) (05:05)
-02. 空 (Konejo's Dream Big Remix) (03:17)
-03. Owl-Stretching Time (Machinefabriek Remix) (03:55)
-04. Sketches Of Pain (Brainquake Remix) (07:14)(   Читать дальше...   )Жанр: Experimental, IDM, Ambient, BreakcoreПродолжительность: 01:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84455C322D1B8D9F029D71DF5BEBC98FD7D9778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484362   (1006109) от 19.07.2021
-
-Profondita - Eternal (2021) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Profondita - Psychedelic Jungle (08:05)
- 02. Egorythmia - Eternal (Profondita Remix) (10:12)
- 03. Astral Waves - La Danse Des Elfes (Profondita Remix) (08:20)
- 04. Profondita - Zen (10:57)(   Читать дальше...   )Жанр: Progressive Trance, Psy-TranceПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41C2DB039536751F663B181FC20AEEA2F35806B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 313423   (820731) от 27.03.2011
-
-Slade - Discography+ (1969-2003)[MP3|320 kbps]<Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: GlamПродолжительность: 01:07:51:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196766   (820531) от 04.01.2018
 
 Хитобои (Волга-Волга) - Синий кент (2017) [MP3|320 Kbps] <Rock, Ska>
@@ -739,6 +713,35 @@ The Cranberries - Remembering Dolores (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03C6831823BCFE52D716B40072F36413B9EED805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200475   (819273) от 11.05.2020
+
+Domain - The Sixth Dimension (2003) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Gone Grazy (05:11)
+02. Your Favourite Curse (05:21)
+03. Kings Tears (05:12)
+04. One Perfect Moment (05:33)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CE0EC2B1E70F19F255934D27319BCB6E55D97E
 ```
 
 https://mybot314.ru/tekegram_catalog/

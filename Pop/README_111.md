@@ -1,3 +1,61 @@
+###  Публикация: 1128984   (726447) от 26.04.2017
+
+VA - New Italian Disco (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandy Marton - People From Ibiza (4:17)
+02. Rofo - You've Got To Move It On (4:11)
+03. Savage - Don't Cry Tonight (3:58)
+04. Carmelo La Bionda - I Love You (3:17)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19F69F5267C0D80A5BA5CD9264F4D91DDE2B419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128923   (726367) от 26.04.2017
+
+Филипп Киркоров - For You ... (2007) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я эту жизнь тебе отдам 03:31
+02. Полетели 03:56
+03. Холодно в городе (дуэт с Аллой Пугачёвой) 03:40
+04. История 03:37(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F13FA8D486461B07141F364B07AE3F302DD9E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 667716   (726343) от 14.06.2013
 
 The Crosslines - Singles Collection (2013) [MP3|320 кб/с]<ItaloDisco, EuroDisco>
@@ -690,62 +748,6 @@ Fun Fun - 2 Albums (1984, 1987) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3795E5F28A7FAD6C7E19047AC121A90B1192515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128990   (724228) от 27.04.2017
-
-Nu Virgos (ВИА Гра) - Stop! Stop! Stop! (single) (2003) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop! Stop! Stop! (Original Version) (3:48)
-02. Stop! Stop! Stop! (Upbeat Version) (3:48)Жанр: PopПродолжительность: 00:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AEDB788CAED5B7CA433285B263B660EB3332AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104482   (723978) от 14.02.2022
-
-Cerrone - 32 Albums (1976-2021) Collection [MP3|320 Kbps] <Electronic, Funk-Soul, House, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jean-Marc Cerrone, больше известный как Cerrone, родился в 1952 году в Париже. Вместе с Giorgio Moroder, внес наибольший вклад в развитие европейского диско, практически, они стали родоначальниками ранней house-музыки.Список альбомов:
-1976 - Love In C Minor
-1977 - Cerrone's Paradise
-1977 - Supernature(   Читать дальше...   )Жанр: Electronic, Funk-Soul, House, DiscoПродолжительность: 01:00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE4702E3ED67BBE0E8623D42FC998651DD599EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

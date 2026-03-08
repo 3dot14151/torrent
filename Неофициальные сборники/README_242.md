@@ -1,3 +1,177 @@
+###  Публикация: 1219052   (717309) от 12.04.2018
+
+VA - Душевный сборник радио Шансон (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717309.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Щавинский - Летит Душа
+002. Владимир Курский - Живу Тобой
+003. Евгений Беляев - Моя Душа
+004. Слава Благов - Зимой Весной И Летом(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A75D816E9A01B17749857A197056319D8790CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218978   (717027) от 12.04.2018
+
+VA - 100 Хитов Любимой Музыки (2018) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717027.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Светлана Лобода - Лети
+002. Егор Крид - Миллион алых роз
+003. Елена Темникова - Не сдерживай меня
+004. Сергей Лазарев - You put out the fire(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 06:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD4ED02DAD286D2CBCDDA9C98B88D99F3BDBD55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400555   (716987) от 06.08.2020
+
+VA - 80 Tracks Alternative 80s Playlist Spotify (2020) [MP3|320 Kbps] <Alternative, Power Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cure - A Forest - 2006 Remaster 5:54
+02. Billy Bragg - A New England 1:48
+03. The Sugarcubes - Birthday 3:58
+04. Violent Femmes - Blister In The Sun 2:26(   Читать дальше...   )Жанр: Alternative, Power Pop, OtherПродолжительность: 05:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34899C57BFB5B3FBB480C7AF12F1869F5DFD192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130218   (716889) от 01.05.2017
+
+VA - Beatport Trance  Pack (01.05.) (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alan Morris & Elles De Graaf - Calm The Night (JP Bates Remix)  6:26
+02.  CubeTonic - Forces (Original Mix)  3:26
+03.  Maria Healy - Option 66 (Original Mix)  7:10
+04.  Driftmoon & Laurie Ann Haus - Felix (Ferry Tayle Extended Remix)  9:22(   Читать дальше...   )Жанр: TranceПродолжительность: 04:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD25223EE49317CFDB81429C627C958483A3455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286037   (716807) от 28.02.2019
+
+VA - не Громкие новинки недели 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hayden James - Better Together
+02. Alon - Миллионы Вариантов
+03. Bright Sparks, Denis First, Reznikov - Shameless
+04. Broken Back - Breathe Slow(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7012A4A68290AE24E1F611E0A8C5B601C342E065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130078   (716804) от 01.05.2017
+
+VA - Драйвовый весенний молодежный музон. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716804.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zivert - Чак 3:02
+002. Стерео21 - Будешь Моя 3:57
+003. Елена Есенина - Больше Не Враги 3:57
+004. Полиграф Шарикoff (Серега) - Гелик Вани 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89342AAB04C37151539D553505742CD0FA01A4D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130065   (716802) от 01.05.2017
 
 VA - Endless Melodies Lights (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Emotional, Blissful, Harmonic>
@@ -571,180 +745,6 @@ VA - Music News vol.166 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE9B3023F9FF0889C539C5EC1B6C42E1CE11CB2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130103   (716421) от 01.05.2017
-
-VA - Песни для души от радио Шансон Выпуск № 4 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716421.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Владимир Курский - Живу Тобой 4:32
-002. Виктор Тартанов - Юность 3:45
-003. Николай Искуснов - Засыпай 4:27
-004. Сборная Союза - А Потому Что Любовь 3:32(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E4B88F12CB227430A1A1416B98BCF86A765BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130052   (716406) от 01.05.2017
-
-VA - The Official UK Top 40 Singles Chart 28.04.2017 (2017) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716406.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jason Derulo - Swalla 3:36
-002. Ed Sheeran - Shape Of You 3:54
-003. Ed Sheeran - Galway Girl 2:51
-004. Harry Styles - Sign of the Times 5:41(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 02:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0B9858749BB64CDBB952DD2FD6AE7F55D93906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532169   (716396) от 18.02.2022
-
-VA - Beatport Chill Electronic: Sound Pack #405 (2022) [MP3|320 Kbps] <Electronic, Chillout, Synth Relaxation>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Целительные силы музыки способны пробудить в человеке его скрытый потенциал, который не используется по одной простой причине – для нормальной, привычной жизни этот скрытый потенциал не особенно то и нужен, но становится необходим в том случае, когда обычная жизнь заводит в тупик и обычных усилий преодолеть "подарки судьбы" уже не хватает.001. Maarja Nuut Ja Ruum - Cloths Of Heaven
-002. Cashminus - Paradise
-003. Edvard Hunger - Seems All Is Great
-004. Neutron 9000 - She Trails Flowers(   Читать дальше...   )Жанр: Electronic, Chillout, Synth RelaxationПродолжительность: 08:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8444AE0D86EA29756B98C6DEED399DE8A767A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130317   (716340) от 01.05.2017
-
-VA - Пацаны - Ваще Ребята! Vol.33 (2017) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  5sta Family - Везувий (Buzzy Radio Edit)  4:15
-02.  Gaz feat. DJ Geny Tur & Techno Projec - Загадка (Radio Edit)  4:02
-03.  Anthony El Mejor - Такси Такси (Radio Cover Edit)  3:35
-04.  Настасья - Самолётами (Slider & Magnit Remix)  3:28(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F4E4F2AE27A940A5F581F8DDA08B8CE234E8454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024516   (716141) от 09.06.2016
-
-VA - Surfer's Disco Waves (2016) [MP3|320 кб/с] <House, Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereo Palma - Cada Vez (Remember & Feedback Radio Remix) (3:27)
-02. Re-Tide - Tell Me Babe (7:01)
-03. Ramiro Mirgardo - Super Tubos (5:12)
-04. Spirale - Zum Beispiel (3:28)(   Читать дальше...   )Жанр: House, Funky, Club HouseПродолжительность: 02:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB0C62B56359EF0AE37762708D1513CAD3993DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024578   (716140) от 09.06.2016
-
-VA - Sky Air Trance: Progressive Session (2016) [MP3|320 кб/с] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716140.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Simon Patterson & Magnus - Evoke
-002. Ads Peri - I Miss You (Original Mix)
-003. Alpha Bit - Birthday (Original Mix)
-004. Mike Posner - I Took A Pill In Ibiza (Seeb Remix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 08:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D1069B2599405928E38412A35016D8DA442DB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857773   (1059805) от 07.03.2026
+
+VA - Ibiza Spring 2026 (Deep-House Smoothies from the Heart) (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francesco Diaz, Denis the Menace & Karl Frierson - In the Sunshine (Francesco Diaz Mix) 07:50
+02. Steen Thottrup & Nice Therapy - While We Are Dreaming (Nice Therapy Dreamcatcher Remix) 07:37
+03. Calmabohain - Take Me Away 03:26
+04. Hi.5 - Done With You (Extended Mix) 04:11(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 02:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6805F53FF6CF8D891013B20AB2A0501F2C8E0FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855513   (1058310) от 23.02.2026
 
 VA - Dance Report, Vol. 4 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -717,32 +746,6 @@ VA - Armada Music Year Mix 2025 (2025) Extended Versions [MP3|320 Kbps] <Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71420EEDCE3830CE63D05BDAA96296A8D49043CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842716   (1048930) от 17.12.2025
-
-VA - Anjunadeep The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romain Garcia - Next To YouЖанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85FDE76FA83C1C8A43A30891D4FDC7FC1F17C73
 ```
 
 https://mybot314.ru/tekegram_catalog/

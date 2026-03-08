@@ -1,3 +1,32 @@
+###  Публикация: 1036930   (617280) от 22.07.2016
+
+VA - Kamasutra Erotic Chillout Vol.3: Sounds of Love (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Howard - Deep Illusion
+02. Naveen Jabali - Bombay Beach
+03. Street Line - Chill Sensation
+04. Wim Johns - Shimmering Cascade(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D45633EFD74E04D6AA021D239567944E719940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295810   (616991) от 14.04.2019
 
 VA - Record Super Chart 582 (2019) [MP3|320 Kbps] <House, Club, Dance>
@@ -731,35 +760,6 @@ VA - 50 Perfect Summer Party Hits (2016) [MP3|263~320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61CD193A86238BDA1A84F518FC837ABFCF7F0F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038034   (610312) от 26.07.2016
-
-VA - Uplifting Trance Collection - Episode Second (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ron Malakai -  Invincible - Activa Rework 6:46
-02. Mr.Waves -  Ozon Waves 3:47
-03. Mr.DA-NOS feat Akay -  Unique (Official Street Parade 2016 Theme) (Mind-X Short Mix) 4:52
-04. Aurora -  Stars (Feat. Ketlin) (Etania Remix) 5:48(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 11:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66B2D2F6B1971CCA6BCB9CC17092D2F7A9983C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

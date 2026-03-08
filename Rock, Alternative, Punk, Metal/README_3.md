@@ -1,3 +1,32 @@
+###  Публикация: 1854420   (1057291) от 18.02.2026
+
+INXS - Kick (1987) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guns in the Sky [0:02:20.73]
+02. New Sensation [0:03:40.25]
+03. Devil Inside [0:05:15.42]
+04. Need You Tonight [0:03:05.48](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6DB9B9690868B0B5698BEBE4683F551C0913B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854058   (1057289) от 18.02.2026
 
 Otto Dix - Хюбрис (2026) [FLAC|Lossless|WEB-DL|tracks] <Darkwave>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45356E5B2CE5970EE8C8DEA65FA42CD0F874C72D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853698   (1056612) от 14.02.2026
-
-Austen Starr - I Am The Enemy (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remain Unseen
-02. Medusa
-03. I Am The Enemy
-04. Read Your Mind(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274E7E39598945722F2ABABD18B02116EE1B225E
 ```
 
 https://mybot314.ru/tekegram_catalog/

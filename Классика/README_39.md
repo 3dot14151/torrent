@@ -1,3 +1,32 @@
+###  Публикация: 957540   (326592) от 18.11.2015
+
+Chopin - Horowitz Plays Chopin (Vladimir Horowitz) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Dance, Fantasy, Waltz, Etude, Polonaise, Ballade, Barcarolle>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata No. 2 in B flat minor, Op. 35, CT. 202
+01. Grave - Doppio movimento (05:27)
+02. Scherzo (06:51)
+03. Marche funbre. Lento (07:47)(   Читать дальше...   )Жанр: Classical, Romantic Period, Dance, Fantasy, Waltz, Etude, Polonaise, Ballade, BarcarolleПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18D2989DE7F3B22D92818571CE29915A33705067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958354   (323934) от 21.11.2015
 
 Brahms - Symphonies nos.3 & 4 (Carl Schuricht & Orchestra) (2004) [FLAC|image +.cue]<Classical, Romantic Period, Symphony>
@@ -711,35 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B5F63BC1A495597462F4A1B898E6280E6455C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332778   (311690) от 21.10.2019
-
-Piano Novel - Fendre l'ecorce (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Miscellaneous, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fendre l'écorce (3:23)
- 02. Sous l'ondée (1:37)
- 03. Rêv'ment (3:16)
- 04. Les ricochets (3:33)(   Читать дальше...   )Жанр: Modern Classical, Miscellaneous, PianoПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C872E5EC3A85C6829849F87FBDD1DA9B7B507D81
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1367742   (913893) от 17.03.2020
+
+Художественная гимнастика. Чемпионат Мира 2019. Баку (Азербайджан). Группы. Многоборье. Финал (2019) IPTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913893.jpg" />
+</div>
+
+
+###  Подробнее
+
+37-й Чемпионат Мира по художественной гимнастике прошёл в Баку (Азербайджан) с 16 по 22 сентября 2019 года.
+21 сентября 2019 года:
+1. Группы. Многоборье. Финал
+2. Церемония награждения: Группы. Многоборье(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518A59464E23134EF193E18762822741134F1B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367745   (913886) от 17.03.2020
 
 Художественная гимнастика. Чемпионат Мира 2019. Баку (Азербайджан). Группы. Финалы в отдельных видах упражнений (2019) IPTVRip, WEB-DLRip [H.264/1080p-LQ]
@@ -675,35 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE185B271E69FDD3BA8382AEF7DB06C3F51FA67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989767   (913763) от 24.02.2016
-
-DJ Nike Twist - TranceWave 135 @ GTI Radio (19.02.2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913763.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Arrakeen & Jaki Song - The Gift of Life (Neo Kekkonen Instrumental Mix) (Ascendance Audio)
-2. Amo R - Denali (Symon and Jay Remix) (Entrancing Music)
-3. Mhammed El Alami - Old Root (Original Mix) (Suanda True)
-4. Dima Krasnik - Rise 2015 (Dan Stone Remix) (Unique Sense)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3C9A0E2F24EAB7E5F6C6A5133C160CF0C280C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

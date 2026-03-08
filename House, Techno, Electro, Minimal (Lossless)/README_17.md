@@ -1,3 +1,89 @@
+###  Публикация: 1008610   (813674) от 19.04.2016
+
+VA - Maretimo Sessions Edition Jazz House - Smooth Grooves Deluxe (2016) [FLAC|Lossless|WEB-DL|tracks] <Soulful House, Beach House, Left-Field>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skindive Inc. - Wishing Love (Feat. Ino) (Groove Mix) 07:03
+02. Chillhouse Department - Adriatic Islands (Surfers Cut) 05:20
+03. Jazz City - The Next Day (To The Sea Mix) 04:52
+04. Phil Kinley - Groove Is In The Air (Welcome 2 Da Beach Mix) 06:46(   Читать дальше...   )Жанр: Soulful House, Beach House, Left-FieldПродолжительность: 03:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6231B7A7CA14779116D65E12FB77B78342DC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198067   (812135) от 09.01.2018
+
+Drumcell - Collection 7 Releases (2012-2016) CLR, Droid Recordings [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empathy Box (Hypoxia Mix) (06:24)
+ 02. Conflict Divide (05:39)
+ 03. Terminus Effect (06:29)Тип издания: CD, WEBЖанр: TechnoПродолжительность: 00:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CEE8F97B4B7EC30002BC1338B5E60A71A1D89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197496   (812134) от 09.01.2018
+
+VA - Spring Tube Vocal Themes, Vol.12 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zatonsky, Aves Volare & Alula - Saw The Way (Original Mix) (06:25)
+02. Mysteria (UK) & Nick Sinckler - Turn (Nebogitel remix) (06:15)
+03. Phrakture & Maria Carmela - Curve Sound (Da Funk's Recovery dub) (04:51)
+04. Mistol Team & Eli Nadra - Fate (Original Mix) (05:55)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2326A8F5C42939F418276EB2C0529C37956D042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008894   (811788) от 20.04.2016
 
 Oliver Schories - Fields Without Fences (2015) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House,>
@@ -652,93 +738,6 @@ Kritical Audio - Krupp EP (2006) Chillosophy Music [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:274FD0335A5CF9986690552CBA074D3A910608D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273986   (798774) от 04.01.2019
-
-Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, Electro, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bugsmasher (04:50)
- 02. Katacomb (05:43)
- 03. Oceans 1300 (05:59)
- 04. Taipei (05:22)Жанр: Breakbeat, IDM, Electro, AcidПродолжительность: 00:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1F4FB8CE808F4B3C601E0283ECDD460023E187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385162   (797873) от 24.05.2020
-
-Jody Wisternoff - Nightwhisper (2020) Extended Edition [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning U (3:24)
- 02. Nightwhisper (3:37)
- 03. Here To Stay (4:04)
- 04. Emochine (3:50)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998B041732AE20C4159989D56E431F8AC44FB7CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385469   (797811) от 24.05.2020
-
-Lisa Shaw - Cherry (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Broken Beat, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherry.flac
-02. Don't Know What To Do.flac
-03. When I.flac
-04. Grown Apart.flac(   Читать дальше...   )Жанр: Deep House, Broken Beat, DowntempoПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0362843C2D2B21DC138960F4FD96943D77AE20
 ```
 
 https://mybot314.ru/tekegram_catalog/

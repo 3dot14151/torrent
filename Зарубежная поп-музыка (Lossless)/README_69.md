@@ -1,3 +1,32 @@
+###  Публикация: 1340379   (264012) от 23.11.2019
+
+Francesca Michielin - 2640 (2018) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comunicare (4:21)
+ 02. Bolivia (3:36)
+ 03. Noleggiami ancora un film (3:44)
+ 04. Io non abito al mare (3:13)(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4E5D91C4DBBEFFCFD377B5C7494927CDD96088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340446   (264010) от 23.11.2019
 
 Micro együttes - Olasz slágerek – magyarul No.1 (2005) [FLAC|Lossless|image + .cue] <Pop, Cover>
@@ -722,35 +751,6 @@ Sparks – группа, образованная в 1971 году братья�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:441B0CC68231D3122A883167F7360C5B35272C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835778   (251912) от 07.11.2025
-
-Backstreet Boys - A Very Backstreet Christmas (Deluxe Edition) (2022)(2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - White Christmas (02:45)
- 02 - The Christmas Song (03:41)
- 03 - Winter Wonderland (01:41)
- 04 - Have Yourself A Merry Little Christmas (03:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E692AA2D7A5B9DE92B09B24620EC649724FF469
 ```
 
 https://mybot314.ru/tekegram_catalog/

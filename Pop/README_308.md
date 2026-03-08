@@ -1,3 +1,59 @@
+###  Публикация: 1271160   (152427) от 22.12.2018
+
+Promises - Promises (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby It's You (3:49)
+02. Let's Get Back Together (3:21)
+03. Who's Givin' It To Ya (3:33)
+04. I'm Sleeping Over (3:31)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C802997AB6EBA9E1EB7BE46E34518B5A13235E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601261   (152030) от 30.12.2022
+
+Basic Element & Dr. Alban & Waldo’s People & Elize Ryd - Life Is Now (2022) Single [FLAC|Lossless|WEB-DL|tracks] <EuroDance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Is Now
+02. Life Is Now (Extended Mix)Жанр: EuroDanceПродолжительность: 00:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4F7EAE9E54F3A9B765282750D2A4CB4EAA5F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347284   (151988) от 23.12.2019
 
 Слава - Крик души (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -692,64 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAECE74E450DBB85F6E3CA4377AC6758B248FC1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271413   (150289) от 23.12.2018
-
-Don Amore - Memories Of Dreams (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150289.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Only Want You (Intro) 03:00
-2. Long Ago 07:09
-3. Don't Leave Me Tonight 06:05
-4. In Your Eyes 06:31(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B59028EF8806DC9C48B30E3C6A5BA6D32AC332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677473   (150284) от 18.11.2023
-
-VA - NOW That's What I Call 40 Years (2023) Vol. 1-4, 12 CD [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Britney Spears - ...Baby One More Time [3:32]
-02. Steps - Tragedy [4:31]
-03. Eiffel 65 - Blue (Da Ba Dee) [3:40]
-04. Gabrielle - Rise [3:40](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 15:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE5DEE5B7F056E0ED706212A8DED799E7A9DC16
 ```
 
 https://mybot314.ru/tekegram_catalog/

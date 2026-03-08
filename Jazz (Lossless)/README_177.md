@@ -1,3 +1,32 @@
+###  Публикация: 1059874   (457738) от 06.10.2016
+
+The Trio: John Surman, Stu Martin, Barre Phillips - Conflagration (1971) Remaster, 2002, Dawn Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Conflagration [07:42]
+ 02.Malachite [10:01]
+ 03.Nuts [06:57]
+ 04.6's and 7's [07:48](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1178B0D6597CF5E3BD5A58DE868135DD6950526A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060132   (457734) от 06.10.2016
 
 The Louis Van Dyke - Trio / Quartet (1964) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -721,35 +750,6 @@ Stanley Cowell - Are You Real? (2014) SteepleChase [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:846B8776EDD86E73466A26355804A497EC20866E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408617   (454023) от 13.09.2020
-
-Stanley Cowell Trio - Close To You Alone (1990) DIW [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'D' Bass - IC Blues [5:56]
-02. Endless Flight [8:52]
-03. Close to You Alone [6:58]
-04. Equipoise [5:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963D3EB7BA5A7BEC27F5EAF70470279B01831C1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

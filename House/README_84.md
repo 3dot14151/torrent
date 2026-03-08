@@ -1,3 +1,32 @@
+###  Публикация: 1757472   (39078) от 27.10.2024
+
+VA - Halloween 2024: Best of Dance, EDM, House & Electro (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - Paradise (03:06)
+02. Whisk & MARK SNCHZ - Love Light (01:53)
+03. Tc-5, Otray & Miguel Lemos - Cave (02:38)
+04. NAAZUK & Tom Maze - Gonna Make It (02:33)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5F651009C563CAE14AD800B9DE8300A23C9693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757435   (39073) от 27.10.2024
 
 VA - Ibiza Winter Island 2025 (The Deep-House Edition) (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -713,35 +742,6 @@ VA - Dance Hits Winter Selection (2024) [MP3|320 Kbps] <Dance, Club, House, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:577F9BB949FE482A3B1A38F16D3F3FCA17D93149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771854   (31583) от 08.01.2025
-
-VA - Disco Down The Best of 2021 (2021) [MP3|320 Kbps] <House, Nu-Disco, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FLIP-DA-FUNK - Ready For This (06:45)
-02. Discoloverz - Dig This (feat. Rick Marshall) (05:47)
-03. Mike Chenery - House Was Disco (Club Mix) (06:05)
-04. FLIP-DA-FUNK - I Luv Music (05:50)(   Читать дальше...   )Жанр: House, Nu-Disco, ElectroПродолжительность: 06:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635F006C8735CBE82E68F6759795F6B6FD06B639
 ```
 
 https://mybot314.ru/tekegram_catalog/

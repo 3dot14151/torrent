@@ -1,32 +1,3 @@
-###  Публикация: 1561732   (512595) от 07.07.2022
-
-Ellison Effect - Atmospheric Metal (2022) [MP3|320 Kbps] <Atmospheric Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Midnight Sun [00:04:55]
-02 - In Memory of Annabel Lee [00:03:30]
-03 - Fear That You Fear [00:05:17]
-04 - Our Secrets Won't Be Safe [00:03:27](   Читать дальше...   )Жанр: Atmospheric MetalПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9118248246E70B2A26DDC3C76356F57CF202F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536571   (512594) от 20.08.2012
 
 The Order Of Elijah - Accession (2012) [MP3|320 кб/с]<Deathcore>
@@ -771,6 +742,39 @@ Damnation Angels - Bringer Of Light (2012) Japanese Edition [FLAC|Lossless]<Symp
 08. Shadow Symphony (Pt. IV) (05:58)
 09. No Leaf Clover (05:21)
 10. Pride (The Warrior’s Way) (09:46)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:04:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536475   (512376) от 20.08.2012
+
+In The Silence - A Fair Dream Gone Mad (2012) [FLAC|Lossless]<Atmospheric Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ever Closer (6:04)
+02. Seventeen Shades (6:03)
+03. Serenity (6:10)
+04. Beneath These Falling Leaves (7:17)
+05. Close To Me (3:23)
+06. Endless Sea (4:58)
+07. All The Pieces (5:31)
+08. Your Reward (7:31)Жанр: Atmospheric Progressive MetalПродолжительность: 00:46:55
 
 ## Скачать торент
 ```bash

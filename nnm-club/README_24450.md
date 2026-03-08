@@ -1,22 +1,22 @@
-###  Публикация: 1780920   (70365) от 20.02.2025
+###  Публикация: 1780616   (70404) от 19.02.2025
 
-Футбол. Лига Чемпионов 2024/2025. 1/16 финала. Обзор матчей (19.02.2025) HDTVRip [H.264/1080p]
+Бестолковые / Clueless (1995) BDRip [H.264/720p] [MVO]
 
->>Спорт и активный отдых
->>Футбол
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70365.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол.Лига Чемпионов 2024/2025. 1/16 финала. Обзор матчей (19.02.2025)Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 00:24:13
+Фильм является вольной адаптацией романа Джейн Остин «Эмма» 1815 года... В центре сюжета красивая, популярная, богатая старшеклассница. Она заводит дружбу с новенькой и решает сделать ей модный образ. Ещё она решает устроить роман между двумя учителями в своей школе, мисс Гейст и строгим мистером Холлом. В результате, Холл смягчается и позволяет Шер пересдать экзамен. (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: мелодрама, комедияРежиссер: Эми ХекерлингАктеры: Алисия Сильверстоун, Стэйси Дэш, Бриттани Мёрфи, Пол Радд, Дональд Фэйзон, Элиза Донован, Брекин Мейер, Джереми Систо, Дэн Хедайя, Уоллес ШонПеревод: профессиональный многоголосый (Премьер видео), профессиональный двухголосый (CTC), авторский (Андрей Гаврилов; Юрий Живов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:37:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBA50287B9807F3B8F04BFE8DDB3B191419FD0FB
+magnet:?xt=urn:btih:E9B05DA38C6BBC9733584351EAA012D8EF36A45B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +24,554 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780927   (70364) от 20.02.2025
+###  Публикация: 1780586   (70403) от 19.02.2025
 
-Dionigi - Hot Oxygen (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco>
+Редьярд Джозеф Киплинг | Сказки Старой Англии (2013) [MP3, Наталья Пешкова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки Редьярда Киплинга об отважном мальчике Маугли, о любопытном слоненке, о мангусте Рикки-Тикки-Тави, о кошке, которая гуляла сама по себе, знают и любят дети во всем мире. Но есть у Киплинга и совсем другие сказки – сказания Старой Англии, написанные на основе исторических событий далекого прошлого Британских островов и на материале фольклора и легенд из рыцарских (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаПеревод: Анна ЭнквистИздательство: Студия «АРДИС»Продолжительность: 05:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9074A31D4BDAD1BB9589AF3ADD99BC410AEA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780545   (70402) от 19.02.2025
+
+Strong Product - IV (2025) [FLAC|Lossless|WEB-DL|tracks] <EBM>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лучший вид [00:03:28]
+02. На завод [00:04:03]
+03. Инструкция по безопасности [00:04:09]
+04. Еще один день [00:04:00](   Читать дальше...   )Жанр: EBMПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61074A71C9A7FA2474B477DD3D1569C94831E9F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780662   (70401) от 19.02.2025
+
+Яблочный уксус / Apple Cider Vinegar (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет рассказывает о гуру велнеса Белль Гибсон и её подруге Милле, которые используют свои платформы, чтобы «лечить» людей. Гибсон заходит слишком далеко, одурачивая своих последователей и весь мир шокирующим диагнозом рака, который основан на лжиПроизводство: Австралия, Великобритания / Picking Scabs, See-Saw Films, Screen AustraliaЖанр: драма, криминал, биографияРежиссер: Джеффри УокерАктеры: Кейтлин Дивер, Алисия Дебнем-Кери, Аиша Ди, Марк Коулз Смит, Тильда Кобэм-Херви, Чай Хансен, Мэтью Нэйбл, Ричард Дейвис, Эшли Цукерман, Сьюзи Портер и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F1BEE08C672216F0B6DDE5A38C795B9FC52CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780659   (70400) от 19.02.2025
+
+Protokoll 19 - Mental Decay (2024) [MP3|320 Kbps] <Dark Electro, Harsh EBM>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Solitude [00:03:32]
+02 - VVitch [00:04:14]
+03 - RIP (Me Apart) [00:03:48]
+04 - Spirit Board [00:04:32](   Читать дальше...   )Жанр: Dark Electro, Harsh EBMПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC931DF2F20D7EEC1054E1FCC640F3F1636261A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780783   (70399) от 19.02.2025
+
+Проспер Мериме | Венера Илльская (Радиоспектакль) (2000) [MP3, Елена Миллиоти, Герман Юшко и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Редкие Записи. Из фондов «Радио России»
+Проспер Мериме (1803–1870) – французский писатель, автор шедевров мировой классики.
+Радиоспектакль по одноимённой новелле Проспера Мериме «Венера Илльская» (Другие названия: Илльская Венера, La Venus d’Ille, 1837).
+Незадолго до свадьбы своего сына житель городка Русильона господин Пейрорад выкапывает в саду бронзовую (   Читать дальше...   )Жанр: Зарубежная литература, классика, новелла, мистикаИздательство: Радио РоссииПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14DAFAB3C73A7A83C12EC2F3CCEFBAE91061447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780732   (70398) от 19.02.2025
+
+Бьянка Питцорно | Послушай моё сердце (2022) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман Бьянки Питцорно, живого классика итальянской литературы, рассказывает об учебном годе в обычной муниципальной школе в начале 1950-х годов. Несмотря на время действия, книга во многом остаётся созвучной современности, а дети-школьники узнают в ученицах и их школьных буднях себя.
+
+Начинается учебный год, и у 4 «Г» класса теперь новая классная руководительница (   Читать дальше...   )Жанр: детская проза, зарубежные детские книги, современная классикаПеревод: Ксения ТименчикИздательство: СамокатФормат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF4D418B5242C5090C9C1FF018F6DA9AAD7ADF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780551   (70397) от 19.02.2025
+
+Echodead - Enter the Void (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rivers of blood [00:05:22]
+02. Six bad robots [00:04:04]
+03. Out of control [00:05:06]
+04. I don't like humans [00:06:03](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5FC6328C9207DA00BF9653BA384430D6EE68E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780618   (70396) от 19.02.2025
+
+Crazy Lixx - Thrill of the Bite (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal, Hair Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crazy Lixx — шведская хэви-метал/хэйр-метал/хард-рок-группа из Malmö, Sweden, образованная в 2002 году. Благодаря их энергичным выступлениям, запоминающиемся припевам и непримиримым стремлением к возрождению звучания глэм-метала конца 80-х, Crazy Lixx стала флагманом новой волны шведского хард-рок-метала. Группа черпает вдохновение в таких группах, как Def Leppard, (   Читать дальше...   )01. Highway Hurricane (3:35)
+02. Who Said Rock N' Roll Is Dead (3:01)
+03. Little Miss Dangerous (6:09)
+04. Call of the Wild (4:13)(   Читать дальше...   )Жанр: Hard Rock, Glam Metal, Hair MetalПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE72BBCCDF28E070241D72D3D4993E9DB444843E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780702   (70395) от 19.02.2025
+
+Владимир Харламов - 4 Альбома (1996-2009) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Под конвоем
+02. Вечерний снег
+03. Шумела тайга
+04. Побег(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39521F84F2E8A3BEB47D73C559FA630D3B1EFAEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780598   (70394) от 19.02.2025
+
+Катерина Мурашова, Анна Барышникова | Гайд по жизни (2024) [MP3, Егошина Агния]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70394.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Подростковый возраст – самый кризисный, сложный, многогранный и интересный. Это – рождение взрослого. Нам, работающим с подростками, важно помнить свой опыт, чтобы лучше понимать то, что происходит с ними, принимать этих сложных созданий и, по возможности, помогать им двигаться вперед». Анна Барышникова, автор книги
+Сколько кризисов в жизни человека от рождения (   Читать дальше...   )Жанр: О психологии популярноИздательство: АСТПродолжительность: 01:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680094E7D550E39497EA6EB43DC7F3669C728113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780658   (70393) от 19.02.2025
+
+Metropolit - Fear: My Guide, My Steady Downfall (2025) [MP3|320 Kbps] <Darkwave, Post-Punk>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Veneration [00:04:21]
+02 - In The Middle Of The Field [00:03:44]
+03 - Will You Ever Again [00:02:58]
+04 - Power Me [00:03:16](   Читать дальше...   )Жанр: Darkwave, Post-PunkПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C046E076BD69313F2D50A9674C53768FBB2337C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780552   (70392) от 19.02.2025
+
+Krieg-B - War Drums' resonance (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special Operation [00:04:14]
+02. Under Pressure [00:04:32]
+03. Napalm Girl [00:03:29]
+04. King of Emptiness [00:04:32](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3243E004FC41F45281FB8F536486192D3EC53EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780587   (70391) от 19.02.2025
+
+Редьярд Джозеф Киплинг | Сказки и легенды (2011) [MP3, Виталий Егоров]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил-был на свете Писатель. Звали его Редьярд Джозеф Киплинг. Родился он в Англии. Без малого полтора столетия назад. Писатель много путешествовал по белу свету. Побывал и в Южной Африке, и в Австралии, и в Новой Зеландии. Хорошо запомни это, мой маленький друг! Вернувшись в Англию, Писатель женился, и у него родились две дочери. Дочки были очень любознательные. Они (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: 1С-ПаблишингПродолжительность: 04:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030CF2C5810EA86571F3720D862C23DC604867AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780718   (70390) от 19.02.2025
+
+Прометей (1936) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крепостного парня Ивася пан сдает на Кавказ в солдаты, а его невесту отправляет в публичный дом. Под влиянием революционера Гаврилова, разжалованного в солдаты, герой становится сознательным борцом и, вернувшись в родное село, поднимает крестьянское восстание.
+Фильм сохранился неполностью: отсутствует эпизод с участием Тараса Шевченко (актер Н. Надемский).Производство: СССР / УкраинфильмЖанр: драма, историяРежиссер: Иван КавалеридзеАктеры: Иван Твердохлиб, Полина Нятко, Даниил Антонович, Александр Сердюк, Иван Штраух, Наталия Ужвий, Валентина Чистякова, Шота Нозадзе, Чута Эристова-Жгенти, Владимир ЕршовСубтитры: отсутствуютПродолжительность: 01:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646E5EB8F2BFA83D6B1B3646FFF00053E7E3608D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780625   (70389) от 19.02.2025
+
+Журнал | Народный доктор №3 (673) (февраль 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822D7DCC2921D5C4E6F1F500E1067F3BE223CA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780785   (70388) от 19.02.2025
+
+Проспер Мериме | Илльская Венера (2018) [MP3, Сергей Чонишвили, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Новеллы Проспера Мериме»
+Проспер Мериме (1803–1870) – французский писатель и переводчик, историк, этнограф и археолог. В России получил известность благодаря своим блестящим новеллам. В этой аудиокниге представлены две его новеллы. «Илльскую Венеру» Мериме написал под впечатлением от поездок по французским провинциям в качестве инспектора исторических (   Читать дальше...   )Жанр: Зарубежная литература, классика, новелла, мистикаПеревод: М.П. ЗигомалаИздательство: 1С-ПаблишингПродолжительность: 03:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C631C164C498BE58F570BBE9032EF63700D7AA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780719   (70387) от 19.02.2025
+
+Ульф Старк | Мой друг Перси, Буффало Билл и я (2015) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может быть лучше летних каникул, проведённых вместе с другом? Десятилетние Ульф и Перси строят хижину, купаются в море, играют в индейцев, помогают приятелю собирать жуков и читают книгу про Буффало Билла, знаменитого охотника на бизонов с Дикого Запада. Перси неожиданным образом удаётся расположить к себе всю семью, даже сердитого дедушку Ульфа. И всех приятелей (   Читать дальше...   )Жанр: детская проза, детские приключения, зарубежные детские книгиПеревод: Ольга МяэотсИздательство: СамокатФормат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06598F22A034B9B103DBD710B3B072C94B9A5A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780704   (70386) от 19.02.2025
+
+Неприкасаемые - Брёл, брёл, брёл (1994) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70386.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дорога под землю 10:47
+2. Без четверти восемь 6:26
+3. Эрегированный 4:38
+4. Ассоль 8:59(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114284C53B4A023398B03A92A3B3B62D90644ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780674   (70385) от 19.02.2025
+
+FreeFileSync 14.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70385.jpg" />
+</div>
+
+
+###  Подробнее
+
+FreeFileSync - это утилита, которая была разработана для синхронизации файлов в указанных пользователем каталогах. Реализовано сравнение файлов не только по размеру и дате, но и по содержимому (побайтовое сравнение). Отличительной чертой приложения следует считать простой и понятный графический интерфейс. К синхронизируемым файлам могут применены фильтры, с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E4E484BF290D9FC08D52B7E3D9056A964409A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780611   (70384) от 19.02.2025
+
+djdtime - Relaxing Deep House & Melodic Techno Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70364.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blue Mermaid (5:37)
-02. White Sand (4:48)
-03. Summer Is Coming (5:34)
-04. Sunny And Hot (4:57)(   Читать дальше...   )Жанр: Deep-House, Nu-DiscoПродолжительность: 00:52:59
+01. Wake up, the world is calling (4:53)
+02. Close your eyes, leave the fear behind (3:54)
+03. I'm chasing you, through the night (3:44)
+04. Every heartbeat, I'm closer still (4:29)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:07:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C0AE7BC6E0197309CD164C2006BC8D8BEB1F521
+magnet:?xt=urn:btih:C737B307015A1289D26D8028EF85F0C909FCCFFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,375 +579,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780842   (70363) от 20.02.2025
+###  Публикация: 1780602   (70383) от 19.02.2025
 
-David Rose - Add More Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Add More Life (3:05)
-02.  Hand in Hand (1:59)
-03.  Open Meadows (3:10)
-04.  Barbara's Ballad (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B5F3F93EA8A4BCB3A47277930080310EA6D2B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780844   (70362) от 20.02.2025
-
-LMsc - Mystery Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mystery Flow (3:07)
-02.  Lucid Laments (2:49)
-03.  Chance of Romance (3:22)
-04.  Moonlit Whispers (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B388DECC858D4C228A90D0F35FD35BF09DAA5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780925   (70361) от 20.02.2025
-
-VA - Spacesynth.de Contest TraxX (2007) [FLAC|Lossless|tracks + .cue] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galaxion - Embryo Zero (5:08)
-02. Phobotrax - A Better Place (5:29)
-03. Dreamtime - Before The Dawn (6:31)
-04. Staffan Ohman - Point Of No Return (6:39)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7D9E3F96299517F093E946D8D0B200CDCB0A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780961   (70360) от 20.02.2025
-
-Dream Theater - Awake (1994) Japanese Edition, 2xCD [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70360.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. 6:00 5:31
-02. Caught In A Web 5:28
-03. Innocence Faded 5:43Жанр: Progressive MetalПродолжительность: 01:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82139FDCB1F74F372C7B20B4A65213A854DFFC40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780849   (70359) от 20.02.2025
-
-David Rose - In the Spotlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Silky Nights (3:36)
-02.  Funky Smooth Vibes (3:35)
-03.  Finally Connected (3:54)
-04.  Groovy Brass Delight (3:43)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8F676006D81D4D146B131059234F85FAA81E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780891   (70358) от 20.02.2025
-
-Lovell's Blade - Deadly Nightshade (2022) [FLAC|Lossless|tracks + .cue] <NWOBHM, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Out of Time
-02. Drivin' Me Crazy
-03. Mystery
-04. The Cries Go Unheard(   Читать дальше...   )Жанр: NWOBHM, Hard RockПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07EFD58E994FB64FFA2262247ABCC0CD752430B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780935   (70357) от 20.02.2025
-
-A Day To Remember - Big Ole Album Vol. 1 (2025) [MP3|320 Kbps] <Post-Hardcore / Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make It Make Sense
-02. Feedback
-03. Bad Blood
-04. All My Friends(   Читать дальше...   )Жанр: Post-Hardcore / Pop-PunkПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1950EC691CAA8EEFF3027C96C5B3B1BA3249D3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780834   (70356) от 20.02.2025
-
-Cut The Kids In Half - What We Became (2025) [FLAC 24/48|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Storm Drain Girls (3:44)
-02.  A Good Man Died (4:34)
-03.  Run Kid (4:15)
-04.  Old Manhattan (5:55)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B21E67C4214A13BCB022C72822C79EC05FA639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780968   (70355) от 20.02.2025
-
-Electric Mojo - One for the Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All That Glitter Is Not Gold (2:36)
-02.  See You in Hell (4:42)
-03.  Requiem for a Brother (4:25)
-04.  All the Lies Were True (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:239511882093636B83D1324665DD9E4101AA722D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780938   (70354) от 20.02.2025
-
-Visions Of Atlantis - Armada LIVE Over Europe - Pt. 3 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Those Who Choose to Fight (LIVE at Lyon) [00:02:19]
-02. The Land of the Free (LIVE at Lyon) [00:04:41]
-04. ⁠Heroes of the Dawn (LIVE at Paris) [00:04:41]
-05. Where the Sky and Ocean Blend (LIVE at Haarlem) [00:07:03](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB2CCA5783EB9FA7E9FD9A1F0CA3CE11BCDEE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780837   (70353) от 20.02.2025
-
-Rob McConnell & The Boss Brass - The Jazz Album (1976) 1996, Sea Breeze Jazz [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Hard to Find One [5:58]
-02. Portrait of Jenny [8:25]
-03. My Man Bill [7:04]
-04. Body and Soul [8:54](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF214514E34F1AAFC3BE9E0AB52B2D58E9E0908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780829   (70352) от 20.02.2025
-
-Nick Brignola - On A Different Level (1990) Reservoir [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Inside [5:25]
-02. Hot House [10:43]
-03. Duke Ellington's Sound of Love [8:29]
-04. All the Things You Are [6:23](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D66E06F82A9945C72F0B653ED789E2C4B063C2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780895   (70351) от 20.02.2025
-
-Футбол. Лига Чемпионов 2024-2025. 1/16 финала. ПСВ (Нидерланды) - Ювентус (Италия) (19.02.2025) HDTVRip [H.264/1080p]
+Футбол. Лига Чемпионов 2024-2025. 1/16 финала. Бенфика (Португалия) - Монако (Франция) (18.02.2025) HDTVRip [H.264/1080p]
 
 >>Спорт и активный отдых
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70351.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2024-2025. 1/16 финала. ПСВ (Нидерланды) - Ювентус (Италия) (19.02.2025)
-СУДЬЯ Винчич Славко (Словения)
-СТАДИОН «ПСВ» (Эйндховен)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 02:27:00
+Футбол. Лига Чемпионов 2024-2025. 1/16 финала. Бенфика (Португалия) - Монако (Франция) (18.02.2025)
+СУДЬЯ Нюберг Гленн (Швеция)
+СТАДИОН «Да Луш (Бенфика)» (Лиссабон)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:57:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22B389442CFFBB134ADEF557AB4F9C44EBE93412
+magnet:?xt=urn:btih:80F17A902A352C79620F3F8C482F555CDBB82B29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,56 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780854   (70350) от 20.02.2025
+###  Публикация: 1780630   (70382) от 19.02.2025
 
-Футбол. Лига Чемпионов 2024-2025. 1/16 финала. ПСЖ (Франция) - Брест (Франция) (19.02.2025) HDTVRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. 1/16 финала. ПСЖ (Франция) - Брест (Франция) (19.02.2025)
-СУДЬЯ Оливер Майкл (Нортумберленд, Англия)
-СТАДИОН «Парк де Пренс» (Париж)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D5CB5DD207BF694E815C3C725879B0EC9126F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780841   (70349) от 20.02.2025
-
-Ralph Peterson - V (1988) Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Kenny Burrell - Prestige Profiles (1956 - 1963) 2005, Prestige [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Guitar Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70349.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Enemy Within [7:38]
-02. Monief [6:52]
-03. The Short End of the Stick [6:45]
-04. Soweto 6 [5:53](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:57
+01. I'll Close My Eyes [4:51]
+02. Montono Blues [4:47]
+03. All of You [6:21]
+04. It's a Wonderful World [5:27](   Читать дальше...   )Жанр: Bop, Hard Bop, Guitar JazzПродолжительность: 01:01:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50FC6ECED96E0C24C2247AAE8F94582024BE50A2
+magnet:?xt=urn:btih:D749DD8B82D2474218AB7B380285D84540D24695
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780836   (70348) от 20.02.2025
+###  Публикация: 1780627   (70381) от 19.02.2025
 
-Nick Brignola - Like Old Times (1994) Reservoir [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+Nick Brignola & Sal Salvador - A Tribute To Gerry Mulligan (1982 - 1984) 1993, Stash Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70348.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Like Old Times [7:59]
-02. When Lights Are Low [10:16]
-03. Lambari [6:55]
-04. More Than You Know [7:56](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:00:28
+01. Bernie's Tune [6:56]
+02. Five Brothers [4:19]
+03. Song for Stray Horn [4:02]
+04. Elevation [4:18](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:14:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13CC476AA0B78649F6BD799A645C36BBC0172521
+magnet:?xt=urn:btih:077857BC6CFFC997FFEF24A304E08A2E9E311389
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780824   (70347) от 20.02.2025
+###  Публикация: 1780628   (70380) от 19.02.2025
 
-The Ken Peplowski Quintet - Mr. Gentle And Mr. Cool (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+Kenny Barron - Beyond This Place (2024) Artwork Records [FLAC|Lossless|image + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70347.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mr. Gentle and Mr. Cool [7:32]
-02. Please Be Kind [6:12]
-03. You Do Something to Me [5:01]
-04. Body and Soul [3:34](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:36
+01. The Nearness of You [6:35]
+02. Scratch [5:35]
+03. Innocence [8:18]
+04. Blues on Stratford Road [6:41](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7EC63A4D65F9A2E0D7600A43E9DDEF75D6AB6F5
+magnet:?xt=urn:btih:41D9218E935C89C599B7A25965E9168776DACF8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,197 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780823   (70346) от 20.02.2025
+###  Публикация: 1780734   (70379) от 19.02.2025
 
-Ken Peplowski - Double Exposure (1988) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Would Do Anything for You [3:50]
-02. There's No You [4:20]
-03. Lava [3:40]
-04. Blame It on My Youth [4:57](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E08D2A3985FD548BCE4F5B3314E4109A0FC02EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780839   (70345) от 20.02.2025
-
-Rob McConnell, Ed Bickert, Neil Swainson - Trio Sketches (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snow White [5:30]
-02. My Ideal [3:45]
-03. I Have Dreamed [7:49]
-04. Can't We Be Friends [8:30](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, CoolПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB193AE63B90D03A1BB4562A6BFC224F062D9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780940   (70344) от 20.02.2025
-
-Jolly Joker - Jolly Joker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Bishop Gunn - Live With Bishop Gunn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70344.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  World Collapse (2:40)
-02.  Shotgun (3:12)
-03.  I Just Wanna (Kiss You)Жанр: Hard RockПродолжительность: 00:34:42
+01.  Anything You Want (4:11)
+02.  Shine (4:07)
+03.  Alabama (3:12)
+04.  Makin' It (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71518678B07855BC4C3771A7A466D1184C15E84C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780847   (70343) от 20.02.2025
-
-Lilly Hiatt - Forever (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hidden Day (2:44)
-02.  Shouldn’t Be (3:13)
-03.  Ghost Ship (3:59)
-04.  Somewhere (3:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8B20BADF73257F13C3DEB4B5732A254C347B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780937   (70342) от 20.02.2025
-
-Little Freddie King - I Use To Be Down (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bywater Crawl (3:06)
-02.  Pocket Full of Money (3:04)
-03.  Going Up The Mountain (4:10)
-04.  Bad News (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168B9E3F179B40578A5B5ADCB65BAF27A6C8C3E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780820   (70341) от 20.02.2025
-
-Футбол. Лига Чемпионов 2024-2025. 1/16 финала. Реал (Мадрид, Испания) - Манчестер Сити (Англия) (19.02.2025) HDTVRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. 1/16 финала. Реал (Мадрид, Испания) - Манчестер Сити (Англия) (19.02.2025)
-СУДЬЯ Ковач Иштван (Румыния)
-СТАДИОН «Сантьяго Бернабеу» (Мадрид)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4070B8D3F3E4195FD827EEADF6D276008F433B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780926   (70340) от 20.02.2025
-
-Великий разлом / The Great Divide (1915) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтический и драматический вестерн. Очень романтический. Очень драматический. Несколько молодых людей. Из небогатых, но приличных семей решили поехать на дикий Запад и попробовать реализоваться там. Заработать состояние, добиться успеха и т.п. Вот там и столкнулись их романтические настроения с грубой реальностью простой жизни, простыми людьми. Как дальше сложится (   Читать дальше...   )Производство: США / Lubin Manufacturing CompanyЖанр: вестерн, немое киноРежиссер: Эдгар ЛьюисАктеры: Этель Клэйтон, Хаус Питерс, Мари Стерлинг, Хейден Стивенсон, Мэри Мур, Уорнер П. Ричмонд, Fred O'Beck, Рэй ЧамберленПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57955A2F6986AE6D28D9311E439B5FF68BE9E03
+magnet:?xt=urn:btih:D681B74727ADCC58E5C0CB3150DA54BC76DFED73
 ```
 
 https://mybot314.ru/tekegram_catalog/

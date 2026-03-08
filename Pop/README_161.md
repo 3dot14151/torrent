@@ -1,3 +1,67 @@
+###  Публикация: 809498   (587470) от 01.08.2014
+
+T. Ark - H.A.P.P.Y. Radio (The 12" Maxi-Singles Collection) (2010) Limited Edition  [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Cover Lover (Extended Version) 6:13
+02. Count On Me (Extended Version) 6:31
+03. How Old Are You (Mixed By Luis Rodriguez) 6:36
+04. Move It 4:34
+05. Carry Me (Maxi Version) 5:05
+06. H.A.P.P.Y. Radio (Extended Version) 6:20
+07. Count On Me (Instrumental Dub Version) 5:09
+08. Under Cover Lover (Instrumental) 5:35
+09. Count On Me (Single Version) 3:57
+10. Under Cover Lover (Radio Version) 3:41(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFE2C9EEBD0F234C2599485B11F047464E224E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040125   (587450) от 04.08.2016
+
+Newton Family - The Best Of Newton Family (1989) [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smile Again (English Version) (5:23)
+02. Jumpy Dance (3:49)
+03. Love Is Magic (4:08)
+04. Yo Yo (Hungarian Version) (4:03)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E723F6E584D8C55609616CBBC5C1C26A9CC36D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 809496   (587448) от 01.08.2014
 
 T. Ark - H.A.P.P.Y. Radio (The 12" Maxi-Singles Collection) (2010) Limited Edition [FLAC|Lossless]<Italo-Disco>
@@ -713,70 +777,6 @@ VA - The Original Masters, Vol. 2 (The Music History of the Disco) (2016) [MP3|~
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECB892A6BE89A1C942BC11DDA318B668641A3D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918337   (584777) от 17.07.2015
-
-Fancy - Playa De Palma (Nonstop-Hit-Party) (2015) [MP3|320 кб/с]<EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy feat. Coconut Boys & Latoya Turner - To the Music Hitmakers (Medley)
- 02. Fancy - Slice Me Nice
- 03. Fancy - Flames of Love
- 04. Coconut Boys & Latoya Turner - Sun of Jamaika(   Читать дальше...   )Жанр: EuroDisco, ElectronicПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554EBFE83C58EAD4827EA9B94050329D2F7B837D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810233   (584486) от 04.08.2014
-
-Baltimora - Living In The Background (2005) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tarzan Boy 6:12
-02. Pull The Wires 4:40
-03. Living In The Background 6:05
-04. Woody Boogie 5:53
-05. Chinese Restaurant 5:11
-06. Running For Your Love 5:53
-
-Bonus Tracks:
-
-07. Tarzan Boy (Summer Version) 6:42(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9933D002D0E90D7D9696110E52F8A846E8E83AB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

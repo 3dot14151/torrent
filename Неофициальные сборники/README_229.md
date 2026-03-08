@@ -1,3 +1,177 @@
+###  Публикация: 1021613   (732003) от 30.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 22 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italo Boot Mix Vol. 1 ( Part 1 ) ( 1983 )
+02. Cerrone - Supernature ( 1977 )
+03. Punch - Love Me ( 1985 )
+04. Self Service - Special Night ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE4FE9F1FC43A81DFEEF2952E5BC58A7DBCE0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021459   (731993) от 30.05.2016
+
+VA - Mega Dance Summer (2016) [MP3|320 кб/с] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lenny Berlin feat. Dorota - Time Has Come (Mordax Bastards & Jay Filler Radio Remix)
+02. The Chainsmokers feat. Daya - Don't Let Me Down (Dmitriy Exception Remix)
+03. Dvrzt - We Could Fly (Ft. Rob Tomlinson)
+04. Muzzaik & Stadiumx - So Much Love (Original Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130C5CCEB5E6EA391DFAAF1D542DBAF98AD2D683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021474   (731992) от 30.05.2016
+
+VA - Karma Balance: Peaceful Music for a Positive Mood (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dylan Colby - Renewable Energy
+02. Leo Myers - Give It Away
+03. Holroyd Bob - Special Species
+04. Simon Painter - Hot in the Sun(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91BE2F8223350524069861E2692A65CC198F135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529900   (731977) от 08.02.2022
+
+Richard Koechli - Richard Koechli (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Unsung King (Tampa Red)
+02. I'm Going Down
+03. Etat D'urgence
+04. Of Em Gliche Grond Schtah(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501D49621E96BAF54C3CA5F2C4C50B0C2F1E6527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021621   (731913) от 30.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 23 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddy Huntington - Physical Attraction ( 1989 )
+02. Morena - Open Your Heart ( Energy Mix 1991 )
+03. O'Kay - I Won't Forget ( 1989 )
+04. Miko Mission - Two For Love ( Mozzart Mix 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F50881B6C34E10F45E62E665C876C9084C5B7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021386   (731909) от 30.05.2016
+
+Юлия Запольская - Midnight in Moscow (LP) (1970) [MP3|128 кб/с] <retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сердце
+02. Бежит река
+03. Выхожу одна я на дорогу
+04. Не брани меня, родная(   Читать дальше...   )Жанр: retroПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C54CA17B2E9EA3527CD2FCFB0B20E8E3387730B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021599   (731905) от 30.05.2016
 
 VA - Wonderful Melodic Chillstep [Compiled by Zebyte] (2016) [MP3|320 кб/с] <Chillstep>
@@ -571,180 +745,6 @@ VA - Лучший русский шансон. Версия № 10 (2017) [MP3|2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FB1A5CF2E05A0265B8793DFC76E51271CB4AC0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127738   (731120) от 22.04.2017
-
-VA - Танцевальная вечеринка от Хит FM выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731120.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Стас Костюшкин - Бабушка 2:58
-002. Malika - Подари Мне Любовь 4:34
-003. Илья Подстрелов (Faktor-2) - Королева 2:57
-004. Noris - Сделай Паузу 2:55(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A4D8E83AE67BCA4C7502C51D6249735357EA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127773   (731119) от 22.04.2017
-
-VA - Козырная песня на Шансоне. Версия № 9 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731119.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Семен Канада - Женщина-Жемчужина 3:46
-002. Дмитрий Романов & Вова Шмель - Я Не Буду 3:45
-003. Лариса Гордьера - Потревожила 3:46
-004. Олеся Атланова - Сумасбродство Пьеро 3:45(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3ACAC0672FE37CF34C4A7F98F95F2BC8FD9B68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021968   (731111) от 31.05.2016
-
-VA - Ibiza Sundowner Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Parent - Awakening (Radio Edit) [03:59]
-02. Praana - Garden Of Nightingales (Radio Edit) [04:14]
-03. Lounge Hours - Balance (Radio Edit) [04:46]
-04. Endless All - Mothers Arms (Radio Edit) [07:05](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A72CE5778445C58FA93DE06A6C0385E35D7DFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127788   (731070) от 22.04.2017
-
-VA - Шальной шансон в дорогу. Часть № 7 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731070.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олеся Атланова - Задержка Рейса 3:54
-002. Семен Канада - Я Ищу Свою Женщину 3:19
-003. Максим Олейников - Я Тебя Нашел 2:42
-004. Андрей Климнюк - Базарный День 3:16(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A301ADC74988D722057B347A9947311F23B3D712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125695   (731068) от 22.04.2017
-
-VA - Лучший русский шансон. Сборник № 9 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731068.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная Союза - Доченька Моя 3:17
-002. Павел Филатов & Вне Зоны - Хочу Женится 4:15
-003. Сергей Куприк - Так-Так 3:15
-004. Денис Кремлевский - Южная Любовь 4:04(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78991E9C940B2FD0AEBE2D1E9472776EB8B1472C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127756   (731039) от 22.04.2017
-
-VA - Весенняя 100-ка популярных треков. Сборник № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731039.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Марк Тишман - Танцевать Одни 3:38
-002. Алиса Вокс & Феликс Бондарев - Зал Ожидания 3:22
-003. Тимир Ибрагимов - Бархатный Вечер 4:17
-004. Иван Тетенов - Море Магнит 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3C32D3B72BF3A9CA188C8A5139C3B5F76110F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

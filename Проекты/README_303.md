@@ -1,29 +1,3 @@
-###  Публикация: 1082520   (276731) от 13.12.2016
-
-Проекты - VideoHive - Christmas - Slideshow - 18944613 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания Рождественского слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D984A836DBD38A717A8926C000E5EFBDFA8DD16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082669   (276689) от 13.12.2016
 
 Проекты - VideoHive - Winter Slideshow II - 13618706 [AEP]
@@ -672,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76469B65C5257C05CD4B02E2105A0990B8C85D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083036   (274504) от 15.12.2016
+
+Проекты - VideoHive - Christmas Memories - 18970403 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Christmas Memories - проект для создания слайд-шоу Рождественских воспоминаний.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C3066763F64CEC964F85399471F118F6202DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

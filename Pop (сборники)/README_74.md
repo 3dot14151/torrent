@@ -1,3 +1,32 @@
+###  Публикация: 1561114   (516589) от 03.07.2022
+
+Tanita Tikaram - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twist In My Sobriety
+02. Make The Day
+03. Something New
+04. This Stranger(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA78F17E3DA49D6F0A17D6FCCD46E004AEA13DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930193   (516303) от 22.08.2015
 
 VA - Летние super новинки. Часть 5. 50/50 (2015) [MP3|256 кб/с]<Pop>
@@ -749,41 +778,6 @@ VA - Сто Хитов Из Прошлого: Дискотека 80х (2015) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56302A9C780F906C8BD5288BB2107CCF3831839E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540332   (503799) от 29.08.2012
-
-VA - Ночная хитовая дискотека (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sola - По Ночному Городу (Original Mix)
- 02. Полина Гриффис - Ain't Givin' Up
- 03. T - Killah feat. Виктория Дайнеко - Mirror Mirror (DJ Marie Remix)
- 04. Барби - Когда ты рядом
- 05. Дискотека Авария и Кристина Орбакайте - Прогноз погоды
- 06. Никита - Найди Меня
- 07. Женя Вилль - Я Хочу Всегда (Natasha Beginner Remix)
- 08. Анна Герцен - Very Good
- 09. Inna - Crazy Sexy Wild (Acoustic Radio Version)
- 10. Стас Шуринс - Будь Собой (Версия 2012)(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF4F66AA7359D1204C60AAD2B7E60636A6B1979
 ```
 
 https://mybot314.ru/tekegram_catalog/

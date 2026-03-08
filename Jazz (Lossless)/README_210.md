@@ -1,3 +1,38 @@
+###  Публикация: 580530   (343367) от 25.11.2012
+
+Ben Sidran - Don't Cry For No Hipster (2012) [FLAC|Lossless]<Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_343367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Nine
+02. Brand New Music
+03. Don't Cry for No Hipster
+04. At Least We Got to the Race
+05. Can We Talk
+06. In the Beginning
+07. It Don't Get No Better
+08. Dying Anyway
+09. Private Guy
+10. Reflections(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073562   (343249) от 17.11.2016
 
 Byron Wallen - Meeting Ground (2007) Twilight Jaquar[FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Post-Bop>
@@ -734,35 +769,6 @@ Matt Bianco - Gravity (2017) Japan [FLAC|Lossless|image + .cue] <Smooth Jazz, La
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DC47E0000D5C0548743D190AED7C09E9664139E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419464   (340125) от 28.10.2020
-
-Marion Brown - Capricorn Moon To Juba Lee Revisited (1965, 1966) 2019, Hat Hut Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capricorn Moon [22:30]
-02. Mephistopheles [18:16]
-03. Juba Lee [12:36]
-04. Iditus [12:22]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0936A8D005C307971C5E090379D4E9396C5C52
 ```
 
 https://mybot314.ru/tekegram_catalog/

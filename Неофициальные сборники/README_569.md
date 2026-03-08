@@ -1,3 +1,177 @@
+###  Публикация: 1343146   (218964) от 05.12.2019
+
+VA - Зимняя свежая 30-тка Vol. 1 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218964.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Ганвест - Проваливай (Megasound Remix) (4:07)
+2.Олег Попков - Твое Любимое Платье (3:55)
+3.Варвара - Вдвоем (3:50)
+4.HOMIE - Засыпай (3:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B9628498C0A66A1796C3DE9A0A0EA7941DE52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966595   (218948) от 18.12.2015
+
+VA - Pastel Lounge Christmas Time (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sansinena - Christmas in Blackwater
+02. Atthis Alcedo - Feel What You Feel
+03. Cafe Royale - Thunderplump
+04. Max Denoise - Blue Sky(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B215482B5B562E3E24011C1A7EAC88C68371B75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084660   (218925) от 19.12.2016
+
+VA - German Top 50 Official Dance Charts 16.12. (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218925.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.David Guetta, Chris Willis & Cedric Gervais - Would I Lie To You 3:18
+002.Oliver Heldens Ft. Ida Corr - Good Life 3:09
+003.Martin Solveig Ft. Ina Wroldsen - Places 3:23
+004.EDX - High On You 3:00(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C369341CD00FF0E3C71862AFCDBA13780A8FD578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084623   (218897) от 19.12.2016
+
+VA - Снегопад новинок Выпуск №2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Olly Murs - Deeper 2:37
+002.Катерина Красильникова - Пусть Станет Раем 3:34
+003.Solange - Where Do We Go 4:25
+004.Роза Мажонц - Выше Облаков 3:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7272814A6021E30C5AE0B19F15A76AC6CFB4DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514136   (218888) от 02.12.2021
+
+VA - Hit Music, зима 2021 (2021) от Мяу [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. HUTS - Gold On My Skin
+002. Ed Sheeran - Shivers
+003. Артем Пивоваров - Мираж
+004. Boostereo - Pop Corn(   Читать дальше...   )Жанр: PopПродолжительность: 09:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9481B53D4686F458A1122152A3407823F8E27FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425640   (218866) от 22.11.2020
+
+VA - The Big Bass: Drum Sound Musical Collection Vol.02 (2020) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218866.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cantstopkillingtime - Falling Down
+002. Audioscribe - Letting Go
+003.  Charlotte Haining - Almost There
+004. Distort - On My Way(   Читать дальше...   )Жанр: Drum & Bass, Bassline, DubstepПродолжительность: 08:20:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EB6BAA3EA6A032A188E48982A2CDC93D26D2DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966498   (218848) от 18.12.2015
 
 VA - Vocal Trance Top 40 2016 (2015) [MP3|320 кб/с] <Vocal Trance>
@@ -577,183 +751,6 @@ VA - World of Electronic Music Vol.1 (2019) [MP3|320 Kbps] <Synthpop, Futurepop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6DD256FC2B00CE3883782B8815E249445A5B65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269727   (217192) от 16.12.2018
-
-VA - Hits of My Soul Vol. 43 (2018) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Tiesto & The Chainsmokers - Split (Only U) (Original Mix) (05:06)
-02. Delerium feat. Sarah McLachlan - Silence (Michael Woods Mix) (08:05)
-03. Dark Matters feat. Jess Morgan - I Don't Believe In Miracles (Album Mix) (03:24)
-04. Markus Schulz feat. Ana Diaz - Nothing Without Me (Beat Service Remix) (07:12)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F809FA4B4F73E5DA06A4799E8F551FA1AAD5C11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343450   (217187) от 06.12.2019
-
-VA - Твоя любимая попса (Лучшее в Рунете) (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217187.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 104, Скриптонит, Lucaveros - Проблемы
-2. 10Age - Так нельзя
-3. 10Age - Туман
-4. 2Vina - Babe(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 28:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F8ABDC03057903E43A551BE335A8C16F1947FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425850   (217131) от 22.11.2020
-
-VA - Осенняя свежая 30-тка Vol 4 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dabro - На Крыше (Vadim Adamov & Hardphol Remix) (2:24)
-02. GSPD - Электроклуб (2:48)
-03. Inur - Я Хочу Танцевать (2:07)
-04. Pakalena - Шпильки (3:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8146F9E8A4EE659B2E07461D26840EC76C932B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737424   (217116) от 22.12.2013
-
-VA - 100 Величайших Хитов Шансона (2013) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217116.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Михаил Круг - Владимирский централ
-002. Иван Кучин - В таверне
-003. Лесоповал - Я куплю тебе дом
-004. Голубые Береты - Синева(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261BA34930ADA1D1A49D8E84ECCD35DC6212E28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514110   (217056) от 03.12.2021
-
-VA - The Autumn Blues (2021) [MP3|320 Kbps] <Blues, Soul, Lyric>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник, вышел в середине осени и у названия этого микса самая прямая отсылка к текущему времени года. Музыка этой подборки передаёт атмосферу осени, красоту лесного убранства, свежесть остывающего воздуха и меланхоличного настроения.001. Peter Martinsson Group - Beautiful
-002. Monkeyjunk - The Marrinator
-003. Steve Baker - Hey Buddy
-004. Aj Fullerton - Slippin' Away(   Читать дальше...   )Жанр: Blues, Soul, LyricПродолжительность: 08:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A616D9E907EF71F4472D74A9FE29E4B300CAA442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343560   (216974) от 07.12.2019
-
-VA - German Top 100 Single Charts 06.12.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capital Bra - Der Bratan bleibt der gleiche
-02. Tones and I - Dance Monkey
-03. Apache 207 - Roller
-04. The Cratez - Skifahren (mit Bausa, Maxwell, Joshi Mizu)(   Читать дальше...   )Жанр: PopПродолжительность: 05:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3287E05A6EFA3E988A3A123F1F40534371B52778
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1731479   (107677) от 21.06.2024
+
+VA - Armin van Buuren - A State Of Trance 1178 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ALPHA 9 - Come Home (Laura van Dam Remix)
+02. Club Caviar - Game Over (Jochem Hamerling Remix)
+03. David Forbes - Alcazar
+04. Scorz & Sirolf ft. Diandra Faye - Missing Piece (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27E9312BAE6C7D10A0E8EA6333AA0C3D855DA6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730997   (107675) от 21.06.2024
+
+Markus Schulz - Global DJ Broadcast World Tour: Buenos Aires, Sao Paulo and Montreal 2024 (2024-06-13) [MP3|320 Kbps] <Progressive House, Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz (Recorded Live from Stereo in Montreal - June 1 2024)
+01. Frankyeffe - Kill Me
+02. DJ Ghost & Armani - Hit Hard Baby (WTF)
+03. Lilly Palmer - Hare Ram(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744B2F06E4533C35FCDC433726356F297B55E759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731575   (107674) от 21.06.2024
 
 VA - Sunset Party (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -684,64 +742,6 @@ VA - Best of Electronic Beats (2024) [MP3|320 Kbps] <House, Deep House, Dance, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30C6EF0C5E63FA7B151E77C1E31E0521A69E7326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733600   (107264) от 30.06.2024
-
-Tiësto - Tomorrowland Friendship Mix (2024-06-27) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Port & Stryv ft. Malachii - Move
-02. RAFFA GUIDO - Famax
-03. Disclosure ft. Eliza Doolittle - You & Me (Rivo Remix)
-04. Tiësto & Prophecy - My City(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE92B80AF1C1D62282D8C9CF6A8EB664F336A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733716   (107257) от 30.06.2024
-
-V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 24 (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Da Praia, Mayla Da Viola - Water (Bossa Nova Version)
-02. Cassandra Beck - Be the One
-03. Banda Do Sul - Over and Over
-04. Stella Starlight Trio, Shelly Sony - Georgy Porgy(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E0CEEF9C583D8BC31431EAB108ED0FA44455D2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

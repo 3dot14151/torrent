@@ -1,3 +1,32 @@
+###  Публикация: 1031279   (668597) от 03.07.2016
+
+VA - TOP 100 Club (June) (2016) [MP3|320 Kbps] <House, Electro House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668597.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Rihanna -  This Is What You Came For (Nejtrino & Baur Remix) 3:32
+002. Armand Van Helden -  I Want Your Soul (Underground Dude Remix) 3:11
+003. Ummet Ozcan -  Spacecats (SilverBlack Remix) 5:02
+004. Francesco Diaz & Jay Frog -  Arabian Nights (Melsen Edit) 4:57(   Читать дальше...   )Жанр: House, Electro House, Club HouseПродолжительность: 07:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D950EDE7D57CAF339623FBC557EFF647CF663F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031320   (668580) от 03.07.2016
 
 VA - Relax to House Vol.1 (2016) [MP3|320 Kbps] <House, Deep House, Club House>
@@ -716,35 +745,6 @@ Andromeda: Glamtronica Remix - это новаторский подход к с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:387AB853836E313974E36E6803AF92D05F91CCC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138912   (662326) от 31.05.2017
-
-VA - Pacific Progressive Trance Vol. 3 (2017) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drym & Ltn Ft. Adara - Rescue Me (Ltn Extended Sunrise Remix)
-02. Royal Zeven - Glacier (Infinity State Remix)
-03. Martin Soundriver - Project X (Radio Edit)
-04. Tritonal - Hey MaMaMa (Club Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 08 :12 :44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78109C2F98E371CE0E63552AE47AFC2DFE19B38B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 476769   (85725) от 01.04.2012
+
+Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Rayel – 550 senta vs Shogun – Skyfire (accapella) (AVB intro mix)
+ 02. Omnia & IRA – The Fusion (Armada)
+ 03. Dennis Sheperd & Talla2 XLC – Two Worlds (Euphonic)
+ 04. Wezz Devall – Kill Of The Year (Captivating Sounds)
+ 05. Orjan Nilsen – Amsterdam (Armind)
+ 06. Tritonal – Slave (Tritonal & Ben Gold Club Dub) (Air Up There Recordings)
+ 07. W&W – Invasion (Club Mix) (ASOT 550 anthem) (Armada)
+ 08. Orjan Nilsen – Between The Rays (Armind)
+ 09. Setrise vs Johann Stone – Icesave (Original Mix)
+ 10. Gaia – Stellar (Armind)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 01:34:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476015   (85555) от 31.03.2012
 
 Видеоклипы «t.A.T.u.» - All The Things She Said. Пиратская Вечеринка HD x264 1080p
@@ -696,32 +731,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17F8985D8DB057504E90314DD3E569E37AC1E2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466493   (81697) от 12.03.2012
-
-Grace Jones - Live At Avo Session Basel, Switzerland 13th November (2009) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grace Jones предстала в мире шоу бизнеса в качестве талантливой актрисы, модели и эстрадной поп-дивы, демонстрирующей свою бесконечную чреду фантазий, неуемную жажду деятельности и сюрреалистические идеи. Каждое выступление Грейс Джонс – загадка для зрителей. То она, обнажившись, измазывает всю себя речной тиной и явно обличает полную амуницию набора настоящей американской (   Читать дальше...   )Жанр: TV, Video, Popular musicПеревод: Не требуетсяФормат: DVD5Продолжительность: 1 час 15 мин 43 сек (01:15:43)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

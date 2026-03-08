@@ -1,3 +1,32 @@
+###  Публикация: 1363101   (945286) от 26.02.2020
+
+VA - Beatport Techno: Electro Sound Pack #13 (2020) [MP3|320 Kbps] <Techno, Tech House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L-Gil - Taoaaa (Original Mix)
+02. Danny Nectar - Power (Original Mix)
+03. Juan Campos - Rk-4
+04. Rauschhaus - Bespin(   Читать дальше...   )Жанр: Techno, Tech House, ClubПродолжительность: 06:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A61813E252EFE572E2F61340C188829B699635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362844   (945273) от 26.02.2020
 
 VA - Beatport Trance: Pack Electro Sound #12 (2020) [MP3|320 Kbps] <Trance, Electro, Progressive>
@@ -727,35 +756,6 @@ VA - Bust A Move Vol.2 (2015) [MP3|320 кб/с] <Psychedelic, FullOn, Night>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C59B6AB8F31E677831B3CE5D4D1264BB99AECF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091502   (943108) от 09.01.2017
-
-VA - Resident Advisor - RA Poll Top 50 Tracks of 2016 (2017) [MP3|254-320 Kbps] <Minimal, Dancehall, Dub, Juke, IDM, Abstract и другие>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traumprinz - 2 Bad (Metatron's What If Madness Is Our Only Relief Mix) 10:20
-02. Pearson Sound - XLB (Original Mix) 06:19
-03. Avalon Emerson - The Frontier 07:35
-04. Willow - Untitled A2 04:32(   Читать дальше...   )Жанр: Minimal, Dancehall, Dub, Juke, IDM, Abstract, Experimental, Tribal, Downtempo, Funk, Deep HouseПродолжительность: 06:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B1A665042CE2DD633580851428765A3272C53E
 ```
 
 https://mybot314.ru/tekegram_catalog/

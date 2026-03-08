@@ -1,3 +1,131 @@
+###  Публикация: 519390   (637348) от 06.07.2012
+
+VA - Blues & Rock Ballads (2012) [MP3|320 кб/с]<Blues, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alvin Lee - The blues best
+ 02. Beefeaters - You Changed My Way Of Living
+ 03. Bugs Henderson - Anthem For The Blues
+ 04. Charlie Winston - Tongue Tied
+ 05. Cinderella - Hard To Find The Words
+ 06. Colin James - Standin On The Edge
+ 07. David Denny - Without You
+ 08. Dr. Hector - Safe In Your Arms Again
+ 09. Eagles - Doolin-Dalton
+ 10. Fred James - The Strength To Be Alone(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 02:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37249672D379435925111E4D5A341D680CF141F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519241   (636909) от 06.07.2012
+
+VA - The Best of 1980-1990 (20CD) (1990 - 1998) [MP3|320 кб/с]<Pop, Pop Rock, Synth-pop, Hip Hop, Electronic, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simple Minds - Don't You (Forget About Me) (Radio Edit)
+ 02. David Bowie - Let's Dance
+ 03. Yes - Owner of a Lonely Heart
+ 04. Glenn Frey - The Heat Is On
+ 05. Billy Idol - Catch My Fall
+ 06. ZZ Top - Sleeping Bag
+ 07. Whitesnake - Here I Go Again
+ 08. Foreigner - Urgent
+ 09. Pete Bardens - In Dreams (Album Version)
+ 10. R.E.M. - The One I Love(   Читать дальше...   )Жанр: Pop, Pop Rock, Synth-pop, Hip Hop, Electronic, RockПродолжительность: 01:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE375268A0991B8A389EB1D13F19AFA7DE09E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033837   (636139) от 12.07.2016
+
+VA - Kizomba Sexy Hits (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anarita - Sorry 04:11
+02. Kaysha - Raquel (feat. Nichols) 04:17
+03. Vanda May - Hello 04:37
+04. G.No - Viajar por Ti 04:00(   Читать дальше...   )Жанр: World, Zouk, KizombaПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1AB611C1807B2E716BC28446EE4714803C6E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033962   (636136) от 12.07.2016
+
+VA - Kizomba Sexy Hits Vol 2 (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liju - Without You 04:31
+02. Vanda May - Done with You (feat. Shana Kihal) 04:04
+03. Kaysha - One Love 03:59
+04. G.No - Sexy Mami 03:30(   Читать дальше...   )Жанр: World, Zouk, KizombaПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9038B6B87959F5FBB83152B653A7B49DF3E277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907583   (636063) от 13.06.2015
 
 VA - Billboard Hot 100 Singles Chart 20th June (2015) [MP3|128-320 кб/с]<Hip-Hop, Country, EDM, Synthpop, Electro-R&B>
@@ -641,134 +769,6 @@ VA - The Official UK Top 40 Singles Chart 05.04.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70FCCB2347031BEAC5DF76CAE9D7FDCF467C97C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294110   (631863) от 06.04.2019
-
-VA - Live Limited Welcome On April (2019) [MP3|320 Kbps] <Club, Electro, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631863.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Crush Club - Trust (Knight Horse RMX  Intro)
-002. Kraak & Smaak ft Sam Duckworth - Good For The City (Intro)
-003. Roosevelt - Everywhere (Fleetwood Mac Cover  Intro)
-004. Tuxedo - 2nd Time Around (Clean  Intro)(   Читать дальше...   )Жанр: Club, Electro, DanceПродолжительность: 07:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB687EE837F60B94B26E931D5724BD70F6273E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294060   (631860) от 06.04.2019
-
-VA - 80s Soul Classics (2019) [MP3|320 Kbps] <Soul, RnB, Funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaka Khan - Ain't Nobody
-02. George Benson - Give Me the Night
-03. Stacy Lattisaw - Jump to the Beat
-04. Grover Washington, Jr. - Just the Two of Us(   Читать дальше...   )Жанр: Soul, RnB, FunkПродолжительность: 01:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55719F058996647C77C0ED5793F3DB8DEAD02B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520805   (631744) от 09.07.2012
-
-VA - Новинки танцполов 3 Русский (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Блестящие - Любовь
-02. Горячие головы - Лето в Крыму
-03. DJ Fisun - History 2012
-04. Biffguyz - Bum bum bum (DJ Andy Wait remix)
-05. Milena & MaXimA - Города
-06. Elvira T - Все решено (Fresh Tunes remix)
-07. Секрет Разума - В Мире Всё Возможно
-08. Корнелия Манго - Запретная Любовь
-09. А-Студио и Quest Pistols - Медведица
-10. USB & Сергей Жуков - Скажи Зачем(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACDBA7A58B8E76E616D9D96AC5DBA9751AED7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520664   (631740) от 09.07.2012
-
-VA - Radio Dance Show (2012) [MP3|320 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Даша Суворова - До Утра (NoName Dj's Remix)
-02. Pitbull - Back In Time (DJ STYLEZZ Remix)
-03. Jessica Wright - Dance All Night (Rudedog Remix)
-04. MMDance - Баня (Danil Gross Remix)
-05. LMFAO - Sexy And I Know It (DallasK Remix)
-06. Luna Moor - Pa Pa Groove Feat Stan WIlliams (Nopopstar Remix)
-07. Timbaland & Pitbull & Wisin & Yandel - Pass At Me (Official Remix)
-08. 5sta Family - Вместе Мы (DJ Solovey Remix)
-09. Eva Simons - I Don't Like You (R3hab Remix)
-10. Горячий Шоколад - Стены (Andry Makarov Club Remix)Жанр: Pop,DanceПродолжительность: 04:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F79520E9850AD50D919AD06C71628403246899E
 ```
 
 https://mybot314.ru/tekegram_catalog/

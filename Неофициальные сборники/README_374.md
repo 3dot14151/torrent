@@ -1,3 +1,183 @@
+###  Публикация: 1050355   (538280) от 08.09.2016
+
+VA - Autumn Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538280.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Melodic Brothers & Natune - Lethargy
+002. Mike Warren - Nylon Heart
+003. Vibrasphere - Tierra Azul (Omnimotion Feat. Krister Linder)
+004. Broke Luxorius - The Silence of Tuga(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA94CBEA8BD084C3CA25B754CEEF6B81D8B6ACC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532481   (538247) от 07.08.2012
+
+VA - Горячие хиты пляжного сезона 4 Русский (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Митя Фомин И Кристина Орса - Не Манекен
+02 Ассорти - Ангелы
+03 Кристина Орбакайте Feat. Павел Есенин - А Знаешь, Все Еще Будет
+04 Катя Лель - Не Могу Забыть
+05 A-Via - По Парам
+06 Никита - Прости
+07 Вероника Агапова - Горько
+08 Горячие Головы - Мы Встретимся Вновь
+09 София Ротару - Два Солнца
+10 Валерия - Подруга(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8433BC1265814E21A5CCD1B40AB930BFDAD743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050379   (538175) от 08.09.2016
+
+VA - Beatport Top 100 EDM Songs & DJ Tracks August (2016) [MP3|320 Kbps] <House, Future House, Indie Dance, Nu Disco, Progressive, Electro, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538175.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vanilla Ace  -  The Gee (Original Mix)  5:00
+002. Armand Van Helden  -  Wings (Extended Mix)  6:40
+003. Hardwell, Craig David  -  No Holding Back feat. Craig David (Extended Mix)  3:14
+004. Mark Knight  -  Yebisah (Original Mix)  8:23(   Читать дальше...   )Жанр: House, Future House, Indie Dance, Nu Disco, Progressive, Electro, TechnoПродолжительность: 10:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B95B8E438F7ABFBD602B245EBB51A244FB6043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050564   (538173) от 08.09.2016
+
+VA - Smooth Jazz Classics: Essential Lounge Tunes for Relaxing Ambience, Soft Jazz Instrumental Songs (2016) [MP3|320 Kbps] <Jazz, Lounge>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instrumental Music Ensemble - Smooth Jazz Classics
+02. Jazz Sax Lounge Collection - Bossa Nova Soundscapes
+03. Instrumental Jazz Music Ambient - Relaxing Jazz Music Bar
+04. Good Morning Jazz Academy - Soothing Music(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DA5A7BFB25690487D7AFA9FD49BF427119FD50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311059   (538110) от 01.07.2019
+
+Infected Mushroom - Artificial Visualisation (2004) Unreleased [FLAC|Lossless|tracks] <Psy-Trance, Dubstep, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ministry of Angels (feat Yahel)
+02.Expose (feat Space Cat)
+03.Blue Rythmic Night (feat I.Zen)
+04.Zahadum(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D744BF81AC540889672EB838C702F08BE6EECE82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050533   (538083) от 08.09.2016
+
+Rod Stewart - Story (2016) (2CD) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Off Dead
+02. Passion
+03. Human
+04. Tear It Up(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656CC71EC2FC9DF6C0BA6E7C39638783E4374FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050405   (538077) от 08.09.2016
 
 VA - Зайцев.Нет - Лучшие Новинки Сентября (2016) [MP3|180~320 Kbps] <Pop>
@@ -581,180 +761,6 @@ Dance:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13EE6C0D16BEC6C0E64D1A9C0E5EFC8FE132B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311785   (535667) от 02.07.2019
-
-VA - Самые горячие русские танцевальные треки. Soundclinic MEGAPOP Edition (2019) [MP3|320 Kbps] <Pop, Dance, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535667.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Скриптонит & Тати - Приглашение на Gazgolder Live (Tekst-Pesen.RU) (1:42)
-2.Devianprod. - Drowninginthissea (2:50)
-3.Гио Пика - Фонтанчик с Дельфином (2:00)
-4.Rsac - NBA (2:13)(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 07:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50B330F556C45E61B2BE67B39BC845BF353BE03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926329   (535654) от 09.08.2015
-
-VA - Lounge De Luxe (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ibiza Chill Out - Parapa Pa
-02. M. Vitoria - Spain
-03. Rock-Candy - Spacial Echoe
-04. Blue Horizon - Blue Bird(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A621FA88A13EF474A3961914CECEC201E09E3C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926177   (535643) от 09.08.2015
-
-VA - Honey Lounge Music Deluxe (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxea - Sunshine Delight [07:19]
-02. M. Vitoria - Chill In Out [04:49]
-03. Loungeaholic - Heaven Is A Place On Earth [04:19]
-04. Oscar Salguero - Walking In Tokyo [06:15](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69C64934CDDDF634258765C7B60EC9B9C3C7F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557418   (535642) от 18.06.2022
-
-VA - Ballermann Discofox (Die besten Discofox Hits) (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steffen Juergens - Du bist Liebe (Mixmaster JJ Remix)
-02. Zweiklang - Schattenseiten (Treanen sollten wir bewahren)
-03. Flamingoboys - Egoist (Mf-Remix)
-04. Michael Fischer - Wo bist du (Mf-Fox Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:12:56 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44488F26836C34B08B5EC1C8B73754DAFC340915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227308   (535617) от 16.08.2010
-
-VA - Лучшие ремиксы на песни группы КИНО и Виктора Цоя (2010) [MP3 | 320 kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535617.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В Наших Глазах (Remix 2009) (3:36)
-2. Война (D Max Korovaev remix) (3:11)
-3. Война (3:55)
-4. Восьмиклассница (Neo Romantic) (2:40)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:59:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926080   (535592) от 09.08.2015
-
-VA - Summer EDM Party (2015) [MP3|320 кб/с]<Dance, House, Club, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Shake That Ass (Edit)
-02. Teknova - Let's Bounce (Original Mix)
-03. Saintpaul Dj - It's Summertime (Da Brozz Bounce Mix)
-04. Eliza G - Hello Hello (Turbotronic Remix)(   Читать дальше...   )Жанр: Dance, House, Club, ProgressiveПродолжительность: 02:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA66CFA7568B18B962E1B27CB892C19A138AA77
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,74 @@
-###  Публикация: 1602139   (1046162) от 04.01.2023
+###  Публикация: 1601385   (1046241) от 03.01.2023
 
-Игра с ключами / El juego de las llaves (2022) WEB-DL [H.264/1080p] [MVO]
+Календарь NoName-Club на 2023 год
+
+>>След.
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь NoNaMe Club на 2023 годНезаметно, но от того не менее неумолимо грядёт новый 2023-й год, год Чёрного Водяного Кролика по Восточному календарю.В честь этого события предлагаем Вашему вниманию календарь, который должен иметь у себя над рабочим столом каждый участник Клуба!В раздаче PDF (чистый вектор) и JPG(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D6557D4349708882C46FE0D5E7F767C1DC82FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601943   (1046240) от 03.01.2023
+
+Калейдоскоп / Kaleidoscope (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) RuDub
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сериала основан на реальной истории. Во время урагана Сэнди в центре Манхэттена пропали облигации на сумму 7 миллиардов долларов. История будет разворачиваться на протяжении 25 лет и сосредоточена на команде опытных воров. В надежде получить желаемое, грабители стараются проникнуть в одно из самых надёжных хранилищ в мире.Производство: США / Automatik Entertainment, Netflix Studios, Scott Free ProductionsЖанр: боевик, триллер, драма, криминалРежиссер: Майрзи Алмас, Эверардо Валерио Гоут, Жозе ПадильяАктеры: Руфус Сьюэлл, Тати Габриэль, Пас Вега, Rosaline Elbay, Питер Марк Кендалл, Нюша Нур, Сэмми Пералта, Бабба Уейлер, Ганс Тестер, Хемки Мадера, Джанкарло ЭспозитоПеревод: профессиональный многоголосый (RuDub)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F41160E20E49418A2F3DA3E76DC5A6DB92771F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601998   (1046239) от 03.01.2023
+
+Странный Эл / Странный: История Эла Янковича / Weird: The Al Yankovic Story (2022) WEB-DL [H.264/1080p]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046162.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Семейная жизнь Антонио и Лауры дала трещину. В поисках новых ощущений они вместе с друзьями соглашаются принять участие в таинственной «Игре с ключами». Три семейные пары и не подозревают, куда заведет их жажда экспериментов, ведь главное правило игры — никаких правил.Производство: Испания / Atresmedia, Atresmedia Cine, Benidorm Films, Buendía Estudios, Movistar+, Nadie es Perfecto, Triodos BankЖанр: КомедияРежиссер: Висенте ВильянуэваАктеры: Ева Угарте, Мирен Ибаргурен, Фернандо Гуайяр, Тамар Новас, Мария Кастро, Даниэль Татай, Рикард Фарре, Хустина Бустос, Пепо Льопис, Алина НастасеПеревод: Многоголосый профессиональный (Кипарис)Язык озвучки: русский, испанскийСубтитры: отсутствуютПродолжительность: 01:43:22
+С самого детства Альфред Янкович увлекался музыкой и обожал переделывать слова в песнях. Но строгий отец считал, что сын должен пойти работать на завод, а не заниматься всякой ерундой, и даже разбил втихаря подаренный Элу матерью аккордеон. Поступив в колледж, парень безуспешно пытается устроиться в какую-нибудь музыкальную группу, когда по совету друзей записывает (   Читать дальше...   )Производство: США / Funny or Die, Tango Entertainment (III), The Roku ChannelЖанр: Музыка, комедия, биографияРежиссер: Эрик АппельАктеры: Дэниэл Рэдклифф, Дидрих Бадер, Рэйн Уилсон, Эван Рэйчел Вуд, Тоби Хасс, Джулианна Николсон, Томми О’Брайэн, Спенсер Трит Кларк, Джек Ланкастер, «Странный Эл» ЯнковичПеревод: Дублированный (Пифагор), Двухголосый профессиональный (Кубик в Кубе)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Forced, Full)Продолжительность: 01:47:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEC1E735B0452AD8E46ED4B0BCDBD09C072E0156
+magnet:?xt=urn:btih:6BBEA614E9EAEF317974881E1609D6F7BEB75A1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +76,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 238960   (1046161) от 04.01.2023
+###  Публикация: 1601364   (1046238) от 03.01.2023
 
-Медвежий поцелуй (2002) DVDRip
+У самого Белого моря (2022) WEBRip [VP9/2160p]
 
 >>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046238.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о мальчике Сане, воспитаннике дома-интерната на Крайнем Севере. Его отец утонул в Белом море, и однажды детская непримиримость и жажда справедливости приводят ребенка на маленький остров. Сане придется столкнуться с местным отшельником и даже полицией, но, главное, подросток бросит вызов самой стихии.Производство: Россия / МосфильмЖанр: драмаРежиссер: Александр ЗачиняевАктеры: Борис Галкин, Никита Манец, Дмитрий Куличков, Елена Махова, Олег МиляховскийПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5FC669C038B7219979B937D2C5F77B901FBC4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477972   (1046237) от 03.01.2023
+
+Маша и медведь (2020-2022) WEB-DL [H.264/1080p] (сезон 5, серии 1-26 из 26)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маша - невероятно активная девочка, которая никогда не сидит на месте и считает, что весь мир создан для неё одной. Машина индивидуальность не знает границ, поэтому урок труда легко оборачивается строительством парусного корабля, а набор художника - в разукрашивание всего леса.Производство: Россия / Студия "Анимаккорд"Жанр: Детский, комедия, семейныйРежиссер: Олег Кузовков, Олег Ужинов, Денис ЧервяцовСубтитры: ОтсутствуютПродолжительность: ~00:08:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C40F3AE9844F9B8C2D2B5C2D7E5878A1920D1BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601992   (1046236) от 03.01.2023
+
+По-мужски (2022) WEBRip
+
+>>След.
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046161.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Маленького медвежонка, родившегося в сибирской тайге, охотники сдали в питерский зоопарк. Международной цирковой труппе, выступавшей в Санкт-Петербурге, понадобились дикие звери, и воздушная гимнастка Кармен вместе с мужем и дочкой Лолой пришла в зоопарк. Кармен никого там не выбрала, а Лола увидела одинокого медвежонка и влюбилась в него.
-Кармен вскоре, устав от (   Читать дальше...   )Жанр: Фэнтези, Мелодрама, ДрамаРежиссер: Сергей БодровАктеры: Ребекка Лильеберг, Сергей Бодров мл., Иоахим Кроль, Кит Аллен, Анн-Мари Пизани, Ариадна Гиль, Александр Баширов и другиеПеревод: ОригинальныйПродолжительность: 01:34:13
+35-летний Глеб — образец успешного мужчины: красавица-жена, собственный бизнес, новый загородный дом-мечта. Однако после того как он не находит в себе смелость разобраться по-мужски с пьяным соседом, ударившим жену, его идеальная жизнь круто меняется.Производство: Россия / Spot FilmsЖанр: триллер, драмаРежиссер: Максим КулагинАктеры: Антон Лапенко, Екатерина Щербакова, Владимир Гориславец, Сергей Васин, Полина Синильникова, Лёля Хохлова, Евгения Синицкая, Анастасия Чуева, Владимир Данай, Руслан ГагиевПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:46:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45D479B08A35364C6E3F9A4824BD8BAEA3FCD5C1
+magnet:?xt=urn:btih:FD49E155F38D0AB89A02BC2773BDCD88F01F1340
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +154,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 986495   (1046160) от 04.01.2023
+###  Публикация: 1600831   (1046235) от 03.01.2023
 
-Falcon 4.0 + BMS (1998-2016) [En] (4.37/dlc) License GOG/Mod
+С  Новым Годом!
+
+>>3
+>>20
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046235.jpg" />
+</div>
+
+
+###  Подробнее
+
+С  Новым 2023 годом!
+Дорогие друзья, форумчане!
+Мы живем в очень сложное время, когда люди разделяются, ненависть захватила нации, мир погрузился в отчаяние, отрадно видеть, что мы - не разделяемся. Мы - сообщество NNN Club, состоящее из разных людей разных национальностей. Мы не поддерживаем и не свергаем правительства, не участвуем в политической и религиозной деятельности, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399548   (1046234) от 03.01.2023
+
+Маша и медведь (2020-2022) WEB-DLRip (сезон 5, серии 1-26 из 26)
 
 >>След.
->>AddOn/DLC/Mod для Игр
+>>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046160.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046234.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Falcon 4.0 - симулятор боевых ЛА, берущий свое начало аж в 1998 году. Симулятор сделан с упором на управление ЛА типа F-16. Falcon BMS это целая революция в данной ветве. Полностью кликабельная кабина самолетов, полная работоспособность всех систем самолета, полное 3D, поддержка trackir и прочие прелести современных решений. В BMS был адаптирован и подтянут движок (   Читать дальше...   )Тип издания: License/ModРазработчик: MicroProseЖанр: Simulation (Plane)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+Маша - невероятно активная девочка, которая никогда не сидит на месте и считает, что весь мир создан для неё одной. Машина индивидуальность не знает границ, поэтому урок труда легко оборачивается строительством парусного корабля, а набор художника - в разукрашивание всего леса.Производство: Россия / Студия "Анимаккорд"Жанр: Детский, комедия, семейныйРежиссер: Олег Кузовков, Олег Ужинов, Денис ЧервяцовСубтитры: ОтсутствуютПродолжительность: ~00:08:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95F4E182A107E0DE0324F923EF8918EEC10A7FEE
+magnet:?xt=urn:btih:564A42455405E641DBE7CD842B00216FF6AD71C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,25 +208,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601548   (1046159) от 04.01.2023
+###  Публикация: 1341857   (1046233) от 03.01.2023
 
-Оливье и роботы (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
+Caliber / Калибр (2019) [Ru] (0.18.0.4711.10008) License (обновляемая)
 
->>След.
->>
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046159.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шесть историй о жизни в России в недалеком будущем и о проблемах взаимодействия человека и развитых технологий.Производство: Россия  / Zebra Hero FilmsЖанр: комедия, фантастикаРежиссер: Сергей Наумов, Сергей Филатов, Анатолий КолиевАктеры: Ирина Горбачева, Гоша Куценко, Леонид Каневский, Аскар Ильясов, Евгений Сидихин, Егор Корешков, Юлия Топольницкая, Анастасия Акатова, Никита Кукушкин, Александр БашироСубтитры: русскиеПродолжительность: ~00:30:00 серия
+Командный экшен про современный спецназ. Участвуйте в реалистичных онлайн-боях и выполняйте тактические миссии с отрядом оперативников из разных стран мира.Тип издания: LicenseРазработчик: 1C Game StudiosЖанр: MMO, Action, ShooterЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8F43B8628E068EFFF4C33AAD79E6F91F5ADA95F
+magnet:?xt=urn:btih:4512EFDB9F3E67311D8267851F5FA06B104C7120
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,25 +234,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602188   (1046158) от 04.01.2023
+###  Публикация: 1455286   (1046232) от 03.01.2023
 
-Пришелец из будущего / Le visiteur du futur / The Visitor from the Future (2022) BDRip
+Вампиры средней полосы (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8)
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046158.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046232.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2555 год. Экологическая катастрофа уничтожила нашу цивилизацию. Остатки землян доживают свои дни среди полчищ зомби и потоков кислотных дождей. Один из последних - «Гость» - решается на отчаянный шаг. С помощью своего непутевого робота он возвращается в 21 век, чтобы предотвратить апокалипсис и спасти мир.Производство: Франция, Бельгия, Pyramide Productions, France 2 Cinéma, Allons VoirЖанр: Фантастика, комедияРежиссер: Франсуа ДекракАктеры: Флоран Дорен, Арно Дюкре, Эния Бару, Рафаэль Декрак, Слиман-Батист Берон, Одри Пиро, Матье Поджи, Венсен Тирель, Асса Силла, Лени ШериноПеревод: Дублированный (Кинопоиск HD)Язык озвучки: РусскийСубтитры: Отсутствуют.Продолжительность: 01:41:18
+Смоленск — среднестатистический город, расположенный в средней полосе России. Лишь одно отличает Смоленск от любого другого провинциального города средней полосы — в Смоленске живут вампиры. Живут давно. Живут тихо. Живут по закону. Живут непримечательной жизнью обычной провинциальной семьи и вовсе не убивают людей. Хотя кровь, конечно, попивают. И вот когда в березовой (   Читать дальше...   )Производство: Россия / "Yellow, Black & White"Жанр: Детектив, комедия, фэнтезиРежиссер: Антон МасловАктеры: Юрий Стоянов, Татьяна Догилева, Екатерина Кузнецова, Артем Ткаченко, Ольга Медынич, Михаил Гаврилов-Третьяков, Дмитрий Чеботарёв, Глеб Калюжный, Дмитрий Лысенков, Александр УстюговПродолжительность: ~00:56:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:615A45DE3AF0C61B3F8A2DB1DBFC38BBEBB92BB3
+magnet:?xt=urn:btih:95728D701BF92B26F38C14D46C74A9BE79946549
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,28 +260,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602241   (1046157) от 05.01.2023
+###  Публикация: 1602170   (1046231) от 04.01.2023
 
-Morbus Wilson - Сorematic (1994) [FLAC|Lossless|image + .cue] <Thrash Metal, Groove Metal>
+Maladie - Wound of Gods (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Avant-garde Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046157.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Head First To Power Pain
-02. Corematic
-03. Killed By Lies
-04. For Evermore(   Читать дальше...   )Жанр: Thrash Metal, Groove MetalПродолжительность: 00:39:10
+01 - Eternity Denied (05:16)
+02 - Dying Immortality (04:00)
+03 - Wound of Gods (05:33)
+04 - A Fool's Joy (04:22)(   Читать дальше...   )Жанр: Progressive, Avant-garde Black MetalПродолжительность: 00:54:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E108F18A72F4B75DB63995ACF0C92A8B48455EDF
+magnet:?xt=urn:btih:FBDF42B4478B0A5D211E2B39A1219CEA9B26E3DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,28 +289,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602408   (1046156) от 05.01.2023
+###  Публикация: 1602087   (1046230) от 04.01.2023
 
-Order of Nosferat - Vampiric Wrath Unleashed (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+Lost In Bohemia - 1 Album, 1 Single (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial metal, Doom, Gothic metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046156.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Shadows over Wisborg (05:19)
-02 - A Howl from the Forbidden Tower (03:24)
-03 - Vampiric Wrath Unleashed (05:01)
-04 - Fog Hide the Secrets of the Forlorn Kingdom (02:44)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:46
+01. Garden of England [00:04:46]
+02. Those Who Built the Engines [00:03:20]
+03. The Man Machine [00:03:02]
+04. Sea and Sky [00:03:34](   Читать дальше...   )Жанр: Industrial metal, Doom, Gothic metalПродолжительность: 00:31:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C743A3D5209FEBC741A0D7FAEE1103BA4C219A98
+magnet:?xt=urn:btih:C34B1E2702684FED9AFC77D66C305EC30055923F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,28 +318,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602414   (1046155) от 05.01.2023
+###  Публикация: 1602185   (1046229) от 04.01.2023
 
-Regular People - Fragments Of Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal>
+Mazo - Mazo (1982) Reissue, 2020, Leyenda Records [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046155.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Uvod (01:38)
-02 - Drown (04:54)
-03 - Fragments Of Memories (04:48)
-04 - Burning Visions (04:01)(   Читать дальше...   )Жанр: Thrash, Groove MetalПродолжительность: 00:47:11
+01. Balada Cafre
+02. Nada Nada
+03. Depresión
+04. Me estás equivocando(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86328EB78428CD197C741B948C0CF42DFD7A8EFC
+magnet:?xt=urn:btih:F9CEF06F55266D0CC8F1E26EB239C49632942526
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,28 +347,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602335   (1046154) от 05.01.2023
+###  Публикация: 1602196   (1046228) от 04.01.2023
 
-Shorty Rogers & Andre Previn Orchestra - Collaboration (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <West Coast Jazz>
+Хоккей. НХЛ 2022-2023. Баффало Сэйбрз - Вашингтон Кэпиталз (03.01.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046228.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 января 2023, среда. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Митч Даннинг (Текумсе, Канада); Главный судья: Стив Козари (Пентиктон, Канада)Телекомпания: NBCSWAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD5AA5FA9D778A068D8DE20E7256A04CA187779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602140   (1046227) от 04.01.2023
+
+Nekromantheon - Visions Of Trismegistos (2021) [APE|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Visions of Trismegistos
+02. Seven Rulers of Fate
+03. Faustian Rites
+04. Neptune Descent(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6A65191A143BE4A4A4A817AB8A0EC3164A30F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602120   (1046226) от 04.01.2023
+
+Muggsy Spanier - And His Dixieland Band (1950 - 1952) 2007, Membrane Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046154.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It's Delovely [2:28]
-02. Porterhouse [2:47]
-03. Heat Wave [2:38]
-04. 40 Degrees Below [2:43](   Читать дальше...   )Жанр: West Coast JazzПродолжительность: 00:35:00
+01. Lazy Piano Man [2:45]
+02. Dixie Flyer [2:54]
+03. Sweet Georgia Brown [3:02]
+04. Feather Brain [2:55](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:35:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A550390B0D5F0DC1C3868CA0FF28DA6857DAEAFD
+magnet:?xt=urn:btih:E21A7B890EEFECD5B4B90513F381A21CF7F078CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,28 +432,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602331   (1046153) от 05.01.2023
+###  Публикация: 1602222   (1046225) от 04.01.2023
 
-Lee Wiley - Music Of Manhattan (1951) 1998, Uptown Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Merciless Law - The Holy Company (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fly (04:03)
+02 - Shout! (04:14)
+03 - A Matter Of Skin (03:54)
+04 - The Undying Fire (03:54)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5178258F407E9EE06EE4BA879AD9A192CC11132A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602126   (1046224) от 04.01.2023
+
+Woody Herman & Erroll Garner - Music For Tired Lovers (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046153.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Street of Dreams [3:36]
-02. Oh, Look at Me Now [3:11]
-03. Hallelujah [1:49]
-04. Manhattan [4:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:05
+01. My Melancholy Baby [4:00]
+02. I Hadn't Anyone 'Till You [3:51]
+03. Medley: Let's Fall in Love / Moonglow / I Don't Know Why (I Just Do) / You've Got Me Crying Again [10:26]
+04. If I Could Be With You (One Hour Tonight) [2:39](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:35:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BBC383FA146432BBAE15200D7F5D34A20121345
+magnet:?xt=urn:btih:583D00AB7BDDA593C823039E7C6E112F844324D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,115 +490,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602370   (1046152) от 05.01.2023
+###  Публикация: 1602136   (1046223) от 04.01.2023
 
-Syndrone - Neogenesis (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Shred>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neogenesis (05:42)
-02. Doomsday Apocalypse (feat. Tramaine) (08:33)
-03. Outworld (06:39)
-04. Artificial Gemini (06:18)(   Читать дальше...   )Жанр: Progressive Metal, ShredПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120AA7F7EB141B1F4CF2158B73668D892EBDB6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602293   (1046151) от 05.01.2023
-
-Justin Lavash Trio - E Train (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brick by Brick (2:52)
-02. Easy Train (3:52)
-03. Fox & Hounds (4:24)
-04. Avalanche (5:17)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E837AC9CA59BEE7C6BB48D2E90FDB421DFEA8D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602273   (1046150) от 05.01.2023
-
-Mournument - Smouldering into Dust (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Rain and Thunder
-02. Chasm of Abandoned Souls
-03. Sea of Desperation
-04. A Funeral Poem(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B4D4C99D71A903BFEDA2A205110DE41276EDDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602430   (1046149) от 05.01.2023
-
-Legend - Legend (1992) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+Loud House - Tonight Only (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046149.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Friendly Fire
-02. Don't Believe It
-03. Angela
-04. After The Fall(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:23
+01. Big Breakdown
+02. Wrapped
+03. Little Girls
+04. Nasty Boy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:941CA50BEEEA820FF7DB412F32910C415E91DD4A
+magnet:?xt=urn:btih:F35E8D92D72139449D3C649B63D5BA2DA4710201
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,115 +519,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602298   (1046148) от 05.01.2023
+###  Публикация: 1602141   (1046222) от 04.01.2023
 
-LJ Mounteney - Mama Danced (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Rat (3:49)
-02. I Like it Hot (3:20)
-03. Wasn't That a Time? (2:52)
-04. Mama Danced... (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B50B45AFFF19E162499740177262DE16789BEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602308   (1046147) от 05.01.2023
-
-Riverboat - Big Talk and Muddy (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby That's Alright (3:02)
-02. Hard Times (2:44)
-03. Big Talk & Muddy (3:18)
-04. Riverboat (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60564B7E745E8EA0E2F45183451BDDF50B75F1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602297   (1046146) от 05.01.2023
-
-Lil' Red & the Rooster - Keep on! (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool Trap Boogie (2:54)
-02. Whiskey Sip of Time (4:20)
-03. Keep on Lovin You (feat. Billy Branch) (5:16)
-04. Love the Hell Right out of Ya (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA7F81C8A9E564A84E4A8A8776965F7F48DB180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602350   (1046145) от 05.01.2023
-
-Ignition - Ignition (2003) [FLAC|Lossless|image + .cue] <Hard Rock>
+Legacy - Legacy (1998) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046145.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Down on My Luck
-02. Tell Me Your Mine
-03. Father (Save Me)
-04. Fire With Fire(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:23
+01. Troubleshooter
+02. Underdog
+03. Tool
+04. Autumn Rising(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:53:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A3B21825F858DC8A8FFF0D35D6D8CCE73290794
+magnet:?xt=urn:btih:37C97B8969B0E92B32A93F8E8F5002CF83A0E381
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,86 +548,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602336   (1046144) от 05.01.2023
+###  Публикация: 1602132   (1046221) от 04.01.2023
 
-Karin Krog & Bengt Hallberg - Cabin In The Sky (2011) Gazell [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just You, Just Me [3:03]
-02. Young at Heart [3:56]
-03. Time After Time [3:59]
-04. Prelude to a Kiss [5:29](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10287B92EB7948908235A949256456080606EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602306   (1046143) от 05.01.2023
-
-Paul Constable - Warmer Places (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warmer Places (2:55)
-02. Pay to Play (3:09)
-03. Hold On (4:08)
-04. Wasting Time (2:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931068AEE2EEE4148AA6045303C958BC22CE772A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602278   (1046142) от 05.01.2023
-
-Aerovokzal - Пропасть (2022) [MP3|320 Kbps] <Alternativo, New Wave>
+Hilljack - Hilljack (1997) [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046142.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Мечта [00:04:22]
-02 - Я знаю [00:02:44]
-03 - Двери [00:03:20]
-04 - Письмо [00:03:15](   Читать дальше...   )Жанр: Alternativo, New WaveПродолжительность: 00:30:07
+01. Ain't No Fun
+02. Too Damn Sober
+03. Just An Alcoholic
+04. I'll Drink To That(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD08FC8631C50DF4FE6EBBE90BE1CCD89D119D35
+magnet:?xt=urn:btih:66C69058F3174B59E39C8E5475A2BD2B48C960A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,28 +577,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602286   (1046141) от 05.01.2023
+###  Публикация: 1602162   (1046220) от 04.01.2023
 
-Viky Abyss - В голове (2022) [MP3|320 Kbps] <Industrial Metal>
+DeGarmo & Key - The Pledge (1989) [FLAC|Lossless|image + .cue] <AOR>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046141.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046220.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - В путь! [00:00:54]
-02 - Болен мечтой [00:03:45]
-03 - Весна [00:04:14]
-04 - Взрыв [00:03:30](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:27:08
+01. Boycott Hell
+02. Aliens and Strangers
+03. I'm Accepted
+04. Hand in Hand(   Читать дальше...   )Жанр: AORПродолжительность: 00:38:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ABEFA12C670E078EF755698B4C565E663050718
+magnet:?xt=urn:btih:784C1C4C7DF035E66DE364E28C03018F82360428
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,85 +606,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602505   (1046140) от 05.01.2023
+###  Публикация: 1602232   (1046219) от 04.01.2023
 
-Frostbitt - Machine Destroy (2023) [MP3|320 Kbps] <Nu-Metal, Math Metal, Progressive Metal, Djent>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MACHINE DESTROY [00:03:40]
-02. Masked Ghost Host [00:03:25]
-03. Full Body Plutonium [00:04:11]
-04. Skeleton Dance [00:03:59](   Читать дальше...   )Жанр: Nu-Metal, Math Metal, Progressive Metal, DjentПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811C767AC04CBB8C271DDA7B44BD0696E5F927B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602271   (1046139) от 05.01.2023
-
-24x96 - Toxic Indie (2023) [MP3|320 Kbps] <Experimental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Древесные слухачи [00:02:28]
-02 - Ксв [00:02:33]
-03 - Руморэ латино [00:03:36]
-04 - Редько-хреновый джем [00:01:14](   Читать дальше...   )Жанр: Experimental RockПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC29C4CA5DCA1DA3973BDAC7558155F29A03281E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602450   (1046138) от 05.01.2023
-
-Чарли Чейз. Его деревянная свадьба / His Wooden Wedding (1925) WEBRip
+Чарли Чейз. Привет, малышка! / Hello, Baby! (1925) DVDRip
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046138.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чарли собирается жениться, и его шаферу (подлый интриган!) нужны две вещи: невеста Чарли и семейный бриллиант, который Чарли подарил ей в качестве подарка на помолвку. Поэтому он пишет Чарли анонимную записку, что у его невесты деревянная нога. Звучит глупо? Да, но это работает и следует несколько озорных,  веселых эпизодов.
-
-Прелесть великолепных комедий Чарли Чейза (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Кэтерин Грант, Гэйл Генри, Фред Десильва, John Cossar, Лэсси Лу Ахерн, Хелен Гилмор, Энн Ширли, Дороти Ширли, Лайл ТайоПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:19:34
+На порог дома молодой пары подбросили младенца. О-о, они очень хорошие и добросердечные люди. И готовы принять в семью нежданный сюрприз. Да вот жизненного опыта у них маловато. И если малыш плачет без перерыва полночи, ему кроме любви еще что-то надо?Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Кэтерин Грант, Аль ХаллеттПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:10:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05BF075668D92B54FD3EF824B63AB04BC037BA64
+magnet:?xt=urn:btih:D5650F8B707CF0CE71750E3784B766E1A6EAD037
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,28 +632,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602302   (1046137) от 05.01.2023
+###  Публикация: 1602080   (1046218) от 04.01.2023
 
-Mark Pocket Goldberg - Off-Balance Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+Satanic Warmaster - Aamongandr (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046137.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Matter of Time (4:03)
-02. What You Gotta Have (3:46)
-03. Babblin' Blues (4:10)
-04. Face in Disguise (3:46)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:45:40
+01. Bafomet [00:05:27]
+02. Duke's Ride [00:06:28]
+03. Beserk Death [00:05:09]
+04. The Eye of Satan [00:05:01](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:36:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6B274803356B7AC69C3F0184AC08C48E7C91374
+magnet:?xt=urn:btih:D46DC5C49ADD894C991794539C26427D4DDB0B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602090   (1046217) от 04.01.2023
+
+Nocturnal Departure - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ceremonial Storm [00:04:17]
+02. Dark Spells of the Infernal Spirit [00:03:53]
+03. Clandestine Theurgy [00:03:42]
+04. Unhallowed Exhumation [00:03:11](   Читать дальше...   )Жанр: Black MetalПродолжительность: 2 CD, 01:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BBB4203AFB6D4DDCC80BA5B5EB3967B614D73F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602151   (1046216) от 04.01.2023
+
+Beggars & Thieves - Beggars & Thieves (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Broken Dreams
+02. Billy Knows Better
+03. Waitin' For The Man
+04. Your Love Is In Vain(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF7F8EC3D000FD01E068A288815A162E2C9AC71
 ```
 
 https://mybot314.ru/tekegram_catalog/

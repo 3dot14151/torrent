@@ -1,3 +1,32 @@
+###  Публикация: 1080139   (290081) от 06.12.2016
+
+Julian Bream - Lute Music from the Royal Courts of Europe (volume 2) (1966-76) 1993 BMG Music [FLAC|Lossless|image + .cue] <Classical, Instrumental, Lute.>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Landgrave of Hesse Mauritius - Pavan (5:27)
+02.Simone Molinaro - Saltarello (1:14)
+03.Simone Molinaro - Ballo detto Il Conte Orlando (2:15)
+04.Simone Molinaro - Saltarello (1:13)(   Читать дальше...   )Жанр: Classical, Instrumental, Lute.Продолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2143220DA0782A87275468A7F5CA8A55B1628006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080170   (290076) от 06.12.2016
 
 Mozart, Herbert von Karajan, Berliner Philharmoniker - Requiem (1961) 1989 Deutshe Grammophon [FLAC|Lossless|image + .cue] <Vocal-symphonic>
@@ -711,35 +740,6 @@ Katherine Jenkins - Guiding Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Classica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:856F030CE1FAFA13738032CEBB5F3504E1E5D018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338767   (268122) от 17.11.2019
-
-Opera Babes ‎ - Beyond Imagination (2002) [FLAC|Lossless|image + .cue] <Classical Crossover, Modern Classical, Electronic>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Fine Day (Un Bel Di From Madame Butterfly) (3:01)
-02. Sempre Ricordo (Grieg Piano Concerto In A Minor) (5:23)
-03. There's A Place (From The New World Symphony) (4:37)
-04. Beyond Imagination (From A Midsummer Night's Dream) (5:04)(   Читать дальше...   )Жанр: Classical Crossover, Modern Classical, ElectronicПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4FB9999F292314950AAC208EABD35D6B6EC5F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

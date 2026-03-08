@@ -1,3 +1,32 @@
+###  Публикация: 1338537   (268185) от 17.11.2019
+
+VA - Best tracks of Transitions by John Digweed on Kiss 100. 2007 Volume 4 (2019) Compiled by Firstlast [MP3|192-320 Kbps] <Progressive House, Techno House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rufus Wainwright - Tiergarten (Supermayer remix) (7:21)
+02. Phonique - Worked It Out (Charles Webster's First remix) (4:21)
+03. Sian - Apple Tree (5:45)
+04. Martin Landsky - Let Me Dance (5:22)(   Читать дальше...   )Жанр: Progressive House, Techno House, Deep HouseПродолжительность: 08:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34310948CA883CB31FC918D3C68C8025242B0F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190369   (267665) от 09.12.2017
 
 VA - Clubland House: The Diamond Edition (2017) [MP3|320 Kbps] <Electro, Progressive House>
@@ -716,35 +745,6 @@ VA - Умная Электроника (Музыка Поднимающая На
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDD5DB41F2CB8AF4C21C79F7F8A01E207897EFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340501   (263610) от 24.11.2019
-
-VA - Record Super Chart 614 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
-02. Audiosoulz - Dancefloor 3:13
-03. C-BooL - Catch You 3:13
-04. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDBB877CF06B9767FA793C9E8595B03F6A14542
 ```
 
 https://mybot314.ru/tekegram_catalog/

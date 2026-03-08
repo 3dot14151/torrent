@@ -1,3 +1,32 @@
+###  Публикация: 997055   (877557) от 15.03.2016
+
+VA - Music For Everyone - Chillstep & Dubstep Vol.4 (2016) [MP3|320 кб/с] <Chillstep, Dubstep, Future Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877557.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. SizzleBird - Wheel Of Time (Original Mix)
+2. Kid Zion – Awaken Here (Original Mix)
+3. Didrick - A Part Of You (WRLD Remix)
+4. Jex – You (Original Mix)(   Читать дальше...   )Жанр: Chillstep, Dubstep, Future BassПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0606A4BA65EBAB86D9A684BD020D42965BEC560B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373901   (876933) от 08.04.2020
 
 VA - The Surfing Happiness (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
@@ -722,35 +751,6 @@ VA - Summer Escape: Deep House Mixtape (2021) [MP3|320 Kbps] <Deep House, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:410A6149EDB3BBDD3989AA1E518EA8B459FF3731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496449   (873026) от 17.09.2021
-
-VA - The Sedated Harmony (2021) [MP3|320 Kbps] <Vocal House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873026.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Riot Ten & Whales - Save You
-002. Yves V - Echo
-003. Belcampo - Your Kissing
-004. Laminin Music - Moments Of Bliss(   Читать дальше...   )Жанр: Vocal House, Club, DanceПродолжительность: 07:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8197D781DE746837423E90D5B72872D8A14529E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

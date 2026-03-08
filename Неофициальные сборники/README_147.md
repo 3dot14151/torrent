@@ -1,3 +1,177 @@
+###  Публикация: 1006824   (824983) от 13.04.2016
+
+VA - Весенние хиты популярный сборник (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Павел Воля - Если Б
+02. Профилактика - Это Не Сон
+03. Dr Meaker Feat. Laurent John - Good Fight
+04. Dimitri Vegas & Like Mike Vs. Ummet Ozcan - The Hum(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C1D129FBFC383E3228423FBF06FC9F69563A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116122   (824968) от 19.03.2017
+
+VA - Minimal Tech House: 120 Club Party (2017) [MP3|320 Kbps] <Dance, Club, Minimal Tech House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824968.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Branzei - I'll Never Be Free (Original Mix)
+002. Luc Angenehm - Glow (Feat. Matthias Propach)
+003. Dogus Cabakcor - Trouble (Original Mix)
+004. Soukie & Windish - Flatemate Ghost (Kellerkind Remix)(   Читать дальше...   )Жанр: Dance, Club, Minimal Tech HouseПродолжительность: 13:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97AF19092E6AE145E07D6647A2DF96F8D3DABD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007014   (824921) от 13.04.2016
+
+VA - 50 оттенков музыки 18+ (01.2016) [MP3|128-320 кб/с] <House, Blues, Rock, Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824921.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ben Howard - Oats In The Water
+002. Yuna - Lullabies (Bentley Grey Remix)
+003. Hess Is More - Yes Boss
+004. Tori Amos - Cornflake Girl(   Читать дальше...   )Жанр: House, Blues, Rock, Downtempo, Chillout, LoungeПродолжительность: 13:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DE009D6B7E4F052D282A4C120386BBC1A1D0B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381879   (824605) от 08.05.2020
+
+VA - Chill Tracks By Blank & Jones (2020) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones, Zoe Durrant - One Evening 3:34
+02. Runsq - Stay Home & Chill 2:55
+03. Blank & Jones - High Fly 4:20
+04. Blank & Jones - Desire (The Swan And The Lake Remix) 4:32(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 04:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D316BDD59ED50A2ED5259A3E2EF5025C0D59D9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115812   (824579) от 19.03.2017
+
+Mungo Jerry - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Skiffle Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All That A Woman Should Be (Bonus)
+02. Hello Nadine
+03. I've Got The Blues
+04. In The Summertime(   Читать дальше...   )Жанр: Blues, Skiffle BluesПродолжительность: 02:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B172BEE8151E196E1689C1C911C6297F0CD725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381717   (824475) от 08.05.2020
+
+VA - Italo Disco (2020) [MP3|320 Kbps] <Italo Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Bano & Romina Power - Felicità 3:12
+02. Ryan Paris - Dolce Vita 3:56
+03. Sabrina - Boys (Summertime Love) 3:58
+04. Baltimora - Tarzan Boy 3:50(   Читать дальше...   )Жанр: Italo Disco, Euro-DiscoПродолжительность: 03:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E42AB82C16B86B2A805482E6607F2C78D4F087E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381776   (824464) от 08.05.2020
 
 Styx - Best of the Best (1972-2017) 2 CD (De-Noised) (2020) Remaster SMRP [MP3|320 Kbps] <Progressive Rock, Hard Rock>
@@ -571,180 +745,6 @@ VA - Beatport Progressive House: Sound Pack #356 (2021) [MP3|320 Kbps] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CB90868B0C58EC7F98DAB31D13F83939FA7DCDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502814   (823032) от 17.10.2021
-
-VA - Autumn Vibes: Pop Dance Session (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823032.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Glasperlenspiel - Geiles Leben
-002. Nelly Furtado - All Good Things
-003. Jupiter & Okwess - Abalegele Gale
-004. Kidz Bop Kids - Blinding Lights(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3C4F607D64F4685C8A1F98F5AF70AE11593D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007176   (823022) от 14.04.2016
-
-Михаил Шуфутинский - Я просто медленно люблю (2016) [MP3|320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Люди добрые
-02. Шансон
-03. А душа ее ждет
-04. Я тобой дорожу(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845809734200D4BF3F3E5A83191305E50A45DFEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116694   (823004) от 20.03.2017
-
-VA - Beatport Trance Pack (20.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  David GATE - Skyline (Original Mix)  7:25
-02.  Attila Syah & LTN - Bromo (Original Mix)  6:30
-03.  James Cottle - Kesselhaus (Extended)  6:30
-04.  Ben Gold - Pilot (Extended Mix)  5:37(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 05:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A92A693374C644AA09C71B02AB59FEDF34BB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116562   (822997) от 20.03.2017
-
-VA - The IDM Sounds: March Version (2017) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822997.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hardwell & W&W - Get Down (Original Mix)
-002. Erdem Berk - Get Over You - Original Mix
-003. Zaebitsu & Misha Jet - Freak On, Freak On ! (Trap54 Mix)
-004. Chris Janitor - Sign (Alex Hilton Remix)Жанр: Club, Dance, Electro HouseПродолжительность: 10:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA460238980C4C9CDEAE13459F203C273ED9013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116407   (822890) от 20.03.2017
-
-VA - Record Super Chart #479 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  3:20
-02.  Klaas - Riot (Extended Mix)  4:00
-03.  Estradarada - Вите Надо Выйти (Misha Klein Remix)  4:18
-04.  Ed Sheeran - Shape Of You (Holderz Remix)  4:07(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DEECB3E2F5224489DCB08BC29AE73C83677856E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381996   (822767) от 09.05.2020
-
-VA - German Top 100 Single Charts 08.05.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capital Bra x Loredana - Nicht verdient
-02. UFO361 - Emotions
-03. Shirin David - 90-60-111
-04. The Weeknd - Blinding Lights(   Читать дальше...   )Жанр: PopПродолжительность: 05:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28B45129E02E6E2BD9582C702AC858B77DC886E
 ```
 
 https://mybot314.ru/tekegram_catalog/

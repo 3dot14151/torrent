@@ -1,3 +1,61 @@
+###  Публикация: 1585160   (222290) от 21.10.2022
+
+Ярослав Евдокимов - За белою рекой... (2006) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Фантазёр
+02. Колодец
+03. За белою рекой
+04. Колокольчик(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9F32976003CEF493EDEF611557E52F852438F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651345   (222288) от 06.08.2023
+
+Bill Wray - Seize The Moment (1983) Reissue, Remastered, 2023, Bad Reputation [FLAC|Lossless|image + .cue] <Pop Rock, AOR, Arena Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_222288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (You’re A) Heartbreaker (3:21)
+02. She Loves The Radio (3:19)
+03. Goin’ Down (3:55)
+04. After All These Years (3:38)(   Читать дальше...   )Жанр: Pop Rock, AOR, Arena RockПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F6AA300BE8C2FD61EE3F1843FB51F07740BDBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651411   (222273) от 06.08.2023
 
 Odds - Crash The Time Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop, Pop Rock>
@@ -685,70 +743,6 @@ Annie Lennox - Diva (1992) Reissue, 2007, BMG Japan [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6EFD7C568AF9C2FAB5A20C0E684C84FD348C9B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084240   (220778) от 18.12.2016
-
-Sandra - Fading Shades (1995) [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_220778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fading Shades (Part I) (1:03)
- 02. Nights In White Satin (3:36)
- 03. Son Of A Time Machine (5:07)
- 04. Won't Run Away (4:17)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3E61E505BF79CDF49BB403ECF2C9F53ADD0D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586961   (220762) от 11.12.2012
-
-Tina Turner - The Collected Recordings - Sixties To Nineties [3CD Box Set] (1994) [MP3|320 кб/с]<Pop, Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220762.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Let's Stay Together (5:17)
- 2. What's Love Got To Do With It (3:46)
- 3. Better Be Good To Me (5:10)
- 4. Private Dancer (7:11)
- 5. I Can't Stand The Rain (3:43)
- 6. Help (4:30)
- 7. We Don't Need Another Hero (Thunderdome) (4:15)
- 8. Typical Male (4:15)
- 9. What You Get Is What You See (4:27)
- 10. Paradise Is Here (5:29)(   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64BD959B68E06B01E766A179BBD63F410A3E1466
 ```
 
 https://mybot314.ru/tekegram_catalog/

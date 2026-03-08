@@ -1,3 +1,61 @@
+###  Публикация: 1134324   (687084) от 16.05.2017
+
+Carla's Dreams - Antiexemplu (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Antiexemplu  3:32
+02.  Imperfect  3:34
+03.  Tu Si Eu (feat. INNA)  3:11
+04.  Ne Bucuram In Ciuda Lor  3:21(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BB72A9D2CFBF4D3A7F1F9AF02F92B21AD11E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134723   (687079) от 16.05.2017
+
+ВИА Гра - Стоп! Снято! (2003) [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стоп! Стоп! Стоп! [03:44]
+02. Good Morning, Папа! [03:34]
+03. Убей Мою Подругу [03:44]
+04. Не Оставляй Меня, Любимый! [03:31](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C932ABAED207624374F1E334F46072540F6749BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134677   (686786) от 16.05.2017
 
 Cappella - Best Of (2017) 2CD [MP3|320 Kbps] <Eurodance>
@@ -684,64 +742,6 @@ VA - Let's Dance - Party Pur (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-dance, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2B72E5A27747B2752EC828E1AE1BC79FF5A7216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289886   (684325) от 17.03.2019
-
-Orchester Anthony Ventura - Fantastic Dance Party (1978) LP [MP3|320 Kbps] <Pop, Disco, Easy Listening, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ha!Ha! Said The Clown / Peggy Sue (3:31)
-02. Rivers Of Babylon / Hang On Sloopy (4:58)
-03. Oh, Carol / Zusammenleben (4:09)
-04. Mr. Tambourine Man (3:07)(   Читать дальше...   )Жанр: Pop, Disco, Easy Listening, SchlagerПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D705E2C937F13FFBBE9AC75F8712967ACD0534CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289887   (684324) от 17.03.2019
-
-David Cassidy - Rock Me Baby (1972) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684324.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Rock Me Baby 3:25
-A2. Lonely Too Long 3:19
-A3. Two Time Loser 3:15
-A4. Warm My Soul 2:54(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:217DBC4CF7260CDBB13199525345C80C9888C5C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1814698   (5708) от 27.08.2025
+
+VA - Music News For Forum vol.130 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5708.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юлия Кукина - Я поднимаю градус наш (03:25)
+ 002. 5 Пятниц - Кома (02:06)
+ 003. 220 KID & Justin Jesso - Sleep Alone (03:23)
+ 004. AERTIAO & POLZA - Трачу (02:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936E01B113AC4D4626DE3928521B3C532007D627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815138   (5630) от 28.08.2025
+
+VA - Party Mix 80s 90s 00s 10s 20s (2025) [MP3|320 Kbps] <Pop, Dance, Disco, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5630.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - Daryl Hall & John Oates - You Make My Dreams (Come True) - (03:11)
+ 002 - Eurythmics - Sweet Dreams (Are Made of This) (2005 Remaster) - (03:37)
+ 003 - Michael Jackson - Billie Jean - (04:54)
+ 004 - George Michael - Faith (Remastered) - (03:13)(   Читать дальше...   )Жанр: Pop, Dance, Disco, RockПродолжительность: 22:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2EA0F2F6F7EB216424993DB927ACAA6C406052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815184   (5419) от 29.08.2025
+
+VA - Dance Remix Cover  Vol. 2 (2025) [MP3|320 Kbps] <Dance, R&B, Hip Hop, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5419.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - Jerzy Bulx - All I Ever Wanted - (02:05)
+ 002 - David Guetta - Forever Young - (02:37)
+ 003 - W&W - Danza Kuduro (Remix) - (02:49)
+ 004 - Klaas - Sun Is Up (Michael Roman & Mazza Remix) - (02:13)(   Читать дальше...   )Жанр: Dance, R&B, Hip Hop, PopПродолжительность: 08:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7056404661D6B6C075F6B769E8F7DCD7F781375C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814423   (5269) от 30.08.2025
+
+VA - Привет Уходящему Лету (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies, Calum Scott - Where Are You Now - Deluxe Mix (4:14)
+02. Mau P - Drugs From Amsterdam (3:55)
+03. Chrystal, NOTION - The Days - NOTION Remix (3:53)
+04. Peggy Gou - (It Goes Like) Nanana - Edit (3:51)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C3259B6AF572A882E7A9C65503C98A19E13524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764679   (5225) от 30.08.2025
+
+Emin - Compilation (2006-2025) [MP3|320 Kbps] <Soul, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Keeps Beating (After The Thunder 2012)
+02. Always (Good Love 2019)
+03. Always On My Mind (Obsession 2008)
+04. Отпусти и Лети (Love Is 2021)(   Читать дальше...   )Жанр: Soul, PopПродолжительность: 05:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFFA089E5E8BAF43EEE80DE4FB009ECCAE95598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815562   (5191) от 30.08.2025
+
+VA - Music News For Forum vol.131 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5191.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eva Tronza - Была не была (02:10)
+ 002. 2 Chainz - Thought You Loved Me (02:59)
+ 003. 2 Chainz & Youngboy Never Broke Again - I Wanna Win (03:22)
+ 004. 2DICE - No filters (02:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE99D404A5910CEBCFABF7DF2D10397E6FBFF88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815729   (4975) от 31.08.2025
 
 Anna Zueva - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
@@ -571,177 +745,6 @@ VA - Hot 20s Big Hits 100 Songs (2025) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CA2E2E093734384FEB102C8B8883B21A4E312EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816317   (4432) от 04.09.2025
-
-VA - Rainbow Party (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4432.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shouse - Won't Forget You (06:39)
- 002. Orchestral Manoeuvres - Bauhaus Staircase (03:58)
- 003. Shanti Celeste - Butterflies (02:17)
- 004. Gigi Perez - Sailor Song (03:32)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7C56CEAAC60E5C8162AAAC5FB00BA8B56BFAC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816597   (4312) от 05.09.2025
-
-VA - Miss Monique & her friends (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4312.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. HILLS - Teardrops (2:12)
-002. Landau, Scity - Free Yourself (2:37)
-003. David Guetta, Sia, Miss Monique - Beautiful People - Miss Monique Remix (2:38)
-004. Landau, Eemoz - Get'Da (2:42)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 15:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0A904EB693EB221A74EDFE7F8312C15F58843A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814229   (4303) от 05.09.2025
-
-Reyvi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Amore
-02 - Te Busco
-03 - Amore Mio
-04 - Reste Un Peu(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3C96500EE2A7241E96742C90B1ECDEA91EF65C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816701   (4173) от 06.09.2025
-
-VA - ЕвроХит Топ 40 Europa Plus 05.09.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Warren - Ordinary (3:07)
-02. twocolors, Safri Duo & Chris de Sarandy - Head Above Water (2:54)
-03. Blackpink - JUMP (2:44)
-04. Demi Lovato - Fast (3:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DFD639ED027D5FFC04AB95BE05EC442F7C2DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816745   (4094) от 06.09.2025
-
-VA - National Pop Dance Music Vol.119 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4094.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Morgan Wallen - Just In Case (02:46)
- 002. Mats Radberg - Mamma, Lat Inte Din Grabb Vaxa (03:05)
- 003. Imera - Vazgectim (04:28)
- 004. Leif Bloms - Hall Mej Hart (03:01)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0858EEA581EB4CEF6D3DD9FFCD35AE16F23914E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816985   (3943) от 07.09.2025
-
-VA - Дискотека 2025 Dance Club Vol. 230 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, OtherПродолжительность: 18:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E933CF30B5927A22FC8C27145F005742745669B
 ```
 
 https://mybot314.ru/tekegram_catalog/

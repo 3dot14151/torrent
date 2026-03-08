@@ -1,3 +1,32 @@
+###  Публикация: 981941   (950138) от 02.02.2016
+
+Deborah Brown - Jazz 4 Jazz (1988) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Little Esther [05:09]
+ 02.Denise [04:27]
+ 03.Finally [06:35]
+ 04.It Don't Mean A Thing (If It Ain't Got That Swing) [04:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC113479CDADD5F7F2150AD4B529263D4815FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 858347   (950023) от 10.01.2015
 
 VA - Simply dinner jazz (2008) 4CD [FLAC|Lossless]<Jazz, Smooth Jazz, Contemporary Jazz, Crossover Jazz, Easy Listening>
@@ -714,35 +743,6 @@ Frances Wayne - The Warm Sound (1957) Remaster, 2012, Warner[FLAC|tracks+.cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7879E0F4D04E697CB665E802B253FE578901523B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363051   (945323) от 26.02.2020
-
-Nat King Cole - Hittin' the Ramp: The Early Years 1936-1943 (2019) 7CD, Resonance Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945323.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Honey Hush [2:53]
-02. Stompin' at the Panama (Skoller's Shuffle) [2:59]
-03. Bedtime (Sleepy Moan) [2:55](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Piano JazzПродолжительность: 08:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C650D29E8A23A1A4C67476ED731C88F5885AAFD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

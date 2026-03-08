@@ -1,3 +1,32 @@
+###  Публикация: 1290277   (680542) от 19.03.2019
+
+The Dan Barrett Octet - Strictly Instrumental (1987) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Fashioned Love [3:31]
+02. Somebody Loves Me [3:17]
+03. Quasimodo [3:55]
+04. The Minor Infraction [2:58](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A8DF5DFBFD4818D18EBEDE39B1214D3529BE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535954   (680518) от 09.03.2022
 
 Ruby Braff And Ellis Larkins - Calling Berlin, Vol. 1 (1994) 1995, Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -716,35 +745,6 @@ Phronesis - We Are All (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2958B3CEB5CFB1BED0D410CDD18915FBFB8232D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290288   (678493) от 20.03.2019
-
-Susie Arioli - Christmas Dreaming (2010) Spectra Musique [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have Yourself a Merry Little Christmas [4:10]
-02. Winter Wonderland [2:54]
-03. Blue Christmas [3:17]
-04. Call Collect on Christmas [3:37](   Читать дальше...   )Жанр: Vocal Jazz, ChristmasПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAAD99AE648F5A52D5765B9B03F8E40B8D3E3E33
 ```
 
 https://mybot314.ru/tekegram_catalog/

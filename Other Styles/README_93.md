@@ -1,3 +1,32 @@
+###  Публикация: 858369   (555337) от 07.06.2019
+
+VA - Тупой и еще тупее 2 / Dumb and Dumber To (2014) [MP3|320 кб/с]<Sountrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empire of the Sun - Alive
+02. Natural Child - She Got A Mind
+03. Franz Ferdinand - Right Action
+04. Eels - Mistakes of My Youth(   Читать дальше...   )Жанр: SountrackПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C84D44226442056C533E3DF4BE66A92685686A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306964   (555220) от 08.06.2019
 
 Mariee Sioux - Grief in Exile (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie-Rock>
@@ -716,35 +745,6 @@ CD1: Pure & Simple
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06BAADA5F1D5286D1F809BDAA8DD3F18F031974D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047068   (550938) от 28.08.2016
-
-Shabala - Shabala (1998) [MP3|320 Kbps] <World, Tribal, Dance>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandala (3:04)
-02. Yeka Yeka (3:21)
-03. Samana (5:44)
-04. Santana (3:29)(   Читать дальше...   )Жанр: World, Tribal, DanceПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319E61BF907F16EE9F4D1BE5C623F46FE63775DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

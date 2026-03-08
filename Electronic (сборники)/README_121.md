@@ -1,3 +1,32 @@
+###  Публикация: 1047559   (549256) от 30.08.2016
+
+VA - Groove Moonshine Lightings (2016) [MP3|251-320 Kbps] <Club, Funky, Tech, Soulful, UK Garage>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lina Fouro - Bang Bang Baby 03:20
+02. Spencer And Romez - Give You My Heart (Extended Mix) 03:53
+03. Smile Davis - I Cant Get Home (Tnr House Mix) 04:37
+04. Armin Van Buuren Feat. Bullysongs - Freefall (De Hofnar Remix) 03:08(   Читать дальше...   )Жанр: Club, Funky, Tech, Soulful, UK GarageПродолжительность: 06:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC7DBD88CF8F9555E3A2D23AE1B8F1AE82757B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047413   (549251) от 30.08.2016
 
 VA - 100 Dance Vol.2 (2016) [MP3|320 Kbps] <Dance, Club>
@@ -719,35 +748,6 @@ VA - Beatport Top 100 Tech House August (2016) [MP3|320 Kbps] <Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:610B948FC814F11B2222E90BBA94D24A37C7316A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048793   (545734) от 03.09.2016
-
-VA - Beatport Top 100 Deep House August (2016) [MP3|320 Kbps] <Deep House, House, Electronica, Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545734.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Duke Dumont - Be Here (Original Mix)
-002. Martin Waslewski - Clouds (Purple Disco Machine Remix)
-003. Marc Romboy, Stephan Bodzin - Atlas (Adriatique Remix)
-004. Golden Summer - In The City (Claptone Edit)(   Читать дальше...   )Жанр: Deep House, House, Electronica, DiscoПродолжительность: 12:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE074A4F14F698B67BBBC2E85E00F65A0D648C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

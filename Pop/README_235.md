@@ -1,3 +1,61 @@
+###  Публикация: 1582100   (324591) от 08.10.2022
+
+Sarah Brightman - Harem (2003) [OGG Vorbis|484 Kbps] <Electronic, Classical, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harem
+02. What A Wonderful World
+03. It's A Beautiful Day
+04. What You Never Know(   Читать дальше...   )Жанр: Electronic, Classical, AmbientПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1E9F62EA8ABF110AF5944B182B0E1DC8E5014C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582094   (324587) от 08.10.2022
+
+Sarah Brightman - Classics (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria (New Recording)
+02. La Wally
+03. Winter Light (New Recording)
+04. Anytime, Anywhere(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47595C5B9CABB7A10882F2D15208E014A440405F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582197   (324586) от 08.10.2022
 
 Sarah Brightman - Symphony (2007) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
@@ -700,64 +758,6 @@ Laura Branigan - Self Control (2020) 2 CD Expanded Edition [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D909E7AC84F75CACD478DCFE87CD2E0CDC4C81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421104   (321904) от 03.11.2020
-
-Bad Boys Blue - Tears Turning To Ice (2020) [MP3|320 Kbps] <Dance, Pop, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killers (03:49)
- 02. Tears Turning to Ice (03:19)
- 03. Love Love Love (02:56)
- 04. A Million Times in Heaven (04:07)(   Читать дальше...   )Жанр: Dance, Pop, Euro-DiscoПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B6340AB80F7393C35B55FB84713B2D562A1D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181719   (321435) от 08.11.2017
-
-VA - The Remixed Dance Sensations (2017) [MP3|320 Kbps] <Eurodance, Eurodisco, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ABBA Revival Band - Super Trouper (Dance Remixed Version)  3:34
-02.  Donna Summer - Nice To See You (Radio Club Version)  3:27
-03.  Goombay Dance Band - Sun Of Jamaica (Remixed Version)  4:24
-04.  DJ Bobo - I Love You (Home Club Mix)  6:46(   Читать дальше...   )Жанр: Eurodance, Eurodisco, EuropopПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E80B35BB612940F88B85116E4AB379DACCFC393
 ```
 
 https://mybot314.ru/tekegram_catalog/

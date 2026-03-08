@@ -1,3 +1,32 @@
+###  Публикация: 1851471   (1055332) от 02.02.2026
+
+VA - Undercover Angel: 70's Nostalgia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul, R&B, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055332.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Undercover Angel - Alan O'Day - (03:31)
+002. What a Fool Believes - The Doobie Brothers - (03:40)
+003. Right down the Line - Gerry Rafferty - (04:28)
+004. Da Ya Think I’m Sexy - ROD STEWART - (05:31)(   Читать дальше...   )Жанр: Pop, Rock, Soul, R&B, Funk, DiscoПродолжительность: 6:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766898C3509B9965280081BA3A53E636690AAA67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850243   (1054253) от 26.01.2026
 
 Alexander Rybak - Fairytales (2009) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ The Les Humphries Singers - Greatest Hits (1989) Compilation, WEA [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B86CC1BAFC293E10D4C013D10417E0A559B945A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601892   (1046252) от 03.01.2023
-
-Les Humphries Singers - The Best Of (2020) Rerecorded, OVC Media [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock, Gospel>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh! Happy Day (Rerecorded) [00:04:47]
-02. Guantanamera (Rerecorded) [00:03:16]
-03. Mexico (Rerecorded) [00:04:08]
-04. Palma Majorca (Rerecorded) [00:04:56](   Читать дальше...   )Жанр: Soft Rock, Pop Rock, GospelПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D84E31D0F32970F2D4D2D8A9C146D823D37E84
 ```
 
 https://mybot314.ru/tekegram_catalog/

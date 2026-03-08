@@ -1,3 +1,61 @@
+###  Публикация: 1544797   (618306) от 17.04.2022
+
+Swedish House Mafia - Paradise Again (2022) [MP3|320 Kbps] <Bass House, Disco House, French House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia feat. Mapei - Time (Co-Prod. by Enzo Ingrosso)
+02. Swedish House Mafia & Connie Constance - Heaven Takes You Home (Co-Prod. by Klahr)
+03. Swedish House Mafia feat. Jacob Mühlrad - Jacob's Note
+04. Swedish House Mafia & The Weeknd - Moth To A Flame(   Читать дальше...   )Жанр: Bass House, Disco House, French HouseПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E4B115E0644D7534A52C7C21AAA42F8C2DF0AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146043   (618239) от 27.06.2017
+
+VA - Get On Your Surfboard: Summer (2017) [MP3|320 Kbps] <Progressive, Electro, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duna Shain - Dolce 02:37
+02. Dexter Morgan - Galaxy 02:33
+03. Distances - Note 02:37
+04. Chris Folkz - Travel 02:56(   Читать дальше...   )Жанр: Progressive, Electro, Future HouseПродолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE74F432EDE81C235699E2E4837C1CC1BE210E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145601   (618232) от 27.06.2017
 
 VA - Midnight Lounge Vol.39 Samba De Verao (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ Michael E - Behind Closed Doors (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:905223AEF6E8E9F93EF9FD8CACB2C2B8E1D1AC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146359   (616089) от 28.06.2017
-
-Way Out West - Tuesday Maybe (2017) [FLAC|Lossless|tracks + .cue] <Progressive House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Away (feat. Eli & Fur) (5:00)
- 02. Set My Mind (3:42)
- 03. Oceans (feat. Liu Bei) (5:01)
- 04. Lullaby Horizon (5:13)(   Читать дальше...   )Жанр: Progressive House, DowntempoПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7455A8553A26721DFA016DE186E85F7AE9686E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146171   (615952) от 28.06.2017
-
-V.A. - Vintage Cafe: Lounge & Jazz Blends Vol.10 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cooltrane Quartet - Purple Rain
-02. Michelle Simonal - This Is What You Came For
-03. Stella Starlight Trio - Get The Party Started
-04. Michelle Simonal - When We Were Young(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65990ABAF8531D264034925F296D0881DCC23A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

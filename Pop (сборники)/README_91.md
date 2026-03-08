@@ -1,3 +1,32 @@
+###  Публикация: 1068017   (382481) от 31.10.2016
+
+VA - XXXL Радио Хиты 50х50 (2016) [MP3|320 Kbps] <Поп, Dance, Рок>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alan Walker - Faded 3:33
+02.Alan Walker - Sing Me to Sleep 3:09
+03.Alekseev - Снов осколки 4:03
+04.Artik & Asti - Тебе всё можно 4:03(   Читать дальше...   )Жанр: Поп, Dance, РокПродолжительность: 05:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D9EE1F749884D0B1D264AA04F7ABD32255ED98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572850   (381681) от 10.11.2012
 
 VA - Осенняя хитовая двухсотка 50/50 (2012) [MP3|128 кб/с]<Pop>
@@ -791,35 +820,6 @@ VA - German Top 100 Single Charts 15.10.2018 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C774185DD51A49BA7139488910FC25BEB225E563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254562   (373002) от 14.10.2018
-
-VA - Play Exclusive Cloud October 2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R3Wind - Behind
-02. Mystic Natives - All For You
-03. MRZY feat. Neila - But You (Original Mix)
-04. The Boatpeople - Es Vedra (Original Mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 04:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767DE11EEDC6924C55A1878FDF4C466C89AF1C68
 ```
 
 https://mybot314.ru/tekegram_catalog/

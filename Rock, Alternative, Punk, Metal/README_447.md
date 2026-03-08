@@ -1,32 +1,3 @@
-###  Публикация: 1035594   (626712) от 17.07.2016
-
-The New Roses - Dead Man's Voice (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Head Or Tails
-02. Thirsty
-03. Partner In Crime
-04. Dead Man's Voice(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78ED523DFB9A91379ECA08B760FB86A733EBE3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035585   (626707) от 17.07.2016
 
 Paul Simon - The Paul Simon Anthology (1993) Unofficial Release [APE|Lossless|image + .cue] <Folk Rock, Acoustic>
@@ -743,6 +714,35 @@ Darkest Hour - The Mark Of The Judas[Remastered] (2015) [MP3|320 кб/с]<Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD0989D8A7155FA84EBD5A155D34BB0093EF632E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909771   (626280) от 18.06.2015
+
+Scream Silence - Heartburnt (2015) [MP3|320 кб/с]<Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born With Blood On My Hands 06:10
+02. Art Remains 03:35
+03. The Seventh Sorrow 06:03
+04. We Can Do No Wrong 04:22(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8E3C74A0EB2CFC8E9833A6AABA76E78D1BECFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1196670   (819207) от 05.01.2018
+
+VA - Big Top Winter (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oblomov - We Love Air (Original Mix) 5:36
+02. Hddn - Rixos (Original Mix) 2:11
+03. Veide - Sunny Day (Original Mix) 5:02
+04. Sergey Srost - Summer Mood (Original Mix) 4:21(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F95465581AE2FF36A90AEEE33C961ECD61AF7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196863   (819205) от 05.01.2018
+
+Alpha Delta Division - Outer Rim (2017) Sloboda [FLAC|Lossless|tracks|Vinyl] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outer Rim (13:36)
+ 02. Region 114 (12:51)Жанр: TechnoПродолжительность: 00:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42A3400B7B946EC37701C26B5EC32B9A344CFE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196416   (819200) от 05.01.2018
 
 VA - Suanda Winter Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
@@ -687,64 +743,6 @@ VA - Just Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EECA2F942A7EBAAC073EAF5B4457F403758B941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117605   (817344) от 23.03.2017
-
-VA - Chill Out and Lounge Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roan Portman - Falling (Vechigen Remix)  7:09
-02.  Stars Over Foy - 15 Minutes Of Silence  14:42
-03.  Nagayaki Hushimo - Kurama Silence  8:51
-04.  Vechigen - Magic Frost (Ambient Mix)  3:08(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DED3A55421B2C0C9F0D73F6300BBEFF83910938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117612   (817343) от 23.03.2017
-
-VA - Beach Deep House (2017) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anatoliy Kurakin - Invasion  6:43
-02.  Geogor Dansis - Immensity Of Space  7:20
-03.  Dima Tumbler - Helloween  5:22
-04.  Bendetti - Eastern Illusion  5:36(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B078207F12080A155A86D0CC61714D940ECC8FCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

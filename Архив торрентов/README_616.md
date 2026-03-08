@@ -1,3 +1,29 @@
+###  Публикация: 1367326   (917430) от 15.03.2020
+
+AirFoil 5.8.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917430.jpg" />
+</div>
+
+
+###  Подробнее
+
+AirFoil – специальная программа, позволяющая транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую воспроизводит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.02.2020Разработчик: Rogue Amoeba Software, IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EABAC1FA73410AB2DB1695464AACC8D5D04ABE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367493   (917429) от 15.03.2020
 
 IP Scanner Pro 3.95 [En]
@@ -664,32 +690,6 @@ VA - Driving Trance Volume 09 (2011) [MP3|320 kbps]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BC4B3FCC968CB6219983F332EAB63B0E4A0E719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289354   (917282) от 01.02.2011
-
-VA - Trance Travel Vol.10 (New York City) (2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917282.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Жанр: Vocal Trance, Uplifting Trance, Dream Trance, Trance, Progressive TranceПродолжительность: 01:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635184906150C99835377EBC987C51151EA27ACA
 ```
 
 https://mybot314.ru/tekegram_catalog/

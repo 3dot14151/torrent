@@ -1,3 +1,119 @@
+###  Публикация: 1764572   (34893) от 07.12.2024
+
+VA - Musical kaleidoscope part 15 Electronic, Instrumental, Easy listening (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Dream Music 4
+02. Sisco Le Voyageur - Angelique N°2
+03. Sisco Le Voyageur - Dream Universe
+04. Sisco Le Voyageur - Enigmatic Music 4(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A64C039B999F63B3F19EC88583D4BFF653DCB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764771   (34783) от 08.12.2024
+
+VA - Musical kaleidoscope part 16 Electronic, Instrumental, Easy listening (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Aurm - Lady Love
+02. Stive Morgan - Close to Heaven
+03. Dj Polkovnik - Passacaglia
+04. Vdj Smile - Insomnia 2024(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC640129C351BF28C3F31E4A72330D5978F59117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765052   (34628) от 10.12.2024
+
+VA - Music News For Forum vol.051 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34628.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christina Novelli feat. Linney - Fallen Ones (Tensteps Remix) (02:36)
+ 002. 52Ghz feat. SAMILIA - Не везет с любимыми (02:54)
+ 003. ALEKSIA feat. ISVNBITOV - Скучаю 2 (02:06)
+ 004. Alli - Солнце (02:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB1F1F4D766676C4018F38E7A03640AB633CFAB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523680   (34478) от 12.12.2024
+
+VA - Понемногу отовсюду by Yuridar #Full (1952-2024) Compilation Album [MP3|128-320 Kbps] <Rock, Blues, Others>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 30 Seconds to Mars - 93 Million Miles
+02. 30 Seconds to Mars - A Modern Myth
+03. 30 Seconds to Mars - Alibi
+04. 30 Seconds to Mars - Fallen(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 5 дн., 15:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755B2714BB2F5B6419D310CEACFFE0BD0492CD0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765549   (34270) от 13.12.2024
 
 VA - Music News For Forum vol.052 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ VA - Music News For Forum vol.058 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8207B850324833A3B2F39ECCC418BD558324E333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776996   (28774) от 03.02.2025
-
-VA - Music News For Forum vol.059 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ольга Шультайс - Касаясь (03:09)
- 002. AALLAR feat. Alyssa Raghu - Never Know (02:40)
- 003. Acereda - Cambio De Planes (02:17)
- 004. AGP - The Meaning (02:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B477C08194FE2605DE039879EF1AABE7C4E3EEF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778303   (28286) от 08.02.2025
-
-VA - ЕвроХит Топ 40 Europa Plus 07.02.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ROSE & Bruno Mars - APT (2:49)
-02. Ma Meilleure Ennemie (From The Series Arcane League Of Legends) (2:28)
-03. IVE feat. David Guetta - Supernova Love (3:19)
-04. Ufo361 & Nina Chuba - LIEBE (3:13)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A4DB9DE53CF98BD912DB469BA000A77A42E0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778516   (28256) от 08.02.2025
-
-VA - Music News For Forum vol.060 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28256.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Babasha & Ministerul Manelelor - Alo, Mama (02:49)
- 002. Abraham Colona & Dela Utca feat. Sem - Leave Our Bags Behind (02:06)
- 003. ADDA feat. ReMan - Cine A Pus Femeia In Drum (02:35)
- 004. Ago - Hазбит (02:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FFAFC62365CE54615870A04DAAF0C1E8B4A1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779465   (27728) от 13.02.2025
-
-VA - Music News For Forum vol.062 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27728.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Myra - La fete (03:50)
- 002. 5score - Скучный-Богатый (02:11)
- 003. 52Ghz - Душа солдата (03:39)
- 004. Adyra feat. SEVEN - Poarta-Ma (02:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF269BD0AB50296E3E21493BCB9873F8DBD76C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

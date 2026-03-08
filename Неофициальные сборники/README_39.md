@@ -1,3 +1,177 @@
+###  Публикация: 1482511   (1007596) от 08.07.2021
+
+VA - EDC: Deep House Cafe Del Mar (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apoll - Mental Mox Modus
+02. M.Ono - Super Bock
+03. The Godfathers - Back 2 Back
+04. Audaks - Dance Of The Butterflies(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF9C1AAD7795FF2CAFD7516D104EA73EEAE21AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482505   (1007594) от 08.07.2021
+
+VA - Romantic R&B Sunday (2021) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007594.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mark Morrison - Return Of The Mack
+002. Ben E. King - Don't Play That Song
+003. Ali Caldwell - You Know Ft. Ricky Belfort
+004. Jacob Banks - Numb(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 07:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0618486ED9251F8169FA8C754D64DB459D9199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482682   (1007409) от 09.07.2021
+
+VA - 100 Greatest Modern Indie Songs (2021) [MP3|320 Kbps] <Alternative & Indie>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The 1975 – The Sound (04:08)
+02. Grimes – Kill V. Maim (04:06)
+03. Foals – Mountain at My Gates (04:04)
+04. Arctic Monkeys – Do I Wanna Know? (04:32)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 06:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA402E5FC2C3D464C20A06AD548DFC7D3FC95FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482627   (1007404) от 09.07.2021
+
+VA - Music News vol.114 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007404.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Azealia Banks - Fuck Him All Night (02:56)
+ 002. Afrojack & David Guetta - Hero (Damien N-Drix Remix) (03:37)
+ 003. Ян Марти - Водка, Лёд, Мартини (03:12)
+ 004. Afrojack & David Guetta - Hero (Nicky Romero Remix) (03:12)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7867A233B2956A208C47EDBB1FD61E6CCB4FE80D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482989   (1007140) от 11.07.2021
+
+VA - Record Super Chart 10.07.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minelli - Rampampam (3:20)
+02. Nessa Barrett feat. jxdn - la di die (3:15)
+03. Markul, Джарахов - Я в моменте (2:06)
+04. Inna - Flashbacks (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A420E104DB0EAFF4A4758D01F85140FE380252C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615475   (1007063) от 11.07.2021
+
+VA - Sex у нашому селі (2007) [MP3|256 кб/с]<folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007063.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Коломийка вітальна
+2	Коломийка весільна
+3	Зятьок
+4	Чорнобривці(   Читать дальше...   )Жанр: folkПродолжительность: 06:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DE067828DFB5D48F0773154BF574C836079105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483094   (1007032) от 12.07.2021
 
 VA - Neon Mania: Synth Electronic DJ Mixtape (2021) [MP3|320 Kbps] <Synthwave, Synthetic>
@@ -571,180 +745,6 @@ VA - Наш Тик Ток 2 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2FD6B4C8D0B0D1FBCF31A3F23D34CC7C76655BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485863   (1005078) от 28.07.2021
-
-VA - Feel Good Classic Hits (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prince - Let's Go Crazy (2015 Paisley Park Remaster)
-02. a-ha - Take on Me
-03. Queen - Fat Bottomed Girls (Single Version / Remastered 2011)
-04. ABBA - Take A Chance On Me(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8076E5410675BDB744F6E439EED7E05C7AC32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486089   (1004838) от 30.07.2021
-
-VA - 100 Greatest Soft Rock Songs (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toto - Africa
-02. The Police - Every Breath You Take (Remastered 2003)
-03. Eurythmics, Annie Lennox, Dave Stewart - Sweet Dreams (Are Made of This) (Remastered)
-04. Daryl Hall & John Oates - You Make My Dreams (Come True)(   Читать дальше...   )Жанр: RockПродолжительность: 07:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7242325D7AFE6B195138814E43642CB11969AEAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513185   (1004715) от 31.07.2021
-
-VA - 30 The Final Countdown covers (2009) [MP3|128-320 кб/с]<Rock, Metal, Ska, Reggy>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axel Boys Quartet - The Final Countdown
-02. Norther - The Final Countdown
-03. Skam - The Final Countdown (original mix)
-04. Boney Nem - The Final Countdown(   Читать дальше...   )Жанр: Rock, Metal, Ska, ReggyПродолжительность: 01:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD082E143ABB2D261E0DDC60066E66DD6A041E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524409   (1004698) от 31.07.2021
-
-VA - Тараканы! covers (2010) [MP3|192 kbps] <Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizness Band - Там, где руины превращаются в нас (02:32)
-02. Дочки-Матери - Я не верю (02:24)
-03. Hot Toys - Я смотрю на них (03:01)
-04. Серцевий напад - Кордони гетто (02:50)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C1A8A86690E2DD87073DD649DDD3FFD8697542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486521   (1004604) от 01.08.2021
-
-VA - Beatport Psy Trance: Sound Pack #321 (2021) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004604.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rugrats, Cosmic Illusion - Successful Digits
-002. Psykoveda - Equilibrium Point
-003. Magic Mizrahi - Existence
-004. Need One - Under The Shadow(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D951FFC522B2BD1A8CAAEA6B2316BB7941C534CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486536   (1004602) от 01.08.2021
-
-VA - Beatport Hard Dance: Electro Sound Pack #319 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004602.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lenny Dee - Thunderdome Go Boom
-002. Mike Efex - The Fallen
-003. Sharkey - The Warning
-004. Leighton Smith - Diagnostic(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 08:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D66BA767AA010A49832A955FAD71DF63AE0ACA
 ```
 
 https://mybot314.ru/tekegram_catalog/

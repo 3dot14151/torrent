@@ -1,32 +1,3 @@
-###  Публикация: 1497985   (859766) от 25.09.2021
-
-Steve Hackett - Surrender of Silence (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Obliterati (02:16)
-02. Natalia (06:17)
-03. Relaxation Music For Sharks (Featuring Feeding Frenzy) (04:36)
-04. Wingbeats (05:19)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF38F18F38FBC8BFD48675DFE8C3DECB771D6D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 189962   (859599) от 07.04.2010
 
 Mephisto Walz - Discography (8 albums) (1986-2004) [MP3|192-320 kbps] <Gothic Rock, Deathrock>
@@ -742,6 +713,35 @@ Brainstorm - Wall Of Skulls (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD6C52A9BD214330FEEC1104747AC7AEAFF17325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498364   (858069) от 26.09.2021
+
+Анатомия Меланхолии - Мой бог (2021) [FLAC|Lossless|WEB-DL|tracks] <Melancholic Metal, Instrumental Metal, Melancholic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Разбитые мечты [00:02:41]
+02. Нелюбовь [00:05:02]
+03. Я не знаю [00:04:44]
+04. Их послали в огонь [00:05:46](   Читать дальше...   )Жанр: Melancholic Metal, Instrumental Metal, Melancholic RockПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BE4C9193D5B3AC9C30F3EE8278F41AA1720B37
 ```
 
 https://mybot314.ru/tekegram_catalog/

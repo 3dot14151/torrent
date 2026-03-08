@@ -1,3 +1,61 @@
+###  Публикация: 1143359   (635513) от 18.06.2017
+
+VA - May Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lars - Late Night (Original Mix)  6:35
+02.  T'awi - Output (Original Mix)  7:21
+03.  Alex Numark - Tatyana (Original Mix)  6:25
+04.  DJ 156 BPM - L.A. (Original Mix)  6:11(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2DA290B77DB8D37952F60EB888726D916666E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143200   (635510) от 18.06.2017
+
+VA - Ibiza Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tom Exo - Acqua Alta (Original Mix)  3:11
+02.  Frainbreeze & Cari - Stronger (Steve Allen & Enzo Remix)  3:59
+03.  Attila Syah & LTN - Bromo (Radio Edit)  4:25
+04.  Bogdan Vix & Lucid Blue - I Am Now (Radio Edit)  3:36(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F6AE4FCBAE10B0226109D176CBC079A4A2EFCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143447   (635507) от 18.06.2017
 
 VA - Drink and Beach Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
@@ -688,64 +746,6 @@ VA - Boys & Girls Want to Workout (2017) [MP3|320 Kbps] <Electronic, Dance, Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:539F7742EAD935BA8DB0A3EC7C48B1B2621D9B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143745   (633387) от 19.06.2017
-
-VA - Lunch Break Chill Vol.1: Relaxed Summer Chill Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Luc Forlorn - Satin And Silk  4:14
-02.  Senes - Dai Cresci Un Po' (Marco Celloni Bossa Touch Remix)  4:28
-03.  KoolSax - The Death (Esoteric Mix)  5:14
-04.  Zeequencha - So Alive (Pier-O Soulful Remix)  6:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8462B1C5FE346105FCF72242524CACC1BE03EFF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143844   (633381) от 19.06.2017
-
-Ganz Feld - Bethany (2017) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Trap, Downtempo, Bass>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skyglow (04:09)
-02. Cazic-Thule (04:04)
-03. Blackdragon (04:02)
-04. Revive (04:49)(   Читать дальше...   )Жанр: Experimental, Trap, Downtempo, BassПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2845FFCD641CDC1923591B9A12FEC9B4AEE9ABCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

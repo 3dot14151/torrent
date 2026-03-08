@@ -1,32 +1,3 @@
-###  Публикация: 1569062   (453666) от 12.08.2022
-
-Aurora - 2 Albums (2016-2022) [MP3|320 Kbps] <Hard Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Your Own Reality 03:41
-02. Primaeval Man 04:56
-03. Can't Bring Me Down 03:29
-04. Candy Buds 03:23(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 01:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68854A87D7CAC479B4FA78083CC9AC6E0CCE6E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569264   (453665) от 12.08.2022
 
 Kasabian - The Alchemist's Euphoria (2022) [MP3|320 Kbps] <Indie Rock, Neo-Psychedelia, Electronic>
@@ -738,6 +709,35 @@ Fogteeth - Headspace (2022) [MP3|320 Kbps] <Psychedelic Stoner Rock, Space Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DD2E135AB2565FA25D44802D6A05A267C487ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408802   (451840) от 14.09.2020
+
+Soulwound - The Suffering (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waste of Life [00:04:10]
+02. Ritual Cleansing [00:04:51]
+03. Pleasures [00:06:02]
+04. The Cult of I [00:04:28](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA72B47FCD563FE449730A0CFE9BC8F841C6EE02
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1770953   (31979) от 04.01.2025
+
+VA - The Best Of Italo Disco Vol. 12 (1988) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coo Coo - You Can Set Me Free
+02. Argentinia - Let's All Dance
+03. Barbara - Ciao Boys
+04. Mike Francis - Changes Of The Heart(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A0496D7CEAE88C1840AF61A7F8D751352C3C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770704   (31908) от 05.01.2025
+
+Наталья Ветлицкая - 6 Albums, 4 Singles, 1 EP (1994-2024) [FLAC|Lossless|WEB-DL|tracks] <Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Половинки [00:03:10]
+02. Три дня до сентября [00:04:04]
+03. Мальчики [00:04:24]
+04. Белым снегом [00:03:34](   Читать дальше...   )Жанр: EuropopПродолжительность: 11 CD, 05:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC150383B974A333CA913C289117CC40BCEB3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770564   (31893) от 05.01.2025
 
 Ёлка - Без обид (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative Rock>
@@ -687,64 +745,6 @@ Mflex Sounds - Bad Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD7F33C66AE6CEA37C2C73350BB7DDCCAB644782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776021   (29399) от 29.01.2025
-
-VA - MegaHits 2025 - Die Erste [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gracie Abrams - That’s So True (2:46)
-02. Billie Eilish - BIRDS OF A FEATHER (3:30)
-03. Jazeek - Ma Baby (2:18)
-04. The Weeknd - Timeless (4:16)(   Читать дальше...   )Жанр: PopПродолжительность: 02:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1A512EC4BE89280184DA18E1A0258B898A1D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775902   (29376) от 29.01.2025
-
-VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic, Pop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spinners - Working My Way Back To You Babe
-02. Real Thing - Can You Feel The Force
-03. Instant Funk - I Got My Mind Made Up
-04. Sugarhill Gang - Rapper's Delight(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C95E185476D1E4D10C64D9BE76B1430D74FEFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1498727   (854182) от 28.09.2021
+
+VA - Kiss FM Top 40 (21.09) (2021) [MP3|320 Kbps] <Pop, Dance, Disco, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Sarah Reeves - Tell Me Why (Extended Mix)
+02. Benassi Bros feat Sandy - Illusion (YARS Remix)
+03. Monastetiq & Starving Yet Full - Call On You (Extended Mix)
+04. Minelli - Rampampam (Vadim Adamov & Hardphol Remix)(   Читать дальше...   )Жанр: Pop, Dance, Disco, SynthpopПродолжительность: 03:29:43 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE7D304135D26CEA676D9D9EA04DF75EE109D343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498627   (854178) от 28.09.2021
+
+VA - 90's Mixtape (2021) [MP3|320 Kbps] <Pop, Rock, R&B, Disco, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diddy, 112, Faith Evans - I'll Be Missing You (feat. Faith Evans & 112)
+02. The Goo Goo Dolls - Iris
+03. Cher - Believe
+04. Alanis Morissette - Ironic(   Читать дальше...   )Жанр: Pop, Rock, R&B, Disco, SynthpopПродолжительность: 07:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7F4C2BF65506A786D01BA270515F68B770FB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001078   (853886) от 28.03.2016
+
+VA - All Pop Tracks Place Today (2016) [MP3|320 кб/с] <R&B, Country, Hip-Hop, Indie, Alternative, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alabama Shakes - Gemini 06:35
+02. Mutemath - Vitals 03:58
+03. Walk The Moon - Come Under The Covers 03:51
+04. The Game - Bitch You Ain't Shit 03:05(   Читать дальше...   )Жанр: R&B, Country, Hip-Hop, Indie, Alternative, SynthpopПродолжительность: 10:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0BC49ADB744D5A0BBB9FF440A81DD22170AEC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110345   (853800) от 02.03.2017
+
+VA - Empire Records - ANDRS Parody 2 (2017) [MP3|320 Kbps] <Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Criminal Bass - I Dont Play
+02. Ensaime - Dirty (Original Mix)
+03. Ensaime - All Night Long (Original Mix)
+04. DJ Favorite - Scream (DJ Kharitonov Remix)(   Читать дальше...   )Жанр: ClubПродолжительность: 01:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D390C709B82CBB24375A46FCE507EA8CA7FC652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110321   (853759) от 02.03.2017
 
 VA - Ultimate Hits Hottest Moves (2017) [MP3|320 Kbps] <Dancehall, Latin, Reggae, R&B, Hip Hop, Electro, Future Bass, Trap, Indie Dance>
@@ -631,122 +747,6 @@ VA - Woman’s Day (2017) [MP3|320 Kbps] <Pop , R&B , Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9AFAA60ACCBD43D38B45E72C1B91F975BDA5C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111602   (846738) от 06.03.2017
-
-VA - The Passion Of Reggaeton: February Mix (2017) [MP3|320 Kbps] <Reggaeton, Latin, Hip Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846738.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alejandro Gonzalez - Le Hace Falta Un Beso (Feat. Mike Baha) 3:25
-002. Alkilados - Magdalena 3:19
-003. Alex Sensation - Bailame (Feat. Yandel & Shaggy) 3:56
-004. Jacob Forever - Me Tienes Que Olvidar 3:10(   Читать дальше...   )Жанр: Reggaeton, Latin, Hip HopПродолжительность: 07:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E625B3BF32E09A4E398538362F9AED7FABE9B0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002656   (846661) от 01.04.2016
-
-VA - Самый новый хит в машину. Версия 50/50 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мартин Дин - Падший Ангел (3:32)
-002. Nicole Millar - Tremble (3:18)
-003. Elefunt's Groove - На Одной Волне (3:19)
-004. Brunettes Shoot Blondes - Every Monday (3:15)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB08812006DB6B25206DF4ACC43EB24250A78571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378559   (846609) от 25.04.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 24.04.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights 3:22
-02. Trevor Daniel - Falling 2:39
-03. Doja Cat - Say So 3:58
-04. Little Big - UNO 2:41(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1EAB39FD0649D3831FFFC3330AE254E3B65550C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111610   (846569) от 06.03.2017
-
-VA - Peace Acapella: Grand Hit Collection (2017) [MP3|224-320 Kbps] <RnB, Rap, Hip Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846569.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Swedish House Mafia And Knife Party X Apster And Nlw - Antidote Soundboy (Bonka Mashup) 3:01
-002. Cashis - 100 Racks 3:48
-003. Kalash - Aller Simple 4:13
-004. Alonzo - Binta 3:37(   Читать дальше...   )Жанр: RnB, Rap, Hip HopПродолжительность: 08:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C40D5A3713891191A8DC556C3874F916DC5A3313
 ```
 
 https://mybot314.ru/tekegram_catalog/

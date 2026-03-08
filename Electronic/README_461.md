@@ -1,3 +1,61 @@
+###  Публикация: 1690402   (123908) от 07.01.2024
+
+VA - Winter Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TwoRule - Shivers [03:03]
+02. Moses - Let Me Down Slowly [03:32]
+03. Alperen Ocak - Creepin' (I Don't Wanna Know) [02:54]
+04. TwoRule - Numb [02:41](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE3266E4F7A0683588AF2D7F3CC94B023A24D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690730   (123827) от 08.01.2024
+
+VA - Музыка для сна и прослушивания перед сном (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.I.B. - Games Rain (Chillout Mix) (7:28)
+02. S.A.T - Dream Of The Sea (Chillout Mix) (6:25)
+03. Soulalive - After Sun (Chillout Mix) (6:25)
+04. Seven24 - The Journey (Chris Wonderful Remix) (3:41)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B205BFE085203FC882D718EBEFCEC654DFF1D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690623   (123810) от 08.01.2024
 
 VA - Selador Decade Mix (Mixed by Dave Seaman & Steve Parry) - 2023 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
@@ -681,64 +739,6 @@ Korolova - Live @ Captive Soul , 2GTHR Buenos Aires (2024-01-12) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EFE2AC17F53C3C1E83CF8C08966022E29CD7C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691841   (122928) от 14.01.2024
-
-VA - Real Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dusty Rockers - Tell Me Why (Deep Mix) [03:14]
-02. Burning Grooves - Deserve It (Original Mix) [03:24]
-03. Incredible Motion - Goodbye (Original Mix) [02:46]
-04. Max Clarke - Stayin Forever (Original Mix) [02:45](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5EE6081D6CDCB1345354882F2BB7DF58057C37C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692053   (122904) от 14.01.2024
-
-Antarsys - The North Star (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. North Star [00:04:13]
-02. Star Divination [00:04:38]
-03. Infinity Soundwaves [00:03:56]
-04. Frozen Dragon [00:04:45](   Читать дальше...   )Жанр: Synthwave, Retrowave, DarkwaveПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F38353CD85859D129810F9CD4421726EA0FB2C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

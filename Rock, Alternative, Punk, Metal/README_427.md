@@ -1,32 +1,3 @@
-###  Публикация: 1541008   (646946) от 02.04.2022
-
-Ancient Settlers - Our Last Eclipse (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Into the Depths I Ride (00:05:06)
-02 - Cast in Gold (00:04:00)
-03 - Our Last Eclipse (00:06:01)
-04 - Cerements (00:04:35)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382707A18B47FC95DF7BAAC6EBCA51E43CEB1E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540698   (646943) от 02.04.2022
 
 T. Rex (Tyrannosaurus Rex) - Strange Orchestra - Volume One (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock>
@@ -752,6 +723,41 @@ Conquest - Taste of Life (2015) [MP3|320 кб/с]<Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C42B601558EE33BB587715CE5F083BA95094280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517152   (645826) от 02.07.2012
+
+Bonded By Blood - The Aftermath (2012) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Hear You (3:40)
+02. Shepherds of Rot (5:05)
+03. The Aftermath (5:12)
+04. Crawling in the Shadows (3:08)
+05. In a Wake (3:28)
+06. Repulsive (3:09)
+07. Among the Vultures (2:11)
+08. Show No Fear (5:18)
+09. Restless Mind (4:10)
+10. Left Behind (5:18)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C91DFF0226B68E3AF6CB3B6A2CBFB5174E1A90F
 ```
 
 https://mybot314.ru/tekegram_catalog/

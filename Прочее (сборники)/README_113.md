@@ -1,3 +1,119 @@
+###  Публикация: 1570673   (440657) от 18.08.2022
+
+VA - Whore House The House, Funk Disco Summer Jam (2022) [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Tech House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aruhtra - Come Get My Lovin
+02. Wildcard (US) - Shake Ya Junk
+03. Ivan Kay - Good Times
+04. Alec Lino - Brunch(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Tech HouseПродолжительность: 02:29:27 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595CCA6663BFD2E3409CA198A2892876BD2FD21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570679   (440633) от 18.08.2022
+
+VA - Pina Colada Records Summer Party (2022) [MP3|320 Kbps] <Nu Disco, Soulful, Funky, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chemars - Sticky
+02. Hotmood - Never More
+03. Rick Marshall - The Music
+04. Paco Caniza - Sweet Talk(   Читать дальше...   )Жанр: Nu Disco, Soulful, Funky, Indie DanceПродолжительность: 05:34:59 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CFA4C74640BE0601FD104F3998C58B4CEABFAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570669   (440626) от 18.08.2022
+
+VA - Disco, Club & Dance (2022) [MP3|320 Kbps] <Nu Funky, Indie Dance, Disco, Soulful>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerry Ropero - Celebrate
+02. Block & Crown - One Day
+03. Giorgio Moroder - I Wanna Rock You (ENNE Radio Edit)
+04. Captain Morgan - Body to Body(   Читать дальше...   )Жанр: Nu Funky, Indie Dance, Disco, SoulfulПродолжительность: 02:16:24 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4753B2FC1C791082D8D9F2E744AE1500462D4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409790   (440592) от 19.09.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 18.09.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Eilish - ilomilo (MBNN Remix) (4:54)
+02. twocolors - Lovefool (3:10)
+03. NRD1 - All Good Things (Come To An End) (Extended) (4:24)
+04. Filatov & Karas with Deepest Blue - Give It Away (3:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F2BF43FAD4E98D17BBB05DA5BC800678E17A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164728   (439683) от 10.09.2017
 
 VA - Empire Records – Disco Club (2017) [MP3|320 Kbps] <Deep House, Nu-Disco>
@@ -689,122 +805,6 @@ VA - Disco Chance Real Time: Mashup (2022) [MP3|192-320 Kbps] <Dance, Club, R&B,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:854181FB37E22D57A88EA94790F0CA0FC3092F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571403   (433944) от 21.08.2022
-
-VA - Mojito Mix (2022) [MP3|320 Kbps] <Reggaeton, Mambo & Electro Latino, Dancehall, Reggae Fusion>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex D - Modo Bellakeo (Remix)
-02. Rico - Sabrosa
-03. DJ Pasi - Noche De Fiesta
-04. Charly Rodriguez - La Razon(   Читать дальше...   )Жанр: Reggaeton, Mambo & Electro Latino, Dancehall, Reggae FusionПродолжительность: 01:38:45 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B8C5DBB128A08731B15EE4EDC999D291702B88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571396   (433941) от 21.08.2022
-
-VA - Back 2 Back: Minimal & Tech (2022) [MP3|320 Kbps] <Minimal, Dub Techno,  Deep Tech>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nando - Nyx
-02. Yonel Gee - Soundboard System
-03. Johnny Feyd - Connection
-04. Frank Kramer - Techno Language(   Читать дальше...   )Жанр: Minimal, Dub Techno,  Deep TechПродолжительность: 04:59:29 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3B7FE3EB1C983A09D11F217208D55C0F91BFE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410738   (433876) от 22.09.2020
-
-VA - не Громкие новинки недели 82 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahmed Shad - Я Буду Любить Тебя Всегда (New Version) (2:34)
-02. AMCHI - Много Тайн (3:20)
-03. ARi & Sam Vii - Мальчик Мой (3:21)
-04. Artemiev - Охотник (2:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC8E11E63134317AFCE4321050CBA6CD26ABCBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571407   (433845) от 21.08.2022
-
-VA -  Ibiza Poolside Closing Party (2022) [MP3|320 Kbps] <Funky, Nu Disco, Indie Dance, Afro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sante Cruze - Your Eyes (Sylvan Star Remix)
-02. Crazibiza - Hustlin (House of Prayers Remix)
-03. Honey Love - Took My Love (Original Mix)
-04. Nari - Positano (Original Mix)(   Читать дальше...   )Жанр: Funky, Nu Disco, Indie Dance, Afro HouseПродолжительность: 02:25:49 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A079EE4C06F01C85726908DE02B042DE052698
 ```
 
 https://mybot314.ru/tekegram_catalog/

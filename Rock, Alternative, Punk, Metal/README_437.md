@@ -1,30 +1,3 @@
-###  Публикация: 906614   (637297) от 12.06.2015
-
-Muse - Drones (2015) [FLAC 2.0 24/96|tracks (WEB-DL)] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Inside 04:23
-02.Жанр: Rock, Alternative RockПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F02CE321A188BC2CFDB10526F51DC819A66E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541414   (637263) от 07.04.2022
 
 PanzerkreuzeR - October (2022) [MP3|320 Kbps] <Death Metal>
@@ -750,6 +723,35 @@ Nils Lofgren - Face The Music (9CD) (2014) [MP3|320 кб/с]<Rock, Heartland Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BDA181561461A02E32780C789F46BB2B39AE755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228615   (635826) от 01.06.2018
+
+Kataklysm - Meditations (2018) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guillotine
+02. Outsider
+03. The Last Breath I’ll Take Is Yours
+04. Narcissist(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FEAC6A8218736D0B1A1980803DE5AEC73492E96
 ```
 
 https://mybot314.ru/tekegram_catalog/

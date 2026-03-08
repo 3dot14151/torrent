@@ -1,3 +1,32 @@
+###  Публикация: 1125582   (768103) от 15.04.2017
+
+VA - Sirup Deep Anthems Mykonos (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Croatia Squad - The Best 03:25
+02. Sir Felix - Hope (Nora En Pure Radio Mix) 03:27
+03. Edx - Goombah (Radio Mix) 03:07
+04. Sons Of Maria - Surrender (Radio Mix) 04:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C5A5ADED71F27418AA37DEEAA04713D480B581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125587   (768068) от 15.04.2017
 
 VA - Special Sport Songs 7 (2017) [MP3|320 Kbps] <House, Dance, Club>
@@ -716,35 +745,6 @@ VA - Groovedelicious, Vol. 2 (40 Deep & Tech House Sounds) (2016) [MP3|320 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F016A402FC18015FD86A441E9C89FEBAE547D84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017278   (761115) от 17.05.2016
-
-VA - Future EDM Essentials Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quantum Duxe - Sunwalker (Original Mix) 5:17
-02. Savant - Cassette (Notice Me Senpai Mix) 4:56
-03. Distrix - Violet Skies (Original Mix) 5:06
-04. Sasha Lemon - Sunshine (Original Mix) 4:38(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AA87F15DC250AFDEB74776C57AB8552C7699CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

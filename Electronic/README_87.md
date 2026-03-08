@@ -1,3 +1,61 @@
+###  Публикация: 1371697   (888439) от 01.04.2020
+
+Nicolas Jaar - Cenizas (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Experimental,  Downtempo>
+
+>>Electronic
+>>Downtempo, Ambient (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanish (03:11)
+02. Menysid (03:58)
+03. Cenizas (04:39)
+04. Agosto (02:47)(   Читать дальше...   )Жанр: Experimental,  DowntempoПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839DC04B4978C21101EE42B35913087B6A2DE6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287359   (888426) от 01.04.2020
+
+Flowers for Bodysnatchers - Alive with Scars (2019) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Heart Less Darkened (08:18)
+ 02. Looking For Bernard Herrmann (08:22)
+ 03. Shiraz And Suicide (03:42)
+ 04. Vertigo (05:54)(   Читать дальше...   )Жанр: Dark Ambient, AmbientПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151E469D1D26F12ED7CC73F9A012DBA6D8D605B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994437   (888175) от 09.03.2016
 
 VA - Minimal Daydream (2016) [MP3|320 кб/с] <House>
@@ -686,64 +744,6 @@ VA - Romantic Music: Romantic Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33B4890FE2F84C662DBFFDEC768ADF239D75FE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494743   (885922) от 09.09.2021
-
-VA - Best Of Rave 2 (Box Set) (1995) Low Price Music [FLAC|Lossless|tracks] <Breakbeat, Hardcore, House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus III - I Talk To The  Wind (03:59)
- 02. Transformer 2 - Pacific Symphony Too (Techno Symphony Remix) (05:11)
- 03. Rum & Black - Wicked (04:24)
- 04. DJ Professor - Rock Me Steady (03:31)(   Читать дальше...   )Тип издания: CDЖанр: Breakbeat, Hardcore, House, Techno •Продолжительность: 02:58:13 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5529DFD2F70C6E0183727D42B5BD7C40E6D757F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103386   (885912) от 12.02.2017
-
-VA - Dance 2017 (Armada Music) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren & Garibay feat. Olaf Blackwood - I Need You (feat. Olaf Blackwood)  3:27
-02.  Lost Frequencies & Axel Ehnstrom - All Or Nothing  2:38
-03.  Yellow Claw & Yade Lauren - Love & War  3:00
-04.  Galantis - Pillow Fight  3:17(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19026057ECE3B8470649E8E6555CD00C232A09B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

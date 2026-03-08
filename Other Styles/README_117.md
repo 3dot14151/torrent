@@ -1,3 +1,32 @@
+###  Публикация: 1170806   (397682) от 03.10.2017
+
+VA - Music In Love, Movie Collection Vol. 1 (2017) [MP3|320 Kbps] <Soundtrack, Easy Listening, Pop>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Bacalov, Rocky Roberts - Django (From "Django") 02:56
+02. Luis Bacalov - The Last Chance (From "The Last Chance - L'ultima chance") (Titles) 02:59
+03. Luis Bacalov - The Grand Duel - Parte prima (From "The Grand Duel - ll Grande duello") 03:27
+04. Gato Barbieri - Last Tango in Paris (From "Last tango in Paris - Ultimo tango (   Читать дальше...   )Жанр: Soundtrack, Easy Listening, PopПродолжительность: 00:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E0FE49F119C342C78EFD16CB2DFD9D937F7DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490215   (397662) от 28.10.2012
 
 The Daydream - 10 albums (2001-2012) [MP3|320 кб/с]<New Age, Neoclassical, Instrumental, Relax, Piano>
@@ -751,41 +780,6 @@ Lorne Balfe - Assassin's Creed 3 (2012) [MP3|320 кб/с]<Game OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A539947364D110B65BE86B7CAB7566FA830B2B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569559   (390602) от 04.11.2012
-
-Need for Speed Most Wanted  (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muse - Butterflies & Hurricanes (5:01)
-02. The Chemical Brothers - Galvanize (4:29)
-03. Foreign Beggars feat. Noisia - Contact (3:10)
-04. Popeska - Now Or Never (5:52)
-05. DJ Fresh - The Power feat. Dizzee Rascal (2:47)
-06. Last Dinosaurs - Zoom (4:00)
-07. Strange Talk - Cast Away (4:28)
-08. Ambassadors - Unconsolable (4:23)
-09. Deadmau5 - Channel 42 feat. Wolfgang Gartner (4:48)
-10. Icona Pop - I Love It (2:35)(   Читать дальше...   )Жанр: ScoreПродолжительность: 02:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF5E9F79599A05B68ADA51F4E4953B90ADBCC67
 ```
 
 https://mybot314.ru/tekegram_catalog/

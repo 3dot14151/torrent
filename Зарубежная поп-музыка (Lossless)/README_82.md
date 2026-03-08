@@ -1,3 +1,32 @@
+###  Публикация: 1677324   (150649) от 17.11.2023
+
+Vaya Con Dios - Shades of Joy (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kissing Slow
+02. Shades of Joy
+03. Leaving Home
+04. La Vie(   Читать дальше...   )Жанр: Pop-JazzПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493C1FD545622B4DAE488D240D815E826BB450E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434632   (149916) от 25.12.2020
 
 Jerry Vale - Have Yourself a Merry Little Christmas (2003) [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Christmas>
@@ -712,35 +741,6 @@ VA - 100 Greatest Winter Songs (2019) [FLAC|Lossless|tracks] <Pop, Dance, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68447EA1C614EBDEDF66BAAE94679C8CC7AB18C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435485   (144529) от 28.12.2020
-
-Alessi Brothers - Long Time Friends (1982) 2010, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144529.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Jagged Edge 3:30
-2 You Got The Way 3:05
-3 As Far As I'm Concerned 4:09
-4 Rise Up 3:33(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA877876C5598AAA17EE0560AE8BC9B8126AF09
 ```
 
 https://mybot314.ru/tekegram_catalog/

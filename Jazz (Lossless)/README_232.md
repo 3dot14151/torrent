@@ -1,3 +1,32 @@
+###  Публикация: 1190348   (268110) от 09.12.2017
+
+Nick Brignola - All Business (1999) Reservoir [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green St.Groove [05:49]
+02. Pent-Up House [06:30]
+03. How Deep Is The Ocean [07:20]
+04. Darn That Dream [05:27](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6130A10570361FA071D87CF8FE5ED6E032ABAAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190349   (268100) от 09.12.2017
 
 The Larry Goldings Trio - Moonbird (1999) Palmetto Records [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
@@ -716,35 +745,6 @@ Josh Roseman Unit - Cherry (2000) Enja Records [FLAC|Lossless|tracks + .cue] <Bi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAAAA593D8F4A1ADFEEB62F5648DB803321843E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267552   (265078) от 08.12.2018
-
-George Benson - The Best Of  George Benson (1989) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265078.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. California Dreamin'
-2. The Gentle Rain
-3. Theme From Good King Bad
-4. Take Five(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641510C2263BF143EE68D4B389118AED5D9D168E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1006904   (825481) от 13.04.2016
+
+VA - Junodownload DJs Most Charted March (2016) [MP3|320 кб/с] <Deep House, Nu-Disco, Club House, Tech House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep House:
+01.Detroit Swindle - Howsmusic (Original Mix) (7:36)
+02.COEO - Back In The Days (5:40)
+03.Mad Rey - Quartier sex (7:40)(   Читать дальше...   )Жанр: Deep House, Nu-Disco, Club House, Tech House, TechnoПродолжительность: 16:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1577E031E70AEE38C8297AC1F009014887FB08A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006895   (825390) от 13.04.2016
 
 VA - Beatport Must Hear Tracks (2016) [MP3|320 кб/с] <Deep-House, Tech-House, Minimal, Techno, Indie Dance, Nu Disco, Drum&Bass, Electro, Trance, Psy-Trance, HardStyle>
@@ -719,35 +748,6 @@ VA - Extra Trance (episode 10) (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:938C63A748521078224D81A3ECD4908602D487D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503364   (819390) от 19.10.2021
-
-VA - Record Super Chart 16.10.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
-02. Minelli - Rampampam (3:20)
-03. Calvin Harris feat. Tom Grennan - By Your Side (3:09)
-04. Tiesto & KAROL G - Don't Be Shy (2:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9CE43136BB8873A41F5C737665FC64D59E4355
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1392360   (769394) от 25.06.2020
+
+Duke Ellington - Second Sacred Concert 1974 (2000) ADA Sound [APE|Lossless|image + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Praise God [3:14]
+02. Supreme Being [11:49]
+03. Heaven [4:57]
+04. Something About Believing [8:15](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC516E5634C7DCC08048FA4E199977A5D826B3CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392531   (769250) от 26.06.2020
 
 Duke Ellington - The Great Duke Ellington 1959 (2000) ORO [APE|Lossless|image + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ Chet Baker - Live At New Morning (1983) 1992, Century Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1C235B6AFFA5328C591079BEEB473DE146D656D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125740   (767194) от 16.04.2017
-
-Colette Cassidy & Nigel Clark - Confetti Falling In The Rain (2017) [FLAC|Lossless|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767194.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. After Hours (3:01)
- 2. Confetti Falling In The Rain (3:14)
- 3. Black And White Story (2:42)
- 4. Another Sleepless Night (3:18)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123D1C40791BDB624A3E4F09D3685C6C984C22ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

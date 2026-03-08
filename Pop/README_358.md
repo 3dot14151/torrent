@@ -1,3 +1,61 @@
+###  Публикация: 1754366   (40866) от 09.10.2024
+
+Wings - Wings Wild Life (1971) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mumbo
+02. Bip Bop
+03. Love Is Strange
+04. Wild Life(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CC151918D9559425050EFFA2727ECC6469B4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754362   (40864) от 09.10.2024
+
+Paul McCartney - McCartney (1970) SHM-CD, Japanese Edition, Reissue, 2024, MPL – UICY [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lovely Linda
+02. That Would Be Something
+03. Valentine Day
+04. Every Night(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16823306DD6909F7E6854A3D215623364C3CF87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754367   (40858) от 09.10.2024
 
 Paul McCartney & Wings – Red Rose Speedway (1973) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop Rock>
@@ -684,64 +742,6 @@ Peter Griffin - Hurricane Is Coming (1980) [FLAC|Lossless|image + .cue] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB3477393D8CBB29EB582F31A3B5A7F199424E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756403   (39574) от 22.10.2024
-
-Уральский Диксиленд Игоря Бурко - Песни о Родине (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Люблю урал [00:04:12]
-02 - Сладкая планета (The Joys) [00:03:59]
-03 - Челябинск–ты моя любовь [00:04:15]
-04 - Таганай [00:03:44](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AA15CFAB497F3BB2B1996D3D30087219CD1366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756660   (39566) от 22.10.2024
-
-Amanda Lear - Amanda Lear / Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fashion Pack
-02. Queen Of Chinatown
-03. The Lady In Black
-04. These Boots Are Made For Walkin(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358D744369D7B0D7297AE65616F308E0A6756B81
 ```
 
 https://mybot314.ru/tekegram_catalog/

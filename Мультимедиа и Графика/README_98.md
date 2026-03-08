@@ -1,3 +1,29 @@
+###  Публикация: 1761173   (36862) от 18.11.2024
+
+Raising Jake Studios SideMinder Plu-ins 11.2024 VST, VST3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор плагинов от Raising Jake Studios для работы со стереопанорамой.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F028BC0882DD8DC6849D643AC5B5FBC3F162C6F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761168   (36857) от 18.11.2024
 
 Eventide - Ensemble Bundle 2.20.0 VST, VST 3, AAX (x64) RePack by R2R [En]
@@ -651,32 +677,6 @@ Xara Photo & Graphic Designer+ 24.5.1.70738 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6DDAF0BD935EFD35353803BECAC698B5AE176FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764843   (34717) от 09.12.2024
-
-Gilisoft Audio Recorder Pro 13.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможно, вы захотите захватить музыку с YouTube, Pandora или любого другого веб-сайта потокового аудио, и вы можете захотеть записать онлайн-радиопрограммы или звуковую часть видео, чтобы вы могли слушать свой любимый аудиоконтент позже - на ПК, портативного mp3-плеера или аудиосистемы автомобиля. Gilisoft Audio Recorder Pro - хороший выбор для вас. Этот потоковый (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E994A4C0852F1C9CFDE58CBAE8E9D805533A9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

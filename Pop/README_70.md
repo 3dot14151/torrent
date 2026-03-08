@@ -1,3 +1,61 @@
+###  Публикация: 1502611   (826710) от 15.10.2021
+
+Gary Criss - Rio De Janeiro (2019) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rio De Janeiro (08:12)
+02 The Girl From Ipanema/Brazilian Nights (08:32)
+03 Amazon Queen (05:38)
+04 The Lady Is Latin (The Girl Is Bad) (03:58)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002635D5DB58E0481378A7F539FDBD1D5D94B6F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115666   (826646) от 18.03.2017
+
+Rockefeller - Song Of An Island (1981) LP [MP3|320 Kbps] <Europop, Pop Rock, Schlager, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Качественная немецкая поп-группа. Улавливаются нотки от известных мировых исполнителей.01. Song Of An Island (4:06)
+02. An Angel Comes From Heaven (3:42)
+03. It's A Long Way To Hawaii (4:01)
+04. Good Time For Lovers (3:48)(   Читать дальше...   )Жанр: Europop, Pop Rock, Schlager, DiscoПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261EEED3F7E4C2E6B4738A8FEA6CCBEEF87E75C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115422   (826643) от 18.03.2017
 
 Stevie B. - City Jungle (1980) LP [MP3|320 Kbps] <Funk-Soul, Pop-Rock>
@@ -688,64 +746,6 @@ Amii Stewart - Knock On Wood & Paradise Bird (1979) Reissue, 1999, Limited Editi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80E57ACF9807583E1A9C511A2215AEC9EF8DB6F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381726   (824590) от 08.05.2020
-
-Александр Подболотов - Русские песни и романсы (2006) [FLAC|Lossless|tracks + .cue]<Романсы, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Калинка
-02. Очи чёрные
-03. Коробейники
-04. Вечерний звон(   Читать дальше...   )Жанр: Романсы, РетроПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA61B742169B98191F4DA8FF8D15E17805CDCE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381788   (824476) от 08.05.2020
-
-Анита Цой - Нации победителей посвящается... (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824476.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вступление (Юрий Левитан, 8 мая 1945 год)
-2. Офицеры
-3. В землянке
-4. Тёмная ночь(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBEFDBDD6BD9872D873FF2A4698C50D8C4D1B6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

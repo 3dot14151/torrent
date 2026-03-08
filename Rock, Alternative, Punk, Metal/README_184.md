@@ -1,32 +1,3 @@
-###  Публикация: 989569   (915414) от 23.02.2016
-
-Tori Amos - Diamond Collection (1998) Unofficial Release [FLAC|Lossless|image + .cue] <Alternative Rock, Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cornflake girl  05:04
-02.Crucify  04:56
-03.Spark  04:11
-04.Caught a lite sneeze  04:24(   Читать дальше...   )Жанр: Alternative Rock, VocalПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EC98E82D3339D605D4923B3F83B21584FD0858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490727   (915405) от 22.08.2021
 
 Eric Clapton - Eric Clapton (2021) Anniversary Deluxe Edition [MP3|320 Kbps] <Rock>
@@ -749,6 +720,35 @@ The Blackened House Band - Chapter Day II (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8DD0AD6F2658BFB9E2C0F8F10FF272E2B12A4A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097533   (914120) от 27.01.2017
+
+Betraying the Martyrs - The Resilient (2017) [MP3|320 Kbps] <Symphonic Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost For Words (04:00)
+02. Take Me Back (04:50)
+03. The Great Disillusion (04:15)
+04. Dying to Live (03:45)(   Читать дальше...   )Жанр: Symphonic Metalcore, DeathcoreПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C5D43C0DE3EDD755E7050F51CD70E592DC6354
 ```
 
 https://mybot314.ru/tekegram_catalog/

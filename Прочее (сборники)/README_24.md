@@ -1,3 +1,121 @@
+###  Публикация: 1367704   (914040) от 17.03.2020
+
+VA - не Громкие новинки недели 59 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914040.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.СредиНас - Мёд (5:23)
+2.Say Long feat. Lirity & Lapatin - Вселенная (4:22)
+3.ANIKV feat. Saluki - Меня Не Будет (4:13)
+4.Евгений Путилов - Без Тебя (4:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEE12FE9A6FE2C9A94ADC6CEAF2C0BD7214ACC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367911   (913888) от 17.03.2020
+
+VA - 100 Greatest 60s Classics (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Zombies - Shes Not There
+002. Martha Reeves & The Vandellas - Dancing In The Street
+003. The Rolling Stones - (I Cant Get No) Satisfaction
+004. The Beatles - She Loves You(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 05:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C4DC187E3F6E9B9B7FAAC57B5B413BE5904319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491120   (913265) от 23.08.2021
+
+VA - Ностальгия 6 NNM-Remix (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руки Вверх - 18 мне уже (Dj Karas Remix) (6:38)
+02. ТаТу - Я Твоя Не Первая (Fly Dream Remix) (6:19)
+03. Отпетые Мошенники - Люби меня люби (SNEBASTAR Remix) (6:22)
+04. Reflex - Non Stop (Dj Scorpio & Dj Duck Reboot) (4:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51B07F92DC09FAAEB01B74D9FCE7DA724E841C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 865614   (913150) от 02.02.2015
+
+VA - The Official UK Top 40 Singles Chart (01-02-2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти месяц прошел с момента опубликования предыдущего традиционного UK Singles Chart  - официального хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения (а их достаточно много) по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Mark Ronson Feat Bruno Mars - Uptown Funk  (4:31)
+02. Hozier - Take Me To Church  (4:03)
+03. Fergie - L.A.LOVE (La La)  (3:13)
+04. Meghan Trainor - Lips Are Movin  (3:01)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BC0E81B88055E7BC190927B74A5BC208E501A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 631690   (913110) от 24.03.2013
 
 VA - Super Dance Party-11 (2013) [MP3|320 кб/с]<Dance>
@@ -636,122 +754,6 @@ VA - Хиты Забытых Дискотек Vol.2 (2016) [MP3|205-320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5180DEED7EAFBC0EF52DDFB42D905EEA44297BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991227   (907613) от 27.02.2016
-
-VA - Дискотека Руки Вверх 61 (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Руки Вверх! - Королева Красоты (D&S Project & Dj Andy Light Remix)
-02 - Ленинград - Экспонат (DJ Noiz Remix)
-03 - Storm DJs & Неигрушки - Сто дней до приказа (Cover Radio Mix)
-04 - Serebro - Отпусти меня(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4334B2A4A9BA8B1787E7EEF440D181DE579BAA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368717   (907410) от 21.03.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 20.03.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carla Morrison - Disfruto (Audioiko Remix) 3:16
-02. Trevor Daniel - Falling 2:39
-03. Billie Eilish - Everything I Wanted 4:05
-04. The Weeknd - Blinding Lights 3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCEBBD47BD94EC9147805808D83D6182C2F9EA6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991049   (907298) от 27.02.2016
-
-VA - Дискотека 2016 Club Dance Vol. №149 от NNNB (2016) [MP3|128-320 кб/с] <Club, Dance, Deep House, Trance, Electro House, Progressive House, Drum’n’Bass, Trap, Bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Analise feat. Alexis - I Love You
-02. Scooter - Don't Break The Silence
-03. Yandel feat. Pitbull & El Chacal - Ay Mi Dios
-04. The Chainsmokers feat. Daya - Don't Let Me Down(   Читать дальше...   )Жанр: Club, Dance, Deep House, Trance, Electro House, Progressive House, Drum’n’Bass, Trap, BassПродолжительность: 10:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F080B731A903756A773EF5BA193CD4E18F9B2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099148   (906788) от 31.01.2017
-
-VA - Зайцев.Нет: Лучшие Новинки Января (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hardwell - Party Till The Daylight  3:11
-02.  Юлианна Караулова - Разбитая Любовь (DJ Pitkin Remix)  3:06
-03.  Nelly Furtado - Cold Hard Truth  2:54
-04.  Ed Sheeran - Shape of You  3:54(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4568D4033522407D46298400975EEA4E3D36A2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

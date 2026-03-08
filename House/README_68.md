@@ -1,3 +1,32 @@
+###  Публикация: 1654031   (205989) от 18.08.2023
+
+VA - Power Workout - Gym Hits - Fitness and Healthy Lifestyle (2023) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta - Baby Don't Hurt Me (Hypaton & Giuseppe Ottaviani Remix) (feat. Anne-Marie & Coi Leray) (2:58)
+02. Lizzo - About Damn Time (3:11)
+03. Bebe Rexha - Call on Me (David Guetta Remix) (2:55)
+04. Tiësto - 10 35 (2:52)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B736272190F8A834EED487CE67EB5B1762E8622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653556   (205483) от 16.08.2023
 
 VA - Deep House Sessions 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -716,35 +745,6 @@ VA - House Radio 2022 - The Ultimate Collection #4 (2022) CD, Compilation [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A07BE593A4A753B7C8009A6C213551B33149599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594096   (179367) от 29.11.2022
-
-VA - House Radio 2022 - The Ultimate Collection #5 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faul & Wad - Changes (Robin Schulz Remix - Radio Edit)
-02. Calmani & Grey - Winter Ocean (LIZOT Radio Edit)
-03. Viva La Panda - Get Lost
-04. Selda - Set It Off(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 00:58:08 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5E3700AA497C80FF481A4C36359AC22AFCA942
 ```
 
 https://mybot314.ru/tekegram_catalog/

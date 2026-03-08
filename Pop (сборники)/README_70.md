@@ -1,3 +1,32 @@
+###  Публикация: 1236527   (553962) от 19.07.2018
+
+VA - Российские новинки (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 5sta Family-Снова Вместе (Sergey Kutsuev Remix)
+003. Alekseev-Сберегу
+002. Aiza feat. Daffy-Запуталась
+004. Alex Maier-Девочка Танцуй(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DBC9981F27EAF6D77583980D307C15DBCE932E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308641   (553513) от 16.06.2019
 
 VA - German Top 100 Single Charts 21.06.2019 [MP3|320 Kbps] <Pop>
@@ -713,35 +742,6 @@ VA - Абсолютные Хиты Лета 8 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7BFFE9F1818E80ACCE3FF42F7C1BF9CC933E317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047229   (549777) от 29.08.2016
-
-VA - Massive Vocal, Euro, Dance Hits (2016) [MP3|179~320 Kbps] <Pop, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549777.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Trancemaster  -  My Happyness (Original Mix)  5:12
-002. Dr Alban  -  It's My Life  4:01
-003. Hands Up  -  Happy People (Single Version)  3:34
-004. Tango & Cash  -  Inside The Night (Original Mix Edit)  3:15(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 10:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E115708A882C8107D9ABB5880E49230BC94A7C45
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1451790   (1028233) от 03.03.2021
+
+VA - Beatport Bassline: Electro Sound Pack #251 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию убойный драм замес в 251-й подборке электро саунда от Beatport, который наверняка разбудит Вас от зимней спячки. Пора обновить свою медиатеку и встречать грядущую весну во всеоружии001. Da Candy - Teknoboom
+002. Echo Brown - Tug O War
+003. Surge - No 66
+004. Delta Heavy - Exodus(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 09:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43398B119047117CB6EFDF4C1F597AE334DEFE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451786   (1028231) от 03.03.2021
+
+VA - City Form: Progressive Trance (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красиво и эклектично! В лучших традициях прогрессив транса! Атмосфера, как некая героика, вера в себя, в свои силы, и преодоление жизненных трудностей. Здесь есть и мелодия и динамика и смысл, который хотели донести до слушателя авторы музыкальных композиций.001. Waiting Dog - Tired Of Chasing (Extended Mix)
+002. Simon Lee - Kmnd (Extended Mix)
+003. V I F & Teya Flow - Mixerrer
+004. Leon Bolier - Northern Moon(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 12:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE3A592C01BAE6CD9A4A5E0A0CD5FBE049008A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451675   (1028227) от 03.03.2021
+
+VA - Trance 2021 [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028227.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roger Shah, Kristina Sky, Emma Shaffer - Take Me Back (7:14)
+002. Ferry Corsten, Howard Jones - Into the Dark (5:43)
+003. Protoculture, Sue McLaren - Superhuman (5:04)
+004. Ilan Bluestone, Gid Sedgwick - Paid For Love (4:36)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2071E741144370648E89C1D3BFC9090712D6B5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451774   (1028224) от 03.03.2021
+
+VA - Rockstar: The True Feeling (2021) [MP3|320 Kbps] <Rock, Hard Rock, Alternative, Indie>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок музыка – проводник настоящих ярких эмоций. Принято, что рок – музыка протеста, не верьте, ведь рок – это свобода! Музыка, заставляющая идти на риск, и в то же время, способная усыпить младенца.001. Fiona - Thunder & Lightning
+002. Kid Dad - The Wish Of Being Alone
+003. Redlight King - City Life
+004. Jacobi Wichita - Baby Gorilla Teeth(   Читать дальше...   )Жанр: Rock, Hard Rock, Alternative, IndieПродолжительность: 09:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264DFE6BD601B238FF41F2ABDAD8617192A34C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451634   (1028215) от 03.03.2021
+
+Geordie - Keep on Rockin' (2021) 2CD Compilation [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama's Gonna Take You Home
+02. Little Boy
+03. Going to the City
+04. Look at Me(   Читать дальше...   )Жанр: RockПродолжительность: 02:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8ADDAFAAEB307E5CC3BA6546142245DB60167F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451528   (1028214) от 03.03.2021
+
+VA - The Identity: Rap Francais (Vol.08) (2021) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкие подвижные ритмы и лирические мелодии в сборнике французского репа под названием "The Identity" восьмого релиза. Гармоничное сочетание мелодии и текста, которое слушать одно удовольствие.001. Bassirou - Gang
+002. Lim - Plus Rien À Perdre
+003. Le A - Secteur
+004. Narcisse Dagbeto - Gaffe A Ton Dos(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 08:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E5171477D64378D70A742424DBA7E12A215125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451529   (1028211) от 03.03.2021
 
 VA - Winter Pop Music Show (2021) [MP3|320 Kbps] <Dance, Pop, Eurodance>
@@ -571,177 +745,6 @@ VA - My Feelings Electropop Music (2021) [MP3|320 Kbps] <Synthpop, Electropop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A327A163D737FB89BC10C599B7EE6242BB4F1A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452652   (1027552) от 07.03.2021
-
-VA - New Season: New Look (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя новый сезон и новый взгляд на мир вместе с одноименным сборником популярной музыки под названием "New Season: New Look"! На треках лонгплея Вас ждут как уже знакомые и даже именитые артисты, так и новички, представляющие свои первые работы на суд ценителей музыки.001. Marukus Forst - Fantasy
-002. Vernos - Better Yes (Original Mix)
-003. Amfree - Boom Boom
-004. Zehn - Feel Lost(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44828CF551D07561C3EF39DAE07FABCAC103AAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452654   (1027549) от 07.03.2021
-
-VA - Rap Blender Mix (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реп - сродни стихам, где также как пишут поэты свои стихи и выкладывали свои мысли на бумагу, так и реперы говорят о житейских проблемах или радостях своими текстами, только под музыку.001. Yoshi24k - Fly Away
-002. Styles P - Animals
-003. Hnic Pesh - Started With
-004. Jordanl - Guns & Girls(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 09:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AD6D734BBFCF33DB1DE564EC028C6E61F97D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452537   (1027531) от 07.03.2021
-
-VA - Record Super Chart 06.03.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto - The Business (2:44)
-02. Phao KAIZ Remix - 2 Phut hon (3:03)
-03. Meduza, Dermot Kennedy - Paradise (2:47)
-04. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC70587C2890F7BABAA5B9C8098D46B96CE09C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452905   (1027383) от 08.03.2021
-
-Axxis - Tales Of Glory Island, 2CD, Compilation (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Metal, Power MetalПродолжительность: 02:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26AD7FE546015BF63DD3C214FD350CB121A9014F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452793   (1027356) от 08.03.2021
-
-VA - Музыка на 8 марта (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alyosha - Sweet People (3:00)
-02. Chuck Loeb - The Girl From Ipanema (4:55)
-03. Esther Phillips - I'm A Bad, Bad Girl (2:55)
-04. Manizha - Мама (5:48)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 01:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39901526957448B4E4750B28DDA0904181421F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452689   (1027346) от 08.03.2021
-
-VA - Love Songs 80s 90s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laura Poles - Thank You (3:10)
-02. Shania Twain - You're Still The One (3:14)
-03. Tamara & Diego Grande - Up Where We Belong (3:24)
-04. Simply Red - If You Don't Know Me by Now - 2008 Remaster (3:26)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 04:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F4C020A057997A88158FC90C599E56B6415425
 ```
 
 https://mybot314.ru/tekegram_catalog/

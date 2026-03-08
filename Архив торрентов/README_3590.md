@@ -1,275 +1,3 @@
-###  Публикация: 493942   (248693) от 08.05.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (09.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175C06F8FEC088BE034D6F4A01F3C83C32A2C2DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493897   (248689) от 08.05.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 14
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248689.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 14
-Название: Nature Desktop Wallpapers Pack 14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: По возможности
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C8A2F05394AFC74A84644AFAA8A3FEF5A254BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493287   (248645) от 07.05.2012
-
-Смерть супергероя / Death of a Superhero (2011) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дональд Кларк — самый обыкновенный тинейджер. Он любит компьютерные игры, громкую музыку и комиксы. И еще Дональд уверен, что не доживет до совершеннолетия. То есть у него осталось совсем немного времени, чтобы успеть попробовать на вкус массу важных вещей: напиться с друзьями, выкурить косяк, лишиться девственности и — поближе познакомиться с самим собой. В фантазиях Дональд видит себя бессмертным супергероем, который противостоит отвратительному суперзлодею с большим шприцем, а роковая любовь супергероя поет на сцене ночного клуба…Жанр: Драма, МультфильмРежиссер: Йен ФитцгиббонАктеры: Энди Серкис, Томас Броди Сэнгстер, Майкл МакЭлхаттон, Эшлин Лофтус, Шарон Хорган, Нед Деннехи, Джейн Бреннан, Мелла Карон, Ольга Верли, Эмма Элиза РиганПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: русскийПродолжительность: 01:32:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492591   (248644) от 07.05.2012
-
-Microsoft Process Monitor 3.01 [Eng & Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышла новая версия Process Monitor - утилиты для мониторинга файловой системы, системного реестра и процессов в оперативной памяти. Process Monitor - программа для мониторинга в реальном времени операционных систем Windows с возможностью отслеживания изменений в файловой системе, реестре, запущенных процессах. В данной утилите объединены возможности двух утилит - Filemon и Regmon - с добавленной мощной системой фильтрации и расширенными возможностями управления.
-
-Преимущества программы Process Monitor:
- отслеживание запуска и завершения работы процессов и потоков, включая информацию о коде завершения;
- отслеживание загрузки образов (библиотек DLL и драйверов устройств, работающих в режиме ядра);
- больше собираемых данных об параметрах операций ввода и вывода;
- безвредные фильтры позволяют устанавливать фильтры, которые не будут приводить к потере данных;
- сбор стеков потоков для каждой операции позволяет в большинстве случаев определить исходную причину выполнения операции;
- достоверный сбор информации о процессах, (   Читать дальше...   )Название программы: Microsoft Process MonitorЯзык интерфейса: Английская - Русская (версии)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493234   (248635) от 07.05.2012
-
-Футажи - Video3D - «Випускник 2012» UA [MOV]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248635.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 футажей из новой серии для праздничного оформления школьного фильма «Выпускник 2012»
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC4CC79579D2E6580E2A7637BE8FB84704B31F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493286   (248618) от 07.05.2012
-
-Бокс. Ф.Мейвезер - М.Котто, бой за титул чемпиона мира / Floyd Mayweather Jr vs. Miguel Cotto (2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разогревочные поединки: 
- LATIMORE vs. QUINTANA / SUPER WELTERWEIGHTS
- VARGAS vs. FORBES / JUNIOR WELTERWEIGHTS
- ALVAEZ vs. MOSLEY / WBC SUPER WELTERWEIGHT TITLE
-
-Основной бой:
-MAYWEATHER vs. COTTO / WBA SUPER WELTERWEIGHT TITLEПеревод: Одноголосый закадровый, профессиональный Владимир ГендлинФормат: TSПродолжительность: 03:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B85856B8158984C9FEA5103F6C709D739CE0979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492511   (248609) от 07.05.2012
-
-Various Artists - Endzeit Bunkertracks (Act I-V) - 5 albums (2005-2010) [mp3|320 kbps] <Dark Electro, EBM, Industrial, Aggrotech, TBM>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248609.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Evil: (01:17:42)
-01. Captive Six - Noizemaker (Edit) (03:38)
-02. Suicide Commando - Die Motherfucker Die (Modulate Mix) (06:36)
-03. Studio-X - To Hell (03:54)
-04. Shaolyn - More Bass In All Frequencies (03:27)
-05. Ex.Es - Orgasmofobia (Edit) (04:08)
-06. Freakangel - God's Blind Game (Edit) (03:35)
-07. Mordacious - Unknown (05:21)
-08.2005-2010Жанр: Dark Electro, EBM, Industrial, Aggrotech, TBMПродолжительность: 05:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02C47CC545925BD301B9519835587013AE6787B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493074   (248579) от 07.05.2012
-
-Megadeth - Warchest(Live in London 30.09.92) (2007) DVD5
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Thrash MetalПродюсер: Кевин ФлахертиВ ролях: Dave Mustaine -- vocals, lead & rhythm guitars
-Marty Friedman -- lead & rhythm guitars
-David Ellefson -- bass guitar & bkg vocals
-Nick Menza -- drums & bkg vocalsПеревод: ОтсутствуетПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492073   (248568) от 07.05.2012
-
-Pitbull - Original Hits (2012) [MP3|~245 кб/с ]<Rap, RnB, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Anthem (Feat. Lil Jon)
-02. Culo (Feat. Lil Jon)
-03. Go Girl (Feat. Trina And Young Boss)
-04. Hey You Girl
-05. Dammit Man (Remix) (Feat. Lil Flip)
-06. Bojangles (Remix) (Feat. Lil Jon And Ying Yang Twins)
-07. Midnight (Feat. Casely)
-08. Ay Chico (Lengua Afuera)
-09. Descarada (Dance) (Feat. Vybz Kartel)
-10. Que Tu Sabes D'Eso (Feat. Fat Joe And Sinful)(   Читать дальше...   )Жанр: Rap, RnB, Hip-HopПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD9C9D303CDF8DD2DC9425378541D27348801D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493039   (248533) от 07.05.2012
 
 Большое я / The Big I Am (2010) HDRip
@@ -740,6 +468,271 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F47896BE7A4960D34AFC2F3F63DDDB613DAD8E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492700   (248429) от 07.05.2012
+
+Без названия - Письма с фронта (2010) [MP3|320 кб/с]<Письма с фронта>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248429.jpg" />
+</div>
+
+
+###  Подробнее
+
+На диске, выпущенном в честь 65-летия Победы, звучат подлинные письма защитников Родины, участников Великой Отечественной Войны. В этих письмах - радость и грусть, тревога и вера, любовь к близким и ненависть к врагу. Эти чувства мы можем пережить и сегодня вместе с неизвестными авторами писем...
+
+14 фронтовых писем в исполнении профессиональных чтецов - артистов московских театров.2010Жанр: Письма с фронтаПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63BFFAC55A041339922958B918E33B7AA81624F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493416   (248425) от 07.05.2012
+
+Fluxion - Дискография (12 винилов, 6 альбомов) (1998-2012) [MP3|192-320 кб/с]<Techno, Dub Techo, Minimal, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя музыканта Konstantinos Soublis, родился в Греции, свою карьеру начал еще в далеких 90-х, засветившись на известном андеграундном лейбле Chain Reaction. Затем последовал период, когда Константинос замолк практически на 10 лет. После возобновления своей музыкальной деятельности в 2009 году, музыкант начал активно сотрудничать с датским лейблом Echocord. С 2010 года на лейбле было выпущено 2 альбома и 4 виниловых пластинки.01. Fluxion - Motion 1 (6:21)
+02. Fluxion - No Man Is An Island (7:09)
+03. Fluxion - Desert Nights (8:10)
+04. Fluxion - Eruption (8:50)
+05. Fluxion - Stations (8:39)
+06. Fluxion - Motion 3 (8:32)
+07. Fluxion - Memba (5:58)
+08. Fluxion - Burst Mode (Edit) (2:51)
+09. Fluxion - Butiama (7:02)
+10. Fluxion - Migration (6:24)(   Читать дальше...   )Продолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346DF3C655E775485753A47A43F7EA11B19B0FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493006   (248422) от 07.05.2012
+
+[Wallpapers] Abstraction Desktop Wallpapers Pack 3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248422.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Abstraction Desktop Wallpapers Pack 3
+Название: Abstraction Desktop Wallpapers Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9E7E024E9C5C9890E447E185EE88BF6E5E41D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493175   (248416) от 07.05.2012
+
+[Wallpapers] Wallpapers Mix 33 (1600x1200-4000x3000)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248416.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Wallpapers Mix 33 (1600x1200-4000x3000)
+Название: Wallpapers Mix 33 (1600x1200-4000x3000)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200-4000x3000
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD4CA649C0FA95969ADEAFDA343689399FA5081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493365   (248406) от 07.05.2012
+
+[Wallpapers] Texture Desktop Wallpapers (07.05.2012)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248406.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Texture Desktop Wallpapers (07.05.2012)
+Название: Texture Desktop Wallpapers (07.05.2012)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 1920х1200
+Расширение (тип) файлов: jpgВремя раздачи: По возможности
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06D78C71FB20AACE9510BFB6CADB211A139C5E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493356   (248402) от 07.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 24
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5A53588798E635F928D6AD8F96977604D39D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493351   (248401) от 07.05.2012
+
+[Wallpapers] Computer Desktop Wallpapers Pack 17
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248401.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Computer Desktop Wallpapers Pack 17
+Название: Computer Desktop Wallpapers Pack 17
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: По возможности
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1E7F062DFE9452E8B57BC9EA58F4E0948BD69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492721   (248400) от 07.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 21
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1680х1050 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB6E3D5FD2686037E4528C2459FBA6562EBB3BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493358   (248399) от 07.05.2012
+
+[Wallpapers] Nature Desktop Wallpapers Pack 12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248399.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Desktop Wallpapers Pack 12
+Название: Nature Desktop Wallpapers Pack 12
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: По возможности
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2D35A675380F4D3A94F31AFD21A36556B67F11
 ```
 
 https://mybot314.ru/tekegram_catalog/

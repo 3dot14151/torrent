@@ -1,3 +1,32 @@
+###  Публикация: 1032356   (646175) от 07.07.2016
+
+VA - For Brunettes: Selected Chillout Rhythms (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexius Gabrikov - The Lone Seagull - Radiant Mix
+02. Bennie Cullen - Lying Down - The Grand Chill
+03. Cosmique Beats - Long Journey - Universal Mix
+04. Den Gordy - Few Cha - Champagne & Limousine Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794E2F654739368D4C195913AE37742F0AEAE9AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032425   (646172) от 07.07.2016
 
 VA - Trance Reflect (2016) [MP3|320 Kbps] <Trance, Melodic, Energy >
@@ -728,35 +757,6 @@ DJ PafTron - My Name Is DJ (2022) [MP3|320 Kbps] <G-House, Deep House, Trance, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55654FC59DDFF6EA9BDEF2D15CA74B7D268D1490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032954   (642011) от 09.07.2016
-
-VA - Trance Music Energy Andromeda (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christina Novelli Vs Lanos -  Home (James Dymond Extended Remix) 7:48
-02. ReOrder & Audrey Gallagher -  Your Own Way (Original Mix) 5:40
-03. Aly & Fila X Luke Bond & Audrey Gallagher -  Million Voices (Original Mix) 7:38
-04. Kaimo K & Cathy Burton -  You Deserve Life (2016 Rework) 7:08(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A19503E9A07AD8D081E6ABBAC17AD10DE3D7BA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

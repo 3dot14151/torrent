@@ -1,3 +1,32 @@
+###  Публикация: 1549763   (592840) от 08.05.2022
+
+VA - Lyrical Rhythm And Blues (2022) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Так уж получилось, что R&B – стиль довольно гламурный. Исполнители, по крайней мере в клипах, на обложках альбомов и на фотографиях для журналов должны выглядеть ухоженными и одеваться по возможности дорого. Если, скажем, в хип-хопе еще могут играть на контрастах, рэпер либо запущенный и кое-как одетый обитатель гетто, либо крутой парень на «бентли» с килограммовыми (   Читать дальше...   )001. Raheem Devaughn & Apollo Brown - One Time
+002. Jacob Banks - Found
+003. Lil' Mo - Doing Me Wrong
+004. Umi - Bet Reimagined(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 09:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308EB05FBC6C0476B3EE9BE2E7C673DF599B006F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549811   (592641) от 09.05.2022
 
 VA - Tech House: Mashup Urban Mix (2022) [MP3|320 Kbps] <Club, Tech House, Electro>
@@ -720,41 +749,6 @@ VA - Новая Жажда Скорости Без Тормозов vol.4 (2016)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13FEC4C074AFB730C67710BA70900D756FABE74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358663   (585223) от 03.07.2011
-
-VA - Amnezia Super Hits 60 (02.07.2011) [MP3|320 kbps]<Dance, Euro Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romeo Cooper ft. Megane - Je Veux (Radio Edit)
- 02. Robert Abigail & Dj Rebel ft. The Gibson Brothers - Cuba (Radio Edit)
- 03. Miani - Balkanica (Slowbrothers Radio Mix)
- 04. Maria - Acredita (Believe)
- 05. Flow 212 & Juan Magan - Ritmo Do Meu Flow
- 06. Karmin Shiff ft. Juliana Pasini & Kryz Santana - Ole Ola (Radio Edit)
- 07. Lucenzo ft. Don Omar - Danza Kuduro
- 08. Willy William & Lylloo - Hula Hoop (US Radio Edit)
- 09. El Simbolo - Ritmo Bomba (Acordeon Mix)
- 10. Javier Voltaje & Vitamina C - La Chica Baila(   Читать дальше...   )Жанр: Dance, Euro DanceПродолжительность: 04:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4A7E1524A4F097C8446BE45C2DC07BB8EBD2C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

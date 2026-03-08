@@ -1,287 +1,3 @@
-###  Публикация: 465571   (96232) от 10.03.2012
-
-VA - Dash Berlin Top 20 - March (2012) [MP3|320 кб/с]<Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Schweizer - Ultra (Original Mix)
-02. Timur Adagio - Broken (Rave CHannel Remix)
-03. Lence & Pluton - Virtual Mirror (Original Mix)
-04. Deep Haze - Ariana (Matt Skyer Remix)
-05. David Broaders - The Best Is Yet To Come (Solid Stone Remix)
-06. Eco - We Watched The Sunrise Till Our Eyes Burned Out (Original Mix)
-07. Moonbeam feat. Leusin - Daydream (Original Mix)
-08. Matt Eray - Beside You (Original Mix)
-09. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix)
-10. Harry Lemon - Rise - Classic Bonus Track (Original Mix)(   Читать дальше...   )2012Жанр: Uplifting TranceПродолжительность: 02:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909ADFEDBAF623BBACEE785C7C3A2D6E780DF685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465414   (96225) от 10.03.2012
-
-Николай Гербель | Изюмскiй слободской казачiй полкъ. 1651-1765 [1852] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изюмский слободской (черкасский) казачий полк - слободской казачий полк, административно-территориальная и военная единица на Слобожанщине. Полковой центр - город Изюм. Полк появился в 1688 году, стараниями Григория Ерофеевича Донца (Донец-Захаржевского), полковника Харьковского слободского (черкасского) казачьего полка. Вашему вниманию предлагается книга Николая Васильевича Гербеля (1827-1883), русского поэта-переводчика, литературоведа, издателя-редактора, библиографа, которая содержит документальное описание боевых действий полка и знаменательных исторических событий, связанных с ним, за период 1651 – 1765 годов. Также в книге приведен список командиров и полковников.Жанр: Раритеты / Научно-популярная литература / Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F2F8847E46C6EF397C71049FBDAF4722EBCDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465500   (96213) от 10.03.2012
-
-VA - Armada Presents The Miami Soundtrack 2012 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96213.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Armada Presents The Miami Soundtrack 2012 (2012)
-Год: 2012
-Жанр: Trance
-Продолжительность: 03:57:22Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Antillas ft Fiora - Damaged (Main Mix)
-02. W&W - Invasion (ASOT 550 Anthem) (Club Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BFAAD81596514B9F0E030D44ACD95F0DE3B5D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465224   (96208) от 10.03.2012
-
-VA - Chanson d'amour (2011) [FLAC|Lossless]<Chanson>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jacques Brel - Ne me quitte pas (3:53)
-02.Serge Gainsbourg - L'eau a la bouche (2:31)
-03.Edith Piaf - Mon manege a moi  (3:01)
-04.Francois Deguelt - Je te tendrai les bras (3:10)
-05.Henry Savador - Amour de Saint-Tropez (2:37)
-06.Petula Clark - Je t'aiime (3:14)
-07.Sacha Distel - Parlez-moi d'amor (2:33)
-08.Dalida - Come prima (2:42)
-09.Richard Anthony - Tu m'etaisdestinee (2:09)
-10.Gloria Lasso - Toi, je t'aimerai (2:59)(   Читать дальше...   )2011Жанр: ChansonПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465663   (96204) от 10.03.2012
-
-Narco - La Rave Del Infierno: Alita De Mosca Remixes (2012) [MP3|320 кб/с]<Electronic, Drum & Bass, Rapcore, Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mi Negocio (Alexander Head)  (03:38)
-02. Son ellos (Pheex & Impak)  (05:06)
-03. Estrellas en el pecho (Dub Elements)  (04:12)
-04. La hermandad de los Muertos (BSN pose)  (05:19)
-05. Mi Negocio (Maromo Diyeah)  (03:33)
-06. Dame Veneno (Have A Cow)  (04:07)
-07. La Ultima Cena (Psychobitches)  (04:35)
-08. Pa los restos y un dia (Prozac)  (06:48)
-09. Estrellas en el pecho (eRRe)  (06:13)
-10. Gusano Tabernero (St0rmtr00perz)  (04:57)(   Читать дальше...   )2012Жанр: Electronic, Drum & Bass, Rapcore, DubstepПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6DB280A2752DF3EA675F18EFB751F282F8121B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465672   (96202) от 10.03.2012
-
-VA - A State Of Trance 2012 (Mixed by Armin van Buuren) (01.03.2012) [FLAC|Lossless]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96202.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: On The Beach (01:13:46)
-
- 01. Omnia & IRA – The Fusion (Armin van Buuren’s Intro Edit)
- 02. VillaNaranjos – Granadella
- 03. Sunlounger feat. Zara Taylor – Try To Be Love (Roger Shah Naughty Love Mix)
- 04. The Blizzard – Piercing The Fog
- 05. Audien – Keep This Memory
- 06. Alexander Popov – When The Sun (Eximinds Remix)
- 07. Nash & Pepper – Ushuaia Memories
- 08. Mike Foyle & ReFeel – Universal Language(   Читать дальше...   )01.03.2012Жанр: TranceПродолжительность: 03:31:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465119   (96201) от 10.03.2012
-
-Ashley Wallbridge - The Inner Me (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashley Wallbridge - The Inner Me (2012)
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:09:06Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-1.Ashley Wallbridge - Emotions
- 2.Ashley Wallbridge feat Elleah - These Walls(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFD516CEC172CC1FAFDF5EABF4E7C96CF282DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465572   (96200) от 10.03.2012
-
-Вестникъ Моды. Журналъ моды, хозяйства и литературы [1906] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ред.-изд. Николай Павлович Аловерт (1847—1927) — русский журналист, литератор писал: Выпуская въ свѣтъ первый номеръ «Вѣстника моды», я нахожу необходимымъ сказать нѣсколько словъ по поводу причинъ, вызвавшихъ появленіе этого новаго моднаго журнала. Вслѣдствіе историческихъ причинъ, о которыхъ здѣсь не мѣсто говорить, Франція во главѣ съ Парижемъ сделалась законодательницей моды не только для Европы, но и для всего міра. куда проникала европейская цивилизація. Мы, русскіе, конечно, не избѣгли общей участи, и было бы естественнымъ, чтобы мы знакомились съ французской модой непосредственно, т. е. получали бы ее, такъ сказать, прямо изъ Парижа. Случилось, однако, это не такъ. Всѣ существовавшіе и существующiе русскiе модные журналы, эти «вѣстники моды», есть не больше, какъ нѣмецкіе модные журналы (Modenwelt, Bazar) съ русскимъ, текстомъ, а такъ какъ нѣмцы заимствуютъ моду изъ того же Парижа, видоизмѣняя ее по своему національному вкусу (   Читать дальше...   )1906Жанр: Раритеты, журнал, модаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA33C794A7D2C999D04F8A112D169EF4C16DDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465480   (96198) от 10.03.2012
-
-Журнал | Школа кулинара №5 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рецепты, присланные в редакцию читателями, готовятся профессиональными шеф-поварами. Подробные фотоиллюстрации всех этапов приготовления. Рецепты сопровождают практические советы, экскурс в историю продуктов и другая полезная информация.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D560C0E2C0014C9660F81420EE93B69132D36CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465647   (96196) от 10.03.2012
 
 Lord of Speed vs DJ Kaos - Split (2012) [MP3|320 кб/с]<Speedcore, Noise>
@@ -802,6 +518,270 @@ https://mybot314.ru/tekegram_catalog/
 ###  Подробнее
 
 Ссоры детей обычно заканчиваются оплеухами или шумными драками. У взрослых все гораздо хуже — их конфликты могут перерасти в настоящую войну. Задиры и задаваки Захари и Итан даже не подозревали, что натворила их школьная вражда. Сами того не желая, они разбудили древнего бога резни, который заставил расплачиваться за проделки мальчишек их родителей.Жанр: Драма, КомедияРежиссер: Роман ПоланскиАктеры: Джоди Фостер, Кейт Уинслет, Кристоф Вальц, Джон Си Райли, Элвис Полански, Элиот Бергер, Натан Риппи, Таня Лопер, Джули АдамсПеревод: ДублированныйПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464949   (96089) от 09.03.2012
+
+Amaranthe - Amaranthine (2011) HDRip [720p]
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amaranthe (ранее известный как Avalanche) - это шведско-датская пауэр/мелодик-дет-метал-группа, сформировавшаяся в Швеции и Дании. Amaranthe - новый проект, в котором приняли участие Джейк Е. Лундберг (ex-Dream evil, Dreamland) и Олоф Мерк (Nightrage, Dragonland).
+Amaranthine - видеоклип на песню  с дебютного альбома Amaranthe (2011). Наслаждайтесь приятным женским вокалом и красотой вокалистки группы.Жанр: Melodic Metal,Modern MetalАктеры: AmarantheПеревод: ОтсутствуетПродолжительность: 00:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40881F7E02A3C1F303822AEA077B2CD1F8F70E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465256   (96083) от 09.03.2012
+
+В. Роман | "Аэрокобры" над Кубанью [2006] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена истории создания истребителя Р-39 «Аэрокобра» и применении его «ранних» моделей Р-39К, L и М советскими ВВС в боях над Кубанью. Рассматриваются особенности конструкции и ЛТХ самолета, пути поставок в СССР, хроника боевых действий авиаполков ВВС РККА и ВВС ВМФ. Приведены подробные чертежи в масштабе 1:48, схемы, карты, 21 цветное и 51 ч/б фото.
+Впервые публикуется окраска самолетов советских асов А.И. Покрышкина, Б.Б. Глинки, В.М. Дрыгина и др. Издание предназначено для любителей истории авиации и моделистов.2006Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72185CE6D257A894040D8B5101FAB031C43D1B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465380   (96073) от 09.03.2012
+
+[Wallpapers] HD Разное ч.47
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка обоев различной тематики (природа, фентези, девушки, машины д.р.)Разрешение файлов: 1680X1050 - 1920X1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D5B950EE24236FBDD7ABC41C8BFE69ACAE017A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464443   (96072) от 09.03.2012
+
+VA - Generation of Psytrance Vol.8 (2012) [MP3|320 кб/с]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi – Bad Boy (07:16)
+ 02. Aladiah – Sex Enhancer (08:21)
+ 03. Broken Toy – Hole in Clouds (06:24)
+ 04. Hemi Sync – Voice Imaging (06:38)
+ 05. Inner Action – Movements (07:17)
+ 06. Kruger & Coyle – The Wtiness (Bulletrpoof Remix) (08:53)
+ 07. Mekkanikka – Electromagnetic Pulse (06:22)
+ 08. Miditec – Galaxy Waves (07:55)
+ 09. Nitrodrop – Dub Fashion (08:17)
+ 10. Orion – The Capirinha Effect (07:09)(   Читать дальше...   )2012Жанр: Psychedelic / Full OnПродолжительность: 02:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A23B9079126A7BC12FFDBDD6938165DEFFD41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465044   (96069) от 09.03.2012
+
+Armin van Buuren - A State of Trance 551 (2012) [MP3|256 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A State of Trance - Intro [01:06]
+ 02. Roger Shan pres. Sunlounger feat. Zara Taylor - Try To Be Love (Roger Shah Naughty Love Mix) [06:01]
+ 03. Rank 1 & Jochen Miller feat. Sarah Bettens - Wild And Perfect Day (Cosmic Gate Remix) [04:25]
+ 04. Alexander Popov - When The Sun (Eximinds Remix)  [04:56]
+ 05. Eximinds - Augus [04:09]
+ 06. Ashley Wallbridge & Andy Moor feat. Gabriella - World To Turn [04:54]
+ 07. Ashley Wallbridge - Zorro [04:07]
+ 08. Ashley Wallbridge - Mumbai Traffic [03:05]
+ 09. Heatbeat - Arganda (Chris Schweizer Remix) [04:20]
+ 10. Above & Beyond feat. Zoл Johnston - Love Is Not Enough (Maor Levi & Bluestone Remix) [04:49](   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CAC63849C1EB92DBFFF586E96936F35341FFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465412   (96068) от 09.03.2012
+
+[Wallpapers] HD Разное ч.50
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка обоев различной тематики (природа, фентези, девушки, машины д.р.)Разрешение файлов: 1680X1050 - 1920X1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C90848ACBC2211CF0BA0BD08D042FAED12042DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465067   (96065) от 09.03.2012
+
+Лотус - Триумф инженерной мысли / Lotus - Victory by design (2003) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lotus Cars — британский производитель спортивных и гоночных машин, базирующийся в Хетеле, Норфолк, Англия.
+Компания основана в 1952 году Энтони Колином Брюсом Чапмэном как Lotus Engineering Ltd. Первоначально производство располагалось в здании бывшей конюшни в Хорнси. С 1960 года производство автомобилей было перемещено в современный завод недалеко от Хетел. Рядом с заводом располагался старый военный аэродром, который был переоборудован под испытательный трек.Жанр: ТелепередачаПеревод: Профессиональный (одноголосый)Продолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768D878CF3B68154FA757431FAC12D7349276C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465049   (96063) от 09.03.2012
+
+Ягуар - Триумф инженерной мысли / Jaguar - Victory by design (2003) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немногие марки автомобилей на современных автострадах обладают такими богатыми традициями и выдающимися характеристиками, как Jaguar.
+Своим рождением в 1922 г. автомобиль обязан Уильяму Лайонсу, человеку, который изначально видел будущее своей компании Swallow Sidecar в конструировании колясок для мотоциклов.
+Уже к 1927 г. он приступил к созданию автомобилей со специальным кузовом, результатом чего в 1931 г. стало появление легендарного SS1, продемонстрировавшего характеристики первого настоящего автомобиля Jaguar. С расширением и совершенствованием серии возникла необходимость в имени, отражающем скорость, мощь и лоск автомобиля, и в 1935 г. появилось название Jaguar.Жанр: ТелепередачаПеревод: Профессиональный (одноголосый)Продолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05566D884C6B48E70A6F683E00C27B25619D9C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464924   (96062) от 09.03.2012
+
+VA - The Sweetest Taboo Vol.1 (2009) [FLAC|Lossless]<Lounge / Chillout / Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96062.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - The Sweetest Taboo Vol.1 (2009)
+Год: 2009
+Жанр: Lounge / Chillout / Downtempo
+Продолжительность: 01:03:19Кодек: FLAC
+Битрейт: Lossless
+Тип рипа: image+cueТрек лист:
+01. Moca - Latein [04:54]
+02. Jazzamor - Beautiful Day [03:29](   Читать дальше...   )
 
 ## Скачать торент
 ```bash

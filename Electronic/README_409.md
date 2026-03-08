@@ -1,3 +1,59 @@
+###  Публикация: 1424454   (227771) от 17.11.2020
+
+Lamasz - Nature Morte (2020) Past Inside The Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Esquisse (01:51)
+2. Dégradé (06:47)
+3. Détails (03:57)
+4. Relief (06:30)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4028FCB301D181ABF8936E70C611A3FEAB22E59B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964998   (227768) от 13.12.2015
+
+Arno Hoddinghaus (A/R/N/O/, ARNO, Höddinghaus) - Discography (1994-2014) [FLAC|Lossless|tracks+.cue, tracks, image+.cue]<Ambient, New Age>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abbey 1 (39:05)
+ 02. Abbey 2 (21:23)Тип издания: CD, WebЖанр: Ambient, New Age |Продолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B9DDC4BEA273ACF93357B48B2B6195780A366D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583925   (227689) от 16.10.2022
 
 VA - Milk & Sugar House Nation Ibiza (2022) CD, Compilation [MP3|320 Kbps] <Soulful, Afro House, Nu Disco, Electronica>
@@ -690,64 +746,6 @@ VA - Poker Flat Recordings Best Of 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30524831C9F026097A72FFA46534154632CFCB19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268628   (226535) от 11.12.2018
-
-Woob - Tokyo Substrate Paradox (2018) Isometric [FLAC|Lossless|WEB-DL|tracks] <Ambient, Synthwave, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novak 監視™ (1:21)
-02. ラン (5:39)
-03. 0.04 内部 (4:23)
-04. 79 Million Adversaries (5:16)(   Читать дальше...   )Жанр: Ambient, Synthwave, DowntempoПродолжительность: 01:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9EFD02B1C5F010A3EBB3A5D4FB689A5AC16861F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268436   (226528) от 11.12.2018
-
-VA - Sunday Lounge Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artur Bayramgalin - Breath Of Spring (Original Mix) 3:48
-02. Jp-Juice - Le Soleil (Original Mix) 5:02
-03. Bob Zopp - Pink Toes (Original Mix) 6:00
-04. Frank & Dee - Party Coming Up (Original Mix) 3:52(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0082AA81C18849DEFBBBBDC17746477B980761B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

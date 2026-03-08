@@ -1,3 +1,37 @@
+###  Публикация: 613568   (983158) от 04.02.2013
+
+Donald Fagen - Sunken Condos (2012) [FLAC 2.0 96/24|image (vinylRip)]<Contemporary Pop/Rock, Jazz-Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slinky Thing (5:11)
+02. I'm Not The Same Without You (4:30)
+03. Memorabilia (4:11)
+04. Weather In My Head (5:27)
+05. The New Breed (4:34)
+06. Out Of The Ghetto (4:51)
+07. Miss Marlene (4:42)
+08. Good Stuff (4:53)
+09. Planet D'Rhonda (5:33)Жанр: Contemporary Pop/Rock, Jazz-RockПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7C89BD6E7ADAF620744F6C4F4C7561DFF3112C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613611   (983156) от 04.02.2013
 
 GeoGebra 4.9.98 RC [Multi/Русский]
@@ -686,32 +720,6 @@ WinX DVD Ripper Platinum — это супер DVD риппер, поддерж�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612997   (982983) от 04.02.2013
-
-Музыка неба (2004) DVDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Композиция из 32 музыкальных видеоклипов, главные действующие лица в которых - самолеты и вертолеты.Жанр: ВидовойЯзык субтитров: нетПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59DEA2ADF258484A85D109D9E6E02A52CAB4DCE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

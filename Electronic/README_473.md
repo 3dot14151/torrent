@@ -1,3 +1,61 @@
+###  Публикация: 1715419   (111528) от 12.04.2024
+
+VA - Keep It Trance Vol. 20 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Hu - Where Are You Going? (Extended Mix) [6:01]
+02. Sergey Salekhov & Andrew Mirt - Diamond (Extended Mix) [6:58]
+03. Mike Koglin - The Silence (AstroFegs Remix) [7:25]
+04. Alexey Lukianov - Cozy Shores (Radio Mix) [2:53](   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA041A32C6F2AEBE1CFD71B591AF77720072062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715497   (111527) от 12.04.2024
+
+VA - Top 9 March 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alphacube - Stripes To Horizons (Original Mix) [6:36]
+02. SounEmot - En Mis Sueños Siempre Te Vuelvo A Recordar (Emotional Mix) [10:02]
+03. Masaru Hinaiji & Kayumai - We Will Shine (Pink Pig Remix) [8:37]
+04. Gayax - Midnight Bird (Original Mix) [6:48](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C679CC37DE6BC1A99899628B1D203DDE7BD4105D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715856   (111490) от 13.04.2024
 
 Aural Imbalance - Infinity Spectrum (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle>
@@ -677,64 +735,6 @@ Claptone & Diplo played:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D60AC449E814155E37F0C0BD0804E0FAB19E62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717778   (111106) от 21.04.2024
-
-Nicky Romero - Tomorrowland Friendship Mix (2024-04-18) [MP3|320 Kbps] <Tech House, House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicky Romero - All Night Long
-02. Nicky Romero - Techtronic
-03. Almero - Over There
-04. Plastik Funk & Mark Bale - Get Nasty(   Читать дальше...   )Жанр: Tech House, House, Progressive HouseПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FB60508E28C5C5AE8B0EB12625DA9301E71B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718173   (111019) от 23.04.2024
-
-Sensuous Enemy - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nova [00:04:35]
-02. Fire In The Dark [00:04:26]
-03. Drift [00:03:48]
-04. Weeping Woman [00:05:14](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CE0DA6A30BE27B8387B93B9ABB4580A443773E
 ```
 
 https://mybot314.ru/tekegram_catalog/

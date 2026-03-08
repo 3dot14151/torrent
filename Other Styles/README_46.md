@@ -1,3 +1,32 @@
+###  Публикация: 1511319   (788804) от 21.11.2021
+
+Kvitka Cisyk - Two Colors (1989) Kacey Cisyk, Квитка Цисык [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788804.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Де ти тепер
+2. Черемшина
+3. Коломийка
+4. Тече річка(   Читать дальше...   )Жанр: FolkПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5E9E6D993F5C44F9F637648A90703A97686269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202903   (788646) от 01.02.2018
 
 Ernesto Cortazar - Blue Waters (2009) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:761F83ACCC0DF539C087EC730796FC0C72CAEFE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124715   (785613) от 12.04.2017
-
-Птицы Тёрна - «Живой» альбом (2017) Live [MP3|320 Kbps] <Fantasy Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Конферансье [1:16]
-02. Вступление [1:30]
-03. Пой, Клинок! [2:49]
-04. Идущим [4:04](   Читать дальше...   )Жанр: Fantasy FolkПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F6B77946B4FF7409BEC4771ABC41F809EA671E
 ```
 
 https://mybot314.ru/tekegram_catalog/

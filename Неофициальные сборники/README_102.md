@@ -1,3 +1,177 @@
+###  Публикация: 1101519   (894543) от 07.02.2017
+
+VA - Душевная музыка на радио Шансон. Сборник №10 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894543.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Андрей Широков - Голубые Города 3:34
+002. Александр Блик - Телогрейка 3:18
+003. Milen - Вишенка На Торте 3:34
+004. Владимир Курский - Колода 3:08(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E6FD1648512EB81B02401063C361A8447F9122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993679   (894285) от 06.03.2016
+
+VA - Deep House Flavour Vol 7 (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mario Chris - Who's Got Your Love Tonight (feat. Eleonora La Luna)
+02. Escadia - Far Cry
+03. Jaques Le Noir - Better Believe
+04. Marcelo Wallace - Breath(   Читать дальше...   )Жанр: HouseПродолжительность: 04:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BCE5405EC05AB7C42F40B5E661BABB1C117D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993893   (894259) от 06.03.2016
+
+VA - Sweet and Sexy: 20 Amazing Lounge Anthems Vol.1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maurice Sanders - Someone Calls
+02. The Beach Hotel - Nothing True
+03. Mediterranean Soul - I Gasp for You
+04. Chill Ars Project - Attached to Life - International Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65BCEEEB13B5EE68779ACEC8262AE17E6C248F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993717   (894126) от 06.03.2016
+
+Spring Party - Hits For Your Car N3 (2016) [MP3| 191-320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerome Feat. Ace Young - Dont Walk Away (Radio Edit)
+02. Matteo Marini - Rush (Original Mix)
+03. Futuristic Polar Bears - Jetlag
+04. Deep Divas & Rehnoir - Phaze (Original Mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 09:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB88CE725F88A437FACC987831A00B45409069D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493665   (894122) от 04.09.2021
+
+VA - Best New DnB Hype (2021) [MP3|320 Kbps] <D&B, Bassline, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894122.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Krusty - Friction
+002. Psyek, Spoi - Graham's Number
+003. Alcemist - Repression
+004. Radist - Paralel(   Читать дальше...   )Жанр: D&B, Bassline, Electro BassПродолжительность: 11:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835C803523E8BABE5AE8CDC1F07C438BFB8CE9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993797   (894114) от 06.03.2016
+
+VA - Spring Relaxation Cafe: Cool Ambient And Chillout Moments (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillplaza - White Horse - Aurora Burials Mix
+02. Guilty by Innocence - Thief of Heart - Shades of Stalker Erotic Downbeat Buddha Mix
+03. Sterling Ground - El Nino - Spting Break Part Mix
+04. Marry Me - Deep Crush - Goa Beach Bar Lounge Edit(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416D147B53CE0D73C020CB9D6263F938ABAB72BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493689   (894088) от 04.09.2021
 
 VA - NRW: Clubbing Future House (2021) [MP3|320 Kbps] <House, Electro>
@@ -571,186 +745,6 @@ VA - Русское Радио. Лучшее '2021 (04.09.2021) (2021) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C916A67248489A19A6C628BFF386BA00962E26F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370987   (893314) от 29.03.2020
-
-Oliver Shanti - 100% Oliver Shanti (2020) [MP3|320 Kbps] <New age, Enigmatic, Ethnic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Water - Four Circles Of Life
-02. Well Balanced
-03. Journey To Shambala
-04. Tocar Para Sarakali(   Читать дальше...   )Жанр: New age, Enigmatic, EthnicПродолжительность: 03:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6B4DE925803229180B110DE2037F5E56C41F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993819   (893305) от 06.03.2016
-
-VA - 100 Самых красивых песен (2016) [MP3|320 кб/с] <Pop , R&B , Disco , Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Connells - '74-'75
-02. Groove Coverage - God Is A Girl
-03. Sophie Ellis-Bextor - Wrong Side Of The Sun
-04. Shania Twain - Ka-Ching(   Читать дальше...   )Жанр: Pop, R&B, Disco, RockПродолжительность: 06:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DC02B6D6BFE9DA1611E459FF2A9B8A0233B6A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370930   (893290) от 29.03.2020
-
-Karunesh - 100% Karunesh (2020) [MP3|320 Kbps] <Enigmatic, New age, Ethnic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeon
-02. Lyria
-03. Moola Mantra
-04. Oasis(   Читать дальше...   )Жанр: Enigmatic, New age, EthnicПродолжительность: 02:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FDE234BF5B477C1DB52FD16D8DC2F4B84657E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639350   (893183) от 04.04.2013
-
-VA - Absolute Music 72 (2013) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893183.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01.Robin Stjernberg - You 03:02
-02.Passenger - Let Her Go 04:10
-03.Zara Larsson - Uncover 03:32
-04.Rihanna - Diamonds 03:43
-05.Kim Cesarion - Undressed 03:40
-06.Bruno Mars - Locked Out of Heaven 03:52
-07.Yohio - Heartbreak Hotel 03:04
-08.The Lumineers - Ho Hey 02:41
-09.Imagine Dragons - Radioactive 03:06(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5F34B01B6B3D9FA9C6714CD019BBA3EF177495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101933   (893129) от 08.02.2017
-
-VA - Отдыхаем душой на радио Шансон выпуск №2 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893129.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Солла Смитт - Ты Самый Лучший 4:13
-002. Игорь Голубев & Юлия Прокофьева - А Счастья Хочется 3:54
-003. Алексей Романюта - Осенний Сад 3:24
-004. Светлана Аверочкина - Не Стану Говорить 3:18(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059343BD4407EDB27E2E18EF3330038CBCC68C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101934   (893070) от 08.02.2017
-
-VA - Ресторан Кураж зимний выпуск №3 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893070.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная Союза - Дубай-Питер-Вологда 4:00
-002. Александр Курган - Сердце Прости 3:26
-003. Александр Казанцев (Сотник) - Никому Не Желаю Зла 3:21
-004. Владимир Захаров - Я Не Пойму 3:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18944E208EA528C87A51AA34587E81AD8D1F4F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

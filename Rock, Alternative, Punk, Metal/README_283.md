@@ -1,32 +1,3 @@
-###  Публикация: 1122005   (798848) от 05.04.2017
-
-Mammoth Weed Wizard Bastard - Y Proffwyd Dwyll (2016) [MP3|320 Kbps] <Doom, Sludge, Psychedelic,>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valmasque
-02. Y Proffwyd Dwyll
-03. Gallego
-04. Testudo(   Читать дальше...   )Жанр: Doom, Sludge, Psychedelic,Продолжительность: 00.48.16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CD4639D19B43A74D14B32CE78C56F0D7BDC622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122001   (798843) от 05.04.2017
 
 Mammoth Weed Wizard Bastard - Noeth Ac Anoeth (2015) [MP3|320 Kbps] <Doom, Sludge, Psychedelic,>
@@ -743,6 +714,35 @@ The Flight of Sleipnir - 4 Albums (2014-2021) [FLAC|Lossless|image + .cue] <Ston
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53322275DEFB1F4AE4E01B2CE695454ACF70A2EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506081   (798446) от 04.11.2021
+
+The Darkness - Motorheart (2021) [FLAC 2.0|96.0/24|tracks|WEB-DL] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome Tae Glasgae (2:49)
+02. It's Love, Jim (3:23)
+03. Motorheart (4:59)
+04. The Power and the Glory of Love (3:59)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BCBC006AC65B386FE4563917AAC44AD840D916
 ```
 
 https://mybot314.ru/tekegram_catalog/

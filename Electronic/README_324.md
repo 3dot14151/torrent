@@ -1,3 +1,61 @@
+###  Публикация: 1415041   (381596) от 10.10.2020
+
+VA - Putting The Morr Back In Morrissey (2000) Morr Music [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hessen - Sylvester (New Years Day Remix) (04:42)
+ 02. The Notwist - Scoop (ISAN Rmx) (05:13)
+ 03. Kandis - Herbstzwilling (Tied & Tickled Trio Rmx) (06:22)
+ 04. Tied & Tickled Trio - Utrom (Kandis Mix) (04:31)(   Читать дальше...   )Тип издания: CDЖанр: Abstract, IDM, Ambient •Продолжительность: 02:18:47 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DF956769660F332E06F1DA54C3B654169E72F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575014   (381559) от 07.09.2022
+
+Hypnotix - Star Gates (2006) [OGG Vorbis|485 Kbps] <Synthpop, Experimental>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  N.O.M.M.O                	0:59
+02.  Window To The Past	4:44
+03.  Contact                     	0:57
+04.  Star Gates                   	4:20(   Читать дальше...   )Жанр: Synthpop, ExperimentalПродолжительность: 01:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A413963A91152D0996A7AB53CD14E424667CE23A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574710   (381558) от 07.09.2022
 
 Purple Fog Side & Elsehow - How To Disappear (2022) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Post-Punk, Dreampop>
@@ -689,64 +747,6 @@ VA - Vocal Anthems Amsterdam (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5B8AE4733439EA7EC6F5FA6EB1CC6973036E69E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575095   (379411) от 08.09.2022
-
-Hypnotix - Star Tracks (1997) [OGG Vorbis|485 Kbps] <Synthpop, Experimental>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Star-T                                               	0:40
-02.  Star Track 4,3,2,1                             	4:20
-03.  Io Starship                                   	1:04
-04.  Northstar                                     	6:51(   Читать дальше...   )Жанр: Synthpop, ExperimentalПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECFF5CE7971DA5EFFA05A0C7442E1CC79179488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253848   (379410) от 11.10.2018
-
-The Midnight - Kids (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Youth (03:09)
-02. Wave (04:31)
-03. Kids (Prelude) (02:13)
-04. Lost Boy (04:37)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA3358CC7E9AFF40ABD94C1681BFF2E9FEF738F
 ```
 
 https://mybot314.ru/tekegram_catalog/

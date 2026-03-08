@@ -1,30 +1,3 @@
-###  Публикация: 1381790   (824589) от 08.05.2020
-
-Танцы Минус - Привет, весна! (2020) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824589.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Привет, весна!
-2. Уехал автобусЖанр: RockПродолжительность: 00:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98E67773672BC48DC660138EE4A601C68835296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116435   (824582) от 19.03.2017
 
 Turmion Katilot - Dance Panique (2017) [MP3|320 Kbps] <Industrial Metal>
@@ -746,6 +719,35 @@ Deadlock - Wolves (2007) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51716E4D8DEB65E0EA39C2A7938254D5DB9D27B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381942   (822781) от 09.05.2020
+
+Circus Maximus - Isolate (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Darkened Mind (5:33)
+02. Abyss (5:00)
+03. Wither (4:46)
+04. Sane No More (3:55)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767CAB17A903C3F1F9BE6A57C756FD95B9C36099
 ```
 
 https://mybot314.ru/tekegram_catalog/

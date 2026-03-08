@@ -1,3 +1,61 @@
+###  Публикация: 1324080   (429792) от 07.09.2019
+
+VA - Nine Years Of Techno: Selected by Agent Orange DJ (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Ishii & Submerge - Twitched (Submerge Remix) (7:27)
+02. Lucas Freire - Organ Pad (7:03)
+03. Sam Insecton - Dragonfly (6:44)
+04. Ken Ishii - Malfunction Manipulation (Funk D'Void Remix) (7:19)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC8E7F55829EE1491503B02E539D0066E49E083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411246   (429747) от 24.09.2020
+
+Omni Trio - The Haunted Trax EP (1996) Sm:)e Communications [FLAC|Lossless|tracks|Vinyl] <Drum n Bass, Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Are You (06:45)
+ 02. Serpent Navigators (06:14)
+ 03. London Step (05:40)
+ 04. Nu Birth Of Cool (Rogue Unit Mix) (06:29)Жанр: Drum n Bass, JungleПродолжительность: 00:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87D8618244836FC240CC89A89F51DAD4C1ADD97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411077   (429729) от 24.09.2020
 
 VA - Fitness, Running & Dance Hits 2k20 (2020) [MP3|320 Kbps] <Progressive House>
@@ -693,62 +751,6 @@ VA - The Ambient Cookbook II (2002) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D090F7EB1CC6F732747996E366E58EB3CF5376AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166095   (426918) от 16.09.2017
-
-Thomas Gandey - Lovemachine (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/02. Lovemachine (Original Mix) (7:54)
- 02/02. Lovemachine (Re.you & Pleasurekraft Remix) (7:43)Жанр: Deep House, Tech HouseПродолжительность: 00:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246E7D4E488E3A6596BEC45D117BB308120C54E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166199   (426655) от 16.09.2017
-
-VA - Deep House Summer Essentials 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Midnight - Vampires (Vintage & Morelli remix) (07:00)
-02. Marsh & Marcelle Antunes - Summit (extended mix) (05:24)
-03. Eleven Five - Keep My Heart (Bonus Track) (05:54)
-04. LaMeduza & Stendahl - Different You (Approaching Black vocal remix) (04:59)(   Читать дальше...   )Жанр: Deep House, Tech House, Chill HouseПродолжительность: 01:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE237352081759B258DB09A3498BCD9946DCB08
 ```
 
 https://mybot314.ru/tekegram_catalog/

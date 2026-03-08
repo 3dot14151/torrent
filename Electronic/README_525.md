@@ -1,3 +1,61 @@
+###  Публикация: 1755376   (40163) от 16.10.2024
+
+Hot Chip - Coming On Strongerer (2004) 20th Anniversary Deluxe Edition, 2024, Moshi Moshi Records [MP3|320 Kbps] <Synth-Pop, Indie Pop, Electro>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hittin Skittles [00:04:30]
+02. Marrow [00:04:49]
+03. My PC (20th Anniversary Deluxe Edition) [00:03:05]
+04. From Drummer To Driver [00:04:24](   Читать дальше...   )Жанр: Synth-Pop, Indie Pop, ElectroПродолжительность: 2 CD, 01:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69C77A334BCEDC3B9255BF1EFA7312783F8E7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755460   (40160) от 16.10.2024
+
+Fever Ray - Live at Troxy (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Synth-pop, Leftfield>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Itch (Live) [00:05:28]
+02. A Part Of Us (Live) [00:03:52]
+03. When I Grow Up (Live at the Troxy) [00:04:26]
+04. Mustn't Hurry (Live) [00:04:35](   Читать дальше...   )Жанр: Dance-pop, Synth-pop, LeftfieldПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B45424C79F7DCD98D4E37AC5EF87DC5DA830D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755696   (40094) от 17.10.2024
 
 VA - Paris La Nuit, Vol 1 (A Premium Lounge Collection) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Downtempo, Balearic>
@@ -681,63 +739,6 @@ VA - Armin van Buuren - A State Of Trance 1196 (2024) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7790CE85FAA429E648BAED6E91D27292A27563F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757069   (39273) от 25.10.2024
-
-Benassi Bros. x Dhany - Every Single Day (remix) (2021) [FLAC|Lossless|WEB-DL|tracks] <Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benassi Bros. x Dhany - Every Single Day (club edit) (03:43)
-02. Benassi Bros. x Dhany - Every Single Day (club version) (06:41)
-03. Benassi Bros. x Dhany - Every Single Day (club version instrumental) (06:41)Жанр: Club HouseПродолжительность: 00:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC79D0F4BEABC3D5E8EB5673DBAC1E5F8D65C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757168   (39176) от 26.10.2024
-
-VA - Autumn Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deepest, AMHouse & Ghalia - Bastanna (I'll Wait) (03:00)
-02. Moses & VOLB3X - Let Me Down Slowly (03:32)
-03. Umur Anil Gokdag, TwoRule & Liwia - Everything I Wanted (03:11)
-04. Tury, Pawoh & N@OM1 - Lovely (02:24)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E437474E9CBABF73D1228BCE42AA25808A0C7395
 ```
 
 https://mybot314.ru/tekegram_catalog/

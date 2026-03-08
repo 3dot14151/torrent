@@ -1,32 +1,3 @@
-###  Публикация: 1439301   (1040115) от 12.01.2021
-
-Trevor Bolder - Sail The Rivers (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Which Way Will The Wind Blow (05:43)
- 02. Rich Kid (04:35)
- 03. Wasting My Time (04:31)
- 04. I Had A Dream (05:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8600828C2104DFA4EB97593E6AF91B4927552D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439343   (1040113) от 12.01.2021
 
 Hessler - When The Sky Is Black (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
@@ -748,6 +719,35 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BB5642CEB08EB648CF17557CB9F9784B5E3217C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613144   (1039622) от 18.02.2023
+
+Issa - Lights Of Japan (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live Again
+02. Lights Of Japan
+03. Seize The Day
+04. Stop The Rain(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:408BC5A6315532CAD9E853EE47C367EF66A283B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

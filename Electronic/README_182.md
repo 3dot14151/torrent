@@ -1,3 +1,61 @@
+###  Публикация: 1284799   (724916) от 24.02.2019
+
+VA - Alfa State - Plays 7V (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ercos Blanka - Brigante (08:55)
+02. Ben Preisinger - The Quiet Wanderer (07:03)
+03. Agatha Pher - Light Shadow (06:40)
+04. Yarosslav - Boundaries (Iron Curtis No Boundaries Mix) (07:32)(   Читать дальше...   )Жанр: Deep House, Downtempo, Tech House, TechnoПродолжительность: 02:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8923A78D659952C4EA1C4B67F482EA90E9772058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285030   (724914) от 24.02.2019
+
+Mirror System - Mirrorsystem (2005) [MP3|320 Kbps] <Downtempo, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cloud II (6:59)
+02. Stela (duende mix) (7:54)
+03. Hilal (6:41)
+04. Flex e fun (8:07)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DD2DC8C3B78E3E3CDC422D659907739686DD2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129013   (724838) от 27.04.2017
 
 VA - Sportskanone Vol 1 (25 Dance Bangers To Make You Sweat) (2017) [MP3|320 Kbps] <Progressive House>
@@ -687,64 +745,6 @@ VA - Black Chill & Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A62E9B42B9A6B56C580062301D661F7BE7CC188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129245   (722622) от 28.04.2017
-
-William Hoshal - River Of Clouds (2017) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  River Of Clouds Part I (11:16)
-02.  West of Everything (10:54)
-03.  Deep Light (14:27)
-04.  Maintaining Status (7:03)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003B4B10FD1B0C49CE0C75AD388A461CD33CC7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129204   (722621) от 28.04.2017
-
-VA - Ristorante Lounge And Deep - Restaurant Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Donati - Lounge Delight (Original Mix) 05:23
-02. Costez Ensemble - Violet Dawn (Original Mix) 05:39
-03. Moonshine Project - Noche Suave (Original Mix) 05:06
-04. Smooth Soul Sound - Solaris Touch (Original Mix) 05:06(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673AD9FE1076FC5D527E2AD7C16DA1186BAF2B9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

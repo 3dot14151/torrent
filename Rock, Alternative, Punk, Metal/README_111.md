@@ -1,32 +1,3 @@
-###  Публикация: 1474631   (1012865) от 03.06.2021
-
-The Grateful Dead - Blues For Allah (1975) Hybrid, Album, Limited Edition, Reissue, Remastered, 2019, Mobile Fidelity Sound Lab [FLAC|Lossless|image + .cue] <Folk Rock, Country Rock, Psychedelic ...
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help On The Way / Slipknot!
-02. Franklin's Tower
-03. King Solomon's Marbles
-Stronger Than Dirt(   Читать дальше...   )Жанр: Folk Rock, Country Rock, Psychedelic RockПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77022B85624F0DA7D112CEC0350BAE52BC5DE46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474625   (1012858) от 03.06.2021
 
 Crystal Sky - Spell Of The Witch (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -745,6 +716,35 @@ Anima Mundi - Septentrion (2002) [FLAC|Lossless|tracks + .cue]<Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F294FC431DBAD3AC19CA89ABEF0575EBBE28EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475161   (1012453) от 06.06.2021
+
+Anchors & Hearts - Guns Against Liberty (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This is Not a Test [00:00:48]
+02. What If God Was One of Them? [00:03:56]
+03. The President [00:03:22]
+04. Guns Against Liberty [00:03:27](   Читать дальше...   )Жанр: Metalcore, Melodic HardcoreПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DDAA5ACD0F8F50FCA17BF337265042292E427E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1222531   (684439) от 29.04.2018
+
+VA - Лучший Клубный Хит (2018) [MP3|320 Kbps] <Club, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & Glowinthedark - Clap Your Hands (Original Mix)
+02. George Kwali & Kideko - All On Me
+03. Lucas & Steve - Make It Right (Extended Mix)
+04. Exodus & Kapkano - Let's Get Weird (Original Mix)(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 02:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA2ABD48BD3682365AF952FB8146433B74C1F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222570   (684436) от 29.04.2018
+
+Кино (Виктор Цой) - Печаль (2018) Remix [MP3|256 Kbps] <Инструментальный рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684436.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Печаль (Remix)Жанр: Инструментальный рок, ЭлектроПродолжительность: 00:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8CC548211EC19A91119C004352AAE8B8289DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404033   (684395) от 23.08.2020
+
+VA - The Official UK Top 40 Singles Chart 21.08.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Corry - Head & Heart (feat. MNEK)
+02. Cardi B - WAP (feat. Megan Thee Stallion)
+03. Nathan Dawe - Lighter (feat. KSI)
+04. Drake - Laugh Now Cry Later (New Entry)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25CD02834E2A406A1D10C3B7C4775BC3FE67FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029200   (684288) от 25.06.2016
+
+VA - Pop Rock 90s: Vol 02 (2016) [MP3|320 кб/с] <Pop, Rock, Retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684288.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Temple of the Dog - Wooden Jesus
+002. Foo Fighters - Everlong
+003. 2 Unlimited - Twilight Zone
+004. The Cure - Lullaby(   Читать дальше...   )Жанр: Pop, Rock, RetroПродолжительность: 08:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4205961B17242DCA4F83FFAC1DEBCEFF8A2C1541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404114   (684173) от 23.08.2020
 
 VA - 100 Most Relaxing Songs Ever (2020) [MP3|320 Kbps] <Pop, R&B, Other>
@@ -637,134 +750,6 @@ VA - World Of Relax (2012) [MP3|320 кб/с]<Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F205921FE8E032D99174A9B1F67A8B431621E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508701   (679124) от 10.06.2012
-
-VA - 100 Mega Summer Hits 2012 (2012) [MP3|~273 кб/с]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_679124.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gipsy Kings - Bamboleo (3:25)
-2. Simply Red - The Right Thing (4:23)
-3. Mungo Jerry - In The Summertime (3:30)
-4. Sean Kingston - Beautiful Girls (3:47)
-5. DJ Jazzy Jeff & The Fresh Prince - Ring My Bell (3:47)
-6. R.I.O. - Miss Sunshine (5:24)
-7. The Sunclub - Fiesta (4:14)
-8. Skee-Lo - I Wish (4:13)
-9. Righeira - Vamos A La Playa (3:40)
-10. Elvis Presley - Mexico (2:00)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:04:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508041   (679093) от 10.06.2012
-
-VA - Сборник Родной музыки - "Авега" (2012) [MP3|192 кб/с]<Rock, Folk, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Дар Ветер - Вечность
-02 Банды Москвы - Живи Россия Моя
-03 Николай Емелин - Княжий остров
-04 Алевтина - Мокошь
-05 Мельница - На Север
-06 Алиса - Небо славян
-07 Светлаяна - Птицы
-08 Ария - Свобода
-09 Контрреволюция - Это значит, что скоро война
-10 Сокира Перуна - Дорога в Вальхаллу(   Читать дальше...   )2012Жанр: Rock, Folk, PopПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CCA6DACA298B1B8EE96648F8D5598231B94534E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222906   (678975) от 02.05.2018
-
-VA - Под водочку (2009) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678975.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Верка Сердючка - Горилка
-002. Братья Гримм - Пчела (Albach Remix)
-003. Уматурман - Главное, ребята, сердцем не стареть
-004. Витас - Потолок ледяной(   Читать дальше...   )Жанр: Поп, ШансонПродолжительность: 05:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29C26491D2DAE8CEC0735ED3EA460BF39353C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135754   (678955) от 20.05.2017
-
-VA - Empire Records - Retromania (2017) [MP3|320 Kbps] <Disco, Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mars - Disco Perpetrator (Original Mix) 5:59
-02.  Boris Zhivago - Lonely Lover (Classic Extended Mix) 6:12
-03.  Butterfly - Sorrow (Vocal) 8:31
-04.  Global Hit Makers - Shadows (feat. Marco Musca) 3:54(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 01:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49FB4BBF623F68F22B91D665DA240984CA3338E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

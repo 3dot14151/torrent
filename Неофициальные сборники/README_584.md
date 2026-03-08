@@ -1,3 +1,177 @@
+###  Публикация: 1640782   (193648) от 27.08.2023
+
+VA - Виниловый бублик (1901-2019) [MP3|128-320 Kbps] <Classic, Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия музыкальной коллекции с удалённого YouTube канала Виниловый бублик / UCxS1inqcdR8Zwf2x5CzAjjA
+
+Канал "Виниловый бублик" был открыт в 2017 году и посвящался записям на виниловых пластинках.
+За 6 лет работы канала было опубликовано более 4 тысяч аудиозаписей.(   Читать дальше...   )Жанр: Classic, Pop, RockПродолжительность: 1250:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423AAD3102B5930012DEFE0E74B28EF5F71EDD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828049   (193612) от 23.10.2025
+
+Jumanov - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Disorder
+ 02 - Feel Fresh
+ 03 - Action
+ 04 - Remember Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECAB22AF683FC2BE4618C9DB069313E21C6FBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828352   (193404) от 24.10.2025
+
+VA - Musical kaleidoscope part 59 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Echønova - Relaxing and Soothing Melody
+02 - Giovanni Marradi - Solitude
+03 - Novi - A Shadow of You (Remix)
+04 - Giovanni Marradi - Because I Love You(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, AIПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D28781B0E7DC8A2DDD34BA109AAEC49BD83A5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828745   (193402) от 24.10.2025
+
+VA - Anything and everything assorted part 8 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, AI, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dova Music - Hold Me Tonight
+02 - Jumanov - October
+03 - Mr Salama - Feel Your Love
+04 - Stive Morgan - Chicago Plus(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, AI, OtherПродолжительность: 01:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCE753A8EDDAED00CAA0BE74BBF1E6FDFF14859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827776   (193287) от 23.10.2025
+
+VA - Anything and everything assorted part 7 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Besso - Pulse
+02 - Azimov - Long Night
+03 - Elno - More Time
+04 - Mr Salama - Touch Me(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40EA42E7A76A39CF1501904D0F2FF8309AADFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827774   (193286) от 23.10.2025
+
+VA - Anything and everything assorted part 6 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Retrox - Whispers By the Shore
+02 - Dndm - Gray Night
+03 - Dova Music - Empty Heart
+04 - Umar Keyn - Like a Titanic(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93B5971232A0818E604E0FD91F9B0D835187D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827773   (193285) от 23.10.2025
 
 VA - Anything and everything assorted part 5 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
@@ -571,179 +745,6 @@ Queen + Freddie Mercury - Best of [Compiled by Firstlast] (2021) [MP3|192-320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3A64823624E7A5D8B7CF3DE217813081D70E5E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548265   (191893) от 02.11.2022
-
-GAYAZOVS BROTHERS - Синглы и ремиксы (2015 - 2022) [MP3|320 Kbps] <Pop, Deep-House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191893.jpg" />
-</div>
-
-
-###  Подробнее
-
-GAYAZOV$ BROTHER$ (Братья Гаязовы) — дуэт братьев Тимура и Ильяса Гаязовых, исполняющих музыкальные композиции в стиле рэп, хип-хоп и дип-хаус. Группа известна хитами «Кредо», «До встречи на танцполе», «Пьяный туман» и «Малиновая Лада». Завоевала популярность через интернет, без поддержки лейблов и СМИ.
-⠀2015-2022 - Синглы
-2019-2022 - РемиксыЖанр: Pop, Deep-HouseПродолжительность: 02:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C0747ED6E4D7AC3A7AE781520BC0564E5ADB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657834   (191822) от 06.09.2023
-
-VA - Compilation rock, blues rock,  part 33 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleu Jackson - Women, Whiskey, Guns and Knives
-02. Bleu Jackson - Some Never Learn
-03. Bleu Jackson - Breakdown
-04. Jay Owens - Wishing Well(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A59D8D8A2D0E29027021788B24ED2E75D40C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657646   (191790) от 06.09.2023
-
-VA - Compilation  Assorted rock, blues rock part  32 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddy Wilson's Blues Band - I'd Rather Go Blind
-02. Cort Duggins - Blue and Lonesome Ramblin' Man
-03. Bernie Marsden - Help Me Through the Day
-04. Corey Stevens - Killer Blues(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9C988A7B8D82ED4BCF7E2DCB4093705E24E4E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588300   (191558) от 04.11.2022
-
-VA - Oriental Deep 2 (2022) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthony Keyrouz - Akhedni Maak (2:35)
-02. Eljoee - Bent Sultan (3:57)
-03. Otnicka - Babel (3:22)
-04. Anthony Keyrouz - Mohicans - Radio Edit (3:40)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5939788D3E0DA6C95F28413E45E49B9BF3607C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588500   (191508) от 04.11.2022
-
-VA - Шансон Осень 2022 [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edik Salonikski - Бокал Вина (4:11)
-02. Pavlos Bouros - Когда Ты Рядом (4:17)
-03. Sevenrose - Туда, Где Ты (4:08)
-04. Shodi - Бродяга Странник (5:13)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C7C6CB6D60F3FBF0D765E52012AB668BCCCBF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658232   (191363) от 07.09.2023
-
-VA - Привет Уходящему Лету (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191363.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kalvados feat. Татем & Kasia - А Я Тебе Душу (2:28)
-002. 5УТРА - Давай Сбежим (2:31)
-003. Aquaneon - Нам Не Надо (2:25)
-004. Amirchik - Либо Люби (2:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06142F148BE3AFE11EB05942F933F182E9C54FD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

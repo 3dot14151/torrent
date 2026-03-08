@@ -1,3 +1,61 @@
+###  Публикация: 1717840   (58750) от 23.04.2024
+
+Depeche Mode - Some Great Reward (1984) 1st German Press [APE|Lossless|image + .cue] <SynthPop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something To Do (3:48)
+02. Lie To Me (5:04)
+03. People Are People (3:52)
+04. It Doesn't Matter (4:45)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52153A29EEA42ABA7643274EFC3E0A15815FB374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718266   (58660) от 24.04.2024
+
+VA - Sensual Chillout Beats (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hohe Minne - Quiet Soul (4:29)
+02. Logophilia - Puddle Reflections (4:20)
+03. Azeotrop - Glamorous Thoughts (4:27)
+04. Zirkadian Sender - Aeonium (4:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B6C0F590C1871AD48D470CDA14FECA11842C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717830   (58650) от 24.04.2024
 
 VA - Sirup Ibiza 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -685,61 +743,6 @@ VA - YHV Organic House (Summer Sampler 2024) [MP3|320 Kbps] <Organic House, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44EA78C0D9D42698F95C62CE7D543D9CAC8EBF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725798   (55301) от 26.05.2024
-
-Vintage Culture - Promised Land (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96281DE4FC39AA3443A6F18A47C060A611FE71A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726597   (54978) от 29.05.2024
-
-VA - Chillout & Lounge Music 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innate Joy - Rhyming Games (4:22)
-02. Fuchsgang - Thrilling Moments (4:22)
-03. Achtamada - Gelbe Ruabn (4:15)
-04. Silex Soils - Outgoing Nature (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2123F2851C2B059F6D40F9A845355B752302A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

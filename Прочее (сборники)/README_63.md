@@ -1,3 +1,119 @@
+###  Публикация: 1400878   (712962) от 08.08.2020
+
+VA - Громкие новинки Августа (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. #2Маши - Я забираю твою подругу (3:24)
+02. 3-ий Январь - Шкатулка (2:58)
+03. 6IX9INE - PUNANI (1:55)
+04. Alyona Alyona Feat. Kalush, Otoy, Білий Бо, Шершень, Dyktor, Дядя Вова - Стержень (5:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C06AB3663D22C3F19CA60785F2BB9DD5789214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400888   (712948) от 08.08.2020
+
+VA - 100 Greatest Party Songs (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prince - 1999 (Edit) 3:39
+02. The B-52's - Love Shack 5:22
+03. Taylor Swift - Shake It Off 3:39
+04. Black Eyed Peas - I Gotta Feeling (Edit) 4:06(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BB528A258C0F5F63136DF180946299A88CCD74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532538   (712576) от 20.02.2022
+
+VA - Зайцев.нет Лучшие новинки Февраля (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CAPTOWN - С любовью (2:05)
+02. INSAF, Альба Рябова - Пополам (3:32)
+03. KOTOIN - Raksha (Original Mix) (3:15)
+04. NILETTO - Angels (2:43)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F445573DBB12BAB5E474E2917DB3669A43FEF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532477   (712534) от 20.02.2022
+
+VA - Country: New Folk Music (2022) [MP3|320 Kbps] <Country, Folk, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это музыка является наследием творчества первых колонистов - переселенцев из Европы в Новый свет, представляя собой характерное смешение фольклора различных европейских народностей, которые были широко представлены в колониальной Америке. Впоследствии полюбившаяся музыка обрела широкую популярность и нашла себе применение в балладах американских ковбоев.001. Johnny Cash - The Caretaker
+002. Chris Janson - Beer Me
+003. Brothers Osborne - It Ain't My Fault
+004. Diplo - Hometown(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 09:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05FAE4CEE3B62695AFE81C946B4B80D31EFD5A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130790   (712179) от 03.05.2017
 
 VA - Top 100 Зайцев.Нет - Апрель (2017) [MP3|192-320 Kbps] <Pop>
@@ -631,122 +747,6 @@ VA - Созвездие весеннее - 9 (2016) [MP3|256 кб/с] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B72169076EF4DE4AA2F06430DC8DF537EEC816C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025805   (707760) от 13.06.2016
-
-VA - Зайцев.нет Летний муз-отрыв №2 (2016) [MP3|160-320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707760.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Disciples - How Deep Is Your Love
-002. Альбина - Не со мной
-003. Ханна - Омар Хайям
-004. Fifth Harmony - Worth It (feat. Kid Ink)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F271F526036B67B60E1BCFEA25663119DBBCBD12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025967   (707739) от 13.06.2016
-
-VA - DFM Top 30 (10.06.2016) [MP3|112-320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eva Simons feat. Sidney Samson - Bludfire (3:10)
-02. Max - I'll come back for you (DFM Edit) (2:32)
-03. The Chainsmokers feat. Daya - Don't Let Me Down (W&W Remix) (3:16)
-04. Alan Walker - Faded (DFM mix) (2:45)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A054E6AAB32FA45208EEB5A3F39CE2D213B21F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287051   (707107) от 05.03.2019
-
-VA - Partybreaks and Remixes - All In One November 001 (2019) [MP3|320 Kbps] <Disco, Funk, Soul, Electronic, Eras>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jeff92 & Sumania  Alan Cook - Do You Want To Stay (Jeff92 & Sumania Redrum)
-002. Collini  Basslovers United - A+ Superstar (C - Baumann Remix)
-003. Jeff92 & Sumania  Company B - Fascinated (Jeff92 & Sumania Redrum)
-004. Frankie Steel   Clean Bandit,  Julia Michaels - I Miss You (Trp Remix)(   Читать дальше...   )Жанр: Disco, Funk, Soul, Electronic, ErasПродолжительность: 10:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6E71039288104E47D0977DBBE81D17BAACF9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287026   (707105) от 05.03.2019
-
-VA - Brooklyn Bounce (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707105.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 22Bullets - Konichiwa
-002. Max Grade - Emotion (Original Mix)
-003. Albatros 67 - Play pen
-004. Zafer Atabey - A Sad Song (Original Mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D8013C99A3003D3E896EF7DDA1B81534B97387
 ```
 
 https://mybot314.ru/tekegram_catalog/

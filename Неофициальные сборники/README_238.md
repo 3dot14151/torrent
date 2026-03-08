@@ -1,3 +1,177 @@
+###  Публикация: 1218454   (723007) от 09.04.2018
+
+Bad Boys Blue - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник делал по заказу слушателя. Он просил отобрать 80-90 песен. У группы много однообразно - скучного творчества, как одна длинная песня. Выбрал 53 годных трека. Ерунду всякую пихать, лишь бы заполнить, не стал. Весь материал взят с оригинальных CD альбомов, без убивающего звук ремастеринга. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK01 Queen Of Hearts
+02 Come Back And Stay
+03 All About You
+04 Someone To Love(   Читать дальше...   )Жанр: PopПродолжительность: 03:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8634D646B7535B7C8B7832C851E1BAA85F42FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400077   (722954) от 03.08.2020
+
+VA - Beatport Techno: Electro Sound Pack #141 (2020) [MP3|320 Kbps] <Techno, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722954.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joe Cozzo - Detachment
+002. Blockform - Acid Rain
+003. Twins Project - Blast
+004. Jumkins - Angel(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 11:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D13EAC0868A4CC1B30A698A501961BCA38F7B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218460   (722940) от 09.04.2018
+
+VA - Двигай Попой! Лучшая танцевальная музыка (2018) [MP3|256-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta, Sia - Flames
+02. Arash - Dooset Daram (feat. Helena)
+03. Aris - S.O.S. (DJ Antonio Remix)
+04. Burak Yeter - Crash(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A023236D2BEB6C138B8461A7477740650C54471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400083   (722866) от 03.08.2020
+
+VA - Kings Of Improvisation (Vol. 02) (2020) [MP3|320 Kbps] <Jazz, Instrumental, Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722866.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Thelonious Monk - 'round Midnight
+002. Aurora Clara - Aktur
+003. Jazz Sabbath - Fairies Wear Boots
+004. Ilkka Arola Sound Tagine - Leadershipping(   Читать дальше...   )Жанр: Jazz, Instrumental, Smooth JazzПродолжительность: 11:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD1CDB47DFCA784A03F121AE12278E27D7FDAAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285278   (722771) от 25.02.2019
+
+VA - German Top 100 Single Charts 04.03.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722771.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. KC Rebell - DNA (feat. Summer Cem & Capital Bra)
+002. Shirin David - Gib Ihm
+003. Eno - Ferrari (feat. Mero)
+004. Pietro Lombardi - Nur ein Tanz(   Читать дальше...   )Жанр: PopПродолжительность: 05:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1CF6A6789F4186DCB09AB48B2EA0F21A8620F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285224   (722683) от 25.02.2019
+
+VA - Trap Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Trap, Future Bass, Electronica>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sasha Sloan - The Only (TWO LANES Remix) [3:34]
+02. Wide Awake - Something More (Original Mix) [3:06]
+03. Unknown Brain & Lox Chatterbox, Blvkstn & Salvo - Waiting (Original Mix) [3:19]
+04. DR!M - Banzai (Original Mix) [3:17](   Читать дальше...   )Жанр: Trap, Future Bass, ElectronicaПродолжительность: 02:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CF75CD916F3C90F5DB22D095073B2930B5263B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129242   (722624) от 28.04.2017
 
 VA - Beatport Trance  Pack (28.04.) (2017) [MP3|320 Kbps] <Trance, Energy, Tech Trance, Uplifting, Emotional, Blissful>
@@ -571,180 +745,6 @@ VA - Presage Of Emptiness (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A32446C0A8BF68F15932DEB747D9825193AE06B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218717   (721624) от 10.04.2018
-
-VA - Lounge Interior: Private Mood Set (2018) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721624.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rainer Schnelle - Beyond The Blue
-002. Tolubai - Close Your Eyes
-003. K37 - New Born (feat. Yellowbelly)
-004. Surfer - South Beach(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 09:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E2B1CB4A67C88CE53E7986533D61FAC8F967F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218545   (721547) от 10.04.2018
-
-VA - Живи стильно! Наслаждайся музыкой с Hit FM (13) (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Нюша - Не Боюсь
-002. Viva - Рядом С Тобой
-003. Стрелки - Любить Меня Поздно
-004. Kishe - Разбитый Бокал(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1BA509ED498A417DEB0C688671D19A5844384B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218721   (721509) от 10.04.2018
-
-VA - Ocean Of Love: New Generation Italo Disco (2018) [MP3|320 Kbps] <Italo Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. MindXpander - Synchronicity
-002. Estimado - Hidden Love (Album Version)
-003. Sakis Gouzonis - Everyday Protection
-004. Synthgo - Bella Bella (Extended Version)(   Читать дальше...   )Жанр: Italo Disco, Dance, PopПродолжительность: 09:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9213C902239E69F74B332372F003E6B2B2A162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218613   (721391) от 10.04.2018
-
-VA - Vocal Jazz Collection (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brenda Layne - Kindred Spirits
-02. Jamala - Thank You
-03. Maria Jacobs - If We Never Touch Again
-04. E M N A - No One Like You(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 04:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938C4635A22967F24E1CC9135BC6C7C662AAEB68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218596   (721269) от 10.04.2018
-
-VA - Живи стильно! Наслаждайся музыкой с Hit FM (15) (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721269.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Megapolice Feat. Arina - Ты И Я
-002. Денис Надежин - Не В Силах
-003. Braska - Слова
-004. Лоя - О Тебе(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BDF92DF4D1A2907B9F0EFC48E44CF5A337A2F72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218539   (721267) от 10.04.2018
-
-VA - Горячие хиты радиостанций (2018) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ina Wroldsen, Jax Jones, MNEK, Will Clarke, Fred G - Breathe
-02. Zayn - Dusk Till Dawn (Radio Edit)
-03. MARUV - Drunk Groove
-04. Arash - Dooset Daram (feat. Helena)(   Читать дальше...   )Жанр: PopПродолжительность: 05:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76410F8B121CDA7AEB8E27DC8877F41F153C81BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

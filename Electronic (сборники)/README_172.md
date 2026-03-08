@@ -1,3 +1,32 @@
+###  Публикация: 1332874   (309689) от 22.10.2019
+
+VA - Somatic Cell: Hyperactive Psy Trance (2019) [MP3|320 Kbps] <Trance Psychedelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309689.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ukauka & Mechanical Species - Triangular
+002. 3 Of Life - Santa Catarina
+003. X-Side - Symbolic World
+004. U-Recken - Whale Song(   Читать дальше...   )Жанр: Trance PsychedelicПродолжительность: 13:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC68F5418A4C7F6CFB635BC03DF217A772EB161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077045   (309288) от 27.11.2016
 
 VA - Ibiza 2016. Best of Techno-House [Compiled by Mistik] (2016) [MP3|320 Kbps] <Techno House, Deeptech>
@@ -732,41 +761,6 @@ VA - Power-Up Workout Break Hits (2016) [MP3|192-320 Kbps] <Merengue, Reggaeton,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA429F152E7393BABF60D940DF97281BBD6D96DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581809   (305883) от 05.12.2012
-
-Slakker - Totalrealism (Unreleased) (2012) [MP3|320 кб/с]<Instrumental, Downtempo, IDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305883.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sailor and the box
- 2. PVO
- 3. Second
- 4. Communication
- 5. Cowboy
- 6. Dzin
- 7. Radio
- 8. Ice Cream
- 9. Дед
- 10. Chanson/chansoff(   Читать дальше...   )Жанр: Instrumental, Downtempo, IDMПродолжительность: 01:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:986A978C3BFFE8A748F5CDBF61D2C472DAC8CFAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1233070   (593843) от 28.06.2018
+
+VA - World Of Latin Music (2018) [MP3|320 Kbps] <Latino, Pop, Hip Hop, Reggaeton>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593843.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lartiste - Catchu Catchu
+002. Veronica Vega, Pitbull - Wicked (DJ Papi Electric Club Remix)
+003. Luis Fonsi - Echame La Culpa
+004. Vakero - Anaisa (DJDX)(   Читать дальше...   )Жанр: Latino, Pop, Hip Hop, ReggaetonПродолжительность: 08:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D5C8F7B0C121413B07C17648B26C6F749DA9B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549232   (593819) от 06.05.2022
+
+VA - Music News vol.186 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593819.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алексей Воробьёв - Сумасшедшая (Remix) (02:50)
+ 002. 52Ghz - Будь Счастливой (03:03)
+ 003. AIZZO - Voices in My Head (02:17)
+ 004. Alderyn & Sick Individuals feat. Oscr - Tu Es Partout (03:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA34DBB91914A331495394D8169AF8FFE24CDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549117   (593747) от 06.05.2022
+
+VA - 90's Love Songs (2022) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babyface - Wonderful Tonight (3:42)
+02. Mariah Carey - My All (3:50)
+03. Bonnie Raitt - I Can't Make You Love Me (4:44)
+04. Richard Marx - Right Here Waiting (4:22)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A062FF6A325DDBC885EF78011425650AEADE6DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300231   (593699) от 05.05.2019
+
+VA - не Громкие новинки недели 14 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593699.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Павел Мурашов - Девочка В Красивом Платье (4:44)
+2.Kamazz - Первое Свидание (4:26)
+3.VAVAN (Владимир Селиванов) - Как Хорошо (Grue & DJ Jungo Remix) (4:03)
+4.Дмитрий Фомин - Открывая Окно (4:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B924A3B0B15D045A49B935EACEF1F4309A5238E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300308   (593493) от 05.05.2019
 
 VA - The Best World Ballads - 36 (2019) [MP3|320 Kbps] <Pop, Rock, Blues>
@@ -629,119 +745,6 @@ VA - Music News vol.189 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA6D2481AF1C030667AD5E85B9B0A4A217278AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040461   (586328) от 05.08.2016
-
-Bad Boys Blue - Hit Collection (2016) [MP3|320 Kbps] <Disco, Pop, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You’re A Woman (Reloaded) 3:07
-02. Pretty Young Girl (Reloaded) 4:40
-03. Hot Girls - Bad Boys (Reloaded) 4:23
-04. Kisses And Tears (My One And Only) (Reloaded) 4:01(   Читать дальше...   )Жанр: Disco, Pop, EurodanceПродолжительность: 02:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D52B374643A51FF816B8B61A175E310DB9983E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040489   (586316) от 05.08.2016
-
-VA - Weekend Forever Summer Control (2016) [MP3|258-320 Kbps] <Club, Funky, Tropical, UK Garage, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endanger - Es Ist So Einfach 03:41
-02. Napkey - Pegasus 03:33
-03. Mason - Nite Rite One 05:48
-04. Gray & Wayne Dudley - Understand (Original Mix) 06:52(   Читать дальше...   )Жанр: Club, Funky, Tropical, UK Garage, ElectroПродолжительность: 09:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D5F4FB47D15053EC7E1D654625DE662FD26DF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357762   (585955) от 02.07.2011
-
-VA - Пиратская Станция Exclusive (2011) [MP3|256-320 kbps]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, ClubПродолжительность: 05:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD31440E6526479A01419718ECBD944AAF59B402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918803   (585942) от 16.07.2015
-
-VA - Summer Top House Music (2015) [MP3|320 кб/с]<Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marotto - Bounce The Sun (Original Mix)
-02. Dim Sum - High Love (Original Mix)
-03. Dimmi & Goldfish - The Storm (Original Mix)
-04. Collarbones - Turning (Flume Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 11:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01E8E367E10644F47AAB0013BA16D19115399CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1134034   (691549) от 14.05.2017
+
+Brian BecVar - Once In A Life (1994) [FLAC|Lossless|image + .cue] <New Age, Neo-Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Tomorrow Comes
+02. Once In A Life
+03. The Tears Of Machu Picchu
+04. I Watched Her From Afar(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A134EE39D3514E388E87515306E9EFA3E179BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133883   (691486) от 14.05.2017
 
 Andrew Lockington, VA - The Space Between Us / Космос между нами (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -734,35 +763,6 @@ Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45BDC8FAA24475A1BB872C109DB48965368A6F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134212   (689247) от 15.05.2017
-
-Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lovers (Intro & Title) (03:04)
-02. Tell Her! (01:22)
-03. Lying to Lucy (01:38)
-04. Do You Want Some? (01:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC029DB42DF1E1FACD4685232BC14AF8F878A683
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1813963   (6420) от 22.08.2025
+
+VA - Summer Is Calling - Summer Is Calling, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Is Calling & Felix Leiter - Be Free (Extended Mix) 03:55
+02. Summer Is Calling, Audien & M.Bronx - Leaving You (Extended Mix) 04:08
+03. Summer Is Calling, Nadia Ali & IRO - Almost Home (Extended Mix) 04:55
+04. Summer Is Calling & Karen Overton - Your Loving Arms (Extended Mix) 04:04(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7000E757448400F62DCD6F8B345F236F4D5AD318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813941   (6419) от 22.08.2025
+
+VA - Ori Uplift - Uplifting Only Episode 654 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocoro – Jikimi (Intro Mix)
+02. DreamLife & Aleksey Gunichev – Autumn Meeting (Orchestral Uplifting Classic)
+03. Ciaran McAuley & Sean Tyas & Clara Yates – Runaway (Fan Favorite (653))
+04. New World & Geert Huinink – Empyrean (Breakdown Of The Week)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6E1D5E89F7567EB1A0B08020ED3F6A62696947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813923   (6406) от 22.08.2025
 
 VA - Armin van Buuren - A State Of Trance 1239 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -685,64 +743,6 @@ Hardwell - Euphoria 001 - 008 (2025) [MP3|320 Kbps] <Techno, Big Room>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D35FBE73115A93F1341C87B751DF1C0FD594402B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816047   (4414) от 04.09.2025
-
-Pola & Bryson - Fabriclive presents Pola & Bryson (2025) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Worlds Apart [00:04:41]
-02 - The Certified Bubbler [00:03:06]
-03 - Not Far To Go [00:06:25]
-04 - Lies [00:03:04](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B337648107A3A40F516CA1BE97328DCBA5DDD699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816335   (4410) от 04.09.2025
-
-VA - A State of Trance - Classics Top 10, Vol. 7 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Binary Finary - 1998 (Matt Darey Extended Remix) [7:18]
-02. Signum - Solar Level (Extended Mix) [9:30]
-03. Olmec Heads - Lift Off (Extended Mix) [7:49]
-04. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (12" Vocal Mix) [8:32](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2FC9CE77326309D6E21DBCB0ECB03FCBA0EA85
 ```
 
 https://mybot314.ru/tekegram_catalog/

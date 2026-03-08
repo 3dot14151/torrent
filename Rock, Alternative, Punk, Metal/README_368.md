@@ -1,32 +1,3 @@
-###  Публикация: 1025005   (714253) от 10.06.2016
-
-Wisdom - Rise Of The Wise (2016) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over the Wall
-02. Ravens' Night
-03. My Heart Is Alive
-04. Hunting the Night(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD9E2F46585B7EF300A4E4E476A4C154E08EF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130683   (714236) от 02.05.2017
 
 Days Of Jupiter - New Awakening (2017) [MP3|320 Kbps] <Hard Rock>
@@ -742,6 +713,35 @@ Tribal Ink - Surrounded By Freaks (2003) [FLAC|Lossless|tracks + .cue] <Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A38ADF9F251145B2C9AE248A95466A49E0EBC959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532491   (713105) от 20.02.2022
+
+Enuff Z'Nuff - Hardrock Nite (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кавер-версии "Битлз"01. Magical Mystery Tour (5:07)
+02. Cold Turkey (4:07)
+03. Eleanor Rigby (4:19)
+04. Live and Let Die (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C53FA047B3736C0E1891FA8FF9E671834867F97
 ```
 
 https://mybot314.ru/tekegram_catalog/

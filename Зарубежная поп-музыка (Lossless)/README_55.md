@@ -1,3 +1,32 @@
+###  Публикация: 1246870   (456637) от 13.09.2018
+
+VA - The All Time Greatest Love Songs of the 60's, 70's, 80's & 90's, Vol. II (1997) 2CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Ballads>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wet Wet Wet - Love Is All Around
+02. Celine Dion - Because You Loved Me
+03. Cherry - 7 Seconds
+04. Texas - Say What You Want(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 02:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6202F84FD64A829558994A3E7E63748D5A736DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408056   (455909) от 12.09.2020
 
 Everything Everything - RE-ANIMATOR (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -714,35 +743,6 @@ Sault - Untitled (Rise) (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E36FE4F853B134D5BBFED9824D7B4365DA85ED58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409567   (440297) от 19.09.2020
-
-Ava Max - Heaven & Hell (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. H.E.A.V.E.N (01:46)
-2. Kings & Queens (02:42)
-3. Naked (03:42)
-4. Tattoo (02:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28535DB503FC20E8DCA2CCDEB313F394C79C5872
 ```
 
 https://mybot314.ru/tekegram_catalog/

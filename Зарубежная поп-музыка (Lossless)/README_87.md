@@ -1,3 +1,32 @@
+###  Публикация: 1712068   (112285) от 01.04.2024
+
+Norah Jones - Visions (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Jazz Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All This Time
+02. Staring at the Wall
+03. Paradise
+04. Queen of the Sea(   Читать дальше...   )Жанр: Pop, Jazz VocalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB8FA081139588403557715184ACC9B9E225460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713668   (111889) от 06.04.2024
 
 Missy Higgins - The Sound of White (2004) 20 Year Anniversary Edition, 2024, Eleven A Music Company Pty Ltd[FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ Drupi - The Best of Drupi (2007) [WavPack|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6C560B6D08204BF60F9DAEE2FA9720E06BB8F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735519   (106806) от 10.07.2024
-
-Zucchero - Overdose D' Amore Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overdose D'Amore 2024 [00:02:56]
-02. Spirito Nel Buio [00:03:48]
-03. Soul Mama [00:03:30]
-04. Il Mare Impetuoso Al Tramonto Salì Sulla Luna E Dietro Una Tendina Di Stelle... (Remastered 2019) [00:03:56](   Читать дальше...   )Жанр: PopПродолжительность: 02:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490736B8495ABE0A9714BC930894F906F92D3270
 ```
 
 https://mybot314.ru/tekegram_catalog/

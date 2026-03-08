@@ -1,3 +1,204 @@
+###  Публикация: 1414266   (384742) от 08.10.2020
+
+VA - Top 150 Deep House Tracks Vol.4 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Evanescence - Bring Me To Life (A-Mase Radio Mix) 3:54
+002. Pushkarev - Broken Love (Fly & Sasha Fashion Remix) 5:09
+003. A. Rassevich feat. Susie Johnson - The Dice (Mike Drozdov & VetLove Remix) 5:52
+004. GeoM - Don't Stop (Housenick Remix) 5:42(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive House, Vocal HouseПродолжительность: 13:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2670EA369DEDC28F6236F8C4E3794A3726FA1CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 403298   (384325) от 28.10.2011
+
+VA - Ээхх, Разгуляй Часть 6 (2011) [MP3|256 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384325.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Андрей Бандера - Шереметьево
+002. Рада Рай - Отпускала В Небо
+003. Михаил Шуфутинский - Не Ешь С Ножа
+004. Ольга Стельмах - Любовь Не Знает Границ
+005. Стелла Джанни - За Кулисами Счастья
+006. Александр Новиков - Три Дня
+007. Сергей Любавин - Нежность
+008. Ирина Круг - Любить Не Страшно
+009. Павел Павлецов - Немолодой
+010. Стас Михайлов - Спаси Меня2011Жанр: ШансонПродолжительность: 05:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CBDC71F2F24C3C926D8B7075A9E8C78E28344F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572604   (383791) от 09.11.2012
+
+VA - ClubmusicRU Vol.1 2CD Mixed by M.PRAVDA (2008) [MP3|320 кб/с]<Trance / Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blackfeel Wite - Live Under (2007 Mix)
+02.Offdate - Rise Of Future
+03.Vadim Zhukov - Elements
+04.KoUSh - Anameson
+05.Yury Kozloff - Let Me Go (MXD Remix)
+06.M.PRAVDA - Sunrise (6AM Dub Version)
+07.Club NN - Why (Progressive mix)
+08.InfraWave - Chinese Dream (Elision mix)
+09.Sasha LSD - Dark Wire
+10.Sphinx & Afreet - Machaon(   Читать дальше...   )Жанр: Trance / Progressive HouseПродолжительность: 02:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF36FC2AD4CD432F4FE0BC6CB569DA89EDC0BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572960   (383720) от 09.11.2012
+
+VA - Big City Trance Volume 41 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383720.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Big City Trance Volume 41 (2012)
+Год: 2012
+Жанр: Uplifting Trance, Trance
+Продолжительность: 02:30:28Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Lunar Motion - Aozora (Benjani Remix)
+002. Realistic Brain - Art (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50FC1CEFD75269229A1BA0183A40C006A1AB5C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572465   (383718) от 09.11.2012
+
+VA - Осенний хит. Полный вперед! (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J'well - Небо В Твоих Руках (Radio Edit)
+02. Ирина Билык - Сильнее
+03. Андрей Артемьев - Всего Лишь Игра
+04. Кирилл Андреев - Кофе с ромом (DJ Arhipoff Original Mix)
+05. Амира - Вот И Всё
+06. Варвара & Бурановские Бабушки - А Не Пойду Замуж Я
+07. Danila Rastv - Ну, Как Ты Там (DJ Shulis aka Sergey Version 2.0 Remix 2012)
+08. Winter - Нелюбовь (Andrian & Alex Ortega Remix)
+09. Иракли - Я Тебя Люблю (DJ Favorite & DJ Kristina Mailana Remix)
+10. Юлия Савичева feat. DJ Feel - Я С Тобой(   Читать дальше...   )Жанр: PopПродолжительность: 06:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF8F03D685F89421E368334AA08637389488E15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572238   (383714) от 09.11.2012
+
+VA - Shimi Sonic - Beats And Thoughts Mixtape (2012) [MP3|320 кб/с]<Funk, Breaks, Soul, Bass, Hip Hop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Shimi Sonic - Supernova (Mouldy Soul Remix)
+02.Gramatik - the culture
+03.Kid Cudi feat. Chip Tha Ripper & Christian Bale - All Talk
+04.Baker brothers - Can ya dig it
+05.Mad Lads - Get Out of My Life, Woman (shimi sonic remix)
+06.Ronson Osaka Monaurail - Pick Up Bang Bang (Steely Chan Blender Mash)
+07.Shimi Sonic - I'll Take You (El Bomba Remix)
+08.Bounce Brothas - Do It
+09.Marc Mac - Speak Louder
+10.Marc Hype and Jim Dunloop - stamp out reality(   Читать дальше...   )Жанр: Funk, Breaks, Soul, Bass, Hip HopПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1B69332FCF82D047D23DC6C0D1667F89563929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572135   (383705) от 09.11.2012
 
 VA - Dub-Pack - Week 9 (2012) [MP3|320 кб/с]<Dub-Step>
@@ -589,180 +790,6 @@ VA - Музыкальный заряд  #2 (2016) [MP3|256~320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CA04E9875667BB0F3C62E7C6E1E97EB31BA1DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068028   (383104) от 31.10.2016
-
-VA - Гуляночка блатного радио (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383104.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Келеберда - Горький Вкус Кампари
-002. Юрий Маковей - Чтоб О Нас Помнили
-003. Вячеслав Московкин - Зачем Ходили Хулиганы
-004. Виктор Матросов & Наталья Штерн - Спасибо Тебе(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E1DDEA4A43FE7EE9977749646014BFAC8AE118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068174   (383098) от 31.10.2016
-
-VA - Блатная осень. Сборник 9 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383098.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виталий Сухов - Мой Белый Ангел
-002. Сергей Пинсон - Устал Я Без Тебя
-003. Валерий Власов - Мама
-004. Даниил Сорокин - Время Лечит(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642F7743E88698040482577CB95629CABDB8101F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068407   (383082) от 31.10.2016
-
-VA - Extra Trance: Bonus [10] (2016) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lostly - Galaxy of Blue (Extended Mix) (6:38)
-02. Solarstone - Herald (Transwave Remix) (7:26)
-03. Darren Porter - Human (Extended Mix) (7:05)
-04. Formal One & Sarah Lynn - In Winter (Progressive Mix) (4:36)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9343AD853F988F5F006ACB558A166C282ACC8AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174913   (383007) от 16.10.2017
-
-VA - 80s Magic Turn Around (2017) [MP3|320 Kbps] <New wave, Italo Disco, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick Springfield – Jessie’s Girl 03:13
-02. Jean Michel Jarre – Arpegiator 06:22
-03. Mike Oldfield – Shadow On The Wall 03:06
-04. Jennifer Rush – Into My Dreams 03:59(   Читать дальше...   )Жанр: New wave, Italo Disco, OtherПродолжительность: 07:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2ECC02CDEF0A4C2E12F26E67EF0A6C4B44B1F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068169   (382963) от 31.10.2016
-
-VA - Шоферской хит. Спецвыпуск №3 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382963.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Андрей Усманов - Попутчица
-002. Дмитрий Фомин & Татьяна Тишинская - Позови Меня
-003. Владимир - Плохая Примета
-004. Вершинина Влада - На Зоне Тишина(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97546791034919508435A749EEE0C7109CFB1358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068158   (382953) от 31.10.2016
-
-VA - Mega chart №15 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382953.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alexandra Joner feat. Mohombi - Bottoms Up
-002. Jordi Rosco - Dance With You (Radio Edit)
-003. Electrocore & D'fezza - Dance and Move (feat. D'fezza) (Original Mix)
-004. Enrique Iglesias feat. Wisin, Arcangel & Javada - Duele El Corazon (Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1088F9D7421A616BBC5CE43CB5B93458765291
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1727039   (108576) от 01.06.2024
+
+VA - Summer Body Fit 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disciple Beats - Get Down The Business (Original Mix) [02:46]
+02. Jayson Brown - Wast Your Life (Original Mix) [02:42]
+03. Black Shivers - Stay Alive (Original Mix) [02:50]
+04. Stasy Brown - Round & Round (Original Mix) [02:45](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE56534F188A4CB92078B867C9603E6FD7B7B372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727022   (108574) от 01.06.2024
 
 VA - Armada Chill - Summer 2024 (2024) [MP3|320 Kbps] <Deep House, Melodic House & Techno, Organic House, Dance>
@@ -713,35 +742,6 @@ VA - Burning Mountain - Secret Garden Session (2024) [MP3|320 Kbps] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D73FD01801E4AFF78BBB1AF2F0C7E4AD87B9161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740695   (105810) от 03.08.2024
-
-VA - IBIZA SUMMER 2024 - Best Electronic Music [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105810.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nerutto  - Aquarius (Antua Hale Remix)(6:19)
-002. Mike Suntower - Absolute Zero (Arouse Dreams Remix) (4:56)
-003. Sub Chunk - Give Me A Minute (Original Mix) (6:34)
-004. 5udo - Subaru (Original Mix) (7:44)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C584C9277B9BE88C250614399ACA1F6B24DEB76
 ```
 
 https://mybot314.ru/tekegram_catalog/

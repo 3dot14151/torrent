@@ -1,3 +1,32 @@
+###  Публикация: 975359   (973436) от 14.01.2016
+
+Roscoe Mitchell and the Sound Ensemble - Snurdy McGurdy and her Dancin' Shoes (1980) 2003, Nessa[APE|image+.cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sing Song [07:53]
+ 02.CYP [07:17]
+ 03.Stomp and the Far East Blues [05:18]
+ 04.March (Composition 40 Q) [04:46](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63CA54A74838FFE442FD418E814D085707CE42C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975276   (973435) от 14.01.2016
 
 Art Farmer Quintet - At Boomers (1976) Remaster, 2015, Universal[FLAC|tracks+.cue] <Mainstream Jazz, Cool>
@@ -716,35 +745,6 @@ Maria Schneider Orchestra - Concert In The Garden (2004) ArtistShare[FLAC|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB6FD64D70273A4E1A37046E7870951D5AC91292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358804   (967234) от 09.02.2020
-
-Vintage Gramola - Welcome to the Vintage Sound (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Layla
-02. Smooth Criminal
-03. These Boots Are Made for Walkin'
-04. Miss Cellie's Blues(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, BluesПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B30C06B219FFFB33D6DDCED93A40DF3CADBB28
 ```
 
 https://mybot314.ru/tekegram_catalog/

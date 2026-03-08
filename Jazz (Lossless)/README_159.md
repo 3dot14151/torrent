@@ -1,3 +1,32 @@
+###  Публикация: 928029   (523343) от 15.08.2015
+
+Reinhard Flatischler - Schinore (1987) /Puls Productions/[APE|tracks+.cue]<Jazz, World Fusion, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angkor Wat - Rainforest [03:03]
+02. Angkor Wat - Theme [02:19]
+03. Angkor Wat - Appearance of the temple [03:58]
+04. Angkor Wat - Inside the temple [07:07](   Читать дальше...   )Жанр: Jazz, World Fusion, Ethnic JazzПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BBB9D6917C337F8609A063B3B579BBD0B2C4A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928033   (523340) от 15.08.2015
 
 Charlie Rouse - Epistrophy (1988) /1997, 32 Jazz/[FLAC|tracks+.cue]<Jazz, Hard Bop, Post-Bop>
@@ -716,35 +745,6 @@ David Benoit - A Midnight Rendezvous (2022) [FLAC|Lossless|tracks+.cue] <Smooth 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CDA9363D1C2C1920E7F01E189BA37FB16643366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928975   (520640) от 18.08.2015
-
-Franz Koglmann - Orte Der Geometrie (1989) /hat ART/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Banker's [04:35]
-02. Slow Fox [04:35]
-03. Quotations [06:38]
-04. Der Gast [04:16](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415B9D1A5EAAF8514A7D28BF46E20F062880D3B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

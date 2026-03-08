@@ -1,3 +1,60 @@
+###  Публикация: 499268   (256223) от 20.05.2012
+
+Front Line Assembly - 47 albums (1987-2012) [FLAC|Lossless] <Industrial, Electro-Industrial, EBM, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shifting Through The Lens (06:06)
+02. Angriff (06:41)
+03. Endless Void (09:31)1987-2012Жанр: Industrial, Electro-Industrial, EBM, ExperimentalПродолжительность: 00:22:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836777   (255941) от 13.11.2025
+
+EVO (Eternal Voice of Orbits) - Мультивселенная (2017) [FLAC|Lossless|tracks] <Trancecore, Nintendocore, Electronic Post-Hardcore>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orbital Speed (Intro)
+02. Настя
+03. Льдистый путь
+04. Атом ft. Sasha Gray(   Читать дальше...   )Жанр: Trancecore, Nintendocore, Electronic Post-HardcoreПродолжительность: 01:23:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DDF3D048B3D882690656B9D5E05F6B7389BF2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836980   (255936) от 13.11.2025
 
 HVL - Deviate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid, Techno, Ambient>
@@ -687,64 +744,6 @@ VA - Female Vocal Trance Legends - Best Of The Best (2023) [MP3|320 Kbps] <Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53E72CF0E8CD0AA7CF7F0AF892B85DAB28601B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628488   (254877) от 23.04.2023
-
-VA - Saturday Chill (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petya Sound - Give You More (2:38)
-02. Cristian Ferrer - Crush (Ballester Remix) (3:03)
-03. Berke Kılınc - In My Blood (2:39)
-04. Sharapov - Bring Me Back (Mant Deep Remix) (5:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14FD6B56EFB8BAD569DE4D8225509AB26067D955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628535   (254813) от 25.04.2023
-
-VA - Nothing But... Trancetopia, Vol. 02 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Surok - Forever Alone (Radio Edit) [3:40]
-02. Grande Piano - Message From Space (Calvin O'Commor Remix) [8:42]
-03. Sanani & Henry Caster - Code Yellow (Original Mix) [2:48]
-04. A.R.T. Conspiracy - Michael Jefferson (Earthling & Virtual Light Remix) [6:43](   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23FF16AEF5EFC1BF5CCB1DC893CA09590D8C97E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

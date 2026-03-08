@@ -1,3 +1,61 @@
+###  Публикация: 1531772   (720646) от 16.02.2022
+
+Julio Iglesias - Recital At The Festival ''The Golden Orpheus '73'' (1973) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now As Twenty Years Since
+02. Like The Poplar Along The Road
+03. Nina
+04. El Pajaro Chogui(   Читать дальше...   )Жанр: PopПродолжительность: 00:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35A6BC4B9C2E282754B1BFEF4CABB588CB36625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129842   (720547) от 29.04.2017
+
+Siberian Heat & Elen Cora - Brilliants: Best Of US (2015) LP, Compilation [OGG|312-322 Kbps] <Disco, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720547.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Siberian Heat - Pick Up The Phone (ZYX Summer Mix) 7:20
+A2. Siberian Heat - Don't Stop The Music (Special Zyx Maxi Version) 7:53
+A3. Siberian Heat - Shadows (ZYX Long Mix) 6:34
+B4. Siberian Heat - Magic Blue Eyes (Maxi Version) 8:56(   Читать дальше...   )Жанр: Disco, Italo-Disco, Synth-popПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A377995A8259DB3EACCBEE30E11C890C7E7160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129447   (720545) от 29.04.2017
 
 Tam Harrow - Incredible Idiot (2015) Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco, Eurobeat, Parody>
@@ -687,64 +745,6 @@ VA - NRJ Spring Hits (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DC94108D638DB5456CD4242D313C7BBC1B0298E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531946   (718360) от 17.02.2022
-
-VA - Лучшие хиты из культовых сериалов и кинофильмов. Часть 1 (2003) [MP3|320 Kbps] <Soundtrack>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triplex - Бригада (remix) 3:23
-к/ф Бригада
-02. С. Шнуров - Мобильник 2:48
-к/ф Бумер(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51AD5F9E72C50C8917772A8E4EDE2D23740DA509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130080   (718250) от 30.04.2017
-
-VA - Старая пластинка: Сторона 1,2 (1988) Compilation, 2CD [FLAC|Lossless|image + .cue] <Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А.Барыкин - Букет
-02. Секрет - Привет
-03. Машина Времени - Костер
-04. Земляне - Трава у дома(   Читать дальше...   )Жанр: Советская эстрада |Продолжительность: 02:36:54 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70095291FA4610BC3BCEE100A0592CCBC4BCAB79
 ```
 
 https://mybot314.ru/tekegram_catalog/

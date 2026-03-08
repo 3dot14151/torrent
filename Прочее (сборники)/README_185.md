@@ -1,3 +1,119 @@
+###  Публикация: 1750279   (42979) от 20.09.2024
+
+VA - compilation musical kaleidoscope part 2 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Enigma French N°29
+02. Ennio Morricone/ Jk Sax - Chi Mai (Saxophone Cover)
+03. Zakhid - London
+04. Candy Dulfer Ft Dave Stewart/ Riltim - Lily Was Here(   Читать дальше...   )Жанр: Electronic, Instrumental, SaxophoneПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83750E08E31DDB1841CABDC20FA62F56E0B6D878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750756   (42821) от 21.09.2024
+
+VA - Music News For Forum vol.025 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42821.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nessa Barrett - Dirty Little Secret (03:35)
+ 002. 3Sonn feat. SOULOUD - 2000 шагов (02:04)
+ 003. 4eholl feat. G-POL & SHALUTA - Капли (02:12)
+ 004. 5УТРА - Ромашки (02:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F24FB4396C84CE4E24882BA09157E4FFB1A0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750890   (42767) от 22.09.2024
+
+VA - Autumn Dance Hits 2024 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42767.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yolanda Be Cool & DCUP - We No Speak Americano (Yudzhin & Serg Shenon Radio Remix) (1:40)
+002. BYOR - You're So Awesome! (Original Mix) (1:46)
+003. Nicky Romero, Öwnboss & OAKS - Love You for the Summer (2:52)
+004. YeahYeahYeahs - Heads Will Roll (VeX & Myers VIP Remix) (Radio Edit) (2:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9712E11207A3DF1809DEE2FA0BA88C36A42243D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751371   (42556) от 24.09.2024
+
+VA - compilation musical kaleidoscope part 3 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davbo - Autumn Rain
+02. Felicity Norway - Dancing Queen  Sax Cover
+03. Felicity Norway - Lose Control Sax Cover
+04. Besso - Last Dance(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355F87C5CACFDD6B17575BC03D6824E5E354C974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751375   (42553) от 24.09.2024
 
 VA - Galactic Synthwave (2024) [MP3|320 Kbps] <Synthetic, Space, Electronic>
@@ -628,122 +744,6 @@ VA - Musical kaleidoscope part 9 (2024) [MP3|320 Kbps] <Electronic, Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9C28DB53674291AF0DFA08BA2D7D4E3572646E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757620   (39011) от 28.10.2024
-
-Aleksey Boychenko - Compilation of enigmatics (2024) [MP3|320 Kbps] <Enigmatic, New Age, Ambient, New Age, Ambient, Meditative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Heart of the Desert
- 02.  The Symbol of Faith
- 03.  The Mystery of the East
- 04.  My Beloved World(   Читать дальше...   )Жанр: Enigmatic, New Age, Ambient, MeditativeПродолжительность: 03:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AF6FDF41F403E467C66265BC34B35C3A640FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757658   (39007) от 28.10.2024
-
-VA - Music News For Forum vol.036 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39007.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Belinda feat. Kenia Os - Jackpot (03:13)
- 002. Ahzee - Got It (02:49)
- 003. ALTUNIN - For You (01:50)
- 004. Arthur Freedom - Little Love (02:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCFB5438A324436096E8FC9AD9AABD574321E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757754   (38925) от 29.10.2024
-
-VA - Musical kaleidoscope part 10 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Boychenko - Requiem
-02. Sisco Le Voyageur - Peace of the Sand
-03. Besso - Nobody Else
-04. Kames, Umar Keyn - Love(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DF6D8F71319B22EA064615B8C2D849D44AEBE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758082   (38715) от 31.10.2024
-
-VA - Music News For Forum vol.037 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38715.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Morrozova - Эй, мальчик! (03:36)
- 002. Addison Rae - Diet Pepsi (02:50)
- 003. Akila - Ресторан (Disco Version) (02:11)
- 004. Amira Elfeky - Will You Love Me When I’m Dead (03:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEE74FB7C6225211F896A174CD4A26D5C971DA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

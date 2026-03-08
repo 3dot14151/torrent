@@ -1,30 +1,3 @@
-###  Публикация: 1503043   (822928) от 17.10.2021
-
-BandLab - Cakewalk 2021.09 (Build 145) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущая в мире DAW SONAR со всем набором функций SONAR Platinum возобновляет работу как Cakewalk by BandLab.
-BandLab Technologies запустила «Cakewalk by BandLab» - заменив им SONAR, культовый DAW, разработанный Cakewalk Inc. Этот долгожданный выпуск продукта следует за объявлением в прошлом месяце BandLab Technologies, что он приобрел все интеллектуальные ресурсы (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877BBA71AEE3D0D41BD47C8CA0D256D25E487B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503128   (822922) от 17.10.2021
 
 IObit Smart Defrag Pro 7.2.0.88 (акция Comss) [Multi/Ru]
@@ -691,6 +664,32 @@ Planner 5D Premium 4.4.7 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EFE2A1D9902BE7ACA20615757E1D28E3A8BC5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503007   (822707) от 17.10.2021
+
+Microsoft Visual Studio 2019 Professional 16.11.5 (Offline Cache, Unofficial) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio 2019 - полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700856DCE3C55676CEF42364F4FED0AACA13A6AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

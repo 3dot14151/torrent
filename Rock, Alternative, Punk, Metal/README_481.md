@@ -1,32 +1,3 @@
-###  Публикация: 1233503   (593010) от 30.06.2018
-
-Татьяна Зыкина - Ощущение реальности (2009) [FLAC|Lossless|image + .cue]<Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты-то кто? (feat. «Танок на майданi Конго»)
-02. Водопадами (08 version)
-03. Сдала (roublevka light version)
-04. 2 кота (light version)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7764C7778E6BA1CE6D769CA4F9BF841EADDA067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233103   (592998) от 30.06.2018
 
 Фёдор Чистяков - Песня для друга, который любит рок (1999) [FLAC|Lossless|image + .cue]<Rock>
@@ -742,6 +713,35 @@ Epic - Starlight (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2632A567EB5741D39A5D89BC16791D08D0D24D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549781   (592660) от 09.05.2022
+
+Rust N' Rage - One For The Road (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prisoner (4:28)
+02. Ghost Town (2:50)
+03. One For The Road (3:47)
+04. The Future Is For The Strong (4:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D7FD9E5D603264CF39521FF2B771F123EE0EE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

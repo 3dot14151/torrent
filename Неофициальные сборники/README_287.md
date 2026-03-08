@@ -1,3 +1,183 @@
+###  Публикация: 1139958   (656690) от 05.06.2017
+
+VA - Record Super Chart #489 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Martin Garrix & Brooks - Byte 4:45
+02.  Yellow Claw & Moksi feat. Jonna Fraser - Open 3:31
+03.  Matt Nash - Know My Love 4:23
+04.  W&W - Put EM Up 4:20(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7182BA969265B74028321792C51BECE754D20D05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140111   (656683) от 05.06.2017
+
+VA - Metal Collection 2 (2017) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Annihilator -  Syn. Kill 1  (04:27) 
+02.Anthem -  Go Insane  (04:43) 
+03.Anthem -  You  (03:55) 
+04.Astralion -  Sacrificed & Immortalized  (07:21) (   Читать дальше...   )Жанр: MetalПродолжительность: 04:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427A2A29AF795453829CC048C67F56F32464A0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140289   (656682) от 05.06.2017
+
+VA - Воодушевляющий Мелодичный Транс [Sound Clinic - Special Edition] (2017)  [MP3|320 Kbps] <Uplifting Trance, Melodic Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656682.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 4 Strinqs - Take Me Away (Original Vocal Mix)
+2. 7 Skies - Caffeine (Genix Remix)
+3. 8 Wonders - Sex On The Beach (6 Inch Stiletto Mix)
+4. 8 Wonders - Sex On The Beach (Depths Of My thoughts Sunset Dub)(   Читать дальше...   )Жанр: Uplifting Trance, Melodic Trance, Vocal TranceПродолжительность: 53:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B70628374DA759E33465BB0395780478F0C4E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903677   (656659) от 01.06.2015
+
+VA - TOP May (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656659.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Set Mo feat. Deutsch Duke - White Dress (Satin Jackets Remix) (06:54)
+002. Sante Cruze - Get So High (Original Mix) (06:51)
+003. Rameses B - Spirit Walk (05:58)
+004. Kwabs - Walk (03:35)(   Читать дальше...   )Жанр: Electronic, Lounge, Pop, DeepПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CCFBAF6CB77AFCCD449E80EAB34C1429F7A70D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225568   (656639) от 19.05.2018
+
+Александр Иванов и Рондо - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656639.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли лучшие песни Александра Иванова и группы Рондо. Позитивная, наполненная осенней ностальгической грустью, рокерская поэзия. Все треки взяты с фирменных CD изданий. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK01 Моя неласковая Русь
+02 Ну и пусть (2)
+03 Жанет
+04 Московская осень(   Читать дальше...   )Жанр: RockПродолжительность: 03:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB7F6D5CDB71E3CE004DE256162DEE7904D85849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514890   (656624) от 25.06.2012
+
+VA - Лучший клубняк сезона (2012) [MP3|320 kbps]<Club|Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656624.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+01. Antillas ft. Fiora - Damaged (Main Mix)
+02. Aboutblank & KLC - System Addict (Original Mix)
+03. Ash Koley - Don't Let Your Feet Touch Ground (Morgan Page Extended Mix)
+04. Above & Beyond - Love is Not Enough (Club Mix)
+05. Ben Dj - Rock It (Extended Mix)
+06. Alex Gaudino - Chinatown (Original Mix)
+07. Calvin Harris ft. Ne-Yo - Let's Go (Extended Mix)
+08. Bodybangers ft. Gerald G - Set The Night On Fire (Original Mix)
+09. D.E.R., Dj Fist & Sebastian Massianello - Stardust (Original Mix)(   Читать дальше...   )Жанр: Club|DanceПродолжительность: 09:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B95C52159D098B72484DAE5383685F793ECF2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515238   (656620) от 25.06.2012
 
 VA - Самый Лучший Хит-Парад DFM (2012) [MP3|256 кб/с]<Pop>
@@ -605,201 +785,6 @@ VA - ЕвроХит Топ 40 Europa Plus 18.05.2018 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29321FFE87EDC4EFB0EF1EBCA4DDE2E48987AB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226423   (655760) от 20.05.2018
-
-VA - Unique Disco (2018) vol 2 [MP3|320 Kbps] <Electronic, Funk-Soul, PopRock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amon Duul Ii - Kismet (1978) (3:57)
-02. Anilisi 91 - Disco Magic (1978) (3:24)
-03. Bogart - On Broadway (1979) (5:56)
-04. Captain Zorro - Phantasm (1979) (6:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, PopRock, DiscoПродолжительность: 01:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203323022E2F8335B6D726E214C3E1F175E49E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515248   (655634) от 26.06.2012
-
-VA - Клубная Музыка Дискотек Июня  Record 2CD (2012) [MP3|256 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655634.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-001 Bryce feat. J-Malik - Nothing Can Hold Us Back (Radio Edit)
-002 Мира - Пока, Пока Мой Мальчик (Leo.k Remix)
-003 Gravitonas - Call Your Name
-004 Градусы - Не Надо Париться
-005 Roxette - It's Possible (version One)
-006 Kishe - Город (Dub Makers Remix)
-007 Black Eyed Peas - The Time (Dirty Bit) (Afrojack Remix)
-008 Ирина Билык И Ольга Горбачева - Люблю Его (Remix)
-009 Ferry Corsten - Check It Out(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 08:30:18
-01 Время и Стекло - Серебряное море (DJ Melloffon radio edit)
-02 Joe Made - The Ring (Original mix)
-03 БэбиSкул & Max DeLmar & Katy Soul - Одинокие (club edit)
-04 Blackman feat. MC Freedom - Bring me down
-05 Чи-Ли - Кошка (Sergei Karpov Minimal Pop remix)
-06 The Crystal Method feat. The Heavy - Play For Real (Dirtyphonics remix)
-07 MM Dance - Отдыхаем (Dj Alfred extended mix)
-08 Starkillers, Dmitry KO - Disco Fans (Butterfly Terrace mix)
-09 Lika Star - Точка росы (Tone Project club mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66CCCEA257AD1B090F9697A10536C74603DF8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140382   (655605) от 06.06.2017
-
-VA - Retro Radio Party (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655605.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Army Of Lovers - Obsession 3:41
-002.  Wham! - Wham Rap 3:34
-003.  Tasmin Archer - Sleeping Satellite 4:34
-004.  Paul Young - Wherever I Lay My Hat (That's My Home) 4:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5263FAD6C019F091380560D97AFBFD3C2AF65C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226336   (655554) от 20.05.2018
-
-VA - Душа Птица Вольная: Сборник Шансона (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем поклонникам шансона представляем свежий альбом «Душа Птица Вольная: Сборник Шансона», где отобрано 155 песен от талантливых исполнителей, среди которых зарекомендовавшие себя звезды и подающие надежды новички.001. Сборная Союза - Ты-Динамит
-002. КЛИММ - Тебя я встретил
-003. Ирина Коган - Мани
-004. Катя Ростовцева - Из Фантиков Роман(   Читать дальше...   )Жанр: ШансонПродолжительность: 09:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50338EF13FF278D4C13B44FC7A2799919757FA00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515713   (655513) от 26.06.2012
-
-VA - Рэп С Понятием Часть 4 (2012) [MP3|256 kbps]<Русский Рэп>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655513.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Влади (Каста) - Пусть пригодится
-002 Dino MC 47 - Все когда-то останется в прошлом
-003 Батишта - Обычные люди
-004 KReeD - Старлетка
-005 Бьянка - Весна-Лето 3
-006 T-Killah feat. Виктория Дайнеко - Мира мало
-007 Караты feat. D.Lemma - Достигая вершин
-008 Линда feat. ST - Марихуана
-009 Кажэ Обойма feat. Баста - Ангел
-010 St1ff & Mc Pasha feat. Александр Кварта - На позитиве(   Читать дальше...   )Жанр: Русский РэпПродолжительность: 06:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAF6909E5C7D52CEE321F51112B3F12919EE090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194821   (655452) от 20.05.2018
-
-Владимир Ждамиров - Где-то там... (2017) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнце в решку (4:54)
-02. Звонок на откидной (5:06)
-03. Где-то там (3:44)
-04. Любовь и судьба (3:54)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67FB0918A027983F3311EB759D8368F79B642E1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

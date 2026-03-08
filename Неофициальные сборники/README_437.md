@@ -1,3 +1,189 @@
+###  Публикация: 555901   (426580) от 05.10.2012
+
+VA - Радио DFM - D Чарт - Top-30 (03.10.2012) [MP3|320 кб/с]<Pop ,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Ferrari - Bara Bara Bere Bere (Cj Dmitriy Sova remix)
+ 02. Tonic Feat. Tarantula Ma - Big Fat (DFM MIX)
+ 03. Yves V & Basto - Cloud Breaker (Basto Radio Mix)
+ 04. Flo Rida - Whistle
+ 05. PLAYMEN ft. Demy - Fallin (Radio Edit)
+ 06. Far East Movement Feat. Cover Drive - Turn Up The Love (DFM MIX)
+ 07. Romano & Sapienza feat. Rodriguez aka Tacabro - Tacata (Extended Mix)
+ 08. Нюша - Воспоминание
+ 09. Martin Solveig - The Night Out (Madeon Remix)
+ 10. JOAO LUCAS E MARCELO - EU QUERO TSHU EU QUERO TCHA (DJ FAVORITE & DJ KHARITONOV)(   Читать дальше...   )Жанр: Pop ,DanceПродолжительность: 03:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD7B685AB9D924480E71426A864D96EFD5E91A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555902   (426414) от 05.10.2012
+
+VA - Радио DFM: Горячие Ремиксы (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426414.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Kerim Muravey - Лето, Лето (Original Mix)
+ 002. Артур Пирожков - Красивая Песня (Dj Favorite & Dj Kristina Mailana Summer Radio Edit)
+ 003. Андрей Губин - Время Романтиков 2012 (Dj Fisun Remix)
+ 004. Т9 - Ода Нашей Любви (Dj Generous Remix)
+ 005. Mixadance Pro - Feeling (Oleg-Off & Jim Remix)
+ 006. Бурановские Бабушки - Party For Everybody (Official Eurovision 2012 Dj Slon Party Remix)
+ 007. Nikita - Авокадо (Dj Jedy Radio Remix)
+ 008. Ева Польна - Я Тебя Тоже Нет (Je T'aime) (Dj Smash Chinkong Remix)
+ 009. Dj Smash Feat. Винтаж - Moscow (Dj Miller Radio Edit)
+ 010. All Давай Feat. Dj Ihlas - Москва-Дубай(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 11:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6D1A64AC57FBDBB2CDD4EAF7316F3D54791E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064356   (426394) от 20.10.2016
+
+VA - Deep Mood, Chillhouse Selection (2016) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piet Lorrigan - Drink and Relax - The Bahia's Friends Mix
+02. Harley Coles - Drink Evolution - Fusion Mix
+03. Jaasiel Vega - Social Groove - Deep Groovers Mix
+04. Flat Crumb - Cool Emoticon - On The Beach Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7BFA0AF6D5E6319C0AA8E1D026D5A056BF4F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064345   (426388) от 20.10.2016
+
+VA - Sunny Refill Vol.1: Warm and Sunny Chill out Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fous De La Mer - Good Bye Lawrence
+02. R.I.B. - Sunset
+03. JM Mantecon - Children's Sun
+04. Wilton de Grey - All-Seeing Power of the Mind - Short Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7AADC35EC529CA7A5A0FE6EC5888AE685856C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064341   (426385) от 20.10.2016
+
+VA - Cayo Coco Lounge Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Emilio Flynn - Santa Tae - Dert Remix
+02. Jacob Gurevitsch - Little Things
+03. Kluster - I Feel Love - Tim "Love" Lee Remix
+04. Sofian Rouge - Tranquility(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A4055B67D198AFDD17294B1A288567CF6D2FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166292   (426303) от 16.09.2017
+
+VA - Best 320 tracks of HML 2007-2015 (mixed by Cyno\Cone,Cizano) Compiled by Firstlast (2017) [MP3|192-320 Kbps] <Deep House, Chill House, Nu-Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пpодолжительность: 05:24:11
+01. Hot Chip - Colours (Fred Falke remix) [6:36]
+02. Stisch - Turn Around (Barfly mix) [7:07]
+03. Carl Kennedy & MYNC Project feat. Roachford - Ride The Storm (Life Goes On, club mix) [6:43](   Читать дальше...   )Жанр: Deep House, Chill House, Nu-DiscoПродолжительность: 34:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFA808C57B332E3E22609591B0365648A8743A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064583   (426259) от 20.10.2016
 
 VA - Мега хитовая Осень 5 (2016) [MP3|256 Kbps] <Pop>
@@ -573,186 +759,6 @@ VA - My Whole Life: Hip-Hop Collection (2019) [MP3|320 Kbps] <Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7C4344881053EB98E4443580F7CEA1E8D2B7B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324383   (425359) от 09.09.2019
-
-VA - Secret Passion: Europop Summer Hits (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425359.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ke$ha - Die Young
-002. Arcadian - Petit À Petit
-003. Clara Luciani - La Grenade
-004. Jain - Gloria(   Читать дальше...   )Жанр: PopПродолжительность: 10:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4084E178B7554B9ED7AFFC834D610A7DF6D97E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946598   (425056) от 14.10.2015
-
-VA - Creative Music Box 26 (2015) [MP3|320 кб/с]<Dubstep, Glitch Hop, Trapstep, Drumstep, Drum'n'Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Day To Remember- If It Means A Lot To You (Sullivan King Remix)
-02. Aquilo - Losing You (Vanic Remix)
-03. Barely Alive, Astronaut - Bad Fellas
-04. Borgore, Half Empty, Pouya  - Goddes(   Читать дальше...   )Жанр: Dubstep, Glitch Hop, Trapstep, Drumstep, Drum'n'BassПродолжительность: 02:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F42592CA43B9FE665ED05BBEC07576C9207BC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556671   (425039) от 06.10.2012
-
-VA - Vocal Trance Essentials Vol.1 (2012) [MP3|320 кб/с]<Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Wright feat. Alina - Away (Jeff & Dale Remix)
-02. Will Holland feat. Jeza - Every Heartbeat (Beat Service Remix)
-03. Javy X Feat. NGy - Midnight Sun (Original Mix)
-04. Ruslan-Set & Reprobate feat. Irina Makosh - Hector (Tima Remix)
-05. Poshout feat. Ange - Beside (Extended Mix)
-06. Kris V & Ivo Nikolov feat. Donna - The Sunset Flower (Vinid Remix)
-07. Physical Phase Feat. Sheila D - Destiny (Sheila D Vocal Mix)
-08. C-Systems & Bushi Feat. Hanna Finsen - Dreams Will Never End (Orbion Remix)
-09. Tritonal feat. Cristina Soto - Everafter (Tritonal Club Mix)
-10. Garrido & Skehan feat. Isobel Mai - Stay (EDU Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD6F70940737C492F295D2A698DFA4E06517BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250573   (424752) от 28.09.2018
-
-VA - New Music Releases Week 36 of 2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424752.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zeds Dead, Dnmo, Tzar - We Could Be Kings
-002. Iman Omari - Another
-003. Just Loud - Diamonds and Dope Boys
-004. High Contrast - God Only Knows(   Читать дальше...   )Жанр: DanceПродолжительность: 11:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A66068567E64A4D57F402088C4B1831A914606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166692   (424730) от 17.09.2017
-
-VA - Empire Records - Blue Line Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frainbreeze & Lucid Blue - World Of Nothing (Radio Edit)
-02. Jan Leyk, Madizin - Gladiators (Radio Edit)
-03. Liuck, Eric Lumiere - More To Life (Luke Bond Remix)
-04. Jean Verano - The Love I Lost (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85F6E7089803CF2DB3921A3F1D34765694EDC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166566   (424590) от 17.09.2017
-
-VA - Empire Records – Hardcore (2017) [MP3|320 Kbps] <Hard Trance, Hardcore, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Styles & Breeze – You’re Shining (Hardcore Mix)
-02. lol – Love Leaves No Scar (Hixxy Remix).
-03. Cascada – Everytime We Touch Styles & Breeze (Hardcore Edit)
-04. Petruccio & Modulate – Missing (Gammer Remix)(   Читать дальше...   )Жанр: Hard Trance, Hardcore, DanceПродолжительность: 03:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773D806871AC8A7341A293F4E32AB408B4614EB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1291304   (670846) от 24.03.2019
+
+The E.J. Strickland Quintet - Warriors For Peace (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uvumilivu (07:16)
+02. Warriors for Peace (05:30)
+03. Midnight's Clearing (07:27)
+04. Eclipse in 5 (Interlude) (00:27)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F251BD7C802C810905521F9B2C89E0A2AB271A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291353   (670843) от 24.03.2019
 
 Kenny Burrell - Jazzmen Detroit (1956) 2010, Savoy Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Cool>
@@ -716,41 +745,6 @@ Quincy Jones ‎– The Dude - The Dude (1981) Remaster, 1984, A&M Records [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73DF9E151AC53B99B3A6B99626438C5197A22BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339201   (667289) от 20.05.2011
-
-Чайф - Акустические версии (1997) [FLAC(image + .cue)|Lossless]<Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_667289.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вперед
-2. Моя квартира
-3. Я рисую на окне
-4. Ой-е
-5. Скажи только слово
-6. Белая ворона
-7. Хей-хей
-8. Традиционная
-9. Оранжевое настроение
-10. Пиво(   Читать дальше...)Жанр: RockПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

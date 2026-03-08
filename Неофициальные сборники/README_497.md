@@ -1,3 +1,177 @@
+###  Публикация: 1420402   (332418) от 01.11.2020
+
+VA - Music for You vol.14 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuclear Power Trio - A Clear and Present Rager (03:36)
+ 02. Soen - Antagonist (06:07)
+ 03. Pyramaze - Particle (04:34)
+ 04. Soilwork - The Nothingness And The Devil ( (05:36)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 03:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF61CCACD868C280C8CB082C3EBCE6F3F0CCAE34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420513   (332356) от 01.11.2020
+
+VA - Лучшие из лучших Top 100 хитов радиостанций за Октябрь (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332356.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. JAKONDA & NEJTRINO - No More Tears (3:00)
+002. Savage - Lonely Night (Club Version) (3:05)
+003. Александр Гужов - Она его уже не ждёт (3:32)
+004. Мирон Еремеев feat. DJ Steel Alex - Мурашки (2:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB98D7F80CF96A5F369C223ADA722028A1705CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420508   (332283) от 01.11.2020
+
+VA - Radio DFM Top D-Chart Октябрь (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Smash feat. Poët - БЕГИ (Denis Bravo Remix) (3:05)
+02. twocolors - Lovefool (3:10)
+03. Мари Краймбрери - Океан (Denis Bravo Remix) (3:50)
+04. DaBro - Юность (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048AFA637E7161754229252519F577073AD82801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331449   (332160) от 15.10.2019
+
+VA - Best tracks of Transitions by John Digweed on Kiss 100. 2005 - 2006 Volume 3 (2019) Compiled by Firstlast [MP3|192-320 Kbps] <Progressive House, Techno House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Grid - Floatation (1992) (7:02)
+02. Merz - Mentor (Caged Baby 'Italian Baby Sauce' remix) (5:37)
+03. Depeche Mode - Precious (Michael Mayer Balearic Mix) (7:18)
+04. Trentemoller - Prana (5:14)(   Читать дальше...   )Жанр: Progressive House, Techno House, Deep HouseПродолжительность: 09:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CBEEE7E53E87CB70112BD20973A07365488CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331413   (332159) от 15.10.2019
+
+VA - Groove Techno Tools (2019) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332159.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Volunteer - Levitating Stones
+002. Greyhead - Llantos Del Desierto
+003. B-Front - Undiscovered
+004. Devin Wild - Mind Bending(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122522658401E7A71598A110C0B8F9B167692CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420594   (331899) от 01.11.2020
+
+VA - Новинки С Разных Популярных MP3 Сайтов Vol. 101 (2020) [MP3|320 Kbps] <Club, Pop, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+01. 7UBO feat. LexBlaze - TikTok (Extended Mix)
+02. Above & Beyond - Diving Out Of Love
+03. Adam Delight - Tension (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 07:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDEEBCD8A3F477FBE3ABD9FAD3ACC9F7FF49DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331362   (331887) от 15.10.2019
 
 VA - 100 Rock Ballads Vol.2 (2019) [MP3|320 Kbps] <Rock, Ballads>
@@ -568,180 +742,6 @@ VA - All About Chillout (2015) [MP3|320 кб/с]<House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:473B9CB5225DFFEE2DD6857234462CC8F8D3B3D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956591   (329476) от 15.11.2015
-
-VA - Winter Vibes (Relaxed Laidback Beats Finest Collection) (2015) [MP3|320 кб/с]<Electronic, Downtempo, Lounge, Chill Out>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fashion Cafe - Tabitha
-02. It's a Shame - Mystery of Soul
-03. Smoky Eyes - Liam Van Dyke
-04. My Friend (Mercer & Gissal Chilled Version) - Flamingo(   Читать дальше...   )Жанр: Electronic, Downtempo, Lounge, Chill OutПродолжительность: 02:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391E6BBAF331F33E40B175E45D61CA6C7D4B9707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956935   (329412) от 15.11.2015
-
-VA - Lounge Selection - The 50 Best Hits (2015) [MP3|320 кб/с]<Electronic, Downtempo, Trip-hop, Future Jazz, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jungle – Drops
-02. Brigitte – Ma Benz
-03. Bonobo – First Fires (feat. Grey Reverend)
-04. Cocoon – American Boy(   Читать дальше...   )Жанр: Electronic, Downtempo, Trip-hop, Future Jazz, Deep HouseПродолжительность: 03:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01DC351F31BD0B20F94F98B3959F9701F1CE36E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956692   (329400) от 15.11.2015
-
-VA - Lounge Music Classics 2016 Sexy Soft Lounge Chillout Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragile State - The Facts and the Dreams [04:58]
-02. Roebeck - 1000 Miles [04:34]
-03. Parallel - Interstellar [05:20]
-04. James Bright - Little Things [04:37](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260CB256DADE60BEC23358AEEF2915017975863F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956861   (329367) от 15.11.2015
-
-VA - Italo Disco Hits Vol.8 (2015) [MP3|320 кб/с]<Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key West - Jesahel (04:59)
-02. Roger Meno - What My Heart Wanna Say (03:53)
-03. Johnny M5 - Moscow Nights (Maxi Version) (05:58)
-04. Lala - Johnny Johnny (Radio Version) (03:27)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9956E11CFB057E5E097B38EE42F0540CA3626331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956913   (329315) от 15.11.2015
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 (Зарубежный выпуск - 18 ) (2015) [MP3|318 - 320 кб/с]<Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London Boys - London Nights (PWL Remix) (07:34)
-02. Bad Boys Blue - Pretty Young Girl (Tarantino ReFresh) (04:29)
-03. C. C. Catch - Backseat of your cadillac (Mix exclusive 2015) (04:04)
-04. Roger Meno - What My Heart Wanna Say (Wolfback's Remix) (09:11)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589A8E1DF69F14E8C3B45C1D976D2FD84324FE92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956727   (329309) от 15.11.2015
-
-VA - Drive (Ministry Of Sound) (2015) [MP3|320 кб/с]< Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329309.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. David Guetta Feat. Sam Martin - Dangerous
-2. Dillon Francis & DJ Snake - Get Low
-3. Major Lazer Feat. MØ & DJ Snake - Lean On
-4. DJ Fresh & Adam F - Believer Adam F & DJ Fresh BBK Edit(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC00DE7A9409392CD559E2F5222A25F7B2A73FBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

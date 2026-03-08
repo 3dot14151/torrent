@@ -1,3 +1,61 @@
+###  Публикация: 1838235   (257991) от 21.11.2025
+
+VA - The Greatest Singer-Songwriter Classics (2015) 3 CD [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Joel - Piano Man
+02. JJ Cale - After Midnight
+03. Carly Simon - Coming Around Again
+04. Paul Simon - 50 Ways To Leave Your Lover(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB619429BB8C045BC11252E04C9F68D4424F0694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838191   (257987) от 21.11.2025
+
+VA - Formel Eins - Double Fun (1990) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Europop, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Depeche Mode - Enjoy The Silence
+02. David A. Stewart feat. Candy Dulfer - Lily Was Here
+03. Marc Almond - A Lover Spurned
+04. They Might Be Giants - Birdhouse In Your Soul(   Читать дальше...   )Жанр: Electronic, Pop, Europop, Synth-pop, DiscoПродолжительность: 02:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92787E37CF21FAA4D225FAC9E317EAA3880A996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838060   (257745) от 20.11.2025
 
 VA - Always And Forever (1987) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock, Ballad>
@@ -720,64 +778,6 @@ VA - timeless love tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A16A5731D226B0D175341C3F04044924BFA258C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625603   (255299) от 11.04.2023
-
-VA - Mega Hits 2015 (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn - Ain't Nobody (Loves Me Better)
-02. Avicii - Waiting For Love
-03. Justin Bieber - Sorry
-04. The Weeknd - Can't Feel My Face(   Читать дальше...   )Жанр: PopПродолжительность: 03:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710D2E62EDECEB13BA818FC24F67897F97B20529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626319   (255197) от 14.04.2023
-
-VA - Soul Collected (2023) [MP3|320 Kbps] <Soul, Funk, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marlena Shaw - California Soul
-02. James Brown - The Payback, Part I
-03. Minnie Riperton - Inside My Love (Remastered 1993)
-04. Marvin Gaye - What's Going On(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88EF62F1D71D470F03685C2A9C29BEFA31327BB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

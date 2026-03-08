@@ -1,32 +1,3 @@
-###  Публикация: 1490129   (920782) от 19.08.2021
-
-Lacrimarum - My Never Fading Star (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mess (03:53)
-02. Blood (05:00)
-03. Demon in Me (03:36)
-04. My Never Fading Star (06:39)(   Читать дальше...   )Жанр: Gothic Symphonic RockПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19AE9D92A70954128F0BD6312DA365D84EC05B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366728   (920720) от 13.03.2020
 
 DED - 2 Releases (Mis-An-Thrope (CD) / Mannequin Eyes (EP)) (2017-2020) [MP3|320 Kbps] <Nu Metal>
@@ -763,6 +734,35 @@ Internal Cold - 1 album, 1 EP (2013-2016) [MP3|192-320 Kbps] <Atmospheric Black 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC2E600F57AAA2F84377D0DB8476FEA746DC540A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096551   (919397) от 24.01.2017
+
+Arktis - On The Rocks (1976) Reissue, 1997, Garden Of Delights [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919397.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dangerous Love
+2. Since You've Been Gone
+3. Never Come Back
+4. Please, Call Me(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B18375F67EAC85843411F6741CFEE5C0726623A
 ```
 
 https://mybot314.ru/tekegram_catalog/

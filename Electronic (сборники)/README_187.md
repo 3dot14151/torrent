@@ -1,3 +1,32 @@
+###  Публикация: 1539375   (243200) от 27.03.2022
+
+VA - The Synthpop Disco (2022) [MP3|320 Kbps] <Synthpop, Electronic, Electro Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заряжайтесь позитивом и яркими эмоциями с музыкой электронного диско сборника под наименованием "The Synthpop Disco". Микс, сочетающий в своем творчестве танцевальную электронику с живым вокалом, и всё это - под соусом лёгких попсовых текстов с узнаваемыми нотками старого доброго диско!001. Brigado Crew - Time Moves On
+002. LP Giobbi - Take My Hand
+003. Les Loups - Enough
+004. Santoro - Lover Message(   Читать дальше...   )Жанр: Synthpop, Electronic, Electro PopПродолжительность: 08:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D889B543F621E8D26DEE1690C948C74B97CAE693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079433   (243136) от 04.12.2016
 
 VA - Best Chillout Vol.21 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -716,35 +745,6 @@ VA - Beatport Funky House: Sound Pack #296 (2021) [MP3|320 Kbps] <Funky, Disco H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27AF5FA3B312C3FA6F97610F9CB5096DE422226F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627947   (239193) от 22.04.2023
-
-VA - TOP Non-Stop 2000-2009 - Dance House Music. Part 3 (2023) [MP3|192-320 Kbps] <Funky House, Progressive House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Royale - Happy Privée (2008) (2:46)
-02. Cosy Creatures - Sex Education (2003) (3:31)
-03. Magik Johnson - The Funk (2003) (5:15)
-04. Schmoov! - Monkey Nut (2002) (5:09)(   Читать дальше...   )Жанр: Funky House, Progressive House, Electro HouseПродолжительность: 15:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30490FDEB8BD12735E5CBB150E229DE7ACC49C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

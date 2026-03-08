@@ -1,3 +1,32 @@
+###  Публикация: 1322469   (448379) от 29.08.2019
+
+VA - House Classic Hits Summer Playlist (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bacci Bros. - Joy And Pain (Original Mix) 6:55
+02. The Miami Collective feat. Angie Brown - Never Gonna Give Up (Dub Mix) 6:45
+03. Barbara Tucker - Spread Love (Ferrari Mix) 7:39
+04. Carlos Rubio - The Feeling (Jack Da House Mix) 7:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F8E8363ACD5998DE06E3D666EF3CCDB06C9255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163291   (448272) от 06.09.2017
 
 Axwell & Ingrosso - More than You Know (2017) [MP3|320 Kbps] <House>
@@ -757,41 +786,6 @@ VA - The Best Of Summer Season '19 (2019) [MP3|320 Kbps] <House, Tech House, Bas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF19DFEA2CBFD26AA1207173232546D86B132C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555686   (431874) от 03.10.2012
-
-Various Artists - Club House 2012 (2012) [MP3|320 кб/с]<Club House, House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pain - Another Glass (Simone Cattaneo & Alex Gardini Remix) (5:50)
-02. Takeshy Kurosawa - Let Me Go (Rudeejay Remix) (1:57)
-03. Niky Martinez - Keep This Love Alive (Dub Mix) (7:32)
-04. Granite - One & Only (Original Mix) (5:20)
-05. A.D.M. - I Want You (David Jones Remix) (6:39)
-06. StoneBridge - I Love It (Album Mix) (3:21)
-07. Patric La Funk - Baltic (Original Mix) (6:33)
-08. Nightstylers - Up Your Rumpa (Original Mix) (8:19)
-09. Wally Lopez - House Of Mine (Simone Vitullo Remix) (8:16)
-10. SIKK - My Washing Machine (Leonardo Glovibes 2012 Remix) (6:10)(   Читать дальше...   )Жанр: Club House, House, Progressive HouseПродолжительность: 01:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F472021AC646D087147424113276945213B3A94F
 ```
 
 https://mybot314.ru/tekegram_catalog/

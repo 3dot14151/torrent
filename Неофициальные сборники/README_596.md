@@ -1,3 +1,177 @@
+###  Публикация: 1673474   (165037) от 01.11.2023
+
+VA - Saxophone Dreamsound (2023) [MP3|320 Kbps] <Jazz, Saxophone, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165037.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Lengwood - You're Beautiful [03:31]
+002. The Golden Saxophones - I Can't Stop Loving You [03:14]
+003. The Royal Sax Company - I Just Can' t Stop Loving You [04:19]
+004. Saxophone Dreamsound - Unfaithful [03:48](   Читать дальше...   )Жанр: Jazz, Saxophone, InstrumentalПродолжительность: 06:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB6A72ED50D1C799AB9785390EB9073FA07FE9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597852   (164891) от 16.12.2022
+
+VA - Top Dance Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Electro Pop, Indie Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta, Bebe Rexha - I'm Good (Blue)
+02. KSI, Tom Grennan - Not Over Yet (feat. Tom Grennan)
+03. LF SYSTEM - Afraid to Feel
+04. Oliver Tree, Robin Schulz - Miss You(   Читать дальше...   )Жанр: Synthpop, Disco, Electro Pop, Indie DanceПродолжительность: 01:30:49 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E103E8BC8610F433BCBB160BA6381CBE601F7384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516690   (164881) от 12.12.2021
+
+VA - 200 mp3  часть 2 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164881.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Locked Club - Devchonka (5:49)
+002. Timofey, Bartosz Brenes, Terri B! - Heaven (Club Mix) (5:19)
+003. Oxia, David Guetta - Domino (4:56)
+004. Kasablanca - Cronus (4:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19AC845A801EC334BAF2FD1B1C9F28FD11F75C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597879   (164786) от 16.12.2022
+
+VA - 100 Club Hits - Edition 2023 (2022) [MP3|320 Kbps] <Electro Pop, Dance, Future House, Groove>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164786.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Klaas - Ocean Eyes
+002. Hight - I'm with You
+003. Dino Mileta - Up
+004. The Disco Boys - Promised Land(   Читать дальше...   )Жанр: Electro Pop, Dance, Future House, GrooveПродолжительность: 04:38:14 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433578816DF4576DB9CA3C7D0C403C7235BD723D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597903   (164772) от 16.12.2022
+
+VA - Кайфуем Зиму (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164772.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Artem Smile - Танцуй принцесса (1:29)
+002. ARCHI - Всё для своих (1:34)
+003. ROBBI - ТАМ GUN (1:36)
+004. IKON - Ты не та (1:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B2E55A1ECDD56A0241F6104F51DA23909E219A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346107   (164548) от 18.12.2019
+
+VA - Dark Goa Psychedelic Trance (2019) [MP3|320 Kbps] <Trance Psychedelic, Goa>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164548.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aquila - The Locals
+002. Yoake - Square Pusher
+003. Juelz - Future Facing
+004. Aphid Moon - Feed The Beast(   Читать дальше...   )Жанр: Trance Psychedelic, GoaПродолжительность: 12:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198A3CAD2A67D8196660D20BD4A0B62D12C3D1BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346021   (164527) от 18.12.2019
 
 VA - Hi Games Vol.3 (Chiptune, Dubstep, Breaks Edition) (2019) [MP3|320 Kbps] <Chiptune, Dubstep, Breaks>
@@ -571,180 +745,6 @@ ORS / Orlando Riva Sound - Compilation (2023) [MP3|320 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD5FD6E276F47C7C43EAF002CAC33E24C841FEE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432594   (163091) от 18.12.2020
-
-VA - crazyДвиж number pyat (2020) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Brothers On The 4th Floor - Dreams (Dima Project Remix) (4:01)
-02. Afrika Bambaataa pres. Khayan - Feel The Vibe (Igor Frank Remix) (3:37)
-03. ATC - Around The World (Mike C Green & Alex Marvel Remix) (4:03)
-04. Audioboy - Circles (3:56)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 05:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C31223D729534D80448218FD5220BD886A296C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596349   (163071) от 18.12.2022
-
-VA - В машине с музыкой Vol.323 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лофт  - Second Wind (03:55) 2022
-02. Raikaho - Не Вернусь (02:10) 2022
-03. Saro Vardanyan - Напои Меня (03:35) 2022
-04. Rammstein - Adieu (Andrea Marino Remix) (04:04) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D45C04693F9B2E733500496516920AC354CA3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432748   (162900) от 18.12.2020
-
-VA - Disco Is Alive (2020) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1er Discopera - Fickle Love (1978) (4:14)
-02. A' La Carte - Heatr Full Of Soul (1983) (3:38)
-03. Alain Chamfort - Manureva (1979) (6:44)
-04. Azoto - Soft Emotion (1980) (5:41)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 06:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16310883A84306BD471C922C6B1E7D2531996739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517260   (162897) от 15.12.2021
-
-VA - Soft Pop (relax) 2 (2021) [MP3|320 Kbps] <Pop, Chillout, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lana Del Rey - If You Lie Down With Me (4:25)
-02. yaeow, Powfu, Sarcastic Sounds - how to live (2:26)
-03. Halsey - Darling (3:02)
-04. Hayd - Closure (3:16)(   Читать дальше...   )Жанр: Pop, Chillout, OtherПродолжительность: 04:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBDD15DDE6BC8B7B00B53B244913698DBDA98F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824551   (162437) от 18.10.2025
-
-Alice Cooper - Compilation (1969-2025) [MP3|320 Kbps] <Shock rock, Hard rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Nightmare Returns ❂ Welcome 2 My Nightmare 2011
-02. Poison ❂ Trash 1989
-03. Might As Well Be On Mars ❂ Hey, Stoopid ! 1991
-04. You & Me ❂ Lace & Whiskey 1977(   Читать дальше...   )Жанр: Shock rock, Hard rockПродолжительность: 14:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BDDF0273BB346C339564B5B68706DA8B6E1EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517743   (162355) от 16.12.2021
-
-VA - Euphoric Techno Dec (2021) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162355.jpg" />
-</div>
-
-
-###  Подробнее
-
-В техно музыке скрывается простая идея - музыка берется из машины, но душу вкладывает в неё человек. Поэтому считать этот жанр абсолютно бездушным наверное тоже неправильно.001. Jacidorex - Speed Of Love
-002. Anml Mthr - Outside
-003. Interfearence - The Carpenter
-004. Sins Of Insanity - Stay Behind(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381866430F659097FCAF782EFCFCA86E632562BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

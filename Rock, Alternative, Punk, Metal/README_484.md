@@ -1,32 +1,3 @@
-###  Публикация: 915962   (590896) от 08.07.2015
-
-Unleash The Archers - Time Stands Still (2015) [MP3|320 кб/с]<Melodic Power/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590896.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Northern Passage
-2. Frozen Steel
-3. Hail of the Tide
-4. Tonight We Ride(   Читать дальше...   )Жанр: Melodic Power/Death Metal (Продолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12791B4799236DE9214AF037C69306172C658B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916536   (590857) от 08.07.2015
 
 The Doors - The Best Of The Doors (1973)/2015/Audio Fidelity [FLAC|image + .cue]<Psychedelic Rock>
@@ -743,6 +714,35 @@ Ratatat - Magnifique (2015) [MP3|320 кб/с]<Alternative, Electronic Rock, Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EAF2DFE8A87952A6EC034222B8FFDB1C6DC77B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916861   (590348) от 09.07.2015
+
+Cradle Of Filth - Hammer Of The Witches (2015) [MP3|320 кб/с]<Black Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walpurgis Eve
+02. Yours Immortally
+03. Enshrined In Crematoria
+04. Deflowering The Maidenhead, Displeasuring The Goddess(   Читать дальше...   )Жанр: Black Metal, Gothic MetalПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C845378051BCE230CC8162D3AC97D8DFEA294DC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

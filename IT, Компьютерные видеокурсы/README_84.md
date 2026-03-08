@@ -1,3 +1,60 @@
+###  Публикация: 1615127   (202302) от 24.02.2023
+
+ZTM Academy, Luis Ramirez Jr | Unity Bootcamp: 3D Game Development (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучайте Unity. Получить работу. Это единственный курс Unity, который вам нужен, чтобы пройти путь от полного новичка (без опыта программирования) до написания собственных 3D-игр и получить работу в качестве разработчика игр в этом году!
+
+Обучение созданию собственной 3D-видеоигры не должно даже напоминать обучение... это должно быть весело! Это именно то, что вы (   Читать дальше...   )Производство: ZTM AcademyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 26:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE5FFCEF3F80EC58F6416BB6B3923E444E2E46C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615027   (202289) от 24.02.2023
+
+Олег Молчанов | Асинхронный Python и Asyncio (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Введение - небольшое повторение основных понятий
+2. Объекты корутин и асинхронные функции - тоже можно считать повторением
+3. Задачи (asyncio.Task), их создание, отмена, функции wait_for() и shield()
+4. Что делает await и run()(   Читать дальше...   )Жанр: Программирование, PythonЯзык озвучки: РусскийПродолжительность: 03:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BCAEE46B23031DE61C0153326BCEB305D2CD16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615196   (202287) от 24.02.2023
 
 JavaBegin | Авторизация OAuth2 из frontend – на основе JavaScript + KeyCloak + Spring (2022) WEB-DL [RU]
@@ -647,63 +704,6 @@ Thinknetica Pro, Артем Нистратов | Метапрограммиро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C24992B886C910504A7FB9A9560B9F2F5C43858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622708   (200599) от 29.03.2023
-
-Udemy, Jose Portilla | OpenAI Python API Bootcamp: Learn to use AI, GPT3, and more! (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебный курс OpenAI Python API: научитесь использовать AI, GPT3 и многое другое!​
-Откройте для себя возможности искусственного интеллекта с помощью мощного API OpenAI для создания текста и изображений в проектах.
-
-Чему вы научитесь​(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD720A68D316C7FF804565A376EAA7E055992E73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623418   (200549) от 01.04.2023
-
-ArjanCodes | The Software Designer Mindset - Complete Edition (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200549.jpg" />
-</div>
-
-
-###  Подробнее
-
-This course provides a modern take on software design, and teaches you a designer mindset that will allow you to consistently make better design decisions, getting you ready to take the next step in your career where you’ll be able to design complex software, immensely improve your existing code, and create software that is easy to change and scale.
-
-The course uses (   Читать дальше...   )Производство: ArjanCodesЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 14:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C81B2E2B741E9DF753F3985AEC718AD6425AF8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,37 @@
+###  Публикация: 553684   (431795) от 03.10.2012
+
+VA - Explorations Into Dancefloor Jazz Vol. 1-3 (1994-95) [FLAC|Lossless]<Acid Jazz, Jazzdance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_431795.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Count Basic - Strange Life With Dub (Kruder & Dorfmeister Remix)
+2. Hookian Minds - Freshmess (Red Snapper Mix)
+3. Soul Bossa Trio - Sally
+4. Rollercone - Rester Eveillé
+5. Angel - Step Into The Light
+6. Tosca - Chocolate Elvis
+7. Negrocan - Aquela Esquina (Snowboy Remix)
+8. A.P.E. - Fallen
+9. Silent Majority - Still Water (Horny Mix)Жанр: Acid Jazz, JazzdanceПродолжительность: 02:10:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571526   (431775) от 22.08.2022
 
 Al Jarreau - Tomorrow Today (1999) Verve Music [FLAC|Lossless|image + .cue] <Vocal Jazz, Smooth Jazz, Soul>
@@ -736,35 +770,6 @@ Peggy Lee - Rendezvous With Peggy Lee (1946-1949) 2000, Vocalion[FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F6FEE9815AB6243B93C76FB28632CB933C4F90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064176   (428378) от 19.10.2016
-
-Gary Burton & Friends - Departure (1997) [WavPack|Lossless|image + .cue] <Contemporary Jazz, Post Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September Song (5:13)
-02. Poinciana (8:26)
-03. Depk (5:02)
-04. Tenderly (5:50)(   Читать дальше...   )Жанр: Contemporary Jazz, Post BopПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156CA446DF5BE1DB65682FD502E148740A3EFB57
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1013423   (777490) от 04.05.2016
-
-Проекты - VideoHive - Atmospheric Slideshow - 13494191 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C482E4E3538289ED8914F262DEF68BDC6780EA0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013226   (777489) от 04.05.2016
 
 Проекты - VideoHive - Retro Fashion Package [AEP]
@@ -672,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4CA65150FC39459B93292D01AA9F58889705676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014487   (776363) от 07.05.2016
+
+Проекты - RocketStock - Revolver [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revolver - Попрощайтесь с скучными переходами по умолчанию! Этот шаблон After Effects включает 16 фото / видео переходов для плавного движения из 3d в превосходный внешний вид. Используйте переходы в After Effects или экспортируйте переходы с альфа-каналом для работы в Premiere Pro, Final Cut или Avid.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28685D254FE57BD388A6280A8EA35A4E7511BF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

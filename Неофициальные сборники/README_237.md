@@ -1,3 +1,177 @@
+###  Публикация: 1128932   (723708) от 27.04.2017
+
+VA - Discoteka 2017 Dance Club. The Best and  Newest Hits  [MP3|320 Kbps] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723708.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Feder - Blame Me (Denis First Radio Remix)
+002. Cascada - Playground
+003. Stereo Palma feat. Myra - Because The Night (Roberto Rios X Dan Sparks Remix)
+004. Sal De Sol - Happy Ending (Short Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 08:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FAB6BDC5FF242FF069106752ED8E3D5C84B112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023277   (723515) от 05.06.2016
+
+VA - Хиты от 90-х до сегодня (2016) [MP3|320 кб/с] <Рок>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вера Брежнева - Мамочка (02:58)
+02. C.C.Catch - Heaven And Hell'2014 (06:40)
+03. Пропаганда - Подруга (03:36)
+04. Dub Step Two Steps From Hell - Strength Of A Thousand Men (Instrumental Core Remix) 2012 (04:20)(   Читать дальше...   )Жанр: Pop, Retro, Pop-RockПродолжительность: 05:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4301228F50EAE7DABC09CF60E1D09987CFE4F19C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218376   (723403) от 09.04.2018
+
+VA - Own Space (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723403.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Whitesquare - Tzom (Original Mix)
+002. Aaliyah - Try Again (Hakan Akkus Remix) (Idyl Cover)
+003. Vee Groove, Luciana Gaspar - Wicked Game (Original Mix)
+004. Uper Acid band - Trip To Nowhere (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 13:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7736290CB24FE251F9A4F3B17E2D8BE3AD629C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023533   (723337) от 05.06.2016
+
+VA - Space Synth Disco 80s (2016) [MP3|320 кб/с] <Space Disco, Synth Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vanello - Planet Synth
+002. Laid Back - Elevator Boy
+003. Oblivion - Return To Home Planet
+004. Nordika - Illumination(   Читать дальше...   )Жанр: Space Disco, Synth DiscoПродолжительность: 08 :58 :03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599770FACF4DC3032BEB0DF2333C04A8E20AC782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218304   (723308) от 09.04.2018
+
+VA - Живи стильно! Наслаждайся музыкой с Hit FM (7) (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723308.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Эллаи - Шакалака
+002. R-Win - Лень
+003. Лина Мицуки - Феникс
+004. Анна-Мария - Сдаюсь Тебе(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D23C592C04A9C8B3CBA4BBCBCB546F36C2812CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218305   (723305) от 09.04.2018
+
+VA - Живи стильно! Наслаждайся музыкой с Hit FM (8) (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723305.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arcash - Сарочка-Зажигалочка
+002. Виолетта Дядюра (Via-Летта) - Дежавю
+003. Joka (Жока) Feat. Dj Davo - Были-Были
+004. Глюкоза - Он(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BAD44AFDC46B8A2E6A38EBC52D57B78FEE64BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218429   (723304) от 09.04.2018
 
 VA - Живи стильно! Наслаждайся музыкой с Hit FM (10) (2018) [MP3|256 Kbps] <Поп>
@@ -571,180 +745,6 @@ VA - Удачной дороги. Любимые хиты шансона (6) (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EC73BEB104F6218781FDD2C0D31245C82BA9D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218454   (723007) от 09.04.2018
-
-Bad Boys Blue - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник делал по заказу слушателя. Он просил отобрать 80-90 песен. У группы много однообразно - скучного творчества, как одна длинная песня. Выбрал 53 годных трека. Ерунду всякую пихать, лишь бы заполнить, не стал. Весь материал взят с оригинальных CD альбомов, без убивающего звук ремастеринга. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK01 Queen Of Hearts
-02 Come Back And Stay
-03 All About You
-04 Someone To Love(   Читать дальше...   )Жанр: PopПродолжительность: 03:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8634D646B7535B7C8B7832C851E1BAA85F42FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400077   (722954) от 03.08.2020
-
-VA - Beatport Techno: Electro Sound Pack #141 (2020) [MP3|320 Kbps] <Techno, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722954.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joe Cozzo - Detachment
-002. Blockform - Acid Rain
-003. Twins Project - Blast
-004. Jumkins - Angel(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 11:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D13EAC0868A4CC1B30A698A501961BCA38F7B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218460   (722940) от 09.04.2018
-
-VA - Двигай Попой! Лучшая танцевальная музыка (2018) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta, Sia - Flames
-02. Arash - Dooset Daram (feat. Helena)
-03. Aris - S.O.S. (DJ Antonio Remix)
-04. Burak Yeter - Crash(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A023236D2BEB6C138B8461A7477740650C54471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400083   (722866) от 03.08.2020
-
-VA - Kings Of Improvisation (Vol. 02) (2020) [MP3|320 Kbps] <Jazz, Instrumental, Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722866.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Thelonious Monk - 'round Midnight
-002. Aurora Clara - Aktur
-003. Jazz Sabbath - Fairies Wear Boots
-004. Ilkka Arola Sound Tagine - Leadershipping(   Читать дальше...   )Жанр: Jazz, Instrumental, Smooth JazzПродолжительность: 11:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD1CDB47DFCA784A03F121AE12278E27D7FDAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285278   (722771) от 25.02.2019
-
-VA - German Top 100 Single Charts 04.03.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722771.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. KC Rebell - DNA (feat. Summer Cem & Capital Bra)
-002. Shirin David - Gib Ihm
-003. Eno - Ferrari (feat. Mero)
-004. Pietro Lombardi - Nur ein Tanz(   Читать дальше...   )Жанр: PopПродолжительность: 05:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1CF6A6789F4186DCB09AB48B2EA0F21A8620F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285224   (722683) от 25.02.2019
-
-VA - Trap Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Trap, Future Bass, Electronica>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sasha Sloan - The Only (TWO LANES Remix) [3:34]
-02. Wide Awake - Something More (Original Mix) [3:06]
-03. Unknown Brain & Lox Chatterbox, Blvkstn & Salvo - Waiting (Original Mix) [3:19]
-04. DR!M - Banzai (Original Mix) [3:17](   Читать дальше...   )Жанр: Trap, Future Bass, ElectronicaПродолжительность: 02:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CF75CD916F3C90F5DB22D095073B2930B5263B
 ```
 
 https://mybot314.ru/tekegram_catalog/

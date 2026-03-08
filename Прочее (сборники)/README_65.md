@@ -1,3 +1,119 @@
+###  Публикация: 1131945   (702594) от 08.05.2017
+
+VA - Радио Энерджи ТОП 30 Май (2017) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ed Sheeran - Shape Of You  3:54
+02.  Dave Ramone feat. Minelli - Love On Repeat  4:49
+03.  Consoul Trainin - Take Me To Infinity  6:10
+04.  Sean Paul feat. Dua Lipa - No Lie  3:41(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250C0B9CAE4149E79E3085BA8903329CB0E2036B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132208   (702575) от 08.05.2017
+
+VA - 90's Eurodance (2017) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  2 Unlimited - The Real Thing  3:41
+02.  La Bouche - Be My Lover (Radio Edit)  3:59
+03.  Alexia - Me And You (Radio Version)  4:06
+04.  Robert Miles - Children (Radio Edit)  4:07(   Читать дальше...   )Жанр: EurodanceПродолжительность: 03:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B052CA50DB7F14F05B776C6649395DF3007F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026658   (702170) от 16.06.2016
+
+VA - Megadance 2016 incl 2 DJ Mixes (2016) [MP3|320 кб/с] <Dance, House, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ★Megadance 2016 DJ Mix, Pt.1 (1:19:49)
+02. ★Megadance 2016 DJ Mix, Pt.2 (1:18:10)
+03. Robin Schulz feat. J.U.D.G.E. - Show Me Love (Garry Ocean Remix) (6:17)
+04. Geeno Smith - Stand by Me (Radio Mix) (3:00)(   Читать дальше...   )Жанр: Dance, House, ElectronicПродолжительность: 08:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66ED44D65D62C5C5FBA7ECE416B56BDD4156D826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026765   (702061) от 16.06.2016
+
+VA - Disco Hits Top 200 - 80s (2016) [MP3|112~128 кб/с] <Disco, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702061.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Modern Talking - You`re My Heart, You`re My Sou 3:17
+002. Stars On 45 - Stars On 45 3:29
+003. Demis Roussos - From Souvenirs To Souvenirs 2:34
+004. Opus - Live Is Life 4:00(   Читать дальше...   )Жанр: Disco, Pop, DanceПродолжительность: 12:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71666A42B6025257A5BB9D3240645006C1304514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220734   (702018) от 20.04.2018
 
 CL - Hello Bitches (2016) Remix [MP3|320 Kbps] <Deep House, G-House>
@@ -625,122 +741,6 @@ VA - Зайцев.нет Лучшие новинки Августа (2020) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9C3931A836D8632559AB4C2B8F8AAF7978BDD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133236   (696944) от 11.05.2017
-
-VA - New generation Euro Disco Vol.7 (2017) [MP3|256-320 Kbps] <Disco, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696944.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A-Ha - I've Been Losing You (Extended Version) 7:04
-002. Abba - Happy New Year (Dj Jedy Deep Remix 2017) 4:44
-003. Alphaville - The Jet Set (Jellybean Mix) 6:32
-004. Anthony's Games - Sunshine Love (Unreleased Version) 5:13(   Читать дальше...   )Жанр: Disco, Pop, DanceПродолжительность: 10:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA971A2B47CFD21EDD7ECE9C009BA01CCD90975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221273   (696725) от 23.04.2018
-
-VA - Extend the 80s - Hits (2018) [MP3|320 Kbps] <Pop, Disco, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alison Moyet - Love Resurrection (U.S. Long Version) [2016 Remastered]
-02. Bananarama - Robert De Niro's Waiting (Extended Version)
-03. Kirsty MacColl - A New England (12" Mix)
-04. Fine Young Cannibals - She Drives Me Crazy (The David Z Remix)(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 02:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694658381609FD940D21AC300009F14AAF32105D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027211   (696532) от 19.06.2016
-
-VA - I Love Ballads - Part VI (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charles Aznavoour - Les Deux Guitares
-02. The Bangles - Eternal Flame
-03. Tevin Campbell - Everything
-04. The Hollies - He Ain't Heavy, He's My Brother(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712F39C148D805356B745A92235E873215A765F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027243   (696529) от 19.06.2016
-
-VA - I Love Ballads - Part VIII (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrique Iglesias - Mmacita
-02. Christina Milan - When You Look At Me
-03. Chris De Burgh - Snow Is Falling
-04. Celine Dion - I'm Alive(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01118101F2A1C37CF4E497CC37F1281FC34B2FE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

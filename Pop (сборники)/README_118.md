@@ -1,3 +1,38 @@
+###  Публикация: 489980   (129871) от 01.05.2012
+
+VA - Лучший Top-чарт (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129871.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Glamour - Хищница (3:31)
+2. Елена Терлеева - Немая Любовь (4:01)
+3. Анжелика Агурбаш - Это Любовь (3:07)
+4. Саша Зверева & El Ray - Как прежде (3:42)
+5. Вика Дайнеко - Сотри его из memory (Radu Sirbu remix) (3:02)
+6. Никита - Бессонница (2:46)
+7. Настя Любимова и DJ Haipa - Чужая Я (Radio Edit) (3:34)
+8. Кристина Орбакайте - Птица-обида (3:07)
+9. Vanguarde - Gimme Gimme Gimme (Abba) (3:24)
+10. Quest Pistols - Ты так красива (DJ Vengerov remix) (3:12)2012Жанр: PopПродолжительность: 06:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8923AD2F0B746E79CB97C62BBD6B942A89087B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490368   (129747) от 01.05.2012
 
 VA - Офигенное Радио (2012) [MP3|256 кб/с]<Pop>
@@ -734,35 +769,6 @@ VA - Bohemian Soul (2024) [MP3|320 Kbps] <Rhythm And Blues, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7117ACA27BD8E087602CB09C60B8E331D78BD87A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718600   (110683) от 28.04.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 03 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Whispers - And The Beat Goes On (Dario Caminita Revibe) (6:09)
-02. Delegation - Put A Little Love On Me (Dario Caminita Revibe) (5:55)
-03. Chic feat. Sugarhill Gang - Good Times (Dario Caminita Revibe) (8:37)
-04. Lipps Inc. - Funkytown (Dario Caminita Revibe) (5:47)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF7551008F6289A5413BB7E96282340348D1B9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

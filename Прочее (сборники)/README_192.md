@@ -1,3 +1,119 @@
+###  Публикация: 1805451   (12322) от 06.07.2025
+
+VA - Music News For Forum vol.109 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12322.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Holy Molly - Talk To You Later (02:57)
+ 002. A2CVT - Desire for Me (02:19)
+ 003. A9 - Om Klim Hrem Shrem Namah (03:57)
+ 004. Aars - Где удача как дым (03:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F3E811BFAFAEEF2D204D886CD8F4C890BE3C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805604   (12306) от 07.07.2025
+
+VA - Дискотека 2025 Dance Club Vol. 229 (2025) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+001. AELYN - Hypnosis (2:49)
+002. James Hype - Drums (feat. Kim Petras, Tiesto) (2:52)
+003. ONEIL, KANVISE, FAVIA - Another Love (2:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676A62FCB90AAD33864092E923F95542B88A6666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805795   (12132) от 08.07.2025
+
+VA - Music News For Forum vol.110 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12132.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Silence The Echo - Don't Give Up (03:59)
+ 002. Adept - Heaven (04:21)
+ 003. Adept - YOU (04:24)
+ 004. Adina Butar - Escape You (03:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473F140B6379D7E8E46ABB5313456D84395B8CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806279   (11810) от 11.07.2025
+
+VA - Music News For Forum vol.111 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11810.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elena Khozberg - Помнишь когда 2.0 (02:46)
+ 002. 2hug - In Da Club (01:39)
+ 003. 2hug - Двигаться (01:59)
+ 004. 2hug - Квартал (01:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456B2AB9EC97070E18AF740C5C8DB1395AD66C35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806412   (11694) от 12.07.2025
 
 VA - Music News For Forum vol.112 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ VA - Music News For Forum vol.124 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03FBACBC5050546310F44881C15E6A699CFA67BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811865   (8285) от 12.08.2025
-
-VA - Musical kaleidoscope part 49 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sisco Le Voyageur - Voyage Du Voyageur
-02 - Сергей Грищук - Журавлиная Акварель
-03 - Sergey Chekalin - Song of the Forest
-04 - Giovanni Marradi - Soleado(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, SaxПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E6865F6F9E62B7977867CAFC5286A9A1D44D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812092   (8153) от 13.08.2025
-
-VA - Radio Hits 2025 - Radio Music Playlist [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8153.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lola Young - Messy (4:44)
-002. Kendrick Lamar - Not Like Us (4:34)
-003. Doja Cat - Agora Hills (4:25)
-004. Billie Eilish - WILDFLOWER (4:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C7ED89F31B10897DA89538A2016F70427ED814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812444   (7882) от 14.08.2025
-
-VA - Music News For Forum vol.125 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7882.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bella - Ich Glaub Ich (02:46)
- 002. Adam Maniac - Give It To You (01:57)
- 003. AFROZO & KENSHI - Nadie Como Tu (02:28)
- 004. Alanis Morissette & Carly Simon - Coming Around Again (03:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCC837260D4E4CA7E810799C54DD84CC9D88CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812557   (7712) от 15.08.2025
-
-VA - Music News For Forum vol.126 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7712.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aura Tag - All Right (03:08)
- 002. 58TAKASHI - Hardest Worker in the Room (02:16)
- 003. aairamm - ILL (02:09)
- 004. AbdulHamid & DAANNI - Midnight Symphony (02:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6084DAC02B75453EDF18E452999AF860B9D2EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

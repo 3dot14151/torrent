@@ -1,32 +1,3 @@
-###  Публикация: 1044441   (565303) от 20.08.2016
-
-Twisted Sister - Metal Meltdown (2016) Live [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What You Don't Know
-02. The Kids Are Back
-03. Stay Hungry
-04. The Beast(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7C6EDDCDB96F207B7EE0133FA35A517736889E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529612   (565284) от 01.08.2012
 
 Desecresy - The Doom Skeptron (2012) [FLAC|Lossless]<Death Metal>
@@ -779,6 +750,35 @@ Masfel - Viperagarzon (1996) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3609AA0814512AFB8DDB120893A1A452DAE506C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304548   (564106) от 26.05.2019
+
+Michael Bundt - Neon (1979) LP [MP3|320 Kbps] <Electronic, Krautrock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon (12:46)
+02. This Beautiful Ray Gun (7:24)
+03. Welcome The Astral Dancer (3:13)
+04. Future Street No. 7 (7:20)(   Читать дальше...   )Жанр: Electronic, Krautrock, ExperimentalПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642AD3F5779635833AFDC5295FD0294DCA405FA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

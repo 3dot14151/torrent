@@ -1,3 +1,61 @@
+###  Публикация: 1784051   (69641) от 09.03.2025
+
+VA - Deep & Soul 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleanger & M-Sol DEEP - Call For Aid (Original Mix) [4:49]
+02. Yohai Mor & M-Sol DEEP - Soul's Voice (Original Mix) [5:57]
+03. Duel (HU) & M-Sol DEEP - Up With The Birds (Original Mix) [7:13]
+04. 4Moon Music & M-Sol DEEP - Open Heart (Original Mix) [6:25](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653378D2D80C4E90C9444520D3F514C302F5CDDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784230   (69640) от 09.03.2025
+
+Ernestronix (Ernesto) - Synths Earth Orbit (New Dimensions) (2025) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Space-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy (4:15)
+02. Vision (6:58)
+03. Interceptor Adventure in the Hyperspace (6:16)
+04. Tunnel of Long Time (5:22)(   Читать дальше...   )Жанр: Spacesynth, Space-DanceПродолжительность: 01:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5AD2FEA934211B0961F3958614C08A7ECE4817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784171   (69632) от 09.03.2025
 
 electron7 - The singularity (2025) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
@@ -687,64 +745,6 @@ VA - Trance Horizons, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D65158477ED0E6FDDC6248635E32D6CC02A6283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785619   (69159) от 17.03.2025
-
-Larva - Prescindibles (2025) [FLAC|Lossless|WEB-DL|tracks] <EBM / Dark Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carne De Rata [00:03:49]
-02. A Beautiful Disaster [00:03:23]
-03. Prescindibles (Nunca Venceremos) [00:04:01]
-04. La Mort De La Llum [00:03:00](   Читать дальше...   )Жанр: EBM / Dark ElectroПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A298AED3E7E66EE9424BABBC459AF6D6BF9F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785766   (69155) от 17.03.2025
-
-VA - Groove Paradise (The Deep-House Collection), Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fonetica - I Need Your Love (Carlos Hdez Remix) [06:50]
-02. Steen Thottrup & Denver Knoesen - Another Day (Another Remix) [05:07]
-03. DJ Enne - Stand Up (Original Mix) [07:12]
-04. Mutehead - Wardenclyffe [02:49](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72EC34F418B7F4E9200AB905B3AC10A1889E19E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 992297   (900587) от 02.03.2016
+
+Я. Хейфец - К. Сен-Санс - Интродукция И Рондо-Каприччиозо / П. Сарасате  - Цыганские Напевы (1960) [FLAC|96/24|Lossless|tracks|Vinyl-Rip] <Classical, Violin>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. К. Сен Санс - Интродукция и рондо-каприччиозо, соч. 28
+02. П. Сарасате - Цыганские напевы, соч. 20Жанр: Classical, violinПродолжительность: 00:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FEF0E2D1559A7B873D5216DF1491AC3318DC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992522   (900571) от 02.03.2016
 
 Прокофьев, Hindemith - Quintet, Overture on Hebrew Themes; Octet (Berlin Soloists, Bashkirova) (2002) [MP3|320 кб/с] <Классическая музыка, Modern, Chamber>
@@ -720,35 +747,6 @@ Tessarini Consort: Joza Caras (conductor), Lisa Rautenberg (violin), Jaroslaw Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:648D844DE8A2EE8AF13C35673156E4AE7D47A941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993984   (893858) от 06.03.2016
-
-Magdalena Kozena & Mahler Chamber Orchestra with Marc Minkowski - French Arias (2003) [APE|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Auber - Le Domino noir: 'Ah! quelle nuit! ... Flamme vengeresse' (6:37)
-02.  Gonoud - Cinq-Mars: 'Nuit resplendissante' (5:34)
-03.  Gonoud - Romeo et Juliette: 'Que fais-tu, blanche tourterelle' (3:52)
-04.  Massenet - Cleopatre: 'J'ai verse le poison' (4:09)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954455564C93BFF20BBFD8D55D6307AFBAB2DC53
 ```
 
 https://mybot314.ru/tekegram_catalog/

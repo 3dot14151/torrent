@@ -1,3 +1,32 @@
+###  Публикация: 1123888   (786169) от 09.04.2017
+
+John Pizzarelli - John Pizzarelli Meets The Beatles (1998) 1999, BMG Japan [FLAC|Lossless|image + .cue] <Jazz, Bebop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Buy Me Love (3:37)
+02. I've Just Seen A Face (2:48)
+03. Here Comes The Sun (5:05)
+04. Things We Said Today (4:16)(   Читать дальше...   )Жанр: Jazz, BebopПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E9F12F1D0E0ED4F3210ADDF774EA4BF6F8F6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124443   (785844) от 11.04.2017
 
 Paul Bley - Live In Haarlem (1966) 1999, DA Music [FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
@@ -714,35 +743,6 @@ Nat Adderley Quintet - Mercy, Mercy, Mercy (1997) Evidence [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:332F2D82DB7E88DEA29BE4A5364B656858A953F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388847   (785168) от 08.06.2020
-
-Alan Pasqua - My New Old Friend (2005) Cryptogramophone [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Must Believe in Spring [4:56]
-02. Barcelona [4:33]
-03. Highway 14 [5:59]
-04. All the Things You Are [4:38](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7D76400D1EFFEF1DA2A9DBA6EB391D612568E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1067648   (244888) от 29.10.2016
+
+VA - Trance Collection Vol.53 (2016) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Addictive Glance - Head North (Legolas High Remix) 7:03
+002.Addictive Glance - Head North (Purelight Remix) 6:11
+003.Alexey Ryasnyansky feat. Minette Fourie - I Know A Place (Inteyes Remix) 7:37
+004.Alex Leavon and Cynthia Hall - Paper Kites (Original Mix) 5:56(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 11:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5E48E99FF87187EAA53A24ACEB4A01A0FA6D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067653   (244881) от 29.10.2016
 
 VA - Best Chillout Vol.19 (2016) [MP3|192-320 Kbps] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ VA - Top Hit Music Mission Charts (2016) [MP3|239~320 Kbps] <House, Funky,  Nu D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F1A495AEF05B7A697BFD4DCAC4BBB66469FE783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539375   (243200) от 27.03.2022
-
-VA - The Synthpop Disco (2022) [MP3|320 Kbps] <Synthpop, Electronic, Electro Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заряжайтесь позитивом и яркими эмоциями с музыкой электронного диско сборника под наименованием "The Synthpop Disco". Микс, сочетающий в своем творчестве танцевальную электронику с живым вокалом, и всё это - под соусом лёгких попсовых текстов с узнаваемыми нотками старого доброго диско!001. Brigado Crew - Time Moves On
-002. LP Giobbi - Take My Hand
-003. Les Loups - Enough
-004. Santoro - Lover Message(   Читать дальше...   )Жанр: Synthpop, Electronic, Electro PopПродолжительность: 08:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D889B543F621E8D26DEE1690C948C74B97CAE693
 ```
 
 https://mybot314.ru/tekegram_catalog/

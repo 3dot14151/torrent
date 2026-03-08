@@ -1,3 +1,32 @@
+###  Публикация: 1158653   (492003) от 16.08.2017
+
+VA - Chill Ambient: 150 Advanced Relax Mix (2017) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492003.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Drew Cox - Lake in Autumn
+002. Double Go - Well & Ness
+003. al l bo - On The Dance Floor (Spill Remix)
+004. Alexander Tarasov - The Light of My Soul(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 11:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C4B34291113A31633AB8C53B762900FD71C584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318935   (490890) от 08.08.2019
 
 VA - Top50: Tracks Deep House Ver.8 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
@@ -740,35 +769,6 @@ VA - Trance Tattoe #22 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CBD18024E176B2BAE4F49C8DB7476FC0C066B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319342   (484723) от 11.08.2019
-
-VA - Future Ambient Electronic (2018) [MP3|320 Kbps] <Ambient, Downtempo, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484723.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 21St Century Wolf - Nineteens
-002. Francois Maugame - Like A Summer Breeze
-003. Aferon - Сherry Station (Original Mix)
-004. Buddha-Bar - Stonehenge (Original Mix)(   Читать дальше...   )Жанр: Ambient, Downtempo, ElectronicПродолжительность: 10:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA093F671D4DCCFF3E28EF259A7891B6DCAF93C
 ```
 
 https://mybot314.ru/tekegram_catalog/

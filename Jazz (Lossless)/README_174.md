@@ -1,3 +1,32 @@
+###  Публикация: 1407128   (468610) от 06.09.2020
+
+Wynton Marsalis Septet - United We Swing: Best of the Jazz at Lincoln Center Galas (2018) Blue Engine Records [FLAC|Lossless|tracks + .cue] <Swing, Straight-Ahead Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Time (feat. Blind Boys of Alabama) [4:15]
+02. It Takes a Lot to Laugh, It Takes a Train to Cry (feat. Bob Dylan) [4:31]
+03. I'm Gonna Move to the Outskirts of Town (feat. Ray Charles) [3:47]
+04. I'm Not Rough (feat. Eric Clapton) [3:04](   Читать дальше...   )Жанр: Swing, Straight-Ahead Jazz, Vocal JazzПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A28970D0BF46AEB3FA9E5E6CEDD09D4073508C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407130   (468373) от 06.09.2020
 
 Dexter Gordon - Nights at the Keystone, Vol.3 (1979) 1990, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -740,35 +769,6 @@ Ike Quebec - Bossa Nova Soul Samba (1962) /1996, Ars Nova/[FLAC|tracks+.cue]<Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A5B19C86C7A8503132DE7718296C9DFE877A231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059097   (464476) от 03.10.2016
-
-Jasper van 't Hof - Eyeball (1974) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bax [07:54]
- 02.Viber Snake [05:16]
- 03.Eyeball I [03:42]
- 04.Hyrax [05:57](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8CB8B05FD1962F19742C335ACB1FE97689785E
 ```
 
 https://mybot314.ru/tekegram_catalog/

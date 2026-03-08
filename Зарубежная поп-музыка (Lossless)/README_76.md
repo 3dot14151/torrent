@@ -1,3 +1,32 @@
+###  Публикация: 1607982   (208709) от 29.01.2023
+
+Stars On 45 - 40 Years Anthology (2022) 2CD, Remastered [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop, Retro-Schlager, Post-Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Superstars (The Greatest Rock 'n Roll Band In The World) (RM.) (16:02)
+02. Stars On Stevie (Remastered) (7:44)
+03. It's Not A Wonder, It's A Miracle (Remastered) (6:56)
+04. Stars On Jingle (Remastered) (0:11)(   Читать дальше...   )Жанр: Disco, Pop, Retro-Schlager, Post-Rock, R&B |Продолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B3ADD7C12F80D85B9BE6176F7AF7A26F22BC820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647504   (208531) от 19.07.2023
 
 VA - Hot Pop Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ VA - 70s Pop Mega Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E973D11D8E8CE257D6456E6725ED6FCDC731D47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445578   (193898) от 22.08.2023
-
-Toto Cutugno - 3 Albums (1990 - 2005) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il Cielo E' Sempre Un Po' Piu' Blu 3:38
-02. Come Noi Nessuno Al Mondo 4:57
-03. Cantando ( En Chantant ) 4:37
-04. L'italiano 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C98830F0DD57C18B9B7E28C45E77BBDA4A0A175
 ```
 
 https://mybot314.ru/tekegram_catalog/

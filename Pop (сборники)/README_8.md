@@ -1,3 +1,32 @@
+###  Публикация: 1361397   (955510) от 19.02.2020
+
+VA - Popular European Mix (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955510.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. La Roux - Gullible Fool (Original Mix)
+002. Where Is Maps - Crazy Together
+003. Skif Bazzaty - Solo Tu Y Yo (Original Mix)
+004. Dstrqt - Missions (Original Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC94CED5D240D98309254052BB29190E7D89A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360935   (955405) от 19.02.2020
 
 VA - Romantic Souls: Popular Lyric Collection (2020) [MP3|320 Kbps] <Pop, Lyric>
@@ -716,35 +745,6 @@ VA - Хитовый бум на Europa Plus. Зарубежный выпуск (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B62B8F65ACE4BF6BA8762877CFEE22A09F2C64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089449   (950040) от 04.01.2017
-
-VA - Новогодняя Дискотека 80-х от Авторадио – 15 Лет (2017) [MP3|320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950040.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zodiac - Зодиак 5:20
-002. Веселые ребята - Бологое 3:44
-003. Поющие Гитары - Люди встречаются 2:52
-004. Веселые Ребята - Напиши мне письмо 3:15(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 03:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E9744D0D90FFF5CC751962C0900FABD2305DDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

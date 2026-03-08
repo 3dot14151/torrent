@@ -1,32 +1,3 @@
-###  Публикация: 1456737   (1024950) от 23.03.2021
-
-Reylobo - El Octavo Pecado (2021) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Final (00:01:23)
-02 - Los Olvidados (00:03:43)
-03 - La Jauria Humana (00:03:59)
-04 - Rebelion (00:03:47)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1561D3008C1023E2C13BEB7E9E001669C32C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456740   (1024949) от 23.03.2021
 
 Zarpa - El Loco (2021) [MP3|320 Kbps] <Heavy Metal>
@@ -749,6 +720,35 @@ Slabber - Apocryphal Diary (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87C952570D06B87FBBCC6BAA443BF2AE475F3FB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457643   (1024441) от 26.03.2021
+
+Банда четырех - Смерть в июне (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Резервация здесь [00:03:27]
+02. Ночью через лес [00:03:43]
+03. Дисциплина [00:04:39]
+04. Плохая репутация [00:04:46](   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26EDB52ABA29EF4E41D13E3FD1115C92F604A25
 ```
 
 https://mybot314.ru/tekegram_catalog/

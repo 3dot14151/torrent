@@ -1,3 +1,32 @@
+###  Публикация: 1353771   (990797) от 19.01.2020
+
+VA - German Top 100 Single Charts 17.01.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Tones and I - Dance Monkey
+03. Apache 207 - Roller
+04. Dardan - 6AM.........(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1FC30887210B76F2EEFB79AA03C06FA3A8D813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 432220   (990633) от 06.01.2012
 
 VA - Дискотека Зеленоглазое Такси Золотой выпуск (2012) [MP3|224 kbps]<Dance, Club>
@@ -788,35 +817,6 @@ VA - Итоговый ЕвроХит Топ 40 2013  [MP3|~245 кб/с (V0)]<Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0E5A99429F129D3F3BDAD19CCA3F993258C6810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974680   (975868) от 12.01.2016
-
-Reverend and The Makers - Collection (2007-2012) [OGG|459-548 кб/с] <Dance Rock, Indie Rock, Electropop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The State Of Things
-02. The Machine
-03. Heavyweight Champion Of The World
-04. Open Your Window(   Читать дальше...   )Жанр: Dance Rock, Indie Rock, ElectropopПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465D5373969A3A7BD5C986BC48EFB5CB495F3A79
 ```
 
 https://mybot314.ru/tekegram_catalog/

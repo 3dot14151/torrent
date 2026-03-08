@@ -1,3 +1,32 @@
+###  Публикация: 1781009   (26971) от 21.02.2025
+
+VA - 100 Pop Hits (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Locked Out of Heaven (03:53)
+02. Madonna - Like a Prayer (05:42)
+03. Coldplay - Viva La Vida (04:02)
+04. Fleetwood Mac - Dreams (2018 Remaster) (04:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90BB54ADEC809E5668F6C21675733AB777DE078D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784307   (25098) от 10.03.2025
 
 Texas - Compilation (1989-2021) [MP3|320 Kbps] <Pop rock>
@@ -717,35 +746,6 @@ Reyvi - Favorites Collection (2025) [MP3|320 Kbps] <Euro-Disco, New Italo Disco 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BD68A43E6BC1D9FEE3B159A072F2C77C5C75F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764679   (5225) от 30.08.2025
-
-Emin - Compilation (2006-2025) [MP3|320 Kbps] <Soul, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Keeps Beating (After The Thunder 2012)
-02. Always (Good Love 2019)
-03. Always On My Mind (Obsession 2008)
-04. Отпусти и Лети (Love Is 2021)(   Читать дальше...   )Жанр: Soul, PopПродолжительность: 05:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCFFA089E5E8BAF43EEE80DE4FB009ECCAE95598
 ```
 
 https://mybot314.ru/tekegram_catalog/

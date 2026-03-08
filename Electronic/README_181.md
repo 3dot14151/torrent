@@ -1,3 +1,61 @@
+###  Публикация: 1023304   (726722) от 04.06.2016
+
+VA - Ambient Spheres (2016) [MP3|320 кб/с] <Downtempo, Chillout, Electronica>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kuba - Suddenly (3:35)
+02. Miktek - Dear Universe (4:31)
+03. Perpetual Loop - Night Drive (0:45)
+04. Astronaut Ape - Night In Ubud (8:11)(   Читать дальше...   )Жанр: Downtempo, Chillout, Electronica, AmbientПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A45AB5C720B38741E02A7F95456EBDE07EC75D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023145   (726712) от 04.06.2016
+
+VA - Defected In The House Ibiza (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon Dunmore - Defected In The House Ibiza 2016 Mix 1 (Original Mix) [66:33]
+02. Simon Dunmore - Defected In The House Ibiza 2016 Mix 2 (Original Mix) [70:25]
+03. Simon Dunmore - Defected In The House Ibiza 2016 Mix 3 (Original Mix) [72:19]
+04. Tonja Dantzler - In And Out Of My Life (Dario D'Attis Remix) [08:01](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 08:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD077B3BDB57A242A227CD6DE316BA42BD95813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023288   (726705) от 04.06.2016
 
 VA - Luxury No. 2 (The House Series) (2016) [MP3|320 кб/с] <ChillHouse, Lounge>
@@ -682,64 +740,6 @@ Swoop And Cross - Stories Of Disintegration (2018) [FLAC|Lossless|Web-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87ED4B977FAC7303E416FF93F753F25B269BEEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284799   (724916) от 24.02.2019
-
-VA - Alfa State - Plays 7V (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ercos Blanka - Brigante (08:55)
-02. Ben Preisinger - The Quiet Wanderer (07:03)
-03. Agatha Pher - Light Shadow (06:40)
-04. Yarosslav - Boundaries (Iron Curtis No Boundaries Mix) (07:32)(   Читать дальше...   )Жанр: Deep House, Downtempo, Tech House, TechnoПродолжительность: 02:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8923A78D659952C4EA1C4B67F482EA90E9772058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285030   (724914) от 24.02.2019
-
-Mirror System - Mirrorsystem (2005) [MP3|320 Kbps] <Downtempo, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cloud II (6:59)
-02. Stela (duende mix) (7:54)
-03. Hilal (6:41)
-04. Flex e fun (8:07)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DD2DC8C3B78E3E3CDC422D659907739686DD2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

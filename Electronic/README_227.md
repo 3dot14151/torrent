@@ -1,3 +1,61 @@
+###  Публикация: 1035469   (628608) от 16.07.2016
+
+VA - Mollono.Bass Remix Collection 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dole And Kom - Silence (Mollono.Bass remix)
+02. Jan Ploetzlich - Go Away (Mollono.Bass remix)
+03. Dolph - Free From Troughts (Mollono.Bass remix)
+04. Noetics - Rotterdub (Mollono.Bass & Seth Schwarz remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36DB71601C3BA49EF7128DE0A793A8D9295B377F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294511   (628489) от 08.04.2019
+
+VA - Project STS-31 - Spiralgalaxie (Hubble Telescope Series Vol. III) (2016) Solar One Music [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project STS-31 - Spiralgalaxie (03:06)
+02. The Exaltics - NGC 253 (05:20)
+03. Heinrich Mueller - Adaptive Optics (04:49)
+04. Robert Heise - Stars, Gases And Dust (03:30)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831E8D195F4397B28F20E075F90E9F6C88F65581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909376   (628458) от 17.06.2015
 
 VA - Caribbean Beach Lounge (Tropical Chill Out Tunes for Perfect Easy Listening Summer) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ Breathdub - Modulations (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57FB12840C395431343D83E826EEB4E46DC122C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144478   (627615) от 22.06.2017
-
-VA - Inner Balance Chillout Your Soul 2 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmonium - Esoterics - Short Edit
-02. Heavenly Light - Butterfly Wings
-03. Atlantic Dolphins - Reach the Beach
-04. Phase 3 - Evolution of Space(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6FC87E86868AEAFBBBBF16032CEF938F309AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144421   (627613) от 22.06.2017
-
-Philip Anders - My Kind Of Car (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627613.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Exhaust (06:57)
-2. Disco Balls (07:03)
-3. Happy Feet (06:38)
-4. Transformers (feat Leif Hatfield) (06:00)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F2C9ADD8E78243D013DB582173749F0B37D22C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1785071   (69426) от 14.03.2025
+
+Mancol - First Look (2024) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space And Time (Extended Edit) (5:32)
+02. Oh My Lady (Long Edit) (7:26)
+03. Angel Of Love (Extended Edit) (5:46)
+04. Open Eyes (Extended Edit) (5:08)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E84D1C7977744D973ED1C6A71086C8657F80B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785070   (69414) от 14.03.2025
+
+VA - Rewind - 29 Italo Disco Classics (1997) 2CD [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotch - Disco Band (4:07)
+02. Righeira - Vamos A La Playa (5:09)
+03. Valerie Dore - The Night (6:17)
+04. Ryan Paris - Dolce Vita (7:31)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7DA615F00DFCD0D2C58CE47C7A91565A3C3497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785331   (69370) от 15.03.2025
 
 Karen Cheryl - Etonnamment Romantique Best Of (2025) Remastered [MP3|320 Kbps] <Disco, Electronic, Pop>
@@ -686,64 +744,6 @@ VA - I Love ZYX Italo Disco Collection 11 (2011) 3 CD [OGG Vorbis|480 Kbps] <Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3717FD991860E38707A47E06D770E4B3925219C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788028   (68659) от 28.03.2025
-
-VA - I Love ZYX Italo Disco Collection 9 (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Ton - Video Killed The Radio Star (Vocal)
-02. Coangielu - Feeling (Extended Version)
-03. Chaya - Russian Affair (Extended Version)
-04. Gazuzu - Go Go Gorilla (Vocal Version)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784293B358059AA074929358ADC266FDF5C16AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787973   (68644) от 28.03.2025
-
-Dabro - Дальше - больше (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68644.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ты люби так же
-2. Взять за руку мечту
-3. Солнце и Луна
-4. Да я потерял любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AEBC34C4D60DA51DC39DC074F90349C8CC9BDF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

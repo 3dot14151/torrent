@@ -1,3 +1,61 @@
+###  Публикация: 1725478   (55505) от 24.05.2024
+
+Монеточка - Молитвы. Анекдоты. Тосты. (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Это было в России
+2. Остановилось
+3. Заново
+4. Монополия(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864E8F5B582AD8F656C491A4B001322763BFD80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676704   (55131) от 28.05.2024
+
+Sandra - The Platinum Collection (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Maria Magdalena (Single Version)
+02.  In The Heat Of The Night (Single Version)
+03.  Little Girl
+04.  Sisters And Brothers(   Читать дальше...   )Жанр: Electronic, Pop, Eurodance, Euro-DiscoПродолжительность: 03:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BCF413024024FA95CB3AAD5B1AB5B17ED9714A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726830   (54888) от 30.05.2024
 
 VA - 100% Hits: DJ Hits '97 Vol. 1 (1997) [OGG Vorbis|480 Kbps] <Electronic, Reggae, Euro House>
@@ -681,64 +739,6 @@ VA - Pool Paradise (2024) [MP3|320 Kbps] <Disco, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:383C9DCD6449F6114C49C938656D840067964BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731166   (52820) от 19.06.2024
-
-Мираж - Звёзды нас ждут (1987) Reissue, 1999, JAM Group International [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнечное лето
-02. Звезды нас ждут
-03. Безумный мир
-04. Я не хочу(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2172C250AFAC01097D9776C4342B5F97DF8715E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731025   (52786) от 19.06.2024
-
-Leah Kate - Super Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super Over (2:45)
-02. Space (2:49)
-03. Unbreakup (3:18)
-04. Desperate (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB33419368225BDAF36DE31C1DDFB0B26164D728
 ```
 
 https://mybot314.ru/tekegram_catalog/

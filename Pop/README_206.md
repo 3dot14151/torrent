@@ -1,3 +1,61 @@
+###  Публикация: 1571605   (429755) от 23.08.2022
+
+Sandra - Reflections (2006) [OGG Vorbis|485 Kbps] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Around My Heart (2006)	3:23
+02. Stop For A Minute (2006)	3:45
+03. Hi! Hi! Hi! (2006)	4:17
+04. Maria Magdalena (2006)	3:57(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A170F20F3F96EB41D1D3F96F6666681377097A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571619   (429754) от 23.08.2022
+
+Sandra - The Art Of Love (2007) [OGG Vorbis|485 Kbps] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What D'Ya Think Of Me	4:34
+02. The Way I Am	3:31
+03. The Art Of Love	4:14
+04. What Is It About Me	3:54(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEC1D7487AA50727313AD41BD4EA2CC7A026034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571643   (429749) от 23.08.2022
 
 Sandra - Back To Life (2009) [OGG Vorbis|485 Kbps] <Synth-pop>
@@ -684,64 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2F91D1734260D66EF522E9456B0847A15B9F4AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324536   (425362) от 09.09.2019
-
-Liz Mitchell - Share The World (1999) ex. Boney M. [MP3|320 Kbps] <Reggae, Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Have A Party (4:53)
-02. Good Timing (3:59)
-03. Share The World (5:52)
-04. My Love's A Ship (3:47)(   Читать дальше...   )Жанр: Reggae, Pop, BalladПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32AA721243690BAE3279C045C2FFD994D34CDD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946716   (425052) от 14.10.2015
-
-Tom Jones - Long Lost Suitcase (2015) [FLAC|Lossless]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opportunity To Cry
-02. Honey, Honey (ft. Imelda May)
-03. Take My Love (I Want To Give It)
-04. Bring It On Home(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14811B5B2BA147E052984DCFA84654AD8767D89D
 ```
 
 https://mybot314.ru/tekegram_catalog/

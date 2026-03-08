@@ -1,3 +1,32 @@
+###  Публикация: 1116174   (824779) от 19.03.2017
+
+Richard Galliano - New Jazz Musette (2017) 2CD [FLAC|Lossless|WEB-DL|tracks] <Jazz, Accordion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. A French Touch
+02. Billie
+03. Coloriage(   Читать дальше...   )Жанр: Jazz, Accordion |Продолжительность: 01:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49D05B947200904B8004994F945EDB78ABC5EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007309   (823647) от 14.04.2016
 
 Elvin Jones - Coalition (1970) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -713,35 +742,6 @@ McCoy Tyner Quartet - Live At Yoshi's (2007) Half Note Records [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6A215700CE9A90B7652C062FD1B516520726D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116837   (821283) от 21.03.2017
-
-Antipop Consortium - Antipop Vs. Matthew Shipp (2003) [FLAC|Lossless|image + .cue] <Jazz, Free Jazz, Electronic>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Places I've Never Been (3:21)
-02. Staph (5:38)
-03. Slow Horn (3:09)
-04. A Knot In Your Bop (4:02)(   Читать дальше...   )Производство: Thirsty Ear – THI57120.2Жанр: Jazz, Free Jazz, Experimental, Electronic, Hip-HopПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383501450ACA0F669AE9A7E00069416A3DD5AF29
 ```
 
 https://mybot314.ru/tekegram_catalog/

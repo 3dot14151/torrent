@@ -1,3 +1,61 @@
+###  Публикация: 1835613   (251252) от 06.11.2025
+
+VA - Workout Remixes (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teddy Swims - Bad Dreams (HUGEL Remix) (3:02)
+02. Bennett - Vois sur ton chemin (Techno Mix) (2:58)
+03. David Guetta - Beautiful People (Extended) (4:20)
+04. Robin Schulz - World Gone Wild (feat. Sam Martin) (2:28)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061F12FBFF016A6A722314F819317401C8D2CCDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835353   (250962) от 06.11.2025
+
+AM 1984 - Best Of Remixes & Vocals (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juliette (Vocal Remix) (4:18)
+02. Miami Beach (Beach Vocal Remix) (4:14)
+03. From Dusk Till Dawn (Dusk Vocal Remix) (4:42)
+04. Testarossa (Rossa Vocal Remix) (4:36)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB914BCE4C25D993E2971615CCB914ABC1A05E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835337   (250957) от 06.11.2025
 
 VA - EDC Orlando 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -687,64 +745,6 @@ Eguana - Night Ambient (2023) [MP3|320 Kbps] <Electronic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A22E361C8D3B3D4D7E768948E16C90760ECDAB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620473   (249398) от 20.03.2023
-
-Schiller - Tag Und Nacht (2005) [FLAC|Lossless|tracks + .cue]<Trance, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willkommen 1:09
-02. Nachtflug 5:56
-03. Die Nacht... Du Bist Nicht Allein ( Mit Thomas D ) 4:26
-04. What's Coming ( Mit Jette Von Roth ) 4:26(   Читать дальше...   )Жанр: Trance, Downtempo, AmbientПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920E14705878D9AEB0A64DD3A06FF0E77A6B062D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620536   (249381) от 20.03.2023
-
-VA - Space Odyssey - Trip Three: New Year’s Voyage 2018 (2017) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Introduction - Pavel Kuznetsov
-02 - AlimkhanOV A. - Space Odyssey
-03 - Oblivion - Running On The Milky Way
-04 - Laserlight - Flight Of The Dream(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 02:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1FD22D79276FB03C0A72197848A2032D56A100
 ```
 
 https://mybot314.ru/tekegram_catalog/

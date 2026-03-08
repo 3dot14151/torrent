@@ -1,3 +1,29 @@
+###  Публикация: 284699   (936636) от 19.01.2011
+
+[EN] Крис Ри. Дорога в ад и обратно - Прощальный тур / Chris Rea.The Road to Hell and Back The - Farewell Tour (2006) HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Блюз , РокРежиссер: George ScottПеревод: ОригинальныйПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 626989   (936559) от 10.03.2013
 
 Def Leppard - Mirror Ball - Live & More (Bonus DVD) (2011) DVD5
@@ -684,35 +710,6 @@ Big Love Show 2016. Грандиозный концерт ко Дню всех �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D62E08EB4183360504AE23BA8EA346F15511502A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986955   (927318) от 16.02.2016
-
-VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция клипов в авто.Часть 2.0001_2 Brothers On The 4Th Floor - Heaven Is Here.avi
-0002_2 Brothers On The 4Th Floor - Making Of The Sun.avi
-0003_2 Brothers On The 4Th Floor - Never Alone.avi
-0004_2 Brothers On The 4th Floor - The Sun Will Be Shining.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 60:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78BC5B4D91FE1C8CFB5C28654ED39D39C5B52834
 ```
 
 https://mybot314.ru/tekegram_catalog/

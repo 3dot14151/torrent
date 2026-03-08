@@ -1,25 +1,22 @@
-###  Публикация: 1406593   (473204) от 04.09.2020
+###  Публикация: 939640   (473321) от 22.09.2015
 
-Футбол. Лига 1. Чемпионат Франции 2020-2021. 2-й тур. Страсбург — Ницца (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Кокоша – маленький дракон / Der kleine Drache Kokosnuss (2014) BDRemux 3D [AVC/MVC/H.264/1080p] [3D/2D]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Мультфильмы
+>>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473204.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чемпионат Франции по футболу (Лига 1) 2020-2021.
-29 августа 2020, суббота. 22:00 МСК
-2-й тур
-Страсбург (Страсбург) — Ницца (Ницца)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:14
+Дракончик Кокоша и его друг, дракончик Оскар, жили на Острове Драконов. Были они не такими, как все. Кокоша очень хотел стать летающим драконом, но летать у него не получалось. А Оскар, хищник по рождению, был убежденным вегетарианцем. Однажды вместе со своей подружкой, дикобразихой Матильдой, они решили отправиться в рискованное путешествие…Производство: Германия / Caligari Film- und Fernsehproduktions GmbH, Universum Film (UFA), Virgin Lands Animated Pictures, Zweites Deutsches Fernsehen (ZDF)Жанр: Мультфильм, ДетскийРежиссер: Хьюберт Вейланд, Нина ВелсАктеры: Сара Аллес,  Сабина Фалькенберг,  Гудо Хегель,  Каролин Кебекус,  Тобиас Лелле,  Фред Майре,  Клаудия Михельсен,  Роберт Мисслер,  Филин Питерс-Арнольдс,  Пьер Питерс-АрнольдсПеревод: Дублированный (iTunes)Язык субтитров: Немецкий (полные, 3д)Продолжительность: 01:22:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3ED57F99534D53593B633EB70AB16D22A307AFD
+magnet:?xt=urn:btih:6FDF5653819EA12FB06DC68ABEF4EE88A608537A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,199 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406591   (473203) от 04.09.2020
+###  Публикация: 1057760   (473305) от 29.09.2016
 
-Футбол. Лига 1. Чемпионат Франции 2020-2021. 2-й тур. Лион — Дижон (2020) IPTVRip [H.264/720p-LQ]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_473203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Франции по футболу (Лига 1) 2020-2021.
-28 августа 2020, пятница. 22:00 МСК
-2-й тур
-Лион (Лион) — Дижон (Дижон)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406594   (473202) от 04.09.2020
-
-Футбол. Лига 1. Чемпионат Франции 2020-2021. 2-й тур. Реймс — Лилль (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Франции по футболу (Лига 1) 2020-2021.
-30 августа 2020, воскресенье. 14:00 МСК
-2-й тур
-Реймс (Реймс) — Лилль (Лилль)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B627AC2C2E1796F8D997C6B977D0B32A54D6A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406710   (473201) от 04.09.2020
-
-Panzerfaust - Тhе Suns Оf Реrditiоn: Сhарtеr II  (2020) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promethean Fire (10:22)
-02. The Faustian Pact (08:10)
-03. Areopagitica (07:34)
-04. The Snare Of The Fowler (09:54)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0CE9D36A8D190EF84DF974AEE68D093A25329B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406782   (473200) от 04.09.2020
-
-Маша Вайсман | Кикерик у себя дома (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473200.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре внимания повести «Кикерик», как и в других книгах детского писателя Маши Вайсман, семья и дети. «Кикерик у себя дома» рассказывает о приключениях игрушки от имени самой игрушки. Все происходит в последние летние деньки перед тем, как хозяйка Кикерика, девочка Шаня пойдет в школу. Кикерик умеет читать мысли Шани, ее родителей, мысли забытых старых игрушек, (   Читать дальше...   )Жанр: Детская литература/Приключения/СказкаПродолжительность: 01:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49397806E3FC21E1B64E6B12249D6619515D6C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406494   (473199) от 04.09.2020
-
-Vane - The Nightmare (2020) [MP3|320 Kbps] <Melodic Death Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_473199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Row, Ye Scallywags! [03:32]
-02. The Cannibal [04:05]
-03. The Burial [01:43]
-04. Become the Nightmare [04:23](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:17:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406500   (473198) от 04.09.2020
-
-Omega Diatribe - Metanoia (2020) [MP3|320 Kbps] <Progressive Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can't Save Me [05:22]
-02. Grinder of Self [03:45]
-03. Parallel [05:13]
-04. Death Touch [04:23](   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B6CD21D10DCDB7E4B78715C1975F0A3499E5E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406620   (473197) от 04.09.2020
-
-Joe Williams, Carmen McRae & Friends - Blues In My Heart (1979) 2002, Past Perfect [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Bop, Swing>
+John Lewis & Hank Jones - An Evening with Two Grand Pianos (1979) 2000, Collectables[APE|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473197.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Suivez le Chef [3:08]
-02. Work Song [2:59]
-03. Blues in My Heart [3:11]
-04. Just the Way You Are [6:42](   Читать дальше...   )Жанр: Vocal Jazz, Bop, SwingПродолжительность: 01:02:16
+01.Stompinґ At The Savoy [05:12]
+ 02.Saint Louis Blues [06:19]
+ 03.Confirmation [05:08]
+ 04.Tears From The Children [05:31](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:44:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECA7CE5168F38D204879E1CFBE90DB8E22A17B54
+magnet:?xt=urn:btih:07B8C5D1DD46D313ED508F5FF5DECD909A43DA54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406595   (473196) от 04.09.2020
+###  Публикация: 1057846   (473304) от 29.09.2016
 
-Футбол. Лига 1. Чемпионат Франции 2020-2021. 2-й тур. Метц — Монако (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Masabumi Kikuchi - Susto +2 (1981) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 
->>Спорт и активный отдых
->>Футбол
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473196.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чемпионат Франции по футболу (Лига 1) 2020-2021.
-30 августа 2020, воскресенье. 16:00 МСК
-2-й тур
-Метц (Метц) — Монако (Монако)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:23
+01.Circle/Line [14:58]
+ 02.City Snow [07:42]
+ 03.Gumbo [10:15]
+ 04.New Native [15:01](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:55:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DD900CE6862C721829FD413E39C979078BD1650
+magnet:?xt=urn:btih:A8317FEC39E728BB31B16044C5BE37803E35430F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,28 +82,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406713   (473195) от 04.09.2020
+###  Публикация: 1057721   (473303) от 29.09.2016
 
-Christopher Kah - Les Fréquences Interdites (2020) HighWav [FLAC|Lossless|WEB-DL|tracks] <IDM, Breakbeat, Experimental>
+Dewa Budjana - Home (2005) Remastered, 2016 [FLAC|Lossless|tracks] <World Fusion,  Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473303.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Temple Island. 6:07
+2. On The Way Home. 6:09
+3. Los Paradise. 5:28
+4. Malacca Bay. 5:25(   Читать дальше...   )Жанр: World Fusion,  Jazz-RockПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C65B599457DB90B53792CCC5F75FE7B8930E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057499   (473302) от 29.09.2016
+
+Bakradze - Restless (2016) LP [MP3|320 Kbps] <Deep House>
 
 >>Electronic
->>IDM (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473195.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Enlightenment (04:32)
- 02. History (05:35)
- 03. Paternity (06:06)
- 04. Glorious Sun (03:12)(   Читать дальше...   )Жанр: IDM, Breakbeat, ExperimentalПродолжительность: 00:50:14
+01. Navel (2:44)
+02. An Evening With John (4:46)
+03. Order (5:37)
+04. Can (4:47)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:53:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93EF836C08AE8B3589861572B28ADC27E783DB70
+magnet:?xt=urn:btih:6A958C55B1B0F93AFCF90AAF4EBFE3EC310276FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,335 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406511   (473194) от 04.09.2020
+###  Публикация: 1057797   (473301) от 29.09.2016
 
-Predawn - Living Rock (2020) [MP3|320 Kbps] <Doom Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_473194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sojourner [04:03]
-02. Nightmare Suitor [04:23]
-03. El Jefe [03:24]
-04. Elusive Dreams [04:49](   Читать дальше...   )Жанр: Doom Metal
-Страна исполнителя (группы): SwedenПродолжительность: 00:30:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406653   (473193) от 04.09.2020
-
-Feeder 3 v3.7.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Feeder - это полнофункциональное приложение для создания, редактирования и публикации RSS-лент и подкастов iTunes. Создать новый канал используя шаблоны, скачать каналы с веб-сайта или импортировать существующие файлы. Редактирование содержания так же просто, как написание электронной почты, так что вы будете знать, инстинктивно, что делать.
-
-С Feeder вы можете опубликовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.09.2020Разработчик: ReinventedSoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E998F3C769A0E838BB0798776064410F7511107D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406701   (473192) от 04.09.2020
-
-Melokind - A Long Way (2020) Fuchsklang [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:24)
- 02. Die Blasenrechbande (05:57)
- 03. Opa Gäärd (07:04)
- 04. Kain (05:34)(   Читать дальше...   )Жанр: IDM, Experimental, AmbientПродолжительность: 01:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB7DEC747D6C4160E09AC89D605A28B9126BB53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406685   (473191) от 04.09.2020
-
-Формула 1. Сезон 2020. Этап 8. Гран-при Италии. Свободная практика 1 (04.09.2020) IPTV [H.264/1080i-LQ]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_473191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая свободная практика перед 8-м этапом чемпионата мира Формулы-1, Гран При Италии.Телекомпания: Матч АренаЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:39:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406388   (473190) от 04.09.2020
-
-Stephan Pie - Не паникуй! (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жить правильно [02:05]
-02. Факир [02:52]
-03. Кендрик Ламар (feat. CMH, mediynayablad & N.Masteroff) [02:25]
-04. Мой гэнг (feat. Slava Marlow) [03:25](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2162F802F49D14382E559DFCA36171DBA7397517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406739   (473189) от 04.09.2020
-
-Анна Никольская | Приключения чёрной таксы (2011) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия, Англия, Чехия, Дания…
-Полный приключений, загадок и тайн маршрут выпал на долю двух подруг — Лады Чернышёвой и Юльки Собакевич.
-Волею некой мадам Кортни русские школьницы превращаются в собак — таксу и левретку. Девочки решаются отыскать иностранную колдунью и отправляются вслед за ней в Лондон. Им предстоит пройти огонь, воду и медные трубы, прежде чем они (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982F448C502D922081211997A3B6E2262B99DDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406748   (473188) от 04.09.2020
-
-Анника Тор | Глубина моря. Книга 3 (2012) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473188.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Глубина моря» — третья часть тетралогии известной шведской писательницы Анники Тор. Основанная на реальных событиях повесть о маленьких беженках-еврейках, вывезенных в 1939 году из Австрии в Швецию, принесла автору несколько литературных наград и любовь читателей. Первые два романа — «Остров в море» и «Пруд Белых Лилий» — уже вышли в издательстве «Самокат», а заключительный (   Читать дальше...   )Жанр: Детская литература/Проза для детей/ПриключенияПеревод: Марина КонобееваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD8310CF48797C95CEA64DA2929226E159AA2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406754   (473187) от 04.09.2020
-
-Анника Тор | Открытое море. Книга 4 (2013) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Открытое море» - заключительная часть тетралогии шведской писательницы Анники Тор («Остров в море», «Пруд Белых Лилий», «Глубина моря»), в этой книге завершается история сестер Штеффи и Нелли, двух девочек из семьи австрийских евреев, вывезенных в Швецию в начале Второй мировой войны.
-
-Прошло четыре года с тех пор, как девочки оказались в Швеции. Наконец-то (   Читать дальше...   )Жанр: Детская литература/Проза для детей/ПриключенияПеревод: Марина КонобееваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED50719E1E16A60D978053A3526DEFD3A767D4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406746   (473186) от 04.09.2020
-
-Формула 1. Сезон 2020. Этап 8. Гран-при Италии. Свободная практика 2 (04.09.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_473186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Италии. Свободная практика 2
-Арена: Автодром Монца (Монца, Италия)
-04 сентября 2020, пятница. 16:00 МСКТелекомпания: Матч АренаЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:36:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057639   (473185) от 29.09.2016
-
-Вечерний Ургант (2016.09.28) SATRip (cезон 10, выпуск 18)
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_473185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057657   (473184) от 29.09.2016
-
-David Mark Pearce - Strаngе Аng3ls (2011) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ang3ls (Help Us)
-02. Alone I Cry
-03. Shelter Me From The Rain
-04. Tell Me Why(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FFBEB351DFF9EBC84BB42C785BE9E47CBFEE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057703   (473183) от 29.09.2016
-
-VA - The Best Of Miсrofunk [Compiled by Zebyte] (2016) [MP3|320-416 Kbps] <Miсrofunk>
+VA - Trance Flaming Beautiful (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Uplifting Trance, Energy, Progressive>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473183.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473301.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bop & Synkro - Telescope [04:57]
-02. Keiss - Clinic On Your Mine [05:42]
-03. Nuage - Mirrors [05:18]
-04. Rockwell - Everything (& U) [06:26](   Читать дальше...   )Жанр: MiсrofunkПродолжительность: 03:44:03
+01. Dreamy - Once a Lifetime  7:26
+02. Elite Electronic - Skydive (Original Mix)  6:21
+03. Radion6 - Another Dimension  2:55
+04. Alan Morris - Julie (Extended Mix)  6:36(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Uplifting Trance, Energy, ProgressiveПродолжительность: 02:53:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:891E5F35CFD3735C810FB6FE30EFB7EE27570C8B
+magnet:?xt=urn:btih:DB0FF502842E5BAF4EC94851CA1D2D00166FD983
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,21 +169,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057016   (473182) от 29.09.2016
+###  Публикация: 1057682   (473300) от 29.09.2016
 
-Coradia iLint - первый в мире поезд на водородных топливных элементах
+Ф. Чернышев | Веселые кузнецы (1927) [PDF]
 
->>
->>
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_473182.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В мире есть еще достаточно большое количество не электрифицированных железнодорожных магистралей, по которым курсируют поезда на дизельной тяге. Французская компания Alstom, в рамках проходившей в Берлине  выставки InnoTrans, представила более безвредную для окружающей среды альтернативу поездам на дизельной тяге. Этой альтернативой является электрический поезд Coradia (   Читать дальше...   )
+Иллюстрированное стихотворение для детей.Жанр: Стихи для детейПеревод: И. ХигерФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999A69BB652BBC985A6D0A9D34FB957EC6546D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057887   (473299) от 29.09.2016
+
+VA - Cocktail Lounge: Sexy Sounds for Lazy Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Mestizo Ensemble - Relax - Vonkerne Remix
+02. Bande-A-Part - Black Soul
+03. Berk & The Virtual Band - Suburbia - Happier Remix
+04. Selfish - Under Pressure(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656356D6D957AA813C7A23B92FC15730205B7045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057771   (473298) от 29.09.2016
+
+Logar's Diary - At The Crossroads (2016) [MP3|320 Kbps] <Power Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_473298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreshadow
+02. Dreaming Wide Awake
+03. Hunt
+04. Return To Bartertown(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:04
 
 ## Скачать торент
 ```bash
@@ -647,24 +253,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057832   (473181) от 29.09.2016
+###  Публикация: 1057620   (473297) от 29.09.2016
 
-Natаsha - Russian Revоlution (1993) [APE|Lossless|image + .cue] <Pop, Disco>
+Bielfield - Boom + Bust (2016) EP [MP3|320 Kbps] <Pop, Dance Pop, Electronic>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_473181.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_473297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Dark Eyes
-02 - Stop Messing Around
-03 - Dancin' All Through The Night
-04 - I'm Falling Apart(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:34:37
+01. Kings & Queens
+02. Blow My Mind
+03. Frequency
+04. Boom and Bust(   Читать дальше...   )Жанр: Pop, Dance Pop, ElectronicПродолжительность: 00:20:34
 
 ## Скачать торент
 ```bash
@@ -676,51 +282,443 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057692   (473180) от 29.09.2016
+###  Публикация: 1057736   (473296) от 29.09.2016
 
-Геннадий Малкин | Умнеть надо незаметно (2016) [MP3]
+Carmine & Vinnie Appice - Drum Wars Live! (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_473296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:40
+02. The Mob Rules 03:17
+03. Drum Wars 08:21
+04. Holy Diver 04:42(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057756   (473295) от 29.09.2016
+
+Cortez The Killer - Car Crash Music (2009) EP [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473295.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Make A Move (2:49)
+2. Take A Bow (2:49)
+3. Tomahawk (2:58)
+4. She's A Pro (2:18)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE4BEB1F8F1C98CBEE27423A83A15FD299A5CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057765   (473294) от 29.09.2016
+
+Stage - Stage (2003) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The World Has Come Between Us (4:04)
+02. An Angel Screams From Outer Space (3:34)
+03. I Will Be Something (4:00)
+04. I Don't Know (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B1B5993F9CA71A249F9DFF312DAB4CDB19F0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057487   (473293) от 29.09.2016
+
+Louis Van Dyke - Plays Lennon-McCartney (1970) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Crossover Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Golden Slumbers and Carry That Weight [05:36]
+ 02.She's Leaving Home [04:19]
+ 03.For No One [03:11]
+ 04.Eleanor Rigby [05:43](   Читать дальше...   )Жанр: Crossover Jazz, Jazz-PopПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9773EBCFFE3842D8F1A68C4824F05F272557256C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057848   (473292) от 29.09.2016
+
+Журнал | Цветники в саду №8 (август 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто действительно любит жизнь, для всех ценителей красоты и любителей цветов, будь то садоводы-любители или профессионалы, владельцы небольших участков или современных коттеджей. Журнал станет незаменимым помощником при проектировании и разработке цветников, поможет вам правильно подобрать цветы и растения для оформления участка и послужит основой (   Читать дальше...   )Жанр: Дача, цветоводство, ландшафтный дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28442F8C1F6125492E87A6B334D8C6BF897EDC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057837   (473291) от 29.09.2016
+
+Tsuyoshi Yamamoto Trio - Blues For Tee (1974) Remaster, 2014, Think! Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues for Tee [16:40]
+ 02.I'm Glad There Is You [07:03]
+ 03.Speed Ball Blues [11:36]
+ 04.Broadway [08:21]Жанр: Post-Bop, Piano JazzПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D9F706FF7D72BE2AD0ACE62F3E4B3FF664DA26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057888   (473290) от 29.09.2016
+
+Юхан Кундер | Волшебное зеркало и другие сказки (1983) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юхан Кундер (1852—1888) — эстонский писатель, критик и педагог. Родился в крестьянской семье. Окончил в 1875 году Тартускую учительскую семинарию. Он известен как составитель учебников по естествознанию и русскому языку. Автор пьес из народной жизни и собиратель эстонского фольклора.
+Ю. Кундер составил и опубликовал сборник «Эстонские сказки». На русском языке его (   Читать дальше...   )Жанр: Детская проза, сказкаПеревод: Леон ТоомФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B7CF622B39467F479F31BEF814A473C5D6F6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057827   (473289) от 29.09.2016
+
+Время покажет (29.09.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473289.jpg" />
+</div>
+
+
+###  Подробнее
+
+В студии программы «Время покажет» обсуждают то, что волнует каждого из нас, жителей России. В дискуссии принимают участие как эксперты – политики, политологи, журналисты, предприниматели, так и просто неравнодушные россияне.Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDF376820E2EF2A7835253C7C0097765454C616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057724   (473288) от 29.09.2016
+
+Rick Gibson Band - Junkyard Son (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cabin Fever   (06:21)
+02. Crossroad Blues   (04:16)
+03. Curtis Lee   (06:11)
+04. Dark Cloud Hangin   (03:30)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2AA6DCFC0FF7ACEE750291DCBDEEA9DA1A7F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057889   (473287) от 29.09.2016
+
+60 минут.  (29.09.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ток-шоу с Ольгой Скабеевой и Евгением Поповым. В новом социально-политическом ток-шоу каждый день ведущие и гости программы обсуждают главную тему текущего дня. В студию приглашаются политические и общественные деятели, эксперты по актуальной проблематике.Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9136B53B0996C8F3A27036502541115B4352438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057836   (473286) от 29.09.2016
+
+Журнал | Сваты на даче №5 (май 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473286.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98EF4BD8EEAFEFFB71C888E3A51D7F81D94772E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320247   (473277) от 17.08.2019
+
+VA - Go Sports! Vol. 1 Maximum Level Workout Sounds (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473277.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Syke'n'Sugarstarr feat. Alexandra Prince - Are You Watching Me (Danielle Diaz Remix) [04:15]
+02.Joseph Armani & Baxter - Happy People (Ridwello Remix) [02:37]
+03.Marc Kiss, Sawo & Crystal Rock - Feels Good (Original Radio Edit) [03:06](   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 2:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4CD308F8B8AB4E5D0FA96E08E3983030D6B62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319307   (473276) от 17.08.2019
+
+Chill Out Lounge Cafe Essentials, Chilled Ibiza - Mysterious Sexy Chillout (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473276.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.#Chill Out Mix 2019 (6:05)
+2.Sexy Chill Out Music (5:47)
+3.Chill Out Background Music for Sex (6:48)
+4.Deep Love Lounge (5:47)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8526A23375D801409222D21F0DC5FA933F941C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320304   (473275) от 17.08.2019
+
+JetBrains Rider 2019.2 [En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_473275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rider позволяет разрабатывать приложения для .NET Framework, .NET Core и Mono, в том числе .NET-сервисы и библиотеки, игры на движке Unity, кросс-платформенные мобильные Xamarin-приложения, веб-приложения ASP.NET и ASP.NET Core.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320270   (473274) от 17.08.2019
+
+Gym Chillout Music Zone - Powerful Gym Beats (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473274.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Chill House 2018 (3:46)
+2.Shades of Club (3:40)
+3.Hot Touch (3:44)
+4.Beach Party Groove (3:40)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3597C24FBFB95994229FD673BB34829F5EA35E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320271   (473272) от 17.08.2019
+
+Дэниэл Кахелин | Светлая книга: Ученик паладина (2019) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473180.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Афористы – удивительный народ! В то время как многие писатели на протяжении всей истории литературы ищут (и порой небезуспешно) признания у человечества через создание огромных романов, эпопей и поэм, афористы пытаются достигнуть той же цели посредством малюсеньких предложений, которые они называют то афоризмами, то фразами, то лаконизмами, полагая (и тоже небезосновательно), (   Читать дальше...   )Жанр: АфоризмыПродолжительность: 04:19:18
+Когда сердце наполнено Светом, сложно принять необходимость Тьмы. Юному ученику паладина предстоит пройти немало испытаний, прежде чем он сумеет найти собственный путь. Таинственный темный культ, ищущий жертву, старый отшельник и лукавый маг, стремящийся к власти, хозяйка таверны на стыке времен, вампир на службе у Смерти… Кто из них враг, а кто друг, и что вообще (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 05:39:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45069556091C4C2E84C61F2A150E422D7760317B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057686   (473179) от 29.09.2016
-
-Наноспутники CubeSat с двигателями на воде впервые отправятся на орбиту вокруг Луны
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_473179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда инженеров, преподавателей и студентов из Корнуэльского университета (Cornell University) занимается реализацией проекта под названием Cislunar Explorers, благодаря которому они надеются одержать победу в конкурсе НАСА Cube Quest Challenge. Конечной целью этого конкурса является разработка недорогой и простой конструкции наноспутников стандарта CubeSat, изготовленных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:B9139212F5E8601D8DC3C8B1718E5B9E2DB84A70
 ```
 
 https://mybot314.ru/tekegram_catalog/

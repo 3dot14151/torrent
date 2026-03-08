@@ -1,3 +1,195 @@
+###  Публикация: 1032207   (645947) от 07.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 72 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricanes - Only One Night ( 1988 )
+02. Seal - Kiss From A Rose ( 1994 )
+03. Night Society - Hold Me Tight ( 1985 )
+04. E-Lusion - Use Your Love ( 1998 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23025483C437DCF4E6EE3288A27D8929A8A3E5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032240   (645944) от 07.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 79 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gazebo - Telephone Mama ( 1984 )
+02. Primero - On Que Calor ( 1988 )
+03. Red Face - Down On The Corner ( Long Version 1980 )
+04. Phaeax - Talk About ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB0BB63D5B51CF47837FB95FFC902C2D1024A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032308   (645843) от 07.07.2016
+
+VA - Пляжный Союз (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рекиречи - Телепортанец
+02. Elvira T - Я Еду Домой
+03. Italobrothers - Sleep When Were Dead
+04. Nickelback - Million Miles An Hour(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7976D90384BD531E27EC103A0168CEEEEB5D39C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517855   (645830) от 02.07.2012
+
+VA - Dance Club Party Vol.3 (2012) [MP3|256 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645830.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nickelback - If Today Was Your Last Day (Dj Fisun Remix) (3:23)
+2. Dj Kez - Bat Outta Hell (Original Mix) (5:31)
+3. Oliver Koletzki feat. Fran - Sunset (Original Mix) (3:44)
+4. Dario Nunez & Javi Colina - Andale (Original Mix) (5:20)
+5. 2345 & 5Ivesta Family - Я Буду (DJ Fisun remix one) (2:38)
+6. Jdg & Jayyfresh - Check My Swagger (Original Mix) (6:32)
+7. Flashtronica - Sunshine People (Original Mix) (4:06)
+8. Sunrise Inc - Mysterious Girl (Addictive Elements Remix) (5:18)
+9. DJ Mexx feat. Вика Гранд - White Night (Russian Vocal Version) (4:41)
+10. Almyron feat. Jones Bonz - Real Lover (Original Mix) (5:16)Жанр: ClubПродолжительность: 09:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8B005CC4E5FFAA767D612A93273F1ED9CCDB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517958   (645829) от 02.07.2012
+
+VA - Dance Club Party Vol.4 (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645829.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sway - Level Up (Cahill Extended Mix) (5:20)
+2. Shock - La La La (Dj HoUseMoUse 2012 Extended Rework) (5:20)
+3. Nelly Furtado - Big Hoops (Bigger The Better) (Wideboys Remix) (6:29)
+4. Syntheticsax & DJ V1t & DJ Ramis vs. Dev - In The Dark (DJ Rigo Bootleg mix) (5:17)
+5. Antoine Clamaran, David Esse & Grace Kim - Eclypse (Original Mix) (6:45)
+6. Cicada ft. Third Party - Feel (Original Mix) (5:54)
+7. Bjornberg - Libella (Original Mix) (6:06)
+8. Fly Project - Back In My Life (Fly Records Extended) (5:15)
+9. Tom Novy & Veralovesmusic - The Right Time (Extended Club Mix) (6:45)
+10. Above & Beyond - Love is Not Enough (Club Mix) (7:43)Жанр: Dance, ClubПродолжительность: 09:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D14C84FCB287415B46AA012A2A8791A7463076D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517869   (645828) от 02.07.2012
+
+VA - Попсовый Драйв Летний (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645828.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Leonid Rudenko Feat. Alexander - Stranger (3:16)
+2. The Cats - Пополам (4:02)
+3. Jennifer Lopez Feat. Pitbull - Dance Again (3:57)
+4. Kazaky - Love (Dj Sebastien And Dj Vengerov Remix) (3:08)
+5. Dj Onegin - Пуля (3:27)
+6. Denis Drozdov Feat. Slava Inside - Мы Потанцуем С Тобой (Mike Energy Remix) (5:16)
+7. Palyur - Наше Лето (Радиоверсия) (4:15)
+8. Кристина Орбакайте И Тоmas Nevergreen - Тайна Без Тайн (3:46)
+9. Electric Giant Beatz Feat Michelle Williams - On The Run (Soul Seekerz Radio Edit) (3:57)
+10. Alena Roxis - Я Буду Ждать Тебя (3:32)Жанр: PopПродолжительность: 06:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8762031193D9C7011F4D9DEB4D31D4EA9AA5F2E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905453   (645777) от 08.06.2015
 
 VA - КаZантип Z005 Progressive Trance (2005) [MP3|128-224 кб/с]<Progressive Trance>
@@ -637,197 +829,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3400119998DD53D446C2BA2F24E29233132178BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906184   (645120) от 08.06.2015
-
-Вольфганг Амадей Моцарт - Музыка Моцарта для сна (2000) [MP3|320 кб/с]<Класика>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Регулярно слушая музыку Моцарта для сна, можно без особых усилий вернуть хорошее самочувствие и отличное настроение. Это доказано многочисленными экспериментами.
-Произведения выдающегося композитора можно слушать как перед сном, так и во время него. Настроив проигрыватель на оптимальную громкость, желательно «отключить» все мысли и постараться на время забыть обо (   Читать дальше...   )1. Don Giovanni, K. 527 Deh! Vienialla Finestra.
-2. Piano Sonata No. 11 in a Major, K. 331 Andante Grandioso.
-3. String Quartet No. 10 in C Major, K. 170 Adagio.
-4. Symphony No. 11 in D Major, K. 84 Andante.(   Читать дальше...   )Жанр: КласикаПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6B7D96531EEEB72179FAB03535211ACC434E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906193   (645053) от 08.06.2015
-
-Вольфганг Амадей Моцарт - Музыка Моцарта для расслабления (2000) [MP3|320 кб/с]<Класика>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Произведения настолько благотворно влияют на умственное, физическое и психическое состояние, что даже выделяют особый «эффект Моцарта». Он заключается в том, что прослушивание музыки композитора улучшает умственную деятельность человека.
-Кроме этого, используется музыка Моцарта для расслабления. Ее рекомендуют слушать как взрослым, так и детям. Первые с ее помощью (   Читать дальше...   )1. Voi Che Sapete from the Marriage of Figaromovement, Andantino
-2. Andante, Cassation, K. 63
-3. Andante, Symphony No. 6, K. 43
-4. Andantino Grazioso, Symphony No. 18, K. 130(   Читать дальше...   )Жанр: КласикаПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6550B427ADBD645025EFA2DCE46CFDEA47AD8367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292499   (644991) от 30.03.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 29.03.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ava Max - Sweet But Psycho
-02.  Lil Peep & XXXTentacion  -  Falling Down
-03.  Ellie Goulding feat. Diplo & Swae Lee - Close To Me
-04.  Zivert - Life(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161B06793B00FBD239E8D45CD46DE7A49B11A9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541677   (644910) от 03.04.2022
-
-VA - Record Super Chart 02.04.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alis Shuka - Not About Us (2:09)
-02. Minelli - Nothing Hurts (Yves V Remix) (2:09)
-03. OWNBOSS, Sevek - Move Your Body (2:37)
-04. Shouse - Wont Forget You (Edit) (3:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8FD5300C9FC8B65323F8B2C57AA246B1A9C4E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541431   (644901) от 03.04.2022
-
-VA - Music News vol.177 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644901.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Глюкоза - Да-Ди-Дам (02:50)
- 002. Aitana - En El Coche (02:05)
- 003. ALE - Spune Tu (Festum Music Remix) (03:55)
- 004. A Boogie Wit Da Hoodie feat. Ella Bands - Playa (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85F6903053AA7481C12AA5577433D70BC41D7A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517962   (644820) от 02.07.2012
-
-VA - MAXI. Лучшие медленные хиты 3CD (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Rea - As Long As I Have Your Love
-02. Avril Lavigne - I'm With You
-03. Whitney Houston - I Will Always Love You
-04. The Style Council - You're The Best Thing
-05. Sandra - Loreen
-06. Modern Talking - Cinderella Girl
-07. Metisse - Boom Boom Ba
-08. Jason Donovan - Sealed With A Kiss
-09. Falco - Out Of The Dark
-10. Cranberies - ZombieЖанр: PopПродолжительность: 05:01:28
-
-01. HIM - In Joy And Sorrow
-02. Groove Coverage - God Is A Girl
-03. Another Level - From The Heart
-04. All-4-One - I Swear
-05. The Eagles - Love Will Keep Us Alive
-06. Scorpions - Daddy's Girl
-07. Ronan Keating - Brighter Days
-08. Pink - Family Portrait(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4753ECCEB95CE2A0924CDE9034BEAFC3F4A1CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

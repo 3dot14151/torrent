@@ -1,3 +1,29 @@
+###  Публикация: 1355376   (983458) от 26.01.2020
+
+Icecream Screen Recorder PRO 6.05 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5054D42E767284F97966504D6AEE3EDF9FD658B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355535   (983456) от 26.01.2020
 
 WRC: Rallye Monte-Carlo, Power Stage (26.01.2020) WEB-DL [H.264/720p-LQ]
@@ -664,40 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E43F99E457A6BDB7D24A2AB9385547DE5100FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613568   (983158) от 04.02.2013
-
-Donald Fagen - Sunken Condos (2012) [FLAC 2.0 96/24|image (vinylRip)]<Contemporary Pop/Rock, Jazz-Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slinky Thing (5:11)
-02. I'm Not The Same Without You (4:30)
-03. Memorabilia (4:11)
-04. Weather In My Head (5:27)
-05. The New Breed (4:34)
-06. Out Of The Ghetto (4:51)
-07. Miss Marlene (4:42)
-08. Good Stuff (4:53)
-09. Planet D'Rhonda (5:33)Жанр: Contemporary Pop/Rock, Jazz-RockПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7C89BD6E7ADAF620744F6C4F4C7561DFF3112C
 ```
 
 https://mybot314.ru/tekegram_catalog/

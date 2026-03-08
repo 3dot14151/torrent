@@ -1,3 +1,189 @@
+###  Публикация: 1543796   (625410) от 13.04.2022
+
+Buck 69 - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead End Road
+02. All Night Long
+03. Sometimes
+04. When She Whispers Your Name(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF452CE18A5C86E01401D11AF27260AF6A8676B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909814   (625395) от 18.06.2015
+
+VA - Новинки Русского Рока. Выпуск 1 (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. НАИВ - На пределе
+02. Сансара - Юноша молчит
+03. НОГУ СВЕЛО! - In100gramm
+04. ВЛОМ! - Соцсети(   Читать дальше...   )Жанр: RockПродолжительность: 02:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4043FE91F788E4ECF0E82DD7173E17C3BD16B328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909874   (625288) от 18.06.2015
+
+Жанна Фриске - Лучшие Песни (2015) [MP3|320 кб/с]<Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанна Фриске российская эстрадная певица, телеведущая, киноактриса. Солистка группы «Блестящие» (1996—2003). Сольная карьера исполнительницы продолжалась 10 лет — с 2003 по 2013 год. Полтора последних года Жанна боролась с непобедимой болезнью. Однако она не сдалась и не сломалась. Она продолжала бороться, вселяя надежду в сердца тех, кто был так же на грани жизни (   Читать дальше...   )01. Где-то лето
+02. Малинки
+03. Жанна Фриске
+04. Мама Мария(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C1B558755568EF7392F49340F124858F72BFE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908299   (625285) от 18.06.2015
+
+Владимир Ждамиров - Голос Русского Шансона (2015) [MP3|320 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экс лидер группы Бутырка Владимир Ждамиров. Сейчас очень много поклонников ждут именно пластинки от Ждамирова, так как он владеет очень хорошим вокалом и опытный в своем деле.CD1
+01. А зима не лето
+02. Академия
+03. Без баб и водки(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370BE932DCA1218AD6BF95BDE2B29A8AC0E23118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521376   (625232) от 12.07.2012
+
+VA - The Dance Cube XLIX 4CD (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625232.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1. Время звучания: 01:14:10
+01 - Kaimo Kerge - Iremember (Original Mix)
+02 - Oliver V. - She Love the Rainfall (Original Mix)
+03 - Stephen Kirkwood - Forever After Original Mix
+04 - Tangle & Mateusz - Avalon (Original Mix)
+05 - MaRLo - Underneath (Original Mix)
+06 - Miroslav Vrlik - Outside (Purple Stories Remix)
+07 - Tellur & Sound Quelle - Our Pad (Original Mix)
+08 - Cold Blue - The Pessimist (Original Mix)
+09 - Lange & Gareth Emery - This Is All Out..Heatbeat vs Andy Moor Remix..Lange Mashup(   Читать дальше...   )Жанр: TranceПродолжительность: 04:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496E7BE20FC4D733F75C0A1E4AD6431A8D863E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521324   (625143) от 12.07.2012
+
+VA - Bass Fusion 100 Percent Hardcore (2012) [MP3|320 кб/с]<Hardcore, Hardstyle>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Neophyte & Stunned Guys - Army of Hardcore 05:17
+02.Re-Style - Get it Crackin 05:56
+03.Angerfist - The Dephts of Despair 05:07
+04.Roland, Sherman - Jonge Edammer 04:08
+05.Critical Mass - Burning Love (the Viper Remix) 04:54
+06.Nosferatu & Evil Activities - Sick of it All 05:01
+07.Art of Fighters - Artwork (Tha Playah Remix) 06:39
+08.Angerfist & Outblast Feat Mc Tha Watcher - The Voice of Mayhem 06:09
+09.DJ Lancinhouse & the Stunned Guys - Atmosfera 05:44
+10.Tha Playah - On the Edge 08:16(   Читать дальше...   )Жанр: Hardcore, HardstyleПродолжительность: 03:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C68FFFE58C6C2144FFB8FF3FB5C3EB7ABD28BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 802975   (624959) от 07.07.2014
 
 VA - Lounge At The Seashore 15 (2014) [MP3|320 кб/с]<Lounge, Chill Out>
@@ -601,186 +787,6 @@ VA - Top 55 Tracks For Cars 11 (2012) [MP3|320 кб/с]<Electronic, Club, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97CC66B07F43F953FD030849C4311A3420AD194D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145040   (622981) от 24.06.2017
-
-VA - Дискотека 2017 Dance Club Vol.165 от NNNB (2017) [MP3|320 Kbps] <Pop, House, Trance, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622981.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Dimaro - Mystery (Extended Mix)  3:55
-002.  DJ Khaled & Rihanna feat. Bryson Tiller - Wild Thoughts  3:25
-003.  DJ Nil - Status Pam Pam  4:40
-004.  Ruslan Radridges & Cari - Follow The Sun (Extended Mix)  4:25(   Читать дальше...   )Жанр: Pop, House, Trance, Club, DanceПродолжительность: 09:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485B16AA5B65062E18891C776B68DD1335EFC460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522410   (622864) от 13.07.2012
-
-VA - Золотой Курортный Хит Сезона (2012) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Holiday & Mike Candys - Children (Radio Edit)
-02. Elena Gheorghe - Your Captain Tonight (Radio Edit)
-03. Niels Van Gogh Feat. Emilio Verdez - Beatrocker (Radio Version)
-04. Sebo Reed - Korobiki (Bodybangers Remix Edit)
-05. Kirsty - Twilight (Armin Van Buuren Remix Edit)
-06. Adrian Lux - Angels (Original Mix)
-07. Daniel Hoppe - Loca (Original Dub)
-08. G & G Feat Jonny Rose & Chris Reeder - All Falls Down (Radio Edit)
-09. Klaas Feat. Carlprit - Do What You Do (Radio Edit)
-10. Flo Rida Feat. Sia - Wild Ones(   Читать дальше...   )Жанр: РорПродолжительность: 05:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A57CBA922182BF7D63A828CB3408B76F97920F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036019   (622826) от 19.07.2016
-
-VA - Ham!d Production June (2016) [MP3|320 Kbps] <House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622826.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker -  Faded (Markus Schulz Remix) 6:36
-002. Paul van Dyk & Chris Montana feat. Chris Bekker -  Berlinition (PvD Club Mix) 6:38
-003. Dimitri Vegas & Like Mike -  Stay A While (Extended Mix) 5:02
-004. MATTN & 2 Faced Funks -  How We Roll (Original Mix) 4:15(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 07:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660F365451BC09E3467443801191FC36C804E09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229792   (622784) от 08.06.2018
-
-VA - Empire Records - Stadium 3 (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonas Blue feat. William Singe - Mama (Kevu Festival Bootleg)
-02. Jon Thomas, DJ Backslash, Johnny Catch - Never Been Honest
-03. Jon Bellion - iRobot (Landis Remix)
-04. Newclaess - Be The One(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F65B6A8B8EF50E285247AE94669C89D4A554F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036195   (622761) от 19.07.2016
-
-VA - Hot Summer Workout Hits (2016) [MP3|320 Kbps] <House,Disco,Electronica>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622761.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yall Feat Gabriela Richardson - Hundred Miles (Tpaul Rmx) 04:29
-002. Vndy Vndy Feat. Tiana - Disco Sandwich (My Love) (Deekey & Stellix Remix) 04:48
-003. Twenty One Pilots Vs. Dj Dnk - Stressed Out (Artem Night Mash Up) 04:28
-004. Twenty One Pilots Vs. Denis First - Stressed Out (Artem Spy Mash Up) 03:16(   Читать дальше...   )Жанр: House,Disco,ElectronicaПродолжительность: 09:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031BB4F451F38DBD9178BB46FCABEA4759AAC588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035925   (622750) от 19.07.2016
-
-VA - Ultra Festival Live Life Anthems (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622750.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. StadiumX -  Mombasa (Radio Edit) 3:17
-002. DJ Tafta & Miss Effe -  My Flower (Extended Version) 4:47
-003. R3HAB & Quintino -  Freak (VIP Remix) 4:12
-004. Eddy.T -  Funky Shit (Original Mix) 3:50(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 11:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3598BB084AAD8902935F45B6478214416DF48790
 ```
 
 https://mybot314.ru/tekegram_catalog/

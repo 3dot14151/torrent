@@ -1,3 +1,177 @@
+###  Публикация: 1523324   (750985) от 11.01.2022
+
+VA - Music 80s - Collection от ALEXnROCK часть 1 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудио-версия видео-сборника. Позитивная и добрая музыка. Все вспомнят себя много лет назад, кто-то вспомнит детство, кто-то юность и первую любовь, те кто постарше - молодость. Кружитесь в красивом танце с памятью. Это 1-я часть. Аудио-версия немного отличается от видео-версии трек-листом. Да пребудет с нами энергия музыки! Всё лучшее для вас. ALEXnROCK01. C.C. Catch — Strangers By Night
+02. Kaoma — Lambada
+03. A-ha — Take On Me
+04. Samantha Fox — Touch Me (I Want Your Body)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A49E7AE778287D128FC5F93B8463213A3BC7B1C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019532   (750340) от 23.05.2016
+
+VA - Incepto Music. 100Th Release (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stephen J. Kroos - Numb (SureICan Remix)
+02. Dimix - Turnover (Bicycle Corporation Remix)
+03. Monojoke - Deceitful (Forerunners Remix)
+04. 2NNEL - You (Katrin Souza Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF3737F05EE2987EFDB72342DC585773655EF40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019407   (750339) от 23.05.2016
+
+VA - Pacific Progressive Trance (2016) [MP3|320 кб/с] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750339.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dennis Sheperd - Dive (Radio Edit) 3:48
+002. TrancEye - Aviator 7:05
+003. Yuri Kane - Running Wild (Radio Edit) 3:35
+004. Kaimo K - Afraid (Radio Edit) 4:16(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2EB7C7C0C13ADC03D7C08C89EED9202C6D104D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019522   (750337) от 23.05.2016
+
+VA - Ultimate Guide to Chillout: The Only Chillout Album Youll Ever Need (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clelia Felix - It's a New Beginning
+02. Debarda - French Touch
+03. Clelia Felix - Baby It's Alright
+04. Zena - Mon amie la rose - Bellydance Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB40B49B2BAE4DD7D5B9A873FF1C7291098820C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019417   (750335) от 23.05.2016
+
+VA - The Best of Trance 46 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andres Sanchez - El Gordo (Original Mix) 7:43
+02. M.I.K.E. Push pres. Plastic Boy - Now and Forever (Extended Mix) 6:38
+03. Omar Sherif & Jonathan Carvaja - Helia (Extended Mix) 6:48
+04. Miroslav Vrlik - The Intruders (Original Mix) 6:14(   Читать дальше...   )Жанр: TranceПродолжительность: 03:31:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328C204AC0A336568D0C60509E3C9ABC66D03C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019471   (750271) от 23.05.2016
+
+VA - Summer Beach Lounge Affair (Sexy Deluxe Relaxation Cafe Music) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pas de Regret (Paris to Marseille Chillout Mix) - Maggie Charming
+02. The Island of Dreams (Miami Breeze Mix) - Midday Dreams
+03. Get Up to Lay Down (Keys and Birds Mix) - Lounge People
+04. I Love It (That Way)Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6063F0BC683D5054D2D612D1E923890B06099026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019396   (750269) от 23.05.2016
 
 VA - Trance Massive 100 Tracks May (2016) [MP3|320 кб/с] <Trance, Uplifting Trance. Progressive>
@@ -571,180 +745,6 @@ VA - Trance Essentials 100 Tracks May 2016 Vol.02 (2016) [MP3|320 кб/с] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31ACDAA3DF3702EC88243179384844134FD33A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019647   (748576) от 24.05.2016
-
-VA - Recharge: The Chillout Album (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Classical Sculptures - American Beauty Theme - Recharge Mix
-02. Classical Sculptures - Nimrod - Recharge Mix
-03. Mellow Magic - Fragile - Recharge Mix
-04. Mellow Magic - Cavatina - Recharge Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7EBBCD2282A0E4CE00D2039DD62A41871A1D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019654   (748572) от 24.05.2016
-
-VA - Teleport Trance - Uplifting And Progressive Mix May (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748572.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ReOrder - Sky Harbour (Allen Watts Remix) 3:15
-002. Kyau & Albert - About The Sun 3:06
-003. Paul Oakenfold - Shanghai Baby (Joyriders Remix) 6:01
-004. Hazem Beltagui - Learn To Forgive (Farhad Mahdavi Edit) 4:09(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, ProgressiveПродолжительность: 07:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6B0B941FC8E44A19A93F6297CBC9B56FFC5BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019718   (748564) от 24.05.2016
-
-VA - Reading guitar and piano music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. i95highway - Ingenious - Guitar Version
-02. Adam Morrison - Share the Way
-03. Dominik Anderson - Seductive
-04. Coldjade - Shelter Shells(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA83F664B2EFB13A1E499CD221BF15C0EF1C16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019897   (748558) от 24.05.2016
-
-VA - Килобитный взрыв хитов - 5 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748558.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Glory - Бог С Тобой
-002. Will.I.Am - Boys & Girls
-003. Наталия Власова - Розовая Нежность
-004. Rita Ora - Poison(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25875A5EA1089E078BBC1AA7DFC31D9A17AE40FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281891   (748509) от 10.02.2019
-
-VA - Psychedelic Electronic Party: Trance Set (2019) [MP3|320 Kbps] <Psychedelic, Psy Trance, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atomo - Vaporia
-02. Flowwolf - Alpha Centauri
-03. Jacob - Where All Begins
-04. Magnosis - Heat Seeker(   Читать дальше...   )Жанр: Psychedelic, Psy Trance, ElectronicПродолжительность: 08:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A068A239FC273F5ED6D6FAA93BB8A19795D7C922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019617   (748461) от 24.05.2016
-
-VA - Tea for Two: Cafe Jazz (2016) [MP3|320 кб/с] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oscar Peterson - Tea For Two
-02. Lester Young - A Foggy Day
-03. George Shearing - Jumpin' With Symphony Sid
-04. Lester Young - Just You, Just Me(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEE17BBFC8A041D28ACBA26DD9CAC138D980CF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

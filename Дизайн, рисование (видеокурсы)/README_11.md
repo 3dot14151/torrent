@@ -1,3 +1,32 @@
+###  Публикация: 1466200   (1017812) от 03.05.2021
+
+CG Fast Track | Создание автомобиля в Blender 2.90 части 1-3 / Blender Car Series Vol. 1-3 (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия из трёх курсов по созданию автомобиля в Blender 2.90:
+Blender Car Series Vol 1: Modeling - Моделирование
+Blender Car Series Vol 2: Rendering - Рендеринг
+Blender Car Series Vol 3: Cinematic Studio Lighting - Кинематографическое студийное освещениеПроизводство: CG Fast TrackЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 14:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31166538A53B80F07CEE321A39454C3FCCB2167F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468917   (1016820) от 09.05.2021
 
 YanSculpts | Анатомия и форма в Blender 2.91 - Курс по скульптингу / Anatomy and Form in Blender 2.91 - Sculpting Course (2021) PCRec [EN]
@@ -655,33 +684,6 @@ Anthony Eftekhari | Concept Art for Production (2016) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DCC00EFFC2E0CD75F573ACBE1AAC7B33DAEC11E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472149   (1014424) от 24.05.2021
-
-Kurt Papstein | Character Creation in ZBrush (2014) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный курс по авторскому процессу создания персонажей и различных существ от Курта Папштайна.
-Более 5 часов комментируемого видеоматериала с подробным описанием пайплайна от начального этапа до завершения работы.Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 07:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020FA2BA1F23C10B297962D56D5D418124B52C55
 ```
 
 https://mybot314.ru/tekegram_catalog/

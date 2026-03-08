@@ -1,29 +1,3 @@
-###  Публикация: 1045641   (557487) от 24.08.2016
-
-Проекты - VideoHive - Dynamic Fashion Pack - 15351970 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Fashion Pack - модный промо-проект. Походит для создания презентации, динамического слайд-шоу, видео-открывалки и т.д.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732EB86A30DCD08E66A875A68414C869BD06A603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924724   (557472) от 04.08.2015
 
 Проекты - VideoHive - Triangles [AEP]
@@ -678,6 +652,32 @@ Cinematic History Opener - Документальное историческое
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82B21C8FF926630AEB749ACBEE742A73F06E9979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306779   (555404) от 06.06.2019
+
+Проекты - VideoHive - Butterfly Logo Opener 4K - 19556474 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Butterfly Logo Opener - это прекрасный способ продемонстрировать Ваш логотип компании или бренда, или создать небольшую но интересную и уникальную презентацию.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF482465B19514329C003B1C3B10BC6BEA57FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

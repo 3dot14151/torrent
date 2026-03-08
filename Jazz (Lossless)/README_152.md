@@ -1,3 +1,32 @@
+###  Публикация: 1047919   (548500) от 31.08.2016
+
+Johnny "Hammond" Smith - Talk That Talk (1960) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Talk That Talk [05:12]
+ 02.An Affair To Remember [02:36]
+ 03.The End Of A Love Affair [05:22]
+ 04.Minors Allowed [05:46](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFF27108E63C476A12957FA810A39E8975F31DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047970   (548353) от 31.08.2016
 
 Woody Herman - The Thundering Herds 1945-1947 (1988) [WavPack|Lossless|image + .cue] <Jazz, Big Band>
@@ -719,35 +748,6 @@ John Scofield - Still Warm (1986) Gramavision[FLAC|Lossless|tracks + .cue] <Post
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3277E3FF2F3D588343AC1C5F250083A60457EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238822   (544661) от 01.08.2018
-
-Michael Dease - Reaching Out (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something in Common [5:04]
-02. Live and Let Die [3:56]
-03. Morning Shade [5:56]
-04. Tipping Point [5:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15F828F604FBBDD18AAECCD4E467F1868DFDAFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

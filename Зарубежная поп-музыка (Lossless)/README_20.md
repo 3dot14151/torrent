@@ -1,3 +1,32 @@
+###  Публикация: 1112190   (844226) от 07.03.2017
+
+Demis Roussos - Complete 28 Original Albums (2016) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844226.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - On the Greek Side Of Mind (1971)
+CD02 - Forever And Ever (1973)
+CD03 - My Only Fascination (1974)
+CD04 - Auf Wiedersehen (1974)Жанр: PopПродолжительность: 27:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B3383117064A315938E15B1CCA22198568B95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112474   (843306) от 08.03.2017
 
 Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
@@ -714,35 +743,6 @@ VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0035ED37B91C3416FF1B0D564A8509D155D41B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380697   (831666) от 04.05.2020
-
-Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Crash My Car [0:03:53.70]
-02. Rich People [0:04:32.20]
-03. Empty Rooms [0:04:23.55]
-04. Eyes Of Africa [0:04:44.50](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE003B9FEFA4880DE95866970869273E540F6AE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

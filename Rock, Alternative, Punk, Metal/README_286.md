@@ -1,32 +1,3 @@
-###  Публикация: 1011416   (797032) от 27.04.2016
-
-Skyforest - Unity (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797032.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Graceful Spirit
-2. Cosmic Drifter
-3. Autumnal Embrace
-4. Fading Glow(   Читать дальше...   )Жанр: Atmospheric Black Metal, Post-Black MetalПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57422A561DB70D73F7486780C5CCF64977B1D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199947   (797001) от 19.01.2018
 
 Exact Division - Be Fair If You Can (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -744,6 +715,35 @@ October Tide - Winged Waltz (2016) [FLAC|Lossless|image + .cue] <Melodic Doom, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0280963A74A3E328CAFCF818EB86B3E8B7528936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011364   (796394) от 28.04.2016
+
+Bombus - Repeat Until Death (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes on the Price    04:11
+02. Rust    04:04
+03. Deadweight    04:11
+04. Horde of Flies    03:38(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED159A3A5D00BABD90FF630CBB52096158EA317
 ```
 
 https://mybot314.ru/tekegram_catalog/

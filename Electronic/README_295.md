@@ -1,3 +1,65 @@
+###  Публикация: 1320649   (465403) от 21.08.2019
+
+Chillout Sound Festival - Gym Center Pilates Mat Exercises (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465403.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Best Pilates Exercises (3:43)
+2.Classical Pilates Mat Workout (3:43)
+3.Chillax Fitness (3:43)
+4.Fundamental Warm-Up (3:42)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12D5F701CD5744875C1A82DD9724A9A5E88817F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549077   (465324) от 19.09.2012
+
+VA - Endless Summer - Ibiza Closing 2012 (12/09/2012) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Melin - Soul Heaven (06:08)
+02. Weekend Heroes - Plus One (Human Element remix) (08:16)
+03. DJ Ortzy & Nico Hamuy - Lose Control (feat Alex Peace - instrumental mix) (06:13)
+04. Futuristic Polar Bears & Danny Howard - Red Man Rising (Miami 2012 edit) (06:26)
+05. Peter Brown - The One (06:34)
+06. DJ Soulstar - Around The World (Tune Brothers remix) (06:13)
+07. DJ Fist & The Bass Kidz - Let's Walk (06:16)
+08. Erick Morillo & Eddie Thoneick - Live Your Life (feat Shawnee Taylor - Antranig remix) (07:37)Жанр: Progressive HouseПродолжительность: 03:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E85D5B795323828B24F38018F54DBF591E99D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547872   (465318) от 19.09.2012
 
 Mobbing (Alle Benassi) - Rock the dog (2008) [MP3|320 кб/с]<Electro House, House>
@@ -709,64 +771,6 @@ Runaway Droid - LIGHTYEARS (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:547D85F53D1AA19A4045439BCDCC3657B3813DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407626   (462431) от 09.09.2020
-
-VA - Midnight Man: Tribute to Songs and Sounds of Michael Cretu (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Rein - Angel 07 (4:16)
-02. Octolab - Samurai (Did You Ever Dream) (4:14)
-03. RetroTeque & MJ feat. Louise Marchione - The Different Story (World Of Lust And Crime) (4:24)
-04. Eurotix - Midnight Man (3:23)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAB2210F7F4E26533B5A5B614607F57F9F06B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059303   (462276) от 04.10.2016
-
-VA - Electro Housearrest Of ADE (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Meyers - Play House (Vocal Edit) (5:41)
-02. Brothers - My Battle (Trvpers Mix) (feat. Ranieri) (4:44)
-03. G-Pol, Saint Valentine & Strell - Klondike (4:40)
-04. Nathalie Vanessa - If You Really Want Me (Jay Outback Instrumental Mix) (5:46)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5461C6B9CEDCF1CCC465A5850BD88C9EC1BC270B
 ```
 
 https://mybot314.ru/tekegram_catalog/

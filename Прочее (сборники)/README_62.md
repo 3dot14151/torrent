@@ -1,3 +1,119 @@
+###  Публикация: 1130019   (718710) от 30.04.2017
+
+VA - Empire Records - Club Hit 13 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kim McNichols - Better off Alone (Summer Pool Party Mix)
+02. Michael Ribeira - Ecuador (Slowsphere Remix)
+03. Damon Paul, Beccy - I Was Made for Lovin' You (Patricio Amc Remix)
+04. Tenishia & Sue Mclaren - Strong (Chill Out Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5C245789D100C4151EC8A01991C20BE63DBDF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129927   (718354) от 30.04.2017
+
+VA - Disco 80 Dance Premium (2017) [MP3|320 Kbps] <Disco, Euro-Pop, Italo-Disco, Synthpop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roger Meno - I Find The Way  6:47
+02.  Modern Talking - Your'e My Heart, Your'e My Soul (Paul Masterson's Extended Remix)  7:19
+03.  C.C.Catch - One Night's Not Enough (Maxi Version)  5:17
+04.  K.B.Caps - Do You Realy Need Me (Extended Version)  6:36(   Читать дальше...   )Жанр: Disco, Euro-Pop, Italo-Disco, Synthpop, DanceПродолжительность: 13:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E11783A1E29733A74B74CBE3F1376FAE3AAEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129773   (717871) от 30.04.2017
+
+VA - Nostalgia Collection (Volume Second) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717871.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Francis Goya - Nostalgia  3:53
+002.  Liza Minelli - Cabaret  3:37
+003.  Boyz II Men - End Of The Road  5:54
+004.  SuperMax - Camillo  4:05(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 10:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143CBF4077D35A42828E80B9808BA903E8A3EF9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129696   (717870) от 30.04.2017
+
+VA - Nostalgia Collection (Volume One) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717870.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Demis Roussos - From Souvenirs To Souvenirs  2:38
+002.  F.R.David - Words  3:28
+003.  Enigma - Principles Of Lust  4:13
+004.  Earth, Wind & Fire - Fantasy  3:48(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 09:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E912F2350EEED93428E62175E7ABF41CFEC12C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129954   (717868) от 30.04.2017
 
 VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск # 44) (2017) [MP3|256-320 Kbps] <Eurodance, Disco, Italo Disco>
@@ -629,122 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 07.08.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B6D0ABAC3E7C5617939463C869527ED1BAC0B96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400878   (712962) от 08.08.2020
-
-VA - Громкие новинки Августа (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #2Маши - Я забираю твою подругу (3:24)
-02. 3-ий Январь - Шкатулка (2:58)
-03. 6IX9INE - PUNANI (1:55)
-04. Alyona Alyona Feat. Kalush, Otoy, Білий Бо, Шершень, Dyktor, Дядя Вова - Стержень (5:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C06AB3663D22C3F19CA60785F2BB9DD5789214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400888   (712948) от 08.08.2020
-
-VA - 100 Greatest Party Songs (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prince - 1999 (Edit) 3:39
-02. The B-52's - Love Shack 5:22
-03. Taylor Swift - Shake It Off 3:39
-04. Black Eyed Peas - I Gotta Feeling (Edit) 4:06(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BB528A258C0F5F63136DF180946299A88CCD74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532538   (712576) от 20.02.2022
-
-VA - Зайцев.нет Лучшие новинки Февраля (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CAPTOWN - С любовью (2:05)
-02. INSAF, Альба Рябова - Пополам (3:32)
-03. KOTOIN - Raksha (Original Mix) (3:15)
-04. NILETTO - Angels (2:43)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F445573DBB12BAB5E474E2917DB3669A43FEF08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532477   (712534) от 20.02.2022
-
-VA - Country: New Folk Music (2022) [MP3|320 Kbps] <Country, Folk, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это музыка является наследием творчества первых колонистов - переселенцев из Европы в Новый свет, представляя собой характерное смешение фольклора различных европейских народностей, которые были широко представлены в колониальной Америке. Впоследствии полюбившаяся музыка обрела широкую популярность и нашла себе применение в балладах американских ковбоев.001. Johnny Cash - The Caretaker
-002. Chris Janson - Beer Me
-003. Brothers Osborne - It Ain't My Fault
-004. Diplo - Hometown(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 09:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05FAE4CEE3B62695AFE81C946B4B80D31EFD5A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

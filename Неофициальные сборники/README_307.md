@@ -1,3 +1,177 @@
+###  Публикация: 1034705   (634140) от 13.07.2016
+
+VA - Лучшая Коллекция Исполнителей Шансона (2016) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирина Круг - Я прочитаю в глазах твоих
+02. Геннадий Жаров - Ушаночка
+03. Михаил Круг - Приходите в мой дом
+04. Вера Снежная - В бокале вина(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75978A5ED5ECFECFD2850BE1A143F157F9EBB759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034581   (634128) от 13.07.2016
+
+VA - Disco Hits - Generation One (2016) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney M. - Sunny [03:59]
+02. Eruption - One A Way Ticket [03:36]
+03. ABBA - Voulez-Vous [05:08]
+04. Donna Summer - Hot Stuff [2:55](   Читать дальше...   )Жанр: DiscoПродолжительность: 01:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C3DF52374C4EE4E82C70D83387BAD1723689218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228456   (634118) от 02.06.2018
+
+VA - Summer Is Coming House (2018) [MP3|320 Kbps] <Progressive, Groove, Funky, Jackin, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Disco Machine, Joe Killington, Duane Harden - Devil In Me (Pdm Club Dub Mix) 6:19
+02. Simon Sinfield - Latitude (Extended Mix) 6:20
+03. Purple Disco Machine - Dished (Male Stripper) 4:13
+04. Madloch - Fiction (Martin Roth Remix) 6:41(   Читать дальше...   )Жанр: Progressive, Groove, Funky, Jackin, ClubПродолжительность: 03:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B11771683E02171C26CEC706E036D6499E75AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908293   (634075) от 14.06.2015
+
+VA - Summer Session (2015) [MP3|320 кб/с]<Club House, Electro House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carly Rae Jepsen - I Really Like You (Broiler Remix) [03:09]
+02. Dim Chris feat. Amanda Wilson - Nothing To Lose (Original Mix) [05:13]
+03. Edurne - Amanecer (Stormby Extended Mix) [05:38]
+04. Katelyn Tarver - Weekend Millionaires (Young Bombs Remix) [04:29](   Читать дальше...   )Жанр: Club House, Electro House, Deep HouseПродолжительность: 08:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67243390EBAF8F52BE56571A15F53DE5DEB63A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034492   (634050) от 13.07.2016
+
+VA - Мега Дискотека с Europa plus (2016) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akon - Good Girls Lie
+02. Stand - Up - Лето В Отрыв!
+03. Sputnik Project & Andry Makarov - Медленно Таешь
+04. Магомед Аликперов - Ее Глаза(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B0FF5D66047E918A86D8EE17727CE6BB847F6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034372   (634046) от 13.07.2016
+
+VA - Top Hits Diskoteka 80s & 90s (2016) [MP3|320 Kbps] <Disco, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634046.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scotch - Disco Band
+002. David Hasselhoff - Looking for Freedom
+003. Princess - Say I'm Your Number One
+004. Nik Kershaw - I Won't Let the Sun Go Down on Me(   Читать дальше...   )Жанр: Disco, Pop, DanceПродолжительность: 10:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C042F9584146A7BE636A199B1092113F6A0C566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228728   (634029) от 02.06.2018
 
 VA - German Top 100 Single Charts 01.06.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -602,192 +776,6 @@ VA - 50 Лучших треков в машину 4 (2015) [MP3|256-320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F84A6EBC06C7A60549449909398E6E568182FA8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519387   (633452) от 08.07.2012
-
-VA - Midnight Club Драйв По Встречной 7 (2012) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633452.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Mike De Ville - Amada Mia Amore Mio (MD Electro Vs Eric Flow Remix Edit)
-002 Gabry Ponte Feat. Pitbull & Sophia Del Carmen - Beat On My Drum (Djs From Mars Remix Radio)
-003 Oceana - Endless Summer (DJ Sergey Fisun Remix)
-004 Mike Indigo - Bam Baram (SnickBoy Remix Edit)
-005 Linkin Park - In The End (DJ's From Mars Radio Edit)
-006 Pulsedriver feat. Johnny Rose - Take It Home (Radio Edit)
-007 Toby DeVille - Mamma Maria (Scotty Remix)
-008 Andrew Spencer - Tease Me, Please Me (DJ TNT & Van Snyder Remix)
-009 Ben La Pompe, Pedro De Cabra - La Soupe Aux Choux (Dan Winter Radio Edit)
-010 Aligator feat. Al Agami - Trash the Club (Pulsedriver Oldschool Flavour Remix)(   Читать дальше...   )Жанр: РорПродолжительность: 05:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A547B2E274A38EE3568CE85C1616D2005D03A198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519141   (633314) от 08.07.2012
-
-VA - Сборник хороших хитов - Позитивный заряд - Версия 2 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633314.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Борис Шварцман - Мадемуазель
-002. Oksi - Made in China (Andi Vax remix)
-003. Лена Катина (Ex. T.A.T.U) - Never Forget You (Radio Version)
-004. Sebastian Ingrosso & Alesso - Calling (Original Instrumental Mix)
-005. Лион Feat. Макс Лоренс - Мой Милый Ангел
-006. 25-17 Feat. Дмитрий Ревякин - Корабль
-007. Virtual Vault Feat. Ice Mc - Think About The Way
-008. Митя Фомин - Хорошая Песня
-009. Ак$иС - Танцуй
-010. Денис Майданов - Ничего Не Жаль(   Читать дальше...   )Жанр: PopПродолжительность: 06:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C40F00B3D1D11131D81503BED8EBE07B19F436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143827   (633268) от 19.06.2017
-
-VA - Back To The Future (Mixed by DJ Peretse) (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Culture Beat - Inside Out (DJ Peretse Remix)  5:34
-02.  A-HA - Take On Me (DJ Peretse Remix)  5:24
-03.  Fancy - Flames Of Love (DJ Peretse Remix)  4:16
-04.  Alphaville - Forever Young  (DJ Peretse Remix)  5:04(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C8F8DF9AC8474A14D608C4965806F77146C0CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293825   (633103) от 05.04.2019
-
-VA - Дискотека 2019 Deep House - The Best Vol. 6 от NNNB [MP3|320 Kbps] <Deep House,  Nu Disco,  Indie Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leonid Rudenko, Alina Eremia, Dominique Young Unique - Love & Lover (Extended Mix) (3:24)
-02. Dj Vianu x Vict Molina - Save Me (2:57)
-03. Pete Bellis & Tommy - Looking For A New Home (Original Mix) (4:27)
-04. John Reyton - Baby (Original Mix) (4:22)(   Читать дальше...   )Жанр: Deep House,  Nu Disco,  Indie Dance, OtherПродолжительность: 28:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E345608B6E40CCD06B72531EA9C8F19F8B550BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143869   (633009) от 19.06.2017
-
-VA - Summer Beach Party (Club, Dance, House) (2017) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luna - Summer Love
-02. Ellie Goulding - Still Falling For You (Kore-G Bootleg)
-03. Thrdl!fe feat. Saara - Can't Buy Love
-04. Daemn - Save Me (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C025820436E108FA0F905F2A8D4B59C99C9FB700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034860   (632682) от 14.07.2016
-
-VA - Life Store Stone Clubbed (2016) [MP3|227-320 Kbps] <Funky, Club, Progressive, Tropical>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Burns, Paul Oakenfold & Jes - As We Collide (Orjan Nilsen Remix) 06:50
-02. Harry Brown - Zahara (Original Mix) 07:22
-03. Chris Drifter, Steve Valentine, Brigi - Different Ways (Original Mix) 08:14
-04. Alexander Kowalski, Dosem - Skyroom (Original Mix) 06:13(   Читать дальше...   )Жанр: Funky, Club, Progressive, TropicalПродолжительность: 08:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D75CF893E2EF607993321A859E1DDAB819E325
 ```
 
 https://mybot314.ru/tekegram_catalog/

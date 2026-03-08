@@ -1,32 +1,3 @@
-###  Публикация: 1119592   (807094) от 28.03.2017
-
-Ольга Арефьева и Ковчег - Ангел и девочка (2017) [FLAC|Lossless|tracks+ .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полночь
-02. Пирамида Хео
-03. Моа-моа
-04. Двойное дно(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E84002E9D96B49DBA5CF50DE48846757A609CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 199083   (807004) от 08.05.2010
 
 Electric Light Orchestra - Flashback (box set compilation) (2000) [MP3|320 kbps]<Progressive & Art-Rock>
@@ -741,6 +712,35 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C34D6BAF4C221E52766A9AC839059ABFD90A5FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504973   (806303) от 26.10.2021
+
+Ozzy Osbourne - Blizzard Of Ozz (1980) 40th Anniversary Expanded Edition, 2020, Epic Records [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Know (5:15)
+02. Crazy Train (4:53)
+03. Goodbye to Romance (5:36)
+04. Dee (0:50)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90D24F85D259AE50903E3BC784A02B5E61A141D
 ```
 
 https://mybot314.ru/tekegram_catalog/

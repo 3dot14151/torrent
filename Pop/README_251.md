@@ -1,3 +1,59 @@
+###  Публикация: 1264851   (277715) от 25.11.2018
+
+Italian Disco Mafia - 1 Album, 2 Singles (2012, 2018) [MP3|320 Kbps] <Italo-Disco, Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confessa (Extended Mix) (7:14)
+02. Confessa (Radio Edit) (3:48)Жанр: Italo-Disco, Disco, DanceПродолжительность: 02:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0217E64B87649B7D604D8E7A598B459E486B5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264864   (277707) от 25.11.2018
+
+Eros Ramazzotti - Vita Ce N'e (2018) Universal Music Group [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/15. Per Il Resto Tutto Bene (3:26)
+ 02/15. Vita Ce N’é (3:12)
+ 03/15. Vale Per Sempre | Feat. Alessia Cara (3:25)
+ 04/15. Siamo (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4938E7CAC76E3C6F215D1E5DFDBD51C4715AA877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336928   (277527) от 08.11.2019
 
 Rudy Brass - Frog's Jump (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -696,64 +752,6 @@ Modern Talking - Die Erfolgreichsten Hits (Remastered) (2016) [MP3|320 Kbps] <Eu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:457AB0245954CF867B713260DF237E7E4807014A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265327   (275225) от 27.11.2018
-
-David Boydell - City Music (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Music (4:10)
-02. Jet Lag (3:03)
-03. Tokyo (2:54)
-04. Use Your Body (3:49)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F047F8D0D55E217D48B2373605129620371EBBC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265340   (275224) от 27.11.2018
-
-Loleatta Holloway - Love Sensation (1980) Charly Records, Reissue 1995 [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Sensation (6:07)
-02. Dance What 'Cha Wanna (5:13)
-03. I'll Be Standing There (4:53)
-04. I've Been Loving You Too Long (4:45)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C27F18F9E2C8BB5585515187039BF63EB56FA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 924485   (557668) от 04.08.2015
+
+VA - The Sounds Of The Underground 03 (DJ Mix By Deeper82) (2015) [MP3|320 кб/с]<Deep House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arctic Night - Wake Me Up (Adam-P Still Dreaming Remix)
+02. Techtower - Wonderland (Original Mix)
+03. 10dens Feat. Velb - Scila (Original Mix)
+04. Jallen - Far From Here (Original Mix)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85FFC9E9A848BB344394CBDB292C906920EC2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924664   (557667) от 04.08.2015
 
 VA - Resident Advisor Top 50 Charted Tracks July (2015) [MP3|320 кб/с]<Techno, Minimal, Electronica, Tech House, Deep House>
@@ -716,35 +745,6 @@ VA - Good Vibes (2018) [MP3|320 Kbps] <Deep, Techno House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F4574D7A66F7C228D6EBBE465980B241015D4AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236846   (553839) от 20.07.2018
-
-VA - TOP Non-Stop 2010-2015 - Trance. Volume 1. Set Of New Feelings (2016) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paronator - Sunset (original mix edit) [3:23]
-02. Timmy & Tommy feat. Leila - Perfect Motion [8:02]
-03. Embliss - Lemonakia [7:04]
-04. 16 Bit Lolitas - Snake Inverter [6:37](   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2ECAF5BF1599A9C1D88B742949AC63BD1210C0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

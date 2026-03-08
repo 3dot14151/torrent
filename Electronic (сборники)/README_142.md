@@ -1,3 +1,32 @@
+###  Публикация: 1061513   (448854) от 10.10.2016
+
+VA - Deep House Collection Vol.92 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448854.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.2pac - Changes (Lowderz Remix) (05:15)
+002.20 Fingers - Short Dick Man (Dima Flash Remix) (04:46)
+003.Aathee - The Rise (Original Mix) (06:24)
+004.Adam Foster Ft. Daniela - Don't Give It Up (Astero Remix) (04:42)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C4F5FE18A3C273C990065E3D431E9670F772C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247919   (448659) от 17.09.2018
 
 VA - Electro House Pool Party (2018) [MP3|320 Kbps] <Club, Dance, House>
@@ -746,35 +775,6 @@ VA - L.O.V.E. Vol.11: Chillout Music Collection (2012) [MP3|320 кб/с]<Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:942D637501FFE5284970928F5AE2607C3CB63760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409589   (443271) от 18.09.2020
-
-VA - Tight Drum And Bass: Bassline Positive Session (2020) [MP3|320 Kbps] <Drum And Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443271.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Liquid Jazz - Need Your Love
-002. Pltx - Late Night Liquid
-003. Tarz - Friday Feeling
-004. Sonic - Then(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 13:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76C2A7D35A4CA89268B896C0685D426D881E681
 ```
 
 https://mybot314.ru/tekegram_catalog/

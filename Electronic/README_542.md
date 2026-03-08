@@ -1,3 +1,61 @@
+###  Публикация: 1805756   (12114) от 08.07.2025
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 11 (2025) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Issam Boufhigua - Psychic Drain 07:00
+02. Ltn - All I Need (Extended Mix) 06:34
+03. Michael Alan - Made In The Sky (Extended Mix) 06:15
+04. Miguel Angel Castellini - Lightway 03:55(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7C6769B8A1E6CE8731F661B3412F0EDA41233A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851554   (12075) от 09.07.2025
+
+VA - A State Of Trance Year Mix 2014 (Mixed By Armin Van Buuren) (2014) [MP3|320 кб/с]<Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren - Look What I Found! (Intro) (1:48)
+02. Omnia - Tomorrow People (Radio Edit) (2:53)
+03. Parker & Hanson - Gravity (Radio Edit) (3:21)
+04. Paul Oakenfold & Cassandra Fox - Touch Me (Mike Koglin 2.0 Radio Edit) (4:23)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 08:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0B7B7AB7898754013EA88927539CD12AFA86EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806073   (11923) от 10.07.2025
 
 Zebra Type 1 - Teleport (2025) [MP3|320 Kbps] <Darkwave, EBM>
@@ -687,64 +745,6 @@ VA - Deep House Relaxed #2026 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEB19A38AEA7C95C15F08FF306308FDD1895F0E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811809   (8264) от 12.08.2025
-
-VA - 25 Years Of Anjuna Mixed By HANA (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nox Vahn & Marsh - Come Together (Extended Mix) [8:07]
-02. The Dualz - Your Eyes (Extended Mix) [6:16]
-03. 16BL - Beat Organ (Original Mix) [6:24]
-04. Joseph Ray - Cos Of You (Original Mix) [6:14](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C1EDCA114E182B8CC7486CFD116A30878FC851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812152   (8061) от 13.08.2025
-
-VA - Trance Essentials 2025, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jnsl - Blueshift 05:47
-02. Sam Vance - Purple Monkey Dishwasher 04:59
-03. Pure Oxide - No More Lies 04:02
-04. Xidosmusic - The Darkside 05:33(   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2621961FCE1BBBB9C1DF04133C0E23871A6643E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

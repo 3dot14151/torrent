@@ -1,3 +1,32 @@
+###  Публикация: 476650   (85765) от 01.04.2012
+
+Armin van Buuren / Ultra Music Festival (2012)[1080p] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omnia - The Fusion (Armin van Buuren’s Intro Edit)
+ 02. Cosmic Gate feat. Emma Hewitt - Be Your Sound
+ 03. Armin van Buuren vs. Sophie Ellis-Bextor - Not Giving Up On Love (Dash Berlin 4AM Mix)
+ 04. The Killers - Mr. Brightside (Marco V Treatment)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476608   (85761) от 01.04.2012
 
 Rammstein - Live Aus Moskau 2012-02-11 (2012) HDCamRip[1080p] (Ver. 2)
@@ -721,33 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0289FA1C6F3F5D2948EA01093866ABE19AA3D228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776430   (71260) от 01.02.2025
-
-МузЛофт / МузLoft. Антон и Виктория Макарские (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антон и Виктория Макарские. Всё о мюзиклах и семье.
-Пожалуй, самая музыкальная, самая поющая и самая образцовая семья посетила Музлофт! Главное сделала этот концерт на 200%! Просто включите и наслаждайтесь!Производство: Россия | Y-GenerationУчастники: Антон и Виктория МакарскиеПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10EEFA320D051A71CC8BF38CA9C3CA212DD4B9B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

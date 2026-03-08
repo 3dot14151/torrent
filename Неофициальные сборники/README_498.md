@@ -1,3 +1,177 @@
+###  Публикация: 956591   (329476) от 15.11.2015
+
+VA - Winter Vibes (Relaxed Laidback Beats Finest Collection) (2015) [MP3|320 кб/с]<Electronic, Downtempo, Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fashion Cafe - Tabitha
+02. It's a Shame - Mystery of Soul
+03. Smoky Eyes - Liam Van Dyke
+04. My Friend (Mercer & Gissal Chilled Version) - Flamingo(   Читать дальше...   )Жанр: Electronic, Downtempo, Lounge, Chill OutПродолжительность: 02:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391E6BBAF331F33E40B175E45D61CA6C7D4B9707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956935   (329412) от 15.11.2015
+
+VA - Lounge Selection - The 50 Best Hits (2015) [MP3|320 кб/с]<Electronic, Downtempo, Trip-hop, Future Jazz, Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jungle – Drops
+02. Brigitte – Ma Benz
+03. Bonobo – First Fires (feat. Grey Reverend)
+04. Cocoon – American Boy(   Читать дальше...   )Жанр: Electronic, Downtempo, Trip-hop, Future Jazz, Deep HouseПродолжительность: 03:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01DC351F31BD0B20F94F98B3959F9701F1CE36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956692   (329400) от 15.11.2015
+
+VA - Lounge Music Classics 2016 Sexy Soft Lounge Chillout Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile State - The Facts and the Dreams [04:58]
+02. Roebeck - 1000 Miles [04:34]
+03. Parallel - Interstellar [05:20]
+04. James Bright - Little Things [04:37](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260CB256DADE60BEC23358AEEF2915017975863F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956861   (329367) от 15.11.2015
+
+VA - Italo Disco Hits Vol.8 (2015) [MP3|320 кб/с]<Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key West - Jesahel (04:59)
+02. Roger Meno - What My Heart Wanna Say (03:53)
+03. Johnny M5 - Moscow Nights (Maxi Version) (05:58)
+04. Lala - Johnny Johnny (Radio Version) (03:27)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9956E11CFB057E5E097B38EE42F0540CA3626331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956913   (329315) от 15.11.2015
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 (Зарубежный выпуск - 18 ) (2015) [MP3|318 - 320 кб/с]<Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Boys - London Nights (PWL Remix) (07:34)
+02. Bad Boys Blue - Pretty Young Girl (Tarantino ReFresh) (04:29)
+03. C. C. Catch - Backseat of your cadillac (Mix exclusive 2015) (04:04)
+04. Roger Meno - What My Heart Wanna Say (Wolfback's Remix) (09:11)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589A8E1DF69F14E8C3B45C1D976D2FD84324FE92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956727   (329309) от 15.11.2015
+
+VA - Drive (Ministry Of Sound) (2015) [MP3|320 кб/с]< Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329309.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. David Guetta Feat. Sam Martin - Dangerous
+2. Dillon Francis & DJ Snake - Get Low
+3. Major Lazer Feat. MØ & DJ Snake - Lean On
+4. DJ Fresh & Adam F - Believer Adam F & DJ Fresh BBK Edit(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC00DE7A9409392CD559E2F5222A25F7B2A73FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 842094   (329219) от 17.11.2014
 
 VA - The Official UK Top 40 Singles Chart (16-11-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
@@ -573,180 +747,6 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9786B8D6784B1A9116988C0051773CBB89736EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957272   (327427) от 17.11.2015
-
-VA -  Ministry of Sound: Maximum Bass Unleashed (2015) [MP3|320 кб/с]<House, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327427.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (01:13:41) (Mixed by G-Wizard):
-1. Drake - Energy [3:07]
-2. 2 Chainz - Used 2 [3:36]
-3. Gunplay feat. YG - Wuzhanidoe [3:09](   Читать дальше...   )Жанр: House, ElectronicПродолжительность: 03:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C6B89F131188E44E9DB5FF4B0F1586DBD83BEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581009   (327138) от 05.10.2022
-
-John Sokoloff - Compilation (2022) [MP3|320 Kbps] <Easy Listening, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P.O.M.
-02. Allow Me
-03. Russian Girl
-04. El Manor(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 01:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611D13FAD640F4F1902385608452A7FB8226D6FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581394   (327134) от 05.10.2022
-
-VA - TOP Non-Stop - Funky House Before 2000 (2022) [MP3|192-320 Kbps] <Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Deep & Julien Jabre - Dom Dom Jump (sax mix, 1998) (7:09)
-02. Martin Solveig - Heart of Africa (1999) (6:18)
-03. Mateo & Matos - Discocide (1999) (6:45)
-04. The Good Men - Hand Wobble (1994) (4:47)(   Читать дальше...   )Жанр: Funky HouseПродолжительность: 07:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE6B15078907B824BAC5F6A3091ED6807195708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581178   (327129) от 05.10.2022
-
-VA - Music News vol.219 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327129.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Akris & Teddy - Не Пара (02:28)
- 002. 102 Boyz & The Cratez feat. Chapo102 & Kkuba102 & Stacks102 - Tokyo Drift (02:46)
- 003. 1380 - Процент (02:12)
- 004. Aaron Smith feat. Sadhappy - Better Everyday (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D74411C018E268CE011A07A70A49C5774C0799F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581338   (326970) от 05.10.2022
-
-VA - Дискотека 2022 Dance Club Vol. 212 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-001. TRITICUM - Play Me
-002. David Guetta feat. Benny Benassi - Satisfaction
-003. ALEKS ATAMAN feat. Finik.Finya - Ой Подзабыли(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 21:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785819AD977DA29AB916A00D8D47100CF4876458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957776   (326712) от 18.11.2015
-
-VA - A Smile and a Tear Best Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Magical Corner - Laguna
-02. Logophilia - Igualmente
-03. Hannes Im Glьck - Ach und Lach
-04. Mind Conventions - Sweet Fever(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64DE6E9B0AF061F1AAEE24BEE28B484B0D97541
 ```
 
 https://mybot314.ru/tekegram_catalog/

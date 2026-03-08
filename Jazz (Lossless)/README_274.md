@@ -1,3 +1,32 @@
+###  Публикация: 1431716   (181454) от 25.11.2022
+
+Candy Dulfer - 16 albums, 4 singles, 26 CD (1989-2022) [FLAC|Lossless|image + .cue | tracks + .cue] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэнди Далфер — нидерландская саксофонистка, певица и автор песен. Стала всемирно известной после композиции «Lily Was Here», написанной в ноябре 1989 года в тандеме с музыкантом Дэйвом Стюартом. Ее биография заслуживает особого внимания, с семи лет Кэнди стала заниматься музыкой. Ее отец – саксафонист Ханс Далфер вложил в свою дочку все знания и привил огромную любовь (   Читать дальше...   )Альбомы:
+1989 | David A. Stewart (featuring Candy Dulfer) - Lily Was Here (RCA)
+1990 | SAXuality
+1993 | Sax-A-Go-Go(   Читать дальше...   )Жанр: Jazz, Funk, Soul |Продолжительность: 22:43:19 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49818F1DAD685F03B30C339CAF5C3C0EDEE1F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949121   (181431) от 30.11.2020
 
 Peggy Lee - The Best of Miss Peggy Lee (1945-1969)1998, Capitol Records[FLAC|tracks+.cue]<Vocal Jazz>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9178A7331345F1786ABC4122E472A4EE93976654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666835   (178436) от 06.10.2023
-
-George Shearing - Easy To Love (1953, 1954) 2014, Sounds Of Yester Year [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallelujah! [2:56]
-02. Undecided [2:36]
-03. Mood For Milt [2:47]
-04. Rap Your Troubles In Drums [2:54](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638D4BD6B71D5DF2D156659ABA7CB9F0D5E017B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

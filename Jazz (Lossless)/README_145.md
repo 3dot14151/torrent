@@ -1,3 +1,38 @@
+###  Публикация: 527741   (569567) от 30.07.2012
+
+Brad Leali - Claus Raible Quartet - D.A.'s Time (2007) [FLAC|Lossless]<Post-Bop, Bebop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Currawong
+02. Puddin' Time
+03. I guess I hang my tears out to dry
+04. Catina
+05. Manteca
+06. Little Freddie steps
+07. D.A.'s Time
+08. I'll keep loving you
+09. Not yet
+10. Blues for LizzieЖанр: Post-Bop, BebopПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303878   (569496) от 23.05.2019
 
 Jelly-Roll Morton - 1939 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Stride>
@@ -728,35 +763,6 @@ Shirley Scott - Blue Seven (1961) 2000, Original Jazz Classics [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE4014693C96AA2D84C6F8F9971778FA12A1CF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555661   (567491) от 05.06.2022
-
-Maynard Ferguson - The Complete Roulette Recordings Of The Maynard Ferguson Orchestra (1958 - 1961) 10CD, 1994, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567491.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. And We Listened [5:45]
-02. The Fugue [3:28]
-03. Humbug [3:31](   Читать дальше...   )Жанр: Bop, Hard Bop, Big BandПродолжительность: 09:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE9B9D6F96AE0B91E31E0FC4DD3C9E1BCFEDD75
 ```
 
 https://mybot314.ru/tekegram_catalog/

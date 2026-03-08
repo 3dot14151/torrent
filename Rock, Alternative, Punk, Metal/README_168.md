@@ -1,32 +1,3 @@
-###  Публикация: 1364598   (935040) от 04.03.2020
-
-Envy - All the Footprints You've Ever Left and the Fear Expecting Ahead (2001) [FLAC|Lossless|tracks + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero (02:05)
-02. Farewell To Words (02:47)
-03. Lies, And Release From Silence (04:49)
-04. Left Hand (03:02)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCBBFF3E96150AB4A09C88E90BA29D8789F2115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364608   (935039) от 04.03.2020
 
 Envy - Recitation (2010) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
@@ -745,6 +716,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BD64C5DDA7E77699179027B807C8C3B1907A94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093520   (933904) от 15.01.2017
+
+Ocean Of Sin - Escape From Heaven/Return To Hell (2016) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Anthem Collapse Of Empiries
+03. Valium
+04. Four(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF4A097AF3A19F4CC5F111716D447F7673B3036
 ```
 
 https://mybot314.ru/tekegram_catalog/

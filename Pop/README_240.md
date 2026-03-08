@@ -1,3 +1,61 @@
+###  Публикация: 729191   (309093) от 02.12.2013
+
+Владимир Макаров - Последняя электричка (2002) [FLAC|Lossless]<Retro, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Последняя электричка   (2:31)
+02.  Буфер бьется пятаком зеленым   (2:38)
+03.  Мне б только знать   (2:22)
+04.  Тайга-Париж   (2:52)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDFDC78EF03DDA9F33AFE1A9A994473898F7EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332923   (308789) от 22.10.2019
+
+Blue System - Magic Symphonies (The Very Best Of Blue System) (2009) 3CD, BoxSet, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/14. Sorry Little Sarah (Long Version) (5:16)
+02/14. My Bed Is Too Big (No Longer Too Big Bed Mix) (5:27)
+03/14. Under My Skin (12'' Version) (5:16)
+04/14. Silent Water (Long Version) (4:51)(   Читать дальше...   )Жанр: Electronic, Euro-Disco, Synthpop |Продолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C395F5AACF544DD7C6093B410189784C503E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077265   (308724) от 27.11.2016
 
 Петр Лещенко - Petr Lescenco singt (2001) [MP3|320 Kbps] <Ретро>
@@ -696,64 +754,6 @@ Mirko Hirsch - Power of Desire (2015) [MP3|320 кб/с]<Italo Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A04B1EFEF486E89BDA95B89CA619566B412EE9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261208   (305336) от 10.11.2018
-
-Sarah Brightman - Hymn (2018) [MP3|320 Kbps] <Pop, Classical Crossover>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hymn Overture
-02. Hymn
-03. Sogni
-04. Sky And Sand(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136E480FD70D955FA106E6703661BDC2FD53D0B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333408   (305259) от 24.10.2019
-
-Cigarettes After Sex - Cry (2019) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Let Me Go (04:22)
-02. Kiss It Off Me (04:29)
-03. Heavenly (04:48)
-04. You're the Only Good Thing in My Life (04:35)(   Читать дальше...   )Жанр: Dream Pop, Indie-PopПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F481A578CADDE397028D9256EDBB014C0C7D642F
 ```
 
 https://mybot314.ru/tekegram_catalog/

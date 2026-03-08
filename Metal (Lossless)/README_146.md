@@ -1,3 +1,90 @@
+###  Публикация: 1160271   (476277) от 24.08.2017
+
+Ephel Duath - Phormula (2000) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	"Embossed"
+02. 	"The Greyness Grows Already Old"
+03. 	"Danza"
+04. 	"A Flickering Warmth"(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B05DB8AAE4A1DC3E161CFC7A6ED8673D4F2F312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160273   (476276) от 24.08.2017
+
+Handful of Hate - You will bleed (2009) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	You Will Bleed
+02.	The Pest' Son
+03.	Bliss Between Thorns
+04.	I Gave You Scars(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6B3E6C193B07D75D1B78C4C4B9DFBA0259903F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160285   (476275) от 24.08.2017
+
+Beastcraft - The Infernal Gospels of Primitive Devil Worship (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aapenbaring
+02. Demonic Perversion
+03. Deathcraft and Necromancy
+04. The Fall of the Impotent God(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688CF3EA98BEC1658BE2510F47CB787022B0F869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160287   (476274) от 24.08.2017
 
 Pyracanda - Thorns (1992) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -658,93 +745,6 @@ Hellion - Hellion (1983) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AD4C84C177DAB230EC3AA82AD184895A03B1144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406784   (471176) от 05.09.2020
-
-Taake - Nattestid Ser Porten Vid (1999) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part I 05:55
-02. Part II 05:34
-03. Part III 04:31
-04. Part IV 04:35(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD50DAE333DE73F7624748992109ECA2A1761B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406971   (471002) от 05.09.2020
-
-Onslaught - Generation Antichrist (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise To Power (2:05)
-02. Strike Fast Strike Hard (4:38)
-03. Bow Down The Clowns (4:50)
-04. Generation Antichrist (5:43)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893D8157240D2D91213DD618C5FA6DF77CD784D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057829   (470944) от 30.09.2016
-
-VA - A Tribute To Slayer (2016) [FLAC|Lossless|image + .cue] <Deathcore, Thrash, Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carnifex - Angel Of Death 04:46
-02. Battlecross - War Ensemble 04:29
-03. Apocalyptica - South Of Heaven/Mandatory Suicide (Medley) 05:27
-04. Enslaved - Jesus Saves 02:59(   Читать дальше...   )Жанр: Deathcore, Thrash, Death, Black MetalПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA85A4238E905A2F7E39117A701DB1C3AF4468D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

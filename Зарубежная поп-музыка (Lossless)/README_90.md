@@ -1,3 +1,38 @@
+###  Публикация: 477811   (86326) от 04.04.2012
+
+VA - Love Songs Top 100 Box Set 5CD (1995) [FLAC|Lossless]<Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_86326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alicia Keys - Fallin' 03:33
+02. R.Kelly - I Believe I Can Fly 04:44
+03. Ten Sharp - You 04:26
+04. Gary Barlow - Forever Love 04:34
+05. Manhattans - Kiss And Say Goodbye 04:28
+06. Maroon 5 - Sunday Morning 03:59
+07. Boston - More Than A Feeling 04:41
+08. Simon Garfunkel - The Sound Of Silence 03:05
+09. Toto - Melanie 03:58
+10. Acda en De Munnik - Als Je Bij Me Weggaat 04:04(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:29:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472139   (83950) от 23.03.2012
 
 Madonna - MDNA (2012) Deluxe Edition [FLAC|Lossless]<Pop>
@@ -733,35 +768,6 @@ Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCA379758BA7C64DB79BA58FF0A2584CE1954BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794428   (67234) от 29.04.2025
-
-KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Other Side of the World    [0:03:34.42]
-02. Another Place to Fall    [0:04:11.33]
-03. Under the Weather    [0:03:36.42]
-04. Black Horse and the Cherry Tree    [0:02:52.28](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C20FC898F7142D0BA855F8124251631AF1DD9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

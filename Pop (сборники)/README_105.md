@@ -1,3 +1,32 @@
+###  Публикация: 1190531   (266831) от 10.12.2017
+
+VA - Музыкальная Акварель: Русский Сборник (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nanik - Июль My Love
+002. Валерий Леонтьев - Ты Где-То Там
+003. Нэлли Мотяева - По Лезвию Небаа
+004. Дима Билан - Монстры В Твоей Голове(   Читать дальше...   )Жанр: PopПродолжительность: 12:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336E3FC5F8AAC82FB9C5C7FBE56B8FE3BE2D7636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267515   (266731) от 06.12.2018
 
 VA - German Top 100 Single Charts 30.11.2018 (2018) [MP3|320 Kbps] <Pop>
@@ -752,35 +781,6 @@ VA - Классный Muzon Best Hits (2012) [MP3|192-320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39A346E88933CC98F99066CCC47A46E6037FCB2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837576   (257957) от 17.11.2025
-
-Romantic Dreams - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Exactly the Way You Are
- 02 - Madness Or Love
- 03 - Ends Up By You
- 04 - Starlit Promise(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A155683C60A3DDE3157160E4C229781C79BA5752
 ```
 
 https://mybot314.ru/tekegram_catalog/

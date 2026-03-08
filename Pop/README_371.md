@@ -1,3 +1,61 @@
+###  Публикация: 1815309   (5184) от 30.08.2025
+
+Мэйби Бэйби - Mayday (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Over Boys
+02. Oh My God
+03. Вуаля
+04. Exactly(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72DF3B0706D482C84FB2D78F29117089803F2A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815356   (5145) от 30.08.2025
+
+ФРЕНДЗОНА - АЛЬБОМБА (2021) [MP3|320 Kbps] <Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5145.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Нереальная Бомба
+2. Школьная
+3. Невидимка
+4. Мазафакер(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AD9A2718469FEDD9BD3FD23CAC958A4769BC12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815536   (5142) от 30.08.2025
 
 ФРЕНДЗОНА - Флирт На Вписке (2018) [MP3|320 Kbps] <Pop-punk>
@@ -688,64 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E9FB600AFED4F3FE05D608E0DABF4595DBEE2B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818906   (1985) от 19.09.2025
-
-Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prelude [2:36]
-02 - Something Beautiful [4:32]
-03 - End of the World [4:11]
-04 - More to Lose [4:36](   Читать дальше...   )Жанр: PopПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0657D4092AFA431BC5E76162355842119E38A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818904   (1983) от 19.09.2025
-
-Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prelude [2:36]
-02 - Something Beautiful [4:32]
-03 - End of the World [4:11]
-04 - More to Lose [4:36](   Читать дальше...   )Жанр: PopПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8670E0FFE267A0E8B3E777863C293D63B5D9708D
 ```
 
 https://mybot314.ru/tekegram_catalog/

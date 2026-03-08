@@ -1,3 +1,61 @@
+###  Публикация: 1549679   (593386) от 07.05.2022
+
+VA - Alexis Le-Tan & Jess Present Space Oddities (2008) [FLAC|Lossless|WEB-DL|tracks] <Disco, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roland Bocquet - Exotique (2:32)
+02. Jean-Pierre Decerf & Gerard Zajd - Reaching the Infinite (3:23)
+03. Alan Shearer - Sons of the Snake (5:24)
+04. Phil Davies & Ch. Ried - Muscle and Heat (4:01)(   Читать дальше...   )Жанр: Disco, Space-DiscoПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DD80C1C9EEAEA45A83F5BDE15BC549E348B8E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549676   (593346) от 07.05.2022
+
+VA - Italo Disco Tracks Vol. 1 (2005) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Bedford - More Than a Kiss (3:50)
+02. Joy Peters - Don't Lose Your Heart (3:07)
+03. Cliff Turner - Moonlight Affair (3:24)
+04. Chickeria - Le Freak (3:30)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C124D168E82C2F4B0556246C17C01BBF61E7075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549189   (593289) от 07.05.2022
 
 VA - Summer Dance Party 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
@@ -685,64 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A50F2E890B820C6422A50F04BE303C3E23E979D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915502   (592221) от 05.07.2015
-
-VA - 100 Hits - 80s Love (2007) 5CD Box Set [FLAC|tracks + .cue]<Pop, Dance, Soul, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luther Vandross - Stop To Love [04:21]
-02. Five Star - Rain Or Shine [03:53]
-03. Boy Meets Girl - Waiting For A Star To Fall [04:25]
-04. Jason Donovan - Every Day (I Love You More) [03:23](   Читать дальше...   )Жанр: Pop, Dance, Soul, VocalПродолжительность: 06:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0757523DFD523C645523252A3B225012CE23010A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550399   (592163) от 11.05.2022
-
-Amaya - Sensation (2020) [MP3|~245 Kbps (V0)] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensation (2020 Juan Martinez Remix) (3:54)
-02. Trapped (2020 Juan Martinez Remix) (4:26)
-03. L'Amour Toujours (3:42)
-04. Stereo Love (3:45)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9061385437AE47403A2C393DECB487BCA53A8F8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

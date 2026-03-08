@@ -1,3 +1,32 @@
+###  Публикация: 1468420   (1017246) от 07.05.2021
+
+Emma Stevens - Light Year (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump In (00:02:42)
+02. Forever (00:03:35)
+03. The Grass Is Always Greener (00:03:53)
+04. On a Day Like Today (00:02:50)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229B99475730F17DCE0C2D6201279A8834C621C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468278   (1017105) от 08.05.2021
 
 Wilson Phillips - Wilson Phillips (2016) 2CD [FLAC|Lossless|image + .cue] <  Pop, Vocal>
@@ -717,35 +746,6 @@ VA - Acoustic Summer 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D45AF5D5E0EA4EB4EF907D7CE452F61B75B9D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478647   (1010176) от 20.06.2021
-
-VA - Acoustic 10s and 20s Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - Break My Heart (Acoustic) (03:34)
-02. Nora & Will - My Future (Acoustic) (03:19)
-03. Shannon & Keast - Falling (Acoustic) (03:59)
-04. Logan York - Señorita (Acoustic) (04:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050EF2820DF47712D0E735C0EF6FCAD7B16D2257
 ```
 
 https://mybot314.ru/tekegram_catalog/

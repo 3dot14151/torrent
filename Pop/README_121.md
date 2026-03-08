@@ -1,3 +1,58 @@
+###  Публикация: 1221281   (696611) от 23.04.2018
+
+ВИА Песняры - Продолжнение (2018) [MP3|320 Kbps] <Retro, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696611.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Я лiцвiн
+3. Разам быць
+4. Сокал(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35AE5B68DE0EDA524A4EC9BC208A8B0C0CC298E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211566   (696215) от 19.06.2010
+
+Блестящие - 7 альбомов (1997-2006) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_696215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:07:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027575   (696202) от 19.06.2016
 
 Londonbeat - In The Blood (1990) [FLAC|Lossless|tracks + .cue] <Euro House, Synth-pop>
@@ -687,63 +742,6 @@ V.A. - Another Side Of Fancy Megamix (2020) [FLAC|Lossless|image + .cue] <Italo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EEAFF6D638B8ED185F27FF887F0C122392C15ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288781   (694079) от 12.03.2019
-
-Camouflage - A Disco Symphony (1977) LP [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Disco Symphony (14:49)
-02. Take A Ride (9:15)
-03. Bee Sting (7:42)Жанр: DiscoПродолжительность: 00:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47F9AA7BF6F8B1B46D1879F781E95513CAF6E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288750   (694077) от 12.03.2019
-
-VA - All The Hits In Discotheque (1977) 2LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Blood - Soul Dracula (3:01)
-02. Banzaii - Chinese Kung Fu (3:16)
-03. Hot Blood - Baby Frankie Stein (4:53)
-04. Jimmy James - Disco Fever (4:13)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 01:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F736155F2BD6466E199377C6EA3F9FDA55DF7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

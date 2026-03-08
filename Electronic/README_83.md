@@ -1,3 +1,61 @@
+###  Публикация: 993042   (896949) от 04.03.2016
+
+Dr. Alban - The Very Best Of 1990 - 1997 (1997) [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Africa (Fast Blast club mix) (5:38)
+02. Stop the Pollution (album version) (3:43)
+03. U & Mi (album version) (3:47)
+04. No Coke (7' mix) (3:44)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB4D4A7F67412840F4DEC42AC18E24BEFF5C382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370496   (896924) от 27.03.2020
+
+VA - Bangin' Future House, Vol. 3 (2020) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tale & Dutch - California Feeling (Radio Edit) [03:43]
+02. ShiDztorm - Burn (Radio Edit) [03:06]
+03. Red Chasey - Id (Let It Go) (Radio Edit) [03:23]
+04. FROIDZ - Forevermore (Uplink Remix Edit) [03:04](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACEA5A77246C5292A7A10557EF6ABDA0BD266C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370315   (896917) от 27.03.2020
 
 VA - Psychedelic Code, Vol. 1 (Compiled by Djane Edy & DJ Nicholas) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -692,64 +750,6 @@ VA - Sensual Lounge Affair: Selected Lounge and Chillout Vibes for Love (2017) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A87C7D300DCDD04993378487DDA03A6C95B81B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101289   (894816) от 07.02.2017
-
-VA - Last Night On Ibiza (20 Deep-House Experiencias) (2017) [MP3|320 Kbps] <Deep House, Funky House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deep Groovers - Start The Party (Deep Jeep Mix)  5:19
-02.  Robert Reston - I'm Sending You (Original Mix)  3:34
-03.  Second Floor - In Deep (Original Mix)  3:58
-04.  Exotic Twilight - Running (Original Mix)  3:04(   Читать дальше...   )Жанр: Deep House, Funky HouseПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6286DD936DA11F4C965DB94CDD9DB0ED5509C33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101300   (894804) от 07.02.2017
-
-VA - Deephouse From Tomorrow (2017) [MP3|320 Kbps] <Deep House, Funky House, Soulful>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Self Explanatory - Game Changer  6:53
-02.  Chillelektro - Berlengas  6:57
-03.  Azeotrop - Aftermath  5:57
-04.  Chillelektro - Eggum  6:42(   Читать дальше...   )Жанр: Deep House, Funky House, SoulfulПродолжительность: 01:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC9BD9A088FFDDA8B7E4BAFDFA21B322905E06B
 ```
 
 https://mybot314.ru/tekegram_catalog/

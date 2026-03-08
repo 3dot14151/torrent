@@ -1,3 +1,32 @@
+###  Публикация: 1171882   (394929) от 06.10.2017
+
+Chris Barber's Jazz Band - he Original Copenhagen Concert, Odd Fellow Palæet, 1954 (1995) Storyville Records [FLAC|Lossless|tracks + .cue] <Dixieland, Revival>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Shall Walk Through The Streets Of The City [03:46]
+02. Bugle Boy March [04:07]
+03. St. George's Rag [03:49]
+04. Making Whoopee [05:32](   Читать дальше...   )Жанр: Dixieland, RevivalПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FC917022401E5E7C422E796AF03C801C3B1FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171881   (394926) от 06.10.2017
 
 Ruby Braff - Ruby Braff Goes “Girl Crazy” (1958) 2009, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -738,35 +767,6 @@ Fred Hersch - Plays Rodgers & Hammerstein (1996) Nonesuch[FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAE5BD9B5E2094016C08FF903F15937B0C12AB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067496   (387924) от 29.10.2016
-
-Slide Hampton - Explosion! The Sound Of Slide Hampton (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Revival [02:27]
- 02.Maria [02:24]
- 03.Delilah [04:00]
- 04.Begin The Beguine [02:34](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEDD18D8BB868A1688717DB0FAD31F3A22E062F
 ```
 
 https://mybot314.ru/tekegram_catalog/

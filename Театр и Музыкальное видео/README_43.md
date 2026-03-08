@@ -1,3 +1,33 @@
+###  Публикация: 200044   (780673) от 15.05.2010
+
+Yamato The Drummers of Japan (1995) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень понравился концерт. Переделал в .ави для уменьшения размера,стараясь без потери качества.
+Ультрасовременное, синтезирующее традиционную и авангардную музыку шоу японских барабанщиков с элементами театра и танца. В чистом виде «Wadaiko Yamato Show» представляет собой уникальное представление, соединяющее виртуозное мастерство исполнения и древние магические (   Читать дальше...   )01. Yamato — Prelude
+02. Yamato — Aozora
+03. Yamato — Kurenai
+04. Yamato — Kagiroi(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 199920   (780639) от 15.05.2010
 
 Ромео и Джульетта / Romeo and Juliet (2001) DVD5
@@ -684,35 +714,6 @@ VA - Весенний марафон № 228: (Дискотека с разма�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C97E6637362B38214E4D687A3C06CEF77340024E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212049   (776421) от 10.03.2018
-
-The Doors : Live At The Isle Of Wight Festival '1970 (2018) DVD5 [hand made]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступления The Doors на фестивале The Isle Of Wight 30.08.1970г.Видео и аудиоматериал после реставрации и ремастирования был выпущен на БД.Сам концерт по длительности небольшой,поэтому на оставшееся место добавлены фрагменты выступлений группы на ТВ (из изданных ранее на DVD фильмов "The Soft Parade - A Retrospective" и "Dance On Fire".The Soft Parade - A Retrospective
-01. The Changeling (1991 short film)
-02. Wishful Sinful (PBS TV show critique, April 28th, 1969)
-03. Wild Child (Recording studio, October 1968)(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: Psychedelic Rock, Classic Rock, Acid Rock, BluesРежиссер: Murray LernerАктеры: The DoorsПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 00:39:34 + 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD19E5FEC30BABA92ED888A7A62D2203596B8F74
 ```
 
 https://mybot314.ru/tekegram_catalog/

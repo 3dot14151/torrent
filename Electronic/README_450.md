@@ -1,3 +1,61 @@
+###  Публикация: 1195299   (144431) от 28.12.2017
+
+Ohrwert - Fidelis / Blavus (2017) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blavus (05:55)
+ 02. Blavus (XDB Reshape) (06:53)
+ 03. Fidelis (06:14)
+ 04. Blavus (Grad_U Remix) (09:54)Жанр: Dub Techno, TechnoПродолжительность: 00:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76935643F8FA819781CEEBA9A47E2EA6CD5B984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272455   (144427) от 27.12.2018
+
+VA - Platipus - Archive 13 (Mixed by Luke Brancaccio) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Art of Trance - Firebird (Original Mix)
+02. L.S.G. - Netherworld (Oliver Lieb 2017 Main Mix)
+03. Martin Merkel - Little Wonder (Simon Berry & Luke Brancaccio Remix)
+04. Art of Trance - Ultrafoxx (Gai Barone's Cuboid Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91765094A197E9B9108F28AC80F6102D49D0F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195373   (144400) от 28.12.2017
 
 VA - Mondo Records: The Best Of (2017) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Degenerate 2018 Yearmix (Mixed by Sean Tyas) (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3A58902D44CEBC65B1B65594F26D7165D0388EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272503   (143075) от 28.12.2018
-
-VA - Sexy Funky House Annual 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DCP - For U (Original Mix ) 05:07
-02. Antoine Clamaran - Good for Me (Original Mix ) 05:48
-03. House of Prayers - Stomp ( New York, Detroit ) (Original Mix ) 06:06
-04. Mazai - Disco Babe (Original Mix ) 04:35(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8610DEC3516499E454AF6094153FEBD288FBCB06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272528   (143037) от 28.12.2018
-
-Neptune Project - A Question Of Reality (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neptune Project & Terence Mckenna – From The Past Into The Present Future
-02. Neptune Project – Bioluminessence
-03. Neptune Project & Polly Strange – Pulse
-04. Neptune Project – Proteus(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964CD61E5C070948DCA3DE9CF2F94FFC47118D5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

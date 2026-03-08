@@ -1,3 +1,183 @@
+###  Публикация: 941031   (464055) от 26.09.2015
+
+The Beatles - Good Songs (2015) [MP3|128 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464055.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. I Saw Her Standing There (1963)
+002. Misery (1963)
+003. Anna (Go To Him) (1963)
+004. Chains (1963)(   Читать дальше...   )Жанр: RockПродолжительность: 09:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6A21520C2E8420BCFC386989996F80EE119647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940856   (464016) от 26.09.2015
+
+VA - Зайцев нет. Музыка для машины (2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ KUBA & NE!TAN vs Cherry ft. Jonny Rose - Escape With Me (Bottai Remix) (05:40)
+02. Herobust X CVPELLV - Urdno (Original Mix) (03:48)
+03. Chus & Ceballos - La Colombiana (Matt Sassari Remix) (06:55)
+04. Burkie - Show Me Love (Original Mix) (05:46)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 06:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51DAC8E33100D3E846A9CA77BD65D42EC3FB75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 239865   (464014) от 29.09.2010
+
+Андрей Макаревич - Коллекция легендарных песен (2010) [MP3|320 kbps]<Русский рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лет 30 тому назад (4:00)
+02. Из-за угла (5:03)
+03. Вдалеке от высоких холмов (3:10)
+04. Было не с нами (4:23)
+05. Новая опера (3:01)
+06. Нам, пожалуй, пора (4:08)
+07. Моя любовь (4:36)
+08. Птички и мошки (2:36)
+09. Ангел # 2 (4:10)
+10. Разговор на фоне бесконечной ночи (4:33)(   Читать дальше...   )Жанр: Русский рокПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407505   (463993) от 08.09.2020
+
+VA - Лучшие новинки сезона Vol.3 (осень 2020) (2020) [MP3|320 Kbps] <Club, Dance, Synth Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463993.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тина Корн - Закуришь (VDub) (03:30)
+002. O-Miami - Ai (Original) (03:23)
+003. Kamazz - На Колени Поставлю (Glazur & XM Remix) (03:21)
+004. Знаки вопроса - Улетаю (Maidas Remix 2020) (03:22)(   Читать дальше...   )Жанр: Club, Dance, Synth PopПродолжительность: 05:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D325700E970380416A99D8859DEDF249036B3079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568381   (463958) от 07.08.2022
+
+VA - I'm Listening Now 2 (2022) [MP3|320 Kbps] <Club, House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463958.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Little Niky - Я влюбилась, мам (XM Remix) (2:44)
+002. Мотель Венди, Techno Project, Geny Tur - Тик-так (Dance Mix) (3:07)
+003. Subbota - VVKV (Speed up) (2:43)
+004. SERPO - Мечта (2:41)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 08:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030C2C0D23811761374CAC9810FE71A3A66FBCC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568301   (463952) от 07.08.2022
+
+Kelly Clarkson - Compilation (2022) [MP3|320 Kbps] <Pop, Pop-Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Minute (Intro)
+02. Bad Reputation
+03. The War is Over
+04. Standing in Front of You(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 03:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115865C38E891740C77FFEC5F5791EC6889CAA80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059159   (463902) от 03.10.2016
 
 VA - 50 Golden Stars Songs (2016) [MP3|192-320 Kbps] <Disco, R&B, Classic Rock>
@@ -607,180 +787,6 @@ VA - My Favourite Hits of 1988 (13CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:430CBD7C3E48A8F7445AF677D082242772BC175D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059495   (462113) от 04.10.2016
-
-VA - Trance Peper Progect (2016) [MP3|320 Kbps] <Uplifting, Vocal, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462113.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A.R.D.I & Linnea Schossow - Your Everything (Extended Mix)
-002. Aurosonic, Denis Karpinskiy & Kate Louise Smith - They Wait For Us
-003. Christina Novelli - Where We Began
-004. Denis Kenzo & Vika - Reasons Why (Extended Mix)(   Читать дальше...   )Жанр: Uplifting, Vocal, Progressive TranceПродолжительность: 11:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA24EA33E76F153401828AE5BC6AF15C9D33180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059527   (461979) от 04.10.2016
-
-VA - Ibiza Workout 30 Fitness Hits Party (2016) [MP3|277-320 Kbps] <Reggaeton, Club, Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bunt Feat. Sons Of The East - Coming Home 04:18
-02. Dr. Alban - Hurricane (Raggaton Mix) 03:25
-03. Dimmi - No One Can 04:38
-04. Cash Cash Ft Sofia Reyes - How To Love 03:39(   Читать дальше...   )Жанр: Reggaeton, Club, VocalПродолжительность: 02:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1DC201317FBAE618A830162298D24230611191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059532   (461816) от 04.10.2016
-
-VA - Дорожный шансон с любимой музыкой. Часть 6 (2016) [MP3|128-256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461816.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олег Петелин - Для Друзей
-002. Артем Еременко - Выходи На Круг
-003. Любовь Попова - А Сердце Верит
-004. Олег Горте - Ты Моя Судьба(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6CF79F69ED63BFDD5F4227CABC5982CE39AB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568510   (461807) от 08.08.2022
-
-VA - Record Super Chart 06.08.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elley Duhe - Middle Of The Night (3:04)
-02. Purple Disco Machine feat. Sophie And The Giants - In The Dark (3:05)
-03. Robin Schulz, David Guetta - On Repeat (3:10)
-04. James Hype & Miggy Dela Rosa - Ferrari (5:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B051A1F49C0A12E27C9999D92848F2F5EF9C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059360   (461728) от 04.10.2016
-
-VA - Relaxation Well-Being and Serenity Music (2016) [MP3|320 Kbps] <New Age, Relax, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicolas Dri - Ouverture 06:13
-02. Nicolas Dri - Union Du Corps Et De L'esprit 08:33
-03. Nicolas Dri - Sagesse Innee 01:52
-04. Nicolas Dri - Trois Dimensions Part.1 01:51(   Читать дальше...   )Жанр: New Age, Relax, LoungeПродолжительность: 04:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C1B18371C10C7B98C01E2E6F257139835D86A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059458   (461726) от 04.10.2016
-
-VA - Vocal Jazz Lady (2016) [MP3|320 Kbps] <Vocal Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ceu - Perfume Do Invisível
-02. Nina Simone - The Other Woman
-03. Astrud Gilberto - Love For Sale
-04. Dinah Washington - Smoke gets in your eyes(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC71C5B284BDC8004C2FC9CC5789CCD4EF16117
 ```
 
 https://mybot314.ru/tekegram_catalog/

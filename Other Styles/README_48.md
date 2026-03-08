@@ -1,3 +1,32 @@
+###  Публикация: 1390882   (781881) от 18.06.2020
+
+Tim Buckley - Discography (1966-2001) [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тим Бакли (Tim Buckley, полное имя — Тимоти Чарльз Бакли III (Третий)) 14 февраля 1947 — 29 июня 1975) — американский исполнитель и автор песен. Его музыка и стиль менялись на протяжении всей карьеры; первый альбом (Tim Buckley, 1966 год) был ориентирован в основном на фолк, но со временем музыкант перешёл к джазу, психоделии, фанку, соулу и авангард-музыке, развивая (   Читать дальше...   )01. I Can't See You (2:43)
+02. Wings (2:34)
+03. Song of the Magician (3:09)
+04. Strange Street Affair Under Blue (3:13)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E597E8BBD2B15538AB0D5B98236FE40D42E0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 50989   (781784) от 18.06.2020
 
 Николай Парфенюк - Собрание заблуждений - 2000
@@ -713,35 +742,6 @@ Hennie Bekker - Kusasa (1999) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDE68841081424E8F06C3AD782D9051FA389BDD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210407   (778720) от 03.03.2018
-
-Hennie Bekker - The Smoke That Thunders (1997) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Freedom Dance 6:11
-02. Nkana 5:49
-03. The Marketplace Hustle 4:30
-04. 10 Miles To Sakenia 5:37(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6EB258D4886EC41C347EF40CA3D8709F86CB6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

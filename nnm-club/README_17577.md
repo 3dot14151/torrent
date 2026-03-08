@@ -1,83 +1,25 @@
-###  Публикация: 1184225   (303536) от 16.11.2017
+###  Публикация: 1184143   (303608) от 16.11.2017
 
-Arrayan Path - Dawn Of Aquarius (2017) [MP3|320 Kbps] <Epic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equilibrium
-02. The Flower Born Of Itself
-03. Dark Daughter Of The Snake
-04. The Hundred Names Of Kali Ma(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88007C3F068B9E72A568D1DB8F38B296D53994BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184017   (303535) от 16.11.2017
-
-VA - Italian Vacation: Radio Italo Disco (2017) [MP3|320 Kbps] <Disco, Italo Disco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303535.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Italove - No Fear (Flashback Remix)
-002. Italove feat. TQ - I Need Your Love (Extended)
-003. Mrs. Blue - Never Enough (BCR Extended Disco Mix)
-004. Maxthor - Flamingos (New Extended Version)(   Читать дальше...   )Жанр: Disco, Italo Disco, PopПродолжительность: 12:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23DB7D68ECAABF17C6032C72CFC77DD22025AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184193   (303534) от 16.11.2017
-
-VA - Best of Deep House. Volume 8. The Unofficial Chords of Planet Ee [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep House>
+VA - New Trance Vocal (2017) [MP3|320 Kbps] <Vocal Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303534.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Solid Torry Deep - Ultraman [6:22]
-02. Gnork - The Unofficial Chords of Planet Ee [5:50]
-03. Techno Kid - Hypnosis [2:00]
-04. DeftoN - Single Journey [5:36](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:59:52
+01.  Frainbreeze feat. Ellie Lawson - I Pray (Extended Mix)  5:14
+02.  Attila Syah & Cari - Dark Side Of The Moon  6:28
+03.  Tau-Rine feat. Alaera - In The Memory (Original Mix)  6:23
+04.  Tom Exo feat. Jeena B - Sure Thing (Kiyoi & Eky Remix)  6:31(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:25:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C77FEE5E3C4BA78CD7DC3D3EB83325DEC539F939
+magnet:?xt=urn:btih:AD1BB6A786D8DA8CD38C69585F349439F6BFD04A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184064   (303533) от 16.11.2017
+###  Публикация: 1184151   (303607) от 16.11.2017
 
-Вечерний Ургант (2017.11.15) SATRip
+VA - Aly & Fila - Future Sound of Egypt 522 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303533.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:50Реклама: Присутствуют вставки текстовой рекламы
+01.Solid Stone - Just About Right (Extended Mix)
+02.WONDER OF THE WEEK: Stereo Underground feat. Sealine - Flashes (Extended Mix)
+03.Stan Kolev - Rapture (Original Mix)
+04.Grum & Josep - The Love You Feel (Matan Caspi Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:57:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30004488D3D768B80BF353FCA973D1A9F08D20FD
+magnet:?xt=urn:btih:9E177E216622C7069D9BC603C914966619A644DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +56,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184035   (303532) от 16.11.2017
+###  Публикация: 1184068   (303606) от 16.11.2017
 
-Privacy Eraser Free 4.30.2 Build 2415 + Portable [Multi/Ru]
+VA - Club Ibiza House Sounds (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Starfuckerz - Come Out & Play (Vocal Mix) 06:41
+02. Beverly Hills - Epestra (Original Mix) 05:05
+03. Brett Gould - Reflections (Original Mix) 06:53
+04. Pedro Aguiar - Fish Tank (Original Mix) 07:52(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 03:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506A6B0CE9C9F1DD3F514CF31E08EFAD61C63EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184179   (303605) от 16.11.2017
+
+Chromium 64.0.3268.0 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303532.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Инструмент для очистки системы от мусорных файлов и реестра от ненужных записей. Позволяет уничтожить следы работы с web-сайтами, локальными документами, программами и т.п. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК, а также позволяет настроить очистку системы "под себя".Язык интерфейса: Русский, Английский, др.
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3D8B1C783537E0E8D8AA94BB7F3EDE65A45AE7C
+magnet:?xt=urn:btih:817799F6C1BEF3A7AF85CE2ADA8EF28FCE51667F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,395 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184145   (303531) от 16.11.2017
+###  Публикация: 1183828   (303604) от 16.11.2017
 
-Yes - Yes (1969) Reissue, 1989, Atlantic [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond And Before (4:58)
-02. I See You (6:53)
-03. Yesterday And Today (2:52)
-04. Looking Around (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE27532614A860E6CC88C393FC2270C71D8C418F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184010   (303530) от 16.11.2017
-
-Kinza Browser 4.3.0 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kinza Browser - японский браузер на базе Chromium с дополнительными настройками, такими как жесты мышью, супер перетаскивание, управление поведением вкладок, многофункциональная боковая панель (закладки, RSS, история).Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B76D25C9F1FF0DA97CB742E342AC20B55DD9F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184190   (303529) от 16.11.2017
-
-VA - Best of Chill House 2017. Volume 3. The Dream About You [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Chill House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Costa - Lolapalooza [5:35]
-02. Performative Mode - Path Of Motions [7:21]
-03. Marga Sol - Cafe del Amor [3:52]
-04. Freux - Bernie [6:04](   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 05:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F854BF1B54065963124B04071A722082D367043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183949   (303528) от 16.11.2017
-
-Gregg Wright's Left Hook - Round One (1995) [FLAC|Lossless|image + .cue] <Blues Rock, Extended Jams>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drivin' to New Orleans  (03:36) 
-02. Heidi Ann  (03:42) 
-03. Between Heaven and hell  (06:55) 
-04. .....or die trying  (06:41) (   Читать дальше...   )Жанр: Blues Rock, Extended JamsПродолжительность: 00:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25316495596121F9E0FED40895B6EB720B0F2407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184099   (303527) от 16.11.2017
-
-Схиархимандрит Гавриил (Бунге) | Гнев, злоба, раздражение (2014) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303527.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя:
-Евагрий Понтийский, как никто другой, разработал учение о гневе. Он был и великим учителем молитвы и мистической жизни. Схиархимандрит Гавриил анализирует то духовное ведение, которого достиг понтийский монах.Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27212D7A870BE8374973FA0D15A1B3FB68805B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184125   (303526) от 16.11.2017
-
-VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2017) [FLAC|Lossless|tracks] <Trance,Progressive House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Markus Schulz Presents Dakota - In Search Of Something Better (Extended Mix)
-02 Nifra - Never Forget (Extended Mix)
-03 Cosmic Gate & JES - Materia (Extended Mix)
-04 Gai Barone - Bus-Hill (Extended Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 02:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D761977B1714FB451DE23F2A2DF2BD6989A3F492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184188   (303525) от 16.11.2017
-
-Cavalera Conspiracy - Psychosis (2017) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303525.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 	Insane
-2. 	Terror Tactics
-3. 	Impalement Execution
-4. 	Spectral War(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD29A203F5056CB6A250E700E37C5B6E0C1886F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184176   (303524) от 16.11.2017
-
-VA - Vocal Dubstep: Radical Party (2017) [MP3|320 Kbps] <Dubstep, Bass, DnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ENiGMA Dubz - The Woods
-02. DJ Snake & Yellow Claw - Ocho Cinco
-03. Skrillex - Kyoto VIP (feat. Sirah)
-04. Teddy Killerz - Bhaaloo(   Читать дальше...   )Жанр: Dubstep, Bass, DnBПродолжительность: 03:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:138413204EA853534A7443C04C52B2449324D8AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184093   (303523) от 16.11.2017
-
-Харвест (изд.) | Акафистник [4 книги] (2007) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист - жанр церковной гимнографии, который представляет собой хвалебную песнь в честь Бога, Богородицы или святого. В настоящем издании содержится более 200 акафистов, включенных в обиход Рус­ской Православной Церкви.
-ВЖанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2D1286A26B190517A8BE216E3051AC73BF281B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183758   (303522) от 16.11.2017
-
-Fitness Forever - Tonight (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303522.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tonight (feat. Kidsaredead) (05:39)
-2. Dance Boys (feat. Paulita Demaíz) (03:45)
-3. Canadian Ranger (04:55)
-4. Andrè (05:09)(   Читать дальше...   )Жанр: Pop, Electropop, DiscoПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E659EC69B6D66511933CE80496B9BCDAB8A5CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184209   (303521) от 16.11.2017
-
-VA - The Dark Side Of The Noom (1995) [FLAC|Lossless|tracks] <Acid, Hard Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Clarke - Dark Side Of The Noom Intro (2:53)
-02. Commander Tom - Are Am Eye? (9:15)
-03. Mandala - Evolution (6:52)
-04. Nuclear Hyde - Observer (5:47)(   Читать дальше...   )Жанр: Acid, Hard TranceПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3081BB92372BBD71CC71368FFD77658125B30E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184021   (303520) от 16.11.2017
-
-VA - German Top 100 Single Charts 17.11.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303520.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bausa - Was du Liebe nennst
-002. Camila Cabello - Havana (feat. Young Thug)
-003. Post Malone - rockstar (feat. 21 Savage)
-004. Ed Sheeran - Perfect(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A81440146030A302F3B84D0377D654B311DDCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184045   (303519) от 16.11.2017
-
-Password Vault Manager Enterprise 4.6.0 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Password Vault Manager Enterprise позволяет вам и вашей команде централизованно управлять вашей организацией хранения паролей и использовать одну систему шифрования репозитория хранения паролей и секретных данных. Управление безопасности пользовательских прав и доступа, позволяет сократить число обращений в службу поддержки и укрепления безопасности сети путем создания (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2017Разработчик: DevolutionПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810D0504A7E33641CFB354E2FD81832A3192C8A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961059   (303518) от 30.11.2015
-
-Humphrey Lyttelton - Humph Plays Standards (1960) 2014, Solid Records[FLAC|tracks+.cue]<Swing, Mainstream Jazz>
+Sam Taylor Quartet - Along The Way (2017) [FLAC|Lossless|WEB-DL|tracks] <Saxophone Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303518.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Love For Sale [04:43]
- 02.Prelude To A Kiss [03:35]
- 03.Ida, Sweet As Apple Cider [03:08]
- 04.Willow Weep For Me [04:28](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:37:01
+1. Make Someone Happy - 4:30
+2. Fats Flats - 5:08
+3. On the Trail - 6:27
+4. Where Are You - 9:23(   Читать дальше...   )Жанр: Saxophone JazzПродолжительность: 00:55:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1F43EBCA1A1F267A2C60E6FA94669AF3B89C126
+magnet:?xt=urn:btih:E056B04A5C96669D9BB63DF68CAED221BE84D57E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,109 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 961038   (303517) от 30.11.2015
+###  Публикация: 1184191   (303603) от 16.11.2017
 
-К. Минаев | Городские гости (1928) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просто и вместе с тем серьезно написаны два рассказа "Городские гости", хотя автор и берет темой их острые вопросы современности. Он дает легкиё изящные наброски деревни, где новый быт не выпирает, не кричит о себе, и не может он еще кричать, а намечается и художественно тонко сквозит в картинах из жизни деревенских ребят.
-
-Для детей среднего возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5807D3576F175E36F58E756FA29999543440B732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961034   (303516) от 30.11.2015
-
-Юрий Воищев | Я жду отца (1972) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пролог.
-Мальчик проснулся рано. Он долго лежал, не открывая глаз. Сегодня был день его рождения, и мальчику казалось, что, если долго-долго полежать с закрытыми глазами и задумать что-нибудь,— все обязательно исполнится. В комнате плавало спокойное дыхание матери и равнодушное похрапывание бабки. Мальчик загадал: если утро — солнечное, его желание обязательно сбудется... (   Читать дальше...   )Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07CD9FE6D373C4FDEB169A4E549CDE0583317D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961040   (303514) от 30.11.2015
-
-К. Минаев | По отцовской дороге (1927) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3169C8BB0E63130885342CF63167CBE3EA31902C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961047   (303512) от 30.11.2015
-
-VA - Sentimental Island (2015) [MP3|320 кб/с]<Chillout, Longe Jazzy, Downtempo>
+VA - Best of Deep House. Volume 7. Wizard of Love [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303512.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303603.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. James Walden - Mirando El Mar - Original Mix
-002. Peter Pearson - Under the Influence
-003. The Magical Corner - Laguna
-004. Jazzoman - Gente - Original Mix(   Читать дальше...   )Жанр: Chillout, Longe Jazzy, DowntempoПродолжительность: 08:12:24
+01. Alex Agore - Message (feat. Verodna) [6:44]
+02. Petr Serkin - Flying Jam [5:22]
+03. Christian Prommer feat. Adriano Prestel - Tin Man (RJ remix) [4:51]
+04. Ricky Rough - Chillin In The Sunshine [7:36](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:53:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39D85D8C3AD713A7B2FFE98E91B53EEEA88F6C63
+magnet:?xt=urn:btih:043379F59C7CEE7AE2F02A0E5091552091B6A2E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,27 +169,236 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 960601   (303510) от 30.11.2015
+###  Публикация: 1183899   (303602) от 16.11.2017
 
-Rafau Etamski - Remember To Forget (2015) [MP3|320 кб/с]<Drum & Bass>
+MØ - When I Was Young (2017) (EP) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roots
+02. When I Was Young
+03. Turn My Heart to Stone
+04. Linking With You(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762E074617CE0A05BE1675E46A7DBA8A2E9D6A2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183922   (303601) от 16.11.2017
+
+EasyPing - network tool 2.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303601.jpg" />
+</div>
+
+
+###  Подробнее
+
+EasyPing - это сетевой инструмент для проверки того, доступен ли конкретный хост в сети IP. Эта сеть может быть IPv4 или IPv6. Он работает, отправив ICMP-пакеты на хост и прослушивая ответы ICMP. Этот инструмент оценивает время прохождения в оба конца, обнаруживает потерю пакетов и распечатывает статистическую сводку.
+
+Просто введите имя домена или IP-адрес (IPv4 (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2017Разработчик: GmagonПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077DF84789B2B53FD34F45DB3F08CB5C609F979E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333436   (303600) от 25.10.2019
+
+iA Writer 5.3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2019Разработчик: Information Architects Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D561380F9D9429E06D3FDDE055A8ED30BCEC8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333505   (303599) от 25.10.2019
+
+Lionel Hampton - Three Classic Albums Plus 1954 - 1955 (2009) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303599.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Avalon [8:24]
+02. Just You, Just Me [6:34]
+03. Blues For Benny [7:44](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 02:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE3FD02DE921097DD26CB3667B5B971FEC6703F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583292   (303596) от 06.12.2012
+
+Opera IX - The Black Opera, Simphoniae Misteriorum In Laudem Tenebrarum (2000) [MP3|320 кб/с]<Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Act I: The First Seal - 09:39
+2. Act II: Beyond the Black Diamond Gates - 07:14
+3. Act III: Carnal Delight in the Vortex of Evil - 06:13
+4. Act IV: Congressus Cum Daemone - 10:24
+5. Act V: The Magic Temple - 04:16
+6. Act VI: The Sixth Seal - 07:50
+7. Bela Lugosi's Dead (Bauhaus cover) - 05:28Жанр: Symphonic Black MetalПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D98AC0E3A926EC9142E1C4A684054D312D3574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585536   (303594) от 06.12.2012
+
+Журнал | Consumer Reports. Top Phones №1 [январь 2013] [PDF] [En]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание - аналог отечественного журнала "Потребитель".
+Главная тема номера - смартфоны (сравнение возможностей, плюсы-минусы). Кроме этого:
+- тесты: ноутбуки на Win8, энергосберегающие лампы;
+- авто: новости, Chevrolet Volt - №1 в топе потребителей, тестдрайвы других авто.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C4CAF77217C3C5D7DF7382D9686987E5777E76E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585544   (303587) от 06.12.2012
+
+Антология | Волкогуб и омела [2011] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их герои - вервольфы.
+Волки-оборотни, охотящиеся на улицах крупных городов.
+Единственные порождения Ночи, способные достойно соперничать с "аристократами Тьмы" - вампирами.
+Сборник "Волкогуб и омела" будет интересен и старым поклонникам этих авторов - ведь в рассказах и новеллах, вошедших в него, действуют всеми любимые герои их сериалов - и читателям, только-только знакомящимся с произведениями этого нового, но уже имеющего миллионы и миллионы поклонников жанра...Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28197058B296A34B19BF7B8BC6FBDC8B822772C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585125   (303586) от 06.12.2012
+
+The Beatnix - It's Four You (1998) [MP3|320 кб/с]<Rock, Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303510.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Remember To Forget (Feat. Chantelle Rowe) (06:21)
-02. Good Habits (05:29)
-03. Hand To Hand (05:02)Жанр: Drum & BassПродолжительность: 00:16:52
+01. I'm in Love
+02. Nobody I Know
+03. If You've Got Troubles
+04. It's for You
+05. Hello Little Girl
+06. Like Dreamers Do
+07. Step Inside Love
+08. Woman
+09. That Means a Lot
+10. I Don't Want to See You Again(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:48:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B975FAF8EC0B513B2F6B1A11B973015F00CC76E
+magnet:?xt=urn:btih:B2870A6F47FF78CEF867000F14713A4176131030
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,25 +406,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 960994   (303508) от 30.11.2015
+###  Публикация: 585631   (303585) от 06.12.2012
 
-Политика. Специальный выпуск (2015.11.29) SATRip
+Лариса Ильина | Вредность не порок [2002] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сначала Стася Белорецкая, юная сельская учительница, укусила на пляже незнакомого мужчину. Затем в ходе борьбы с вооруженными бандитами некий красавец-мужчина попытался приставать к Стасе – и ей пришлось уронить ему на ногу тарелку с горячей едой. А когда она поняла, что по уши влюбилась в него, вдруг выяснилось, что Стасин любимый – вор и убийца. К тому же он использует ее чувства в корыстных целях… Что делать? Мочить его, однозначно!
+
+Долго не может решиться на это кроткая Стася. Но уж когда этот обманщик покусился на верного Стасиного друга и телохранителя ее мамы, она не выдерживает и начинает действовать…Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B94AD30A28CB39AE4FA68AFB78A10DCA133E3C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585634   (303584) от 06.12.2012
+
+Пусть говорят - Папины дочки (06.12.2012) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303508.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В студии программы «Политика» обсуждают последствия атаки на Су-24 и как после этого изменятся российско-турецкие отношения.Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 01:07:22
+«Пусть говорят» - ток-шоу Андрея Малахова - корифея яркого и феерического вечернего эфира. Гости программы «Пусть говорят» интересны и знамениты, обсуждаемые темы - актуальны и оригинальны.
+Участники шоу оставляют скучные фразы вне съемочной площадки и вступают в азартные дебаты. Программа претендует на звание информационно - аналитической, потому дискуссии не менее содержательны, нежели эмоциональны. «Пусть говорят» - место совершения настоящих метаморфоз - политики превращаются в простых людей, а простые люди - в политиков. О чем бы ни шел разговор, право голоса имеет каждый.Жанр: ТелепередачаПродолжительность: 00:51:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43383A2174067408943C39A8A36F111B1D5D7E82
+magnet:?xt=urn:btih:FE39AC481631A32720BB6AB02B330D1FA1871E48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,25 +461,278 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 960926   (303506) от 30.11.2015
+###  Публикация: 585721   (303581) от 06.12.2012
 
-Пропаганда. Авторское информационное шоу с Еленой Милинчич (29.11.2015) SATRip
+Anibal Palazolo - Flamenco Entre Cuerdas (2009) [MP3|320 кб/с]<Instrumental, Flamenco, Acoustic guitar>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Other Styles
+>>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303506.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каково быть соседом Турции? Пять фактов о Турции и политике Реджепа Эрдогана. Почему боевики ИГИЛ начинали свою жестокую игру на публику с казней журналистов? Злая ирония: в Брюсселе, где по соседству находятся штаб-квартира НАТО, Еврокомиссия и бар братьев Абдеслам, фактически ничем не закончилась операция по поимке главного подозреваемого в парижских терактах. (   Читать дальше...   )Телекомпания: нТвЖанр: Авторское информационное шоуПродолжительность: 00:25:51
+(3:53) 01. El Extranjero
+(3:30) 02. Silencio
+(3:14) 03. El Circo
+(2:11) 04. La Pequena Fiesta
+(2:49) 05. Sus Ojos En Mi Mente
+(3:40) 06. Noches Blancas
+(2:39) 07. Maestro Manolo
+(3:27) 08. Entre Cuerdes
+(3:52) 09. El Extranjero
+(3:05) 10. El Jinete(   Читать дальше...   )Жанр: Instrumental, Flamenco, Acoustic guitarПродолжительность: 00:47:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D5C391E39F8FAC2DDD112ACAB91FEA16758322B
+magnet:?xt=urn:btih:B382B98F1A383AFDB68B59EB1675D9316B4C5068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730656   (303566) от 05.12.2013
+
+Журнал | Allure [Россия] №11 (ноябрь 2013) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные темы журнала: мода, красота, украшения, здоровье, диеты, интервью с известными женщинами, гороскоп.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE923AF1F44AE698335EEFF1D9D5F9EEA81528E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333441   (303558) от 25.10.2019
+
+File Juicer 4.80 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303558.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Juicer - уникальная программа, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF,, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
+
+File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2019Разработчик: Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53E913DD60E7B37A90D771A44D8F3CFA3A3B0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333459   (303557) от 25.10.2019
+
+File Cabinet Pro 7.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303557.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Cabinet Pro - файловый менеджер строки меню Mac OS. Программа позволяет быстро перейти к нужным файлам, не загружая рабочий стол. Открыть, переместить, переименовать, сжать, добавить теги, удалить, копировать и многое другое, все из строки менюбар. Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Writes All Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4391AFE09AE9EE9A5FA05020220C4C9B820A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333509   (303556) от 25.10.2019
+
+Go64 1.0.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстро просканируйте свой диск на наличие приложений, посмотрите, какие из них 32-разрядные, и найдите информацию об обновлении одним нажатием кнопки.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: St. Clair SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83819C9B0CC0F4CC521779F4BEB674D588DDE736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333577   (303555) от 25.10.2019
+
+Record Lectures 3.1.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Record Lectures была разработана с целью помочь тем, кто ведет запись лекций, встреч и бесед, чтобы иметь возможность сохранять их в календаре, снабжать текстовыми комментариями и в дальнейшем использовать.
+
+Приложение Record Lectures может быть востребовано учениками и студентами, а так же людьми посещающими встречи и конференции. Простота эксплуатации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2019Разработчик: iLifeTouch.comПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Русский, Английский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C642B37F5F8048962B5602E31B3C1E80DCA67710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333348   (303554) от 25.10.2019
+
+Линкольн Пирс | Нейт Всемогущий во всей красе (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нейт знает, что ему уготовлено судьбой нечто большое. ОЧЕНЬ БОЛЬШОЕ и ЗНАЧИМОЕ. Но жизнь не всегда идет по плану или так, как тебе хотелось бы, просто потому, что ты очень клевый. Проблемы каким-то образом все время находят Нейта, но он никогда не сдается. Он знает, что он великолепен (так было написано в его печенье с предсказаниями). Все любители «Дневника Слабака», (   Читать дальше...   )Жанр: Детская литература, приключенияПродолжительность: 01:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67CD4DC4A9109BCE3AB0D457218B1900606862E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333537   (303553) от 25.10.2019
+
+Q-Dir 7.91 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1E9D81E98ECA194B65A4E7DFB2F70BD4CBA8F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333463   (303552) от 25.10.2019
+
+Matthew Collings - Uzonia (2019) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cambridge Analytica (01:15)
+ 02. Weapon Opens Time (03:55)
+ 03. Digital Ruins, Forgotten Future (05:53)
+ 04. S Wave (04:35)(   Читать дальше...   )Жанр: Ambient, Acoustic, ExperimentalПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216EA0F11FF6B5E1B130DD266E545C9EEB8A6F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333551   (303551) от 25.10.2019
+
+AirMail 3 v3.6.72 (556) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
+
+По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2019Разработчик: Bloop S.R.LПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2463CD474CC4227A02A37CD28CE080E048809B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

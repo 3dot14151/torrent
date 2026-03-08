@@ -1,32 +1,3 @@
-###  Публикация: 992925   (895530) от 05.03.2016
-
-Tonight Alive - Limitless (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Alt.Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Be Free
-02. Oxygen
-03. Human Interaction
-04. Drive(   Читать дальше...   )Тип издания: АльбомЖанр: Pop Rock, Alt.Rock, Female VocalПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CD8C826F7AE3A822AFE5B120792DBBF7080674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493572   (895407) от 03.09.2021
 
 Imagine Dragons - Mercury: Act 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Electronic>
@@ -738,6 +709,35 @@ Nickelback - No Fixed Address + Feed the Machine (2014, 2017) Album + Single [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BA9CAA3021E36FE3DC10C8F5089FA3780C36C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993903   (894295) от 06.03.2016
+
+Cyranoi - Exist (2016) EP [MP3|320 кб/с] <Modern Metal, Metalcore, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abiogenesis (04:46)
+02. Pioneers (04:19)
+03. Flesh And Mind (ft. Sithu Aye) (04:17)
+04. Avarice (05:49)(   Читать дальше...   )Жанр: Modern Metal, Metalcore, Progressive MetalПродолжительность: 00:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D71BE10EFCC44F9D108C67C0D96FE3D2F15C96
 ```
 
 https://mybot314.ru/tekegram_catalog/

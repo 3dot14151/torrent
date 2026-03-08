@@ -1,3 +1,32 @@
+###  Публикация: 1628260   (242086) от 23.04.2023
+
+P.O.S. - Deeper Tales (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.O.S. - Is It OK? (Extended Mix) [5:17]
+02. P.O.S & anamē & Ercola feat. Richard Walters - Good People (Extended Mix) [6:52]
+03. P.O.S. - Thunder & Sunshine (Extended Mix) [5:56]
+04. P.O.S. & Spencer Brown - Polar Bears (Extended Mix) [6:44](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730E0D3288E5DF95010821C94EBF46CA638085F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635354   (241627) от 26.05.2023
 
 VA - We Love Summer Vol. 1 (Ibiza Deep House Edition) (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -716,35 +745,6 @@ VA - Best Collection Of The Year - OMNE ONE (2023) [MP3|320 Kbps] <Progressive H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB72004F4EB9411FE0EA6A92424D765DE57CE98A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630883   (236993) от 03.05.2023
-
-VA - Senssual Miami (2023) CD, Compilation [MP3|320 Kbps] <House, Funky House, Nu-Disco, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiva - Physical Aspects (Original Mix)
-02. Mariam, David Jager - Para Siempre (Original Mix)
-03. Coxswain - Take Me Home (Original Mix)
-04. Juan Chousa - Bring Me My Love Today (Original Mix)(   Читать дальше...   )Жанр: House, Funky House, Nu-Disco, Tech HouseПродолжительность: 02:50:11 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338ABC6B2703E9408AE54945AD9305D8D80995ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

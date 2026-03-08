@@ -1,29 +1,3 @@
-###  Публикация: 1328267   (365094) от 29.09.2019
-
-Скрипты - VideoHive - Explainer Video Toolkit 4.2 - 22594089 [FFX, JSX]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Explainer Video Toolkit 4.2 - самый большой шаблон для создания анимационных видео. В отличии от предыдущих версий, в этом шаблоне упрощена установка, теперь не надо возиться с файлом DUIK.Формат: FFX, JSX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF41B06BE788662412E03E4BDE3F98E8B44B785A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951263   (365075) от 28.10.2015
 
 Проекты - VideoHive - Your Best Product Promo [AEP]
@@ -679,6 +653,32 @@ New Year Card - проект для создания праздничной но
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E5AE11874E63889773ADDF421140F44CCE7B8D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177361   (362439) от 25.10.2017
+
+Проекты - VideoHive - Minimal Drawing Logo - 20313397 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minimal Drawing Logo - отображение вашего логотипа в рисованной анимации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE2B20480AFE51333A522B8478B44D239977C71
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,90 +1,3 @@
-###  Публикация: 1412825   (413836) от 01.10.2020
-
-Legion Of The Damned - Malevolent Rapture (2006) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Legion of the damned
-02 Death's head march
-03 Werewolf corpse
-04 Into the eye of the storm(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4270D32EEA8537091D14E037E518C2C74DF1E5E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412853   (413834) от 01.10.2020
-
-Fairyland - Osyrhianta (2020) [FLAC|Lossless|tracks + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Age Of Birth
-02. Across The Snow
-03. The Hidden Kingdom Of Eloran
-04. Eleandra(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7562F2480BD4B1BF22DD97BBAE75B5F7C4C4DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412937   (413832) от 01.10.2020
-
-DevilDriver - Dealing with Demons I (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep Away from Me [00:04:18]
-02. Vengeance is Clear [00:03:34]
-03. Nest of Vipers [00:03:57]
-04. Iona [00:04:15](   Читать дальше...   )Жанр: Groove Metal, Death MetalПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA39571871ECF713D2B5E9866027A6B9DF876920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412773   (413830) от 01.10.2020
 
 Heathen - Empire Of The Blind (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -312,41 +225,6 @@ https://mybot314.ru/tekegram_catalog/
 08. Порабощенные трудом (04:39)
 09. Дайте огня (05:38)
 10. Падение-взлет (05:10)(   Читать дальше...   )Жанр: New Wave, RockПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558646   (413676) от 10.10.2012
-
-Jeff Lynne (Ex. ELO) - Long Wave (2012) [FLAC|Lossless]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She
-02. If I Loved You
-03. So Sad
-04. Mercy, Mercy
-05. Running Scared
-06. Bewitched, Bothered and Bewildered
-07. Smile
-08. At Last
-09. Love Is a Many-Splendored Thing
-10. Let It Rock(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:27:22
 
 ## Скачать торент
 ```bash
@@ -762,6 +640,122 @@ Twenty One Pilots - Trench (2018) [MP3|320 Kbps] <Indie Rock, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D0DEFA3E01E2BF9AB609883BA1516120BEDFC6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167738   (412844) от 22.09.2017
+
+Redhouse - One More Squeeze (1976) [MP3|224 Kbps] <Hard Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got Love
+02. I Like Dancing
+03. Love Your Lady
+04. Little Paul(   Читать дальше...   )Жанр: Hard Rock, Progressive RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85662DBABB12B343DDD4C910432D9C7B2813525C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167894   (412835) от 22.09.2017
+
+After Tea - Jointhouse Blues (1970) Remastered, 2002, Progressive Line [MP3|320 Kbps] <Hevy Psych, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412835.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jointhouse Blues
+2. You've Got to Move Me
+3. I'm Here
+4. Someday(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D84668976D6332CAE4C313A618FD5E011058EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325619   (412801) от 15.09.2019
+
+Betraying The Martyrs - Rapture (2019) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignite
+02. Eternal Machine
+03. Down
+04. The Iron Gates(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937EA764989BE3A01D2CA67A74FD9F20FDA7447F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573453   (412761) от 31.08.2022
+
+Metallophobia by Peterson - Metallophobia (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speed Division (04:00)
+02. Dagger Day (04:07)
+03. Dig This Inferno (04:14)
+04. Eve Of Destruction (05:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CD2CB7C9106AA2B1A23C90900910153B887414
 ```
 
 https://mybot314.ru/tekegram_catalog/

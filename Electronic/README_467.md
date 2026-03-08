@@ -1,3 +1,61 @@
+###  Публикация: 1700472   (117027) от 17.02.2024
+
+VA - Redux Selection Vol. 3 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rob Binner - Blessing In Disguise (Extended Mix) [7:34]
+02. Air Project & Ruslan Aschaulov - Lost In The World (Extended Mix) [5:49]
+03. Masaru Hinaiji - I Need. I Feel (Extended Mix) [6:38]
+04. Alima x Nold - Somewhere In The Sky (Extended Mix) [5:57](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF317E9BFCED73928D9421D174FF4B6A51AC749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700435   (117021) от 17.02.2024
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 01 (2024) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alisha DJ - Forest Lake (Radio Edit) [3:43]
+02. Amir Rad - After The Flood (Original Mix) [6:00]
+03. Born 87 - Blame (Extended Mix) [5:56]
+04. Gosselt - In Too Deep (Original Mix) [3:40](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5780455A3DFA476EAA0133020AB89B0F003A705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700641   (117018) от 17.02.2024
 
 VA - Ultimate House Winter 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -688,65 +746,6 @@ Allie X - 2 Albums (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Canadian
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEC94E02F4BEE328F9A8A7B8079441EF08D9A024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702153   (115859) от 24.02.2024
-
-VA - A State of Trams Rotterdam, Netherlands (2024-02-05) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin van Buuren & Joris Voorn @ A State of Trams Rotterdam, Netherlands 2024-02-05:
-01. ARTBAT & Armin van Buuren - Take Off
-02. ID - ID
-03. Rebūke - Along Came Polly (Konstantin Sibold & Carmee & ZAC Remix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 00:25:00
-01. ALPHA 9 - Come Home (ID Remix)
-02. Kristiane - Hold You
-03. ID - ID(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:447C93EAA7E9BC449F873074AEB3592EA75D90C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702083   (115858) от 24.02.2024
-
-Two Friends - Big Bootie Mix Vol. 24 (2024-02-15) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Dre ft. Snoop Dogg - Still D.R.E. w/Kid Cudi ft. MGMT & Ratatat - Pursuit Of Happiness w/MEDUZA ft. GOODBOYS - Piece Of Your Heartw/ Over Easy - Rockstarw/Eminem - Without Me
-02. Martin Garrix & Sentinel ft. Bonn - Hurricanew/Whitney Houston - I Wanna Dance with Somebody (Who Loves Me) w/Morgan Wallen - Last Night w/Martin Garrix & Sentinel ft. (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4D45BFC22D56EBEB528C46815448537051DC7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

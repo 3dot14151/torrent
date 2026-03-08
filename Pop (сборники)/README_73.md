@@ -1,3 +1,32 @@
+###  Публикация: 1052344   (529069) от 13.09.2016
+
+VA - Только хиты Хит FM 6 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529069.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scooter Feat. Maidwell  -  Stargazer  3:34
+002. Aisha  -  Новое Поколение  3:49
+003. Макsим  -  Хорошо  3:34
+004. Ellie Goulding  -  Don't Need Nobody  3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F322EC4393C0BBB2286C60D4E0E4926314F82E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156173   (528486) от 06.08.2017
 
 VA - German Top 100 Single Charts 04.08.2017 [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Самые горячие летние хиты (2015) [MP3|256 кб/с]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AF5BD231D8FFCC0E191F313E4FC3F7D5765D781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561114   (516589) от 03.07.2022
-
-Tanita Tikaram - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twist In My Sobriety
-02. Make The Day
-03. Something New
-04. This Stranger(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA78F17E3DA49D6F0A17D6FCCD46E004AEA13DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1085506   (156998) от 22.12.2016
+
+The Chico Hamilton Quintet - With Strings Attached (1959) 2007, Collectables[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Something To Live For [03:57]
+ 02.Andante [02:31]
+ 03.Speak Low [02:29]
+ 04.Pottsville, U.S.A. [05:44](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062CCAA9DBA07ACA77313717D50CA70854275EB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085716   (156987) от 22.12.2016
 
 Dalindeo - Kallio (2013) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Rockabilly>
@@ -716,35 +745,6 @@ John Coltrane - Blue Train (1957) Remaster, 2014, Universal[FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51D24C9029E54402E48E1D3D303C6C33855AB068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084860   (154840) от 23.12.2016
-
-Santiago Lara - Flamenco Tribute To Pat Metheny (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Latin, Folk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154840.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Minuano
-2. Find Me In Your Dreams
-3. James
-4. Question And Answer(   Читать дальше...   )Жанр: Jazz, Latin, FolkПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E037BAF8243BFFE40D56C095770EE33F5B4C66D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

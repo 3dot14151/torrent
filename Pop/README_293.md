@@ -1,3 +1,61 @@
+###  Публикация: 1595805   (174335) от 07.12.2022
+
+Давид Тухманов - По волне моей памяти (1976) LP, Red Clear [MP3|320 Kbps] <Art Rock, Symphonic Rock, Classic Rock, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я мысленно вхожу в ваш кабинет (5:04)
+02. Из сафо (5:17)
+03. Из вагантов (3:03)
+04. Приглашение к путешествию (4:05)(   Читать дальше...   )Жанр: Art Rock, Symphonic Rock, Classic Rock, PopПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89CCFB21C68FAE0689A4C0E2476F696EFFE904A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595994   (174011) от 08.12.2022
+
+VA - DMC Essential Hits 2022 December (2022) 3CD, Compilation [MP3|320 Kbps] <Dance, Nu-Disco, Progressive, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174011.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. A1 & J1 & Tion Wayne - Night Away (Dance) (Clean)
+02. Alok Ella Eyre & Kenny Dope Fe. Never Dull - Deep Down (Radio)
+03. Atb & Topic & A7s - Your Love (9pm) (Clean)(   Читать дальше...   )Жанр: Dance, Nu-Disco, Progressive, Synth-popПродолжительность: 01:19:11 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595997   (174007) от 08.12.2022
 
 VA - DMC Essential Hits 2022 UK & USA Number Ones (2022) CD, Compilation [MP3|320 Kbps] <Dance, Disco, Synthpop, R&B>
@@ -685,63 +743,6 @@ Gina T. - Tokyo By Night (1990) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56D79AE694152165B0765349271EDEEC70C29561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670975   (171385) от 24.10.2023
-
-VA - Bravo Hits 8 (1994) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mo-Do - Eins, Zwei, Polizei
-02. The B.C. 52's - The Flintstones
-03. Masterboy - Feel The Heat Of The Night
-04. Fun Factory - Take Your Chance(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0545688C1C68C455B929E8A93E02416A7AFDBB64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671004   (171205) от 25.10.2023
-
-David A. Stewart Featuring Candy Dulfer - Lily Was Here (1989) [OGG Vorbis|480 Kbps] <Electronic, Jazz>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David A. Stewart feat. Candy Dulfer - Lily Was Here
-02. David A. Stewart feat. Candy Dulfer - Lily Was Here (Space Centre Medical Unit Hum)
-03. David A. Stewart feat. Candy Dulfer - Lily Robs The BankЖанр: Electronic, JazzПродолжительность: 00:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C0E19543B78F471427F70F663B70438E92D6E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

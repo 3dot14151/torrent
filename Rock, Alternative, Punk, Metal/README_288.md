@@ -1,32 +1,3 @@
-###  Публикация: 1200230   (795734) от 21.01.2018
-
-Mortes Saltantes - Yomi Kafeli (2013) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call From Yomi (Demo 1998)
-01 - Izanafi
-02 - Tsavulafi
-03 - Tofulafi(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D51C81A9E2A1A884A4FF3FEF852985B2E8898A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200390   (795731) от 21.01.2018
 
 Magnesium - Buried 'N' Live (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -745,6 +716,35 @@ The Gathering - Nighttime Birds (1997) 2CD remastered, 2008, limited edition [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5550B43DF2C9FD552F1E3D7EC24D576F9F5CE23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012035   (795450) от 29.04.2016
+
+Sunstorm - Edge Of Tomorrow (2016) Japanese Edition [MP3|320 кб/с] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795450.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Don't Walk Away From A Goodbye
+ 2. Edge Of Tomorrow
+ 3. Nothing Left To Say
+ 4. Heart Of The Storm(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B3225AA505F1635812149D479C819FCA0DB22ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

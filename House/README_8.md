@@ -1,3 +1,32 @@
+###  Публикация: 1101987   (892839) от 08.02.2017
+
+VA - The Best of 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medway - Trauma (Donatello Remix) 06:42
+02. Imran Khan - Buenos Aires (Original Mix) 08:43
+03. DP-6 - Reload (Rick Pier O'Neil Remix) 06:36
+04. Alfonso Muchacho - Until the End (Original Mix) 09:35(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, ProgressiveПродолжительность: 07:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB7B7D2467BE13FA40F4E316CF402E99BB4CB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 639417   (891389) от 05.04.2013
 
 VA - Tech-House Of Art 1 (18.03.2013) [MP3|320 кб/с]<House | Tech House | Minimal>
@@ -722,35 +751,6 @@ VA - Pump Up The House Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:416155A6B3242EB9B65037A9F10D70D96F17C231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105072   (878127) от 16.02.2017
-
-VA - EDM Invasion 5 (2017) [MP3|320 Kbps] <House, Electro House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Phun & Key - System Crash (Radio Edit)  3:05
-02.  Ronny Rox - Let's Go (Radio Edit) (feat. Tony T)  3:06
-03.  Ali Deger & Blackjax - I'm Spartacus (Radio Edit)  3:44
-04.  Derek Faze - Escape (feat. Avari) (Radio Edit)  3:30(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 02:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE45FBC802BD64863523A879AD71E9CFB0383DCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

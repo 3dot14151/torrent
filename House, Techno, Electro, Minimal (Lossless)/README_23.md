@@ -1,3 +1,90 @@
+###  Публикация: 1209040   (779675) от 24.02.2018
+
+Merovingian - Prøv å Forstå (The Remixes) (2018) Drift Deeper Recordings [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dovahkiin (Deepkomplekt Remix) (07:04)
+ 02. Dovahkiin (Metzler Remix) (05:57)
+ 03. Dovahkiin (Overcast Sound Remix) (07:58)
+ 04. Dovahkiin (Rich Weller Remix) (05:42)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D39DE1254F0F0E8605D624FCFFAFC53424179E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209114   (779535) от 25.02.2018
+
+VA - Zirkus Zirkus, Vol. 18 | Elektronische Tanzmusik (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boss Axis - Challenger (Alle Farben Remix) (6:08)
+02. Tarranado - Ain't Enough (Murat Acar Remix) (6:14)
+03. Panik Pop - Coax the Creature Out (Feat. Benjamin Galliers) (Club Mix) (6:19)
+04. Naturtalente - Mondlandung (3:04)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 06:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911AEDC87D38B01E79CD2C50C44287242523F607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209425   (779298) от 27.02.2018
+
+VA - Hed Kandi Anthems & Artwork (2010) [FLAC|Lossless|tracks] <House, Electro, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jamiroquai - Love Foolosophy (Knee Deep's Re-Edit) (6:15)
+02.Shakedown - At Night (6:43)
+03.Stone Bridge Feat. Therese - Take Me Away (Vocal Mix) (5:36)
+04.Soulshaker Feat. Lorraine Browne - Hypnotic Erotic Games (Soulshakers Orginal Club Mix) (6:43)(   Читать дальше...   )Жанр: House, Electro, DiscoПродолжительность: 05:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA07D00BEA66E49A891A6D3C5FB94A0093F9F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209512   (779230) от 27.02.2018
 
 Fritz Kalkbrenner - Drown (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
@@ -652,90 +739,6 @@ Soukie & Windish - Loom (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87370758E1195811D22091B9F7A39C33BA87EFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392306   (769385) от 25.06.2020
-
-Viill & Aura Minimum - Full Harvest (2020) Modern Nature [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viill - Lost SignalЖанр: Dub Techno, AmbientПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB6BAA61C35AD0916F92BC1725782BD0F09805B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392782   (769105) от 27.06.2020
-
-Soul Button - Phantom Existence (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind Pattern (3:07)
- 02. Imagine to Be Free (The Concept) (6:04)
- 03. Deception (7:00)
- 04. Awaken the Soul (feat Photographs.) (6:48)(   Читать дальше...   )Жанр: Electronic, Tech House, Deep Progressive HouseПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652818766EEA87CE6E33A7A59B5ADF0210151E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393190   (768487) от 29.06.2020
-
-Soul Button - Phantom Existence (Remix Edition) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utopia (Armen Miran Remix) (8:30)
- 02. Silhouettes (Clawz SG Remix) (7:15)
- 03. Shapeshifter (Matan Caspi Remix) (7:09)
- 04. Deception (Whirl Remix) (7:51)(   Читать дальше...   )Жанр: Electronic, Tech House, Deep Progressive HouseПродолжительность: 01:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5048BD084FAAFB8808BFF31A78658FD92DC6DBAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1436985   (1042559) от 03.01.2021
+
+VA - Best New Hype Drum & Bass (2020) [MP3|320 Kbps] <D&B>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надоели соседи, которые устраивают вечеринки до 4 утра, а потом в 6 просыпаются и начинают сверлить стены, двигать мебель, играть в футбол, устраивать кошачьи бои и снова веселятся до рассвета? Решение есть! И оно гораздо проще, чем всякие обращения в правоохранительные органы!001. Qzb And Phentix - Indigo Heart
+002. New Age Cult - Diamonds Never Break
+003. Phibes - Third Dimension
+004. Maduk And Lachi - Taking Control(   Читать дальше...   )Жанр: D&BПродолжительность: 09:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F371BAC9BAA962C1EF16EC7631FF7385CE5FDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437176   (1042300) от 04.01.2021
 
 VA - Club Techno Electronics: EDM Liveset (2020) [MP3|320 Kbps] <Techno, Electronics>
@@ -716,35 +745,6 @@ VA - Beatport Tech House: Electro Sound Pack #177-1 (2021) [MP3|320 Kbps] <Tech 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D86187F86C058DBE733CBA30C884C9B46C9EF8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440910   (1038060) от 20.01.2021
-
-VA - Beatport Trance: Electro Sound Pack #180-1 (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взрывная энергетика, неординарные образы, яркий аутентичный вокал, всё это ожидает нас в очередном сборнике транс-электроники от Beatport. С большим удовольствием рекомендуем этот микс почитателям Trance музыки и просто тем, кто предпочитает качественную электронную музыку.001. Rene Ablaze - Universe Undone
-002. Narel - Nomad
-003. Ciaran Mcauley - In Memory Of You
-004. Liam Wilson - At That Point In Time(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 11:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1001CD5D186B453C9B49C1FE79634772A337741F
 ```
 
 https://mybot314.ru/tekegram_catalog/

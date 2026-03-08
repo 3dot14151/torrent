@@ -1,3 +1,32 @@
+###  Публикация: 1408617   (454023) от 13.09.2020
+
+Stanley Cowell Trio - Close To You Alone (1990) DIW [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'D' Bass - IC Blues [5:56]
+02. Endless Flight [8:52]
+03. Close to You Alone [6:58]
+04. Equipoise [5:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963D3EB7BA5A7BEC27F5EAF70470279B01831C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408635   (454022) от 13.09.2020
 
 Stanley Cowell - Reminiscent: plus A Xmas Suite (2015) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -717,35 +746,6 @@ Archie Shepp - Four for Trane (1964) /1997, MCA Records/[FLAC|tracks+.cue]<Avant
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33A1514B9EB9D092DC377830DE8CE492B803133A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943413   (449691) от 03.10.2015
-
-Mildred Aubry - Caminho (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caminho (3:12)
-02. Amor Em Banho-Maria (3:06)
-03. Cancao Pra Voce (3:25)
-04. Filosofia (2:44)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF6B91077797110DCF2A426292E8EC08565E454
 ```
 
 https://mybot314.ru/tekegram_catalog/

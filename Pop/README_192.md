@@ -1,3 +1,58 @@
+###  Публикация: 1405085   (485484) от 29.08.2020
+
+VA - Relaxing Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey (Stripped Back) (02:51)
+02. Dua Lipa - Be the One (Acoustic) (03:12)
+03. Maisie Peters - Take Care of Yourself (Live Acoustic) (03:19)
+04. Jess Glynne - My Love (Acoustic) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 02:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1527E5BD937F2FE3FC8E348242832611667ACE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405190   (485308) от 29.08.2020
+
+Dua Lipa & The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [MP3|320 Kbps] <Pop, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Nostalgia (Joe Goddard Remix)Жанр: Pop, Electronic, DanceПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7A3D31D15B7291DAE976F16C38CBEC5BE3E8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937996   (485288) от 16.09.2015
 
 Lana Del Rey - Honeymoon (2015) [MP3|320 кб/с]<Indie Pop>
@@ -699,64 +754,6 @@ Olivia Newton-John - The Definitive Collection (2002) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3709AF4705BFA472127E6F63FAEDAF4D07CC8031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056274   (481667) от 25.09.2016
-
-DJ Piligrim - Om (2016) [MP3|320 Kbps] <Pop, Dance, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необычный концептуальный альбом, состоящий из авторских кавер-версий индийских мантр.01. Intro (Om Ganapataye Namah)
-02. Sita Ram (Sattva Reggae Mix)
-03. Om Namah Shivaya (Deep Sattva Dance Mix)
-04. Chami (Sattva Dance Mix)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE84807B49A5C3AA848F6D690EDCB445E1FB4562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938405   (481594) от 18.09.2015
-
-Lana Del Rey - Honeymoon (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeymoon
-02. Music To Watch Boys To
-03. Terrence Loves You
-04. God Knows I Tried(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FC7BEBD107D97237BB0F9E1D38BF00C78BFEED
 ```
 
 https://mybot314.ru/tekegram_catalog/

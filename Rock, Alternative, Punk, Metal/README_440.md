@@ -1,32 +1,3 @@
-###  Публикация: 1293763   (633756) от 05.04.2019
-
-Shabti - Trembling and Shorn (2019) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633756.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 	Shrouded And Veiled 	(5:32)
-2. 	Seven Billion Souls 	(8:34)
-3. 	Sanctify 	(7:29)
-4. 	The Oracle And The Architect 	(3:42)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF84F7CD4156EFBAC4D1C19DDB757E83565BB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293749   (633754) от 05.04.2019
 
 Accuser - Reflections (1994) [APE|Lossless|image + .cue] <Thrash Metal>
@@ -763,6 +734,35 @@ Def Leppard - Songs From The Sparkle Lounge {Japanese Edition} (2008) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24A410CAAB7A0E5080ABC99CE24F4E35680DB57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542861   (633444) от 09.04.2022
+
+Red Hot Chili Peppers - Unlimited Love (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Summer (3:52)
+02. Here Ever After (3:50)
+03. Aquatic Mouth Dance (4:21)
+04. Not the One (4:26)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB7D03A62216211712E60DF779DE90BCF2C5AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

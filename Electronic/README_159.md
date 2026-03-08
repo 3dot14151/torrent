@@ -1,3 +1,61 @@
+###  Публикация: 1391729   (771515) от 22.06.2020
+
+Mirage Of Deep - Discography 10 Releases (2009-2020) [MP3|320 Kbps] <Lounge, Ambient, Downtempo, Nu Jazz>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771515.jpg" />
+</div>
+
+
+###  Подробнее
+
+2009 - Deep Flow
+2010 - Luxury Living Room (EP)
+2010 - Talking To Stars (EP)
+2011 - Talking Earth(   Читать дальше...   )Жанр: Lounge, Ambient, Downtempo, Nu Jazz, Chillout, World MusicПродолжительность: 10:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1885A53D222E5B2401D446C97306039EF609F713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392085   (770712) от 23.06.2020
+
+VA - electronica@*.lv (2003) Ingus Baušķenieka Ieraksti [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Drum n Bass>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep-Z – Thin Science (07:00)
+02. Cafe2 – Plastic Hailstone Track (04:13)
+03. NGC-5128 – Cēlajiem Sapņiem Un Fabrikām (04:13)
+04. Civil – Thinking (07:44)(   Читать дальше...   )Жанр: Techno, IDM, Drum n BassПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAEB67C8302AD2D774638C7F1007C910E683A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392086   (770691) от 23.06.2020
 
 VA - electronica2@*.lv (2004) Ingus Baušķenieka Ieraksti [FLAC|Lossless|tracks+.cue] <IDM, Techno, Experimental>
@@ -680,64 +738,6 @@ VA - Tales From Another World Vol.1 - South America (2019) [MP3|320 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADA4DA44C3D0069E6D3447D5DE682BF13C834CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393190   (768487) от 29.06.2020
-
-Soul Button - Phantom Existence (Remix Edition) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utopia (Armen Miran Remix) (8:30)
- 02. Silhouettes (Clawz SG Remix) (7:15)
- 03. Shapeshifter (Matan Caspi Remix) (7:09)
- 04. Deception (Whirl Remix) (7:51)(   Читать дальше...   )Жанр: Electronic, Tech House, Deep Progressive HouseПродолжительность: 01:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5048BD084FAAFB8808BFF31A78658FD92DC6DBAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393234   (768480) от 29.06.2020
-
-Emog - Cosmic Cruising Tunes (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Emog & Martins Garden - Chronos 05:25
-02.Emog - The Spirit Tree 05:10
-03.Emog & beatfarmer - Karmarama 06:33
-04.Emog - Night Owl 06:16(   Читать дальше...   )Жанр: Psychill, Psydub, DowntempoПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9F3456FBDE3A68BE8F210845A9F6071B3B468E
 ```
 
 https://mybot314.ru/tekegram_catalog/

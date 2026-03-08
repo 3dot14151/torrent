@@ -1,3 +1,90 @@
+###  Публикация: 1557685   (539181) от 16.06.2022
+
+York - Indigo (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Balearic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Journey (3:21)
+ 02. Antigua (3:48)
+ 03. Out Of The Woods (ft. Scot & Millfield) (6:51)
+ 04. When You're Around (ft. SHEARS, Scot & Millfield) (3:21)(   Читать дальше...   )Жанр: EDM, Progressive House, BalearicПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6729211846C053FA26D0E20ECA99C362DF66683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154587   (539166) от 31.07.2017
+
+VA - 10 Years Of Universe Media (2017) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Universe Project & DCS - We Fall Down (feat Jennifer Wallace - Triple Dee remix) (07:18)
+02. Dawn Tallman - Find Strength (Dave Anthony vocal remix) (06:40)
+03. DeepCitySoul - Groove School (Grant Nelson remix) (07:25)
+04. Kathy Brown - Baddest Bitch (Ricky Morrison Vox) (07:02)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B109004DDA35CC89EBA3BD61731B2B95502C7335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050442   (538266) от 08.09.2016
+
+VA - Cabana Lounge (Deep Chilled Holiday Moods) (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matthew1626, Skyla J - I Pray feat. Skyla J (Original Mix)[08:28]
+02. Rene, JazzyFunk - I Wanna Know feat. Rene (Original Mix)[05:42]
+03. Fourfeet, Loui & Scibi, Lou Van - More Than Enough feat. Fourfeet [05:08]
+04. Ben Ashton - Keep Me Waiting (Original Mix) [06:05](   Читать дальше...   )Жанр: Chill House, Nu DiscoПродолжительность: 01:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E954621AC476579029CC8DB9404A03DE89E84000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312098   (536502) от 02.07.2019
 
 Lemon Jelly ‎ - Lost Horizons (2002) 2003, Japanese Edition [FLAC|Lossless|tracks + .cue] <Downtempo, Chillout>
@@ -654,99 +741,6 @@ Dinka - Innocence (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BED06CF7DCE3AB8C1C00BEA12D5845FDC79E3C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314747   (513887) от 19.07.2019
-
-Sonny Fodera - Rise (2019) [FLAC|Lossless|tracks] <Electronic, House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Moment (feat. Lilly Ahlberg)
-02. Scratch My Back (feat. Biscits)
-03. Give Me a Reason (feat. Janai)
-04. Been a Long Time (feat. Kideko & Alex Mills)(   Читать дальше...   )Жанр: Electronic, House, Tech HouseПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:290CFD8672F7CAC6ABD3B1634581667FE50B1C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932113   (509989) от 28.08.2015
-
-Moonbeam - Atom (2015) [FLAC|Lossless|WEB-DL]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonbeam - Atom (Original Mix) (7:06)
-02. Moonbeam ft. Irina Makosh - Still Believe (Original Mix) (7:50)
-03. Moonbeam ft. Aelyn - Shades Of Black (Original Mix) (7:07)
-04. Moonbeam ft. Avis Vox - 13th World (Original Mix) (5:45)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F106F2EDDA8433DCA7E065DF604417A25F860A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538421   (509485) от 23.08.2012
-
-МС Вспышкинъ & Никифоровна - Sex (2004) [FLAC|Lossless]<Trance, Euro-House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мегапроект «МС Вспышкин & Никифоровна» стал настоящей бомбой 2003 года, а хит «Колбасный Цех» («Шишки») танцевальным гимном питерской молодежи. После этого артисты стали широко известны за пределами Санкт-Петербурга, благодаря ряду хитов из альбомов «Секс» и «Шишки». Никифоровна (Дмитрий Чеков) разбился на мотоцикле 22 августа 2011, Диджей МС Вспышкин (Владимир Турков) умер от инфаркта в Петербурге через 3 месяца (14 ноября 2011).01. Sex :: 04:23
-02. Колбасный Цех 3 (Шишки) :: 04:29
-03. Колбасный Цех 2 :: 04:19
-04. Дискотэка :: 03:18
-05. Хорошо :: 03:34
-06. Новогодняя (Меня Прёт) :: 05:07
-07. МС Вспышкинъ & DJ Aligator - Davai, Davai :: 05:22
-08. МС Вспышкинъ & Slim Line - I'm Back (Вспышка 2003) :: 03:49
-09. КПП :: 04:56
-10. Бессоница :: 05:22(   Читать дальше...   )Жанр: Trance, Euro-HouseФормат: CD, Album, EnhancedПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

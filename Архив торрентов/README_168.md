@@ -1,3 +1,32 @@
+###  Публикация: 1466547   (1018412) от 30.04.2021
+
+Tetrarch - Unstable (2021) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Not Right 3:47
+02. Negative Noise 4:07
+03. Unstable 3:27
+04. You Never Listen 3:21(   Читать дальше...   )Жанр: Alt. Metal, Nu MetalПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7FE1DF97C85F948A9E7ABEFE5401BE9680885D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466640   (1018408) от 30.04.2021
 
 Calibre 5.17.0 + Portable [Multi/Ru]
@@ -648,32 +677,6 @@ MATLAB – это высокоуровневый язык технических
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E6D820E788E25D62FB907EAE2F1509B48C0FC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466619   (1018137) от 01.05.2021
-
-Rufus 3.14 (Build 1788) Stable + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6257157289890596D660760500DE434F556A8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

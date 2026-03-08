@@ -1,3 +1,32 @@
+###  Публикация: 1693579   (121176) от 24.01.2024
+
+VA - The Best Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+02. Denis Shapovalov, Alexander Vershinin - 14 Romances, Op. 34 No. 14, Vocalise (Arr. for Cello and Piano) (5:26)
+03. Sergey Bryukhno - Sonnet in C Major (1:25)
+04. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB33BF7266D84E59C71022F47965061171D3DEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694921   (120134) от 30.01.2024
 
 VA - Dramatic Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -706,35 +735,6 @@ Emma Shapplin - 2009 - Macadam Flower(   Читать дальше...   )Жан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C11115D3F116DF4117383CCF78297BBE47CCBE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721269   (109822) от 10.05.2024
-
-Architects (UK) - Unmasking My Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unmasking My Truth [00:01:39]
-02. Symphony of Self-Discovery [00:01:51]
-03. Unwritten Chapters [00:01:46]
-04. Becoming Who I'm Meant To Be [00:01:39](   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 00:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2422B90C345E23E987E2A504DADB26C46A9B3085
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 1084240   (220778) от 18.12.2016
+
+Sandra - Fading Shades (1995) [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_220778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fading Shades (Part I) (1:03)
+ 02. Nights In White Satin (3:36)
+ 03. Son Of A Time Machine (5:07)
+ 04. Won't Run Away (4:17)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3E61E505BF79CDF49BB403ECF2C9F53ADD0D2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586961   (220762) от 11.12.2012
+
+Tina Turner - The Collected Recordings - Sixties To Nineties [3CD Box Set] (1994) [MP3|320 кб/с]<Pop, Rock, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220762.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Let's Stay Together (5:17)
+ 2. What's Love Got To Do With It (3:46)
+ 3. Better Be Good To Me (5:10)
+ 4. Private Dancer (7:11)
+ 5. I Can't Stand The Rain (3:43)
+ 6. Help (4:30)
+ 7. We Don't Need Another Hero (Thunderdome) (4:15)
+ 8. Typical Male (4:15)
+ 9. What You Get Is What You See (4:27)
+ 10. Paradise Is Here (5:29)(   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BD959B68E06B01E766A179BBD63F410A3E1466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513844   (220547) от 01.12.2021
 
 Григорий Лепс - Честь имею! Высоцкий (2020) 5xCD [FLAC|Lossless|image + .cue] <Pop>
@@ -699,64 +763,6 @@ VA - Ballermann Opening Party Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E934E3812B6BA51217BE7A8C346BDFCDC2C3B33B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514160   (219334) от 02.12.2021
-
-VA - EFFECTIVE COVERS (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219334.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Going Deeper - Missing
-2. ONEIL - You're My Heart
-3. Denis First/KDDK - Rasputin
-4. Dj Antonio/Bertie Scott - Losing My Religion(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B11866A56364EF53B53ABB8EC9293CAF48A4A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269681   (219332) от 15.12.2018
-
-VA - Workout Dance 2019 (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elisabeat - Live It Up with You
-02. Afrochuck - Give It to Me
-03. Cola Girl - Move Your Body (Aruso Edit)
-04. Milkbar Rockers - Love Explodes(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD837B51408E997F7188C655817C92F8A47F566E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1793349   (20394) от 24.04.2025
+
+VA - Classic Road Trip Songs 100 Hits (2025) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Treasure
+02. Coldplay - Paradise
+03. Climie Fisher - Love Changes (Everything)
+04. Stevie Nicks - Edge of Seventeen (2016 Remaster)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA1B95F7293C1D45095D3187C1ACE58A0E5FD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793691   (20291) от 25.04.2025
+
+V.A. - Iconic 80s Pop Rock (2025) [FLAC|Lossless|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madonna – Material Girl
+02. Laura Branigan – Self Control
+03. Duran Duran – Hungry like the Wolf (2009 Remaster)
+04. Kajagoogoo – Too Shy(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18853C299DE57C58B88DA7974E6DABBEC8BF65E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793699   (20286) от 25.04.2025
 
 Patricia Kaas - 1987 - 2025 Une vie (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Music>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F893D28DC9252AE46740A15D58DE32E2FA4DEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798887   (17098) от 24.05.2025
-
-VA - Dance Pop Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Paul Feat. Dua Lipa - No Lie (03:41)
-02. Katy Perry - Firework (03:47)
-03. Spice Girls - Wannabe (02:53)
-04. Baby Queen - Buzzkill (03:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4031B61A180E44D2CB9EAAC2427816932299449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810676   (17058) от 05.08.2025
-
-Crystal Ice - In My Fantasy World (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make a Memory (4:40)
-02. You and Me (3:23)
-03. Lonely Rebel (3:58)
-04. All That I Need (4:09)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7485857C6C980039632527A12E0FB89FA0B0BD45
 ```
 
 https://mybot314.ru/tekegram_catalog/

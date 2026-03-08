@@ -1,3 +1,33 @@
+###  Публикация: 535123   (517626) от 15.08.2012
+
+Francesco Geminiani - Six Concerti Grossi, Op. 3: Christopher Hogwood & The Academy of Ancient Music (1986) [FLAC|Lossless]<Classical, Chamber Music, Recitals, Baroque Pe
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto Grosso No.1 In D Major
+01. Adagio     (01:28)
+02. Allegro    (03:04)
+03. Adagio    (01:30)
+04. Allegro    (02:26)Жанр: Classical, Chamber Music, Recitals, Baroque PeriodПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0A349D43E6507D0F71773BC742183068C34410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314024   (517024) от 16.07.2019
 
 Michael J. Burkard - Solar Symphony (2017) [MP3|320 Kbps] <Classical>
@@ -767,35 +797,6 @@ Intermezzo Op.117
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EEFA28FE5E5A65B1EE29B3D9640617881EEE598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 172670   (495450) от 25.08.2018
-
-Мужской вокальный ансамбль "Благовест" - Хвалите Господа с небес [MP3|320 kbps]<духовная музыка>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песнопения всенощного бдения
-01 Приидите, поклонимся (С.Рахманинов)
-02 Блажен муж (В. Тредьяков)
-03 Спаси от бед (Л. Панкратов)(   Читать дальше...   )Жанр: духовная музыкаПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524E889584FB56201094796405FE04DDB610E737
 ```
 
 https://mybot314.ru/tekegram_catalog/

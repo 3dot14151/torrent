@@ -1,32 +1,3 @@
-###  Публикация: 1277124   (786974) от 19.01.2019
-
-VA - Rock Legends vol.1: All-Time Greatest Rock Ballads (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Styx - Boat On The River
-02. Supertramp - Breakfast In America
-03. Status Quo - In The Army Now
-04. Eagles - Hotel California(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF54EAAEEA1264F818AA73327E9E52AC94262B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388301   (786895) от 05.06.2020
 
 Currents - The Way It Ends (2020) [MP3|320 Kbps] <Metalcore>
@@ -745,6 +716,35 @@ Oceans of Slumber - Blue (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:031633EC4C7F12551ED5AFE5A21597EF34B92F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123369   (786390) от 08.04.2017
+
+Mattias IA Eklundh Freak Guitar - The Smorgasbord (2013) 2CD [FLAC|Lossless|image + .cue] <Experimental Progressive Metal, Rock, Shred>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amphibians Night Out 03:31
+02. Musth 03:11
+03. Mattias - The Beautiful Guy 02:27
+04. Hells Bells 03:39(   Читать дальше...   )Жанр: Experimental Progressive Metal, Rock, ShredПродолжительность: 01:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2B48BF6EB765D4955E36CC5C3D233DEA40ADFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

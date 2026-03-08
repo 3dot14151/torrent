@@ -1,3 +1,61 @@
+###  Публикация: 1607465   (1044005) от 26.01.2023
+
+VA - GANGSTER MUSIC, Vol. 7 (2023) [MP3|320 Kbps] <Eurodance, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Slider & Magnit - Stacked
+2. TRITICUM - Petrunko 2.0
+3. NVTION PVNIC/KDDK - Hypnotizes
+4. VUDOO/Kolya Funk - Kruzak (Kolya Funk Remix)(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B4E7B8EC45290AB32D245096DFA0B70754761C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607546   (1043952) от 27.01.2023
+
+Mylene Farmer - L'Autre... (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agnus Dei
+02. Desenchantee
+03. L'autre
+04. Je t'aime melancolie(   Читать дальше...   )Жанр: Electronic, Pop, ChansonПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1546CF45AAD106B6EAE7A755032BFDCE6A085704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607590   (1043943) от 27.01.2023
 
 Steps - Platinum Collection (2022) 2xCD [FLAC|Lossless|image + .cue] <Pop, Dance>
@@ -689,64 +747,6 @@ VA - Romantic Collection. Golden (1995) [OGG Vorbis|480 Kbps] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD76047B251E8E250C35E77C4BBD7DA742121861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609818   (1042859) от 05.02.2023
-
-VA - Romantic Collection. Volume 3 (1997) [OGG Vorbis|480 Kbps] <Pop Rock, Swing, Blues Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beatles — Yesterday
-02. The Platters — Only You
-03. Lois Armstrong — Go Down Moses
-04. Frank Sinatra — Stranges In The Night(   Читать дальше...   )Жанр: Pop Rock, Swing, Blues RockПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B5B88A948D89085D94500A19B024CD07E3E8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609969   (1042856) от 05.02.2023
-
-Chilly - Devils Dance (1983) 2023 Reissue, Remastered, Unofficial [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devils Dance
-02. One Moment One Second
-03. Love On The Rebound
-04. Peep Peep(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832898A3436C54DA7F7C8E77C85C6DA7416DE163
 ```
 
 https://mybot314.ru/tekegram_catalog/

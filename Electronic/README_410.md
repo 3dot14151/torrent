@@ -1,3 +1,61 @@
+###  Публикация: 1268628   (226535) от 11.12.2018
+
+Woob - Tokyo Substrate Paradox (2018) Isometric [FLAC|Lossless|WEB-DL|tracks] <Ambient, Synthwave, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_226535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Novak 監視™ (1:21)
+02. ラン (5:39)
+03. 0.04 内部 (4:23)
+04. 79 Million Adversaries (5:16)(   Читать дальше...   )Жанр: Ambient, Synthwave, DowntempoПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9EFD02B1C5F010A3EBB3A5D4FB689A5AC16861F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268436   (226528) от 11.12.2018
+
+VA - Sunday Lounge Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_226528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artur Bayramgalin - Breath Of Spring (Original Mix) 3:48
+02. Jp-Juice - Le Soleil (Original Mix) 5:02
+03. Bob Zopp - Pink Toes (Original Mix) 6:00
+04. Frank & Dee - Party Coming Up (Original Mix) 3:52(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0082AA81C18849DEFBBBBDC17746477B980761B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268656   (226513) от 11.12.2018
 
 VA - The Best Of Suanda Voice 2018 (Mixed By Dennis Graft) (2018) [MP3|320 Kbps] <Trance>
@@ -680,64 +738,6 @@ ForstWölfin (ForstWolfin) - Elation Fungination (2019) [FLAC 2.0|44.1/24|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:550F76165E2E0942382419012AC0C213483047A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342171   (225429) от 01.12.2019
-
-Aly & Fila - It's All About The Melody (2019) [FLAC|Lossless|WEB|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila - It's All About The Melody (Original Mix) (6:10)
-02. Aly & Fila - Sands Of Time (Original Mix) (4:48)
-03. Aly & Fila with Deirdre McLaughlin - Gravity (Original Mix) (5:57)
-04. Aly & Fila - Plucked (Original Mix) (6:24)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C1ECC936855F894079D12D498F685231D3D7B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513336   (225357) от 28.11.2021
-
-VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [FLAC|Lossless|tracks + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giorgio Moroder - Chase (3:51)
-02. U2 - New Year's Day (3:57)
-03. Vangelis - Pulstar (3:51)
-04. Alan Parsons - Mammagamma (4:30)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E47E44865036DF70CD0F0C86875751CA865D02
 ```
 
 https://mybot314.ru/tekegram_catalog/

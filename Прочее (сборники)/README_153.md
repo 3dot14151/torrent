@@ -1,3 +1,119 @@
+###  Публикация: 1641994   (210509) от 25.06.2023
+
+VA - Music News vol.274 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210509.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arch Enemy - No Gods, No Masters (04:15)
+ 002. 2xA - Drunk (01:51)
+ 003. 3333 - До Скорого (02:37)
+ 004. AKBOYS - Поздравительная (03:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D27696F441F1FB9AFA5AB358AA499018026BB71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012901   (210126) от 01.07.2023
+
+VA - Nu Disco Vol.1 [Compiled by Zebyte] (2016) [MP3|320 кб/с] <Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_210126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything But The Girl - Missing (Kataa Remix) [06:27]
+02. Galantis - Runaway (Dave Brevi Remix) [05:51]
+03. Kaiserdisco - Night & Day [06:42]
+04. Glenn Dale - I Want U [05:51](   Читать дальше...   )Жанр: Nu DiscoПродолжительность: 02:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E4173C1CC5FA44E09670E7C451777EA8A965A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018826   (210047) от 01.07.2023
+
+VA - Nu Disco Vol.2 [Compiled by Zebyte] (2016) [MP3|320 кб/с] <Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_210047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madonna - Revolver (Maxim Andreev Mix) [05:52]
+02. Sasha Primitive - Love Me [06:52]
+03. Parajoe & Parajack - Rollercoaster (Toly Braun Remix) [05:53]
+04. Tanita Tikaram - Twist In My Sobriety (Maxim Andreev Mix) [04:29](   Читать дальше...   )Жанр: Nu DiscoПродолжительность: 03:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF652AF7E40DB1882106B92DE3E43A29FA182F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604478   (209989) от 14.01.2023
+
+VA - Дискотека 2023 Dance Club Vol. 214 от NNNB (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209989.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. KENSHI - Don't Let Me Down (2:52)
+002. Armin van Buuren & Davina Michelle - Hold On (Extended Club Mix) (6:14)
+003. TRITICUM - Champagne On Ice (2:09)
+004. Ragunde - Dizzee (2:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3412940D3429BDF38D1508C7EA468E08E14437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604852   (209960) от 15.01.2023
 
 VA - Club&Dance Зимние Треки 2023 Remix NNM [MP3|320 Kbps] <Pop, Dance, Other>
@@ -627,122 +743,6 @@ VA - Music News vol.286 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FECD7EF2E5F6DAB889570CADFC4469D5F8B4A15B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580654   (206756) от 02.10.2022
-
-VA - Shazam Хит-парад World Top 200 Сентябрь (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206756.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. JIN - Yours (4:24)
-002. Chris Brown - Under The Influence (3:06)
-003. David Guetta - I'm Good (Blue) (2:57)
-004. Sam Smith - Unholy (feat. Kim Petras) (2:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881BED85B763341E8C7C22582FDE22F697633441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652165   (206731) от 10.08.2023
-
-VA - Music News vol.288 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206731.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adelina - Дотла (02:56)
- 002. 3333 - ОПП (02:54)
- 003. Aleesha - Chulita (A Colors Show) (02:53)
- 004. Amirchik - Капелькою (03:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F0E02C2CBFAB7EA9F8FEA171A22130F792DD81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652143   (206621) от 10.08.2023
-
-VA - Best of Electro Pop 2023 (2023) [MP3|320 Kbps] <Electro Pop, Dance, Club, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiowankers - Other Side
-02. Cheese & Nuts - All Be One
-03. Chris Oldman - Passion (A C R & Symar Mix)
-04. DJ NiGhTwAlKeR - Unity(   Читать дальше...   )Жанр: Electro Pop, Dance, Club, ProgressiveПродолжительность: 03:06:27 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F004189AE9B07E4AFD6B372C33B74A000BD381A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652230   (206610) от 10.08.2023
-
-VA - Electronica 2023: Best Dance Music (2023) [MP3|320 Kbps] <Electro Pop, Dance, Club, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gelow - You Tell Me
-02. Dani Corbalan - No Tomorrow
-03. Real Nam - Closer
-04. Rob Helen - Close Your Eyes(   Читать дальше...   )Жанр: Electro Pop, Dance, Club, Future HouseПродолжительность: 00:56:06 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA207C5B21C63D6C9BDA6F05073B1343064A0FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

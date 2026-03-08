@@ -1,32 +1,3 @@
-###  Публикация: 1468059   (1017435) от 06.05.2021
-
-The Amorphous Androgynous & Peter Hammill - We Persuade Ourselves We Are Immortal (2021) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Prog Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Persuade Ourselves We Are Immortal
-02. Hymortality
-03. Immortality Break
-04. Physically I'm Here, Mentally Far, Far Away(   Читать дальше...   )Жанр: Psychedelic Rock, Prog Rock, Space RockПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07BBE06819D20F03C845773889B2ADDC8B1A3EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467393   (1017432) от 06.05.2021
 
 Лёша Закон (Алексей Глухов) - Тверь.Россия.Беспредел. (2005) Remastered, ultrazymotic, 2021 [MP3|320 Kbps] <Гоп-стоп-рок>
@@ -747,6 +718,35 @@ Work Force - Work Force (1989) Japanese Edition [FLAC|Lossless|image + .cue] <AO
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:887F2DFC6C63F4425808ECFB79B0FA06205F16AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468762   (1016933) от 09.05.2021
+
+A Rising Force - Undertow (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undertow
+02. Love and War
+03. Crushed
+04. Freaks(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C68FDC066503EB8062D912A78F5D494BCBCABD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

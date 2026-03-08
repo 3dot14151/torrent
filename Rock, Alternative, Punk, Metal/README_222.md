@@ -1,32 +1,3 @@
-###  Публикация: 1374929   (869095) от 12.04.2020
-
-Graveyard Disciples - Devil's Night (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Among The Tombs (Intro) [00:01:06]
-02 - Forsaken [00:03:45]
-03 - Dark River [00:03:53]
-04 - Mouth Of The Lion [00:04:26](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABC3F4D640BE45CBDF034666599EB41E7BD0F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375084   (869093) от 12.04.2020
 
 Era Divina - Reflecții Din Abis (2020) [MP3|320 Kbps] <Folk Symphonic Metal>
@@ -744,6 +715,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998063   (867798) от 20.03.2016
+
+Виктор Зинчук - Триумф гитары (2015) Compilation [FLAC|Lossless|image + .cue] <Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Попурри на темы В.А. Моцарта и Л.В. Бетховена (03:18)
+02. Итальянская полька (С. Рахманинов) (03:09)
+03. Марш Радецкого (И. Штраус) (03:56)
+04. Полька (М. Глинка) (03:26)(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:507F705CAC530C50A42CDA37DD04BD9BF36C65F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

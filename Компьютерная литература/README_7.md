@@ -1,108 +1,3 @@
-###  Публикация: 1849347   (1053554) от 22.01.2026
-
-Alex Vasilev | Python by Example (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053554.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book is dedicated to teaching the Python programming language, covering all the essential topics necessary to write effective Python code. It is designed to help readers learn by example, demonstrating how to create and use Python scripts through practical tasks and illustrative examples.
-The book is organized into eleven chapters. The first chapter introduces (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Independently publishedФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1460BA1825A4E5AE9D638F52BBAFFE079FE076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849243   (1053541) от 22.01.2026
-
-Helmut Vonhoegen | Excel. The Comprehensive Guide for Beginners and Power Users to Master Formulas, Charts, Pivot Tables, and More with Step-by-Step Examples (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053541.jpg" />
-</div>
-
-
-###  Подробнее
-
-If you’re using Excel, this is the all-in-one manual you need—brimming with solutions for every conceivable task! Learn how to design tables, use formulas to perform calculations, create analyses, graphically present your data, and share your results. With detailed coverage of both basic functions and advanced features, this book provides guidance for beginners and (   Читать дальше...   )Жанр: Компьютерная литература, ExcelЯзык: АнглийскийИздательство: Rheinwerk PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B4133F8C6DE68C612BA007A9745FF8A56C4BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849242   (1053540) от 22.01.2026
-
-Shakuntala Gupta Edward, Rahul Bhattacharya, V. Sinha | Enterprise Guide for Implementing Generative AI and Agentic AI. A Practical Guide to Developing, Deploying, and Operationalizing AI-Driven Ap ...
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Generative AI and Agentic AI together are revolutionizing the technology landscape, with profound and far-reaching impacts across industries. Organizations are increasingly adopting these technologies to drive innovation, enhance unstructured content management, and improve problem-solving capabilities. With Agentic AI, enterprises are moving towards the development (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллект, Компьютерные сетиЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19F94F7752E5841B63EE9CFA53D7EDDA41DC08E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849084   (1053453) от 21.01.2026
-
-Diego Oliva, Marco Antonio Perez Cisneros и др. | Initialization and Diversity in Optimization Algorithms (2026) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Designing new algorithms in swarm intelligence is a complex undertaking. Two critical factors have been seen to have a direct correlation with positive results. First is initialization, which serves as the initial step for all swarm intelligence techniques. Candidate solutions are generated to form the initial population, which are subsequently modified during the (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеЯзык: АнглийскийИздательство: CRC PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8017C893D235CF89668E23360C473D69EC53EA18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849223   (1053439) от 21.01.2026
 
 Papercut Limited | Home Networking. Tricks and Tips. 8th Edition (2025) [PDF] [EN]
@@ -678,6 +573,113 @@ Artificial intelligence is swiftly moving from a sci-fi future to a modern reali
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E983CFAFA9AF08C686D459750E235881CBB152AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849061   (1053227) от 21.01.2026
+
+Chris Minnick | Artificial Intelligence All-in-One (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053227.jpg" />
+</div>
+
+
+###  Подробнее
+
+A comprehensive roadmap to using AI in your career and in your life.
+Artificial Intelligence is everywhere. Major software organizations like Microsoft, Google, and Apple have built AI directly into products and invited the world to become part of the AI revolution. And it's impossible to use these tools to their fullest potential without understanding the basics (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD56D35BABA53A07DC8BA64218E695761D33F5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848906   (1053205) от 19.01.2026
+
+Stephanie Diamond | Writing AI Prompts For Dummies (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn the art of writing effective AI prompts and break into an exciting new career field
+Unlock the full power of generative AI with Writing AI Prompts For Dummies, a comprehensive guide that will teach you how to confidently write effective AI prompts. Whether it's text, images, or even videos and music you're aiming to create, this book provides the foundational (   Читать дальше...   )Жанр: Искусственный интеллект, Компьютерная литератураЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38AA45E5E13BB4FF50F14CA411BCBB98106F94BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848880   (1053016) от 19.01.2026
+
+Кристофер Тоттен | Левел-дизайн. Архитектурный подход и пространственное проектирование. 2-е издание (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053016.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге принципы создания игровых уровней рассматриваются в контексте архитектуры. Автор исследует различные архитектурные приемы и теории, которые можно применить в гейм-дизайне, акцентирует внимание на том, как разработчики формируют пространство и как игроки взаимодействуют с ним. Внутри представлены примеры популярных игр, а также советы от профессионалов (   Читать дальше...   )Жанр: Гейм-дизайн, Компьютерная литература, ПрограммированиеИздательство: БомбораФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10D162399106E99C9BAD389942D6A05C3BC7F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848878   (1053015) от 19.01.2026
+
+Брайан Керниган | Основы информационных технологий для неспециалистов: что происходит внутри машин (2024) [PDF, FB2]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все, что вам нужно знать о компьютерах, интернете, приватности и безопасности.
+Компьютеры окружают нас повсюду, включая бытовую технику, автомобили, медицинское оборудование, транспортные системы, электросети и оружие. Однако большинство из них остаются невидимыми, собирая и иногда сливая наши личные данные. Это делает нас уязвимыми для правительств, компаний и преступников, (   Читать дальше...   )Жанр: Компьютерная литература, Информационные технологииИздательство: БомбораФормат: PDF, FB2Качество: Изначально электронное (ebook), OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42FF5928D2C9F8651CC02381D4F2F16182DE8523
 ```
 
 https://mybot314.ru/tekegram_catalog/

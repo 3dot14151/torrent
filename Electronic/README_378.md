@@ -1,3 +1,61 @@
+###  Публикация: 1188961   (272211) от 04.12.2017
+
+VA - A State Of Trance - Future Favorite Best Of 2017 (Extended Versions) (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin van Buuren & Garibay feat. Olaf Blackwood  -  I Need You (Extended Club Mix)  5:30
+02.  Gaia  -  Saint Vitus (Extended Mix)  6:11
+03.  Super8 & Tab  -  Cosmo (Extended Mix)  5:27
+04.  Davey Asprey  -  Fallout (Extended Mix)  5:52(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F460346D2C51AAB2D9E6F6D9060C752CE0752B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265959   (272081) от 30.11.2018
+
+VA - Markus Schulz & Johan Gielen - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. Markus Schulz & Christina Novelli - Symphony of Stars (Markus Schulz Festival Mix)
+02. Viper - Titty Twister (Jam El Mar Retouch)
+03. Above & Beyond and Spencer Brown featuring RBBTS - Long Way from Home(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E3E6D5F1AFF158628731FB1F5FCA1B61EA37E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265963   (272070) от 30.11.2018
 
 VA - Vocal Trance Gems - Best of 2018 (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
@@ -687,64 +745,6 @@ VA - FG Top 10: November (2017) [FLAC|Lossless|tracks] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B871F41045F599C22787442324064249ADA39D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189332   (271051) от 05.12.2017
-
-VA - Deep Progressive 2017 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Stubbs - This Is Desire (Original Mix) 06:43
-02. Jssst - Moving Forward (Original Mix) 09:31
-03. Emran Badalov - Baku 2015 (Original Mix) 06:27
-04. Bravofox - Too Many Ninja (Original Mix) 07:08(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060EA706E6970009FAE64A4A71AF43FA3B012B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266280   (271048) от 01.12.2018
-
-VA - Trance Euphoria Vol.2 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myde - Nothing Without You (Radio Cut)
-02. Manida - Always Alone (Radio Cut)
-03. Philip Mayer - Centaur (Radio Cut)
-04. Philip Mayer feat. Justine Berg - Schiedam (Radio Cut)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 02:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE39C1056A3A65A6947FCD03D34E796B5C3B5381
 ```
 
 https://mybot314.ru/tekegram_catalog/

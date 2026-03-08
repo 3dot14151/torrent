@@ -1,3 +1,32 @@
+###  Публикация: 1286863   (707387) от 05.03.2019
+
+Liane Foly - Crooneuse (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - J'aime regarder les filles                 [03:38]
+02 - Voilà c'est fini                           [04:37]
+03 - C'est extra                                [04:36]
+04 - La boite de jazz                           [03:30](   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34CD2D11EF1E8FDB79FACC3F7BA499EE7EDBDD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287065   (707373) от 05.03.2019
 
 Arne Domnerus Group - Jazz At The Pawnshop 2 (1976) 1991, Proprius [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
@@ -716,35 +745,6 @@ Fredrik Kronkvist - Altitude (2003) Sittel Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33E89B45A52192973D34829494D9809B4EBFB257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287248   (705527) от 06.03.2019
-
-Bernt Rosengren & Claes-Goran Fagerstedt - Jazz Club 57 (1957 - 1962) 2000, Dragon Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Remember April [3:56]
-02. Willow Weep for Me [2:39]
-03. Sputnik [6:07]
-04. Well, You Needn't [5:37](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:469456C2F01ED6D19DCA6F841FD415FFC47D0722
 ```
 
 https://mybot314.ru/tekegram_catalog/

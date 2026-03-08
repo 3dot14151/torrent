@@ -1,3 +1,32 @@
+###  Публикация: 1047068   (550938) от 28.08.2016
+
+Shabala - Shabala (1998) [MP3|320 Kbps] <World, Tribal, Dance>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandala (3:04)
+02. Yeka Yeka (3:21)
+03. Samana (5:44)
+04. Santana (3:29)(   Читать дальше...   )Жанр: World, Tribal, DanceПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319E61BF907F16EE9F4D1BE5C623F46FE63775DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237750   (550552) от 25.07.2018
 
 Nigel Stanford (John Stanford) - Discography (1999-2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
@@ -713,35 +742,6 @@ Suren Asaduryan - Horovel (2005) [MP3|320 kbps]<Instrumental, Duduk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B142419C160A5DF67C47F3474B56FE08D1E65E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153969   (542654) от 29.07.2017
-
-Brian Tyler - Мумия / The Mummy (2017) Dеluхе Еditiоn [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mummy (4:30)
-02. The Secret of the Mummy (4:42)
-03. Nick's Theme (2:04)
-04. Prodigium (2:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C248E98BBA3A3FC46CE0A66196AB16F0A80ECD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1463275   (1020612) от 17.04.2021
+
+Benjamin Wallfisch - Mortal Kombat (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020612.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
+[07:15] 02. Hanzo Hasashi
+[02:25] 03. Lord Raiden
+[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791E872225D831DF5A60916000F34612AC79609B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463276   (1020456) от 18.04.2021
 
 Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
@@ -718,35 +747,6 @@ Elbosco - Angelis (1995) [FLAC|Lossless|image + .cue] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D26D2CDB7DDB8FD0C4B359DD1F1B4A3D8FB827B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472923   (1014013) от 27.05.2021
-
-Llynya - The Guiding Light - Celtic Mantras (2002) [FLAC|Lossless|image + .cue] <Celtic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Northern Star 4:03
-2 Come And Lay Down 6:10
-3 At Home 4:36
-4 Fare Thee Well 6:21(   Читать дальше...   )Жанр: Celtic, New AgeПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F87231602CCD8D93E93485D1A6070A09821C5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

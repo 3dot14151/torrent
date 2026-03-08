@@ -1,3 +1,119 @@
+###  Публикация: 1548094   (237930) от 02.05.2022
+
+VA - Shazam Хит-парад World Top 200 Апрель (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237930.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Harry Styles - As It Was (2:45)
+002. Camila Cabello, Ed Sheeran - Bam Bam (4:16)
+003. Nirvana - Something In The Way (3:51)
+004. Glass Animals - Heat Waves (3:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DC1F20C25B199E81BC6276C10A9DDF6070551B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640314   (237449) от 17.06.2023
+
+VA - Bedroom Jams 2 (2023) [MP3|320 Kbps] <Pop, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_237449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tank - When We (5:35)
+02. The Weeknd - The Morning (5:19)
+03. The Weeknd - The Zone (5:15)
+04. H.E.R. - Slide (Remix) (feat. Pop Smoke) (4:57)(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 03:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC6E49750D327630D4A3034CA9F1FFAFFE3F11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630812   (237098) от 02.05.2023
+
+VA - Funky Music Sunshine The Groove (2023) [MP3|320 Kbps]  <Indie Dance, Club Music, Nu Disco, Funky House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Block & Crown feat. The Soulboyz - Ain't No Mountain High Enough (Original Mix)
+02. GhostMasters & The GrooveBand - I Kissed The Girl (Extended Mix)
+03. Da Funk Junkies - Funk All In Your Mind (Radio Edit)
+04. Discoloverz & Rick Marshall - Back From Outta Space (Original Mix)(   Читать дальше...   )Жанр: Indie Dance, Club Music, Nu Disco, Funky HouseПродолжительность: 02:52:45 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16486F6388EDD05683993B22529BF373FD0CD91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630945   (236495) от 03.05.2023
+
+VA - Music News vol.259 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236495.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ANNA ASTI - Верю в Тебя (04:10)
+ 002. 52Ghz feat. Pakseeva - Выстрелил в Упор (02:19)
+ 003. 3333 - Повелась (02:48)
+ 004. A Boogie Wit Da Hoodie feat. DJ Spinking - Timeless (Sped Up Version) (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7D24AE7BF326FE81AB7A2494854630897CBDFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631571   (235877) от 08.05.2023
 
 VA - Музыка для машины Vol.14 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -627,122 +743,6 @@ VA - Русские Хиты 5 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B75E8B68A7704399446711CB9F263D77C7F10095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637250   (230767) от 04.06.2023
-
-VA - Музыка для машины Vol.23 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Decibels - Na Na Na (02:49)
-02. Perfecta - Просто Перегорели (02:52)
-03. The Lena - Платье Цвета Неба (01:55)
-04. Чай Вдвоём - Нежная (02:59)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D542414CD0F29C858C8EEF457A7F3CCD8622B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637501   (230746) от 04.06.2023
-
-VA - Музыка для машины Vol.24 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teemur Feat. & Easy Mental - Не Доверяю (03:13)
-02. Айна Гетагазова - Прощаешь (04:19)
-03. Emmanuil - Love You (02:51)
-04. Dominic Fike - Ant Pile (02:06)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1C95CA7796113517CCA5DF3B51C1B4B9C02F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649108   (230554) от 26.07.2023
-
-VA - Music News vol.284 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230554.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lauren Spencer Smith - Too Hurt To Fall In Love (02:34)
- 002. 613 - Черта (02:53)
- 003. Adil feat. Kally Oscar - 5 Утра (02:32)
- 004. Alana O. - По Разделительной Линии (03:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E9B4836959B408D0A9DD2A92F25436449D4610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268085   (229908) от 09.12.2018
-
-VA - The Official UK Top 40 Singles Chart 07.12.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - thank u, next
-02. Ava Max - Sweet but Psycho
-03. Halsey - Without Me
-04. Dalton Harris, James Arthur - The Power of Love(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD064892DBCC305BFAE880CB861E534A6F507015
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1468762   (1016933) от 09.05.2021
-
-A Rising Force - Undertow (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undertow
-02. Love and War
-03. Crushed
-04. Freaks(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C68FDC066503EB8062D912A78F5D494BCBCABD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468798   (1016928) от 09.05.2021
 
 It Bites - Map Of The Past (2012) Bonus Tracks Edition, Remastered, 2021, Inside Out Music [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Symphonic Rock>
@@ -745,6 +716,35 @@ Diamante - American Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Fem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F589ACDEB3D4CDCDF0D350AAA3343174D3780CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469529   (1016318) от 13.05.2021
+
+Minefield - Minefield (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone Together
+02. Seventh Heaven
+03. Home
+04. Rockstar(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C96B39E90CCE6C6F1AF1E6C9152479B3728BA270
 ```
 
 https://mybot314.ru/tekegram_catalog/

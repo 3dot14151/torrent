@@ -1,3 +1,61 @@
+###  Публикация: 1117605   (817344) от 23.03.2017
+
+VA - Chill Out and Lounge Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roan Portman - Falling (Vechigen Remix)  7:09
+02.  Stars Over Foy - 15 Minutes Of Silence  14:42
+03.  Nagayaki Hushimo - Kurama Silence  8:51
+04.  Vechigen - Magic Frost (Ambient Mix)  3:08(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DED3A55421B2C0C9F0D73F6300BBEFF83910938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117612   (817343) от 23.03.2017
+
+VA - Beach Deep House (2017) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anatoliy Kurakin - Invasion  6:43
+02.  Geogor Dansis - Immensity Of Space  7:20
+03.  Dima Tumbler - Helloween  5:22
+04.  Bendetti - Eastern Illusion  5:36(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B078207F12080A155A86D0CC61714D940ECC8FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197099   (817291) от 06.01.2018
 
 VA - Dream Dance Vol.84 (2018) [MP3|320 Kbps] <Trance, House, Dance>
@@ -690,64 +748,6 @@ VA - Cafe Berlin Vol.1 (Electronic Backround Lounge Music For The Relaxed Moment
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7040462156F293206B07F3E77A1ACE2DB0232889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008573   (813706) от 19.04.2016
-
-VA - Acoustic (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - Say You Love Me (04:03)
-02. Josh Franklin - Let Her Go (03:41)
-03. Karizma Duo - Wrecking Ball (03:31)
-04. Chelsea Hart - Thousand Miles (03:17)(   Читать дальше...   )Производство: This is AcousticЖанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C2DBBF0EFD2F3A0A577A93704316E7F303252D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008610   (813674) от 19.04.2016
-
-VA - Maretimo Sessions Edition Jazz House - Smooth Grooves Deluxe (2016) [FLAC|Lossless|WEB-DL|tracks] <Soulful House, Beach House, Left-Field>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skindive Inc. - Wishing Love (Feat. Ino) (Groove Mix) 07:03
-02. Chillhouse Department - Adriatic Islands (Surfers Cut) 05:20
-03. Jazz City - The Next Day (To The Sea Mix) 04:52
-04. Phil Kinley - Groove Is In The Air (Welcome 2 Da Beach Mix) 06:46(   Читать дальше...   )Жанр: Soulful House, Beach House, Left-FieldПродолжительность: 03:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6231B7A7CA14779116D65E12FB77B78342DC86
 ```
 
 https://mybot314.ru/tekegram_catalog/

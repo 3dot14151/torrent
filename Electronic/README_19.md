@@ -1,3 +1,61 @@
+###  Публикация: 1290651   (1036549) от 25.01.2021
+
+Abul Mogard - Discography 15 Releases (2012-2021) VCO Records, Ecstatic, Houndstooth [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Immobile Air (05:51)
+ 02. Clouds (08:52)
+ 03. Black Dust (07:02)
+ 04. Sand (06:34)(   Читать дальше...   )Тип издания: WebЖанр: AmbientПродолжительность: 10:19:21 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221888ECDA18DB2E3DC0D25BC7B1F7B6D1375FF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096916   (1036532) от 25.01.2021
+
+S1gns Of L1fe - Discography 4 Releases (2013-2021) Arecibo Records, Synphaera [FLAC|Lossless|tracks+.cue] <Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Age Of Cymatics (07:22)
+ 02. Dimensional Shift (07:34)
+ 03. Astral Alignment (08:46)
+ 04. Genetic Memory (07:50)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psybient, Downtempo, Ambient •Продолжительность: 04:01:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAECA6CD1F660B2E1E91E86764C9A8CA939DAF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938253   (1036481) от 25.01.2021
 
 Sabled Sun (aka Krusseldorf) - Discography 11 Releases (2012-2021) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL]<Dark Ambient, Experimental, Space, Drone, Ambient>
@@ -681,64 +739,6 @@ VA - Frühlingsgefühle: Lounge & Easy Listening Deluxe (2023) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01C7113628A1AE1FDE86A4ED621092CD022DD367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443188   (1035783) от 28.01.2021
-
-Dawn Wall - Kythera (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Between The Sheets (feat. Artificial Intelligence) (04:50)
-02. Angel Field (04:32)
-03. Kythera (05:17)
-04. Seeds Of Change (04:36)Жанр: Drum & BassПродолжительность: 00:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F001D6A5CD0F880B99B1F0B54D777150EA8530F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443180   (1035780) от 28.01.2021
-
-Dawn Wall - Longshanks (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spears (04:21)
-02. Round Table (04:33)
-03. Longshanks (04:57)
-04. Lose Face (05:12)Жанр: Drum & BassПродолжительность: 00:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18DEA1B109867890AAA3793C15B4F2C44C45D92C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1168321   (410570) от 23.09.2017
+
+CatchAll - Original Structures (2017) Plexus Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Related Processes (12:48)
+ 02. Violent Reaction (10:52)
+ 03. Small Details (12:00)
+ 04. Quick Change (09:35)(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDA9A749F0C52BC4F579E78134641F8DA3F4D8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573327   (410407) от 01.09.2022
+
+Eyeless In Gaza - Skeletal Framework (2022) 5CD, The Cherry Red Recordings 1981-1986 [FLAC|Lossless|tracks] <New Wave, Synth-pop, Avantgarde>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Clipper Ship [00:03:22]
+02. Dreaming at Rain [00:06:46]
+03. Pale Saints [00:05:17]
+04. Lies Of Love [00:03:02](   Читать дальше...   )Жанр: New Wave, Synth-pop, AvantgardeПродолжительность: 5 CD, 05:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55D63C6C6E1820448D33C4A9AD0556E52943293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325708   (410236) от 16.09.2019
 
 VA - Blue Bar Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
@@ -684,64 +742,6 @@ Max Ananyev - Midday (2020) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB1E72B6E2EAAC181F4209AE3AF52CD47B8CEBA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413576   (408350) от 04.10.2020
-
-Thme - That's what it will be like (2020) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Electroacoustic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408350.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Axis matters 05:16
-2. Moving, so slowly 05:08
-3. Obsolete form of beauty 04:49
-4. Odd memory 04:06(   Читать дальше...   )Жанр: Ambient, Drone, ElectroacousticПродолжительность: 00:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD108ADD56B131B3C433102C4DFB5C8DE80359B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413606   (408198) от 04.10.2020
-
-Weber & Weber - Frozen in Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Nu Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finally (5:50)
- 02. Wake up, Get up (5:14)
- 03. Getting Signals (4:16)
- 04. Fly on Wings (4:51)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Nu JazzПродолжительность: 01:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1D3EB5B94513807BE953A640CA16EEF211E20C
 ```
 
 https://mybot314.ru/tekegram_catalog/

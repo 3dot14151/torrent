@@ -1,3 +1,61 @@
+###  Публикация: 1267548   (266663) от 06.12.2018
+
+Sweet Inspirations - Hot Butterfly (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Fun (4:43)
+02. Face To Face (3:58)
+03. That's When You Know (Your Woman Wants To Be Free) (3:51)
+04. Hot Butterfly (4:47)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8170B535D37028528EF5020D9409A51C98F1200A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267536   (266565) от 06.12.2018
+
+МакSим - Полигамность (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Космонавт
+02. Штампы
+03. Дура
+04. Полигамность(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9058A958D0034FE86B05CBD7EB989D0D83D5F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190730   (266038) от 11.12.2017
 
 Francesca Longrigg - True Noise (2017) [MP3|320 Kbps] <Pop>
@@ -687,64 +745,6 @@ Bananarama - Megarama: The Mixes (2015) 3CD, Compilation [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59E893A243DF3556EADD4B3974EFD4AFAE686679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340204   (264279) от 22.11.2019
-
-Deodato - Knights Of Fantasy (1979) LP [MP3|320 Kbps] <Disco, Jazz-Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Dust, Sherlock (7:57)
-02. Shazam (7:57)
-03. Bachmania (7:07)
-04. Knights Of Fantasy (6:27)(   Читать дальше...   )Жанр: Disco, Jazz-FunkПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7FEE7648CF19E2CE8CC5E0968D17B9CF0AF409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340152   (264276) от 22.11.2019
-
-Наталия Власова - 20. Юбилейный альбом (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264276.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Скучаю
-2. Dali
-3. Лунная
-4. Ангел(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D027D5720654FD135468D710BA65F28956D444
 ```
 
 https://mybot314.ru/tekegram_catalog/

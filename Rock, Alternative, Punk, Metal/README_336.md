@@ -1,32 +1,3 @@
-###  Публикация: 1018686   (753941) от 21.05.2016
-
-Joe Cocker - Across From Midnight (1997) [APE|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight
-02. Could You Be Loved
-03. That's All I Need to Know
-04. N'oubliez Jamais(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24347C8B5485CD80FDEB646C5EF65DCB4C454129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395585   (753832) от 11.07.2020
 
 Aseitas - False Peace (2020) [MP3|320 Kbps] <Death Metal, Progressive Metal>
@@ -750,6 +721,35 @@ Edge Of Paradise - Immortal Waltz (2015) [FLAC|Lossless|image + .cue] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B5BE77837AE55DDE24F1C4323FDBBD23C3E138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019104   (752251) от 22.05.2016
+
+Joe Cocker - Hymn For My Soul (2007) [APE|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Haven't Done Nothin'
+02. One Word (Peace)
+03. Love Is For Me
+04. Don't Give Up On Me(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688715113F48DB7C2778ACA6F8C0A8C743863B1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

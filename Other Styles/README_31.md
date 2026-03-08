@@ -1,3 +1,32 @@
+###  Публикация: 999883   (859067) от 25.03.2016
+
+VA - Romantic Collection - Nordic (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norwegian Mountains (O. Sevag) [03:37]
+02. Gala (Gala Gala) [04:52]
+03. Le Reve (M. Lepisto) [04:08]
+04. The Waves Of Life (Wimme) [04:09](   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7244863EBC84EB25F3BD28771BD9430DC24235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109311   (859007) от 27.02.2017
 
 E.S. Posthumus - Unearthed (2001) [FLAC|Lossless|tracks] <New Age>
@@ -734,35 +763,6 @@ VA - The Best World Instrumental Hits (2009) Vol.1,2,3 (6CD) [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0218929DF42FC59E116FA2DA939B764A5BDA3DC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001983   (850469) от 30.03.2016
-
-Nicholas Gunn - Thirty - One Nights (2012) [FLAC|Lossless|tracks] <Brass & Military, New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember Me Prelude    00:51
-02. Fiesta Patria    03:14
-03. Thirty-One Nights    03:59
-04. The Swallows of Na' Lu'um    05:29(   Читать дальше...   )Жанр: Brass & Military, New Age, InstrumentalПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF345B827B00440BF4974F4DD912CB00C832D0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

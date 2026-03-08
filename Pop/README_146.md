@@ -1,3 +1,61 @@
+###  Публикация: 910170   (623728) от 19.06.2015
+
+Алена Апина - Золотая Коллекция (2000) [FLAC|image +.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Электричка (4:35)
+02. Тополя (4:02)
+03. Узелки (3:09)
+04. Ксюша (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B809D7A767D3535F08BCB8272F8896F940B8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910149   (623427) от 19.06.2015
+
+Александр Малинин - Выбираю тебя (2015) [FLAC|image +.cue]<Pop, Romanse, Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дорогой длинною (3:40)
+02. Дон (5:02)
+03. Две души (дуэт с Е.Ваенгой) (3:37)
+04. Кони (3:31)(   Читать дальше...   )Жанр: Pop, Romanse, FolkПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E667F11B64F8C978210CD265A18783E72A49D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910206   (623419) от 19.06.2015
 
 Комиссар - Grand Collection (2010) [FLAC|image +.cue]<Pop>
@@ -690,64 +748,6 @@ Sara Bareilles - Amidst the Chaos (2019) [FLAC|Lossless|tracks + .cue] <Pop, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81986A3FB5FC03342DF4C5A13CD4CC26DDD92B8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294981   (620762) от 12.04.2019
-
-Lalo Project - Freak Hero (2013) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Listen to Me, Looking at Me  (3:45)
-02 - In This Moment  (3:45)
-03 - Never  (2:51)
-04 - My Sun  (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE93BA4BEEA4A608AADBA9EBBCC816406104B9DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294974   (620759) от 12.04.2019
-
-Lalo Project - Твой путь (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Твой путь  (4:22)
-02 - Мечтания  (3:33)
-03 - Sea  (3:47)
-04 - Море  (3:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868FADF48C9BEF6966BCDCD273E682CA98B7E401
 ```
 
 https://mybot314.ru/tekegram_catalog/

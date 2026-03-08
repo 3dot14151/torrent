@@ -1,3 +1,61 @@
+###  Публикация: 968329   (156496) от 23.12.2015
+
+E-Mantra - Raining Lights (2015) Altar Records [FLAC|Lossless|WEB-DL|24Bit|tracks] <Psybient, Downtempo, Progressive Trance, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlights (06:36)
+02. I Shall Not Care (07:32)
+03. Veiled Clouds (07:11)
+04. Kaleidoscope Clouds (Main Sequence Star Remix) (08:51)(   Читать дальше...   )Жанр: Psybient, Downtempo, Progressive Trance, AmbientПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C575F0EB5E90C22CFD79C475DC588498699FC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433665   (156476) от 21.12.2020
+
+Choir of King's College, Cambridge and Daniel Hyde - Carols From King's (2020 Collection) (2020) [FLAC 24/48.0|Lossless|WEB-DL|tracks] <Ambient, New Age, Easy Listening>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once in Royal David's City (Live) (5:14)
+02. A Maiden Most Gentle (Live) (3:03)
+03. There is No Rose of Such Virtue (Live) (1:57)
+04. Herefordshire Carol (This is the Truth Sent from Above)Жанр: Ambient, New Age, Easy ListeningПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F41186D905D7004B32926DB55A7C090BA17E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 738108   (156445) от 24.12.2013
 
 VA - Top 40 Ambient Tracks (2013) [FLAC|Lossless|WEB-DL]<Psybient, Ambient, Downtempo, Progressive Trance>
@@ -684,64 +742,6 @@ Michael Cassette - Temporarity (2020) 10th Anniversary Deluxe Edition [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B75C79DBFAF008687EBE36898FF4247DF933D2BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086181   (154807) от 23.12.2016
-
-VA - Disco House 2k17 (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Djm - Wake Up Everybody (Main Mix) 04:02
-02. Dpdg - You To Me Are Everything (Tbo & Vega Remix) 03:48
-03. Moomicoo - Don't Look Any Further (Moomicoo Mix) 04:24
-04. Jason Parker - U Sure Do (Radio Edit) 03:25(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC4920C450BE9F03FCB5F7DB930B94B4EBC6856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086194   (154674) от 23.12.2016
-
-VA - Disco Christmas 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Favorite & Laura Grig - Last Christmas (Dj T'paul Sax Mix) 05:37
-02. Dj Favorite & Sugarmammas - Bad Girls (Original Disco Mix) 04:45
-03. Major Lover & Will Fast - First Life (Original Mix) 06:10
-04. Dj Favorite & Theory - Beautiful Night (Dj Flight Remix) 05:22(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F065ABB77472CD63CBD6A7F92D135C190B2C37
 ```
 
 https://mybot314.ru/tekegram_catalog/

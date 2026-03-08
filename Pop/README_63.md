@@ -1,3 +1,61 @@
+###  Публикация: 1109728   (857062) от 28.02.2017
+
+Bebe Rexha - All Your Fault: Pt. 1 (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857062.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Atmosphere
+2. I Got You
+3. Small Doses
+4. Fuck Fake Friends (feat. G-Eazy)(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46BDF486B7207B2F0DC7F361896ECF8C48DED33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376916   (856668) от 19.04.2020
+
+VA - 100 Ballads (2020) [MP3|320 Kbps] <Pop, Ballads>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856668.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rod Stewart - Have I Told You Lately 4:02
+002. Tina Turner - What's Love Got To Do With It 3:47
+003. Seal - Kiss From A Rose 4:48
+004. Whitesnake - Is This Love 4:45(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 06:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2B255FFF9CF8D5B7D73D792E009420589AC171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498493   (856047) от 27.09.2021
 
 Papaya -  Pink (1999) [FLAC|Lossless|tracks + .cue] <Bubblegum>
@@ -685,64 +743,6 @@ VA - High Life International (1982) LP [MP3|320 Kbps] <Electronic,  Reggae, Pop 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:606731DB7B511647A8C422818F5992D262D96B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110673   (852028) от 03.03.2017
-
-Кристалл - Летим вдвоём (2016) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Летим вдвоём
-03. Любишь, не любишь
-04. Сгорает ночь(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F17B660060A9744E5F36D71D8FE516C07E5B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110775   (851965) от 03.03.2017
-
-Giusy Ferreri - Girotondo (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Fa talmente male
-02 – L'amore tante volte
-03 – Partiti adesso
-04 – L'amore mi perseguita(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A08445A54DAFBB35F9E76002EE3D55194B61EF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

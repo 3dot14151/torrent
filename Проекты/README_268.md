@@ -1,29 +1,3 @@
-###  Публикация: 1072334   (354108) от 12.11.2016
-
-Проекты - VideoHive - Elegant Glossy Identity - 9110508 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для элегантной демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2F39FBE9A3A94A5BDAAFF09414A17005BEBA4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329340   (354074) от 04.10.2019
 
 VideoHive - Lovely Slideshow - 24769210 [AEP]
@@ -676,6 +650,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDCBDDF6A8234E08077EFEF3DBC8A7C2F8B732DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953224   (351287) от 03.11.2015
+
+Проекты - VideoHive - Bright Idea Light Bulb Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления вашего логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD41B63D117EFE82B7CE34703269BCDDA37FAF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

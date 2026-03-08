@@ -1,3 +1,29 @@
+###  Публикация: 1090181   (947435) от 06.01.2017
+
+Soft4Boost Secure Eraser 4.3.3.491 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобная утилита, которая позволяет быстро и эффективно выполнить безвозвратное удаление данных с жесткого диска.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C3C2DB58AB5D1CC07CD1EF2A9D941918E9768E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 173878   (947401) от 09.02.2010
 
 Елена Малиновская | Кодекс убийцы [2009] [FB2]
@@ -672,35 +698,6 @@ Jay Rock - 90059 (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD91D08670DD2E7FC02AD720AE149E057A6534F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982663   (947009) от 04.02.2016
-
-Mark Snow - Millennium Volume One (Original Soundtrack From The Fox Television Series) (2015) 2CD, Limited Edition [MP3|320 кб/с] <Soundtrack>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title A [00:53]
-4C79 - PILOT
-02. Big Yellow House [01:56]
-03. Rain [03:30](   Читать дальше...   )Жанр: Soundtrack |Продолжительность: 02:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F7A4C6248E20EEE3180DA239C410D380670709
 ```
 
 https://mybot314.ru/tekegram_catalog/

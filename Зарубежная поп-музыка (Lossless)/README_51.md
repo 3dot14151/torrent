@@ -1,3 +1,32 @@
+###  Публикация: 1242477   (515121) от 22.08.2018
+
+Chris de Burgh - High On Emotion - Live from Dublin! (1990) Live [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Night (7:13)
+ 02. Sailing Away (5:15)
+ 03. The Revolution (4:03)
+ 04. I'm Not Scared Anymore (4:40)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C2592561583FEC6BEFFC3BAEC2EF987FE2B91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242599   (514033) от 23.08.2018
 
 Chris de Burgh - Power of Ten (1992) [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -719,34 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6833167D7F56F80B9C4BC64B915428B9201FC004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542993   (497302) от 04.09.2012
-
-Marie Claire D'Ubaldo - 2 Альбома (1990, 1994) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Marie Claire D'Ubaldo - Аргентинская певица и композитор. Известна многим по альбому 1994-го года "Marie Claire D'Ubaldo" и композиции "The Rhytm Is Magic". Альбом пользовался огромным успехом в Италии, США, Японии и России, однако он не является дебютом Marie, как принято считать, поскольку в 1990-м году выходил менее известный и очень редкий альбом под названием "Marie Claire", который был выпущен только в Японии.Альбомы:
-1990 - Marie Claire
-1994 - Marie Claire D'UbaldoЖанр: PopПродолжительность: 01:28:29
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

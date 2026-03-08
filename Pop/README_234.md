@@ -1,3 +1,61 @@
+###  Публикация: 1581122   (327937) от 04.10.2022
+
+VA - Best Radio Tracks, Vol. 23 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327937.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Imanbek/Wiz Khalifa/KDDK/KIDDO - Ordinary Life
+2. ONEIL/SMOLA - Addicted
+3. Los Tiburones/Fisun - Never Let You Go
+4. Imanbek/LP - Fighter(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A5840FADDDEA840116BA2552684C7A1A9E4758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957434   (327651) от 17.11.2015
+
+Phildel - The Glass Ghost (2013) EP [MP3|320 кб/с]<Alternative Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven: An Introduction
+02. The Glass Ghost
+03. Comfort Me
+04. Celestial(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBA7F987C43F9E8562505B780C15674D417847A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957374   (327597) от 17.11.2015
 
 Alison Moyet - Singles (1995) [FLAC|image + .cue]<Pop, Synth-pop>
@@ -687,64 +745,6 @@ Sarah Brightman - Fly (1996) [OGG Vorbis|484 Kbps] <Rock, Pop, Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEE711268CAEBDACA0DD2A1AC9A562379CE289CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582100   (324591) от 08.10.2022
-
-Sarah Brightman - Harem (2003) [OGG Vorbis|484 Kbps] <Electronic, Classical, Ambient>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harem
-02. What A Wonderful World
-03. It's A Beautiful Day
-04. What You Never Know(   Читать дальше...   )Жанр: Electronic, Classical, AmbientПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1E9F62EA8ABF110AF5944B182B0E1DC8E5014C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582094   (324587) от 08.10.2022
-
-Sarah Brightman - Classics (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria (New Recording)
-02. La Wally
-03. Winter Light (New Recording)
-04. Anytime, Anywhere(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47595C5B9CABB7A10882F2D15208E014A440405F
 ```
 
 https://mybot314.ru/tekegram_catalog/

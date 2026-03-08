@@ -1,3 +1,32 @@
+###  Публикация: 1642900   (234427) от 29.06.2023
+
+Lynn Cannon - Just Chillin'! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light‘emup! (4:34)
+02. Keeponmovin'! (4:23)
+03. Changeswillcome! (4:49)
+04. Stompn’&bumpn'! (4:41)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B254437441DEFB9985E36C8CFF59B2BC481D76FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642824   (234419) от 29.06.2023
 
 Out To Dinner - Episodes Of Grace (2022) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -716,35 +745,6 @@ Rachel Therrien - Mi Hogar (2023) Outside in Music [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17047A5A1CFD2F49DE7958260CDA0132C4362C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640748   (233900) от 19.06.2023
-
-Carrol McLaughlin - Jazz Harp (1985) 1997, Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fool on the Hill [2:34]
-02. Take Five [5:05]
-03. Bluesette [2:34]
-04. Classical Gas [3:35](   Читать дальше...   )Жанр: Mainstream jazzПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44CE88410C651E8DB803E5931121891B66F9FB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

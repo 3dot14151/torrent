@@ -1,3 +1,67 @@
+###  Публикация: 523548   (616988) от 16.07.2012
+
+Bananarama - 30 Years of Bananarama (2012) [MP3|242-290 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Aie A Mwana
+02 Really Saying Something
+03 Shy Boy
+04 Na Na Hey Hey Kiss Him Goodbye
+05 Cruel Summer
+06 Robert De Niro's Waiting
+07 Venus
+08 I Heard A Rumour
+09 Love In The First Degree
+10 I Can't Help It(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 1:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF35AE95401BF2EFCE19FEBD9CDE4192EF66F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295663   (616906) от 14.04.2019
+
+VA - 100 Greatest Number Ones (2019) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616906.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Clean Bandit - Solo (feat. Demi Lovato) (3:42)
+002. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (3:31)
+003. Lukas Graham - 7 Years (3:57)
+004. Charlie Puth - Marvin Gaye (feat. Meghan Trainor) (3:10)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D04D46B248934E84592E570E03FCC48A8BD599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146186   (616586) от 28.06.2017
 
 VA - Heisse Ballerfrauen auf Mallorca Die Partyhits 2017 [MP3|320 Kbps] <Schlager, Pop>
@@ -711,64 +775,6 @@ VA - Fabulous Flips. Volume Two (1995) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5576F419029D381992391DAA6466518B9C6A0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911865   (614496) от 24.06.2015
-
-VA - Fabulous Flips. Vol.3 (1997) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock'n'Roll>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dion & the Belmonts - I Can't Go On (Rosalie) (02:17)
-02. The Royaltones - Wail (02:07)
-03. The Wailers - Dirty Robber (02:37)
-04. Benny Spellman - Fortune Teller (02:14)(   Читать дальше...   )Жанр: Oldies, Soul, R&B, Rock'n'RollПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD11818A9B0B77A1C987E4C998C13B9E4B782C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911843   (614495) от 24.06.2015
-
-VA - Fabulous Flips (1993) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock'n'Roll>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Larry Williams - Slow Down (02:46)
-02. Rosie & the Originals - Give Me Love (03:02)
-03. Jack Scott - Leroy (02:10)
-04. The Everly Brothers - I Wonder If I Care as Much (02:14)(   Читать дальше...   )Жанр: Oldies, Soul, R&B, Rock'n'RollПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1727E6D5B369ABDEA5DBEAE47A548A03CCDF6C7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

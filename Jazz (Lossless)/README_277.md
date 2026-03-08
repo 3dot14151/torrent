@@ -1,3 +1,32 @@
+###  Публикация: 1669656   (172676) от 17.10.2023
+
+Roland Hanna Trio - Dream (2001) Venus Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Grow Too Old to Dream [4:59]
+02. Street of Dreams [4:18]
+03. You Stepped Out of a Dream [6:05]
+04. Day Dream [6:39](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778B46FC1B39A54BB0D058816DF2A264777E1B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669814   (172524) от 18.10.2023
 
 The Eddie "Lockjaw" Davis-Johnny Griffin Quintet - Tough Tenors (1970) 1988, MPS Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -713,35 +742,6 @@ Anita O'Day - My Ship (1975) 2003, Kayo Stereophonic [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8BA11D3F2737125E1B7F642C11EBB7CE203450A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670821   (171777) от 22.10.2023
-
-Grant Green - Sunday Mornin' (1961) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom March [8:42]
-02. Sunday Mornin' [4:02]
-03. Exodus [7:02]
-04. God Bless the Child [7:23](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6BEB0086D192AFDBC717444FFB9A52EF816ABE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1247730   (451054) от 16.09.2018
-
-Zero People - Красота (2018) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертый альбом сайд-проекта музыкантов группы Animal ДжаZ Александра Красовицкого и Александра Заранкина.1. Зверь
-2. Токсичное чувство
-3. Стена
-4. Псих(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AA4528B8FE6107C72AD95B15B193922053899F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163554   (450114) от 05.09.2017
 
 Глеб Самойлоff & The Matrixx - Звезда (2017) Single [MP3|320 Kbps] <Rock>
@@ -729,6 +700,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38FA79A35AFB2895A4A4C4F38AD7BE1F6B2B3876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944588   (440081) от 07.10.2015
+
+Stigmata - Legion EP (2015) [MP3|~245 кб/с (V0)]<Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440081.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Legion (2:59)
+2. Радио "Смерть" (4:58)
+3. На повтор (3:14)
+4. Голод (Scang cover) (4:14)Жанр: Melodic MetalcoreПродолжительность: 00:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10742E3BD60868724B4CC39179CEA23AD88CE7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

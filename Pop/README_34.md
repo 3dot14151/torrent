@@ -1,3 +1,61 @@
+###  Публикация: 1356398   (979034) от 30.01.2020
+
+Le Pamplemousse - 4 Albums (1977-1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из многих проектов американских продюсеров из Лос Анджелеса - Rinder & Lewis, внесших значительный вклад в развитие классического диско.Список альбомов:
+1977 - Le Spank
+1978 - Sweet Magic
+1979 - Planet Of Love(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 02:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBDE70CD45947B36F55241B7368A184F1BE715E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356406   (978891) от 30.01.2020
+
+Savage - I Love You (2020) Maxi-Single [MP3|320 Kbps] <Italo-Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Love You (Radio Version) [3:17]
+ 02 - I Love You (Extended Version) [5:00]
+ 03 - I Love You (Club Mix) [3:32]
+ 04 - I Love You (Rain Dub) [3:05](   Читать дальше...   )Жанр: Italo-Disco, HouseПродолжительность: 00:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34C6C8F45ED62179F44664AFA76B1C388011609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 138619   (978445) от 30.01.2020
 
 VA - Школьные годы (2002-2003) [MP3|2 CD] <Детские, школьные песни>
@@ -749,64 +807,6 @@ CD 162. Течёт Волга (Л.Ошанин, М.Фрадкин) Л.Зыкин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2D786866CB4F469D61B38B06787E82484C5CC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357393   (974331) от 03.02.2020
-
-Silver Pozzoli - Around My Dream (2011) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974331.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Around My Dream (Extended Version) 5:39
-2 Step By Step 3:42
-3 Love Is Alive 3:49
-4 Pretty Baby 3:54(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B01F360828C7FD0801AE810D2E47FC7E24BC614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357381   (974328) от 03.02.2020
-
-Okay - Bang! (2011) [FLAC|Lossless|image + .cue] <Synth-pop, New Beat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974328.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 The Wild, Wild Western
-2 I Won't Forget
-3 Champagne For The Boy
-4 E.d.u.c.a.t.i.o.n(   Читать дальше...   )Жанр: Synth-pop, New BeatПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4903FBD2F70F5A5C2C2D0DC0958161FADDC63844
 ```
 
 https://mybot314.ru/tekegram_catalog/

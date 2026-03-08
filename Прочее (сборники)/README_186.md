@@ -1,3 +1,119 @@
+###  Публикация: 1757620   (39011) от 28.10.2024
+
+Aleksey Boychenko - Compilation of enigmatics (2024) [MP3|320 Kbps] <Enigmatic, New Age, Ambient, New Age, Ambient, Meditative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Heart of the Desert
+ 02.  The Symbol of Faith
+ 03.  The Mystery of the East
+ 04.  My Beloved World(   Читать дальше...   )Жанр: Enigmatic, New Age, Ambient, MeditativeПродолжительность: 03:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AF6FDF41F403E467C66265BC34B35C3A640FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757658   (39007) от 28.10.2024
+
+VA - Music News For Forum vol.036 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39007.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Belinda feat. Kenia Os - Jackpot (03:13)
+ 002. Ahzee - Got It (02:49)
+ 003. ALTUNIN - For You (01:50)
+ 004. Arthur Freedom - Little Love (02:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCFB5438A324436096E8FC9AD9AABD574321E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757754   (38925) от 29.10.2024
+
+VA - Musical kaleidoscope part 10 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey Boychenko - Requiem
+02. Sisco Le Voyageur - Peace of the Sand
+03. Besso - Nobody Else
+04. Kames, Umar Keyn - Love(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DF6D8F71319B22EA064615B8C2D849D44AEBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758082   (38715) от 31.10.2024
+
+VA - Music News For Forum vol.037 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38715.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Morrozova - Эй, мальчик! (03:36)
+ 002. Addison Rae - Diet Pepsi (02:50)
+ 003. Akila - Ресторан (Disco Version) (02:11)
+ 004. Amira Elfeky - Will You Love Me When I’m Dead (03:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEE74FB7C6225211F896A174CD4A26D5C971DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758444   (38510) от 02.11.2024
 
 VA - Music News For Forum vol.038 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ VA - Music News For Forum vol.050 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71EAB22052E5FFEA3FFEB2C74CB197678DE9EC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764572   (34893) от 07.12.2024
-
-VA - Musical kaleidoscope part 15 Electronic, Instrumental, Easy listening (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Dream Music 4
-02. Sisco Le Voyageur - Angelique N°2
-03. Sisco Le Voyageur - Dream Universe
-04. Sisco Le Voyageur - Enigmatic Music 4(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A64C039B999F63B3F19EC88583D4BFF653DCB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764771   (34783) от 08.12.2024
-
-VA - Musical kaleidoscope part 16 Electronic, Instrumental, Easy listening (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Aurm - Lady Love
-02. Stive Morgan - Close to Heaven
-03. Dj Polkovnik - Passacaglia
-04. Vdj Smile - Insomnia 2024(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC640129C351BF28C3F31E4A72330D5978F59117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765052   (34628) от 10.12.2024
-
-VA - Music News For Forum vol.051 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34628.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christina Novelli feat. Linney - Fallen Ones (Tensteps Remix) (02:36)
- 002. 52Ghz feat. SAMILIA - Не везет с любимыми (02:54)
- 003. ALEKSIA feat. ISVNBITOV - Скучаю 2 (02:06)
- 004. Alli - Солнце (02:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB1F1F4D766676C4018F38E7A03640AB633CFAB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523680   (34478) от 12.12.2024
-
-VA - Понемногу отовсюду by Yuridar #Full (1952-2024) Compilation Album [MP3|128-320 Kbps] <Rock, Blues, Others>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 30 Seconds to Mars - 93 Million Miles
-02. 30 Seconds to Mars - A Modern Myth
-03. 30 Seconds to Mars - Alibi
-04. 30 Seconds to Mars - Fallen(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 5 дн., 15:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755B2714BB2F5B6419D310CEACFFE0BD0492CD0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1018397   (755933) от 20.05.2016
+
+VA - Beach Cafe Deluxe: Ultimate Lounge and Buddha Relaxation Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Planer - Buddhas Eyes - Essential Bar and Lounge Version
+02. SynDication - Bondi Beach - Sydney Big City Chillout Cut
+03. Nafets Rules - Gin Tonic - Crystal Sky Electronic Ambient Cut
+04. Arcade Shadows - Perfect Gift - Deluxe 55 Lounge Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C0515B25E1ECC1C21183D6A1EC78FE2B12CF3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018461   (755932) от 20.05.2016
 
 VA - Club Dance Switch Miracles (2016) [MP3|320 кб/с] <House, Club, Dance>
@@ -717,35 +746,6 @@ VA - Trance Desire Volume 70 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A83B90630685517752CDB2969EB043EDA62D1F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281449   (752078) от 08.02.2019
-
-VA - Chilled Tunes For Relaxed (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752078.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Annk - Last Dance
-002. 2Jesus - Arrival2
-003. Fall Therapy - Wrong
-004. Makia Blue - Heal Me(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 10:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7495A32856953BD806E73332CC26196E59E0F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

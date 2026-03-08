@@ -1,3 +1,61 @@
+###  Публикация: 1113654   (836716) от 12.03.2017
+
+VA - Dont Worry Be Sexy Vol.1: 20 Deep-House Flavors (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Stoner - Paradise Fantasy - Original Mix
+02. Robert Owner - Big One - Original Mix
+03. Chile Lavern - Milky Way - Original Mix
+04. Kay Christopher - Kalimba - Original Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730F2EE4767155349D5FA08349E66D55ACEFA4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113703   (836704) от 12.03.2017
+
+VA - Yoga Love 100 Ambient And Chillout Tracks (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sternenton – Moon Serenade (8:52)
+02. Yoga Love – Yoga Love 8 (Remember 2 Remember Version) (5:10)
+03. Daki 2000 – Nucleus (5:31)
+04. Monroe Days – A Better Time (5:28)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031AF4AB5465FF0C86C140E7AA2922C6991CE02F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501213   (836674) от 09.10.2021
 
 Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, District Atlanta, United States 2021-10-01) (2021-10-07) [MP3|320 Kbps] <Trance, Techno, Big Room>
@@ -687,64 +745,6 @@ VA - Progressive Hits Vol 1 (2017) [MP3|320 Kbps] <Progressive House,House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59185F261AC47E5D701ED8DB48709E6E46EC3D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114340   (833802) от 14.03.2017
-
-VA - Chill out Collection to Lift Your Soul Vol.5 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cracked - Syne
-02. Luminodisco - La mission
-03. Julian Maier-Hauff - Digging for Gold
-04. Leandro Da Silva - T.U.C. - Chills Mix(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD07C0DD89DA34F1E83878EF3CD2DF26F1646FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501818   (833751) от 11.10.2021
-
-Artefact - Agit' Pop (1981) LP [MP3|320 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Match (3:30)
-02. Soviet Comet (5:01)
-03. M.A.E. (3:24)
-04. Sex Computer (3:31)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894C2FFC1E7F005CC3BFD5B87D373C0F3657B6F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

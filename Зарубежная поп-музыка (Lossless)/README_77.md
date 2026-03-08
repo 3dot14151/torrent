@@ -1,3 +1,32 @@
+###  Публикация: 1445578   (193898) от 22.08.2023
+
+Toto Cutugno - 3 Albums (1990 - 2005) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_193898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il Cielo E' Sempre Un Po' Piu' Blu 3:38
+02. Come Noi Nessuno Al Mondo 4:57
+03. Cantando ( En Chantant ) 4:37
+04. L'italiano 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C98830F0DD57C18B9B7E28C45E77BBDA4A0A175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587126   (193221) от 29.10.2022
 
 PG Roxette (Per Gessle & Roxette) - Pop-Up Dynamo! (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
@@ -711,35 +740,6 @@ Anastacia - Our Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A53B1CA06606FC69F15AFCF28CA4FA83B469F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591814   (185417) от 20.11.2022
-
-Tokio Hotel - 2001 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Durch den Monsun 2020 [00:03:54]
-02. HIM [00:03:34]
-03. White Lies [00:03:04]
-04. Ain't Happy [00:03:27](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CF07BABD54AE5093CA5F8555D22F46566FC5A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

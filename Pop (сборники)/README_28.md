@@ -1,3 +1,32 @@
+###  Публикация: 1011802   (796307) от 28.04.2016
+
+VA - Попсовый армагедон от Русского радио (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796307.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Артем Пивоваров - Стихия
+002. Bahh Tee - Как Ты Посмела
+003. Александр Антонов - Это Все Что Я Могу
+004. Artem Display - Жизнь Хороша(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174B046C593B559D63A044B03D10A2DEE09AD894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011694   (796174) от 28.04.2016
 
 Фабрика - Коллекция песен (2016) [MP3|256-320 кб/с] <Поп>
@@ -716,35 +745,6 @@ VA - German Top 100 Single Charts 26.01.2018 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5CB71F8CF77A1429D14310B8B004FA2F0DB9C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387185   (791733) от 01.06.2020
-
-VA - Radio DFM Top D-Chart Май 2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intelligency - August (Alex Shik & Alex One Remix) 3:35
-02. Nelly Furtado - All Good Things (Come To An End) 3:56
-03. Doja Cat - Say So (Vadim Adamov & Safiter Remix) 3:07
-04. Zivert - ЯТЛ (Kolya Dark & DJ Prezzplay Remix) 3:33(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D028F2AA50AEB5656937D8AB1FCC08EF3BDB65B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

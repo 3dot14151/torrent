@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1857544   (1059656) от 06.03.2026
+
+VA - Ori Uplift - Uplifting Only Episode 682 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air Project & Hidden Tigress – Blanket Of Stars (Etasonic Remix)
+02. Stoneface & Terminal & Neev Kennedy – Lost (Ciaran McAuley Remix)
+03. Illitheas – Golden Skies (Fan Favorite (679))
+04. Db Mokk – Close To You(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EC4C005602FC44C97151996B9F26EBA027561B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857538   (1059655) от 06.03.2026
+
+VA - Armin van Buuren - A State Of Trance 1267 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	BLR & Amber Revival - Untouchable
+02.	David Guetta & Kiko & Olivier Giacomotto – Prayer
+03.	Sander van Doorn & Crooked Bangs - My Body
+04.	Tiësto & Brieanna Grace - Beautiful Places(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0096FD0133606340C0FF52E1FEEC8D29D2B1EB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856277   (1058943) от 27.02.2026
 
 VA - Ori Uplift - Uplifting Only Episode 681 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -688,63 +746,6 @@ VA - Tomorrowland Brasil (2025) [MP3|320 Kbps] <Techno, House, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB848891D5BCC2889E46C1646635480C1FB085D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846171   (1051230) от 06.01.2026
-
-Hardwell - Hardwell On Air 527 (Yearmix 2025) (2026-01-02) [MP3|320 Kbps] <Techno, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardwell – Sanctuary (Intro Edit)
-02. Hardwell & Olly James – Lights Out
-03. Hardwell & Olly James vs. Hardwell vs. Tyla – Flatline vs. Spaceman vs. Water (Hardwell Mashup)
-04. Zedd & Foxes vs. Domeno & Michael Sparks – Clarity vs. Locked & Loaded (Hardwell Mashup)(   Читать дальше...   )Жанр: Techno, Big RoomПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB447124C4115CDE9DD401A73BCF3C2AC24AE69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846001   (1051172) от 05.01.2026
-
-Johnny de City - Mashup Avenue 028 (Yearmix 2025) (2025-12-28) [MP3|320 Kbps] <Dance, Electro Pop, Mashup>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Ottaviani & Andrew Rayel vs. Nilsix vs. Gotye & Sidepiece - Eternal Harmony Techno That I Used To Know (Johnny de City Intro Mashup)
-02. Da Hool & Daxson vs. Argy & Anyma & Son Of Son - Love Parade Voices (Johnny de City Mashup)
-03. Good N' Bad & Brandon vs. Mau P - Shades On Fire Underground (Johnny de City Personal Mashup) w/Gala (   Читать дальше...   )Жанр: Dance, Electro Pop, MashupПродолжительность: 01:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9F15FDACDBF9FF74F2E2F2257670F96847A4BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1366505   (922318) от 12.03.2020
+
+Passenger - Passenger (2003) voice Anders Friden (In Flames) [FLAC|Lossless|image + .cue] <Nu-Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Reverse
+02. In My Head
+03. For You
+04. Just The Same(   Читать дальше...   )Жанр: Nu-Metal, Alternative MetalПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71AD22E0563051DF56EE97E2BB397021910D7FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988310   (920952) от 20.02.2016
 
 Children Collide - Theory Of Everything (2010) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Surf>
@@ -719,35 +748,6 @@ Pearl Jam - Gigaton (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73A43AD913AC5BCA1AB21BB335858D0EB300E7A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100835   (898021) от 05.02.2017
-
-HorrorPops - Hell Yeah! (2004) [APE|Lossless|image + .cue] <Rockabilly, Punk Rock, Psychobilly>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Julia
-02 - Drama Queen
-03 - Ghouls
-04 - Girl In A Cage(   Читать дальше...   )Жанр: Rockabilly, Punk Rock, PsychobillyПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA02CFF0F41A576B3F84158D531517C4306B93B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

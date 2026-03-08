@@ -1,3 +1,60 @@
+###  Публикация: 1622708   (200599) от 29.03.2023
+
+Udemy, Jose Portilla | OpenAI Python API Bootcamp: Learn to use AI, GPT3, and more! (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебный курс OpenAI Python API: научитесь использовать AI, GPT3 и многое другое!​
+Откройте для себя возможности искусственного интеллекта с помощью мощного API OpenAI для создания текста и изображений в проектах.
+
+Чему вы научитесь​(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD720A68D316C7FF804565A376EAA7E055992E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623418   (200549) от 01.04.2023
+
+ArjanCodes | The Software Designer Mindset - Complete Edition (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200549.jpg" />
+</div>
+
+
+###  Подробнее
+
+This course provides a modern take on software design, and teaches you a designer mindset that will allow you to consistently make better design decisions, getting you ready to take the next step in your career where you’ll be able to design complex software, immensely improve your existing code, and create software that is easy to change and scale.
+
+The course uses (   Читать дальше...   )Производство: ArjanCodesЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 14:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C81B2E2B741E9DF753F3985AEC718AD6425AF8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623491   (200460) от 01.04.2023
 
 Udemy, Uisco Dev | How To Make A Doom Clone In Unreal Engine 5 (2023) WEB-DL [EN]
@@ -663,61 +720,6 @@ This course uses a mix of theory and practice. We will create dozens of little U
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43DDD296CD1D47747A3CFA37D6566B1527986DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644017   (196107) от 04.07.2023
-
-Федор Васильев | Elementor PRO от А до Я (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пошаговый, самый полный видеокурс на Elementor PRO​
-Вы научитесь создавать профессиональные сайты без специальных навыков программирования. С использованием движка WordPress и c плагином Elementor.
-Я предлагаю сэкономить самый драгоценный на сегодняшний день ресурс. Это время!
-На этой страничке я предлагаю вам ознакомиться с моим пошаговым, самым полном видео (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 19:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B775A0F85830993D86A5344F4CD75C78319A012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647213   (195607) от 17.07.2023
-
-Udemy, Michael Pogrebinsky | Software Architecture & System Design Practical Case Studies (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Do you want to gainПроизводство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1E4829907BA43BB9DC478CE677A564ACF64669
 ```
 
 https://mybot314.ru/tekegram_catalog/

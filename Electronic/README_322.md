@@ -1,3 +1,61 @@
+###  Публикация: 1414301   (387411) от 07.10.2020
+
+VA - Spacesynth Revolutions, Episode One (2010) [FLAC|Lossless|tracks + .cue] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyreon - Mars Raider (6:05)
+02. Galaxion - Nekomimi's Song (5:08)
+03. Resource X - Space Station 38 (4:47)
+04. Alek Szahala - Crystal Thunder (4:47)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA8676A2A194A7B7B4ECC12A4FEFF2FA3601E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414280   (387401) от 07.10.2020
+
+Sex Music Zone - Kamasutra Music 2020 [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye of Tiger (3:48)
+02. Kama Sutra (3:46)
+03. Around the Dance Pole (3:35)
+04. Get Over Here (3:47)(   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6114206FD829C394802BE440E2DA05134F8E718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414256   (387400) от 07.10.2020
 
 Eguana - Qvantur (2020) Plexus Music [FLAC|Lossless|WEB-24Bit|tracks] <Dark Ambient, Space>
@@ -676,64 +734,6 @@ VA - Erotic Yoga Vol.2 (Deluxe Chill out for Special Moments) (2016) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E4A3882C68D35B7B55B189FDB79643F8D241EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067931   (384774) от 30.10.2016
-
-VA - Swedish Electro vol. 4: The Unsigned (2016) [MP3|320 Kbps] <Synthpop, EBM, Futurepop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonic Reunion - Black Roses (04:14)
-02. State Of The Nation - Departed (Leslie Bayne Remix) (03:35)
-03. Love In Progress - Electro Lovers Inn (04:56)
-04. Ogre Heat Backpackers - Lights Out (04:33)(   Читать дальше...   )Жанр: Synthpop, EBM, Futurepop, ElectropopПродолжительность: 02:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BB851F053518D9E1F050F597FA06AA6BEAE645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574727   (383763) от 06.09.2022
-
-Carpenter Brut - Leather Terror (2022) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwave, Horror>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383763.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Opening Title [2:09]
-2. Straight Outta Hell [3:22]
-3. The Widow Maker (feat. GUNSHIP) [3:56]
-4. Imaginary Fire (feat. Greg Puciato) [4:22](   Читать дальше...   )Жанр: Darksynth, Synthwave, HorrorПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FE3E5EF5A47EFBA0FF36D538549A70383E273C
 ```
 
 https://mybot314.ru/tekegram_catalog/

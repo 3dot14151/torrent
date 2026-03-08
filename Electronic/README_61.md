@@ -1,3 +1,58 @@
+###  Публикация: 1361288   (957074) от 18.02.2020
+
+VA - The Seeds Of Love Vol.1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guenter Haas - Look Inside Yourself (2K19 Mix)
+02. Marco Moli - Black Bird
+03. Sunset Boulevard Project - Follow the Rainbow (feat. Marc Hartman)
+04. Michael E - Theme from a Pleasant Interlude(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8292C8BBC47E94E5D205CE81914552F2E440CDBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138233   (956786) от 02.02.2010
+
+Arno Hoddinghaus (A/R/N/O, Höddinghaus) - Дискография (1994-2000) [MP3|320]<Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: AmbientПродолжительность: 05:45:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980608   (956287) от 29.01.2016
 
 Germind - Elusive Shadows (2016) [MP3|320 кб/с] <Psybient, Breaks, Downtempo, Ambient>
@@ -685,64 +740,6 @@ Nachtmahr - Flamme (2020) [MP3|320 Kbps] <EBM, Neofolk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26D4202A46C6A87630DFF01EAC2EE89105C1FE47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624363   (952181) от 28.02.2013
-
-Christophe Goze - A Day In Ibiza 2 (2012) [FLAC (tracks+cue)|Lossless]<Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close To You
-02. Someday I Wil
-03. Moonlight
-04. A New Beginning(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361784   (951994) от 21.02.2020
-
-Depeche Mode - Mode (2020) 18 СD, Box Set, Compilation, Limited Edition, Numbered [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Life (03:46)
-02. I Sometimes Wish I Was Dead (02:18)
-03. Puppets (03:57)
-04. Boys Say Go! (03:08)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 15:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50758C4FFA5A104A75812028B3969F1033222F67
 ```
 
 https://mybot314.ru/tekegram_catalog/

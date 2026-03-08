@@ -1,32 +1,3 @@
-###  Публикация: 1459451   (1023140) от 02.04.2021
-
-Sunstorm - 7 Studio Albums (2006-2021) 7xCD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023140.jpg" />
-</div>
-
-
-###  Подробнее
-
-SUNSTORM появился на свет в 2006 году, когда президент Frontiers Serafino Perugino захотел выпустить неизданные песни, сочиненные Joe Lynn Turner в конце 80-х и начале 90-х. Хорошие рецензии и теплый прием дебютного альбома SUNSTORM одного с проектом названия привели к тому, что идея получила продолжение, и было записано еще два альбома под этим названием. Однако (   Читать дальше...   )2006 - Sunstorm
-2009 - House Of Dreams
-2012 - Emotional Fire
-2014 - Rated X(   Читать дальше...   )Жанр: Hard RockПродолжительность: 06:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B530FD93C59C91A0510257B851DC2E207FB2D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459565   (1023132) от 02.04.2021
 
 Звери - Очень (2021) EP [MP3|320 Kbps] <Pop Rock>
@@ -745,6 +716,35 @@ Black Bonzo - шведсксая ретро-рок группа образова
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29926C429E7B9F61E665962726527045CD81FE4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460641   (1022438) от 06.04.2021
+
+Bloodshed Walhalla - Second Chapter (2021) [FLAC|Lossless|WEB-DL|tracks] <Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reaper (28:20)
+02. Hermodr (16:06)
+03. The Prey (15:29)
+04. After the End (17:55)Жанр: Viking MetalПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26541DFA165F31CF59B2447A6D24FF8722EECFF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

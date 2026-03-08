@@ -1,3 +1,61 @@
+###  Публикация: 1144478   (627615) от 22.06.2017
+
+VA - Inner Balance Chillout Your Soul 2 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmonium - Esoterics - Short Edit
+02. Heavenly Light - Butterfly Wings
+03. Atlantic Dolphins - Reach the Beach
+04. Phase 3 - Evolution of Space(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:22:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6FC87E86868AEAFBBBBF16032CEF938F309AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144421   (627613) от 22.06.2017
+
+Philip Anders - My Kind Of Car (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Exhaust (06:57)
+2. Disco Balls (07:03)
+3. Happy Feet (06:38)
+4. Transformers (feat Leif Hatfield) (06:00)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F2C9ADD8E78243D013DB582173749F0B37D22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909503   (627503) от 17.06.2015
 
 Koto - Greatest Hits & Remixes (2015) 2CD [FLAC|Lossless]<Spacesynth, Italo-Disco>
@@ -688,64 +746,6 @@ VA - Future 80's Records Compilation Vol. IV (2018) [FLAC 2.0|44.1/16, 24|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC2E6EFB1F61BFDAC05499CFF6A57B700506D153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144758   (625770) от 23.06.2017
-
-Asc - Trans-Neptunian Objects (2017) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625770.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sedna (12:48)
-2. Dysnomia (07:31)
-3. Eris (06:45)
-4. Haumea (09:49)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6CB58C37BB2113A1D3B7EA06EFA06DB143A094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144757   (625756) от 23.06.2017
-
-VA - Armada Sunset Vol.4 (2017) [MP3|320 Kbps] <Deep House, Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lost Frequencies feat. Axel Ehnstrom - All Or Nothing (Todiefor Remix)  3:34
-02.  Galavant - Falling (Acoustic Version)  3:12
-03.  Kraak & Smaak feat. Parcels - Stumble  4:31
-04.  Autograf feat. WYNNE - Nobody Knows  3:32(   Читать дальше...   )Жанр: Deep House, Downtempo, ChilloutПродолжительность: 02:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6D5009F0CE661F6919400C02F414F7F9D4F2B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

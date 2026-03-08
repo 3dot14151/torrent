@@ -1,3 +1,29 @@
+###  Публикация: 612034   (987169) от 01.02.2013
+
+Wallpapers - Various nice Wallpapers-4 [1920x1200] [JPEG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Various nice Wallpapers-4 [1920x1200].Разрешение файлов: 1920x1200Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5662593C309FF3BA2F4EE2A3A34DFB13545B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610762   (987168) от 01.02.2013
 
 Inna - Hot (1st Version) (2009) HDRemux [h.264,1080p]
@@ -659,35 +685,6 @@ CheckBook Pro - это не просто базовый инструмент р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F44CBCFB665EBD2A00ED0C77EDABB34A2AAB2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354653   (987046) от 23.01.2020
-
-Distel - Wapens (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darkwave, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987046.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alpha 	3:57
-2. Wapens 	4:20
-3. Majestik 	3:17
-4. Anima	4:16(   Читать дальше...   )Жанр: Synthwave, Darkwave, ExperimentalПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC67D1FC55A5BADC317BC5AB0B37A8CAEF050BAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

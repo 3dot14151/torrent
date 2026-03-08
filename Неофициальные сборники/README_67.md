@@ -1,3 +1,177 @@
+###  Публикация: 982153   (948280) от 03.02.2016
+
+VA - Top 250 Tracks in the CAR Vol.2 (2015) [MP3|320 кб/с] <Club, Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948280.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 3rd Planet - Sevas (Original Mix)
+002 Aaliyah - If Your Girl Only Knew (Liva K Edit)
+003 Ad Brown - From Within (Sebastian Weikum Summer Style Remix)
+004 Ad Brown Feat. Painted Face - Undreamt (Original Mix)(   Читать дальше...   )Жанр: Club, Deep House, Electro HouseПродолжительность: 24:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE80D0090AE8724C598F72F3B6A5DB2967B4315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982208   (948241) от 03.02.2016
+
+VA - Relic Melody: New Age Pack (2016) [MP3|320 кб/с] <New Age, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948241.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Astropolis feat. Eirch von Daniken - World of Mysteries
+002. Rainbow Suzy - Introduction 1
+003. Terry Oldfield - Reach Out
+004. Age Of Echoes - Spirit of Adventure(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 08:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C08659671A8E80E4611FAA6AB92B3B2DF820D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982458   (948239) от 03.02.2016
+
+VA - Super Disco 90s: Great Radio Mix (2016) [MP3|320 кб/с] <Disco, Pop, Retro, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948239.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mc Erik & Barbara - Save The Jungle
+002. Britney Spears - ...Baby One More Time
+003. DJ Bobo - Somebody Dance With Me
+004. Activate - I Say What I Want(   Читать дальше...   )Жанр: Disco, Pop, Retro, DanceПродолжительность: 06:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E21314AC01E130DB6A42EB7E86C9AD913BB9A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858647   (948208) от 11.01.2015
+
+Стас Михайлов - Лучшее (6CD) (1997-2014) (2015) [MP3|320 кб/с]<Авторская песня, шансон, поп>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948208.jpg" />
+</div>
+
+
+###  Подробнее
+
+096. Мы ждём (2013)
+097. Две души (2013)
+098. Не обижай любовь (2013)
+099. Спящая красавица (с Зарой) (2013)(   Читать дальше...   )Жанр: Авторская песня, шансон, попПродолжительность: 07:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C5B819ACA01871A73F68F174E80B5EF6977E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982171   (948128) от 03.02.2016
+
+VA - Best Reggae Day (2016) [MP3|320 кб/с] <Reggae, Jungle>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha Blondy - No Brain No Headache
+02. Omar Perry - Blaze This Ya Fire
+03. Etana - How Long
+04. Nicodrum - Rainy Days(   Читать дальше...   )Жанр: Reggae, JungleПродолжительность: 03:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE02FF0F11FD0257B340F76296227101B9D4773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982433   (947997) от 03.02.2016
+
+VA - Guitar Collection 1 (2016) [MP3|320 кб/с] <Instrumental, Blues-Rock, Acoustic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947997.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arida Vortex - Alienation 04:35
+002. Chet Atkins & Les Paul - The World Is Waiting For The Sunrise 02:21
+003. Garry Moore - Still Got The Blues (Album Version) 04:09
+004. Jesse Cook - Broken Moon 03:19(   Читать дальше...   )Жанр: Instrumental, Blues-Rock, AcousticПродолжительность: 07:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82B93370C4F54F8E8A6CBA13A3AC1521383D61E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089943   (947697) от 06.01.2017
 
 VA - Global House Lighting Club (2017) [MP3|320 Kbps] <House, Funky, Tech House, Progressive, Club>
@@ -571,180 +745,6 @@ VA - Deep and Sexy: 20 Deep House and Funky House Music Tunes Vol.6 (2016) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAF7346C9CDF34C80BD3D6BEC69513A524AA3631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982718   (947059) от 04.02.2016
-
-VA - Silver Voice: RnB Dolce Boom (2015) [MP3|320 кб/с] <RnB, Soul, Funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947059.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Freddie and the Kinfolk - Mashed Potato Popcorn
-002. Mr. Perculator - I Got a Thing For You Baby
-003. Aretha Franklin - I Say A Little Prayer For You
-004. Bull Moose Jackson - I Know Who Threw the Whiskey In the Well(   Читать дальше...   )Жанр: RnB, Soul, FunkПродолжительность: 07:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA03A025E42ECFF8875CB0099345690B70967713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090195   (946918) от 06.01.2017
-
-VA - Лучшая Дискотека 80-90 (2017) [MP3|320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946918.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ray Orion - Raysynth Dance (Space Medusa Melody) 3:54
-002. Digital Dreams - Power Sound (Extended Mix) 5:12
-003. F.R. David - Pick Up The Phone 3:57
-004. Barcode Brothers - Dooh Dooh 3:52(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 13:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3069469DEB0A636FD5A2B7BDE95803538CDCA5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982428   (946896) от 04.02.2016
-
-VA - House Nation Volume 1 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mat Zo - Lucid Dreams (The M Machine Remix) (05:24)
-02. Herve feat. Seasfire - Lose Control (Taiki & Nulight Remix) (04:23)
-03. Gareth Emery feat. Krewella - Lights Thunder (Darren Styles Remix) (05:06)
-04. Naughty Boy feat. Sam Smith - La La La (Kaos Remix) (03:55)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C82A0C6F9297AB3E6097AD18D65C68841A8E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751487   (946840) от 30.01.2014
-
-VA - Lounge At The Seashore 4 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946840.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aperitif Quartet - Another Drink
-002. Soleil Fisher - Daydreaming - Chill Mix
-003. Enigmatic - Jardin D' Hiver
-004. KZ Groove - Turchese(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3D5061BC28260523AAEFA6D18E265613A1C5F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982648   (946727) от 04.02.2016
-
-VA - Новая Русская Дискотека (2016) [MP3|205 - 320 кб/с] <Поп, Танцевальный>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анонс - С Новым Годом Обезьяны (03:52)
-02. Кирилл Филамешин - Белый снег (prod.ABS-DIGITAL ) (03:11)
-03. Aркадиас - Cоленый дождь (04:06)
-04. Арвид - Ты позови меня (03:48)(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 05:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E3C578905E77E0137F92797CBD7AE21CF7BF74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982602   (946708) от 04.02.2016
-
-VA - Blues Forever vol.17 - vol.20 (2015) [MP3|320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Doiron - Slippin' Back Into The Dip
-02. B.B.Chung King - When The Blues Catch Up With You
-03. Kenny Lee - Country Boy
-04. Jim Capaldi - Living On The Outside(   Читать дальше...   )Жанр: BluesПродолжительность: 05:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D6BF6F747838201620605AD0841885A4EA38C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

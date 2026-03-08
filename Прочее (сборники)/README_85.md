@@ -1,3 +1,119 @@
+###  Публикация: 1149233   (602535) от 09.07.2017
+
+VA - Airbeat One (2017) [MP3|320 Kbps] <Club, Future Bass, Indie Dance, и другие>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airbeat Inc. - Won't Come Down (Airbeat One Anthem 2017) (Feat. Pearl Andersson) 03:27
+02. Neelix - 1000 Sterne (Extended Mix) 06:41
+03. Galantis - Rich Boy (Quintino Remix) 03:37
+04. Alle Farben - Far Green (Feat. Lahos) 06:57(   Читать дальше...   )Жанр: Club, Future Bass, Indie Dance, и другиеПродолжительность: 08:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064EDDBB5C24563D2034A2AE4024E3CDCA3DB8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149223   (602512) от 09.07.2017
+
+VA - The 90’s (2017) [MP3|320 Kbps] <Pop, Rock, Alternative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candlebox – Far Behind.mp3
+02. Mase – Feel So Good.mp3
+03. Barenaked Ladies – Alcohol.mp3
+04. Faith No More – Easy.mp3(   Читать дальше...   )Жанр: Pop, Rock, AlternativeПродолжительность: 03:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0C91A3F72269843B8B7D92497668889E3BDFD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148869   (602411) от 09.07.2017
+
+VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.23 (2017) [MP3|128-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michel Telo - Ai Se Eu Te Pego
+002. Taio Cruz feat FloRida - Hangover
+003. Ёлка - Около тебя
+004. Serge Devant and Coyle Girelli - On your Own(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE9811BE1ED72B6EDD5B7E4258D2F40616488AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298099   (602171) от 26.04.2019
+
+VA - Bassline Megamix: Spring Party (2019) [MP3|320 Kbps] <Drum And Bass, Dubstep, Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602171.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anile - Earth & Mars
+002. Fishy - Suspense (Original Mix)
+003. Hoover1 - Hoover1A
+004. Dj Tiny M - Sanity Killz Dat (Original Mix)(   Читать дальше...   )Жанр: Drum And Bass, Dubstep, BassПродолжительность: Drum And Bass, Dubstep, Bass
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0441F44A51BD824376383D40B96B6F5069D95FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298231   (602159) от 26.04.2019
 
 VA - ЕвроХит Топ 40 Europa Plus 26.04.2019 [MP3|320 Kbps] <Pop, Dance>
@@ -659,119 +775,6 @@ VA - Empire Records - Deep Disco 2 (2017) [MP3|263-320 Kbps] <Dance, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4744D264AF6C030B4643DC200E0427A12625577A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548306   (598198) от 03.05.2022
-
-VA - La Perla De Musica: New Latin (2022) [MP3|320 Kbps] <Latin, Dance, Reggaeton>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжетная линия музыки этого сборника буквально нашпигована этническими мотивами латино, но наложено это на вполне себе европейский бит и бас. Авторам очень удачно удалось использовать схожесть народных инструментов с различными современными электронными "фишками" и они очень удачно это обыграли.001. Anuel Aa - Nunca
-002. J. Balvin - Blanco
-003. Sech - Relacion
-004. Manuel Turizo - Una Vez Mбs(   Читать дальше...   )Жанр: Latin, Dance, ReggaetonПродолжительность: 08:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97F2F7E5ED9A053C63EDC845532196C9404E2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914440   (598168) от 02.07.2015
-
-VA - Summer Pop Mania (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Major Lazer X DJ Snake Feat. MO - Lean On
-02. Fabio XB & Liuck Feat. Christina Novelli - Step Into The Light
-03. CJ Stone - Sound Of Infinity
-04. Madcon Feat. Ray Dalton - Don't Worry(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1741C29846D6680727EE3A50C2E89E3A5715BF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548224   (598019) от 03.05.2022
-
-VA - Music News vol.185 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598019.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anna Krishtal - Выходной От Тебя (02:57)
- 002. 13Kai - Мишка (01:37)
- 003. Adam feat. Mikki - Прошу Постой (04:09)
- 004. Alan Walker - The Drum (03:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A5D2570089CBB9325252FDE09CE7257E1F9C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914331   (597993) от 02.07.2015
-
-VA - (OST - Score) Sonic Adventure 2 (2001) [MP3|320 кб/с]
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип собранный из Lossless качестваЖанр: Electronic / RockПродолжительность: 03:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A21FEB7A6ADAD561A671A78FC9121471EA78C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

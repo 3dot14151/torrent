@@ -1,3 +1,177 @@
+###  Публикация: 1392434   (769186) от 26.06.2020
+
+VA - Trance Mission: Fantasy (2020) [MP3|320 Kbps] <Trance, UpliftingTrance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769186.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ferry Corsten & Ciaran McAuley - Mo Chara (Extended Mix) 6:42
+002. Maria Healy - Clouds 3:31
+003. Leroy Moreno - Aetheria (Original Mix) 6:31
+004. Nikolauss - We Are Not Alone 3:53(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveПродолжительность: 11:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B81239E80A7D249C0B73D4C9778009BC16AE9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392772   (768970) от 28.06.2020
+
+VA - German Top 100 Single Charts 26.06.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768970.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bonez MC - Big Body Benz (2:28)
+2. UFO361 - Emotions (2:26)
+3. Capital Bra & Bozza - Ich weiß nicht mal wie sie heißt (2:48)
+4. Pashanim - Airwaves (2:58)(   Читать дальше...   )Жанр: PopПродолжительность: 04:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396E016F55178F58270E1D98C37D7CAB2AA4B02B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392774   (768963) от 28.06.2020
+
+VA - Beatport Funky House: Electro Sound Pack #109 (2020) [MP3|320 Kbps] <Funky, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myno My - Break Law
+02. The Familys Jam - Alone
+03. Grooveandyes - Lesyx
+04. Silvano Del Gado - El Flamenco(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 08:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6979A312481755C4E92E65DD5954045313F3648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392776   (768957) от 28.06.2020
+
+VA - Beatport Techno: Electro Sound Pack #114 (2020) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768957.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ddeck - Trapped
+002. Mamin - Lost In The Wood
+003. Yan Oxygen - Gold Cobra
+004. Blue Collar - Corktown(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC9DDD859EECF2CACD5A16EB018F444D21EF40B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392936   (768942) от 28.06.2020
+
+VA - Beatport Progressive House: Electro Sound Pack #113 (2020) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768942.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Music Elevation - Universe
+002. Christopher Corrigan - Sleepless Nights
+003. Ariams feat. Arabax - Beatrice
+004. Jaroslav Kral - Dancing Meadow(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD8E46F00272E63AC99BDEDBC0D7CCB02E4A834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392747   (768927) от 28.06.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 26.06.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mari Ferrari with M.Z.I & S-ELM feat. Vianne - Drop Dead 2:32
+02. Ava Max - Salt 3:00
+03. Pascal Letoublon - Friendships 4:02
+04. Surf Mesa feat. Emilee - ily (i love you baby) 2:57(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFDE5C739ACB6E8ECBD0C01F3F8F8F2EF0396AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392933   (768866) от 28.06.2020
 
 VA - Sexy Music or Songs to Striptease to or Songs to Have Sex (Fuck Music 2CD) (2020) [MP3|320 Kbps] <Easy Listening, Rock, Pop>
@@ -570,180 +744,6 @@ VA - Легко на сердце от песни весёлой (2017) [MP3|192
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3B48E77D3155C91FDDF99763904C931E146B59A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125580   (767828) от 15.04.2017
-
-VA - Metal Ballads - Collection (Vol.01-02) (2017) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metal Ballads - Collection 01:
-01. At Vance - The Evil In You (5:11)
-02. Firewind - Land Of Eternity (5:52)
-03. Tangier - Caution To The Wind (4:26)(   Читать дальше...   )Жанр: MetalПродолжительность: 02:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F85FF0F422AF5F95E79C2590F4FB6A1E8E4CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278863   (767784) от 27.01.2019
-
-VA - New Music Releases Week 3 of 2019 (2019) [MP3|320 Kbps] <Pop, Rock, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767784.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Above & Beyond, Marty Longstaff - Flying By Candlelight (Above & Beyond Club Mix)
-002. Alice Merton - Learn To Live
-003. Ananya Birla - Better
-004. Anuel Aa, Karol G - Secreto(   Читать дальше...   )Жанр: Pop, Rock, TranceПродолжительность: 07:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD7EF0A2CF1358F99380685BDEE2EF20CF18AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278815   (767775) от 27.01.2019
-
-VA - Record Super Chart 571 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fisher  -  Losing It
-02.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-03.  Rompasso  -  Ignis
-04.  Gaulin  -  Moonlight(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4D7105B1DE2146706067A08422F18BA6DF059F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278775   (767725) от 27.01.2019
-
-VA - Radio DFM: Top 30 D-Chart 25.01.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fisher - Losing It 4:08
-02. Leonid Rudenko feat. Alina Eremia & Dominique Young Unique - Love & Lover 3:17
-03. Silk City & Dua Lipa - Electricity 4:22
-04. Lost Frequencies feat. The NGHBRS - Like I Love You (The Him Remix) 3:07(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F738D0049C7AA89D076DB7AABD7AD50CA43795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393547   (767715) от 30.06.2020
-
-VA - Beatport Hardstyle: Electro Sound Pack #117 (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle, Core Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767715.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vandal!sm - Just A Freak
-002. Substanced - Lionheart
-003. D-Ceptor - Future Molding
-004. Nothing But Requiem - Bouquet Of Pot Marigold(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, Core DanceПродолжительность: 07:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803F118B4C2D57D7BB1CDF3301AB00DEF9CF4457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393387   (767713) от 30.06.2020
-
-VA - Panorama: The Grand Lounge Sounds (2020) [MP3|320 Kbps] <Lounge, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767713.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Capa - Freezing Moon
-002. Kevin Jenkins - So Many Hopes
-003. Arrojas - Nos Trilhos
-004. Boyce Peters - Full Time(   Читать дальше...   )Жанр: Lounge, Downtempo, AmbientПродолжительность: 08:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B515D717081C26819964CC5BF9E733D1176C143C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1025389   (711947) от 11.06.2016
+
+VA - Танцевальное Лето Зарубежный (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trey Songz - Y.A.S. (You Ain't Shit)
+02. James Bay - Incomplete
+03. Alanis Morissette - Wake Up
+04. Logic - Till The End(   Читать дальше...   )Жанр: PopПродолжительность: 06:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFAA77448096BD2066A20C2DEAD272C8BADB677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219489   (711922) от 15.04.2018
+
+VA - Весеннее созвездие хитов (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711922.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nk (Настя Каменских) - Чудо Рождества
+002. Ivan Art Feat. Марина Финогенова - Самый Лучший
+003. Афродита - Расстаемся Навсегда
+004. Лена Максимова - До Рассвета(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3018829BAE3C0A6B60C912FC7F72E59E4BA1A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219523   (711920) от 15.04.2018
+
+VA - The Official UK Top 40 Singles Chart 13.04.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake, Big Freedia, 5thward Weebie - Nice For What (New Entry) (03:32)
+02. Lil Dicky - Freaky Friday (feat. Chris Brown) (03:37)
+03. Calvin Harris, Dua Lipa - One Kiss (New Entry) (03:35)
+04. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (03:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C243D4985EEA03D875C14C44DE4FC24EFCB1652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219490   (711914) от 15.04.2018
+
+VA - Весеннее созвездие хитов (2) (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711914.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Isupov - Минутами
+002. Малай - Неправда
+003. Ольга Бузова - Бери Меня
+004. Malika - Все Забыть(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EAA23B13F3C2ED3E706D0FC632DDA3673CA304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219430   (711908) от 15.04.2018
+
+VA - De Top 100 Aller Tijden 1987 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711908.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Piet Veerman - Sailin' Home (4:36)
+002. Jan Hammer - Crockett's Theme (3:31)
+003. Whitney Houston - I Wanna Dance With Somebody (4:50)
+004. Mixed Emotions - You Want Love (Maria Maria) (3:59)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACB88122C9CF7669E16138EACAEDA32A849A839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025356   (711774) от 11.06.2016
+
+VA - Зайцев нет. Лучшие новинки июня (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lx24 - Мы останемся в городе одни feat. Мари Краймбрери
+02. Iowa - 140
+03. Анжелика Варум - Иллюзия
+04. L'One - Супергерой feat. Найк Борзов(   Читать дальше...   )Жанр: PopПродолжительность: 03:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CB1453D746F31ED12B94AC21EC9C9269D112F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219621   (711719) от 15.04.2018
 
 VA - Душевный сборник радио Шансон (11) (2018) [MP3|256 Kbps] <Шансон>
@@ -573,180 +747,6 @@ VA - X-Pollination: Tech House Dance Project (2016) [MP3|320 кб/с] <Techno, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09E8674B0893947E1D485B64EF7DC728BFB0FD0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025525   (710112) от 12.06.2016
-
-VA - Red Lips House: Soulful Female Vocal House Trax from Deep 2 Progressive (2016) [MP3|320 кб/с] <Deep House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix - Time 2 Love - Intro Vocal Mix
-02. Housetronik - Soul Fever - Romero Shape Club Mix
-03. Atrium - Mint Flavour - Ibiza Chillhouse Mix
-04. Intention Crew - Do It Right - Full House Mix(   Читать дальше...   )Жанр: Deep House, Vocal HouseПродолжительность: 03:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3C68EF50099E148599E2C0351346C34F0596B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025541   (710108) от 12.06.2016
-
-VA - Daybreak Sessions 2016 By Tomorrowland (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Daybreak Sessions 2016 (Continuous Mix 1) [1:12:57]
-02. DJ Mix - Daybreak Sessions 2016 (Continuous Mix 2) [1:16:02]
-03. Lopezhouse feat. Angela - Crosses and Angels [7:49]
-04. G Club Presents Banda Sonora - Guitarra G (Martijn Ten Velden 2015 Mix) [8:24](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 05:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E55517FFE07CC5A0AD94BC294EB6EC2B3896AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025591   (710107) от 12.06.2016
-
-Vale Of Pnath - Vale Of Pnath II (2016) [MP3|320 кб/с] <Melodic Death Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blacker Than
-02. A Nightmare Phantasm
-03. Klendathu
-04. The Horror In Clay(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3B7F5078B9DD24E4A13114C2F30337CDD3E14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025556   (710104) от 12.06.2016
-
-VA - Clubfete 2016.02 - Summer Club & Party Hits (2016) [MP3|256 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sia, Sean Paul - Cheap Thrills (feat. Sean Paul) [03:43]
-02. Jason Derulo - If It Ain't Love [03:23]
-03. DNCE - Cake By The Ocean [03:38]
-04. Alan Walker - Faded [03:30](   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E89FD3B039511F4DFDC08F552034B0C1E39BDA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219848   (710050) от 16.04.2018
-
-VA - Deep House Ladies Night (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710050.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Agatino Romero feat. Duncan Townsend - All I Wanna Do  (Original Mix)
-002. Zeni N - Moonlight (Original Mix)
-003. Airbas - After Hours  (Petros Odin Nightwalking Remix)
-004. Tough Art, Zukk - Homeless (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811B45DEDC84ACFAC3A2FF0F0DE19F8233525BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219907   (710045) от 16.04.2018
-
-VA - Extended The Beauty Latinos (2018) [MP3|320 Kbps] <Reggaeton, Trap Latino, Baile Funk, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J King & Maximan Feat. Almighty, Jon Z, Ele A, Juhn, Maicke Casiano, Lisux Y Jamby - 1 Million (Lmpool Dirty Morphius Clap Intro) 2:47
-02. Prince Royce - El Clavo (Main Dirty) 2:53
-03. Almighty - Siempre Esta Conmigo (Lmpool Long Edit Clap Intro) 3:34
-04. Maluma Feat. Arcangel - Vitamina 4:30(   Читать дальше...   )Жанр: Reggaeton, Trap Latino, Baile Funk, OtherПродолжительность: 02:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B56DFAD9F71007EF852AE47ECB926DCCB082D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

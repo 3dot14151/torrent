@@ -1,3 +1,32 @@
+###  Публикация: 978831   (962614) от 24.01.2016
+
+Eumir Deodato - First Cuckoo (1975) 2006, Universal[FLAC|tracks+.cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Funk Yourself [04:15]
+ 02.Black Dog [04:16]
+ 03.Crabwalk [07:41]
+ 04.Adam's Hotel [03:40](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4364E9DE3DE0BCE22402C27C1445989614DBFA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978703   (962517) от 24.01.2016
 
 Doris Day - Sentimental Journey (1950-e) 4CD, 2006, Proper Records[FLAC|tracks+.cue] <Vocal Jazz>
@@ -712,35 +741,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2453A8450F2EA2DD47893E3670E9F251D8A8ECC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088864   (955173) от 01.01.2017
-
-Barney Kessel - Contemporary Latin Rhythms! (1961) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues In The Night [02:40]
- 02.Days Of Wine And Roses [02:30]
- 03.Latin Dance #1 [02:32]
- 04.Lady Bird [03:31](   Читать дальше...   )Жанр: Bop, Cool, West Coast JazzПродолжительность: 00:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633110CE61F95FE64A514AA3114C238149B092F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

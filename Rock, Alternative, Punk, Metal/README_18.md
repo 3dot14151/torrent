@@ -1,32 +1,3 @@
-###  Публикация: 1839499   (1046615) от 29.11.2025
-
-Leah Martin-Brown - Love & Other Crimes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr X (3:30)
-02. R U Chicken (3:31)
-03. Clooney (3:10)
-04. Levitate (4:03)(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A2430091CE2E21282DD70D7E58C750FD4BF335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839396   (1046613) от 29.11.2025
 
 Buckcherry - Black Butterfly (2008) Deluxe, 2025, Endurance Music Group [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -745,6 +716,35 @@ Energema - Promised Land (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD336F1CE7924DC06E2D980ABCCEA2F44DEE608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601725   (1046357) от 02.01.2023
+
+Caravela Escarlate - 3 Albums (2016-2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2016 - Rascunho
+2017 - Caravela Escarlate
+2023 - IIIЖанр: Progressive Rock, Symphonic ProgПродолжительность: 3 CD, 02:12:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA62529CFBC5AC44B459A304835A75A14F19159A
 ```
 
 https://mybot314.ru/tekegram_catalog/

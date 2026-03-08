@@ -1,268 +1,25 @@
-###  Публикация: 1777855   (70964) от 07.02.2025
+###  Публикация: 1777724   (71003) от 06.02.2025
 
-Растровый клипарт - Dealjumbo.com - Deeezy - Virus Free PNG Alphabet - 95010 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный алфавит-латиница сделанный под вирус в пяти вариациях.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9AC872234E9405A5D9A5370DAFBE640E15AF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777774   (70963) от 07.02.2025
-
-Александр Амфитеатров, Антоний Погорельский, Владимир Одоевский и др. | Антология русской мистики (Том 5). Прогулка домового (2021) [MP3, Радион Нечаев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Антология русской мистики.
-Многие критики считают, что вся русская мистика создавалась под влиянием готических романов и чудовищных фантазий Эдгара По и Мэри Шелли. Это заблуждение развеет последний том антологии. Здесь собраны рассказы, герои которых не приснились бы заморским мастерам ужаса даже в самых страшных снах. Вам встретится нечисть всех мастей (   Читать дальше...   )Жанр: Русская литература, классика, мистика, рассказИздательство: Книжное издательство БабицкогоПродолжительность: 03:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D21B4955D0465D513291EBA87EA5849C0A30F3EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777859   (70962) от 07.02.2025
-
-Растровый клипарт - Dealjumbo.com - Deeezy - Christmas Deco Free PNG Alphabet - 95055 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный алфавит-латиница в пяти вариациях.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14148EED35EFD3CDFBC58CADA8B4151F33513A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777771   (70961) от 07.02.2025
-
-Орест Сомов, Григорий Данилевский и др. | Антология русской мистики (Том 3). Таинственная свеча (2021) [MP3, Дмитрий Шабров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Антология русской мистики.
-Герои рассказов, собранных в этой книге - обычные люди. Одни хотят простого семейного счастья. Другие желают блистать в обществе и подниматься по карьерной лестнице все выше и выше. Третьи мечтают, чтобы их оставили в покое. Однако сталкиваясь с таинственными явлениями, все обычные люди ведут себя одинаково: кричат от ужаса. (   Читать дальше...   )Жанр: Русская литература, классика, мистика, рассказИздательство: Книжное издательство БабицкогоПродолжительность: 04:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6ED5B0C88E8B5BFEC4B6FCF95987B65A36BFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777866   (70960) от 07.02.2025
-
-Растровый клипарт - Dealjumbo.com - Deeezy - Sharp Fantasy FREE Alphabet - 95056 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный алфавит-латиница в пяти вариациях.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D852FB8B6B482DE9AC92E7BE7B29A1C72BB732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777764   (70959) от 07.02.2025
-
-Святитель Афанасий Великий | Избранные творения (2014) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святитель Афанасий Великий (ум. 373) — блестящий богослов и исповедник Православия. Наряду с великими вселенскими учителями Василием Великим, Григорием Богословом и Иоанном Златоустом он славен безупречностью изложения веры.
-
-В настоящую книгу вошли его значимые богословские труды, а также Пасхальные послания.Жанр: ПравославиеИздательство: Издательство сретенского монастыряФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8920ED0EB49A6D8B4592BCDB65D6246D71C4118A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777841   (70958) от 07.02.2025
-
-Buddy Rich And The Big Band Machine - Speak No Evil (1976) 2008, Wounded Bird Records [FLAC|Lossless|image + .cue] <Jazz-Funk, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak No Evil [3:48]
-02. Yearnin' Learnin' [5:40]
-03. Storm at Sunup [6:37]
-04. Love Me Now [4:27](   Читать дальше...   )Жанр: Jazz-Funk, Big Band, SwingПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC2B8064B0F3CD508238B67A04A447965F4F88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777816   (70957) от 07.02.2025
-
-Шрифты - Rhumba by Stiggy & Sands [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rhumba начинался как оцифровка киношрифта от LetterGraphics в начале 70-х годов, известного как "Barrio Lined". Первоначально это был только один шрифт, представленный нашим стилем Rhumba Lined, он был забавным и предлагал больше разнообразия для расширения стилей этого драгоценного камня.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47240DA5D3B20BC7FC1921C05FE8DB5FAE6F0E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777788   (70956) от 07.02.2025
-
-Растровый клипарт - Dealjumbo.com - Deeezy - Beer Cap FREE Alphabet & Color Font - 95005 [PNG, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный алфавит-латиница в виде пивных крышек в пяти вариациях. Материал в комплекте со шрифтом.Разработчик: Dealjumbo.comФормат: PNG, OTFРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C03EBE12DB62EDD2DEED7FA336B343712C35670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777901   (70954) от 07.02.2025
-
-Majestica - Power Train (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+Days of Jupiter - The World Was Never Enough (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70954.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Power Train [00:04:04]
-02. No Pain, No Gain [00:03:35]
-03. Battle Cry [00:04:00]
-04. Megatrue [00:05:41](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:47:00
+01. Original Sin
+02. The World Was Never Enough
+03. Machine
+04. Desolation(   Читать дальше...   )Жанр: Alt.Metal, Modern Hard RockПродолжительность: 00:44:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3547DCCAD51C6DCC8EF6E098442C96310EBF41BE
+magnet:?xt=urn:btih:876E79B18088AF978E56892DD3923D8909785469
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777775   (70953) от 07.02.2025
+###  Публикация: 1777443   (71002) от 06.02.2025
 
-Николай Гоголь, Иван Тургенев, Николай Гейнце и др. | Антология русской мистики (Том 6). Влюбленный призрак (2021) [MP3, Илья Веселов]
+Юлия Столярова | Он и Она (2024) [MP3, Екатерина Финевич]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70953.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Антология русской мистики.
-В шестом томе представлены истории о тайных обществах и кошмарных видениях, ночных путешествиях вместе с призраками, о дьявольских искушениях и превращении людей в чудовищ и, конечно, о проклятых портретах – без всего этого не обходится классика ужаса.
-
- Антология русской мистики на NoNaMe ClubЖанр: Русская литература, классика, мистика, рассказИздательство: Книжное издательство БабицкогоПродолжительность: 04:13:40
+Новые правила отношений – как найти настоящую любовь в XXI веке?
+12 самых распространенных ошибок в построении крепкой любовной связи.
+О бывших отношениях, сексуальной энергии, манипуляциях и многом другом.
+Юлия Столярова – психолог, трансформационный тренер с опытом более 12 лет. Духовный наставник и энерготерапевт.(   Читать дальше...   )Жанр: ПсихологияИздательство: АСТПродолжительность: 08:10:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CE8F9DCF1DDB8FB0A586533D5EC7256A0341A01
+magnet:?xt=urn:btih:7E51731D7A71AD27F965FFD7ADF1CAB73622378F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,140 +56,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777956   (70952) от 07.02.2025
+###  Публикация: 1777711   (71001) от 06.02.2025
 
-Vargas Blues Band - Blues The Healer (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To My Roots
-02. Blues For Jaky
-03. Anaconda Style
-04. God Give me Strength(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B473F50AE3039CE8EDB11AFC03C247FF3B42AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777759   (70951) от 07.02.2025
-
-Шрифты - Belluto Typewriter by Stiggy & Sands [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bulleto Typewriter переносит редкую индивидуальность винтажной пишущей машинки Bulletin DC 6-1 Pitch в цифровую эпоху. Bulleto имеет уникальный стиль шрифта без засечек, который чувствует себя как дома в воссозданиях старинных военных совершенно секретных документов, а также в репродукциях старинных рукописей и многом другом.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631C13820B814947F9C403B316AEFE5059589AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777800   (70950) от 07.02.2025
-
-VA - Armin van Buuren - A State Of Trance 1211 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JOA – Missing Part Of Me
-02. Lycii – Alone
-03. Matt Fax – Vision
-04. Jerome Isma-Ae & JES – Come Alive(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD8F92E19ADABAB6F6C24A82F4A1FF5BB9CD3DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777909   (70949) от 07.02.2025
-
-Majestica - Power Train (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Train [00:04:04]
-02. No Pain, No Gain [00:03:35]
-03. Battle Cry [00:04:00]
-04. Megatrue [00:05:41](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADC7DE29F1BE887B28C2CFA05D59B671EF1A42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777924   (70948) от 07.02.2025
-
-Дочь партизана (1936) WEBRip [H.264/720p]
+Клеопатра / Cleopatra (1910) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70948.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-К середине 1930-х годов Иосиф Сталин победил всех своих внутренних противников. Однако в стране продолжали искоренять состоятельную прослойку крестьян - так называемых кулаков - и остальных "врагов народа". Сценаристы и режиссеры создавали на эту тему множество фильмов, которые рассказывали о сплоченности рабочих и крестьян против "неблагонадежных (   Читать дальше...   )Производство: СССР /  первая комсомольская киностудия "Украинфильм" ОдессаЖанр: драма, историяРежиссер: Алексей МаслюковАктеры: Игорь Романцев, Гуля Королёва, Г. Батобрина, Михаил Иванов, Михаил Хорош, Юдик Обритчук, Ю. Осипец, Галья СерлоковскаяСубтитры: отсутствуютПродолжительность: 01:16:36
+После убийства своего возлюбленного Юлия Цезаря царице Египта Клеопатре нужен новый союзник. Она соблазняет его вероятного преемника Марка Антония. Это становится настоящей любовью и постепенно приводит к войне с другим возможным преемником, Октавианом.
+Картинка не очень высокого качества. Но это лучше чем ничего. Вот "Клеопатра" 1917 года вообще не сохранилась. (   Читать дальше...   )Производство: Франция / Pathe FreresЖанр: короткометражка, драма, мелодрама, история, пеплум, немое киноРежиссер: Анри Андреани, Фердинанд ЗеккаАктеры: Мадлен Рош, Жанна Беранжер, Стасия Наперковска, мадемуазель РианцаПеревод: немой с интертитрами (chayka2)Субтитры: французские (интертитры), русские отдельным файломПродолжительность: 00:16:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC278B6D039072FC44ECA2238458E6973443398E
+magnet:?xt=urn:btih:26D6CE9A0CAEEA59AD8A8B639ED1AEEB0CBFD634
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,28 +83,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777815   (70947) от 07.02.2025
+###  Публикация: 1777604   (71000) от 06.02.2025
 
-VA - The Orient Collective: Dunes & Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+Александр Куприн | Штабс-капитан Рыбников (2020) [MP3, Иван Литвинов]
 
->>Other Styles
->>Other (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70947.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gabriel Slick & Tibetania - Astral Illusion (Original Mix) (7:18)
-02. Arcaans & Tibetania - Dunes (Vadim Bogac Remix) (6:10)
-03. v^connections & Tibetania - Dune (Original Mix) (6:07)
-04. Ale Rauen & Cris Proença & Tibetania - Nae (Original Mix) (6:16)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:58:45
+Серия/Цикл: Классика.
+Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
+Разгар русско-японской войны. Штабс-капитан Рыбников обивает пороги госучреждений в попытке получить пособие (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ЭвербукПродолжительность: 01:37:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF6D199CD5F8DF21668644AE87BC563BF760D162
+magnet:?xt=urn:btih:EF35C94E2C0727FCC65791660CA28C7244DD66F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -469,27 +111,108 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777880   (70946) от 07.02.2025
+###  Публикация: 1777555   (70999) от 06.02.2025
 
-Футбол. Чемпионат Португалии 2024/5. 20-тур. Эштрела - Бенфика. (03.02.2025) WEBRip [H.264]
+Александр Куприн | Лунной ночью и другие рассказы (2016) [MP3, Александр Клюквин и др.]
 
->>Спорт и активный отдых
->>Футбол
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70946.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол.Чемпионат Португалии 2024/5. 20-тур. Эштрела (Амадора) - Бенфика. 03.02.2025
+Серия/Цикл: Классика на все времена.
+В историю отечественной литературы Александр Иванович Куприн (1870–1938) вошёл как автор повестей и романов, а также как крупный мастер рассказа. Он принадлежал к плеяде писателей критического реализма. В своих произведениях Куприн писал только о том, что он сам видел, пережил и почувствовал. В центре его произведений обычно «средний» (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 04:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514E3F90E186F0B7EE938A84FD466A8F76AC8D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777432   (70998) от 06.02.2025
+
+Огни Сретенья / Les feux de la chandeleur / Hearth Fires (1972) WEB-DLRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70998.jpg" />
+</div>
+
+
+###  Подробнее
+
+В один прекрасный день Александр, занимающий видное положение в маленьком городе, начинает всерьез беспокоится за свою дальнейшую карьеру. Его жена Мария-Луиза начинает увлекаться странными революционными идеями переустройства мира. Александр оставляет её и женится на другой женщине. Проходит десять лет. Бывшие супруги вновь встречаются и пламя страсти вспыхивает (   Читать дальше...   )Производство: Франция, Италия / Mega Film, Société Nouvelle de Cinématographie (SNC)Жанр: драмаРежиссер: Серж КорберАктеры: Анни Жирардо, Жан Рошфор, Клод Жад, Бернар Ле Кок, Бернар Фрессон, Илария Оккини, Жан Буиз, Андре Руйе, Ивон Сарре, Изабель Миссю, Габриэлла БоккардоПеревод: Одноголосый любительский (iDimo)Язык озвучки: русский, французскийСубтитры: русские, французскиеПродолжительность: 01:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BBACA1CFCF93E62C4DFF6E6C25FA91DE6CC11BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777584   (70997) от 06.02.2025
+
+Александр Куприн | О колдовстве и любви (2024) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Young Adult. Арт Классика.
+Произведения Александра Куприна (1870–1938) считаются классикой русской литературы и входят в списки «обязательно для прочтения». Его изящный, эмоциональный и эстетичный стиль сразу же узнается среди сонма рассказов других писателей.
+Это издание – дань уважения творчеству незаслуженно непопулярного писателя и признание в любви (   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: ЭксмоПродолжительность: 09:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F324FE704BC5DF58EB6A41F8777694FC3DE39C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777635   (70996) от 06.02.2025
+
+Шрифты - Broken Rules - Anti Design Font [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Broken Rules — это дерзкий антидизайнерский шрифт, который бросает вызов условностям своими нетрадиционными формами и хаотичной эстетикой. Идеально подходящий для экспериментальных проектов, смелых заявлений и творческой свободы, этот шрифт нарушает нормы, чтобы выделиться!
 
-Команда из зоны вылета принимает участника чемпионской гонки. "Эштрела" набрала только два очка в четырех последних турах Примейры, а в последних трех официальных матчах с клубами "большой тройки" чемпионата было допущено три поражения с общим счетом 1:14. Последняя (   Читать дальше...   )Телекомпания: СтартЖанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 00:53:11+00:55:37
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C138F05AD639FB756640526CAE02F9C9CD4A447
+magnet:?xt=urn:btih:7E78DEF45CFA0C7351A60854720D399AD678BA52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,28 +220,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777839   (70945) от 07.02.2025
+###  Публикация: 1777518   (70995) от 06.02.2025
 
-Art Farmer Quintet - Live At Sweet Basil (1992) 1994, Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Растровый клипарт - Resource Boy - 500+ Candy Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные орнаменты в виде конфет. Материал раздается с официальной документацией.Разработчик: Resource BoyФормат: JPGРазрешение файлов: 1024 x 1024
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0714B253483A8B4B4FEAB2A0F9477417626B643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777639   (70994) от 06.02.2025
+
+Шрифты - Artisinal by Stiggy & Sands [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artisinal, не путать с термином artisanal, это наше возрождение шрифта ар-деко, известного как Cubist Bold, созданного Джоном В. Циммерманом для Barnhardt Bros. & Spindler в 1929 году, вдыхает новую жизнь в классику. Оригинальный литой металлический шрифт был разработан без строчных букв, а также без некоторых заглавных клиновидных засечек, созданных для не всегда (   Читать дальше...   )Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDB230FC748D44AC13B65AE79B69B41C8665EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777455   (70993) от 06.02.2025
+
+Art Farmer & Slide Hampton - In Concert (1984) 1995, Enja Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70945.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fairy Tale Countryside [14:38]
-02. Modulations [10:37]
-03. Yesterdays [9:56]
-04. Straight No Chaser [9:08](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:37
+01. Half Nelson [13:06]
+02. Darn That Dream [8:25]
+03. Barbados [11:12]
+04. I'll Remember April [14:08]Жанр: Hard Bop, BopПродолжительность: 00:46:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:693DD8CE09FA8BCDE8A4CF85F2849F602D593ED5
+magnet:?xt=urn:btih:26E6D055A95FE63487323AF55F09E8A261AEDBA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,84 +301,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777902   (70944) от 07.02.2025
+###  Публикация: 1777454   (70992) от 06.02.2025
 
-НХЛ 2024-2025. Вашингтон Кэпиталз - Филадельфия Флайерз (06.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70944.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 февраля 2025, пятница. 03:00 МСК. Стадион: Уэллс Фарго-центр (Филадельфия, США), 18 726 зрителей (94% при вместимости 20 011)
-Главный судья: Коди Бич (Нанаймо, Канада); Главный судья: Жан Эбер (Монктон, Канада); Линейный: Марк Шевчук (Канада); Линейный: Джесси Маркис (Буктуч, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529E7273D89640D42C0EFDA52566AD8C1CF1BF14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777818   (70943) от 07.02.2025
-
-Pentagram - Lightning In A Bottle (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Live Again (03:35)
- 02 - In The Panic Room (03:31)
- 03 - I Spoke To Death (03:41)
- 04 - Dull Pain (03:31)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5415EBBCE94AAF45F6C8055C2CCACBB8BB8A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777843   (70942) от 07.02.2025
-
-John Hicks & Elise Wood - Beautiful Friendship (2000) Hi Wood [FLAC|Lossless|tracks + .cue] <Post-Bop>
+The James Williams Magical Trio - Awesome! (1997) 2000, DIW Records [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70942.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Autumn in New York [5:30]
-02. Beautiful Friendship [4:58]
-03. But Beautiful [6:43]
-04. Corcovado [6:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:19
+01. It's Alright with Me [6:30]
+02. Quietude [7:38]
+03. Time After Time [6:56]
+04. Lonely Moments [4:06](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:05:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCC4F596375DD857C13F02E61E17A0F7EFC0671B
+magnet:?xt=urn:btih:FC7FB81C21FB9773F65B19EA0C971540CAA8787E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,28 +330,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777900   (70941) от 07.02.2025
+###  Публикация: 1777453   (70991) от 06.02.2025
 
-Beans & Fatback - Hold Fast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+John Hicks Quartet - Naima's Love Song (1988) DIW Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70941.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Black and Blue (02:50)
-02 - Tight Ripped Jeans (03:08)
-03 - Sweet Unknown (02:34)
-04 - Turn Around (02:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:22
+01. Elementary My Dear Watson [9:15]
+02. Someday Soon [9:13]
+03. Soul Eyes [7:44]
+04. On the One [7:01](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F96DC1C148017E9A1C742F2043BFACEA0448522
+magnet:?xt=urn:btih:D0DB5C042E4D70F2229C5DAF1C4A4C8296E2E126
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,85 +359,371 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777802   (70940) от 07.02.2025
+###  Публикация: 1777553   (70990) от 06.02.2025
 
-VA - Uplifting Only Episode 626 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escea – Ally (Intro Mix)
-02. Ronny K. pres. Advanced – Atlantis (Simon O’Shine Remix) (Orchestral Uplifting Classic)
-03. VoIces & Lyd14 – Midnight Sun (Fan Favorite (624))
-04. Sandro Mireno – In Our Memory(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB80E4BEF608E8F9E416036A4B1417530993C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777826   (70939) от 07.02.2025
-
-Dreamland - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamland — группа из Швеции, играющая в стиле мелодик-пауэр-метал.2005 - Future's Calling
-2007 - Eye For An Eye
-2009 - Exit 49Жанр: Power MetalПродолжительность: 02:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB62A4D72FF04AC9CFEBF47D5A2FBE15E9213F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777896   (70938) от 07.02.2025
-
-Beans & Fatback - Hold Fast (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+Jean-Maxime Pinta Quintet - For the Peace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70938.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Black and Blue (02:50)
- 02 - Tight Ripped Jeans (03:08)
- 03 - Sweet Unknown (02:34)
- 04 - Turn Around (02:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:22
+01.  Jake Naugle - For the Peace (4:17)
+02.  Jake Naugle - He's the Man (5:17)
+03.  Christian F. Gangeri - Red Chief (4:36)
+04.  Christian F. Gangeri - Birds Can Fly Away (3:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5564E1041A584774F1C5790C53857B5635DB22B8
+magnet:?xt=urn:btih:E1BA949307E9E8779EA76AA73970571057AFD57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777456   (70989) от 06.02.2025
+
+The Buddy Rich Big Band - Mercy, Mercy (1968) 1997, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mercy, Mercy, Mercy [5:35]
+02. Preach and Teach [4:07]
+03. Channel 1 Suite [12:50]
+04. Big Mama Cass [3:22](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0795046B0B694D972E056907C36F82451CDC4CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777573   (70988) от 06.02.2025
+
+Kimmo Salminen - Love House (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Love House (7:52)
+02.  Space Flower (7:27)
+03.  Harakiri (5:14)
+04.  Stream (6:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A2784B8C9BEDE03AA137470083C804A068DD1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777709   (70987) от 06.02.2025
+
+Nico's Trio - Standard's Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Groovin' High (4:18)
+02.  Jayne (4:24)
+03.  Travaglini Stefano - Let's Cool One (5:49)
+04.  Travaglini Stefano - Four (4:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6316D6F733E33A33529BCC0D2723BB042277DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777515   (70986) от 06.02.2025
+
+Bill Moio - Try This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Try This (6:06)
+02.  720 Berkeley (5:50)
+03.  I've Heard It All Before (4:57)
+04.  Need To Know (5:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC878647C4AB8A8A7F8C6ABFD38B838FBA98789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777459   (70985) от 06.02.2025
+
+Dick Hyman - Face The Music: A Century Of Irving Berlin (1988) Musicmasters [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady of the Evening [5:31]
+02. Let's Face the Music and Dance [2:31]
+03. The Night Is Filled with Music [3:02]
+04. Soft Lights and Sweet Music [3:32](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC47447E064C8191648AFFA4ACC2AB87C1D81DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777494   (70984) от 06.02.2025
+
+Drohkaal - Divinity Within (2024) [MP3|320 Kbps] <Thrash, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Shot
+02. Best Served Cold
+03. The Witch
+04. Where Are We Headed(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F53E36E7E7155E0A3242740D16BE4E1A347FE49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777712   (70983) от 06.02.2025
+
+Peter Erskine & JAM Music Lab All-Stars - Vienna to Hollywood: Impressions of E.W. Korngold & Max Steiner (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Herwig Gradischnig - March of the Merry Men (7:07)
+02.  Danny Grissett - Sterbelied (from Lieder des Abschieds, Op. 14) (6:13)
+03.  Bertl Mayer - Old Spanish Song (5:32)
+04.  Danny Grissett - The Boys Go to Play (5:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A0441F82082563FE04FBA40E16DB09AED11C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777707   (70982) от 06.02.2025
+
+Nel Begley - Small Flame (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cherokee (4:09)
+02.  A House Is Not A Home (6:17)
+03.  The Gentle Rain (5:09)
+04.  Lucky To Be Me (5:51)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E49ABDBB604AF8FAAA9727CCB89D94AFBCCDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777870   (70981) от 07.02.2025
+
+Sixth Sample & Integraudio - Deelay 1.3.1 VST 3, AAX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deelay - это бесплатный плагин задержки с набором функций, упакованных в простой, минималистичный интерфейс. Диффузия для создания реверберации от небольших камер до огромных кинематографических волн, искажения от едва заметной насыщенности до агрессивной формы волны, модуляция для оживления ваших звуков и многое другое. Изучите пять различных режимов задержки и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4945CB25279034563E943FA7B872D7CFC7DB7306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777929   (70980) от 07.02.2025
+
+Marko Hietala - Roses From The Deep (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankenstein’s Wife
+02. Left On Mars
+03. Proud Whore
+04. Two Soldiers(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1ADC58451F4536D895B237FCD4D11A6406AE05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777475   (70979) от 07.02.2025
+
+VA - The Best Of Italo Disco Vol. 9 (1987) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spagna - Call Me
+02. Interface - Plastic Age
+03. Eddy Huntington - Meet My Friend
+04. Morgana - Ready For Love(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822021F3C640FF7E2F73C20EE6B918B3C40E5D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777769   (70978) от 07.02.2025
+
+Алексей Толстой, Александр Иванов и др. | Антология русской мистики (Том 1). Недобрый глаз (2021) [MP3, Роман Волков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Антология русской мистики.
+У современного читателя взгляд на классическую литературу весьма однобокий, чего нет в школьных учебниках, того, почти наверняка, не знают. Русскую мистику привыкли ассоциировать со страшными сказками Гоголя, где чёрт ворует месяц с неба, а бурсак чертит мелом круг, оберегающий от нечистой силы. Эта антология представит вам (   Читать дальше...   )Жанр: Русская литература, классика, мистика, рассказИздательство: Книжное издательство БабицкогоПродолжительность: 04:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F507953C67189A32749E2E80CF763DD83C6A67
 ```
 
 https://mybot314.ru/tekegram_catalog/

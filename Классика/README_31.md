@@ -1,3 +1,32 @@
+###  Публикация: 239009   (474869) от 24.09.2010
+
+Jordi Savall + Montserrat Figueras + Arianna Savall - 6 альбомов (2000-2010) [APE|Lossless|image + .cue] <Classic, Sacred>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474869.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Preghiera	6:34
+  2. El Llenguatge Dels Ocells	6:16
+  3. Liebes-Lied	3:11
+  4. She Moved Through The Fair	3:32(   Читать дальше...   )Продолжительность: ~ 7:03:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 342986   (473527) от 05.09.2018
 
 С.В.Рахманинов - Полное собрание сочинений 31CD (2009, Brilliant Classics) [MP3|320 kbps]<Classical>
@@ -725,35 +754,6 @@ Serenade For Strings In C Major, Op. 48
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5DDD45A83B586E6FEA4CF261C8B85B898502C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942183   (453558) от 01.10.2015
-
-Schubert - The Complete Impromptus, Moments Musicaux (Alfred Brendel) (2CDs) (1997) [FLAC|image +.cue]<Classical, Romantic Period, Character Piece, Dance - Classical, Impromptu, Ecossaise>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453558.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 Klavierstcke, D.946
-01. No.1 in E flat minor (Allegro assai) (09:03)
-02. No.2 in E flat (Allegretto) (09:36)
-03. No.3 in C (Allegro) (05:06)(   Читать дальше...   )Жанр: Classical, Romantic Period, Character Piece, Dance - Classical, Impromptu, EcossaiseПродолжительность: 02:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0A29B9840F120BA6253F5FEF00EEE0E4312B5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

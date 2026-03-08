@@ -1,3 +1,61 @@
+###  Публикация: 1447758   (1031691) от 14.02.2021
+
+Stroer - Stroer (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Jazz, Rock, Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Think It Over (5:26)
+02. Show-Stopper (6:09)
+03. Some People... (5:16)
+04. Don't Stay For Breakfast (5:15)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Jazz, Rock, Disco, Synth-popПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4708A6DB2FF396CFDC4ADFDF5E2D2B59ED996B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447706   (1031660) от 14.02.2021
+
+VA - The Glory Of Love: A 1990 Super Popgala (1990) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну какой ещё релиз "запиливать" в День всех влюбленных? Конечно - "Слава любви"! И хоть нидерландское отделение Polydor выпустило эти баллады о любви в далёком 1990 году, надеюсь, в этом году они помогут вам найти общий язык с любимыми, кто ещё не успел этого сделать и укрепить отношения остальным. В путь, по волнам любви...01. Linda Ronstadt feat. Aaron Neville - Don’t Know Much  (3:36)
+02. Phil Collins - Groovy Kind of Love  (3:32)
+03. Carly Simon - It’s Hard to Be Tender  (3:35)
+04. Van Morrison - Have I Told You Lately That I Love You  (4:22)(   Читать дальше...   )Релиз состоялся: 1990Жанр: Pop, Rock, BalladПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91FAD2BB15E5B9DD09B3D20A1D866A33515C2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447601   (1031659) от 14.02.2021
 
 VA - Easy 80s Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -687,64 +745,6 @@ VA - Mystera VIII (2002) [OGG Vorbis|480 Kbps] <Pop, Downtempo, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:087231FAE41E95F10B26F0D4E3B5BA56B46C7059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622567   (1030039) от 29.03.2023
-
-VA - Mystera VII (2001) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eva Cassidy - Fields Of Gold
-02. Enigma - The Screen Behind The Mirror
-03. Gregorian - The Sound Of Silence
-04. Blackmore's Night - Fires At Midnight(   Читать дальше...   )Жанр: Downtempo, Synth-pop, ClassicalПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7411DB32164018CC9A29B477453B8A2A27E1E02A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449487   (1030019) от 21.02.2021
-
-Mflex Sounds - H.M.H. 2 from Another Perspective (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro Disco, Spacesynth>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impulse (2:11)
-02. Invisible Miracles (6:39)
-03. Rock My Heart (7:06)
-04. Lover Tonight (L.E.) (7:20)(   Читать дальше...   )Жанр: Italo-Disco, Euro Disco, SpacesynthПродолжительность: 01:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C5BE902A7F03B3649848E1A8ECFCA44F2DCC62
 ```
 
 https://mybot314.ru/tekegram_catalog/

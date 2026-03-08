@@ -1,3 +1,177 @@
+###  Публикация: 1445297   (1033726) от 05.02.2021
+
+VA - Music News vol.69 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Би-2 feat. Миа Бойка - Последний Герой (02:18)
+ 02. Alex Andreev - Я Уже У Неё В Голове (02:32)
+ 03. Allie X - GLAM! (03:42)
+ 04. Alok & VIZE feat. Alida - AloLove Again (02:27)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E652E1496DF6893D608B5FB4BF93F298C431598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445223   (1033709) от 05.02.2021
+
+VA - Ultimate Rock`n`Roll Party (Vol.02) (2021) [MP3|320 Kbps] <Rock & Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный сборник! При прослушивании которого возникает то самое удивительное чувство ностальгии по тем временам, когда музыка поражала многообразием идей, а артисты старались придумать свои уникальные приёмы, не стараясь скопировать друг с друга!001. Josie & The Outlaw - Hipshake
+002. King Salami - Who Do They Watch!
+003. The Red Elvises - Why Why Why
+004. Alex Brown - Fight Tonight(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 05:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626F83CEA022BC492C2594BD5D459F4D7E6E166C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445226   (1033708) от 05.02.2021
+
+VA - 90s Retro Dance Hits (2021) [MP3|320 Kbps] <Dance, Pop, Electro Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда мы были молоды, но мамонтов к тому времени уже давно не было, мы звали друзей на дискотеку. Не на модное нынче party, ну и уж никак не на вечеринку. Мы отрывались до такой степени, что уже не могли шевелить руками. Одежда была насквозь мокрой, а ди-джей продолжал проверять нашу выносливость. И когда утром, уставший, но счастливый, ты идешь домой, понимаешь, (   Читать дальше...   )001. Matchbox Twenty - Push
+002. Cosmic Gate - Exploration Of Space
+003. Brandy And Monica - The Boy Is Mine
+004. DJ Bobo - There Is A Party(   Читать дальше...   )Жанр: Dance, Pop, Electro DanceПродолжительность: 06:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450A59373B22EDF66EC97DFFB3EBD9CDA6D9ACCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445176   (1033669) от 05.02.2021
+
+VA - Крутые пушки Зима 2021 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Slon & Катя - Я не дам (Ночное Движение Remix) (6:20)
+02. Depeche Mode - I Feel Loved (Ivan Spell Remix) (5:03)
+03. Damba Khuurak - Take My Heart (4:41)
+04. Zivert - ЯТЛ (Max Flame & Twenty One Radio Remix) (4:19)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 02:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6051C683B0A58274B04BB37126D2C6461E249A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445464   (1033528) от 06.02.2021
+
+VA - Ladies Training Beats 2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Corry, MNEK, Tiesto - Head & Heart - Tiesto Remix (2:04)
+02. Felix Harrer - Eisbar (2:05)
+03. Fremde Passagiere - Teenage Dirtbag (2:07)
+04. Robin Schulz, KIDDO, Ofenbach - All We Got - Ofenbach Remix (2:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BEE7F69DC9EF826CA169E1785004FEA52208BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445370   (1033476) от 06.02.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 05.02.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burak Yeter - Body Talks (3:55)
+02. Dotan - Numb (3:38)
+03. Tiesto - The Business (2:43)
+04. Meduza & Dermot Kennedy - Paradise (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEADEEF509BBD9B2D388FB69D3C1436363C20B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445878   (1033314) от 07.02.2021
 
 VA - Future House: DJ Harmony Mix (2021) [MP3|320 Kbps] <Future House, Electro>
@@ -571,180 +745,6 @@ VA - Modern Rap Premiere (2021) [MP3|320 Kbps] <Rap, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90B51FB79CE63EA5A6A4FD3A0F940E1FF6855AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446796   (1032511) от 10.02.2021
-
-VA - Melodic Vocal Trance (2021) [MP3|320 Kbps] <Vocal Trance, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые сливки клубной музыки в подборке "Melodic Vocal Trance" обрадуют ценителей этого музыкального формата, а само название лонгплея как бы намекает, что любители Uplifting направления не останутся без "сладкого". Добрых 90 треков доставит океан драйва и позитивного настроя.01. Standerwick - Bringing Me Up
-02. DJ Gard - You Will Conquer (Extended Mix)
-03. Super8 & Tab - Hurricane Love
-04. Mr90 - Lost In The Desert(   Читать дальше...   )Жанр: Vocal Trance, UpliftingПродолжительность: 08:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8F212A8C3C275F8A148D4488F659A9A718F949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446785   (1032506) от 10.02.2021
-
-VA - 30(2) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Rolling In The Deep (SLAVA CHORD Remix) (2:54)
-02. Alexiane - A Million on My Soul (X PROJECT REMIX) (3:28)
-03. Andy Life - Benvenuti A Savona (Benvenuti In Liguria) (Extended Andy Mix) (5:27)
-04. Ava Max - My Head & My Heart (Kastra Remix) (2:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE630EE82FD4227D510FB46F772FC74071F3EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620152   (1032363) от 19.03.2023
-
-VA - Liquid Symphony (2023) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merr0w - Sunshine on Mars
-02. Toxeed - Le Voyage De L'indien
-03. Globox - Shulgin's Laboratory
-04. Proxeeus - Men of Leng(   Читать дальше...   )Жанр: TranceПродолжительность: 04:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0F39F2C372C1558B66433FFA37603231FCC974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446931   (1032269) от 11.02.2021
-
-VA - Music News vol.70 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mika Vino - Ау, Москва (03:06)
- 02. ALBA - Другая (02:42)
- 03. AMCHI - Иду Искать (OST Приворот. Чёрное Венчание) (02:39)
- 04. Andrew Rayel - Silver Lining (02:58)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC33CC09071051EE00843AF31BB44ED9270222CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446913   (1032246) от 11.02.2021
-
-VA - Рок впрок 16 (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bostan - Всё так сложно
-02. 7линия - Быть, а не казаться
-03. Пепельный Свет - Я выбираю мир
-04. ЯстихиЯ - Задержи весну(   Читать дальше...   )Жанр: RockПродолжительность: 03:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAACF6558643397D542503C10B34E42490D79420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447134   (1032101) от 12.02.2021
-
-VA - Favorable Surprise: Chill Ambiente Mix (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тотальный релакс и наслаждение, вот так можно охарактеризовать музыку сборника "Favorable Surprise". Пластинка имеет релакс атмосферу, которая буквальным образом может погрузить вас в глубокий транс. Очень положительный факт, что на альбоме, в некоторых треках, присутствует вокал, который лучшим образом внес свою лепту в разнообразие работы.001. Al-Faris - Let It All Out
-002. Temex E - Enough
-003. Mary Lattimore - Til A Mermaid Drags You Under
-004. Muzammil Yousuf - Happiness(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 07:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C399BD7E59EF4BE5EE310CC19C95DBE41AD6B44B
 ```
 
 https://mybot314.ru/tekegram_catalog/

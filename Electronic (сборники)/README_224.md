@@ -1,3 +1,32 @@
+###  Публикация: 1796183   (18813) от 09.05.2025
+
+VA - Compilation Part 160 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamidshax - Me Before You
+02. Jumanov - Oh Well
+03. A-Sultan & Akmalov - You
+04. Jumanov - Take A Rest(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F268236721880404772A7EFA4C522F0890CC39B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796725   (18499) от 12.05.2025
 
 VA - Big Room Dance 4 (2025) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
@@ -716,35 +745,6 @@ VA - Vocal Trance NNM 5 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7368F059A895A399DA08405126781A36F76C2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804367   (13036) от 29.06.2025
-
-VA - Record Super Chart 28.06.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Clementine Douglas - Blessings (3:39)
-02. AY YOLA - Homay (4:04)
-03. David GuettaSia - Beautiful People (3:07)
-04. Rudimental & Khalid - All I Know (Ely Oaks Remix) (2:29)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3A54E89E0A10D754D1FB6A8D5F741A2947E7C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

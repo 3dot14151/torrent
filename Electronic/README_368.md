@@ -1,3 +1,61 @@
+###  Публикация: 1335392   (287732) от 02.11.2019
+
+VA - Coffee Bar Chill Sounds Vol 15 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rex Kramer – Another Cup (4:45)
+02. Jens Buchert – Causality (5:21)
+03. Rex Kramer – In The Kitchen (4:51)
+04. Anemine – White Series 256 (7:47)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81594545F7819D5BF419F899D10C58C8F4C334F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335427   (287729) от 02.11.2019
+
+Jim Brickman - Underground (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Lounge, Jazz Groove>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poolside Chill (Super Chilled Lo-Fi Remix) (3:18)
+ 02. Light a Candle (Super Chilled Lo-Fi Remix) (3:51)
+ 03. Drive North (Super Chilled Lo-Fi Remix) (3:32)
+ 04. Served Chilled (Super Chilled Lo-Fi Remix) (4:38)(   Читать дальше...   )Жанр: Instrumental, Chillout, Lounge, Jazz GrooveПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCD1F7CE2519E449A6B2E3ABCA26540D4CBFFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335437   (287562) от 02.11.2019
 
 VA - Lovely Mood Music presents: Chill With Style Series (The Lounge & Chill Out Collection) - 5 Releases (2013-2015) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -684,64 +742,6 @@ Vol 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:680DDB71926D4EF4C0DD602BAA839F2474F3A7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963594   (285481) от 09.12.2015
-
-Dieter Bohlen & VA - Greatest Hits (2002) [FLAC|tracks+.cue]<Europop, Synth-pop, Ballad, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You're My Heart, You're My Soul ('84Mix) (3:23)
-02. Modern Talking - Cheri Cheri Lady (3:47)
-03. Chris Norman - Midnight Lady (4:10)
-04. C.C. Catch - Strangers By Night (3:38)(   Читать дальше...   )Жанр: Europop, Synth-pop, Ballad, DiscoПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D0546430807F8002F5DDECE24F5111BF9EDF76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653253   (285410) от 08.12.2016
-
-Pulsedriver - 7 Albums + 63 Singles/Remixes + 3 Compilations + DJ Mixes (1997-2016) [MP3|128 - 320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Coverage - Riot On The Dancefloor (2:39)
-02. Pulsedriver - Slammin The Beat (2:56)
-03. Genial - No Games (Timmy G. vs. Sigi Di Collini Remix) (3:40)
-04. 2-4 Grooves - Rockset (Extended Club Mix) (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6248E404EADA77769DCA3ED63FF286BD995D0D0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

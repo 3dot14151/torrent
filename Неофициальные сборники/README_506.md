@@ -1,3 +1,182 @@
+###  Публикация: 1332241   (313181) от 20.10.2019
+
+VA - Свежий Русский Хит от ALEXnROCK часть 3 (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313181.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2019 год. Это 3я часть сборника. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Сати Казанова - Ti amo
+02. Zivert - Зелёные Волны (Dj Nejtrino & Dj Baur Remix)
+03. Макс Барских - Неслучайно (Igor Dunaev & Rakurs Remix)
+04. Ольга Бузова - Я еще верю(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9759B279CE55DB1811F42127481644AC091E32E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422090   (313163) от 07.11.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 06.11.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dotan - NUMB (3:38)
+02. Jason Derulo - Take You Dancing (3:10)
+03. twocolors - Lovefool (3:10)
+04. Bastard! - F..k That (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3866AC7CD8B3F44B2FCFC614E4C501FD921B41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422050   (313158) от 07.11.2020
+
+VA - Blues for Christmas (2020) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Lee - Christmas Blues
+02. Brent Johnson - Christmas Tears
+03. Bryan Lee - Santa Claus Is Messin' with the Kid
+04. Beau Kavanagh & The Broken Hearted - Santa Claus Is Back in Town(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C09F236E1D4E8F25082BBE6B873E28D58864533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422217   (313146) от 07.11.2020
+
+VA - Merry Christmas Baby! Christmas BluesRock (2020) 4 CD [MP3|320 Kbps] <Blues, Rock, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvis Presley - Amazing Grace
+02. AC/DC - Mistress for Christmas
+03. B.B. King - Back Door Santa
+04. G. Love - Christmas Blues(   Читать дальше...   )Жанр: Blues, Rock, PopПродолжительность: 11:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BFE16D33D8F891391C670195310F7042FFEEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583436   (313082) от 02.12.2012
+
+Swedish House Mafia - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House / progressive house / electro house>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313082.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Swedish House Mafia feat. Usher – Euphoria (Original Mix)
+2.Swedish House Mafia feat. Tinie Tempah – Miami 2 Ibiza (Original Mix)
+3.Swedish House Mafia feat. John Martin – Save The World (Original Mix)
+4.Swedish House Mafia feat. John Martin  – Dont You Worry Child (Extended Mix)
+5.Swedish House Mafia and Laidback Luke feat. Deborah Cox – Leave The World Behind (Original Mix)
+6.Swedish House Mafia – One (Original Mix)
+7.Swedish House Mafia – Greyhound (Original Mix)
+8.Knife Party vs. Swedish House Mafia  – Antidote
+9.Coldplay – Every Teardrop Is A Waterfall (Swedish House Mafia Remix)Жанр: House / progressive house / electro houseПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBC1D8BD9F9C73727EEFC4D96C95A823392CFDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182811   (312787) от 12.11.2017
+
+VA - Hot Autumn Dance (2017) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Felix Jaehn - Dance With Me (Bakula Edit)
+02. Luca Debonaire - Boys Who Love Girls (Original Mix)
+03. Camila Cabello - Havana (feat. Young Thug)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A3DD50AF08D72D7F1130AD3658200BDA099A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959972   (312554) от 26.11.2015
 
 VA - 2K14 Miami Ultra EDM - New Product (2015) [MP3|320 кб/с]<Funky, Club, Future House, Dutch, Progressive>
@@ -589,183 +768,6 @@ VA - Ukrainian Hits - 33 Tracks (Volume 2) (2017) [MP3|320 Kbps]<Pop, Rock, Pop 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C1E9157667E508770FB9931B095B9776FD53987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076629   (311536) от 26.11.2016
-
-VA - Chillout Cocktail Christmas Jazz (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kate Kelly - I Saw Mommy Kissing Santa Claus
-02. Carol Sudhalter - Somewhere Over the Rainbow
-03. Middle Jazz Quartet - Stolen Moments
-04. Samuele Pagliarani - We Wish You a Merry Christmas(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5024A91096D3C7662A04C1C0A6BEF48502381A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076787   (311535) от 26.11.2016
-
-VA - Осенняя позитивная 100-ка. Версия 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311535.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Boombox Cartel Feat. Stalking Gia - Dancing With Fire 3:51
-002.David Guetta Feat. Namie Amuro - What I Did For Love 3:28
-003.Кристина Орбакайте - Я Гадаю На Ромашке 3:52
-004.Дмитрий Несветайло - Сны Неверные 3:29(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBEE9D64E01A3CB9120BF6169C9A43B037F0789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076456   (311527) от 26.11.2016
-
-VA - Самые Горячие Осенние Хиты 50x50 (2016) [MP3|128-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311527.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Альбина - Не Со Мной 3:09
-002.Skrux - The Shadow 5:36
-003.Sia - Cheap Thrills 3:02
-004.Elvira T - Я Еду Домой 2:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963A8C02B58297E69E463C7DBD7BBD21CA50A1C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260392   (311391) от 07.11.2018
-
-VA - New Age Style - Enigmatic 29 (2018) [MP3|320 Kbps] <New age, Enigmatic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devaldi - Amaranthine (3:42)
-02. Grvty - Le Verset (4:00)
-03. David Thomas - Sacred Lotus (4:04)
-04. Black Ether - Life Is a Microchip (7:43)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 02:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275EB81CC77DE4779A43874E52E373993A0BB7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260001   (311389) от 07.11.2018
-
-VA - Hits of My Soul Vol. 42 (2018) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Ill Nino - Te Amo...I Hate You (03:33)
-02. Drowning Pool - Step Up (03:17)
-03. 3rd Strike - Into Hell Again (03:12)
-04. Atomship - Whitfield (04:56)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2740A5CAA61F89578D0E24E8F647C775BAB0C41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076773   (311376) от 26.11.2016
-
-VA - Радио Рекорд - Record Club за 25.11.2016 [MP3|320 Kbps] <Electronic, House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaxx, Vega - Storm
-02. Power Francers - Pompo Nelle Casse (My Remix)
-03. Katrin, Dj Cross, Max'C - I'Ll Be Loving You
-04. Kidd Star - Whiskey & Pantyhose (Klaas Remix)(   Читать дальше...   )Жанр: Electronic, House, TranceПродолжительность: 06:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C2F5FB75E3305242ED8F3C390F649304FFD7CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

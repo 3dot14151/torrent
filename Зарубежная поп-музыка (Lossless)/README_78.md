@@ -1,3 +1,32 @@
+###  Публикация: 1591814   (185417) от 20.11.2022
+
+Tokio Hotel - 2001 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Durch den Monsun 2020 [00:03:54]
+02. HIM [00:03:34]
+03. White Lies [00:03:04]
+04. Ain't Happy [00:03:27](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CF07BABD54AE5093CA5F8555D22F46566FC5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426608   (185354) от 26.11.2020
 
 The Common Linnets - The Hits (2020) [FLAC|Lossless|image + .cue] <Pop>
@@ -716,35 +745,6 @@ VA - If You Love Her - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D31DE28F3F28EF1BBB14EFC8BFFA32A402CB1A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668202   (174707) от 11.10.2023
-
-Оксана Вояж - Нежности океан (2001) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нежности океан  4:35
-02. Кап-кап-кап  4:47
-03. Давняя боль  4:37
-04. Вспоминай  4:43(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A17B01951B5C42AC8F77C0117E067E2DF9A8977
 ```
 
 https://mybot314.ru/tekegram_catalog/

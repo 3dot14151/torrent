@@ -1,3 +1,32 @@
+###  Публикация: 1021626   (731891) от 30.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 24 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italo Boot Mix Vol. 1 ( Part 2 ) ( 1983 )
+02. Jules - I Want To ( 1989 )
+03. Stephanie - Ouragan ( 1986 )
+04. Electra - Cuando Cuando ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7468E85A4D55787A92CE9A64D6361F45F1DF4C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021440   (731880) от 30.05.2016
 
 VA - MuviDance Russian Party Vol.1 (2014) (MuViTeam Compilation Promo) [MP3|320 кб/с] <Dance, Disco, Pop>
@@ -716,35 +745,6 @@ VA - Новая Русская Дискотека - 4 (2016) [MP3|256-320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3990620F914F0368F79E3AEB7081E4FF32F8A2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022658   (726857) от 03.06.2016
-
-VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск - 33 ) (2016) [MP3|256-320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Thomas Anders - You're My Heart, You're My Soul (New Hit Version) (03:28)
-02 Chilly - We Are The Popkings (DMC Mikael Remix) (04:49)
-03 Gazebo - I Like Chopin (DM Remix) (05:06)
-04 Groove Addiction - Live Is Life (Phill Kay Remix) (05:23)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A51BBDC870B8284704B396E4F7F6EBE4E01E192
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 1293052   (641175) от 01.04.2019
+
+Балаган Лимитед - Дуэты (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ветер, унеси (feat. Алиса Манахова)
+02. Яблонька (feat. DJ NeoMaster)
+03. Мама Чоли (feat. Пари)
+04. Пусть говорят (feat. Белла Огурцова)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEE24F61FED5E5B5306CC26BF06022750A6D738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518656   (641144) от 04.07.2012
+
+Весёлые Ребята - Песни Вячеслава Добрынина (1996) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 На земле живёт любовь
+02 Ни минуты покоя
+03 Мелочи жизни
+04 Напиши мне письмо
+05 Золотой ключик
+06 Розита
+07 Чашка чая
+08 Люби меня, как я тебя
+09 Хочу всё знать
+10 Бологое(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2811725E86C64BC67FA77498A98A8FD40395D937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542131   (641090) от 05.04.2022
 
 Pure Energy - Party On (2004) Compilation 1980-88 [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -689,64 +753,6 @@ Sally Dige - Hard To Please (2015) [MP3|320 кб/с]<Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBB2E882A4983D6AC5DDE3CC055E164290CB57DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907623   (638191) от 12.06.2015
-
-Nate Ruess - Grand Romantic (2015) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Grand Romantic (Intro) (0:42)
-2. AhHa (4:23)
-3. Nothing Without Love (3:56)
-4. Take It Back (4:23)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DD3CD62BC93AEA8CD476307BAC26C013BE5BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033448   (638138) от 11.07.2016
-
-VA - The Best Ever: Summer (2016) [MP3|320 Kbps] <Disco, Pop, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icona Pop feat. Charli XCX – I Love It 02:34
-02. Rudimental feat. John Newman – Feel The Love 03:37
-03. B.O.B – So Good 03:29
-04. CeeLo Green – Forget You 03:41(   Читать дальше...   )Жанр: Disco, Pop, RnBПродолжительность: 01:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8298CB61C08C0712E7DC532819273D246C3BE64F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1425583   (220538) от 21.11.2020
+
+VA - Music News vol.50 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Эрика Герцег - Только Для Тебя (02:52)
+ 002. Alex M.O.R.P.H. feat. Cheryl Barnes - Hidden Sun Of Serenity (Extended Mix) (07:41)
+ 003. Allen Watts - Limitless (Steve Dekay Extended Remix) (06:19)
+ 004. Bakhtin - Стержень (03:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402DF2746907079925ADE6989B4D20AF7CDD8CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342953   (220349) от 04.12.2019
+
+VA - Top 100 Зайцев.нет Ноябрь (Repack) (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220349.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tanir & Tyomcha - Da Da Da (Jarico Remix) 2019 3:34
+002. JONY - Комета (Ladynsax Deep Remix) 5:38
+003. Николай Басков - Зараза 3:22
+004. НаZима и Валерия - Тысячи историй 3:00(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A054A77D29CA9F4236E2808AAB93535FFB351B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966297   (219820) от 17.12.2015
+
+VA - Google Play хит-парад (November) (2015) [MP3|320 кб/с] <Pop, Русская поп-музыка, Рэп/Хип-хоп, Альтернативная музыка/инди, Метал, Рок, Брейкбит, Электронная музыка>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219820.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Скриптонит feat. Юрик Четверг, Truwer - Сука тащит нас на дно
+002. БИ-2 feat. Чичерина - Мой рок-н-ролл
+003. Баста - ЧК (Чистый кайф)
+004. Скриптонит - Вечеринка(   Читать дальше...   )Жанр: Pop, Русская поп-музыка, Рэп/Хип-хоп, Альтернативная музыка/инди, Метал, Рок, Брейкбит, Электронная музыкаПродолжительность: 10:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6F8558637C6B56956E587F7FE3E0480A274F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 125454   (219563) от 17.12.2015
+
+VA - Итоговый Superchart Radio Record 2008 (100 Best) [MP3|159 - 320 Kbps]<Electro House, House, Dance, Pop, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219563.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Meck Feat. Dino - So Strong
+2.Paul Van Dyk Feat. Rea Garvey - Let Go
+3.Armin Van Buuren Feat. Sharon Den Adel - In And Out Of Love (The Blizzard Remix)
+4.Rachael Starr - To Forever (Moonbeam Remix)(   Читать дальше...   )Жанр: Electro House, House, Dance, Pop, TranceПродолжительность: 08:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FCFC7BACC1BD5F060B65C7B052381998614A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514224   (219435) от 02.12.2021
 
 VA - Music News vol.153 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -629,122 +745,6 @@ VA - не Громкие новинки недели 46 (2019) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7495EE11B7E4FB0B98B2C35D15F7C9FC8E097ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270322   (214341) от 18.12.2018
-
-VA - Club 2019-Hottest New Tracks (2018) [MP3|320 Kbps] <House, Handsup, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Parker feat. Elaine Winter - Dancing on My Own (Radio Version)
-02. Housefly - Be with You (Markus D'Ambrosi Remix)
-03. Felicia Uwaje - Strike It Up (Chris Excess Remix)
-04. G-Lati and Mellons feat. Damian Pipes - Hero (Adam Brown and Armand Van Henegouwen Mix)(   Читать дальше...   )Жанр: House, Handsup, DanceПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AFA24E2BDF071FA8807F2116C477F346827E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194090   (214054) от 23.12.2017
-
-VA - Евро Хит Топ 40 Europa Plus 23.12 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Post Malone feat. 21 Savage  -  Rockstar  3:38
-02.  Merk & Kremont  -  Sad Story (Out Of Luck)  3:32
-03.  Zayn Malik feat. Sia  -  Dusk Till Dawn  3:59
-04.  Imagine Dragons  -  Whatever It Takes  3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125A519CCEADDA91F7598B34292721EC4C511D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270306   (214030) от 18.12.2018
-
-VA - Самые скачиваемые треки ВКонтакте Зима 7 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214030.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тима Белорусских - Мокрые кроссы (Lapin & Dzoz Radio Edit) 3:44
-002. Dynoro & Gigi D'Agostino - In My Mind (G-Love & Igor Frank RMX) 4:34
-003. Леша Свик - Малиновый свет (Mikis Remix) 3:41
-004. Сергей Лазарев - Пьяным, чем обманутым 3:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65DDE487899CFBF4638EF3423815CE0A25529CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514796   (213910) от 05.12.2021
-
-VA - Hardstyle Classic Night (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хардстайл - это настоящий рай для ушей. Мелодично, эпатажно, быстро, безумно, красиво и тяжело, ведь не каждый может выдержать напор ритма в 150 ударов. Но тем не менее, поклонников этого жанра меньше не становиться. С того момента, как в 2000-х в результате экспериментов, возник этот стиль ряды фанатов этой музыки только множатся.001. Angerfist - Face My Style
-002. Benaddikt - Nothing Can Ruin Us
-003. Creeds - Le Piano
-004. Calvin Clark - Frostbite(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 07:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D963133D92EA1183E9D64ABC457B3AA4F23194
 ```
 
 https://mybot314.ru/tekegram_catalog/

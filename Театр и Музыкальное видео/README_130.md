@@ -1,3 +1,29 @@
+###  Публикация: 479834   (87434) от 09.04.2012
+
+Пушкин. Евгений Онегин / читает Сергей Юрский (1999) VHSRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: поэзияРежиссер: Наталия СероваПродолжительность: 02:21:24 + 02:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697F2761F02F2EC3875C9D72CA1DD3AFEC9B6B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479723   (87234) от 08.04.2012
 
 Bee Gees - The Ultimate DVD only (2009) DVD5
@@ -716,41 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:308B6A76FEB2C578831193D2598865C581F9C58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476769   (85725) от 01.04.2012
-
-Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Rayel – 550 senta vs Shogun – Skyfire (accapella) (AVB intro mix)
- 02. Omnia & IRA – The Fusion (Armada)
- 03. Dennis Sheperd & Talla2 XLC – Two Worlds (Euphonic)
- 04. Wezz Devall – Kill Of The Year (Captivating Sounds)
- 05. Orjan Nilsen – Amsterdam (Armind)
- 06. Tritonal – Slave (Tritonal & Ben Gold Club Dub) (Air Up There Recordings)
- 07. W&W – Invasion (Club Mix) (ASOT 550 anthem) (Armada)
- 08. Orjan Nilsen – Between The Rays (Armind)
- 09. Setrise vs Johann Stone – Icesave (Original Mix)
- 10. Gaia – Stellar (Armind)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 01:34:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

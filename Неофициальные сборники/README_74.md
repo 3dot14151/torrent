@@ -1,3 +1,174 @@
+###  Публикация: 283935   (938795) от 18.01.2011
+
+VA - Зарубежные хиты января Vol.2 (2011) [MP3|320 kbps]<Pop/Dance/Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/Dance/ClubПродолжительность: 08:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89A1062D260302CDCF17F826B712F2DF16ACF4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092468   (938761) от 12.01.2017
+
+VA - Pumpingland Vol. 92 (2017) [MP3|128-320 Kbps] <Club, Dance, House, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938761.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker - Alone
+002. Ariana Grande vs. Will Sparks vs Bob Sinclar - Bounce This Party (R3dLine & Serge Mash-Up)
+003. ATB - Till I Come (SaberZ KEVU Bootleg)
+004. ATC vs. RAKURS vs. Max Methods - My Heart Beats Like A Drum (Andrey Kiselev Mash-Up)(   Читать дальше...   )Жанр: Club, Dance, House, Electro HouseПродолжительность: 05:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D5559B20A64E8A6951DF8479FD5A3D498FDDF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092417   (938755) от 12.01.2017
+
+VA - Взрывной хит-парад. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938755.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Weeknd - Ordinary Life 3:42
+002. Авиатор - В Твоих Глазах 3:48
+003. Bolier & Natalie Peris - Forever And A Day 4:10
+004. Franky - Не Исчезай 3:28(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CB1D582B5B0C1C083EF68BC229922B9E3D9451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984505   (938725) от 09.02.2016
+
+VA - Звездные хиты зимние. Сборник 3 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938725.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Эльдар Далгатов - Все Сможешь Ты
+002. Walk The Moon - Shut Up And Dance
+003. Кристалл - Сгорает Ночь
+004. Alvaro Soler - El Mismo Sol(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F1A4D6B3F508BCA791F6497C5CBA27765C96D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092396   (938646) от 12.01.2017
+
+VA - Gold Italo Disco: New Generation (2017) [MP3|320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938646.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amaya - Trapped (Vocal Version) 4:49
+002. Miko Mission - Universal Feeling (Vocal Version) 5:57
+003. Ryan Paris - Parisienne Girl (Eddy Remix) 7:43
+004. Savage - Save Me (Vocal Remix) 7:26(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 11:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68766559996B907F6F6871C1C811DAC8AA79323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092488   (938644) от 12.01.2017
+
+VA - Interior Lounge: Relax Mix (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Living Room - The Essence  4:03
+02.  Enrico Donner - Xonado Por Voce  5:54
+03.  Soleil Fisher - Daydreaming (Chill Mix)  5:55
+04.  Clelia Felix - Music For Your Soul  3:53(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 04:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D4B847D5F35E6E780777CF152615B1AC6D155A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092595   (938636) от 12.01.2017
 
 VA - Золото Русского Диско - 19 (2017) [MP3|160-320 Kbps] <Pop>
@@ -571,183 +742,6 @@ VA - Wicked Bass: Psychill Dubstep (2016) [MP3|320 кб/с] <Dubstep, Electro, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4C011E2B6FE87049659E71DCEAA540E91D98B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984810   (937157) от 10.02.2016
-
-VA - Этапом к северу. Академия хитов шансона (2016) [MP3|256-320 kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937157.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Запретка - Освободился
-002. Игорь Корнилов - Он Не Первый
-003. Сева Городской - Десятая Весна
-004. Ольга Ильч - Этапом к северу(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75BF289560C5E689C92D0547BF36C01026F90594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984782   (937139) от 10.02.2016
-
-VA - Evolution of Disco - CD2 (1964-2015) [MP3|192-320 кб/с] <Funk,Disco,House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Debonair - Tell You More  06:14
-02. Oliver Cheatham - Get Down Saturday Night (special extended)  07:34
-03. Dj Steef - It's Cool  06:48
-04. Phats And Small - Turn Around  03:45(   Читать дальше...   )Жанр: Funk,Disco,HouseПродолжительность: 05:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13015E19BE7429459EFF76FF6D6C88ABFF54FDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092664   (937129) от 13.01.2017
-
-VA - Hits of My Soul Vol. 21 (2016) [MP3|320 кб/с]<Drum & Bass, Dubstep, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Drumsound & Bassline Smith - Through the Night (Club Mix) (05:20)
-02. Spor ft. James Hadouken! - Empire (04:25)
-03. Vanic ft. K.Flay - Cant Sleep (04:22)
-04. Flux Pavilion & Whethan ft. MAX - Savage (03:24)(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, Electro House, Electronic, House, TrapПродолжительность: 03:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2515EDB73E60CF235EC4FC988077DB714D617CFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985004   (937036) от 10.02.2016
-
-VA - German dance hits №3 (2016) [MP3|256-320 kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937036.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Coldplay - Adventure of a Lifetime
-002. Sido - Astronaut (feat. Andreas Bourani)
-003. K.I.Z. - Hurra die Welt geht unter
-004. Shawn Mendes - Stitches(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E5A23BF62994A577F3B2A153F07AE24C181F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984755   (937002) от 10.02.2016
-
-VA - Каюсь. Сборник хитов русского шансона (2016) [MP3|256 kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937002.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вадим Петров - Три Дороги
-002. Папа Радж - Мадам Постойте
-003. Вася Пряников - Сочи В Феврале
-004. Mr. Bleden - Маленькое Счастье(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43076EE0D75A0896B6500BF4976DF5EA9D4AA93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985032   (936882) от 10.02.2016
-
-VA -Танцевальная Зима 2016 Тор 100 (2016) [MP3|320 кб/с] <Dance, Club, House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936882.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. R3hab & Ciara - Get Up 03:14
-002. KastomariN - Beautiful (Original Mix) 04:40
-003. Rick Pier O'neil - Abstractions 09:45
-004. X-Killer - Everlasting (Original Mix) 04:16(   Читать дальше...   )Жанр: Dance, Club, House, TranceПродолжительность: 08:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C6FAC979149C1FC880A1F225C07BCC4D261437
 ```
 
 https://mybot314.ru/tekegram_catalog/

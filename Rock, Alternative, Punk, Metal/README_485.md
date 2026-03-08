@@ -1,32 +1,3 @@
-###  Публикация: 916861   (590348) от 09.07.2015
-
-Cradle Of Filth - Hammer Of The Witches (2015) [MP3|320 кб/с]<Black Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walpurgis Eve
-02. Yours Immortally
-03. Enshrined In Crematoria
-04. Deflowering The Maidenhead, Displeasuring The Goddess(   Читать дальше...   )Жанр: Black Metal, Gothic MetalПродолжительность: 01:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C845378051BCE230CC8162D3AC97D8DFEA294DC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551176   (590249) от 15.05.2022
 
 St. October - Whatever Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Melodic Groove Metal>
@@ -742,6 +713,34 @@ Romulox - The Three Kings (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E8753153D47D706C875B3284FCF9BB335FA57B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959216   (589712) от 16.05.2022
+
+МПТРИ - 3 Albums + 7 Singles + Bonus (2003-2016) [MP3|112-320 kbps] <Ska-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589712.jpg" />
+</div>
+
+
+###  Подробнее
+
+2003 - Демо вирус
+2004 - Безалкогольный
+2011 - Максимка бросил питьЖанр: Ska-Punk |Продолжительность: 03:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB797D073DB2919B9C33C41289BB16C00A614DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

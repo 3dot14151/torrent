@@ -1,3 +1,67 @@
+###  Публикация: 1143998   (631486) от 20.06.2017
+
+VA - Venti Compilation 3 (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi NRG, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Hooker - Nobody Loves Me (Iventi Remix)
+02. Ken Laszlo - S.O.S.(Vocal Version)
+03. Miko Mission - Universal Feeling (Vocal Mix)
+04. Victor Ark - Coming Back (80s Remix)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 02:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAAE7B626D8A2E7FED32C56918DEB7325BBC235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520565   (631435) от 09.07.2012
+
+Medina - Forever (2012) [MP3|320 кб/с]<Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever (03:31)
+02. Butterflies (03:41)
+03. Scars (03:39)
+04. Happening 04:03)
+05. Boring (04:02)
+06. Hotels (03:29)
+07. Good To You (04:02)
+08. Close To Nothing 03:52)
+09. Keep Me Hangin' (03:20)
+10. Black Lights(03:45)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43FA30E071F123A49EA8528C00891A150E79F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520689   (631134) от 09.07.2012
 
 Gusttavo Lima - E Voce (2011)(Live) [MP3|320 кб/с]<Pop, Dance>
@@ -697,61 +761,6 @@ Lena - Only Love, L (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40901233AD7C2311037FD84C2A3A9F3EAD3E4F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909445   (628350) от 17.06.2015
-
-Банума - По венам моим - океаны (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По венам моим - океаны (04:22)
-02. With u (При уч. Кот Балу) (03:45)
-03. Стоп мысли (04:38)
-04. Не хватает фраз (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E024F049A05968AD3BF7B31B9D372F8DF235A7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908847   (628344) от 17.06.2015
-
-Monarchy - 3 Albums + 2 EP + 5 CDM + Singles (2010-2015) [MP3|162-320 кб/с]<Electropop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628344.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Космос для нас — это большой холст, который позволяет нам выражать свои эмоции. Люди всегда использовали пространство и будущее, чтобы попытаться открыть и понять своё предназначение на земле. Таким же образом и мы используем пространство, чтобы понять, что происходит внутри нас, наши эмоции, отношение друг к другу. К тому же это захватывает, это бегство от повседневности, (   Читать дальше...   )Жанр: Electropop, SynthpopПродолжительность: 07:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0605242C25E0F4E69BB1BAB7F7BA8F69C2365A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,246 +1,3 @@
-###  Публикация: 539342   (504932) от 28.08.2012
-
-Best HD Wallpapers Pack (25.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1D04F50933EFC54FFA611978F49867D882462F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538097   (504931) от 28.08.2012
-
-Design and interior of the wallpaper part.2 (22.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7335708E0E2074971D56A0CF1CB5C87B091CA170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539095   (504930) от 28.08.2012
-
-Neosis - Neosis (2012) [MP3|320 кб/с]<Progressive Math Death, Modern Cyber Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everlasting Mind Collapse 04:57
- 02. Unwilling Fate 05:07
- 03. Worship Mindset 05:08
- 04. The Deconstruction Of Reality 05:35
- 05. Neo-Euhemerism 05:10
- 06. Supremacy Design 05:05
- 07. Fragmentary Alteration 03:59
- 08. Chronic Absolutism 03:52
- 09. The New Paradigm 04:56
- 10. Cerebral Helix 04:55Жанр: Progressive Math Death / Modern Cyber MetalПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F158949D324DBBB7F55BEF50266012ADAC513C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538121   (504929) от 28.08.2012
-
-Desktop wallpapers (23.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68FA5AB084924AC1F80C4306042C782AC1BBDA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538120   (504928) от 28.08.2012
-
-Landscapes HD Wallpapers (23.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE4B0E03636AADC0832BB9CDB51031A6AF43F351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540143   (504927) от 28.08.2012
-
-Desktop wallpapers (27.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED4C1F0F47A8A6F0D6483C3AD9668EA4D6F5355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537880   (504926) от 28.08.2012
-
-Design and interior of the wallpaper (21.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155BF55FDCED36466FCBDAC2B034F05AACD51B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540203   (504925) от 28.08.2012
-
-Computer Desktop Wallpapers Collection (28.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C43F34F801A4601601F6E54622B41DED9BA86EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539310   (504924) от 28.08.2012
-
-Design and interior of the wallpaper (24.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3757C63D632CFBEB0078DDDE6EFA61BAF4CD2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538122   (504922) от 28.08.2012
 
 Design and interior of the wallpaper (23.08.12) [Wallpapers]
@@ -679,6 +436,261 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540362   (504897) от 28.08.2012
+
+История французских спецслужб [3 серия] / Histoire des services secrets français (2010) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французские спецслужбы считаются не только старейшими в Европе, но и самыми элегантными и коварными. Фильм студии PROGRAM 33 рассказывает об образовании и истории создания французских спецслужб.
+3 серия - История французских спецслужб. "Серьёзное недопонимание. 1981-1989 г.г"Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0EFB9B197306D1E22498F053294466E970EB148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539306   (504896) от 28.08.2012
+
+Best HD Wallpapers Pack (24.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B19F16564F3D22CDFEC89CD3E136D2143EFE3AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539947   (504895) от 28.08.2012
+
+Any Video Converter Professional 3.5.0 RePack (& portable) by KpoJIuK [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Video Converter Pro - это программа для конвертирования видео файлов. Она позволяет перекодировать популярные видео форматы (AVI, MOV, RM, MPEG, DVD, WMV, MP4 и FLV) в DVD, VCD, MP4 или FLV. В утилите присутствует возможность использовать для кодирования файлов как готовые профили с установленными параметрами видео, которые ориентированы на определенные устройства (бытовой DVD-проигрыватель, мобильный телефон), так и самостоятельно подбирать свои настройки конвертирования. Перед началом кодирования видео, его можно просмотреть во встроенном проигрывателе.
+
+(   Читать дальше...   )Название программы: Any Video Converter ProfessionalЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538602   (504893) от 28.08.2012
+
+Monjes Budistas - Sakya Tashi Ling (2005) [MP3|~245 кб/с (V0)]<New Age, Enigmatic, Ambient, Ethnic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My spirits flies to you
+02. Secret energy
+03. The other side
+04. River of light
+05. I wanna fly
+06. Om sai ram
+07. Way to Kundalini
+08. Blessings for life
+09. Emotions
+10. Urban Buddishm(   Читать дальше...   )Жанр: New Age, Enigmatic, Ambient, EthnicПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:696D797AD09D4D0ADC83867540FF5B3832993FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539410   (504892) от 28.08.2012
+
+Художник Ivan Berryman [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художник Ivan Berryman
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232D9A1CA32789B26C57757982775E280D05B480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539430   (504891) от 28.08.2012
+
+Wallpapers - Ангелы (26.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AEAF7DE37777613D59D7D91180FF44BD07DE05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540330   (504888) от 28.08.2012
+
+Mistic - Mistic (2006) [MP3|192 кб/с]<New age, Gregorian Chant>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mistic
+02 - 10 Przykazan
+03 - Statki Na Niebie
+04 - Zaluje
+05 - Kiedy Powiem Sobie Dosc
+06 - Wiara
+07 - Kropla Deszczu
+08 - Kolysanka Dla Nieznajomej
+09 - To Co Dobre
+10 - Imie Deszczu(   Читать дальше...   )Жанр: New age, Gregorian ChantПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76125D3E0A8DDBBB1485473B0B2DC69B9CBEB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540340   (504884) от 28.08.2012
+
+Павел Попович. Космические приключения (2008) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о Поповиче Павеле Романовиче – пилоте космического корабля «Восток-4», подполковнике; командире космического корабля «Союз-14», полковнике. Лётчике-космонавте СССР № 4 и 6-м космонавте мира.Жанр: Телепередача, ДокументальныйПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA7598A36944D58819DF8029C48B7421B2C7164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539406   (504880) от 28.08.2012
+
+Kuang Hong [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kuang Hong
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC808BE84A230A3C5E540EDF8247D65DF968239
 ```
 
 https://mybot314.ru/tekegram_catalog/

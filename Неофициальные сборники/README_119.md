@@ -1,3 +1,177 @@
+###  Публикация: 1106896   (870050) от 21.02.2017
+
+VA - Танцевальная вечеринка от Хит FM (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870050.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Любовь Попова - А Я Хотела 3:38
+002. Кирилл Мойтон - Если Понравится 3:33
+003. Смирнов & Компания - Прочь 3:31
+004. Mainstream One - Любил Так Жить 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7C390E3BEE7261EC178AB4A37F8A53351F721B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106899   (870048) от 21.02.2017
+
+VA - Автозвук. Отборный зимний хит. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870048.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Арина Войт - Это Любовь 3:41
+002. Sons Of Maria Feat. Angelika Vee - Sweet Madness 3:12
+003. Dj Jedy Feat. Личи - Это Я С Тобой 3:08
+004. Bout - Duck 2:38(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF4D7C725E116E1A4DF912C5A11E50EA3357257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106881   (869977) от 21.02.2017
+
+VA - 110 New Generation Italo Disco (2017) [MP3|320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869977.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Digitalo - Russian Man (Zyx Extended Version) 5:19
+002. Steve Burbon Project Feat. Mirko Hirsch - The Vibe (Extended Version) 6:27
+003. D. White - One Wish (Zyx Extended Version) 6:25
+004. Heaven42 Feat. Mirko Hirsch - Strong To Fight (Extended Version) 6:18(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 11:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A91CD359A768572E05CDEE5D3A7A8EAF53D807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106912   (869971) от 21.02.2017
+
+VA - Space Electronic Disco (2017) [MP3|320 Kbps] <pacesynth, Electronic Disco, SynthPop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynatron - Propulsion Overdrive 5:16
+002. Dynatron - Towards The Island Universe 4:35
+003. Pavel Kuznetsov & Andrey Zhitnev - Introduction 2:14
+004. Dynatron - Jovian Giants 5:37(   Читать дальше...   )Жанр: pacesynth, Electronic Disco, SynthPopПродолжительность: 10:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206BB95261DB6EE58C9774E070DE4F39FD18A749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106902   (869953) от 21.02.2017
+
+VA - Хиты в тачку выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869953.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Din-Go & Katrin Mokko - Без Тебя 3:35
+002. Helena Shadia - Люби Меня 3:32
+003. Алекс Индиго & Unorthodoxx - Мираж 3:07
+004. Рома Штайн - Проблем 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E985E7B1073DBE27E31B380E0BBDD257A5BD0CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106917   (869840) от 21.02.2017
+
+VA - Deep House Collection Vol.109 (2017) [MP3|217-320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869840.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 181 Degree - Ghost (Original Mix) 8:36
+002. A.D.S.R. feat. Moji - Operate (Original Mix) 5:24
+003. Aaron McClelland - Let's Get Physical (Touch & Go Laidback Dub) 5:33
+004. Ace Of Base - Cruel Summer  (Otter Berry Bootleg) 3:28(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73C8CBDC9C1F74B539B3798B7414F3043D77589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496862   (869800) от 19.09.2021
 
 VA - Beatport Tech House: Sound Pack #350 (2021) [MP3|320 Kbps] <Club, Tech House>
@@ -568,180 +742,6 @@ VA - Flight Of The Soul Vol.52 (2016) [MP3|320 кб/с] <Chillout, Downtempo, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:962D47AFA2AE8F5ABA96CF84CAFB93B0DC967001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998588   (868436) от 20.03.2016
-
-VA - Горячая 20-ка Кавказ (2012) [MP3|320 кб/с] <Кавказская эстрада>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анжелика Начесова - Иума (на осетин. яз.)
-02. Магамет Дзыбов - Сердце кровью обливается
-03. Магомед Аликперов - Остров Барбуда
-04. Рустам Ахмедханов - В океане глаз твоих(   Читать дальше...   )Жанр: Кавказская эстрадаПродолжительность: 01:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B091EF7BE65DE3D7EA8DEAAEE06EEA380D16142F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998944   (868435) от 20.03.2016
-
-VA - Pacific Music- Relax Underwater Sound (2016) [MP3|256-320 кб/с] <Chillout, Longe, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы поставите этот альбом на весёлой вечеринке, то приготовьтесь услышать просьбу включить «что-нибудь повеселее». Мелодии микса "Pacific Music: relax Underwater Sound" имеют размеренный и умиротворенный характер, прохлада и сдержанность морских глубин сопровождает каждый трек лонгплея. Эта музыка лучшим образом прийдётся для релакса и отдыха.001. Wellness & Ambiente - Ausklang
-002. Beautiful Instrumental Music Guys - Cool Instrumental Chill Out
-003. Lady White - Let Me Try (Ripping Mix)
-004. Moreza - Rahu(   Читать дальше...   )Жанр: Chillout, Longe, DowntempoПродолжительность: 07:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E893D14B70FF56F6397F9C6D511128F32DD7FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998589   (868401) от 20.03.2016
-
-VA - Хит FM - Восхитительная Двадцатка март (2016) [MP3|320 кб/с] <Club, Dance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kadebostany - Teddy Bear (Astero Remix)
-02. Anna Naklab & Younotus feat. Alle Farben - Supergirl (Original Mix)
-03. Ленинград - Экспонат (Pago & Joy Extended Mix)
-04. Sigala - Easy Love (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 01:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464185B2FBCCE0729F05B86CCD03D0FC3EE6D867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998671   (868325) от 20.03.2016
-
-VA - Музыка дороги Сборник русского шансона (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868325.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Шапиро - 50
-002. Централ - Шансонье
-003. Андрей Широков - Дым
-004. Ирина Круг - День В Котором Нет Тебя(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635638329F76BA3186269AB12FEDE1A5E6B7BB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107257   (868246) от 22.02.2017
-
-VA - Haywyre System Relax Ambient (2017) [MP3|320 Kbps] <Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868246.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Le Blanc - Stranded
-002. Brian Eno - The Ship
-003. Florito - Funny Valentine
-004. Andre Kornev - Relaxia(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 08:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E77CF40987E4C66292F6EA906E739594BC77F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107492   (868239) от 22.02.2017
-
-VA - Электронный Кавардак [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dubstep, Drumstep, Midtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karma Fields & Morten - Stickup Ft. Juliette Lewis [04:50]
-02. Fabian Mazur - Fiyah (Feat. Brukout) [03:49]
-03. Bro Safari Ft. Sarah Hudson - Reality (Twin Moons Remix) [03:57]
-04. Khaox - The Answer [03:25](   Читать дальше...   )Жанр: Dubstep, Drumstep, MidtempoПродолжительность: 06:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9ED8843879A4FBC7D444FBA5AA03D5C887CC9B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

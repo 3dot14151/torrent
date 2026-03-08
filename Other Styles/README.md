@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857829   (1060040) от 07.03.2026
+
+Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Do You Like Me Now?! [0:03:29.05]
+02. When Love Fades [0:03:07.25]
+03. Blue Bedroom [0:03:30.12]
+04. New Orleans [0:04:13.53](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:41:04.733 (108 694 740 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EB9509EC8463CD445092F57627D5AA6353CACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856672   (1059018) от 01.03.2026
 
 Paul Mauriat - Les grandes musiques de films (1973) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
@@ -712,35 +741,6 @@ Le Grand Orchestre De Paul Mauriat - Penelope (1971) Reissue, Remastered, 1997, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBC39788461998D311D464F4E3F6097F7F13CF29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606893   (1044228) от 24.01.2023
-
-Era - The Very Best Of (2004) [OGG Vorbis|480 Kbps] <Rock, Pop, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ameno remix
-02. Don't go away
-03. The mass
-04. Mother remix(   Читать дальше...   )Жанр: New Age, Pop, ClassicalПродолжительность: 01:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B6CFB194865C537A764E426E974E68A23FB07D
 ```
 
 https://mybot314.ru/tekegram_catalog/

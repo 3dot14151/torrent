@@ -1,32 +1,3 @@
-###  Публикация: 966430   (221126) от 17.12.2015
-
-Cain's Dinasty - The Hollow Earth (2015) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221126.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Grey Ones
-2. The Roots Of Mankind
-3. Two Fools Against The World
-4. Screaming Lungs(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F6B68154BE49740C0BCEAF6EFCCBE9D4399854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966339   (221082) от 17.12.2015
 
 SikTh - Opacities (2015) EP [MP3|320 кб/с]<Progressive Metal>
@@ -743,6 +714,35 @@ Shores of Null - The Loss of Beauty (2023) [MP3|320 Kbps] <Melodic Black, Doom M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57A669C998AA01B4F950343128DBE97996F2BB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654051   (213705) от 18.08.2023
+
+Skinher - Heartstruck (2023) [MP3|320 Kbps] <Heavy Metalб Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are Next! (03:58)
+02. The Maniac is Back (05:42)
+03. Interstellar Love Hysteria (04:30)
+04. Night Cull (05:48)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7343983F09984A8315DF12294EC69E1C610D90
 ```
 
 https://mybot314.ru/tekegram_catalog/

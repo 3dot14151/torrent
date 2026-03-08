@@ -1,32 +1,3 @@
-###  Публикация: 1553766   (580079) от 28.05.2022
-
-The Heretic Order - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Children Of The Sun
-03. King Of The Damned
-04. Dark Shadows(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C6A5ED3EFA95B14A9E02537D8B614DC8BFFBFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919505   (580057) от 22.07.2015
 
 Disciple - Дискография (1995-2014) [MP3|320 кб/с]<Rock>
@@ -738,6 +709,35 @@ Kirastas - Iru Hanum (2015) [MP3|320 кб/с]<Alternative, Art Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4D2A3129818E7C49D24D86066222CB6B083C9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920693   (579088) от 23.07.2015
+
+Midian - Bring Me the Darkness (2015) Japanese Edition [FLAC|image+.cue]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring Me the Darkness Part I
+02. Bring Me the Darkness Part II
+03. Cadeva
+04. Falling for Freedom(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24ABE7F82EBFE5D4F577AD2E5548FF108022DE48
 ```
 
 https://mybot314.ru/tekegram_catalog/

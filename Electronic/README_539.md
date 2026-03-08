@@ -1,3 +1,61 @@
+###  Публикация: 1810721   (16897) от 06.08.2025
+
+Rudy's Midnight Machine - The Reception (2008) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Reception (Part 1) 4:47
+02 The Reception (Part 2) 5:14
+03 The Reception (Part 3) 5:19
+04 The Reception (Part 4) 4:32Жанр: House, Nu DiscoПродолжительность: 00:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DFF3B7B86E6E67FA75CABED2CBB42C8C42C505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810824   (16895) от 06.08.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 6 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Drives On A Vinyl - Greece 2000 (Extended Mix) [8:04]
+02. The Blizzard - Kalopsia (Extended Mix) [9:41]
+03. System F feat. Armin van Buuren - Exhale (Extended Mix) [7:13]
+04. Lustral - Everytime (Mike Koglin Extended Mix) [8:23](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F0C334D1410776F10808CD3C0DE586157B501A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810832   (16872) от 06.08.2025
 
 VA - In Search Of Sunrise 21 (Mixed by Markus Schulz) (2025) [MP3|320 Kbps] <Trance, Progressive, Melodic House & Techno>
@@ -684,64 +742,6 @@ Loess - battens (2025) [FLAC|Lossless|Web-DL|tracks] <IDM, Ambient, Experimental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B9E9801128C61E5BA0E4D9171CDD88290976A18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800554   (15638) от 04.06.2025
-
-VA - Top 11 March 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maxim Kovalskiy - Comet (DJ Grom Remix) [7:26]
-02. KyousIn - The Name Of Youth (Duezher Remix) [7:03]
-03. GeorD - Something Ends, Something Begins (Original Mix) [8:00]
-04. Betibwe & DreamSkies - Embrace Of Your Heart (Original Mix) [6:24](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D1D749DCC9FF5903369152535C0C04F702ABC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800765   (15576) от 05.06.2025
-
-VA - Peaceful State: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pier-O - Coral Reef (5:44)
-02. Fake and True - Sleep Therapy 3 (10:07)
-03. sarosa - First Gate of Dreaming (5:56)
-04. Dellasollounge - Fantasy Flute (2:59)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28095E03F8C6D65F0F09996DC2E05B6BA07B820E
 ```
 
 https://mybot314.ru/tekegram_catalog/

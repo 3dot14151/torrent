@@ -1,3 +1,61 @@
+###  Публикация: 1600374   (157618) от 27.12.2022
+
+VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glz, Venessa Jackson - The Night (03:26)
+02. Cocolorez - Supersized (Souxsoul Refix Mix) (06:45)
+03. Vyktor Nova - Funked (06:05)
+04. Jerem A - Let's Work It Out (06:00)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2DDAC22F090F88A5BDD29B2931BD751F3A5FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599853   (157587) от 27.12.2022
+
+VA - NOW That's What I Call Christmas (4CD) (2022) MP3 [320 Kbps] <Pop, Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Goes To Hollywood - The Power Of Love (05:33)
+02. Idina Menzel - Let It Go (03:44)
+03. Robbie Williams - Angels (04:25)
+04. Spice Girls - 2 Become 1 (04:01)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 05:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54BC4EEEDB98633AE596E06828FC3C537A10190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346821   (157536) от 20.12.2019
 
 VA- The Hit Factory 2 - The Best Of Stock Aitken Waterman (1988) [FLAC|Lossless|image + .cue] <Hi NRG, Synth-pop>
@@ -687,64 +745,6 @@ VA - Saturday Feel Good (2021) Explicit [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DCD5191DEF23EA1E7E49C099BEAAE67F52D82DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194132   (155904) от 25.12.2017
-
-Titiyo - This Is... (1993) [MP3|256 Kbps] <Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is... (03:44)
-02. Back & Forth (04:25)
-03. Hot Gold (04:27)
-04. Deep Down Underground (04:33)(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6DFB35CBDAD89B3CEC6A5FB3922BCE033CDB1C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270630   (155806) от 20.12.2018
-
-VA - Club MTV - Dance Anthems (2018) [MP3|320 Kbps] <Pop, Experimental, Synthpop, Nu-Disco,>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155806.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Livin' Joy - Dreamer
-02. Nightcrawlers - Push The Feeling On (Dub Of Doom/Short)
-03. Armand Van Helden - You Don't Know Me Featuring Duane Harden (Radio Edit)(   Читать дальше...   )Жанр: Pop, Experimental, Synthpop, Nu-Disco,Продолжительность: 03:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF84CEEB8481FDF7E42B51AF366344C968E70109
 ```
 
 https://mybot314.ru/tekegram_catalog/

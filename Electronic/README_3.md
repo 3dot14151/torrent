@@ -1,3 +1,61 @@
+###  Публикация: 1851969   (1055536) от 05.02.2026
+
+VA - Desert Souls, Vol.1 (Micro Sound Records) (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nora Aladha - Kora Malembe Nitu (2:59)
+02. Alma Rojas - Se Quiseres (2:53)
+03. Lia Maris - I Move Slow (2:37)
+04. Anahi Sahra - Ana Al Khamisa (2:24)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C199703AFE3C4FB6905EBC761DEAED3C559ECD27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851848   (1055347) от 04.02.2026
+
+VA - Suanda Future 2026-01 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonerush pres. Pragma - El Fuego (Extended Mix) [4:52]
+02. AMINTO & Anton Pallmer - Another Life (Extended Mix) [5:14]
+03. Adip Kiyoi & Ade DokQ - Your Eyes (Extended Mix) [5:35]
+04. Michael Milov & H4lo & Sarah Etheridge - Make It Out Alive (Extended Mix) [5:00](   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7C74083AECC4818E0C948457208679AA64F2EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851556   (1055323) от 02.02.2026
 
 VA - Selected Trance Music 2026 (2026) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ Anachronist - Light and Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF6A639078E987D95C54B40FB4A944A01AA76483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850236   (1054252) от 26.01.2026
-
-T-4-2 - ReSynth (2026) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, Retrowave, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Images of Heaven [00:03:31]
-02. Cars [00:04:28]
-03. Heartbreak Hotel [00:04:26]
-04. Make a Circuit with Me [00:03:37](   Читать дальше...   )Жанр: Synthpop, Futurepop, Retrowave, ElectropopПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064D409D79C39D8350E71B5C12C504607C3393B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850262   (1054236) от 27.01.2026
-
-VA - Island Grooves: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. V-Sta - Carefree (Original Mix) (4:54)
-02. Marie Therese - I See You (Houie D`s Chill Remix) (4:05)
-03. Beamy - Space (Original Mix) (5:12)
-04. Autonne - Electrified (Original Mix) (2:30)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D8A451DAA178E613BA8492AE558AA439E0507E
 ```
 
 https://mybot314.ru/tekegram_catalog/

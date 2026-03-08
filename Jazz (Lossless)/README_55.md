@@ -1,3 +1,32 @@
+###  Публикация: 1112315   (843404) от 08.03.2017
+
+WYSI WYG - What You See Is What You Get (1997) SubConscious [APE|Lossless|image + .cue] <Jazz Fusion, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Smile [06:17]
+ 02.Hen [04:40]
+ 03.Secret Forest [00:52]
+ 04.Ice on Fire [05:09](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA769E7AB5A1255D413B767658BA19D19A528881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112306   (843400) от 08.03.2017
 
 Larry Coryell - Inner Urge (2001) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -725,35 +754,6 @@ Kaira - Kaira (2017) [FLAC|Lossless|WEB-DL|tracks] <Cool Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D68C869AAA7ECD47318994B1BB919A27D342FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004258   (840204) от 05.04.2016
-
-Thelonious Monk - Blue Monk (1948-1963) 3CD, 2014, Le Chant Du Monde[FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840204.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Misterioso [02:47]
-02.Evidence [02:35]
-03.Mohawk [03:39](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 03:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E72E7305403E485B622A38C546135A9D8EAE40
 ```
 
 https://mybot314.ru/tekegram_catalog/

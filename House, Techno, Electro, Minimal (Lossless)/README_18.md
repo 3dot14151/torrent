@@ -1,3 +1,90 @@
+###  Публикация: 1273986   (798774) от 04.01.2019
+
+Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, Electro, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bugsmasher (04:50)
+ 02. Katacomb (05:43)
+ 03. Oceans 1300 (05:59)
+ 04. Taipei (05:22)Жанр: Breakbeat, IDM, Electro, AcidПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1F4FB8CE808F4B3C601E0283ECDD460023E187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385162   (797873) от 24.05.2020
+
+Jody Wisternoff - Nightwhisper (2020) Extended Edition [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning U (3:24)
+ 02. Nightwhisper (3:37)
+ 03. Here To Stay (4:04)
+ 04. Emochine (3:50)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998B041732AE20C4159989D56E431F8AC44FB7CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385469   (797811) от 24.05.2020
+
+Lisa Shaw - Cherry (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Broken Beat, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherry.flac
+02. Don't Know What To Do.flac
+03. When I.flac
+04. Grown Apart.flac(   Читать дальше...   )Жанр: Deep House, Broken Beat, DowntempoПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0362843C2D2B21DC138960F4FD96943D77AE20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385448   (797801) от 24.05.2020
 
 VA - Miguel Migs – Nude Tempo One (2002) [FLAC|Lossless|tracks + .cue] <Deep House>
@@ -658,90 +745,6 @@ Advanced Dreams - Collection 4 Releases (2013-2015) [FLAC|Lossless|WEB-DL]<Dub T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4AB40A1DBA69EC1DC282CBFF7B654F410986A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031490   (795108) от 28.05.2020
-
-Speedy J (Jochem Paap, Electric Deluxe, Public Energy, Tune, Problem House, Collabs, Zeitgeber) - Discography (1990-2020) Warp Records, NovaMute [FLAC|Lossless|tracks+.cue] Techno, IDM, Ambient
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seventeen Zero Four (05:36)
- 02. One Zero Five (04:49)
- 03. Twenty Zero Two (06:31)Тип издания: CD, Web, VinylЖанр: Experimental/Techno/Ambient/AcidПродолжительность: 31:36:39 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29C7D86AF8C4DC27E0D2C35053CB63B3FAD7091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274051   (795071) от 05.01.2019
-
-Tears Of Change - Road To Beijing (2015) Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road To Beijing (05:53)
- 02. Road To Beijing (Raffaele Attanasio LFJ Version) (04:16)Жанр: Techno, Deep HouseПродолжительность: 00:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697C307082D9964A129CCAA0E7079073D4CE398C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274161   (795068) от 05.01.2019
-
-System 7 & Derrick May - Mysterious Traveller (2002) A-Wave [FLAC|Lossless|tracks+.cue] <Techno, Detroit Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. System 7 / Derrick May - Altitude (Mayday Mix) (07:42)
- 02. System 7 / Derrick May - Mysterious Traveller (Groovy Intent Mix) (08:04)
- 03. System 7 / Derrick May - Big Sky City (Mayday Mix) (09:29)
- 04. Rhythim Is Rhythim - Icon (Montage Mix) (08:49)(   Читать дальше...   )Жанр: Techno, Detroit TechnoПродолжительность: 01:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD8DF03380372DD33CFB4702EB4FC4C38173123
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,252 +1,3 @@
-###  Публикация: 1389789   (783890) от 12.06.2020
-
-PicPick 5.1.1 Pro + portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783890.jpg" />
-</div>
-
-
-###  Подробнее
-
-PicPick - приложение, объединяющее в себе возможности простого графического редактора и утилиты для захвата изображений с экрана компьютера. PicPick обладает простым и удобным интерфейсом. Среди особых возможностей стоит выделить возможность захвата целого рабочего экрана (в том числе, и на мультимониторных системах), захват только активного окна, отдельной области, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDDB7F4F147A5C7735C7B13950347B316F8AF234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389895   (783870) от 12.06.2020
-
-Microsoft Edge Enterprise 83.0.478.45 RePack by SanLex [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Edge Enterprise – браузер для бизнеса, корпоративная версия Microsoft Edge на Chromium для предприятий. Доступны оффлайн установщики, политики администрирования и режим Internet Explorer.Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA584AD0EFCED874FF922D81A3A95A79B8F86FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389746   (783858) от 12.06.2020
-
-Rufus 3.11 (Build1674) Beta [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2039B7CECC6F78DD7F80AB249A49B5215A851060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389519   (783848) от 12.06.2020
-
-Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Designer SP2 14.0.7252.5000 VL (x86) RePack by SPecialiST v20.6 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2010 — один из лучших наборов офисных приложений для компьютеров, телефонов и браузеров, включающий функции, на которые можно положиться уже сегодня, и возможности, которые могут потребоваться в будущем. Данный набор приложений позволяет уверенно принять вызов сегодняшней экономической ситуации, не упуская из виду факторы, необходимые для достижения (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B466D9D094539BEFF2B765163B12A2CE788429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205407   (783814) от 09.02.2018
-
-VA - Fifth Listen (2017) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Abstract, Glitch>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oror - Winter see und (05:57)
-02. Andrew Clam - Space Dance (Nearfield Remix) (04:12)
-03. VardenZenix - Triang and the farting snare (04:59)
-04. Kri Tik - Console napping (04:57)(   Читать дальше...   )Жанр: IDM, Ambient, Abstract, GlitchПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45EE00EBFD868F43B6E654805525AB79415428F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205405   (783813) от 09.02.2018
-
-VA - Fourth Listen (2016) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Downtempo, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. the_empath - Autoverse (05:30)
-02. Alpturer - Kibo (03:50)
-03. Perfluxe - Illusion (03:52)
-04. Algesis - Misuse (05:47)(   Читать дальше...   )Жанр: IDM, Abstract, Downtempo, ExperimentalПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1340F25629CB20BA224DC7B0D6AED17F8B912ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205392   (783810) от 09.02.2018
-
-Roman Slavka - Material That Has Been Stored For A Long Time (2017) CleanError Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Abstract, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Earth Hour (05:20)
- 02. Evening Earth Hour (06:56)
- 03. Creeping Wave (08:22)
- 04. Rotation Pull (06:04)(   Читать дальше...   )Жанр: Experimental, IDM, Abstract, AmbientПродолжительность: 00:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAA4E77DEC0643B6572D814F7FCD040B07C2EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205400   (783804) от 09.02.2018
-
-VA - Air Texture Volume V (Selected By Spacetime Continuum and Juju & Jordash) (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spacetime Continuum - Flux (06:40)
- 02. Move D - Gli Ragazzi Di Baia Di Puolo (09:05)
- 03. Fred P. - Vortex (06:26)
- 04. Patrice Scott - Synchronicity (06:05)(   Читать дальше...   )Жанр: IDM, Ambient, DowntempoПродолжительность: 02:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488CFA2B61B1438EABA2131B973B1E756336D165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205413   (783782) от 09.02.2018
-
-VA - The Future Of Dreaming (2016) Crunch Pod [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Experimental, Dark Ambient, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Databomb - I Fell In Love With Her 2nd Face v6 (06:02)
- 02. Zeller - Orbital (04:43)
- 03. Her Blood In My Veins - They Said We Once Were, But We Are No Longer (04:29)
- 04. Marred - By The Moonlight (06:04)(   Читать дальше...   )Жанр: IDM, Industrial, Experimental, Dark Ambient, AmbientПродолжительность: 02:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE6AACEFC62DF0BF447384C597A92FB9B3666D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205354   (783779) от 09.02.2018
 
 PDF Expert 2.3.0 [Multi/Ru]
@@ -690,6 +441,246 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22C708926C0DF17C7A01A9C07A7168F109061DC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389997   (783645) от 13.06.2020
+
+Skype 8.61.0.87 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype — программа от Microsoft, с помощью которой вы можете бесплатно звонить во все уголки мира. Skype создан авторами KaZaA. Сеть Skype базируется на прогрессивной P2P (peer-to-peer) технологии. Качество передачи голоса очень хорошее. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5550C0A632CEC2A5DE65625EF77F0B288BB530E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390048   (783644) от 13.06.2020
+
+CrystalDiskInfo 8.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783644.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F125D8EC7602908F772C4F08A576FA2A7D142541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390029   (783643) от 13.06.2020
+
+Athentech Perfectly Clear Complete 3.10.0.1797 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Athentech Perfectly Clear Complete может работать отдельно или как плагин для Photoshop и Lightroom. Позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F409B8709BA02E3130EF84AEA32CC6FDFD35F71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389993   (783630) от 13.06.2020
+
+Topaz Gigapixel AI 4.9.4.1 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D8CE5C3FE1C3DF097AF330AE1D2BFA9CB3DD71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390113   (783629) от 13.06.2020
+
+SamDrivers 20.5 LAN [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 / Drivers Installer Assistant 8.02.20 / Snappy Driver Installer 1.20.0 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B4EDBECF4E6C8679267A190BA2D3FB0DB502D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389940   (783617) от 13.06.2020
+
+Xilinx Vitis Unified Software Platform 2020.1 [En] (unpacked)
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Унифицированная программная платформа Vitis позволяет разрабатывать встроенное программное обеспечение и ускоренные приложения на разнородных платформах Xilinx, включая FPGA, SoC и Versal ACAP. Он предоставляет унифицированную модель программирования для ускорения приложений Edge, Cloud и Hybrid.
+Используйте интеграцию с высокоуровневыми фреймворками, разрабатывайте (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C227973E5F91D014A4FA957044DC7ECEFB3A8E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390091   (783603) от 13.06.2020
+
+Andrei Neagoie | Complete Python Developer in 2020: Zero to Mastery (2020) WEB-DL [H.264/720p-LQ] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный курс обучения програмиррования на Пайтон. С онлайн академии Udemy.
+Для тех кто хочет обучится програмированнию на Пайтон и "Войти в ИТ".Жанр: Программирование, PythonЯзык озвучки: АнглийскийПродолжительность: 30:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D566882A620B903B29B4A31E378602948073EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389838   (783582) от 13.06.2020
+
+Anvir Task Manager 9.3.3 RePack (& Portable) by elchupacabra (12.06.2020) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783582.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnVir Task Manager — бесплатная системная утилита, которая позволяет контролировать всё, что запущено на компьютере, а также предоставляет удобные инструменты для настройки компьютера. AnVir Task Manager позволяет управлять автозагрузкой, запущенными процессами, сервисами и драйверами и заменяет Диспетчера Задач, помогает обнаружению и удалению вирусов и spyware, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1FB34701B7A477CCED6C54BEEC0D7FD786E508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205394   (783552) от 10.02.2018
+
+Silent Strangers - Anagram 4: Lume (2017) Selection 27 & IDMf [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Abstract, Glitch>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Torture (03:03)
+02. Frntc (03:52)
+03. 6616 (05:46)
+04. Black Leaf (05:51)(   Читать дальше...   )Жанр: IDM, Experimental, Abstract, GlitchПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE0BC47228D8A8FFBF939B807F30ACE4F6AB525
 ```
 
 https://mybot314.ru/tekegram_catalog/

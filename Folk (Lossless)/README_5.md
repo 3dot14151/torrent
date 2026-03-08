@@ -1,3 +1,32 @@
+###  Публикация: 1136439   (674901) от 22.05.2017
+
+NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Take A Minute (3:43)
+02 - Sunshine Good Times (3:26)
+03 - Make Each Moment Last (3:47)
+04 - Here Now Forever (2:55)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E187B2A3264D710D67A07F671942012693201ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290765   (674334) от 22.03.2019
 
 Tom Russell - October in the Railroad Earth (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
@@ -716,35 +745,6 @@ Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45AA095DF27E681AB80057114E48DB4F93C6F1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295528   (618606) от 13.04.2019
-
-Le Winston Band - Zig Zag Zydeco Zoo (2019) [FLAC|Lossless|tracks + .cue] <Zydeco, Cajun, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zoo Town Zydeco (4:32)
-02. En haut de la montagne (4:30)
-03. Chère Aline (5:02)
-04. Bureaucrates (4:29)(   Читать дальше...   )Жанр: Zydeco, Cajun, FolkПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEDB9AB40C6ED42276642AF727443233CC649AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

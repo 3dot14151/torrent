@@ -1,3 +1,32 @@
+###  Публикация: 1557599   (539191) от 16.06.2022
+
+Grover Washington Jr. - Come Morning (1981) Elektra [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East River Drive [4:46]
+02. Come Morning [4:56]
+03. Be Mine (Tonight) [6:26]
+04. Reaching Out [4:09](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10473E339E3AEE86B7453A31E6F6C117B0304E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557601   (539186) от 16.06.2022
 
 Grover Washington, Jr. - Feels So Good (1975) 1986, Motown [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
@@ -716,35 +745,6 @@ Bobby Caldwell - August Moon (1983) /Sin-Drome Records/ [FLAC|tracks+.cue]<Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29FDC455E5D5A7C3F70E5C890426C53FF2AFC993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926338   (535590) от 09.08.2015
-
-Ambient Jazz Ensemble - Suite Shop (2014) [FLAC|tracks|WEB-DL]<Jazz, Nu Jazz, Broken Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes Wide Open (04:40)
-02. Jazz Face (04:14)
-03. Cinematize (04:03)
-04. The Journey (05:02)(   Читать дальше...   )Производство: Here & Now RecordingsЖанр: Jazz, Nu Jazz, Broken BeatПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9008304E25338B6E87CD372CC4EA0890E0F953
 ```
 
 https://mybot314.ru/tekegram_catalog/

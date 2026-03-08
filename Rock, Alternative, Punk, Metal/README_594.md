@@ -1,32 +1,3 @@
-###  Публикация: 1160918   (472002) от 26.08.2017
-
-Detritus - If But for One (1993) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Masquerade
-02.	So Far Away
-03.	D.I.G.M.
-04.	Let Peace Begin With Me(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C9EA43154C1A55FA4949E73DCFB5A908FE00BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160923   (472000) от 26.08.2017
 
 DoomSword - DoomSword (1999) [APE|Lossless|image + .cue] <Heavy, Epic Doom Metal>
@@ -768,6 +739,35 @@ Epica - The Holographic Principle (2016) [MP3|320 Kbps] <Symphonic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14459ADEC7B5F1C791A88EEEF66232EC3BAEA31B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057844   (470565) от 30.09.2016
+
+Poets Of The Fall - Clearview (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drama for Life (03:26)
+02. The Game (04:45)
+03. The Child in Me (03:51)
+04. Once Upon a Playground Rainy (03:36)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995D97E2FA9917DDAD5C4B50E90BEC651AF73CDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

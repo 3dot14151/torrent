@@ -1,3 +1,131 @@
+###  Публикация: 1555310   (565366) от 06.06.2022
+
+VA - The Golden Soul (2022) [MP3|320 Kbps] <Pop, Jazz, RnB, Soul>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565366.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marvin Gaye - Ain't No Mountain High Enough
+002. Bill Withers - Ain't No Sunshine
+003. Ledisi - my baby just cares for me
+004. The Jacksons - Push Me Away(   Читать дальше...   )Жанр: Pop, Jazz, RnB, SoulПродолжительность: 08:03:57 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BC88FBF401192E949B5CDF5C722ADEB24056C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555299   (565340) от 06.06.2022
+
+VA - Soft Pop Hits (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565340.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Easy On Me
+002. John Legend - All of Me
+003. Justin Bieber - Ghost
+004. Taylor Swift - Lover(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF02473E8DDD9C14E3BC162BF848C79350F1B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529837   (565281) от 01.08.2012
+
+VA - 538 Hitzone Best Of 2011 2CD (2012) [MP3|320 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565281.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Продолжительность 01:18:59
+
+01 - Adele - Rolling In The Deep
+02 - Gotye feat. Kimbra - Somebody That I Used To Know
+03 - Pitbull feat. Ne-Yo,Afrojack & Nayer - Give Me Everything
+04 - Racoon - No Mercy
+05 - Gers Pardoel - Ik Neem Je Mee
+06 - Katy Perry - Firework
+07 - Glennis Grace - Afscheid
+08 - Lucenzo feat. Don Omar - Danza Kuduro(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91DA7A984E25D8ECF4BEC50CF113BB2EC2661A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529988   (565247) от 01.08.2012
+
+VA - Солнечный Дэнс Музон. Зарубежный (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Factorfunk - Checkmate (original mix)
+002. Coldplay - Paradise (Fedde Le Grand remix)
+003. Maroon 5 - I Shall Be Released
+004. Shakira - La Quiero A Morir (Je Laime A Mourir)
+005. Pitbull feat. Chris Brown - International love (UK Pop radio edit)
+006. Lady GaGa - Bloody Mary (Clinton Sparks Remix)
+007. Lucian Base feat. Eilah - I've Got No Reason (Radio Edit)
+008. Splash feat. Nick Austin - Adagio for strings (Scotty vocal mix)
+009. Bel Suono feat. DJ Magic Finger - Te quiero
+010. David Guetta feat. Sia - Titanium(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE02002C56BA47472CB570DC9AD5F201166F920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529991   (565221) от 01.08.2012
 
 VA - Энергия Mega хитов 3 (2012) [MP3|256 кб/с]<Dance>
@@ -678,134 +806,6 @@ VA - Need for Speed Vol. 7 (2017) [MP3|320 Kbps] <Dance, Hands Up>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7144F19635C057E4897BF881EB5A984FF56197F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530644   (561104) от 03.08.2012
-
-VA - Танцевальный Экстаз. Зарубежный Выпуск (2012) [MP3|256 кб/с]<Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561104.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta feat Sia - Titanium
-002. Blue Affair & Sasha Dith feat. Carlprit - Р
-003. Karosa feat. Kledia - Burning passion
-004. Mohombi - Maraca
-005. Lmfao - Sexy And I Know It (Stanislav Shik & Denis Rook remix)
-006. Emin - Falling (Raduga remix)
-007. Julian Perretta - Stitch Me Up
-008. Morandi - Midnight Train
-009. Bimbo Jones feat. Ida Corr - See you later (Da Brozz remix)
-010. Bob Sinclar Feat. Pitbull & Dragonfly & Fatman Scoop - Rock The Boat(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC5AEB2DB8F73DA47FAE1C7C29E0CBE2CA6A6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045199   (560754) от 22.08.2016
-
-VA - Hot Music - Mix For Disco (2016) [MP3|320 Kbps] <Dance, Club, Trance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Selidos ft. Savannah Low - Hero (Original Mix)
-02. Stefan Gruenwald & Lokee feat. Pearl Andersson - Wicked Game (Club Mix)
-03. D05 - Armada (Original Mix)
-04. Dj Rocca & Fred Ventura - Looking For Love(   Читать дальше...   )Жанр: Dance, Club, Trance, HouseПродолжительность: 09:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12906D908E6C30C326A9A8600BC2F66ECF6F4C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530675   (560690) от 03.08.2012
-
-VA - Музыка для тачки 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Flo Rida - Whistle
-02 Ассорти - Ангелы
-03 2-4 Grooves - Rockset 2012 (Video Edit)
-04 Маша Пирожкова - На юг
-05 Djane Housekat Feat. Rameez - My Party (Radio Version)
-06 Казанова - Попа-опа
-07 Remady &amp; Manu-L Feat. J Son - Single Ladies (Single Edit)
-08 A-Sen - Давай Поженимся (Dj Armilov &amp; Dj S-Nike Radio Version)
-09 Edward Maya Feat. Violet Light - Back Home
-10 G-Nise feat. Алексей Кабанов - Наше лето(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1EB3A3FBAEF301D3FC9C48D52113F774296656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923937   (560653) от 02.08.2015
-
-VA - Car Audio. Только позитивные впечатления. (Sound Clinic - Special Edition) (2015)[MP3|160-320 к<Deep, Tech, G-House, Trap, Dubstep, Electro, Trance, Progressive, Tec
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560653.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 303Bastard - Nightingale (Original Mix)
-2. Active Child - Hanging On (Chrome Wolves Bootleg)
-3. Adana Twins - Strange (La Fleur Remix)
-4. Adnan Jakubovic - Robot S Dream (Pavlin Petrov Remix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Trap, Dubstep, Electro, Trance, Progressive, TechnoПродолжительность: 20:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9914A44272BE40889590B7F452AE25A0E766E471
 ```
 
 https://mybot314.ru/tekegram_catalog/

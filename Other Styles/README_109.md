@@ -1,3 +1,32 @@
+###  Публикация: 1569198   (453494) от 12.08.2022
+
+Enigma - MCMXC a.D. (1990) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voice Of Enigma	2:20
+02. Principles Of Lust (Sadeness) 4:04
+03. Principles Of Lust (Find Love) 4:50
+04. Principles Of Lust (Sadeness (Reprise) 2:48(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF97AB2438AFA8099E1553B63A013BDDA6DE1B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 825825   (453178) от 30.09.2014
 
 Тролль Гнёт Ель - 8 Альбомов + Совместные проекты (2003-2013) [MP3|320 кб/с]<Folk-Rock, Beer Folk>
@@ -741,35 +770,6 @@ Guy Sweens - Universal Language (2015) [MP3|320 кб/с]<New Age, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECFC95E660F8A8B2BF7E0DCDFFDF5B034030E22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569309   (447088) от 15.08.2022
-
-Enigma - The Cross Of Changes (1993) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Chapter	2:16
-02. The Eyes Of Truth	7:13
-03. Return To Innocence	4:17
-04. I Love You ... I'll Kill You	8:51(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADC6E3243D8BA9A1B77DE83CA366CAC48B309A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

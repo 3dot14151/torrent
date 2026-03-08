@@ -1,3 +1,61 @@
+###  Публикация: 1248666   (442386) от 20.09.2018
+
+The Spotnicks - Never Trust Robots (1978) LP [MP3|320 Kbps] <Electronic, Synth-Pop, Space Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Trust Robots (4:04)
+02. Amazing Stories (3:31)
+03. Close Discussions Of The Hird Kind (3:11)
+04. A World Of Spotnics (4:12)(   Читать дальше...   )Жанр: Electronic, Synth-Pop, Space RockПродолжительность: 00:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AB4F22A5F217C028A2E650A8D4970861005B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322961   (442226) от 01.09.2019
+
+Raf - Raf (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change Your Mind (5:28)
+02. Why In The World (3:54)
+03. She's A Criminal (4:59)
+04. Imagination Lover (4:16)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5166258A9DB8FE05EFB6950BA8E069B9713020F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164447   (441694) от 09.09.2017
 
 Explorer (by Tony Carey) - Explorer (1982) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Electro>
@@ -699,64 +757,6 @@ Celine Dion - Loved Me Back To Life (2013) Deluxe Edition [FLAC|tracks + .cue]<P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B909EC02CAC0384E9DC58EEEB24906C6F1AF1AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570421   (438055) от 19.08.2022
-
-Dr. Alban - One Love (The Album) (1992) Vinyl-rip [OGG|485 Kbps] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction	1:45
-02. It's My Life	4:00
-03. Sing Hallelujah!
-04. Groove Machine 4	3:41(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF81ACE4F521DA3116102AE8A23BFEB4D1A5D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945008   (437897) от 08.10.2015
-
-Selena Gomez - Revival (2015) Japanese Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival
-02. Kill Em With Kindness
-03. Hands to Myself
-04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2DACEF2F7D4700FB2B2FC402B8F0B25A3200BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

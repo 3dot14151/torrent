@@ -1,3 +1,32 @@
+###  Публикация: 1315827   (510978) от 22.07.2019
+
+VA - Like A Summer Day, Vol. 3 (2019) [MP3|320 Kbps] <House, Deep House, Indie Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510978.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Walter N. – Dubai Beach (05:02)
+2. Marco Malinverno – Heart Breaker (05:57)
+3. Living Large – Lacetti (04:44)
+4. Junior D – Gold Lounge (05:15)(   Читать дальше...   )Жанр: House, Deep House, Indie DanceПродолжительность: 05:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6659880C5EA2A6780AFB8DC0D47EFBDDFF6809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538199   (510444) от 22.08.2012
 
 Hard Bass School - Album (2012) [MP3|320 кб/с]<Pumping House / Hardbass>
@@ -758,35 +787,6 @@ L.S.G. - Double Vision (2017) [MP3|320 Kbps] <Progressive House, Downtempo, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:747BC7600D3A1400618F0D5FB9DBBE914A313D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056190   (484007) от 24.09.2016
-
-VA - Body Pump #1 - Best of Workout (2016)  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light In Color - Take Cover 05:27
-02. David K (Ger) - In Love : In Love (Robin Schulz Remix) 06:49
-03. Acido Domingo - Lagerfeuer 05:08
-04. David K (Ger) - Open Eyes 06:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E8A5F6D8C7B548586B3D3338AE92CA48E06546
 ```
 
 https://mybot314.ru/tekegram_catalog/

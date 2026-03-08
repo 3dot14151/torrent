@@ -1,3 +1,29 @@
+###  Публикация: 1045863   (558030) от 24.08.2016
+
+VA - Bossa Nova moods: The Complete Collection (1999) 2CD [WavPack|Lossless|image + .cue] <Latin Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Latin Jazz, Bossa NovaПродолжительность: 01:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C384C16ABC89E18E5404855A74D568837530E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924653   (557679) от 04.08.2015
 
 Eric Dolphy - Last Recordings (1964) /1988, West Wind/[APE|tracks+.cue]<Jazz, Post-Bop, Free Improvisation>
@@ -716,35 +742,6 @@ Horace Tapscott Quintet - The Giant Is Awakened (1969) 2017, Solid Records [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57DC8A226F8EFD1DA6827BDA1AF13B72867A892C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236433   (554253) от 18.07.2018
-
-Tony Bennett - Life Is Beautiful (1975) Reissue, Remastered 2003 [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Is Beautiful
-02. All Mine
-03. Bridges
-04. Reflections(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F33CB977D1B90CED98D3012D2F0E3B5B6CCB6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

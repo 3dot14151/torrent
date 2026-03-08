@@ -1,3 +1,61 @@
+###  Публикация: 1379408   (840964) от 28.04.2020
+
+Ils - Discography 23 Releases (1997-2013) Distinct'ive Records, Botchit & Scarper [FLAC|Lossless|tracks+.cue, tracks] <Breakbeat, Breaks, Drum n Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Reprise) (02:10)
+ 02. Tiny Toy (05:42)
+ 03. Angels (05:26)
+ 04. Cherish (04:44)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Breakbeat/Breaks/Drum & BassПродолжительность: 16:55:55 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8084B30F345CEC9856833FD678C7378D920D0BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379437   (840748) от 28.04.2020
+
+Shalohim - The Ultra Spore (2020) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Psychill>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shalohim & Taktyle - Anderim (05:16)
+ 02. Shalohim - Markinson (04:40)
+ 03. Shalohim & Dubnotic - Metaflux (07:25)
+ 04. Shalohim - Paravara (06:24)Жанр: Psydub, PsychillПродолжительность: 00:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA7C7DF5A3CD5AB501C417791D7D94DFD857F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004053   (840308) от 05.04.2016
 
 Phil Von - Blind Ballet (2015) Ant-Zen [MP3|320 кб/с] <Ambient, Abstract>
@@ -683,64 +741,6 @@ VA - Serenity Sexy Lounge & Chill out Pearls Vol 4 (2016) [MP3|320 кб/с] <Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3012ECD9672DD6E821B49D1F5702AAF912388E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113654   (836716) от 12.03.2017
-
-VA - Dont Worry Be Sexy Vol.1: 20 Deep-House Flavors (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Stoner - Paradise Fantasy - Original Mix
-02. Robert Owner - Big One - Original Mix
-03. Chile Lavern - Milky Way - Original Mix
-04. Kay Christopher - Kalimba - Original Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730F2EE4767155349D5FA08349E66D55ACEFA4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113703   (836704) от 12.03.2017
-
-VA - Yoga Love 100 Ambient And Chillout Tracks (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sternenton – Moon Serenade (8:52)
-02. Yoga Love – Yoga Love 8 (Remember 2 Remember Version) (5:10)
-03. Daki 2000 – Nucleus (5:31)
-04. Monroe Days – A Better Time (5:28)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031AF4AB5465FF0C86C140E7AA2922C6991CE02F
 ```
 
 https://mybot314.ru/tekegram_catalog/

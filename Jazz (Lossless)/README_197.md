@@ -1,3 +1,32 @@
+###  Публикация: 1067496   (387924) от 29.10.2016
+
+Slide Hampton - Explosion! The Sound Of Slide Hampton (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Revival [02:27]
+ 02.Maria [02:24]
+ 03.Delilah [04:00]
+ 04.Begin The Beguine [02:34](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEDD18D8BB868A1688717DB0FAD31F3A22E062F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067489   (387923) от 29.10.2016
 
 Nat King Cole - Crazy Rhythm! Live 1947-1948 (1947-1948) 1991, Vintage Jazz Classics[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -717,35 +746,6 @@ Tommy Flanagan - Sea Changes (1997) Evidence Music[FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DF5EFD025F29E07DED9DD34F354CD520E0AA929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667331   (384730) от 08.10.2020
-
-VA - Jazz In Paris (2000 - 2001) 76 CD /Universal Music Paris/ [APE|FLAC|Lossless]<Jazz, Vocal Jazz, Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Michel de Villers et son Orchestre
-01. Topsy (3:15)
-02. Veal Isn't Good For Leony (3:22)
-03. Mes Freres (2:46)(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Swing, GypsyПродолжительность: 60:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85F026166798DCCA8AAD8BBE3D5E865D0C7239A
 ```
 
 https://mybot314.ru/tekegram_catalog/

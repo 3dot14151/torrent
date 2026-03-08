@@ -1,3 +1,61 @@
+###  Публикация: 1586799   (193256) от 29.10.2022
+
+Ярослав Евдокимов - Лучшие песни (2001) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Фантазер
+02. Колодец
+03. За Дунаем
+04. Вишневый сад(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA4279C2061ED48E2BB04226EA1073E641D674B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587126   (193221) от 29.10.2022
+
+PG Roxette (Per Gessle & Roxette) - Pop-Up Dynamo! (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Per Gessle Talks P-UD! - Album title (1:01)
+02. Per Gessle Talks P-UD! - Background #1 (0:50)
+03. Per Gessle Talks P-UD! - Background #2 (0:46)
+04. Per Gessle Talks P-UD! - Background #3 (0:44)(   Читать дальше...   )Жанр: Pop, Pop-Rock |Продолжительность: 00:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E1DCEEFDB8D173D0B15E057FB45C1550707E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657251   (193026) от 02.09.2023
 
 Supermax - Types Of Skin (1980) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
@@ -687,64 +745,6 @@ VA - 100 Greatest Summer Songs (2023) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BD69C97CE2A5D56E3E4DC3C870808B5122FA8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658285   (191492) от 07.09.2023
-
-Supermax - 5 Albums (1982 - 1992) Remastered, 2007, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So I
-02. Honkey Curt
-03. Smoke Is Up
-04. Reggaesizer(   Читать дальше...   )Жанр: Electronic, Pop, Soul, FunkПродолжительность: 05:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A92956086154F37A158B596B0D06BE7DDC380A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588526   (191410) от 05.11.2022
-
-Blue System - Backstreet Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. History
-02. Operator
-03. Backstreet Heaven
-04. You Are An Angel(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3FF47974EC6587E0C71875DD9BAFBEE545CA1DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

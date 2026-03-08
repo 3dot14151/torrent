@@ -1,32 +1,3 @@
-###  Публикация: 1213461   (767410) от 18.03.2018
-
-Psicofonia - A Rockear I (2011) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Momento De Rockear (Cry Wolf cover)
-02. Enferma Obsesiуn (Motley Crьe cover)
-03. Sigo Pensando En Ti (Danger Danger cover)
-04. El Precio (Twisted Siser cover)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373B260CF93EA73F9FF0563B9ABE5EE222937464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213700   (767408) от 18.03.2018
 
 Valborg - Crown of Sorrow (2010) [FLAC|Lossless|image + .cue] <Atmospheric Doom Black Metal>
@@ -750,6 +721,35 @@ Depeseblo - Nightmare Desolation (2017) [FLAC|Lossless|image + .cue] <Melodic De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00EF4A758378AE4C37F950918C09AE7449A35359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393875   (766415) от 02.07.2020
+
+Alarum - Circle’s End (2020) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sphere of Influence (02:41)
+ 02. Syzygy (04:48)
+ 03. Delta (03:15)
+ 04. Crystals (01:20)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E42697426352237F859333DD3C9B747A401AA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

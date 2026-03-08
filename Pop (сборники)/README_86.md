@@ -1,3 +1,32 @@
+###  Публикация: 1413409   (409662) от 03.10.2020
+
+VA - German Top 100 Single Charts 02.10.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 24kgoldn - Mood (feat. Iann Dior)
+02. Loredana & DeLara - Checka
+03. Internet money, Gunna & Don Toliver - Lemonade (feat. NAV)
+04. Bonez MC - NIEMALS UNTER 1000 (feat. Lx)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EFBC528CE69FCBA3D4E70FBBE39D2EDF34216B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252558   (409082) от 05.10.2018
 
 Eros Ramazzotti - Next Steps (2018) [MP3|320 Kbps] <Pop>
@@ -812,35 +841,6 @@ VA - Осенняя дискотека от Европа Плюс. Зарубе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16165FB5F178978C6A2388AB75360239255486B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712613   (403230) от 19.10.2013
-
-C.C. Catch - 25 Best Songs (2012) [MP3|256 кб/с]<Eurodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cause You Are Young 1986
-02. Heartbreak Hotel 1986-2
-03. Goog Guys Only Win In Movies 1987
-04. Backseat Of Your Cadillac 1988(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B405B225CD3DAB4204CD9CC638F845ECBF508A
 ```
 
 https://mybot314.ru/tekegram_catalog/

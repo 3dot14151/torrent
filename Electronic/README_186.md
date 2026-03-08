@@ -1,3 +1,61 @@
+###  Публикация: 1218911   (717518) от 12.04.2018
+
+Plu-Ton - Wings of Liberty (2018) OLD SQL Recordings [FLAC|Lossless|WEB-DL|tracks] <Psybient, Breaks, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dive (05:20)
+02. The Course Of The Flight (08:25)
+03. Harmony Of Silence (06:32)
+04. Gates of Babylon (06:30)(   Читать дальше...   )Жанр: Psybient, Breaks, DowntempoПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691D2873BA8FF884E0D596D4B04A6DC768BC4CDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285899   (717064) от 28.02.2019
+
+VA - Nitrous Oxide - Avalon (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nitrous Oxide – Atacama (Original Mix)
+02. Nitrous Oxide & Maria Nayler – The Beauty of the Night (Original Mix)
+03. Nitrous Oxide – Tsukuba (Original Mix)
+04. Nitrous Oxide – Infinity (Secret Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6211E45A6A2E87236A91ABC6A47AF2956B56ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285987   (716945) от 28.02.2019
 
 VA - Parlay - Winter Edition: Mixed by Sofa King (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
@@ -683,64 +741,6 @@ Weval - The Weight (2019) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Dub, Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25A15B381E71A32ADC8005F96B39FCAE789C346F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286280   (714927) от 01.03.2019
-
-Chris Wonderful - Music for Lovers, volume 1 (2013/2018) [FLAC|Lossless|image + .cue] <Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love You (Original Mix) (07:58)
-02. Siren (Original Mix) (07:48)
-03. Rain (Original Mix) (02:58)
-04. Crying Skies (Original Mix) (02:59)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBC65F933A75C7B098473F2EDD1DF07999BF430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286108   (714923) от 01.03.2019
-
-Gregory Esayan - My Guiding Star (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Chillout>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Silence (Intro Mix)
-02. Cradle (Extended Mix)
-03. Hive (Original Mix)
-04. One Look (Original Mix)(   Читать дальше...   )Жанр: Progressive House, Trance, ChilloutПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434DD6196961003E8D1E0D28BFC2DDD8C0727126
 ```
 
 https://mybot314.ru/tekegram_catalog/

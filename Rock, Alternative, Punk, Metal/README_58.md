@@ -1,32 +1,3 @@
-###  Публикация: 1616987   (1035566) от 05.03.2023
-
-Ольга Арефьева и Ковчег - Амона Фе (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночь в октябре [00:04:21]
-02. Аквалюди [00:04:19]
-03. Амона Фе [00:06:23]
-04. Бетельгейзе [00:03:19](   Читать дальше...   )Жанр: RockПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7C62570B84EE9F07FB114C8FAECCB0AAC83EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617166   (1035557) от 05.03.2023
 
 Temptress - SEE (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Doom, Stoner, Psych>
@@ -744,6 +715,35 @@ Wolves in Winter - The Calling Quiet (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludg
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53CCC245C108B4F032EF6944E6F1C1A883280DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617447   (1035056) от 07.03.2023
+
+Holur - Foul Utterings (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Foul Utterings (06:09)
+02 - Atop the Throne of Wickedness (04:12)
+03 - Arachnid (04:04)
+04 - Centipede Orgy Christ (04:31)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E081201E8117751DF869C98524FC3EFEA3DA0C92
 ```
 
 https://mybot314.ru/tekegram_catalog/

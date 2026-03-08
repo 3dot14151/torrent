@@ -1,3 +1,32 @@
+###  Публикация: 1601892   (1046252) от 03.01.2023
+
+Les Humphries Singers - The Best Of (2020) Rerecorded, OVC Media [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock, Gospel>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh! Happy Day (Rerecorded) [00:04:47]
+02. Guantanamera (Rerecorded) [00:03:16]
+03. Mexico (Rerecorded) [00:04:08]
+04. Palma Majorca (Rerecorded) [00:04:56](   Читать дальше...   )Жанр: Soft Rock, Pop Rock, GospelПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D84E31D0F32970F2D4D2D8A9C146D823D37E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602631   (1046023) от 06.01.2023
 
 Bee Gees - Mr. NATURAL (1974) SHM-CD, Japanese Edition, Reissue, 2022, Capitol Records [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad>
@@ -719,35 +748,6 @@ Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B45ECA7C353924415844AEA7303854EC579FFECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611661   (1040523) от 14.02.2023
-
-VA - I Singoli di Sanremo 2023 (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elodie - Due
- 02. Ultimo - Alba
- 03. Colapesce Di martino - Splash
- 04. Lazza - Cenere(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53CDE1F0B4B67E68B01CFD09C3DB45AB67DF307
 ```
 
 https://mybot314.ru/tekegram_catalog/

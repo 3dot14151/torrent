@@ -1,29 +1,3 @@
-###  Публикация: 1306779   (555404) от 06.06.2019
-
-Проекты - VideoHive - Butterfly Logo Opener 4K - 19556474 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Butterfly Logo Opener - это прекрасный способ продемонстрировать Ваш логотип компании или бренда, или создать небольшую но интересную и уникальную презентацию.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF482465B19514329C003B1C3B10BC6BEA57FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307378   (554966) от 09.06.2019
 
 Проекты - VideoHive - Matrix Monitors - 17174375 [AEP]
@@ -683,6 +657,32 @@ Romantic Pack - большой проект для вашего свадебно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA1460EA1F099A40C5B7E694A300181BCC1AFC4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046545   (551685) от 27.08.2016
+
+Проекты - VideoHive - Simple Big Typo Slides - 17285169 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450D45F1C9926DD368E27A6942464FE8F8889719
 ```
 
 https://mybot314.ru/tekegram_catalog/

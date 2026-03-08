@@ -1,3 +1,177 @@
+###  Публикация: 1328728   (359268) от 02.10.2019
+
+VA - Virus Attack: Psy Trance Set (2019) [MP3|320 Kbps] <Psychedelic Trance, Goa>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner State - Free Drop
+02. Talpa & Purple Hayes - Born This Way
+03. Blind-Ox - Captured Dreams Connected
+04. Coexist - Maze(   Читать дальше...   )Жанр: Psychedelic Trance, GoaПродолжительность: 04:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2A88A5541146E53E7E09AEA8AA33AA80035387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328716   (359254) от 02.10.2019
+
+VA - Amber Arcades: October Rock Compilation (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359254.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Atlas - Signal Of Hope
+002. Awakebutstillinbed - Interlude
+003. Earthless - Black Heaven
+004. Viagra Boys - Shrimp Shack(   Читать дальше...   )Жанр: RockПродолжительность: 10:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3112150C3F5D86875CF8436EF55AABF2CFF35FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577157   (359244) от 17.09.2022
+
+VA - Шансон 2020 Музыкальный хит-парад [часть.03] (2022) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тамара Кутидзе  - Докурю И Брошу (03:40) 2022
+02. Александр Айвазов  - Где ты (03:37) 2022
+03. Виталии Аксенов  - Разговор (04:32) 2022
+04. Евгений Путилов - Неприступная (03:55) 2022(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97AADEFEAA66CCD55267CCBE60AEEBF79F3EE2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256011   (359043) от 20.10.2018
+
+VA - German Top 100 Single Charts 22.10.2018 (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359043.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bonez MC & RAF Camora - 500 PS
+002. Bonez MC & RAF Camora - Kokain (feat. Gzuz)
+003. Bonez MC, RAF Camora - Nummer unterdrückt
+004. Dynoro & Gigi D'Agostino - In My Mind(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFD88C77389D1F0192CB59FEF92C9A5DB1A8407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255733   (359028) от 20.10.2018
+
+VA - Age Of Rebelion: Rock Revue (2018) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359028.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Genesis - In Hiding
+002. I, The Lion - Escape
+003. Leader Of Down - Paradise Turned Into Dust
+004. Beartooth - Manipulation(   Читать дальше...   )Жанр: RockПродолжительность: 10:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B41727C77D852DCDB1D9068F83686E15A0105C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951950   (358969) от 31.10.2015
+
+VA - Trance Traveling 70 (2015) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bolier & Natalie Peris - Forever And A Day (Extended Mix) (04:05)
+02. Somna & Jennifer Rene - Back To Life (Hazem Beltagui Remix) (04:12)
+03. Armin van Buuren feat. Rock Mafia - Hands To Heaven (Club Mix) (05:04)
+04. ClearSky - Waves (Original Mix) (04:24)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A311C9B207F6347FC24CF26FF633F713992144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256084   (358904) от 20.10.2018
 
 VA - ЕвроХит Топ 40 Europa Plus 19.10.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -579,180 +753,6 @@ VA - The Best World Ballads - 27 (2015) [MP3|320 кб/с]<Pop, Rock, Blues, R'n'
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:356666C7544F6027B82426D365DACC0BCBD18CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178189   (357857) от 27.10.2017
-
-VA - Для Тех, Кто Помнит! Русский Рок Vol.6 от Ovvod7 (2017) [MP3|320 Kbps] <Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ДДТ - Что такое осень 4:57
-02.  Кузьмин Владимир - Когда я стану другим 4:09
-03.  Альфа - Воробей 4:19
-04.  Воскресение - Воскресение 6:50(   Читать дальше...   )Жанр: РокПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B15447E7AEBBB905502208D9ED046CC94768DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951915   (357826) от 31.10.2015
-
-VA - Танцы до рассвета. Русский сборник от Хит FM (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357826.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Bahroma - Пока Пора
-002 Mot Feat. Виагра - Кислород (Dj Shtopor Remix)
-003 Jamala - Песня о дружбе
-004 Катя Чехова - Крылья (Dj Timur Giniyatov Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEE3B7FE7D725731BA9C549379A5B32558AAD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071524   (357348) от 11.11.2016
-
-VA - The Treasure Of Illumina: Vocal Trance (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance, Melodic, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357348.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stoneface & Terminal, Neev Kennedy - Lost (Radio Edit) 3:32
-002. Store N Forward & Elles De Graaf - Distant Hearts (Radio Edit) 4:16
-003. 4 Strings Vs Kaimo K & Sue Mclaren - The Treasure Of Illumina (Radio Edit) 3:23
-004. Audrey Gallagher & Reorder - Your Own Way (Radio Edit) 3:47(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Melodic, EnergyПродолжительность: 07:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A549B037D625A045793F1E627D6E9C481381A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255208   (357341) от 07.11.2010
-
-VA - Музыка нового дня (2006) Ридерз Дайджест, 3CD [MP3|320 kbps]<New age, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_357341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это музыка, которая используется фоном для медитаций, релаксаций и других практик, или под которую приятно засыпать. Она наполнена ненавязчивыми мелодиями, медленным успокаивающим ритмом, приятными обертонами, звуками природы, пением птиц, мурлыканьем котят - все это Музыка Нью-Эйдж. CD 1 - Музыкальные водопады; CD 2 - Лунный презент; CD 3 - Дух солнца01. Sun Spirit
-02. Matras & Names Remix VII
-03. Sherab Jamma
-04. Prelude(   Читать дальше...   )Жанр: New ageПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952086   (357280) от 31.10.2015
-
-VA - Дискотека Казанова Старые Песни По Новому vol.5 (2015) [MP3|320 кб/с]<Club, Dance, Hands Up, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandora - Don t You Know (Aleks Version 2015)
-02. Solid Base - Together (Sergey Zar Refresh)
-03. Blue Heart - Singin' I'm Happy (Martik C Rmx)
-04. Snap! - Rhythm Is A Dancer (Max R. Remix)(   Читать дальше...   )Жанр: Club, Dance, Hands Up, EurodanceПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE33DBA78D373CA45BBF0D4FCF88DC740DA9184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071814   (357245) от 11.11.2016
-
-VA - Beatport Trance Pack 11.11 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Emotional, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357245.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Markus Schulz - The Lost Oracle (Transmission 2016 Theme) 7:45
-002. Allen & Envy ft. Mark W & Michele C - Going Under (Extended Mix) 6:39
-003. Kaimo K - Rise & Smile (Original Mix) 7:58
-004. A.R.D.I. - Invictus (Original Mix) 7:02(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Emotional, HarmonicПродолжительность: 09:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE83C8E72F6437E1D8E5DF18ABC554C48BDFB790
 ```
 
 https://mybot314.ru/tekegram_catalog/

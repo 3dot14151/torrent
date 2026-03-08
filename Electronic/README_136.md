@@ -1,3 +1,61 @@
+###  Публикация: 1202547   (789542) от 30.01.2018
+
+VA - Dance Empire 11 (2018) [MP3|320 Kbps] <House, Progressive House, Vocal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Miguel Alcobia  -  Who Am I (Radio Edit)  3:31
+02.  Markii  -  100 (Radio Edit)  3:36
+03.  Dr. Beat  -  Much More Than That! (Radio Edit)  3:28
+04.  The Boogeyman  -  All Music To Me (Radio Edit)  2:50(   Читать дальше...   )Жанр: House, Progressive House, VocalПродолжительность: 02:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210083E6A6C6F84DA51E2233239B3806A9622CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202745   (789541) от 30.01.2018
+
+VA - Neostatics Sounds Best Of 2017 (2018) [MP3|320 Kbps] <Trance ,House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanya Bruch - September Meer (Original Mix)
+02. Voger - The Base Camp (Original Mix)
+03. Intoxic Joker - Mello Sunset (Original Mix)
+04. NYUSKA - Like This (Original Mix)(   Читать дальше...   )Жанр: Trance ,HouseПродолжительность: 01:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C60CD3CEB8B967B169FFB4C2BE77235EBD4352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202544   (789539) от 30.01.2018
 
 AeTopus - TotemTotum (2018) [MP3|320 Kbps] <Ambient, New Age>
@@ -687,64 +745,6 @@ The Winterhouse - Until Voices Wake Us (2017) DataObscura [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19E91EEF892311900BC1D5EC22489750D35AFBF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202889   (789103) от 31.01.2018
-
-VA - Cozy Chillout Times (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light in Color - Take Cover 05:27
-02. Georgette Gabel - Sin Moon 04:08
-03. Aaron Steve - Sir Tingeling 03:42
-04. Elias Harmon - Sonic Flow 05:02(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E6B5CE89EF5C77E20D8A8B1AC085CC2532124A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202890   (789100) от 31.01.2018
-
-Wintersilence - Slow Focus (2016) Musical Philosophy [FLAC|Lossless|tracks+.cue] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Focus (09:29)
-02. Snow Realm (07:14)
-03. Isolation (09:09)
-04. Winterzauber (03:44)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3288A703B6FECACAD381A05C976A13873DF96BA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

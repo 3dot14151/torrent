@@ -1,3 +1,32 @@
+###  Публикация: 849490   (283158) от 12.12.2014
+
+Ulf Wakenius - Vagabond (2012) [FLAC|Lossless]<Jazz, World Fusion, Contemporary Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vagabond [05:18]
+02. Message In A Bottle [06:16]
+03. Bretagne [05:01]
+04. Psalmen [04:36](   Читать дальше...   )Жанр: Jazz, World Fusion, Contemporary Jazz, Guitar JazzПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E44E2BD418947766A4446B9BCB3DE4E542988B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081542   (283123) от 10.12.2016
 
 Cedar Walton - Among Friends (1982) 1990, Bellaphon[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -716,35 +745,6 @@ CD1 - Letter To Evan:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C52E18C2C7944755EAC542654C8D7B83C26DC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336357   (280955) от 06.11.2019
-
-Anthony Wonsey Trio - Anthonyology (1995) [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inception (Tyner) - 5:37
-02. In the Blue of the Evening (D'Artega) - 5:09
-03. Faces of a Clown (Wonsey) - 6:05
-04. Temperance (Kelly) - 5:24(   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED66909FD9CBAE2744B4010981B1503C185D5CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

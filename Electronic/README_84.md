@@ -1,3 +1,61 @@
+###  Публикация: 1101289   (894816) от 07.02.2017
+
+VA - Last Night On Ibiza (20 Deep-House Experiencias) (2017) [MP3|320 Kbps] <Deep House, Funky House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deep Groovers - Start The Party (Deep Jeep Mix)  5:19
+02.  Robert Reston - I'm Sending You (Original Mix)  3:34
+03.  Second Floor - In Deep (Original Mix)  3:58
+04.  Exotic Twilight - Running (Original Mix)  3:04(   Читать дальше...   )Жанр: Deep House, Funky HouseПродолжительность: 01:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6286DD936DA11F4C965DB94CDD9DB0ED5509C33C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101300   (894804) от 07.02.2017
+
+VA - Deephouse From Tomorrow (2017) [MP3|320 Kbps] <Deep House, Funky House, Soulful>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Self Explanatory - Game Changer  6:53
+02.  Chillelektro - Berlengas  6:57
+03.  Azeotrop - Aftermath  5:57
+04.  Chillelektro - Eggum  6:42(   Читать дальше...   )Жанр: Deep House, Funky House, SoulfulПродолжительность: 01:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC9BD9A088FFDDA8B7E4BAFDFA21B322905E06B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101434   (894798) от 07.02.2017
 
 Fobee - Equilibrium (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -691,64 +749,6 @@ VA - Cafe Seaview Vol.2 (Perfect Beach Bar & Lounge Music) (2017) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CD6547524879AE826BB7D497F13EF878C89E3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102582   (891411) от 09.02.2017
-
-VA - The Chillout Choice (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Nothlich – Flexible Time (00:05:15)
- 02. Bad Shop Boys – Self for Real (00:03:44)
- 03. Mari Billa – Kids of the Moon (00:03:00)
- 04. Jan Duda – The Immigrant (00:05:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB8939563B1C4288573775868E949C7BF938434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102562   (891410) от 09.02.2017
-
-Kaskets (88 Ultra & Qreepz) - Waves Of Ashes (2017) [MP3|320 Kbps] <Electronic, Trip-Hop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Ghosts (feat. Sheng Moua)
-02. Eyes Like Stars
-03. World Decay
-04. All The Time (feat. I Am Snow Angel)(   Читать дальше...   )Жанр: Electronic, Trip-HopПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02539DE63E95693D12DEC4D76FD2C266611302C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

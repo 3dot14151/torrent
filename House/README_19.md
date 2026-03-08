@@ -1,3 +1,32 @@
+###  Публикация: 1417742   (787103) от 25.11.2021
+
+Michel Suhov - From Ghetto With Love (2015) [MP3|320 Kbps|image+.CUE,tracks] <Afro House, Funky House, Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michel Suhov - From Ghetto With Love (Continuous DJ Mix) (01:04:26)
+02. Milty Evans - So Very Happy (06:36)
+03. Simba - 5 Minutes With Beaumont (Le Babar Remix) (04:19)
+04. Furniture is Music - Furnitures Preselected Love (2011 Remastered) (05:20)(   Читать дальше...   )Жанр: Afro House, Funky House, Soulful HouseПродолжительность: 02:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FE51F6F3C844A937585CDA930FB1C619A89189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277248   (787030) от 19.01.2019
 
 VA - Dance Mix Vol.7 (2019) [MP3|320 Kbps] <House, Dance, Electro>
@@ -716,35 +745,6 @@ VA - Age Of Love 10 Years (2018) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAC174DAA67E9E1EEC23620D7D5E5CC75A9DF3AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203967   (785392) от 04.02.2018
-
-VA - Winter Sessions 2018 (Mixed by Milk & Sugar) (2018) [MP3|320 Kbps] <House, Afro House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mr Raoul K & Sona Diabate  -  Senekela (Raoul K & Laolu Version)  7:24
-02.  Keyano  -  Dan Dale (Original Mix)  7:09
-03.  Crazy White Boy feat. BehrEllips  -  The Forgotten People (Original Mix)  5:30
-04.  Dayne S  -  Sensor (Original Mix)  6:42(   Читать дальше...   )Жанр: House, Afro House, Deep HouseПродолжительность: 05:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4BE8CCCBD42A01D2E9FBC5F5F4FF72E941F902
 ```
 
 https://mybot314.ru/tekegram_catalog/

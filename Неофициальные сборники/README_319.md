@@ -1,3 +1,183 @@
+###  Публикация: 1230258   (617198) от 11.06.2018
+
+VA - Popular Superstar (2018) [MP3|320 Kbps] <Pop, Dance, RnB, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617198.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maître Gims, Super Sako - Mi Gna
+002. Alvaro Soler - La Cintura
+003. Dua Lipa - IDGAF
+004. Bazzi - Star(   Читать дальше...   )Жанр: Pop, Dance, RnB, RapПродолжительность: 11:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63F3969F97F1827D158112B7DB6A0ED939A34A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230256   (617196) от 11.06.2018
+
+VA - Oriental Blues Vol.02 (2018) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617196.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chuck E. Weiss - Devil With Blue Suede Shoes
+002. Blues Beatles - Eleanor Rigby
+003. Beth Garner - Backroads Freddie
+004. The Buzzhounds - Cinderella Needs New Shoes(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 09:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB667955B04B0A734BD8F18B9CFFF18F7AEB127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230265   (617086) от 11.06.2018
+
+Janis Joplin - Greatest Hits (2018) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry Baby
+02. Summertime
+03. Move Over
+04. Coo Coo(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F690E55FAE28CB6BC6B172B9F97042F5D360A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523567   (617020) от 16.07.2012
+
+VA - Жаркий Хит-Парад MTV (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Аксиома - Новый Год В Июле
+002. Neon Hitch - Love U Betta
+003. Горячий Шоколад - Ты Обними
+004. Gotye feat. Kimbra - Somebody That I Used to Know
+005. Влад Соколовский - Ливни
+006. JLS - Proud
+007. Кэтрин Кэт - Наше Лето
+008. Savage - Dont Cry Tonight 2012 (Alexandra Damiani Radio Mix)
+009. Алена Винницкая - Я Жду
+010. Mishelle feat. Randi - It Feels So Good (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F4629A99FF959D521DC8DEC88C154F3EE4DC60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295810   (616991) от 14.04.2019
+
+VA - Record Super Chart 582 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Rag'n'Bone Man - Giant (3:47)
+02. Gaullin - Moonlight (2:53)
+03. Filatov & Karas - Au Au (2:54)
+04. Denis First Reznikov Bright Sparks - Shameless (2:46)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DB0748B9907EEB4184EA583D3C4E18CFCD8DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295819   (616919) от 14.04.2019
+
+VA - не Громкие новинки недели 11 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aletov - До Луны (3:05)
+02. ALON - Небо (2:19)
+03. Appledream - Баленсиага (3:25)
+04. Arsenium & Mianna - Я Лечу Над Танцполом (3:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD0F1DDAA3D75ECCEB6830A07CDE211F1E21629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469832   (616904) от 14.04.2019
 
 VA - Seashore Desire #24 (20.03.2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance, Progressive Trance, Trance>
@@ -610,180 +790,6 @@ VA - Лучшие хитовые треки 2016 - Drum And Bass №1 (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D18D00F04D8A771654CEEAA7D8EA987C5F241DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295993   (615241) от 15.04.2019
-
-VA - Yabba Funk: Soul Full Radio (2019) [MP3|320 Kbps] <Funk Soul, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coolooloosh - Always
-02. The Allergies - Run It Back
-03. Funky Destination - Let's Make This Party Jumpin
-04. Cissy Street - Yemanja(   Читать дальше...   )Жанр: Funk Soul, Funky HouseПродолжительность: 05:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C53BA9BD08B28719358F2CD4FDCDB0732CCBAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296115   (615238) от 15.04.2019
-
-VA - German Top 50 Party Schlager Charts 15.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Heute Nacht für immer
-04. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532ADFAD8A3165D9E5994C94E8F71C898B99E2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295910   (615236) от 15.04.2019
-
-VA - Options Remake Of Tracks April -A- (2019) [MP3|320 Kbps] <Tropical, Progressive, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Serrano - Hit Me Up (Arno Stolz Remix)
-02. Downgrooves & Chris Sterio - Sublimation
-03. Farius - Eleventh Hour (Original Mix)
-04. Blank & Jones - What You Won't Do For Love(   Читать дальше...   )Жанр: Tropical, Progressive, Future HouseПродолжительность: 06:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0883D0D5BAFA5104095F332A1B190F904B97E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295992   (615232) от 15.04.2019
-
-VA - Girls Night Party (2019) [MP3|320 Kbps] <Club, Dance, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615232.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joachim Garraud - Champions
-002. 98 Degrees - Girls Night Out
-003. Erwin Steijlen - Just Dance
-004. Johnny Karlsson - Dirty Game(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 10:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33096A66543E2C2CC14AE9A290F84087BC702700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296118   (615230) от 15.04.2019
-
-VA - Holograms Of Festival DJ Positions (2019) [MP3|320 Kbps] <Dancehall, Reggaeton, Dubstep, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615230.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A Boogie Wit Da Hoodie ft Offset & Tyga - Startender (Spryte Remix) (Dirty Short Edit)
-002. Marshmello & Bastille - Happier (West Coast Massive Remix) (Clean Extended)
-003. The Chainsmokers - You Owe Me (Nonsens Remix) (Clean Short Edit)
-004. Substance UK - Samurai (Slick Thieves Remix) (Dirty Radio Edit)(   Читать дальше...   )Жанр: Dancehall, Reggaeton, Dubstep, ElectroПродолжительность: 06:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813E5E304EF34C3E178DE62F3029EF090A843F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295994   (615141) от 15.04.2019
-
-VA - Popular European Mix (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615141.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anthony Cormican - Falling Down
-002. Chinaski - Podleham
-003. Cyber Monday - To Have And Have Not
-004. Decadez - Fun In The Sun(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D85DD23F995C311770585732E049A014D3D4B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

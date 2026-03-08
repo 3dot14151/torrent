@@ -1,3 +1,32 @@
+###  Публикация: 1358751   (967425) от 09.02.2020
+
+Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little God                                                            [04:59]
+02. Strangers with Nothing to Lose                                        [04:48]
+03. Lonely Man                                                            [03:36]
+04. Pure Child                                                            [04:02](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1837C9DF366459EE42FD242A330DC0DBED63837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358708   (967226) от 09.02.2020
 
 Green Day - Father of All Motherfuckers (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -722,35 +751,6 @@ Soccer Mommy - Color Theory (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD7B47D647489B1AE501860C63F65F9A24600AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362786   (946573) от 25.02.2020
-
-The Toms - Life Raft (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish I Went to Princeton (03:57)
-02. Life Raft (04:06)
-03. Accident (03:15)
-04. Another Happy Ending (03:32)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83DCFF61CA24A929DE1797CA3BF121C3CBEC5310
 ```
 
 https://mybot314.ru/tekegram_catalog/

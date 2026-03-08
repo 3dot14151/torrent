@@ -1,32 +1,3 @@
-###  Публикация: 1385230   (800201) от 23.05.2020
-
-Babooshka - Православный Аватар (2020) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800201.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Отмороженные во Христе
-2. How Do You Do
-3. Вата
-4. Душевные терзания(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A8F6CB2697549C6465BA036C5635E71C9F68BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385093   (800195) от 23.05.2020
 
 Testament - Titans Of Creation (2020) 2CD, Japanese, Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
@@ -746,6 +717,35 @@ Outloud - Virtual Hero Society (2018) Japan [FLAC|Lossless|image + .cue] <Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C091F638E7E5919EC1C79E011C4C6BB4F4AA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273565   (799844) от 02.01.2019
+
+Enemy Inside - Phoenix (2018) Japan [FLAC|Lossless|image + .cue] <Dark Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Away
+02. Bleeding Out
+03. Phoenix
+04. Lullaby(   Читать дальше...   )Жанр: Dark Modern MetalПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D998D4A184128E674822B0CFE40363DE748B21
 ```
 
 https://mybot314.ru/tekegram_catalog/

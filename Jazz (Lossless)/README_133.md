@@ -1,3 +1,32 @@
+###  Публикация: 1038725   (605151) от 29.07.2016
+
+Blue Mitchell - A Sure Thing (1962) 1994, OJC[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.West Coast Blues [05:41]
+ 02.I Can't Get Started With You [03:49]
+ 03.Blue On Blue [04:49]
+ 04.A Sure Thing [04:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F185124F33CEDA70C3028D220E26242C0769A790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038814   (605063) от 29.07.2016
 
 Johnny Hodges Quintet - Buenos Aires Blues & The Eleventh Hour (1962, 1963) 2009, Lone Hill Jazz[FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82C4EA76AEA7707F9EC1CD59F93B83A3192F5401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148190   (603945) от 06.07.2017
-
-The Pharaohs - Awakening (1971) 1996, Scarab Records, Luv 'N Haight, Ubiquity Recordins  -  LHCD 025 [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damballa (8:03)
-02. Ibo (3:51)
-03. Tracks of My Tears (4:08)
-04. Black Enuff (2:57)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7C3CFB8EF04C5E3BCC343F5771FF72C6E69F23
 ```
 
 https://mybot314.ru/tekegram_catalog/

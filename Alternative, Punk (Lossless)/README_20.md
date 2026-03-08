@@ -1,3 +1,32 @@
+###  Публикация: 1285865   (716821) от 28.02.2019
+
+Adia Victoria - Silences (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean (01:52)
+02. Bring Her Back (03:15)
+03. Pacolet Road (03:08)
+04. The City (03:18)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21779E2B430BA0BB99E41894E46A356E87E9C52B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129952   (716538) от 01.05.2017
 
 Thurston Moore - Rock N Roll Consciousness (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative Rock>
@@ -717,35 +746,6 @@ Balthazar - Fever (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F0492B09327BDAA8A98E9E1B54637104E0C2380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026025   (705954) от 14.06.2016
-
-Everlast - Songs Of The Ungrateful Living (2011) [FLAC|Lossless|tracks + .cue] <Alternative, Blues, Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long At All (2:57)
-02. Gone for Good (3:13)
-03. I Get By (3:39)
-04. Little Miss America (3:59)(   Читать дальше...   )Жанр: Alternative, Blues, Hip-HopПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E91D3B80ECACDFC14470B3AAE92D8DA7C907590
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1226761   (653864) от 22.05.2018
+
+Steve Angello - HUMAN (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Midtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rejoice (feat. T.D. Jakes) (07:35)
+02. Breaking Kind (feat. Paul Meany) (03:21)
+03. Flashing Lights (feat. Highly Sedated) (03:34)
+04. Glory (03:35)(   Читать дальше...   )Жанр: Electronic, House, MidtempoПродолжительность: 01:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C182E49F3A491268DE332259EF16DB1324B8BF94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226671   (653781) от 22.05.2018
+
+VA - A State Of Trance Top 20 - May (Selected By Armin van Buuren) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren -Armin Van Buuren - Therapy (feat James Newman - extended Club mix)
+02. Gareth Emery -Long Way Home (Ashley Wallbridge Extended Remix)
+03. Above & Beyond  & Justine Suissa -Cold Feet (Extended Mix)
+04. ALPHA 9 & Spencer Brown -No Going Back (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417E6698E0FCE93BCDAB4AC7DEAE567AE9171268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226769   (653688) от 22.05.2018
 
 VA - The Power of Dubstep 2018 Vol.2 (2018) [MP3|320 Kbps] <Dubstep, Dirty Dubstep, Trap, Grime>
@@ -693,64 +751,6 @@ Analogue-X - Imaginary (2019) [MP3|320 Kbps] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE2852843DA0C085D44184DA11D8D6DFE27BA89D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141234   (650560) от 10.06.2017
-
-VA - Chill Friday (2017) [MP3|320 Kbps] <Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Levantis - Crimson Horizon
-02. Power Shui - Scent of Water
-03. Levantis - Daydreams
-04. Levantis - Untamed Energy(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978E96B780CCA9E3031A7E95A0798CCAEC31D67B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141297   (650555) от 10.06.2017
-
-VA - Pride Jams 2017 (unmixed tracks) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony Moran - When The Beat Stops (Feat The Abbey - Victor Dinaire & Bissen - Pride Edit) 04:51
-02. Toy Armada - Stand By Me (Original - Pride Edit) 03:40
-03. Joe Moda - Pout (Push Your Lips Out) (Original - Pride Edit) 03:25
-04. Brian Justin Crum - Show Me Love (Feat Toy Armada - Pride Edit) 03:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A2E0764C71108C8297C5BE4A8D903BB5F5D9B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

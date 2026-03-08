@@ -1,3 +1,32 @@
+###  Публикация: 1235408   (560456) от 11.07.2018
+
+Keith Jarrett, Gary Peacock, Jack DeJohnette - After The Fall (1998) 2CD, 2018, ECM Records [FLAC|Lossless|image + .cue] <Contemporary Jazz, Post Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560456.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Masquerade Is Over [15:50]
+02. Scrapple From The Apple [8:47]
+03. Old Folks [9:23](   Читать дальше...   )Жанр: Contemporary Jazz, Post BopПродолжительность: 01:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC9C7D01626EA15CD95025F4F8BEF6BB8D5DF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153288   (560207) от 26.07.2017
 
 Vladimir Tolkachev (Владимир Толкачев) Big Band & John Downes (2010) Ermatell Records [APE|Lossless|image + .cue] <Vocal Jazz, Big Band>
@@ -715,32 +744,6 @@ Kohsuke Mine - Out Of Chaos (1974) Remaster, 2015, Universal[FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11A37AE4DE920377613EC35C7B7A6AC18EA9F951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045863   (558030) от 24.08.2016
-
-VA - Bossa Nova moods: The Complete Collection (1999) 2CD [WavPack|Lossless|image + .cue] <Latin Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Latin Jazz, Bossa NovaПродолжительность: 01:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C384C16ABC89E18E5404855A74D568837530E24
 ```
 
 https://mybot314.ru/tekegram_catalog/

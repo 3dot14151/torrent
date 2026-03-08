@@ -1,3 +1,174 @@
+###  Публикация: 357410   (587903) от 30.06.2011
+
+VA - Авторадио 90-х vs Дискотека Бездна #900 50/50 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F58A4D9EA1BB651FD0C1ADFD14DB7DAA9E9402D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918177   (587877) от 14.07.2015
+
+VA - Лето в кайф. Часть 6 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587877.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Плед - Настроение
+002. Don Omar Feat. Natti Natasha - Perdido En Tus Ojos
+003. Алла Пугачёва - Война
+004. Chris Parker - Robot Romantic Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1648E2387CC859D48309D5DDEE91E28556C0950F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300600   (587837) от 08.05.2019
+
+VA - Громкие новинки Мая Vol.1 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587837.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Paul Van Dyk - Shine Ibiza Anthem 2019 (7:12)
+2.Manizha - I Am Who I Am (5:03)
+3.Denis Rublev & Anthony El Mejor - Ночное Рандеву (4:54)
+4.Порнофильмы - Ритуалы (4:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDC9795D8B9529825F88A1F658449D45DF6039C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552045   (587704) от 20.05.2022
+
+Fresh Fox - Hear My Heartbeat (2020) [MP3|320 Kbps] <Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Stop The Night (4:08)
+02. Heartbeat (4:14)
+03. There Was So Much Love (4:08)
+04. Hearts On Fire (3:53)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753EDA1437D574CB8BA92747FAC88629797D9AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552049   (587700) от 20.05.2022
+
+Владимир Ткаченко и Виктор Молчанов - Double Fantasy (2008) [MP3|320 Kbps] <Rock, Acoustic>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Buy Me Love (4:57)
+02. All You Need Is Love (3:34)
+03. In My Life (2:39)
+04. The Night Before (2:39)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56086224A07418ECDEA39741123E37F022B4632E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918142   (587693) от 14.07.2015
+
+VA - Союз летних хитов на Европа Плюс. Часть 5 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587693.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Серебро - Kiss
+002. Alessia - Por Favor
+003. Soprano Турецкого И Александр Ревва - На Лету Лето
+004. Ella Henderson - Pieces(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C9D8F10567CEEF4D6FA451ADCA2DD09EBD4643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552046   (587675) от 20.05.2022
 
 Julian Anderson & Igor Presnyakov - Good Times (Happy Guitar Instrumentals, Vol. 1) (2010) [MP3|320 Kbps] <Instrumental, Guitar>
@@ -571,180 +742,6 @@ VA - Music News vol.189 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA6D2481AF1C030667AD5E85B9B0A4A217278AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552259   (586688) от 21.05.2022
-
-VA - Laidback Acoustic (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586688.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Laura Zocca - I Want You Back (2:46)
-002. The Mayries - I Love The Way You Love Me (3:23)
-003. Laurence O’Brien - There She Goes - Acoustic (2:55)
-004. Music Travel Love - Let Her Go (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 06:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE92482DC2899349036705357F8FF4C00317BC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552202   (586681) от 21.05.2022
-
-Aria - The Best Of Aria (2019) [MP3|320 Kbps] <Classical, Classical Crossover>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ebben (4:43)
-02. Un Bel Di (5:15)
-03. Secret Tear (7:21)
-04. Ave Maria (4:26)(   Читать дальше...   )Жанр: Classical, Classical CrossoverПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03CB58F2FC8416ECD8BEA567C2A23225A72388B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551850   (586678) от 21.05.2022
-
-VA - I Prefer Rock (2022) [MP3|320 Kbps] <Rock, Alternative, Indie>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярные песни текущего года и хиты весеннего сезона, композиции мастеров rock и хард рок музыки а так же недавно обозначившихся новичков в жанре alternative и rock indie – все это вы найдете в очередном разно жанровом микс-сборнике "I Prefer Rock".001. 64 Nudos - Desde Las Cloacas
-002. Lazuli - L'homme Volant
-003. Maroon 5 - Convince Me Otherwise
-004. Leafblade - The Goddess(   Читать дальше...   )Жанр: Rock, Alternative, IndieПродолжительность: 08:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917EF626C41CD85A6792EA9F0689216BE477530D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918390   (586675) от 15.07.2015
-
-VA - 100 Best Rock Ballads (2015) [MP3|256 кб/с]<Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Colours Red - Beautiful Day (Album Version)
-02. Saxon - Song for Emma (2010 - Remaster)
-03. Kingdom Come - Friends
-04. ZZ Top - Blue Jean Blues (Remastered Album Version)(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 07:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDA89BB03F123182FB9E42F1751C8091E249E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551918   (586646) от 21.05.2022
-
-VA - Urban Glow: May Release Trance Set (2022) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Вашему вниманию новую очередную майскую подборку отличной популярной электронной музыки в стиле Trance, которую только удалось найти на самых востребованных музыкальных площадках европы. Вас ждет целых сто двадцать качественных композиций для позитивного настроения.001. Sergo Bordo - Bright Lights
-002. Snydex - Ambition
-003. Rex Mundi - Nothing At All
-004. Kym Ayres - More & More(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0622455F64770CA2111AC0476688CDD98516BFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040576   (586549) от 05.08.2016
-
-VA - Futuretrance (2016) [MP3|320 Kbps] <Trance, Future Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicologik -  Lion from the North 5:47
-02. E&G -  Leamus 5:48
-03. Grant Saxena -  Backblast 6:33
-04. DJ Bismark & SDG -  Infinity (The Stars Remix) 5:47(   Читать дальше...   )Жанр: Trance, Future Trance, ProgressiveПродолжительность: 04:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D233D835FC1641D9E87F95BACD84CEFD7E2A5167
 ```
 
 https://mybot314.ru/tekegram_catalog/

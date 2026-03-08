@@ -1,3 +1,32 @@
+###  Публикация: 1697652   (118728) от 07.02.2024
+
+Alternative Jazz Lounge, Everyday Jazz Academy - Aperitif Jazz Delights Smooth Sounds for Cocktail Hour (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aperitif Jazz (2:47)
+02. Midnight Celebration (3:26)
+03. Easy Comfort (3:17)
+04. Time for Lovers (3:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D691F3EB2FE192D4811AF68297AB10131997F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698229   (118554) от 08.02.2024
 
 Roland Hanna - Perugia (1974) 1987, Freedom [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Barry Harris - At The Jazz Workshop (1960) 2006, Riverside [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08867DE1CC186167DECA0B7F11BD60E7F73B5275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699629   (117549) от 14.02.2024
-
-Donald Byrd Sextet With Yusef Lateef & Barry Harris - Complete Recordings (1955) 2006, Gambit Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues [6:13]
-02. Tortion Level [6:26]
-03. Woody 'n You [7:32]
-04. Dancing in the Dark [7:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8453562763BE536CAD4E9D9B5EA3A7F65E00D96
 ```
 
 https://mybot314.ru/tekegram_catalog/

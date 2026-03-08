@@ -1,32 +1,3 @@
-###  Публикация: 1313976   (522324) от 11.07.2019
-
-The Kills - No Wow (2005) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Wow/Telephone Radio Germany (4:48)
- 02. Love Is A Deserter (3:49)
- 03. Dead Road 7 (3:23)
- 04. The Good Ones (3:30)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E56D95B3B7DA96B26D541175FD620E6C29BC5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313903   (522311) от 11.07.2019
 
 VA - Вечное Лето (2004) [FLAC|Lossless|tracks] <Rock, Alternative Rock>
@@ -751,6 +722,37 @@ Strydegor - In The Shadow Of Remembrance (2012) [FLAC|Lossless]<Melodic Death Me
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533824   (521681) от 12.08.2012
+
+Show Me A Dinosaur - Evolvent EP (2011) [MP3|320 кб/с]<post-rock, instrumental, post-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still First In Space
+02. Gagarin
+03. Is This Really Happening?!
+04. Petropavlovsk-Kamchatsky
+05. You Can't Find This Place On Google Maps
+06. Lift Up Your TelescopesЖанр: post-rock, instrumental, post-metalПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D543747C9A796ED7610223ABEC3D01D18692E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

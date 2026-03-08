@@ -1,3 +1,32 @@
+###  Публикация: 1093856   (932372) от 16.01.2017
+
+Louis Armstrong - La Vie En Rose (1930-1950) 1995, Success[APE|Lossless|tracks + .cue] <New Orleans Jazz, Dixieland, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.La Vie En Rose [03:50]
+ 02.Jeepers Creepers [04:42]
+ 03.Memories Of You [03:09]
+ 04.Ain't Misbehavin' [03:03](   Читать дальше...   )Жанр: New Orleans Jazz, Dixieland, Vocal JazzПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22010648A70C81106F5510C698921E8E24767326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365158   (932341) от 06.03.2020
 
 Charlie Barnet - Classic Jazz Archive 1939 - 1945 (2004) 2CD, Membran Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -713,35 +742,6 @@ Caro Emerald - Deleted Scenes From The Cutting Room Floor: Acoustic Sessions (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95D1268D936F4AA4483F63EB1A2C722AAC372D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986898   (927992) от 16.02.2016
-
-Perico Sambeat - Javier Vercher Quartet: Infinita (2007) 2009, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Infinita [07:05]
- 02.Puerto Principe [06:35]
- 03.Pacifico [05:47]
- 04.Yoruba [06:04](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511733468CB1CE230578CAEF03AB11C736895E98
 ```
 
 https://mybot314.ru/tekegram_catalog/

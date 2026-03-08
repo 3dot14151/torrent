@@ -1,3 +1,32 @@
+###  Публикация: 1156913   (526455) от 09.08.2017
+
+VA - Vibes Del Mar (50 Progressive House Tunes) (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcelos Pi, Swooney - Live (Alex Greed Remix)
+02. Max Lean - Dreamer (PROMI5E Remix)
+03. POINT BLVNK, TAAMY - Full Smash (Original Mix)
+04. Mark Bale, Lost Identity - Get Ready (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27B1228CA3C9322A8B0C60834CA5990DE2E8ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156962   (526444) от 09.08.2017
 
 VA - Global Player Saint Tropez 2017, Vol.1 (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -722,35 +751,6 @@ VA - Future House (2019) [MP3|320 Kbps] <House, Progressive House, FutureHouse, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7FA1DAFB3B7EB77C4DCC31F83A777824FFE608F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315827   (510978) от 22.07.2019
-
-VA - Like A Summer Day, Vol. 3 (2019) [MP3|320 Kbps] <House, Deep House, Indie Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510978.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Walter N. – Dubai Beach (05:02)
-2. Marco Malinverno – Heart Breaker (05:57)
-3. Living Large – Lacetti (04:44)
-4. Junior D – Gold Lounge (05:15)(   Читать дальше...   )Жанр: House, Deep House, Indie DanceПродолжительность: 05:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6659880C5EA2A6780AFB8DC0D47EFBDDFF6809
 ```
 
 https://mybot314.ru/tekegram_catalog/

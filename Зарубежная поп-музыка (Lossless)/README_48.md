@@ -1,3 +1,32 @@
+###  Публикация: 1049277   (544785) от 04.09.2016
+
+Mariah Carey - Music Box (1993) [FLAC|Lossless|image + .cue] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544785.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Dreamlover 3:53
+2 Hero 4:19
+3 Anytime You Need A Friend 4:26
+4 Music Box 4:57(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C79618A0E139ED2471D2399240F4A9F3AD612DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238862   (544606) от 01.08.2018
 
 VA - Supervara (2018) 2CD [FLAC|Lossless|image + .cue] <Dance, Synth-Pop>
@@ -718,41 +747,6 @@ Hanne Sorvaag - Cover Me (2010) [FLAC|image + .cue]<Pop / Soft Rock / Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE5EBCADDBA0F81C673D3C42E6FD1FF26B8C6C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532562   (536430) от 08.08.2012
-
-VA - The Late '50s - The Top 10 Collection (1998) 4CD [FLAC|Lossless]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fats Domino - I'm In Love Again [02:03]
-02. Ricky Nelson - Lonesome Town [02:16]
-03. Chuck Berry - Johnny B. Goode [02:42]
-04. Georgia Gibbs - Dance With Me, Henry [02:20]
-05. Teresa Brewer With The Dick Jacobs Orchestra - A Tear Fell [02:38]
-06. Sarah Vaughan - Broken-Hearted Melody [02:25]
-07. Gale Storm - Ivory Tower [02:46]
-08. The McGuire Sisters - Sugartime [02:34]
-09. Patti Page - Allegheny Moon [02:54]
-10. The Chordettes - Lollipop [02:12](   Читать дальше...   )Жанр: Pop, Rock, Retro, OldesФормат: 4CD BoxSetПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

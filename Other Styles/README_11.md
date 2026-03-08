@@ -1,3 +1,32 @@
+###  Публикация: 1356324   (979122) от 30.01.2020
+
+Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bends (01:36)
+02. Voyage to the Bottom of the C (Main Title) (02:43)
+03. Norah's Theme (02:23)
+04. Sprung a Leak (01:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5D4132949BBD681E9379AD1E1C6691FA635349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356325   (979110) от 30.01.2020
 
 Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -728,35 +757,6 @@ Jean Michel Jarre - The Concerts In China (1982) 2CD, Remastered, 2014, Sony Mus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B84852C41120785BCC4F0540F28254A04160C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357436   (974339) от 03.02.2020
-
-VA - Mystic Spirits Vol. 2, 2CD  (2000) [FLAC|Lossless|image + .cue] <Ambient, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974339.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-1 –Magic Voices Australia 3:22
-2-2 –Yanni Adagio In C Minor 3:50
-2-3 –Elysia One In A Million Dreams 3:56
-2-4 –Mike Oldfield To France 4:42(   Читать дальше...   )Жанр: Ambient, FolkПродолжительность: 02:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B64E2AC6234555751FCD9B19D90194E8ED42018
 ```
 
 https://mybot314.ru/tekegram_catalog/

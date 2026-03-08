@@ -1,3 +1,61 @@
+###  Публикация: 1035976   (622817) от 19.07.2016
+
+VA - A Place to Chill (2016) [MP3|320 Kbps] <Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillelektro - Poel (6:50)
+02. La Forge - Kiss the Cook (4:20)
+03. Solanos - Night Fishermen (5:36)
+04. Vincent Vegas - I Don't Miss It (4:53)(   Читать дальше...   )Производство: Ibiza Lounge RecordsЖанр: Lounge, Chill OutПродолжительность: 02:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6604D3A93B58F3C7BA1E66A5094BA9C261943326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036024   (622748) от 19.07.2016
+
+VA - Melodic Progressive House Vol. 06 (2016) [MP3|320 Kbps] <House, Melodic House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gregory Esayan -  Make a Wish (Original Mix) 7:33
+02. Blugazer -  Ethereal Concepts (Shingo Nakamura Remix) 5:52
+03. BXT -  White Lynx (Original Mix) 6:10
+04. LavKastor -  E3 (Terry Da Libra Remix) 6:56(   Читать дальше...   )Жанр: House, Melodic House, Progressive HouseПродолжительность: 02:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E72DF714CDA3AB6BFE51C0B6C15B9D36A57541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229775   (622717) от 08.06.2018
 
 VA - Markus Schulz - Global DJ Broadcast - World Tour Hawai (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
@@ -691,64 +749,6 @@ VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD440D247F42CBA6639FB3D3C018130BC99DD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229930   (620969) от 09.06.2018
-
-VA - Trance Runner - Episode Seven (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Off - Sunset (Radio Cut)
-02. Steve Bengaln - Broken Heart Phase 2 (Radio Cut)
-03. Inglide - Let Me Love You (Radio Cut)
-04. George Harrold - Ayuhuasca (Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71CE6C50A3EE7D627B81C526D5BFB802D5D6561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229950   (620892) от 09.06.2018
-
-Chicane - The Place You Can't Remember, The Place You Can't Forget (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running to the Sea
-02. Gorecki
-03. Serendipity
-04. A Love That’s Hard to Find(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8420A8AE022A2FB2E1E8EDFA2A8AEAFCE43FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

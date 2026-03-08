@@ -1,3 +1,38 @@
+###  Публикация: 491773   (246513) от 04.05.2012
+
+VA - Весенняя Вечеринка Non-Stop (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246513.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Елена Лордес - Ангелы (3:57)
+2. Лолита Gold Feat. Юля Grand - Этим Летом (3:06)
+3. Шима - Океан (3:22)
+4. Женя Юдина Feat. Pawbeat - Небо Это Я (4:10)
+5. Вельвеt - Нанолюбовь (LaTrack mix) (4:15)
+6. Лера Массква - Про тебя (3:18)
+7. V2G Feat. Женя Юдина - На Осколках Планет (2:51)
+8. Валерий Меладзе - Потерян И Не Найден (4:02)
+9. Тимати Feat. Аида – Fantasy (3:02)
+10. Ольга Плотникова - Лето (3:30)2012Жанр: PopПродолжительность: 06:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DD2B12862588BFFCF4316C6941E183B8DDCB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491314   (246335) от 03.05.2012
 
 VA - Сказочный Мир Русского Радио (2012) [MP3|256 кб/с]<Pop>
@@ -722,35 +757,6 @@ VA - German Top 100 Single Charts 07.04.2023 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B13C006B9EE00CAB6956CBBB2CB440E236044E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108458   (242023) от 25.02.2017
-
-VA - German Top 40 DBC Deutsche Black Charts 24.02.(2017) [MP3|192-320 Kbps] <Hip-Hop, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242023.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Brown feat. Usher & Gucci Mane - Party 5:02
-002. Missy Elliot Ft. Lamb - I'm Better 3:33
-003. Migos Ft. Lil Uzi Vert - Bad And Boujee 5:35
-004. Busta Rhymes Ft. Swizz Beatz - Aaahhhh!!! 2:37(   Читать дальше...   )Жанр: Hip-Hop, R&BПродолжительность: 02:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B4F41DEA9455A6AC2D7E02E8910FDED0763936
 ```
 
 https://mybot314.ru/tekegram_catalog/

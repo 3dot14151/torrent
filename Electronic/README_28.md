@@ -1,3 +1,61 @@
+###  Публикация: 1449145   (1030242) от 20.02.2021
+
+VA - Ambient Lounge 15 (2012) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip Hop, House, Lounge, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moby - Lie Down In Dark (Radio Edit) (03:28)
+ 02. Afterlife - Let It Go (Original) (05:20)
+ 03. Wayne Martin feat. DJ Friction - Diary (04:31)
+ 04. Starbossa - Spacer (04:32)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Trip Hop, House, Lounge, Ambient •Продолжительность: 02:36:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458113C1F424EA18588DDF0531FB4A1BABC5A36C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449144   (1030241) от 20.02.2021
+
+VA - Ambient Lounge 16 (2013) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip Hop, House, Lounge, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fritz Kalkbrenner - Sideways & Avenues (06:38)
+ 02. Visitor - Comin Home (Oliver Moldan Remix) (06:50)
+ 03. G-Starr pres. Big World - Morning Light (Coffee Shop Remix Edit) (03:54)
+ 04. Tiger Hifi - King Of My Castle (03:02)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Trip Hop, House, Lounge, Ambient •Продолжительность: 02:29:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158E3D0D880D5097C4A3199E0CF9FA57541C945A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449146   (1030238) от 20.02.2021
 
 VA - Ambient Lounge 14 (2012) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip Hop, House, Lounge, Ambient>
@@ -676,62 +734,6 @@ Jerome Chassagnard (Jérôme Chassagnard) - Discography 8 Releases (2008-2020) H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB031049B879BAF29417E42C0687AEC101D880D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623382   (1029414) от 01.04.2023
-
-VA - Ibiza XXL - The Summer Hits 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hight & Basti M & Blaikz feat. Hannah Jane Lewis - I'm With You [2:56]
-02. Klaas - 1   1 1 [2:23]
-03. Steve Modana & Freischwimmer - You Can't Buy My Like [2:35]
-04. Shaun Baker vs NDEE & ROOMS feat. Jessica Jean - Do It All Night [2:29](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262E4563743F1F8D1C9586D99892A6DA69B3D75B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623041   (1029411) от 01.04.2023
-
-VA - Armin van Buuren - A State Of Trance 1114 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren ft. Wrabel - Feel Again
-02. Armin van Buuren ft. Matluck - Letting GoЖанр: Trance, Progressive, ElectronicПродолжительность: 02:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF9EFA240DD758CF993312FC1FE8D57D2F55FAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

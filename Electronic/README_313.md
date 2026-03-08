@@ -1,3 +1,61 @@
+###  Публикация: 1180438   (417760) от 01.10.2018
+
+Nomenklatür (Nomenklatur) - Discography 13 Releases (2005-2018) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Electro, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fullness Of Emptyness (01:51)
+ 02. Lektrovision (05:00)
+ 03. Ransom For A Dead Man (04:13)
+ 04. She Likes Dark Hair (06:02)(   Читать дальше...   )Тип издания: CD, WebЖанр: Electro/TechnoПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A528ADA72F8AB0E21B7F29FF4495E1FBE84B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947492   (417739) от 17.10.2015
+
+Faithless - 2.0 (Remixes & Hits) (2015) 2CD [FLAC|image+.cue]<House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insomnia
+02. Mass Destruction
+03. God Is A DJ
+04. Don't Leave(   Читать дальше...   )Жанр: House, TranceПродолжительность: 02:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECD843D096B4983D81DA6B087682166E581248C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 557897   (417242) от 09.10.2012
 
 VA - Soulful House (Twisted Remixes & Disco Sounds) (2012) [MP3|320 кб/с]<House, Deep House, Soulful House>
@@ -689,64 +747,6 @@ VA - Treasure Cast Vol.1: Deep Sound Soul (2016) [MP3|320 Kbps] <Deep House, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:513400CA7E61CD5C966E1E53CDCDEA88283E2080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066249   (414619) от 25.10.2016
-
-VA - Schneeweiss V (Presented by Oliver Koletzki) (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Jeremy Olander - Lunar
-02-Hvob - Tender Skin (DJ Tennis Remix)
-03-Julian Wassermann & H.B.C. - 1000 Times
-04-Benotmane & Darlyn Vlys feat. Haptic - Quarantine(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FA40B85C218EE67C049EFDA0E7619653377960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065760   (414614) от 25.10.2016
-
-VA - Kontor Top Of The Clubs - The Biggest Hits Of The Year MMXVI (2016) [MP3|320 Kbps] <Electronic, House, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414614.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD: 1
-
- 1. Alan Walker – Faded
- 2. Stereoact feat. Kerstin Ott – Die Immer Lacht(   Читать дальше...   )Жанр: Electronic, House, ClubПродолжительность: 03:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551C70AB8FCE6145297C70CC6C381577F5725544
 ```
 
 https://mybot314.ru/tekegram_catalog/

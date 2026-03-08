@@ -1,3 +1,177 @@
+###  Публикация: 1765498   (34278) от 13.12.2024
+
+VA - Новогодние песенки для малышей (2024) [MP3|320 Kbps] <Kids, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алина Киямова - Здравствуй Новый Год [02:12]
+02. Галина Килеева - Зимний Праздник [02:18]
+03. Киямова Алина - Белая Зима [02:44]
+04. Мария Басова - Теремок [01:53](   Читать дальше...   )Жанр: Kids, PopПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11884EA421C750C1B421189F9873BB6B5A3A9E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765549   (34270) от 13.12.2024
+
+VA - Music News For Forum vol.052 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34270.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. STROKOVA - Перемирие (02:03)
+ 002. AGAYAN - AFGS (01:59)
+ 003. Akris & Teddy - Холода (02:45)
+ 004. Amova - Самый черный день (02:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC66091C0793763762FFB8C8C9ED59F31A874FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765837   (34239) от 14.12.2024
+
+VA - Дискотека 2025 Dance Club Vol. 226 Новогодний выпуск! (2024) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+001. Nari, Nabuk - Last Christmas (4:12)
+002. AVARIYA x Jingle Bells, Faino, D.Bravo, V.K. - New Year 25 (Dj Baur Mixshow) (2:59)
+003. Alis Shuka, It s Different - My Love (2:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 24:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0554578B56FD4D903DE3BD37FB8AAB30D1BB01F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765717   (34172) от 14.12.2024
+
+VA - ЕвроХит Топ 40 Europa Plus 13.12.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Gaga - Disease (3:50)
+02. Tom Gregory - Glow In The Dark (2:58)
+03. Sabrina Carpenter - Taste (2:37)
+04. Rag n Bone Man - Rush Of Blood (3:22)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA8386516EEBEC9AEBB81C4424A385F6E2B62D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765790   (34076) от 15.12.2024
+
+VA - Musical kaleidoscope part 17 Electronic, Instrumental, Easy listening (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey Boychenko - Out of Time
+02. Sisco Le Voyageur - Enigma French 35
+03. Dj Polkovnik - Pro Sinus
+04. Dj Artur - Thundery Night(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD68077A1B3D604140B356AADE45DB3F66C0375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765798   (34063) от 15.12.2024
+
+VA - Compilation part 134 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumanov - Blind
+02. Dndm - Four Keys
+03. A-Sultan - Shock
+04. Davit Barqaia - The Fog is Coming(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83EABBE8D0D924D1A034980FFEE61B6AD50EBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764347   (33908) от 17.12.2024
 
 Владимир Кузьмин - Баллады (лучшее) (Mixed and Compiled by DJ Zhuk) (2015) [MP3|320 Kbps] <Rock>
@@ -569,180 +743,6 @@ JJ Cale - Compilation (1971-2019) [MP3|320 Kbps] <Blues, Country rock, Tulsa sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40FFD5A4EEE6972EB58ED6DC196C30ACC2E4DBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770480   (32365) от 01.01.2025
-
-VA - Лучшие песни Европа Плюс за 2024 год (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32365.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Disturbed - The Sound Of Silence (CYRIL Remix) (3:03)
-002. Jung Kook - Standing Next To You (3:26)
-003. Sabrina Carpenter - Espresso (2:55)
-004. Alan Walker feat. Daya - Heart Over Mind (3:09)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A58CB416F74D2B1465703D6C973D8F19D666A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770623   (32254) от 02.01.2025
-
-VA - Свежий Русский Хит от ALEXnROCK часть 17 (2025) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Составляя очередную часть сборника и перекапывая гигобайты муз материала в поисках интересных песен, я наблюдаю как меняется навязанная мода. От мямлей и подросткового блеяния перешли на то, про что Виктор Цой когда то спел в песне Транквилизатор 😊 И ещё появилась такая дичь в поп звучании, как дисторшн. Это сильный перегруз звука, в результате людям с нормальным (   Читать дальше...   )01. Айки - Лайками
-02. W24 - Белая ночь
-03. Alenalittlestar - Давайте танцевать
-04. Павел Воля - Действуй(   Читать дальше...   )Жанр: PopПродолжительность: 03:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2FE44BA1FFC8913C06E44494A0D63D294760DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770652   (32181) от 02.01.2025
-
-VA - Musical kaleidoscope part 19 Easy listening (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Beautiful Music 3
-02. Otta-Orchestra - Whats Going On
-03. Dj Pollkovnik - Попурри
-04. Otta-Orchestra - Huskies(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E831C0F8BC887EC7027937C7A7CD52E6808503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770811   (32140) от 03.01.2025
-
-VA - Лучшие песни Радио DFM за 2024 год (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32140.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. R3hab feat. VIZE & JP Cooper - Jet Plane (2:58)
-002. David Guetta feat. Kim Petras - When We Were Young (The Logical Song) (2:27)
-003. ZERB & The Chainsmokers - Addicted (feat. Ink) (2:32)
-004. Gamuel Sori feat. Lovespeake - Us (2:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4F81DA63CF88F14A2E85058EE360A0A889A6F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770695   (32077) от 03.01.2025
-
-VA - Compilation part 137 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumanov - Time Does Not Go Back
-02. Joni - Chest Pain
-03. Akmalov - Love Story Vol.1
-04. Besso - Dancing in the Dark(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3E812221387897177E57E74E534262827B6C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771503   (31792) от 06.01.2025
-
-VA - Music News For Forum vol.054 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31792.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ella Henderson - Filthy Rich (Demo Version) (02:51)
- 002. Abraham Colona feat. Bayshore Court & Eyemad - Every Single Day With You (02:38)
- 003. Ace Buchannon - Come Alive (Bending Grid Remix) (05:18)
- 004. AKN - Needed Me (02:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5ACFB119C12ED2FC6D22412D454F8FF83B81BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

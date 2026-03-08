@@ -1,3 +1,90 @@
+###  Публикация: 1562829   (507234) от 11.07.2022
+
+Am Himmel - As Eternal As The Starless Kingdom Of Sorrow (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal, Black Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bleared By The Infinite Wings (00:06:56)
+02 - The Patience And Silence Of A Saint's Death (00:05:11)
+03 - The Virgin Wages Celestial War In The Seraphim Courts (00:07:22)
+04 - The Fumes Of Thy Preposterous Torment (00:06:30)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Black Doom MetalПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F956BF66AC6CE4E0415E550EDFF011AC8E2DB282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562745   (507228) от 11.07.2022
+
+Hailmary - Disturbing The Peace (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Keeper (3:41)
+02. The Way I Am (4:12)
+03. Media Lobotomy (3:09)
+04. Be My Suicide (3:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDEA761F77FD961CAC535F534BBE77CD281F8B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562739   (507134) от 11.07.2022
+
+Edguy - Mandrake (2001) AFM Records, 2022, Anniversary Edition, Remastered [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Speed Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears of a Mandrake (Remastered 2021) (7:14)
+02. Golden Dawn (Remastered 2021) (6:09)
+03. Jerusalem (Remastered 2021) (5:29)
+04. All the Clowns (Remastered 2021) (4:49)(   Читать дальше...   )Жанр: Power Metal, Speed Metal, Symphonic MetalПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772AB42413BBDC9279D9FDC1569E4CE348B68490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562813   (507123) от 11.07.2022
 
 Black Sabbath - The Rules Of Hell (2008) 5xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -661,93 +748,6 @@ Brutality - In Mourning (1997) [APE|Lossless|image + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE717C32AC3BCC3EFB755833127008AFB0ED40D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563444   (504579) от 14.07.2022
-
-Excruciation - Last Judgement (1987) Reissue, 2017, Dark Symphonies [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Edge Of Madness (02:58)
-02. The Silence (03:16)
-03. Hateful Pain (5:09)
-04. Desperate End (Nuclear Nightmare) (02:56)(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63555ADB09FA7A3E1BF7375A1A17D94336943F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563380   (504578) от 14.07.2022
-
-Eerie Heir - Your Face Forgotten, Your Fate Nightmare (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Your Flame (00:08:00)
-02 - The Gift (00:06:43)
-03 - Dark Stars Diadem (00:03:10)
-04 - Eye Firmament (00:08:48)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB9ED357A4781A216F23C748D96BC2E6DC45979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563556   (504576) от 14.07.2022
-
-Golgata - Ur eld och aska (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ur Eld Och Aska (00:04:33)
-02 - Undersåtar (00:04:15)
-03 - Liv För En Gud (00:04:14)
-04 - Vagabond (00:06:22)(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A70C2AFE8CDEB563843DDB1A5A906043F5A477
 ```
 
 https://mybot314.ru/tekegram_catalog/

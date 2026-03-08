@@ -1,3 +1,32 @@
+###  Публикация: 1097223   (915973) от 26.01.2017
+
+VA - Ruben de Ronde - My Story (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruben De Ronde & Sir Notch - Time Has Come 03:37
+02. Ruben De Ronde & Victoria Ray - All About You (Extended Mix) 05:55
+03. Ruben De Ronde & Donata - Open Wide 03:34
+04. Ruben De Ronde & Kimberly Hale - All In 06:35(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:138F328AC2917ED4F2FC4D80CCC72EA1181C9CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989727   (915970) от 23.02.2016
 
 Футбол. Чемпионат Испании 2015-2016. 25 тур. Обзор матчей. (22.02.2016) HDTVRip [H.264/720p-LQ]
@@ -681,40 +710,6 @@ Benge - Discography 19 Releases (1996-2016) Expanding Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9A61B3D2E017C46004FBBF0482670639B57D84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289406   (915837) от 02.02.2011
-
-Invid Mind - Nonsense Stories (EP) (2010) [MP3|320 kbps] <Dark Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Invid Mind - Nonsense Stories (EP) (2010)
-Год: 2010
-Жанр: Dark Psytrance
-Лейбл: D-A-R-K Records
-Продолжительность: 00:21:47
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Gnoma [07:38](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C84EA8201480ED1FF8CF31E7AC8B789A4B7624
 ```
 
 https://mybot314.ru/tekegram_catalog/

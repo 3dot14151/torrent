@@ -1,3 +1,177 @@
+###  Публикация: 1110662   (852169) от 03.03.2017
+
+VA - St. Moritz: Make Me Disco (2017) [MP3|320 Kbps] <Dance, nu-disco, deep-house, electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clemens Rumpf & Marcell Russell - Ain't Dancing Without You (Space Age Nu Disco Edit) (4:36)
+02. Ill Twin - Charlies (Max Laut Edit) (3:27)
+03. Funkatron - The Groove (6:49)
+04. Wyatt Ocean - See the Difference (3:56)(   Читать дальше...   )Жанр: Dance, nu-disco, deep-house, electronicПродолжительность: 03:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD6004FD9DBF6C6C124B6122EA4FC1B4916C99D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110551   (852166) от 03.03.2017
+
+VA - Ресторан Кураж весенний. Выпуск №6 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852166.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олеся Атланова - Водитель Автобуса 3:57
+002. Сборная Союза - Я В Жену Влюбленный Парень 3:12
+003. Богдан Галий - Осень 3:30
+004. Валерий Курас - Шансон 3:13(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EACBA2E7652EAAF29E5343FC47DCE46E48D19C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001828   (852100) от 29.03.2016
+
+VA - Masters Of Hardcore Chapter XXXVIII (2016) [MP3|320 кб/с] <Hardcore & Hardstyle, Speedcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss K8 & MC Nolz - Raiders Of Rampage (MOH 2016 Anthem) [04:01]
+02. Dyprax - The Future (Tha Playah Remix Edit) [03:58]
+03. Korsakoff & Furyan - A New Dawn (Edit) [03:38]
+04. Angerfist & MC Nolz - Raise & Revolt (Radio Edit) [03:27](   Читать дальше...   )Жанр: Hardcore & Hardstyle, SpeedcoreПродолжительность: 04:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C76A96C22A0D4E3D994F866A5585EEFF74F90D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110555   (852094) от 03.03.2017
+
+VA - Танцевальная вечеринка от Хит FM выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852094.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Самира - Совпали 3:30
+002. Бамбинтон - Зая 3:40
+003. Лариса Гордьера - Прости Меня 3:30
+004. Вероника Андреева - Я Люблю Своего Мужа 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868AA560A2A69165D743A31539AFF0B3C9CAAD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110553   (852090) от 03.03.2017
+
+VA - Лучшие блатные хиты года на Шансоне. Выпуск № 9 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852090.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Михаил Шабашов - Не Быть С Тобой 3:00
+002. Олег Владимиров & Натаника - Заветные Слова 3:15
+003. Сергей Куприк - Какая Ты Красивая 3:12
+004. Дмитрий Константинов - Моя Рыбулечка 3:16(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161CC1C0B27E05EBC544E6AF6E4BF53F0F01C839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110545   (852087) от 03.03.2017
+
+VA - Popular Pikachu Chart (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852087.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rag'n'bone Man - Human 3:19
+002. Sia - Salted Wound (From The "Fifty Shades Of Grey" Soundtrack) 4:31
+003. Pharrell Williams - Happy 3:53
+004. The Chainsmokers - Selfie 3:04(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE72C695F5B64381C3E75221E6CDFEAB8F2F575C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110556   (852078) от 03.03.2017
 
 VA - Весна пришла. Лучшие хиты. Сборник № 10 (2017) [MP3|256 Kbps] <Pop>
@@ -568,179 +742,6 @@ VA - Exclusive DJ Pack (03.01.2014) [MP3|320 кб/с]<Dance, Nu Disco, House, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA077F2FBB4A6EB3AAEB773C6C40D03D618441BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876751   (850516) от 10.03.2015
-
-VA - Rock. Blues. Drive! (2015) 4CD [MP3|320 кб/с]<Hard Rock, Classic Rock, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850516.jpg" />
-</div>
-
-
-###  Подробнее
-
-56. Larry Miller - Our Time Is Coming
-57. S.O.T.O. - The Fall
-58. Joanne Shaw Taylor - Wicked Soul
-59. Sweet & Lynch - Hero-Zero(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues RockПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C625E936284F8699F7451762ECEEAD65DD4FC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002041   (850464) от 30.03.2016
-
-VA - New Era Drum And Bass (2016) [MP3|320 кб/с] <Drum And Bass, Dubstep, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850464.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fil Enzo - Aroma (Original Mix) 05:10
-002. Prolix - Nature Of Reality 04:20
-003. NOJESUS - Bagga 04:17
-004. Spyre - Edge of Tomorrow (Original Mix) 05:34(   Читать дальше...   )Жанр: Drum And Bass, Dubstep, JungleПродолжительность: 07:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2863F706B6D9406B7E893453C65222A0088B9AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111092   (850427) от 04.03.2017
-
-VA - Beatport Trance Pack (04.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Giuseppe Ottaviani - Loneliest Night (feat. Tricia McTeague) (OnAir Mix)  6:59
-02.  Qpolit - Silence (Original Mix)  6:14
-03.  Wearealienss - Polar (Radio Cut)  3:08
-04.  Cold Blue - Fall Into Dusk  6:49(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 03:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698CF2DC936FFF82CC6F2CA15A437D82E2B515BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001923   (850400) от 30.03.2016
-
-Va - Весенний Союз (2016) [MP3|256 кб/с] <Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850400.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алла Костина Feat. Total — Не Я 03:33
-002. Dj Fenix Feat. Mila Kulikova — Я & Ты 03:43
-003. Mseven — Танцуй В Темноте 03:37
-004. Arti — Параллели 03:40(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1302285B3EC217BEF922FB4036A0FC236F5E9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002028   (850397) от 30.03.2016
-
-VA - Moonlight In July: Relax Edition (2016) [MP3|320 кб/с] <Downtempo, Chillout, Chillstep, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850397.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pattern Mixer - Sex at the Beach - Dowbeat Buddha Chill and Tandra Mix 04:07
-002. Alex Pardini - Spectre (Electronic Mix) 03:57
-003. Sound Of Joy - I've Been Watching You - A Squared Theory Dub Mix 07:04
-004. Lesamoor, Oscar Remington - And if I (ft Bibi Provence) 05:08(   Читать дальше...   )Жанр: Downtempo, Chillout, Chillstep, LoungeПродолжительность: 10:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A594BA760CBF2BD54CE46FEBA6EE4B5EEC9DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110948   (850110) от 04.03.2017
-
-B.B. King - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Chicago Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early In The Morning
-02. If You Love Me
-03. When It All Comes DownЖанр: Blues, Chicago BluesПродолжительность: 04:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AAAE0365C7F4EC88BA6143683E93FBC4B9C36D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

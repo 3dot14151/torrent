@@ -1,3 +1,32 @@
+###  Публикация: 1334573   (293360) от 30.10.2019
+
+INXS - X (1990) 2011, Petrol Electric, RM. RE. [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suicide Blonde (3:53)
+ 02. Disappear (4:11)
+ 03. The Stairs (4:57)
+ 04. Faith In Each Other (4:09)(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20768BE7955FDDA2020604C32E7B088D1CCCAA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185422   (292946) от 21.11.2017
 
 Linkin Park - Crawling (One More Light Live) (2017) Single [FLAC|Lossless|WEB-DL|track] <Alternative>
@@ -713,35 +742,6 @@ LP - Lost On You (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative/Indie Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AA8D534C8D1AAF2BA5EA22B4A40319ADF025A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265588   (274141) от 28.11.2018
-
-Lo Moon - Lo Moon (2018) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Chillwave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 . This Is It (5:12)
- 02 . Loveless (7:03)
- 03 . The Right Thing (3:54)
- 04 . Thorns (5:34)(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, ChillwaveПродолжительность: 00:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED294C9804A61EA48A5A3D243D8DA77B5BE18B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

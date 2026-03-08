@@ -1,32 +1,3 @@
-###  Публикация: 1654280   (194113) от 20.08.2023
-
-Within Temptation - Bleed Out (2023) [MP3|320 Kbps] <Symphonic-Rock, Symphonic-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bleed Out (00:04:30)
-02 - Wireless (00:04:41)
-03 - Don't Pray For Me (00:03:41)
-04 - Shed My Skin (00:04:30)(   Читать дальше...   )Жанр: Symphonic-Rock, Symphonic-MetalПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05547A28B07B3CF44F44954832DC0223410E1268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655196   (193890) от 25.08.2023
 
 U.D.O. - Touchdown (2023) [MP3|320 Kbps] <Heavy Metal>
@@ -745,6 +716,35 @@ Manntra - Horizont (2012) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46B0773286DF841BE11AB8D4A4898EAA3A41076B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661947   (188262) от 16.09.2023
+
+Manntra - Meridian (2017) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ne Lazi 03:22
+02. Meridian 03:36
+03. Lanterne 03:20
+04. Otac 03:56(   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5787AE1409044BBC2A62469070D86A367CB9B32A
 ```
 
 https://mybot314.ru/tekegram_catalog/

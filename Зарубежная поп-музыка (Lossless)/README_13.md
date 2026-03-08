@@ -1,3 +1,32 @@
+###  Публикация: 985864   (932522) от 13.02.2016
+
+Ronan Keating - Time of My Life (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Love You (03:15)
+02. As Long as We're in Love (03:01)
+03. Breathe (03:07)
+04. She Knows Me (03:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BD138989DA6331DF0BB0F177728CDA5D586D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093880   (932272) от 16.01.2017
 
 Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <Alternative Pop, New Wave, World Music>
@@ -721,35 +750,6 @@ VA - MTV Top the Hits 2013 3CD (2013) [FLAC|Lossless]<Pop, Dance, Rock, R&B, Tra
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367077   (918969) от 14.03.2020
-
-VA - 90s Guitar Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918969.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. All Saints - Under the Bridge
-2. Jannik - The Power of Love
-3. a-ha - Move to Memphis
-4. Tori Amos - God(   Читать дальше...   )Жанр: PopПродолжительность: 02:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C841E7E5505FFB12D1BA4E6B35455E50214814
 ```
 
 https://mybot314.ru/tekegram_catalog/

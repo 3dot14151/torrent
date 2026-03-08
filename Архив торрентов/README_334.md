@@ -1,3 +1,29 @@
+###  Публикация: 1354193   (988867) от 21.01.2020
+
+Mozilla Firefox 72.0.2 RePack (& Portable) by Diakov [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - один из самых популярных браузеров в мире, отличающийся быстротой работы как во время загрузки веб-страниц, так и при поиске в закладках и истории. Разработан на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне. Обладает множеством полезных опций, включая способность значительного расширения возможностей (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D28258FF36D59C6F7D064E9234B569604B98F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610180   (988861) от 30.01.2013
 
 9 Драконов: Лоулань / 9 Dragons: Loulan [Ru] (L/1.12/PVPх5х10) 2012
@@ -700,41 +726,6 @@ Arrival - An Abstract Of Inertia (2002) [WavPack|Lossless]<Melodic Black Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611433   (988525) от 31.01.2013
-
-Necrowretch - Putrid Death Sorcery (2013) [MP3|320 кб/с]<Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ripping Souls of Sinners (2:37)
-02. Purifying Torment (3:21)
-03. Goat-Headed (3:04)
-04. Putrid Death Sorcery (3:52)
-05. Impious Plague in Catacombs (3:35)
-06. Spewed from Hell (3:29)
-07. Defiler of Sacrality (3:16)
-08. The Anthropomancer (4:26)
-09. Soiled Into a Crypt (2:26)
-10. Necrollections (3:03)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46E3AB4450B1D1A8F596E2AFF431B8FFCF33CD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

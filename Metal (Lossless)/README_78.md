@@ -1,3 +1,90 @@
+###  Публикация: 1386270   (795279) от 28.05.2020
+
+Split Heaven - The Devil's Bandit (2013) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Arrival Of The Gunslinger (Intro) (01:35)
+02. Danger Zone (04:11)
+03. False Martyr (04:04)
+04. March Of The Dead (04:44)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F684F2217874371BC0A6791E068FE06D137FC5E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273962   (795070) от 05.01.2019
+
+Amarok - Devoured (2018) [FLAC|Lossless|tracks + .cue] <Sludge Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VI Sorceress (21:24)
+02. VII Rat Tower (23:03)
+03. VIII Skeleton (11:15)
+04. IX Devoured (13:45)Жанр: Sludge Metal, Doom MetalПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B9B36338FE07B19478DAC0B8F7F71CCDD0EFF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509512   (795017) от 12.11.2021
+
+Sandstone - Epsilon Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know Why (03:59)
+02. Cuts to You (04:23)
+03. Worn Soul (05:52)
+04. Fractured Time (05:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F65AE6C2D24A5C4AF6575DE94375ABFAEDFE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509416   (795013) от 12.11.2021
 
 Knights Of The Realm - Knights Of The Realm (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -658,90 +745,6 @@ Blaze Bayley - Endure And Survive (Infinite Entanglement Part II) (2017) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB2C36321888E6B4DD3CEC103BA17E9B83D3085C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122895   (793619) от 06.04.2017
-
-SIG:AR:TYR - The Stranger (2003) [FLAC|Lossless|WEB-DL|tracks] <Epic Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793619.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. At The Gates (04:56)
-2. The Stranger (04:51)
-3. Against The Grail (05:28)
-4. Orion Awaits (09:05)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDADB2457F33631C8FAB27E6D94E7500959F5C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122750   (793378) от 06.04.2017
-
-Devilment - II - The Mephisto Waltzes (2016) [FLAC|Lossless|image + .cue] <Extreme Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judasstein 05:21
-02. Hitchcock Blonde 04:09
-03. Under The Thunder 05:19
-04. Full Dark, No Stars 06:23(   Читать дальше...   )Жанр: Extreme Metal, Gothic MetalПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E04A013E9061B2EA23C7AA9D8E5F76EB33F171B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587740   (793104) от 06.04.2017
-
-Dead by April - 3 альбома (2009-2014) Дискография [FLAC|image+.cue]<Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Melodic MetalcoreПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F7F7C4BB4AB14CD6D071DC1DF8AB92BBEF691B
 ```
 
 https://mybot314.ru/tekegram_catalog/

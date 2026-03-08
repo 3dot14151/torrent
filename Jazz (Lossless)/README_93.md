@@ -1,3 +1,32 @@
+###  Публикация: 1021430   (741079) от 29.05.2016
+
+New Cool Collective & Mark Reilly - The Things You Love (2016) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Should Be Dancing (4:17)
+02. The Things You Love (3:33)
+03. Double Stitch (4:16)
+04. Do The Right Thing (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FAD9D6569AA0FAE62382C184BB6C41C4285E95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282867   (741065) от 15.02.2019
 
 Louis Armstrong - What A Wonderful World (1962 - 1965) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Vocal Jazz, New Orleans Jazz, Swing>
@@ -716,35 +745,6 @@ Stanley Cowell Trio - Dancers In Love (2000) Venus Records [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F670BF910D2EF81DA6775425F7E5BED988F34D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526357   (738473) от 24.01.2022
-
-Massimo Farao' Trio - Luiza (2015) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So In Love [6:09]
-02. Beautiful Love [6:43]
-03. Dear Old Stockholm [6:04]
-04. Luiza [5:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A8FBB0344566DD4AF8A0B2BC165E1A0A290BD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

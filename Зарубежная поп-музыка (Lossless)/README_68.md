@@ -1,3 +1,32 @@
+###  Публикация: 1189200   (271049) от 05.12.2017
+
+Joe Dassin - La Selection (Best Of) 3CD (2016) [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Les Champs-Elysees
+02. Le dernier slow (Blu)
+03. Excuse Me Lady(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 02:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26CE72C02447DE91458041584D2A2AADB328A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266398   (270961) от 01.12.2018
 
 VA - Top Of The Pops '1980 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1980s, pop, rock>
@@ -718,35 +747,6 @@ VA - 100 Greatest 2019 Songs (Best Songs of the Year) (2019) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84573F9B3BCC00C0EBB8CBE4E6EBF87669FA85C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340379   (264012) от 23.11.2019
-
-Francesca Michielin - 2640 (2018) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comunicare (4:21)
- 02. Bolivia (3:36)
- 03. Noleggiami ancora un film (3:44)
- 04. Io non abito al mare (3:13)(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4E5D91C4DBBEFFCFD377B5C7494927CDD96088
 ```
 
 https://mybot314.ru/tekegram_catalog/

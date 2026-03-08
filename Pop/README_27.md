@@ -1,3 +1,61 @@
+###  Публикация: 1483907   (1006511) от 16.07.2021
+
+Группа VIP - New-York (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New-York (3:30)
+ 02. Пассажирский поезд (4:11)
+ 03. Я одна (4:04)
+ 04. Не отпускай (3:46)(   Читать дальше...   )Жанр: EDM, PopПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030B124979F3DE7F7ABBAF245826313DCA9516C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483954   (1006482) от 16.07.2021
+
+VA - 100 Greatest TikTok Songs & Viral Hits (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006482.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fleetwood Mac - Dreams (2018 Remaster) (4:17)
+002. Bella Poarch - Build a Bitch (2:02)
+003. Russ Millions, Tion Wayne, E1 (3x3), ZT (3x3), Arrdee - Body (Remix) (4:38)
+004. Bruno Mars - Talking to the Moon (3:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70CDCC77AB8478B0BF41D5A00D1AAF2BD91D864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484131   (1006295) от 18.07.2021
 
 Tina Turner - Foreign Affair (1989) 4CD, Remaster, Capitol Records, 2021 [MP3|320 Kbps] <Pop>
@@ -686,64 +744,6 @@ Sally Shapiro - Remix Romance Vol. 1 (2008) [FLAC|Lossless|image + .cue] <Italo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E74C219C6CE2D4E842E957E89ABA467C640535F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350072   (1003734) от 04.01.2020
-
-Кай Метов - Position 2 (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Euro House>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Position 2 (4:13)
- 02. Я тебе не верю (3:32)
- 03. Мне хорошо с тобой (5:21)
- 04. Мама! Я хочу быть пионером (2:35)(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47AF44010EC2872806DE2973D28A120DCE223F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349926   (1003722) от 04.01.2020
-
-Стас Михайлов - Лучшие песни (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Там (3:40)
- 02. Без тебя (4:20)
- 03. Ну, вот и всё (4:05)
- 04. Всё для тебя (3:54)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 04:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C3FD6072070938C601605214CBED8ADC6CAA63
 ```
 
 https://mybot314.ru/tekegram_catalog/

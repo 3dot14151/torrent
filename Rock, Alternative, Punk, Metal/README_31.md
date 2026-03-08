@@ -1,32 +1,3 @@
-###  Публикация: 1607160   (1044079) от 26.01.2023
-
-Moltano - Поэма столкновений (2023) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:01:33]
-02 - Время [00:02:58]
-03 - Калаби-Яу [00:05:20]
-04 - Поезд в никуда [00:04:45](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C79C3257E369304BD6269C1E3CD600346B9CB80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606940   (1044078) от 26.01.2023
 
 Almach - Don't Look Back (2023) [MP3|320 Kbps] <Atmospheric Black, Oriental Metal, Folk Metal>
@@ -746,6 +717,35 @@ Malstrem - 3 Albums (2021-2023) [MP3|320 Kbps] <Symphonic, Black,  Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A5A8A9E516D24C4FC2C7EE7B3CCE94876A90E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607645   (1043942) от 27.01.2023
+
+Steve Vai - Vai/Gash (2023) [FLAC 2.0|96/24|tracks|WEB-DL] <Hard rock, Heavy metal, Progressive metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Wind (3:50)
+02. Busted (3:05)
+03. Let's Jam (4:19)
+04. Woman Fever (2:27)(   Читать дальше...   )Жанр: Hard rock, Heavy metal, Progressive metalПродолжительность: 00:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE33900B900A13D2B474CD9435C018372163AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

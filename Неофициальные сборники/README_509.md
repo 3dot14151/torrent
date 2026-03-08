@@ -1,3 +1,189 @@
+###  Публикация: 1422578   (308568) от 09.11.2020
+
+VA - No Doubt: Music RnB Collection (2020) [MP3|320 Kbps] <Rnb, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308568.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Oral Cigarettes - Wagamama
+002. Jayy Malik - Committed
+003. Teddy Bryant - Autumn Love
+004. Tamalaneh - Once In A Lifetime(   Читать дальше...   )Жанр: Rnb, SoulПродолжительность: 07:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7F37A09A239E1E039E8FFBC83FC87BA7F50FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422545   (308567) от 09.11.2020
+
+The Dead South - Broken Cowboy (Compilation) (2020) [MP3|320 Kbps] <Bluegrass, Gothic Country>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Gone
+02. Broken Cowboy
+03. In Hell I'll Be in Good Company
+04. Banjo Odyssey(   Читать дальше...   )Жанр: Bluegrass, Gothic CountryПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE5F4616F73378CFA425D2E9EBD4D20F479130C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422587   (308439) от 09.11.2020
+
+VA - Velvet Evening: Classical Vocals In Jazz (2020) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308439.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jamie Cullum - Everlasting Love
+002. Madeleine Peyroux - Smile
+003. Kathleen Grace - Embarcadero
+004. Eliane Elias - You’re Getting(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 06:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F94FF073EAC53AD07169256BFED8AA95FBAD5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077106   (308394) от 27.11.2016
+
+Nightwish - From the Tarja Turunen Era (2015) 2CD, Compilation [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nimphomaniac Fantasia 4:46
+02. Sleeping Sun 4:04
+03. Come Cover Me 4:34
+04. Dead To The World 4:20(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2686BDF5E1557D0AD5CFFE9721E47648DAA1A191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584362   (308175) от 04.12.2012
+
+VA - Улетная сотня осеннего Trance vol.11 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive Trance, Uplifting Trance, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7 Baltic - Guantanamo (Original Mix) (7:42)
+02. 7 Baltic - Rescue (Original Mix) (7:54)
+03. Aaron Beta - The Sky (Original Mix) (5:56)
+04. Above & Beyond vs. Andy Moor - Air For Life (Above & Beyond 2012 Update) (8:51)
+05. Abstract Vision & Elite Electronic - Always Loved U (Original Mix) (7:37)
+06. Ad Brown - Vanilla (Orignal Mix) (8:03)
+07. Aimoon - Will Be Mine (Original Mix) (7:14)
+08. Air-T & ISTAR - Whisper Of The Sea (Original Mix) (6:33)
+09. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (7:25)
+10. Andrew Stets - War Will Never Come (Original Mix) (6:55)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Progressive TranceПродолжительность: 11:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D8CAABC71E9E9D7507092CB5BFBC08F1797834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583739   (308069) от 04.12.2012
+
+Moonbeam feat. Aelyn - You Win Me (2012) [MP3|320 кб/с]<Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308069.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.    Moonbeam feat. Aelyn- You Win Me (Original Soundtrack Mix) (Black Hole)
+2.    Tube & Berger & Milan Euringer - Lovebreak (Original Mix) (Kittball)
+3.    Christian Burkhardt - Delight (Original Mix) (Oslo) (
+4.    Dancaless feat. Katinda - Together (Promo CDR)
+5.    Bent - As You Fall (Guy J Remix) (G&E Analogue)
+6.    Max Vertigo- Tonight (Original Mix) (Aura Music)
+7.    Hells Kitchen- Silent Scream (Original Mix) (Aura Music)
+8.    Pan-Pot- Confronted (Adam Beyer & Jesper Dahlback Remix) (Mobilee Records)
+9.    Simon Vuarambon- Inverted Pole (Luis Junior Remix) (Flow Vinyl)
+10.  HVOB- Dogs (Niko Schwind Remix) (Stil Vor Talent)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124833B5CE7E3BECD3C1193550AECD5646843E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960502   (308057) от 28.11.2015
 
 VA - Sunday Privilege Vol 3 25 Luxury Lounge Anthems (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -581,186 +767,6 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 023 (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAAB12ECCE5571F8206A444AB4BCBD23481AC5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260659   (307620) от 09.11.2018
-
-VA - New Music Friday Spotify 22.06.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bebe Rexha - Self Control
-02. Tory Lanez, Rich The Kid - Talk To Me
-03. Ariana Grande, Mike Larson, Nicki Minaj - the light is coming
-04. A Boogie Wit da Hoodie, Jessie Reyez - Pretending (feat. Jessie Reyez)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E70BAA699A581D852A490CF8912751AF7A9813E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583645   (307546) от 04.12.2012
-
-Fausto Papetti - All The Best (2012) [MP3|320 кб/с]<Pop, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Come Vorrei (03:24)
-02.  Yesterday (03:34)
-03.  Strangers In The Night (03:35)
-04.  Love Story (03:57)
-05.  Besame Mucho (04:07)
-06.  I'm In The Mood For Love (02:53)
-07.  Moon River (03:30)
-08.  Un Uomo, Una Donna (04:25)
-09.  Europa (03:47)
-10.  F La Mer (03:03)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 01:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E780A0A49B0A11F8EC1DC5D6036301A8286D08C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960633   (307423) от 28.11.2015
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 19 ) (2015) [MP3|320 кб/с]<Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Circle - Touch In The Night (Discobeatz Electro Remix ) (04:49)
-02. Rouge & Dj Nikolay-D - Koiwa No Time(Dj Nikolay-D Remix 2013) (05:41)
-03. Alphaville - Big In Japan (Ultratraxx Exten (10:25)
-04. S.W.A.T. Ft. Real - Eins, Zwei Polizei ( Radio Edit ) (03:24)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 05:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC39A778DBC06D50F10A45F526EA7708D7F6ECA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845610   (307365) от 30.11.2014
-
-VA - Lounge At The Seashore 20 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307365.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Saleh - Beautiful Night (Original Mix) (04:48)
-002. Lounge Leaves - Believe in Me (03:44)
-003. Over Distant Shores - Bjorn Lynne (08:39)
-004. Barbara Lusch - Dancing With Myself (03:52)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F6DE7B2864A0B9C41C6F1D0C55D0ACD47DCDA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260650   (307122) от 09.11.2018
-
-VA - The Voice Of Freedom (2018) [MP3|320 Kbps] <Vocal, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307122.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maria Nayler - I Dissolve In You (Extended Mix)
-002. Raz Nitzan - Beyond Time
-003. Maxim Schunk - My Name
-004. Nitrous Oxide Feat. Sarah Lynn - Clear As The Sky(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 09:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716B6DD2F05BE5A2CEA1E47B350EA007E1D455EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260644   (307116) от 09.11.2018
-
-VA - Electronic Space (2018) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307116.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bonfarado - Hot Cupboard
-002. Caterina Barbieri - How To Decode An Illusion
-003. Audion - Dem Howl
-004. Matt Sassari - Speshial(   Читать дальше...   )Жанр: ElectronicПродолжительность: 09:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86F989BED3118B7409FA27D8BED7FD3EA497CE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

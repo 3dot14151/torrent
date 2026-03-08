@@ -1,3 +1,61 @@
+###  Публикация: 1484368   (1006159) от 19.07.2021
+
+Tomoroh Hidari - The Reinterpretation of Dreams (小さな夢達 remixed) (2021) Mahorka [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Ambient, Breakcore>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owl-Stretching Time (Captive Portal Remix) (05:05)
+02. 空 (Konejo's Dream Big Remix) (03:17)
+03. Owl-Stretching Time (Machinefabriek Remix) (03:55)
+04. Sketches Of Pain (Brainquake Remix) (07:14)(   Читать дальше...   )Жанр: Experimental, IDM, Ambient, BreakcoreПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84455C322D1B8D9F029D71DF5BEBC98FD7D9778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484362   (1006109) от 19.07.2021
+
+Profondita - Eternal (2021) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Profondita - Psychedelic Jungle (08:05)
+ 02. Egorythmia - Eternal (Profondita Remix) (10:12)
+ 03. Astral Waves - La Danse Des Elfes (Profondita Remix) (08:20)
+ 04. Profondita - Zen (10:57)(   Читать дальше...   )Жанр: Progressive Trance, Psy-TranceПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41C2DB039536751F663B181FC20AEEA2F35806B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241955   (1005980) от 20.07.2021
 
 Motionfield - Discography 16 Releases (2006-2021) Autoload [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Drone, Soundscape>
@@ -681,64 +739,6 @@ VA - Beach Grooves Maretimo Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Organic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34A3603F46DB1719EC194CB62E2BE6218AC1177F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485906   (1004734) от 31.07.2021
-
-SEX-O-RAMA - Collection (1998-2011) 2альбома [MP3|320 Kbps] <Lounge, Rock, Funk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mesohorny
-02. Mile High Club
-03. Badonkadonk
-04. Desiree(   Читать дальше...   )Жанр: Lounge, Rock, FunkПродолжительность: 01:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C7A55CB4D4B17D25D63E52BE315166E18ED541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154872   (1004499) от 01.08.2021
-
-Poemme & Stereoscenic Label-Pack - 63 Releases (2014-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Soundscape, Experimental, Post Rock>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hilyard - Lucent (sleep mix) (04:52)
- 02. Ayan Das - Sleepless in Bangalore (sleep mix) (03:33)
- 03. Superposition - Cloudrealms (05:16)
- 04. Awakened Souls - a decade (07:17)(   Читать дальше...   )Жанр: Ambient, Drone, Soundscape, Experimental, Post Rock •Продолжительность: 48:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E197F931D6D48C5862B2AE12599F22E3C2A18F
 ```
 
 https://mybot314.ru/tekegram_catalog/

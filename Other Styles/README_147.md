@@ -1,3 +1,32 @@
+###  Публикация: 1636507   (240860) от 30.05.2023
+
+Teodor Wolgers - Dialogues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Film Soundtracks>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reconnaissance Without End (3:54)
+02. The Pleasure Principal (2:38)
+03. The Art of Conversation (3:12)
+04. Nocturne (3:34)(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C09B453C00DAF1B43B3BB42E52AE528F34DCEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636437   (240763) от 30.05.2023
 
 Shirley Collins - Archangel Hill (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk, Americana>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9564700A1E3C7D4745353109B7BC7B2336B9E94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647520   (231510) от 19.07.2023
-
-Jason Allen - Something I Dreamed (2001) [FLAC|Lossless|image + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I've Got To Say (3:04)
-02. Next In Line (3:07)
-03. Body And Fender Man (2:38)
-04. Love Me (3:16)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A7A9E741C66E06FD13EAB5950A7B92D9172B8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

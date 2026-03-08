@@ -1,3 +1,177 @@
+###  Публикация: 1212488   (775824) от 12.03.2018
+
+VA - Immersion Of Progressive House (2018) [MP3|320 Kbps] <Progressive House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775824.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nesta Tonik - Moon Shadows (Original Mix)
+002. Sendoo - Siren (Original Mix)
+003. Martin Dhamen & Nola feat. Mick Roxx - Wont Let Go
+004. NitroKIDD - Parallax (Original Mix)(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 09:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E308622AE766CD77F90AF18782BC26497B593FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212496   (775819) от 12.03.2018
+
+VA - Popsologia: Lemon Mix (2018) [MP3|320 Kbps] <Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775819.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dancefloor Devils - Adrenalin (Short Mix) 02:48
+002. Ray Core - Move Your Body (Max R Remix) 04:48
+003. L.A.R.5 - Somebody To Love (G4bby feat. Bazzboyz Remix) 03:30
+004. UFO361 - Beverly Hills 03:21(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 08:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191AAFE73432A17412A1252D172783A7D6DBFE13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014818   (775807) от 09.05.2016
+
+VA - Популярная соточка. Русская версия (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775807.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Din-Go - Я Скучал По Тебе
+002. Mseven - Листья
+003. Дмитрий Прасковьин - Между Нами
+004. Ionel Istrati - Быть С Тобой(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D2876A6F5AAF2B678980D2E2D55F045ED0AD3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015027   (775795) от 09.05.2016
+
+VA - Record Super Chart № 435 (07.05.2016) (2016) [MP3|320 кб/с] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystal Lake - Say Goodbye (Headhunterz Edit) 4:02
+02. KSHMR feat. Sidnie Tipton - Wild Card (Original Mix) 3:18
+03. Sander van Doorn & MOTi - Lost (Extended Mix) 4:25
+04. DJ KUBA & NE!TAN - Party On! (Original Mix) 3:35(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 02:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D55A19963470640D48101609D75B1E6A7D6AAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212483   (775788) от 12.03.2018
+
+VA - Pop Slam! Color Combination (2018) [MP3|256 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775788.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J Balvin & Willy William - Mi Gente
+002. Redone - Boom Boom
+003. Post Malone (Feat. 21 Savage) - Rockstar
+004. Pink - Beautiful Trauma(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0092625E0F6C436B67A2EB4CDD2367F0CC5552B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015034   (775770) от 09.05.2016
+
+VA - Ночной Мегахит - 100 Хитов в Тачку (2016) [MP3|320 кб/с] <House, Club House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dynamic Illusion - Massive (Original Mix)
+02. Tobz - Asa Dachi (Miles Dyson & Tobz Remix)
+03. Direkt - Grounded
+04. Playa Guitarra - Walk Along The Road - Ibiza Beach Mix(   Читать дальше...   )Жанр: House, Club House, Progressive HouseПродолжительность: 10:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02FECC3F4F07B340170AAD9AB9BD8028A8156305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014861   (775761) от 09.05.2016
 
 VA - Sleep Very Relaxing piano Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -566,180 +740,6 @@ VA - Новые хиты №8 (2016) [MP3|256 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D15D874CDFB770F23A706F7AD25913392C5E76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015431   (774920) от 10.05.2016
-
-VA - Song For My Woman Rock Blues Academy (2016) [MP3|320 кб/с] <Rock Blues, Country>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Beat Daddys - Livin' This Love
-002. The Rocky Athas Group - Slow Driver
-003. David Gogo - Why Don't You Show Me
-004. Hughes Taylor - You'll Never Be Alone(   Читать дальше...   )Жанр: Rock Blues, CountryПродолжительность: 09:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31A7DA343EFAE50C823FE3A005646F8DE5688C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212712   (774878) от 13.03.2018
-
-VA - Дискотека 2018 Dance Club Vol. 176 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1
-01. DJ Valdi Feat. Gemeni & April - Dead in an Hour (2:52)
-02. Maurice West & SaberZ - Rhythm Of The Night (Extended Mix) (4:37)
-03. Virtua Futura & Andy Lime - Way Home (Original mix) СUT (3:00)(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 14:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1450F502750227215EBCFD7610EEBFDD5CEE1793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015122   (774846) от 10.05.2016
-
-VA - Волна убойных хитов (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774846.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Reflex - Говори Со Мной
-002. Gwen Stefani - Used To Love You
-003. Ya-Ya - Bad Girls
-004. Ellie Goulding - Devotion(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D5C5C08D48CBD856689ED9F2843D353B871F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014693   (774776) от 10.05.2016
-
-VA - Радио ENERGY (NRJ) часть 3 (2015-2016) [MP3|192-320 кб/с] <Dance, Pop, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Achtabahn Feat. Beady - Like A New Love (Original Mix) (4:12)
-02. Alan Walker - Faded (Kryder & Tom Staar Remix) (4:50)
-03. Alesso feat. Nico & Vinz - I Wanna Know (Alesso x Deniz Koyu Remix) (5:25)
-04. AlunaGeorge - I'm in Control (feat. Popcaan) (3:30)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 05:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71219ACEB39861DABDF690F7AA103692F1E2ADA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014831   (774764) от 10.05.2016
-
-VA - Умная Электроника (Музыка Поднимающая Настроение) Часть 2 (Compiled by Zebyte) (2016) [MP3|256-320 кб/с] <Electro Swing, Deep House, Techno Swing>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Carrot Green - Ponto Gira (07:11)
-02 Mauro Telefunksoul E Lurdez Da Luz - Bassdaue (03:53)
-03 Nixtamal - Maria Theresa (03:55)
-04 Shazalakazoo - Chocheque (03:48)(   Читать дальше...   )Жанр: Electro Swing, Deep House, Techno SwingПродолжительность: 02:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653B9541B35DA19E36E31527863E37ECAA7D0244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212898   (774513) от 14.03.2018
-
-VA - Song For Isabelle (2018) [MP3|320 Kbps] <Psy, Goa, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774513.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Astrix, DJane Gaby - New Earth Portal Intro
-002. Blastoyz - Mandala
-003. Eat Static - Walkin' With Spirits
-004. Strange Blotter & Mystic - Ozrayen (Original Mix)(   Читать дальше...   )Жанр: Psy, Goa, TranceПродолжительность: 11:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B7EA3DBB1D471422A5CA3B4B68711510F609AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

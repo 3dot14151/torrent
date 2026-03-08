@@ -1,3 +1,61 @@
+###  Публикация: 1535011   (690525) от 04.03.2022
+
+Bryan Adams - Pretty Woman - The Musical (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Hollywood (3:38)
+02. Anywhere But Here (2:58)
+03. Something About Her (2:33)
+04. Luckiest Girl In The World (2:57)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2020A7D9599DEB5F793B6B8B1F8CB8E5A1B6FA6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534878   (690518) от 04.03.2022
+
+VA - GANGSTER MUSIC, Vol. 5 (2022) [MP3|320 Kbps] <Eurodance, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ONEIL/KANVISE - Requiem
+2. TRITICUM - The Spell
+3. Dj Quba/Sandra K - Flame Me
+4. Kitness - Time Will Come(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:665E0E0A46799A50BCB47C685C8E5971F7045FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403594   (690472) от 20.08.2020
 
 Joe Dassin - 41 Succes (1990) [FLAC|Lossless|image + .cue] <Pop, Chanson>
@@ -696,64 +754,6 @@ Rose & the Howling North - Cuckoo (2013) [MP3|320 Kbps] <Alternative, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B5A72FABF46D181EABD5E29903496EC325A7B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134324   (687084) от 16.05.2017
-
-Carla's Dreams - Antiexemplu (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Antiexemplu  3:32
-02.  Imperfect  3:34
-03.  Tu Si Eu (feat. INNA)  3:11
-04.  Ne Bucuram In Ciuda Lor  3:21(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BB72A9D2CFBF4D3A7F1F9AF02F92B21AD11E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134723   (687079) от 16.05.2017
-
-ВИА Гра - Стоп! Снято! (2003) [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стоп! Стоп! Стоп! [03:44]
-02. Good Morning, Папа! [03:34]
-03. Убей Мою Подругу [03:44]
-04. Не Оставляй Меня, Любимый! [03:31](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C932ABAED207624374F1E334F46072540F6749BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

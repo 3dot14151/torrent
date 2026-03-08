@@ -1,3 +1,178 @@
+###  Публикация: 1250851   (422644) от 29.09.2018
+
+VA - German Top 100 Single Charts 28.09.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422644.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynoro & Gigi D'Agostino - In My Mind
+002. Bonez MC & RAF Camora - Kokain (feat. Gzuz)
+003. Veysel - UFF (feat. Gzuz)
+004. Loredana & Mozzik - BONNIE & CLYDE(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B72F0D579F3C148BD6ED0B40164C7C6DF810F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411709   (422610) от 27.09.2020
+
+H.E.A.T - We Will Never Die (2020) Compilation, 2CD [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dangerous Ground
+02. We Will Never Die
+03. Come Clean
+04. Stay(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC78789345CBD49B6819CD8B17986E4CC832CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411967   (422606) от 27.09.2020
+
+VA - Beatport Electro House: Sound Pack #174 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422606.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joiodj - Don't Give Up
+002. Roby Barbieri - Erotic Soul
+003. Chris Geldard - Can You Feel It
+004. E1ghth Place - Glitching Out(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C824FB5E8697757DAF37229D0C2625FAA89B520A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946893   (422559) от 15.10.2015
+
+VA - Billboard Hot 100 Singles Chart (17-10-2015) [MP3|320 кб/с]<Pop, Rap, Euro, Indie, Folk, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422559.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последнее время  американский журнал Billboard стал публиковать свои  HOT 100 всё раньше и раньше, поэтому не удивляйтесь, что сегодня у них на календаре 17 октября. Billboard Hot 100 фактически является официальным хит-парадом США — самого крупного национального музыкального рынка в мире.
+За долгие годы после Битлз практически весь новый альбом What a Time To Be (   Читать дальше...   )01. The Weeknd - The Hills  (4:02)
+02. Justin Bieber - What Do You Mean ?  (3:28)
+03. Drake - Hotline Bling  (4:27)
+04. The Weeknd - Can't Feel My Face  (3:36)(   Читать дальше...   )Жанр: Pop, Rap, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA389DCB69C6F641CF056F80ECC30325AB0F67B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250856   (422538) от 29.09.2018
+
+VA - Just Dance For Magnetic (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gabz Sutanto - Re-Start
+002. Waves feat. Command Sisters - U Forever
+003. Noisebass - Where I Am
+004. DJ Erdal feat. Lu - Won't Call You Back (DJ Erdal)(   Читать дальше...   )Жанр: DanceПродолжительность: Dance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E729EBA13EFE01953F0C8C2D7AF6F43AA8878A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946977   (422481) от 15.10.2015
+
+Arabesque - Good Songs (2015) [MP3|320 кб/с]<Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Do You Ride The High Horse
+02. Bye Bye My Love
+03. The Hero Of My Life
+04. Sqaw(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 05:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B50EC9CF6A878BE82C088C274F6E004B0FC90E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411965   (422423) от 27.09.2020
 
 VA - 101 Rock Blues Foundation (2020) [MP3|320 Kbps] <Blues, Rock Blues>
@@ -595,180 +770,6 @@ VA - Empire Records - Sound Clinic 3 (2017) [MP3|320 Kbps] <Dance, Club, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AF19737FFB02B2FA4F3B4201DA5C622E0A71CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065496   (419512) от 23.10.2016
-
-VA - Big City Beats Vol.25 (World Club Dome 2016 Winter Edition) (2016) [MP3|256 Kbps] <House, Future House,  Nu Disco, Tropical, UK Garage, Bigroom>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big City Beats - Take off Vol. 25 (Intro)  2:19
-02. Le Shuuk - Infinity  3:19
-03. Galantis - No Money (Dillon Francis Remix)  4:42
-04. Hardwell & BlasterJaxx - Going Crazy (Extended Mix)  4:17(   Читать дальше...   )Жанр: House, Future House,  Nu Disco, Tropical, UK Garage, BigroomПродолжительность: 08:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9D26F5DED1A784EEBF96B6015C0B7F380F7B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065470   (419392) от 23.10.2016
-
-VA - German Top 50 Official Dance Charts 31.10. (2016) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris - My Way
-02. Armand Van Helden - Wings
-03. Ninetoes Vs. Fatboy Slim - Finder (Hope)
-04. Bob Sinclar & Daddy's Groove - Burning(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE84491BEB20E44E425717BAFC128B66FEB3710B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065697   (419341) от 23.10.2016
-
-VA - No Other Way: Hard Rock Digest (2016) [MP3|320 Kbps] <Alternative, Hard Rock, Metall>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419341.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. EverEve - The House Of The Rising Sun (The Animals)
-002. At Vance - Eye of The Tiger (Survivor)
-003. Volbeat - Black Rose
-004. Pellek - I Know You Don't Know(   Читать дальше...   )Жанр: Alternative, Hard Rock, MetallПродолжительность: 10:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4032CCD96A14294D4B2FF74BE53F7E025E3C9DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572576   (419319) от 28.08.2022
-
-VA - В машине с музыкой Vol.298 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3-ий Январь Feat. Hydy - Не Доверяя (02:10) 2022
-02. Deeperise Feat. & Jabbar  - Benim Icin Uzulme (03:28) 2022
-03. Killteq & D.hash - Satellites (02:17) 2022
-04. Pushnova  - Вечеринка (03:02) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82755BEA7BA3B7AC074B840B58F87F380B88EB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250047   (419287) от 30.09.2018
-
-VA - Русское ретро 80х -90х от ALEXnROCK часть 1 (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419287.jpg" />
-</div>
-
-
-###  Подробнее
-
-В собрание вошла самая клевая музыка конца 80х, начала 90х. Все треки взяты с фирменных CD изданий, некоторые ремастер..Это 1я часть коллекции. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK001 Кар Мэн - Чио Чио Сан
-002 Фристайл - Прощай навеки, последняя любовь
-003 Лада Дэнс - Танцы у моря
-004 Юрий Антонов - Зеркало(   Читать дальше...   )Жанр: PopПродолжительность: 02:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6D265BE4C39C9A0C93D458AD42B8291EC45D4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250977   (419281) от 30.09.2018
-
-VA - Club Dance Ambience Vol.164 (2018) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419281.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. #2Маши -  Босая  (Dj Matuya & Romamio Remix)
-002. AI Charlie - EEl Tango (Original Mix)
-003. Alesso Ft. Conor Maynard - Remedy (Original Mix)
-004. ANRVIT - Rush! (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:23:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C5FDDDA386EC7DB847A8CC41CEFBA59DDFBEF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

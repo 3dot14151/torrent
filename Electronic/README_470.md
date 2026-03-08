@@ -1,3 +1,61 @@
+###  Публикация: 1707138   (113432) от 15.03.2024
+
+Synthia - VI (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mecha Rage 2.0 [00:04:37]
+02. Dead Romance [00:04:42]
+03. Medueceah [00:02:49]
+04. Light Stealer [00:03:03](   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD71FA40B5ED0BE5DEDC90A8DAA29E2610DEDCC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707135   (113429) от 15.03.2024
+
+Paranoid London - Arseholes, Liars, and Electronic Pioneers (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People (Ah Yeah) with Bobby Gillespie [00:04:30]
+02. Love One Self with Joe Love [00:04:36]
+03. Up Is Down with DJ Genesis [00:04:42]
+04. Steal & Adapt (or) [00:04:34](   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B36EA6B14FEC7ABD4A0CEA7DC23FB6433B4B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707200   (113428) от 15.03.2024
 
 Armin van Buuren - Tomorrowland Friendship Mix (2024-03-14) [MP3|320 Kbps] <Trance>
@@ -687,62 +745,6 @@ VA - Chillout Music 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6917099AE375915539B5E89C9FB10D89A92253C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709611   (112789) от 25.03.2024
-
-VA - Balance pres: Dave Seaman & Quivver (Mixed) - 2024 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 продолжительностью 01:09:33
-1. Charles Webster & Ursula Rucker – Begin Anew (Quivver & Dave Seaman Beginapella)Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C51EAF8C830638C61E2624A2FBF4298C047C84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710350   (112742) от 26.03.2024
-
-VA - Chillout & Lounge Music for Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silbermaus - Flawless Elegance (4:32)
-02. Premasara Council - Reflective Dream (4:24)
-03. Quadra Montres - Widening Horizons (4:22)
-04. Proxy Brides - Binomial Expressions (4:27)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 02:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE5C37A4CC0ACADCFC71398E503BBA1AC64B9E84
 ```
 
 https://mybot314.ru/tekegram_catalog/

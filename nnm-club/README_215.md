@@ -1,25 +1,22 @@
-###  Публикация: 1850323   (1054199) от 27.01.2026
+###  Публикация: 1849634   (1054284) от 26.01.2026
 
-The Imaginaries - Fever (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
+Анастасия Ватутина | Стылая вода. Круговорот (Часть 3) (2025) [MP3, Юлия Драгунова]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054199.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Fever (2:56)
-02.  The Imaginaries feat. Ariel Posen - Wishing Well (4:05)
-03.  The Imaginaries feat. Joe Bonamassa - Crossroads (3:48)
-04.  The Imaginaries feat. Vince Gill - Whole Lotta Livin' (2:20)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:42:07
+Если бы вам предложили разом избавиться от всего, что причиняет вам боль, вы бы согласились? Стоя на берегу стремительно несущейся реки, Яна раздумывала, правильно ли поступает, соглашаясь принять участие в ритуале. За ее спиной слышался монотонный голос ведьмы, ледяной ветер трепал распущенные волосы, а темные глубины манили и звали, обещая покой и забытье… И как (   Читать дальше...   )Жанр: Детектив, ТриллерИздательство: ЛитРесПродолжительность: 06:48:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C345D411BC7218A30AD5877B463494D66DAE9495
+magnet:?xt=urn:btih:2A75CACCB31E030025C19661C7A2B4CCB70626B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850320   (1054198) от 27.01.2026
+###  Публикация: 1849633   (1054283) от 26.01.2026
 
-Компаньон / Companion (2025) BDRip [H.264/1080p]
+Анастасия Ватутина | Плач-камень. Круговорот (Часть 2) (2025) [MP3, Юлия Драгунова]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054198.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Айрис всегда считала, что лучший момент в её жизни — встреча с её нынешним парнем Джошем. Они вместе приезжают в шикарный особняк рядом с озером, где отдыхают его друзья. Компания весело проводит время, а на утро Джош ссылается на головную боль и настаивает, чтобы Айрис без него отправилась к озеру. То, что там происходит, и последующие события переворачивают мир (   Читать дальше...   )Производство: США / BoulderLight Pictures, New Line Cinema, Vertigo EntertainmentЖанр: фантастика, триллер, комедияРежиссер: Дрю ХэнкокАктеры: Софи Тэтчер, Джек Куэйд, Лукас Гейдж, Меган Сури, Харви Гильен, Руперт Френд, Джабук Янг-Уайт, Мэттью Дж. МакКарти, Марк Менчака, Вуди ФуПеревод: Дублированный (Movie Dubbing), многоголосый (TVShows, HDrezka)Язык озвучки: Русский, английскийСубтитры: Русские (Fоrced, Full), английские (Full, Forced, SDH)Продолжительность: 01:37:05
+После событий последних месяцев Яна чувствует, что ей необходим отдых и свежий воздух. Вместе с подругой она отправляется в недавно открывшийся загородный отель с причудливым названием Плач-камень. Никто из них не ожидал, что спонтанный отпуск превратится в самый настоящий кошмар, а Яна окажется подозреваемой в совершении ритуального убийства.Жанр: Детектив, мистика, триллерИздательство: ЛитРесПродолжительность: 07:02:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F745C97275A7D1F5AD42A84E72EDEB206ED13B4D
+magnet:?xt=urn:btih:554D25D12A6A701BA24C0EF77678B4C60349363B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850321   (1054197) от 27.01.2026
+###  Публикация: 1850061   (1054282) от 31.01.2026
 
-Компаньон / Companion (2025) BDRip [H.264/720p]
+О. Зверева, В. Сальников | Операционная система Windows: администрирование и настройка рабочей среды пользователя (2025) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054197.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Айрис всегда считала, что лучший момент в её жизни — встреча с её нынешним парнем Джошем. Они вместе приезжают в шикарный особняк рядом с озером, где отдыхают его друзья. Компания весело проводит время, а на утро Джош ссылается на головную боль и настаивает, чтобы Айрис без него отправилась к озеру. То, что там происходит, и последующие события переворачивают мир (   Читать дальше...   )Производство: США / BoulderLight Pictures, New Line Cinema, Vertigo EntertainmentЖанр: фантастика, триллер, комедияРежиссер: Дрю ХэнкокАктеры: Софи Тэтчер, Джек Куэйд, Лукас Гейдж, Меган Сури, Харви Гильен, Руперт Френд, Джабук Янг-Уайт, Мэттью Дж. МакКарти, Марк Менчака, Вуди ФуПеревод: Дублированный (Movie Dubbing), многоголосый (TVShows, HDrezka)Язык озвучки: Русский, английскийСубтитры: Русские (Fоrced, Full), английские (Full, Forced, SDH)Продолжительность: 01:37:05
+Учебно-методическое пособие ориентировано на студентов информационных образовательных направлений, но будет также полезно всем, кто использует на своих персональных компьютерах операционную систему Windows. Одной из первых задач в работе на персональной технике – это настройка ее так, чтобы было удобно работать в созданной среде. Кроме описания практических приемов (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: УМЦ-УПИФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34119736A72F8906A377A91ABC3CD858D5DB1214
+magnet:?xt=urn:btih:EA81DEDEE62B91D38A7279FB77EE67C9BF22C726
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +76,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850322   (1054196) от 27.01.2026
+###  Публикация: 1850063   (1054281) от 26.01.2026
 
-Компаньон / Companion (2025) BDRip [H.264]
+Greg Beaumont | Power BI Machine Learning and OpenAI. Explore data through business intelligence, predictive analytics, and text generation (2023) [PDF, EPUB] [EN]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054196.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Айрис всегда считала, что лучший момент в её жизни — встреча с её нынешним парнем Джошем. Они вместе приезжают в шикарный особняк рядом с озером, где отдыхают его друзья. Компания весело проводит время, а на утро Джош ссылается на головную боль и настаивает, чтобы Айрис без него отправилась к озеру. То, что там происходит, и последующие события переворачивают мир (   Читать дальше...   )Производство: США / BoulderLight Pictures, New Line Cinema, Vertigo EntertainmentЖанр: фантастика, триллер, комедияРежиссер: Дрю ХэнкокАктеры: Софи Тэтчер, Джек Куэйд, Лукас Гейдж, Меган Сури, Харви Гильен, Руперт Френд, Джабук Янг-Уайт, Мэттью Дж. МакКарти, Марк Менчака, Вуди ФуПеревод: Дублированный (Movie Dubbing)Язык озвучки: РусскийСубтитры: Русские (Fоrced, Full), английские (Full, Forced, SDH)Продолжительность: 01:37:05
+Unleash the full potential of Power BI with the integration of AI and machine learning techniques using OpenAI
+Key Features
+Take flight with Power BI machine learning and OpenAI using hands-on examples from the FAA airline data
+Unlock the full potential of Power BI for advanced analytics using OpenAI(   Читать дальше...   )Жанр: Computing & Internet Databases, Computing & Internet ProgrammingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EA8538AD46E249FDFD05555D0503A25B8A50C0B
+magnet:?xt=urn:btih:9A058BF3DEF5F9568074DBEE7CCBDBD5B5AC7BE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850300   (1054195) от 27.01.2026
+###  Публикация: 1850102   (1054280) от 26.01.2026
 
-Emsisoft Emergency Kit 2025.7.0.12683 Portable [Multi/Ru]
+John S. Duncan, Davide Giampiccolo | MRI Neuroanatomy. Cortex, Nuclei and Connections (2026) [PDF] [EN]
 
->>Безопасность
->>Разное (остальные программы по безопасности)
+>>Научная и техническая литература
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054195.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный портативный комплект антивирусных программ, который может быть использован без установки и Интернета для сканирования с помощью движков Bitdefender и Emsisoft, а также лечения зараженного компьютера от вредоносного ПО, используя USB-флешку.
-Состав Emsisoft Emergency Kit:
-- Emergency Kit Scanner (сканер)
-- Commandline Scanner (сканер, работающий из командной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+The dogma that brain function relied on the cortex has dominated clinical neurology, neurosurgery and psychiatry for the last 100 years. Since the start of the 2000s, it has become evident that brain function is orchestrated as a network through white matter connections. This framework provides an understanding of brain function and dysfunction, and has radically (   Читать дальше...   )Жанр: Нейрохирургия, НеврологияЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03D6142355EC524F0A9C4ACE8FB231DBDC2FF91A
+magnet:?xt=urn:btih:6C18C1E3D029111CECB17B34E46FD4F85A19F36A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,53 +131,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850192   (1054194) от 01.02.2026
+###  Публикация: 1850099   (1054279) от 26.01.2026
 
-Зверополис 2 / Zootopia 2 (2025) WEB-DL [H.264/1080p]
+Lee Ambrosius | AutoCAD & AutoCAD LT All-in-One For Dummies. 2nd Edition (2026) [PDF] [EN]
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054194.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кролик-полицейский Джуди и лис Ник идут по следу загадочной рептилии, чьё прибытие в Зверополис переворачивает жизнь города с ног на голову. Чтобы раскрыть дело, Джуди и Ник вынуждены работать под прикрытием в разных районах города.Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, комедия, детектив, приключения, семейныйРежиссер: Джаред Буш, Байрон ХовардАктеры: Джиннифер Гудвин, Джейсон Бейтмен, Ке Хюи Куан, Форчун Феймстер, Энди Сэмберг, Дэвид Стрэтэйрн, Идрис Эльба, Иветт Николь Браун, Кинта Брансон, Томми ЧонгПеревод: Дублированный (MovieDalen)Субтитры: русские (Forced, Full), английские (SDH)Продолжительность: 01:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A5D5AD024A24DDA8976625C27818AF2F03989C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850326   (1054193) от 27.01.2026
-
-Проекты - VideoHive - Minimal Tech Text Animation | Intro - 61555176 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minimal Tech Text Animation | Intro — это лаконичная, современная и профессиональная типографическая заставка в стиле технологической тематики, разработанная для ИИ, технологий, стартапов, приложений, рекламных роликов программного обеспечения и цифровых брендов.
+An easy-to-read and up-to-date collection of resources explaining the most recent versions of AutoCAD and AutoCAD LT
 
-Эта анимация выполнена в минималистичном стиле, с использованием анимированных техно-линий, геометрического (   Читать дальше...   )Формат: AEP
+In the brand-new second edition of AutoCAD & AutoCAD LT All-in-One For Dummies, consultant and industry expert with more than 30 years of experience using and extending AutoCAD along with being a 20-year veteran of AutoCAD education, Lee Ambrosius, (   Читать дальше...   )Жанр: Computer Aided Design, 3-D Graphics Software, Business & Home SoftwareЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4BC0F5582B5016957CA292EB603FE79C0158C39
+magnet:?xt=urn:btih:6F164AD5F762D3E464736866B4C24AFDC174EB6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,25 +159,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850330   (1054192) от 27.01.2026
+###  Публикация: 1850096   (1054278) от 26.01.2026
 
-Пресеты - Etsy - Soft White - 1540865205 [XMP, DNG]
+С.Н. Никифоров | Прикладное программирование. Учебное пособие (2021) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054192.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 пресетов Lightroom Soft White для мобильных устройств и компьютеров для ваших творческих задач.Формат: XMP, DNG
+Учебное пособие предназначено для помощи студентам при выполнении лабораторных работ в среде Excel и VBA. Комментируются некоторые особенности программирования, приводятся и поясняются варианты программ. Предназначено для студентов всех специальностей.Жанр: Компьютерная литература, ExcelИздательство: ЛаньФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19F4404B5FC003D32879C559BA936417E5A95B1F
+magnet:?xt=urn:btih:734600A2D00DFE6D18101047112A18F4D1D2F1A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -214,25 +185,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850331   (1054191) от 27.01.2026
+###  Публикация: 1850095   (1054277) от 26.01.2026
 
-Сайлент Хилл 2 / Silent Hill: Revelation (2012) BDRip [H.264/1080p-LQ] [Open Matte] [handmade AI]
+Steven Sanderson, David Kun | Extending Excel with Python and R. Unlock the potential of analytics languages for advanced data manipulation and visualization (2024) [PDF, EPUB] [EN]
 
->>Остальное
->>hand made * video
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054191.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хизер терзается ночными кошмарами с одиннадцатилетнего возраста и вынуждена со своим отцом постоянно менять место жительства, скрываясь от таинственных сил. Накануне своего восемнадцатого дня рождения Хизер, вернувшись домой, обнаруживает, что её отец исчез. Единственное, что она нашла дома — нарисованный на стене оккультный символ с надписью «отправляйся в Сайлент (   Читать дальше...   )Производство: Канада, Франция, Япония / Anibrain Digital Technologies, KonamiЖанр: ужасы, триллер, детективРежиссер: Майкл Дж. БассеттАктеры: Аделаида Клеменс, Кит Харингтон, Дебора Кара Ангер, Мартин Донован, Малкольм МакДауэлл, Кэрри-Энн Мосс, Шон Бин, Рада Митчелл, Роберто Кампанелла, Эрин ПиттПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:34:30
+Seamlessly integrate the Python and R programming languages with spreadsheet-based data analysis to maximize productivity
+
+Book Description
+– Extending Excel with Python and R is a game changer resource written by experts Steven Sanderson, the author of the healthyverse suite of R packages, and David Kun, co-founder of Functional Analytics.(   Читать дальше...   )Жанр: Data Modeling & Design, Data Processing, Computer ScienceЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7952F77E9B007CB447FA98425B614A12582A8905
+magnet:?xt=urn:btih:5F40A3C3FA44C75DBC6BA2E4368E727740C3C46A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -240,25 +214,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850332   (1054190) от 27.01.2026
+###  Публикация: 1850092   (1054276) от 26.01.2026
 
-Узкая грань / Narrow Margin (1990) BDRip [H.264]
+Owen Heaume | Getting Started with Pester 5. A Beginner's Guide (2024) [PDF, EPUB] [EN]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054190.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одинокая молодая женщина Кэрол Ханикат, согласившись на уговоры друзей, мечтавших выдать ее замуж, отправляется на свидание вслепую с адвокатом Майклом Тарлоу, но неожиданно становится единственной свидетельницей его убийства. Узнав из новостей, что Майкл - адвокат знаменитого гангстера Лео Уотса, который и был одним из убийц, женщина понимает, что отныне ее жизнь (   Читать дальше...   )Производство: США / Carolco Pictures Inc.Жанр: боевик, триллер, криминалРежиссер: Питер ХайамсАктеры: Джин Хэкмен, Энн Арчер, Джеймс Сиккинг, Дж.Т. Уолш, М. Эммет Уолш, Сьюзэн Хоган, Найджел Беннетт, Дж.А. Престон, Б.А. «Смитти» Смит, Коди Лукас УилбиПеревод: Многоголосый профессиональный (R5), двуголосый профессиональный (Фильмэкспорт/ОРТ), авторский (Ю.Живов, В. Горчаков)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:37:16
+Embark on a transformative journey into the world of Pester and elevate your PowerShell scripting to new heights of robustness, reliability, and efficiency. This comprehensive beginner's guide provides a hands-on approach to PowerShell testing using Pester, empowering you to enhance your code quality with confidence.
+The book starts with an introduction to Pester, (   Читать дальше...   )Жанр: Microsoft C & C++ Windows Programming, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC021998BD56F37D84FB0D9DF5C23131C7654EE7
+magnet:?xt=urn:btih:3DE324CDB2C9097FD2A13F92DF841B49AE0DD254
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -266,25 +241,241 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850333   (1054189) от 27.01.2026
+###  Публикация: 1850093   (1054275) от 26.01.2026
 
-Последний викинг / Den sidste viking / The Last Viking (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit]
+Alessandro Grimaldi | Advanced interactive interfaces with Access. Building Interactive Interfaces with VBA (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Explore and learn advanced techniques for working with graphical, interactive interfaces that can be built in Access.
+This book starts with best practices and tips to write code using VBA, and covers how to implement them in a real-world scenario. You will learn how to create and use VBA classes. An introduction to the binary code and the "bit vector" technique (   Читать дальше...   )Жанр: Microsoft VBA, Microsoft ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F975C6C919F08B75D274DE2206FCF0C3F17C0A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850094   (1054274) от 26.01.2026
+
+Jack A. Hyman | Microsoft Power Platform For Dummies (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Build business intelligence with insight from a professional
+
+Microsoft Power Platform For Dummies covers the essentials you need to know to get started with Microsoft Power Platform, the suite of business intelligence applications designed to make your enterprise work smarter and more efficiently. You'll get a handle on managing and reporting data with Power BI, (   Читать дальше...   )Жанр: Business Intelligence Tools, Microsoft Office Guides, Microsoft ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D49B95C58DC7671BB642E9A3840E585763408B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850091   (1054273) от 26.01.2026
+
+К. Скотт Проктор | Бюджетирование и финансовые расчеты с помощью Microsoft Excel (2013) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой практическое руководство по использованию мощного инструмента (Microsoft Excel) для выполнения любой сложной задачи, например, построения финансовой модели. Кратко и внятно рассказывается об использовании электронных таблиц в финансовом планировании и бизнес-расчётах. Несмотря на быструю смену версий электронных таблиц базовые функции, (   Читать дальше...   )Жанр: Компьютерная литература, Microsoft ExcelИздательство: СмартБукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888492F75AA326B63439B822C431CA4A19B12439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850089   (1054272) от 26.01.2026
+
+Vikas Sukhija | PowerShell Fast Track. Hacks for Non-Coders. 2nd Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Create complex scripts in PowerShell and learn how to connect them to cloud services like Azure and Azure AD. This updated version of the book will help you learn PowerShell by providing small “cheat” snippets that you can combine to write efficient and effective scripts.Жанр: Microsoft Programming, Computer HackingЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9766ABB2681C26B5E440C98BC315D5DF4CB3176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850087   (1054271) от 01.02.2026
+
+В.Ю. Арьков | Командная строка CMD. Учебное пособие (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучая операционные системы, важно и понимать теорию, и уметь практически работать на компьютере. Функции любой операционной системы сводятся к понятию управления. Реализация этих функций — это выбор интерфейса пользователя: командная строка, файловый менеджер или оконная система. В курсе ОС мы рассматриваем все три вида интерфейса — практически, но с пониманием (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A002012015C22EC7D8C80F4D83D738B5F16885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850086   (1054270) от 26.01.2026
+
+Dawn Griffiths | Excel Cookbook. Recipes for Mastering Microsoft Excel (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filled with tips, tricks, and techniques, this easy-to-use book is the perfect resource. You'll find more than 350 recipes for over a dozen topics covering formulas, PivotTables, charts, Power Query, and more. Each recipe poses a particular problem and outlines a solution that you can put to use right away—without having to comb through tutorial pages.
+
+Whether you're (   Читать дальше...   )Жанр: Microsoft Excel Guides, Business Intelligence Tools, Spreadsheet BooksЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577AABC8F56449D4B999EBB0B224C7AC6E25ED11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850078   (1054269) от 26.01.2026
+
+Н. Комолова, А. Клименко | Программирование на VBA в Excel 2019 (2020) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга научит самостоятельно создавать приложения для автоматизации работы в программе Microsoft Office Excel 2019 с использованием макросов и языка программирования Visual Basic for Applications (VBA). Приведена информация о новинках программы, а также сервисах Power по работе с данными. Даны теоретические сведения о программировании, элементах объектной модели Excel, (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A19FEFF4886410EF021BAAE64FA366A79F232FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850064   (1054268) от 26.01.2026
+
+Gregory Deckler, Rick de Groot, Melissa de Korte | The Definitive Guide to Power Query (M). Mastering complex data transformation with Power Query (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn how to use the Power Query M formula language and its functions effectively for better data modeling and impactful business intelligence reports.
+Key Features
+Get comprehensive coverage of fundamental and advanced Power Query concepts
+Gain hands-on experience with practical examples based on real-world problems(   Читать дальше...   )Жанр: Microsoft Excel Guides, Enterprise Applications, Data ProcessingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E971C9FB35A8FF269FD187DEB95FBF42EF7922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850208   (1054267) от 26.01.2026
+
+Иллюзия обмана 3 / Now You See Me: Now You Don't (2025) WEB-DL [H.264/1080p]
 
 >>Горячие новинки
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054189.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Анкер выходит на свободу по УДО после 15 лет тюрьмы за ограбление, и ему срочно нужно забрать деньги, добытые в том деле. Перед арестом он попросил своего брата Манфреда закопать украденное в условленном месте в лесу рядом с домом их матери. Но за прошедшие годы у Манфреда ещё сильнее развилось психическое расстройство, теперь он просит называть себя Джоном Леноном (   Читать дальше...   )Производство: Дания, Швеция / Film Fyn, Film i Väst, Zentropa EntertainmentsЖанр: драма, комедия, криминалРежиссер: Андерс Томас ЙенсенАктеры: Мадс Миккельсен, Николай Ли Каас, Николас Бро, Софи Гробёль, Ларс Ранте, Кардо Радзаци, Ларс Брюгманн, Сёрен Маллинг, Анетт Стёвельбек, Бодиль ЁргенсонПеревод: Дублированный (Ultradox Studio), Многоголосый (ВПОДПОЛЬЕ), Двуголосый (Pazl Voice), Авторский (Ю.Сербин)Язык озвучки: Русский, ДатскийСубтитры: Русские, Датские (forced, full)Продолжительность: 01:50:57
+«Четыре всадника» возвращаются вместе с молодым поколением иллюзионистов, демонстрируя головокружительные трюки, магию и превращения, каких еще не видел мир.Производство: США, ОАЭ, Канада, Венгрия / Epic Films, Lionsgate Productions Ltd., Reese Wernick Productions, Summit EntertainmentЖанр: триллер, криминалРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Michael Chestnut, Дэйв Франко, Айла Фишер, Джастис Смит, Доминик Сесса, Ариана Гринблатт, Майкл Кейн, Розамунд Пайк, Морган Фриман, Доминик ОллбёрнПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Fоrced, Full), английские (Full, SDH)Продолжительность: 01:52:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDD9CC6D248B91610FF01AD314847F45516479CD
+magnet:?xt=urn:btih:52BA11D089E2B2DDB6C76B8E05BF59D59A546874
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,25 +483,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850334   (1054188) от 27.01.2026
+###  Публикация: 1850209   (1054266) от 26.01.2026
 
-Тегеран / Tehran (2020-2022) WEBRip [AV1/1080p] (сезон 1-2, серии 1-16 из 16) TVShows
+Иллюзия обмана 3 / Now You See Me: Now You Don't (2025) WEB-DL [H.264/720p]
 
->>Зарубежные сериалы
->>
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054188.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-это напряженный израильский шпионский триллер, рассказывающий о Тамар Рабиньян, агенте «Моссада» и хакере, которая проникает в Тегеран, чтобы отключить ПВО Ирана перед авиаударом по ядерному реактору. Миссия срывается, и героиня оказывается в ловушке, вынужденная действовать самостоятельно, спасаясь от иранской контрразведки.Производство: Израиль, США, Великобритания, Греция / Donna and Shula Productions, Paper Plane Productions, Shula Spiegel ProductionsЖанр: боевик, триллер, драма, криминалРежиссер: Даниэль СыркинАктеры: Нив Султан, Шон Тоуб, Шервин Аленаби, Йоала Бринсон, Шила Омми, Араш Маранди, Вассилис Кукалани, Тамир Гинсбург, Менаш Ной, Лираз ЧархиПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, Иврит, АнглийскийСубтитры: русские (forced, full), украинские, иврит (forced, full, SDH), английские (forced, full, SDH)Продолжительность: ~00:44:00 серия
+«Четыре всадника» возвращаются вместе с молодым поколением иллюзионистов, демонстрируя головокружительные трюки, магию и превращения, каких еще не видел мир.Производство: США, ОАЭ, Канада, Венгрия / Epic Films, Lionsgate Productions Ltd., Reese Wernick Productions, Summit EntertainmentЖанр: триллер, криминалРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Michael Chestnut, Дэйв Франко, Айла Фишер, Джастис Смит, Доминик Сесса, Ариана Гринблатт, Майкл Кейн, Розамунд Пайк, Морган Фриман, Доминик ОллбёрнПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Fоrced, Full), английские (Full, SDH)Продолжительность: 01:52:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06B2052915ED64015BA7FF77A0F474D0FCC695ED
+magnet:?xt=urn:btih:C8830DADF7E622DAEA29E753EE8DC087FAB00212
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,25 +509,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850340   (1054187) от 27.01.2026
+###  Публикация: 1850211   (1054265) от 26.01.2026
 
-Большой побег / Великий побег / The Great Escape (1963) BDRip [H.264/720p]
+Иллюзия обмана 3 / Now You See Me: Now You Don't (2025) WEB-DLRip [H.264]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054187.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Адаптированный по одноимённой книге Пола Брикхилла (1950), основанной на действительных событиях, фильм изображает сильно беллетризованную версию массового побега из немецкого лагеря военнопленных британского Содружества наций во время Второй мировой войны... В особом лагере для военнопленных, подведомственном Люфтваффе, Геринг отбирал союзный лётный персонал отдельно (   Читать дальше...   )Производство: США / Mirisch Company, United ArtistsЖанр: драма, военный, боевик, историяРежиссер: Джон СтёрджесАктеры: Стив МакКуин (I), Джеймс Гарнер, Ричард Аттенборо, Чарльз Бронсон, Джеймс Коберн, Дэвид МакКоллэм, Ханнес Мессемер, Дональд Плезенс, Гордон Джексон, Джеймс Дональд, Джон Лейтон, Энгус Ленни, Найджел Сток, Роберт Граф, Джад ТейлорПеревод: профессиональный двухголосый (R5; НТВ+), авторский (Михаил Яроцкий), профессиональный одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:52:28
+«Четыре всадника» возвращаются вместе с молодым поколением иллюзионистов, демонстрируя головокружительные трюки, магию и превращения, каких еще не видел мир.Производство: США, ОАЭ, Канада, Венгрия / Epic Films, Lionsgate Productions Ltd., Reese Wernick Productions, Summit EntertainmentЖанр: триллер, криминалРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Michael Chestnut, Дэйв Франко, Айла Фишер, Джастис Смит, Доминик Сесса, Ариана Гринблатт, Майкл Кейн, Розамунд Пайк, Морган Фриман, Доминик ОллбёрнПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: Русские (Fоrced, Full), английские (Full, SDH)Продолжительность: 01:52:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83C3C6F4D637F347360CF6607CA74BA18A0BC9F9
+magnet:?xt=urn:btih:EA5A5393B6103F36A43088DC855AA33C8AD5519E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,25 +535,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850286   (1054186) от 27.01.2026
+###  Публикация: 1850122   (1054264) от 27.01.2026
 
-Notepad++ 8.9.1 Final + Portable [Multi/Ru]
+Восемь / 8 (2025) WEBRip [H.264/1080p] [MVO]
 
->>Утилиты, Офис, Интернет
->>Офисное ПО
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054186.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Октавио и Адела рождаются в момент провозглашения Второй Испанской Республики. Их жизни будут пересекаться восемь раз, отражая в непростой любви пары бурную историю всей Испании.Производство: Испания / Latido Films, Eidan Produce, Bilbao Bizkaia Film Commission, Barbazul La Pelicula AIE, Diputación Foral de Bizkaia, Media Gameworks, Morena Films S.L., Radio Televisión Española (RTVE), Movistar+Жанр: драмаРежиссер: Хулио МедемАктеры: Хавьер Рей, Тамар Новас, Лорето Маулеон, Карла Диас, Мария Исаси, Альваро МортеПеревод: Многоголосый (Официальный)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D80D19FDEF98330A344F88A56E96C1E91FB726C
+magnet:?xt=urn:btih:17F7A634E8AA2FD28C885C7AABF4BD6B6A40BA4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,236 +561,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850338   (1054185) от 27.01.2026
+###  Публикация: 1850216   (1054263) от 26.01.2026
 
-Охота на волков / Out Come the Wolves (2024) HDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супруги Софи и Нолан отправляются пожить в лесном домике. Нолан, кулинарный обозреватель, хочет написать материал об охоте и еде из дичи. Чтобы помочь мужу разобраться в азах охоты, Софи приглашает своего давнего друга Кайла, опытного охотника. Вскоре становится ясно, что Кайл испытывает к Софи не только дружеские чувства, что создаёт напряжение и пробуждает ревность (   Читать дальше...   )Производство: Канада, США / December Films, High Park EntertainmentЖанр: ужасы, триллер, драмаРежиссер: Адам МакдональдАктеры: Мисси Перегрим, Джорис Джарски, Дэймон РунянПеревод: Многоголосый (OKKO)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C94A6A313237D309FCFDDA93AC77A472CBCFC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850336   (1054184) от 27.01.2026
-
-Охота на волков / Out Come the Wolves (2024) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супруги Софи и Нолан отправляются пожить в лесном домике. Нолан, кулинарный обозреватель, хочет написать материал об охоте и еде из дичи. Чтобы помочь мужу разобраться в азах охоты, Софи приглашает своего давнего друга Кайла, опытного охотника. Вскоре становится ясно, что Кайл испытывает к Софи не только дружеские чувства, что создаёт напряжение и пробуждает ревность (   Читать дальше...   )Производство: Канада, США / December Films, High Park EntertainmentЖанр: ужасы, триллер, драмаРежиссер: Адам МакдональдАктеры: Мисси Перегрим, Джорис Джарски, Дэймон РунянПеревод: Многоголосый (Кипарис)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB3D26EC5D322E45EACC5E099C0B4B4F3DFA140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850335   (1054183) от 27.01.2026
-
-Охота на волков / Out Come the Wolves (2024) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супруги Софи и Нолан отправляются пожить в лесном домике. Нолан, кулинарный обозреватель, хочет написать материал об охоте и еде из дичи. Чтобы помочь мужу разобраться в азах охоты, Софи приглашает своего давнего друга Кайла, опытного охотника. Вскоре становится ясно, что Кайл испытывает к Софи не только дружеские чувства, что создаёт напряжение и пробуждает ревность (   Читать дальше...   )Производство: Канада, США / December Films, High Park EntertainmentЖанр: ужасы, триллер, драмаРежиссер: Адам МакдональдАктеры: Мисси Перегрим, Джорис Джарски, Дэймон РунянПеревод: Многоголосый (OKKO)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE3921E633350237496DC59E1B366645661D94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850343   (1054182) от 27.01.2026
-
-Зловещие мертвецы 2 / Evil Dead II (1987) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эш возвращается в дом в лесу. Его подружка одержима демонами и больше не принадлежит себе. Эш в одиночку вынужден опять сражаться со злом.Производство: США / Renaissance PicturesЖанр: ужасы, комедия, фэнтезиРежиссер: Сэм РэймиАктеры: Брюс Кэмпбелл, Сара Берри, Дэн Хикс, Кэсси ДеПайва, Тед Рэйми, Дениз Бикслер, Ричард Домайер, Джон Пикс, Лу Хэнкок, Сноуи Уинтерс и др.Перевод: Многоголосый профессиональный (Киномания)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D649630847BE73CBA9DCC1C7804500E4679B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850288   (1054181) от 27.01.2026
-
-Евгений Водолазкин | Инструмент языка. О людях и словах (2015) [MP3, Надежда Винокурова]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евгений Водолазкин — филолог, автор работ по древнерусской литературе и... прозаик, финалист «Большой книги» и Премии Андрея Белого за роман «Соловьев и Ларионов». Живет в Санкт-Петербурге.
-Реакция филологов на собрата, занявшегося литературным творчеством, зачастую сродни реакции врачей на заболевшего коллегу: только что стоял у операционного стола и — пожалуйста (   Читать дальше...   )Жанр: ПублицистикаИздательство: Нигде не купишьПродолжительность: 07:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41910CC34C3F212E568AEE51273ADF9FFC90660C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850298   (1054180) от 27.01.2026
-
-Федор Углов | Будни хирурга. Человек среди людей (2022) [MP3, Михаил Локшин]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Федора Углова «Будни хирурга» выходившая в СССР под названием «Человек среди людей» – это не только медицинский детектив, не только точное воссоздание жизни и быта людей советской эпохи, но, прежде всего, бесценное свидетельство мужества самоотверженности и доброты врача. Главные герои книги Федора Григорьевича – его пациенты. В каждой строчке чувствуется то, (   Читать дальше...   )Жанр: Биографии и мемуарыИздательство: АСТПродолжительность: 11:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C95EB06A0BD810F9F5E0B0E1443D6202553F18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850290   (1054179) от 27.01.2026
-
-Дейл Карнеги | Как наслаждаться жизнью и получать удовольствие от работы (2021) [MP3, Андрей Крупник]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054179.jpg" />
-</div>
-
-
-###  Подробнее
-
-По всему миру проданы миллионы книг Дейла Карнеги!
-В чем состоит секрет популярности американского педагога, писателя и мотивационного оратора XX века?
-Ответ прост: его методы и советы сегодня работают так же эффективно, как и десятки лет назад, когда они помогли миллионам людей начать жить полноценной и гармоничной жизнью! Если вы еще не знакомы с ключевыми работами (   Читать дальше...   )Жанр: ПсихологияИздательство: AB PublishingПродолжительность: 06:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93634990D559A98D62713F327505EA33D28ED9DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850348   (1054178) от 28.01.2026
-
-Folder Guard Pro 26.1 [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Folder Guard - программа для защиты информации, хранящейся на жестком диске, и предотвращения несанкционированного доступа к компьютеру. Позволяет "спрятать" папки и файлы, а также ввести авторизацию пользователей на компьютере. Кроме этого, с помощью Folder Guard можно установить пароли для доступа к определенным папкам или к компьютеру в целом, ограничить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060E1D61CE95516DF1E0EBB242B02B2944FF6357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850349   (1054177) от 27.01.2026
-
-Zoom Player MAX 22.0.1 Build 2201 RePack (& Portable) by TryRooM [Multi/Ru]
+Fast Video Cutter Joiner 6.9.7.0 Portable by 7997 [Multi/Ru]
 
 >>Мультимедиа и Графика
->>Видео Плееры и Кодеки
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054177.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Zoom Player - мощный, гибкий и настраиваемый DVD/Blu-ray и медиа плеер для операционных систем Windows. Проигрывает DIVX, MP3, MPA, WAV, WMA, ASF, ASX, AVI, DAT, MPG, MPEG, VOB, WM, WMV. Поддерживает плейлисты, управление горячими клавишами и из командной строки, полноэкранный режим работы, маcштабирование широкоэкранного фильма для удаления полос снизу и сверху (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский.
+Fast Video Cutter Joiner - программа 2-в-1 для быстрой резки и объединения видео с простым в использовании интерфейсом. Позволяет быстро обрезать части видео, сохраняя при этом качество исходного. Пользователь также может объединить несколько видеофайлов.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:855B92A5ABFDC58F10A8A47D52AAB90BA155316F
+magnet:?xt=urn:btih:C540D06C00A96D7D821A51B5A9B20110017B6470
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,25 +587,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850289   (1054176) от 27.01.2026
+###  Публикация: 1850221   (1054262) от 26.01.2026
 
-Микаэль Дален, Хельге Торбьёрнсен | Числоголики. Как числа порабощают нас, и почему нам пора вырваться на свободу (2025) [MP3, Вадим Прохоров]
+VA - Winter Drive On FM Waves (2026) [MP3|320 Kbps] <Pop, Dance>
 
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054176.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Узнайте, как цифры влияют на наше восприятие, решения и даже судьбу, и научитесь использовать их, а не подчиняться им! Числа – одно из важнейших изобретений человечества, ставших неотъемлемой частью цивилизации. Однако числа могут быть не только полезны, но и опасны, коварны. Они захватили наш мир, заставили верить именно им, а не словам, пусть даже самым убедительным. (   Читать дальше...   )Жанр: ПсихологияИздательство: АСТПродолжительность: 05:09:06
+001. Ezra Jot - Bang O Bang (03:31)
+ 002. Little Rainy - Be Closer (03:01)
+ 003. Paul B.Ny - Clouds In My Coffee (02:05)
+ 004. George Mars - Crown On (02:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:00:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C18B6385AAE5E7F710166B29EF4127020D7D263
+magnet:?xt=urn:btih:0764271979D9E17BEADF535E9402E2E3DB346AD0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,25 +616,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850307   (1054175) от 03.02.2026
+###  Публикация: 1850225   (1054261) от 26.01.2026
 
-Winnie's Hole (2026) [Ru/Multi] (0.7.79) Repack Let'sРlay [Early Access]
+Роберт Хайнлайн | Вне всяких сомнений (2026) [MP3, ReadMic]
 
->>Win Игры
->>Demo/Beta версии Игр
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054175.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тело всеми любимого медведя Винни контролирует злобный вирус, и этот вирус – ты! Захватывай здоровые клетки, мутируй и собирай колоду действий, чтобы использовать их в пошаговых боях. Возможности носителя не безграничны. Но твои способности к адаптации помогут предолеть эти ограничения. И помни: монстры кроются даже в лучших из нас.Тип издания: RepackРазработчик: Twice DifferentЖанр: Инди, Стратегии,Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+Ещё одна тайна раскрыта! Ничто не скроется от взгляда учёных, обладающих пытливым умом. Наконец-то можно выдохнуть и сказать: "Теперь-то мы знаем секрет голов истуканов с острова Пасхи!".Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:30:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCBAC617A89475511EAD935CC6BE181270F1AF31
+magnet:?xt=urn:btih:6040811E230D18ADB0D324D29485531FD7C498E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,28 +642,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850353   (1054174) от 27.01.2026
+###  Публикация: 1850228   (1054260) от 26.01.2026
 
-Megadeth - Megadeth (2026) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash>
+Melissa Bonny - Cherry Red Apocalypse (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054174.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У меня слабость к Megadeth. Среди так называемых классических групп это одна из немногих, которую я иногда могу слушать, не уставая; Я точно не могу сказать то же самое о многих других группах, с которыми вырос. Я ценю все записи группы в той или иной степени, и даже период Megadeth в 2000-х был удивительно крепким по сравнению с соперниками. Несмотря на несколько (   Читать дальше...   )01. Tipping Point 4:28
-02. I Don't Care 3:09
-03. Hey, God?!3:28
-04. Let There Be Shred 3:58(   Читать дальше...   )Жанр: ThrashПродолжительность: 00:52:45
+01. I'm a Monster [00:03:15]
+02. Snake Bite [00:03:25]
+03. Devil On My Tongue [00:03:18]
+04. The Teeth Of My Thieves [00:03:56](   Читать дальше...   )Жанр: Alternative-MetalПродолжительность: 00:45:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85201FF16593D53B26C42D994401164DC0FFCA24
+magnet:?xt=urn:btih:BDCFB7F016419843FE5E3A35F5554AFBFDD242FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850232   (1054259) от 26.01.2026
+
+Проекты - VideoHive - Camera Movement Transitions - 61545525 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимите свои видеопроекты на новый уровень с помощью шаблона Camera Movement Transitions — профессионально разработанного видеошаблона, созданного для получения потрясающих визуальных результатов с минимальными усилиями. Этот шаблон создан с учетом гибкости и простоты использования, что делает его подходящим для создателей любого уровня — будь вы создатель контента, (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D41584F96D583CE72644B08F5B72CF11680557
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1703741   (114807) от 01.03.2024
+
+Marian McPartland - Windows (1979, 1980) 2CD, 2004, Concord Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You [5:19]
+02. Willow Weep for Me [6:27]
+03. Windows [6:35]
+04. In the Days of Our Love [4:45](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8919DB000303F5C92F70D4C697769A29B5F2677F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703478   (114806) от 01.03.2024
 
 Marian McPartland & Friends - 85 Candles: Live In New York (2005) 2CD, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
@@ -716,35 +745,6 @@ Cedar Walton - Composer (1996) Astor Place [FLAC|Lossless|tracks + .cue] <Hard B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90757FED6897F0565F350C219D2373C42AF5A418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704623   (114109) от 05.03.2024
-
-Cedar Walton Trio - Plays Billy Strayhorn (1974, 1988) 2009, Jazz Ball Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upper Manhattan Medical Group [7:19]
-02. Chelsea Bridge [5:56]
-03. Take the 'A' Train [7:55]
-04. Lush Life [4:41](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4075AF5DEF93CC4E0A5D7F0C50D580D55EA0FB5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

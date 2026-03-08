@@ -1,3 +1,90 @@
+###  Публикация: 590711   (874201) от 09.04.2020
+
+Black Label Society - Hangover Music vol. VI (2004) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Or High [03:33]
+02. Queen Of Sorrow [04:15]
+03. Steppin Stone [04:54]
+04. Yesterday, Today, Tomorrow [03:42](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:66:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83046DE0FD9ACE5FFD4A167A3081A7372D2EC6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997454   (873910) от 17.03.2016
+
+Augrimmer - Moth and the Moon (2016) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873910.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Yonder
+2. Moth and the Moon
+3. Sultana
+4. The Lament of Gods 2(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5197F5F78DB9BE9B234F3FB7CEAD14A145636535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997449   (873907) от 17.03.2016
+
+Urgehal - Aeons in Sodom (2016) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dødsrite
+02. The Iron Children
+03. Blood of the Legion
+04. The Sulphur Black Haze(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D643E6C9FDB07BABAABA5AC8809050EB72459D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106319   (873829) от 19.02.2017
 
 Eden's Curse - The Second Coming (2008) Limited Edition [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Power Metal, Hard Rock>
@@ -664,93 +751,6 @@ Bring Me The Horizon - 6 Альбомов (2005-2013) Дискография [FL
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998025   (870317) от 19.03.2016
-
-Doro - Force Majeure (1989) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Whiter Shade of Pale (03:52)
-02. Save my Soul (03:53)
-03. World Gone Wild (03:44)
-04. Mission of Mercy (04:03)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637C509AFEF9CB56F108617D1BC781782596F5AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106781   (870076) от 21.02.2017
-
-Angel House - The Gun, The Love & The Cross (2009) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  This Spirit  (04:00) 
-02|  Iron Rails  (04:13) 
-03|  Day By Day  (04:44) 
-04|  House Of Law  (03:54) (   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EA7368CC8828C166126EBA9E5DACDEB015730C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496749   (869938) от 19.09.2021
-
-Inhuman Condition - Rat°God (2021) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Euphoriphobia
-02. The Neck Step
-03. Planetary Paroxysm
-04. Killing Pace(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68ABA89A24DF26381FE28082D83931CC37E00C53
 ```
 
 https://mybot314.ru/tekegram_catalog/

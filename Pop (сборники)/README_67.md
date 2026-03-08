@@ -1,3 +1,32 @@
+###  Публикация: 1043102   (574574) от 15.08.2016
+
+VA - Super Summer Hits 2016 (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unique Groove Feat. Ivy Channel - At Night (Radio Edit)
+02. Nils van Zandt Feat. Sharon Doorson - Feel Like Dancing (Radio Edit)
+03. Italobrothers - Kings And Queens (Video Edit)
+04. R.I.O. Feat. U-Jean - Cheers To The Club (Video Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1247CE0A93879081B8B61C41C757D24682E2E6F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043028   (574424) от 15.08.2016
 
 VA - Русское радио. Убойное лето №4 (2016) [MP3|256 Kbps] <Pop>
@@ -734,35 +763,6 @@ VA - Summer Pop Mania 50+50 (2017) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FBA85D1C9F8B6663F6816636E46141B0DF0472D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044186   (567457) от 19.08.2016
-
-VA - Летний Заводной Музон 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567457.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Френды - Смотри Как Я Танцую
-002. Fallulah - Vandalain
-003. Денис Барканов - Доченька
-004. Drowning Pool - Push(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DD0F3D2C6D7A72B23418ED97403E9F74EBBB78
 ```
 
 https://mybot314.ru/tekegram_catalog/

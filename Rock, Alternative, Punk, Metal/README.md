@@ -1,5 +1,34 @@
 https://t.me/izofen
-###  Публикация: 1857607   (1059932) от 
+###  Публикация: 1857883   (1060028) от 07.03.2026
+
+Triumpher - 3 Albums (2023-2026) [FLAC|Lossless|WEB-DL|tracks] <Epic heavy metal, Power metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Triumpher (2023) Storming The Walls (FLAC)
+Triumpher (2024) Spirit Invictus (FLAC)
+Triumpher (2026) Piercing The Heart Of The World (FLAC)Жанр: Epic heavy metal, Power metalПродолжительность: 3 CD, 02:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126AF1FD1D8F3445164A649353318E426EE41D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857607   (1059932) от 06.03.2026
 
 Sting - Mercury Falling (1996) 2026 Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 
@@ -28,7 +57,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857766   (1059854) от 
+###  Публикация: 1857766   (1059854) от 07.03.2026
 
 Sanctity - Road to Bloodshed (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash, Nu Metal, Heavy Metal>
 
@@ -57,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857703   (1059848) от 
+###  Публикация: 1857703   (1059848) от 07.03.2026
 
 Coldplay - X&Y (2005) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Pop Rock>
 
@@ -86,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857677   (1059847) от 
+###  Публикация: 1857677   (1059847) от 07.03.2026
 
 Lost Society - Hell Is A State Of Mind (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Alternative-Metal>
 
@@ -202,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857556   (1059691) от 
+###  Публикация: 1857556   (1059691) от 06.03.2026
 
 Proportions - Stories Untold (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
@@ -231,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857593   (1059625) от 
+###  Публикация: 1857593   (1059625) от 06.03.2026
 
 From Ashes Reborn - Chasing Utopia (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
@@ -260,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857604   (1059622) от 
+###  Публикация: 1857604   (1059622) от 07.03.2026
 
 Zed Yago - At The Edge Of The World (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
@@ -717,35 +746,6 @@ VA - Breakthrough (Underground Sounds Of 1971) (2021) 4 x CD, Box Set [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB3E8F7F13C4975BD5FBCDF99852AA0D663C8941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856301   (1059095) от 28.02.2026
-
-Jari Lindholm - Trajectories (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Derelict (05:30)
-02 - The Underpass (03:48)
-03 - Nostalgia (05:23)
-04 - Mare Balticum (04:21)(   Читать дальше...   )Жанр: Melodic Death Metal, InstrumentalПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84ABE46A55623567AFBCBDED2C31D870D35D6011
 ```
 
 https://mybot314.ru/tekegram_catalog/

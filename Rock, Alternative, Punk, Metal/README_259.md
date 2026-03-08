@@ -1,32 +1,3 @@
-###  Публикация: 775649   (821819) от 10.04.2014
-
-VA - Classic Rock Magazine #196: Love It Loud (2014) [FLAC|Lossless]<Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Clasic Rock Magazine постоянно в качестве приложений выпускает CD диски с записями молодых, энергичных и амбициозных рок-музыкантов. 17 энергичных треков на диске под общим названием Love It Loud (Любите его громко) дадут представление о современном роке. Кстати, не ассоциируется ли у вас название этого диска и известнейшей вещицы Kiss - I Love It Loud? И (   Читать дальше...   )01. Massive - One By One  (3:55)
-02. Wild Eyes S.F. - Get Into It!  (4:08)
-03. Arson - Love On A Leash  (3:40)
-04. The Electric Bliss - I've Got To Go  (3:13)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A969DFED31BD636BCC8F6D9F8805E574A71F4BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007560   (821616) от 15.04.2016
 
 Bailout - ...As the Winds Blow On (2016) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Heavy Metal>
@@ -741,6 +712,32 @@ Halestorm - Live In Philly (2010) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C221EFB8FC642E89691955896DB0D0B8E02D3D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 313423   (820731) от 27.03.2011
+
+Slade - Discography+ (1969-2003)[MP3|320 kbps]<Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: GlamПродолжительность: 01:07:51:21
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

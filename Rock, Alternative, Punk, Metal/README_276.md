@@ -1,32 +1,3 @@
-###  Публикация: 1120383   (801921) от 31.03.2017
-
-Starset - Vessels (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Symphonic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Starset - американская рок группа, из Колумбуса, штата Огайо, играющая в стилях альтернативного, электронного и симфонического рока. Группа была образованна в 2013 году вокалистом группы Downplay. В этом же году они выпустили 2 сингла Carnivore и My Demons. Трек пользовался большой популярностью, песня забралась на 5 строчку в "Mainstream Rock" чарте, и (   Читать дальше...   )01. The Order (1:08)
-02. Satellite (3:59)
-03. Frequency (4:41)
-04. Die For You (5:17)(   Читать дальше...   )Жанр: Alternative Rock, Symphonic Rock, Hard RockПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD50BC73E42A74D498B58EC9E6124AC13A7644A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199233   (801846) от 15.01.2018
 
 Ereb Altor - By Honour (2008) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal, Epic Metal, Viking Metal>
@@ -743,6 +714,35 @@ David Reece - Blacklist Utopia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B676F6C09BAF62D86282AF8E506D4AD9B9510CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506133   (801731) от 29.10.2021
+
+Edguy - Mandrake (2001) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears of a Mandrake 7:12
+02. Golden Dawn 6:07
+03. Jerusalem 5:27
+04. All the Clowns 4:48(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6AA2559C960461ABC56644124181276E01AAA6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

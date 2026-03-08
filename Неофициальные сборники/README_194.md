@@ -1,3 +1,177 @@
+###  Публикация: 1211239   (777874) от 06.03.2018
+
+VA - Empire Records - Magic House 3 (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Physical Dreams  -  Back To You (Original Mix)  8:10
+02.  Chicane vs. Barberella  -  How Does Your House Work (Danny Dove Extended Remix)  5:12
+03.  Red Dreams  -  Fall in Love (Waveform & Filter Mix)  5:34
+04.  Giara  -  Gloomy Night (Original Mix)  3:52(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141F87AE33820099B5D33956792E77A6823AC081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013575   (777681) от 04.05.2016
+
+VA - Pulsed Future House Sounds (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazibiza Feat. Greg Note -  Sunshine Day (Jay C & Dave Rose Remix)  6:48
+02. David Vrong ft Amaelle -  Breaking Out (Extended Mix)  5:42
+03. Christopher S, Gino G & Alex Costanzo feat. Roby Rob -  Planets (feat. Roby Rob) (Radio Mix)  3:48
+04. Bounce Bro feat. Destiny -  My Life (Radio Edit)  3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD4803CDFE594BCC239D6DFABE613148A701BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013484   (777678) от 04.05.2016
+
+VA - True Trance Sounds High Shades (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren & Cosmic Gate -  Embargo  5:19
+02. Relocate Vs Robert Nickson & Sarah Russell -  Survivor (Original Mix)  7:18
+03. Dennis Sheperd Feat. Betsie Larkin -  Let It Rain (Original Mix)  6:48
+04. Nomosk -  Fortuna (Iversoon & Alex Daf Remix)  6:08(   Читать дальше...   )Жанр: TranceПродолжительность: 08:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1939FD72A027097BDE94558C6822503AFDBE0904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013301   (777674) от 04.05.2016
+
+VA - Rave Mix (2016) [MP3|320 кб/с] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack -  Turn Up The Speakers  3:04
+02. Autoerotique -  I Get Up  2:47
+03. Axel Boy -  3rd degree  4:49
+04. Axwell -  Barricade (Radio Edit)  4:56(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 04:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B83041AED32A387F830CA5AF860A1B73A618DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013617   (777670) от 04.05.2016
+
+VA - LUXEmusic Топ Апрель (2016) [MP3|320 кб/с] <Club House, Dance, Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	2Pac - California Love (Yastreb Remix)
+02.	Astero & Margo Sarge - What We Are (Original Mix)
+03.	Blu Cantrell Feat. Sean Paul - Breathe (RemPhil & Leo Bass Remix)
+04.	Coldplay - Adventure Of A Lifetime (DJ Zhukovsky Remix)(   Читать дальше...   )Жанр: Club House, Dance, Deep House, Electro HouseПродолжительность: 02:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2147DDACCA1C881891952838D0AA1736B06AC202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013091   (777668) от 04.05.2016
+
+VA - Workout Hits Shade (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ylona -  Blazing Fire (Club Mix)  3:22
+02. Thomas Strack -  Halt mich fest 2k16 (Bonustrack)  3:57
+03. Rufus -  Say A Prayer for Me (Alex Metric Remix)  7:13
+04. Twoloud -  Affected (Dance Radio Mix)  3:29(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 05:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46FD5DAB0F35B3FBE5EE541E2262320BB4CA1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013519   (777665) от 04.05.2016
 
 VA - 100 Ultimate Dance Hits (2016) [MP3|320 кб/с] <House, Club, Dance>
@@ -571,180 +745,6 @@ VA - 8 марта: Лучшие песни для неё (2018) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFB7151A03003AC3CF944684153E0432B39A22A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013016   (777413) от 04.05.2016
-
-VA - Club Dance Ambience vol.67 (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777413.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avoid & Chris Wittig -  Conclusion (Dualxess & Dj Mst Remix)  5:17
-002. al l bo -  Intergalactic (MAVIE Instrumental Remix)  4:53
-003. al l bo -  Intergalactic (MAVIE Remix)  4:53
-004. Alan Walker -  Faded (DJ Favorite & DJ Kharitonov Radio Edit)  3:35(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:28:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7201C80D66053016283E2F3F9085B62E432DCDDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013740   (777344) от 05.05.2016
-
-VA - Festival Anthems Club EDM (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scotty -  On the Move (Cj Stone Edit)  2:57
-02. StadiumX -  Mombasa (Radio Edit)  3:17
-03. Alejandro Yanni -  Grenade (Original Mix)  5:25
-04. Saccao & Stage Rockers feat. Ryan Konline -  Sweetest Memory (Radio Edit)  3:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84ADB5E60EAF6A8BE7F98F61D44B832558055081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013647   (777343) от 05.05.2016
-
-VA - Straight Up Ear Candy Vol. 2 (2016) [MP3|320 кб/с] <Electro House >
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MitiS, Fathom - Breathe feat Fathom (Original Mix) [3:12]
-02. SugarBeats - Moon Walker feat Veronica RockStar [5:06]
-03. Khai - Do You Go Up (Madnap Remix) [3:29]
-04. Kicks n Licks - Young ft Adara (Original Mix) [4:09](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2409B666BA543C9B7B08EB471FB5FFA35D2DEEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013720   (777333) от 05.05.2016
-
-VA - 50 Dance Club Full of Essential Music (2016) [MP3|320 кб/с] <Club, Hands Up, Dancecore>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Housegeist -  This Dreams (Orange & Blue Remix)  3:58
-02. Boyz From TBG -  The Fatherland (Radio Edit)  3:44
-03. DJ Jawesome -  Street Sharks (Radio Edit)  3:29
-04. Floorfilla With P. Moody -  On & on (Radio Edit)  3:27(   Читать дальше...   )Жанр: Club, Hands Up, DancecoreПродолжительность: 03:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838AB6A7BA0F61A729F7D35B49595CB2C68FE053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013187   (777315) от 05.05.2016
-
-VA - Top Club Music World Hits Vol.75 (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777315.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Thomas Newson & Asonn Ft. Brad Mair - Home Is Where The Heart Is (Edit) (02:41)
-2. R3hab - Hakuna Matata (Hardwell Radio Edit) (02:46)
-3. Twoloud - Boston (Radio Edit) (02:55)
-4. Sam Feldt - Been A While (Madison Mars Remix Edit) (03:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16740E968B02B195C9C2C835D12B488EA4865C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013772   (777314) от 05.05.2016
-
-VA - International Web-Radio Playlist (Dance) (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danky & Brain - Chasing Cars (Radio Mix) (feat. Jenny Joao)
-02. Empir3 - Ride Like the Wind (Blutraxx's Remix) (feat. Pit Bailay)
-03. Marc Mounier - There Were Times (Radio Version)
-04. Honeyz - Definitely Something (Soulshaker Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D489F06754E85F022197CBDF55F6C3D7E3A85685
 ```
 
 https://mybot314.ru/tekegram_catalog/

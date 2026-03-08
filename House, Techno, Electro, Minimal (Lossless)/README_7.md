@@ -1,3 +1,90 @@
+###  Публикация: 1350774   (1003023) от 07.01.2020
+
+DJ Eric Foster - Night Light (2004) [FLAC|Lossless|image + .cue] <House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Milky Way
+03. Plastmassa
+04. Speed(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78995F6CCE3FC95689CCA20197967B7DBCE9779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350595   (1003012) от 07.01.2020
+
+Dinka - A Date With Dinka (2014) 2CD, DJ Mix, Compilation [FLAC|Lossless|tracks + .cue] <Progressive House, EDM>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roul and Doors – Assiduity
+02. Marcus Schossow, Mike Hawkins & Pablo Oliveros – Ulysses
+03. Deniz Koyu – Ruby
+04. Roul and Doors – Melody In Harmony(   Читать дальше...   )Жанр: Progressive House, EDM |Продолжительность: 01:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E14DED0F1005FB2C3225D2A58711DE2874B764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487953   (1002856) от 08.08.2021
+
+LTN - The Path Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nowhere To Run (3:56)
+ 02. Zodiac Sign (ft. ENZO) (LTN Sunrise Mix) (3:12)
+ 03. Happy Life (ft. Aelyn) (3:30)
+ 04. Rise Like Smoke (ft. Kyler England) (LTN Sunrise Mix) (3:24)(   Читать дальше...   )Жанр: EDM, Progressive House, TranceПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC3530CA6128656FDD1AFAEF1490E7D054920BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487917   (1002826) от 08.08.2021
 
 Saive - Closer (2021) Click Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive House>
@@ -653,93 +740,6 @@ Jody Wisternoff - 4 Singles (2012) [FLAC|Lossless]<Progressive House, House, Dee
 03. Just One More (MANIK Remix) (6:07)
 04. Just One More (Martin Roth Remix) (5:57)
 05. Just One More (Radio Edit) (3:45)Жанр: Progressive House, House, Deep HouseПродолжительность: 00:30:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609958   (991146) от 28.01.2013
-
-Mario Basanov - Journey (2012) [FLAC|Lossless]<House, Deep House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caribbean Girl (9:12)
-02. Lonely Days (7:06)
-03. Just Think About (7:06)
-04. Do You Remember (7:33)
-05. We Are Child Of Love (5:49)
-06. Sheiker (6:12)Жанр: House, Deep House, DiscoПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608308   (990498) от 29.01.2013
-
-Jamie Stevens - The Night Before (2003) [FLAC|Lossless]<Progressive House, Progressive Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Before (Original Mix) 09:30
-02. The Night Before (Momu Remix) 09:34Жанр: Progressive House, Progressive BreaksПродолжительность: 00:19:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606874   (990447) от 29.01.2013
-
-Lawrence - Jill (2009) [FLAC|Lossless]<Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 		Jill 	6:53
-02. 		Jill (Reprise) 	4:06
-03. 		Hamtramck 	6:39
-04. 		Sunrise 	4:24Жанр: Deep HouseПродолжительность: 00:22:01
 
 ## Скачать торент
 ```bash

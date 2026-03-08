@@ -1,32 +1,3 @@
-###  Публикация: 1380945   (829308) от 05.05.2020
-
-Emsisoft Emergency Kit 2020.5.0.10152 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный портативный комплект антивирусных программ, который может быть использован без установки и Интернета для сканирования с помощью движков Bitdefender и Emsisoft, а также лечения зараженного компьютера от вредоносного ПО, используя USB-флешку.
-Состав Emsisoft Emergency Kit:
-- Emergency Kit Scanner (сканер)
-- Commandline Scanner (сканер, работающий из командной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E782E64709B57F1FEEDBFD59815851190A5E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380992   (829307) от 05.05.2020
 
 Windows 10 Manager 3.2.6.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -701,6 +672,41 @@ VA - House Vip (24.04.10) [MP3|320 kbps]<Electro House>
 08. Rainbow Warfare - Feels Alright (Dread I Remix) (4:30)
 09. Rivaz Feat. Laurent N - Everybody Dance (Original Mix) (4:59)
 10. South Blast! vs. Freeland - We Want Sex (Original Bootleg Mix) (5:33)(   Читать дальше...)Жанр: Electro House
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 196049   (829039) от 26.04.2010
+
+VA - House Vip (23.04.10) [MP3|320 kbps]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadmau5 - Ghosts N'Stuff (DJ Viduta Remix) (5:51)
+02. Dirty Midget - Electro Party (Original Mix) (6:09)
+03. Electro Own - Dance Eletric You (Original Mix) (5:47)
+04. Fabio Considera - Just Push (Manuel Costa and DJ Falaska Remix) (7:01)
+05. Fred Worx - High Volume (Original Mix) (6:45)
+06. Funkastarz - Going To London (Mark Laurenz Remix) (5:33)
+07. Hot Noizes - Sun Is Shining (Original Mix) (4:27)
+08. Jamiroquai - Deeper Underground (DJ Denis Rublev & DeRom Remix) (5:54)
+09. Julian Airia - Freak Me Baby (Original Mix) (6:45)
+10. We Love Bitches! (Thomas You Remix) (5:39)(   Читать дальше...)Жанр: Electro House
 
 ## Скачать торент
 ```bash

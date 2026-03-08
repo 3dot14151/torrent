@@ -1,3 +1,32 @@
+###  Публикация: 1344631   (167252) от 14.12.2019
+
+Shinnobu - The Enigma VI (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return to Myself (5:01)
+02. Beyond the After (6:16)
+03. Kissing the Moon (5:33)
+04. Deep Inside of Me (5:29)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7DA0708B56CE47E74DAF567A53A0ECA55DCFA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344634   (167218) от 14.12.2019
 
 Shinnobu - The Enigma VII (Star Seeds) (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Neo-Classical>
@@ -715,35 +744,6 @@ VA - Иисус Христос - Суперзвезда (Театр им. Мос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E2C1A25EF93045BDD5A94A7E11DC1E4121DA6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674875   (160639) от 07.11.2023
-
-Pasărea Colibri - Ciripituri (1996) [APE|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Renunюare veselг 1:20
-02. Peste rгbdгri 3:46
-03. Оn tren 3:20
-04. Ploaia care va veni 3:12(   Читать дальше...   )Жанр: FolkПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B9602661BE49259FDA09C707D4D2878AF3244F
 ```
 
 https://mybot314.ru/tekegram_catalog/

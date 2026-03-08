@@ -1,3 +1,125 @@
+###  Публикация: 555902   (426414) от 05.10.2012
+
+VA - Радио DFM: Горячие Ремиксы (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426414.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Kerim Muravey - Лето, Лето (Original Mix)
+ 002. Артур Пирожков - Красивая Песня (Dj Favorite & Dj Kristina Mailana Summer Radio Edit)
+ 003. Андрей Губин - Время Романтиков 2012 (Dj Fisun Remix)
+ 004. Т9 - Ода Нашей Любви (Dj Generous Remix)
+ 005. Mixadance Pro - Feeling (Oleg-Off & Jim Remix)
+ 006. Бурановские Бабушки - Party For Everybody (Official Eurovision 2012 Dj Slon Party Remix)
+ 007. Nikita - Авокадо (Dj Jedy Radio Remix)
+ 008. Ева Польна - Я Тебя Тоже Нет (Je T'aime) (Dj Smash Chinkong Remix)
+ 009. Dj Smash Feat. Винтаж - Moscow (Dj Miller Radio Edit)
+ 010. All Давай Feat. Dj Ihlas - Москва-Дубай(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 11:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6D1A64AC57FBDBB2CDD4EAF7316F3D54791E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250224   (426135) от 27.09.2018
+
+VA - Discostory Of The 90's (2018) [MP3|320 Kbps] <Eurodance, Eurobeat, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Bobo - Let The Dream Come True (Radio Mix)
+02. Bellini - Samba De Janeiro (Radio Edit)
+03. Masterboy - Is This The Love (Radio Edit)
+04. 2 Brothers On the 4th.Floor - Dreams (Will Come Alive)(   Читать дальше...   )Жанр: Eurodance, Eurobeat, TechnoПродолжительность: 08:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5915DA288514A0091959E0653F2252D7D4869E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064612   (426082) от 20.10.2016
+
+VA - Rock Blues Temptation (2016) [MP3|320 Kbps] <Rock Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426082.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eric Clapton - Little Queen Of Spades
+002. Muddy Waters - The Same Thing
+003. Sugar Pie Desanto - Soulful Dress
+004. Chuck Berry - Nadine(   Читать дальше...   )Жанр: Rock BluesПродолжительность: 07:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456AA58A0B892DC7020010317ADBDBBD58D70E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166295   (425966) от 16.09.2017
+
+VA - Легенды Ретро FM Vol.1 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Disco, Eurodance, Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425966.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Art Company - Susanna  4:48
+002.  Bobby McFerrin - Don't Worry, Be Happy  4:50
+003.  Ace Of Base - The Sign  3:09
+004.  Secret Service - L.A. Goodbye  3:19(   Читать дальше...   )Жанр: Disco, Eurodance, Pop, RockПродолжительность: 07:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3927F00D27FB3C904E67FB4D4A2A964EB75AF226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166451   (425965) от 16.09.2017
 
 VA - Легенды Ретро FM Vol.2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Disco, Eurodance, Pop, Rock>
@@ -654,128 +776,6 @@ VA - Club Dance Ambience Vol.164 (2018) [MP3|320 Kbps] <Dance, Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51C5FDDDA386EC7DB847A8CC41CEFBA59DDFBEF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065279   (419216) от 23.10.2016
-
-VA - Orient Express (2016) [MP3|320 Kbps] <Arabic, Lounge, Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastien Casanova - Cloudy Others (feat. Arthur Alfocea) 4:07
-02. Terakaft - Karambani 3:23
-03. A-WA - Habib Galbi 3:22
-04. Viken Arman - Souq 6:21(   Читать дальше...   )Жанр: Arabic, Lounge, ChilloutПродолжительность: 01:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2020EBD8AE7F2F0BA2E594580CE0E76DA4669E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572581   (419141) от 28.08.2022
-
-VA - В машине с музыкой Vol.297 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seo - Адам И Ева (03:54) 2022
-02. Макс Вертиго - Полжизни За Рулём (03:38) 2022
-03. Trfn Feat. & Siadou - Make Your Move (02:15) 2022
-04. Luckysmoke Feat. & Lxe & Haebal - Не Моя Вина (02:22) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B41DE3F328A982232C21F1F989BD53E730DB94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167188   (419076) от 19.09.2017
-
-VA - 1000 Разных Групп & ВИА ХХ Века (от Ovvod7) Vol.01 (2017) [MP3|320 Kbps] <Pop, Rock, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419076.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Мираж - Я Больше Не Прошу  3:57
-002.  Комбинация - Не Забывай  3:55
-003.  Иван Купала - Кострома (Remix)  5:20
-004.  Инспектор - Звезда По Имени Солнце  5:06(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 11:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9515157E01208E898AE477AF26D63653FB152C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557672   (418508) от 08.10.2012
-
-VA - Сборник Советского Рока (2012) [MP3|320 кб/с]<Rock, Punk, Heavy Metal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorky Park - Bang
-02. Агата Кристи - Танго с дельтапланом
-03. ДДТ - Церковь
-04. Кино - Звезда по имени Солнце
-05. Мастер - Воля и Разум
-06. Сектор газа - Ой, ты травушка зелёная
-07. Чёрный Кофе - Чёрный кофе
-08. Телевизор - Дальний Восток
-09. Разные Люди - Будь! (Пиво и рыба)
-10. Пикник - Иероглиф(   Читать дальше...   )Жанр: Rock, Punk, Heavy MetalПродолжительность: 23:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CFED5F340757ADD3BC8F15792E6E5D6FA24119
 ```
 
 https://mybot314.ru/tekegram_catalog/

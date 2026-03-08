@@ -1,32 +1,3 @@
-###  Публикация: 1004135   (840202) от 05.04.2016
-
-Novembre - Ursa (2016) [MP3|320 кб/с] <Progressive Metal, Doom-Death Metal, Dark Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840202.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Australis
-2. The Rose
-3. Umana
-4. Easter(   Читать дальше...   )Жанр: Progressive Metal, Doom-Death Metal, Dark MetalПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB70EF2C9DBB399E8C33DDDCA491A1C7C1E4B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004329   (840200) от 05.04.2016
 
 The Steepwater Band - Shake Your Faith (2016) [MP3|320 кб/с] <Southern Rock, Blues Rock>
@@ -752,6 +723,35 @@ Leviathan - Scar Sighted (2015) [FLAC|Lossless]<Black Metal/Dark Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D01399C08D311F7D73C6CBFE06952EAD73CA9693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 878935   (838935) от 17.03.2015
+
+Celldweller - End of an Empire. Chapter 03: Dreams (2015) [FLAC|Lossless]<Industrial Metal, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Faction 07 (Instrumental)  00:31
+02 - Good L_ck (Yo_'re F_cked) (Instrumental) 03:36
+03 - Just Like You (Instrumental)  05:04
+04 - Faction 09 (Instrumental)  03:21(   Читать дальше...   )Жанр: Industrial Metal, ElectronicПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9315DA9145B2F1F8D660F55124A795792912D185
 ```
 
 https://mybot314.ru/tekegram_catalog/

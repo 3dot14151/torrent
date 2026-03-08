@@ -1,3 +1,177 @@
+###  Публикация: 1274945   (791699) от 09.01.2019
+
+VA - Overload: Pop Rock Music (2019) [MP3|320 Kbps] <Indi, Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791699.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Avantgardet - Walk Of Shame
+002. Hazey Eyes - Scars (Ukiyo Remix)
+003. Horses Without Makeup - Forget About Chlorine
+004. Vasas Flora Och Fauna - Leevi & The Leavings(   Читать дальше...   )Жанр: Indi, Pop, RockПродолжительность: 09:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2013A3998D6A30D313D2757F623A4D8D9BB2735B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274895   (791696) от 09.01.2019
+
+VA - Soul Connection: True Love (2019) [MP3|320 Kbps] <DnB, Dubstep>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791696.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Highpro - Conflict (Original Mix)
+002. Vital - Clarted
+003. Brookes Brothers - Every Minute
+004. Bakground - Clubjammerz(   Читать дальше...   )Жанр: DnB, DubstepПродолжительность: 08:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E2EA826115FC4093822893F3098DF839A73943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274897   (791690) от 09.01.2019
+
+VA - Epic Future House (2019) [MP3|320 Kbps] <Electro House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791690.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cache - Commander (Phoenix)
+002. Data Punk - Hellsclub (Original Mix)
+003. Kacper Kirtz - Chrome
+004. Ant. Shumak - For a Long Time There Is No Snow(   Читать дальше...   )Жанр: Electro House, EDMПродолжительность: 14:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A2B37C106E037C5A85B151092932DAACE84717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274898   (791688) от 09.01.2019
+
+VA - Jazz Christmas (2019) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthony Shadduck - Law Years
+02. Bobby Broom - Come Together
+03. Cotonete - Layla
+04. Pier-O - Love Jazz (For The Weekend)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F3A05278F4E62893D145F39DA5E60A3E736F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274944   (791668) от 09.01.2019
+
+VA - Moon River Instrumental Piano (2019) [MP3|320 Kbps] <Instrumental, Piano>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791668.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 7 Years - Music Lab Collective (Lukas Graham)
+002. Akira Kosemura - Kosemura: Grow Apart
+003. Shida Shahabi - Chloris
+004. Sophie Hutchings - Hutchings: Candela(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 07 :50 :16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240DE251658CDD630067B6BB57A184AE82D6E619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201618   (791635) от 26.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0009 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lee Young - Napoleon ( Extended Version 1987 )
+02. Valentino - Tonight ( 12'' Vocal Version 1988 )
+03. Alexander Pierce - Fantasy ( 2017 )
+04. A.A. Fortune - Woman To Man ( 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCF3E5D29C208219467D8C96762E6B44748D602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201869   (791634) от 26.01.2018
 
 VA - Lady Night (2018) [MP3|225-320 Kbps] <Chillout, Lounge, Balearic>
@@ -571,180 +745,6 @@ VA - De Top 100 Aller Tijden 1979 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99D1736894470BE8431A3370C04BAB5632EC83CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201787   (790937) от 27.01.2018
-
-VA - Radio NRJ: TOP 30 - Итоговый за 2017 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Luis Fonsi & Daddy Yankee feat. Justin Bieber  -  Despacito  3:49
-02.  Ed Sheeran  -  Shape Of You  3:54
-03.  J. Balvin & Willy William  -  Mi Gente  3:26
-04.  Charlie Puth  -  Attention  3:27(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDA9488701A1A4AA9B77527D0C451D502A7CF04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275095   (790917) от 10.01.2019
-
-VA - Empire Records - Red Star 2 (2019) [MP3|320 Kbps] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Outrider - Ragnarok
-02. Danger Mode - Meridian Cruisin'
-03. Neuton Mouse - The Final Parsec
-04. Future City Records - Darkstronaut - Ignition of The Damned Soul(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:24:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5012FE0C1496764357C2DB8202584191573AFA17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202107   (790847) от 27.01.2018
-
-VA - TOP 80: Хит Парад 'Золотой граммофон' (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Полина Гагарина  -  Драмы больше нет  3:14
-02.  Александр Маршал  -  Мы вернёмся домой  4:05
-03.  Ночные Снайперы  -  Разбуди меня  2:52
-04.  Мот feat. Ани Лорак  -  Сопрано  3:30(   Читать дальше...   )Жанр: PopПродолжительность: 04:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC0C098E74FB8C3254B4C83DAC9934EBBDA6D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510451   (790813) от 17.11.2021
-
-VA - The Purgatory (Vol.03) (2021) [MP3|320 Kbps] <Hardcore, Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790813.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Primal Age - Adolescent Humanity
-002. Galneryus - Flames Of Rage
-003. Anchors & Hearts - What If God Was One Of Them!
-004. Blood Sermon - Funeral Clown(   Читать дальше...   )Жанр: Hardcore, Metal, Hard RockПродолжительность: 08:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1752D4C60CD27CD813A6AEB34FF8045931D5C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510435   (790809) от 17.11.2021
-
-VA - EDM Vibe: November Set (2021) [MP3|320 Kbps] <EDM, Club, Dance, House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790809.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Styles & Breeze - You're Shining
-002. Robbie Teeze - Mother Licker Down
-003. Eric Prydz - Liberate
-004. Klubbheads - Big Bass Bomb(   Читать дальше...   )Жанр: EDM, Club, Dance, House, TechnoПродолжительность: 08:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41629038FBD2E690C7561DD6AD4CBAFFC49DDD4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510438   (790800) от 17.11.2021
-
-VA - Memories Of Summer (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790800.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ariana Bell - Sing My Way
-002. Slayyyter - Clouds
-003. Ava Max - Who's Laughing Now
-004. Laid Back - Sunshine Reggae(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995C129A7BB7ADB4C71BD0BF3668FA6AF094FB62
 ```
 
 https://mybot314.ru/tekegram_catalog/

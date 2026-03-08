@@ -1,3 +1,32 @@
+###  Публикация: 1778304   (70879) от 08.02.2025
+
+Teri Thornton - Sings Open Highway (1963) 2001, Koch Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Highway (Route 66 Theme) [2:58]
+02. This Is All I Ask [4:26]
+03. Baby, Won't You Please Come Home [3:18]
+04. You Don't Know [2:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68EC4D0C6D6E85477A5611AD3B6DE5CA8E0D8755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778300   (70872) от 08.02.2025
 
 Max Greger und sein Orchester - Sax In Love (1992) Polydor [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Big Band, Easy Listening>
@@ -714,35 +743,6 @@ The Phil Woods Quintet - American Songbook II (2007) Kind of Blue Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B99E603305963CECFAAD4DD8C541A35C2D1D7759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779843   (70580) от 15.02.2025
-
-Bill Evans - The East End (2011) 2019, Jazzline [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Fun [5:14]
-02. Road to Bilbao [8:22]
-03. Older Days [6:34]
-04. Working the Line [4:18](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Big BandПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4585FA1D5D28FCC728A81517F188DDA2BF1530
 ```
 
 https://mybot314.ru/tekegram_catalog/

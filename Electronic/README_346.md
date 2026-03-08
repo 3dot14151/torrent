@@ -1,3 +1,61 @@
+###  Публикация: 1175020   (333408) от 31.10.2020
+
+Rumpistol - Discography 17 Releases (2003-2020) Rump Recordings [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Abstract, Ambient, Dubstep, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There There (05:32)
+ 02. Last Venture At The Edge Of The World (06:10)
+ 03. The Fog Is Lifting (03:00)
+ 04. Inside The Sarcophagus (03:14)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Abstract, Ambient, Dubstep, Glitch, Experimental •Продолжительность: 11:08:02 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE8A315852C561F05F74D9C77933DA099C56361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259029   (333152) от 01.11.2018
+
+VA - Silk Music Pres. Terry Da Libra 02 (2018) [MP3|320 Kbps] <Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terry Da Libra – Eunoia (Original Mix)
+02. Shingo Nakamura & Stendahl – Tribute, Chapter II (Terry Da Libra Remix)
+03. Aeron Aether & Terry Da Libra – Hope Unchained (Extended Mix)
+04. Blugazer & The Cynic Project – Waves On the Ocean (Terry Da Libra Remix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A34EAA3B525FBB315358A8EB475B09464BB7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259021   (333040) от 01.11.2018
 
 Cosmic Baby - Heaven (1998) [APE|Lossless|image + .cue] <Trance, Downtempo, Ambient>
@@ -693,64 +751,6 @@ VA - Cafe Del Mar: ChillWave (2015) [MP3|320 кб/с]<Electronic, Lounge, Deep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B38F7B77FC929D277E20047D5CC6F7A09C1670C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580421   (330814) от 01.10.2022
-
-VA - Suanda Music 2022 - Mixed by Roman Messer [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jordy Eley - Nova (Original Mix) (4:13)
-02. NoMosk - Better For You (Extended Mix) (3:19)
-03. Milad E & David Deere - Got You (Extended Mix) (5:05)
-04. Jon The Dentist - Global Phases (Aimoon Extended Remix) (6:31)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6800BCF8C91480C70B258F479FA699C1A39EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869566   (330602) от 01.10.2022
-
-Contagion - Infectant (2000) [MP3|320 кб/с]<EBM, Industrial, Rock>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One of the Chosen
-02. Hate
-03. Give to You
-04. Rigor Mortis(   Читать дальше...   )Жанр: EBM, Industrial, RockПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DDE00614531928D47A33516DC221127FA8BB63
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 1244173   (484204) от 31.08.2018
+
+VA - Ori Uplift &  Lockstone – Uplifting Only 290 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila – Rebirth (Ahmed Romel Extended Remix)
+02. FAN FAVORITE 288: Arman Bas & Melodic Culture – De Profundis (The Sixth Sense Remix)
+03. Sandro Mireno & Aleksey Gunichev – InspirationЖанр: Trance,Uplifting TranceПродолжительность: 02:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1C8519E63CEAD9651F1496570A690DC12E4D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245680   (470087) от 07.09.2018
+
+VA - Ori Uplift - Uplifting Only 291 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jeïtam Oshéen ft. Seref Dalyanoglu - Magoa (Intro Mix)
+02.Paul Van Dyk & Giuseppe Ottaviani ft. Sue McLaren - Miracle (OnAir Mix)
+03.Christopher Corrigan - Different Thoughts
+04.Jonas Steur ft. Jennifer Rene - Fall To Pieces (Daniel Skyver Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B68518752A4B869D48830CA10FAB7EE283BAB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161337   (467591) от 28.08.2017
 
 VA - Ori Uplift & Chris Blaylock - Uplifting Only 237 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -683,64 +740,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BF2E7D555859C33804C3FE16D7D8F22402889E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065646   (418930) от 23.10.2016
-
-ATB - Live @ Amsterdam Dance Event (2016) [MP3|256 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Gonzalez - Ethereal
-02. ATB vs. Rapha Di Sands - Ecstasy Manatial (ATB Mashup)
-03. Beat Service & Ana Criado - So Much Of Me Is You
-04. Johan Vilborg - Pieces(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D07CEEA1BB2EDB7FFA8082CA9F7FFF9C65EB279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251354   (417855) от 01.10.2018
-
-VA - Ori Uplift & W!SS - Uplifting Only 294 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DreamLife & Laucco - Dancing Water
-02. Attens feat Martina Kay - If You Find a Way (Playme Bangin' Dub - Ori Uplift Edit Deep Wide Remaster)
-03. Sandro Mireno & Aleksey Gunichev - Inspiration
-04. PRE-RELEASE PICK: Hoyaa - Waters Above (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512EB1D6D94B139FF0D760ED3E857BEAD0A8938A
 ```
 
 https://mybot314.ru/tekegram_catalog/

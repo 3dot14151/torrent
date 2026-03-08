@@ -1,3 +1,61 @@
+###  Публикация: 1773731   (71656) от 17.01.2025
+
+VA - Nomadica 2025 (Tibetania Orient) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Barabash - Bedouin (6:49)
+02. The Friend - The Road To Egypt (Olendo remix) (6:20)
+03. La'Dell - Get Oriented (4:54)
+04. Fernando - Corazon Seco (feat Ludelf) (5:26)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B453973A36DEB6CB326D1897E9E737AEFE96B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773620   (71640) от 18.01.2025
+
+Postfactum - 2 Albums (2022, 2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Chill Out, Trip-Hop, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сузір'я [00:03:33]
+02. Мій друг [00:03:05]
+03. Інсомнія [00:03:24]
+04. Гротеск [00:03:27](   Читать дальше...   )Жанр: Electro, Chill Out, Trip-Hop, LoungeПродолжительность: 2 CD, 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:120C23DF44B89A922D7D04FC903CFF68ADDA7A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774087   (71560) от 19.01.2025
 
 VA - Ori Uplift - Uplifting Only Episode 623 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -687,64 +745,6 @@ VA - Winter Dance Covers 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7A1DB2E84B52D195BF36B16F6D285A3C8AD5890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776587   (71242) от 01.02.2025
-
-VA - Best Of EDM Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Chiki Chiki [02:40]
-02. JLUIS - Red Light [02:30]
-03. Deep Emotion - Don't Cry [02:50]
-04. Dani Corbalan - My Head Is Gone [02:14](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9E5F9D05FBD4ABAC18AF17F3F95D132AD63849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776556   (71235) от 01.02.2025
-
-Lane 8 & Sultan + Shepard - Live @ Field Stage, Proper NYD (2025-01-01) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. Lane 8 & Le Youth ft. Jyll - I Will Leave A Light On
-03. Sultan + Shepard - Neptune
-04. Sultan + Shepard & Lane 8 - The Little Mushroom That Got Away(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F74DDC6265C7634A5F6C3CE29842D2E6D4CEA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

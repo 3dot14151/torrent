@@ -1,3 +1,32 @@
+###  Публикация: 1108965   (861002) от 26.02.2017
+
+Gerry Mulligan & Ben Webster - Gerry Mulligan meets Ben Webster (1959) 1998, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chelsea Bridge [07:23]
+ 02.The Cat Walk [05:47]
+ 03.Sunday [07:26]
+ 04.Who's Got Rhythm [07:42](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207A96EEDC24A20AF4DB013EB982FA6F12019C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000071   (860725) от 24.03.2016
 
 Kenny G - Greatest Hits (1997) [FLAC|Lossless|tracks] <Smooth Jazz>
@@ -721,35 +750,6 @@ Abbey Lincoln - That's Him! (1957) Remaster, 1999, Victor[FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BBE9FDABEEA2C1AB3AEC2350D7EAF73A09A0140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109998   (855754) от 01.03.2017
-
-James Moody - Quadromania: Just Moody (1948-1955) 4CD, 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855754.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.The Fuller Bop Man [02:59]
-02.Workshop [03:19]
-03.On Henry [02:32](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 03:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300A3013EFA4C66396CC2361AFD0A7A6980CB666
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 926373   (535593) от 09.08.2015
+
+Iamdynamite - Wasa Tusa (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be There (04:10)
+02. Stranger (04:11)
+03. In The Summer (04:10)
+04. My Love (04:21)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D410272EB96E189409C02FF9A000700535979E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558015   (535549) от 18.06.2022
+
+Дмитрий Маликов - Мы ещё встретимся (Синглы 2016-2022) (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535549.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мы ещё встретимся
+2. Здравствуй это я
+3. Научу тебя смеяться
+4. Не отпускай (feat. Юлия Началова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A15F37D10BA3FB003C2698E13C1517455AFC275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239827   (535092) от 07.08.2018
 
 VA - 110 Hits Ete 2018 (2018) 5CD [MP3|320 Kbps] <Dance, Pop, House>
@@ -693,64 +751,6 @@ Nox - Oromvolgy (2006) [FLAC|Lossless|image + .cue] <Pop-Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B24A2FF161B57C4E64D63138AED1464D1E670CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155115   (531357) от 04.08.2017
-
-Milli Vanilli - Greatest Hits (2006) [FLAC|Lossless|tracks + .cue] <Europop, Hip-Hop, 80's>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Or Nothing (3:22)
- 02. Baby Don't Forget My Number (4:10)
- 03. Blame It On The Rain (4:09)
- 04. Boy In The Tree (3:12)(   Читать дальше...   )Жанр: Europop, Hip-Hop, 80'sПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E0C1C7E3F69EEE24C3E20318D0BDC71AA91FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240199   (531281) от 09.08.2018
-
-VA - Kiss Kiss Play Summer 2018 [MP3|320 Kbps] <Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531281.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. I Do not Say No - Boomdabash & Loredana Berte
-02. From Zero A Cento - Baby K
-03. A Great Party - Luca Carboni(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 02:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EA88CA214585E7D956C280ACD4F1425499B9CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

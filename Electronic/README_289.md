@@ -1,3 +1,61 @@
+###  Публикация: 1055984   (483861) от 24.09.2016
+
+Delerium feat Phildel - Ritual (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dark Ambient, Industrial>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483861.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. - Ritual (Album Mix) 5:13
+ 2. - Ritual (Radio Edit) 4:11
+ 3. - Ritual (Matt Lange Remix) 6:37
+ 4. - Ritual (Alex Klingle Remix) 5:32(   Читать дальше...   )Жанр: Trance, Dark Ambient, IndustrialПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6A7A398B4F63A70ED73503709DC549ED36AC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159063   (483810) от 20.08.2017
+
+VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sultan & Shepard - Bloom (Intro Mix)  4:05
+02.  K-System - Manana  3:31
+03.  Andy Moor - FaceOff  2:54
+04.  Rodrigo Deem - Tearsdrop  3:28(   Читать дальше...   )Жанр: TranceПродолжительность: 04:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65141CB72C9375E5CB31640686C6593A167C5B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404386   (483558) от 30.08.2020
 
 Podval Capella - Classic (2018) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
@@ -684,64 +742,6 @@ VA - Finest Selection Of Summer Anthems (2015) [MP3|320 кб/с]<Club, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5DB13F965861A5B71F9D61F23E6C857C9EF7C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159801   (479946) от 22.08.2017
-
-VA - Chillout King Ibiza - Chill Around The World (Best Chillout & Chillhouse Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Chillhouse>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pascal Dubois - Costa Del Mar (Silent Sea Mix)  4:25
-02.  The Smooth Commander - Beauty Secrets (Bluestar Mix)  5:05
-03.  Sky Sergeant - Holograms (Electric Slide Mix)  5:51
-04.  Chillwalker - Balearic Angels (True Waves Mix)  4:41(   Читать дальше...   )Жанр: Downtempo, Chillout, ChillhouseПродолжительность: 05:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29B408EABFB43D9AEF76DCB4E66D0E446FAED1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159885   (479939) от 22.08.2017
-
-VA - EPIC Ibiza - Trance Anthems Vol.2 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matt Pincer & Tezija feat. Keyra - A Good Day (Alexey Yakimov & Rex Brandtner Mulled Wine Remix)  7:18
-02.  SoundMission - Away From The Sun (John Gregory Remix)  6:54
-03.  Jacob Ireng - Thunder (Original Mix)  6:57
-04.  Luis de Poda - Nibiru (Original Mix)  6:27(   Читать дальше...   )Жанр: TranceПродолжительность: 03:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC2F5689A7872B51239C1916C37C2C66D3864B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

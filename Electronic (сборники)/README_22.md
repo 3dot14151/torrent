@@ -1,3 +1,32 @@
+###  Публикация: 1089392   (950792) от 04.01.2017
+
+VA - Trance Elegance On This Year 006 (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal Trance, Energy, Emotional, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H Ft Song & The Moon - Dont Talk Away The Magic (Heatbeat Extended Mix) 6:42
+02. Fisherman & Hawkins Ft. Sir Adrian - Never The Same (Radion6 Remix) 5:24
+03. Hasso & Maxime Luft ft. Lucida - Blossoms In The Winter (Original Mix) 6:49
+04. Aimoon - Fusion (Extended Mix) 6:07(   Читать дальше...   )Жанр: Trance, Harmonic, Vocal Trance, Energy, Emotional, UpliftingПродолжительность: 02:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29881BCB63204D1AD995FD8CDCE01754A6E8F725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089797   (950778) от 04.01.2017
 
 VA - NYE 2016 Lounge Hits (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ VA - Car Satellite: Full Set EDM (2016) [MP3|320 кб/с] <Electro, House, Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED577A6A9FF76A59BAFB8145F7C2EEF94B9031F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363101   (945286) от 26.02.2020
-
-VA - Beatport Techno: Electro Sound Pack #13 (2020) [MP3|320 Kbps] <Techno, Tech House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L-Gil - Taoaaa (Original Mix)
-02. Danny Nectar - Power (Original Mix)
-03. Juan Campos - Rk-4
-04. Rauschhaus - Bespin(   Читать дальше...   )Жанр: Techno, Tech House, ClubПродолжительность: 06:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A61813E252EFE572E2F61340C188829B699635
 ```
 
 https://mybot314.ru/tekegram_catalog/

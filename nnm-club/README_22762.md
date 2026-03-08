@@ -1,22 +1,24 @@
-###  Публикация: 593160   (135392) от 23.12.2012
+###  Публикация: 592486   (135468) от 22.12.2012
 
-Газета | Компьютер для начинающих №12 [декабрь 2012] [PDF]
+Анджей Ясинский | Цикл "Ник" [2009-2012] [FB2]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>След.
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135392.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Компьютер для начинающих рассказывает о самых азах работы с компьютером, различными программами, сетью Интернет. В номере: видео на компьютере; что такое кодеки и для чего они требуются; чем смотреть видео; как выбрать монитор и видеокарту.Формат: PDF
+Анджей Ясинский — писатель-фантаст, специализируется в жанре киберпанк. Родился в апреле 1973 года в Ростове-на-Дону. С детства увлекался чтением, особенно любил читать книги в жанре фэнтези, по собственному признанию, за месяц способен прочитать десятки произведений. Анджей — автор цикла романов  о Нике, молодом человеке, который получает суперсилу, попадает в параллельный мир и там путешествует.
+
+В эту серию входят романы: «Ник», «Юзер», «Стихийник», «Админ», «Беглец» и «Чародей». У Анджея Ясинского быстро появились поклонники. Романы о Нике ориентированы на тех, кто любит изучать процессы создания магических и энергетических сущностей, структур заклинаний. Помимо этого произведения Ясинского отличает большое количество технических деталей и нестандартные ходы при описании эмоций персонажей.Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2070C374CFAB4CACEC216064D389E099F0BD9EE
+magnet:?xt=urn:btih:223306909A5D0131A9F9970DA4017FBAD0308B2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593110   (135391) от 23.12.2012
+###  Публикация: 567973   (135466) от 22.12.2012
 
-Журнал | Tattoo Collection №54 (UK) [2012] [PDF] [En]
+Need for Speed Most Wanted: Limited Edition [Ru] (RePack/1.3.0.0/5DLC) 2012 l Fenixx
 
->>Журналы
->>Другие журналы
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135391.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Tattoo Collection" является идеальным журналом для тех, кто ищет татуировки или просто хочет увидеть самые последние работы лучших международных мастеров. В журнале представлено более 300 татуировок, которые являются лучшими на момент выхода журнала.Формат: PDF
+Уходите от полиции и опережайте соперников – только так можно добиться успеха в Most Wanted. Думайте быстро, чтобы оставить полицейских с носом. Используйте возможности открытого мира, чтобы скрываться, и зарабатывайте новые машины, чтобы всегда быть впереди.Как принято в играх Criterion Games, в центре внимания находитесь вы и ваши друзья. Нет ни лобби, ни меню, и вы можете в любой миг бросить вызов друзьям в различных многопользовательских режимах. Помните: для победы в Most Wanted все средства хороши.(   Читать дальше...   )Тип издания: RePackРазработчик: Criterion GamesЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F5F89338544B860A5518F604109F38931ABDDAE
+magnet:?xt=urn:btih:5603BFBCED00D173512B65E4B932CFA406FC5E1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,30 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593076   (135390) от 23.12.2012
+###  Публикация: 592487   (135465) от 22.12.2012
 
-VA - Rocks Off - 16 Tracks Of The Best New Music (2012) [FLAC|Lossless]<Rock>
+Recovery DVD for Samsung NP300E5C / Windows 7 Home Basic (х64) SP1 [русский]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135390.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. King Tuff - Bad Thing [02:21]
-02. The Mountain Goats - Harlem Roulette [03:22]
-03. The Jim Jones Revue - Times Around The Sun [03:41]
-04. The Fresh And Only - Dream Girls [02:51]
-05. John Hiatt - It All Comes Back Someday [03:40]
-06. The Cairo Gang - Now You Are One Of Us [03:39]
-07. Two Gallants - Song Of Songs [02:45]
-08. Martin Rossiter - Sing It Loud [02:25]
-09. Ian Hunter & The Rant Band - Saint [03:35]
-10. The Wooden Sky - Child Of The Valley [03:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:57:45
+В раздаче содержится 4 образа дисков восстановления.
+4 образа записанные программой Samsung Recovery Solution 5.
+(Recovery Disc 1,2,3,4)
+Диски записаны на Samsung NP300E5C-U06RU после первого включения ноута.
+Производят восстановление состояния ноутбука до заводских настроек.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -85,34 +82,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593226   (135386) от 23.12.2012
+###  Публикация: 556795   (135463) от 22.12.2012
 
-VA - Cafe La Guitarra Vol.1 (La Seleccion Musica Balearica - The Best In Guitar Lounge & Chill Out) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+Btooom! / Бтум! [2012, TV, 12 эп.] HDTV 720p raw
 
->>Electronic
->>Easy listening
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135386.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Guenter Haas - Cienfuegos
-02. Jeff Aug - Mountain Pass
-03. Weathertunes - Passion
-04. Marga Sol - Call of an Angel
-05. Taco-Town - El Platano
-06. Anthya - Patience and Love
-07. Fenena Garcia Mijas - Way Beyond
-08. Jeff Aug - Bird Watcher's Dirge
-09. Pnfa - Salt
-10. Xemplify - Sober Eyes(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 00:59:18
+Рёта Сакамото – 22-летний безработный, игрок мирового уровня в популярную командную боевку «Бабах!». То, что он при этом сидит на шее у матери, парня не волнует, мыслями он всецело в виртуальном мире, где крут, беспощаден и неотразим. Только в наше время до виртуальной реальности далеко – в этом Рёта убедился на своей шкуре, очнувшись в джунглях, крепко избитый, с чужой сумкой и полным сумбуром в голове. В общем, вышло так, что чья-то злая воля закинула на необитаемый остров несколько десятков игроков и предложила им сразиться в «Бабах!» вживую и по-крупному. Без оружия, без доспехов – только ручные бомбы, собственные тела и гражданская одежда. Как говорится – естественный отбор!
+
+Но истинного игрока королевской битвой смутить сложно, особенно когда на кону собственная жизнь. Так что вскоре Рёта отбросил интеллигентские сопли и приготовился, как не столь далекие предки, жить по принципу «или ты, или тебя». Главное – выжить, а там уже можно пофилософствовать о смысле бытия и вдоволь поспорить с сердечной подругой (   Читать дальше...   )Жанр: приключения, экшенРежиссер: Ватанабэ КотоноПродолжительность: 13 серий по 24 минуты
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDFE9BCBFF97553B6883A16B8BA153C110875418
+magnet:?xt=urn:btih:235F515987C07D48AB653958399405C5D0975B43
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -120,25 +110,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593276   (135384) от 23.12.2012
+###  Публикация: 592632   (135461) от 22.12.2012
 
-Артур Беркут - Рождественская песня (2012) [MP3|320 кб/с]<Heavy Metal>
+Распутин / Raspoutine (2011) DVDRip [PL]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм посвящен последним годам жизни Григория Распутина, его взаимоотношениям с семьей последнего русского императора Николая II.Жанр: ДрамаРежиссер: Жозе ДайанАктеры: Жерар Депардье, Константин Хабенский, Фанни Ардан, Владимир Машков, Ксения Раппопорт, Ирина Алферова, Анна Михалкова, Филипп Янковский, Данила Козловский, Юрий НазаровПродолжительность: 01:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E821C6071DD820F86DFEBA8FAF7A9ACCE35266BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592261   (135459) от 22.12.2012
+
+Кон-Тики / Kon-Tiki (2012) [H.264] HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135459.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Кон-Тики» — норвежский исторический фильм, посвященный экспедиции Кон-Тики 1947 года, когда норвежский путешественник Тур Хейердал пересёк Тихий океан от Перу до Полинезию на бальсовом плоту и хотел доказать свою теорию о заселении Полинезии из Южной Америки, а не из Азии, как тогда считалось.Производство: Великобритания, Норвегия, Дания / Recorded Picture Company (RPC)Жанр: Боевик, Драма, Приключения, Биография, ИсторияРежиссер: Хоаким Роннинг, Эспен СандбергАктеры: Пал Сверре Валхейм Хэйген, Андерс Баасмо Кристиансен, Густаф Скарсгард, Одд Магнус Уильямсон, Тобиас Зантелман, Якоб Офтебро, Агнес Киттелсен, Томас Арнольд, Йорген Бертаге, Элинор Бурк, Мануэль Коши, Сэм Чэпман, Стефан Кронуолл, Катинка Эгрес, Йен Кнауэр, Оле Слетнер, Ричард ТриндерПеревод: Одноголосый закадровый, авторскийОзвучка / Автор перевода: (А.Карповский)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CC397DEC55DBD0F949956D02416C2344C754F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592885   (135454) от 23.12.2012
+
+Vrum - ;__; (2012) [MP3|320 кб/с]<Shoegaze Indie Post Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135384.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Рождественская песняЖанр: Heavy MetalПродолжительность: 00:04:20
+1. Infinite Forest, 04:16
+ 2. Cars Go In Two Directions, 04:50
+ 3. Some Chords From Riku's NES, 01:50
+ 4. Pandas With Tambourines 1, 03:26
+ 5. Pandas With Tambourines 2, 04:36
+ 6. Mosquitoes Are Swarming This Summer, 05:32
+ 7. The Operator Of A Huge Cash Magnet Which Inmost Purpose Is To Destroy The World, 02:48
+ 8. The Symbols And Their Meanings, 04:49
+ 9. Flu, 03:49
+ 10. Your Song, 06:39Жанр: Shoegaze Indie Post RockПродолжительность: 00:42:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C4A7CE13AF4042CD9E6939C3BF0985F4D6A7685
+magnet:?xt=urn:btih:F7387CE280D75CF144B861C187C51433C695B738
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -146,34 +197,69 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593186   (135379) от 23.12.2012
+###  Публикация: 593334   (135451) от 23.12.2012
 
-Особо опасны / Savages (2012) [MP3|320 кб/с]<Soundtrack>
+VA - Dance Vibration Vol 2 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B-A-D-B-O-Y-Take Me Away (Vinylbreaker Remix) 05:41
+ 02. Basewalker & Vyrus-Dancing Through the Night 06:12
+ (DJ Locos Summer Remix)
+ 03. Clark Owen-Melody 05:45
+ (Wavepuntcher & Sexual Energy Remix)
+ 04. Dittin & Jockiboi-VI Dricker Redbull Och Vodka 05:19
+ (Saamen Van Aaren & Nrg-Boy Summer Remix)
+ 05. DJ Darroo-Black Magic 08:34
+ 06. DJ Equan-I'm Destination 06:47
+ 07. Edvard Hunger-Close My Eyes 05:41(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79843F382DC8FB8D76DAF39134FDA516C495C35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593223   (135450) от 23.12.2012
+
+Magic Island Recordings - Best Of 2012 (2012) [MP3|320 кб/с]<Trance, Progressive Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135379.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Neptune's Net
-02.Cartel Theme
-03.Where I'm Going
-04.Romantic Theme
-05.Legalize It
-06.Mandala (feat. Anoushka Shankar)
-07.Hijack In The Desert
-08.Quien Es El Patron
-09.Romance In Durango
-10.Whipping(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:20
+01. Sunlounger & Zara Taylor - Try To Be Love (Roger Shah Naughty Love Mix) (7:15)
+02. Roger Shah & Sian Kosheen - Shine (Sean Tyas Dub Remix) (6:27)
+03. Roger Shah feat. Adrina Thorpe - Island (Antillas Club Mix) (7:12)
+04. Roger Shah feat. Carla Werner - One Love (Andrew Rayel Remix) (7:15)
+05. Roger Shah feat. Inger Hansen - Dance With Me (Tomas Heredia Remix) (6:33)
+06. Roger Shah & Sian Kosheen - Hide U (Jerome Robins Vocal Mix) (3:21)
+07. Sunlounger & Zara Taylor - Try To Be Love (Alex Tasty Remix) (6:15)
+08. Roger Shah feat. Carla Werner - One Love (Club Mix) (8:07)
+09. Roger Shah feat. Inger Hansen - Dance With Me (Pumpin' Island Mix) (7:15)
+10. Roger Shah & Sian Kosheen - Shine (Stefan Dabruck Remix) (6:38)Жанр: Trance, Progressive TranceПродолжительность: 01:06:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AAA8D6E96789388F4530E0E633F8916789E9567
+magnet:?xt=urn:btih:32D67D8AD9E84E1FA46A2CB186E5282DB72D2667
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,28 +267,128 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679723   (135375) от 26.11.2023
+###  Публикация: 591604   (135446) от 23.12.2012
 
-Memorial Day - Embark Hades (1995) [FLAC|Lossless|tracks] <Gothic, Doom, Death Metal>
+Ananda Shankar - Ananda Shankar (1970) [MP3|320 кб/с]<World Fusion, Psychedelic Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jagger, Richards - Jumpin' Jack Flash  - 3:33
+02. Ananda Shankar, Paul Lewinson - Snow Flower  - 2:47
+03. Morrison, Densmore, Manzarek, Krieger - Light My Fire - 3:31
+04. Ananda Shankar, Paul Lewinson - Mamata (Affection)  - 3:08
+05. Ananda Shankar, Paul Lewinson - Metamorphosis  - 6:48
+06. Ananda Shankar, Paul Lewinson - Sagar (The Ocean)  - 13:14
+07. arr.Ananda Shankar, Paul Lewinson - Dance Indra (traditional)  - 3:52
+08. arr.Alex Hassilev, Ananda Shankar, Paul Lewinson -  Raghupati (folk tune) - 3:26Жанр: World Fusion, Psychedelic RockПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2229755C69ACAE47507D7978FD6061525E435E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593278   (135445) от 23.12.2012
+
+Darrell Nulisch - Just For You (2009) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Don't Know Me
+02. The Woman Don't Live Here No More
+03. Work for Love
+04. Just for You
+05. It's a Shame
+06. Just a Little Blues
+07. Far Too Lonely
+08. All the Love We Had
+09. Let a Woman Be a Woman
+10. Natural ThingЖанр: BluesПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592187   (135443) от 23.12.2012
+
+New year wallpapers 2013 (18.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7600ED8DA28BF8FD37D899FD92E743E05387B842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593351   (135441) от 23.12.2012
+
+Draugr - De Ferro Italico (2011) [WavPack|Lossless]<Folk Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135375.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carnifex
-02. Phobia
-03. Embark Hades
-04. Salve Caput Cruentatum(   Читать дальше...   )Жанр: Gothic, Doom, Death MetalПродолжительность: 00:53:07
+01. Dove Italia Nacque [02:10]
+02. The Vitulean Empire [05:15]
+03. Laugure E Il Lupo [05:52]
+04. Ver Sacrum [09:25]
+05. Suovetaurilia [04:36]
+06. Legio Linteata [06:01]
+07. Ballata Dautunno [01:42]
+08. Inverno [07:32]
+09. Roma Ferro Ignique [06:26]
+10. De Ferro Italico [10:34]Жанр: Folk MetalПродолжительность: 00:59:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:009ED584D7CB230E755BF3EED1DB0B392B97A27A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,15 +396,205 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593020   (135374) от 23.12.2012
+###  Публикация: 591627   (135440) от 23.12.2012
 
-Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
+deeB - Daydream (EP) (2012) [MP3|320 кб/с]<trip-hop, acid jazz, insrumental hip-hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135440.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Eleven11
+2. Leiden Lowlife
+3. Blik
+4. Inside The Outside
+5. Chillwings
+6. E-Type
+7. Daydream
+8. Dan Natural
+9. The Grand Illusion
+10. Coffee & TreesЖанр: trip-hop, acid jazz, insrumental hip-hopПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AEDF7B34BA62FEA008A50253C8591C2AD188888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593327   (135439) от 23.12.2012
+
+Чрезвычайное происшествие. Обзор за неделю (23/12/2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр передачи можно назвать "журналистикой инцидента". Его особенности в том, что программа, по сути, представляет собой не просто криминальную сводку или уголовную хронику, а показывает реальную жизнь без прикрас. Когда на НТВ возникла идея итоговой программы о происшествиях, работать пришлось в авральном режиме. Окончательное решение созрело за две недели до первого выпуска, когда в газеты уже была отдана программа телепередач с новой строкой - "ЧП. Обзор за неделю". Команда собрана из профессионалов жанра, людей, которые знают, что нужно зрителю, могут добыть это и умеют эффектно подать материал. Эта команда и смогла создать качественный продукт, основой которого стали репортажи с реальным, не постановочным видео. Неподдельные эмоции, наэлектризованная атмосфера критических ситуаций, невероятные, но абсолютно достоверные факты, - все это каждое воскресенье ждет вас на канале НТВ!Жанр: ТелепередачаПродолжительность: 00:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B80D66A49128F0FC11184F917BEC4929E0378B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593302   (135438) от 23.12.2012
+
+Demetrius Nabors - A Journey Within Part 1 (2011) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Croydon Road
+02. What A Day
+03. Journeying Through Time
+04. A Flowing Interchange
+05. Into The Night
+06. Ridin' & Groovin'
+07. Is There A Chance
+08. Just When I Thought
+09. So Into You
+10. Strollin' Down Blaine(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593315   (135437) от 23.12.2012
+
+Dado Moroni Trio - Shapes (2011) [FLAC|Lossless]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade Pour Gianni
+02. Brother Alfred
+03. Desafinado
+04. The Duck And The Duchess
+05. Love Dance
+06. F.B.S.
+07. For The Time Being
+08. Shark Attack
+09. Here's To LifeЖанр: Post-BopПродолжительность: 01:04:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592771   (135436) от 23.12.2012
+
+Alpha Tiger - Man Or Machine (2011) [WavPack|Lossless]<Power / Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starrider [06:35]
+02. Crimson Desert [04:41]
+03. Men Or Machines [06:23]
+04. When Autumn Leaves Fall [05:15]
+05. Against The Time [06:30]
+06. Martyr's Paradise [07:34]
+07. Karma [04:31]
+08. Exit Night [06:07]
+09. Black Star Pariah [07:12]Жанр: Power / Heavy MetalПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592651   (135433) от 23.12.2012
+
+Просто жизнь / Life Just Is (2012) DVDRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская драма "Просто жизнь" сфокусирована на одной неделе жизни четверых выпускников колледжа Пита, Tома, Клэр и Джей во время их нелёгкого перехода во взрослую жизнь. Несмотря на повседневные тяготы и рутину, Пит пытается найти духовный ответ на смысл жизни, Джей пытается наладить новую связь, а Том и Клэр испытывают все увеличивающееся взаимное притяжение...Жанр: ДрамаРежиссер: Алекс БарретАктеры: Уилл Де Мео, Джек Гордон, Натаниэль Мартелло-Уайт, Пол Николлс, Фиона Райан, Джэйн Вайзенер, Рэйчел Брайт, Джейсон Крут,  Эндрю ХоулиПеревод: ОтсутствуетПродолжительность: 01:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5285F423CFC90E0A924F22C85C8234A435CB5156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593308   (135428) от 23.12.2012
+
+Shirley Johnson - 2 альбома (2002, 2009) [MP3|320 кб/с]<Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135374.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135428.jpg" />
 </div>
 
 
@@ -226,10 +602,11 @@ Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
 
 Список альбомов:
 
-2000 - Learned My Lesson
-2005 - Tore Up from the Floor Up
-2009 - The French Connection
-2009 - SunnylandЖанр: Blues |Продолжительность: 04:22:12
+2002 - Killer Diller
+
+2009 - Blues Attack
+
+(   Читать дальше...   )Жанр: BluesПродолжительность: 02:07:13
 
 ## Скачать торент
 ```bash
@@ -241,25 +618,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679792   (135373) от 26.11.2023
+###  Публикация: 593264   (135427) от 23.12.2012
 
-PrintLab Studio 3.0.2 [En]
+Dan Beaver And His Dam Blues Band - Last Call (2005) [FLAC|Lossless]<Blues>
 
->>Программы для macOS
->>Графика для macOS
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135373.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PrintLab Studio - это легкое и простое в использовании приложение для создания векторных иллюстраций для Mac OS X. PrintLab Studio содержит инструменты, необходимые для создания базовых фигур. Быстро создавайте рисунки и легко меняйте стили.Тип издания: macOS SoftwareРелиз состоялся: 08.05.2018Разработчик: © 2021 Bluetail TeamПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+01. She's Tuff
+02. The Rain
+03. Going Down Slow
+04. Howlin' Wolf
+05. Shake That Boogie
+06. For What It's Worth
+07. Bo Diddley
+08. Gimmie One Reason
+09. Think
+10. If I Can Hold You(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B03E3DFE8545F74AFAF8607801CA5200FDFA8C2
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,60 +653,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 591856   (135372) от 23.12.2012
+###  Публикация: 593287   (135425) от 23.12.2012
 
-VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Degrees Of Motion & North Base - Shine On (Dubstep Mix)
-02. Other Echoes feat. Julian Huggins - Free Running
-03. Delerium feat. Michael Logen - Days Turn Into Nights (Seven Lions Remix)
-04. Waverokr - Gravity Switch
-05. Dubba Jonny - Smack It!
-06. Molecule - Ghetto Superstar
-07. DKS - Can't Get Enough (Original Mix)
-08. Hardwell feat. Amba Shepherd - Apollo (3rd Prototype Bootleg)
-09. TS7 - Struggle (DJ Q Remix)
-10. Smooth feat. Tasha Baxter - Nowhere(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE01CE8DE485381BFF5BAC1C0EDFCA34F86E334C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679846   (135371) от 26.11.2023
-
-iCompta 6.1.9 [Multi]
+Годы несбывшихся надежд (1988) SATRip
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135371.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-iCompta - простое, но мощное приложение для управления персональным финансами. Программа создана так, чтобы быть максимально простой в использовании, поддерживая множество функций, которые помогут вам отслеживать ваши деньги и начать экономить. Следите за своими доходами и расходами, контролируйте свои счета, оставайтесь в соответствии с вашим бюджетом.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2006-2022 SAS LyricAppsПоддерживаемая ОС: macOS X 10.13 +Язык интерфейса: Английский, Немецкий, Французский и др.
+Фильм с участием О. Лациса, С. Дзарасова, Н. Шмелева, Ф. Бурлацкого, С. Залыгина, Л. Разгона.Жанр: ДокументальныйПродолжительность: 01:08:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F3D670245E27F469EB3E497A907C7683D6E574B
+magnet:?xt=urn:btih:E40E244D70E151ED235D1C51961AD65D5A32FC30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,216 +679,23 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592231   (135370) от 23.12.2012
+###  Публикация: 593001   (135424) от 23.12.2012
 
-Plies - Hunna (2012) WEBRip
+SUMo 3.4.14.189 [Multi/Rus]
 
->>Театр и Музыкальное видео
->>Музыкальные клипы
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135370.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Hip-hopПродолжительность: 00:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F3107DC72C81785EC63F27D00C336F9D12268D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679717   (135369) от 26.11.2023
-
-Журнал | Сваты №21 (255) (ноябрь 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135369.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сват плохого не посоветует» — говорят в народе. В каждом номере журнала «Сваты» вы найдете: проверенные советы от читателей, экспертов, юристов, медиков, психологов, кулинарные рецепты, секреты здоровья, помощь в воспитании детей разного возраста, песни, байки, анекдоты. И все это в ярком, красочном оформлении.Жанр: Популярный журналИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADC770C47D50E9C0F8878186279D5B1B32ADB60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679760   (135367) от 26.11.2023
-
-Борис Житков | Рассказы о животных (2012) [MP3, Леонид Бородин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Степанович Житков (1882–1938), известный русский советский писатель-путешественник, автор приключенческих рассказов и путевых заметок.
-Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра.
-В сборник вошли рассказы о животных Бориса Житкова. Яркие, увлекательные - они (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказИздательство: Нигде не купишьПродолжительность: 03:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E8F1AB188BE0346E28F657FA510BB0B92EA4D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679711   (135365) от 26.11.2023
-
-Журнал | Сваты №22 (256) (ноябрь 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135365.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сват плохого не посоветует» — говорят в народе. В каждом номере журнала «Сваты» вы найдете: проверенные советы от читателей, экспертов, юристов, медиков, психологов, кулинарные рецепты, секреты здоровья, помощь в воспитании детей разного возраста, песни, байки, анекдоты. И все это в ярком, красочном оформлении.Жанр: Популярный журналИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095C160CE02D0BF10663BD888BDD92A51012BAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679500   (135363) от 26.11.2023
-
-Just Before Dawn - Tides of Blood (2018) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When The Iron Shield Falls
-02.Day Of Days
-03.Market Garden
-04.Formations At The Rising Dawn(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBD16DC7DF6CFCF7C5EE75AC2793CC93CD8C745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592387   (135362) от 23.12.2012
-
-Дума о Ковпаке. Буран (1975) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о рейде партизанского соединения С.А.Ковпака во вражеский тыл в 1941-1942 годах, боях на Сумщине при форсировании Днепра и Припяти, знаменитой операции под Саранами, вошедшей в историю второй мировой войны под названием "Саранский крест".Жанр: Военный, ДрамаРежиссер: Тимофей ЛевчукАктеры: Константин Степанков, Валентин Белохвостик, Михаил Голубович, Юрий Саранцев, Виктор Пивненко, Зураб Капианидзе, Иван Гаврилюк, Аркадий Трощановский, Николай Мерзликин, Юрий Демич, Михаил Кокшенов, Наталья Гвоздикова, Валерия Заклунная, Александр ГайПродолжительность: 01:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801DC52FDF93189B09D75E3917704F4907E1A000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679790   (135359) от 26.11.2023
-
-Борис Житков | Семь огней (2012) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Степанович Житков (1882–1938), известный русский советский писатель-путешественник, автор приключенческих рассказов и путевых заметок.
-Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра. В сборник вошли рассказы, повести, пьесы и очерки для детей старшего школьного (   Читать дальше...   )Жанр: Русская литература для детей, классика, повесть, очерк, рассказИздательство: Нигде не купишьПродолжительность: 11:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175E7E187AABF9BF5CD44DB42074259FD969164C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593274   (135358) от 23.12.2012
-
-Deborah Coleman - 7 Альбомов (1997-2007) [MP3|320 кб/с]<Blues>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1997 - I Can't Lose
-1998 - Where Blue Begins
-2000 - Soft Place To Fall
-2001 - Livin On Love
-2002 - Soul Be It!
-2004 - What About Love?
-2007 - Stop The GameЖанр: Blues |Продолжительность: 05:25:05
+SUMo - программа, позволяющая отслеживать появление обновлений для различных установленных на компьютере программных продуктов. В случае, если после проверки находятся более новые версии ПО, выводится соответствующее сообщение и выдается ссылка на закачку новой версии. Есть конечно и большое количество альтернатив этой разработке, есть вроде даже в Windows встроенная система поиска, но по словам авторов она мало эффективна, так как допустим разработчик обновил версию своего ПО, но на сайте пока нет официальной информации, вы об этом не узнаете через стандартную утилиту, а SUMo выдаст вам новую версию моментально.
+
+Как только вы первый раз запустите программу, она предложит вам провести сканирование компьютера, соглашайтесь, после вам выдадут список программ, собственно на скриншоте это видно. Чтобы добавить свои программы в список, нжно просто перетащить ярлык или сам исполняемый файл в окно SUMo. Тогда жмем обновить и программа ищет обновления. Все просто.Название программы: SUMoЯзык интерфейса: Multi/Rus
 
 ## Скачать торент
 ```bash
@@ -549,28 +707,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679688   (135357) от 26.11.2023
+###  Публикация: 593271   (135422) от 23.12.2012
 
-Pat Martino - Consciousness (1974) 1999, Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+Scribus 1.4.1 [Multi/Русский]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135357.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135422.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Impressions [4:38]
-02. Consciousness [11:56]
-03. Passata on Guitar [2:52]
-04. Along Came Betty [5:24](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:44:11
+Scribus – бесплатная издательская программа с открытым кодом для создания текстовых и графических документов любой сложности. Цель Scribus – предложить достойную альтернативы коммерческим редакторам такого типа. Одновременно с легкостью в использовании и легким пониманием интерфейса, Scribus предоставляет профессиональные функции, такие как, система цветоделения CMYK, легкое создание документов PDF, и инкапсулированный язык описание страниз PostScript. Также поддерживается полное ICC управление цветом, и создание разделения цветов. Поддерживается импорт документов OpenOffice.org, ESP, HTML, SVG, PDF.Название программы: ScribusЯзык интерфейса: Multi/Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:369AE7301F921E6A0A277A5E764B68003B48B713
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,26 +733,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679747   (135355) от 26.11.2023
+###  Публикация: 593374   (135421) от 23.12.2012
 
-Борис Житков | Что я видел (2011) [MP3, Татьяна Телегина]
+VSO Downloader Ultimate 2.9.14.7 [Мульти/Русский]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135355.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135421.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Современный российский патриот ни дня не может прожить без мысли о СССР. Уже час за часом прослежены и перелицованы биографии почти всех советских политиков, не выходят из моды советские фильмы, мультфильмы, стихи, песни и их исполнители...
-Дети в школах с открытым ртом слушают о временах, когда квартиры просто давали, а за здоровье и науку не драли три шкуры. И (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказИздательство: МедиаКнигаПродолжительность: 08:47:19
+VSO Downloader - менеджер для многопоточной загрузки файлов, с помощью которого можно легко загружать онлайн-видео с различных сервисов видеохостинга, как например YouTube. Для загрузки нет необходимости копировать и вставлять URL-адрес - программа автоматически обнаруживает и скачивает потоковое видео, отсекая при этом различные баннеры и рекламные объявления. Присутствует поддержка HTTP, HTTPS протоколов и прокси-серверов, возможность докачки и прочее.Название программы: VSO Downloader UltimateЯзык интерфейса: Мульти/Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87D77EBAFD0760B542761F86CC01ECD3695824A3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,136 +759,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593465   (135354) от 23.12.2012
+###  Публикация: 592787   (135419) от 23.12.2012
 
-Берег (2 серии) (1983) DVDRip
+Necronomicon - The Queen Of Death (2012) [FLAC|Lossless]<Doom Metal / Psychedelic Rock>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135354.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Советский писатель Вадим Никитин приезжает в Гамбург, где недавно был издан его роман. В памяти Никитина воскресает Германия последних отчаянных боев за победу в 1945 году, когда был короткий отдых в немецком городке и была Эмма, молодая немка, в которую он был влюблен. Спустя сорок лет, они встречаются вновь.Производство: СССР, Германия (ФРГ)Жанр: МелодрамаРежиссер: Александр Алов, Владимир НаумовАктеры: Борис Щербаков, Наталья Белохвостикова, Бернхард Викки, Владимир Гостюхин, Валерий Сторожик, Михаил Голубович, Владимир Заманский, Андрей Гусев, Армен Джигарханян, Корнелия Бойе, Бруно Дитрих, Наталья Наумова, Альбина Матвеева...Продолжительность: 1 серия 01:06:07, 2 серия 01:06:49
+01. Holy Planet Yamoth (06:38)
+02. The Assassin's Song (05:20)
+03. The Black Priests Of Chaos (07:00)
+04. Dreaming Of The Old Ones (06:04)
+05. Hypnotic Overdrive Machine (07:04)
+06. The Queen Of Death (06:30)Жанр: Doom Metal / Psychedelic RockПродолжительность: 00:38:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D93B6F3638ABA8C3A726B0D0188D42C762FF57D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679551   (135353) от 26.11.2023
-
-Silent Angel - Unyielding, Unrelenting (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Unyielding Spirit
-02 – Against The Tides
-03 – A Destiny In Shadows
-04 – Through Selene’s Eyes(   Читать дальше...   )Жанр: Power Metal, Melodic RockПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0097EFAFE8A073ADA1EB1A0A28173876D8123D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679714   (135351) от 26.11.2023
-
-Wet Cactus - Magma Tres (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock, Heavy Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barren Landscape [00:03:21]
-02. Profound Dream [00:04:17]
-03. Mirage [00:06:14]
-04. My Gaze Is Fixed Ahead [00:05:04](   Читать дальше...   )Жанр: Desert-Rock, Heavy-Rock, StonerПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE417D7DB11FAAC1056D621346DEAC2E9D14618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679793   (135349) от 26.11.2023
-
-Наша банда. На собственном заднем дворе / Our Gang. Your Own Back Yard (1925) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Была когда-то в ихней Америке песня с таким названием. Общий смысл таков - если не хочешь неприятностей, оставайся на своем дворе. Может и скучновато, но безопасно. По-русски сказать - "сиди дома, не гуляй". И вот главный герой этого ролика, Фарина, иллюстрирует эту здравую мысль. Жаль, что качество фильма ниже всякой критики.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Джонни Даунс, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Гарри Бауэн, Уильям Гиллеспи, Charles Oelze, Фэй РэйПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F978749AC62A36FDC14DA7D4231EB3ECE3E7DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679762   (135347) от 26.11.2023
-
-Борис Житков | Чёрные паруса (2008) [MP3, Алексей Морозов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Степанович Житков (1882–1938), русский советский писатель. Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра.
-В состав диска вошли: повесть «Чёрные паруса» о приключениях плененного турками и проданного венецианцам в галерники казака, рассказы «Ураган» (о злоключениях (   Читать дальше...   )Жанр: Русская литература для детей, классика, приключения, повесть, рассказИздательство: Вира-МПродолжительность: 04:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77331EA4F3F5011A20BB46E6F5340C23E78F3CA8
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

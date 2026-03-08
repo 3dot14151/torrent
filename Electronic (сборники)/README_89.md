@@ -1,3 +1,32 @@
+###  Публикация: 1029205   (682193) от 26.06.2016
+
+VA - Tantric Lounge Massage: Sexy Erotic Chill Music To Improve Your Love Life Forever (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Art of Chill - One Day - Boys of Noize Mix
+02. Skyfall - Particle of Soul
+03. Soul Diver - Deeper than Deep - Pure Chill Mix
+04. Banghra Lounge Voices - Kamasutra in Heaven - Erotic Massage Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666A054F86AA15F9D73D005A2E60204E348EE2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290015   (682073) от 18.03.2019
 
 VA - Cr2 Miami 2019 (3 CD) (2019) [MP3|320 Kbps] <House, Electro House, Progressive House>
@@ -725,35 +754,6 @@ VA - Turbo Dance. Mix Music (2016) [MP3|233-320 Kbps] <Dance, Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A64B280668E9D03BB26E777E7DD2456E32CA94DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290287   (678480) от 20.03.2019
-
-VA - YR Best Chillout vol.42 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678480.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adler District - The Demons Of My Soul (Original Mix)
-002. AK & SubLab - Isolated (Original Mix)
-003. Alan Walker - Faded (Anton Melody remix)
-004. Alex Spite - Atmosfera (Original Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC3AE9788ABA7AF25765933D66797A6B36951A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

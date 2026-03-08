@@ -1,3 +1,32 @@
+###  Публикация: 1553739   (580026) от 28.05.2022
+
+Scary Kids Scaring Kids - Out Of Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580026.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nightmare (feat. Spencer Charnas of Ice Nine Kills)
+2. The Dark (feat. Noah Sebastian of Bad Omens)
+3. To the Unknown (feat. Vaines)
+4. Until You Come Back (feat. Matt MacDonald of The Classic Crime)(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, ElectronicПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7797E981F05C62F7944853031558F35F13924762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302593   (579332) от 17.05.2019
 
 Morabeza Tobacco - Morabeza Tobacco (2019) [FLAC|Lossless|tracks + .cue] <Аlternative, Dream - Pop, Lo-Fi>
@@ -716,35 +745,6 @@ Masfel - Viperagarzon (1996) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3609AA0814512AFB8DDB120893A1A452DAE506C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235221   (562269) от 10.07.2018
-
-Madsen - Lichtjahre (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wenn es einfach passiert
-02. Ruckenwind
-03. Sommerferien
-04. Mein erstes Lied(   Читать дальше...   )Жанр: Alternative Pop Rock, Pop PunkПродолжительность: 01:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DA6C188C25D364154C70ECCC7A3C5447613D9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

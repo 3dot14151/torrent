@@ -1,3 +1,61 @@
+###  Публикация: 1292721   (645196) от 30.03.2019
+
+Fire - Fire (1978) LP [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deeper In Love (4:08)
+02. C'mon, Let's Do It (3:06)
+03. It's Been So Long (2:34)
+04. Wrap Your Arms Around Me (3:48)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D0ADE28D89FA7C91888EA823525AF58EF35F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292676   (645191) от 30.03.2019
+
+VA - Radio Italia Spring (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takagi & Ketra - La Luna e la Gatta
+02. Elisa - Anche Fragile
+03. Mahmood - Soldi
+04. Jovanotti - Chiaro Di Luna(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BE1634BD4D704F491CC6CE3A60F970732BF7A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292673   (645189) от 30.03.2019
 
 VA - NRJ Extravadance (2019) 3CD [MP3|320 Kbps] <Pop>
@@ -681,64 +739,6 @@ VA - Girls Club, Vol.2 (Explicit) (2019) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3D9E94D4BF0305499FF1A757447B7469EAC5E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292888   (643372) от 31.03.2019
-
-VA - VA - Girls Club, Vol.1 (2018) Explicit [MP3|320 Kbps] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terri B! - I'm Coming Back (Sidelmann Radio Edit)
-02. Crew 7 - No Diggity (Farec Remix)
-03. Alex Guesta - Caliente (Stream Edit)
-04. Moreno Chembele - Se orita (Radio Mix) (feat. X.Orbit)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079B51F1B94D8E9928008FE5AC029D60FF17802B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292739   (643290) от 31.03.2019
-
-VA - Eurodance Evolution 2019.02 (2019) [MP3|320 Kbps] <Euro-dance, pop-dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  J.O.Y.C.E. - Let The Rhythm Take Control (feat A.K.-S.W.I.F.T. - radio mix)
-02.  Free 2 Night - Phantom Of Love (feat Timi Kullai - remastered radio mix)
-03.  B.G. The Prince Of Rap & Chrizz Morisson - So Special (feat Timi Kullai & Pamela O'Neal - Dolls Euro remix)
-04.  Shilton - Flame (Eurodance radio mix)(   Читать дальше...   )Жанр: Euro-dance, pop-danceПродолжительность: 01:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D57A8B23EB6D1ABBCAD29FC0F46707C7D900BE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

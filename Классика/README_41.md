@@ -1,3 +1,32 @@
+###  Публикация: 1078000   (302406) от 30.11.2016
+
+Johann Sebastian Bach MUnchener Bach-Chor, Munchener Bach-Orchester, Karl Richter - Weihnachtsoratorium - Arien und Chore (1965) 1994 Deutshe Grammophon [FLAC|Lossless|im
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chor: 'Jauchzet, frohlocket!'"
+ 02. Arie (Alt)- ''Bereite dich, Zion, mit zartlichen Trieben''
+ 03. Choral- ''Er ist auf Erden kommen arm'' , Rezitativ (Bass)- ''Wer kann die Liebe recht erhohn''
+ 04. Arie (Bass)- ''Gro.er Herr und starker Konig''(   Читать дальше...   )Жанр: Christmas OratorioПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42DCF56B36B9AA03565BC8F6A5255A7F6629C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 419832   (302182) от 07.12.2011
 
 Simon Rattle & Berliner Philharmoniker - Чайковский: Щелкунчик (2011) [DSD 2.0 1bit/2822,4kHz |SACD-R]<Classical>
@@ -713,35 +742,6 @@ Joshua Bell - For the Love of Brahms (2016) [FLAC|Lossless|WEB-DL|tracks] <Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:212671FD5F31F6E9DD666D5FE2A82EA901189F8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080139   (290081) от 06.12.2016
-
-Julian Bream - Lute Music from the Royal Courts of Europe (volume 2) (1966-76) 1993 BMG Music [FLAC|Lossless|image + .cue] <Classical, Instrumental, Lute.>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Landgrave of Hesse Mauritius - Pavan (5:27)
-02.Simone Molinaro - Saltarello (1:14)
-03.Simone Molinaro - Ballo detto Il Conte Orlando (2:15)
-04.Simone Molinaro - Saltarello (1:13)(   Читать дальше...   )Жанр: Classical, Instrumental, Lute.Продолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2143220DA0782A87275468A7F5CA8A55B1628006
 ```
 
 https://mybot314.ru/tekegram_catalog/

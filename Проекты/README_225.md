@@ -1,29 +1,3 @@
-###  Публикация: 1056632   (481389) от 25.09.2016
-
-Проекты - VideoHive - Insane Shapes - 4826790 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безумные Формы - шаблон для создания вступительного интро, титров, короткого слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF516B5C414B0CBEE09E830492C576F581B7F1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 822381   (481379) от 17.09.2014
 
 Videohive - Vintage Projector Photo Album - 5515672 [AEP]
@@ -686,6 +660,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:568CC6A2CD3BE26F594008C87168F54E91012E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056678   (478790) от 26.09.2016
+
+Проекты - VideoHive - Multi Photo Logo Reveal 3 - 17117265 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для мульти фото презентации логотипа или слогана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BDB6B8FF5B4DCBC81C5381E1E129EC6BD0B32C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1737965   (106424) от 20.07.2024
+
+OneRepublic - Artificial Paradise (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artificial Paradise
+02. Hurt
+03. Sink Or Swim
+04. Last Holiday(   Читать дальше...   )Жанр: Alternative Pop, Pop RockПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1328047DF4BACDCEFD4A798871C2B0452FDC9B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739304   (106080) от 27.07.2024
 
 Crawlers - The Mess We Seem To Make (2024) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -712,41 +741,6 @@ The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
 02. Tomorrow (3:55)
 03. Fire & Soul (4:32)
 04. Raining In My Heart (3:27)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473194   (84389) от 25.03.2012
-
-Shinedown - Amaryllis (2012) [FLAC|Lossless]<Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrenaline (3:26)
- 02. Bully (4:03)
- 03. Amaryllis (4:04)
- 04. Unity (4:13)
- 05. Enemies (3:08)
- 06. Im Not Alright (3:07)
- 07. Nowhere Kids (3:12)
- 08. Miracle (3:39)
- 09. Ill Follow You (3:59)
- 10. For My Sake (3:47)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:43:42
 
 ## Скачать торент
 ```bash

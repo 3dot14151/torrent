@@ -1,3 +1,73 @@
+###  Публикация: 811133   (581485) от 07.08.2014
+
+Grant Miller - The Maxi-Singles Collection (2007) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colder Than Ice 5:35
+02. Red For Love 5:28
+03. Doctor For My Heart 5:16
+04. I'm Alive Tonight 3:59
+05. Wings Of Love 5:15
+06. California Train 4:54
+07. (Find My) Tracks In The Snow 5:06
+08. Break Away 5:52
+09. Stranger In My Life 4:29
+10. In The Rain Again 4:57(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D4D746FF999D533B847BFE605A076E9B0F8300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810990   (581481) от 07.08.2014
+
+Baby's Gang - Challenger (2008) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Challenger 5:16
+02. Jamin 5:56
+03. Happy Birthday (To My Mammy) 4:55
+04. Happy Song 5:35
+05. My Little Japanese Boy 4:22
+06. Step By Step 4:32
+07. America 4:26
+08. Challenger (Instrumental Mix) 3:04
+09. Disco Maniac 5:45
+10. Let's Dance In The Music 4:39(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93A1BDF3516928FC2EFFFE840B6D2E90420DD72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 811052   (581456) от 07.08.2014
 
 Gilla - I Like Some Cool Rock 'N' Roll (2010) [FLAC|Lossless]<Disco>
@@ -745,64 +815,6 @@ Rhye - Spirit (2019) [FLAC|Lossless|WEB-DL|tracks] <Sophisti-Pop, Indie-Pop, RnB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B8CB446A815156884A2DEAB54986BAFF16BAE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302763   (579329) от 17.05.2019
-
-Chromeo - Head Over Heels (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Nu-Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Must've Been (feat. D.R.A.M.) (03:29)
-02. Don't Sleep (feat. French Montana & Stefflon Don) (03:19)
-03. One Track Mind (03:23)
-04. Count Me Out (03:37)(   Читать дальше...   )Жанр: Dance-pop, Nu-Disco, Synth-popПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:426A8CC6A7F7ED96D0913142314987FCD6E60965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302745   (579326) от 17.05.2019
-
-Carly Rae Jepsen - Dedicated (2019) [MP3|320 Kbps] <Pop, Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Julien
-02 No Drug Like Me
-03 Now That I Found You
-04 Want You in My Room(   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EED73857FB69BD23878032C1E72778CD1B114AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

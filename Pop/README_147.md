@@ -1,3 +1,61 @@
+###  Публикация: 1294981   (620762) от 12.04.2019
+
+Lalo Project - Freak Hero (2013) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Listen to Me, Looking at Me  (3:45)
+02 - In This Moment  (3:45)
+03 - Never  (2:51)
+04 - My Sun  (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE93BA4BEEA4A608AADBA9EBBCC816406104B9DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294974   (620759) от 12.04.2019
+
+Lalo Project - Твой путь (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Твой путь  (4:22)
+02 - Мечтания  (3:33)
+03 - Sea  (3:47)
+04 - Море  (3:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868FADF48C9BEF6966BCDCD273E682CA98B7E401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295479   (620631) от 12.04.2019
 
 VA - Sunlover Records Compilation Vol.3 - Italowave (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-pop>
@@ -688,79 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F648F70EE2309ABF99BF644EB75CADCE378BC1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523147   (618850) от 15.07.2012
-
-Demis Roussos - The Singles+ (2 CD) (2003) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618850.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1| Продолжительность: 01:15:18
-01. We Shall Dance
-02. Fire And Ice
-03. No Way Out
-04. My Reason
-05. Forever And Ever
-06. Velvet Mornings
-07. Goodbye My Love, Goodbye
-08. My Friend The Wind
-09. Schoes Madchen aus Arcadia(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:25
-01. Kyrila
-02. Mourir Aupres De Mon
-03. Ainsi-Soit-Il
-04. Life In The City
-05. That Once In A Lifetime
-06. Loin Des Yeux, Loin Du Coeur
-07. The Wedding Song
-08. Lost In Love
-09. I Need You(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A312BE9BC879C207812AAC78F801A9A456239C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295505   (618805) от 13.04.2019
-
-VA - The Definitive Harem Records 12 '' (1997) 2CD [MP3|320 Kbps] <Electronic, Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диско сборник хитов конца 70х - начала 80х от британского DJ, автора и продюсера Simon Soussan, выпущенных на студии"Harem Records" - дочерней фирме "Polydor".01. Pattie Brooks - After Dark (7:57)
-02. Arpeggio - Love And Desire (8:57)
-03. Simon Orchestra - Mr.Big Shot (8:02)
-04. Jessica Williams - Queen Of Fools (8:27)(   Читать дальше...   )Жанр: Electronic, Disco, Hi-NRGПродолжительность: 02:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61031E234E8F0F9FB48DFBD70856DBF02E912E0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

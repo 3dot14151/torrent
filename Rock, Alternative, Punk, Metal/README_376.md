@@ -1,32 +1,3 @@
-###  Публикация: 1287189   (705375) от 06.03.2019
-
-Traitors - Repent (2019) [MP3|320 Kbps] <Downtempo Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Intro
-02.Suffocate
-03.Dwell
-04.Left To Rot(   Читать дальше...   )Жанр: Downtempo DeathcoreПродолжительность: 00:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B842F7C5A6B1C806A46D2A6E79DA34B26C8933CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287147   (705369) от 06.03.2019
 
 Ignis - Sic Transit Gloria Mundi (2018) Remastered [FLAC|Lossless|tracks + .cue] <Black Metal, Post-Metal, Crust>
@@ -740,6 +711,35 @@ VA - A Tribute To Iron Maiden (2017) [MP3|320 Kbps] <Heavy Metal, Thrash Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15711199F085CEEAC12307DAEE829F30E2F54210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131812   (704602) от 07.05.2017
+
+Dimmu Borgir - Forces of the Northern Night (2017) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xibir (Orchestra Only)
+02. Born Treacherous
+03. Gateways
+04. Dimmu Borgir (Orchestra Only)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 01:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57D1B199491D91FD88E4D4F60449E539FD458F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

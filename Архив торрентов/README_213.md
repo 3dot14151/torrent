@@ -1,3 +1,29 @@
+###  Публикация: 1482699   (1007461) от 09.07.2021
+
+4K Stogram Pro for Mac 3.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007461.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D82CC8121E97D5A39CEE8A6B792A2CD2A269180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482653   (1007457) от 09.07.2021
 
 FBackup 9.1.357 [Multi/Ru]
@@ -643,35 +669,6 @@ Grids переносит лучшее из Instagram на ваш Mac. Grids for 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3AE789835AF3B19075DC18DEFE0CF19D8DCF053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483075   (1007183) от 11.07.2021
-
-dZihan & Kamien - Freaks & Icons (2000) Six Degrees Records [FLAC|Lossless|tracks+.cue] <House, Downtempo, Deep House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After (07:27)
- 02. Dabudei (05:46)
- 03. Streets Of Istanbul (05:08)
- 04. Before (05:20)(   Читать дальше...   )Жанр: House, Downtempo, Deep HouseПродолжительность: 01:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7A69777DAC696A1A45191E542B82278C74BDD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

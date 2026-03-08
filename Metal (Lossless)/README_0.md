@@ -1,3 +1,90 @@
+###  Публикация: 1854329   (1057254) от 18.02.2026
+
+Ian Highhill - A Hymn Among Gravestones (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Eye of the Storm (03:34)
+02. A Hymn Among Gravestones (04:21)
+03. In the Name of Greed (04:27)
+04. The Oath Breaker (03:38)(   Читать дальше...   )Жанр: Heavy, Doom Metal, Hard RockПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D39BC9D6C92A7030CE4244AD42DC9BC5B773133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854352   (1057253) от 18.02.2026
+
+Megadeth - Megadeth (2026) [FLAC|Lossless|image + .cue] <Thrash Metal, Heavy Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tipping Point (04:29)
+02. I Don't Care (03:10)
+03. Hey God?! (03:29)
+04. Let There Be Shred (03:58)(   Читать дальше...   )Жанр: Thrash Metal, Heavy Metal, RockПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF628C55955B2A096DC33EF38EE3035C40AB06AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854510   (1057250) от 18.02.2026
+
+Rotting Christ - 35 Years of Evil Existence (Live in Lycabettus) (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 666 (Live) (05:44)
+02. P'Unchaw Kachun: Tuta Kachun (Live) (04:53)
+03. Fire God and Fear (Live) (04:44)
+04. Kata Ton Demona Eaftou (Live) (04:50)(   Читать дальше...   )Жанр: Melodic Black Metal, Gothic MetalПродолжительность: 01:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1847E752B9E52898F8BD8FA1FE0D6FCA0D6D114B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854072   (1057219) от 16.02.2026
 
 Wolfchant - Echoes of a Time Once Past (2026) [FLAC|Lossless|WEB-DL|tracks] <Pagan, Folk Metal, Melodic Death, Power Metal>
@@ -658,93 +745,6 @@ Poppy - Empty Hands (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3E200C54957DD7EF4709B0B2D3BA40DDD07D95B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849009   (1053153) от 20.01.2026
-
-Werken - Hielo Eterno (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maquinchao (Intro)
-02. Alas Delta
-03. Esperanza
-04. El Regreso(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3AF996F106D3F851B5B3B7016EC3BF6417BB2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848687   (1053089) от 18.01.2026
-
-Knocked Loose - Collection (2014 - 2024) 5CD [FLAC|Lossless|tracks + .cue] <Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Knocked Loose — американская хардкор-панк-группа из Oldham County, Kentucky. Играет в жанрах металкор, хардкор-панк и битдаун-хардкор. Вокалист Брайан Гаррис отмечает, что их звук находится «между хардкором и металкором».Список альбомов:
-2014 - Pop Culture
-2016 - Laugh Tracks
-2019 - A Different Shade of Blue(   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 02:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287D94373045F9EBEAC8553C8AE8BC5056FE24F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848924   (1053005) от 19.01.2026
-
-Warkings - Armageddon (2025) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Lindisfarne...
-02. Armageddon
-03. Genghis Khan
-04. Kingdom Come(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066F9FB0E0239D22118394E1DE6ECF9C25283CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

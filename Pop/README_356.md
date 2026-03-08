@@ -1,3 +1,61 @@
+###  Публикация: 1749099   (43654) от 13.09.2024
+
+VA - Bravo Hits (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shirin David - Bauch Beine Po[2:15]
+02. AYLIVA & Apache 207 - Wunder[2:57]
+03. Adam Port, Stryv, Keinemusik, Orso & Malachiii - Move[2:58]
+04. Bl3ss & CamrinWatsin feat. bbyclose - Kisses (feat. bbyclose)[2:19](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143A95BEA42EEE324E543EF57E46DA585CAFADC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596295   (43643) от 14.09.2024
+
+Николай Гнатюк - Золотой альбом (Лучшие песни) (2011) [FLAC|Lossless]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Галина
+02. Птица счастья
+03. Барабан
+04. Малиновый звон(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62966A735AF4004B6072DDDCF5710AD041AE3473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749137   (43566) от 14.09.2024
 
 Kylie Minogue - Tension (2023) (Bonus Deluxe Edition) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, House>
@@ -684,64 +742,6 @@ Cher - Forever Fan (2024) Compilation, Remaster [FLAC|Lossless|WEB-DL|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09DF48DCFDDC573A71E8B08939D6DF6B50C337B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751706   (42324) от 26.09.2024
-
-Lady Gaga - Harlequin (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Morning (02:47)
- 02. Get Happy (2024) (03:12)
- 03. Oh, When The Saints (03:43)
- 04. World On A String (02:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBBE3D14F392C5D45E495213D1AF93D643EFDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751397   (42297) от 26.09.2024
-
-Brenda Lee - Greatest Hits of Brenda Lee (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42297.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - I Want to Be Wanted [00:03:04]
-002 - I'm Sorry [00:02:40]
-003 - Some of These Days [00:02:20]
-004 - Pennies from Heaven [00:02:23](   Читать дальше...   )Жанр: PopПродолжительность: 04:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373451FCDA225EDCD4BA1663DA89EDEF39AF30AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

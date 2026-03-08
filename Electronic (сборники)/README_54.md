@@ -1,3 +1,32 @@
+###  Публикация: 1011741   (796434) от 28.04.2016
+
+VA - Sexy Deep House Tracks (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hairy Orchard - Bad Teen (Houzee Mix)
+02. Delirious Bird - Seven up Confusion (Vocal Deep Mix)
+03. Audrey Langston - Another Day in the Lake (Frank Castle's Deep Mix)
+04. Harry Ashton - Bye Bye Mivar (Martin Franklin Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBDEE5B21C30FF42A11332E86001C87D7FA55B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200481   (796425) от 20.01.2018
 
 VA - The Official UK Top 40 Singles Chart 19.01.2018 [MP3|320 Kbps] <Electropop, Alternative, Other>
@@ -716,35 +745,6 @@ VA - Finding Around Happiness (Energy Tech Trance) 004 (2016) [MP3|320 кб/с] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:655FC764998AA74AB83C417FAB8D51676180D2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012233   (794728) от 30.04.2016
-
-VA - Beatport Top 100 April (2016) [MP3|320 кб/с] <House, Electro, Tech, Nu-Disco, Progressive, Tribal, Future House, Indie Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794728.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tujamo - Drop That Low (When I Dip) (Extended Mix) 04:31
-002. Lee Walker - Freak Like Me (DJ Deeon vs Lee Walker Remix) 05:47
-003. Lucas & Steve - Make It Right (Extended Mix) 04:09
-004. Dennis Cruz - See Line (Wade Remix) 06:16(   Читать дальше...   )Жанр: House, Electro, Tech, Nu-Disco, Progressive, Tribal, Future House, Indie DanceПродолжительность: 10:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1914DA0B31C0AE2F29D5194D26ABF24CC3A606
 ```
 
 https://mybot314.ru/tekegram_catalog/

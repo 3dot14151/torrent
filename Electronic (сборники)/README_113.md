@@ -1,3 +1,32 @@
+###  Публикация: 1041684   (581466) от 10.08.2016
+
+VA - The Best - In Music We Trust  Vol.5 (2016) [MP3|320 Kbps] <House, Trance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581466.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andrew Rayel & Digital X feat. Sylvia Tosun  -  Winterburn (Jorn van Deynhoven Extended Remix)  5:30
+002. Crew 7  -  Bounce (Melbourne Bounce Project Edit)  3:29
+003. Melbourne Bounce Project & Gemeni  -  Melbournia Superstars (Extended Mix)  4:10
+004. Kaimo K & Sarah Russell  -  Why Can't You Love Me (Original Mix)  6:50(   Читать дальше...   )Жанр: House, Trance, ClubПродолжительность: 06:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E71E6C930F9FD8C0D35CEB88B243C418FD54826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920249   (581112) от 21.07.2015
 
 VA - Trance Desire Volume 51 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
@@ -744,35 +773,6 @@ VA - Lounge Music Players (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41F1EA50D276CF0D4136BD71F11FE84A8DC2E0C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042534   (578514) от 13.08.2016
-
-VA - Motel Atlantique: Gold Selection (2016) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roy Real - Is to the Work - Deep Guitar Mix
-02. Rick Warrol - Wide Panoramas - Deep Lady Mix
-03. Matt Maxim - Spontaneous Lightness - Early Morning Deep Mix
-04. Nic Cherokee - Lights Ahead - House Room's 69 Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA63380621FB0B47F20BB000E2EBA2A9A19BB35
 ```
 
 https://mybot314.ru/tekegram_catalog/

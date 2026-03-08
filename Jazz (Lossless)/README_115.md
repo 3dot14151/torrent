@@ -1,3 +1,38 @@
+###  Публикация: 339201   (667289) от 20.05.2011
+
+Чайф - Акустические версии (1997) [FLAC(image + .cue)|Lossless]<Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_667289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вперед
+2. Моя квартира
+3. Я рисую на окне
+4. Ой-е
+5. Скажи только слово
+6. Белая ворона
+7. Хей-хей
+8. Традиционная
+9. Оранжевое настроение
+10. Пиво(   Читать дальше...)Жанр: RockПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224358   (667186) от 09.05.2018
 
 Miles Davis & Sonny Rollins - The Classic Prestige Sessions, 1951-1956 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -716,35 +751,6 @@ Dr. Lonnie Smith - All In My Mind (2018) Blue Note [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:865ACCD644E250A415D3B038DE6AE74DC054114E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138835   (662426) от 31.05.2017
-
-Nada Jovic & Dusko Goykovic (Goykovich) Quintet - Take Me In Your Arms (1966) 2002, Cosmic Sound [APE|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Hearth Belong To Daddy [02:15]
-02. A Lot Of Livin' To Do [03:17]
-03. Where Can I Go Without You [02:55]
-04. Love Me Darling [02:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DDFA2828E9C17954AFFEC73EDF4B45FE8AA397
 ```
 
 https://mybot314.ru/tekegram_catalog/

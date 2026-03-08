@@ -1,3 +1,177 @@
+###  Публикация: 1027407   (696201) от 19.06.2016
+
+VA - Guitar Collection 5 (2016) [MP3|320 кб/с] <Instrumental, Acoustic, Blues-Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696201.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mick Abrahams - Dragonfly    03:18
+002. Morcheeba - Public Displays Of Affection    03:08
+003. Neal Schon - El Matador    03:51
+004. Mark Knopfler & Evelyn Glennie - Altamira    02:59(   Читать дальше...   )Жанр: Instrumental, Acoustic, Blues-RockПродолжительность: 07:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F40BFA95CC9D194F46037F519E54B5B7FC2B794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 794625   (695896) от 09.06.2014
+
+VA - Русский Рок - Фарш (vol. 2) (2014) [MP3|320 кб/с]<Рок, Хард-рок, Хеви-метал>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Секрет - Всё Это И Есть Любовь
+02. Найк Борзов - Поцелуй И Укус
+03. Моя Подруга Катрин! - Мосты
+04. Вектор Эго - Никогда(   Читать дальше...   )Жанр: Рок, Хард-рок, Хеви-металПродолжительность: 03:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE02AEF012CDF145679ABE2E7C72C9EDB519F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403035   (695826) от 17.08.2020
+
+VA - Beatport Electro House: Sound Pack #144 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695826.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mayank & Virtu - Allume
+002. Abel Ramos - Hola Mi Amor
+003. Luke Db - Never Have To Run
+004. Wildknights - Burn(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7E7C6723C5F006701C97C4D9B1EBD1F36E9614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288310   (695671) от 11.03.2019
+
+VA - Empire Records - Trance 90's (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind-X - Love Freedom Tolerance (Fridge vs Mind-x Edit)
+02. Photographer, Roman Messer - Infinity (Roman Messer Radio Edit)
+03. The Space Brothers - Shine (Jorn van Deynhoven Remix)
+04. Tanya Zigar - Puzzle Piece(   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324D98621C5559624E79EA683E49791412F6B84E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288335   (695661) от 11.03.2019
+
+VA - Pop Slam Radio: Spring Edition (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kygo, Imagine Dragons - Born To Be Yours
+002. The Prince Karma - Later Bitches
+003. Vegedream - Ramenez La Coupe À La Maison
+004. Angèle, Romeo Elvis - Tout Oublier(   Читать дальше...   )Жанр: PopПродолжительность: 08:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786463C6CE138C587540B645208CAB33233A3F8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288313   (695660) от 11.03.2019
+
+VA - Empire Records - Trance 90's 2 (2019) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interphace - Dr Feelgood (Radio Edit)
+02. Aural Project - Fine Tune (Radio Cut)
+03. Quench - Dreams (Nicholsons Cathedral Remix)
+04. DJ Denis Juice - Infinity & Beyond (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD70C76C2E265BA36D94775BCD2BAEA21DD4BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288415   (695658) от 11.03.2019
 
 VA - Latino Sound Cartel (2019) [MP3|320 Kbps] <Latino, Dance, Reggaeton>
@@ -571,177 +745,6 @@ VA - Beatport Progressive House: Electro Sound Pack #145 (2020) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40759B8694B3119153E1F7BF8F179BF658B18897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534349   (694139) от 02.03.2022
-
-VA - NOW Yearbook Extra 1983 (2021) 3CD [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694139.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Wham! - Wham Rap! (Enjoy What You Do?)
-02. Paul McCartney, Michael Jackson - Say Say Say
-03. Elton John - I Guess That's Why They Call It The Blues(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:12:15 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1570D481C44EC78708DF8CA20C2EF41ABE9F1B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288576   (694075) от 12.03.2019
-
-VA - не Громкие новинки недели 4 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 140 Ударов В Минуту - Он Ушёл От Тебя
-02. Buga - Я Буду Кайфовать
-03. Carlos Vara - Confident
-04. Dara - La Costum(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084EFCB4686097419E52725CD79E1392DDE22313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403188   (694026) от 18.08.2020
-
-VA - Hare Krishna (Life is in your Hands 2CD) (2020) [MP3|320 Kbps] <Pop, Rock, Asian Music>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Todd Boston - Celtic Heart
-02. Nostromosis - Flowers of Life (Intro)
-03. Jap Dharam - I Am Thee, Thou Is Me
-04. Krishna Das - 4am Hanuman Chalisa(   Читать дальше...   )Жанр: Pop, Rock, Asian MusicПродолжительность: 17:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0168120C110578AB342B2E85FB75C1341D9276F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133553   (693436) от 13.05.2017
-
-VA - World Wide Trance # 01 (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Farhad Mahdavi - Argentina (Extended)  7:18
-02.  Hamza Khammessi - La Dicha (Original Mix)  7:24
-03.  JES - Photograph (Roger Shah Remix)  7:24
-04.  Sam Laxton - Searching (Original Mix)  6:00(   Читать дальше...   )Жанр: TranceПродолжительность: 03:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4FFCFF75566AFA76519BD4554FAF82A7C7FC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288539   (693413) от 12.03.2019
-
-Buzzy Bus - You Don't Stop (2018) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693413.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Buzzy Bus - You Don't Stop (G Love & Igor Frank Remix Radio Edit)Жанр: Club, DanceПродолжительность: 00:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2D01718E1E665E5447AF006C8BEFF53B8D9B83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288668   (693412) от 12.03.2019
-
-VA - Club Dance Ambience Vol.173 (2019) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693412.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. #2Маши - Мама, Я Танцую (Kolya Funk Remix)
-002. A Boogie Wit Da Hoodie - Look Back At It  (Vadim Adamov & Hardphol Remix)
-003. Agua Sin Gas by Antoine Clamaran - Dancin' (Original Mix)
-004. A-Mase & Sharliz  - Зима В Сердце (Гости из Будущего Cover)  (Original Vip Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC09F257508FE4811228E9C01CF0BBC074ECDB8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

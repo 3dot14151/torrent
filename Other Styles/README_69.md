@@ -1,3 +1,32 @@
+###  Публикация: 1289563   (686476) от 16.03.2019
+
+VSOP (Vienna Symphonic Orchestra Project) - Classic Meets Pop (1989) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686476.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Hand In Hand
+2.	Medley: Golden Slumbers, Carry That Weight, You Never Give Me Your Money, The End
+3.	Orinoco Flow
+4.	The First Time(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A72142843CFD029653773E743E02C4A076F258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288699   (686470) от 16.03.2019
 
 VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -735,35 +764,6 @@ Johnny Cash - Les Genies du Rock -  I Walk The Line (1993) [MP3|320 кб/с] <Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3565099C48119BD8ECDCCCAC0DA9473931568CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029120   (682194) от 26.06.2016
-
-Alex Vanderberg (Van Der Berg)  Orquestra - Music To Make Love (1991) [MP3|160 кб/с] <Classical, Romantic, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Blue
-02. I Am Sailing
-03. Memories
-04. Words(   Читать дальше...   )Жанр: Classical, Romantic, InstrumentalПродолжительность: 00:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC3ACBD1B743FB8334BCE8674E719ED7618F0DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

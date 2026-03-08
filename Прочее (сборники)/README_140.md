@@ -1,3 +1,119 @@
+###  Публикация: 1338523   (268188) от 17.11.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 15.11.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268188.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Tones And I - Dance Monkey (3:29)
+2.Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) (2:37)
+3.RSAC - NBA (Rompasso Remix) (2:53)
+4.Slider & Magnit - Morze (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE5AF84E0D82822E58D3E7E59DC91D3784F1E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338958   (268058) от 17.11.2019
+
+VA - Зарубежка 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Coldplay - Arabesque (5:40)
+2.Ozzy Osbourne - Under The Graveyard (4:57)
+3.Logic - OCD feat. Dwn2earth (4:51)
+4.Lindemann - Ich weiß es nicht (4:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A720BEE3A088C40CF93E2CCD1A99E91A43A772F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338606   (268055) от 17.11.2019
+
+VA - Зайцев.нет Лучшие новинки Ноября (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268055.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Jessie Ware - Mirage (Don't Stop) (4:47)
+2.Виктор Королёв - Звёзды на ладони (4:31)
+3.Истов - Мне бы крылья, мне бы мечту (4:18)
+4.Nargiz - Войди (4:09)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:784579ED1C64BBF7D26A08334C6D4E8A0BAAC836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266992   (267897) от 05.12.2018
+
+VA - Beatspot Winter '18 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echo Boy — Obsession (Original Mix)
+02. Johanna Lopez — Feels Like Heaven (Teddy Brown Remix)
+03. Patrick Richmond — Deceiver (Dub Mix)
+04. John Blame — Back in Town (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5516D40F4E7236CB536C082EA7F4D5391EDCD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338780   (267680) от 17.11.2019
 
 VA - Radio DFM: Top D-Chart (15.11) (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -628,119 +744,6 @@ VA - не Громкие новинки недели 44 (2019) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E748F5E0C9C63AD4DFA3C938C80970E22479E99B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509494   (263569) от 24.11.2019
-
-VA - Маме - для души и сердца (2012) [MP3|320 кб/с]<POP>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 04:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144E06F85A219A672CCDEA3FD7E9B43D38C4F495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192006   (263498) от 16.12.2017
-
-VA - Electro Rhythms Funky Disco House (2017) [MP3|320 Kbps] <Dance, Funky, Disco House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263498.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Phuture Point - The Mission (Wavegrooves Mix)
-002. Dele Sosimi Afrobeat Orchestra - Too Much Information
-003. Frank Vision - My Dad Is Gone (Dolphin Mix)
-004. Osunlade - Envision (Yoruba Soul Mix)(   Читать дальше...   )Жанр: Dance, Funky, Disco HouseПродолжительность: 14:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96916A3D1020FA8AF20EA8F6741C9735869BD8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192209   (263393) от 16.12.2017
-
-VA - Top 100 Зайцев.Нет Ноябрь (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  DJ Slon & Katya feat. Роман Василенко  -  Life Is Good  3:01
-002.  J. Balvin & Willy William  -  Mi Gente  3:09
-003.  Дима Билан  -  Держи  3:41
-004.  Serebro  -  Между нами любовь  3:11(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAB62FDF644C27FEB1F7AC12AB45EF203966740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192398   (263207) от 17.12.2017
-
-VA - The Official UK Top 40 Singles Chart 15.12.2017 [MP3|192-320 Kbps] <Alternative, Indie, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Perfect 4:23
-02. Mariah Carey - All I Want For Christmas Is You 3:58
-03. Wham! - Last Christmas 6:49
-04. Camila Cabello - Havana (Feat. Young Thug) 3:37(   Читать дальше...   )Жанр: Alternative, Indie, OtherПродолжительность: 02:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C03E5E7C265E9A6D6AD6B5F9A920684B6643BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

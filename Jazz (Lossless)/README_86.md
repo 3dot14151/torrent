@@ -1,3 +1,32 @@
+###  Публикация: 1521437   (765230) от 02.01.2022
+
+VA - The Art Of The Piano: Trio, Quartet, Quintet and Beyond (Milestones of Jazz Legends) (1947 - 1962) 10CD, 2020, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Hard B ...
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765230.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Bill Evans - My Foolish Heart [4:58]
+02. Bill Evans - Waltz for Debby [7:00]
+03. Bill Evans - Detour Ahead [7:37](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 12:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC9B70D9806AA55E3E45EBA06FC75F29E227448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521483   (765227) от 02.01.2022
 
 Harold Mabern Trio - Falling In Love With Love (2002) Venus Records [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Carl Saunders - Out Of The Blue (1996) SNL Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:350CC353D6142D2AF70E111F937821405D6B3024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280049   (763701) от 01.02.2019
-
-Dick Haymes with Harry James & Benny Goodman - Serenading with The Big Bands (1950-e) 1995, Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sinner Kissed an Angel [3:15]
-02. Montevideo [3:16]
-03. You Don't Know What Love Is [3:14]
-04. Ol' Man River [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD0FA5A11BAAC6D9FBBFE227C3F4359C0CD30E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

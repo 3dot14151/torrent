@@ -1,3 +1,32 @@
+###  Публикация: 1335045   (287177) от 02.11.2019
+
+Musica Relajante - Power Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287177.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aum 02:23
+2. Krishna Sounds 03:24
+3. Follow your nature 01:44
+4. Kundalini Yoga Music 02:26(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 04:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A7590BBB305E2E156DBC86B9FFD6007FA919A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263359   (286299) от 20.11.2018
 
 Thomas E Rouch - Портал/Alpha Gateway (Original Motion Picture Soundtrack) (2018) Web-DL [MP3|320 Kbps] <Soundtrack>
@@ -718,35 +747,6 @@ Paul Mauriat - The Russian Album (1993) [FLAC|Lossless]<Instrumental>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264369   (281089) от 23.11.2018
-
-Евгений Алексеев - Piano Tribute to Гражданская Оборона (2018) [FLAC|Lossless|image + .cue] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательство Bull Terrier Records представляет первый в истории официальный инструментальный трибьют Егору Летову и группе ГРАЖДАНСКАЯ ОБОРОНА! 12 треков, исполненных Евгением Алексеевым на концертном рояле Steinway & Sons Model D, записаны в студии SuperSizeRecording (Будапешт, Венгрия). Средства для записи и производства альбома были собраны благодаря сотням (   Читать дальше...   )01. Моя Оборона (3:17)
-02. Со Скоростью Мира (2:48)
-03. Всё Как У Людей (3:16)
-04. Без Меня (3:24)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BD22F2D13287B3240B446EB7D1793F754E4128
 ```
 
 https://mybot314.ru/tekegram_catalog/

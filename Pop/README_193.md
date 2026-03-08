@@ -1,3 +1,61 @@
+###  Публикация: 1056274   (481667) от 25.09.2016
+
+DJ Piligrim - Om (2016) [MP3|320 Kbps] <Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычный концептуальный альбом, состоящий из авторских кавер-версий индийских мантр.01. Intro (Om Ganapataye Namah)
+02. Sita Ram (Sattva Reggae Mix)
+03. Om Namah Shivaya (Deep Sattva Dance Mix)
+04. Chami (Sattva Dance Mix)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE84807B49A5C3AA848F6D690EDCB445E1FB4562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938405   (481594) от 18.09.2015
+
+Lana Del Rey - Honeymoon (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honeymoon
+02. Music To Watch Boys To
+03. Terrence Loves You
+04. God Knows I Tried(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61FC7BEBD107D97237BB0F9E1D38BF00C78BFEED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056556   (481568) от 25.09.2016
 
 Платья за 130 - Бывшие (2016) [MP3|320 Kbps] <Retro Pop, Comedy Pop>
@@ -708,64 +766,6 @@ Plazma / Плазма - 607 / Six Zero Seven (Extended) (2004) [MP3|320kbps]<Pop
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057123   (477707) от 27.09.2016
-
-Charlee Remitz - Bright White Trims (2015) [MP3|320 Kbps] <Alternative Pop, Indie Dream Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King's Cup
-02. Fillin' in for a Goddess
-03. Cake Eater
-04. Bmw(   Читать дальше...   )Жанр: Alternative Pop, Indie Dream Pop, ElectronicПродолжительность: 00:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4656FFF7EDEBCCA0F162D99509589395E4C02DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057010   (477601) от 27.09.2016
-
-Kristy Thirsk - Phoenix (2014) [MP3|320 Kbps] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mistake (03:32)
-02. Little Soldier (03:51)
-03. Hourglass (03:21)
-04. Bandage (03:57)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9A536CC8624C0655E0E57CB865046D837E9951
 ```
 
 https://mybot314.ru/tekegram_catalog/

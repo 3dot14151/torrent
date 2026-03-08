@@ -1,3 +1,61 @@
+###  Публикация: 1599577   (159621) от 24.12.2022
+
+VA - Trance 2023 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Connelly - Got To Give (3:59)
+02. Metta & Glyde - Build A Bridge (3:41)
+03. Stargazers - Stand Me Up Alive (3:47)
+04. Raz Nitzan - Moon Phases (3:47)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042D478D9F863491601DA4B77CD86083E5EE7AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599631   (159612) от 24.12.2022
+
+John Dopping - The Losing Struggle (2022) [FLAC|Lossless|WEB-DL|tracks] <Break Beat, House>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Dopping - Strange Place For Notes
+02. John Dopping - Hurt Me
+03. John Dopping feat. Remeya Kingston - What It Is To Fall
+04. John Dopping - Liberate(   Читать дальше...   )Жанр: Break Beat, HouseПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD6638FC3212B4DE231B17EBB62752276AE9C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599638   (159590) от 24.12.2022
 
 Ovnimoon - Carjecatma (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy Trance, Goa Trance, Progressive>
@@ -675,61 +733,6 @@ Troels Hammer - Trans/For/Mation (2015) Deluxe [FLAC|Lossless|tracks] <Piano, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0064EB4C8020D3E1940E19B8096A53C4C1B5651A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968113   (158245) от 22.12.2015
-
-VA - The Silence Was Warm, Vol. 2 (2008) [FLAC|Lossless|tracks + .cue] <Ambient, Modern Classical, IDM, Post-Rock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ambient, Modern Classical, IDM, Post-Rock |Продолжительность: 00:52:55+00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C4AAD6C3A163721F4A30F675EB0CFEB39C547B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277469   (157995) от 20.12.2020
-
-Rave The Reqviem - Discography 16 Releases (2013-2020) [MP3|320 Kbps] <Industrial Metal, Dubstep, Drum & Bass, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157995.jpg" />
-</div>
-
-
-###  Подробнее
-
-2013 - Reqviem v1.0 (EP)
-2013 - Reqviem v1.5 (EP)
-2014 - Rave The Reqviem (Limited Edition)
-2015 - Remix The Reqviem(   Читать дальше...   )Жанр: Industrial Metal, Dubstep, Drum & Bass, IndustrialПродолжительность: 05:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92E2CF481115BF209B27F5E513CE3512CEDA9DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

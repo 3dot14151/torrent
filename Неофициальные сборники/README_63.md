@@ -1,3 +1,180 @@
+###  Публикация: 1088896   (955061) от 01.01.2017
+
+VA - Piano Collection (2017) [MP3|320 Kbps] <Classical, Piano>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Ernesto Cortazar - Beyond  (03:46) 
+02|  Gary Girouard - Beyond Tomorrow  (03:50) 
+03|  Gary Girouard - Redemption  (04:00) 
+04|  Maxence Cyrin - Feuilles d'Acanthe  (02:06) (   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 02:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830952A24B2BE8D8CFD2BE905A91A0D8048333FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088689   (955060) от 01.01.2017
+
+VA - Новинки С  Разных Популярных MP3 сайтов Выпуск #56 (2016) [MP3|256~320 Kbps] <House, Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955060.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ofenbach - Be Mine 2:41
+002. Armin Van Buuren vs. Vini Vici feat. Hilight Tribe - Great Spirit 3:36
+003. Alan Walker - Alone 2:41
+004. KSHMR & Marnik feat. Mitika - Mandala (Official Sunburn 2016 Anthem) 2:57(   Читать дальше...   )Жанр: House, Pop, Club, DanceПродолжительность: 07:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA2AD3111C50954C9FA2F671A9BE355E526C674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088469   (955009) от 01.01.2017
+
+VA - Hits of My Soul Vol. 20 (2016) [MP3|320 кб/с]<Pop, Dance, Retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Несчастный Случай - С 1-го по 13-е (03:44)
+02. Триплекс - Новогодняя история (03:35)
+03. ABBA - Happy New Year (04:29)
+04. DJ Nejtrino, Nikita Malinin - Новогодняя (02:53)(   Читать дальше...   )Жанр: Dance, Pop, Retro, RockПродолжительность: 02:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC78402FCE8E56375F266BD79C3C2E53AEBC3EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978487   (954745) от 30.01.2016
+
+VA - Extra House: Bonus [05] (2016) [MP3|320 кб/с] <Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cahio, Alternative Kasual, Diana Alencar - Wicked Game (Moe Turk Remix) (05:01)
+02. Deepjack, Kinspin - Make Me Cry (Anton Ishutin Remix) (06:40)
+03. Luxx feat. Alice - The Things You Do (Extended Mix) (05:07)
+04. Pretty Pink feat. ARC - Run (Extended Mix) (06:24)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3010348C8E0BBC615DD86217B59572D03572F30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980823   (954664) от 30.01.2016
+
+VA - Душевный Шансон Зимняя Метелица (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Светлана Астахова – Ночная песня
+2. Константин Куклин — Тебе И Мне
+3. Юрий Сергеев — Цыпа Ненаглядная
+4. Александр Переверзин — Ты Лучшая(   Читать дальше...   )Жанр: ШансонПродолжительность: 07:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCAB516EF21FE7949063FA4C4D9948B426CB2CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 857225   (954626) от 07.01.2015
+
+VA - My Favourite Hits of 1971 (8CD) (2015) [MP3|320 кб/с]<Easy Listening, Chanson, Funk, Pop, Pop Rock, Classic Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954626.jpg" />
+</div>
+
+
+###  Подробнее
+
+138. Lobo - Another Hill To Climb
+139. Rory Gallagher - For The Last Time
+140. The Byrds - B.B. Class Road
+141. James Gang - Walk Away(   Читать дальше...   )Жанр: Easy Listening, Chanson, Funk, Pop, Pop Rock, Classic Rock, Hard RockПродолжительность: 09:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDF2A07BE9A171454FA48A758F9587395874DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980804   (954503) от 30.01.2016
 
 VA - Blues Forever vol.13 - vol.16 (2015) [MP3|320 кб/с] <Blues>
@@ -568,186 +745,6 @@ VA - Новогодний ресторан Шансона Выпуск № 7 (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B52ED7C81CB3C546448ECB9A6FD9B1332AF44E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089198   (953788) от 02.01.2017
-
-Mark Ashley - Best Of Mark Ashley (2015) [MP3|320 Kbps] <Disco,  Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch By Touch (Cover Version By Joy)
-02. Baby Blue
-03. Stay (Cover Version By C.C. Catch)
-04. You Are My Paradise(   Читать дальше...   )Жанр: Disco,  Euro-DiscoПродолжительность: 01:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4E8625CEE8EAE301AC1CC648ABC39C7D4116AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623855   (953784) от 27.02.2013
-
-VA - Creative Music Box 9 (2013) [MP3|320 кб/с]<Dub Step, Drumstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953784.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 1Up - Whip-It
-2. A Girl And A Gun feat. Cool Project vs. Mashur and Headrum - Russian Winter (Assault Terror Remix)
-3. AFK feat. Messinian - On The Floor (Rekoil Remix)
-4. Altazer - My Bad (The Wobbler Remix)
-5. Breezer - Beast Virus
-6. Cottonmouth - Dubrime
-7. Cottonmouth - Sleepy Hollow
-8. Dirtyphonics - Walk In The Fire (Culprate Remix)
-9. Dubba Jonny - Blockbuster
-10. Hai5Gohst - Anomaly(   Читать дальше...   )Жанр: Dub Step, DrumstepПродолжительность: 02:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CAF5D20B88E3455EEAFB1227DD4E7CD2DA0526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088795   (953777) от 02.01.2017
-
-VA - Убойные хиты от радио Шансон. Выпуск № 7 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953777.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виктория Калистратова - Простая Девчонка 3:10
-002. Виктор Матросов & Наталья Штерн - Спасибо Тебе 3:32
-003. Юрий Дьяченко - Слава 3:32
-004. Сборная Союза - Первая Любовь 3:22(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC70306B310E471905E6FDE80B13FB0C055781C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088776   (953773) от 02.01.2017
-
-VA - Зимний TOP 100. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953773.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Craig David - All We Needed 3:40
-002. Alicia Keys - Pawn It All 3:10
-003. Emdeka Feat. Ayve - Lose My Mind 3:11
-004. Black M Feat. Shakira - Comme Moi 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E488C4B75041A9652407D6B5C7771A119AF51126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088789   (953770) от 02.01.2017
-
-VA - Душевная музыка на радио Шансон. Сборник № 5 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953770.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Попутчик - Ша 3:16
-002. Ирина Кильфин - Моим Друзьям 3:16
-003. Алмас Багратиони - Пускай Ты Выпита Другим 3:06
-004. Олег Карпович - Ты Не Одна 3:07(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF7274438A0109C892F6A186C468AB0420E31D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088773   (953761) от 02.01.2017
-
-VA - Взрывной хит-парад. Сборник № 5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953761.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yuliyou - Беги 3:11
-002. Sia - Cheap Thrills 3:02
-003. Алексей Завьялов Feat. Анна Дуванова - Моя Любовь 3:12
-004. Gabriella - Шейк 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02B0C0F65381CEAEFB0FD58BAE55F7A752CAC16
 ```
 
 https://mybot314.ru/tekegram_catalog/

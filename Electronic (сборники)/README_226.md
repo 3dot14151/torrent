@@ -1,3 +1,32 @@
+###  Публикация: 1815909   (4817) от 01.09.2025
+
+VA - Compilation Part 189 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hamidshax - I Can't Stop
+02 - A-Sultan - Here I Am
+03 - A-Sultan - Lost Signal
+04 - Jumanov - Target(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7636FEF2AB93B4D958CD657E01F3BD02B6D5E612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815913   (4812) от 01.09.2025
 
 Xezzo - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic>

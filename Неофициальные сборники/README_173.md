@@ -1,3 +1,177 @@
+###  Публикация: 1274237   (793985) от 06.01.2019
+
+VA - Anthology Of Blues (Vol. 02) (2019) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793985.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Albert Cummings - Workin' Man Blues
+002. Bonnie Raitt - Time Of Our Lives
+003. Dr. Feelgood - Down By The Jetty Blues
+004. Albert Lee & Hogan's Heroes - Jitterbug Boogie(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 11:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6644F08AF928D0A660A487ABC6EDF08D714B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274288   (793927) от 06.01.2019
+
+Linkin Park - This Is Linkin Park (2019) [MP3|320 Kbps] <Alternative rock, Nu metal, Alternative metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In the End
+02 - Papercut
+03 - Heavy (ft. Kiiara)
+04 - Somewhere I Belong(   Читать дальше...   )Жанр: Alternative rock, Nu metal, Alternative metalПродолжительность: 03:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414FA714975E1658694B35B80D62785EF73692CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509614   (793920) от 13.11.2021
+
+VA - SVS Collection vol. 5 by MR.DJ (2020) [MP3|256-320 Kbps] <Deep House, D'n'B, Electro House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793920.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2 Unlimited - Get Ready For This (Robby Mond & VeX & Myers Radio Remix)
+002. 2 Unlimited - No limit (Bodybangers feat. Victoria Kern & Godfrey Egbon Remix)
+003. A-Mase - Forever Alone
+004. Abba - Gimme gimme gimme (FuzzDead Remix)(   Читать дальше...   )Жанр: Deep House, D'n'B, Electro House, OtherПродолжительность: 13.32.46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763C50DC36DDCDBFE104E15ED767B3008EFDBC50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509649   (793856) от 13.11.2021
+
+VA - The Blues For Yesterday (Vol.04, 2CD) (2021) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793856.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+001. Jaye Hammer - Lets Do It
+002. Jimmy Barnes - Waitin' On A Plane(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 13:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:603F1A4B803698FB9645BE3A3EEEF084F28EE6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508534   (793850) от 13.11.2021
+
+VA - Instrumental Collection. Familiar Melodias. (1970-2020) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793850.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 R.Sayler - Yesterday (2:55) 2014
+002 Anthony Ventura - Hotel California (4:52) 1979
+003 Edward Simoni - The House Of The Rising Sun (3:24) 2009
+004 Ocarina Dream - Jambo (4:07) 1995(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 23:48:35 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9366AEE539E25C8721CBC52B0B8244626E34C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509622   (793846) от 13.11.2021
+
+VA - Beatport Synth Electronic: Sound Pack #366 (2021) [MP3|320 Kbps] <Synthwave, Synth Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793846.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Deomid - Lanote
+002. Cadee - Moving Circles
+003. Fufi.Snc - Raves On Sunday
+004. Art In Motion - Maytrea(   Читать дальше...   )Жанр: Synthwave, Synth ElectronicПродолжительность: 12:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C76E5D0795C8F2BDBB3F29C79BD9B670981079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012505   (793833) от 01.05.2016
 
 VA - Hands Up Essentials Vol.2 (2016) [MP3|320 кб/с] <Club, Dance, Hand Up>
@@ -571,180 +745,6 @@ VA - 50 оттенков музыки 18+ (04.2016) [MP3|114-320 кб/с] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B91CF2D9BFB6732356763BE206918176575CE6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012664   (793390) от 01.05.2016
-
-VA - Top 100 Зайцев Нет Апрель 2016 (2016) [MP3|160-320 кб/с] <Pop, Dance, Chanson,  Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793390.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alekseev – Пьяное Солнце
-2. Светлана Лобода – К Чёрту Любовь!
-3. Потап и Настя – Умамы
-4. Sia – Unstoppable(   Читать дальше...   )Жанр: Pop, Dance, Chanson,  ClubПродолжительность: 05:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9792FDF69C764B25788A4A68FA4ECDEDC5ACA03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012364   (793385) от 01.05.2016
-
-Space - Greatest Hits (Presents: Elgujakviso) (2016) [MP3|256 кб/с] <Electronic, Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fasten Seat Belt
-02. Just Blue
-03. Magic Fly
-04. Running In The City(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 01:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076724C3F32D184502B7893F7784BD943A1DCA8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123087   (793367) от 06.04.2017
-
-VA - Hits Cocktail vol.5 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793367.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. SNBRN & BLU J feat. Cara Frew - You Got Me
-002. Flo Rida - My House (Roki'X Remix)
-003. Dj Combo Feat. Maureen Sky Jones - Leave It (Radio Edit)
-004. D-wayne & Robert Falcon - Think Of Me(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB292DE599AECA300E03131653CA4DEE2E35A42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012465   (793320) от 01.05.2016
-
-VA - Need For Speed Spring (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Cent feat. Chris Brown - I'm The Man
-02. Adel, Hamaeel - Burning Memories (Original Mix)
-03. Adip Kiyoi & Cari - Deeper Into You (Original Mix)
-04. Akcent feat. Amira - Push(   Читать дальше...   )Жанр: PopПродолжительность: 08:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74CAFA59EDAA032D89C2AEB8C6B7053E7619081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385223   (793295) от 30.05.2020
-
-Linkin Park - Great Artists of My Heart Vol. 04 (2020) [MP3|320 кб/с]<Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793295.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:46| 01. Linkin Park - Nobody Can Save Me
-|02:47| 02. Linkin Park - Bleed It Out (Uncensored Version)
-|03:59| 03. Linkin Park - Blackout (A Thousand Horizons Version)
-|04:38| 04. Linkin Park - Until It's Gone (Remix By Simple Automaton, Cypher, Broman)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 07:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FB64C3E04EE88080378609C57C22DAE98D73C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122771   (793255) от 06.04.2017
-
-VA - Хит Парад Love Radio ТОП 20 - Апрель (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ed Sheeran - Shape Of You  3:54
-02.  Sia - Never Give Up  3:42
-03.  Егор Крид - Мало так мало  3:07
-04.  Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie)  4:11(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE711C1DF326F30201F67C62531458424D54D777
 ```
 
 https://mybot314.ru/tekegram_catalog/

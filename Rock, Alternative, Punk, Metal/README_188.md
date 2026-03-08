@@ -1,29 +1,3 @@
-###  Публикация: 235771   (910293) от 05.02.2011
-
-The Beatles - Коллекция концертных записей (1962-1994) [MP3|160-320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1FFB3493F1837B08628B592BDD2AA914D156A24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288587   (910138) от 05.02.2011
 
 Sirenia - Дискография (2002-2011) [FLAC|Lossless]<Gothic Metal>
@@ -743,6 +717,35 @@ Pestilence - Exitivm (2021) [FLAC|Lossless|image + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72628863431962F8F47BE4816D62A6F3CEADD8BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098654   (908748) от 30.01.2017
+
+Blackeyed Susan - Electric Rattlebone (1991) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Rattlebone
+02. Satisfaction
+03. None Of It Matters
+04. Sympathy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645EDBAD1E03F42BCDAC878B37874B52B1736665
 ```
 
 https://mybot314.ru/tekegram_catalog/

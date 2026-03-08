@@ -1,3 +1,32 @@
+###  Публикация: 1664911   (184031) от 28.09.2023
+
+Kenny Drew Trio With Clark Terry - Serenity (1978) 1988, Alfa Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funk Dumplin's [5:09]
+02. Serenity [4:20]
+03. Brushes and Brass [3:13]
+04. Beautiful [5:18](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BAC7038B439AC77764308F265C1664F1C466046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664919   (184016) от 28.09.2023
 
 Winifred Atwell - The Winifred Atwell Collection (1994) BMG Australia [FLAC|Lossless|tracks + .cue] <Ragtime, Boogie-Woogie, Piano Jazz>
@@ -717,35 +746,6 @@ Tab Smith - Ace High (1952, 1953) 1992, Delmark Records [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:927C2F1867FA29C57AD81CCB210D238E67F37818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431716   (181454) от 25.11.2022
-
-Candy Dulfer - 16 albums, 4 singles, 26 CD (1989-2022) [FLAC|Lossless|image + .cue | tracks + .cue] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэнди Далфер — нидерландская саксофонистка, певица и автор песен. Стала всемирно известной после композиции «Lily Was Here», написанной в ноябре 1989 года в тандеме с музыкантом Дэйвом Стюартом. Ее биография заслуживает особого внимания, с семи лет Кэнди стала заниматься музыкой. Ее отец – саксафонист Ханс Далфер вложил в свою дочку все знания и привил огромную любовь (   Читать дальше...   )Альбомы:
-1989 | David A. Stewart (featuring Candy Dulfer) - Lily Was Here (RCA)
-1990 | SAXuality
-1993 | Sax-A-Go-Go(   Читать дальше...   )Жанр: Jazz, Funk, Soul |Продолжительность: 22:43:19 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49818F1DAD685F03B30C339CAF5C3C0EDEE1F23
 ```
 
 https://mybot314.ru/tekegram_catalog/

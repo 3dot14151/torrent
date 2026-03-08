@@ -1,32 +1,3 @@
-###  Публикация: 993903   (894295) от 06.03.2016
-
-Cyranoi - Exist (2016) EP [MP3|320 кб/с] <Modern Metal, Metalcore, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abiogenesis (04:46)
-02. Pioneers (04:19)
-03. Flesh And Mind (ft. Sithu Aye) (04:17)
-04. Avarice (05:49)(   Читать дальше...   )Жанр: Modern Metal, Metalcore, Progressive MetalПродолжительность: 00:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D71BE10EFCC44F9D108C67C0D96FE3D2F15C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993935   (894253) от 06.03.2016
 
 Singularity - [E]llusion (2016) [MP3|320 кб/с] <Progressive Deathcore, Djent>
@@ -742,6 +713,35 @@ Lucas Sideras - One Day (1972) Remaster 2014 [FLAC|Lossless|tracks + .cue] <Clas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A6B594ACC48912D71B3B907AA735EA0007902E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101827   (893078) от 08.02.2017
+
+Hasswut - Falsch! (2017) 2CD [MP3|320 Kbps] <Industrial Metal, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893078.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Falsch!
+2. Dunkler Tanz
+3. Freund(   Читать дальше...   )Жанр: Industrial Metal, IndustrialПродолжительность: 01:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A62AEE1C1F2BD1CBC1E595989EFEC48AB9D037
 ```
 
 https://mybot314.ru/tekegram_catalog/

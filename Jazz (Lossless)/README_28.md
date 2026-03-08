@@ -1,3 +1,32 @@
+###  Публикация: 1088864   (955173) от 01.01.2017
+
+Barney Kessel - Contemporary Latin Rhythms! (1961) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues In The Night [02:40]
+ 02.Days Of Wine And Roses [02:30]
+ 03.Latin Dance #1 [02:32]
+ 04.Lady Bird [03:31](   Читать дальше...   )Жанр: Bop, Cool, West Coast JazzПродолжительность: 00:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633110CE61F95FE64A514AA3114C238149B092F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088963   (955169) от 01.01.2017
 
 Bobby Scott - The Compositions Of Bobby Scott (1955) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
@@ -716,35 +745,6 @@ Gary Bartz - Shadows (1991) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53D74434D1E9BC6EF98C4B1BBC4DD93B39C54338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981941   (950138) от 02.02.2016
-
-Deborah Brown - Jazz 4 Jazz (1988) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Little Esther [05:09]
- 02.Denise [04:27]
- 03.Finally [06:35]
- 04.It Don't Mean A Thing (If It Ain't Got That Swing) [04:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC113479CDADD5F7F2150AD4B529263D4815FEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

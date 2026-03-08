@@ -1,3 +1,201 @@
+###  Публикация: 555676   (431151) от 03.10.2012
+
+VA - Самые Лучшие Хиты Осени 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анна Семенович - Любовь Под Облаками
+02. August Rigo - Party Hard
+03. Шахзода - Московская Любовь
+04. Daddy Yankee feat. Arcangel - La Dupleta
+05. Зара - Ради Тебя
+06. Dreamway feat. Alex Dru - Can You Feel (Radio Edit)
+07. Стас Шуринс - Сердце (Версия 2012)
+08. Emir - Veda Gecesi
+09. SoundmaniЯ - Твоя Вселенная
+10. Far East Movement feat. Cover Drive - Turn Up The Love (Supasound Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1867FE7CFE11DFD2F3F696FE07A753A16F61498D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555658   (431149) от 03.10.2012
+
+VA - Инструментальная музыка (2012) vol. № 97 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shahin & Sepehr - The Last Goodbye
+02. А.Серов - Мишель
+03. Andre Verchuren - Joue Contre Joue
+04. G.Marradi - Moonlight Sonata
+05. Glenn Miller Orchestra - In The Mood
+06. The Ventures - Hokkaido Skies
+07. Pepe Solera - Muss I Denn
+08. The Romantic Sax - By The Time This Night Is Over
+09. А.Артемьев - Ночной Париж
+10. The Shadows - The Grightened City(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1502525D10693CF84110C9D48514082FDC3A2BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555664   (430566) от 03.10.2012
+
+VA - Супер Дискотека 90-х Vol. 1-3 (3CD) (2012) [MP3|111-320 кб/с]<Retro, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol 1
+01 140 Ударов В Минуту - Une Vie D'Amore
+02 2 Unlimited - Faces
+03 ATC - Around The World
+04 Bellini - Samba De Janeiro
+05 Cher - Believe
+06 Corona - Baby Baby
+07 Culture Beat - Crying In The Rain
+08 Dr. Alban - It's My Life (rmx)
+09 Dr. Alban - Sing Hallelujah(   Читать дальше...   )Жанр: Retro, DanceПродолжительность: 01:43:06
+01 Комбинация - American Boy
+02 Modjo - Lady (Hear Me Tonight)
+03 Maxx - No More (I Can't Stand It)
+04 Кар-Мэн - Чио Чио Сан
+05 Corona - Baby Baby
+06 La Bouche - Be My Lover
+07 Комбинация - Два Кусочека Колбаски
+08 Darude - Sandstorm
+09 Дискотека Авария - Заколебал Ты(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:553FE4AFD72ECC894BCEC2ADA59CD1C7954EF119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249397   (430377) от 25.09.2018
+
+VA - Club Dance Ambience Vol.163 (2018) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430377.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. al l bo & Black Mafia DJ - Better Be Bad (Original Mix)
+002. Alexey Voronkov - Gucci Louis (Original Extended Mix)
+003. Alok & Selva - I Miss U (Sergey Raf & ARROY Remix)
+004. Andrey Pitkin - ForZe  (Extended Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90445D4C253F0802AE26FEE320500E46931471F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064094   (430365) от 18.10.2016
+
+VA - Late Night Worries: Luxury Lounge and Chill Out Series Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airily - Harmonize
+02. Mark Oakland - No One Else Will Do
+03. Van - Waiting For A Taxi
+04. Newton - Media France(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A404F5D10EA3245F4BB9C30C0A8BCF0EAD30770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063855   (430363) от 18.10.2016
+
+VA - Beatport Techno September (2016) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birth Of Frequency - Gate (Oscar Mulero Remix)Жанр: TechnoПродолжительность: 05:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631913E3613090E1EB94B067C591776F92F4B44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063839   (430357) от 18.10.2016
 
 VA - Progressive Trap House: October Mix (2016) [MP3|320 Kbps] <Progressive House, Electro, Club>
@@ -577,186 +775,6 @@ VA - Громкие новинки Сентября Vol.2 (2020) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56AFDDF25714A1240625B9FDF03E298C9353DD1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946217   (429420) от 12.10.2015
-
-VA - Music For Everyone - Chillout & Lounge Vol.4 (2015) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429420.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. WiSkiM - Mind Control (Part 1) (Original Mix)
-2. Leonard Sign - L'eau Bleue (Original Mix)
-3. Kalev & Midliife - Closer (Original Mix)
-4. Together Alone - Morning Solution (Original Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E5635E576A83C6F4EAB61A0A09F4F5A3021DCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945959   (429284) от 12.10.2015
-
-Amanda Lear - Good Songs (2015) [MP3|160 кб/с]<Pop, Shanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429284.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alligator (1977)
-002. Alphabet (1977)
-003. Blood and Honey (1977)
-004. Blue Tango (1977)(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 10:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B1778EB3A33E4FC804987FB2B1B32A8D7987DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556095   (429279) от 04.10.2012
-
-VA - Инструментальная музыка (2012) vol. № 98 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Henry Mancini  - The Pink Panter
-02. J.Last - Paradiso
-03. Armik - Pure Paradise
-04. Caravelli - It Was Long Ago
-05. G.Marradi - Somewhere
-06. Анс. Мелодия - В старых ритмах
-07. Bergman - The Way We Were
-08. O.Denayer - Espoirs Perdus
-09. F.Goya - Classical Dream
-10. И.Крутой - Мне нравится дождь(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355A7C6B46BC2E8250C8E43A8611639F4F7A0EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249983   (429247) от 26.09.2018
-
-VA - Techno Funk: 100 Sounds New Generation (2018) [MP3|320 Kbps] <Techno, Electo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429247.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dirty Intentions - Sniff (Original Mix)
-002. Anna Conda - Code
-003. Daniele Mondello - Self Control
-004. 2pole - Magnum (Original Mix)(   Читать дальше...   )Жанр: Techno, ElectoПродолжительность: 11:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF0E32CC1D0E9D39717CFB51423F80EAD396225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411073   (429203) от 24.09.2020
-
-VA - Осень на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alok & Thrdl!fe - Hear Me Tonight (3:08)
-02. Ava Max - Who's Laughing Now (2:59)
-03. BTS - Dynamite (3:19)
-04. DaBro - Юность (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E4C824DF00B5AFE85677EABBBF2A4431038D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946210   (429176) от 12.10.2015
-
-Dalida - Good Songs (2015) [MP3|128 кб/с]<Pop, Shanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429176.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A chaque fois j'y crois
-002. A ma maniere
-003. Aba daba honey moon
-004. Alabama song(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 12:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58875F8539292BA106FEA14689E871530E89A4BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

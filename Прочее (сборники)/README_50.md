@@ -1,3 +1,119 @@
+###  Публикация: 1205720   (783252) от 11.02.2018
+
+VA - House Clinic (2018) [MP3|320 Kbps] <House, Electro House, Big Room>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bomb Bay - Avatar
+02. TJR - Time To Jack (Original Mix)
+03. Kamaura & Tommy Mc - Taking Over Me (Tommy Mc Club Mix)
+04. Patrick Hofmann - Noon (Paul Vinx Edit)(   Читать дальше...   )Жанр: House, Electro House, Big RoomПродолжительность: 03:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD0F42A7DCA91EE381F4E8D8FA4DCCA8ECD3D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205728   (783238) от 11.02.2018
+
+VA - Ham!d Production January 2018 [MP3|320 Kbps] <Dance, Pop, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Arash & Helena - Dooset Daram
+02 Pink Noisy - Ani Kuni
+03 Kanita - Dont Let Me Go (Gon Haziri Remix)
+04 G-Eazy & Halsey - Him & I(   Читать дальше...   )Жанр: Dance, Pop, TranceПродолжительность: 03:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5189F4E03822B3D8C64851B48DD2DD34477434A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205711   (783221) от 11.02.2018
+
+VA - Sensuality x San Valentino (Deezer Playlist) (2018) [MP3|320 Kbps] <Pop, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 James Bay - Wild Love
+02 Camila Cabello - Havana
+03 The Weeknd - Often
+04 Jessie Ware - Tough Love(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 05:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7E5515F25A1BC03C3FFA047F81730AAC53A2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205791   (783076) от 11.02.2018
+
+VA - Top 50: Зайцев FM / Февраль (2018) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alice Merton  -  No Roots  3:35
+02.  Avicii feat. Sandro Cavazza  -  Without You  3:02
+03.  Axwell & Ingrosso  -  More Than You Know  3:23
+04.  Betta Lemme  -  Bambola  3:34(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 02:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F7FD7816255609E4D20E15E7C25AB15D2C7826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390471   (782991) от 15.06.2020
 
 VA - Зайцев.нет Лучшие новинки Июня (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -627,122 +743,6 @@ VA - ЕвроХит Топ 40 Europa Plus 23.02.2018 [MP3|320 Kbps] <Dance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69714A4D775736FBDA226AA7B290C95C278D48E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209161   (779416) от 25.02.2018
-
-VA - Дискотека 2018 Dance Club Vol. 175 от NNNB [MP3|320 Kbps] <Club, Deep House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka)
-
-01. Sharapov - Story (Original Mix) (4:49)
-02. Dropgun - Krishna (Original Mix) (3:12)(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 23:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F6BB46BBADAEAA89507FC53D6BC8DAC966C034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209301   (779391) от 26.02.2018
-
-VA - Love Is A Catastrophe: Synthpop Neuroactive Mix (2018) [MP3|200-320 Kbps] <Synthpop, Electronic Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mflex - Wonderful Memories
-02. NamNamBulu - Idol
-03. Nordika - Seduceme
-04. Erasure - Be Careful What You Wish For!(   Читать дальше...   )Жанр: Synthpop, Electronic DiscoПродолжительность: 04:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEAE3AD4B61065728846DC33E3CA11F799D0B0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209327   (779369) от 26.02.2018
-
-VA - I Love The 90's (2018) [MP3|320 Kbps] <Eurodance, Euro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779369.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Earlwood  -  Take Me Away  4:24
-002.  The Free  -  Born Crazy  3:46
-003.  Melodie MC  -  Give It Up! (For The Melodie)  4:16
-004.  Alexia  -  Summer Is Crazy  4:23(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 06:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492307F90515D17D6ADEAC646D30AB8D0109097B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209816   (779130) от 28.02.2018
-
-VA - Galactic Dream Synthspace Version (2018) [MP3|192-320 Kbps] <Synthspace, Synthwave, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779130.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pavel Kuznetsov - Introduction
-002. SellorektLA Dreams - Evolution of Dreams
-003. Son of Mars - Orbital Voyage
-004. Secret Space - Space Odyssey(   Читать дальше...   )Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 08:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77CCE5E7E3714914C58E6597F017F1D5602F9FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

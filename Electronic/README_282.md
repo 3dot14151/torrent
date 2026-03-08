@@ -1,3 +1,61 @@
+###  Публикация: 1316312   (506916) от 25.07.2019
+
+Jóhann Jóhannsson (Johann Johannsson) - Fordlandia (2008) Japan [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Contemporary>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fordlandia
+02. Melodia(I)
+03. The Rocket Builder
+04. Melodia(II)(   Читать дальше...   )Жанр: Modern Classical, Ambient, ContemporaryПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186B4130F3B4F58B12EF80178491011DC7672E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563182   (506307) от 12.07.2022
+
+Lucas & Steve & DubVision - Exclusive Mix (2022-07-08) [MP3|320 Kbps] <Big Room, Future House, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucas & Steve & DubVision ft. Joe Taylor - Feel My Love
+02. Arno Cost & Quentyn & Antoine Larsen - Entrevue
+03. DubVision & The Him ft. Rupert Blackman - Sometimes
+04. Oliver Heldens & Tchami & Anabel Englund - LOW(   Читать дальше...   )Жанр: Big Room, Future House, Electro PopПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B091D0F4E4552C4696E9C0485670CB5CA1412154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316522   (505975) от 26.07.2019
 
 Pantha Du Prince - Diamond Daze (2003) [FLAC|Lossless|tracks + .cue] <Tech House, Minimal>
@@ -690,64 +748,6 @@ VA - Meditation Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15C26B65576FE73C8341EDA3834AAF82ECC0D7D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933944   (503662) от 04.09.2015
-
-Dj Feel - TOP 30 OF August (2015) [MP3|320 kbps]<Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeremy Vancaulart feat. Amy Kirkpatrick - The Fall (Original Mix)
-02. Above Beyond feat. Gemma Hayes - Counting Down The Days (Judah Remix)
-03. Andrew Rayel & Alexander Popov - Mimesis (Original Mix)
-04. Dark Echo & Oleg Farrier Vs. All Sandu - In The Dark (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D300A20C35C5FE5968448B478EED2143D77DE135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563737   (503624) от 15.07.2022
-
-VA - Trance Vol.5 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila with Greg Downey - Take Flight (Original Mix)
-02. Alan Morris & Katty Heath - Captive Of Your Heart (Original Mix)
-03. Ciaran McAuley - Lilac (Original Mix)
-04. James Dymond & Stine Grove - Birds Of A Feather (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006124A4E407A53E623B460864A2E20CD7706884
 ```
 
 https://mybot314.ru/tekegram_catalog/

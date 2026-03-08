@@ -1,3 +1,175 @@
+###  Публикация: 1489734   (922262) от 18.08.2021
+
+Ringo Starr - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Photograph
+02. Only YouЖанр: RockПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A8C2CCB5C01D4916A2D81C12E19FCFA0506787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489736   (922251) от 18.08.2021
+
+George Harrison - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got My Mind Set On You
+02. My Sweet Lord
+03. Give Me Love (Give Me Peace On Earth)
+04. Don't Let Me Wait Too Long(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EBAA8631163F4CB5B08CA1F879C0E7DB803E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489749   (922139) от 18.08.2021
+
+VA - Громкие новинки Августа (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кирилл Мойтон - Любовь (2:28)
+02. Jah Khalib, Tanir, TM - I go to the barbershop (3:52)
+03. G-Eazy, Martin Garrix, Sasha Alex Sloan - Love Runs Out (2:44)
+04. Тони Раут - Хобби (2:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E671BA831BB5144041126582DEBE3FFE4891FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489965   (922134) от 18.08.2021
+
+VA - 100 Greatest '90s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Céline Dion - Because You Loved Me (Theme from "Up Close and Personal")
+02. Luther Vandross - Here and Now
+03. Mariah Carey - Vision of Love
+04. Whitney Houston - I Will Always Love You(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 07:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44762D261E3EC94D97F147197F9EE17741B3AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366641   (922124) от 12.03.2020
+
+VA - Beatport Techno: Electro Sound Pack #23 (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922124.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Garez - Norefjell
+002. Paul Feris - On The Run
+003. Spektre - Forged In The Heart
+004. Dj Jordan - Acid Dreams (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E784FE20C35E59173F076E1884075FC953C33AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489912   (922123) от 18.08.2021
+
+VA - 100 Greatest 80s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Adams - Heaven
+02. Madonna - Crazy for You
+03. The Bangles - Eternal Flame
+04. Michael Jackson, Siedah Garrett - I Just Can't Stop Loving You (Remastered)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 07:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8765CD3F5C412B8A5B48FA6C186318F64A2EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366643   (922112) от 12.03.2020
 
 VA - Beatport Tech House: Electro Sound Pack #24 (2020) [MP3|320 Kbps] <Tech, Deep House>
@@ -565,180 +737,6 @@ VA - XXL Супер Союз 2 50/50 (2011) [MP3|128 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C920889B443350B28229E046C14C35B8942CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490207   (920537) от 19.08.2021
-
-VA - Music News vol.124 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юлана - Грустные Песни (D.Anuchin Remix) (03:58)
- 02. Alesso & Marshmello feat. James Bay - Chasing Stars (02:51)
- 03. Alice Harp - Розовый Вечер (02:55)
- 04. Andrea - Gimme Your Love (Olanna Remix) (02:17)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B7AF39DF999994E0B4325A6DB8D6FA0D649727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096137   (920536) от 23.01.2017
-
-VA - Hits of My Soul Vol. 22 (2017) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Kid Rock - Bawitdaba (04:25)
-02. Aerosmith - Sweet Emotion (04:34)
-03. Saliva - Superstar (04:09)
-04. Reckless Love - Hot (03:22)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B793BE8131D2528F29EC3B5DACA520AF45E3FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490113   (920521) от 19.08.2021
-
-VA - 100 Greatest 2010s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carly Rae Jepsen - Call Me Maybe
-02. Lady Gaga, Bradley Cooper - Shallow
-03. Adele - When We Were Young
-04. Lady A - Need You Now(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D61F938705092BD6D30C6337A088587119F7D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490058   (920415) от 19.08.2021
-
-VA - 100 Greatest 2000s Love Songs (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariah Carey - We Belong Together
-02. Alicia Keys - If I Ain't Got You
-03. Jason Mraz - I'm Yours
-04. James Blunt - You're Beautiful(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622FEEF2CFCF22B97CD3E85249F2DF46529056F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988458   (920401) от 20.02.2016
-
-VA - Легенды Ретро FM. Лучшее. Зарубежный Выпуск (2016) [MP3|320 кб/с] <Disco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920401.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maywood - Pasadena
-002. Boney M. - Dreadlock Holiday
-003. London Beat - I've Been Thinking About You
-004. Vaya Con Dios - Nah Neh Nah(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 07:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C457FBCAAFEB11C51F7722CCF888442082AF1F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289052   (920352) от 30.01.2011
-
-VA - Крутые 90е (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18735D413B51B0FA4218069D39310A5536B9D62D
 ```
 
 https://mybot314.ru/tekegram_catalog/

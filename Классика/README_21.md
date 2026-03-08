@@ -1,3 +1,32 @@
+###  Публикация: 1027289   (696197) от 19.06.2016
+
+Aaron Rosand - Brahms: 3 Violin Sonatas; 21 Hungarian Dances; Joachim: Romance in B Flat (1991, 1993) 2007, Musical Concepts [FLAC|Lossless|tracks] <Classical, Chamber Mu
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696197.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Sonata for violin & piano No. 1 in G major ("Regen"), Op. 78 
+1. Vivace ma non troppo 	Aaron Rosand 	 10:08
+2. Adagio 	Aaron Rosand 	 7:59(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 02:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391F6DDCF7D58373D8C7659D58E36673C00AE999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288452   (695548) от 11.03.2019
 
 Ilyin - Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
@@ -724,35 +753,6 @@ Grieg - Peer Gynt(Sir Neville Marriner & Academy of St. Martin In The Fields Orc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79F7979713662D693A9C04157FC2FA8F803AC706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223417   (671523) от 06.05.2018
-
-New London Chorale - Young Christmas (2001) Reissue [FLAC|Lossless|image + .cue] <Crossover Classical, Traditional>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	See Amid The Winter’s Snow
-02	O Little Town Of Bethlehem
-03	In The Bleak Mid Winter
-04	The Holly And The Ivy(   Читать дальше...   )Жанр: Crossover Classical, TraditionalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE1A0D8E305A7E7C7C04B8372231FE3FD43B6BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

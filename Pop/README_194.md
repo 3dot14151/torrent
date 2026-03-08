@@ -1,3 +1,61 @@
+###  Публикация: 1057123   (477707) от 27.09.2016
+
+Charlee Remitz - Bright White Trims (2015) [MP3|320 Kbps] <Alternative Pop, Indie Dream Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King's Cup
+02. Fillin' in for a Goddess
+03. Cake Eater
+04. Bmw(   Читать дальше...   )Жанр: Alternative Pop, Indie Dream Pop, ElectronicПродолжительность: 00:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4656FFF7EDEBCCA0F162D99509589395E4C02DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057010   (477601) от 27.09.2016
+
+Kristy Thirsk - Phoenix (2014) [MP3|320 Kbps] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mistake (03:32)
+02. Little Soldier (03:51)
+03. Hourglass (03:21)
+04. Bandage (03:57)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9A536CC8624C0655E0E57CB865046D837E9951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319985   (477471) от 15.08.2019
 
 Judy Jackson - Electric Love (1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
@@ -699,65 +757,6 @@ Boney M - Let It All Be Music-The Party Album (2009) 2CD [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C29C21A15BAE1B549EDFD75B358102EC1623387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 248224   (473718) от 15.09.2012
-
-Arabesque - Deluxe (Twin Best) - Japan (1998) 2CD[FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Mr. Monkey
-02. Fly High Little Butterfly
-03. Someone Is Waiting For You
-04. Buggy Boy(   Читать дальше...   )Жанр: Disco |Продолжительность: 01:14:06 + 01:10:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258418   (473621) от 15.09.2012
-
-Barbra Streisand - 2 альбома (1980, 2005) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473621.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Guilty" - самый популярный альбом певицы (продано более 20 миллионов экземляров).
-Через 25 лет был выпущен альбом "Guilty Pleasures" который стал тоже весьма популярен.
-И конечно обе эти работы объединяет совместная работа с Barry GibbАльбомы:
-1980 - Guilty
-2005 - Guilty PleasuresЖанр: PopПродолжительность: 01:29:43
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

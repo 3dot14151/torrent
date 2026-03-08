@@ -1,3 +1,61 @@
+###  Публикация: 1672082   (170085) от 27.10.2023
+
+Сергей Лазарев - Я ВИДЕЛ СВЕТ (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170085.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я видел свет
+2. Алый закат
+3. Вкус Малины
+4. Ничего не оставили(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F49BE0C5FFD1F8E306EC9992B1EB1AB40FBA2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430800   (169994) от 11.12.2020
+
+Pado & Co - Pado & Co (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want To Talk To You (4:24)
+02. Don't Refuse Me (6:01)
+03. Let's Have A Party (5:33)
+04. You Keep Me Hangin' On, Cliff Hanger, You Keep Me Hangin'... (11:01)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF111FFA6A421946FAC13E6C9DC2EAE99FC13B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672157   (169983) от 27.10.2023
 
 Zivert - В МИРЕ ВЕСЁЛЫХ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -686,64 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D595A714DFDDF2A9B0EEE45F55A7C724D216EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431194   (168866) от 12.12.2020
-
-1er Discopera - Carmen (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fickle Love (4:14)
-02. Call To Mama (4:16)
-03. Close To The Wall Of Sevilla (4:55)
-04. Ouverture (3:01)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD0D0F6EE1C115E0135E886AD15F562A66DBB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596725   (168861) от 11.12.2022
-
-ВИА "Самоцветы" - 4 Albums (1973-1983) LP Collection [MP3|320 Kbps] <Pop, Pop Rock, Beat>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168861.jpg" />
-</div>
-
-
-###  Подробнее
-
-ВИА «Самоцветы» - советский и российский вокально-инструментальный ансамбль (ВИА), музыкальная группа. Создатель и бессменный руководитель - Народный артист России Юрий Маликов. Наиболее известен исполнением таких песен, как «Увезу тебя в тундру», «Мой адрес - Советский Союз», «Вся жизнь впереди», «Всё, что в жизни есть у меня».Список альбомов:
-1973 - Самоцветы
-1975 - У нас молодых
-1980 - Путь к сердцу(   Читать дальше...   )Жанр: Pop, Pop Rock, BeatПродолжительность: 02:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A3B8F31E6DA7F435734C8B8D0C1AACDBF77839
 ```
 
 https://mybot314.ru/tekegram_catalog/

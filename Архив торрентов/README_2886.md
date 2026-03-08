@@ -1,237 +1,3 @@
-###  Публикация: 561379   (406435) от 16.10.2012
-
-Wallpapers Fantasy (15.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11463A8541D7625AA9B8F113592F1294F97317A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560658   (406430) от 16.10.2012
-
-Artworks by GODTAIL [Графика]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artworks by GODTAIL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8820C5571591A9164584A434114B6448C5A8AA4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561380   (406429) от 16.10.2012
-
-Anime Wallpaper (15.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFFBC2340DF838AB4E5013A69FA4BF52140F608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561296   (406420) от 16.10.2012
-
-[Wallpapers] Обои для рабочего стола (Мото0
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои мотоциклы.Море хрома и ярких красок.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5280E43C1995217F3BE62A7AAF84DDCD12C210F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561190   (406413) от 16.10.2012
-
-Журнал | Автоцентр №42 [октябрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406413.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Автоцентр» - еженедельный журнал полностью посвящен миру автомобилей. Основные рубрики: Автосалон, Автополигон, Концепции, Авторынок, Автобизнес, События и выставки, Практические технические и юридические советы, Спорт и другое.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B47CFF4ED8EEEB48D23F79A65AFF2FAF62E822C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561079   (406410) от 16.10.2012
-
-[Фотография] Photos from  Adam Dobrovits
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы фотографа Adam Dobrovits.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E00EEEE65D4FBD012813F52F03FFB7C716291F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561084   (406408) от 16.10.2012
-
-[Фотография] Photos from Per Zennstrom
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы фотографа Per Zennstrom.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3B6221ABBE1928358EE612DA1CE4DE0E7A6081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561212   (406403) от 16.10.2012
-
-Вся в меня / Igualita a mi (2010) SATRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фреди недавно исполнилось сорок, он свободен от семейных уз, его главное занятие - волочиться за молодыми красотками, которым чуть за двадцать. Познакомившись с Айлин, он ведёт себя, как обычно, когда ищет подругу на ночь. Но с этой девушкой всё получается иначе. Выясняется, что она ему не чужая…Жанр: КомедияРежиссер: Диего КапланАктеры: Флоренсия Бертотти, Адриан Суар, Клаудия Фонтан, Ана Мария Кастель, Хуан Карлос Галван, Андреа Голдберг, Хосе Мерец, Мелани Грин, Флоренция Миллер, Хосефина Кунео, Эма Ривера, Рэкуэл Фернандез, Габриела АкостаПеревод: Профессиональный (двухголосый)Продолжительность: 01:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED19B4A9335ED2EF21D32770EFD7B6B5C9FB4FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560875   (406401) от 16.10.2012
-
-Олег Плутон | Красиво [2012] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что-то огромное и доброе медленно плыло в голубой вышине, растворяясь пушистыми плеядами огней в бесконечности небосвода, тая в лазури облаков прозрачным сном, накрывая светом. Бесформенный ангел иных миров, оно неспешно обращалось в небе, играло ажурными колоколами пронизанных светом тканей, распускало невесомые перья-лепестки и, словно ища что-то в поднебесном мире, так тихо и неторопливо двигалось вопреки ветру. Продолжение в аудио рассказе Олега Плутона - Красиво!Жанр: фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B23E7158A2D94A362A4D55D7B0647AEF3F351A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561424   (406393) от 16.10.2012
 
 Журнал | Техника - молодежи №10 [октябрь 2012] [PDF]
@@ -698,6 +464,280 @@ Sexy Girls Pack Wallpapers (16.10.12) [Wallpapers 16+]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8888E2A7B8299BF4DB4525BACD7C3EE68628F3C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561411   (406247) от 17.10.2012
+
+Gilrs Wallpaper Collection (16.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 5616х3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28366C3C4C0EC10F5AD9A9968CD4A8645E89ADED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560855   (406245) от 17.10.2012
+
+VA - Trance Night (2012) [MP3|320 кб/с]<Progressive, Trance, Dream>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Andrew Bayer - Nothing Ever Lasts 07:14
+02. Manufactured Superstars & La Riots Ft Selina Albright - Born To Rock (Original Mix) 06:06
+03. Above & Beyond - On My Way To Heaven (Above & Beyond Club Mix) 07:52
+04. Sean Tyas And Giuseppe Ottaviani - Arcobaleno (Club Mix) 07:34
+05. Joop Feat. Tiffany Johnston - Just One Night (Original Mix) 06:54
+06. Armin Van Buuren - We Are Here To Make Some Noise (Extended Mix) 05:12
+07. Matt Bukovski - In Dreams (Original Mix) 06:35
+08. Ernesto Vs Bastian & Kay Wilder - Just In Bibber (Original Mix) 05:10
+09. Burzhuy & Tigran Oganezov - Springboard (Original Mix) 06:33
+10. Cj Arthur - Magnet (Den Rize Pres Blur8 Remix) 07:10(   Читать дальше...   )Жанр: Progressive, Trance, DreamПродолжительность: 01:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F41AD3868B430989231EF81652B5A4DF3852C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561376   (406244) от 17.10.2012
+
+Nature Wallpapers (15.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC4FFD3BCBD337286FE1BBE6F96D1065307A8FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561412   (406243) от 17.10.2012
+
+Gilrs Wallpaper (16.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 3000х2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9AE38A614B0D32348FF9E81D467CB34B9BEFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559890   (406241) от 17.10.2012
+
+VA - All Colours Of Deep (2011) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mage - Cosmic Station
+02. Aaron Bond - Face The Truth
+03. High Feel - Clone
+04. Nemanoe - Movement In Uncertainty
+05. Kasper & TekSketch - ReEntry
+06. Mage & DJ Ike - Visions Of Love
+07. Nelver - Grand Case
+08. Nelver - Flatline (Nelver Remix)
+09. Beatchemist - I Can't Explain It
+10. White Fang - ConcealedЖанр: Drum and BassПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28ED36309E90BCB452AAEB2AB0E1BCA583D75279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560862   (406240) от 17.10.2012
+
+VA - Tranceffect 33 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ill Listen (Original Mix) - Armin van Buuren feat. Ana Criado
+02. Amsterdam (Original Mix) - Orjan Nilsen
+03. K Ta (Original Mix) - Andy Moor
+04. From Bad To Worse (Original Mix) - I5land Vs.Matt Pincer
+05. New Born (Original Mix) - Tom Colontonio & Orla Feeney
+06. Plify (Original Mix Edit) - Ram
+07. Sirius (Ikerya Project Remix) - Eddie Lung
+08. Galactica - Nick Rowland
+09. Everblue (Adam Foley Remix) - Michael Lee
+10. Seek The Shore (Next DJ ILNY Mashup) - Sandeagle & Electribe vs Amanda Wilson(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03467B36D490303036E6C2F8CB7E575D731F9643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561578   (406238) от 17.10.2012
+
+[Wallpapers] HQ Wallpapers №56
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406238.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HQ Wallpapers №56
+Название: HQ Wallpapers №56
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1172EAB0E85F1A98F24528672CE1F8589DB8074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560744   (406237) от 17.10.2012
+
+Butterfly - Favorite Colors Episode 052: 1 Year Anniversary Special (06.10.2012) [MP3|320 кб/с]<Progressive, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glenn Morrison -  I See You In Me (Original Intro Mix)
+02. Matt Bukovski feat. Tiff Lacey -  Swept Away (Original Mix)
+03. Velvetine feat. Aruna -  The Great Divide (Soundprank Remix)
+04. Protoculture -  Perpetual Motion (Original Mix)
+05. Phillipo Blake & EDDY feat. Nika -  We Stroll Together (Alex Tasty Remix)
+06. Ralphie B -  The Holy Grail (Original Mix)
+07. Stoneface & Terminal -  Gallery Of Sound (Club Mix)
+08. Bobina -  The Space Track (Andrew Rayel Stadium Remix)
+09. Tenishia -  Where Do We Begin (Andrew Rayel Remix)
+10. Menno De Jong -  Guanxi (Original Mix)(   Читать дальше...   )Жанр: Progressive, TranceПродолжительность: 01:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94275FC8E5D0ADAB1BC11C76D48B37955BC20A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561400   (406234) от 17.10.2012
+
+Wallpapers Fantasy (15.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B028D04FF3A90ADFD3B5D8668825141829F561B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1455813   (1025484) от 20.03.2021
+
+Umberto Tozzi – Seine Grossten Erfolge (1990) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ti Amo
+02. Eva
+03. Notte Rosa
+04. Tu(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFDD15A3D9A7928B4EC0FFD63E493CA42D432D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455924   (1025429) от 20.03.2021
 
 Madonna - Bedtime Story (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ VA - Ultimate Chillout (2017) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4116C691AD122172619C7FE5F431318747DADFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468420   (1017246) от 07.05.2021
-
-Emma Stevens - Light Year (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump In (00:02:42)
-02. Forever (00:03:35)
-03. The Grass Is Always Greener (00:03:53)
-04. On a Day Like Today (00:02:50)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229B99475730F17DCE0C2D6201279A8834C621C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

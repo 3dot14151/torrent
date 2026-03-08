@@ -1,3 +1,61 @@
+###  Публикация: 1436240   (139530) от 30.12.2020
+
+VA - Relax Culture, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kick Bong - Tranquility Vibes (5:08)
+02. Earth Connect - Blues Out (5:38)
+03. Potlatch - Wonder (5:28)
+04. Eguana - Cozy Courtyard (4:34)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 01:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F057D3993BD8457CDA78B524002E083190778E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272949   (139359) от 30.12.2018
+
+VA - Ibiza Chillout Series (1999-2007) Ayia Napa [FLAC|Lossless|tracks+.cue] <Downtempo, Dub, Chillout, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139359.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Jens Buchert - Event Horizon (04:31)
+ 02. Esteban Garcia Junior - Deep Blue (04:08)
+ 03. Buro - Verano Suave (05:58)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Downtempo/Dub/AmbientПродолжительность: 01:06:00+01:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EF21F8B45BA8B0E23809BDD5A75FED2C05AF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088439   (139282) от 31.12.2016
 
 VA - Suanda Music Year Mix 2016 (Mixed by Roman Messer) (2016) [MP3|320 Kbps] <Trance>
@@ -677,64 +735,6 @@ VA - Space Holidays Vol. 12 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C103F30499C94F838A5A9986F9519AAD0BB327F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436432   (137083) от 31.12.2020
-
-BELLATRIX - Lost In Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Italo-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air Touch (6:29)
-02. Power Quality (6:05)
-03. Sky Expedition (6:47)
-04. Lost In Space (6:16)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, Italo-DiscoПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B13B6CCE8692345721E63AA3682ECD1F05E0E2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824488   (136970) от 15.10.2025
-
-FaraoN - 20 Hits Dance Music Collection (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sines Moon 03:34
-02. Open Ocean 06:26
-03. Summer 06:42
-04. How It Feels 03:40(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BFAEEF994BDF71DF8DB3A069FC08C00A2CC41C
 ```
 
 https://mybot314.ru/tekegram_catalog/

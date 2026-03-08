@@ -1,3 +1,61 @@
+###  Публикация: 1076256   (314493) от 25.11.2016
+
+VA - Litho Twentyeight (2016) [MP3|320 Kbps] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boy Funktastic - Empire (Original mix) (5:01)
+02. Nicolas Buccafusca - Piping (Original mix) (8:00)
+03. Boy Funktastic - Square (Original mix) (4:20)
+04. Nicolas Buccafusca - Liebre (Original mix) (8:39)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F2CF2BF5CCA40DC7B9B203C35AB346551B70B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076222   (314491) от 25.11.2016
+
+VA - House Beach Vol.1 (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nic Cherokee - Lights Ahead (House Room's 69 Mix) (2:42)
+02. Soapy Style - The Right Way (Secret Lovers Mix) (4:08)
+03. Ash Jaymes - Psyche (Moon Elements Mix) (3:41)
+04. Forty Four Seasons - Diving High (Underdeep Mix) (4:13)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF38C256D620B7BB406A73BA7C092B8FCD7BF73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332358   (314470) от 20.10.2019
 
 Luis Fernando | ^L_ - Discography 11 Releases (2014-2019) Antime, Underground [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid, Experimental>
@@ -687,63 +745,6 @@ CD1 Nirodha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6950433507EB35D748480B82026681205FF0D6F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091747   (311620) от 07.11.2018
-
-Loess - Discography 9 Releases (2001-2017) [FLAC|Lossless|tracks+.cue, tracks] <Abstract, IDM, Leftfiel, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petrel (05:59)
- 02. Kype (06:53)
- 03. Striae (06:35)
- 04. 17P13.2 (01:48)(   Читать дальше...   )Тип издания: CD, Vinyl •Жанр: Abstract, IDM, Leftfiel, Downtempo, Ambient •Продолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC557CE9B9EFCE0C920046AE8E135F0C2DBA9C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157402   (311522) от 21.10.2019
-
-Thomas Carmody (Soundarium) - Discography 22 Releases (2015-2019) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ecumenical (04:46)
- 02. True Detective (05:00)
- 03. SA1303 (03:55)Тип издания: WEBЖанр: Downtempo/AmbientПродолжительность: 00:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908A379A57ECBC8194491C7CC2D046A56A70AFE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

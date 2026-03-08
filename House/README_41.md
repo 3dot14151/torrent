@@ -1,3 +1,32 @@
+###  Публикация: 1304255   (564092) от 26.05.2019
+
+VA - 25 Compost Records (2019) [MP3|320 Kbps] <Nu Disco, Deep House, Electronica, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beanfield – Human Patterns (Roman Flugel Remix)
+02. Ron Deacon – Bring It On
+03. A Forest Mighty Black – Fresh In My Mind (I:Cube Remix)
+04. Marsmobil – It Doesn't Matter How You Are (Ripperton Remix Instrumental)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Electronica, DowntempoПродолжительность: 04:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BA83FA5088B873BD781D9923971D748045AC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923252   (562626) от 01.08.2015
 
 VA - Toolroom Ibiza 2015 (2015) [MP3|320 кб/с]<Tech House/Deep House/Techno>
@@ -716,35 +745,6 @@ VA - Music From Paradise (2017) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8433D8E8FAEF93EF7B08630DEDA648C9A153D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153740   (557082) от 28.07.2017
-
-VA - Ibiza Summer Party 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filatov - Back In The Love (Swanky Tunes remix)
-02. Seal De Green - Those Days (original mix)
-03. Hlasznyik & Danev - Let's Go To The Party Beach (original mix)
-04. Royal Gigolos - California Dreamin' (Tek-House extended)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF37E665F5DAE6CDA60A8E5BD98878FBBE9467D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

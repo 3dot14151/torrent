@@ -1,3 +1,32 @@
+###  Публикация: 1298248   (601876) от 27.04.2019
+
+Angelight - Четыре ветра (2006) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Северный ветер (15:05)
+02. Южный ветер (14:06)
+03. Западный ветер (12:56)
+04. Восточный ветер (14:56)Жанр: New AgeПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB7412B5FFFFEA952694AEBE35B6012708A3F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298560   (601755) от 28.04.2019
 
 DBUK - Songs Nine Through Sixteen (2019) [FLAC|Lossless|tracks + .cue] <Folk, Americana, Gothic Country>
@@ -742,35 +771,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC7532414615CB5F716678BF17EAC613E09409CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149878   (596610) от 13.07.2017
-
-Amure - 8 albums (2010-2015) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Фантазия №1 (05:51)
-02. Фантазия №2 (Аллилуя) (05:52)
-03. Фантазия №3 (Rock'n'Roll Mega Drive) (06:39)
-04. Фантазия №4 (06:46)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 09:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9457DDB75FF68260C5032791FB70B5CC036EEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

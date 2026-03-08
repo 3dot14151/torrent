@@ -1,3 +1,32 @@
+###  Публикация: 1729438   (53623) от 11.06.2024
+
+Jack Walrath - Neohippus (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Village of the Darned [6:43]
+02. Watch Your Head [6:44]
+03. Fright Night [6:13]
+04. Annie Lee [5:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B3443C65B7BDF67957F333F955B42EEC4F464F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729142   (53618) от 11.06.2024
 
 Lee Ritenour - The Very Best Of Lee Ritenour (2003) GRP [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
@@ -716,35 +745,6 @@ Frank Sinatra - Sensational Sinatra (1997) Penny [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7D7A6ACBD05EF7912B0E6E39B71365DBDDBF0FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751724   (42300) от 26.09.2024
-
-VA - Italian Restaurant Lounge Music (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Matteo Brancaleoni, Fabrizio Bosso, Stephanya - Senza fine
-02 Papik, Frankie Lovecchio, Stefy Gamboni - Questione di feeling
-03 Fred Buccini, Grazia Di Michele - Stai con me
-04 Melania - Caruso(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B466238E7C3DD4738E48956A2EA58B585FA75C2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

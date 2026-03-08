@@ -1,32 +1,3 @@
-###  Публикация: 1123026   (680528) от 19.05.2017
-
-Deep Purple - Infinite (2017) Deluxe Edition [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time for Bedlam
-02. Hip Boots
-03. All I Got is You
-04. One Night in Vegas(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C3452A8F5CD791BBE96DAD3768E889C78CAA5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535975   (680520) от 09.03.2022
 
 Eunomia - The Chronicles Of Eunomia, Part I (2018) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
@@ -757,6 +728,35 @@ Maps & Atlases - Lightlessness Is Nothing New (2018) [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15B7B2416FFD8EEA183C6239B14E893E515FA856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290533   (678487) от 20.03.2019
+
+Jonathan Coulton - Some Guys (2019) [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Golden Hair
+02. On and On
+03. Alone Again (Naturally)
+04. The Things We Do for Love(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90050BAB5073424765FC031DA9D0B9AAB352F32B
 ```
 
 https://mybot314.ru/tekegram_catalog/

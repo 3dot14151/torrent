@@ -1,90 +1,3 @@
-###  Публикация: 1066121   (414795) от 25.10.2016
-
-Tim Buckley - Greetings From L.A. (1972)[FLAC|Lossless|WEB-DL|tracks] <Funk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414795.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Move With Me 4:49
-2. Get On Top 6:35
-3. Sweet Surrender 6:48
-4. Nighthawkin' 3:21(   Читать дальше...   )Жанр: Funk, RockПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E40FADD9F4EC364BEEFFE09CAA6E615CBEEF9A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573272   (414783) от 30.08.2022
-
-The Volume - The Volume (2022) [MP3|320 Kbps] <Heavy Prog, Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ping Pong
-02 The Other Side
-03 And Mine Too
-04 Romanus eunt domas(   Читать дальше...   )Жанр: Heavy Prog, Psych, StonerПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36004A23842D33D0080D29EB6FFB6AD30BA0BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573100   (414778) от 30.08.2022
-
-Lifeburn - Город греха (2022) [MP3|320 Kbps] <Hard & Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Опасные игры [00:05:23]
-02 - Ответы на вопросы [00:04:40]
-03 - Город греха [00:06:27]
-04 - Одиночество [00:07:31](   Читать дальше...   )Жанр: Hard & Heavy MetalПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554326732F08559E5D58DBBED9365ACD09D5B056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573231   (414755) от 30.08.2022
 
 Sepultura - SepulQuarta (2021) Japan Edition [WavPack|Lossless|image + .cue] <Thrash Metal>
@@ -763,6 +676,93 @@ Dawnlight - Until The Dark Sun Rises (2019) [FLAC|Lossless|image + .cue] <Power 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:607E02169E68ED2F5642818A1553ACAB44FBA427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412825   (413836) от 01.10.2020
+
+Legion Of The Damned - Malevolent Rapture (2006) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Legion of the damned
+02 Death's head march
+03 Werewolf corpse
+04 Into the eye of the storm(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4270D32EEA8537091D14E037E518C2C74DF1E5E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412853   (413834) от 01.10.2020
+
+Fairyland - Osyrhianta (2020) [FLAC|Lossless|tracks + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Age Of Birth
+02. Across The Snow
+03. The Hidden Kingdom Of Eloran
+04. Eleandra(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7562F2480BD4B1BF22DD97BBAE75B5F7C4C4DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412937   (413832) от 01.10.2020
+
+DevilDriver - Dealing with Demons I (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Away from Me [00:04:18]
+02. Vengeance is Clear [00:03:34]
+03. Nest of Vipers [00:03:57]
+04. Iona [00:04:15](   Читать дальше...   )Жанр: Groove Metal, Death MetalПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA39571871ECF713D2B5E9866027A6B9DF876920
 ```
 
 https://mybot314.ru/tekegram_catalog/

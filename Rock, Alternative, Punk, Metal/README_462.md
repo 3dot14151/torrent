@@ -1,32 +1,3 @@
-###  Публикация: 911689   (612802) от 25.06.2015
-
-Wilson - Right To Rise (2015) [MP3|320 кб/с]<Hard Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Right to Rise
-2. ExplicitGuilty (You're Already Dead)
-3. Crave
-4. ExplicitWindows Down!(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982689C60CC0A204FBA872905540400005656857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912341   (612797) от 25.06.2015
 
 Sinister - Dark Memorials (2015) [MP3|320 кб/с]<Death Metal>
@@ -743,6 +714,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545561   (611548) от 21.04.2022
+
+Midnight Worship - The Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning (08:29)
+02. Cursed (07:48)
+03. The Darkness (10:49)
+04. Blinded (09:08)(   Читать дальше...   )Жанр: Atmospheric Rock, DoomПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126592CFE6C70017FA266D17FC214C7306A64B66
 ```
 
 https://mybot314.ru/tekegram_catalog/

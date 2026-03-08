@@ -1,3 +1,61 @@
+###  Публикация: 998129   (870377) от 19.03.2016
+
+High Inergy - Turnin' On (1977) Remastered, 2014, Big Break Records [MP3|320 кб/с] <Funk, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is All You Need  04:10
+02. You Can't Turn Me Off (In The Middle Of Turning Me On)  05:13
+03. Some Kinda Magic  04:40
+04. Searchin' (I've Got To Find Love)  04:18(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB5C8519593252CF421A3EE1FAFA3DDF569B439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998399   (870319) от 19.03.2016
+
+She Is We (ex. He Is We) - War (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boomerang 03:52
+02. Monster 03:51
+03. Better Now 04:14
+04. Crazy Heart 02:58(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DAA8BF13161F520A1C52E84472FB872CDADFE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998237   (870279) от 19.03.2016
 
 Annie Lennox - Cold + (1992) 3CD Box set, Singles, Japanese Edition, 1993, BMG Victor [FLAC|Lossless|image + .cue] <Pop, Adult contemporary>
@@ -691,64 +749,6 @@ Infernal - датская dance-pop группа, образованная в 19
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375577   (865385) от 14.04.2020
-
-Винтаж - Навсегда (2020) Special Version [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Об альбоме (Intro)
-2. Удивительный мир (Intro)
-3. Удивительный мир
-4. Спичка (Intro)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93B01F205E60B4148BDCBF0D64F595D8DF9EED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375578   (865257) от 14.04.2020
-
-SHLAKOBLOCHINA - FATALITY (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865257.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Новая сила киски (feat. FEARMUCH)
-2. Самолетная
-3. Х**вый карпарат
-4. Не тревожь папайю(   Читать дальше...   )Жанр: PopПродолжительность: 00:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE80673EB1C8367E2DE0C731FF5A20740D12199
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1408323   (455748) от 12.09.2020
-
-Роман Разум и ансамбль Новороссия - Нас Миллионы Русских (2020) [MP3|256-320 Kbps] <Военная песня, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:01:24]
-02. Дети рисуют Мир [00:04:09]
-03. Нас миллионы Русских [00:03:56]
-04. Город спит [00:03:31](   Читать дальше...   )Жанр: Военная песня, RockПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2E36265027C81DDC4F37DBC5C533ACE68B0380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568976   (455727) от 11.08.2022
 
 Fast Eddie - Shake A Tail Feather (2022)  [FLAC|24/96|tracks|WEB-DL] <Rock, Rhythm & Blues, Soul>
@@ -747,6 +718,32 @@ Beefeaters - Secret Tapes (1968) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96B65CE0209BFCEEA564B6BAE191DD247DD1B841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321916   (454796) от 26.08.2019
+
+Tarja (Tarja Turunen) - Dead Promises (2019) Single [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dead Promises (Single Version)[5:52]Жанр: Symphonic Power MetalПродолжительность: 00:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B73760B37E5EADE14782271A57EFFBF0D756E31
 ```
 
 https://mybot314.ru/tekegram_catalog/

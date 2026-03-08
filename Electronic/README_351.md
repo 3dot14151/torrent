@@ -1,3 +1,61 @@
+###  Публикация: 1582794   (318757) от 11.10.2022
+
+V.A. - Chill Out Days, Vol. 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemongrass & Jane Maximova – Frozen Bo
+02. Pierre Moore – Cafe Del Mar (Ambient Mix)
+03. Marc Hartman – Don't Wanna Loose You
+04. Weathertunes – Morpheus(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0896BC1221DBB2F2C79CAA916D6110655DD832F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075614   (318685) от 23.11.2016
+
+VA - Milk & Sugar Winter Sessions 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giom - Last Dance (Karol Xvii & Mb Valence Loco Remix) 07:35
+02. Lexer - Disrupted Signals (Original Mix) 05:56
+03. Alexander Remus - Sheets (Feat Liza Flume - Original Mix) 06:03
+04. Superlounge - Unfold (Original Mix) 07:13(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDC94B8192FC67AC939FF418896EB42D0E8E208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582653   (318627) от 11.10.2022
 
 Eurythmics - Boxed (1981-1999) Box Set: 8 CD, Reissue, Remastered, 2005, Sony BMG Music Entertainment [OGG Vorbis|480 Kbps] <Rock, New Wave, Pop Rock>
@@ -689,64 +747,6 @@ VA - 5 Years With Stellar Fountain - The Must Hear Selection (2016) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F89015198FF758DF1C865AC2035F008F45A1A5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259839   (316415) от 05.11.2018
-
-Hurts - Desire (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/13. Beautiful Ones (3:03)
- 02/13. Ready To Go (2:46)
- 03/13. People Like Us (3:39)
- 04/13. Something I Need To Know (3:31)(   Читать дальше...   )Жанр: Electronic, Synthpop, PopПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F29A277473486BE923F4E2081A6A8D0D7086AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259858   (316411) от 05.11.2018
-
-VA - Buddha Gold Vol.2: The Finest In Mystic Bar Sounds (2018) [MP3|320 Kbps] <Downtempo, Meditation, NewAge, Relax>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Persia Beatz - Sha Hai (Morgenland Miles Cut) 6:48
-02. Frank Borell - Alive (Electric Dream Cut) 4:18
-03. Asian Chill Art - Bahai Jar (Continental Cut) 5:01
-04. Sean Hayman - Imagine (Dreamwave Mix) 5:21(   Читать дальше...   )Жанр: Downtempo, Meditation, NewAge, RelaxПродолжительность: 05:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D514A880CB085DD71114D6BFB333B36FEBB3AF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

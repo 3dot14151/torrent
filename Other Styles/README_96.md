@@ -1,3 +1,36 @@
+###  Публикация: 532252   (538244) от 07.08.2012
+
+Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/с (V2)]<Folk,Барабаны,Шоу,Япония>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beginnings
+2. Poeme Du bambou
+3. Hachijo
+4. Yamagoe
+5. Eisa
+6. Yuzuru
+7. Odaiko
+8. Yatai BayashiЖанр: Folk,Барабаны,Шоу,ЯпонияПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050430   (538158) от 08.09.2016
 
 Anhidema - Le Retour Du Anunnaki (2016) [MP3|320 Kbps] <New Age, Space, Spiritual Chillout>
@@ -747,35 +780,6 @@ Blackmore’s Night - A Knight In York (2012) [WavPack|Lossless]<Folk Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819641   (531903) от 08.09.2014
-
-Jason Graves - Dead Space 2 (2011) Collector's Edition [FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Isaac, Are You There
- 02 - Padded Room With A View
- 03 - Hospital Escape
- 04 - The Cassini Towers(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EAD8FEEB5669843BCEAFCD3D90CBA1CEC39782
 ```
 
 https://mybot314.ru/tekegram_catalog/

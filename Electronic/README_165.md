@@ -1,3 +1,61 @@
+###  Публикация: 1521920   (763452) от 04.01.2022
+
+VA - My Lounge Room (Chillout Your Mind) (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Tender Moments (Original Mix) (4:49)
+02. Michael e - Thrilling (Original Mix) (5:52)
+03. Marga Sol, Digby Jones - What I Need (Instrumental Mix) (4:38)
+04. Living Room - Don't Cry Baby (2:40)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6CEBFC2A52C61EC534D0FA6403D1B66A9F1582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214791   (763297) от 23.03.2018
+
+VA - Easter Chill Day (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blue Wave  -  Slow Motion  5:54
+02.  Arrojas  -  Wide Open Spaces  5:31
+03.  Kusuma Orchestra  -  Aurora  5:28
+04.  B Bob Combo  -  What's The Catch  5:26(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C37FD61C8FE4BFE9D85C27B37E8678429BD0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214777   (763296) от 23.03.2018
 
 VA - Ambient Chill Session 6 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
@@ -687,64 +745,6 @@ VA - Groovedelicious, Vol. 2 (40 Deep & Tech House Sounds) (2016) [MP3|320 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F016A402FC18015FD86A441E9C89FEBAE547D84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017278   (761115) от 17.05.2016
-
-VA - Future EDM Essentials Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quantum Duxe - Sunwalker (Original Mix) 5:17
-02. Savant - Cassette (Notice Me Senpai Mix) 4:56
-03. Distrix - Violet Skies (Original Mix) 5:06
-04. Sasha Lemon - Sunshine (Original Mix) 4:38(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AA87F15DC250AFDEB74776C57AB8552C7699CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280677   (760629) от 03.02.2019
-
-CИTROPY - CИTROPY (2018) Sun Sea Sky Productions [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solemn (2:03)
-02. Sundown (4:08)
-03. Sway (5:18)
-04. Styx (4:04)(   Читать дальше...   )Жанр: Downtempo, IDM, AmbientПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675E27D93EE99449597FB3CE0C9965AC0F89333B
 ```
 
 https://mybot314.ru/tekegram_catalog/

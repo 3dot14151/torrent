@@ -1,3 +1,90 @@
+###  Публикация: 1144369   (627754) от 22.06.2017
+
+Ronny Vergara - Remixes Compilation Vol.02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627754.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chelsy (original mix) (09:32)
+2. Background (Many Reasons AKA Minicoolboyz & Minicoolboyz remix) (07:46)
+3. Background (Virgil Enzinger remix) (06:42)
+4. Background (D-Unity remix) (06:27)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B29F3056294EE185130E54307675E021DDC4A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144367   (627748) от 22.06.2017
+
+Mike Dehnert - Providing Home (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627748.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (02:16)
+2. Between No Words (05:09)
+3. Want Be (04:00)
+4. Providing Home (05:20)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046A04FD5D01E5E6E008D736BCF5873470F3247D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144373   (627744) от 22.06.2017
+
+VA - House On My Soul: Summer Edition (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627744.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ultrasound - Energy (original mix) (08:23)
+2. Steve Mola - Tropical Hotel (Following Light remix) (07:25)
+3. Stergios - Regeneration (Sunshine mix) (08:15)
+4. J-Sevilla - Delphinus (Ivanshee remix) (07:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0AF058AF36807F441724A53CE9B252AF5A7489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144357   (627742) от 22.06.2017
 
 Breathdub - Modulations (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
@@ -657,93 +744,6 @@ Dinka - Hotel Summerville (2010) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFB16269E3628A297751807A99AEEA9F778B6EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230854   (611941) от 14.06.2018
-
-VA - AWRY003 (2018) AWRY [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrong Assessment - Calcare (06:59)
- 02. Magna Pia - Ys Ura (06:36)
- 03. Ryan James Ford - Masthead (05:12)
- 04. Serena Butler - To Tilt The Fulcrum (05:54)Жанр: TechnoПродолжительность: 00:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53220CFBB274A1CE6538C57823A60FD52E3D67AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296622   (610323) от 18.04.2019
-
-Headstrong feat. Tiff Lacey - The Truth: 2019 Remake (2019) [FLAC|Lossless|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Truth (Progressive 2019 Remake Mix)
-02.The Truth (Headstrong & Aurosonic 2019 Rework)
-03.The Truth (Skipper Ibiza Chillout Remix 2019)
-04.The Truth (Progressive Edit 2018 Remake)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB75B1EA33AE324116B236C2CA1E5C3437278F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037982   (610311) от 26.07.2016
-
-VA - Re:Commended - Deep House Edition, Vol.7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Badetasche - Chillin Groove (Stefan Lindenthal Remix) [05:48]
-02. Soundsome - Intentional Delay (Original Mix) [07:38]
-03. Die Hoehenregler - Lust (Original Mix) [07:25]
-04. Pyroclastiq - Bruma (Original Mix) [06:38](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1FD5609ED60275C64F859C88CEE9F4B888EB9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

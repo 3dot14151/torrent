@@ -1,61 +1,3 @@
-###  Публикация: 1458348   (235624) от 28.03.2021
-
-Breaths - Lined in Silver (2021) 2CD [MP3|320 Kbps] <Blackgaze, Post-Hardcore, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lined in Silver (Instrumental) [00:07:13]
-02. The Weight & The Bellows (Instrumental) [00:09:08]
-03. Like Wires (Instrumental) [00:05:26]
-04. A Year on Fire (Instrumental) [00:05:44](   Читать дальше...   )Жанр: Blackgaze, Post-Hardcore, Post-MetalПродолжительность: 02:00:33 (2CD)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7FBFE2BB0D74E53678BB624238E38245137703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632136   (234196) от 16.05.2023
-
-The Devil Wears Prada - Color Decay (2022) Deluxe, 2023, Solid State Records  [MP3|320 Kbps] <Christian, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234196.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Exhibition (3:58)
-02. Salt (3:27)
-03. Watchtower (2:48)(   Читать дальше...   )Жанр: Christian, MetalcoreПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24D4CE0EED2D8D89CF829A81AA26DDF4C86042A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577024   (233272) от 17.09.2022
 
 The London Suede - Autofiction (2022) [MP3|320 Kbps] <Alternative Rock>
@@ -745,6 +687,64 @@ Amanda Palmer - Piano Is Evil (2016) [MP3|320 Kbps] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C0310B3211CCB9DDB6DF7651BA9348DE3F89B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966360   (219774) от 17.12.2015
+
+Bloodhound Gang - Hard-Off (2015) [MP3|320 кб/с] <Alternative, Punk-Rock>
+
+>>След.
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Dad Says That's For Pussies
+ 02. Dimes
+ 03. American Bitches
+ 04. Chew Toy(   Читать дальше...   )Жанр: Alternative, Punk-RockПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304F3DE6B3F13411483D863784B806D1674A2F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585932   (219626) от 24.10.2022
+
+Vatic - Mercer 217 (2022) [MP3|320 Kbps] <Progressive Metalcore, Nu Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Ready To Die
+02. Silver Glass
+03. The Colour In Your Eyes
+04. 217(   Читать дальше...   )Жанр: Progressive Metalcore, Nu MetalcoreПродолжительность: 00:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281CAE61D1B932ABD889F381A917C177CB01FEAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

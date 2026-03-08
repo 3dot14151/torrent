@@ -1,3 +1,177 @@
+###  Публикация: 1215020   (761146) от 24.03.2018
+
+VA - Наше Радио: Чартова дюжина Top13  Март (2018) [MP3|320 Kbps] <Рок, Поп-Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ундервуд  -  Ракеты на Марс  3:27
+02.  СерьГа  -  Я люблю поезда  3:24
+03.  Сплин  -  Тепло родного дома  3:51
+04.  Zdob Si Zdub feat. Loredana & Лигалайз  -  Балкана мама  2:42(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DDB66FC4FCA057E5544E87EBEBDC462E16E216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017691   (761108) от 17.05.2016
+
+VA - На ночной волне радио Шансон 3 (2016) [MP3|256 кб/с] <Chanson, Pop>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Леонид Телешев И Ирина Круг - Мосты
+002. Рома Рязанский - Письмо
+003. Андрей Острякоff - Твой Портрет
+004. Евгений Росс - Затмение Любви(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 06:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC06AAF3E33849862F44274574E1FF9FC9E50A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017602   (761096) от 17.05.2016
+
+VA - Радио Шансон. Фестиваль блатной песни (2016) [MP3|256 кб/с] <Chanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761096.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олег Безъязыков И Эльдар Артист - Арестантская Душа
+002. Таня Дьяченко - Святая Любовь
+003. Александр Вестов - Впусти Меня В Свою Душу
+004. Группа Порт Петровск - Водка В Хрустале(   Читать дальше...   )Жанр: ChansonПродолжительность: 06:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B584270C9DD96B3223D64DF8CFB4C73B477398ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017538   (760984) от 17.05.2016
+
+VA - Mysterious Dream Sound (2016) [MP3|320 кб/с] <Ambient, Chill Lounge, Relax>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760984.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Darwins Dream - Lonely by the Beach - Cafe and Sand Edit
+002. FD Sound - West City
+003. Sonic Fear - I'll Be Your World (Original Mix) (feat. Veela)
+004. Total System - Rcxxix(   Читать дальше...   )Жанр: Ambient, Chill Lounge, RelaxПродолжительность: 07:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EBD2317779F17244BD0CBCFA7550A28692CDB39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017630   (760774) от 17.05.2016
+
+VA - My Favourite Hits of 1964 (6CD) от DON Music (2016) [MP3|320 кб/с] <Rhythm & Blues, Funk, Soul>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 The Beatles - A Hard Day's Night (02:31)
+002 Roy Orbison & The Candy Men - Oh, Pretty Woman (02:56)
+003 Manfred Mann - Do Wah Diddy Diddy (02:22)
+004 The Animals - The House Of The Rising Sun (04:28)(   Читать дальше...   )Жанр: Rhythm & Blues, Funk, SoulПродолжительность: 07:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EBBA9B37A81AF7540CEB5500DFCC83757075F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280310   (760627) от 03.02.2019
+
+VA - German Top 50 Official Dance Charts 01.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz - Speechless (feat. Erika Sirola)
+02. Hugel - WTF (feat. Amber Van Day)
+03. Chic - Le Freak (Oliver Heldens Remix)
+04. Picco - Cubano(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384762A18BFCB3910BF3AD6E9C2DF0AABC730D4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280503   (760544) от 03.02.2019
 
 VA - The Awakening (2019) [MP3|320 Kbps] <Psychedelic, Avangard Electronic>
@@ -571,180 +745,6 @@ VA - Route Music: Disco Night (2021) [MP3|320 Kbps] <Disco, Funky, Nu Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E3FB1674B2F4221F9A71F4601EDF14E9F3488EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280501   (760188) от 03.02.2019
-
-VA - Play With Fire: Rock Blues Collection (2019) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760188.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Spare Change - Mr. Boogs
-002. John Primer - Let It Bleed
-003. Andy Watts - Blues On Fire
-004. Deltaphonic - Big Game(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 11:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822D7C0D12A299B3408E3C8663BD90C02E57AD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394888   (760114) от 07.07.2020
-
-VA - Night And Day: Vocal Jazz Music (2020) [MP3|320 Kbps] <Jazz, Blues, Vocal Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760114.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eric Lau - Super Moon
-002. Robbie Williams - Lets Not Go Shopping
-003. Carine Jessica - Armastus
-004. Joe Pesci - I'll Be Seeing You(   Читать дальше...   )Жанр: Jazz, Blues, Vocal JazzПродолжительность: 06:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6927CCF9D3C6A772A0E41C8F23543482B941CAA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394807   (760105) от 07.07.2020
-
-VA - Авторадио: Золото дискотек Vol.2 (2020) [MP3|320 Kbps] <Euro Disco, Italo Disco, Euro Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney M. - Young, Free And Single (12' Version)
-02. N-Trance - Stayin Alive
-03. Vaya Con Dios - Hey (Nah Neh Nah) (Milk & Sugar Extended Mix)
-04. U96 - Let Yourself Go (Extended Mix)(   Читать дальше...   )Жанр: Euro Disco, Italo Disco, Euro DanceПродолжительность: 06:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C1AE581DB952D1EBE351B3BD2C1A82E5A36F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215185   (760095) от 25.03.2018
-
-VA - 2018 State Discover Scene (2018) [MP3|320 Kbps] <Funky, Tropical, Progressive, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sezer Uysal — The Story About Us 7:57
-02. Vlad Janela — Arcade 6:34
-03. Miroslav Vrlik — Alone At Midnight (Extended Mix) 5:42
-04. Fatboy Slim — Right Here Right Now (Camelphat Remix) 8:23(   Читать дальше...   )Жанр: Funky, Tropical, Progressive, Future HouseПродолжительность: 09:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A973344DA1FF710C85C183641EA6EFD83ABA5A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215198   (759981) от 25.03.2018
-
-VA - Race Around Hits Music (2018) [MP3|320 Kbps] <Electro, Twerk, Progressive, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fedde Le Grand & Ida Corr - Let Me Think About It (Celebration Remix) 3:37
-02. Calippo - We'll Be Heard (Original Mix) 5:53
-03. Nora En Pure - Come With Me (Satin Jackets Remix) 5:50
-04. Inpetto - Needin' U So (Tocadisco Remix) 5:29(   Читать дальше...   )Жанр: Electro, Twerk, Progressive, OtherПродолжительность: 03:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9402D81074119FE59D2493B558C5E0B9FBD424A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215239   (759978) от 25.03.2018
-
-VA - Latin Dembow Escape (2018) [MP3|320 Kbps] <Salsa, Merengue, Moombahton, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Farruko & El Micha - Fuego (Dirty) 3:22
-02. Almighty - Indiferente 2:37
-03. Farruko & El Micha - Fuego (Intro - Dirty) 3:32
-04. Almighty - Indiferente (Intro) 3:06(   Читать дальше...   )Жанр: Salsa, Merengue, Moombahton, OtherПродолжительность: 03:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E67D96931D1C2F0EC776DD6962C861D15AAC293
 ```
 
 https://mybot314.ru/tekegram_catalog/

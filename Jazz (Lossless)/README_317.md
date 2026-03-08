@@ -1,3 +1,32 @@
+###  Публикация: 1712228   (112165) от 02.04.2024
+
+Grover Washington, Jr. - Time Out Of Mind (1989) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grover Washington Jr. (12.12.1943 – 17.12.1999) был американским саксофонистом в стиле джаз-фанк и соул-джаз. Наряду с Wes Montgomery и George Benson многие считают его одним из основателей жанра smooth jazz. И хотя музыкальное производство фактически превратило smooth jazz в поджанр, который по сути лишил инструменты жизненной силы, тем не менее, эта музыка по своей (   Читать дальше...   )01. Jamaica (4:44)
+02. Gramercy Park (3:57)
+03. Sacred Kind of Love (5:41)
+04. Brand New Age (5:22)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69903602145820D78F04219E5780D95D330DA681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712567   (112072) от 03.04.2024
 
 Alex Podymkin & Abraham Burton Quartet - Concert At Cobra Music Hall (2008) 2023, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -715,35 +744,6 @@ VA - Relaxing Evening Jazz Chill out Playlist (2024) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92DEC832A16EC86C247DF07BAC6DE45814A7AB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715319   (111535) от 12.04.2024
-
-VA - Greatest Feel-Good Intimate Jazz Tunes to Unwind (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Dream Weaver (4:56)
-02. Chillaxonic - Together We Fly (4:08)
-03. Chillaxing Jazz Kollektion - Wherever I Go (4:19)
-04. Love Suggestions - Clarity (4:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF3BBDFF4F027B13D4367E51B2D841F6968C87B
 ```
 
 https://mybot314.ru/tekegram_catalog/

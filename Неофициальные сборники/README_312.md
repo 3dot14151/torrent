@@ -1,3 +1,183 @@
+###  Публикация: 1144463   (627604) от 22.06.2017
+
+VA - Italo & Space Vol.39 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth, Eurobeat>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  D.White - Wonderful Day  6:02
+02.  Italove - Too Late To Cry  4:36
+03.  T.M.-Joy - Stay  3:36
+04.  Anosphere - Space Runner  4:56(   Читать дальше...   )Жанр: Italo Disco, Spacesynth, EurobeatПродолжительность: 03:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19087A4B8785D1B191DD3307AFE562AD4FD1D3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909370   (627509) от 17.06.2015
+
+VA - Летние хиты за рулем. Выпуск 50/50 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627509.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pulse - Танцуй Со Мной
+002. Martin Garrix - Dont Look Down
+003. Юля Шатунова - Прощай Май
+004. Bondax Feat. Bo Saris - Let Me Be(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182BAD5DD25E633F33A846FA847574EB5CD02041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144556   (627369) от 22.06.2017
+
+VA - New Age Compilation (2017) [MP3|320 Kbps] <New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amethystium - Odonata (2001):
+
+01. Arcane Voices (4:03)
+02. Ascension (4:41)(   Читать дальше...   )Жанр: New AgeПродолжительность: 04:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9AE8CF0F0F6156D3140D83C44B31C2B155EA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292088   (627327) от 08.04.2019
+
+VA - Beautiful Rock Ballads Vol.01-40 (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astral Groove - Until We Meet 03:23
+02. Blanc Faces - Everything 04:23
+03. Brian Howe - Holy Water 04:50
+04. Charing  Cross - Long Time Ago 06:37(   Читать дальше...   )Жанр: RockПродолжительность: 80:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CF8AAD752669DD2B504596A42786629EBB4050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521389   (627122) от 11.07.2012
+
+VA - 538 Hitzone  62 2CD (2012) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627122.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1. Время звучания: 01:18:27
+
+01 - Carly Rae Jepsen - Call Me Maybe
+02 - Gusttavo Lima - Balada
+03 - Wtf! - Da Bop
+04 - Will And The People - Lion In The Morning Sun
+05 - Loreen - Euphoria
+06 - Train - 50 Ways To Say Goodbye
+07 - Nicki Minaj - Starships
+08 - Racoon - Liverpool Rain(   Читать дальше...   )Жанр: DanceПродолжительность: 02:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B36DB1997D244B21AB25D342D1D2AFD61A168DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909455   (627036) от 17.06.2015
+
+VA - Record Russian Mix (2015) [MP3|320 кб/с]<Club House, Dance, Pop, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Егор Крид - Самая - Самая
+02. Иван Дорн - Мишка Виновен (Атом Remix)
+03. Квест Пистолс - Санта-Лючия (Соловей Remix)
+04. Натан, Тимати - Девочка-Бомба (А Лисс Remix)(   Читать дальше...   )Жанр: Club House, Dance, Pop, HouseПродолжительность: 06:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083425651BECE6792BBEB414CFC24B61B2432CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909369   (627035) от 17.06.2015
 
 VA - Дискотека Казанова Старые Песни По Новому vol.4 (2015) [MP3|320 кб/с]<Club, Dance, Hands Up, Eurodance>
@@ -576,180 +756,6 @@ VA - С днем рождения, Натали! (2016) 5CD [MP3|320 Kbps] <Ша
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:240F03D196F7083784CB27FC58A1D528BFAA6E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229463   (626460) от 06.06.2018
-
-VA - Caramel Masquerade (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Walk The Moon - One Foot
-002. Dua Lipa - IDGAF
-003. MAX - Lights Down Low
-004. Matami - Get Lost(   Читать дальше...   )Жанр: PopПродолжительность: 08:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD469876AAB6400272065ACA42785D0C51B964BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909703   (626277) от 18.06.2015
-
-VA - Dance Premium (2015) [MP3|320 кб/с]<Progressive, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Kick Some Ass (Original Mix)
-02. Martin Weleno - You (Dj Selecta Remix)
-03. Flavio Siciliano - Stronger (Extended Mix)
-04. Noelia - Spell (Ralphi Rosario Club Mix)(   Читать дальше...   )Жанр: Progressive, Club, HouseПродолжительность: 03:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72FB26AE3EC5BEF1ED12BCF4FECD6AF97D8C3B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909763   (626274) от 18.06.2015
-
-VA - Extra Trance (episode 3) (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Envy and Allen feat Katty Heath - I Wasn't The One (Iversoon & Alex Daf Remix) (06:24)
-02. Steven Vim - Skyline (Original Mix) (07:22)
-03. Zack Mia - Red Planet (Radio Edit) (03:58)
-04. Bluskay - You & I (Secret Lovers) (Original Mix) (06:50)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F18A9FF44183AA10D265AC6FE600829B34F9D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294623   (626116) от 09.04.2019
-
-VA - German Top 50 Party Schlager Charts 08.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Heute Nacht für immer
-04. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E457BB8EF5F53C54ED8735D3F8454B0B86675A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229498   (626032) от 06.06.2018
-
-Вилли Токарев - Незабываемые песни (1981-1985) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нью-Йоркский таксист (1981)
-02. В шумном балагане (1981)
-03. Люська-хулиганка (1981)
-04. Держи вора (1981)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA8CBB4EA8CB14FEE273298E9D3B169D4AD3D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909568   (626020) от 18.06.2015
-
-VA - Лебедь белая Академия хитов шансона (2015) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626020.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Роман Алешин - Встреча
-002. Адмирал - От Любви До Печали
-003. Сергей Альбин - Лебедь белая
-004. Александр Раю - Штангист Неудачник(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CCFB38E30CBD6771D75DF04F7A283D9C7FB1ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

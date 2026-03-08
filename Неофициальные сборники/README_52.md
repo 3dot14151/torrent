@@ -1,3 +1,183 @@
+###  Публикация: 614591   (981013) от 05.02.2013
+
+Soft Jazz - Soft Jazz Sexy Music Instrumental Relaxation Saxophone Music (2013) [MP3|320 кб/с]<Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't No Sunshine (When She's Gone)
+02. Fallin'
+03. I Can't Make You Love Me
+04. Use Me (Bill Withers)
+05. You Are My Lady
+06. Sexual Healing
+07. Let's Stay Together
+08. Let's Get It On
+09. And I Love Her
+10. Where Is the Love?(   Читать дальше...   )Жанр: JazzПродолжительность: 02:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD6E5BB68B21DEE1AB91BEBFAD6822FF5FF6776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355760   (980808) от 28.01.2020
+
+VA - Полтинник самых - самых (2020) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Артур Пирожков - Она решила сдаться
+02. Arizona Zervas - Roxanne
+03. HRVY - Million Ways
+04. DaBro - Мой путь(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 02:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638C175D38D0B93F07D0C3B27C5554A4F1510BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972846   (980784) от 07.01.2016
+
+Мария Распутина - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|256 кб/с] <Поп, Шансон, Интервью>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980784.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я родилась в Сибири
+2. Жёлтые листья
+3. Живи, страна
+4. Ты упал с Луны(   Читать дальше...   )Жанр: Поп, Шансон, ИнтервьюПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976665CB6341ADA660F27D89B450C4A474C42601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355725   (980760) от 28.01.2020
+
+VA - Where the Blues live (2020) 2CD [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dalannah Gail Bowen - Looking back
+02. Aretha Franklin - Honest I Do
+03. Danny Bryant's RedeyeBand - Girl from the North Country
+04. Blues Ball - Her Memory(   Читать дальше...   )Жанр: BluesПродолжительность: 08:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2DEC03AE98E559622784767DD92D2611A220F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972815   (980697) от 07.01.2016
+
+VA - Попсовая VIP тусовка (2015) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980697.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Даша Суворова - Останусь
+002. Мурад Байкаев - Черно-Белое
+003. Alex Kafer & Lera - Никогда
+004. Bridge - Временно Твоя(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642C97315054B5BC9B614BA445B953898B44B44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972974   (980695) от 07.01.2016
+
+VA - Бомба Года. Шансон (2015) [MP3|256-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980695.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Куренков - Для Тебя
+002. Иван Кучин - Колесница
+003. Дмитрий Фомин - Достало
+004. Алена Герасимова (Макаровна) - Мать(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F02F0769B51D02F0312B7DCCE079707819D16008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972746   (980692) от 07.01.2016
 
 VA - 20 Soundtrack Hits of the ‘90s (2015) [MP3|320 кб/с] <Disco, Jazz, Pop, Rock, Soundtracks>
@@ -571,186 +751,6 @@ VA - Подарочный Шансон (2016) [MP3|256 кб/с] <Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAF6FAE429DCAADEA330C616E7A8F21A40214C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973384   (980106) от 08.01.2016
-
-VA - Back To 80's Disco Party Vol.1 (2015) [MP3|320 кб/с] <Disco, Italo Disco, Eurodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamtime - Aurelia
-02. Laserdance - Humanoid Invasion (Dance Mix)
-03. Hugh Bullen - Alisand (Extended Version)
-04. Sandy Marton - People From Ibiza(   Читать дальше...   )Жанр: Disco, Italo Disco, EurodiscoПродолжительность: 06:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1191C694D9D7B087685400AE474D8FC9151B367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612967   (979992) от 06.02.2013
-
-VA - Итоговый Независимый Хит–Парад - «Чартова Дюжина 2011» (2011) [MP3|128-320 кб/с]<Rock, Punk-Rock, Folk-Rock, Soft-Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979992.jpg" />
-</div>
-
-
-###  Подробнее
-
-14. Калинов Мост - Толокно (3:16)
- 15. KняZz - Человек-Загадка (4:53)
- 16. Би-2 - Ее Глаза (из Шекспира) (4:52)
- 17. Алексей Мурашов и Максим Леонидов - Полмили до дна (4:05)
- 18. KняZz - В пасти тёмных улиц (4:16)
- 19. Lumen - Не надо снов (3:19)
- 20. Мураками - Нулевой километр (3:36)
- 21. Глеб Самойлоff & The Matrixx - Опасность (3:28)
- 22. Кипелов - Власть огня (4:47)
- 23. Алиса - Дождь и Я (4:10)(   Читать дальше...   )Жанр: Rock, Punk-Rock, Folk-Rock, Soft-RockПродолжительность: 05:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2606C3BC7CC99342B160436E79B98AEE24D64F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356023   (979615) от 29.01.2020
-
-VA - Громкие новинки Января Vol 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.2 Chainz, Future - Dead Man Walking (2:15)
-2.3-ий Январь - Фиолетовые мотыльки (3:12)
-3.Arash, Ilkay Sencan - Mary Jane (3:18)
-4.Kygo, Avicii, Sandro Cavazza - Forever Yours (3:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4CAC05BD670BFE4B05A8C3970FACCAFEC775B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973666   (979215) от 09.01.2016
-
-VA - Club Hits (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979215.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Monsuma - Cold [03:47]
- 2. Zozy - The Energy [04:32]
- 3. Lin Nicks - Master Of The Beat [04:37]
- 4. Poxo - Levels [06:18](   Читать дальше...   )Жанр: HouseПродолжительность: 03:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDC2259B26060ACA554E483325232967FF02CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973507   (979208) от 09.01.2016
-
-VA - Best Of Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia - Strong (Radio Edit)
-02. Stargazers - Black Diamond (Radio Edit)
-03. Kaimo K - Love Will Never Leave (Radio Edit)
-04. Hazem Beltagui - Silent For So Long (Maratone Radio Edit)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6DCCAA2B8E3772ADFB4C38ABF0AA25C0991670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973658   (979200) от 09.01.2016
-
-VA - Road, Darkness & Music (2016) [MP3|320 кб/с] <House, G-House,  Progressive, Trance, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979200.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alexandre Bergheau - Home Is Where My Heart Is (Original Mix)
-002. Joseph Terruel - It's Only Love Doing It's Thing
-003. Therr Maitz - Doctor (Artur Montecci Remix)
-004. Sergio Gress, Alexey Sharapoff - Hands Up (Original Mix)(   Читать дальше...   )Жанр: House, G-House,  Progressive, Trance, TechnoПродолжительность: 04:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72D67ED92511DB2D5FFD1E1540135DD8665D1AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

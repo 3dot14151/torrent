@@ -1,3 +1,61 @@
+###  Публикация: 1568751   (457773) от 10.08.2022
+
+Bad Boys Blue - Love Is No Crime (1987) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Come Back And Stay (7:37)
+02.If You Call On Me (3:33)
+03.Victim Of Your Love (4:31)
+04.Love Is No Crime (3:37)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C11889C3348E266AB0C9C7E74CACF995413BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568854   (457620) от 10.08.2022
+
+Божья Коровка - Гранитный Камешек (1995) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гранитный камешек
+02. В каком неведомом краю
+03. Я верю (Исповедь)
+04. Четыре буквы(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B875A44A5E027F285EE94B5966A399F203931431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568314   (457614) от 10.08.2022
 
 Modern Talking - Ready For Romance (1986) [OGG|485 Kbps] <Disco>
@@ -697,64 +755,6 @@ Doves - The Universal Want (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E3E71B386EF5A2EF2775B0284D95C7535B150C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942598   (453905) от 01.10.2015
-
-Ariana - Первая Любовь (2002) [APE|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Я Уже Не Помню Слова
-02	Под Испанским Небом
-03	Непонятная Любовь
-04	Я Больше Не Верю(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BAA2BEC6A2DA445EED1C3C81E52CF4B8408371F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942755   (453760) от 01.10.2015
-
-Michael Cretu - Moon Light Flowers (1989) [FLAC|image+.cue]<Pop, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. '57 (The Year I Was Born)
-2. Fire And Rain
-3. Wild River
-4. Shadows Over My Head(   Читать дальше...   )Жанр: Pop, Synth-pop, DiscoПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9561647E3BA476AEEF28D051C7201E984A58A2B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

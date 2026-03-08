@@ -1,3 +1,177 @@
+###  Публикация: 1083105   (275597) от 14.12.2016
+
+VA - Rock Collection 1996 (2016) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01
+
+01. Ayreon - Actual Fantasy
+02. Opeth - Advent(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 29:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972CB235F041F93AB660DF8B5BD0F3F802CDC1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337093   (275553) от 09.11.2019
+
+VA - Top50: Tracks Deep House Ver.15 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Bobo - Where Is Your Love (Igor Frank Remix) 4:57
+02. ATB - 9PM (Till I Come) (Anton Liss & Andrew Rai VIP Club Mix) 4:45
+03. Patrick Hofmann & Daniel Torres - Butterfly (Sharapov Extended Remix) 4:16
+04. DJ JEDY x Александр Юрченко feat Ольга К'рымская - Ветер перемен (Deep Cover) 4:02(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 04:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FE2C1F0C08DBAD1901FB751F5EE10A5F551C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336762   (275550) от 09.11.2019
+
+VA - Дискотека 2019 Dance Club Vol. 195 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+01. Quintino, Cesqeaux feat. Lil Debbie, Bok Nero - Make Moves (2:31)
+02. Gayazov$ Brother$ - Увезите меня на Дип-хаус (Ramirez Remix) (4:12)
+03. Alice Astourian - Inside to Outside (3:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 21:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B953577541EFCEE499CF28F769C390A95E032570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336754   (275548) от 09.11.2019
+
+VA - Ремиксы от MGDC FM Vol 2 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275548.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.10eezy & Rimas - Зависима (SHRWD & DJ JON Remix) (3:46)
+2.10eezy & Rimas - Слабости (Vitaco & DEAF Remix) (4:19)
+3.25-17 - Жду Чуда (Ivan ART Reboot) (3:09)
+4.5sta Family - Один На Один (Sergey Kutsuev Remix) (5:04)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA773C071BB93C6A14F90CC78DF7172CEC06F4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265275   (275229) от 27.11.2018
+
+VA - Your Lifestyle: Psychedelic Trance Music (2018) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275229.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alternate Side - Symbiosis
+002. Audiomethod - Wait And See
+003. Hypnocoustics - New Identity
+004. Drjeckyl - Dna(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D7BC8B22D64E1FA8ABD8022615EF114897A2B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265286   (275226) от 27.11.2018
+
+VA - Festival Anthems 100 Designed (2018) [MP3|320 Kbps] <Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275226.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. RL Grime - Feel Free (Clean Short Edit)
+002. Odesza - Loyal (Clean Extended)
+003. Kompany - Override (Clean Radio Edit)
+004. Rogue D - Chains (Clean Short Edit)(   Читать дальше...   )Жанр: Big Room, Twerk, ElectroПродолжительность: 06:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DCE62519638D0731E192AEAF52049298CA3078D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083379   (274992) от 15.12.2016
 
 VA - Trance Elegance On This Year 002 (2016) [MP3|320 Kbps] <Trance, Tech Trance, Stadium Trance, Progressive>
@@ -568,180 +742,6 @@ VA - Top DJ. Dance boom (2017) [MP3|320 Kbps] <Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EB1253DEA7805B5626E41541D6390FD2632C788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188468   (274549) от 02.12.2017
-
-Валерия - Лучшее от ALEXnROCK (2017) [MP3|320 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Не обижай меня
-02 Бессоница
-03 Капелькою
-04 Одинокая(   Читать дальше...   )Жанр: ПопПродолжительность: 03:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFFC31516F1299320937E0B99A362868C9D861E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188194   (274514) от 02.12.2017
-
-VA - Pop Rock Ballads: New And Old (2017) [MP3|320 Kbps] <Pop, Rock, Old Ballad>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274514.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Bee Gees - It's My Neighborhood
-002. Free - Alright Now
-003. Madness - Our House
-004. Sham 69 - Hersham Boys(   Читать дальше...   )Жанр: Pop, Rock, Old BalladПродолжительность: 09:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A02E327EB069465E39E82C9AE71E8A2522965A11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265321   (274137) от 28.11.2018
-
-VA - New Releases of the 24th Week of 2018 (2018) [MP3|320 Kbps] <Pop, Tropical, Hip Hop, Reggae>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274137.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi, Stefflon Don - Calypso
-002. Tofer Dolan - Baby Daddy
-003. Rudimental, Major Lazer, Anne-Marie, Mr Eazi - Let Me Live
-004. Mau Y Ricky, Becky G - Mal De La Cabeza(   Читать дальше...   )Жанр: Pop, Tropical, Hip Hop, ReggaeПродолжительность: 08:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A54AF428921A63DCB4348A8C2EF9FA97B0277899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265368   (274134) от 28.11.2018
-
-VA - New Music Releases Week 47 of 2018 (2018) [MP3|~229 - 320 Kbps] <Dance, Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274134.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Rose, Jory Boy - More More
-002. Ferreck Dawn, Robosonic - In Arms (A-Trak Remix)
-003. Busta K - Want Your Body
-004. Borgeous, Morgan St. Jean - Famous (Riggi & Piros Remix)(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 08:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0FE2565D318D3476862C7A9DF7E80C9AB51794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265493   (274131) от 28.11.2018
-
-VA - Ultimate Vocal Collective House (2018) [MP3|320 Kbps] <Club House,Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jody Bernal, Billy The Kit feat. Nicole Jung - Macarena (Extended Mix)
-02. DHARIA - Sugar & Brownies(DJ Sencha remix radio)
-03. Silk City (Diplo & Mark Ronson) Ft. Dua Lipa - Electricity(Alex Metric Remix)
-04. Thoby - You Are the One(Original Mix)(   Читать дальше...   )Жанр: Club House,Vocal HouseПродолжительность: 02:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7004D0233E5A9F68C7335283604932234076C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265476   (274125) от 28.11.2018
-
-VA - Modern View In Trance Music (2018) [MP3|320 Kbps] <Trance, Electro, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274125.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 4 Strings - Beautiful Light
-002. Andy Moor - Reflection (Original Mix)
-003. Bjorn Akesson - Knight (Extended Mix)
-004. Danny Chen - Last Chance For Love(   Читать дальше...   )Жанр: Trance, Electro, Progressive TranceПродолжительность: 10:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF45FCD011122F172496E77ACDC35EDAA7B5556
 ```
 
 https://mybot314.ru/tekegram_catalog/

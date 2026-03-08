@@ -1,3 +1,32 @@
+###  Публикация: 958818   (321974) от 22.11.2015
+
+Urbie Green - The Fox (1976) 2013, King Records[FLAC|tracks+.cue]<Jazz Funk, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Another Star [07:16]
+ 02.Goodbye [02:59]
+ 03.Mertensia [04:57]
+ 04.You Don't Know What Love Is [04:01](   Читать дальше...   )Жанр: Jazz Funk, Soul JazzПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10DA46681FE22819EACDD37EEF2740603664A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 844166   (321652) от 24.11.2014
 
 Nikolay Gromin & Alexey Kuznetsov (Николай Громин и Алексей Кузнецов) - True Friends (1999) [FLAC|Lossless]<Jazz, Mainstream Jazz, Guitar Jazz>
@@ -715,35 +744,6 @@ Sonny Clark - Oakland (1955) 1995, Uptown Records [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:849F523BC79F4E929F93A7C39DFAD470241FDBC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421600   (317759) от 05.11.2020
-
-Lee Morgan - Jazz Profile (1963 - 1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C.T.A. [5:07]
-02. Trapped [6:01]
-03. Twilight Mist [6:57]
-04. Our Man Higgins [8:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20CF996D430EBA68D5948D554D2071203E24EF17
 ```
 
 https://mybot314.ru/tekegram_catalog/

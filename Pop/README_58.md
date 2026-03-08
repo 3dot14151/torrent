@@ -1,3 +1,61 @@
+###  Публикация: 996763   (877323) от 15.03.2016
+
+Fun Fun - Greatest Fun - The Best Of (1994) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа, в которой начинала свою карьеру 30-летняя Spagna в качестве вокалистки и автора песен. Слабее, конечно, материал, но есть достаточно известные и популярные треки.01. Happy Station (Remix) (Remixed By Ben Liebrand) 3:16
+02. Give Me Your Love (Remixed By Ben Liebrand) 3:53
+03. Sing Another Song 3:29
+04. Tell Me 3:47(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, ItalodanceПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25699B89AA884855997AF7A8660B29CE9E81EF87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996860   (877306) от 15.03.2016
+
+Icehouse - White Heat: 30 Hits (2011) 2CD [MP3|320 кб/с] <New Wave, Pop Rock, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877306.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Can't Help Myself
+02. We Can Get Together
+03. Walls(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 02:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E74DCC19349598819DACE216C6964F268EFCEAA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373512   (876826) от 08.04.2020
 
 DJ BoBo - Rare Trax (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -685,64 +743,6 @@ VA - Best Of The 90s (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C9D3E5221FFE41B232344C4E0A546CDDF2C2273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105644   (873524) от 19.02.2017
-
-Peter Wilson - Overdrive (2017) 2CD [MP3|320 Kbps] <Italo-Disco, Hi NRG, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold You Tight (03:52)
-02. Brokenhearted (03:55)
-03. Take A Chance On Loving You (03:56)
-04. Overdrive (04:02)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 01:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0EB96DA826F2F8514ACC4AEE75428BB4CD0298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997534   (873421) от 17.03.2016
-
-Дискотека Авария - Все Хиты: Авария Против! (2000) [FLAC|Lossless|tracks + .cue] <Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Влечение (Авария против Жуков) (4:38)
-02. Пей пиво! (3:58)
-03. Девочка (remix) (3:41)
-04. Я тебя не скоро (Евпатория remix) (5:06)(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 01:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0FBA5BA6749782C36797F7DC8DB23DD4A90C37
 ```
 
 https://mybot314.ru/tekegram_catalog/

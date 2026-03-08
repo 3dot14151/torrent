@@ -1,3 +1,61 @@
+###  Публикация: 1446981   (1032091) от 12.02.2021
+
+Transceive - Intrigue (2001) [FLAC|Lossless|tracks + .cue] <Berlin School>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032091.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Bygone Daze 6:34
+2 Intrigue 12:43
+3 Emor Femus 10:46
+4 Tera's Secret 4:40(   Читать дальше...   )Жанр: Berlin SchoolПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9C9A5845037F1722FFCBD78BED0A3DCBA1BFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342026   (1032080) от 12.02.2021
+
+Deep Blu' - Under The Ocean (2006) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simex - Under The Ocean (Taho Remix)
+02. Baier,Box - Duck Dub (Taho Remix)
+03. Brian Kage - Luna Twilight
+04. Brian Kage - The Days Of Us Two (Taho Remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6372B030BAC6D2F779D18D45313ADAD0851F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447210   (1032077) от 12.02.2021
 
 VA - Armin van Buuren & Ruben de Ronde & Allen Watts - A State of Trance 1003 (2021) [MP3|320 Kbps] <Trance>
@@ -685,64 +743,6 @@ VA - Delhi Trance Festival (2023) [MP3|320 Kbps] <Trance, Progressive, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:868E9DD477DB6C571ADD6A4B3D44ED988C20C386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621141   (1030986) от 25.03.2023
-
-VA - VA Trance 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Larssen - Time Machine (Original Mix) [6:46]
-02. Sybranax - Binary Star (Original Mix) [6:21]
-03. Nick Osta5h - Deja Vu (Original Mix) [7:01]
-04. Atti Master & PUNK JUNGLE - Enter The Future (Extended Mix) [5:56](   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDFBB8ECAD59BAD8DB48E7ADF04C6FA5B7FB73AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621444   (1030955) от 25.03.2023
-
-VA - 50 DJ Tracks 2023 Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicco & Music For Humans - Love Locks (Original Mix) [2:58]
-02. Andrew Spencer - Love Me (ANSP Extended Mix) [3:50]
-03. Alex Megane - Friday I'm In Love (Extended Mix) [3:14]
-04. Brooklyn Bounce - Bass, Beats & Melody (Giovi Extended Remix) [4:10](   Читать дальше...   )Жанр: House, Dance, Club, ElectronicПродолжительность: 03:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C094F88E1E85C734773F94E703F34B90485E7E0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

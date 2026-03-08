@@ -1,3 +1,60 @@
+###  Публикация: 1469075   (1016776) от 10.05.2021
+
+Chrisland - Angela, Angel (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angela, Angel (12:05)
+02. Blue Is My Balloon (7:27)
+03. Mary Jane (5:12)Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064C168E76F640A513BBAF5DF2266570202CD9E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468818   (1016738) от 10.05.2021
+
+Paul Mauriat & His Orchestra, Duke Ellington & His Orchestra - Songs That Define a City; Paris, Volume 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Soul-Jazz, Big Band, Soul, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sous Le Ciel De Paris, Padam Padam (Medley Remastered) [00:02:47]
+02. La Vie En Rose (Remastered) [00:02:32]
+03. C'est Si Bon (Remastered) [00:01:47]
+04. I Love Paris, Paname (Medley Remastered) [00:03:17](   Читать дальше...   )Жанр: Soul-Jazz, Big Band, Soul, Easy ListeningПродолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7999405C20FA0475812FC5A84A7F42B8E418C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468783   (1016716) от 10.05.2021
 
 Paul Mauriat & His Orchestra - Paul Mauriat plays the Beatles & Mamy Blue (2014) Compilation, Remastered [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
@@ -688,64 +745,6 @@ St. Vincent - Daddy's Home (2021) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBCDC010D87F94244EA442430F9482F2FC33EE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471507   (1014961) от 21.05.2021
-
-Денис Клявер - Тебя удача найдёт (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014961.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тебя удача найдёт
-2. Брачный кортеж
-3. Ответ
-4. Кто, если не я(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:008FED3D73158897F934A8F4557187F2443A521B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471461   (1014803) от 22.05.2021
-
-VA - Hit Music (лето 2021) от Мяу (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014803.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker feat. Conor Maynard - Believers
-002. Jack Savoretti feat. Nile Rodgers - Who's Hurting Who
-003. DaBro - На Часах Ноль-Ноль
-004. BeatItPunk & SICKOTOY feat. Yoelle - Hollywood(   Читать дальше...   )Жанр: PopПродолжительность: 18:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DAE61F49A151435B88BF3F7A12C6971C63A414C
 ```
 
 https://mybot314.ru/tekegram_catalog/

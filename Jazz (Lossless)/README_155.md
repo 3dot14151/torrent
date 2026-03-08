@@ -1,3 +1,32 @@
+###  Публикация: 926338   (535590) от 09.08.2015
+
+Ambient Jazz Ensemble - Suite Shop (2014) [FLAC|tracks|WEB-DL]<Jazz, Nu Jazz, Broken Beat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes Wide Open (04:40)
+02. Jazz Face (04:14)
+03. Cinematize (04:03)
+04. The Journey (05:02)(   Читать дальше...   )Производство: Here & Now RecordingsЖанр: Jazz, Nu Jazz, Broken BeatПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9008304E25338B6E87CD372CC4EA0890E0F953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926297   (535588) от 09.08.2015
 
 The Braxton Brothers - Steppin' Out (1998) [FLAC|image+.cue]<Smooth Jazz>
@@ -716,35 +745,6 @@ Carlos Vega - Bird's Up (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22D7D3EE05C06B498700F047173544E52443210D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312444   (532790) от 04.07.2019
-
-John Graas - Four Classic Albums (1956 - 1958) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532790.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lady Like [2:49]
-02. Egypt [2:41]
-03. Argyles [2:50](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream JazzПродолжительность: 02:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20325518B5518F5944D76943C522148929B1CA59
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 540332   (503799) от 29.08.2012
+
+VA - Ночная хитовая дискотека (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sola - По Ночному Городу (Original Mix)
+ 02. Полина Гриффис - Ain't Givin' Up
+ 03. T - Killah feat. Виктория Дайнеко - Mirror Mirror (DJ Marie Remix)
+ 04. Барби - Когда ты рядом
+ 05. Дискотека Авария и Кристина Орбакайте - Прогноз погоды
+ 06. Никита - Найди Меня
+ 07. Женя Вилль - Я Хочу Всегда (Natasha Beginner Remix)
+ 08. Анна Герцен - Very Good
+ 09. Inna - Crazy Sexy Wild (Acoustic Radio Version)
+ 10. Стас Шуринс - Будь Собой (Версия 2012)(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF4F66AA7359D1204C60AAD2B7E60636A6B1979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541169   (502573) от 30.08.2012
 
 VA - Молодежный хит осенний. Top 100 (2012) [MP3|256 кб/с]<Pop>
@@ -796,35 +831,6 @@ VA - Dance Вечеринка Non-Stop. Зарубежный (2012) [MP3|256 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB7370A8C8F39B6BF9E53ABF72477453E1A8ED11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053564   (495647) от 18.09.2016
-
-VA - Russian Dance (2016) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время И Стекло - Навернопотомучто (Dj Miracle Radio Remix) 2:38
-02. Валерий Сюткин - 7000 тысяч над землёй (Vitaly Klime Remix)(Radio Ver ) 3:01
-03. Artik & Asti - Я Твоя (Kolya Dark & Mickey Martini Radio Edit) 3:05
-04. Мари Краймбрери - Пьяную (Dj Alex Shik Remix) 3:27(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B932D39A9C93370DBC90E581A69C2DF0842CD3B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1283403   (739672) от 17.02.2019
+
+VA - Record Super Chart 574 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Calvin Harris & Rag'n'Bone Man - Giant
+02.  Marnik & Smack - Gam Gam
+03.  Boostereo - Dirty Dancing
+04.  Hugel & Amber Van Day - Wtf(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AA89FADCC37B6AEE023ED6BB0BDB9B92C1391E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283473   (739662) от 17.02.2019
 
 VA - Soulful Deep House (2019) [MP3|320 Kbps] <Deep House, Electro>
@@ -716,35 +745,6 @@ VA - Prismenraum: Synthpop Music Compilation (2022) [MP3|320 Kbps] <Synthpop, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7F12876CE5000E66248587EED254EFA845E9582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527493   (736403) от 29.01.2022
-
-VA - New Electronic World: Neon Megamix (2022) [MP3|320 Kbps] <Synthwave, Electronic, Synthspace>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка сборника "New Electronic World" полна ослепительных и захватывающих мелодий из эпических приключений и духа фантастического мира синематографа, смешанного со звуковыми эффектами трейлера в современном гибридном стиле. Если Вам нравиться музыка из фильмов со сценами героизма и духом приключений, эта подборка для Вас.001. Dimi Mechero - The Balconist
-002. Reinhard Vanbergen - Rythm Ace Band
-003. Benjamin B. - Repeat After Me
-004. Robert Babicz - Gatekeeper(   Читать дальше...   )Жанр: Synthwave, Electronic, SynthspaceПродолжительность: 12:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9A6D2BE9FC14C25002983FF24D42F8103F33E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

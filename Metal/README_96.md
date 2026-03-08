@@ -1,32 +1,3 @@
-###  Публикация: 1583868   (226944) от 17.10.2022
-
-Octane - 2 Albums (2020-2021) [MP3|320 Kbps] <Sludge Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fifteen Days [00:03:29]
-02. Starfuckers [00:03:47]
-03. Madness [00:04:02]
-04. Another Scar [00:03:23](   Читать дальше...   )Жанр: Sludge Stoner MetalПродолжительность: 2 CD, 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E301DA732B748F492D2723A857863305024090F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584121   (226934) от 17.10.2022
 
 Catapult The Sun - 2 EP (2020-2022) [MP3|320 Kbps] <Sludge, Doom, Drone>
@@ -744,6 +715,35 @@ Ultimate Holocaust - Blackmail The Nation (2015) [MP3|320 кб/с] <Thrash Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81C28E912E93DC49CC6069FFF58841C85852AA4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584350   (224398) от 19.10.2022
+
+Feskarn - 3 Albums (2014-2022) [MP3|320 Kbps] <Viking Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raise Your Swords (Remastered) [00:04:36]
+02. Good Versus Bad (Remastered) [00:03:15]
+03. The World of the Sorcerer (Remastered) [00:03:44]
+04. The Warriors Return (Remastered) [00:03:46](   Читать дальше...   )Жанр: Viking Folk MetalПродолжительность: 3 CD, 02:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC03714F1ED48E7ADBA04121CBFEFC39FABC9AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

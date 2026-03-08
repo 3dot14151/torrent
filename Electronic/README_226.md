@@ -1,3 +1,61 @@
+###  Публикация: 1144101   (631642) от 20.06.2017
+
+VA - Chill Sounds of Beauty (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zadar - Along the Coast
+02. Baghira - Motion Detection
+03. Arrojas - Wide Open Spaces
+04. Kusuma Orchestra - Aurora(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0073179A5B77A3DCBA469B0B8026C143805224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144022   (631641) от 20.06.2017
+
+The Echelon Effect - Signals (2017) [MP3|320 Kbps] <Ambient, Drone, Post-Rock>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye Sierra (2:40)
+02. End Transmission (6:25)
+03. Signals (5:44)
+04. Outbound (2:34)(   Читать дальше...   )Жанр: Ambient, Drone, Post-RockПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570985896303832ABD8AC54873B68A4A43D3A59D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228842   (631498) от 03.06.2018
 
 Tawbaq - Discography 21 Releases (2012-2017) Hypnotic Landscapes [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Ambient>
@@ -686,64 +744,6 @@ Flava D - Fabriclive 88 (2016) [FLAC|Lossless|tracks] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:490E0E0336B4C4A98F9086F76820170AEF0FD90E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035469   (628608) от 16.07.2016
-
-VA - Mollono.Bass Remix Collection 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dole And Kom - Silence (Mollono.Bass remix)
-02. Jan Ploetzlich - Go Away (Mollono.Bass remix)
-03. Dolph - Free From Troughts (Mollono.Bass remix)
-04. Noetics - Rotterdub (Mollono.Bass & Seth Schwarz remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36DB71601C3BA49EF7128DE0A793A8D9295B377F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294511   (628489) от 08.04.2019
-
-VA - Project STS-31 - Spiralgalaxie (Hubble Telescope Series Vol. III) (2016) Solar One Music [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project STS-31 - Spiralgalaxie (03:06)
-02. The Exaltics - NGC 253 (05:20)
-03. Heinrich Mueller - Adaptive Optics (04:49)
-04. Robert Heise - Stars, Gases And Dust (03:30)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831E8D195F4397B28F20E075F90E9F6C88F65581
 ```
 
 https://mybot314.ru/tekegram_catalog/

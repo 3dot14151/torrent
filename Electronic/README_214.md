@@ -1,3 +1,61 @@
+###  Публикация: 1140589   (654939) от 07.06.2017
+
+VA - Foreplay Love Lounge: Sensual Chill out Beats for Erotic Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bilitis - Air - Love 2 Lounge Mix
+02. Soul Guru - Addicted to Tantric Sex - Sensual Love Mix
+03. Rainman - Hammock Dreams - Extended Mix
+04. Melounge - Gimme Love - Indian Beach Lounge Island Cafe Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2F3D863600E675B7D97C8E6DE577FB32EF0789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140743   (654933) от 07.06.2017
+
+VA - Deep House Nation Vol.2 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grooveyard – Seven Mile – F. Dancers Radio Remix
+02. Tony D – Fluid Love – Original Mix
+03. Adriano Gargiulo – Stillness – Club Mix
+04. Alfredam – The Sun – Steve Troiani Pool Party Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43754D487ED88206BC71C61EA9A441A71AE5A974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140687   (654925) от 07.06.2017
 
 VA - Deep House Nation, Vol. 1 (2017) [MP3|320 Kbps] <Deep House>
@@ -684,64 +742,6 @@ VA - Tech House Date (2018) [MP3|320 Kbps] <Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F49CB7E60113F73A9FA248E8917CAFEE98C2E885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226761   (653864) от 22.05.2018
-
-Steve Angello - HUMAN (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Midtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rejoice (feat. T.D. Jakes) (07:35)
-02. Breaking Kind (feat. Paul Meany) (03:21)
-03. Flashing Lights (feat. Highly Sedated) (03:34)
-04. Glory (03:35)(   Читать дальше...   )Жанр: Electronic, House, MidtempoПродолжительность: 01:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C182E49F3A491268DE332259EF16DB1324B8BF94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226671   (653781) от 22.05.2018
-
-VA - A State Of Trance Top 20 - May (Selected By Armin van Buuren) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren -Armin Van Buuren - Therapy (feat James Newman - extended Club mix)
-02. Gareth Emery -Long Way Home (Ashley Wallbridge Extended Remix)
-03. Above & Beyond  & Justine Suissa -Cold Feet (Extended Mix)
-04. ALPHA 9 & Spencer Brown -No Going Back (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417E6698E0FCE93BCDAB4AC7DEAE567AE9171268
 ```
 
 https://mybot314.ru/tekegram_catalog/

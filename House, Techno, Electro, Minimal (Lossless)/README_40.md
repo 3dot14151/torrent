@@ -1,3 +1,96 @@
+###  Публикация: 1314747   (513887) от 19.07.2019
+
+Sonny Fodera - Rise (2019) [FLAC|Lossless|tracks] <Electronic, House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Moment (feat. Lilly Ahlberg)
+02. Scratch My Back (feat. Biscits)
+03. Give Me a Reason (feat. Janai)
+04. Been a Long Time (feat. Kideko & Alex Mills)(   Читать дальше...   )Жанр: Electronic, House, Tech HouseПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290CFD8672F7CAC6ABD3B1634581667FE50B1C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932113   (509989) от 28.08.2015
+
+Moonbeam - Atom (2015) [FLAC|Lossless|WEB-DL]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonbeam - Atom (Original Mix) (7:06)
+02. Moonbeam ft. Irina Makosh - Still Believe (Original Mix) (7:50)
+03. Moonbeam ft. Aelyn - Shades Of Black (Original Mix) (7:07)
+04. Moonbeam ft. Avis Vox - 13th World (Original Mix) (5:45)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F106F2EDDA8433DCA7E065DF604417A25F860A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538421   (509485) от 23.08.2012
+
+МС Вспышкинъ & Никифоровна - Sex (2004) [FLAC|Lossless]<Trance, Euro-House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мегапроект «МС Вспышкин & Никифоровна» стал настоящей бомбой 2003 года, а хит «Колбасный Цех» («Шишки») танцевальным гимном питерской молодежи. После этого артисты стали широко известны за пределами Санкт-Петербурга, благодаря ряду хитов из альбомов «Секс» и «Шишки». Никифоровна (Дмитрий Чеков) разбился на мотоцикле 22 августа 2011, Диджей МС Вспышкин (Владимир Турков) умер от инфаркта в Петербурге через 3 месяца (14 ноября 2011).01. Sex :: 04:23
+02. Колбасный Цех 3 (Шишки) :: 04:29
+03. Колбасный Цех 2 :: 04:19
+04. Дискотэка :: 03:18
+05. Хорошо :: 03:34
+06. Новогодняя (Меня Прёт) :: 05:07
+07. МС Вспышкинъ & DJ Aligator - Davai, Davai :: 05:22
+08. МС Вспышкинъ & Slim Line - I'm Back (Вспышка 2003) :: 03:49
+09. КПП :: 04:56
+10. Бессоница :: 05:22(   Читать дальше...   )Жанр: Trance, Euro-HouseФормат: CD, Album, EnhancedПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932182   (509089) от 29.08.2015
 
 VA - 538 Dance Smash 2015 Vol.3 (2015) [FLAC|Lossless]<House, Electro, Dance>
@@ -658,92 +751,6 @@ Jude Frankum - Yther (2019) BLCR Laboratories [FLAC|Lossless|WEB-DL|tracks] <Lef
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D22A8C995A63BE21DD105F5D1443130EF1F7376C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566155   (486403) от 27.07.2022
-
-VA - Uncles Music "Bestseller 003" (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House, Indie Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Indie Elephant -  Retro Heaven Forest  (6:26)
-02.  2JOHN'S, SevenEver -  Stop & Stay  (6:12)
-03.  magic.made.by.r -  Absurdum  (6:59)
-04.  Redspace, GarryG -  Funny Rave  (6:46)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep House, Indie DanceПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65188775F66C424EAAE65480DD59E7019789E40E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243941   (486181) от 30.08.2018
-
-VA - Timeless Moment, Vol. 01 (Mixed and Compiled by Morttagua) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy Gerber & Dixon - No Distance (Original Mix) (7:56)
-02. Glenn Morrison & Dave Ohms - Outer Limits (Original Mix) (6:56)
-03. Sonic Future - Ondulante (Morttagua Hypnotic Mix) (8:21)
-04. Melody Stranger & Lunar Plane & Paradoks - Storm (Original Mix) (6:51)(   Читать дальше...   )Жанр: House, Progressive House, Tech HouseПродолжительность: 02:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4070FCC980FC8B428BA414746CE89B4E4D1601E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405392   (485703) от 29.08.2020
-
-Malik Djoudi - Remixes (2020) EP [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tempérament (Myd Remix) (4:08)
- 02. Essentiel (Chloé Remix) (6:51)
- 03. Sous garantie (En duo avec Etienne Daho)Жанр: EDM, Electro House, Deep HouseПродолжительность: 00:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF9983AA92BB17E90EBDD4D2FD49B8B414A4E16
 ```
 
 https://mybot314.ru/tekegram_catalog/

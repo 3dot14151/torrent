@@ -1,3 +1,61 @@
+###  Публикация: 1390465   (241336) от 16.04.2022
+
+VA - Electrozombies Records • Compilations Collection - 14 Releases (2016-2022) [MP3|320 Kbps] <EBM, Darkwave, Synthpop, Futurepop, Synth Wave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241336.jpg" />
+</div>
+
+
+###  Подробнее
+
+2016 - Apop We Love You (A Tribute to Apoptygma Berzerk)
+2016 - Prism (A Tribute to Pet Shop Boys)
+2017 - Ultra > Angel (A Tribute to Depeche Mode)
+2017 - Universe > Spirit (A Tribute to Depeche Mode)(   Читать дальше...   )Жанр: EBM, Darkwave, Synthpop, Futurepop, Synth WaveПродолжительность: 17:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:005AA25A4222CD7994F9A9EB9AF73D37953E5B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618740   (241334) от 12.03.2023
+
+Toxxic Project - Secrets of Planet Helios (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Formalhaut [00:04:43]
+02. Sentinels [00:04:25]
+03. Crystal Sands [00:05:22]
+04. S.S. Helios [00:03:52](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA45BB413DED9B7F471F8309F84FDD25856852C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618623   (241321) от 12.03.2023
 
 VA - Extreme Sports Music Vol 5 (2020) [MP3|320 Kbps] <Electro House>
@@ -687,64 +745,6 @@ VA - Artist Showcase 2020/21 (2020) Point Source Electronic Arts [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55EC12F4883F8FB145F28745A96DF897B56160D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465292   (240334) от 25.04.2021
-
-Locust Toybox - When We Implode (2021) [FLAC|Lossless|WEB-DL|tracks] <Leftfield, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absorb (08:05)
- 02. Tardigrade (06:21)
- 03. Gopher Dance (13:52)
- 04. I Can't See (08:26)(   Читать дальше...   )Жанр: Leftfield, IDM, AmbientПродолжительность: 02:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA279314718E6F0C5157416DCE47558D1E9BBA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626833   (240291) от 16.04.2023
-
-VA - Chill & Dance Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase - Tremble (6:23)
-02. Alessio Cappelli - I Have Been Before (6:26)
-03. Andrey Keyton - I Want Your Soul (5:58)
-04. Anton Ishutin - Always (5:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D0E5C6560DB99F9854241F3C5221C13C4C475E
 ```
 
 https://mybot314.ru/tekegram_catalog/

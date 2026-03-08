@@ -1,3 +1,58 @@
+###  Публикация: 1584415   (205109) от 18.10.2022
+
+Zero To Mastery Academy (ZTM), Daniel Bourke | PyTorch for Deep Learning (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_205109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn PyTorch from scratch! This PyTorch course is your step-by-step guide to developing your own deep learning models using PyTorch. You'll learn Deep Learning with PyTorch by building a massive 3-part real-world milestone project. By the end, you'll have the skills and portfolio to get hired as a Deep Learning Engineer.
+Learn PyTorch. Become a Deep Learning Engineer. (   Читать дальше...   )Производство: Zero To Mastery Academy (ZTM)Жанр: CourseЯзык озвучки: EnglishПродолжительность: 49:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D12CEFDAE34EA79162B9012763E0B0CEE59C431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585595   (204927) от 22.10.2022
+
+O’Reilly, Valaxy Technologies | DevOps Complete Course (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master how to create DevOps CI/CD pipelines using Git, Jenkins, Ansible, Docker, SonarQube, and Kubernetes on AWS. Work on real-world projects to understand the steps and tools involved in the DevOps lifecycle.
+About This VideoComprehensive and hands-on course on creating DevOps CI/CD pipelines with lab exercises
+Deep dive into the architecture view for each AWS (   Читать дальше...   )Производство: O’Reilly, Valaxy TechnologiesЖанр: CourseЯзык озвучки: EnglishПродолжительность: 58:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C37122F281E64030D6A13C68278683624268A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586289   (204764) от 26.10.2022
 
 Adrian Cantrill | AWS Certified Solutions Architect - Professional (2022) WEB-DL [EN]
@@ -652,63 +707,6 @@ Podlodka Crew | Java Crew #1 (2022) WEB-DL [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BF7F4A59FE5DC7D43BFD4B4187508CDD03446C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615127   (202302) от 24.02.2023
-
-ZTM Academy, Luis Ramirez Jr | Unity Bootcamp: 3D Game Development (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучайте Unity. Получить работу. Это единственный курс Unity, который вам нужен, чтобы пройти путь от полного новичка (без опыта программирования) до написания собственных 3D-игр и получить работу в качестве разработчика игр в этом году!
-
-Обучение созданию собственной 3D-видеоигры не должно даже напоминать обучение... это должно быть весело! Это именно то, что вы (   Читать дальше...   )Производство: ZTM AcademyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 26:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE5FFCEF3F80EC58F6416BB6B3923E444E2E46C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615027   (202289) от 24.02.2023
-
-Олег Молчанов | Асинхронный Python и Asyncio (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202289.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Введение - небольшое повторение основных понятий
-2. Объекты корутин и асинхронные функции - тоже можно считать повторением
-3. Задачи (asyncio.Task), их создание, отмена, функции wait_for() и shield()
-4. Что делает await и run()(   Читать дальше...   )Жанр: Программирование, PythonЯзык озвучки: РусскийПродолжительность: 03:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BCAEE46B23031DE61C0153326BCEB305D2CD16
 ```
 
 https://mybot314.ru/tekegram_catalog/

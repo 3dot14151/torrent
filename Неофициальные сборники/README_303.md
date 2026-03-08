@@ -1,3 +1,195 @@
+###  Публикация: 907389   (639735) от 11.06.2015
+
+VA - Душа Шансона. Только лучшее (2015) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алексей Плотников - Неверные.
+ 02. Виталий Сухов - Предчувствие любви
+ 03. Сергей Дубровин - Меж зимой и летом
+ 04. Владимир Курский - Побег-2(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C26AAF89C28E275B1E5732B1498D293D34F426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518967   (639601) от 05.07.2012
+
+VA - Trance Maniacs Party - Trancefer Wave #104 (2012) [MP3|320 кб/с]<Trance, uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639601.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hydrogenio - 777 (Ben Gold Remix)
+002. Marcus Maison & Will Dragen - Another Dimension (Original)
+003. Lunar Motion - Aozora (Original Mix)
+004. MilamDo & Iris - Behind The Curtains (Steve Haines Remix)
+005. Koele Vaten - Boom (Michael Paterson & Warner Powers Remix)
+006. Michael Jay Parker - Canberra
+007. Juventa - City On Clouds (Original Mix)
+008. Maguire - Face Yesterday (Original Mix)
+009. John Askew - Fade To Black (Sean Tyas Remix)
+010. Mat Zo - Frequency Flyer (Original Mix)(   Читать дальше...   )Жанр: Trance, uplifting TranceПродолжительность: 03:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430FBC4F08312CFC1BD085588A2F333875F4E26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518702   (639600) от 05.07.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #89 (2012) [MP3|320 кб/с]<Trance , Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) [07:39]
+ 02. Nic Chagall & Duderstadt feat. Relyk - Alone With You [07:42]
+ 03. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit) [03:45]
+ 04. Paki & Jaro feat. Casey Barnes - Because Of You (Original Mix) [03:54]
+ 05. Snatt & Vix feat. Alexandra Badoi - Cold Shower (Original Club Mix) [07:20]
+ 06. Simon Patterson & Greg Downey feat. Bo Bruce - Come To Me [07:15]
+ 07. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix) [04:25]
+ 08. Tate & Diamond feat. Nicolai - Electrified (Mat Zo remix) [07:12]
+ 09. Polina Griffith & Miami Kidz - Feeling This Way (Extended Mix) [06:22]
+ 10. Solid Stone feat. Hanna Finsen - Helpless (Original Mix) [06:14](   Читать дальше...   )Жанр: Trance , Vocal TranceПродолжительность: 03:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54021713CC8DDD8A28CD96C955D8DE040B231CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519024   (639510) от 05.07.2012
+
+VA - Kiss FM - Dance 10 (04.07.2012) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Punks & Andee - It's All In Your Head (Classic House Edit)
+ 02. MATT.V - You So Close (Anna Lee Rmx)
+ 03. SOU5 - Like Angels (Buy One Get One Free Rmx)
+ 04. LOBODA - Облака (Ivan Demsoff & Burzhuy Rmx)
+ 05. MaSha GoYa - Fantastic
+ 06. Sender - Love
+ 07. Nianaro - Change Everything
+ 08. Dima Krasnik - Corsair (Original Mix)
+ 09. Arty & Mat Zo - Rebound (Omnia Rmx)
+ 10. Эдуард Романюта - ConspiracyЖанр: DanceПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A75D2DC2DFD402E94BF2CD632454B30B5E2AFFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142873   (639457) от 16.06.2017
+
+VA - Fusion Beach Club: Summer Opening Party (2017) [MP3|320 Kbps] <Club, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639457.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eric Saade vs Blondie - L'amour every weekend
+002. Flashtronica - I Cant Stop (DJ Shevtsov Remix)
+003. Babert - Party Time
+004. Following Light - Intention (Michael A Remix)(   Читать дальше...   )Жанр: Club, Electro HouseПродолжительность: 09:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E86A9E1DC4AEA4B392C2781872CDA33D4A63D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228111   (639402) от 30.05.2018
+
+VA - Bassline In My Brain (2018) [MP3|320 Kbps] <Drum And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vital - Heavyweight Sound
+02. Hestia - Baby (Original Mix)
+03. Axedent - Ghost Head
+04. Cubiqle - Aperature (Original Mix)(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 06:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65D01C1DEACEBFA7EAC956C7FC1C7600F3AECA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228109   (639395) от 30.05.2018
 
 VA - Best Of Vocal And Uplifting Trance (2018) [MP3|320 Kbps] <Vocal, Uplifting Trance>
@@ -589,180 +781,6 @@ VA - Club Dance Ambience Vol.77 (2016) [MP3|320 Kbps] <House, Electro House, Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E24FC112AABF245595176F0A83D94CBB04D713A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907627   (638205) от 12.06.2015
-
-VA - Singapore Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long J. - Metal Life [03:49]
-02. Long J. - African Night [05:11]
-03. Mangaroka - Roundrop [03:58]
-04. Marlon - Airy Dawn [04:59](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3063A0330F2C8A2F42A18CFD8863A809228C4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033501   (638158) от 11.07.2016
-
-VA - Peaceful Sounds for Deep Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Waugh - Inner Peace
-02. Michael Keck - Restful Chimes Breeze
-03. Bobby Cole - The Sound of a Chinese Waterfall
-04. Jim Chappell - Seahorses(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 02:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F00A885A1E2E2D02DD96131864F6B8A07DFE372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033579   (638132) от 11.07.2016
-
-VA - Singing in the Car Fresh Hits Acoustic Covers Folk Afternoon Acoustic (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Space - Can't Stop the Feeling
-02. Beat four - Hello
-03. Lan Sub - Cake by the Ocean
-04. Subtube - Cheap Thrills(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441CFC760C71907C0BE3461D19352C4D0EAEF075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033468   (638130) от 11.07.2016
-
-VA - Hits 3 Summer (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638130.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-Пpодолжительность: 01:17:04
-
-01. Justin Bieber - Love Yourself(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA7DDE7C07B99CEF43AC28CF5AEC364A26B57D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033641   (638048) от 11.07.2016
-
-VA - Yoga Cafe: Finest Buddha and Relaxation World Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jessie goes to Bali - Soul Shine - Ibiza Chillout Cafe Mix
-02. Time Blazer - Morning Chant - Counting the Stars Mix
-03. Capital Sound - Empire of Sunlight - Take Back the Night Edit
-04. Ambient and the World Outside - Inside Nobodys Soul - Holy Grail Edit(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01906CF8C0D6DCAD2064653D2522EA64367D0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033606   (638024) от 11.07.2016
-
-VA - Русский хит. Летний выпуск №3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638024.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Инфинити - Алло
-002. Виталий Верт - Ты Теперь Свободна
-003. Mseven - Танцуй В Темноте
-004. Потап & Настя - Ветра Холода(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2B69852DBA0C37FC265DCA66D4A33224830583
 ```
 
 https://mybot314.ru/tekegram_catalog/

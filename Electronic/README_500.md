@@ -1,3 +1,61 @@
+###  Публикация: 1776587   (71242) от 01.02.2025
+
+VA - Best Of EDM Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Chiki Chiki [02:40]
+02. JLUIS - Red Light [02:30]
+03. Deep Emotion - Don't Cry [02:50]
+04. Dani Corbalan - My Head Is Gone [02:14](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9E5F9D05FBD4ABAC18AF17F3F95D132AD63849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776556   (71235) от 01.02.2025
+
+Lane 8 & Sultan + Shepard - Live @ Field Stage, Proper NYD (2025-01-01) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. Lane 8 & Le Youth ft. Jyll - I Will Leave A Light On
+03. Sultan + Shepard - Neptune
+04. Sultan + Shepard & Lane 8 - The Little Mushroom That Got Away(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F74DDC6265C7634A5F6C3CE29842D2E6D4CEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776495   (71232) от 01.02.2025
 
 Donna Regina - Lazing Away (1992) Remastered, 2025, Karaoke Kalk [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Synth-pop>
@@ -685,64 +743,6 @@ Ilan Bluestone - Anthem Test (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7DA88631E507A14D77A61D6289980099312D5BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779258   (70722) от 12.02.2025
-
-VA - Ibiza 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jayanth Ak - In My Mind (Original Mix) (02:10)
-02. KMÖBA - Footprints (Radio Edit) (03:00)
-03. Anka - I Wanna Stay (Original Mix) (02:45)
-04. FaraoN - Love of My Life (Original Mix) (04:20)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C958E2663FA5162A731A6A5BA9F60D762A9ADDD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779291   (70719) от 12.02.2025
-
-VA - Beast Mode Activated in the Gym (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pardison Fontaine - Backin’ It Up (feat. Cardi B) (3:10)
-02. Charli XCX - 360 (2:13)
-03. Benson Boone - Cry (3:06)
-04. The Academy Segunda Misión - LA RANGER (feat. Myke Towers) (3:49)(   Читать дальше...   )Жанр: Rap, House, DanceПродолжительность: 01:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F5CBC95F90B8312A742C1886712B12D65CB577
 ```
 
 https://mybot314.ru/tekegram_catalog/

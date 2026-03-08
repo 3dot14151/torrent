@@ -1,3 +1,61 @@
+###  Публикация: 1738460   (49173) от 22.07.2024
+
+VA - ZYX Italo Disco Dub Versions (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Paul - Good Version (Instrumental) 05:06
+02. Ken Laszlo - Tonight (Instrumental) 05:41
+03. Swan - Don't Talk About It (Instrumental) 06:11
+04. Felli - Diamond In The Night (Instrumental) 05:24(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1159B2C786C615F7539EEC01CD7A1AC542997587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738616   (49085) от 23.07.2024
+
+VA - La Bola De Discoteca (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lipps Inc. - Funkytown (Single Version) (3:55)
+02. ABBA - Dancing Queen (3:52)
+03. Donna Summer - Bad Girls (Gigamesh Remix) (5:20)
+04. Jessie Ware - Pearls (4:04)(   Читать дальше...   )Жанр: PopПродолжительность: 04:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4981FDF40C5E7FF61CAD45873E6D6F788EC91B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738854   (48875) от 25.07.2024
 
 VA - Mega Hits Sommer 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -687,64 +745,6 @@ L'Imperatrice - Pulsar (2024) [FLAC|Lossless|WEB-DL|tracks] <French-Disco, Indie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93E66AC27C2783A322845BBDD81917820464F7A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743776   (46389) от 18.08.2024
-
-Toto Cutugno - Greatest Hits (2006) [WavPack|Lossless|image + .cue] <Pop, Stage>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Italiano
- 02. Soli
- 03. Voglio L'Anima
- 04. Donna Donna Mia(   Читать дальше...   )Жанр: Pop, StageПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80255C41C934256AEF9B6F7A52EAE1ABA522A803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744092   (46300) от 19.08.2024
-
-Лада Дэнс - Ночной альбом (1993) Reissue, 2024, Maschina Records [FLAC|Lossless|image + .cue] <Pop, Electronic>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пойду С Тобой
-02. Ночные Танцы
-03. Мы Друзьями Не Станем (1)
-04. Девочка-Ночь(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5355A62B1A217FB4476D11FC8E6BC53F722D864B
 ```
 
 https://mybot314.ru/tekegram_catalog/

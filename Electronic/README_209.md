@@ -1,3 +1,61 @@
+###  Публикация: 1138396   (664388) от 29.05.2017
+
+VA - Sexy & Chill Feelings (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pindaric Spleen - Reciprocal Inhibition 5:32
+02.  Sombra Modos - Botavara 5:34
+03.  Lamar Ensemble - Inspirational Shortcut 5:48
+04.  Rey Salinero - Recuerdos 5:59(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF67C045AF98479890E502091C50F20711973157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138377   (664387) от 29.05.2017
+
+VA - Best Of Progressive House Vol.04 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shingo Nakamura - Always (Blood Groove & Kikis remix) (05:02)
+02. Sam Davies - Sunbound (Universal Solution remix) (07:32)
+03. Gregory Esayan - Taxi (Approaching Black remix) (07:24)
+04. Eleven Five - Arcanum (original mix) (08:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3C037B72F6899A39D2BD51055AB41B2DDBB6C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538229   (664337) от 19.03.2022
 
 VA - Hardstyle Force 2022 (Join The Rebellion) [MP3|320 Kbps] <Hard Dance, Techno, Hardcore>
@@ -687,64 +745,6 @@ VA - Enormous Tunes - Ibiza Nights 2017  [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D306E2BCF24834014CED0008C405AEBFC2414C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139035   (661290) от 01.06.2017
-
-VA - Endless Music (Mixed & Compiled by Paul Lomax) Vol. 1,2 (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Oceanvs Orientalis - Revenge of the Wankers [09:05]
-02 Matt Correa - Euphony (feat. Alexey) [06:46]
-03 Mika Olson - What I Need (feat. Jermaine Fleur) [07:35]
-04 PopArt - Florescent Love (Miguel Campbell Remix) [05:43](   Читать дальше...   )Жанр: Deep House, Chill House |Продолжительность: 02:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7EA59B8BFD52B8F55D6E1F3C3651364DF88EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538853   (661284) от 22.03.2022
-
-VA - Spring Chill Mirage: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Hiska – Message In The Bottle (04:11)
-02. Michael E – Lost In Thought (original mix) (05:18)
-03. Matej Blanusa – Beginning (Medani Pieck) (03:58)
-04. Beamy – Sea Breeze (04:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF225E7FCA3286BBB24FBB805596720D13F1D8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

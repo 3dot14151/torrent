@@ -1,3 +1,32 @@
+###  Публикация: 1690433   (123919) от 07.01.2024
+
+Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeepers Creepers [2:49]
+02. Heatwave [3:02]
+03. Harlem on My Mind [3:29]
+04. Y' Had It Comin' to You [2:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B29F6E8D2952094EF33B11EE29195910DE14478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690529   (123910) от 07.01.2024
 
 The Jazz Kings - Blue Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
@@ -716,35 +745,6 @@ Ruby Braff - And His New England Songhounds, Vol. 2 (1992) Concord Jazz [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D85528FCA7C53C248D88A3E94AC04C1EA9EDD8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693273   (121860) от 20.01.2024
-
-Ella Fitzgerald - Three Classic Albums Plus (1960, 1961) 2CD, 2014, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Could Be The Start Of Something Big [2:33]
-02. I’ve Got The World On A String [3:46]
-03. You’re Driving Me Crazy [3:28]
-04. Just In Time [1:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2990ADB9E5933282840C429E2507C6F347C2C294
 ```
 
 https://mybot314.ru/tekegram_catalog/

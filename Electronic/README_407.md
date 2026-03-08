@@ -1,3 +1,61 @@
+###  Публикация: 1649332   (230699) от 27.07.2023
+
+VA - 15 Years Of Enhanced Music, Mixed by Tritonal (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blonde Maze & Attom - I Think About (Original Mix) [3:47]
+02. Faodail - Bloom (Original Mix) [4:43]
+03. PRAANA - Mojave (Extended Mix) [6:24]
+04. Sound Quelle - Deep Chicken (Extended Mix) [5:57](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 06:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7CD9067F824CF724CB4BB184618B1F421CB562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648937   (230693) от 25.07.2023
+
+VA - Keep It Trance Vol. 14 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alphed Le Cornett & Dropper Vampire - Closer To Heaven (Extended Mix) [5:45]
+02. Intra De Aeris - Breath Of The Universe (Extended Mix) [7:38]
+03. Heaven & Alone - Immersion (Extended Mix) [6:01]
+04. Daniel Kandi - Balance (Original Mix) [4:38](   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681E1921A757229C460DBCECB833ECC984350933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648677   (230689) от 24.07.2023
 
 VA - Maretimo Chill Radio - Best of, Vol. 2 - Positive Summer Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -687,64 +745,6 @@ Gym Workout DJ Team - Workout Mix 2020 New Year, New You [MP3|320 Kbps] <House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07CFF3F38AE2D90F2B2026B1EFED1792F6A50E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649503   (229146) от 28.07.2023
-
-Qulonium - Hexia (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HEXIA [00:03:47]
-02. Dark Matter [00:05:09]
-03. Cold [00:04:06]
-04. For The Last Time [00:04:01](   Читать дальше...   )Жанр: Dark Electro, EBM, IndustrialПродолжительность: 00:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC819C9A37E85947C1A91595CAAB5D073BB159E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649537   (229130) от 28.07.2023
-
-VA - Armin van Buuren - A State Of Trance 1131 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Ferry Corsten - Follow You (FLASHOVER)
-02.	Ferry Corsten - Voeman (FLASHOVER)
-03.	Ferry Corsten & Betsie Larkin - Not Coming Down (FLASHOVER)
-04.	Ferry Corsten & Ciaran McAuley - Mo Chara (FLASHOVER)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D65529CD48572141CCB33E53B7027A6E1CD7466
 ```
 
 https://mybot314.ru/tekegram_catalog/

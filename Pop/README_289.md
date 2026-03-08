@@ -1,3 +1,58 @@
+###  Публикация: 1590366   (187732) от 16.11.2022
+
+VA - Happy New Year 1995! (1994) Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Eurodance, Pop, Rock>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mo-Do - Eins, zwei, Polizei (03:16)
+02. Army of Lovers - Sexual Revolution (03:50)
+03. Marie Claire D'Ubaldo - The Rhythm Is Magic (04:03)
+04. DJ BoBo - Deep in the Jungle (03:53)(   Читать дальше...   )Жанр: Eurodance, Pop, RockПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EE31919B1CC2335E9BB4DA600530D5C7DA0D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590660   (187717) от 16.11.2022
+
+Savage - Greatest Hits and More (1990) 1995 Reissue, Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Ten Years AgoЖанр: Italo-DiscoПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3508247AE02810946B9C7A8187BF4826A3B4A21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662830   (187405) от 19.09.2023
 
 Linda Jo Rizzo - Passion (The Original Maxi-Singles Collection) (2023) Compilation, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco>
@@ -687,64 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D870BDA512A2A4E8AC61E9215383C73525451C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427091   (184212) от 27.11.2020
-
-VA - Pop Legends (All Time Pop Classics) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Spinning Around (03:26)
-02. All Saints - Never Ever (06:27)
-03. Duran Duran - Ordinary World (04:37)
-04. Tina Turner - What's Love Got to Do with It (2015 Remaster) (03:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E041D0982996B5721181C70F95D6DC7A41A2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664789   (183966) от 28.09.2023
-
-Fantasy - Das Beste (2023) Deluxe Edition [MP3|320 Kbps] <Dance Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_183966.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ein weisses Boot (2023)
-2. Darling (2023)
-3. Blinder Passagier (2023)
-4. Bonnie & Clyde (2023)(   Читать дальше...   )Жанр: Dance PopПродолжительность: 02:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77766E170DBF111AF561A73D789052E0AD65C2B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

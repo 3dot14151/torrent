@@ -1,3 +1,61 @@
+###  Публикация: 1017278   (761115) от 17.05.2016
+
+VA - Future EDM Essentials Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quantum Duxe - Sunwalker (Original Mix) 5:17
+02. Savant - Cassette (Notice Me Senpai Mix) 4:56
+03. Distrix - Violet Skies (Original Mix) 5:06
+04. Sasha Lemon - Sunshine (Original Mix) 4:38(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29AA87F15DC250AFDEB74776C57AB8552C7699CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280677   (760629) от 03.02.2019
+
+CИTROPY - CИTROPY (2018) Sun Sea Sky Productions [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solemn (2:03)
+02. Sundown (4:08)
+03. Sway (5:18)
+04. Styx (4:04)(   Читать дальше...   )Жанр: Downtempo, IDM, AmbientПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675E27D93EE99449597FB3CE0C9965AC0F89333B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280525   (760628) от 03.02.2019
 
 Fortunato & Montresor - Imagine (Original & Reissue) (1997 / 2003) Elektrolux, Bedrock Records [FLAC|Lossless|tracks+.cue, tracks] <Progressive House, Breaks, Deep House>
@@ -687,64 +745,6 @@ VA - Markus Schulz - Global DJ Broadcast (Miami Music Week Edition) (2018) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530E04E1B1B66566FB033D7BC8EC9D3776CC36F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215451   (758111) от 26.03.2018
-
-Luke Vibert - Arcadia (2018) De:tuned [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balath (03:14)
- 02. pHlacid (06:28)
- 03. Arcadia (06:28)
- 04. Worry Ledge (04:35)Жанр: Electro, Acid, TechnoПродолжительность: 00:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2259CCC457C4E31BEE5C12ACB58D48160CB1F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215593   (758108) от 26.03.2018
-
-VA - Ori Uplift & Baco - Uplifting Only 267 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grande Piano - Only Mine (Intro Mix)
-02. FAN FAVORITE: Dreamlife & Blue Moon - Last Farewell (George Crossfield Emotional Remix)
-03. Alex Wright - Mnemba
-04. Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64153098A3480FBE46F970F4C826D3E323C28B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

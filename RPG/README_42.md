@@ -1,3 +1,29 @@
+###  Публикация: 971360   (169905) от 10.12.2019
+
+The Legend of Heroes: Trails in the Sky: Second Chapter (2015) [En] (2019.12.08) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы любите jRPG, а ваш список игр, которые надо пройти, ещё не вылезает за поля, то у студии XSEED есть новости специально для вас: The Legend of Heroes: Trails in the Sky: Second Chapter - вторая глава практически культовой The Legend of Heroes: Trails in the Sky - наконец-то вышла на Западе. Не прошло и десяти лет с японского релиза! Можно с уверенностью утверждать, (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom и Paon CorporationЖанр: RPG (Japanese-style), 3D, IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC0AB0655B929EB23D6B67789BC48B6994AE619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672498   (168647) от 28.10.2023
 
 Sands of Aura (2023) [En] (1.0) Scene Rune
@@ -641,32 +667,6 @@ BLACKTAIL (2022) [Ru/Multi] (1.3) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F09E9089DD3EDC40F4AE0A7424537689574512A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194540   (154783) от 25.12.2017
-
-Sword of the Stars: The Pit (2013) [En] (1.6.2/dlc) License GOG [Osmium Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154783.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента выхода первой демоверсии осенью 2012 г. The Pit сразу стала инди-хитом, сочетая черты roguelike-боевика и глубину научной фантастики! Игрокам нужно было выжить на 30 уровнях бездны в роли одного из трех персонажей – морского пехотинца, инженера или разведчика. В The Pit: MindGames добавились два новых персонажа – псион и инопланетный тарканский рейнджер, (   Читать дальше...   )Тип издания: LicenseРазработчик: Kerberos ProductionsЖанр: Ролевая игра, Пошаговая, RoguelikeЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85929EEEF2F3CB7B10F7776B9EA06B3F3E1E0FD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

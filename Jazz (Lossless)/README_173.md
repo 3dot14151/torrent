@@ -1,3 +1,32 @@
+###  Публикация: 940102   (471630) от 23.09.2015
+
+Shelly Manne and His Men - Septet and Quintet Sessions 1951-1958 (2008) (3CDs) [FLAC|tracks+.cue]<Jazz, Bebop, West coast jazz, Third Stream, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moose The Mooche (7:28)
+02. Pint Of Blues (9:54)
+03. Quartet - Part I (3:17)
+04. Quartet - Part II (4:49)(   Читать дальше...   )Жанр: Jazz, Bebop, West Coast Jazz, Third Stream, FusionПродолжительность: 03:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4945F123815B18B97F4B00A2C80CD646E609AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939992   (471629) от 23.09.2015
 
 Wynton Kelly - Wynton Kelly! & Kelly Great (1960/1961) /2000, Collectables/[FLAC|tracks+.cue]<Hard Bop, Piano Jazz>
@@ -739,35 +768,6 @@ Chuck Loeb - Unspoken (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:962EE907BA4800CAADEA8CCB752F9A87B60340EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407128   (468610) от 06.09.2020
-
-Wynton Marsalis Septet - United We Swing: Best of the Jazz at Lincoln Center Galas (2018) Blue Engine Records [FLAC|Lossless|tracks + .cue] <Swing, Straight-Ahead Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Time (feat. Blind Boys of Alabama) [4:15]
-02. It Takes a Lot to Laugh, It Takes a Train to Cry (feat. Bob Dylan) [4:31]
-03. I'm Gonna Move to the Outskirts of Town (feat. Ray Charles) [3:47]
-04. I'm Not Rough (feat. Eric Clapton) [3:04](   Читать дальше...   )Жанр: Swing, Straight-Ahead Jazz, Vocal JazzПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A28970D0BF46AEB3FA9E5E6CEDD09D4073508C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

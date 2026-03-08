@@ -1,3 +1,90 @@
+###  Публикация: 932090   (510181) от 28.08.2015
+
+Motorhead - Bad Magic (2015) [FLAC|tracks|WEB-DL]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victory Or Die (3:08)
+02. Thunder & Lightning (3:06)
+03. Fire Storm Hotel (3:35)
+04. Shoot Out All Of Your Lights (3:15)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6235778977EDC1B113D812C2CBB45088C0292B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562538   (509292) от 09.07.2022
+
+Telekinetic Yeti - Abominable (2017) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Psychedelic, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Abominable (00:03:51)
+02 - Electronaut (00:05:24)
+03 - Stoned and Feathered (00:04:17)
+04 - Colossus (00:08:56)(   Читать дальше...   )Жанр: Doom Metal, Psychedelic, Stoner RockПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B8FD660FBFCBECA1D74B45D8448396252464FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562545   (509291) от 09.07.2022
+
+Wilt - Wilt (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black metal, Doom metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Veil (6:18)
+02. Cold Misfortune (6:52)
+03. Empyrean (11:10)
+04. Pale Consternation (5:27)Жанр: Atmospheric Black metal, Doom metalПродолжительность: 00:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F917178588C89FE677E47FF80C6E1C92B02916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562541   (509290) от 09.07.2022
 
 Telekinetic Yeti - Primordial (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Psychedelic, Stoner Rock>
@@ -676,93 +763,6 @@ Afterimage - II: Beyond Horizons Infinite (2022) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD771F3C7B7A9EF973EDF9110980746D7D068AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562829   (507234) от 11.07.2022
-
-Am Himmel - As Eternal As The Starless Kingdom Of Sorrow (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal, Black Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bleared By The Infinite Wings (00:06:56)
-02 - The Patience And Silence Of A Saint's Death (00:05:11)
-03 - The Virgin Wages Celestial War In The Seraphim Courts (00:07:22)
-04 - The Fumes Of Thy Preposterous Torment (00:06:30)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Black Doom MetalПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F956BF66AC6CE4E0415E550EDFF011AC8E2DB282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562745   (507228) от 11.07.2022
-
-Hailmary - Disturbing The Peace (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Keeper (3:41)
-02. The Way I Am (4:12)
-03. Media Lobotomy (3:09)
-04. Be My Suicide (3:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDEA761F77FD961CAC535F534BBE77CD281F8B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562739   (507134) от 11.07.2022
-
-Edguy - Mandrake (2001) AFM Records, 2022, Anniversary Edition, Remastered [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Speed Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears of a Mandrake (Remastered 2021) (7:14)
-02. Golden Dawn (Remastered 2021) (6:09)
-03. Jerusalem (Remastered 2021) (5:29)
-04. All the Clowns (Remastered 2021) (4:49)(   Читать дальше...   )Жанр: Power Metal, Speed Metal, Symphonic MetalПродолжительность: 01:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772AB42413BBDC9279D9FDC1569E4CE348B68490
 ```
 
 https://mybot314.ru/tekegram_catalog/

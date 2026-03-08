@@ -1,3 +1,61 @@
+###  Публикация: 1477127   (1009962) от 21.06.2021
+
+Зоя - Это жизнь (2021) [MP3|320 Kbps] <SKA, POP>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Яркая жизнь
+02 - Человечек
+03 - Права
+04 - Пикетчица(   Читать дальше...   )Жанр: SKA, POPПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A27D8EE56B3EEACDAF22617FC1A4E64014E967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479073   (1009857) от 22.06.2021
+
+Percy Faith - Columbia Singles Volume III 1959-1967 (2005) [FLAC|Lossless|image + .cue] <Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Theme From "Advise And Consent" 2:42
+02 Theme From "Lawrence Of Arabia" 2:35
+03 Kurt Weill's Melody From "Mahoganny" 2:38
+04 Love Me Now 2:26(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C975D6D2112222C3DC73673FBA9AC179542C7FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479410   (1009720) от 23.06.2021
 
 VA - Acoustic Pop 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -688,64 +746,6 @@ Fancy - Masquerade (Les Marionnettes) (2021) [MP3|320 Kbps] <Pop ,  Eurodisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A46426BFD03470E943912FC0BF240812F29666E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483907   (1006511) от 16.07.2021
-
-Группа VIP - New-York (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New-York (3:30)
- 02. Пассажирский поезд (4:11)
- 03. Я одна (4:04)
- 04. Не отпускай (3:46)(   Читать дальше...   )Жанр: EDM, PopПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030B124979F3DE7F7ABBAF245826313DCA9516C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483954   (1006482) от 16.07.2021
-
-VA - 100 Greatest TikTok Songs & Viral Hits (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006482.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fleetwood Mac - Dreams (2018 Remaster) (4:17)
-002. Bella Poarch - Build a Bitch (2:02)
-003. Russ Millions, Tion Wayne, E1 (3x3), ZT (3x3), Arrdee - Body (Remix) (4:38)
-004. Bruno Mars - Talking to the Moon (3:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70CDCC77AB8478B0BF41D5A00D1AAF2BD91D864
 ```
 
 https://mybot314.ru/tekegram_catalog/

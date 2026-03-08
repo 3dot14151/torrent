@@ -1,3 +1,59 @@
+###  Публикация: 1166095   (426918) от 16.09.2017
+
+Thomas Gandey - Lovemachine (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/02. Lovemachine (Original Mix) (7:54)
+ 02/02. Lovemachine (Re.you & Pleasurekraft Remix) (7:43)Жанр: Deep House, Tech HouseПродолжительность: 00:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246E7D4E488E3A6596BEC45D117BB308120C54E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166199   (426655) от 16.09.2017
+
+VA - Deep House Summer Essentials 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Midnight - Vampires (Vintage & Morelli remix) (07:00)
+02. Marsh & Marcelle Antunes - Summit (extended mix) (05:24)
+03. Eleven Five - Keep My Heart (Bonus Track) (05:54)
+04. LaMeduza & Stendahl - Different You (Approaching Black vocal remix) (04:59)(   Читать дальше...   )Жанр: Deep House, Tech House, Chill HouseПродолжительность: 01:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE237352081759B258DB09A3498BCD9946DCB08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 555854   (426213) от 05.10.2012
 
 VA - Best Of Bar Chill Out & Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut, Ambient>
@@ -690,64 +746,6 @@ A-Ha - Headlines And Deadlines: The Hits Of A-Ha - 2 (1992) [OGG Vorbis|485 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBD57BA9B8D8506B924390CBDDDDBD8F77A6FEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572356   (423511) от 26.08.2022
-
-Satin Jackets - Reunion (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For What We Have (4:02)
- 02. Move On (ft.Panama) (4:27)
- 03. First Thing (ft. Tailor) (4:00)
- 04. Coffee and Feels (4:08)(   Читать дальше...   )Жанр: Electronic, Indie Pop, House, Nu DiscoПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7F11A943CC859F8D9AD8B076A4D98F3EC1A419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572303   (423384) от 26.08.2022
-
-VA - A State Of Trance, Ibiza 2022 (Mixed by Armin van Buuren) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Maia Wright - One More Time (Mixed) (Worakls Remix) (3:03)
-02. This Culture - Your Love (Mixed) (2:24)
-03. Armin van Buuren & Shapov - Welcome Home (Mixed) (4:15)
-04. Vintage Culture & Three Drives - Greece 2000 (Mixed) (2:51)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C420B4BF2A7943A756966BEC7C1612EDC7F806
 ```
 
 https://mybot314.ru/tekegram_catalog/

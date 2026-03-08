@@ -1,38 +1,3 @@
-###  Публикация: 617431   (972129) от 12.02.2013
-
-Кассиопея - 3 альбома (2009-2012) [MP3|320 кб/с]<Freak-Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление [00:01:12]
-02. Солнце [00:02:44]
-03. Гага [00:02:57]
-04. Этиловая дыра [00:02:58]
-05. Береги [00:03:41]
-06. Глупышка [00:04:36]
-07. Орки [00:02:49]
-08. Беларускія танцы [00:03:01]
-09. Мозги [00:02:32]
-10. Плевать хотел [00:03:21](   Читать дальше...   )Жанр: Freak-Pop/Cosmic Synth-Pop/PsychodelicПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8028F4C2500BF02C12703D8DADB44ED132C4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974925   (972113) от 15.01.2016
 
 Reverend and The Makers - Mirrors (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Britpop, Classic Indie Rock>
@@ -754,6 +719,35 @@ Stone Temple Pilots - Perdida (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D0AC5A77D1C52D979CB9528D3AFB29B892661DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358387   (969638) от 07.02.2020
+
+VA - 100 Greatest Alt Rock Anthems (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.The Cure - Killing An Arab (2:24)
+2.Iggy & the Stooges - Raw Power (Iggy Pop Mix) (4:16)
+3.Television - See No Evil (3:52)
+4.David Bowie - Breaking Glass (2017 Remaster) (1:52)(   Читать дальше...   )Жанр: RockПродолжительность: 06:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC934996A4E5579687F0C45DB3B7F5F78DD9F9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

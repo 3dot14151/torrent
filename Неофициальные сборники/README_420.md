@@ -1,3 +1,198 @@
+###  Публикация: 1408348   (455999) от 12.09.2020
+
+VA - Soul Romantic R&B (2020) [MP3|320 Kbps] <R&B, Soul, Hip Lyric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455999.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tonina - Adamly
+002. Aya Nakamura - Sucette
+003. Teedra Moses - Caught Up
+004. Judy Temple - Stocking Cap(   Читать дальше...   )Жанр: R&B, Soul, Hip LyricПродолжительность: 09:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08695C015DD68778EF3AB414EDC569045C2B926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408375   (455914) от 12.09.2020
+
+VA - The Official UK Top 40 Singles Chart 11.09.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cardi B - WAP (feat. Megan Thee Stallion)
+02. 24kGoldn - Mood (feat. iann dior)
+03. Headie One - Ain't It Different (feat. AJ Tracey & Stormzy)
+04. Nathan Dawe - Lighter (feat. KSI)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3699E79652A93A924D71D4279BF6459AD6F294C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408567   (455912) от 12.09.2020
+
+VA - German Top 100 Single Charts 11.09.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonez MC - Fuckst mich nur ab
+02. 24kgoldn - Mood (feat. Iann Dior)
+03. KitschKrieg & Jamule - Unterwegs
+04. UFO361 & Sonus030 - Games(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B962855A1F6FC0486A9E5A5C9C7BA70727A1A30B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550278   (455856) от 23.09.2012
+
+VA - Dubstep Top (June) (2012) [MP3|320 кб/с]<Dubstep, DnB>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2Pac feat. Sinima - God Bless The Dead (DUBSTEPBASTER)
+02. Aaa - reallity
+03. Adele - Set fire to the rain (Lay remix)
+04. Adventure Club - Need Your Heart Ft Kai
+05. Aeph - When You
+06. Alphabet Pony - Space (VIP Mix)
+07. AmyKuney - Sway(ButchClancyRemix)Final
+08. Anneka - Shut Her Down (Mario M Remix)
+09. BARRON - Bambatta (Vip mix)
+10. Blackmill - Home (Original Mix)(   Читать дальше...   )Жанр: Dubstep, DnBПродолжительность: 05:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B330BF46341DD5D061AE01A9FE3F8B1F25D67C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549797   (455550) от 23.09.2012
+
+VA - Melodies d'Amour (2010-2011) [MP3|320 кб/с]<Instrumental, Easy Listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 101 Strings - Ode To Billy Joe 03:15
+02. The London Symphony Orchestra - Drive 03:51
+03. Anthony Ventura - I'd Love You To Want Me 03:36
+04. Ray Davies & Button Down Brass - The Shadow Of Your Smile 03:47
+05. Bert Kaempfert - Kiss Her Once With Feeling 02:49
+06. Botticelli - Could It Be Magic 03:14
+07. Caravelli - A New Day Has Come 03:05
+08. Frank Chacksfield - Hopelessly Devoted To You 03:10
+09. John Morgan Orchestra - Plaisir D'Amour 03:41
+10. Johnny Pearson & His Orchestra - I Honestly Love You 03:54(   Читать дальше...   )01. Waldo De Los Rios - Everybody's Talkin' 02:30
+02. Arthur Greenslade - Too Much Heaven 02:52
+03. Nelson Riddle - I love How You Love Me 02:33
+04. Percy Faith - I Only Have Eyes For You 04:40
+05. Cyril Ornadel - I Who Have Nothing 02:58
+06. Geoff Love - Daniel 03:38
+07. Billy Vaughn - The Most Beautiful Girl 02:26
+08. Royal Philharmonic Orchestra - True Love 02:43
+09. Werner Muller - Belle Of The Ball 02:43
+10. Bela Sanders - Moon River 02:54(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FDEE62492F455046F7A9C2D9F8F0C2A7AC2E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060357   (455468) от 07.10.2016
+
+VA - Happiness Emotions: Uplifting Trance (2016) [MP3|320 Kbps] <Progressive Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455468.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Myk Bee - Endless Drive (Raw & Carpenter Remix)
+002. Beat Service & Ana Criado - An Autumn Tale (Original Mix)
+003. Max Millian - Distant Road (Radio Edit)
+004. Eximinds - Sunrise (Extended Mix)(   Читать дальше...   )Жанр: Progressive Uplifting TranceПродолжительность: 10:21:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119A4B33D17C7EA2DFEB054E078732C4E7372822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060365   (455467) от 07.10.2016
 
 VA - Green Breeze: Lounge Mix (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -583,186 +778,6 @@ VA - The Official UK Top 40 Singles Chart 23.08.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18ACF0C3D6106B17834FD7F7D4C9001A5FC707B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321743   (454800) от 26.08.2019
-
-VA - German Top 100 Single Charts 30.08.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes & Camila Cabello - Senorita
-02. Loredana - Eiskalt (feat. Mozzik)
-03. Luciano - Yeah
-04. DJ Snake, J Balvin, Tyga - Loco Contigo(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C051E31359068493617BCA7FBC928CAAE5F9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162987   (454767) от 03.09.2017
-
-VA - Levitate: Chill Ambience Party (2017) [MP3|320 Kbps] <Chill Ambience, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454767.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Flight74 - Piano Relaxation
-002. Emma Luna - Eschbannja
-003. Glady Gowans - Playing Around
-004. Nano Banani - Tales of Angels(   Читать дальше...   )Жанр: Chill Ambience, Lounge, DowntempoПродолжительность: 07:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935E25BDEF354528B791C8DB0C1BECCC4135675C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060416   (454728) от 07.10.2016
-
-VA - 100 World Best Chillout Classics (2016) [MP3|178-320 Kbps] <Lounge, New Age, Meditation>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marian Closca - Sophia (Original Mix) 05:50
-02. Paul Hided & Airzoom - The Soul Of Tabity (Chillout Mix) 04:45
-03. Aurosonic & Frainbreeze And Katty Heath - All I Need (Chill Out Mix) 06:13
-04. Andy Moor & Ashley Wallbridge Feat. Gabriela - World To Turn 04:29(   Читать дальше...   )Жанр: Lounge, New Age, MeditationПродолжительность: 07:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00ED22DB715B730DFE5922BF9A9BBDCC2AE600A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321839   (454693) от 26.08.2019
-
-VA - Radio DFM Top D-Chart Август 2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilkay Sencan & Dynoro - Rockstar 3:32
-02. Slider & Magnit - Morze 3:11
-03. Rompasso - Paradise 2:51
-04. Meduza feat. GOODBOYS - Piece Of Your Heart 4:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3C80BE7A5BD7FD7A9A858EE1331251C98D4660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247219   (454641) от 14.09.2018
-
-VA - Big Workout & Fitness Music (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rudimental - Waiting All Night (Radio Edit; feat. Ella Eyre)
-02. Amped Up Fitness - Do It Again
-03. Thors - Nirvana
-04. Gomer Edwin Evans - Melodies Of ZEN(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2116BC4408B2970BE37404293D553CB82A2CD63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389695   (454268) от 19.09.2011
-
-VA - Самый Свежак DFM (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454268.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алисия & П. Есенин И Hi-Fi - Ангелы Вечны
-002. Shahzoda - Все Только Начинается
-003. Ika - Дорогой Мой
-004. Инфинити - Ты Мой Герой (Original)
-005. Е. Терлеева - Боль
-006. Потап И Н. Каменских - Если Вдруг
-007. Спа-Сити - Малолетняя Дочь (DJ Viduta Remix)
-008. Д. Суворова - Звезды Кому-То Нужны
-009. Чи-Ли - Ромашковое Поле (Snake Edit)
-010. 5ivesta Family - Тук-Тук(   Читать дальше...   )2011Жанр: PopПродолжительность: 11:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E1E197BE617F2B1D849EA931D841F68F56A64E
 ```
 
 https://mybot314.ru/tekegram_catalog/

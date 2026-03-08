@@ -1,29 +1,3 @@
-###  Публикация: 1115463   (827682) от 17.03.2017
-
-Набор обновлений UpdatePack-XPSP3-Rus Live 17.3.15 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор обновлений для Windows XP SP3 Rus x86. Ключевой особенностью набора является наличие тех же обновлений, какие содержит UpdatePack-XPSP3-Rus. Дополнительно включены обновления тех продуктов, которые являются частью операционной системы: Windows Media Player 9-11 и Internet Explorer 6-8, а также исправления ошибок локализации. Возможна установка полных версий (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B999523DB30B6B356D38E9762FA975C527ECEFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381245   (827660) от 06.05.2020
 
 CoolUtils Total CAD Converter 3.1.0.174 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -670,6 +644,32 @@ Update это обновление применимо для всех пакет
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3C5FF76A9681E177ABD3F3F451A05A3DE607E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006771   (826886) от 12.04.2016
+
+Air Explorer Pro 1.8.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Air Explorer Pro — один из лучших файловых менеджеров для работы с облачными хранилищами. Программа поддерживает работу с такими сервисами: OneDrive, Google Drive, 4shared, Box, Dropbox, Mega, Copy, Mediafire, Yandex, Baidu, поддержка подключения по протоколам WebDAV и FТP.Язык интерфейса: Русский, Английский и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399C9DD66351A40D0EF6DFCC40FE4507D20EFDA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

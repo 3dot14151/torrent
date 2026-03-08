@@ -1,32 +1,3 @@
-###  Публикация: 1046713   (551929) от 27.08.2016
-
-Blue Stahli - Blue Stahli Instrumentals (2012) [MP3|320 Kbps] <Alternative Rock, Electro, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ULTRAnumb (Instrumental)  04:15
-02. Scrape (Instrumental)  04:46
-03. Anti You (Instrumental)  03:29
-04. Doubt (Instrumental)  03:58(   Читать дальше...   )Жанр: Alternative Rock, Electro, PunkПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A217003E82DC17A0A65ED44AC81B5D2599099B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309337   (551891) от 18.06.2019
 
 David Byron - 5 albums, 6CD (1975-2008) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
@@ -746,6 +717,35 @@ Bill Callahan - Shepherd in a Sheepskin Vest (2019) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC2ADE6BB0872BC5BC21029E7BC365B343FE0D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237656   (550471) от 25.07.2018
+
+Daron Malakian and Scars on Broadway - Dictator (2018) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lives
+02. Angry Guru
+03. Dictator
+04. Fuck & Kill(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A45B4FFAC4D7107235F8F13FA757C9E39A8F3EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

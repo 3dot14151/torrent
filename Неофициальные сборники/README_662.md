@@ -1,3 +1,177 @@
+###  Публикация: 1739819   (48191) от 01.08.2024
+
+VA - compilation  part 108 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instrumental, Saxophone>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jk Sax - Knockin' on Heaven's Door
+02. Alexandra Ilieva - Just the Two of Us
+03. Alexandra Ilieva - What a Wonderful World
+04. Jk Sax - Moi... Lolita(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 02:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB2820C60389EBC100C8FA88A8E545D891F22BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739742   (48177) от 01.08.2024
+
+VA - Arabian Miriage (2024) [MP3|320 Kbps] <Instrumental Pop, World>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48177.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adrian von Ziegler - Enchanted Palace [02:28]
+002. Arabic Music Arabian Nights Collective - Arabian Girl [07:42]
+003. Buddha Hotel Bar Music Dj - Aladdin [02:45]
+004. Zakaria Ghafouli - Hobino [04:00](   Читать дальше...   )Жанр: Instrumental Pop, WorldПродолжительность: 10:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEB6C612DA31380D10AD1529336AB288DD41CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739273   (48160) от 01.08.2024
+
+VA - Today's blues (2024) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cedric Burnside - Juke Joint [02:51]
+02. Laurent Lombard - Sexy Blues [02:11]
+03. Gary Clark Jr., Stevie Wonder - What About The Children [04:39]
+04. Sugaray Rayford - Run For Cover [02:54](   Читать дальше...   )Жанр: BluesПродолжительность: 04:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE4DE7158877F81FD48071C9C615BB8C7557CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740493   (48069) от 02.08.2024
+
+VA - Music News For Forum vol.007 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48069.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sianna & DJ Layla feat. Radu Sirbu - Night Storm (03:04)
+ 002. 2 Engel & Charlie feat. Noisetime - Price Tag (02:15)
+ 003. 7dreamer & Parus - Забывай (01:57)
+ 004. 52Ghz - Вроде Все Хорошо (03:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4190341D46555D7531B7DD76ED206F28B73A2708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740351   (48055) от 02.08.2024
+
+VA - compilation  part 109 Instrumental electronic (2024) [MP3|320 Kbps] <Instrumental, electronic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artur Venis - Titanic
+02. Artur Venis - Forever, Forever
+03. Dj Lava - In Memory of Your Love
+04. Artur Venis - Autumn Park(   Читать дальше...   )Жанр: Instrumental, electronicПродолжительность: 02:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8250A435DC7EAE00598E3A0E63BCF671A9F45C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740778   (47953) от 03.08.2024
+
+VA - VA - compilation part 111 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azimov - Turn of Lights
+02. Limora - Flower
+03. Muvi - Passion
+04. Elno - London(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0E10471699F8120F3E9813C1137E01FC204CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740992   (47875) от 04.08.2024
 
 VA - Music News For Forum vol.008 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,180 +745,6 @@ VA - Rock Country Blues (2024) 2CD [MP3|320 Kbps] <Blues, Country, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F78D90B5610D63A148CB484DE3891D65AF37DEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744543   (45968) от 22.08.2024
-
-VA - Music News For Forum vol.014 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45968.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daryana - Мой Парень (01:54)
- 002. a.Ja - Засыпай (02:21)
- 003. Adi Ulmansky feat. Rares - Mykonos (02:46)
- 004. AllExe - Радуйся (02:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A8BEB49C0989E199B3EE1FCABA9A76E114DDF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744629   (45774) от 24.08.2024
-
-VA - TOP Non-Stop 2010-2019 - Deep House. Volume 5 (2024) [MP3|192-320 Kbps] <Deep House, Progressive House, Techno House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Hertz - Ocean Drive (2016) (5:15)
-02. Zone + - Neenar (2019) (6:43)
-03. Robert R. Hardy - Haydina (2014) (6:55)
-04. RBert - Vagabundo (2018) (7:07)(   Читать дальше...   )Жанр: Deep House, Progressive House, Techno HouseПродолжительность: 09:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFF9BAA50DC2173F58BB9C32F1E8EE492DE128F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745040   (45770) от 24.08.2024
-
-Sisco Le Voyageur - Complation disc 2 (2024) [MP3|320 Kbps] <Newage, Enigmatic, Ambientmusic, Travelmusic, Romantic, Sentimental, Love>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45770.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Path of Light
- 002.  Piano & Violon Voyageurs
- 003.  Power Dream N°1
- 004.  Power Dream N°2(   Читать дальше...   )Жанр: Newage, Enigmatic, Ambientmusic, Travelmusic, Romantic, Sentimental, LoveПродолжительность: 05:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066938CF0C999BA08B10C05BE3A7775E0B4BE5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745044   (45767) от 24.08.2024
-
-VA - Music News For Forum vol.015 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45767.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sabrina Carpenter - Bed Chem (02:52)
- 002. Abraham Mateo - Hoy Tengo Ganas De Ti (02:51)
- 003. Allti - Рассвет (02:48)
- 004. AMELI - Нарцисс (02:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD59673BB8C6399BA8B325E4EBD1E7F4CA45684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744867   (45758) от 24.08.2024
-
-Sisco Le Voyageur - Complation disc 1 (2024) [MP3|320 Kbps] <Newage, Enigmatic, Ambientmusic, Travelmusic, Romantic, Sentimental, Love>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45758.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  All the Time
- 002.  Amérindienne
- 003.  Anastasia
- 004.  Artificiel(   Читать дальше...   )Жанр: Newage, Enigmatic, Ambientmusic, Travelmusic, Romantic, Sentimental, LoveПродолжительность: 07:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BBA7B5B2A418060F41901DB40911E6CC368E914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744130   (45751) от 24.08.2024
-
-VA - Compilation  part 114 New Eurodisco (2024) [MP3|320 Kbps] <New Eurodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Val - Through the Silence
-02. Ai Talking - Blood and Milk Girl
-03. Ai Talking - Alien Love, Alien Groove
-04. Ai Talking - Mysteries of the Night Castle(   Читать дальше...   )Жанр: New EurodiscoПродолжительность: 00:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57102198055920FCE87B14196DF266F95956E9F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

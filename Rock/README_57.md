@@ -1,32 +1,3 @@
-###  Публикация: 1250676   (424488) от 28.09.2018
-
-Сергей Бабкин - Музасфера (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Червоні окуляри
-02. Моє кохання
-03. Єви і Адами
-04. Зачаровані(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE5C711ABE0835D35D644425BE76A6CA22DBAC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411996   (423166) от 27.09.2020
 
 Ray Thomas - Words & Music (2020) [MP3|320 Kbps] <Progressive Rock>
@@ -752,6 +723,35 @@ Methodica - Clockworks (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD429385D6D6ED270142EA5D71C9D0624FFA6CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413034   (411739) от 02.10.2020
+
+Queen + Adam Lambert - Live Around The World (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411739.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tear It Up (Live At The O2, London, UK, 02/0718)
+2. Now I'm Here (Live At Summer Sonic, Tokyo, Japan, 2014)
+3. Another One Bites The Dust (Live At Summer Sonic, Tokyo, Japan, 2014)
+4. Fat Bottomed Girls (Live At The American Airlines Center, Dallas, USA, 2019)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EE8C1B9E776A045654AA203C880D7E320FD644
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1379860   (836238) от 01.05.2020
+
+VA - Rock Your Day (2020) [MP3|320 Kbps] <Rock, Alternative, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.The Rolling Stones - Start Me Up (3:33)
+2.Queen - Don't Stop Me Now (3:29)
+3.Red Hot Chili Peppers - Can't Stop (4:29)
+4.Oasis - Supersonic (4:44)(   Читать дальше...   )Жанр: Rock, Alternative, OtherПродолжительность: 03:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1615A09FF2DA1ECA754B9371809EDFFDC44B98BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380045   (836235) от 01.05.2020
+
+VA - The #1 Dad Album (3 CD) (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836235.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Meat Loaf - Bat Out of Hell
+02. Thin Lizzy - The Boys Are Back In Town
+03. Status Quo - Down Down(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA83BD3F3E03B83C1BD7518192FBF344DC5BA932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501292   (836147) от 09.10.2021
+
+VA - Шансон Осень (2021) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирина Круг feat. Владимир Бочаров - Счастье Милое Ушло (3:04)
+02. Евгений Путилов - Как Мне Быть (4:37)
+03. Сергей Рыбачёв - Пожелать Хочу (3:20)
+04. Шамиль Кашешов feat. Рустам Нахушев - Она Другая (4:27)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B879DCFE10EB9E754E9BD6C19D6094D54A1112D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379962   (836107) от 01.05.2020
+
+VA - Beatport Trance: Electro Sound Pack #74 (2020) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Realm F vs Rankey - Nairobi
+002. Gadboa - How Long
+003. Estiva - Katana (Extended Mix)
+004. Ailand - Eclipse (Original Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 09:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB31AC347106048219E0BB4F02C5B282EDCA00E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379916   (835975) от 01.05.2020
+
+VA - Home Sweet Rock (2020) [MP3|320 Kbps] <Rock , Indie Rock, Rock Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835975.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Talking Heads - This Must Be the Place (Naive Melody) (2005 Remaster) (4:56)
+2.David Bowie - Sound and Vision (2017 Remaster) (3:04)
+3.Fleetwood Mac - Dreams (2004 Remaster) (4:17)
+4.The Rolling Stones - Gimme Shelter (4:30)(   Читать дальше...   )Жанр: Rock , Indie Rock, Rock PopПродолжительность: 04:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279B97DD3C002A484B46DE957D1F14ECA20EA77F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379970   (835897) от 01.05.2020
+
+VA - Classic Pop-Rock Hits (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sting - All This Time (Album Version) 4:55
+002. R.E.M. - Losing My Religion 4:28
+003. Queen - Bohemian Rhapsody (2011 Mix) 5:54
+004. Elton John - Your Song (Remastered) 4:03(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 07:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9719C6898E4BCAC1C8A061230A915A3B0FC6B646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380024   (835805) от 01.05.2020
 
 VA - Electronic Enigmatic (2020) 2CD [MP3|320 Kbps] <Electronic, New age, Enigmatic>
@@ -571,180 +745,6 @@ VA - Gold Clubbing Trance (2020) [MP3|320 Kbps] <Uplifting, Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56A22C1AE509B58ACD77A9A98344506CB64FE353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380142   (835002) от 02.05.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 01.05.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights 3:22
-02. Little Big - UNO 2:41
-03. Trevor Daniel - Falling 2:39
-04. Doja Cat - Say So 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5024185D2DEC4619661517A3F6CA3DDD97201A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114048   (834999) от 13.03.2017
-
-Blues Cousins - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoochie Coochie Man
-02. Nobody Knows
-03. The Brother
-04. The thrill is gone(   Читать дальше...   )Жанр: BluesПродолжительность: 02:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A33909306A523C81046D7BFA430BF3182B950D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114129   (834996) от 13.03.2017
-
-VA - Hits Cocktail Vol.3 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charming Horses Feat. Jona Bird - Follow (Radio Edit)
-02. Kygo & Selena Gomez - It Ain't Me
-03. Krono feat. Paul Kostick - You're Beautiful (Extended Mix)
-04. Anne-Marie - Ciao Adios(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4771F9CF7644AA93A962088FE2DBB66E94322AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379985   (834978) от 02.05.2020
-
-VA - NEW от Виталия72  (1) (2020) [MP3|256-320 Kbps] <Поп, Дансе>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игорь Кибирев - Белая Зима
-02. Кассета - Без тебя
-03. Авраам Руссо - Моя Законная Любовь
-04. Andre TAY - Снежная Ночь(   Читать дальше...   )Жанр: Поп, ДансеПродолжительность: 03:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23AA7C2DFDFDA8322BD72F82DDE1953AB897978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501178   (834961) от 10.10.2021
-
-VA - ЕвроХит Топ 40 Europa Plus 08.10.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alok & SOFI TUKKER & INNA - It Don't Matter (2:53)
-02. The Kid Laroi & Justin Bieber - Stay (2:21)
-03. Joel Corry & David Guetta feat. Raye - BED (2:58)
-04. Ed Sheeran - Bad Habits (3:52)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636B33204DBE780E52A8B4D3094B1163DAE59521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004733   (834841) от 08.04.2016
-
-VA - Vocal Anthems Vol.3 (2016) [MP3|320 кб/с] <Trance, Progressive, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tate & Credland - Rise Above The Anarchy (Original Mix) (feat. DPC) 06:45
-02. Second Left - Colour The Sound (Darren Tate Remix) (feat. Susie Ledge) 09:04
-03. Santerna - 1000 Stars (Supuer Remix) (feat. Catherine) 08:20
-04. DJ Hashish - Be Careful (My Love) (Summer Nights Mix) (feat. 3PM) 07:18(   Читать дальше...   )Жанр: Trance, Progressive, HouseПродолжительность: 02:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4E035B0D13068535873B0E08CF3E4D9ECC56D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

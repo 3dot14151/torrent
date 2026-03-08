@@ -1,3 +1,32 @@
+###  Публикация: 840092   (337524) от 11.11.2014
+
+VA - 1982 The Collection (Time Life) (1994) [FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий диск из серии Time Life Music. Решил поделиться. Может кто молодость вспомнит.01. Survivor - Eye Of The Tiger  (4:06)
+02. Dexy`s Midnight Runners - Come On Eileen  (4:01)
+03. Asia - Heat Of The Moment  (3:49)
+04. Kim Wilde - View From A Bridge  (3:32)(   Читать дальше...   )Жанр: Pop, Rock, Jazz, ElectronicПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E67AADE6C3D52F950E742B6988436A113D18BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955031   (337339) от 09.11.2015
 
 VA - Barbra Streisand & Partners (2014) [FLAC|tracks + .cue]<Pop, Vocal, Ballad>
@@ -711,35 +740,6 @@ Madonna - Finally Enough Love: 50 Number Ones (2022) 3CD [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE1749B60A5B8896EEA7AE7583BDE1A91193287D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957374   (327597) от 17.11.2015
-
-Alison Moyet - Singles (1995) [FLAC|image + .cue]<Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The First Time Ever I Saw Your Face (03:20)
- 02. Only You (03:13)
- 03. Nobody's Diary (04:32)
- 04. Situation (02:25)(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 01:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C2A6A93F9B39751B5EAEFAC0EFC39DB9ACED45
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1014487   (776363) от 07.05.2016
-
-Проекты - RocketStock - Revolver [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Revolver - Попрощайтесь с скучными переходами по умолчанию! Этот шаблон After Effects включает 16 фото / видео переходов для плавного движения из 3d в превосходный внешний вид. Используйте переходы в After Effects или экспортируйте переходы с альфа-каналом для работы в Premiere Pro, Final Cut или Avid.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28685D254FE57BD388A6280A8EA35A4E7511BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014333   (776361) от 07.05.2016
 
 Проекты - RocketStock - Virus [AEP]
@@ -669,6 +643,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECD4061CE84226F91BE17EB5C2EF1675282EB930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015013   (775684) от 09.05.2016
+
+Проекты - Pond5 - Ipad Tablet 4K Commercial (30 And 15Sec Versions) [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ipad Tablet 4K Commercial (30 And 15Sec Versions) - красивые Ipad-таблички для вставки ваших фото и видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C222E5A48DFCDDC7D71EE4D94A329D5AAE17ECE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

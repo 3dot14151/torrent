@@ -1,3 +1,90 @@
+###  Публикация: 1026832   (959333) от 16.02.2020
+
+Blacktree - The Beginning Of Summer - The Beginning Of The Party (2016) [FLAC|Lossless|image + .cue] <Minimal Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mal, Min - Violin (07:21)
+02. Jose Ponce, Joe Red - Legato (03:39)
+03. Beth Lydi - Quando (03:40)
+04. Cristian Valencia & Ricar - Kryptonite (Mateo Remix) (06:48)(   Читать дальше...   )Жанр: Minimal Techno, Tech HouseПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2153053CC0D69C43F1DF3BED1CC2B02B6DC13F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088735   (955100) от 01.01.2017
+
+VA - Deepalma 2017 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mika Olson - What I Need (feat Jermaine Fleur) [07:35]
+02. Fonzerelli - Moonlight Party (Touch & Go Laidback mix) [05:24]
+03. Lounge Loafers - Forget About Me (original mix) [05:31]
+04. Palmer - Takin' Off (Miguel Campbell Club edit) [05:22](   Читать дальше...   )Жанр: Deep House, House, Nu DiscoПродолжительность: 04:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F13E0291231E0899F427BAA585E1E377466D954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089134   (953877) от 02.01.2017
+
+VA - Playa Del Carmen 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chus & Ceballos/Supernova - The Prophet (Remastered) [06:40]
+02. Rafa Barrios - Horizont (original mix) [05:15]
+03. DJ Fronter - Damn (original mix) [07:52]
+04. Supernova - Shut Your Mouth (original mix) [07:44](   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 02:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42B2DEA78FE9849C8547C913C125744397E7D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089021   (953774) от 02.01.2017
 
 VA - Bedrock 18 - Signals (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
@@ -654,94 +741,6 @@ Prins Thomas - Bringing Mum to Panorama Bar (2020) Prins Thomas Musikk [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96AFF6970A06F265BC8364BED3CC855E9BE97152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860901   (937279) от 18.01.2015
-
-V.A. - Hed Kandi: Summer Of Sax (2014) 2CD [FLAC|Lossless]<House, Lounge, Jazzy>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937279.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Mix One - Dusk (01:17:47)
-CD2 - Mix Two - Dawn (01:16:40)Треклист CD1:
-01. Faul & Wad Ad Vs. Pnau - Changes
-02. Oliver $ & Jimi Jules - Pushing On
-03. Mr. Probz - Waves (Robin Schulz Remix)(   Читать дальше...   )Жанр: House, Lounge, Jazzy |Продолжительность: 02:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB24C61520F4172BB24C9C55E2B143D32B251BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092970   (937077) от 13.01.2017
-
-Satin Jackets - Panorama Pacifico (2016) [FLAC|Lossless|tracks + .cue] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel Good (2:46)
- 02. We Can Talk (4:14)
- 03. Shine On You (5:38)
- 04. Keep Moving On (4:12)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8045905C07F8D4039FC7B49E733A220DD9B60F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093312   (933954) от 15.01.2017
-
-Cristian R - New Frequency (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Frequency (original Intro) (4:34)
- 02. Alphard (original mix) (7:04)
- 03. Spaceship (original mix) (8:33)
- 04. Bamboo Forest (original mix) (7:32)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 02:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A288976A5226A6A1C797DEA671CAF952130BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

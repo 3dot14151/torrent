@@ -1,3 +1,32 @@
+###  Публикация: 1125740   (767194) от 16.04.2017
+
+Colette Cassidy & Nigel Clark - Confetti Falling In The Rain (2017) [FLAC|Lossless|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767194.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. After Hours (3:01)
+ 2. Confetti Falling In The Rain (3:14)
+ 3. Black And White Story (2:42)
+ 4. Another Sleepless Night (3:18)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123D1C40791BDB624A3E4F09D3685C6C984C22ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125894   (767137) от 16.04.2017
 
 John Coltrane - Giant Steps & Lush Life (1957 - 1959) 2CD, 2011, Not Now Music [FLAC|Lossless|image + .cue] <Hard Bop>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F03FF4E7A2A32C9A094637948F181A5D523770D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521437   (765230) от 02.01.2022
-
-VA - The Art Of The Piano: Trio, Quartet, Quintet and Beyond (Milestones of Jazz Legends) (1947 - 1962) 10CD, 2020, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Hard B ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765230.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Bill Evans - My Foolish Heart [4:58]
-02. Bill Evans - Waltz for Debby [7:00]
-03. Bill Evans - Detour Ahead [7:37](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 12:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC9B70D9806AA55E3E45EBA06FC75F29E227448
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1839042   (261708) от 26.11.2025
+
+VA - Balearic Deep-House Winter 2026 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi.5, Dry & Bolinger - Your Soul 03:23
+02. Steen Thottrup, Eva Scolaro & Calmabohain - Deeper Love (Calmabohain Remix) 03:22
+03. Music Of The Earth - Iou Boarders 05:17
+04. Simone Intrieri - Lie Machine (Extended Mix) 07:46(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33BB6CE28B13A0212D63247682EBD8652962BE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735256   (261682) от 08.07.2024
 
 VA - Polyptych Limited: Year Four (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
@@ -732,35 +761,6 @@ VA - Best Of Deep House (2012) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFD86A539653A92152A05A0734A811221468ED6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110916   (247548) от 16.06.2023
-
-DJ Грув - Ты не со мной (2008) [MP3|320 kbps]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты Не Со Мной (при уч. Иракли,Гарик DMC B,Батишта)
-02. Счастье Есть 2008
-03. Forever Dancing (при уч. А. Чумакова)
-04. I Want You (при уч. Audio DJs(Android,M.Pravda)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7CCBA4EFCA0DF0000AE44AC12BFA272330167F
 ```
 
 https://mybot314.ru/tekegram_catalog/

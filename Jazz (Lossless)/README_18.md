@@ -1,3 +1,32 @@
+###  Публикация: 1484656   (1005948) от 21.07.2021
+
+Richard "Groove" Holmes - Groove's Groove (1977 - 1988) 1997, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broadway [6:58]
+02. Hackensack [5:47]
+03. Stella by Starlight [5:33]
+04. Good Vibrations [8:51](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4CD2AD43ADA6B03BBFFC8744CAFA7CC6CBB16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484800   (1005840) от 22.07.2021
 
 Richard "Groove" Holmes - On Basie's Bandstand (1966) Remaster, 2003, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECCFA4E082669E5BC6F571E599F31201588582AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351915   (1001686) от 12.01.2020
-
-Thought Gang (David Lynch and Angelo Badalamenti) - Thought Gang (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental Jazz, Dark Jazz, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stalin Revisited (2:02)
-02. Logic and Common Sense (3:35)
-03. One Dog Bark (3:07)
-04. Woodcutters From Fiery Ships (4:35)(   Читать дальше...   )Производство: Sacred Bones - 843563105429Жанр: Experimental Jazz, Dark Jazz, Free Jazz, SoundtrackПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9693F6FDA8367E0AB67DD3076CCACABFBF513AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

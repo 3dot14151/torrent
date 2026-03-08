@@ -1,3 +1,29 @@
+###  Публикация: 546179   (478696) от 13.09.2012
+
+Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8500FADF8AB7E7CF25A86D22D37AA4E73ABCB2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 384818   (478526) от 08.09.2011
 
 DJ VJ Magrao Videomix Volume 10 (2011) DVD5
@@ -702,32 +728,6 @@ Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA0B189738625619CEA2B2BED8140927CB903B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406371   (472536) от 04.09.2020
-
-Def Leppard: Hysteria at the O2 (2018) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Def Leppard - британская рок-группа из Шеффилда, Йоркшир, Англия, образована в 1977 году. Их стилевая манера с годами претерпела ряд изменений, двигаясь от хард-рока к глэм-металу. Def Leppard дебютировали как NWOBHM-группа с альбомом "On Through the Night" в 1980 году. Пик популярности этой группы пришёлся на 1984-89 годы, когда вышли их платиновые альбомы (   Читать дальше...   )Производство: Великобритания / Eagle Rock EntertainmentЖанр: hard rock, glam metal, heavy metal, pop rockАктеры: Def Leppard, Джо Эллиотт, Фил Коллен, Вивиан Кэмпбелл, Рик Сэвидж, Рик АлленПеревод: ОтсутствуетПродолжительность: 01:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27988AA32CA2EB79E6AD73018ACB1F971C1F94C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1499880   (846168) от 03.10.2021
-
-Эпидемия (Андрей Лаптев, Новый Состав) - Не Ищи Меня (2021) Maxi-single [MP3|320 kbps] <Power Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не Ищи Меня (03:55)
-02. Феанор (feat А.Булгаков) (08:32)
-03. Не ищи меня (инструментал) (03:56)
-04. Феанор (инструментал) (08:32)Жанр: Power Metal, Heavy MetalПродолжительность: 00:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19978F761987A45CF7BC1C55B4C9C4E58D648725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002944   (845394) от 02.04.2016
 
 УрбаНегатив Объект - Ахтунгбэйби (2015) [MP3|320 кб/с] <Rock>
@@ -766,6 +737,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F49F0E153CA286858D2F994A4734BB6F222109FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310077   (837322) от 18.03.2011
+
+Ляпис Трубецкой - Agitpop Live (2011) [MP3|192 kbps]<Ska Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -Жанр: Ska Punk, RockПродолжительность: 01:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2AAD9C199943CE3A7631486DDF98BAAFD5F07C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

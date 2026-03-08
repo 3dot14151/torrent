@@ -1,32 +1,3 @@
-###  Публикация: 1505324   (804364) от 27.10.2021
-
-Franklin Zoo - Red Skies (2016) [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Caught (00:05:17)
-02. Noone's Slave (00:06:12)
-03. Burning Man (00:04:39)
-04. Red Skies (00:07:02)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20EEA00CCCC026962DD454AFE4D395B48FF6493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505440   (804363) от 27.10.2021
 
 Judas Priest - Reflections: 50 Heavy Metal Years Of Music (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -739,6 +710,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2576ABFE4BF3173755B1B353B31F32A18731043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505447   (803041) от 28.10.2021
+
+Galahad Electric Company - Soul Therapy (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Therapy (00:04:14)
+02 - All That Glitters (00:06:50)
+03 - Gone to Ground (00:05:29)
+04 - Fluidity (00:03:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB22FBB6AE083D93CDFB0548E598C1F4036FD2D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

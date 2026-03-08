@@ -1,32 +1,3 @@
-###  Публикация: 911173   (618500) от 22.06.2015
-
-Titans Eve - Chasing The Devil (2015) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618500.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. We Defy
-2. Warpath
-3. No Kingdom
-4. Another Day(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDD69860644E5AF1E8495FA5F46CAC395FD3511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544851   (618482) от 17.04.2022
 
 Shadows Of Steel - Twilight II (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -743,6 +714,35 @@ Planestrider - A Light Through The Dim (2022) [FLAC|Lossless|WEB-DL|tracks] <Sto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:396E9018A71C9DA3F2E99DEA07431EF2C8944ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544981   (616719) от 18.04.2022
+
+Weedevil - The Return (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Underwater (00:06:21)
+02 - The Void (00:09:55)
+03 - The Return (00:08:26)
+04 - Isn't a Love Song (00:06:43)(   Читать дальше...   )Жанр: Stoner Metal, Doom MetalПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4049018395B3597020066C27FED358C1C2CD73E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

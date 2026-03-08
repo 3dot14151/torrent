@@ -1,3 +1,32 @@
+###  Публикация: 1069449   (374165) от 04.11.2016
+
+Curtis Fuller - Soul Trombone & Cabin In The Sky (1961, 1962) 2011, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The clan [06:20]
+ 02.In the wee small hours of the morning [04:57]
+ 03.Newdles [07:40]
+ 04.The breeze and I [04:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1BC6F6693FA760FD70CB672DFDA7748E5CED05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069457   (374162) от 04.11.2016
 
 Count Basie & His Orchestra - 1 O'Clock Jump (1958) 1992, LaserLight[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -715,35 +744,6 @@ Nicholas Payton - Smoke Sessions (2021) Smoke Sessions Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72A3B6B7BF55D59FF4BDA005E960EC6FEAABA568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949957   (370508) от 26.10.2015
-
-Omer Avital Quintet - Live at Smalls (2010) [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme For A Brighter Future (7:48)
-02. Magic Carpet (14:25)
-03. One (9:58)
-04. Bass Intro (4:54)(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99988415D10EFDFC8AA8537A9365A38C8750DE69
 ```
 
 https://mybot314.ru/tekegram_catalog/

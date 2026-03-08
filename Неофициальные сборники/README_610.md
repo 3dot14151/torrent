@@ -1,3 +1,177 @@
+###  Публикация: 1087430   (145165) от 28.12.2016
+
+VA - Блатной шансон на любимой волне. Выпуск № 7 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145165.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Игорь Лейс - Летели Годы 3:07
+002.Феликс Луцкий - Спасибо  Песня 4:20
+003.Андрей Широков - Пасха 3:34
+004.Евгений Осипков - Глаза Твои 4:23(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F3D5E8BA65F9973E4C8BDD7FBBAADBF62739DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087389   (145152) от 28.12.2016
+
+VA - Гуляночка блатного радио Часть № 9 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145152.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Александр Казанцев (Сотник) - Интелегент 3:01
+002.Александр Талин - Я Люблю 3:00
+003.Александр Блик - Телогрейка 3:18
+004.Сергей Сорос - Знаешь Я Твой 4:13(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0613F36C3B7EC67510CDC28C3C2602E02C4458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087300   (145139) от 28.12.2016
+
+VA - Звездная вечеринка. Зарядись хитами. Сборник № 5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145139.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Данко - Старый Друг 2:34
+002.Scarlet White - Memory Finds You 4:07
+003.Din-Go - Я Скучал По Тебе 3:44
+004.Little Mix - Omg 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E26D9191C7B132810A0B07C27A3BBF582C9AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087409   (145125) от 28.12.2016
+
+VA - Душевная музыка Шансона. Версия № 4 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145125.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Сергей Трунов - Посидели-Пошумели 3:05
+002.Сборная Союза - Мой Добрый Ангел 3:23
+003.Сиран Агасаров - Мечта 3:24
+004.Богдан Галий - Самые Любимые 3:29(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18E39F3D3C49F961A1D746991F0B13F400CF1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678286   (145124) от 21.11.2023
+
+VA - B машину ремиксы Vol. 33 (2023) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2Pac - All Eyez on Me (Dj Belite Gangsta Remix) (02:46)
+02. Chaow & Fly Project - Toca Toca (Remix) (02:46)
+03. Alan Walker Feat. & Sasha Alex Sloan - Hero (Vip Mix) (03:11)
+04. Nlo - Танцы (Urbine & Dimusik Remix) (02:56)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4068FFC9A1DD57C4A0105B34553DD509BF51A814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087266   (145107) от 28.12.2016
+
+VA - Стопудовые зимние хиты от Европы Плюс (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Akon - Hey Mama 3:50
+002.Emin - Ты Же Не Знаешь 3:42
+003.Great Good Fine Ok - Get Away 3:27
+004.Женя Вилль - Ветренная Любовь 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70EE612616B1F4516ABA027C45A5E306778DE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087397   (145057) от 28.12.2016
 
 VA - Высшая лига хитов шансона. Часть № 10 (2016) [MP3|256 Kbps] <Шансон>
@@ -571,180 +745,6 @@ VA - Utopia: Psychedelic Electronica (2018) [MP3|320 Kbps] <Psychedelic, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF8E476CFC59700117CBBF8BE74E3C9EBE02E72D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087306   (144643) от 28.12.2016
-
-VA - Русские свежаки радиостанций. Топ новинок поп музыки. Версия № 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144643.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Вячеслав Быков - Дом В Котором Я Тебя Любил 3:24
-002.Константин Легостаев - Религия Любви 3:22
-003.Scarlett - Дистанция 3:23
-004.Макс Барских - Туманы 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858F2525E47518D744AAFFF1E8D39E04C58C46C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272267   (144598) от 27.12.2018
-
-VA - Billboard Hot 100 Singles Chart 29.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144598.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Ariana Grande -  thank u, next
-002.  Halsey -  Without Me
-003.  Travis Scott -  SICKO MODE
-004.  Post Malone -  Sunflower (Spider-Man_ Into the Spider-Verse)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACA4420DCC5777C32371DDB1BE17E8507039A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272346   (144546) от 27.12.2018
-
-VA - Bass Killer 16 (2018) [MP3|320 Kbps] <Dubstep, Trap, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2Scratch — Through the Night (feat. Yung City) (3:50)
-02. Aero Chord — Play Your Part (2:40)
-03. Bassjackers vs. Wolfpack — Zero Fs Given (Extended Mix) (3:49)
-04. Black Tiger Sex Machine & YOOKiE — Snakes (Original Mix) (3:24)(   Читать дальше...   )Жанр: Dubstep, Trap, Electro HouseПродолжительность: 01:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47443621386C696E3D8C27172C9F113DE94D0D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272415   (144540) от 27.12.2018
-
-VA - Music 2018 Live Christmas Sweet (2018) [MP3|320 Kbps] <Christmas, Dancehall, Soul, Funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swae Lee, Rae Sremmurd & Ear Drummers - Christmas At Swae's
-02. Lil Jon ft Kool-Aid Man - All I Really Want For Christmas
-03. ZAYN - There You Are
-04. Afrojack feat. Mightyfools - Keep It Low (Laidback Luke Remix)(   Читать дальше...   )Жанр: Christmas, Dancehall, Soul, FunkПродолжительность: 05:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79CB2929309DC60EE72982A35E1CA0AACC67CAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435377   (144518) от 28.12.2020
-
-VA - Beatport Techno: Electro Sound Pack #213 (2020) [MP3|320 Kbps] <Techno, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модные ритмы, прогрессивные мелодии и свежесть романтики ждут Вас в 213-м саунд паке от Beatport. Наслаждаемся и улетаем в мир волшебных звуков техно электронной музыки.001. Alec Troniq - Your Survival Guide
-002. Ebd - Fermentum
-003. Massimiliano Lai - Liquid Society
-004. Mark Reeve & Umek - Message (Original Mix)(   Читать дальше...   )Жанр: Techno, Club, ElectroПродолжительность: 12:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C5FDFD43D004ED7CC8B00521007974B0CC31D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272258   (144486) от 27.12.2018
-
-VA - Lyrical Soul Ballads (2018) [MP3|320 Kbps] <Funk, Soul, Ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144486.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roberta Flack - Killing Me Softly With His Song
-002. Cornell C.C. Carter - That Feelin'
-003. Ub40 - Moonlight Lover Feat Gilly
-004. The Apx - Right On Time(   Читать дальше...   )Жанр: Funk, Soul, BalladsПродолжительность: 08:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33877EAB039B1208B63ED9B39A9EE3AF9A9749E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

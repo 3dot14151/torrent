@@ -1,3 +1,87 @@
+###  Публикация: 1031490   (795108) от 28.05.2020
+
+Speedy J (Jochem Paap, Electric Deluxe, Public Energy, Tune, Problem House, Collabs, Zeitgeber) - Discography (1990-2020) Warp Records, NovaMute [FLAC|Lossless|tracks+.cue] Techno, IDM, Ambient
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seventeen Zero Four (05:36)
+ 02. One Zero Five (04:49)
+ 03. Twenty Zero Two (06:31)Тип издания: CD, Web, VinylЖанр: Experimental/Techno/Ambient/AcidПродолжительность: 31:36:39 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29C7D86AF8C4DC27E0D2C35053CB63B3FAD7091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274051   (795071) от 05.01.2019
+
+Tears Of Change - Road To Beijing (2015) Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road To Beijing (05:53)
+ 02. Road To Beijing (Raffaele Attanasio LFJ Version) (04:16)Жанр: Techno, Deep HouseПродолжительность: 00:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697C307082D9964A129CCAA0E7079073D4CE398C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274161   (795068) от 05.01.2019
+
+System 7 & Derrick May - Mysterious Traveller (2002) A-Wave [FLAC|Lossless|tracks+.cue] <Techno, Detroit Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System 7 / Derrick May - Altitude (Mayday Mix) (07:42)
+ 02. System 7 / Derrick May - Mysterious Traveller (Groovy Intent Mix) (08:04)
+ 03. System 7 / Derrick May - Big Sky City (Mayday Mix) (09:29)
+ 04. Rhythim Is Rhythim - Icon (Montage Mix) (08:49)(   Читать дальше...   )Жанр: Techno, Detroit TechnoПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD8DF03380372DD33CFB4702EB4FC4C38173123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274128   (795064) от 05.01.2019
 
 Drexciya - Neptune's Lair (1999) Tresor [FLAC|Lossless|tracks+.cue] <Electro, Detroit Techno>
@@ -654,92 +738,6 @@ Aura Minimum - Mysterious Segments (2020) Modern Nature [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90DA3C7B9A94E0B654D806C96B7398835D22F937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387259   (791846) от 01.06.2020
-
-Resoe - Discography 15 Releases (2007-2020) Baum Records, Echocord [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Minimal, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Larm (07:06)
- 02. Larm (Joey Anderson Remix) (05:40)
- 03. Low Identity (08:48)Тип издания: CD, WebЖанр: Dub Techno/TechnoПродолжительность: 06:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E518EEAA61E906ACAB2EA696349EF089478385EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387604   (791338) от 02.06.2020
-
-Eric Prydz vs. Floyd - Proper Education (2007) Maxi-Single [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proper Education (Radio) (3:26)
-02. Proper Education (Club Mix) (6:11)
-03. Proper Education (Dub Mix) (8:40)
-04. Proper Education (Instrumental) (2:31)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66C2F01A978FF566BE1750961F9CF8B4EE420FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387502   (791200) от 02.06.2020
-
-Moby - All Visible Objects (2020) Little Idiot [FLAC|Lossless|WEB--24Bit|tracks] <House, Ambient, Dance-pop, Leftfield>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morningside (05:31)
- 02. My Only Love (05:45)
- 03. Refuge (05:45)
- 04. One Last Time (05:34)(   Читать дальше...   )Жанр: House, Ambient, Dance-pop, LeftfieldПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E1EEEF1BCBA8464B0BB917D6CB6EB8A4A651EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

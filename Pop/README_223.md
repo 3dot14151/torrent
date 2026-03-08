@@ -1,3 +1,61 @@
+###  Публикация: 1328066   (363112) от 30.09.2019
+
+Adriano Celentano - Adrian (2019) 2CD [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Want To Know (Remixed by Benny Benassi)[3:46]
+ 02 - Prisencolinensinainciusol (Remixed by Benny Benassi)[4:09]
+ 03 - Ti Penso E Cambia Il Mondo[4:22]
+ 04 - Storia D'amore[4:55](   Читать дальше...   )Жанр: PopПродолжительность: 01:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE4B04F53A55E3B4A25A4BD0FA2B90AE9273E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950898   (363079) от 29.10.2015
+
+Arabesque - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friday Night (04:16)
+02. In For A Penny, In For A Pound (03:01)
+03. Hello Mr. Monkey (03:28)
+04. Billy's Barbeque (02:49)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D5CF5CAC5E47CE03FDB92C74A8CD0398287DAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576341   (363038) от 17.11.2012
 
 Susan Boyle - Standing Ovation: The Greatest Songs From The Stage (2012) [MP3|320 кб/с]<Pop,Vocal>
@@ -702,64 +760,6 @@ VA - Best Of 2018 - Die Hits Des Jahres (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DF2EA0E5303A7836912C2BA6B90664EDAC79827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256083   (359035) от 20.10.2018
-
-VA - Ballermann Hits Party 2019 (XXL Fan Edition) (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Draufgänger - Cordula Grün
-02. Mickie Krause - Reiss die Hütte ab! (Chirpy Chirpy Cheep Cheep) (Version 2018)
-03. Lorenz Büffel - Beate, die Harte
-04. Almklausi & Specktakel - Mama Laudaaa (Harris & Ford Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9A8E0C4C5ED964F2CE08EB2EBD65011AE650CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952230   (358822) от 31.10.2015
-
-Vangoffey - Take Your Jacket Off & Get Into It (2015) [OGG| 489-542 кб/с]<Classic Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Race Of Life
-02. Trials Of A Modern Man
-03. Sucker
-04. Episode(   Читать дальше...   )Жанр: Classic Pop RockПродолжительность: 00:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4EA5E19D20BDBEB53B379E33F613B762022393
 ```
 
 https://mybot314.ru/tekegram_catalog/

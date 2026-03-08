@@ -1,32 +1,3 @@
-###  Публикация: 1567093   (476401) от 01.08.2022
-
-Journey - Freedom (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Arena Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Together We Run (4:49)
-02. Don't Give Up On Us (5:23)
-03. Still Believe In Love (5:16)
-04. You Got The Best Of Me (5:33)(   Читать дальше...   )Жанр: Arena Rock, AORПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2ED9E8902A673EC41AD167AA7289C769024ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160271   (476277) от 24.08.2017
 
 Ephel Duath - Phormula (2000) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -750,6 +721,35 @@ Kyle Gass Band - Kyle Gass Band (2013) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:288B398CF89A3DABB0893E692EE0BC85F866741F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057149   (475479) от 28.09.2016
+
+Young Rebel Set - Crocodile (2013) [FLAC|Lossless|tracks] <Indie, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesca and the Fear   (03:15)
+02. Tuned Transmission   (03:53)
+03. The Lash of the Whip   (03:03)
+04. Show Your Feathers and Run   (04:24)(   Читать дальше...   )Жанр: Indie, Folk RockПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFC3AE37A6F49B136FF779149DF81FEE1CED179
 ```
 
 https://mybot314.ru/tekegram_catalog/

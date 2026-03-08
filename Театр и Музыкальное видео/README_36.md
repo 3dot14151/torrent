@@ -1,3 +1,32 @@
+###  Публикация: 652419   (835653) от 04.05.2013
+
+Whitesnake - Made In Japan (2013) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best Years
+02. Give Me All Your Love Tonight
+03. Love Ain't No Stranger
+04. Is This Love(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 194555   (835162) от 22.04.2010
 
 Школа волшебниц. Музыкальное ледовое шоу Винкс. / Winx on Ice (2008) TVRip
@@ -683,36 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5495B2617CBB664863FCB852D784DE7C007287C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774851   (825380) от 08.04.2014
-
-Metallica - Freeze 'Em All (2013) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825380.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течении всего две тысячи тринадцатого года по сети интернет бродили упорные слухи о том, что Металлика собирается отыграть в Антарктиде. И в начале декабря эти слухи были претворены в жизнь.
-Для немногочисленной аудитории победителей соответствующего конкурса (   Читать дальше...   )01. Creeping Death
-02. For Whom the Bell Tolls
-03. Sad but True
-04. Welcome Home (Sanitarium)(   Читать дальше...   )Жанр: Концерт, Heavy MetalПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9A0774D0E3E1D12B34BB878BEE68715F796166
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1336706   (274580) от 10.11.2019
+
+Back to Earth - Peace of Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Away from Home 05:16
+2. Open Skies 04:00
+3. As Beautiful as You	04:44
+4. Hope in Sight	04:35(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE7F66C2438D59F0D623A5AA06F5885F6C28286E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083546   (273638) от 16.12.2016
 
 Molly Valentine - Fantasyland (2016) [MP3|320 Kbps] <New Age, Neo-Classical>
@@ -714,35 +743,6 @@ Emmanuele Landini - Zodiac: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CCE051CE6BDD57F633531A7997A2CCAADF34059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266378   (270963) от 01.12.2018
-
-Blonker - The Sound Of Blonker (1995) 3CD-Box [MP3|320 Kbps] <Instrumental Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дитер Гайке (нем. Dieter Geike, 25 декабря 1946 года) — немецкий композитор и музыкант, мультиинструменталист, известный как «Blonker». Играл на клавишных, бас-гитаре, гитаре, мандолине, перкуссии и драм-машине. В его музыке можно услышать переплетения разных стилей и жанров: джаз, рок, классика и нью-эйдж.01. Indigo (4:27)
-02. The Rose (3:52)
-03. When A Man Loves A Woman (2:45)
-04. Inside (3:21)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 03:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D555910EB0A744D121637AFE436A9D6C1E3E7CF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

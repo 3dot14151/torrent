@@ -1,3 +1,38 @@
+###  Публикация: 514477   (658161) от 24.06.2012
+
+VA - Танцы на песке 50|50 (2012) [MP3|256 kbps]<Pop|Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658161.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+001. Жасмин Feat. Николай Басков & Сергей Лазарев & Зара &Amp_ Слава - Как В Детстве
+002. Booty Vibes - No Beef
+003. Ангелина Сланевская feat. Jaff - Зарядись
+004. Rita Ora - How We Do (Gustavo Scorpio Radio Edit)
+005. Макс Барских - Замок Из Дождя
+006. Jessie J - Nobodys Perfect
+007. Градусы - Заметает
+008. Selena Gomez - Love You Like (A Love Song) (The Alias Radio Mix)
+009. David & Dino Mc - Ты Больше Не Моя(   Читать дальше...   )2012Жанр: Pop|DanceПродолжительность: 13:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8396A4DFCCBF92480EA8907E5A4AB3867DBD0F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513744   (658152) от 24.06.2012
 
 VA - Пляжная Дискотека Хит FM 50+50 (2012) [MP3|256 кб/с]<Pop>
@@ -777,32 +812,6 @@ VA - Курортный Хит (2012) [MP3|128 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8388D650DFAA88A0145B9B9978B6FDA9AC10665E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516068   (654512) от 27.06.2012
-
-VA - Хит парад Союз лето (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC11E924E81E44D58488E6E865B79D184D8FBDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

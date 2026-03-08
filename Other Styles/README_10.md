@@ -1,3 +1,32 @@
+###  Публикация: 1355261   (984976) от 25.01.2020
+
+Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonny Light Horseman (04:30)
+02. Deep In Love (05:09)
+03. The Roving (04:20)
+04. Jane Jane (03:06)(   Читать дальше...   )Жанр: Indie, FolkПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6994E26268B53FFF58E3491A29F2740537C84C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355154   (984868) от 25.01.2020
 
 VA - Restart 2020 Chillout (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
@@ -731,35 +760,6 @@ Paul Cardall - Saving Tiny Hearts (2014) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:095354472A680352FA7AFB8C560E9AF0A29B7297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356324   (979122) от 30.01.2020
-
-Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bends (01:36)
-02. Voyage to the Bottom of the C (Main Title) (02:43)
-03. Norah's Theme (02:23)
-04. Sprung a Leak (01:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5D4132949BBD681E9379AD1E1C6691FA635349
 ```
 
 https://mybot314.ru/tekegram_catalog/

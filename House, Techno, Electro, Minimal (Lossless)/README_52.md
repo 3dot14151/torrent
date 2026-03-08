@@ -1,3 +1,90 @@
+###  Публикация: 1265761   (272045) от 30.11.2018
+
+Bob Moses - Battle Lines (2018) Domino Recording [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Pop Rock>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Only Knows (4:22)
+ 02. Battle Lines (4:14)
+ 03. Back Down (4:10)
+ 04. Eye For An Eye (4:02)(   Читать дальше...   )Жанр: Electronic, Deep House, Pop RockПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75ADCAD93AFF012922E03064E04AA8AFC5A8F865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338104   (271686) от 13.11.2019
+
+Melquíades (Melquiades) - Lanterns (2019) Analogue Attic [FLAC|Lossless|WEB-DL|tracks] <Deep House, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lanterns Pt 1 & Pt 2 (10:52)
+ 02. Neon Canal (07:17)
+ 03. Cockatoo Horizon (05:43)
+ 04. Embers ft. James Harbard (08:00)(   Читать дальше...   )Жанр: Deep House, AmbientПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7973A359BFDA278DF1F609ABC21F47F40EDFB0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266194   (271160) от 01.12.2018
+
+VA - Kulor 001 (2018) Kulør [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schacke - Automated Lover (08:12)
+ 02. Sugar - Drowner (06:05)
+ 03. IBON - Forest Car (05:11)
+ 04. RePRO - Det Går Dårligt (05:32)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F55A6BBBBAE45A5A433EA796529168EAD28DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338067   (270661) от 14.11.2019
 
 VA - Total Disco House, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
@@ -656,93 +743,6 @@ Condensed Utopia - Assioma (2017) Circular Limited [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:252E211C281CDF0F7CC35BDB0DC5E56C65D6F8EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193762   (261986) от 22.12.2017
-
-VA - Alpine Grooves IX (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joris Voorn & Kid A – So Long (Christian Loeffler Remix) (05:07)
-02. Liza Flume & Alexander Remus – Sheets (06:03)
-03. SAAND – Mysterious Power (Powel Remix) (06:30)
-04. Just Her – Follow You Down (07:48)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F32696ABF87DE6E06820FFBD6CFF6FD972419A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193615   (261974) от 22.12.2017
-
-VA - Nothing But... Essential Nu-Disco, Vol. 3 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olej – Submarine (TeckSound Remix) (06:06)
-02. Mieczyk & Funky Dee – Feel It In Your Soul (Daniel Puz Remix) (06:28)
-03. Woobtech – Beautiful Lie (06:46)
-04. Oliver Schmitz, Micah Sherman & Deniz Reno – Waiting (05:45)(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 02:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E252AA8002B88F892AD0960222ACE9D7A95FE18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193709   (261963) от 22.12.2017
-
-VA - Twelve Inch Nineties: Feels Like Heaven (2017) [FLAC|Lossless|WEB-DL|tracks] <House, Euro-House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Groove Armada feat. Gram'ma Funk  -  I See You Baby (Fatboy Slim Remix)  5:45
-02.  Robert Miles  -  Children (Dream Version)  7:35
-03.  Urban Cookie Collective  -  Feels Like Heaven (Extended To The Max Mix)  5:59
-04.  Rozalla  -  Are You Ready To Fly (Rainbow Mix)  6:58(   Читать дальше...   )Жанр: House, Euro-HouseПродолжительность: 03:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3C896D3DB964448A293190588FA6EE106E4E9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

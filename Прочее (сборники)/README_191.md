@@ -1,3 +1,119 @@
+###  Публикация: 1800356   (15849) от 02.06.2025
+
+VA - Music News For Forum vol.097 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15849.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. BASKAEVA & Officer Ricky - Огни (03:06)
+ 002. Addison Rae - Fame is a Gun (03:03)
+ 003. Afterline - Cinematic Vibe (03:27)
+ 004. Alejandro Sanz & Shakira - Besame (03:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278AD291E6409F9ED0C7FCE44AE39DB9F00B4997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800491   (15754) от 03.06.2025
+
+VA - Music News For Forum vol.098 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15754.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Enola Cox - Malheureuse (03:05)
+ 002. Aleyna - Wiedersehen (02:18)
+ 003. AMNESIA-17 - Я закидываю (01:49)
+ 004. Ana Mariano - Afinar (Outros) Silencios (03:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A44FE433DA8759D081E4526C47EBD78B86AB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800734   (15565) от 05.06.2025
+
+VA - Music News For Forum vol.099 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. KANARA - Не вспоминая (02:34)
+ 002. 2109 - Загляни мне в душу (03:12)
+ 003. Aikair feat. VIBE KILLA & ПротаGонист & Некий Н. - Врубайся (02:55)
+ 004. Alan Walker - Me Myself and The Night (04:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE81DCE4482CE11B92AC800326304C2CF5536DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800959   (15365) от 07.06.2025
+
+VA - Music News For Forum vol.100 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15365.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Firaya - Cherchez la femme (02:07)
+ 002. 3puten - Жара (03:59)
+ 003. 3333 - ken (02:43)
+ 004. AIMALOV - У зеркала (01:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296725F0BE873195346DDE6CC7F49509C903A70D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801315   (15150) от 09.06.2025
 
 VA - Musical kaleidoscope part 42 Assorted (2025) [MP3|320 Kbps] <Electronic, Instrumental, Sax, Easy listening>
@@ -629,122 +745,6 @@ VA - Music News For Forum vol.105 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09C63EC3D70CAC6F96C442642FFDCB28AF489B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805451   (12322) от 06.07.2025
-
-VA - Music News For Forum vol.109 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12322.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Holy Molly - Talk To You Later (02:57)
- 002. A2CVT - Desire for Me (02:19)
- 003. A9 - Om Klim Hrem Shrem Namah (03:57)
- 004. Aars - Где удача как дым (03:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F3E811BFAFAEEF2D204D886CD8F4C890BE3C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805604   (12306) от 07.07.2025
-
-VA - Дискотека 2025 Dance Club Vol. 229 (2025) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-001. AELYN - Hypnosis (2:49)
-002. James Hype - Drums (feat. Kim Petras, Tiesto) (2:52)
-003. ONEIL, KANVISE, FAVIA - Another Love (2:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676A62FCB90AAD33864092E923F95542B88A6666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805795   (12132) от 08.07.2025
-
-VA - Music News For Forum vol.110 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12132.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Silence The Echo - Don't Give Up (03:59)
- 002. Adept - Heaven (04:21)
- 003. Adept - YOU (04:24)
- 004. Adina Butar - Escape You (03:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473F140B6379D7E8E46ABB5313456D84395B8CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806279   (11810) от 11.07.2025
-
-VA - Music News For Forum vol.111 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11810.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elena Khozberg - Помнишь когда 2.0 (02:46)
- 002. 2hug - In Da Club (01:39)
- 003. 2hug - Двигаться (01:59)
- 004. 2hug - Квартал (01:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456B2AB9EC97070E18AF740C5C8DB1395AD66C35
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1644910   (195986) от 07.07.2023
+
+VA - Club&Dance Летние Треки 2023 Remix NNM [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_195986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kasablanca - In Sequence (Korolova Extended Mix) (6:54)
+02. Depeche Mode - Personal Jesus (The Blockchain Remix) (6:36)
+03. Alice Deejay - Better Off Alone (Tommer Mizrahi Remix) (6:27)
+04. Queen - Radio GaGa (Luca Debonaire Omerta Mix) (5:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0BA39AFB67C5CEFE4488E7929417B052D8693D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645421   (195910) от 09.07.2023
+
+VA - Tik Tok Треки выстрелили летом 2023 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_195910.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Childish Gambino - Me and Your Mama (6:18)
+002. Doja Cat - Kiss Me More (feat. SZA) (5:15)
+003. Frank Ocean - Nights (5:07)
+004. A-Wall - Loverboy (5:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B375AE666A2ED17818A7B9D47FB4314CCBEEB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645087   (195889) от 11.07.2023
+
+VA - Музыка для машины Vol.30 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_195889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aisha - Время Лечит (02:42)
+02. La Zarra Feat. & Katerina Stikoudi - Evidemment (Duet Version) (03:00)
+03. Besomorph Feat. & Mougleta - Heartbreak Fever (03:13)
+04. Rasa Feat. & Nlo - Нагуляться (02:46)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60C3DC4A38B70FAAB8C4BB1246D884CF9EE915B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646616   (195700) от 15.07.2023
+
+VA - ЕвроХит Топ 40 Europa Plus 14.07.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_195700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jax Jones, Calum Scott - Whistle (3:01)
+02. Dj Belite - All Eyez On Me (2:41)
+03. Purple Disco Machine feat. Kungs - Substitution (3:01)
+04. Kygo feat. Paul McCartney & Michael Jackson - Say Say Say (2:55)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F229434483389AB3C510DBDC904C965065EEB91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646212   (195654) от 16.07.2023
+
+VA - Summer Dance Hits 2023 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_195654.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Matt Sassari - Give It To Me - Full Vocal Mix (5:45)
+002. Tensnake - Coma Cat - Purple Disco Machine Re-Work (5:09)
+003. Borai & Denham Audio - Make Me (4:58)
+004. Farruko - Pepas (4:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4213A0A6151421DDA3FE9EBC64753039AF381C8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647115   (195643) от 17.07.2023
+
+VA - Modern Rock (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_195643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Verve - Bitter Sweet Symphony (6:00)
+02. The 1975 - Somebody Else (5:47)
+03. Cage The Elephant - Cigarette Daydreams (5:27)
+04. The 1975 - About You (5:26)(   Читать дальше...   )Жанр: RockПродолжительность: 04:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7430C186182E820B7AA5266F0653166054671738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647486   (195549) от 19.07.2023
 
 VA - Heavy Blues (2023) 2CD [MP3|320 Kbps] <Blues, Heavy Blues, Dark Blues>
@@ -570,180 +744,6 @@ VA - Понемногу отовсюду by Yuridar #K (1973-2020) Compilation A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4CFA9D62EBE875CA9E5FC2BF9816614431D43F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640782   (193648) от 27.08.2023
-
-VA - Виниловый бублик (1901-2019) [MP3|128-320 Kbps] <Classic, Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оффлайн-копия музыкальной коллекции с удалённого YouTube канала Виниловый бублик / UCxS1inqcdR8Zwf2x5CzAjjA
-
-Канал "Виниловый бублик" был открыт в 2017 году и посвящался записям на виниловых пластинках.
-За 6 лет работы канала было опубликовано более 4 тысяч аудиозаписей.(   Читать дальше...   )Жанр: Classic, Pop, RockПродолжительность: 1250:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423AAD3102B5930012DEFE0E74B28EF5F71EDD62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828049   (193612) от 23.10.2025
-
-Jumanov - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Disorder
- 02 - Feel Fresh
- 03 - Action
- 04 - Remember Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECAB22AF683FC2BE4618C9DB069313E21C6FBF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828352   (193404) от 24.10.2025
-
-VA - Musical kaleidoscope part 59 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, AI>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Echønova - Relaxing and Soothing Melody
-02 - Giovanni Marradi - Solitude
-03 - Novi - A Shadow of You (Remix)
-04 - Giovanni Marradi - Because I Love You(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, AIПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D28781B0E7DC8A2DDD34BA109AAEC49BD83A5FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828745   (193402) от 24.10.2025
-
-VA - Anything and everything assorted part 8 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, AI, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dova Music - Hold Me Tonight
-02 - Jumanov - October
-03 - Mr Salama - Feel Your Love
-04 - Stive Morgan - Chicago Plus(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, AI, OtherПродолжительность: 01:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCE753A8EDDAED00CAA0BE74BBF1E6FDFF14859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827776   (193287) от 23.10.2025
-
-VA - Anything and everything assorted part 7 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Besso - Pulse
-02 - Azimov - Long Night
-03 - Elno - More Time
-04 - Mr Salama - Touch Me(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40EA42E7A76A39CF1501904D0F2FF8309AADFA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827774   (193286) от 23.10.2025
-
-VA - Anything and everything assorted part 6 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Retrox - Whispers By the Shore
-02 - Dndm - Gray Night
-03 - Dova Music - Empty Heart
-04 - Umar Keyn - Like a Titanic(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93B5971232A0818E604E0FD91F9B0D835187D06
 ```
 
 https://mybot314.ru/tekegram_catalog/

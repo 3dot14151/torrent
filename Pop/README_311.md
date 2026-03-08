@@ -1,3 +1,61 @@
+###  Публикация: 969405   (146404) от 27.12.2015
+
+Профессор Лебединский - 1995-2015: 20 лет (2015) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я убью тебя, лодочник
+02. Падает снег
+03. Зато меня любят таксисты
+04. Я никому не скажу (Зима)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BF664F8E04A365009B8931C38A1C6F5B7AE2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348220   (146340) от 26.12.2019
+
+Drezden - Эдельвейс (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146340.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ЭДЕЛЬВЕЙС
+2. ДАВИДА ОЛЕНЬ
+3. О'ХЕНРИ
+4. АЛАДДИН(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89F5721B6E3B1046F8AD6486128EBC9B42128E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087426   (146299) от 27.12.2016
 
 Sarah Brightman - Gala: The Collection (2016) Limited Edition [MP3|320 Kbps] <Pop, Classical, Contemporary>
@@ -683,64 +741,6 @@ VA - 100 Greatest Workout Songs (2019) [MP3|320 Kbps] <Pop, Rock, EDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C9D43C6F73D8499340A4CD93A60F08CD61A568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348412   (144718) от 27.12.2019
-
-VA - 100 Greatest Ballads (2019) [MP3|320 Kbps] <Pop, Rock, Ballads>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144718.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Prince - Purple Rain 8:41
-002. Coldplay - Everglow 3:48
-003. Foreigner - I Want To Know What Love Is (2013 Remaster) 5:06
-004. Spandau Ballet - True (Single Edit) 5:28(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 06:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E91BFF3D8F2DAEC1B6D61B5A5BEE7D3FA70E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348223   (144678) от 27.12.2019
-
-E-Rotic - Thank You For The Music (1997) [MP3|320 Kbps] <Europop, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (3:02)
-02. The Winner Takes It All (4:43)
-03. Angel Eyes (4:24)
-04. Fernando (4:16)(   Читать дальше...   )Жанр: Europop, EurodanceПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66743B434DE3DF88829419D34320116F40BBB02B
 ```
 
 https://mybot314.ru/tekegram_catalog/

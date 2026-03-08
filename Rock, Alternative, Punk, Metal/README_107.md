@@ -1,32 +1,3 @@
-###  Публикация: 1471884   (1014838) от 22.05.2021
-
-Borgne - Temps morts (2021) [MP3|320 Kbps] <Industrial Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - To Cut the Flesh and Feel Nothing but Stillness [00:05:50]
-02 - The Swords of the Headless Angels [00:09:31]
-03 - L’Écho de mon Mal [00:08:11]
-04 - Near the Bottomless Precipice I Stand [00:08:01](   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F702942CDCDBBE21B7BFD9C0E70959F70AE654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471898   (1014834) от 22.05.2021
 
 DeadLights - 3 Albums (2017-2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
@@ -744,6 +715,37 @@ Dawn Of Dusk - Flight Trajectory (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45361BCD80AA96FE46F4478D60EAA9139F75AACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472213   (1014468) от 24.05.2021
+
+Virgin Steele - Seven Devils Moonshine (2018) Box Set, 5xCD [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014468.jpg" />
+</div>
+
+
+###  Подробнее
+
+VIRGIN STEELE отпраздновали свое 35-летие выпуском пятидискового бокс-сета "Seven Devils Moonshine". Он увидел свет 23 ноября 2018 года и содержит, в общей сложности, 88 треков.
+
+Дэвид рассказывает: "Как некоторые из вас, возможно, знают, в последние несколько лет мы постепенно переиздавали бэк-каталог VIRGIN STEEL, добавляя к различным переизданием (   Читать дальше...   )CD - 1 - Ghost Harvest - Vintage 1 - Black Wine For Mourning:
+01. Seven Dead Within (8:00)
+02. Green Dusk Blues (7:42)
+03. Psychic Slaughter (5:58)(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 06:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751FCD529D389D65F7C7BB0139EB48929BA6E6FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

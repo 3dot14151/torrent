@@ -1,3 +1,61 @@
+###  Публикация: 1450793   (1028419) от 01.03.2021
+
+Beach Club Records Label Pack (2012-2021) Ken Martina (Kennard van der Bijl), et cetera [FLAC|16-24/44.1|tracks|WEB-DL] <Italo-Disco, Dance, Eurobeat>
+
+>>Pop
+>>Eurodance, Disco (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casanova - Angel Eyes (Full Extended) (7:47)
+02. Alan Brando - Once Upon a Time (Vocal Version) (9:34)
+03. Ken Martina - Cinderella (Vocal Extended Mix) (7:40)
+04. Ken Martina - My Love Is Forever (Extended Mix) (6:18)(   Читать дальше...   )Жанр: Italo-Disco, Dance, Hi-NRG, Eurobeat, Synthpop •Продолжительность: 321:01:58Kennard van der Bijl - более известный под одним из своих псевдонимов как Кен Мартина. Голландский исполнитель, композитор и продюссер. Основатель студии Beach Club Records. Пишет музыку в стилях итало-диско и итало-дэнс. Практически все песни он же и исполняет, под разными псевдонимами. Кроме Кеннарда в записях принимают участия ещё две бэк-вокалистки Annemarie (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420C509D12EB41D52206382785CA66B0A5E89174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451326   (1028358) от 02.03.2021
+
+Star Sisters - Hooray For Hollywood  (1984) Reissue, 2005, 2000 FruitGum Corp[FLAC|Lossless|image + .cue] <Disco, Swing, Funk / Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	A Tribute To Marilyn Monroe	4:21
+-	My Heart Belongs To Daddy
+-	I Wanna Be Loved By You
+-	Diamonds Are A Girl's Best Friend(   Читать дальше...   )Жанр: Disco, Swing, Funk / SoulПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084F0CBA56CE9A964639C5757502C976C304C468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451486   (1028342) от 02.03.2021
 
 VA - New Italo Disco Top 25 Compilation, Vol. 15 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance, Eurobeat>
@@ -687,64 +745,6 @@ Caravelli (12.09.1930, Paris, France – 1.04.2019, Cannet, France) - руков
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC266457423E038F89A6D7AB0086A68D61B4C713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453391   (1027062) от 10.03.2021
-
-Selena Gomez - Revelacion (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Una Vez 2:36
-02. Buscando Amor 3:08
-03. Baila Conmigo (With Rauw Alejandro) 3:06
-04. Damelo To' (Feat. Myke Towers) 3:04(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF94161186DB48C7DF9E8A8ED4B8E19A1D7003BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453409   (1027045) от 10.03.2021
-
-Imperio - Best of Imperio (2020) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Dreampop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amor Infinitus (Album Version) (4:55)
-02. Veni Vidi Vici (Radio Mix) (3:52)
-03. Cyberdream (Cyber Video Mix) (4:54)
-04. Never Go Away (4:28)(   Читать дальше...   )Жанр: Eurodance, DreampopПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0BA31FA4240A07A3F1171AF80A094283D98B3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1212194   (776510) от 10.03.2018
-
-Armored Dawn - Barbarians In Black (2018) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776510.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beware of the Dragon (4:39)
- 2. Bloodstone (3:47)
- 3. Men of Odin (4:09)
- 4. Chance to Live Again (4:01)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9AE328FBCBA52233C1DB5A0AF98A8910FE5791A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212147   (776505) от 10.03.2018
 
 Магелланово облако - Поворот колеса (2018) [MP3|320 Kbps] <Rock>
@@ -739,6 +710,35 @@ VA - антиАрмия: Нам не нужна война (2018) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C010924E2C58D2DBB34277A0FFD3E509D358E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015113   (775719) от 09.05.2016
+
+Around The World In 80 Days - Genesis (2015) [MP3|320 кб/с] <Post Rock, Electronic Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At First
+02. New Horizons
+03. Star's Breath
+04. Prototype(   Читать дальше...   )Жанр: Post Rock, Electronic Rock, InstrumentalПродолжительность: 00:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A337E6021A881DA99482DD9A47771B85D607D3C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

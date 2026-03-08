@@ -1,3 +1,32 @@
+###  Публикация: 1216392   (751368) от 30.03.2018
+
+Bill Barron - A Swedish - American Venture (1966 - 1984) 2002, Dragon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Variations In Blue [07:28]
+02. Bill Barron Speaks [00:31]
+03. A Swedish-American Adventure [05:46]
+04. Through The Looking-Glass [13:20](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50489F9800D8EE577CBCF931181ECD85A6BEE4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216405   (751212) от 30.03.2018
 
 Shakatak - Invitations (Expanded) (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz, Jazz Funk>
@@ -714,35 +743,6 @@ Anita O'Day - The Complete Recordings (1949 - 1950) 1997, Baldwin Street Music [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCF36E3F57BC77E77420EBE9CAC3A9BB74792E09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524002   (746634) от 14.01.2022
-
-Ayako Hosokawa - Call Me (1979) 1989, Three Blind Mice [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scotch and Soda [4:17]
-02. Call Me [4:25]
-03. Love Is Here to Stay [2:55]
-04. Just the Way You Are [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F19B2579111988D765E491259FB3000F97B683A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

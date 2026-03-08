@@ -1,3 +1,90 @@
+###  Публикация: 1018217   (757629) от 19.05.2016
+
+Tripswitch - Vagabond (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way Home (08:45)
+02. Divine Falsehood (08:33)
+03. Vagaries (07:06)
+04. Glass Heart (08:14)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1CCF7FC0598A4A05A78FB8E683457C6A2FB166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280874   (756978) от 05.02.2019
+
+VA - Jeju 濟州 (2019) Oslated [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyme – Biyangdo 비양도 (08:00)
+02. Earthen Sea – Seolmundae 설문대할망 (07:49)
+03. Asymmetric – The Rain & The Storm (07:53)
+04. Alume – Hy'naku (06:23)(   Читать дальше...   )Жанр: Ambient, TechnoПродолжительность: 02:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24493A2C80CF6818E554847362C20B455432AF5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280877   (756975) от 05.02.2019
+
+Downscope - Sojourn in Canaan (2019) alternating.bit music [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sojourn Initium (32:39)
+02. Sojourn Consummavi (23:13)
+03. Sojourn Ultimo (29:43)
+04. Sojourn Deinde (24:34)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 02:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E56A8E122D1D70FBFCBC2375EC8E69756F791B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215797   (756735) от 27.03.2018
 
 Dirty Vegas - Electric Love (2011) Om Records [FLAC|Lossless|tracks + .cue] <House, Pop>
@@ -651,93 +738,6 @@ DAVI - Metanoia EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ECAB92B313E2AA89868ED64C07F0467B6E37886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397272   (741371) от 19.07.2020
-
-Phil Stroud - Australiana (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Deep House, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Australiana (07:50)
- 02. Zamia Trail (06:02)
- 03. Morning Breeze (07:16)
- 04. Eucalyptus (08:36)(   Читать дальше...   )Жанр: Ambient, Deep House, Dub TechnoПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90220EFAA5E8E1F57B0380D304B640AADC6ACC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126820   (741119) от 20.04.2017
-
-VA - Chriss Ronson - Focus: 003 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chriss Ronson - One Shot (original mix) (07:00)
-02. Onur Ozman - There's No Shame (Chriss Ronson's Cre8tion remix) (07:00)
-03. Chriss Ronson - Bamboo Basket (original mix) (06:41)
-04. Chriss Ronson - Razbora (original mix) (06:43)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B51F0236FFD8CBBFC6B5D4432282BCA0F6D583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283097   (741050) от 15.02.2019
-
-Monoplay - Octopus (2019) Nopassport Records [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Journey (Original Mix) (6:21)
- 02. See You (Original Mix) (7:03)
- 03. So Far (Honestly) (Original Mix) (5:32)
- 04. Octopus (Original Mix) (3:46)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0AB59CE6042B4CC65583F808D382CF0CEBF985
 ```
 
 https://mybot314.ru/tekegram_catalog/

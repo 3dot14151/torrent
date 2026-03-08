@@ -1,32 +1,3 @@
-###  Публикация: 1449939   (1029584) от 23.02.2021
-
-Alan Waters - Пластилин: первый набор цветов (2021) [MP3|320 Kbps] <Alternative, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029584.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пластилиновые сны (Пролог)
-2. Пластилин
-3. Блокпост
-4. Роспись ветра(   Читать дальше...   )Жанр: Alternative, ElectronicПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE78059D339804058454EECBF1FE2E996A59A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449761   (1029583) от 23.02.2021
 
 Broken Silence - Shout It Out Loud (1994) [FLAC|Lossless|image + .cue] <Rock, AOR, CCM>
@@ -745,6 +716,35 @@ Arabia - Welcome To The Freakshow (2011) [FLAC|Lossless|image + .cue] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3765B3193D96D5E5B0CFEAC7F42CC1C15383E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450124   (1029224) от 25.02.2021
+
+Кайтэн - Рейс №8 (2021) EP [MP3|320 Kbps] <Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рейс №8 [00:02:42]
+02 - Искать [00:04:47]
+03 - Цветы [00:03:36]
+04 - Город спит [00:03:12](   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B882844D0408169ED25946D87F7B5CEF61C5C775
 ```
 
 https://mybot314.ru/tekegram_catalog/

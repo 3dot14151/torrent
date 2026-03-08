@@ -1,3 +1,61 @@
+###  Публикация: 1179326   (349347) от 31.10.2017
+
+VA - Suanda Acoustic Collection 2 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer & Eric Lumiere - Closer (R.I.B Chillout Remix) 6:15
+02.  Natune & Frainbreeze - When You Find Me (Bryan Milton Chillout Remix) 5:30
+03.  NoMosk & Lucid Blue - Inside The Fire (Seven24 & Soty Chillout Remix) 4:19
+04.  CubeTonic feat. Dilara Gadel - So Strong (Soty & Seven24 Remix) 5:00(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503200881AA6F619205123E80EE54FD18C28200D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179434   (349341) от 31.10.2017
+
+VA - Chill-Out Cafe (30 Beautiful Relaxed Anthems), Vol. 1 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jane Maximova - Clouds
+02. Marcus Koch - Midnight Chill
+03. Collioure - Child Again
+04. Lemongrass - Deep River (feat Jane Maximova - Stuce The Sketch remix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFA1E670271DF083DE5662DA229ACC6A6891EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418384   (349296) от 24.10.2020
 
 VA - Summer Tales EP (2020) 20:21 [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Dub>
@@ -678,64 +736,6 @@ Derek Palmer - Gemini (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AB4425B2105F0C94973DDE7F92E55AD2FC43733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257208   (347482) от 25.10.2018
-
-VA - Psychedelic Adventures Vol 3 (Selected by Aesis Alien) (2018) [MP3|320 Kbps] <Psy-Trance,Goa-Trance >
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aesis Alien - Enjoy Your Freedom (Akuaryo Remix) (06:59)
-02. Raf Fender - Lost In Translation (06:46)
-03. Serenity Flux & Mind Sense - Mantraddiction (08:00)
-04. Filthy Noise - Mind Fight (07:06)(   Читать дальше...   )Жанр: Psy-Trance,Goa-TranceПродолжительность: 01:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676D89EDDF4596A19A5E89B9C07A3A5E69D0C6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798912   (347286) от 07.10.2019
-
-Vladimir Fonarev (Володя Фонарёв) - 21 Compilations (1997 - 2017) [MP3|320 кб/с]<Trance, House, Breaks, Psy-Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fonarev - JOOF DJ Sessions, Vol. 4 (Pt. 1) (01:08:32)
-02. Fonarev - JOOF DJ Sessions, Vol. 4 (Pt. 2) (01:00:16)
-03. Amagra - Tequila Sunrise (07:31)
-04. Metronome - Sadhana (07:22)(   Читать дальше...   )Жанр: Trance, House, Breaks, Psy-TranceПродолжительность: 05:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89265B8BD7AF9F5119CB5873E562D3F611751D57
 ```
 
 https://mybot314.ru/tekegram_catalog/

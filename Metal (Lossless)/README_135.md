@@ -1,3 +1,90 @@
+###  Публикация: 1560931   (517647) от 02.07.2022
+
+Shining Black - Postcards From The End Of The World (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Postcards From The End Of The World (3:48)
+02. Higher Than The World (5:45)
+03. We Are Death Angels (4:52)
+04. Summer Solstice Under Delphi's Sky (4:29)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185E6AE25730CF5200E84C008589E9859C767CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241968   (517188) от 20.08.2018
+
+Fervent Hate - Tales Of Hate, Lust And Chaos (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evil Twins (5:12)
+ 02. Death Is Written by Itself (3:44)
+ 03. Ten Inches of Love (4:32)
+ 04. Last Night of Pleasure (2:54)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E66BFF106D30428E43B446F2CBCCC99C519FC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929935   (517126) от 21.08.2015
+
+Disturbed - Immortalized (2015) Deluxe Edition [FLAC|tracks+.cue]<Alternative / Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Eye Of The Storm [1:21]
+02. Immortalized [4:18]
+03. The Vengeful One [4:12]
+04. Open Your Eyes [3:57](   Читать дальше...   )Жанр: Alternative / Nu MetalПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F84B2D1547468870E98B43476BA1C8E4E0F6350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241973   (517099) от 20.08.2018
 
 Atrocity - Okkult II (2018) [FLAC|Lossless|tracks + .cue] <Death Metal>
@@ -678,93 +765,6 @@ Profetus - As All Seasons Die (2014) EP [FLAC|Lossless|image + .cue] <Funeral Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:703547F522E731D8C2F879ACF01FA7577814F105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561650   (513672) от 06.07.2022
-
-The Troops of Doom - The Rise of Heresy (2020) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Whispering Dead Words (00:05:20)
-02 - Between The Devil And The Deep Blue Sea (00:03:39)
-03 - The Confessional (00:03:35)
-04 - The Rise Of Heresy (00:03:25)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E661882CA7F4DC7F479C4496790354F66B9CABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561611   (513671) от 06.07.2022
-
-The Troops Of Doom - Antichrist Reborn (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dethroned Messiah (00:04:41)
-02 - Far From Your God (00:05:05)
-03 - Altar of Delusion (00:04:14)
-04 - Grief (00:01:05)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61447C9575BA048DF043C06EBCF36A7ACC747966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561618   (513670) от 06.07.2022
-
-Thy Kingdom Will Burn - The Void and the Vengeance (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Between Two Worlds (00:04:29)
-02 - Disbelief (00:04:31)
-03 - Veil of Wicked Sky (00:04:54)
-04 - Fortress of Solitude (00:05:29)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EFD82499326124A81843FEEBA79F97CEFE5F7AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

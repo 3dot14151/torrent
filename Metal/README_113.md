@@ -1,30 +1,3 @@
-###  Публикация: 478850   (99173) от 10.04.2012
-
-Canvas Solaris - Irradiance (2010) [MP3|320 кб/с]<Instrumental Progressive Technical metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99173.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adaptive Optics (04:15)
-2. Conveyance Of Flux (05:40)Жанр: Instrumental Progressive Technical metalПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05790455A7CD4BDB69E1B4CAD37D65D74E4DA54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480183   (99078) от 09.04.2012
 
 Blotted Science - 2 Albums (2007 - 2011) [MP3|320 кб/с]<Instrumental/Progressive/Technical Death Metal>
@@ -864,6 +837,41 @@ Jungle Rot - Kill On Command (2011) [MP3|320 кб/с]<Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D6F3250A978175C949D44821914669F66C92E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459880   (95479) от 04.03.2012
+
+Onkel Tom Angelripper - Nunc Est Bibendum (2011) [MP3|320 кб/с]<Thrash Metal, Beer Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nunc Est Bibendum (02:47)
+02. Wenn Der Zapfhahn Kraeht (03:45)
+03. Auf Immer Und Ewig (04:48)
+04. In Junkers Kneipe (02:58)
+05. Format C (04:15)
+06. Bier (03:51)
+07. Wie Das Glas In Meiner Hand (02:31)
+08. Lemmy Macht Mir Mut (02:38)
+09. Bon Scott Hab Ich Noch Live Gesehen (04:06)
+10. Schade, Dass Man Bier Nicht Ficken Kann (02:59)(   Читать дальше...   )2011Жанр: Thrash Metal, Beer Metal, MetalПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53DDA1BB85D3C81EC6177EC7AB6D4C1E691D369
 ```
 
 https://mybot314.ru/tekegram_catalog/

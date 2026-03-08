@@ -1,3 +1,32 @@
+###  Публикация: 1835778   (251912) от 07.11.2025
+
+Backstreet Boys - A Very Backstreet Christmas (Deluxe Edition) (2022)(2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - White Christmas (02:45)
+ 02 - The Christmas Song (03:41)
+ 03 - Winter Wonderland (01:41)
+ 04 - Have Yourself A Merry Little Christmas (03:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E692AA2D7A5B9DE92B09B24620EC649724FF469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835294   (250972) от 05.11.2025
 
 Kristian Torgalsen - 2 Albums (2023-2025) [FLAC 24/44.1, FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
@@ -719,35 +748,6 @@ VA - I Love The 90's 10 Years Anniversary Edition (2017) 5CD, Compilation [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5BFBE6BAB3D8B74E8E91133088EE2D973CAECD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632300   (244316) от 09.05.2023
-
-Shakin' Stevens - Re-Set (2023) [FLAC|Lossless|image + .cue] <Pop-Rock, Rock 'N' Roll>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George
-02. Not in Real Life
-03. It All Comes Round
-04. May(   Читать дальше...   )Жанр: Pop-Rock, Rock 'N' RollПродолжительность: 00:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96185A536A4FBD8977601E659501A3635F8A9B10
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 990792   (909922) от 26.02.2016
+
+VA - Sunrise Lovers Vol.2: 20 Relaxing Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UK One - Levitate
+02. Sarah Martin - Paradise
+03. James Walden - Maria Maria
+04. Lounge Surfers - Angel(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEBE10F93AA872249E6FC7BB2A9E14C5AD9A720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990691   (909757) от 26.02.2016
 
 VA - Bass Killer 3 (2016) [MP3|320 кб/с] <Electro House, Dubstep, Electro>
@@ -716,35 +745,6 @@ VA - LUXEmusic Топ Февраль (2016) [MP3|320 кб/с] <Club House, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:937B7E0E5E8EB82FAA65D29AC62B64AFB2E86C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991349   (906065) от 28.02.2016
-
-VA - Record Super Chart № 425 (2016) [MP3|128-320 кб/с] <Club House, Electro House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kadebostany - Teddy Bear (Astero Remix)
-02. Sander Van Doorn, Moti - Lost
-03. Major Lazer, Nyla, Fuse ODG - Light It Up
-04. KSHMR, Marnik - Bazaar!(   Читать дальше...   )Жанр: Club House, Electro House, DanceПродолжительность: 1:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE3DEFD41AAB24352402BE260526F1DA39C5200
 ```
 
 https://mybot314.ru/tekegram_catalog/

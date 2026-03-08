@@ -1,3 +1,60 @@
+###  Публикация: 1288781   (694079) от 12.03.2019
+
+Camouflage - A Disco Symphony (1977) LP [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Disco Symphony (14:49)
+02. Take A Ride (9:15)
+03. Bee Sting (7:42)Жанр: DiscoПродолжительность: 00:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47F9AA7BF6F8B1B46D1879F781E95513CAF6E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288750   (694077) от 12.03.2019
+
+VA - All The Hits In Discotheque (1977) 2LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Blood - Soul Dracula (3:01)
+02. Banzaii - Chinese Kung Fu (3:16)
+03. Hot Blood - Baby Frankie Stein (4:53)
+04. Jimmy James - Disco Fever (4:13)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 01:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F736155F2BD6466E199377C6EA3F9FDA55DF7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288681   (694055) от 12.03.2019
 
 VA - Latino - 30 Summer Hits (2019) [MP3|320 Kbps] <Salsa, Pop, Latin Dance, Reggaeton>
@@ -680,64 +737,6 @@ IL - 2 Albums (2014, 2015) [MP3|320 кб/с] <nu-disco, disco house, french disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56265CB294504452EF84328AED323EC34242535D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535011   (690525) от 04.03.2022
-
-Bryan Adams - Pretty Woman - The Musical (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Hollywood (3:38)
-02. Anywhere But Here (2:58)
-03. Something About Her (2:33)
-04. Luckiest Girl In The World (2:57)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2020A7D9599DEB5F793B6B8B1F8CB8E5A1B6FA6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534878   (690518) от 04.03.2022
-
-VA - GANGSTER MUSIC, Vol. 5 (2022) [MP3|320 Kbps] <Eurodance, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ONEIL/KANVISE - Requiem
-2. TRITICUM - The Spell
-3. Dj Quba/Sandra K - Flame Me
-4. Kitness - Time Will Come(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665E0E0A46799A50BCB47C685C8E5971F7045FDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

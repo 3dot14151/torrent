@@ -1,3 +1,180 @@
+###  Публикация: 1231967   (602389) от 23.06.2018
+
+DJ AFRO - InterPopHeroes (2018) [MP3|320 Kbps] <TecHouse, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602389.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mauro Picotto - The Whistle
+2. Jonathan David Matt McLarrie - Flamingo Hotel Hauswerks Remix
+3. D-Unity - Burn in Hell
+4. Veerus Maxie Devine - Bitch Please(   Читать дальше...   )Жанр: TecHouse, TechnoПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2554E5F57A55DE69F3613CE42D9CD0350FB358EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232241   (602312) от 23.06.2018
+
+VA - German Top 100 Single Charts 22.06.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602312.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Namika - Je ne parle pas français (feat. Black M) (Beatgees Remix)
+002. Pietro Lombardi - Phänomenal
+003. Clean Bandit - Solo (feat. Demi Lovato)
+004. Calvin Harris & Dua Lipa - One Kiss(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57260F0CA0AF65B2D18D8758A87B0D122E761E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232211   (602234) от 23.06.2018
+
+VA - Hits of My Soul Vol. 38 (2018) [MP3|320 кб/с]<House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Deidian - Zanzibar (Original Mix) (06:49)
+02. Sunlight Project - Prog & Roll (Original Mix) (06:57)
+03. 7herapy - Summer In Her Eyes (Michael Rehulka Remix) (05:43)
+04. Blissful Waves - Meriva (Rick Siron Remix) (07:30)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4306B4CA6D4CE2DA7ED1E36D1DC2A7823F92A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298101   (602181) от 26.04.2019
+
+VA - Hardstyle Dance Extra Mixes (2019) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602181.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Streiks & Kratchs - Project Kaos
+002. Crypsis & D-Fence - Vol Gas Met Die Bas
+003. Dj Mad Dog - Babylon Dead
+004. Ruffneck Aka Dj Ruffneck - Napalm(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, Electro, EDMПродолжительность: 08:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A7564F02285FD604B4FBD29D9F134AB0A2703D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298099   (602171) от 26.04.2019
+
+VA - Bassline Megamix: Spring Party (2019) [MP3|320 Kbps] <Drum And Bass, Dubstep, Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602171.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anile - Earth & Mars
+002. Fishy - Suspense (Original Mix)
+003. Hoover1 - Hoover1A
+004. Dj Tiny M - Sanity Killz Dat (Original Mix)(   Читать дальше...   )Жанр: Drum And Bass, Dubstep, BassПродолжительность: Drum And Bass, Dubstep, Bass
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0441F44A51BD824376383D40B96B6F5069D95FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298231   (602159) от 26.04.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 26.04.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ava Max - Sweet But Psycho (3:07)
+02. Ariana Grande - 7 Rings (2:58)
+03. Aaron Smith feat. Luvli - Dancin (Krono Remix) (3:17)
+04. Lil Peep & XXXTentacion - Falling Down (3:16)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4062B2F593AA8619D722A3AECEC63FE588DE7762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298100   (602068) от 26.04.2019
 
 VA - Deep House Republic Mix (2019) [MP3|320 Kbps] <Deep, Soft House, Electro>
@@ -571,180 +748,6 @@ VA - Beatport Top 100 House June (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF567E0D5A2363A25C6793F8DA37B8E1DE8BA43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913460   (600995) от 30.06.2015
-
-Moby - Best275z (1992-2013) [MP3|320 кб/с]<Electronic, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go
-02. Electricity
-03. Bad Days.
-04. Sound(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 05:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063A33547E6C383639A4E45A3C92558FFE102556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149464   (600976) от 10.07.2017
-
-VA - Record Super Chart #494 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tiesto & Sevenn - Boom  3:03
-02.  Yellow Claw & Moksi feat. Jonna Fraser - Open  3:31
-03.  C-BooL - Never Go Away  3:49
-04.  Scooter - Bora! Bora! Bora!  4:00(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD82CE593F13FE1B651AC65E097A0E060818824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913980   (600939) от 30.06.2015
-
-VA - Лучшие новинки июня 2015 от Zaycev.net (2015) [MP3|160 - 320 кб/с]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muse - Reapers (05:59)
-02. Bon Jovi - Beautiful Day (03:50)
-03. Уматурман - Нарисованная (03:10)
-04. Юлианна Караулова - Ты Не Такой (03:16)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 02:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AB49465B4D19FBE1964112FDAED6F3D7267281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149337   (600912) от 10.07.2017
-
-VA - Лето Безлимит: Русский Популярный Микс (2017) [MP3|256-320 Kbps] <Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600912.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artik & Asti - Тебе Одному 03:53
-002. MBAND - Правильная Девочка 03:36
-003. Егор Крид - Стой 03:34
-004. Azira - Всё Для Тебя 03:50(   Читать дальше...   )Жанр: РорПродолжительность: 11:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0580B598524305E765469DDDFD02018420DAB06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299106   (600840) от 30.04.2019
-
-VA - не Громкие новинки недели 13 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthony El Mejor - Целуемся (3:33)
-02. Asammuell - Молчим (3:39)
-03. Demo & Love T - Осознанно (Для Тебя) (3:50)
-04. Diana Wilder - Станция Мы (3:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16D95010FA47682562346B2F8A7AA0D00D76BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914010   (600364) от 01.07.2015
-
-VA - Дрожит струна Суперхиты Радио шансон (2015) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600364.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Даниил Сорокин - Облом
-002. Катерина Голицына И Гарик Кричевский - Тест На Любовь
-003. Инна Улановская - Казацкая
-004. Сергей Родня - Роза(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5662C51A859D9C4FB7D6BA1531C4A937D560612
 ```
 
 https://mybot314.ru/tekegram_catalog/

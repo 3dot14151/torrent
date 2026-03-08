@@ -1,3 +1,32 @@
+###  Публикация: 940643   (61334) от 30.03.2024
+
+Владимир Захаров (Рок-Острова) (24 альбома) (1997-2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attraction Force 01
+02. Attraction Force 02
+03. Attraction Force 03
+04. Attraction Force 04(   Читать дальше...   )Жанр: ElectronicПродолжительность: 1:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FCB9072267719AF456567B7A26619797131C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711039   (61301) от 30.03.2024
 
 Линда - Лучшее (1994-2020) [MP3|320 Kbps] <Alternative Rock, Downtempo, Pop Rock>
@@ -716,35 +745,6 @@ VA - Electronic compilation part 78 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D11B880C4FED888A4C8D85B0C604221F74E36CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725663   (55407) от 25.05.2024
-
-VA - Electronic compilation part 80 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Menda - Believe
-02. Cooldeep - Bodrum
-03. Elno - Call Me
-04. Ramseen - Desire(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E102E4AD22884C149F7E53A7090D461763230C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1725798   (55301) от 26.05.2024
+
+Vintage Culture - Promised Land (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96281DE4FC39AA3443A6F18A47C060A611FE71A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726597   (54978) от 29.05.2024
+
+VA - Chillout & Lounge Music 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innate Joy - Rhyming Games (4:22)
+02. Fuchsgang - Thrilling Moments (4:22)
+03. Achtamada - Gelbe Ruabn (4:15)
+04. Silex Soils - Outgoing Nature (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2123F2851C2B059F6D40F9A845355B752302A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726357   (54975) от 29.05.2024
 
 Dirtyphonics - Magnetic (2024) [FLAC|Lossless|WEB-DL|tracks] <drum & bass, drumstep>
@@ -687,64 +742,6 @@ LazyboyProactive - Runaway (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Chill 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A0C01AE6284E6B2CC70EB60B19E20969C776A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732581   (52023) от 25.06.2024
-
-Whole - Hydra (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beast [00:04:28]
-02. Sudden Hydra [00:04:21]
-03. Ten Commandments [00:05:50]
-04. Dead Deer [00:04:03](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC381DA122676EC33063269E71F637194B2C0CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732548   (52021) от 25.06.2024
-
-VA - Lounge Heaven, Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Sanctuary (4:54)
-02. Marc Hartman - Angels In The Sky (5:16)
-03. Artur Bayramgalin - November Night (Jazz Hop Version) (4:06)
-04. Luis Hermandez - Endlessly (3:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD9117E95A2D160EE9BB417C94BED344E87D9BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

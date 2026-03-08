@@ -1,3 +1,189 @@
+###  Публикация: 516708   (651943) от 29.06.2012
+
+VA - Trance In Motion vol.118 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Vocal Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Poshout feat. Ange - Beside (Sunset Extended)
+02.Allure feat. Emma Hewitt - Stay Forever (Extended Mix)
+03.ATB feat. Ramona Nerra - Never Give Up (Clubmix)
+04.Tenishia feat. Jan Johnston - As It Should (tyDi Remix)
+05.Will Holland feat. Jeza - Every Heartbeat (Beat Service Remix)
+06.Cosmic Gate & J'something - Over The Rainbow (Extended Mix)
+07.Xtigma feat. Sarah Russell - Take Your Hand (Summer Remix)
+08.Ignas feat. Julie Thompson - Hold On (Original Mix)
+09.Sean Tyas - Lekta (Original Mix)
+10.Mark Bester - Colors Of Summer (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B1DF6F2EF991BBFC997893ABB6015C5D997464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516384   (651935) от 29.06.2012
+
+VA - Танцевальный рай 29 (2012) [MP3|192 кб/с]<Pop-Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aura Dione - Friends
+ 02. Junior Caldera feat. Natalia Kills & Far East Movement - Lights Out (Radio edit)
+ 03. Bob Sinclar feat. Sophie Ellis Bextor & Gilbere Forte - Fuck With You
+ 04. Michael Mind Project Feat. Bobby Anthony & Rosette - Rio de Janeiro (Radio Edit)
+ 05. Avicii - Levels
+ 06. Global Deejays - Hardcore vibes (Radio Edit)
+ 07. DJ Fresh feat. Rita Ora - Hot Right Now (Radio Edit)
+ 08. Bel Suono & Dj Magic Finger - Te Quiero (Vocal Mix)
+ 09. Fonzerelli feat. Ellenyi - Moonlight Party (Radio Edit)
+ 10. Javi Reina & Alex Guerrero feat. Syntheticsax - Oig (Radio Edit)(   Читать дальше...   )Жанр: Pop-DanceПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F27C04FD6FF20F12F631C7B82FF5991135C311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031548   (651805) от 04.07.2016
+
+VA - Русская Дискотека ХХ Века - 21 (2010) [MP3|256-320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иванов Александр - Боже, Какой Пустяк ( 1994 )
+02. Дуэт - Домик У Моря ( 1989 )
+03. Земфира - Непошлое ( 1998 )
+04. Кузнецов Алексей - Обманщица ( 1996 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA66F76E8D25E3E757B8044335DCAD881F4A061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031463   (651804) от 04.07.2016
+
+VA - Trance Collection Vol.47 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651804.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Armin van Buuren Extended Remix) 6:11
+002. Talla 2XLC & Jilliana Danise -  What Could Be Better (Original Mix) 6:23
+003. Bobina & Kyle Richardson -  Love Is the Answer (Dimension Remix) 5:11
+004. Mhedi Belkadi -  Leiki (Original Mix) 5:14(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA34A8304C67A49747DEC41157F6A26A6FD7504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031660   (651802) от 04.07.2016
+
+VA - Record Super Charts # 443 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KSHMR feat. Sidnie Tipton -  Wild Card (Original Mix) 3:18
+02. DBSTF -  Afreaka (Extended Mix) 4:01
+03. Martin Garrix & Third Party -  Lions In The Wild 3:32
+04. Headhunterz & Skytech -  Kundalini (Extended Mix) 4:08(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 02:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38785F1ECD3DAA15048EA8819BAD960822B6F891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031559   (651798) от 04.07.2016
+
+VA - Русская Дискотека ХХ Века - 25 (Именной) (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сталкер ( Андрей Державин ) - Катя-Катерина ( 1993 )
+02. Волощук Александр - Кокетка-Светка ( 1992 )
+03. Твой День ( Виктор Попов ) - Ленка ( 1990 )
+04. Мальвина - Юлечка ( 1990 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3BFF36176C1DB7B337C2987D1DF8DCB5ED4171F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031573   (651796) от 04.07.2016
 
 VA - Русская Дискотека ХХ Века - 27 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
@@ -598,186 +784,6 @@ VA-Русский рок. Фреш (2012) [MP3|192 kbps]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4357EC1A976629233CC2B0C7A985132D14351202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031685   (651376) от 04.07.2016
-
-VA - Огонек (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Женя Белоусов - Золотые купола [05:18]
-02. Мираж - Музыка нас связала [04:28]
-03. Андрей Державин - Чужая свадьба [04:27]
-04. Aлена Апина - Электричка [04:33](   Читать дальше...   )Жанр: PopПродолжительность: 04:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3FB16DA7BAFD8613B14C882285BE0068EBB843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031533   (651361) от 04.07.2016
-
-Ronnie James Dio - We Rock (2016) (Compilation) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven And Hell
-02. Rainbow In The Dark
-03. Along Comes A Spider
-04. Don't Tell The Kids(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA227495C248268644EA5E9C238C6DAA12C4A797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905065   (651347) от 05.06.2015
-
-VA - Car Audio. Первый летний (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Dubstep, Trance, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adamwah - Departure (Original Mix)
-2. Adultnapper, Black Light Smoke - Idiot Fair (H.O.S.H., The Deer Dub)
-3. Afrobeat, 6Souther, Tenisara - Never Look Back (Original Mix)
-4. Alfonso Muchacho - You Changed Me (Original Mix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Dubstep, Trance, TechnoПродолжительность: 14:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F453DB9BF54295B1638BC8BB5BE7CFEAEAA3E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905276   (651336) от 05.06.2015
-
-VA - Alterportal HITS 15 Vol. 80 -   April (2015) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Quarters Dead - The Two of Us
-02. Flaw - Bleed Red
-03. In Virgo - Set Me Free
-04. Scarecell - Reach(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA4C4C4DCE1F25560EBC6BA7A4158CA0E886357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516474   (651312) от 29.06.2012
-
-VA - Парад хитов русского рока (2012) [MP3|256 кб/с]<Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651312.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Вячеслав Бутусов и Ю-Питер - Аделаида
-002 Чайф - Для него, для себя, для меня
-003 Конец Фильма и Znaki - Абсурд
-004 Земфира - Деньги
-005 Танцы минус - Нна
-006 Сплин - Страшная тайна
-007 Би-2 - Девушки
-008 Е2 Знакомы - В лабиринтах
-009 Смысловые Галлюцинации - Демоны
-010 Бригадный Подряд, Король и шут, Пилот и Кукрыниксы - Питер Pок-Н-Ролл(   Читать дальше...   )Жанр: RockПродолжительность: 06:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DD5ECE4FB146F7CE5649982F7A7C7547982B84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031590   (651250) от 04.07.2016
-
-VA - Русская Дискотека ХХ Века - 30 (Ласковый Май) (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шатунов Юрий - Белые Розы ( 1988 )
-02. Барабаш Юрий - Младшая Сестренка ( 1992 )
-03. Исангулов Рафаэль - Театр ( 1989 )
-04. Шурочкин Владимир - Ласковый Май ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356A4D26E493150B0B567EC9CF709963A1237C06
 ```
 
 https://mybot314.ru/tekegram_catalog/

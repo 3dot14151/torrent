@@ -1,3 +1,61 @@
+###  Публикация: 1245872   (467883) от 08.09.2018
+
+Ronnie Jones - Games (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Video Games (7:43)
+02. We Make The Music (4:09)
+03. You Don't Know Like I Know (4:03)
+04. Montego Bay (3:52)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18609BCAC853C0427721CC9751A8B133914DC09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245848   (467880) от 08.09.2018
+
+MAGIC! - Expectations (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expectations (02:49)
+02. Core (03:35)
+03. More of You (03:54)
+04. Kiss Me (03:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F3368225ED69453D2CC8A212BFDA20C8778275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245929   (467878) от 08.09.2018
 
 Coffee - Slippin' And Dippin' (1980) Reissue CD, Big Break Records, 2016 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -774,64 +832,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F5CA77B97859034CEA430D71F01FF3FA935C807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246134   (465682) от 09.09.2018
-
-Cosmo's Midnight - What Comes Next (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Hip Hop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. Confidence (4:29)
- 02/12. Lowkey (3:40)
- 03/12. Montego (3:08)
- 04/12. With U (3:32)(   Читать дальше...   )Жанр: Electronic, Pop, Hip Hop, Soul, R&BПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4B2F6D1D1CC4DE4451AD774636698DD8CAC837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246172   (465660) от 09.09.2018
-
-VA - Hits Rewind 90s (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brandy, Monica - The Boy Is Mine (Radio Edit)
-02. Alannah Myles - Black Velvet
-03. En Vogue - Don't Let Go (Love)
-04. Donna Lewis - I Love You Always Forever(   Читать дальше...   )Жанр: PopПродолжительность: 02:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823190FF63BCECFBC11D4876B28BC7145B5F4DCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1044477   (565651) от 20.08.2016
-
-Moreland & Arbuckle - Promised Land Or Bust (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me With You (When You Go) - 4:07
-02. Mean And Evil - 3:17
-03. Hannah - 4:50
-04. When The Lights Are Burning Low - 3:05(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6E603D19B00570DE56121227A96662EBEE702E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044478   (565563) от 20.08.2016
 
 Jim Suhler & Monkey Beat - Live at the Kessler (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -745,6 +716,35 @@ Extreme Attack - ...in the Name of Thrash Metal (2013) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99C641543AD57B65F862EA74DE922C1DABCAC873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044441   (565303) от 20.08.2016
+
+Twisted Sister - Metal Meltdown (2016) Live [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You Don't Know
+02. The Kids Are Back
+03. Stay Hungry
+04. The Beast(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7C6EDDCDB96F207B7EE0133FA35A517736889E
 ```
 
 https://mybot314.ru/tekegram_catalog/

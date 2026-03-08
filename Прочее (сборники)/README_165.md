@@ -1,3 +1,119 @@
+###  Публикация: 1271717   (147990) от 24.12.2018
+
+VA - Nightparty 90-х-Ностальгия (2018) [MP3|256-320 Kbps] <Dance, Euro-house, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5ive - Slam Dunk Da Funk
+02. 2 Unlimited - Get Ready For This (Rap)
+03. Technotronic - Get Up! (Before The Night Is Over)
+04. Marky Mark & The Funky Bunch - You Gotta Believe(   Читать дальше...   )Жанр: Dance, Euro-house, ClubПродолжительность: 03:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8A576B911EA8D24AC36D5359330D1FA14E4B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519119   (147910) от 24.12.2021
+
+VA - Дискотека 2022 Dance Club Vol. 210 Новогодний выпуск! (2021) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+01. DJ Jedy - Happy New Year (2:41)
+02. ALEKS ATAMAN feat. Finik.Finya - Снежинки (Ramirez x D. Anuchin Radio Edit) (3:09)
+03. ABBA - Happy New Year (Ayur Tsyrenov Remix) (4:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 31:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F976231D1459E07FB7A483BF106F68A3D1A6813F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271914   (147660) от 25.12.2018
+
+VA - German Top 50 Party Schlager Charts 24.12.2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
+02. Maite Kelly - Die Liebe Siegt Sowieso
+03. Andrea Berg - Ja Ich Will (DJ Edition)
+04. De Lancaster feat. Kay Doerfel - Rosenzeit(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D58A87A8CDC1DC174D7E3C968D2C7D32FF7C3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087188   (147447) от 26.12.2016
+
+VA - Top 100 Самых Красивых Песен 2016 (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147447.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Set fire to the rain
+002. Meghan Trainor - Kindly Calm Me Down
+003. Morten Harket - Darkspace
+004. Avril Lavigne - Everybody Hurts(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E94C0E886D6D8067EE413D534963E69DDB2C883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969464   (147408) от 27.12.2015
 
 VA - 100 New Year Dance Party 2016 (2015) [MP3|320 кб/с] <Dance, Club, House, Funky>
@@ -629,122 +745,6 @@ VA - Guitar Collection 10 (2016) [MP3|320 Kbps] <Blues, Acoustic, Metal >
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:537F7014002CAA3674D824BDFE37DCF44C7E77C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435513   (144314) от 28.12.2020
-
-VA - Rose Bialo: Italiano Classico Vocale (2020) [MP3|320 Kbps] <Vocal, Pop, Classic Soul>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это старая манера итальянского оперного пения, которая считается эталоном вокального искусства находит свое место и в современной итальянской песне. Она была оперной нормой целых 300 лет назад. И современники ещё тогда уже писали о том, что это было ангельское, божественное пение!001. Claudio Villa - ' O Sole Mio
-002. Irene Grandi -  A Natural Woman
-003. Alice - A Cosa Pensano
-004. Fred Buccini - A Mano A Mano(   Читать дальше...   )Жанр: Vocal, Pop, Classic SoulПродолжительность: 07:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AA926E0673865101226E1EEBFB6A85A0CBB66B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195011   (144293) от 28.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 23) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Вахтанг Кикабидзе  -  Я пьян от любви  3:14
-02.  Людмила Зыкина  -  Калинка  3:31
-03.  Александра Стрельченко  -  Речные омуты  2:09
-04.  Людмила Сенчина  -  Всегда и снова  3:59(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1241D1AB214C60750640F5E555C21D3A1D4ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194988   (144232) от 28.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 22) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Александра Стрельченко  -  Подари мне платок  3:48
-02.  Георг Отс  -  На Волге широкой  3:20
-03.  Валентин Будилин  -  Прости, Земля  3:21
-04.  Нина Бродская  -  Кто тебе сказал  3:33(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9847791A3552F36EC0D2D7EBCBE5B8A17EAC60F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195037   (144221) от 28.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 24) (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Александра Стрельченко  -  Ромашки спрятались  4:03
-02.  Людмила Зыкина  -  Милая мама  3:31
-03.  Валентина Дворянинова  -  Как тебе служится  3:11
-04.  Иосиф Кобзон  -  В лесу прифронтовом  4:30(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356B24100A106AD0CB3A5CC98E29778EB7C5A20F
 ```
 
 https://mybot314.ru/tekegram_catalog/

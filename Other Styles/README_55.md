@@ -1,3 +1,32 @@
+###  Публикация: 1215718   (750935) от 30.03.2018
+
+Помни Имя Свое (Фандеева Ксения,Станислав Дорофеев,Фроленко Мария) - Птицы (2015) floe [MP3|320 Kbps] <Folk ,Neofolk ,Ethereal Wave>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Птицы 4:24
+02. Есть одна хорошая песня у соловушки 4:13
+03. Кто Я 3:44
+04. То, что я должен сказать 4:44(   Читать дальше...   )Жанр: Folk, Neofolk, Ethereal WaveПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE356F1E90F8A3587FBEA96A3A1D942446EA724B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216419   (750831) от 30.03.2018
 
 Omnia - Reflexions (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk, Celtic, Medieval>
@@ -714,35 +743,6 @@ Jean-Michel Jarre - Original Album Classics Vol 2 (2018) 5CD Box Set [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03C30200A3D728C4861EB3D5F36DA4179E7A8148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 14963   (741701) от 05.04.2018
-
-Микаэл Таривердиев - 17 мгновений весны (1996) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На цветочной улице
-02. Где-то далеко
-03. Эхо войны
-04. В черно-белом ритме(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02FE6339B60A3862143E71559F97D7F57FA65D41
 ```
 
 https://mybot314.ru/tekegram_catalog/

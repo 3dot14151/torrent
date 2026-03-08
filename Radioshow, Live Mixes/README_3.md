@@ -1,3 +1,61 @@
+###  Публикация: 587128   (942495) от 09.01.2017
+
+Aurosonic - Etyology Sessions 001-193(Обновляемая) (2007-2016) [MP3|320 кб/с]<Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cerf, Mitiska, Jaren - Light The Skies (Harry Peat remix)
+ 02. DJ Fire - Midnight In Beijing
+ 03. Andrew Bennett - Menar (Markus Schulz remix)
+ 04. ATB - Desperate Religion (Aurosonic remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 198:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A847F021CE563DD43E479E0350AE42AEE6E766CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363657   (941025) от 29.02.2020
+
+Will Rees - Live @ Trance Room, Uniclub Buenos Aires, Argentina 2020-02-22 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941025.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Brennan Grey - Capre Omne (Intro Edit)
+2. DJ Jordan - Direct (Indepth Remix)
+3. ID-ID
+4. Genix - Ba55 Camp(   Читать дальше...   )Жанр: TranceПродолжительность: 02:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B837FD941E01AACBC38A1FE89032D364B16DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365683   (929147) от 08.03.2020
 
 Paul Pearson - Live @ Subteran, Joshua Brooks Manchester, United Kingdom 2020-02-29 [MP3|320 Kbps] <Trance, Progressive House>
@@ -687,64 +745,6 @@ Vitaly Otto - City of Trance 001-042 (Обновляемая) (2014-2016) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D31BC190015C0BF16B72999DFB42DC352590131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501031   (838124) от 08.10.2021
-
-Microsha 89 - Микшер русской кибернетики #206 (2021) [MP3|320 Kbps|WEB-DLRip|image + .cue|tracks + .cue] <Synthwave>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Microsha 89 - Intro
-02. Microsha 89 - ID
-03. Microsha 89 - Play!
-04. Microsha 89 - 2021(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5147B596C441F8414FCFB182F3F6ADC067504746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501213   (836674) от 09.10.2021
-
-Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, District Atlanta, United States 2021-10-01) (2021-10-07) [MP3|320 Kbps] <Trance, Techno, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. Binary Finary - 1998 (ID Remix)
-03. Chris Schweizer - El Jefe
-04. ID vs. Kaskade - ID vs. Angel on My Shoulder(   Читать дальше...   )Жанр: Trance, Techno, Big RoomПродолжительность: 02:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E226A174150C8240015DC8535FDD9B491FF4A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

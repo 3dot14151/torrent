@@ -1,3 +1,177 @@
+###  Публикация: 1520307   (143818) от 27.12.2021
+
+VA - Beatport Electro House: Sound Pack #383 (2021) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beatport постоянно находятся в поисках общего языка с аудиторией во всём мире и в канун уходящего года зарядили очередной 383-й релиз отличного Electro House! Эта великолепная коллекция представляет собой комбинацию самых лучших треков электронной музыки со всего света.001. Omar Fayyad - Recycle Your Love
+002. Ewan Rill - Fluid Dynamics
+003. Xandl - The Reason
+004. Lil D X Nm - I'm Gonna Fly(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6517BCF6AA6441346E7C55469B4CB31B7685268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520301   (143798) от 27.12.2021
+
+VA - Beatport Deep House: Sound Pack #385 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143798.jpg" />
+</div>
+
+
+###  Подробнее
+
+За окном холод и зима уже у двери, а музыка 385-го релиза от Beatport вновь напомнит о минувшем лете, жарком солнышке и ласковом море, бессонных ночах на танцполах и времени проводимого в кругу друзей. Самые лучшие хиты клубной музыки дарит Вам свежий микс , чтобы вновь подарить воспоминания о лучших днях и ночах прошедшего лета001. T Markakis - Gonna Be Alright
+002. Pedro Capelossi - Haute Couture
+003. Viel, Madraas - Omnes
+004. Thulane Da Producer - Stones(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864CF03723F42A09B36840DC6BA0035300F075CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970005   (143793) от 29.12.2015
+
+VA - Lounge Sensations (Lounge Masters) (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Uma Alegria Contagiante
+02. Cane Garden Quartet - Flying With No Wings
+03. Enrico Donner - Lasting Memories
+04. Solanos - Incrivel(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA971F40704D92199CFFBA064DF50FDF2A2E426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520299   (143725) от 27.12.2021
+
+VA - Beatport Chill Electronic: Sound Pack #389 (2021) [MP3|320 Kbps] <Soft Electronic, Chill House, Chillout, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это легкая, наполненная светом, мягкая и нежная музыка, она похожа на то, как поёт наша душа, когда мы просыпаемся летним утром в объятиях солнечных лучей, когда по весне мы радуемся капели, звенящей за окном, когда исполняется наша мечта, когда смеётся родной человек — это удивительное чувство радости и любви ко всему. Это красивая музыка, которая помогает жить, (   Читать дальше...   )001. The Emanations - Spread A Little Love
+002. A.R.T. Wilson - Sun Sign Aries
+003. Peter Broderick - Family, Giving
+004. Serra 9 - True Sun(   Читать дальше...   )Жанр: Soft Electronic, Chill House, Chillout, RelaxПродолжительность: 14:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391E9F456F142815A719FE9662E4AAE9E5DFCBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970131   (143721) от 29.12.2015
+
+VA - Graceful House (2015) [MP3|320 кб/с] <House, Electro, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143721.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chic - Le Freak
+002. Prok & Fitch - Tears (Original Mix)
+003. Livin' Joy - Dreamer (Radio Edit)
+004. Superlover - Restless(Original Mix)(   Читать дальше...   )Жанр: House, Electro, DanceПродолжительность: 14:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBD3796CF8EC122BDDCB66A1EE57946EB727998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678716   (143719) от 22.11.2023
+
+VA - Vibrant Euphoria (2023) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaun Williams - Amore Vita
+02. Above & Beyond - Vlekno
+03. Popoff - This Is My Soul
+04. Id-S - Life Into Midnight(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 03:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74587D89EC75BA511CE623E4C5797CF032519E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520312   (143710) от 27.12.2021
 
 VA - Beatport Techno Electronic: Sound Pack #384 (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
@@ -580,180 +754,6 @@ VA - Club Dubstep №22 (2012) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C97E18790E421340CB250D4E4322AA1A69D8DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969384   (143013) от 29.12.2015
-
-VA - Виртуозы жанра: Women's Blues 2CD, vol. 24 (2015)[MP3|320 кб/с] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143013.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (04:33:07):
-01. Anna Rudolph - A Glimpse of Joy (02:56)
-02. Etta James - If You Want Me To Stay (05:22)
-03. Sandy Carroll - Messin' With Me (04:04)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 08:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59EF9E242CB4099B079C8BF4CD4722B5E5F1C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969946   (143011) от 29.12.2015
-
-VA - My Favourite Hits of 1962 (4CD) (2015) [MP3|320 кб/с] <Instrumental, Funk, Soul, Rhythm & Blues, Rock & Roll, Pop Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joey Dee & The Starliters - Peppermint Twist (03:43)
-02. Ben E. King - Dream Lover (02:37)
-03. Duane Eddy - (Dance With The) Guitar Man (02:38)
-04. Brian Hyland - Sealed With A Kiss (02:41)(   Читать дальше...   )Жанр: Instrumental, Funk, Soul, Rhythm & Blues, Rock & Roll, Pop RockПродолжительность: 04:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F601399B6AEC968025DCBAE82E87C0BF517DE8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272594   (142962) от 28.12.2018
-
-VA - Vocal Chillout Music (2018) [MP3|320 Kbps] <Downtempo, ChillOut, NewAge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142962.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Donna De Lory - Heaven (Original Mix) 4:07
-002. David Wahler - Mosaic (Original Mix) 5:56
-003. Tomasz Pauszek - Airy Monday (Original Mix) 7:43
-004. Eugene Kush - Yellow (Original Mix) 3:41(   Читать дальше...   )Жанр: Downtempo, ChillOut, NewAge, Ambient, Relax, ElectronicaПродолжительность: 07:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28BF7349BBB19AA30B39081367F7086EB941954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272555   (142828) от 28.12.2018
-
-VA - Pop Rock Chart Music (2018) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dusty Springfield - Son Of A Preacher Man
-002. Miro Zbirka - Love Shines
-003. Danny L Harle - Super Natural (Original Mix)
-004. Bovska - Komfort(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 12:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15096C954963AEC46AA90AAB43E964D36624477A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194994   (142770) от 29.12.2017
-
-VA - Finding Around Blessing (Energy Tech Trance) 012 (2017) [MP3|320 Kbps] <Trance, Tech Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andrew Rayel & Bogdan Vix and KeyPlayer feat. Roxana Constantin  -  Soul On The Run (Extended Progressive Mix)  4:30
-02.  Carl Daylim  -  Stay With Me (Intro Mix)  6:40
-03.  LTN pres. White Ghost  -  Memory (Extended Mix)  5:26
-04.  PvR  -  Melting Skies (Original Mix)  8:31(   Читать дальше...   )Жанр: Trance, Tech Trance, Uplifting Trance, Harmonic, EnergyПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16E8AA5CDA3B539C1884C7A64A749BDB3BC6213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195289   (142733) от 29.12.2017
-
-VA - Empire Records - Classic Disco 3 (2017) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eucariontes - Tell Me More (Original Mix)
-02. al l bo, Semenovb - City Is My Band (Original Mix)
-03. Ariana Grande, The Weeknd - Love Me Harder (Duvals Remix)
-04. Maslin - Bir (Original Mix)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B7BE58EC1B8679B33E4FB0A74D58933123DF6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

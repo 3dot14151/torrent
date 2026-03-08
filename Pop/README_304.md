@@ -1,3 +1,61 @@
+###  Публикация: 1675022   (160263) от 09.11.2023
+
+VA - Hit News Vol. 10 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Bobo - Let Yourself Be Free
+02. 2 Unlimited - The Real Thing
+03. 2 Brothers On The 4th Floor - Dreams
+04. Black Label - Givin' You My Love(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11FF66FE76F167D4E775E47C0654ED6E85D52D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599264   (160070) от 22.12.2022
+
+VA - THE BEST OF EFFECTIVE RECORDS 2022 (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160070.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Imanbek/BYOR - Belly Dancer
+2. Антон Токарев - Седьмой лепесток
+3. GaoDagamo/Nesvyat/Miyagi - На уверенном
+4. RASA - ПОГУДИМ(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182F22F51E3684D57A4BBB3B104EF52DA0A77D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599562   (159857) от 23.12.2022
 
 VA - Broken Beat & Nu Disco The Best Of (2022) CD, Compilation [MP3|320 Kbps] <Soulful, Nu Disco, Indie Dance, Funk>
@@ -687,64 +745,6 @@ The Korgis - британская поп-группа, известная сво
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20E867C5FB25D45EF1BC3AAC53C147FB0FBAA36F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600374   (157618) от 27.12.2022
-
-VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glz, Venessa Jackson - The Night (03:26)
-02. Cocolorez - Supersized (Souxsoul Refix Mix) (06:45)
-03. Vyktor Nova - Funked (06:05)
-04. Jerem A - Let's Work It Out (06:00)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2DDAC22F090F88A5BDD29B2931BD751F3A5FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599853   (157587) от 27.12.2022
-
-VA - NOW That's What I Call Christmas (4CD) (2022) MP3 [320 Kbps] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Goes To Hollywood - The Power Of Love (05:33)
-02. Idina Menzel - Let It Go (03:44)
-03. Robbie Williams - Angels (04:25)
-04. Spice Girls - 2 Become 1 (04:01)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 05:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54BC4EEEDB98633AE596E06828FC3C537A10190
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1029843   (678317) от 28.06.2016
+
+VA - Balkan Connection Summer 2016 (2016) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subconscious Tales - Helligkeit [07:51]
+02. Praveen Achary, Vlada D'Shake - Public Secret (Praveen Achary Remix) [06:48]
+03. Matter, Jorgio Kioris - Pushin' (Matter's Pushin Too Hard Remix) [08:37]
+04. Rick Pier O'Neil, Dio S, Desaturate - Nonchalance (Rick Pier O'Neil & Desaturate Remix) [07:23](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE67F30AC0A7F5A94C1EDB8D435BD2372476FFD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223286   (677395) от 03.05.2018
 
 VA - Mma Cardio Training (2018) [MP3|320 Kbps] <Minimal, Tech House>
@@ -716,35 +745,6 @@ VA - Hardstyle XXL Megamix 2022 [MP3|320 Kbps] <House, Club House, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47A58868CFA388DB9301D5083D734F664E711ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031368   (668783) от 03.07.2016
-
-VA - Future House 2016-03 (2016) [MP3|320 Kbps] <House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugel & Jasmine Thompson -  Where We Belong (Calvo Remix) 4:27
-02. Cedric Gervais -  Make Me Feel 3:28
-03. Destructo -  4 Real (Joyryde Swurve Mix) 4:35
-04. Felix Leiter -  BWU 3:07(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 01:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A058B09E24F8EC498082A1FEB316FB84260D315F
 ```
 
 https://mybot314.ru/tekegram_catalog/

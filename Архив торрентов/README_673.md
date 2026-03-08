@@ -1,3 +1,32 @@
+###  Публикация: 1099935   (902554) от 02.02.2017
+
+CleanMyMac 3.7.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902554.jpg" />
+</div>
+
+
+###  Подробнее
+
+CleanMyMac 3 - лучшее приложение для очистки Мака.
+CleanMyMac 3 сканирует каждый уголок вашей системы, удаляет гигабайты мусора в два клика и помогает вам поддерживать Мак в хорошем состоянии.
+
+CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, лишний код и прочее. Все данные визуально (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28 января 2017Разработчик: MacPaw Inc.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Русский, Английский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78667AF9FF711867EE8A34BC9406376058BEDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992280   (902505) от 01.03.2016
 
 Акси Старк, Рейджел Леви | Серплы (2016) [FB2]
@@ -652,35 +681,6 @@ PortableApps.com Platform - платформа (это пустая оболоч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10D94CCD644751B2DC89C105FC9A26B9F38E5AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992117   (902235) от 01.03.2016
-
-Astrix - He.Art (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Psy-Trance, Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astrix - Shamanic Tales (Original Mix) (13:01)
-02. Astrix - Deep Jungle Walk (Original Mix) (9:15)
-03. Astrix - Alien Turned Human (Original Mix) (8:08)
-04. Ace Ventura & Astrix - Valley of Stevie (Original Mix) (8:41)(   Читать дальше...   )Жанр: Psy-Trance, Full OnПродолжительность: 02:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB45C89341DF27375C5C5495E0AFB5B85687E19C
 ```
 
 https://mybot314.ru/tekegram_catalog/

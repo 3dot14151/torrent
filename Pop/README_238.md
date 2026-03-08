@@ -1,3 +1,61 @@
+###  Публикация: 837929   (314635) от 11.11.2017
+
+VA - Sunlover Records Compilation Vol. 1-3 (2014-2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Dreamwave, Synthwave>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VHS Dreams - Space Race (5:34)
+02. RetroSynther - Technocity (6:05)
+03. Les Chic Voltage - Disco Gallo 84 (3:21)
+04. Apollo Zapp feat Reo - Hula Hoop! (3:03)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Dreamwave, SynthwaveПродолжительность: 03:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F226FF653E974D9F1187C74F58C61D656DFFEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259927   (314571) от 06.11.2018
+
+The Ting Tings - The Black Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic Pop Rock, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estranged
+02. Basement
+03. A & E
+04. Blacklight(   Читать дальше...   )Жанр: Alternative Pop, Electronic Pop Rock, Dance-Punk, Synthpop, IndieПродолжительность: 00:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F3C1EB65ACEBE59CC192E6C755A8A778CA31DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182823   (314516) от 11.11.2017
 
 VA - BRAVO The Hits 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Electronic, R&B, Dancepop, Pop Rock>
@@ -708,64 +766,6 @@ Roby Facchinetti & Riccardo Fogli - Insieme (2017) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:415416FE944E080159659749F6D7F839E94CA2FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959954   (312251) от 26.11.2015
-
-Madonna - Something To Remember (1995) [FLAC|tracks+.cue]<Downtempo, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madonna With Massive Attack , - I Want You (6:23)
-02. I'll Remember (4:22)
-03. Take A Bow (5:21)
-04. You'll See (4:41)(   Читать дальше...   )Жанр: Downtempo, BalladПродолжительность: 00:65:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB05B86E55F756F2B94F0626D1B6A2BEFB331F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182756   (312204) от 12.11.2017
-
-VA - Nu Cool Covers (Pop Classics ReStyled) (2017) [FLAC|Lossless|tracks] <Lounge, Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik feat. Alan Scaffardi - Crazy (4:33)
-02. Sugarpie And The Candymen - Toxic (4:00)
-03. Melania - Killing Me Softly (3:32)
-04. Papik feat. Sarah Jane Morris - Let The Music Play (4:03)(   Читать дальше...   )Жанр: Lounge, Jazz, PopПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DF2158102FA81E3F0A10458528E545C478D46F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,117 @@
+###  Публикация: 1572758   (412522) от 31.08.2022
+
+VA - Music News vol.211 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412522.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Haliene - Butterfly (02:48)
+ 002. ABI - Будь Ближе (02:19)
+ 003. Ad Voca feat. Exlls - I Can't Take It (Na Na Na) (02:24)
+ 004. ALEKS ATAMAN feat. Finik - Белыми Ночами (03:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B575BB6C016D2D5E4CA8EB1F2D139A63043090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572777   (412373) от 31.08.2022
+
+VA - Music News vol.212 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alethia - Много Или Мало (03:05)
+ 002. Abbasov - Было Не Было (02:26)
+ 003. Agnes - Love And Appreciation (Radio Edit) (03:08)
+ 004. Akris & Teddy - Мамасита (02:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7862C4B46C78FFF833E71A94CA33F0D58979C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413199   (411884) от 02.10.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 02.10.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Eilish - ilomilo (MBNN Remix) (4:54)
+02. NRD1 - All Good Things (Come To An End) (Extended) (4:24)
+03. BTS - Dynamite (3:19)
+04. RAYE - Natalie Don't (3:14)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD3047B5D2CE418F95BFAE185D42BB6AD4ED4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948397   (411603) от 20.10.2015
+
+VA - Passion (After Midnight Edition) (2015) [MP3|320 кб/с]<Funky, Club House, Deep House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jet Sex - Jet Sex (Minigroove Mix) (05:16)
+02. Yves Rocher - This Is My Sound (Glitter Rhythms Mix)Жанр: Funky, Club House, Deep House, DanceПродолжительность: 01:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010F6FE575FA815E9906DD42549DA12C7A2B221A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948391   (411382) от 20.10.2015
 
 VA - Взорви танцпол 50х50 (2015) [MP3|320 кб/с]<Dance, club>
@@ -659,134 +773,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AA3655697E3FF95FE71820D2EB1071BB18635AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168661   (408445) от 24.09.2017
-
-VA - Auto RU Collection (2017) [MP3|320 Kbps] <Русский Рок, Авторская песня, Поп>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408445.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Би-2 - Мой Рок-н-ролл   (06:45) 
-002. Вячеслав Бутусов - Ударная любовь   (03:21) 
-003. Крематорий - Всадник   (02:56) 
-004. Жанна Агузарова - Желтые ботинки   (03:29) (   Читать дальше...   )Жанр: Русский Рок, Авторская песня, ПопПродолжительность: 06:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383D6C25B5B652A83246EECF049FD7F4CB927EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066747   (408391) от 28.10.2016
-
-VA - Promo Only Dance Radio October (2016) [320] <Tropical, Indietronica, Club, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Britney Spears F./G-Eazy - Make Me (Marc Stout & Tony Arzadon Radio Edit) 03:56
-02. Cash Cash & Digital Farm Animals F./Nelly - Millionaire (Ftampa Remix - Clean) 02:40
-03. Christina Aguilera - Telepathy (Rare Candy Radio Edit) 03:11
-04. Deorro F./Pitbull & Elvis Crespo - Bailar (Remix) 02:37(   Читать дальше...   )Жанр: Tropical, Indietronica, Club, ProgressiveПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DAEFFD2CF03AE7156B93F23063874D65B6BBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559092   (408373) от 13.10.2012
-
-VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.25 (2012) [MP3|128-320 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Мишель - Здравствуй, Знаешь
-02.Andamiro feat. Dani B. & Jonathan Carey - I Don't Care
-03.Dzham - Без Тебя
-04.Estela Martin feat. Young James - Love Me Tonight (Radio Edit)
-05.Денис Любимов - Ещё Не Закончен Бой
-06.Mavado feat. Karian Sang - Take It
-07.Пальчики Оближешь - Сжигаю Боль
-08.Carlprit - Fiesta (Michael Mind Project Radio Edit)
-09.Влад Соколовский - Мир Сошёл С Ума
-10.Olly Murs feat. Flo Rida - Troublemaker(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90676587F09C39839DC225A07911297BE35FE6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558660   (408371) от 13.10.2012
-
-VA - Модный Хит В Машину! Русский (2012) [MP3|224 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roma Kenga - Ты Будешь счастливой (Anton Orf & Dj Gladiator Radio Edit)
-02. MMDance - Баня (Discomania Remix)
-03. Opium Project feat. Сергей Жуков - Я буду с тобой (Haaski Downpour Remix)
-04. DJ M. E. G. feat. Сергей Лазарев & Тимати - Moscow To California (Belikov Remix)
-05. Arty & DJ Night Rush - Kedi!
-06. Dino MC 47 & David - Не моя (DJ Oleg Perets & DJ Alexey Galin Radio Remix)
-07. Yolan & Kenia - На Пороге Лета (Extended Mix)
-08. G-Nise & Алексей Кабанов feat. DJ Half - Наше Лето (DJ Evans Remix)
-09. DJ Tarantino & Катрин Моро - Я Буду Помнить
-10. Каста (Влади) - Сочиняй Мечты (DJ Kopernik remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C1663A789236CD6B83B1B50BCA7765E1FB2212
 ```
 
 https://mybot314.ru/tekegram_catalog/

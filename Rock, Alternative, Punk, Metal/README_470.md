@@ -1,32 +1,3 @@
-###  Публикация: 1547124   (603346) от 27.04.2022
-
-Hammerschmitt - Dr. Evil (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Evil
-02. Restart Your Fire
-03. Say My Name
-04. Fly(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC376BC25B593CE7AC2AEAE258B0278B867FFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231858   (603234) от 21.06.2018
 
 Lizzy Borden - My Midnight Things (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -738,6 +709,35 @@ Royal Bliss - Royal Bliss (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82A3ACB5AC28B2A7153BCEA75BD2473E44903006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298052   (602643) от 25.04.2019
+
+VA - The Many Faces Of Alice Cooper: A Journey Through The Inner World Of Alice Cooper (2017) 3CD [MP3|320 kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602643.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Many Faces Of The Alice Cooper Group:
+01. Michael Bruce feat. Alice Cooper - As Rock Rolls On (02:53)
+02. Neal Smith feat. Dennis Dunaway - Rock N´Roll Radio (03:15)
+03. Bouchard, Dunaway & Smith - Caught In A Dream (03:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1936B926E5AA6BD6287528677F30FDBF8092C3D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

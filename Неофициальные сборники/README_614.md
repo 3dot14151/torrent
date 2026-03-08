@@ -1,3 +1,180 @@
+###  Публикация: 1195251   (142421) от 29.12.2017
+
+VA - Empire Records - Classic Disco 2 (2017) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brooklyn Guy - Cold Stuff (Original Mix)
+02. Astero feat. Tiana - Satellite
+03. Anthony Chocco - Oh My Baby (Sensoniques Deep Mix)
+04. A Club Tunes - Cry(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81C316F1E744346F9380F689D0BDEE8D283B049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195391   (142400) от 29.12.2017
+
+VA - De Top 100 Aller Tijden 1974 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142400.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. George Mccrae - Rock Your Baby (3:18)
+002. Rubettes - Sugar Baby Love (3:26)
+003. Cats - Be My Day (2:59)
+004. Mud - Dyna-Mite (2:58)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881A0617FD51D796D4265E63DA6379526830E4EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087806   (142355) от 29.12.2016
+
+VA - Hits of My Soul Vol. 19 (2016) [MP3|320 кб/с]<Post Rock, Post Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Eleventh Vibration - Whales (05:25)
+02. Lights & Motion - Snow (06:39)
+03. Trifonic - Transgenic (Rust Mix) (03:41)
+04. Code I - The Ending That We Dream Of (04:55)(   Читать дальше...   )Жанр: Post Rock, Post MetalПродолжительность: 04:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05020C001D7214E3D44913713447E03F3D99B55B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348498   (142350) от 28.12.2019
+
+VA - Качай и слушай Vol 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142350.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.2 Маши - Не Буди (Video Edit) (3:59)
+2.Adon - Want You (2:51)
+3.Bear Grillz feat. Rx Soul - Nightmare (3:56)
+4.Camilo - La Difícil (By Dimelonacho) (2:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566E8E09E00546787FB413D5F5ABEC70BADC875D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087935   (142240) от 29.12.2016
+
+VA - Unknown 80's (part I) (2016) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intimate Strangers - Let Go - 1986
+02. Strange Advance - She Controls Me - 1982
+03. Pete Shelley - Telephone Operator - 1983
+04. Picnic At The Whitehouse - Human - 1987(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E0F6F232DB6497DBC2C3C5DD5E0499F4395533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195613   (142229) от 29.12.2017
+
+VA - Kiss FM Top 40: December (2017) [MP3|320 Kbps] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Probass & Hardi  -  Indy  4:34
+02.  Lost Frequencies & Netsky  -  Here With You  3:41
+03.  Zhu & Nero  -  Dreams  4:28
+04.  Matt Nash & Delayers  -  Run  4:02(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 02:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CA9080A9CDCC4AB363F932505FA11D7467693D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087999   (142120) от 29.12.2016
 
 VA - George Michael - Best275z (1984 - 2014) [MP3|320 Kbps] <Pop>
@@ -580,180 +757,6 @@ VA - The Official UK Top 40 Singles Chart 28.12.2018 (2018) [MP3|320 Kbps] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB22C0F19FBC46471FD81A9E74D85E4E2C888F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348803   (141270) от 29.12.2019
-
-VA - Record Super Chart 2019 Итоговый [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141270.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Rag'n'Bone Man - Giant 3:48
-002. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
-003. Billie Eilish - bad guy 3:14
-004. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 05:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F3027EB2E022334ADFEA4FB75EDC41092190DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088214   (141215) от 30.12.2016
-
-VA - Antagon Cybernetic: 130 Hard Technostyle (2016) [MP3|320 Kbps] <Hardstyle, Electro Hardcore>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141215.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 6-Pack - Drunken Piece Of Shit
-002. Ace The Space - 9 Is A Classic (Ultimate Rave Mix)
-003. Adrenalize - Robot Love
-004. Advanced Dealer - Back To The Rave (Edit)(   Читать дальше...   )Жанр: Hardstyle, Electro HardcoreПродолжительность: 11:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F734E49D2FF7439E41B93386611FFA1A0E3A2A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088291   (141213) от 30.12.2016
-
-VA - Apollo Four Forty - Best275z (1994 - 2012) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ain't Talkin' 'bout Dub 04:31
-02 Stop The Rock 03:36
-03 Charlie's Angels 2000 03:56
-04 Raw Power 03:55(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EC92BEB1E9FE9AA1F6E151A7FFF86E1843719A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088151   (141199) от 30.12.2016
-
-Илья Гусев - Игры с Луною (2016) [MP3|192 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игры с Луною 04:34
-02. Миллион 04:19
-03. Времени нет 04:22
-04. Маленький рай 04:20(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FB7EA2945C0A0AB71E9BD5270AD3F48F5696D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272521   (141153) от 29.12.2018
-
-VA - Amaranthine: Hard Rock & Metal Collection (2018) [MP3|320 Kbps] <Hard Rock, Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141153.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mindwars - The Fourth Turning
-002. Splendidula - Dollywood
-003. Flipzyde - Witness The Sickness
-004. Heavy Kind - Sneaky Moves(   Читать дальше...   )Жанр: Hard Rock, MetallПродолжительность: 09:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBAD7E1CBC4DE130C533D644B0AB3AD40E0488DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195116   (141150) от 29.12.2017
-
-VA - Русский Рок. Лучшее 2017 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7Б - Солнцу решать
-02. СерьГа - Сказочный лес
-03. 25-17 - Она не такая, как все
-04. Casual - Сквозь дым(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5254B0B0080BAA630451A5C318F8D9B12E4BCB2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

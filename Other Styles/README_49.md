@@ -1,3 +1,32 @@
+###  Публикация: 1210407   (778720) от 03.03.2018
+
+Hennie Bekker - The Smoke That Thunders (1997) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Freedom Dance 6:11
+02. Nkana 5:49
+03. The Marketplace Hustle 4:30
+04. 10 Miles To Sakenia 5:37(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6EB258D4886EC41C347EF40CA3D8709F86CB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210411   (778712) от 03.03.2018
 
 Hennie Bekker - Jabula (The Joyful Spirit Of Southern Africa) (1998) Avalon Music [MP3|320 Kbps] <New Age, Tribal, African>
@@ -716,35 +745,6 @@ Emir Kusturica & The No Smoking Orchestra - Unza Unza Time (2000) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:959D561238388FF64C9AE7B4676EE0C79C9F96C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013051   (777576) от 04.05.2016
-
-Francis Goya - Musica Espectacular (2016) [FLAC|Lossless|WEB-DL|tracks] <Easy-Listening, Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say You Say Me (4:03)
-02. The Lady In Red (4:06)
-03. Against All Odds (3:20)
-04. Nothing's Gonna Change My Love For You (4:05)(   Читать дальше...   )Жанр: Easy Listening, Instrumental, GuitarПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17997FDAAD78532303D119F521BB8F6F7443AA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

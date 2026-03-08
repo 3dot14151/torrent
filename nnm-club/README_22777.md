@@ -1,31 +1,25 @@
-###  Публикация: 593609   (134880) от 24.12.2012
+###  Публикация: 1679465   (134930) от 27.11.2023
 
-VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
+VA - Infrasonic: The Best Of 2023 (2023) [MP3|320 Kbps] <Trance>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134880.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Сергей Лазарев - Слезы В Моём Сердце
-02. Anastacia - One
-03. 5sta Family - Пуэрто Рико
-04. August Rush feat. Natalie Voice - So Many Times
-05. Светлана Светикова - Буду
-06. Lovers vs. Lanfranchi & Farina - Think
-07. Размер Project - Водка Стайл
-08. Manian feat. Carlprit - Don't Stop The Dance (Video Edit)
-09. Нюша - Queen Of The Night
-10. Medina - Fool (I Feel Bad For You)Жанр: РорПродолжительность: 05:55:55
+01. Ultimate - Stages (Extended Mix) [7:19]
+02. Epidemika - High (Extended Mix) [6:16]
+03. Incredia - Cropp (Extended Mix) [5:43]
+04. Kataploks - Sobaeksan (Extended Mix) [5:39](   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D499074BF3FCB9AE0F3552C7B28F371EBE117923
+magnet:?xt=urn:btih:42DC9E556369B319E4A779783DAF4DE37D2CA471
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,26 +27,187 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680052   (134879) от 27.11.2023
+###  Публикация: 1679922   (134929) от 27.11.2023
 
-Readiris Pro 17.1.9 [Multi/Ru]
+PhotoDirector - Редактор фото 18.7.5 Mod by maxi123444 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134929.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 17.11.2023Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6733BED70195404DCF22D80E1364FFF19C36DFEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679404   (134928) от 27.11.2023
+
+VA - Keep It Trance Vol. 16 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only One & Eric Vanegard - T.A.T(Original Mix) [5:26]
+02. Intra De Aeris - Voice Of The Dark Planet (Extended Mix) [6:28]
+03. Denis Airwave & T'eira - My Freedom (Yuri Yavorovskiy Remix) [3:50]
+04. Spy - Ori (Original Mix) [5:57](   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282137401D9A835FECC19D56A54F2A76131A287B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680065   (134927) от 27.11.2023
+
+Lyn 2.3.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lyn - легкий, быстрый и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров. Lyn - это чрезвычайно универсальный и эстетически приятный интерфейс, Geotagging технология, простой и комплексное решение для совместного использования.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2023 Mirko VivianiПоддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C6CE433F48EAA6FE7D4DE572AFB9E6712E956C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680013   (134926) от 27.11.2023
+
+PhotoRoom 4.7.5 (1174) Mod by Mixroot [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134926.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.11.2023Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23B21701E0636ADF2D8C01094C307E1D7C85983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679853   (134925) от 27.11.2023
+
+Trapeze - Lost Tapes, Vol. 1 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cool Water [00:03:49]
+02. Lover [00:03:58]
+03. Breakdown [00:03:35]
+04. Don't Let Them Push You [00:04:57](   Читать дальше...   )Жанр: Classic Hard RockПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5883FCDEC9EC654BA6E6F89AB5BD53F94DF04BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593630   (134924) от 24.12.2012
+
+Computer Desktop Wallpapers Collection (22.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5DC00FD9E0ACFD30E8790C61A7CE35D8AADE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679861   (134923) от 27.11.2023
+
+Swish 1.10.3 [En]
 
 >>Программы для macOS
->>Офис, Интернет для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134879.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Readiris  — сканирует, распознает, конвертирует.
-Readiris выполняет всю утомительную для вас работу по перепечатыванию текстов в мгновение ока. Просто переконвертируйте ваши документы с помощью Readiris и в течение нескольких секунд вы получите их редактируемую копию. Readiris Pro перекодирует просмотренные бумажные документы, файлы PDF и все популярные форматы изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 I.R.I.S. IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+Swish  добавит отсутствующий набор жестов для macOS. Управляйте окнами и приложениями прямо с трекпада с помощью интуитивно понятных жестов двумя пальцами, используя их нажатие, нажатие и удержание. Swish предлагает 28 простых в использовании жестов заголовка, дока и меню, которые ускорят ваш рабочий процесс и сделают вас опытным пользователем трекпада.Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2023 Christian RenningerПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A30EFF0C90EAD29B7C5AE7D83FA7AC6D8BAEB7DA
+magnet:?xt=urn:btih:44A9F383206FF183AB9D4489A0C90730E5A8D4B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -60,25 +215,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593641   (134878) от 24.12.2012
+###  Публикация: 593662   (134922) от 24.12.2012
 
-Sunrises and sunsets Wallpapers (22.12.12) [Wallpapers]
+Wallpapers Sexy Girls (23.12.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134878.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4720х3500
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E98704404CBB1626A919D136BE756AB8B68D84E3
+magnet:?xt=urn:btih:CB4530BB8852938FF1BE3D58ADDD8AA37438D559
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -86,268 +241,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679874   (134877) от 27.11.2023
+###  Публикация: 1679953   (134921) от 27.11.2023
 
-VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134877.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scott Sawyer - Passing By [07:45]
-002. Brass Energy - A Walk In The Park [02:55]
-003. Jonah Yano - Always [05:23]
-004. Carlos Camilo - Trust The Moment [04:11](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FEF2B1C1E7331CD7362A98E62C2E46C190041F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593852   (134876) от 24.12.2012
-
-Журнал | Allure №1 (Россия) [январь 2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основные темы журнала: мода, красота, украшения, здоровье, диеты, интервью с известными женщинами, гороскоп.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E5F5BFD818B9E437DF36F796F9B9E207A2B889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680037   (134875) от 27.11.2023
-
-Square Home Launcher 3.0.5 Mod by derrin [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Square Home - красивый, стильный и функциональный лаунчер для мобильных работающих на Android-е. Им предлагается вариация оболочки выполненной в стиле Metro UI от Windows 10. Это очень понравится всем, кто постоянно использует данную операционную систему на других гаджетах. И считает, что подобная механика удобна и понятна для него и для его работы. Красивое исполнение (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.11.2023Разработчик: ChYK the devПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94571C5A4B705E54DECD21AD0C03856E41FC8E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594001   (134874) от 24.12.2012
-
-Waterfalls Wallpapers (24.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FA0F18812620AAF5AD7DFD55D9EC2603DF73A25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679924   (134873) от 27.11.2023
-
-FX Player Pro 3.7.2 Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134873.jpg" />
-</div>
-
-
-###  Подробнее
-
-FX Player Pro - универсальный медиаплеер который станет весьма полезным на любом мобильном устройстве. Поддержка огромного количества форматов аудио и видео (MKV, RM, ACC PLUS, FLAC и прочие), определение субтитров, высокое качество выведения на экран, а так же удобное управление (возможность настройки действий, жестов и так далее присутствует в полном объёме) понравится (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.11.2023Разработчик: FIPE LabsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F78E9D5928C58C6D7DC277E0ECF7A6BFD28E91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593639   (134872) от 24.12.2012
-
-New year wallpapers 2013 (22.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD76C4C8BA87BB9BF6FB4F2115C0B941496C0D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680056   (134871) от 27.11.2023
-
-Duolingo: изучай языки 5.129.5 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенствуйте свои знания английского на практике - чтение, разговорную речь, письмо и восприятие на слух. Играйте, отвечайте на вопросы и выполняйте задания, увеличивая словарный запас и улучшая знания грамматики. Начните с простейших глаголов, фраз и предложений, узнавая новые английские слова каждый день. 34 часа, проведённых с Duolingo, равны по эффективности (   Читать дальше...   )Тип издания: Premium (Mod)Разработчик: DuolingoПоддерживаемая ОС: Android 10+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0494B32DF8F96CAA333714E3115ECB7594352DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679873   (134869) от 27.11.2023
-
-Э. Ферми | Лекции по атомной физике (1952) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга выдающегося итальянского физика Энрико Ферми (1901—1954) представляет собой обработку стенограмм лекций Ферми, прочитанных им в 1949 г. в Италии. Эта книга занимает особое место в современной физической литературе. В своих лекциях Ферми главное внимание уделил проблемам, которые даже в монографиях по ядерной физике занимают очень мало места. По существу настоящая (   Читать дальше...   )Жанр: ФизикаИздательство: Издательство иностранной литературыФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0C7B7E9B6852A28EEADDB29DDCE374D9C1F261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679826   (134867) от 27.11.2023
-
-VA - Музыка для машины Vol.45 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albin Lee Meldau Feat. & Jack Savoretti - Hold Your Head Up (03:08)
-02. Omer Balik - You Lost Me (04:05)
-03. Matvey Emerson Feat. & Able Faces - Speed of Light (03:00)
-04. Карина Догова - К Чёрту Love Story (03:56)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9119311E8978F47340D4833399E7D3E67D979802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679972   (134865) от 27.11.2023
-
-Tears For Fears - Songs From The Big Chair (1985) Super Deluxe, 2014, UMC (Universal Music Catalogue) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth-Pop>
+Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth-Pop>
 
 >>Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134865.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Head Over Heels (Richard Skinner BBC Session / London / 1984) [00:04:14]
-02. The Working Hour (Richard Skinner BBC Session / London / 1984) [00:06:08]
-03. Broken (Richard Skinner BBC Session / London / 1984) [00:03:19]
-04. Mothers Talk (Live) [00:04:04](   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-PopПродолжительность: 4 CD, 05:04:37
+01 - Mothers Talk (live) [00:04:23]
+02 - Broken Head Over Heels (live) [00:07:45]
+03 - Memories Fade (live) [00:05:23]
+04 - Mad World (live) [00:04:04](   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-PopПродолжительность: 01:21:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC5A22E98687FF7E6818E77B6EFD7519ED77B544
+magnet:?xt=urn:btih:8D27BA7CCF9EDADE3D73037A37241DF999888958
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -355,106 +270,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593960   (134864) от 24.12.2012
+###  Публикация: 593640   (134920) от 24.12.2012
 
-VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Control 98 - Super Sax
-02. Francesco Demegni - Don't Forget
-03. Continental Groove - Bawls of Prayer
-04. Montecarlo Dream - Del
-05. P Project - Modart
-06. Paul V - Cutdown
-07. Double T Project - Behind the Mirror
-08. Shin Elto - Deep Mundo
-09. Lounge Dam - Cap
-10. DJ Ambient P - Sweet and Sexy(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F3A09A5DB8AB46FE73C23CF5CF05B2308B56AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679878   (134863) от 27.11.2023
-
-Э. Ферми | Термодинамика (1973) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134863.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Термодинамика» Энрико Ферми — одного из величайших физиков современности — представляет собой исключительно интересно построенный и глубоко оригинальный курс этой науки. Отличающаяся высокими методическими достоинствами книга хорошо передает творческую индивидуальность Ферми — теоретика, экспериментатора, лектора. Она несомненно привлечет внимание не только специалистов, (   Читать дальше...   )Жанр: ФизикаИздательство: Издательство Харьковского университетаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A94E6FA26D977297D9F765D39AEFE19B2E7627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593498   (134862) от 24.12.2012
-
-Robin Rogers - 2 альбома (2008, 2010) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-2008 - Treat Me Right
-
-2010 - Back In The FireЖанр: BluesПродолжительность: 01:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FECB5D06A42F0486BD83DFA636E7EC2C3C7598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593655   (134861) от 24.12.2012
-
-Best HD Wallpapers Pack (23.12.12) [Wallpapers]
+Animal Wallpapers (22.12.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134861.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134920.jpg" />
 </div>
 
 
@@ -464,7 +288,7 @@ Best HD Wallpapers Pack (23.12.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:316CDB639EE2CF893ADFFB2315328305B8D9C45E
+magnet:?xt=urn:btih:20B6A4759971751842A1635CB5DCE7B34F5407D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,15 +296,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593994   (134858) от 24.12.2012
+###  Публикация: 1680028   (134919) от 27.11.2023
 
-Computer Desktop Wallpapers Collection (24.12.12) [Wallpapers]
+Мужчина получше / The Better Man (1912) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пристрастие Джима Сондерса к азартным играм заставляет его пренебрегать женой и ребенком. Однажды ночью, когда он был в салуне, Мигель Гомес, мексиканский преступник, за которого предложена награда в 1000 долларов, врывается в дом Джима....Производство: США, Vitagraph Company of AmericaЖанр: короткометражный, драма, немое киноРежиссер: Роллин С. СтарджонАктеры: Роберт Торнби, Джордж Стэнли, Энн Шефер, Чарльз БеннеттПеревод: Немой с интертитрами (В. Сачков)Язык озвучки: немойСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1235536DC76A9AB65221640604008D90CBDB632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593644   (134918) от 24.12.2012
+
+Rodents wallpaper (22.12.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134858.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134918.jpg" />
 </div>
 
 
@@ -490,7 +340,7 @@ Computer Desktop Wallpapers Collection (24.12.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:527DED530DC8ACC27C6D289CA0281BFD66924E7C
+magnet:?xt=urn:btih:3DF92542D465BEF08B0264797F7D0A4704FFA467
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -498,34 +348,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593454   (134857) от 24.12.2012
+###  Публикация: 1679923   (134916) от 27.11.2023
 
-Pride Of Lions - Immortal (2012) [MP3|320 кб/с]<Melodic Rock | AOR>
+Google Chrome 115: Privacy Sandbox заменяет сторонние cookies и усиливает контроль пользователя над рекламой
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134857.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_134916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Immortal
-02. Delusional
-03. Tie Down The Wind
-04. Shine On
-05. Everything That Money Can't Buy
-06. Coin Of The Realm
-07. Sending My Love
-08. Vital Signs
-09. If It Doesn't Kill Me
-10. Are You The Same Girl(   Читать дальше...   )Жанр: Melodic Rock | AORПродолжительность: 00:51:43
+Google готовит изменение в браузере Chrome, переходя от индивидуального к групповому отслеживанию через Privacy Sandbox. Изменения начнутся с Chrome 115 и к 2024 году сторонние cookies будут упразднены. Google заявляет, что новый подход обеспечит больший контроль пользователей над рекламой.Компания Google готовит крупное изменение в своем браузере Chrome. Технология (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:083A02A423E832B3B6591BE8FF027D23255C48C7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,15 +374,42 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593633   (134856) от 24.12.2012
+###  Публикация: 1679939   (134915) от 27.11.2023
 
-50 HQ Wallpapers (22.12.12) [Wallpapers]
+Журнал | Профиль №45-46 (217) (ноябрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР-Формат»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D052685C5C3C1BDFF11ACE92EAC56454623020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594003   (134914) от 24.12.2012
+
+France Wallpapers (24.12.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134856.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134914.jpg" />
 </div>
 
 
@@ -551,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DA71EF5DF784E59E9C1D8EAAECDFC83361A4EB5
+magnet:?xt=urn:btih:AFCA4093339ED66A96EEC325F67F8E8C6C9896C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,25 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679951   (134855) от 27.11.2023
+###  Публикация: 1680045   (134912) от 27.11.2023
 
-Извещение о смерти / Ikigami (2008) BDRip [H.264/720p] [VO]
+Ghost Train Orchestra & Kronos Quartet - Songs & Symphoniques: The Music of Moondog (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Orchestra, Classical-Crossover, Modern-Classical, Female ...
 
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134855.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По oднoимённoй мaнгe Moтopo Macэ... B нeдaлёкoм бyдyщeм пpaвитeльcтвo Япoнии, в пoпыткe иcключить cyицидaльныe нaклoннocти y мoлoдыx людeй и пoвыcить иx coзнaтeльнocть, ввoдит пpaктикy 'икигaми'. Смepтнoй кaзни пoдлeжит кaждый тыcячный гpaждaнин в вoзpacтe oт 18-x дo 24-x лeт. Приговорённый определяется случайным образом на всеобщей вакцинации в младшей школе, но (   Читать дальше...   )Производство: Япония / CBC, IMJ Entertainment, Mainichi Broadcasting System, K.K.Жанр: драмаРежиссер: Томоюки ТакимотоВ ролях: Сёта Мацуда, Такаси Цукамото, Рико Наруми, Такаюки Ямада, Акира Эмото, Рёхеи Абе, Исеки Тин, Денден, Норико Егути, Дзян ФубукиПеревод: любительский одноголосыйЯзык озвучки: русский (VO den904), японскийСубтитры: русские, английскиеПродолжительность: 02:12:57
+01 – Moondog; Theme
+02 – Moondog; Be a Hobo (feat. Rufus Wainwright)
+03 – Moondog; High On a Rocky Ledge
+04 – Moondog; Caribea(   Читать дальше...   )Жанр: Orchestra, Classical-Crossover, Modern-Classical, Female-VocalПродолжительность: 01:01:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D07F6C277E46112EEFF3171197F211F37FB350CF
+magnet:?xt=urn:btih:B0FD6640A79075FABE54B8BDBB6F2B93802713B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,25 +456,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679625   (134854) от 27.11.2023
+###  Публикация: 1680003   (134911) от 27.11.2023
 
-Уильям Бернстайн | Манифест инвестора (2017) [MP3, Андрей Барабанщиков]
+Доллар истинный и фальшивый / Un Dollaro tra i denti (1967) BDRip [H.264] [AVO]
 
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134854.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Об основах инвестирования и планирования портфеля. Главное, что пытается донести автор до читателей, заключается в рекомендации никогда не забывать о том, что обвалы рынка случаются. Именно поэтому важно выстраивать долгосрочную (да что там греха таить – и краткосрочную) стратегию таким образом, чтобы они не стали неожиданностью.Жанр: БизнесИздательство: АльпинаПродолжительность: 06:06:48
+В практически вымерший городок приезжает незнакомец. Здесь он становится свидетелем массового убийства мексиканских солдат бандой некоего Агиллы. Скоро в городок должна прибыть американская кавалерия с деньгами для мексиканцев. И незнакомец предлагает бандитам сделку. Он поможет бандитам завладеть долларами, но за значительную часть суммы. Плюс к этому, смельчак (   Читать дальше...   )Производство: Италия, США, Primex Italiana, Taka ProductionsЖанр: драма, боевик, вестернРежиссер: Луиджи ВанциАктеры: Тони Энтони, Гия Сандри, Раф Бальдассарре, Фрэнк Вулф, Альдо Берти, Энрико Каполеони, Антонио Марсина, Артуро Корсо, Фортунато Арена, Френк Вульф, Николя Ди Джиоиа, Анжела Миневини, Йоланда Модио, Сальтаворе Пунтилло, Уго КарбониПеревод: авторский, любительский одноголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 01:26:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C451CCB36538AEB4EE4D6A9050FDCCB7126A3A89
+magnet:?xt=urn:btih:E93DAE5D7486FFB642BD599A7A735ECB3F96A0C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,34 +482,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592721   (134853) от 24.12.2012
+###  Публикация: 1679880   (134909) от 27.11.2023
 
-VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+CADintosh X 8.8.6 [Multi]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134853.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marga Sol - Since Yesterday
-02. Lazy Hammock - Was I Anyone to You
-03. Lemongrass - Ton Parfum
-04. Michiko - Fly Away With You
-05. Viv de la Rosa - Andalucia - Sunny Del Mar Mix
-06. Albert St.Barth - Cafe Au Lait - Gigolo Edition
-07. Claude Chagall - Balearic Waves - Christmas Attack
-08. Martinique le Souffleur - ST.Tropez - 100% Deluxe Edit
-09. Marga Sol - Tocca Me
-10. DJ MNX - Chill Out Rock N Rolla(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:06:31
+CADintosh позволяет ускорить проектные работы и имеет тысячи надстроек, которые позволяют удовлетворить потребности самого широкого круга клиентов. CADintosh X - приложение из категории "Графика и дизайн", созданное компанией Lemke Software GmbH в январе 2012 года, которое прекрасно вписывается в идеологию Mac. Интерфейс приложения доступен на восьми языках. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2002-2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:751AF8DD1369DAE8862E789367DAE10AFD05F16C
+magnet:?xt=urn:btih:05972FAF8553DBD38F6E99E8A627CDEF28DC20B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,28 +508,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679702   (134852) от 27.11.2023
+###  Публикация: 593656   (134908) от 24.12.2012
 
-Apashe - Antagonist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Simphonic Hip-Hop, Dubstep, Trap>
+Nature Wallpapers (23.12.12) [Wallpapers]
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134852.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. King (feat. Busta Rhymes) [00:02:47]
-02. Catch Me [00:04:03]
-03. Devil May Cry [00:04:11]
-04. Human [00:04:00](   Читать дальше...   )Жанр: Alternative, Simphonic Hip-Hop, Dubstep, TrapПродолжительность: 00:46:08
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93F4CB9AA89146D4A284E0266200889B7584E28C
+magnet:?xt=urn:btih:AE45F49C9F8F9C97EE6D4B9D4856106630AC5FDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,25 +534,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593637   (134851) от 24.12.2012
+###  Публикация: 1679925   (134907) от 27.11.2023
 
-Winter Wallpapers (22.12.12) [Wallpapers]
+Сибирская Благозвонница | Находящемуся на одре болезни в подкрепление. По творениям преподобного Амвросия Оптинского (2023) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134851.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
+Став в 36 лет инвалидом по состоянию здоровья, преподобный Амвросий не впал в уныние. И чем тяжелее были приступы болезни у преподобного, тем более возрастал он духовно. Не понаслышке зная, что такое физические страдания, преподобный Амвросий всегда находил в себе силы помогать другим. Его неподдельная любовь к ближним, доброта, простота в общении, житейский юмор, (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A43ED80142151B427D79871C18213C90AB40E942
+magnet:?xt=urn:btih:941C262DF97FC144E01A6471E1BB2D15739C0FCF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,25 +560,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679946   (134850) от 27.11.2023
+###  Публикация: 593645   (134906) от 24.12.2012
 
-K-Lite Codec Pack Update 17.9.8 [En]
+Birds Wallpapers (22.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168A17E1819BE79C6DAA41D1E1BB09E13AF3799E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679965   (134905) от 27.11.2023
+
+Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [MP3|320 Kbps] <New Wave, Pop Rock, Synth-Pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mothers Talk (live) [00:04:23]
+02 - Broken Head Over Heels (live) [00:07:45]
+03 - Memories Fade (live) [00:05:23]
+04 - Mad World (live) [00:04:04](   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-PopПродолжительность: 01:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3234EF4C5EC07FBA1A026C982C74D391FB7357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679942   (134903) от 27.11.2023
+
+Fort Firewall 3.10.1 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134850.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:981D27BD532DC6DC1D45A5436FDD9F37B7D2A8F3
+magnet:?xt=urn:btih:5847EA0FD1D5CCB367133F6D42C7681D5BB10C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593946   (134902) от 24.12.2012
+
+Arty - Together We Are 027 (22.12.2012) [MP3|320 кб/с]<Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planet Perfecto - Bullet In The Gun (Refracture Remix)
+02. Denzal Park - Scorpio (Original Mix)
+03. KhoMha - Genesis (Original Mix)
+04. Those Usual Suspects & Nordean - Burn Forever (Original Mix)
+05. Discolure - Latch
+06. Martin Volt & Quentin State - Collision (Original Mix)
+07. Madeon - The City (The M Machine Remix)
+08. Pink Is Punk & Benny Benassi - Perfect Storm (Gigi Barocco Remix)
+09. Alesso - Clash (Original Mix)
+10. Alex M.O.R.P.H. - Prime Mover (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D412A1C2E42A373F7FAA8341F13FB9FCA0CA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594000   (134900) от 24.12.2012
+
+Desktop Wallpapers (24.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293F3BE068BE9DE6F5C4C0F3D31DE14C16BE5881
 ```
 
 https://mybot314.ru/tekegram_catalog/

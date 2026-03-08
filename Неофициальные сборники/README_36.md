@@ -1,3 +1,177 @@
+###  Публикация: 1476691   (1011534) от 12.06.2021
+
+VA - Mass In The Catacomb (2021) [MP3|320 Kbps] <Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011534.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Inflabitan - The Great Surrender
+002. Dopeghost - All Blue Faces
+003. Vitalij Kuprij - Revolution
+004. Space Caravan - Reefer Sleep(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 12:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F76BA6B5ECC3DC82E711EC7D594B8A733D1DF66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476637   (1011498) от 12.06.2021
+
+VA - Vintage Melody: Soul Funk Music (2CD) (2021) [MP3|320 Kbps] <Soul, Funk, Jazz, Lyric>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011498.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+001. Lance Reddick - Tick Tock
+002. The Spinners - O-O-H Child(   Читать дальше...   )Жанр: Soul, Funk, Jazz, LyricПродолжительность: 13:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE230F5D61327B775FF0D15DD8A2E3F6D9A6C631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476697   (1011491) от 12.06.2021
+
+VA - Hot Summer Play (2CD) (2021) [MP3|320 Kbps] <Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011491.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Chillymouse - Try Me Out
+02. Vinyl Disciples - Self Control(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 09:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4E24859C1414CCE4C26E82F8760074D80B67B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477394   (1011118) от 14.06.2021
+
+VA - Record Super Chart 12.06.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nessa Barrett feat. jxdn - la di die (3:15)
+02. Inna - Flashbacks (2:57)
+03. Tiesto - The Business (2:44)
+04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58A5684FA63E5E96795CEAA2D092C698B10F9DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477306   (1011057) от 14.06.2021
+
+VA - Громкие новинки Июня (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маша Кольцова, Nikitata, Ваня Дмитриенко, Арина Ростовская - За кулисами (2:46)
+02. Zivert - Рокки (2:57)
+03. Maroon 5 - Lost (2:52)
+04. Marshmello - Shockwave (3:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A199D8C6ECF2BDE36000992A334BF2560E1250F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477604   (1010971) от 15.06.2021
+
+VA - Elegant Jazz Music (2021) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Micah Gaugh - Walk Thru
+002. Jizue - Sabaku No Tsuki
+003. Nazareno Caputo - Abside
+004. Machomovers - Intro The Sky(   Читать дальше...   )Жанр: JazzПродолжительность: 09:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD2BFE7A0715AC8F790E19003BB52AEB28A6334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477590   (1010963) от 15.06.2021
 
 VA - All Out 10s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
@@ -571,180 +745,6 @@ VA - All Stars Of Vocal Trance (2021) [MP3|320 Kbps] <Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:869BFBB351A490F4B13CB1A67F4205BF945B6E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478895   (1009933) от 21.06.2021
-
-VA - Summer Chill Pop (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009933.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. JP Saxe - More of You (2:34)
-002. BLU EYES - actually happy (2:40)
-003. Lorde - Solar Power (3:12)
-004. Surfaces - So Far Away (3:27)(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD62446EDD9A347E2760806CA9ED53E910570BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479354   (1009590) от 24.06.2021
-
-VA - Euphoric Progressive Trance (2021) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009590.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cole Twains - Beyond Time
-002. Nadi Sunrise - Between You And Me
-003. Jay Del Mar - Odyssey
-004. Veselin Tasev - Before Sunrise(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 10:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18BCDC41AD07D662D632B4A79570C660E04C3D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479345   (1009589) от 24.06.2021
-
-VA - Beatport Tech House: Sound Pack #302 (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009589.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jon Snow - What Is House
-002. Deetron - Count On Me
-003. Ron Flatter - Jolie Culotte
-004. Franksen - Wait Now(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 12:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB124DACF113C562BD727FD2AABF4A7127D25D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479352   (1009588) от 24.06.2021
-
-VA - Beatport Disco House: Sound Pack #304 (2021) [MP3|320 Kbps] <Funky, Disco House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009588.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Probably Shouldnt - Canon
-002. Mirko Hirsch - You're Just
-003. Jerem A - Always Too Much
-004. DJ Skip - Fallin N Love(   Читать дальше...   )Жанр: Funky, Disco House, ElectroПродолжительность: 09:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369246D5C5F181AB50F7865E18AAB1281B242C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479337   (1009583) от 24.06.2021
-
-VA - Bassline Massive Project (2021) [MP3|320 Kbps] <Bass, Drum And Bass, Bassline>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009583.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chisel - Boy
-002. DJ Vantigo - Looking For You
-003. Parallel - Communications
-004. Electronics - Retribution(   Читать дальше...   )Жанр: Bass, Drum And Bass, BasslineПродолжительность: 07:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9132BA6CE813F517F947519D03F98F66E870A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478730   (1009582) от 24.06.2021
-
-VA - Audiowarp, Best Of The Mix (2021) Mixed by aQuaLuna [MP3|320 Kbps] <Hard Trance, Hard Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiowarp - All Around Us (Original Mix) (FOOLS FOREST, 2009)
-02. Audiowarp - 31 Seconds (Original Mix) (MOON UP, 2009)
-03. Audiowarp - Summersonic (Original Mix) (Q-DANCE, 2010)
-04. Audiowarp - Power Of The Music (Original Mix) (BENEFACTOR, 2011)(   Читать дальше...   )Жанр: Hard Trance/TechnoПродолжительность: 02:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065F800B8B7C6F2325A3D1A6855EA2D7EF835CAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

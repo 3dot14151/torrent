@@ -1,3 +1,32 @@
+###  Публикация: 1098772   (908751) от 30.01.2017
+
+VA - Body Language Vol.2 (Dive Into The Magic Of Deep House) (2017) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bes & Meret - My Cocoon (Tom Leeland remix) 05:40
+02. Florito - Balearic Air (Beach Bar mix) 06:11
+03. Miss Luna - Love Peace & Happiness (Florito mix) 04:57
+04. Tom Appl - Downtown (Christos Fourkis remix) 05:14(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1C940100CB48B262AEBD8B2DE6B7466DE4433B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991573   (906000) от 28.02.2016
 
 VA - Workout Motivation Vol 2 (Pres By Sam Booka) (2016) [MP3|320 кб/с] <House>
@@ -713,35 +742,6 @@ VA - Dash Deep Harsh Crazy 2015.02 (2017) [MP3|320 Kbps] <House, Tech House, Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE0AA5F93D2C34F0C8DEEA9E21AA3C888579DC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101987   (892839) от 08.02.2017
-
-VA - The Best of 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medway - Trauma (Donatello Remix) 06:42
-02. Imran Khan - Buenos Aires (Original Mix) 08:43
-03. DP-6 - Reload (Rick Pier O'Neil Remix) 06:36
-04. Alfonso Muchacho - Until the End (Original Mix) 09:35(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, ProgressiveПродолжительность: 07:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB7B7D2467BE13FA40F4E316CF402E99BB4CB49
 ```
 
 https://mybot314.ru/tekegram_catalog/

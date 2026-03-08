@@ -1,3 +1,29 @@
+###  Публикация: 1182434   (314216) от 11.11.2017
+
+Ленинград / Вояж (2017) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая группа «Ленинград» и ее лидер, любитель крепкого словца Сергей Шнуров, представили клип к композиции "Вояж"Производство: РоссияЖанр: Rock, SkaПродолжительность: 00:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C63562C8C127F9B53309060F366E5FB5129D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182274   (314087) от 11.11.2017
 
 Сборник клипов - Philizz "Back To The 90s" (episode 7) (2017) WEB-DLRip [H.264/720p-LQ]
@@ -696,35 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2A4422663D2802217FC9ED0FEABB560B6BDBBA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729544   (308752) от 02.12.2013
-
-Muse - Live in Rome (The Unsustainable Tour) (2013) [1080p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Supremacy
-03. Panic Station
-04. Plug In Baby(   Читать дальше...   )Производство: США, Великобритания / Warner Bros., Helium-3Жанр: Alternative RockРежиссер: Мэтт АскемПродолжительность: 01:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB672CF6F6C498B82831252648C1E106A19E63B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

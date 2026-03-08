@@ -1,3 +1,37 @@
+###  Публикация: 289503   (914190) от 03.02.2011
+
+Static Insane - Break the Seal (2009) [MP3|320 kbps] <Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Static Insane - Break the Seal (2009)
+Год: 2009
+Жанр: Full On
+Лейбл: Psy Brasil
+Продолжительность: 01:14:47
+Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТрек лист:
+01. Break The Seal [06:45](   Читать дальше...)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8FC14E367624CB8F47D54A3C7EB780BC9A3629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491058   (914188) от 23.08.2021
 
 Text Scanner - PDF & Document 1.4.4 [En]
@@ -667,35 +701,6 @@ Telegram — это приложение для обмена сообщения�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9DDF3BB7AAE0D30D62E97AC4AA26699022A53A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097692   (914034) от 27.01.2017
-
-SQLPro for MySQL - GUI Database management studio 1.0.33 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914034.jpg" />
-</div>
-
-
-###  Подробнее
-
-MySQL Database Client - простой и мощный менеджер MySQL для Mac OS X
-MySQL клиент базы данных является легким клиентом MySQL, что позволяет осуществить быстрый и простой доступ к Oracle MySQL серверам, в том числе размещенные в Amazon RDS. Это SQL Client только для MySQL и не будет работать с другими серверами баз данных, таких как MSSQL или PostgresSQL.
-
-- Подсветка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 января 2017Разработчик: Hankinsoft Development Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82D1B8CCEC68FC29DB8E05E33D65406F496C46E
 ```
 
 https://mybot314.ru/tekegram_catalog/

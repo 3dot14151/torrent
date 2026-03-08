@@ -1,3 +1,32 @@
+###  Публикация: 972446   (982000) от 06.01.2016
+
+Calypso - We Move The Jumpin' Hype! (1996) Digitally Remastered [MP3|320 кб/с] <Rave, Hardcore, Hard Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	Welcome To Calypso 	                2:06
+2 	Hardcore Islands (Extended) 	6:42
+3 	Def Con 5 	                                5:31
+4 	Rave In Paradise 	                3:36(   Читать дальше...   )Жанр: Rave, Hardcore, Hard TranceПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80548632F5BFDF0072A6ABCABAAA7E2DC8298915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972642   (981997) от 06.01.2016
 
 VA - Huge Uplifting Trance Midi & Spire (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
@@ -741,35 +770,6 @@ VA - 20 Trance Hits (2005-2012) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0554A4AC41FE0D1E5A9F2D3F2B7868C94BD43EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356620   (976774) от 01.02.2020
-
-VA - Consolidated DnB Party (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Duoscience - Wonderland
-002. Boombassbrothers - Pompadour
-003. Digital - Abducted
-004. Tubba T - The Light Of The Day (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 09:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA15315FDB150F1C37305CCF3D38894CAA82103
 ```
 
 https://mybot314.ru/tekegram_catalog/

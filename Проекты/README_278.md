@@ -1,29 +1,3 @@
-###  Публикация: 842171   (328043) от 18.11.2014
-
-VideoHive - Metallo - 132990 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект представления текста/фото/видео/лого в жёсткой брутальной манере. Две версии: оригинал (требует плагины Trapcode Particular 2, Optical Flares) и пререндер. Превью и текстовый файл помощи - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1F8965B8A343608BAE4B8A5C74C5ECD195907D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 842131   (328041) от 18.11.2014
 
 Проекты - VideoHive - LIVE SHOW - 132866 [AEP]
@@ -685,6 +659,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B958E246ADD0CD95C4063916B62F225705B2839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957528   (326317) от 18.11.2015
+
+Проекты - VideoHive - Growing Flower - 6543739 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания эффектного представления вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43726EE8D44D1DB8F00FEEAB87C0A3C960D03CD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

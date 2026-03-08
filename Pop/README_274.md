@@ -1,3 +1,66 @@
+###  Публикация: 1584075   (226180) от 17.10.2022
+
+Cerrone - Cerrone by Cerrone (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмечая 50-летие своей музыкальной карьеры Cerrone со товарищи выпустил свои 16 культовых классических произведений в версии 2022 года, переработав и смикшировав их собственноручно.01. Give Me Love (feat. Brendan Reilly)
+02. My Desire (feat. Brendan Reilly)
+03. Got to Have Lovin' (feat. Brendan Reilly)
+04. Look for Love (The Reflex Revision)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E4AB074948FA16A1EFFC2C5C12FD480F280D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586716   (226142) от 09.12.2012
+
+Adriano Celentano - Live Adriano (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый двойной альбом Адриано Челентано, запись концерта проходившего 8-9 октября в Вероне, маэстро дополнил его еще девятью отличными студийными композициями в виде бонуса...1. Solo da un quarto d'ora (5:45)
+ 2. Io sono un uomo libero (5:48)
+ 3. Quel casinha (Il ragazzo della via Gluck) (4:28)
+ 4. 24.000 baci (2:19)
+ 5. Nata per me - Remix (2:58)
+ 6. Dormi amore (5:31)
+ 7. Tir (4:29)
+ 8. Per sempre (5:10)
+ 9. Gelosia (4:31)Жанр: PopПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE7ABE0DA4263C6DFEE11D628829D1EB179DCEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965134   (226104) от 14.12.2015
 
 Sabrina - Erase/Rewind - Official Remix (2008) 2CD [FLAC|Lossless|image + .cue] <Pop, Disco>
@@ -693,64 +756,6 @@ Belinda Carlisle - A Place On Earth · The Greatest Hits (1999) 2 CD [OGG Vorbis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:714980479131A990B04E7126E96E6AB8E4C8CD07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584849   (224514) от 19.10.2022
-
-Selena Gomez - Revival (2015) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival
-02. Kill'em With Kindness
-03. Hands To Myself
-04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D82959A2E28A82A626E587936842D95A75514F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584231   (224368) от 19.10.2022
-
-Ярослав Евдокимов - Не рви рубаху! (1994) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Там за окнами...
-02. Белокурая колдунья
-03. Верочка
-04. Подковочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B449273ACB9C5092A5E67D320B40E9922367CF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

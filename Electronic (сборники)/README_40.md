@@ -1,3 +1,32 @@
+###  Публикация: 1000628   (857562) от 26.03.2016
+
+VA - Trance Desire Volume 64 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moreno J - Welcome Home (06:06)
+02. Wellenrausch feat. Andre Berger - Virtual Self (Album Mix) (06:57)
+03. Trance Arts feat. Hysteria! - Still Have a Choice (Uplifting Mix) (05:10)
+04. Sou Kanai feat. Claire Willis - Stay (Dennis Pedersen Remix) (04:54)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1685EE6AA96A475625EF7BDAB56FEDD4E7115F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000659   (857523) от 26.03.2016
 
 VA - Super Dance Party Vol.5 (2016) [MP3|320 кб/с] <Hands Up, Pop, House>
@@ -710,35 +739,6 @@ VA - Spring Break (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:328EA08D47047DB81CA9278370E244F7AB13D849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770598   (850541) от 25.03.2014
-
-VA - Exclusive DJ Pack (03.01.2014) [MP3|320 кб/с]<Dance, Nu Disco, House, Techno, Trance, Breaks, Minimal, Chill, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addictive Glance - Strider (Vassilakis, Tarr Remix) (06:28)
- 02. Anden State - Unizus (Original Mix) (07:14)
- 03. Arman Bahrami, Ailsa Villegas - Beat Of My Heart (Uplifting Mix) (07:49)
- 04. Blood Groove, Kikis - Voices (Original Mix) (07:06)(   Читать дальше...   )Жанр: Dance, Nu Disco, House, Techno, Trance, Breaks, Minimal, Chill, OtherПродолжительность: 07:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA077F2FBB4A6EB3AAEB773C6C40D03D618441BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

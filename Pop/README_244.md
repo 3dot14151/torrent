@@ -1,3 +1,58 @@
+###  Публикация: 1333816   (296656) от 28.10.2019
+
+Radiorama - Greatest Hits & Remixes (2015) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chance To Desire (Vocal Version) (7:54)
+02. Vampires (Swedish Remix) (6:25)
+03. Aliens (Swedish Remix) (5:41)
+04. Yeti (Special Remix) (7:27)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, 80s |Продолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25142BC99C2FC0B4E459C0399E5A930C8FF1B700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 106831   (296087) от 18.12.2009
+
+Kim Wilde - Discography (14 Albums) (1981 - 2006) [APE | FLAC|lossless]<Pop, New Wave, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, New Wave, Rock, DanceПродолжительность: 12:17:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079413   (295980) от 03.12.2016
 
 VA - New Italo Disco Top 25 Compilation Vol.3 (2016) [MP3|320 Kbps] <Hi-NRG, Italo Disco, Post-Disco>
@@ -689,64 +744,6 @@ ZAZ - Effet Miroir (2018) [MP3|320 Kbps] <Nu Jazz, Chanson, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95E662C3B04B3AFED9E71ED10302F50037E569BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261966   (294805) от 15.11.2018
-
-Николай Караченцов - Антология Николая Караченцова (2007)(12CD) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Три кита (М.Дунаевский – Н.Олев) – 02:49
-02. Давай поговорим (М.Дунаевский – Н.Олев) – 04:28
-03. Вечный двигатель прогресса (М.Дунаевский – Н.Олев) – 02:12
-04. Два сердца (М.Дунаевский – Л.Дербенев) – 04:37(   Читать дальше...   )Жанр: PopПродолжительность: 12:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584D0B79982E5791E721FDC2D522A2185F371956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185122   (294804) от 20.11.2017
-
-VA - Now That's What I Call Music! 98 (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Hip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё не остыли эти диски от штамповки (17 ноября был выдан тираж), а вы уже можете насладиться этим релизом, состоящим из топовых треков из Великобритании и Ирландии. И если вам жалко отдавать за эти два диска £13.99, то возьмите их здесь - в любимом клубе NNM-Club.CD1:
-01. Camila Cabello feat. Young Thug - Havana  (2:58)
-02. Post Malone feat. 21 Savage - Rockstar  (3:39)
-03. Sam Smith - Too Good at Goodbyes  (3:23)(   Читать дальше...   )Релиз состоялся: 17 ноября 2017 годаЖанр: Pop, Electronic, Hip HopПродолжительность: 02:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CEBF575808362D362C9917433EB052FD0E3B05B
 ```
 
 https://mybot314.ru/tekegram_catalog/

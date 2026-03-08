@@ -1,23 +1,22 @@
-###  Публикация: 1193796   (261962) от 22.12.2017
+###  Публикация: 1193243   (262002) от 21.12.2017
 
-Журнал | Дарья. Биография №1 (январь 2018) [PDF]
+Оно / It (2017) BDRip [H.264/1080p]
 
->>Журналы
->>Другие журналы
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261962.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
-Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+В маленьком городке Дерри, штат Мэн, уже много веков орудует воплощение липкого ужаса под видом клоуна из бродячего шапито. Его жертвами становятся преимущественно подростки с неокрепшей психикой, которых он предварительно запугивает до аморфного состояния, чтобы затем устроить детишкам кровавую вакханалию в марсианском аду. Местные власти ничего не предпринимают, (   Читать дальше...   )Производство: США, New Line Cinema, KatzSmith Productions, Lin Pictures, RatPac-Dune Entertainment, Vertigo EntertainmentЖанр: Ужасы, Триллер, ДрамаРежиссер: Андрес МускеттиАктеры: Джейден Либерер, Джереми Рэй Тейлор, София Лиллис, Финн Вулфард, Чоузен Джейкобс, Джек Грейзер, Уайатт Олефф, Билл Скарсгард, Николас Хэмилтон, Джейк Сим, Логан Томпсон, Оуэн Тиг, Джексон Роберт Скотт, Стивен Богерт, Стюарт ХьюзПеревод: Дублированный (iTunes) +  Любительский многоголосый + Авторский (Одноголосый, закадровый)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:14:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27C63FD239BF113C8F7531126E781D031EEBDAB0
+magnet:?xt=urn:btih:5D49124CA555083DCF53F07DAA58A9F9E5DA0EA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193700   (261961) от 22.12.2017
+###  Публикация: 1193717   (262001) от 22.12.2017
 
-Студия Союз (2017.12.21) WEB-DLRip (выпуск 20)
+Harry James - Things Ain't What They Used To Be (1948, 1949) 1989, Object Enterprises [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Архив торрентов
->>Архив Юмора
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261961.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:44:33
+01. Shine [03:00]
+02. Block Party [02:12]
+03. Proclamation [03:29]
+04. Slap Happy [03:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:53:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13AEAAFABEA4F1A6CB0476DE08AEFBA01F885F23
+magnet:?xt=urn:btih:32C673B5829CB64C7E0D5C80378378CBC2676067
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,27 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193792   (261960) от 22.12.2017
+###  Публикация: 1193527   (262000) от 22.12.2017
 
-JetBrains ReSharper Ultimate 2017.3 [En]
+Lewis Nash - Rhythm Is My Business (1993) Evidence Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261960.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ReSharper – это расширение для Microsoft Visual Studio, помогающее повысить эффективность разработки и автоматизировать большинство рутинных процедур.
-Поддерживая C#, VB.NET, XAML, XML, ASP.NET, ASP.NET MVC, JavaScript, HTML и CSS, ReSharper делает программирование в Microsoft Visual Studio намного более быстрым и эффективным.
-Используя ReSharper, вы сможете создавать (   Читать дальше...   )Язык интерфейса: Английский
+01. Let Me Try [07:05]
+02. 106 Nix [10:18]
+03. Sing Me a Song Everlasting [08:12]
+04. My Shining Hour [03:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77A207F3B314428EA9295797A4517DEE93524541
+magnet:?xt=urn:btih:C6E15D3322AE5BDC8622CCA09DEC3492B0AF285F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +82,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193758   (261959) от 22.12.2017
+###  Публикация: 1193722   (261999) от 22.12.2017
 
-Dynamic Illusion - Interstellar Horizon (2017) [MP3|320 Kbps] <Electronic, Ambient, Chillout>
+Eric Alexander & Vincent Herring - Friendly Fire: Live At Smoke (2012) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pat n Chat [08:18]
+02. Sukiyaki [09:51]
+03. Inception [08:47]
+04. Dig Dis [08:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB5765B92D1579AEF5DEA25FA23635B6D6E1B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193718   (261998) от 22.12.2017
+
+Clark Terry & Bob Brookmeyer Quintet - Gingerbread Men (1966) 1991, Mainstream Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haig & Haig [04:33]
+02. I Want a Little Girl [04:12]
+03. Mood Indigo [06:53]
+04. Milo's Other Samba [02:53](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFC2BFA20250AE041B9EF60AD6F977C3E198EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193713   (261997) от 22.12.2017
+
+Buddy Tate - Swinging Like Tate (1959) 1988, Decca Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bottle It [06:04]
+02. Walk That Walk [08:37]
+03. Miss Sadie Brown [06:00]
+04. Moon Eyes [07:41](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4922FD0EBEA78A315CAAD7A9178CA26D874EACF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193675   (261996) от 22.12.2017
+
+VA - Best Of Vandit (Mixed by Jardin) (2017) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>Easy listening
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261959.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wasteland (04:24)
-02. Landing Zone (06:03)
-03. Beyond Infinity (07:31)
-04. Planet Mindfields (09:22)(   Читать дальше...   )Жанр: Electronic, Ambient, ChilloutПродолжительность: 01:24:10
+01.  Richard Lowe  -  Levitate (Original Mix)  3:53
+02.  Emanuele Braveri  -  Destination Summer (Original Mix)  3:13
+03.  Chris Bekker  -  Episodes (Original Mix)  3:09
+04.  Alex M.O.R.P.H.  -  It Is Full Of Stars (Original Mix)  3:25(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3DFF91C9C566BB29EA998AAEBAD342D6738A41A
+magnet:?xt=urn:btih:A56F98F32F81F107D734EC1FAB63A38595DB3B65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,25 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193816   (261958) от 22.12.2017
+###  Публикация: 1193303   (261995) от 22.12.2017
 
-Вечерний Ургант (2017.12.22) SATRip
+Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Двойки. 1-я попытка (09.12.2017) WEB-DL [H.264/720p-LQ] [EN]
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261958.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:47:35Реклама: Присутствуют вставки текстовой рекламы
+09 декабря 2017 года, суббота. 15:30 МСК
+4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
+Бобслей. Мужчины-Двойки. 1-я попытка
+Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:06:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95A980C62E0EB371A0B2823BF5AE2D2DD1916B13
+magnet:?xt=urn:btih:065A14050303E6CAB51027C67B92061429111AEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,109 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193646   (261957) от 22.12.2017
+###  Публикация: 1193683   (261994) от 22.12.2017
 
-Mistral - Best Of Mistral 1977-80 (2012) Compilation [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект от Kid van Ettinger, Rick Van Der Linden, Robbie van Leeuwen с привлечением различных популярных вокалисток. Так в создании "Neon City" приняла участие Mariska Veres из  "Shocking Blue". В компиляцию вошли все синглы проекта.01. Jamie (3:51)
-02. Starship 109 (3:02)
-03. Neon City (2:48)
-04. You're My Hero (3:25)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED2A610FE101A2811DD3D129AF1C73E4D538DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193257   (261956) от 22.12.2017
-
-Facebook отвечает на сложные вопросы: вредны ли социальные сети?
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не так давно мы писали о том, что целый ряд бывших ведущих руководителей Facebook критикуют социальные сети и саму компанию за негативное влияние на общественные отношения. Своеобразным ответом крупнейшей в мире социальной сети можно считать опубликованное официальное исследование плюсов и минусов этого метода общения и потребления информации. Исследование ставило (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193632   (261955) от 22.12.2017
-
-Вечерний Ургант (2017.12.21) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:10Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F63A346980E7354B3618F38393857B0B3A80A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193658   (261954) от 22.12.2017
-
-VA - Spacechillers (Сompiled by Maiia) (2017) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Breaks, Ambient>
+Yuji KONDO - Faces Past (2017) 10 Label [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Dub Techno>
 
 >>Electronic
->>Psybient, Psychill, Psydub (Lossless)
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261954.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Astronaut Ape - Troposphere (07:43)
- 02. Airform - Rain Of Rice Fields (07:08)
- 03. S1gns Of L1fe - Accelerated Awakening (08:10)
- 04. Coam - Blue Electric Hand (06:59)(   Читать дальше...   )Жанр: Psybient, Downtempo, Breaks, AmbientПродолжительность: 01:35:53
+01. Vanishing Curvatures (06:47)
+ 02. Juniper Fox (05:35)
+ 03. Linger (05:17)
+ 04. Feigning Death (05:26)(   Читать дальше...   )Жанр: Techno, Experimental, Dub TechnoПродолжительность: 00:46:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED1AF40B5D3C7E9F4C187DABC778002509779B30
+magnet:?xt=urn:btih:46AD6AD4428AFD23C37F81E4F47CF8FD1B2A4F27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,28 +256,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193815   (261953) от 22.12.2017
+###  Публикация: 1193515   (261993) от 22.12.2017
 
-Петросян-Шоу (2017.12.22) SATRip (выпуск 19)
+Benny Goodman - Benny In Brussels (1958) 1989, CBS [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Dance [01:05]
+02. Don't Be That Way [03:13]
+03. Hallelujah [04:15]
+04. Obsession [03:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684332BE3E6D7CCFBC6D332D93A474233CE1A66D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193720   (261992) от 22.12.2017
+
+Eric Alexander - Summit Meeting (2002) Milestone Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summit Meeting [08:05]
+02. The Sweetest Sounds [07:45]
+03. There But For The Grace Of... [08:52]
+04. I Haven't Got Anything Better To Do [07:14](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FF4E5682B818EE2B8D8C33DB31DBA7BE1DF543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193298   (261991) от 22.12.2017
+
+Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Женщины (09.12.2017) WEB-DLRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Юмора
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261953.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сегодня в гости к Евгению Петросяну вновь придут его друзья и коллеги.
-Максим Галкин продемонстрирует мастерство пародии.
-Сергей Дроботенко прочитает свой фельетон и исполнит "зримую" песню, посвященную одному из участников шоу.
-Лион Измайлов продолжит рубрику "Песенка-забава", Обид Асомов расскажет восточные истории, а Святослав Ещенко разыграет (   Читать дальше...   )Телекомпания: Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:34:30Реклама: Присутствуют вставки текстовой рекламы
+09 декабря 2017 года, суббота. 11:45 МСК
+4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
+Бобслей. Женщины
+Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09268317FD5D960C78A385223A1287DDDA15152B
+magnet:?xt=urn:btih:CBEC7118B7E306DE721FC3FBED4D7E9CD4B7E89F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,26 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193623   (261952) от 22.12.2017
+###  Публикация: 1193585   (261990) от 22.12.2017
 
-Журнал | Автомир [Россия] №52 (декабрь 2017) [PDF]
+VA - Deep Value, Vol. 2 (Mixed By Pornbugs) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 
->>Автомобили
->>Автомобильные журналы
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261952.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
-Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+01. Martin Aquino - Lucid (Original Mix) [08:26]
+02. El Mundo - The Message (Original Mix) [07:31]
+03. Markus Homm - Open End (Original Mix) [06:50]
+04. Philipp Gonzales - Katana's Drums (Dave Pad Remix) [07:17](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:02:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC4F3D65AAEFA220D3CD6CD8FDCE202FAC071071
+magnet:?xt=urn:btih:DEFE897CBD8022123B506FD924F38CC257BC52E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,27 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193644   (261951) от 22.12.2017
+###  Публикация: 1193797   (261989) от 22.12.2017
 
-Векторный клипарт - Seamless Floral Borders 51 [AI]
+VA - Ferry Corsten Presents Corsten's Countdown December (2017) [MP3|320 Kbps] <Trance>
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261951.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Бесшовные цветочные границы
-3 AI +TIFF PreviewФормат: AI
+01.  Ferry Corsten  -  Wherever You Are (feat. HALIENE) (Solis & Sean Truby Extended Remix)  6:49
+02.  Cosmic Gate & Sarah Lynn  -  Folded Wings (Extended Mix)  6:43
+03.  Markus Schulz presents Dakota  -  The Spirit Of The Warrior (Transmission 2017 Theme) (Extended Mix)  6:23
+04.  DIM3NSION & Zaa  -  Cielo (Extended Mix)  6:02(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA7B191C060FDE6C0F161BB1D42E1F424A0C3AEA
+magnet:?xt=urn:btih:72C5661C8EAE4EA807AC0DDDF8B4DD1D2C0092D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,25 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193703   (261950) от 22.12.2017
+###  Публикация: 1193685   (261988) от 22.12.2017
 
-Орел и решка. Звёзды (2017.12.20) WEB-DL [H.264/720p-LQ] (Генуя. Италия)
+Condensed Utopia - Assioma (2017) Circular Limited [FLAC|Lossless|WEB-DL|tracks] <Techno, Drone>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261950.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Орёл и Решка. Звёзды – это спецпроект от всеми вами любимого тревел-шоу Орёл и Решка. Катерина Варнава, Михаил Башкатов, Анфиса Чехова, Виктор Васильев, Светлана Лобода и Александр Ревва – именно эти звезды звёды шоу-бизнеса будут отчаянно бороться за золотую карту с нашими опытными ведущими Колей Сергой, Машей Иваковой, Жанной Бадоевой и Аланом Бадоевым! Всего вас (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:53:06
+01. Complex Alternative to Violence (05:50)
+ 02. Assioma (06:43)
+ 03. Silence Error (06:01)
+ 04. In Abcence of Light (06:27)Жанр: Techno, DroneПродолжительность: 00:25:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D69541C501113CA9ED5EFA65C3B508307A14A8CE
+magnet:?xt=urn:btih:252E211C281CDF0F7CC35BDB0DC5E56C65D6F8EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,25 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193849   (261949) от 22.12.2017
+###  Публикация: 1193725   (261987) от 22.12.2017
 
-Журнал | На бабушкиной кухне №1 (январь 2018) [PDF]
+Enrico Pieranunzi Quartet - Alone Together (2001) Challenge Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
->>Журналы
->>Кулинарные журналы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261949.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"На бабушкиной кухне" - рецепты наших бабушек. Простые рецепты, которые придутся всем по вкусу. А готовить наши бабушки умеют...Жанр: КулинарияФормат: PDF
+01. Speak Low [05:18]
+02. My Foolish Heart [06:04]
+03. What Is This Thing Called Love [04:35]
+04. Sweet And Lovely [03:37](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:745BCF29191B06E998C3A85C35A5D08CE574B15A
+magnet:?xt=urn:btih:24C8FD4FE04867CCBD7CC81E53BDE27A9EA71CB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -380,26 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193619   (261948) от 22.12.2017
+###  Публикация: 1193762   (261986) от 22.12.2017
 
-Без права на поражение (28.11.2017) WEBRip [H.264/1080p-LQ]
+VA - Alpine Grooves IX (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261948.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Авторская съемка военкора команды News Front Никиты Возмителя.
-Фильм посвящается всем павшим во имя Отчизны. Всем, кто продолжает сражаться на полях непрекращающейся войны. Документальный проект повествует об истории легендарной бригады (ныне батальон) «Призрак», которую основал известный командир ополчения Алексей Борисович Мозговой, трагически погибший в мае 2015-го (   Читать дальше...   )Производство: Россия, News FrontЖанр: ДокументальныйПродолжительность: 00:25:43
+01. Joris Voorn & Kid A – So Long (Christian Loeffler Remix) (05:07)
+02. Liza Flume & Alexander Remus – Sheets (06:03)
+03. SAAND – Mysterious Power (Powel Remix) (06:30)
+04. Just Her – Follow You Down (07:48)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:52:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5762CAB4F0C5249BFB6DC69912DE3EB8720FDBC
+magnet:?xt=urn:btih:0F32696ABF87DE6E06820FFBD6CFF6FD972419A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,25 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193706   (261947) от 22.12.2017
+###  Публикация: 1193694   (261985) от 22.12.2017
 
-Орел и решка. Звёзды (2017.12.21) WEB-DL [H.264/720p-LQ] (Люксембург)
+VA - Entrancing Music Top 20 (2017) [MP3|320 Kbps] <Trance>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261947.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Орёл и Решка. Звёзды – это спецпроект от всеми вами любимого тревел-шоу Орёл и Решка. Катерина Варнава, Михаил Башкатов, Анфиса Чехова, Виктор Васильев, Светлана Лобода и Александр Ревва – именно эти звезды звёды шоу-бизнеса будут отчаянно бороться за золотую карту с нашими опытными ведущими Колей Сергой, Машей Иваковой, Жанной Бадоевой и Аланом Бадоевым! Всего вас (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:52:42
+01. Kate Miles, DJ T.H. & Floe – Like A Miracle (Denis Kenzo Remix)
+02. Denis Sender, DJ T.H. & Cari – I Found You (Maywave Remix)
+03. Floe, Aly Frank & J.Puchler – Home (LTN Remix)
+04. Kiran M Sajeev – Bharat Mata (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A44EFD242F1D50235C4D4DC0ADD561B57E530389
+magnet:?xt=urn:btih:6F53BCCE4C4037873430C391F1211F1E993C9F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,25 +517,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193701   (261946) от 22.12.2017
+###  Публикация: 1193719   (261984) от 22.12.2017
 
-Студия Союз (2017.12.21) WEB-DL [H.264/720p-LQ] (выпуск 20)
+Charles McPherson - Siku Ya Bibi (1971, 1972) 1991, Mainstream Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
 
->>Юмор (ТВ)
->>ПостКВН
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261946.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:44:33
+01. Don't Explain [04:26]
+02. Lover Man (Oh Where Can You Be) [04:58]
+03. God Bless the Child [04:28]
+04. Miss Brown to You [04:42](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:47:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0392C04111D9D764685D109DDFE5DD94F8E2FFAF
+magnet:?xt=urn:btih:D91A64F9C8CACDE6393A2A748E828AE94E376BA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,247 +546,196 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193674   (261945) от 22.12.2017
+###  Публикация: 1193707   (261983) от 22.12.2017
 
-Валерий Карышев | Спецотдел «Русский легион» (2005) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бандитизм давно взял столицу за горло. Что ни день – убийства, взрывы, ограбления. Крутой генерал, возглавивший Совет Безопасности, сказал: "Хватит!" И создал секретное подразделение, призванное уничтожать криминальных главарей без суда и следствия. По особому черному списку. Но где кончается криминал и начинается власть? Они срослись, как сиамские близнецы. (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE7038749DCD2232896CDFEEC5E4164C9E734A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193647   (261944) от 22.12.2017
-
-Векторный клипарт - Ornate Vintage Frames 53 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Декоративные винтажные рамы
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD998D1BB14FF29B58587CEE9DCA3546D99F83F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193544   (261943) от 22.12.2017
-
-Оно / It (2017) BDRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в городке Дерри, штат Мэн, начинают пропадать дети, несколько ребят сталкиваются со своими величайшими страхами и вынуждены помериться силами со злобным клоуном Пеннивайзом, чьи проявления жестокости и список жертв уходят в глубь веков.Производство: США, КанадаЖанр: Ужасы, триллерРежиссер: Андрес МускеттиАктеры: Джейден Либерер, Джереми Рэй Тейлор, Софиа Лиллис, Финн Вулфард, Чоузен Джейкобс, Джек Дилан Грейзер, Уайатт Олефф, Билл Скарсгард, Николас Хэмилтон, Джейк СимПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 02:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C029936659CE8FD3AA5EDDAC612A8641C5555161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193855   (261942) от 22.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 2) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Анна Герман  -  Я помню всё  2:54
-02.  Мария Пахоменко  -  Знать случились холода  3:44
-03.  Людмила Зыкина  -  Осенний Сон  3:41
-04.  Муслим Магомаев  -  Не спеши  3:27(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9431E9DDBD6FA152CEF9FDB8066E7E93D3289F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193702   (261941) от 22.12.2017
-
-Орел и решка. Звёзды (2017.12.20) WEB-DLRip (Генуя. Италия)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орёл и Решка. Звёзды – это спецпроект от всеми вами любимого тревел-шоу Орёл и Решка. Катерина Варнава, Михаил Башкатов, Анфиса Чехова, Виктор Васильев, Светлана Лобода и Александр Ревва – именно эти звезды звёды шоу-бизнеса будут отчаянно бороться за золотую карту с нашими опытными ведущими Колей Сергой, Машей Иваковой, Жанной Бадоевой и Аланом Бадоевым! Всего вас (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C1CF9676CD447FFA86988D40CB1952F119E109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193710   (261940) от 22.12.2017
-
-SMPlayer 17.12.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261940.jpg" />
-</div>
-
-
-###  Подробнее
-
-SMPlayer - мощный мультимедиа проигрыватель, который позволяет воспроизводить большинство известных аудио и видео форматов без потребности в дополнительных кодеках. Также умеет воспроизводить DVD диски и видео-потоки из Internet.
-Приложение представляет собой полноценную графическую оболочку для MPlayer, обеспечивающую как базовые функции MPlayer (воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF0D50A765966C087EC041B1B85B78C2DBBDDA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193640   (261939) от 22.12.2017
-
-VA - Alternative Meaning (2017) [MP3|320 Kbps] <Alternative, Indie, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261939.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sheryl Crow - Alone In The Dark
-002. Solstafir - Silfur-Refur
-003. Preacher Stone - Blue Collar Son
-004. Bruce Springsteen - Born to Run(   Читать дальше...   )Жанр: Alternative, Indie, Hard RockПродолжительность: 10:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DC7A67BCD272E40C6CD63B42301F78E7A12852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193651   (261938) от 22.12.2017
-
-Эмили Кейт Джонстон | Сказки тысячи ночей. Веретено (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Сказки тысячи ночей».
-
-Много лет назад демоны, угрожавшие поработить властителей восточного царства, были побеждены. Но теперь один из них вырвался из заточения и угрожает жизни принцессы. Это история о Спящей красавице, перенесенная по воле автора в пески пустынь, шатры кочевников и башни восточных дворцов.Жанр: Зарубежное фэнтези, МистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420EB69E9E51A7F705F33D3F2F3A30EA7F5325E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193760   (261937) от 22.12.2017
-
-ExpanDrive 6.1.9 [En]
+PDF Expert 2.2.15 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261937.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ExpanDrive - удаленный сервер, как локальный диск
-Работа с удалёнными данными всё чаще встречается в нашей жизни. Домашняя локальная сеть, Dropbox. Все эти вещи для многих давно стали привычны. Разработчики софта рады предложить нам множество программ, которые должны помочь привести к общему виду все эти носители и облачные сервисы.
+PDF Expert - лучший редактор файлов PDF
+PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
 
-Эта программа позволяет монтировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: ExpanDrive, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 декабря 2017Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D87511D77ABED7DE2CD2C5276694E4CF3FC719F
+magnet:?xt=urn:btih:463ABED54B4609028591E3BE39B6DA6EA0799E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193691   (261982) от 22.12.2017
+
+VA - Aly & Fila - Future Sound of Egypt 527 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L. Doblado - Lie Alone (16 Bit Lolitas Remix)
+02. Philipp Kempnich & Allies For Everyone - Disc Nite (Original Mix)
+03. Steve Parry - 303 V (Original Mix)
+04. Paul Thomas & Dylhen - Diablo (Kamilo Sanclemente & Golan Zocher Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CE5ABF658B6BA214B4FA2D7FB9A52889338950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193806   (261981) от 22.12.2017
+
+Падре Марчело Росси | Агапа. Настоящая любовь (2014) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая продаваемая книга за всю историю Латинской Америки. Есть любовь, от которой происходят все существующие виды любви. Единственная, настоящая, вечная Любовь, Агапа — Божий дар всем нам, чтобы мы могли достичь всего. Жить в присутствии этой Любви, идти навстречу трудностям, дарить и получать заботу, побеждать зло и творить добро, иметь достаток во всем и быть (   Читать дальше...   )Жанр: Духовные размышленияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7C19B62ADFD7CF7D467DD6C54CEFE32510FACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193648   (261980) от 22.12.2017
+
+Журнал | Сваты на даче №12 (36) (декабрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261980.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D5B32C9023BA7596F87921877D9ADA1F0CDDC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193790   (261979) от 22.12.2017
+
+VA - Black Hole Trance Music 12-17 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cosmic Gate & Sarah Lynn  -  Folded Wings (Rafael Frost Extended Remix)  6:45
+02.  Clarks  -  Sanya (Original Mix)  5:34
+03.  Somna & Melissa Loretta  -  Brave (Attila Syah Remix)  6:17
+04.  Pete Severano & Steve Brian  -  Merle (Extended Mix)  8:23(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E9665BC800E348BF29325A5B90997B3C55443B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193438   (261978) от 22.12.2017
+
+VA - Twelve Inch Nineties: Feels Like Heaven (2017) [MP3|320 Kbps] <House, Euro-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261978.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Groove Armada feat. Gram'ma Funk  -  I See You Baby (Fatboy Slim Remix)  5:45
+02.  Robert Miles  -  Children (Dream Version)  7:35
+03.  Urban Cookie Collective  -  Feels Like Heaven (Extended To The Max Mix)  5:59(   Читать дальше...   )Жанр: House, Euro-HouseПродолжительность: 03:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59B16C2382F11FA84CBCD4B9944311AF9408D64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193624   (261977) от 22.12.2017
+
+Jason Van Wyk - Opacity (2017) Home Normal [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Contemporary>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shimmer (04:05)
+ 02. Blinded (02:18)
+ 03. Until Then (01:51)
+ 04. Recollect (04:16)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ContemporaryПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A51AAFB2232A0316B9DBF2E752E5ED12E978CC16
 ```
 
 https://mybot314.ru/tekegram_catalog/

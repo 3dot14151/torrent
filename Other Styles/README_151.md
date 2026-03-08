@@ -1,3 +1,32 @@
+###  Публикация: 1084941   (216795) от 20.12.2016
+
+Amy Lynne Johnson - Piano Poetry, Vol. 2: Music to Calm the Mind and Lift the Heart (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunset Shimmer [00:01:45]
+02. Memory Lane [00:01:55]
+03. Baby's Bliss [00:02:20]
+04. Falling in Love [00:01:52](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC3278BB5A3E45B82288328B785694CBFD115B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 69832   (216732) от 12.12.2012
 
 Tony O'Connor - 26 albums (1989-2007)[MP3|192-320 kbps]<New Age>
@@ -718,35 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E81D03FA7AE9ACF158AF58A1322D1E769E52F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645059   (209317) от 09.07.2023
-
-VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <Instrumental, Relax, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подводный мир (1:06)
-02. Дождь в лесу (1:21)
-03. Возле маленького ручейка (6:51)
-04. Рассвет на озере (6:05)(   Читать дальше...   )Жанр: Instrumental, Relax, ClassicalПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CCFF9BB8074C2834D4C0768C7B6A925B2BCB9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

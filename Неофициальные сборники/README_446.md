@@ -1,3 +1,174 @@
+###  Публикация: 948260   (410924) от 20.10.2015
+
+Roxette - Good Songs (2015) [MP3|320 кб/с]<Pop-Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Want To Get Hurt
+02. She Doesn't Live Here Anymore
+03. Vulnerable
+04. Queen Of Rain(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 05:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A2F7DDF535BF422EE75CE750CA44295E4016F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711560   (410887) от 16.10.2013
+
+VA - Saxophone Collection (45CD) (1985-2010) [MP3|320 кб/с]<Jazz, Soul, Instumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Jazz, Soul, InstumentalПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73FC221E9E7E4B7F140C12696B22B8E75AAC491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 717758   (410817) от 20.10.2015
+
+Smokie - Super Hits (1975-1982) (2013) (3CD) [MP3|320 кб/с]<Glam Rock, Hard Rock, Rock'N'Roll, Soft Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Other Side Of The Road (1979)
+02. Do To Me (1979)
+03. Don't Take Your Love Away This Time (1979)
+04. London Is Burning (1979)(   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Rock'N'Roll, Soft RockПродолжительность: 03:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CCAD6AE38DE940CB09C59C69AEDB3D7B15F23F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781946   (410812) от 20.10.2015
+
+Kraftwerk - 25 Best Songs (2014) [MP3|~245 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Telephone Call 1986
+02. The Model 1978
+03. Sex Object 1986
+04. The Robots 1978(   Читать дальше...   )Жанр: SynthpopПродолжительность: 02:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0631CC8F7201879351316E18B8545F4A7426DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719028   (410808) от 20.10.2015
+
+Chris Norman - 100 Best Hits (6CD) (1978-2013) (2013) [MP3|320 кб/с]<Glam Rock, Soft Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Caravan Moves On (2003) (04:15)
+02. Only You (2003) (03:25)
+03. Nothing Stays The Same (2003) (03:56)
+04. Amazing (2004) (04:20)(   Читать дальше...   )Жанр: Glam Rock, Soft RockПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE641AF75981E7F428E44B8BCF2A4C330A54D4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948652   (410704) от 20.10.2015
+
+Queen - 25 Best Songs (2015) [MP3|~245 кб/с (V0)]<Pop-Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Show Must Go On 1991 (04:24)
+02. I Want To Break Free 1984 (04:19)
+03. Under Pressure 1982 (03:57)
+04. I'm Going Slightly Mad 1991 (04:09)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EAB9B3B2057107244070D34263182926950A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573683   (410537) от 01.09.2022
 
 VA - Future Nu Disco Classics Vol. 07 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Soulful House>
@@ -577,180 +748,6 @@ VA - Русский Размер (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D271C420EECFA6B2F9E539DDD19A3559DE46E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413285   (409994) от 03.10.2020
-
-VA - The Official UK Top 40 Singles Chart 02.10.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24kGoldn - Mood (feat. iann dior)
-02. Cardi B - WAP (feat. Megan Thee Stallion)
-03. Headie One - Ain't It Different (feat. AJ Tracey & Stormzy)
-04. Paul Woolford & Diplo - Looking For Me (feat. Kareen Lomax)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07295C2328C1444016CAC29EB7E41179C6A94110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413430   (409989) от 03.10.2020
-
-VA - Record Super Chart 656 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bastard! - F..k That (3:38)
-02. DJ Smash feat. Poët - БЕГИ (3:06)
-03. twocolors - Lovefool (3:10)
-04. AronChupa & Little Sis Nora - The Woodchuck Song (2:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C892A61E15ACA626F78D80C22872430B75D246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325642   (409954) от 16.09.2019
-
-VA - В Нарушение Правил. Русский Рок-Обзор (2019) 2CD [MP3|320 Kbps] <Рок, Альтернатива>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409954.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-001. Би-2 - Виски
-002. Atava - Жить Сейчас(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 18:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2DC172FEADE0F6CDE261EAB2143476E1D68146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066697   (409909) от 27.10.2016
-
-VA - Deep House Collection Vol.94 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409909.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Alexander Hristov - Let's Dance (Original Mix) 6:48
-002.Alex Senna & Garciaz & Too Low - Lost Voices (Too Low Remix) 5:34
-003.Alex Spite - Extase (Original Mix) 4:41
-004.Alex Spite - Hello My Love (Original Mix) 6:01(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8FB027BD93C510BF585CF196314E0D14363AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066777   (409908) от 27.10.2016
-
-VA - PromoDJ TOP 100 Club Tracks October (2016) [MP3|320 Kbps] <Remixes, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409908.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.50 Cent - What Up Gangsta (Alex Menco MashUp)
-002.A-Mase.DJ feat. NAD1N - Московская Ночь (Original Mix)
-003.Adriana & DJ Anton Maluta - Falling From The Sky (DJ Fusion Remix)
-004.Andrew Rai, Jako Diaz, Angelisa - Surrander Feat. Angelisa (No Hopes Remix)(   Читать дальше...   )Жанр: Remixes, Dance, ClubПродолжительность: 07:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07867136DB415D497A4358510D2BDC6DA2D63F20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413397   (409865) от 03.10.2020
-
-VA - Beatport Club House: Electro Sound Pack #175 (2020) [MP3|320 Kbps] <Club House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409865.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brasslover - Shake Your Body (Club Mix)
-002. Sean Crazz feat. Anne - I Wanna Find You
-003. Sam Halabi - Same Thing (Original Mix)
-004. Dckz - Bring That Beat (Radio Edit)(   Читать дальше...   )Жанр: Club House, ElectroПродолжительность: 12:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EE5A98F1CE9EBA98D6CB4D8A5B91C42AE0BF66
 ```
 
 https://mybot314.ru/tekegram_catalog/

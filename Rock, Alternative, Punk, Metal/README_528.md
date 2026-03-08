@@ -1,32 +1,3 @@
-###  Публикация: 1557307   (542831) от 14.06.2022
-
-Cult Of Endtime - In Charnel Lights (2015) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Vast Cosmic Horror (5:19)
-02. Cairns On Mercury (5:13)
-03. Prognatus De Sigillum (6:25)
-04. The Colossus Fell (5:09)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B78EEF46CF52169762C7D8A74322FD40B0DA013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557218   (542830) от 14.06.2022
 
 Profound Less - Love Crusader (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
@@ -754,6 +725,35 @@ Smokie - From Wishes to Kisses (2018) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19B806733329DE8257C2CE8A771E059964032E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049647   (542094) от 06.09.2016
+
+The Blue Nile - 2 Альбома (1989, 1996) [FLAC|Lossless|tracks + .cue] <Pop Rock, Lounge, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over the Hillside     (05:05)
+02. Downtown Lights     (06:29)
+03. Let's Go Out Tonight     (05:16)
+04. Headlights on the Parade     (06:16)(   Читать дальше...   )Жанр: Pop Rock, Lounge, Synth-popПродолжительность: 01:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB8EA1443F8DE683939BE7FC7D9E1FA076EA9C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

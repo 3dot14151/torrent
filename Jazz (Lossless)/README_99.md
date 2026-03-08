@@ -1,3 +1,32 @@
+###  Публикация: 1129919   (719002) от 30.04.2017
+
+Martin Krusche - Friendship Pagoda (2000) Naxos Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phoenix [08:07]
+02. Southem Belles [12:49]
+03. Chelsea Bridge [07:52]
+04. I'd Like To Sing [12:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A385A77BC711BCBCF21EB0DBAE6C4975FC5209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129918   (718995) от 30.04.2017
 
 Bobby Broom - Upper West Side Story (2012) Origin Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -719,35 +748,6 @@ Baptiste Herbin - Vista Chinesa (2020) Space Time Records [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE5D8C8309D47AC6CABA581CF265DD9ACA4F1363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400849   (714995) от 07.08.2020
-
-Smooth Jazz Music Set - Love in a Hotel Room: Compilation of Sexy Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Instrumental, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight Mix
-02. Jazz for Night Pleasure
-03. Smooth Experience
-04. Hotel Room Romance(   Читать дальше...   )Жанр: Jazz, Instrumental, Easy ListeningПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9755E8516C84913D136A43240866022A5026B152
 ```
 
 https://mybot314.ru/tekegram_catalog/

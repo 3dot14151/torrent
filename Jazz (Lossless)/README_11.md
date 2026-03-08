@@ -1,3 +1,32 @@
+###  Публикация: 1623881   (1029085) от 03.04.2023
+
+Keiko Matsui - Euphoria (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steps On The Globe
+02. The Choice
+03. Prairie Morning
+04. Neo(   Читать дальше...   )Жанр: Contemporary Jazz, Smooth JazzПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D34D04BB96D1952CF4901AD600171ED6FB92EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450402   (1029075) от 26.02.2021
 
 Coleman Hawkins - 1929 - 1934 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing>
@@ -716,35 +745,6 @@ Abus Dangereux - Bis (1982) 2015, Musiclip [FLAC|Lossless|WEB-DL|tracks] <azz-Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4A4B5161F5417819B4C576981BDC0AC578BF3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455319   (1025813) от 18.03.2021
-
-Peggy Lee - Black Coffee & Dream Street: The Complete Sessions (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Coffee (1956)
-01. Black Coffee (3:09)
-02. I've Got You Under My Skin (2:32)
-03. Easy Living (2:47)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A48B0D3FEB8110FBA7C2B527C6DE7CB8428BCD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

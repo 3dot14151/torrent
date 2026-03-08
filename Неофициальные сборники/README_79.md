@@ -1,3 +1,177 @@
+###  Публикация: 987019   (927978) от 16.02.2016
+
+VA - Cocktail Chillhouse Collection (2016) [MP3|320 kbps] <Chill House, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamar Ensemble - About Yesterday (05:46)
+02. The Sura Quintet & Franco Poti - No Inhibitions (06:03)
+03. Rhythmphoria - Highlights (05:32)
+04. Diario - Gracefulness (05:39)(   Читать дальше...   )Жанр: Chill House, Lounge, ChillOutПродолжительность: 02:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11184EBC2748ECCDB7DD2BB4DE5418702B017ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986959   (927965) от 16.02.2016
+
+VA - Essentials Dance Effects Skyline (2016) [MP3|251-320 кб/с] <Club, Disco, Electro, Bigroom, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruben De Ronde & Drym - Sabado (Original Mix) 06:15
+02. The Force - Marimba (K.C.'S Nightline Mix) 04:29
+03. Valdemossa - Otherside (2015 Club Mix) 04:48
+04. Selena Gomez - Good For You (Craig Welsh Remix) 05:28(   Читать дальше...   )Жанр: Club, Disco, Electro, Bigroom, ProgressiveПродолжительность: 07:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA048BD08BFA0C9AE10AFEB5C00BEBABF820EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987046   (927923) от 16.02.2016
+
+VA - Игорь Козлов - Мальчики-налётчики (1990) [MP3|320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мальчики-налётчики
+02. Бабушка здорова
+03. Сонечкины именины
+04. Темница(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39342CB1D677EDB5282472392B906978EE374EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094780   (927912) от 19.01.2017
+
+VA - Chart Tunes - Indication Reality (2017) [MP3|252-320 Kbps] <Funky, Vocal, Dance, Bigroom, Progressive, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies Feat. Sandro Cavazza - Beautiful Life (Gareth Emery Remix) 03:40
+02. Nora En Pure - On The Beach (Original Mix) 05:38
+03. Empir3 Feat. Pit Bailay - Ride Like The Wind (Jane Vogue's Remix) 04:25
+04. Dario Trapani - Together (Radio Edit) 03:19(   Читать дальше...   )Жанр: Funky, Vocal, Dance, Bigroom, Progressive, HouseПродолжительность: 04:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B41A4145243E92CA3399A5E44D9A3D3D6471E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094701   (927885) от 19.01.2017
+
+VA - Games Rain: Chillout Party January (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Automatic Sound Pilot - Walking Into Silence (German Turbo Mix)
+002. Jack-o'-Lantern - Soul (Original Mix)
+003. Zellarai - Fear (Original Mix)
+004. 5th Groove - Riding the Waves (Next Project's Grand Voyage Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21DAC35742DB47EAFFF5B25F34C003DBE3408B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986993   (927862) от 16.02.2016
+
+VA - Hot Dance Motion: Winter Show (2016) [MP3|320 kbps] <Dance, Club, Electro, Pop, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927862.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Firebeatz - Had It
+002. Chris Packer - Random
+003. Marlon Roudette feat. KStewart - Everybody Feeling Something
+004. Julian Perrerra - Miracle(   Читать дальше...   )Жанр: Dance, Club, Electro, Pop, HouseПродолжительность: 08:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:033622F9C85CFB8AEC8A9B7C1FC59F87185D6FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094986   (927855) от 19.01.2017
 
 VA - Music For Everyone - Chillout & Lounge Vol.5 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, House>
@@ -571,177 +745,6 @@ VA - Club&Dance Летние Треки Remix NNM (2021) [MP3|320 Kbps] <Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB246AFC9C725EB35810A3ECF5B520192AF1C426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987634   (926244) от 17.02.2016
-
-VA - 100% Bigroom Vol. 1 (2016) [MP3|320 кб/с] <Progressive House, House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Braudt/Naza Brothers - C'mon Everybody! (feat Mr Shammi - original mix) 04:46
-02. Lights - Blade (original mix) 04:37
-03. Naza Brothers/Braudt - Bounce It! (feat Sharon - extended mix) 04:20
-04. Tim White - Take Me Over (feat Erica Gibson - South Blast! Bounce Over remix) 04:50(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 01:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B15E9084F6535F05259D715028EA0C24F8840A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987548   (926242) от 17.02.2016
-
-VA - EDM Deejay Compilation 2016 (2016) [MP3|320 кб/с] <Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - To The Party (Extended Mix) 04:46
-02. Flip Capella - Lose Myself (At Tomorrowland) (Original Mix) 03:24
-03. Turbotronic - Doomchit Doomchit (Original Mix) 03:55
-04. Teknova - The Riddle 2K16 (Original Mix) 04:01(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 02:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98ED401EF89E0B8967CC37711C9923EDAFDF32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987370   (926224) от 17.02.2016
-
-2011stress - Гости Снов (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Classic styling>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Я иду искать
-02.Лунная Колыбельная
-03.Бессознательное
-04.Гости Снов(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Classic stylingПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A307500A87EC4B64AE4AC2ACCFFDE845F6670F16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987357   (926220) от 17.02.2016
-
-VA - Зима на Шансоне (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игорь Махачкалинский - Ша-Бемоль Аленка
-02. Сергей Любавин - Свадьбы
-03. Андрей Иванцов - Нет Худа Без Добра
-04. Сергей Куренков - Ангел Мой(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99296857E463DE03D58CF51E7AF281841606D28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987450   (926219) от 17.02.2016
-
-VA - Сердце в шрамах (2016) [MP3|256 kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926219.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Валерий Вави - Я Не Жду
-002. Сергей Бурштейн - Время
-003. Наталья Лапина - Дождись Хороший Мой
-004. Паша Нарочанский - Свободен(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1775D549ADEA285FF7F3C7C10FC72A8DF513E7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177619   (926199) от 24.02.2010
-
-Испанская Гитара - Лучшие Хиты 2CD - VA - Spanish Guitar Best Hits Vol.2 (2001) [MP3|320 kbps] <World, Flamenco, Salsa>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: World, Flamenco, SalsaПродолжительность: 02:31:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

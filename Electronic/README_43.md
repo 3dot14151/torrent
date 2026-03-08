@@ -1,3 +1,61 @@
+###  Публикация: 1477585   (1011002) от 15.06.2021
+
+Valance Drakes - A Patternless And Endless Soul (2021) YUKU Records [FLAC|Lossless|WEB-DL|tracks] <Glitch-Hop, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grown Weary Of Their Kindness (03:58)
+ 02. Awaken Old Memories From Their Slumber (03:39)
+ 03. Angels Can Still Feel Fear (03:40)
+ 04. Those That Tell You Winning Lies (03:50)(   Читать дальше...   )Жанр: Glitch-Hop, IDM, AmbientПродолжительность: 00:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3B5DAC82DF8316786ACB65B6A8BC6740DF57B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477457   (1011000) от 15.06.2021
+
+LATE - Far North Eleven (2021) Amek Collective [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Industrial>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Lived Falling Out Of The Skin Into The Soul (05:06)
+ 02. Far North Eleven (04:18)
+ 03. Circles (03:42)
+ 04. Kharon (02:36)(   Читать дальше...   )Жанр: Ambient, Experimental, IndustrialПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495209F75FE7869DFB1C2DFE0B70200831637FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477484   (1010994) от 15.06.2021
 
 ??? ??????? - {{{{{{{{{{{{ (2020) Schematic [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Experimental>
@@ -679,63 +737,6 @@ Echo Inspectors - Discography 11 Releases (2012-2021) Primary [colours] [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F364DC1524E372EA4452EA1AF6F127B3F7387123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382416   (1009978) от 21.06.2021
-
-Insect O. - Collection 20 Releases (1999-2021) Etui Records, Primary [colours] [FLAC|Lossless|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icebergs (05:53)
- 02. Unrush (07:38)
- 03. Coiba (05:37)Тип издания: Web, VinylЖанр: Dub Techno, Ambient, Techno •Продолжительность: 05:20:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35DE0F740AD22F212F599372F86720C173FFA94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479139   (1009867) от 22.06.2021
-
-Absis - Found Ritual (2021) Hivern Discs [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating Around (07:59)
- 02. Break Through Fear (08:23)
- 03. Search And Find (07:12)
- 04. Running Up Hill (06:09)(   Читать дальше...   )Жанр: Techno, AcidПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0663B7D4F91C953BBBA3556A1FEE12D675C86834
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1460057   (1022223) от 07.04.2021
+
+VA - Новинки с разных популярных MP3 сайтов, vol.106 (2021) [MP3|320 Kbps] <Club, Dance, Disco, Pop, Rap, RnB, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rus 
+001. 10AGE - Нету Интереса
+002. 104 feat. Miyagi, Скриптонит - Не Жаль
+003. Agunda, Тайпан - Мерцают Огни(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 06:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2624785F7D6FFD2BA71E9887D7344A75C3871640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460757   (1022206) от 07.04.2021
+
+VA - Наш Тик Ток (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary Grey - Сложно (2:52)
+02. Моше Эд - Молодой и пьяный (2:16)
+03. FELIX - Лали 17 (2:18)
+04. Юля Годунова - Смотри как надо (2:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6290CF6317A790D8057C038721D7B6F3782EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460790   (1022192) от 07.04.2021
+
+VA - Shazam Хит-парад World Top 200 Март (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022192.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Masked Wolf - Astronaut In The Ocean (2:12)
+002. Bruno Mars, Anderson .Paak, Silk Sonic - Leave The Door Open (4:02)
+003. Justin Bieber, Daniel Caesar, Giveon - Peaches (3:18)
+004. Olivia Rodrigo - drivers license (4:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB5B9DA2A39B20A91CE39DE18858A48A9B486BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461468   (1021764) от 10.04.2021
+
+VA - Music News vol.90 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021764.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zolita feat. Kailee Morgue - Bedspell (02:50)
+ 002. ЯD - Катим-Катим Со Дворов (02:29)
+ 003. Alana O. - Пока Ты Спишь (02:46)
+ 004. Aly & AJ - Symptom of Your Touch (03:15)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B1B67E11A569AA158C797E22FBFA6886073FBFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461430   (1021729) от 10.04.2021
 
 VA - ЕвроХит Топ 40 Europa Plus 09.04.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -629,122 +745,6 @@ VA - Workout Motivation 3 (2021) [MP3|320 Kbps] <Dance, House, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27EC8B76A5C1E9DE10CDF85AD0BAFF5181F4226B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466622   (1018273) от 01.05.2021
-
-VA - Beast Mode Dance (2021) [MP3|320 Kbps] <House, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ytram, Elderbrook, Martin Garrix - Fire (2:43)
-02. Tujamo - I Don't Wanna Go (3:06)
-03. Bassboy, Salo - With Me (3:48)
-04. R3HAB, Fafaq, DNF - Sorry I Missed Your Call (2:35)(   Читать дальше...   )Жанр: House, Dance, OtherПродолжительность: 04:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09AF1A1B493FE481C901921633C490182E2B84A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466831   (1018098) от 02.05.2021
-
-VA - Beast Mode Latin (2021) [MP3|320 Kbps] <Pop, Latin, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duki - Chico Estrella (2:50)
-02. Bhavi, Pi’erre Bourne - CINEMA (3:04)
-03. Daddy Yankee - EL PONY (3:32)
-04. Sech - 911 (3:35)(   Читать дальше...   )Жанр: Pop, Latin, OtherПродолжительность: 05:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F138D24F88C6FD9D425E651287F4D328D9F39C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466997   (1018065) от 02.05.2021
-
-VA - just hits (2021) [MP3|256 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018065.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sam Smith - Diamonds (3:33)
-002. MEDUZA, Dermot Kennedy - Paradise (2:47)
-003. Miley Cyrus, Dua Lipa - Prisoner (2:49)
-004. VINAI, VAMERO - Rise Up (3:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FE38FCDDE91ADDF072819EB5635F838D761CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796594   (1018012) от 02.05.2021
-
-Richard Jacques, TJ Davis & Planet Perfecto - Metropolis Street Racer (1996-2021) [MP3|320 кб/с]<Soundtrack>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип музыки сделан на основе оригинальных дисков Dreamcast, добавлена музыка из альфа версии игрыAlpha Version
-01. Menu Theme (Alpha)
-02. California Demon (Alpha)
-03. Club Paris (Alpha)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412492E36478BCC863AC118C9229F4CB0DFD10F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

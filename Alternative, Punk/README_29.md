@@ -1,61 +1,3 @@
-###  Публикация: 960049   (312122) от 26.11.2015
-
-Placebo - MTV Unplugged (2015) [MP3|320 кб/с]<Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jackie
- 2. For What It's Worth
- 3. 36 Degrees
- 4. Because I Want You(   Читать дальше...   )Жанр: Alt. RockПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D543CDBF94813226BF6A9225705D4C071ACC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076498   (311894) от 26.11.2016
-
-Skillet - Интервью с Джоном Купером на радио УЛЬТРА (22.11.2016) [MP3|256 Kbps] <Alternative Rock, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интервью в честь 20-летия коллектива. Вокалист Джон Купер лично рассказывает ULTRA-слушателям о последней, на данный момент, пластинке SKILLET "Unleashed", и вспоминает о первых днях группы! Это и многое другое в эфире первой альтернативной радиостанции страны.1. Rebirthing
-2. Sick of it
-3. I Want To Live
-4. The Resistance(   Читать дальше...   )Жанр: Alternative Rock, Christian RockПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64D6EAC4C642DB82ACC81389F144189A6777608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260459   (311645) от 07.11.2018
 
 Muse - Simulation Theory (2018) Deluxe Edition [MP3|320 Kbps] <Alt.Rock, Progressive Rock>
@@ -757,6 +699,70 @@ Those Poor Bastards - Inhuman Nature (2018) [MP3|320 Kbps] <Gothic, Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76BA5E95BC2B40BF86536C24B50397056AA00596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186081   (289819) от 23.11.2017
+
+Celldweller - Beta Cessions: Demos & Rarities (2017) [MP3|320 Kbps] <Industrial, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289819.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Switchback (2001)
+02. Stay with Me (Unlikely) (2001)
+03. Under My Feet (2000)(   Читать дальше...   )Жанр: Industrial, AlternativeПродолжительность: 01:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EEDE3FE9C0CD3F185E47842699BFFF37A597C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 270525   (288442) от 14.12.2010
+
+The Men That Will Not Be Blamed For Nothing - Now That's What I Call Steampunk! Volume 1 (2010) [MP3|320 kbps]<Steampunk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Etiquette (2:09)
+02 - Steph(v)enson (3:51)
+03 - Bedlam (2:55)
+04 - Goggles (2:30)
+05 - Sewer (live) (2:15)
+06 - Boilerplate Daniel (2:09)
+07 - Moon (3:59)
+08 - A Traditional Victorian Gentlemens Boasting Song (2:13)
+09 - Victorian Grindcore (0:14)
+10 - Blood Red (4:16)(   Читать дальше...)Жанр: SteampunkПродолжительность: 00:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A2E0B7992C1024657C5F763D178B8EA0B83789
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 138362   (881573) от 05.04.2020
+
+Dan Gibson - Ocean Surf: Timeless And Sublime (1995) Solitudes - Nature Sound Collection [FLAC|Lossless|tracks+.cue]<Field Recording>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Surf (72:29)
+
+Эта настоящая запись океана предлагает самое реалистическое воспроизводство настоящего прибоя. Нежные звуки набегающих волн на скалы, слушатель может представить будто он находится на береговой линии. Океанский прибой является бесконечным и возвышенным и, как гарантированно, обеспечит терапевтический, успокаивающийся эффект.Жанр: Field RecordingПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF50D3AE2E9596310D3C4599444EEA4C45C8E12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996346   (881167) от 13.03.2016
 
 Agrelia's Castle - Elders and Ancestors (2015) [MP3|320 кб/с] <New Age>
@@ -719,35 +747,6 @@ Mystica - Best Of Gregorian Voices (2016) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EA4E4652D200F07245EE82CAFCB363319D6267B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106400   (873641) от 19.02.2017
-
-VA - The Da Vinci Mysteries (2006) [FLAC|Lossless|tracks + .cue] <Gregorian, New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelly O'Neill – Mystic Dream
-02. Emerald Singers – Adiemus
-03. Massini – Mystera
-04. Tranceparence – Sadeness Part I(   Читать дальше...   )Жанр: Gregorian, New Age, EnigmaticПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE40006D68CF45C3C624E6F82D01F32B1D5F090
 ```
 
 https://mybot314.ru/tekegram_catalog/

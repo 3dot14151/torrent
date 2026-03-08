@@ -1,3 +1,59 @@
+###  Публикация: 1344429   (170438) от 10.12.2019
+
+VA - A Strangely Isolated Place 2019 (2019) ASIP [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Techno, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olga Wojciechowska – Memory Of The Pioneers (04:52)
+02. 36 – D.R.E.A.M Link (Reinterpreted)Жанр: Ambient, Techno, DowntempoПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0A650B40BF14FBC31011ADAD8188DDBEF3A0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671827   (170434) от 27.10.2023
+
+VA - Silent Shore Trance - Essential Classics Vol. 3 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air Night - Remember (Original Mix) [7:44]
+02. Jo Micali - Resynthesize (Original Mix) [7:21]
+03. ReOrder - Driven By Moment (Original Mix) [7:25]
+04. Martin Everson & B.Prime - Rubby (Original Mix) [7:44](   Читать дальше...   )Жанр: TranceПродолжительность: 01:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E265788EEAFBB08D7DAAB69FEF40D2A2B22739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671944   (170408) от 27.10.2023
 
 VA - Uplifting Only Top 10: October 2023 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -682,64 +738,6 @@ Yotam Avni - Summer of Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45077E18268324F894943AB4285120B3F859FDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672518   (169238) от 28.10.2023
-
-VA - Techno Club Vol. 70 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169238.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. John O'Callaghan - Riverside (Extended Mix) [7:31]
-02. DJ Eternity - Living For Today (Extended Mix) [7:38]
-03. DJ Sakin & Talla 2XLC - Nomansland (David's Song) (Extended Mix) [6:54](   Читать дальше...   )Жанр: TranceПродолжительность: 03:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4ED2BA6D47C0716F9C6741B86DDD4A47951928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672151   (169226) от 28.10.2023
-
-Cocooma - The Best Of Cocooma (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cocooma - Virtual Experience (Original Mix) [7:07]
-02. Cocooma - The Escape (Original Mix) [7:15]
-03. Cocooma - Hand in Hand (Original Mix) [7:01]
-04. Cocooma - Flying Saucer (Original Mix) [7:47](   Читать дальше...   )Жанр: Hard TranceПродолжительность: 01:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A9D6375DC2E19C00AFBD10A905122C71BE96F01
 ```
 
 https://mybot314.ru/tekegram_catalog/

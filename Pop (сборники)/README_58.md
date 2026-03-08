@@ -1,3 +1,32 @@
+###  Публикация: 1035583   (626513) от 17.07.2016
+
+VA - Бомба Года Русский Выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нетсмысла - Мегаполис
+02. Никита Хазановский - Воробьи
+03. Mozgi - Полицаи
+04. Quest Pistols - Непохожие(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01EE728E85BA3B01F85EDD93B8F174CC16C565F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229463   (626460) от 06.06.2018
 
 VA - Caramel Masquerade (2018) [MP3|320 Kbps] <Pop>
@@ -746,35 +775,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57EBB62309E14AA8B347BD43140E799F8FC8B58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230305   (617291) от 11.06.2018
-
-VA - Italo & Dance: Summer Sale (2018) [MP3|320 Kbps] <Italo-Disco, SpaceSynth>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick The Moore - It's Love (4:05)
-02. Matt Pop & Martin Blix - Let Us Dance Just A Little Bit More (7:45)
-03. Chris van Buren - Cosmified (4:37)
-04. Capitalo - Capitalo (Alexander Pierce Remix) (4:24)(   Читать дальше...   )Жанр: Italo-Disco, SpaceSynthПродолжительность: 04:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B70BFCB257E4B0CC079064E9EAAA4A4A21D978
 ```
 
 https://mybot314.ru/tekegram_catalog/

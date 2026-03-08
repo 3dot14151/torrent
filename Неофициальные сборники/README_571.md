@@ -1,3 +1,177 @@
+###  Публикация: 1269585   (216089) от 17.12.2018
+
+VA - German Top 100 Single Charts 14.12.2018 (2018) [MP3|320 Kbps] <Pop, Hip-Hop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216089.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ava Max - Sweet but Psycho
+002. Sido - Tausend Tattoos
+003. Mero - Baller los
+004. Mariah Carey - All I Want for Christmas Is You(   Читать дальше...   )Жанр: Pop, Hip-Hop, DanceПродолжительность: 05:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B36F120502F2EC4E981D4C52B862650759C7D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270146   (216000) от 17.12.2018
+
+VA - Objection: Rap France (2018) [MP3|320 Kbps] <Rap France>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216000.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 47ter - Petit prince
+002. Georgio - J'en Sais Rien
+003. Kenza Farah - Bandit
+004. Stress - Effacer(   Читать дальше...   )Жанр: Rap FranceПродолжительность: 08:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C9E7CB155C3E02C1C155E778953EEDACFF1F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426147   (215966) от 23.11.2020
+
+VA - Smooth Jazz: Romantic Travel (2020) [MP3|320 Kbps] <Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_215966.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Magda Shortankard - Mr. Hammond
+002. Lebron - Never Say Never
+003. Oli Silk - Ooh Baby!
+004. The Smooth Jazz Alley - Smooth Jazz Alley(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14922CB0CAB4F0EDC47CBD3AA6F035CDF3E32C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270154   (215935) от 17.12.2018
+
+VA - Partybreaks and Remixes - All In One October 002 (2018) [MP3|320 Kbps] <Pop, House, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_215935.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. GOZZI  Taylor Swift - Look What Paradise Made Me Do (Gozzi Bootleg)
+002. Drake - Portland (Dennis Blaze Club Rework)
+003. #The Goodfellas  La Roux - Bulletproof (The Goodfellas Beat A Pella Live Remix Tool)
+004. Avicii x Curbi - My Feelings For Bruh (Holl & Rush Mashup)(   Читать дальше...   )Жанр: Pop, House, ElectroПродолжительность: 09:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BD955436EA925B964C3AEB3C4A90EFE270B017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270158   (215860) от 17.12.2018
+
+VA - New Music Releases Week 50 of 2018 (2018) [MP3|320 Kbps] <Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_215860.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kodak Black - This Forever
+002. Gnash - T-Shirt
+003. Ski Mask The Slump God, Jacquees, Coi Leray, Lougotcash - Save The Day
+004. Ygtut - Get It(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 11:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEE61697A256F6B4995E86660F8C1C970C205FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270091   (215745) от 17.12.2018
+
+VA - Лучшие Trance треки Ver.5 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_215745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lostly - Echoes In Oslo (Extended Mix) 6:03
+02. Driftmoon & Eco - Theyll Never Find Us (Robert Nickson Extended Remix) 7:39
+03. Peter Miethig - Emotional Things (Extended Mix) 6:09
+04. Aimoon & Sound-X-Monster - What Is Life (Extended Mix) 6:49(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 05:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BFBF5954D10481A236EF370BA6966C6EC323F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588655   (215690) от 13.12.2012
 
 VA - DJ Beauty - Бигуди (2007) [MP3|320 кб/с]<Electro, Techno, Breakbeat>
@@ -589,180 +763,6 @@ Part 1 (Discoteka 2019!):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:053FA8DA564249C9C4670A9D067A9635B59B65B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085481   (214516) от 21.12.2016
-
-VA - Songs Dreams: A Place Of Romance (2016) [MP3|251-320 Kbps] <Popular Lyric, Dream Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214516.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brothers3 - Brothers Never Part
-002. Anouk - Run Away Together
-003. Wu-Tang Clan - Gravel Pit (Radio Version)
-004. Physics - Don't Deny Me Love (Martinez Aquarium Jazz Dub)(   Читать дальше...   )Жанр: Popular Lyric, Dream RockПродолжительность: 06:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C8C7A68C4F1BEFAD1C91C525DF3C7E505D143F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085417   (214477) от 21.12.2016
-
-VA - Музыкальные Новинки Интернета. Зимний Выпуск 50х50 (2016) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нодар Ревия - Ты Моя Любовь
-02. Fidel Wicked - No Flying From Fate
-03. Женя Вилль - Что Ты Наделал
-04. Роза Герц - Расстаться(   Читать дальше...   )Жанр: PopПродолжительность: 03:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310A309CD921D0D7B3E5DC5CF27434AE1E56F202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426349   (214448) от 24.11.2020
-
-VA - Merry Christmas, Baby! - Christmas Blues (2020) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angela Strehli - Boogie Woogie Santa Claus
-02. Daniela Andrade - The Perfect Christmas
-03. Louis Armstrong - When the Saints Go Marching in (Remastered)
-04. Elvis Presley - White Christmas (Remastered)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 10:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7C35E70BADC4D2E561B5978CE3EE2DC392FCCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 243454   (214409) от 04.12.2021
-
-VA - Disco - The BIGGEST 80s Disco Dance Music (vol. 1-32) (1990) [MP3|192 kbps] <Disco, Pop, Dance, Electronics>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214409.jpg" />
-</div>
-
-
-###  Подробнее
-
----------------------------------------------------------------------
-     VA - The BIGGEST 80s Disco Dance Music vol.20
----------------------------------------------------------------------
-1. 01 - Okay - Okay! (5:42)(   Читать дальше...   )Жанр: Disco, Pop, Dance, ElectronicsПродолжительность: 32:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F756A2BBCE95DE5D54231A8363253FCB4C05BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270404   (214381) от 18.12.2018
-
-VA - Empire Records - Mushrooms 2 (2018) [MP3|247-320 Kbps] <Big Room, Dance, Hands Up>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marasco & Dj Nessen Feat. Gian - Lighthouse (FluxStyle Radio Edit)
-02. Bulljay - Hands Up Party (Dancefloor Kingz Remix Edit)
-03. Dj Erre - Party People (Radio Edit)
-04. Giga Dance - Touched By The Sound (Original Edit)(   Читать дальше...   )Жанр: Big Room, Dance, Hands UpПродолжительность: 03:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF4D3F0DEAB8E1E821C9E1DD3F48CD49E7CAA6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344064   (214369) от 08.12.2019
-
-VA - не Громкие новинки недели 46 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214369.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.5sta Family - Первый Снег (2:46)
-2.Andery Toronto - Euphoria (3:34)
-3.ANIKV - Женщина Плачет (2:59)
-4.Anna Petrash - Не Ну А Чё? (3:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7495EE11B7E4FB0B98B2C35D15F7C9FC8E097ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

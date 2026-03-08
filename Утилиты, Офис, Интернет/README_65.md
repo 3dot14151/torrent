@@ -1,3 +1,29 @@
+###  Публикация: 1070148   (368326) от 06.11.2016
+
+Adblock Plus 1.5.855 for Internet Explorer (Development Builds) [Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adblock Plus - бесплатное расширение для браузеров на основе Gecko (Mozilla Firefox, Mozilla Thunderbird, SeaMonkey, K-Meleon), Blink (Google Chrome, Chromium, Opera) и Trident (Internet Explorer), позволяющее блокировать загрузку и показ различных элементов страницы: чрезмерно назойливых или неприятных рекламных баннеров, всплывающих окон и других объектов, мешающих (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07189D7F1BBA00C2ABCE4EDCF1447422CD3FCAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255000   (367593) от 16.10.2018
 
 BEncode Editor 0.7.1.0 Portable [En]
@@ -650,32 +676,6 @@ Wondershare Recoverit- мощная и простая в использован�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8F17F35F2D50B7AA5DC1574CA7AE0A33F800490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953685   (346480) от 05.11.2015
-
-ORPALIS PDF Reducer Professional 2.0.4 + Portable [Multi]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа предназначена для сжатия документов PDF. Все, что нужно сделать пользователю, - это выбрать исходный документ, указать папку для сохранения оптимизированной версии и нажать на кнопку «Start». Уровень сжатия документа может доходить до 80%.Язык интерфейса: Английский, Французский, Румынский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD24E4ED33F12E87B78A26F108BED2A87BF988F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1221758   (691465) от 26.04.2018
+
+VA - Workout Vol. 4 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gap - Untitled 1:56
+02. Ivanshee - Above The Sky 6:33
+03. Dj Zeya - Heartbeat 2:36
+04. Nikita Kharin - The Underground 9:11(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EEF428FE42E36F8704DBEC0579869CCA32D6FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134139   (691302) от 14.05.2017
+
+Zynic - 3 Albums (2011 - 2017) [FLAC|Lossless|image + .cue|tracks + .cue] <Synthpop, Electro-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon Oblivion (4:22)
+02. Fear My Love (3:32)
+03. Would (3:56)
+04. Powered By Death (4:11)(   Читать дальше...   )Жанр: Synthpop, Electro-pop |Продолжительность: 02:39:57 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA1F29EAA5374D64BC3B4B60C92744DD9952350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221596   (691266) от 26.04.2018
 
 Monolink - Amniotic (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -685,64 +743,6 @@ VA - Trance Classics - The Best Of (2020) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4CCB3A8E307662763C50BC33C0AE1FA51166166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403739   (688556) от 21.08.2020
-
-VA - Need For Synth (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MicroMatscenes - Sunrise Road (3:53)
-02. Rogue VHS - Burnout (3:50)
-03. Akura - Night Ride (5:05)
-04. From Ashes - Daydream (2:55)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0F065E530B89EC76B06CAC90FC5DCA88E6F096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403740   (688555) от 21.08.2020
-
-NINA feat. LAU - Synthian (The Remixes) (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wire (feat. Kim Wilde) (Ricky Wilde Remix) (4:53)
-02. Unnoticed (Robert Parker Remix) (4:44)
-03. Synthian (Das Mortal Remix) (3:48)
-04. Synthian (Ends 84 Remix) (4:08)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373580909CA627CFE8DED0B5B9667F3CEFA5F95B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1262653   (293522) от 16.11.2018
+
+VA - Whore House Loves Tech House (2018) [MP3|320 Kbps] <House, Tech-House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Ourselves & Us - Good Vibrations [5:33]
+02. Mescal Kids - Got Me Spinning [6:35]
+03. Kevin Andrews - Say Mumma [6:21]
+04. Monkeye - Invisible Man [6:00](   Читать дальше...   )Жанр: House, Tech-House, FunkyПродолжительность: 04:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C61687D39C125073F42C0C46E9EBC60D11E40A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185297   (293477) от 21.11.2017
 
 Purple Disco Machine - Soulmatic (2017) [MP3|320 Kbps] <House, Nu Disco>
@@ -713,35 +742,6 @@ VA - Vocal House Dance Music Experience 2016 Vol.01 (Mixed By Jora Mihail) (2016
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A55647CDD81DB2EC6F9AD36389C6670FF18A4D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081934   (280905) от 11.12.2016
-
-VA - Armada Music: Best Of (2016) [MP3|320 Kbps] <House, Trance, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies - Beautiful Life (feat. Sandro Cavazza) 2:42
-02. Major Lazer & Showtek - Believer 3:44
-03. Armin van Buuren - Heading Up High (feat. Kensington) 3:53
-04. Gareth Emery - Reckless (feat. Wayward Daughter) 3:22(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 02:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3B9038C4113575474604791231A1261200C825
 ```
 
 https://mybot314.ru/tekegram_catalog/

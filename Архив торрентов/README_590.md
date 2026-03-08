@@ -1,3 +1,37 @@
+###  Публикация: 288545   (922556) от 29.01.2011
+
+VA - Under The Moss vol.2 (2011) [MP3|320 kbps] <Psytrance, Forest>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922556.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Under The Moss vol.2 (2011)
+Год: 2011
+Жанр: Psytrance, Forest
+Лейбл: Forest Freaks
+Продолжительность: 01:02:15
+Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТрек лист:
+01. CookieMonster - Magic Drink [07:50](   Читать дальше...)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC85165774C3DA40F8C5905E6DBDBFB9A45DCBF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288799   (922554) от 29.01.2011
 
 Inner State - Terraforma (2011) [MP3|~193 kbps] <Psytrance, Progressive>
@@ -687,40 +721,6 @@ Acoustic Ocean - Reflections On Still Water (2010) [MP3|320 kbps]<New Age, Medit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31B389ADE9137D539D140A6F3EAA8791C344AD5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288667   (922478) от 29.01.2011
-
-VA - Goa 2011 (Compiled by DJ Bim and DJ Thor) - 2 CD (2011) [MP3|~199 kbps] <Full On, Psytrance, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922478.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Goa 2011 (Compiled by DJ Bim & DJ Thor) - 2 CD (2011)
-Год: 2011
-Жанр: Full On, Psytrance, Progressive
-Лейбл: Yellow Sunshine Explosion
-Продолжительность: 02:29:26
-Кодек: MP3
-Битрейт: ~199 kbps
-Тип битрейта: VBRТрек лист:
-CD 1 [01:16:25](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931109BD00B0986F95F02FCD558AAF2DAC8FDB84
 ```
 
 https://mybot314.ru/tekegram_catalog/

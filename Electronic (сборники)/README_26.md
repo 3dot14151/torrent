@@ -1,3 +1,32 @@
+###  Публикация: 1094080   (930858) от 17.01.2017
+
+VA - The Planetary Influence: Territory Of Dubstep (2017) [MP3|320 Kbps] <Dubstep, Drum And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930858.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wonderland Avenue - White Horse (Alexander Holsten Trap Remix) 3:10
+002. Wilkinson, P Money & Arlissa - Heartbeat (Calyx & Teebee Remix) 3:53
+003. Vato Gonzalez, Lady Bee - The World Is Mine (Original Mix) 4:18
+004. Under This - Dancing Right (Original Mix) 6:58(   Читать дальше...   )Жанр: Dubstep, Drum And BassПродолжительность: 10:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A394B017B8D8E6C07400FD6549A0E5289E1D6C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094101   (930595) от 17.01.2017
 
 VA - Best Chillout Vol.24 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -714,35 +743,6 @@ VA - Sports Music For A Better Life (2016) [MP3|320 kbps] <Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51CC1A275445843A1ED46FEA7B62E033851CFE41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095187   (924383) от 21.01.2017
-
-VA - Trance Mission: Best Of 2016 (Mixed by DJ Feel) (2017) [MP3|320 Kbps] <Trance, Energy, Emotional, Vocal, Uplifting, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Yoel Lewis feat. Sivan - Caesarea (Extended Mix)  3:05
-02.  Alan Walker - Faded (Dash Berlin Remix)  2:37
-03.  Above & Beyond feat. Alex Vargas - Sink The Lighthouse (Maor Levi Remix)  3:52
-04.  Simon Lee & Alvin - Xcelerate (Extended Mix)  2:47(   Читать дальше...   )Жанр: Trance, Energy, Emotional, Vocal, Uplifting, ProgressiveПродолжительность: 04:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54CD2158C02E481B8AE822145B349F19155420A
 ```
 
 https://mybot314.ru/tekegram_catalog/

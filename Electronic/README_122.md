@@ -1,3 +1,61 @@
+###  Публикация: 1199475   (801091) от 16.01.2018
+
+Fizzarum - Discography 5 Releases (2000-2017) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Abstract, Glitch, Experimental, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pavasaris (02:24)
+ 02. I Am Still A Kid (05:12)
+ 03. Multividum (05:06)
+ 04. Achilies (04:46)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Abstract, Glitch, Experimental, Ambient •Продолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01828BF27B30804BADDC44CAEF40A4E617020CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199436   (801090) от 16.01.2018
+
+VA - Workout Motivation Vol.1 (Most Motivating Tech House & Techno Tunes For Sport) (2018) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dash & Preuss  -  Charvis (Original Mix)  6:38
+02.  Der Dienstleister  -  Serious Situation (Original Mix)  6:21
+03.  Kerem Tekinalp  -  Lotus Effect (Original Mix)  6:59
+04.  Resilient  -  Groovy Soul (feat. Mila Mono) (Ibiza Instrumental Version)  5:51(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 02:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE033F87A24729787A0E2FA94157CDFC67DC4CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199568   (801037) от 16.01.2018
 
 VA - DJ Feel - TOP 40 Russian Tracks 2017 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
@@ -685,64 +743,6 @@ VA - Hed Kandi - Nu Disco (2010) [FLAC|Lossless|tracks] <House,Vocal House,Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47369B45C5C81A4CCE12CF24D56BA8FB178667F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199655   (800363) от 17.01.2018
-
-Simone Gatto - Heaven Inside Your Frequencies Part 1 & 2 (2017) Out-Er, Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Abstract, Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Te Olvides De Acordarte (06:06)
- 02. Today Will Be Tomorrow (feat. Kaelan) (07:00)
- 03. When I Was With You (02:48)
- 04. Amazzonia (feat. Aubrey) (05:59)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno/Abstract/Techno/AmbientПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE4BBBEBA993A5ABC4B95ADE60087A3C1AAA9F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199748   (800356) от 17.01.2018
-
-Triquetra - Ecstatic Planet (2018) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Gate To Happiness (08:45)
-02.Stormbringer (08:31)
-03.No Unexpected Errors (07:50)
-04.Homunculus (08:57)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520EADC33598054CD0581C83781774AEDF4B4004
 ```
 
 https://mybot314.ru/tekegram_catalog/

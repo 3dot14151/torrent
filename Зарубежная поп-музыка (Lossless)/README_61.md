@@ -1,3 +1,32 @@
+###  Публикация: 1329269   (354428) от 04.10.2019
+
+Mireille Mathieu - Cinéma (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson française, Soundtrack>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354428.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Un homme et une femme (2:54)
+2. Over the Rainbow (3:13)
+3. Une vie d'amour (3:51)
+4. De rêve en rêverie (Evergreen) (3:14)(   Читать дальше...   )Жанр: Pop, Chanson française, SoundtrackПродолжительность: 02:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0EE22FEFB66744E60D3691BD56F557C8FDEF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072181   (354392) от 12.11.2016
 
 Sandra - Close To Seven (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
@@ -715,35 +744,6 @@ Missio - Discography (2016-2020) 3 Albums, 2 EP's, 14 Singles [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:370F6C3127BCB777419624BC919C643BFC3C6180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840092   (337524) от 11.11.2014
-
-VA - 1982 The Collection (Time Life) (1994) [FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий диск из серии Time Life Music. Решил поделиться. Может кто молодость вспомнит.01. Survivor - Eye Of The Tiger  (4:06)
-02. Dexy`s Midnight Runners - Come On Eileen  (4:01)
-03. Asia - Heat Of The Moment  (3:49)
-04. Kim Wilde - View From A Bridge  (3:32)(   Читать дальше...   )Жанр: Pop, Rock, Jazz, ElectronicПродолжительность: 01:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E67AADE6C3D52F950E742B6988436A113D18BC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

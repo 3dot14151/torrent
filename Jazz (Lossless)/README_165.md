@@ -1,3 +1,32 @@
+###  Публикация: 934547   (502533) от 05.09.2015
+
+Claudia Morris - Secret Love (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sentimental Journey
+02. Orange Colored Sky
+03. The Very Thought Of You
+04. Shanghai(   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E837AF05350BFFF4F073371AD2BA9FBD49CA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934561   (502411) от 05.09.2015
 
 Pink Turtle - Pop in Swing (2008) [APE|image+.cue]<Jazz Mainstream, Tribute, Parody>
@@ -717,35 +746,6 @@ Max Roach with The New Orchestra of Boston and The So What Brass Quintet (1993, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:149A4E8CFE2EE00EEC60E8A648254A69C9A95653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936055   (497662) от 10.09.2015
-
-The Australian Jazz Quartet - The Australian Jazz Quartet (1955) /2014, Solid Records/[FLAC|tracks+.cue]<Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring Is Here [03:14]
-02. Autumn Leaves [03:29]
-03. Thou Swell [03:32]
-04. Nostalgia [04:44](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4424DBA9AB752D59806C7A695652E0A1C205DC8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

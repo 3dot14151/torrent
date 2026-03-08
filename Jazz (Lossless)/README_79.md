@@ -1,3 +1,32 @@
+###  Публикация: 1207176   (780902) от 17.02.2018
+
+Benoit Viellefon & His Orchestra - Mon Amour (2014) JohnJohn Records [FLAC|Lossless|image + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Must Be Jelly [02:45]
+02. Ca S'fait Pas [03:11]
+03. You Run Your Mouth [02:41]
+04. Mon Amour [02:52](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB02F96F21D218D2C3ABA3C1834E62E518B2AFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207138   (780775) от 17.02.2018
 
 Brian Culbertson - Colors Of Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, R&B, Funk>
@@ -715,35 +744,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9820CDEF6787709BA17B59DAB568AA13CF276D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208689   (779815) от 23.02.2018
-
-Bill Evans - The Bill Evans Album (1971) 2017, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funkallero [07:49]
-02. The Two Lonely People [06:14]
-03. Sugar Plum [07:06]
-04. Waltz for Debby [07:46](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508A6E175467AE51B155A95FD4DC0858E0ACABE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

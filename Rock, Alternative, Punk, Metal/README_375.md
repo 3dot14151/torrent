@@ -1,32 +1,3 @@
-###  Публикация: 1220164   (706091) от 18.04.2018
-
-Tax The Heat - Change Your Position (2018) [FLAC|Lossless|tracks] <Classic Rock, Blues Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money In The Bank
-02. Change Your Position
-03. Playing With Fire
-04. All That Medicine(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A464446791AF31734B6F65DB8ED2185959BD70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220307   (706087) от 18.04.2018
 
 Breaking the Chains - We Are Breaking the Chains (2018) [MP3|320 Kbps] <Melodic Hard Rock>
@@ -744,6 +715,35 @@ Cry Venom - Vanquish the Demon (2016) Japan, Reissued 2017 [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5376D1D84177DABE17845252D635A9131CF28239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287189   (705375) от 06.03.2019
+
+Traitors - Repent (2019) [MP3|320 Kbps] <Downtempo Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Intro
+02.Suffocate
+03.Dwell
+04.Left To Rot(   Читать дальше...   )Жанр: Downtempo DeathcoreПродолжительность: 00:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B842F7C5A6B1C806A46D2A6E79DA34B26C8933CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1056678   (478790) от 26.09.2016
-
-Проекты - VideoHive - Multi Photo Logo Reveal 3 - 17117265 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для мульти фото презентации логотипа или слогана.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BDB6B8FF5B4DCBC81C5381E1E129EC6BD0B32C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056738   (478776) от 26.09.2016
 
 Проекты - VideoHive - Animal Cartoon Paint - 2627570 [AEP, MOV]
@@ -679,6 +653,33 @@ Fashion Stomp Logo - это типографский шаблон для ваш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FB36EC8497F26B041C6AAB94063ECC23BD1153B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 823289   (475234) от 20.09.2014
+
+RevoStock - Action - 855612 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичная презентация ваших фото или видео.
+Превью, файл помощи - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6483F58525670302AB126057CAF1D8D9914E728A
 ```
 
 https://mybot314.ru/tekegram_catalog/

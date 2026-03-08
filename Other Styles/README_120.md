@@ -1,3 +1,29 @@
+###  Публикация: 1415399   (376176) от 12.10.2020
+
+Hans Zimmer - Themyscira (OST from Wonder Woman 1984) (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DB8C43649B8E8FC708AEB152763C3EAD698447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414580   (376166) от 12.10.2020
 
 Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Darkwave, Synthwave, Soundtrack>
@@ -714,35 +740,6 @@ VA - Ultimate Movies: 4CDs Of Great Hits From The Movies (2015) Box Set, 4CD [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC41FEBEC554D14B0C037D6582E2758EE0FC710C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950216   (367283) от 27.10.2015
-
-VA - Romantic Collection - Instrumental vol.3 (2000) [APE|image+.cue]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chi Mai - Ennio Morricone
- 02. My Serenade - Whitehall Mystery Orchestra
- 03. Love Story - Paul Mauriat
- 04. Bridge Over the Stars - Keiko Matsui(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895AB3A6198AB1259BB34B470B29E1E650494B63
 ```
 
 https://mybot314.ru/tekegram_catalog/

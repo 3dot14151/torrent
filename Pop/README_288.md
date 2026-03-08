@@ -1,3 +1,61 @@
+###  Публикация: 1659467   (189340) от 13.09.2023
+
+The Coral - Sea Of Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Psychedelic, Baroque, Alternative, Cinematic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189340.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Actor And The Cardboard Cowboy (1:10)
+2. Cycles Of The Seasons (2:54)
+3. Faraway Worlds (3:51)
+4. Wild Bird (3:12)(   Читать дальше...   )Жанр: Indie rock, Psychedelic folk, Baroque pop, Alternative, Cinematic rockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815B65D0388781C67237457997C143BFB26A2390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590073   (189326) от 12.11.2022
+
+Юлия Савичева - Стихия (2022) EP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189326.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Скажи мне
+2. Жёлтое такси
+3. От его голоса
+4. Незнакомец(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB464733AA541E1BB725306A9D0B7115075EC193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660693   (189299) от 13.09.2023
 
 Mariah Carey - Music Box (1993) 2023, 3CD, 30th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -681,61 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8062FBC38AF45E0873BADB0122F4F2AE76469084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590366   (187732) от 16.11.2022
-
-VA - Happy New Year 1995! (1994) Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Eurodance, Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mo-Do - Eins, zwei, Polizei (03:16)
-02. Army of Lovers - Sexual Revolution (03:50)
-03. Marie Claire D'Ubaldo - The Rhythm Is Magic (04:03)
-04. DJ BoBo - Deep in the Jungle (03:53)(   Читать дальше...   )Жанр: Eurodance, Pop, RockПродолжительность: 01:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EE31919B1CC2335E9BB4DA600530D5C7DA0D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590660   (187717) от 16.11.2022
-
-Savage - Greatest Hits and More (1990) 1995 Reissue, Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Ten Years AgoЖанр: Italo-DiscoПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3508247AE02810946B9C7A8187BF4826A3B4A21C
 ```
 
 https://mybot314.ru/tekegram_catalog/

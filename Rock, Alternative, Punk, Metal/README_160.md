@@ -1,32 +1,3 @@
-###  Публикация: 1362249   (949675) от 23.02.2020
-
-Neaera - Neaera (2020) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Un)Drowned
-02. Catalyst
-03. False Shepherds
-04. Resurrection of Wrath(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96782FD26CD3491C6D8E9FC6852778C21718EA6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362195   (949669) от 23.02.2020
 
 Ильин - EP. Кровь (2020) [MP3|320 Kbps] <Metal, Rock>
@@ -736,6 +707,35 @@ Thousand Foot Krutch - The Millennium Collection: The Best of (2015) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C4675F74C24357898744F6D11DC40E30EF4821F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362734   (948322) от 24.02.2020
+
+VA - Radio Gold Volume 4 (2001) [FLAC|Lossless|image + .cue] <Doo Wop, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 –The Contours Do You Love Me
+2 –The Drifters Up On The Roof
+3 –Chuck Berry The Promised Land
+4 –Dion & The Belmonts A Teenager In Love(   Читать дальше...   )Жанр: Doo Wop, Rock & RollПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A790471236A8A5942021616DB3BA3F08A6D38A23
 ```
 
 https://mybot314.ru/tekegram_catalog/

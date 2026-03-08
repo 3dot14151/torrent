@@ -1,3 +1,119 @@
+###  Публикация: 1176208   (371628) от 21.10.2017
+
+VA - По волне моей памяти: Том 2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Добрынин Вячеслав - Ах, какая женщина  4:35
+02.  Юрий Антонов - Берегите женщин  4:38
+03.  Владимир Кузьмин, Алла Пугачева - Две звезды  3:57
+04.  Игорь Скляр - Старый рояль  2:21(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE66B78EE47A189AB0DEFC93157AC2B04F6110FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176295   (371599) от 21.10.2017
+
+VA - По волне моей памяти: Том 4 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Олег Даль - Есть Только Миг  3:23
+02.  Игорь Иванов - Облака в реке  3:01
+03.  Михаил Муромов - Яблоки на снегу  4:28
+04.  Юрий Лоза - Зима  4:05(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:31:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583EB5E28BE800E5B1041F6A875DAB0B0F26E131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415540   (371584) от 14.10.2020
+
+VA - Music News vol.40 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. РенатА - Ежесекундно (03:30)
+ 02. BROHM & Pane - Love The Way You Lie (02:44)
+ 03. Daddy's Groove & Ron Louis Smith 2nd - Forever Spank (03:05)
+ 04. DiUv & Joodey - Всё-Всё (03:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1591B3212A69B2C42FE8C05875C4C5900DA16CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176344   (371509) от 21.10.2017
+
+VA - По волне моей памяти: Том 5 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Игорь Саруханов - Ящики почтовые  3:39
+02.  Михаил Боярский - Городские цветы  4:05
+03.  Владимир Кузьмин - Если бы ты знала  5:10
+04.  Евгений Осин - Плачет девушка  2:43(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F410711D2289B1DA62B74A181BB111A9122B7722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176203   (371470) от 21.10.2017
 
 VA - По волне моей памяти: Том 1 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
@@ -641,143 +757,6 @@ VA - Всё сразу 200 хитов Выпуск 10 (from Valik) (2015) [MP3|1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25B725928BA38FBD846B9BA6BC824231F0DEB5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575285   (367541) от 15.11.2012
-
-VA - Легенды Русского Рока (2012) [MP3|128 кб/с]<Русский Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367541.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Наутилус Помпилиус - Последнее письмо
-002. Кино - Звезда по имени Солнце
-003. Ария - Улица роз
-004. Машина Времени - Поворот
-005. Чиж & Co - Вечная молодость
-006. Алиса - Трасса Е-95
-007. Круиз - Сказка
-008. ДДТ - Просвистела
-009. Агата Кристи - Сказочная тайга
-010. Константин Никольский - Мой друг художник и поэт(   Читать дальше...   )Жанр: Русский РокПродолжительность: 12:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456801B918D29AB41147D213B3ED128478CA67AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070559   (366678) от 07.11.2016
-
-VA - Stereo 100 Hits Dance (2016) [MP3|234-320 Kbps] <Club, Progressive, Vocal, Happy Sound, Bigroom>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldbeat - Magic Portal Reboot (Patos Remix) 03:46
-02. Crazydeejay - A Butterfly (Extended Mix) 04:42
-03. Voicemail - Island Life 03:40
-04. Bk__jp & Jukesy - Es Lo Que Es (Original Mix) 07:32(   Читать дальше...   )Жанр: Club, Progressive, Vocal, Happy Sound, BigroomПродолжительность: 08:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16B6E152E37E69DAFA154E2B482EFF4BD1A8244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070554   (366651) от 07.11.2016
-
-VA - Big 1990s Twisted Hits (2016) [MP3|192~320 Kbps] <Pop, Techno, Rock, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366651.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Loft - Mallorca (Extended Beach Mix)  5:55
-002. Twenty 4 Seven feat. Stay-C & Nance - Is It Love (Single Mix)  3:57
-003. C&C Music Factory - Gonna Make You Sweat (Everybody Dance Now)  4:07
-004. Me & My - Dub-I-Dub  3:22(   Читать дальше...   )Жанр: Pop, Techno, Rock, DanceПродолжительность: 07:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6682852BBC8F90C94F451B08F6B692771D735036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575834   (366571) от 16.11.2012
-
-VA - TOP 100 Club Hits #5 (2012) [MP3|320 кб/с]<Club, Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acrylite - Tesseral Original
-02. Adam Element - Magnetic Environment (Kozi Komatsu Mix)
-03. Alex Kenji, Ndkj - Not That Kind Of Girl Feat. Marga Sol (Mike Vale Remix)
-04. Angelo Dore - One Vodka For the Girl (Original Mix)
-05. Calvin Harris Feat Example - Well Be Coming Back Klass Project Remix
-06. Carlos Roll, Muzikjunki, Toni Maravillas - Alive (David Mel & Saleem Razvi Remix)
-07. Christian Fischer - Hyper Draw-Drum
-08. Cole Jonson - Sneak Out (Original Mix)
-09. Cosmic Gate Feat. Jan Johnston - Raging (Alexander Popov Vocal Remix)
-10. D Quattro - Point 49 (Marc Systematic Remix)(   Читать дальше...   )Жанр: Club, Dance, PopПродолжительность: 03:59:54
-
-01. DJ Шанс feat. JayB (D.Lemma) - Ярче
-02. Руки Вверх - Крошка Моя (DJ Mikola Cover Ural DJs Remix)
-03. Сплин - Мое Сердце (DJ Kirillich Remix)
-04. Инфинити - Я так скучаю (Alex Menco Remix)
-05. Elvira T - Все решено (Fire Flame & Horizont Remix)
-06. Ияра - На Губах Тай (DJ Nariman Mix)
-07. Mr.Credo - Воздушный Шар (Ural Dj's Remix)
-08. Женя Вилль - Ты Для Меня (Alexey Frolof Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60586D0F60F628D0E23A4FB4B5CC84FC5315A2AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

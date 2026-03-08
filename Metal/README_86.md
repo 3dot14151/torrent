@@ -1,32 +1,3 @@
-###  Публикация: 1452746   (244380) от 07.03.2021
-
-Drac Attack! - Drac Attack! (2021) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vampire Killer (02:15)
- 02. Magic (04:42)
- 03. Drac Attack! (06:46)
- 04. Into the Dungeon (06:02)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87921027BEEFC675C96C4B5416686D9E9C7FEAA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610339   (244367) от 07.02.2023
 
 Aura - Roku Ronin (2023) EP [MP3|320 Kbps] <Nu-Metal, Rapcore>
@@ -743,6 +714,33 @@ Solar Eruption - The End Is Near (Limited Edition) / Bloody Mary (2019-2020) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FFE95EDC96270485C35C5D83E1FE21EDAB00D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376192   (241854) от 17.04.2020
+
+Graveyhard - 2 Albums (2018-2020) [MP3|320 Kbps] <Stoner, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241854.jpg" />
+</div>
+
+
+###  Подробнее
+
+2018 - Homonymous
+2020 - PathbuilderЖанр: Stoner, Sludge MetalПродолжительность: 2 CD, 01:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0FCA4F87C63B0E4DFAEFE5259610A31B319F349
 ```
 
 https://mybot314.ru/tekegram_catalog/

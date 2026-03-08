@@ -1,32 +1,3 @@
-###  Публикация: 1603191   (1045830) от 08.01.2023
-
-Nightwish - From Wishes To Eternity - Live (2001) [OGG Vorbis|550 Kbps] <Rock, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Kinslayer
-02. She Is My Sin
-03. Deep Silent Complete
-04. The Pharaoh Sails To Orion(   Читать дальше...   )Жанр: Rock, Symphonic MetalПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0AFA5951C808CFC4FCDC39ADC971400A3B2ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603242   (1045829) от 08.01.2023
 
 Cyborg - The Last Thing You'll See (2009) [APE|Lossless|image + .cue] <Thrash Metal>
@@ -745,6 +716,35 @@ UADA - Cult Of A Dying Sun (2018) [FLAC|Lossless|image + .cue] <Black Metal, Atm
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D3AB24282D46DE04C03BC0F147592646E7A955E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603781   (1045607) от 11.01.2023
+
+Agony Lords - A Tomb for the Haunted (2012) Limited edition [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045607.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Enter the Mausoleum
+2.	Raising the Occult
+3.	Dead Eyes
+4.	The Spirit in the Tower(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83E7E478E923CF88031FF9D44EB0398AEAF547F
 ```
 
 https://mybot314.ru/tekegram_catalog/

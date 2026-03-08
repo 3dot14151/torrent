@@ -1,3 +1,177 @@
+###  Публикация: 1118080   (815622) от 24.03.2017
+
+VA - Tech House Vol. 3 (2017) b84 Version [MP3|320 Kbps] <Techno, Tech-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aren Suarez - Oh!! You!! (Original Mix)
+02. Armand Van Helden - Funk Phenomena (Extended Mix)
+03. Artefakt - Return To Reason (Original Mix)
+04. CamelPhat - Hangin Out With Charlie (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech-HouseПродолжительность: 01:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A988F97CA96E9E66AC5A712461A5445024C69B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117791   (815620) от 24.03.2017
+
+VA - Beatport Trance Pack (23.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DIM3NSION - Voorpret (Original Mix)  7:02
+02.  Armin Van Buuren pres. Rising Star ft. Betsie Larkin - Again (Alex M.O.R.P.H. Remix)  3:22
+03.  Ben Stone & Mrozer - Astoria (Extended Mix)  6:45
+04.  JamX & De Leon - Can U Dig It (Dave Cold Remix)  6:33(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 03:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A015355608B7879D6AEA4932FF52D2005AD97D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382886   (815573) от 13.05.2020
+
+VA - Feel Good Dance (2020) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaas - Mr. Saxobeat 2:31
+02. Dayvi, Victor Cardenas, Kelly Ruiz - Baila Conmigo 3:10
+03. Sevenn - Loco Papi 2:59
+04. Jax Jones, Martin Solveig & Dragonette, Madison Beer, Europa - All Day And Night 2:49(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC16D6E00441E8B01013BF0AF3641A729489A09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117727   (815485) от 24.03.2017
+
+VA - Private Lounge - Spring Session (2017) [MP3|320 Kbps] <Lounge, Chillout, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KTB - Another Day in Paradise (Highpass Remix)
+02. Skyfall 5 - Free (Deep Dub)
+03. Kim McNichols - Frozen
+04. Genevieve Somers - Moon Dust(   Читать дальше...   )Жанр: Lounge, Chillout, Deep HouseПродолжительность: 03:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB80BE60616C210EABD1C3E2AF62C569FCC83B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117815   (815479) от 24.03.2017
+
+VA - Chillout Hits Vol.3 (2017) [MP3|320 Kbps] <Chillout, Chilltrap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fliflo M. & SinDator - Winter Snow
+02. Michelle Buzz ft. Unlike Pluto - Found You
+03. Ember Island - Need You (Not Your Dope & Jakoban Remix)
+04. Fabian Mazur & Dia Frampton - Young Once(   Читать дальше...   )Жанр: Chillout, ChilltrapПродолжительность: 02:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6990C6B097B509C6304918E8383B21B4918C0DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382988   (815450) от 13.05.2020
+
+VA - Kraftsport Mix (2020) [MP3|320 Kbps] <Rock,  Hip Hop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815450.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Sum 41 - Still Waiting (2:38)
+2.Hilltop Hoods - Cosby Sweater (3:37)
+3.Papa Roach - Last Resort (3:19)
+4.Machine Gun Kelly - why are you here (2:55)(   Читать дальше...   )Жанр: Rock,  Hip Hop, OtherПродолжительность: 05:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16779F8EEC608BF369822F889955A45566DD1D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382878   (815440) от 13.05.2020
 
 VA - Romantic Soul Music (2020) [MP3|320 Kbps] <Soul & Funk, R&B>
@@ -573,180 +747,6 @@ VA - Навстречу Судьбе. 3 (8CD) от DON Music (2017) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E6A0263458397DC5B391B9416E597B539C367EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197672   (813661) от 08.01.2018
-
-VA - Europa Plus: ЕвроХит Топ 40 - Итоги года (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rag N Bone Man  -  Human  3:20
-02.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:46
-03.  Ed Sheeran  -  Shape Of You  3:54
-04.  Imagine Dragons  -  Thunder  3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A5A402BC3941B851667D09E3F40D730186572F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118075   (813620) от 25.03.2017
-
-VA - Tech House Vol. 1 (2017) b84 Version [MP3|320 Kbps] <Techno, Tech-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrian Hour - Love Something (Original Mix)
-02. CLAWZ SG - Emerge
-03. D-Deck - Bento (Original Mix)
-04. Guy Gerber, Deniz Kurtel - Here Comes The Rain (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech-HouseПродолжительность: 01:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10996082AB1963AA3183E283551C25C439E97853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008635   (813416) от 19.04.2016
-
-VA - Зарубежная Дискотека ХХ Века - 7 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus - Live Is Life ( 1984 )
-02. Mo-Do - Super Gut ( Radio Edit Remix 1994 )
-03. Off - Electrica Salsa ( Baba Baba ) ( 12' Version 1986 )
-04. Dee D. Jackson - Automatic Lover ( 1978 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC21A59B2392C3030AD11EB56580C4E48435CD09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008770   (813411) от 19.04.2016
-
-VA - 50 оттенков музыки 18+ (02.2016) [MP3|112-320 кб/с] <Pop, Dance, Electronic, Dubstep, Other, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Conner Youngblood - Monsters
-002. Robot Koch - Nitesk
-003. Duke Dumont - Ocean Drive
-004. The Weeknd  - The Hills (slowed)(   Читать дальше...   )Жанр: Pop, Dance, Electronic, Dubstep, Other, RockПродолжительность: 13:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E192A2B1407D01672BDA1521A386C184D040D038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118176   (813302) от 25.03.2017
-
-VA - Дискотека 2017: Club Dance Hits (Compiled by Zebyte) (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Quintino - Underground (Extended Mix)  3:58
-02.  Hardwell & Quintino - Baldadig  2:56
-03.  DBSTF & Maurice West - Temple (Extended Mix)  3:59
-04.  Sick Individuals & Holl ft. Rush - Helix (Extended Mix)  4:23(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5771F14AD014CACB8C4CBFCCDA839C3AE95C1BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008698   (813253) от 19.04.2016
-
-VA - The Best of 80s Vol.2 (2016) [MP3|320 кб/с] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Only You 06:49
-02. Savage - Radio 05:54
-03. Joy - Touch By Touch 05:24
-04. Modern Talking - Atlantis Is Calling (S.O.S. For Love) (Extended Version) 05:26(   Читать дальше...   )Жанр: Disco, Eurodance, PopПродолжительность: 06:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81352F941D7BF88E4587BF8CB0C18063D29597A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

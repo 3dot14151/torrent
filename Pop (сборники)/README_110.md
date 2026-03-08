@@ -1,3 +1,32 @@
+###  Публикация: 1514922   (213877) от 05.12.2021
+
+VA - German Top 100 Single Charts 03.12.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mariah Carey - All I Want for Christmas Is You
+02. Wham! - Last Christmas
+03. GAYLE - abcdefu
+04. Acraze - Do It To It (feat. Cherish)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11ADAF68E0C42278014CC7D088D9C79428186C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562240   (212755) от 08.07.2022
 
 VA - Лето на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Hits from 20th century films (2023) 3CD [MP3|320 Kbps] <Pop, Soundtrack, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94E66A03A2D7E546D2D6F00820D723EE70ED3B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632938   (198185) от 19.05.2023
-
-VA - 90s Eurodance: XXL Super Sounds 90s (2020) Unofficial [MP3|320 Kbps] <Eurodance, Techno, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mach 7 - Real Love (Extended) (5:42)
-02. Sound Of R.E.L.S. - !Love Is The Powa! (The Powa Mix) (5:22)
-03. O-Zone - Engel 07 (Extended Version) (5:59)
-04. God's Groove - Back To Nature (Element Mix) (6:10)(   Читать дальше...   )Жанр: Eurodance, Techno, HouseПродолжительность: 76:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9D2389DDB0A3839944CB2596D04C0200EB0D60
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,30 +1,3 @@
-###  Публикация: 968652   (152857) от 24.12.2015
-
-Проекты - VideoHive - On the Screen [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания превью к фильму.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D559D17E144EAE573E1D37CCD78CD95DE3059641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968614   (152833) от 24.12.2015
 
 Проекты - Проект ProShow Producer - Revue [PSH]
@@ -675,6 +648,32 @@ Epic Natural Logo In The Night - проект представляет собо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FDD1E1299C409792B2C651E821A5F285F82D39F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086405   (151615) от 24.12.2016
+
+Проекты - VideoHive - Quick Opener [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания быстрого слайд-шоу, интро или промо.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F72A9CBA2AFC1D09EC9DFB4C522CBF03E381813
 ```
 
 https://mybot314.ru/tekegram_catalog/

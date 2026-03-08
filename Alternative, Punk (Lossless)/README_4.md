@@ -1,3 +1,32 @@
+###  Публикация: 1353459   (991968) от 18.01.2020
+
+...And You Will Know Us by the Trail of Dead - X The Godless Void and Other Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Opening Crescendo (02:54)
+02. All Who Wander (04:56)
+03. Something Like This (04:36)
+04. Into the Godless Void (03:58)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AABB84230557A6F2D1A4FC3B996748EBA31FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353619   (991927) от 18.01.2020
 
 Algiers - There Is No Year (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Post Punk, Psychedelic Soul>
@@ -732,35 +761,6 @@ Asgeir (Ásgeir) - Afterglow (2017) 2CD [FLAC|Lossless|tracks + .cue] <Indie Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14CF2F275B1E8C7478954F0617DAE5C3E138F920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358751   (967425) от 09.02.2020
-
-Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little God                                                            [04:59]
-02. Strangers with Nothing to Lose                                        [04:48]
-03. Lonely Man                                                            [03:36]
-04. Pure Child                                                            [04:02](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1837C9DF366459EE42FD242A330DC0DBED63837
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1394515   (763749) от 05.07.2020
-
-Time Thieves - Space (2020) [MP3|320 Kbps] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seasons in (Intro) (00:52)
- 02. Flicker of Light (02:04)
- 03. Message (02:24)
- 04. Road (03:06)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88ABA27C83FCB617ADBC1207A9FA9FAF1A39E4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394418   (763747) от 05.07.2020
 
 Cevilain - On Death & Dying (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
@@ -744,6 +715,35 @@ Skyfall - Sleeping Forest (2020) [MP3|320 Kbps] <Symphonic Metal, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B7E682C42251876270F7AEF9146995E95FF464B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280060   (762237) от 02.02.2019
+
+Ancient Prophecy - Testimony (2019) [MP3|320 Kbps] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Million Stars
+02. Dark Memories
+03. Holy Blood
+04. Domain Of The Grudge God(   Читать дальше...   )Жанр: MetalПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB71EF13E979FE6015322CABCB700996B8CC526
 ```
 
 https://mybot314.ru/tekegram_catalog/

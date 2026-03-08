@@ -1,3 +1,58 @@
+###  Публикация: 1216676   (747840) от 01.04.2018
+
+VA - Fitness Beats 2018 - 24 Workout & Fitness Gym Music Hits [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southree feat. Penny Hannant - Gone (Original Mix) 04:05
+02. Samma feat. Leonardo Dragusin - Shadow Of Love (Original Mix) 04:00
+03. Alka - Pump The Beat (Original Mix) 03:24
+04. Firstlight - Heaven (Extended Mix) 04:37(   Читать дальше...   )Жанр: HouseПродолжительность: 01:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C4CCCD796529EF0B40D9774F7A0982F9B703578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216789   (747837) от 01.04.2018
+
+Rue Du Soleil (ex resident of Cafe Del Mar) - Discography 5 Releases (2003-2012) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Chillout, Lounge, Downtempo, Ambient, WorldПродолжительность: 06:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EE936B0EEE9E8BB7386C333257118D4AFE2F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216741   (747717) от 01.04.2018
 
 VA - Cafe del Mar - Phuket (2018) [FLAC|Lossless|tracks] <Downtempo, Chill House, Nu Disco>
@@ -678,61 +733,6 @@ David August - D'Angelo (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A08D5F951836D29675927AA1881A7FB112C27A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282367   (745400) от 12.02.2019
-
-VA - Welcome To Miami (2019) [MP3|320 Kbps] <House, FutureHouse, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sons Of Maria feat. Angelika Vee - Sweet Madness 3:09
-02. EDX - Daybreak 3:13
-03. Barkley - Ligona 2:20
-04. Playinfields - You and Me 3:10(   Читать дальше...   )Жанр: House, FutureHouse, DanceПродолжительность: 02:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:472F3EE0145B60F54CE7F9742E80D11ACB5BAA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282469   (745396) от 12.02.2019
-
-Brian Eno - Reflection (2017) Japanese Limited Edition [FLAC|Lossless|tracks + .cue] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflection (54:00)Жанр: Ambient, ExperimentalПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2A0D2C969665BC13C94533B05ADE5DCAB05441
 ```
 
 https://mybot314.ru/tekegram_catalog/

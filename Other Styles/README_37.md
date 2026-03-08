@@ -1,3 +1,32 @@
+###  Публикация: 1007215   (819657) от 16.04.2016
+
+George Winston - Remembrance (A Memorial Benefit) (2001) [MP3|320 кб/с] <Folk, World, Country>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lament    02:23
+02. Where Are You Now    04:03
+03. Remembrance    03:50
+04. Where The Sun Rises First    05:06(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E2EC89E7D556D152AC649802BEEE4FDFF60112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503501   (819398) от 19.10.2021
 
 24Relax - Native American Music (2021) 2CD [MP3|320 Kbps] <Native American, New age, World music>
@@ -714,35 +743,6 @@ VA - Dream Therapy (Top Deep Sleep Music, Dream Meditation, Sleep Yoga Nature Mu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6A6DA01FCBA1A03D4893C366C8DD82CE4401B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117463   (816785) от 23.03.2017
-
-Jon Henrik Fjallgren - Goeksegh - Jag ar fri (2015) [FLAC|Lossless|tracks] <Ethnic, Folk, Joik>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jag ar fri | Jag ar fri (03:01)
-02. Daniel's Joik | Daniel's Joik (06:32)
-03. The Reindeer Herder's Joik | The Reindeer Herder's Joik (05:58)
-04. Utoya | Utoya (07:59)(   Читать дальше...   )Жанр: Ethnic, Folk, JoikПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A0B3766C19E0729833DA6CF185251E3C62610D
 ```
 
 https://mybot314.ru/tekegram_catalog/

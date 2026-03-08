@@ -1,3 +1,32 @@
+###  Публикация: 1230579   (614114) от 13.06.2018
+
+McCoy Tyner - Suddenly (1991) 2001, Past Perfect [APE|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Love [3:29]
+02. Suddenly [5:30]
+03. Giant Steps [3:52]
+04. Darn That Dream [6:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7737A76C11AD9E42C263811CD1963DE5E6FB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230582   (614057) от 13.06.2018
 
 Michael Franks - The Music In My Head (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz, Vocal Jazz>
@@ -734,35 +763,6 @@ Bobby Caldwell - Perfect Island Nights (2005) [FLAC|Lossless]<Smooth Jazz, R&B, 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147043   (611329) от 01.07.2017
-
-Ted Rosenthal Trio - Rhapsody in Gershwin (2014) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhapsody in Blue [17:11]
-02. Let's Call the Whole Thing Off [04:57]
-03. Fascinatin' Rhythm [05:58]
-04. I Loves You Porgy [05:45](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1317A3151F15C9A95B9CBD883A5884B9C918C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

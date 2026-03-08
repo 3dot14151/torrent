@@ -1,3 +1,32 @@
+###  Публикация: 1117988   (815616) от 24.03.2017
+
+Art Pepper - The Intimate Art Pepper (1996) Analogue Productions [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In A Mellow Tone [10:11]
+ 02.Yesterdays [07:07]
+ 03.You Go To My Head [06:01]
+ 04.Tin Tin Deo [11:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5354952B79CFF3B38A134F0F9CCE466D99F731E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504295   (814228) от 22.10.2021
 
 Splashgirl - Field Day Rituals (2013) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Contemporary Jazz>
@@ -714,35 +743,6 @@ Art Farmer - Early Art (1954) Remaster, 2006, Victor Entertainment[FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBFBD0CB41A4EBF47E2C4592AFDB0B9288481201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009461   (810293) от 21.04.2016
-
-Joe Zawinul - The Rise & Fall Of The Third Stream (1967) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Baptismal [07:39]
- 02.The Soul Of A Village - Part I [02:14]
- 03.The Soul Of A Village - Part II [04:16]
- 04.The Fifth Canto [07:01](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Third StreamПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D593108439A315369E81BAD610CA31476E809182
 ```
 
 https://mybot314.ru/tekegram_catalog/

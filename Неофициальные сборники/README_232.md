@@ -1,3 +1,177 @@
+###  Публикация: 1284348   (728970) от 21.02.2019
+
+VA - Panopticon: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Trance, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728970.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hi Profile - All We Need
+002. Ajja - Bebopper
+003. Archaic - Allotriomorfodiai Tone
+004. Nostromosis - Challenging Evil(   Читать дальше...   )Жанр: Psychedelic Trance, ElectronicПродолжительность: 12:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA15399BF64542D95A641FD8A59EE0ABEA9A571E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284410   (728967) от 21.02.2019
+
+VA - Urban Grunge (2019) [MP3|320 Kbps] <D&B, Dubstep, Bass Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728967.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. High Class Filter - Backbone (Original Mix)
+002. Decrypt - Lucky Hat
+003. Lj High - Epic
+004. Willcox - Tequila (Radio Edit)(   Читать дальше...   )Жанр: D&B, Dubstep, Bass ElectronicПродолжительность: 09:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47A2EC2B152C7F8771FC672A1D718C3E172C8E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284317   (728887) от 21.02.2019
+
+VA - Electro House: Exclusive Megamix (2019) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728887.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jаmеs Wаrrеn - Visсеrаl
+002. Miсhаеl A - Endlеss Timе
+003. Brian Theodore - Original Gangsta Mke
+004. Flаviо Mаrtini - Lоs Angеlеs (Originаl Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 12 :14 :17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3927084B3EF51495F34671DB7D818849355B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284414   (728866) от 21.02.2019
+
+VA - Young Fresh & Disco: Funky Disco House (2019) [MP3|320 Kbps] <Funky, Disco House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728866.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cash & Fanizza - Dont Fake The Feeling
+002. Lissat & Voltaxx - Groovejet
+003. Peter Brown - Say It Again (Original Mix)
+004. Lmntrx & Camarda - I Wanna See (Extended Mix)(   Читать дальше...   )Жанр: Funky, Disco House, DanceПродолжительность: 09:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C8263729CA7FA53094B4B27FB96DD8E937A263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022471   (728831) от 02.06.2016
+
+VA - Sunset Music: Romantic Jazz on the Beach (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giorgio Rosciglione - Session at Midnight
+02. Stefano Barzan - Lady in Red
+03. Giorgio Rosciglione - Softly Saxophone
+04. Eric Gemsa - Darling Waltz(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1B5913C11CC5B188861217542A572BAAA5F299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530425   (728803) от 11.02.2022
+
+VA - Громкие новинки Февраля (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Джаро & Ханза - Всё казалось мило (2:03)
+02. Kavinsky, Prudence, Morgan Phalen - Zenith (4:41)
+03. Lx24 - Помоги мне мой рассвет (3:31)
+04. YG, J. Cole, MoneyBagg Yo - Scared Money (3:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9049EA75DC34E3ECF43BB792A15A567285CC0EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022500   (728706) от 02.06.2016
 
 VA - Фестиваль лучших хитов от радио Шансон (2016) [MP3|256 кб/с] <Chanson>
@@ -571,180 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 22.02.2019 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6CC3836D0892F209878CB23BD00E8A796A6615E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022568   (727699) от 03.06.2016
-
-VA - Romantic Vocal Trance (2016) [MP3|256-320 кб/с] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727699.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. LTN - Never Let Me Go (Beat Service Remix)
-002. NatLife feat. Inesse - Love Is The Feeling (Alpha Force Remix)
-003. RAM & XB - Symphonik (Original Mix)
-004. ReOrder - Friday (Original Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 11:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55AFB224997736F27D697B69E75AA63DA61A3A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022897   (727697) от 03.06.2016
-
-VA - Блатная жизнь с радио Шансон. Летний выпуск (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Илья Лукин - Моя Любимая Блондиночка
- 02. Александр Туралин - Встречи С Друзьями
- 03. Виктор Дорин - Белым Снегом
- 04. Мариан - Колхоз(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC7F839E98B514D7E6111180855C75D5A87F307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022583   (727692) от 03.06.2016
-
-ЛаБуХи - Три аккорда (2016) [MP3|320 кб/с] <Pop Punk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727692.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пи...дато
-2. Дэнс-Дэнс
-3. Кукарача
-4. Твоя девушка(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8B596F0538C9D511683898E4BBDABE404F0A25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022790   (727685) от 03.06.2016
-
-VA - Drum and Bass, Dubstep (2016) [MP3|256-320 кб/с] <Drum and Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kubiks & Bcee - Ten Years On
-02. Formal One - Milky Way
-03. Nero - The Thrill (Fawks Flip)
-04. Kaz James - Show Me All Your Love (Smooth Remix)(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 05:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A484801E35B9040E132AAC080D168FAC591D5FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128523   (727661) от 25.04.2017
-
-VA - Brain Plugged: Big Room House Music (2017) [MP3|320 Kbps] <Electro House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fitz & Baron - Sunrise (Original Mix)
-002. Bartosz Brenes - Lovin' U (Original Mix)
-003. Helly Larson - Take Me
-004. Luca Debonaire - Yes It Does (Original Mix)(   Читать дальше...   )Жанр: Electro House, Club HouseПродолжительность: 10:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C0CD9403C1CB11C2997ACBDC07AF2EDB31F040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284533   (727652) от 22.02.2019
-
-VA - Громкие новинки месяца Vol.25 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Years & Years, MNEK - Valentino
-02. Open Kids - Под утро
-03. Chaka Khan - Like A Lady
-04. Robbie Williams - Good People(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF612F1921A27A1B9FA022EB29DC1EF4E38F6829
 ```
 
 https://mybot314.ru/tekegram_catalog/

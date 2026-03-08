@@ -1,3 +1,61 @@
+###  Публикация: 1277269   (787023) от 19.01.2019
+
+VA - Dance Mix Vol.10 (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CDJ Dima Donskoi - They Need A Happy Childhood (Original Mix) 4:05
+02. Stas Exstas - Needz You (Original Mix) 3:35
+03. Red Sensor - Need (Original Mix) 6:13
+04. Alternative Experience - I Need You (Alex B-Cube & Simon Pagliari Mix) 5:04(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C913010639727F1C916DB3CBE5CB6172A2D256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277246   (787018) от 19.01.2019
+
+VA - Cryo Chamber Sampler #1 (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Dark Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Body Disconnect - Rise Of The Dormant Host (07:07)
+02. Hoshin - Souvenir From The Sacred (06:56)
+03. Keosz - Low Down (05:48)
+04. Sabled Sun - Overgrown (04:11)(   Читать дальше...   )Жанр: Electronic, Dark AmbientПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F675A0629649F14C5941AF837D35413C20AA90F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277109   (787009) от 19.01.2019
 
 Robert Rich - Tactile Ground (2019) Soundscape [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -687,64 +745,6 @@ VA - Waves Vol.5 (Sunset House And Deep Groove) (2017) [MP3|320 Kbps] <House, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92BB852ABB6197583126F3CA0532B578715A4692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123883   (785975) от 10.04.2017
-
-VA - Get Down Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Konsiglio - Oleico  5:05
-02.  Davide Leonardo - Beginning The Journey  5:55
-03.  Marcus Koch - Isolde  4:05
-04.  Denis Rusnak - Welcome From The Holiday City  6:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751DF25D50FBED07985480E426308B6D1A81369F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124082   (785972) от 10.04.2017
-
-VA - Central Agency Of Sound (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Michael Ruland - Dreamer (Extended Mix)  6:24
-02.  Mykel Mars - L.A. Nights (Paul Aus Berlin Remix)  5:12
-03.  Suzie Kju - Baby! (Extended Classic Mix)  6:29
-04.  Sounds Of Summer - In My Head (Oh You) (Dub Mix)  6:45(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D46C38265FE03E2A21A94CCE62CC8E5E3E7CCED
 ```
 
 https://mybot314.ru/tekegram_catalog/

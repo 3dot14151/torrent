@@ -1,3 +1,32 @@
+###  Публикация: 1355895   (981106) от 28.01.2020
+
+Maschinenkrieger KR52 vs. Disraptor - Riot (2018) Hands Productions [FLAC|Lossless|tracks+.cue] <Industrial, Rhythmic Noise>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exploitation (05:13)
+ 02. High FX (06:58)
+ 03. Resignation (03:36)
+ 04. Riot (03:57)(   Читать дальше...   )Жанр: Industrial, Rhythmic NoiseПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD82ED5D9BC0B82F832F91D4BDC9378780FF7E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355951   (981103) от 28.01.2020
 
 PrivaZer 3.0.90 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -678,35 +707,6 @@ Foxit Advanced PDF Editor - быстро работающий PDF-редакто
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972770   (980844) от 07.01.2016
-
-Хоккей. КХЛ 2015-2016. Сибирь (Новосибирск) - Нефтехимик (Нижнекамск) (06.01.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980844.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 января 2016, среда. 14:30 МСК
-Стадион: Сибирь (Новосибирск, Россия) , 7 400 зрителей (100 % при вместимости 7 400)
-Главный судья: Сергей Гусев (Серов, Россия)
-Главный судья: Антонин Ержабек (Чехия)Телекомпания: КХЛ HDЖанр: СпортПродолжительность: 02:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D801EEA0D2EA615D6470A771567361B82E4A0B60
 ```
 
 https://mybot314.ru/tekegram_catalog/

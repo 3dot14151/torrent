@@ -1,3 +1,32 @@
+###  Публикация: 952815   (353669) от 02.11.2015
+
+Harry Connick, Jr. - That Would Be Me (2015) /Columbia Records/[FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.(I Like It When You) Smile [03:34]
+ 02.(I Do) Like We Do [03:48]
+ 03.Tryin' To Matter [04:25]
+ 04.Songwriter [03:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A8E1DA51D080E88B241341B8C44C3C31FBA558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952818   (353660) от 02.11.2015
 
 Pat Metheny - Selected Recordings ECM (2004) [FLAC|Lossless]<Jazz>
@@ -722,35 +751,6 @@ Melody Gardot - Sunset In The Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04EC0B2081479A40A09095559DBB6B532F696557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 37377   (351037) от 03.11.2015
-
-(Jazz, Rock) Алексей Козлов и ансамбль АРСЕНАЛ - Избранное - 2001, APE (image + .cue)
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_351037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ностальгия (Nostalgie)
-02. Башня из Слоновой Кости (Ivory Tower)
-03. Тайна (Mystery)
-04. Сюита в Фа Миноре (Suite in Fm)(   Читать дальше...   )Жанр: Jazz, RockФормат: ape + cueПродолжительность: 1:13:46
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

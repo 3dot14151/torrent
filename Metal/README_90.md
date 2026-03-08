@@ -1,32 +1,3 @@
-###  Публикация: 1457965   (235796) от 28.03.2021
-
-Sunborn - Imperishable (2021) [MP3|320 Kbps] <Melodic Death, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Praeludium - Flood [00:01:23]
-02 - Grinder [00:04:16]
-03 - Circularity [00:06:02]
-04 - Eisenherz [00:05:07](   Читать дальше...   )Жанр: Melodic Death, Groove MetalПродолжительность: 00:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614E20F61760FA4E7B7E6E14405A19380882F5CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458000   (235784) от 28.03.2021
 
 Woe Unto Me - Spiral-Shaped Hopewreck (2021) [MP3|320 Kbps] <Melodic Metal, Doom Metal>
@@ -744,6 +715,35 @@ Dead Shape Figure - The Sworn Book (2023) [MP3|320 Kbps] <Melodic Death, Thrash 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B996588E8CF6C57A12C31428AF4A5980E91F91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547332   (234117) от 02.05.2022
+
+Slomatics & Domkraft - Ascend/Descend (2022) Split [MP3|320 Kbps] <Psychedelic Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Domkraft - The Core Will Pull You Home [00:07:56]
+02 Domkraft - The Brush Descends The Length (Stereolab cover) [00:03:39]
+03 Domkraft - And Yet It Moves (Slomatics cover) [00:08:03]
+04 Slomatics - Positive Runes [00:08:02](   Читать дальше...   )Жанр: Psychedelic Sludge MetalПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A300F68D6FF757A2F33FA087BF97DC3AE02CAD30
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,33 @@
+###  Публикация: 62985   (321528) от 03.11.2020
+
+Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ке́вин Ке́рн (англ. Kevin Kern; род. 22 декабря 1958) — американский композитор и пианист. Кевин Керн родился пятым из шести детей в семье хирурга и домохозяйки в Детройте, штат Мичиган, США.
+Начал учиться играть на фортепиано с четырёх лет, с восьми стал писать музыку. В 14 он уже выступал с группой, которую основал сам. Кевин был полон решимости стать (   Читать дальше...   )Альбомы:
+1996 - In the Enchanted Garden
+1997 - Beyond the Sundial
+1998 - Summer Daydreams(   Читать дальше...   )Жанр: New AgeПродолжительность: 06:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE60C49FFDDA24CE055FCF84A4CC7174EE1405F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181787   (321208) от 08.11.2017
 
 VA - Где-то на белом свете... (1996) [FLAC|Lossless|image + .cue] <Retro, Soundtrack, Pop>
@@ -722,35 +752,6 @@ Janis Ian - The Bottom Line Encore Collection (Live album) (999) Compilation [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD79B9BEA89E72456E7D84C01AD5A2EAFD1CC3EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075865   (314227) от 25.11.2016
-
-VA - Xmas Jukebox 2016 (2016) [MP3|320 Kbps] <Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Luciano - Stronger [00:04:18]
-02. Young 13izz - Floi Oi [00:03:52]
-03. DJ Luciano - By Your Side [00:04:53]
-04. Djkam - Higher [00:03:41](   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C48070B7CB8E4258784C7DFDB7A330C3FAFC36
 ```
 
 https://mybot314.ru/tekegram_catalog/

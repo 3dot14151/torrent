@@ -1,3 +1,61 @@
+###  Публикация: 1202338   (790546) от 28.01.2018
+
+VA - RLX 16 - The Chill Out Collection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lazy Hammock  -  Deep Sunday Bliss (Original Mix)  4:42
+02.  Marc Hartman  -  French Melody (Original Mix)  3:35
+03.  Jens Buchert  -  On The Run (Original Mix)  4:39
+04.  Lazy Hammock  -  Is This Love (Original Mix)  4:30(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCD3E7932F093F0D197370590A36B273CDC3284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202318   (790544) от 28.01.2018
+
+VA - The Ultimate Lounge Collection Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stuce The Sketch  -  Silver Days (feat. Wenawedwa) (Original Mix)  4:15
+02.  Maximus & Trilogy  -  Du Ar (Original Mix)  4:06
+03.  Alexandra Hampton  -  Love (feat. Ahbee) (Original Mix)  3:32
+04.  Praful  -  One Day Deep (Original Mix)  5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E766F14F235CD168C4BB19FA3B3EF8AC76C4E6FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275513   (790488) от 11.01.2019
 
 Modulation - Sky (2004) Maxi-Single [FLAC|Lossless|tracks + .cue] <Trance>
@@ -684,64 +742,6 @@ VA - Soundport Recordings. The Best Of 2016 (Mixed by Dr Riddle) (2018) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE2D1758A18CB665774A908266991FA9DE0BB2AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202547   (789542) от 30.01.2018
-
-VA - Dance Empire 11 (2018) [MP3|320 Kbps] <House, Progressive House, Vocal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Miguel Alcobia  -  Who Am I (Radio Edit)  3:31
-02.  Markii  -  100 (Radio Edit)  3:36
-03.  Dr. Beat  -  Much More Than That! (Radio Edit)  3:28
-04.  The Boogeyman  -  All Music To Me (Radio Edit)  2:50(   Читать дальше...   )Жанр: House, Progressive House, VocalПродолжительность: 02:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210083E6A6C6F84DA51E2233239B3806A9622CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202745   (789541) от 30.01.2018
-
-VA - Neostatics Sounds Best Of 2017 (2018) [MP3|320 Kbps] <Trance ,House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanya Bruch - September Meer (Original Mix)
-02. Voger - The Base Camp (Original Mix)
-03. Intoxic Joker - Mello Sunset (Original Mix)
-04. NYUSKA - Like This (Original Mix)(   Читать дальше...   )Жанр: Trance ,HouseПродолжительность: 01:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C60CD3CEB8B967B169FFB4C2BE77235EBD4352
 ```
 
 https://mybot314.ru/tekegram_catalog/

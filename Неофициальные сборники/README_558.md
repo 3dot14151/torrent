@@ -1,3 +1,177 @@
+###  Публикация: 1571449   (240123) от 21.08.2022
+
+VA - Юрий Шатунов и другие... (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юрий Шатунов - А лето цвета (4:03)
+02. Андрей Картавцев - А любовь не при чём (3:42)
+03. Milen - Ночь седая (3:46)
+04. ФЕДЯ - Белые розы (3:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3480E11344AF8F03D5E88A6141580E74B1AE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571514   (239946) от 22.08.2022
+
+VA - The Best of Dance (2022) [MP3|320 Kbps] <Europop, Dance, Deep House, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Claver - Play It Good (Original Mix)
+02. Dusty Rockers - On My Mind (Original Mix)
+03. The Street Dancer - Anymore (Original Mix)
+04. Joseph Ferrero - How You Movin (Original Mix)(   Читать дальше...   )Жанр: Europop, Dance, Deep House, ClubПродолжительность: 01:22:22 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A28B8CD3067B356E2B4E0CFD3350BF2CC689B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627062   (239943) от 18.04.2023
+
+VA - The Morning Mist (2023) [MP3|320 Kbps] <Ambient, Meditation, Relax>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239943.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ian Hawgood - Call Me When The Leaves Fall [01:55]
+002. Rhucle - Lost My Way [02:24]
+003. Relief - Tor [02:26]
+004. Laraaji - All Pervading [02:32](   Читать дальше...   )Жанр: Ambient, Meditation, RelaxПродолжительность: 11:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C3DC0C5F93E26AF090A956B23EE102D6960F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627297   (239927) от 18.04.2023
+
+VA - Motivation Mix 4 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supermode - Tell Me Why - MEDUZA Remix (8:28)
+02. FISHER - Yeah The Girls (6:22)
+03. GENESI - Everything You Have Done - Meduza Edit (5:39)
+04. Mau P - Drugs From Amsterdam (5:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F101D97482EEF7900742ED295383E5D957D9057D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635355   (239899) от 25.05.2023
+
+VA - Alright Feelings Dances (2023) [MP3|320 Kbps] <Dance, Synthpop, Electro House, Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Collini / Tough Love - Love Goes (Extended Mix)
+02. Collini / Spooner Street - La Vida (Leonardo La Mark Remix)
+03. Collini / Titus1 & Travis Lydian & Andy Villa - Second Hand Love (Re-rub)
+04. Collini / Todd Terry, Tobtok & Richard Judge - All Of Me (Future Kings Extended Remix)(   Читать дальше...   )Жанр: Dance, Synthpop, Electro House, Hip-HopПродолжительность: 05:51:07 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D376098B52DA1792BBE1ADE31F04625101C26DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571535   (239897) от 22.08.2022
+
+VA - TOP Non-Stop 2010-2019 - Progressive House (2022) [MP3|192-320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burhan Yuksekkas - Awaking (2013) (4:54)
+02. Christopher Fafa - 05.20 A.M. (Diego Ferran's 'deep mix', 2016) (6:09)
+03. Kaito Aman - Comand Ashtar (2019) (9:24)
+04. Santini & SpeakOf - Melodrama (2018) (5:30)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 10:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F579A9296D5B9A18A6F56B01603944A18638C930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545555   (239872) от 23.04.2022
 
 VA - Rock Classics (2022) [MP3|320 Kbps] <Rock>
@@ -571,180 +745,6 @@ VA - Abstract Electronic: Experimental Synth Pack (2021) [MP3|320 Kbps] <Synthwa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16E5943B6931078C6A2AD50F98FE8F68D3A10935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629699   (237840) от 27.04.2023
-
-VA - 60 minutes. Old School Dance Music vol.18 (mixed by Dj V) (2023) [MP3|320 Kbps] <Club House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-2Black - Waves of Luv (The Disco Boys Full Vocal Mix)
-02-Queen vs The Miami Project - Another One Bites The Dust (Cedric Gervais & Second Sun Club Mix)
-03-Eddie Thoneick feat. Berget Lewis - Deeper Love (Eddie Thoneick's Ruff Mix)
-04-Moby feat. Mylene Farmer - Slipping Away (Crier la Vie) (Axwell Remix)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive HouseПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BAB46BF19E638EA3CD6A2732A8746FF2D7FDB68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548332   (237732) от 03.05.2022
-
-VA - MEGA HITS 2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Animals - Heat Waves 3:59
-02. Felix Jaehn, The Stickmen Project, Calum Scott - Rain In Ibiza 2:22
-03. Justin Bieber - Ghost 2:33
-04. Olivia Rodrigo - Good 4 U 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4593662B03C155459A4B18F90278690132E8CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629042   (237715) от 27.04.2023
-
-Deep Purple - Live Archive 1972 Vol. 1 (1972) 7CD  [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Kind of Woman (Live in Quebec 06/04/1972) [08:33]
-02. Into the Fire (Live in Quebec 06/04/1972) [06:07]
-03. Child in Time (Live in Quebec 06/04/1972) [14:48]
-04. The Mule (Live in Quebec 06/04/1972) [10:53](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 09:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809EC49180956DFCCB27188B824FD9DD01DCB3D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449109   (237698) от 21.02.2021
-
-VA - EDM Banger Tools (2021) [MP3|320 Kbps] <Techno, House, Electro, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танцевальная электро музыка это источник неисчерпаемой энергии поступательного движения, это символ жизни выраженный в прогрессирующем темпе. Мелодии и ритмы сборника под названием "EDM Banger Tools" погрузят вас в полное безумство электронной музыки, а также подарят массу положительных эмоций. Вас ждет великолепная, первосортная музыкальная пластинка от (   Читать дальше...   )001. Lovehouse - Music Don't Stop
-002. Dawnfire - Madness
-003. Chen Leiba - Dance In The Rainbow
-004. Xfour - Miles(   Читать дальше...   )Жанр: Techno, House, Electro, EDMПродолжительность: 09:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80372D0DEFE08E36532D0C5E34DB647641BDA886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449110   (237539) от 21.02.2021
-
-VA - Deep House: Soulful Melodic Sound (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Побалуйте себя любимого отличной музыкой! Прекрасная в своем естестве и будоражащая в силу своей атмосферности музыка сборника "Deep House: Soulful Melodic Sound", способна стать эскортом к любой жизненной ситуации.001. Leonardo Bortolotto - Dear Lord
-002. Daweird - Again
-003. Echo Boy - How You Feel
-004. Robert Jake - Lavenham(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3BA9D4689397FF8A5EAC57BBDADBEC7ABA2960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640314   (237449) от 17.06.2023
-
-VA - Bedroom Jams 2 (2023) [MP3|320 Kbps] <Pop, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tank - When We (5:35)
-02. The Weeknd - The Morning (5:19)
-03. The Weeknd - The Zone (5:15)
-04. H.E.R. - Slide (Remix) (feat. Pop Smoke) (4:57)(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 03:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC6E49750D327630D4A3034CA9F1FFAFFE3F11C
 ```
 
 https://mybot314.ru/tekegram_catalog/

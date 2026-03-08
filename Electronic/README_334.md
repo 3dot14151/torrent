@@ -1,3 +1,61 @@
+###  Публикация: 1256023   (358751) от 20.10.2018
+
+VA - Goa 2018, Vol. 3 (2018) [MP3|320 Kbps] <Psychedelic, Progressive, Full On>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orisma - Alien Light (8:26)
+02. Serenity Flux - Connection Failure (7:35)
+03. Trycerapt & Akron - We Are Ending (8:05)
+04. Audiotec - Mind Technology (Sabretooth Remix) (6:57)(   Читать дальше...   )Жанр: Psychedelic, Progressive, Full OnПродолжительность: 02:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86CF8879CD7630365B9CAAB0494011E48221EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255941   (358742) от 20.10.2018
+
+Major Lazer - Major Lazer Essentials (2018) [MP3|320 Kbps] <Electronic,Dance,Pop>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blow That Smoke (feat. Tove Lo) (3:43)
+02. Lean On (feat. MO & DJ Snake) (2:56)
+03. Cold Water (feat. Justin Bieber & MO) (3:05)
+04. Light It Up (feat. Nyla & Fuse ODG)Жанр: Electronic, Dance,PopПродолжительность: 01:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5F2FDEFE1EFF5AC37BB251C2EE88A5104DC6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577135   (358717) от 19.11.2012
 
 VA - Easy Summer Top 30 Summer - Spring (2012) [MP3|320 кб/с]<Lounge, ChillOut>
@@ -691,64 +749,6 @@ Naibu - Case Study (2015) [MP3|320 Kbps] <Drum & Bass, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5F84DFDC2DFE59802026C131FC85951F7F32429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417695   (355754) от 21.10.2020
-
-Scarlet Fantastic - Beyond Pluto (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Europop, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Pluto (4:17)
-02. Du Quesne (4:53)
-03. Lucky 7 (3:24)
-04. Beyond Pluto (Hifi Sean Remix) (5:48)(   Читать дальше...   )Жанр: Europop, SynthpopПродолжительность: 00:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921095455386C9D2D012E044789042F0F667BE54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417656   (355730) от 21.10.2020
-
-Saffronkeira with Paolo Fresu - In Origine: The Field Of Repentance (2020) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Leftfield, Avant-garde Jazz, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghosts (06:30)
- 02. The Field of Repentance (07:54)
- 03. Death and Civilisation (06:51)
- 04. Due Poli (07:01)(   Читать дальше...   )Жанр: Experimental, Leftfield, Avant-garde Jazz, AmbientПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0F30690BA21120734314DFAE69F264F56B50DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

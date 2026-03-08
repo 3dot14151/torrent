@@ -1,3 +1,177 @@
+###  Публикация: 1552259   (586688) от 21.05.2022
+
+VA - Laidback Acoustic (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586688.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Laura Zocca - I Want You Back (2:46)
+002. The Mayries - I Love The Way You Love Me (3:23)
+003. Laurence O’Brien - There She Goes - Acoustic (2:55)
+004. Music Travel Love - Let Her Go (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 06:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE92482DC2899349036705357F8FF4C00317BC21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552202   (586681) от 21.05.2022
+
+Aria - The Best Of Aria (2019) [MP3|320 Kbps] <Classical, Classical Crossover>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ebben (4:43)
+02. Un Bel Di (5:15)
+03. Secret Tear (7:21)
+04. Ave Maria (4:26)(   Читать дальше...   )Жанр: Classical, Classical CrossoverПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03CB58F2FC8416ECD8BEA567C2A23225A72388B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551850   (586678) от 21.05.2022
+
+VA - I Prefer Rock (2022) [MP3|320 Kbps] <Rock, Alternative, Indie>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярные песни текущего года и хиты весеннего сезона, композиции мастеров rock и хард рок музыки а так же недавно обозначившихся новичков в жанре alternative и rock indie – все это вы найдете в очередном разно жанровом микс-сборнике "I Prefer Rock".001. 64 Nudos - Desde Las Cloacas
+002. Lazuli - L'homme Volant
+003. Maroon 5 - Convince Me Otherwise
+004. Leafblade - The Goddess(   Читать дальше...   )Жанр: Rock, Alternative, IndieПродолжительность: 08:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917EF626C41CD85A6792EA9F0689216BE477530D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918390   (586675) от 15.07.2015
+
+VA - 100 Best Rock Ballads (2015) [MP3|256 кб/с]<Rock, Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Colours Red - Beautiful Day (Album Version)
+02. Saxon - Song for Emma (2010 - Remaster)
+03. Kingdom Come - Friends
+04. ZZ Top - Blue Jean Blues (Remastered Album Version)(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 07:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDA89BB03F123182FB9E42F1751C8091E249E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551918   (586646) от 21.05.2022
+
+VA - Urban Glow: May Release Trance Set (2022) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Вашему вниманию новую очередную майскую подборку отличной популярной электронной музыки в стиле Trance, которую только удалось найти на самых востребованных музыкальных площадках европы. Вас ждет целых сто двадцать качественных композиций для позитивного настроения.001. Sergo Bordo - Bright Lights
+002. Snydex - Ambition
+003. Rex Mundi - Nothing At All
+004. Kym Ayres - More & More(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0622455F64770CA2111AC0476688CDD98516BFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040576   (586549) от 05.08.2016
+
+VA - Futuretrance (2016) [MP3|320 Kbps] <Trance, Future Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicologik -  Lion from the North 5:47
+02. E&G -  Leamus 5:48
+03. Grant Saxena -  Backblast 6:33
+04. DJ Bismark & SDG -  Infinity (The Stars Remix) 5:47(   Читать дальше...   )Жанр: Trance, Future Trance, ProgressiveПродолжительность: 04:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D233D835FC1641D9E87F95BACD84CEFD7E2A5167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 809768   (586421) от 02.08.2014
 
 Madonna - 25 Best Songs (2014) [MP3|~245 кб/с]<Pop>
@@ -540,180 +714,6 @@ VA - Горячие Клубные Треки Русских Ди-Джеев Ч�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AEA3EF0A59B9E7AD6C2CE69DABAEED44218FE1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040764   (585567) от 06.08.2016
-
-VA - Starts Games 125 Splash (2016) [MP3|241-320 Kbps] <House, UK Garage, Future House, Electro, Tribal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585567.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dr Kucho & Gregor Salto - Can't Stop Playing (Oliver Heldens & Gregor Salto Remix) 04:16
-002. 3Lau - How You Love Me (Arston Remix) 05:47
-003. Alex Whisper - Addicted To Drums (Original Mix) 06:08
-004. Discorocks - One Day In July (Original Mix) 06:02(   Читать дальше...   )Жанр: House, UK Garage, Future House, Electro, TribalПродолжительность: 11:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7900EDE4BB5CCE64C9B6FD07F0101C8153F243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040643   (585562) от 06.08.2016
-
-VA - Best Time to Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Mezcal Shadows
-02. Rey Salinero - Flor de Almendro
-03. Chillelektro - Cala Pi
-04. Arrojas - Asombrosa(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0126921B9A412268DCA46B6FA896EBBC4AAA0890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040720   (585523) от 06.08.2016
-
-VA - 50 Summer Hits Across Workout (2016) [MP3|320 Kbps] <House, Progressive, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antoine Delvig & Alex Van Diel  -  Sea, Sex & Sun (Extended Mix)  4:23
-02. Grindclock  -  Sight Beyond Sight (Original Mix)  4:32
-03. Bob Sinclar  -  Someone Who Needs Me (Kryder Remix)  5:08
-04. Abel Ramos  -  Higher  3:30(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 03:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F9100D9F32C73F4EA8CAC3C898829B81958BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040759   (585473) от 06.08.2016
-
-VA - Nu Disco Vol.5 [Compiled by Zebyte] (2016) [MP3|320 Kbps] <Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrey Krivushkin Feat. Taylr Renee - Belief In Humanity [06:23]
-02. Max Lyazgin - Time Flies (Theme From Illusion) [05:00]
-03. David Usher - Black Black Heart (Bentley Grey Remix) [04:10]
-04. Danny Darko - Hurricane Ft Julien Kelland (Vtx Deep Remix) [03:53](   Читать дальше...   )Жанр: Nu DiscoПродолжительность: 02:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD8345ECBA1A98834228F909389F75EEEA45E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040808   (585468) от 06.08.2016
-
-VA - Новая Жажда Скорости Без Тормозов vol.4 (2016) [MP3|320 Kbps] <Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cally & Riot - World In My Hands (Original Mix)
-02. Frequencerz - 12FU (Original Mix)
-03. Airtunes - Vampires (Original Mix)
-04. Faizar - The Darkness Drops (Original Mix)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FEC4C074AFB730C67710BA70900D756FABE74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040727   (585429) от 06.08.2016
-
-VA - Smooth Jazz for Deep Relaxation: Background Music for Lounge Mood (2016) [MP3|320 Kbps] <Jazz, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Evening Jazz Club - Smooth Jazz for Deep Relaxation
-02. Jazz Relax Academy - Soothing Piano Bar
-03. Instrumental Music Ensemble - Jazz Coffee Break
-04. Good Mood Music Academy - Vintage Piano Bar Music (Sexy Chill Lounge)(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB347DAA91CE2A79486AE512AEEC3443E76AE874
 ```
 
 https://mybot314.ru/tekegram_catalog/

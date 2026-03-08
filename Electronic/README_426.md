@@ -1,3 +1,58 @@
+###  Публикация: 1662272   (188048) от 17.09.2023
+
+Vince Watson - Another Moment In Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep HouseПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758182EE629613CBED3BF7AD9A1CB90F5629E63A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662341   (188013) от 17.09.2023
+
+V.A. - A State of Trance, Ibiza 2023 (Mixed by Armin van Buuren) (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188013.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 – On The Beach:
+01. MaRLo & Mila Josef - You Are Not Alone
+02. Armin van Buuren - Motive (Jochem Hamerling Remix)
+03. Push vs Crashguard - I Want To Tell You(   Читать дальше...   )Жанр: Trance |Продолжительность: 02:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B44123D522728747DF0DA50C956B3BE0A54BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827555   (187978) от 22.10.2025
 
 VA - Progressive Trance Awakening, Vol. 08 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -684,64 +739,6 @@ VA - Horizon's Trance 2023 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A463F2595CF4583CBF360B508D575A5DA6F5BE6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663645   (186450) от 23.09.2023
-
-VA - Nothing But... Trancetopia, Vol. 08 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DaWTone - Romplambpi (Original Mix) [4:21]
-02. Solo Drive - Apex (Original Mix) [7:22]
-03. Joseph Vega - Twin Souls (Original Mix) [3:31]
-04. Skyvol & Djoy - Inverse (Original Mix) [3:40](   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C38A1438CC93EE4AE84753BF5560DE28B4F750C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663763   (186436) от 23.09.2023
-
-Klubbheads - Pump Up The Heads! (2021) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiphopping
-02. Big Bass Bomb
-03. Turn Up The Bass
-04. Let The Party Begin(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E042799253BC9D2AC42DF377851432A5668B46
 ```
 
 https://mybot314.ru/tekegram_catalog/

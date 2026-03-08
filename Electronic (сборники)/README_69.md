@@ -1,3 +1,32 @@
+###  Публикация: 1214999   (761810) от 24.03.2018
+
+VA - The Official UK Top 40 Singles Chart 23.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - God's Plan (03:19)
+02. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (03:31)
+03. Portugal. The Man - Feel It Still (02:44)
+04. Marshmello & Anne-Marie - Friends (03:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF391835BF615B530E09170692032C5444ED8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017368   (761231) от 17.05.2016
 
 VA - Late Night Lounge: Sexy Spring and Buddha Cafe Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -722,35 +751,6 @@ VA - Dirty Beats Funky Dancefloor (2016) [MP3|320 кб/с] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FC0AB19940F33848985E0071DA0ABE79D066E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018397   (755933) от 20.05.2016
-
-VA - Beach Cafe Deluxe: Ultimate Lounge and Buddha Relaxation Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Planer - Buddhas Eyes - Essential Bar and Lounge Version
-02. SynDication - Bondi Beach - Sydney Big City Chillout Cut
-03. Nafets Rules - Gin Tonic - Crystal Sky Electronic Ambient Cut
-04. Arcade Shadows - Perfect Gift - Deluxe 55 Lounge Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C0515B25E1ECC1C21183D6A1EC78FE2B12CF3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

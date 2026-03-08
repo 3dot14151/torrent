@@ -1,3 +1,119 @@
+###  Публикация: 1432869   (161987) от 19.12.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 18.12.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foushee - Deep End (2:21)
+02. Dotan - NUMB (3:38)
+03. Jason Derulo - Take You Dancing (3:10)
+04. Pascal Letoublon feat. Leony - Friendships (Lost My Love) (3:02)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EFC41A23DF38372D1E9D2273B9D641BC036E9FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320182   (160903) от 05.11.2023
+
+VA - Понемногу отовсюду by Yuridar #G-H (1980-2022) Compilation Album [MP3|320 Kbps] <Rock, Blues, Others>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gala - Graduale (dub, bonus)
+02. Gallows - Black Heart Queen
+03. Garbage - Control
+04. Garmarna - Gamen (Volture)(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 06:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D3A173D2FE97D91B7135357D68A770F944883B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674637   (160801) от 06.11.2023
+
+VA - Rock Vivo! (2023) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meat Loaf - I'd Do Anything For Love (But I Won't Do That)
+02. Kiss - Rock 'N' Roll All Nite
+03. Aerosmith - Dream On
+04. Imagine Dragons - Thunder(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05ECCB1CEDB15595B77817E190D1FBF2DEDF4F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675510   (160199) от 09.11.2023
+
+VA - Music News vol.313 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160199.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Josephine - Moira (02:22)
+ 002. Anait - Серый Город (03:27)
+ 003. Angel - Не Говори Мне Прощай (02:38)
+ 004. Apashe feat. Geoffroy - Lost In Mumbai (03:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CBED7E7D860C1B5E4566647B336A904D543827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599533   (159796) от 23.12.2022
 
 VA - Music News vol.233 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -635,122 +751,6 @@ VA - Top Club 40 - December 2015 (2015) [MP3|320 кб/с] <Dance, Club 40, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A428255D685927994657A1233DADF5BBAB6A870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433663   (156736) от 21.12.2020
-
-VA - Music News vol.58 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156736.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. NK (Настя Каменских) - Vibe (Dance Version Remix) (02:51)
- 002. Adamant & На-На - Фаина 2.0 (02:55)
- 003. Alicia Keys feat. Diamond Platnumz & Kaash Paige - Wasted Energy (04:38)
- 004. Alok feat. Mc Don Juan & DJ GBR - Liberdade (Quando o Grave Bate Forte) (02:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20538B6034E7A02929FDBFC928E0302A2A298294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085635   (156692) от 22.12.2016
-
-VA - Latin Favourites Baila Conmigo (2016) [MP3|320 Kbps] <Urban, Reggaeton, Dembow>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jory Boy - Detras De Ti (Dj Fuerte Acapella Starter) (Extended) 02:45
-02. Kanales - Feliciano (Clean) 03:19
-03. J Balvin Ft Yandel - Acercate (Djdx Remix) (Extended) (Unofficial) 02:48
-04. Feid Ft J Balvin - Que Raro (Djdx) (Intro Clean) 04:05(   Читать дальше...   )Жанр: Urban, Reggaeton, DembowПродолжительность: 03:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48163FD606DD8E4A1CE81B1FF654768A2D03E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085601   (156544) от 22.12.2016
-
-VA - Dance Paradise: December Party (2016) [MP3|320 Kbps] <Pop, Dance, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156544.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye
-002. Hands Up Freaks - Waiting for Love (Original Mix)
-003. Addicted Craze feat. Kevin Kelly - Renegade
-004. Lady GaGa - Perfect Illusion(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 08:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD0876F4E0527828F284D8A802BB93CCBED8AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194241   (156523) от 24.12.2017
-
-VA - Музыка На Новогодний Корпоратив От Зайцев.Нет (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eurythmics  -  Sweet Dreams (Steve Angello & Sebastian Ingrosso Remix)  6:10
-02.  Don Omar  -  Danza Kuduro (feat. Lucenzo)  3:19
-03.  Afric Simone  -  Hafanana  2:53
-04.  Самоцветы  -  Всё, что в жизни есть у меня (DJ Nejtrino & DJ Baur Remix)  4:36(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563AD66F8FA50BA3DB3FDC6127B1F2A37AAFDE38
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1461221   (1021974) от 09.04.2021
+
+Saille - V (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suffering Sanctuary (Parts 1, 2, 3)
+02. Fetid Flesh
+03. Charnel Chamber
+04. Loathsome Legacy(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F49F5100BD6BB384D07B536615DD14D3EABBC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461356   (1021973) от 09.04.2021
+
+Memoriam - 4 Studio Albums (2017-2021) 4xCD [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейбл Nuclear Blast подписал контракт с британской Death Metal группой MEMORIAM, в состав которой входят Карл Уиллетс (Karl Willets, BOLT THROWER) на вокале, Фрэнк Хили (Frank Healy, BENEDICTION, CEREBRAL FIX) на басу, Скотт Фэйрфакс (Scott Fairfax, CEREBRAL FIX) на гитаре. C 2020-го года в группе новый барабанщик Spike T Smith (SACRILEGE, CONFLICT, KILLING JOKE, (   Читать дальше...   )2017 - For The Fallen
+2018 - The Silent Vigil
+2019 - Requiem For Mankind
+2021 - To The EndЖанр: Death MetalПродолжительность: 03:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B138178003CE746F16BDE007E0D268B117012FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461217   (1021971) от 09.04.2021
+
+ScreaMachine - ScreaMachine (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demondome
+02. The Metal Monster
+03. The Human God
+04. Darksteel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA7877D47BBC21987C7231C41EDB94D099734AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461394   (1021970) от 09.04.2021
 
 Night Spirit - The Spark (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -657,93 +744,6 @@ Bewitcher - Cursed Be Thy Kingdom (2021) [FLAC|Lossless|WEB-DL|tracks] <Blackene
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33759BB09D6C104069FB6BC2CECCB0F155488260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463383   (1020505) от 18.04.2021
-
-Echoes Of Eternity - As Shadows Burn (2009) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ten Of Swords
-02. A Veiled Horizon
-03. Memories Of Blood And Gold
-04. The Scarlet Embrace(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4084957A37D090A34F67278A1FBD24A97F275E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463740   (1020338) от 19.04.2021
-
-Zarpa - Imperia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imperia (4:17)
-02. Lucha Por Las Naciones (4:21)
-03. El Azote De Dios (4:35)
-04. Viene Lucifer (4:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A37B13F448AFCFAA6E788A57104D529C5AEC55B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463731   (1020337) от 19.04.2021
-
-Zarpa - El Loco (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fahrenhait (4:32)
-02. El Heavy Es Mi Destino (3:43)
-03. Hermano Del Rock (5:51)
-04. El Loco (3:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDE2E34E0D3FF645D3AC0812864E0D1C59E97E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

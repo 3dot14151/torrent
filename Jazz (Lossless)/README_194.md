@@ -1,3 +1,38 @@
+###  Публикация: 562137   (405551) от 19.10.2012
+
+VA - Bar Classics Vocal - Greatest Late Hour Blue Songs (2010) [FLAC|Lossless]<Jazz, Classical>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_405551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martiniu - 2. Bar (The Bar) [04:18]
+02. Poulenc - Sanglots [05:05]
+03. Faure - Apres un reve [02:45]
+04. Villa-Lobos, Ferreira - Cancao do poeta do seculo Nr. 18 [03:34]
+05. Debussy - C'est l'Extase langoureuse [03:19]
+06. Rachmaninoff - Nr. 14: Vocalise [04:43]
+07. Traditional - Ack, Varmeland du skona [02:43]
+08. Gheciu - Si daca [03:10]
+09. Dragoi - Crizanteme [03:15]
+10. Faure - Nocturne [02:19](   Читать дальше...   )Жанр: Jazz, ClassicalПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562928   (405253) от 20.10.2012
 
 Caetano Veloso - A Foreign Sound (2004) [FLAC|Lossless]<Jazz, Tropicalia, Psychedelic rock, Folk rock, Bossa nova>
@@ -770,35 +805,6 @@ XXIth Century Infinity Jazz Ensemble - Digging In Archives (2009) JAZZO Sophia [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9AE2E4852FD303C1E3F56EDEAF524BF633E06E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169882   (401598) от 29.09.2017
-
-Machito & His Afro-Cuban Orchestra - Vacation At The Concord (1959) 2004, Verve [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guaglione [02:30]
-02. Cocktails For Two [02:32]
-03. Patricia [02:30]
-04. El Aji Caribe [02:04](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16DFEE234B252043EBACE163307819E891AE46D
 ```
 
 https://mybot314.ru/tekegram_catalog/

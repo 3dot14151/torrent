@@ -1,3 +1,61 @@
+###  Публикация: 1168865   (405057) от 25.09.2017
+
+VA - For New Music Lovers & Dancers (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eargasm – Afrogasmic (dub) 04:34
+02. A M G – 100 (Klav version) 07:34
+03. Akjela – WAdde Viecha 05:46
+04. Greyhawk – Silence (extended mix) 06:19(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B843A7DA3B9890710476349B61AA69D3F67E714D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168855   (405055) от 25.09.2017
+
+VA - Fashion In Profession Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ VoJo — Lost in Sea (Original Mix) 05:16
+02. Oblomov — River of my Love (Original Mix) 04:13
+03. Bobryuko — Hover (Original Mix) 05:20
+04. Ver$us Beatz — You My Novocaine (Original Mix) 05:12(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BED3562F4AB1937AE18D9994835ADC0B411CC2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168895   (404990) от 25.09.2017
 
 Rahul Sharma & Richard Clayderman - Milap (2017) [FLAC|Lossless|tracks] <Easy Listening, Instrumental>
@@ -696,64 +754,6 @@ VA - Trance Workout Hits (2017) [MP3|320 Kbps] <Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:932DC91630FB11C278791E792931A1A902293A5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170400   (398745) от 02.10.2017
-
-VA - ADE Trance Festival (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  LEVV - Collateral Damage (Noise Zoo Remix)  2:40
-02.  Daniel Kandi & Forion - Holy Cow (Original Mix)  4:07
-03.  Marcus Santoro - Nova Scotia (Original Mix)  3:22
-04.  Temple One - Reunited (Original Mix)  4:33(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D86A8C413F18062CE32F20B183708A26ADC759A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170813   (398686) от 02.10.2017
-
-VA - Pump & Run, Vol. 1 (Workout Selection) (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Blast! & Gee - Shake! (feat Xamplify - Radio mix)
-02. Stereolizza - Wonderland (Menshee Club edit)
-03. Kate Maerz - Turn It Around (Dave Dean Radio mix)
-04. Maarten May - We're Alive (Short edit)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E21B8DAD81DE6911B0EBB79631DA968FB8C4E67
 ```
 
 https://mybot314.ru/tekegram_catalog/

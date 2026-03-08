@@ -1,32 +1,3 @@
-###  Публикация: 1400895   (715282) от 07.08.2020
-
-Deadly Sin - Sunborn (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise (01:12)
-02. The Awakening (05:05)
-03. Mistakes (04:05)
-04. The Price I Pay (03:25)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF612154BE449389154AB4649F116C74ACAA642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400722   (715195) от 07.08.2020
 
 John West - Earth Maker (2002) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Heavy Metal>
@@ -744,6 +715,35 @@ Boomer - Dim Side Of Mars (2002) [FLAC|Lossless|image + .cue]<Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B10448EC55B607949A462D38E8A560579AD7C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025005   (714253) от 10.06.2016
+
+Wisdom - Rise Of The Wise (2016) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over the Wall
+02. Ravens' Night
+03. My Heart Is Alive
+04. Hunting the Night(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD9E2F46585B7EF300A4E4E476A4C154E08EF0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

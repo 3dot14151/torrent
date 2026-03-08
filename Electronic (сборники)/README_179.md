@@ -1,3 +1,32 @@
+###  Публикация: 964496   (281653) от 11.12.2015
+
+VA - Beatport Top 100 09.12.2015 (2015) [MP3|320 кб/с]<House, Electro, Progressive, Deep House, Tech House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281653.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michael Calfan - Breaking The Doors (Extended Mix)
+002. R3hab, KSHMR - Strong (Extended Mix)
+003. Don Diablo _ Khrebto - Got The Love (Extended Mix)
+004. Prok & Fitch - Tears (Original Mix)(   Читать дальше...   )Жанр: House, Electro, Progressive, Deep House, Tech House, TechnoПродолжительность: 10:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878D806E395BAC917DCA05564B5062AD3E5AFE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264313   (281239) от 23.11.2018
 
 VA - Future Psychedelic Trance (2018) [MP3|320 Kbps] <Psychedelic, Goa, Trance>
@@ -713,35 +742,6 @@ VA - Rhythm Of Life: Electro House Session (2019) [MP3|320 Kbps] <Electro House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2093E67552A2F59CDE92002BCCA74F4AC55577D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265114   (276364) от 26.11.2018
-
-VA - Top50: Tracks Deep House Ver.6 (2018) [MP3|320 Kbps] <House, Deep House, Club Hose>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren & DJ Shah feat. Chris Jones - Going Wrong (Quba Remix) 6:52
-02. DJ Goja - You And Me (Original Mix) 3:03
-03. Maruv - Shame On You (Kolya Funk & Shnaps Remix) 4:07
-04. Stevie Wonder - I Just Called To Say I Love You (Hippocat & Fresh-Art Remix) 5:12(   Читать дальше...   )Жанр: House, Deep House, Club Hose, ProgressiveПродолжительность: 04:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC66C90CD9BBE8E4444C21A0EFAB8917FB830585
 ```
 
 https://mybot314.ru/tekegram_catalog/

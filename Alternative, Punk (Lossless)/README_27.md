@@ -1,3 +1,32 @@
+###  Публикация: 1231775   (603760) от 20.06.2018
+
+For The Fallen Dreams - Six (2018) Rise Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone (4:17)
+ 02. The Undertow (3:51)
+ 03. Unstoppable (4:05)
+ 04. Forever (3:32)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DFD2352771657E5620CB9F31DA17789AD7D664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231779   (603697) от 20.06.2018
 
 The White Stripes - Icky Thump (2007) [FLAC|Lossless|tracks + .cue] <Blues Rock, Garage Rock, Indie Rock>
@@ -716,35 +745,6 @@ Reamonn - 5 Albums (2000-2008) Full Studio Discography [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8212AB87A421A94FBCC2C6760961DFEBF910F3D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233228   (593340) от 29.06.2018
-
-Gorillaz - The Now Now (2018) Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humility (feat. George Benson) (3:18)
- 02. Tranz (2:43)
- 03. Hollywood (feat. Snoop Dogg & Jamie Principle) (4:53)
- 04. Kansas (4:08)(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:328CFA9BA453D6283DD7C14F48494292B2A7B6E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

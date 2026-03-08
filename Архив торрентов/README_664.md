@@ -1,3 +1,32 @@
+###  Публикация: 1099242   (905312) от 01.02.2017
+
+Black Anvil - 4 Albums (2008-2017) [FLAC|Lossless|image + .cue] <Blackened Thrash Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Anvil - blackened thrash metal группа из Нью Йорка. Дебютный альбом "Time Insults the Mind" вышел в 2008 году2008 - Time Insults The Mind
+2010 - Triumvirate
+2014 - Hail Death
+2017 - As WasЖанр: Blackened Thrash MetalПродолжительность: 03:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20D98BD4763B9276BFE34CA1DF58E4AEE537DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099502   (905309) от 01.02.2017
 
 TinkerTool System 5.1 [En]
@@ -679,32 +708,6 @@ Wind Rose - Wardens Of The West Wind (2015) [MP3|320 кб/с]<Progressive / Symp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB956FE1CF721EDECB9A052848128774517892EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099359   (904843) от 01.02.2017
-
-GPU-Z 1.17.0 + ASUS ROG Skin [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904843.jpg" />
-</div>
-
-
-###  Подробнее
-
-GPU-Z - бесплатная программа от TechPowerUp для отображения технической информации о видеоадаптере (видеоконтроллере/видеокарте/видеомодуле), работающая под ОС Microsoft Windows. Программа отображает технические характеристики графического процессора и его видеопамяти, то есть определяет производителя и название видеоадаптера, тип видеопроцессора и его характеристики, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F0961A26B67C1734270D19D358EE50F34A7100
 ```
 
 https://mybot314.ru/tekegram_catalog/

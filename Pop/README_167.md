@@ -1,3 +1,61 @@
+###  Публикация: 1303647   (570968) от 22.05.2019
+
+Laurence Castera - Les hauts lieux (2019) [FLAC|Lossless|tracks + .cue] <French Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jouer le jeu (3:57)
+02. De l'autre côté (3:32)
+03. Déposer les armes (3:36)
+04. L'élyme des sables (4:41)(   Читать дальше...   )Жанр: French Pop, Pop RockПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CB5D5D20D1D64A5D272EBDA01B50279D00B93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043806   (570931) от 17.08.2016
+
+Lukas Graham - Lukas Graham (2015) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7 Years 03:57
+02. Take The World By Storm 03:11
+03. Mama Said 03:26
+04. Happy Home 03:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A5F6FA4C917AE40FC047EAFCB99DB5A0DF2323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043700   (570921) от 17.08.2016
 
 Gwen Stefani - This Is What The Truth Feels Like (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
@@ -720,64 +778,6 @@ CD-1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB330780F784391EB8922A71C566D9209F9CAF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922702   (568175) от 29.07.2015
-
-Kristine - Kristine (2015) [MP3|320 кб/с]<80's Retrowave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Love [04:50]
-02. The Danger [03:40]
-03. Summer Long Gone [04:17]
-04. The Rhythm of Love [03:40](   Читать дальше...   )Жанр: 80's Retrowave, SynthpopПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E7AEF5857CC46D666161955DFE376841AB28D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234551   (567954) от 07.07.2018
-
-Krono - Krono (1979) LP [MP3|320 Kbps] <Electronic, Space Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bareback (5:42)
-02. Jamaica Electric (6:30)
-03. Manhattan (6:29)
-04. Krono (6:51)(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE7C9E1B521E6725B17ADD1715A6B6B971752FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

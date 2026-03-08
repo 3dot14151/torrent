@@ -1,3 +1,32 @@
+###  Публикация: 1047229   (549777) от 29.08.2016
+
+VA - Massive Vocal, Euro, Dance Hits (2016) [MP3|179~320 Kbps] <Pop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549777.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Trancemaster  -  My Happyness (Original Mix)  5:12
+002. Dr Alban  -  It's My Life  4:01
+003. Hands Up  -  Happy People (Single Version)  3:34
+004. Tango & Cash  -  Inside The Night (Original Mix Edit)  3:15(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 10:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E115708A882C8107D9ABB5880E49230BC94A7C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046711   (549247) от 30.08.2016
 
 VA - Танцевальный ритм - 8 (2016) [MP3|256 Kbps] <Pop>
@@ -735,35 +764,6 @@ VA - Осенняя Бомба Года 50х50 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C669DC56516BC1397CD2822FE31A731842B56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239242   (540356) от 04.08.2018
-
-VA - Your Songs: The All Summertime Greatest Hits (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540356.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mahmut Orhan - 6 Days
-002. Enrique Iglesias x Pitbull - MOVE TO MIAMI
-003. Train feat. Cam - Call Me Sir
-004. Namika - Je ne parle pas français(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 13:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622FC31DE6A3C5982AC71F4DBBE6268CD8115451
 ```
 
 https://mybot314.ru/tekegram_catalog/

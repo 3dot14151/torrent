@@ -1,3 +1,38 @@
+###  Публикация: 517886   (645706) от 02.07.2012
+
+VA - Горячая Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645706.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Oksi - Раскали Меня (3:11)
+2. T - Killah Feat. Виктория Дайнеко - Mirror Mirror (3:26)
+3. Глюкоза - Кошка (3:23)
+4. Лада Дэнс - Эгоист (3:00)
+5. Неангелы - Прощай (3:45)
+6. Макс Барских - Dance (3:20)
+7. Nikita - 2012 (Dj Sergey Fisun Remix) (2:52)
+8. Карина Кокс - Летать Высоко (Via Sirius Dj Meg Club Mix) (6:31)
+9. Snoop Dogg - Sweat (David Guetta Remix) (3:14)
+10. Mmdance - Мой Босс (3:09)Жанр: PopПродолжительность: 06:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBE79549129E34B3BBE6AA98EE6A7F7D7322493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032450   (645698) от 07.07.2016
 
 VA - Dance Leto (2016) [MP3|320 Kbps] <Pop>
@@ -764,35 +799,6 @@ VA - Billboard Hot 100 Singles Chart 24.06. (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:730A0055A652066084B8B1CB1A60E9B314DE8192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033380   (640204) от 10.07.2016
-
-VA - My Boo: R&B Dance (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Town DJs - My Boo - Hitman's Club Mix
-02. Usher - Pop Ya Collar
-03. Destiny's Child - Jumpin
-04. R. Kelly - Bump n' Grind(   Читать дальше...   )Жанр: PopПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9875FACC7075A48314EDE01C5F15635443B5A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

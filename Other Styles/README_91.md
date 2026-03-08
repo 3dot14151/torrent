@@ -1,3 +1,32 @@
+###  Публикация: 923497   (564488) от 31.07.2015
+
+VA - Simply Chillout (2005) 4CD[FLAC|image+.cue]<Electronic, Ambient, Pop, Rock, Classica>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая проблема была с определением раздела для этого релиза. Все четыре диска хоть и объединены общим названием, но каждый из них в соответствии со своим названием и к классики отнести можно и к музыкальному сопровождению фильмов и к электронной музыке. Но все же все они предназначены для того, чтобы отдых слушающего был полноценным. А ведь перед выходными это (   Читать дальше...   )CD1 - Chilled Beat
+CD2 - Smooth Pop Classics
+CD3 - Film&TV Themes
+CD4 - Classical ChilloutЖанр: Electronic, Ambient, Pop, Rock, ClassicaПродолжительность: 04:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A54CC10C0C8F0D5E4558BCB9B6550CB7A31B8A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304483   (563984) от 26.05.2019
 
 Michele McLaughlin - Memoirs (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
@@ -732,35 +761,6 @@ Laura Sullivan - The Modern Romantic: New Relaxing Classical Piano Music (2016) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD2D77EC91C690C8E6A9231CEB6AFFC700F1775B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045738   (557732) от 24.08.2016
-
-Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557732.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Blowin' In The Wind [02:48]
- 2 - The Times They Are A-Changin' [03:14]
- 3 - Don't Think Twice, It's All Right [03:40]
- 4 - Mr. Tambourine Man [05:29](   Читать дальше...   )Жанр: Rock, folk, CountryПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44435EE5A0BBC654427FCA3BABC16B03D82CC1F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

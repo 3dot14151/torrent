@@ -1,3 +1,32 @@
+###  Публикация: 1130816   (710793) от 04.05.2017
+
+Angelo Debarre & Ludovic Beier - Entre Ciel et Terre (2006) Le Chant Du Monde [FLAC|Lossless|tracks + .cue] <Gypsy, Swing, Jazz Manouche>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan [04:05]
+02. Le Tzigane Roumain [03:37]
+03. Entre Ciel et Terre [04:45]
+04. R. Vingt-Six [03:10](   Читать дальше...   )Жанр: Gypsy, Swing, Jazz ManoucheПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C70BCD741B8CA79836A925EB059AE9C763563640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131049   (710519) от 04.05.2017
 
 Malia - The Best of Malia (2015) [FLAC|Lossless|image + .cue] <Soul, Jazz, Pop>
@@ -716,35 +745,6 @@ Arne Domnerus & Rolf Ericson - 1950 - 1951 (2003) Dragon Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22C63503F45658FA66E75967CF204B09ED51E16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286863   (707387) от 05.03.2019
-
-Liane Foly - Crooneuse (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - J'aime regarder les filles                 [03:38]
-02 - Voilà c'est fini                           [04:37]
-03 - C'est extra                                [04:36]
-04 - La boite de jazz                           [03:30](   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34CD2D11EF1E8FDB79FACC3F7BA499EE7EDBDD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

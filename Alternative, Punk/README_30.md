@@ -1,67 +1,3 @@
-###  Публикация: 1186081   (289819) от 23.11.2017
-
-Celldweller - Beta Cessions: Demos & Rarities (2017) [MP3|320 Kbps] <Industrial, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289819.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Switchback (2001)
-02. Stay with Me (Unlikely) (2001)
-03. Under My Feet (2000)(   Читать дальше...   )Жанр: Industrial, AlternativeПродолжительность: 01:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EEDE3FE9C0CD3F185E47842699BFFF37A597C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 270525   (288442) от 14.12.2010
-
-The Men That Will Not Be Blamed For Nothing - Now That's What I Call Steampunk! Volume 1 (2010) [MP3|320 kbps]<Steampunk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Etiquette (2:09)
-02 - Steph(v)enson (3:51)
-03 - Bedlam (2:55)
-04 - Goggles (2:30)
-05 - Sewer (live) (2:15)
-06 - Boilerplate Daniel (2:09)
-07 - Moon (3:59)
-08 - A Traditional Victorian Gentlemens Boasting Song (2:13)
-09 - Victorian Grindcore (0:14)
-10 - Blood Red (4:16)(   Читать дальше...)Жанр: SteampunkПродолжительность: 00:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A2E0B7992C1024657C5F763D178B8EA0B83789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186199   (287972) от 24.11.2017
 
 Bring Me The Horizon - 2004 - 2013 (2017) [MP3|320 Kbps] <Alt. Rock, Metalcore>
@@ -780,6 +716,76 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D99D4E9B6798A8D26DEE0A44158F63BE840B697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497449   (253808) от 17.05.2012
+
+Celldweller - Wish Upon A Blackstar (Deluxe Edition) (2012) [MP3|320 кб/с]<Industrial Rock / Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Arrival (0:44)
+02. It Makes No Difference Who We Are (3:02)
+03. Blackstar (4:07)
+04. Louder Than Words (4:40)
+05. The Lucky One (6:46)
+06. Unshakeable (5:09)
+07. I Can't Wait (7:16)
+08. Eon (6:22)
+09. So Long Sentiment (6:03)
+10. Gift For You (5:47)(   Читать дальше...   )2012Жанр: Industrial Rock / ElectronicПродолжительность: 1:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8927696F2028D3B366A2222BD347BEAC901C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497319   (253455) от 16.05.2012
+
+John 5 - God Told Me To (2012) [MP3|320 кб/с]<Alternative Metal / Instrumental Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Welcome To Violence (04:15)
+ 02. Beat It (04:14)
+ 03. Ashland Bump (03:20)
+ 04. Killafornia (04:14)
+ 05. The Castle (03:18)
+ 06. The Hill of the Seven Jackals (04:04)
+ 07. Noche Acosador (03:22)
+ 08. The Lust Killer (05:01)
+ 09. The Lie You Live (04:24)
+ 10. Creepy Crawler (04:52)(   Читать дальше...   )2012Жанр: Alternative Metal / Instrumental MetalПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E841DC9ACA7BECB400CCB6C1A94CE1EF58185D92
 ```
 
 https://mybot314.ru/tekegram_catalog/

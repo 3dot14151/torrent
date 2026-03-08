@@ -1,3 +1,61 @@
+###  Публикация: 1431385   (167729) от 13.12.2020
+
+VA - Milk & Sugar Winter Sessions 2021 (2020) [MP3|320 Kbps] <House, Funky House, Afro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Delay - Freedom (Sebb Junior Extended Remix) [6:09]
+02. Ucha - Yellow Jello Slugs (Superlover Extended Remix) [4:59]
+03. The Goodfellas - Soul Heaven (David Penn Remix) [6:12]
+04. DirtyDisco - No Sunshine (Original Mix) [6:27](   Читать дальше...   )Жанр: House, Funky House, Afro House, ElectronicПродолжительность: 03:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCBEA12640F52053173F9779D3ABC8C19912701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597125   (167610) от 13.12.2022
+
+VA - Trance Party 2022 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Franck FTC - Dance On Mars (Original Mix) (6:04)
+02. STA - Analemma (Original Mix) (7:32)
+03. Sunlight Project - Lights In The Sky (Original Mix) (6:42)
+04. Sync Diversity feat. Don Achatina - Ocean Breeze (Extended Mix) (4:54)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22E64F7EE3A344BCB9F487F20271773EE4B7D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597092   (167564) от 13.12.2022
 
 Ben Böhmer - Live At The Roundhouse London (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
@@ -684,64 +742,6 @@ VA - Which Bottle?: AUTUMN CLUB BOX 2023 [MP3|320 Kbps] <House, Funky House, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B8D13DF63A89BA70910160FCFC41411679FAF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235328   (166229) от 15.12.2019
-
-Hanzel Und Gretyl + Side Projects (Cycle Sluts From Hell, KyzrWolf) - 13 Releases (1991-2019) [MP3|320 Kbps] <Industrial, Industrial Metal>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166229.jpg" />
-</div>
-
-
-###  Подробнее
-
-1995 - Ausgeflippt
-1997 - Transmissions From Uranus
-2003 - Über Alles
-2004 - Scheissmessiah(   Читать дальше...   )Жанр: Industrial, Industrial MetalПродолжительность: 09:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37195E65DDD452AC9482205A13C03833F9219FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301651   (166164) от 15.12.2019
-
-SITD / S.I.T.D. / [:SITD:] / Shadows In The Dark - Discography 16 Releases (2002-2019) [MP3|320 Kbps] <Industrial, EBM, Dark Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166164.jpg" />
-</div>
-
-
-###  Подробнее
-
-2002 - Snuff (EP)
-2003 - Laughingstock (EP)
-2004 - Stronghold (US Edition)
-2005 - Richtfest (EP)(   Читать дальше...   )Жанр: Industrial, EBM, Dark ElectroПродолжительность: 19:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702E8E3FE8917B6F97DFF90E1D113EB0D4CDA72E
 ```
 
 https://mybot314.ru/tekegram_catalog/

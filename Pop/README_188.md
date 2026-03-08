@@ -1,3 +1,61 @@
+###  Публикация: 1564774   (498577) от 20.07.2022
+
+King Sporty - Mr. Rhythm (1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Rhythm (4:18)
+02. Good Loving (4:34)
+03. Shake It, Shake It (3:43)
+04. Keep On Dancing (4:09)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C691EAD2E01218CFD86779E1A2F7D78E55313B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317969   (498501) от 03.08.2019
+
+Adriano Celentano - World Name (2003) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confessa
+02. Amore No
+03. Dimenticare E Recominciare
+04. I Passi Che Facciamo(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB71890D3499C2C7EC48DF60D4B684B686E6984A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935727   (498192) от 09.09.2015
 
 Adele - Greatest Hits (2012) [FLAC|image + .cue]<Soul, Pop>
@@ -710,62 +768,6 @@ VA - 100 Hits Boogie Nights (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92EA0D4F5BA3CDE0922ADCD964ECAE834F1C15C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318348   (494816) от 06.08.2019
-
-Илья Гусев - Летим на Марс! (2019) [MP3|320 Kbps] <Pop, Neo-Disco>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моё первое письмо (3:44)
-02. Щекой к щеке (3:53)
-03. Малиновый поцелуй (4:11)
-04. Заказывай желание (4:15)(   Читать дальше...   )Жанр: Pop, Neo-DiscoПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA747B5BFBA2F94C39BB700EA1813F20082F2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565428   (494771) от 23.07.2022
-
-Billie Eilish - Guitar Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop, Alternative>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Билли Айлиш — американская певица и автор песен. 21 июля 2022 года она выпускает мини-альбом «Guitar Songs» с двумя треками-сюрпризами «TV» и «The 30th».01. TV
-02. The 30thЖанр: Pop, Indie Pop, AlternativeПродолжительность: 00:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB5BBC19945B29AD2B2B6A8479A624E817F6B21
 ```
 
 https://mybot314.ru/tekegram_catalog/

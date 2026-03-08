@@ -1,3 +1,61 @@
+###  Публикация: 1248100   (446191) от 18.09.2018
+
+Double Fantasy - Food For Fantasy (1994) [MP3|320 Kbps] <Electronic>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.F. - The New Generation 6:28
+02. Universal Ave.  5:00
+03. Starride 5:41
+04. Energy Force 4:18(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A163AC51C4CF7B2A45F5F854D1CE5A4BFAD7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061760   (446140) от 11.10.2016
+
+Vangelis - Rosetta (2016) [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origins (Arrival) (04:23)
+ 02. Starstuff (05:14)
+ 03. Infinitude (04:30)
+ 04. Exo Genesis (03:33)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9021E29CDB57EC47353D4A8B7F5D9C05820F168E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163817   (445952) от 07.09.2017
 
 Scooter - 24 Carat Gold (2002) Compilation [FLAC|Lossless|image + .cue] <Techno, Hardstyle, Dance>
@@ -705,64 +763,6 @@ VA - Deep Nu Disco House Sounds (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D98075B05E96DE99437E9664CD9D0C96D57CB1E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409654   (443337) от 18.09.2020
-
-Faction - The End Of Tel Aviv Redux (2020) False Industries [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside Out (06:43)
- 02. Maybe Tommrow (06:34)
- 03. Cutter's Way (07:06)
- 04. An Older Outland (04:50)(   Читать дальше...   )Жанр: IDM, Glitch, AmbientПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:462CF46ADFBD647626C8BE574D07DCBEC78E1A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409727   (443264) от 18.09.2020
-
-VA - Female Vocal Trance Vol. 2 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suncatcher & Exolight feat. Ellie Lawson - Let It Shine (Original Mix)
-02. Phillip J feat. Kim Casandra - Ocean's Call (Original Mix)
-03. Craving feat. Manon Polare - When Oceans Collide (Original Mix)
-04. Costa & Ana Criado - The Secret Garden (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E46C5FA41C631FBABC324D8BF8B7920E72ECFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1421104   (321904) от 03.11.2020
+
+Bad Boys Blue - Tears Turning To Ice (2020) [MP3|320 Kbps] <Dance, Pop, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killers (03:49)
+ 02. Tears Turning to Ice (03:19)
+ 03. Love Love Love (02:56)
+ 04. A Million Times in Heaven (04:07)(   Читать дальше...   )Жанр: Dance, Pop, Euro-DiscoПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B6340AB80F7393C35B55FB84713B2D562A1D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181719   (321435) от 08.11.2017
+
+VA - The Remixed Dance Sensations (2017) [MP3|320 Kbps] <Eurodance, Eurodisco, Europop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  ABBA Revival Band - Super Trouper (Dance Remixed Version)  3:34
+02.  Donna Summer - Nice To See You (Radio Club Version)  3:27
+03.  Goombay Dance Band - Sun Of Jamaica (Remixed Version)  4:24
+04.  DJ Bobo - I Love You (Home Club Mix)  6:46(   Читать дальше...   )Жанр: Eurodance, Eurodisco, EuropopПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E80B35BB612940F88B85116E4AB379DACCFC393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958782   (321364) от 22.11.2015
 
 Виктор Попов и Группа Твой День - Хит-Парад СССР - Лучшие Песни (2005) [MP3|320 кб/с]<Pop, Dance>
@@ -700,64 +758,6 @@ VA - BRAVO Hits 107 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:640BDEC8392042E2A2F98FF744D46C9CBB808DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075891   (318060) от 23.11.2016
-
-Нэнси - Чувства (Сборник лучших медленных композиций) (2015) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дым сигарет с ментолом (Remix)
-02. Фотография
-03. Сладкая ночь
-04. Я стану ветром(   Читать дальше...   )Жанр: PopПродолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91712E73804A327387566B6B9B36516A32620940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421477   (317645) от 05.11.2020
-
-Анжелика Варум - Стоп, любопытство! (2002) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Будешь рядом ты
-02. Летние огни
-03. Зимние сны
-04. Ты не спросил(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B65E64B93E56CB1CB1D997147D319FBF50821BE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

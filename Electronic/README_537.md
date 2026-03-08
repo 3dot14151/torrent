@@ -1,3 +1,61 @@
+###  Публикация: 1793472   (20386) от 24.04.2025
+
+VA - 12 Years Of Suanda Music (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - Message In A Bottle (Extended Mix) [6:20]
+02. Adip Kiyoi - Admire (Extended Mix) [6:32]
+03. Alex M.O.R.P.H. & Roman Messer - Tranquillity (Extended Mix) [7:03]
+04. EpicFail & ILSE - Worth It (When it's You) (Extended Mix) [6:23](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB853991C8D20CCEE52AA810AB69815F0302084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793460   (20381) от 24.04.2025
+
+VA - Kontor Sunset Chill 2025 (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - WITH U - Karibu
+02 - Sitze - Smooth Operator
+03 - Kosheen - Hide U
+04 - Edgr - Bellakiar(   Читать дальше...   )Жанр: Downtempo, Chillout, Deep HouseПродолжительность: 05:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE97686DC11298397EB04FB835162DA7E1566E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793503   (20374) от 24.04.2025
 
 VA - A State of Trance - Classics Top 10, Vol. 2 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -687,64 +745,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79094AF71765128F427C225F73B1AE34BEC23AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796792   (18513) от 12.05.2025
-
-VA - The Perfect Lounge Balearic Session (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Asking Altotas - Signature Move (04:23)
- 02.  Gries - Spot On (04:25)
- 03.  Schauberger - One of a Kind (04:30)
- 04.  The Sura Quintet - Distinctive Approach (04:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16CAF9FB36C105332D91A35969D6AD5A34D5F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797004   (18409) от 13.05.2025
-
-VA - Nothing But... Late Night Deep House, Vol. 01 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing on Lego - Sun Is Shining (Edit) [03:46]
-02. VEKY - Only You (Dub Mix) [03:48]
-03. Marine de Paris - Selfish Desire (Dub Mix) [03:42]
-04. Mr Black&Blue - Chicago (John Laurant Remix) [05:55](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E83F4CA8C184086C828F71C6939C749F657A3188
 ```
 
 https://mybot314.ru/tekegram_catalog/

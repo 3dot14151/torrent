@@ -1,3 +1,61 @@
+###  Публикация: 1393190   (768487) от 29.06.2020
+
+Soul Button - Phantom Existence (Remix Edition) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utopia (Armen Miran Remix) (8:30)
+ 02. Silhouettes (Clawz SG Remix) (7:15)
+ 03. Shapeshifter (Matan Caspi Remix) (7:09)
+ 04. Deception (Whirl Remix) (7:51)(   Читать дальше...   )Жанр: Electronic, Tech House, Deep Progressive HouseПродолжительность: 01:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5048BD084FAAFB8808BFF31A78658FD92DC6DBAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393234   (768480) от 29.06.2020
+
+Emog - Cosmic Cruising Tunes (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Emog & Martins Garden - Chronos 05:25
+02.Emog - The Spirit Tree 05:10
+03.Emog & beatfarmer - Karmarama 06:33
+04.Emog - Night Owl 06:16(   Читать дальше...   )Жанр: Psychill, Psydub, DowntempoПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9F3456FBDE3A68BE8F210845A9F6071B3B468E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393227   (768428) от 29.06.2020
 
 VA - Open Fields (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downtempo>
@@ -687,64 +745,6 @@ Alcove - Universal Implication (1994) Visible Records [FLAC|Lossless|tracks+.cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEDCFDB2CD47964378E38AA15CE74F5571E6AAF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278593   (767730) от 27.01.2019
-
-Giorgos Zaras - 2 Albums (2013, 2017) [MP3|320 Kbps] <Electronic, New-Age, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insertion Of Thought (4:32)
-02. Mission (4:50)
-03. Trip Into The Body (10:03)
-04. Common Experience (4:34)(   Читать дальше...   )Жанр: Electronic, New-Age, AmbientПродолжительность: 01:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA681F82090318A34AD1E6534B5A2B3A0942249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393495   (767689) от 30.06.2020
-
-VA - Sport Music 2020 [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Snake, Justin Bieber - Let Me Love You (03:23)
-02. Alexander Oscar - Bad Intentions (Faustix Remix) (02:37)
-03. Vigiland, Tham Sway - Shots & Squats (02:51)
-04. LittGloss - L.A. Traffic (02:55)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49ACA535FEB914FC59D6E481229F0B0A28D1620B
 ```
 
 https://mybot314.ru/tekegram_catalog/

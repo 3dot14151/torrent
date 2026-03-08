@@ -1,3 +1,116 @@
+###  Публикация: 524782   (611146) от 19.07.2012
+
+VA - Сборник игровой музыки / In Game Music (Ultimate Music Pack) (2011) [MP3|320 кб/с]<Rock, Drum & Bass, Dubstep, Electronic, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611146.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Жанр: Rock, Drum & Bass, Dubstep, Electronic, TranceПродолжительность: 05:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946DD776B1D497DFD9DE74674EF28E2888E0B4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912620   (610565) от 26.06.2015
+
+VA - Car Audio. Субботние ништяки [Sound Clinic - Special Edition] (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Dubstep, Progressive, Trance, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610565.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 303Bastard - Microphone Commando (Original Mix)
+2. Alex Herrera - Mesmerized (Original Mix)
+3. Alexey Union - Paris Trip (Original Mix)
+4. Alma - Supernatural (Original Mix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Dubstep, Progressive, Trance, TechnoПродолжительность: 12:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7393C9B324565F786DEEC597BBEEF236D888825F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912529   (610505) от 26.06.2015
+
+VA - Car Audio. Русский, Душевный (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Рок, Блюз, Регги, Шансон, Поп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 25-17 - Горький туман
+2. 25-17 - Звезда
+3. 25-17 - Облако
+4. 25-17 - Полёты(   Читать дальше...   )Жанр: Рок, Блюз, Регги, Шансон, ПопПродолжительность: 07:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E9C711B47B27F879732870F918CE2577AA1C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037951   (610203) от 26.07.2016
+
+VA - 100 Summer Dance Hits Workout Energy for Fitness (2016) [MP3|240-320 Kbps] <Synthpop, Indie Dance, Tropical, Funky, Dancehall>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaarl - Cool Kids (Feat. Mathilde Hoslet) (Radio Edit) 03:07
+02. 19Eighty7 - Get It On (Original Mix) 04:14
+03. Rudimental - Lay It All On Me (Feat. Ed Sheeran) (Robin Schulz Remix) 06:19
+04. Edx - Missing (Ft. Mingue) (Extended Mix) 04:53(   Читать дальше...   )Жанр: Synthpop, Indie Dance, Tropical, Funky, DancehallПродолжительность: 08:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE662F4B40DD373AE201F201ABA7BDCC925A663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037985   (610186) от 26.07.2016
 
 VA - The Best Ever: Acoustic (2016) [MP3|320 Kbps] <Soft Rock, Roots, Film Score, Folk, Alternative>
@@ -668,122 +781,6 @@ VA - Electro House ремиксы на современные русские х�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9075FC407FAE40CF4BFC4A0514E077A02414CDB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038368   (606834) от 28.07.2016
-
-VA - Hot Dancing On The Beach (2016) [MP3|320 Kbps] <Pop, Club, House, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Feldt vs. Lucas & Steve ft. Wulf - Summer On You
-02. Lost Frequencies ft. Sandro Cavazza - Beautiful Life
-03. Vasiliy Francesco x WildMilk x Iggy Azalea - Team (John Rocks Mash Up)
-04. W&W - How Many(   Читать дальше...   )Жанр: Pop, Club, House, ElectronicПродолжительность: 06:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7401B4FA2DB60AE8D785D7AE48D8FDC4F83174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038572   (606718) от 28.07.2016
-
-VA - Lemon Dance Hit (2016) [MP3|320 Kbps] <Dance, Pop, House, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606718.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Саlvin Наrris & Rihаnnа - Тhis Is Whаt Yоu Cаmе Fоr
-002. Zara Larsson - Lush Life (Denis First Radio Edit)
-003. Will I Аm - Bоуs & Girls (Nejtrino & Baur Remix)
-004. Twenty One Pilots - Stressed Out (No Hopes, Misha Klein Remix)(   Читать дальше...   )Жанр: Dance, Pop, House, RnBПродолжительность: 08:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB128979E4D0B735B77EDCFF7993253CA884F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546519   (606103) от 24.04.2022
-
-VA - The Official UK Top 100 Singles Chart 22.04.2022 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606103.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Harry Styles - As It Was (2:47)
-002. Jack Harlow - First Class (2:53)
-003. Aitch - Baby (2:57)
-004. Dave - Starlight (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C6E87AA5D3856F876E9CCDD21E667650C8601E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038422   (606065) от 28.07.2016
-
-VA - Вечный хит (2016) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leonard Cohen - Waiting for the miracle
-02. Houston - Runaway
-03. Tasmin Archer - Sleeping Satelite
-04. IamX - Your Joy Is My Low (You Are X Remix  By Thomas Sari)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0912EDAD217149E6B942EFEADA7B1D953B3B2498
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1037846   (611879) от 25.07.2016
+
+VA - Русское радио. Летний Best (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611879.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Елена Темникова - Тепло
+002. Настя Задорожная - Условный Рефлекс
+003. Malika - Я Стала Зависима
+004. Алсу - Тепло От Любви(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE1BB377164211AAAB9302076AD355F1E1E223A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296391   (611754) от 17.04.2019
+
+VA - Dance Rotations In Motion (2019) [MP3|320 Kbps] <Club, Hands Up, Dancehall>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611754.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. StoneBridge ft DiscoVer - Not Alone
+002. Starcat - Adventures
+003. Human Pattern - Kalimbira
+004. X-ite project feat. Lynn, Raw D. - It Can Go By (Feat. Lynn, Raw D.) (Extended Mix)(   Читать дальше...   )Жанр: Club, Hands Up, DancehallПродолжительность: 08:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDDA61EF305FDD37D649E19D799D14341BFF6650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296411   (611745) от 17.04.2019
+
+VA - Billboard Hot 100 Singles Chart 20.04.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lil Nas X - Old Town Road
+002. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
+003. Post Malone - Wow.
+004. Ariana Grande - 7 rings(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A46D566E576D87951443B272504AD4A58B21DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296463   (611740) от 17.04.2019
+
+VA - Kiss FM: Top 40 (14.04) (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zivert - Life (Lavrushkin & Mephisto Remix) 3:16
+02. MARUV - Siren Song 2:51
+03. Don Diablo feat. Emeli Sande & Gucci Mane - Survive (Ozeroff & SKY Remix) 3:17
+04. Filatov & Karas - Au Au 4:13(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 02:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BB12E0C36F3FC67A43FABD49C1ADA10C193549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523872   (611692) от 19.07.2012
+
+VA - UK Top 40 Singles Chart (15.07.2012) [MP3|320 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Florence + The Machine - Spectrum (Say My Name) (Calvin Harris Remix)
+02 Maroon 5 Feat Wiz Khalifa - Payphone (Explicit Edit)
+03 Will.i.am Feat Eva Simons - This Is Love
+04 Chris Brown - Don't Wake Me Up
+05 Stooshe - Black Heart
+06 Flo Rida - Whistle
+07 Rudimental Feat John Newman - Feel The Love
+08 Coldplay Feat Rihanna - Princess Of China
+09 Katy Perry - Wide Awake
+10 Nicki Minaj - Pound The Alarm (Explicit Edit)Жанр: Pop, Dance, ClubПродолжительность: 02:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1EA93D63053B72839116E2AD6CB3BE8E7A47C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037679   (611379) от 25.07.2016
+
+VA - Discoteka 2016 Dance Club Vol.154 (2016) [MP3|320 Kbps] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611379.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rico Bernasconi & Lotus feat. Flo Rida -  Keep Playing (Filatov & Karas Edit) 3:18
+002. DJ Feel -  Bali (Radio Edit) 3:38
+003. Eric Saade feat Filatov & Karas, Gustaf Noren -  Wide Awake (Extended Mix) 4:11
+004. DJ Snake & Yellow Claw -  Ocho Cinco 3:42(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 10:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190ADE997D991FE4F81813E3E002C654B2C39992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037625   (611376) от 25.07.2016
 
 VA - Дискотека Русский Хит 90х (2016) [MP3|320 Kbps] <Pop>
@@ -574,186 +754,6 @@ VA - Зайцев.Нет лучшие новинки (Апрель) (2019) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50ECC2D48FB55F87E84F99474228F093B9C9AB46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038046   (609908) от 26.07.2016
-
-VA - Chilled Sexy R&B 2016 - The Ultimate Sexy Rnb Chillout Slow Jams (R and B) (2016) [MP3|320 Kbps] <R&B>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - Hotline Bling
-02. The Weeknd - Can't Feel My Face
-03. Craig David - 7 Days
-04. Christina Milian - Dip It Low(   Читать дальше...   )Жанр: R&BПродолжительность: 03:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5003ABDEA37C71E6FC3E99ED6A1D9DBEEA5697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524615   (609891) от 20.07.2012
-
-VA - 538 Hitzone Best Of 2009 (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609891.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 Продолжительность 01:16:46
-
-01 - Lisa - Hallelujah
-02 - Madcon - Neggin'
-03 - Anouk - Three Days In A Row
-04 - Krezip - Sweet Goodbye
-05 - Robbie Williams - Bodies
-06 - Adele - Make You Feel My Love
-07 - Lady Gaga - Pokler Face
-08 - James Morrison Ft. Nelly Fortado - Broken Strings(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D597EF1FA4D54EA3DD981AE4F472CE5FEC7571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545579   (609509) от 22.04.2022
-
-VA - Music News vol.182 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 5Утра - Ты По Нему Не Плачь (03:35)
- 002. 3 Sud Est - De-ar Vorbi Inima (LLP Remix) (03:44)
- 003. 3 Sud Est feat. Andra - Jumatatea Mea Mai Buna (Deep Desert Remix) (03:43)
- 004. Яд Добра - Я Один (02:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E7ED28A22D947661E99FEE65467B9BAFA17BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147384   (609188) от 02.07.2017
-
-VA - Серебро Да Золото: Авторская Песня (2017) [MP3|256 Kbps] <Шансон, Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609188.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Наталья Сибирская - Я Еду На Калине
-002. Николай Искуснов - Бутылка Вина
-003. Инна Улановская - Твоя Маркиза
-004. Александр Чусовитин - Она Как Огонь(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 12:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80873CF0A5A0C7A69B54FFCF3C529BA27C7616F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147416   (609180) от 02.07.2017
-
-VA - Aesthetical Progressive House (2017) [MP3|320 Kbps] <Progressive House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609180.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nick.Sal - Dark Road
-002. Tony Moran - When the Beat Stops
-003. Da Funk - Stay with Me (Blugazer Remix)
-004. Toy Armada - Stand by Me (Original - Pride Edit)(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 11:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4ABADE503A40AEF1307D04B55C10B9A1234AC06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147229   (609176) от 02.07.2017
-
-VA - German Top 100 Single Charts 30.06.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609176.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi – Despacito (feat. Daddy Yankee)
-002. Robin Schulz – OK (feat. James Blunt)
-003. Imagine Dragons – Thunder
-004. DJ Khaled – Wild Thoughts (feat. Rihanna Bryson Tiller)(   Читать дальше...   )Жанр: PopПродолжительность: 05:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0333BE904B673B31F30FCE8C8C53B78CC8D3B4B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

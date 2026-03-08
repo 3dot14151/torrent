@@ -1,3 +1,61 @@
+###  Публикация: 1028123   (692965) от 21.06.2016
+
+VA - Defected Presents: The Opening Party Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 1) (01:02:42)
+02. VA - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 2) (01:05:46)
+03. Lee Walker - Freak Like Me (DJ Deeon vs. Lee Walker Remix) (05:47)
+04. Flume - Never Be Like You (Disclosure Remix) (03:46)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 05:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540BF753214A1C83070C06D66B32C1131784CDD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133815   (692954) от 13.05.2017
+
+Andromeda Dreams - 2 Albums (2015, 2016) [MP3|320 Kbps] <Electronic, Disco, 80's, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Andromeda Dreams -  один из проектов Киевского музыканта Олега Марченко в стиле synthwave 80х.01. Intro (2:14)
+02. Space Highway (3:35)
+03. Lost Nebula (4:21)
+04. Two Million Light Years (3:27)(   Читать дальше...   )Жанр: Electronic, Disco, 80's, Synthwave, RetrowaveПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA307AA8FE9937D2B03FB6AC62627C26153D649F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133856   (692952) от 13.05.2017
 
 VA - Bossa N' Adele (2017) [MP3|320 Kbps] <Lounge, Jazzy, Pop>
@@ -687,64 +745,6 @@ VA - Deluxe Top 10 April Music 2018 [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D0434108479200E573CFF7AC4945961EDA9F0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221758   (691465) от 26.04.2018
-
-VA - Workout Vol. 4 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gap - Untitled 1:56
-02. Ivanshee - Above The Sky 6:33
-03. Dj Zeya - Heartbeat 2:36
-04. Nikita Kharin - The Underground 9:11(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EEF428FE42E36F8704DBEC0579869CCA32D6FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134139   (691302) от 14.05.2017
-
-Zynic - 3 Albums (2011 - 2017) [FLAC|Lossless|image + .cue|tracks + .cue] <Synthpop, Electro-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon Oblivion (4:22)
-02. Fear My Love (3:32)
-03. Would (3:56)
-04. Powered By Death (4:11)(   Читать дальше...   )Жанр: Synthpop, Electro-pop |Продолжительность: 02:39:57 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA1F29EAA5374D64BC3B4B60C92744DD9952350
 ```
 
 https://mybot314.ru/tekegram_catalog/

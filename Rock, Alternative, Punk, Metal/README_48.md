@@ -1,29 +1,3 @@
-###  Публикация: 1614298   (1038827) от 21.02.2023
-
-Юрий Шевчук & Дмитрий Емельянов - Родина, вернись домой (2023) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038827.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Родина, вернись домойЖанр: RockПродолжительность: 00:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81AA65DBA100F4ECAF399D27B7238F8E04A929D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440443   (1038812) от 17.01.2021
 
 Lynch Mob - Wicked Sensation Reimagined (1990) 30th Anniversary Edition, Remaster, 2020, Rat Pak Records [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -742,6 +716,35 @@ Ron Coolen - Rise (2021) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:144B5912D7B5529EB95084B471FF5273FFE6A263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440620   (1038497) от 18.01.2021
+
+Fortid - World Serpent (2020) [FLAC|Lossless|image + .cue] <Viking Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part I : Disorder:
+01. AI 2020
+02. The True Awakening
+03. Controlled Patterned Mental Process(   Читать дальше...   )Жанр: Viking Metal, Black MetalПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38572D5281926BBD37E1397DF68C4A122FCAF231
 ```
 
 https://mybot314.ru/tekegram_catalog/

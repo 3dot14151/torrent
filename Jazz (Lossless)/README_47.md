@@ -1,3 +1,32 @@
+###  Публикация: 1106012   (875174) от 18.02.2017
+
+Frank Rosolino - The Last Recording (1978) 2006, See Breeze Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Misty (Radio Edit) [09:35]
+ 02.I Thought About You (Radio Edit) [07:56]
+ 03.Waltz For Diane (Take Two) [05:45]
+ 04.Misty [16:08](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12339937EA15C9D6CDD5F518A73A366A87E8503A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105831   (875173) от 18.02.2017
 
 Bill Cosby - Hello, Friend: To Ennis with Love (1997) Verve [WavPack|Lossless|image + .cue] <Post-Bop>
@@ -722,35 +751,6 @@ Roland Kirk - Roland Kirk's Finest Hour (2001) Verve Records [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9868D92F0731B638EC8CC8B5EA326AF717153E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496644   (871655) от 18.09.2021
-
-Duke Ellington - Duke Ellington's Finest Hour (2002) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East St. Louis Toodle-o [2:55]
-02. Black and Tan Fantasy [3:20]
-03. Jubilee Stomp [2:47]
-04. Black Beauty [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BFEB6C646E0DC388095234D8B88900735102A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

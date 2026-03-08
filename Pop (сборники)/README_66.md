@@ -1,3 +1,32 @@
+###  Публикация: 920710   (578676) от 23.07.2015
+
+VA - Top 300 Russian Hits (2015) [MP3|320 кб/с]<Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578676.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лицей - Где-то
+002. Юрий Третьяк - Париж
+003. Доминик Джокер - Лишь небо знает
+004. Bahh Tee - Перекрёстки(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 18:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC047CBCADABDC14B002383AE4FB1E80930C1F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360711   (578495) от 09.07.2011
 
 VA - Лучшие хиты 80х Русский (2011) [MP3|256 kbps]<Pop>
@@ -704,35 +733,6 @@ VA - Золотые Хиты Дискотек 80-х В Обработке  (2011
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAF150FF3DDA6D1D737EF6ED53FC158D2D006D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043102   (574574) от 15.08.2016
-
-VA - Super Summer Hits 2016 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unique Groove Feat. Ivy Channel - At Night (Radio Edit)
-02. Nils van Zandt Feat. Sharon Doorson - Feel Like Dancing (Radio Edit)
-03. Italobrothers - Kings And Queens (Video Edit)
-04. R.I.O. Feat. U-Jean - Cheers To The Club (Video Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1247CE0A93879081B8B61C41C757D24682E2E6F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1006363   (829079) от 11.04.2016
+
+Hardwell feat. Jake Reese - Mad World: The Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Hard Dance, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad World (Quintino Remix) [4:10]
+02. Mad World (Moksi Remix) [4:09]
+03. Mad World (Sephyx Remix) [5:04]
+04. Mad World (Olly James and Ryan & Vin Remix) [4:46](   Читать дальше...   )Жанр: Electro House, Hard Dance, Trance, Pop / RockПродолжительность: 00:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DA791B86A110E96CFE59ADE5F7453D803FD187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006270   (829077) от 11.04.2016
+
+VA - Mistresses Lounge Vol 1 (2016) [MP3|320 кб/с] <Lounge, Chillout, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coffee Machine - I've Got You (04:01)
+02. Marga Sol - Leave Me Alone (04:13)
+03. Marie Therese - Sweet Fruits (04:09)
+04. Roberto Sol - Won't Give up (Cafe Del Mar Mix) (04:14)(   Читать дальше...   )Производство: M-Sol RecordsЖанр: Lounge, Chillout, Easy ListeningПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B18E2B7C76A9F45AEF0AAFE28A133B4CEAD038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006250   (829071) от 11.04.2016
 
 VA - Nu Chill (Cool & Lounge Rhythms) (2016) [MP3|320 кб/с] <Lounge, Chillout>
@@ -685,64 +743,6 @@ VA - Future House Elements Vol.1 (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF055F6A0D6C4D54109FA141C7D8FF2596975F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006843   (825578) от 13.04.2016
-
-VA - Trance Spring Essentials (2016) [MP3|320 кб/с] <Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage & Morelli & Arielle Maren - Sweet Surrender (Original Mix) 08:06
-02. Toby Hedges - Images (Johan Vilborg Remix) 07:34
-03. Tom Fall - Dive (Tom Fall Remode) 07:36
-04. Schodt - Wild at Heart Feat. Aida Fenhel (Schodt M1dn1t3 Mix) 05:40(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153654D602C4FDA95D043FB3995B11A9C438C3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006853   (825488) от 13.04.2016
-
-VA - Driving EDM (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Driving EDM 2016 DJ Mix (Short Mix) 28:45
-02. DJ Mix - Driving EDM 2016 DJ Mix (Long Mix) 82:21
-03. Tom Valley - And One (Radio Version) 03:19
-04. Age of Dance - What's Up (Radio Version) 03:23(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9620AB7B33A839F407B579F3323FD9E7F736B06
 ```
 
 https://mybot314.ru/tekegram_catalog/

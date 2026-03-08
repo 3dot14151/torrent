@@ -1,3 +1,32 @@
+###  Публикация: 1185122   (294804) от 20.11.2017
+
+VA - Now That's What I Call Music! 98 (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Hip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё не остыли эти диски от штамповки (17 ноября был выдан тираж), а вы уже можете насладиться этим релизом, состоящим из топовых треков из Великобритании и Ирландии. И если вам жалко отдавать за эти два диска £13.99, то возьмите их здесь - в любимом клубе NNM-Club.CD1:
+01. Camila Cabello feat. Young Thug - Havana  (2:58)
+02. Post Malone feat. 21 Savage - Rockstar  (3:39)
+03. Sam Smith - Too Good at Goodbyes  (3:23)(   Читать дальше...   )Релиз состоялся: 17 ноября 2017 годаЖанр: Pop, Electronic, Hip HopПродолжительность: 02:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEBF575808362D362C9917433EB052FD0E3B05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962498   (294738) от 04.12.2015
 
 VA - Absolute Music 79 (2015) 2CD [FLAC|track+.cue]<Top 40, Pop Compilation, Pop, Rock, Pop-Rock, Dancepop, House, R&B, Soul>
@@ -713,35 +742,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C0A8B6E994E506714B877D2E5B825040EEEFCE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335844   (284391) от 04.11.2019
-
-Celine Dion - Courage (Deluxe Edition) (2019) Scene [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying On My Own
-02. Lovers Never Die
-03. Falling In Love Again
-04. Lying Down(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B326C72A89ED730A8754DD2D7E746C6D228E306
 ```
 
 https://mybot314.ru/tekegram_catalog/

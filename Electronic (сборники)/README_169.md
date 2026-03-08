@@ -1,3 +1,32 @@
+###  Публикация: 1181684   (321711) от 08.11.2017
+
+VA - Romantic Chill (2017) [MP3|320 Kbps] <Chillout , Lounge , Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kygo feat. Sasha Sloan - This Town (Original Mix)
+02. KastomariN - Love and You (Original Mix)
+03. Bishop Briggs - Mercy (Original mix)
+04. Moonnight - Love Is the Key (Dj Artak Remix) (Original Mix)(   Читать дальше...   )Жанр: Chillout , Lounge , AmbientПродолжительность: 05:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBFF7656109A940D62DE941021AAECAA7DB79A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075301   (321163) от 22.11.2016
 
 VA - Record Super Chart  #463 (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -721,35 +750,6 @@ VA - Charming Bourgeois Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21F7DC8F0873C18925893B04E3D468D404CF0B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959353   (317194) от 24.11.2015
-
-VA - Charming Bourgeois Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beach Solaire - Autentico - Original Mix
-02. Dee Lice - Derize - Chill Groovers Mix
-03. Maurice Sanders - Oise - Original Mix
-04. Room 100 - Reminiscing - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688A1734558FEDF3E2D91184B52854E0BB2BAF7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

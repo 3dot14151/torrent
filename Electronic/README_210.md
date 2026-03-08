@@ -1,3 +1,61 @@
+###  Публикация: 1139035   (661290) от 01.06.2017
+
+VA - Endless Music (Mixed & Compiled by Paul Lomax) Vol. 1,2 (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Oceanvs Orientalis - Revenge of the Wankers [09:05]
+02 Matt Correa - Euphony (feat. Alexey) [06:46]
+03 Mika Olson - What I Need (feat. Jermaine Fleur) [07:35]
+04 PopArt - Florescent Love (Miguel Campbell Remix) [05:43](   Читать дальше...   )Жанр: Deep House, Chill House |Продолжительность: 02:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7EA59B8BFD52B8F55D6E1F3C3651364DF88EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538853   (661284) от 22.03.2022
+
+VA - Spring Chill Mirage: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska – Message In The Bottle (04:11)
+02. Michael E – Lost In Thought (original mix) (05:18)
+03. Matej Blanusa – Beginning (Medani Pieck) (03:58)
+04. Beamy – Sea Breeze (04:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF225E7FCA3286BBB24FBB805596720D13F1D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902144   (661256) от 28.05.2015
 
 VA - Beauty & Spa Chill Out: Relaxation Wellness Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -693,64 +751,6 @@ VA - A Shower of Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3E476AA8BF7959D035345BF1BD25E2C29125CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903126   (659313) от 30.05.2015
-
-VA - Taste Of Chillhouse (2015) [MP3|320 кб/с]<Chillout, Chillhouse>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maremare - Unexpected Weather [06:58]
-02. Aba Abas - Something Happened With The Beat [06:25]
-03. Felicia Bye - Never Too Late [06:36]
-04. FL Acid - Not What I Was Expecting [06:32](   Читать дальше...   )Жанр: Chillout, ChillhouseПродолжительность: 01:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EDC9D558E7CF2F8572BC1FF4DD032C9A7C6EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903140   (659309) от 30.05.2015
-
-VA - Cala de Boix Ibiza Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge oo Lounge - Sunset [08:13]
-02. Marie Parline - Da Di Da Da [03:55]
-03. Lorenzo Casanova - Vila Mimosa - Make Love Not War Boogie [04:47]
-04. Yan Gillis - Gullivers [04:33](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35ADC97426997CBFBC77E3681A7F34CDBB3E5F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

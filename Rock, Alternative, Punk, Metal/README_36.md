@@ -1,32 +1,3 @@
-###  Публикация: 1610373   (1042437) от 07.02.2023
-
-Eyes - Congratulations (2023) [MP3|320 Kbps] <Punk, Metalcore, Hardcore, Noise rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Generation L [00:02:51]
-02 - IT’S HAPPENING [00:02:32]
-03 - Congratulations! [00:02:31]
-04 - dull BOY [00:02:51](   Читать дальше...   )Жанр: Punk, Metalcore, Hardcore, Noise rockПродолжительность: 00:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ACA4282E391CCAF60EC6FCB8FAA0CFF45982676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473575   (1042379) от 03.01.2021
 
 Валентин Стрыкало - Смирись и расслабься! (2012) [MP3|320 кб/с]<Rock>
@@ -752,6 +723,35 @@ The John Irvine Band - Scanning The Dark Horizon (2023) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04EC325237BB1DF6E8DFA0B71AAE2C4C5EC5AD32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610600   (1042162) от 08.02.2023
+
+Blind Guardian - Live Beyond The Spheres (2017) 3xCD [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042162.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Ninth Wave 10:21
+02. Banish From Sanctuary 06:10
+03. Nightfall 06:31(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 02:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D82EC7B0DBA7D14B878F3A1D6E4645498C411E
 ```
 
 https://mybot314.ru/tekegram_catalog/

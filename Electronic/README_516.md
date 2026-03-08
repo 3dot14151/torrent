@@ -1,3 +1,61 @@
+###  Публикация: 1810069   (64539) от 02.08.2025
+
+VA - Trance Fusion, Vol. 12 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Semper T. - Parallel Universe (Original Mix) [6:42]
+02. Stefano Negrini & Alaera - Your Loving Angel (Original Mix) [4:18]
+03. Young Hu - Cry Cry Cry (Fros7novA Remix) [4:45]
+04. Masaru Hinaiji & Orie Yoko - Silent Fountain (Original Mix) [4:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15;26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22C63BDC49B8EEC0FE2F2FF4783A0BA01FD768D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821636   (63853) от 03.10.2025
+
+VA - Armin van Buuren - A State Of Trance 1245 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane – Wherever I Go
+02. DIM3NSION & Kadett – Turning (Progressive Pick)
+03. Kevin de Vries & Add-us – Nami
+04. Hausman – This Is Not A Drill(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9590CB2AE637AD736F0298B319DDFBE8E33A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699017   (62756) от 16.03.2024
 
 Combichrist - 3 EP (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Techno, Electro>
@@ -676,64 +734,6 @@ Acylum - Zuchthaus (2024) Bonus Version [FLAC|Lossless|WEB-DL|tracks] <Dark Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ABB43139C3427DDBC6E4A1A884C466A59FFA12A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717840   (58750) от 23.04.2024
-
-Depeche Mode - Some Great Reward (1984) 1st German Press [APE|Lossless|image + .cue] <SynthPop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something To Do (3:48)
-02. Lie To Me (5:04)
-03. People Are People (3:52)
-04. It Doesn't Matter (4:45)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52153A29EEA42ABA7643274EFC3E0A15815FB374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718266   (58660) от 24.04.2024
-
-VA - Sensual Chillout Beats (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hohe Minne - Quiet Soul (4:29)
-02. Logophilia - Puddle Reflections (4:20)
-03. Azeotrop - Glamorous Thoughts (4:27)
-04. Zirkadian Sender - Aeonium (4:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B6C0F590C1871AD48D470CDA14FECA11842C4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

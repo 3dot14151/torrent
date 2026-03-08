@@ -1,3 +1,177 @@
+###  Публикация: 1229463   (626460) от 06.06.2018
+
+VA - Caramel Masquerade (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626460.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Walk The Moon - One Foot
+002. Dua Lipa - IDGAF
+003. MAX - Lights Down Low
+004. Matami - Get Lost(   Читать дальше...   )Жанр: PopПродолжительность: 08:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD469876AAB6400272065ACA42785D0C51B964BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909703   (626277) от 18.06.2015
+
+VA - Dance Premium (2015) [MP3|320 кб/с]<Progressive, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Kick Some Ass (Original Mix)
+02. Martin Weleno - You (Dj Selecta Remix)
+03. Flavio Siciliano - Stronger (Extended Mix)
+04. Noelia - Spell (Ralphi Rosario Club Mix)(   Читать дальше...   )Жанр: Progressive, Club, HouseПродолжительность: 03:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72FB26AE3EC5BEF1ED12BCF4FECD6AF97D8C3B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909763   (626274) от 18.06.2015
+
+VA - Extra Trance (episode 3) (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Envy and Allen feat Katty Heath - I Wasn't The One (Iversoon & Alex Daf Remix) (06:24)
+02. Steven Vim - Skyline (Original Mix) (07:22)
+03. Zack Mia - Red Planet (Radio Edit) (03:58)
+04. Bluskay - You & I (Secret Lovers) (Original Mix) (06:50)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F18A9FF44183AA10D265AC6FE600829B34F9D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294623   (626116) от 09.04.2019
+
+VA - German Top 50 Party Schlager Charts 08.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Mosaik
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E457BB8EF5F53C54ED8735D3F8454B0B86675A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229498   (626032) от 06.06.2018
+
+Вилли Токарев - Незабываемые песни (1981-1985) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нью-Йоркский таксист (1981)
+02. В шумном балагане (1981)
+03. Люська-хулиганка (1981)
+04. Держи вора (1981)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA8CBB4EA8CB14FEE273298E9D3B169D4AD3D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909568   (626020) от 18.06.2015
+
+VA - Лебедь белая Академия хитов шансона (2015) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Роман Алешин - Встреча
+002. Адмирал - От Любви До Печали
+003. Сергей Альбин - Лебедь белая
+004. Александр Раю - Штангист Неудачник(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CCFB38E30CBD6771D75DF04F7A283D9C7FB1ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294888   (625970) от 09.04.2019
 
 VA - не Громкие новинки недели 10 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -574,192 +748,6 @@ VA - Громкие новинки Апреля (2022) [MP3|320 Kbps] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6979B07F14883C11EC98751E43C5B8C296471DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543796   (625410) от 13.04.2022
-
-Buck 69 - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead End Road
-02. All Night Long
-03. Sometimes
-04. When She Whispers Your Name(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF452CE18A5C86E01401D11AF27260AF6A8676B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909814   (625395) от 18.06.2015
-
-VA - Новинки Русского Рока. Выпуск 1 (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. НАИВ - На пределе
-02. Сансара - Юноша молчит
-03. НОГУ СВЕЛО! - In100gramm
-04. ВЛОМ! - Соцсети(   Читать дальше...   )Жанр: RockПродолжительность: 02:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4043FE91F788E4ECF0E82DD7173E17C3BD16B328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909874   (625288) от 18.06.2015
-
-Жанна Фриске - Лучшие Песни (2015) [MP3|320 кб/с]<Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанна Фриске российская эстрадная певица, телеведущая, киноактриса. Солистка группы «Блестящие» (1996—2003). Сольная карьера исполнительницы продолжалась 10 лет — с 2003 по 2013 год. Полтора последних года Жанна боролась с непобедимой болезнью. Однако она не сдалась и не сломалась. Она продолжала бороться, вселяя надежду в сердца тех, кто был так же на грани жизни (   Читать дальше...   )01. Где-то лето
-02. Малинки
-03. Жанна Фриске
-04. Мама Мария(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1B558755568EF7392F49340F124858F72BFE31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908299   (625285) от 18.06.2015
-
-Владимир Ждамиров - Голос Русского Шансона (2015) [MP3|320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экс лидер группы Бутырка Владимир Ждамиров. Сейчас очень много поклонников ждут именно пластинки от Ждамирова, так как он владеет очень хорошим вокалом и опытный в своем деле.CD1
-01. А зима не лето
-02. Академия
-03. Без баб и водки(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370BE932DCA1218AD6BF95BDE2B29A8AC0E23118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521376   (625232) от 12.07.2012
-
-VA - The Dance Cube XLIX 4CD (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625232.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1. Время звучания: 01:14:10
-01 - Kaimo Kerge - Iremember (Original Mix)
-02 - Oliver V. - She Love the Rainfall (Original Mix)
-03 - Stephen Kirkwood - Forever After Original Mix
-04 - Tangle & Mateusz - Avalon (Original Mix)
-05 - MaRLo - Underneath (Original Mix)
-06 - Miroslav Vrlik - Outside (Purple Stories Remix)
-07 - Tellur & Sound Quelle - Our Pad (Original Mix)
-08 - Cold Blue - The Pessimist (Original Mix)
-09 - Lange & Gareth Emery - This Is All Out..Heatbeat vs Andy Moor Remix..Lange Mashup(   Читать дальше...   )Жанр: TranceПродолжительность: 04:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496E7BE20FC4D733F75C0A1E4AD6431A8D863E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521324   (625143) от 12.07.2012
-
-VA - Bass Fusion 100 Percent Hardcore (2012) [MP3|320 кб/с]<Hardcore, Hardstyle>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Neophyte & Stunned Guys - Army of Hardcore 05:17
-02.Re-Style - Get it Crackin 05:56
-03.Angerfist - The Dephts of Despair 05:07
-04.Roland, Sherman - Jonge Edammer 04:08
-05.Critical Mass - Burning Love (the Viper Remix) 04:54
-06.Nosferatu & Evil Activities - Sick of it All 05:01
-07.Art of Fighters - Artwork (Tha Playah Remix) 06:39
-08.Angerfist & Outblast Feat Mc Tha Watcher - The Voice of Mayhem 06:09
-09.DJ Lancinhouse & the Stunned Guys - Atmosfera 05:44
-10.Tha Playah - On the Edge 08:16(   Читать дальше...   )Жанр: Hardcore, HardstyleПродолжительность: 03:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C68FFFE58C6C2144FFB8FF3FB5C3EB7ABD28BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

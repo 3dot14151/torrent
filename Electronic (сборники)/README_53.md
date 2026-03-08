@@ -1,3 +1,32 @@
+###  Публикация: 1385358   (797760) от 24.05.2020
+
+VA - Beatport Trance: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797760.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Future State - Heliosphere
+002. Sunmote - Melancholy
+003. Ex-S & Escobar - Spiritual Dimension
+004. Sunny Lax - Moonlight(   Читать дальше...   )Жанр: TranceПродолжительность: 13:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645ED1B912C43C97F2D458C5B8DAF24CB907ADB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011095   (797706) от 26.04.2016
 
 VA - Future Trance Energy 003 April TOP (2016) [MP3|320 кб/с] <Trance>
@@ -716,35 +745,6 @@ VA - Club Music Junior Union (2016) [MP3|320 кб/с] <House, Electro, Tech, Fun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4556B1F12D2E942077C36BE3CA50E7640C16CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011741   (796434) от 28.04.2016
-
-VA - Sexy Deep House Tracks (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hairy Orchard - Bad Teen (Houzee Mix)
-02. Delirious Bird - Seven up Confusion (Vocal Deep Mix)
-03. Audrey Langston - Another Day in the Lake (Frank Castle's Deep Mix)
-04. Harry Ashton - Bye Bye Mivar (Martin Franklin Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBDEE5B21C30FF42A11332E86001C87D7FA55B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1331759   (286909) от 02.11.2019
+
+VA - Самые лучшие треки интернета Осень 2019 [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ST feat. Михаил Шуфутинский - Счастье любит тишину 3:01
+02. Platon feat. Joolay - Over (Satim Remix) 3:43
+03. Lauren Daigle - You Say 4:36
+04. Gamper & Dadoni feat. Emily Roberts - Bittersweet Symphony 3:15(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 05:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C70C57141D4916CAEF2AEFEFF99463A9495B5EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263644   (286467) от 20.11.2018
+
+VA - German Top 50 Party Schlager Charts 19.11.2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michelle feat. Matthias Reim - Nicht Verdient
+02. Maite Kelly - Die Liebe Siegt Sowieso
+03. Andrea Berg - Ja Ich Will
+04. De Lancaster - Rosenzeit (feat. Kay Dörfel)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D2D57150C484E8E719A626E1619321E725C1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335481   (286340) от 03.11.2019
+
+VA - The Official UK Top 40 Singles Chart 01.11.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones And I - Dance Monkey 3:30
+02. Regard - Ride It 2:38
+03. Selena Gomez - Lose You To Love Me 3:27
+04. Post Malone;Frank Dukes;Louis Bell;Austin Post;Kaan Gunesberk - Circles 3:35(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60F5E158F50397C1BDB75E2DFE88D0B65942C6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186496   (286208) от 25.11.2017
+
+VA - По волне моей памяти 2: Том8 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Старый Примус  -  Ты и я 4:47
+02.  Электроклуб  -  Старое зеркало 5:15
+03.  Добры Молодцы  -  Первый дождь 3:16
+04.  Мираж  -  Я жду тебя 4:49(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CA5F9B6B212821C0CCB7B08D62F777232AFA34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263671   (286091) от 20.11.2018
 
 VA - Громкие новинки месяца Vol.17 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -622,122 +738,6 @@ VA - Dance Generation: EDM Megamix (2018) [MP3|320 Kbps] <Dance, Club, Electro D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C69BD62359061CE476FDA03896C1B0A4EC76664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186508   (282184) от 27.11.2017
-
-VA - По волне моей памяти 2: Том9 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Мираж  -  Я снова вижу тебя 3:49
-02.  Электроклуб  -  Схожу с ума 4:44
-03.  Машина времени  -  Мой друг 4:10
-04.  Весёлые Ребята  -  Бродячие артисты  3:39(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5074611C7FD7CEF6D291C978968BE3123C00D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187151   (282181) от 27.11.2017
-
-VA - По волне моей памяти 2: Том16 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Воскресенье  -  Радуюсь 3:31
-02.  Дубы-Колдуны  -  Не надо печалиться 2:47
-03.  Группа Стаса Намина 'Цветы'  -  Летний вечер 6:09
-04.  Кино  -  Звезда 4:30(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDD3B38FAECC5F86C69614F070EA52F9A3C30CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336177   (281787) от 05.11.2019
-
-VA - Громкие новинки Ноября (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281787.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.#2Маши - Всем нашим (3:24)
-2.Alan Walker - Avem (The Aviation Theme) (3:19)
-3.HUGEL, Alok, Amber van Day - I Don't Wanna Talk (2:24)
-4.Animal ДжаZ - Чувства (3:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D504D5D0993F5D6A2993E749B4EBE87B3228423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081608   (281678) от 10.12.2016
-
-VA - DJ Master Dance Mix (2016) [MP3|256-320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281678.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kungs & Cookin' On 3 Burners - This Girl (Fabich Remix) 4:20
-002. TIEKS - Sunshine (feat. Dan Harkna) (Zac Samuel Remix) 4:34
-003. Loona - Caliente (Rico Bernasconi & Tom Pulse 2015 Mix) 3:07
-004. Apexape - Joy & Pain 3:01(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 10:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B6175587B852E198200112F85CD71F0BC2E75B
 ```
 
 https://mybot314.ru/tekegram_catalog/

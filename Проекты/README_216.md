@@ -1,29 +1,3 @@
-###  Публикация: 932258   (509876) от 28.08.2015
-
-Проекты - VideoHive - Epic Action Logo - 11773126 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7602B6B292910A0B8F3140898BEE0F724C0695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932205   (509874) от 28.08.2015
 
 Проекты - VideoHive - 2 In 1 Social Network Logo Reveal [AEP]
@@ -669,6 +643,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF33C54D28B5EB887C5C6877D1D3001A1A102374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933013   (506944) от 31.08.2015
+
+Проекты - VideoHive - Sliding Opener [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC17873A86393F8E47546BB95F2E69723F5F1F8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

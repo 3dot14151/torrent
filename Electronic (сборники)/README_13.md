@@ -1,3 +1,32 @@
+###  Публикация: 1350764   (1003006) от 07.01.2020
+
+VA - Light Up With Us: Deluxe House (2020) [MP3|320 Kbps] <Club, Dance House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003006.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jose Vilches - Groove Music (Original Mix)
+002. Jp Lantieri - Intimacy (Original Mix)
+003. Jerome Isma-Ae - Opium (Quivver Remix)
+004. Eimear - Wake Up (Talamanca Remix)(   Читать дальше...   )Жанр: Club, Dance House, ElectroПродолжительность: 09:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782BD06ADEF9E515021FF3FBCE615F69E288C72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350885   (1002994) от 07.01.2020
 
 VA - Queena Techno (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
@@ -716,35 +745,6 @@ VA - Sacred Space: Mushroom Psy Trance Mix (2020) [MP3|320 Kbps] <Psy, Goa Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:318DB72BD8A94D4CF7E21593B17F01642A8B2F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352468   (1001084) от 14.01.2020
-
-VA - Pansperman: Renegade Techno Master Top 100 (2020) [MP3|320 Kbps] <Techno, Electronic, Minimal, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001084.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Interferon - Poison Barbs (Original Mix)
-002. Chevda - Acid Drivel (Original Mix)
-003. Dan Only - Emulsion
-004. Fixon - Natural Beauties(   Читать дальше...   )Жанр: Techno, Electronic, Minimal, EDMПродолжительность: 10:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CDE973ABBFE5F4130AAB69076FFDE3A6B26E7FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

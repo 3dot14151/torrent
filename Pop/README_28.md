@@ -1,3 +1,61 @@
+###  Публикация: 1350072   (1003734) от 04.01.2020
+
+Кай Метов - Position 2 (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Position 2 (4:13)
+ 02. Я тебе не верю (3:32)
+ 03. Мне хорошо с тобой (5:21)
+ 04. Мама! Я хочу быть пионером (2:35)(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47AF44010EC2872806DE2973D28A120DCE223F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349926   (1003722) от 04.01.2020
+
+Стас Михайлов - Лучшие песни (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Там (3:40)
+ 02. Без тебя (4:20)
+ 03. Ну, вот и всё (4:05)
+ 04. Всё для тебя (3:54)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 04:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C3FD6072070938C601605214CBED8ADC6CAA63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350056   (1003689) от 04.01.2020
 
 Modern Talking - Back For Gold: The New Versions (2017) [FLAC|Lossless|image + .cue] <Eurodance, Euro-Disco>
@@ -685,64 +743,6 @@ ICE MC - Cinema (2011) [FLAC|Lossless|image + .cue] <Hip-House, Pop Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E337E0F09AF6166C7FC5CA0B5C6997F8C6659C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351797   (1001638) от 12.01.2020
-
-a-ha - East Of The Sun West Of The Moon (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/18. Early Morning (Early Version) (2:43)
-02/18. East Of The Sun (Early Version) (5:35)
-03/18. I Call Your Name (Instrumental Demo) (2:13)
-04/18. Slender Frame (Demo) (3:54)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749AFA4E504C88642A9BBC65D182AB02AAA63ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145026   (1001518) от 12.01.2020
-
-Давид Тухманов - Золотая Коллекция / Семейный альбом (2008) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Эти глаза напротив
-2. Видно, так устроен свет
-3. Капитан
-4. Белый танец(   Читать дальше...   )Жанр: РетроПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40248162B3716422DB66BE3B1FFE44B08264696
 ```
 
 https://mybot314.ru/tekegram_catalog/

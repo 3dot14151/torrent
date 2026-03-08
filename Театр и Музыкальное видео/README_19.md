@@ -1,3 +1,32 @@
+###  Публикация: 174526   (944822) от 11.02.2010
+
+Mark Knopfler and Emmylou Harris - Real Live Roadrunning (2006) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Now Live
+02. Red Staggerwing
+03. Red Dirt Girl
+04. I Dug Up A Diamond(   Читать дальше...   )Жанр: Концерт,  Rock/CountryПродолжительность: 01:41:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 751512   (944670) от 31.01.2014
 
 Легенды Ретро FM (2013) 2 часть HDTV->DVD9
@@ -692,35 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45B930416B3C19CD8E22D5156D694B83E587E31F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625827   (940955) от 07.03.2013
-
-Сборник клипов - VA - Various Music part. 40 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940955.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2Elements - Tell Me Boy 1080p (3:24)
-2. Akcent feat. Anushka Manchanda - I'm Sorry 1080p (4:04)
-3. Alina Grosu - Let Go (Eurovision 2013) 1080p (3:10)
-4. Arty, Nadia Ali & BT - Must Be The Love 1080p (4:57)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D36F0EF9148FA4B3BD96D5FD9F402BC3FAC8D7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1067099   (408478) от 28.10.2016
+
+Harvie Swartz - In A Different Light (1990) [WavPack|Lossless|image + .cue] <Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408478.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alone Together (11:51)
+2. Gone With The Wind (4:53)
+3. Equilibrium (4:40)
+4. Softly As In A Morning Sunrise (8:32)(   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947A902FA94D8131376BCB9FABE8D7984ABDF2B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067217   (408476) от 28.10.2016
 
 Mike LeDonne & The Groover Quartet - That Feelin' (2016) Savant Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Soul Jazz>
@@ -740,41 +769,6 @@ VA - The Famous Sound of three blind mice (1987-1989) [FLAC|Lossless]<Jazz>
 08. Ayako Hokosawa with The New Herd - Let's Go Get Stoned [05:21]
 09. Y. Otomo-Hidefumi T. Alto Madness - Scrapple from the Apple [11:04]
 10. Tsuyoshi Yamamoto Trio - Almost Like Being in Love [06:22]Жанр: JazzПродолжительность: 01:12:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562137   (405551) от 19.10.2012
-
-VA - Bar Classics Vocal - Greatest Late Hour Blue Songs (2010) [FLAC|Lossless]<Jazz, Classical>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martiniu - 2. Bar (The Bar) [04:18]
-02. Poulenc - Sanglots [05:05]
-03. Faure - Apres un reve [02:45]
-04. Villa-Lobos, Ferreira - Cancao do poeta do seculo Nr. 18 [03:34]
-05. Debussy - C'est l'Extase langoureuse [03:19]
-06. Rachmaninoff - Nr. 14: Vocalise [04:43]
-07. Traditional - Ack, Varmeland du skona [02:43]
-08. Gheciu - Si daca [03:10]
-09. Dragoi - Crizanteme [03:15]
-10. Faure - Nocturne [02:19](   Читать дальше...   )Жанр: Jazz, ClassicalПродолжительность: 01:03:52
 
 ## Скачать торент
 ```bash

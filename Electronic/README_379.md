@@ -1,3 +1,61 @@
+###  Публикация: 1189332   (271051) от 05.12.2017
+
+VA - Deep Progressive 2017 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Stubbs - This Is Desire (Original Mix) 06:43
+02. Jssst - Moving Forward (Original Mix) 09:31
+03. Emran Badalov - Baku 2015 (Original Mix) 06:27
+04. Bravofox - Too Many Ninja (Original Mix) 07:08(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060EA706E6970009FAE64A4A71AF43FA3B012B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266280   (271048) от 01.12.2018
+
+VA - Trance Euphoria Vol.2 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myde - Nothing Without You (Radio Cut)
+02. Manida - Always Alone (Radio Cut)
+03. Philip Mayer - Centaur (Radio Cut)
+04. Philip Mayer feat. Justine Berg - Schiedam (Radio Cut)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 02:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE39C1056A3A65A6947FCD03D34E796B5C3B5381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266264   (270906) от 01.12.2018
 
 VA - Psytrance 2018 Vol.2 (2018) [MP3|320 Kbps] <PsyTrance, Goa-Trance>
@@ -686,64 +744,6 @@ Lustmord - Maschinenfest (October 2 2011) (2017) Vaultworks [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:218E69E323A1A2BCC16AAF7E400E3F5FC5B86420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189800   (269571) от 07.12.2017
-
-VA - Post Workout Stretching: Music Chillout After Your Workout (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caner Soyberk - Sunshine
-02. Gualtiero Cesarini - My Guitar
-03. Andrea Marcelli - Sunset in Rio
-04. The Zen Agent - Spirits(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B881829AC85BECFF7778077CF3AD454854012C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338423   (269566) от 15.11.2019
-
-Little Big - GO BANANAS (2019) EP [MP3|320 Kbps] <Rave, Electronic>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269566.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pop On The Top
-2. Rock-Paper-Scissors
-3. Go Bananas
-4. T.I.T.S(   Читать дальше...   )Жанр: Rave, ElectronicПродолжительность: 00:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEB48B7D04795B330D82830F173AA5BF3C20AC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

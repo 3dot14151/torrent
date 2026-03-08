@@ -1,3 +1,32 @@
+###  Публикация: 1279496   (766118) от 29.01.2019
+
+VA - German Top 100 Single Charts 04.02.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766118.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mero - Hobby Hobby
+002. Ava Max - Sweet but Psycho
+003. Shindy - DODI
+004. Ariana Grande - 7 rings(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A64A8887AFE9FD0175FD13FA1DF13A6F4EAE3AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126451   (765553) от 18.04.2017
 
 VA - Драйвовый молодежный весенний музон. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -713,35 +742,6 @@ Giusy Ferreri - Compilation (2018) [MP3|320 Kbps] <Pop, Pop-rock, Italo-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:191115488191F92CD9BB6808218A623B75F7A31F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522247   (760236) от 06.01.2022
-
-Bebe Rexha - Compilation (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pillow
-02. Mine
-03. I'm Gonna Show You Crazy
-04. Pray(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E882AD47ACBD3A63D8198C8A5355F454F650CF5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

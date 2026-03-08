@@ -1,3 +1,32 @@
+###  Публикация: 1497510   (864785) от 22.09.2021
+
+VA - Sirtaki Planet: The Best Of Sirtaki (1998) [FLAC|Lossless|image + .cue] <Folk, Country, Laiko>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M. Teodorakis - Zorba's Dance (2:55)
+02. Various Artists - Trici, Trici (2:29)
+03. Various Artists - Mia Parentesis Ke Mono (3:10)
+04. Various Artists - Pira Luludia (2:25)(   Читать дальше...   )Жанр: Folk, Country, LaikoПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F3F73335E62E28B94CBAE4D535A8F4DEBF4C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497507   (863066) от 23.09.2021
 
 Unknown Artist - A Night In A Greek Taverna (Unknown) [FLAC|Lossless|image + .cue] <Folk, Country, Laiko;>
@@ -718,35 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7FB2F94D9E77DAEA78EE7B529BD9ADD455123F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386296   (793469) от 30.05.2020
-
-The Louvin Brothers - Tragic Songs Of Life (1956) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kentucky
-02. I'll Be All Smiles Tonight
-03. Let Her Go, God Bless Her
-04. What Is Home Without Love(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA39C4557D2D9F7241C19E47CB494EF34C4435B
 ```
 
 https://mybot314.ru/tekegram_catalog/

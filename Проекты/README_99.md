@@ -1,29 +1,3 @@
-###  Публикация: 1200240   (796075) от 20.01.2018
-
-Проекты - VideoHive - Website Presentation - 21050362 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Website Presentation - это проект, который можно использовать для рекламы и продвижения вашего сайта, в него входят 13 изображений, в которых вы можете показать ваш сайт с разных сторонФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F106794D2928E0E572426BB157FE409DCF256C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011558   (796054) от 28.04.2016
 
 Проекты - VideoHive - Elegant Stripes Opener [AEP]
@@ -678,6 +652,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1E5EC5980C00B858D61784D4DF7C1C7D2BF9C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012254   (794454) от 30.04.2016
+
+Проекты - VideoHive - Big Titles Pack - 15078771 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Титры для Вашего творчества.
+Проект для использования в After Effect.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68256198CE901B919E093A604091049733578E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

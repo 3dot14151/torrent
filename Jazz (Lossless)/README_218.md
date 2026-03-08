@@ -1,3 +1,32 @@
+###  Публикация: 1260676   (310123) от 08.11.2018
+
+Tim Garland, Joe Locke, Geoffrey Keezer (Storms/Nocturnes Trio) - Rising Tide (2003) Sirocco [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Dark [4:49]
+02. A Brother's Gift [4:09]
+03. Dance Me Delirious [7:49]
+04. Honu [6:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3062FF870492630E1C39009CB90D0147A982328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960170   (310094) от 27.11.2015
 
 Stacey Kent - Tenderly (2015) [FLAC|Tracks|WEB-DL]<Vocal Jazz>
@@ -722,35 +751,6 @@ Ruby Braff - Born To Play (1999) Arbors Records [FLAC|Lossless|tracks + .cue] <M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EF9C9290CD61528455228088EC52D71BB5B2AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333048   (307657) от 23.10.2019
-
-Alan Broadbent & The London Metropolitan Orchestra - Developing Story (2017) Eden River Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Third Stream, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Developing Story: Movement 1 [9:49]
-02. Developing Story: Movement 2 [7:12]
-03. Developing Story: Movement 3 [9:19]
-04. If You Could See Me Now [6:36](   Читать дальше...   )Жанр: Post-Bop, Third Stream, Piano JazzПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130E72E9295A15F47977DEFF640103276628D76C
 ```
 
 https://mybot314.ru/tekegram_catalog/

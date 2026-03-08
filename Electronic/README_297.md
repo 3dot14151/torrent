@@ -1,3 +1,61 @@
+###  Публикация: 941739   (460045) от 28.09.2015
+
+Paul van Dyk - Reflections (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk feat. Second Sun - Crush (Original Mix) (7:46)
+02. Paul van Dyk feat. Vega4 - Time of Our Lives (Original Mix) (4:23)
+03. Paul van Dyk feat. Jan Johnston - Like a Friend (Original Mix) (3:53)
+04. Paul van Dyk - Reflections (Original Mix) (7:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B887FDFDFEF6EAEC0E4198034DF165924D746F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568427   (459933) от 09.08.2022
+
+Laserdance - Ambiente (1991) [OGG|480 Kbps] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459933.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Galactic Dream 5:05
+2. Moon Dusk 5:24
+3. Cosmic Revanche 5:32
+4. Voices From Another Planet 5:54(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627FD7DCA2B66339D42CDE7042D67A6732946D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568299   (459925) от 09.08.2022
 
 Laserdance - Changing Times (1990) [OGG|485 Kbps] <Synthpop, Electronic>
@@ -692,64 +750,6 @@ Tender H - Distance (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B4EB32AD143146F0F9349FF7E9F20E13A8C4A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321438   (459079) от 24.08.2019
-
-Vortex - As Gods Fall (2018) Cyclic Law [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Tribal, Industrial, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (05:53)
- 02. Awareness (03:18)
- 03. War Is Coming (07:43)
- 04. The Slain (05:54)(   Читать дальше...   )Жанр: Dark Ambient, Tribal, Industrial, ExperimentalПродолжительность: 01:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A671E4B9046012E1421046E42DEFAD84F2DBF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162380   (459059) от 01.09.2017
-
-VA - Goa Vol.64 (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ellinio & DJ Bim - Burning Spear  7:07
-02.  Bitkit - The Four Elements  6:58
-03.  Drukverdeler & DJ Bim - Into The Vortex (Serenity Flux Remix)  7:36
-04.  Mindbenderz - Sacred Rituals  9:09(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB1247245ADBAE47E71BCE72494B72289A1EDD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

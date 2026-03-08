@@ -1,3 +1,61 @@
+###  Публикация: 1274130   (795065) от 05.01.2019
+
+VA - Best Of Soulful (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie - Switch The Sound (Latouche Finale Remix) 4:10
+02. Jerem A - I Need You (Dj Hakuei Nu Disco Remix) 7:52
+03. Darren Studholme - I Like Your Eyes (Deep Disco Mix) 9:36
+04. Manjit Feat. Leah Uk - Give You A Chance (Original Mix) 6:55(   Читать дальше...   )Жанр: HouseПродолжительность: 03:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6C2D4837276B3FF315EE46926E1B96D504DE88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274128   (795064) от 05.01.2019
+
+Drexciya - Neptune's Lair (1999) Tresor [FLAC|Lossless|tracks+.cue] <Electro, Detroit Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: Temple Of Dos De Agua (1:00)
+02. Species Of The Pod (3:53)
+03. Andreaen Sand Dunes (6:15)
+04. Running Out Of Space (1:54)(   Читать дальше...   )Жанр: Electro, Detroit TechnoПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F047C61C339118569404440F9007C6BC5A0B9FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274079   (795061) от 05.01.2019
 
 VA - The House of House (2019) [MP3|320 Kbps] <House, Club House>
@@ -682,64 +740,6 @@ VA - Always Alive Recordings: Best Of 2018 (Mixed by Daniel Kandi) (2018) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F83646C05F567A251C4114BA83420FFE38FBD5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274316   (794163) от 06.01.2019
-
-Tender H - Sentido Oasis (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You & Me (05:52)
-02. Blue Pools (05:32)
-03. Play With Dolphin (06:08)
-04. Night Movement (06:18)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6481989FB325B9FDFBCAC0DDAC5019366EB45F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274309   (794161) от 06.01.2019
-
-VA - Freshly Picked Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Caillou – The Better Days (09:23)
-02. White Leaf – Limerence | Hosini Remix (06:32)
-03. Elias Dore – Ayasa (08:08)
-04. Darper – Kubu (08:32)(   Читать дальше...   )Жанр: Melodic Techno & HouseПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FACFA8D9C6A2FCE37B562DC5596EC7735E4AB14
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1374258   (872830) от 10.04.2020
+
+Deep Wave - Chillout Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872830.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Winding River	03:02
+2. Reverie	05:13
+3. After the Rain	03:16
+4. Reflection of a Dream	05:06(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E006C3B075827D84EB04E5EC01C6CED3AA44C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374315   (872561) от 10.04.2020
+
+DJ Dado - DJ Dado (2020) [MP3|320 Kbps] <Trance, Classic Trance, Downtempo, Dream Pop>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-Files (4:02)
+02. Mission Impossible Theme (4:17)
+03. Metropolis (2:10)
+04. The Legend Of Babel (4:03)(   Читать дальше...   )Жанр: Trance, Classic Trance, Downtempo, Dream PopПродолжительность: 01:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D81AECA02C2CFEE7926883E942D96029093FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240347   (872336) от 10.04.2020
 
 VA - Aleph Zero Records presents: Compilations Collection - 6 Releases (2004-2010) [MP3|320 Kbps] <Ambient, Chillout, IDM>
@@ -684,62 +742,6 @@ VA - Melbourne Bounce Sound Selection Vol.2 (2017) [MP3|320 Kbps] <House, Melbou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79DB3BC640E79BD8200DF5F16F6B244827327A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872750   (870117) от 27.02.2015
-
-Blue Foundation - 6 Albums, 9 Singles & EP (2000-2011) [MP3|128-320 кб/с]<Trip-hop, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Albums:
-2000 - Wiseguy & HollywoodЖанр: Trip-hop, DowntempoПродолжительность: 07:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08473DDA7CB391C8EE8EA5D58F61305360A44F3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496891   (869931) от 19.09.2021
-
-Charlotte de Witte - BBC Radio 1 Essential Mix (2021-09-18) [MP3|~245 Kbps (V0)] <Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shiffer - Memento
-02. Charlotte de Witte - Ensemble
-03. Vinicius Honorio - Erasure
-04. Inox Traxx - Jump(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F38614652A2C13E320A9D6E04FDF7FE3E6C610
 ```
 
 https://mybot314.ru/tekegram_catalog/

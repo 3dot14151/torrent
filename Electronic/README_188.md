@@ -1,3 +1,61 @@
+###  Публикация: 1286396   (713126) от 02.03.2019
+
+VA - Buddha Luxury Vol.3 (Esoteric World Music) (2019) [MP3|320 Kbps] <Downtempo, Ambient, Exotica>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J. R. Haim - Yasmin (Original Mix) 3:31
+02. Mandarin Plaza - Carpet Ride (Original Mix) 5:09
+03. FAT V - Silence Of Sadness (Original Mix) 5:45
+04. Clelia Felix - Eastern Sunrise (Original Mix) 4:25(   Читать дальше...   )Жанр: Downtempo, Ambient, Exotica, Lounge, Meditation, NewAge, RelaxПродолжительность: 01:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D623FEFDEF41A936B516B107D54237B1FB3DA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286389   (713108) от 02.03.2019
+
+VA - Trance Euphoria Vol.3 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artra & Holland - Don't Say Goodbye (DJ Anvil Radio Edit) 3:58
+02. Stimulator & Richard Blacklund - Here With Me (Radio Mix) 3:15
+03. Opt-In - Zura (Radio Cut) 4:00
+04. Kajis & Blaumar - Empty Minds (Radio Cut) 3:25(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29AEE8346869EC0653BADA9A9735B68AC3B99530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 880169   (713038) от 02.03.2019
 
 Jaćek (Jacek) - Discography 2 Releases (2015) [FLAC|Lossless|WEB-DL]<Tribal, Experimental, Ambient>
@@ -684,64 +742,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05006C71E4794CA638B3B69C0F45E7EB933CDB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401188   (711191) от 09.08.2020
-
-Dead Eyes Open - In Times Like These (1991) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No More Future Days [00:03:41]
-02. I Want to Live Tomorrow [00:03:50]
-03. Easy Come, Easy Go [00:05:42]
-04. Normal [00:04:37](   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61BF962FCAD1806DBB2FF155D859DF7A5B4C5D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401189   (711184) от 09.08.2020
-
-Elegant Machinery - Degraded Faces (1991) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Safety in Mind [00:03:59]
-02. Strange Behaviour [00:04:02]
-03. A Decade of Thoughts [00:04:09]
-04. State of the Nation [00:04:13](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03CA17C1008816F47DC76424101E540160C8A751
 ```
 
 https://mybot314.ru/tekegram_catalog/

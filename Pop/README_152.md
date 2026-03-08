@@ -1,3 +1,61 @@
+###  Публикация: 912888   (608918) от 27.06.2015
+
+Азамат Биштов - Сто причин (2011) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Водка-горькая вода [03:40]
+02. Обманула [03:15]
+03. Голубая ночь [03:26]
+04. Мое сердце [03:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91326441BED99AA8CDC4739356BCD0C443842D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912877   (608774) от 27.06.2015
+
+Synti Time (Синти Тайм) - Навстречу Мечте (2013) [MP3|320 кб/с]<EuroDisco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жду тебя
+02. Навстречу мечте
+03. Игра любовь
+04. Время для двоих(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 00:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A721949677578A62587A4F08E8A1C01199E56D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038320   (608750) от 27.07.2016
 
 Tricia - Radiate (2013) [MP3|320 Kbps] <Pop, Pop Rock>
@@ -689,64 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F23635394525C1A34449BD116E198B91D45EE172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147997   (605635) от 04.07.2017
-
-VA - Rec Top vol. 2 Моя Москва (1995) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маликов Дмитрий - Прощай, моя блондинка [04:11]
-02. Валерия - Моя Москва [03:29]
-03. Овсиенко Татьяна - Школьная пора [03:38]
-04. Анка - По Парижу [03:03](   Читать дальше...   )Жанр: PopПродолжительность: 01:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85237283D19418A01C2236130DDDB8DD36C1886E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148054   (605633) от 04.07.2017
-
-Cliff Wedge - Back To The 80's (2009) 2CD [FLAC|Lossless|image + .cue] <Italo-Disco, Italodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch Me (Radio Edit) (3:25)
-02. I Open Up My Eyes (Radio Edit) (3:44)
-03. Survive (Radio Edit) (3:25)
-04. No One Like U (Radio Edit) (3:46)(   Читать дальше...   )Жанр: Italo-Disco, ItalodanceПродолжительность: 01:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD43074F7F927CD27F9C8296F22E7D82124C779
 ```
 
 https://mybot314.ru/tekegram_catalog/

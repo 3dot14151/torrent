@@ -1,3 +1,32 @@
+###  Публикация: 1594096   (179367) от 29.11.2022
+
+VA - House Radio 2022 - The Ultimate Collection #5 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faul & Wad - Changes (Robin Schulz Remix - Radio Edit)
+02. Calmani & Grey - Winter Ocean (LIZOT Radio Edit)
+03. Viva La Panda - Get Lost
+04. Selda - Set It Off(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 00:58:08 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5E3700AA497C80FF481A4C36359AC22AFCA942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594098   (179311) от 29.11.2022
 
 VA - House Radio 2022 - The Ultimate Collection #7 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
@@ -716,35 +745,6 @@ VA - Ibiza 2016 Winter Clubbing (Deluxe Version) (2015) [MP3|320 кб/с] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9A3205D28CD549D52B27CC0717402FE4E9E8DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968036   (158268) от 22.12.2015
-
-VA - The Sound Of Whartone Winter 2015 (21.12.2015) [MP3|320 кб/с] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonny Wharton - I Feel It (Original Mix) [06:50]
-02. Dirty Secretz - Trippin' (Original Mix) (feat. Rebe) [08:06]
-03. Adam Sharpe - Afrocan (Original Mix) [06:07]
-04. James Kininmonth - Sleepless (Original Mix) (feat. Ruth Sharples) [08:03](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57B18C5AE954F1F332C825093AEA1EF652B2BE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

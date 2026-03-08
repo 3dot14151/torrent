@@ -1,3 +1,32 @@
+###  Публикация: 1447880   (1031329) от 15.02.2021
+
+Sia - Music (Songs From And Inspired By The Motion Picture) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Together
+02. Hey Boy
+03. Saved My Life
+04. Floating Through Space (feat. David Guetta)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38BCB79C193C1CCDEEC3054094B4D8D1E79386A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448036   (1031155) от 16.02.2021
 
 Boy George And Culture Club - Life (2018) [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DBDE3C5BC53B2D0C3CD48194341039DFA914CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455813   (1025484) от 20.03.2021
-
-Umberto Tozzi – Seine Grossten Erfolge (1990) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ti Amo
-02. Eva
-03. Notte Rosa
-04. Tu(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFDD15A3D9A7928B4EC0FFD63E493CA42D432D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1761770   (103036) от 22.11.2024
+
+VA - Nothing But... Trancetopia Vol. 21 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Rebirth - Darkness (Original Mix) [7:44]
+02. Pete.M - Hydrogen (Original Mix) [7:18]
+03. GutterGizmo - Laune (Extended Mix) [7:02]
+04. Kvaii - Iridescent (POINoir Intro Remix) [4:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E623F5D8FB2553C4044CCD96D7E4358F5E083DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761642   (103003) от 23.11.2024
+
+Sultan + Shepard - Circle In Time: The Trilogy (2024) [MP3|320 Kbps] <EDM, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murmur [00:04:15]
+02. I'll Be Here [00:04:52]
+03. Back Through You [00:05:19]
+04. Cloud Lifter [00:04:22](   Читать дальше...   )Жанр: EDM, Progressive HouseПродолжительность: 3 CD, 03:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8525970B3D3B20EB4E4CFAA46F1405143B48F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762115   (103002) от 23.11.2024
 
 VA - Top 20 Progressive House (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
@@ -687,64 +745,6 @@ VA - Deep Focus (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D792A0A051DE7A4B1B4D7D0500E23F5D5B9C2763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764519   (101560) от 07.12.2024
-
-Above & Beyond - Tranquility Base Vol. 2 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AReact [03:36]
-02. Another Breakdown [03:30]
-03. From Grey To Light [03:33]
-04. Chasing Highs [03:36](   Читать дальше...   )Жанр: TranceПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7488F41DD33E5E5F740F6BC2696BDC5CA3A73E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764516   (101550) от 07.12.2024
-
-AzizRush - War (2024) [MP3|320 Kbps] <Electronic>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-March of the Orcs (04:42)
-02-You or Who (04:42)
-03-Code Pulse (03:41)
-04-Escape (04:22)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D203BBEEE87686C3B97BB47486B24457A222CE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

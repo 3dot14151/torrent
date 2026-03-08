@@ -1,3 +1,176 @@
+###  Публикация: 1548265   (191893) от 02.11.2022
+
+GAYAZOVS BROTHERS - Синглы и ремиксы (2015 - 2022) [MP3|320 Kbps] <Pop, Deep-House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191893.jpg" />
+</div>
+
+
+###  Подробнее
+
+GAYAZOV$ BROTHER$ (Братья Гаязовы) — дуэт братьев Тимура и Ильяса Гаязовых, исполняющих музыкальные композиции в стиле рэп, хип-хоп и дип-хаус. Группа известна хитами «Кредо», «До встречи на танцполе», «Пьяный туман» и «Малиновая Лада». Завоевала популярность через интернет, без поддержки лейблов и СМИ.
+⠀2015-2022 - Синглы
+2019-2022 - РемиксыЖанр: Pop, Deep-HouseПродолжительность: 02:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C0747ED6E4D7AC3A7AE781520BC0564E5ADB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657834   (191822) от 06.09.2023
+
+VA - Compilation rock, blues rock,  part 33 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleu Jackson - Women, Whiskey, Guns and Knives
+02. Bleu Jackson - Some Never Learn
+03. Bleu Jackson - Breakdown
+04. Jay Owens - Wishing Well(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A59D8D8A2D0E29027021788B24ED2E75D40C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657646   (191790) от 06.09.2023
+
+VA - Compilation  Assorted rock, blues rock part  32 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddy Wilson's Blues Band - I'd Rather Go Blind
+02. Cort Duggins - Blue and Lonesome Ramblin' Man
+03. Bernie Marsden - Help Me Through the Day
+04. Corey Stevens - Killer Blues(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9C988A7B8D82ED4BCF7E2DCB4093705E24E4E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588300   (191558) от 04.11.2022
+
+VA - Oriental Deep 2 (2022) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthony Keyrouz - Akhedni Maak (2:35)
+02. Eljoee - Bent Sultan (3:57)
+03. Otnicka - Babel (3:22)
+04. Anthony Keyrouz - Mohicans - Radio Edit (3:40)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5939788D3E0DA6C95F28413E45E49B9BF3607C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588500   (191508) от 04.11.2022
+
+VA - Шансон Осень 2022 [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edik Salonikski - Бокал Вина (4:11)
+02. Pavlos Bouros - Когда Ты Рядом (4:17)
+03. Sevenrose - Туда, Где Ты (4:08)
+04. Shodi - Бродяга Странник (5:13)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C7C6CB6D60F3FBF0D765E52012AB668BCCCBF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658232   (191363) от 07.09.2023
+
+VA - Привет Уходящему Лету (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191363.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kalvados feat. Татем & Kasia - А Я Тебе Душу (2:28)
+002. 5УТРА - Давай Сбежим (2:31)
+003. Aquaneon - Нам Не Надо (2:25)
+004. Amirchik - Либо Люби (2:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06142F148BE3AFE11EB05942F933F182E9C54FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658128   (191248) от 08.09.2023
 
 Malaya Blue - Compilation (2023) [MP3|320 Kbps] <Soul, Soft Rock>
@@ -568,180 +741,6 @@ VA - Sound Of Rain & Crackling Woodfire (2022) [MP3|320 Kbps] <Relax, Meditate>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33E9A05D83A6D40DCCA082D043C02C3A3B2E227A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660625   (189156) от 13.09.2023
-
-VA - Capital FM (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189156.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Matt Sassari - Give It To Me - Full Vocal Mix (5:45)
-002. John Summit - La Danza (5:39)
-003. HUGEL - Aguila ft. Cumbiafrica (5:05)
-004. Doja Cat - Paint The Town Red (4:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E8BB491A9D8B62C54CAA7AE46B571C78A3D264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590182   (189100) от 13.11.2022
-
-VA - В машине с музыкой Vol.317 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dariahot - Нервы (03:24) 2022
-02. Tom Boxer - I Need Your Love (03:08) 2022
-03. Ваня Дмитриенко  - 31-я Весна (Dj. Safiter Radio Edit) (02:47) 2022
-04. Noris - Светофоры (02:26) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32457A86E226A81AFF4335CF6CDCE34804339BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589431   (189044) от 13.11.2022
-
-VA - Music News vol.227 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brianna - Don't Love Me (03:00)
- 002. 84 feat. Volodya XXL - Ballantines (02:20)
- 003. Achtabahn feat. Kati K - Traum (02:25)
- 004. #PavLova - Без Тебя Меня Чуть-Чуть (01:55)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE910FEABF1D67473826E0438DC5A444BE2D0628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590258   (189041) от 13.11.2022
-
-VA - В машине с музыкой Vol.318 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altair Feat. & Abbi - Как Ты Там (02:43) 2022
-02. Nola  - Милая (03:21) 2022
-03. Kolunov Feat. & Фактор 2 - Красавица (02:51) 2022
-04. Lehov  - Веду За Руку (02:52) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA29E80026A0FE642E7D56DC55D2B80931FEE7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590196   (188960) от 13.11.2022
-
-DnDm - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lips Like Roses
-02. In Love
-03. Sunset
-04. Problems(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 10:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4CB509BBC0E10BA69D4AFB70917EEB00436F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590509   (188804) от 14.11.2022
-
-VA - Let's Dance Baby Vol. 2 (2022) [MP3|320 Kbps] <Dance, Electro Pop, Progressive, Groove>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skuado - Live It Up
-02. Deviz B - Saved Gema (Original Mix)
-03. Fijin - The One (Radio Edit)
-04. Krokodile Kruegel - Fog in the Moonlight (Radio Edit)(   Читать дальше...   )Жанр: Dance, Electro Pop, Progressive, GrooveПродолжительность: 02:01:24 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FFFC67633FF4A86EE84C1539844084680E260B
 ```
 
 https://mybot314.ru/tekegram_catalog/

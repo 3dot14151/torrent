@@ -1,3 +1,32 @@
+###  Публикация: 1561707   (513602) от 06.07.2022
+
+Tape Five - Both Sides of the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Rascal You (feat Ashley Slater)
+02. Big Blue Swing
+03. Geraldines Stomp Routine
+04. Tommy Gun Shuffle(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7214E866BD32B189389EE18542D95CEC5B4F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242817   (513169) от 24.08.2018
 
 Maynard Ferguson - Maynard '61 + "Straightaway" Jazz Themes (1961) 2013, American Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Modern Big Band>
@@ -722,35 +751,6 @@ John Patton - That Certain Feeling (1968) /2014, Universal/[FLAC|tracks+.cue]<Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE1067C0172D405DCEFFEE04A69663FC1566DC29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932735   (508396) от 30.08.2015
-
-Clark Terry with Thelonious Monk - In Orbit (1958) /1987, Riverside/[FLAC|tracks+.cue]<Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Orbit [04:43]
-02. One Foot In The Gutter [07:22]
-03. Trust In Me [04:33]
-04. Let's Cool One [04:57](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8240A907AFEA8CBF4B325D02778E654AAF0221A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

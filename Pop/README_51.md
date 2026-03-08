@@ -1,3 +1,64 @@
+###  Публикация: 991523   (905854) от 28.02.2016
+
+Дмитрий Маликов - Зовут тебя красивым именем (2016) [MP3|256 кб/с] <pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зовут тебя красивым именем
+02. Больше не моя
+03. Ты моей никогда не будешь (Radio Edit)
+04. Ещё, ещё(   Читать дальше...   )Жанр: popПродолжительность: 01:24:35
+
+Дмитрий Маликов 25 февраля 2016 года выпустил сборник своих лучших лирических композиций. Альбом получил название «Зовут тебя красивым именем» - по новой песне, премьера которой состоялась на недавнем концерте в Санкт-Петербурге.
+- Многим она сразу запала в душу, - написал Дмитрий в блоге. - Стихи к ней написаны близким мне человеком.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E9D0751A44CCF27C2214E95A3976A75B27CE2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369168   (905699) от 22.03.2020
+
+VA - Die Neue Schlagerparade 2020 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905699.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Thomas Anders feat. Florian Silbereisen - Sie sagte doch sie liebt mich
+2. Olaf Henning - Bis ans Ende dieser Welt (Pesch Remix Radio Version)
+3. Ben Luca - Liebessymphonie(   Читать дальше...   )Жанр: PopПродолжительность: 02:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EFD32B4241E65D3A0B1C85C55C3C0F46B88CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369167   (905654) от 22.03.2020
 
 !Бум! - Kanikuly (2007) [MP3|320 Kbps] <Pop>
@@ -684,64 +745,6 @@ Alekseev - Держи (2016) EP [MP3|320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8449AF5F6BD5A9C39D8CDCC9A19733470A94F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992393   (900548) от 02.03.2016
-
-Павел Воля - Мысли и музыка (2016) [MP3|320 кб/с] <Pop, Rap, Hip-Hop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Диалог
-02. Если б
-03. Кошки
-04. Хорошо(   Читать дальше...   )Жанр: Pop, Rap, Hip-HopПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D351289C61CB698EFD177C50048E1069EE7184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100575   (899537) от 04.02.2017
-
-VA - Hardstyle Top 200 The Giga - Hardstyle Megamix Collection Vol. 10 (2017) 4CD [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Brennan Heart & Audiotricz Feat. Christon - Coming Home
-02 Toneshifterz & Outbreak - Let Go
-03 Frequencerz & Zany - Embrace (Original Mix)
-04 DJ Isaac - Burn(   Читать дальше...   )Жанр: PopПродолжительность: 05:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C23C4979E8E84217EBCD87345197365292B769E
 ```
 
 https://mybot314.ru/tekegram_catalog/

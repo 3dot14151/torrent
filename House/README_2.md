@@ -1,3 +1,32 @@
+###  Публикация: 1349511   (1004493) от 01.01.2020
+
+VA - 2020 Workout Starts Now [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sammy Kaiser - Toolkit 04:13
+02. Sally Jesse - Astroid 04:13
+03. Saber Wolf - Bokbok 04:13
+04. Ryan Bader - Return 04:13(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC606872FBE9824C5FD6FC7B1D88ADB05AB9EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350009   (1003810) от 04.01.2020
 
 VA - The Aperitif Party (House Grooves Only) (2020) [MP3|320 Kbps] <Deep House>
@@ -806,35 +835,6 @@ VA - Jet Set Love Vol.1 (2013) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B53BE72FE404CC1080AFF149D019D7703880A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973157   (980200) от 08.01.2016
-
-VA - Deep Insane Sensation Vol 1 (2016) [MP3|320 кб/с] <Deep House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Morais - We All Fall Down (07:03)
-02. Hyzan - Booty (08:45)
-03. Hyzan - So Icey (07:18)
-04. OTTOO - Growl (06:49)(   Читать дальше...   )Производство: Deep InsaneЖанр: Deep House, Club HouseПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DD738E14EBE7AEAAEC8F1CEF06AB757A82DD42
 ```
 
 https://mybot314.ru/tekegram_catalog/

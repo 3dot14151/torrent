@@ -1,3 +1,32 @@
+###  Публикация: 1026972   (698561) от 18.06.2016
+
+Joe Zawinul - The ESC Years (1992-1996) 2011, ESC Records[FLAC|Lossless|tracks + .cue] <World Fusion, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Borges Buenos Aires  (Part 1) [04:42]
+ 02.Cafe Andalusia  (A Day in Tunesia) [07:14]
+ 03.Introduction To A Mighty Theme [01:53]
+ 04.Waraya [06:06](   Читать дальше...   )Жанр: World Fusion, Jazz FusionПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419914C5B5074DA068517E211740AC2B32C97687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026969   (698367) от 18.06.2016
 
 Ella Fitzgerald - Sings The George and Ira Gershwin Song Book (1959) 4CD, 1998, Verve[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -715,33 +744,6 @@ John Bunch - An English Songbook (2003) Chiaroscuro Records [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2623C62ACF238D42F3C62281655A6CF6214042F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288696   (694311) от 12.03.2019
-
-Fire! Orchestra - Exit (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exit! Part One (19:29)
- 02. Exit! Part Two (24:54)Жанр: Free Jazz, Free ImprovisationПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558A63BDF9409848DE6F04D2F6FB77A411D9BE17
 ```
 
 https://mybot314.ru/tekegram_catalog/

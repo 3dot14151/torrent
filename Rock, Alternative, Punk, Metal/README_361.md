@@ -1,32 +1,3 @@
-###  Публикация: 1023837   (722374) от 06.06.2016
-
-A Taste Of Freedom - Carved In Our Dreams (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay Down And Fly
-02. The Hangman
-03. Call Me Legion
-04. I Am You(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B028176CD8EC0E12EA9072AA02247AEB20B4E2B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023842   (722353) от 06.06.2016
 
 Jorn - Heavy Rock Radio (2016) [MP3|320 кб/с] <Hard & Heavy>
@@ -765,6 +736,35 @@ Illdisposed - 1-800 Vindication (2004) [FLAC|Lossless|image + .cue] <Death Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:136AA198C73BF6BC1DC87001317A31E9A4F1C950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285066   (721190) от 26.02.2019
+
+Agatus - The Eternalist (2016) [FLAC|Lossless|image + .cue] <Black Metal, Heavy Meral>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Eternalist
+02 - The Invisible (The Fifth Portal To Atlantis)
+03 - The Oath (Of Magic And Fire)
+04 - Gods Of Fire(   Читать дальше...   )Жанр: Black Metal, Heavy MeralПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6BC4B06E9C40DBFAA47D3E7E0F3DB6DAE4B0EC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

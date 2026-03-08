@@ -1,3 +1,34 @@
+###  Публикация: 608313   (991306) от 28.01.2013
+
+VA - Club Dubstep №25 - Dubstep №25 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benga Feat. Katy B -Katy On A Mission (Trainrek Remix) (04:15)
+02. Boy Kid Cloud -How It Looks (Doctor P VIP) (03:52)
+03. Delta Heavy -Overkill (Zifra vs Fi-Chek Remix) (04:48)
+04. Devin Martin -The Armory (Original Mix) (03:51)
+05. Document One, Tigerlight -Already LostTIT4 (06:10)
+06. DotEXE -38 Degrees (04:18)Жанр: DubstepПродолжительность: 01:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D758D1FA644F44F610B896055D96A2DB19E007F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610298   (991304) от 28.01.2013
 
 VA - Клубные Новинки Vol.227 (2013) [MP3|320 кб/с]<Club, Dance>
@@ -773,35 +804,6 @@ VA - Subtle Vibrations: Relax Compilation (2020) [MP3|320 Kbps] <Chillout, Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6D3379F57B0EA0FC9580FEB4533852F8E67BED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971174   (988657) от 01.01.2016
-
-VA - DJ's Choice: Best Electronic Lounge (2015) [MP3|320 кб/с] <Club, Progressive House, Power Electronics>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Terence - Feel That Vibe 04:22
-02. J & V - Walk Away (Randy Norton Edit) 04:54
-03. Trancemaster File - Time To Say Goodbye 08:54
-04. Naxwell - Living On Video (Radio Mix) 04:00(   Читать дальше...   )Жанр: Club, Progressive House, Power ElectronicsПродолжительность: 02:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B16C99016BA7BEB66DF08587A21A670B9C1DC77
 ```
 
 https://mybot314.ru/tekegram_catalog/

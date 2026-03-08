@@ -1,3 +1,32 @@
+###  Публикация: 1856301   (1059095) от 28.02.2026
+
+Jari Lindholm - Trajectories (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Derelict (05:30)
+02 - The Underpass (03:48)
+03 - Nostalgia (05:23)
+04 - Mare Balticum (04:21)(   Читать дальше...   )Жанр: Melodic Death Metal, InstrumentalПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84ABE46A55623567AFBCBDED2C31D870D35D6011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856469   (1059081) от 28.02.2026
 
 Neverlove - SEXMETAL 2 (2026) [MP3|320 Kbps] <Hard-Rock, Glam-Metal>
@@ -716,35 +745,6 @@ Joel Hoekstra's 13 - From the Fade (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D45B5F0925F668FB426796511D8420441C1C7E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856190   (1058724) от 26.02.2026
-
-BlackRain - Orphans of the Light (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams(5:27)
-02. Come On(4:21)
-03. Orphans of the Light(5:20)
-04. Unleash the Fury(5:23)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86B5ADC6DA94CF4D4E1D113D73D1C8067C78218
 ```
 
 https://mybot314.ru/tekegram_catalog/

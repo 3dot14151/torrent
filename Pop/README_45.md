@@ -1,3 +1,61 @@
+###  Публикация: 984434   (935118) от 11.02.2016
+
+Земляне - Grand Collection (1992) Compilation [FLAC|Lossless|image + .cue] <Rock,Soviet Rock>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Трава у дома 	04:45
+02. 	Каскадёры 	03:31
+03. 	Я люблю природу 	04:32
+04. 	Маленький кораблик 	04:45(   Читать дальше...   )Жанр: Rock ,Soviet RockПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62ACB18F9539C2152C1CACD1A1553F7FD15E8BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984489   (935114) от 11.02.2016
+
+Юрий Антонов - Несёт Меня Течение (1993) [FLAC|Lossless|image + .cue] <Pop Rock,Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	От Печали До Радости 	04:16
+02. 	Несет Меня Течение 	04:25
+03. 	Все, Как Прежде 	03:21
+04. 	У Берез И Сосен 	03:54(   Читать дальше...   )Жанр: Pop Rock,RetroПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73608D312A5D0F6BFC0AED4A8A2A882C83F9406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861241   (934613) от 20.01.2015
 
 Meghan Trainor - Title (Deluxe Edition) (2015) [FLAC|Lossless]<Pop>
@@ -682,64 +740,6 @@ VA - The Best Of The 80's Volume II (1998) [FLAC|Lossless|tracks + .cue] <Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3782C86B0E5E7ABFB4398F90C1F3E34D0A65303E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094006   (930619) от 17.01.2017
-
-Linda Jo Rizzo - Fly Me High (The Album) (2015) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Fly Me High  (07:20) 
-02|  There's A Fire  (05:37) 
-03|  Only One Night  (07:34) 
-04|  Heartflash  (05:58) (   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1CF64748983CD8E367B585E5EAF38C78F11A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365415   (930571) от 07.03.2020
-
-Dreamcatcher (드림캐쳐) - Dystopia : The Tree of Language (2020) [FLAC|Lossless|tracks + .cue] <KPop, KRock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:20)
-02. Scream (03:24)
-03. Tension (03:11)
-04. Red Sun (03:05)(   Читать дальше...   )Жанр: KPop, KRockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2F9A5767AAE1C6E7630AB8178B771E22FD2FFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

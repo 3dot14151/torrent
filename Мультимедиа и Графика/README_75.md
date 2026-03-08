@@ -1,3 +1,29 @@
+###  Публикация: 1592550   (183527) от 22.11.2022
+
+Capture One 23 Enterprise 16.0.1.20 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, DNG (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA5C275D2CCBB1C7DA4BE9F30E1AF2AA11928DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427235   (182972) от 28.11.2020
 
 SNS-HDR Pro 2.7.2 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -651,33 +677,6 @@ CoolUtils Total Image Converter преобразует изображения в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE228A428143806BC5720119955112C69A2B216C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667674   (175673) от 09.10.2023
-
-ImageGlass 8.10.9.27 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175673.jpg" />
-</div>
-
-
-###  Подробнее
-
-ImageGlass - это легкий и универсальный просмотрщик изображений, который вполне может заменить стандартный Photo Viewer в операционной системе.
-Приложение поддерживает большой спектр форматов, включая JPG, JPE, JFIF, JPEG, PNG, GIF, ICO, BMP, DIB, TIF, TIFF, EXIF, WMF, EMF, TGA, PSD, HDR, EXR, SGV, WEBP. ImageGlass предоставляет все обычные возможности просмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B63A6C12B4BFD50BCF76D53B5EF6DFB01D5AC33
 ```
 
 https://mybot314.ru/tekegram_catalog/

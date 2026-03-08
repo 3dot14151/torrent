@@ -1,3 +1,174 @@
+###  Публикация: 1534349   (694139) от 02.03.2022
+
+VA - NOW Yearbook Extra 1983 (2021) 3CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694139.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Wham! - Wham Rap! (Enjoy What You Do?)
+02. Paul McCartney, Michael Jackson - Say Say Say
+03. Elton John - I Guess That's Why They Call It The Blues(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:12:15 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1570D481C44EC78708DF8CA20C2EF41ABE9F1B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288576   (694075) от 12.03.2019
+
+VA - не Громкие новинки недели 4 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 140 Ударов В Минуту - Он Ушёл От Тебя
+02. Buga - Я Буду Кайфовать
+03. Carlos Vara - Confident
+04. Dara - La Costum(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084EFCB4686097419E52725CD79E1392DDE22313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403188   (694026) от 18.08.2020
+
+VA - Hare Krishna (Life is in your Hands 2CD) (2020) [MP3|320 Kbps] <Pop, Rock, Asian Music>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Todd Boston - Celtic Heart
+02. Nostromosis - Flowers of Life (Intro)
+03. Jap Dharam - I Am Thee, Thou Is Me
+04. Krishna Das - 4am Hanuman Chalisa(   Читать дальше...   )Жанр: Pop, Rock, Asian MusicПродолжительность: 17:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0168120C110578AB342B2E85FB75C1341D9276F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133553   (693436) от 13.05.2017
+
+VA - World Wide Trance # 01 (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Farhad Mahdavi - Argentina (Extended)  7:18
+02.  Hamza Khammessi - La Dicha (Original Mix)  7:24
+03.  JES - Photograph (Roger Shah Remix)  7:24
+04.  Sam Laxton - Searching (Original Mix)  6:00(   Читать дальше...   )Жанр: TranceПродолжительность: 03:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4FFCFF75566AFA76519BD4554FAF82A7C7FC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288539   (693413) от 12.03.2019
+
+Buzzy Bus - You Don't Stop (2018) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693413.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Buzzy Bus - You Don't Stop (G Love & Igor Frank Remix Radio Edit)Жанр: Club, DanceПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2D01718E1E665E5447AF006C8BEFF53B8D9B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288668   (693412) от 12.03.2019
+
+VA - Club Dance Ambience Vol.173 (2019) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693412.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. #2Маши - Мама, Я Танцую (Kolya Funk Remix)
+002. A Boogie Wit Da Hoodie - Look Back At It  (Vadim Adamov & Hardphol Remix)
+003. Agua Sin Gas by Antoine Clamaran - Dancin' (Original Mix)
+004. A-Mase & Sharliz  - Зима В Сердце (Гости из Будущего Cover)  (Original Vip Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC09F257508FE4811228E9C01CF0BBC074ECDB8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133549   (693324) от 13.05.2017
 
 VA - Synthetic  vol.3 - Electropop Edition (2017) [MP3|320 Kbps] <Electropop, Synthpop, Electroclash >
@@ -575,180 +746,6 @@ VA - Горячая весенняя танцплощадка. Часть № 3 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F2CA347234CD7385BD08F33E57B51BFDFE1AA34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133949   (691553) от 14.05.2017
-
-VA - Cosmotronica Vol.1 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dub House, Dub Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691553.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Klartraum - Flight To Berlin (Feat Thalstroem - Vynyard Dub Mix) 11:21
-002. Vadim Lankov - Peky Park 25 8:17
-003. Paul Moore - Hollow Inside (Feat Little Mouse) 7:09
-004. Nikosf. - Our Road Home 7:42(   Читать дальше...   )Жанр: Dub House, Dub TechnoПродолжительность: 02:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5988111E4EAFF67172F01421A81C2E89ACD803EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133599   (691552) от 14.05.2017
-
-VA - Tropical House Vol.3 (2017) [MP3|320 Kbps] <House , Tech House , Tropical>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691552.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Namito - Dropkick (Wally Lopez Remix) 6:24
-002. Fg - Purified Dream 5:17
-003. Simone Cristini - Flutter (Simone Cerquiglini Remix) 5:42
-004. Mkrkc - Sunwaves (DJ Viva & Md DJ Remix) 4:21(   Читать дальше...   )Жанр: House , Tech House , TropicalПродолжительность: 06:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B85792FCB778796AD85ED226A61CFF00E1608BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133956   (691541) от 14.05.2017
-
-VA - Русский отрыв на Русском радио. Версия № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691541.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ракета - Танцуй 3:18
-002. Oleynik - Остановись 3:20
-003. Sputnik Project - Дождиком 4:28
-004. Виктор Поплеев - Половина Мира 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC03E0BA3DFEA9FBE5C9456F327CAFC7015C1963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133935   (691539) от 14.05.2017
-
-VA - Deep & Dark Dubstep Vol.17 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691539.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Unicorn Fukr, Quickie Mart & Werd2jah - Dem Man (Truth Remix) 4:38
-002. C-side & Talabun Mc - Last Of Us 4:31
-003. Olie Bassweight - Primal Feat. Mc Messinan 6:10
-004. Resonata - Returned To Dust (Phelian Remix) 5:34(   Читать дальше...   )Жанр: DubstepПродолжительность: 03:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6D925ACF3CE0A1F21E516D3756808700A3CA8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133617   (691496) от 14.05.2017
-
-VA - Весенняя 100-ка популярных треков. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691496.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Дорошенко - Мне Хочется Влюбиться 3:37
-002. Xana - Красивыи Мужчина 4:00
-003. Инесса Михно - На Десять Минут 3:59
-004. Смирнов & Комапния - Я Люблю Тебя 3:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1742D793624ACDDE5881268EEED29CB230E88DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133958   (691485) от 14.05.2017
-
-VA - Драйвовый молодежный весенний музон выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691485.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. D'dorian - Fever 3:06
-002. Lana B & Efiel - Испания 4:02
-003. Алекса Пол - Любовь На Расстоянии 3:09
-004. Татьяна Чубарова - Тебя Любить Нельзя А Хочется 4:03(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E338313440750823D12F82E5B36EC21F92E04287
 ```
 
 https://mybot314.ru/tekegram_catalog/

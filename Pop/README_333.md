@@ -1,3 +1,61 @@
+###  Публикация: 1739399   (105950) от 31.07.2024
+
+Happy Sovok - Happy Sovok (2009) [WavPack|Lossless|image + .cue] <Pop, Folk, Stage>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Супер мега шашлыки
+ 02. Мы пели караоке
+ 03. Зачем ты мне влезла в душу
+ 04. Женись(   Читать дальше...   )Жанр: Pop, Folk, StageПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B12D3FA93F70BE155C33CC1943AE4F9A563247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740007   (105946) от 31.07.2024
+
+Jasmin - Тебе Понравится (2005) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тебе Понравится
+ 02. Как Ты Мне Нужен
+ 03. Индийское Диско
+ 04. Тук-Тук(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A052A52EF4A4061306D8AB28C092DA5CCC69A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739907   (105943) от 31.07.2024
 
 Duran Duran - Do You Believe in Shame? (1989) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock>
@@ -682,64 +740,6 @@ Duran Duran - Girls On Film (1981) Remaster, 2024, Rhino Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4528BA6D40765584C9C529ABD1B972C706DB5CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745086   (105171) от 24.08.2024
-
-Екатерина Яшникова - Кончается лето (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105171.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Завтра
-2. В танце
-3. История
-4. Мелочи(   Читать дальше...   )Жанр: PopПродолжительность: 00:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F9EB2032DFEA5DC2496C6AB2DF230F59A34E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745301   (105131) от 25.08.2024
-
-Vanessa Williams - Survivor (2024) [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. iLike Moonlight [00:04:17]
-02. Legs (Keep Dancing) [00:03:07]
-03. BOP! [00:03:26]
-04. Survivor [00:03:28](   Читать дальше...   )Жанр: R'n'B, PopПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EBEC8A7D86E5208ABC667E2D83718527B5C1036
 ```
 
 https://mybot314.ru/tekegram_catalog/

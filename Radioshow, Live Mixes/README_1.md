@@ -1,3 +1,61 @@
+###  Публикация: 1438228   (1041154) от 08.01.2021
+
+Tiesto - SiriusXM Tiesto & Friends NYE Party (2020-12-31) [MP3|~245 Kbps (V0)] <Future House, Big Room, Electro House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - WOW (Intro Edit)
+02. TUJAMO & Lotten - One Million
+03. Danny Avila - Pushin
+04. Day 'n' Nite (Crookers Remix/Cheyenne Giles 2020 Remix)(   Читать дальше...   )Жанр: Future House, Big Room, Electro HouseПродолжительность: 01:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE48488253156D9E75968E76894E7DC1CD9A9C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614301   (1038835) от 21.02.2023
+
+VA - Xolodno Compilation [22.12] (Mixed and Compiled by Alexey Viper) (2021) [MP3|320 Kbps] <Progressive House, Melodic Progressive, Dark Progressive>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Kalkbrenner - Graf Zahl |05:25|
+02. Westbam, Richard Butler - You Need The Drugs (& ME Remix) |07:14|
+03. Bell Towers - Want You (Need You) (Adam Port Remix) |07:13|
+04. Tunnelvisions - Acid Neverland |05:09|(   Читать дальше...   )Жанр: Progressive House, Melodic Progressive, Dark ProgressiveПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4BD00E6056E3CFE3D67245DF2976AA79AB9F14A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440591   (1038770) от 17.01.2021
 
 VER:WEST(Tiesto) - Aftr:hrs Sessions 01 (2021-01-14) [MP3|320 Kbps] <Tech House, Deep House>
@@ -682,64 +740,6 @@ Armin van Buuren - One World Radio Armin's Weekend Kick-Off 100 (Extended Specia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62E15754FABB0DF33D7E0116AB6A0B1C644D114D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462094   (1021432) от 12.04.2021
-
-Nora En Pure - Live @ Graubünden, Switzerland (2021-04-03) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passenger 10 - Days Of Yore
-02. Nora En Pure - Cognitive Fadings
-03. Passenger 10 - Thuringia
-04. Nora En Pure - Enchantment(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244B86C44661D0EC75EE470867543A91CF33AC42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462238   (1021321) от 13.04.2021
-
-Korolova - Live @ Zanzibar, Tanzania (2021-03-26) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mako - Roller Coaster (Jan Blomqvist Remix)
-02. Da Fresh & Noidor - Mirari
-03. The Kode - Can't Let Go
-04. Roumex - Inside My Head(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35795DA14C2C7E9748313D7E82781F2FEA3E32FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

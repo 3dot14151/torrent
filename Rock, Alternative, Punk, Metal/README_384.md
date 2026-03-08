@@ -1,32 +1,3 @@
-###  Публикация: 1133017   (696868) от 11.05.2017
-
-Hoops - Routines (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Dream Pop, Lo-Fi>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun’s Out (2:49)
-02. Rules (2:13)
-03. On Top (3:45)
-04. Benjals (2:20)(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, Lo-FiПродолжительность: 00: 32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20DF9B5C0F3C4F0815F4804CF123973433BCB736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082581   (696861) от 11.05.2017
 
 Riverside - 7 Albums (2003 - 2016) [FLAC|Lossless|image + .cue]<Progressive Rock>
@@ -745,6 +716,35 @@ James Murphy - Feeding the Machine (1999) [FLAC|Lossless|image + .cue] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA25D0021AE1566B291C833005EE875985FC36E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221274   (695137) от 24.04.2018
+
+Dave Edmunds - The Collection (1997) Compilation [FLAC|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695137.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	I Hear You Knockin'
+2	You Can't Catch Me
+3	The Stumble
+4	Sabre Dance(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A1585F15C101B0DB44A1C07A45D3F415916994
 ```
 
 https://mybot314.ru/tekegram_catalog/

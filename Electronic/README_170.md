@@ -1,3 +1,59 @@
+###  Публикация: 1216446   (751209) от 30.03.2018
+
+Café del Mar - Phuket (2018) [MP3|320 Kbps] <Downtempo, Chill House, Nu Disco>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск1
+01. Cassady Locke - Mafele (Original) 8:13
+02. Musumeci - Hey Mama (Original Mix) 5:13
+03. Tuccillo and Kiko Navarro featuring Amor - Lovery (Yoruba Soul Mix) 7:18(   Читать дальше...   )Жанр: Downtempo, Chill House, Nu DiscoПродолжительность: 01:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C59DE8FF09823349B0D65D0CF11AC8FD0B0F24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228691   (751030) от 08.02.2019
+
+Enrico Sangiuliano - Discography 14 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Ambient, Psytech>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astral Projection (08:04)
+ 02. Blooming Era (07:13)Тип издания: WebЖанр: TechnoПродолжительность: 00:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E919C585E1B6268D7FF0F4FC162B49855583B4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216275   (750722) от 30.03.2018
 
 Zinovia Arvanitidi - Ivory (2018) Kitchen. Label [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Contemporary>
@@ -686,61 +742,6 @@ VA - Poolside Miami 2018 (Mixed by Kraak & Smaak) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A73A8B39F7703855681B45388D22CA0EA2BAFBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216676   (747840) от 01.04.2018
-
-VA - Fitness Beats 2018 - 24 Workout & Fitness Gym Music Hits [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southree feat. Penny Hannant - Gone (Original Mix) 04:05
-02. Samma feat. Leonardo Dragusin - Shadow Of Love (Original Mix) 04:00
-03. Alka - Pump The Beat (Original Mix) 03:24
-04. Firstlight - Heaven (Extended Mix) 04:37(   Читать дальше...   )Жанр: HouseПродолжительность: 01:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C4CCCD796529EF0B40D9774F7A0982F9B703578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216789   (747837) от 01.04.2018
-
-Rue Du Soleil (ex resident of Cafe Del Mar) - Discography 5 Releases (2003-2012) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Chillout, Lounge, Downtempo, Ambient, WorldПродолжительность: 06:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EE936B0EEE9E8BB7386C333257118D4AFE2F1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

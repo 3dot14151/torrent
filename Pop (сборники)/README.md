@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857906   (1060022) от 07.03.2026
+
+Adriano Celentano best (1960-2021) [MP3|320 Kbps] <pop,electronic,rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060022.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:02] . 001-Impazzivo Per Te
+[2:22] . 002-24 000 Baci
+[2:46] . 003-Nata Per Me (& Orchestra Giulio Libano)
+[2:31] . 004-La Mezza Luna (& Orchestra Giulio Libano)(cover Martin Lauer)(   Читать дальше...   )Жанр: pop,electronic,rockПродолжительность: 10:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD185F4BD75726F91E1DA096FDB4D1DE3D9C7E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856995   (1059442) от 03.03.2026
 
 Lovrite - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
@@ -717,35 +746,6 @@ Reyvi - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEB7C3905A0F8E062AAA90217EC375C4CB76A9C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841896   (1048441) от 13.12.2025
-
-VA - No name compilation part 24  Dance, Synthwave,  Disco (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Talking Luna - I Miss the 80s
-02 - Nezon - Don’t Leave Me Tonight
-03 - Romantic Dreams - The Waiting Rose
-04 - Ai - White Silence  Inspired(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 02:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F813DF76A164EDDBDA9E166A34A07ADD494F7C37
 ```
 
 https://mybot314.ru/tekegram_catalog/

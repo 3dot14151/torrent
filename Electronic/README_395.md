@@ -1,3 +1,61 @@
+###  Публикация: 1072479   (244246) от 13.11.2016
+
+VA - Cosy Lounge Vol.1: Smooth Weekend Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moreza – Rahu
+ 02. Peter Pearson – Moonlight Reflections
+ 03. Bela Banhegyi – Starlight
+ 04. Unit Blue – Tango Bay(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4651A1D4A54F4BEC55AE4384C6381458B1E68D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072365   (244229) от 13.11.2016
+
+VA - Ibiza Winter (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcelo Wallace - Samba De Hamburgo (Niels Solberg Remix) 07:20
+02. Felix & Gianx & Notelle - Hot Blooded 04:42
+03. Chixunighted - Sunshine Waltz 08:19
+04. Alex Lotus - My Life 06:28(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B65FCDC6E2682CA614357DC0B0DDA8970A4128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632207   (244218) от 09.05.2023
 
 V.A. - Lounge & Coffee, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
@@ -687,64 +745,6 @@ VA - Silent Shore Trance: Winter (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98DE73A5515C31F19D2134CE8087DE0347D3A497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623048   (243591) от 01.04.2023
-
-Armin van Buuren - Feel Again (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Wrabel - Feel Again (Extended Mix) [5:40]
-02. Armin van Buuren - Oumuamua (Original Mix) [5:26]
-03. Armin van Buuren & The Stickmen Project - No Fun (Extended Mix) [3:36]
-04. Armin van Buuren & Sam Gray - Human Touch (Extended Mix) [3:49](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CAE07A0D4C5690158D372CB794F03C08C04623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076886   (243587) от 26.11.2016
-
-VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Sestertius [07:38]
-02. Ferry Corsten & Cosmic Gate - Event Horizon (Extended Mix) [05:40]
-03. Alex M.O.R.P.H. & Paul Van Dyk - We Are [07:20]
-04. Andy Moor & Somna - Look Back (Original Mix) [06:00](   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD962B83D3E9B46CD2823836EAA9BF0C9558DE36
 ```
 
 https://mybot314.ru/tekegram_catalog/

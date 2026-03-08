@@ -1,3 +1,61 @@
+###  Публикация: 1108886   (861083) от 26.02.2017
+
+VA - House Ladies Vol.1 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861083.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amorhouse - Habla! - Amorhouse & Fennel Club Vocal 5:48
+002. Discorescuers - Pasticcino - Discorescuers Dub Vocal 7:19
+003. Antony Fennel - Je T'aime - Club Mix 6:38
+004. Fabietto Cataneo - Saxy Fashion - Instrumental Mix 4:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3C9ED270A1A030FEA044DEDD606F877726F1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108743   (861077) от 26.02.2017
+
+VA - Deep House Connection Vol.2 Night Selection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861077.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zhukhevich - Flowers Energy 3:44
+002. Chris Coulen - S.M. 4:21
+003. Andrey Butuzov & 7Sky Project - Empty Streets - Original Mix 4:05
+004. The Mord - New Year in City Deep 4:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01A5F9C1B2056DEFCE827D0DE192A6F30F3DACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108665   (861076) от 26.02.2017
 
 VA - Winter Dream Lounge Spa Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ Ron Trent - Prescription: Word, Sound & Power (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC42E2BB6C51E594C6AD4F78C124AC32C55D12FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376577   (858917) от 18.04.2020
-
-VA - Erotic House (Erotic And Sensual Selection House Music) (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858917.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Tony Queen - You Have a Problem (Aston Romeo Deep Mix) (3:30)
-2.Wireless - Robot Communication (Electric Mix) (5:42)
-3.Jeffrey Evans - She's Happy (Stairway to Mix) (3:12)
-4.Diego Suarez - Bossa and Trip (Luxury Mix) (3:06)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8F2F74251DE9A5A0FC2CF0544FE0B1CF63A5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376618   (858912) от 18.04.2020
-
-V.A. - The Buddha Moon, Vol. 1:  A Magic Soundtrack To Chill & Relax (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillhouse, Downbeat, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Hayman - Illusions (Deep Space Mix)
-02. Island Sun - Aurora (Red Light Cut)
-03. Le Voyage - Sensuality (E-Fly Mix)
-04. Sean Hayman feat. ANONG - Mysterious Ayutthaya (Buddha Deluxe Mix)(   Читать дальше...   )Жанр: Chillhouse, Downbeat, LoungeПродолжительность: 01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB72D715912C7B802C98DAD3779E5EF0697C2C54
 ```
 
 https://mybot314.ru/tekegram_catalog/

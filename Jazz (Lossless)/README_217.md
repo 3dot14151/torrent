@@ -1,3 +1,32 @@
+###  Публикация: 1583106   (314526) от 13.10.2022
+
+John Handy & Lee Ritenour - Where Go the Boats (1978) 1986, In-Akustik [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right There, Right There [6:39]
+02. Moogie Woogie [6:15]
+03. Where Go the Boats [4:32]
+04. Go for Yourself [3:33](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82F838451EA30B4E0C3CA7EFF604875A63005B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332367   (314458) от 20.10.2019
 
 Eddie Condon - Jam Session Coast-To-Coast (1953) 2005, Membran Music [FLAC|Lossless|image + .cue] <Dixieland, Swing>
@@ -716,35 +745,6 @@ Elvin Jones - Mr. Jones (1969/1972) 2013, EMI Music[FLAC|tracks+.cue]<Post-Bop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:059104766FC30E81ACE05C82659299FFCC81A0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260676   (310123) от 08.11.2018
-
-Tim Garland, Joe Locke, Geoffrey Keezer (Storms/Nocturnes Trio) - Rising Tide (2003) Sirocco [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Dark [4:49]
-02. A Brother's Gift [4:09]
-03. Dance Me Delirious [7:49]
-04. Honu [6:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3062FF870492630E1C39009CB90D0147A982328
 ```
 
 https://mybot314.ru/tekegram_catalog/

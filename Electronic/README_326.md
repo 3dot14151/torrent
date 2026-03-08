@@ -1,3 +1,61 @@
+###  Публикация: 1415612   (376869) от 12.10.2020
+
+Martin Goodwin - Discography 6 Releases (2013-2020) Tehnofonika, Northallsen, Kornarion [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eclosion Pt.1 (06:55)
+ 02. Eclosion Pt.2 (12:08)
+ 03. Eclosion Pt.3 (06:37)
+ 04. Eclosion Pt.4 (08:15)(   Читать дальше...   )Тип издания: WebЖанр: Techno, Ambient, Dub Techno •Продолжительность: 04:50:59 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47BAF85EB491384EC2FB5E94B6C70B9D59D56F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415563   (376861) от 12.10.2020
+
+Martin Goodwin - Eclosion (2020) Kornarion Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Techno, Psy-Tech>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eclosion Pt.1 (06:55)
+ 02. Eclosion Pt.2 (12:08)
+ 03. Eclosion Pt.3 (06:37)
+ 04. Eclosion Pt.4 (08:15)(   Читать дальше...   )Жанр: Ambient, Techno, Psy-TechПродолжительность: 01:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590BF2A9C55CCF2B6CCAD317810CA15EC1CFC477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415489   (376852) от 12.10.2020
 
 Bucky - Foreign Blocks (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <UK Garage, Ambient, Future Garage, Downtempo>
@@ -685,64 +743,6 @@ Recue - Discography 10 Releases (2008-2020) Audiobaum [FLAC|Lossless|WEB-DL]<IDM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:665C48503BCD21563011184C2CF469A296A9BB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175873   (375987) от 19.10.2017
-
-Paul Van Dyk - From Then On (2017) [FLAC|Lossless|WEB-DL] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. While You Were Gone (feat. Vincent Corver) 5:20
-02. Inhale (feat. M.I.K.E. Push & Fred Baker) 6:41
-03. Touched By Heaven 7:29
-04. I Am Alive 4:38(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B30D541772F268389D7487A956B1188D7C3FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175694   (375854) от 19.10.2017
-
-VA - Porno Traxx - Amsterdam ADE (2017) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Antoine Clamaran & Agua Sin Gas - Keep On (Original Mix)  6:30
-02.  Charles J - Balkan (Original Mix)  5:04
-03.  Crazibiza - Banana Pop (Stormasound Remix)  4:25
-04.  Chicco Secci - African Vanilla (Original Mix)  6:51(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69ADD3D301BB4B4B76825F4196B398AE08ECB5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

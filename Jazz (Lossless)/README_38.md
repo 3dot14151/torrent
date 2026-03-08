@@ -1,3 +1,32 @@
+###  Публикация: 989672   (915798) от 23.02.2016
+
+Robert Drasnin - Voodoo II (2007) Dionysus Records[FLAC|Lossless|tracks + .cue] <Easy Listening, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Habanera In Blue [03:56]
+ 02.Moorean Moonbeams [04:16]
+ 03.Sambalerro [04:11]
+ 04.East of Xanadu [04:21](   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115F9899A7205BFB8A0CB2E23A1D82FA4C5E9C8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 865342   (915744) от 01.02.2015
 
 Laurindo Almeida - Outra Vez (1992) [FLAC|Lossless]<Jazz, Brazilian Jazz, Guitar Jazz, Bossa Nova>
@@ -715,32 +744,6 @@ CD1- Perfect Rag:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41C89924D3A47B1B47D5863F11A482B29B7872B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635271   (909083) от 26.03.2013
-
-Parov Stelar Trio - The Invisible Girl (2013) [FLAC (tracks+cue)|Lossless]<Nu Jazz, Acid Jazz, Downtempo>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Nu Jazz, Acid Jazz, DowntempoПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

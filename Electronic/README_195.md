@@ -1,3 +1,58 @@
+###  Публикация: 1221419   (695065) от 24.04.2018
+
+Purple Haze - Bergen (2018) Single [MP3|320 Kbps] <Electronic, Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695065.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Purple Haze - Bergen (Extended Mix) (05:26)Жанр: Electronic, Trance, Progressive TranceПродолжительность: 00:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C76A8A5DCB8D54AFA8E444D3CB215075095A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027632   (694845) от 20.06.2016
+
+VA - Funk City Vol 1 (2016) [MP3|320 кб/с] <Funky, Disco, Nu-Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Stand Up (4:41)
+02. Audio Jacker - Gimme Gimme (8:10)
+03. Funkstar - Turn the Beat (5:31)
+04. Serial Thrilla - Get Down (5:53)(   Читать дальше...   )Производство: Tasty RecordingsЖанр: Funky, Disco, Nu-DiscoПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA69AF00519E9293A9EEE38D5CF865449C1FCAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027878   (694836) от 20.06.2016
 
 Dinka - Sundry: The Chillout Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill House>
@@ -687,64 +742,6 @@ iVardensphere - Discography 15 Releases (2009-2017) [FLAC|Lossless|tracks+.cue, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53DE5A7E00551BF4CC2567C1A7452C882906239D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028123   (692965) от 21.06.2016
-
-VA - Defected Presents: The Opening Party Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 1) (01:02:42)
-02. VA - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 2) (01:05:46)
-03. Lee Walker - Freak Like Me (DJ Deeon vs. Lee Walker Remix) (05:47)
-04. Flume - Never Be Like You (Disclosure Remix) (03:46)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 05:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540BF753214A1C83070C06D66B32C1131784CDD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133815   (692954) от 13.05.2017
-
-Andromeda Dreams - 2 Albums (2015, 2016) [MP3|320 Kbps] <Electronic, Disco, 80's, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Andromeda Dreams -  один из проектов Киевского музыканта Олега Марченко в стиле synthwave 80х.01. Intro (2:14)
-02. Space Highway (3:35)
-03. Lost Nebula (4:21)
-04. Two Million Light Years (3:27)(   Читать дальше...   )Жанр: Electronic, Disco, 80's, Synthwave, RetrowaveПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA307AA8FE9937D2B03FB6AC62627C26153D649F
 ```
 
 https://mybot314.ru/tekegram_catalog/

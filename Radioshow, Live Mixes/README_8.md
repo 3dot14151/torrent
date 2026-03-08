@@ -1,3 +1,61 @@
+###  Публикация: 1403180   (694404) от 18.08.2020
+
+ALPHA 9 - Anjunabeats Worldwide 689 2020-08-17 [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694404.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ALPHA 9 - ID
+2. ALPHA 9 - All That I Cant
+3. Above & Beyond feat. Zoë Johnston - My Own Hymn (ALPHA 9 Remix)
+4. ALPHA 9 - Before The Dawn(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D870299A63EDF5D044B9D021C0468535C77F888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288935   (691964) от 13.03.2019
+
+VA - Armin van Buuren - A State Of Trance Festival 900 - (Madrid) (2019) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilan Bluestone & Maor Levi – Everybody (Ilan Bluestone & Maor Levi Club Mix)
+02. Maor Levi & OTIOT – Bandana
+03. Maor Levi & OTIOT ft. Ashley Tomberlin – Turn Out The Lights
+04. Ilan Bluestone & Maor Levi ft. El Waves – Will We Remain?(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 07:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F2D0758F5A395BB852F54BC786EFE57167AEC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351016   (691933) от 19.08.2020
 
 Fatum - All In Radio 001-017 (2020) [MP3|192 Kbps] <Trance>
@@ -684,64 +742,6 @@ VA - Ori Uplift - Uplifting Only 226 (2017) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB20C5196756DE927581F1733E5099BFA229D2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291156   (650688) от 27.03.2019
-
-Daniel Kandi - Live @ Cuckoo's 1st Birthday (26-01-2019)[MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gerome - One With The Music
-02. Gerome - Sky Citizen
-03. OceanLab & Justine Suissa Vs Exolight & Suncatcher - Siren Of The Sea (Daniel Kandi Mashup)
-04. Daniel Kandi - Child(   Читать дальше...   )Жанр: TranceПродолжительность: 01:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDA9090D7BE8EE378A4BE5BD8A3E930DE80AC09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541123   (648758) от 01.04.2022
-
-Vintage Culture - Live @ Carnaval, Warung Beach Club, Brazil (2022-02-26) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture - Space
-02. ID - ID
-03. KC Lights ft. Tailor - Fall (Club Mix)
-04. Arude & Sincz - Become Immortal And Then Die(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 06:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833C71F665AFE3613475D1A35D2A402E2A3E99E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

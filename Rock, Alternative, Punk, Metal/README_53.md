@@ -1,32 +1,3 @@
-###  Публикация: 1441931   (1037196) от 23.01.2021
-
-Escape The Fate - Chemical Warfare (2021) [MP3|~245 Kbps (V0)] <Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lightning Strike [00:02:46]
-02. Invincible (feat. Lindsey Stirling) [00:03:52]
-04. Chemical Warfare [00:03:14]
-05. Erase You [00:02:28](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE424D0671207BBD8F9DB402C34120F1B089A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441820   (1037192) от 23.01.2021
 
 Royal Hunt - Dystopia (2020) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -744,6 +715,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D73E3C97F4B6E7B6AB2CF3A62090167D50A8D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442048   (1036897) от 24.01.2021
+
+Holy Mother - Face This Burn (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Face This Burn [00:03:39]
+02. Love Is Dead [00:04:01]
+03. Legends [00:03:51]
+04. No Death Reborn [00:03:39](   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4D880C46B9E88A90645174F4A452304B50FB4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

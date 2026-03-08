@@ -1,277 +1,3 @@
-###  Публикация: 561411   (406247) от 17.10.2012
-
-Gilrs Wallpaper Collection (16.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 5616х3744
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28366C3C4C0EC10F5AD9A9968CD4A8645E89ADED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560855   (406245) от 17.10.2012
-
-VA - Trance Night (2012) [MP3|320 кб/с]<Progressive, Trance, Dream>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & Andrew Bayer - Nothing Ever Lasts 07:14
-02. Manufactured Superstars & La Riots Ft Selina Albright - Born To Rock (Original Mix) 06:06
-03. Above & Beyond - On My Way To Heaven (Above & Beyond Club Mix) 07:52
-04. Sean Tyas And Giuseppe Ottaviani - Arcobaleno (Club Mix) 07:34
-05. Joop Feat. Tiffany Johnston - Just One Night (Original Mix) 06:54
-06. Armin Van Buuren - We Are Here To Make Some Noise (Extended Mix) 05:12
-07. Matt Bukovski - In Dreams (Original Mix) 06:35
-08. Ernesto Vs Bastian & Kay Wilder - Just In Bibber (Original Mix) 05:10
-09. Burzhuy & Tigran Oganezov - Springboard (Original Mix) 06:33
-10. Cj Arthur - Magnet (Den Rize Pres Blur8 Remix) 07:10(   Читать дальше...   )Жанр: Progressive, Trance, DreamПродолжительность: 01:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F41AD3868B430989231EF81652B5A4DF3852C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561376   (406244) от 17.10.2012
-
-Nature Wallpapers (15.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC4FFD3BCBD337286FE1BBE6F96D1065307A8FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561412   (406243) от 17.10.2012
-
-Gilrs Wallpaper (16.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 3000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9AE38A614B0D32348FF9E81D467CB34B9BEFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559890   (406241) от 17.10.2012
-
-VA - All Colours Of Deep (2011) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mage - Cosmic Station
-02. Aaron Bond - Face The Truth
-03. High Feel - Clone
-04. Nemanoe - Movement In Uncertainty
-05. Kasper & TekSketch - ReEntry
-06. Mage & DJ Ike - Visions Of Love
-07. Nelver - Grand Case
-08. Nelver - Flatline (Nelver Remix)
-09. Beatchemist - I Can't Explain It
-10. White Fang - ConcealedЖанр: Drum and BassПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28ED36309E90BCB452AAEB2AB0E1BCA583D75279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560862   (406240) от 17.10.2012
-
-VA - Tranceffect 33 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ill Listen (Original Mix) - Armin van Buuren feat. Ana Criado
-02. Amsterdam (Original Mix) - Orjan Nilsen
-03. K Ta (Original Mix) - Andy Moor
-04. From Bad To Worse (Original Mix) - I5land Vs.Matt Pincer
-05. New Born (Original Mix) - Tom Colontonio & Orla Feeney
-06. Plify (Original Mix Edit) - Ram
-07. Sirius (Ikerya Project Remix) - Eddie Lung
-08. Galactica - Nick Rowland
-09. Everblue (Adam Foley Remix) - Michael Lee
-10. Seek The Shore (Next DJ ILNY Mashup) - Sandeagle & Electribe vs Amanda Wilson(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03467B36D490303036E6C2F8CB7E575D731F9643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561578   (406238) от 17.10.2012
-
-[Wallpapers] HQ Wallpapers №56
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406238.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HQ Wallpapers №56
-Название: HQ Wallpapers №56
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1172EAB0E85F1A98F24528672CE1F8589DB8074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560744   (406237) от 17.10.2012
-
-Butterfly - Favorite Colors Episode 052: 1 Year Anniversary Special (06.10.2012) [MP3|320 кб/с]<Progressive, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glenn Morrison -  I See You In Me (Original Intro Mix)
-02. Matt Bukovski feat. Tiff Lacey -  Swept Away (Original Mix)
-03. Velvetine feat. Aruna -  The Great Divide (Soundprank Remix)
-04. Protoculture -  Perpetual Motion (Original Mix)
-05. Phillipo Blake & EDDY feat. Nika -  We Stroll Together (Alex Tasty Remix)
-06. Ralphie B -  The Holy Grail (Original Mix)
-07. Stoneface & Terminal -  Gallery Of Sound (Club Mix)
-08. Bobina -  The Space Track (Andrew Rayel Stadium Remix)
-09. Tenishia -  Where Do We Begin (Andrew Rayel Remix)
-10. Menno De Jong -  Guanxi (Original Mix)(   Читать дальше...   )Жанр: Progressive, TranceПродолжительность: 01:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94275FC8E5D0ADAB1BC11C76D48B37955BC20A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561400   (406234) от 17.10.2012
-
-Wallpapers Fantasy (15.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B028D04FF3A90ADFD3B5D8668825141829F561B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561331   (406232) от 17.10.2012
 
 Reel People - 10 Years Of Soulful Bliss (2012) [MP3|320 кб/с]<Deep House>
@@ -753,6 +479,271 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01FEAA86043EB9E1B22EE2EDDA754BC772C3E42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561713   (406172) от 17.10.2012
+
+П.А.Боровиков | Водолазное дело России [2005] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена истории становления водолазного дела в нашей стране.
+От автора: "О водолазных работах в России написано достаточно много, но выборочно, и полной картины истории водолазного дела в России пока нет. По общепринятой версии, всерьез водолазные дела в России начались лишь с момента создания ЭПРОНа; в конце XIX в. водолазными проблемами занималась только Кронштадтская водолазная школа Военного флота, а до Школы, по той же общепринятой версии, просто ничего не было. Однако анализ технической и нормативной литературы XVIII - начала XX в. показывает, что это далеко не так."Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2693686BA4428EF7B463FFB66FF2373FE9546FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561420   (406171) от 17.10.2012
+
+[Wallpapers] Обои для рабочего стола (Мото)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои мотоциклы.Море хрома и ярких красок.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB277FC0750CC23912856916232B069A22DDCEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561665   (406169) от 17.10.2012
+
+Album Player 2.9.3 (17.10.12) (portable) [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_406169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Album Player 2.9 (Freeware, Windows XP/Vista/7/8)  предназначен для составления и прослушивания сборников музыкальных альбомов на жестком диске или на CD/DVD. Плеер воспроизводит звуковые файлы популярных форматов - MP3, WAV, FLAC, APE, WavPack, ALAC, Audio-CD и т.д. При формировании плейлистов для образов дисков используется информация из .cue файлов.
+
+     В программе реализован поддерживаемый некоторыми плагинами режим прямого вывода звукового потока из декодера звукового формата в выходное устройство. Отсутствие промежуточной обработки и микширования обеспечивает наиболее точное воспроизведение звука. Поддерживаются режимы вывода Direct Sound, ASIO, Kernel Streaming, WASAPI (Maiko). В последних версиях добавлена поддержка форматов WMA, AIFF, SACD и DVD-A.
+
+      Плеер бесплатный, установка не требуется. После распаковки архива следует запустить файл APlayer.exe. Описание работы с плеером находится в файле readme.txt.Название программы: Album Player 2.9.3 (17.10.12) (portable)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561118   (406167) от 17.10.2012
+
+Божественное / Divine: The Series (2011) TVRip
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406167.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Божественное" - это истории для поколения смартфонов. В их основе графические новеллы, приключенческие кинокартины, мрачная сверхъестественная интрига и самые современные визуальные эффекты - всё это соединено вместе, чтобы создать что-то новое и захватывающее для интернета. Мы хотим подогреть интерес людей к онлайн-зрелищам и рассказать истории, которые вы можете смотреть крохотными кусочками, вы можете смотреть их в любом порядке, но в то же время, когда вы посмотрите больше эпизодов, секреты персонажей и их внутреннего мира будут постепенно раскрыты.Жанр: Ужасы, Фантастика, БоевикРежиссер: Иван ХэйденАктеры: Дэн Пэйн, Чести Баллестерос, Бен Холлингсворт, Миша Коллинз, Хэйг Сазерленд, Кира Загорский, Джейсон Бодуан, Кирк Жакс, Люк Родерик, Тревор Джонс, Рик Добран, Терил Ротери, Джон Эммет Трэйси, Лиза Мари Кэрук, Нэнси БеллПеревод: Одноголосый закадровыйПродолжительность: 6 х ~ 00:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15020E0F909D0A7AE0AA997476CDE1CDDB288C46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561345   (406164) от 17.10.2012
+
+Sch - During Wartime (1989) [MP3|320 kbps]<Alternative, Industrial, Noise>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. vagabonds
+02. the day when i was born
+03. ne dozvoli da zaboravim (never let me forget)
+04. zbogom (farewell)
+05. master
+06. partija nasa (party of our)
+07. fantasticna ljubavna pjesma no 7Жанр: Alternative, Industrial, NoiseПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56394829E035735B9FA154DF2CC34D4124E1E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561013   (406161) от 17.10.2012
+
+DJ Eco - The Best Things In Life Are Free (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406161.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Begin
+2. Leaves
+3. The Sky Moved Sideways
+4. Puhuri (Remix of Paavoharju)
+5. Boston
+6. Riots In Cairo
+7. Back Home
+8. Slow M(ocean)
+9. My Name Is You(th) (feat. Eller van Buuren - Acoustic Version)
+10. Songbird In The Slum(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720CB876F066D4DD72D890EA405D6EBA65EA51A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561790   (406160) от 17.10.2012
+
+Анастасия Титаренко | Ржавые Цветы [2012] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406160.jpg" />
+</div>
+
+
+###  Подробнее
+
+После страшной катастрофы, разрушившей оживленный город, выжить смогли или члены мародерских банд или ловкие и сильные одиночки. Тридцать лет продолжается война между одичавшими людьми, пока не появляется человек, способный найти путь в неприступную Башню — единственный источник благ… Тщедушная на вид малышка, умеющая уложить в драке сильного бойца, уходить от преследования песчаных волков, неуместная радуга в сером городе — волей случая она следует через все опасности к заветной цели. Но клочки воспоминаний о ярком прошлом внезапно становятся ключом к жизни в этом забытом месте…Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1788129793D90F502CFD97FE5D23998D240DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560988   (406155) от 17.10.2012
+
+VA - Rastafilya – Summer Vibes 12 (2012) [MP3|320 кб/с]<Ragga-jungle>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406155.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Count Skylarkin & Harvey K-Tel – Dub of a Preacher Man (Music For The People)
+ 2. Marcus Visionary feat. Keon Love – Good Vibes (Inner City Dance)
+ 3. Benny Page – Know Fi Move Your Waist (High Culture)
+ 4. JFB – Tequila Sunrise (Jungle Cakes)
+ 5. Greg Packer, MC Assassin – Gunshot Riddim (Interphase Digital)
+ 6. Killa Tingz – Hustler (feat YT – UK jungle mix) (Run Tingz)
+ 7. Benny Page – Top Rank Skank (feat Mr. Williamz) (High Culture)
+ 8. Bobby McFerrin – Don’t worry be happy (Isaac Maya remix)
+ 9. Biga Ranx – Brigante Life (Dope Ammo Benny Page Remix) (Dope Ammo)
+ 10. Nanci and Phoebe feat. Congo Natty – Notorious (Vital Elements Remix) (Congo Natty Bass)(   Читать дальше...   )Жанр: Ragga-jungleПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65118F2B6B5E34B3D697DDA7D0EA6F130DABAE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561637   (406149) от 17.10.2012
+
+Wise Folder Hider 1.26.63 + Portable [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_406149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Folder Hider - удобная утилита для скрытия конфиденциальных файлов. Идеальный инструмент в случае, если за компьютером работают несколько человек, например, коллеги по работе, родственники. Wise Folder Hider хранит все частные данные, будь то фотографии, документы, переписка. Инструментарий этой программы по сравнению с ее аналогами очень надежен.
+
+(   Читать дальше...   )Название программы: Wise Folder HiderЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

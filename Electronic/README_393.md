@@ -1,3 +1,61 @@
+###  Публикация: 1511666   (245806) от 21.11.2021
+
+VA - Chillout Lounge 2021 [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rafo - Love Bridge (02:40)
+02. Burak Cilt - Can't Get You Out Of My Head (03:34)
+03. Dani Corbalan - Beautiful (03:06)
+04. Deepsan - Wish I Could Stay With You (05:50)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8AB7676A8854EB6C4FFCB4BAD4BEAE66D782591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630257   (245761) от 30.04.2023
+
+VA - Progressive Dreamland (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goblin Hulms - You're Not Alone (Extended Mix) [06:41]
+02. Humbaba - Back to Me (Extended Mix) [06:45]
+03. Mike van Olsen - Oblivion (Original Version) [05:00]
+04. Jacob Ireng - Nobody (Extended Mix) [04:15](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90EC9294249F3BF056D18A18E0AF6A6ACD9B307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448083   (245731) от 18.02.2021
 
 VA - Lovely001 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -683,64 +741,6 @@ VA - Ultima Audio: Essentials 2022 (Mixed by Alex John) (2023) [MP3|320 Kbps] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F736BFC306F1144E80155EFD787FE06240CE5325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451046   (244929) от 28.02.2021
-
-VA - Global Underground Afterhours (2002) Global Underground [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, IDM, Leftfield, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balago - Maccabea (02:52)
- 02. Balago - Pendulos (04:01)
- 03. Depeche Mode - It's No Good (Andrea Parker Mix) (04:29)
- 04. Jimi Tenor - Utopian Dream (02:54)(   Читать дальше...   )Тип издания: CDЖанр: Ambient, Downtempo, IDM, Leftfield, Trip Hop •Продолжительность: 02:02:05 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C67975319065F9542FC3338D3D44BAE80BF5DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609477   (244898) от 03.02.2023
-
-VA - The Sound of 2023 Mix 1: Hong Kong (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F4T4L3RR0R - The Pulse of Darkness (Intro) [02:05]
-02. One Release - Helm's Deep [05:40]
-03. Monodusk - Eden 2099 [05:20]
-04. James De Torres - Out of Darkness [05:12](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216C34C59488F87821B12F367CF791C724F7AF26
 ```
 
 https://mybot314.ru/tekegram_catalog/

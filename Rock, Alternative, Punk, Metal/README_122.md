@@ -1,32 +1,3 @@
-###  Публикация: 1481662   (1008038) от 05.07.2021
-
-Lind - A Hundred Years: The Justification Of Reality. Part I (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do I Really Notice (11:44)
-02. A Hundred Years (09:25)
-03. Strange Waters (09:12)
-04. Invisible Tears (09:09)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63651F06F8F13D6362550E83CD82DB0A0370882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481829   (1008037) от 05.07.2021
 
 Midnite City - Itch You Can't Scratch (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Glam Rock>
@@ -745,6 +716,35 @@ Sonic Weapon - Vanity (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04015288840394D2D006CA425CD922E9267B05D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482374   (1007455) от 09.07.2021
+
+Vicious Rumors - Celebration Decay (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celebration Decay
+02. Pulse Of The Dead
+03. Arrival Of Desolation
+04. Any Last Words(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1666B345EC5E99351D54DBAB61C8648643915C
 ```
 
 https://mybot314.ru/tekegram_catalog/

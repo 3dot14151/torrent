@@ -1,3 +1,59 @@
+###  Публикация: 1192220   (263529) от 16.12.2017
+
+VA - Best of Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The-Thirst For-Flight - Seven Seconds of Happiness
+02. 2D project - Gladiator
+03. James Fiby feat. Anna Miracles - History Love (Vocal Mix)
+04. DJ Grand Defence - First Contact(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3833623630A0F2039C7F2482993642C13A1B54A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192077   (263519) от 16.12.2017
+
+The Chi Factory - Red Lantern At The Kallikatsou (2017) Astral Industries [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Techno Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part One (feat. Hanyo van Oosterom) (21:01)
+ 02. Part Two (feat. Hanyo van Oosterom) (21:01)Жанр: Ambient, Experimental, Techno AmbientПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101180212BC0D7DA68F3CB30E4AA5D56C3EFB903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192189   (263493) от 16.12.2017
 
 VA - Winter Chillout Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -687,62 +743,6 @@ VA - Odin (2017) Wildfang Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09FDC88B09341AB396411039A0BF217C505571B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192690   (262841) от 18.12.2017
-
-VA - Extrema Global Music Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiroki Nagamine - Eien (Radio Edit)
-02. 4 Seas - Sagra (Radio Edit)
-03. Peter Martijn Wijnia - Carpe Diem (Temple One Remix Edit)
-04. Mike Sanders - Love Your Life (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA1DBE19C68F43D36D02F7D6F5572B8C89131E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192602   (262830) от 18.12.2017
-
-Zach H (Apparent Symmetry, Synthetic Void, Script, Vs. Artificial Intelligence) - Discography 14 Releases (2003-2016) [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, EBM, Ambient, Abstract, Tech ...
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1n_f3C7 (07:40)
- 02. LA_3r-473 (05:31)Тип издания: WEBЖанр: IDM, Industrial, EBM, Ambient, Abstract, Techno, Glitch, Downtempo •Продолжительность: 00:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7EEE724FB60B3D8ED3382F188E16DA80A23F31
 ```
 
 https://mybot314.ru/tekegram_catalog/

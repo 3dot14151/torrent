@@ -1,3 +1,61 @@
+###  Публикация: 1699308   (117973) от 12.02.2024
+
+VA - Nothing But... Trancetopia Vol. 12 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Hurman & Julio Posadas & Pedro Miras - Whales On Sea (Vicente Panach Remix) [6:36]
+02. GLF - So Far (Original Mix) [5:32]
+03. James Kitcher & Adam Taylor - Avenues (Original Mix) [7:14]
+04. Gerry Galago - Dreamscapes (Radio Mix) [3:48](   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7AB059F6F4C56793FCCA98ED9ED3C12BB796FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699186   (117956) от 12.02.2024
+
+VA - Deep Sexy Funky House (2024) [MP3|320 Kbps] <House, Funky House, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charles J - Charles J (Original Mix) (4:13)
+02. Cheesecake Boys & Crazibiza - Negra (Original Mix) (4:41)
+03. House Of Prayers & Crazibiza - What A Night (Original Mix) (4:48)
+04. Funksoul Brothers - What I Do (Original Mix) (4:30)(   Читать дальше...   )Жанр: House, Funky House, Nu DiscoПродолжительность: 03:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F603A05844913B502D7B1A713D94DD5608E568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699579   (117684) от 14.02.2024
 
 VA - The No.1 Electro Album (2012) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Electro, Electro House>
@@ -684,64 +742,6 @@ Soft Cell - Memorabilia - A Man Could Get Lost E.P. (2024) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06E0DAE620079A2DB3151E3562E54223612DAACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700472   (117027) от 17.02.2024
-
-VA - Redux Selection Vol. 3 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob Binner - Blessing In Disguise (Extended Mix) [7:34]
-02. Air Project & Ruslan Aschaulov - Lost In The World (Extended Mix) [5:49]
-03. Masaru Hinaiji - I Need. I Feel (Extended Mix) [6:38]
-04. Alima x Nold - Somewhere In The Sky (Extended Mix) [5:57](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF317E9BFCED73928D9421D174FF4B6A51AC749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700435   (117021) от 17.02.2024
-
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 01 (2024) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alisha DJ - Forest Lake (Radio Edit) [3:43]
-02. Amir Rad - After The Flood (Original Mix) [6:00]
-03. Born 87 - Blame (Extended Mix) [5:56]
-04. Gosselt - In Too Deep (Original Mix) [3:40](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5780455A3DFA476EAA0133020AB89B0F003A705
 ```
 
 https://mybot314.ru/tekegram_catalog/

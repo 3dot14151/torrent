@@ -1,32 +1,3 @@
-###  Публикация: 1008500   (814970) от 18.04.2016
-
-Metallica - Kill 'Em All (2016) 6CD Remastered Deluxe Edition  [MP3|320 кб/с] <Rock, Thrash-metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit The Lights (Live)
-02. The Four Horsemen (Live)
-03. Jump In The Fire (Live)
-04. Fight Fire With Fire (Live)(   Читать дальше...   )Жанр: Rock, Thrash-metalПродолжительность: 05:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1209D22B11A2F57B933964D9ECA62304A3D7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504142   (814199) от 22.10.2021
 
 Wayward Sons - Even Up The Score (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -745,6 +716,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C07BD2B38EC96B61BAFA3A4AEC1FC5A1F93505C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882916   (812835) от 31.03.2015
+
+Александр Чернецкий (Разные Люди) - Чёрный ворон - я не твой! Том I. Студия (2014) 21 CD box [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная студийная антология творческого пути Александра Чернецкого. 21 CD (включая неизданный материал) в конвертах + 2 буклета: 40 и 44 страницы.01. Становись!
+02. Тревожная
+03. Бесы
+04. Чернец(   Читать дальше...   )Жанр: RockПродолжительность: 20:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF652A6BD8D4DBDB41F6E8E1E0D3C8660A6585BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1234137   (574427) от 03.07.2018
-
-Жуки - Разное (2018) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Влечение (3:15)
-02. Окрошка (3:19)
-03. Батарейка (3:49)
-04. На Крыжополь поворот (2:31)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BA4F1C3B6BE99B0A5E4B4588BDFA4F326FEF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151139   (574352) от 18.07.2017
 
 Universal Hippies - Mother Nature Blues (2017) [FLAC|Lossless|image + .cue] <Instrumental, Heavy Blues, Psychedelic Rock>
@@ -751,6 +722,35 @@ Eric Gales - A Night on the Sunset Strip (2016) [FLAC|Lossless|image + .cue] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:194FFD394FA650281D37D0ACE1D803966F144492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043264   (572685) от 16.08.2016
+
+Pooh - 1981-1984 (2011) [FLAC|Lossless|image + .cue] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572685.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chi Fermera' La Musica 1981
+2. Siamo Tutti Come Noi 1982
+3. Canzone Per L'inverno 1982
+4. Hurricane (Rotolando Respirando) 1980(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEAF11CCDCACB5730BF9114DDDF36584493A901
 ```
 
 https://mybot314.ru/tekegram_catalog/

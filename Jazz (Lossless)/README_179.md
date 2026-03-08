@@ -1,3 +1,32 @@
+###  Публикация: 943413   (449691) от 03.10.2015
+
+Mildred Aubry - Caminho (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caminho (3:12)
+02. Amor Em Banho-Maria (3:06)
+03. Cancao Pra Voce (3:25)
+04. Filosofia (2:44)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF6B91077797110DCF2A426292E8EC08565E454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943107   (449689) от 03.10.2015
 
 Monique Dimattina - Everybody Loves Somebody (2015) [FLAC|tracks]<Vocal Jazz>
@@ -721,35 +750,6 @@ Oscar Peterson, Stephane Grappelli - Skol (1979) 1990, Original Jazz Classics [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D63EBF3638C65B808DD07E7F868E2D2A3D2CCB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706047   (446615) от 01.10.2013
-
-Pharoah Sanders - Spiritual Blessings (2013) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Colors   (5:39)
-02.  Astral Traveling   (5:50)
-03.  The Creator Has A Masterplan   (9:09)
-04.  Wisdom Through Music   (5:44)(   Читать дальше...   )Жанр: Jazz, Free JazzПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2FCC1762856615265E60EEDF9F63BA494FC0917
 ```
 
 https://mybot314.ru/tekegram_catalog/

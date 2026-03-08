@@ -1,3 +1,90 @@
+###  Публикация: 1614553   (1038610) от 22.02.2023
+
+Empty - Omnia Amet Lorem (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Self Dissolves Into Demise (02:17)
+02 - Inclination Towards Decay (06:16)
+03 - The Bleakness of Elderness (07:42)
+04 - Hungry For Emptiness (06:58)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4583E16E4A747B0AF48D54578DCB394089D498B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614512   (1038607) от 22.02.2023
+
+Thumos - Symposium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phaedrus [00:05:20]
+02. Pausanius [00:05:54]
+03. Eryximachus [00:04:20]
+04. Aristophanes [00:05:52](   Читать дальше...   )Жанр: Progressive Doom, Post-MetalПродолжительность: 00:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6136E9910AA8ACEB6B9E98D7466AFC68C482E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614526   (1038606) от 22.02.2023
+
+Oceanhoarse - Heads Will Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall Like Dominoes [00:05:39]
+02. Help Is On The Way [00:04:52]
+03. Pryopen [00:03:58]
+04. Brick [00:02:45](   Читать дальше...   )Жанр: Heavy, Groove Metal, Hard RockПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D11BD5606DB8B5EFB394DE506CFD9E5EADB191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614523   (1038604) от 22.02.2023
 
 Shell Beach - Solar Flare (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Progressive Rock>
@@ -658,93 +745,6 @@ Accept Death - Accept Death (2006) [FLAC|Lossless|image + .cue] <Sludge Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50C4C659B8338B318CA31F11942C7871E3F79445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615194   (1037584) от 26.02.2023
-
-Maerzfeld - Alles Anders (2023) [FLAC|Lossless|WEB-DL|tracks] <NDH, Alternative, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alles anders [00:03:13]
-02. Wach auf [00:03:24]
-03. Bakkushan [00:03:22]
-04. Ich bin der Tod [00:03:32](   Читать дальше...   )Жанр: NDH, Alternative, Industrial MetalПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFDCAF2C74212A42B7C717F7CF90E8D4178313C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441718   (1037561) от 22.01.2021
-
-Fluisteraars - Bloem (2020) Limited Edition [FLAC|Lossless|tracks + .cue] <Black Metal, Blackgaze, Post Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tere Muur (5:28)
-02. Nasleep (7:44)
-03. Eeuwige Ram (6:21)
-04. Vlek (7:02)(   Читать дальше...   )Производство: Eisenwald Tonschmiede – Eisen157Жанр: Black Metal, Blackgaze, Post Black MetalПродолжительность: 00:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDB6C44943CD5CA66B925C2A3692F275964E0B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441706   (1037519) от 22.01.2021
-
-Labyrinth - Welcome to the Absurd Circus (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Absurd Circus (6:17)
-02. Live Today (5:41)
-03. One More Last Chance (6:13)
-04. As Long as It Lasts (5:18)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5917CB067A73A80CC66B95F23C12E7414CB605A
 ```
 
 https://mybot314.ru/tekegram_catalog/

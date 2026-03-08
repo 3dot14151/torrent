@@ -1,3 +1,32 @@
+###  Публикация: 936055   (497662) от 10.09.2015
+
+The Australian Jazz Quartet - The Australian Jazz Quartet (1955) /2014, Solid Records/[FLAC|tracks+.cue]<Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring Is Here [03:14]
+02. Autumn Leaves [03:29]
+03. Thou Swell [03:32]
+04. Nostalgia [04:44](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4424DBA9AB752D59806C7A695652E0A1C205DC8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936031   (497661) от 10.09.2015
 
 Jimmy Heath - The Quota (1961) /1995, OJC/[FLAC|tracks+.cue]<Hard Bop>
@@ -734,35 +763,6 @@ Masayoshi Takanaka - The White Goblin (1997) [FLAC|Lossless|tracks + .cue] <Fusi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B337D4D53D520363B27CCAF16546625F11504B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243233   (494231) от 26.08.2018
-
-Warne Marsh & Kenny Drew Trio - I Got A Good One For You (1980) 1999, Storyville [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got A Good One For You [4:51]
-02. Sophisticated Lady [7:45]
-03. On Green Dolphin Street [4:30]
-04. Sippin’at Bells [5:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A0906F81C15F2AA1F318BDF83FB9641A242760
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1782596   (26033) от 01.03.2025
+
+VA - Club Charts Top 100 - Winter Edition 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26033.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Plastik Funk - Everybody Up (3:26)
+002. SvenDeeKay - Down (2:41)
+003. Brooklyn Bounce - Love & Bass (The Official Anthem of Loco Beach) (2:30)
+004. The Teachers - Calling for Me (3:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0291BAC0B143E417C7FBC31FFBA20F078DC85CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783091   (25830) от 03.03.2025
+
+VA - Trance Top 100, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25830.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rene Ablaze - Red Sea 2030 (Original Mix) (6:52)
+002. Christopher Corrigan - Delectation (Original Mix) (3:26)
+003. Carl Daylim - Hand in Hand (Original Mix) (3:19)
+004. Daniel Cesana - Phoenix (Original Mix) (3:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB98FB780F10AADA2B7AD7CE3F0AFDB4215D8278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783070   (25731) от 04.03.2025
 
 VA - In the Mix with Neil MD (2025) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ PanteRa - Bad Angel (2025) [MP3|320 Kbps] <Eurodance, Eurobeat, Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8145D21445C9FDE6A6381F11865735D6432BAC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788486   (23003) от 30.03.2025
-
-VA - The Chillout Escape: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ian Otta - Green River (4:05)
-02. G.Pantelidis - Back to Loveliness (3:32)
-03. Marga Sol - Cottontrees (4:36)
-04. Lounge Groove Avenue - Dreamwaves (3:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A298DDCBA7AB40C4D97848E6AE4FCCB0220227A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789226   (22598) от 03.04.2025
-
-VA - SYNTHPOP NOSTALGIA (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Ha - Take On Me (3:44)
-02. Laura Branigan - Gloria (4:55)
-03. Duran Duran - Hungry like the Wolf (3:40)
-04. New Order - Age of Consent (5:15)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D7CF1AF072BB9E55CAFE26961ACD095BCEAA2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

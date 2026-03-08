@@ -1,3 +1,61 @@
+###  Публикация: 1299907   (595980) от 03.05.2019
+
+VA - 90s Dance Hits, Vol. 3 (2019) [MP3|320 Kbps] <Dance, Electronic,  Eurodance,  Eurobeat>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C+C Music Factory - Gonna Make You Sweat (Everybody Dance Now) 4:06
+02. Salt-N-Pepa - Push It 4:29
+03. Robin S. - Luv 4 Luv (Stone's Radio Edit) 4:13
+04. La Bouche - Sweet Dreams (Radio Edit) 3:26(   Читать дальше...   )Жанр: Dance, Electronic,  Eurodance,  EurobeatПродолжительность: 02:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2664F42F7788FC9A10319A62CA4750FCBEC2F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039603   (595917) от 01.08.2016
+
+Catherine Clarnette - Bold (2016) [MP3|320 Kbps] <Alternative Pop, Dark Pop, Jazz Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Couldn't Let You Win
+02. Tango
+03. It Won't Be Me
+04. Never Live the Same Way(   Читать дальше...   )Жанр: Alternative Pop, Dark Pop, Jazz PopПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A7C99703A8D06A28F2ED4A8A7AF83BE05639CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527058   (595528) от 25.07.2012
 
 Schnuffel - 3 альбома + 5 синглов (2008-2009) [MP3|320 kbps]<Pop>
@@ -716,64 +774,6 @@ Pavel Panchenko - To the Stars (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92F64BA264E01B9CA1C0FA7DB60BAE3FA59404DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549679   (593386) от 07.05.2022
-
-VA - Alexis Le-Tan & Jess Present Space Oddities (2008) [FLAC|Lossless|WEB-DL|tracks] <Disco, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roland Bocquet - Exotique (2:32)
-02. Jean-Pierre Decerf & Gerard Zajd - Reaching the Infinite (3:23)
-03. Alan Shearer - Sons of the Snake (5:24)
-04. Phil Davies & Ch. Ried - Muscle and Heat (4:01)(   Читать дальше...   )Жанр: Disco, Space-DiscoПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DD80C1C9EEAEA45A83F5BDE15BC549E348B8E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549676   (593346) от 07.05.2022
-
-VA - Italo Disco Tracks Vol. 1 (2005) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Bedford - More Than a Kiss (3:50)
-02. Joy Peters - Don't Lose Your Heart (3:07)
-03. Cliff Turner - Moonlight Affair (3:24)
-04. Chickeria - Le Freak (3:30)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C124D168E82C2F4B0556246C17C01BBF61E7075
 ```
 
 https://mybot314.ru/tekegram_catalog/

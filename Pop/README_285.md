@@ -1,3 +1,61 @@
+###  Публикация: 1619906   (201172) от 18.03.2023
+
+Татьяна Буланова - Таня, дыши! (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201172.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Таня, дыши!
+2. Ты моё безумие
+3. Без тебя одиноко
+4. Бриллианты на снегу(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71119475A3A08A61796283A296B18ADDC97755E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620362   (201146) от 19.03.2023
+
+Татьяна Буланова - Таня, дыши! (2023) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201146.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Таня, дыши!
+2. Ты моё безумие
+3. Без тебя одиноко
+4. Бриллианты на снегу(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B471AD30D58DE992E8E8C7D97D3A66FED0C795B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489422   (200754) от 27.03.2023
 
 Kim Wilde - Pop Don't Stop (Greatest Hits) [2CD] (2021) [FLAC|Lossless|image + .cue] <Pop>
@@ -690,64 +748,6 @@ Patrick Cowley - Hard Ware (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi NRG>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F75AED752DB25C0C701142C44F62A02BDFA9F6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586799   (193256) от 29.10.2022
-
-Ярослав Евдокимов - Лучшие песни (2001) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Фантазер
-02. Колодец
-03. За Дунаем
-04. Вишневый сад(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA4279C2061ED48E2BB04226EA1073E641D674B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587126   (193221) от 29.10.2022
-
-PG Roxette (Per Gessle & Roxette) - Pop-Up Dynamo! (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Per Gessle Talks P-UD! - Album title (1:01)
-02. Per Gessle Talks P-UD! - Background #1 (0:50)
-03. Per Gessle Talks P-UD! - Background #2 (0:46)
-04. Per Gessle Talks P-UD! - Background #3 (0:44)(   Читать дальше...   )Жанр: Pop, Pop-Rock |Продолжительность: 00:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E1DCEEFDB8D173D0B15E057FB45C1550707E71
 ```
 
 https://mybot314.ru/tekegram_catalog/

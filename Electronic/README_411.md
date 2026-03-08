@@ -1,3 +1,61 @@
+###  Публикация: 1342171   (225429) от 01.12.2019
+
+Aly & Fila - It's All About The Melody (2019) [FLAC|Lossless|WEB|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila - It's All About The Melody (Original Mix) (6:10)
+02. Aly & Fila - Sands Of Time (Original Mix) (4:48)
+03. Aly & Fila with Deirdre McLaughlin - Gravity (Original Mix) (5:57)
+04. Aly & Fila - Plucked (Original Mix) (6:24)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C1ECC936855F894079D12D498F685231D3D7B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513336   (225357) от 28.11.2021
+
+VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [FLAC|Lossless|tracks + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giorgio Moroder - Chase (3:51)
+02. U2 - New Year's Day (3:57)
+03. Vangelis - Pulstar (3:51)
+04. Alan Parsons - Mammagamma (4:30)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E47E44865036DF70CD0F0C86875751CA865D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584239   (225356) от 18.10.2022
 
 Desireless - Voyage, Voyage - Greatest Hits (2003) [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop>
@@ -696,64 +754,6 @@ VA - Mellow Moments: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBAFB52E441D61D4E58661D172F26300024CB6F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268740   (224075) от 12.12.2018
-
-Infected Mushroom - Head of NASA and the 2 Amish Boys (2018) [MP3|320 Kbps] <Psy-Trance, Dubstep, Electro House>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bliss on Mushrooms (feat. Miyavi)
-02. Guitarmass
-03. Head of NASA
-04. Chenchen Barvaz(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C3C70FF85A564B3C758629AF74DA213B9F75FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342491   (223997) от 02.12.2019
-
-VA - Santorini: Relaxing Chill-Out Luxury Lounge (2019) [MP3|320 Kbps] <Electronica, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Loungemasters – The Pelican Flight (3:51)
-02. Walter Bonade – Mi Angelito (2:33)
-03. Rue De Luxe – Breathing (4:49)
-04. Elsa Martignoni – Reale (3:28)(   Читать дальше...   )Жанр: Electronica, DowntempoПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0DA783FD7EEACAF7F4D49EBB634196EEDFE8E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

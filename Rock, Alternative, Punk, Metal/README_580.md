@@ -1,32 +1,3 @@
-###  Публикация: 1158759   (489962) от 17.08.2017
-
-Артур Беркут - Быть собой (2017) Maxi-Single [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Быть собой
-02. За нами вслед
-03. Всё сначала
-04. Павшего замка песок(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DD1432699A0BCDC3C916931E1607A24E251B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937159   (489904) от 14.09.2015
 
 My Dying Bride - Feel the Misery (2015) [MP3|320 кб/с]<Doom Metal>
@@ -757,6 +728,35 @@ Preludio Ancestral - Oblivion (2018) Japan [FLAC|Lossless|image + .cue] <Symphon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE62E047E43AAE539CBAF81118545490CD9010A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243769   (488282) от 29.08.2018
+
+Lizzy Borden - My Midnight Things (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Midnight Things
+02. Obsessed with You
+03. Long May They Haunt Us
+04. The Scar Across My Heart(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1155C27BFD1E6119766E7D8BE0E95E7178A1274F
 ```
 
 https://mybot314.ru/tekegram_catalog/

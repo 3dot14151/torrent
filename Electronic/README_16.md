@@ -1,3 +1,61 @@
+###  Публикация: 1439966   (1039340) от 15.01.2021
+
+VA - Abora Progressive: Best Of 2019-2020 (Mixed by Tycoos) (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kometillo & Alaera - Imagine Me Here (Progressive Dub Mix)
+02. Illitheas & Pedro Del Mar feat. Tiff Lacey - Lightning (Extended Mix)
+03. INCI3ION feat. Zara Taylor - Holding On (Original Mix)
+04. Algiz - Until The Last Moment (Mhammed El Alami Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C60C23163688C770D85204BD73140D51C25FEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439828   (1039286) от 15.01.2021
+
+VA - Balearic Headspace Volume 1-5 (2016-2020) [MP3|320 Kbps] <House, Nu-Disco, Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BestInSpace - Emmanuelle Kant (4:16)
+02. Hong Kong Syndikat - Too Much (7:12)
+03. Massimo Vanoni - For Your Love (8:24)
+04. Tripman & Sandrobianchi - Woman (6:24)(   Читать дальше...   )Жанр: House, Nu-Disco, DiscoПродолжительность: 09:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCE20E95297953FF675A45F4983FF1C93D54C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439984   (1039280) от 15.01.2021
 
 Thomas Lemmer - Ambient Nights (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Ambient, Downtempo>
@@ -686,62 +744,6 @@ Diary of Dreams - Melancholin (2023) [MP3|320 Kbps] <Darkwave, Goth Industrial>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0958E63E8CE4398E4B7916A8695366723C372CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441239   (1037994) от 20.01.2021
-
-VA - Alpha 9 Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Keeley – A Sort of Homecoming (Michael Cassette Extended Mix) (07:24)
-02. ALPHA 9 – Before the Dawn (feat. Kameron Alexander)Жанр: Progressive House, TranceПродолжительность: 01:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4914DA1969F1FD807F180C7251C0B1F78A11166C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615428   (1037863) от 25.02.2023
-
-Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2023-01-03) [MP3|320 Kbps] <Progressive House, House, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture & Fideles ft. Be No Rain - Let You Go
-02. ID - ID
-03. TouchTalk - Domo
-04. George Kwali - Feel The Heat(   Читать дальше...   )Жанр: Progressive House, House, Melodic HouseПродолжительность: 03:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E84C8D501E6EB231E23C40B93FB2A244BF39AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

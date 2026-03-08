@@ -1,3 +1,174 @@
+###  Публикация: 1042118   (579605) от 12.08.2016
+
+VA - I Met Her in Ibiza (2016) [MP3|320 Kbps] <Club, Tech House, Funky, Tribal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microwave Monkeys - I've Been Thinking About You 05:49
+02. Eddy Chrome - Island Of Love (Radio Edit) 03:54
+03. Mattei, Omich & Re-Tide - Soul Man 06:28
+04. Sounds Of Summer - Praise The Sun (Radio Version) 03:46(   Читать дальше...   )Жанр: Club, Tech House, Funky, TribalПродолжительность: 05:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6203CF39C3F12AD53CE5F2205D5B433C6F02EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042195   (579603) от 12.08.2016
+
+VA - Ultra Pleasure Music DJ (2016) [MP3|320 Kbps] <UK Garage Club, Funky, Jackin, Tech House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Octave One Feat Ann Saunderson - Just Dont Speak (Blue Sunset Vocal) 06:40
+02. Dj Sgz Feat Elliott Blackler - Love Vibration (Original Mix) 09:08
+03. Malikk - Favourite Addiction 05:06
+04. Doug Gomez Feat Ayaba - Disruptive (Tambortech Vocal) 07:41(   Читать дальше...   )Жанр: UK Garage Club, Funky, Jackin, Tech HouseПродолжительность: 07:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DB39D9BAB8AED873922C3B533374BFDB4D7AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042299   (579601) от 12.08.2016
+
+VA - Music For Everyone - Progressive house Vol.5 (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579601.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. DEEZDLUX – Sunlight (Original Mix)
+2. Joshua Ollerton – Foreplay (Original Mix)
+3. The Madison – Overnight (Original Mix)
+4. Nigel Good feat. Sarah Clark - This Is You (Blood Groove & Kikis Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328A5C4BA090129A8F11BEBDC8F7AA9E958A54B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042263   (579590) от 12.08.2016
+
+VA - Летняя хитмания №4 Best (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579590.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arseniya - Найти Тебя
+002. Jarina De Marco - Paranavigar
+003. T-Killah - Привет Как Дела
+004. The Avener & Kadebostany - Castle In The Snow(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9D54C1AAADE1AAB4116155E8B2C2399BA08294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360423   (579555) от 08.07.2011
+
+VA - Музыкотерапия. Повышение потенции (2011) [MP3|320 kbps]<Instrumental / Саксофон>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental / СаксофонПродолжительность: 06:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821A6F8225836AEAC19B9A05832507DA3F3D1563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042109   (579529) от 12.08.2016
+
+VA - Billboard Hot 100 Singles Chart 20.08.2016 (2016) [MP3|128-320 Kbps] <Pop, Folk, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579529.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sia Feat Sean Paul - Cheap Thrills
+002. Drake Feat Wizkid And Kyla - One Dance
+003. Calvin Harris Feat Rihanna - This Is What You Came For
+004. Justin Timberlake - Cant Stop The Feeling(   Читать дальше...   )Жанр: Pop, Folk, Hip-Hop, RnBПродолжительность: 06:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B75E21838CFC556274FB493FB50CC6BD74B9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302757   (579272) от 17.05.2019
 
 Joy Harjo - Sweet Dreams (Collection) (2019) [MP3|~245 Kbps (V0), CBR ] <Native american, Folk, World>
@@ -568,177 +739,6 @@ VA - Lounge Music Players (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41F1EA50D276CF0D4136BD71F11FE84A8DC2E0C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042534   (578514) от 13.08.2016
-
-VA - Motel Atlantique: Gold Selection (2016) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roy Real - Is to the Work - Deep Guitar Mix
-02. Rick Warrol - Wide Panoramas - Deep Lady Mix
-03. Matt Maxim - Spontaneous Lightness - Early Morning Deep Mix
-04. Nic Cherokee - Lights Ahead - House Room's 69 Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA63380621FB0B47F20BB000E2EBA2A9A19BB35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042514   (578510) от 13.08.2016
-
-VA - Summer Chillout & Lounge Session (2016) [MP3|320 Kbps] <Balearic, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillo - Chillo Three (Lounge Mix) 04:21
-02. The Vault - Banyuwang 08:27
-03. Pusteblume - Cold As Ice (Wonderful Lounge Mix) 07:20
-04. Sounds Of Summer - Praise The Sun (Vocal Beachhouse Mix) 05:53(   Читать дальше...   )Жанр: Balearic, Ambient, DowntempoПродолжительность: 04:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C566DD03511944BE94124C56DDFE4B8DC5DE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360711   (578495) от 09.07.2011
-
-VA - Лучшие хиты 80х Русский (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5BF3DE3C72BE607BE7F86329A8867557EA3C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042484   (578472) от 13.08.2016
-
-VA - EDM Bash Vol.1 (2016) [MP3|320 Kbps] <House, Electro House, Melbourne Bounce, Bigroom>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz  -  Heatwave (feat. Akon) (Remady Remix)  3:47
-02. Laidback Luke & GTA  -  The Chase (feat. Aruna) (Evangelos & Subshock Remix)  3:26
-03. Axwell  -  Barricade (Radio Edit)  4:53
-04. Fedde Le Grand  -  Rhythm of the Night (Club Mix)  4:17(   Читать дальше...   )Жанр: House, Electro House, Melbourne Bounce, BigroomПродолжительность: 02:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B48AEF55E526683A6CEE9ED5C1157031B1921E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042563   (578461) от 13.08.2016
-
-VA - Chillout Lounge Lovers (2016) [MP3|320 Kbps] <Balearic, Ambient, Downtempo, Trip Hop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Mood - Smiling City 05:34
-02. Schwarz & Funk - Angels 06:48
-03. Shantay Huntington - Vivian Beach 04:42
-04. Best Of Chillout Lounge - Sylt (Sensibar Mix) 04:52(   Читать дальше...   )Жанр: Balearic, Ambient, Downtempo, Trip HopПродолжительность: 04:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E7D476666AA4A4B1CE4480EA049381E2C8DE5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042398   (578460) от 13.08.2016
-
-VA - Deep House - Gold Collection (2016) [MP3|320 Kbps] <House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Igor Pumphonia  -  Slow Motion (Deep Mix)  5:20
-02. Vincent Vega  -  Feel Me  5:41
-03. Pikalov  -  Face in the Sound  4:01
-04. Paul Seta  -  Hawaii  4:06(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D53AE7C7F285ABA6C127FC832096A464A7390EBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

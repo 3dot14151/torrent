@@ -1,3 +1,119 @@
+###  Публикация: 1090134   (947505) от 06.01.2017
+
+VA - SpaceSynth & ItaloDisco Hits - 18 оt Vitaly 72 (2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Hi NRG>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947505.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Citizens! - True Romance (Gildas Kitsuné Club Night remix) 6:12
+002. Clock On 5 - Romantic Dreams 2:51
+003. Apostackers - Apostackers (Synthleslie ft. Leroy Version) 5:27
+004. Alexander Pierce - Sunlights  (New Retro Wave 80's Mix) 4:48(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi NRGПродолжительность: 05:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1124AAB363B1C3F8A9F3A082C31C8ACEFEC1CEDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090022   (947441) от 06.01.2017
+
+VA - EuroHit Top 40 - Итоги Года (2016) [MP3|320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947441.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eva Simons & Sidney Samson - Bludfire 3:10
+002. Sia - Unstoppable 3:38
+003. Adele - Hello (Cosmic Dawn Club Mix) 6:11
+004. The Weeknd - The Hills 4:02(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 02:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81192C477B7A2C79B6C6ED38E05B7584BB56A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090114   (947431) от 06.01.2017
+
+VA - Dancefloor Winter Christmas Hits (2017) [MP3|320 Kbps] <Electro, Reggae, Moombahton, Synthpop, R&B, Holiday, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Bisbal - Antes Que No (Sak Noel Remix) 03:25
+02. The Chainsmokers Ft Phoebe Ryan - All We Know (Oliver Heldens Remix) 03:03
+03. Cupid - Cupid Shuffle (Shan Tha Don Remix) 03:21
+04. Devolve - Gal Dem Roll 03:04(   Читать дальше...   )Жанр: Electro, Reggae, Moombahton, Synthpop, R&B, Holiday, DanceПродолжительность: 02:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58687D4741C03C1F71FE4AD1149852C8EEAECDFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089956   (947117) от 06.01.2017
+
+VA - Winter Hits (2017) [MP3|320 Kbps] <Club , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947117.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3LOGY - The Banjo (Dj Desving Refresh)
+002. Will Fast - You & I (Original Mix)
+003. Morandi - Keep You Safe (Dj Andy Light & Dj O'Neill Sax Remix)
+004. Ste Essence feat. Vicky Jackson - Don't Play With My Love (Original Mix)(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 05:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A17E92BFEA8948AF155D75F021B2F3807BEABDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982718   (947059) от 04.02.2016
 
 VA - Silver Voice: RnB Dolce Boom (2015) [MP3|320 кб/с] <RnB, Soul, Funk>
@@ -635,122 +751,6 @@ VA - Happy Workout Rush Hits (2017) [MP3|320 Kbps] <Bassline, Progressive, Regga
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C6AE0F8834564825E90E9198B98138D2B3833EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091846   (941569) от 10.01.2017
-
-VA - Empire Records - Dancenudisco 2 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4U - Long Ride (Original Mix)
-02. New Order - People on the High Line (Richard X Radio Edit)
-03. KRAUZE, Display AV - Pixel (Original mix)
-04. Abraham Ruiz - No Returnable (Original Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810AB8D37EB2C7E4AC49E46ACBF49B4B17CF2698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091853   (941527) от 10.01.2017
-
-VA - Empire Records - Club Hit 4 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freddy Verano, LissA - Move Like Me (Extended Mix)
-02. Anya - Fool Me (Bentley Grey Nu Disco Remix)
-03. DJ Nil Anthony El Mejor Mischa – Closer (2ways IAMCULT Remix)
-04. James Harrison - Breakdown (Original Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0379FC6899D5192A22A3B15E06D69C2E65CE3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091641   (941511) от 10.01.2017
-
-VA - LUXEmusic: Dance Super Chart Vol.101 (2017) [MP3|320 Kbps] <House, Mash Up, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alex Milano & Денис Раско - Двигай (Extended Mix)  3:42
-02.  Fargo - Мой Папа Из ФСБ (DJ Ice Radio Edit)  3:10
-03.  Depeche Mode - Precious (DJ Shevtsov Remix)  6:09
-04.  Burak Yeter feat. Danelle Sandoval - Tuesday (DJ Jurbas & DJ Trops Radio Edit)  2:54(   Читать дальше...   )Жанр: House, Mash Up, Club, DanceПродолжительность: 03:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF605DDC2127EE70D420FCFB3CBFDDC842BB13F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984280   (940170) от 08.02.2016
-
-VA - Top Club Music World Hits 10216 (2016) [MP3|320 кб/с] <Club, Progressive, House, Tropical, Bigroom>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatum & Judah - Ardan (Original Mix) 06:02
-02. Vander & Thomas - Not Gonna Take This 06:12
-03. Courage - Delusion (Original Mix) 05:30
-04. Bastian Salbart - Hold (Original Mix) 06:05(   Читать дальше...   )Жанр: Club, Progressive, House, Tropical, BigroomПродолжительность: 03:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DA26E0999C8BB8A70467D07FB072FCB77EA63B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1121147   (800711) от 02.04.2017
-
-Golgotha - Elemental Changes (1998) [APE|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emotionless 05:49
-02. Dark Tears 05:06
-03. The Way Of Confusion 06:22
-04. The Wood In Me 05:56(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED1993329F1F9EA2DD3322E4201A3F3CBE9EC2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121152   (800658) от 02.04.2017
 
 Demented Ted - Promises Impure (1993) [APE|Lossless|image + .cue] <Death Metal>
@@ -739,6 +710,35 @@ Skyclad - Vintage Whine (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3505CD872104653DE306BD3B6717F21F42CE137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385230   (800201) от 23.05.2020
+
+Babooshka - Православный Аватар (2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800201.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Отмороженные во Христе
+2. How Do You Do
+3. Вата
+4. Душевные терзания(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A8F6CB2697549C6465BA036C5635E71C9F68BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

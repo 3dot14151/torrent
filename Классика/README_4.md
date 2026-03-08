@@ -1,3 +1,32 @@
+###  Публикация: 265060   (960859) от 20.01.2014
+
+VA - Новогодняя ночь (2008) Ридерз Дайджест 4CD [MP3|320 kbps] <Vocal, Classical>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник мелодий и песен на тему "Новогодняя ночь" от Ридерз Дайджест.ТИХАЯ НОЧЬ
+01. Silent Night
+02. В лесу родилась елочка
+03. Lo, How a Rose E're Blooming(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 04:30:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 154210   (960618) от 25.01.2016
 
 VA - 100 Best Baroque  (2006) 6CD Box-set,  серия "Best 100" [FLAC|Lossless]<Classical>
@@ -716,35 +745,6 @@ Daniil Trifonov - Transcendental - Daniil Trifonov Plays Franz Liszt (2016) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:562C8EDFB085DF87804A54F6F2FFE1D763A54189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984116   (940059) от 08.02.2016
-
-Federico Albanese - The Blue Hour (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nel Buio (1:22)
-2. Time Has Changed (6:05)
-3. Migrants (3:57)
-4. Shadow Land, Pt. 1 (3:56)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CD989538229046C68A5C9B8215575BBAA540C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

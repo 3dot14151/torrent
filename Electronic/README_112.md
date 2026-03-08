@@ -1,3 +1,61 @@
+###  Публикация: 1116425   (823101) от 20.03.2017
+
+VA - Total Trance Selections Vol.03 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mike Demirele - The Chosen One (James Kitcher Remix)  8:42
+02.  Frainbreeze - Black Eagle (Original Mix)  5:25
+03.  Olegkooo - 7Sky (Original Mix)  7:40
+04.  InnerSync - Synergy (Original Mix)  6:37(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6C66B4EE5103A2492D19681D271A63A4C55FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007327   (823020) от 14.04.2016
+
+Klartraum - E (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyfall (Club Mix) (06:53)
+02. Dark Space Night (07:40)
+03. Sweetness (07:47)
+04. Bell Birds Dub (08:08)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 02:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA53FED156D79A94E675E45666A8B742C33DE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116514   (823005) от 20.03.2017
 
 VA - Inner Balance Chillout Your Soul 1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -683,64 +741,6 @@ The New Deal - Live: Portland Me 12.17.99 (2000) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B046D12EC8D1457BC5DEFD8787C1F3DA01B0AD87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007439   (821511) от 15.04.2016
-
-VA - Re:Recommended - Progressive House Edition Vol.7 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AKADIAN - Pseudo (Original Mix) 05:32
-02. Axay - Madagascar (Original Mix) 05:04
-03. Presskit, Naza Brothers & Braudt - I Remember (Club Mix) (feat. Kathy) 05:19
-04. Nikky Mik - Dream (Original Mix) 04:00(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53956C12AE2485FE2E834A7657E45B19FA83A120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006797   (821408) от 15.04.2016
-
-The Motels & Martha Davis - 6 Albums (1979-1987) [MP3|320 кб/с] <New Wave, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821408.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Motels - музыкальная New Wave группа из Лос-Анджелеса, известная прежде всего своими хитами "Only the Lonely" и "Suddenly Last Summer". Первый состав The Motels сформировался в Беркли, Калифорния в 1971. Лайза Бреннейс (бас) уговорила Дина Чемберлена (ведущий гитарист), Чака Уода (ритм-гитара) и Марту Дэвис (вокал, гитара) стать участниками (   Читать дальше...   )Список альбомов:
-01. 1979 - The Motels - Motels
-02. 1980 - The Motels - Careful
-03. 1982 - The Motels - All Four One(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 04:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F691E30EB8166D45820E2BA4B787F75C51D22873
 ```
 
 https://mybot314.ru/tekegram_catalog/

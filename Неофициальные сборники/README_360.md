@@ -1,3 +1,189 @@
+###  Публикация: 530675   (560690) от 03.08.2012
+
+VA - Музыка для тачки 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Flo Rida - Whistle
+02 Ассорти - Ангелы
+03 2-4 Grooves - Rockset 2012 (Video Edit)
+04 Маша Пирожкова - На юг
+05 Djane Housekat Feat. Rameez - My Party (Radio Version)
+06 Казанова - Попа-опа
+07 Remady &amp; Manu-L Feat. J Son - Single Ladies (Single Edit)
+08 A-Sen - Давай Поженимся (Dj Armilov &amp; Dj S-Nike Radio Version)
+09 Edward Maya Feat. Violet Light - Back Home
+10 G-Nise feat. Алексей Кабанов - Наше лето(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1EB3A3FBAEF301D3FC9C48D52113F774296656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924065   (560661) от 02.08.2015
+
+VA - Валерию Меладзе от Velvet Music: Юбилей 50 лет (2015) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вера Брежнева - Салют, Валера!
+02. Анна Семенович - Мечта
+03. Альбина Джанабаева - Говорила Ты
+04. MBAND - Сделай Это Прямо Сейчас(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1725AE4E182DD478757E64392D4443B49DF120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923937   (560653) от 02.08.2015
+
+VA - Car Audio. Только позитивные впечатления. (Sound Clinic - Special Edition) (2015)[MP3|160-320 к<Deep, Tech, G-House, Trap, Dubstep, Electro, Trance, Progressive, Tec
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560653.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 303Bastard - Nightingale (Original Mix)
+2. Active Child - Hanging On (Chrome Wolves Bootleg)
+3. Adana Twins - Strange (La Fleur Remix)
+4. Adnan Jakubovic - Robot S Dream (Pavlin Petrov Remix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Trap, Dubstep, Electro, Trance, Progressive, TechnoПродолжительность: 20:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9914A44272BE40889590B7F452AE25A0E766E471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529366   (560614) от 03.08.2012
+
+VA - Trance In Motion Vol.122 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.C-Systems & Bushi - Ari (Original Mix)
+02.Andain - Turn Up The Sound (Gabriel & Dresden Remix)
+03.Marcus Schossow & Matias Lehtola - Who You Are (Original Mix)
+04.Loverush UK vs. Maria Nayler - One And One 2012 (Protoculture Remix)
+05.Exitvibes feat. Mirjam - Amsterdam (Original Mix)
+06.Eximinds - Sunset 9PM (Original Mix)
+07.Nitrous Oxide - Energize (Original Mix)
+08.Zara feat. Jorge Nava - Broken (Original Mix)
+09.Dash Berlin feat. Chris Madin - Silence In Your Heart (club Mix)
+10.Dimension feat. Arielle Maren - Letting Go (Edu Progressive Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F185AA5660D7B29C9CEB38E9A6F1046F7014A4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923916   (560598) от 02.08.2015
+
+VA - Загорелая Попса: 100 Новинок Лета (2015) [MP3|256-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560598.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Натали & MC DONI - Ты такой (DJ Vadim Adamov radio ver.)
+002. Мохито - Я не могу Без тебя
+003. Константин Жиляков - Дожди
+004. Анжелика Начесова И Магомед Дзыбов - Я Не Стану Ждать Тебя На Берегу (Dj Wintows Dance Remix(   Читать дальше...   )Жанр: PopПродолжительность: 06:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554B084AE6DE45E8DDB9CFF16FDAF0B0A19FE10C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924133   (560403) от 02.08.2015
+
+ABBA - 25 Best Songs (2015) [MP3|~245 кб/с]<Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen 1976 (03:52)
+02. The Winner Takes It All 1980 (04:55)
+03. Super Trouper 1980 (04:15)
+04. SOS 1975 (03:22)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84819C1CB332AF2C0DFAB7AEC93A5C0768B89CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235346   (560361) от 11.07.2018
 
 VA - Folk Country Music (2018) [MP3|320 Kbps] <Country, Folk Blues>
@@ -577,180 +763,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CF9B672109540C47A2C0D275328F63F60598BAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045337   (559447) от 23.08.2016
-
-VA - The Night Piano and Sweet Classical Moments (2016) [MP3|320 Kbps] <Lounge, Classical,Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philip Bennetts - Proud Achievement (03:12)
-02. Francesco Morettini - Nel pianoforte in a Major (for Piano) (04:13)
-03. Pino Cangialosi - Rain on Kids (03:14)
-04. Gianluca Ricciardi - Conseguenze (04:49)(   Читать дальше...   )Жанр: Lounge, Classical, InstrumentalПродолжительность: 01:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DEAC384D2E1BBE0E2B5ED9A47D785BF0D84BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045374   (559439) от 23.08.2016
-
-VA - 90s Chart Hits - Extended Versions (2016) [MP3|320 Kbps] <Eurodance, Techno, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dune  -  Rainbow To The Stars (12 Inch Mix)  4:55
-02. Masterboy  -  Land Of Dreaming (Night Club Mix)  6:11
-03. Gigi D'agostino  -  The Riddle (Original Mix)  4:47
-04. Corona  -  The Rhythm Of The Night (Club Mix)  5:38(   Читать дальше...   )Жанр: Eurodance, Techno, ClubПродолжительность: 02:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D3B12C53BDC482D11454573FFBFC2594BF5E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924351   (559286) от 03.08.2015
-
-VA - Rome Lounge Sensation (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gold Knight - Rumbus [07:29]
-02. Rangiroa - Daybreak in Osaka [03:51]
-03. Gold Knight - Hungry for Glory - Extended Version [05:28]
-04. Nejmaoui - Beat Envolved [03:51](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89287051494DF4CC1D5A3F0E4ABAF5A05ACD14F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924497   (559176) от 03.08.2015
-
-VA - Tomorrow Night (2015) [MP3|320 кб/с]<Deep, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Explanatory - Penumbra
-02. Soul Emphasis - Going Deeper
-03. Mighty Real - Atonality
-04. Sigother - Double Motion(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 09:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967E19BC855B0EEDF7954F49D88E2495C91094A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924276   (559175) от 03.08.2015
-
-VA - Meet Me At The Pool (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superkid - Benotmane
-02. Dont Hesitate - Camman & Klaassen
-03. Fallin' - Sakloe Instrumental Mix - Juli-Lee
-04. Thoughtful - Lexer(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104A253B15F553CB9BDE5E061FF6B564D1D8F6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924535   (559165) от 03.08.2015
-
-VA - Summer Beach Party (2015) [MP3|320 кб/с]<Euro, Dance, Club, Vocal, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aggro Santos - Red Lips (Steve Smart Remix)
-02. Aimoon Vlad Varel Feat. Eva Kade - One More Night (Original Mix)
-03. Alexandra Stan Feat. Inna & Daddy Yankee - We Wanna (Dj Amor Remix)
-04. Alvaro Corz - My Head (Original Mix)(   Читать дальше...   )Жанр: Euro, Dance, Club, Vocal, ProgressiveПродолжительность: 06:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF1DA74464DBEFC7A652E7B35A9FFA791BCF163
 ```
 
 https://mybot314.ru/tekegram_catalog/

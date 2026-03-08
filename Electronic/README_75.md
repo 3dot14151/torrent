@@ -1,3 +1,61 @@
+###  Публикация: 1096748   (917785) от 25.01.2017
+
+VA - Vocal House on Ice Lech 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack & Jones - Lift Me Up (Outro) [00:01:23]
+02. Mr. Leading - One More Time [00:03:21]
+03. Massimo Vanoni - I See You (Fingerman's Disco Odyssey edit) [00:09:20]
+04. Re-Tide - Try This [00:06:35](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531287E590A6AD80108C469537947E4AEACCF8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097020   (917742) от 25.01.2017
+
+Das.RBT - At Night (2017) [MP3|320 Kbps] <Electronic, Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Dust (5:46)
+02. Acou (5:17)
+03. Agredezco (4:03)
+04. At Night (5:23)(   Читать дальше...   )Производство: Easy Summer LimitedЖанр: Electronic, Downtempo, LoungeПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B4BFF806ED8BA5A2DA1150DC3024323B525CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096971   (917722) от 25.01.2017
 
 VA - Chilled Mood Vol.2 (Finest in Chill Out & Ambient Music) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -684,64 +742,6 @@ Propaganda - 1234 (1990) [APE|Lossless|image + .cue] <Synthpop, New Wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:364840D17E9124535650FEBD04BD8D99D31D6B84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367684   (915551) от 16.03.2020
-
-VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legal - Holding Back [04:19]
-02. BK - Sleeper Cell [04:30]
-03. Jake Robertz - Guest List [04:37]
-04. B1tyze - International Clash [04:14](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6BF945C9651AB0882A7082413125401CDEB956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367685   (915514) от 16.03.2020
-
-VA - Buddha-Bar XXII (by Ravin) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компиляция всемирной известной сети ресторанов Buddha Bar. Выполнена в привычной манере - первый диск Dinner Time (как называют его работники сети). Красивый мультикультурный лаунж. Именно такая музыка играет в ресторанах "Будда Бар" во время обеда и ужина. Второй диск - Party time (обычно такая музыка звучит после 23:00 в ресторанах сети) - в этом году (   Читать дальше...   )01. Markus Schulz & HALIENE - Ave Maria (Acoustic Mix)  (3:47)
-02. Le Mirage du Maghreb - The Journey  (3:22)
-03. Paskal & Urban Absolutes feat. Susan - Close My Eyes  (4:26)
-04. Reewa & Ravin - Yaaram (Lounge Mix)  (4:32)(   Читать дальше...   )Релиз состоялся: 14 марта 2020 годаЖанр: Lounge, Chillout, AmbientПродолжительность: 02:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7462D5D92EDB2F59A7C3BEFD207A1523A68860
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1274316   (794163) от 06.01.2019
+
+Tender H - Sentido Oasis (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You & Me (05:52)
+02. Blue Pools (05:32)
+03. Play With Dolphin (06:08)
+04. Night Movement (06:18)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6481989FB325B9FDFBCAC0DDAC5019366EB45F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274309   (794161) от 06.01.2019
+
+VA - Freshly Picked Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Caillou – The Better Days (09:23)
+02. White Leaf – Limerence | Hosini Remix (06:32)
+03. Elias Dore – Ayasa (08:08)
+04. Darper – Kubu (08:32)(   Читать дальше...   )Жанр: Melodic Techno & HouseПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FACFA8D9C6A2FCE37B562DC5596EC7735E4AB14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274219   (794160) от 06.01.2019
 
 Bjorn Torske (Bjørn Torske) - Byen (2018) [FLAC|Lossless|tracks + .cue] <House>
@@ -688,63 +746,6 @@ FM-84 - Los Angeles (2015) EP [MP3|320 Kbps] <Electronic, Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36C2126C223E88399A0233D072CD1C2E6804F8CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042029   (793225) от 30.05.2020
-
-Clubroot - Discography 9 Releases (2009-2020) Lo Dubs Records [FLAC|Lossless|tracks+.cue, tracks] <Future Garage, Ambient, Dubstep, Bass, UK Garage>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infatuated (07:41)
- 02. Explorer (06:47)
- 03. For You (05:10)Тип издания: CD, WEBЖанр: Future Garage, Ambient, Dubstep, Bass •Продолжительность: 00:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40636008D402ECFA49B7E07ED33DC577F9750A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274584   (793061) от 07.01.2019
-
-Yves De Mey - Bleak Comfort (2018) Latency [FLAC|Lossless|WEB-DL|tracks] <Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gruen (05:58)
- 02. Mika (05:53)
- 03. Vecto (08:37)
- 04. Bleak Comfort (06:27)(   Читать дальше...   )Жанр: ExperimentalПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4350107FB071842827FB71978ACF8EDB6B1065
 ```
 
 https://mybot314.ru/tekegram_catalog/

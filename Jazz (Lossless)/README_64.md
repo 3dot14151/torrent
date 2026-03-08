@@ -1,3 +1,32 @@
+###  Публикация: 1009461   (810293) от 21.04.2016
+
+Joe Zawinul - The Rise & Fall Of The Third Stream (1967) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Baptismal [07:39]
+ 02.The Soul Of A Village - Part I [02:14]
+ 03.The Soul Of A Village - Part II [04:16]
+ 04.The Fifth Canto [07:01](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Third StreamПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D593108439A315369E81BAD610CA31476E809182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009368   (810292) от 21.04.2016
 
 Art Farmer - Art (1960) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -716,35 +745,6 @@ Art Farmer - Homecoming (1971/1972) Remaster, 2006, Sony Music[FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D33775D75A716A2F1A952384CA0935D086F65F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009680   (808358) от 22.04.2016
-
-The Ray Bryant Trio - Little Susie (1959/1960) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Little Susie [04:50]
- 02.By Myself [03:26]
- 03.Blues For Norine [04:40]
- 04.Moon-Faced, Starry-Eyed [03:31](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D25BE0BB6E352E69B6A3CD4381C300D808EB4CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

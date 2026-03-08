@@ -1,3 +1,61 @@
+###  Публикация: 1186431   (284239) от 26.11.2017
+
+Charlotte Gainsbourg - Rest (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ring-a-Ring o' Roses (4:30)
+ 02. Lying with You (3:19)
+ 03. Kate (3:41)
+ 04. Deadly Valentine (6:05)(   Читать дальше...   )Жанр: Indie Pop, French Pop-RockПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6543205967D66DC6474069D022EB27ADE710D7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964240   (283956) от 10.12.2015
+
+Ayala - This Year (2015) [OGG|469-523 кб/с]<Alternative Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Russian Roulette
+02. Maybe
+03. 5157 Miles
+04. Don't Fix It(   Читать дальше...   )Жанр: Alternative Indie PopПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627E605B35086F77DEA34A475A4FF1EC4B3FE028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186729   (283898) от 26.11.2017
 
 Yello - Live In Berlin (2017) [MP3|320 Kbps] <Pop, Synth-pop, Future Jazz>
@@ -685,64 +743,6 @@ Eros Ramazzotti - Vita Ce N'è (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F7E13F7958C94E9F0444A9610143FD2CC65B9C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264343   (281083) от 23.11.2018
-
-Rita Ora - Phoenix (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rita Ora – Anywhere (03:35)
-02. Rita Ora – Let You Love Me (03:11)
-03. Rita Ora – New Look (02:34)
-04. Avicii – Lonely Together (feat. Rita Ora) (03:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3371C10BB100C00B27B296D5B4B29EBD28E8158F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264428   (281079) от 23.11.2018
-
-Митя Фомин - 4x4. Акустика (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наглый Ангел
-02. Смотри
-03. Едва Дыша
-04. Нить Из Угля(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39004209C83CB62F37CCAEB436C2EDCED4DF0358
 ```
 
 https://mybot314.ru/tekegram_catalog/

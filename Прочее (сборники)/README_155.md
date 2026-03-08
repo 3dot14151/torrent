@@ -1,3 +1,119 @@
+###  Публикация: 1830037   (202411) от 26.10.2025
+
+VA - Music News For Forum vol.142 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jade Chantelle - Bad Gyal (02:31)
+ 002. 52Ghz - Mellstroy.Game (02:21)
+ 003. 58 - Корабли (02:46)
+ 004. Aaron & Zartmann - Sommer (02:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C7339835D90D4A3723A8878C02A47B31116003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829261   (202004) от 25.10.2025
+
+Novi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal, Pop Ballad, Other, Sunoai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Waited All My Life
+ 02 - Until You Sleep
+ 03 - Because of You
+ 04 - Cold Heart(   Читать дальше...   )Жанр: Electronic, Easy listening, Vocal, Pop Ballad, Other, SunoaiПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB658287B0A7045C563C7651FE909EAB0D02096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829259   (202001) от 25.10.2025
+
+Novi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal, Pop Ballad, Other, Sunoai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Anugerah Terindah
+ 02 - Every Breath I Take
+ 03 - Love Sublime
+ 04 - A Shadow of You (Remix)(   Читать дальше...   )Жанр: Electronic, Easy listening, Vocal, Pop Ballad, Other, SunoaiПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DC82868497135ECD9AE3DB881F3510B9D17462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615690   (201896) от 03.03.2023
+
+VA - Украинские песенки Vol.1 (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alyosha  - Калина (03:16)
+02. Kola  - Біля Серця (02:17)
+03. Shumei  - Тривога (03:11)
+04. Маша Кондратенкo - Не Ходи (02:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CE468FD8A83874096318221FEABF59CBF79F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829917   (201788) от 26.10.2025
 
 VA - Musical kaleidoscope part 60 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax>
@@ -629,122 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 28.04.2023 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9544A0016631628E9FA7206A1089D31D4AF93226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630438   (199052) от 30.04.2023
-
-VA - В машине с музыкой Vol.332 (2023) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кристина Орбакайте - Алла Будет Петь (03:41)
-02. Jake Isaac Feat. & Jack Savoretti - When It Hurts (03:01)
-03. Laska - Не Отпускай Меня (03:14)
-04. Diplo Feat. & Sturgill Simpson & Dove Cameron - Use Me  (03:22)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEC633ADF4E55EA251ABF821466BA802E1351FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631159   (198971) от 04.05.2023
-
-VA - Music News vol.261 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198971.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Estiva feat. Jess Ball - Carnal Emotion (04:43)
- 002. AIHAN - Тонкая Нить (03:25)
- 003. Akera - Звёзды (02:31)
- 004. Akha - Аиша (02:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5243DE3C3191AA68C1CA0E9AA7A58FEAFB0D528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630949   (198934) от 03.05.2023
-
-VA - Music News vol.260 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198934.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. XYLO - Super Sex Mona Lisa (03:09)
- 002. 4ETVERGOV - Детство (02:12)
- 003. Addiction.sad - Останься Со Мной (03:06)
- 004. A'DI - Фотки Шмотки (02:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712C78BF897A72967860FD77E7B3C786BA1F902E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637910   (197488) от 06.06.2023
-
-VA - Music News vol.269 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197488.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Елена Князева - Sex Втроём (Kiss Remix) (03:36)
- 002. 2xA - Burj Khalifa (01:46)
- 003. Alexandra Burke - Game Of Love (03:26)
- 004. Alexandrjfk feat. DVORETSKOVA - In the End (04:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F0E5D3413250D1B1252A90174444B1460D9569
 ```
 
 https://mybot314.ru/tekegram_catalog/

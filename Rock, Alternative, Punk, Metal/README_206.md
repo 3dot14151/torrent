@@ -1,32 +1,3 @@
-###  Публикация: 1103173   (887903) от 11.02.2017
-
-Jim Crean - Insatiable (2016) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Jamieson Intro (00:19)
-02. Insatiable (04:00)
-03. Caught In The Middle (04:01)
-04. Touch  (03:59)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFE657D1D994492958E1E13687A73D0A3EA1C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103106   (887886) от 11.02.2017
 
 Cold Blood - Lydia (1974) Remastered 2004 [FLAC|Lossless|tracks + .cue] <Rock, Funk, Soul>
@@ -743,6 +714,35 @@ The Starkillers - Дикий Восток (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C10AAA25B69B0104480FC7C8CD572B19E96687B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372148   (886885) от 02.04.2020
+
+Phish - Sigma Oasis (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Psychedelic Rock, Progressive Rock, Jam Bands>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sigma Oasis (05:50)
+02. Leaves (07:03)
+03. Everything's Right (12:22)
+04. Mercury (07:31)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, Jam BandsПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268F6A498796818F38F850D96F3E13F67361B302
 ```
 
 https://mybot314.ru/tekegram_catalog/

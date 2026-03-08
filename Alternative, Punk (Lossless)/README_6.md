@@ -1,3 +1,32 @@
+###  Публикация: 1362786   (946573) от 25.02.2020
+
+The Toms - Life Raft (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish I Went to Princeton (03:57)
+02. Life Raft (04:06)
+03. Accident (03:15)
+04. Another Happy Ending (03:32)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DCFF61CA24A929DE1797CA3BF121C3CBEC5310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363012   (945317) от 26.02.2020
 
 Ash ‎ - Teenage Wildlife: 25 Years Of Ash (2020) 3 CD, Compilation, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Brit Pop>
@@ -716,35 +745,6 @@ Envy - Recitation (2010) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A6680E8A208FF0F911307D94245645A5F4E82F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364589   (935035) от 04.03.2020
-
-Envy - The Fallen Crimson (2020) [FLAC|Lossless|tracks + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Statement of Freedom (03:49)
-02. Swaying Leaves and Scattering Breath (04:13)
-03. A Faint New World (05:28)
-04. Rhythm (06:21)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BCCD15FBEE729AB07C010FC475FCF664D2DBB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

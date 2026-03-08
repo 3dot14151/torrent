@@ -1,3 +1,32 @@
+###  Публикация: 37377   (351037) от 03.11.2015
+
+(Jazz, Rock) Алексей Козлов и ансамбль АРСЕНАЛ - Избранное - 2001, APE (image + .cue)
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_351037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ностальгия (Nostalgie)
+02. Башня из Слоновой Кости (Ivory Tower)
+03. Тайна (Mystery)
+04. Сюита в Фа Миноре (Suite in Fm)(   Читать дальше...   )Жанр: Jazz, RockФормат: ape + cueПродолжительность: 1:13:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578022   (350395) от 21.09.2022
 
 Red Holloway - Legends Of Acid Jazz (1963, 1965) 1998, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -721,35 +750,6 @@ Bril Brothers (Братья Бриль) - Immersion (2000) /Landy Star/[FLAC|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D046F491B92EF7945DFE39326EF8F851A3657F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953403   (347095) от 05.11.2015
-
-Sadao Watanabe - Pamoja (1975) /2015, Universal/[FLAC|tracks+.cue]<Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Vichakani [15:36]
- 02.Musitoni [09:17]
- 03.Pamoja [14:31]
- 04.Ev'rytime We Say Goodbye [08:36]Жанр: Post-Bop, Jazz FusionПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F78712DBA4C33ACEC078477C81EDC6DAF683734
 ```
 
 https://mybot314.ru/tekegram_catalog/

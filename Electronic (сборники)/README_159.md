@@ -1,3 +1,32 @@
+###  Публикация: 1328482   (363589) от 30.09.2019
+
+VA - Technobird: Selection Of Electronic Music (2019) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363589.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ldy Osc - This Is Ny
+002. Hideyoshi - Dance With Evil (Foog Remix)
+003. Symmetrical Behaviour - Finite Strain Theory
+004. David Garez - Norefjell(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 11:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59161C4CC5DF55E6B92D00608EADBED6105C2FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328486   (363546) от 30.09.2019
 
 VA - High Atmosphere: Spirit Of Techno Music (2019) [MP3|320 Kbps] <Techno>
@@ -734,35 +763,6 @@ VA - Hedkandi: Hardstyle Edition (2019) [MP3|320 Kbps] <Hard Dance, Electro, Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4B65BC3ACB850FF9B6A46DBAB60D351F3575488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328728   (359268) от 02.10.2019
-
-VA - Virus Attack: Psy Trance Set (2019) [MP3|320 Kbps] <Psychedelic Trance, Goa>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner State - Free Drop
-02. Talpa & Purple Hayes - Born This Way
-03. Blind-Ox - Captured Dreams Connected
-04. Coexist - Maze(   Читать дальше...   )Жанр: Psychedelic Trance, GoaПродолжительность: 04:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2A88A5541146E53E7E09AEA8AA33AA80035387
 ```
 
 https://mybot314.ru/tekegram_catalog/

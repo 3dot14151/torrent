@@ -1,3 +1,32 @@
+###  Публикация: 1125272   (768808) от 14.04.2017
+
+Caroline Reese and the Drifting Fifth - Tenderfoot (2017) [FLAC|Lossless|tracks] <Country,Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Unlocked (3:48)
+02 - Airshow (3:35)
+03 - New Tricks (2:31)
+04 - Snake Eyes (3:06)(   Читать дальше...   )Жанр: Country,FolkПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F5447EAFF0C709E1DA3525325FD2CDABDC509A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125501   (767922) от 15.04.2017
 
 Blackmore's Night - The Village Lanterne (2006) Box Set, Limited Edition [FLAC|Lossless|image + .cue] <Folk Rock>
@@ -716,35 +745,6 @@ Danheim - Fridr (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8F682CB24D57E632E687F6FE75AC4C42B8E4C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285604   (715076) от 01.03.2019
-
-The Innocence Mission - Sun On The Square (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Records From Your Room (02:46)
-02. Green Bus (04:28)
-03. Look Out From Your Window (03:21)
-04. Shadow Of The Pines (04:00)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844D849D0581634D1CB5128AB673FC45F3F078FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

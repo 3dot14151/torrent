@@ -1,275 +1,3 @@
-###  Публикация: 1161870   (463480) от 30.08.2017
-
-MediaHuman YouTube Downloader 3.9.8.15 (2908) RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B430283F27DF1B86C5A04D839DD9C496937BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388189   (463472) от 15.09.2011
-
-Sexy Girls v.28
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463472.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girls v.28
-Название: Sexy Girls v.28
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748F00E7D795D1D7EE7122103AD2B5BB76D50806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161966   (463471) от 30.08.2017
-
-XYplorer 18.30 RePack (& Portable) by TryRooM  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463471.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer - удобный мультивкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD747E81523D346E4ABB6894B5314ED9F15A6DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387859   (463466) от 15.09.2011
-
-Sexy Girls v.15
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463466.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girls v.15
-Название: Sexy Girls v.15
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1440х900
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51272D2983FAA8B14C646F42B0C5EA0614091A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161904   (463465) от 30.08.2017
-
-VA - Anjunabeats Worldwide 07 (Mixed by Grum) (2017) [FLAC|Lossless|tracks + .cue] <Trance, Progressive Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grum – Worldwide Intro
-02. Naden – Rivers
-03. Lane 8 – Aba (Yotto Remix) (with Kidnap Kid)
-04. Grum – Inflight(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D18B16E3D238EF0797BFE7C70F3254E7419C518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388058   (463462) от 15.09.2011
-
-Tiesto - Club Life 232 (11.09.2011) [MP3|192 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hour 1
-
-01. Ellie Goulding - Lights (Adrien Mezsi Reboot)
-02. Matteo DiMarr - Creep (Original Mix)
-03. Paul Kalkbrenner - Sky & Sand (Koen Groeneveld Bootleg)
-04. AN21 & Max Vangeli vs. Tiesto feat. Kate Elsworth - People Of The Night (Original Mix)
-05. Paul Thomas - La Bombo (Nathan C vs. Lay & Brown Remix)
-06. Funkagenda, Sultan & Ned Shepard - Past Dreaming (Original Mix)
-07. Sia – Drink to get Drunk (Sander Van Doorn Remix)
-08. Delerium feat. Sarah McLachlan - Silence (W&W vs. Jonas Stenberg Remix)(   Читать дальше...   )11.09.2011Жанр: TranceПродолжительность: 01:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387359A7F850AC97F3C7C947E10DE47501961125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549180   (463443) от 20.09.2012
-
-VA - Drum & Bass Essentials Vol 4 (2011) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463443.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tidal - Where's The Life? (original mix)  (06:23)
-2. Tidal - Swing Out (Aquasion remix)  (05:59)
-3. Static - Bright Light (Aquasion remix)  (07:11)
-4. Johnny Beverton - Tonedab (original mix)  (05:46)
-5. Mad Rabbit - Same Old (original mix)  (06:40)
-6. Radicall - After Dark (DJ Ike remix)  (05:24)
-7. Joe Syntax - Believe In You (original mix)  (06:13)
-8. Jekyll - Insect Flex (original mix)  (05:46)
-9. B4ssTee - Tell Me (original mix)  (05:36)
-10.Audios3x - Ennek A Notanak Egyszer Vege Lesz (original mix)  (05:26)(   Читать дальше...   )Жанр: Продолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9A9A350DFAF621FEF6DBA452C58B66507DD38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549185   (463441) от 20.09.2012
-
-VA - Drum & Bass Essentials Vol 5 (2011) [MP3|320 кб/с]<Drum and Bsss>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463441.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dakosa - Blood Moon  (05:46)
-2. BassHazard - Eve  (05:20)
-3. mSdoS & Steez - Brass Ensemble  (05:55)
-4. A2C - Warforce (Firefly remix)  (05:25)
-5. BrokenDrum - The Other Side  (06:26)
-6. Nata'Malamata - Toy's Games  (03:39)
-7. Lucas - Hillbilly Hideout (LJ High Dnb remix)  (06:59)
-8. Tidal - Queen Eyes Hazel Green  (06:01)
-9. Operon & LM1 - Crazy Nights  (06:21)
-10.Johnny Beverton - Polymol  (05:26)(   Читать дальше...   )Жанр: Продолжительность: 01:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D8C848E7F2C666416330D37F1957B7B61FB378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549492   (463439) от 20.09.2012
-
-Журнал | Туризм и отдых №36 [17-23 сентября 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы о популярных туристических направлениях, полезные рекомендации, интересные обзоры, фоторепортажи. Своеобразное зеркало, отражающее состояние дел в российской туристической индустрии, настоящий навигатор в мире туристических услуг и бизнеса.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39387CB1E79BFDAFA0E3FA699E277807CB085C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549171   (463438) от 20.09.2012
 
 VA - Phuture Funk Vol 4 (2011) [MP3|320 кб/с]<Drum and Bass>
@@ -747,6 +475,267 @@ Sexy Girls v.22
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2AAB9D2B086AB1940EECD7ACA611BA2916C2E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161875   (463344) от 30.08.2017
+
+Ashampoo WinOptimizer 15.00.05 RePack (& Portable) by elchupacabra  [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo WinOptimizer 15 - новая линейка пакета программ, позволяющего оптимизировать операционную систему благодаря ее настройке и очистке. Содержит утилиты для очистки жесткого диска и системного реестра, модуль для защиты личной информации путем поиска и удаления файлов и данных, оставшихся после интернет-cepфингa, утилиту для оптимизации интернет-соединения, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977344FEBA90296D849CC1B2B4C4371EE5AE86B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549332   (463334) от 20.09.2012
+
+VA - Клубный Mega Dance 1-2 (2CD) (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463334.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Dj Soundlife - the beach full of sun (club mix)
+02. Modek - North (Original Mix)
+03. Lg Performers - Fill Your Cup (Fred De F Remix)
+04. Nickelback - When We Stand Together (DJ Nejtrino & DJ Stranger Remix)
+05. Nakadia - Never (Original Mix)
+06. Sean Bay Vs. Medhi Mouelhi feat Arabella - Maktoub
+07. W&W & Jochen Miller - Summer (Original Mix)
+08. Deep Josh, Luisen Merino - Livin On A Prayer (Distorted Funk Mix)
+09. Zedd feat. Matthew Koma - Spectrum (Radio Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:57:48
+01. Armin Van Buuren feat. Kirsty B - Free Of War (Original Mix)
+02. Emil Lassaria & Caitlyn - Serenata (Club Mix)
+03. Breakdown & Jay Jacob - Remember Me (Mightyfools Remix)
+04. Eptic - Trouble
+05. Crazibiza vs Garrett & Ojelay - Dirty Guitarra (Original Mix)
+06. Gallo, Alaia - Sole E Vento (Re-Vox Mix)
+07. Deepside Deejays - Look Into My Eyes (Club Edit)
+08. LLP feat. Julie Ann & Diamz - Don't Stop The Music (Extended)
+09. Fedo Mora - Do You Remember (Extended Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794EB2ADD4CC82025DEB132916D253939EA231F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549530   (463330) от 20.09.2012
+
+Журнал | Атлас. Целый мир в твоих руках №137 [сентябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463330.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Атлас. Целый мир в твоих руках» - коллекция издательства «Де Агостини», представляющая собой иллюстрированный энциклопедический путеводитель для всех, кто хочет познакомиться с красотами и тайнами нашей планеты. Атлас мира — это необходимая энциклопедия в домашней библиотеке. Географические материалы могут пригодиться школьникам, студентам и всем, кто хочет узнать больше о нашей планете и ее тайнах. С Атласом вы отправитесь в завораживающее кругосветное путешествие.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E76B31A2A653505F2A5522250F136311BDF72F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549229   (463328) от 20.09.2012
+
+Helen Davies & Kim Skovbye - A Fair Meadow. Music for Celtic Harps (2009) [MP3|320 кб/с]<New age, Celtic, Harp>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463328.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:13) 01. Sunbeam Dance
+(5:00) 02. Weaving Waves
+(8:31) 03. Celtic Traveller
+(1:29) 04. Zoome in ... and Make a Wish
+(5:36) 05. A Light in Sound
+(4:37) 06. A Stone's Throw
+(3:30) 07. Dear One
+(2:16) 08. Zoome Out ... Still Wishing
+(7:41) 09. The Fairy Meados
+(2:47) 10. ... Like DiamondsЖанр: New age, Celtic, HarpПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5332EF0E4297467D8BB61CECBC8BA706ABE50BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549687   (463323) от 20.09.2012
+
+Журнал | ELLE №10 двойной (Россия) [октябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elle - самый популярный журнал мод в мире. Его концепция уникальна: понятие «мода» выходит за привычные рамки и имеет отношение к образу жизни в целом. Elle - это новейшие тенденции в области lifestyle, самые горячие новости из мира моды и красоты, самые яркие звезды и самые актуальные статьи о психологии современной женщины, нацеленной на успех.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC7EC22D6BBFA7CB782A3948581CDDD9ABD77205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549543   (463321) от 20.09.2012
+
+Журнал | Здоровье [Украина] №10 (октябрь 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женский журнал «Здоровье» — это всегда информация о здоровом образе жизни и методах борьбы с заболеваниями, новейших достижениях медицины и косметологии, нетрадиционной и народной медицине, психологии. Ориентирован на естественное стремление каждого человека быть здоровым и привлекательным.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F2E165D0B5B578A2A2C207419F7F1F5725951B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549752   (463320) от 20.09.2012
+
+[Wallpapers] Абстракции (Часть 7)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абстракции обои для рабочего стола часть 7.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789B1A93C89443BDFC293A22AF4DBCA355E3CE3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246359   (463308) от 10.09.2018
+
+XnView 2.46 Portable by PortableAppZ [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновилась XnView, утилита, предназначенная для просмотра и конвертирования графических файлов. Программа поддерживает работу с огромным числом форматов (как импорт, так и экспорт), способна создавать анимированные изображений, работает с мета-данными, предоставляет возможности для редактирования IPTC. Также XnView (кроме стандартных опций изменения размера, поворота (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1984AC70E17C2B78B1BF770BAC6028D35DC37CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246355   (463304) от 10.09.2018
+
+IcoFX 3.2.1 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463304.jpg" />
+</div>
+
+
+###  Подробнее
+
+IcoFX - программа для создания и редактирования иконок и курсоров с поддержкой прозрачности. Поддерживает статические и анимированные курсоры. Легко может создать логотип для вашего сайта или блога. Вы можете легко конвертировать ваши любимые изображения в иконки или курсоры. Поддерживаемые форматы изображений: BMP, PNG, JPG, JPG2000, TIF и GIF. С помощью этой программы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A466F3E251A0AC6DC80F5B5ABC37A275EE89297
 ```
 
 https://mybot314.ru/tekegram_catalog/

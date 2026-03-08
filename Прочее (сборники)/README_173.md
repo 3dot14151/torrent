@@ -1,3 +1,119 @@
+###  Публикация: 1748029   (104695) от 07.09.2024
+
+VA - Music News For Forum vol.020 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104695.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aneya - Такая Манкая Для Тебя (05:06)
+ 002. A Boogie Wit Da Hoodie feat. Nemzzz - Body (UK Remix) (02:48)
+ 003. Alan Walker feat. Joe Jonas & Julia Michaels - Thick Of It All (03:20)
+ 004. Alena Roxis - Благодарю (03:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89224315182FADE6A53AC3C007539A224F40221C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822952   (104413) от 09.10.2025
+
+Novi - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal, Other, Sunoai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Keep on Dreaming
+ 02 - Always Coming Home
+ 03 - Where We Belong
+ 04 - My Song for You(   Читать дальше...   )Жанр: Electronic, Easy listening, Vocal, Other, SunoaiПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A76EE8CD7AD60569CDB5DE1F08AFA371C36430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751919   (104024) от 28.09.2024
+
+VA - compilation musical kaleidoscope part 4 (2024) [MP3|320 Kbps] <electro swing, electro pop, nu Jazz>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alanna Lyes & Atom Smith & Riff Kitten & Elliot Deutsch - Back Around
+02. Odd Chap & Little Violet - Crazy Out There
+03. Alanna Lyes & Atom Smith & Riff Kitten & Elliot Deutsch - Mine
+04. Atom Smith & Alanna Lyes & Elliot Deutsch - Bad Girls(   Читать дальше...   )Жанр: electro swing, electro pop, nu JazzПродолжительность: 01:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E58D19F4F0F123BFFF41A4144A67CE16AB4D191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751639   (104009) от 28.09.2024
+
+VA - compilation part 125 Nu Jazz, Electro Swing & Electro pop (2024) [MP3|320 Kbps] <Nu Jazz, Electro Swing, Electro pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elle & the Pocket Belles - Midnight Dancer
+02. Caravan Palace - Mad
+03. Riff Kitten - Viper Queen
+04. Caravan Palace - Reverse(   Читать дальше...   )Жанр: Nu Jazz, Electro Swing, Electro popПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAD69874FFD561DFA267E7BE7694C06E7F93901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759143   (103323) от 06.11.2024
 
 Shaed - Compilation (2024) [MP3|320 Kbps] <Electropop, indie pop>
@@ -717,146 +833,6 @@ VA - Клубные новинки Vol. 66 from GvertO (2012) [MP3|320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DBC52487425A7EBB966F1D671410483B22DA219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483372   (99691) от 15.04.2012
-
-VA - Зарубежные Новинки Vol.41 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bros Project feat. Rella Rox & Shayan - Leyra (Extended Version)
-02. Tony Ray feat. Gianna - Chica Loca (Iulian Florea Remix)
-03. Nicki Minaj feat. Nas, Drake & Young Jeezy - Champion
-04. Mike T feat. Rawanne - This Is The Night (Albert Kick Club Mix)
-05. Fat Joe feat. Chris Brown, Mary J Blige, Fabolous & Kirko Bangz - Another Round (Remix)
-06. Andrew Bayer feat. Alison May - Brick
-07. Joan Osborne - Broken Wings
-08. Madonna - Love Spent (Acoustic)
-09. Trina feat. Kid Cadet & Vinny Venditto - Outer Space
-10. PJ Morton feat. Lil Wayne - Lover(   Читать дальше...   )2012Жанр: PopПродолжительность: 03:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A7DD0027A7883A32A64F6F9BC3091BA813053A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482782   (99647) от 14.04.2012
-
-VA - Радио Energy - NRJ HOT30 (13.04.2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - Levels.
-02. Example - Changed The Way You Kiss Me (Mike Candys RMX).
-03. LMFAO - Sexy And I Know It.
-04. Basto - Again and Again.
-05. Leventina - Freak It Out.
-06. David Guetta & Sia - Titanium.
-07. Rihanna & Calvin Harris - We Found Love.
-08. Maison & Dragen - Rio De Janeiro.
-09. Fonzerelli - Moonlight Party 2011.
-10. Michael Mind Project & Bobby Anthony & Rozette - Rio De Janeiro.(   Читать дальше...   )13.04.2012Жанр: Pop, DanceПродолжительность: 01:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2601A429674CE8C929C814078C1FF5F91D13E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482781   (99638) от 14.04.2012
-
-VA - Авто Дискотека DFM Зарубежная (2012) [MP3|256 kbps]<Pop | Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Selena Gomez & The Scene - Love You Like (A Love Song) (The Alias Radio Mix)
-02. Dj Antoine Feat. Tom Dice - Sunlight (Dj Antoine Vs. Mad Mark Radio Edit)
-03. Buzz Junkies Feat. Elesha - If You Love Me (Moto Blanco Club Remix)
-04. Nicole Scherzinger - Dont Hold Your Breath (Cahill Remix)
-05. Jonathan Carey & Gamma Dj & Elena Capatina - Feel The Heat (Radio Edit)
-06. Djs From Mars & Fragma - Insane (In Da Brain) (Radio Edit)
-07. Lmfao - Sexy & I Know It (Dj Ilsur Energy Party Edit)
-08. Peter Latino - Willenlos (Vincent Vega Remix)
-09. Ph Electro - Stereo Mexico (Ph Dirty Fun Mix)
-10. Ruslan Nigmatulin Feat. Syntheticsax - Equinox (Radio)(   Читать дальше...   )2012Жанр: Pop | ClubПродолжительность: 06:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3FE8D81B5096B4ABB44AB9AA8C175198CC4235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482763   (99582) от 14.04.2012
-
-VA - Дискотека Non-Stop. Будет жарко (2012) [MP3|160-256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99582.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Miller & Julia Lasker - RaС Не Моя (Dj Iksiy Remix) (3:50)
-2. Dj Dash & Вена - Я Буду За Тебя Биться (Dj Dash Bootleg) (3:53)
-3. Стас Пьеха - Мы Расстались С Тобой (Dj Kirill Clash Radio Remix) (4:07)
-4. DJ Sandro Escobar & Katrin Queen vs. Reflex - Non Stop (extended mix) (6:24)
-5. Володя Aspirin - Космонавт (Greysound & Van Rayne Remix) (4:17)
-6. DJ Mendez - Josephine (Ural Djs remix) (3:05)
-7. Eva - Не Отпускай Меня (Dj Solovey Remix) (5:10)
-8. Mixi - Только Я И Ты (Dj Val Remix) (3:46)
-9. Наталья Власова - Я У Твоих Ног (Dj Solovey Remix) (6:16)
-10. Анна Седокова - Love U (DJ Vengerov & DJ Nick Nova radio mix) (2:59)2012Жанр: PopПродолжительность: 06:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516ED820DED3B95F6586F8F2679B9917D3E726B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

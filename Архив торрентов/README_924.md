@@ -1,29 +1,3 @@
-###  Публикация: 1379993   (835522) от 01.05.2020
-
-AAct Network 1.1.8 Portable by Ratiborus [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835522.jpg" />
-</div>
-
-
-###  Подробнее
-
-AAct - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2 а также Office 2010, 2013, 2016. Возможна активация Office 2010 VL на Windows XP. Программа написана с применением оригинальных технологий и реализует другую, отличную от обычной, идеологию конструирования подобных программных средств. Программе (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96279B4735BA5D17AA0CC5C7E2C9131B423DB4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 333877   (835471) от 04.05.2013
 
 Подшивка газет | Мой друг компьютер + Компьютер для начинающих (2006-2013) [PDF, DJVU] [Обновлено 02.02.2013]
@@ -706,6 +680,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA903BF584B58A80787DEB43AA459EE1899C88EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113465   (835185) от 13.03.2017
+
+VA - Vocal Trance Classics 007 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sophie Sugar - Lost Together (Armin van Buuren Mash Up)  3:26
+02.  Rigby - Earth Meets Water  3:09
+03.  Tritonal - Crash Into Reason (feat. Cristina Soto)  2:28
+04.  Cosmic Gate - Yai (Here We Go Again)  3:17(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB5838FFBC8EDDD37E9420D8AF01C61B3B8AB32
 ```
 
 https://mybot314.ru/tekegram_catalog/

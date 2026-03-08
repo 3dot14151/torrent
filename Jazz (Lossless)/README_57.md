@@ -1,3 +1,32 @@
+###  Публикация: 1501306   (836686) от 09.10.2021
+
+David Sanchez - Carib (2019) Ropeadope [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Mist [7:46]
+02. Wave Under Silk [7:22]
+03. Madigra [7:09]
+04. Fernando's Theme [3:59](   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207666AEE59EC5F0BDACD28D5FC937B71C6FCC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501266   (836679) от 09.10.2021
 
 Cedar Walton - Mobius (1975) 2017, Sony Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -714,35 +743,6 @@ Bing Crosby - The Best of Bing Crosby (1987)  1996,  Promo Sound AG  [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D6CB7D4E919E0889447A91447F88B843FA2CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005739   (830712) от 10.04.2016
-
-Frank Sinatra - A Jolly Christmas From Frank Sinatra (1957) remastered 1987 [FLAC|Lossless|image + .cue] <Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jingle Bells  2:01
-02.  The Christmas Song  3:29
-03.  Mistletoe And Holly  2:18
-04.  I'll Be Home For Christmas  3:12(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05FCB9308D893FF75F22BC162EB47BB57896CD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

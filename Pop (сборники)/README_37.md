@@ -1,3 +1,32 @@
+###  Публикация: 1020874   (743694) от 27.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 20 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flo Astaire - Monkey Monkey ( 1986 )
+02. Alan Cook - Bad Dreams ( 1986 )
+03. Queen Of Times - Holiday ( 1999 )
+04. Mike Mareen - Here I Am ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6734F0269787CEEA74AB4639C4AE932B0761AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020453   (743693) от 27.05.2016
 
 VA - Hot hits Car international (2016) [MP3|256 кб/с] <Pop>
@@ -716,35 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 23 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F50881B6C34E10F45E62E665C876C9084C5B7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021626   (731891) от 30.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 24 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Italo Boot Mix Vol. 1 ( Part 2 ) ( 1983 )
-02. Jules - I Want To ( 1989 )
-03. Stephanie - Ouragan ( 1986 )
-04. Electra - Cuando Cuando ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7468E85A4D55787A92CE9A64D6361F45F1DF4C03
 ```
 
 https://mybot314.ru/tekegram_catalog/

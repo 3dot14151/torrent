@@ -1,3 +1,58 @@
+###  Публикация: 1462439   (1021227) от 14.04.2021
+
+VA - Nagual 4 (2017) ...txt [FLAC|Lossless|WEB-DL-USB Drive|tracks] <Ambient, Drone, Experimental, IDM, Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: WebЖанр: Ambient, Drone, Experimental, IDM, Techno •Продолжительность: 08:12:04 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D730E19112528F7AD11335601E2D4209DC384C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462482   (1021226) от 14.04.2021
+
+Steve Roach - Skeleton Era Volume 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Pulse Passage (27:39)
+02. Its All Connected V.2 (10:49)
+03. Escher Sketch (10:16)
+04. SkelZona (20:17)Жанр: AmbientПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705829497CC0C4235922A12812C0FB51C89EA698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462333   (1021225) от 14.04.2021
 
 Sufjan Stevens - Meditations (2021) Asthmatic Kitty [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -687,58 +742,6 @@ VA - Inner Frequencies Vol. 3 (2017) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:312EBBFF6202304DEE93103CD9837BE9071C56CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464950   (1019450) от 24.04.2021
-
-Chicane - Everything We Had to Leave Behind (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Progressive TranceПродолжительность: 01:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DC1FE390C17A510DB7FDDEE8D1AC84A74872A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256828   (1019409) от 24.04.2021
-
-Geomatic - Discography 10 Releases (2001-2021) M-Tronic, Tympanik Audio, Strange Place Records [FLAC|Lossless|tracks+.cue, tracks] <Industrial, Ambient, Tribal, Rhythmic Noise, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abyss (05:23)Тип издания: CD, WebЖанр: Industrial, Ambient, Tribal, Rhythmic Noise, Experimental •Продолжительность: 09:15:33 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF065CEC5ECD74065A0BE52DAC0BA465EF596A65
 ```
 
 https://mybot314.ru/tekegram_catalog/

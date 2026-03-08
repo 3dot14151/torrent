@@ -1,3 +1,29 @@
+###  Публикация: 1473000   (1013946) от 27.05.2021
+
+AOMEI Partition Assistant Technician Edition 9.2.1 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aomei Partition Assistant – мощная программа для работы с жёстким диском, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?” Кроме того, PA включает AOMEI Dynamic Disk Manager Pro (DDM), что означает наличие (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E466A3545C6EC34B5ACAF5CB423FDEC5A3ED14E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472895   (1013945) от 27.05.2021
 
 SoftPerfect RAM Disk 4.2.0 RePack by KpoJIuK [Multi/Ru]
@@ -652,32 +678,6 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58A0912B56EE742F3080417373DDB085E09DB941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473382   (1013685) от 29.05.2021
-
-CoolUtils Total PDF Converter 6.1.0.273 RePack (& portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG, BMP, GIF, WMF, EMF, PNG).Преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и множество PDF файлов одновременно. Вам больше не нужен дорогой Adobe Acrobat, наш конвертер сэкономит Ваши деньги. Зарегистрированные пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A37F1B5219EC26B527DBC95B6581989B4124297
 ```
 
 https://mybot314.ru/tekegram_catalog/

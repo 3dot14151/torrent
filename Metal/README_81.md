@@ -1,32 +1,3 @@
-###  Публикация: 1184225   (303536) от 16.11.2017
-
-Arrayan Path - Dawn Of Aquarius (2017) [MP3|320 Kbps] <Epic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equilibrium
-02. The Flower Born Of Itself
-03. Dark Daughter Of The Snake
-04. The Hundred Names Of Kali Ma(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88007C3F068B9E72A568D1DB8F38B296D53994BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184188   (303525) от 16.11.2017
 
 Cavalera Conspiracy - Psychosis (2017) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
@@ -757,6 +728,35 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C613DE34D8E560FCB97DEED7D5000CF74F55DB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962031   (296800) от 03.12.2015
+
+Megaherz - Erdwarts (2015) EP [MP3|320 кб/с]<Industrial Metal, NDH>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wer Hat Angst Vorm Schwarzen Mann?
+02. Ist Das Verrückt?
+03. Glorreiche Zeiten
+04. Einsam(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 00:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB4578ECF406AB28F094A267A9ACAAE7145D380
 ```
 
 https://mybot314.ru/tekegram_catalog/

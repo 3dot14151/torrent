@@ -1,237 +1,3 @@
-###  Публикация: 522108   (621255) от 14.07.2012
-
-[Wallpapers] Best HD Wallpapers Pack (13.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680856A847D2F0EA5E24A4C29B84AF6C49EB153D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522209   (621254) от 14.07.2012
-
-[Wallpapers] Nature Wallpapers (13.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1FA1EF5BA8325B4F039481CDBAAA79F82F3397E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522088   (621253) от 14.07.2012
-
-[Wallpapers] Wallpapers Pack (12.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:820350831AA2CCE5F14125E08407EE0D6FC71D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522950   (621252) от 14.07.2012
-
-[Wallpapers] Mixed Wallpapers (15.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62235F5135877BA226173CCB5735A0BA6D5F6F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522652   (621251) от 14.07.2012
-
-[Wallpapers] Best HD Wallpapers Pack (14.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0313DCC6CA91B957E2B413C7F32511FB4E46C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522952   (621250) от 14.07.2012
-
-[Wallpapers 16+] Wallpapers Sexy Girls Pack (15.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4752x3168
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17A28C32832C9403541FAE6C5A3238504B48309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522954   (621249) от 14.07.2012
-
-[Wallpapers 16+] Gilrs Wallpaper Collection (15.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 2664х1641
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026BE08B2C126CD1B797A26D16B1FB0F6E133541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522654   (621248) от 14.07.2012
-
-[Wallpapers] HD Nature Wallpapers (14.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116F92AC62F24B533D7D7671281615D3B3AEAEC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522087   (621247) от 14.07.2012
-
-[Wallpapers] Best HD Wallpapers Pack (12.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C6FBCA39FF3DA2A9EFD427D6D07092FBDFC68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522208   (621246) от 14.07.2012
 
 [Wallpapers] Mixed Wallpapers (13.07.12)
@@ -710,6 +476,257 @@ VA - Goa Year 2016, Vol.2 (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Psychedelic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77B7EFCF9B5EFD075852FC57DB990C162330BBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036346   (621082) от 20.07.2016
+
+Rosanne Cash - The River & The Thread (2014) [FLAC|Lossless|tracks + .cue] <Country,Americana>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Feather's Not A Bird
+02. The Sunken Lands
+03. Etta's Tune
+04. Modern Blue(   Читать дальше...   )Жанр: Country,AmericanaПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FAD9E7C9271B1896973AAF984ACABC34E883BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522199   (621075) от 14.07.2012
+
+Let's Go Project - Le Le Ley (2012) [H.264/1080р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278A389A4C97DAD0E5B9297FFDC541FA20BC4613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522938   (621074) от 14.07.2012
+
+Где бы ты ни был / This Must Be the Place (2011)  BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок-певец, скучающий на пенсии, отправляется на поиски палача своего отца, бывшего нацистского военного преступника, укрывающегося в США.Жанр: Драма, КомедияРежиссер: Паоло СоррентиноАктеры: Шон Пенн, Фрэнсис МакДорманд, Джадд Хёрш, Ив Хьюсон, Керри Кондон, Гарри Дин Стэнтон, Джойс Ван Пэттен, Дэвид Бирн, Ши УигхэмПеревод: Профессиональный (двуголосый)Продолжительность: 01:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087AB0C124E60B17969ED101B30DA49D5993C32C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522409   (621073) от 14.07.2012
+
+[Графика] Канадский иллюстратор Джон Хоув (John Howe)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский иллюстратор Джон Хоув (John Howe)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C5B0E5E7A51EC6138947C0BC0D2F69109EF999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522048   (621071) от 14.07.2012
+
+[Графика] Илья Назаров
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Илья Назаров
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E0F4B8C2BB98E3A80CD9F9534862D1181C93AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523049   (621068) от 14.07.2012
+
+VA - A State Of Trance Radio Top 20 July (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621068.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - A State Of Trance Radio Top 20 July (2012)
+
+Год: 2012
+Жанр: Trance
+Продолжительность: 02:24:24Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Armin Van Buuren - We Are Here To Make Some Noise (Maison & Dragen remix) (6:31)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DC171C309AB1F198115C075D0DCE95045FEE94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522045   (621063) от 14.07.2012
+
+[Графика] Фотограф David Hill
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотограф David Hill
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81683A994B542E00DCED9FD41644609243371D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522588   (621061) от 14.07.2012
+
+Sealounger - Wonderful Time 010 (2012) [MP3|320 кб/с]<ChillOut, Chillstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621061.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 / mixed
+01. Rameses B - Lone Wanderer
+02. MitiS - Brings Renewal (Original mix)
+03. Rameses B - Moonlight
+04. Synthetic Epiphany - Halfway Home (Original mix)
+05. Soulware - Return To The Source Pt 2 (Organikismness Remix)
+06. Karen Overton - Your Loving Arms (Des McMahon Remix)
+07. Deadmau5 - Aural Psynapse (Mr FijiWiji Remix)Жанр: ChillOut, ChillstepПродолжительность: 02:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE53761BDF02B696D71B93594D0328C9EE692D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522408   (621058) от 14.07.2012
+
+Картинки - Нэцкэ – маленькая символическая резная фигурка [JPEG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нэцкэ – маленькая символическая резная фигуркаРазрешение файлов: ~ 2288 x 1712Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836517B3B6BF4016D0749A02780A4CB845F21B12
 ```
 
 https://mybot314.ru/tekegram_catalog/

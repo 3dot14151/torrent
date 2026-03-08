@@ -1,3 +1,32 @@
+###  Публикация: 1043819   (570941) от 17.08.2016
+
+VA - For Massive Future Beats (2016) [MP3|320 Kbps] <House, Electro House, Drum & Bass, Progressive, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ummet Ozcan  -  Wake Up The Sun  3:26
+02. Rene Rodrigezz & Robbie Wulfsohn  -  We Are We Are (Nizami Plus & Envilo Remix)  4:29
+03. Avicii  -  Broken Arrows (Kid Remix)  4:23
+04. Blasterjaxx  -  Forever (Feat. Courtney Jenae) (Retrohandz Remix)  3:17(   Читать дальше...   )Жанр: House, Electro House, Drum & Bass, Progressive, Dance, ClubПродолжительность: 07:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16420EA9EEED873A6497011637A068F271315B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234457   (570914) от 05.07.2018
 
 VA - Empire Records - Recccord (2018) [MP3|320 Kbps] <House, Future House>
@@ -719,35 +748,6 @@ VA - Hit Explosion Relaxing & Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BC1E8DF48C380B8D5C9240388C10CC87D3805F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044689   (565551) от 20.08.2016
-
-VA - Whatpeopleplay Top 100 Topseller Tracks July (2016) [MP3|320 Kbps] <Electronica, Deep House, Tech House, Techno, Minimal, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Black Madonna - Stay (Original Mix)
-002. KiNK - Valentine's Groove (Original Mix)
-003. Roberta - Feel It (Original Mix)
-004. Carlo - Lighter Mornings (Original Mix)(   Читать дальше...   )Жанр: Electronica, Deep House, Tech House, Techno, Minimal, HouseПродолжительность: 11:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26783A218C0831D19D0ED3B46E94693F103E2D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

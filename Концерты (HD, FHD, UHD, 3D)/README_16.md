@@ -1,3 +1,32 @@
+###  Публикация: 1289071   (690047) от 14.03.2019
+
+Quiet Riot - One Night in Milan (2019) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа «Quiet Riot» стала первой металлической группой, прорвавшейся к вершине чартов Billboard, успех её был кратковременным. Коллектив образовался в 1973 году, когда гитарист Рэнди Роадс и басист Келли Гарни в поисках фронтмена для новой группы наткнулись на Кевина ДюБроу....1. Run For Cover
+2. Slick Black Cadillac
+3. Mama Weere All Crazee Now
+4. Whatever It Takes(   Читать дальше...   )Производство: Frontiers Music SRLЖанр: Heavy Metal, Hard RockСубтитры: отсутствуютПродолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E47D573BF8201A9F6051792852CBA03BDA44532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 897052   (689485) от 11.05.2015
 
 Uriah Heep - Live At Koko (2014)  Blu-Ray [1080i]
@@ -684,34 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDD094DFF5C61CA32B12D8D414A07ABD73A90D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139420   (660000) от 02.06.2017
-
-Royal Hunt - 2016 (25 Anniversary) (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Англоязычная рок-группа из Дании, основанная в 1989 году. Группа получила известность, главным образом в Европе и Японии, в середине 90-х благодаря классическим альбомам «Moving Target» и «Paradox», записанным с вокалистом ДиСи Купером. За время существования она претерпела несколько изменений в составе. Так в 2007 году Марк Боалс заменил бывшего вокалиста Джона (   Читать дальше...   )1. Medley: So Right So Wrong / Martial Arts
-2. River Of Pain
-3. One Minute Left To LiveПроизводство: Frontiers RecordsЖанр: Hard Rock, Heavy Metal, Melodic Hard RockПеревод: ОтсутствуетПродолжительность: 01:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7E0DA10611BB13D62D1CD2ED952E4503AA5A6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1358977   (966143) от 10.02.2020
+
+VA - Survival Techniques (2020) [MP3|320 Kbps] <Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poppy - Fill The Crown
+02. Fear - Beautiful Side
+03. Fetid Zombie - Necromanced From The Grave
+04. Devil's Witches - Love Is Doom(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 05:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770110E3255277F39DBBB012761AE0386A1D1E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358979   (966082) от 10.02.2020
+
+VA - Dive Into My World (2020) [MP3|320 Kbps] <New Age, Ambient, Relax, Meditation>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966082.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ragi Del Mar - People Of Ibiza
+002. David Bickley - Slow And Steady
+003. Point - Human Music (Original Mix)
+004. Dole & Kom - Clouds(   Читать дальше...   )Жанр: New Age, Ambient, Relax, MeditationПродолжительность: 09:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F22412044A144C22E73EE8D624040E6DEA1D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358984   (966074) от 10.02.2020
+
+VA - Instrumental Romantic Jazz: Smooth And Chill (2020) [MP3|320 Kbps] <Smooth Jazz, Chill Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966074.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gianluigi Trovesi - Umberto
+002. Gogo Penguin - Ocean In A Drop
+003. Planty Herbs - Nothing Lasts
+004. Third I - Stone Of Destiny(   Читать дальше...   )Жанр: Smooth Jazz, Chill InstrumentalПродолжительность: 09:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6715D6F0BC71B772BFFB8F0D6ED1A742AF528BD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358908   (965826) от 10.02.2020
+
+VA - Deep Blue: Vocal House Season (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965826.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Grant David Project - Imagine
+002. Larry Scottish - Summer Rains (Extended Mix)
+003. Mangalia - Minimatt (Original Mix)
+004. Laakkinen - Forever (Extended)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDC9BC9DCE30FD47FF61698A8288065CDEF9B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977449   (965768) от 21.01.2016
+
+VA - An Endless Drive (2016) [MP3|320 кб/с] <Club, House, Electro, Trance, Tech>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965768.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brenton Mattheus, Ian G, Matierro - Flash feat. Brenton Mattheus
+002. Herve Pagez - Paaarty (Original Mix)
+003. KURA - Makhor (Original Mix)
+004. Alexandre Bergheau & Geert Huinink - Desert Wings (Original Mix)(   Читать дальше...   )Жанр: Club, House, Electro, Trance, TechПродолжительность: 08:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957CCB8A6F24B6B4EF5361534AB8C73183F2883E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977580   (965737) от 21.01.2016
+
+VA - Sentimental Tropics (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965737.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dominique Langham - In the Middle of the Night
+002. Water on Mars - Biscaya - Realaxing Beach Moments remix
+003. Ayuthya - Dreamy Mood
+004. Phono Sounds Invation - Shores of Eternity - 100 % Downbeat Sunset Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0731C8EB831CA6F646723CBCBDD4C483CF50A21D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976136   (965729) от 21.01.2016
 
 2011stress - With eyes closed again (NNM) (2016) [MP3|320 кб/с] <Electronic, Synth-pop, Classical Crossover>
@@ -565,180 +739,6 @@ VA - Уголовочка от радио Шансон. Часть 7 (2015) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9C5E62EDE5A8669C7EE8C0FCD01E952AF92F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978282   (963502) от 23.01.2016
-
-VA - Relaxing Acoustic Folk Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Blues, Folk>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liz Madden - Night & Day
-02. Olga Holding - The End of the Trail
-03. Devin Sinha - Orion
-04. manintheraw - Hallway Song(   Читать дальше...   )Жанр: Downtempo, Chillout, Blues, FolkПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB93954570248350DA120A8367E0C131494E5BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978440   (963354) от 23.01.2016
-
-VA - Workout Mix vol.3 (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive House, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Andrey Vertuga & Juliana Neva & Wild Cat - Вперёд (DMC Mikael & Denis Zubov Remix)
-02-Busta Rhymes - Break Ya Neck (DJ Krec & DJ Dima House Remix)
-03-Bodybangers feat. Victoria Kern - Get Up (Club Mix)
-04-Ice Cube Ft. 2 Chainz & RedFoo vs DJ Niki - Drop Girl (Mikis Mash Up)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive House, TrapПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E94D4B046E59DDE9E1403C75CC5F2EB4E28CC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978081   (963334) от 23.01.2016
-
-VA - Blues Forever (2015) [MP3|320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie Christian - Wholly Cats
-02. Carl Kress - Jazz in G
-03. Blind Lemon Jefferson - Shuckin' Sugar
-04. Lefty Frizzell - Long Black Veil(   Читать дальше...   )Жанр: BluesПродолжительность: 05:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7368E426704B83A57D282E980F4AC02696E95EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359736   (963268) от 13.02.2020
-
-VA - Interior Lounge Sounds Vol.02 (2020) [MP3|320 Kbps] <Lounge, Relax, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963268.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hedflux, Alex Delfont - Manifolds
-002. Ron Sander - True Lies (Intense Mix)
-003. Nova Casa - Feel
-004. Juan Candados - Su Manzanu (Original Mix)(   Читать дальше...   )Жанр: Lounge, Relax, DowntempoПродолжительность: 09:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DBF15F86BB79CEDCB03AFB2D80A413BFB954BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359737   (963217) от 13.02.2020
-
-VA - Back In The Future: Indie Pop Rock (2020) [MP3|320 Kbps] <Indie, Pop, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963217.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Oh Pep! - Bleeding Hearts
-002. They Owe Us - Rest My Mind
-003. Zach Rogue - Mrs. Santa Claus
-004. Ella Blixt - Hellsinkin(   Читать дальше...   )Жанр: Indie, Pop, RockПродолжительность: 10:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F135038AE9576C8D4E530EDB66782FA53126B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359743   (963208) от 13.02.2020
-
-VA - Beatport Techno: Electro Sound Pack #11 (2020) [MP3|320 Kbps] <Techno, Tech House, Electro, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Mood - Thoughts Are Clear (Original Mix)
-02. Dj Dextro - Reflection (Original Mix)
-03. Mari Mattham - Foggy Destiny (Original Mix)
-04. Suspect Boyz - Madrid (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech House, Electro, MinimalПродолжительность: 07:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32040658692C20C7673CA518FC7499B9FD5F1901
 ```
 
 https://mybot314.ru/tekegram_catalog/

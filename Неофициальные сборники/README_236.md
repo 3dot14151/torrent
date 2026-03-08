@@ -1,3 +1,177 @@
+###  Публикация: 1128817   (724642) от 27.04.2017
+
+VA - Club Dance Ambience Vol.106 (2017) [MP3|320 Kbps] <Dance, Club, Club House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 5sta Family - Везувий (Buzzy Remix) 6:17
+002. Aleo - Hospital 6:41
+003. Alok & Bruno Martini feat. Zeeba - Hear Me Now (DJ Strong Remix) 4:24
+004. Alphaville - Big in Japan (Albina Mango & Dj ZeD Remix) 3:54(   Читать дальше...   )Жанр: Dance, Club, Club House, HouseПродолжительность: 07:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601A2370C877EC17EEFEBB8D90F811E2DE156636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023672   (724640) от 05.06.2016
+
+VA - Sensual Vocal Trance vol 12 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724640.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Attractive Deep Sound - Attention (Intro Vocal Mix)
+002. Gareth Emery - Meet Her In Miami (Original Mix)
+003. The Madison - Follow Up (Original Mix)
+004. Cathy Burton - Heaven (DNS Project Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 11:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3688521C836256F1B47EC44B9125A5BA95B883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128931   (724638) от 27.04.2017
+
+VA - Fitness Mania: Electro Tech House (2017) [MP3|320 Kbps] <Electro, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724638.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A&A - Indie (Original Mix) 3:39
+002. Miro Pajic - Dizzy Danza 7:10
+003. Agresias - New Day (Original Mix) 4:54
+004. Wndlrs - Ingewikkeld 6:32(   Читать дальше...   )Жанр: Electro, Tech HouseПродолжительность: 10:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54D3677E43646F18418A4AC10F42ABD512169ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284930   (724613) от 24.02.2019
+
+VA - Record Super Chart 575 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Calvin Harris & Rag'n'Bone Man - Giant
+02.  Marnik & Smack - Gam Gam
+03.  Hugel & Amber Van Day - Wtf
+04.  Gryffin feat. Zohara - Remember(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0ED8ED5F3AD061352FAFBB93E8455D4B45AB790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285004   (724604) от 24.02.2019
+
+VA - Early Morning Raga: Chill House Music (2019) [MP3|320 Kbps] <Chill, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724604.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nailon Gray - Body And Soul
+002. Draud - Celesta
+003. Winnie Deep - Conversations With God
+004. Jan Mir - Moby Dick(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 09:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C627DF869224756DF089874FD195BB30C7EF62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023515   (724547) от 05.06.2016
+
+VA - 100% Proof Pop! Friction Hits (2016) [MP3|320 кб/с] <Gospel, Alternative, Country, Latin Urban, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Flo Rida - That's What I Like (feat. Fitz) 03:16
+002. The Piano Guys - Kung Fu Piano: Cello Ascends 04:06
+003. Yandel - No Sales de Mi Mente (feat. Nicky Jam) 03:25
+004. Carrie Underwood - Choctaw County Affair 03:31(   Читать дальше...   )Жанр: Gospel, Alternative, Country, Latin Urban, SynthpopПродолжительность: 08:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397D6EC4C01FEFE0AC41A3CA46FDD4571BD5346C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128908   (724532) от 27.04.2017
 
 VA - Любимые песни шансона на стильном радио. Часть № 9 (2017) [MP3|256 Kbps] <Шансон>
@@ -571,180 +745,6 @@ VA - Jum Summer Reggae (2016) [MP3|256-320 кб/с] <Reggae, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A0832B5A66588E8C59DDA1A5797191CE3C4C92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128932   (723708) от 27.04.2017
-
-VA - Discoteka 2017 Dance Club. The Best and  Newest Hits  [MP3|320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723708.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Feder - Blame Me (Denis First Radio Remix)
-002. Cascada - Playground
-003. Stereo Palma feat. Myra - Because The Night (Roberto Rios X Dan Sparks Remix)
-004. Sal De Sol - Happy Ending (Short Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 08:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FAB6BDC5FF242FF069106752ED8E3D5C84B112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023277   (723515) от 05.06.2016
-
-VA - Хиты от 90-х до сегодня (2016) [MP3|320 кб/с] <Рок>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вера Брежнева - Мамочка (02:58)
-02. C.C.Catch - Heaven And Hell'2014 (06:40)
-03. Пропаганда - Подруга (03:36)
-04. Dub Step Two Steps From Hell - Strength Of A Thousand Men (Instrumental Core Remix) 2012 (04:20)(   Читать дальше...   )Жанр: Pop, Retro, Pop-RockПродолжительность: 05:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4301228F50EAE7DABC09CF60E1D09987CFE4F19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218376   (723403) от 09.04.2018
-
-VA - Own Space (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723403.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Whitesquare - Tzom (Original Mix)
-002. Aaliyah - Try Again (Hakan Akkus Remix) (Idyl Cover)
-003. Vee Groove, Luciana Gaspar - Wicked Game (Original Mix)
-004. Uper Acid band - Trip To Nowhere (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 13:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7736290CB24FE251F9A4F3B17E2D8BE3AD629C1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023533   (723337) от 05.06.2016
-
-VA - Space Synth Disco 80s (2016) [MP3|320 кб/с] <Space Disco, Synth Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723337.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vanello - Planet Synth
-002. Laid Back - Elevator Boy
-003. Oblivion - Return To Home Planet
-004. Nordika - Illumination(   Читать дальше...   )Жанр: Space Disco, Synth DiscoПродолжительность: 08 :58 :03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599770FACF4DC3032BEB0DF2333C04A8E20AC782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218304   (723308) от 09.04.2018
-
-VA - Живи стильно! Наслаждайся музыкой с Hit FM (7) (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723308.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Эллаи - Шакалака
-002. R-Win - Лень
-003. Лина Мицуки - Феникс
-004. Анна-Мария - Сдаюсь Тебе(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D23C592C04A9C8B3CBA4BBCBCB546F36C2812CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218305   (723305) от 09.04.2018
-
-VA - Живи стильно! Наслаждайся музыкой с Hit FM (8) (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723305.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arcash - Сарочка-Зажигалочка
-002. Виолетта Дядюра (Via-Летта) - Дежавю
-003. Joka (Жока) Feat. Dj Davo - Были-Были
-004. Глюкоза - Он(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BAD44AFDC46B8A2E6A38EBC52D57B78FEE64BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

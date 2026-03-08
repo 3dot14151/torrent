@@ -1,3 +1,32 @@
+###  Публикация: 1510084   (792207) от 15.11.2021
+
+Art Farmer - Silk Road (1997) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonk [6:38]
+02. Ancient Evening [8:27]
+03. Stardust [5:39]
+04. Dance of the One [7:34](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4EE6C64982C03F0705F35A007B8DC8AE53E2A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510083   (792196) от 15.11.2021
 
 Red Norvo And His Orchestra - 1945 - 1947 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing>
@@ -716,35 +745,6 @@ Jimmie Noone - 1930 - 1934 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4793E3A5CCF7B4DE4DAAEDE171FC7E7C6AF02A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275479   (790522) от 11.01.2019
-
-David Tixier Trio - Universal Citizen (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far From the World
-02. Tokyo
-03. Lost Among Ghosts
-04. Tribute to an Old Man(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B083EAFAED5EBCBAEAA6CF333F7050D123D796
 ```
 
 https://mybot314.ru/tekegram_catalog/

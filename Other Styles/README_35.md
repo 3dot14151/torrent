@@ -1,3 +1,32 @@
+###  Публикация: 1501928   (830003) от 13.10.2021
+
+Wychazel - Mirage (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830003.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sahara Breeze
+2. A Trick of the Light
+3. Touched by the Sun
+4. Illusions(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B26720604680B02E94858F2CC4207E27BA66E2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380949   (829763) от 05.05.2020
 
 Inon Zur - Syberia 3 (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Soundtrack>
@@ -714,35 +743,6 @@ Secret Garden - Nocturne The 25th Anniversary Collection (2020) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B009C5304C4631A5D20913622AF66D686B6B9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381386   (824465) от 08.05.2020
-
-New Age, Creative Mind Master, Asian Zen - Home Zen Learning (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824465.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deep Focus with Tibetan Bowls 03:52
-2. Better Stimulation 03:32
-3. All Day Motivation 03:31
-4. Pineal Gland Activation 03:34(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2D7DA2F5F62192B5031DF9FED7FA9CBC011048
 ```
 
 https://mybot314.ru/tekegram_catalog/

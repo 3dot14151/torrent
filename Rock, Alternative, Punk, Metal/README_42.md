@@ -1,32 +1,3 @@
-###  Публикация: 1612066   (1040604) от 14.02.2023
-
-Black Cat Moan - Departure (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crash (2:51)
-02. Departure (3:49)
-03. Molotov Cocktail (3:46)
-04. Boogie Woogie Man (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12914C13834EE7F0F197BB6A7BE1BABC5A9FC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612049   (1040603) от 14.02.2023
 
 Zahna - Stronger Than Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alternative Metal, Female Vocal>
@@ -742,6 +713,35 @@ Autumn's Child - Angel's Gate (2020) Jараnеsе Еditiоn [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:100C9D152F962D78058A9B08A5063A3B3D1FE21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439069   (1040371) от 11.01.2021
+
+Eclipse - Viva La VicTOURia (2020) 2xCD, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040371.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Viva La Victoria (live) (3:50)
+02. Mary Leigh (live) (3:19)
+03. Blood Wants Blood (live) (3:25)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5E3AB18FC6AA44E02E7AF9581B9901798FA801
 ```
 
 https://mybot314.ru/tekegram_catalog/

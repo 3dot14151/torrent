@@ -1,3 +1,177 @@
+###  Публикация: 1400878   (712962) от 08.08.2020
+
+VA - Громкие новинки Августа (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. #2Маши - Я забираю твою подругу (3:24)
+02. 3-ий Январь - Шкатулка (2:58)
+03. 6IX9INE - PUNANI (1:55)
+04. Alyona Alyona Feat. Kalush, Otoy, Білий Бо, Шершень, Dyktor, Дядя Вова - Стержень (5:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C06AB3663D22C3F19CA60785F2BB9DD5789214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400888   (712948) от 08.08.2020
+
+VA - 100 Greatest Party Songs (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prince - 1999 (Edit) 3:39
+02. The B-52's - Love Shack 5:22
+03. Taylor Swift - Shake It Off 3:39
+04. Black Eyed Peas - I Gotta Feeling (Edit) 4:06(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BB528A258C0F5F63136DF180946299A88CCD74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286406   (712888) от 02.03.2019
+
+VA - Transform Uplifting Melodic Reality: Superwave (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Emotional>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila - It's All About The Melody (Extended Mix) 8:59
+02. Mike Sanders - Mediterranean (Extended Mix) 6:31
+03. Para X - Revive (Original Mix) 7:36
+04. Martin Libsen - Proxima Centauri (Original Mix) 6:23(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Emotional, EpicTrance, Euphoric, Harmonic, Susceptive, EnergyПродолжительность: 02:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDBDCC173A42D36E5EFF00B0862EBA73CB8821E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286340   (712882) от 02.03.2019
+
+Bad Company - Ready For Love (2019) Compilation [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Smoke Without A Fire
+02. Ready For Love
+03. Dangerous Age
+04. Painted Face(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407F5F4288DE11FA89A199D1DB75A0F41E9A1A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532653   (712832) от 20.02.2022
+
+VA - Feel The Paradise: Uplifting Trance Mix (2022) [MP3|320 Kbps] <Uplifting, Vocal Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слушателю предлагается отличная, очень лиричная, наполненную чувствами музыка. Аплифтинг транс всегда подразумевает наличие крайне эмоциональных нот и музыкальных тематик. А авторы этих композиций прекрасно знают, как их создавать!001. Luca Dean - When You Paint Me
+002. Daxson - Ethereal
+003. Henry Caster & Sanani - Scirocco
+004. Huvagen & Hidden Tigress - Lost My Way(   Читать дальше...   )Жанр: Uplifting, Vocal Trance, ElectroПродолжительность: 09:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B943CDDC0070F8EF10FE09C5D1D27416A9A515E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130859   (712783) от 03.05.2017
+
+VA - Finding Around Blessing (Energy Tech Trance) 004 (2017) [MP3|320 Kbps] <Trance, Tech-Trance, Harmonic, Stadium Trance, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andrew Rayel & Emma Hewitt - My Reflection (Extended Mix)  6:13
+02.  AirLab7 - Reminiscent Of My Teen Life (George Crossfield Remix)  8:00
+03.  Roman Messer & Betsie Larkin - Unite (Extended Mix)  5:30
+04.  Aly & Fila - Beyond The Lights (Extended Mix)  7:46(   Читать дальше...   )Жанр: Trance, Tech-Trance, Harmonic, Stadium Trance, EnergyПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7CB9DBCAA5D833C39E59433120EFEAE573008A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286344   (712749) от 02.03.2019
 
 Ten Years After - The Platinum Collection (2019) 2CD [MP3|320 Kbps] <Rock>
@@ -571,180 +745,6 @@ Native - Spiritual music (2002) [MP3|320 кб/с] <Native american, Ethnic, Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91F5653557FBD5373FCC25762CB898FC9D34C9F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025389   (711947) от 11.06.2016
-
-VA - Танцевальное Лето Зарубежный (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trey Songz - Y.A.S. (You Ain't Shit)
-02. James Bay - Incomplete
-03. Alanis Morissette - Wake Up
-04. Logic - Till The End(   Читать дальше...   )Жанр: PopПродолжительность: 06:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFAA77448096BD2066A20C2DEAD272C8BADB677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219489   (711922) от 15.04.2018
-
-VA - Весеннее созвездие хитов (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711922.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nk (Настя Каменских) - Чудо Рождества
-002. Ivan Art Feat. Марина Финогенова - Самый Лучший
-003. Афродита - Расстаемся Навсегда
-004. Лена Максимова - До Рассвета(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3018829BAE3C0A6B60C912FC7F72E59E4BA1A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219523   (711920) от 15.04.2018
-
-VA - The Official UK Top 40 Singles Chart 13.04.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake, Big Freedia, 5thward Weebie - Nice For What (New Entry) (03:32)
-02. Lil Dicky - Freaky Friday (feat. Chris Brown) (03:37)
-03. Calvin Harris, Dua Lipa - One Kiss (New Entry) (03:35)
-04. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (03:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C243D4985EEA03D875C14C44DE4FC24EFCB1652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219490   (711914) от 15.04.2018
-
-VA - Весеннее созвездие хитов (2) (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711914.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Isupov - Минутами
-002. Малай - Неправда
-003. Ольга Бузова - Бери Меня
-004. Malika - Все Забыть(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08EAA23B13F3C2ED3E706D0FC632DDA3673CA304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219430   (711908) от 15.04.2018
-
-VA - De Top 100 Aller Tijden 1987 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711908.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Piet Veerman - Sailin' Home (4:36)
-002. Jan Hammer - Crockett's Theme (3:31)
-003. Whitney Houston - I Wanna Dance With Somebody (4:50)
-004. Mixed Emotions - You Want Love (Maria Maria) (3:59)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACB88122C9CF7669E16138EACAEDA32A849A839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025356   (711774) от 11.06.2016
-
-VA - Зайцев нет. Лучшие новинки июня (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lx24 - Мы останемся в городе одни feat. Мари Краймбрери
-02. Iowa - 140
-03. Анжелика Варум - Иллюзия
-04. L'One - Супергерой feat. Найк Борзов(   Читать дальше...   )Жанр: PopПродолжительность: 03:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CB1453D746F31ED12B94AC21EC9C9269D112F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

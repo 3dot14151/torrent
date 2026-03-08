@@ -1,3 +1,32 @@
+###  Публикация: 1852065   (1055982) от 07.02.2026
+
+ЗакЛинания - Омуты сознания (2026) [MP3|320 Kbps] <Punk, Grunge, Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Сквозь 5:06
+02 - Белым 3:59
+03 - Мираж 3:11
+04 - Мысли в моей голове 2:48(   Читать дальше...   )Жанр: Punk, Grunge, PsychedelicПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67A46DA06E2F517AD74B7AD5596C9926F1DC9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852564   (1055959) от 08.02.2026
 
 Various - The Best Of '70s Rock (2009) 4 x CD, Compilation [FLAC|Lossless|image + .cue] <Rock, Classic Rock>
@@ -106,34 +135,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:600A4228D278DC7F73B3CD6110D7C2D80893C7A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852186   (1055650) от 06.02.2026
-
-Кино - 46 (1983) Reissue, Remastered, 2026, Maschina Records [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055650.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Демонстрационная запись «46»
-CD2 - Сессия в МДТ & Акустика
-CD3 - «Квартирник» у Павла КраеваЖанр: RockПродолжительность: 02:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD2648F7D4C1D8E037772CE76F310F9E2AD4B5ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,35 +309,6 @@ Haken - Fauna (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED6EFB5B82429223AF9F0EB30A94927FE2E8C9C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851736   (1055238) от 03.02.2026
-
-Би-2 - Сердцебиение (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Би-2 feat. Лу Геворкян (Louna) - Никто не спросит
-2. Чулпан Хаматова - Это не игра
-3. Би-2 - Как будто падает
-4. Би-2 feat. Данила Козловский - Он повернулся(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D8C8706E88217E0F0E076F87A49319949EA480
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -743,6 +715,35 @@ Mayhem Mavericks - I Can Feel The Heartache (2026) [MP3|320 Kbps] <Melodic Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACA0E58DF89156287953BABBC2C6C0A686A45CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850787   (1054700) от 29.01.2026
+
+Uriah Heep - Salisbury (1971) 2XCD, Japanese Edition, SHM-CD, Remastered, 2026, BELLE [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Bird Of Prey
+02. The Park
+03. Time To Live(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 02:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB19732C84EB814302BB1DDCCFE105A39297CFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

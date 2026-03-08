@@ -1,3 +1,61 @@
+###  Публикация: 1601870   (1046332) от 02.01.2023
+
+The Les Humphries Singers - Greatest Hits (1989) Compilation, WEA [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, Gospel>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Loo (3:46)
+02. Mexico (3:45)
+03. Kansas City (4:11)
+04. (We'll fly you to the) Promised Land (2:56)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, GospelПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B86CC1BAFC293E10D4C013D10417E0A559B945A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601892   (1046252) от 03.01.2023
+
+Les Humphries Singers - The Best Of (2020) Rerecorded, OVC Media [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock, Gospel>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh! Happy Day (Rerecorded) [00:04:47]
+02. Guantanamera (Rerecorded) [00:03:16]
+03. Mexico (Rerecorded) [00:04:08]
+04. Palma Majorca (Rerecorded) [00:04:56](   Читать дальше...   )Жанр: Soft Rock, Pop Rock, GospelПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D84E31D0F32970F2D4D2D8A9C146D823D37E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602250   (1046202) от 04.01.2023
 
 Илья Киреев - Vegas City Hall (Live) (2023) [MP3|320 Kbps] <Pop>
@@ -687,64 +745,6 @@ The Magic Disco Machine - 2 Albums (1975, 1976) LP [MP3|320 Kbps] <Funk, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20A8E1143F71A53724607CFE8542AAA6545284D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604592   (1045313) от 14.01.2023
-
-VA - Best Of Nu Monkey Records 2022 Part 2 (2023) CD, Compilation [MP3|320 Kbps] < Nu-Disco & Jackin, Soulful, Funky, Indie Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JMMSTR - Miracles
-02. Souxsoul, Sibylle - Specialize In Love (DLD Touch Remix)
-03. Jerem A - You've Got Me Burnin' Up (Nu Disco Mix)
-04. DJManuel, Jakilin Tunes - Opps(   Читать дальше...   )Жанр: Nu-Disco & Jackin, Soulful, Funky, Indie DanceПродолжительность: 01:28:38 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD1E67159AD496DD44EF6B04091062809F381B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604611   (1045275) от 14.01.2023
-
-Gilla - 5 Albums (1975 - 2000) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tu Es ( Remix 2000 ) 3:44
-02. Tu Es  3:36
-03. Willst Du Mit Mir Schlafen Gehen? 3:38
-04. Mir Ist Kein Weg Zu Weit 3:46(   Читать дальше...   )Жанр: DiscoПродолжительность: 03:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79A6A7B2F7F48B24AA5857FF9A55CD8F14B08BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

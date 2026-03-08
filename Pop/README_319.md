@@ -1,3 +1,61 @@
+###  Публикация: 1687953   (125340) от 28.12.2023
+
+VA - 101 80s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Yazz & The Plastic Population - The Only Way Is Up
+02.  Dexys Midnight Runners - Come On Eileen
+03.  The Jam - Town Called Malice
+04.  Siouxsie And The Banshees - Dear Prudence(   Читать дальше...   )Жанр: Electronic, Pop, RockПродолжительность: 06:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB721CB01D1A8707D8173D327B784AC859EB4B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688410   (125213) от 29.12.2023
+
+VA - 101 Electronic 80s (2017) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Jazz, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soft Cell - Tainted Love
+02.  The Human League - Love Action
+03.  Various Artists - Enola Gay (Remastered 2003)
+04.  Visage - Fade To Grey(   Читать дальше...   )Жанр: Electronic, Hip Hop, Jazz, RockПродолжительность: 06:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18452F569ED1D8704FAD33B97B88A5596BFF5AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688367   (125048) от 30.12.2023
 
 VA - 101 90s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
@@ -687,64 +745,6 @@ A-HA - Scoundrel Days (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C734DC6405306DAB7A9405058B2CCEA8E3600A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693207   (121877) от 20.01.2024
-
-Hurts - Exile (2013) Deluxe Limited Edition [APE|Lossless|image + .cue] <SynthPop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exile (4:16)
-02. Miracle (3:44)
-03. Sandman (3:54)
-04. Blind (4:23)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537ED433F56A2872BCF9527481575CC547CA45F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693249   (121870) от 20.01.2024
-
-Philip Oakey & Giorgio Moroder (1985) 1st UK Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Must The Show Go On? / In Transit (Instrumental) (5:11)
-02. Good-Bye Bad Times (3:44)
-03. Brand New Love (Take A Chance) (4:06)
-04. Valerie (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E6F8C339C2B97AC73605DF1D6BF2FA79D359FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

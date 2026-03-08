@@ -1,3 +1,32 @@
+###  Публикация: 1652210   (218497) от 10.08.2023
+
+VA - Deep House Relief (2023) CD, Compilation [MP3|320 Kbps] <Deep House, Downtempo, Soulful, Beach House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_218497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M-Sol DEEP, Tomas Zolan - Naomi (Original Mix)
+02. Duel (HU), M-Sol DEEP - Scarlet Sun (Original Mix)
+03. NatureVibes, M-Sol DEEP - Fantasy (Original Mix)
+04. DMTunes, Teeka, M-Sol DEEP - Bodhi (Original Mix)(   Читать дальше...   )Жанр: Deep House, Downtempo, Soulful, Beach HouseПродолжительность: 01:30:01 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B055011C83A1125349C8994CC42AE6F0190D9882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425797   (218460) от 22.11.2020
 
 VA - House Clubhits Megamix 2021 (2020) [MP3|320 Kbps] <Funky, Club House>
@@ -716,35 +745,6 @@ VA - Deep House Summer Hits 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94341D7C91503E01190949C560526872D5837F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654031   (205989) от 18.08.2023
-
-VA - Power Workout - Gym Hits - Fitness and Healthy Lifestyle (2023) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta - Baby Don't Hurt Me (Hypaton & Giuseppe Ottaviani Remix) (feat. Anne-Marie & Coi Leray) (2:58)
-02. Lizzo - About Damn Time (3:11)
-03. Bebe Rexha - Call on Me (David Guetta Remix) (2:55)
-04. Tiësto - 10 35 (2:52)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B736272190F8A834EED487CE67EB5B1762E8622
 ```
 
 https://mybot314.ru/tekegram_catalog/

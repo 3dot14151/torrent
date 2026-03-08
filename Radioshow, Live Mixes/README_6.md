@@ -1,3 +1,61 @@
+###  Публикация: 1393626   (766952) от 01.07.2020
+
+Kyau & Albert - Anjunabeats Worldwide 681 (2020-06-22) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766952.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jon Gurd - Together
+2. Matt Fax feat. LEVV - Always You
+3. Grum feat. Nicole Dash Jones - Home
+4. Rick & Morty feat. Kotomi & Ryan Elder - Don’t Look BackЖанр: Trance, Progressive HouseПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8083A8F66A7E69CE740998ED02F38C68527F450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126575   (765525) от 18.04.2017
+
+Aly & Fila - Future Sound Of Egypt 492 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M.I.K.E. Push vs Robert Nickson - Tachyon (Original Mix)
+02. RAM feat. Cari - Soulfood (Original Mix)
+03. Miroslav Vrlik & Andre Visior - Raindrops (Extended Mix)
+04. Richard Durand & Neev Kennedy - Running on Empty (Hassan Jewel Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17185C1438D671550D615A040B7424301F89A722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214677   (764059) от 22.03.2018
 
 VA - Aly & Fila - Future Sound of Egypt 540 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -684,64 +742,6 @@ Marc Benjamin - Nicky Romero & Friends Presents NYE (2021-12-31) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F85EC1EC6B28F9823B92152135526609A040434F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511539   (734003) от 03.02.2022
-
-Goa Gil - Mahashivaratri (2002) Mixed Live In Goa [MP3|~245 Kbps (V0)] <Psy-Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Early Night pt. 1
-02 - Early Night pt. 2
-03 - Middle Night pt. 1
-04 - Middle Night pt. 2(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 07:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FC069ED3F392DF52E782DC26A2DF13C7D3A92D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283933   (731046) от 19.02.2019
-
-VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arkham Knights - First Light (World Premiere)
-02. Marcus Santoro - Give it All
-03. Above & Beyond - Distorted Truth
-04. Emme & Rodrigo Deem - Black Mamba(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA425E48326BC1544913739A7034D767408C60A
 ```
 
 https://mybot314.ru/tekegram_catalog/

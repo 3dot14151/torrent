@@ -1,3 +1,119 @@
+###  Публикация: 1083972   (272485) от 17.12.2016
+
+VA - Empire Records - Club Hit (2016) [MP3|268-320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yoyum - Tears
+02. Daviddance - Time (Feat. J. Cockburn) (Original Mix)
+03. Steve van gur - Hello
+04. Anne deist - First time(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C871935E95BBD5BCADC9EB7D4FE887191E8604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188969   (272080) от 04.12.2017
+
+VA - The Best Dancing Hits of The 90’s years (2017) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-Session – Lucky Number
+02. Missing Heart – Charlene
+03. Music Instructor – Super Fly
+04. Look Twice – Feel The Night(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B9FDB5C50DE48F71BF8E7469CCA4F0FD158C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337863   (271517) от 13.11.2019
+
+VA - Осенняя свежая 30-тка Vol 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271517.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Alekseev - Камень и вода (3:13)
+2.Andy Panda, Miyagi, TumaniYO - Jumanji (3:36)
+3.Anivar - Крыльями (3:24)
+4.Elman - Лети (2:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8357061B4C59E3E29B070FCFC885F0FF28E499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189219   (271290) от 05.12.2017
+
+VA - Top 50 Brazil (2017) [MP3|~203-283 Kbps] <Latino>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anitta, J Balvin - Downtown - 03:14
+02. MC Jhowzinho e MC Kadinho - Agora Vai Sentar - 03:49
+03. Mc Don Juan - Amar Amei - 03:38
+04. Matheus & Kauan, MC Kevinho - Deixa Ela Beijar - 02:46(   Читать дальше...   )Жанр: LatinoПродолжительность: 02:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCFDC030F86F691E5268BB99F07CAA4641D7030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189229   (271288) от 05.12.2017
 
 VA - Reggaeton: Latin Direct Radio Show (2017) [MP3|320 Kbps] <Latin, Reggaeton, Dance>
@@ -628,122 +744,6 @@ VA - не Громкие новинки недели 43 (2019) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FEC7658A062136D23113E866356FF2806443E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338523   (268188) от 17.11.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 15.11.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268188.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Tones And I - Dance Monkey (3:29)
-2.Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) (2:37)
-3.RSAC - NBA (Rompasso Remix) (2:53)
-4.Slider & Magnit - Morze (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE5AF84E0D82822E58D3E7E59DC91D3784F1E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338958   (268058) от 17.11.2019
-
-VA - Зарубежка 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268058.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Coldplay - Arabesque (5:40)
-2.Ozzy Osbourne - Under The Graveyard (4:57)
-3.Logic - OCD feat. Dwn2earth (4:51)
-4.Lindemann - Ich weiß es nicht (4:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A720BEE3A088C40CF93E2CCD1A99E91A43A772F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338606   (268055) от 17.11.2019
-
-VA - Зайцев.нет Лучшие новинки Ноября (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268055.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Jessie Ware - Mirage (Don't Stop) (4:47)
-2.Виктор Королёв - Звёзды на ладони (4:31)
-3.Истов - Мне бы крылья, мне бы мечту (4:18)
-4.Nargiz - Войди (4:09)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784579ED1C64BBF7D26A08334C6D4E8A0BAAC836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266992   (267897) от 05.12.2018
-
-VA - Beatspot Winter '18 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echo Boy — Obsession (Original Mix)
-02. Johanna Lopez — Feels Like Heaven (Teddy Brown Remix)
-03. Patrick Richmond — Deceiver (Dub Mix)
-04. John Blame — Back in Town (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5516D40F4E7236CB536C082EA7F4D5391EDCD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

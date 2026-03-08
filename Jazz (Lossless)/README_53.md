@@ -1,3 +1,32 @@
+###  Публикация: 1110917   (850441) от 04.03.2017
+
+Gerry Mulligan - Modern Jazz Archive (1950 - 1980) 2CD, 2004, Membran Music [APE|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850441.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- Walking Shoes:
+01.It May Be Wrong [03:28]
+02.So What [02:46]
+03.Bernie's Tune [02:55](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F556C1D02C69EBEF2387EAEF35267FF67B228AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110952   (850440) от 04.03.2017
 
 Art Tatum - Performance: Solo Piano Recordings from 1933 to 1952 (2010) 2CD, Fuel Label Group [FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
@@ -714,35 +743,6 @@ Marcos Valle & Victor Biglione - Live In Montreal (2007) [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE5360177E0D5B550764FB1B5C0001A8B023612F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499758   (846320) от 03.10.2021
-
-Ella Fitzgerald - The Irving Berlin Songbook, Vols. 1-2 (1958) 2CD, 1986, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846320.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Let's Face the Music and Dance [2:58]
-02. You're Laughing at Me [3:17]
-03. Let Yourself Go [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A26CB44A1D5E179B95E7FE7D92FEA3B06B4D781
 ```
 
 https://mybot314.ru/tekegram_catalog/

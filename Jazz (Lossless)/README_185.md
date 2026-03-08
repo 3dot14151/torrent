@@ -1,3 +1,32 @@
+###  Публикация: 1249557   (433601) от 24.09.2018
+
+Kenny Dorham - Eight Classic Albums (1953 - 1960) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433601.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. An Oscar For Oscar [2:48]
+02. Ruby My Dear (take 2) [3:06]
+03. Be My Love [3:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 05:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109BE283C85C408E1204001F17CAAF2A5733A3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249615   (433451) от 24.09.2018
 
 Omnibus Wind Ensemble - Music By Frank Zappa (1995) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion, Modern>
@@ -718,40 +747,6 @@ Angelo Debarre, Serge Camps, Frank Anastasio - Gypsy Guitars (1989) Hot Club Rec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:297455738FCFAB689ECED733DB19337A3294EDB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553684   (431795) от 03.10.2012
-
-VA - Explorations Into Dancefloor Jazz Vol. 1-3 (1994-95) [FLAC|Lossless]<Acid Jazz, Jazzdance>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_431795.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Count Basic - Strange Life With Dub (Kruder & Dorfmeister Remix)
-2. Hookian Minds - Freshmess (Red Snapper Mix)
-3. Soul Bossa Trio - Sally
-4. Rollercone - Rester Eveillé
-5. Angel - Step Into The Light
-6. Tosca - Chocolate Elvis
-7. Negrocan - Aquela Esquina (Snowboy Remix)
-8. A.P.E. - Fallen
-9. Silent Majority - Still Water (Horny Mix)Жанр: Acid Jazz, JazzdanceПродолжительность: 02:10:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1357436   (974339) от 03.02.2020
+
+VA - Mystic Spirits Vol. 2, 2CD  (2000) [FLAC|Lossless|image + .cue] <Ambient, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974339.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-1 –Magic Voices Australia 3:22
+2-2 –Yanni Adagio In C Minor 3:50
+2-3 –Elysia One In A Million Dreams 3:56
+2-4 –Mike Oldfield To France 4:42(   Читать дальше...   )Жанр: Ambient, FolkПродолжительность: 02:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B64E2AC6234555751FCD9B19D90194E8ED42018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357457   (974336) от 03.02.2020
 
 VA - Mystic Spirits vol. 3, 2CD (2001) [FLAC|Lossless|image + .cue] <Folk, Ambient>
@@ -724,35 +753,6 @@ VA - Birds of Prey / Хищные птицы (Потрясающая истор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74DAA493A30EB4F046789261BD6BF3130376FEDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358227   (969562) от 07.02.2020
-
-VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969562.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:14| 01. Doja Cat - Boss Bitch
-|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
-|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
-|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311378A72E690E63E71DF6D75707451E779CD6A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

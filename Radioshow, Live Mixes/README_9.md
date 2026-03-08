@@ -1,3 +1,61 @@
+###  Публикация: 1291156   (650688) от 27.03.2019
+
+Daniel Kandi - Live @ Cuckoo's 1st Birthday (26-01-2019)[MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gerome - One With The Music
+02. Gerome - Sky Citizen
+03. OceanLab & Justine Suissa Vs Exolight & Suncatcher - Siren Of The Sea (Daniel Kandi Mashup)
+04. Daniel Kandi - Child(   Читать дальше...   )Жанр: TranceПродолжительность: 01:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDA9090D7BE8EE378A4BE5BD8A3E930DE80AC09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541123   (648758) от 01.04.2022
+
+Vintage Culture - Live @ Carnaval, Warung Beach Club, Brazil (2022-02-26) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture - Space
+02. ID - ID
+03. KC Lights ft. Tailor - Fall (Club Mix)
+04. Arude & Sincz - Become Immortal And Then Die(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 06:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833C71F665AFE3613475D1A35D2A402E2A3E99E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541348   (646942) от 02.04.2022
 
 Lane 8 - Spring 2022 Mixtape (2022-03-30) [MP3|320 Kbps] <Progressive House, Deep House>
@@ -688,64 +746,6 @@ Two Friends - Big Bootie Mix Volume 021 (2022-05-23) [MP3|320 Kbps] <Dance, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4CBD87ECDCC7608026087594B9058769D2A34EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528352   (578849) от 29.05.2022
-
-Trance Wax - Trance Wax Radio (01-07) (2021-2022) [MP3|320 Kbps] <Trance, Breaks>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything But The Girl - Missing (Trance Wax Remix)
-02. Snap! - Rhythm Is A Dancer (Trance Wax Remix)
-03. Above & Beyond - Far From In Love (Trance Wax Remix)
-04. Trance Wax - Malu (Grum Remix)(   Читать дальше...   )Жанр: Trance, BreaksПродолжительность: 07:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16395451E450DD45C383AEFF7CDE368B3661A2EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234691   (569369) от 06.07.2018
-
-VA - Ori Uplift & Danny Oh - Uplifting Only 282 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phillip J feat. Kim Casandra - Silent Emotion (Original Extended)
-02. Giuseppe Ottaviani featuring Thea Riley - On The Way You Go (OnAir Extended Mix)
-03. Saad Ayub & Christina Novelli - The Only One (Uplifting Mix)
-04. Sergey Lagutin - Waiting For (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8090B4B698EFE664816584B2155EDB96BBD6C46
 ```
 
 https://mybot314.ru/tekegram_catalog/

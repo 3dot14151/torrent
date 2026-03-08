@@ -1,3 +1,90 @@
+###  Публикация: 1290657   (674451) от 22.03.2019
+
+Powder - Powder In Space (2019) [FLAC|Lossless|tracks + .cue] <Electronic, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samo, Hidden Operator - Захват Сзади Rox (3:06)
+02. Tornado Wallace - Open Door (Born Inna Tent Mix) (3:24)
+03. Acid Pauli - Release (1:54)
+04. Don't DJ - Southern Shore (4:03)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8973EBBF4671CCDD8DF0FE75DC98B826F4635E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290656   (674450) от 22.03.2019
+
+Silk Road Assassins - State of Ruin (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Grime>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Overgrown 	(2:54)
+02. 	Split Matter (Ft. Kuedo)  (3:49)
+03. 	Armament 	(3:33)
+04. 	Vessel 	(3:09)(   Читать дальше...   )Жанр: Electronic, GrimeПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC417DC8683B0BDB3014DAFCE3A28278400E88BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290689   (674449) от 22.03.2019
+
+Ercos Blanka - Classic Trick (2018) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Trick (8:34)
+ 02. 36H (7:01)
+ 03. Brigante (8:55)
+ 04. You and Him Master (8:40)(   Читать дальше...   )Жанр: Deep House, Deep Techno, DowntempoПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E53AEB8DE1A03091B2F7201EB11FA339A9D80A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223604   (673301) от 05.05.2018
 
 VA - Deep House Hits: Ibiza 2018 [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -651,93 +738,6 @@ VA - Miami Deep House Essentials 2018 (2018) Deluxe Version [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:306AA134DC2C9D08D161C86ED6A4ED860072924C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139035   (661290) от 01.06.2017
-
-VA - Endless Music (Mixed & Compiled by Paul Lomax) Vol. 1,2 (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Oceanvs Orientalis - Revenge of the Wankers [09:05]
-02 Matt Correa - Euphony (feat. Alexey) [06:46]
-03 Mika Olson - What I Need (feat. Jermaine Fleur) [07:35]
-04 PopArt - Florescent Love (Miguel Campbell Remix) [05:43](   Читать дальше...   )Жанр: Deep House, Chill House |Продолжительность: 02:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7EA59B8BFD52B8F55D6E1F3C3651364DF88EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539095   (660083) от 23.03.2022
-
-Tensnake - L.A. Noir (2022) Mixed & Unmixed [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightshift (Mixed) (Enduro Disco Noir Mix) (5:22)
- 02. Simpansi (Mixed) (Factory Sequences Noir Mix) (5:24)
- 03. Call Me (Mixed) (Tensnake Noir Mix) (4:31)
- 04. Antibodies (Mixed) (Street Player Noir Mix) (4:29)(   Читать дальше...   )Жанр: EDM, Nu Disco, Club HouseПродолжительность: 01:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B227F425E1EDC6ED871A9B2AC805907B0C89BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225514   (659843) от 16.05.2018
-
-Simian Mobile Disco - Murmurations (2018) Wichita [FLAC|Lossless|tracks+.cue] <Tech House, Ambient, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boids (04:33)
- 02. Caught In A Wave (feat. Deep Throat Choir) (06:44)
- 03. We Go (feat. Deep Throat Choir) (08:31)
- 04. Gliders (03:40)(   Читать дальше...   )Жанр: Tech House, Ambient, Deep HouseПродолжительность: 00:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FED1C19172861F5500B9704C584855FF0DCC1E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

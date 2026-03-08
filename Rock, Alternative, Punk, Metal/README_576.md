@@ -1,32 +1,3 @@
-###  Публикация: 1318509   (494397) от 06.08.2019
-
-Slipknot - We Are Not Your Kind (2019) [MP3|320 Kbps] <Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insert Coin
-02. Unsainted
-03. Birth of the Cruel
-04. Death Because of Death(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590A7FF07F7A4941C07AAB7065C0D9DD196A6F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053852   (494342) от 19.09.2016
 
 Smokie - Uncovered Too (2001) [APE|Lossless|image + .cue] <Pop-Rock>
@@ -788,6 +759,35 @@ Bob Dylan - Tempest (2012) [FLAC (tracks+cue)|Lossless]<Folk-Rock>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404326   (493040) от 25.08.2020
+
+VA - Season Of The Witch (2011) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donovan - Season of the Witch (Re-Recorded / Remastered)
+02. Switchblade Symphony - Witches (Temple of Rain Mix)
+03. The Symphonic Rock All-Stars - Your Betrayal (Made Famous By Bullet for My Valentine)
+04. George Benson - Witchcraft(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A7982F13704F02FEDFFFBF4BB474617666E0A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

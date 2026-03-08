@@ -1,3 +1,177 @@
+###  Публикация: 1346374   (156170) от 20.12.2019
+
+VA - С Новым Годом ННМ! (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156170.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.ABBA - Happy New Year (4:24)
+2.Boney M. - Jingle Bells (3:28)
+3.Bryan Adams - Christmas Time (4:06)
+4.C. C. Catch - Strangers by Night (3:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610F947C8171EE48E03DF900DC6BE04BFAC7E1F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968394   (156096) от 23.12.2015
+
+VA - Хитовая зима №1 (2015) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156096.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Согдиана - Эпидемия
+002. Ольга Орлова - Птица
+003. Артем Пивоваров - Хвилини
+004. Archi-M Feat. Timaro - Сколько Боли Во Мне(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDD39C1953C1EB8DFFF8FC56265F8791A93449A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270593   (155856) от 20.12.2018
+
+VA - Billboard Hot 100 Singles Chart 22.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155856.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ariana Grande - thank u, next
+002. Halsey - Without Me
+003. Travis Scott - SICKO MODE
+004. Marshmello, Bastille - Happier(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F49D0F2644A664F4AC780060B42CA8E4850C840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194503   (155785) от 25.12.2017
+
+VA - Light Music Bass Best (2017) [MP3|192-320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond, Zoe Johnston - You Got To Go feat. Zoe Johnston (Seven Lions Remix)
+02. Agnes Obel - Fuel To Fire (Dexcell Remix)
+03. Agressor Bunx - Galaxy
+04. Airstrike & Allison Gray - Frozen (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 17:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1344C35DE0915E8324BDF2352063D3DDD818A9F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270587   (155744) от 20.12.2018
+
+VA - Dark Beats: French Rap (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155744.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Albi - Sommeil
+002. Christian - Garcon Riche
+003. Dread Mactar - Kan J'rap
+004. 4Keus - Brooklyn(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 05:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2A541BA5C63F7EB7DA4595FF907037D5D6D8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194529   (155699) от 25.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 14) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Валерий Ободзинский  -  Эти глаза напротив  3:29
+02.  Николай Эрденко  -  Отрада  2:20
+03.  Нина Пантелеева  -  Маленький принц  3:25
+04.  Вокальный квартет Аккорд  -  Слушай весну  2:37(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736D63399B76152C916EDF96E7080DD0A0B9D3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270588   (155698) от 20.12.2018
 
 VA - Essentials Rap Hits Releases (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -574,180 +748,6 @@ VA - Sensitive Deep House (2016) [MP3|320 Kbps] <Deep House, Electro, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8310BF6F013BC92BE6B4CAD185FDE9CBA7C4D600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086096   (154684) от 23.12.2016
-
-VA - Underworld - Best275z (1988 - 2016) [MP3|320 Kbps] <Electronic, Progressive House, Techno, Downtempo, Alternative Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Cowgirl 08:30
-02 Dinosaur Adventure 3D 07:57
-03 Pearls Girl 09:37
-04 I Exhale 08:13(   Читать дальше...   )Жанр: Electronic, Progressive House, Techno, Downtempo, Alternative DanceПродолжительность: 07:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F24BB29A2247B34856C6FAA22B42689C63FCCCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600734   (154652) от 28.12.2022
-
-VA - 50 лучших треков Шансон 2022 [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Розенбаум - Да Ладно (3:47)
-02. Евгений Григорьев - Женский Каприз (3:46)
-03. Денис Майданов - Все будет гуд (4:17)
-04. Стас Михайлов - Я Жду Звонка (3:24)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E564A4F79BE9F1CD41A7BD29F775E1841CEDE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433787   (154564) от 22.12.2020
-
-VA - Sunset Event: Chillout Sound Mix (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настрой музыкальной подборки "Sunset Event" как нельзя лучше передает обложка, которая исполнена в привычной стилистике этого музыкального жанра. Музыка музыкальной подборки как бы призывает остановить свой скоростной ритм современной жизни и погрузиться в состояние релакса.001. Weber & Weber - Fly On Wings
-002. Hamam Mounier - Oriental Wellness
-003. C.Cil - Calm & Quiet
-004. Chico Torres - Casual(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 07:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B3248BA86785295E227594A2EB1388B377C60C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194296   (154514) от 25.12.2017
-
-VA - Корпоратив 2018 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Disco House, Dance, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154514.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Preparty
-01-Gloria Gaynor  - I Will Survive (Yuriy Poleg Remix - Dj V Edit)
-02-Block & Crown - Good Night (Club Mix)
-03-Stefan Rio Feat. Franca Morgano - Ai No Corrida (Extended Mix)(   Читать дальше...   )Жанр: Club House, Disco House, Dance, Deep HouseПродолжительность: 03:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5D005CFCD80AB96AA2A206CF971749A7AC2B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433846   (154495) от 22.12.2020
-
-VA - Ремиксы от MGDC FM Vol 8 (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Navai - Зачем Ты Врёшь (Vadim Adamov & Hardphol Radio Edit) (2:14)
-02. Ханна - Навсегда твоя (Alex Shik & Kirill Duck Radio Edit) (2:22)
-03. Artik & Asti - Все мимо (Chad & Eugene Star Radio Edit) (2:25)
-04. KARA KROSS - Поколение (Ramirez & Yudzhin Radio Edit) (2:13)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3A9C4AC68A7E752EB19DC43740907CDD9DA3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085981   (154488) от 23.12.2016
-
-VA - Christmas Jazz And Lounge Music (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arturo Annecchino - Lazy Moon 7:32
-02. Luis Bacalov - La Fete 3:13
-03. Piero Piccioni - Flirt 3:52
-04. Evan - Fall in Love (Part 1) 3:52(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765AE4D3C0C2BAAFC4C912D193F4D3DE2EF25982
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1006042   (831197) от 10.04.2016
-
-Воскресное время - Первый канал (10.04.2016) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-аналитическая программа Первого канала, выходящая в эфир каждое воскресенье (кроме праздников) с начала сентября по начало июля в 21:00 с хронометражем в 1 час. Рубрик не имеет. Состоит из двух частей примерно по полчаса каждая, разделенных рекламным блоком. Производится Дирекцией информационных программ ОАО «Первый канал».Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 01:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA681C2107F07289DF898DC930E0CC5FE491FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 878470   (831186) от 21.03.2015
 
 FINAL FANTASY III 1.2.0 [Ru]
@@ -682,6 +656,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9753025CEE24AC0F3899BAF1A8EF8D2361A3CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005920   (830824) от 10.04.2016
+
+VA - DJ SS & Influx UK Present: Deepsound Vol.2 (2016) [MP3|320 кб/с] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mixmaster Doc, Dave Shichman, Bernzilla, DJ SS - Personally Frankly [05:34]
+02. Boyan & Boyer - Be Right Here (feat. Mission Zero) [04:36]
+03. Soul Savaz - From My Heart to the Heavens (feat. DJ SS, High Roll, Victor, Tsiu) [06:00]
+04. Full Kontakt - Conditions [04:14](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFAFDACACF30B5E3FBD6FC662804FD574BDD3158
 ```
 
 https://mybot314.ru/tekegram_catalog/

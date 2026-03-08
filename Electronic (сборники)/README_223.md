@@ -1,3 +1,32 @@
+###  Публикация: 1785260   (24578) от 15.03.2025
+
+VA - Compilation Part 148 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumanov - Those Moments
+02. Delal Derin - Hard to Forget You
+03. Muvi - April
+04. Akmalov - Bassline(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961B55E197BF33A5FE6A0A9B21401B3E866760CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785485   (24452) от 16.03.2025
 
 VA - Record Super Chart 15.03.2025 [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Musical kaleidoscope part 39 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE8E94512C8965ED2922CDE4D2F9B021F07A5AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796183   (18813) от 09.05.2025
-
-VA - Compilation Part 160 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamidshax - Me Before You
-02. Jumanov - Oh Well
-03. A-Sultan & Akmalov - You
-04. Jumanov - Take A Rest(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F268236721880404772A7EFA4C522F0890CC39B
 ```
 
 https://mybot314.ru/tekegram_catalog/

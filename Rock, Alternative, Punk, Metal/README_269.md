@@ -1,32 +1,3 @@
-###  Публикация: 1198513   (808287) от 11.01.2018
-
-Leaves' Eyes - Sign of the Dragonhead (2018) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sign of the Dragonhead 
-02. Across the Sea 
-03. Like a Mountain
-04. Jomsborg (   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50E36747EDF9FF68D8252C69666EA0023FA44F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383929   (808275) от 17.05.2020
 
 Clouds - Durere (2020) [FLAC|Lossless|Web-DL|tracks] <Melodic Doom, Funeral Doom, Death Metal>
@@ -745,6 +716,35 @@ Agnostic Front - The American Dream Died (2015) [MP3|320 кб/с]<Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1855C1DB0E40F66CCB65A64DA582CF674C0D7CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119592   (807094) от 28.03.2017
+
+Ольга Арефьева и Ковчег - Ангел и девочка (2017) [FLAC|Lossless|tracks+ .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полночь
+02. Пирамида Хео
+03. Моа-моа
+04. Двойное дно(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E84002E9D96B49DBA5CF50DE48846757A609CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

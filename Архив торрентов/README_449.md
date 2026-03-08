@@ -1,3 +1,32 @@
+###  Публикация: 979279   (959789) от 26.01.2016
+
+Northern Lite - I Like (2011) [FLAC|Lossless|image + .cue] <Synthpop, Rock, Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Day [4:33]
+ 02. We Are [3:33]
+ 03. Running [5:42]
+ 04. Raise The Dead [6:56](   Читать дальше...   )Жанр: Synthpop, Rock, ElectronicПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6AAC1C36BD0580C78F4983C8181D207AC80D76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978280   (959788) от 26.01.2016
 
 ROTANOV - Best of Nu Deep 07 (2015) [MP3|320 кб/с] <Deep House, Nu Disco>
@@ -664,32 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC572DE67AC12894762CC764D306BA2BA55B40A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978325   (959648) от 26.01.2016
-
-Паранормальное явление 5: Призраки / Paranormal Activity: The Ghost Dimension (2015)  BDRip [H.264/720p] [Theatrical Cut]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодые супруги Райан и Эмили, и их 6-летняя дочь Лейла переезжают в довольно симпатичный и тихий дом. В гараже они находят видеокамеру и коробку кассет. Но они даже не подозревали, что они увидят, когда заглянут в объектив камеры...Производство: США / Blumhouse Productions, Paramount PicturesЖанр: УжасыРежиссер: Грегори ПлоткинАктеры: Крис Дж. Мюррэй, Бриттани Шоу, Айви Джордж, Дэн Гилл, Оливия ТейлорПеревод: Дублированный (iTunes)Язык субтитров: АнглийскийПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC5B9A4FA965F9DF18DB00EE7BCE35ED7068C371
 ```
 
 https://mybot314.ru/tekegram_catalog/

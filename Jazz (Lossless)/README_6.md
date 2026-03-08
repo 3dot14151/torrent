@@ -1,3 +1,32 @@
+###  Публикация: 1616133   (1036738) от 01.03.2023
+
+Sun Ra And His Arkestra - Greatest Hits: Easy Listening For Intergalactic Travel (1956 - 1973) 2000, Evidence [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturn [3:03]
+02. Kingdom of Not [5:34]
+03. Medicine for a Nightmare [2:20]
+04. Enlightenment [5:05](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard Bop, Big BandПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BD9DA2EDA8EF8CF2CAC75E2FFC1BC27B5BCBA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442477   (1036670) от 25.01.2021
 
 Hal Singer - Milt & Hal (1968) 2019, Solid Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Soul-Jazz>
@@ -716,35 +745,6 @@ Dinah Washington - The Great Dinah Washington (1993) Goldies [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F1E111991EFD0079CB90BD9FBD42407F2A15550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617423   (1035320) от 06.03.2023
-
-Marchio Bossa - I asked for you (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Asked For You (feat. RYU ZEE SU)
-02. Just A Dream With You (feat. RYU ZEE SU)
-03. Secret Love Affair (feat. RYU ZEE SU)
-04. Dernier Métro (feat. RYU ZEE SU)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205545901E1783E7C7BA0631BDE5B9D570EEA4E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

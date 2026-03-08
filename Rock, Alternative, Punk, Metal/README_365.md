@@ -1,32 +1,3 @@
-###  Публикация: 1024383   (718058) от 08.06.2016
-
-The Screaming Jets - Chrome (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01  Automatic Cowboy
-02  Cash In Your Ticket
-03  Razor
-04  No Place No Home(   Читать дальше...   )Жанр: Hard Rock, Hard & HeavyПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8771152D62FE68C8E756D04A0B1C0DFD4FE5D2CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024392   (717901) от 08.06.2016
 
 Whitesnake - 1987 (2015) Remaster [APE|Lossless|image + .cue] <Hard Rock>
@@ -739,6 +710,35 @@ Mythra - Still Burning (2017) [MP3|320 Kbps] <NWOBHM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0397D62506463739A60E4DC9FFE2EAA67C6DD360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130261   (716653) от 01.05.2017
+
+Tak Matsumoto & Daniel Ho - Electric Island, Acoustic Sea (2017) [FLAC|Lossless|tracks + .cue] <Instrumental Rock, Folk, World, & Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soaring on Dreams (5:32)
+02. Fujiyama Highway (4:08)
+03. Magokoro (True Heart) (5:01)
+04. Infinite Escapade (4:45)(   Читать дальше...   )Жанр: Instrumental Rock, Folk, World, & CountryПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4AAC2790E9FC2824D56807576873624C92F5094
 ```
 
 https://mybot314.ru/tekegram_catalog/

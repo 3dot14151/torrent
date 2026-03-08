@@ -1,3 +1,32 @@
+###  Публикация: 1672883   (167325) от 30.10.2023
+
+Bill O'Connell - A Change Is Gonna Come (2022) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment's Notice [8:08]
+02. Loco-Motive [6:06]
+03. Covid Blues [5:08]
+04. A Change Is Gonna Come [6:38](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D1984DFED7D6714AC9C497A07BA20EC704AC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672884   (167314) от 30.10.2023
 
 Zoe Rahman - The Cynic (2000) Manushi Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
@@ -713,35 +742,6 @@ VA - Smooth Jazz Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCEEC3FD2C65C0B583264F5F5C9F0D90DD08D108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673354   (165520) от 01.11.2023
-
-Django Reinhardt - BD Jazz, Vol.2 (1937 - 1953) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Improvisation No.1 [3:00]
-02. St. Louis Blues [2:49]
-03. Parfum [3:03]
-04. Bouncing Around [2:49](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 02:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A505E6DD4A8A01FB12507203A74A119BE4DB3E5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

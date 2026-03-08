@@ -1,32 +1,3 @@
-###  Публикация: 1844633   (1050323) от 27.12.2025
-
-Coverdale Page - Rarities (1993) 2025 [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ранней весной 1991 года началось сотрудничество между гитаристом Джимми Пейджем (известным по Led Zeppelin) и фронтменом Whitesnake Дэвидом Ковердейлом. Оба утверждали, что это сотрудничество во многом вдохнуло в них новую жизнь. Результатом этого сотрудничества стал "Ковердейл-Пейдж". Альбом, выпущенный в марте 1993 года, стал мировым хитом, достигнув (   Читать дальше...   )01. Saccharin (4:54)
-02. Good Love (3:53)
-03. Shake My Treeb (4:54)
-04. Take a Look at Yourself (5:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D4317E87AFC16534040115C7E4EE8BE0923172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844461   (1050303) от 27.12.2025
 
 Хитобои - Новогоднее настроение (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ska>
@@ -745,6 +716,35 @@ Trick or Treat - Ghosted (2025) [FLAC|Lossless|tracks + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F30DD6111D492770A225B1BB006E07BA13AD1297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843817   (1049611) от 22.12.2025
+
+A.D.A.M. Music Project - Punch Out (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Punch Out (3:06)
+02.  Take Until They Break (2:56)
+03.  Killer Bee (2:57)
+04.  Back for More (2:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71EB0694AFEF30C2F3501B0501F2537DA82D41A
 ```
 
 https://mybot314.ru/tekegram_catalog/

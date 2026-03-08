@@ -1,3 +1,177 @@
+###  Публикация: 1132971   (696997) от 11.05.2017
+
+VA - Козырная песня выпуск № 12 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696997.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Гурченко - Мы С Тобой Сошли С Ума 3:33
+002. Александр Солодуха - Вечно Молодой 3:31
+003. Сборная Союза - А Потому Что Любовь 3:32
+004. Алексей Прага - Мисс Расстояние 3:34(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C530B03F389B3DF02070AD0F4BC76870EA8AD0D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133260   (696990) от 11.05.2017
+
+VA - Весенние заводные хиты выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696990.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Наталия Власова - Мне Не Хватает Тебя 3:42
+002. Lega - Она Мой Diamond 3:31
+003. Александр Гужов & Николай Зайцев - Волны 3:24
+004. Anthony El Mejor Vs. Dj Denis Rublev - Ласковая Моя 5:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7FF59715E7A47E3E1200FAB8846656832408F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132977   (696945) от 11.05.2017
+
+VA - Любимые песни шансона на стильном радио выпуск № 11 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696945.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Казак - Друзьям 4:15
+002. Григорий Лепс - На Заре 4:16
+003. Ткачев Сергей - Наша Совесть Чиста 2:57
+004. Алексей Кумшатский - Майский Вечер 4:15(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EC9BAF92E0003AE3432485022285D11EE7FB53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133236   (696944) от 11.05.2017
+
+VA - New generation Euro Disco Vol.7 (2017) [MP3|256-320 Kbps] <Disco, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696944.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A-Ha - I've Been Losing You (Extended Version) 7:04
+002. Abba - Happy New Year (Dj Jedy Deep Remix 2017) 4:44
+003. Alphaville - The Jet Set (Jellybean Mix) 6:32
+004. Anthony's Games - Sunshine Love (Unreleased Version) 5:13(   Читать дальше...   )Жанр: Disco, Pop, DanceПродолжительность: 10:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA971A2B47CFD21EDD7ECE9C009BA01CCD90975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221170   (696880) от 23.04.2018
+
+VA - The Beauty Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заводные мелодии, отличная аранжировка, именитые гости, танцевальные ритмы, атмосфера весны и прекрасное настроение. Лонгплей включает в себя разнообразные направления trance, но главенствующим при этом на релизе самый знаменитый - прогрессивный транс.001. Karambulla - Karambulla
+002. Galactic Space - Groove Attack (Original Mix)
+003. Joman - Simple Memory (Original Mix)
+004. Eddie Bitar feat. Gabriela Canales - Home (Arctic Moon Extended Remix)(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 10:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31C2B2D0B1DA113A1C2F8E73368C6B4DCF6C161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133150   (696783) от 11.05.2017
+
+Roy Buchanan - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Evil (live)
+02. Too Many Drivers
+03. Black Autumn
+04. That Did It(   Читать дальше...   )Жанр: Blues RockПродолжительность: 05:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153AEA7DC18F3F4A434E1AA4297B702A6B7B0285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133117   (696780) от 11.05.2017
 
 VA - Kiss FM TOP 40: Май (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -569,180 +743,6 @@ VA - 80s Super Pop 100 hits (2016) [MP3|320 кб/с] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D06B65991FB34297A15B97577335FD7B7A074782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027407   (696201) от 19.06.2016
-
-VA - Guitar Collection 5 (2016) [MP3|320 кб/с] <Instrumental, Acoustic, Blues-Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696201.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mick Abrahams - Dragonfly    03:18
-002. Morcheeba - Public Displays Of Affection    03:08
-003. Neal Schon - El Matador    03:51
-004. Mark Knopfler & Evelyn Glennie - Altamira    02:59(   Читать дальше...   )Жанр: Instrumental, Acoustic, Blues-RockПродолжительность: 07:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F40BFA95CC9D194F46037F519E54B5B7FC2B794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 794625   (695896) от 09.06.2014
-
-VA - Русский Рок - Фарш (vol. 2) (2014) [MP3|320 кб/с]<Рок, Хард-рок, Хеви-метал>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Секрет - Всё Это И Есть Любовь
-02. Найк Борзов - Поцелуй И Укус
-03. Моя Подруга Катрин! - Мосты
-04. Вектор Эго - Никогда(   Читать дальше...   )Жанр: Рок, Хард-рок, Хеви-металПродолжительность: 03:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE02AEF012CDF145679ABE2E7C72C9EDB519F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403035   (695826) от 17.08.2020
-
-VA - Beatport Electro House: Sound Pack #144 (2020) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695826.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mayank & Virtu - Allume
-002. Abel Ramos - Hola Mi Amor
-003. Luke Db - Never Have To Run
-004. Wildknights - Burn(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7E7C6723C5F006701C97C4D9B1EBD1F36E9614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288310   (695671) от 11.03.2019
-
-VA - Empire Records - Trance 90's (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind-X - Love Freedom Tolerance (Fridge vs Mind-x Edit)
-02. Photographer, Roman Messer - Infinity (Roman Messer Radio Edit)
-03. The Space Brothers - Shine (Jorn van Deynhoven Remix)
-04. Tanya Zigar - Puzzle Piece(   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:324D98621C5559624E79EA683E49791412F6B84E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288335   (695661) от 11.03.2019
-
-VA - Pop Slam Radio: Spring Edition (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kygo, Imagine Dragons - Born To Be Yours
-002. The Prince Karma - Later Bitches
-003. Vegedream - Ramenez La Coupe À La Maison
-004. Angèle, Romeo Elvis - Tout Oublier(   Читать дальше...   )Жанр: PopПродолжительность: 08:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786463C6CE138C587540B645208CAB33233A3F8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288313   (695660) от 11.03.2019
-
-VA - Empire Records - Trance 90's 2 (2019) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interphace - Dr Feelgood (Radio Edit)
-02. Aural Project - Fine Tune (Radio Cut)
-03. Quench - Dreams (Nicholsons Cathedral Remix)
-04. DJ Denis Juice - Infinity & Beyond (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD70C76C2E265BA36D94775BCD2BAEA21DD4BC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1553537   (581965) от 26.05.2022
-
-Death Note Silence - Collide & Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581965.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 7 Billion Connected
-2. Offended
-3. Decline
-4. Legacy(   Читать дальше...   )Жанр: Alternative, Metalcore, DeathcoreПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8587467177DEA2ECD1ED02FC247ED0D69E75FAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553440   (581964) от 26.05.2022
 
 Gengis Khan - Possessed by the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Speed Heavy Metal>
@@ -760,6 +731,35 @@ Unleash the Archers - Time Stands Still (2015) [FLAC|image+.cue]<Power/Melodic D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF148C4A662414B39BD4D22A9AAD91CAC4073F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553777   (580924) от 27.05.2022
+
+Пилот - ТЫГЫДЫМ (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580924.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Апрель
+3. Иордань
+4. Заживо (Полная Версия)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398EF1DB15C4F98B261CC57944CB021023E61D30
 ```
 
 https://mybot314.ru/tekegram_catalog/

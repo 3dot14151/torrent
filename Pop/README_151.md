@@ -1,3 +1,61 @@
+###  Публикация: 1230865   (612265) от 14.06.2018
+
+Christina Aguilera - Liberation (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liberation
+02. Searching For Maria
+03. Maria
+04. Sick Of Sittin'(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BEE3336D46328BB96C4BEC7E59EBE3E88B8E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037437   (612122) от 25.07.2016
+
+Roosevelt - Roosevelt (2016) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Wait Up
+03. Night Moves
+04. Belong(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4AC8A854B58D369C2D9DCE4FFEE596ED003FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296390   (611851) от 17.04.2019
 
 VA - Ballermann Schlagersommer 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Schlager>
@@ -693,64 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2E438D85E15D649CFE77E5544EDA2BF26114921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912888   (608918) от 27.06.2015
-
-Азамат Биштов - Сто причин (2011) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Водка-горькая вода [03:40]
-02. Обманула [03:15]
-03. Голубая ночь [03:26]
-04. Мое сердце [03:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91326441BED99AA8CDC4739356BCD0C443842D63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912877   (608774) от 27.06.2015
-
-Synti Time (Синти Тайм) - Навстречу Мечте (2013) [MP3|320 кб/с]<EuroDisco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жду тебя
-02. Навстречу мечте
-03. Игра любовь
-04. Время для двоих(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 00:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A721949677578A62587A4F08E8A1C01199E56D9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

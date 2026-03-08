@@ -1,3 +1,58 @@
+###  Публикация: 1364474   (907195) от 21.03.2020
+
+Enduser | end.user - Discography 71 Releases (2002-2020) Sonicterror, Ad Noiseam, Hands, Hymen Records [FLAC|Lossless|tracks+.cue, tracks] <Drum n Bass, Breakcore, Jungle, Industrial>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. November 2019 Promo Mix (43:00)Тип издания: CD, Web, VinylЖанр: Drum & Bass/BreakcoreПродолжительность: 38:12:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E037C37797A884766D61B33057C3533B1F0BD84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368802   (907085) от 21.03.2020
+
+VA - Sax & Sex 1 (1997) [FLAC|Lossless|image + .cue] <Easy Listening, Jazz, Pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Sambario
+02 Lady In Red
+03 Anna
+04 San-Francisco Morning(   Читать дальше...   )Жанр: Easy Listening, Jazz, PopПродолжительность: 01:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40EB8A7F458C578FE82C1D1EA7F448748CC24341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098898   (907075) от 31.01.2017
 
 Funkware - Liquidator (2017) [MP3|320 Kbps] <Drum & Bass>
@@ -675,64 +730,6 @@ VA - Битва Dj - Chief MC Vs. Бинокль Vs. Anna Lee (2003) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3B25C891A7D3CACCD2CBE1F8ABA0C48AA24ECE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369116   (905627) от 22.03.2020
-
-VA - We Love Trance (2020) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj SanNny - Ghost Ship 06:24
-02. Dj Mig - Relax 06:10
-03. Jean Luvia - Remembrance (Extended Mix) 06:55
-04. Crying Mask - Back Home 08:00(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26EE892997C78D8381AAEFE9A33AD0AEAD6A802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369224   (905574) от 22.03.2020
-
-VA - DJ Maretimo - Masterpieces Vol. 2 (2020) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Maretimo, Vladi Strecker - I Love The Night (Moonlight Flow Mix) 7:48
-02. Cinematic - Memories (Red Carpet Mix) 6:00
-03. Sean Hayman - Moments Of Silence (Back In Time Mix) 5:50
-04. Dj Maretimo, Stereo Gringos - Ipanema Injection (The Bossa Master Mix) 5:51(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFEFC2021FD65461AC334895397B02E7DA45A1F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1192317   (263050) от 17.12.2017
+
+Марк Бернес - Актер и Песня (2001) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я люблю тебя, жизнь 02:29
+02. С чего начинается Родина 02:31
+03. Песенка фронтового шофера 02:00
+04. Темная ночь 03:21(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6697AC395014194EFA8593CBEC1C44EFBAB4F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341125   (262893) от 26.11.2019
+
+VA - ZYX Italo Disco Spacesynth Collection (2014) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - Moon Machine (5:34)
+02. Galactic Warriors - Koto Tribute Mix (13:57)
+03. Protonic Storm - Dreamscape (Short Mix) (6:42)
+04. Rygar - Modulation (5:28)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6ED379C022C04DAFAEA3416894673F1D68CFF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192712   (262791) от 18.12.2017
 
 VA - 100% Clubland 90s (4 CD) (2017) [MP3|320 Kbps] <Dance>
@@ -687,64 +745,6 @@ VA - Euro Disco: The Lost Legends Vol. 6 (2017) [MP3|320 Kbps] <Euro-Disco, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99E029E0D9469C41D85AFEA89584AA4EF757DCC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193811   (261809) от 23.12.2017
-
-VA - Euro Disco - The Lost Legends Vol. 3 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Djalana - High Stakes (3:38)
-02. Cox - China (5:45)
-03. Kado - Tonight (6:12)
-04. Tommy Young - My Life Is Wonderful (5:42)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266243AE2F6C0A04197AFFD6CACCB098AEE6ECC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193679   (261805) от 23.12.2017
-
-VA - Italo Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tom Dollar  -  Love Is Something  6:44
-02.  C'Zar  -  I Remember (Look Me Baby)  6:29
-03.  Steve Martin  -  Roxide  6:30
-04.  Laura Angel  -  lf You Want  4:29(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81EB32E2CC724313D6FAB7245068AF0D2F4060EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

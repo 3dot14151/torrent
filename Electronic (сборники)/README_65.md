@@ -1,3 +1,32 @@
+###  Публикация: 1015495   (775080) от 10.05.2016
+
+VA - Luxury Chill House (2016) [MP3|320 кб/с] <Chillout, Downtempo, Chillhouse>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Kohlstedt - Ell (Christian Loffler Rework)
+02. Kiasmos - Looped
+03. Weus - For The Night
+04. Rodg - Life Is Life (Chill Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo, ChillhouseПродолжительность: 03:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432E9768B035E402DB8965203F4304136C835278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015285   (775079) от 10.05.2016
 
 VA - Deep Night: Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
@@ -726,35 +755,6 @@ VA - Urban Drum And Bass Arena (2019) [MP3|320 Kbps] <Drum and Bass, Electro Bas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5F336FA61F6A7F9159FC77BFF3632E1FD319954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278344   (771832) от 25.01.2019
-
-VA - Electro Dance Music: Winter Party (2019) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771832.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Georgia Mos - See The Light
-002. Angelo Ferreri - Soul Together
-003. B.A.D.S - Hous-O-Matik Hom-O-Patik
-004. Block & Crown - Always There (Original Mix )(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F7E3C58D20CD60C4C870F7BD2F6A24F5CE66DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

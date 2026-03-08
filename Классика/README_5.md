@@ -1,3 +1,32 @@
+###  Публикация: 984116   (940059) от 08.02.2016
+
+Federico Albanese - The Blue Hour (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940059.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nel Buio (1:22)
+2. Time Has Changed (6:05)
+3. Migrants (3:57)
+4. Shadow Land, Pt. 1 (3:56)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CD989538229046C68A5C9B8215575BBAA540C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984702   (938597) от 09.02.2016
 
 Strato-Vani - Ballroom 1 (2015) [MP3|320 кб/с] <Classical, Pop>
@@ -723,35 +752,6 @@ Emika - Melanfonie (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electronic, Clas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1373B8E2569E7750FB416BE70093F923E10B3B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992262   (902428) от 01.03.2016
-
-Jennifer Thomas - Winter Symphony (2015) [FLAC|Lossless|tracks] <Instrumental, Classical crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels We Have Heard On High (feat. The Ensign Chorus) (5:18)
-02. Dance of the Sugar Plum Fairy (3:31)
-03. Carol of the Bells (4:37)
-04. Alleluia (feat. Felicia Farerre & The Ensign Chorus) (6:16)(   Читать дальше...   )Жанр: Instrumental, Classical crossoverПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563E2E08A4C3041E4387B647FF1C4278341CBFDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

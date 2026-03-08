@@ -1,3 +1,32 @@
+###  Публикация: 1088563   (137283) от 31.12.2016
+
+VA - District of Trance Vol. 2 (Compiled & Mixed by Lazyra, Pilligrim & Deeper) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Atmospheric Breaks, Progressive Breaks>
+
+>>След.
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZANIO - Will (Elevate & Raggapop Inc Remix) (6:28)
+02. Yuriy From Russia - Keep Your Head Down (Original Mix) (7:50)
+03. Bring Bliss & Sonya P. - Wish the Night (Stas Isometrica Remix) (6:05)
+04. Platunoff - The Time To Go (Original Mix) (7:12)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Atmospheric Breaks, Progressive BreaksПродолжительность: 03:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F3C037623534BEACC0608FABD344DD3751C083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824620   (136904) от 16.10.2025
 
 Mr Salama - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
@@ -836,41 +865,6 @@ VA - Sunset High Dreaming (2012) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96C225F557304B3311EFF3AAACF5D87CFCCF67BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594721   (133246) от 27.12.2012
-
-VA - Ferry Corsten presents Best Of Corsten's Countdown (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heatbeat - Rocker Monster (Radio Edit) (04:00)
- 02. Cosmic Gate and JES - Flying Blind (Norin & Rad Remix) (06:40)
- 03. KhoMha - Mind Gamer (Trance Mix Edit) (04:09)
- 04. Pseudonym - The Battle (05:30)
- 05. 3rd Planet - Sevas (06:07)
- 06. Betsie Larkin with Bjorn Akesson - Let It Shine (Walsh & McAuley Remix) (07:13)
- 07. Kyau & Albert - Another Time (06:22)
- 08. M.I.K.E. - Any Direction (M.I.K.E. vs. Revero Club Edit) (06:55)
- 09. Solarstone and Clare Stagg - The Spell (Solarstone Pure Mix) (08:41)
- 10. Armin van Buuren Feat. Ana Criado - I'll Listen (Radio Edit) (03:36)Жанр: TranceПродолжительность: 02:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692F398EBDA796D11BCA2B7CFA75F4D011733677
 ```
 
 https://mybot314.ru/tekegram_catalog/

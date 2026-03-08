@@ -1,32 +1,3 @@
-###  Публикация: 1130261   (716653) от 01.05.2017
-
-Tak Matsumoto & Daniel Ho - Electric Island, Acoustic Sea (2017) [FLAC|Lossless|tracks + .cue] <Instrumental Rock, Folk, World, & Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soaring on Dreams (5:32)
-02. Fujiyama Highway (4:08)
-03. Magokoro (True Heart) (5:01)
-04. Infinite Escapade (4:45)(   Читать дальше...   )Жанр: Instrumental Rock, Folk, World, & CountryПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AAC2790E9FC2824D56807576873624C92F5094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532030   (716642) от 18.02.2022
 
 Swallow the Sun - Live In Helsinki (20 Years Of Gloom, Beauty And Despair) (2021) 2xCD [FLAC|Lossless|image + .cue] <Melodic Death, Doom Metal>
@@ -746,6 +717,35 @@ Tarja Turunen - The Brightest Void (2016) [FLAC|Lossless|tracks + .cue] <Symphon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E7CDC1560395274573FB50DF85F0A94600CC798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400895   (715282) от 07.08.2020
+
+Deadly Sin - Sunborn (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise (01:12)
+02. The Awakening (05:05)
+03. Mistakes (04:05)
+04. The Price I Pay (03:25)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF612154BE449389154AB4649F116C74ACAA642
 ```
 
 https://mybot314.ru/tekegram_catalog/

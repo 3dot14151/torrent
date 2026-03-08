@@ -1,25 +1,22 @@
-###  Публикация: 1011302   (796935) от 27.04.2016
+###  Публикация: 1011071   (797000) от 27.04.2016
 
-Maria Callas - La Divina 3 (1986 - 1987/1995) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
+Артур Шопенгауэр | Максимы. Идеи этики (2004) [MP3]
 
->>Классика
->>Вокал (Lossless)
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796935.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Giordano: Andrea Chenier: La Mamma Morta, Atto III 04:56
-02. Spontini: La Vestale: O Nume Tutelar, Atto II 02:32
-03. Massenet: Manon: Je Ne Suis Que Faiblesse...Adieu, Notre Petite Table, Acte II 03:23
-04. Puccini: Manon Lescaut: Oh, saro la piu bella....Tu, tu amore?, Atto II 08:26(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:13:16
+В настоящем издание включены Максимы и избранные главы главного труда Шопенгауэра "Мир как воля и представление", содержание которых дает представление об этических воззрениях философа.Жанр: ФилософияПродолжительность: 07:30:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E45301CB05F6DB3944589E2F9B714EFF5708F890
+magnet:?xt=urn:btih:9028FBD3A93CC5AB685C00A4F0750CE50A73A607
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,171 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508666   (796934) от 09.11.2021
+###  Публикация: 1011014   (796999) от 27.04.2016
 
-VA - Airport Lounge, vol. 5 (2014) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B & W - Spirits (4:43)
-02. Daniele Soriani, Adriana Salvadori - Silk (D-Soriani Chilly Mix) (6:54)
-03. Ambiworx - Bamboo and Ebony (7:00)
-04. Alpha Centaury - Natale 2012 (1:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7564482CAD932CDCA23324BC7F7FD021262F550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508663   (796933) от 09.11.2021
-
-VA - Airport Lounge, vol. 4 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Lemmer - Rainy Day (Percussion Chill Mix) (3:00)
-02. Taron-Trekka - Lo-Fi Autumn (5:34)
-03. The Diventa Project - Say Goodbye (Surya Vox Mix) (3:34)
-04. Axel B. - Tomorrow (2:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A083349EBC3497E97D15798C24905B062721A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508687   (796932) от 09.11.2021
-
-VA - Airport Lounge, vol. 11 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tapelapse - Skyline Coffee (2:20)
-02. Velvet Dreamer, Tim Gelo - Strange Passenger (Original Mix) (5:03)
-03. Jo Paciello - Central Park Lounge (Original Mix) (4:43)
-04. Tapelapse - Benztown Lo-Fi (3:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED30A144D8DFF4F234B93CF41CDF99B8FD95BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508658   (796931) от 09.11.2021
-
-VA - Airport Lounge, vol. 2 (2014) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axel B. - Piano Theme (3:47)
-02. Twentyeight - Hope (8:44)
-03. Thomas Lemmer, Lena Belgart - Is It Too Late (Classic Piano Mix) (3:41)
-04. Ambiworx - Gushanzhen (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870D6B9987DF7DBC1E2047AB783A3E4E20D371DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508674   (796930) от 09.11.2021
-
-VA - Airport Lounge, vol. 8 (2016) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Fading Into Oblivion (5:59)
-02. Weathertunes - The Snake (4:13)
-03. Mindel - Butterfly (2:22)
-04. Omaya - Whisper (3:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0FB0509D9180F916F965BD49BCEEB9140661B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508648   (796929) от 09.11.2021
-
-Cookie 6.6.2 [Multi]
+VA - Радио Шансон Хиты то, что надо (2016) [MP3|256 кб/с] <Шансон>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796929.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
-Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.11.2021Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.14 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
+001. Сорокин Сергей - Батя
+002. Слава Благов - Николаич
+003. Рогожин Сергей и Первая Екатерина - Потерял сердечко парень
+004. Рада Рай - Ты Любимый Мой(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:15:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27AFDF92A52BB3C84A3890FAC6C2D2B6E1FCDD19
+magnet:?xt=urn:btih:5AE766DB261B629D81683C09374179FBD5C82C16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508636   (796928) от 09.11.2021
+###  Публикация: 1200047   (796998) от 19.01.2018
 
-Caato Time Tracker Pro 1.1.9 [En]
+VA - Amsterdam Trance Sessions Vol.14 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796928.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Caato Time Tracker использует трехуровневую иерархию проектов, задач и подробных записей времени. Вы можете добавлять, удалять или редактировать записи на каждом уровне для максимальной гибкости. CSV-Export позволяет легко создавать отчеты с помощью вашего любимого приложения для работы с электронными таблицами.Тип издания: macOS SoftwareРелиз состоялся: 07.11.2021Разработчик: © 2021 CS Software Consultancy LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Немецкий
+01.  Psycho Motion  -  Supernova (Original Mix)  8:06
+02.  Naoufal Lamrani & First Sight  -  Misery (Radio Edit)  3:14
+03.  Emme  -  Hydra (Original Mix)  4:08
+04.  BarTar  -  East Direction (Original Mix)  6:03(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:32:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CD3685A223F3C7EAA5EB61F7F0B14098C8E9D80
+magnet:?xt=urn:btih:8E975FE7A873E12DCEE4EA5804B65AF036076673
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508627   (796927) от 09.11.2021
+###  Публикация: 1200061   (796997) от 19.01.2018
 
-Wraith - Riot (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Metal>
+VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796927.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Russian Roulette
-02. Riot
-03. Cursed
-04. You've Got It Comin'(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:53:09
+01. Markus Schulz presents Dakota - Edonismo
+02. Lostly - Came Here to Forget
+03. Basil O'Glue - The Sun Will Rise Again (Solid Stone Remix)
+04. Cosmic Gate & Markus Schulz - AR (Patrick White Remix) (World Premiere)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C770E8B177E0A79FE002319F003E5DCFC5A981FA
+magnet:?xt=urn:btih:C339DE9736B483EF4BA03CD732F5B39CA79BAE16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,26 +111,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508693   (796926) от 09.11.2021
+###  Публикация: 1011157   (796996) от 27.04.2016
 
-Tap Forms Organizer 5 v5.3.21 [Multi/Ru]
+VA - Дискотека Весенние Хиты (2016) [MP3|320 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vlad Bostan - Химия
+02. Stefani - Любовь такая
+03. Леуш Любич - Мужчины не плачут
+04. Denero - Такое кино(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 02:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D3AA2718432B206FAE38F726341308BBFD9835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200029   (796995) от 19.01.2018
+
+Emotions Music - Summer Vol 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Sunny Groove	7:02
+02.	Jazzy Time	9:25
+03.	Midnight Lounge	7:06
+04.	Chilling Blaze	8:23(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8503BE2544A2E34A2B5F57E2EDFF48AC7A81EB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011358   (796994) от 27.04.2016
+
+VA - Ibiza 2015. Soulful Deep-House. Vol.1 На пляже (2015) [MP3|256-320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankman - Sunrise  06:03
+02. Jose Padilla - Day One  06:23
+03. Kaleb Traxx - Astura  04:51
+04. Groove Cartell - Waiting in Vain (Boddhi Satva Afriki soul remix)  06:33(   Читать дальше...   )Жанр: HouseПродолжительность: 05:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11541FFD205F32BEB1357C6EC96B4DACB4C8E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200085   (796993) от 19.01.2018
+
+VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz Presents Dakota - The Spirit Of The Warrior (Transmission 2017 Theme - extended mix)
+02. Dennis Sheperd - Copenhagen (extended mix)
+03. Ayla - Ayla (Ben Nicky & Luke Bond remix)
+04. Gabriel & Dresden - White Walls (extended mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9C4DECEAA850CBE5C2F7C707AE16A827A01402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011092   (796992) от 27.04.2016
+
+Zloe Fly Music - Travel Girl (2011) [MP3|256 кб/с] <Electro House, Electro Progressive>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796926.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tap Forms Organizer простое в использовании, абсолютно настраиваемое и очень мощное приложение. Tap Forms Organizer поможет вам отслеживать всю наиболее важную информацию вашей жизни. Tap Forms Organizer - настраиваемое приложение базы данных, оно разработано, чтобы удовлетворить Ваши уникальные потребности на работе, дома или в движении.
-Используйте Tap Forms Organizer (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.11.2021Разработчик: Tap Zapp Software Inc.Поддерживаемая ОС: macOS 10.12 SierraЯзык интерфейса: Русский, Английский, Немецкий и другие
+01. the prodigy - girls (rex the dog remix)
+02. one-t & cool-t - kamasutra
+03. louie padilla - sick (maurizio gubellini remix)
+04. tiga - you gonna want me(   Читать дальше...   )Жанр: Electro House, Electro ProgressiveПродолжительность: 06:04:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7805C80F29BCFA19D09667B3F86F3967E9AD4FB9
+magnet:?xt=urn:btih:E5B1791A3C6C396035C5E5CC5605362827996EBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,329 +256,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508672   (796925) от 09.11.2021
+###  Публикация: 1200125   (796991) от 19.01.2018
 
-VA - Airport Lounge, vol. 7 (2016) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Openzone Bar - Lifestyle (Original Mix) (5:32)
-02. Lemongrass - Le Coup (Original Mix) (4:39)
-03. Counterweight - Laws Of Attraction (Original Mix) (4:41)
-04. Mara J Boston - Come Into My Life (Original Mix) (5:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D2A814D3560553A87CDD7EB7F622C319164CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508679   (796924) от 09.11.2021
-
-VA - Airport Lounge, vol. 5 (2019) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rex Kramer - Feeling Great (5:03)
-02. Dub Mars - You Give Me the Honor (4:19)
-03. Jens Buchert - Sleepwalker (5:02)
-04. Relaxea - Sunshine Delight (7:18)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56028CC3010F8C253964B5AD8044AAB7F49DAAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508751   (796923) от 09.11.2021
-
-MovieSherlock 6.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796923.jpg" />
-</div>
-
-
-###  Подробнее
-
-MovieSherlock - это все-в-одном YouTube-загрузчик и конвертер. Это позволяет вам искать, загружать и конвертировать фильмы YouTube. MovieSherlock позволяет загружать видео быстро, плавно и без потерь качества!
-MovieSherlock - это лучший способ получить видео на ваш Mac.
-MovieSherlock позволяет загружать любое видео с YouTube и конвертировать его на вашем Mac в высококачественное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2021Разработчик: © 2021 Capibara Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B216AFA32F2DAB7D4CA898B4626D325C5D7B9273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508632   (796922) от 09.11.2021
-
-System Toolkit 4.2.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796922.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 08.11.2021Разработчик: Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F81BB17C74C0C78B9EB51BA3BB0913A28FFEF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508745   (796921) от 09.11.2021
-
-A Better Finder Attributes 7 v7.17 fix [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796921.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Better Finder Attributes позволить изменить дату создания фотографии или дату последнего изменения файла. С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его вовсе. Помимо этого A Better Finder Attributes может синхронизировать дату модификации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2021Разработчик: © 2021 PublicspaceПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD50F3A5CE62C9E8B8F0D2E81DDC7CA93019CFE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508720   (796920) от 09.11.2021
-
-Stats 2.6.18 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 07.11.2021Разработчик: © 2021 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91CA9243DEF5536F092EC37894C83071EF04DEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508590   (796919) от 09.11.2021
-
-VA - 50 Melodic Tunes of Winter 2021 (2021) [AAC|~309 Kbps] <House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tempodata - Android (4:16)
-02. Taylor Switch - Contain (4:18)
-03. Tarcim Sakman - Besides (4:16)
-04. Talkbacker - Retro (4:14)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 03:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF23527B5AC18D14E913EE8099E176F9BA90401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508626   (796918) от 09.11.2021
-
-Nova 8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
-Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2021Разработчик: © 2021 Panic, IncПоддерживаемая ОС: macOS 10.15.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECFDD49965993BBF319FA4E7D68D9F2AE66692E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508574   (796917) от 09.11.2021
-
-Invertigo - Veritas (2012) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796917.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Darkness (08:29)
-2. Lullaby (6:01)
-3. Waves (7:51)
-4. Dr. Ho (7:34)(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1A9F1D7E34DE6F9AB7D8C853B1898F5E5A0A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508650   (796916) от 09.11.2021
-
-VA - Airport Lounge, vol. 1 (2010) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pearldiver - Far Away (4:49)
-02. Jens Buchert - The Arrival (4:58)
-03. Newton - Raindrops & Teardrops (4:53)
-04. Pearldiver - Daydream (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250C2C96276A9B94CC4A4EC847EA6DE47A372450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508625   (796915) от 09.11.2021
-
-ExactScan Pro 21.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796915.jpg" />
-</div>
-
-
-###  Подробнее
-
-ExactScan – современное решение для сканирования, в состав которого входит более 400 различных драйверов для сканеров документов от таких изготовителей как Avision, Canon, Fujitsu, HP, Kodak, Oki, Panasonic, Visioneer и Xerox. для которых изготовитель не предоставляет драйверы под операционную Mac OS, и, соответственно, без таких драйверов они не могут работать под (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: © 2021 ExactCODE GmbHПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A584BF9998BA8D0599791B4424C9B127111E705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200102   (796914) от 19.01.2018
-
-XnViewMP 0.89 RePack by вовава [Ru/En]
+HyperSnap 8.16.02 RePack by вовава [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796914.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XnViewMP - мощное многофункциональное приложение для работы с графическими файлами, являющееся расширенной версией программы XnView. По сути этот инструмент может считаться своеобразным медиа-браузером с опциями просмотрщика, конвертера и каталогизатора. XnViewMP поддерживает просмотр более 500 различных графических форматов, а при сохранении (преобразовании) - до (   Читать дальше...   )Язык интерфейса: Русский, Английский
+HyperSnap — инструмент для захвата изображения, позволяющий скопировать не только окна стандартных программ, но и игры, скринсейверы и видеофильмы. С помощью HyperSnap вы можете сделать скриншот всего экрана монитора, его части, окна определённой программы (вместе с курсором или без), игр и скринсейверов (работающих в режимах DirectX и 3Dfx Glide), видео- и DVD-фильмов, (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40AE9699FC8F237D287B2C18D7705CE3A84D80F2
+magnet:?xt=urn:btih:71FEF43418720A4F5042ADE46F7BEED70A09D322
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,28 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200046   (796913) от 19.01.2018
+###  Публикация: 1200056   (796990) от 19.01.2018
 
-VA - Sun:Sets 2018 (Selected by Chicane) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Trance>
+VA - Ori Uplift & Miss Cortex - Uplifting Only 258 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796913.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Halftribe  -  Outward Momentum (Original Mix)  2:59
-02.  Thomas Datt  -  The Edge (Original Mix)  4:11
-03.  Alex Blest  -  Fragments Of Bliss (Magdelayna Chilldown Mix)  4:10
-04.  Tontario  -  Late (Original Mix)  4:16(   Читать дальше...   )Жанр: Progressive House, Deep House, Trance, DowntempoПродолжительность: 02:58:14
+01. FAN FAVORITE: Eric Senn - Kharon (Intro Mix)
+02. FAN FAVORITE 256: RAM & Arctic Moon with Stine Grove - A Billion Stars Above (Extended Mix)
+03. FAN FAVORITE 256: Syntouch & Angel Falls - Alone (Plutian Remix)
+04. PRE-RELEASE PICK: Jericho Frequency feat. Emma Chatt - Do You See Me?(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:01:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DFCC07253F30BFC91495C062CA3D3A365DE0F97
+magnet:?xt=urn:btih:996C40801B8D1E092E7DFD0F10F59A153E4E42A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,28 +311,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200100   (796912) от 19.01.2018
+###  Публикация: 1011148   (796989) от 27.04.2016
 
-VA - De Top 100 Aller Tijden 1977 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
+Эдмунд Купер | Рассказы (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для широкой читающей публики Эдмунд Купер — малоизвестный автор. На русском языке издавалось всего три его книги, две из которых — совершенно пиратские и лишь сборник в "Северо-Западе" достаточно известен. Удивительно, ведь Эдмунд Купер — классический представитель гуманистического направления в фантастике, а его произведения отличаются легкостью стиля (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 06:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3611358CDA2C6ED650241C9D403ED8004884042E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010764   (796988) от 27.04.2016
+
+А.С. Гилмор-мл. | Лампы с бегущей волной (2013) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга основана на материалах лекций и семинаров по СВЧ-лампам, которые автор многократно представлял в ведущих фирмах и университетах США. В ней сосредоточены базовые знания по теории и технике наиболее востребованного в течение многих, в том числе и последних десятилетий, прибора — лампы с бегущей волной (ЛБВ).
+Книга написана доступным для широкого круга читателей (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471F1D17575236830F7DF213DF74A7B8C3C50059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200022   (796987) от 19.01.2018
+
+VA - Vibrancy Of Deep House (2018) [MP3|320 Kbps] <Deep House, Electro>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796912.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Boney M - Ma Baker (4:07)
-002. Vader Abraham - 'T Smurfenlied (3:22)
-003. Supertramp - Give A Little Bit (4:09)
-004. Guys 'N Dolls - You're My World (3:12)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:17:32
+001. Bes & Meret - Flying High (Extended Mix)
+002. Terry Lee Brown Junior - Outback
+003. Aaliyah - Try Again (Hakan Akkus Remix) (Idyl Cover)
+004. Poenitsch & Jakopic - Beautiful (Tom Appl Remix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:56:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:484DB397125D8033990AAF67E64852C27CDD8098
+magnet:?xt=urn:btih:097B8E0035C956B7F85182201C6746083290AF8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,28 +393,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200001   (796911) от 19.01.2018
+###  Публикация: 1200169   (796986) от 19.01.2018
 
-VA - Intimate Piano: Canadian Sunset (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+Dilemmachine - No Selfies (2017) [MP3|320 Kbps] <Nu Disco, Synthwave, Retrowave>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dayshift
+02. Revive the Machine
+03. Rivets
+04. Dass Dope(   Читать дальше...   )Жанр: Nu Disco, Synthwave, RetrowaveПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E600F281CF54FC6DF099EBD5C1EF5F4543E5FD67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011288   (796985) от 27.04.2016
+
+Алексей Синяков | О вершках и корешках. Травник (2013) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сохранить и укрепить здоровье, как выглядеть бодрым и подтянутым, как избавится от усталости - эти вопросы волнуют всех. Книга предлагает воспользоваться кладовой природы - витаминными, лекарственными и адаптогенными растениями для восстановления тонуса, укрепления здоровья, лечения и профилактики заболеваний. Приводятся рецепты чаев, отваров из трав, повышающих (   Читать дальше...   )Жанр: Научно-познавательная литератураПродолжительность: 13:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3396E8DF7EB10F5AC56EAEE52F7850B8496013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011291   (796984) от 27.04.2016
+
+Журнал | Садовод и огородник. Спецвыпуск №2 (26) (Апрель 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796984.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске собрано множество рекомендаций специалистов и советов огородников-любителей, которые помогут получить отличный урожай огурцов. А еще — подборка самых лучших рецептов по консервированию зеленого овоща!Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA313B9BAE18C913059EA572686437923B050F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011098   (796983) от 27.04.2016
+
+Журнал | Вязание ваше хобби №5 Вязаные двойки (2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796983.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вязание - ваше хобби» - ежемесячный журнал по вязанию на спицах и крючком. В каждом номере суперхиты вязаной моды для каждого сезона - самых модных, самых элегантных, самых экстравагантных, из новых видов пряжи, с эксклюзивным декором. Наряду со сложными в исполнении моделями, требующими мастерства и терпения, есть модели для начинающих рукодельниц.Жанр: ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233AAE7669BDD846BAE16E9EE0787DD3EC674333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011380   (796982) от 27.04.2016
+
+Turbotronic - Extended Mix (2016) [MP3|320 кб/с] <Dance, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booty Shake (Original Mix) (04:37)
+02. Bba Ra Bam (Extended Mix) (04:26)
+03. To The Party (Extended Mix) (04:45)
+04. Boom Boom Boom (Turbotronic Extended Mix) (04:43)(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 02:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED66E9DF11455C0F382244C9E42B38227804323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011083   (796981) от 27.04.2016
+
+Carlos Garo - Entrance To The Parallel Universe (2015) [FLAC|Lossless|tracks] <New Age, Ambient, Enigmatic>
 
 >>Other Styles
->>Instrumental (Lossless)
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796911.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love Is A Many Splendored Thing (Gordon Langford, His Piano & Orchestra) (2:55)
-02. Moonglow (Douglas Gamley, His Piano & His Orchestra) (3:07)
-03. Rhapsody In Blue (Henry Mancini) (3:27)
-04. Moonlight In Vermont (Gordon Langford, His Piano & Orchestra) (2:57)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:06
+01. Entering the Universe    01:32
+02. Infinite Space    04:14
+03. Desert    05:06
+04. The World Keeps on Spinning    05:01(   Читать дальше...   )Жанр: New Age, Ambient, EnigmaticПродолжительность: 00:42:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C8FEDC6C2E584E08DAFAAEFAF99E497358A6B71
+magnet:?xt=urn:btih:51807E2FDA5F9D69B5FB69FDB5E477AA3A27E474
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -698,28 +558,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200067   (796910) от 19.01.2018
+###  Публикация: 1011201   (796980) от 27.04.2016
 
-The Atomic Bitchwax - Force Field (2017) [FLAC|Lossless|tracks] <Hard Rock, Stoner Rock>
+Penny McLean - 3 Albums (1975-1978) LP [MP3|320 кб/с] <Disco, Funk, Soul>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796910.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hippie Speedball
-02. Earth Shaker "Which Doobie U Be"
-03. Alaskan Thunder Fuck
-04. Shocker(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:34:35
+Penny McLean, наиболее известная как участница и прима вокалистка группы "Silver Convention", выпустила параллельно еще три, предлагаемых вашему вниманию, сольных альбома  в том-же, набирающем оборот, стиле "Диско". Родилась  в городе Клагенфурт, Австрия.Список альбомов:
+01. 1975 - Lady Bump
+02. 1977 - Penny
+03. 1978 - Midnight ExplosionЖанр: Disco, Funk, SoulПродолжительность: 01:56:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49F77226382585D7A324117FB65CF9A5543A652E
+magnet:?xt=urn:btih:CE21481CA01E02F26D130F930B98E44C7C8EE255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508660   (796979) от 09.11.2021
+
+VA - Airport Lounge, vol. 3 (2014) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bessie Boni, Gianna Partner - Mystic Revelation (5:01)
+02. B & W - U Feel 4 U (4:37)
+03. Middle - Warm Sunset (4:51)
+04. Didascalis - Così... (7:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8F1038BE699FCB9457284FD167B889AE1DA7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508681   (796978) от 09.11.2021
+
+VA - Airport Lounge, vol. 6 (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chambre 19 - La Pluie d'eté (Original Mix) (5:59)
+02. Tranquillo - As Days Go By (Original Mix) (6:42)
+03. Black Orpheus - Touching the Sky (Original Mix) (3:55)
+04. Weathertunes - Down the River (Original Mix) (6:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5E425F3B4BA9EDE41E21C0E6BC3207FCCB8A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508683   (796977) от 09.11.2021
+
+VA - Airport Lounge, vol. 9 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twentyeight - Stars (Original Version) (5:52)
+02. Dreamhunter - Illusion (Original Mix) (4:15)
+03. Dub Mars - You Give Me the Honor (Original Mix) (4:19)
+04. Counterweight - Close to You (Original Mix) (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B7DD79CB839CF55DB81332F7AC09392B3126DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508670   (796976) от 09.11.2021
+
+VA - Airport Lounge, vol. 6 (2015) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pnfa - Along the Way (6:01)
+02. Yiddu Delhi - Tender Touch (4:28)
+03. Tranquillo - Elaborated Compassion (4:32)
+04. Hijos De La Playa - Playa D'en Bossa Jam (4:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C42D879C250597A131323621E09C08F84F0330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508685   (796975) от 09.11.2021
+
+VA - Airport Lounge, vol. 10 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oberhon, Ideo Hijima - A Quiet Place (Original Mix) (5:30)
+02. NsE - Purple Rain (Original Mix) (3:58)
+03. Rex Kramer - Margarets Hope (Original Mix) (4:48)
+04. Dig It All, Rahul Talwar - There Is Snow (Original Mix) (5:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCB5661E6EF3D335946B8A79B3F9FC9AFFDA584
 ```
 
 https://mybot314.ru/tekegram_catalog/

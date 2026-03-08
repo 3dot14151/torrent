@@ -1,3 +1,32 @@
+###  Публикация: 1409589   (443271) от 18.09.2020
+
+VA - Tight Drum And Bass: Bassline Positive Session (2020) [MP3|320 Kbps] <Drum And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443271.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Liquid Jazz - Need Your Love
+002. Pltx - Late Night Liquid
+003. Tarz - Friday Feeling
+004. Sonic - Then(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 13:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76C2A7D35A4CA89268B896C0685D426D881E681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409586   (443143) от 18.09.2020
 
 VA - Night Fusion: Pure Deep House (2020) [MP3|320 Kbps] <Deep House>
@@ -740,41 +769,6 @@ VA - Simply Dubstep September 2012 (2012) [MP3|320 кб/с]<Dubstep, Bass, Grime
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD010A5D9272C80BF761F30D74E41A47E75CA67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552868   (438757) от 30.09.2012
-
-Va - Deep+   Vol. 2 (2012) [MP3|320 кб/с]<Deep House,Tech House,Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addex - Modern Day Society (Original Mix) (7:09)
-02. Alan Dixon - Music Is (Federico Fleres Remix) (7:28)
-03. Anturage, Amnesia Haze - Leap Of Faith (Original Mix) (7:13)
-04. Ave Astra - Get Into The Vibe (10:24)
-05. Cameo Culture, Holosound - Show Me Ft. Chaz Langley (6:14)
-06. Carlos Pulido & Lopezhouse - Franky Fingers (Original Mix) (6:06)
-07. Channel X - My 3 Wishes (Original Mix) (7:03)
-08. Commuter - Hard To Tell (Original Mix) (5:30)
-09. Cruz To Cruz - Human Life (Original Mix) (7:33)
-10. Daniel Falkenberg - Sharing Love (Original Mix) (6:24)(   Читать дальше...   )Жанр: Deep House,Tech House,Vocal HouseПродолжительность: 04:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1BD83D4B523E60066FE1B0B60F794F684DFCFF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

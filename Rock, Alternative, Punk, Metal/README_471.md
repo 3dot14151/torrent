@@ -1,32 +1,3 @@
-###  Публикация: 1298052   (602643) от 25.04.2019
-
-VA - The Many Faces Of Alice Cooper: A Journey Through The Inner World Of Alice Cooper (2017) 3CD [MP3|320 kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602643.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Many Faces Of The Alice Cooper Group:
-01. Michael Bruce feat. Alice Cooper - As Rock Rolls On (02:53)
-02. Neal Smith feat. Dennis Dunaway - Rock N´Roll Radio (03:15)
-03. Bouchard, Dunaway & Smith - Caught In A Dream (03:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1936B926E5AA6BD6287528677F30FDBF8092C3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297923   (602642) от 25.04.2019
 
 The Scream - Let It Scream (1991) Reissue, 2018 [FLAC|lossless|image + .cue] <Hard Rock, Glam Rock>
@@ -745,6 +716,33 @@ Faces - 4 Studio Albums, 2 Box Set, 6 Issues, 13CD (1970-2015) [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D6854021413E9EB68BBF703F9C418D57B4B6481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298124   (602117) от 26.04.2019
+
+Rammstein - Radio (2019) Single [MP3|320 kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio (04:37)
+02. Radio (RMX BY twocolors) (05:00)Жанр: Industrial MetalПродолжительность: 00:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F7379A7E23F7244ADF440EA0DC8260F05C174E
 ```
 
 https://mybot314.ru/tekegram_catalog/

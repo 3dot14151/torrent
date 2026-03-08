@@ -1,3 +1,32 @@
+###  Публикация: 1196646   (820522) от 04.01.2018
+
+New London Chorale - Young Christmas (2001) [MP3|320 Kbps] <Crossover Classical, Traditional>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820522.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	See Amid The Winter’s Snow
+2	O Little Town Of Bethlehem
+3	In The Bleak Mid Winter
+4	The Holly And The Ivy(   Читать дальше...   )Жанр: Crossover Classical, TraditionalПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF8476FAB6F2B5FA8F7BA8331B30B641BB01867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196603   (820518) от 04.01.2018
 
 New London Chorale - The Classic Christmas Collection (1998) [MP3|320 Kbps] <Сrossover Classical>
@@ -717,35 +746,6 @@ Max Richter - Recomposed By Max Richter: Vivaldi - The Four Seasons (2012) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C09AE0E5D21117544B08B3AF801B4EE00A05456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506366   (800892) от 30.10.2021
-
-Secret Garden - Sacred Night - The Christmas Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Folk>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Million Stars (3:51)
-02. Ave Maria (4:30)
-03. Sacred Night (4:08)
-04. Sagnet om julerosen (3:43)(   Читать дальше...   )Жанр: Classical, FolkПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF41F5D9431AB4158D8A139996E05BC8BC73A8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

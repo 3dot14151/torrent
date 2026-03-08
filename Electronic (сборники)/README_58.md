@@ -1,3 +1,32 @@
+###  Публикация: 1511090   (789307) от 20.11.2021
+
+VA - Synthwave Dream Collection (Vol.02) (2021) [MP3|320 Kbps] <Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789307.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yello - Lost Again
+002. Mystery - Mystery Girl
+003. Charclod - Falling Sky
+004. Raxon - Majestic(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 08:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C18B1FA777E20BBD080AD530FB61CA5182C0085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511122   (789248) от 20.11.2021
 
 VA - Soft Chill House (2021) [MP3|320 Kbps] <Chill, Deep House, Relax Electro>
@@ -713,35 +742,6 @@ VA - Beatport Deep House: Sound Pack #371 (2021) [MP3|320 Kbps] <Deep House, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B28BDBDF477348CB571D715709FFBB187E046D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512298   (787464) от 24.11.2021
-
-VA - Beatport Tech House: Sound Pack #372 (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787464.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joseph Diaz - Funky Guitar
-002. Qlank - Badd
-003. Filter B - Tales From The Inside
-004. Joel Carry - Strong Enough(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13236CB64ADE3E4F2F73E39FC1F87D141E2FD12
 ```
 
 https://mybot314.ru/tekegram_catalog/

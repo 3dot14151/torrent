@@ -1,3 +1,32 @@
+###  Публикация: 1615619   (1037579) от 26.02.2023
+
+VA - DanceClub Beats Compilation (2023) CD, Compilation [MP3|320 Kbps] <Groove, Future House, Progressive, Club Mix>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nacho Chapado - Unexpected Feeling (Club Mix)
+02. Esteban Lopez - Left Outside Alone (Juan Ferreyro Remix)
+03. Tom Stephan - To The Music (Club Mix)
+04. Nacho Chapado - Bring On The Change (Rob Phillips Drums Mix)(   Читать дальше...   )Жанр: Groove, Future House, Progressive, Club MixПродолжительность: 01:36:32 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058BF7F56ED5E3D93BB84FFDDDE231F6A317F0C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615845   (1037273) от 27.02.2023
 
 VA - Armada Music - Miami 2023 [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
@@ -716,35 +745,6 @@ VA - Armada Record Box - REMIXED I (2021) [MP3|320 Kbps] <Deep House, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA9E5DEE33CF067115863943EB521C3A2F3027C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349511   (1004493) от 01.01.2020
-
-VA - 2020 Workout Starts Now [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sammy Kaiser - Toolkit 04:13
-02. Sally Jesse - Astroid 04:13
-03. Saber Wolf - Bokbok 04:13
-04. Ryan Bader - Return 04:13(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC606872FBE9824C5FD6FC7B1D88ADB05AB9EC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1457643   (1024441) от 26.03.2021
-
-Банда четырех - Смерть в июне (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock & Roll, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Резервация здесь [00:03:27]
-02. Ночью через лес [00:03:43]
-03. Дисциплина [00:04:39]
-04. Плохая репутация [00:04:46](   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26EDB52ABA29EF4E41D13E3FD1115C92F604A25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457723   (1024440) от 26.03.2021
 
 VA - Doomed & Stoned in Russia (Volume 1) (2021) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Metal, Stoner Rock>
@@ -743,6 +714,35 @@ Liquid Tension Experiment - LTE3 (2021) 2xCD,  Deluxe Edition [MP3|320 Kbps] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FA3F0A9BE047C9298073E605F7422DF6CF3BA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457901   (1024070) от 28.03.2021
+
+Silent Winter - Empire of Sins (2021) [MP3|320 Kbps] <Power, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gates of Fire [00:05:07]
+02 - Wings of Destiny [00:04:13]
+03 - Shout [00:04:33]
+04 - Mirror [00:05:09](   Читать дальше...   )Жанр: Power, Progressive MetalПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA6D634C24E52C6047C9BA4ADF7214ED0194B28
 ```
 
 https://mybot314.ru/tekegram_catalog/

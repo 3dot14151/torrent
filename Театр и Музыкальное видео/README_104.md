@@ -1,3 +1,29 @@
+###  Публикация: 731148   (297008) от 07.12.2013
+
+Смешная девчонка / Funny Girl (1968) BDRip [H.264/720p-LQ] [Hi10P]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Мюзикл, Драма, Мелодрама, Комедия, БиографияРежиссер: Уильям УайлерАктеры: Барбара Стрейзанд, Омар Шариф, Кэй Медфорд, Энн Френсис,Уолтер Пиджон, Ли Аллен,Мэй Куэстел,Джералд Мор,Фрэнк Фэйлен,Митти ЛоуренсПеревод: Дублированный, Профессиональный (многоголосый закадровый), Авторский (одноголосый закадровый)Язык субтитров: Русский (песни), Английский, Английский SDHФормат: MKVПродолжительность: 02:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862355E12EA354E38C66196A5275869D32AFB999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184467   (296941) от 19.11.2017
 
 Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
@@ -699,35 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8DA2139FC1BF6A638C428A2293B859154CD57DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962822   (290747) от 06.12.2015
-
-Celtic Woman (2004) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	–Chloу Agnew "Last Rose Of Summer" (Intro)/"Walking In The Air"	4:22
-2	–Meav Ni Mhaolchatha  "Danny Boy" (A Cappella)  3:26
-(Choir – Aontas Choral Group)
-3	–Mairead Nesbitt	"The Butterfly" 3:02(   Читать дальше...   )Жанр: Celtic, Folk, New Age, CrossoverПеревод: ОтсутствуетЯзык субтитров: English, Francais, Deutsch, Espanol, Italiano, Portugues, NederlandsПродолжительность: 01:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6EE0BF0D80F73EE7256CD7924053C11EF40704
 ```
 
 https://mybot314.ru/tekegram_catalog/

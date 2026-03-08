@@ -1,3 +1,32 @@
+###  Публикация: 1473943   (1013404) от 31.05.2021
+
+Ethan Iverson & Umbria Jazz Orchestra - Bud Powell In The 21st Century (2021) Sunnyside Communications, Inc. [FLAC|Lossless|tracks + .cue] <Modern Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bud Powell In The 21st Century, Part 1: Chorale [2:34]
+02. Bud Powell In The 21st Century, Part 2: Continuity [4:14]
+03. Celia [5:10]
+04. Tempus Fugit [5:03](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF62CDFF09CA249C9D488F9C8BCF76AD84784C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474283   (1013040) от 02.06.2021
 
 VA - Smooth Jazz Summer (Third Edition) (2012) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -716,35 +745,6 @@ Amos Hoffman, Edwin G. Hamilton - Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EB1A03D930F659F92167610407DFE56AAF298DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480607   (1008861) от 29.06.2021
-
-Johnny Hartman - There Goes My Heart (1947 - 1952) 2004, Proper Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Was I Born? [2:53]
-02. Tormented (Why Must I Be) [3:01]
-03. What's to Become of Me? [3:11]
-04. I'll Never Smile Again [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F1206D15CB87F5074C845740E18E7007AD3A47
 ```
 
 https://mybot314.ru/tekegram_catalog/

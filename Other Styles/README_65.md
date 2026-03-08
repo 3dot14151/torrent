@@ -1,3 +1,32 @@
+###  Публикация: 1220572   (700530) от 21.04.2018
+
+Levantis - I Love Yoga (Music To Relax Your Body And Mind), 3CD Box Set (2009) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Part 1 (3:51)
+02. Spirit Part 2 (3:05)
+03. Rising Star Part 1 (3:06)
+04. Rising Star Part 2 (2:05)(   Читать дальше...   )Жанр: New Age, Meditative, AmbientПродолжительность: 02:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FC5FDB3FD38E8AEE3ECFBD28D02BF804F4A24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132428   (700454) от 09.05.2017
 
 VA - Prey (Original Game Soundtrack) (2017) [MP3|241-287 кб/с]<Soundtrack>
@@ -722,35 +751,6 @@ Parijat - Blessings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A3B98262CF4D2E8651C9D81210569BFE474F962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133169   (696931) от 11.05.2017
-
-Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter in the Mountains
-02. The Book of Dragons
-03. When It Snows in the Forest
-04. The Quest(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7268A50A3EAB972982755A15935EB6DAE1C35E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

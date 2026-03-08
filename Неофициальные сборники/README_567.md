@@ -1,3 +1,177 @@
+###  Публикация: 1513989   (221130) от 01.12.2021
+
+VA - Soft Pop (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221130.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alicia Keys - Girl on Fire (3:44)
+002. Andy Grammer - Keep Your Head Up (3:09)
+003. OneRepublic - Counting Stars (4:17)
+004. Rachel Platten - Fight Song (3:24)(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9C09FFC75A40B5FAB4365E5327B6C57424FC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966513   (221095) от 17.12.2015
+
+VA - Bedroom Chillout and Ambient (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bluesolar - Believe in Me - Chill Out Mix
+02. G. Papadopoulos - Love Is Everywhere
+03. The Fantasy 7 - Final Soundtrack
+04. Minka - Little Cat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63677845196C8BE473A7F44F5F074299B2D1934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083996   (221069) от 18.12.2016
+
+VA - Radio Top musicFM - October (2016) [MP3|128-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221069.jpg" />
+</div>
+
+
+###  Подробнее
+
+LOVE радио - Тор 20
+01. Max Barskih - Туманы (3:26)
+02. DJ Snake ft. Justin Bieber - Let Me Love You (3:26)
+03. MONATIK - Кружит (3:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 20:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA5340743FA6901E107F3A9EDEEB375CEAC12A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966319   (221047) от 17.12.2015
+
+VA - Dance Fight Track Hits (2015) [MP3|251-320 кб/с] <Club, Happy Sound, Vocal, Commercial>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanilla Monk - Headlights (Wings & Rider Remix Edit) 03:53
+02. Dr Meaker - Good Fight (Diskord Remix) 03:30
+03. Knife Party - Parliament Funk 04:21
+04. Dropclusive & DJ Jay-T - Streets (Club Edit) 03:22(   Читать дальше...   )Жанр: Club, Happy Sound, Vocal, CommercialПродолжительность: 05:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0653715E421ED04BD1E29D30AFCD5CA7A0391ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966326   (221028) от 17.12.2015
+
+VA - Mega Party Hits - Headlights Message (2015) [MP3|192-320 кб/с] <Club, EuroDance, Hands Up, Progressive, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Brown Feat. Jack Savoretti - Jack In A Box 03:10
+02. Endanger - Das Ist Alles 03:36
+03. David Tort And Federico Scavo With Alex Kenji - Saxophonic 06:36
+04. Mab Feat. Jim Clay - We Are 03:04(   Читать дальше...   )Жанр: Club, EuroDance, Hands Up, Progressive, DanceПродолжительность: 09:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B594FC2303D0C7943CD6A3B30B214A55329CD20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083901   (221014) от 18.12.2016
+
+VA - Top 100 Amnezia Hits (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221014.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marcus & Martinus feat. Samantha J. - Light It Up 3:15
+ 002. Enrique Iglesias feat. Tinashe & Javada - Duele El Corazon 3:20
+ 003. BBX feat. Tony T & Alba Kras - Crazy (Radio Edit) 3:20
+ 004. Mohombi - InfinityЖанр: Pop, DanceПродолжительность: 05:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0842CF0EA8275CFBE2208D073FF7F0F98259418E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084241   (221006) от 18.12.2016
 
 VA - A Jazzy Little Christmas: 50 Jazz and Swing Holiday Favorites (2016) [MP3|320 Kbps] <Jazz>
@@ -580,180 +754,6 @@ VA - Magic Instrumental Music Vol. 3 (2016) [MP3|320 Kbps] <Instrumental, New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57553CA5EAA85013B2697D5C0452A54175AFE412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084634   (219943) от 18.12.2016
-
-VA - Deep House Collection Vol.101 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219943.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.1WayTKT feat. Netousha Monroe - Insanity (Original Mix) 3:26
-002.Adventure Club - Forever feat Ben Stevenson (Original Mix) 3:48
-003.Affkt, Upercent - Voler Volar (Original Mix) 8:27
-004.Agja - Das gefallene Hornchen (Original Mix) 6:42(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 16:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0819E5A46A5862B65FE60932DE6B365E9945028C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585655   (219877) от 23.10.2022
-
-VA - Beatport Electro House: Sound Pack #563 (2022) [MP3|320 Kbps] <House, Electro, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219877.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elazion & George Sunday - One Step Closer
-002. Tensnake - Latching Onto You
-003. M.J.E & Donaccia - My Love
-004. Conjure One & Jeza - Wheels Come Off(   Читать дальше...   )Жанр: House, Electro, DanceПродолжительность: 12:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81341DFC1F4B3D16FB2D999F3B26142C81F23DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585661   (219854) от 23.10.2022
-
-VA - Glamorous Sport Music (2022) [MP3|320 Kbps] <Uplifting, Vocal-Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219854.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Oakenfold Ft. Tiff Lacey - Hypnotized
-002. Forest-Love - Hunting A Submarine
-003. Above & Beyond - Alone Tonight
-004. Reorder & Lee Osborne - Where You Hide (Radio Edit)(   Читать дальше...   )Жанр: Uplifting, Vocal-TranceПродолжительность: 08:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BABE987E4A92E549AD8F776BAC2997A74F2645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966297   (219820) от 17.12.2015
-
-VA - Google Play хит-парад (November) (2015) [MP3|320 кб/с] <Pop, Русская поп-музыка, Рэп/Хип-хоп, Альтернативная музыка/инди, Метал, Рок, Брейкбит, Электронная музыка>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219820.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Скриптонит feat. Юрик Четверг, Truwer - Сука тащит нас на дно
-002. БИ-2 feat. Чичерина - Мой рок-н-ролл
-003. Баста - ЧК (Чистый кайф)
-004. Скриптонит - Вечеринка(   Читать дальше...   )Жанр: Pop, Русская поп-музыка, Рэп/Хип-хоп, Альтернативная музыка/инди, Метал, Рок, Брейкбит, Электронная музыкаПродолжительность: 10:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6F8558637C6B56956E587F7FE3E0480A274F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514111   (219719) от 02.12.2021
-
-VA - D&B: Best New Electro Bass Hype Mix (2021) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219719.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Guy Wampa - Come Together
-002. Unglued - South By West
-003. Teej & Jappa - 16 Speakers
-004. Pola & Bryson - In Too Deep(   Читать дальше...   )Жанр: Drum And Bass, Electro BassПродолжительность: 10:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD5CCCBC8215CBEF3E7F10212F7BB2A15C3B7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514116   (219700) от 02.12.2021
-
-VA - Hypnotic Techno (2021) [MP3|320 Kbps] <Techno, Electro Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219700.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Agent Orange DJ - Backwoods Groove
-002. Blocka - Come With Me
-003. Other Form - A Widening Rift
-004. Decoder - Hemolu(   Читать дальше...   )Жанр: Techno, Electro MinimalПродолжительность: 09:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90F8DA44847EB1CD3FB380C1411EA98F6E2586A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 988060   (922878) от 19.02.2016
+
+VA - Recoverworld Radio 005 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rich Smith & Kimberly Hale - When the Sun Comes Up (6:53)
+02. Para X - Love Train (Janina T Remix) (7:06)
+03. Almar & Danny Stubbs - Midnight Sun (7:13)
+04. Para X - Love Train (6:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6618C2B2F1D421D1F6C473F70C9CA1E44C392A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095846   (922877) от 22.01.2017
+
+VA - Black Hole House Music 01-17 (2017) [MP3|320 Kbps] <House, Progressive, Vocal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marc Lee ft Angelika Borof - Something Inside Me  5:40
+02.  Frigid Armadillo ft Natalie Major - Electric Hearts (Original Mix)  6:44
+03.  The Overview Effect ft Luke Chable - Sweetness + Light  3:38
+04.  Quinten 909 & Andrey Exx ft Diva Vocal - U Got the Love (Max Lyazgin & Hugobeat Remix)  5:40(   Читать дальше...   )Жанр: House, Progressive, VocalПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A571668C039C86E99CEC7060AAF2348CF1681F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987298   (922872) от 19.02.2016
 
 VA - Techno 2007 - The Best (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Techno>
@@ -692,64 +750,6 @@ VA - Cinematic Chillout: Wintertime Collection (2017) [MP3|320 Kbps] <Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E0D788B2D5AB357A91C33E322ABDA670CF20C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988608   (920950) от 20.02.2016
-
-VA - Ibiza Fitness Music (2016) [MP3|320 кб/с] <Club, Progressive, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Phunk - Swept Away (Ibiza Workout Remix) 04:50
-02. We:Us - For The Night (Tropical House Fitness Edit) 04:20
-03. American Groove Junkies - Reach You (Sexy & Fit Mix) 03:34
-04. Summer Beats - Hold On (Dancefloor Fitness Mix) 04:06(   Читать дальше...   )Жанр: Club, Progressive, Future HouseПродолжительность: 02:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A3D70BDE58A7D47174480C97B51C62AEA2C025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096154   (920943) от 23.01.2017
-
-VA - I Love Fitness Training (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electro Jack - Funktup 05:01
-02. Vladimir Damira - Grabba 05:38
-03. Sammy Kaiser - Flow with Da Grow 05:03
-04. Susan Sustain - Hypnotize2 07:28(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76F1BE9D1F7FFED9BAC7C321DE3978742F4767D
 ```
 
 https://mybot314.ru/tekegram_catalog/

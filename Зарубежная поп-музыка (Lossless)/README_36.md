@@ -1,3 +1,32 @@
+###  Публикация: 1535381   (686703) от 06.03.2022
+
+Marc Anthony - Pa'lla Voy (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin, Salsa>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pa’lla Voy
+02. Yo Le Mentí
+03. No Se Quita
+04. Nada de Nada(   Читать дальше...   )Жанр: Pop, Latin, SalsaПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88C12B3F66F148F6ED95B141717110D3DCAB7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289433   (686626) от 16.03.2019
 
 Rozalén - Cerrando Puntos Suspensivos (2018) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
@@ -722,35 +751,6 @@ Julio Iglesias - The Very Best Of Julio Iglesias (2007) [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EACB741EBD9407E1D59A873F50EB2711A416B07E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030414   (674568) от 30.06.2016
-
-VA - Pavarotti & Friends For War Child (1996) [APE|Lossless|image + .cue] <Rock, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Clapton • Luciano Pavarotti • East London Gospel Choir - Holy Mother
-02. Joan Osborne - Saint Teresa
-03. Elton John - I Guess That's What They Call It The Blues
-04. Liza Minnelli • Luciano Pavarotti - New York, New York(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5D6052E08ED67CBFED7A2CD8542AD3B58D6642
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1616317   (1036157) от 03.03.2023
+
+VA - Impressive Sound 2022.2: Volume IV (2022) [MP3|320 Kbps] <Jazz, art-pop, avant-prog>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solar Ship - So Wet
+02. Madison Cunningham - All I’ve Ever Known
+03. Carlos Fischer - Swing Trigger
+04. Under The Reefs Orchestra - Ants(   Читать дальше...   )Жанр: Jazz, art-pop, avant-prog, art rock, electronic, experimentalПродолжительность: 01:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CCF9FF23F1DADFFA2D05D6DEE78E86F2BF0724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616319   (1036152) от 03.03.2023
+
+VA - Impressive Sound 2022.2: Volume V (2022) [MP3|320 Kbps] <Instrumental, progressive metal, math-rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strawberry Girls - Nightmare / Dream Sequence (feat. Ben Rosett, Zachary Garren)
+02. Poly-Math - Velociter
+03. Jakub Tirco - The End of All Things (feat. Baard Kolstad)
+04. Lee McKinney - Stormrage(   Читать дальше...   )Жанр: Instrumental, progressive metal, math-rock, progressive rock, jazz-fusionПродолжительность: 01:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542E9066C69F2836210E13E0AA47D468E65AE5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616321   (1036147) от 03.03.2023
+
+VA - Impressive Sound 2022.2: Volume VI (2022) [MP3|320 Kbps] <Hardcore, metalcore, mathcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ithaca - The Future Says Thank You
+02. End - Eden Will Drown
+03. Amongst The Giants - Adversary
+04. Glassing - Sulk(   Читать дальше...   )Жанр: Hardcore, metalcore, mathcore, deathcore, post-hardcore, grindcoreПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972D663CB678B3E1827986437AB74725745CDD2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616185   (1036128) от 03.03.2023
+
+Тюрген Кам - Collection (2013-2019) [MP3|320 Kbps] <Ethnic, World Music, Горловое пение>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrows of Shaman [02:23]
+02. Beginning of the Journey [03:36]
+03. Christmas Greeting [03:36]
+04. Grandfathers's Song [04:58](   Читать дальше...   )Жанр: Ethnic, World Music, Горловое пениеПродолжительность: 01:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9273EBE2888B5E97FCA495BA53E9B50884E9F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616640   (1036122) от 03.03.2023
+
+VA - Music News vol.249 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036122.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anivar - Дышать (02:48)
+ 002. 22Bullets feat. Seb Mont - Call My Name (02:46)
+ 003. 22Bullets feat. Wilhelmina - On My Way (02:54)
+ 004. Adik feat. Aziza Qobilova - I Lost You (03:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841617BA3825DF84D56E81DD03A329298A82E650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616828   (1035848) от 04.03.2023
+
+VA - An Easy Slide On ... (2023) [MP3|320 Kbps] <Jazz, Electro Jazz, Easy Listening>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035848.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Loiriplukari - Suomalaisia [02:56]
+002. Zenel - 5Db Freestyle [04:30]
+003. Sam Gendel - 3Flutes [01:20]
+004. Shabaka - Memories Don’t Live Like People Do [01:39](   Читать дальше...   )Жанр: Jazz, Electro Jazz, Easy ListeningПродолжительность: 09:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C914A59A1E975263E945C5EEB27C75FC778D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616803   (1035833) от 04.03.2023
 
 VA - Музыка для машины Vol.11 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -571,180 +745,6 @@ VA - Gravity Dance (2021) [MP3|320 Kbps] <Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB1327677199AA320C50D06AA977940C71FC27BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444159   (1034942) от 31.01.2021
-
-VA - A Sense Of Serenity: Lounge Mix (2021) [MP3|320 Kbps] <Lounge, Relax, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Личное пространство ограничивается не только лишь физически очерченными границами, за пределы котрого доступ есть не у каждого. Но это и музыка, которую мы готовы слушать наедине с собой или с близким человеком. Это то пространство, где мысли, мечты и время не подчиняются законам реальности и общепринятым стандартам.001. Franklin Laurent - To Love
-002. The K Program - American Ocean
-003. Carbo - Body A Brake
-004. Marcy - You Can Say(   Читать дальше...   )Жанр: Lounge, Relax, Chillout, DowntempoПродолжительность: 08:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBABD90CDAF41C76F0B43BA69281789C27A87C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444150   (1034939) от 31.01.2021
-
-VA - Beautiful Deep House: Night Club DJ Mix (2021) [MP3|320 Kbps] <Deep House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка тем и прекрасна, что способна создавать настроение, да так, что можно весь день ходить окрыленным или же погруженным в себя. Сами собой всплывают воспоминания, рождаются образы и мысли, и вот мы уже целиком и полностью живем в этой музыке, а сердце бьется в такт ритму.001. Cream Bitches - Deep Me
-002. Black Waters - Wanna Be
-003. Tony Franklin - Open Space
-004. Dj Jerry - Keep In Mind(   Читать дальше...   )Жанр: Deep House, Club, DanceПродолжительность: 07:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641D44EC9B39F4A9925E9A7C9364F71D53CDAED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444146   (1034911) от 31.01.2021
-
-VA - Reggae Night: Sweet Sensation (2021) [MP3|320 Kbps] <Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бытует мнение, что растаманы это пропащие люди, бесконечно курят травку, питаются чем попало, не моют голову, не дружат с зубной пастой - чего только о них не сочиняют. Но не будет никого, кто вспоминал бы о их призывах к миру и любви, ненасилию, согласию между людьми и равенству, которое они проповедуют.001. Kumar - Change
-002. Delroy Denton - Sufferer's Child
-003. Enos Mcleod - See It Deh
-004. Mikey Spice - Everybody Needs Love(   Читать дальше...   )Жанр: ReggaeПродолжительность: 07:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C530864D820FF4CB43E0515BDF4353E7E3020F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443636   (1034898) от 31.01.2021
-
-VA - Europa Plus: ЕвроХит Топ 40 [29.01] (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Eilish - Everything I Wanted (4:06)
-02. Burak Yeter - Body Talks (3:56)
-03. Hurts - Redemption (4:19)
-04. Dotan - NUMB (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B811D9E8674375D005D73479A475CF478F38BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444293   (1034686) от 01.02.2021
-
-VA - Beatport Dance House: Electro Sound Pack #236 (2021) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный танцевальный сборник в стиле танцевального электро хауса, который полностью наполнен качественными хитами электронной сцены. Представленные треки продуманы до самых мелочей и демонстрируют собой истинную музыкальную эстетическую гармонию.001. Bobby Stewart - Flashback
-002. Julian Jordan - Boss
-003. Duke Jones - Suddenly (Dub Mix)
-004. Glock.Lee - Bring The House Down(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA02BE1F7AC7161DA5D2CE4BAFF2AE5938CE43A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444294   (1034594) от 01.02.2021
-
-VA - New York Roots Blues (2021) [MP3|320 Kbps] <Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что композиции альбома "New York Roots Blues" обладают ярко высказанный меланхоличный типаж, воспринимаются они при этом легко и непосредственно. Музыка с глубоким во всех смыслах этого слова смыслом и предназначена далеко не для единичного прослушивания.001. Pete Wilde - Savior
-002. Joe Bonamassa - A New Day Yesterday
-003. Spirits Having Fun - Touch The Sky
-004. Tedeschi Trucks Band - Shame(   Читать дальше...   )Жанр: Rock BluesПродолжительность: 07:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFA74CB2A5A6C3F45C86EEBDD2FE1C60422DC11
 ```
 
 https://mybot314.ru/tekegram_catalog/

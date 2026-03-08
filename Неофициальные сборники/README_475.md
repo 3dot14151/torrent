@@ -1,3 +1,211 @@
+###  Публикация: 576056   (364336) от 17.11.2012
+
+VA - Exotic Wafture #31 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364336.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Exotic Wafture #31 (2012)
+Год: 2012
+Жанр: Trance, Vocal Trance, Uplifting Trance, Classic Trance
+Продолжительность: 01:52:11Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+001. Mike Foyle feat. Statica - Head Rush (Original Mix)
+002. Manufactured Superstars feat. Scarlett Quinn - Take Me Over (Bingo Players Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91484132C41DD158041F3B6887D05896C4335655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576874   (364218) от 17.11.2012
+
+VA - Осенняя Московская Дискотека (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364218.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Samo'L - Двигаем Телами
+002. Jazmyne - Sexy
+003. DJ Boyko & DJ Noiz feat. Katy Queen - Между Нами (Radio Mix)
+004. Guenta K feat. Bbf - Never (Radio Edit)
+005. Sasha Dith & Steve Modana feat. Nadya - Улечу (UniSelf Radio Edit)
+006. Pitbull feat. Enrique Iglesias - Tchu Tchu Tcha
+007. DisPlay - Танцуй
+008. Alex Ferrari - Te Pego E Pa (Official Remix 2013)
+009. Потап и Настя - РуРуРу
+010. Wild Pistols & Yana Fortep - Belleza(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 5:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF67862DBB5CD82096F37B67A92BCFFAAD18D3F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576891   (364210) от 17.11.2012
+
+VA - Хитовая жажда 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364210.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Серебро - Bastard
+002. Brooklyn Bounce Feat. King Chronic And Miss L - Cold Rock A Party
+003. А-Студио И Quest Pistols - Медведица
+004. Chuckie Feat. Gregor Salto - What Happens In Vegas
+005. Вирус - За Тобой
+006. Nicole Scherzinger - Try With Me
+007. Partyfon Project Feat. Milena - Дискотека
+008. Akcent Feat. Dollarman - Spanish Lover
+009. Ёлка - Я В Печали
+010. Elena Gheorghe - Midnight Sun(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B542B50AA0CBF7D46CAED1FDADE6A727AD2164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576392   (364209) от 17.11.2012
+
+VA - Звездный осенний хит 24 Зарубежный (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katy Perry - That's More Like It
+02. Rihanna - No Love Allowed
+03. Dony - Passion (Radio Edit)
+04. Kesha - C'Mon
+05. Flo Rida - Broke It Down
+06. Andreea Banica - Could U (Radio Edit)
+07. David Jones & Total Sound Feat. Devonne - Incredible Virgo
+08. Alex Ferrari - Te Pego E Pa (Official Remix 2013)
+09. Rihanna feat. Chris Brown - Nobody's Business
+10. Daddy Yankee Feat. Emelee - Lose Control (Prestige)(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5EE441FF8B1AFEF6F28F78A1B77CD20BDEB8F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576395   (364084) от 17.11.2012
+
+VA - Танцы До Упаду (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Джиган - Держи Меня За Руку
+02. Fidel Wicked - Rock The Disco (Radio Edit)
+03. Sasha Dith & Steve Modana Feat. Nadya - Улечу
+04. Bob Sinclar - Groupie (Radio Edit)
+05. Иракли - Осень (Remix)
+06. Xonia - Remember (Radio Edit)
+07. Руки Вверх - Я Тебя Люблю
+08. In-Grid - La Trompette (Bernasconi Radio Edit)
+09. Chinkong И Девушки Эйнштейна - #Дискотекаhomeparty16+
+10. Arash Feat. Sean Paul - She Makes Me Go(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3C2D04398DF94E86FAFE22F4D854C8D8D70515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576420   (364071) от 17.11.2012
+
+VA - До 19 и старше 27 Русский (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364071.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. K.Melody - Зажигай Солнце
+002. Света - Лондон-Москва
+003. Марсель - Настроение осень
+004. Юля Паго - Маленький Рай
+005. A-Sen - Карие глаза
+006. Изя Листин - Белые розы
+007. Иракли - Осень
+008. Руки Вверх - Мама
+009. Оксана Краски - Я буду ждать
+010. Макс Лоренс - За твои глаза(   Читать дальше...   )Жанр: PopПродолжительность: 12:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B20DAA01074E62335B13B916AF47E27A2A89EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255489   (363969) от 18.10.2018
 
 VA - Permanent Rock Blues (2018) [MP3|320 Kbps] <Rock, Rock Blues>
@@ -619,180 +827,6 @@ VA - Европа Плюс Включи Весь Мир! Часть 12 (2012) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46E14A74E6EF00E3A6B83EFF5872CC61EB9D1C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416725   (363191) от 18.10.2020
-
-VA - Beatport Vocal Tranceю Electro Sound Pack #188 (2020) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond And Spencer - Long Way
-02. Allen Watts Ft. Gid Sedgwick - Another You
-03. Chris Fennec - Burst On Fire
-04. Danny Cullen & Kid Alien - I Surrender(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 03:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3559CA41282CCE45B07C914AC90D0CDA9CEB23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177441   (363180) от 25.10.2017
-
-VA - Hot Jazz in Denmark Vol.3 (2017) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liller - Ice Cream (5:41)
-02. Vestre Jazzvжrk - After You've Gone (5:05)
-03. Papa Bue's Viking Jazzband - Blueberry Hill, Pt. 1 (4:44)
-04. Kansas City Stompers - Blueberry Hill, Pt. 2 (3:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F56E82B51BD050254DF4FA2D270141220EE7E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416726   (363163) от 18.10.2020
-
-VA - Defiled: Hardcore Collection (2020) [MP3|320 Kbps] <Hardcore, Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363163.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kill On Sight - Flatline
-002. Chron Goblin - Out Of My Mind
-003. Valley Of The Sun - Old Gods
-004. Seeyouspacecowboy - Dissertation(   Читать дальше...   )Жанр: Hardcore, Metal, Hard RockПродолжительность: 08:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6CA806EB60E62934F768C0677E627DB51AB7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177348   (363162) от 25.10.2017
-
-VA - Music For Everyone - Chillstep & Dubstep Vol.5 (2017) [MP3|320 Kbps] <Chillstep, Dubstep, Future Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363162.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oh Wonder - Midnight Moon (Melvv Remix)
-2. Electus - The Sky Inside (Original Mix)
-3. Kaskade feat. Ilsey - Disarm You (Bvrnout Remix)
-4. Equalize - Nightsky (Original Mix)(   Читать дальше...   )Жанр: Chillstep, Dubstep, Future BassПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B1991B19ED554B8E87153CBFB11AD4D621AE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951493   (363096) от 29.10.2015
-
-Milli Vanilli - Good Songs (2015) [MP3|256-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Much Monkey Business
-02. Baby Don't Forget My Number (1)
-03. Baby Don't Forget My Number (2)
-04. Baby Don't Forget My Number (3)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86826ED84BCAAD7C64495D4C4FEFF18BA35D16E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416789   (363021) от 18.10.2020
-
-VA - The Official UK Top 40 Singles Chart 16.10.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24kGoldn - Mood (feat. iann dior) (2:20)
-02. Headie One - Ain't It Different (feat. AJ Tracey & Stormzy) (3:16)
-03. Internet Money & Gunna - Lemonade (feat. Don Toliver & NAV) (3:15)
-04. Paul Woolford & Diplo - Looking For Me (feat. Kareen Lomax) (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9143B109FC0EE3F22D6CABC54790C0E95AB2DC88
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,38 +1,3 @@
-###  Публикация: 606174   (995253) от 21.01.2013
-
-Sin Fang - Flowers (2013) [MP3|320 кб/с]<Indie-Rock, Dreampop, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young Boys
-02. What's Wrong With Your Eyes
-03. Look At The Light
-04. Sunbeam
-05. Feel See
-06. See Ribs
-07. Catcher
-08. Everything Alright
-09. Not Enough
-10. Weird HeartЖанр: Indie-Rock, Dreampop, ElectronicПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6771571BD3BE427A0F5B4A4F6838B45D8F814CDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605873   (994883) от 22.01.2013
 
 School Of Seven Bells - 3 альбома, 2 EP (2007-2012) Дискография [MP3|320 кб/с]<Dreampop, Shoegaze>
@@ -867,6 +832,35 @@ Nada Surf - Never Not Together (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF4682CB5E4D39BB6C4775B8A7B09DD8C5ADA05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353016   (993229) от 16.01.2020
+
+Dirtwire - Electric Rivеr (2019) [MP3|320 Kbps] <Indie, Electronica, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talking Bird (feat. Mbilou & Aya)
+02. Cannonball
+03. The Eagle and the Condor
+04. Seem to Freeze (feat. Emma Lucia)(   Читать дальше...   )Жанр: Indie, Electronica, ExperimentalПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1812F589BBC5FA3DC7143769CC0E208C879272E
 ```
 
 https://mybot314.ru/tekegram_catalog/

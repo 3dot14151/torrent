@@ -1,3 +1,61 @@
+###  Публикация: 1015323   (774992) от 10.05.2016
+
+VA - Grand Masters Collection Voices of Africa (2015) [MP3|320 кб/с] <Lounge, Reggae, African Music>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hotline - Jabulani (03:50)
+02. Simphiwe Dana - Mayine (06:50)
+03. Ladysmith Black Mambazo - Because I Love You (04:06)
+04. Cesaria Evora - Angola (04:25)(   Читать дальше...   )Жанр: Lounge, Reggae, African Music, WorldПродолжительность: 02:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C9700087EC10682D11AB256CE55316905D0B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015476   (774986) от 10.05.2016
+
+VA - Best of Trip-Hop (2016) [MP3|320 кб/с] <Electronic, Downtempo, Trip-hop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reverie - Dancing on the Wind (03:27)
+02. Lajana - Coming Down (03:48)
+03. Syntheticsax - Emotionless (06:13)
+04. Idiosyncrasy, Red Richards & Aris - Mobilis in Mobili (04:55)(   Читать дальше...   )Производство: Tokyo Women RecordsЖанр: Electronic, Downtempo, Trip-hopПродолжительность: 02:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD09462757A613BF14E69ED1DC97CD4E4A7AE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212900   (774514) от 14.03.2018
 
 VA - Miami Hits (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -686,64 +744,6 @@ Memphidos - Discography 10 Releases (2009-2018) [FLAC|Lossless|WEB-DL]<IDM, Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94843FF0EA30C7BA485D16D8F64833E62A51650D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278188   (773182) от 24.01.2019
-
-VA - 2496, Vol. 1 (2019) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Translippers - Shimmer (06:18)
- 02. Essence Project - Fly In Nature (04:52)
- 03. Obsqure - Airborn Memories (04:25)
- 04. Earth Connect - Inside The Rabbit Hole (08:25)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C5BB20F7CB58ACC866B3B504497E0FF84573718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278342   (773181) от 24.01.2019
-
-Lowering - Happiness (2016) EP [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Dark Jazz>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nighthawks (5:04)
-02. Father (3:44)
-03. East Queens (5:46)
-04. A White Cat (5:36)Жанр: Experimental, Ambient, Dark Jazz, Doom Jazz, Post-RockПродолжительность: 00:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA619E9ED9288EFEC9CFF251FFD03082B860F78
 ```
 
 https://mybot314.ru/tekegram_catalog/

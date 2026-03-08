@@ -1,32 +1,3 @@
-###  Публикация: 1546029   (607848) от 23.04.2022
-
-The Sweet - Platinum Rare Vol. 2 (2022) Remastered [FLAC 2.0|48/24|WEB-DL|tracks] <Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Action (Rough Mix) (3:27)
-02. Idenity Crisis (Outtake) (3:10)
-03. Oh Yeah (Band Demo) (2:19)
-04. Lies in Your Eyes (Rough Mix) (3:36)(   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Classic RockПродолжительность: 01:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC878419F1CAA01A729FE631A30DFCE8D03C474F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546031   (607825) от 23.04.2022
 
 The Sweet - Platinum Rare Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock, Classic Rock>
@@ -767,6 +738,35 @@ Opera Diabolicus - 1614 (2012) [FLAC|Lossless]<Dark Metal, Gothic Metal, Metal O
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147851   (605751) от 04.07.2017
+
+Terrifier - Weapons of Thrash Destruction (2017) Japan [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reanimator
+02. Deceiver
+03. Nuclear Demolisher
+04. Violent Reprisal(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3131660B5284A7A0646B9B3654F695E8C1FB53AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

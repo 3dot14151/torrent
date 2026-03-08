@@ -1,3 +1,90 @@
+###  Публикация: 1035251   (628645) от 16.07.2016
+
+Wolf - Wolf (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Shadow of Steel
+02. Moonlight
+03. The Parasite
+04. Electric Raga(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A137A13EFDFCCA85E43233BFBE36078FC1417961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035252   (628624) от 16.07.2016
+
+Doro - Strong And Proud / 30 Years Of Rock And Metal (2016) Live [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Run
+02. Save My Soul
+03. Raise Your Fist
+04. Fear Of The Dark (with Blaze Bayley)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A2C9C5F3C0E90B496A6CC2A3729205308101D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543743   (627968) от 12.04.2022
+
+Quasimodo - Cancer City (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cancer City
+02. Deadlock
+03. Unleash the Young
+04. Lady Insane(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EBB8F4C51DF0316859DB568E7E197123B353DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543722   (627901) от 12.04.2022
 
 Go Ahead And Die - Go Ahead And Die (2021) [FLAC|Lossless|image + .cue] <Death, Thrash Metal>
@@ -667,93 +754,6 @@ Rammstein - Live Aus Berlin (1999) Reissue, 2014, ООО «Юниверсал М
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07108BC6D8CD6F39B8F0889A2973F7B53C46166E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544084   (623925) от 14.04.2022
-
-Mr. Mephisto - Abducted... They Come From Uranus (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Punk, Horror Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. They Live
-02. Falling From Venus
-03. Abducted
-04. Land Of The Dead(   Читать дальше...   )Жанр: Heavy Metal, Punk, Horror RockПродолжительность: 00:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC1CCBA0DE4C3881FD39B5C455E347070507659E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144950   (623912) от 24.06.2017
-
-Old Season - Beyond the Black (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Dawn
-02. Scavenger
-03. Chosen
-04. Elegy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACEEFDE50C3A7DF6EB75A5F14798BF087C0BB796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144964   (623910) от 24.06.2017
-
-Odroerir - Das Erbe Unserer Ahnen (Limited Edition) (2017) [FLAC|Lossless|image + .cue] <Pagan Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abecedarium Nord 09:27
-02. Das Erbe Unserer Ahnen 07:29
-03. Thule 07:38
-04. Idisi 08:41(   Читать дальше...   )Жанр: Pagan FolkПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E66AA0DCF2567410D6A40FD06EA91BE12AA166
 ```
 
 https://mybot314.ru/tekegram_catalog/

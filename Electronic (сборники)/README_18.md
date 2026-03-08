@@ -1,3 +1,32 @@
+###  Публикация: 1356620   (976774) от 01.02.2020
+
+VA - Consolidated DnB Party (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Duoscience - Wonderland
+002. Boombassbrothers - Pompadour
+003. Digital - Abducted
+004. Tubba T - The Light Of The Day (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 09:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA15315FDB150F1C37305CCF3D38894CAA82103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356886   (976759) от 01.02.2020
 
 VA - Лучшие Trance треки Ver.13 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -743,35 +772,6 @@ VA - Trap Sound: Experimental Electronic (2020) [MP3|320 Kbps] <Electronic, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A405FF3FC5FF5E6E9BBFF834BBBD239D2D435685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975759   (970996) от 16.01.2016
-
-VA - From Sunset to Sunrise, Vol. 3 (20 Midnight Lounge Tunes) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vip's - Cartoon (02:42)
-02. Funky - Taranta (05:09)
-03. Geff Yallow - Giallo (05:31)
-04. The Lounge Sunset - Ada (04:12)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE1EE18E9926DEB63D4A327ABD52CA5FE3B074A
 ```
 
 https://mybot314.ru/tekegram_catalog/

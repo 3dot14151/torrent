@@ -1,32 +1,3 @@
-###  Публикация: 1463774   (1020154) от 20.04.2021
-
-Rafael Pacha - Al Rincon Por Sonar (2020) [FLAC|Lossless|image + .cue] <Sympho Prog Rock, Prog Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El despertar de la Ciudad (2:14)
-02. Getting Older (3:34)
-03. La línea de la vida (8:46)
-04. Books on the schoolyard (3:47)(   Читать дальше...   )Жанр: Sympho Prog Rock, Prog FolkПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70587407A74D4795DDD9FD6AA51CB332F93D135B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463855   (1020149) от 20.04.2021
 
 Motus Tenebrae - Deathrising (2016) [FLAC|Lossless|image + .cue] <Gothic Metal, Doom Metal>
@@ -744,6 +715,35 @@ Hardbone - No Frills (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Hard Rock'n
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C87E6B194CC3574F55387C917B68F37303D3F71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464510   (1019810) от 22.04.2021
+
+Feanor - Power Of The Chosen One (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise Of The Dragon
+02. Power Of The Chosen One
+03. This You Can Trust
+04. Metal Land(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAD8BCF4A77B6A6A47442053AC0004FB9B03050
 ```
 
 https://mybot314.ru/tekegram_catalog/

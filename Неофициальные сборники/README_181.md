@@ -1,3 +1,174 @@
+###  Публикация: 1203588   (788120) от 02.02.2018
+
+VA - Impulse №9 - Super Music for Super Car (2018) [MP3|320 Kbps] <Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zedd & Grey Feat. Maren Morris - The Middle (Original Mix) 3:05
+02. Kike Puentes - Life (Original Mix) 4:23
+03. Dome Ft. Edith Brinca - I Feel Alive (Extended Mix) 3:26
+04. Paris & Simo Ft. Nikon - Glow (Original Mix) 2:56(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 06:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322932CD038E950A30CFC9FAA03DD6485DEDDBEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276319   (788074) от 16.01.2019
+
+VA - Ukrainian Hits Vol. 4 (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alyosha - Калина (03:16)
+02. Олег Винник - Па-Па (03:31)
+03. Ірена & Андрій Заліско - Я Не Зраджу (03:54)
+04. Мері - Телефони (03:29)(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C351DA8AB0640A899D38787F8B2ED36A5048256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203419   (787908) от 02.02.2018
+
+VA - Top 100 Январь. Зайцев.Нет (2018) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ SLON & KATYA ft. Роман Василенко - LIFE IS GOOD
+02. J. Balvin & Willy William - Mi Gente
+03. Время и Стекло - Тролль
+04. T-Fest - Улети(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AD1EB6DC4A5F70AD63E96CB1CABB333E8CB8EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276399   (787872) от 16.01.2019
+
+Annett Louisan - Engel (2017) Rammstein Cover Lyrics [MP3|320 Kbps] <Pop music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787872.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Annett Louisan - Engel (Rammstein Cover) LyricsЖанр: Pop musicПродолжительность: 00:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E175167FCA70BCAF1D5A0391C30172977B017A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512075   (787818) от 23.11.2021
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver. 113 (2021) [MP3|320 Kbps] <Club, Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+01. Alok, MAW x NEXBOY, Waveshock - Sunglasses Work (Dj Baur Mixshow)
+02. Antonio Banderas x JORD & Lamic - El Mariachi (Dj Baur 2021 Reboot)
+03. Breathe Carolina & Smack - Get Back (feat. Titus) (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E22EEB1E09410C790F3A047C29B8A8C254F269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511743   (787811) от 23.11.2021
+
+VA - SVS Collection vol. 6 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обязательно для прослушивания в машине!001.  A-Mase & Sharliz - Diamonds (Radio Mix)
+002.  A-Mase & Sharliz - Say It Right (Original Mix)
+003.  A-Mase & Sharliz - Ты Не Верь Слезам (Shura Cover) (Original Mix)
+004.  A-Mase feat. NINO - Toxic (Original Mix)(   Читать дальше...   )Жанр: Deep House, Electro House, OtherПродолжительность: 13.29.32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5EF00DBC0EC9DB3F7CDB9FF208512051B767EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203710   (787730) от 03.02.2018
 
 VA - Empire Records - Classic House 3 (2018) [MP3|320 Kbps] <House>
@@ -571,180 +742,6 @@ VA - Antistress Meditation (2021) [MP3|320 Kbps] <Ambient, Relax, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F69EA1E64F76633C38FDC1F3F0FD402EB380BDA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512362   (787377) от 24.11.2021
-
-VA - Flyin Bye: Sensual Blues And Jazz (2021) [MP3|320 Kbps] <Blues, Rock Blues, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787377.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Peter Crow C - The Angels Message To Me
-002. Tim Staffell - Low Rent Blues
-003. Blues Cousins - Perfect Killer
-004. Mississippi Heat - Your Cheating Heart(   Читать дальше...   )Жанр: Blues, Rock Blues, JazzПродолжительность: 08:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D349D76D681B014F447B487FF3ED42815CC95FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276819   (787218) от 18.01.2019
-
-VA - Music for long trip (2019) [MP3|320 Kbps] <Pop, Dance, Electro, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adam K - Need To Feel Loved
-002. Adventure Club feat. Leah Culver - Reaction
-003. Afterman - Santa Esmeralda (JL &  Afterman Mix)
-004. Alan Walker - Alone(   Читать дальше...   )Жанр: Pop, Dance, Electro, TechnoПродолжительность: 05:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F48980E36A89825686DBD95BAD013E97D35FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276661   (787206) от 18.01.2019
-
-Johnny Hallyday - Album De Sa Vie (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787206.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marie
-002. Sang pour sang
-003. Ça ne change pas un homme
-004. Diego, libre dans sa tête (Live à Paris-Bercy / 1990)(   Читать дальше...   )Жанр: RockПродолжительность: 05:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1542CFA20BD942630F6387A2842AEF7D1906E37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276833   (787201) от 18.01.2019
-
-The Cranberries - I Still Do (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Do
-02. Dreams
-03. Sunday
-04. Pretty(   Читать дальше...   )Жанр: RockПродолжительность: 03:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E20A81AD1C341282FB9E09EB3AFA7CEDAFEA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276825   (787182) от 18.01.2019
-
-VA - Зайцев.нет Лучшие новинки Января 2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787182.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Григорий Лепс - Life Is Good
-002. Альбина - Я не вернусь
-003. Gesaffelstein & The Weeknd - Lost In The Fire
-004. ЯАVЬ - ВОЗДУХ(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13EECE320FE4F43AC3F5C030CE62A584630C5E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276791   (787167) от 18.01.2019
-
-VA - Лучшие треки 2018 года от Zaycev.fm (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787167.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Филипп Киркоров - Цвет настроения синий
-002. Kazka - Плакала
-003. Jah Khalib - Медина
-004. МАЛЬБЭК - Гипнозы (feat Сюзанна)(   Читать дальше...   )Жанр: PopПродолжительность: 05:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05C797D077D4DE9B3B45800FA43C5C3D59361CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

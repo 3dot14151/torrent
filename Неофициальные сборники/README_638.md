@@ -1,3 +1,213 @@
+###  Публикация: 478466   (98811) от 07.04.2012
+
+Various Artists - Tranceffect 13 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Se.Ra.Phi (2007)- After The Last Breath (Se.Ra.Phics Epic Version)
+ 02. Stuart Trainer-Surrender (Original Mix)
+ 03. Rene Ablaze & Tonerush-Sulaco ({am} Extended Mix)
+ 04. Endre (2004)-Kallocain (Robert Nickson Remix)
+ 05. Dorius-One Day In Tuva (Original Mix)
+ 06.  Aly & Fila-200 (Fsoe 200 Anthem) (Original Mix)
+ 07. Max Braiman-Origins (Amir Farhoodi Remix)
+ 08. Lisko-End Of Summer (Peter Plaznik & Tech Trek Remix)
+ 09.  Subimpact-End Of An Age (Vahab Bandari Remix)
+ 10.  Subimpact-Rockin (Original Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278C968CC144B35FC3880994D48753F76201A5A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478753   (98774) от 06.04.2012
+
+VA - Big City Trance Volume 24 (05.04.2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Squarz Kamel - Crystal (Original Mix)
+ 02. DJ Mikas & DJ Sage - Shaken Not Stirred (Original Mix)
+ 03. Dave Horne - Light & Dark (Original Mix)
+ 04. Artento Divini - Adhd (Original Mix)
+ 05. Des McMahon - Raven (Original Mix)
+ 06. Avion - Brilliant (Original Mix)
+ 07. David Forbes - Yasai (Original Mix)
+ 08. Euphoric Feel - Trip To India (Original Mix)
+ 09. Erick Strong - Stars
+ 10. Dart Rayne - Luminescence (Original Mix)(   Читать дальше...   )05.04.2012Жанр: TranceПродолжительность: 02:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B22E36ECBE23FDE758940862B66E6CC315129EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478831   (98768) от 06.04.2012
+
+VA - The Chillout Lounge (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rio Sound System - Over & Over
+02 Rafael Lopez - Gypsy Drums
+03 Court Out - My World (feat Mary Lee - d&b mix)
+04 Smokey Tone - Luna Generosa
+05 Losing Genius - Changing World
+06 Uru Mystic Quartet - After Hours
+07 Diego Clamente - Glimpse Of Home
+08 Iboshim Sounds - Sunset On The Water
+09 Brothers Moreno - Time Tracking
+10 Modern Science - Sax Control(   Читать дальше...   )2012Жанр: Chillout | Downtempo | LoungeПродолжительность: 04:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F60EFD72478EA1DA5C8ACB5CE11196392E059F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478825   (98751) от 06.04.2012
+
+VA - April Club Party (2012) [MP3|160-320 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98751.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. El Ray - Безлимитная любовь (Dj Denis Rublev & Dj Natasha Baccardi remix) (6:19)
+2. Леона Аврелина & Shaplin - Цунами (3:38)
+3. Vlad Bostan (Darwin) feat D.I.P Project - А Кто Я Для Тебя (DJ Vit Remiх) (4:09)
+4. Ilya Voice - Солнце Моё (Stereo People Radio Mix) (4:27)
+5. David Tort & Norman Doray - Chase The Sun (Original Mix) (3:46)
+6. Инфинити - Ты мой герой (club remix) (3:45)
+7. Смысловые Галлюцинации - Вечно молодой (Nejtrino radio mix) (4:03)
+8. Junior Caldera feat. Billy Bryan - What You Get (Original Radio Mix) (3:08)
+9. Alexey Romeo feat. JWell - Расправь Мои Крылья (Extented Mix) (6:40)
+10. Javi Reina & Syntheticsax - Oig (DJ V1t & Fast Food remix) (5:17)2012Жанр: ClubПродолжительность: 08:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9B00BAE462A7DD1D419DCEB184E188B9652500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478489   (98736) от 05.04.2012
+
+VA - Продвинутый Модный Хит DFm (2012) [MP3|256 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98736.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Школа Танцев Хардбаса - Sex, Квас, Хардбас
+002 Golden Crew feat. Icandy - Sexyfied
+003 Чиж & Co - Прекрасное воскресение (Dj Viduta remix)
+004 Plumbers feat. Desy Lady - I don't want you back (Simon From Deep Divas edit)
+005 Тутси - Сама По Себе (Tarasov & Alexey Frolove Remix 2011)
+006 Simon From Deep Divas feat. Goody - Disco dancer
+007 Гости Из Будущего - Мой Baby (Ruslan Maiamix Remix)
+008 Rodriguez - Out in space
+009 Muradiks feat. Bahtiyar - Мы Едем В Лето
+010 Alessandro Viale feat. Vaanya Diva - Goes deeper (Morris Corti mix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA2C97042F34B0339BA3C2812D84D39C56DA1EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477982   (98732) от 05.04.2012
+
+VA - Русская Дискотека Best-of-ka (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. DJ Грув vs Мираж - Наступает Ночь (4:13)
+2. Quest Pistols - Ты Была Светом (3:14)
+3. Света - Не Новая Игра (3:29)
+4. Братья Грим - Парашюты (3:48)
+5. П. Гагарина - Спектакль Окончен (4:00)
+6. Иракли - Ты Одна (3:19)
+7. Дискотека Авария, Джиган (Geegun) И В. Крутая - Карнавал (3:43)
+8. Елка - Около Тебя (3:42)
+9. Е. Польна - Je Taime (Я Тебя Тоже Нет) (Fresh Tunes Radio Edit) (3:52)
+10. Aslan feat. Misty - Знаю, Знаю (3:27)2012Жанр: PopПродолжительность: 06:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C21E0D5D26C27C9CF004498935B802F19AD9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478246   (98724) от 05.04.2012
 
 VA - Лучшие сливки муз-весны (2012) [MP3|256 кб/с]<Pop>
@@ -691,216 +901,6 @@ VA - MAXI. Новое на MTV (2012) [MP3|256-320 kbps]<Pop | Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98D354E83DDF096CA56B545BD5EA8FDECEF49A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476941   (98453) от 02.04.2012
-
-VA - Союз Хитовый Часть 2 (2012) [MP3|256-320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98453.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 ВИА Гра - Алло, мам!
-002 Валерий Меладзе - Потерян И Не Найден
-003 Елка - Около тебя
-004 Алина Гросу - Взрослая
-005 Время и Стекло - Гармошка
-006 Дмитрий Колдун - Ничего
-007 Анна Седокова - Такси
-008 Юрий Шатунов - Отпусти меня
-009 Любэ, Корни и In2nation - Просто любовь
-010 Елена Ваенга и Александр Малинин - Две души(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7690A806B9F7298E2331651FBB6AC22894DA04F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476885   (98407) от 02.04.2012
-
-VA - Энергетик Бум!!! Зарубежный (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adonx - Party's On (Radio Version)
-02. Play Win - See The Light (Radio Edit)
-03. Maxigroove - Alone
-04. Sahara - I Wonder Why (Piano) (Radio Edit)
-05. Dj Anastasia - Shake It
-06. Radio Killer - You And Me (Radio Edit)
-07. Bros Project - Ecstasy (Radio Edit)
-08. Tom Reason - Replay
-09. Funk3d - What A Feeling 2012 (Radio Edit)
-10. Shaun Baker Feat. Carlprit - Love Music (Radio Edit)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B73F685B3A1476CB12822E341066C13D326C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476588   (98353) от 01.04.2012
-
-VA - Mega Dance Spring 2012 Top 100 (2012) [MP3|217-281 kbps]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98353.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Studio Killers - Ode To The Bouncer (Radio Edit)
-002. Tiesto - Maximal Crazy (Video Edit)
-003. Bingo Players ft Heather Bright - Don't Blame The Party (Mode) (Radio Edit)
-004. Ian Carey & Rosette ftTimbaland & Brasco - Amnesia (Radio Edit)
-005. R.I.O. ft U-Jean - Turn This Club Around (Video Edit)
-006. Firebeatz - Funky Shit (Original Edit)
-007. Hardwell - Cobra
-008. Ferry Corsten vs Armin Van Buuren - Brute
-009. Bob Sinclar ft Pitbull, Dragonfly & Fatman Scoop - Rock The Boat (Radio Edit)
-010. Pitbull ft Chris Brown - International Love(   Читать дальше...   )2012Жанр: DanceПродолжительность: 05:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1CB4C6C4C960DD433408FA06D8797DD03BF6DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476706   (98321) от 01.04.2012
-
-VA - Head Over Dancing (27.03.2012) [MP3|~200-320 кб/с]<Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricky Rinaldi Feat. Susan Blake - Hypocrisy (Demolition House Mix) 05:59
-02. Daniel Bob - Panther 05:35
-03. Coldbeat - Evil Toy Box (Slam Da Toy Mix) 05:29
-04. Dr Kucho & Zenbi - Echale Candela (Dj Kone & Marc Palacios Remix) 06:36
-05. Ron Hall & Thommy Davis - Fugue in Baltimore (Original Mix) 06:34
-06. MR Fire Feat Big Diddo - I Need More Music (Radio Edit) 03:18
-07. Jay Marks - Oh Baby (Joe Pompeo Remix) 06:09
-08. Francesco Tarantini - Cantor (Original Mix) 08:41
-09. J Paul Getto - Booty (Original Mix) Inhouse 05:10
-10. The Wisemen Feat. Johan Greaves - Stay the Same (Shoe Print Instrumental) 08:42(   Читать дальше...   )27.03.2012Жанр: Dance, HouseПродолжительность: 03:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3878ED0CF877911E9E251B176EC2E43FB0C81170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476572   (98317) от 01.04.2012
-
-VA - Klubnye novinki Vol.58 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulsar - I Wish You All Happiness
-02. Feu d'Or - Chasin Joe (Original Mix)
-03. Electric Rescue - Helice (Original Mix)
-04. idenline - You & Me (Original Mix)
-05. ESC - Oceans (Original Mix)
-06. Marcos - Hypnotic (Original Mix)
-07. DJ Feel feat. Loona - I'll Find Myself (Mike Danis Remix)
-08. Rihanna - Where Have You Been (Cosmic Dawn Club Mix)
-09. Rank 1 & Jochen Miller feat. Sarah Bettens - Wild & Perfect Day (Cosmic Gate Remix)
-10. Da Fresh & Andrea Roma - No Sun (Original Club Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5769EB2853CDDDDF3FB6A2BF514D55C9587F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476788   (98308) от 01.04.2012
-
-VA - Avto Club April (2012) [MP3|320 kbps]<Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Coverage Feat. Rameez - Think About The Way (Extended Mix)
-02. Jaycee Madoxx - Never Say Never (Marc Korn Hands Up Radio Mix)
-03. Hands Up Squad - Alice In Wonderland 2k12 (Hardmaster Remix Edit)
-04. Topmodelz - Two Princes (Paramond Edit)
-05. Bodybangers Feat. Carlprit & Linda Teodosiu - One More Time (Tujamo Remix Edit)
-06. Junior Caldera feat. Billy Bryan - What You Get (Original Radio Mix)
-07. Horn E. - Balando Cachonda (I Wanna Fuck)
-08. Flo Rida - Good Feeling (DJ Kapuzen & DJ Spaty Radio mix)
-09. Eagles - Hotel California (Ivan Flash Remix)
-10. Ferry Corsten And Armin Van Buuren - Brute (Radio Edit)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E780DD63FE456BA4EDFD24C2D450FA062CDE79D
 ```
 
 https://mybot314.ru/tekegram_catalog/

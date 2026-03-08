@@ -1,3 +1,174 @@
+###  Публикация: 1029689   (678471) от 28.06.2016
+
+VA - Club Dance Ambience vol.75 (2016) [MP3|320 Kbps] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678471.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daniel Moss & Gandalf Bosch Feat. Francy -  Mi Alma (Instrumental Edit) 3:17
+002. KSHMR & Felix Snow feat. Madi -  Touch (Runway Remix) 4:56
+003. Hardwell feat. W&W -  Jumper (Madd Dave Bootleg) 4:53
+004. Robin Schulz feat. Akon -  Heatwave (Muzzaik Remix) 4:17(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511301DAC97601D4003016B1BE0F9AA95330C9A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029687   (678467) от 28.06.2016
+
+DJ Nurlanus - Summer Dance Mix 5 (2016) [MP3|320 Kbps] <House, Dance Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678467.jpg" />
+</div>
+
+
+###  Подробнее
+
+СборникЖанр: House, Dance PopПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B058F1D4B5B34E4829C0C5548AF403127C650D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290489   (678371) от 20.03.2019
+
+VA - YR Best Chillout Vol.41 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Seven24 & Soty feat. Maria Opale - Don't You Cry (Alexander Volosnikov Remix) 4:59
+002. Rank1 - Airwave (Vyacheslav Sketch Remix) 5:49
+003. Aurosonic feat. Katty Heath - My Good Place (Mark Otten Downtempo Remix) 7:00
+004. Vyacheslav Sketch - Forever (Original Mix) 4:13(   Читать дальше...   )Жанр: Chillout, Downtempo, Lounge, Trap, Ambient, ElectronicaПродолжительность: 06:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6A4554FA17F21009B4D923ACD1D50B80B35322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290484   (678357) от 20.03.2019
+
+VA - YR Best Chillout Vol.40 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Balearic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678357.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. SolarFlow - My Blue Sea (Original Mix) 3:56
+002. Jonathan Mendelsohn feat. Jason Ross & Seven Lions - Ocean (Grant Remix) 3:30
+003. Nastya Kazantseva - Nice Dream (Original Mix) 3:11
+004. Алла Пугачёва - Журавлик (Lasteden Chillout Remix) 3:47(   Читать дальше...   )Жанр: Downtempo, Chillout, Balearic, Lounge, ElectronicaПродолжительность: 06:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538C6FD64BFB4DF8195239F6E980CCBA66B51FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290431   (678355) от 20.03.2019
+
+VA - Inferno Techno Electronics (2019) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678355.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joеl Jungеll -Astrаl
+002. Asс -Stаsis
+003. Hаrd Drivеr -Thаnk Mе Lаtеr (Extеndеd Mix)
+004. Boston 168 -Psу Wаvеs(   Читать дальше...   )Жанр: TechnoПродолжительность: 11 :42 :13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4833D0324BA5A1AE17BC9F4B55C310C96E487CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029654   (678332) от 28.06.2016
+
+VA - Best Body 2016 - Tribute to Pop Hits (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coldplay - A Sky Full of Stars (Hardwell Remix)
+02. Charli XCX - Break the Rules (Tiesto Remix)
+03. Melanie Martinez - Carousel (SNBRN Remix)
+04. Clean Bandit - Rather Be (feat. Jess Glynne)Жанр: PopПродолжительность: 03:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D63C037FA2A03647225EC52BE1F397097B4EAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029883   (678329) от 28.06.2016
 
 VA - Diskoteka Club Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <Dance>
@@ -589,180 +760,6 @@ VA - Deep Without Speed Vol.1 (Relaxed Deep House Tunes) (2016) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9876E78BAD20F37915305615B1AE7479FEBA0FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029925   (676786) от 29.06.2016
-
-VA - European EDM Set July (2016) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676786.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arsonnic - Poet (Original Mix)
-002. Turbotronic - Hot Body (Original Mix)
-003. Clubhunter - Me & You (Turbotronic Mix)
-004. Zimrah - Live Without You (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 09:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAFB599EDB91ACFF6B2E65485C64C0E0BB43136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136038   (676731) от 21.05.2017
-
-VA - Absolute Hits Of The 80’s (2017) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natalie Cole - Miss You Like Crazy
-02. The Smiths - Heaven Knows I'm Miserable Now
-03. Peter Cetera - Glory Of Love
-04. Los Lobos - We Belong Together(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE17ED2437548E668FDBCB481E163E9B1DC9ED90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030009   (676673) от 29.06.2016
-
-VA - Everlasting Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manius Joan Eta - Jazz Fisa
-02. New Days - The Spirits Return
-03. Right Present - Woman In Love
-04. Jean Dupont - Avenue(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A77F2442229BB17AA9D4876AE8E94423F07708A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030020   (676670) от 29.06.2016
-
-VA - Record Super Charts 442 (2016) [MP3|320 Kbps] <House, Electro House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Junior Jack -  E Samba 2016 (Freejak Remix) 5:17
-02. KSHMR & Sidnie Tipton -  Wild Card 4:21
-03. DBSTF -  Afreaka 4:01
-04. Blasterjaxx -  The Silmarillia 4:48(   Читать дальше...   )Жанр: House, Electro House, Club HouseПродолжительность: 02:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352E8CA5323D66EA90D9A93E0063736BEEF8D4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030119   (676663) от 29.06.2016
-
-VA - Зарубежная Дискотека ХХ Века - 26 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Chroma Band - A New Day ( 1986 )
-02. 2 Eivissa - Open Your Eyes ( 1998 )
-03. Silent Circle - Oh, Don't Lose Your Heart Tonight ( Maxi Version 1987 )
-04. Alexis - Somebody Tonight ( Extended Mix 1991 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E7A9D10A7BCCEF2EECF9C1AE08E23B8EB829C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136228   (676617) от 21.05.2017
-
-VA - Back In Disco vol.2 (2017) [MP3|320 Kbps] <Electronic, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink Project - Der Da Da Da (5:46)
-02. Arpeggio - Runaway (5:46)
-03. Claudja Barry - (Boogie Woogie) Dancin' Shoes (5:01)
-04. Laser - His Name Is Charlie (4:13)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 05:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD78800BD237173DF819590EBC66B1FE9957C8BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,96 @@
+###  Публикация: 668832   (723898) от 15.06.2013
+
+Gorefest - Soul Survivor (1996) [FLAC|Lossless]<Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_723898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom (04:32)
+02. Forty Shades (04:17)
+03. River (04:35)
+04. Electric Poet (04:21)
+05. Soul Survivor (04:30)
+06. Blood Is Thick (03:43)
+07. Dog Day (02:54)
+08. Demon Seed (03:47)
+09. Chameleon (02:46)
+10. Dragon Man (09:14)Жанр: Death MetalПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217899   (723294) от 09.04.2018
+
+Alcyona - Trailblazer (2018) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enchantment
+02. Dreamroad
+03. The Kingdom of Might
+04. Sacred Fire(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8755A020BA58B43120A251805B25054322F4836C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400049   (723165) от 03.08.2020
+
+Skyclad - Oui Avant-garde A Chance (1996) [FLAC|Lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Die Laughing, It'll Be An Act Of God (03:48)
+02. Great Blow For A Day Job (04:20)
+03. Constance Eternal (05:53)
+04. Postcard From Planet Earth (05:11)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB5275A115D9860CADF2C575A55305F4D4D2917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400040   (723158) от 03.08.2020
 
 Septicflesh - Communion (2008) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -676,93 +769,6 @@ CD1 - Synchro Anarchy:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0F3CEED822E46BCA2C0A904D6DC06F0E0A303AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531728   (720413) от 16.02.2022
-
-Amorphis - Halo (2022) [FLAC|Lossless|image + .cue] <Progressive, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Northwards
-02. On The Dark Waters
-03. The Moon
-04. Windmane(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8733499EA9A02439B15B8EB7EDF5A11E9A2967F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218741   (719645) от 11.04.2018
-
-Hakenkreuz Nocturna - Eternal Introspective Winter (2006) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Dawn 10:36
-02. November Sky 08:23
-03. Dying For Ever 08:34
-04. L'Ultimo Giorno 04:42(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5766B128A7C034A1E4968250EBD3ED6D6321AB28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218751   (719644) от 11.04.2018
-
-Drowning The Light - 2 альбома (2007 - 2009) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So far from Home 01:07
-02. Night of neverending Turmoil 05:49
-03. Chamber of lost Hope 04:13
-04. Lunar Reflection in Blood (Vampyres of the Old) 03:48(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5755736D9C4295B3C87BAD68299BB050DA1953
 ```
 
 https://mybot314.ru/tekegram_catalog/

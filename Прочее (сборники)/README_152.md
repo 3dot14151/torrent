@@ -1,3 +1,119 @@
+###  Публикация: 1270322   (214341) от 18.12.2018
+
+VA - Club 2019-Hottest New Tracks (2018) [MP3|320 Kbps] <House, Handsup, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Parker feat. Elaine Winter - Dancing on My Own (Radio Version)
+02. Housefly - Be with You (Markus D'Ambrosi Remix)
+03. Felicia Uwaje - Strike It Up (Chris Excess Remix)
+04. G-Lati and Mellons feat. Damian Pipes - Hero (Adam Brown and Armand Van Henegouwen Mix)(   Читать дальше...   )Жанр: House, Handsup, DanceПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AFA24E2BDF071FA8807F2116C477F346827E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194090   (214054) от 23.12.2017
+
+VA - Евро Хит Топ 40 Europa Plus 23.12 (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Post Malone feat. 21 Savage  -  Rockstar  3:38
+02.  Merk & Kremont  -  Sad Story (Out Of Luck)  3:32
+03.  Zayn Malik feat. Sia  -  Dusk Till Dawn  3:59
+04.  Imagine Dragons  -  Whatever It Takes  3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:125A519CCEADDA91F7598B34292721EC4C511D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270306   (214030) от 18.12.2018
+
+VA - Самые скачиваемые треки ВКонтакте Зима 7 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214030.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тима Белорусских - Мокрые кроссы (Lapin & Dzoz Radio Edit) 3:44
+002. Dynoro & Gigi D'Agostino - In My Mind (G-Love & Igor Frank RMX) 4:34
+003. Леша Свик - Малиновый свет (Mikis Remix) 3:41
+004. Сергей Лазарев - Пьяным, чем обманутым 3:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65DDE487899CFBF4638EF3423815CE0A25529CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514796   (213910) от 05.12.2021
+
+VA - Hardstyle Classic Night (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хардстайл - это настоящий рай для ушей. Мелодично, эпатажно, быстро, безумно, красиво и тяжело, ведь не каждый может выдержать напор ритма в 150 ударов. Но тем не менее, поклонников этого жанра меньше не становиться. С того момента, как в 2000-х в результате экспериментов, возник этот стиль ряды фанатов этой музыки только множатся.001. Angerfist - Face My Style
+002. Benaddikt - Nothing Can Ruin Us
+003. Creeds - Le Piano
+004. Calvin Clark - Frostbite(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 07:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D963133D92EA1183E9D64ABC457B3AA4F23194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344093   (213758) от 09.12.2019
 
 VA - The Official UK Top 40 Singles Chart 06.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ VA - Music News vol.275 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:342DC035F714D482B79BD65315A194268919BF53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641994   (210509) от 25.06.2023
-
-VA - Music News vol.274 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arch Enemy - No Gods, No Masters (04:15)
- 002. 2xA - Drunk (01:51)
- 003. 3333 - До Скорого (02:37)
- 004. AKBOYS - Поздравительная (03:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D27696F441F1FB9AFA5AB358AA499018026BB71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012901   (210126) от 01.07.2023
-
-VA - Nu Disco Vol.1 [Compiled by Zebyte] (2016) [MP3|320 кб/с] <Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything But The Girl - Missing (Kataa Remix) [06:27]
-02. Galantis - Runaway (Dave Brevi Remix) [05:51]
-03. Kaiserdisco - Night & Day [06:42]
-04. Glenn Dale - I Want U [05:51](   Читать дальше...   )Жанр: Nu DiscoПродолжительность: 02:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E4173C1CC5FA44E09670E7C451777EA8A965A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018826   (210047) от 01.07.2023
-
-VA - Nu Disco Vol.2 [Compiled by Zebyte] (2016) [MP3|320 кб/с] <Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madonna - Revolver (Maxim Andreev Mix) [05:52]
-02. Sasha Primitive - Love Me [06:52]
-03. Parajoe & Parajack - Rollercoaster (Toly Braun Remix) [05:53]
-04. Tanita Tikaram - Twist In My Sobriety (Maxim Andreev Mix) [04:29](   Читать дальше...   )Жанр: Nu DiscoПродолжительность: 03:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF652AF7E40DB1882106B92DE3E43A29FA182F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604478   (209989) от 14.01.2023
-
-VA - Дискотека 2023 Dance Club Vol. 214 от NNNB (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209989.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. KENSHI - Don't Let Me Down (2:52)
-002. Armin van Buuren & Davina Michelle - Hold On (Extended Club Mix) (6:14)
-003. TRITICUM - Champagne On Ice (2:09)
-004. Ragunde - Dizzee (2:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3412940D3429BDF38D1508C7EA468E08E14437
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1481170   (1008481) от 02.07.2021
-
-Noisy Diners - The Princess Of The Allen Keys (The History Of Manto) (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiresias (12:10)
-02. Manto And Tibrys (11:14)
-03. Duel Pt. 1 (06:05)
-04. Duel Pt. 2 (05:03)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59AD3B436C248012E30DC9B6A00F152F8C426810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481155   (1008477) от 02.07.2021
 
 Dream Troll - Realm of the Tormentor (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -747,6 +718,35 @@ Lost In Grey - Under the Surface (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68C1E5AC403798664977B41BE45BB39EE41D281F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481662   (1008038) от 05.07.2021
+
+Lind - A Hundred Years: The Justification Of Reality. Part I (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do I Really Notice (11:44)
+02. A Hundred Years (09:25)
+03. Strange Waters (09:12)
+04. Invisible Tears (09:09)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63651F06F8F13D6362550E83CD82DB0A0370882
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1290662   (676200) от 21.03.2019
+
+VA - Eurodance Club Vol. 1 (Back2Basic) (2017) Compilation [MP3|320 Kbps] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GTS Project - Disco (Radio Edit) (3:39)
+02. Lyane Leigh - Sexy Boy (S.E.X. Appeal Radio Edit) (3:31)
+03. A.Voltage feat. Elaine Winter - Try to Find (Radio Edit) (2:59)
+04. Michael Marin - Tonight (Radio Edit) (3:09)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D126CD19B09E7AED103C29656D2DD165CCB6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030005   (676104) от 29.06.2016
+
+Ирина Аллегрова - Grand Collection (2002) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "День рождения "
+02. "Угонщица  "
+03. "Мой ласковый и нежный зверь  "
+04. "Младший лейтенант  "(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD5810EB6207EDD50ACD537D3DCB055E1D1D476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290509   (675955) от 21.03.2019
 
 Dschinghis Khan - Dschinghis Khan (1979) [FLAC|Lossless|image + .cue] <Disco>
@@ -691,64 +749,6 @@ Georges Rodi - Space (1979) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F572E6536A8748BC088951B27F8322C33E81F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291054   (672320) от 23.03.2019
-
-Cappuccino - Cappuccino (1979) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell Dance With Me (6:01)
-02. San Francisco (5:18)
-03. Lucky Woman (5:54)
-04. Tomorrow (5:05)(   Читать дальше...   )Жанр: Electronic, Funk, DiscoПродолжительность: 00:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA048B8D9984BF5F69A1986F15F4A2C7F9750648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030684   (672294) от 01.07.2016
-
-VA - In The Loving Memory Of Diana, Princess Of Wales (1997) Unofficial Release [APE|Lossless|image + .cue] <Pop, Funk, Soul, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John - Candle In The Wind
-02. George Michael - You Have Been Loved
-03. Lisa Stansfield - Don't Cry For Me
-04. Seal - Kiss From A Rose(   Читать дальше...   )Продолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA8E0A187AA85849F6C23E1B126C9C873DC27C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

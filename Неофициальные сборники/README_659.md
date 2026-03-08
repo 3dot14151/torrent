@@ -1,3 +1,177 @@
+###  Публикация: 1729917   (53461) от 13.06.2024
+
+VA - Music News vol.388 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53461.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Елена Шевченко - Кружится Голова (03:22)
+ 002. 52Ghz - Караван (01:53)
+ 003. Afaway - Снова (02:46)
+ 004. Aloe Blacc - Seven Nation Army (03:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBBA265CFCABCF4761C5019F5059161C9A10CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730116   (53351) от 14.06.2024
+
+VA - Music News vol.389 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53351.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Xristiana - Чувства (03:33)
+ 002. ADDA - Valuri (02:54)
+ 003. Alex Velea - Pierde Vara (02:56)
+ 004. Alexander Popov feat. Rompasso & Aris - Stockholm Syndrome (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6D44334D572E084AFD2ADC5E043DB89D5FCE5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730344   (53280) от 15.06.2024
+
+VA - То, что доктор прописал Remix NNM (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53280.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sting & Cheb Mami - Desert Rose (Dj Faraon Bootleg VIP) (Radio Edit) (6:21)
+002. DJ Allan x Queen x Quintino & Curbi Vs. - We Will Rock You Vs. People Are Strange (6:21)
+003. Alex Gaudino Vs. Digital Koala - Destination Calabria Vs. Bass Boss (VLLV MashUp) (6:04)
+004. HammAli & Navai - А если это любовь (DJ BARKAS & DJ GARRI REMIX) (5:54)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A884571B8D16D9A81B09693F33704EB459B9D19E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730437   (53125) от 16.06.2024
+
+VA - Electronic compilation part 87 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Menda - Believe
+02. Kasimoff - Cold Without You
+03. Afrasiab - Don't Let Go
+04. Hamidshax - Drama(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3434CF92291D8D7BD18E25523365FFB011669333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729422   (53093) от 16.06.2024
+
+VA - Hammond Organ Jazz&Blues (2024) [MP3|320 Kbps] <Hammond, Blues, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Blue Organ Trio - Tell Me Something Good [06:57]
+02. Patrick Saussois, Rhoda Scott - Walk On By [05:26]
+03. Jimmy Smith - The Cat [03:24]
+04. Booker T. & the M.G.'s - Green Onions [02:55](   Читать дальше...   )Жанр: Hammond, Blues, JazzПродолжительность: 09:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E30689C4119C0E34DE1A2F5A2B1CDB492BF67F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729622   (53003) от 17.06.2024
+
+VA - Elegant Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Delight - Blues Delight [04:51]
+02. Jonah Carden - Midnight Blue [05:15]
+03. JT Coldfire - I'm the Best Thing You Ever Had [03:53]
+04. Koko Taylor - Money Is The Name Of The Game [06:48](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 08:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CDD803FCEA1824C9C109DC66B8FEBB45478E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730846   (52902) от 18.06.2024
 
 VA - Easy Lounge & Chill Music (2024) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
@@ -568,180 +742,6 @@ VA - compilation part 93 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8ABC6CB8E6717A30112819C17E725F1EFF5C281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734340   (51166) от 03.07.2024
-
-VA - Bossa nova Lounge (2024) 2CD [MP3|320 Kbps] <Bosa Nova, Chillout, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51166.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bossa Nova Covers, Mats & My - Dance Monkey [03:29]
-002. Lua Blanco - A Thousand Miles (Bossa Version) [03:42]
-003. Marcela Mangabeira - With Or Without You (Bossa Version) [03:33]
-004. Sixth Finger, Dew - Patience (Cool Wave Mix) [05:12](   Читать дальше...   )Жанр: Bosa Nova, Chillout, ElectronicПродолжительность: 12:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4265B1B86B56A1ED8FD4B6767E49605B3ACBFB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734700   (51103) от 04.07.2024
-
-VA - Dance Party 2! (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51103.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. War - Low Rider - Kyle Watson Remix (5:27)
-002. Tom Santa - Rainfall (Praise You) (4:46)
-003. cassö - Prada (2:12)
-004. Tiësto - Rule The World (Everybody) (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C97C0304B92528FEC0BA5D66D896CBDDB1F0DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734926   (50968) от 05.07.2024
-
-VA - Music News vol.394 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50968.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. IRINA ZORINA - Под Кожей (03:40)
- 002. A.V.G - Биг Сити Лайф (01:44)
- 003. A.V.G - Интроверт (02:13)
- 004. A.V.G - Ловлю (02:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC2DBBB1A0A12FE7677B73577F38F0494908E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618916   (50892) от 06.07.2024
-
-VA - TOP Non-Stop - Deep House. Part 2 (2000-2009) [MP3|192-320 Kbps] <Deep House, Progressive House, Techno House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schmoov! - Keep on Bumpin (2001) (5:13)
-02. Stephane Attias - Daydreaming (2002) (3:51)
-03. Lance DeSardi - 510 Blues (2000) (3:53)
-04. Linus Loves - Body & Soul (2002) (3:59)(   Читать дальше...   )Жанр: Deep House, Progressive House, Techno HouseПродолжительность: 09:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED162506217CC29B42FB7835C8E8F8F58A0CB95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735026   (50891) от 06.07.2024
-
-VA - РАДИО БАТЯ - 017 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. МГК - Мне нужен ты (03:54)
-02. MATRANG - Заманчивая (03:36)
-03. Владимир Пресняков - Ты у меня одна (03:46)
-04. Sting - Mad About You (03:54)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEE3747BE88CBBEB15464E5C99C4837C104D683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735092   (50867) от 06.07.2024
-
-VA - Music News vol.395 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50867.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jax - Victoria's Secret (02:56)
- 002. 140 Ударов В Минуту - Листья (03:19)
- 003. 140 Ударов В Минуту - Ночной Экспресс (03:59)
- 004. 140 Ударов В Минуту - Пампушка (03:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FE2BB5F014D4826586E44DB2B3618F2F09BB86
 ```
 
 https://mybot314.ru/tekegram_catalog/

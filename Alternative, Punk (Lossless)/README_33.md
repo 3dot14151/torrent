@@ -1,3 +1,32 @@
+###  Публикация: 1314653   (518258) от 15.07.2019
+
+311 - Voyager (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Reggae Rock, Rap Rock, Funk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossfire (02:41)
+02. Don't You Worry (03:38)
+03. Stainless (03:50)
+04. Space and Time (03:34)(   Читать дальше...   )Жанр: Alternative Rock, Reggae Rock, Rap Rock, Funk MetalПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC396414DC6D84D488904A364EA258E30AFEF93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560798   (517807) от 02.07.2022
 
 Overthrone - The Path of Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore, Post-Hardcore>
@@ -715,35 +744,6 @@ Biffy Clyro - Ellipsis (2016) Japan [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B36374E337DE0402B7BE5FA6C2EE172B14AB21D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562605   (508075) от 10.07.2022
-
-Виагра Boys - Welfare Jazz (2021) [FLAC|Lossless|tracks + .cue] <Post-Punk, Art Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ain't Nice (00:03:32)
-02 - Cold Play (00:00:31)
-03 - Toad (00:03:35)
-04 - This Old Dog (00:00:37)(   Читать дальше...   )Жанр: Post-Punk, Art PunkПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348A9F3A50A66D00B7684467A573B3776EC49714
 ```
 
 https://mybot314.ru/tekegram_catalog/

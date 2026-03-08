@@ -1,3 +1,32 @@
+###  Публикация: 1569309   (447088) от 15.08.2022
+
+Enigma - The Cross Of Changes (1993) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Chapter	2:16
+02. The Eyes Of Truth	7:13
+03. Return To Innocence	4:17
+04. I Love You ... I'll Kill You	8:51(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADC6E3243D8BA9A1B77DE83CA366CAC48B309A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 154434   (446680) от 16.09.2020
 
 James Last - 16 альбомов (1987 – 2019) [FLAC|Lossless|image, track + .cue] <Jazz, Pop, Folk, World & Country>
@@ -735,32 +764,6 @@ Benjamin Wallfisch - It / Оно (Original Motion Picture Soundtrack) (2017) [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:190FDEE1ED9B9FF48B78CD119D29B3CD6F4F9171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552064   (438645) от 30.09.2012
-
-VA - The Best Of Native Indians (2CD) (1999) [MP3|320 кб/с]<Native American Ethno, Powwow, Round Dance, Tribal Voice, Drums>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Native American Ethno, Powwow, Round Dance, Tribal Voice, DrumsПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A2D7FB14F2C40D7BBE0DE28428F20D7DA85427
 ```
 
 https://mybot314.ru/tekegram_catalog/

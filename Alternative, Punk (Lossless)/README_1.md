@@ -1,3 +1,32 @@
+###  Публикация: 1618453   (1034167) от 11.03.2023
+
+Blue October - Approaching Normal (2009) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weight of the World
+02. Say It
+03. Dirt Room
+04. Been Down(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4005FDE9684C1E189D08783ED7E4E59B5E5781BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446083   (1033051) от 08.02.2021
 
 Sacha Korn - Nokout (2009) [FLAC|Lossless|image + .cue] <Alternative Rock>
@@ -716,35 +745,6 @@ The Cranberries - ирландская рок-группа, образованн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAA699A9081C4EB2DDF1942D9CBC79BE10715223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460459   (1022600) от 05.04.2021
-
-Guano Apes - Proud Like A God (1997) Reissue, 1998, Supersonic Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Your Eyes (3:08)
-02. Maria (3:45)
-03. Rain (4:35)
-04. Lords of the Boards (3:42)(   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74220C8D8CF1DCF0BAC649441464828113332CC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

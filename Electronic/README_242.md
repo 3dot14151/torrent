@@ -1,3 +1,61 @@
+###  Публикация: 1299258   (599897) от 01.05.2019
+
+Orbital ‎ - Orbital 2 (1993) [FLAC|Lossless|tracks + .cue] <Trance, Techno>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Becomes (01:44)
+02. Planet Of The Shapes (09:36)
+03. Lush 3-1 (05:40)
+04. Lush 3-2 (04:41)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73328B8BDE0C0E16493E608B0EA7B48986A0B84B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039041   (599523) от 30.07.2016
+
+Richard Clayderman - Plays the Songs of Love (2003) [FLAC|Lossless|image + .cue] <Easy Listening, Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have I Told You Lately That I Love You 03:28
+02. Just The Way You Are [0:03:34.60]
+03. Something About The Way You Look Tonight 03:27
+04. When A Man Loves A Woman 02:55(   Читать дальше...   )Жанр: Easy Listening, ClassicalПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C9CF0F7C5CA3B7B773C04DE3C21494239E5E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299354   (599421) от 01.05.2019
 
 Dreaming Cooper - Exploring the Universe (2019) Altar Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient, Progressive Trance, Psy-Trance>
@@ -690,64 +748,6 @@ VA - Paris La Nuit - Chillin Lounge Selection Vol 2 (2015) [MP3|320 кб/с]<Eas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1510D85BC572678CCF66C17B8B9C789DC8058CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914785   (596505) от 03.07.2015
-
-VA - Sunset Chill Lounge Lush Tropical Laid Back Chillout Selection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fairlight - Moments in Love - DJ Ravel Chill Version [06:18]
-02. Far Out - Sunset Swim [04:19]
-03. Nikolas Miyakis - Melrose Avenue [05:08]
-04. Liam Van Dyke - Cafe Del Mar - Balearic Lounge Remix [04:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4FA15FC07043630E7180E51D71FB998100081F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232822   (596480) от 26.06.2018
-
-VA - Active Agent Of Sound (2007) Klangwirkstoff Records [FLAC|Lossless|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toshra - Venera (08:15)
- 02. Mirror System - Flex-E-Fun (07:26)
- 03. Motom - Aum (09:20)
- 04. Brain Entertainment Laboratory - Solardrifting (13:01)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 02:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D28B1A5C149385770D937B555DA8F21B788EC08
 ```
 
 https://mybot314.ru/tekegram_catalog/

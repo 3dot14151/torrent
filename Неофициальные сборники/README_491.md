@@ -1,3 +1,189 @@
+###  Публикация: 581288   (341107) от 26.11.2012
+
+VA - Клубные Новинки Vol.185 (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eve Justine, Alexander Xendzov - Breath (Vocal Mix)
+02. Jaco - Club Nasty (Original Mix)
+03. JPL & Jason Van Wyk feat. Cat Martin - Safe (P.H.A.T.T. Remix)
+04. Arkadi - The Box (Original Mix)
+05. Inception - Extracted (Original Mix)
+06. A. Skomoroh - Everything's Become Usual (Original Mix)
+07. DJ Aligator - So Far From Home
+08. Bionix vs DSP - Revolution (Original Mix)
+09. Alex M.O.R.P.H. - Sun Of Ilena (Original Mix)
+10. Coppacabanixx - Absinto (Original Club Mix)Жанр: Club, DanceПродолжительность: 04:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FDF8C3C12AFA851C6605C91B36FF2C1B2E3FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257848   (341073) от 28.10.2018
+
+VA - Radio DFM Top 30 D-Chart 26.10.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MARUV - Focus On Me 2:55
+02. Kungs & Stargate feat. Goldn - Be Right Here 3:11
+03. Burak Yeter & Cecilia Krull - My Life Is Going On (Burak Yeter Remix) 3:46
+04. David Guetta feat. Anne-Marie - Don't Leave Me Alone (Sidney Samson Remix) 4:32(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55E765776992FEB14C71E7F0B5D4F665FA0D501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073918   (340908) от 18.11.2016
+
+VA - Осенняя позитивная сотка. Выпуск 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340908.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Usher - Make U A Believer 4:07
+002.Градусы - Вали Гуляй 3:48
+003.Ellie Goulding - Devotion 3:47
+004.Ruslan Nigmatullin - Москва Не Город А Целый Мир 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE80720ACBB3B2873E1A7D439BA11CC1E3C22764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257867   (340898) от 28.10.2018
+
+VA - Empire Records - Jazzy Woman 2 (2018) [MP3|320 Kbps] <Vocal Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remi Sciuto - Black Bird
+02. Natalie Cole - This Will Be (An Everlasting Love)
+03. Alyssa Zezza - Your Love Is King
+04. Melania - What A Wonderful World(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0794A064130CB5F3CCE4037276FA2184C5FA49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330238   (340843) от 10.10.2019
+
+The Beatles - Sgt. Pepper's Lonely Hearts Club Band De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Sgt. Pepper's Lonely Hearts Club Band (Take 9) (02:15)
+02-With A Little Help From My Friends (02:45)
+03-Lucy In The Sky With Diamonds (03:05)
+04-Getting Better (02:47)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6F38AB718A430BCB645B8A9ED71E7686E5FD31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577831   (340819) от 26.11.2012
+
+Dj Parafich [Based on the LAOS project] - Vocal Drum And Base Romantica (2012) [MP3|192 кб/с]<Drum'n Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Jose Gonzales & The Knife - Heartbeats (Solarcube Bootleg)
+02 LAOS - Wish Upon
+03 LAOS - Everything
+04 LAOS - Break My Heart
+05 LAOS - We All
+06 LAOS Feat. Kaleb - GTGD
+07 Rico Tubbs  - Feel It
+08 LAOS - Hold On (2009)
+09 LAOS - Helsinki
+10 LAOS - Beautiful(   Читать дальше...   )Жанр: Drum'n BassПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C285F178829A1C46589623B3CFCA9201FEC39A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073932   (340746) от 18.11.2016
 
 VA - Горячие осенние новинки. Русская версия (2016) [MP3|256 Kbps] <Pop>
@@ -580,182 +766,6 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 007 (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CE4E9B6C86E3AE50F4A2090F3AF33D98EF995BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180498   (340017) от 04.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 006 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. До 16 И Старше - Танцы-Обжиманцы ( 1991 )
-02. Шериф - Скорый Поезд ( 1990 )
-03. Новые Амазонки - Эй, Ямщик ( 1990 )
-04. Двое - Зной ( 1997 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0D3CBF53AD0F3C9EF01BA13F15B8BE9A1CEEA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419371   (339976) от 28.10.2020
-
-VA - не Громкие новинки недели 85 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Маши - Мы Переживём Всё (3:17)
-02. Alexandra - Попадаем В Рек (2:22)
-03. Arsenaleen - Ангелы (2:56)
-04. DoppDopp - Потанцевально (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5778B977BBEDFDDC83F082951706EE278C66E02F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954662   (339960) от 08.11.2015
-
-VA - Beatport Top 100 Deep House October (2015) [MP3|320 кб/с]<Deep House, House, Electronica>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339960.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Butch - Dope (Original Mix) 08:30
-002. Purple Disco Machine, Boris Dlugosch - L.O.V.E. (Original Mix) 05:31
-003. Justin Jay - Rain Dance 06:23
-004. EDX - Belong (Extended Mix) 06:19(   Читать дальше...   )Жанр: Deep House, House, ElectronicaПродолжительность: 11:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9B49B1E3058AE7F03F7872E9671BC4CE29D14C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954492   (339957) от 08.11.2015
-
-VA - Sojuz Techno & Trance vol. 4 (1996) [MP3|112-320 кб/с]<Electronic, Hard House, Euro House, Happy Hardcore>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spaghetti Surfers - Misirlou (Radio Edit) (04:04)
-02. Kim Ono - Big In Japan (Radio Mix) (03:22)
-03. Caterpillar - How Do You Feel (05:40)
-04. Allnighters - Black Is Black (06:34)(   Читать дальше...   )Жанр: Electronic, Hard House, Euro House, Happy HardcoreПродолжительность: 01:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D4EA6BFC222B24D1FB2A804B0E1A13224F7E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954637   (339956) от 08.11.2015
-
-VA - Beatport Indie Dance / Nu Disco Top 100 October (2015) [MP3|320 кб/с]<Indie Dance / Nu Disco, G-House, Electronica>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339956.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Platinum Doug - Play with Me (Original Mix) 05:14
-002. Giacca & Flores - Last Night A DJ Saved My Life (Original Mix) 05:12
-003. Giacca & Flores - New Monday (Original Mix) 05:52
-004. Base On & Jean Bacarreza - Back 2 Basicz (Original Mix) 06:51(   Читать дальше...   )Жанр: Indie Dance / Nu Disco, G-House, ElectronicaПродолжительность: 09:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFE662F58A6CBEC367C2AE74719D10C0D8F878B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839632   (339925) от 10.11.2014
-
-VA - The Official UK Top 40 Singles Chart (09-11-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую очередной традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
-Новинок достаточно много, все их можете посмотреть под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете сами посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Cheryl - I Don't Care  (4:00)
-02. Ed Sheeran - Thinking Out Loud  (4:42)
-03. Meghan Trainor - All About That Bass  (3:09)
-04. John Legend - All Of Me  (4:30)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1177F55387B3385A052D301F8308D17CE23022B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,92 @@
+###  Публикация: 1353670   (991987) от 18.01.2020
+
+Grin - Translucent Blades (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Shoegaze, Stoner Rock, Post Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helix (5:23)
+02. Orbital Grace (3:19)
+03. Translucent Blades (5:46)
+04. Husk (4:04)(   Читать дальше...   )Производство: Crazysane RecordsЖанр: Doom Metal, Shoegaze, Stoner Rock, Post Metal, Sludge Metal, Grunge, D'n'BПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6ECEEA9C368BBE0F206ECDF427B06B8E38FFB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389027   (991196) от 28.01.2013
+
+Defeated Sanity - 4 альбома (2004-2013) [FLAC|Lossless]<Technical Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда Defeated Sanity образовалась в 1994 году в Германии как проект Wolfgang Teske (гитара) и Lille Gruber (ударные). Цель у музыкантов была банальней некуда - играть настолько брутальный дэт-метал, насколько это возможно.01. Initiation
+02. Naraka
+03. Verblendung
+04. Lusting For Transcendence
+05. The Purging
+06. Verses Of Deformity
+07. Perspectives
+08. Frenzy
+09. MartyriumЖанр: Technical Brutal Death MetalПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432299   (990906) от 06.01.2012
+
+Royal Hunt - Show Me How to Live (2011) [FLAC|Lossless]<Progressive Neoclassical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive Neoclassical MetalПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353859   (990853) от 19.01.2020
 
 Despised Icon - The Healing Process (2005) [APE|Lossless|image + .cue] <Death Metal, Deathcore>
@@ -707,93 +796,6 @@ Running Wild - 9CD Japan Edition (1987 - 1998) Japan Edition [WavPack|Lossless]<
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355297   (984983) от 25.01.2020
-
-Edenbridge - The Grand Design (2006) [FLAC|Lossless|image + .cue] <Sympho Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terra Nova (7:07)
-02. Flame Of Passion (5:20)
-03. Evermore (3:43)
-04. The Most Beautiful Place (3:07)(   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDB127DC3688C056E42E04F0D274771F1FC28ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355299   (984980) от 25.01.2020
-
-Ensiferum - Victory Songs (2007) [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ad Victoriam (3:11)
-02. Blood is the Price of Glory (5:17)
-03. Deathbringer from the Sky (5:11)
-04. Ahti (3:56)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00::50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E8B3D80B527854265DDEF8CD113548E974B491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355213   (984975) от 25.01.2020
-
-Breaking Benjamin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking Benjamin - So Cold (Aurora Version) (04:32)
-02. Breaking Benjamin, Michael Barnes - Failure (Aurora Version) (03:37)
-03. Breaking Benjamin, Scooter Ward - Far Away (04:52)
-04. Breaking Benjamin - Angels Fall (Aurora Version) (03:46)(   Читать дальше...   )Жанр: Alt.Metal, Post-GrungeПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43631DF186D37CC77BF2356BF5D0B90ED4348987
 ```
 
 https://mybot314.ru/tekegram_catalog/

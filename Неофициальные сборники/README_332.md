@@ -1,3 +1,174 @@
+###  Публикация: 1039187   (597497) от 31.07.2016
+
+VA - Молодежный Сборник Хитов Русский (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597497.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Егор Крид - Мне Нравится
+002. Клава Кока - Май
+003. Валенсия - Отпускаю
+004. Юлианна Караулова - Внеорбитные(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD4AE94DD8150CF1949C8BFEA2B0B31ACB680B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039099   (597486) от 31.07.2016
+
+VA - Hot Sex (Smooth Jazz for Sensual, Sexy Love Making) (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Pieranunzi - Prolusion
+02. Harry Evans - Jewel
+03. Piano Jazz Calming Music Academy - Get Up, Stand Up
+04. Enrico Pieranunzi - The Flight Of Belphegor(   Читать дальше...   )Жанр: JazzПродолжительность: 02:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457F8FEADA1203E9A349A02FFEC9F3861C4D0244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526715   (597248) от 24.07.2012
+
+VA - 100 хитов подряд 4 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597248.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Настя Крайнова - Стой Мой
+002. Mindy Gledhill Feat. Kaskade - Eyes
+003. Artik Pres. Asti - Стыцагерл
+004. Michel Telo - Ai Se Eu Te Pego
+005. St1m (Gagareen) - Космос
+006. Colby O'donis - Like Me
+007. Marc Anthony Feat. Pitbull - Rain Over Me
+008. Armin Van Buuren - We Are Here To Make Some Noise
+009. Karosa Feat. Kledia - Burning Passion
+010. Kondrashov - Answer (Original Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C85E8D3C3878CA9EE55124E4CAB7D4E37AD33F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356717   (597135) от 29.06.2011
+
+VA - Пляжная 100-ка (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD42BC50BA7804A70D530BFFE644975A066297D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356782   (597133) от 29.06.2011
+
+VA - Покаяние (2011) [MP3|128 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ШансонПродолжительность: 12:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978EA276E55DF69D4C5890DCE1619972C2C38FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356778   (597045) от 29.06.2011
+
+VA - Мамы Дома Нет (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 11:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E9971BB7E5624F21407109EAC21B9F88CBB1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039134   (596985) от 31.07.2016
 
 VA - Club Dance Ambience vol.80 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
@@ -571,198 +742,6 @@ VA - Летний Maximum Mix 50/50 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:824334F224183343D73D2B361D3BEBFF4102BBAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039538   (595945) от 01.08.2016
-
-VA - Best Hits Hot Eternal Sound (2016) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595945.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bad Boys Blue -  You're a Woman (Reloaded Album Version) 3:05
-002. DJ Smash & DJ Miller feat. Anya -  Angels (Radio Edit) 3:36
-003. Global Deejays & Frontload -  Get Up! (Radio Edit) 3:07
-004. Pullbaxx & C.R. Easy -  Waves of Time (Bigroom Edit) 3:54(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 12:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18074F3436D8B1F48BAF1B3EC9ABADBEDF011A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526687   (595929) от 25.07.2012
-
-VA - Soul of Ibiza Volume 40 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595929.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Neev Kennedy - The Unknown (DNS Project Extended)
-002. Mark Sixma feat. Amba Sheperd - Cupid`s Casualty (Original Mix)
-003. Mike Koglin feat. LCK - Varana (Original Mix)
-004. Omnia & IRA - The Fusion (Original Mix)
-005. Paul van Dyk feat. Austin Leeds - Verano (PvDs Full Fire Mix)
-006. Progressiver - Searching For The Truth (Original Mix)
-007. Rake feat. Natalie Griffiths - Expectation (Original Mix)
-008. Remy Le Duc, The EC Twins & Zen Freeman feat. Shakeh - In Motion (Original Mix)
-009. Ruben de Ronde & Aelyn - She's Already Gone Vocal Mix
-010. Sou Kanai - A Fragment Of The Memory (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E327BEAF1187B82FC7A8C222BC4920CFF8A49870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039339   (595891) от 01.08.2016
-
-VA - Bossa Brasilia - Brazilian Jazz & Bossa Nova (2016) [MP3|320 Kbps] <Jazz, Bossa Nova>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Q - Treehouse (Vocal)
-02. Dynamedion GbR - Let's Fly to Rio
-03. Steve Rice Productions - Summer Bossa (Elevator Remix)
-04. Synapse - Sugar Loaf(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 02:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE13A26EAC920092CA6A17E7F7D95F155D4B947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914599   (595860) от 03.07.2015
-
-VA - Top 100 Зайцев Нет Июль (2015) [MP3|192-320 кб/с]<Pop, Dance, Rock, R&B, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595860.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Нюша - Где ты, там я
-2. Андрей Иванцов - Доченька
-3. MC Doni feat. Натали - Ты Такой
-4. Егор Крид - Невеста(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 06:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7099029AA5429383CD014A3E926E79B2C932F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526105   (595759) от 25.07.2012
-
-VA - Trance Desire Volume 23 (Mixed by Oxya^) (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595759.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Snatt & Vix - At The End Of The Day (Yesterday Mix)
-002. Stoneface & Terminal feat. Ellie Lawson - Breaking Through (Original Mix)
-003. The Blizzard & Yuri Kane feat. Relyk - Everything About You (Original Mix)
-004. Masoud feat. Nicole McKenna - Fix The Broken (Original Mix)
-005. Armin Van Buuren pres. Gaia - J'Ai Envie De Toi (Original Mix)
-006. Danilo Ercole feat. Roberta Harriso & Steven Taetz - Meet You Where You Are
-007. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
-008. ReOrder & Stine Grove - Seize The Day (Original Mix)
-009. Grube & Hovsepian feat. Tiffany Johnston - Venom (Dub Mix)
-010. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)Жанр: Vocal TranceПродолжительность: 01:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554F7479D7A0CA451A1B02002B8A5194C64A1775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527066   (595652) от 25.07.2012
-
-VA - Mega вечеринка: Без тормозов 6 (2012) [MP3|128 кб/с]<Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вера Брежнева - Ищу Тебя
- 02. Alexandra Stan - Lemonade
- 03. Ирина Билык И Ольга Горбачева - Не Ревную
- 04. Oceana - Endless Summer (Bodybangers Remix)
- 05. Юлия Савичева - Юлия
- 06. Jennifer Lopez feat. Flo Rida - Goin' In
- 07. Доминик Джокер - Если Ты Со Мной (Paul Vine Remix)
- 08. Ledina Celo - Can You Touch Me Baby
- 09. Бандэрос - Эти Сумасшедшие Ночи
- 10. Inna - Tu Si Eu (Radio Version)(   Читать дальше...   )Жанр: ПопПродолжительность: 12:20:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2EAD02A1288E22B7245527267C191DADD79BF84
 ```
 
 https://mybot314.ru/tekegram_catalog/

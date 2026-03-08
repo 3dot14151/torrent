@@ -1,31 +1,3 @@
-###  Публикация: 292280   (906268) от 07.02.2011
-
-Воскресение - Лучшее (2CD) (2010) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:18:17
-Треклист:
-01 -
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B6F148256D44734E3BE6B1EB36E6949EAD0DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991275   (906185) от 28.02.2016
 
 Redemption - The Art Of Loss (2016) Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
@@ -751,6 +723,35 @@ Firewind - Immortals (2017) Japanese Edition [MP3|320 Kbps] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:162B392E1E48049756ED021D85B35E15C3B1504A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866867   (904928) от 07.02.2015
+
+Jimi Hendrix - The Cry Of Love (1971) Remastered 2014 [MP3|320 кб/с]<Psychedelic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom
+02. Drifting
+03. Ezy Ryder
+04. Night Bird Flying(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D5F44ECCF3B1B1C746BF4BF1225F445558A694
 ```
 
 https://mybot314.ru/tekegram_catalog/

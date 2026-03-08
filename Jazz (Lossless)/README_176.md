@@ -1,3 +1,32 @@
+###  Публикация: 1059445   (462278) от 04.10.2016
+
+T-Square - Yes, No (1988) Sony Music[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dans Sa Chambre [05:26]
+ 02.Go For It [04:54]
+ 03.Miss You [05:02]
+ 04.El Mirage [05:20](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15B1287DCB1BADA67F011349C1FE15E8BC79E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568483   (461959) от 08.08.2022
 
 Papik & Le Lune - Liberi (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop Jazz, Soul>
@@ -715,35 +744,6 @@ Rob Agerbeek Trio - Miss Dee (1980) Remaster, 2015, Solid Records[FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8227A23E360214D95857BF8BB39444E366AD97C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059874   (457738) от 06.10.2016
-
-The Trio: John Surman, Stu Martin, Barre Phillips - Conflagration (1971) Remaster, 2002, Dawn Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Conflagration [07:42]
- 02.Malachite [10:01]
- 03.Nuts [06:57]
- 04.6's and 7's [07:48](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1178B0D6597CF5E3BD5A58DE868135DD6950526A
 ```
 
 https://mybot314.ru/tekegram_catalog/

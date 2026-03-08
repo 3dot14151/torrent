@@ -1,3 +1,61 @@
+###  Публикация: 1065172   (421896) от 22.10.2016
+
+Herman Frank - Loyal To None (2009) 2016 reissue [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon II
+02. 7 Stars
+03. Father Buries Son
+04. Heal Me(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159164A832C2A231B34FF966F47C44C1F285E9A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065159   (421641) от 22.10.2016
+
+Eden's Curse - Cardinal (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prophets Of Doom
+02. Sell Your Soul
+03. The Great Pretender
+04. Messiah Complex(   Читать дальше...   )Жанр: Melodic Hard Rock, Melodic Heavy MetalПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD592B563C97D1DD780471CF433796F2A5023A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324700   (421503) от 11.09.2019
 
 Chaos Divine - Africa (2012) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -685,64 +743,6 @@ Whorion - The Reign Of The 7th Sector (2015) [FLAC|Lossless|image + .cue] <Symph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8DB9B947F2CE829475E565ECDE7683DCAB35EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250857   (420201) от 30.09.2018
-
-VA - Blackend - The Black Metal Compilation Vol. 1 (1995) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420201.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Emperor - I Am the Black Wizards (6:13)
-02. Impaled Nazarene - Hate (5:52)
-03. Mayhem - Pagan Fears (6:22)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 02:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6FABE6E6FC22491DF2B41745C2D519EEE0AE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065217   (419100) от 23.10.2016
-
-Amaranthe - Maximalism (2016) [FLAC|tracks|WEB-DL]<Modern Melodic Metal, Male and Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419100.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:10] 01. Maximize
-[03:22] 02. Boomerang
-[03:13] 03. That Song
-[03:05] 04. 21(   Читать дальше...   )Жанр: Modern Melodic Metal, Male and Female VocalПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC59894076F6AD49E00CBB64B152AD909BCED806
 ```
 
 https://mybot314.ru/tekegram_catalog/

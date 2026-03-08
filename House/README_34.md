@@ -1,3 +1,32 @@
+###  Публикация: 1141465   (650546) от 10.06.2017
+
+VA - Ibiza House (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soneec - Once Again 05:18
+02. Alemany - Fresh (Charles J Remix) 05:01
+03. Dave Aude feat. Vassy - Hustlin' (Club Mix) 05:49
+04. Sante Cruze - Get so High 06:51(   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectroПродолжительность: 02:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0382BBE1BFAD0962DC98780E11029778E471C9FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031907   (649832) от 05.07.2016
 
 VA - Ibiza Goes Deeper: A Unique Selection Of Deep House Tunes (2016) [MP3|320 Kbps] <House, Deep House>
@@ -719,35 +748,6 @@ VA - Champagne Lounge Deep House (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D539D7855285C071C80405B412B06963EE40926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142736   (641064) от 15.06.2017
-
-VA - Chill House Ibiza 2017 (Finest Chill House Music) (2017) [MP3|320 Kbps] <House, Deep House, Chillhouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max TenRoM - Aurores (Extended Mix)  6:38
-02.  Frans Strandberg - Tropical Dreams  5:47
-03.  Shottle - Way Out  3:10
-04.  Adala - Audi (Extended Mix)  6:52(   Читать дальше...   )Жанр: House, Deep House, ChillhouseПродолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F5C9C0FFF121B0CEC09236B16862EBFDADF00C
 ```
 
 https://mybot314.ru/tekegram_catalog/

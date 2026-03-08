@@ -1,3 +1,90 @@
+###  Публикация: 1310535   (547018) от 24.06.2019
+
+Accuser - Dependent Domination (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Presentiment 01:00
+02. Beneath Your Dignity 06:02
+03. Torn to Pieces 03:17
+04. Desolate Shape 05:39(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290A77ABFC1D4D75ABD50319D63B287FF4426151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048909   (545862) от 03.09.2016
+
+Ancient Skin - Nobis Quoque Peccatoribus (2008) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobis Quoque Peccatoribus
+02. In principio
+03. My Grave
+04. Persistenza della memoria(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E02DFAD4394E41A810A24C47BAFA06E1F36FDE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048472   (545858) от 03.09.2016
+
+Eternal Suffering - Echo Of Lost Words (2010) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545858.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Her Scars Are Mine 04:01
+2. The Death In Your Eyes 02:51
+3. In Silence 03:00
+4. The Forever Curse 03:13(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C41DAD7B7BC1B34F2905EBE280963D67C4CB343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048650   (545852) от 03.09.2016
 
 Lоrd Оf Тhе Lоst - Еmруrеаn (2016) 2CD [FLAC|Lossless|image + .cue] <Gothic Metal, Industrial Metal>
@@ -667,92 +754,6 @@ Bob Katsionis начинал с дарк-метала в NIGHTFALL и блэк-�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C39B856208D73C928642558EC1ABBAED2D9EE66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557132   (542697) от 14.06.2022
-
-Maledictive Pigs - Bloodshed (2001) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel
-02. Merciless Killing
-03. Putrid Autopsy
-04. Horrible Creation(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADECFE9A86FC13B58920124303C7F7088AF9E131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238821   (542508) от 03.08.2018
-
-Dee Snider - For the Love of Metal (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lies Are A Business
-02. Tomorrow's No Concern
-03. I Am The Hurricane
-04. American Made(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85A344C3A94C00739E470DD5D54FE91B7B26F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557370   (541226) от 15.06.2022
-
-Haunter - Discarnate Ails (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Overgrown with the Moss (00:10:45)
-02 - Spiritual Illness (00:06:50)
-03 - Chained at the Helm of the Eschaton (00:13:58)Жанр: Atmospheric Black, Death MetalПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AFEAE8323F0AC16CA0D2C1BFDAF01AD543E6CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

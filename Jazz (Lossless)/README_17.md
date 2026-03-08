@@ -1,3 +1,32 @@
+###  Публикация: 1480607   (1008861) от 29.06.2021
+
+Johnny Hartman - There Goes My Heart (1947 - 1952) 2004, Proper Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Was I Born? [2:53]
+02. Tormented (Why Must I Be) [3:01]
+03. What's to Become of Me? [3:11]
+04. I'll Never Smile Again [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F1206D15CB87F5074C845740E18E7007AD3A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480987   (1008591) от 01.07.2021
 
 Harry James & His Orchestra (1991) LaserLight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ Lena Horne - Love Songs (50-e - 60-e) 2005, Legacy [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B99D4E6330D8F7073A6871ED0D4A80BB714D50A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484656   (1005948) от 21.07.2021
-
-Richard "Groove" Holmes - Groove's Groove (1977 - 1988) 1997, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broadway [6:58]
-02. Hackensack [5:47]
-03. Stella by Starlight [5:33]
-04. Good Vibrations [8:51](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4CD2AD43ADA6B03BBFFC8744CAFA7CC6CBB16F
 ```
 
 https://mybot314.ru/tekegram_catalog/

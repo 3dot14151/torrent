@@ -1,3 +1,61 @@
+###  Публикация: 1268180   (229993) от 09.12.2018
+
+Beth Adams - Always Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_229993.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Always Christmas
+2. The First Noel
+3. Coventry Carol / What Child Is This?
+4. Silent Night(   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 00:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F3EA801A9DC0A3E08ECCA109C7744B79818A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268076   (229812) от 09.12.2018
+
+VA - Pop Music from the 00s (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travie McCoy - We'll Be Alright
+02. All Saints - Pure Shores
+03. CeeLo Green - F**K You
+04. Eliza Doolittle - Pack Up(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0541750C0F18ABA1D8F9CDCBC7F948A2CD3D81BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267978   (229711) от 09.12.2018
 
 Marco Mengoni - Atlantico (2018) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -699,64 +757,6 @@ Gazuzu - 2 Albums (1984, 1988) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9074E6A082B8B1DD2218D7EFE06F6D4E1D83DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341679   (228645) от 29.11.2019
-
-MARUV - Hellcat Story (2019) EP [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228645.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To Be Mine
-2. Don't Stop
-3. Don't U Waste My Time
-4. If You Want HerЖанр: Dance, Pop, ElectronicПродолжительность: 00:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8AAF320435DB7E626D43B70B683B175F152C49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649850   (228570) от 29.07.2023
-
-Narada Michael Walden - The Dance Of Life (1979) LP [MP3|320 Kbps] <Disco, Funk / Soul, Jazz-Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're So Good (6:05)
-02. I Shoulda Loved Ya (6:38)
-03. Lovin' You Madly (5:18)
-04. Crazy For Ya (3:56)(   Читать дальше...   )Жанр: Disco, Funk / Soul, Jazz-FunkПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DCC4A20C5F242DADFCAA57B004A03ECC04943D
 ```
 
 https://mybot314.ru/tekegram_catalog/

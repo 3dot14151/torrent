@@ -1,3 +1,61 @@
+###  Публикация: 1816047   (4414) от 04.09.2025
+
+Pola & Bryson - Fabriclive presents Pola & Bryson (2025) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Worlds Apart [00:04:41]
+02 - The Certified Bubbler [00:03:06]
+03 - Not Far To Go [00:06:25]
+04 - Lies [00:03:04](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B337648107A3A40F516CA1BE97328DCBA5DDD699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816335   (4410) от 04.09.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 7 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Binary Finary - 1998 (Matt Darey Extended Remix) [7:18]
+02. Signum - Solar Level (Extended Mix) [9:30]
+03. Olmec Heads - Lift Off (Extended Mix) [7:49]
+04. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (12" Vocal Mix) [8:32](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2FC9CE77326309D6E21DBCB0ECB03FCBA0EA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816020   (4385) от 04.09.2025
 
 Nukleall - Infinite Echoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Psytrance>
@@ -686,64 +744,6 @@ VA - Transorica Trance Dreams (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD83A0D474CB891C41996AABB6C1AA87DDBEC23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817798   (2906) от 13.09.2025
-
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 13 (2025) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vybrotek - Sanctuary (Original Mix) [4:10]
-02. North Skies - Existential (Extended Mix) [5:24]
-03. LÜRUM & Adip Kiyoi - Starring To The Sky (Original Mix) [3:30]
-04. Solewaas - Opal (Joe Meils Radio Edit) [3:12](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:107B4051EA14E3BC78775CFB0776210D439EEA99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816640   (2813) от 14.09.2025
-
-VA - Tomorrowland Belgium (2025) [MP3|320 Kbps] <House, Trance, Techno, Drum & Bass>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Agents Of Time @ Freedom Stage, Tomorrowland Weekend 1, Belgium 2025-07-19:
-Alan Walker @ Mainstage, Tomorrowland Weekend 1, Belgium 2025-07-19:
-ALOK @ Mainstage, Tomorrowland Weekend 1, Belgium 2025-07-18:
-Argy @ Freedom Stage, Tomorrowland Weekend 1, Belgium 2025-07-20:(   Читать дальше...   )Жанр: House, Trance, Techno, Drum & BassПродолжительность: 104:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E3B4840412EFE614C26BE7DEDD4BB7166E8AE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

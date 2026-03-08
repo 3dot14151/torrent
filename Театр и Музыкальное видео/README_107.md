@@ -1,3 +1,30 @@
+###  Публикация: 1336503   (278582) от 07.11.2019
+
+Hymn: Sarah Brightman in Concert (2018) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сара Брайтман, одна из самых успешных сопрано-певиц современности, показала новую программу HYMN: Sarah Brightman In Concert Tour.
+Пронизанный духовной тематикой концерт HYMN – это вдохновляющая коллекция песен с участием оркестра и хора. Возвышенный тон всему концерту задает заглавная композиция, песня британской прог-роковой группы Barclay James Harvest. В нем (   Читать дальше...   )Производство: Великобритания, Sky Arts HDЖанр: Pop, classical, crossoverПеревод: Не требуетсяЯзык озвучки: АнглийскийСубтитры: нетПродолжительность: 01:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69361EB40A18C6A2C45B430783B119F4A75A5835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187681   (278470) от 29.11.2017
 
 Сборник клипов - Best Pop Hits от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
@@ -676,35 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A558F6DDA97C768856B48FFBE63FB19CA52C95C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189018   (271999) от 04.12.2017
-
-Sting - Live At The Olympia Paris (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271999.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Synchronicity II
-2 Spirits In The Material World
-3 Englishman in New York
-4 I Can't Stop Thinking About You(   Читать дальше...   )Производство: Deutsche GrammophonЖанр: Rock, Pop, New Wave, JazzРежиссер: Alexandre BuissonПродолжительность: 01:42:03+00:36:12 (Bonus)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42AE9D6C4A3E3CD62707FBE6FDD5BF332FAB6453
 ```
 
 https://mybot314.ru/tekegram_catalog/

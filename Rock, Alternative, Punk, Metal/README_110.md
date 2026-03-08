@@ -1,32 +1,3 @@
-###  Публикация: 1474264   (1013252) от 01.06.2021
-
-Seeming Emptiness - Bliss Entombed (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Impious End [00:05:11]
-02. What Spirits Forebode [00:06:06]
-03. Infernal Charade [00:05:25]
-04. Quavering Sorrow [00:08:15](   Читать дальше...   )Жанр: Doom, Post-MetalПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F68AA063ADC712C639EDA61754A2C42D277498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474262   (1013249) от 01.06.2021
 
 Black Tar Superstar - The Black Flame (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge Metal>
@@ -745,6 +716,35 @@ Shade Empire - Intoxicate O.S (2006) [FLAC|Lossless]<Melodic Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5AC0E53BE3863A9490DE7A65ECBA9870909F2C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474631   (1012865) от 03.06.2021
+
+The Grateful Dead - Blues For Allah (1975) Hybrid, Album, Limited Edition, Reissue, Remastered, 2019, Mobile Fidelity Sound Lab [FLAC|Lossless|image + .cue] <Folk Rock, Country Rock, Psychedelic ...
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help On The Way / Slipknot!
+02. Franklin's Tower
+03. King Solomon's Marbles
+Stronger Than Dirt(   Читать дальше...   )Жанр: Folk Rock, Country Rock, Psychedelic RockПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77022B85624F0DA7D112CEC0350BAE52BC5DE46
 ```
 
 https://mybot314.ru/tekegram_catalog/

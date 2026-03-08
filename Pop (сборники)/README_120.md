@@ -1,3 +1,38 @@
+###  Публикация: 479013   (99054) от 09.04.2012
+
+VA - С Нами Не Соскучишься 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99054.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 A-VIA & Extasy Project - Мама-Любовь
+002 Arno Cost - Lise Together (Mike Newman & Julien Nolan Bootleg)
+003 Руслана - Скучаю
+004 Niels Van Gogh Feat. Emilio Verdez - Beatrocker (Radio Version)
+005 Валерий Меладзе - Потерян И Не Найден
+006 Special vs.Dj Virus Feat. Syntheticsax & Aruba Ice - The Sign Of Jupiter (Kazantip 2011 Mix)
+007 НеАнгелы - Твоя
+008 Stonebridge And Dayeene - The Morning After (Sgt Slick Remix)
+009 Авраам Руссо и Рухшона - Благодарю
+010 Frankmusik - Do It In The AM (Dave Aude Club Mix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131980E89AAA23C820A4A1BD415798AE3AA5C883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477982   (98732) от 05.04.2012
 
 VA - Русская Дискотека Best-of-ka (2012) [MP3|256 кб/с]<Pop>
@@ -866,41 +901,6 @@ VA - Prodвинутые Новинки Радиостанций 50\50(2012) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D26F63ED3240ECB048B8A9A36D100B086451EFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469424   (97139) от 18.03.2012
-
-VA - Русская Супер 200-ка (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97139.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mainstream One - Я С Тобой
-002. Milena Murzin Denis - Touch Me (Radio Version)
-003. Salvatore Djs Staya - Не Уходи (Radio Edit)
-004. Mmdance - Ломай Себя Полностью
-005. Vlad Bostan - Задыхаюсь
-006. София Ротару - Мы Будем Вместе
-007. Ваня Романов Feat. Jordan - Я Для Тебя Живу
-008. Roma Kenga - Ты Будешь Счастливой (Mexx Beat Remix)
-009. Группа Элемент - Она Такая
-010. Поющие Трусы - Спортивный Интерес(   Читать дальше...   )2012Жанр: PopПродолжительность: 12:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBC9F53D30E37D2245A7EE6734CBCD767E37164
 ```
 
 https://mybot314.ru/tekegram_catalog/

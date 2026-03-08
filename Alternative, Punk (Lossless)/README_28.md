@@ -1,3 +1,32 @@
+###  Публикация: 1233228   (593340) от 29.06.2018
+
+Gorillaz - The Now Now (2018) Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humility (feat. George Benson) (3:18)
+ 02. Tranz (2:43)
+ 03. Hollywood (feat. Snoop Dogg & Jamie Principle) (4:53)
+ 04. Kansas (4:08)(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328CFA9BA453D6283DD7C14F48494292B2A7B6E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300243   (593216) от 06.05.2019
 
 Prefab Sprout - Crimson/Red (2013) BSCD2 release [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock, Sophisti-Pop>
@@ -717,35 +746,6 @@ Notions - Notions (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rapcore, Nu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8908D5CA90E1146CD6192F48B89075E51996DBC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553739   (580026) от 28.05.2022
-
-Scary Kids Scaring Kids - Out Of Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580026.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nightmare (feat. Spencer Charnas of Ice Nine Kills)
-2. The Dark (feat. Noah Sebastian of Bad Omens)
-3. To the Unknown (feat. Vaines)
-4. Until You Come Back (feat. Matt MacDonald of The Classic Crime)(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, ElectronicПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7797E981F05C62F7944853031558F35F13924762
 ```
 
 https://mybot314.ru/tekegram_catalog/

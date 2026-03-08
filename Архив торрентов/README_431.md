@@ -1,3 +1,32 @@
+###  Публикация: 977926   (964716) от 22.01.2016
+
+LAShTAL - Thoum Aesh Neith (1986/1992) [FLAC|Lossless|tracks + .cue] <Experimental, Industrial, Tribal, Ritual Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invocation Of Nag-Zhig (07:35)
+ 02. Kundalini (07:11)
+ 03. Ballata No. 7 (03:39)
+ 04. Pope Is Antichrist (03:01)(   Читать дальше...   )Жанр: Experimental, Industrial, Tribal, Ritual AmbientПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E53645A7530F5F169082ABFE3D0B0FD1281A08C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289906   (964686) от 17.01.2014
 
 Discovery: Могучие корабли. Морской оазис / Mighty Ships. Oasis Of The Seas (2008) SATRip
@@ -663,32 +692,6 @@ AVG Internet Security 2016 - комплексный антивирус с улу
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A811395B34D7C6BAF76EE2595BEC8C7C8BCC44F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978018   (964397) от 22.01.2016
-
-Google Chrome 48.0.2564.82 Stable RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – веб-браузер от Google с открытым исходным кодом, который сочетает поддержку новейших веб-приложений, удобный поиск с высокой скоростью и стабильностью. Из особенностей браузера разработчики особенно выделяют изолированные вкладки, предотвращающие сбой и ошибки работы программы, что обеспечивает более надежную защиту от опасных сайтов.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA51CB5E6121F26D023E5DB3E38C4158A4491D9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

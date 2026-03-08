@@ -1,3 +1,174 @@
+###  Публикация: 928424   (522487) от 16.08.2015
+
+VA - Best Of Dance 2000s (2015) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Switch - A Bit PatchyЖанр: Club, DanceПродолжительность: 09:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AFBD3FAC4756EF940CA7D9BF119640D981EA1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928444   (522414) от 16.08.2015
+
+Rock Ballads - New Collection (3CD) (2000 - 2010) [MP3|320 кб/с]<Rock, Art Rock, Soft Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bon Jovi - Thank You For Loving Me (05:10)
+02. Roxette - Milk And Toast And Honey (04:04)
+03. Bryan Adams - Inside Out (04:47)
+04. Lenny Kravitz - Again (03:49)(   Читать дальше...   )Жанр: Rock, Art Rock, Soft Rock, Blues RockПродолжительность: 03:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1137B1A969A77D2E9F8932B21A570F6C2951420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313859   (522319) от 11.07.2019
+
+VA - Brinstone Sorcery: Metal Compilation (2019) 2CD [MP3|320 Kbps] <Metal, Power, Death>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522319.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+001. Whyzdom - Armour Of Dust
+002. Angel Of Damnation - Brimstone Sorcery(   Читать дальше...   )Жанр: Metal, Power, DeathПродолжительность: 21:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB72289B15BE7C138750C2C481D8C968941F5150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313857   (522316) от 11.07.2019
+
+VA - Multimix Electro Sound (2019) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522316.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Doctor Boom - Push My Buttons
+002. Mam (Ar) - Stellar Eyes
+003. Million - Chase
+004. Andrea Curato - Losing You(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 13:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F9904F665D12D30E35C9541BF3513578D43E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313856   (522266) от 11.07.2019
+
+VA - Romantic Indie Pop-Rock (2019) [MP3|320 Kbps] <Indie, Pop-Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522266.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wingtip Sloat - Spanish EncoresGiddy In Palestine
+002. Annika Norlin - Failure
+003. Calvin Johnson - (I've Still Got) Sand in My Shoes
+004. Georgia feat Shygirl - Mellow(   Читать дальше...   )Жанр: Indie, Pop-RockПродолжительность: 09:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186310D011E906BADB0C6EDDC1E0AFD25E935DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313908   (522264) от 11.07.2019
+
+VA - Little Known Disco (2019) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arirang Singers - Dark Eyes (1979) (4:02)
+02. Arpeggio - Let The Music Play (1978) (8:21)
+03. Barrabas - (Be Me) Rebel (1982) (6:32)
+04. Benelux & Nancy Dee - Rico (1980) (3:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 03:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561F0F4EE41AAADD718E1F82A1E1BF28384AED46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928420   (522219) от 16.08.2015
 
 VA - The Best Dance Hits Of 90's-2 (2015) [MP3|320 кб/с]<Pop, Eurodance, House,Techno, Trance>
@@ -574,180 +745,6 @@ VA - Лучшие хиты НАШЕ РАДИО-3 (2010) [MP3|128 kbps]<pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241228   (521267) от 16.08.2018
-
-VA - Analogue Dream (2018) [MP3|320 Kbps] <Psy, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521267.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. E-Mantra - Above the Skies
-002. 2012 - Say My Name
-003. Acidbots - Udaan (Fly High)
-004. Acidprojekt - Analysis Paralysis(   Читать дальше...   )Жанр: Psy, ElectronicПродолжительность: 11:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230A2994DA6051A1C17A5C42DEF9BF7D9060C39D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314090   (521218) от 12.07.2019
-
-VA - Best Of My Life: Reggae In My Soul (2019) [MP3|320 Kbps] <Reggae, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A7Jk - Rawolou
-002. Admiral Tibet - Keep On Telling Me
-003. Alex Paquette - Amour Universel
-004. Ancient Man - Johny Was A Good Boy(   Читать дальше...   )Жанр: Reggae, SoulПродолжительность: 09:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D013AD90587297DDD6A35E7849526707C82D9EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314112   (521212) от 12.07.2019
-
-VA - Ukrainian Hits - 33 Tracks (Volume 12) (EN) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hardkiss - PiBiP (4:15)
-02. Mozgi - Digitalization (2:41)
-03. MARUV - Focus On Me (2:56)
-04. Tvorchi - Trip (Orchestral Version) (2:49)(   Читать дальше...   )Жанр: Pop, Pop Rock ...Продолжительность: 02:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8020E859B884474785C71AB48E942783313B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314117   (521208) от 12.07.2019
-
-VA - Ukrainian Hits - 33 Tracks (Volume 13) (RU) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alekseev - Целуй (3:26)
-02. Bahroma - Кадриль (3:00)
-03. Max Barskih - Берега (3:48)
-04. David - Знай (New Version) (3:04)(   Читать дальше...   )Жанр: Pop, Pop Rock ...Продолжительность: 01:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3BFB0501A874A8AE34580CCFC58496CBED3CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241089   (521149) от 16.08.2018
-
-VA - Летняя сессия 2018 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Funky House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521149.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01-Diana Ross - I'm Coming Out _ Upside Down 2018 (Eric Kupper Mix)
-02-Dolls Combers - Let the music play (DJ Che MashUp)
-03-Puro Beat feat. Henry Floyd - Keep on Movin (Extended Mix)(   Читать дальше...   )Жанр: Club House, Funky House, DanceПродолжительность: 02:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EAD5B8FF82993C8E17B381FD2065CE4600E20A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241207   (521142) от 16.08.2018
-
-VA - EDM: Ultimate Sound (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521142.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dr. Beat - I Can Give You
-002. Jolyon Petch - Make a Move (Extended Mix)
-003. VIZE - Glad You Came
-004. Abaddon - Hugger(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6286AE3737FFBDF07DDD0B35F71DDCBF82FC4C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

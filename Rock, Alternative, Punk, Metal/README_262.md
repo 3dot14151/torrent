@@ -1,32 +1,3 @@
-###  Публикация: 1007658   (817849) от 17.04.2016
-
-Dark Oath - When Fire Engulfs The Earth (2016) [MP3|320 кб/с] <Melodic Death Metal, Epic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Land Of Ours
-2. The Tree Of Life
-3. Battle Sons
-4. Watchman Of Gods(   Читать дальше...   )Жанр: Melodic Death Metal, Epic MetalПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E669F8B500D5A12C6ABBF514E3B3FF744A9A55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008130   (817845) от 17.04.2016
 
 Ace Frehley - Origins Vol. 1 (2016) [MP3|320 кб/с] <Hard Rock>
@@ -747,6 +718,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504066   (816133) от 21.10.2021
+
+PARALINE - Demonstration record Vol.1 (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Industrial, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After End (3:29)
+02. Forever Not Someone (4:06)
+03. To Lose, To Get (3:12)
+04. Feel It (4:17)(   Читать дальше...   )Жанр: Alternative Rock, Industrial, Electronic, Pop RockПродолжительность: 00:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787DA0BD39679D9B7CC72933FFAF134F54185484
 ```
 
 https://mybot314.ru/tekegram_catalog/

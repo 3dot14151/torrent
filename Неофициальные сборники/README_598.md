@@ -1,3 +1,177 @@
+###  Публикация: 1517920   (161589) от 17.12.2021
+
+VA - Drum Dance: Electro Bass Session (2021) [MP3|320 Kbps] <Electro Bass, D&B, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастический и эстетичный вокал в сочетании с завораживающей, ласкающей мелодией, на фоне которой звучит заводная драм-партия. Композиции этой подборки написаны с душой, что привлечёт внимание многих слушателей, которые несомненно захотят добавить их к себе в персональный плейлист.001. Addicted - Alarm
+002. Disrupta - Run Dem
+003. Stillz - The Music
+004. Refracta - Cobra(   Читать дальше...   )Жанр: Electro Bass, D&B, DubstepПродолжительность: Electro Bass, D&B, Dubstep
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41F9B542616A038BE3243356B3841AD7194D799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517918   (161513) от 17.12.2021
+
+VA - Deep House: NME Hot Electro Set (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам хочется романтики, хочется послушать относительно спокойную музыку, но не лишённую ритма, то эта подборка для вас. В ней вы найдете 120 отличных треков, которые помогут вам по-настоящему насладиться музыкой.001. Deejay Terry - Misterioso
+002. Salvatore Bruno - Want To Get Down
+003. In-Sane - B-Ben
+004. Roy Rosenfeld - Cherry On Top(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23759DC7B40CAEA10712B5CAA1FA386FD0F2C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598792   (161311) от 21.12.2022
+
+Vargo - Compilation (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (Original Chorus Mix)
+02. Relax (Blank & Jones, Vargo Vocal Rmx)
+03. Those Were the Days
+04. Slowdive(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAFC067257AEF0AFB5AF313858F8F8B63B575B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674112   (161266) от 05.11.2023
+
+Rose Laurens - Compilation (2023) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  American Love
+ 02.  La Difference
+ 03.  Jouets cass s
+ 04.  Quand Tu Pars(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0440EE86E41BB9666B432E76B1BAE3F234783F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598077   (161263) от 21.12.2022
+
+Bliss (Denmark) - Compilation (2022) [MP3|320 Kbps] <Downtempo, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People Among Us
+02. Breathe
+03. Calling (Feat Sophie Barker)
+04. Desert Sun(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 03:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9D77E3C5F7F5BB0942DE9D2A51DAFD12E16C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597646   (161238) от 21.12.2022
+
+Alannah Myles - Compilation (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Velvet
+02. You Love Who You Love
+03. Comment Ca Va
+04. Love Is(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1CBA64E38E07759F39D218D8505270DF973E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433280   (161133) от 20.12.2020
 
 VA - Record Super Chart 667 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -571,180 +745,6 @@ VA - Select Mix Cafe Zone Vol.05 (2022) [MP3|320 Kbps] <Disco, Rhythm & Blues, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:901925DDD388549F164A46089E8241CDA99E5442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599569   (159596) от 24.12.2022
-
-VA - Luxury Disco - Ultimate House Grooves (2022) [MP3|320 Kbps] <Funky, Indie Dance, Groove, Nu Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2LOVERS - 2 the Ground  (Radio Mix)
-02. 2LOVERS - Strings  (Radio Mix)
-03. Animist - Two!
-04. Bond - Disco Moves Ya(   Читать дальше...   )Жанр: Funky, Indie Dance, Groove, Nu DiscoПродолжительность: 01:48:04 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477D9E70F51F1FA8052F1C5B3BD176E0028CAA93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675690   (159415) от 10.11.2023
-
-VA - Хиты Авторадио (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159415.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 5УТРА - Давай сбежим (Искорки) (2:59)
-002. ANNA ASTI - Космически (3:28)
-003. Mari Kraimbrery - Моя красивая, стой (Из реалити-шоу Новые Пацанки) (3:45)
-004. NILETTO - Не вспоминай (2:53)(   Читать дальше...   )Жанр: PopПродолжительность: 05:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C7C96AB6CAC881035A2D2EEA4A97B8D0F89E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599266   (159323) от 25.12.2022
-
-Bishop Briggs - Compilation (2022) [MP3|320 Kbps] <Pop, Dark Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be Your Love (West Coast Massive Remix)
-02. Tempt My Trouble
-03. Dark Side
-04. River(   Читать дальше...   )Жанр: Pop, Dark PopПродолжительность: 01:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311D732B0624D3C174CC6270563DCBADECAC6CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599248   (159309) от 25.12.2022
-
-VA - Female vocal assorted (2022) [MP3|320 Kbps] <Pop, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bishop Briggs - Be Your Love
-02. Rachel Platten - Alli Seem to Do
-03. Bella Wagner - Plastic City
-04. Bishop Briggs - Champion(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E82DC0BE8671A20723C6D2688026A77753D73E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676075   (159282) от 11.11.2023
-
-VA - The Gates Of The Future (2023) [MP3|320 Kbps] <Rock, Progressive>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wired Ways - Perpetuum Mobile
-02. The Intersphere - Treasure Chest
-03. Jonathan M Dexter - Hit The Ground Running
-04. Fleesh - Castaway Angels(   Читать дальше...   )Жанр: Rock, ProgressiveПродолжительность: 04:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C859833FA03BB337F48D295258143F2F2FCC64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675833   (159260) от 11.11.2023
-
-Dj Berta - Compilation (2023) [MP3|192-320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Si T Me Das
- 02.  Batango
- 03.  L'orso Che Balla
- 04.  Desert(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD3B491646D38EF45C923773AEB2D53B245A207
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 926972   (531624) от 11.08.2015
+
+Christian Grey - Shades of Sensuality Chill Out 50 Minutes Lounge Music Sexy Songs (2015) [MP3|320 кб/с]<Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensuality (04:38)
+02. Shades of Lounge (04:40)
+03. Armenian Duduk & Relaxing Ocean Waves Lounge (Nature Sounds - Nature Music) (05:20)
+04. Music Bar (Music for Dreaming) (05:00)(   Читать дальше...   )Жанр: Lounge, ChillOutПродолжительность: 02:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EE3B27583ADD73F8BC97A8530BAE688768830E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926713   (531616) от 11.08.2015
 
 VA - Sin City Lounge (Smooth Erotic Chill Music For Intimate Moments And Sensual Seduction) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -722,35 +751,6 @@ VA - Beatport Trance Pack (13.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0047E331D5DF54C12023128097590829AAF3C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053398   (526128) от 17.09.2016
-
-VA - 200th Release Anniversary (2016) [MP3|320 Kbps] <Minimal, Deep, Funky, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.M.P - Distance (Addex Remix] 06:59
-02. John Cosani - Spaceman (Kastis Torrau Remix] 07:36
-03. Yone b - L'Heure Bleue (Nikosf. L'Heure Photographique Remix] 07:08
-04. D.M.P - Distance (Original Mix] 07:30(   Читать дальше...   )Жанр: Minimal, Deep, Funky, Tech HouseПродолжительность: 12:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329C3755473F1E71B9733DD1FB9189A96B47870F
 ```
 
 https://mybot314.ru/tekegram_catalog/

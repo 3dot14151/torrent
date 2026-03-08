@@ -1,3 +1,177 @@
+###  Публикация: 1852965   (1056283) от 10.02.2026
+
+Агата Кристи & Братья Самойловы - Compilation (1988-2025) [MP3|320 Kbps] <Alternative, Gothic rock, Art rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эвтаназия ❂ Резня в Асбесте 2015
+02. 1_1 ❂ Живые, Но Мёртвые 2013
+03. Барон и За Рекой ❂ Маленький Фриц 1990
+04. Бриллиантовые Дороги (& Могилевский А) ❂ Иллюминатор. Песни на стихи Ильи Кормильцева 2017(   Читать дальше...   )Жанр: Alternative, Gothic rock, Art rockПродолжительность: 09:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839FC7DD2EF737138A94DA2A45EBD393A730BBC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852591   (1056159) от 08.02.2026
+
+Ai - No name compilation part 48 Soulful Ballad (2026) [MP3|320 Kbps] <Soulful Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Want You Tonight
+02 - Wise Love
+03 - I Heard You Die in My Dream
+04 - Baby, You're Slipping Away(   Читать дальше...   )Жанр: Soulful BalladПродолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C4F5248B39411184F98449FAD0BD5E4B642B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852489   (1056158) от 08.02.2026
+
+VA - Мелодии и ритмы (Russian Edition) (mixed by Dj V) (2026) [MP3|320 Kbps] <CLub House, Dance, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Моя Мишель x Casso & D-Block Europe - Зима в сердце (Elmy Edit)
+02-BEARWOLF - Посмотри в глаза (Solomon08 Remix)
+03-Время И Стекло x Mind Electric - Имя 505 (Pitchugin Mashup)
+04-Минаева vs Andy Shik & Silver Ace - Шоколадка (DJ Baur VIP Edit)(   Читать дальше...   )Жанр: CLub House, Dance, PopПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F74DD488A8DE555BF18FEE064984022EA8E553B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852466   (1056157) от 08.02.2026
+
+Ai - Russian Covers Part 4 (2026) [MP3|192 - 320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ai - El Condor Pasa  (Полет Кондора)
+02 - K-Pop - Heart Attack (Бьётся Сердце)
+03 - Radůza - Есть Вещи Которые
+04 - Ai - Дом Восходящего Солнца (Русский Кавер)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA66FC55BAD86140DF7EAC8DFD56F25CB37094D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852437   (1056156) от 08.02.2026
+
+VA - Euro Hits 2022 (2022) [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056156.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:36]. 001-Swedish House Mafia - Calling On
+[2:22]. 002-Gran Error & Elvana Gjata & Antonia - Clap Clap
+[2:52]. 003-Inna & Stefflon Don - Yummy
+[3:03]. 004-Doja Cat - Vegas(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 06:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BF74F959027CD95D1EC8EFA94877D5BF996CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852683   (1056149) от 08.02.2026
+
+VA - National Pop Dance Music Vol.128 (2026) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cyril Martin - Feel The Town (03:00)
+ 002. Dara Kinara - Tak Peduli (03:23)
+ 003. Marebo - Wir Sind Nicht Heilbar (06:08)
+ 004. Gazzarino - Ballerina Cappuccina (01:26)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1724C840F903DC2D3030B45D26E6836B970835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852450   (1055974) от 08.02.2026
 
 VA - RnB Urban Friday Party (2024) [MP3|320 Kbps] <R&B, Funk, Soul>
@@ -571,180 +745,6 @@ VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:089EC6BD2CE8097B5DAAFCD29B09374067741A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850548   (1054403) от 28.01.2026
-
-VA - Music News For Forum vol.159 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054403.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DINARA - Синоним любви (02:53)
- 002. Kolaba & Dima PROKOPOV - Зробіть гучніше (03:03)
- 003. Y.K. Music - Танцюй зі мною (03:22)
- 004. Abstract Vision & WELLHALLA & Echo Sonum - Токио, Лондон, Париж (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 19:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF5BBED8C7E908808372A2F570D22922CC4856C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849945   (1054347) от 28.01.2026
-
-VA - Russian Rock 2025 (2025) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054347.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:58]. 001-Инкогнито - Январь
-[2:46]. 002-Диана Арбенина - Вот и я
-[4:10]. 003-7Б - Я люблю её
-[3:53]. 004-Сурганова и Оркестр - Здравствуй(   Читать дальше...   )Жанр: rockПродолжительность: 07:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5ABBCE5D6FBA8A8C138F10FBC0B57C9423FED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850221   (1054262) от 26.01.2026
-
-VA - Winter Drive On FM Waves (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054262.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ezra Jot - Bang O Bang (03:31)
- 002. Little Rainy - Be Closer (03:01)
- 003. Paul B.Ny - Clouds In My Coffee (02:05)
- 004. George Mars - Crown On (02:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0764271979D9E17BEADF535E9402E2E3DB346AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850373   (1054160) от 27.01.2026
-
-Elise - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Vocal, Easy listening, French Deep House, AI>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bonne Nuit
-02 - Décembre
-03 - Disparu
-04 - Noël(   Читать дальше...   )Жанр: Vocal, Easy listening, French Deep House, AIПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CC4C67612674AB819C6B3B84C5AF4E295FE906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849594   (1054076) от 25.01.2026
-
-VA - Solo Projects From The Rolling Stones (1971-2024) [MP3|320 Kbps] <Rock, Blues, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Nobody Minding Your Store. live 1978 (Swindon Arts Centre) ❂ Anthology 2023
-02. All Or Nothing At All (& Bernard Fowler) ❂ Long Ago & Far Away 1996
-03. Bewitched, Bothered & Bewildered (& Bernard Fowler) ❂ Warm & Tender 1993
-04. For All We Know (& Bernard Fowler) ❂ Warm & Tender 1993(   Читать дальше...   )Жанр: Rock, Blues, JazzПродолжительность: 12:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D1AA621BB1565ED077719970AFAAE09D525997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849999   (1054052) от 25.01.2026
-
-Jupiter Panic - Collection [MP3|320 Kbps] <New Age, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise (3:38)
-02. Time Surfer (5:59)
-03. Departure (4:07)
-04. Synthetique (4:53)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 04:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B678CCD23B786461B3CA1715DC21A33B18B641
 ```
 
 https://mybot314.ru/tekegram_catalog/

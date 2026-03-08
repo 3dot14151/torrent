@@ -1,32 +1,3 @@
-###  Публикация: 977385   (965311) от 21.01.2016
-
-БИ-2 - Лучшее (2010) 2CD, Compilation [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Реки Любви (04:08)
-02. - Шамбала (03:35)
-03. - Достучаться До Небес (05:30)
-04. - Мой Рок-Н-Ролл (06:45)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019595A0D1F64DC7DE7E320D942492D95E9DA12C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359206   (965180) от 11.02.2020
 
 Arborist - A Northern View (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock, Country-Alt>
@@ -757,6 +728,35 @@ Critical Solution - Sleepwalker (2015) [MP3|320 кб/с] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:268634A76EAEF598A7E7EFC10CC9479F9F7A987C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978454   (963708) от 23.01.2016
+
+Resurrection Kings - Resurrection Kings (2016) Japanese Edition [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963708.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Distant Prayer (4:36)
+2. Livin' Out Loud (5:27)
+3. Wash Away (3:57)
+4. Who Did You Run To (4:46)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C63E78D5A556EFB285D2E97B6263F250C0E78A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

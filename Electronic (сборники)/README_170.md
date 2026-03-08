@@ -1,3 +1,32 @@
+###  Публикация: 959353   (317194) от 24.11.2015
+
+VA - Charming Bourgeois Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beach Solaire - Autentico - Original Mix
+02. Dee Lice - Derize - Chill Groovers Mix
+03. Maurice Sanders - Oise - Original Mix
+04. Room 100 - Reminiscing - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688A1734558FEDF3E2D91184B52854E0BB2BAF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182267   (317171) от 10.11.2017
 
 VA - Games At Sunset: Psy Goa Trance (2017) [MP3|320 Kbps] <Psy, Goa Trance>
@@ -751,35 +780,6 @@ VA - Радио Рекорд - Record Club за 23.11.2016 [MP3|320 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26D98247780CD6FC2226CE718020C11696101862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260015   (314025) от 06.11.2018
-
-VA - Soulful House & Chillout from 2000 to 2017 [Re-compiled by Firstlast] (2018) [MP3|192-320 Kbps] <Chillout, Deep House, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radio Silence - What the Wind Brings [3:51]
-02. Dr Freebs - Luce [5:59]
-03. Sacral Reason - Deux Coeurs [6:34]
-04. Bianco Soleil - Maybe Friends [3:50](   Читать дальше...   )Жанр: Chillout, Deep House, Funky HouseПродолжительность: 108:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819576DC95949C0834CA023D4CF7F63145CEF6E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,38 +1,3 @@
-###  Публикация: 459880   (95479) от 04.03.2012
-
-Onkel Tom Angelripper - Nunc Est Bibendum (2011) [MP3|320 кб/с]<Thrash Metal, Beer Metal, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nunc Est Bibendum (02:47)
-02. Wenn Der Zapfhahn Kraeht (03:45)
-03. Auf Immer Und Ewig (04:48)
-04. In Junkers Kneipe (02:58)
-05. Format C (04:15)
-06. Bier (03:51)
-07. Wie Das Glas In Meiner Hand (02:31)
-08. Lemmy Macht Mir Mut (02:38)
-09. Bon Scott Hab Ich Noch Live Gesehen (04:06)
-10. Schade, Dass Man Bier Nicht Ficken Kann (02:59)(   Читать дальше...   )2011Жанр: Thrash Metal, Beer Metal, MetalПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53DDA1BB85D3C81EC6177EC7AB6D4C1E691D369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 458631   (94489) от 26.02.2012
 
 Mena Brinno - Icy Muse (2007) [MP3|192 кб/с]<Symphonic Gothic Metal>
@@ -820,6 +785,35 @@ Limuria - Lost World (2025) [MP3|320 Kbps] <Progressive Metal, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28D6924B0FF1B7B71C307DCD53966E1BCC1CF143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783701   (69742) от 07.03.2025
+
+Throne Of Iron - Adventure Two (2025) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denied (5:31)
+02. The Oath (4:50)
+03. Divine Smite (5:03)
+04. The First Loss (1:17)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6884AEA98A3A1D9A9A1B068FDB184931ADE4F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

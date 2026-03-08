@@ -1,3 +1,32 @@
+###  Публикация: 1771292   (31891) от 05.01.2025
+
+VA - Morning Chill Lounge Vibes (Relaxing Background Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kóstja - Horses (4:06)
+02.  Paolo Sessa - Because Of You (3:34)
+03.  Diego Damiani - Bookworm (2:04)
+04.  Francesco Montisano - Growing Up (2:00)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE57F4D8F335C185F79509B44810C9EE6AE82D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771295   (31887) от 05.01.2025
 
 VA - Songs To Make You Sweat (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
@@ -716,35 +745,6 @@ V.A. - 00s Love Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FB048D9CE503E176F77B21CC03D3DFB305610A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797592   (17989) от 17.05.2025
-
-Britney Spears - Oops!... I Did It Again (2000) 25th Anniversary Edition, 2025, Sony Music [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oops!...I Did It Again [00:03:31]
-02. Stronger [00:03:23]
-03. Don't Go Knockin' on My Door [00:03:43]
-04. (I Can't Get No) Satisfaction [00:04:25](   Читать дальше...   )Жанр: PopПродолжительность: 01:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B26AC0EC9D2E5339C34AFDD292086835E68829
 ```
 
 https://mybot314.ru/tekegram_catalog/

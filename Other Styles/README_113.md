@@ -1,3 +1,32 @@
+###  Публикация: 945435   (428644) от 12.10.2015
+
+Мельница - Алхимия (2015) [MP3|320 кб/с]<Folk, Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaudete
+ 02. Анестезия
+ 03. Марсианский экспресс
+ 04. Никогда(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45CD8035D543E208139644C42B6D729149BC474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250048   (428573) от 26.09.2018
 
 V.A. - Александр Зацепин: Лучшие песни из кинофильмов (1996) [APE|Lossless|image + .cue] <Soundtrack>
@@ -720,35 +749,6 @@ Trevor Rabin & Harry Gregson-Williams - Enemy of the State (1998) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661AE7CF4250A577D87F9FC3ED328A19611140C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167020   (419719) от 19.09.2017
-
-VA - About Time (2013) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ben Folds - The Luckiest (About Time Version)
-02 - Jon Boden, Sam Sweeney & Ben Coleman - How Long Will I Love You
-03 - Paul Buchanan - Mid Air
-04 - Groove Armada - At The River(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192326670E5D27B0D124FFDB7462202186700B39
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 601619   (998020) от 11.01.2013
+
+VA - Зимние Хиты На Love Radio (2013) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Тина Кароль - Вьюга-Зима
+002 Far East Movement feat. MNEK - Christmas In Downtown LA
+003 Bass Ace feat. DJ Skazka - Начнем Сначала
+004 Avicii feat. Andreas Moe - Last Dance (Vocal Radio Mix)
+005 А-Студио - Хочу Влюбиться
+006 Mylene Farmer - A L'ombre
+007 Диверсанты и Маня - Замуж За Деда Мороза
+008 Aura Dione - In Love With The World
+009 Лера Кондра - Кошка
+010 Movetown feat. Ray Horton - Here Comes The Sun (Radio Edit)(   Читать дальше...   )Жанр: РорПродолжительность: 06:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE87AAB54BBA599215BEBAC73D7D0957ABABF37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602693   (997582) от 13.01.2013
 
 VA - Muz Эйфория Зимы (2013) [MP3|256 кб/с]<Pop,Dance>
@@ -866,35 +901,6 @@ VA - Слушай и танцуй. Лучшие хиты 2 (2013) [MP3|256 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF8CA36D2EDE440E13A1E8A2A82914DEBA0BC3BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353771   (990797) от 19.01.2020
-
-VA - German Top 100 Single Charts 17.01.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Tones and I - Dance Monkey
-03. Apache 207 - Roller
-04. Dardan - 6AM.........(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1FC30887210B76F2EEFB79AA03C06FA3A8D813
 ```
 
 https://mybot314.ru/tekegram_catalog/

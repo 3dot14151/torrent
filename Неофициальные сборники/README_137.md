@@ -1,3 +1,177 @@
+###  Публикация: 1379518   (839575) от 29.04.2020
+
+VA - Jump Urban: Hard Dub Party (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839575.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hard5hooterz - Next Termination
+002. Ophidian - Bring On The Orchestra
+003. Repix - Lost
+004. The Style Creators - Feel Alive(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 07:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758E1339BAD581D244D79F3B6568304649F41F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379527   (839569) от 29.04.2020
+
+VA - Pluto Loves You (2020) [MP3|320 Kbps] <Alternative Rock, Rock, Indie Rock, Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cloud Room - Hey Now Now
+02. The White Stripes - Seven Nation Army
+03. The Subways - Rock And Roll Queen
+04. Depeche Mode - Wrong(   Читать дальше...   )Жанр: Alternative Rock, Rock, Indie Rock, Punk RockПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E1836D181783ADEF36290304905AD6200CE75C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379521   (839565) от 29.04.2020
+
+VA - Beatport Chillout: Electro Sound Pack #70 (2020) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pearldiver - Hold 'em Down
+002. Absentune - Todo Sigue
+003. Marcelo Berges - Montañas
+004. Giovanni Lucchetti - Su Tramont(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 07:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAFBFFF7142A3215F0A6AE663CF4DC6C671D89C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379526   (839559) от 29.04.2020
+
+VA - Ice Cream (2020) [MP3|320 Kbps] <Dance, Pop, Electro, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839559.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Illenium - Angel (Intro)
+02. Skrillex, Boys Noize, Ty Dolla $ign - Midnight Hour(   Читать дальше...   )Жанр: Dance, Pop, Electro, Deep HouseПродолжительность: 04:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFEFB5BD6BCB76050EE7367244E9E7E5DBA9C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112954   (839523) от 10.03.2017
+
+Joe Bonamassa - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reconsider Baby
+02. You Upset Me Baby
+03. How Many More Years
+04. Stop!(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744BF8C4EB1268ACAD6AE96EE00113DEF7808FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379565   (839459) от 29.04.2020
+
+VA - Acoustic Rock vol.6 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Doors Down - It's Not My Time - Acoustic (03:58)
+02. Alice In Chains - Got Me Wrong - Live at the Majestic Theatre, Brooklyn, NY - April 1996 (04:23)
+03. Chris Cornell - Black Hole Sun - Recorded Live At Red Robinson Show Theatre, Vancouver, Canada on April 30, 2011 (04:37)
+04. Default - Wasting My TimeЖанр: RockПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5A5A61F1A6A999E642EA74BAAFA83C01DF3D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379523   (839455) от 29.04.2020
 
 VA - Beatport Electro House: Sound Pack #72 (2020) [MP3|320 Kbps] <Progressive House>
@@ -565,180 +739,6 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #161 (2016) [MP3|320 кб/с] <Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5213BD6D33DF027C3168BB5F3AF292CFC4BA86E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004280   (838522) от 06.04.2016
-
-VA - Deeper Than Deep: A Brilliant Selection of Soulful Deep House Grooves (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dava Di Toma - My Way
-02. Zirkuskind - People Are People - Christian Bruder Long Beach Style Mix
-03. 7Register - Arizon
-04. Joyfull Family - Fresh(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B005FCBBDFCFBD92A1CE1F575B5F08B18E3EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004493   (838521) от 06.04.2016
-
-VA - Miami The Warm Up (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BRKLYN - Steal Your Heart (Bougenvilla Radio Mix) (feat. Lenachka) 02:53
-02. Noah Neiman - Meteorites (Original Mix) (feat. Haliene) 04:58
-03. WildOnes - You Dancing (Inpetto Remix) (feat. David Julien) 04:27
-04. Audien - Keep This Memory (Original Mix) 08:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0599BD704010FEBA08BACDF992B8618FADF5575B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004376   (838520) от 06.04.2016
-
-VA - Innocent Magic Future Spring (2016) [MP3|320 кб/с] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciro Visone The - Drive (Glynn Alan Remix) 08:37
-02. Lema & Shafer Ft Roxanne Emery - Summer Air (Chris Metcalfe Remix) 07:11
-03. Attila Syah - When I See You Smile (Original Mix) 07:20
-04. Emanuele Braveri & Lisaya - Victory (Original Mix) 07:40(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 09:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DCF32DDF30E8D625E9B2F210A9DD015F86BE307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113262   (838418) от 11.03.2017
-
-VA - German Top 100 Single Charts 10.03. (2017) [MP3|320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838418.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Shape of You 3:54
-002. Kygo & Selena Gomez - It Ain't Me 3:41
-003. Ed Sheeran - Castle on the Hill 4:21
-004. The Chainsmokers & Coldplay - Something Just Like This 4:08(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 05:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7763B756FEF4945987EE7C3A9BC041D28AA93974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113264   (838322) от 11.03.2017
-
-VA - The Disco Swing (2017) [MP3|320 Kbps] <Electro Swing , Nu Jazz>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838322.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gary Caos & Rico Bernasconi feat. In-Grid - La Trompette (Bernasconi Radio Edit) 3:01
-002. The Klaim - Candy Girl (Radio Edit) (feat. Federica) 3:21
-003. Sugarpie and the Candymen - Lemon Tree 4:10
-004. Stereo Swing - Big City Dandy (Feat. Szucs Gabi & Koos Hutas Aron) 4:13(   Читать дальше...   )Жанр: Electro Swing , Nu JazzПродолжительность: 05:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93CAA183AFC2D2834555BAA74CC5146E488878E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113236   (838313) от 11.03.2017
-
-VA - Только хиты. Русский сборник от Хит fm выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838313.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mad Show Boys - Песенка Бобыля 3:00
-002. Аполлинария - Околдована 3:00
-003. Magic - Плохое Поведение 3:26
-004. Руслан Квак - Дерзкие Танцы 3:28(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C517C9DA45D23FAA0F08349FD45788E435002A
 ```
 
 https://mybot314.ru/tekegram_catalog/

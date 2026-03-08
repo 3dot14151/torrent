@@ -1,32 +1,3 @@
-###  Публикация: 541796   (832865) от 20.03.2015
-
-Lord Of The Lost - 5 Альбомов (2010-2015) Дискография [MP3|320кб/с]<Gothic Metal, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porcelain
-02. Lost In A Heartbeat
-03. Annabel Lee
-04. So Good It Hurts(   Читать дальше...   )Жанр: Gothic Metal, Gothic Rock |Продолжительность: 07:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7839BAD64FC9F448AA87277188263808BE6388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005514   (832720) от 09.04.2016
 
 Accuser - The Forlorn Divide (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -748,6 +719,35 @@ Peter Straker - This One's On Me (2020) Deluxe Expanded Edition, 3CD Box-Set [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:654E41969C7C9F3B6B96C6F80BBC3F71EA0752A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380686   (831583) от 04.05.2020
+
+Lord Vigo - Danse De Noir (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Epic Metal, NWOBHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voight Kampff Situation (0:38)
+02. Danse De Noir (6:20)
+03. Are You Human (0:58)
+04. The Verge Of Time (6:10)(   Читать дальше...   )Жанр: Doom Metal, Epic Metal, NWOBHMПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC470897FE0C8E0AC4973E8A5C40B807356E9AB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

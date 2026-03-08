@@ -1,3 +1,61 @@
+###  Публикация: 1381726   (824590) от 08.05.2020
+
+Александр Подболотов - Русские песни и романсы (2006) [FLAC|Lossless|tracks + .cue]<Романсы, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Калинка
+02. Очи чёрные
+03. Коробейники
+04. Вечерний звон(   Читать дальше...   )Жанр: Романсы, РетроПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA61B742169B98191F4DA8FF8D15E17805CDCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381788   (824476) от 08.05.2020
+
+Анита Цой - Нации победителей посвящается... (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824476.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вступление (Юрий Левитан, 8 мая 1945 год)
+2. Офицеры
+3. В землянке
+4. Тёмная ночь(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBEFDBDD6BD9872D873FF2A4698C50D8C4D1B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381786   (824463) от 08.05.2020
 
 Little Big - Hypnodancer (2020) Single [MP3|320 Kbps] <Pop>
@@ -682,64 +740,6 @@ Judy Cheeks - Mellow Lovin’ (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A9A32706FEF296DA0CA3E40687497E47D1EDFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196745   (820740) от 04.01.2018
-
-VA - Dance Hits Explode (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Bjur – Paper Hearts 2:59
-02. Julie Griffin – Party Part 2 3:55
-03. Thomas Papadopoulos – Proxima 4:16
-04. Shifter X – Rolling Ball 2:45(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633DD856EB7629B48674C856BDD1CC029A4488AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196730   (820630) от 04.01.2018
-
-Зола - Кровожадная (2017) EP [MP3|320 Kbps] <Indie Pop, Indie Rock, Electronic>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кровожадная
-02. Вопросы
-03. Париж
-04. Не взрывай(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, ElectronicПродолжительность: 00:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDDE48CF0B4DBC4893B99B28D9DD0652F1C5166
 ```
 
 https://mybot314.ru/tekegram_catalog/

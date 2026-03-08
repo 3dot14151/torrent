@@ -1,3 +1,32 @@
+###  Публикация: 1265114   (276364) от 26.11.2018
+
+VA - Top50: Tracks Deep House Ver.6 (2018) [MP3|320 Kbps] <House, Deep House, Club Hose>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren & DJ Shah feat. Chris Jones - Going Wrong (Quba Remix) 6:52
+02. DJ Goja - You And Me (Original Mix) 3:03
+03. Maruv - Shame On You (Kolya Funk & Shnaps Remix) 4:07
+04. Stevie Wonder - I Just Called To Say I Love You (Hippocat & Fresh-Art Remix) 5:12(   Читать дальше...   )Жанр: House, Deep House, Club Hose, ProgressiveПродолжительность: 04:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC66C90CD9BBE8E4444C21A0EFAB8917FB830585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337234   (276248) от 09.11.2019
 
 VA - Record Super Chart 612 (2019) [MP3|320 Kbps] <Pop, House, Dance>
@@ -713,35 +742,6 @@ VA - Chill Space Electronic (2019) [MP3|320 Kbps] <Chillout, Ambient, Lo-Fi, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68166C82C92CF7AB1007ABD01630FDAAB7C6E53C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188779   (273678) от 03.12.2017
-
-VA - Flows Techno Minimal (2017) [MP3|320 Kbps] <Minimal, Techno, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insect Elektrika - Oh My Oh My
-02. Convextion - New Horizon
-03. Harry Romero - Revolt
-04. Darksome Notes - Short(   Читать дальше...   )Жанр: Minimal, Techno, ClubПродолжительность: 09:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82C09A133517A9830EC142358133312D80AA01E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1817177   (3729) от 08.09.2025
+
+VA - Greatest Hits from The Roaring Twenties: The Sound of the Jazz Age (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Skip Martin & His Prohibitionists - Charleston (3:03)
+02.  Lonnie Donegan - Ice Cream (2:43)
+03.  Slim Pickins & His Twenty-Niners - Yes Sir, That's My Baby (2:25)
+04.  Kenny Ball and His Jazzmen - Puttin' On the Ritz (3:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166C2697808680FCBC931606B556980E6A0BFAB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817349   (3432) от 10.09.2025
 
 Julie London - Five Classic Albums (1955 - 1960) 2CD, 2023, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>

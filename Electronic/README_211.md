@@ -1,3 +1,61 @@
+###  Публикация: 903126   (659313) от 30.05.2015
+
+VA - Taste Of Chillhouse (2015) [MP3|320 кб/с]<Chillout, Chillhouse>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maremare - Unexpected Weather [06:58]
+02. Aba Abas - Something Happened With The Beat [06:25]
+03. Felicia Bye - Never Too Late [06:36]
+04. FL Acid - Not What I Was Expecting [06:32](   Читать дальше...   )Жанр: Chillout, ChillhouseПродолжительность: 01:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EDC9D558E7CF2F8572BC1FF4DD032C9A7C6EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903140   (659309) от 30.05.2015
+
+VA - Cala de Boix Ibiza Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lounge oo Lounge - Sunset [08:13]
+02. Marie Parline - Da Di Da Da [03:55]
+03. Lorenzo Casanova - Vila Mimosa - Make Love Not War Boogie [04:47]
+04. Yan Gillis - Gullivers [04:33](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35ADC97426997CBFBC77E3681A7F34CDBB3E5F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902608   (659307) от 30.05.2015
 
 VA - Lounge Expo Compilation (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ VA - Vocal Trance Classics Top 40 (2022) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:985D44E8745CE2A8EB0DC19A47AD9A3E3ABCB495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139978   (658125) от 04.06.2017
-
-VA - Power Dance Workout Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simply Bass – Ibiza Nights (Radio Version) (4:16)
-02. Houseraiderz – Pump up the Volume (Single Version) (3:51)
-03. Electric Passion – Axel F (Radio Version) (3:14)
-04. Age of Dance – Highscore (Home Entertainment Version) (3:46)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2459A4CA5A76656EF8B6367473B516FBC5949E3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539196   (658124) от 25.03.2022
-
-Sexy Chillout Music Cafe - Chillout Piano Bar Lounge 2022 [FLAC|Lossless|WEB-DL|tracks] <Chillout, Instrumental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ibiza Chillout Party (2:49)
-02. Finest Chillout Music (2:58)
-03. Deep Chill (2:59)
-04. Music for Holiday (2:34)(   Читать дальше...   )Жанр: Chillout, InstrumentalПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799D583256B04615265838F72159AA02156A8964
 ```
 
 https://mybot314.ru/tekegram_catalog/

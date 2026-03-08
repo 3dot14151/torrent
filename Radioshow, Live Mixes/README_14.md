@@ -1,3 +1,61 @@
+###  Публикация: 1330350   (339102) от 11.10.2019
+
+VA - Live @ Ultra Music Festival Japan (2019) [MP3|~245 Kbps (V0)] <Trance, Techno, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash Berlin @ Mainstage, Ultra Music Festival Japan 2019-09-15:
+01. Intro
+02. Omnia & Whiteout - U
+03. Alan Walker - Faded (Dash Berlin Remix)(   Читать дальше...   )Жанр: Trance, Techno, Progressive HouseПродолжительность: 05:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76AA7417BBC868A94F157961D278A9B1D2CB708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581736   (326410) от 06.10.2022
+
+VA - Paratov Live 2022.08.13 (Mixed and Compiled by DJ Suhov) (2022) WebDLRip [MP3|224 Kbps|tracks, image + .CUE] <House, Tribal House, Club House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Paratov Live 2022.08.13 (Mixed and Compiled by DJ Suhov) (86:47)
+02. John Summit & Guz feat. Stevie Aplleton - What A Life (3:35)
+03. Alok, Ella Eyre & Kenny Dope feat. Never Dull - Deep Down (3:21)
+04. Malone & Calussa - Bessame (4:18)(   Читать дальше...   )Жанр: House, Tribal House, Club HouseПродолжительность: 02:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E39A259A53DD702782ED4328E09FC688A7E503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181536   (323825) от 07.11.2017
 
 VA - Markus Schulz - Global DJ Broadcast - (Amsterdam) (2017) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ Neptune Project - Live @ Lost in Trancelation, Bikkuri Lounge Orlando, United St
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF999124C974CB0499E1755E532A9B012E995DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335433   (287910) от 02.11.2019
-
-Euphoric Nation - Live @ Armory Minneapolis, United States 2019-10-26 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287910.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Clawz SG - Xanax
-2. Estiva - Eclipse
-3. David Wise - Aquatic Ambience (Wæde Wätts Remix)
-4. Andretta - Fragments(   Читать дальше...   )Жанр: TranceПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278C29ABD65D8F9094CED82A84FD0ABCF53EA435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335414   (287863) от 02.11.2019
-
-Timmy Trumpet - Tomorrowland One World Radio Halloween Freak Show 2019-11-01 [MP3|320 Kbps] <Electro House, Hardstyle>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carnage ft. Timmy Trumpet & KSHMR - Toca
-02. Timmy Trumpet ft. Charlott Boss - Therapy
-03. Carnage & Timmy Trumpet ft. Wicked Minds - Nah Nah
-04. Knife Party - Internet Friends(   Читать дальше...   )Жанр: Electro House, HardstyleПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE20DE30B60B9FEF6931729D43DBB1C20ABD19A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

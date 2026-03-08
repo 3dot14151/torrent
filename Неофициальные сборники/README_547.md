@@ -1,3 +1,195 @@
+###  Публикация: 496967   (253432) от 16.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 41 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CC9B16D137A91B8543EE688FC071C5ED79405F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496421   (253425) от 16.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 39 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E7E8C8ABDC809CD1714E49AD76FB7B379181BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497521   (253411) от 16.05.2012
+
+VA - Хитовый Рай Версия 50/50 (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Roxette - Lover, lover, lover
+002 Потап и Настя - Прилелето
+003 Sak Noel - Paso (The Nini Anthem)
+004 In2Nation - Скажи мне как жить
+005 The Scene & Selena Gomez - Love you like a love song (The Alias radio edit)
+006 Пропаганда & MC Джимми - Хабиби
+007 Javi Reina & Alex Guerrero & Syntheticsax - Oig 2011 (DJ V1t & Fast Food remix)
+008 Руслана - ЕЙ-форі-Я!
+009 Leventina - Freak it out
+010 Диверсанты - Мама Люба Дала Бы2012Жанр: Pop,DanceПродолжительность: 05:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0137EC1169C906B160A76A80D10D625838FFBA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497504   (253408) от 16.05.2012
+
+VA - Lifetime Of Romance (2004)(18CD) [MP3|~225 кб/с (V1)]<Easy Listening / Oldies / 50s, 60s, 70s, 80s>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lifetime of Romance - Be my Love
+
+Disc 1:
+
+01. Mona Lisa - Nat King Cole
+02. Are You Lonesome Tonight? - Elvis Presley
+03. That's Amore - Dean Martin
+04. Moon River - Henry Mancini
+05. Love Letters In The Sand - Pat Boone
+06. Three Coins In The Fountain - The Four Aces(   Читать дальше...   )2004Жанр: Easy Listening / Oldies / 50s, 60s, 70s, 80sПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F8AB58A792F3B9216C27A1518DFC933088861B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497515   (253373) от 16.05.2012
+
+VA - XXXL Зарубежный Топ Сезона (2012) [MP3|320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danjel Summers - Set Free (Radio Edit)
+002. Arash - Melody (Radio Edit)
+003. Maxx - No More (I Cant Stand It) (DJ Cargo Bootleg Mix)
+004. Ray Charles - Hit The Road Jack (Freaky DJs Bootleg)
+005. Nicole Scherzinger - Try With Me (Cahill Radio Edit)
+006. G-Spot - Luxurolux (Radio dirty version)
+007. Martin Silence Feat. Kika - Me And You
+008. Richard Marx - When You Loved Me
+009. Alyssa Reid feat. Jump Smokers - Alone Again (Uk Radio Edit)
+010. Avril Lavigne - Wont Let You Go2012Жанр: Pop,DanceПродолжительность: 06:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1748D5CB20B73291D363E9A6088ABD26BF18EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497238   (253343) от 16.05.2012
+
+VA - Танцевальный клубный поп хит vol.7 (2012) [MP3|256 кб/с]<Pop,Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Project - Musica (Extended)
+02. Anton Neumark & Re-Zone - Time (DJ Winn, Anton Neumark's Re-Remix)
+03. Emin - Сердце Бьётся
+04. Чугунный Скороход - Afterparty (Smotrov DrumBase Mix)
+05. DJ Цветкоff & Оля Милакса - Белая ночь (Dj Amor remix)
+06. Братья Грим - Парашюты
+07. Dna Family - Когда Любовь Живет
+08. Avicii - Fade Into Darkness (Radio Vocal Mix)
+09. MaSha GoYa - Безумно Влюблена
+10. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck with you2012Жанр: Pop,Dance, ClubПродолжительность: 06:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F43EF5DA448C76A7C9F3E4F04FB88BA6B54CEA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496748   (253245) от 15.05.2012
 
 VA - The Best Singles Of All Time (2008) [MP3|320 кб/с]<Pop, Rock, Oldies>
@@ -634,186 +826,6 @@ VA - #006 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03F111037D1682422CDFB2D22F68F3C72421B367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836189   (252472) от 09.11.2025
-
-VA - Music News For Forum vol.146 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252472.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. JANNA RAY - Стреляй (03:08)
- 002. 2xA & GSG - Sky is Falling (01:55)
- 003. 5 Seconds of Summer - Boyband (02:57)
- 004. Alessi Rose - Get Around (02:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CDBA824F5996D8859F9B24AA0C637170517143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836269   (252428) от 09.11.2025
-
-VA - No name Sultry & Soulful Jazz  compilation (2025) [MP3|320 Kbps] <Sultry & Soulful Jazz, Smooth Jazz Ballad>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Betty Fairchild - The Reckoning
-02 - Betty Fairchild - Last Song for You
-03 - Betty Fairchild - One Last Goodbye
-04 - Betty Fairchild - Goodnight, My Forever Love(   Читать дальше...   )Жанр: Sultry & Soulful Jazz, Smooth Jazz BalladПродолжительность: 01:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09CF678B4359BC9433734C09E5E957BE607CFFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836266   (252426) от 09.11.2025
-
-Chicago Blues Radio - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - After-Hours Glow (Cover)
- 02 - As the Years Go Passing By (Cover)
- 03 - Midnight Ashes (Cover)
- 04 - Midnight Blues (Cover)(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 02:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B02380AB2E805EB36D7E11142FD33BACB4EBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836299   (252412) от 09.11.2025
-
-VA - 60 minutes. Old School Dance Music vol.30 (Special 90's) (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Euro House, Hip House, Euro Dance, Euro Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Black Box - Ride On Time (Massive Mix)
-02-Vision Masters & Tony King Feat. Kylie Minogue - Keep On Pumpin' It (Astral Flight Mix)
-03-Ce Ce Peniston - Finally (Erick Kupper Classic Funk Mix)
-04-Nightcrawlers - Push The Feeling On (MK Mix 95)(   Читать дальше...   )Жанр: Club House, Euro House, Hip House, Euro Dance, Euro TranceПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021862F5FDDCD49681353B73A90DAC2733D7D050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495708   (252378) от 13.05.2012
-
-VA - Time Life - Sounds of the Eighties (1980-1989)(10CD) [MP3|~245 кб/с (V0)]<pop, rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252378.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roxette - The Look (3:57)
-2. Tears for Fears - Sowing the Seeds of Love (5:46)
-3. Love and Rockets - So Alive (4:14)
-4. Martika - Toy Soldiers (4:40)
-5. Bad English - When I See You Smile (4:20)
-6. Donny Osmond - Soldier of Love (3:52)
-7. Michael Damian - Rock On (3:23)
-8. Debbie Gibson - Lost in Your Eyes (3:35)
-9. Sheriff - When I'm With You (3:56)
-10. Tone-Loc - Funky Cold Medina (4:13)(   Читать дальше...   )1980-1989Жанр: pop, rockПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D03E5FA795974414F64780E8B5FE0CE450EAFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327541   (252118) от 21.05.2023
-
-VA - Понемногу отовсюду by Yuridar #M-N (1958-2020) Compilation Album [MP3|192-320 Kbps] <Rock, Blues, Others>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Macelleria Mobile di Mezzanotte - In the Still of the Night
-02. Macelleria Mobile di Mezzanott - Just You and I
-03. Macelleria Mobile di Mezzanott - Kennedism
-04. Macelleria Mobile di Mezzanotte - The Big Nowhere(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 10:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4721EEAE7EE725C62E7AD6F1D29CD4284135B1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

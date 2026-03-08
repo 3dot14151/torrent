@@ -1,3 +1,38 @@
+###  Публикация: 518836   (639110) от 05.07.2012
+
+Al Di Meola & Leonid Agutin - Cosmopolitan Life (2005) [FLAC|Lossless]<Fusion, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_639110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuba Africa – [05:34]
+02. Cosmopolitan Life – [04:09]
+03. Nobody – [04:47]
+04. Price to Learn – [05:27]
+05. Tango – [03:54]
+06. Smile – [04:19]
+07. Portofino – [03:37]
+08. If I'll Get a Chance – [04:07]
+09. Blue River – [04:44]
+10. Shade of Your World – [06:16]Жанр: Fusion, Latin JazzПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293301   (639050) от 02.04.2019
 
 VA - Midnight Radio - NOIR JAZZ (2016) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Ambient Jazz, Dark Jazz, Doom Jazz, Experimental Jazz>
@@ -712,35 +747,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:649B7F1036EEF02195732B8EC62342DD7602A09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908441   (634254) от 14.06.2015
-
-Yves Rousseau 4tet - Akasha (2015) [FLAC|Lossless|WEB-DL]<Contemporary Jazz, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'eau, Pt. 1 [06:41]
-02. L'eau, Pt. 2 [04:43]
-03. L'eau, Pt. 3 [04:03]
-04. La terre [06:31](   Читать дальше...   )Жанр: Contemporary Jazz, Modern CreativeПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D01B4024531A3E21311591C43F5B5564E68852B
 ```
 
 https://mybot314.ru/tekegram_catalog/

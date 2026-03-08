@@ -1,3 +1,32 @@
+###  Публикация: 1538311   (243384) от 20.03.2022
+
+Junior Mance Trio - Junior's Blues (1963) 1998, Original Jazz Classics [WavPack|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down the Line [5:01]
+02. Creole Love Call [3:23]
+03. Rainy Mornin' Blues [4:03]
+04. Yancey Special [3:04](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Piano JazzПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8553447E5DCAD83271CC9E15A8C733CB0291981A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077720   (243381) от 01.12.2016
 
 National Youth Jazz Orchestra - Unison In All Things (1996) [FLAC|Lossless|image + .cue] <Big Band>
@@ -716,35 +745,6 @@ Jackie McLean Quartet - Tune Up (1966) 1993, SteepleChase [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F806F377C0D371B5BFC58C19B20BDDAA4586F2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097664   (242841) от 29.01.2017
-
-Paul Smith Quartet - Softly, Baby (1957) Remaster, 2011, Capitol[FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Softly [04:19]
- 02.Taking A Chance On Love [04:03]
- 03.Easy To Love [04:00]
- 04.Long Live Phineas [02:36](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1E40BE02430F9BCD5937B8C58602BE24C37842
 ```
 
 https://mybot314.ru/tekegram_catalog/

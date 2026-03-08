@@ -1,3 +1,90 @@
+###  Публикация: 988073   (922895) от 19.02.2016
+
+Skirmish - Through the Abacinated Eyes (2011) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Premonition
+02.	Conquest
+03.	Insurgency
+04.	Mystery In A Blazing Dream(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257D424E7DE9CB2A74FB31966EE8BBA5FF491D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095761   (922873) от 22.01.2017
+
+Black Harvest - White Light Came Down (2005) [FLAC|Lossless|image + .cue] <Black Metal, Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die, Lavinia (07:20)
+02. Let Us Go (04:32)
+03. Tamora (06:39)
+04. Remnant (06:44)(   Читать дальше...   )Жанр: Black Metal, Doom, Death MetalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B067A35FAB4AD50C1684AE6392572441072ACBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489959   (922547) от 18.08.2021
+
+Soulline - We Curse, We Trust (2012) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. The Curse in Our Minds
+02. When We Freeze
+03. Hollow(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E58D444C4E8CDBD790977ECAE73F699CBC5E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489833   (922534) от 18.08.2021
 
 Soulline - Welcome My Sun (2015) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -658,93 +745,6 @@ Tygers Of Pan Tang - Tygers Of Pan Tang (2016) [FLAC|Lossless|image + .cue] <NWO
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B433B91F5E48EC339BA0C4046D08563BD3C309D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989183   (917456) от 22.02.2016
-
-Hisstönend - II (2013) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forest Gates
-02. Glacial Monument
-03. Eternal Shining
-04. Whisper's Cry(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018D3845C558768A5F354DCC1990F7B7B8709847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989182   (917387) от 22.02.2016
-
-Hell Theater - Reincarnation of Evil (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dark Shadows Room
-02. Lady of the Candles
-03. The Room of a Million Voices
-04. Smell of Blood(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D327B9F01DBC6C8639FFD6F3F5A1733601F030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989187   (917379) от 22.02.2016
-
-Hyborian Steel - Blood Steel And Glory (2012) [FLAC|Lossless|image + .cue] <Epic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metal Barbarians
-02. Blood, Steel and Glory
-03. Aquilonian Battlecry
-04. The Mountain of Crom(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39FFC64D750A7C1124A78D8A4CAA751A9FD6431
 ```
 
 https://mybot314.ru/tekegram_catalog/

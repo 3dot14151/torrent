@@ -1,3 +1,33 @@
+###  Публикация: 1412977   (1029922) от 21.02.2021
+
+Peter Donohoe - Mozart: Piano Sonatas. Volume 2 (2019) SOMM Recordings [FLAC 2.0|88.2/24|tracks|WEB-DL] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть обзора Моцарта в исполнении Peter Donohoe была записана в марте 2019 года. Он и команда Somm’s recording возвращаются в Бирмингемскую консерваторию к роялю Bechstein, который идеально звучит без той дерзости, которую мог бы внести Steinway.
+Сонаты представляют собой трилогию, сочиненную во время злополучного путешествия Моцарта в 1777-78 гг. через Мангейм (   Читать дальше...   )Piano Sonata No. 7 in C Major, K. 309:
+01. I. Allegro con spirito (06:11)
+02. II. Andante un poco adagio (05:51)
+03. III. Rondo. Allegretto grazioso (06:08)Жанр: ClassicalПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED1E5A8F10BCE326AFD0171DD530F56D11D3594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413232   (1029914) от 21.02.2021
 
 Otavio de Assis Brasil - The Great Classical Music Played On Accordion (2020) Several Records [FLAC 2.0|48/24|tracks|WEB-DL] <Classical>
@@ -717,35 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B36581F55E0A4C3144F1C50F544325DC6ECFDF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471765   (1014805) от 22.05.2021
-
-Relaxing Classical Piano Music - The Unforgettable Piano Mix (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Lounge>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chopin 24 Preludes, Op. 28 No. 7 in A Major (3:56)
-02. The Piano Melody (3:47)
-03. Chopin 24 Preludes, Op. 28 No. 4 in E Minor (3:45)
-04. Liszt Consolation No. 1 in E Major Andante con moto (3:26)(   Читать дальше...   )Жанр: Classical, LoungeПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B577BB2ADF75AF431274E65D0067618A3047C140
 ```
 
 https://mybot314.ru/tekegram_catalog/

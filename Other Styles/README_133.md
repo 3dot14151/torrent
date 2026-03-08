@@ -1,3 +1,32 @@
+###  Публикация: 1422800   (304158) от 11.11.2020
+
+VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John - Step Into Christmas (4:32)
+02. Bob Seger - Little Drummer Boy - Remastered (3:32)
+03. Frank Sinatra - Have Yourself A Merry Little Christmas - Remastered (3:26)
+04. Bobby Helms - Jingle Bell Rock - Single Version (2:11)(   Читать дальше...   )Жанр: Christmas MusicПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547C7AEBA2ACC62F7A00D17EEABD9D4E00845626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422657   (304155) от 11.11.2020
 
 Tantric Massage Experts - Open New Erotic Feelings of Pleasure and Excitement (2020) [MP3|320 Kbps] <New Age, Relax>
@@ -720,35 +749,6 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 3 (1990) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D91084522EF2E652119060F6A231ED7C4BFE2A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423585   (299651) от 13.11.2020
-
-Riccardo Cocciante - Notre Dame De Paris  (2000) English Version [FLAC|Lossless|tracks + .cue] <Musical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live for the One I Love - Céline Dion (4:02)
-02. The Age of the Cathedrals - Bruno Pelletier (3:24)
-03. The Refugees - Luck Mervil (3:36)
-04. The Bohemienne Song - Tina Arena (5:24)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8445BD0743EEDECCB9D8501F4DA1252AA5014FE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

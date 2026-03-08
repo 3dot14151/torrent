@@ -1,3 +1,32 @@
+###  Публикация: 1291804   (648641) от 28.03.2019
+
+Claire Hastings - Those Who Roam (2019) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lothian Hairst (04:44)
+02. Jack the Sailor (03:50)
+03. Seven Gypsies (03:33)
+04. Sailin's a Weary Life (04:16)(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C193470160CB672D17538CD63F671716DA69271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292020   (648635) от 28.03.2019
 
 Current 93 - Invocations Of Almost (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Ambient>
@@ -732,35 +761,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9C61AC253B1F978E92A7C46E0D30B4DB7B1470F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032520   (644034) от 08.07.2016
-
-John Fluker - 11:11 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awaken [00:02:39]
-02. In the Beginning [00:03:29]
-03. Artificial Time [00:05:33]
-04. The 4th Dimension [00:04:22](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28922E367850679542B0DFB60295157DEA24D8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

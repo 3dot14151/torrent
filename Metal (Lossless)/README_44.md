@@ -1,3 +1,90 @@
+###  Публикация: 976337   (969839) от 17.01.2016
+
+Odin's Court - Turtles All the Way Down (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Turtles All the Way Down, Pt. 1	03:14
+02.	And the Answer Is.	04:22
+03.	But What's the Question?	04:54
+04.	Insomnia	03:40(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A2A946387BC0AAE4BF82E485F3580417A2D207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358243   (969766) от 07.02.2020
+
+Godsticks - Inescapable (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denigrate (03:54)
+02. Victim (06:14)
+03. Relief (05:04)
+04. Surrender (04:45)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E360B8449DE1D62F22BA4EBB156E771BC1BDAEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358185   (969750) от 07.02.2020
+
+Rage - Wings of Rage (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. True (5:02)
+02. Let Them Rest In Peace (4:31)
+03. Chasing The Twilight Zone (4:30)
+04. Tomorrow (5:02)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Speed MetalПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C486C32BE3141F7AD3644DC569577DA83CD320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358266   (969699) от 07.02.2020
 
 Sepultura - Quadra (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Thrash Metal>
@@ -668,93 +755,6 @@ Alaskan - Despair Erosion Loss (2014) [FLAC|Lossless]<Atmospheric Sludge Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F735A56182A891DEEB599E37BACF2FD29830EE09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978993   (961154) от 25.01.2016
-
-Abbath - Abbath (2016) Deluxe Edition [FLAC|Lossless|tracks+.cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To War
-02. Winter Bane
-03. Ashes of the Damned
-04. Ocean of Wounds(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A779287302DFBD071A2AD99BA3F8802242B88570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360533   (960935) от 15.02.2020
-
-Therion - Gothic Kabbalah (2007) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <Sympho Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wand Of Abaris
-02. Three Treasures
-03. Path To Arcady
-04. TOF | The Trinity(   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640DB1B71F58B2D728AB728583C78746FC5305A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360585   (960934) от 15.02.2020
-
-Iced Earth - The Glorious Burden (2004) [FLAC|Lossless|image + .cue] <Thrash Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Declaration Day 05:00
-02.When The Eagle Cries 04:07
-03.The Reckoning (Don`t Tread On Me) 04:56
-04.Attila 05:36(   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91BE28D91B22FF1A535F06F8C208541314376B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

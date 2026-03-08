@@ -1,32 +1,3 @@
-###  Публикация: 1052896   (526696) от 16.09.2016
-
-The Apple Pie Motherhood Band - Apple Pie (2004) [FLAC|Lossless|image + .cue] <Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orangutang 07:32
-02. I Just Want To Make Love To You 04:08
-03. Brown Eyed Handsome Man 03:21
-04. Grandmother Hooker 03:06(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3824980AE02FF5F4CF5670866E5A5CAD70DCE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053128   (526686) от 16.09.2016
 
 TraumeR - Avalon (2016) Japanese Edition [MP3|320 Kbps] <Power Metal>
@@ -739,6 +710,35 @@ Marianas Rest - Marianas Rest (Demo) (2014) [FLAC|Lossless|WEB-DL|tracks] <Melod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2F9ADD864184E7CCD12BEF4C5B89FC11EFD79BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053695   (524441) от 18.09.2016
+
+Aposento - Welcome To Darkness (1997) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Bless Us Satan [4:27]
+02. Discording Blood [5:51]
+03. Serv From Hell [3:35]
+04. Hungry For Flesh [5:19](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C025D5094C4324319FDC60F4D8A05FC24D06D203
 ```
 
 https://mybot314.ru/tekegram_catalog/

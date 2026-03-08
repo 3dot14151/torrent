@@ -1,3 +1,32 @@
+###  Публикация: 986898   (927992) от 16.02.2016
+
+Perico Sambeat - Javier Vercher Quartet: Infinita (2007) 2009, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Infinita [07:05]
+ 02.Puerto Principe [06:35]
+ 03.Pacifico [05:47]
+ 04.Yoruba [06:04](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511733468CB1CE230578CAEF03AB11C736895E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987159   (927986) от 16.02.2016
 
 Stanley Turrentine - The Look Of Love (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -715,35 +744,6 @@ Rod Tate - Back Together (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5451DF1F45665DD4E7DFB03311E689B608F6F7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095651   (924646) от 21.01.2017
-
-Dodo Marmarosa - Dodo's Back! (1961) Remaster, 2007, Universal[FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mellow Mood [03:59]
- 02.Cottage For Sale [04:59]
- 03.April Played The Fiddle [04:09]
- 04.Everything Happeds To Me [04:42](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B503CA8E77C6DDB23D5AF40675F0652908AD74
 ```
 
 https://mybot314.ru/tekegram_catalog/

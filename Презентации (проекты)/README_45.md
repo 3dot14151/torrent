@@ -1,30 +1,3 @@
-###  Публикация: 949108   (376586) от 23.10.2015
-
-Проекты - VideoHive - Television Broadcast News Pack [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для организации вещания новостного канала.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BB3BA349759983C09E68670B2DB15FCFE6152D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327320   (376363) от 24.09.2019
 
 VideoHive - Election Essentials 2020 - 17652168 [AEP]
@@ -677,6 +650,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99C1BCB2EAC9893AD451026712428A055F0BE939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951233   (364947) от 28.10.2015
+
+Проекты - VideoHive - Awards Show Pack - 13256511 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания вашей церемонии награждения.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC4AA7ECF30F59D576D44180155F8567D70CB2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

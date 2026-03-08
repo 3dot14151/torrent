@@ -1,3 +1,177 @@
+###  Публикация: 960819   (305552) от 29.11.2015
+
+VA - Ministry Of Sound: I Love Garage (2015) [MP3|320 кб/с]<House, Dance, Dubstep>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artful Dodger - Re-Rewind (feat. Craig David) [04:03]
+02. Daniel Bedingfield - Gotta Get Thru This (D'N'D Radio Edit) [02:42]
+03. DJ Luck & MC Neat - A Little Bit of Luck [05:51]
+04. M J Cole - Crazy Love [04:38](   Читать дальше...   )Жанр: House, Dance, DubstepПродолжительность: 05:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFCB503DF26B0AF24504FC1333DBEF369DFE6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183819   (305547) от 15.11.2017
+
+VA - Ceremonial Psychedelic (2017) [MP3|195-320 Kbps] <Psy Acid, Psychedelic, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Myad - Mutat Terra
+002. Gyftd - Heartless
+003. Demon Cleaner - What's Wrong With Me
+004. Heavenly Father - Portal Playground(   Читать дальше...   )Жанр: Psy Acid, Psychedelic, ElectronicПродолжительность: 09:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3E501DD7D9443D77BC5C155183190E5197D396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183798   (305543) от 15.11.2017
+
+VA - The Gates: Synthspace Anthology (2017) [MP3|192-320 Kbps] <Synthspace, Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305543.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stars Crusaders - Gemini
+002. Gheist - Advent
+003. Zynic - Would
+004. Andromeda Dreams - Intergalactic Spaceship(   Читать дальше...   )Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 08:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0F15D8CB3F383B29F4CD364B0B6FFAF3DF5D310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333202   (305514) от 24.10.2019
+
+VA - Sunday Voyage: EDM Party (2019) [MP3|320 Kbps] <House, Techno, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305514.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yako Beatz - Streets
+002. Kernel Existence - Skorn
+003. Elian West - Sunshine (Original Mix)
+004. Stad - Good Time(   Читать дальше...   )Жанр: House, Techno, TranceПродолжительность: 11:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39D385D15E37DC0CB80F293A18F2D89B39FF0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333207   (305511) от 24.10.2019
+
+VA - Follow Up: Techno Electronic Set (2019) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305511.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Juan Campos - Rk-4
+002. Davis Parr - Talk (Original Mix)
+003. Manast - Stayed
+004. Rudosa & Hush & Sleep - Syncopation(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 13:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7EC4DD57571A132579F1082C2F88B3715C0CDFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261068   (305463) от 10.11.2018
+
+VA - Disco House: Funky Mix November (2018) [MP3|320 Kbps] <Funky, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305463.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jason Prince - Careless Whisper
+002. Eaze - What You Need
+003. Lexter - Never Gonna Give You
+004. Carol Jiani - Feel It(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: Funky, Disco House
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91B7CB9874BDFD1AA151A9C5C612234B2E67C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261263   (305451) от 10.11.2018
 
 VA - The Official UK Top 40 Singles Chart 09.11.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Other П>
@@ -568,180 +742,6 @@ VA - Золотой граммофон 100 хитов 2016 (2015) [MP3|256 - 320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A4A03AFE2B8B4D95A1154932E8CEE1882A9626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473448   (304956) от 29.11.2015
-
-VA - Русский рок - Фарш (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кошки Jam - Под Вопросом
- 02. Леприконсы - Хали-гали, Паратрупер
- 03. Климбатика - Тьма
- 04. День Триффидов - Против ветра(   Читать дальше...   )Жанр: RockПродолжительность: 04:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD94902A88B8AC4BD2822C57330B5473D61F0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077922   (304824) от 29.11.2016
-
-VA - Звезды Русского радио №2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304824.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ivan Lexx - Она В Меня Влюблена 3:03
-002. Jay Ron - Для Тебя 3:20
-003. Алена Валенсия - Воспоминания 3:56
-004. Дарья Кумпаньенко - Я Выхожу На Млечный Путь 2:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2DB6010D61F805635BA7FF372510AA3A32933C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077852   (304808) от 29.11.2016
-
-VA - 100% Annees 80 Hits, Party, Pop, Disco, Funk (2016) [MP3|320 Kbps] <Synthpop, Chanson, Disco, Funk, Spacesynth, Hi-NRG, Post-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean-Pierre Mader - Macumba 3:40
-02. Stephanie - Ouragan 4:22
-03. Images - Les Demons De Minuit 3:56
-04. Imagination - Just An Illusion 3:54(   Читать дальше...   )Жанр: Synthpop, Chanson, Disco, Funk, Spacesynth, Hi-NRG, Post-DiscoПродолжительность: 02:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49638E3A946A8BA9CE46A0ECFC064A1EE0078376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960828   (304616) от 29.11.2015
-
-Ария - 30 (2015) [MP3|320 кб/с]<Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Мания величия
-02 Тореро
-03 Воля и разум
-04 Без тебя(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5133C2FA80E242A6229895BA79C55A295BFD898A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960829   (304565) от 29.11.2015
-
-VA - Everybody Dance Now!!! (2015) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plazma - One Life (RMX) (03:59)
-02. DJ Dean & Brooklyn Bounce - Balla Nation Reborn (Pulsedriver Bounce Mix) (04:34)
-03. Ranger - You (Angel In My Heart) (Extended Maxi Mix) (06:57)
-04. The Klaim ft. Federica - Candy Girl (Tony Costa Remix) (05:46)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 01:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4CF0E053227A2A7DD4B3B94DD93AE389D33E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960965   (304561) от 29.11.2015
-
-VA - Старое по новому (2015) [MP3|320 кб/с]<Pop, Dance, Cover>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storm DJs & Александр Гужов - Без любви (Руки Вверх! Cover) (04:28)
-02. Иванушки International - Реви (FuzzDead Reboot) (05:53)
-03. Леприконсы - Хали Гали (Alexx Slam Rework) (04:54)
-04. Юра Шатунов - Белые розы (DJ Tarantino ReFresh) (05:09)(   Читать дальше...   )Жанр: Pop, Dance, CoverПродолжительность: 01:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1178C4E82B725F509855F4F8001268986DFBA82
 ```
 
 https://mybot314.ru/tekegram_catalog/

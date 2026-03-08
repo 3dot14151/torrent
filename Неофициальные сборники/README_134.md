@@ -1,3 +1,177 @@
+###  Публикация: 1378802   (844649) от 26.04.2020
+
+VA - Туман (2020) [MP3|256 Kbps] <Pop, Shanson, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Исенгазин Азамат — Туман
+002. Кармаш Михаил — Разбудила меня ночь
+003. Ждамиров Владимир — Удача
+004. Горбушин Игорь и Эля — Ты и я(   Читать дальше...   )Жанр: Pop, Shanson, OtherПродолжительность: 06:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35B2E767F7EB0F39B257D01D02345DCFD297C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378704   (844641) от 26.04.2020
+
+George Harrison - 100% George Harrison (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Singing Om (2014 Mix)
+02. Do You Want To Know A Secret (Remastered 2009)
+03. While My Guitar Gently Weeps (Live From Madison Square Garden, New York, U.S.A, 1971 / 2009 Mix)
+04. Beautiful Girl (2004 Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 04:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C34AAF2FD5E5B4DEC14547E46F61B2CBA059B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795070   (844470) от 02.04.2016
+
+VA - Heavy Gaming Vol.01 - 18 (2014-2015) [MP3|128-320 кб/с]<Rock/Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Klepacki - Hell March (Command & Conquer Red Alert) [00:06:22]
+02. C. PortwinT. StasicaF. Love - Instability (Hunter The Reckoning) [00:02:32]
+03. Yoshihiro Sato - High Powered Drivin (Cyber Org) [00:04:27]
+04. Pentakill - Last Whisper (League Of Legends) [00:03:37](   Читать дальше...   )Жанр: Rock/MetalПродолжительность: 17:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A142F9F0D1E4F3CF6CD02048DC5B7931D2FF8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500005   (844425) от 04.10.2021
+
+Jimi Hendrix - Guitar King (2021)(2CD Compilation) [MP3|320 Kbps] <Rock, Hard Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolly Dagger
+02. Earth Blues
+03. Spanish Castle Magic
+04. Can You See Me(   Читать дальше...   )Жанр: Rock, Hard Rock, BluesПродолжительность: 01:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE556F90E9E12836D5E84E9297E34FC7B1E8B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499823   (844305) от 04.10.2021
+
+DJ Ramezz - Collection Of Remixes (2020-2021) [MP3 320 Kbps] <Eurodance, Dance Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5sta family 'Тюльпаны'(Dj Ramezz Eurodance Remix) 2021 (03:57)
+02. Shannon 'Let The Music Play'(Dj Ramezz Remix) 2021 (04:02)
+03. The Free & Timi Kullai 'Dance The Night Away' (Dj Ramezz Remix) 2021 (03:43)
+04. E-Type 'Princess Of Egypt'(Dj Ramezz Remix) 2021 (03:56)(   Читать дальше...   )Жанр: Eurodance, Dance PopПродолжительность: 04:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE1E9822B48A461DFBB45FC99CC63191A77DB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500072   (844303) от 04.10.2021
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver. 112 (2021) [MP3|320 Kbps] <Club, Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+01. Alexandra Stan, DMNDS, Void x Kid Cudi, Nitrex - Saxobeat (Dj Baur Mixshow)
+02. Alok, Sofi Tukker & INNA - It Don't Matter (RNSNW & Deeplos Radio Edit)
+03. Armagan Oruc - Tapa-Tapa (Max Flame & Dacks Remix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1DD5834A1114CD148CDD9F019E90EB5E4E8D488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499916   (844171) от 04.10.2021
 
 VA - Shazam Хит-парад World Top 200 Сентябрь (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,171 +745,6 @@ VA - Музыкальная волна (2011) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A482DFBBEE38F43C0954F099919617EC51B731EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379137   (842653) от 27.04.2020
-
-VA - Classic Rock (2020) [MP3|320 Kbps] <Classic Rock, Hard Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842653.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eagles - Hotel California (2013 Remaster) 6:31
-002. Fleetwood Mac - Dreams (2004 Remaster) 4:17
-003. Led Zeppelin - Ramble On (2012 Remaster) 4:34
-004. Tom Petty & The Heartbreakers - American Girl 3:35(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, BalladsПродолжительность: 30:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C0CB2C2DEAAA43C32A93DA653146B786A60D41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309251   (842638) от 15.03.2011
-
-VA - Весна плюс Русский (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE15263F40B9E67B053B43B79152D475C520AB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500215   (842602) от 05.10.2021
-
-VA - Music News vol.138 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842602.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lila Manila & Creamxcake - Волны (02:43)
- 002. Agnes - Here Comes The Night (03:32)
- 003. Aidan Bissett - Dumped (02:51)
- 004. Яд Добра - Мосты (02:16)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A452B0A89196A29478058A5B7B3599270CEC05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309310   (842534) от 15.03.2011
-
-VA - Кино Шлягер Часть 2 (2011) [MP3|256 kbps]<Pop/Soundtrack>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/SoundtrackПродолжительность: 05:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098AABFE6DD30CBBED0F8520383064BA6778D8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309481   (842520) от 15.03.2011
-
-VA - Шансон под водочку выпуск 8 (2010) [MP3|320 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ШансонПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66EE9CB787F517F374580A7DA63670035C41D87B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500178   (842340) от 05.10.2021
-
-VA - 30(8) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дали - Вселенная (2:16)
-02. Ханна Миша Марвин - Убью Тебя (DJ Prezzplay Radio Edit) (2:44)
-03. Руки Вверх HammAli Navai - Последний поцелуй (Winstep Remix) (3:42)
-04. Ислам Итляшев - Больше не нужна (DJ S7ven Radio Edit) (1:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6243544C27E2039B7D5106663AD0576839591CE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

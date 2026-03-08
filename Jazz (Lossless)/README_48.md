@@ -1,3 +1,32 @@
+###  Публикация: 1496644   (871655) от 18.09.2021
+
+Duke Ellington - Duke Ellington's Finest Hour (2002) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East St. Louis Toodle-o [2:55]
+02. Black and Tan Fantasy [3:20]
+03. Jubilee Stomp [2:47]
+04. Black Beauty [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BFEB6C646E0DC388095234D8B88900735102A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106855   (871564) от 20.02.2017
 
 Judith Nijland - A Jazz Tribute To ABBA (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
@@ -714,35 +743,6 @@ Chris Barber - Great Moments With ... (1998) AGAT Company [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:599733F75488C00EE5E3FF4EF44E5175DAF41070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107584   (868339) от 22.02.2017
-
-Peter Erskine and the Dr. Um Band - Second Opinion (2017) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868339.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hipnotherapy
- 2. Eleven Eleven
- 3. Street of Dreams
- 4. Not so Yes(   Читать дальше...   )Жанр: Fusion, Crossover JazzПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C03FE0A2BFDD2AC5992455AC61EF17ABCF47C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

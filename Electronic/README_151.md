@@ -1,3 +1,61 @@
+###  Публикация: 1207291   (780277) от 20.02.2018
+
+Хеnturiоn Prime - Humаnitу Plus (2017) [FLAC|Lossless|image + .cue] <FuturePop, SynthPop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artifact I (4:27)
+ 02. Propulsion (4:58)
+ 03. Milestone (4:52)
+ 04. Artifact II (2:14)(   Читать дальше...   )Жанр: FuturePop, SynthPop, EBMПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6AC40A212BFCDB5CF356175763F1ABE700BC0BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207686   (780251) от 20.02.2018
+
+VA - Ladies Of Synth (Compiled by Scott Forte) (2017) [MP3|320 Kbps] <Synthpop, Synthwave, Retrosynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roxi Drive & Neon Black  -  All Night Long  5:02
+02.  Night Vision  -  Never Enough  5:22
+03.  Radio Wolf  -  Song On The Radio (feat. Marika Gauci)  3:55
+04.  Love Impasse  -  Reflex In My Tears  4:00(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrosynthПродолжительность: 03:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD92A606BB87BD17E2807EA29B11E35C2F796CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208037   (780236) от 20.02.2018
 
 Midnight Danger - Malignant Force (2018) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Retrowave, Synthwave, Outrun>
@@ -687,64 +745,6 @@ VA - Ambient-E: Chapter 6 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DACFE5677DFE1860236A0394A377205AF9727FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209385   (779406) от 26.02.2018
-
-VA - Contemporary Chilling (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Falkonis  -  Crybot (Original Mix)  5:00
-02.  Aeon Waves  -  One Day I'll Be Gone (Forever) (Original Mix)  6:45
-03.  Cardmoth  -  Treatment Of Additive Love (Original Mix)  4:26
-04.  Soty  -  Mind Games (Original Mix)  4:42(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77BCFB3143BE30C145C72B77F5738CF8DC38FF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209408   (779402) от 26.02.2018
-
-VA - Relax Vibration Vol.01 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Random BPM  -  Dreams (Original Mix)  5:54
-02.  R.I.B.  -  I Remember You (Original Mix)  6:01
-03.  The Orange  -  Touching Care (Bonus Track)  6:19
-04.  Alex Lead  -  Witchcraft (Original Mix)  4:49(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7B132896B9CC8DCAB3899C18977E4522DE0719
 ```
 
 https://mybot314.ru/tekegram_catalog/

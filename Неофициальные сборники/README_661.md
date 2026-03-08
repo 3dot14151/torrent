@@ -1,3 +1,177 @@
+###  Публикация: 1737787   (49518) от 19.07.2024
+
+VA - Compilation part 99 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azimov - Believe
+02. Davit Barqaia - Broken Heart
+03. Hamidshax - My Heart Hurts
+04. Davit Barqaia - My Hope(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46286BCF249A7BE55DCF9CF196C63F044EDD8B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736927   (49504) от 19.07.2024
+
+Duane Eddy - Compilation (2024) [MP3|320 Kbps] <Rock'n'Roll, Instrumental Rock, Surf, Twang>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kickin' Asphalt
+ 02.  The Peppermint Twist
+ 03.  Peter Gunn
+ 04.  Lets Twist Again(   Читать дальше...   )Жанр: Rock'n'Roll, Instrumental Rock, Surf, TwangПродолжительность: 02:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A49580007D4D5F87ACC2F7E004740F94809C7F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737276   (49498) от 19.07.2024
+
+Zazi - Compilation (2024) [MP3|320 Kbps] <Pop, Chanson, Pop Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ijssalon Bernardo
+ 02.  Tour de France
+ 03.  Turn me on
+ 04.  Black Irish(   Читать дальше...   )Жанр: Pop, Chanson, Pop FolkПродолжительность: 00:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E3CA2DFE3E0A22E73B9DEFB1627F59D2C6A4DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738245   (49299) от 21.07.2024
+
+VA - Music News For Forum vol.003 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49299.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Николь - Молодая Влюбленная (02:43)
+ 002. Adam Lambert - Neck (02:29)
+ 003. Alessandra - Marameo (02:28)
+ 004. Alessia Cara - Dead Man (03:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F708C9B6E08F97561027F415AF1C54E395555999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737357   (49107) от 23.07.2024
+
+VA - Music of Vikings, Scandinavians, Pagans, Celts and the Middle Ages (2024) 2CD [MP3|320 Kbps] <Celtic, Folk, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heldom - Vaknan [03:31]
+02. Vikings Main Title - If I Had a Heart ("Vikings" Main Title) [03:49]
+03. Danheim, Heldom - Blodfest [03:32]
+04. Gealdyr - Voluspa [03:37](   Читать дальше...   )Жанр: Celtic, Folk, RockПродолжительность: 09:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1CC3C926BF102B43CB17541D8CB761127864A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738569   (49088) от 23.07.2024
+
+VA - TOP Non-Stop 2010-2019 - Deep House. Volume 4 (2024) [MP3|224-320 Kbps] <Deep House, Progressive House, Techno House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quenum - The Prophecy (2012) (4:45)
+02. Ellroy - Munk (2012) (3:05)
+03. DJ Remy & Roland Klinkenberg - Mexico Can Wait (Robert R. Hardy remix, 2016) (6:49)
+04. Jero Nougues - Out of the Blue (Ritmo Du Vela remix, 2015) (5:41)(   Читать дальше...   )Жанр: Deep House, Progressive House, Techno HouseПродолжительность: 08:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEFD94417D7C1232C14868D2ECC667DE0E151C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738229   (49002) от 24.07.2024
 
 VA - part 100 velvet saxophone compilation (2024) [MP3|320 Kbps] <Easy Listening, Saxophone>
@@ -571,180 +745,6 @@ VA - compilation  part 106 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD524BF2E29B396EE172B3A13FEA50E1748FE6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739819   (48191) от 01.08.2024
-
-VA - compilation  part 108 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instrumental, Saxophone>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jk Sax - Knockin' on Heaven's Door
-02. Alexandra Ilieva - Just the Two of Us
-03. Alexandra Ilieva - What a Wonderful World
-04. Jk Sax - Moi... Lolita(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 02:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB2820C60389EBC100C8FA88A8E545D891F22BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739742   (48177) от 01.08.2024
-
-VA - Arabian Miriage (2024) [MP3|320 Kbps] <Instrumental Pop, World>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48177.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adrian von Ziegler - Enchanted Palace [02:28]
-002. Arabic Music Arabian Nights Collective - Arabian Girl [07:42]
-003. Buddha Hotel Bar Music Dj - Aladdin [02:45]
-004. Zakaria Ghafouli - Hobino [04:00](   Читать дальше...   )Жанр: Instrumental Pop, WorldПродолжительность: 10:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCEB6C612DA31380D10AD1529336AB288DD41CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739273   (48160) от 01.08.2024
-
-VA - Today's blues (2024) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cedric Burnside - Juke Joint [02:51]
-02. Laurent Lombard - Sexy Blues [02:11]
-03. Gary Clark Jr., Stevie Wonder - What About The Children [04:39]
-04. Sugaray Rayford - Run For Cover [02:54](   Читать дальше...   )Жанр: BluesПродолжительность: 04:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE4DE7158877F81FD48071C9C615BB8C7557CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740493   (48069) от 02.08.2024
-
-VA - Music News For Forum vol.007 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48069.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sianna & DJ Layla feat. Radu Sirbu - Night Storm (03:04)
- 002. 2 Engel & Charlie feat. Noisetime - Price Tag (02:15)
- 003. 7dreamer & Parus - Забывай (01:57)
- 004. 52Ghz - Вроде Все Хорошо (03:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:29:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4190341D46555D7531B7DD76ED206F28B73A2708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740351   (48055) от 02.08.2024
-
-VA - compilation  part 109 Instrumental electronic (2024) [MP3|320 Kbps] <Instrumental, electronic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artur Venis - Titanic
-02. Artur Venis - Forever, Forever
-03. Dj Lava - In Memory of Your Love
-04. Artur Venis - Autumn Park(   Читать дальше...   )Жанр: Instrumental, electronicПродолжительность: 02:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8250A435DC7EAE00598E3A0E63BCF671A9F45C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740778   (47953) от 03.08.2024
-
-VA - VA - compilation part 111 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azimov - Turn of Lights
-02. Limora - Flower
-03. Muvi - Passion
-04. Elno - London(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0E10471699F8120F3E9813C1137E01FC204CFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

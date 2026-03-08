@@ -1,29 +1,3 @@
-###  Публикация: 1242563   (513779) от 23.08.2018
-
-Проекты - VideoHive - Happy Journey - 22418120 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Happy Journey - шаблон AE для создания слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA89FA066ECB02F382FD7B125DD6A1518F4F0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929204   (513717) от 24.08.2015
 
 Проекты - VideoHive - Watercolor Quotes Portrait [AEP]
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D3B07FD9EAC05E44027DD21AEB9E249E76359C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932258   (509876) от 28.08.2015
+
+Проекты - VideoHive - Epic Action Logo - 11773126 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A7602B6B292910A0B8F3140898BEE0F724C0695
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1141690   (648611) от 11.06.2017
+
+Chick Corea - The Musician (2017) 3CD, Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Marvel [08:16]
+02. Light as a Feather [14:17]
+03. I Hear a Rhapsody [09:26]
+04. Spirit Rides [13:01](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 03:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7031DAE05BC1F10A395A00F725CEA1ECF3886362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227339   (648600) от 25.05.2018
 
 Jimmy Rowles - Lilac Time (1994) Kokopelli Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Vocal Jazz>
@@ -716,35 +745,6 @@ Pamela Williams - Eight Days of Ecstasy (1988) [FLAC|Lossless|tracks + .cue] <Sm
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7ECDB92DC5554B2AE088637E40DB1C8A23FCDA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906353   (645803) от 08.06.2015
-
-Randy Brecker - Nostalgic Journey: Tykocin Jazz Suite (2009) [FLAC|Lossless]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction - Movement 1 [02:31]
-02. Introduction - Movement 2 [03:14]
-03. Introduction - Movement 3 [02:52]
-04. Nostaglic Journey [10:28](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E632AA0614B0D58FA44D092622CCF834561C48D
 ```
 
 https://mybot314.ru/tekegram_catalog/

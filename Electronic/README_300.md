@@ -1,3 +1,61 @@
+###  Публикация: 1247437   (452874) от 15.09.2018
+
+VA - Lifted Audio 3 Years Together With You (Mixed by Azima) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fashion Police - Angel Touch (Kiyoi & Eky Remix)
+02. The Avains - Ghost (Extended Mix)
+03. Neorise - June (Original Mix)
+04. Tim Lighterz - Veyrona (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E59941DF178A8F83228E22F4373D281B681AF27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247496   (452871) от 15.09.2018
+
+VA - Trance In Tomorrow's Land: The Festival Edition (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Excess - Dreams (Clubmix)
+02. Tosch - Somewhere Over The Rainbow (feat Christina - TbO & Vega Trance Mix)
+03. Project Blue Sun - Fiesta (TbO&Vega Trance Mix)
+04. Frozen Skies & Frank Laverne - Celebrate The Love (feat Margo Lane - Infected X Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB70B27415450BED2874A99EC70F813C7272318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247419   (452861) от 15.09.2018
 
 VA - Ellie Lawson: The Best Of (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
@@ -692,64 +750,6 @@ Polynation - Discography 11 Releases (2015-2020) Atomnation [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB509A26E75D03EFDDF3D8CCF1DFD80A31B1DCE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247579   (451205) от 16.09.2018
-
-Aot-x - Per Aspera Ad Astra (2018) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulspice (03:32)
- 02. Embrace Of Water (03:41)
- 03. Electroveins (01:36)
- 04. The Wildlife (05:59)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC53C4C7E54EC879D24C7402EF1EAF8A84994BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247700   (451203) от 16.09.2018
-
-The Digital Blonde - Neon (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Trance, Psy-Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcadia (Original Mix) (9:23)
-02. Autodrive (Original Mix) (7:43)
-03. Lavanta (Original Mix) (7:00)
-04. Serento (Original Mix) (9:12)(   Читать дальше...   )Жанр: Progressive Trance, Trance, Psy-TranceПродолжительность: 01:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C48B3A38E8EDF327C95F5C1826B4B644FAA692
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1598568   (162091) от 20.12.2022
-
-Jrago - Disconnect (2022) [MP3|320 Kbps] <Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Unspoken [00:03:11]
-02 - This Vicious Cycle [00:04:33]
-03 - Tranquility [00:04:00]
-04 - Run Away [00:03:21](   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018BEA29E4992BB3DF904AAFF71718F8E8A1B9E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433320   (161468) от 20.12.2020
 
 Briton Rites - 3 Albums (2010-2020) [MP3|V0/320 Kbps] <Heavy-Metal, Doom-Metal>
@@ -745,6 +716,35 @@ Monster God - Clouds Of Grey (2022) [MP3|320 Kbps] <Stoner Doom Meatal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:217CEEB6360EE386BDAC6F60DEA892660A614048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271103   (152505) от 22.12.2018
+
+Phlebotomized - Deformation Of Humanity (2019) [MP3|320 Kbps] <Progressive Death Metal, Avant-garde Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Premonition (Impending Doom)
+2. Chambre Ardente
+3. Descend To Deviance
+4. Eyes On The Prize(   Читать дальше...   )Жанр: Progressive Death Metal, Avant-garde MetalПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B1D866304BC705B97DE6CE0FBD68DCD543EB0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

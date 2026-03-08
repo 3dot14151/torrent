@@ -1,31 +1,3 @@
-###  Публикация: 1095878   (922869) от 22.01.2017
-
-Addaura - 1 demo, 1 album, 1 EP (2010-2015) [MP3|207-268 Kbps] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amid The Tumult And Clamor (I Look For The Light Through The Pouring Rain)
-02. Chambering Things Lost
-03. The Sun Shines Today Also (On The Oaks Of That Bird Hill)Жанр: Atmospheric Black MetalПродолжительность: 01:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8C3F70A4407DECB94B63B8DFD99E0CE414B6FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095762   (922822) от 22.01.2017
 
 Liverpool Echo - Liverpool Echo (1973) Reissue, 2005, Rev-Ola [MP3|320 Kbps] <Beat, Pop Rock>
@@ -745,6 +717,35 @@ Burzum - Thulean Mysteries (2020) [MP3|320 Kbps] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14FA2B336E891BD8B1B5031B8CCA090734053B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366624   (921878) от 12.03.2020
+
+Король и Шут - Акустический альбом (1998) Remastered, 2019, Шумный Рекордс [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921878.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кукла Колдуна
+2. Наблюдатель
+3. Бедняжка
+4. Прыгну со Скалы(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB63FEB3C2443611880270CA8AAD8B5F31CF7D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1764519   (101560) от 07.12.2024
+
+Above & Beyond - Tranquility Base Vol. 2 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AReact [03:36]
+02. Another Breakdown [03:30]
+03. From Grey To Light [03:33]
+04. Chasing Highs [03:36](   Читать дальше...   )Жанр: TranceПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7488F41DD33E5E5F740F6BC2696BDC5CA3A73E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764516   (101550) от 07.12.2024
+
+AzizRush - War (2024) [MP3|320 Kbps] <Electronic>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-March of the Orcs (04:42)
+02-You or Who (04:42)
+03-Code Pulse (03:41)
+04-Escape (04:22)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D203BBEEE87686C3B97BB47486B24457A222CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764448   (101547) от 07.12.2024
 
 Seekae - The Worry (2014) 10th Anniversary Edition, 2024, Future Classic [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Downtempo>
@@ -686,64 +744,6 @@ VA - Top 11 October 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DBC9AD987174CE75D3FF3D74866C79276021FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766254   (101253) от 17.12.2024
-
-VA - Extrema Global Music - Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kohta Imafuku - Paradiso (04:30)
-02. Fisco & Shaka - Freeman (03:14)
-03. Spy - Dark Star (03:22)
-04. Db Mokk & Dny'l - I Still Breathe (03:23)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EF22053DB6620F801E47594E67C44E443BEB82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766705   (101230) от 20.12.2024
-
-VA - This is Ablazing 2024 (Mixed & Selected by Rene Ablaze) (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Ablaze - Red Sea 2030 (Ron with Leeds Extended Remix) [08:12]
-02. Afterus - More (Extended Mix) [05:50]
-03. Last Soldier & Farnoodex - Rugged (Extended Mix) [07:32]
-04. Derek Ryan - Wild (Rene Ablaze Extended Remix) [06:17](   Читать дальше...   )Жанр: TranceПродолжительность: 04:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86C3CA1F410FE3C15C51ED8288AF99D92E8B007
 ```
 
 https://mybot314.ru/tekegram_catalog/

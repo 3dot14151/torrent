@@ -1,32 +1,3 @@
-###  Публикация: 1551770   (588910) от 18.05.2022
-
-Поиграем и Уйдём - Бронежилеты (2022) [MP3|320 Kbps] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Белые одежды [00:05:30]
-02 - Ты рядом [00:04:44]
-03 - Мне не жаль [00:04:31]
-04 - Полёты к Богу [00:03:29](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E1F19C74DFBE6BF509A00AC74B47EDBAA5C6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917729   (588685) от 13.07.2015
 
 Adrana - Foreshadow (2015) [MP3|320 кб/с]<Symphonic Power Metal>
@@ -739,6 +710,35 @@ Starry Saints - Serenade (with bonus singles) (2010-2011) [MP3|256 Kbps] <Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1455C09CE2F7FE3774ED593CF8CFE213474479F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040251   (587511) от 04.08.2016
+
+Tempest - Tempest (1973) 2011 Remastered [WavPack|Lossless|image + .cue] <Heavy Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587511.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gorgon (5:44)
+2. Foyers Of Fun (3:42)
+3. Dark House (5:03)
+4. Brothers (3:37)(   Читать дальше...   )Жанр: Heavy Progressive RockПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908A50C71CF6B23689E4326F9F7B472DB8FA6C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

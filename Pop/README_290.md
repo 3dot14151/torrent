@@ -1,3 +1,61 @@
+###  Публикация: 1427091   (184212) от 27.11.2020
+
+VA - Pop Legends (All Time Pop Classics) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_184212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Spinning Around (03:26)
+02. All Saints - Never Ever (06:27)
+03. Duran Duran - Ordinary World (04:37)
+04. Tina Turner - What's Love Got to Do with It (2015 Remaster) (03:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E041D0982996B5721181C70F95D6DC7A41A2FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664789   (183966) от 28.09.2023
+
+Fantasy - Das Beste (2023) Deluxe Edition [MP3|320 Kbps] <Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_183966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ein weisses Boot (2023)
+2. Darling (2023)
+3. Blinder Passagier (2023)
+4. Bonnie & Clyde (2023)(   Читать дальше...   )Жанр: Dance PopПродолжительность: 02:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77766E170DBF111AF561A73D789052E0AD65C2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665025   (183845) от 28.09.2023
 
 Ed Sheeran - Autumn Variations (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -687,64 +745,6 @@ Johnny Hates Jazz - Wide Awake (2020) [FLAC|Lossless|tracks + .cue] <Electronic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A176F5F8EC0EF50C96405AB4C7CA91094E648E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593127   (181782) от 25.11.2022
-
-Various - Pure... 70s (2013) 4 CD [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jacksons–	Show You The Way To Go
-02. Andrea True Connection–	More, More, More
-03. Baccara–	Yes Sir, I Can Boogie
-04. Gladys Knight & The Pips–	Baby, Don't Change Your Mind(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 04:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C9E8FCBCD03F70AA1C77E9D085EE56B9579256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593049   (181620) от 25.11.2022
-
-Полина Гагарина - Вдох (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181620.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Бабочки
-2. Вдох
-3. Тени
-4. Плакали(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7546F17D537B32B851A8686C690D9AF81EC77571
 ```
 
 https://mybot314.ru/tekegram_catalog/

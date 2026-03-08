@@ -1,3 +1,32 @@
+###  Публикация: 1803186   (65843) от 22.06.2025
+
+Sonny Rollins - Freedom Weaver (1959) 3CD, 2024, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woody 'n' You [15:55]
+02. But Not for Me [17:39]
+03. Lady Bird [18:50]
+(   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0488CA1F9DC0830931726DCAE51645D44C27DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803680   (65829) от 24.06.2025
 
 Chilly Swing Band - Study Jazz with the Feel of a Spring Breeze (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing>
@@ -716,35 +745,6 @@ The Red Norvo Trio - The Savoy Sessions (1951) 1995, Savoy Jazz [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60DB61AAC97667B9213EDC3C61E90CC5752A4DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805740   (65415) от 09.07.2025
-
-Morris Nanton Trio - The Original Jazz Performance Of Roberta (1958) 2012, Warner [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Devastating [2:34]
-02. Smoke Gets in Your Eyes [5:48]
-03. Let's Begin [3:53]
-04. I Won't Dance [4:23](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D634598FC67F1ED4FDBCA87785B352B9C7DD9B08
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1389650   (784254) от 11.06.2020
+
+Hibernation - Organic Technology (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Glitch, IDM, Dub, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Familiar Stars (Album Intro) (01:25)
+ 02. Thought Becomes Form (05:36)
+ 03. Mix It With The Relish (05:55)
+ 04. Transition (05:27)(   Читать дальше...   )Жанр: Psychill, Downtempo, Glitch, IDM, Dub, AmbientПродолжительность: 02:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1FB6EB3A2690315A5608AEDD3DA2C7090537C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204719   (784221) от 07.02.2018
+
+Scooter - 100% Scooter (25 Years Wild & Wicked) - The Belgian Edition (2018) [MP3|320 Kbps] <Hard Trance, Hardcore, Jumpstyle>
+
+>>Electronic
+>>Hardstyle, Jumpstyle, Hardcore
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scooter  -  The Logical Song  3:54
+02.  Scooter  -  How Much Is The Fish  3:46
+03.  Scooter  -  One (Always Hardcore)  3:50
+04.  Scooter  -  Move Your Ass!  3:55(   Читать дальше...   )Жанр: Hard Trance, Hardcore, JumpstyleПродолжительность: 03:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD477E7516822E9F88EEFBE68AAE34F85F17174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302651   (784206) от 11.06.2020
 
 Psybos - Discography 5 Releases (2018-2020) Psybos Incorporated [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Synthwave, Ambient>
@@ -686,64 +744,6 @@ VA - Dance Party (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCBD4FEEB66CC757E8F2F736C4C7E27137D73A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205228   (783788) от 09.02.2018
-
-VA - Valentines Day Love Lounge (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Sopper & Herr Schmidt – Wolken Im Wind 6:44
-02. Aida Moniz – Les Etoiles Au Dessus De La Tour Eiffel 3:47
-03. Lorenzo Casanova – Vila Mimosa (Make Love Not War Boogie Version) 4:47
-04. Ku You – Sandhand 5:04(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0746571AA677A8F2D9064241937EE3E8686314F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205242   (783787) от 09.02.2018
-
-VA - Rooftop Beats, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax – Landside (Original Mix) (6:07)
-02. Arty – Twilight Tonight (Steve Brian Remix) (2:57)
-03. Johan Vilborg – Bside Me (Original Mix) (3:21)
-04. Clameres – Mocsa (Original Mix) (3:38)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE641DDDAD3F0EE9776F968EFB9D60ACD0A60085
 ```
 
 https://mybot314.ru/tekegram_catalog/

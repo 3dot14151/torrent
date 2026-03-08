@@ -1,3 +1,61 @@
+###  Публикация: 933944   (503662) от 04.09.2015
+
+Dj Feel - TOP 30 OF August (2015) [MP3|320 kbps]<Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeremy Vancaulart feat. Amy Kirkpatrick - The Fall (Original Mix)
+02. Above Beyond feat. Gemma Hayes - Counting Down The Days (Judah Remix)
+03. Andrew Rayel & Alexander Popov - Mimesis (Original Mix)
+04. Dark Echo & Oleg Farrier Vs. All Sandu - In The Dark (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D300A20C35C5FE5968448B478EED2143D77DE135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563737   (503624) от 15.07.2022
+
+VA - Trance Vol.5 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila with Greg Downey - Take Flight (Original Mix)
+02. Alan Morris & Katty Heath - Captive Of Your Heart (Original Mix)
+03. Ciaran McAuley - Lilac (Original Mix)
+04. James Dymond & Stine Grove - Birds Of A Feather (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006124A4E407A53E623B460864A2E20CD7706884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 405159   (503003) от 04.09.2015
 
 Tympanik Audio | Label-Pack (114 Releases) (2007-2015) [MP3|320 kbps]<IDM, Industrial, Experimental, Rhythmic Noise, Breakcore, Ambient>
@@ -712,64 +770,6 @@ VA - Uplifting Only Top 15: July (2022) [MP3|320 Kbps] <Trance, Uplifting Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8896CC3370B0D8352C5813EC5E1A450E17925D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279734   (499437) от 02.08.2019
-
-Der Blaue Reiter - Discography 9 Releases (2006-2019) [MP3|320 Kbps] <Dark Ambient, Apocalyptic Ambient, Neo-Classical, Matrial Industrial>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499437.jpg" />
-</div>
-
-
-###  Подробнее
-
-2006 - Le Paradise Funèbre • L'Envers Du Tristesse
-2008 - Silencis
-2009 - Nuclear Sun • Chronicle Of A Nuclear Disaster
-2014 - Le Paradis Funèbre II • L'Adieu Du Silence(   Читать дальше...   )Жанр: Dark Ambient, Apocalyptic Ambient, Neo-Classical, Matrial IndustrialПродолжительность: 09:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5015F9836F5F1964DD0EFCD8874FBCF7EDA96F8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935713   (498443) от 09.09.2015
-
-VA - The Very Best of Chill Out Vol 2 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But & Memo - Black Betty (But & Memo) - Alexander Metzger Chillout Mix [06:31]
-02. Alexandru Florea - Secrets from Your Lips - Ancient Culture Mix [06:17]
-03. Arshia Alipour - Waiting for You [03:01]
-04. Five Seasons - Floating Spell [03:46](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E105BF2D83B585956415A73EFB1DCA78B31ADA86
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1442132   (1036947) от 24.01.2021
+
+VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3897896774F3C465A1C28784DAA9F57C4D22AD08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442168   (1036929) от 24.01.2021
+
+ROÜGE - Ultimatum (2021) [MP3|320 Kbps] <EBM, Industrial, Techno>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036929.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Welcome to Agartha (2:18)
+2. Potential Danger (5:26)
+3. Nuclear (4:14)
+4. Invasion (4:04)(   Читать дальше...   )Жанр: EBM, Industrial, TechnoПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0C004FF2C8579B0CC778682A1D44AA01E8C735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441750   (1036902) от 24.01.2021
 
 Sabled Sun - 2149 (2021) [MP3|320 Kbps] <Dark Ambient>
@@ -681,64 +736,6 @@ The Human Voice - Silent Heart (2016) Cyclic Law [FLAC 2.0|48/24|tracks|WEB-DL] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:582E3E6C4952C4108EF781AC4DDC47C9CD4B08EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290651   (1036549) от 25.01.2021
-
-Abul Mogard - Discography 15 Releases (2012-2021) VCO Records, Ecstatic, Houndstooth [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Immobile Air (05:51)
- 02. Clouds (08:52)
- 03. Black Dust (07:02)
- 04. Sand (06:34)(   Читать дальше...   )Тип издания: WebЖанр: AmbientПродолжительность: 10:19:21 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221888ECDA18DB2E3DC0D25BC7B1F7B6D1375FF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096916   (1036532) от 25.01.2021
-
-S1gns Of L1fe - Discography 4 Releases (2013-2021) Arecibo Records, Synphaera [FLAC|Lossless|tracks+.cue] <Psybient, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Age Of Cymatics (07:22)
- 02. Dimensional Shift (07:34)
- 03. Astral Alignment (08:46)
- 04. Genetic Memory (07:50)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psybient, Downtempo, Ambient •Продолжительность: 04:01:43 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAECA6CD1F660B2E1E91E86764C9A8CA939DAF99
 ```
 
 https://mybot314.ru/tekegram_catalog/

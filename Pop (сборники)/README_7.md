@@ -1,3 +1,32 @@
+###  Публикация: 974680   (975868) от 12.01.2016
+
+Reverend and The Makers - Collection (2007-2012) [OGG|459-548 кб/с] <Dance Rock, Indie Rock, Electropop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The State Of Things
+02. The Machine
+03. Heavyweight Champion Of The World
+04. Open Your Window(   Читать дальше...   )Жанр: Dance Rock, Indie Rock, ElectropopПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465D5373969A3A7BD5C986BC48EFB5CB495F3A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357011   (975614) от 02.02.2020
 
 VA - German Top 100 Single Charts 31.01.2020 [MP3|320 Kbps] <Pop>
@@ -752,35 +781,6 @@ VA - The Official UK Top 40 Singles Chart (24-02-2013) [MP3|320 кб/с]<Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D11BAEF8A13B0113B8E65C7924BA20CD7065DEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361397   (955510) от 19.02.2020
-
-VA - Popular European Mix (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955510.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. La Roux - Gullible Fool (Original Mix)
-002. Where Is Maps - Crazy Together
-003. Skif Bazzaty - Solo Tu Y Yo (Original Mix)
-004. Dstrqt - Missions (Original Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC94CED5D240D98309254052BB29190E7D89A29
 ```
 
 https://mybot314.ru/tekegram_catalog/

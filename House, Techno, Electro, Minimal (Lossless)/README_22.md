@@ -1,3 +1,90 @@
+###  Публикация: 1205191   (783524) от 10.02.2018
+
+David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Progressive House, House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unidos Para La Musica (Cosa Nostra Mix) feat. Akram
+02. Break 4 Love vs. Keith Thompson
+03. Love To Love You Baby
+04. Be The Best feat. Audrey Valorzi(   Читать дальше...   )Жанр: Progressive House, House, ElectroПродолжительность: 02:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7F499A0D0EF2BB5D5DB51804D0C8E2BD8BCC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390179   (783402) от 14.06.2020
+
+Grum - Deep State Deluxe (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trance, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep State (02:17)
+02. Stay (Feat. Natalie Shay) (Extended Mix) (08:54)
+03. Lose Control (Extended Mix) (06:46)
+04. Tomorrow (Feat. Dom Youdan) (Extended Mix) (06:28)(   Читать дальше...   )Жанр: Electronic, Progressive House, Trance, DowntempoПродолжительность: 01:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A81668A8FAA4E78B6437C9BD501536B2488295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205736   (783253) от 11.02.2018
+
+Tell - August EP (2014) House Running [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Lands (06:56)
+ 02. Unphysical Love (06:51)
+ 03. Flood (06:42)
+ 04. Snow Patrol (05:58)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7458B5B073E8B531E27DB1B708A28E1C69E41CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205843   (783222) от 11.02.2018
 
 VA - Clinique: The Best Of 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House>
@@ -655,93 +742,6 @@ GusGus - Lies Are More Flexible (2018) Oroom [FLAC|Lossless|WEB-DL|tracks] <Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F8548D86EB39E3DE4C10EECC2BD4421AC2671FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209040   (779675) от 24.02.2018
-
-Merovingian - Prøv å Forstå (The Remixes) (2018) Drift Deeper Recordings [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dovahkiin (Deepkomplekt Remix) (07:04)
- 02. Dovahkiin (Metzler Remix) (05:57)
- 03. Dovahkiin (Overcast Sound Remix) (07:58)
- 04. Dovahkiin (Rich Weller Remix) (05:42)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D39DE1254F0F0E8605D624FCFFAFC53424179E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209114   (779535) от 25.02.2018
-
-VA - Zirkus Zirkus, Vol. 18 | Elektronische Tanzmusik (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boss Axis - Challenger (Alle Farben Remix) (6:08)
-02. Tarranado - Ain't Enough (Murat Acar Remix) (6:14)
-03. Panik Pop - Coax the Creature Out (Feat. Benjamin Galliers) (Club Mix) (6:19)
-04. Naturtalente - Mondlandung (3:04)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 06:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911AEDC87D38B01E79CD2C50C44287242523F607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209425   (779298) от 27.02.2018
-
-VA - Hed Kandi Anthems & Artwork (2010) [FLAC|Lossless|tracks] <House, Electro, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jamiroquai - Love Foolosophy (Knee Deep's Re-Edit) (6:15)
-02.Shakedown - At Night (6:43)
-03.Stone Bridge Feat. Therese - Take Me Away (Vocal Mix) (5:36)
-04.Soulshaker Feat. Lorraine Browne - Hypnotic Erotic Games (Soulshakers Orginal Club Mix) (6:43)(   Читать дальше...   )Жанр: House, Electro, DiscoПродолжительность: 05:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA07D00BEA66E49A891A6D3C5FB94A0093F9F94
 ```
 
 https://mybot314.ru/tekegram_catalog/

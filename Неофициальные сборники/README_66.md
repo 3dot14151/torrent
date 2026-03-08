@@ -1,3 +1,177 @@
+###  Публикация: 1089430   (950697) от 04.01.2017
+
+VA - Гуляночка от радио Шансон Выпуск № 10 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950697.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ирина Кильфин - Моим Друзьям 3:16
+002. Рома Рязанский - Письмо 4:01
+003. Максим Куст - Банька 3:15
+004. Виктор Калина - Остаться Собой 3:49(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF31F7A082CBB4415A2107F8CC37C3D666EF5F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089722   (950640) от 04.01.2017
+
+VA - Взрывной хит-парад. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950640.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vikki - Помолчим 3:16
+002. Mc Bad - Растопим Снег 3:12
+003. Таня Герман - Эмоции Мысли 3:20
+004. Gwen Stefani - Used To Love You 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D63681432646226650C5B53A6E5C7AC1819A0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089423   (950598) от 04.01.2017
+
+VA - Orbital - Best275z (1992 - 2016) [MP3|320 Kbps] <Electronic, Techno, Downtempo, Experimental>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Technologicque Park 05:44
+02 Beached ( feat. Angelo Badalamenti) 03:38
+03 The Saint 04:33
+04 Funny Break (One Is Enough) 04:56(   Читать дальше...   )Жанр: Electronic, Techno, Downtempo, ExperimentalПродолжительность: 05:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D09C92831A7BA8DAFACA89F8B3592E897DBFB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089526   (950561) от 04.01.2017
+
+VA - Acoustic Pop Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah Dorman - Hurts
+02. Ginnie - Secret Love Song
+03. Landa - Can't Feel My Face
+04. Karizma Duo - Video Games(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159324C00D3F4B9314990FEF25BF0515EDF14F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088782   (950556) от 04.01.2017
+
+VA - Хитовый бум на Europa Plus. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950556.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stevie Wonder Feat. Ariana Grande - Faith 2:41
+002. Sia - Never Give Up 3:42
+003. John Legend - Surefire 4:03
+004. Tommy Trash - Lover 3:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B62B8F65ACE4BF6BA8762877CFEE22A09F2C64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089404   (950381) от 04.01.2017
+
+Amure - Unknown (2017) [MP3|320 Kbps] <Enigmatic, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  First Contact [00:06:40]
+02.  I Can Close My Eyes [00:05:33]
+03.  Mysterious Voices [00:08:14]
+04.  Water Park [00:05:26](   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 02:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C916B7FB690C362D87B658BA606964008DB552B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981975   (950175) от 02.02.2016
 
 VA - Lounge Teasers (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -571,180 +745,6 @@ VA - Because I Love You (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CB1A8084AB31FB38AA00ACB6ABC9DD2FC5ABC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982153   (948280) от 03.02.2016
-
-VA - Top 250 Tracks in the CAR Vol.2 (2015) [MP3|320 кб/с] <Club, Deep House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948280.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 3rd Planet - Sevas (Original Mix)
-002 Aaliyah - If Your Girl Only Knew (Liva K Edit)
-003 Ad Brown - From Within (Sebastian Weikum Summer Style Remix)
-004 Ad Brown Feat. Painted Face - Undreamt (Original Mix)(   Читать дальше...   )Жанр: Club, Deep House, Electro HouseПродолжительность: 24:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE80D0090AE8724C598F72F3B6A5DB2967B4315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982208   (948241) от 03.02.2016
-
-VA - Relic Melody: New Age Pack (2016) [MP3|320 кб/с] <New Age, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948241.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Astropolis feat. Eirch von Daniken - World of Mysteries
-002. Rainbow Suzy - Introduction 1
-003. Terry Oldfield - Reach Out
-004. Age Of Echoes - Spirit of Adventure(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 08:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C08659671A8E80E4611FAA6AB92B3B2DF820D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982458   (948239) от 03.02.2016
-
-VA - Super Disco 90s: Great Radio Mix (2016) [MP3|320 кб/с] <Disco, Pop, Retro, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948239.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mc Erik & Barbara - Save The Jungle
-002. Britney Spears - ...Baby One More Time
-003. DJ Bobo - Somebody Dance With Me
-004. Activate - I Say What I Want(   Читать дальше...   )Жанр: Disco, Pop, Retro, DanceПродолжительность: 06:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E21314AC01E130DB6A42EB7E86C9AD913BB9A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858647   (948208) от 11.01.2015
-
-Стас Михайлов - Лучшее (6CD) (1997-2014) (2015) [MP3|320 кб/с]<Авторская песня, шансон, поп>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948208.jpg" />
-</div>
-
-
-###  Подробнее
-
-096. Мы ждём (2013)
-097. Две души (2013)
-098. Не обижай любовь (2013)
-099. Спящая красавица (с Зарой) (2013)(   Читать дальше...   )Жанр: Авторская песня, шансон, попПродолжительность: 07:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C5B819ACA01871A73F68F174E80B5EF6977E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982171   (948128) от 03.02.2016
-
-VA - Best Reggae Day (2016) [MP3|320 кб/с] <Reggae, Jungle>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Blondy - No Brain No Headache
-02. Omar Perry - Blaze This Ya Fire
-03. Etana - How Long
-04. Nicodrum - Rainy Days(   Читать дальше...   )Жанр: Reggae, JungleПродолжительность: 03:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE02FF0F11FD0257B340F76296227101B9D4773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982433   (947997) от 03.02.2016
-
-VA - Guitar Collection 1 (2016) [MP3|320 кб/с] <Instrumental, Blues-Rock, Acoustic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947997.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arida Vortex - Alienation 04:35
-002. Chet Atkins & Les Paul - The World Is Waiting For The Sunrise 02:21
-003. Garry Moore - Still Got The Blues (Album Version) 04:09
-004. Jesse Cook - Broken Moon 03:19(   Читать дальше...   )Жанр: Instrumental, Blues-Rock, AcousticПродолжительность: 07:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82B93370C4F54F8E8A6CBA13A3AC1521383D61E
 ```
 
 https://mybot314.ru/tekegram_catalog/

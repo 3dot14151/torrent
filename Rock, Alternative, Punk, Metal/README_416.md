@@ -1,32 +1,3 @@
-###  Публикация: 903771   (656380) от 01.06.2015
-
-Eric Clapton - Story (1990) [FLAC|image+.cue]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cocaine (from Slowhand, 1977) 03:35
-02. Lay Down Sally (from Slowhand, 1977) 03:50
-03. Wonderful Tonight (from Slowhand, 1977) 03:39
-04. Crossroads (Live from Wheels of Fire, 1968) 04:12(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74DB0C63AC8DC148B80A94E3FEC9C2E1613B5685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903393   (656292) от 01.06.2015
 
 Hardcore Superstar - 11 альбомов (1998 - 2015) [FLAC|APE|Lossless]<Hard Rock, Glam>
@@ -759,6 +730,35 @@ Epsilon – Epsilon (1971) Remastered /1993, Bellaphon/ [FLAC|image+.cue]<Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87C54D52341BDED618537F9979B0BBF10EF15E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904010   (655684) от 02.06.2015
+
+Aunt Mary - Aunt Mary (1970) Remastered /2004, Pan Records/ [FLAC|tracks+.cue]<Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispering Farewell 04:03
+02. Did You Notice 03:19
+03. Theres A Lot Of Fish In The Sea 03:52
+04. I Do And I Did 04:54(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C40884F64FADF182FC37FAE997C8B8AA9FFF14A
 ```
 
 https://mybot314.ru/tekegram_catalog/

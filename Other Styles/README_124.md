@@ -1,3 +1,32 @@
+###  Публикация: 952306   (353514) от 02.11.2015
+
+Carlos Rodrigo - Argentine Tango (2001) [MP3|~160 кб/с (V4)]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sur
+02 - Tinta Roja
+03 - Flor De Lino
+04 - Cambalache(   Читать дальше...   )Жанр: TangoПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F00377DB9739D713706C7F68F4304CD484C4248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952824   (353506) от 02.11.2015
 
 VA - The Bodyguard (Original Soundtrack Album) (1992) Japanese Edition [FLAC|image + .cue]<Soundtrack>
@@ -722,35 +751,6 @@ Yarek - Noc Na Zamku (2008) [FLAC|image+.cue]<Electronic, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20EFE94EC250918BCE4C8A100B28F0493D1CB328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072882   (349469) от 14.11.2016
-
-Enigma - The Fall Of A Rebel Angel (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle Eight (feat. Nanuk) [2:18]
-02. The Omega Point [5:39]
-03. Diving [2:52]
-04. The Die Is Cast (feat. Mark Josher) [4:17](   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C00D7CBDEA32C5780A9C833BA191FD6650BBBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

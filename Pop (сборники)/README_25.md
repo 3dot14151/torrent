@@ -1,3 +1,32 @@
+###  Публикация: 1116917   (820802) от 21.03.2017
+
+VA - 100 Popular European Hit (2017) [MP3|320 Kbps] <Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820802.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zara Larsson - So Good
+002. Yvonne Catterfeld - Irgendwas (feat. Bengio)
+003. Adele - Water Under The Bridge
+004. Robbie Williams - Love My Life(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 05:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B939AD24DA8BC1806419D463DFFC42DDC9539B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382198   (820601) от 10.05.2020
 
 VA - Новички в попсе Vol 3 (2020) [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Весна В Эфире: Популярный Русский Хит (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95CD69E03F948D930B0119509A2FC6A175058152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118826   (811366) от 26.03.2017
-
-VA - Зажигательный Eurodance Vol.2 (2017) [MP3|192-320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811366.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Geo Da Silva & Saftik - Hey Mr. DJ Get Up (Martik C Rmx)
-002. Eddy Wata - La Bomba (Viper Eurodance Remix)
-003. Artik & Asti Feat. Run DMC - Половина (V.Bashmakov Eurodance Rmx)
-004. Aruba Ice & Greysound - Hold Me (Viper Remix)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 07:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73008B1283CDD30954C99066A4F656E371D4DB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

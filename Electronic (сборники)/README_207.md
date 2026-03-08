@@ -1,3 +1,38 @@
+###  Публикация: 594721   (133246) от 27.12.2012
+
+VA - Ferry Corsten presents Best Of Corsten's Countdown (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heatbeat - Rocker Monster (Radio Edit) (04:00)
+ 02. Cosmic Gate and JES - Flying Blind (Norin & Rad Remix) (06:40)
+ 03. KhoMha - Mind Gamer (Trance Mix Edit) (04:09)
+ 04. Pseudonym - The Battle (05:30)
+ 05. 3rd Planet - Sevas (06:07)
+ 06. Betsie Larkin with Bjorn Akesson - Let It Shine (Walsh & McAuley Remix) (07:13)
+ 07. Kyau & Albert - Another Time (06:22)
+ 08. M.I.K.E. - Any Direction (M.I.K.E. vs. Revero Club Edit) (06:55)
+ 09. Solarstone and Clare Stagg - The Spell (Solarstone Pure Mix) (08:41)
+ 10. Armin van Buuren Feat. Ana Criado - I'll Listen (Radio Edit) (03:36)Жанр: TranceПродолжительность: 02:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692F398EBDA796D11BCA2B7CFA75F4D011733677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595250   (132654) от 28.12.2012
 
 VA - Chill & Dub v.10 (2012) [MP3|320 кб/с]<Chillout/DubStep>
@@ -774,35 +809,6 @@ VA - DFM - Dynamics from AGR (18.04.2012) (2012) [MP3|320 кб/с]<Progressive H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943BA2AFC240F26900FB795142750C1DAB40968B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683385   (128391) от 11.12.2023
-
-Jabarov - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soulful
- 02.  Eternal Love
- 03.  High Pressure
- 04.  Cosmic Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBAD6043CA2860E9E0D871F7A854887DED0C8F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

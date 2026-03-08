@@ -1,3 +1,61 @@
+###  Публикация: 1141063   (653948) от 08.06.2017
+
+Mc Lane Explosion - Space Music (1977) LP [MP3|320 Kbps] <Electronic, Ambient, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Fly (3:31)
+02. Bilitis (3:37)
+03. Accidental Lover (4:24)
+04. Fire Land (4:17)(   Читать дальше...   )Жанр: Electronic, Ambient, Synth-pop, DiscoПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB20783E17BF1F41F8CD10C66DD8CFD31FF6072F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141029   (653935) от 08.06.2017
+
+Munich Machine - Get On The Funk Train (1996) Remaster, 2011, Repertoire Records, Compilation [FLAC|Lossless|image + .cue] <Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get On The Funk Train (15:43)
+02. Love To Love You Baby (2:33)
+03. Trouble Maker (2:47)
+04. Try Me, I Know We Can Make It (3:31)(   Читать дальше...   )Жанр: Disco, ElectronicПродолжительность: 01:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC5A3F0DD1C1831898B1939BDF9D677A45235C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540344   (653904) от 29.03.2022
 
 O-Zone - DiscO-Zone (2004) [FLAC|Lossless|tracks + .cue] <Europop, Euro-House, Dance>
@@ -690,64 +748,6 @@ Al Bano - The Best Platinum Collection (2007) [FLAC|Lossless|tracks + .cue] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD426CFCA3A989B354D9FCC1CFC6357C5BC10FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905297   (651209) от 05.06.2015
-
-Crazy P - Walk Dance Talk Sing (2015) [MP3|320 кб/с]<Nu-Disco, Nu-Jazz, House, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like A Fool (5:06)
-02. The Come On (5:40)
-03. Echo (7:05)
-04. Cruel Mistress (4:55)(   Читать дальше...   )Жанр: Nu-Disco, Nu-Jazz, House, ElectronicПродолжительность: 01:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA3C5007AD94FBC42A2BE20CE903C0FBBDE5B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291912   (650692) от 27.03.2019
-
-VA - Fashion Beats 2019.1 (2019) [MP3|320 Kbps] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rabih - Leave the World Behind (Radio Edit)
-02. Andy Stroke - Dream Girl (Radio Edit)
-03. Addicted Craze;Kevin Kelly - Drinks up to the Sky (Max K. Remix Edit)
-04. Tasha - Black Due (Radio Mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 01:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40D2381DB22FE22E5EB64564CE68B7D0005F297
 ```
 
 https://mybot314.ru/tekegram_catalog/

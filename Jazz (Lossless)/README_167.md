@@ -1,3 +1,32 @@
+###  Публикация: 1243233   (494231) от 26.08.2018
+
+Warne Marsh & Kenny Drew Trio - I Got A Good One For You (1980) 1999, Storyville [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got A Good One For You [4:51]
+02. Sophisticated Lady [7:45]
+03. On Green Dolphin Street [4:30]
+04. Sippin’at Bells [5:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A0906F81C15F2AA1F318BDF83FB9641A242760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158308   (493836) от 15.08.2017
 
 Edna McGriff - Start Movin' In My Direction (1954 - 1959) 2012, Bear Family Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -730,35 +759,6 @@ Benny Carter - Sax Ala Carter! (1960) 2004, Capitol Jazz [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8582530416F54FBB9EEB93B1B791639008E537B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404785   (489888) от 27.08.2020
-
-Benny Carter & American Jazz Orchestra - Central City Sketches (1987) Musicmasters [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doozy (Second version) [5:23]
-02. When Lights Are Low [5:02]
-03. A Kiss from You [2:56]
-04. Sleep [3:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7BA90F6A9A42FF1BB927DB1401C9751408E3149
 ```
 
 https://mybot314.ru/tekegram_catalog/

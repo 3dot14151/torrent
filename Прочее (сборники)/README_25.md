@@ -1,3 +1,119 @@
+###  Публикация: 991227   (907613) от 27.02.2016
+
+VA - Дискотека Руки Вверх 61 (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Руки Вверх! - Королева Красоты (D&S Project & Dj Andy Light Remix)
+02 - Ленинград - Экспонат (DJ Noiz Remix)
+03 - Storm DJs & Неигрушки - Сто дней до приказа (Cover Radio Mix)
+04 - Serebro - Отпусти меня(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4334B2A4A9BA8B1787E7EEF440D181DE579BAA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368717   (907410) от 21.03.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 20.03.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carla Morrison - Disfruto (Audioiko Remix) 3:16
+02. Trevor Daniel - Falling 2:39
+03. Billie Eilish - Everything I Wanted 4:05
+04. The Weeknd - Blinding Lights 3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCEBBD47BD94EC9147805808D83D6182C2F9EA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991049   (907298) от 27.02.2016
+
+VA - Дискотека 2016 Club Dance Vol. №149 от NNNB (2016) [MP3|128-320 кб/с] <Club, Dance, Deep House, Trance, Electro House, Progressive House, Drum’n’Bass, Trap, Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Analise feat. Alexis - I Love You
+02. Scooter - Don't Break The Silence
+03. Yandel feat. Pitbull & El Chacal - Ay Mi Dios
+04. The Chainsmokers feat. Daya - Don't Let Me Down(   Читать дальше...   )Жанр: Club, Dance, Deep House, Trance, Electro House, Progressive House, Drum’n’Bass, Trap, BassПродолжительность: 10:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F080B731A903756A773EF5BA193CD4E18F9B2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099148   (906788) от 31.01.2017
+
+VA - Зайцев.Нет: Лучшие Новинки Января (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hardwell - Party Till The Daylight  3:11
+02.  Юлианна Караулова - Разбитая Любовь (DJ Pitkin Remix)  3:06
+03.  Nelly Furtado - Cold Hard Truth  2:54
+04.  Ed Sheeran - Shape of You  3:54(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4568D4033522407D46298400975EEA4E3D36A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098833   (906298) от 31.01.2017
 
 VA - Winter Hits Vol 2 (2017) [MP3|320 Kbps] <UK Garage, Club, Vocal, Dance, Disco, Synthpop>
@@ -635,122 +751,6 @@ VA - San Valentino Cocktail In Love (2017) [MP3|320 Kbps] <Lounge, Jazz, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFF769499EE002BF40CADF0A6FE8BCE94B342BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100299   (901194) от 03.02.2017
-
-VA - Фитнес - Хит (2017) [MP3|217-320 Kbps] <Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vlad Janela - Stream Silence (Original Mix)
-02. R&M - Holiday (Instrumental Version)
-03. Nicco & Chris Deelay - Remember (Pulsedriver Bounce Mix)
-04. Usai, Julia Elle - Falling Down (PARSIFAL Remix)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 08:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAE532CE9CA76280EBC15C44DB7562C24E72E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992495   (900978) от 02.03.2016
-
-VA - Драйвовый клубный музон (2016) [MP3|320 кб/с] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petrovic - Jackpot (Original Mix)
-02. Nicky Romero - Lighthouse (Radio Edit)
-03. Lian Ross - Brother Louie
-04. Of Norway & Linnea Dale - Spirit Lights (Adriatique Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63B8FF679C6D26D0E6498225A6019F0D1F9DC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992570   (900962) от 02.03.2016
-
-VA - Radio Eurodance: Big Format Club House Mix (2016) [MP3|128-320 кб/с] <Club House, Dance, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900962.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Red Buddha - Engine Fire
-002. Dani Zavera - Looking For
-003. Joseph Capriati - Basic Elements (Luigi Madonna Remix)
-004. Max D. Blas - You Belong to This (Markus Fix Remix)(   Читать дальше...   )Жанр: Club House, Dance, ElectroПродолжительность: 14:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B485372189F7679F4E4F052E773AF28143DDB04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992444   (900742) от 02.03.2016
-
-VA - Europa Plus Украина Тор 40 February 4th week (2016) [MP3|320 кб/с] <Pop, Dance, Club, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hardkiss - Doctor Thomases (04:08)
-02. Alan Walker - Faded (03:33)
-03. Felix Jaehn feat. Polina - Book Of Love (03:19)
-04. Burak Yeter ft. Danelle Sandoval - Tuesday (04:06)(   Читать дальше...   )Жанр: Pop, Dance, Club, RemixПродолжительность: 02:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4173AE3E61A7082698495761E3FC2FADDA0C98B
 ```
 
 https://mybot314.ru/tekegram_catalog/

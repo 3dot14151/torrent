@@ -1,3 +1,29 @@
+###  Публикация: 552162   (448163) от 26.09.2012
+
+Альборада Дель Инка / Alborada Del Inka - Восход Инков (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень красивая этническая музыка на фоне природы запада Южной Америки (Перу). Приятно как посмотреть так и просто пустить фоном. Ребята весьма талантливы!Жанр: Folk/Panflute/InstrumentalПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B490202F7D72A090FD608189B73250C686D5B66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551598   (447722) от 26.09.2012
 
 Андреа Бочелли: Концерт iTunes Festival в Лондоне 2012 - Andrea Bocelli: Live at iTunes Festival London 2012 (2012) WEBRip [1080p]
@@ -682,35 +708,6 @@ Blackmore's Night - A Knight In York (2012) [1080p] Blu Ray
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707361   (437601) от 05.10.2013
-
-Black Sabbath - Live in O2 Academy Birmingham (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437601.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках подготовки к их чрезвычайно ожидаемому выступлению на Download Festival в 2012 году, Black Sabbath объявили о возвращении на родину в O2 Academy в Бирмингеме. Это было первое выступление Black Sabbath в их родном городе в течение 11 лет - и их первый концерт с 2005 года.01 Intro
-02 Into the Void
-03 Under the Sun
-04 Snowblind(   Читать дальше...   )Жанр: Концерт, Heavy MetalПродолжительность: 01:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE154A00612916C70E33B2AF5A131236DF1CF3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

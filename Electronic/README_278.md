@@ -1,3 +1,64 @@
+###  Публикация: 534487   (520351) от 13.08.2012
+
+Moonbeam - The Secret: Remixes (Live Edition) (2012) [MP3|320 кб/с]<Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonbeam - Disappearance (feat. Avis Vox) (Marsbeing Remix) (4:16)
+ 02. Moonbeam - Daydream (feat. Leusin) (Exminds Remix) (7:15)
+ 03. Moonbeam - Sensitivity (feat. Tomomi Ukumori) (Soarsweep Remix) (7:13)
+ 04. Moonbeam - I love Your Face (feat. Fisher) (Sol Noir Remix) (5:30)
+ 05. Moonbeam - Hills Folded In Mist (feat. Loolacoma) (Mars Needs Lovers Remix) (7:01)
+ 06. Moonbeam - Wanderer (with Eitan Carmi feat. Matvey Emerson) (Progressiver Remix) (7:20)
+ 07. Moonbeam - Ghost (Lowboys In The Dark Remix) (7:26)
+ 08. Moonbeam - In Your Eyes (feat. Blackfeel Wite) (Ilya Soloviev Remix) (7:48)
+ 09. Moonbeam - Excess (feat. Pryce Oliver) (Marsbeing Remix) (5:21)
+ 10. Moonbeam - Disappearance (feat. Avis Vox) (E-Spectro Remix) (7:21)Жанр: Progressive House, Progressive TranceПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AC7578398AF786E9EC3766B00BBDDCE47388E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314323   (520337) от 13.07.2019
+
+VA - Groove Culture Ibiza (Compiled By Micky More & Andy Tee) (2019) [MP3|320 Kbps] <House, Tech House, Indie Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right To Life – Took My Love AwayЖанр: House, Tech House, Indie DanceПродолжительность: 02:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960F29B3433A7BDA26CFF66177B1C85BD81A81F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314162   (520334) от 13.07.2019
 
 VA - Trance Wars (1-3) (2000-2002) [FLAC|Lossless|tracks] <Goa Trance, Psy-Trance, Trance>
@@ -684,61 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:502CE89CCFAD75643293C533E355810A134C44E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241829   (518115) от 19.08.2018
-
-Dance With The Dead - Loved To Death (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, New Retro Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go!
-02. Into The Shadows (feat. Nick Hipa)
-03. Salem
-04. Portraits(   Читать дальше...   )Жанр: Synthwave, New Retro WaveПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDF91AB9F1756FF4D803DAFB50CE7ACD21DD15D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534386   (517758) от 15.08.2012
-
-VA - Aka Aka And Thalstroem - Variete (Remixed) - 2012 [FLAC|Lossless]<Tech House, Deep House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Matters (Жанр: Tech House, Deep House, TechnoПродолжительность: 03:51:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

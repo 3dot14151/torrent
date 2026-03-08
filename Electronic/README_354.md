@@ -1,3 +1,60 @@
+###  Публикация: 1091747   (311620) от 07.11.2018
+
+Loess - Discography 9 Releases (2001-2017) [FLAC|Lossless|tracks+.cue, tracks] <Abstract, IDM, Leftfiel, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petrel (05:59)
+ 02. Kype (06:53)
+ 03. Striae (06:35)
+ 04. 17P13.2 (01:48)(   Читать дальше...   )Тип издания: CD, Vinyl •Жанр: Abstract, IDM, Leftfiel, Downtempo, Ambient •Продолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC557CE9B9EFCE0C920046AE8E135F0C2DBA9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157402   (311522) от 21.10.2019
+
+Thomas Carmody (Soundarium) - Discography 22 Releases (2015-2019) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ecumenical (04:46)
+ 02. True Detective (05:00)
+ 03. SA1303 (03:55)Тип издания: WEBЖанр: Downtempo/AmbientПродолжительность: 00:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908A379A57ECBC8194491C7CC2D046A56A70AFE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332601   (311504) от 21.10.2019
 
 BT - This Binary Universe (2006/2015) DTS Entertainment [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Glitch>
@@ -688,64 +745,6 @@ Erasure - Always - The Very Best of Erasure (Deluxe Version) (2015) (3CD) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:820531D73C7E66152CDAC69D3617F397ACD9D1C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960228   (309613) от 27.11.2015
-
-David Guetta - Listen Again (2015) [MP3|320 кб/с]<House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dangerous (feat. Sam Martin)
-02. What I Did For Love (feat. Emeli Sandé)
-03. No Money No Love (feat. Elliphant & Ms. Dynamite)
-04. Lovers On The Sun (feat. Sam Martin)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC9BFB8AC1E2E5DCECB58070DB7CC71B7A31371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076947   (309509) от 27.11.2016
-
-VA - Fine Dining: A Dedicated Lounge Music Selection (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Symbolic Interaction (06:25)
-02. Cane Garden Quartet - Flying With No Wings (05:55)
-03. Enrico Donner - Deep Rooted (05:08)
-04. Baghira - A Thrill Of Anticipation (05:37)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0252232C1EF03D5146401F9BC3203E76F06CD36A
 ```
 
 https://mybot314.ru/tekegram_catalog/

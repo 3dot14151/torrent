@@ -1,3 +1,32 @@
+###  Публикация: 1253602   (381764) от 10.10.2018
+
+Constance Demby - Attunement (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bringing Down The Silence (14:53)
+02. Strings of my Heart (06:56)
+03. Out of the Mist (03:29)
+04. Eyes in the Mirror (04:40)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8FF65AD57F7C8D71142FA8F8865F7FD7BB86B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253547   (381762) от 10.10.2018
 
 Constance Demby - Skies Above Skies (1978) [FLAC|Lossless|tracks + .cue] <NewAge>
@@ -713,32 +742,6 @@ Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5123F6ECB4719995E254054370ED545E73EFEEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415399   (376176) от 12.10.2020
-
-Hans Zimmer - Themyscira (OST from Wonder Woman 1984) (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DB8C43649B8E8FC708AEB152763C3EAD698447
 ```
 
 https://mybot314.ru/tekegram_catalog/

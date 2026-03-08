@@ -1,3 +1,61 @@
+###  Публикация: 1667207   (177508) от 07.10.2023
+
+Dorian Electra - Fanfare (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony [00:03:16]
+02. Idolize [00:02:25]
+03. Freak Mode [00:02:37]
+04. Sodom & Gomorrah [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26BDD0227A884983B5CAC32086AD8B2C412C2C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422057   (177507) от 05.12.2020
+
+Екатерина Бужинская - 4 Альбома (1998 - 2012) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Як у нас на Україні
+02. Духмяна ніч
+03. Суха тополя ( дует с Олегом Шаком )
+04. Червона ружа(   Читать дальше...   )Жанр: PopПродолжительность: 04:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C91683BF97A95EA406F5022928817E912154FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667206   (177487) от 07.10.2023
 
 Olivia Newton-John - Just The Two Of Us: The Duets Collection (Vol. 2) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -691,64 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:113EDE190768AE6312DA542A3018BE630138F74B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595805   (174335) от 07.12.2022
-
-Давид Тухманов - По волне моей памяти (1976) LP, Red Clear [MP3|320 Kbps] <Art Rock, Symphonic Rock, Classic Rock, Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я мысленно вхожу в ваш кабинет (5:04)
-02. Из сафо (5:17)
-03. Из вагантов (3:03)
-04. Приглашение к путешествию (4:05)(   Читать дальше...   )Жанр: Art Rock, Symphonic Rock, Classic Rock, PopПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89CCFB21C68FAE0689A4C0E2476F696EFFE904A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595994   (174011) от 08.12.2022
-
-VA - DMC Essential Hits 2022 December (2022) 3CD, Compilation [MP3|320 Kbps] <Dance, Nu-Disco, Progressive, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174011.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. A1 & J1 & Tion Wayne - Night Away (Dance) (Clean)
-02. Alok Ella Eyre & Kenny Dope Fe. Never Dull - Deep Down (Radio)
-03. Atb & Topic & A7s - Your Love (9pm) (Clean)(   Читать дальше...   )Жанр: Dance, Nu-Disco, Progressive, Synth-popПродолжительность: 01:19:11 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

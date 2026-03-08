@@ -1,32 +1,3 @@
-###  Публикация: 866867   (904928) от 07.02.2015
-
-Jimi Hendrix - The Cry Of Love (1971) Remastered 2014 [MP3|320 кб/с]<Psychedelic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom
-02. Drifting
-03. Ezy Ryder
-04. Night Bird Flying(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D5F44ECCF3B1B1C746BF4BF1225F445558A694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099521   (904894) от 01.02.2017
 
 Midnite Club - Circus Of Life (2008) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -757,6 +728,35 @@ Se Delan - Drifter (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41768A801743AF770407187FB1516F0A88D496E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099677   (903582) от 02.02.2017
+
+Penelope Houston - Cut You (1996) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Sign 4:12
+02. Sweetheart 4:20
+03. Scratch 2:43
+04. Locket 3:37(   Читать дальше...   )Жанр: Rock, Alternative Rock, Folk RockПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E355B2054E6C95C3E593786802B248B0E7940E
 ```
 
 https://mybot314.ru/tekegram_catalog/

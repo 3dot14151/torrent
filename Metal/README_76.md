@@ -1,32 +1,3 @@
-###  Публикация: 1179213   (351274) от 30.10.2017
-
-Impalers - The Celestial Dictator (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terrestrial Demise 04:49
-02. Terrorborn 03:34
-03. Color Me White 02:48
-04. Into Doom 05:45(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA09189B4AEDDD54987456837B4555600F87243C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179018   (351266) от 30.10.2017
 
 Cannibal Corpse - Red Before Black (2017) [MP3|320 Kbps] <Death Metal>
@@ -742,6 +713,35 @@ Helloween - United Alive In Madrid (2019) Live [MP3|320 kbps] <Heavy Metal, Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2BB5A68CE0F6DBD0EA9569C3401AF39F0FC959C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179801   (344577) от 02.11.2017
+
+Ne Obliviscaris - Urn (2017) [MP3|320 Kbps] <Melodic Black Metal, Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344577.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Libera (Part I) - Saturnine Spheres
+2. Libera (Part II) - Ascent Of Burning Moths
+3. Intra Venus
+4. Eyrie(   Читать дальше...   )Жанр: Melodic Black Metal, Progressive Death MetalПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF98D16C33790165BC5040687F02F3A4B3EE58AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1558885   (7825) от 15.08.2025
+
+Виктор Цой и Кино - Коллекция (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник лучших композиций легендарного поэта и композитора Виктора Цоя и группы Кино. Его песни актуальны, как никогда. Все треки взяты с ремастированных фирменных CD изданий. Не люблю ремастеры звука, так как в них искуственно завышают частоты и задирают громкость, затачивая под новодельные побрякушки, пукалки и домашние кинотеатры. На настоящей, благородной аудиосистеме (   Читать дальше...   )01. Песня без слов
+02. Красно-жёлтые дни
+03. Группа крови
+04. Пачка сигарет(   Читать дальше...   )Жанр: RockПродолжительность: 02:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE9E82D443369BE59CCE02880A931F2FF28E7F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812640   (7766) от 15.08.2025
+
+VA - Deep Vocal Relax 2 (2025) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones, VARGO - Relax - Vargo Vocal Remix (6:10)
+02. Whitewildbear - All Alone (5:07)
+03. Conjure One, Rhys Fulber - Sleep (5:00)
+04. Blue Stone - Lotus Bloom (4:54)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ACCB6A55A4867EC36339ED68ECA4F05C77004BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812557   (7712) от 15.08.2025
+
+VA - Music News For Forum vol.126 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7712.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aura Tag - All Right (03:08)
+ 002. 58TAKASHI - Hardest Worker in the Room (02:16)
+ 003. aairamm - ILL (02:09)
+ 004. AbdulHamid & DAANNI - Midnight Symphony (02:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6084DAC02B75453EDF18E452999AF860B9D2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812361   (7710) от 15.08.2025
+
+Whitesnake - Compilation (1978-2019) [MP3|320 Kbps] <Hard rock, Blues rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Fool In Love (Good To Be Bad | 2008)
+02. Steal Your Heart Away (Forevermore | 2011)
+03. Here I Go Again (1987 WS | 1987)
+04. Judgment Day (Slip Of The Tongue | 1989)(   Читать дальше...   )Жанр: Hard rock, Blues rockПродолжительность: 07:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1C45429881689B921D9E578CE4F40018919635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812963   (7303) от 17.08.2025
+
+VA - Record Super Chart 16.08.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marshall Jefferson & Maesic & Salome Das - Life Is Simple (Move Your Body) (2:52)
+02. Inna, R3HAB - I'll Be Waiting (2:03)
+03. Rudimental & Khalid - All I Know (Ely Oaks Remix) (2:29)
+04. Hugel, Alleh, Yorghaki - una noche con hugel (3:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D4F4D53AB446937AA1A88A931ECB04FBE68459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813132   (7254) от 17.08.2025
+
+VA - National Pop Dance Music Vol.117 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7254.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam Melchor - The Hopefuls (03:25)
+ 002. Amble - Treehouse Wings (03:20)
+ 003. Coogie - Spaceship (02:14)
+ 004. Dj Lewis, Midas The Jagaban - I See U (03:25)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 11:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321D1BCABFFB8061E73D55E7AF08CF409471CAF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813041   (7252) от 17.08.2025
 
 VA - Compilation Part 184 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
@@ -571,180 +745,6 @@ DJ Moralez & Various Artists - Nrg Colabmix compilation part 2 (2025) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A912146208E753232989C0491E0FDAFFC2B6164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814698   (5708) от 27.08.2025
-
-VA - Music News For Forum vol.130 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5708.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юлия Кукина - Я поднимаю градус наш (03:25)
- 002. 5 Пятниц - Кома (02:06)
- 003. 220 KID & Justin Jesso - Sleep Alone (03:23)
- 004. AERTIAO & POLZA - Трачу (02:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936E01B113AC4D4626DE3928521B3C532007D627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815138   (5630) от 28.08.2025
-
-VA - Party Mix 80s 90s 00s 10s 20s (2025) [MP3|320 Kbps] <Pop, Dance, Disco, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5630.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - Daryl Hall & John Oates - You Make My Dreams (Come True) - (03:11)
- 002 - Eurythmics - Sweet Dreams (Are Made of This) (2005 Remaster) - (03:37)
- 003 - Michael Jackson - Billie Jean - (04:54)
- 004 - George Michael - Faith (Remastered) - (03:13)(   Читать дальше...   )Жанр: Pop, Dance, Disco, RockПродолжительность: 22:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2EA0F2F6F7EB216424993DB927ACAA6C406052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815184   (5419) от 29.08.2025
-
-VA - Dance Remix Cover  Vol. 2 (2025) [MP3|320 Kbps] <Dance, R&B, Hip Hop, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5419.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - Jerzy Bulx - All I Ever Wanted - (02:05)
- 002 - David Guetta - Forever Young - (02:37)
- 003 - W&W - Danza Kuduro (Remix) - (02:49)
- 004 - Klaas - Sun Is Up (Michael Roman & Mazza Remix) - (02:13)(   Читать дальше...   )Жанр: Dance, R&B, Hip Hop, PopПродолжительность: 08:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7056404661D6B6C075F6B769E8F7DCD7F781375C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814423   (5269) от 30.08.2025
-
-VA - Привет Уходящему Лету (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies, Calum Scott - Where Are You Now - Deluxe Mix (4:14)
-02. Mau P - Drugs From Amsterdam (3:55)
-03. Chrystal, NOTION - The Days - NOTION Remix (3:53)
-04. Peggy Gou - (It Goes Like) Nanana - Edit (3:51)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C3259B6AF572A882E7A9C65503C98A19E13524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764679   (5225) от 30.08.2025
-
-Emin - Compilation (2006-2025) [MP3|320 Kbps] <Soul, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Keeps Beating (After The Thunder 2012)
-02. Always (Good Love 2019)
-03. Always On My Mind (Obsession 2008)
-04. Отпусти и Лети (Love Is 2021)(   Читать дальше...   )Жанр: Soul, PopПродолжительность: 05:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCFFA089E5E8BAF43EEE80DE4FB009ECCAE95598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815562   (5191) от 30.08.2025
-
-VA - Music News For Forum vol.131 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5191.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eva Tronza - Была не была (02:10)
- 002. 2 Chainz - Thought You Loved Me (02:59)
- 003. 2 Chainz & Youngboy Never Broke Again - I Wanna Win (03:22)
- 004. 2DICE - No filters (02:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE99D404A5910CEBCFABF7DF2D10397E6FBFF88
 ```
 
 https://mybot314.ru/tekegram_catalog/

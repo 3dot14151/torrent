@@ -1,3 +1,32 @@
+###  Публикация: 1431960   (164485) от 17.12.2020
+
+Blacklite District - Instant // Concern (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are the Danger (2:49)
+ 02. The Ghost of You and Me (3:11)
+ 03. The Struggle (4:05)
+ 04. Cold as Ice (3:28)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, ElectronicПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E794796BC495FB786A7B54DE096771845859CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673847   (163495) от 03.11.2023
 
 Ataraxia - Sous Le Blanc Rosier (2007) 2CD [FLAC|Lossless|image + .cue] <Gothic, NeoClassical, NeoFolk>
@@ -716,35 +745,6 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F241ED71FE8F4A2956DA3D9D8D1A32EA766B5E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272004   (147810) от 25.12.2018
-
-VA - Transfiguration Songs (2005) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaped by Fate - Turn to Dusk (03:44)
-02. Aconite Thrill - B-Movie Explosion (03:58)
-03. Breather Resist - Stitches (02:21)
-04. Palehorse - Don't Die on an Empty Stomach (02:44)(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1C800F3409EA449E6AE4F5EFC945408701FF46
 ```
 
 https://mybot314.ru/tekegram_catalog/

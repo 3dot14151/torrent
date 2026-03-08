@@ -1,3 +1,58 @@
+###  Публикация: 923252   (562626) от 01.08.2015
+
+VA - Toolroom Ibiza 2015 (2015) [MP3|320 кб/с]<Tech House/Deep House/Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Like I Can (Jonas Rathsman Remix)
+02. Jon Hopkins - Open Eye Signal (George Fitzgerald Remix)
+03. Booka Shade, Karin Park - Line Of Fire Feat. Karin Park (Tube & Berger Remix)
+04. Claptone - The Music Got Me (Original Mix)(   Читать дальше...   )Жанр: Tech House/Deep House/TechnoПродолжительность: 11:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A0A7DE5361768080B4856C268DABEB5CD995C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 225684   (562386) от 10.08.2010
+
+Mark Norman - 2 альбома (2005; 2007) [FLAC|Lossless]<Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923356   (562363) от 01.08.2015
 
 The Prodigy - The Night Is My Friend (2015) EP [FLAC|tracks]<Electro, Breakbeat, Breaks>
@@ -683,64 +738,6 @@ VA - Guitar del Mar: Chillout, Lounge, Bossa Nova Guitar Music (2017) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:399803672CB96EB609D6CCF5FDA2241F64257FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045207   (561529) от 22.08.2016
-
-Jan Hammer - Beyond The Mind's Eye (1993) [FLAC|Lossless|image + .cue] <Downtempo, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeds (4:10)
-02. Too Far (3:26)
-03. Magic Theater (3:43)
-04. Sunset (3:10)(   Читать дальше...   )Жанр: Downtempo, SynthpopПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD260ABEBE86D0C395D1B8615DA322CE390324E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045181   (561393) от 22.08.2016
-
-The Fixx - 15 Albums (1982-2014)(16 CD) [MP3|320 Kbps] <Electronic, New Wave, Pop-Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561393.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Fixx — британская рок-группа из Лондона, игравшая в жанре Новой волны. Не являясь звездами первой величины, группа смогла завоевать успех на мировой сцене, включая США благодаря хитам One Thing Leads to Another, Saved by Zero, Red Skies, оказав влияние на этот жанр музыки в 1980-е годы. The Fixx работали в стиле новых романтиков, сочетая клавишные, подобно Tears (   Читать дальше...   )Список альбомов:
-1982 - Shuttered Room
-1983 - Reach The Beach
-1984 - Phantoms(   Читать дальше...   )Жанр: Electronic, New Wave, Pop-RockПродолжительность: 13:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000F42C10A93D65621627D5892EA4B2E1990E30F
 ```
 
 https://mybot314.ru/tekegram_catalog/

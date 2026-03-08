@@ -1,3 +1,177 @@
+###  Публикация: 1125368   (772101) от 14.04.2017
+
+VA - The Quest For Beauty Progressive Party House (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772101.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Airwave - The Quest For Beauty (Jam El Mar Remix)
+002. Vintage & Morelli - Desire (Dezza Remix)
+003. Set Collins - Strangers
+004. Stan Kolev - Forsaken (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4776F4484F3E59EFAEA7CB047324AC6341E0DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213342   (772006) от 16.03.2018
+
+VA - Neotrance Selected Works [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Neotrance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synasthesie - Lotus (Clawz Sg Remix) [07:19]
+02. Nick Devon - Skyline (Mallone's City Lights Remix) [07:25]
+03. Frankye Lova, Stephan Seddel - Unstable [08:15]
+04. Jos & Eli, Sean Doron, Jenia Tarsol - Amore [08:27](   Читать дальше...   )Жанр: NeotranceПродолжительность: 04:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876E9994534FC2E3C2CD6B3E5AACE69ED1E228F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278346   (771915) от 25.01.2019
+
+VA - Urban Drum And Bass Arena (2019) [MP3|320 Kbps] <Drum and Bass, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771915.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danger - Unknown Object
+002. Maverick Soul - Stranded
+003. Aweminus - Pants Floor
+004. Fourward - Make Some(   Читать дальше...   )Жанр: Drum and Bass, Electro BassПродолжительность: 10:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F336FA61F6A7F9159FC77BFF3632E1FD319954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213283   (771860) от 16.03.2018
+
+VA - Metropolis: 200 Popular Euro Hits (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771860.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blink-182 - Cynical
+002. Justin Timberlake - Can't Stop The Feeling!
+003. Bananarama - Venus (12'' Hellfire Mix)
+004. Galantis - No Money(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 12:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD4658D54668E1305C58F4B403878EB76F77F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213418   (771859) от 16.03.2018
+
+VA - Empire Records - Church (2018) [MP3|320 Kbps] <Pop, Pop-Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Jet - Breaking The Stones
+02. X Ambassadors - Torches
+03. Lea Michele - Heavenly
+04. Jena Lee - Le Temps(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACFA481797A6D8165525C8D0FD82960C8A7E8EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213185   (771854) от 16.03.2018
+
+E-Type - Russian Lullaby (1998) [MP3|320 Kbps] <Eurodance, Euro-House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Russian Lullaby (3:14)
+02. Until the End (3:32)
+03. When Religion Comes to Town (3:23)
+04. You Will Always Be A Part of Me (4:08)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3764EDD436AF4EBE2CE3012CBC2639AA1E83AF37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278344   (771832) от 25.01.2019
 
 VA - Electro Dance Music: Winter Party (2019) [MP3|320 Kbps] <Club, Dance, House>
@@ -574,180 +748,6 @@ VA - не Громкие новинки недели 72 (2020) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0596E80240FBA9387FE75A86857686C3DCD9BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391845   (770564) от 23.06.2020
-
-VA - Hits of My Soul Vol. 57 (2020) [MP3|320 Kbps] <Rap, Hip-Hop, R&B>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770564.jpg" />
-</div>
-
-
-###  Подробнее
-
-|04:07| 01. Саша Скул - Ди Каприо (feat. Луперкаль)
-|02:10| 02. OBLADAET - Enter
-|02:20| 03. ATL - В Унисон (prod. Dark Faders)
-|03:04| 04. Thomas Mraz - Rolling Stoner (prod. by Claude Money)(   Читать дальше...   )Жанр: Rap, Hip-Hop, R&B •Продолжительность: 03:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3395E7760E009863C2DE0E0A24E5FC5FC0375FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391933   (770561) от 23.06.2020
-
-VA - Slash - 100% Different Slash (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slash's Snakepit - Been There Lately
-02. Slash - Shadow Life
-03. Slash; Myles Kennedy & The Conspirators - Slow Grind (feat. Myles Kennedy and The Conspirators)
-04. Slash - The Dissident(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 06:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1FD98738CE4851459A0A0A3BD11B7D6CDD91D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016398   (770542) от 14.05.2016
-
-VA - Out Of Trance Airspace (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elfsong - Tesseract (Jeremy Rowlett Remix) 7:48
-02. Solarstone - Lost Hearts (Mark Sherry Remix) 7:27
-03. Yuri Kane & Ana Criado - Running Wild (Liam Wilson Remix) 6:33
-04. Paul Oakenfold - Shanghai Baby (Joyriders Remix) 6:01(   Читать дальше...   )Жанр: TranceПродолжительность: 07:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E183CC4F61E3C22D36A90C2D2987AFBF45BC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016450   (770538) от 14.05.2016
-
-VA - House Music All Night Long (2016) [MP3|320 кб/с] <Dance, Electro House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aldo Moraes - Aria de Rio (Ipanema Beach Mix) (feat. Tony Trumpetta)
-02. Alan Brooker - Ritmo Profundo (Piano House Club Mix)
-03. Mark Moragui - The Oath and the Man (Long Groove Mix)
-04. Minimal Warriors - NCIS Tec (Ibiza Mix)(   Читать дальше...   )Жанр: Dance, Electro House, Tech HouseПродолжительность: 01:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2FCBC2599837132385465ABBD1AE8283BE95CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016427   (770396) от 14.05.2016
-
-VA - Auto-hits. Hot mix (2016) [MP3|320 кб/с] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason D3an - Bounce Around The World (Radio Edit)
-02. Steve Aoki Feat. Sherry St. Germain - Heaven On Earth (Ookay Remix)
-03. Ellie Goulding - Army (Mike Mago Remix)
-04. Laserion - Welcome To Shangri-La (Juan Belmonte Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E3B67EA745C8B4BD763206A302D7916CF97B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016429   (770270) от 14.05.2016
-
-VA - Зажигательный молодежный музыкайф на Europa Plus - 5 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770270.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Birdy - Wild Horses
-002. Наташа Королева Feat. Vj Арчи - Не Говори Нет
-003. David Guetta Feat. Namie Amuro - What I Did For Love
-004. Полина Гагарина - Не Пара(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512B0CC096ABF9C1F631E7684013167BA8682BFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

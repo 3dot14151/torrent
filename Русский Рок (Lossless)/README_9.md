@@ -1,90 +1,3 @@
-###  Публикация: 1089443   (951817) от 03.01.2017
-
-Тараканы! - Сила одного (2016) [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Семь миллиардов
-02. За тех, кто в меньшинстве
-03. Ни рыбы, ни мяса
-04. Ложь за ложь(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF238ADD057003865FF1460A31596193F14D873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981757   (951200) от 01.02.2016
-
-Кукрыниксы - Вера, Надежда, Любовь (2016) Single [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вера
-02. Надежда
-03. Любовь
-04. Надежда (Kukremix - Фомин М.)(   Читать дальше...   )Жанр: RockПродолжительность: 00:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33420D4C7A26D70FC36FB59A392A93CD19D7D492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362107   (951179) от 22.02.2020
-
-Inexist - Relax And Feel Free (2006) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F*ck The Difficult (3:36)
-02. Infected (2:28)
-03. Failed (3:25)
-04. Neoworld Prophecy (3:49)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9BC2B4F0F9228E0BC7AA902AF24B060BBDB3035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362058   (951139) от 22.02.2020
 
 Рада и Терновник - Подлинная история трех миров 1991-2001 (2001) [FLAC|Lossless|image + .cue]<Rock, Folk Rock>
@@ -742,6 +655,93 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDD12E467D3FE63BB5DFED306984420D6836C687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365351   (930556) от 07.03.2020
+
+НОМ - Весёлая карусель (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930556.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ну, погоди!
+2. Антошка
+3. В лесу родилась ёлочка
+4. Сорняки(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22682F5C08E8948FB0527DAEBD1F81D57CCB78F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365574   (929023) от 08.03.2020
+
+Sergey Golovin - Sense Of Reality (2012) [FLAC|Lossless|Web-DL|tracks] <Instrumental Rock, Progressive Metal, Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frosterica (5:09)
+02. Sense Of Reality (4:53)
+03. Three Days Ago (3:53)
+04. Hammer Of Justice (4:19)(   Читать дальше...   )Жанр: Instrumental Rock, Progressive Metal, DjentПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9084E1806CD9511B0203E5706E21B9577EAB935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365635   (928898) от 08.03.2020
+
+Александр Градский - Любимая (2003) [FLAC|Lossless|tracks + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я Гойя
+02. Песня о друге
+03. В твоих глазах
+04. Ничто в полюшке(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13ED8E38AE84B2E17B54107B16B0133F961650E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

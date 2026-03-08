@@ -1,3 +1,32 @@
+###  Публикация: 1212514   (775816) от 12.03.2018
+
+VA - JOOF Editions Vol.4 (Mixed by John 00 Fleming) (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  John 00 Fleming  -  JOOF Editions Vol.4 (Continuous DJ Mix)  4:36:19
+02.  John 00 Fleming  -  JOOF Editions Vol.4 (Pt. 1 - Continuous DJ Mix)  1:13:05
+03.  John 00 Fleming  -  JOOF Editions Vol.4 (Pt. 2 - Continuous DJ Mix)  1:13:05
+04.  John 00 Fleming  -  JOOF Editions Vol.4 (Pt. 3 - Continuous DJ Mix)  1:13:05(   Читать дальше...   )Жанр: Progressive House, Progressive Trance, Techno, Psy-Trance, BreaksПродолжительность: 15:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF028FD7209162396883842A12551E35E8FDF7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483836   (775743) от 12.03.2018
 
 SCSI-9 - Metamorphosis (2012) [MP3|320 кб/с]<Tech  Deep House  Minimal>
@@ -713,35 +742,6 @@ VA - Wake Your Mind Sessions 003 (Mixed by Cosmic Gate) (2018) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:196F26713A3EFFC23007F25C6F710B3BDDC41E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125582   (768103) от 15.04.2017
-
-VA - Sirup Deep Anthems Mykonos (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Croatia Squad - The Best 03:25
-02. Sir Felix - Hope (Nora En Pure Radio Mix) 03:27
-03. Edx - Goombah (Radio Mix) 03:07
-04. Sons Of Maria - Surrender (Radio Mix) 04:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C5A5ADED71F27418AA37DEEAA04713D480B581
 ```
 
 https://mybot314.ru/tekegram_catalog/

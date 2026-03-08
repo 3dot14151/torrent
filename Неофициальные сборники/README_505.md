@@ -1,3 +1,177 @@
+###  Публикация: 959647   (314845) от 25.11.2015
+
+VA - Voices Trance Drifter Dreams (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blugazer - Seasons (Original Mix) 06:56
+02. ATB - Flash X 04:08
+03. Darkwinder - Voice Of Armiti 08:42
+04. Angel Ace - I Will Find A Way 07:08(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3F86C6387E9F3F1F928C58B3DB3C249D9D5BA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959761   (314568) от 25.11.2015
+
+VA - Самые сливки дискотек от радио Maximum (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314568.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kid Ink - Ride Out
+002. Paul Oakenfold Feat. Angela Mccluskey - You Could Be Happy
+003. Gorgon City Feat. The Six - Take It All
+004. Самира - Жаркое Лето(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4267927D3A75C46C5B3CB86ED765B70D4CBBA184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959700   (314566) от 25.11.2015
+
+Александр Барыкин и группа Рок-Ателье - Фестивальный концерт (1985) [MP3|320 кб/с]<Pop-Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звёздный корабль (А.Барыкин – М.Пушкина) (4:27)
+02. Ты увидишь карнавал (А.Барыкин) (3:42)
+03. Дай мне руку (А.Барыкин) (5:27)
+04. Фестиваль (А.Барыкин – М.Пушкина) (5:25)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF07DF64C3EAD0E8DF06EB25EED657EFE6912DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076232   (314365) от 25.11.2016
+
+VA - Future Trance 78 (2016) [MP3|320 Kbps] <Future House, Trance, Bigroom, Melodic, Progressive, Indietronica>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn feat. ALMA - Bonfire (Chris Lake Remix) 3:26
+02. Filatov & Karas - Tell It To My Heart 3:08
+03. Don Diablo - Cutting Shapes 2:59
+04. Major Lazer & Showtek - Believer 3:44(   Читать дальше...   )Жанр: Future House, Trance, Bigroom, Melodic, Progressive, IndietronicaПродолжительность: 03:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2167A8DB7D6F6180E14FBCE20C7BD2F9A7B70D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076276   (314308) от 25.11.2016
+
+Zara - #Миллиметры (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 2:30
+02. Я не могу без тебя жить 3:37
+03. Лети, душа 4:27
+04. #Миллиметры 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087F8F2C37C2F6C6450FFBA0839799F96B3ED371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332171   (314269) от 20.10.2019
+
+VA - German Top 100 Single Charts 18.10.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Apache 207 - Roller
+03. Capital Bra x Samra - 110 (feat. LEA)
+04. Apache 207 - 200 km/h(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98678AD02497EEF748E565CD300197056F4B7858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332161   (314267) от 20.10.2019
 
 VA - The Official UK Top 40 Singles Chart 18.10.2019 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -599,185 +773,6 @@ VA - Самые Горячие Хиты Дискотек (2018) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A5A4A6ACF6E61FA72C4A449E96E3F8CA7BE1C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332241   (313181) от 20.10.2019
-
-VA - Свежий Русский Хит от ALEXnROCK часть 3 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313181.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2019 год. Это 3я часть сборника. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Сати Казанова - Ti amo
-02. Zivert - Зелёные Волны (Dj Nejtrino & Dj Baur Remix)
-03. Макс Барских - Неслучайно (Igor Dunaev & Rakurs Remix)
-04. Ольга Бузова - Я еще верю(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9759B279CE55DB1811F42127481644AC091E32E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422090   (313163) от 07.11.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 06.11.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dotan - NUMB (3:38)
-02. Jason Derulo - Take You Dancing (3:10)
-03. twocolors - Lovefool (3:10)
-04. Bastard! - F..k That (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3866AC7CD8B3F44B2FCFC614E4C501FD921B41A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422050   (313158) от 07.11.2020
-
-VA - Blues for Christmas (2020) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Lee - Christmas Blues
-02. Brent Johnson - Christmas Tears
-03. Bryan Lee - Santa Claus Is Messin' with the Kid
-04. Beau Kavanagh & The Broken Hearted - Santa Claus Is Back in Town(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C09F236E1D4E8F25082BBE6B873E28D58864533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422217   (313146) от 07.11.2020
-
-VA - Merry Christmas Baby! Christmas BluesRock (2020) 4 CD [MP3|320 Kbps] <Blues, Rock, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvis Presley - Amazing Grace
-02. AC/DC - Mistress for Christmas
-03. B.B. King - Back Door Santa
-04. G. Love - Christmas Blues(   Читать дальше...   )Жанр: Blues, Rock, PopПродолжительность: 11:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70BFE16D33D8F891391C670195310F7042FFEEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583436   (313082) от 02.12.2012
-
-Swedish House Mafia - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House / progressive house / electro house>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313082.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Swedish House Mafia feat. Usher – Euphoria (Original Mix)
-2.Swedish House Mafia feat. Tinie Tempah – Miami 2 Ibiza (Original Mix)
-3.Swedish House Mafia feat. John Martin – Save The World (Original Mix)
-4.Swedish House Mafia feat. John Martin  – Dont You Worry Child (Extended Mix)
-5.Swedish House Mafia and Laidback Luke feat. Deborah Cox – Leave The World Behind (Original Mix)
-6.Swedish House Mafia – One (Original Mix)
-7.Swedish House Mafia – Greyhound (Original Mix)
-8.Knife Party vs. Swedish House Mafia  – Antidote
-9.Coldplay – Every Teardrop Is A Waterfall (Swedish House Mafia Remix)Жанр: House / progressive house / electro houseПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FBC1D8BD9F9C73727EEFC4D96C95A823392CFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182811   (312787) от 12.11.2017
-
-VA - Hot Autumn Dance (2017) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Felix Jaehn - Dance With Me (Bakula Edit)
-02. Luca Debonaire - Boys Who Love Girls (Original Mix)
-03. Camila Cabello - Havana (feat. Young Thug)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A3DD50AF08D72D7F1130AD3658200BDA099A51
 ```
 
 https://mybot314.ru/tekegram_catalog/

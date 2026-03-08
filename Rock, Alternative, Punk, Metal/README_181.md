@@ -1,32 +1,3 @@
-###  Публикация: 988753   (918986) от 21.02.2016
-
-Judas Priest  - Collections (2008) Compilation [FLAC|Lossless|image + .cue] <Speed Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Breaking The Law 	02:36
-02. 	Living After Midnight 	03:31
-03. 	Out In The Cold 	06:28
-04. 	Love Bites 	04:49(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41342ACADC2BF1DBE17C8C1623466B4018F1086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367079   (918979) от 14.03.2020
 
 Paul McCartney - Grand Collection (1997) [FLAC|Lossless|image + .cue] <Rock>
@@ -765,6 +736,35 @@ WastedSky - Мы все нули и единицы (2020) EP [MP3|320 Kbps] <Nu 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6905441882723A75D7320F15F4B8BA453464BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989182   (917387) от 22.02.2016
+
+Hell Theater - Reincarnation of Evil (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dark Shadows Room
+02. Lady of the Candles
+03. The Room of a Million Voices
+04. Smell of Blood(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D327B9F01DBC6C8639FFD6F3F5A1733601F030
 ```
 
 https://mybot314.ru/tekegram_catalog/

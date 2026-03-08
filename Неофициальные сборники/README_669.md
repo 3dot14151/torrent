@@ -1,3 +1,177 @@
+###  Публикация: 1759429   (37891) от 08.11.2024
+
+VA - Compilation part 129 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isskoy - Galaxy
+02. Jambeats - Baby
+03. Zerrid - Imagination
+04. Menda - Fallen(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1C949DB1382611E279512EB2E59D2F7A667FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759428   (37885) от 08.11.2024
+
+VA - Musical kaleidoscope part 11 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Enigmatic Music 2
+02. Diee & Kasimoff & Omer Said - Enigma
+03. Sisco Le Voyageur - Dreams
+04. Sisco Le Voyageur - Melodico Dream(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCD19C1E855081325931287EF344339518744D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759818   (37689) от 10.11.2024
+
+VA - Melodic Techno 1 2024 [MP3|320 Kbps] <Melodic Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture; Kevin de Vries; Yellowitz - Just Like Home (Kevin de Vries Remix) (5:03)
+02. Armin van Buuren; Agents of Time; ORKID - Love Is Eternity (3:33)
+03. John Summit; Kaskade; Julia Church - Resonate (4:01)
+04. Reverse; DeepMe; Ubo; Sāde Frame - Heat (4:13)(   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 04:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D28681AEE29117A3B4B6EBDBE233C960C24D683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759830   (37661) от 10.11.2024
+
+VA - Musical kaleidoscope part 12 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michel Pepe - Le Coeur Des Animaux
+02. Aleksey Boychenko - Magic Winter
+03. Sisco Le Voyageur - Anastasia N°2
+04. Kamro - Indilla Enigma(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95522BE7DDEF55396A71001D89F7E52457353BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759731   (37651) от 10.11.2024
+
+VA - Record Super Chart 09.11.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugel, Topic, Arash, Daecolm - I Adore You (3:34)
+02. Sophie and the Giants - Shut Up And Dance (2:57)
+03. Tayna, Marshmello & UKAY - Si Ai (3:04)
+04. Edward Maya feat. Yohani - Diamonds (2:08)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED305C1A8F52067366989D401D9979CC7B924166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759905   (37611) от 11.11.2024
+
+VA - Sick Disco Moves (2024) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37611.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelo Ferreri - That Riff 05:06
+ 002. Jeanne Mas - Johnny Johnny 04:46
+ 003. Donna Summer - Last Dance 07:47
+ 004. Gloria Gaynor - I Will Survive 08:02(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 10:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80B400213513AEBBE91C2A3225F4957E85A39E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760009   (37602) от 11.11.2024
 
 VA - Neural Dancing (2024) [MP3|320 Kbps] <Synthpop, Pop, Dance, Electronic>
@@ -571,180 +745,6 @@ Kasimoff - Compilation Cd 2 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09FE90102D96138F977601E94F9238DAA4213CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761201   (36851) от 18.11.2024
-
-Hamidshax - Compilation Cd 2 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Heart Hurts
- 02.  Exhale
- 03.  My World
- 04.  Back to You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDE657EF6C8259A81B3A838A28DA4319A20ACAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761307   (36785) от 19.11.2024
-
-VA - Best of Electro Swing (2024) [MP3|320 Kbps] <Swing, Nu Jazz, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parov Stelar - Dirty Mariposa [05:24]
-02. Caravan Palace - Supersonics (Out Come the Freaks Edit) [02:53]
-03. Swingrowers - Love! [03:05]
-04. The Electro Swingers, Vaughn Monroe - Let It Snow! [03:36](   Читать дальше...   )Жанр: Swing, Nu Jazz, ElectroПродолжительность: 04:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F66B98A33B50790407BE09E6B9B7F98F51EDE03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761321   (36744) от 19.11.2024
-
-VA - Music News For Forum vol.044 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36744.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dasha - Heartbreaker From Tennessee (02:13)
- 002. A.Losa feat. Danna Max & DRULZ - Grenade (02:21)
- 003. Aklesso feat. Torey D’shaun - Destiny (03:53)
- 004. Alexia - Ploua Cu Servetele (03:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:180A9C1B3AC1EDCC9FE8757743EF1E3C0D2BB81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761408   (36702) от 20.11.2024
-
-Николай Гринько - Синглы (2020-2024) (2024) [MP3|320 Kbps] <Бард-рок, Поп-рок, Авторская песня>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сурикаты
-02. Видимо-невидимо
-03. Типакорочекакбы
-04. Лиссабон(   Читать дальше...   )Жанр: Бард-рок, Поп-рок, Авторская песняПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD94C6BDF4CDC0B83889915B22B718EC554452EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761515   (36665) от 20.11.2024
-
-Hamidshax - Compilation Cd 3 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  California
- 02.  Black Sea
- 03.  Help Me
- 04.  No More(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EC25224AF23D686724CE9C0F4B1C6D2C26A759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761635   (36578) от 21.11.2024
-
-VA - In ecstasy from metal (2024) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36578.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Accept - Humanoid [04:35]
-002. Metallica - 72 Seasons [07:39]
-003. BABYMETAL, Tom Morello - METALI!! (feat. Tom Morello) [03:29]
-004. Megadeth - We’ll Be Back [04:30](   Читать дальше...   )Жанр: Metal, Glam Metal, Hard RockПродолжительность: 11:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB02427F24F99DB6987E30AD7D78C01167EE33F
 ```
 
 https://mybot314.ru/tekegram_catalog/

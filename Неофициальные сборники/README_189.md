@@ -1,3 +1,177 @@
+###  Публикация: 1206371   (782502) от 13.02.2018
+
+VA - Hottest Electro Swing (2018) [MP3|320 Kbps] <Electro Swing>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doobie - Swing Interlude (0:53)
+02. DJ Tissue, Googirl - The Time (Tik - Tak) (Electro Swing Mix) (5:42)
+03. Half Decent - Something Like This (4:04)
+04. Flowryder - No Robots (Extended Version) (7:47)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 01:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E4CDDD0CFCCA249E8A217FE594C6EAE8A4C201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206125   (782487) от 13.02.2018
+
+VA - Best Hits 80s от ALEXnROCK часть 3 (2018) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Michael Bolton  -  Time, Love And Tenderness  5:30
+02.  Sandra  -  Midnight Man  3:04
+03.  Bad Boys Blue  -  Gimme Gimme Your Lovin  3:50
+04.  Roxette  -  Dangerous  3:49(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 03:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAC9B06FE17B4B2E093F5CEDF39ECEB05403E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206581   (782115) от 14.02.2018
+
+VA - Europa Plus: ЕвроХит Топ 40 / 09.02. (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Post Malone feat. 21 Savage  -  Rockstar  3:38
+02.  ZAYN feat. Sia  -  Dusk Till Dawn  3:59
+03.  Merk Kremont  -  Sad Story Out Of Luck  3:32
+04.  Imagine Dragons  -  Whatever It Takes  3:21(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1C239D8DB37F6A8F7A2778FB65EE1F76EC8DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206478   (782111) от 14.02.2018
+
+VA - Две Судьбы, Два Голоса (2018) [MP3|256-320 Kbps] <Поп, Рок, Шансон>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782111.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Руки Вверх! & Astero - Когда мы были молодыми
+002. Марина Капуро & Aнсамбль Яблоко - Happy New Year
+003. Руки Вверх vs. Ser Twister - С Новым Годом! (DJ Prezzplay MashUp)
+004. Тараканы! - Stacy Hairy (feat. Иван Глобин & Дарья Глобина)(   Читать дальше...   )Жанр: Поп, Рок, ШансонПродолжительность: 06:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7EF11DDC8D9E5C601026908B7A45C78671DAB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206482   (782063) от 14.02.2018
+
+VA - Best Of The Sun Jazz (2018) [MP3|320 Kbps] <Jazz, Acid, Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jazz Night Music Paradise  -  I Need Jazz  3:23
+02.  Jazz Erotic Lounge Collective  -  Sexual Energy  3:57
+03.  Nina Simone  -  I Got It Bad (And That Ain't Good)  4:05
+04.  Classical Romantic Piano Music Society  -  Kinky Fun  3:16(   Читать дальше...   )Жанр: Jazz, Acid, Smooth JazzПродолжительность: 05:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF390A1EE550AE7E5B47ACC96C0DF7C39289DBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206609   (782013) от 14.02.2018
+
+VA - Русское Радио. Лучшее 2017 от DON Music (2018) [MP3|256/320 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782013.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Григорий Лепс - Орлы или вороны (feat. Максим Фадеев) (03:27)
+002. Полина Гагарина - Обезоружена (03:46)
+003. Сергей Лазарев - Так красиво (03:41)
+004. Ёлка - Мир открывается (03:41)(   Читать дальше...   )Жанр: ПопПродолжительность: 07:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9ED6CD591DCC5602D94D693A72B0D91B4BBD424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206341   (781966) от 14.02.2018
 
 Cheb Khaled - Aicha (2017) Remix [MP3|320 Kbps] <Club, Dance>
@@ -576,180 +750,6 @@ VA - Friend Zone: Disco Funky Mix (2020) [MP3|320 Kbps] <Disco, Funky, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9549223BF009B3F588AA583D7C4F164EB6C54F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391490   (781019) от 20.06.2020
-
-VA - Cowboy Blues: Country Fest Music (2020) [MP3|320 Kbps] <Country, Folk, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Fallon - Hard Feelings
-02. Allison Moorer - Heal
-03. Ingrid Andress - Life Of The Party
-04. Aaron Watson - Heartstrings(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 05:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31CB6ECC6DE142DAD89CE520B1246D779716E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391337   (781002) от 20.06.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 19.06.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mari Ferrari with M.Z.I & S-ELM feat. Vianne - Drop Dead 2:32
-02. Pascal Letoublon - Friendships 4:02
-03. Zivert - ЯТЛ 3:44
-04. Ava Max - Salt 3:00(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E028180C768F87CDD4DBF6E773C52252DCF7ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391486   (781001) от 20.06.2020
-
-VA - Beatport Deep House: Electro Sound Pack #107 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781001.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Frank Rain - Deep Vertigo
-002. Velvet House - This Is A Supernova
-003. Frank Fusto - A Passion To Explain
-004. Armand Gucci - Syncrodance(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 07:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6524532C8FA97C87E413FEED273B46867481C1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391465   (780946) от 20.06.2020
-
-Сборник - Вспоминая СССР. Любимые песни 2 (1960-1969) от DON Music, 2020 [MP3|320 Kbps] <Поп, Ретро>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780946.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Майя Кристалинская - Всегда со мной (1960)
-002. Ружена Сикора - Приходи скорей (1960)
-003. Леонид Утёсов - У Чёрного моря (1960)
-004. Валентина Левко - А годы летят (1960)(   Читать дальше...   )Жанр: Поп, РетроПродолжительность: 07:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26744A1421FDF420E3D5EBB87C3AF7F8B4D8C4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207357   (780864) от 17.02.2018
-
-VA - Record Super Chart #524 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
-02.  Maruv & Boosin  -  Drunk Groove (Kolya Funk & Mephisto Radio Mix)  3:43
-03.  GSPR  -  With You  4:17
-04.  Vanotek feat. Eneli  -  Back To Me (DJ Mexx & DVJ Karimov Radio Remix)  3:02(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC13BBA0B8D12DA42A32B1D9531EA4F66E2A1EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207142   (780854) от 17.02.2018
-
-VA - We Love Bossa Nova (2018) [MP3|320 Kbps] <Downtempo, Jazz, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florito – A La Playa
-02. Alberto Dos Santos – Copa Brasil
-03. Rob Hayes, Angelina – Just Be Good To Me (Latin Breeze Remix)
-04. Ginger Tunes – Black Orpheus(   Читать дальше...   )Жанр: Downtempo, Jazz, HouseПродолжительность: 04:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CDEDF15D49C3986C54F17C05EF6C05E42158D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

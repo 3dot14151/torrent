@@ -1,3 +1,61 @@
+###  Публикация: 1454136   (1026419) от 14.03.2021
+
+VA - Synthwave Dreams, Vol. 10 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Tishkov - Feel So Good (Microsha 89 Remix) (3:18)
+02. Born In '82 - Night Never Ends (New Night Version) (4:38)
+03. Aurolab - You Are No More (7:38)
+04. #Mali - Brisbane (4:33)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9798A26CCC139011EB8A3E822B1C0EF31AD25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454302   (1026418) от 14.03.2021
+
+Paradox Obscur - Singles & Rarities (2021) [MP3|320 Kbps] <Darkwave, Alternative>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Existence (3:11)
+2. Visions (3:39)
+3. Boulevard Voltaire (3:44)
+4. Fatal (4:00)(   Читать дальше...   )Жанр: Darkwave, AlternativeПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B646F47A0279AAD3CF44AB8C645F515A9EF4494E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454137   (1026417) от 14.03.2021
 
 VA - Synthwave Dreams, Vol. 11 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
@@ -687,64 +745,6 @@ Jay-Jay Johanson - Rorschach Test (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D552760018F4613556EA188C89673C0C4B95BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202479   (1025738) от 18.03.2021
-
-Docetism - Discography 39 Releases (2012-2021) Nichts [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Field Recording, Dub, Drone>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Woods (03:41)
- 02. Putrefactio (04:49)
- 03. Heart Of The Wilderness (08:15)
- 04. There Is Nothing Left (06:00)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Dub Techno, Field Recording, Dub, Drone •Продолжительность: 21:37:41 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44F189709009BC9D215BF477571EA9B372E6F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344983   (1025729) от 18.03.2021
-
-Northern Electronics - Label-Pack 77 Releases (2013-2021) [FLAC|Lossless|tracks] <Experimental, Ambient, Techno, Noise, Industrial>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Path Of Devotion (03:24)
- 02. Being Water (06:02)
- 03. The Norns Of Fate (01:42)
- 04. Practices For Dying (06:07)(   Читать дальше...   )Жанр: Experimental, Ambient, Techno, Noise, Industrial •Продолжительность: 51:19:31 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1448D363B5E137D587D514A49198A5322FF012A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

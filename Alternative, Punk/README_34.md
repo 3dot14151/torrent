@@ -1,61 +1,3 @@
-###  Публикация: 1660744   (189212) от 13.09.2023
-
-Staind - Confessions Of The Fallen (2023) [MP3|320 Kbps] <Alt.Metal, Post-Grunge, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lowest In Me
-02. Was Any Of It Real!
-03. In This Condition
-04. Here And Now(   Читать дальше...   )Жанр: Alt.Metal, Post-Grunge, Nu MetalПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C4A2CC52A0709D59E81A05A7C58E4536C39596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661237   (188780) от 14.09.2023
-
-30 Seconds To Mars - It's The End Of The World But It's A Beautiful Day (2023) [MP3|320 Kbps] <Alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stuck
-02. Life Is Beautiful
-03. Seasons
-04. Get Up Kid(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 00:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9145D4FA18B2C7F9D8211C6BEBFDDA21BCADCF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661491   (188203) от 16.09.2023
 
 Guitar Instrumentals - Deepest Guitar Blues & Stories (2023) [MP3|320 Kbps] <Instrumental, Alternative, Blues>
@@ -744,6 +686,64 @@ Imposter - Абсцесс (2020) [MP3|320 Kbps] <Street-Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D54D33BCE51300424A95C5ED4F3111CE4DD9E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599205   (160162) от 22.12.2022
+
+Weezer - 4 EP (2022) [MP3|320 Kbps] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2022 - SZNZ: Autumn
+2022 - SZNZ: Spring
+2022 - SZNZ: Summer(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 4 CD, 01:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8544394F718328FB3D9410CF6B16ECB2D54251EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518161   (157465) от 18.12.2021
+
+Красная Плесень - Союз платиновых пародий (2021) 4 альбома [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Губки срантиком
+02. География
+03. Часы
+04. С размаху на грабли(   Читать дальше...   )Жанр: Punk RockПродолжительность: 02:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6590195E4A62D0F2E752676412FAA565E0DAB168
 ```
 
 https://mybot314.ru/tekegram_catalog/

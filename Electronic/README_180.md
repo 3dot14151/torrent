@@ -1,3 +1,61 @@
+###  Публикация: 1128287   (728883) от 24.04.2017
+
+VA - Lounge System Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elton Dumont - All Night Long  3:14
+02.  Paul Liner - Chet Despair  2:59
+03.  One Groove Ensemble - Jazz Dreams  3:01
+04.  Yves Semain - Miracle  3:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD4A2ED74255F8F1BEBAB64AFEE666CA901238CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284307   (728871) от 21.02.2019
+
+ZOT3 - Wave of Memories (2019) EP [MP3|192 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728871.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Clear Sky (Original Mix) (3:05)
+2. Dead (Original Mix) (4:18)
+3. Follow me (Original Mix) (3:41)
+4. Help me (Original Mix) (3:41)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E07743D3591E493AF3AD80892F2E20ECB0C29E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128349   (728865) от 24.04.2017
 
 VA - I Love Jango (2017) [MP3|320 Kbps] <House>
@@ -683,64 +741,6 @@ VA - Chillaxed Hawaii Nights (2016) [MP3|320 кб/с] <Chillout, Downtempo, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE072637C3063BCFD4E1AE70020A01430707668D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023304   (726722) от 04.06.2016
-
-VA - Ambient Spheres (2016) [MP3|320 кб/с] <Downtempo, Chillout, Electronica>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kuba - Suddenly (3:35)
-02. Miktek - Dear Universe (4:31)
-03. Perpetual Loop - Night Drive (0:45)
-04. Astronaut Ape - Night In Ubud (8:11)(   Читать дальше...   )Жанр: Downtempo, Chillout, Electronica, AmbientПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A45AB5C720B38741E02A7F95456EBDE07EC75D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023145   (726712) от 04.06.2016
-
-VA - Defected In The House Ibiza (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simon Dunmore - Defected In The House Ibiza 2016 Mix 1 (Original Mix) [66:33]
-02. Simon Dunmore - Defected In The House Ibiza 2016 Mix 2 (Original Mix) [70:25]
-03. Simon Dunmore - Defected In The House Ibiza 2016 Mix 3 (Original Mix) [72:19]
-04. Tonja Dantzler - In And Out Of My Life (Dario D'Attis Remix) [08:01](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 08:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD077B3BDB57A242A227CD6DE316BA42BD95813
 ```
 
 https://mybot314.ru/tekegram_catalog/

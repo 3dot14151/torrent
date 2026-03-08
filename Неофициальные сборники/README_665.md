@@ -1,3 +1,178 @@
+###  Публикация: 1750279   (42979) от 20.09.2024
+
+VA - compilation musical kaleidoscope part 2 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Enigma French N°29
+02. Ennio Morricone/ Jk Sax - Chi Mai (Saxophone Cover)
+03. Zakhid - London
+04. Candy Dulfer Ft Dave Stewart/ Riltim - Lily Was Here(   Читать дальше...   )Жанр: Electronic, Instrumental, SaxophoneПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83750E08E31DDB1841CABDC20FA62F56E0B6D878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749882   (42926) от 20.09.2024
+
+Queens of the Stone Age - Compilation (2024) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Think I Ain't Worth A Dollar, But I Feel Like A Millionaire (Album Version With Interlude) [03:13]
+02. No One Knows [04:39]
+03. First It Giveth (Album Version) [03:18]
+04. Song For The Dead [05:52](   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 03:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1963EF936E61095B0A471C4C36F5501338DEFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750276   (42919) от 20.09.2024
+
+VA - Compilation part 122 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davit Barqaia - Dreamers
+02. Dieez - Sienna
+03. Elno - Senteber
+04. Dndm - Rainfall(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4751A8F951A4F5F7DAEEF33B9B7441D58CC97118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750277   (42916) от 20.09.2024
+
+VA - Compilation part 123 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mannonov - Justtake
+02. Deepfm - Typhoones
+03. A-Sultan - Passion
+04. A-Sultan - Angels Like You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6EF068D72C3D0FC8E5E818E3D7A663E0CDDC41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750756   (42821) от 21.09.2024
+
+VA - Music News For Forum vol.025 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42821.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nessa Barrett - Dirty Little Secret (03:35)
+ 002. 3Sonn feat. SOULOUD - 2000 шагов (02:04)
+ 003. 4eholl feat. G-POL & SHALUTA - Капли (02:12)
+ 004. 5УТРА - Ромашки (02:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F24FB4396C84CE4E24882BA09157E4FFB1A0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569730   (42798) от 22.09.2024
+
+Radio Tapok - Дискография (2016-2024) [MP3|320 Kbps] <Rock, Punk Rock, Metal, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Олег Абрамов родился 15 февраля 1989 года и приобрёл известность благодаря авторскому переводу и живому исполнению всемирных хитов. Он переводит иностранный рок на русский, стараясь не отступать от смысловой нагрузки оригинала.
+Как переводчик-исполнитель, он создал творческое объединение, занимающееся адаптацией песен в стиле рок, под названием «Радио Тапок».
+⠀2016 — 2022 Альбомы
+2022 — Наследие
+2018-2023 — СинглыЖанр: Rock, Punk Rock, Metal, Pop RockПродолжительность: 11:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37589687BE8C591E5AA74395E5047EFCFFE500A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574501   (42773) от 22.09.2024
 
 Maneskin - Коллекция (2017-2024) [MP3|320 Kbps] <Rock, Pop-Rock, Glam Rock>
@@ -570,180 +745,6 @@ VA - Blues And Roll (2024) [MP3|320 Kbps] <Blues, Rock Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F3284E5A6A2B811FF7A1A05FA514FF673FC6C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752668   (41843) от 01.10.2024
-
-VA - 100 Greatest Rock Songs (2024) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41843.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Immigrant Song - Led Zeppelin - (02:26)
- 002. Can’t Stop - Red Hot Chili Peppers - (04:29)
- 003. Push - Matchbox Twenty - (03:59)
- 004. Jump (2015 Remaster) - Van Halen - (04:02)(   Читать дальше...   )Жанр: RockПродолжительность: 06:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94F28D81074D8ED4E63EE05886F9C943FB23406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752659   (41794) от 01.10.2024
-
-VA - Musical Kaleidoscope Part 5 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davbo - Angelica
-02. Dj Aurm - Lonely Road
-03. Javad - Talk to Me
-04. Сергей Грищук - Дорога  Грёз(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D2E75392AB1CB6D740C569610877B191796C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752556   (41792) от 01.10.2024
-
-VA - Billboard Global 200 Singles Chart (28.09.2024) (2024) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41792.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lady Gaga - Die With A Smile - (04:12)
- 002. Billie Eilish - BIRDS OF A FEATHER - (03:30)
- 003. Sabrina Carpenter - Taste - (02:37)
- 004. Sabrina Carpenter - Espresso - (02:55)(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 11:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EA26A364044A152684AEDC722766AFB5EA7527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752537   (41771) от 01.10.2024
-
-VA - Night Jazz Contemporary (2024) [MP3|320 Kbps] <Jazz, Funk, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41771.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sam Gendel - Nature Boy (1:03)
-002. Naima Faraò - When I Want (1:18)
-01. The Natural Yogurt Band - Snowfingers (1:39)
-004. Timo - Paradigm Change (1:46)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 10:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB3ABA198669A3BC896257EA8875CF8E2B69D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752710   (41721) от 02.10.2024
-
-VA - Summer Pop Coctail Party Vol. 02 (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41721.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Papik - Gente Distratta - (05:29)
- 002. Michaela May - Ultraviolet - (03:25)
- 003. Banners - Have You Ever Loved Someone - (03:19)
- 004. Benson Boone - Beautiful Things - (03:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7849F0D30E834E5D3BFAF98EB9AE50EB14243F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752698   (41717) от 02.10.2024
-
-VA - German Top100 DJ Charts 27.09.2024 (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41717.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Freestyler (Rock The Microphone) - Lost Frequencies & Bomfunk MC's - (02:54)
- 002. Around The World - Niklas Dee feat. Ren Miller - (02:21)
- 003. I Adore You - HUGEL, Topic & Arash feat. Daecolm - (03:34)
- 004. Come Back and Stay - Rockstroh - (03:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898508F2E2B013D383371A6B524FE542527CAA9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

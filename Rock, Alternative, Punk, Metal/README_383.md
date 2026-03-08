@@ -1,32 +1,3 @@
-###  Публикация: 1288029   (697861) от 10.03.2019
-
-Big Head Todd And The Monsters - Sister Sweetly (1993) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697861.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Broken Hearted Savior (04:21)
-2. Sister Sweetly (04:33)
-3. Turn The Light Out (03:37)
-4. Tomorrow Never Comes (05:20)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64698DF5A5796033937274BDF1DF0BE49E02886F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288172   (697773) от 10.03.2019
 
 Zaklon - Viatry Karačunavaj Nočy (2017) [MP3|320 Kbps] <Black Metal>
@@ -744,6 +715,35 @@ Manfred Mann's Earth Band -  Nightgales And Bombers (1975) Remastered, 1999, Cre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE01F163A61B2DC13AA740BD961F408FE9E24CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133017   (696868) от 11.05.2017
+
+Hoops - Routines (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Dream Pop, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun’s Out (2:49)
+02. Rules (2:13)
+03. On Top (3:45)
+04. Benjals (2:20)(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, Lo-FiПродолжительность: 00: 32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20DF9B5C0F3C4F0815F4804CF123973433BCB736
 ```
 
 https://mybot314.ru/tekegram_catalog/

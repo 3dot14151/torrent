@@ -1,3 +1,177 @@
+###  Публикация: 1190018   (268705) от 08.12.2017
+
+VA - По волне моей памяти 2: Том38 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Браво  -  Чёрный кот  2:52
+02.  Ногу свело!  -  Лилипутская любовь  3:01
+03.  Рок-Острова  -  Ничего не говори  4:25
+04.  Божья коровка  -  Гранитный камушек  5:08(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500CEE114879D22DE402EE07125E76EF5BA6B6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190240   (268658) от 08.12.2017
+
+VA - По волне моей памяти 2: Том39 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Иванушки International  -  Тучи  4:13
+02.  Маша и Медведи  -  Любочка  4:22
+03.  Секрет  -  Привет  3:06
+04.  Русский Размер & Профессор Лебединский  -  Бегут года  4:07(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 02:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D9747E0AF13A9007690DA3EED5FDA4C73AA50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298538   (268589) от 16.11.2019
+
+VA - По волне моей памяти  70', 80', 90' (2019) [MP3|254-320 Kbps] <Советская эстрада, Ретро, Шансон>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анатолий Могилевский - Романс 04:36
+02. Виктор Шульман - Письмо в Одессу 02:53
+03. Анатолий Днепров - Радовать 2 05:50
+04. Виктор Березинский - Секс 02:07(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрада, ШансонПродолжительность: 205:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B790CE513B78528294F1073B0540FEF2F6EEB089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190197   (268569) от 08.12.2017
+
+VA - Дискотека Руки Вверх 65 (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Жуков - Конфета (Lucoveros Cover)
+02. Владимир Лучников - Задержи дыхание
+03. Potehin Band - Чужая
+04. НашеVrемя - Хулиганка(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CEA0315477F31784C724DD6199C88C146DAF6A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338733   (268223) от 17.11.2019
+
+VA - Heavenly Tracks: Greatest Electro House (2019) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268223.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Raw Funk Maharishi - Hippy Jazz
+002. Grasor - Atom
+003. Pablo Moriego - Go Fuhk The Envious
+004. Max Norwarl - Irtron (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 13:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6AC82F78358867C532629490B6F958BEA5299E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338664   (268213) от 17.11.2019
+
+VA - The Official UK Top 40 Singles Chart 15.11.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Dua Lipa - Don't Start Now
+03. Regard - Ride It
+04. Ed Sheeran - South of the Border(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2862CC3D3395D03E11036AEF692F264D1F0EFB4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338776   (268200) от 17.11.2019
 
 VA - Record Super Chart 613 (2019) [MP3|320 Kbps] <Pop, House, Dance>
@@ -568,180 +742,6 @@ VA - De Top 100 Aller Tijden 1970 (Radio Veronica) (2017) [MP3|320 Kbps] <Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8749C82F62A67A2D61F10AB61DD39B8F3B1AC51A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190645   (266907) от 10.12.2017
-
-VA - Heavy Metal Collections Vol. 5 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266907.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01. W.A.S.P. - Mean Man (1989) (4:51)
-02. Lunatica feat. John Payne - Farewell My Love (2010) (5:17)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 06:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2440ED4FA7A52E0C5FD3A7C29F6BE7E327ACBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190579   (266904) от 10.12.2017
-
-VA - Hed Kandi - Diamond Collection of Beach House 2000-2017 (2017) [Compiled by Firstlast] [MP3|320 Kbps] <Chill House, Disco House, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 05:07:39
-01. Julius Papp - Pacific State (12'' mix) [7:01]
-02. Factor 15 - Summer Love (Beach House Dub) [7:12]
-03. Nightsource - Just Right [7:01](   Читать дальше...   )Жанр: Chill House, Disco House, Funky HouseПродолжительность: 08:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01D8EE4F284B7B4BE64ECD23200E02532240641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190658   (266834) от 10.12.2017
-
-VA - Heavy Metal Collections Vol. 1 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266834.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01.Judas Priest - Turbo Lover (2008) (5:34)
-02.Running Wild - Preacher (1984) (4:22)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 04:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2A6446384CA988C70277DAACACFCBBE115EA8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190531   (266831) от 10.12.2017
-
-VA - Музыкальная Акварель: Русский Сборник (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266831.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nanik - Июль My Love
-002. Валерий Леонтьев - Ты Где-То Там
-003. Нэлли Мотяева - По Лезвию Небаа
-004. Дима Билан - Монстры В Твоей Голове(   Читать дальше...   )Жанр: PopПродолжительность: 12:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336E3FC5F8AAC82FB9C5C7FBE56B8FE3BE2D7636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267515   (266731) от 06.12.2018
-
-VA - German Top 100 Single Charts 30.11.2018 (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266731.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mero - Baller los
-002. Ava Max - Sweet but Psycho
-003. Sido - Tausend Tattoos
-004. Samra - Cataleya(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB411397AD9E769B75F24C1E2D8E1D5CD8B2F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267312   (266730) от 06.12.2018
-
-VA - We Are Humans: Synth Electronics Mix (2018) [MP3|320 Kbps] <Synthetic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266730.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Klangstrahler Projekt - Adore
-002. Alberto Remondini - Double Bacon (Radio Edit)
-003. Astrovoyager - We Are Humans
-004. Carles Dj - Action Soul(   Читать дальше...   )Жанр: SyntheticПродолжительность: 10:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4926209B3C2C2C83503F3C542D50AC33CEDF31A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

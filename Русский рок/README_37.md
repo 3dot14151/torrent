@@ -1,32 +1,3 @@
-###  Публикация: 1284857   (726525) от 23.02.2019
-
-МультFильмы (Мультфильмы) - Лучшее и неизданное (2019) [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726525.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На всех солнце светит (Remastered)
-2. Магнитофон (Remastered)
-3. За нами следят (Remastered)
-4. Марочка (Remastered)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F30505D23A7D34DF01704ECB03EC025D6840EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218342   (725023) от 08.04.2018
 
 Инкогнито - Наши голоса (2018) [MP3|320 Kbps] <Rock>
@@ -735,6 +706,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:625577F997FD253671A7F366C9C9279A735BE0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024758   (715949) от 09.06.2016
+
+Margenta & Андрей Кустарёв - Дым. Крепости. Волк (2016) [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нeбо. Крепости. Рельсы.
+02. Блюз Для Розы
+03. Дым Стоит Стеною
+04. Степной Волк(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC962C7595C90BB2A2466CBD52B09CD3FA6019DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

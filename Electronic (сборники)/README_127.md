@@ -1,3 +1,32 @@
+###  Публикация: 1560102   (521817) от 28.06.2022
+
+VA - Car Music Mix (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kendrick Lamar x Drake - Poetic Justice (James Miller x G.Key Remix) (3:20)
+02. Eminem - Ass Like That (Maga remix) (3:13)
+03. DeepSystem - Dame Locura (Robber DJ Remix) (2:56)
+04. David Guetta - The World Is Mine (Leonardo La Mark & Moresst Remix) (4:55)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 03:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECFDAD8E20EEA844B063128B49B049F78C8CA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928838   (521764) от 17.08.2015
 
 VA - Romantic Nights - Sex Lounge Tracks for Erotic Moments Sensual Massage (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -734,35 +763,6 @@ VA - Feel The Love: Club House Electromix (2019) [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21D174BC78BB6647CA47A7A0AA309990DC75A0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314418   (517220) от 16.07.2019
-
-VA - Record Super Chart 595 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517220.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Billie Eilish - Bad Guy (3:14)
-2.Meduza feat. GOODBOYS - Piece Of Your Heart (2:32)
-3.Aaron Smith - Dancin (Krono Remix) (4:15)
-4.Ed Sheeran & Justin Bieber - I Don't Care (Jonas Blue Remix) (3:12)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EB384F2891A657632DFA7DD62EAA131731C3374
 ```
 
 https://mybot314.ru/tekegram_catalog/

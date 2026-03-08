@@ -1,3 +1,32 @@
+###  Публикация: 1012102   (795455) от 29.04.2016
+
+Stan Getz & Joao Gilberto - Getz/Gilberto '76 (2016) Resonance Records[FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Spoken Intro By Stan Getz [01:10]
+ 02.E Preciso Perdoar [05:52]
+ 03.Aguas De Marco [05:48]
+ 04.Retrato Em Branco E Preto [04:49](   Читать дальше...   )Жанр: Latin Jazz, Bossa NovaПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E9E6207F15DBA2C516218AC6890E4C3422B4A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386208   (795357) от 28.05.2020
 
 Winston Mankunku Ngozi - Abantwana Be Afrika (2003) Sheer Sound [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
@@ -718,35 +747,6 @@ Francis Albert Sinatra & Antonio Carlos Jobim - Francis Albert Sinatra & Antonio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5855C3E63FE3DDA42EAF1E1E75CE2F996B2F26BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012523   (793673) от 01.05.2016
-
-Billie Holiday - My Man (1995) Series Success [APE|Lossless|image + .cue] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Man
-02. Miss Brown To You (Version 1)
-03. Keeps On A 'Raining'
-04. Love Man(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4383070D2124F161003CD4BBFA401AA561139344
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1513989   (221130) от 01.12.2021
+
+VA - Soft Pop (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221130.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alicia Keys - Girl on Fire (3:44)
+002. Andy Grammer - Keep Your Head Up (3:09)
+003. OneRepublic - Counting Stars (4:17)
+004. Rachel Platten - Fight Song (3:24)(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9C09FFC75A40B5FAB4365E5327B6C57424FC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083996   (221069) от 18.12.2016
 
 VA - Radio Top musicFM - October (2016) [MP3|128-320 Kbps] <Pop, Dance>
@@ -734,35 +763,6 @@ VA - Pioneer Studio 33,5 - Disco Evolution (2016) [MP3|160 Kbps] <Italo Disco, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21004F3D94ED9F0368F12A6F63C2BD1B68744A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514922   (213877) от 05.12.2021
-
-VA - German Top 100 Single Charts 03.12.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariah Carey - All I Want for Christmas Is You
-02. Wham! - Last Christmas
-03. GAYLE - abcdefu
-04. Acraze - Do It To It (feat. Cherish)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11ADAF68E0C42278014CC7D088D9C79428186C83
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,180 @@
+###  Публикация: 1256503   (354136) от 22.10.2018
+
+VA - Postulates Of Babylon (2018) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354136.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Black Country Communion - Collide
+002. Bonfire - Power Train
+003. Cleõphüzz - Sandstorm
+004. Furious Zoo - All For Rock N' Roll(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 11:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B48A7E888984E2351AC2292D5F221B0FE7F7A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072086   (354106) от 12.11.2016
+
+VA - Хорошая Музыка на Все Времена (2016) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eurithmics - Sweet dreams
+02. Madonna - This Used To Be My Playground
+03. Tony Braxton - Unbreak My Heart
+04. Joe Dassin - A Toi(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855035280DB70501793E52A16DB70F188D79A9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256622   (354027) от 22.10.2018
+
+Foreigner - A Night to Remember (2018) (Compilation) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Night to Remember
+02. Blinded By Science
+03. At War With The World
+04. Cold As Ice(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C4B332ECD68AAC918D7E386CFC68152C24EF66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255274   (354024) от 22.10.2018
+
+VA - Club & Chillout Music, 9CD (2018) [MP3|320 Kbps] <Club, House, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354024.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. 2 Sides Of Soul - Dust (Original Mix)
+02. 4lienetic - October(   Читать дальше...   )Жанр: Club, House, ChilloutПродолжительность: 05:06:06
+
+01. Adam Port - Adam Port - Planet 9 (Original Mix)
+02. Alex Zuiev - Alex Zuiev - Moon Dream(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B93549E4EA29477F33FB72F9E68846CF8B0358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178867   (353966) от 29.10.2017
+
+VA - Jazz About Lounge (2017) [MP3|320 Kbps] <Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingo Herrmann – A New Day
+ 02. Roto Moto – Phat Flannel
+ 03. Zero Groove – Cavazzo
+ 04. Five – Thurio(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970D8D1E677E4D163CB011151F84A98CB099B89E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329359   (353940) от 04.10.2019
+
+VA - Музыка в дорогу: Приятного полёта (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ханна - Музыка звучит (JONVS Remix) 4:16
+02. Zivert - Fly (Lavrushkin & NitugaL Remix) 3:24
+03. Samira - Ради любви (Lavrushkin Remix) 2:56
+04. Константин Никольский - Мой друг художник и поэт (Amice Remix) 4:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDDA12DE09D4D205A76D42726E441D9A43594098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256536   (353868) от 22.10.2018
 
 VA - Parametric Tech House (2018) [MP3|320 Kbps] <Tech House, Electro>
@@ -567,179 +744,6 @@ VA - Dancefloor Fever 2016 (The Best of Clubbing Music) (2015) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41991DF10C3B01FF39029670085A17F83ED3B4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178944   (353457) от 29.10.2017
-
-VA - Reggae: The House Of Love (2017) [MP3|192-320 Kbps] <Reggae, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353457.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jimmy Cliff - Many Rivers To Cross
-002. Dennis Brown - Sitting and Watching
-003. Clinton Fearon - Waiting
-004. Dobby Dobson - Dobby Dobson - Loving Pauper(   Читать дальше...   )Жанр: Reggae, SoulПродолжительность: 05:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA2E03BC54644E8EC643B9A652F26F21F42BB34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178772   (353456) от 29.10.2017
-
-VA - По волне моей памяти: Том 24 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Владимир Кузьмин - Я не забуду тебя никогда (Сибирские морозы) 6:05
-02.  Лариса Долина - Льдинка 4:00
-03.  Олег Газманов - Под стук колёс 4:07
-04.  Маша Распутина - Играй, музыкант 3:24(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D0075EB32928D423FD6A28270953A0109FCC04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178918   (353443) от 29.10.2017
-
-VA - По волне моей памяти: Том 27 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Игорь Тальков - Летний дождь 7:20
-02.  Олег Кацура - Большая Медведица 3:55
-03.  Юрий Лоза - Одиночество 3:33
-04.  Алла Пугачёва - А знаешь, все еще будет 3:18(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7904183E8E034537FEBF8AD0B642442A486A6518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952762   (353439) от 02.11.2015
-
-VA - Galactic Party (2015) [MP3|320 кб/с]<Space, SynthDisco, Spacesynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solar Burst - Space Fever 04:47
-02. Fabian Del Priore - Twilight Zone 04:24
-03. Hainam - Galactic CharismaЖанр: Space, SynthDisco, SpacesynthПродолжительность: 08:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778D85D4CDFF4CE82F2E55A9262BF7133D959EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417482   (353428) от 22.10.2020
-
-T.Rex - Greatest Hits (2020) [MP3|320 Kbps] <Glam-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get It On (04:24)
- 02. Solid Baby (02:40)
- 03. Tame My Tiger (02:31)
- 04. Metal Guru (02:30)(   Читать дальше...   )Жанр: Glam-RockПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BA959A6C9CF85E62DB498247CAB7581470A382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417511   (353420) от 22.10.2020
-
-VA - Lounge Tropic: Background Music (2020) [MP3|320 Kbps] <Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353420.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Woogees - Summer Rain
-002. Ingo Herrmann - When There Was You
-003. Antreas Lopez - Call
-004. Chillson - Don't Look Back In Anger(   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 09:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02533C7DF67FB5B39808B672E43D574DC6C3983C
 ```
 
 https://mybot314.ru/tekegram_catalog/

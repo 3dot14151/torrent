@@ -1,3 +1,32 @@
+###  Публикация: 1826522   (170952) от 19.10.2025
+
+Sardø - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gone
+ 02 - Inside
+ 03 - Again
+ 04 - Siempre Contigo(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C1882BE7AE98FBAA80779188AFAB2BF9A65609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344311   (170545) от 10.12.2019
 
 VA - The Sound Of Dance House (2019) [MP3|320 Kbps] <Dance House>
@@ -716,35 +745,6 @@ VA - Sweet Green Dreams: Natural Relaxed Mix (2019) [MP3|320 Kbps] <Chillout, Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FA003FC77448C120292047AA2313D5FAC6F2ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345224   (167249) от 14.12.2019
-
-VA - House Garden Music: Edm Extended Mix (2019) [MP3|320 Kbps] <House, Electro, Edm>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167249.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nevermore - Sleep (Original Mix)
-002. Silkwolf - Mothertown
-003. Moshic - Cabalana
-004. Funk Manifesto - Light Of Day(   Читать дальше...   )Жанр: House, Electro, EdmПродолжительность: 10:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3621286C1BF5E1C314DCA41F064BB953D9D45F
 ```
 
 https://mybot314.ru/tekegram_catalog/

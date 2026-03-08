@@ -1,3 +1,32 @@
+###  Публикация: 991512   (897767) от 04.03.2016
+
+VA - Minimal Party (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaboo - Ducking
+02. Alberto Bandiera - He He He (DJ Ciruzz Remix)
+03. Zareh Kan - No3287 (Beats Sounds Remix)
+04. Uriel Lakost - Minimal India(   Читать дальше...   )Жанр: HouseПродолжительность: 02:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2838675E924A471BAF3F5B6A3A67B689B95134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992678   (897582) от 04.03.2016
 
 VA - Vocal Trance Seduction Vol 7 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
@@ -734,35 +763,6 @@ VA - TOP Non-Stop 2010-2015: Dub-Step, Drum&Bass, Breaks (2015) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F656708C16EA91FDA73A68ABCE4CCBD9DEE8FBC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371397   (892037) от 30.03.2020
-
-VA - Time For Dreams: Chillout Zone (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892037.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Albert Sokolov - Sea (Original Mix)
-002. Terje Saether - Tungtvann
-003. The Chill-Out Orchestra - Mother
-004. Peter Manson - Homeboy Hippi(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, DowntempoПродолжительность: 09:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F09898FB4E81262632DC6B5051771770773FC30
 ```
 
 https://mybot314.ru/tekegram_catalog/

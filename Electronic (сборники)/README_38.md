@@ -1,3 +1,32 @@
+###  Публикация: 1496449   (873026) от 17.09.2021
+
+VA - The Sedated Harmony (2021) [MP3|320 Kbps] <Vocal House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873026.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Riot Ten & Whales - Save You
+002. Yves V - Echo
+003. Belcampo - Your Kissing
+004. Laminin Music - Moments Of Bliss(   Читать дальше...   )Жанр: Vocal House, Club, DanceПродолжительность: 07:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8197D781DE746837423E90D5B72872D8A14529E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496444   (872856) от 17.09.2021
 
 VA - The Deep Emotion: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout, Relax, Downtempo>
@@ -716,35 +745,6 @@ VA - Beatport Techno: Electro Sound Pack #56 (2020) [MP3|320 Kbps] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:019C1D838BE21BF5F5F5F8F07897BD2C2B8A69F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375375   (865500) от 14.04.2020
-
-VA - Beatport Trance: Electro Sound Pack #55 (2020) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865500.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samsara - Rites Of Autumn (Original Mix)
-002. Semantic Maze - Fine (Original Mix)
-003. Drym - Hypnotic (Extended Mix)
-004. Enea Marchesini - Sensations (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 12:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4457668E8A0E5FB08E82FD2A8775D6FCA3EAD30
 ```
 
 https://mybot314.ru/tekegram_catalog/

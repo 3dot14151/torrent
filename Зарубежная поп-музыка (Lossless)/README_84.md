@@ -1,3 +1,38 @@
+###  Публикация: 596233   (131383) от 30.12.2012
+
+Doris Day - 3 альбома (1995-2004) [FLAC|Lossless]<Pop, Oldes>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Thrill [02:57]
+02. Bewitched, Bothered And Bewildered [02:44]
+03. I'm Confessin' That I Love You [02:46]
+04. Sometimes I'm Happy [02:36]
+05. You Go To My Head [02:53]
+06. I Didn't Know What Time It Was [03:05]
+07. When Your Lover Has Gone [02:58]
+08. That Old Feeling [03:03]
+09. Imagination [03:18]
+10. If I Could Be With You (One Hour Tonight) [03:27](   Читать дальше...   )Жанр: Pop, OldesПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682764   (131050) от 08.12.2023
 
 Bryan Adams - Waking Up The Neighbours - Live At The Royal Albert Hall (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
@@ -717,35 +752,6 @@ Dan Balan - Freedom, Pt. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:876C2C2D7BEC15B3ABD4733C68DA9EE53C1B9240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690723   (123781) от 08.01.2024
-
-Penfield - We All Fall Apart (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Caleb + Sophia
-02 - Hang On
-03 - We Belong
-04 - We All Fall Apart(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7B2C2EF3D0FA575F80C903109A95F6F2EC9FFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

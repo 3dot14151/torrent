@@ -1,32 +1,3 @@
-###  Публикация: 1504066   (816133) от 21.10.2021
-
-PARALINE - Demonstration record Vol.1 (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Industrial, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After End (3:29)
-02. Forever Not Someone (4:06)
-03. To Lose, To Get (3:12)
-04. Feel It (4:17)(   Читать дальше...   )Жанр: Alternative Rock, Industrial, Electronic, Pop RockПродолжительность: 00:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787DA0BD39679D9B7CC72933FFAF134F54185484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504068   (816132) от 21.10.2021
 
 flyingdeadman - The night (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Instrumental, Indie Rock, Ambient Rock>
@@ -746,6 +717,35 @@ The Kelly Family - We Got Love (2017) Deluxe Edition [MP3|320 Kbps] <Pop-Rock, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98415A6341735513FA756EC8A6CA3B324FA41BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008500   (814970) от 18.04.2016
+
+Metallica - Kill 'Em All (2016) 6CD Remastered Deluxe Edition  [MP3|320 кб/с] <Rock, Thrash-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hit The Lights (Live)
+02. The Four Horsemen (Live)
+03. Jump In The Fire (Live)
+04. Fight Fire With Fire (Live)(   Читать дальше...   )Жанр: Rock, Thrash-metalПродолжительность: 05:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1209D22B11A2F57B933964D9ECA62304A3D7A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

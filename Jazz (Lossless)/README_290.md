@@ -1,3 +1,32 @@
+###  Публикация: 1271397   (150430) от 23.12.2018
+
+Billy Harper Quintet - Live On Tour In The Far East, Vol. 1 (1992) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Do Believe [15:27]
+02. Countdown [5:13]
+03. Dance in the Question [13:42]
+04. Insight [11:22](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB6E11856337F7162D8BBC1AEC62DF63A317183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271334   (150410) от 23.12.2018
 
 Eiji Kadota - The Flow (2014) Innsbruck Records [FLAC|Lossless|WEB-DL|tracks] <Fusion,  Jazz-Rock>
@@ -715,35 +744,6 @@ Confusion Project - Primal (2018) Soliton [FLAC|Lossless|WEB-DL|tracks] <Contemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B34294DC14A2B73129612F1E0376E8B55E7DCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678117   (147801) от 20.11.2023
-
-VA - Breezin' Smooth Jazz Tunes West Coast Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Suggestions - Clarity (4:36)
-02. Chillaxonic - Iridescent (5:10)
-03. Chillaxing Jazz Kollektion - Touch (4:04)
-04. Konstantin Klashtorni - Together Again (4:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F21FD63C84DDE544CB1B3D000FDCE8DE08DE50F
 ```
 
 https://mybot314.ru/tekegram_catalog/

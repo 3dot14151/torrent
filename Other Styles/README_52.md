@@ -1,3 +1,32 @@
+###  Публикация: 1213070   (771762) от 16.03.2018
+
+The Gino Marinello Orchestra - Guitar Masterpieces (2000) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Private Investigations
+02.Samba Pa Ti
+03.Apache
+04.Telstar(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B37C8E006F961F5DB95495170191317664D732F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213037   (771743) от 16.03.2018
 
 VA - Great Melodies From Great Musicals (1999) [MP3|320 Kbps] <Instrumental, Classical, Easy Listening>
@@ -716,35 +745,6 @@ John K. - Romantic Guitar II (2001) [FLAC|Lossless|image + .cue] <Instrumental, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CB0CA91D8C7B39BDAD0BCE0CEFA4CB78E631B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213783   (766556) от 19.03.2018
-
-Richard Clayderman - Ballade pour Adeline (2012) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballade pour Adeline
-02. Couleur tendresse
-03. Les larmes de joie
-04. Pour avoir trop reve(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497E4C7D79F086A73D2D02F996A111E265E9A755
 ```
 
 https://mybot314.ru/tekegram_catalog/

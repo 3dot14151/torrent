@@ -1,3 +1,58 @@
+###  Публикация: 1185938   (289944) от 23.11.2017
+
+VA - Aly & Fila - Future Sound Of Egypt 523 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jam & Spoon - Odyssey To Anyoona (Jamie Stevens & Uone Remix)
+02. Upercent - Pulsacions (Nick Warren Remix)
+03. Mariano Mellino & Interaxxis - Ecouter (Original Mix)
+04. Nato Medrado - Small Room (Tinlicker Extended Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B378C6A2C9F4B2B94C36E1A5965303F9A813700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263300   (289924) от 18.11.2018
+
+ReOrder - Beyond Time (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Time (Club Mix)Жанр: TranceПродолжительность: 00:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6D4C9E990619C6959F0937B866207A05E4B439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 848392   (289848) от 08.12.2014
 
 VA - 538 Dance Smash Hits Of The Year (2014) 3CD[FLAC|Lossless]<House,  Dance, Trance>
@@ -688,64 +743,6 @@ VA - Fashion Calling Chillout (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:563F2BE5331E47D3B01616B04A3B7F3408D712B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080649   (288592) от 07.12.2016
-
-VA - Mountain Sound The Lounge Of Aspen (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandala Fields - Koh Tao 5:17
-02. Monowork - Bargain 2:25
-03. Maremare - That Beach Is Mine 6:09
-04. Dr. Diver - Selfishness 5:20(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4391D5C0B99263C78E544C0C1314C6A2C41DB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080830   (288591) от 07.12.2016
-
-VA - Chillax and Stand with Me (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillelektro - Cala Pi [00:06:06]
-02. Syntheticsax - Waves of Change [00:05:45]
-03. Rey Salinero - Flor de Almendro [00:05:52]
-04. Alex Nothlich - Flexible Time [00:05:15](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7826DCC900532D26AB873A5FD1B81A94D79730D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,154 +1,3 @@
-###  Публикация: 573821   (378423) от 11.11.2012
-
-Ariel Pink's Haunted Graffiti - Mature Themes (2012) [MP3|320 кб/с]<Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinski Assassin (2:59)
-02. Is This the Best Spot? (1:47)
-03. Mature Themes (2:47)
-04. Only in My Dreams (3:12)
-05. Driftwood (4:22)
-06. Early Birds of Babylon (5:15)
-07. Schnitzel Boogie (4:35)
-08. Symphony of the Nymph (4:35)
-09. Pink Slime (2:11)
-10. Farewell American Primitive (2:55)(   Читать дальше...   )Жанр: PsychedelicПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C570A4DE9E892EB884D12A6A2D822CC073317FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949384   (377416) от 23.10.2015
-
-VA - MOJO Presents. Let It Be. Revisited (tribute) (2010) [MP3|320 кб/с]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Grant - Two Of Us (Lennon/McCartney)
-02. Dennis Locorriere - Dig A Pony (Lennon/McCartney)
-03. Phosphorescent - Across The Universe (Lennon/McCartney)
-04. Beth Orton - I Me Mine (Harrison)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A7E95683263B973AB7534130578D9765D1D25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949553   (377338) от 23.10.2015
-
-VA - Mojo presents. Return To The Dark Side Of The Moon (2011) [MP3|320 кб/с]<Psychedelic Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gallops - Speak To Me
-02. Our Broken Garden - Breathe
-03. The Oscillation - On The Run
-04. Wolf People - Time(   Читать дальше...   )Жанр: Psychedelic Rock, Space RockПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F1AFE78412B9D9022E81A75692E7128CCAAD40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575169   (377201) от 09.09.2022
-
-Wired Ways - Wired Ways (2022) [MP3|320 Kbps] <Retro Prog, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ticket Tally Man (03:50)
-02. Peacock on the Highway (04:11)
-03. Lazy Daisy (05:46)
-04. HanoiTramway (04:51)(   Читать дальше...   )Жанр: Retro Prog, Classic RockПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B5CD7B9480E988D1D41CAA998BB937C4016897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575338   (377200) от 09.09.2022
-
-Northern Revival - Modification (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludge, Southern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Broken [00:04:58]
-02 Psychosis [00:04:00]
-03 Bar Knight [00:04:06]
-04 Pobednik [00:06:31](   Читать дальше...   )Жанр: Heavy Rock, Stoner, Sludge, Southern MetalПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B0982F8E4885C7ECA07737C0B635F3A0B760EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575219   (377199) от 09.09.2022
 
 Stratovarius - Visions (1997) Remastered, 1997, T&T [OGG Vorbis|485 Kbps] <Rock>
@@ -757,6 +606,160 @@ Rikk Eccent - Black Halo (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20FFBD5C39C3E5382C8E89A75A28DBD8698D35A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069583   (371311) от 05.11.2016
+
+Antimatter - Welcome to the Machine / Too Late (2016) [MP3|320 Kbps] <Psychedelic Atmospheric Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Welcome to the Machine   (06:40) 
+  02| Killer (Live)   (05:21) 
+  03| Redemption (Live)   (07:26) 
+.Жанр: Psychedelic Atmospheric Rock |Продолжительность: 00:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E026C782EADB2BF2574DF9E3869D3B55D5AF2C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575479   (371256) от 14.11.2012
+
+Outer Limits & Jeff Christie - Outer Limits/Floored Masters-Past Imperfect (2008) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371256.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Turn On Your Lovelight (3:40)
+2.  Both Ends Of The Rainbow (3:50)
+3.  You've Got The Love (3:14)
+4.  Midnight Express (3:53)
+5.  Troubadour (4:53)
+6.  Back On The Boards (3:31)
+7.  Another Point Of View (3:27)
+8.  You And Me (4:25)
+9.  On The Same Side (5:06)
+10.  Saints And Sinners (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3FF94CA17F7E9C7DB5742F10D0929178F06FD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069837   (371188) от 05.11.2016
+
+Sir Rod Stewart - And Some Of His Early Faces (2016) 2CD [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamond Joe
+02. Engine 4444
+03. Maggie May
+04. Stay with Me(   Читать дальше...   )Жанр: RockПродолжительность: 01:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF9A9AF4607AA9816425703BD42F3EE0BB9F599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 251962   (371078) от 01.11.2010
+
+The Band - Discography (1968..2005) [MP3|320 kbps]<Country / Roots / Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Country / Roots / Blues RockПродолжительность: 31:20:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575441   (370894) от 14.11.2012
+
+Kid Rock - Rebel Soul (2012) [MP3|320 кб/с]<Rock, Country, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chickens In The Pen (4:49)
+02.  Let's Ride (4:50)
+03.  Catt Boogie (4:24)
+04.  Detroit, Michigan (3:56)
+05.  Rebel Soul (4:02)
+06.  God Save Rock N Roll (5:21)
+07.  Happy New Year (3:34)
+08.  Celebrate (4:01)
+09.  The Mirror (4:46)
+10.  Mr. Rock N Roll (6:37)(   Читать дальше...   )Жанр: Rock, Country, Southern RockПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9ED593D7D7C02EEFBE3B5D471602885B71CE8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

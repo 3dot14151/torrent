@@ -1,32 +1,3 @@
-###  Публикация: 911376   (616572) от 23.06.2015
-
-Nightshift - Winter Within (2014) [MP3|320 кб/с]<Heavy / Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Walk
-02. Hunter's Moon
-03. Distant Win
-04. Point of No Return(   Читать дальше...   )Жанр: Heavy / Speed MetalПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37336C253DD4B1386C82E18DCD4F847419B12A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911345   (616571) от 23.06.2015
 
 Dendera - Pillars Of Creation (2015) [MP3|320 кб/с]<Heavy Metal>
@@ -746,6 +717,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47AFCAA03856503FB659AB48227E7AC19DE6EE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037026   (615751) от 23.07.2016
+
+Far Beyond - Songs Of Hope And Sorrow (2009) EP [FLAC|Lossless|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Way of Endless Grief    06:39
+02. Awake    05:12
+03. Hope and Sorrow    04:30
+04. Tempus Fugit - Part I    10:19Жанр: Black MetalПродолжительность: 00:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5CAB2F34913EF216EC6F5750B957221AAE27B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

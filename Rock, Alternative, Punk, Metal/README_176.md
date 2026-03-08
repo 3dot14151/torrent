@@ -1,32 +1,3 @@
-###  Публикация: 987529   (924228) от 18.02.2016
-
-Группа "Санкт-Петербург" - 4 альбома (1989-2003) [MP3|192-224 кб/с] <Rock, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989 год - альбом "Русские"
-1991 год - альбом "Шаг навстречу"
-1996 год - альбом "Очарована, околдована"
-2003 год - альбом "Неизданное" (2CD)Жанр: Rock, BalladПродолжительность: 04:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E1AB013FBD866257979CA45B25CFAE0063237D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095360   (924188) от 21.01.2017
 
 Mike Oldfield - Return To Ommadawn (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive, Art-Rock>
@@ -742,6 +713,34 @@ Black Harvest - White Light Came Down (2005) [FLAC|Lossless|image + .cue] <Black
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B067A35FAB4AD50C1684AE6392572441072ACBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095878   (922869) от 22.01.2017
+
+Addaura - 1 demo, 1 album, 1 EP (2010-2015) [MP3|207-268 Kbps] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amid The Tumult And Clamor (I Look For The Light Through The Pouring Rain)
+02. Chambering Things Lost
+03. The Sun Shines Today Also (On The Oaks Of That Bird Hill)Жанр: Atmospheric Black MetalПродолжительность: 01:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8C3F70A4407DECB94B63B8DFD99E0CE414B6FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

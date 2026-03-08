@@ -1,32 +1,3 @@
-###  Публикация: 1527328   (736873) от 28.01.2022
-
-Г.М.О. - Под водочку (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736873.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Революционер
-2. Дурдом
-3. Напьюсь
-4. Какой ты панк?(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1AE536E77A69E2811B236F607A63E6EC314129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398274   (736187) от 25.07.2020
 
 Группа товарищей - Виновата зима (2020) [MP3|320 Kbps] <Rock, Blues Rock>
@@ -757,6 +728,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6102FED048AC1C596FAD1CA1CA27166E4C25EBED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284857   (726525) от 23.02.2019
+
+МультFильмы (Мультфильмы) - Лучшее и неизданное (2019) [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726525.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. На всех солнце светит (Remastered)
+2. Магнитофон (Remastered)
+3. За нами следят (Remastered)
+4. Марочка (Remastered)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F30505D23A7D34DF01704ECB03EC025D6840EDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1026025   (705954) от 14.06.2016
+
+Everlast - Songs Of The Ungrateful Living (2011) [FLAC|Lossless|tracks + .cue] <Alternative, Blues, Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long At All (2:57)
+02. Gone for Good (3:13)
+03. I Get By (3:39)
+04. Little Miss America (3:59)(   Читать дальше...   )Жанр: Alternative, Blues, Hip-HopПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E91D3B80ECACDFC14470B3AAE92D8DA7C907590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025828   (705872) от 14.06.2016
 
 Paolo Nutini - Sunny Side Up (2009) [FLAC|Lossless|tracks] <Soft Rock, Pop Rock>
@@ -716,35 +745,6 @@ Paramore - After Laughter (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C25A015366BE0E4584C4F0A3A0567B09A370F5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288485   (694316) от 12.03.2019
-
-Rokutoshichi - A Deep Well (2018) [FLAC|Lossless|tracks + .cue] <Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Intro 	0:45
-2 	Nervemap 	3:13
-3 	Our Distorted Concerto 	2:33
-4 	Dramatic Farce 	4:30(   Читать дальше...   )Жанр: Rock, Post-HardcoreПродолжительность: 00:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A64D74DB1F3FD2BE39CE4B7E7A18768E1D932E
 ```
 
 https://mybot314.ru/tekegram_catalog/

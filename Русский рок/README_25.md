@@ -1,29 +1,3 @@
-###  Публикация: 310077   (837322) от 18.03.2011
-
-Ляпис Трубецкой - Agitpop Live (2011) [MP3|192 kbps]<Ska Punk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -Жанр: Ska Punk, RockПродолжительность: 01:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2AAD9C199943CE3A7631486DDF98BAAFD5F07C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309985   (837157) от 18.03.2011
 
 Сектор Газа - Лучшее. Золотая Коллекция 2CD (2006) [MP3|320 kbps]<Punk-rock>
@@ -746,6 +720,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0579460B3956B5E42CA21492DA484FC7AAE246B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503085   (822924) от 17.10.2021
+
+Stay Away - Можно спрятаться, сбежать нельзя (2021) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822924.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Капитан
+2. Можно спрятаться, сбежать нельзя
+3. Ребята нашего двора
+4. Лёха вставай(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3458462489CBCE2933E10ECB35C1431DA3D4564
 ```
 
 https://mybot314.ru/tekegram_catalog/

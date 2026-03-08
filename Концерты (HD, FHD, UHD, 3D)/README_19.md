@@ -1,3 +1,38 @@
+###  Публикация: 526176   (599057) от 23.07.2012
+
+Norah Jones - The BBC One Sessions (2007) HDTV [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_599057.jpg" />
+</div>
+
+
+###  Подробнее
+
+BBC One представляет выступление Норы Джонс, состоявшеся 13 января 2007-го года в LSO St Luke's, London.01. Sunrise 
+02. Don't know why 
+03. Be my somebody  
+04. Thinking about you 
+05. Sinkin' soon 
+06. Cold cold heart 
+07. Wake me up  
+08. Come away with me 
+09. Not too late 
+10. The long way home (   Читать дальше...   )Жанр: Jazz, blues, soulПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 806049   (598756) от 19.07.2014
 
 Elton John - The Million Dollar Piano (2014) BDRip [720p]
@@ -708,41 +743,6 @@ Hidden Tribe - Live at RTC-Fest @ Da:Da (2013) [1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC585EAF40B0B86B68F40FBCDF1F0C7E8BEA5F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526929   (578367) от 25.07.2012
-
-Rammstein - Live aus St. Petersburg (2012) BDRip 720p
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Sonne
-03. Wollt Ihr Das Bett In Flammen Sehen?
-04. Keine Lust
-05. Sehnsucht
-06. Asche zu Asche
-07. Feuer Frei!
-08. Mutter
-09. Mein Teil
-10. Du Riecht So Gut(   Читать дальше...   )Жанр: Industrial metalПродолжительность: 01:57:27
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

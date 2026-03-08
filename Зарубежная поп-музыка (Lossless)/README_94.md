@@ -1,3 +1,32 @@
+###  Публикация: 1751461   (42397) от 25.09.2024
+
+Cher - Forever Fan (2024) Compilation, Remaster [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42397.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Шер пополнила свою дискографию новым официальным альбомом-компиляцией «Fоrеvеr Fаn», который включает обновленные и ремастированные специально для данного релиза, тщательно отобранные ею самой композиции, охватывающие всю ее карьеру, то есть период с 1963 по 2024 год. «Эта совершенно новый, всеобъемлющий слепок богатой и удивительной карьеры Шер.» / Шер (Сhеr), (   Читать дальше...   )01. Believe (3:59)
+02. If I Could Turn Back Time (4:12)
+03. Walking In Memphis (3:56)
+04. Song for the Lonely (3:21)(   Читать дальше...   )Жанр: Pop-Rock, PopПродолжительность: 01:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DF48DCFDDC573A71E8B08939D6DF6B50C337B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751865   (42261) от 27.09.2024
 
 Modern Talking - Modern Talking 40 (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop, Euro Dance, Disco>
@@ -718,35 +747,6 @@ VA - 80s Summer Chillout (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D19C3F76B9F61D951C466F9CFC0B34C58C93D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760553   (37196) от 15.11.2024
-
-Gwen Stefani - Bouquet (2024) [FLAC|Lossless|WEB-DL|tracks] <RnB/Swing, Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Somebody Else's [3:44]
-02 - Bouquet [3:26]
-03 - Pretty [3:14]
-04 - Empty Vase [2:59](   Читать дальше...   )Жанр: RnB/Swing, Electronic, PopПродолжительность: 00:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB4FEE2F4CDFF279FF7B80AB701AF72BB3633F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

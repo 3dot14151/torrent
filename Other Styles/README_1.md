@@ -1,3 +1,32 @@
+###  Публикация: 1443332   (1035730) от 28.01.2021
+
+Langhorne Slim - Strawberry Mansion (2021) [FLAC|Lossless|tracks + .cue] <Folk, Indie, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mighty Soul (01:57)
+02. Dreams (02:19)
+03. No Right Way (02:30)
+04. Lonesome Times (01:53)(   Читать дальше...   )Жанр: Folk, Indie, AmericanaПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030238033B3B5F5870E24D92C89A29250A9D6A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444124   (1034913) от 31.01.2021
 
 VA-Enigmatica II / DJ Fact`ry volume 2 (2001) [FLAC|Lossless|tracks + .cue] <Enigmatic, New Age>
@@ -714,35 +743,6 @@ The Harmony Group - Spanish Guitar Tribute to Abba (2007) Brisa Records, 2015 [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2CE098FFDF270F21BC8776589B1F2904C927DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314732   (1030601) от 18.02.2021
-
-Bernd Steidl - Paganiniana (2001) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hrx 		        (00:25)
-02. Made in Germany 	(03:06)
-03. Apocalypse 		(04:51)
-04. Paganiniana 1 	(02:02)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D78677D48A73194545776A0E48661E5DB5DC34
 ```
 
 https://mybot314.ru/tekegram_catalog/

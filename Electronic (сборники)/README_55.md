@@ -1,3 +1,32 @@
+###  Публикация: 1012233   (794728) от 30.04.2016
+
+VA - Beatport Top 100 April (2016) [MP3|320 кб/с] <House, Electro, Tech, Nu-Disco, Progressive, Tribal, Future House, Indie Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794728.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tujamo - Drop That Low (When I Dip) (Extended Mix) 04:31
+002. Lee Walker - Freak Like Me (DJ Deeon vs Lee Walker Remix) 05:47
+003. Lucas & Steve - Make It Right (Extended Mix) 04:09
+004. Dennis Cruz - See Line (Wade Remix) 06:16(   Читать дальше...   )Жанр: House, Electro, Tech, Nu-Disco, Progressive, Tribal, Future House, Indie DanceПродолжительность: 10:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1914DA0B31C0AE2F29D5194D26ABF24CC3A606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386509   (794555) от 29.05.2020
 
 VA - The Sound Of Fractal (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
@@ -716,35 +745,6 @@ VA - Deep House Collection Vol.154 (2018) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27239ACB8CD0D63E544F577D992D4BF4C2EA266E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387004   (792581) от 31.05.2020
-
-VA - Record Super Chart 638 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cream Soda & ХЛЕБ - Плачу на техно 2:40
-02. El Capon - Shut Up Chicken 2:31
-03. Topic & A7S - Breaking Me 2:47
-04. Little Big - Hypnodancer 3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF5FCA38F088F81A559CE62EDAB95A5E14FC4A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

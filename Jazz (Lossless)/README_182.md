@@ -1,3 +1,32 @@
+###  Публикация: 1164488   (442009) от 09.09.2017
+
+Stan Getz - Sweet Rain (1986) Verve [FLAC|Lossless|image + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Litha [08:24]
+02. O Grande Amour [04:43]
+03. Sweet Rain [07:10]
+04. Con Alma [08:06](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4132CCF4D7C18FF92AE4267E35ED2ED9358C464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164499   (441873) от 09.09.2017
 
 Jeremy Steig - Firefly (1977) 2016, King Record [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -717,35 +746,6 @@ Freddie Hubbard - The Body & The Soul (1963) 1996, GRP Records [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D45501C29FB401154EBDCE4889EA56EA0D8B2969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249013   (438023) от 22.09.2018
-
-Arianna Neikrug - Changes (2018) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Moon at All [4:49]
-02. Spring Can Really Hang You Up the Most [6:09]
-03. Let's Stay Together [5:16]
-04. Changes [4:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F55169B209E9F55C7EA0FF38D464DD9BE30A99A
 ```
 
 https://mybot314.ru/tekegram_catalog/

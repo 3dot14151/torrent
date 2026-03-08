@@ -1,3 +1,32 @@
+###  Публикация: 1028109   (690965) от 22.06.2016
+
+Benjamin Faugloire Project - Birth (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foundations
+02. Beautiful Day for a Birth
+03. Heavy Idea
+04. In a Loop(   Читать дальше...   )Жанр: Contemporary Jazz, PianoПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB40075DD726D32CAAA066ACB63B455C3E3A41C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028397   (690878) от 22.06.2016
 
 Brad Mehldau Trio - Blues and Ballads (2012/2014) 2016, Nonesuch Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Stacy Sullivan - Stranger In A Dream (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:869ECF86058D72C27C2465E9ABAE5B612FCA9F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535323   (686840) от 06.03.2022
-
-Buddy Rich - Swingin' New Big Band (1966) 1995, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Readymix [3:23]
-02. Basically Blues [5:40]
-03. Critic's Choice [3:31]
-04. My Man's Gone Now [3:05](   Читать дальше...   )Жанр: Swing, Big Band, Mainstream JazzПродолжительность: 01:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6336BA23E1E537155BEB7EE5AFF8EE500D35D7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

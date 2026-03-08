@@ -1,3 +1,61 @@
+###  Публикация: 1527643   (735861) от 30.01.2022
+
+Cats On Trees - Cats On Trees (2013) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn (3:00)
+ 02. Sirens Call (3:44)
+ 03. Jimmy (3:12)
+ 04. Full Colours (2:58)(   Читать дальше...   )Жанр: Indie Pop, Pop-RockПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEB0D6D0C6A49166B74FA7FEFE443F50A6E08AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527656   (735860) от 30.01.2022
+
+Cats on Trees - Alie (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Please Please (4:11)
+ 02. Wake Up (2:59)
+ 03. Dad On The Moon (4:04)
+ 04. Alie (2:54)(   Читать дальше...   )Жанр: Indie Pop, Pop-RockПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4F35E34806D8655A5DF9EF5C51ACC397AB59EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527939   (735850) от 30.01.2022
 
 VA - Festival di Sanremo - le canzoni famose (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -687,64 +745,6 @@ Back In Time - Back In Time (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C5CA9C292447E2D7303BE9CF7F115E8917B498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127573   (732166) от 21.04.2017
-
-Madame - Dance, Madame De ... (1980) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Madame (Won't Cha Come Outside) (5:16)
-02. Quand Tout Va Par Deux (5:49)
-03. Show Me How Your Feel And Dance (6:14)
-04. Gettin' On With The Thing (9:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E225A5A1EA3A5ED004C28B4AF9AF7F046779471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021812   (732097) от 30.05.2016
-
-Mads Langer - Reckless Twin (2016) [MP3|320 кб/с] <Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight (04:02)
-02. Amy (04:37)
-03. Blondie (05:19)
-04. 3AM (03:22)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93265CD1D8228F741968725A91569B4F4966B93F
 ```
 
 https://mybot314.ru/tekegram_catalog/

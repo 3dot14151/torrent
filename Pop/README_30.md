@@ -1,3 +1,73 @@
+###  Публикация: 599582   (998828) от 08.01.2013
+
+Taylor Swift - 3 альбома 1 демо (2011 - 2006) [MP3|320 кб/с]<Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky You (Mr. Mig mix) [00:03:38]
+02. Smokey Black Nights (Mr. Mig mix) [00:03:14]
+03. American Boy (acoustic version) [00:03:20]
+04.  [00:02:23]
+05. Hopelessly Devoted To You [00:02:40]
+06. Am I Ready For Love [00:04:17]
+07. Can I Go With You? [00:02:54]
+08. One Way Ticket [00:03:28]
+09. There's Your Trouble [00:02:43]
+10. Star Spangled Banner [00:01:21]Жанр: CountryФормат: MP3 (tracks)Продолжительность: 00:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EF59054BF5465EB3D33E6C597F491540BB1565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599915   (998821) от 08.01.2013
+
+Нэнси - #Вечерочкиночки (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Вечерочкиночки
+ 02 - Ночной вокзал
+ 03 - Просто выходной
+ 04 - Я стану ветром
+ 05 - Моя любимая женщина
+ 06 - Я падаю в небо
+ 07 - Розы, на краю стола
+ 08 - Железнодорожная
+ 09 - Прости
+ 10 - Ты научи меня летать(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C6CCED5AAC33AC28CF325900E4C47B018883F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600540   (998540) от 09.01.2013
 
 Балаган Лимитед - Кто бы мог подумать (2012) [MP3|320 кб/с]<Pop>
@@ -832,76 +902,6 @@ CD 1 - Life1. You Are Everything
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EBA22A09948AF56CDB8CAE38B2D68E0E92E3762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605895   (994807) от 22.01.2013
-
-Viola Valentino - 4 альбома (2004-2010) [MP3|320 кб/с]<pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994807.jpg" />
-</div>
-
-
-###  Подробнее
-
-2004 - Giorno Popolare01. Le Prove Di Un'addio (3:48)
- 02. Domani E Un'altro Giorno (4:23)
- 03. Un Miraggio (3:33)
- 04. Perduto Amore (4:07)
- 05. Suoni Di Luce (4:37)
- 06. I Tacchi Di Giada (4:03)
- 07. Dimenticare Mai (3:44)
- 08. Lungometraggio (4:42)
- 09. La Musica Non C'e (3:50)
- 10. Daisy (3:05)(   Читать дальше...   )Жанр: popПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF354984457A7D0671376066684F0FAAE9FACD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604158   (994664) от 22.01.2013
-
-Joe Dolan - 4 альбома (1975-1993) [MP3|320 кб/с]<pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994664.jpg" />
-</div>
-
-
-###  Подробнее
-
-1975 - Crazy Woman1	The Answer To Everything	02:46
-2	My Own Peculiar Way	02:22
-3	Aching Breaking Heart	02:46
-4	Pretty Brown Eyes	02:53
-5	Tar And Cement	03:20
-6	The House With The Whitewashed Gable	02:15
-7	Love Of Common People	02:57
-8	Westmeath Bachelor	03:00
-9	Unchained Melody	03:36
-10	Make Me An Island	02:56(   Читать дальше...   )Жанр: popПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F70BE60905AFB7E2DBAA2635CB408DAF3144599
 ```
 
 https://mybot314.ru/tekegram_catalog/

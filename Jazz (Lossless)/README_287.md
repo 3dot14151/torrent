@@ -1,3 +1,32 @@
+###  Публикация: 1084860   (154840) от 23.12.2016
+
+Santiago Lara - Flamenco Tribute To Pat Metheny (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Latin, Folk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154840.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Minuano
+2. Find Me In Your Dreams
+3. James
+4. Question And Answer(   Читать дальше...   )Жанр: Jazz, Latin, FolkПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E037BAF8243BFFE40D56C095770EE33F5B4C66D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086067   (154733) от 23.12.2016
 
 VA - A Merry Jazzmas (1992) [FLAC|Lossless|image + .cue] <Jazz, Christmas>
@@ -716,35 +745,6 @@ Trijntje Oosterhuis & Jazz Orchestra Of The Concertgebouw - Wonderful Christmast
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE948C56962DB896883A13F6FE78D724B12C6651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677065   (153591) от 16.11.2023
-
-Dizzy Reece - Blues In Trinity (1958) 2005, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues in Trinity [6:48]
-02. I Had the Craziest Dream [3:06]
-03. Close-Up [10:43]
-04. Shepherd's Serenade [6:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D8E00AAA3652335FA2BDD00110AB7A6C033230
 ```
 
 https://mybot314.ru/tekegram_catalog/

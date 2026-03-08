@@ -1,32 +1,3 @@
-###  Публикация: 1016228   (770276) от 14.05.2016
-
-Тропы не врут - Точка сборки (2016) [MP3|320 кб/с] <Rock, Punk, Hard-bard>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770276.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. У кукушки в гнезде
-2. Ассоль
-3. Ненадолго
-4. Баба Зина(   Читать дальше...   )Жанр: Rock, Punk, Hard-bardПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688745A5D32FF972FAABEA8F5DFC0CCCD575E895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016381   (770144) от 14.05.2016
 
 Александр Ф. Скляр и Ва-Банкъ - Ястреб (2016) [MP3|320 кб/с] <Rock>
@@ -747,6 +718,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B70E173EAABCCEB32DD516DC0DD3EA1404ADEE38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214454   (764894) от 21.03.2018
+
+Distemper - Best of Brass Time (2018) [MP3|320 Kbps] <Ska Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764894.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мир создан для тебя
+2. Начинаем отдыхать
+3. Всё или ничего
+4. Кончились наркотики(   Читать дальше...   )Жанр: Ska PunkПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFF30A930AF863CB8FFA23CE8D9583501773E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1264369   (281089) от 23.11.2018
+
+Евгений Алексеев - Piano Tribute to Гражданская Оборона (2018) [FLAC|Lossless|image + .cue] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство Bull Terrier Records представляет первый в истории официальный инструментальный трибьют Егору Летову и группе ГРАЖДАНСКАЯ ОБОРОНА! 12 треков, исполненных Евгением Алексеевым на концертном рояле Steinway & Sons Model D, записаны в студии SuperSizeRecording (Будапешт, Венгрия). Средства для записи и производства альбома были собраны благодаря сотням (   Читать дальше...   )01. Моя Оборона (3:17)
+02. Со Скоростью Мира (2:48)
+03. Всё Как У Людей (3:16)
+04. Без Меня (3:24)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BD22F2D13287B3240B446EB7D1793F754E4128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081760   (280909) от 11.12.2016
 
 Dr. Mary Anderson - Meditations for the Journey Within (2016) [MP3|320 Kbps] <New Age, Meditation>
@@ -707,34 +736,6 @@ VA - Office Christmas Party (Original Motion Picture Soundtrack) (2016) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FCD94613006A1DAEE4294EE25D6C9150EC62898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082373   (278755) от 12.12.2016
-
-VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Rock, R&B>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ConfidentialMX - I Started a Joke (feat. Becky Hanson) (03:11)
-02. Grace - You Don't Own Me (feat. G-Eazy) (03:20)
-03. Sweet - Ballroom Blitz (04:01)Жанр: Soundtrack, Hip-Hop, Rock, R&B •Продолжительность: 01:37:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDF62859174C56B1E6B0887D17B75FA8F24218B
 ```
 
 https://mybot314.ru/tekegram_catalog/

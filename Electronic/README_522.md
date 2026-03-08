@@ -1,3 +1,60 @@
+###  Публикация: 1748420   (44100) от 09.09.2024
+
+Jean-Michel Jarre - Paris Stadium (2024) EP, Live [FLAC|Lossless|WEB-DL|tracks] <Electronic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris Stadium (Live)
+02. Industrial Revolution P2 Stadium (Live)
+03. Time Machine Stadium (Live)Жанр: Electronic TechnoПродолжительность: 00:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE47D56AFCD9A1FE0027CC5D24D147CD500E7AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748377   (44094) от 09.09.2024
+
+VA - Hidden Chill out Cafe, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Don't Cry Baby (2:40)
+02. Paul James Fernandez - Calling for You (5:02)
+03. Aeorial - Breeze (Original Version) (4:33)
+04. Ingo Herrmann - So Smooth (Original Mix) (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0294633822345657EFCFEEFF08F87A16B04AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748453   (44090) от 09.09.2024
 
 VA - Arabtronica 2024 - The Best Eastern Rhythms (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
@@ -687,64 +744,6 @@ VA - Ibiza Autumn 2024 (2024) Chill Out Cookies From The Heart [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EDDD4B91DE2C965BAF48A876F6B18DC0335DA7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750177   (43139) от 18.09.2024
-
-VA - Pretty Little Deep-House Friends, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avrial - Loser (S.D.K Non Vocal Remix) (04:36)
-02. Lounge Groove Avenue - Sweet Summer Days (02:19)
-03. DanVee - Deep Moods (07:04)
-04. Cotton Animals - Without You (04:47)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4D7677752F3A429494E50D6E19F0EC4FA2ADAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750548   (42946) от 20.09.2024
-
-Depeche Mode - Spirit The 12 Singles (2024) [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where's The Revolution (Autolux Remix) (04:16)
-02. Where's The Revolution (Pearson Sound Remix) (06:33)
-03. Where's The Revolution (Algiers Click Farm Remix) (03:28)
-04. Where's The Revolution (Simian Mobile Disco Remix) (08:48)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 03:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BECC7E552D171F0F0C6CA28084ED017E814BEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

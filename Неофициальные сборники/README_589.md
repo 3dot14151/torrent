@@ -1,3 +1,177 @@
+###  Публикация: 1666454   (178801) от 05.10.2023
+
+VA - Fleetwood Mac & friends Compilation (2023) [MP3|320 Kbps] <Rock, Soft Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Need Your Love So Bad
+02. Peter Green - Slabo Day
+03. Rick Vito - I Loved Another Woman
+04. Rick Vito - I've Got a Secret(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADFC7A9C324408109039CED8932627058232502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666770   (178771) от 05.10.2023
+
+VA - Music News vol.303 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178771.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. LVLV - Sexy (02:13)
+ 002. Alkonost - Оберег (04:59)
+ 003. Alli Neumann - Berlin Nightlife (03:03)
+ 004. Angelini - Душа (Mix) (03:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F9FFCAA5B2C599EEF355A4D0D55F85DCB15F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594265   (178644) от 30.11.2022
+
+The Savage Rose - Compilation (2022) [MP3|320 Kbps] <Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Day
+02. Children of Mine
+03. City of Angels
+04. Early Morning Blues(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B2D625D59F616F5193A804056CE8C993DFF38A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593676   (178596) от 30.11.2022
+
+VA - Music For You vol. 26 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nektar - Remember The Future Part 1 (16:40)
+ 02. Camel - Ice (10:11)
+ 03. FM - Phasers On Stun (03:49)
+ 04. Caravan - Nine Feet Underground (Medley) (22:45)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 05:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA5CC09F7EC75C8AB5AB80E5DE93CC66C0CE876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428981   (178240) от 04.12.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 04.12.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pascal Letoublon & Leony - Friendships (3:02)
+02. Jason Derulo - Take You Dancing (3:10)
+03. Michael Patrick Kelly - Beautiful Madness (2:55)
+04. Foushee - Deep End (2:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDD16F322056D48D282A919C8812D35788E76C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429032   (178158) от 04.12.2020
+
+Agnes Obel - The voises of my soul (the best) (2011-2020) Compilation album [MP3|320 Kbps] <Neoclassical>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агнес Обель (полное имя – Агнес Каролин Тааруп Обель; род. 28 октября 1980 г. в Копенгагене, Дания) – датская певица, композитор и автор песен, с 2006 года постоянно проживающая в Берлине. С раннего возраста девочка играла на фортепиано – именно это занятие раскрыло в ней талант к написанию песен. Еще в юношестве Агнес организовала группу Sohio в Копенгагене вместе (   Читать дальше...   )01. Aventine
+02. Broken Sleep
+03. Can't Be
+04. Drosera(   Читать дальше...   )Жанр: NeoclassicalПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0D0E3906AE10580902D1CFB83F10534008E270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301074   (177608) от 01.12.2022
 
 David Lynch - The best (2001-2014) Compilation Album [MP3|320 Kbps] <Experimental, Rock, Score>
@@ -571,180 +745,6 @@ VA - Русские Хиты 6 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BA8473F818FD4580D831ECE36B2C72C591306C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429685   (175754) от 07.12.2020
-
-VA - не Громкие новинки недели 90 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AEHO - Проснись (3:25)
-02. ANIKV - Лень (2:18)
-03. Arik - Заново (3:42)
-04. Chris Yank - Крейзи Love (2:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB027BA0722C6FA85731D8D223D639404D96A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667725   (175738) от 09.10.2023
-
-VA - Oriental Deep 4 (2023) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamscape - To Think We Met Just Yesterday (4:57)
-02. Bahramji, Medusa Odyssey - Jana (8:07)
-03. Mindchatter - It's Ok (it's Not Ok) (3:05)
-04. Zone+ - Maori (6:41)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 07:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43CBF25C072E5BB78E0C2B80881392A6A57981D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595164   (175487) от 05.12.2022
-
-VA - Rock part  12 Compilation (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaus Brandl - Red Wine Before Sunset
-02. Chris Stapleton - Devil Always Made Me Think Twice
-03. Klaus Brandl - Black Dog Smile
-04. Chris Stapleton - Cold(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B911AD68918D0639737A12FD9A352DFAADD0FBBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595497   (175462) от 05.12.2022
-
-VA - Music News vol.229 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175462.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eline Noelia feat. Falito - Unholy (02:27)
- 002. Akon feat. Amirror - Prolly Fuck (02:08)
- 003. Akon feat. John Mamann & Dawty Music - TT Freak (01:32)
- 004. Alessiah - Breeze Of Love (Sean Norvis Remix) (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C254C454F5358061CADC77980781B7CA877724C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429608   (175456) от 07.12.2020
-
-VA - Не спи за баранкой 3 (Музыка в машину) (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175456.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The FifthGuys, Polina Grace - Seven Nation Army (2:15)
-002. Bear Grillz, Tisoki, Sam Nelson - Taking Over (3:01)
-003. ELYX, Hawk, Young Jae - Ride It (2:21)
-004. ARMNHMR, KLAXX, GLNNA - Somebody To Love (3:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441C44A2E598E7AF97298D89D5A13A9BE56123ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595310   (175424) от 05.12.2022
-
-VA - Blues & Rock part  13 Compilation (2022) [MP3|320 Kbps] <Blues, Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonnie Shields - Love Games
-02. Lonnie Shields - Woman, I Want to Talk to You
-03. Lonnie Shields - Same Kind of Lovin' (Love Me All Over)
-04. Gary B.B. Coleman - Cloud Nine(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223C958F09E9E3746EE554472A44CFF327AE9AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

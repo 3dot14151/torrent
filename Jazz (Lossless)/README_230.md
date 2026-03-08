@@ -1,3 +1,32 @@
+###  Публикация: 1083983   (272650) от 17.12.2016
+
+Wes Montgomery & Clark Terry - Straight, No Chaser (1965) 1992, Jazz Door[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Straight, No Chaser [08:06]
+ 02.Just Friends [09:02]
+ 03.In a Mellow Tone [14:38]
+ 04.We Got Rhythm [08:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3393ED3ED6A67B2CF3F25A3F70023B5AD8837B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083994   (272649) от 17.12.2016
 
 Adam Makowicz Trio - The Music of Jerome Kern (1993) Concord[APE|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
@@ -716,35 +745,6 @@ Stan Kenton & His Orchestra - 7.5 On The Richter Scale (1973) 1991, Creative Wor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDA536D2E0808A6639E5B8ACEA973C2D6A6917D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189303   (270428) от 06.12.2017
-
-Count Basie - Basie's Beatle Bag (1966) 1998, Verve [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help [02:20]
-02. Can't Buy Me Love [03:26]
-03. Michelle [02:47]
-04. I Wanna Be Your Man [03:24](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A210996C9F4EC07254BCB6554C68E1ED97FAAAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

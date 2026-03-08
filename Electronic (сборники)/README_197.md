@@ -1,3 +1,32 @@
+###  Публикация: 1429297   (176876) от 06.12.2020
+
+VA - Beatport Electro House: Sound Pack #204 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_176876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный 204-й сборник от Beatport со своей чрезвычайно атмосферной и высококачественной музыкой безусловно придётся Вам по душе, если вы фанат танцевальной музыки в направлении Electro House. Представленные треки продуманы до самых мелочей и демонстрируют истинную эстетическую гармонию. Приятного прослушивания!001. Beaudamian - Butterflies
+002. Zorbis - Lobby
+003. White Gangster - Insert Coin
+004. Jakaval - Los Angeles(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 09:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DA4CD5AEAD5A3D3C901DB0B1DD527713963C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666341   (176739) от 08.10.2023
 
 VA - Ambient Cosmic Whispers (2023) [MP3|320 Kbps] <Electronic, Lounge, Chill Out, Ambient, Downtempo>
@@ -716,35 +745,6 @@ VA - Lo-Fi Harmony vol.2 (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo Fi>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11A59FF72D3A6D357EAC9F91E08E918FACC8B0F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826522   (170952) от 19.10.2025
-
-Sardø - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gone
- 02 - Inside
- 03 - Again
- 04 - Siempre Contigo(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C1882BE7AE98FBAA80779188AFAB2BF9A65609
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,18 +1,20 @@
-###  Публикация: 402501   (392205) от 21.10.2011
+###  Публикация: 569049   (392361) от 02.11.2012
 
-Formula Racing: Ultimate Drive (1.3) [En]
+Автономный KMS Server for Windows 8 [Русский]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392205.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_392361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Formula Racing: Ultimate Drive - Формула один уже теряет популярность в игровой индустрии. Компания NITRO решила вдохнуть в данный вид гонок новую жизнь. Она переработали внешний вид автомобилей, и снабдили каждую машину реактивным двигателем. На ваш выбор двадцать четыре автомобиля и 120 гонок с наградами. Вас ждут неплохая графика и очень динамический геймплей. (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 20 октября 2011 г.Разработчик: NITROПоддерживаемая ОС: 1.6+Жанр: Racing (Гонка)Язык интерфейса: Английский
+Автономный, независимый от системы, локальный KMS сервер для активации Windows 8 Professional и Windows 8 Enterprise версий. Текущий счетчик = 50, при необходимости скрипт его "накрутит"
+
+(   Читать дальше...   )Название программы: Автономный KMS Server for Windows 8Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -24,27 +26,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 402303   (392203) от 21.10.2011
+###  Публикация: 569637   (392320) от 03.11.2012
 
-Год, опасный для жизни / The Year of Living Dangerously (1982) DVDRip
+Nordor - Erga Omnes (2012) [MP3|320 кб/с]<Death Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392203.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом фильме Гибсон играет Гая Хэмилтона, австралийского репортера на задании в политически нестабильной Индонезии, где вместе с фотографом он изобличает коррупцию в правительстве. Но связь Хэмилтона с красивой атташе британского посольства Джилл Брайант сильно осложняет ему жизнь.
-
-Пока их бурный роман становится все более и более страстным, все вокруг них катится (   Читать дальше...   )Жанр: Драма, Мелодрама, ВоенныйРежиссер: Питер УирАктеры: Мэл Гибсон, Сигурни Уивер, Линда Хант, Майкл Мерфи, Билл Керр, Ноэль Феррье, Бембол Роко, Пол Сонккила, Али Нур, Доминадор РобридильоПеревод: ДублированныйПродолжительность: 01:49:57
+01. 5a 01:56
+ 02. Memories From The Future 03:51
+ 03. Misanthropic Κaleidoscope 04:26
+ 04. Salvation From The Stench 03:05
+ 05. Thelisis 02:05
+ 06. Iscariots Fireshower A Hymn To Traitors 02:45
+ 07. Lycan 02:29
+ 08. The Child Of Mandragora 03:11
+ 09. Vow 02:56
+ 10. Bow To Me 02:53(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1EE6055E84236DC3F34547C345EFD0486695435
+magnet:?xt=urn:btih:A639A8FDF6788700BF9B3881A55D7875E28FD1D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,25 +61,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 402061   (392199) от 21.10.2011
+###  Публикация: 569370   (392317) от 03.11.2012
 
-Рано утром (1965) DVDRip
+Sinate - To The Death (2012) [MP3|320 кб/с]<Death Groove Thrash>
 
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392199.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказ о начале жизни. Потеряв рано родителей, Алеша и Надя не остались одни — друг отца и окружающие их люди помогли детям остаться добрыми и открытыми в этом непростом мире взрослых…Жанр: ДрамаРежиссер: Татьяна ЛиозноваАктеры: Валерий Носик,Николай Мерзликин,Тамара Трушина,Ксения Козьмина,Любовь Корнева,Нина Сазонова,Сергей Беляцкий,Маргарита Лифанова,Наина Никитина,Олег ЖаковПродолжительность: 01:32:08
+01. Curse Of The Blood Eagle 04:07
+02. Premonition Of The Wicked 05:04
+03. Submit Your Blood 06:08
+04. The Black Death 04:25
+05. Order Of The Dragon 03:52
+06. Return To Scars 04:46
+07. Seizure 04:11
+08. Godless World 04:09
+09. The Pain 03:17
+10. Seperatist 03:23Жанр: Death Groove ThrashПродолжительность: 00:43:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F83FD8F2E5A1A9E2FCE762CB5E49E50BCB48C99
+magnet:?xt=urn:btih:914C98D9488F9B7064C6A6DC59BC5192D5A9DDE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,25 +96,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569694   (392194) от 03.11.2012
+###  Публикация: 402561   (392304) от 21.10.2011
 
-Журнал | PC Week [Россия] №29 (ноябрь 2012) [PDF]
+Журнал | GQ [Россия] №11 (124) (ноябрь 2011) [PDF]
 
->>Журналы
->>Компьютерные журналы
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392194.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PC Week - Журнал информирует о передовых технологиях, новейших разработках и важнейших событиях и новостях как отечественного, так и зарубежного компьютерных рынков. В Журнале PC WEEK около десяти постоянных разделов: "Новости", "Корпоративные системы", "Мобильные и настольные системы", "Netweek", "Связь", "Дистрибуция", (   Читать дальше...   )Формат: PDF
+ЖурналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40C7687061FF65249476CA5A5CACDA94AC30FD39
+magnet:?xt=urn:btih:86C26D00CDD0A9134311B941E304979568AF2A51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,25 +122,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569061   (392193) от 03.11.2012
+###  Публикация: 402353   (392301) от 21.10.2011
 
-[Wallpapers 16+]Sexy Gilrs Wallpaper Collection
+Журнал | Playboy [Spain]. Lenceria Fuego Interior [2000] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испанская версия специального выпуска Playboy.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A193D65BC653EF233111C8C3A730106474A2D158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569320   (392295) от 03.11.2012
+
+Wallpapers Sexy Girls Pack (01.11.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392193.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очень большая подборка (9540шт) обоев для рабочего стола. Разбита на папки по разрешениям.Разрешение файлов: 1024х768~2560х1600.
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3180x2120
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F63E517B86E28E37CD6253DAA84021DE9F7E1D00
+magnet:?xt=urn:btih:17C6A4D1C8F1D201FBABDFB4E8C26C8728C58B49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,34 +174,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569305   (392191) от 03.11.2012
+###  Публикация: 569633   (392294) от 03.11.2012
 
-VA - MAXI. Музыкальные новинки осень (2012) [MP3|320 кб/с]<Pop, Dance>
+Murder Construct - Results (2012) [MP3|320 кб/с]<Death Metal / Grindcore>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392191.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392294.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Размер Project - В Облаке Неба
-02. Milena & Murzin Denis - Города (ReWork Radio Edit)
-03. Artik pres. Asti - Сладкий Сон
-04. Kato & Electric Lady Lab - Alive
-05. Рената Штифель - Опускаю Оружие
-06. Sean Kingston feat. Cher Lloyd - Rum And Raybans
-07. Sandra N. - Obsession (Radio Edit)
-08. Narcotic Sound & Christian D - Ciuci Mami (Radio Edit)
-09. Samo'L - Двигаем Телами
-10. Massivedrum & Gabriela - Just Touch (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:40:57
+01. Red All Over (2:02)
+ 02. Under The Weight Of The Wood (1:57)
+ 03. No Question, No Comment (1:55)
+ 04. Gold Digger (2:11)
+ 05. Compelled By Mediocrity (2:44)
+ 06. The Next Life (3:33)
+ 07. The Dead Hope (2:00)
+ 08. Feign Ignorance (1:58)
+ 09. Mercy, Mercy (2:17)
+ 10. Malicious Guilt (1:56)(   Читать дальше...   )Жанр: Death Metal / GrindcoreПродолжительность: 00:29:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7ED99A008192986CE3AF11EAE4AAA3DCBB0FBB1
+magnet:?xt=urn:btih:1C7E2973D16DE23DA1DA981AFB9E35746F1C0535
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -165,33 +209,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569831   (392190) от 03.11.2012
+###  Публикация: 569319   (392293) от 03.11.2012
 
-VA - Mind Over Matter (Compiled By DJ Horizon) (2012) [MP3|320 кб/с]<Trance, Psychedelic Trance>
+Sexy Girls Pack Wallpapers (01.11.12) [Wallpapers 16+]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392190.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392293.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sinerider - Gyroscopter (09:05)
-02. Neuroplasm - Regenesis (08:42)
-03. Cyclon - Medicated (07:51)
-04. Materia Vs Plasmotek - Uncivilised World (08:20)
-05. Waid - Sonic Infusion (08:44)
-06. Brainiac - Dream Sequence (09:01)
-07. Intelligence Vs Attic - Future Disclosure (08:09)
-08. Tron Vs Glitch - It Vaporizer (07:36)
-09. Ilai - Bunga Bunga (08:47)Жанр: Trance, Psychedelic TranceПродолжительность: 01:16:19
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5950x4250
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FFB03B2F519CEA8A272BFBE3A3C09793E74DD61
+magnet:?xt=urn:btih:E8343DCFB84D41C53B8568108D5389E40A364707
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,88 +235,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569917   (392186) от 03.11.2012
+###  Публикация: 569697   (392292) от 03.11.2012
 
-Win7codecs 3.8.4 + x64 Components [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Win7codecs - пакет кодеков для установки в операционную систему Windows 7. Win7codecs представляет собой автоматизированное средство для установки основных декодеров и кодеков. Пакет не содержит дополнительных проигрывателей, не меняет системные ассоциации файлов. При установке он автоматически удалит уже имеющиеся кодеки и заменит их на собственные из комплекта для лучшей совместимости. x64 Components - дополнение к пакетам кодеков Win7codecs, используемых в 64-битных версиях операционной системы Windows 7. Он устанавливает кодеки и декодеры, необходимые для воспроизведения на 64-битных проигрывателях. Пакет x64 Components содержит настройки, используемые совместно с настройками Windows Media Center, позволяющие выбрать различные сплиттеры и декодеры для воспроизведения того или иного типа файла. Кроме того, после установки данного дополнения пользователь сможет выбирать между 64- и 32-битными версиями Windows Media Player. Также x64 Components позволяет переключать настройки выхода аудио (включая полную поддержку выхода 7.1).
-
-(   Читать дальше...   )Название программы: Win7codecsЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569531   (392185) от 03.11.2012
-
-Vida Loca ft. Soatz - Me Gusta (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DC8B20653F0DDF998869490E4A5B37D49409C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569800   (392183) от 03.11.2012
-
-VA - Танцевальный Динамит осенний (2012) [MP3|256 кб/с]<Pop, Dance>
+VA - Trance Universe Vol.8 (2012) [MP3|320 кб/с]<Trance>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392183.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Паша Люмин и Даша Шувалова - Письмо (Slow Version)
-002. Thomas N'evergreen и Леонид Агутин - Ай-яй-яй
-003. Rodion Suleymanov (Formula 2) & Alex Sample - Лето С Тобой (Radio Edit)
-004. LiLi - Самурайка
-005. Zedd feat. Matthew Koma - Spectrum (Radio Mix)
-006. Дилавью - Снова Одна
-007. SPACE4 feat. Masta Bass & 3XL Pro - Пишу Поэму
-008. Мохито и Александра Стрельцова - Разбежаться
-009. Размер Project - Дождь
-010. Нервы - Май Bay(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:23:58
+01. Ivica Vanevski - Irriversibility (7:44)
+ 02. Esprit Fort - Rise - Club Mix (7:24)
+ 03. Arman Bas - The Lonely Shepherd (7:25)
+ 04. Vol Deeman - Purple Rain (7:26)
+ 05. Matt Pincer - One Night in July (8:43)
+ 06. Corn Flakes 3D - All in One (6:29)
+ 07. Rene Ablaze - Destination Daylight (Feat. Stine Grove) - Rene Ablaze Remix (8:11)
+ 08. M.C.K. - Relax (8:55)
+ 09. Mindsurfer - Hidden Secrets (5:23)
+ 10. Sivan Khan - As Time Shifts (7:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:03:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24E1CFE4DAFCEA0B6F67B969A8B7B106AC386F6C
+magnet:?xt=urn:btih:EC0B2D641E80145FF3D260A64C1BEE75DDEED7FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,62 +270,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569547   (392181) от 03.11.2012
+###  Публикация: 569765   (392291) от 03.11.2012
 
-FileZilla 3.6.0 RC1 [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392181.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileZilla — лучший бесплатный FTP-менеджер, поможет вам скачать и загрузить файлы с разнообразных FTP-серверов. Программа аккуратная, с удобным и приятным интерфейсом, обладает достаточным количеством настроек и возможностей. Доступна для разных операционных систем, а также есть версия, которую вы можете установить на флэш-диск. А также удобна для обновления файлов на вашем хостинге. Поддерживаются SOCKS4/5, HTTP1.1, SFTP, SSL, GSS, скачка файла в несколько потоков, есть и другие полезные опции. Интерфейс - многоязычный.
-
-(   Читать дальше...   )Название программы: FileZillaЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569741   (392179) от 03.11.2012
-
-Катарсис - Пандемия / Панацея (2012) [MP3|320 кб/с]<Pap,Hip-hop>
+Andrew Lu - Club Universe Radioshow 048 (01.11.2012) [MP3|320 кб/с]<Trance, Progressive Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392179.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Пандемия
-02. Около
-03. На колени только перед Богом
-04. Магнит
-05. Остаемся справа
-06. Вверх -при уч. Анатолий Например
-07. И пусть нас судят-при уч. Анна Хицкова и Анатолий Например
-08. Разжигай, но помни -(Крим)
-09. Панацея
-10. Быть русским(   Читать дальше...   )Жанр: Pap,Hip-hopПродолжительность: 00:54:34
+1. Kabool & Hether - Heartjam (Original Mix) (CD-R)
+2. EDX - Touched (Original Club Mix) (Toolroom Records)
+3. Harry Square - Here To Stay (Original Mix) (Interstate Recordings)
+4. Cerf, Mitiska & Jaren - Give Me A Sound (Brad & Victor H Remix) (S107 Recordings (Armada))
+5. Speed Limits - Here We Are (Original Mix) (Enhanced Progressive)
+6. Eloquentia & Vast Vision - Toes In The Sand (Gal Abutbul Remix) (Alter Ego Records)
+7. Maison & Dragen - Hour Of The Wolf (Original Mix) (Zouk Recordings (Armada Music))
+8. Joe Hander - Amazing (Muthanna M Remix) (Lohit)
+9. Ellie Lawson with Adrian&Raz - A New Moon (Dart Rayne & Yura Moonlight Remix) (Adrian & Raz (AdrianRazRecordings))
+10. Witness45 - iPlanet (Elev8 Remix) (Melancholy Records)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46C7BB2DF0A1A21672B9B9966ECAA0C122351B68
+magnet:?xt=urn:btih:9C40ABCCFCEB07D8ACDEC06BECB9DE77F78ACB76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,25 +305,95 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569914   (392177) от 03.11.2012
+###  Публикация: 569756   (392288) от 03.11.2012
 
-[Фотография] Photos from Koray Parlak
+Aurosonic - Etyology Sessions 131 (01-11-2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Catalin Anton & Sovve - Holding on to Us (intro mix) (Solaris)
+ 02.Eric Prydz - Every Day (Pryda)
+ 03.Sargas - Stay With Me (Nano Beats)
+ 04.Joel Gershom - Monsoon (Perceptive Deep)
+ 05.Sasha Wind feat. Igor Degtyarev - Goodbye (Alexandr Frost rmx) (People Revolt)
+ 06.Cosmic Gate & Emma Hewitt - Calm Down (Black Hole)
+ 07.Ben Gold Feat. The Glass Child - Fall With Me (Garuda)
+ 08.Andrew Rayel feat. Jano - How Do I Know (club mix) (Armind)
+ 09.Araya - Cloudburst (Manuel Rocca rmx) (Silent Shore)
+ 10.Kayan Code - Roadkill (Crystal Source)Жанр: TranceПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4ACBE264C54BC6ADE07E50CF8C5733515C9693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569797   (392287) от 03.11.2012
+
+VA - Best of World Trance. October (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remy Le Duc, The EC Twins & Zen Freeman feat. Shakeh - In Motion
+ 02. Dreamy - Dragon's Paradise
+ 03. BT vs Norin & Rad - The Emergency Gift (Myon & Shne 54 Mashup)
+ 04. Andrew Rayel feat. Jano - How Do I Know (Armin van Buuren Intro)
+ 05. Rory Gallagher feat. Dawn - Remember Me (Dan Stone Breaks Remix)
+ 06. The Blizzard & Yuri Kane feat. Relyk - Everything About You
+ 07. Susana & Aurosonic - Shelter
+ 08. Deadmau5 – Closer
+ 09. Aruna - Save The Day (Myon and Shane 54 Remix)
+ 10. Orjan Nilsen - Copperfield(   Читать дальше...   )Жанр: TranceПродолжительность: 03:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92EB895EFAE5F0EC34FBC5FA5B99310663231959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569324   (392286) от 03.11.2012
+
+Sexy Girls Pack Wallpapers (02.11.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392177.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы фотографа Koray Parlak.
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3504x2336
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95636C6E09B449767901F7E4BB3F9A8ABB1FFC21
+magnet:?xt=urn:btih:C3490FB8C7CABE853802049CB42710A1B389516A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,34 +401,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569728   (392138) от 03.11.2012
+###  Публикация: 569990   (392285) от 03.11.2012
 
-Белый Шум - Смирительная рубашка (2012) [MP3|320 кб/с]<Rap, Hip-hop>
+[Wallpapers] Desktop Wallpapers Pack 10
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392285.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 10
+Название: Desktop Wallpapers Pack 10
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E657693862F7A1D2FBA8E4AABCDC660F5452F88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569311   (392283) от 03.11.2012
+
+VA - Наша осень от Русского радио 4 (2012) [MP3|256 кб/с]<Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392138.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. После реинкарнации
-02. Про них
-03. Ветрам
-04. Старик и Палач
-05. Чемпионам
-06. Наша светлость п.у. С.Т.А.Я.
-07. 3 Общаги
-08. Смирительная рубашка
-09. Самопал запись
-10. Отдых значит ч.2(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:50:06
+001. Дима Билан - Всё Ускорилось
+002. Джиган (Geegun) - Держи Меня За Руку
+003. Натаника - Два Неба
+004. David - Раз, два, три
+005. Татьяна Котова (Kottova) - Хоп-хоп
+006.Оксана Казакова - Гипнотизирую
+007. Дискотека Авария - Салют, Вера!
+008. Глюкоза - Возьми Меня За Руку
+009. Ажур - Не надо искать
+010. Тимур Родригез - Я Верю В Твою Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7ECA9462F5A83D7B873FC14560B0D7A8FAEC701F
+magnet:?xt=urn:btih:0705390988E4655F66A54B7AEC3FEC727B56B0A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,25 +466,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569560   (392137) от 03.11.2012
+###  Публикация: 569987   (392282) от 03.11.2012
 
-Знаки смерти / Les signes vitaux (2009) DVDRip
+[Wallpapers] Interior Desktop Wallpapers Pack 1
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392137.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Молодая канадка хочет выяснить, в чём по-настоящему нуждаются люди в последние месяцы их жизни. Сдержанно, без лишней сентиментальности фильм рассказывает о самых важных вещах и о странной близости, возникающей между умирающими и теми, кто за ними ухаживает.Жанр: ДрамаРежиссер: Софи ДераспПродюсер: Николас ФонсекаАктеры: Мари Брассард, Даниэль Оуме, Мари-Элен Беллаванс, Френсис Дюшарм, Жасмин Дюбэ, Даниэль ФишоПеревод: Профессиональный (одноголосый)Продолжительность: 01:27:45
+[Wallpapers] Interior Desktop Wallpapers Pack 1
+Название: Interior Desktop Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA033FD20ABF8675B5604CE7162B7562415BFA10
+magnet:?xt=urn:btih:6421083D8F59243722001794B63F804E9EB4F45D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,29 +496,211 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569910   (392129) от 03.11.2012
+###  Публикация: 569986   (392281) от 03.11.2012
 
-[Wallpapers] Утро, рассвет, роса, туман (65 снимков)
+[Wallpapers] Animals Wallpapers №3
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392129.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Утро, рассвет, роса, туман (65 снимков)
-Название: Утро, рассвет, роса, туман (65 снимков)
+[Wallpapers] Animals Wallpapers №3
+Название: Animals Wallpapers №3
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280x1050 - 7676x4850
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CCF5BD9F58D82922D4FA2D29B9113476C4FEA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569527   (392280) от 03.11.2012
+
+HQ Wallpapers Perfect Women (02.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B07017B122C90299DD60B497EF08E6DCBFF59B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569325   (392279) от 03.11.2012
+
+Wallpapers Sexy Girls Pack (02.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B2A5464AF316270AA048EC94735EF9CA6745BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569991   (392274) от 03.11.2012
+
+[Wallpapers] Desktop Wallpapers Pack 11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392274.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 11
+Название: Desktop Wallpapers Pack 11
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E817032675B8777200BA52796DBB4C7E362878F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569489   (392273) от 03.11.2012
+
+VA - Взрывной хит-парад Осенний выпуск 5 (2012) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Потап - Лайки
+02. Ярослава - Это все ты!
+03. Юлия Савичева - Не Уходи
+04. Людмила Соколова - Пуэрто-Рико
+05. Ёлка & Мегаполис - Мы Никогда Не Будем Вдвоем
+06. Сергей Асанов - Королева
+07. Саундмания - До встречи в скайпе
+08. Дмитрий Нестеров - Не стирай меня
+09. Инь-Ян - Инопланетянин
+10. Анна Герцен - Very Good(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C5AFBC36F80F71B7009077F9B24ADA030BD869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569794   (392270) от 03.11.2012
+
+VA - Улетный Хит Осени (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392270.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Любэ - Краса (Ты неси меня река)
+002. Ирина Аллегрова - Розы на снегу
+003. Ольга Бузова - Все Для Тебя
+004. Тимати и Григорий Лепс - Лондон
+005. Светлана Владимирская - Дави на газ
+006. Никита - Найди меня
+007. Оксана Ковалевская - А Девочке Хочется
+008. Унесенные ветром - Какао
+009. Игорь Саруханов - Карнавал
+010. Катя Лель - Между нами(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 06:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7075DAE8EE5AFDDE32042F7BBDA04279320F92B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569882   (392269) от 03.11.2012
+
+[Wallpapers] Мир разнообразных и интересных собак (80 снимков)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392269.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Мир разнообразных и интересных собак (80 снимков)
+Название: Мир разнообразных и интересных собак (80 снимков)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920 x 1200
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи:  c 17-00 до 5-00 (время Киевское (GMT+02:00))
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A49A34F71B731DA41659562B751556CF6E57971
+magnet:?xt=urn:btih:30ECBAF44CE5ABA58245E7F75F23FE1F8EAE7619
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,114 +708,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569924   (392126) от 03.11.2012
+###  Публикация: 569385   (392267) от 03.11.2012
 
-[Рисованая графика] Artworks by Alexander Alexandrov
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Alexander Alexandrov.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5217470EC436B391C3FF1BCB70F8D5CDC52F31A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567571   (392124) от 03.11.2012
-
-HQ Wallpapers for a desktop (29.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95FA6AB1845997758DBB190F5D4B7E21B71DD256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569557   (392123) от 03.11.2012
-
-Win7codecs 3.8.3 + x64 Components [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Win7codecs - пакет кодеков для установки в операционную систему Windows 7. Win7codecs представляет собой автоматизированное средство для установки основных декодеров и кодеков. Пакет не содержит дополнительных проигрывателей, не меняет системные ассоциации файлов. При установке он автоматически удалит уже имеющиеся кодеки и заменит их на собственные из комплекта для лучшей совместимости. x64 Components - дополнение к пакетам кодеков Win7codecs, используемых в 64-битных версиях операционной системы Windows 7. Он устанавливает кодеки и декодеры, необходимые для воспроизведения на 64-битных проигрывателях. Пакет x64 Components содержит настройки, используемые совместно с настройками Windows Media Center, позволяющие выбрать различные сплиттеры и декодеры для воспроизведения того или иного типа файла. Кроме того, после установки данного дополнения пользователь сможет выбирать между 64- и 32-битными версиями Windows Media Player. Также x64 Components позволяет переключать настройки выхода аудио (включая полную поддержку выхода 7.1).
-
-(   Читать дальше...   )Название программы: Win7codecsЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569498   (392122) от 03.11.2012
-
-VA - Лучшее от МУЗ-ТВ (2012) [MP3|256 кб/с]<Pop, Dance>
+VA - Новинки Эфира Радиостанций (2012) [MP3|128 кб/с]<Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392122.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Animal ДжаZ и МакSим - Живи.mp3
-002. NikitA - Давай, Стреляй!.mp3
-003. Бондарчук - Бег По Краю.mp3
-004. Ева Польна - Весь Мир На Ладони Моей.mp3
-005. Shami & MX - Мы Небо-Земля.mp3
-006. Республика - Самба-Румба.mp3
-007. Юлия Ковальчук - Между Нами.mp3
-008. Driu Mc Feat. Funky & Inlite - Только Тебе.mp3
-009. Varda - Я Тебе Не Верю.mp3
-010. Hi-Fi - Хорошие Песни.mp3(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 6:11:40
+001. Тимати, L'one, Варчун, Крэк, Карандаш, Джиган - Tattoo
+002. Arash Feat. Sean Paul - She Makes Me Go
+003. Guf - Сегодня-Завтра
+004. Labrinth - Treatment (Kat Krazy Radio Edit)
+005. Павел Воля - Все Оплачено
+006. Taio Cruz Feat. Pitbull - There She Goes
+007. Вера Брежнева И Dj Smash - Любовь На Расстоянии
+008. Daddy Yankee - Pasarela
+009. Андрей Артемьев - Всего Лишь Игра
+010. Jay Sean - I Don't Know(   Читать дальше...   )Жанр: PopПродолжительность: 12:25:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D8A98C4E1BAFA40342CF1FA59ABA3B1D21D1863
+magnet:?xt=urn:btih:787128807D6D0A14D82C86576DC3E285936BE409
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,26 +743,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 402654   (392108) от 21.10.2011
+###  Публикация: 569575   (392265) от 03.11.2012
 
-Оборотень (Трилогия) / Ginger Snaps (2000-2004) DVDRip
+Журнал | Домой. Строительство и ремонт. Саратов №43 [ноябрь 2012] [PDF]
 
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392108.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие картины переносит зрителя из современности в Канаду XIX века, рассказывая о том, как на сестёр Фитцджеральд пало проклятье оборотня.
-Начало девятнадцатого века. Две сестры, лишившиеся родителей, ищут защиты от оборотней в отдаленном форте, но одна из них оказывается ранена страшным животным. Они как могут борются с этой заразой, но она берет верх над человеческой (   Читать дальше...   )Жанр: Ужасы, фэнтези, ТриллерРежиссер: Грант ХарвиАктеры: Кэтрин Изабелль, Эмили Перкинс, Натаниель Арканд, ДжейАр Борн, Хью Диллон, Эдриан Дорваль, Брендан Флетчер, Давид Ла Эй, Том МакКэмус, Мэттью УолкерПеревод: Профессиональный (двухголосый, закадровый)Продолжительность: 01:34:29
+«Домой. Строительство и Ремонт» – это полноцветный еженедельный журнал о строительных, отделочных материалах, мебели и интерьере. Аудитория журнала: частные лица, предприниматели и организации, планирующие строительство, ремонт и обустройство жилья, загородных домов, участков, офисов и других помещений.
+Часть страниц, содержащих только рекламу, удалена.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A1F9DD168FFF7B13A163C03A22E436266752685
+magnet:?xt=urn:btih:7DB112834FC9C5132334264DAB24908E4463D9AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,144 +770,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172915   (392104) от 09.10.2017
+###  Публикация: 569785   (392264) от 03.11.2012
 
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа H. 9-й тур. Кипр – Греция (07.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392104.jpg" />
-</div>
-
-
-###  Подробнее
-
-07 октября 2017 года, суббота. 21:45 МСК
-Чемпионат Мира 2018. Отборочный турнир. Европа.
-Группа H. 9-й тур. Кипр – Греция
-Стадион: ГСП (Никосия, Кипр), вместимость: 22859(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172814   (392102) от 09.10.2017
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа A. 9-й тур. Болгария – Франция (07.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Sander Van Doorn - Identity 153 (2012) [MP3|256 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392102.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-07 октября 2017 года, суббота. 21:45 МСК
-Чемпионат Мира 2018. Отборочный турнир. Европа.
-Группа A. 9-й тур. Болгария – Франция
-Стадион: Василь Левски (София, Болгария), вместимость: 43228(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:45:01
+N/AЖанр: TranceПродолжительность: 00:53:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E20D35838469A9F453A03FF46856F1799F9C7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172827   (392100) от 09.10.2017
-
-Eddie Heywood - 1944 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T'Ain't Me [03:16]
-02. Indiana [02:38]
-03. Blue Lou [02:55]
-04. Carry Me Back To Old Virginny [03:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E709EB1D72A16C3F6844AB8D88A670F45F0CC977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172679   (392098) от 09.10.2017
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. 9-й тур. Обзор матчей 2-го дня (06.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392098.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 октября 2017 года, пятница
-Обзор матчей отборочного турнира Чемпионата Мира 2018. Европа. 9-й тур
-День № 2:
-Группа D, 19:00 МСК	  Грузия – Уэльс(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A9745256B1A74C9C6778590D08AFE501F84E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172199   (392096) от 09.10.2017
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. 9-й тур. Обзор матчей 1-го дня (05.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392096.jpg" />
-</div>
-
-
-###  Подробнее
-
-05 октября 2017 года, четверг
-Обзор матчей отборочного турнира Чемпионата Мира 2018. Европа. 9-й тур
-День № 1:
-Группа C, 19:00 МСК	Азербайджан – Чехия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6002958B033C48B642E67702E79F0B7DCB8F9FE5
+magnet:?xt=urn:btih:48AD7309BD0DC0CA3A2D6D61E27FF4CF8C6A3D43
 ```
 
 https://mybot314.ru/tekegram_catalog/

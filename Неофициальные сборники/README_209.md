@@ -1,3 +1,177 @@
+###  Публикация: 1279994   (763532) от 01.02.2019
+
+VA - Time Machine: Hard Dance Techno (2019) [MP3|320 Kbps] <Techno, Hard Dance, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763532.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Borzoo - Seagulls Tripping
+002. Anderex - Gucci Bag (Original Mix)
+003. Crystal Lake - Invaders (Extended Mix)
+004. Devin Wild - For All Of Us(   Читать дальше...   )Жанр: Techno, Hard Dance, ElectronicПродолжительность: 10:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAC847B01E9E19BB11ABEA9FC10C46B5E997BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280002   (763527) от 01.02.2019
+
+VA - Rasta On (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763527.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kraiggi Badart - Burnin
+002. Chan I - Jungle Ghod
+003. Tomorrows Bad Seeds - Illuminate
+004. Ziggy Marley - The Storm Is Coming(   Читать дальше...   )Жанр: Reggae, Dub, SkaПродолжительность: 10:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B26A2DCBA8C09706DE31A58FAF32BD9B04D85DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279992   (763526) от 01.02.2019
+
+VA - Billboard Hot 100 Singles Chart 02.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763526.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Travis Scott - SICKO MODE
+002. Halsey - Without Me
+003. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
+004. Ariana Grande - thank u, next(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B17CCBA872E1CEE3A93AD3F8849D1D70D2310E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280141   (763513) от 01.02.2019
+
+VA - TOP Non-Stop 2000-2009 - Lounge & Chillout (2019) [MP3|128-320 Kbps] <Lounge, Chillout, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganga - Sweet Morning (4:50)
+02. Basil - All True (A Capella Flute mix) (7:16)
+03. Osunlade - Cantos A Ochun Et Oya (5:50)
+04. Unknown Artist - Unknown Track 1 (from mix - Fashion TV Winter Session 07-08 by David Vendetta) (4:27)(   Читать дальше...   )Жанр: Lounge, Chillout, Deep HouseПродолжительность: 08:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA52EA2AD2D434AF080D9192B4B284AEE7762AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017046   (763267) от 16.05.2016
+
+VA - Chill at Home (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jarome Adam - Apue (Chilling Mix) [3:22]
+02. Kemp Long - You Break My Dreams (City Chill Mix) [4:00]
+03. Booker O'Neill - Tropical Storm (Tee Jay Jay Mix) [4:08]
+04. Carl Kennedy - Room and Ripple (Boutique Mix) [3:34](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEC3FA9DB568F390C5CCF1DFBE8FF991305221D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017286   (763266) от 16.05.2016
+
+VA - Codes Future House Anthems (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headhunterz & Skytech - Kundalini (Extended Mix) 4:08
+02. StadiumX - Mombasa (Radio Edit) 3:17
+03. Jewelz And Sparks - Drip 2:34
+04. Orjan Nilsen Feat. Senadee - Hands (Noah Neiman Remix) 3:15(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6508A4510A45543C5B2F26B601B01A18D553F926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017175   (763262) от 16.05.2016
 
 VA - Weekend Anthems - 40 Party Floorfillers (2016) [MP3|320 кб/с] <Tropical, Club, Vocal, Melodic, Nu Disco, Indie Dance>
@@ -571,177 +745,6 @@ VA - Road Blues: Rock Blues American Song (2016) [MP3|320 кб/с] <Rock Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:247E6916711B4203414E4CFE60A3B09A8853FF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017309   (762945) от 16.05.2016
-
-VA - Музыкальное настроение. Сборник 6 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762945.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби
-002. Ramona - Je M'en Vais
-003. Анна Шульгина - Другая Я
-004. Dj James Yammouni - Live Forever(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15650BA8F85F89222C88B70AB0A47873CF3A8FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323862   (762754) от 23.03.2018
-
-VA - Невероятные концерты итальянцев в России, или Сан-Ремо в Кремле собирает друзей (2006) [MP3|320 kbps]<Pop | Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop | DiscoПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3205D9E03DC497FCA98368A047FCD99942763C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394629   (762300) от 06.07.2020
-
-VA - Beatport Chillout: Electro Sound Pack #122 (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762300.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dismantlists - Somewhere Always Ever
-002. Reid Willis - Canopy Care
-003. Landhouse - Unknown Melody
-004. Fejkб - Skye(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E670DF04FC2C50215820CD9363F300A8AC39BBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394605   (762297) от 06.07.2020
-
-VA - Late Night Mood (2020) [MP3|320 Kbps] <Pop, R&B, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Naji - Might Just (2:52)
-2. H.E.R. - Could've Been (4:08)
-3. Tora - Escape Room (3:21)
-4. The Internet - Girl (6:55)(   Читать дальше...   )Жанр: Pop, R&B, HouseПродолжительность: 03:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BBAFF0E79E2855CF8E5D371FEA5ACEC2F344E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280258   (762228) от 02.02.2019
-
-VA - The Official UK Top 40 Singles Chart 01.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - 7 rings
-02. Ava Max - Sweet but Psycho
-03. Sam Smith, Normani - Dancing With A Stranger
-04. Calvin Harris, Rag'n'Bone Man - Giant(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE8EF354258BA4E3BEF5CC9094640FD49A881CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394624   (762218) от 06.07.2020
-
-VA - Rock Indie NME Station (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Slow Readers Club - All I Hear
-002. Still House Plants - Long Pass
-003. Becca Stevens - I Wish
-004. Halloweens - My Baby Looks Good With Another(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24960434D361F88FFBA2BDCA153E4708301E3759
 ```
 
 https://mybot314.ru/tekegram_catalog/

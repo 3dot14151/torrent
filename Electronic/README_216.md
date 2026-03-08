@@ -1,3 +1,61 @@
+###  Публикация: 1141234   (650560) от 10.06.2017
+
+VA - Chill Friday (2017) [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Levantis - Crimson Horizon
+02. Power Shui - Scent of Water
+03. Levantis - Daydreams
+04. Levantis - Untamed Energy(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978E96B780CCA9E3031A7E95A0798CCAEC31D67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141297   (650555) от 10.06.2017
+
+VA - Pride Jams 2017 (unmixed tracks) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Moran - When The Beat Stops (Feat The Abbey - Victor Dinaire & Bissen - Pride Edit) 04:51
+02. Toy Armada - Stand By Me (Original - Pride Edit) 03:40
+03. Joe Moda - Pout (Push Your Lips Out) (Original - Pride Edit) 03:25
+04. Brian Justin Crum - Show Me Love (Feat Toy Armada - Pride Edit) 03:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A2E0764C71108C8297C5BE4A8D903BB5F5D9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141311   (650553) от 10.06.2017
 
 VA - Chillout June 2017: Top 10 Best of Collections [MP3|320 Kbps] <Downtempo, Lounge>
@@ -683,63 +741,6 @@ Norihito Suda, Stijn Huwels - Sansui (2019) [FLAC|Lossless|tracks + .cue] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:643490024393D05578FA612EA6CC4DD8A71AECEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292018   (648844) от 28.03.2019
-
-Tomoyoshi Date, Stijn Huwels - Hochu-Ekki-Tou (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hochu (17:34)
-2. Ekki (23:16)
-3. Tou (11:28)Жанр: Electronic, Ambient, DroneПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D880FC598E436E9C899673A492337C3FEBB8784D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291908   (648842) от 28.03.2019
-
-Devon Church - We Are Inextricable (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648842.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chamomile
-2. Your Fathers House
-3. Curses
-4. Nothing Is Revealed(   Читать дальше...   )Жанр: Electronic, DarkwaveПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A90A2557F32846DBC552804995FF5656106C18
 ```
 
 https://mybot314.ru/tekegram_catalog/

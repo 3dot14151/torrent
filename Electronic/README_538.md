@@ -1,3 +1,61 @@
+###  Публикация: 1796792   (18513) от 12.05.2025
+
+VA - The Perfect Lounge Balearic Session (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Asking Altotas - Signature Move (04:23)
+ 02.  Gries - Spot On (04:25)
+ 03.  Schauberger - One of a Kind (04:30)
+ 04.  The Sura Quintet - Distinctive Approach (04:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16CAF9FB36C105332D91A35969D6AD5A34D5F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797004   (18409) от 13.05.2025
+
+VA - Nothing But... Late Night Deep House, Vol. 01 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing on Lego - Sun Is Shining (Edit) [03:46]
+02. VEKY - Only You (Dub Mix) [03:48]
+03. Marine de Paris - Selfish Desire (Dub Mix) [03:42]
+04. Mr Black&Blue - Chicago (John Laurant Remix) [05:55](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83F4CA8C184086C828F71C6939C749F657A3188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797134   (18303) от 14.05.2025
 
 Roman Messer - Serendipity (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -683,64 +741,6 @@ VA - Arabtronica 2025 - The Best Eastern Rhythms [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A252B344BA217C883D2F8DC190DC66829A422B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810721   (16897) от 06.08.2025
-
-Rudy's Midnight Machine - The Reception (2008) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Reception (Part 1) 4:47
-02 The Reception (Part 2) 5:14
-03 The Reception (Part 3) 5:19
-04 The Reception (Part 4) 4:32Жанр: House, Nu DiscoПродолжительность: 00:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DFF3B7B86E6E67FA75CABED2CBB42C8C42C505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810824   (16895) от 06.08.2025
-
-VA - A State of Trance - Classics Top 10, Vol. 6 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Drives On A Vinyl - Greece 2000 (Extended Mix) [8:04]
-02. The Blizzard - Kalopsia (Extended Mix) [9:41]
-03. System F feat. Armin van Buuren - Exhale (Extended Mix) [7:13]
-04. Lustral - Everytime (Mike Koglin Extended Mix) [8:23](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F0C334D1410776F10808CD3C0DE586157B501A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1715628   (111421) от 13.04.2024
+
+VA - Selected Miami 2022: Tech House Cuts (2022) Unmixed [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lexx Groove – Dancin' (6:40)
+02. Little Rick – What's Going on (5:12)
+03. Sliced – Something's Happening (6:10)
+04. Markyno – Great Life (6:43)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D741F1408E3007AE2B0607384848C15CFF6207E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716062   (111369) от 14.04.2024
+
+Durante - Enter (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Durante - Close
+02. Durante & CRi - LMK
+03. Durante & Nathan Nicholson - Holding On
+04. Durante - Opalescent(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23EAC2990A9CED40FE786E6468F8CD1C20FBA418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717455   (111175) от 20.04.2024
+
+Soul Button - Master Minds (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Button - Lumina (Original Mix)
+02. Soul Button - Tartribe (Original Mix)
+03. Soul Button - Mystique Veil (Original Mix)
+04. Soul Button - Tartribe (Nick Devon Remix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6EECEE5D97A42462F2694F40963EFFC4388DDA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717443   (111149) от 20.04.2024
 
 Rinzen - Bend to the Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
@@ -646,91 +733,6 @@ VA - Best of Autumn, vol. 1 (2021) [FLAC|Lossless|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EECE7CEA2641591617730B75F87A0D9E9CC16F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724501   (109147) от 21.05.2024
-
-Volodia Rizak - DMS / 220V (2019) [FLAC|Lossless|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volodia Rizak – DMS (Original Mix) (6:03)
-02. Volodia Rizak – 220V (Original Mix) (6:56)Жанр: TechnoПродолжительность: 00:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF44F213D478E4F12829D926AD2D4DFCF3D626F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725022   (109125) от 22.05.2024
-
-VA - Fulltime Production Electro 80, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|tracks] <Electro, House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. International Music System - Nonline (5:30)
-02. Kano - Ikeya Seki (5:43)
-03. International Music System - Bubble Rap (4:54)
-04. Kano - It's a War (Extended) (6:54)(   Читать дальше...   )Жанр: Electro, House, Nu-DiscoПродолжительность: 01:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2627E8757D4183E52345AF9AC76B6975E282518A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725023   (109099) от 22.05.2024
-
-VA - Fulltime Production Electro 80, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|tracks] <Electro, House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kano - I'm Ready (Extended) (7:14)
-02. International Music System - Dancing Therapy (128 Bpm) (6:05)
-03. Peter Richard - Walking in the Neon (Dub Version) (6:50)
-04. M & G - Boogie Tonight (Extended Mix) (6:11)(   Читать дальше...   )Жанр: Electro, House, Nu-DiscoПродолжительность: 02:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6232ABFD1112AD1C43B0F0B1DFA95960C155BFDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

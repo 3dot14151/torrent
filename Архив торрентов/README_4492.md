@@ -1,287 +1,3 @@
-###  Публикация: 481309   (99308) от 11.04.2012
-
-[Wallpapers] Wallpaper Sexy Girls 0.4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на рабочий стол.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E1A98867791D6D2BAF27893C541E8A2DF2643F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481731   (99305) от 11.04.2012
-
-[Wallpapers] Full HD Wallpapers Pack 11
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99305.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Full HD Wallpapers Pack 11 
-Название:  Full HD Wallpapers Pack 11 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D460370FFDE8D0D6E5600DFAB4F7F8A0C7F2296B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481106   (99304) от 11.04.2012
-
-iO and Goshva - Lazy Time EP (2012) [MP3|320 кб/с]<Tech House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Time (Original Mix) 07:54
-02. Salamander (Original Mix) 07:26
-03. Salamander (Alex Celler Spaced Out Dub) 07:20
-04. Getaway (Original Mix) 07:542012Жанр: Tech HouseПродолжительность: 00:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECCAC36300CA620D80923700835CDC4F8F540AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481586   (99303) от 11.04.2012
-
-St. Prostitute - Here Come The Prostitutes (2012) [MP3|320 кб/с]<Hard Rock, Sleaze Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Come The Prostitutes [3:59]
-02. Say When It's Over [3:48]
-03. I'm Not Falling [3:46]
-04. Dreaming Of You [3:39]
-05. The Highway Hitcher Murder Blues [3:05]
-06. Hell Yeah!! [4:10]
-07. Medicine [4:04]
-08. A Bitter Man's Lullaby [4:22]
-09. Schizophrenia [3:33]
-10. Crisis [3:45]2012Жанр: Hard Rock, Sleaze RockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1E15482C4F7698833F33462B8DFFF8F51D1CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481580   (99302) от 11.04.2012
-
-Murder Bay - Never Was An Angel (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land Of Plenty [3:58]
-02. Honey Child [3:43]
-03. Outta Line [4:13]
-04. Ultraglide [4:26]
-05. Simple Man [6:23]
-06. Dirty Work [3:05]
-07. Never Was An Angel [3:55]
-08. What's Good For You [3:22]
-09. Long Time Comin' [3:15]
-10. Keep Me In Mind [4:05](   Читать дальше...   )2012Жанр: Hard RockПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F304FDCE09864CCFC58FDD70C6BF695930F2224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478965   (99301) от 11.04.2012
-
-Gary Boyle - Electric Glide (1993) [FLAC|Lossless]<Jazz-Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Snap Crackle 5:17
-2. Hayabusa 3:58
-3. Electric Glide 4:05
-4. Morning Father Joys 5:06
-5. Gaz 6:40
-6. It's Almost Light Again 4:17
-7. Grumble 2:34
-8. Brat No. 2 4:281993Жанр: Jazz-RockПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480219   (99298) от 11.04.2012
-
-Upon A Burning Body - Red. White. Green. (2012) [MP3|~245 кб/с (V0)]<Metalcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Game Over
-02. Sin City
-03. Once Upon A Time In Mexico
-04. Texas Blood Money
-05. El Mariachi
-06. Desperado
-07. Mimic
-08. Predators
-09. From Dusk Till Dawn
-10. Planet Terror(   Читать дальше...   )2012Жанр: Metalcore / DeathcoreПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3035EDC57753ABA97B00B7DBBE743786839F60D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481063   (99280) от 11.04.2012
-
-3 Quarters Dead - The Cycle Of Dust (2012) [MP3|320 кб/с]<Alt.Metal, Nu-Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Exodusters
-02. Oblivion
-03. Plaything (Cut Version)
-04. Sometimes
-05. Divinity
-06. Pinebox
-07. Cutting Myself
-08. Tongue of Razors
-09. Arsenic
-10. Until We Feast(   Читать дальше...   )2012Жанр: Alt.Metal, Nu-MetalПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25A8FC1DEE3BCEC8744D9872923DEE8883AF927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481218   (99279) от 11.04.2012
-
-Журнал | СтройПодряд №12 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельный иллюстрированный рекламно-информационный журнал, на страницах которого Вы найдете статьи и интервью о строительстве и обустройстве дома, наглядные идеи по дизайну интерьера, полезные рекомендации и советы по выбору материалов и инструментов, пошаговые инструкции по ремонту, уходу за домом и участком, а также много полезной информации о новинках рынка, товарах и услугах по ремонту и строительству.апрель 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11529345C6B18FCB6ADDCD00AD3A8678EC355A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481683   (99278) от 11.04.2012
 
 Каникулы в Мексике - 2. Ночь на вилле. Выпуск №28 (2012.04.11) SATRip
@@ -775,6 +491,257 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EC276ECD85BE2801770F6E3D60C8C22644342FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480863   (99185) от 10.04.2012
+
+[Wallpapers] HQ Wallpapers by KSV (10.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0DDB115C99275DABB7A042553D12CC68C0973B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480856   (99184) от 10.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (10.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F3CC2BB8EEC5309CCB65D390E22FDD943C8BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480847   (99182) от 10.04.2012
+
+Эпицентр / Epicenter (2000) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_99182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент ФБР Аманда Фостер работает под прикрытием. Ее задача арестовать Ника Константина, сотрудника военного учреждения в Сан-Франциско, который, используя феноменальную изобретательность и сноровку, пытается похитить секретные документы и продать их террористам.
+
+Взяв Ника с поличным, Аманда должна доставить его в Федеральную тюрьму Лос-Анджелеса. Однако в это время в Лос-Анджелесе происходит землетрясение страшной силы.
+
+Находясь по разные стороны закона, преследуемые безжалостными убийцами и продажными полицейскими, потерявшими на несостоявшейся сделке большие деньги, Ник и Аманда вынуждены объединить свои усилия, чтобы разыскать потерявшуюся дочь Аманды, выбраться из разрушенного города и найти способ остаться в живых.Жанр: Фантастика, Боевик, ТриллерРежиссер: Ричард ПепинАктеры: Трейси Лордс , Гэри Дэниелс , Джефф Фэйи, Даниела Нэйн, Константин Котиманис , Кэти Стюарт, Эндрю Френсис , Генри Бекман, Тревор УайтПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:38:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480297   (99181) от 10.04.2012
+
+Величайшие автомобили: GTO / Great Cars: GTO (2004) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99181.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 50-е годы 20-го века Pontiac переживал кризис. Он должен был измениться или исчезнуть. Его машины были невзрачны, требовалось что-то новое. Компания решила выпустить привлекательную, быструю и доступную машину. Эта простая задумка спасла Pontiac и привела к разработке одного из культовых автомобилей GTO.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2DBC94B19192964E8B37EBDF7E6F52C84FA978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480887   (99179) от 10.04.2012
+
+[Wallpapers] Mixed Wallpapers 0.3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микс из обоев на разные темы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF709D5887B90C588B59E0202901BA6AB2D3DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480320   (99177) от 10.04.2012
+
+Величайшие автомобили: Астон Мартин / Great Cars: Aston Martin (2004) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название "Aston Martin" образовано от названия гонок "Aston Hill Clean" и имени основателя компании Вайнела Мартина. Эту машину предпочитали Джеймс Бонд и многие гонщики, желавшие бросить вызов Ferrari. Когда у завода начались трудные времена, его спасла американская компания. Сейчас Aston Martin снова стал эксклюзивной маркой мирового класса.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F6D9E72CF43AE846C540403D8DAA72FC6FC724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481124   (99176) от 10.04.2012
+
+Marc O' Tool - Serious (2012) [MP3|320 кб/с]<House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serious Intro (Original Mix)
+02. I Know (Original Mix)
+03. No Need To Worry (Ft. Stu Patrics - Original Mix)
+04. Feel So Good (Ft. Marc Vision - Original Mix)
+05. Party 1994 (Original Mix)
+06. What Is Up (Ft. Criss Source - Original Mix)
+07. Take Me To The River (Original Mix)
+08. You Got It (Ft. Christian Hinzer - Original Mix)
+09. I Call You (Original Mix)
+10. The Final (Original Mix)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 02:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D375DB91F53988CC43A72B8DE8BAD5E98102F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480597   (99174) от 10.04.2012
+
+[Wallpapers] Avto Desktop Wallpapers Pack 6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99174.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Desktop Wallpapers Pack 6 
+Название:  Avto Desktop Wallpapers Pack 6 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4B7BEC4C1CCA6330558CEE67ADAE93036C529E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480842   (99170) от 10.04.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (09.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C575A97843B62F1F5146F25363C371EE82638BDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

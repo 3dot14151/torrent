@@ -1,3 +1,32 @@
+###  Публикация: 1153740   (557082) от 28.07.2017
+
+VA - Ibiza Summer Party 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filatov - Back In The Love (Swanky Tunes remix)
+02. Seal De Green - Those Days (original mix)
+03. Hlasznyik & Danev - Let's Go To The Party Beach (original mix)
+04. Royal Gigolos - California Dreamin' (Tek-House extended)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF37E665F5DAE6CDA60A8E5BD98878FBBE9467D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045879   (556981) от 25.08.2016
 
 VA - Deep Chill Autumn Skies (2015) [MP3|320 Kbps] <Deep House, Chill House>
@@ -719,35 +748,6 @@ VA - Ibiza Cocktail Time (50 Deep-House Warm Ups) Vol.4 (2018) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47FBF621C57DBEE115DBBB6099FD3C9CD0F0ECB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309708   (549604) от 21.06.2019
-
-VA - Chill House Ibiza 2019 (2019) [MP3|320 Kbps] <House, Chill House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adonai - Say (Edit Mix)
-02. Guilhem Mariposa & Idiocrate - Dawn (Original Mix)
-03. Takticals feat. Simply Oktaver - Just For One Day (Beach Mix)
-04. Ben Brummitt - A Story To Be Told (Edit Mix)(   Читать дальше...   )Жанр: House, Chill House, Deep HouseПродолжительность: 02:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A50C4D714B593A02F92900F98CC4E85987532E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

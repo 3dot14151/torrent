@@ -1,29 +1,3 @@
-###  Публикация: 933013   (506944) от 31.08.2015
-
-Проекты - VideoHive - Sliding Opener [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC17873A86393F8E47546BB95F2E69723F5F1F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933027   (506939) от 31.08.2015
 
 Проекты - VideoHive - 3D Identity [AEP]
@@ -675,6 +649,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5459A6D2420A4153FCBE5257FE2D9CEB5812A4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933975   (504160) от 03.09.2015
+
+Проекты - VideoHive - Fashion Promo - 9801178 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82015DF866A6C728F2D10273ED48CF0D40EAFD6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

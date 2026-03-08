@@ -1,3 +1,177 @@
+###  Публикация: 1121899   (799256) от 04.04.2017
+
+VA - Beatport Trance  Pack (04.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  TrancEye - Ad Astra (Extended Mix)  6:38
+02.  Andre Visior & Mind X - Eclipse (Original Mix)  6:57
+03.  Solis & Sean Truby pres. S&ST - Roots (Extended Mix)  6:40
+04.  Sheridan Grout & Michele C - One Chance (Steve Allen Remix)  5:47(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 02:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9D75446FF95B484B81E84F327AD12B4A31674B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122182   (799180) от 04.04.2017
+
+Robert Cray - 30 most slow Blues (2017) [MP3|256-320 Kbps] <Blues, Harmonica Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoking Gun
+02. You Move Me
+03. I'm a Good Man
+04. Twenty(   Читать дальше...   )Жанр: Blues, Harmonica BluesПродолжительность: 02:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9583D23055FE79245DD9901EB4FCDBB29CBB90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122236   (799171) от 04.04.2017
+
+VA - Хитовая Автодискотека 50х50 (2017) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799171.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  DJ Tarantino - Кукушка (Cover Виктор Цой)  4:20
+002.  Estradarada - Вите надо выйти (Slider & Magnit Official Remix)  4:45
+003.  Kristina Si - Mama Boss (DJ AlexMini Remix)  4:45
+004.  MCB 77 - Dangerous Game (Original Mix)  4:03(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 07:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E503C267A8BF949ED73A310D792273D53EFB9642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122277   (799157) от 04.04.2017
+
+Baba Blues - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Is A Rainbow
+02. Heavy Stone
+03. Blues Is Gonna Be Your Friend
+04. Hela den lеnga vagen hem(   Читать дальше...   )Жанр: BluesПродолжительность: 02:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E582A7064A9DE28E29DAFDBBD5901BF878C98610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121950   (799149) от 04.04.2017
+
+VA - Romantic Smooth Jazz (2017) [MP3|320 Kbps] <Smooth Jazz, Relax, Lyric Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dave Nimerfro - Get You Into My Life
+002. Instrumental Piano Music Zone - Smooth Jazz Music
+003. Nils Landgren - Green Fields
+004. Jizz Jazz - Lost In Your Eyes (Cool Cut Mix)(   Читать дальше...   )Жанр: Smooth Jazz, Relax, Lyric InstrumentalПродолжительность: 07:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370D53627D48BD4BBBCC4259D33A1BF964790ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506574   (799129) от 02.11.2021
+
+VA - Halloween Party (2021) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby 'Boris' Pickett & The Crypt-Kickers - Monster Mash (3:11)
+02. Rockwell - Somebody's Watching Me (Single Version) (3:55)
+03. Lady Gaga - 911 (2:51)
+04. Stevie Wonder - Superstition (4:27)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 01:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02482DCBECE6E61C73AAB0FD6B7ED26D5C35F124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506578   (799128) от 02.11.2021
 
 VA - Halloween Songs (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
@@ -571,180 +745,6 @@ VA - A Synthwave Panorama Vol. 2 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E9F8B6E929A77162D5D0A43554D1B3A781A765B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507294   (798456) от 04.11.2021
-
-VA - Funky House: Sunday Mixtape (2021) [MP3|320 Kbps] <Funky, Disco House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798456.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Soul Power - Supa Fly
-002. Frank Montana - Rokit
-003. Guillaume - The Chase
-004. Anacca Jez - Cntrol(   Читать дальше...   )Жанр: Funky, Disco House, ElectroПродолжительность: 09:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F943DEACC3CE62AE6198F6637BE7B33A1B8BE130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507288   (798453) от 04.11.2021
-
-VA - Beatport Organic House: Sound Pack #361 (2021) [MP3|320 Kbps] <Organic, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798453.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Internal Deep - Circle Path
-002. Last Bar - I Can't Lie
-003. Loka Deep - Bass Up
-004. Max Tenrom - Armenia(   Читать дальше...   )Жанр: Organic, Deep HouseПродолжительность: 12:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCD74A7BFDC7929CB2BF58C60543D7372638D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507385   (798450) от 04.11.2021
-
-VA - My Little Planet: Pop Rock Indie (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798450.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dopamoon - Ailleurs Que Le Soleil
-002. The Underground Youth - For You Are The One
-003. Cerberus Shoal - Yes Sir, No Sir
-004. Sam Valdez - For A While(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 07:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165C77ACC8FD92A7D83EBEC19097246CADA77384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507271   (798444) от 04.11.2021
-
-VA - Beatport Electro Pop: Sound Pack #364 (2021) [MP3|320 Kbps] <Electro Pop, Synthpop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798444.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fede Cabral - Bomba
-002. Methyl Ethel - Neon Cheap
-003. Laurence-Anne - Strange Feeling
-004. Lusine - Not Alone(   Читать дальше...   )Жанр: Electro Pop, Synthpop, DanceПродолжительность: 07:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37299FEBF59A9E603BE04E3ED4B9901BC11AD3A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507528   (798440) от 04.11.2021
-
-VA - A Synthwave Panorama Vol. 21 (2021) by Gertrudda [MP3|192-320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maxnickel - Night'er (3:39)
-02. LostSckare - Programmed For Love (Gertrudda Edit) (5:54)
-03. Microsha 89 - Soviet Union (TELEGIMNASTIKA Remix) (3:54)
-04. LA Nights - Voice Flashback (Gertrudda Edit) (5:52)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 04:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A1CB7D48AFBAE5948C2393CB5083806E1E0A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507302   (798438) от 04.11.2021
-
-VA - Herbal Ambient Sounds (2021) [MP3|320 Kbps] <Ambient, Relax, Meditation>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798438.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Decato - Transmissions
-002. Paul Oednom - Flux
-003. Forest Robots - Meditation Vii
-004. Audio Obscura - The Quiet Night(   Читать дальше...   )Жанр: Ambient, Relax, MeditationПродолжительность: 09:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D622E7F7C78B20B3B5ACC328A73D9F783E40B59
 ```
 
 https://mybot314.ru/tekegram_catalog/

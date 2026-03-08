@@ -1,3 +1,29 @@
+###  Публикация: 1791193   (21618) от 12.04.2025
+
+CoolUtils Total CAD Converter 4.1.0.230 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total CAD Converter - программа для конвертации файлов формата CAD в PDF, TIFF, JPEG, BMP, WMF, PNG, DXF, BMP, CGM, HPGL, SVG. Оригинальные файлы могут быть в форматах dxf, dwg, dwf, plt, hg, hgl, hpg, plo, hp, hpl, hpgl, hp1, hp2, hpgl2, gl2, spl, prn, svg, cgm. Total CAD Конвертор имеет удобный интерфейс и окно мастера настроек, который помогает быстро и просто (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5430A54270D6362C0E1A88E0B079F9EFCC5BD5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792004   (21243) от 16.04.2025
 
 FlashPrint 5.8.7 [Multi/Ru]

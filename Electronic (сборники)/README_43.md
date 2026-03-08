@@ -1,3 +1,32 @@
+###  Публикация: 1004590   (838528) от 06.04.2016
+
+VA - Goa Session by X-Noize (2016) [MP3|320 кб/с] <Trance, Progressive Trance, PsyTrance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-NoiZe vs. SpaceCat - No Rules 06:43
+02. Iliuchina - Lucid Dream 06:47
+03. X-NoiZe & Volcano - Volcanoize 06:49
+04. Capital Monkey vs. Burn in Noise - Capital Noise 06:41(   Читать дальше...   )Жанр: Trance, Progressive Trance, PsyTranceПродолжительность: 02:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773ECCB049A39917609393B113962705CE1DFC59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004304   (838523) от 06.04.2016
 
 VA - Trance Maniacs Party: Melody Of Heartbeat #161 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
@@ -719,35 +748,6 @@ VA - Heavens Waiting: Chillout Session (2016) [MP3|320 кб/с] <Downtempo, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C9918FE9A1262BD33A4BAD6118DC20A2C729C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005288   (834721) от 08.04.2016
-
-VA - We Love Club Weapons Vol.2 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kid Massive - Ready to Rock (Radio Edit) 03:32
-02. Gino Montesano - Sunglasses At Night (Edit) 03:32
-03. Strobe - Angel (Strobe Mix) 05:54
-04. Weigold - Spread Love (Patrick Hofmann Remix) (Feat. Anna S.) 05:05(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AC7E807D2467583109BDA991430C48B9070A4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

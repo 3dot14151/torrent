@@ -1,29 +1,3 @@
-###  Публикация: 184599   (883510) от 24.03.2010
-
-Hard and heavy (сборник) - ХИТЫ XX - XXI ВЕКА (2008) [MP3|256 kbps]<Hard and heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_883510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard and heavy
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103555   (883506) от 13.02.2017
 
 John Garcia - The Coyote Who Spoke In Tongues (2017) [FLAC|Lossless|image + .cue] <Stoner Rock>
@@ -742,6 +716,32 @@ Mors Principium Est - ...And Death Said Live (2012) Japanese Edition [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B96EC161E59AF339611587228BBE0156AF6DA8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186067   (881959) от 25.03.2010
+
+VA - 100Hits Rock (5CD) (2007) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_881959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 06:20:12
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

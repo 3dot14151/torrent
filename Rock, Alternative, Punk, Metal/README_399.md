@@ -1,32 +1,3 @@
-###  Публикация: 1029486   (676522) от 29.06.2016
-
-Cozy Powell - The Best Of Cozy Powell (1997) Reissue [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme One
-02. Killer
-03. Sweet Poison
-04. The Loner(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2735972A9F16631CD22DB20CDEE1F3BF1591A58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 677284   (676494) от 08.07.2013
 
 Dead Native - Keep It Strange (2013) [MP3|320 кб/с]<Psychedelic/Heavy Rock>
@@ -791,6 +762,35 @@ Grails - 8 albums (2003-2011) [FLAC|Lossless] <Post-Rock, Instrumental, Psychede
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136461   (675058) от 22.05.2017
+
+HeadCat - Walk The Walk... Talk The Talk (2011) [MP3|320 Kbps] <Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Beat
+02. Say Mama
+03. I Ain't Never
+04. Bad Boy(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 00:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A833CBA99B348A5212FCB1D895BEAEDD819FF3FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1678117   (147801) от 20.11.2023
+
+VA - Breezin' Smooth Jazz Tunes West Coast Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Suggestions - Clarity (4:36)
+02. Chillaxonic - Iridescent (5:10)
+03. Chillaxing Jazz Kollektion - Touch (4:04)
+04. Konstantin Klashtorni - Together Again (4:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F21FD63C84DDE544CB1B3D000FDCE8DE08DE50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271903   (147789) от 25.12.2018
 
 Guy Lafitte & Andre Persiany - Les Classiques du Jazz (1955, 1957) 2018, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -716,35 +745,6 @@ Michael Buble (Bublé) - Love (Deluxe Edition) (2018) [FLAC|Lossless|WEB-DL 24Bi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E87C2F9E1E8C6047F2B9678FBDE9E1B2477B790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348071   (146418) от 26.12.2019
-
-Peggy Lee - The Essential Collection 1946 - 1953 (2007) 2CD, Avid Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146418.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. A Wonderful Guy [1:47]
-02. You Go to My Head [3:25]
-03. Just One of Those Things [2:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F01ED85F7C36E5C315AFDBF77F248AECE39683
 ```
 
 https://mybot314.ru/tekegram_catalog/

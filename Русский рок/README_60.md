@@ -1,32 +1,3 @@
-###  Публикация: 1066131   (416490) от 24.10.2016
-
-Адо - 25 Горошин (2016) [MP3|320 Kbps] <Folk Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Веди себя хорошо
-02. Пассажир
-03. Я давил цветное стекло
-04. Поклонилось Солнце Месяцу(   Читать дальше...   )Жанр: Folk Rock, Soft RockПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF143584DED67A7CCF0B34664194BC37F6D2309B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066101   (416350) от 24.10.2016
 
 Ночные Снайперы - помолчим (2016) Single [MP3|320 Kbps] <Rock>
@@ -743,6 +714,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44EB704631DC92FB76DB01709B213D12B5634708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252795   (408065) от 06.10.2018
+
+The Travelling Orchestra - Early In The Mornin' (2016) EP [MP3|320 Kbps] <Blues Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catfish Blues
+02. Early In The Mornin'
+03. Hard Time Killin' Floor BluesЖанр: Blues Rock, BluesПродолжительность: 00:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520CBA7042F750CB18D2574014C712009E580D93
 ```
 
 https://mybot314.ru/tekegram_catalog/

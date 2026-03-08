@@ -1,64 +1,3 @@
-###  Публикация: 554429   (438900) от 30.09.2012
-
-Ereb Altor - Gastrike (2012) [WavPack|Lossless]<Viking Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_438900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gathering Of Witches (5:39)
-02. Dance Of Darkness (6:19)
-03. Dispellation (6:41)
-04. The Boatman's Call (5:39)
-05. The Mistress Of Wisdom (8:26)
-06. I Djupet Så Svart (6:16)
-07. Seven (6:11)Жанр: Viking Black MetalПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062624   (438869) от 14.10.2016
-
-Валентин Стрыкало - Развлечение (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ускользает
-02. О брат
-03. 92
-04. Решится само собой(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA206099F98A7D2C6317CC973E95BC5ACE7D494F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553886   (438750) от 30.09.2012
 
 Malice - License To Kill (1987) [MP3|320 кб/с]<Hard-n-Heavy, Melodic Heavy Metal>
@@ -753,6 +692,64 @@ Hammer King - Kingdemonium (2022)  [FLAC 2.0|44/24|tracks|WEB-DL] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F04329CDEA1AE09369801AB300F58BBA1AD7B0D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570905   (438360) от 19.08.2022
+
+Nagart - Vol. 3 (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438360.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Шкатулка
+3. Гар - смотритель склепа
+4. Смерть в лесу(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916D73D8CF33F749B3490C8CE7DA1E40EF2E9DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944664   (438325) от 08.10.2015
+
+All Time Low - Future Hearts (2015) Deluxe Edition [FLAC|tracks + .cue]<Pop-Punk, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satellite [2:25]
+02. Kicking & Screaming [3:26]
+03. Something's Gotta Give [3:09]
+04. Kids in the Dark [3:37](   Читать дальше...   )Жанр: Pop-Punk, Alternative RockПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887BBB7DC23882108B2F563992F5308035B23A6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 933358   (505502) от 02.09.2015
+
+Thomas Chapin Trio - Third Force (1991) /Knitting Factory/ [FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahab's Leg [10:15]
+02. Poet O Central Park [04:50]
+03. Iddly [07:40]
+04. Tale of the Sands [08:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5ECCD7EAB33B441C536E6D72349BA72097029B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563244   (505474) от 13.07.2022
 
 Sammy Price featuring Emmett Berry: Americans Swinging In Paris (1956) 2002, EMI [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Piano Jazz>
@@ -740,35 +769,6 @@ Jessi Teich - Twisted Soul (2015) [FLAC|Lossless]<Vocal Jazz, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF1EA2035EA1C6C82BE3E7A304B4AE971436884C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934547   (502533) от 05.09.2015
-
-Claudia Morris - Secret Love (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sentimental Journey
-02. Orange Colored Sky
-03. The Very Thought Of You
-04. Shanghai(   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E837AF05350BFFF4F073371AD2BA9FBD49CA9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,3 @@
-###  Публикация: 1573604   (410475) от 01.09.2022
-
-Teen Suicide - honeybee table at the butterfly feast (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop, Rock, Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. you were my star [00:01:01]
-02. death wish [00:02:44]
-03. get high, breathe underwater (#3) [00:03:51]
-04. unwanted houseguest [00:03:33](   Читать дальше...   )Жанр: Pop, Rock, Alternative & IndieПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A5B36E06763CC7093FC9106AA00FB26327ECF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573536   (410413) от 01.09.2022
-
-Nightwish - Oceanborn (1998) Remaster, 2015, Spinefarm Records [OGG Vorbis|485 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stargazers	4:27
-02. Gethsemane	5:21
-03. Devil & The Deep Dark Ocean	4:46
-04. Sacrament Of Wilderness	4:12(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F5CAC289D269312830A67D4BA1F71D027544C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573721   (410411) от 01.09.2022
-
-Ghost Wish - Dimension (2022) [MP3|320 Kbps] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exogenesis (04:04)
-02. Event Horizon (04:28)
-03. Paradox (02:58)
-04. Oblivion (04:00)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C7D783A33AFD3D9F5EF48930E38031380A7432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573726   (410408) от 01.09.2022
-
-Mad Max - Wings Of Time (2022) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Hot To Handle (4:11)
-02. Days Of Passion (4:55)
-03. A Woman Like That (3:13)
-04. Best Part Of Me (3:00)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23294E2910B9AB2E42F554E5C912C1786725A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168088   (410346) от 23.09.2017
 
 Suzi Quatro - Legend: The Best Of (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock, Glam Rock>
@@ -743,6 +627,122 @@ Anatomic - In For The Thrill (2000) [APE|Lossless|image + .cue] <Melodic Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB0088C19CE6DBFC79195F8783876520187ECA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066593   (410083) от 27.10.2016
+
+Asphalt Valentine - Strip Rock Roll (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Lose It 04:09
+02. Dirty Little Secret 04:33
+03. It's Not Me 04:20
+04. Hard Life 05:24(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645D43AA6E1B0B7E016A1BE684B866BFF73AEC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066403   (410080) от 27.10.2016
+
+Pulse R - In Chains (2016) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember Me   (03:23) 
+  02. Under The Rug   (04:18) 
+  03. In Chains   (06:13) 
+  04. Mindtrap   (05:25) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E1DC2C641335818AE90FE879ADAEC354459A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066886   (410070) от 27.10.2016
+
+Mindghost - The Anti-Citizen (2016) [MP3|320 Kbps] <Stoner Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free From The Demon
+02. Life Or Death
+03. My Last Breath (with Blaze Bayley, ex. Iron Maiden)
+04. Devil On A Masquerade(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6EC0316F7F7AEA7E91F1D02D668750AC5EB5BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413370   (410005) от 03.10.2020
+
+Fish On Friday - Black Rain (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life In Towns
+02. Murderous Highland Highway
+03. Black Rain
+04. Mad At The World(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B759E3A043BC50E277C5A878FB537F40B76DAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

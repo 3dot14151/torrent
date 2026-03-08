@@ -1,3 +1,32 @@
+###  Публикация: 1618396   (250004) от 11.03.2023
+
+zero-project - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkness Falls (Jabberwock Version)
+02. Killing Earth
+03. Once Upon a Time
+04. Princess of My Heart(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 03:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4445BA5F2537ABDFB48E4EA6F35D07D744B9516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618911   (249672) от 16.03.2023
 
 VA - 60 minutes. Old School Dance Music vol.16 (mixed by Dj V) (2023) [MP3|320 Kbps] <Club House, Dancecore, Euro Trance>
@@ -744,35 +773,6 @@ VA - Ambient Oceania (2021) [MP3|320 Kbps] <Ambient, Downtempo, Meditation, New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AD87B449A086169C118CCFF39FBC69E42D875F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067648   (244888) от 29.10.2016
-
-VA - Trance Collection Vol.53 (2016) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244888.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Addictive Glance - Head North (Legolas High Remix) 7:03
-002.Addictive Glance - Head North (Purelight Remix) 6:11
-003.Alexey Ryasnyansky feat. Minette Fourie - I Know A Place (Inteyes Remix) 7:37
-004.Alex Leavon and Cynthia Hall - Paper Kites (Original Mix) 5:56(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 11:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5E48E99FF87187EAA53A24ACEB4A01A0FA6D5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

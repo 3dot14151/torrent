@@ -1,3 +1,32 @@
+###  Публикация: 1775346   (71449) от 26.01.2025
+
+VA - Compilation part 140 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delal Derin - Hard to Forget You
+02. Azimov - Autumn Fairy Tale
+03. Muvi - P a R I S
+04. Delal Derin - If Only(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4610490F2A5280E9325F284F6989210CFEC89F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776376   (71274) от 01.02.2025
 
 VA - Musical kaleidoscope part 24 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
@@ -716,32 +745,6 @@ VA - Trance In Motion Vol.387 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF9F181E922F9438A6B2D68B8A61AF3114082435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790713   (68040) от 10.04.2025
-
-VA - Cosmic [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Progressive HouseПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430B527030D5AB87836DEE3BB100F6D948EDBB1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

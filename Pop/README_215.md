@@ -1,3 +1,67 @@
+###  Публикация: 1252732   (387907) от 07.10.2018
+
+Vicki Brown - Vicki Brown (1987) [FLAC|Lossless|image + .cue] <Pop,  Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387907.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Look At Me
+2.	Once Again
+3.	Can't Let Go
+4.	Plaisir D'Amour(   Читать дальше...   )Жанр: Pop,  ClassicalПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:223A4325BF877F2D181DF49D010AB045E001EB11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571284   (387622) от 07.11.2012
+
+Céline Dion - Sans Attendre (2012) (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, French Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parler A Mon Pere (2:55)
+02. Le Miracle (3:57)
+03. Qui Peut Vivre Sans Amour (3:29)
+04. L'Amour Peut Prendre Froid (Duet With Johnny Hallyday) (3:29)
+05. Attendre (3:28)
+06. Une Chance Qu'on S'a (Duet With Jean-Pierre Ferland) (3:32)
+07. La Mer Et L'enfant (3:08)
+08. Moi Quand Je Pleure (3:51)
+09. Celle Qui M'a Tout Appris (3:48)
+10. Je N'ai Pas Besoin D'amour (3:32)(   Читать дальше...   )Жанр: Pop, French VocalПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2A06A5AAE5B26333255FBD3FDF5959A5BDBA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252973   (387581) от 07.10.2018
 
 VA - 110 Hits 2018 (2017) 5CD [MP3|320 Kbps] <Dance, Pop>
@@ -693,67 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D850EBF3821951F5C8D698A5D56080BBFAAC4F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571289   (384936) от 08.11.2012
-
-Pink - 8 Studio Album's + 2 Compilation's + 5 EP's & Single's + 1 live  (2000-2011) [MP3|320 кб/с]<Pop, Pop-Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Pop-Rock, R&BПродолжительность: 09:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29845FEE2750FDFC6944D8A4F384D44909150467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572288   (384914) от 08.11.2012
-
-VA - Лучшая 100ка Ретро FM 8 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384914.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. А. Серов - Мадонна
-002. Grant Miller - Lost In Paradise
-003. А. Глызин - Зимний сад
-004. Danuta - Touch My Heart
-005. В. Леонтьев и Л. Вайкуле - Вернисаж
-006. Touche - What Can I Gay
-007. Твой День - Хуанхэ-Желтая Река
-008. Fancy - Fools Cry
-009. Шахерезада - Командир Полка
-010. Video Kids - Do The Rap(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A9A230A77293686F3E26EB9FA736C5476D367EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1452400   (1027514) от 07.03.2021
-
-Black Sabbath - Heaven and Hell (2021) 1980 Deluxe Edition [FLAC 2.0|44-96/24|tracks|WEB-DL] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon Knights (2021 Remaster) (3:52)
-02. Children of the Sea (2021 Remaster) (5:34)
-03. Lady Evil (2021 Remaster) (4:24)
-04. Heaven and Hell (2021 Remaster) (6:57)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D268639D821DE8016DED510BCCF5493CE0C9E5D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452426   (1027492) от 07.03.2021
 
 Kings of Leon - When You See Yourself (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Alternative Rock>
@@ -745,6 +716,35 @@ Beyond The Border - Voyces (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4C046F866E85660039126114DFC56C0F494513B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453179   (1027108) от 10.03.2021
+
+Arc Angel - Arc Angel (1983) Reissue, 1990, Portrait [MP3|320 Kbps] <AOR, Melodic Rock, Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars (05:04)
+02. Tragedy (03:34)
+03. Wanted: Dead or Alive (03:29)
+04. Used to Think I'd Never Fall in Love (03:52)(   Читать дальше...   )Жанр: AOR, Melodic Rock, ProgПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39E46C2A742DDA58D58CE4D3DBD32C3527DC3CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

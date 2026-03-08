@@ -1,3 +1,32 @@
+###  Публикация: 1072015   (351904) от 13.11.2016
+
+VA - Дискотека Пионер ФМ По Русски 6 (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351904.jpg" />
+</div>
+
+
+###  Подробнее
+
+000.Пионер - Promo 0:18
+001.Дискотека Авария - Опа 3:34
+002.Игорек - Очень Надо 3:34
+003.Руки Вверх - Сережа (Pop Mix) 4:06(   Читать дальше...   )Жанр: PopПродолжительность: 06:26:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFF37C9F6E6D2C39A89D9F6D2D20C98111FE4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256721   (351811) от 23.10.2018
 
 VA - Popular 90's & Coolhits! (2018) [MP3|320 Kbps] <Pop>
@@ -725,35 +754,6 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 002 (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC3249E7B68E7290115B8EF2A64D9A9A4C3E87DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180441   (342211) от 03.11.2017
-
-VA - ЕвроХит Топ 40 Europa Plus 03.11.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz feat. James Blunt - OK
-02. J Balvin Ft Willy William - Mi Gente
-03. Zayn Malik feat. Sia - Dusk Till Dawn
-04. AJR - Week(   Читать дальше...   )Жанр: PopПродолжительность: 02:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65926C7E165B266BF42AEA60E93B6193EF827CE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

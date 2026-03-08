@@ -1,3 +1,32 @@
+###  Публикация: 1168022   (412903) от 22.09.2017
+
+Bill Leslie - Diggin' the Chicks (1962) 2004, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Night Irene [05:24]
+02. Angel Eyes [04:51]
+03. Madge [04:35]
+04. Margie [04:30](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88163AF4D39F6759C6D24A352F0AFCB51B352B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168020   (412899) от 22.09.2017
 
 Terry Gibbs - Hootenanny My Way (1963) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -716,35 +745,6 @@ Rita Reys - Hollands Glorie: The Lady Strikes Again (2005) CNR Music [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D91A397D355E26D4F51F955229A1D081659C65D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573567   (410550) от 01.09.2022
-
-Hank Jones - Upon Reflection: The Music Of Thad Jones (1993) Verve [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thad's Pad [7:27]
-02. Ah, Henry [8:12]
-03. The Summary [6:01]
-04. Little Rascal on a Rock [6:22](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BD58B670D64AF1D5FA55963F0F80952CA82D1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

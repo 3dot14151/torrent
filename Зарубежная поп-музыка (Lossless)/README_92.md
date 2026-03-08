@@ -1,3 +1,32 @@
+###  Публикация: 1807985   (65030) от 22.07.2025
+
+Double - Dou3le (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire In Disguise (05:27)
+02. Gliding (05:04)
+03. Lakes In The Desert (04:43)
+04. Circles (05:15)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E49459C9F86AA009C36602FFD67DE53C65A8CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808360   (65010) от 24.07.2025
 
 Selena Gomez & Benny Blanco - I Said I Love You First... And You Said It Back (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
@@ -712,35 +741,6 @@ Dua Lipa - Radical Optimism (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83E01EE3DEED478132B29628516CBF07A95F1BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720302   (57742) от 03.05.2024
-
-Sia - Reasonable Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Wing
-02. Immortal Queen (feat. Chaka Khan)
-03. Dance Alone (feat. Kylie Minogue)
-04. I Had a Heart(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4C36686BE932661C0C7E98C03820B3CD1370B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

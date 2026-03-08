@@ -1,3 +1,32 @@
+###  Публикация: 1229263   (626463) от 06.06.2018
+
+VA - Eamonn Karran - I’ll Be With You (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The River (5:19)
+02. Guiding Light (4:30)
+03. I'll Be With You (4:20)
+04. Morning Light (4:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810B6871D4F8792DF0A872AB45156E0A57AE22E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035549   (626378) от 17.07.2016
 
 Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейцарский нож (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -746,35 +775,6 @@ Wuauquikuna - VII: The Sun Of The Inka's (2016) [FLAC|Lossless|image + .cue] <Na
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2470BD5CD96534ACAA5CE009DDC55EFCFDFA6723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036338   (621078) от 20.07.2016
-
-Patty Loveless - Mountain Soul (2001) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boys Are Back In Town
-02. The Richest Fool Alive
-03. Daniel Prayed
-04. Someone I Used To Know(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A49B19CAC1F32A6FC5167E752529BB56389F548
 ```
 
 https://mybot314.ru/tekegram_catalog/

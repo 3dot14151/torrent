@@ -1,3 +1,32 @@
+###  Публикация: 1336357   (280955) от 06.11.2019
+
+Anthony Wonsey Trio - Anthonyology (1995) [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inception (Tyner) - 5:37
+02. In the Blue of the Evening (D'Artega) - 5:09
+03. Faces of a Clown (Wonsey) - 6:05
+04. Temperance (Kelly) - 5:24(   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED66909FD9CBAE2744B4010981B1503C185D5CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336280   (280943) от 06.11.2019
 
 The Oscar Peterson Trio - Live In Paris 1957-1962 (2017) 3CD, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -716,35 +745,6 @@ Ben Webster - Story 1934-1944 (1996) Jazz Archives [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:211DEF4EE6306590B1AC43082536FA79A3584B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336853   (277597) от 08.11.2019
-
-Greg Marvin - I'll Get By (1991) [FLAC|Lossless|image + .cue] <Hard Bop, Neo-Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ding Dong! The Witch Is Dead (Arlen-Harburg) - 4:53
-02. Our Angel (Marvin) - 9:16
-03. Devil's Dream (Marvin) - 6:52
-04. I'll Get By (As Long as I Have You) (Turk-Ahlert) - 1:54(   Читать дальше...   )Жанр: Hard Bop, Neo-Bop, Post-BopПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC728DB5FF060E346250DF7861F4CD02DE15A76
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1279704   (765463) от 30.01.2019
+
+VA - Sounds Of Instruments_02 (Mixed by Navid Tahernia) (2006) Compilation [FLAC|Lossless|image + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moby - Mullholland (7:53)
+02. Kaliber - A1 (3:47)
+03. Claude VonStroke - Who Is Afraid of Detroit (5:43)
+04. John Tejada - The End of it All (6:25)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C939338493DAEA0A3F08ADC76E03997F8C6D952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279746   (765462) от 30.01.2019
+
+Manet - Dark Side Of The Valley (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Post Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vallée noire (5:36)
+02. Alteriar motive (7:54)
+03. Drenched in red wine (5:51)
+04. No rest for the dead (3:07)(   Читать дальше...   )Жанр: Ambient, Dark Ambient, Dark Jazz, Doom Jazz, Post RockПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5B202AD9249978DA0B38A0E45216E008A06B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279695   (765461) от 30.01.2019
 
 VA - Sounds Of Instruments_01 (Mixed by Hiroshi Watanabe) (2005) Mixed, Compilation [FLAC|Lossless|image + .cue] <Minimal, Tech House>
@@ -684,64 +742,6 @@ Tzolk'in - Discography 4 Releases (2004-2013) Divine Comedy Records, Ant-Zen [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DBBDBFCC9FB2C76D05426CB8B531559AF4630A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521643   (764347) от 03.01.2022
-
-ScAnDroid Experiment's - Tempestas (2021) авторская раздача [MP3|320 Kbps] <Experimental, Lo-Fi, Downtempo>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Search For Silence
-03. Closer To The Abyss
-04. Calm Me Down ... Rain(   Читать дальше...   )Жанр: Experimental, Lo-Fi, DowntempoПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B49AE037E8617FE4C8B93A5F6EF43FEBFF38CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279927   (764312) от 31.01.2019
-
-VA - Goa 2019, Vol.1 (2019) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindwave - A Star We Call Home (Original Mix)
-02. Egorythmia - Anomaly (Electric Feel Remix)
-03. Yoake - Ex-Po Zen (Original Mix)
-04. Flexus & Estefano Haze - Time Spirit (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424D8B7AF6E941C9732A7878047BFC9657526F7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

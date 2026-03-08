@@ -1,3 +1,32 @@
+###  Публикация: 1469393   (1016466) от 12.05.2021
+
+Goat’s Notes - Machine (2020) [FLAC|Lossless|image + .cue] <Free Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Mechanics / Asteroid
+02. Connections
+03. Home Outside / Deep Drilling
+04. Citylights / Dance & Steam(   Читать дальше...   )Жанр: Free Jazz, Free ImprovisationПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4044EBC379D227FF5A7328D98AADD1E23406F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469444   (1016458) от 12.05.2021
 
 Djinn - Transmission (2021) [FLAC|Lossless|WEB-DL|tracks] <Free Jazz, Free Improvisation>
@@ -716,35 +745,6 @@ VA - Smooth Jazz 2021 [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9836D6625D382433A5A260F66F0950F27E268B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473943   (1013404) от 31.05.2021
-
-Ethan Iverson & Umbria Jazz Orchestra - Bud Powell In The 21st Century (2021) Sunnyside Communications, Inc. [FLAC|Lossless|tracks + .cue] <Modern Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bud Powell In The 21st Century, Part 1: Chorale [2:34]
-02. Bud Powell In The 21st Century, Part 2: Continuity [4:14]
-03. Celia [5:10]
-04. Tempus Fugit [5:03](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF62CDFF09CA249C9D488F9C8BCF76AD84784C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

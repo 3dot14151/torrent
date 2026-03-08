@@ -1,3 +1,32 @@
+###  Публикация: 1257810   (343294) от 27.10.2018
+
+Trobar De Morte - Ouroboros (2016) [FLAC|Lossless|tracks + .cue] <Celtic, Darkwave, Neofolk, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summoning the Gods (4:18)
+ 02. Idunn (4:37)
+ 03. The Wolf (3:25)
+ 04. Yggdrasil (4:40)(   Читать дальше...   )Жанр: Celtic, Darkwave, Neofolk, FolkПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF39645EB1C4FD3BBF9394CC175A5F7E93CA284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257826   (343293) от 27.10.2018
 
 Trobar De Morte - Legends Of Blood And Light (2008) Reissue, 2016 [FLAC|Lossless|tracks + .cue] <Modern Classical, Medieval, Neofolk>
@@ -719,35 +748,6 @@ VA - iRelax Anywhere (2006) [FLAC|Lossless|tracks + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:186CF4D04FED117719D7D2917B528C8B80BA8189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258149   (338521) от 29.10.2018
-
-Muzronic Trailer Music - Дискография (2016-2017) 3CD [MP3|320 Kbps] <Soundtrack, Epic Trailer Music, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче:
-The Illume of Life (2016)
-The Saviour (2016)
-Horizon Twilight (2017)Жанр: Soundtrack, Epic Trailer Music, ScoreПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C9D91E742C46A44E33AF98BD5FD762527C2D58
 ```
 
 https://mybot314.ru/tekegram_catalog/

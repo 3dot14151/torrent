@@ -1,3 +1,32 @@
+###  Публикация: 1085958   (154315) от 23.12.2016
+
+Divna Ljubojeviс / Дивна Любоевич & Melodi - In Search Of Divine Light (2014) Valley Entertainment [FLAC|Lossless|image + .cue] <Religious, Choral>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Day Of Resurrection (Anastaseos Hemera) (1:25)
+02. In The Flesh Thou Didst Fall Asleep (The Exapostilarion Of Pasha) (0:57)
+03. Today Salvation Has Come To The World (1:48)
+04. All Of You Who Were Baptized Into Christ (2:56)(   Читать дальше...   )Жанр: Religious, ChoralПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D485F91EC26C3E58A313389B9BE5F58EC84CB4C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270935   (154136) от 21.12.2018
 
 Nino Gurevich - Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
@@ -730,41 +759,6 @@ Yoko Fujita & Keiko Ogura - Stradivarius On Gold CD (2010) [FLAC|Lossless]<Violi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:092E0F9FBFED3CC941C61A69BD84168218057F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586472   (135570) от 22.12.2012
-
-Sviatoslav Richter in Prague [FLAC|Lossless]<Classical, Sonata, Fantasy, Variations, Etude>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: classical, pianoПродолжительность: 01:03:17
-
-Composer: Franz Schubert (1797-1828)
-Composer: Franz Liszt (1811-1886)
-Performer: Sviatoslav Richter - piano
-
-Tracklist:
-Piano Sonata No. 21 in B flat major, D. 960:
-01. Molto moderato    (25:50)
-02. Andante sostenuto    (09:57)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

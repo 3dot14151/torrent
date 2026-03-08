@@ -1,3 +1,61 @@
+###  Публикация: 711807   (987825) от 22.01.2020
+
+VA - I Love Tocata 80's (2012) 2CD [FLAC|Lossless]<Italo-Disco, Hi-NRG, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlanta - Romantic Break [5:06]
+02. Modern Talking - You're My Heart, You're My Soul [5:33]
+03. Spagna - Easy Lady [6:53]
+04. Baltimora - Woody Boogie [5:51](   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Synthpop •Продолжительность: 02:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C923D32420E45E7BD910368EAC9EC449F7A13B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586222   (987770) от 22.01.2020
+
+Dan Balan - Freedom. Part 1 (2012) [FLAC|Lossless]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chica Bomb [3:29]
+02. Freedom [3:33]
+03. 24th Letter [4:23]
+04. Lonely [3:11](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038EC327FB266AC745B4ABF5DE4ACC88135C027E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 719797   (987713) от 22.01.2020
 
 Красные Маки - Звёздный дилижанс (1984) 2013, Студия А [FLAC|Lossless]<Pop, Rock, Retro>
@@ -705,76 +763,6 @@ Anastacia - Two Albums: Not That Kind, Freak Of Nature (2000,2001) [APE|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:502381B0590F7AE52E9DEACDF5DE522463DFD50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165242   (982657) от 10.01.2010
-
-Балаган Лимитед - Танцуют все (2009) [MP3|320 kbps]<Pop/Folk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982657.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мальчик из Нальчика
-2. Яблонька (feat dj Neomaster)
-3. Че ты хошь (feat dj Kirill Clash)
-4. Снег-снежок (feat dj Kirill Clash)
-5. Брошу-полюблю. Дуэт с Алисой Мон
-6. Чтоб тебя (feat dj Kirill Clash)
-7. Елочка (feat dj Kirill Clash)
-8. Канарейка (feat dj Kirill Clash)
-9. Три часа (feat dj NeoMaster)
-10. Сон мой. Дуэт с Органической леди(   Читать дальше...   )Жанр: Pop/FolkПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611944   (982407) от 04.02.2013
-
-Haddaway - 2 Albums (1993,1995)  /BMG Victor,Inc. Japan/ [FLAC|Lossless]<Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Away (4:06)
-02. I Know (4:31)
-03. Breakaway (4:41)
-04. Lover Be Thy Name (3:50)
-05. Waiting For A Better World (4:24)
-06. Give It Up (4:17)
-07. Catch A Fire (4:13)
-08. Desert Prayer (5:53)
-09. The First Cut Is The Deepest (4:25)
-10. Baby Don't Go (3:55)(   Читать дальше...   )Жанр: Eurodance,Europop,Euro-House,BalladПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

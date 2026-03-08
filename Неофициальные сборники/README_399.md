@@ -1,3 +1,189 @@
+###  Публикация: 1054089   (494341) от 19.09.2016
+
+VA - Top Imagination Hot 150 Position (2016) [MP3|320 Kbps] <House, Tech Trance, Bigroom, Progressive, Electro, Bassline, Bounce, Dutch House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494341.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren - Save My Night (Marlo Remix) 5:37
+002. Feel - Bali (Extended Mix) 5:08
+003. W&W & Headhunterz - We Control The Sound (Original Mix) 5:29
+004. Bobina And Kyle Richardson - Love Is the Answer (Digital X Remix) 4:58(   Читать дальше...   )Жанр: House, Tech Trance, Bigroom, Progressive, Electro, Bassline, Bounce, Dutch HouseПродолжительность: 13:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42A502F8BAFFCD76B730E235EB29AC090A708E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936720   (494272) от 12.09.2015
+
+VA - Extra Lounge (episode 11) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank lengo Feat Rose Marriot - 1 Little Bossa (04:44)
+02. Tom Strobe feat. Melosense - Smooth Feelings (05:06)
+03. Mojo Rising - Busted N Dusted (04:34)
+04. Hedjet - Casino Nights (03:41)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A127ADE8B889DC50235D7DE7B2E2AC16B9DF028E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243368   (494103) от 26.08.2018
+
+VA - Dance Club 2018.03 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Profesor - Bella Ciao (Hugel Remix) (2:45)
+02. Axwell /\ Ingrosso, ROMANS, Axel Hedfors, Sebastian Ingrosso - Dancing Alone (4:13)
+03. Jonas Blue, Jack & Jack - Rise (3:12)
+04. Kygo, Imagine Dragons - Born To Be Yours (3:13)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2773E574E016F92C797C15531693622D57F37600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936328   (494027) от 12.09.2015
+
+VA - Smooth Lounge Jazz (2015) [MP3|320 кб/с]<Smooth Lounge, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494027.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ginger Tunes - Blue Gossa
+002. Ginger Tunes - Wave
+003. Ginger Tunes - Liquid
+004. Etta James - At Last(   Читать дальше...   )Жанр: Smooth Lounge, JazzПродолжительность: 06:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92F42318DC02D0249B1D2A18B6C9AB713717AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544000   (494009) от 06.09.2012
+
+VA - Райские Хиты. Зарубежный Выпуск (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494009.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Project & Giulia - I`m crazy in love
+002. Britney Spears - Criminal (Dj Sergey Fisun Bootleg remix)
+003. Jesse Labelle feat. Alyssa Reid - Heartbreak Coverup (Radio Version)
+004. Rico Bernasconi & Beenie Man Feat. Akon - Girls (Max Farenthide Re-Cut)
+005. Mark Ronson & Katy B - Anywhere In The World (Radio Edit)
+006. Frisco Disco feat. Ski - One Way Ticket (Rico Bernasconi Remix)
+007. Inna - W. O. W. (Steve Roberts radio edit remix)
+008. Sandra - Maybe Tonight
+009. Bel Suono & DJ Magic Finger - Te quiero
+010. Bueno Clinic - Sex Appeal (Max Farenthide Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53832EBE63A56EFB3BBCDC9089DF6FF672EA728F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541382   (493409) от 06.09.2012
+
+VA - В Машину! Клубный Мега Хит Осень (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henrik Christensen - New Life (Jorn Van Deynhoven Remix)
+02. DJ Klubbingman feat. Beatrix Delgado - Are You Ready (Original Radio Edit)
+03. Olaf Henning - Dieser DJ ist 'ne Pfeife
+04. Afrojack - Can't Stop Me Now
+05. DJ Fresh feat. Rita Ora - Hot Right Now (Radio Edit)
+06. Avicii - Fade Into Darkness (Instrumental Radio Mix)
+07. 4 Strings feat. Ellie Lawson - Safe From Harm (Original Edit)
+08. Basto! - Gregory's Theme
+09. Knife Party - Bonfire (Original Mix) (zaycev.net)
+10. Dot Rotten - Overload(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 06:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FCB306C03ACE1A051C4168F6272A563FF7EA91C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158284   (493318) от 15.08.2017
 
 VA - 200 Хитов Солнечного Лета (2017) [MP3|256-320 Kbps] <Pop>
@@ -609,180 +795,6 @@ VA - Дискотека VerClub (2017) [MP3|320 Kbps] <Mash Up, Remixed, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA26FAFC95327F90F7FBADC5627319E52743A56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158507   (491261) от 16.08.2017
-
-VA - Зайцев.Нет: Лучшие Новинки Августа (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aly & Fila with Philippe El Sisi & Omar Sherif feat. Karim Youssef - The Chronicles (Extended Mix)  8:34
-02.  P!nk - What About Us  4:32
-03.  Dan Balan feat. Вера Брежнева - Наше лето  3:47
-04.  Альбина - Не со мной  3:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36664B18AF38FAD808AC41B1F78A5BC88FBE7C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404596   (491184) от 26.08.2020
-
-VA - RnB Euronation (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491184.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gashi - Forbes List
-002. Jade - High
-003. Derek Pope - Satellite
-004. Midtown Social - Candle Lit(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F8B4054CFAD7F957BF291DF99F8FE60A609520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318935   (490890) от 08.08.2019
-
-VA - Top50: Tracks Deep House Ver.8 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imany - Slow Down (Yammix Remix Short Edit) 5:28
-02. Armin Van Buuren feat. Sharon Den Adel - In And Out Of Love (Nikko Culture Remix) 5:19
-03. Sean Sago & Linde Sagen - Cloud (Original Mix) 6:00
-04. DJ Nil - I'm A Rainbow (Kapral Remix) 4:35(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive House, Vocal HouseПродолжительность: 04:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F0EC7500F8F9B2B7D5B66E92A1007C2BD540427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318944   (490883) от 08.08.2019
-
-VA - Top50: Tracks Deep House Ver.11 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morandi - Angels (Dmitriy Rs & DJ Cheeful Remix) 5:16
-02. Dani Corbalan - Today (Original Mix) 3:51
-03. Tebra - Suton (Original Mix) 6:35
-04. A-Mase feat. Polina Makarova - Morning (Extended Mix) 5:48(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive HouseПродолжительность: 04:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA77BAE3D1164609799356ADDD7B20B935C5437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318941   (490768) от 08.08.2019
-
-VA - Top50: Tracks Deep House Ver.10 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Platon feat. Joolay - Melt (Dmitry Glushkov Remix) 5:37
-02. TRU Concept feat. Pershard Owens - Save Me (Pirogov Remix) 5:23
-03. Corona - Rythm Of The Night (Kamikarzy & L14M Remix) 6:39
-04. Инфинити - Где ты (Olmega & Skill Remix Radio Edit) 4:08(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive HouseПродолжительность: 04:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F9D288C3447D3E49E396D9834C8ED7C2D815D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565422   (490351) от 25.07.2022
-
-Las Ketchup - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desafina Como Quieras
-02. Kusha Las Payas
-03. Tengo Un Novio Tantriko
-04. Un Blodymary(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC24F1B3989925F6621075CC3117D2673E193EF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

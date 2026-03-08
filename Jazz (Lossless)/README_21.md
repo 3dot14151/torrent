@@ -1,3 +1,32 @@
+###  Публикация: 1353819   (990731) от 19.01.2020
+
+Diana Krall - Wallflower (2015) [FLAC|Lossless]<Vocal Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01   California Dreamin'   (3:17)
+02   Desperado   (3:32)
+03   Superstar   (4:17)
+04.  Alone Again (Naturally) (duet with Michael Buble)   (3:51)(   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80384410894DB223D8F15FA8EA23333A1168E597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354013   (989949) от 20.01.2020
 
 Bud Powell - Autumn Broadcasts 1953 (1993) ESP [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
@@ -748,35 +777,6 @@ Nat King Cole - Jazz Encounters 1945 - 1950 (1992) Capitol Jazz [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEA217727B1AACE23BA5E8EAAEF449B9A7DB83F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355131   (984985) от 25.01.2020
-
-Gerry Mulligan & Thelonious Monk - Mulligan Meets Monk 1957 (2018) Poll Winners Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Round Midnight [8:30]
-02. Rhythm-A-Ning [5:22]
-03. Sweet and Lovely [7:19]
-04. Decidedly [5:55](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD91891B75AEB33388D60BB4B74C9B2C2588609
 ```
 
 https://mybot314.ru/tekegram_catalog/

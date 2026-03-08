@@ -1,32 +1,3 @@
-###  Публикация: 1554480   (577489) от 30.05.2022
-
-Five Finger Death Punch - Afterlife (2022) [MP3|209-221 kbps VBR (V0)] <Alternative Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Welcome to the Circus [00:04:16]
-02 AfterLife [00:04:03]
-03 Times Like These [00:03:29]
-04 Roll Dem Bones [00:03:19](   Читать дальше...   )Жанр: Alternative Metal, Groove MetalПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996D6631F6A4F634C571CD1DE23F2E78AC0F3FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920860   (577457) от 24.07.2015
 
 Julie C Myers - Rock On - Fearless Journey (2015) [MP3|320 кб/с]<Blues Rock, Country rock, Southern Rock>
@@ -775,6 +746,32 @@ V/A - Соль - Наши музыкальные традиции [Часть 2]
 02. Разлука (3:06) (Смысловые Галлюцинации)
 03. Дорогой длинною (3:18) (Кирпичи)
 04. Из-за острова на стрежень (3:57) (Максим Леонидов)(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 223903   (575822) от 02.08.2010
+
+Dire Straits - 123 Albums: 6 Studio, 4 Live, 21 Compilations, 4 EP's & Singles, 79 Bootlegs, 9 Rare (1977-2005)
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic Country RockПродолжительность: 166:23:15
 
 ## Скачать торент
 ```bash

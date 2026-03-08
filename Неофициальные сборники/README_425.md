@@ -1,3 +1,183 @@
+###  Публикация: 1061359   (448869) от 10.10.2016
+
+VA - Звёзды Радио Эфиров Осень (2016) [MP3|256~320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448869.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Макс Барских - Я Люблю Тебя  3:56
+002. Мот - 92 Дня  3:06
+003. Денис Майданов - Что Оставит Ветер  4:17
+004. Natan - Твои Глаза  3:05(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4D8390C0B93FE0802E0470440885A31F93D2EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061513   (448854) от 10.10.2016
+
+VA - Deep House Collection Vol.92 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448854.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.2pac - Changes (Lowderz Remix) (05:15)
+002.20 Fingers - Short Dick Man (Dima Flash Remix) (04:46)
+003.Aathee - The Rise (Original Mix) (06:24)
+004.Adam Foster Ft. Daniela - Don't Give It Up (Astero Remix) (04:42)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C4F5FE18A3C273C990065E3D431E9670F772C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552468   (448751) от 26.09.2012
+
+VA - Хит Парад Танцевальной Музыки Русский (2012) [MP3|256 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Джиган - Нас больше нет (Michael Yousher Remix)
+02. Настя Любимова и DJ Haipa - Чужая я (Radio Edit)
+03. Илья Зудин feat. DJ U-Rich - Точки (DJ Hitretz Remix)
+04. Ева Польна - Я тебя тоже нет (Je T'aime) (DJ Smash ChinKong Remix)
+05. Иван Дорн - Стыцамэн (Danny Rockin & Dj Sedate Radio Mix)
+06. Вера Брежнева - Ищу Тебя (DJ Smile Extended Mix)
+07. DJ DreamTim feat. Ed-One & Elly Wel - Опа (Radio Edit)
+08. Алексей Воробьев - За твою любовь (Hitretz and Sergei Karpov Remix)
+09. Артур Пирожков - Красивая Песня (DJ Favorite & DJ Kristina Mailana Summer Radio Edit)
+10. Кирилл Андреев - Кофе С Ромом (DJ Arhipoff Original Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB8C26FBEB1D3DA085B67F76F74D4580232457C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247919   (448659) от 17.09.2018
+
+VA - Electro House Pool Party (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448659.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Basement jaxx - Fly life
+002. Eastpack - Bring the house down
+003. Kerze - Santa
+004. Stone & van linden - Summerbreeze(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC63A74CFCAE2D6F9C5999F93804CB5212B2BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163693   (448561) от 06.09.2017
+
+VA - Empire Records: 100% Goa (2017) [MP3|320 Kbps] <Trance, Psy-Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ace Ventura - Pranava (Ranji & Mind Spin Remix)  7:38
+02.  Shinovi - Indian Summer  3:03
+03.  Andrew Rayel - Tacadum  3:18
+04.  ReOrder & Driftmoon - #Slovakboys  3:16(   Читать дальше...   )Жанр: Trance, Psy-TranceПродолжительность: 03:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B1E2886F63CC300204E724B85E4BBECEF40120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061249   (448521) от 10.10.2016
+
+VA - Workout Mix vol.6 (mixed by Dj V) (2016) [MP3|320 Kbps] <Club House, Electro House, Progressive House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-DJ Favorite & DJ Lykov - Rock It
+ 02-MC Doni ft. Kristina Si  - Султан (CHIPPON Remix)
+ 03-Dillon Francis & DJ Snake vs. Zuma & Alexx Slam - Get Low (Mickey Light Mash)
+ 04-Party Favor Feat. Toy Connor vs DJ Amice - Sweat (Mikis Mash Up)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive House, TrapПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA242123674E80F184266DCE7F32F886A69F869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061511   (448512) от 10.10.2016
 
 VA - Сто хитов на Hit FM. Русский сборник (2016) [MP3|256 Kbps] <Pop>
@@ -610,180 +790,6 @@ VA - Клубная Супер Дискотека Vol.2 (2015) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:196F0C7DCF6BD18465AC1F81D83BF5CD0724DDE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943629   (447114) от 04.10.2015
-
-Al Bano & Romina Power - Good Songs (2015) [MP3|128 кб/с]<Italo pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Al Bano & Romina Power
-001. A Miracle
-002. Abbandonati
-003. Abbi Fede(   Читать дальше...   )Жанр: Italo popПродолжительность: 12:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2275A9EC4DD3E0D8E3237AA2CAAEFBA9060D1A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943564   (447108) от 04.10.2015
-
-VA - Попсовая соточка MTV. Сборник 8 (2015) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447108.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Денис Клявер - Герой
-002. David Guetta & Sam Martin - Lovers On The Sun
-003. Дина Гарипова - Сумерки
-004. Felix Jaehn Feat. Jasmine Thompson - Aint Nobody(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323B574E4981B75ADBCF977EEF9D4C59103BB2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569691   (447086) от 15.08.2022
-
-Texas - Compilation (2022) [MP3|320 Kbps] <Pop, Pop - Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night for Day
-02. Fight the Feeling
-03. Breathless
-04. Can't Resist(   Читать дальше...   )Жанр: Pop, Pop - RockПродолжительность: 03:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525F35D94DAEE7BC4BE58D22B9323835B0C5E42E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943550   (447021) от 04.10.2015
-
-Ricchi E Poveri - Good Songs (2015) [MP3|320 кб/с]<Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acapulco
-02. Alla Faccia Di Belzebu
-03. Amare, Ricominciare, No No No
-04. Amarti Un Po'(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21057101095AB5B1C5CD12B8F05AE284F646C30A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569809   (446993) от 15.08.2022
-
-VA - Music For You vol. 23 (2022) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rush - 2112 Overture The Temples Of Syrinx Discovery Presentation Oracle The Dream ... (20:32)
- 02. King Crimson - Starless (12:31)
- 03. Jethro Tull - Thick as a Brick (Edit #1) (2001 Remaster) (03:03)
- 04. Yes - Awaken (2003 Remaster) (15:31)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 03:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B785ED36A503A3CDBCE394AACEE95EF65E73883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569988   (446992) от 15.08.2022
-
-VA - Music News vol.209 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446992.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alice Harp - Ничего Не Говори (02:51)
- 002. 2+2 - Только Ты (Maximove Album Mix) (04:59)
- 003. Aarne feat. Big Baby Tape - Ski Ski (02:56)
- 004. Aarne feat. Feduk - Перепонки (02:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171A6934F977D1A359E219263C2EA57A8AC34157
 ```
 
 https://mybot314.ru/tekegram_catalog/

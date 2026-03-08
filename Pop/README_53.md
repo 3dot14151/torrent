@@ -1,3 +1,61 @@
+###  Публикация: 1493486   (895379) от 03.09.2021
+
+VA - Best Radio Tracks, Vol. 22 (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895379.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Imanbek/Sean Paul/Sofia Reyes - Dancing On Dangerous
+2. Rompasso - Tesla
+3. Alan Walker/Imanbek - Sweet Dreams
+4. Slider & Magnit - Down Low(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0DF29C2FE4E7B592872108CAD40F54C0422B5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493479   (895374) от 03.09.2021
+
+Lady Gaga - Dawn Of Chromatica (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Dance-pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice (LSDXOXO Remix) (Feat. LSDXOXO) 2:40
+02. Stupid Love (COUCOU CHLOE Remix) (Feat. Coucou Chloe) 2:37
+03. Rain On Me (Arca Remix) (Feat. Ariana Grande, Arca) 4:23
+04. Free Woman (Rina Sawayama & Clarence Clarity Remix) (Feat. Rina Sawayama, Clarence Clarity) 3:54(   Читать дальше...   )Жанр: Pop, Electro, Dance-pop, HouseПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF46639835DA925FF5539576442D53952FF5DAB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993601   (895373) от 05.03.2016
 
 Joy - Best (1986) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco>
@@ -686,64 +744,6 @@ Gen X (Generation X) - Kiss Me Deadly (1981) Reissue, 2005, EMI [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F58A6936617EDA7A51BEC9D89224D74947CA1D64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994277   (891546) от 07.03.2016
-
-VA - Die Hit-Giganten - Partyklassiker (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, House, Pop Rap>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvis vs. JXL - A Little Less Conversation (JXL radio edit remix) (3:33)
-02.Madness - Our House (3:22)
-03.The Clash - Should I Stay or Should I Go (3:09)
-04.Cyndi Lauper - Girls Just Want to Have Fun (3:47)(   Читать дальше...   )Жанр: Pop Rock, House, Pop Rap, Schlager, Disco, Synth-pop, Classic RockПродолжительность: 02:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8523C05AC6F6481588921C2CFB58874EF9CDC953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994372   (891442) от 07.03.2016
-
-Eighth Wonder - Fearless (1988) Reissue, 2010, Cherry Pop [FLAC|Lossless|image + .cue] <Pop, Dance Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cross My Heart
-02. When The Phone Stops Ringing
-03. Baby Baby
-04. Will You Remember?(   Читать дальше...   )Жанр: Pop, Dance PopПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2EE78715831661BDBF62BE14F1DFB114FD9B633
 ```
 
 https://mybot314.ru/tekegram_catalog/

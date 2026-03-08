@@ -1,3 +1,61 @@
+###  Публикация: 1272045   (147367) от 25.12.2018
+
+VA - Space Holidays Vol. 10 (2018) 3CD [MP3|320 Kbps] <Spacesynth, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NM - Interstellar Discovery (4:06)
+02. SynthOne - Electric Legend (5:39)
+03. Rama - Organix (5:13)
+04. Galaxy Hunter - Space Ship Two (One) (Instrumental) (5:35)(   Читать дальше...   )Жанр: Spacesynth, Synth-popПродолжительность: 02:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCE7F4F6A86F82C450CD4E9EB00A23AFFB405A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519790   (147182) от 25.12.2021
+
+VA - Anjunadeep. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lakou Mizik – Ogou (Pran Ka Mwen) (Mixed) (04:32)
+02. Il:lo – Meliadi (Mixed) (02:38)
+03. lycoriscoris – Shizumu (Mixed) (06:48)
+04. Qrion – Your Love (Mixed) (04:36)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F33320B699BBC9E4DA5347BDDAEB9E08F86FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272029   (147039) от 25.12.2018
 
 Morcheeba - The Best Of Morcheeba 1995-2003 (2011) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Trip-Hop, Downtempo>
@@ -693,64 +751,6 @@ VA - Fines de Semana Perezosos (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BDBD30FEE92869EFA76B0710132FE02DF83A7D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519873   (145742) от 26.12.2021
-
-Rencontre Nocturne - Recap 2021 (2021) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axwell, Ingrosso, Angello, Laidback Luke feat. Deborah Cox - Leave The World Behind w/Axwell - Nobody Else
-02. Alesso - TOGETHER w/Alesso feat. Roy English - Cool (Acapella)
-03. Sisters Cap & Almero - Get Enough w/iiO feat. Nadia Ali - Rapture (Acapella)
-04. Alesso - TIME (Alesso & Deniz Koyu Remix) w/Post Malone feat. Young Thug - Goodbyes (Acapella) (   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76EEA687E197A6880112B0BBDCE05B1C3BB0724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272099   (145733) от 26.12.2018
-
-BELLATRIX - I Love KOTO - Covers and Remixes (2018) [MP3|320 Kbps] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acknowledge
-02. Chinese Revenge
-03. Dragon's Legend
-04. Jabdah(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C7E41C6A9C25AF537CE34F8D2213DED283F529
 ```
 
 https://mybot314.ru/tekegram_catalog/

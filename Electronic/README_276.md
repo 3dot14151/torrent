@@ -1,3 +1,61 @@
+###  Публикация: 1053455   (526036) от 17.09.2016
+
+VA - 10 Years Diynamic (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Mnml>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kollektiv Turmstrasse - Jupiter Sunrise
+02. Adriatique - Jekaterinburg
+03. Solomun - Let It Out (feat Liu Bei)
+04. Johannes Brecht - 2nd Movement(   Читать дальше...   )Жанр: Tech House, Deep House, MnmlПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84BB2DD6654ED67B5CBA9F870C5B3A907D2A486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157102   (525879) от 10.08.2017
+
+VA - Fresh Moods Present Ambience Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo-Fi>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  BK Duke feat. Axel B. - Did You Know (Ibiza Chillout Mix)  5:31
+02.  York & Wadadli Acoustics - Nothing Is Over  4:49
+03.  Don Gorda Project - Uma Alegria Contagiante  6:12
+04.  PNFA - Color Dust  6:19(   Читать дальше...   )Жанр: Downtempo, Chillout, Lo-FiПродолжительность: 02:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF25FAF43BD84AB0C166207A414DC937C704F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157353   (525536) от 11.08.2017
 
 VA - Vocal Anthems Ibiza (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -683,64 +741,6 @@ Miles Whittaker (Miles, Millie, MLZ, Suum Cuique) - Discography 13 Releases (200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2A78D4BECA9216572BCDF4FEDFF4CF7162CBBBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230889   (523585) от 13.08.2018
-
-Leon Vynehall - Nothing Is Still (2018) Ninja Tune [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Sea/It Looms (Chapters I & II) (06:19)
- 02. Movements (Chapter III) (03:52)
- 03. Birds On The Tarmac (Footnote III) (01:18)
- 04. Julia (Footnote IV) (02:26)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B27B4E6B4D47EAE5648C35DD6472117B64C5AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240754   (523580) от 13.08.2018
-
-ScAnDroid Experiment's - From Everything (2018) [MP3|320 Kbps] <Experimental Electronic, Downtempo, Easy Melody>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Infinite Uncertainty (Original Mix)
-03. A Leisurely Walk (Original Mix)
-04. Restless Sleep (Original Mix)(   Читать дальше...   )Жанр: Experimental Electronic, Downtempo, Easy MelodyПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5440C99A70486320AEDF534FC537F8B25700E437
 ```
 
 https://mybot314.ru/tekegram_catalog/

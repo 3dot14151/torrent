@@ -1,3 +1,61 @@
+###  Публикация: 936465   (495651) от 11.09.2015
+
+Infected Mushroom - Converting Vegetarians II (2015) [MP3|320 кб/с]<Psychedelic, Psy-Trance, Dubstep>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Zoremet
+02. Yamakas in Space
+03. Sense of Direction
+04. Animatronica(   Читать дальше...   )Жанр: Psychedelic, Psy-Trance, DubstepПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D240595C785E2FC4C7BF107B339B5874476177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243020   (495572) от 25.08.2018
+
+VA - Progressive Creators (2018) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryuku Underground - Seragaki (Junkie Xl Remix) 11:20
+02. Nick Catano - Euphoria (Original Mix) 7:49
+03. Gerardo Boscarino - Numb (Original Mix) 7:16
+04. Heads Down Music - Turned Out (Original Mix) 7:52(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90AB4A6948E675D1501905702F02E909B8D07D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 58780   (495467) от 25.08.2018
 
 Vangelis - Blade Runner Trilogy 25th Anniversary (1994) (CD2) [FLAC|Lossless]<Ambient>
@@ -689,64 +747,6 @@ Art-Tek Records - Label-Pack 9 Releases (1997-2006) [FLAC|Lossless|tracks+.cue, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:366A8DFC608CCBB76EF83AF82B0F9AC193D41A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203008   (491108) от 26.08.2020
-
-Enabl.ed - Discography 15 Releases (2010-2020) CleanError Records, M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infantil (02:20)
- 02. Delicate Memory (03:43)
- 03. Last Taste (02:31)
- 04. wearegrateful (03:53)(   Читать дальше...   )Тип издания: WEB •Жанр: IDM, Glitch, Abstract •Продолжительность: 08:34:11 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE0F31C610FE1C798D4B6FA45F2C4B1C846D264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318351   (490988) от 08.08.2019
-
-A Hundred Birds - In The Sky (2005) [MP3|320 Kbps] <Ambient, Leftfield>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hundred Birds feat. TeN - Sweet Lullaby (5:56)
-02. A Hundred Birds feat. TeN - In The Sky (5:22)
-03. A Hundred Birds - Batonga Beautiful (7:03)
-04. A Hundred Birds - Jaguar (6:59)(   Читать дальше...   )Жанр: Ambient, LeftfieldПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B37155B892A63A9D65660C096DCE168E6163DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

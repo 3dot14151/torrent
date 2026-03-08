@@ -1,3 +1,32 @@
+###  Публикация: 1332778   (311690) от 21.10.2019
+
+Piano Novel - Fendre l'ecorce (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Miscellaneous, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fendre l'écorce (3:23)
+ 02. Sous l'ondée (1:37)
+ 03. Rêv'ment (3:16)
+ 04. Les ricochets (3:33)(   Читать дальше...   )Жанр: Modern Classical, Miscellaneous, PianoПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C872E5EC3A85C6829849F87FBDD1DA9B7B507D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332660   (311002) от 21.10.2019
 
 Florian Christl - Inspiration (2018) Sony Classical [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
@@ -741,35 +770,6 @@ Part II: No. 25. Accompagnato (Tenor) 'All they that see Him' (0:41)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F682E4925E8805D25256F4B97F9FF13933ADD2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078000   (302406) от 30.11.2016
-
-Johann Sebastian Bach MUnchener Bach-Chor, Munchener Bach-Orchester, Karl Richter - Weihnachtsoratorium - Arien und Chore (1965) 1994 Deutshe Grammophon [FLAC|Lossless|im
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chor: 'Jauchzet, frohlocket!'"
- 02. Arie (Alt)- ''Bereite dich, Zion, mit zartlichen Trieben''
- 03. Choral- ''Er ist auf Erden kommen arm'' , Rezitativ (Bass)- ''Wer kann die Liebe recht erhohn''
- 04. Arie (Bass)- ''Gro.er Herr und starker Konig''(   Читать дальше...   )Жанр: Christmas OratorioПродолжительность: 01:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42DCF56B36B9AA03565BC8F6A5255A7F6629C73
 ```
 
 https://mybot314.ru/tekegram_catalog/

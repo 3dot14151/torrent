@@ -1,32 +1,3 @@
-###  Публикация: 1613626   (1039383) от 19.02.2023
-
-Sonic Bong - 3 Albums (2017-2023) [MP3|320 Kbps] <Stoner, Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2017 - DEMO
-2017 - SMOKE WEED FUCK JESUS
-2023 - Sonic BongЖанр: Stoner, Sludge, Doom MetalПродолжительность: 3 CD, 01:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA1F184C526EA677D0D1875E49833AEE97BDC08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613549   (1039382) от 19.02.2023
 
 YqpY - Near (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Electronic>
@@ -746,6 +717,35 @@ The Legendary - Warlord (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9213E0A0676E34FC8FA1F9C4C477913BBE8ED59C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613847   (1039127) от 20.02.2023
+
+Blond Viper - Boom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tear The House Down (00:04:30)
+02 - Go (00:04:45)
+03 - Secret Box (00:04:49)
+04 - Time For Love (00:04:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D50139791F013F16CCFBA0A1C22A5A911450EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

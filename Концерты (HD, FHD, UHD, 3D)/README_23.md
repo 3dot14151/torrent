@@ -1,3 +1,29 @@
+###  Публикация: 1314973   (516056) от 17.07.2019
+
+Славянский базар в Витебске. Церемония закрытия фестиваля (15.07.2019) HDTVRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516056.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ночь на 16 июля в витебском Летнем амфитеатре торжественно закрыли «Славянский базар — 2019». Гала-концерт собрал на одной сцене артистов из Беларуси, России, Украины, Молдовы, Италии, Швеции. Самой звездной гостьей стала София Ротару — певица уже давно не была на «базаре» и подарила витебским зрителям новую песню.Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4118D5151B529C3568715796864831A51B185E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930195   (516008) от 22.08.2015
 
 Iron Maiden - Flight 666 (2009) BDRip [H.264/1080p]
@@ -713,35 +739,6 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BC94FCD54FD44FA7EC8800B580312FE97023103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936944   (492231) от 13.09.2015
-
-The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
-02. When The Whip Comes Down
-03. Let s Spend The Night Together
-04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichАктеры: Mick Jagger (vocals, guitar), Keith Richards (guitars, vocals), Ronnie Wood (guitars, backing vocals), Bill Wyman (bass guitar), Charlie Watts (drums), Ian Stewart (piano), Ian McLagan (keyboards, backing vocals), Ernie Watts, Boby Keys (saxophone)Продолжительность: 02:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D8C88305F7B049FB5F8F53F98134D8C55A5E3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

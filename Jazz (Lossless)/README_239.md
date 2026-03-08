@@ -1,3 +1,32 @@
+###  Публикация: 1624258   (245277) от 05.04.2023
+
+The Mills Brothers - BD Voices (1931 - 1955) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan [2:43]
+02. My Walking Stick [2:43]
+03. Funiculi, Funicula [2:30]
+04. Jeepers Creepers [2:34](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0B3E3A037B16A870C324C60FF8B94A5071340D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063371   (245252) от 16.10.2016
 
 Duke Ellington & His Famous Orchestra - Happy-Go-Lucky Local (1946) 1992, Musicraft[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -715,35 +744,6 @@ Peter Erskine - Dr. Um (2016) Fuzzy Music [FLAC|Lossless|tracks + .cue] <Jazz Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9602C1B1C3BC1101A96B79C1B4C41138B455C239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069826   (244618) от 05.11.2016
-
-Mal Waldron - Up Popped the Devil (1973) 2003, Enja Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Up Popped the Devil [10:26]
- 02.Space Walk [12:29]
- 03.Snake Out [11:03]
- 04.Changachangachanga [13:33]Жанр: Hard Bop, Post-BopПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA425215938F64B594C2EBB36555ADBB9FB9EFBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

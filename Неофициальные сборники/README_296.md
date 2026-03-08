@@ -1,3 +1,183 @@
+###  Публикация: 1031977   (647642) от 06.07.2016
+
+VA - Жаркие танцы. Летние хиты (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алеся Жинь & Сергей Смирный - Уже Не Важно
+02. Star Pilots - Only For Tonight
+03. Виа Гра - Так Сильно
+04. Дмитрий Фомин - Паровозик(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C521464D3E03EA58BB285BA89E30F7A193BCFC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032078   (647640) от 06.07.2016
+
+VA - Реальные Песни В Крутую Тачку (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647640.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дмитрий Кубасов - Не Вернуть
+2. Юрий Сандик - Ты Придумала Счастье
+3. Сергей Куренков - Я Хочу Побыть С Тобой
+4. Слава Прибрежный - Я Нарисую Вам Мир(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E42E478B860DDA1B17832655709F43C045A60AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517503   (647625) от 01.07.2012
+
+VA - Радио Energy - NRJ HOT30 (30.06.2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BEL SUONO  Dj Magic Finger - Te Quiero 2012
+02. Michel Telo - Ai Se Eu Te Pego
+03. Flo Rida - Whistle
+04. DJ Bobo - Everybody's Gonna Dance (Bryce rmx)
+05. Michael Mind Project feat. Bobby Anthony amp Rozette - Rio De Janeiro
+06. Chris Garcia feat. Sherry - I rock alone
+07. Oceana - Endless Summer (Bodybangers rmx)
+08. Far East Movement - Lights Out (Go Crazy) (Feat. Junior Caldera  Natalia Kills)
+09. Global Deejays - Hardcore Vibes (Original Mix)
+10. Example - Changed the way you kiss me (Mike Candys rmx)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2681240A9022783E03061C223CFA3BDABD93FBA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905925   (647545) от 07.06.2015
+
+Альберт Артемьев - Planet-X (2015) [MP3|320 кб/с]<New Age, Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Планета-X
+02 - В поясе Койпера
+03 - Свет у горизонта
+04 - Облако Оорта(   Читать дальше...   )Жанр: New Age, Chillout, Lounge, DowntempoПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE581E59081DDACCF51C79F6A3677A0E7B63E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906037   (647544) от 07.06.2015
+
+VA - Vocal Trance Seduction Vol 2 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Tyas - Lose My Logic (Thomas Heredia Edit) (04:03)
+02. Tom Colontonio featuring Amber Noel - See the Light (07:02)
+03. Roman Messer & Sarah Shields - A Light Inside (ReOrder Remix) (06:22)
+04. Nico Otten ft. Crystal Blakk - Breathe (Six Senses pres. Factor Six Remix) (08:30)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36CBCD8110D9484FE58C99975F052EB1EC8D3EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905920   (647542) от 07.06.2015
+
+VA - Beatport Top 100 June (2015) [MP3|320 кб/с]<House, Tech House, Deep House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enzo Siffredi - Sometimes
+02. Kollektiv Turmstrasse - Sorry I Am Late
+03. Sonny Fodera, Cervendos, Lauren Faith - High
+04. Yolanda Be Cool, DCUP - Soul Makossa (Money) (Club Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electro House, Progressive HouseПродолжительность: 09:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B5818BAD159BDE698068DEDC129B43A2D2C6E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032047   (647498) от 06.07.2016
 
 VA - Radio Record TOP 33 — июнь (4) (2016) [MP3|320 Kbps] <Pop>
@@ -583,180 +763,6 @@ VA - не Громкие новинки недели 7 (2019) [MP3|320 Kbps] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B871DC9AAA5DD5AF3DAA97424D6CADAF7DF3D8C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292292   (646800) от 29.03.2019
-
-VA - Ragga Jungle (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Jungle>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646800.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stephan Warren - Drum Rass Riddim
-002. Funky Kingston Feat. Pispalan Rini - Vonkale
-003. Morgan Heritage - Revolution Is A Must In Dub
-004. Nature Makonnen - Rastafari Children(   Читать дальше...   )Жанр: Reggae, Dub Ska, JungleПродолжительность: 09:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F836469E5D26514CB296CA447225B188D547EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227474   (646697) от 26.05.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 25.05.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jax Jones - Breathe (Ina Wroldsen)
-02. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
-03. Dynoro feat. Gigi D'Agostino - In My Mind
-04. Consoul Trainin feat. Steven Aderinto & DuoViolins - Obsession(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057AC6D86344A5694485E71722C2683428FF299F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292004   (646672) от 29.03.2019
-
-VA - Legendary Songs 80s (2019) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646672.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Gеt Hеr - Jараnеsе Girl
-002. Avаlаnсhе - Whееl Of Fоrtunе
-003. 4-Yоu - Shаng-Hаiеd
-004. Zеnеr - Nеw Gеnеrаtiоn(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 10 :27 :11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0D7BF988200E7A58684454033C48B262B8CF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292022   (646669) от 29.03.2019
-
-VA - Coming Back To You (2019) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZZ Top - Blue Jean Blues
-02. T. Rex - Lean Woman Blues
-03. Jimi Hendrix - Electric Church Red House
-04. Fleetwood Mac - Just The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:231AA0023F046136B2EE9ED414A06812D2A16FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541154   (646659) от 02.04.2022
-
-VA - Metal Track: Hard Musical Collection (2022) [MP3|320 Kbps] <Metal, Hardcore, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специально для ценителей "серьёзной" музыки - самые лучшие зарубежные композиции в стиле жёсткого металла и хардкора в свежем сборнике под названием "Metal Track: Hard Musical Collection". Композиции принесут слушающему очень разнообразную палитру эмоций и настроений, но однозначно никого не оставят безразличным.001. Cutters - Asphalt City
-002. The Flight Of Sleipnir - Voland
-003. Thaeia - Osservati
-004. Mannveira - Framtíðin Myrt(   Читать дальше...   )Жанр: Metal, Hardcore, Hard RockПродолжительность: 09:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13196854E58CEE295824E44A24CAE040D5D7EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541114   (646654) от 02.04.2022
-
-VA - Chill Hits (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646654.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tinlicker, Helsloot - Because You Move Me (3:27)
-002. MAFQEES - Sorry (2:42)
-003. Jules Kyng - You're Still The One (2:34)
-004. Able Faces - 3AM (2:32)(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D07E08DBA0853BA32FEB5E20A9B1D77F243F3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

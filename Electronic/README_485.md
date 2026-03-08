@@ -1,3 +1,61 @@
+###  Публикация: 1738871   (106191) от 25.07.2024
+
+VA - Sunrise Sessions Vol. 1 - Mixed by Robilardo (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ALMA (GER) - What's That Called Again (Extended Mix) [8:27]
+02. Koelle & Paul Brenning - Dark Knight Of The Soul (Extended Mix) [6:48]
+03. Morgin Madison & Meeting Molly - Pomegranate (Extended Mix) [6:10]
+04. Jerome Isma-Ae - Baharat (Extended Mix) [7:19](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 02:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDBA154868BE3BA16C9BF6981285691F109446A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739079   (106186) от 26.07.2024
+
+VA - Balatonica Chillout: Summer Edition 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incognita Alma - Mahe (Original Mix) [5:05]
+02. Gary B - Rainy Day In The City (Original Mix) [1:52]
+03. Supira - Beautiful You (Original Mix) [5:04]
+04. Beamy - Still Waters (Original Mix) [4:26](   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E43FE8B5E5060CD8D8397AD3819A6F0F136B949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739110   (106170) от 26.07.2024
 
 VA - Top Summer Uplifting 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -684,64 +742,6 @@ VA - Electronica Confessions, Vol. 5 (2014) [MP3|320 Kbps] <Electro, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1E5BC6DE2C8ACF1A1EE257B72C1C1F91E40CC62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740483   (105819) от 02.08.2024
-
-VA - Burning Mountain - Secret Garden Session (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaron Khaleian & Ambient Pino - Gobi (Original Mix) [6:24]
-02. Ambient Pino & Alok (IBZ) - Meu Grande Amor (Original Mix) [6:01]
-03. Aaron Suiss & Marcus Meinhardt - 2gether (Original Mix) [7:17]
-04. Umloud - Skyline (Original Mix) [8:01](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D73FD01801E4AFF78BBB1AF2F0C7E4AD87B9161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740695   (105810) от 03.08.2024
-
-VA - IBIZA SUMMER 2024 - Best Electronic Music [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105810.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nerutto  - Aquarius (Antua Hale Remix)(6:19)
-002. Mike Suntower - Absolute Zero (Arouse Dreams Remix) (4:56)
-003. Sub Chunk - Give Me A Minute (Original Mix) (6:34)
-004. 5udo - Subaru (Original Mix) (7:44)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C584C9277B9BE88C250614399ACA1F6B24DEB76
 ```
 
 https://mybot314.ru/tekegram_catalog/

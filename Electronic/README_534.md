@@ -1,3 +1,61 @@
+###  Публикация: 1775016   (29904) от 24.01.2025
+
+VA - Deep-House Hunters, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris le Blanc, Roberto Sol, Karmaloft & Rana - Labyrinth of Life (Christos Fourkis Remix Extended) (07:20)
+02. Living Room - Strand (04:29)
+03. Eiaua - Play The Beat (02:44)
+04. Dark Tunnes - Soul Rising (06:10)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982F7C9E0A46BDA5D7053A166E070169A7D27F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774981   (29903) от 24.01.2025
+
+VA - Armin van Buuren - A State Of Trance 1209 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Corsten – Punk (ID Remix)
+02. Giuseppe Ottaviani pres. Ottagon – Find You
+03. MRPHLNDR – Rave
+04. NUMJA & Soultrain & Howe – We Go (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65E97CE93DE7829C3721BD659F07D89AC82EBE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775024   (29895) от 24.01.2025
 
 VA - Winter Vibes DeepHouse & Nu Disco 2024 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -687,64 +745,6 @@ Kraftwerk - At The Cirkus (2004) Remastered, 2025, LEFTFIELD MEDIA [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC5993BAF843CEDDC530615BDAC80A376DF038C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782596   (26033) от 01.03.2025
-
-VA - Club Charts Top 100 - Winter Edition 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26033.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Plastik Funk - Everybody Up (3:26)
-002. SvenDeeKay - Down (2:41)
-003. Brooklyn Bounce - Love & Bass (The Official Anthem of Loco Beach) (2:30)
-004. The Teachers - Calling for Me (3:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0291BAC0B143E417C7FBC31FFBA20F078DC85CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783091   (25830) от 03.03.2025
-
-VA - Trance Top 100, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25830.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rene Ablaze - Red Sea 2030 (Original Mix) (6:52)
-002. Christopher Corrigan - Delectation (Original Mix) (3:26)
-003. Carl Daylim - Hand in Hand (Original Mix) (3:19)
-004. Daniel Cesana - Phoenix (Original Mix) (3:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB98FB780F10AADA2B7AD7CE3F0AFDB4215D8278
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 952316   (356056) от 01.11.2015
+
+The Enemy - It's Automatic (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock, Indie Rock, Britpop, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let Nothing Get In The Way (4:41)
+02. It's Automatic (3:09)
+03. To The Waterfall (4:22)
+04. Everybody Needs Someone (3:45)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Britpop, Pop RockПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD49FA861D81D8F5D46AA6D7AC54561EDA20917D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952469   (355450) от 01.11.2015
 
 Brutto - Родны Край (2015) [FLAC|image+.cue]<Punk Rock, Alternative rock>
@@ -714,35 +743,6 @@ Less Than Jake - Pezcore (1995) 2008, Reissue [FLAC|Lossless|tracks + .cue] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A32C4C8721A69C03816A66E131A0240CDD046907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330382   (341393) от 10.10.2019
-
-Elbow - Giants of All Sizes (2019) [FLAC|Lossless|tracks] <Britpop, Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dexter & Sinister (06:59)
-02. Seven Veils (04:35)
-03. Empires (03:59)
-04. The Delayed 3:15 (03:25)(   Читать дальше...   )Жанр: Britpop, Alternative Rock, Indie RockПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5804C3FA6992D982E644FEF31A49D1602EDE59
 ```
 
 https://mybot314.ru/tekegram_catalog/

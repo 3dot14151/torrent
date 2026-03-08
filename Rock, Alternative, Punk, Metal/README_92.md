@@ -1,32 +1,3 @@
-###  Публикация: 1461700   (1021623) от 11.04.2021
-
-Sons Of Angels - Sons Of Angels (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cowgirl
-02. Spend The Night
-03. Look Out For Love
-04. Lonely Rose(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D15C560E9FDD55EA6E0B24974913BA79908E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461840   (1021546) от 11.04.2021
 
 Def Leppard - Leppard on the Loose (2021) EP [MP3|320 Kbps] <Hard Rock>
@@ -744,6 +715,35 @@ Guano Apes - Walking On A Thin Line (2003) [FLAC|Lossless|tracks + .cue] <Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:809E48ADB86A1270CF048172A9F42EF3FDF96A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462464   (1021034) от 15.04.2021
+
+Guano Apes - Lost (T)Apes (2006) B-Side, Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Song (2:30)
+02. Hanoi (2:08)
+03. Maria (3:11)
+04. Diokhan (2:43)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B81493C35360189B4C692F1F8696EBEE544E780
 ```
 
 https://mybot314.ru/tekegram_catalog/

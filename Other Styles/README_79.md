@@ -1,3 +1,32 @@
+###  Публикация: 1034115   (630510) от 15.07.2016
+
+Douglas Spotted Eagle - Voices (1999) [MP3|320 Kbps] <Native American, Folk, World>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dance    06:04
+02.  Voices    06:18
+03.  My Little One    02:12
+04.  Closer to Heaven    04:41(   Читать дальше...   )Жанр: Native American, Folk, WorldПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BF6758CEE50B14BCB1C099842CF16A21D9DEF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294323   (630095) от 07.04.2019
 
 Angela Little - Chocolate Oyster (2018) OST [MP3|320 Kbps] <Easy Listening, Progressive Jazz, Acoustic>
@@ -731,35 +760,6 @@ VA - Ghostbusters / Охотники за привидениями (Original Mot
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B9B484F3153D607621C42170ED31F045DE46021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229263   (626463) от 06.06.2018
-
-VA - Eamonn Karran - I’ll Be With You (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The River (5:19)
-02. Guiding Light (4:30)
-03. I'll Be With You (4:20)
-04. Morning Light (4:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810B6871D4F8792DF0A872AB45156E0A57AE22E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

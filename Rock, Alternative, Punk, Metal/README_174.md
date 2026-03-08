@@ -1,32 +1,3 @@
-###  Публикация: 1365892   (927129) от 09.03.2020
-
-Kamelot - The Black Halo (2005) [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - March of Mephisto
-02 - When the Lights Are Down
-03 - The Haunting (Somewhere in Time)
-04 - Soul Society(   Читать дальше...   )Жанр: Progressive Metal, Melodic Power MetalПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA85845DB96D0052F77165F9DE20796A34AEA90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489249   (927069) от 15.08.2021
 
 The Killers - Pressure Machine (2021) [MP3|320 Kbps] <Rock, Indie Rock>
@@ -742,6 +713,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DF8409F7268A0DD5CCC1F9B3BFCA9F99F2ADC09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366160   (925748) от 10.03.2020
+
+Khymera - Master Of Illusions (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Away [4:03]
+ 02. The First Time [4:22]
+ 03. Master of Illusions [4:28]
+ 04. The Sun Goes Down [4:34](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EB4D0C17C73555A4E3FCB1BB7EA5A4A8FE909D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1192997   (262534) от 19.12.2017
+
+Tim Warfield - Tim Warfield's Jazzy Christmas (2012) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Clause Is Coming to Town [08:17]
+02. Let It Snow [09:04]
+03. Joy to the World [06:56]
+04. Little Drummer Boy [08:49](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, ChristmasПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD188AA05703C82F494D309B977FC7BCAB45511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192995   (262528) от 19.12.2017
 
 Toots Thielemans - Collage (1980) 2017, Sony Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -718,41 +747,6 @@ Bill Connors - Return (2005) [FLAC|Lossless]<Post-Bop, Fusion, Guitar Jazz>
 08. Nobody Yet To
 09. It Be FM
 10. Brasilia2005Жанр: Post-Bop, Fusion, Guitar JazzПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501569   (259306) от 29.05.2012
-
-Big Time Operator - The Game (2001) [FLAC|Lossless]<Swing, Neo-Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Game
-02. The Coffee Song
-03. Dancin' the Night Away
-04. Sunny Ray
-05. Smoke, Smoke, Smoke
-06. I'm Gonna Live Till I Die
-07. Harlem Nocturne
-08. That Old Black Magic
-09. Speed
-10. Wonderful Day(   Читать дальше...   )2001Жанр: Swing, Neo-Swing, Big BandПродолжительность: 00:43:08
 
 ## Скачать торент
 ```bash

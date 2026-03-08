@@ -1,3 +1,32 @@
+###  Публикация: 1045738   (557732) от 24.08.2016
+
+Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Blowin' In The Wind [02:48]
+ 2 - The Times They Are A-Changin' [03:14]
+ 3 - Don't Think Twice, It's All Right [03:40]
+ 4 - Mr. Tambourine Man [05:29](   Читать дальше...   )Жанр: Rock, folk, CountryПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44435EE5A0BBC654427FCA3BABC16B03D82CC1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045533   (557724) от 24.08.2016
 
 VA - Grease (The Original Soundtrack From The Motion Picture) (1998) [FLAC|Lossless|tracks + .cue] <Soundtrack>
@@ -709,35 +738,6 @@ Over the Rhine - Love & Revelation (2019) [FLAC|Lossless|tracks + .cue] <Folk Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010DA8A58F4DA7FED9B88A065EC3BDDD8B35157F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858369   (555337) от 07.06.2019
-
-VA - Тупой и еще тупее 2 / Dumb and Dumber To (2014) [MP3|320 кб/с]<Sountrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empire of the Sun - Alive
-02. Natural Child - She Got A Mind
-03. Franz Ferdinand - Right Action
-04. Eels - Mistakes of My Youth(   Читать дальше...   )Жанр: SountrackПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C84D44226442056C533E3DF4BE66A92685686A
 ```
 
 https://mybot314.ru/tekegram_catalog/

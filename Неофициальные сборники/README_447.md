@@ -1,3 +1,177 @@
+###  Публикация: 1413285   (409994) от 03.10.2020
+
+VA - The Official UK Top 40 Singles Chart 02.10.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 24kGoldn - Mood (feat. iann dior)
+02. Cardi B - WAP (feat. Megan Thee Stallion)
+03. Headie One - Ain't It Different (feat. AJ Tracey & Stormzy)
+04. Paul Woolford & Diplo - Looking For Me (feat. Kareen Lomax)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07295C2328C1444016CAC29EB7E41179C6A94110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413430   (409989) от 03.10.2020
+
+VA - Record Super Chart 656 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bastard! - F..k That (3:38)
+02. DJ Smash feat. Poët - БЕГИ (3:06)
+03. twocolors - Lovefool (3:10)
+04. AronChupa & Little Sis Nora - The Woodchuck Song (2:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C892A61E15ACA626F78D80C22872430B75D246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325642   (409954) от 16.09.2019
+
+VA - В Нарушение Правил. Русский Рок-Обзор (2019) 2CD [MP3|320 Kbps] <Рок, Альтернатива>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409954.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+001. Би-2 - Виски
+002. Atava - Жить Сейчас(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 18:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2DC172FEADE0F6CDE261EAB2143476E1D68146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066697   (409909) от 27.10.2016
+
+VA - Deep House Collection Vol.94 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409909.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Alexander Hristov - Let's Dance (Original Mix) 6:48
+002.Alex Senna & Garciaz & Too Low - Lost Voices (Too Low Remix) 5:34
+003.Alex Spite - Extase (Original Mix) 4:41
+004.Alex Spite - Hello My Love (Original Mix) 6:01(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8FB027BD93C510BF585CF196314E0D14363AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066777   (409908) от 27.10.2016
+
+VA - PromoDJ TOP 100 Club Tracks October (2016) [MP3|320 Kbps] <Remixes, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409908.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.50 Cent - What Up Gangsta (Alex Menco MashUp)
+002.A-Mase.DJ feat. NAD1N - Московская Ночь (Original Mix)
+003.Adriana & DJ Anton Maluta - Falling From The Sky (DJ Fusion Remix)
+004.Andrew Rai, Jako Diaz, Angelisa - Surrander Feat. Angelisa (No Hopes Remix)(   Читать дальше...   )Жанр: Remixes, Dance, ClubПродолжительность: 07:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07867136DB415D497A4358510D2BDC6DA2D63F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413397   (409865) от 03.10.2020
+
+VA - Beatport Club House: Electro Sound Pack #175 (2020) [MP3|320 Kbps] <Club House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409865.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brasslover - Shake Your Body (Club Mix)
+002. Sean Crazz feat. Anne - I Wanna Find You
+003. Sam Halabi - Same Thing (Original Mix)
+004. Dckz - Bring That Beat (Radio Edit)(   Читать дальше...   )Жанр: Club House, ElectroПродолжительность: 12:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EE5A98F1CE9EBA98D6CB4D8A5B91C42AE0BF66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413400   (409846) от 03.10.2020
 
 VA - Hottest Autumn Hits (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -571,180 +745,6 @@ VA - 200 Hits Of The Pops (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6AB8272696B2F170B01190262AB43E092EB2803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168447   (408787) от 24.09.2017
-
-VA - Record Super Chart #504 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Diablo - Momentum  3:28
-02.  KSHMR feat. JDG & Mariana Bo - Kolkata  3:26
-03.  Kokab - Got U (Ready Or Not) (Amice Remix)  4:08
-04.  Axwell & Ingrosso - More Than You Know  3:21(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FAB956B6715A05CD60BDDA080F103DF7053498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168535   (408779) от 24.09.2017
-
-VA - Lust And Love Vol.2: Alternative Rock Revue (2017) [MP3|192-320 Kbps] <Alternative, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408779.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elephant Plaza - Naked
-002. Kepler Ten - Ultraviolet
-003. Blackwater Conspiracy - Decadent Highway
-004. Yasi Hofer - Tender Storms(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 08:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3199113DEDA38383DC69001F91A060A53EB162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168496   (408713) от 24.09.2017
-
-Doro - I Am What I Am (Compilation) (2017) 2CD [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take No Prisoner
-02. I'll Make It On My Own
-03. World Gone Wild
-04. Thunderspell(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F911F0BC9B4F9E72E90364B8FC61B198608CF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325932   (408625) от 17.09.2019
-
-VA - не Громкие новинки недели 35 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408625.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.ADAM - Та Самая (2:07)
-2.Alina Botanovna feat. Artem Levda - Зависима (3:39)
-3.AMCHI - Ради Тебя (3:00)
-4.Arst One - Бывшие (3:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6267566311FF99A9404F9F94AC541E3459019180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168488   (408557) от 24.09.2017
-
-VA - 1000 Разных Групп & ВИА ХХ Века (от Ovvod7) Vol.06 (2017) [MP3|320 Kbps] <Pop, Rock, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408557.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Восток - До Встречи! (Remix)  5:18
-002.  Маленький Принц - Мы Встретимся Снова  4:20
-003.  СуперНова - Не Верю В Любовь  4:04
-004.  Чай Вдвоем - Немного Дэнса  3:46(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 10:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F2A83E08B609476AA4787CE05201AF9336C7AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413633   (408542) от 04.10.2020
-
-VA - Illusion: Techno Sound Mix (2020) [MP3|320 Kbps] <Techno, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408542.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Mind - Unzip (Connection Mix)
-002. Porter - Vanta (Original Mix)
-003. Audio Junkies - What Is Real
-004. Sebastian Fleischer - Feel The Room(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 10:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB7C9686563270BBD2F3B03E0888F5320479AFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

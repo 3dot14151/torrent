@@ -1,3 +1,177 @@
+###  Публикация: 1005732   (830730) от 10.04.2016
+
+VA - Музыка дороги Сборник русского шансона 3 (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Вестов - Мам Я Бросил Курить
+02. Александр Самсон - Заблудился Год
+03. Олег Газманов & Денис Майданов & Александр Маршал & Трофим - Бывший Подъесаул
+04. Дмитрий Кубасов - Не Вернуть(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6F56A734A8FC08C8FF19903AB84E518DF8110D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005827   (830719) от 10.04.2016
+
+VA - Country Music Ballads (2016) [MP3|320 кб/с] <Country, Folk Rock, Rock Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Lane - Fix
+02. Dustin Lynch - Mind Reader
+03. Chris Stapleton - Tennessee Whiskey
+04. Jon Pardi - Head Over Boots(   Читать дальше...   )Жанр: Country, Folk Rock, Rock BluesПродолжительность: 01:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75CEA602B9FDAB609C528A8EB41839A2B940DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005778   (830628) от 10.04.2016
+
+VA - The Blues In My Flat (2016) [MP3|320 кб/с] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830628.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robert Johnson - Cross Road Blues
+002. Nina Simone - Blues For Mama
+003. Vaughan Brothers - Hard To Be
+004. Arthur Big Boy Crudup - That's All Right(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 09:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8898FA9D1ADAE307D09725E9101E5A3ECE85FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 774127   (830576) от 05.04.2014
+
+Sting - 25 Best Songs (2014) [MP3|256 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad About You 1991
+02. Shape Of My Heart 1993
+03. Fragile 1987
+04. La Belle Dame Sans Regrets 1996(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5488B425E405A9FA92F6F721FAB5A3C3EE4F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005861   (830556) от 10.04.2016
+
+VA - Legends of Metal (2016) [MP3|320 кб/с] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slipknot - The Devil In I (5:43)
+02. Disturbed - The Vengeful One (4:12)
+03. Killswitch Engage - The End of Heartache (4:58)
+04. Trivium - Pull Harder On the $trings of Your Martyr (4:51)(   Читать дальше...   )Жанр: MetalПродолжительность: 02:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17888F309EB282C1C183EB9AF8696CEDA1803823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005954   (830483) от 10.04.2016
+
+VA - Best Rock at all times (2016) [MP3|128-320 кб/с] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slade - Did Ya Mama Ever Tell Ya
+02. Status Quo - Hard Time
+03. Paul Stanley - Take Me Away (Together As One)
+04. Slade - Look What You Dun(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 03:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9E880A934EF5A7AD1D5C26FC8FC99F1CDE8EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 855575   (830348) от 10.04.2016
 
 VA - Hair Force One (2014-2015) [MP3|320 кб/с]<Hard'n'Heavy, Glam Rock>
@@ -571,180 +745,6 @@ Dennis Jones - Both Sides Of The Track (2016) [MP3|320 кб/с] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8E8DAC94CCA2A2F597DB688C96BD6D2D5EB9675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501500   (828322) от 14.10.2021
-
-VA - Promo Only Mainstream Club November (2021) [MP3|320 Kbps] <Electronic, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anti Up - Something's About To Go Down (Original Mix)
-02. Benny Benassi x Vedo x Raiche - Pull It (Extended Mix)
-03. Black Caviar f./EMIDA - Collect Check (Extended Mix)
-04. Blasterjaxx & Timmy Trumpet - Narco (Extended Mix)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 02:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0090F87864A7A7BFF6C988BA4D780ACD286149B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115195   (828258) от 17.03.2017
-
-VA - Beatport Trance Pack (17.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  James Dymond & Chris Schweizer - Spectrum (Extended Mix)  7:34
-02.  Kayan Code - Arena (Original Mix)  6:30
-03.  Rene Ablaze & UDM - Lost In Trance (Extended Mix)  6:37
-04.  First Sight - Courage (Extended Mix)  6:28(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 02:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76FB558B019A69277F590CC24457C97EEDFDC99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502145   (828233) от 14.10.2021
-
-VA - Music News vol.140 (2021) [MP3|320 Kbps] <Pop, Soul, Dance, (Other)>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polina Krupchak feat. Epifanio Lopez - Я Не Боюсь (DJ Konstantin Ozeroff & DJ Sky Remix) (03:21)
- 02. AliB & ARCHI - Невыносима (03:23)
- 03. Alyssa - Ti Amo (02:29)
- 04. AMI - Fluturi (03:08)(   Читать дальше...   )Жанр: Pop, Soul, Dance, (Other)Продолжительность: 04:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F3DF56C0D664E82794F31ED6200DE62BBE0DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115251   (828165) от 17.03.2017
-
-VA - Dancing Freak Happy Level (2017) [MP3|320 Kbps] <Future House, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kygo F. Selena Gomez – It Ain’t Me (Axel E Club Mix) 06:07
-02. Chuckie – Rides (Original Club Mix) 06:58
-03. Disco Ballz – Shake It Love (Original Club Mix) 05:38
-04. Koen Groeneveld – Jezzika (Matt Minimal Club Mix) 06:08(   Читать дальше...   )Жанр: Future House, Electro, ProgressiveПродолжительность: 07:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B44EFD3DC7EBA4A61763AF3CBEE9167262FE7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005804   (828093) от 11.04.2016
-
-VA - Club Dance Ambience Vol.64 (2016) [MP3|320 кб/с] <House, Electro House, Club,>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828093.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ace - Of Bass (Original mix) 03:28
-002. al l bo - Constructor Of The Idol (Black Mafia DJ Instrumental Remix) 05:23
-003. al l bo - Love Affect (Black Mafia DJ Dubstep Instrumental Remix) 05:04
-004. Alan Walker - Faded (Albert Gonzalez Bounce Remix) 04:44(   Читать дальше...   )Жанр: House, Electro House, Club,Продолжительность: 07:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E8CC57ABBB1153765E6E57D2A5FE02B654507B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115150   (828044) от 17.03.2017
-
-VA - Bass Sound Clinic: Drum & Bass Vol.1 (2017) [MP3|320 Kbps] <Drum And Bass, Dubstep, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Foreign Beggars - Apex (Dirtyphonics Remix)
-002. Martin Garrix - Animals (Instant Party! Remix)
-003. 1.8.7. Deathstep - Defcon (Cruel Reaction Remix)
-004. 3D Stas - Blind Drive (Rusty K Remix)(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, ElectroПродолжительность: 09:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A990DE8AEF86439750177004BCC45B2E9A177664
 ```
 
 https://mybot314.ru/tekegram_catalog/

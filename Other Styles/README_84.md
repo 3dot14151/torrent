@@ -1,3 +1,32 @@
+###  Публикация: 1546611   (604425) от 25.04.2022
+
+Faun - Märchen & Mythen (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Medieval>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Es war einmal
+02 - Rosenrot
+03 - Seemann
+04 - Hagazussa(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CC672C1B5D2E49C260BF1FE80A4D0A41ED78B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147954   (604312) от 05.07.2017
 
 Karushanti - Isle of Skye (2017) [MP3|320 Kbps] <New Age>
@@ -716,35 +745,6 @@ Alan Silvestri - Avengers: Endgame / Мстители: Финал (Original Moti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2200CA7F36190D7FBA634F8D5D9E199833ADDD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298248   (601876) от 27.04.2019
-
-Angelight - Четыре ветра (2006) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Северный ветер (15:05)
-02. Южный ветер (14:06)
-03. Западный ветер (12:56)
-04. Восточный ветер (14:56)Жанр: New AgeПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB7412B5FFFFEA952694AEBE35B6012708A3F4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

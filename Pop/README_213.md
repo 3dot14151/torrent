@@ -1,3 +1,61 @@
+###  Публикация: 1169226   (403945) от 26.09.2017
+
+Татьяна Снежина - Я не могу без тебя (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой старый дом (4:58)
+02. На далёкой станции (5:37)
+03. Ночь пришла (5:32)
+04. Млечного пути мостик (7:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBD4A5BBFFFAC8B49A62E9CD41A3ED955C553C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169270   (403812) от 26.09.2017
+
+Bagarre - Circus (1982) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemonsweet (6:32)
+02. Little Ladies (4:31)
+03. Circus Is Gone (4:31)
+04. Dirty Love (4:53)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980ABBF2D411F4B7FCA3B08B2B1FA35D5EE20DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564389   (402744) от 23.10.2012
 
 VA - Суперхиты дискотеки 90-х. Часть 4 (2012) [MP3|320 кб/с]<Pop, Eurodance>
@@ -735,64 +793,6 @@ VA - John Morales Presents The M+M Mixes Volume 3 Instrumentals (2013) 2CD [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13C15B70C26249BF366D60079CE78DC58902996A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171978   (394032) от 07.10.2017
-
-Blue Hawaii - Tenderness (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dreampop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free At Last (4:43)
-02. No One Like You (5:06)
-03. Pregame (0:19)
-04. Versus Game (3:53)(   Читать дальше...   )Жанр: Electronic, Dreampop, Female VocalПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5374BC557D94435E08C9569FBFC7646D7611B5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172229   (393969) от 07.10.2017
-
-VA - Best Of 2017 - Die Hits Des Jahres (2017) 2CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393969.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Luis Fonsi - Despacito (feat. Daddy Yankee)  3:48
-02.  Kay One - Senorita (feat. Pietro Lombardi)  3:59
-03.  Axwell & Ingrosso - More Than You Know  3:23(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC422BF8E449C975AEDBBD290EEA780A8CDFD48
 ```
 
 https://mybot314.ru/tekegram_catalog/

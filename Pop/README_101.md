@@ -1,3 +1,61 @@
+###  Публикация: 1280075   (763423) от 01.02.2019
+
+Оля Полякова - Королева ночи (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763423.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Королева ночи
+2. Лёд тронулся
+3. Любовница
+4. Звонила(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8773DF7BB5F23C46C13712D4136DCE695E2CF114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214651   (763302) от 23.03.2018
+
+Bosson - RockStar (2004) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need Love (3:35)
+02. You Opened My Eyes (3:41)
+03. One Of A Kind (3:55)
+04. A Little More Time (3:56)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3C346D81E6AD66797BA6B4B34AF6A631F61519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214660   (763295) от 23.03.2018
 
 Bosson - RockStar (2004) [FLAC|Lossless|tracks + .cue] <Pop, Europop>
@@ -684,64 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D56202B7D04F4EB17655BF016E9DC5FB9B4AE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662272   (758558) от 29.05.2013
-
-София Ротару - Звездная серия (2CD) (1999) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758558.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1Жанр: PopПродолжительность: 01:19:35
-
-01.Червона рута (3:52)
-02.Черемшина (3:24)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215596   (758221) от 26.03.2018
-
-Yan Tregger - Christopher Ried - Ducks & Drakes (1979) LP [MP3|320 Kbps] <Electronic, Psychedelic, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friend Island (3:31)
-02. The Girl in the Gold (2:52)
-03. Dawn and Darkness (3:35)
-04. The Ivy Heart (0:18)(   Читать дальше...   )Жанр: Electronic, Psychedelic, DiscoПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B6887D884049DA258FA0684119D7D35D26698A
 ```
 
 https://mybot314.ru/tekegram_catalog/

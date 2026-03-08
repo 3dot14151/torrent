@@ -1,3 +1,32 @@
+###  Публикация: 1023199   (726104) от 04.06.2016
+
+Yanni - The Dream Concert: Live from the Great Pyramids of Egypt (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Man's Dream
+02. For All Seasons
+03. Yanni Welcome
+04. Felitsa(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A019B44CDD7A877C3006D08229A4EC6A80D8733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023012   (726072) от 04.06.2016
 
 Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -707,35 +736,6 @@ Ottmar Liebert + Luna Negra XL - Little Wing (2001) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91FAED298740D8FE93E2FE75A6D9FA01B727816E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129541   (720783) от 29.04.2017
-
-Jeronimo Jonas - Inner Journey to the Real (2017) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Being Resonances
-02. Beyond Shapes
-03. The Silence and the Guitar
-04. Automatic Cosmos(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26465500B9DB1D80EE2CBDC64D5186EF51A710F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

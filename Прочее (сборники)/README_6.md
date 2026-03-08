@@ -1,3 +1,119 @@
+###  Публикация: 1445297   (1033726) от 05.02.2021
+
+VA - Music News vol.69 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Би-2 feat. Миа Бойка - Последний Герой (02:18)
+ 02. Alex Andreev - Я Уже У Неё В Голове (02:32)
+ 03. Allie X - GLAM! (03:42)
+ 04. Alok & VIZE feat. Alida - AloLove Again (02:27)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E652E1496DF6893D608B5FB4BF93F298C431598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445464   (1033528) от 06.02.2021
+
+VA - Ladies Training Beats 2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Corry, MNEK, Tiesto - Head & Heart - Tiesto Remix (2:04)
+02. Felix Harrer - Eisbar (2:05)
+03. Fremde Passagiere - Teenage Dirtbag (2:07)
+04. Robin Schulz, KIDDO, Ofenbach - All We Got - Ofenbach Remix (2:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BEE7F69DC9EF826CA169E1785004FEA52208BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445370   (1033476) от 06.02.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 05.02.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burak Yeter - Body Talks (3:55)
+02. Dotan - Numb (3:38)
+03. Tiesto - The Business (2:43)
+04. Meduza & Dermot Kennedy - Paradise (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEADEEF509BBD9B2D388FB69D3C1436363C20B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446326   (1032992) от 08.02.2021
+
+VA - Sexy Dreams 2021 [MP3|320 Kbps] <Pop, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kehlani - Gangsta (2:59)
+002. Cautious Clay - Cold War (3:24)
+003. Rihanna - Sex With Me (3:26)
+004. Bryson Tiller - Right My Wrongs (4:09)(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 07:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFABA63A6EE99F607DF93C7A50146211E942C91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618891   (1032766) от 17.03.2023
 
 VA - В машине с музыкой Vol.327 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -629,122 +745,6 @@ Dance:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A00CFE7AEA600227119136C24296FEF6B0642ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449486   (1029304) от 24.02.2021
-
-VA - Music Collection. From West To East (1991-2016) [MP3|320 Kbps] <New Age, Enigmatic, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029304.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ENIGMA - From East To West (4:04)
-002. Dancing Fantasy - Midnight Blur (3:55)
-003. Rassolodin - Under The Arches Of The Temple (4:47)
-004. Back to Earth - On Eagle Wings (5:17)(   Читать дальше...   )Жанр: New Age, Enigmatic, ElectronicПродолжительность: 40:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87AEDE7AED043BB27EED8B113F23AA6133463B41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448744   (1029264) от 24.02.2021
-
-VA - Зайцев.нет Лучшие новинки Февраля (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nipsey Hussle, Jay-Z - What It Feels Like (4:35)
-02. Serj Tankian - Elasticity (4:01)
-03. Chet Faker - Get High (3:42)
-04. SYML - STAY CLOSE (3:42)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C2615C566848B119A85A029E523FFD9C9C2104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450498   (1028894) от 27.02.2021
-
-VA - Music News vol.75 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028894.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sophia Messa - Not That Kind Of Love (02:51)
- 002. 3-ий Январь - Снежинки (02:41)
- 003. Advanced & JEONGHYEON feat. Mirriam Eka - La La La (03:02)
- 004. Akcent feat. Xonia - You Don't Know My Love (02:42)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD2C2C1141FA619E79CA9ACCEE6BCA13A119FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450518   (1028881) от 27.02.2021
-
-VA - Music News vol.76 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028881.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kristina Si - Me So Bad (02:40)
- 002. Alexandra - Блаблабой (02:14)
- 003. ANFA - On My Mind (02:40)
- 004. Aquaneon - Румба (01:55)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173B97B5AC5402AACD1A56BFE121050C9D821DED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1260407   (309348) от 08.11.2018
+
+Творческий вечер Владимира Соловьева. ДК им. Ленсовета (02.11.2018) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Творческий вечер известного телеведущего Владимира Соловьева в ДК им.Ленсовета 02 ноября 2018 годаЖанр: МоноспектакльАктеры: Владимир СоловьевСубтитры: ОтсутствуютПродолжительность: 01:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50245DF602EDABEEFE6A7DA14691ADF4A4EAF921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 265360   (308831) от 04.12.2010
 
 Alice Cooper: Theatre of Death - Live At Hammersmith (2009) [1080i] Blu-Ray
@@ -692,35 +718,6 @@ Bee Gees - One Night Only 1997 (2013) BDRip [H.264/1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF1294478801277F423CF0434A06236C2644BAC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186107   (289125) от 23.11.2017
-
-Sting - Live At The Olympia Paris (2017) BDRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289125.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Synchronicity II
-2 Spirits In The Material World
-3 Englishman in New York
-4 I Can't Stop Thinking About You(   Читать дальше...   )Жанр: Rock, Pop, New Wave, JazzРежиссер: Alexandre BuissonПродолжительность: 01:42:03+00:36:12 (Bonus)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB7158B6CF085CA0B62B9211FB63630A19273CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

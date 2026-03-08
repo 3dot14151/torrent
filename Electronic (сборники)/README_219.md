@@ -1,3 +1,32 @@
+###  Публикация: 1740778   (47953) от 03.08.2024
+
+VA - VA - compilation part 111 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azimov - Turn of Lights
+02. Limora - Flower
+03. Muvi - Passion
+04. Elno - London(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0E10471699F8120F3E9813C1137E01FC204CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741884   (47227) от 10.08.2024
 
 VA - Compilation part 112 Electronic (2024) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - Compilation part 122 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4751A8F951A4F5F7DAEEF33B9B7441D58CC97118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750277   (42916) от 20.09.2024
-
-VA - Compilation part 123 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mannonov - Justtake
-02. Deepfm - Typhoones
-03. A-Sultan - Passion
-04. A-Sultan - Angels Like You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F6EF068D72C3D0FC8E5E818E3D7A663E0CDDC41
 ```
 
 https://mybot314.ru/tekegram_catalog/

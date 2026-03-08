@@ -1,3 +1,32 @@
+###  Публикация: 1280049   (763701) от 01.02.2019
+
+Dick Haymes with Harry James & Benny Goodman - Serenading with The Big Bands (1950-e) 1995, Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sinner Kissed an Angel [3:15]
+02. Montevideo [3:16]
+03. You Don't Know What Love Is [3:14]
+04. Ol' Man River [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD0FA5A11BAAC6D9FBBFE227C3F4359C0CD30E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521805   (763665) от 04.01.2022
 
 Phil Woods - Sugan & Round Trip (1957, 1969) 2000, Universal [APE|Lossless|image + .cue] <Bop, Mainstream Jazz>
@@ -716,35 +745,6 @@ Ant Law - Life I Know (2018) [FLAC|Lossless|tracks+.cue] <Contemporary Jazz, Fus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3839CE322AFD9E918F58B9AA365A456863579B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394850   (760622) от 07.07.2020
-
-Andre Previn - Plays Songs By Harold Arlen 1960 (1994) Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Old Black Magic [4:36]
-02. Come Rain or Come Shine [4:38]
-03. My Shining Hour [3:42]
-04. Happiness Is a Thing Called Joe [4:32](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194A9BF809C9927C0DEA8480CB11CC9E4CA98B84
 ```
 
 https://mybot314.ru/tekegram_catalog/

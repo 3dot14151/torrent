@@ -1,3 +1,32 @@
+###  Публикация: 959340   (317316) от 24.11.2015
+
+VA - 55 Bombs Of Minimal (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesus Escobar Kiffen - King [06:41]
+02. Efeckt Mnml - Feel The Reeverb [06:35]
+03. Whisperer - Gibbons [05:36]
+04. The Mnml Robots - Where Is My Sputnik [06:56](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68E733104AA44CFCEA53B066238646F4265653F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959356   (317303) от 24.11.2015
 
 VA - 55 Hits Of Minimal (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
@@ -720,35 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3735AF6BAA5945E598B568111F2FDE16AE07684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183404   (307870) от 14.11.2017
-
-VA - Club Beats 2017 (Compilation) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fezz - In My House 04:05
-02. WTDJ - Don't Forget 04:22
-03. T3rminal - Moksha 03:56
-04. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound 04:18(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDBB695122932A0D4BA6E1AE86D4462BCF8B0CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

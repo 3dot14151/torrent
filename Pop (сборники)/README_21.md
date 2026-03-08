@@ -1,3 +1,32 @@
+###  Публикация: 1376543   (858921) от 18.04.2020
+
+VA - German Top 100 Single Charts 17.04.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Samra - BaeBae
+03. Drake - Toosie Slide
+04. Bonez MC - Shotz Fired(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F05E2F667AFD1F7564C8CB337D53DBCC0CAEAEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376569   (858805) от 18.04.2020
 
 VA - Popular Euro Song: Spring Edition (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -710,35 +739,6 @@ VA - Радио Рекорд Dance 2021 Выпуск 2 [MP3|320 Kbps] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:276A4272829427AF6F8B6EC4F7E97A8E86CA53F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499691   (847284) от 02.10.2021
-
-VA - German Top 100 Single Charts  01.10.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Kid Laroi & Justin Bieber - Stay
-02. Ed Sheeran - Bad Habits
-03. Glass Animals - Heat Waves
-04. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 04:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3376677FAB22FEDF928A059C97E20539C03591
 ```
 
 https://mybot314.ru/tekegram_catalog/

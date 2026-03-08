@@ -1,32 +1,3 @@
-###  Публикация: 1356275   (980562) от 29.01.2020
-
-Dangerous Curves - So Dirty Right (2018) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensationable Submit (3:56)
-02. Art Of The Heart (4:12)
-03. Club Mile High (3:59)
-04. Funky Bonez (4:38)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481E49C0A732522A5733B2F4777E66C39E368326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356175   (980558) от 29.01.2020
 
 Darkstar - Marching Into Oblivion (1996) [FLAC|Lossless|image + .cue] <Instrumental Progressive Metal>
@@ -749,6 +720,35 @@ Lemmy & Motorhead - Leaving Here - Second Hand Songs (2016) Bootleg [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:903981AC6797F9E59A68C0C81C27D139A3280444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356487   (978902) от 30.01.2020
+
+Amberian Dawn - Looking for You (2020) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. United
+02. Eternal Fire Burning
+03. Looking for You
+04. Two Blades(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01F46529BEA982FB079D5842666F1B103B18FF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

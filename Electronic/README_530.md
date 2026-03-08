@@ -1,3 +1,61 @@
+###  Публикация: 1764851   (34694) от 09.12.2024
+
+Alphaville - I Die For You Today (2023) The Blank & Jones Mixes [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Die For You Today (Blank & Jones so8os Mix) [00:03:34]
+02. I Die For You Today (Blank & Jones so8os Extended Mix) [00:05:26]
+03. I Die For You Today (Blank & Jones Club Mix) [00:07:46]
+04. I Die For You Today (Blank & Jones Dub Mix) [00:07:46](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E0713072041B681D78B0F86FBB059CB086776DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764956   (34685) от 09.12.2024
+
+The Orb - Orboretum: The Orb Collection (2024) 2CD [FLAC|Lossless|tracks + .cue] < Ambient, Ambient House, Dub, Chillout>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lunik (Komplott E.P. Version) (5:18)
+02. Captain Korma (5:15)
+03. Appletree In My Back Yard (Abakus Remix) (8:50)
+04. DDD (Dirty Disco Dub) (Belka & Strelka Remix) (5:06)(   Читать дальше...   )Жанр: Ambient, Ambient House, Dub, ChilloutПродолжительность: 02:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC19571818A95FC189294C327A5E915F1F4882D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765043   (34589) от 10.12.2024
 
 VA - Elliptical Sun Recordings 2024 (2024) [MP3|320 Kbps] <Trance, Progressive>
@@ -681,64 +739,6 @@ VA - The Best Releases 2024 of Enigma Emotions (By Abstract Moon) (2024) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D350A8BAB0925C63CD52BB1E7EBE34A02A670C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768016   (33259) от 23.12.2024
-
-VA - A State Of Trance Year Mix 2024 (Mixed By Armin Van Buuren) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33259.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren & Moby - Extreme Ways (Extended Mix) (06:08)
-002. Jerome Isma-Ae - Hold That Sucker Down (Hel:slowed Extended Remix) (05:09)
-003. Hel:slowed & Amber Revival - Wildfire (Extended Mix) (07:15)
-004. Estiva - Fine Day (Extended Mix) (07:00)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 13:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20CE2DCD0BF20DC3868756390DC4B89433CAB215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767927   (33236) от 23.12.2024
-
-VA - The Best Releases 2024 of Your Melodies (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iberian - Trust Me (Original Mix) (06:09)
-02. Ocoro - Honjaya (Original Mix) (07:52)
-03. Juan Almiñana Obando & Poetry Maiden - Never Again (Original Mix) (07:04)
-04. SounEmot, Arcvalx & Elyssandre - Don't Let Them Take Away Your Light (Original Mix) (05:26)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06B3B4D9FCD535AE4F8CD03A140E6F5DA1FA91B
 ```
 
 https://mybot314.ru/tekegram_catalog/

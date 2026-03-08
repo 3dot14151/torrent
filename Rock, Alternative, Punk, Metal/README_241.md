@@ -1,32 +1,3 @@
-###  Публикация: 1378069   (844875) от 26.04.2020
-
-1000mods - Youth of Dissent (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucid [03:44]
-02. So Many Days [05:10]
-03. Warped [04:16]
-04. Dear Herculine [07:07](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner, GrungeПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFADC260C0C0B7892CF21F668BA08B7D674C6FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378074   (844873) от 26.04.2020
 
 Stonewall Noise Orchestra - Deathtripper (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Stoner>
@@ -752,6 +723,35 @@ Metal Church - XI (2016) [FLAC|Lossless|image + .cue] <Heavy, Power, Thrash Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7351FDBBA21D3EBF9BE26F74586B283AA6650D65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003432   (843408) от 03.04.2016
+
+Mob Rules - Tales From Beyond (2016) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dykemaster's Tale
+02. Somerled
+03. Signs
+04. On the Edge(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C921EF26412D8A784E3126AB2077D094105B281
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1475161   (1012453) от 06.06.2021
-
-Anchors & Hearts - Guns Against Liberty (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This is Not a Test [00:00:48]
-02. What If God Was One of Them? [00:03:56]
-03. The President [00:03:22]
-04. Guns Against Liberty [00:03:27](   Читать дальше...   )Жанр: Metalcore, Melodic HardcoreПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DDAA5ACD0F8F50FCA17BF337265042292E427E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475328   (1012452) от 06.06.2021
 
 Fear Not - Fear Not (1993) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -744,6 +715,36 @@ Arkaza - The Seven Year Plan (2021) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BFAAC4601D4297741AACF4506AC3C0F2BBD0B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475589   (1012136) от 08.06.2021
+
+Seize Eternity - Transit of X (2021) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Car Crash [00:05:02]
+02 - Give In [00:03:22]
+03 - Divine [00:04:01]
+04 - Conviction [00:05:23](   Читать дальше...   )Жанр: Heavy Metal, Hard Rock
+Страна: USAПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B8066D33C995D671EC34BC13194BA5ADF71377
 ```
 
 https://mybot314.ru/tekegram_catalog/

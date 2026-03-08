@@ -1,3 +1,32 @@
+###  Публикация: 1138912   (662326) от 31.05.2017
+
+VA - Pacific Progressive Trance Vol. 3 (2017) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drym & Ltn Ft. Adara - Rescue Me (Ltn Extended Sunrise Remix)
+02. Royal Zeven - Glacier (Infinity State Remix)
+03. Martin Soundriver - Project X (Radio Edit)
+04. Tritonal - Hey MaMaMa (Club Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 08 :12 :44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78109C2F98E371CE0E63552AE47AFC2DFE19B38B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139148   (661399) от 01.06.2017
 
 VA - Trance Traveling 89 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
@@ -722,35 +751,6 @@ VA - Vocal Chillout Live Set (2022) [MP3|320 Kbps] <Chillout, Vocal, Ambient, Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5166DB12504AF1631352890771DAF81A9941CD4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515510   (655936) от 26.06.2012
-
-VA - Club Session, Summer Edition (House Music Collection) (2012) [MP3|320 кб/с]<Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Train (Original Mix) - Fisher & Fiebak
-02. Keep On Groovin (Original Mix) - Funkstar
-03. Ethamin (Kid Shakers Remix) - SL Curtiz, Domovnik
-04. Knock On Your Heart (feat. Alec Sun Drae)Жанр: Funky, Club HouseПродолжительность: 01:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B951A0D06FFD61EAC96EFB303D0914313693069F
 ```
 
 https://mybot314.ru/tekegram_catalog/

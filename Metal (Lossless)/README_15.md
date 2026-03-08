@@ -1,3 +1,90 @@
+###  Публикация: 1442355   (1036631) от 25.01.2021
+
+Mors Principium Est - Seven (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Day for Redemption
+02.Lost in a Starless Aeon
+03.In Frozen Fields
+04.March to War(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B060986A02B52ADF58A56903904114AAF711E8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442648   (1036365) от 26.01.2021
+
+Necropolis - Incertidumbre (1999) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sueños Frágiles
+02. El Paso
+03. Retrogradación del exceso
+04. Tierra Germinada(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A45E27E931431AFE9E4523EA7CCA5A0226E6730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442629   (1036364) от 26.01.2021
+
+Absurdus - No Heaven in Sight (1998) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ad Absurdum (One Hell of an Introduction) 01:04
+02. On the Way to Hell 03:59
+03. Devil's Ride 04:05
+04. My Kingdom 03:37(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04CA0927135FC75659DF321C51780E0A8BB87AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442567   (1036356) от 26.01.2021
 
 Serious Black - Suite 226 (2020) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -658,93 +745,6 @@ Twilight Force - At The Heart Of Wintervale (2023) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C29DE9E5EE670E015C1F1D49B1ACB466284EC5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443454   (1035478) от 29.01.2021
-
-Marty Friedman - Tokyo Jukebox 3 (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Makenaide (3:15)
-02. Sebonzakura (4:14)
-03. Gurenge (4:09)
-04. Kaze Ga Fuiteiru (5:18)(   Читать дальше...   )Жанр: Heavy Metal, InstrumentalПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0E0A0CF9B3E3D0E1C99325ADD9A36235F311A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617299   (1035372) от 06.03.2023
-
-Witch Ripper - The Flight After the Fall (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter The Loop (7:54)
-02. Madness and Ritual Solitude (7:09)
-03. The Obsidian Forge (8:00)
-04. Icarus Equation (7:18)(   Читать дальше...   )Жанр: Sludge MetalПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECEB14CDD52087056B7565D21BBF19EAE923D632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617393   (1035057) от 07.03.2023
-
-Wolves in Winter - The Calling Quiet (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cords That Ends the Pain [00:07:11]
-02. Nemesis [00:07:00]
-03. Pastime for Helots [00:06:26]
-04. Promised Harvest [00:05:36](   Читать дальше...   )Жанр: Sludge Doom MetalПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53CCC245C108B4F032EF6944E6F1C1A883280DE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

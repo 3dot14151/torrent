@@ -1,3 +1,32 @@
+###  Публикация: 1278815   (767775) от 27.01.2019
+
+VA - Record Super Chart 571 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fisher  -  Losing It
+02.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+03.  Rompasso  -  Ignis
+04.  Gaulin  -  Moonlight(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D4D7105B1DE2146706067A08422F18BA6DF059F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393547   (767715) от 30.06.2020
 
 VA - Beatport Hardstyle: Electro Sound Pack #117 (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle, Core Dance>
@@ -716,35 +745,6 @@ VA - Deep Delicate House (2018) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE6D1A412BFFC680A73D0F745618730042A8644A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214227   (764935) от 21.03.2018
-
-VA - Better Day Trance Mix (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frainbreeze feat. Vika - Better Day
-02. Roman Messer - Lullaby (Original Mix)
-03. Cold Rush & Kaimo K feat. Sarah Russell - Angel Fly
-04. Carl Daylim - Stay With Me (Intro Mix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 08:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6723376B5697AE347FC14BD3CE1DC35C05A2C9CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

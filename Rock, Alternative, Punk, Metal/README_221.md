@@ -1,32 +1,3 @@
-###  Публикация: 1374557   (871202) от 11.04.2020
-
-Kill the Kong - 2 Albums / 4 Singles (2016-2019) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871202.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Kill the Kong
-2017 - Colossus
-2016 - Bring the Heat (Single)
-2017 - Ashes in the Wind (Single)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 6 CD, 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821C05446B88AE87133541432E2D2624937157C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374896   (871197) от 11.04.2020
 
 Metal Church - From the Vault (2020) [FLAC|Lossless|tracks] <Heavy Metal>
@@ -740,6 +711,35 @@ Dawn Of Winter - Pray For Doom (2018) [MP3|320 Kbps] <Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D84780FB7A279F933F7A811FFDB12CCB600CF7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374929   (869095) от 12.04.2020
+
+Graveyard Disciples - Devil's Night (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Among The Tombs (Intro) [00:01:06]
+02 - Forsaken [00:03:45]
+03 - Dark River [00:03:53]
+04 - Mouth Of The Lion [00:04:26](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABC3F4D640BE45CBDF034666599EB41E7BD0F24
 ```
 
 https://mybot314.ru/tekegram_catalog/

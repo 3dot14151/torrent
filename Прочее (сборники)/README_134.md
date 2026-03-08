@@ -1,3 +1,125 @@
+###  Публикация: 554252   (300048) от 07.12.2012
+
+Gitarin.Ru - сборник песен проекта (2011 - 2012) (Обновляемая)[MP3|128 kbps] <Acoustic Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_300048.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. |  Красное на черном (АлисА) | (4:08)
+002. |  Жизнь (Горшок) | (2:54)
+003. |  В кармане у Насти (Gitarin.Ru) | (3:23)
+004. |  Заболели листья (Gitarin.Ru) | (2:12)
+005. |  Белая Ворона (Чайф) | (2:48)
+006. |  Группа Крови (В. Цой, Кино) | (3:58)
+007. |  Я верю (Ляпис Трубецкой) | (3:20)
+008. |  Ветер (Brainstorm) | (3:36)
+009. |  Я солдат (Пятница) | (3:13)
+010. |  Ты мне нужна  (Gitarin.Ru) | (4:33)(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 07:19:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078173   (299833) от 01.12.2016
+
+VA - 90s Hits Super Songs (2016) [MP3|320 Kbps] <Eurodance, Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snap! - Welcome To Tomorrow (Are You Ready) 4:16
+02. Yamboo - Fiesta De La Noche (The Sailor Dance) (Radio-Video Edit) 3:48
+03. B.G. The Prince Of Rap - The Colour Of My Dreams 3:55
+04. Mr. President - Coco Jamboo (Radio Version) 3:38(   Читать дальше...   )Жанр: Eurodance, Pop, RockПродолжительность: 05:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECB8A8FBC521CC44F07FA3749D538BD84DEEE78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078570   (299699) от 01.12.2016
+
+VA - My Favourite Hits of 1967 (8CD) (2016) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299699.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Beatles - Your Mother Should Know (02:27)
+002. Bee Gees - Massachusetts (02:23)
+003. Small Faces - Runaway (02:38)
+004. Tom Jones - Detroit City (03:26)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues Rock, Pop Rock, Folk, Pop, Easy ListeningПродолжительность: 09:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD15973BF971FEDFDB203A40B9C1468B6D5EA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333689   (298948) от 27.10.2019
+
+VA - The Official UK Top 40 Singles Chart 25.10.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Regard - Ride It
+03. Post Malone - Circles
+04. Ed Sheeran - South of the Border(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB5B778BC90FEB163D4129C41A480F9924A91BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961760   (298920) от 02.12.2015
 
 VA - TOP November (2015) [MP3|320 кб/с]<Electronic, Lounge, Chillout, Deep>
@@ -626,122 +748,6 @@ VA - Дискотека Казанова: Старые Песни По Ново�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:688A94DEC3B91F38A14089A28EBBEBEFCC4E5FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185398   (293596) от 21.11.2017
-
-VA - Italo Disco Tropical (2017) [MP3|320 Kbps] <Disco, Pop, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293596.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Estimado - My Heart Belongs To You
-002. Jenkki - Run To Me
-003. Diamond Rain - Follow The Rainbow (Extended Version)
-004. Fresh Fox - Another Mystery(   Читать дальше...   )Жанр: Disco, Pop, RemixПродолжительность: 11:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC2EA8E96825A89C3BBFF87FCDEBB630B291E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962580   (293345) от 05.12.2015
-
-VA - Лолипопс по Русски (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293345.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ChipaChip & AlexKoch - Нет Счёта 03:51
-002. Quest Pistols - Санта Лючия (DJ Solovey Remix) (edit) 03:49
-003. Artik pres. Asti - Половина (Ser Twister Radio Remix) 03:15
-004. Даша Суворова - Чайки 04:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF433F1E86F851E3E6BABF723E0C56E827740105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962305   (293343) от 05.12.2015
-
-VA - Nova Italo Disco: Edition 11 (2015) [MP3|320 кб/с]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293343.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chito - Memories (Extended Version) (04:45)
-002. Adya - Ouverture (03:37)
-003. Lian Ross - Fantasy (7'' Version) (05:36)
-004. Radiorama - Vampires (Bonus Version) (04:22)(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 08:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927886F9E685767F704C77647F248433D901D844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262656   (293324) от 16.11.2018
-
-VA - Disco Dancing: November Party (2018) [MP3|320 Kbps] <Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293324.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jonse/Bengt Van Steegen - I Know It Baby
-002. Khidja - Plot
-003. Yunus Durali - Alone With You (Original Mix)
-004. Sirs - Dc 10 Disco Dancing(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 10:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE44E262431829A334751E884A5AEEB26A5CCC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

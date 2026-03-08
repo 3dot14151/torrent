@@ -1,38 +1,3 @@
-###  Публикация: 615480   (975953) от 09.02.2013
-
-Marty Friedman - 11 albums (1988-2011) Discography [MP3|224 - 320 кб/с] <thrash/speed/instrumental neoclassical metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975953.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.   Tsume Tsume Tsume (5:27)
-2.   GIFT (4:24)
-3.   Amagigoe (4:21)
-4.   Story (5:01)
-5.   Polyrhythm (4:36)
-6.   Kaeritakunattayo (5:55)
-7.   Tsunami (4:54)
-8.   Yuki No Hana (4:01)
-9.   Eki (4:45)
-10. Sekai Ni Hitotsu Dake No Hana (4:16)(   Читать дальше...   )Жанр: thrash/speed/instrumental neoclassical metalПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750B0288E733FBB55E88A27594B1FF24F1DB78CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974628   (975798) от 12.01.2016
 
 Diamanda Galas - Guilty Guilty Guilty (2008) [FLAC|Lossless|image + .cue] < Piano Blues, Avantgarde>
@@ -757,6 +722,41 @@ BAdbAN - 700 BEERS (EP) (2013) [MP3|320 кб/с]<punk-hardcore>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616900   (973756) от 11.02.2013
+
+Saxon - Sacrifice (2013) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Procession
+02. Sacrifice
+03. Made In Belfast
+04. Warriors Of The Road
+05. Guardians Of The Tomb
+06. Stand Up And Fight
+07. Walking The Steel
+08. Night Of The Wolf
+09. Wheels Of Terror
+10. Standing In A QueueЖанр: Heavy MetalПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3620DFD294A4A7EC4AC162317CB4B3EF3BAD7578
 ```
 
 https://mybot314.ru/tekegram_catalog/

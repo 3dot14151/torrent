@@ -1,3 +1,61 @@
+###  Публикация: 1132944   (697110) от 11.05.2017
+
+VA - Late Night Vibes Vol.5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alexandre Mark feat. Gina Lolla - Cracks  3:44
+02.  Acqua Panna - Too Much Heaven  4:12
+03.  Theo Lopez - The Bass  4:52
+04.  Yanni Gee - For The Ladies  10:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853B2D3D589C70CA0E9675DBCDE020F00C61D453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221268   (696814) от 23.04.2018
+
+VA - The Best Of House, 3CD (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blutonium Boy Feat. Eric Bazil - Where Did I Go (Ponyfarm Remix)
+02. Stupid Goldfish - Blindfolded (Radio Edit)
+03. Zsuzsa - Never Look Back (Radio Edit)
+04. Tradelove - Summer Wine (Radio Edit)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703441C51592BB52B6FE42B12053E71953F30BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221219   (696801) от 23.04.2018
 
 Niklas Paschburg - Oceanic (2018) 7k! [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Downtempo, Ambient>
@@ -688,61 +746,6 @@ VA - Elite Lounge – Chillout Music For Bars & Hotel Lobbies (2018) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:844E63EE0116E1AFDB443BB665CCA308E592F208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221419   (695065) от 24.04.2018
-
-Purple Haze - Bergen (2018) Single [MP3|320 Kbps] <Electronic, Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695065.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Purple Haze - Bergen (Extended Mix) (05:26)Жанр: Electronic, Trance, Progressive TranceПродолжительность: 00:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C76A8A5DCB8D54AFA8E444D3CB215075095A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027632   (694845) от 20.06.2016
-
-VA - Funk City Vol 1 (2016) [MP3|320 кб/с] <Funky, Disco, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - Stand Up (4:41)
-02. Audio Jacker - Gimme Gimme (8:10)
-03. Funkstar - Turn the Beat (5:31)
-04. Serial Thrilla - Get Down (5:53)(   Читать дальше...   )Производство: Tasty RecordingsЖанр: Funky, Disco, Nu-DiscoПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA69AF00519E9293A9EEE38D5CF865449C1FCAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

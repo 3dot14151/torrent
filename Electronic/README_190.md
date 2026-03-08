@@ -1,3 +1,59 @@
+###  Публикация: 1220162   (708239) от 17.04.2018
+
+VA - The Best Of JamX & De Leon (Edits & Album Specials) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Binary Finary - 1998 (JamX & De Leons)
+02. DuMonde - Tomorrow (Edit)
+03. DuMonde - See the Light (Special)
+04. DuMonde vs Lange - Memory Jamx & De Leon Mix (Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F50E7E3AEBA9CDCF54389E878C5DC3C0D00A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025848   (708216) от 13.06.2016
+
+Jerome Froese - Far Side of the Face (2012) [MP3|320 кб/с] <Electronic, Ambient, New-Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight Of Fancy 05:53
+02. Novembernauts 14:19Жанр: Electronic, Ambient, New-AgeПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807D1F0E2BBFD598DFAC5DEE30DF3484E608B57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025885   (708206) от 13.06.2016
 
 VA - Island Moods Nu-Disco Chill (2016) [MP3|320 кб/с] <Deep House, Nu-Disco, Chill>
@@ -685,64 +741,6 @@ Marsheaux - Inhale (Remixes) (2019) Undo Records Ltd. [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DB216E3985B9347AE7D1D4AB632234CB97F35CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999662   (705206) от 06.03.2019
-
-Matteo Zini (Opium, Nosesoul) - Discography 11 Releases (2000-2011) Practising Nature, Databloem, Silentes [FLAC|Lossless|tracks+.cue] <Experimental, Ambient, Drone, Glitch, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Shades (08:01)
- 02. Outside Is Light (07:42)
- 03. Vocation In Motion (07:02)
- 04. Wind Harps And Human Shadows (09:38)(   Читать дальше...   )Тип издания: CDЖанр: Experimental, Ambient, Glitch, Drone, Field Recording, Abstract •Продолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612AC640F5C1F754FC2CAF3AA8D0B9F3E331B9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287086   (705203) от 06.03.2019
-
-Morcheeba - Blaze Away (2018) Fly Agaric Records [FLAC|Lossless|tracks + .cue] <Electronic, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Never Undo (3:45)
- 02/10. Blaze Away (featuring Roots Manuva) (4:04)
- 03/10. Love Dub (3:49)
- 04/10. It's Summertime (3:39)(   Читать дальше...   )Жанр: Electronic, Trip-Hop, DowntempoПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE44CA123AED2894787036C19E0CFA819073627
 ```
 
 https://mybot314.ru/tekegram_catalog/

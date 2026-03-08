@@ -1,3 +1,119 @@
+###  Публикация: 1827776   (193287) от 23.10.2025
+
+VA - Anything and everything assorted part 7 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Besso - Pulse
+02 - Azimov - Long Night
+03 - Elno - More Time
+04 - Mr Salama - Touch Me(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40EA42E7A76A39CF1501904D0F2FF8309AADFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827774   (193286) от 23.10.2025
+
+VA - Anything and everything assorted part 6 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Retrox - Whispers By the Shore
+02 - Dndm - Gray Night
+03 - Dova Music - Empty Heart
+04 - Umar Keyn - Like a Titanic(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93B5971232A0818E604E0FD91F9B0D835187D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827773   (193285) от 23.10.2025
+
+VA - Anything and everything assorted part 5 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Davvi - I Loved You Once
+02 - Dova Music - Dream Without End
+03 - Rodle - Lost You
+04 - Dova Music - Love Love(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48CF5D69AF76754382E20F0CC8F33873F5C33708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827766   (193273) от 23.10.2025
+
+VA - Anything and everything assorted part 4 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, AI, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Umar Keyn - My Love From the Past
+02 - D-Beats - Don't Сry
+03 - Dova Music - Without You
+04 - Xezzo - I Miss You(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202E5AF84E477CD6A12D2CF482C81C46D8FFDB95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586817   (193258) от 29.10.2022
 
 VA - Now That's What I Call 12 70s (2022) MP3[320 Kbps] <Hip-Hop, Rock, Funk, Soul, Pop>
@@ -626,122 +742,6 @@ VA - В машине с музыкой Vol.318 (2022) MP3 [320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA29E80026A0FE642E7D56DC55D2B80931FEE7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590638   (188644) от 14.11.2022
-
-VA - Dance Hits of the outgoing year (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188644.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta - I'm Good (Blue) (2:57)
-002. James Hype - Ferrari (3:05)
-003. Elton John - Hold Me Closer (3:24)
-004. Lost Frequencies - Where Are You Now (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A837AACD71BD86710CE21A52C9EA01C38EB4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661623   (188460) от 15.09.2023
-
-VA - Music News vol.298 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marina Marx - It's My Life (03:39)
- 002. 4EREDA - Никотин (02:39)
- 003. 5УТРА - В Темноте (02:30)
- 004. Adil - Купидон (02:28)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964C8D3ED2E53501FBE6A9249852725AE9133143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591033   (187694) от 16.11.2022
-
-VA - Sexy Bath 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - After Hours (6:01)
-02. Ezhel - Küvet (5:01)
-03. Rihanna - Loveeeeeee Song (4:56)
-04. Cigarettes After Sex - Apocalypse (4:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1E8232E57FE92D27888CCD30DD61C6DC2EF2B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662415   (187419) от 19.09.2023
-
-Kerala Dust - Compilation (2023) [MP3|320 Kbps] <Experimental, Blues House, Deep House, Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187419.jpg" />
-</div>
-
-
-###  Подробнее
-
-02. Kylie
-03. Maria
-04. Moonbeam, Midnight, Howl
-05. Night Bell (Arizona)(   Читать дальше...   )Жанр: Experimental, Blues House, Deep House, DowntempoПродолжительность: 01:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D00C4906097188B207DFBAB0639941733FFDF90
 ```
 
 https://mybot314.ru/tekegram_catalog/

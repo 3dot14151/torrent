@@ -1,3 +1,32 @@
+###  Публикация: 1366285   (924121) от 11.03.2020
+
+VA - Machine Prototype 13 (2020) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ernesto Ortega - Deep Thought (Joe De Renzo Remix) [06:15]
+02. Big Bunny - Atom (Sergii Petrenko Remix) [06:40]
+03. DJ Ex - Soze Ngiphinde (feat. Imasterz) (Radio Edit) [03:25]
+04. Denys Victoriano - Piece Of Your Heart (Radio Edit) [03:18](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04E3678EFB2088A514EF32CBF62B03C1DFB53D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095846   (922877) от 22.01.2017
 
 VA - Black Hole House Music 01-17 (2017) [MP3|320 Kbps] <House, Progressive, Vocal>
@@ -716,35 +745,6 @@ VA - Deep Balearic House Music Vol.1 (2016) [MP3|320 Kbps] <House, Deep House, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CF031D3E4CF98404CA1CA03CEA2A6B59FA96071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098772   (908751) от 30.01.2017
-
-VA - Body Language Vol.2 (Dive Into The Magic Of Deep House) (2017) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - My Cocoon (Tom Leeland remix) 05:40
-02. Florito - Balearic Air (Beach Bar mix) 06:11
-03. Miss Luna - Love Peace & Happiness (Florito mix) 04:57
-04. Tom Appl - Downtown (Christos Fourkis remix) 05:14(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1C940100CB48B262AEBD8B2DE6B7466DE4433B
 ```
 
 https://mybot314.ru/tekegram_catalog/

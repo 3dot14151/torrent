@@ -1,3 +1,177 @@
+###  Публикация: 1308998   (552930) от 17.06.2019
+
+VA - The Untouchables: Punk Rock Meeting (2019) [MP3|320 Kbps] <Punk, Rock Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552930.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rise Against - Wolves
+002. Bury Mia - Clocks Slay Time
+003. High Signs - A Much Larger Ocean
+004. Rkx - Just Let Me Know(   Читать дальше...   )Жанр: Punk, Rock PunkПродолжительность: 08:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E9C302248BCAFE5395D911B8688F448811C30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046200   (552923) от 26.08.2016
+
+VA - Relax with Electro Jazz (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Dorricott - Paris Back Streets
+02. Morris Lionel - Again
+03. Eddie Caldwell - Smooth
+04. Leon Ayers Jr - Head Spinning(   Читать дальше...   )Жанр: JazzПродолжительность: 01:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6AB539377BDE70F72FC3A7689F6D27F213E600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046260   (552915) от 26.08.2016
+
+VA - Ballads - Let Your Heart Sing (2016) [MP3|320 Kbps] <Gospel, R&B, Pop Rock, Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - Saving All My Love for You.mp3
+02. Kelly Clarkson - Because of You.mp3
+03. Tom Odell - Another Love.mp3
+04. Alicia Keys - If I Ain't Got You.mp3(   Читать дальше...   )Жанр: Gospel, R&B, Pop Rock, FolkПродолжительность: 04:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE52BBE826EDD31A61178F5C0D6B41043509CB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046183   (552911) от 26.08.2016
+
+VA - Хиты летние за рулем. Версия 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552911.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olivia Holt - Phoenix
+002. Анита Цой - Без Вещей
+003. Е2 Знакомы - Мама
+004. Pitbull Feat. Becky G - Superstar(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66648C2E80C922F3F598D66037F0C07A093F2785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046187   (552904) от 26.08.2016
+
+VA - TOP летние хиты на Русском радио. Сборник 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552904.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Златаслава - Подруга Моего Детства
+002. Quest Pistols - Непохожие
+003. Коля Dev - Неба Не Надо
+004. Tiger Family - Доза Витамина(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5AD7153003DF605BD960C75A55E740E1AEF4407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309021   (552813) от 17.06.2019
+
+VA - Caught In The Wind (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552813.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Manic Street Preachers - Concrete Fields
+002. Los Lobos - Tears Of God
+003. Slade - My Oh My
+004. Flame - Razor Blade Road(   Читать дальше...   )Жанр: RockПродолжительность: 09:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93F30EF4C747F0F91F75B1A7DA481A99D57CEB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309089   (552800) от 17.06.2019
 
 VA - Radio DFM Top D-Chart Июнь 2019 (2019) [MP3|320 Kbps] <Pop, House, Dance>
@@ -574,180 +748,6 @@ VA - Дискотека 2016 Dance Club Vol. 155 от NNNB (2016) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD67A6BF4E2AAA165F3677175E0987267D5760F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046999   (551242) от 28.08.2016
-
-VA - Mainstage Festival Front EDM (2016) [MP3|160-320 Kbps] <Tropical, Funky, Club, Hands Up, Dancecore>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block & Crown - Champion Bounce (Original Mix) 05:24
-02. Alex Reger - Breakdown 04:18
-03. Charlie Nathan, Papos Brake - Regeneration (Original Mix) 04:42
-04. David Penn - A Different Story (Original Mix) 06:16(   Читать дальше...   )Жанр: Tropical, Funky, Club, Hands Up, DancecoreПродолжительность: 07:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B5821B2F9AD122A8CC4C7BD7ABE062A8C25ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046807   (551170) от 28.08.2016
-
-VA - Orchestral Trance 33 Beautiful Emotion (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Epic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New World  -  Ushio (Emotional Intro Mix)  9:24
-02. Luuk Goossen  -  Hazel Paradise (Intro Mix)  8:13
-03. Dreamy  -  Clover (Intro Mix)  10:05
-04. Mhammed El Alami & Illitheas & Johannes Fischer  -  New Rise (Intro Mix)  8:42(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Epic TranceПродолжительность: | 04:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3A6364EDD635EB8A94C9C45B4C272245E9CC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047062   (551103) от 28.08.2016
-
-VA - Trance House Season Fillers (2016) [MP3|320 Kbps] <Trance, House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551103.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. APD  -  Inscribe (Giuseppe Ottaviani Remix)  7:08
-002. Omar Sherif feat. Crystal Blakk  -  Hear You Calling (Extended Mix)  7:08
-003. Richard Durand Ft. Simon  -  Always The Sun (Ahmet Atasever Remix)  7:20
-004. Matt Bukovski & Andy Elliass  -  Sphinx  6:40(   Читать дальше...   )Жанр: Trance, House, Melodic, Progressive, ClubПродолжительность: 19:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77030190AD7EF42BCB7ADD8CB106FE4E69134C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046876   (551099) от 28.08.2016
-
-VA - Absolute Dance Summer Party 2016  (2016) [MP3|320 Kbps] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies - Are You With Me
-02. Dj Snake (Feat. Bipolar Sunshine) - Middle
-03. Martin Solveig & Gta - Intoxicated (New Radio Mix)
-04. Major Lazer Feat. Nyla & Fuse Odg - Light It Up (Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 03:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5CAFBF45204D4A5B9B4D9877748DB3909A0DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046965   (551094) от 28.08.2016
-
-VA - Осенний дискач №1 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551094.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юля Шатунова - Мечты Сбываются
-002. Дима Масюченко Feat. Энвер Каримов - Ты Такая Разная
-003. Bjorn & Tom Bailey - Fade Into You
-004. Градусы - Вали Гуляй(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89A6D00D95899148DE58C89D086B6CC7CBCD77F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047055   (551089) от 28.08.2016
-
-VA - Club Dance Ambience Vol.84 (2016) [MP3|320 Kbps] <Dance, Club, Club House, House, Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551089.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Akcent - Jokero (Rich-Mond & Ilya Kizh Remix)
-002.Alan Walker - Sing Me To Sleep (DJ Oneon Remix)
-003.Alex Megane - Summer of Our Life (Summerheat Mix)
-004.Alex Megane - Summer of Our Life (Summerheat Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, Club House, House, Electro House, ElectroПродолжительность: 08:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC6F85D8F258979FF72915D75E9C8F7E744DC0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

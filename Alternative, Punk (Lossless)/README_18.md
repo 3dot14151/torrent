@@ -1,3 +1,32 @@
+###  Публикация: 1282668   (742539) от 14.02.2019
+
+Our Girl - Stranger Today (2018) Limited Edition 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Girl (3:27)
+02. Being Around (2:43)
+03. In My Head (3:48)
+04. I Really Like it (3:54)(   Читать дальше...   )Жанр: Indie Rock, Shoegaze, GrungeПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9B346349960B41F1E94223C393CC9C89F9328B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282672   (742533) от 14.02.2019
 
 Last Dinosaurs - Yumeno Garden (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock>
@@ -713,35 +742,6 @@ Au Pairs - Sense And Sensuality (1982) Remaster, 2002, Castle Music [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20D6FFCF41C3F55F69DE880E1F7DCAC925D11609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284199   (728972) от 21.02.2019
-
-Golden Daze - Simpatico (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Psychedelic, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Bell (03:45)
-02. Amber (03:17)
-03. Flowers (03:04)
-04. Took a Fall (03:17)(   Читать дальше...   )Жанр: Indie Pop, Psychedelic, AlternativeПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262D15AA95F809E948529E906D1EB4779C41C0A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

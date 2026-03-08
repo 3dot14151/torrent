@@ -1,3 +1,61 @@
+###  Публикация: 1072585   (352614) от 13.11.2016
+
+VA - Greatest Kitts Vol.4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonwalk - Breath (original mix) [07:08]
+02. Phil Fuldner - Needin' Someone (Sascha Braemer remix) [07:57]
+03. Juliet Sikora - Larrys Garage (original mix) [06:03]
+04. Tube & Berger - When They Come (original mix) [06:20](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6EB9D2A838C5F48F5912DC2B8BDD78996E3F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072669   (352609) от 13.11.2016
+
+VA - Best City Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillelektro – Punta Roja (05:56)
+ 02. Oscar Salguero – Strings (03:58)
+ 03. Cane Garden Quartet – Out With Friends (05:21)
+ 04. Alexander Dancaless – Coffee Morning (02:36)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E540C402D7E083AD583A9DB04528A62053087B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072416   (352608) от 13.11.2016
 
 VA - Premier League Lounge: Groovy Cool and Smooth Sounds for Easy Listening (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -684,64 +742,6 @@ Ela Minus - acts of rebellion (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1678C9A79B433DA888F85CE37C8F9DF84D15E3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417303   (351352) от 23.10.2020
-
-The Midnight - Horror Show (Instrumentals) (2020) [FLAC 2.0|24/48|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stranger (Instrumental) (1:43)
-02. Ghost in Your Stereo (Instrumental) (4:10)
-03. Neon Medusa (Instrumental) (5:05)
-04. Devil Make a Deal (Instrumental) (4:57)(   Читать дальше...   )Жанр: Synthpop, Synthwave, DreamwaveПродолжительность: 00:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C60C6C98E48ADAA7C730FFF3570DA6E8ADAD68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417294   (351220) от 23.10.2020
-
-The Midnight - Horror Show (2020) EP [FLAC 2.0|96/24|tracks|WEB-DL] <Synthpop, Synthwave, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stranger (1:43)
-02. Ghost in Your Stereo (4:10)
-03. Neon Medusa (5:05)
-04. Devil Make a Deal (4:57)(   Читать дальше...   )Жанр: Synthpop, Synthwave, DreamwaveПродолжительность: 00:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE2F9F457B74ACF2321658827ED9B451D702FB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1352468   (1001084) от 14.01.2020
+
+VA - Pansperman: Renegade Techno Master Top 100 (2020) [MP3|320 Kbps] <Techno, Electronic, Minimal, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001084.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Interferon - Poison Barbs (Original Mix)
+002. Chevda - Acid Drivel (Original Mix)
+003. Dan Only - Emulsion
+004. Fixon - Natural Beauties(   Читать дальше...   )Жанр: Techno, Electronic, Minimal, EDMПродолжительность: 10:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDE973ABBFE5F4130AAB69076FFDE3A6B26E7FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352478   (1001082) от 14.01.2020
 
 VA - Start A New Day: Trance Mix (2020) [MP3|320 Kbps] <Trance, Electro, Progressive, Uplifting>
@@ -805,37 +834,6 @@ VA - Christmas Carol: Lounge Interior Sound (2020) [MP3|320 Kbps] <Lounge, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:916649CD5EF6F4DD585946054EC64E5473D92BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608313   (991306) от 28.01.2013
-
-VA - Club Dubstep №25 - Dubstep №25 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benga Feat. Katy B -Katy On A Mission (Trainrek Remix) (04:15)
-02. Boy Kid Cloud -How It Looks (Doctor P VIP) (03:52)
-03. Delta Heavy -Overkill (Zifra vs Fi-Chek Remix) (04:48)
-04. Devin Martin -The Armory (Original Mix) (03:51)
-05. Document One, Tigerlight -Already LostTIT4 (06:10)
-06. DotEXE -38 Degrees (04:18)Жанр: DubstepПродолжительность: 01:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D758D1FA644F44F610B896055D96A2DB19E007F
 ```
 
 https://mybot314.ru/tekegram_catalog/

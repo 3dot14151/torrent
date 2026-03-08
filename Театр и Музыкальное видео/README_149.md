@@ -1,3 +1,32 @@
+###  Публикация: 265073   (47188) от 11.08.2024
+
+Chickenfoot - Get Your Buzz On Live (2010) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chickenfoot объединяет таланты бывших участников группы Van Halen Сэмми Хагара (гитара и вокал) и Майкла Энтони (бас), барабанщика Red Hot Chilli Peppers Чеда Смита и легендарного гитарного героя Джо Сатриани. Собравшись вместе в конце 2008 года, они выпустили свой одноименный дебютный альбом весной 2009 года, получив единодушное признание критиков и впечатляющие (   Читать дальше...   )01. Avenida Revolution
+02. Sexy Little Thing
+03. Soap On A Rope
+04. My Kinda Girl(   Читать дальше...   )Жанр: Hard RockФормат: DVD videoКачество: DVD9Продолжительность: 01:36:44 + 00:01:50 + 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C33A696C927643A3AD6D63590517B372A25FD78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 83128   (47182) от 11.08.2024
 
 Def Leppard - Historia: In the Round In Your Face (2001) DVD9
@@ -697,35 +726,6 @@ Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6515EC24E1EEDCBED3BAE2B9BA1B20397CF55588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285534   (46651) от 16.08.2024
-
-Grand Funk & Mark Farner (2005) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46651.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом диске собраны ранее не издававшиеся видео материалы, а также пиратские записи концертов и выступлений (бутлеги).Жанр: RockУчастники: Mark Farner
-Don Brewer
-Mel Schacher
-Craig Frost(   Читать дальше...   )Продолжительность: 0:55:17 + 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA45CC4AD4F07714EFF97A8144F5A690B7B457DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

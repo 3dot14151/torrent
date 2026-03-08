@@ -1,3 +1,32 @@
+###  Публикация: 819073   (1004654) от 31.07.2021
+
+ZZ Top - Live At Montreux 2013 (2014) BDRip [720p] [hand made 60fps]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа ZZ Top несколько раз выступала в Монтрё на знаменитом The Montreux Jazz Festival, и этот блю-рэй был сделан на материале выступления 2013 года. В концерт вошли как уже хорошо известные композиции вроде "Gimme All Your Lovin'", "Sharp Dressed Man", "Legs", так и две новых вещи "I Gotsta Get Paid" и "Chartreuse" (   Читать дальше...   )01. Got Me Under Pressure
+02. Waitin’ For The Bus
+03. Jesus Just Left Chicago
+04. Gimme All Your Lovin’(   Читать дальше...   )Жанр: hard rock, blues-rock, jazz-bluesПродолжительность: 01:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51DF6F9F3270E1D7E8AC9DC893E941C475A791D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349444   (1004429) от 01.01.2020
 
 Квартирник НТВ у Маргулиса. Новогодний выпуск (31.12.2019) WEB-DL [H.264/1080p-LQ]
@@ -699,32 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:234A495D578564E1A3364BDDE0DC68E40E22FCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740802   (985721) от 01.01.2014
-
-Дискотека 80-х (2014.01.01) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985721.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Дискотека 80-х" - яркое и захватывающее шоу, ультрасовременная сценография, оригинальные творческие находки и, конечно же, незабываемая встреча с кумирами. Двадцать звездных имен, двадцать лучших, по мнению слушателей и команды радиостанции "Авторадио": Rick Astley, Ten Sharp, Sandra, Alphaville, Tomas Anders, Boney M, F.R. David, Pupo, Joy, (   Читать дальше...   )Жанр: КонцертАктеры: Олег Газманов, Игорь Николаев, Сергей Минаев, Владимир Маркин, Мираж, OttawanПродолжительность: 03:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8746B805BC24D0575141779DB20080033D7B4E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

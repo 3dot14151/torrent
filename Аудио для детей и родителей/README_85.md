@@ -1,30 +1,3 @@
-###  Публикация: 346758   (132896) от 02.12.2023
-
-ТВИК-ЛИРЕК | Золотая коллекция сказок. Сказки стран Европы (2006) [MP3, Валерия Коваленко и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Золотая коллекция сказок.
-В аудиокнигу вошли народные сказки Европы, известные во всём мире. Добрые и поучительные сказки в исполнении актёров: Валерии Коваленко, Любови Чекмарёвой, Владимира Смирнова, Сергея Бурлакова.Жанр: Зарубежная литература для детей, сказкаИздательство: ТВИК-ЛИРЕКПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1485872886FD8712214BD03C9D8352C78684491E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 417326   (132895) от 02.12.2023
 
 ТВИК-ЛИРЕК | Золотая коллекция сказок. Мужик и медведь (2006) [MP3, Галина Лебедева, Алексей Ковалев]
@@ -713,6 +686,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D81951171732FB1067F764C1F652DEDFE640E277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596145   (131954) от 29.12.2012
+
+VA - Disneys Greatest Hits (3CD) (2005) [MP3|320 кб/с]<Soundtrack>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131954.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Disney Chorus - Yo, Ho! (A Pirate's Life for Me) |From Pirates of the Caribbean of ...| (2:40)
+ 2. Connor Funk/Haley Joel Osment/Mae Whitman - Jungle Rhythm |From the Jungle Book 2| (3:05)
+ 3. Gregory Novack/Mike Sammes Singers/Robie Lester/Susan Novack/Victor Sweler - Scales and Arpeggios |From the Aristocats| (1:44)
+ 4. Angela Lansbury/Beautiful Briny Band/Dave Tomlinson - The Beautiful BrinyЖанр: SoundtrackПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D3C44B2C148DF90CCB2DDE86B74FF9398E3486
 ```
 
 https://mybot314.ru/tekegram_catalog/

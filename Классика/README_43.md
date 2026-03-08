@@ -1,3 +1,32 @@
+###  Публикация: 1338767   (268122) от 17.11.2019
+
+Opera Babes ‎ - Beyond Imagination (2002) [FLAC|Lossless|image + .cue] <Classical Crossover, Modern Classical, Electronic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Fine Day (Un Bel Di From Madame Butterfly) (3:01)
+02. Sempre Ricordo (Grieg Piano Concerto In A Minor) (5:23)
+03. There's A Place (From The New World Symphony) (4:37)
+04. Beyond Imagination (From A Midsummer Night's Dream) (5:04)(   Читать дальше...   )Жанр: Classical Crossover, Modern Classical, ElectronicПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4FB9999F292314950AAC208EABD35D6B6EC5F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338552   (266082) от 19.11.2019
 
 Peter Hahn & Anna Maria Kaufmann - CD2 Opera (2010) [FLAC|Lossless|image + .cue] <Opera>
@@ -771,41 +800,6 @@ Armin van Buuren - Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9F4AC3FB16DCCBFDF1F7DB535A20A7C93E56A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495526   (251372) от 12.05.2012
-
-Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Neoclassical, Martial Industrial>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Amerika (04:05)
-02. Black Sun (04:25)
-03. Flamme Empor (03:05)
-04. Beinhaus (04:39)
-05. Pingo (03:49)
-06. Richards Lied (03:43)
-07. Them (04:15)
-08. Tripod (03:25)
-09. Dismembered Memories (06:09)
-10. Blood (04:45)(   Читать дальше...   )2007Жанр: Apocalyptic Folk, Neoclassical, Martial IndustrialФормат: CD, Album, Limited EditionПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

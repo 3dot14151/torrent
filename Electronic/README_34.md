@@ -1,3 +1,61 @@
+###  Публикация: 1202479   (1025738) от 18.03.2021
+
+Docetism - Discography 39 Releases (2012-2021) Nichts [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Field Recording, Dub, Drone>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Woods (03:41)
+ 02. Putrefactio (04:49)
+ 03. Heart Of The Wilderness (08:15)
+ 04. There Is Nothing Left (06:00)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Dub Techno, Field Recording, Dub, Drone •Продолжительность: 21:37:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44F189709009BC9D215BF477571EA9B372E6F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344983   (1025729) от 18.03.2021
+
+Northern Electronics - Label-Pack 77 Releases (2013-2021) [FLAC|Lossless|tracks] <Experimental, Ambient, Techno, Noise, Industrial>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Path Of Devotion (03:24)
+ 02. Being Water (06:02)
+ 03. The Norns Of Fate (01:42)
+ 04. Practices For Dying (06:07)(   Читать дальше...   )Жанр: Experimental, Ambient, Techno, Noise, Industrial •Продолжительность: 51:19:31 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1448D363B5E137D587D514A49198A5322FF012A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 214244   (1025712) от 18.03.2021
 
 VA - Книга джунглей / Jungle book (1997 + 2000) [Том I FLAC + Том II APE |Lossless]<Jungle, Broken Beat, Acid>
@@ -679,64 +737,6 @@ James Church (Lucidstatic, Pandora's Black Book, Static Logic) - Discography 41 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:626FC2A2F103E65ACFF97C800646BD3B5506ABCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457702   (1024436) от 26.03.2021
-
-VA - Schneeweiss 12 (Presented by Oliver Koletzki) - 2021 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malandra Jr. - Illusion
-02. Deckert, Studio Apartment, Like Lovers - In the Unknown
-03. Julian Wassermann - Doppler
-04. Le Croque, Robert Owens - The Need(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D1CB5049C3AAB1CEB6E26FF7DA693FB13FB734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457460   (1024433) от 26.03.2021
-
-VA - Midnight Walk: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup - Something to Say (04:18)
-02. Chris Le Blanc - Debussy En Es Vedra (Salinas Mix) (04:22)
-03. Marie Therese - Massive in My Head (03:58)
-04. Pier-O - Midnight Walking at Le Pont Des Arts (05:03)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACCE35ADAC6FB496B2E3D9B1A3148C912B63D71
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 940948   (464760) от 26.09.2015
+
+VA - Ultimate Sexy Beats Vol. 1 (2015) [MP3|320 кб/с]<Drum & Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Vantigo - Empty Dreams (Original Mix) (4:05)
+02. Alex Weedster - Hold For You (Original Mix) (5:45)
+03. BQ - To The Storm (Original Mix) (5:25)
+04. Centaurus B - Assassins Never Miss (Original Mix) (4:03)(   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 01:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1C3123C9B1B01D0BC62A27CB7B21A722E6207F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059026   (464471) от 03.10.2016
 
 VA - Beatport Trance Pack (02.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
@@ -728,35 +757,6 @@ VA - Erotique Lounge (Finest Chill Out & Lounge Grooves Vol 1) (2015) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3FB8CAD1F164E7E11F9CBC68A00ADD85549A219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568656   (459763) от 09.08.2022
-
-VA - Toolroom Killer Cuts (2022) [MP3|320 Kbps] <House, Tech House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illyus & Barrientos - Sublime (Extended Mix)
-02. Leftwing : Kody - Mallet (Extended Mix)
-03. LOVRA, Hugel - Madonna (Extended Mix)
-04. Astrotrax, Martin Ikin, Shola Phillips - Feel The Vibe feat. Shola Phillips (Extended Mix)(   Читать дальше...   )Жанр: House, Tech House, ClubПродолжительность: 04:56:33 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE369815BBD633E50C6BA73E42C659A96ECAD70
 ```
 
 https://mybot314.ru/tekegram_catalog/

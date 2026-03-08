@@ -1,3 +1,177 @@
+###  Публикация: 1439291   (1040116) от 12.01.2021
+
+VA - Forever Love: Syntpop Mix (2021) [MP3|320 Kbps] <Synthpop, Electropop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лонгплей будет интересен не только тем слушателям, которые хотят просто послушать качественную и популярную музыку, но и тем кто находится в поисках чего-нибудь необычного и непохожего на основную массу электронной музыки.01. Phonon - 1469 (Original Mix)
+02. Irrlicht - Neuland
+03. Latin Lover - Casanova Action
+04. Blaqk Audio - Consort(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 05:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83489E28E7E2C890E08DC5D6C9BB2766D09ACC0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439294   (1040110) от 12.01.2021
+
+VA - Flowers Chillout Mix (2021) [MP3|320 Kbps] <Chillout, Ambient, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая и спокойная музыка, которая идеально подойдет для путешествия с Вашим любимым человеком. Музыка будет отличным фоном для проявления Ваших чувств и создания романтической обстановки.001. Blaxed - River Of Gold
+002. Grabil - Citron
+003. Align Feat. Jenni Potts - Reflections
+004. Danny Evo - Happy Holidays(   Читать дальше...   )Жанр: Chillout, Ambient, Lounge, DowntempoПродолжительность: 08:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E04D772696EF5B4377C52AB82A1B1B18179E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439161   (1040060) от 12.01.2021
+
+VA - Rap NNM 2021 (Русский Выпуск 3) [MP3|320 Kbps] <Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3EED - Игра (1:45)
+02. 5УТРА - Рядом (3:05)
+03. 6IXMANE - WiFi (1:27)
+04. Aarne Platina - Ne v tuse 71591967 (1:53)(   Читать дальше...   )Жанр: RapПродолжительность: 04:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3CB6BEAFCD373BA6364244A90092F86B4B5B296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613252   (1039660) от 18.02.2023
+
+VA - The Drum Sound Immersion (2023) [MP3|320 Kbps] <DnB, Bassline, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039660.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sharlene Hector - Life
+002. State Of The Nation - Super Soldier
+003. Frenquency - Fruity
+004. Stuss - Roses(   Читать дальше...   )Жанр: DnB, Bassline, Jungle, ElectroПродолжительность: 11:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C96547D2367B6102D13DC91FD93CBF52AE2069DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613258   (1039631) от 18.02.2023
+
+VA - Keep On Dancing: Dance Disco Party (2023) [MP3|320 Kbps] <Dance, Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039631.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mindbuster - A Little Miracle
+002. Aldo Lesina - Castles & Dungeons
+003. Alan Strani - Vita Digitale
+004. Kristoff Mx - Keep On Dancin(   Читать дальше...   )Жанр: Dance, Disco, PopПродолжительность: 12:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B851F481ACC7A9D5891BB011762E42AE4C352CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613437   (1039625) от 18.02.2023
+
+VA - After Work: Weekends Friends Party (2023) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039625.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roger Sanchez - 2Gether
+002. Nooneknowsandy - Dream Circle
+003. A Mase - Love Story
+004. Thaylo - Best Of Mind(   Читать дальше...   )Жанр: Dance, Club, House, ElectroПродолжительность: 11:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDEEF18246D02B0DCE227D3525534BEEAFB3F974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612606   (1039621) от 18.02.2023
 
 VA - Музыка для машины Vol.8 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -571,180 +745,6 @@ VA - Relax Collection 7 - Гармония Тишины (2009) [MP3|320 Kbps] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:970971B82FDC76997C884055DC1C370F0E2C9B84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614457   (1038568) от 22.02.2023
-
-VA - Music News vol.247 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038568.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beatrice Dragnea - Adorm Plangand (03:03)
- 002. 84 feat. Tet Baby - Голая (02:17)
- 003. Aggre feat. Seshbaby & Диди - Звезды (02:46)
- 004. Aili - Химия (02:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024B3510BE9771FF6778A6FE92F2594E61DF96CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440483   (1038459) от 18.01.2021
-
-VA - Acoustic Covers 2021 [MP3|320 Kbps] <Pop, Instrumental, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaron Krause, Liza Anne - Every Breath You Take (3:43)
-02. Adam Levine - Lost Stars (4:27)
-03. Adele - Turning Tables (4:10)
-04. Wyvern Lingo - Passionfruit (3:32)(   Читать дальше...   )Жанр: Pop, Instrumental, OtherПродолжительность: 03:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F4A2707B9347614C4ECA9A908268D416AD56E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440616   (1038408) от 18.01.2021
-
-VA - Наше Радио. Лучшее '2020 (2021) MP3 от DON Music [MP3|320 Kbps] <Русский Рок>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038408.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ночные Снайперы - Казино
-002. Мумий Тролль - Тот день когда
-003. Сплин - Джин
-004. Lumen - Электричество(   Читать дальше...   )Жанр: Русский РокПродолжительность: 07:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416499D96F262FCDE5B1EE724F8E5F8E5561726C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440904   (1038290) от 19.01.2021
-
-VA - Hard Dance Motion (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038290.jpg" />
-</div>
-
-
-###  Подробнее
-
-С треками сборника "Hard Dance Motion" Вы можете наслаждаться духом настоящего андерграунда. Стиль прогрессивного хардстайла, который соединил в себе всё самое лучшее из техно и клубного хауса остаётся и поныне одним из самых популярных направлений электронной музыки.001. Kors K - Outro
-002. Cygnus X - Superstring
-003. Mystical Mind - Desire (Radio Edit)
-004. Starfall - Believe(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, ElectroПродолжительность: 07:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36328CFD426552D01F07BF70B1276FC23BABB60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440905   (1038275) от 19.01.2021
-
-VA - EDM Free Style (2021) [MP3|320 Kbps] <Electro, Dance, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка, вошедшая в микс "EDM Free Style" обладает своей атмосферой, превосходной динамикой и немалой долей оригинальности. Если вам нравятся не ординарные и свежие стилистические решения, то треки лонгплея смогут показать вам свои по-настоящему свежие мысли в привычном стиле танцевальной музыки.001. Van Storck - I Bet You Do
-002. Corona - Baby, I Don't Care
-003. Minupren - Regenbogen
-004. Midnight Cvlt - One Shot(   Читать дальше...   )Жанр: Electro, Dance, Club HouseПродолжительность: 11:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D868F09080D52CDDD756028B4315D784A6CEACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440888   (1038259) от 19.01.2021
-
-VA - Vocal Chillout: Move With The Beat Vol.02 (2021) [MP3|320 Kbps] <Vocal Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лонгплей "Vocal Chillout: Move With The Beat" с уверенностью можно назвать чрезвычайно "пластичной" работой. Все треки на пластинке крайне медленны и обтекаемы, тем самым на лонгплее главенствует релаксовое настроение, сравнимое с самой настоящей нирваной.001. Dee C'rell - Whodoo
-002. Frozenax3 - Forever
-003. Gareth Emery - Gunshots
-004. Tuneberg - Amazing Grace(   Читать дальше...   )Жанр: Vocal ChilloutПродолжительность: 08:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B666DF3F4B865AA597736B3CD182A00F7B23F988
 ```
 
 https://mybot314.ru/tekegram_catalog/

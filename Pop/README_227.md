@@ -1,3 +1,61 @@
+###  Публикация: 1257127   (347779) от 25.10.2018
+
+Bryce - Best Of (2018) [MP3|320 Kbps] <Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Megamix (Edit)
+02. We're In Heaven (Radio Edit)
+03. Bryce Ft. J-Malik - Body Rock (Radio Edit)
+04. Bryce Ft. Nitro - Weekend (Radio Edit)(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 01:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A32721233A8DBC3D249C0ED5F93F6ABFFA09F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257040   (347772) от 25.10.2018
+
+Устинья Малинина - Влюбишься (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Влюбишься (3:17)
+02. Без тебя (3:56)
+03. Непобедимы (3:40)
+04. Зима (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB44A1629BC0A8CFA1B2E6238A11A94654D488CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257253   (347617) от 25.10.2018
 
 Agnetha Faltskog - I Stand Alone (1987) [FLAC|Lossless|image + .cue] <Pop>
@@ -682,64 +740,6 @@ Little Mix - Get Weird (2015) The Deluxe Edition [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5665DBB00E2ED4A15F47B00E6FAEF939425D0F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954003   (344271) от 06.11.2015
-
-Anastacia - Ultimate Collection (2015) [MP3|320 кб/с]<Pop-Rock, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Outta Love 04:04
-02. Left Outside Alone 04:18
-03. Sick and Tired 03:30
-04. Paid My Dues 03:21(   Читать дальше...   )Жанр: Pop-Rock, R&B, SoulПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398D2EC4D312F61DDDB732E3727397C0E78263E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954038   (344270) от 06.11.2015
-
-Seal - 7 (2015) [FLAC|Lossless|WEB-DL]<Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight Saving
-02. Every Time I'm With You
-03. Life On The Dancefloor
-04. Padded Cell(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621DBB4BA7B6986481D4FE948D66BF058FA2316E
 ```
 
 https://mybot314.ru/tekegram_catalog/

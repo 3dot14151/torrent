@@ -1,3 +1,58 @@
+###  Публикация: 605635   (995662) от 20.01.2013
+
+David West Feat. Andreas Hermansson - Larry Mountains 54 (2005) [FLAC|Lossless]<Deep House, Progressive Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Larry Mountains 54 (Original Mix) (8:43)
+02.  Larry Mountains 54 (Inkfish Remix) (7:32)Жанр: Deep House, Progressive TranceПродолжительность: 00:16:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606654   (995263) от 21.01.2013
+
+Cathy Battistessa - Une Nouvelle Humanite (2012) [FLAC|Lossless]<Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Une Nouvelle Humanite (The Rurals Remix) 7:54
+02. Une Nouvelle Humanite (Andy Compton's PENG Mix) 7:08
+03. Une Nouvelle Humanite (Da Capo's Touch) 7:29Жанр: Deep HouseПродолжительность: 00:22:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605538   (995174) от 21.01.2013
 
 VA - Cafe Bossa Brazil Vol. 1 - Bossa Nova Lounge Compilation (2012) [MP3|320 кб/с]<Lounge, Easy Listening, Bossa Nova>
@@ -724,70 +779,6 @@ VA - Keep Movin: Late Nite House Grooves Vol.1 (2013) [MP3|320 кб/с]<Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDB62355CECF739A10FB59506581210D3BE33F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609031   (987104) от 01.02.2013
-
-VA - Cafe Bossa Brazil Vol. 2 - Bossa Nova Lounge Compilation (2012) [MP3|320 кб/с]<Lounge, Easy Listening, Bossa Nova>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tahta Menezes - Day Tripper
-02. Marcela Mangabeira - Feel Like Making Love
-03. Rodrigo & Priscilla - Just Can't Get Enough
-04. Saloa Farah - Lucky in the Sky With Diamonds
-05. Patty Ascher - I Say a Little Prayer
-06. Deco Fiori - A Day in the Life
-07. Barbara Mendes - Don't Stand So Close to Me
-08. Paulinho Loureiro - All You Need Is Love
-09. Tahta Menezes - When a Man Loves a Woman
-10. Cecilia Dale - Cheek to Cheek(   Читать дальше...   )Жанр: Lounge, Easy Listening, Bossa NovaПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B27AE324AE5DADA3ED30E687507D03A4CCCE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354655   (987044) от 23.01.2020
-
-VA - Valentine's Day House (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Groove - Taken (Root Edit)
-02. Purity Of Soul - Start Me Up (Purity Mix)
-03. French Kiss Lovers - Deep Colour (French Edit)
-04. 6ex - Shaft (Nineteen Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BA0B9D6534DC2D287F0703962726E40A02139B
 ```
 
 https://mybot314.ru/tekegram_catalog/

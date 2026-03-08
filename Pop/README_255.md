@@ -1,3 +1,61 @@
+###  Публикация: 1338719   (268983) от 16.11.2019
+
+Magic Power - Magic Power (1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Midnight (4:26)
+02. The Waiting Game (5:31)
+03. Darlin' I'm On Fire (4:34)
+04. Falling In Love While We're Dancin (5:04)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE321DD3D4C69BA3EDD9F51119EB3C70B7C20324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338687   (268920) от 16.11.2019
+
+A'mbar - Love Maniac (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Maniac (17:00)
+02. Together To Heaven Or Hell (4:03)
+03. Sweet Lover (Part 1) (4:23)
+04. Sweet Lover (Part 2) (4:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7690127A3ED48F7DA6CDDA480B0133FE46889AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190098   (268892) от 08.12.2017
 
 Sons Of Heroes - Sons Of Heroes (1983) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop>
@@ -687,64 +745,6 @@ VA - La Musique Sovietique L’ete 1969 От Паланги до Гурзуфа 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C174199AB13379C2745D7DBA1BDF32C33B0946F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267548   (266663) от 06.12.2018
-
-Sweet Inspirations - Hot Butterfly (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Fun (4:43)
-02. Face To Face (3:58)
-03. That's When You Know (Your Woman Wants To Be Free) (3:51)
-04. Hot Butterfly (4:47)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8170B535D37028528EF5020D9409A51C98F1200A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267536   (266565) от 06.12.2018
-
-МакSим - Полигамность (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Космонавт
-02. Штампы
-03. Дура
-04. Полигамность(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9058A958D0034FE86B05CBD7EB989D0D83D5F26
 ```
 
 https://mybot314.ru/tekegram_catalog/

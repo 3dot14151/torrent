@@ -1,3 +1,61 @@
+###  Публикация: 954003   (344271) от 06.11.2015
+
+Anastacia - Ultimate Collection (2015) [MP3|320 кб/с]<Pop-Rock, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Outta Love 04:04
+02. Left Outside Alone 04:18
+03. Sick and Tired 03:30
+04. Paid My Dues 03:21(   Читать дальше...   )Жанр: Pop-Rock, R&B, SoulПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398D2EC4D312F61DDDB732E3727397C0E78263E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954038   (344270) от 06.11.2015
+
+Seal - 7 (2015) [FLAC|Lossless|WEB-DL]<Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight Saving
+02. Every Time I'm With You
+03. Life On The Dancefloor
+04. Padded Cell(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621DBB4BA7B6986481D4FE948D66BF058FA2316E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954055   (344267) от 06.11.2015
 
 Lara Fabian - Ma Vie Dans La Tienne (2015) [FLAC|Lossless|WEB-DL]<Pop>
@@ -687,64 +745,6 @@ Joy Peters - Burning Dreams (2020) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62563249BC9F50E6B30D2B8943DAFAFE7CB3E277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180205   (341966) от 03.11.2017
-
-Maroon 5 - Red Pill Blues (2017) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341966.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Best 4 U
-2. What Lovers Do (Feat. SZA)
-3. Wait
-4. Lips On You(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407882739C32D914AA327771F00410497B32C5FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419105   (341850) от 27.10.2020
-
-VA - Now 100 Hits The Legends (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Michael - Faith 3:10
-02. Elton John - Sacrifice 5:06
-03. Tina Turner - The Best 5:30
-04. Amy Winehouse - Rehab 3:30(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 6:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5FD9513941D5E59CED7C014922055E2B1A4C4C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

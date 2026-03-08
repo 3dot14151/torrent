@@ -1,3 +1,188 @@
+###  Публикация: 1075978   (316566) от 24.11.2016
+
+VA - Dance Meteor Fitness Hits (2016) [MP3|241~320 Kbps] <House, Beat, Bass, Bigroom, Drum & Bass, Funky, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316566.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Martin Solveig & The Cataracs Feat. Kyle - Hey Now (Club Mix) 5:54
+002. Afrojack & Martin Garrix - Turn Up The Speakers (Radio Edit) 3:04
+003. Salva DJ - Long Gone (Original Mix) 6:03
+004. Lanar - Lord Of The Club (Radio Version) 3:10(   Читать дальше...   )Жанр: House, Beat, Bass, Bigroom, Drum & Bass, Funky, ClubПродолжительность: 09:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A508377B60D3106631BA4183F479DDB110C5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182330   (316398) от 10.11.2017
+
+VA - Для Тех, Кто Помнит! Русский Рок Vol.7 от Ovvod7 (2017) [MP3|320 Kbps] <Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  7Б - Молодые ветра  4:25
+02.  Король и Шут - Кукла колдуна  3:24
+03.  Ляпис Трубецкой - Ау  3:54
+04.  Ночные Снайперы (Диана Арбенина) - Асфальт  3:19(   Читать дальше...   )Жанр: РокПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97669591858B4E7ED8D5A513D82155346A20945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259907   (316166) от 05.11.2018
+
+VA - Love Radio: Big Love 20 04.11.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kazka - Плакала
+02. Мари Краймбрери - AMORE
+03. Luxor feat. Люся Чеботина - No cry
+04. Miyagi & Эндшпиль feat. KADI - In Love(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00B2C08AE39A0F61A5041944D36541B085D87BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583220   (316160) от 01.12.2012
+
+VA - In Da Club Vol.68 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316160.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Richard Durand feat. Ellie Lawson - Wide Awake (Full Vocal)
+002. Redstar - Universification (Vast Vision Remix)
+003. Moonbeam - Beijing (Original Mix)
+004. MEM - More Than Feelings (Original Mix)
+005. Norin & Rad vs. Audien - Triumph (Original Mix)
+006. Rapha - Andromeda (Norin & Rad Remix)
+007. Mr Pit - Overload (Original Mix)
+008. Max Denoise - Sestrelia (Sunny Lax Remix)
+009. Mike Foyle & DNS Project - Cayo Norte (Lemon & Einar K Remix)
+010. Nic Chagall & Duderstadt ft. Relyk - Alone With You(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA25403DCE99698F240D41F63534CF95FB9FDEBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182502   (316149) от 10.11.2017
+
+VA - Зайцев.Нет: Лучшие новинки ноября (2017) [MP3|320 Kbps] <Pop, Pap, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Альбина - Я с Тобою  3:45
+02.  L'One - Самая простая песня  4:23
+03.  Блестящие - Рыжая девочка  3:14
+04.  Taylor Swift - Call It What You Want  3:24(   Читать дальше...   )Жанр: Pop, Pap, DanceПродолжительность: 02:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E295825F8CDA1290E6802F4BE8B4B3F7D87D56F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583024   (316000) от 01.12.2012
+
+Steve Aoki - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Steve Aoki Ft. Lil Jon & Chiddy Bang – Emergency (Original Mix)
+2.The Bloody Beetroots – Warp 1977 (feat. Steve Aoki and Bobberman)
+3.Armand Van Helden & Steve Aoki – Brrrat! (Original Mix)
+4.Afrojack & Steve Aoki – No Beef Feat. Miss Palmer (Vocal Mix)  (
+5.The Bloody Beetroots Feat. Steve Aoki – Warp 1.9 (Original Mix)
+6.Steve Aoki & Angger Dimas vs. Dimitri Vegas & Like Mike – Phat Brahms (Original Mix)
+7.Steve Aoki & Angger Dimas – Steve Jobs (Original Mix)
+8.Tiesto & Steve Aoki – Tornado (Original Mix)
+9.Steve Aoki ft. Wynter Gordon – Ladi Dadi (Original Mix)Жанр: HouseПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF11405E069264D490572D1E7D46F37456E63DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075971   (315982) от 24.11.2016
 
 VA - Acoustic Pop Covers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
@@ -589,180 +774,6 @@ VA - Trance Desire Volume 57 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A9E9DE4C1E887DA26CE6B6617B8ED6A375F47EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959647   (314845) от 25.11.2015
-
-VA - Voices Trance Drifter Dreams (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blugazer - Seasons (Original Mix) 06:56
-02. ATB - Flash X 04:08
-03. Darkwinder - Voice Of Armiti 08:42
-04. Angel Ace - I Will Find A Way 07:08(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3F86C6387E9F3F1F928C58B3DB3C249D9D5BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959761   (314568) от 25.11.2015
-
-VA - Самые сливки дискотек от радио Maximum (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314568.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kid Ink - Ride Out
-002. Paul Oakenfold Feat. Angela Mccluskey - You Could Be Happy
-003. Gorgon City Feat. The Six - Take It All
-004. Самира - Жаркое Лето(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4267927D3A75C46C5B3CB86ED765B70D4CBBA184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959700   (314566) от 25.11.2015
-
-Александр Барыкин и группа Рок-Ателье - Фестивальный концерт (1985) [MP3|320 кб/с]<Pop-Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звёздный корабль (А.Барыкин – М.Пушкина) (4:27)
-02. Ты увидишь карнавал (А.Барыкин) (3:42)
-03. Дай мне руку (А.Барыкин) (5:27)
-04. Фестиваль (А.Барыкин – М.Пушкина) (5:25)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF07DF64C3EAD0E8DF06EB25EED657EFE6912DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076232   (314365) от 25.11.2016
-
-VA - Future Trance 78 (2016) [MP3|320 Kbps] <Future House, Trance, Bigroom, Melodic, Progressive, Indietronica>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn feat. ALMA - Bonfire (Chris Lake Remix) 3:26
-02. Filatov & Karas - Tell It To My Heart 3:08
-03. Don Diablo - Cutting Shapes 2:59
-04. Major Lazer & Showtek - Believer 3:44(   Читать дальше...   )Жанр: Future House, Trance, Bigroom, Melodic, Progressive, IndietronicaПродолжительность: 03:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2167A8DB7D6F6180E14FBCE20C7BD2F9A7B70D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076276   (314308) от 25.11.2016
-
-Zara - #Миллиметры (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 2:30
-02. Я не могу без тебя жить 3:37
-03. Лети, душа 4:27
-04. #Миллиметры 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:087F8F2C37C2F6C6450FFBA0839799F96B3ED371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332171   (314269) от 20.10.2019
-
-VA - German Top 100 Single Charts 18.10.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey
-02. Apache 207 - Roller
-03. Capital Bra x Samra - 110 (feat. LEA)
-04. Apache 207 - 200 km/h(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98678AD02497EEF748E565CD300197056F4B7858
 ```
 
 https://mybot314.ru/tekegram_catalog/

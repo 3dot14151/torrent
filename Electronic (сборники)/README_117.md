@@ -1,3 +1,32 @@
+###  Публикация: 1044689   (565551) от 20.08.2016
+
+VA - Whatpeopleplay Top 100 Topseller Tracks July (2016) [MP3|320 Kbps] <Electronica, Deep House, Tech House, Techno, Minimal, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565551.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Black Madonna - Stay (Original Mix)
+002. KiNK - Valentine's Groove (Original Mix)
+003. Roberta - Feel It (Original Mix)
+004. Carlo - Lighter Mornings (Original Mix)(   Читать дальше...   )Жанр: Electronica, Deep House, Tech House, Techno, Minimal, HouseПродолжительность: 11:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26783A218C0831D19D0ED3B46E94693F103E2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044416   (565545) от 20.08.2016
 
 VA - In The Club (2016.2) (2016) [MP3|249~291 Kbps] <House, Electro House, Progressive, Dance, Club>
@@ -716,35 +745,6 @@ VA - Over Records Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD049CF52BF7657487E3AE605208546ED4A0488F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304673   (561168) от 27.05.2019
-
-VA - Top 100 Club Tracks Vol.1 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561168.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Billie Eilish - Bad Guy (Division 4 Remix) 5:22
-002. Dr. Dre feat. Snoop Dogg - Still D.R.E. (DJ Dark & Mentol Bootleg) 3:55
-003. 50 Cent x Sunstars x Chester Young - How We Work (Stas Limonoff Mashup) 3:09
-004. Artik & Asti - Привет (Lavrushkin & Max Roven Remix) 4:23(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F03D3D93E8C0383820567273BFD40453454BF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

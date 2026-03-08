@@ -1,30 +1,3 @@
-###  Публикация: 1376192   (241854) от 17.04.2020
-
-Graveyhard - 2 Albums (2018-2020) [MP3|320 Kbps] <Stoner, Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241854.jpg" />
-</div>
-
-
-###  Подробнее
-
-2018 - Homonymous
-2020 - PathbuilderЖанр: Stoner, Sludge MetalПродолжительность: 2 CD, 01:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0FCA4F87C63B0E4DFAEFE5259610A31B319F349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624602   (241847) от 07.04.2023
 
 Powerwolf - Interludium (2023) 3CD, Deluxe Version [MP3|320 Kbps] <Power Metal>
@@ -744,6 +717,35 @@ Shadow of Everest - Where Giants Die (2022) [MP3|320 Kbps] <Progressive Metal, G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:485964B0F26BA954B0117CF507938E56ACF8B033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621568   (239733) от 26.03.2023
+
+Black Hawk - Soulkeeper (2023) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Soulkeeper [00:04:22]
+02 - Angry Machines [00:04:38]
+03 - War Zone [00:05:03]
+04 - Better Times [00:05:43](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AE13927FAC732E1B61E994985F63CD023FFD44
 ```
 
 https://mybot314.ru/tekegram_catalog/

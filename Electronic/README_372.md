@@ -1,3 +1,58 @@
+###  Публикация: 272153   (280522) от 18.12.2010
+
+Opus III - Guru Mother (1994) [APE|Lossless]<Vocal House, Ambient, Electronica>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Vocal House, Ambient, ElectronicaПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336242   (280512) от 06.11.2019
+
+VA - Liquid Drum and Bass Sessions 2019 Vol 1 & 2 (2019) Fokuz Recordings [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Macca & Loz Contreras - Better World (Lenzman Remix) (05:17)
+ 02. Dreazz, Mackadena, Emery - Tell Me What You Want (05:04)
+ 03. Random Movement - Sleazy Bitch (Ivy Lab Remix) (06:08)
+ 04. Lenzman - String City (Artificial Intelligence Remix) (04:54)(   Читать дальше...   )Тип издания: WebЖанр: Drum n Bass, Liquid Funk •Продолжительность: 04:02:02 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C543EFC114C02909FA9A721C185C0876427E4B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 676376   (279792) от 11.12.2016
 
 Ori Uplift - Uplifting Only 001 - 200 / Promo & Guest Mixes (2013 - 2016) [MP3 | 320 кб/с] < Melodic / Uplifting / Emotional Trance >
@@ -683,61 +738,6 @@ Paleokontakt - Music For A Spatial Moment (2018) Melusine Records [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D74E1A0848C1CB9563D61CECB6FD3C842598E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264847   (277664) от 25.11.2018
-
-Maruv - Black Water (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Pop, R'n'B>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drunk Groove
-02. LaLaLa
-03. ETL
-04. Looking For You(   Читать дальше...   )Жанр: Electro House, Pop, R'n'BПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A54185FCDF30B301CC3B19C78D2FB19C6A9DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272892   (277540) от 20.12.2010
-
-DC Rodriguez - Depature (2010) [MP3|320 kbps] <Psytrance, Progressive>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depature
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74966D5660EF4F428C708FBD231500C838EB0A63
 ```
 
 https://mybot314.ru/tekegram_catalog/

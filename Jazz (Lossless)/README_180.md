@@ -1,3 +1,32 @@
+###  Публикация: 706047   (446615) от 01.10.2013
+
+Pharoah Sanders - Spiritual Blessings (2013) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Colors   (5:39)
+02.  Astral Traveling   (5:50)
+03.  The Creator Has A Masterplan   (9:09)
+04.  Wisdom Through Music   (5:44)(   Читать дальше...   )Жанр: Jazz, Free JazzПродолжительность: 01:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2FCC1762856615265E60EEDF9F63BA494FC0917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 706016   (446614) от 01.10.2013
 
 VA - Jazz For Weddings (2007) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
@@ -760,35 +789,6 @@ Peggy Lee - Black Coffee with Peggy Lee (1953, 1956) Remaster, 1999, Universal[F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C05F121F91762CA7FA7866C8B6C02A0795D57792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062046   (444767) от 12.10.2016
-
-Nancy Wilson - Like In Love & Something Wonderful (1959, 1960) 2003, EMI Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.On The Street Where You Live [01:43]
- 02.Night Mist [02:35]
- 03.You Leave Me Breathless [02:28]
- 04.The More I See You [02:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDBCD301A3BA355ADAFE232B781AA79EF3CD1846
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,186 @@
+###  Публикация: 1241613   (519282) от 18.08.2018
+
+VA - The Official UK Top 40 Singles Chart 17.08.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Ezra - Shotgun (03:22)
+02. Drake - In My Feelings (03:39)
+03. DJ Khaled feat. Justin Bieber, Chance the Rapper & Quavo - No Brainer (04:26)
+04. Benny Blanco/Khalid/Halsey - Eastside (02:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900A1DF65D35EFD561F9EED41A8D0063F9BEE2E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314258   (519277) от 14.07.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 12.07.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy Yankee feat. Katy Perry & Snow - Con Calma (Remix) 3:01
+02. Billie Eilish - Bad Guy 3:14
+03. Ed Sheeran & Justin Bieber - I Don't Care 3:40
+04. Drenchill feat. Indiiana - Freed From Desire 3:40(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216C3725EEB3D32FDF8A650476328ED0AD532363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534703   (519057) от 14.08.2012
+
+VA - Trance In Motion Vol.123 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ralph Novell - Lagoon (Original Mix)
+02.Jaytech feat. Steve Smith - Stranger (Original Mix)
+03.Lost Emotions - Sunrise At Delimara (Original Mix)
+04.Susana & Ernesto vs. Bastian with Wezz Devall - Brave (Original Mix)
+05.Mike Sonar - Wicked 7 (Original Mix)
+06.Sou Kanai - Oriental Wind (North State & Roby K Remix)
+07.Stone N Forward - Oregano (Original Mix)
+08.LTN - Never Let Me Go (Anhken Sunset Remix)
+09.Mike Sonar & Anthya - Anytime (Original Mix)
+10.Neev Kennedy vs. Ruby & Tony - One Step Behind(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2C7B8FF5DFC9C9955C1D15D7C5DE185BED034D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534932   (518897) от 14.08.2012
+
+VA - Best Of MTV Hits (2012) [MP3|128 кб/с]<Dance, Pop, RnB, Hip Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Inna - Ai Se Eu Te Pego
+002 Andreea Banica Feat. Play & Win - Sexy (Radio Edit)
+003 Akon - Love Handles
+004 Nicole Scherzinger - Funky Town
+005 Nelly - Just A Dream
+006 David Guetta Feat. Sia - Titanium
+007 Snoop Dogg & Wiz Khalifa Feat. Bruno Mars - Young, Wild & Free
+008 Jennifer Lopez Feat. Pitbull - On The Floor (Radio Edit)
+009 Massari - Live It Up
+010 Alex Gaudino Feat. Kelly Rowland - What A Feeling (Radio Edit)Жанр: Dance, Pop, RnB, Hip HopПродолжительность: 12:22 :09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A543F39B1D90F667362CC7C63011916E9E450ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560829   (518735) от 01.07.2022
+
+VA - Music News vol.199 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518735.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Loredana - Dans, Dans, Dans (03:10)
+ 002. 4ETVERGOV - Шакалака Бум (02:18)
+ 003. Aize feat. Troshin - Cry Me a River (03:05)
+ 004. Alessiah - Summer Feeling (Niine & Black Harmony Remix) (02:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0294EEBE9907D31ABFB68FBC2A6C90933F925698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533522   (518694) от 14.08.2012
+
+VA - Сборник Клубной Музыки Vol.13 От Seva57 (2012) [MP3|320 кб/с]<Pop, Club, Electro, Electro-House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Club, Electro, Electro-HouseПродолжительность: 07:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5615B4DB0ABA6CC17EEEC0BF6252A2C1B3AE2DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929679   (518496) от 20.08.2015
 
 VA - Best Intim Music (2015) [MP3|320 кб/с]<Chillout, Lounge>
@@ -577,178 +760,6 @@ VA - Русская дискотека 90-х-2000-х (2014) [MP3|320 Kbps] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C6B76EB05DEFC568410B4C9D2275952DD87CC90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930260   (516397) от 22.08.2015
-
-VA - Natural Lounge and Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mauri J – Judith’s Song
-02. P & V Guitarra – Mas Que Nada
-03. Moonlight Electric Orchestra – Waveform Sax
-04. David Maj – Marea(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6215437B5C1BB61DD570FB9FF19BBA850B2F2354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930257   (516395) от 22.08.2015
-
-VA - Ibiza Residence (2015) [MP3|320 кб/с]<House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimitri Vegas, Like Mike & Ne-Yo - Higher Place (Extended Mix) [04:25]
-02. Felix Jaehn - Ain't Nobody (Loves Me Better)Жанр: House, ClubПродолжительность: 05:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907FD15DDD0089A626DF6CB3B574B879D89EE387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930146   (516392) от 22.08.2015
-
-VA - Best Deep & Chillhouse Sounds (2015) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M.Sacchi - Sunset Boulevard
-02. Lissat & Voltaxx - Dedicated (Dub Mix)
-03. Miguel Alcobia - Berlin Sunset
-04. Xavi - Deepdown(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEE7BEB4209012082F0CDF6FCF8A2D501F32D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930400   (516347) от 22.08.2015
-
-VA - Perfect Sin Lounge Moments Best of Relaxed Bossa Nova and Sexy Smooth Beat Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Simons - Chill Phenomenal - In colour and Stereo Mix
-02. Juisty Gold Dust - Love Wins - Sodomy Mix
-03. Elements of Eternity - Pool Side - Miami Sexy Springbreak Mix
-04. Sirens of the Ocean - Nymphs - Relaxation Max Version(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5739864AA4FE9471A990F53DC94E54B35AD5703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930268   (516344) от 22.08.2015
-
-VA - Office Sounds – Chillout Edition (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillo – Let the Night Come (4:57)
-02. Roxano de Santiago – La Isla (5:55)
-03. Alice Shelton – Lost Fear (3:46)
-04. John Soultek – Whisper (3:52)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68742265430FE5273A2C61D0F81D5D7F7CFEF26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930174   (516314) от 22.08.2015
-
-VA - Cafe Chillout Music Club Bar Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Belloq - De Longpre
-02. Jox Talay - Groove Theory
-03. Uncle Feaster - The Trafalgar
-04. Elton Ames - Beach House(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E3A9EFDDBA27B1DFED6105D6E6A0F9782AC956
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1593465   (179908) от 28.11.2022
+
+Neuroklast - 2 Albums (2021-2022) [MP3|320 Kbps] <Electro-Industrial, Cyberpunk>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forlorn [00:04:45]
+02. Anima [00:04:27]
+03. Netrun [00:03:10]
+04. Simulation Whore [00:03:15](   Читать дальше...   )Жанр: Electro-Industrial, CyberpunkПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E509D0951746E0420A288D2B9E0F5D2D9619D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593568   (179903) от 28.11.2022
+
+Neon Nox - Payback (2022) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolves [00:03:33]
+02. Return [00:03:43]
+03. Tunnels [00:03:44]
+04. Shift [00:04:14](   Читать дальше...   )Жанр: Retrowave, SynthwaveПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E068F4ED4E6B94ABA7FE93420ED074A368C3A4B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593741   (179901) от 28.11.2022
 
 VA - Sexy Funky House Annual 2023 (2022) [MP3|320 Kbps] <Funky, Club House>
@@ -683,64 +741,6 @@ VA - Chill with Colors: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDACBD7AE1CA418C56B99106B5ED575D1B08151A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428873   (178205) от 04.12.2020
-
-VA - Armada Music 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loud Luxury & Frank Walker feat. Stephen Puth - Like Gold
-02. Armin van Buuren feat. Duncan Laurence - Feel Something
-03. Lost Frequencies, Zonderling & Kelvin Jones - Love To Go
-04. Brando - Don't Call Me(   Читать дальше...   )Жанр: Melodic House, DanceПродолжительность: 03:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD32A7AC79C68B1F2238824330C9F155E7A361A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667039   (178194) от 06.10.2023
-
-VA - Milk & Sugar House Nation Ibiza 2023 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milk & Sugar & Jens Lissat - Can U Hear Me (Extended Mix) (5:57)
-02. Reza & Kroose - In the House Tonight (Extended Mix) (5:39)
-03. Andre Espeut & Alaia & Gallo - Unify (Extended Mix) (6:45)
-04. Earth n Days - In My House (Extended Mix) (5:08)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C894A2B0FCEFBAFD9EBAB6B8E25747375F96AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

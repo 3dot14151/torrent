@@ -1,3 +1,61 @@
+###  Публикация: 1681862   (132105) от 05.12.2023
+
+VA - The Best Of Suanda Dark 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Somnia - The Edge (Extended Mix) [5:23]
+02. Tom Exo - Sidereum (Extended Mix) [6:34]
+03. Somnia - Afterglow (Extended Mix) [5:26]
+04. Trance Reserve & DaWTone - This Is My DNA (Extended Mix) [6:38](   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92FBEC1E741035BE403D22D4368DEC9CE60B467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682053   (132093) от 05.12.2023
+
+VA - Top 7 November 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gayax - Until The End (Original Mix) [6:35]
+02. Juan Almiñana Obando - Atlantis (Original Mix) [5:55]
+03. TbO&Vega - Elysian (POINoir Remix) [7:59]
+04. Masaru Hinaiji - Stairway To Heaven (Original Mix) [7:25](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698918CEC859399E4AE6B14E5A57D58755ABF5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681644   (132085) от 05.12.2023
 
 VA - In Search Of Sunrise 19 (Mixed by Markus Schulz, Ilan Bluestone & Daniel Wanrooy) (2023) [MP3|320 Kbps] <Trance>
@@ -686,64 +744,6 @@ Biosphere - Shortwave Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80196170024458286B78D81DC8885FDE1EE6D6C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525739   (129186) от 21.01.2022
-
-VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Durand & Susana - I Matter to You (Extended Mix) [06:14]
-02. Christian Burns - Breathing Fire (Farius Extended Remix) [05:52]
-03. Giuseppe Ottaviani - The Wind in Your Face (Extended Mix) [06:44]
-04. Eco - Let You Down (Chris Schweizer Extended Remix) [06:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734827AEB0A65F3AA9848F1808F10E8113088C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824137   (128982) от 14.10.2025
-
-VA - Fresh Dance 2025 - The Future Hits (2025) [MP3|320 Kbps] <Dance, Club, House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salvatore Mancuso & Max Niklas - The Tide Is High 02:25
-02. Jens O., Spacekid & Barbaros - Derb (Jens O. & Spacekid Mix) 03:26
-03. Brooklyn Bounce - Loud & Proud (Indecent Noise & Ontune Remix Edit) 03:15
-04. Special D., Toby Gad & Andy Judge - All Of Me 02:37(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03184B873A0A2904F37E2AC17B8D5CFD3C5C32EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

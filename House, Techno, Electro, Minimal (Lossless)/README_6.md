@@ -1,3 +1,90 @@
+###  Публикация: 1481229   (1008494) от 02.07.2021
+
+Barker & Baumecker - Transsektoral (2012) Ostgut Ton [FLAC|Lossless|tracks+.cue] <Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sektor (02:21)
+ 02. Trafo (05:22)
+ 03. Schlang Bang (05:15)
+ 04. Crows (05:59)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E472AB13E0560AE406647813F3358E15494C794F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481210   (1008492) от 02.07.2021
+
+Porter Ricks - Biokinetics (2012) (Reissue 1996) Type [FLAC|Lossless|tracks+.cue] <Techno, Abstract, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Port Gentil (12:26)
+ 02. Nautical Dub (05:49)
+ 03. Biokinetics 1 (05:20)
+ 04. Biokinetics 2 (08:30)(   Читать дальше...   )Жанр: Techno, Abstract, AmbientПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E72930DD20B10054D599EC5A96C1D685D0870A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482059   (1007888) от 06.07.2021
+
+VA - SUMMER HITS 2021 [FLAC|Lossless|WEB-DL|tracks] <Deep House, Future House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Norvis, Justine Berg, Dave Crusher - United (Dave Crusher Radio Edit) (2:22)
+02. Pete Ellement - Love Can Heal (Radio Edit) (2:33)
+03. Sean Norvis, Geo Da Silva, Brazylero, DJ Combo, Rayman Rave - Johnny Started (DJ Combo & Rayman Rave Radio Edit) (2:28)
+04. Yamin Bene, MC Ben - Obsessive Thought (Radio Edit) (3:36)(   Читать дальше...   )Жанр: Deep House, Future House, DanceПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C19DABCB9D20651ED2DABFB4B6252692B1EB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482501   (1007621) от 08.07.2021
 
 Sound Quelle - Trait (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House>
@@ -647,93 +734,6 @@ Overmono - fabric presents Overmono | Unmixed + DJ Mix (2021) Fabric Worldwide [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4437692807FBDF6217A012493AF6E467D7E861A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350774   (1003023) от 07.01.2020
-
-DJ Eric Foster - Night Light (2004) [FLAC|Lossless|image + .cue] <House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Milky Way
-03. Plastmassa
-04. Speed(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A78995F6CCE3FC95689CCA20197967B7DBCE9779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350595   (1003012) от 07.01.2020
-
-Dinka - A Date With Dinka (2014) 2CD, DJ Mix, Compilation [FLAC|Lossless|tracks + .cue] <Progressive House, EDM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roul and Doors – Assiduity
-02. Marcus Schossow, Mike Hawkins & Pablo Oliveros – Ulysses
-03. Deniz Koyu – Ruby
-04. Roul and Doors – Melody In Harmony(   Читать дальше...   )Жанр: Progressive House, EDM |Продолжительность: 01:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E14DED0F1005FB2C3225D2A58711DE2874B764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487953   (1002856) от 08.08.2021
-
-LTN - The Path Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nowhere To Run (3:56)
- 02. Zodiac Sign (ft. ENZO) (LTN Sunrise Mix) (3:12)
- 03. Happy Life (ft. Aelyn) (3:30)
- 04. Rise Like Smoke (ft. Kyler England) (LTN Sunrise Mix) (3:24)(   Читать дальше...   )Жанр: EDM, Progressive House, TranceПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC3530CA6128656FDD1AFAEF1490E7D054920BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

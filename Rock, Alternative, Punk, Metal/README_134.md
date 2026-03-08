@@ -1,38 +1,3 @@
-###  Публикация: 601220   (998338) от 10.01.2013
-
-Prime Circle - Evidence (2012) [MP3|320 кб/с]<Alt.Rock | Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998338.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Evidence
-3. Change
-4. Time Kills Us All
-5. Answers
-6. Know you Better
-7. King for a Day
-8. Room of Ghosts
-9. Staring at Satellites
-10. Only Way Out(   Читать дальше...   )Жанр: Alt.Rock | Modern RockПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB1C2AAE612AC7FED1EDE68F19148809549EF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601180   (998288) от 10.01.2013
 
 Black Veil Brides - Wretched and Divine: The Story of the Wild Ones (2013) [MP3|320 кб/с]<Glam Metal | Hard Rock>
@@ -831,6 +796,41 @@ Linkin Park - 3 Альбома (2012) [MP3|255-320 kbps] <Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6B15210FD628DCC60A3A7637854E2F9C896DCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603572   (996764) от 16.01.2013
+
+My Bitter Half - No More Idols (2013) [MP3|320 кб/с]<Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Negative As Fuck
+ 02. Blood Brothers
+ 03. No More Idols
+ 04. Animal feelings
+ 05. Immortal Human Machine
+ 06. IndependenZa
+ 07. Russian Vodka
+ 08. Last Meteorite Again
+ 09. I Am Not A Zombie
+ 10. Stalin(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0716E9181AD27C0CEED13D6D2B08B8B8895633
 ```
 
 https://mybot314.ru/tekegram_catalog/

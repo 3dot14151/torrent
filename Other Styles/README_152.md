@@ -1,3 +1,32 @@
+###  Публикация: 1645059   (209317) от 09.07.2023
+
+VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <Instrumental, Relax, Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подводный мир (1:06)
+02. Дождь в лесу (1:21)
+03. Возле маленького ручейка (6:51)
+04. Рассвет на озере (6:05)(   Читать дальше...   )Жанр: Instrumental, Relax, ClassicalПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CCFF9BB8074C2834D4C0768C7B6A925B2BCB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607496   (208994) от 26.01.2023
 
 Nino Rota - Greatest Film Hits (2012) 5xCD, BOX Set [FLAC|Lossless|image + .cue] <Instrumental, Soundtrack>
@@ -716,35 +745,6 @@ Francis Goya & Norman Candler Magic Strings - More Than Ever (Remastered) (2024)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F8314741228500E214732DC9A4A34D9A26948DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829604   (201991) от 25.10.2025
-
-Paul Mauriat - The Russian Album (1993) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plaine ma plaine
-02. Les deux guitares
-03. Le Sarafan rouge
-04. Katioucha(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806BEF6CC9D6F80BDE32E662555C01606E1E2342
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 906353   (645803) от 08.06.2015
+
+Randy Brecker - Nostalgic Journey: Tykocin Jazz Suite (2009) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction - Movement 1 [02:31]
+02. Introduction - Movement 2 [03:14]
+03. Introduction - Movement 3 [02:52]
+04. Nostaglic Journey [10:28](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E632AA0614B0D58FA44D092622CCF834561C48D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517265   (645367) от 02.07.2012
 
 Wynton Marsalis‎ - He And She (2009) [FLAC|Lossless]<Jazz>
@@ -740,35 +769,6 @@ VA - Jazz: Sexy Saxophones (2015) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAEBFBCC52804F87EC8A081B052AC53C039A46C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906933   (641855) от 10.06.2015
-
-Elvin Jones - Going Home (2005) [FLAC|Lossless]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shell Game [12:06]
-02. Going Home [04:55]
-03. Cross Purpose [03:38]
-04. You've Changed [08:39](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4BE5D3E347C5F998BCF3AB48567EBB3745EA2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

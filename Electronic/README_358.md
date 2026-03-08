@@ -1,3 +1,61 @@
+###  Публикация: 1078408   (303014) от 30.11.2016
+
+VA - Chill The Stress Away Vol. 1 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Da Gatsi - Fine of Nine - Instrumental Version (04:04)
+02. Heso - Time for a Break (05:17)
+03. Strike Donnovan - Sequel Cords (02:37)
+04. Stiller - Rain in May (05:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DCDB3762FFD0A62238169EEDED9F92D93F0FF59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078177   (303012) от 30.11.2016
+
+VA - Noble Chillout Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Ocean of Secrets 6:01
+02. D & G - Cercando Di Te 5:16
+03. Sunset Session Group - Underworld 5:48
+04. Juicy Lotta - Close Your Eyes 6:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0A05C9C6B3B8CB35CEED367FE6D1AF148AC17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078234   (303011) от 30.11.2016
 
 VA - Chillout New York Bar Set (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -685,63 +743,6 @@ VA - Noomwalk The 5th Noom Compilation (1999) [FLAC|Lossless|tracks] <Hard House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3415C6662EEE6FE13FF09ACBE85C00C0939FC6A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261887   (301292) от 12.11.2018
-
-MacroVision - Skyroom (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skyroom (Rework)   (08:15)
-02. Glow (Original Mix)  (10:52)
-03. Pollux (Original Mix) (09:38)Жанр: Progressive HouseПродолжительность: 00:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FE9B7D6FD8B362EBEFBCAC9DF65673CF0C4055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184370   (301283) от 17.11.2017
-
-VA - Blank & Jones Presents Chilltronica No.6 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blank & Jones - Waves (Original Mix)  2:54
-02.  Blank & Jones - The Very End (Original Mix)  5:36
-03.  Sven Weisemann - Falling Leaves  7:12
-04.  Antonymes - Film One (Original Mix)  5:35(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170DEAC8A1A5746CAF022ECC4C88D1BE4DAA9FAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1005288   (834721) от 08.04.2016
+
+VA - We Love Club Weapons Vol.2 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kid Massive - Ready to Rock (Radio Edit) 03:32
+02. Gino Montesano - Sunglasses At Night (Edit) 03:32
+03. Strobe - Angel (Strobe Mix) 05:54
+04. Weigold - Spread Love (Patrick Hofmann Remix) (Feat. Anna S.) 05:05(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AC7E807D2467583109BDA991430C48B9070A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004750   (834705) от 08.04.2016
 
 VA - Hypnotized By Electro Dance Dream Vol.3 (2016) [MP3|320 кб/с] <House, Progressive>
@@ -717,35 +746,6 @@ VA - Minimal Pump The Beat (2016) [MP3|320 кб/с] <Minimal Techno, Minimal Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D724C4030340880250B6F9013E73F3F79750BC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005887   (830920) от 10.04.2016
-
-VA - House Nation Volume 8 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Krewella - We Go Down (Darren Styles Remix) (05:00)
-02. Nicky Romero - Symphonica (Bare Remix) (03:54)
-03. The Bloody Beetroots & Greta Svabo Bech - Chronicles Of A Fallen Love (05:38)
-04. Alesso and Calvin Harris feat. Hurts - Under Control (04:16)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FAB4808355927072591B464748B6F99091099C
 ```
 
 https://mybot314.ru/tekegram_catalog/

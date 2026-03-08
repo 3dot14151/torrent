@@ -1,3 +1,29 @@
+###  Публикация: 310222   (839112) от 17.03.2011
+
+VA - Мегахит 200 Франция (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520EC491F1DC10E9350F3AF4AB8A9FA887CBF625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379404   (838926) от 29.04.2020
 
 VA - Shazam Хит-парад Russia Top 100 Апрель (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -713,35 +739,6 @@ VA - Acoustic Pop (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0619A0ED37690145DBBCA86F7094A28E8C55394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380458   (833044) от 03.05.2020
-
-VA - Pop All Stars (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833044.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Beyoncé - Halo (4:21)
-2.Dua Lipa - New Rules (3:29)
-3.Ariana Grande - One Last Time (3:17)
-4.Ed Sheeran - Shape of You (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 03:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D1CBA3F26CACD06C3298EEB426582C2B5C062A
 ```
 
 https://mybot314.ru/tekegram_catalog/

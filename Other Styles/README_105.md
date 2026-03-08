@@ -1,3 +1,32 @@
+###  Публикация: 1159842   (481859) от 21.08.2017
+
+Terry Oldfield - Temple Moon (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481859.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Terry Oldfield - Mangalam (7:27)
+2. Terry Oldfield - Guru Stotra (9:00)
+3. Terry Oldfield - Sri Ram Jaya Ram (5:56)
+4. Terry Oldfield - Hallelujah Gate Gate (7:29)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5AE3AC37FA69BD63ECD644BE7CEDDF867D9D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938404   (481829) от 18.09.2015
 
 Brian Crain - Impressions from Paris to Prague (2015) [MP3|320 кб/с]<Piano, Instrumental, New Age, Neoclassical>
@@ -730,35 +759,6 @@ VA - Diamond Best Mood Tenor Sax Best (2CD)(2006) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A79C63406474FFE62FDFB41E6D3369C9387778BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320106   (475071) от 16.08.2019
-
-Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475071.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aqua Opening
-2. Aqua Balalaika
-3. Aqua Icebergs
-4. Aqua Waves(   Читать дальше...   )Жанр: OST, Cello MetalПродолжительность: 00:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E50B71718450F629F2F195EF9C59E01C3B10FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1717598   (58799) от 23.04.2024
+
+Mark Knopfler - Compilation (2024) [MP3|320 Kbps] <Rock, Blues Rock, Folk Rock, Country, Acoustic>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Going Home (Theme From Local Hero)
+ 02.  Golden Heart
+ 03.  Kingdom of Gold
+ 04.  Redbud Tree(   Читать дальше...   )Жанр: Rock, Blues Rock, Folk Rock, Country, AcousticПродолжительность: 01:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41F9CE2C3281B49E796D781381688ADCBC7224C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717516   (58787) от 23.04.2024
+
+VA - Electronic compilation part 71 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davit Barqaia - After You
+02. Dj Aurm - Beautiful Girl
+03. Sls - Before I Die
+04. Besso - Close to You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F636229EF1787B3240D54650FD6AA8B0E50ED3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718025   (58782) от 23.04.2024
+
+VA - Electronic compilation part 72 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umar Keyn - 13 Jours En France
+02. Besso - Chilled Dreams
+03. Celhis - Cry
+04. Besso - Dancing in the Dark(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93770A74BD020BABF09DFA8E7860E66E14D3119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716517   (58779) от 23.04.2024
+
+VA - Blues Melancholy (2024) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58779.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dаvе Williаms - Аll Whо Аrе Wеаry
+002. Dаrnеll Соlе - Sоngbird
+003. Lоnе Stаr Mоjо - Hеy Hеy
+004. Jеаn Раul Rеnа - Рареr Bаg(   Читать дальше...   )Жанр: BluesПродолжительность: 09:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D33E602DCB345AF3A0E01873232959ACCB6CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718908   (58379) от 27.04.2024
+
+VA - Весна на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa - Training Season (Live at the BRIT Awards 2024) (3:39)
+02. Alan Walker feat. Daya - Heart Over Mind (3:09)
+03. Artik & Asti - Качели (3:46)
+04. R3Hab & Vize & Jp Cooper - Jet Plane (2:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B985A2640962E339D22D4CE367D494E31C9272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718495   (58352) от 27.04.2024
+
+VA - HITS AND MORE HITS 2024 (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teddy Swims - Lose Control (03:30)
+02. Benson Boone - Slow It Down (02:41)
+03. Dua Lipa - Training Season (03:29)
+04. Dasha - Austin (02:51)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB259C6C63A48E337A4A179D2059D15575EECD1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718970   (58350) от 27.04.2024
 
 VA - Music News vol.370 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,181 +745,6 @@ VA - РАДИО БАТЯ - 002 (2024) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2402BC5478C32235491EAB00022B3F8DA895DBE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722673   (56789) от 12.05.2024
-
-Merab Amzoevi - This is Merab Amzoevi (2024) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Плакала (2:55)
-02. 1000 зим (2:28)
-03. Chito Gvrito (Live) (2:48)
-04. GZA (2:31)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94276201480A90CB9C4D7D35D5E80590DA098FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722856   (56654) от 13.05.2024
-
-VA - Music News vol.375 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56654.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Даурова - Переболела, Перегорела (03:12)
- 002. Aloe Blacc - Shine (04:25)
- 003. Aquagen - Hard To Say I'm Sorry (Jerome Edit) (02:11)
- 004. ASDIS - Flashback (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71872327EEF0588CAD743ED291668B5AD3CACB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449572   (56642) от 14.05.2024
-
-VA - Workout Motivation (2018-2024) Mixed by Sergey Sychev [MP3|320 Kbps] <Club, House, Remix>-Обновляемая раздача
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия миксов Workout Motivation записана для занятий. Специально для спортивного клуба 42Club. Раздача будет обновляться по мере появления новых миксов. Приятных занятий. Всем спорт.
-P.S. Все релизы начались с этих миксов, затем появились все остальные варианты EDITION.1. Rave Republic & BONKA feat. Maikki - Rebels Of The Night (Extended Mix)
-2. AXMO, Groove Coverage & Aki-Hiro - Poison (Extended Mix)
-3. The Prodigy - No Good (Kristian Llov BigRoom Techno Edit)
-4. Haddaway - What About Me (S. Z. Radio Remix)(   Читать дальше...   )Жанр: Club, House, Remix, Mash-UpПродолжительность: 18:23:59 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429680FB4D953A4FDF04E1568FD0422DA866A478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722623   (56584) от 14.05.2024
-
-VA - РАДИО БАТЯ - 004 (2024) [MP3|320 Kbps] <Different genres>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56584.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:16] 01. Modern Heroes - Moment Of Love
-[4:04] 02. Комиссар - Эти глаза
-[3:57] 03. Евгений Осин - Не верю
-[3:45] 04. Bad Boys Blue - Sooner or Later(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80A7494C33CA2604B4DDC826E37ED615F4ECFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722744   (56563) от 14.05.2024
-
-VA - Electronic compilation part 77 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akmalov - Dark
-02. Nurpeisoff - Diamonds
-03. Nurpeisoff - Dont Cry
-04. Akmalov - Don't Stop(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F17F688FA9D5A22B614E3E96FAC0DDBDF5B7D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722402   (56551) от 14.05.2024
-
-VA - Good Women in Good Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anne & the Blues Diggers - Still Left in Your Heart [02:57]
-002. Anni Piper - Mystery of Love [03:30]
-003. Nora Jean Bruso - Things Done Changed [04:39]
-004. Pristine - The Blind [05:24](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 10:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EBF484641F379A55A269F3A84E357C5D20477E
 ```
 
 https://mybot314.ru/tekegram_catalog/

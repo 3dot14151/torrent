@@ -1,3 +1,32 @@
+###  Публикация: 1380697   (831666) от 04.05.2020
+
+Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Crash My Car [0:03:53.70]
+02. Rich People [0:04:32.20]
+03. Empty Rooms [0:04:23.55]
+04. Eyes Of Africa [0:04:44.50](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE003B9FEFA4880DE95866970869273E540F6AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380531   (831451) от 04.05.2020
 
 VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
@@ -712,35 +741,6 @@ Kylie Minogue - DISCO (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7BAEA3A1F28F4B5F5817E86CA29DC5849B44B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117510   (819100) от 22.03.2017
-
-Vera Lynn - Vera Lynn 100 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| We'll Meet Again  (03:28) 
-02| Sailing  (03:05) 
-03| (There'll Be Bluebirds Over) The White Cliffs Of Dover  (03:19) 
-04| Wish Me Luck As You Wave Me Goodbye  (03:29) (   Читать дальше...   )Жанр: VocalПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3A5C0637C2F5DDC44FFA4D7703D6C7D5000DB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

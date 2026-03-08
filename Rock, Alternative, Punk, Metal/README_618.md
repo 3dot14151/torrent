@@ -1,31 +1,3 @@
-###  Публикация: 1062206   (444082) от 12.10.2016
-
-Черный Обелиск - Осень (2016) Single [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Осень (Radio Version)
-02. Осень
-03. Не имеет значения (Памяти Ильи Кормильцева)Жанр: Heavy MetalПродолжительность: 00:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576D40D26F50A5E1032D96E428DAC8C80E12CD44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061856   (444070) от 12.10.2016
 
 Богатырские Колбасы - Борода (2015) [MP3|320 Kbps] <Comedy Punk>
@@ -745,6 +717,35 @@ Manticora - The Black Circus Part 2 - Disclosure (2007) [APE|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34A92FC5BA4F42BBFBFC03D8C247703F491A7C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248532   (442671) от 20.09.2018
+
+Manticora - The Black Circus Part 1 - Letters (2006) [APE|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter The Carnival (2:07)
+02. The Black Circus (5:27)
+03. Intunerie I (0:32)
+04. Enchanted Mind (5:30)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704348F165CA4F488110389DEF3ED0088B4A58A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

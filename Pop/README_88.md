@@ -1,3 +1,61 @@
+###  Публикация: 1388458   (786731) от 06.06.2020
+
+Ансамбль русских народных инструментов Карусель - Вечерний звон (2002) [FLAC|Lossless|tracks + .cue]<Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гай да тройка!
+02. Только раз
+03. Коробейники
+04. Ночь светла(   Читать дальше...   )Жанр: RetroПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A59B0F120E789C295012301CA9605C901778CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388472   (786721) от 06.06.2020
+
+Lady Gaga - Chromatica (2020) Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chromatica I (01:00)
+02. Alice (02:57)
+03. Stupid Love (03:13)
+04. Rain On Me (with Ariana Grande) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC60B15B160B23100E5979C9BBFC6B2579A7396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388505   (786713) от 06.06.2020
 
 Григорий Лепс - Честь имею! На дистанции (Высоцкий) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Авторская песня>
@@ -687,64 +745,6 @@ Laura Branigan (Лора Брэниган) - Hold Me (1985) Atlantic, 7 81265-2,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC7B37B16D78EB65F768BBE24309C247BBCC39AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204029   (785393) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Over My Heart (1993) Atlantic, 7567-82489-2, Europe [MP3|320 Kbps] <Pop Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. How Can I Help You To Say Goodbye 4:29
-02. The Sweet Hello, The Sad Goodbye 5:07
-03. Over My Heart 4:25
-04. It's Been Hard Enough Getting Over You 3:42(   Читать дальше...   )Жанр: Pop Rock, SoulПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3368D24B8120D5BEFA2C5E5F1CC6684FC27FD63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277292   (785364) от 20.01.2019
-
-Demis Roussos - The Demis Roussos Collection (2008) 4CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1: Forever And Ever - The Greatest Hits
-01. Forever And Ever
-02. Happy To Be On An Island In The Sun
-03. Marie Jolie(   Читать дальше...   )Жанр: PopПродолжительность: 04:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2240C2EE9CE4872155F01E1B2D6EE5C9C4B152C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

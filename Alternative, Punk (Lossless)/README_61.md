@@ -1,3 +1,32 @@
+###  Публикация: 1671443   (171221) от 25.10.2023
+
+Florence + The Machine - Under Heaven Over Hell (2023) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Is Here [00:01:51]
+02. Dog Days Are Over [00:04:10]
+03. Choreomania [00:03:33]
+04. Delilah [00:04:53](   Читать дальше...   )Жанр: Alternative, Indie PopПродолжительность: 02:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34914C25A0B7844FF45079A8D1FE42D25230B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671882   (171061) от 26.10.2023
 
 Black Heaven - History (2009) 2CD [FLAC|Lossless|image + .cue] <Darkwave, Gothic, Synth>
@@ -712,35 +741,6 @@ Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) Orchestral Ve
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94B3132B01F181B3FA59E88A80044E89DB8D3F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431960   (164485) от 17.12.2020
-
-Blacklite District - Instant // Concern (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are the Danger (2:49)
- 02. The Ghost of You and Me (3:11)
- 03. The Struggle (4:05)
- 04. Cold as Ice (3:28)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, ElectronicПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E794796BC495FB786A7B54DE096771845859CD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

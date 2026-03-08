@@ -1,3 +1,37 @@
+###  Публикация: 234728   (500669) от 09.09.2010
+
+Bodhi - Trans Ukraine (2006) [MP3|320 kbps]<New age, Flute, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500669.jpg" />
+</div>
+
+
+###  Подробнее
+
+(10:38) 1. Crimea I
+(04:51) 2. Crimea II
+(05:58) 3. Crimea III
+(05:38) 4. Kiev I
+(07:30) 5. Kiev II
+(08:58) 6. Kiev III
+(07:58) 7. Odessa I
+(04:56) 8. Odessa II
+(06:36) 9. Odessa IIIЖанр: New age, Flute, ElectronicПродолжительность: 01:03:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563804   (500499) от 18.07.2022
 
 VA - Teenage Mutant Ninja Turtles: Shredder's Revenge (Original Game Soundtrack) (2022) [MP3|~249-288 Kbps] <OST>
@@ -768,35 +802,6 @@ The Gino Marinello Orchestra - Digital Melodies: 16 Synthesizer Melodies (1988) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02985FD0F2A0CC18B1C043B61CB97FA8FB7D8905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054906   (492485) от 20.09.2016
-
-Bernward Koch - Touched by Love (2016) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking through Clouds [00:02:39]
-02. Touched by Love [00:03:22]
-03. Long Way Home [00:04:12]
-04. Back to Myself [00:03:46](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FD3BF7FC474F24AF7B7576733913107F0535DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

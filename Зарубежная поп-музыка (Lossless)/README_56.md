@@ -1,3 +1,32 @@
+###  Публикация: 1409567   (440297) от 19.09.2020
+
+Ava Max - Heaven & Hell (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440297.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. H.E.A.V.E.N (01:46)
+2. Kings & Queens (02:42)
+3. Naked (03:42)
+4. Tattoo (02:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28535DB503FC20E8DCA2CCDEB313F394C79C5872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248636   (439641) от 21.09.2018
 
 Ray Conniff - Рэй Коннифф в Москве (1974, 2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
@@ -717,35 +746,6 @@ VA - Gold Ballads (2003) [APE|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2C82C106F047E4061E28FF22F6E452FC8D6BF71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064919   (423479) от 21.10.2016
-
-Lady Gaga - Joanne (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Elecrtronic, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond Heart (3:30)
-02. A-YO (3:27)
-03. Joanne (3:16)
-04. John Wayne (2:54)(   Читать дальше...   )Жанр: Pop, Elecrtronic, Rock, Dance, Pop RockПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FB7CD6B2DB376FED10F11F6F682C079FE061210
 ```
 
 https://mybot314.ru/tekegram_catalog/

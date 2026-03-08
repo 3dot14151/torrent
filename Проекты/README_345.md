@@ -1,29 +1,3 @@
-###  Публикация: 1818676   (2159) от 18.09.2025
-
-Проекты - VideoHive - Unroll Billboard Mockup – Realistic 3D Outdoor Advertising Display Kit - 59529250 [AEP]
-
->>Проекты
->>Разное (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный макет рекламного щита Unroll.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DED89169237D27AC2BB42989D2FE72288C979C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818746   (2155) от 18.09.2025
 
 Проекты - VideoHive - 3D Music Visualizer - 27017855 [AEP]

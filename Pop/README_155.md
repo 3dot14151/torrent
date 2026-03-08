@@ -1,3 +1,61 @@
+###  Публикация: 1298760   (600753) от 30.04.2019
+
+Marina - Love + Fear (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Handmade Heaven (03:29)
+02. Superstar (03:53)
+03. Orange Trees (03:07)
+04. Baby (03:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A49B9DE11FC4DC38351E27148EF8C8E662BB2FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149659   (600242) от 11.07.2017
+
+Will Tura - The Real... Will Tura (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Eenzaam zonder jou
+02. Draai dan 797204
+03. Je liegt(   Читать дальше...   )Жанр: PopПродолжительность: 03:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9831A7F131613CE87ADFC5C145EC804115A250A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149671   (600218) от 11.07.2017
 
 Billy Ocean - The Real... Billy Ocean (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Soul, Funk>
@@ -717,64 +775,6 @@ Jo Bisso - 3 Albums (1976-1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2F5E2D65B9DA58B34CF447325DDD1DA5E95C470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548733   (598364) от 03.05.2022
-
-VA - Tani-Disco Rumba & Flamenco Boogie 1976-1979 (2018) CD [MP3|320 Kbps] <Disco, Rumba, Flamenco, Boogie>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sangre Gitana - Yo Me Siento Muy Feliz (2:32)
-02. Rumba Tres - Y No Te Quedan Lagrimas (2:36)
-03. Los Gachos - Estrella (4:20)
-04. Tobago - Oye Chiquilla (3:46)(   Читать дальше...   )Жанр: Disco, Rumba, Flamenco, BoogieПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71700F751BEABDE1050AEC4188E1EE2587142421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548576   (597903) от 03.05.2022
-
-Demis Roussos & We Five - Demis Roussos & We Five (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demis Roussos - When a Man Loves a Woman [00:02:41]
-02. We Five - Wild Thing [00:03:53]
-03. Demis Roussos - Black Is Black [00:04:01]
-04. Demis Roussos - Paint in Black [00:02:33](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD247BD75D163AF7CD6F69FEA47C4F1619B73AF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

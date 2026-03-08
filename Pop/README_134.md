@@ -1,3 +1,61 @@
+###  Публикация: 905297   (651209) от 05.06.2015
+
+Crazy P - Walk Dance Talk Sing (2015) [MP3|320 кб/с]<Nu-Disco, Nu-Jazz, House, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like A Fool (5:06)
+02. The Come On (5:40)
+03. Echo (7:05)
+04. Cruel Mistress (4:55)(   Читать дальше...   )Жанр: Nu-Disco, Nu-Jazz, House, ElectronicПродолжительность: 01:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA3C5007AD94FBC42A2BE20CE903C0FBBDE5B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291912   (650692) от 27.03.2019
+
+VA - Fashion Beats 2019.1 (2019) [MP3|320 Kbps] <Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rabih - Leave the World Behind (Radio Edit)
+02. Andy Stroke - Dream Girl (Radio Edit)
+03. Addicted Craze;Kevin Kelly - Drinks up to the Sky (Max K. Remix Edit)
+04. Tasha - Black Due (Radio Mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 01:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40D2381DB22FE22E5EB64564CE68B7D0005F297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291971   (650605) от 27.03.2019
 
 VA - Die Grobe 4 Cd Party Box (1999) Box Set, 4CD, Compilation [FLAC|Lossless|image + .cue] <Rock, Funk, Soul, Pop>
@@ -682,64 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5676F4B9E2A5243FF51B123A5F4527CF71CDB8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540991   (648533) от 01.04.2022
-
-Beppe Cantarelli - Confusione (1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prendimi Con Te (5:49)
-02. Milano-Madrid (7:00)
-03. Come Un Sogno (4:18)
-04. Confusione (Un'aquila) (5:02)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4696EBB71CF96F61C3FF67286A46AD2C54D789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141745   (648497) от 11.06.2017
-
-Sezen Aksu - Biraz Pop Biraz Sezen (2017) [FLAC|Lossless|tracks + .cue] <Turkish Pop, Europop, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648497.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. İsyancı
-2. Baba Evi
-3. İhanetten Geri Kalan
-4. Hakkımda Konuşmuşsun(   Читать дальше...   )Жанр: Turkish Pop, Europop, Vocal, BalladПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1440B3F461B35529EAB52094E8977AD1D78EC546
 ```
 
 https://mybot314.ru/tekegram_catalog/

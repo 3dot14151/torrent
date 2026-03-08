@@ -1,3 +1,61 @@
+###  Публикация: 1475102   (1012568) от 05.06.2021
+
+Shingo Nakamura - Best of Shingo Nakamura 03 (2019) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hakodate (Denis Laurent Remix) (Mixed) (6:15)
+ 02. Tribute, Chapter II (Terry Da Libra Remix) (Mixed) (5:46)
+ 03. Hakodate (Digital Sixable Remix) (Mixed) (5:38)
+ 04. Move On (ft. Kazusa) (Matao Remix) (Mixed) (6:13)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01EF5A938F17DAF35D1415D0D506D36BB6FDD07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474961   (1012566) от 05.06.2021
+
+Steen Thottrup - Diversities (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One (feat Eva Scolaro) (05:49)
+02. Kisses & Flirts (03:52)
+03. Time (feat Lunamila) (05:07)
+04. Faces (feat Evamaria Linnet) (03:32)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A64AD68AC7D97D94EBB4F05696711835636425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475330   (1012415) от 06.06.2021
 
 Shingo Nakamura - Best of Shingo Nakamura 01 (2017) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
@@ -686,64 +744,6 @@ Boris Divider - Discography 20 Releases (2004-2021) Artificial Domain [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65CD42D27ADCDCC173B564354DAD9D4CEFAC27A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477585   (1011002) от 15.06.2021
-
-Valance Drakes - A Patternless And Endless Soul (2021) YUKU Records [FLAC|Lossless|WEB-DL|tracks] <Glitch-Hop, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grown Weary Of Their Kindness (03:58)
- 02. Awaken Old Memories From Their Slumber (03:39)
- 03. Angels Can Still Feel Fear (03:40)
- 04. Those That Tell You Winning Lies (03:50)(   Читать дальше...   )Жанр: Glitch-Hop, IDM, AmbientПродолжительность: 00:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3B5DAC82DF8316786ACB65B6A8BC6740DF57B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477457   (1011000) от 15.06.2021
-
-LATE - Far North Eleven (2021) Amek Collective [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Industrial>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Lived Falling Out Of The Skin Into The Soul (05:06)
- 02. Far North Eleven (04:18)
- 03. Circles (03:42)
- 04. Kharon (02:36)(   Читать дальше...   )Жанр: Ambient, Experimental, IndustrialПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495209F75FE7869DFB1C2DFE0B70200831637FBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

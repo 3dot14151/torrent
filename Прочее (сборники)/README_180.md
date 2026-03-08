@@ -1,3 +1,134 @@
+###  Публикация: 466659   (81645) от 12.03.2012
+
+VA - Клубная Музыка Дискотек Марта (2012) [MP3|192 кб/с]<Клубная, танцевальная, поп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 69 Lovers Vs. Lanfranchi & Farina - Think
+ 02. Alex Gaudino - Im In Love (I Wanna Do It) (Vocal Club Mix)
+ 03. Andreea Banica - Sexy
+ 04. Azuro Feat. Elly - Ti Amo
+ 05. Bk Duke And Falko Nielstolik Feat. Nina Hall - Explore (Brockman And Basti M Remix Edit)
+ 06. Chris Rockford Vs.Jennifer Paige - Crush (Max Fraenthide Edit)
+ 07. Contras Feat Joan Colova - La Luna (Original Mix)
+ 08. Cristian Marchi And Gabry Ponte - Dont Let Me Be Missunderstood (Gabry Ponte Vintage Radio M
+ 09. Damon Paul Feat. Kayna - Fly (Sean Finn Edit)
+ 10. Deadmau5 - Aural Psynapse (Dfm Edit)2012Жанр: Клубная, танцевальная, попПродолжительность: 02:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C7200F61955B772608DFF5BCB6FE272D5F1D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464964   (80975) от 09.03.2012
+
+Whitney Houston - The Ballads Collection (2009) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_80975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Always Love You
+02. I Have Nothing
+03. Run To You
+04. On My Own
+05. Count On Me
+06. Exhale (Shoop Shoop)
+07. All The Man That I Need
+08. Where Do Broken Hearts Go
+09. When You Believe
+10. Why Does It Hurt So Bad(   Читать дальше...   )2009Жанр: PopПродолжительность: 01:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6B39C71EF6703CCD387E29FC03B0757400D8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463392   (80355) от 06.03.2012
+
+Музыка Леса - 4 альбома (2010-2012) [MP3|128-224 кб/с]<Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_80355.jpg" />
+</div>
+
+
+###  Подробнее
+
+2010-2012Жанр: FolkПродолжительность: 23:41:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455380   (77398) от 20.02.2012
+
+VA - Сборник песен о волках (1968-2011) [MP3|256 kbps]
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 1968-20111. Волк-одиночка (3:06)
+2. Волк (3:09)
+3. На поляне среди леса (3:50)
+4. 5 квартал - Волк (3:57)
+5. 6.10 - Травля волков (3:23)
+6. A-HA - Cry wolf (4:03)
+7. Axxis - The wolf (4:45)
+8. Bahh Tee - Волчонок (3:19)
+9. Blaze of Steel - Путь волка (2:57)
+10. Butterfly Temple - Бегу я рысью, бегу я волком (3:33)(   Читать дальше...   )Жанр: разныеПродолжительность: 17:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D7C70780BB10266E2C78BF4CA9B1E3E12E4214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778652   (70859) от 09.02.2025
 
 VA - Music News For Forum vol.061 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +760,6 @@ VA - ЕвроХит Топ 40 Europa Plus 22.03.2024 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50DC26CC3B00EB22C86B1EC079C32A51E8E21095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709178   (62024) от 23.03.2024
-
-VA - Music News vol.355 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62024.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Loboda - Имя (03:24)
- 002. Andery Toronto feat. Диман Брюханов - Надежда На Завтра (02:28)
- 003. Arkanne - Полный Газ (02:20)
- 004. AURORA - Some Type Of Skin (03:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B54348E900323BC79219CAFEC51F50E554147E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709191   (62004) от 23.03.2024
-
-VA - Music News vol.356 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62004.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юлия Савичева - Циклон (02:57)
- 002. 2xA - Hypnotize (01:34)
- 003. 4K feat. Макси АК - Блики Катаного Лба (04:17)
- 004. 140 Ударов В Минуту - Я Останусь С Тобой (03:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF46CDDB1EF189F6C15F33BCBF38794AF4FBFF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315207   (61965) от 24.03.2024
-
-VA - Понемногу отовсюду by Yuridar #B (1961-2022) Compilation Album [MP3|192-320 Kbps] <Rock, Blues, Others>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B-Zet - Ancient Person of My Heart (Le Tonnere Dance remix)
-02. Baba Blues - St. James Infirmary
-03. Baba Blues - Walk On
-04. Balligomingo - Goodbye(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 06:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5FE95A6686E46F82041218980DD6C8CB6593E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711280   (61377) от 29.03.2024
-
-VA - Music News vol.358 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61377.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. TUMANOVA - Влюбись, Если Осмелишься (02:36)
- 002. After Forever, Doro - Who I Am (04:38)
- 003. Akord - Rapirea Din Seray (03:51)
- 004. Alex Rasov - There's Nothing That We Couldn't Be (03:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A20AAE91A7BC3CD88C62DA3F9DDEDF0D8EFAB15
 ```
 
 https://mybot314.ru/tekegram_catalog/

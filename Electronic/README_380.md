@@ -1,3 +1,61 @@
+###  Публикация: 1189800   (269571) от 07.12.2017
+
+VA - Post Workout Stretching: Music Chillout After Your Workout (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caner Soyberk - Sunshine
+02. Gualtiero Cesarini - My Guitar
+03. Andrea Marcelli - Sunset in Rio
+04. The Zen Agent - Spirits(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B881829AC85BECFF7778077CF3AD454854012C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338423   (269566) от 15.11.2019
+
+Little Big - GO BANANAS (2019) EP [MP3|320 Kbps] <Rave, Electronic>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269566.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pop On The Top
+2. Rock-Paper-Scissors
+3. Go Bananas
+4. T.I.T.S(   Читать дальше...   )Жанр: Rave, ElectronicПродолжительность: 00:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEB48B7D04795B330D82830F173AA5BF3C20AC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266831   (269207) от 03.12.2018
 
 VA - Trance Pure (2018) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ Felicia Atkinson & Jefre Cantu-Ledesma - Limpid as the Solitudes (2018) Shelter 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B20401F55965E752705768CE3CB07525847D609F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267171   (267902) от 05.12.2018
-
-Dead Beat Project | O.S. - Discography 4 Releases (2007-2014) Aesthetic Death Records, AD Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tribal, New Age, World>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Playa Del Amor (07:46)
- 02. Light Bulbs (06:42)
- 03. Twilight On Fullerton Bay (05:53)
- 04. The Blue Shadow (Vocal Mix) (07:45)(   Читать дальше...   )Тип издания: WebЖанр: New Age/Ambient/Tribal/HouseПродолжительность: 01:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D55B21455908492BA079D8E74514726B05C9D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267117   (267809) от 05.12.2018
-
-HOME - Odyssey (2014) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (3:09)
-02. Native (4:02)
-03. Decay (4:11)
-04. Oort Cloud (3:26)(   Читать дальше...   )Жанр: Synthpop, Synthwave, AmbientПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDEC47F6C1300FB0F8CDB574F0E6205ABE9643F
 ```
 
 https://mybot314.ru/tekegram_catalog/

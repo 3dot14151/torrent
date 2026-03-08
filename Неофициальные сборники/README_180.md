@@ -1,3 +1,177 @@
+###  Публикация: 1203028   (789031) от 31.01.2018
+
+Алимханов А. - Cover Collection (2018) [MP3|320 Kbps] <Pop, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARKADiAS & DJ Kriss Latvia - Baby (Remix) (3:42)
+02. Bee Lee & Алимханов А. - Do You Wanna (Modern Talking Cover) (6:23)
+03. Mode One - Heaven is Waiting (DJ Kriss Latvia Rework) (5:56)
+04. Алимханов А. & Bad Boys Blue - Hungry For Love (4:33)(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 03:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2002D9DB158F251435C3A1FF64ED73994FC9DBE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202864   (789015) от 31.01.2018
+
+VA - За Полшага До Зимы (2018) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789015.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Кипелов - Косово Поле
+002. БИ-2 feat. John Grant - Виски
+003. Сплин - Храм
+004. 25-17 - Она не такая, как все(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6297466B124669DFCC54FC9FED23310192DD04ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511598   (788938) от 21.11.2021
+
+VA - Music News vol.149 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788938.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Cry Your Heart Out (04:15)
+ 002. ADDA - Sa Nu-mi Iei Trandafiri (03:25)
+ 003. Adele - Can I Get It (03:30)
+ 004. Activ - Doar Cu Tine (Andrey Vertuga DFM Radio Edit) (02:52)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A354D2DAE1147D8F8228C9623257AB092C829C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511524   (788850) от 21.11.2021
+
+VA - German Top 100 Single Charts 19.11.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KUMMER & Fred Rabe - DER LETZTE SONG (ALLES WIRD GUT)
+02. Ed Sheeran - Shivers
+03. Elton John & Dua Lipa - Cold Heart (PNAU Remix)
+04. Glass Animals - Heat Waves(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B7C9DB26BC6AA8B090F40D57DC59CF613A8250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511612   (788841) от 21.11.2021
+
+VA - Music News vol.150 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Natalia Oreiro & Juan Ingaramo - Me Muero de Amor (03:31)
+ 002. Anzheli - Антигерой (Piano Version) (02:42)
+ 003. ARZU - Слезы (02:45)
+ 004. Banzay - Румянец (02:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2221930ECC43B3DC9ECE90F9067C1FD66AE53288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511502   (788788) от 21.11.2021
+
+VA - Зайцев.нет Лучшие новинки Ноября (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 25 17 - Зима-мама (электричество) (3:13)
+02. 5sta Family - Тюльпаны (Lavrushkin & Tomboo Remix) (2:52)
+03. BRAMA - Нам не нравятся те, кому не нравимся мы (2:25)
+04. GARRISON - Infinity (5:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA1DE7D0E6254169BFA57EEE7D759B8798548EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203098   (788673) от 01.02.2018
 
 VA - Empire Records - Trance Apocalypsis 2 (2018) [MP3|320 Kbps] <Trance>
@@ -568,177 +742,6 @@ VA - Nu Disco Vol.6 (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Nu Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B585DA5AFF8058B8A93ACBBF417F1508C0E4CFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203588   (788120) от 02.02.2018
-
-VA - Impulse №9 - Super Music for Super Car (2018) [MP3|320 Kbps] <Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zedd & Grey Feat. Maren Morris - The Middle (Original Mix) 3:05
-02. Kike Puentes - Life (Original Mix) 4:23
-03. Dome Ft. Edith Brinca - I Feel Alive (Extended Mix) 3:26
-04. Paris & Simo Ft. Nikon - Glow (Original Mix) 2:56(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 06:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:322932CD038E950A30CFC9FAA03DD6485DEDDBEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276319   (788074) от 16.01.2019
-
-VA - Ukrainian Hits Vol. 4 (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alyosha - Калина (03:16)
-02. Олег Винник - Па-Па (03:31)
-03. Ірена & Андрій Заліско - Я Не Зраджу (03:54)
-04. Мері - Телефони (03:29)(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C351DA8AB0640A899D38787F8B2ED36A5048256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203419   (787908) от 02.02.2018
-
-VA - Top 100 Январь. Зайцев.Нет (2018) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ SLON & KATYA ft. Роман Василенко - LIFE IS GOOD
-02. J. Balvin & Willy William - Mi Gente
-03. Время и Стекло - Тролль
-04. T-Fest - Улети(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AD1EB6DC4A5F70AD63E96CB1CABB333E8CB8EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276399   (787872) от 16.01.2019
-
-Annett Louisan - Engel (2017) Rammstein Cover Lyrics [MP3|320 Kbps] <Pop music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787872.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Annett Louisan - Engel (Rammstein Cover) LyricsЖанр: Pop musicПродолжительность: 00:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E175167FCA70BCAF1D5A0391C30172977B017A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512075   (787818) от 23.11.2021
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 113 (2021) [MP3|320 Kbps] <Club, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. Alok, MAW x NEXBOY, Waveshock - Sunglasses Work (Dj Baur Mixshow)
-02. Antonio Banderas x JORD & Lamic - El Mariachi (Dj Baur 2021 Reboot)
-03. Breathe Carolina & Smack - Get Back (feat. Titus) (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E22EEB1E09410C790F3A047C29B8A8C254F269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511743   (787811) от 23.11.2021
-
-VA - SVS Collection vol. 6 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обязательно для прослушивания в машине!001.  A-Mase & Sharliz - Diamonds (Radio Mix)
-002.  A-Mase & Sharliz - Say It Right (Original Mix)
-003.  A-Mase & Sharliz - Ты Не Верь Слезам (Shura Cover) (Original Mix)
-004.  A-Mase feat. NINO - Toxic (Original Mix)(   Читать дальше...   )Жанр: Deep House, Electro House, OtherПродолжительность: 13.29.32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5EF00DBC0EC9DB3F7CDB9FF208512051B767EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

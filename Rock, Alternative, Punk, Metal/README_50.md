@@ -1,32 +1,3 @@
-###  Публикация: 1615144   (1038115) от 24.02.2023
-
-Megaton Sword - Might & Power (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Raving Light of Day [00:05:05]
-02. Iron Plains [00:05:53]
-03. Power [00:04:30]
-04. Cowards Remain [00:04:15](   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF2430A200647EE082E576D7A4E8901DBFFDF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592210   (1038113) от 24.02.2023
 
 Adellaide - Deja Vu (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
@@ -745,6 +716,35 @@ Gorillaz - Cracker Island (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Trip-Hop, Lef
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAD2F4A29BF396CED5EEA1AE3286DCD0D4F5364F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614760   (1037819) от 25.02.2023
+
+Gorillaz - Cracker Island (2023) [FLAC|Lossless|tracks+.cue] <Trip-Hop, Leftfield, Electroniс>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cracker Island (Feat. Thundercat) [00:03:33]
+02. Oil (Feat. Stevie Nicks) [00:03:50]
+03. The Tired Influencer [00:03:31]
+04. Silent Running (Feat. Adeleye Omotayo) [00:04:26](   Читать дальше...   )Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A6E916FD8FA12DA03DA57D0445B941D9E81CB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

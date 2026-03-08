@@ -1,3 +1,32 @@
+###  Публикация: 1297407   (604057) от 22.04.2019
+
+Bananarama - In Stereo (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love in Stereo
+02. Dance Music
+03. I'm on Fire
+04. Intoxicated(   Читать дальше...   )Жанр: PopПродолжительность: oo:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B755F23979392C13570B9F8D9F5E470D276BD45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148666   (603495) от 07.07.2017
 
 Rebbie Jackson - Yours Faithfully (1998) [FLAC|Lossless|image + .cue] <Pop, R&B, Soul>
@@ -716,35 +745,6 @@ Sarah Brightman - Hymn  (World Tour Limited Edition) (2019) [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6471B9E2E6C29B626D02CF8E51FB66DD05106762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915502   (592221) от 05.07.2015
-
-VA - 100 Hits - 80s Love (2007) 5CD Box Set [FLAC|tracks + .cue]<Pop, Dance, Soul, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luther Vandross - Stop To Love [04:21]
-02. Five Star - Rain Or Shine [03:53]
-03. Boy Meets Girl - Waiting For A Star To Fall [04:25]
-04. Jason Donovan - Every Day (I Love You More) [03:23](   Читать дальше...   )Жанр: Pop, Dance, Soul, VocalПродолжительность: 06:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0757523DFD523C645523252A3B225012CE23010A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 860471   (325370) от 07.10.2022
+
+Yehudi Menuhin & Stephane Grappelli - Menuhin And Grappelli Play Gershwin (1973 - 1981) 2000, EMI[APE|Lossless]<Jazz, Swing, Chamber Music>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fascinating Rhythm [02:17]
+02. Soon [03:46]
+03. Summertime [04:22]
+04. Nice Work If You Can Get It [02:29](   Читать дальше...   )Жанр: Jazz, Swing, Chamber MusicПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714602166E241B5BA02C489AA216DB848F99E71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 262508   (325234) от 26.11.2010
 
 Kenny G - Greatest Hits (2CD) (2009) [APE|Lossless]<Jazz, Smooth Jazz>
@@ -713,35 +742,6 @@ Eddie Heywood - 1950 - 1951 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26FC941B8078C2CEE702C1E3E0019F93D05E56D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958818   (321974) от 22.11.2015
-
-Urbie Green - The Fox (1976) 2013, King Records[FLAC|tracks+.cue]<Jazz Funk, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Another Star [07:16]
- 02.Goodbye [02:59]
- 03.Mertensia [04:57]
- 04.You Don't Know What Love Is [04:01](   Читать дальше...   )Жанр: Jazz Funk, Soul JazzПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10DA46681FE22819EACDD37EEF2740603664A12
 ```
 
 https://mybot314.ru/tekegram_catalog/

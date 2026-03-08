@@ -1,3 +1,32 @@
+###  Публикация: 1140163   (658277) от 04.06.2017
+
+VA - Strong Stuff (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Following Light - Intention (Michael A Remix) 06:29
+02. Magnetic Brothers - Morning Feelings (K Nass Remix) 07:03
+03. Ewan Rill - Scanners 06:32
+04. Platunoff - Secret 07:09(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D90A49FBCEF789A7FB01FDF54F1060A0A8AF8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139913   (658209) от 04.06.2017
 
 VA - Ibiza Vocal Hits 2017 [MP3|320 Kbps] <Progressive House>
@@ -735,35 +764,6 @@ VA - House Of Ibiza 2017 [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DFCBADE77EC74EA463F853DD0E7DC583E156C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141465   (650546) от 10.06.2017
-
-VA - Ibiza House (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soneec - Once Again 05:18
-02. Alemany - Fresh (Charles J Remix) 05:01
-03. Dave Aude feat. Vassy - Hustlin' (Club Mix) 05:49
-04. Sante Cruze - Get so High 06:51(   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectroПродолжительность: 02:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0382BBE1BFAD0962DC98780E11029778E471C9FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,54 +1,25 @@
-###  Публикация: 1751632   (104052) от 26.09.2024
+###  Публикация: 1751130   (104091) от 23.09.2024
 
-Sylvain Rifflet - We Want Stars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Dance (2:34)
-02. The Mojo (3:18)
-03. Mǎmǎhūhū (4:36)
-04. Bach and Boom (5:18)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EB8E61812BCC135E36243FDEF38D5A9002E1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751628   (104051) от 26.09.2024
-
-Shrinking Mode - Choices of Passion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Lady Adrena - Recipe For The Blues (Deluxe Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104051.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Coffee High (2:43)
-02. Mix of Passion (2:19)
-03. Don't Drink Coffee Too Much (2:29)
-04. Midnight Sugar (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:17
+01. Blues Chose Me (3:37)
+02. Borrow My Pans (2:55)
+03. Traveling Woman (3:34)
+04. Good Girl Gone Bad (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:943825E82BFD5906788608338581F43AEAF239C7
+magnet:?xt=urn:btih:ACF75FD3ED6F83EC908CB213EF51968AFFE72440
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751523   (104050) от 26.09.2024
+###  Публикация: 1751043   (104090) от 23.09.2024
 
-Arma - Brazilian Genocide (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+Dear Robin - Timebound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104050.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Believe in Nothing [00:04:23]
-02. Those Who Died [00:04:27]
-03. Brazilian Genocide [00:04:23]
-04. Things That Cannot Be [00:03:25](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:36:17
+01. Good Times (4:46)
+02. Timebound (4:14)
+03. Flower (5:26)
+04. Breakout (4:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:358AA21296772A9734371C1875E54FD9CEBE9105
+magnet:?xt=urn:btih:50978BDF63C154A6799FC2CD53D9E5E824166639
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,57 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751742   (104049) от 26.09.2024
+###  Публикация: 1751132   (104089) от 23.09.2024
 
-Virgin Steele - Guardians Of The Flame (1983) Reissue, Remastered, 2024, Steamhammer, The Anniversary Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Say Goodbye (Tonight) (4:56)
-02. Burn The Sun (4:30)
-03. Life Of Crime (4:45)
-04. The Redeemer (7:26)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC87FF4B18F8D04E2E7258DAECC800F4A6B49D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751635   (104048) от 26.09.2024
-
-The Cold Stares - The Southern (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Alt Rock>
+Lovesick - Remember My Name (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104048.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Horse To Water (3:59)
-02. Coming Home (3:09)
-03. Looking for a Fight (3:24)
-04. Blow Wind Blow (3:29)(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Alt RockПродолжительность: 00:41:22
+01. Until I'm Done (3:37)
+02. Remember My Name (2:50)
+03. You And I (2:55)
+04. Goin' Back For More (2:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:340A107248C9765979F54DC86E94D0998EDAE6CF
+magnet:?xt=urn:btih:97EEAD30AD30F250D703C9E50D80AF67DCCD673A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751727   (104047) от 26.09.2024
+###  Публикация: 1751062   (104088) от 23.09.2024
 
-Richie Kotzen - Nomad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+Herb Alpert - 50 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104047.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cheap Shots (3:24)
-02. These Doors (4:23)
-03. Insomnia (4:47)
-04. Nomad (6:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:45
+01. Dancing Down 50th Street (2:19)
+02. Sh-Boom (2:17)
+03. Are You Lonesome Tonight? (4:27)
+04. Baubles, Bangles And Beads (3:30)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:32:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9ACBE8FDC581FD08B0A61EBEDD0E0D14C8420323
+magnet:?xt=urn:btih:32A884C63C787BDE630CD8633B9978A3579C0990
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,27 +114,143 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751621   (104046) от 26.09.2024
+###  Публикация: 1751058   (104087) от 23.09.2024
 
-Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Савават Юлаев (Уфа) (25.09.2024) WEBRip [H.264/720p]
+Greg Izor - Sustained Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Ahead On (2:37)
+02. Untrue (2:42)
+03. Here On Ice (5:48)
+04. Lies Of Omission (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81915F1E6FAEA46E6B47D1DA905C5DC365701E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751147   (104086) от 23.09.2024
+
+Doomsday Outlaw - Hard Times (Redux) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Times (5:56)
+02. Over and Over (3:37)
+03. Spirit That Made Me (5:21)
+04. Into The Light (3:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3674980C6FD30EF1D3A7AB61136EA3AB84666038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751060   (104085) от 23.09.2024
+
+Hard-on Blues - Hard-on Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Precious vicious (3:49)
+02. Thank you. (3:57)
+03. Sunday Morning Mood (4:00)
+04. You turn me on (3:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE8BE8E9816A5B8003CE7CB4D8F7707B984060F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751151   (104084) от 23.09.2024
+
+Duo Holistique - FUTURISTIQUE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le jour se lève (6:31)
+02. Bienvenue dans le club progressiste du futur (6:18)
+03. Hymne pour l'avenir (4:09)
+04. Le silence en dit plus que mille mots (9:36)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C373E69F8DBAAED3680DAF47583339D857CB783D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751191   (104083) от 23.09.2024
+
+Хоккей. КХЛ 2024-2025. Ак Барс (Казань) - ХК Сочи (Сочи) (22.09.2024) WEBRip [H.264/720p]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104046.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Савават Юлаев (Уфа) (25.09.2024)
-СУДЬИ Беляев Сергей (Воскресенск, Россия) Светилов Алексей (Москва, Россия)
-СТАДИОН «Арена Трактор» (Челябинск) Зрителей: 7500Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:29:41
+Хоккей. КХЛ 2024-2025. Ак Барс (Казань) - ХК Сочи (Сочи) (22.09.2024)
+СУДЬИ Кочетов Евгений (Россия) Кулаков Сергей (Тверь, Россия)
+СТАДИОН «Татнефть Арена» (Казань) Зрителей: 8223Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:23:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB35868924E8613E18FBEAE9E93BEF39C5A9B04B
+magnet:?xt=urn:btih:562A314395065F8BA5860CF6AA30C8A22A3287DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,27 +258,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751801   (104045) от 27.09.2024
+###  Публикация: 1751116   (104082) от 23.09.2024
 
-Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - Витязь (Балашиха) (26.09.2024) WEBRip [H.264/720p]
+Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - Динамо (Москва) (22.09.2024) WEBRip [H.264/720p]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104045.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - Витязь (Балашиха) (26.09.2024)
-СУДЬИ Ромасько Евгений (Тверь, Россия) Юдаков Сергей (Россия)
-СТАДИОН «Платинум Арена» (Хабаровск) Зрителей: 7100Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:18:48
+Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - Динамо (Москва) (22.09.2024)
+СУДЬИ Лаврентьев Антон (Казань, Россия) Спирин Виктор (Россия)
+СТАДИОН «Платинум Арена» (Хабаровск) Зрителей: 7100Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:13:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85C6078EA2F87249A483F7EDE642052069DAFECC
+magnet:?xt=urn:btih:DC649633ADD0D1DA000258DB134B170D6E473BA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -228,27 +286,226 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751802   (104044) от 27.09.2024
+###  Публикация: 1751112   (104081) от 23.09.2024
 
-Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Торпедо (Нижний Новгород) (26.09.2024) WEBRip [H.264/720p]
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - ЦСКА (Москва) (22.09.2024) WEBRip [H.264/720p]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104044.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Торпедо (Нижний Новгород) (26.09.2024)
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - ЦСКА (Москва) (22.09.2024)
+СУДЬИ Бирин Виктор (Москва, Россия) Раводин Алексей (Москва, Россия)
+СТАДИОН «Фетисов-Арена» (Владивосток) Зрителей: 5520Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99272E5B2D3D4111FE8F733952C0FE7EFA0C943F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751037   (104080) от 23.09.2024
+
+Cek & The Stompers - Mr. Red (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Peach & The Snake (2:48)
+02. Mr. Red (3:05)
+03. Juanita (3:26)
+04. Please Me (3:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739BED6F4EC1E4E3BAD7AC6A85E22906B3BDC899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751048   (104079) от 23.09.2024
+
+Dred Scott Trio - Cali Mambo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moses Patrou - Cali Mambo (4:38)
+02. Tom Beckham - Star Eyes (6:33)
+03. Tom Beckham - Poinciana (5:46)
+04. Tom Beckham - La Enganadora (3:59)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A775B916486B4B5DBBCA0DA07237E918CDF070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751054   (104078) от 23.09.2024
+
+Frankywright - Echoes of Sorrow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Did You Go (5:30)
+02. Goodbye, My Love (3:21)
+03. Midnight Tears (5:51)
+04. Echoes of Sorrow (5:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DCC94CBC52640BBA9A735F701D980AD3ADAC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751442   (104077) от 25.09.2024
+
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Витязь (Балашиха) (24.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Витязь (Балашиха) (24.09.2024)
+СУДЬИ Лаврентьев Антон (Казань, Россия) Спирин Виктор (Россия)
+СТАДИОН «Фетисов-Арена» (Владивосток) Зрителей: 4872Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCA19CE24C0CE434654F3E71615B3D191956726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751448   (104076) от 25.09.2024
+
+Хоккей. КХЛ 2024-2025. Барыс (Астана) - Динамо (Москва) (24.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Барыс (Астана) - Динамо (Москва) (24.09.2024)
+СУДЬИ Наумов Денис (Тольятти, Россия) Фатеев Иван (Россия)
+СТАДИОН «Барыс Арена» (Астана) Зрителей: 5310Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BD0FC14C66F4A567FE495C25780A9B9CF2628E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751452   (104075) от 25.09.2024
+
+Хоккей. КХЛ 2024-2025. Куньлунь Ред Стар (Пекин) - Торпедо (Нижний Новгород) (24.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Куньлунь Ред Стар (Пекин)  - Торпедо (Нижний Новгород) (24.09.2024)
+СУДЬИ Бирин Виктор (Москва, Россия) Сидоренко Максим (Белоруссия)
+СТАДИОН «Арена Мытищи» (Мытищи) Зрителей: 1386Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70D018DE3E53CBF5E1417A3400664128DB9BA1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751441   (104074) от 25.09.2024
+
+Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - ЦСКА (Москва) (24.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - ЦСКА (Москва) (24.09.2024)
 СУДЬИ Васильев Алексей (Санкт-Петербург, Россия) Гашилов Виктор (Пермь, Россия)
-СТАДИОН «Фетисов-Арена» (Владивосток) Зрителей: 5537Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:00
+СТАДИОН «Платинум Арена» (Хабаровск) Зрителей: 7100Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDB1323F558FF3A0B8A0F5B44209209B4B0763AF
+magnet:?xt=urn:btih:C657833DADA823CA966610E73DDAA181BE237892
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,56 +513,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751805   (104043) от 27.09.2024
+###  Публикация: 1751445   (104073) от 25.09.2024
 
-Хоккей. КХЛ 2024-2025. Сибирь (Новосибирск) - Автомобилист (Екатеринбург) (26.09.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Сибирь (Новосибирск) - Автомобилист (Екатеринбург) (26.09.2024)
-СУДЬИ Овчинников Павел (Орск, Россия) Шувалов Вячеслав (Москва, Россия)
-СТАДИОН «Сибирь-Арена» (Новосибирск) Зрителей: 10388Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A094901F49DF9D14B7AEE2EC747F7DAE79AFAFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751926   (104042) от 27.09.2024
-
-Whisky of Blood - Diablesse Of Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Rock 'N' Roll>
+Max Diller & Blossom - Solastalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104042.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nothing More (4:03)
-02. Baby Revolution (4:33)
-03. Crazy Zone (4:36)
-04. Diablesse Of Love (3:46)(   Читать дальше...   )Жанр: Hard Rock, Rock 'N' RollПродолжительность: 00:44:19
+01. After the Rain (4:27)
+02. Broken Flower (7:21)
+03. Sun Dance (5:00)
+04. Still Blooming (3:59)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D444BDEA9EF7BD5D79EC7E7E52998B6D382381F8
+magnet:?xt=urn:btih:A93397C0FC7F17F5C6BA942C01D63968D4E32D74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,57 +542,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751923   (104041) от 27.09.2024
+###  Публикация: 1751434   (104072) от 25.09.2024
 
-Whisky of Blood - Diablesse Of Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock 'N' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing More (4:03)
-02. Baby Revolution (4:33)
-03. Crazy Zone (4:36)
-04. Diablesse Of Love (3:46)(   Читать дальше...   )Жанр: Hard Rock, Rock 'N' RollПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9288296C1AAA1F31F87F1550D1AB24B4211D0D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751836   (104040) от 27.09.2024
-
-Armored Saint - Studio Albums (4 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+Eric Escanes - Near and Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104040.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Armored Saint — американская хэви-метал-группа, наиболее известная вокальными стилями певца Джона Буша, который в течение нескольких лет работал также с группой Anthrax.2000 - Revelation
-2010 - La Raza
-2015 - Win Hands Down
-2020 - Punching The SkyЖанр: Heavy MetalПродолжительность: 04:05:46
+01. Skipping Stone (3:43)
+02. PAX (4:43)
+03. Baba (2:08)
+04. Tokyo Moon (3:27)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:30:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E482D559D5DA2FFC0EA4EFEE5BA407F8087C021
+magnet:?xt=urn:btih:59A53B4456E145EC5C876586B2EF31CAF9F6B591
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,28 +571,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751870   (104039) от 27.09.2024
+###  Публикация: 1751443   (104071) от 25.09.2024
 
-LeadBreaker - Overdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Magnus Dauner - Portrait In Rhythm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104039.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Overdrive
-2. Bitchtit Highway
-3. Hammer Of Vengeance
-4. The Machine(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:00
+01. Die Ersten Sonnenstrahlen Nach Dem Sturm (4:01)
+02. Not My Mountain (4:23)
+03. Tanz Auf Der Falltüre (6:17)
+04. Beautiful Melodie (3:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D65731FCB181122D2EE7C347D5252D93921C725B
+magnet:?xt=urn:btih:B633E840519AFCB2000F22C2B0DBEC3022050238
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,25 +600,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752056   (104038) от 28.09.2024
+###  Публикация: 1751436   (104070) от 25.09.2024
 
-Балестра / Balestra (2024) WEB-DLRip [MVO] [AD]
+Forq - Big Party (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Остальное
->>Фильмы с Рекламой
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104038.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Профессиональная фехтовальщица соглашается испытать экспериментальное устройство, позволяющее ей тренироваться в осознанных снах, в которых она встречает таинственного незнакомца, способного разрушить ее брак, психику и путь к олимпийскому золоту.Производство: Канада / Item 7, Oddfellows EntertainmentЖанр: триллер, спортРежиссер: Николь ДорсиАктеры: Джеймс Бэдж Дейл, Мэнни Хасинто, Каш Джамбо, Хезер Дорксен, Кристин Парк, Люк Билык, Стивен Лобо, Ханна Дьюк, Аннетт Райлли, Шэрон КрэндоллПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:25:36Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+01. Into Bright (5:00)
+02. Bomp (4:56)
+03. Big 3 (6:10)
+04. Dirt Cake (6:39)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D384CE133FAE7A32F49FB2ED143B2AB92AD7DF9
+magnet:?xt=urn:btih:8C3164E58238D4DC00BEAC4B869A5CC0B24654C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,25 +629,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752047   (104037) от 28.09.2024
+###  Публикация: 1751456   (104069) от 25.09.2024
 
-Безель / Бизэль / Beezel (2024) WEBRip [H.264/1080p] [DVO] [AD]
+Ruben Bertrands - The Other Side Of The Coin (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Остальное
->>Фильмы с Рекламой
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104037.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В фильме собрано несколько историй о том, как живётся людям в доме, где якобы обитает древняя сила. Соседи обходят его стороной, а местные детишки, разрываясь от страха и любопытства, приходят чтобы хоть одним глазком взглянуть на всем известный дом, где в подвале, по слухам, живёт вечно голодная ведьма. Такую репутацию дом получил из-за того, что ещё в 1966 году (   Читать дальше...   )Производство: США / Social House FilmsЖанр: ужасыРежиссер: Аарон ФрадкинАктеры: Николас Робин, ЛеДжон Вудс, Bob Gallagher, Victoria Fratz, Caroline QuigleyПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:21:44Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+01. Jumpin' Turnstiles (3:25)
+02. Goin' Down Slow (3:41)
+03. Big Wave (3:51)
+04. The Tombs (2:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:394A6FA200DBA17E3964BDD9B366B65692ADA11F
+magnet:?xt=urn:btih:40103D3EF8CB178AC976EC7781FECB36D29F2B86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,25 +658,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752078   (104036) от 28.09.2024
+###  Публикация: 1751440   (104068) от 25.09.2024
 
-Наследство, или Едрёнавошьгутентаг / Dedictvi aneb Kurvahosigutntag (1992) BDRip [H.264] [VO]
+Louis Fontaine - Antipasto (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104036.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие происходит в Чехии в период, когда наследникам стали возвращать их собственность... В провинции живёт глуповатый, но добрый Богуш. Неожиданно из города приезжает доктор Улрих и объявляет, что Богушу возвращается собственность покойного отца — кирпичный завод и дорогая недвижимость в Праге...Производство: Чехия / Space FilmsЖанр: комедияРежиссер: Вера ХитиловаАктеры: Болек Поливка, Мирослав Донутил, Анна Пантучкова, Йозеф Кронер, Дагмар Вешкрнова, Шарка Войткова, Павел Затлоукал, Бржетислав Рихлик, Павел Брихта, Ян СедалПеревод: профессиональный одноголосый, любительский одноголосыйЯзык озвучки: русский, чешскийСубтитры: английские, чешскиеПродолжительность: 01:58:08
+01. Crème Caramel (3:35)
+02. Cocktail Di Gamberi (3:20)
+03. Salsa Rossa (2:48)
+04. Cotoletta Alla Milanese (3:24)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:38:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5A157BEC9BEA8AAEFBB45B433BF9FD136A23C72
+magnet:?xt=urn:btih:0DFDD9AC1ECE64A24A582F34C5A5A4CA3031EF40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,28 +687,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752138   (104035) от 28.09.2024
+###  Публикация: 1751447   (104067) от 25.09.2024
 
-VA - Dance Classics - The Remixes Volume 2 (1989) [FLAC|Lossless|tracks + .cue] <House, Hip Hop, Disco>
+Nikhil Korula Power Trio, John Primer, and Bob Corritore - Sight & Sound Episode 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104035.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Real Thing – You To Me Are Everything (Decade Remix 76-86) (6:04)
-02. Bill Withers – Lovely Day (Sunshine Mix) (6:33)
-03. Barry White – Never Never Gonna Give You Up (Remix) (7:18)
-04. Freeez – I.O.U. (House Mix) (5:59)(   Читать дальше...   )Жанр: House, Hip Hop, DiscoПродолжительность: 01:11:56
+01. Forty Days and Forty Nights (5:01)
+02. When I'm With You (3:32)
+03. The Wind Cries Mary (3:17)
+04. Someone Tell the World It's Burnin' (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E608385EC132492CCB811DF2ABFBF6EFBB3F3693
+magnet:?xt=urn:btih:109B65979328D92C81B5ABAFBE59B860639C0530
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,209 +716,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752141   (104034) от 28.09.2024
+###  Публикация: 1751437   (104066) от 25.09.2024
 
-StartAllBack 3.8.10 build 5173 [Multi/Ru]
+Kris Rab - It's About Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104034.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+01. Sweet and Loving Woman (4:16)
+02. Faith (3:44)
+03. It's About Time (4:00)
+04. Again (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1653AB17230021A8D73D4089794A228DB6EE001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752148   (104033) от 28.09.2024
-
-Л.Э. Генденштейн, А.А. Булатова и др. | Физика. Учебник для 7 класса (в 2 частях, Часть 2) (2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Линия учебников для основной школы. Материал разбит на два уровня сложности и представлен как канва сценариев уроков, реализующих деятельностный подход к обучению: тщательно подобранные задания погружены непосредственно в теорию. Имеется набор заданий трёх уровней сложности. Приведены описания кратковременных фронтальных практических работ, позволяющих учащимся самим (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03563DB96BD043FE26F43878BC495C0862294F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752086   (104032) от 28.09.2024
-
-SnapEdit - AI photo editor v6.9.0 Mod by Oflarm [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104032.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / Mod + CloneРелиз состоялся: 28.09.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47191B2EAEE36559D202A504DDC3E02D29AF5689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752172   (104031) от 28.09.2024
-
-Экстрасенсы. Реванш (28.09.2024) WEBRip [H.264/1080p] (сезон 2, выпуск 4)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое шоу с участием пока экстрасенсов, которые когда-то вылетели из легендарной «Битвы». Настал их черёд реванша: пришло время доказать, что поражение было случайностью. Для того, чтобы заново доказать свою состоятельность, им необходимо будет разгадать истории 10 незнакомцев, которых они увидят в студии.Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14B3724C6C438DE06F2104CA50BF24023960DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752072   (104030) от 28.09.2024
-
-BBC: Горизонт. Каковы размеры Вселенной? / Horizon. How Big Is the Universe? (2012) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это один из самых загадочных вопросов, который учёные могут задать: насколько велика Вселенная, в которой мы живём? Эта серия цикла Горизонт расскажет нам об амбициозном проекте космологов, которые создают самую большую карту в истории - карту Вселенной. И она страннее, чем кто-либо мог себе представить - Вселенная без конца, Вселенная, которая простирается далеко (   Читать дальше...   )Производство: Великобритания / British Broadcasting Corporation (BBC)Жанр: документальный, научно-популярный, космосРежиссер: Kenny ScottУчастники: Steven Mackintosh, Anthony Aguirre, Sean CarrollПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийСубтитры: OтсутствуютПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281FEEEB97DD35072F6AADFE379F0AEE1F450B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752023   (104029) от 28.09.2024
-
-Яндекс.Браузер 24.7.4.1317 (x32) / 24.7.4.1316 (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D808B7DD92B776D03FD23186CB8B76F881DAF52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752088   (104028) от 28.09.2024
-
-И.Ф. Шарыгин, Л.Н. Ерганжиева | Наглядная геометрия. 5-6 класс (1992) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, не имеющая аналогов в современной школьной практике, призвана способствовать развитию у младших школьников геометрических представлений.
-Пособие, написанное живо и увлекательно, может быть использовано учителем как на уроках, так и во внеклассной работе. Много полезного найдут в нем и школьники для самостоятельных занятий.
-Для учащихся и преподавателей геометрии.Жанр: МатематикаИздательство: МИРОСФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384090EB5336E51965384C7C1474124DB5F7D9D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744442   (104027) от 28.09.2024
-
-Хит-Манки / Hit-Monkey (2024) WEB-DL [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет посвящен обезьяне, которая тренировалась у киллера по имени Брюс, чтобы линчевать преступников.Производство: США, Floyd County Productions, Hulu, Marvel Animation, Marvel Entertainment, Marvel TelevisionЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Судейкис, Оливия Манн, Элли Маки, Фред Таташиор, Джордж Такей, Ноби НаканисиПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика!Субтитры: английскиеПродолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B23F3491BF8FCAC35319EB3E00FFDF1EE03FBF
+magnet:?xt=urn:btih:F5133A40C3480320406A73B8B74B625C080B2813
 ```
 
 https://mybot314.ru/tekegram_catalog/

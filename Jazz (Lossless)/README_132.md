@@ -1,3 +1,32 @@
+###  Публикация: 1231053   (608768) от 16.06.2018
+
+Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) GMCD092 [FLAC|Lossless|tracks + .cue] <Jazz, Vocal Jazz, Pop, Acoustic>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riviera Life
+02. Dr. Wanna Do
+03. A Night Like This
+04. Just One Dance(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Pop, AcousticПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D94F94F5D52360602B214F7331EF1D6F00768E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296847   (608724) от 19.04.2019
 
 Jerry Bergonzi - The Seven Rays (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -725,35 +754,6 @@ Stan Getz - The Best Of Two Worlds featuring Joao Gilberto (1975) 2016, Sony Mus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBBFD1078C57AAC26B3473FFC918F4EB3F1EE8E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038725   (605151) от 29.07.2016
-
-Blue Mitchell - A Sure Thing (1962) 1994, OJC[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.West Coast Blues [05:41]
- 02.I Can't Get Started With You [03:49]
- 03.Blue On Blue [04:49]
- 04.A Sure Thing [04:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F185124F33CEDA70C3028D220E26242C0769A790
 ```
 
 https://mybot314.ru/tekegram_catalog/

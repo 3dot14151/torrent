@@ -1,3 +1,119 @@
+###  Публикация: 1101241   (895381) от 06.02.2017
+
+VA - Top DJ. Клубный хит (2017) [MP3|320 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895381.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ленинград - Экспонат (Dj Ilya Lavrov Remix)
+002. Тамерлан И Алена - Потоки Ветра (Dj Oneon Remix)
+003. Carla's Dreams - Sub Pielea Mea (Johnny Beast Remix)
+004. Моди Глю & Anagramma - Mambaka(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 05:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEA4F8AB13A57359FC2D23A770E509DAAF950E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493254   (895369) от 03.09.2021
+
+VA - Music News vol.128 (2021) [MP3|320 Kbps] <Pop, Soul, Dance, (Other)>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Anastezzia feat. Selena Mayer - Кружева (03:04)
+ 002. ALBA feat. Александра Белякова - Catch Me (02:54)
+ 003. Alderson - Ягодный Juice (02:02)
+ 004. After School House - Веснушка (02:39)(   Читать дальше...   )Жанр: Pop, Soul, Dance, (Other)Продолжительность: 05:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD2FB96FE584E8CD0FBF6F7B0ACE31EEF932D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370657   (895221) от 28.03.2020
+
+VA - The Official UK Top 40 Singles Chart 27.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix)
+02. The Weeknd - Blinding Lights
+03. Roddy Ricch - The Box
+04. Joel Corry - Lonely(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC7744489FF29A2E0D711D0334E78C96F1E3A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370595   (895137) от 28.03.2020
+
+VA - Music For Intensive Sports: Hardstyle Dance (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895137.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Dj Producer - The Sound
+002. Pete S - I Was Made For You
+003. S3rl - Bass Slut
+004. Digital Commandos - Angels With Filthy Souls(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 08:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4F07FE86ECF16FDE8DDED2DCAC9E4899FBB6BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370542   (895116) от 28.03.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 27.03.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -635,122 +751,6 @@ VA - Милым дамам к празднику весны (2016) [MP3|256 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:856898FAFD325C7494054520C1A3A12714BC781E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994199   (891644) от 07.03.2016
-
-VA - Ibiza Dance Sensation (2016) [MP3|320 кб/с] <Soulful, House, Funky, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankyboy - You Make Me (Original Mix) 05:00
-02. Escadia - Far Cry (Original Mix) 06:48
-03. Delighters, Viofly & Stev Dive - My Music (Original Mix) 05:01
-04. Yanter - Down Dugs (Original Mix) 05:21(   Читать дальше...   )Жанр: Soulful, House, Funky, Nu DiscoПродолжительность: 02:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E590AE97341FF0617FB7909F1B0820EDDA676031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994177   (891599) от 07.03.2016
-
-VA - Isle Ibiza 2 Grooves White (2016) [MP3|320 кб/с] <Future House, Tropical, UK Garage, Bigroom, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891599.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kaskade feat Kolaj - Whatever (Neus Remix) 03:54
-002. Noisy Bears - Hold You (Feat SevenEver) (Original Mix) 06:54
-003. Gestort Aber Geil & Marc Narrow - geh nicht weg (extended mix) 04:41
-004. Aki - Heroin (Club Mix) 03:39(   Читать дальше...   )Жанр: Future House, Tropical, UK Garage, Bigroom, Nu DiscoПродолжительность: 09:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4293611B2300902F4BF0DDBC27E0385B64C415D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994284   (891552) от 07.03.2016
-
-VA - Blues Memories (2016) [MP3|128-320 кб/с] <Rock Blues, Retro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891552.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rob Tognoni - Lost Our Blues In The City Of Rome
-002. B.J. Sharp - Never Felt No Blues
-003. Coco Montoya - Never Seen You Cry This Way Before
-004. H2O - Use Your Voice(   Читать дальше...   )Жанр: Rock Blues, RetroПродолжительность: 07:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA42630A22A93A61BDE4CBF114B34FACD4DED31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994381   (891534) от 07.03.2016
-
-VA - Acoustic Pop Covers (2016) [MP3|320 кб/с] <Pop, Acoustic, Covers>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Somebody That I Used to
-02. Alice Lamb - Use Somebody
-03. Meg Birch - Say You Love Me
-04. Thom Cooper - Next to Me(   Читать дальше...   )Жанр: Pop, Acoustic, CoversПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2A0BEBE7A09E33A656A7D3347519D303427CCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

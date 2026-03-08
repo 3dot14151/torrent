@@ -1,278 +1,3 @@
-###  Публикация: 469780   (97144) от 18.03.2012
-
-Дейл Фурутани | Убить сегуна [2008] [RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97144.jpg" />
-</div>
-
-
-###  Подробнее
-
-...Эдо.
-Новая столица Японии, не успевшей еще зализать кровавые раны жестокой гражданской войны.
-Твердыня клана Токугава, силой и хитростью вырвавшего власть из рук наследников Тоетоми Хидэеси.
-Здесь все еще нельзя доверять никому - ни другу, ни врагу, ибо каждый способен прятать в рукаве кинжал или пузырек с ядом.
-И теперь гибель, похоже, угрожает самому сегуну.
-Его люди убеждены - наемный убийца просто промахнулся, застрелив стоящего рядом с Токугавой Иэясу советника.
-И только ронин Мацуяма Кадзэ, всей душой ненавидящий клан Токугава и его приспешников, догадывается, как и почему произошло это преступление...2008Жанр: Исторический романФормат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A492934128F39F577AEB04E4367485B8A58EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470156   (97140) от 18.03.2012
-
-[Wallpapers] Best Wallpapers Pack 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97140.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Best Wallpapers Pack 3
-Название: Best Wallpapers Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EE6E05322C72E0B5CA21F313C9CACD9BF434FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469385   (97138) от 18.03.2012
-
-VA - TOP 30 Клубные РУССКИЕ Новинки (17.03.2012) [MP3|128-320 кб/с]<Dubstep, Drum & Bass, Trance, Electro-House, Club House, Dance, Club, Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Smash & Винтаж - Москва (DMC Style Dubstep Remix)
- 02. Gasym vs Just Born Genius - Normally do it will be normal 2012 ( Dj Najim Hassas Saxo Remix ) Ver. 3.0 Mastering
- 03. Kishe - Город (Marahovsky Remix)
- 04. Lerika - Небо и Земля (KrissMorris Remix)
- 05. Maksim - Vesna (Cursed dubstep rmx 2012)
- 06. Potap i Nastya Kamenskih Chumachechaya Vesna Slava Inside remix
- 07. RiDer MC 77 prod Aeroport Dj Amor Remix
- 08. Sandrique feat. Siatria - Закрой Глаза remix
- 09. Ёлка – Около тебя (Andry Makarov Club Remix)
- 10. Алиса Логина & Dj Anton Liss - Если Захочешь (Radio Edit)17.03.2012Жанр: Dubstep, Drum & Bass, Trance, Electro-House, Club House, Dance, Club, PopПродолжительность: 03:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82975586F62B749EB433A8D14891ABBCA0DD6D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470061   (97137) от 18.03.2012
-
-Mike Rowland - The Magical Elfin Collection (Edition 2004) (1989) [FLAC|Lossless]<New Age, Instrumental, Melody>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mike Rowland - The Magical Elfin Collection (Edition 2004) (1989)
-Год: 1989
-Жанр: New Age, Instrumental, Melody
-Продолжительность: 01:01:42Кодек: FLAC
-Битрейт: Lossless
-Тип рипа: image+.cueТрек лист:
-01.  And So To Dream [09:52]
- 02. Solace (2) [09:46](   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469952   (97136) от 18.03.2012
-
-Биатлон. Кубок Мира 2011-12. 9-й этап. Ханты-Мансийск (Россия). Мужчины. Масс-старт 15 км (2012) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужская гонка с масс-старта на 9 этапе кубка мира по биатлону в Ханты-Мансийске (Россиия)Жанр: СпортПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A65168FA588BFD88103AE8AE8DDF5D357033385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469775   (97131) от 18.03.2012
-
-Биатлон. Кубок Мира 2011-12. 9-й этап. Ханты-Мансийск (Россия). Женщины. Гонка преследования 10 км (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женская гонка преследования на этапе кубка мира по биатлону в Ханты - МансийскеЖанр: СпортПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99316786BB89AE69991BE34AE7AF92777AEEF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469687   (97126) от 18.03.2012
-
-Absenth - Green Devil v2.0 EP (2012) WEB [FLAC|Lossless]<Industrial metal, Cyber metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97126.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Абсент (русская версия)
- 2. Erotica 69
- 3. Virus
- 4. Абсент (women's blood version)
- 5. Absenth (drum'n'bass version)
- 6. Virus (dubstep version)Жанр: Industrial metal, Cyber metalПродолжительность: 00:31:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469758   (97124) от 18.03.2012
-
-Мама - Последний концерт. Сухуми. Август 1992 (2003) [FLAC|Lossless]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [02:04]
-02. Селяви [05:15]
-03. Объявление песни [00:20]
-04. Свадьба [04:34]
-05. Объявление песни [00:20]
-06. Ушла любовь [05:22]
-07. Будет вечер [05:20]
-08. Объявление песни [01:33]
-09. Все, кончено все [06:37]
-10. Дождь [04:09](   Читать дальше...   )2003Жанр: PopПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469845   (97123) от 18.03.2012
-
-Собор Владимирской иконы Божией Матери (2009) DVDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97123.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самом центре Санкт-Петербурга близ Невского проспекта находится собор Владимирской иконы Божией Матери. Удивительный по красоте и изяществу архитектурный ансамбль Владимирского собора один из немногих сохранившихся замечательных памятников второй трети XVIII века. Прихожанами этой церкви были Ф.М. Достоевский, Н.А. Римский-Корсаков, А.И. Куприн, Л.Н. Гумилев. Несмотря на свое историческое прошлое, красоту и расположение, долгие годы Владимирский храм был незаслуженно забыт. В 1989 году он был возвращен верующим и вновь возрожден к жизни.
-Фильм рассказывает об истории старинного храма, его судьбе в годы гонении на веру Христову, восстановлении и сегодняшней жизни.Жанр: ДокументальныйРежиссер: А. ПавловичПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1930909EF22AC5B3E250DAD38AE1B26A5DAFB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469664   (97121) от 18.03.2012
 
 Simone Kopmajer - Nothing's Gonna Change (2011) [MP3|~225 кб/с (V1)]<Vocal Jazz, Bossa Nova, Lounge>
@@ -821,6 +546,295 @@ VA - Звезды блатной волны (2012) [MP3|256 кб/с]<Шансо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAD39E2764057BC82F619967E8E3D1FCCFDDEC9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469548   (97079) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 88
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97079.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 88
+Название: Desktop Wallpapers Pack 88
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DE66D86A6B80851894F07056619D1D4819EC4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469423   (97078) от 18.03.2012
+
+Алина Юдаева - Третий (2012) [MP3|320 кб/с]<Rock, Instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не знаю как назвать 00 (Для Антона) (01:59)
+02. Не знаю как назвать 01 (Для Лёши) (03:40)
+03. Не знаю как назвать 02 (Для Светы) (03:34)
+04. Не знаю как назвать 03 (Для Тёмы) (03:57)
+05. Не знаю как назвать 04 (Для Алёны) (03:12)
+06. Не знаю как назвать 05 (Для Маши) (03:14)
+07. Не знаю как назвать 08 (Для меня) (02:40)
+08. Не знаю как назвать 09 (Для Саши) (04:58)
+09. Не знаю как назвать 10 (Для Леры) (03:56)
+10. Не знаю как назвать 12 (Для Майи) (07:14)2012Жанр: Rock, InstrumentalПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39DC113BA548253394026EEE78A3DC7C177BE675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470006   (97077) от 18.03.2012
+
+[Wallpapers] Avto Wallpapers Pack 15
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97077.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 15
+Название: Avto Wallpapers Pack 15
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1E361F0AD71E6E35AA9C27F4ECB3D6B1CA9354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470142   (97075) от 18.03.2012
+
+[Wallpapers] Best Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97075.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Best Wallpapers Pack 1
+Название: Best Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D4F96571D5B5AA160FAB0A190F560F144F366F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470022   (97074) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 101
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97074.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 101
+Название: Desktop Wallpapers Pack 101
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C30AFFB9943BB0CB086ED0CAA568E3A2B4AA381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469591   (97073) от 18.03.2012
+
+VA - TMP: Clear Sky 064 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Fox - In The Corner (Carlos Fox B Side Remix)
+02. Ex-Driver & Alex Piletski - Last Rain (Original Mix)
+03. Dave Horne - Light & Dark (Original Mix)
+04. Daniel Wanrooy - Lotus (Original Mix)
+05. Des McMahon - Pure (Original Mix)
+06. Dart Rayne - Sanctum (Original Mix)
+07. Falcon - Saturday Fjord (Original Mix)
+08. Cosmic Gate & Arnej - Sometimes They Come Back For More (Alex ORion Bigger Room Mix)
+09. Eco - We Watched The Sunrise Till Our Eyes Burned Out (Original Mix)
+10. Euphoric Feel - When It All Began (Original Mix)2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4AD5F44ED43E3CAE7402DF04A27ECA68B04A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468358   (97072) от 18.03.2012
+
+Yehudi - Groove Technology (2012) [MP3|320 кб/с]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97072.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Neurotronic (8:06)
+ 2 - Zorn energy (7:18)
+ 3 - Alienform (9:02)
+ 4 - The Game Pieces (8:42)
+ 5 - Crystal Cave (8:19)
+ 6 - What you do (7:57)
+ 7 - Stone Flute (8:06)
+ 8 - Made of Dreams (Sweet Dreams RMX) (8:45)
+ 9 - Flow Rising (8:31)Жанр: Psychedelic / Full OnПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD13EB17A0FCBFCC09E77D25F267183CBBAC2921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469587   (97071) от 18.03.2012
+
+VA - TMP: Clear Sky 063 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leonid Gnip - Apocalypse (Original Mix)
+02. Neptune Project - Galatea (Activa vs. Neptune Project Mix)
+03. Mobil - In Loving Memory (Original Mix)
+04. Marco V & Russel G - Kalevala (Original Mix)
+05. Jaytech - New Vibe (Giran's Old Vibe Mix)
+06. Kris O'Neil & JPL - No Porn Intended (Original Mix)
+07. Garry Heaney - Oracle (Luke Bond Remix)
+08. DJ Mikas & DJ Sage - Shaken Not Stirred (Original Mix)
+09. Euphoric Feel - Wonderful Feelings (Original Mix)
+10. Michael Tanner - Zeta (Original Mix)2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1CE346137E39283261204F69C8C814A975C016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470001   (97070) от 18.03.2012
+
+[Wallpapers] Avto Wallpapers Pack 14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97070.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 14
+Название: Avto Wallpapers Pack 14
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042B7D59C5FB6B6687360536AA23BF8582054502
 ```
 
 https://mybot314.ru/tekegram_catalog/

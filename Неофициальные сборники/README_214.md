@@ -1,3 +1,177 @@
+###  Публикация: 1215697   (756214) от 27.03.2018
+
+VA - Blessing New Age Music (2018) [MP3|256-320 Kbps] <New Age, Relax, Meditative>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756214.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aithra - Shadow Play
+002. Gilberto Medda - Flying High in the Sky
+003. Howe Gelb - Terribly So
+004. Narcotic Chill - On The Last(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 09:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D37384D4DF835CEF3A5A8562FD123127B9169A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215726   (756115) от 27.03.2018
+
+VA - Rock & Metal Collection от ALEXnROCK часть 4 (2018) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756115.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 4я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK181 Cinderella - The More Things Change
+182 Bryan Adams - Is Your Mama Gonna Miss Ya-
+183 3 Doors Down - Train
+184 Firehouse - Love Of A Lifetime(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D65600696C94108282325E897BD9FD9BC10634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018595   (756032) от 20.05.2016
+
+VA - Wine Lounge, Vol. 3 (25 Bar Lounge Tunes) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oblique Style - Relax Yourself (Baia Mix) (05:30)
+02. Adrienne Gowan - Sunrise (04:04)
+03. Danny Hay - By and By (Fantastic World Mix) (05:48)
+04. Zip Love - Replace (Melbourne Mix) (04:14)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119B5F3DB959AB13C797F8F9692B531F01BA77C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018582   (756031) от 20.05.2016
+
+VA - Pictures Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Donner - On the Lake
+02. Don Gorda Project - Daydreaming
+03. Baghira - Way Too Long
+04. Aquarius - Fly Away(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96366B994DFD5A2D0BA4C164602B1DB8F91EF882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018514   (756021) от 20.05.2016
+
+VA - The Magic Dream Of Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756021.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Lounge Unlimited Orchestra - Violet
+002. Xeno Sound System - Free Run
+003. MrV - Sunset Landscapes
+004. Dario J - The Lounge Again(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53230EFAB216FA6C4F01E3E5B683C48B8032DD79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018388   (756016) от 20.05.2016
+
+VA - Dirty Beats Funky Dancefloor (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756016.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Heatbeat - It's Killing Me (Radio Edit) 3:27
+002. Overtune - How Does It Feel (Hp Remix) 5:43
+003. Curbi - Circus (Extended Mix) 3:56
+004. Dj Asperant - I'm In Miami Beach (Original Mix) 3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 11:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC0AB19940F33848985E0071DA0ABE79D066E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018397   (755933) от 20.05.2016
 
 VA - Beach Cafe Deluxe: Ultimate Lounge and Buddha Relaxation Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -571,180 +745,6 @@ VA - Pure Bass: Deluxe Session (2019) [MP3|320 Kbps] <DnB, Dubstep, Jungle>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:961D1282ECAF801E2AA5051D6D4C0CD70E33202F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522855   (755184) от 09.01.2022
-
-VA - The Winter Pop Kaleidoscope (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию зимний калейдоскоп популярной музыки. Сборник содержит популярные произведения классических и эстрадных жанров в адаптированном поп-изложении. Представленные артисты очень разные личности, но все они очень талантливые и одинаково влюблены в музыку и просто обожают свое дело.001. Benr - Geworden Wie Ik Ben
-002. Priscilla - Keep It For Tonight
-003. DJ Dean - Going Nowhere Reloaded
-004. Eklypt - My Way Out(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F867AF58BE9955598C0EED357E380116117FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522879   (755167) от 09.01.2022
-
-Karen Cheryl - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liars Beware
-02. Pense А Moi, Quand Meme
-03. Sing to Me Mama
-04. Tchoo Tchoo Hold on the Line(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9C5DD066AA39B46BF4B340170DDF9EB728F810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522880   (755154) от 09.01.2022
-
-VA - German Top 100 Single Charts 07.01.2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GAYLE - abcdefu
-02. Pajel - 10von10
-03. Acraze - Do It To It (feat. Cherish)
-04. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA52CB03A2ABEAB13CB106F2C54AA50A79815925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522891   (755060) от 09.01.2022
-
-Dancing Fantasy - Compilation (2020) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icedrift
-02. Malibu
-03. California Girls
-04. Dancing on a Summernight with YouЖанр: InstrumentalПродолжительность: 03:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B7B4098750D67A7D502B9F068145FC7B20AAD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522857   (754939) от 09.01.2022
-
-VA - E-Dance Tech House: Club Trendy Session (2022) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый трек в этом плейлисте имеет нечто особенное. Эти записи пробуждают очень много прекрасных чувств и воспоминаний, и я надеюсь, что то же самое произойдёт и с Вами.001. Eserex - Tricks & Sticks
-002. Danil Gurov & Broska - Hotta
-003. Paul Parsons - Dog Days
-004. Defunkt Hau5 - Poison(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 09:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C4868747CCE7B1CE57D50482CA7AFA6DB4582A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215871   (754853) от 28.03.2018
-
-VA - The Seven Sense (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754853.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Florito - Konja Tokyo De
-002. Sean Hayman - So Beautiful (Skyscraper Cut)
-003. Blue Side - Final Word
-004. Dreamscape - Nautica (Ambient Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4F43AEE4E381A76F9202E62F302970152C88B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

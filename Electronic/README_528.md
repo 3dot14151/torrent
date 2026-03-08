@@ -1,3 +1,61 @@
+###  Публикация: 1761067   (36975) от 17.11.2024
+
+VA - World Organic 2024 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Slick & Tibetania - My World (Original Mix) (4:31)
+02. Fleanger & Tamer ElDerini & Tibetania - One Last Time (Original Mix) (5:50)
+03. Patrick Medina & Tibetania - Lil Boy (Original Mix) (7:09)
+04. Kaisser Bouzriba & Tibetania - I'm Black (Original Mix) (7:04)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1654361BFFEC4DE368E1016FEB4786F4EE230CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761240   (36893) от 18.11.2024
+
+VA - OPIA (2024) Ultimae Records [FLAC|Lossless|Web-DL|tracks] <Ambient, Downtempo, IDM>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MIKTEK – Unstable Shutter (7:57)
+02. LARS LEONHARD – Depth Perception (Ashes Edit) (6:18)
+03. EROT – Aftermost (6:33)
+04. MARTIN NONSTATIC – Impulsing Path (7:24)(   Читать дальше...   )Жанр: Ambient, Downtempo, IDM, Chillout, PsybientПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB363D2B3687FC33B3F2FF89C9DDCF02CF4DCCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761160   (36870) от 18.11.2024
 
 VA - no pare, sigue sigue 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
@@ -683,64 +741,6 @@ Black Shaman - Evocation: Experimental (2023) [FLAC|Lossless|Web-DL|tracks] <Dar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3867C7C248297AB13BC0D14A6469D0342E5F0B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762869   (35834) от 28.11.2024
-
-VA - Dance the Night Away, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loud Seduction - Heaven (Original Mix) (04:01)
-02. Amelie Elizèe - Crazy (02:32)
-03. Mojo - Set You Free (Original Version) (05:11)
-04. Valdemossa - Find Your Way (Radio Instrumental) (03:29)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13EC24DAE00F32CF99E7AC37BD10BABBD69667E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762873   (35823) от 28.11.2024
-
-VA - Dance the Night Away, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VarZet - Flashback (02:22)
-02. Jones, Brock & Nicole Cross - Losing My Religion (Extended Mix) (04:06)
-03. Köbes - Seen Before (05:50)
-04. Alex Nocera, Nico Zandolino & Roy Batty - Out of My Head (02:50)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E3BCC9A8B0A91263F3169DD49DF7994E26F0D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

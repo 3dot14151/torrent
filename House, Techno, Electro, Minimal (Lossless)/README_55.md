@@ -1,3 +1,90 @@
+###  Публикация: 1268314   (226544) от 11.12.2018
+
+VA - Poker Flat Recordings Best Of 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simone Vitullo & Jinadu – Memories (Original Mix) 7:34
+02. Steve Bug & Langenberg – NGC 6240 (Vince Watson Reshape) 8:20
+03. youANDme – Pattern Of Greed (Jonathan Kaspar Remix) 8:23
+04. Kotelett & Zadak – Clovis (Original Mix) 9:39(   Читать дальше...   )Жанр: Tech House, Techno, Deep HouseПродолжительность: 01:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30524831C9F026097A72FFA46534154632CFCB19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342371   (225816) от 01.12.2019
+
+X-Mode - О! Неожиданно! (2008) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Место встречи изменить нельзя (Из к/ф Место встречи изменить нельзя) (3:38)
+02. Джаная (3:36)
+03. Шоу Бенни Хилла (3:02)
+04. Белая ночь (3:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F72887280603E781ED9DA5AC9A5B9BD1A1C688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852492   (221979) от 22.12.2014
+
+Alic - Sliders (2014) EP [FLAC|tracks|WEB-DL]<Progressive, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sliders   (6:03)
+02.  Sliders (Trilingo Remix)   (6:40)
+03.  Sliders (Pallida Remix)   (8:09)
+04.  Esperanto   (6:18)Жанр: Progressive, TechnoПродолжительность: 00:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8DBA24241D9E5F7B81414FA57995FDD4238FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269268   (221575) от 14.12.2018
 
 VA - Utopia II (2018) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
@@ -649,93 +736,6 @@ VA - So you... (Mixed and compiled by Kaatee) (2022) [WavPack 2.0|48/32|image +.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DB871B437BFFE6EB82C2669B456224D98B514C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653417   (205492) от 16.08.2023
-
-VA - File Under: Trance (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandala - Astralia (Colourbox Remix) [6:01]
-02. Cores - Ice Rain (Original Mix) [8:14]
-03. Commander Tom - Eye C Red (Original Mix) [6:51]
-04. Ulysses - Whales 2 Females (Original Mix) [5:58](   Читать дальше...   )Жанр: TranceПродолжительность: 04:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDF3665D1CE2F1E7DDCFB5D9A6AE91ED77D64E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654174   (205248) от 20.08.2023
-
-DJ Dean and Victor F. - MSF - Multi Sound Format (The Dark Side) (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hard Trance, Hardstyle,>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music, Sound & Freedom (Rave Extended Mix) [5:51]
-02. F.E.A.R. (Extended Mix) [7:26]
-03. Awakening [4:06]
-04. Acid Rave (Extended Mix) [3:52](   Читать дальше...   )Жанр: Techno, Hard Trance, HardstyleПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5593475EA9D2F7F4ED3F1113463D387671225574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654807   (204998) от 22.08.2023
-
-The Exaltics - The 7th Planet (2023) [FLAC|Lossless|WEB-DL|tracks] <sci-fi electro-techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landing Process [00:00:57]
-02. Lets Fly the Gravity Fighter [00:04:01]
-03. Lif eono ther Planets [00:04:13]
-04. Higher Levels [00:04:46](   Читать дальше...   )Жанр: sci-fi electro-technoПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB473249C5ADDFE4C69EEF47B40B1AC333F44293
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 891740   (718925) от 26.04.2015
-
-Мумий Тролль - Пиратские Копии (2015) [MP3|320 кб/с]<Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718925.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. С Чистого Листа (03:59)
-002. Медленные Танцы (09:03)
-003. Мумий Витамины (04:18)
-004. Пиратские Копии (06:29)(   Читать дальше...   )Производство: Navigator RecordsЖанр: РокПродолжительность: 01:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F2CA629E192CB07E0EE61800669217E0ED952E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129988   (718841) от 30.04.2017
 
 Until Rain - Inure (2017) [MP3|320 Kbps] <Progressive Metal>
@@ -748,6 +719,35 @@ Torrent - Gods Of A Fallen Empire (2016) [MP3|320 кб/с] <Melodic Death Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AE2645B84B6151F390DDD1412FC39C85DA75A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024383   (718058) от 08.06.2016
+
+The Screaming Jets - Chrome (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01  Automatic Cowboy
+02  Cash In Your Ticket
+03  Razor
+04  No Place No Home(   Читать дальше...   )Жанр: Hard Rock, Hard & HeavyПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8771152D62FE68C8E756D04A0B1C0DFD4FE5D2CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1777086   (21636) от 12.04.2025
+
+Хроноп - Compilation (1990-2025) [MP3|320 Kbps] <Indie rock, New wave>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аллилуйя (С Оркестром) (Песни Бронзового Века 2007)
+02. Лежу На Луне (Любитель Жидкости 2006)
+03. Люди, В Общем-То, Не Так Плохи (Между Никогда и Всегда 2023)
+04. Лётчик (Любитель Жидкости 2006)(   Читать дальше...   )Жанр: Indie rock, New waveПродолжительность: 04:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B280BC04FC460C3677E42748A85AB6F4B16921C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765345   (21592) от 13.04.2025
+
+Вячеслав Бутусов - Compilation (1985-2025) [MP3|320 Kbps] <Art rock, New wave, Electronic, Post punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_21592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бесконечность (Модель Для Сборки 2007)
+02. Настасья (Настасья EP 2000)
+03. 1915 (Аллилуия 2019)
+04. Аделаида (Disco version) (Аделаида EP 2012)(   Читать дальше...   )Жанр: Art rock, New wave, Electronic, Post punkПродолжительность: 05:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE16AEB29EB2F7469C4A9B187805ECD8E00A0E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791354   (21561) от 13.04.2025
+
+VA - Весна на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rialto - No One Leaves This Discotheque Alive (3:14)
+02. Armin Van Buuren feat. Alok & Norma Jean Martine & Lawrent - Euphoria (2:31)
+03. KDDK - O-La-La (2:10)
+04. Benson Boone - Sorry I'm Here For Someone Else (2:36)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5DB04530E7807FCCF568A7E8772E43BE0FF425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791420   (21534) от 13.04.2025
+
+VA - The Weekend Is In Full Swing! (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21534.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Babasha & Ministerul Manelelor - Alo, Mama (02:49)
+ 002. Whigfield - No Tears To Cry (05:30)
+ 003. Abraham Colona & Dela Utca Feat. Sem - Leave Our Bags Behind (02:06)
+ 004. Alejandro Sanz - Corazon Partio (05:43)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BEFF962DF9D229BD06D1EA5CA0B73A60536A607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766155   (21432) от 14.04.2025
+
+blink-182 - Compilation (1995-2024) [MP3|320 Kbps] <Punk rock, Alternative, Skate punk, Pop punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_21432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurt (Interlude) (One More Time... Part 2 2024)
+02. Adam's Song (Enema Of The State 1999)
+03. All The Small Things (Enema Of The State 1999)
+04. Anthem (Enema Of The State 1999)(   Читать дальше...   )Жанр: Punk rock, Alternative, Skate punk, Pop punkПродолжительность: 01:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519E19B0610245290A2C6F7C92ACEAF64EB446BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791448   (21420) от 14.04.2025
+
+VA - Compilation Part 155 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akmalov - Pleasure
+02. Faniz - France
+03. A-Sultan - Turning
+04. Neuron - Little Do I Know(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B0B3BA9CF0DBBFA7CC87312C10AC9576BAA4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791447   (21416) от 14.04.2025
 
 VA - Compilation Part 154 Electronic (2025) [MP3|320 Kbps] <Electronic>
@@ -572,180 +746,6 @@ Mr Salama - Compilation (2025) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F0585CB05F5F3C3F0B8913FFFD818F288181A88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793684   (20281) от 25.04.2025
-
-Acker Bilk - Compilation (2025) [MP3|320 Kbps] <Jazz, Instrumental, Clarnet>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20281.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Evergreen
-  002.  Jean
-  003.  Stranger on the Shore
-  004.  A Groovy Kind of Love(   Читать дальше...   )Жанр: Jazz, Instrumental, ClarnetПродолжительность: 05:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7070996F192957ACA19D6FFE2FD30E4B35D498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793559   (20260) от 25.04.2025
-
-VA - Compilation Part 158 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akmalov - Echo Drift
-02. Jumanov - Single Girl
-03. A-Sultan - Cruel Summer
-04. Joni - Pacific Ocean(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8203C7F200C42DFC2278E5F1C9248C226529EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765974   (20212) от 26.04.2025
-
-Billy Idol - Compilation (1981-2025) [MP3|320 Kbps] <Punk rock, Post punk, New wave, Power pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neuromancer (Cyberpunk 1993)
-02. White Wedding. part 1 (Billy Idol 1982)
-03. Baby Put Your Clothes Back On (The Roadside EP 2021)
-04. Baby Talk (Don't Stop EP 1981)(   Читать дальше...   )Жанр: Punk rock, Post punk, New wave, Power popПродолжительность: 05:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4290050B17F53D65138DF51F94676108ABB16BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794137   (20071) от 27.04.2025
-
-VA - Music News For Forum vol.078 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20071.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dasha Ross - Мальчик, отдыхай (02:37)
- 002. 10AGE & НАРОДНЫЙ СТИЛЬ - Воин (Рыцарь) (02:46)
- 003. ADA - Кошки-мышки (02:06)
- 004. ADA - Не нужен (02:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC35CE3FB138484D32447F43FDAD5F857194D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794248   (19964) от 28.04.2025
-
-VA - Music News For Forum vol.079 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19964.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Isabel LaRosa - See You Again (03:26)
- 002. Саша Носач - Миражи (02:34)
- 003. Родион Газманов feat. Алена Мальцева - Перекрестки (03:45)
- 004. 5 мостов - Реквием (04:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:24:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A76FB1F1B7C9808CC32514DE594EEB5376D57E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794044   (19953) от 28.04.2025
-
-VA - Top Songs of 2024: USA (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19953.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kendrick Lamar - Not Like Us(04:34)
-002. Future - Like That(04:28)
-003. Shaboozey - A Bar Song (Tipsy)(02:51)
-004. Post Malone - I Had Some Help(02:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5846E1FF3610FC7BA4B085D2C338E1316E1E275
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1064911   (423921) от 21.10.2016
+
+VA - Живи стильно! Наслаждайся музыкой с Hit FM (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423921.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Руки Вверх - Когда Мы Были Молодыми  4:33
+002. Hatsune Miku - Was Girl  5:28
+003. Sputnik Project & Andry Makarov - Медленно Таешь  4:00
+004. Иван Дорн - Телепорт  4:04(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9246932D70C8F5F23722F7DFB78302A098875DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324675   (423097) от 10.09.2019
 
 VA - German Top 50 Party Schlager Charts 09.09.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
@@ -713,35 +742,6 @@ VA - Billboard TOP100 Single Charts (29.10.2016) (2016) [MP3|128-320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35A0D96FFE4EA1150DCD2F41DC79303CBF63CFE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066052   (414464) от 25.10.2016
-
-VA - NRJ hits Exclusive №5 (2016) [MP3|192-320 Kbps] <Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414464.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Heavy Anarchy & Onur Ormen – Raw Passion
-002. Lika Morgan – Shed Light (Luca Debonaire Radio Mix)
-003. Maala – Notorious
-004. Sam Feldt & Lucas & Steve feat. Wulf – Summer On You (Club Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20AF99272313E9A7343C9DC7AF40A55B7B09BE2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

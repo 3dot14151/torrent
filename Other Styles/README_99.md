@@ -1,3 +1,32 @@
+###  Публикация: 928677   (521471) от 17.08.2015
+
+Dexter Britain - Impression (2015) [MP3|320 кб/с]<Electronic, Neoclassical, Ambient, Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summit
+02. Wild
+03. Everything You Know
+04. Climb A Thousand Miles(   Читать дальше...   )Жанр: Electronic, Neoclassical, Ambient, Instrumental, PianoПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5773C3A9DFFB8FF8F00734F73EC5353952905B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314122   (521322) от 12.07.2019
 
 Deva Epica - Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -725,35 +754,6 @@ Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE2CAA724D576019D2DA60099E93942458619565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930498   (514763) от 23.08.2015
-
-VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игорь Корнелюк - Город, Которого Нет - Бандитский Петербург [00:04:18]
-02. Thomas Newman - The Green Mile [00:03:38]
-03. Clint Mansell & Kronos Quartet - Winter Lux Aeterna - OST Requiem for a Dream [00:03:54]
-04. Bill Medley & Jennifer Warnes - The Time Of My Life - OST Грязные танцы [00:06:46](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 06:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6F21BE2B64229F09673A0026612B670C6AFC3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

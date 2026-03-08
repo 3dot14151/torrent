@@ -1,3 +1,61 @@
+###  Публикация: 1346299   (164532) от 18.12.2019
+
+VA - Anjunadeep: The Yearbook 2019 (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jody Wisternoff & James Grant - Dapple (05:20)
+02. 16BL - Vette (06:08)
+03. Nox Vahn - Brainwasher (04:40)
+04. CRi - Initial (05:03)(   Читать дальше...   )Жанр: Deep House, Tech House |Продолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E354C8DAD3945BF6A4CC1128683943BB591FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516954   (164479) от 13.12.2021
+
+Vangarde - The Best Of Lounge: The Orange Lounge Suite (2001) [FLAC|Lossless|tracks + .cue] <Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syrian Swing (4:34)
+02. Pure Magic (feat. XXL) (4:11)
+03. Lounge Suite (3:59)
+04. Future Vision (5:24)(   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B466D5564EA7D7814CD288157F2C6E0EF198C6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516963   (164466) от 13.12.2021
 
 Romana & Gazwa Kain - The Best Of Lounge: Mystic Lounge (2001) [FLAC|Lossless|tracks + .cue] <Lounge, New Age>
@@ -685,64 +743,6 @@ VA - The Best Of Lounge: Asian Lounge (2001) [FLAC|Lossless|tracks + .cue] <Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DC021127C30AD42DDD4B9EE35E7391EB225C688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362336   (162934) от 18.12.2020
-
-Faderhead - Asteria (2019) [FLAC|Lossless|tracks + .cue] <EBM, Dark Electro, Synthpop, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From His Broken Bones (5:12)
- 02. The Other Side of Doom (5:40)
- 03. Watching the Watchers (5:00)
- 04. With a Borrowed Knife (3:51)(   Читать дальше...   )Жанр: EBM, Dark Electro, Synthpop, IndustrialПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F6EAAE302510A0DACBA3EA337F6B5B40628AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517438   (162917) от 15.12.2021
-
-VA - Black Hole Trance Music 12-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & Mike Schmid - Summer Wonder (Extended Mix) [07:30]
-02. HALIENE - Glass Heart (Craig Connelly Extended Remix) [07:07]
-03. Markus Schulz - Return from the Sand Sea [03:33]
-04. Christian Burns - Eyes Wide Open (John Grand Extended Remix) [06:12](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CEC9ACC1FDE5F5F40F4497256035FD846F3ABE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -56,41 +56,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 565536   (399958) от 26.10.2012
-
-Black Country Communion - Afterglow (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Train (4:17)
-02. This Is Your Time (4:32)
-03. Midnight Sun (5:18)
-04. Confessor (5:08)
-05. Cry Freedom (5:09)
-06. Afterglow (6:06)
-07. Dandelion (4:02)
-08. The Circle (7:01)
-09. Common Man (5:27)
-10. The Giver (5:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48683D066297770747D84A94172F59CD25D50080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567166   (396708) от 29.10.2012
 
 Aerosmith - Music From Another Dimension! (2012) [MP3|320 кб/с]<Hard Rock>
@@ -766,6 +731,35 @@ Berwanger - Exorcism Rock (2016) [MP3|320 Kbps] <Melodic Hard Rock, Garage Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B81AAE208D586DCE12B02A5696A04BEED1025E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068579   (368792) от 06.11.2016
+
+Killer Bee - Eye in the Sky (2016) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye in the Sky 05:23
+02. Shout It Out 02:40
+03. One Step Closer 04:22
+04. Higher and Higher 04:24(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1EEEC2A401636E831511ECE3E557C8EDFE26B09
 ```
 
 https://mybot314.ru/tekegram_catalog/

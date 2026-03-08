@@ -1,3 +1,183 @@
+###  Публикация: 1408942   (451597) от 14.09.2020
+
+VA - Summer Time Relax Zone (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451597.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taburet - Blue Fire
+002. Emancipator - Pollo Sneeps
+003. Marco Monteverde - Temporary Shop
+004. Nasser Shibani - Gift Of God(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 09:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B62816467F61F5D6A1F147E1E25C89EBB91ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552011   (451552) от 25.09.2012
+
+VA - Super Best-Of-Ka Русского радио 7 (2012) [MP3|128-256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Bahh Tee - Сердце
+ 02 Lalo Project - Город Goodbye
+ 03 Ирина Ортман feat. Александр Киреев - Навсегда
+ 04 Джиган (Geegun) - Держи Меня За Руку
+ 05 Валерий Меладзе - Свет Уходящего Солнца
+ 06 Леся Ярославская - Сердце Волнуется
+ 07 Секрет Разума - В Мире Всё Возможно
+ 08 DJ Niki feat. Soda - Она Не Ты (Radio Edit)
+ 09 Звери - Никуда не надо
+ 10 Тина Кароль - Я не беру трубку(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C907C9D7DDDD973D4F84FF859CD125466224AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569487   (451511) от 13.08.2022
+
+VA - В машине с музыкой Vol.295 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adamyan Feat. & Arsen Levonyan - Tiezerq (03:53) 2022
+02. Charlieonnafriday  - Enough (03:05) 2022
+03. Intellegent Feat. & Vsegda17  - Моё Тело (02:27) 2022
+04. Mona Songz  - Лепестками (03:04) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6863FBDC8B1640F1910A7434C11B3E575CD5FBDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942978   (451500) от 02.10.2015
+
+Lara Fabian - Good Songs (2015) [MP3|160 кб/с]<Pop, Female vocalists>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451500.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Croire (1991)
+002. Dire (1991)
+003. Il suffit d'un eclair (1991)
+004. Je m'arreterai pas de t'aimer (1991)(   Читать дальше...   )Жанр: Pop, Female vocalistsПродолжительность: 09:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4D1FC49A4C2510761201A0996EC86CBEACD9BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943027   (451499) от 02.10.2015
+
+Vanessa Paradis - Good Songs (2015) [MP3|320 кб/с]<Pop, Dance pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abracadabra
+02. Acrobates
+03. Air du Temps
+04. Amour Jamais(   Читать дальше...   )Жанр: Pop, Dance popПродолжительность: 04:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11AD88B5F129545A48631B86CE2B2B1F2D9DEBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942956   (451498) от 02.10.2015
+
+VA - Another 100 Melodic Rock Anthems (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Care Of Night - Cassandra [00:04:31]
+02. Vision - Mountain Of Love [00:04:51]
+03. Giant - Over You [00:05:04]
+04. John Parr - Come Out Fighting [00:05:12](   Читать дальше...   )Жанр: RockПродолжительность: 07:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82162326FA97E110DE72095A54A8F3E47F35B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942657   (451491) от 02.10.2015
 
 Samantha Fox - Good Songs (2015) [MP3|256 кб/с]<Pop, Disco>
@@ -601,198 +781,6 @@ VA - 80s Respect Magic Liberty (2016) [MP3|128-320 Kbps] <Electro Pop, Eurodance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD3A244C2E2388E2C802BF14EDD52330EF94F202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061052   (450611) от 09.10.2016
-
-VA - Зайцев.нет. Осенний топ №8 (2016) [MP3|256~320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450611.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arseniya - Найти Тебя  3:25
-002. Gwen Stefani & Justin Timberlake - What U Workin With  3:12
-003. Burito - До Свидания  3:24
-004. Tiesto & Don Diablo Feat. Thomas Troelsen - Chemicals  3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0916F2403526B3EA191C6FDA12678A5485597C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552190   (450582) от 25.09.2012
-
-Dj Parafich - Pumping Romantica (2012) [MP3|192 кб/с]<Pumping House, Hard Bass, Speed Garage>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Dj's Feat Caroline Griffin - Amazed (MadeByYou(DjParafich remix))
-02. Ferum Love Party  - Drifting Away (vocal girl pump rmx)
-03. Ferum Love Party  - She said she wouldn't cry, but was feeling just alive (vocal girl pumping rmx)
-04. ProsvetMegaHouse - When I'l find the way,  in you eyes (mega vocal pumping rmx
-05. Old School Pumping - Run Away, FREEEDOM!!!
-06. Ferum Love Party - Give me all your love
-07. Clear Vu - i adore (kb project monster mix)
-08. Yana Key - Run Away (Dj XM Pumping remix)
-09. DjParafich - Titanic Remix Pumping
-10. Александр Пистолетов - К Берегам (dj pistolet pump remix lol)(   Читать дальше...   )Жанр: Pumping House, Hard Bass, Speed GarageПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC60035E99575DEEB0FF0D4D749776B97A41CCC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551601   (450577) от 25.09.2012
-
-Instrumental Core - The New Era (2012) [MP3|320 кб/с]<Dubstep, Instrumental, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The New Era (03:30)
- 02. Gray Zone (06:45)
- 03. Interception (04:11)
- 04. Panic (03:28)
- 05. Machine Heart (04:04)
- 06. Minute Of Life (03:01)
- 07. Light In The Shadow (02:56)
- 08. Heavenly Gates (04:44)
- 09. Millions Of Worlds (03:34)
- 10. Disturbed Prophet From The New Era (04:00)(   Читать дальше...   )Жанр: Dubstep, Instrumental, ElectronicПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE78A81D2D23D28E8239E53004F36788FEC9A814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322301   (450510) от 28.08.2019
-
-VA - Летняя свежая 30-тка 3 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450510.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.78 Градусов - Восемнадцать (3:56)
-2.Alessiee - Черная Дыра (3:45)
-3.ANBO - Оставил до ужина (2:04)
-4.Bahh Tee - Белая полоса (4:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C952D440FB6D024CA42B09212D52179EAF9B8919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061138   (450493) от 09.10.2016
-
-Demis Roussos - Hits (2016) Presents: Elgujakviso [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away
-02. Follow Me
-03. From Souvenirs To Souvenirs
-04. Lovely  Sunny Day(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A24E65A1AE31CF2DF7ED87A1D37EB34767083721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551588   (450423) от 25.09.2012
-
-VA - Самые Горячие Хиты Авторадио 50/50 (2012) [MP3|224 кб/с]<Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital emotion - Go go yellow screen
-02. Леди - На дискотеке
-03. Real McCoy - A noter night
-04. Божья коровка - Теплоход
-05. Vanessa Paradise - Joe le taxi
-06. И. Николаев - Поздравляю
-07. Ice MC - It's a rainy day
-08. А. Глызин - Зимний сад
-09. Fun factory - Doh Wah Diddy
-10. Форум - Белая ночь(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 07:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5413BAC436BDCD29A2C8260D42D73B204C999596
 ```
 
 https://mybot314.ru/tekegram_catalog/

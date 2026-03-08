@@ -1,3 +1,32 @@
+###  Публикация: 1254165   (377519) от 12.10.2018
+
+General Lafayette - King Of The Broken Hearts (1999) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377519.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	King Of The Broken Hearts
+2.	True Love Will Never Die
+3.	Like A Story You Read In A Book
+4.	Country Blues(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48020EDF4B913031BE0477200569577599BBFE24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254135   (377517) от 12.10.2018
 
 General Lafayette - Love Is A Rhapsody (1992) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
@@ -721,35 +750,6 @@ City and Colour - A Pill for Loneliness (2019) [FLAC|Lossless|WEB-DL|tracks] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC83A737FBAF4FC474B69DEE20A6979D34435187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329269   (354428) от 04.10.2019
-
-Mireille Mathieu - Cinéma (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson française, Soundtrack>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354428.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Un homme et une femme (2:54)
-2. Over the Rainbow (3:13)
-3. Une vie d'amour (3:51)
-4. De rêve en rêverie (Evergreen) (3:14)(   Читать дальше...   )Жанр: Pop, Chanson française, SoundtrackПродолжительность: 02:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0EE22FEFB66744E60D3691BD56F557C8FDEF8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1223249   (677285) от 03.05.2018
+
+Liquid Bloom - ReGen Mose Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Tribal, Ethnic>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emerging Heart (Mose Remix) (feat. Rara Avis)
+02. Ensename (Mose Remix)
+03. Fire Gathering (Mose Remix)
+04. Ecstatic Grounding (Mose Remix)(   Читать дальше...   )Жанр: Psychill, Psydub, Tribal, EthnicПродолжительность: 01:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ACB5FC2F21FDE8FF64FD7A10D9D23480A0CFB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135707   (677282) от 21.05.2017
+
+VA - Ori Uplift - - Uplifting Only, Episode 223 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BREAKDOWN OF THE WEEK: Carl Daylim - Believe In You (Intro Mix) (Maraphobia) (EXCLUSIVE PREMIERE)
+02. FAN FAVORITE 217: Twin View - Eris (illitheas Remix) (Silent Shore Deep)
+03. Volmax - I'll Never Stop (Sundance) (EXCLUSIVE PREMIERE)
+04. PRE-RELEASE PICK: Damian Wasse - In The Sky (Classical Mix) (Music Hotel) (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A27C03B12E1C01F46C4A45C452ADCC85C4DEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223244   (677281) от 03.05.2018
 
 Monolink - Burning Sun (2017) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
@@ -690,64 +748,6 @@ VA - Big In Ibiza Vol.2 (Groovy Sexy Deep House Tunes) (2016) [MP3|320 Kbps] <De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FE9D0B4441F1AA277963A00F0900BEF0C17ABF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030475   (674688) от 30.06.2016
-
-S'express - Enjoy This Trip (2016) [FLAC|Lossless|tracks] <House, Deep House, Soul>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From S'Express (Tom Furse Update) (4:37)
-02. Pimps Pushers Prostitutes (Horsemeat Disco Remix) (feat. Billie Ray Martin) (5:47)
-03. Hey Music Lover' (Punks Jump Up Excursion Album Version) (4:01)
-04. Mantra Mania (Monarchy Remix) (4:53)(   Читать дальше...   )Жанр: House, Deep House, SoulПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:094636209A8D00565F30FD04210E13A9FBEAC097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030617   (674572) от 30.06.2016
-
-VA - In The Mix 002 - Progressive Sessions (Mixed by Audio Noir) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manu Delago - Chemical Reaction (feat Rahel) (7:05)
-02. Lux Departure - Twenty Forty Six (Yoky Playground remix) (7:20)
-03. Moonbeam - Black Skies (feat Loolacoma - extended mix) (7:07)
-04. Dofamine - Moon (8:35)(   Читать дальше...   )Жанр: Progressive House, Tech House, TechnoПродолжительность: 05:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5564A9D456A1338EFAFD3472B459845C6B78B211
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1450665   (1028904) от 27.02.2021
+
+Profondo Delle Tenebre - Exoterica (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Darkwave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028904.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Opening Credits [3:17]
+ 2. Exoterica [5:43]
+ 3. Those That Lurk Beyond [3:48]
+ 4. Memento Mori [4:13](   Читать дальше...   )Жанр: Darksynth, DarkwaveПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D855814276B68DDC24F5978505D0D71FC00C773C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036561   (1028705) от 28.02.2021
+
+Aligning Minds (Daniel A. Merrill, A Path Untold) - Collection 4 Releases (2011-2015) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Psychill, Dubstep, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Consciousness Aqueduct (05:48)
+ 02. Empyrealms (07:15)
+ 03. Inwardly Majestic (06:54)
+ 04. Sansing's Glimpse (06:17)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Psychill, Breaks, Dubstep, Ambient, Glitch •Продолжительность: 04:30:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D941C953773677976F57FB4C88B050123E2A0AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201296   (1028693) от 28.02.2021
 
 Taavi Laatsit (Galaktlan, Kulgurid, Vonsuck, Uni) - Discography 14 Releases (1999-2020) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Ambient, Shoegaze,  Downtempo, Techno>
@@ -682,64 +740,6 @@ VA - My Cat Loves to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C9B0DBEB077703C40F83486B27FB0EBED5FB655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202913   (1028348) от 02.03.2021
-
-Alka - Discography 5 Releases (2007-2020) Electronic Eel Rec. [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Glitch, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fractured Time (04:13)
- 02. Widthchild (03:44)
- 03. Faito (02:50)
- 04. Earth Crisis (09:26)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Electro, Glitch, Downtempo, Ambient •Продолжительность: 04:45:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE04F1BFFC54DB57182718CA41169AF536A0D211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152884   (1028272) от 02.03.2021
-
-The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Years (prologue) (6:09)
-02. Gloria (4:50)
-03. WeMoveForward (8:08)
-04. Days of Thunder (5:24)(   Читать дальше...   )Жанр: Synthwave, SynthpopПродолжительность: 14:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DD0B70655F0F7571A6C31315AFC829D029FFC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

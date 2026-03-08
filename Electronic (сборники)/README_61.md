@@ -1,3 +1,32 @@
+###  Публикация: 1391242   (781458) от 19.06.2020
+
+VA - Summer Bass: Jungle Essentials (2020) [MP3|320 Kbps] <D&B, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limit - Tell Me
+02. Dynamic Destruction - Bubbles
+03. Rebuilder - Follow Me
+04. Changer - Locals (Original Mix)(   Читать дальше...   )Жанр: D&B, JungleПродолжительность: 05:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D531BA9BE6B36BBB2B517B4C60E7A7383649F9DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206889   (781330) от 16.02.2018
 
 VA - Music For Everyone - Trance Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
@@ -716,35 +745,6 @@ VA - Vocal Trance Collection Vol.9 (2018) [MP3|320 Kbps] <Vocal Trance, Upliftin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BA22EF76536E1CEDB6D9F2A14371DE206CB5121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209210   (779530) от 25.02.2018
-
-VA - Empire Records - Deep Blue (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Judge - Kinda Love (David K. Remix)
-02. AJ Afterparty - Sound of Heartbreak (Original Mix)
-03. Tolga Mahmut - Alive (Original Mix)
-04. Lost Frequencies & Zonderling - Crazy (Denis First & Reznikov Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B786E1F4D78A11797B1F5EE2175790ACD460ECA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1135219   (683141) от 18.05.2017
+
+Duke Ellington - Le Jazz de A a Z (1940 - 1945) 1994, BMG [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sophisticated Lady [02:44]
+02. It Don't Mean a Thing (If It Ain't Got That Swing) [03:04]
+03. Perdido [03:12]
+04. Take the 'A' Train [02:57](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4108641D584261706C9BD4C08BF6D7C428BE73A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135223   (683140) от 18.05.2017
 
 Duke Ellington - Sophisticated Lady (1996) BMG [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ Dan Barrett & Blue Swing - Blue Swing (2000) Arbors Records [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F13D4410A8D5CA39432040FCD6EC41AB2DA601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290277   (680542) от 19.03.2019
-
-The Dan Barrett Octet - Strictly Instrumental (1987) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Fashioned Love [3:31]
-02. Somebody Loves Me [3:17]
-03. Quasimodo [3:55]
-04. The Minor Infraction [2:58](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A8DF5DFBFD4818D18EBEDE39B1214D3529BE54
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 573609   (376417) от 12.11.2012
+
+DeepSide DeeJays - 3 Релиза (2009-2012) [MP3|320 кб/с]<House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look Into My Eyes (Radio Edit) (4:07)
+02. Look Into My Eyes (Extended Mix) (5:42)
+03. Look Into My Eyes (Club Edit) (5:29)Жанр: House, DanceПродолжительность: 00:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FBDB1C971132BB1FBD060A9B44CF27628C38B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068995   (376250) от 03.11.2016
 
 Roald Velden - Nowhere (2016) [MP3|320 Kbps] <Progressive House>
@@ -722,35 +750,6 @@ VA - Electro Paradise (2010) [MP3|320 kbps]<Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3EB2AFA107BB6AA92CE380AEE6B35A49F317E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071104   (362133) от 09.11.2016
-
-VA - Big Room Essentials, Vol. 01 (2016) [MP3|320 Kbps] <Progressive House, Electro House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lan-D - Dark Shots (Original Mix) 04:22
-02. Avalanche - Alaska (Original Mix) 04:41
-03. Saint Valentine - Vision (Original Mix) 04:26
-04. Dynasty - Charizard (Club Mix) 03:22(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 01:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C1994FE7304CD5E3C86A089AA425B7363ACA64
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 958149   (324997) от 20.11.2015
+
+VA - Enhanced Chill Volume Three (2015) [MP3|320 кб/с]<Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estiva & Skouners feat. Delaney Jane - Playing With Fire (C-Systems Acoustic Rework) (04:08)
+02. Suncatcher - Delude (Original Mix) (05:20)
+03. Matt Fax - Shift (Asleep Version) (05:26)
+04. Diversion - Perfect Pleasure (Chill Out Mix) (08:28)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D53A4A85645686D2EDDDB6F5942A733969A7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958145   (324916) от 20.11.2015
+
+VA - In Search Of Sunrise 13.5 - Amsterdam (Mixed by Richard Durand with BT) (2015) [MP3|320 кб/с]<Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vidda Deborras - Tower Of Tears (Intro) (3:04)
+02. Michael Badal with Sue McLaren - Recapture (5:58)
+03. Alex O'Rion - Electrifying Love (7:09)
+04. Moonbeam feat. Sopheary - Heaven (4:42)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 05:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A554095D5BAE042213FEF0041662805CAA5ADA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958490   (324031) от 21.11.2015
 
 VA - Uplifting Trance Essentials Vol. 6 (2015) [MP3|320 кб/с]<Uplifting Trance>
@@ -687,64 +745,6 @@ VA - Sensual Lounge: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F7C178BF6299D4884AC87D05F8D29F6C4A94C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075147   (323155) от 21.11.2016
-
-The Human League - Anthology: A Very British Synthesizer Group (2CD) (2016) [FLAC|Lossless|image + .cue] <Synthpop, New-Wave, Art-Pop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life On Your Own [4:13]
-02. Human (Extended Version) [5:06]
-03. I Need Your Loving (DJ Edit) [2:54]
-04. Love Is All That Matters (Edit) [2:59](   Читать дальше...   )Жанр: Synthpop, New-Wave, Art-Pop, ElectronicПродолжительность: 01:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9818682C6A6FA8A055B3138E22080AF4A11734AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259111   (323073) от 02.11.2018
-
-VA - Ibiza Forever (2018) [MP3|320 Kbps] <House,Deep House,Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323073.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eddy Chrome - In Love (Double Deep Radio Remix)
-002. Cheap Sunglasses - Remembering Ibiza (Chillhouse Rework)
-003. Garagestylerz - My Touch (London Garage Mix)
-004. Toni Pinetti - Get Down(   Читать дальше...   )Жанр: House,Deep House,Progressive HouseПродолжительность: 09:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64241293EE67BD0C1640D7E1A8E14CA8411E098E
 ```
 
 https://mybot314.ru/tekegram_catalog/

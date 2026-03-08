@@ -1,3 +1,32 @@
+###  Публикация: 1054906   (492485) от 20.09.2016
+
+Bernward Koch - Touched by Love (2016) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking through Clouds [00:02:39]
+02. Touched by Love [00:03:22]
+03. Long Way Home [00:04:12]
+04. Back to Myself [00:03:46](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8FD3BF7FC474F24AF7B7576733913107F0535DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936937   (492265) от 13.09.2015
 
 Kevin Kendle - Illumination (2015) [MP3|320 кб/с]<Electronic, Ambient, New Age>
@@ -722,35 +751,6 @@ VA - New Age Dimension (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B21ECB421FE0B518E9503F200A34A503950D8B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055659   (486109) от 23.09.2016
-
-Didier Merah - Eden (2016) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happiness [00:10:18]
-02. Paradise Lost [00:13:48]
-03. Testament [00:12:13]
-04. Dle Yaman [00:12:00](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 02:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34932858189272A1E0AB9BAA46383480D99932C
 ```
 
 https://mybot314.ru/tekegram_catalog/

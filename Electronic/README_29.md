@@ -1,3 +1,59 @@
+###  Публикация: 1623382   (1029414) от 01.04.2023
+
+VA - Ibiza XXL - The Summer Hits 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hight & Basti M & Blaikz feat. Hannah Jane Lewis - I'm With You [2:56]
+02. Klaas - 1   1 1 [2:23]
+03. Steve Modana & Freischwimmer - You Can't Buy My Like [2:35]
+04. Shaun Baker vs NDEE & ROOMS feat. Jessica Jean - Do It All Night [2:29](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262E4563743F1F8D1C9586D99892A6DA69B3D75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623041   (1029411) от 01.04.2023
+
+VA - Armin van Buuren - A State Of Trance 1114 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren ft. Wrabel - Feel Again
+02. Armin van Buuren ft. Matluck - Letting GoЖанр: Trance, Progressive, ElectronicПродолжительность: 02:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF9EFA240DD758CF993312FC1FE8D57D2F55FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623421   (1029409) от 01.04.2023
 
 V.A. - The Best Chillout Ever (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Trip-Hop, Lounge>
@@ -682,64 +738,6 @@ Warmth - Discography 31 Releases (2013-2021) Rohs! Records, Etoka Records, Archi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:053F1C4D175B27475021105D6723733B7570E984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450665   (1028904) от 27.02.2021
-
-Profondo Delle Tenebre - Exoterica (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Darkwave>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028904.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Opening Credits [3:17]
- 2. Exoterica [5:43]
- 3. Those That Lurk Beyond [3:48]
- 4. Memento Mori [4:13](   Читать дальше...   )Жанр: Darksynth, DarkwaveПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D855814276B68DDC24F5978505D0D71FC00C773C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036561   (1028705) от 28.02.2021
-
-Aligning Minds (Daniel A. Merrill, A Path Untold) - Collection 4 Releases (2011-2015) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Psychill, Dubstep, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Consciousness Aqueduct (05:48)
- 02. Empyrealms (07:15)
- 03. Inwardly Majestic (06:54)
- 04. Sansing's Glimpse (06:17)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Psychill, Breaks, Dubstep, Ambient, Glitch •Продолжительность: 04:30:51 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D941C953773677976F57FB4C88B050123E2A0AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

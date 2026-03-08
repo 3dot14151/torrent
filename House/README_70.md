@@ -1,3 +1,32 @@
+###  Публикация: 968036   (158268) от 22.12.2015
+
+VA - The Sound Of Whartone Winter 2015 (21.12.2015) [MP3|320 кб/с] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonny Wharton - I Feel It (Original Mix) [06:50]
+02. Dirty Secretz - Trippin' (Original Mix) (feat. Rebe) [08:06]
+03. Adam Sharpe - Afrocan (Original Mix) [06:07]
+04. James Kininmonth - Sleepless (Original Mix) (feat. Ruth Sharples) [08:03](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57B18C5AE954F1F332C825093AEA1EF652B2BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 696231   (157962) от 22.12.2015
 
 Exoplanet - Discography 2 Albums & 26 EP (2005-2014) [MP3|320 кб/с]<Progressive House, Techno, Downtempo, Breaks, IDM, Deep House>
@@ -711,41 +740,6 @@ VA - Deep House Top 1000, Vol.1-Armada Music (2018) [MP3|320 Kbps] <House, DeepH
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A04A72A4F5DA3F4F1E7CA227D121C70D56EF4656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590291   (146176) от 16.12.2012
-
-VA - SoSexy - Deep House Selection Vol.1-2 (2012) [MP3|320 кб/с]<House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diego Suarez - Bossa and Trip
-02. Marco Van Erpen - Keep On Dreamin
-03. Tiapason - Day Dream
-04. Tiapason - Wasting Time
-05. DJ Joseph B - All Kinds of Everything
-06. DJ Jerry - Keep in Mind
-07. Diego Suarez - Guitar Reverse
-08. Love Pacific Industries - Conselvee
-09. Musixx - Test Giose
-10. 4th Floor - A Night in New York(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 06:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F9DDAFA046960BB915A38AB0C29C83BE70530A
 ```
 
 https://mybot314.ru/tekegram_catalog/

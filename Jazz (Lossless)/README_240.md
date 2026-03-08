@@ -1,3 +1,32 @@
+###  Публикация: 1069826   (244618) от 05.11.2016
+
+Mal Waldron - Up Popped the Devil (1973) 2003, Enja Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Up Popped the Devil [10:26]
+ 02.Space Walk [12:29]
+ 03.Snake Out [11:03]
+ 04.Changachangachanga [13:33]Жанр: Hard Bop, Post-BopПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA425215938F64B594C2EBB36555ADBB9FB9EFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609891   (244617) от 05.02.2023
 
 Ella Fitzgerald - BD Jazz (1945 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Francisco "Paquito" Hechavarria - Frankly (2009) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F00844B20564BC6D940F770F69909D7556DF14B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610803   (244274) от 09.02.2023
-
-Steve Khan - Backlog (2017) Tone Center [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Criss Cross (Entrecruzado) [5:49]
-02. Concepticus in C [5:42]
-03. Latin Genetics (Genetica Latina) [8:10]
-04. Our Town (Nuestro Pueblo) [7:14](   Читать дальше...   )Жанр: Jazz Fusion, Latin JazzПродолжительность: 01:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D94AC46DCA4963CCFC9C8CD049E301279A4E23
 ```
 
 https://mybot314.ru/tekegram_catalog/

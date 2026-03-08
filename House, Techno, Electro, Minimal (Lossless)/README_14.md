@@ -1,3 +1,90 @@
+###  Публикация: 998825   (868646) от 20.03.2016
+
+VA - Telrae Mixed By Salz Vol. 2 (2012) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salz - Telrae Mix Vol. 2 (Continuous Mix) (01:19:19)
+02. Van Bonn - Marathon (Dublicator's Long-Distance Dub) (07:33)
+03. Martin Schulte - Urban Wind (Original Mix) (06:14)
+04. Van Bonn - Maserung (Organon Remix) (08:50)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 02:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6AF5B725B99F25DB766F5AFF6CBF7784BE6F59A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998826   (868585) от 20.03.2016
+
+VA - Telrae Mixed By Salz Vol. 5 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefan Gubatz - Cologne (11:59)
+02. OVC - Sortavala (08:21)
+03. Cio D'or - And On (06:56)
+04. Taster Peter - Dub inquieta (Salz Remix) (06:21)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 02:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6755C1EBA7F479549B17EEC3B5DBE72AEDF2A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998690   (868389) от 20.03.2016
+
+VA - Serious Beats 83 [Mixed by Ar-Tee] (4CD) (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Drum and Bass, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868389.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1
+01. Netsky feat. Digital Farm Animals - Work It Out (3:15)
+02. Sigala feat. Bryn Christopher - Sweet Lovin' (Extended Mix) (4:57)
+03. Sigma & Rita Ora - Coming Home (3:31)(   Читать дальше...   )Жанр: House, Progressive House, Drum and Bass, Electro HouseПродолжительность: 04:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB7CC8D1C9FA8FABD62CB5426B5836F496D5515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107232   (868231) от 22.02.2017
 
 VA - We Love Funky by Miguel Vizcaino (2016) [FLAC|Lossless|image + .cue] <House, Nu Disco>
@@ -655,93 +742,6 @@ Boris Brejcha - Thunderstorm (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26B5EF67CE4E2AE3A90852F05182A6504168A24E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499571   (846313) от 03.10.2021
-
-Jerro - Coming Home (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming Home (3:52)
- 02. Too Weak (4:01)
- 03. Sweeping (4:04)
- 04. Lost for Words (feat Panama) (3:19)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep HouseПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E515388B9939FCA492AB9479ACE002A6281233CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378683   (843138) от 27.04.2020
-
-Booka Shade - Galvany Street (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Indie Pop, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digging a Hole (4:41)
- 02. Numb the Pain (4:25)
- 03. Magnolia (1:41)
- 04. Broken Skin (4:47)(   Читать дальше...   )Жанр: Electronic, Tech House, Indie Pop, DowntempoПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E00A6E7095EA62DF48EA5441E37BBC45FCA64F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112791   (841543) от 09.03.2017
-
-lorian MSK - Le Vacarme De Diavel (2016) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L Insondable Grandeur De L Ombre (08:55)
-02. Resonances Tourmentees Du Comte De L Aube (07:43)
-03. Dissonances Letargiques (09:13)
-04. La Portail De La Coisee Des Vents (08:06)(   Читать дальше...   )Жанр: Techno, Psy-Trance, MinimalПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66342B48892B4BDE1411E24229CA9AC93138FE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

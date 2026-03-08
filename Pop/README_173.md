@@ -1,3 +1,61 @@
+###  Публикация: 1308491   (553710) от 15.06.2019
+
+Madonna - Madame X (2019) (Japanese Edition) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madonna & Maluma - Medellín
+02. Madonna - Dark Ballet
+03. Madonna - God Control
+04. Madonna & Quavo - Future(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC255EEAE21C756BA7E2CE9D4768E2F876E1741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236959   (553618) от 21.07.2018
+
+Ada Fijal - Ninoczka (2011) [FLAC|Lossless|tracks + .cue] <Pop, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zulejka (o poranku) (5:30)
+02. Abdul Bey (3:14)
+03. Rebeka tanczy tango (3:58)
+04. Blekitny Ekspres (3:20)(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9289736B1D68756EB0FED96E537DE17938376CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308749   (553538) от 16.06.2019
 
 World Family - World Family (1992) [FLAC|Lossless|image + .cue] <Pop, Cover, Gospel>
@@ -693,64 +751,6 @@ Celine Dion (Céline Dion) - Encore un soir (2016) Deluxe Version [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63D9D9C833B6A2800DC3D5C7DF6D4841C4A2B2DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237506   (551535) от 24.07.2018
-
-VA - We Love Summer (2018) 2CD [MP3|320 Kbps] <Dance, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551535.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Luis Fonsi & Stefflon Don - Calypso [03:20]
-02. Alvaro Soler - La Cintura [03:23]
-03. Jax Jones Feat. Mabel & Rich The Kid - Ring Ring [03:37](   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 02:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE4C9F17251F0BDCFD377902C273647B5169D3EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237557   (551476) от 24.07.2018
-
-VA - New Italo Disco: Reloaded Hits & New Songs (2018) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Reason - I Like Chopin (Radio Mix) (3:34)
-02. Casandra - Take Me Away (Birizdo 80s Italo Radiomix) (3:24)
-03. Lola Lee - Ding Dong Song (4:03)
-04. Den Harrow - Don't Break My Heart (Reload Mix) (2:55)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C01656BB711BDAC8640A4A171D94C97ACE94A24A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1336853   (277597) от 08.11.2019
+
+Greg Marvin - I'll Get By (1991) [FLAC|Lossless|image + .cue] <Hard Bop, Neo-Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ding Dong! The Witch Is Dead (Arlen-Harburg) - 4:53
+02. Our Angel (Marvin) - 9:16
+03. Devil's Dream (Marvin) - 6:52
+04. I'll Get By (As Long as I Have You) (Turk-Ahlert) - 1:54(   Читать дальше...   )Жанр: Hard Bop, Neo-Bop, Post-BopПродолжительность: 01:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC728DB5FF060E346250DF7861F4CD02DE15A76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336823   (277592) от 08.11.2019
 
 Bob James Trio - Espresso (2018) Evosound [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Yoshiro Okazaki & Jay Thomas Quintet - Soul Summit!: Live at Mr.Kenny's (2014) C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:274CFC2CF30B131E5A68728DC0398ACED980ADA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337308   (275028) от 10.11.2019
-
-Jay Thomas / Gary Smulyan - Lowdown Hoedown (2016) CUG Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lowdown Hoedown [5:44]
-02. Melanie [7:15]
-03. Star Eyes [7:19]
-04. Lotus Blossom [6:35](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8582A009BC61CEE0E90C70BBE66EC77D7850DD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

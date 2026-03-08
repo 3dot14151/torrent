@@ -1,3 +1,32 @@
+###  Публикация: 1328728   (359268) от 02.10.2019
+
+VA - Virus Attack: Psy Trance Set (2019) [MP3|320 Kbps] <Psychedelic Trance, Goa>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner State - Free Drop
+02. Talpa & Purple Hayes - Born This Way
+03. Blind-Ox - Captured Dreams Connected
+04. Coexist - Maze(   Читать дальше...   )Жанр: Psychedelic Trance, GoaПродолжительность: 04:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2A88A5541146E53E7E09AEA8AA33AA80035387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951950   (358969) от 31.10.2015
 
 VA - Trance Traveling 70 (2015) [MP3|320 кб/с]<Trance>
@@ -732,35 +761,6 @@ VA - Regular Spectr Electronic Top 100 (2016) [MP3|320 Kbps] <House, Future Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:898704F8F07D29B11928383DB8ABD34E1E75BF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256581   (354426) от 22.10.2018
-
-Roger Shah - Live I Love Qiev (2008) [MP3|192 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ingsha - Niavara
-02. Sunlounger feat. Eller van Buuren - Catwalk
-03. Black Pearl - Coral Sea
-04. Magic Wave - Galapagos (DJ Shah & Ralph Fritsch Tribute Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07AC1BB2B8A215ABF34A1AC83C08081DC5169377
 ```
 
 https://mybot314.ru/tekegram_catalog/

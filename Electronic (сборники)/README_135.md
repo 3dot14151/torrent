@@ -1,3 +1,32 @@
+###  Публикация: 1160081   (478187) от 23.08.2017
+
+VA - Trance Nation: The Vocal Session (2017) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478187.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Giuseppe Ottaviani & Kyler England - Firefly (Omnia Extended Remix)  5:27
+002.  Yuri Kane - Obsession (Radio Edit)  3:31
+003.  Sheridan Grout - The Last Word (Sam Laxton Remix)  5:41
+004.  Markus Schulz Presents Dakota feat. Bev Wild - Running Up That Hill (Extended Mix)  7:38(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 08:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E403BD7E2AF57C46E7036C0E15C3A353F280854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938954   (478152) от 20.09.2015
 
 VA - World Chillout - Bestsellers (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -755,35 +784,6 @@ VA - Music compilation September (2015) [MP3|320 кб/с]<House, Electro, Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF992F4D81DD89CE5BCC1616B2CFCFFFB2055D41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057453   (475347) от 28.09.2016
-
-VA - Infectious Sounds: Bass Line (2016) [MP3|188-320 Kbps] <Drum and Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475347.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Above Beyond ft. Richard Bedford - Sun Moon
-002. Monty - Dead Cells
-003. 3D Stas - Increased Power
-004. Radique - Simple Magic(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 12:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321F50E1537B7195D17206891EB29099A68078FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

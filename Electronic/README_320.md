@@ -1,3 +1,61 @@
+###  Публикация: 1172053   (394670) от 06.10.2017
+
+VA - Synth Love Affair Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwave, Retro Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takahashi Jones - A Night To Remember (6:23)
+02. Sebastian Gampl - Hold Her (3:42)
+03. Absinth3 - I'll Be There (feat. Lucy Fox) (3:40)
+04. Stilz - Meant To Be (3:36)(   Читать дальше...   )Жанр: Dreamwave, Synthwave, Retro WaveПродолжительность: 01:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D020A1FB0E050235DD7BDCB819B69E3A2A82E2CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172335   (393974) от 07.10.2017
+
+AstroPilot - Thirty Three (2017) [MP3|320 Kbps] <Psychedelic, Progressive Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Down The Memory Lane (Featuring Seamoon)
+ 02.  The Heartland
+ 03.  There Is No Tomorrow!
+ 04.  My Home Is Where You Are(   Читать дальше...   )Жанр: Psychedelic, Progressive TranceПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D7852E61EEB5A45C9BE0B27C9EE0AEE5B99416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 716378   (393963) от 29.10.2013
 
 VA - Art Of More (Mixed By Ismix) - 2013 [MP3|320 кб/с]<Tech House, Deep House, Progressive>
@@ -700,69 +758,6 @@ VA - Lounge And The City (30 Beautiful Tunes) (2017) [MP3|320 Kbps] <Downtempo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6963076E7007A8AEC120D52A1E73AEA4FE3F005D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662465   (389640) от 12.10.2017
-
-Rildrim - Discography 9 Releases (2006-2017) [FLAC|Lossless|WEB-DL|tracks]<Ambient, Ethereal, Psybient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving Inward (04:42)
- 02. Descent into Matter (04:48)
- 03. Changing Horizons (06:03)
- 04. Shifting Sands (05:36)(   Читать дальше...   )Жанр: Ambient, Ethereal, Psybient |Продолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C49662489469785E590145AB61D76FB41AEDF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571123   (389367) от 06.11.2012
-
-VA - Gleaner (2011) [FLAC|Lossless|WEB]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.Balter & Eitan Reiter - Too Much (Original Mix) (9:21)
-02. Karl Johan - Plus (Original Mix) (8:12)
-03. Fred White - Exile (Original Mix) (7:17)
-04. Human Element - Digital Reality (Original Mix) (7:15)
-05. Dominic Thomas - Breather (Original Mix) (8:00)
-06. Bakke - Voiceprint ID (Original Mix) (8:05)
-07. Fresh - Let It Roll (Original Mix) (7:46)
-08. Paulina Cewe - Vaporware (Original Mix) (8:11)
-09. Sleek - Rhodes Rodeo (Original Mix) (7:46)Жанр: Progressive HouseПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

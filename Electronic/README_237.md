@@ -1,3 +1,61 @@
+###  Публикация: 1297102   (606791) от 20.04.2019
+
+Nova - Passages (2014) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, IDM, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Murray - Passing Through Walls (05:48)
+ 02. Fingers In The Noise - Delicate (06:39)
+ 03. Cygna - Within (06:20)
+ 04. Brando Lupi - Opal (07:52)(   Читать дальше...   )Жанр: Psybient, Downtempo, IDM, AmbientПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92CB8C577F445E2D27C4B6666943251CB281D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297096   (606788) от 20.04.2019
+
+Scann-Tec - Morpheus | live Nuit Hypnotique #4 (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Ambient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flicker (Live Edit) (04:19)
+ 02. ASD (Live Edit) (06:38)
+ 03. Phone Call (Live Edit) (06:18)
+ 04. Hello Human (Live Edit) (05:59)(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 01:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D872C4C8D90FF89FDFBCB38FBE1CB196241E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038604   (606730) от 28.07.2016
 
 Mollono.Bass & Ava Asante - Birds Flying High, Pt.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -705,64 +763,6 @@ Claude Challe - Nirvana Lounge 02 (2002) 2CD Box [APE|Lossless|image + .cue] <Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4C004073DCFE92530D72A6E98A7B0685219C048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231634   (604149) от 19.06.2018
-
-VA - Nuyileq VA 001 (2018) End Of Perception [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hydrangea - Lucid Dreams (08:20)
- 02. Yuka - Dark Crystals (05:43)
- 03. Viels - Divided (07:01)
- 04. Blazej Malinowski - Different Path (07:34)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7927DFA6ECEA2D42C415FE6C4A1812F0C4D72F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297445   (604071) от 22.04.2019
-
-Blazej Malinowski - Entity (2019) Semantica Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entity (07:45)
- 02. ADD (07:15)
- 03. In Reverse (07:18)
- 04. vurt. (06:20)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC320DD13E0E28F4332BA32F3318F81306D598D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1852529   (1056163) от 08.02.2026
+
+Rigooni - Serenade (2020) [FLAC|Lossless|tracks] <Deep House, Organic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Blue Rose For Daniele 09:03
+02. Serenade 09:02
+03. Eudaimonia 10:08
+04. August Tears 08:25Жанр: Deep House, Organic HouseПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83ACF3BB0C7915E3435DD66967C8860E3392551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851610   (1055305) от 02.02.2026
+
+VA - Lounge Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmonize - Show Me Love (5:10)
+02. Abee Sash - Memories (3:36)
+03. DeepTurco - Energy (4:00)
+04. Faraón - Love of My Life (4:20)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09E303ED80ACC20105A6500A7F8219111B00FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848679   (1052935) от 18.01.2026
+
+VA - Winter Lounge Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegant Ape - Feel The Fire (3:58)
+02. Silvan7 - Summer Emotions (3:57)
+03. Fly - Live (Radio Edit) (3:13)
+04. N.E.O.N - Monday Blues (Radio Edit) (4:21)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976528B256B45A21E2FE9AD15A530CD11E1B1E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848753   (1052895) от 18.01.2026
 
 VA - Winter Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -656,93 +743,6 @@ Dj Nikk - The Millenniummmix (2000) [FLAC|Lossless|tracks + .cue] <House, Hard H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CEE52F090F6665B1AECC474F2D4123F8F93CA43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607684   (1043936) от 27.01.2023
-
-VA - The Soundgarden: Winter Collection 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Organic House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nick Newman -  A Happening  (6:39)
-02.  Oliver Harper -  Strawberry Thief  (8:12)
-03.  Dastan  -  Observer  (6:51)
-04.  Bodaishin, Thales Senses -  Chants Of Whales  (7:44)(   Читать дальше...   )Жанр: Melodic House & Techno, Organic HouseПродолжительность: 01:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA39D72570894420467DD8F681B294C9EDA04A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608046   (1043813) от 28.01.2023
-
-Satin Jackets - Reunion (2022) [FLAC|Lossless|tracks + .cue] <House, Deep House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For What We Have (4:01)
-02. Move On (ft.Panama) (4:27)
-03. First Thing (ft. Tailor) (4:00)
-04. Coffee and Feels (4:08)(   Читать дальше...   )Жанр: House, Deep House, Nu-DiscoПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9A829989C692E6010B56C89B3FCA3EE64DCDFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608476   (1043634) от 30.01.2023
-
-VA - Dialtone Records - 15 Years Anniversary (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Chillwave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aradya -  Mayahuel  (6:40)
-02.  Naturae -  Comfort Room  (8:12)
-03.  Juani Bria -  Daydreaming  (7:54)
-04.  Deejaguar -  Jamaican Paradise  (8:37)(   Читать дальше...   )Жанр: Deep House, Organic House, ChillwaveПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633B032B0D4D04498289E4538D54BB821D1E0365
 ```
 
 https://mybot314.ru/tekegram_catalog/

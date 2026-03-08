@@ -1,3 +1,61 @@
+###  Публикация: 1138051   (665708) от 28.05.2017
+
+VA - Seven Stories: Voyage & Return (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yacine Dessouki & Alani - Distant Reflections [06:33]
+02. Luis Leon - Die Blaue Blume [08:27]
+03. No Gravity - Escape The Forest [05:41]
+04. Quartz - Redemption [08:08](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5583AC90E57E9AAD35B6EC8B94AE0058DDF3E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137815   (665660) от 28.05.2017
+
+Giacomo Bondi - Songset Boulevard (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Dying Softly
+02 – Do What the Grown Folks Do
+03 – Chercher
+04 – Days(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EC255AC9E0CAC83D36DB21E8F5F10FDAB32066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137648   (665659) от 28.05.2017
 
 VA - Ibiza Hipster Lounge Vol.1 (Cool Relaxing Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -684,64 +742,6 @@ Deorbiting - Space House (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C58C4A1D1C235DDD33DD2BE3B08E70D269750BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138396   (664388) от 29.05.2017
-
-VA - Sexy & Chill Feelings (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pindaric Spleen - Reciprocal Inhibition 5:32
-02.  Sombra Modos - Botavara 5:34
-03.  Lamar Ensemble - Inspirational Shortcut 5:48
-04.  Rey Salinero - Recuerdos 5:59(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF67C045AF98479890E502091C50F20711973157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138377   (664387) от 29.05.2017
-
-VA - Best Of Progressive House Vol.04 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shingo Nakamura - Always (Blood Groove & Kikis remix) (05:02)
-02. Sam Davies - Sunbound (Universal Solution remix) (07:32)
-03. Gregory Esayan - Taxi (Approaching Black remix) (07:24)
-04. Eleven Five - Arcanum (original mix) (08:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3C037B72F6899A39D2BD51055AB41B2DDBB6C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

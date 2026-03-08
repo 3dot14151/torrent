@@ -1,3 +1,29 @@
+###  Публикация: 1519753   (146589) от 25.12.2021
+
+The World of Hans Zimmer: A Symphonic Celebration - Hollywood in Vienna 2018 (2021) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный Blu-ray Ханса Циммера под названием ''World of Hans Zimmer: Hollywood in Vienna'' был записан в 2018 году в классическом концертном зале Вены, по случаю вручения композитору 10-й премии Макса Штайнера за достижения в области киноискусства. Прозвучали известные оркестровые композиции из фильмов, частично специально переделанные им, совместно с Венским симфоническим (   Читать дальше...   )Производство: Германия / DWTC BalgavyЖанр: Musical ScoreРежиссер: Питер РэбинджерАктеры: Martin Gellner, Lisa Gerrard, Valentina Nafornita, Pedro Eustache, Luis Ribeiro, Eliane Correa, Rusanda Panfili, ORF Vienna Radio Symphony Orchestra, Neue Wiener StimmenПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 01:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6916D6747F4742D11D69A15F6DF5D67A2A791097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519793   (146406) от 25.12.2021
 
 Metallica - 40th Anniversary Shows (2021) WEB-DL [H.264/1080p-LQ]
@@ -695,32 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2766137BFE4AB58A15823C56BD5F066770F0F464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683056   (129926) от 09.12.2023
-
-Duran Duran - A Hollywood High: Live In Los Angeles (2022) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prepare for an explosive journey through a blistering setlist with Duran Duran's 'A Hollywood High' on Blu-ray and DVD. Visually stunning, this electrifying high-rise rooftop performance was filmed in Los Angeles at The Aster, framed against an iconic LA skyline and the Capitol Records building. Experience the pulsating energy of the band's timeless music in crystal-clear (   Читать дальше...   )Производство: Last Man MusicЖанр: Rock, New WaveПеревод: ОтсутствуетПродолжительность: 01:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985A845DF4FB92260AB545145B758E34F3F7BA6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

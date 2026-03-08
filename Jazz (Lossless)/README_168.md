@@ -1,3 +1,32 @@
+###  Публикация: 1404785   (489888) от 27.08.2020
+
+Benny Carter & American Jazz Orchestra - Central City Sketches (1987) Musicmasters [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doozy (Second version) [5:23]
+02. When Lights Are Low [5:02]
+03. A Kiss from You [2:56]
+04. Sleep [3:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7BA90F6A9A42FF1BB927DB1401C9751408E3149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404788   (489887) от 27.08.2020
 
 Peter Bernstein - Earth Tones (1997) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
@@ -716,35 +745,6 @@ Pear - Extemp'ore (2011) PearStudio Records [WavPack|Lossless|image + .cue] <Ava
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D33B0B263008B8A1F640DB3877A34A4DD24A8421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055712   (486117) от 23.09.2016
-
-Billy Taylor - One For Fun (1959) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Summertime [03:51]
- 02.One For Fun [03:39]
- 03.That's For Sure [01:58]
- 04.A Little Southside Soul [04:29](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20527B016EF912A46BF5C9ED2C9C57C5D593E36F
 ```
 
 https://mybot314.ru/tekegram_catalog/

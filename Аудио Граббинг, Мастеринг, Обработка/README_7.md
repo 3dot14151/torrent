@@ -1,3 +1,29 @@
+###  Публикация: 1216473   (748988) от 31.03.2018
+
+Xfer Records - Serum 1.214b4 + Audio DSP Pack (VSTi, VST, AAX) (x86/x64) [En] (No install)
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serum— это таблично-волновой синтезатор с высококачественным звуком, визуальным и творчески ориентрованным интерфейсом, с встроенным wavetable редактором для создания ваших собственных уникальных таблично-волновых установок.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE69743AD6F29E6BE69BD0E348A0B7D0AA53BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395007   (746421) от 15.07.2020
 
 Native Instruments - Kontakt 6.3.1 (Full) STANDALONE, VSTi, AAX (x86/x64) RePack by r4e [En]
@@ -654,32 +680,6 @@ MONOFILTER возвращает центр вашего баса, поэтому
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47CF24DEF3584F1A6FC716ACAB00F7A9E35B0899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402575   (699449) от 15.08.2020
-
-Ample Sound - Ample Bass Yinyang III v3.1.0  [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ample Bass Yinyang III - это виртуальная бас-гитара, которая привнесёт звук Fodera Yin Yang Bass в вашу студию. Ample Bass Yinyang содержит библиотеку сэмплов общим объемом более 5 Гб, записанных на каждом ладу.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDA5325343E085D4BDCD26D26E0984C1CA511C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

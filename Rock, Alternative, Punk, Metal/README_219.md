@@ -1,32 +1,3 @@
-###  Публикация: 1374521   (872990) от 10.04.2020
-
-Dream On Dreamer - What If I Told You It Doesn't Get Better (2020) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel so Empty
-02. Disappear
-03. Explicit
-04. Fade Away(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4661B67156E0AE76D7735053AC61D8F4A1109DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374585   (872981) от 10.04.2020
 
 Mungo Jerry - Touch the Sky (2020) [MP3|320 Kbps] <Blues, Rock, Classic Rock>
@@ -758,6 +729,35 @@ The Storyteller - Sacred Fire (2015) [MP3|320 кб/с]<Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61381B51C51C95D8779FD6E71D55CF8212CFC830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997871   (872048) от 18.03.2016
+
+Freddie King - Burglar (1974) Reissue, 2001, Polydor [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pack It Up (4:11)
+02. My Credit Didn't Go Through (4:12)
+03. I Got The Same Old Blues (3:25)
+04. Only Getting Second Best (3:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B440772168A12A277C295646DBCE1EC85E3154C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

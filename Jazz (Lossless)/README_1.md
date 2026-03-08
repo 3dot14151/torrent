@@ -1,3 +1,32 @@
+###  Публикация: 1603013   (1045874) от 08.01.2023
+
+Karin Krog - Sweet Talker: The Best Of Karin Krog (1963 - 2005) 2CD, 2005, Grappa [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045874.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. You'd Better Love Me [4:12]
+02. Nice Work If You Can Get It [3:05]
+03. Ribbon of Sand [3:20](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 02:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192A9D58E3F352F236E8B95BE062A0F33818F3D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603019   (1045873) от 08.01.2023
 
 Tri-Fi - A Tri-Fi Christmas (2011) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Lee Morgan - Candy (1957) 2012, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65575D00551D1D1A66B32450A374D10FE6949851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605488   (1044877) от 18.01.2023
-
-Paul Desmond - The Complete Albums Collection (1953 - 1963) 4CD, 2018, Enlightenment [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044877.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Over the Rainbow [5:04]
-02. You Go to My Head [7:24]
-03. Give a Little Whistle [6:32](   Читать дальше...   )Жанр: CoolПродолжительность: 05:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9470ADCEC187ED985F9357B01D93430DA7664A8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

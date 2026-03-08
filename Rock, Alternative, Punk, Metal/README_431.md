@@ -1,32 +1,3 @@
-###  Публикация: 1541876   (643136) от 04.04.2022
-
-Grimorium Verum - Reall (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In The Labyrinth Of The Dead (00:06:03)
-02 - Black Church Eternity (00:04:33)
-03 - The Lamp Of Destiny (00:05:36)
-04 - Hourglass (00:02:16)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C199288E3CCA504D02ECF9094C732D7E8737D015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541862   (643133) от 04.04.2022
 
 Luna Waves - Blood Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
@@ -751,6 +722,35 @@ Waken Eyes - Exodus (2015) [FLAC|Lossless|image + .cue] <Progressive Metal, Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C14279BAC95B37D3212E59A5269416288DA44963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032946   (642111) от 09.07.2016
+
+Lanterna - 3 Альбома (2001 - 2006) [APE|Lossless|image + .cue] <Folk Rock, Space Rock, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elm Street    05:25
+02.  B Minor    05:13
+03.  Spirits    03:00
+04.  Thirty    04:10(   Читать дальше...   )Жанр: Folk Rock, Space Rock, AmbientПродолжительность: 02:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C5094505B09DD5AE2817349CC391A598CA39F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 997871   (872048) от 18.03.2016
-
-Freddie King - Burglar (1974) Reissue, 2001, Polydor [APE|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pack It Up (4:11)
-02. My Credit Didn't Go Through (4:12)
-03. I Got The Same Old Blues (3:25)
-04. Only Getting Second Best (3:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B440772168A12A277C295646DBCE1EC85E3154C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997836   (872042) от 18.03.2016
 
 Spiritual Beggars - Sunrise To Sundown (2016) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -742,6 +713,35 @@ Ozzy Osbourne - No More Tears (2021) 30th Anniversary Expanded Edition [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3EF5CE72BEA3916A0A65D28CF9A11E3117631E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374557   (871202) от 11.04.2020
+
+Kill the Kong - 2 Albums / 4 Singles (2016-2019) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871202.jpg" />
+</div>
+
+
+###  Подробнее
+
+2016 - Kill the Kong
+2017 - Colossus
+2016 - Bring the Heat (Single)
+2017 - Ashes in the Wind (Single)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 6 CD, 01:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821C05446B88AE87133541432E2D2624937157C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

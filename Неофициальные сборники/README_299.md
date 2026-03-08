@@ -1,3 +1,194 @@
+###  Публикация: 906184   (645120) от 08.06.2015
+
+Вольфганг Амадей Моцарт - Музыка Моцарта для сна (2000) [MP3|320 кб/с]<Класика>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Регулярно слушая музыку Моцарта для сна, можно без особых усилий вернуть хорошее самочувствие и отличное настроение. Это доказано многочисленными экспериментами.
+Произведения выдающегося композитора можно слушать как перед сном, так и во время него. Настроив проигрыватель на оптимальную громкость, желательно «отключить» все мысли и постараться на время забыть обо (   Читать дальше...   )1. Don Giovanni, K. 527 Deh! Vienialla Finestra.
+2. Piano Sonata No. 11 in a Major, K. 331 Andante Grandioso.
+3. String Quartet No. 10 in C Major, K. 170 Adagio.
+4. Symphony No. 11 in D Major, K. 84 Andante.(   Читать дальше...   )Жанр: КласикаПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6B7D96531EEEB72179FAB03535211ACC434E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906193   (645053) от 08.06.2015
+
+Вольфганг Амадей Моцарт - Музыка Моцарта для расслабления (2000) [MP3|320 кб/с]<Класика>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Произведения настолько благотворно влияют на умственное, физическое и психическое состояние, что даже выделяют особый «эффект Моцарта». Он заключается в том, что прослушивание музыки композитора улучшает умственную деятельность человека.
+Кроме этого, используется музыка Моцарта для расслабления. Ее рекомендуют слушать как взрослым, так и детям. Первые с ее помощью (   Читать дальше...   )1. Voi Che Sapete from the Marriage of Figaromovement, Andantino
+2. Andante, Cassation, K. 63
+3. Andante, Symphony No. 6, K. 43
+4. Andantino Grazioso, Symphony No. 18, K. 130(   Читать дальше...   )Жанр: КласикаПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6550B427ADBD645025EFA2DCE46CFDEA47AD8367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292499   (644991) от 30.03.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 29.03.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ava Max - Sweet But Psycho
+02.  Lil Peep & XXXTentacion  -  Falling Down
+03.  Ellie Goulding feat. Diplo & Swae Lee - Close To Me
+04.  Zivert - Life(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161B06793B00FBD239E8D45CD46DE7A49B11A9A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541677   (644910) от 03.04.2022
+
+VA - Record Super Chart 02.04.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alis Shuka - Not About Us (2:09)
+02. Minelli - Nothing Hurts (Yves V Remix) (2:09)
+03. OWNBOSS, Sevek - Move Your Body (2:37)
+04. Shouse - Wont Forget You (Edit) (3:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8FD5300C9FC8B65323F8B2C57AA246B1A9C4E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541431   (644901) от 03.04.2022
+
+VA - Music News vol.177 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644901.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Глюкоза - Да-Ди-Дам (02:50)
+ 002. Aitana - En El Coche (02:05)
+ 003. ALE - Spune Tu (Festum Music Remix) (03:55)
+ 004. A Boogie Wit Da Hoodie feat. Ella Bands - Playa (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85F6903053AA7481C12AA5577433D70BC41D7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517962   (644820) от 02.07.2012
+
+VA - MAXI. Лучшие медленные хиты 3CD (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Rea - As Long As I Have Your Love
+02. Avril Lavigne - I'm With You
+03. Whitney Houston - I Will Always Love You
+04. The Style Council - You're The Best Thing
+05. Sandra - Loreen
+06. Modern Talking - Cinderella Girl
+07. Metisse - Boom Boom Ba
+08. Jason Donovan - Sealed With A Kiss
+09. Falco - Out Of The Dark
+10. Cranberies - ZombieЖанр: PopПродолжительность: 05:01:28
+
+01. HIM - In Joy And Sorrow
+02. Groove Coverage - God Is A Girl
+03. Another Level - From The Heart
+04. All-4-One - I Swear
+05. The Eagles - Love Will Keep Us Alive
+06. Scorpions - Daddy's Girl
+07. Ronan Keating - Brighter Days
+08. Pink - Family Portrait(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4753ECCEB95CE2A0924CDE9034BEAFC3F4A1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142191   (644604) от 13.06.2017
 
 VA - Танцевальный рай 38 (2017) [MP3|320 Kbps] <Pop, House, Dance>
@@ -607,182 +798,6 @@ VA - Шансон на лето (2015) [MP3|256 кб/с]<Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:658EBC471C4FA201CB65F991694B104BC676CAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906591   (643423) от 09.06.2015
-
-Tiesto - Burn (2015) [MP3|192 кб/с]<House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chapter 1 of 9
-02. Chapter 2 of 9
-03. Chapter 3 of 9
-04. Chapter 4 of 9(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533158DAE25A70A5B3AED9DCB9CE4CCBDC3A195B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906452   (643418) от 09.06.2015
-
-Вольфганг Амадей Моцарт - Музыка Моцарта для игр (1997) [MP3|320 кб/с]<Класика>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643418.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник музыки Моцарта для игр вошли самые разнообразные произведения. Благодаря этому можно подобрать мелодию, которая лучше всего подходит для той или иной игры. Например, для занятий, требующих сосредоточенности и внимания, лучше всего использовать спокойные мелодичные произведения. Тогда как для подвижных забав подойдет что-то более активное и быстрое.
-
-Специально (   Читать дальше...   )01. Champagne Aria from Don Giovanni
-02. Rondo Alla Turca
-03. Die Leyerer, K. 611
-04. 'La Bataille', K. 535(   Читать дальше...   )Жанр: КласикаПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71651DF38FB975D00A13078B04B6CBBEFD3132B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906514   (643406) от 09.06.2015
-
-Kylie Minogue - Super Hits Collection (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cant Get You Out Of My Head
-02. Spinning Around
-03. I Should Be So Lucky
-04. Love At First Sight(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA4CD021E43388FF5C95B838720929059F763F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906449   (643323) от 09.06.2015
-
-VA - Клубные хиты в тачку на прокачку (2015) [MP3|256 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Base Elements - Trust Me (H@ppy Tunez Project Remix)
-02. Bsharry - I Like It (Original Mix)
-03. Alexx Slam - Take Me Away (Original Mix)
-04. Above & Beyond feat. Zoe Johnston - Alchemy (Above & Beyond Club Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320A2F0A6BBE4A6E0354F7AEA3920F0992125A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292767   (643309) от 31.03.2019
-
-VA - Roly-Poly: Bass Line Music (2019) [MP3|320 Kbps] <Drum & Bass,  Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643309.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A Sides - Encounter
-002. Kryzys - Connections
-003. Noisia - Shibuya Pet Store
-004. Orenwaves - Waiting For Autumn (Original Mix)(   Читать дальше...   )Жанр: Drum & Bass,  DubstepПродолжительность: 08:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81C1C9700B2D35844D398918CFB7DC6B088ACEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292766   (643308) от 31.03.2019
-
-VA - Urban Life: Progressive Trance Project (2019) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643308.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Makj X Linka - Fire
-002. Introtrance - Blizzard (Radio Edit)
-003. Rexuss - Chase In The Forest
-004. Leonid Gnip - Says Moscow(   Читать дальше...   )Жанр: TranceПродолжительность: 10:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C90D259C3978FDD39FB461534BF89FAA9D9A0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

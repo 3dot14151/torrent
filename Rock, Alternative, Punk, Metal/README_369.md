@@ -1,32 +1,3 @@
-###  Публикация: 1532491   (713105) от 20.02.2022
-
-Enuff Z'Nuff - Hardrock Nite (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кавер-версии "Битлз"01. Magical Mystery Tour (5:07)
-02. Cold Turkey (4:07)
-03. Eleanor Rigby (4:19)
-04. Live and Let Die (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C53FA047B3736C0E1891FA8FF9E671834867F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532404   (713034) от 20.02.2022
 
 Vega - Anarchy And Unity (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -745,6 +716,35 @@ Garbage - Strange Little Birds (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D077AF60498CA60B63F69CCF56CDA9AEDDC301EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025042   (712058) от 11.06.2016
+
+VA - The Best Air Guitar Album in the World... II (2002) 2CD [MP3|320 кб/с] <Funk Metal, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Who - Pinball Wizard [03:02]
+02. Cream - Sunshine of Your Love [04:11]
+03. Deep Purple - Black Night [03:26]
+04. Steppenwolf - Born to Be Wild [03:25](   Читать дальше...   )Жанр: Funk Metal, Hard Rock, Classic RockПродолжительность: 02:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A7DE23068EBE0D217A98D285B3427B8F8E546F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1487613   (1003319) от 06.08.2021
+
+KORG - Prophecy 1.0.1 STANDALONE, VSTi, AAX (x64) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возрождение звука физического моделирования 90-х годов. Воспроизведение Prophecy в программном обеспечении
+В 1990-х синтезаторы PCM были на пике популярности, но артисты клубной сцены уже искали более гибкий аналоговый звук, намекая на грядущее аналоговое возрождение 2000-х.
+Именно в этом контексте в 1995 году было объявлено о Prophecy, предлагающем большую гибкость (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E535D07A982A5FFAF0D09EFB1050356EAA4717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487668   (1003312) от 06.08.2021
 
 4K YouTube to MP3 4.2.1.4460 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -658,35 +686,6 @@ SPINNIN' - Best Of 2019 House Mix (2019-12-27) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E76BA83EB5E12FB64C57C340EFEB3A46C5ED406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350875   (1003003) от 07.01.2020
-
-SPINNIN' - 2020 Future Hits (2019-12-30) [MP3|320 Kbps] <Progressive House, Electro House, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. SLVR - ID
-03. Vintage Culture & Adam K Feat. MKIA-Deep Inside Of Me
-04. Choomba - La Luh(   Читать дальше...   )Жанр: Progressive House, Electro House, HouseПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8D46A78D5C3398F9E6735443E9E3A7D16D9EA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

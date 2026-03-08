@@ -1,3 +1,32 @@
+###  Публикация: 962822   (290747) от 06.12.2015
+
+Celtic Woman (2004) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290747.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	–Chloу Agnew "Last Rose Of Summer" (Intro)/"Walking In The Air"	4:22
+2	–Meav Ni Mhaolchatha  "Danny Boy" (A Cappella)  3:26
+(Choir – Aontas Choral Group)
+3	–Mairead Nesbitt	"The Butterfly" 3:02(   Читать дальше...   )Жанр: Celtic, Folk, New Age, CrossoverПеревод: ОтсутствуетЯзык субтитров: English, Francais, Deutsch, Espanol, Italiano, Portugues, NederlandsПродолжительность: 01:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6EE0BF0D80F73EE7256CD7924053C11EF40704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962865   (290605) от 06.12.2015
 
 Большой праздничный концерт в Кремле: "Триколор ТВ" — 10 лет (05.12.2015) HDTVRip [720p-LQ]
@@ -690,35 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00234ECEC8FEA7D6B049DDAA38927871CB6A0E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186589   (284045) от 26.11.2017
-
-Joe Cocker - Cry Me A River (2008) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джо Кокер — английский певец, работающий в жанрах блюз и рок. Его визитной карточкой является низкий хриплый баритон. Жемчужины его репертуара — блюзовые баллады «My Father’s Son», «Unchain My Heart», «You Can Leave Your Hat On», «Now That The Magic Has Gone», «N`oubliez jamais». Кавалер Ордена Британской Империи. На диске концерт в Metropol, Берлин, 31 октября 1980 (   Читать дальше...   )01. Cry Me A River
-02. Can't Say No
-03. Feelin' Alright
-04. Look What You’ve Done(   Читать дальше...   )Производство: США, Eagle VisionЖанр: Блюз-рокСубтитры: отсутствуютПродолжительность: 01:34:02+00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82969D0CD5DCCA75FD490543BE69AD4C2E5E62E
 ```
 
 https://mybot314.ru/tekegram_catalog/

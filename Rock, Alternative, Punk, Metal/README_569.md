@@ -1,31 +1,3 @@
-###  Публикация: 541601   (500902) от 31.08.2012
-
-VA - The Many Faces Of AC/DC (The Ultimate Tribute to AC/DC) (2012) [WavPack|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500902.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1: AC/CD´s Music Celebrations
-CD 2: Brian Johnson & Geordie - The Singles Sides A & B
-CD 3: Bon Scott - The Early Years & RootsЖанр: Hard RockПродолжительность: 02:14:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 380130   (500876) от 26.08.2011
 
 Альфа (Сергей Сарычев) - Гуляка (1983) [APE|Lossless]<Rock>
@@ -755,6 +727,35 @@ Dire Straits - Sultans Of Swing the Very Best Of Dire Straits (1998) (2012, SHM-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D8AF32E0CA8D5E25D83CE40CF68B81B4F5E8AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138874   (499762) от 03.09.2009
+
+Бахыт Компот - Самые лучшие телки (2009) [MP3|320 kbps] <Рок, Панк, Поп>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Самые лучшие телки (Папа) (5:20)
+02. Мне ничего не снится (4:03)
+03. Маленький мой котёнок (3:50)
+04. Полупустая дискотека (4:46)(   Читать дальше...   )Жанр: Рок, Панк, ПопПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

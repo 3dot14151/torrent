@@ -1,32 +1,3 @@
-###  Публикация: 1028224   (692498) от 21.06.2016
-
-Смысловые Галлюцинации и DJ Nejtrino - Волна 1 / Волна 2 (2015-2016) 2EP [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Зачем топтать мою любовь
-2. Мысленный волк
-3. Звёзды
-4. Волна(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F28DC832319822DDC3D2A92C75CAC25984558E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534689   (692469) от 03.03.2022
 
 Nalien - Твоей маме понравится (2022) [MP3|320 Kbps] <Punk Rock>
@@ -745,6 +716,35 @@ Godsmack - When Legends Rise (2018) [MP3|320 Kbps] <Alternative Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7819D42E56E86603062B29F239E3178D91F3208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768379   (690898) от 14.05.2017
+
+Warrant - 9 Studio Albums, 2 Live Albums, 1 CDS, 3 Compilations (1989-2017) [MP3|320 кб/с]<Glam Metal, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690898.jpg" />
+</div>
+
+
+###  Подробнее
+
+1989 - Dirty Rotten Filthy Stinking Rich (Remastered 2004)
+1990 - Cherry Pie (Remastered 2004)
+1992 - We Will Rock You (Japan, CDS)
+1992 - Dog Eat Dog(   Читать дальше...   )Жанр: Glam Metal, Hard Rock, Heavy MetalПродолжительность: 11:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BA305F6366E25B1A2A6EB2C1194F0C6BC1B959
 ```
 
 https://mybot314.ru/tekegram_catalog/

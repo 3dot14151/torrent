@@ -1,134 +1,18 @@
-###  Публикация: 1536714   (672893) от 13.03.2022
+###  Публикация: 1136010   (673001) от 23.05.2017
 
-VA - Il Caffe Italiano Trieste (Italian Lounge Espresso Music) (2016) [AAC|~336 Kbps] <Jazz, Nu Jazz, Lounge>
+Облачный сервис Google Cloud Compute пополнится тысячей тензорных процессоров, которые станут доступны разработчикам систем искусственного интеллекта
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672893.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_673001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cocktail Martino, Federico Straga' - E la Chiamano Estate (3:12)
-02. Tonisterical - Frogs (2:22)
-03. Montefiori Cocktail - Sunny (4:33)
-04. Orchestra Volare - Arriva la Bomba (2:34)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32822E4179D58A9F484D5AB7049AF3DB0FFD9F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536712   (672892) от 13.03.2022
-
-VA - Il Caffe Italiano Roma (Italian Lounge Espresso Music) (2016) [AAC|~335 Kbps] <Jazz, Nu Jazz, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orchestra Volare - Roma Nun Fa la Stupida Stasera (3:20)
-02. Italian Secret Service - Via Beato Angelico (7:46)
-03. Matteo Brancaleoni, Rosario Fiorello, Fabrizio Bosso - L'italiano (3:28)
-04. Cocktail Martino, Francesca Gramegna - Estate (3:56)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9728479AE295E52F87BA3AF7B70D87EB0CAFF068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536755   (672891) от 13.03.2022
-
-Obsidian Black - Judgement Day (2022) EP [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Life in a Beautiful Storm (04:23)
-02. Judgement Day (05:16)
-03. Lights in the Dusk (Re-Recorded) (03:59)
-04. Gates of Babylon (03:46)(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C55B1A8B216F6F013F0E985231A1DC9A5A1F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536716   (672890) от 13.03.2022
-
-VA - Il Caffe Italiano Bologna (Italian Lounge Espresso Music) (2017) [AAC|~325 Kbps] <Jazz, Nu Jazz, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Montefiori Cocktail - Riviera Beat (5:02)
-02. Matteo Brancaleoni - Cosa hai messo nel caffè (3:20)
-03. Massimo Guerra Xtet - Futura (6:33)
-04. Italian Secret Service - Italian melody (4:50)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C950F2B4E8EE9C0018BFDCDE96642C50E2CB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536842   (672889) от 13.03.2022
-
-EdgeView 3 v3.3.8 [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672889.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+Специалисты компании Google разработали специализированный тензорный процессор второго поколения, имеющий производительность в 45 терафлопс. Четыре таких процессора объединены в модуль, суммарной производительностью в 180 терафлопс, который может использоваться в качестве самостоятельной единицы, обеспечивающей работу алгоритмов глубинного машинного изучения и искусственного (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -140,28 +24,163 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536730   (672888) от 13.03.2022
+###  Публикация: 1136589   (673000) от 23.05.2017
 
-VA - Class of '87 (2022) [AAC|~339 Kbps] <Pop, Rock, Alternative>
+ReSample 1.1.5 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_673000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интуитивно понятный звуковой редактор с отображением формы волны и несколькими инструментами для изменения песни, с дополнительными возможностями записи и встроенным эквалайзером. Разработанная для предоставления всеобъемлющего инструмента для редактирования аудио, ReSample может анализировать и изменять различные типы аудиофайлов. Со стильным и очень хорошо организованным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.05.2017Разработчик: Beijing Second Sense Audio Technology Co., Ltd.Поддерживаемая ОС: Mac OS X 10.7 или более новаяЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26883627AD954DA28229055077DC6A782D508128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136686   (672999) от 23.05.2017
+
+Sidify Apple Music Converter 1.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sidify Apple Music Converter -  хорошо продуманный аудио конвертер для iTunes музыки для пользователей Mac.
+Sidify Apple Music Converter может удалить DRM от Apple Music и позволяет сохранить треки в формате AAC или MP3 на локальном компьютере или музыкальных плеерах. Кроме того, вы можете использовать Sidify Apple Music конвертер для преобразования аудиокниги и музыку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23  мая 2017Разработчик: Sidify Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429CC621A31F2871FD35EDCBA631094231152AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136548   (672997) от 23.05.2017
+
+VA - Грешная любовь. ХХХL от радио Шансон выпуск № 2 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672997.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сборная Союза - А Потому Что Любовь 3:32
+002. Александр Солодуха - Вечно Молодой 3:31
+003. Смирнов & Компания - Далеко Далеко 3:39
+004. Попутчик - Ша 3:16(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33598D7E102AA24B628AD9A11C40279EC43CE28C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136688   (672996) от 23.05.2017
+
+Camtasia 3.0.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia — скринкастинг в помощь.
+Camtasia for Mac - эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается, а само (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 мая 2017Разработчик: TechSmith CorporationПоддерживаемая ОС: Mac OS X 10.10 +Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3536B0084668E4CB1A83693442849D5F705F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536726   (672995) от 13.03.2022
+
+Multitouch 1.27 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко добавлять жесты в macOS с Multitouch. Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 12.03.2022Разработчик: © 2022 Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC862D4357127D1D80F1D65A5685DC6D1C577165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536734   (672994) от 13.03.2022
+
+VA - Futurephonic Lounge, Vol. 2 (Downtempo Chillout Electronica) (2022) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672888.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. R.E.M. - It's The End Of The World As We Know It (And I Feel Fine) (4:07)
-02. Sting - Englishman In New York (4:27)
-03. Public Image Limited - Seattle (2011 Remaster) (3:41)
-04. The Northern Pikes - Teenland (4:00)(   Читать дальше...   )Жанр: Pop, Rock, AlternativeПродолжительность: 01:49:58
+01. Silver Beat - Spend the Night (Melancholic Trip Mix) (4:40)
+02. Robert J. Wilson - Spring Will Come (Psychedelic Night Trip Mix) (4:23)
+03. Queer Theory - The Thin Air (Instrumental Mix) (5:19)
+04. Blue Fantasia - All The Things You Are (Dance Pop Mix) (4:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:46:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:165830AAC72E060BB2DE8910ECD4F32DBCB0042E
+magnet:?xt=urn:btih:EC6762C726566EA0795138C3496837CDE3055F3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +188,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536715   (672887) от 13.03.2022
+###  Публикация: 1536735   (672993) от 13.03.2022
 
-VA - Il Caffe Italiano Milano (Italian Lounge Espresso Music) (2017) [AAC|~325 Kbps] <Jazz, Nu Jazz, Lounge>
+VA - Futurephonic Lounge, Vol. 3 (Downtempo Chillout Electronica) (2022) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672887.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Papik, Alan Scaffardi - Prendila così (3:40)
-02. Matteo Brancaleoni - Una Carezza In Un Pugno (3:07)
-03. Zerosospiro - C'èun Tic (2:55)
-04. Parma Brass Quintet - Via con me (3:15)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:41:22
+01. Lindbergh - Nonstop (3:49)
+02. Lounge Flight - Red Signal (2:15)
+03. Hp3 - Red Mars (Trippy Mix) (2:05)
+04. Out Of Balance - Black Sky Falling (808 Lounge Mix) (4:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:37:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8D06AF6C583EAEA85B6073206E5D547066D7691
+magnet:?xt=urn:btih:A4588E20FD3041DD09CB01E6AA1FD027A7A56A0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,57 +217,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536732   (672886) от 13.03.2022
+###  Публикация: 1536736   (672992) от 13.03.2022
 
-De-Arrow - De-Arrow (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock 'N' Roll Nights (3:47)
-02. We've Got The Wings (4:27)
-03. First Break Of The Heart (4:30)
-04. Feelin' Fine (4:03)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E90F9ABE9C8DEA81CF89E0E564737893001A6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536724   (672885) от 13.03.2022
-
-VA - Electronica Royale, Vol. 1 (Organic Downtempo Vibes Deluxe) (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo, Ambient>
+VA - Futurephonic Lounge, Vol. 4 (Downtempo Chillout Electronica) (2022) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672885.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Romantic Warrior - Excalibur (Electronic Dub Mix) (4:45)
-02. Intergalactic Traveller - Ursa Major (Minimal Mix) (5:05)
-03. Once Upon A Time - Feel Alone (4:38)
-04. Electric Echoes - I Go Now (3:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, AmbientПродолжительность: 00:42:32
+01. Lindbergh - Nova Scotia (Instrumental Mix) (3:27)
+02. Homerus - Mentor (3:53)
+03. Matrix Spheres - On the Radio (Ambient Mix) (4:50)
+04. Old Love Never Dies - On the Edge of the Moon (The Getaway Mix) (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:42:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AB39FCA160F438ACF8F8AB1521AC1EF2F87EFB6
+magnet:?xt=urn:btih:2C813F6814E0D65B04CDE0A9CE0B0C4BB2CB5D8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,108 +246,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536719   (672884) от 13.03.2022
+###  Публикация: 1536738   (672991) от 13.03.2022
 
-VA - Il Caffe Italiano Torino (Italian Lounge Espresso Music) (2017) [AAC|~333 Kbps] <Jazz, Nu Jazz, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matteo Brancaleoni - Volare (Nel Blu Dipinto di Blu). (2:48)
-02. Papik, Alan Scaffardi - Che Sarà (4:05)
-03. Giuseppe Milici - Dimmi cos'è (3:45)
-04. Melania - Caruso (4:42)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D05E09A1A8F311F8911116414BBBC83FC63BFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536728   (672883) от 13.03.2022
-
-Edge Of Forever - Seminole (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up Your Feet Again (4:24)
-02. On The Other Side Of Pain (3:56)
-03. Made It Through (4:45)
-04. Shift The Paradigm (4:00)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC852109DEA1553427D2FB505EA1CFFBC42F20A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536721   (672882) от 13.03.2022
-
-Lana Lane - Neptune Blue (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, Prog Related>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember Me (5:16)
-02. Under The Big Sky (5:19)
-03. Really Actually (5:34)
-04. Come Lift Me Up (6:27)(   Читать дальше...   )Жанр: Melodic Rock, Prog RelatedПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05772E49DF1ABAF9AF1319EB2D91C0120F0ECB93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536679   (672881) от 13.03.2022
-
-Рекс Стаут | И быть подлецом (2010) [MP3, Владимир Дрыжак]
+VA - Futurephonic Lounge, Vol. 5 (Downtempo Chillout Electronica) (2022) [AAC|~338 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672881.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Во время радиопередачи прямо на студии отравлен гость программы, издатель скакового журнала Сирил Орчард. Ниро Вулфу предстоит установить, кому из присутствовавших на передаче понадобилось убрать Орчарда - или, возможно, он пострадал случайно, а яд предназначался вовсе не ему?Жанр: ДетективПродолжительность: 07:01:37
+01. Homerus - Menelaos (3:15)
+02. Titanic X - Jakobshavn Isbrae (2:57)
+03. Lindbergh - Spirit Of St. Louis (4:03)
+04. Radiola X - Aquaplanet (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:41:51
 
 ## Скачать торент
 ```bash
@@ -369,54 +275,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536870   (672880) от 13.03.2022
+###  Публикация: 1536739   (672990) от 13.03.2022
 
-Chaos Control Premium 1.14 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хаос-контроль: органайзер целей и задач на базе GTD.
-Хаос-контроль - это мощный органайзер, позволяющий фиксировать долгосрочные и среднесрочные цели, а также составлять списки дел на день.
-Ещё ни в одной биографии выдающегося бизнесмена, политика или артиста не было написано, что он достиг успеха благодаря использованию ежедневника, календаря, методик тайм-менеджмента (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2022Разработчик: © Chaos ControlПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3CFE8B807ECAE95C118AEA5558F8AC2C4BBF1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536754   (672879) от 13.03.2022
-
-SoundSource 5.3.11 [Multi]
+myTracks 4.0.12 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672879.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SounceSource позволяет настроить прямо из строки меню входные, выходные данные и звуковые эффекты устройства и настройки громкости в считанные минуты. С SoundSource, вы получаете быстрый доступ к наиболее важным настройкам звука вашего Mac.
-Мгновенное переключение аудио-устройств - c помощью всего двух щелчков мыши, вы можете переключить аудио устройство вашего Mac, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2022Разработчик: © 2022 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+myTracks — удобный геотаггинг фото.
+myTracks — замечательное приложение, которое будет полезно многим фотографам и путешественникам. С ее помощью можно легко загрузить ваши маршруты с большинства известных GPS-девайсов или просто из GPX-файла, и добавить геотаги к отснятым во время путешествия фотографиям.
+Кроме этого myTracks показывает проделанные маршруты на картах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: © 2021 Dirk StichlingПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A97146D2E0449BFB965D8BED51921F34E694AB5
+magnet:?xt=urn:btih:F0408B57694F8F918C15026E0C98D059312EFE8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,25 +303,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136345   (672878) от 23.05.2017
+###  Публикация: 1536727   (672989) от 13.03.2022
 
-Б.С. Гольдштейн | Системы коммутации (2003) [PDF]
+VA - Electronica Royale, Vol. 2 (Organic Downtempo Vibes Deluxe) (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo, Ambient>
 
->>Научная и техническая литература
->>Учебники
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672878.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник охватывает широкий спектр вопросов автоматической коммутации и предназначен для студентов телекоммуникационных университетов и других высших учебных заведений, обучающихся по специальности 200900 - «Сети связи и системы коммутации», а также по специальностям 201000 - «Многоканальные телекоммуникационные системы» и 550400 - «Телекоммуникации» и соответствует (   Читать дальше...   )Жанр: Связь, электроникаФормат: PDF
+01. Sytryus, Soleil Fisher - Trinity (Tropical Electronic Mix) (4:52)
+02. Chill Blu - Speak My Language (Instrumental) (3:06)
+03. Queer Theory - The Thin Air (Electronic Vocal Mix) (5:19)
+04. Hybrider - Camera Lights (Instrumental) (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, AmbientПродолжительность: 00:41:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E440364FDE749E04FCAA57BEA4C1F21FCC13775A
+magnet:?xt=urn:btih:9140972975AC4F174C17366E4D18EECFFB4FD670
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,28 +332,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136724   (672877) от 23.05.2017
+###  Публикация: 1536733   (672988) от 13.03.2022
 
-VA - Thai Massage Lounge: Asian Zen Spa Relaxation (2017) [MP3|320 Kbps] <New Age>
+VA - Futurephonic Lounge, Vol. 1 (Downtempo Chillout Electronica) (2022) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Other Styles
->>New Age/Meditative/Relax
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672877.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wellness Sounds Relaxation Paradise - Thai Massage Lounge 100
-02. Tranquility Spa Universe - Asian Zen Spa Relaxation 5
-03. Sauna & Massage Academy - Wellness Center 111
-04. Soul Therapy Group - Ayurveda Treatment 50(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:30
+01. Germon Jobost - Mataran (Electronica Chill Intro) (1:23)
+02. Simplify - Dream In Motion (2:54)
+03. Crimson Stone - What Is the Meaning (Electronip Space Night Mix) (5:00)
+04. Low Couture - More Than We Know (Deep Lounge Mix) (4:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:41:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20D6ADC03F8E0C6B1048629195DC09FD598ED09F
+magnet:?xt=urn:btih:ACAEC481F53113B60CF35AE89F0450C14ECDD745
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,133 +361,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136633   (672876) от 23.05.2017
+###  Публикация: 1536737   (672987) от 13.03.2022
 
-Премьер / De Premier (2016) HDRip [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в Бельгии, где неизвестная группа преступников успешно справляется с заданием по похищению премьер-министра. Главный герой картины - глава службы безопасности, занимающейся охраной второго лица государства. Бандиты быстро выходят на связь с властями и озвучивают им одно-единственное требование: убить американского президента. Теперь (   Читать дальше...   )Производство: БельгияЖанр: ТриллерРежиссер: Эрик Ван ЛойАктеры: Адам Годли, Саския Ривз, Коэн Де Боу, Труус де Бур, Шарлотта Вандермерс, Нэйтан Уайли, Джероен Ван дер Вен, Дирк РуфтхуфтПеревод: Профессиональный многоголосый (GreenРай Studio)Субтитры: ОтсутствуютПродолжительность: 01:55:28Реклама: Присутствуют вставки голосовой, видео и текстовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F021D37210F0F0AB7E6D5494D0A0CC686F8CCB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136543   (672875) от 23.05.2017
-
-VA - Русский шансон на любимой волне выпуск № 3 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672875.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Клушин - Время-Времечко 3:59
-002. Андрей Ростов - Копеечка 4:01
-003. Эдуард Шенфельд - Утро Вечера Мудренее 3:45
-004. Сергей Сорос - Женщина-Оружие 2:34(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC0D02E5F6791B7BCEF81051416754A2A420437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136544   (672874) от 23.05.2017
-
-Т.Н.  Васильева | Надежность электрооборудования и систем электроснабжения (2015) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены вопросы надежности электрооборудования и систем электроснабжения, основные термины и определения теории надежности, элементы математических методов планирования, обработки и анализа результатов эксперимента.
-Изложены методы расчета надежности систем электроснабжения, дано технико-экономическое обоснование ее повышения для электрооборудования и систем (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7C7E75A471F4E43E25582C33960EB852AC9765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136336   (672873) от 23.05.2017
-
-А.Н. Берлин | Коммутация в системах и сетях связи (2006) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены архитектура, принципы организации, функционирования и построения различных типов систем коммутации, включая коммутационные станции и их компоненты, сети сигнализации и системы синхронизации. Особое внимание уделено алгоритмам, выполняемым в станциях с программным управлением. Рассмотрены вопросы коммутации и маршрутизации информации в первичных, интеллектуальных, (   Читать дальше...   )Жанр: Связь, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA316213153CB00ED1DE9FD8B92256E61F7076BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136723   (672872) от 23.05.2017
-
-Лавинг / Loving (2016) BDRip
+Focus Professional 1.13.1 [En]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672872.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 1958 году в штате Вирджиния Ричард и Милдред Лавинг приговорены к тюремному заключению за вступление в межрасовый брак.Производство: Великобритания, СШАЖанр: Драма, Мелодрама, БиографияРежиссер: Джефф НиколсАктеры: Рут Негга, Джоэл Эдгертон, Уилл Далтон, Дин Мамфорд, Терри Эбни, Алано Миллер, Крис Дж., Бенжамин Букер, Кит Тайри, Шэрон БлэквудПеревод: Дублированный (iTunes)Субтитры: Русские форсированные (отдельно)Продолжительность: 02:03:01
+Полезная утилита специально разработана, чтобы помочь вам сосредоточиться на своей работе и избегать любых других отвлекающих факторов путем блокировки различных веб-страниц.
+Facebook, IM, Pinterest, Twitter, Instagram, Tumblr, Reddit и YouTube, Vimeo и другие подобные сайты и сервисы являются отличным дополнением к нашей общественной жизни, но они также могут отвлекать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.03.2022Разработчик: © 2022 Brad JasperПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7370B4D9B1157AA6BE494664F08432C3DE4D0051
+magnet:?xt=urn:btih:0FAF5DA8B2C8582F91934052AA818CC2FF25581C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,28 +388,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136553   (672871) от 23.05.2017
+###  Публикация: 1536743   (672986) от 13.03.2022
 
-VA - Best-of-ka Шансона. Версия № 6 (2017) [MP3|256 Kbps] <Шансон>
+VA - Electronic Empire (25 Masterpieces), Vol. 2 (2022) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672871.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Сборная Союза - Я Умираю 3:13
-002. Аслан Кятов - Отпусти 3:48
-003. Елена Ваенга - Невеста 3:46
-004. Александр Куданов - Знаю 3:48(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:48
+01. Steen Thottrup, Jenufa Gleich - Moonlight (Remastered) (5:22)
+02. Giulia and The Dizzyness - Bitter as Gall (Original Mix) (4:13)
+03. Marc Hartman - The Lost City (Original Mix) (5:14)
+04. Chillson, Marc Hartman - It's Alright (Original Mix) (4:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EEC7D9CD4EA678391FA6E0087A77A9A4FF417B0
+magnet:?xt=urn:btih:44ED1DA1272F83F440D9ABCA15F50BD52E8C55ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,28 +417,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136510   (672870) от 23.05.2017
+###  Публикация: 1536740   (672985) от 13.03.2022
 
-VA - Bаss Kіllеr (2017) [MP3|320 Kbps] <Trap , Dubstep , Bass>
+VA - Passionate Chillout Music (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672870.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dope D.O.D. & Onyx - XXX 3:18
-002. Wolfgang Gartner & Aero Chord - Borneo 3:55
-003. Suyano & Matt Watkins - Bomboclat (Extended Mix) 3:23
-004. Diskord & JVST SAY YES - Be Alone 3:30(   Читать дальше...   )Жанр: Trap , Dubstep , BassПродолжительность: 05:13:27
+01. Gries - On the Move (5:42)
+02. Random Classes - Playful Days (6:07)
+03. Blumenseele - Velvet Dreams (6:01)
+04. Lichterloh - Elytron (5:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31FAC22895FF48F5BC3FA662FC6C03122E1AFF41
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,25 +446,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136524   (672869) от 23.05.2017
+###  Публикация: 1536729   (672984) от 13.03.2022
 
-Журнал | Караван историй №6 (июнь 2017) [PDF]
+VA - Electronica Royale, Vol. 3 (Organic Downtempo Vibes Deluxe) (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo, Ambient>
 
->>Журналы
->>Женские журналы
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672869.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание стало настоящим хитом на издательском рынке и сегодня, несомненно, является лидером рейтинга женских журналов. Уникальность издания заключается в нестандартном содержании: материалы о ярких интересных личностях подаются в очень глубоком и объемном изложении и иллюстрируются эксклюзивными фотографиями, часто из личных архивов героев.Жанр: Женский журналФормат: PDF
+01. Romantic Warrior - Chillin' Merlin (Ambient Intro) (2:20)
+02. Soleil Fisher - Tonight Tonight Tonight (Instrumental Mix) (2:55)
+03. Creamy Dip, Oleta Joyce - Heart To Heart (Sentimental Chill Mix) (4:00)
+04. Dark Decks - How Much I Need You (Darkness Downbeat Mix) (4:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, AmbientПродолжительность: 00:40:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28FEBCFF336674CC661F884352E5E039903A8E27
+magnet:?xt=urn:btih:53F6D509FC1BA2F284A40E426B69CAB36752AA1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,25 +475,236 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136528   (672868) от 23.05.2017
+###  Публикация: 797919   (672982) от 20.06.2014
 
-Журнал | Шитье и крой (ШиК) №6 [+выкройки] (июнь 2017) [PDF, JPG]
+Карл Саган | Мир, полный демонов. Наука — как свеча во тьме (2014) [PDF, DOCX]
 
->>Журналы
->>Хобби (журналы)
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672868.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «ШиК: Шитье и Крой» адресован тем, кто следит за модой и создает гардероб своими руками. Любительницы шитья найдут здесь интересные модели от европейских и итальянских дизайнеров плюс удобные выкройки с подробным описанием работы. В журнале использованы материалы итальянского журнала La mia BOUTIQUE, испанского журнала PATRONES и голландского журнала KNIPPIE.Жанр: шитье и кройФормат: PDF, JPG
+«Мир, полный демонов» — последняя книга Карла Сагана, астронома, астрофизика и выдающегося популяризатора науки, вышедшая уже после его смерти. Эта книга, посвященная одной из его любимых тем — человеческому разуму и борьбе с псевдонаучной глупостью, — своего рода итог всей его работы. Мифы об Атлантиде и Лемурии, лица на Марсе и встречи с инопланетянами, магия и реинкарнация, ясновидение и снежный человек, креационизм и астрология — Саган последовательно и беспощадно разоблачает мифы, созданные невежеством, страхом и корыстью. Эта книга — манифест скептика, учебник здравого смысла и научного метода. Яркий, глубоко личный текст — не только битва с псевдонаукой, но и удивительная картина становления научного мировоззрения, величайших открытий и подвижников.Формат: PDF, DOCX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38D16FA32D38DE7CC61E271669534C507DB776FF
+magnet:?xt=urn:btih:478473E1717108003B88247BCF2AEE2ACB328067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797906   (672979) от 20.06.2014
+
+Videohive - Moments Of Life Slideshow - 7751687 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просто слайдшоу. Проект лёгкий и не сложный в монтаже.
+ Вам нужно только поместить свои фото и видео
+ и зритель будет впечатлён вашим роликом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D580CF6D667B105100D9CD640006ABCA92BF050A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 225557   (672977) от 20.06.2014
+
+История Футбола / History Of Football (2002) DVDRip (13 серий из 13)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл из 13 фильмов "История футбола" познакомит вас с этой прекрасной игрой, любимой миллионами людей во всем мире. Вы узнаете все о крупных турнирах прошлого и настоящего, о звездах мирового футбола и о становлении игры в том виде, в котором мы видим ее по сей день. Вы сможете увидеть документальные кадры разных лет и насладиться наиболее захватывающими (   Читать дальше...   )Производство: Великобритания, FremantleMediaЖанр: Документальный, спорт, футболПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 13 х ~ 00:52:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797897   (672968) от 20.06.2014
+
+300 спартанцев: Расцвет империи / 300: Rise of an Empire (2014) DVD5 [BD -> DVD]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672968.jpg" />
+</div>
+
+
+###  Подробнее
+
+После победы над царем Леонидом персидская армия во главе с Ксерксом движется на юг. На её пути оказывается флот Афин под руководством адмирала Фемистокла. Силы противников не равны, и Фемистокл вынужден вступить в союз с заклятым врагом афинского государства Спартой. Только объединившись у враждующих полисов-государств есть шанс что-то противопоставить могущественному (   Читать дальше...   )Производство: СШАЖанр: фэнтези, боевик, драма, военныйРежиссер: Ноам МурроАктеры: Салливан Степлтон, Ева Грин, Джек О’Коннелл, Каллэн Мулвей, Ганс Мэтисон, Родриго Санторо, Лина Хиди, Дэвид Уэнэм, Эндрю Тирнан, Эндрю ПлевинПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F76FF42CE9EC6C6CEDD93E8C96E000A27F3F4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798064   (672967) от 20.06.2014
+
+Федор Достоевский | Братья Карамазовы (2004) [MP3, Юрий Заборовский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья Карамазовы - последний и самый сложный роман Достоевского. Это наиболее яркая попытка Достоевского создать литературное произведение, выражающее как надежды и противоречия своего времени, так и вечные непреходящие ценности, заключенные в христианской традиции.
+Повествование ведётся от лица очевидца, рассказывающего историю семейства Карамазовых. Фёдор Павлович (   Читать дальше...   )Жанр: Классика, роман
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0087ABC6FA3384555F678CE0BBFD9063F572CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798020   (672965) от 20.06.2014
+
+Жестокий ринг / Victor Young Perez (2013) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историческая драма, основанная на реальной истории Виктора Переса, который стал чемпионом мира по боксу в 1930-е годы в Париже и был женат на знаменитой французской актрисе. Из-за его еврейского происхождения он был депортирован в Освенцим…Производство: Болгария, Франция, Израиль, Centre National de la Cinématographie (CNC), France 3 Cinéma, France TélévisionsЖанр: ДрамаРежиссер: Жак УанишАктеры: Брахим Аслум, Стив Суисса, Изабелла Орсини, Патрик Бушите, Дави Сарду, Брюс Пэйн, Pierre-Henri Toubas, Ромен Канонн, Алаа Омузун, РомаПеревод: Дублированный ( iTunes)Субтитры: ОтсутствуютПродолжительность: 01:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6992CACFE7D6FE47AE074CFFFB626BF1E7AF7AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223507   (672963) от 05.05.2018
+
+Боги речного мира / Riverworld (2003) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джефф Хэйл — американский астронавт, был на высокой орбите Земли, когда его настигла смерть… очнулся он под водой, в неком подобии воздушного пузыря, из которого ему помог выбраться призрачного вида незнакомец, с закрывающим лицо капюшоном.Производство: Канада, Новая Зеландия, Великобритания, США / Alliance Atlantis Communications, Box TV, Canadian Film or Video Production Tax Credit (CPTC), Sci Fi Pictures, Tasman FilmsЖанр: Фантастика, ФэнтезиРежиссер: Кари СкогландАктеры: Брэд Джонсон, Карен Холнесс, Эмили Ллойд, Джереми Бирчал, Кевин Смит, Никита Кирсли, Брайан Мур, Кемерон Дейдду, Джонатан Кэйк, Паоло РотондоПеревод: Многоголосый закадровый, авторскийСубтитры: АнглийскиеПродолжительность: 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF14E4313F6613B548B27689FACF1B04FA4E954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223470   (672962) от 05.05.2018
+
+Настоящая игра престолов / The Real War of Thrones (2017) HDTVRip [H.264/720p-LQ] (4 серии из 4)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672962.jpg" />
+</div>
+
+
+###  Подробнее
+
+В бурном Средневековье, когда мир еще продолжал формироваться, сильнейшие династии Европы боролись за господство на континенте. Кровь и железо, ярость и смерть царили на полях сражений, но за ними скрывались еще более страшные интриги и борьба за власть. За каменными стенами замков люди предавали, плели заговоры, влюблялись и убивали.Телекомпания: Производство: Франция, France 5 TelevisionЖанр: Документальный, познавательный, историяРежиссер: Ванесса ПонтэПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 4 x ~ 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F27BF79DBCC92AE26CD7B410ACD58B35AFCE012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223438   (672961) от 05.05.2018
+
+Проекты - Motion Array - Torn Paper Slideshow - 78485 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Torn Paper Slideshow - это оригинальный шаблон AE, который позволяет создавать риппинг-видео с набором специальных эффектов. Этот шаблон содержит 10 редактируемых текстовых слоев и 22 медиазаполнителя. Подходит для создания, рекламных роликов, фильмов, тизеров, рекламных акций и других событий.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EA0DC93287B308E73BDB44EC225C3CD8CF9ACA
 ```
 
 https://mybot314.ru/tekegram_catalog/

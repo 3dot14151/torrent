@@ -1,3 +1,177 @@
+###  Публикация: 1274677   (792272) от 08.01.2019
+
+VA - Shine Of Space (2019) [MP3|320 Kbps] <Synth, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792272.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ah Cama - Lords Of Evil
+002. Alex Kennon - No Plastic (Original Mix)
+003. Anti Lunatic Squad - Dex Feat. Analogue Bipolar Boy
+004. Astropilot - Cloud Castle(   Читать дальше...   )Жанр: Synth, ElectronicПродолжительность: 09:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB7B38DE8EA52869A3A7F73DAB5258A0689B453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274638   (792266) от 08.01.2019
+
+VA - Ice Cream Dance Disco (2019) [MP3|320 Kbps] <Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792266.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Boogymann - Boogydown
+002. Get To Know - The Big Throwdown
+003. James Rod - Joe Joe
+004. Motte - Darkroom Boogie(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 09:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF7011BC8EAA273D79CA9AFAC0F506BF6951FBAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201569   (792263) от 25.01.2018
+
+VA - Trance In Life 01 (2018) [MP3|320 Kbps] <Uplifting,Melodic,Vocal,Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucien & A.R.D.I -Salvation (Extended Mix)
+02. Zahir -Storm (Original Mix)
+03. Steve Allen & Patrick Dreama -Samurai (Extended Mix)
+04. UDM -Aura (Original Mix)(   Читать дальше...   )Жанр: Uplifting,Melodic,Vocal,TranceПродолжительность: 02:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6AC2193B1C1D27075485C6FCCF146E5A0F2A25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274711   (792245) от 08.01.2019
+
+VA - Great Weekend House Party (2019) [MP3|192-320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792245.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blaze Sulinski - Long Time (Extended Mix)
+002. Andrey Slam - In My Head
+003. Oziriz & Dura - Dj You Are Piano
+004. Anton Borin - We Are The Future(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673575836C342BD2E7B7DB1D5F3B41CC701227F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274729   (792244) от 08.01.2019
+
+VA - Trance Collection Vol.74 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792244.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. GeorD - Life Force (Original Mix) 8:57
+002. TUN3BOOK - Melody Tales (Extended Mix) 9:20
+003. Lost In Space vs. Copy & Paste - Lose My Mind (Original Mix) 7:17
+004. Solarstone feat. Clare Stagg - Jewel (Craig Connelly Extended Remix) 7:57(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 10:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BC2E542D7DC58A43C290FF099B030CC20E2404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201613   (792232) от 25.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0008 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Blanche - Sign Of Love ( 7'' Version 1985 )
+02. Call It Heaven - Boys Boys Boys ( 1987 )
+03. The Crosslines - Angel Eyes ( Maxi Version 2013 )
+04. Tapps - Crazy For You ( 1995 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:025133CAAA747B5AEB4A6BD96BEB11E640F776D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201602   (792228) от 25.01.2018
 
 VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0006 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
@@ -568,180 +742,6 @@ VA - Radio DFM Top D-Chart Май 2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D028F2AA50AEB5656937D8AB1FCC08EF3BDB65B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274945   (791699) от 09.01.2019
-
-VA - Overload: Pop Rock Music (2019) [MP3|320 Kbps] <Indi, Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791699.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avantgardet - Walk Of Shame
-002. Hazey Eyes - Scars (Ukiyo Remix)
-003. Horses Without Makeup - Forget About Chlorine
-004. Vasas Flora Och Fauna - Leevi & The Leavings(   Читать дальше...   )Жанр: Indi, Pop, RockПродолжительность: 09:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2013A3998D6A30D313D2757F623A4D8D9BB2735B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274895   (791696) от 09.01.2019
-
-VA - Soul Connection: True Love (2019) [MP3|320 Kbps] <DnB, Dubstep>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791696.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Highpro - Conflict (Original Mix)
-002. Vital - Clarted
-003. Brookes Brothers - Every Minute
-004. Bakground - Clubjammerz(   Читать дальше...   )Жанр: DnB, DubstepПродолжительность: 08:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E2EA826115FC4093822893F3098DF839A73943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274897   (791690) от 09.01.2019
-
-VA - Epic Future House (2019) [MP3|320 Kbps] <Electro House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791690.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cache - Commander (Phoenix)
-002. Data Punk - Hellsclub (Original Mix)
-003. Kacper Kirtz - Chrome
-004. Ant. Shumak - For a Long Time There Is No Snow(   Читать дальше...   )Жанр: Electro House, EDMПродолжительность: 14:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A2B37C106E037C5A85B151092932DAACE84717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274898   (791688) от 09.01.2019
-
-VA - Jazz Christmas (2019) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthony Shadduck - Law Years
-02. Bobby Broom - Come Together
-03. Cotonete - Layla
-04. Pier-O - Love Jazz (For The Weekend)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F3A05278F4E62893D145F39DA5E60A3E736F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274944   (791668) от 09.01.2019
-
-VA - Moon River Instrumental Piano (2019) [MP3|320 Kbps] <Instrumental, Piano>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791668.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 7 Years - Music Lab Collective (Lukas Graham)
-002. Akira Kosemura - Kosemura: Grow Apart
-003. Shida Shahabi - Chloris
-004. Sophie Hutchings - Hutchings: Candela(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 07 :50 :16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240DE251658CDD630067B6BB57A184AE82D6E619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201618   (791635) от 26.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0009 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lee Young - Napoleon ( Extended Version 1987 )
-02. Valentino - Tonight ( 12'' Vocal Version 1988 )
-03. Alexander Pierce - Fantasy ( 2017 )
-04. A.A. Fortune - Woman To Man ( 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCF3E5D29C208219467D8C96762E6B44748D602
 ```
 
 https://mybot314.ru/tekegram_catalog/

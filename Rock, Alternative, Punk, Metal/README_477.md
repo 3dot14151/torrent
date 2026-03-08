@@ -1,38 +1,3 @@
-###  Публикация: 526418   (597074) от 24.07.2012
-
-Heart - Greatest Hits (1985-1995) (2000) [MP3|320 кб/с]<Hard Rock / Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What About Love
- 02. If Looks Could Kill
- 03. Never
- 04. These Dreams
- 05. Nothin' At All
- 06. Alone
- 07. Who Will You Run To
- 08. There's The Girl
- 09. Surrender To Me (Ann Wilson & Robin Zander)
- 10. All I Wanna Do Is Make Love To You(   Читать дальше...   )Жанр: Hard Rock / RockПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30DB858FB646CB06086FB66AADB5BB4E1E91FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150005   (596615) от 13.07.2017
 
 Decapitated - Anticult (2017) [MP3|320 Kbps] <Death Metal>
@@ -772,6 +737,35 @@ Aranda - Not the Same (2015) [OGG|474-530 кб/с]<Alternative, Modern Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6A4C507E9C78BAF57AEE8B226DB0138B16ADDC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549001   (595106) от 05.05.2022
+
+American Jetset - Cat's Got Your Tongue (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 3AM Charm City (00:00:35)
+02 - Bombs Away (00:03:13)
+03 - Cat's Got Your Tongue (00:04:06)
+04 - Tokyo Radio (00:04:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A6800A4F0A2DF06835BD68DDCDD42781D7509D
 ```
 
 https://mybot314.ru/tekegram_catalog/

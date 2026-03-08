@@ -1,3 +1,32 @@
+###  Публикация: 1704623   (114109) от 05.03.2024
+
+Cedar Walton Trio - Plays Billy Strayhorn (1974, 1988) 2009, Jazz Ball Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upper Manhattan Medical Group [7:19]
+02. Chelsea Bridge [5:56]
+03. Take the 'A' Train [7:55]
+04. Lush Life [4:41](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4075AF5DEF93CC4E0A5D7F0C50D580D55EA0FB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704649   (114106) от 05.03.2024
 
 Dave Brubeck - Trio Brubeck (1993) MusicMasters Jazz [FLAC|Lossless|tracks + .cue] <Cool>
@@ -716,35 +745,6 @@ Lionel Hampton - Hot Mallets, Vol. 1 (1937 - 1939) 1987, BMG [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A216CE99AAA552E0CC0E2E19F0430BBAAA05A93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705306   (113837) от 08.03.2024
-
-Cedar Walton - Naima (1973) 2003, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Land [6:44]
-02. This Guy's in Love with You [8:11]
-03. Cheryl [8:49]
-04. Down in Brazil [6:08](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478C0BE3EB9CE4E78F9494D419D9E1E1ECD4DBE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

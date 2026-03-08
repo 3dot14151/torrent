@@ -1,32 +1,3 @@
-###  Публикация: 915746   (591810) от 06.07.2015
-
-Tame Impala - Currents (2015) [MP3|320 кб/с]<Psychedelic Rock, Psychedelic Pop, Neo Psychedelia, Indie, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Happen
-02. Nangs
-03. The Moment
-04. Yes I'm Changing(   Читать дальше...   )Жанр: Psychedelic Rock, Psychedelic Pop, Neo Psychedelia, Indie, ElectronicПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9939D4B19EBDEC29F87898BEE61295255FB58FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550483   (591672) от 12.05.2022
 
 Ufomammut - Fenice (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Sludge, Stoner, Doom Metal>
@@ -742,6 +713,35 @@ Raccoonies - Raccoonies (2015) [MP3|320 кб/с]<Folk Rock, Blues, Country, Fema
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:446006430054A7B4C0493EEA954EE1EDFF2FC796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915962   (590896) от 08.07.2015
+
+Unleash The Archers - Time Stands Still (2015) [MP3|320 кб/с]<Melodic Power/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590896.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Northern Passage
+2. Frozen Steel
+3. Hail of the Tide
+4. Tonight We Ride(   Читать дальше...   )Жанр: Melodic Power/Death Metal (Продолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12791B4799236DE9214AF037C69306172C658B5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

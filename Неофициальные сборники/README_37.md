@@ -1,3 +1,177 @@
+###  Публикация: 1478895   (1009933) от 21.06.2021
+
+VA - Summer Chill Pop (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009933.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. JP Saxe - More of You (2:34)
+002. BLU EYES - actually happy (2:40)
+003. Lorde - Solar Power (3:12)
+004. Surfaces - So Far Away (3:27)(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD62446EDD9A347E2760806CA9ED53E910570BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479354   (1009590) от 24.06.2021
+
+VA - Euphoric Progressive Trance (2021) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009590.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cole Twains - Beyond Time
+002. Nadi Sunrise - Between You And Me
+003. Jay Del Mar - Odyssey
+004. Veselin Tasev - Before Sunrise(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 10:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18BCDC41AD07D662D632B4A79570C660E04C3D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479345   (1009589) от 24.06.2021
+
+VA - Beatport Tech House: Sound Pack #302 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009589.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jon Snow - What Is House
+002. Deetron - Count On Me
+003. Ron Flatter - Jolie Culotte
+004. Franksen - Wait Now(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 12:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB124DACF113C562BD727FD2AABF4A7127D25D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479352   (1009588) от 24.06.2021
+
+VA - Beatport Disco House: Sound Pack #304 (2021) [MP3|320 Kbps] <Funky, Disco House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009588.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Probably Shouldnt - Canon
+002. Mirko Hirsch - You're Just
+003. Jerem A - Always Too Much
+004. DJ Skip - Fallin N Love(   Читать дальше...   )Жанр: Funky, Disco House, ElectroПродолжительность: 09:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369246D5C5F181AB50F7865E18AAB1281B242C10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479337   (1009583) от 24.06.2021
+
+VA - Bassline Massive Project (2021) [MP3|320 Kbps] <Bass, Drum And Bass, Bassline>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009583.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chisel - Boy
+002. DJ Vantigo - Looking For You
+003. Parallel - Communications
+004. Electronics - Retribution(   Читать дальше...   )Жанр: Bass, Drum And Bass, BasslineПродолжительность: 07:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9132BA6CE813F517F947519D03F98F66E870A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478730   (1009582) от 24.06.2021
+
+VA - Audiowarp, Best Of The Mix (2021) Mixed by aQuaLuna [MP3|320 Kbps] <Hard Trance, Hard Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiowarp - All Around Us (Original Mix) (FOOLS FOREST, 2009)
+02. Audiowarp - 31 Seconds (Original Mix) (MOON UP, 2009)
+03. Audiowarp - Summersonic (Original Mix) (Q-DANCE, 2010)
+04. Audiowarp - Power Of The Music (Original Mix) (BENEFACTOR, 2011)(   Читать дальше...   )Жанр: Hard Trance/TechnoПродолжительность: 02:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065F800B8B7C6F2325A3D1A6855EA2D7EF835CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479240   (1009578) от 24.06.2021
 
 VA - The Purgatory (2021) [MP3|320 Kbps] <Metal, Hard Rock, Core>
@@ -571,180 +745,6 @@ VA - The Space Mechanics (2021) [MP3|320 Kbps] <Future House, Electro, EDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7074BB52D6FB2F9FF4037BB044FE31528C95EC46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480933   (1008603) от 01.07.2021
-
-VA - Beach Vibe: Deep House Summertime Sessions (2021) [MP3|320 Kbps] <Deep House, Dance, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008603.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nae-tek, Deeperwalk - Back Home
-002. Beat Rivals feat. Lifford - Stay In The Groove
-003. Dse - Horisontti
-004. Thugfucker - Bodyshaker(   Читать дальше...   )Жанр: Deep House, Dance, EDMПродолжительность: 11:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B24AF1473B372DC847923AA50F3825A2E90BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481065   (1008559) от 01.07.2021
-
-VA - Music News vol.112 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008559.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chezara - Моя Жизнь Снова В Ноль (02:20)
- 002. 22 - Не Киса (02:38)
- 003. 369 - Жизнь Как Фильм (02:33)
- 004. Adam Lambert - These Are Your Rights (03:49)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887A9760F63858F68A15BF88FE68D812086A17A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481072   (1008543) от 01.07.2021
-
-VA - Shazam Хит-парад World Top 200 Июнь (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008543.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Måneskin - Beggin' (3:31)
-002. Justin Wellington, Small Jam - Iko Iko (My Bestie) (3:02)
-003. Lil Nas X - MONTERO (Call Me By Your Name) (2:17)
-004. Doja Cat, SZA - Kiss Me More (feat. SZA) (3:28)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5558B24D6C0EED395B721B13998DDB9DE219AE49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481078   (1008483) от 02.07.2021
-
-VA - Beatport Electro House: Sound Pack #309 (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008483.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Exon Bacon - Sunny Days
-002. The Golden Boys - Afrobeat
-003. Eins Tiefer - Photon
-004. Fred Everything - True(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1019DAE98BA3D43409E9D3B6DEEBE13B2D8BCB13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481083   (1008467) от 02.07.2021
-
-VA - Beatport Deep House: Sound Pack #310 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008467.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nopi - Coral Soul
-002. The Official Bug - Soul Food
-003. Phonika - Abandoned By Mercy
-004. Hernan Cerbello - Roasted(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4728FAB8C423B0D3440934049AD44C77CB81AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842104   (1008402) от 02.07.2021
-
-Чип и Дейл (DJ RaiSky) - Все песни (2021) [MP3|320 кб/с]<Юмор>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Анастасия Александровна, С днём рожденья (Cover Голубой вагон)
-02.В кафе сидел Кузнечик (Cover В траве сидел кузнечик)
-03.Всегда Мои Друзья Онлайн (Cover Когда Мои Друзья Со Мной)
-04.Детские Военные Новогодние Попурри(   Читать дальше...   )Жанр: ЮморПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3707DD2E1F44C0525D6F62020159E66D9A733302
 ```
 
 https://mybot314.ru/tekegram_catalog/

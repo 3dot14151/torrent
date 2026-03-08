@@ -1,32 +1,3 @@
-###  Публикация: 694667   (546681) от 29.08.2013
-
-Popa Chubby - Universal Breakdown Blues (2013) [FLAC|Lossless]<Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Want Nobody (4:20)
- 02. I Ain't Giving Up (4:37)
- 03. Universal Breakdown Blues (4:42)
- 04. The Peoples Blues (8:47)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0FB76D69BB253F21B2730C7877C62CBD45F487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048570   (546583) от 02.09.2016
 
 Unwritten Rulz - Filter Thru the Static (2012) [MP3|256 Kbps] <Alternative Rock, Hard Rock>
@@ -742,6 +713,32 @@ Eldritch - Cracksleep (2018) [FLAC|Lossless|image + .cue] <Progressive Power Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8A5022C0AF50261B3359724DE87EB719AC60755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048883   (545459) от 03.09.2016
+
+Joe Cocker - The Album Recordings 1984-2007 (2016) 14CD Box Set [FLAC|Lossless|image + .cue] <Rock, Blues, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545459.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данный бокс-сет вошли 14 дисков, включающие 12 студийных альбомов, один концертный альбом и бонусный диск с сингловыми композициями, песнями с американских вариантов альбомов, которые не вошли в европейские издания и пара -тройка саундтреков.Жанр: Rock, Blues, Pop RockПродолжительность: 12:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591EF87F71FE2BFB91F864FA62254493B6F464A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

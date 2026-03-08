@@ -1,3 +1,119 @@
+###  Публикация: 1119142   (809155) от 27.03.2017
+
+VA - Empire Records - Club Hit 12 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodybangers - Sunglasses At Night
+02. Jam Feat. Solamay - One Of Us
+03. GoldFish & Diamond Thug - Deep Of The Night (Original Mix)
+04. Kate Ryan - Wonderful Life (Dj Andy Light & Dj O'neill Sax Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3934B45699DD90CC909589E2D763F876941212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119062   (809129) от 27.03.2017
+
+VA - Hits Super - Hot Good Pop (2017) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ariana Grande feat Future - Everyday (PeteDown Transition) 90-66 (Clean) 3:47
+002. Sky James - Drop and Let Go (Instrumental) 4:18
+003. Ed Sheeran - Castle On The Hill (PeteDown Club Mix) Clean 5:38
+004. Maroon 5 - Cold (PeteDown Moomba Mix) Clean 3:03(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02278A915460109394E326DEE8F509BB8069D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119066   (809032) от 27.03.2017
+
+VA - Top 100 EDM Songs & DJ Tracks (2017) [MP3|320 Kbps] <Dance, Club, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809032.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Throttle - Hit The Road Jack (Extended Mix) 4:25
+002. Franky Rizardo - Same Man 6:29
+003. Joe Goddard - Music Is The Answer 4:59
+004. Max Chapman, George Smeddles - Zulu (Original Mix) 7:48(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 10:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A96802057655235743651C92D393B05EAFB0C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119057   (808909) от 27.03.2017
+
+VA - Need For Speed Vol.4 (2017) [MP3|320 Kbps] <Dance , Mash Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808909.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Madd Dave - Alpha (Original Mix) 3:38
+002. David Guetta, Cedric Gervais & Chris Willis - Would I Lie To You (Danev Bootleg) 5:30
+003. Rihanna - Diamonds 2017 (BunHeaD Dance Mix) 5:04
+004. Sweat Box - Million Reasons (Wings & Rider Remix) 5:45(   Читать дальше...   )Жанр: Dance , Mash UpПродолжительность: 07:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC20F550D132C4DC17702618D4CB4A00563FF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119000   (808545) от 27.03.2017
 
 VA - Дискотека  Dance Club Vol.162 (2017) [MP3|320 Kbps] <Dance, Club, Deep House>
@@ -635,122 +751,6 @@ VA - Зажигательный Eurodance Vol.3 (2017) [MP3|256-320 Kbps] <Eurod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B434AFA5C4E0B07188690FF6CD3FE37CDF452381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505465   (802739) от 28.10.2021
-
-VA - Music News vol.144 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Елена Бергер - Я Не Вернусь (03:51)
- 02. Alfons feat. B3nte & Jessica Chertock & B3va - Puppeteer (02:33)
- 03. A-Mase feat. Sharliz - I Never Felt So Right (03:31)
- 04. Besomage feat. Antomage & Bromage - Thank You (02:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48973F017C09C558A160953D8DE9872BD78515D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384419   (802655) от 20.05.2020
-
-VA - Hot New Rock (2020) [MP3|320 Kbps] <Dance, Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pretty Reckless - Death By Rock And Roll
-02. Grey Daze - Soul Song
-03. Biffy Clyro - Tiny Indoor Fireworks
-04. Frank Carter & The Rattlesnakes - Bleed(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 03:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4381524BB0A2BBA58B4975AF85315B11457C83C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384371   (802643) от 20.05.2020
-
-VA - Acoustic Covers (2020) [MP3|320 Kbps] <Pop, Rock, Acoustic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passenger - Dancing in the Dark (Recorded At Deezer, Sao Paulo)
-02. José González - Heartbeats
-03. Birdy - Skinny Love
-04. Isaac Gracie - you Only Live Once(   Читать дальше...   )Жанр: Pop, Rock, AcousticПродолжительность: 03:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF871A41C1A604D1B68CF4BC0B68052A77560CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199139   (802382) от 14.01.2018
-
-VA - Авторадио: Парад ретро-хитов (2018) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Silent Circle  -  Touch In The Night  5:32
-002.  Gloria Gaynor  -  I Will Survive  3:19
-003.  Dschinghis Khan  -  Moscau  5:03
-004.  Земляне  -  Трава у дома  4:24(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 14:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F552173FEF3A316DF9FCCE776BA4D7A39CAA78
 ```
 
 https://mybot314.ru/tekegram_catalog/

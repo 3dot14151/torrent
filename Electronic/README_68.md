@@ -1,3 +1,61 @@
+###  Публикация: 1092890   (937411) от 13.01.2017
+
+VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alkalino - Distant Future [6:42]
+02. Ritmo Du Vela - It's Good [6:00]
+03. Dany Cohiba - Just Be Real [6:24]
+04. Twism & B3rao - Don't Hold Back [6:46](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 03:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D51D6B0D2CF5D4DB3BFE0B11022352F767B0F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091039   (937332) от 13.01.2017
+
+VA - Colours II. Ice (selected by AstroPilot) (2016) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skytechnic - Immersion (7:40)
+02. Forgotten Future - Breakthrough (Chroma Mix) (6:49)
+03. Cabeiri - Plants Telling (7:53)
+04. Noya Project - Kaleidoscope (AstroPilot Edit) (7:21)(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 01:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB20D1DE05A229FE4900679357554F2B0E312ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093056   (937328) от 13.01.2017
 
 VA - Bodybuilding Girly Edition 2016 Top 50 (2016) [MP3|320 Kbps] <House>
@@ -679,64 +737,6 @@ Meemo Comma - Sleepmoss (2019) Planet Mu [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8E0792E2BB0756A44CFAC197A26DE9818D98605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093368   (933851) от 15.01.2017
-
-VA - Buddah's Chill  Vol.8 (Buddha Asian Bar Lounge) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Phoungh Ann - Rufiyaa  4:51
-02.  Yantra Mantra - Pink City (Ayurveda Mix)  3:56
-03.  Shadi Fares - Champagne Beach  5:29
-04.  Latif Rayhan - Aleppo  2:26(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79A029D0BBA85B277527272FA3850551036B6B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364890   (933816) от 05.03.2020
-
-Nathan Micay - Blue Spring (2019) LuckyMe [FLAC|Lossless|WEB-DL|tracks] <Experimental, Breaks, Techno, Ambient, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance Dawn For The Cyber World (05:00)
- 02. Join Me Or Die. Can You Do Any Less (05:09)
- 03. Ecstacy Is On Maple Mountain (05:39)
- 04. He Has The Key (05:15)(   Читать дальше...   )Жанр: Experimental, Breaks, Techno, Ambient, TranceПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30195178D218057310A7E316B213AA915468C0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

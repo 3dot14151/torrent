@@ -1,3 +1,61 @@
+###  Публикация: 942112   (455763) от 30.09.2015
+
+Jjos - Balearic Chill Оut Vibes Compilation (2015) [FLAC|tracks]<Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me the Way (with Manu Lopez) (Chill Mix) (05:04)
+02. All I Need (Sensual Chill Mix) (04:16)
+03. Dreamer 0.2 (Chill Mix) (04:57)
+04. Paradise (Tim Angrave Utopia Remix) (05:47)(   Читать дальше...   )Производство: Contrasena Records S.LЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D134CD972DBE3BDC3D82CA6E9C151C72FC9249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569160   (455695) от 11.08.2022
+
+Robert Miles - Dreamland (1996) [OGG|485 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children (Dream Version)	6:47
+02. Fable (Message Version)	6:29
+03. Fantasya	5:39
+04. Landscape	5:57(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C596EB242FDACCCC4E55AD0EEF5AFCB74F4CDF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408559   (455579) от 12.09.2020
 
 VA - Sexy Chillout (Selection Erotic Sensation Chillout Music) (2020) [MP3|320 Kbps] <Easy Listening, Chillout>
@@ -689,64 +747,6 @@ VA - Markus Schulz – Global DJ Broadcast Top 20 - August-September (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B96F98C8D34D5698324B8E8627541FAE2A4D2203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247437   (452874) от 15.09.2018
-
-VA - Lifted Audio 3 Years Together With You (Mixed by Azima) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fashion Police - Angel Touch (Kiyoi & Eky Remix)
-02. The Avains - Ghost (Extended Mix)
-03. Neorise - June (Original Mix)
-04. Tim Lighterz - Veyrona (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E59941DF178A8F83228E22F4373D281B681AF27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247496   (452871) от 15.09.2018
-
-VA - Trance In Tomorrow's Land: The Festival Edition (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Excess - Dreams (Clubmix)
-02. Tosch - Somewhere Over The Rainbow (feat Christina - TbO & Vega Trance Mix)
-03. Project Blue Sun - Fiesta (TbO&Vega Trance Mix)
-04. Frozen Skies & Frank Laverne - Celebrate The Love (feat Margo Lane - Infected X Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB70B27415450BED2874A99EC70F813C7272318
 ```
 
 https://mybot314.ru/tekegram_catalog/

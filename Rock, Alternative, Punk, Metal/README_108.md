@@ -1,34 +1,3 @@
-###  Публикация: 1472213   (1014468) от 24.05.2021
-
-Virgin Steele - Seven Devils Moonshine (2018) Box Set, 5xCD [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014468.jpg" />
-</div>
-
-
-###  Подробнее
-
-VIRGIN STEELE отпраздновали свое 35-летие выпуском пятидискового бокс-сета "Seven Devils Moonshine". Он увидел свет 23 ноября 2018 года и содержит, в общей сложности, 88 треков.
-
-Дэвид рассказывает: "Как некоторые из вас, возможно, знают, в последние несколько лет мы постепенно переиздавали бэк-каталог VIRGIN STEEL, добавляя к различным переизданием (   Читать дальше...   )CD - 1 - Ghost Harvest - Vintage 1 - Black Wine For Mourning:
-01. Seven Dead Within (8:00)
-02. Green Dusk Blues (7:42)
-03. Psychic Slaughter (5:58)(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 06:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751FCD529D389D65F7C7BB0139EB48929BA6E6FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472563   (1014385) от 25.05.2021
 
 Autopsy - Tourniquets, Hacksaws And Graves (2014) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -747,6 +716,35 @@ Estrella Negra - Estrella Negra (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic He
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA0D797F200285BBCFEC38AD403377D6929D38D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473456   (1013728) от 29.05.2021
+
+Iron Jaws - Declaration Of War (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satan's Bride
+02. Speed Metal Commando
+03. The Brawl
+04. The Hell Of Boiling Metal (Big Trouble In Chinatown)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893B1B7FDDA6FC2A41F6D70E03A1D59901BC9983
 ```
 
 https://mybot314.ru/tekegram_catalog/

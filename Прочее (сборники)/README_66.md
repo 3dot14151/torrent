@@ -1,3 +1,119 @@
+###  Публикация: 1133236   (696944) от 11.05.2017
+
+VA - New generation Euro Disco Vol.7 (2017) [MP3|256-320 Kbps] <Disco, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696944.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A-Ha - I've Been Losing You (Extended Version) 7:04
+002. Abba - Happy New Year (Dj Jedy Deep Remix 2017) 4:44
+003. Alphaville - The Jet Set (Jellybean Mix) 6:32
+004. Anthony's Games - Sunshine Love (Unreleased Version) 5:13(   Читать дальше...   )Жанр: Disco, Pop, DanceПродолжительность: 10:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA971A2B47CFD21EDD7ECE9C009BA01CCD90975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221273   (696725) от 23.04.2018
+
+VA - Extend the 80s - Hits (2018) [MP3|320 Kbps] <Pop, Disco, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alison Moyet - Love Resurrection (U.S. Long Version) [2016 Remastered]
+02. Bananarama - Robert De Niro's Waiting (Extended Version)
+03. Kirsty MacColl - A New England (12" Mix)
+04. Fine Young Cannibals - She Drives Me Crazy (The David Z Remix)(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 02:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694658381609FD940D21AC300009F14AAF32105D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027211   (696532) от 19.06.2016
+
+VA - I Love Ballads - Part VI (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charles Aznavoour - Les Deux Guitares
+02. The Bangles - Eternal Flame
+03. Tevin Campbell - Everything
+04. The Hollies - He Ain't Heavy, He's My Brother(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712F39C148D805356B745A92235E873215A765F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027243   (696529) от 19.06.2016
+
+VA - I Love Ballads - Part VIII (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrique Iglesias - Mmacita
+02. Christina Milan - When You Look At Me
+03. Chris De Burgh - Snow Is Falling
+04. Celine Dion - I'm Alive(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01118101F2A1C37CF4E497CC37F1281FC34B2FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221231   (696371) от 23.04.2018
 
 VA - Best dance music (2018) [MP3|256 Kbps] <Dance, Club>
@@ -627,119 +743,6 @@ VA - Romantic 80s (2016) [MP3|320 кб/с] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F4F784F290826A7459727377EC33A68871220FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028439   (690092) от 22.06.2016
-
-VA - Легенды ВИА 70-80-х мы из СССР (2016) [MP3|320 кб/с] <Pop, Retro, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690092.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.ВИА Земляне - А жизнь идёт
-002.ВИА Земляне - Взлётная полоса
-003.ВИА Земляне - Жизнь идёт
-004.ВИА Земляне - Каскадёры(   Читать дальше...   )Жанр: Pop, Retro, RockПродолжительность: 13:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE48712BDD2D6E6B054C4B0B324511D5B3B99F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288932   (689697) от 14.03.2019
-
-Elton John - Sorry Seems To Be The Hardest Word (2019) Radio Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689697.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Elton John - Sorry Seems To Be The Hardest Word (Igor Frank Radio Remix)Жанр: Club, DanceПродолжительность: 00:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB34C9E17E1507CE85C5D3B2E0F770184B20ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221954   (689433) от 27.04.2018
-
-VA - The Light And Warm (2018) [MP3|320 Kbps] <New Age, Ambient, Relaxation,>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушание мантр или просто музыки релакс направления способно ввести сознание в состояние медитации. Подобная практика обладает очищающим воздействием, которое обязательно со временем приносит результаты – снятие стресса и напряжений, улучшение работоспособности и памяти, увеличение жизненных сил, сияние души любовью и радостью01. Midori - The Light and Warmth
-02. Patrick Bernard - Sita Ram Hanuman Mantra
-03. Wychazel - Akasha
-04. Akoviani - Transgressus III(   Читать дальше...   )Жанр: New Age, Ambient, Relaxation,Продолжительность: 04:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5AF612D8180E5B347A60480B864A3FDFB72C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134302   (689371) от 15.05.2017
-
-VA - Hot Future Dancefloor Tracks (2017) [MP3|320 Kbps] <R&B, New Jack Swing, Latin, Future House, Reggae, Trap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack & David Guetta Ft Ester Dean – Another Life (Intro Outro) 06:02
-02. Clean Bandit Ft. Zara Larsson – Symphony (Cloudnine Short Edit) (Clean) 02:14
-03. Future – Mask Off (Mr. Collipark Remix) (Dj Rukus Quickhitter) (Clean) 02:57
-04. Yaz – Dont Go (Dj Jay Mmp Intro) (Clean) 03:13(   Читать дальше...   )Жанр: R&B, New Jack Swing, Latin, Future House, Reggae, TrapПродолжительность: 05:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A890D823FFCD1C1D37409669459F7E245CA9581
 ```
 
 https://mybot314.ru/tekegram_catalog/

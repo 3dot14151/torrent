@@ -1,3 +1,61 @@
+###  Публикация: 1785619   (69159) от 17.03.2025
+
+Larva - Prescindibles (2025) [FLAC|Lossless|WEB-DL|tracks] <EBM / Dark Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carne De Rata [00:03:49]
+02. A Beautiful Disaster [00:03:23]
+03. Prescindibles (Nunca Venceremos) [00:04:01]
+04. La Mort De La Llum [00:03:00](   Читать дальше...   )Жанр: EBM / Dark ElectroПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A298AED3E7E66EE9424BABBC459AF6D6BF9F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785766   (69155) от 17.03.2025
+
+VA - Groove Paradise (The Deep-House Collection), Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fonetica - I Need Your Love (Carlos Hdez Remix) [06:50]
+02. Steen Thottrup & Denver Knoesen - Another Day (Another Remix) [05:07]
+03. DJ Enne - Stand Up (Original Mix) [07:12]
+04. Mutehead - Wardenclyffe [02:49](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EC34F418B7F4E9200AB905B3AC10A1889E19E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785944   (69144) от 18.03.2025
 
 VA - Hot Summer Vibes - Ibiza Session Volume 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -687,64 +745,6 @@ VA - Miami Music Week 2025 Sampler (2025) [MP3|320 Kbps] <Dance, Club, House, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD3B27E6638EA8DEBF03A453A30D41867B624C1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787854   (68714) от 27.03.2025
-
-VA - Ibiza Spring 2025 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaques Le Noir - Good Times with Me (Ciava Remix) (04:19)
-02. Calmabohain - Never Forget (03:25)
-03. Steen Thøttrup & Kaia Mainz - Dreamers (Radio Edit) (03:50)
-04. Mostly Unfamous - So Different (03:46)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75FD500CB446BF40FC5544578AC524E570661DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787787   (68705) от 27.03.2025
-
-VA - Deep House 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dani Corbalan - Sad (03:24)
-02. Audioboy - Like A Thief (03:11)
-03. Deep Emotion - La La Lie (02:43)
-04. Rinat Bibikov & Paul&Panchez - What is Love (04:16)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584DC87715ED02570967D7EA0A4367715538E978
 ```
 
 https://mybot314.ru/tekegram_catalog/

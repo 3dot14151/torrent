@@ -1,32 +1,3 @@
-###  Публикация: 1549781   (592660) от 09.05.2022
-
-Rust N' Rage - One For The Road (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prisoner (4:28)
-02. Ghost Town (2:50)
-03. One For The Road (3:47)
-04. The Future Is For The Strong (4:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D7FD9E5D603264CF39521FF2B771F123EE0EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549724   (592638) от 09.05.2022
 
 Mike LePond's Silent Assassins - Whore Of Babylon (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
@@ -745,6 +716,35 @@ Maren Elise - Mad Girl (2015) [MP3|320 кб/с]<Alternative Baroque Pop, Experim
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FBB494EF9391F3170C3E3EFC2C18ED3488614DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915746   (591810) от 06.07.2015
+
+Tame Impala - Currents (2015) [MP3|320 кб/с]<Psychedelic Rock, Psychedelic Pop, Neo Psychedelia, Indie, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Happen
+02. Nangs
+03. The Moment
+04. Yes I'm Changing(   Читать дальше...   )Жанр: Psychedelic Rock, Psychedelic Pop, Neo Psychedelia, Indie, ElectronicПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9939D4B19EBDEC29F87898BEE61295255FB58FD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

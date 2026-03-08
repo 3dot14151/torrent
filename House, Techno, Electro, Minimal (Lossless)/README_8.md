@@ -1,3 +1,90 @@
+###  Публикация: 609958   (991146) от 28.01.2013
+
+Mario Basanov - Journey (2012) [FLAC|Lossless]<House, Deep House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caribbean Girl (9:12)
+02. Lonely Days (7:06)
+03. Just Think About (7:06)
+04. Do You Remember (7:33)
+05. We Are Child Of Love (5:49)
+06. Sheiker (6:12)Жанр: House, Deep House, DiscoПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608308   (990498) от 29.01.2013
+
+Jamie Stevens - The Night Before (2003) [FLAC|Lossless]<Progressive House, Progressive Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Before (Original Mix) 09:30
+02. The Night Before (Momu Remix) 09:34Жанр: Progressive House, Progressive BreaksПродолжительность: 00:19:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606874   (990447) от 29.01.2013
+
+Lawrence - Jill (2009) [FLAC|Lossless]<Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 		Jill 	6:53
+02. 		Jill (Reprise) 	4:06
+03. 		Hamtramck 	6:39
+04. 		Sunrise 	4:24Жанр: Deep HouseПродолжительность: 00:22:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610450   (990378) от 29.01.2013
 
 Full Tilt - Take Me Away (2012) [FLAC|Lossless]<Progressive House>
@@ -653,93 +740,6 @@ Dubfire - HYBRID: A Decade Of Dubfire (2017) Compilation [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4105CCAF071C9F7C276AC482EC89231CEE43471A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026832   (959333) от 16.02.2020
-
-Blacktree - The Beginning Of Summer - The Beginning Of The Party (2016) [FLAC|Lossless|image + .cue] <Minimal Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mal, Min - Violin (07:21)
-02. Jose Ponce, Joe Red - Legato (03:39)
-03. Beth Lydi - Quando (03:40)
-04. Cristian Valencia & Ricar - Kryptonite (Mateo Remix) (06:48)(   Читать дальше...   )Жанр: Minimal Techno, Tech HouseПродолжительность: 01:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2153053CC0D69C43F1DF3BED1CC2B02B6DC13F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088735   (955100) от 01.01.2017
-
-VA - Deepalma 2017 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mika Olson - What I Need (feat Jermaine Fleur) [07:35]
-02. Fonzerelli - Moonlight Party (Touch & Go Laidback mix) [05:24]
-03. Lounge Loafers - Forget About Me (original mix) [05:31]
-04. Palmer - Takin' Off (Miguel Campbell Club edit) [05:22](   Читать дальше...   )Жанр: Deep House, House, Nu DiscoПродолжительность: 04:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F13E0291231E0899F427BAA585E1E377466D954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089134   (953877) от 02.01.2017
-
-VA - Playa Del Carmen 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chus & Ceballos/Supernova - The Prophet (Remastered) [06:40]
-02. Rafa Barrios - Horizont (original mix) [05:15]
-03. DJ Fronter - Damn (original mix) [07:52]
-04. Supernova - Shut Your Mouth (original mix) [07:44](   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 02:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42B2DEA78FE9849C8547C913C125744397E7D6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,109 @@
-###  Публикация: 1279839   (764602) от 31.01.2019
+###  Публикация: 203135   (764664) от 23.05.2010
 
-Richard Cole - The Forgotten (2001) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Windows 7 Loader eXtreme Edition 3.503 Stable [Русский(ML)]
+
+>>3
+>>23
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 7 Loader eXtreme Edition - самая последняя на сегодняшний день версия активатора для ОС Windows 7 х86/64 от небезызвестного "Napalum". Активатор подходит для любой редакции "Семёрки". Windows 7 Loader Extreme Edition - это универсальный инструмент для активации любой редакции Windows 7/Vista/2008R2/2008. Напрямую взаимодействует с элементами операционной системы, отвечающих за активацию. Поддерживает все официальные способы активации и снимает ряд внутренних ограничений на их применение. Обеспечивает достаточный уровень безопасности действий пользователя, что дает возможность безбоязненно совершать интуитивное взаимодействие с активатором. Способен выполнять все основные функции отдельных утилит применяемых при активации.Язык интерфейса: Русский(ML)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126601   (764663) от 19.04.2017
+
+Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). 15 Сессия. Швеция — Китай (23.03.2017) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764663.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 марта 2017 года, четверг.
+Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай).
+Предварительный этап. 15 Сессия
+Швеция — Китай(   Читать дальше...   )Телекомпания: WCF TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DAA7872C7CBDCEF66C00A1B2EC02297339DBF49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126477   (764662) от 19.04.2017
+
+Хоккей. НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Запад. 1/4 финала. 3-й матч. Сан-Хосе Шаркс – Эдмонтон Ойлерз (16.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764662.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 апреля 2017, понедельник. 05:00 МСК
+НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Западная конференция. Первый раунд.
+1/4 финала. 3-й матч
+Сан-Хосе Шаркс – Эдмонтон Ойлерз(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF030F1325F2A8FF1204F88310FF3DB2A7B93229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126777   (764661) от 19.04.2017
+
+Milt Jackson - Vibrations (1960, 1961) Remaster, 2013, Warner [FLAC|Lossless|image + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764602.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Any Skynyrd [9:05]
-02. The Best Thing for You [5:53]
-03. Angel Eyes [6:47]
-04. Without a Song [7:01](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:18
+01.Darbin & The Redd Fox [04:58]
+ 02.Algo Bueno [04:13]
+ 03.Mallets Towards None [04:34]
+ 04.Blue Jubilee [04:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:36:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16695E435F8F1F5590E506BDACB97F1C26564F40
+magnet:?xt=urn:btih:67EDEE5BF3511B86ABC9F6A81ADE81261241EAF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +111,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279791   (764601) от 31.01.2019
+###  Публикация: 1126873   (764660) от 19.04.2017
 
-Mel Torme & Rob McConnell - And The Boss Brass (1986) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Баскетбол. НБА 2016-2017. Плей-офф. Запад. 1/4 Финала. 1-й матч. Сан-Антонио Спёрс – Мемфис Гриззлиз (15.04.2017) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764660.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 апреля 2017, воскресенье. 03:00 МСК
+НБА 2016-2017. Плей-офф. Западная конференция. Первый раунд
+1/4 Финала. 1-й матч
+Сан-Антонио Спёрс – Мемфис Гриззлиз(   Читать дальше...   )Телекомпания: ESPNЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228D95CACA3044D458046C54D7A3ED6CD90C3A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126618   (764659) от 19.04.2017
+
+Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). 17 Сессия. Россия — Китай (23.03.2017) IPTV [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764659.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 марта 2017 года, четверг.
+Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай).
+Предварительный этап. 17 Сессия
+Россия — Китай(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0C2727DD9627E17EA4DC4B4877C0FACD658C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126774   (764658) от 19.04.2017
+
+Dizzy Gillespie, Sonny Stitt, Sonny Rollins - Sonny Side Up (1957) 1986, Verve [FLAC|Lossless|tracks + .cue] <Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764601.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Just Friends [4:49]
-02. September Song [4:59]
-03. Don'cha Go 'Way Mad [4:30]
-04. A House Is Not a Home [3:40](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:45
+01.On The Sunny Side Of The Street [05:45]
+ 02.The Eternal Triangle [14:18]
+ 03.After Hours [12:26]
+ 04.I Know That You Know [05:29]Жанр: BopПродолжительность: 00:37:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C58FF01F196305AA747D8B0119A6148629776CA
+magnet:?xt=urn:btih:5EFDDD32915D0252BB7F4D9B3AB584E6B18B852F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +198,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279794   (764600) от 31.01.2019
+###  Публикация: 1126857   (764657) от 19.04.2017
 
-Harry Connick, Jr. - What a Night! A Christmas Album (2008) Columbia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Баскетбол. НБА 2016-2017. Плей-офф. Восток. 1/4 Финала. 1-й матч. Кливленд Кавальерс – Индиана Пэйсерс (15.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764657.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 апреля 2017, суббота. 22:00 МСК
+НБА 2016-2017. Плей-офф. Восточная конференция. Первый раунд
+1/4 Финала. 1-й матч
+Кливленд Кавальерс – Индиана Пэйсерс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E902B1515ED6B674FDBF916E23D526F85BFEE593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126810   (764656) от 19.04.2017
+
+Marilyn - Romance Dance (2004) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764600.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It's the Most Wonderful Time of the Year [3:29]
-02. What a Night! [3:25]
-03. Christmas Day [3:24]
-04. Have a Holly Jolly Christmas [4:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:13
+01. Romance Dance  (04:46) 
+02. Close Your Eyes  (03:23) 
+03. You Go To My Head  (04:00) 
+04. I Wish I Knew  (02:48) (   Читать дальше...   )Жанр: Jazz VocalsПродолжительность: 00:46:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC6CB6E261A664168B7561AAB375D52A61730419
+magnet:?xt=urn:btih:A4CA213257442463211B8DF917C43F90E3CDA7C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279799   (764599) от 31.01.2019
+###  Публикация: 1126606   (764655) от 19.04.2017
 
-Domagoy Ralasic With Benny Bailey - The Bag Is Packed (1997) Timeless [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). 16 Сессия. США — Корея (23.03.2017) WEB-DL [H.264/1080p-LQ] [EN]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764599.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blues For Lady 'J' [7:12]
-02. For All We Know [6:16]
-03. Lester Leaps In [4:28]
-04. Body & Soul [7:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:05:51
+23 марта 2017 года, четверг.
+Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай).
+Предварительный этап. 16 Сессия
+США — Корея(   Читать дальше...   )Телекомпания: WCF TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:56:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FED658694227CBFCDA7A2BDA1BB239C0D37B495
+magnet:?xt=urn:btih:0DDD55AFA8F785DC8964E8A88F3F4A0CA5E8A937
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,144 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279789   (764598) от 31.01.2019
+###  Публикация: 1126649   (764654) от 19.04.2017
 
-The Billy Taylor Trio - You Tempt Me (1989) Taylor-Made Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the A Train [7:12]
-02. Tom, Vaguely [6:19]
-03. You Tempt Me [5:22]
-04. Let Us Make a Joyful Noise/Spiritual [11:15](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B738DCA97E7335BAC7F862D84EE42DE470260967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279950   (764597) от 31.01.2019
-
-VA - Festival Anthems Vol.4 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - New Era (Suanda 150 Anthem) (Extended Mix)
-02. Frainbreeze - #Dvrk5ide (Extended Mix)
-03. Ruslan Radriges - Revival (Extended Mix)
-04. Adip Kiyoi - Start With A Dream (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA4D9B6C5DE90A8FD3BAF3E954D85CF11E87891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279882   (764596) от 31.01.2019
-
-VA - Nothing But...Tech House Essentials, Vol.07 (2019) [MP3|320 Kbps] <Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GAWP - Blocker (Original Mix)
-02. Hott Like Detroit - Groovers (Dub Mix)
-03. Fachini - Keep Holding (Original Mix)
-04. Black V Neck - Listen To My Flute(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BF280374615AD4D11B20A4D270D74800B4687C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279933   (764595) от 31.01.2019
-
-VA - JOOF 20 Years (Mixed by Gary Delaney & Facade & Daniel Lesden) (2018) [MP3|320 Kbps] <Progressive House,Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Delaney – JOOF 20 Years - Mixed by Gary Delaney (Continuous DJ Mix)
-02. Facade – JOOF 20 Years - Mixed by Facade (Continuous DJ Mix)
-03. Daniel Lesden – JOOF 20 Years - Mixed by Daniel Lesden (Continuous DJ Mix)
-04. Monojoke – Hollow Child (Original Mix)(   Читать дальше...   )Жанр: Progressive House,TranceПродолжительность: 11:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E901980BCDA19C1F6477172BBFF7C6B55F0099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279745   (764594) от 31.01.2019
-
-Artificial Silence - Negative Space (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Progressive rock>
+Kill The Romance - Logical Killing Project (2005) EP [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764594.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764654.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Skin Deep (06:23)
-02. Latency (04:26)
-03. Innocent (3:50)
-04. In the Midst of a Dream (06:42)(   Читать дальше...   )Жанр: Alternative Rock, Progressive rockПродолжительность: 01:02:57
+01. Dark Filth Water  (04:55) 
+02. Countdown to Domination  (03:31) 
+03. Killers of Romance  (03:28) 
+04. Demons in Me  (04:27)Жанр: Melodic Death MetalПродолжительность: 00:16:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBB0FE3E2FC54A24D67CE47F93A5A33652BE401B
+magnet:?xt=urn:btih:C4483AC016EA5AFC9661A5CF973B0A1C787E2046
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,26 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279813   (764593) от 31.01.2019
+###  Публикация: 1126845   (764653) от 19.04.2017
 
-TrashMe 2.1.21 [Multi/Ru]
+Inboard 1.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764593.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TrashMe - утилита для удаления приложений, виджетов и связанных с ними файлов. Перетяните не нужное приложение на иконку TrashMe, а все остальное она сделает за вас, быстро и качественно. TrashMe представляет собой мощный деинсталлятор с дополнительными и полезными инструментами.
-Дополнительная информация:Тип издания: macOS SoftwareРелиз состоялся: 29.01.2019Разработчик: Jean-Baptiste ZEDDAПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+Inboard -  позволяет Вам легко организовать фотографии и скриншоты.
+Inboard обеспечивает интуитивный пользовательский интерфейс, где Ваши изображения организованы в библиотеку и есть возможность добавить любое число изображений.
+
+Иображения показаны в виде превью, Вы можете изменить их  размер, используя ползунок. К тому же, Вы можете сортировать изображения по дате (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2017Разработчик: Regular SIAПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0B4E26E4D5097EF186DCB98E5833D1776835C6F
+magnet:?xt=urn:btih:D7AFB88D7BB995AB6DD115D3A006F065A8121A93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,28 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279959   (764592) от 31.01.2019
+###  Публикация: 1126729   (764652) от 19.04.2017
 
-VA - Nicholson - Glorious (The Album) (2019) [MP3|320 Kbps] <Trance>
+Хоккей. НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Запад. 1/4 финала. 3-й матч. Калгари Флэймз – Анахайм Дакс (17.04.2017) WEB-DL [H.264/720p-LQ] [EN]
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764592.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764652.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nicholson - Toward The Light (Feat. Jennie Osborn) (Original Mix)
-02. Nicholson - Society (Original Mix)
-03. Nicholson & Emoiryah - In The Need (Original Mix)
-04. Nicholson - Shut Them Down (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:32
+18 апреля 2017, вторник. 05:00 МСК
+НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Западная конференция. Первый раунд.
+1/4 финала. 3-й матч
+Калгари Флэймз – Анахайм Дакс(   Читать дальше...   )Телекомпания: CSNЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:08:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D497DFE00126DDEF837B82F6F3A814C74B54D72E
+magnet:?xt=urn:btih:36745A468342414D6D9FE9F10B2978273C226BD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -315,28 +372,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279749   (764591) от 31.01.2019
+###  Публикация: 1126741   (764651) от 19.04.2017
 
-Manet - Devour (2017) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Dark Jazz, Post Rock>
+В. Л. Фаворский | Церковь и национальное движение на Украине в XVI-XVII вв. (1929) [DJVU] [UKR]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764591.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764651.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Norwegian Horror Saga
-02. Delirious And Devoured
-03. Doctor Schnabel Von Rom
-04. Vendredi Noir(   Читать дальше...   )Производство: Dark Jazz Records – DJR 001Жанр: Ambient, Dark Ambient, Dark Jazz, Doom Jazz, Post RockПродолжительность: 00:49:15
+В книге рассказано о насаждении Брестской церковной унии 1596 года на украинских землях, входивших в состав Речи Посполитой, о борьбе народных масс Украины с униатством и религией в ходе народно-освободительной войны под руководством Богдана Хмельницкого.Жанр: История, политология, экономика, религиоведениеФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:732A90F7251BBAA669A66830586A54A5BC08DC37
+magnet:?xt=urn:btih:97B513B75E599150C3ADAABE93A670628E011A27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,96 +398,270 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279857   (764590) от 31.01.2019
+###  Публикация: 1126513   (764650) от 19.04.2017
 
-Wise Program Uninstaller 2.3.3.134 + Portable [Multi/Ru]
+Duke Ellington - The Girls And Premieres 1958-1963 (2014) La Maison du Duke [FLAC|Lossless|tracks + .cue] <Big Band, Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Medley [11:16]
+ 02.Girls [03:46]
+ 03.Sarah [02:00]
+ 04.Lena [03:15](   Читать дальше...   )Жанр: Big Band, Swing, Vocal JazzПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7949EBE5D7349951705E2BDF1ABB24E6492E9955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126528   (764649) от 19.04.2017
+
+VA - Dark Trance Vol.1 (2017) [MP3|320 Kbps] <Trance, Tech Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Photographer - Infinity (Roman Messer Radio Edit)  3:29
+02.  Attila Syah presents Gamma (Ind) - Hello Earth (Original Mix)  6:09
+03.  Black XS & Reload - Human Rage (Radio Edit)  4:24
+04.  E.T Project - Infinite Galaxy (Darren Porter Remix)  5:48(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 02:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDD591BA26615611909FED9B6746F581147A643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126917   (764648) от 19.04.2017
+
+Ronnie Baker Brooks - Take Me Witcha (2001) [APE|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Had My Chance  (05:22) 
+02. Hit Me On The Hip  (04:14) 
+03. See You Hurt No More  (05:55) 
+04. Take me Witcha  (04:17) (   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E997D981B9D993FC780B1DF8311FF8D52CA4E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126784   (764647) от 19.04.2017
+
+VA - Hot 'N' Sexy EDM Vol 1 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Jack & Giovanni Loda - Esta Loca 2014 (Ivan Jack Club Mix)
+02. Dexter Morgan - Wrestling Clinic
+03. Martin Schweizer - Waterdrop (Club Mix)
+04. Arjan Kramer - Day & Night(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7846C73BFE06AFA691D56066E930F3E60147B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126904   (764646) от 19.04.2017
+
+Хоккей. КХЛ 2016-2017. Кубок Гагарина. Финал Чемпионата. 1-й матч. Металлург (Магнитогорск) — СКА (Санкт-Петербург) (08.04.2017) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764646.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 апреля 2017, суббота. 15:00 МСК
+КХЛ 2016-2017. Кубок Гагарина. Финал Чемпионата. 1-й матч
+Металлург (Магнитогорск) — СКА (Санкт-Петербург)
+Стадион: Арена-Металлург (Магнитогорск, Россия), 7500 зрителей (97 % при вместимости 7700)(   Читать дальше...   )Телекомпания: КХЛ ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496BBCF971078EB2E9EAB4A90698B5FAD2E0107F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126878   (764645) от 19.04.2017
+
+Carmine Appice - Carmine Appice's Guitar Heroes (2010) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jennifer Batten - Guitar Zeus - Part 1 02:13
+02. Dweezil Zappa - Dead Wrong 05:44
+03. Yngwie Malmsteen - This Time Around 04:24
+04. Steve Fister - Blaze 04:21(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Progressive MetalПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868812B1A3DFA0B8AE93B5119097DDA4425C5DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126851   (764644) от 19.04.2017
+
+PDFpenPro 9.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764644.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFpen Pro - Программа для создания и редактирования PDF-документов. С помощью PDFpen Pro вы сможете добавлять тексты, картинки, подписи, заполнять формы, делать исправления, добавлять, удалять и изменять порядок страниц. Помимо этого вы можете создавать собственные формы и таблицы контента.
+
+Так же PDFpen Pro умеет распознавать отсканированные документы для последующего (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 апреля 2017Разработчик: SmileOnMyMac, LLCПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Испанский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDAB622C5C4543FFC83338A9FF2602D5B991C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394344   (764643) от 04.07.2020
+
+Футбол. Чемпионат России 2019-2020. Обзор матчей 24-го тура (2020) IPTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тинькофф Российская Премьер-Лига. Чемпионат России по футболу 2019-2020 — 28-й по счёту сезон высшего дивизиона системы футбольных лиг России. Первую часть сезона турнир носил название РПЛ (Российская премьер-лига). Со второй половины проводится при поддержке титульного спонсора банка «Тинькофф» и носит название Тинькофф РПЛ (Тинькофф Российская премьер-лига).
+Обзор (   Читать дальше...   )Телекомпания: Матч Премьер HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1176CEF9A7DC77DD00518316C54111C6B3F5C3D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394226   (764642) от 04.07.2020
+
+Орел и Крот (1944) WEBRip [H.264] [hand made colored]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм создан по басне Крылова. Прилетело как-то орлиное семейство искать место для своего гнезда. Орлица присмотрела для будущего своего потомства высокий, раскидистый дуб. Но тут вмешался крот и попытался отсоветовать вить гнездо в кронах этого дерева - корни дуба давно прогнили и он скоро может упасть. Но орлы посмотрели свысока на "жалкого" крота (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: Детский, Рисованная анимация, БасняРежиссер: Пантелеймон Сазонов, Ламис БредисСубтитры: отсутствуютПродолжительность: 00:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0D21BB1E6F7EE9AA1305E7D9286DF3ACA2D299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394286   (764641) от 04.07.2020
+
+Trojan Killer 2.1.31 RePack (& portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита для удаления установленных в системе программ. Позволяет воспользоваться для удаления как стандартными средствами системы, так и собственными инструментами. Имеется инструмент удаления записей об уже деинсталлированных программах, возможность быстрого доступа к записи выбранной программы в реестре, а также поиск подробностей о приложении в Google.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098BBDA819B4026B9AC2F4CA29A9F6CEED5D9E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394361   (764589) от 04.07.2020
-
-МультиВарик ТВ - Добрые песни для детей (2019) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сахарная вата
-02. Щенок
-03. Бабка Ёжка
-04. Бабка Ёжка (мульт.версия)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E003E2A7CDD43F74F3C4E5F0964EE373933D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394225   (764588) от 04.07.2020
-
-Журнал | ELLE [TR] №7 (июль 2020) [PDF][Tr]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elle — французский еженедельный женский журнал о моде, красоте, досуге и здоровье, издающийся с 1945 года. В середине 1980-х годах, при выходе на международный рынок, стал выпускаться ежемесячно, сохранив еженедельный формат для Франции.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C5FAD8DB9AD3A7A04C309305C6567E32056477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394404   (764587) от 04.07.2020
-
-Trojan Killer 2.1.32 RePack (& portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764587.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764641.jpg" />
 </div>
 
 
@@ -443,7 +671,7 @@ Trojan Killer – представляет собой антивирусный �
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F36C23B22D14B89C1FEDB4AC59B0EB11B073F84F
+magnet:?xt=urn:btih:DEB659718CF40AC29D13F20C7011FE71FC626ACD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,26 +679,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394375   (764586) от 04.07.2020
+###  Публикация: 1394314   (764640) от 04.07.2020
 
-Формула 1. Сезон 2020. Этап 1. Гран-при Австрии. Квалификация (04.07.2020) HDTV [H.264/1080i-LQ]
+Формула 1. Сезон 2020. Этап 1. Гран-при Австрии. Свободная практика 3 (04.07.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Спорт и активный отдых
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764586.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764640.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Арена: Ред Булл Ринг (Шпильберг, Австрия)
-04 июля 2020, суббота. 16:00 МСКТелекомпания: Матч АренаЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:00:40
+04 июля 2020, суббота. 13:00 МСКТелекомпания: Матч АренаЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:04:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00D67679B0ECDD1175CBA3123B2EC8FA081794E4
+magnet:?xt=urn:btih:B5FCF9AFA5C206FA13746106131338D2CC6E11A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,242 +706,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394386   (764585) от 04.07.2020
+###  Публикация: 1394217   (764639) от 04.07.2020
 
-Главная дорога (04.07.2020) WEBRip [H.264/1080p-LQ]
+Футбол. Бундеслига. Чемпионат Германии 2019-2020. Обзор 34-го тура (2020) IPTVRip [H.264/1080p-LQ] [hand made 50fps]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_764585.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_764639.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01:35 Пьяный - не подходи! Как можно лишиться прав за пьяные посиделки в машине и даже возле нее?
-06:52 Снять и отправить в ГАИ или выложить в Сеть: как наказать нарушителя и не стать крайним?
-14:18 Тест корейской малолитражки, покорившей российский рынок. Какие у этого автомобиля слабые места?
-20:21 Как правильно тормозить на мокрой дороге?(   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:33:00
+Немецкая Бундеслига 2019-2020 (Bundesliga) — 57-й сезон высшего дивизиона в немецкой системе футбольных лиг.
+Обзор 34-го тура.Телекомпания: Матч! Футбол 3 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:52:00
 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394207   (764584) от 04.07.2020
-
-Журнал | Grazia [NL] №29 (июль 2020) [PDF] [Nl]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_764584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grazia — итальянское женское издание, выпускаемое еженедельно компанией Arnoldo Mondadori Editor с 1938 года.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394216   (764583) от 04.07.2020
-
-Журнал | Караван историй №6 (июнь 2020) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Караван историй» – это красочное иллюстрированное издание, оригинальное по концепции и высокохудожественное по содержанию. Журнал отличается от традиционных «женских» глянцевых изданий и за годы своего существования завоевал популярность среди широкой читательской аудитории. Журнал «Караван историй» – это захватывающие истории об известных людях, исторических (   Читать дальше...   )Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D568AB8D036755EF253D79251A80D1346F835EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394180   (764582) от 04.07.2020
-
-The Killers - Run For Cover (2020) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Own Soul’s Warning (04:34)
- 02. Caution (Radio Edit) (03:48)
- 03. Somebody Told Me (03:17)
- 04. Mr. Brightside (Jacques Lu Cont's Thin White Duke Mix) (08:50)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DE7359FC92F145DC57C58989E2230FB118AB09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393981   (764581) от 04.07.2020
-
-Гриффины / Family Guy (2017) WEB-DL [H.264/1080p-LQ] (сезон 16, серии 1-20 из 20) 2x2
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764581.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФарлейном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящая и терпеливая жена Лоис, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / Twentieth Century Fox Film CorporationЖанр: мультфильм, комедияРежиссер: Сет МакФарлейнАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Майк Генри, Джон Винер, Дэнни Смит, Патрик Варбертон, Ральф Гармен, Алек СалкинПеревод: Многоголосый профессиональный (2x2)Субтитры: русские (forced) английские (SDH)Продолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B74D1FC0B181237CEB557635B82CC3F3FE23B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394391   (764580) от 04.07.2020
-
-Any Video Converter Professional 7.0.3 RePack & Portable by 9649 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any Video Converter Professional - многофункциональная программа, которая умеет конвертировать любые видеофайлы. Эта программа позволяет вам легко перекодировать распространенные видеоформаты (AVI, MOV, RM, MPEG, DVD, WMV, MP4 и FLV) в DVD, VCD, MP4 или FLV. В утилите присутствует возможность использовать для кодирования файлов как готовые профили с установленными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66ECB7F5B31BF4945484475E43A70786A9BF42B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394405   (764579) от 04.07.2020
-
-Soft4Boost Document Converter 6.3.9.505 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soft4Boost Document Converter - программа для просмотра и конвертирования разных типов документов между собой. Это приложение работает как с текстовыми, так и графическими файлами, конвертируя их в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.
-
-Интерфейс программы интуитивно понятен и удобен: добавили файл, определили формат преобразования, папку (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D28C61CF603AE491AD72A25EB6A86EC242D1A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394266   (764578) от 04.07.2020
-
-CrystalDiskInfo 8.6.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764578.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3700F4C8F8D6FCF21D11551B1C034336E5F47C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394324   (764577) от 04.07.2020
-
-IObit Software Updater Pro 3.1.0.1572 (акция Comss) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764577.jpg" />
-</div>
-
-
-###  Подробнее
-
-IObit Software Updater позволяет выполнить обновление устаревших версий программ в один клик, что помогает сэкономить вам время и поддерживать программное обеспечение в актуальном состоянии. Программа позволяет автоматически обновлять устаревшие программы в назначенное время и автоматически перезагружать компьютер после завершения обновления.
-Перед обновлением или (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9635E60C6B12F74AA63635BADA1181D957502B14
 ```
 
 https://mybot314.ru/tekegram_catalog/

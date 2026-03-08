@@ -1,32 +1,3 @@
-###  Публикация: 908653   (632419) от 15.06.2015
-
-Jupiter Falls - Revolution (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awake
-02. Chasing The Dragon
-03. To The Point
-04. Forgiven(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6005D4811C4D155EAA26DAA7E595167337B433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908655   (632416) от 15.06.2015
 
 Travelane - Freeze This Moment (2015) [MP3|320 кб/с]<Hard Rock>
@@ -744,6 +715,41 @@ Rammstein - Zick Zack (2022) Single [FLAC|lossless|WEB-DL|tracks] <Industrial Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E78BFD89F3CDD0E92F538B6425DD3BF57D009245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520720   (631310) от 09.07.2012
+
+Motley Crue - Loud As F@*k (2003) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПродолжительность: 01:15:34
+ 01. Kickstart My Heart [0:04:42.06]
+ 02. Looks That Kill [0:04:07.11]
+ 03. Louder Than Hell [0:02:31.66]
+ 04. Take Me To The Top [0:03:43.69]
+ 05. Girls, Girls, Girls [0:04:29.51]
+ 06. Afraid [0:04:06.70]
+ 07. Hooligan's Holiday [0:05:48.16]
+ 08. Knock 'Em Dead, Kid [0:03:43.66]
+ 09. Slice Of Your Pie [0:04:30.74](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041875F15A34D2145A7592F4D364686333FCEF45
 ```
 
 https://mybot314.ru/tekegram_catalog/

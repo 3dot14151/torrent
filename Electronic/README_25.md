@@ -1,3 +1,61 @@
+###  Публикация: 1619372   (1032964) от 16.03.2023
+
+VA - Workout Music for Go Go & Tabledance Training (2023) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicagoboy - Come and Get It (4:37)
+02. Mr Brackets - Spate (5:33)
+03. Roxy Dawn - Who'll Stop the Rain (Midnight Rework) (4:51)
+04. Plastic Thomas Orchestra - Hungabunga List Nr. 2 (Pto Remix) (3:18)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D7433D6B6EB8443DC04073891175E3CFF33E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619361   (1032962) от 16.03.2023
+
+A-Reis - Prominences (2023) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Newretrowave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contemplation [00:05:00]
+02. Journey [00:04:23]
+03. Moonlight [00:03:21]
+04. Prominences [00:04:15](   Читать дальше...   )Жанр: Dreamwave, Newretrowave, RetrowaveПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E648B439F75923EC913CDB5CE680EC5013DF8CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619269   (1032960) от 16.03.2023
 
 VA - House Clubhits Megamix 2023 (2023) [MP3|320 Kbps] <Dance, Club, House>
@@ -676,64 +734,6 @@ Jens Buchert - Dawnrider (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:044E109E68A4AB1924836CBF1C8F0FA17C3AE331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446981   (1032091) от 12.02.2021
-
-Transceive - Intrigue (2001) [FLAC|Lossless|tracks + .cue] <Berlin School>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032091.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Bygone Daze 6:34
-2 Intrigue 12:43
-3 Emor Femus 10:46
-4 Tera's Secret 4:40(   Читать дальше...   )Жанр: Berlin SchoolПродолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9C9A5845037F1722FFCBD78BED0A3DCBA1BFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342026   (1032080) от 12.02.2021
-
-Deep Blu' - Under The Ocean (2006) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simex - Under The Ocean (Taho Remix)
-02. Baier,Box - Duck Dub (Taho Remix)
-03. Brian Kage - Luna Twilight
-04. Brian Kage - The Days Of Us Two (Taho Remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6372B030BAC6D2F779D18D45313ADAD0851F80
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1122895   (793619) от 06.04.2017
-
-SIG:AR:TYR - The Stranger (2003) [FLAC|Lossless|WEB-DL|tracks] <Epic Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793619.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. At The Gates (04:56)
-2. The Stranger (04:51)
-3. Against The Grail (05:28)
-4. Orion Awaits (09:05)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDADB2457F33631C8FAB27E6D94E7500959F5C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386781   (793574) от 30.05.2020
 
 Love - Forever Changes (1967) Stereo [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock>
@@ -737,6 +708,35 @@ Sheryl Crow - Everyday Is A Winding Road: The Collection (2013) [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F34EC2AB4D73E882EC361ACD55F914F6DC391CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274627   (793006) от 07.01.2019
+
+Sophie Lloyd - Delusions (2017) EP [MP3|320 Kbps] <Heavy Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793006.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:11] 01. Made Of Wax
+[4:25] 02. Delusions
+[3:33] 03. After Insanity
+[4:44] 04. Battleground(   Читать дальше...   )Жанр: Heavy Metal, InstrumentalПродолжительность: 00:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5FC2B1787D194B08FF6C25DDC2AE7EAF16E651
 ```
 
 https://mybot314.ru/tekegram_catalog/

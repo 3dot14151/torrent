@@ -1,3 +1,32 @@
+###  Публикация: 1200110   (796889) от 19.01.2018
+
+First Aid Kit - Ruins (2018) [FLAC|Lossless|tracks] <Indie Folk, Country Folk, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebel Heart
+02. It's a Shame
+03. Fireworks
+04. Postcard(   Читать дальше...   )Жанр: Indie Folk, Country Folk, AmericanaПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CA868B2E161D981C585A091E6303E0AF5C9FC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 103840   (796642) от 09.11.2021
 
 VA - The World Of Jeeves And Wooster (1992) [FLAC|Lossless|tracks] <OST>
@@ -716,35 +745,6 @@ John Fluker - 11:11 (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C9906B8B007DF3B26D9020DBCFE0B411B060C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386533   (793568) от 30.05.2020
-
-Buck Owens And His Buckaroos - I've Got A Tiger By The Tail (1965) Reissue 1995 [FLAC|Lossless|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got A Tiger By The Tail (2:13)
-02. Trouble And Me (1:56)
-03. Let The Sad Times Roll On (2:16)
-04. Wham Bam (2:03)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6485F00740B3967C0DE7042043577E045C6889FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

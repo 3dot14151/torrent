@@ -1,3 +1,61 @@
+###  Публикация: 1095760   (1033412) от 06.02.2021
+
+Darrell Fitton (Bola, Jello) - Discography 18 Releases (1995-2017) Skam [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Abstract, Downtempo, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lungbone (Tongue Bone Mix) (feat. Dennis Bourne) (05:00)
+ 02. Damask (04:39)
+ 03. Vibe-A-Rolla (Scump Mix) (05:48)
+ 04. O'verb (Dualite Mix) (06:11)(   Читать дальше...   )Тип издания: CD, Vinyl, WEB •Жанр: IDM, Ambient, Abstract, Downtempo, Experimental •Продолжительность: 13:16:11 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E952406D936BE29DC333EC9330E535B2204063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619104   (1033399) от 14.03.2023
+
+VA - Extreme Sports Music Vol 6 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Noise - Devil's Army (Radio Edit) (3:35)
+02. Markii - Shatter (Radio Edit) (3:45)
+03. Max Stellar - The Prophecy (Radio Edit) (3:13)
+04. Moonrider - Resurrection (Radio Edit) (3:39)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBD8EA2FDD75FE248C7D7F0886384E467C6820A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445890   (1033312) от 07.02.2021
 
 The 5th Galaxy Orchestra - The Land of Forgotten Tales (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Dream Pop>
@@ -655,64 +713,6 @@ David Guetta - Live @ United At Home, Burj Al Arab Dubai, United Arab Emirates (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D613D4E7ABF2EBAA82A24DA554C2216C07180BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619372   (1032964) от 16.03.2023
-
-VA - Workout Music for Go Go & Tabledance Training (2023) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicagoboy - Come and Get It (4:37)
-02. Mr Brackets - Spate (5:33)
-03. Roxy Dawn - Who'll Stop the Rain (Midnight Rework) (4:51)
-04. Plastic Thomas Orchestra - Hungabunga List Nr. 2 (Pto Remix) (3:18)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D7433D6B6EB8443DC04073891175E3CFF33E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619361   (1032962) от 16.03.2023
-
-A-Reis - Prominences (2023) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Newretrowave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Contemplation [00:05:00]
-02. Journey [00:04:23]
-03. Moonlight [00:03:21]
-04. Prominences [00:04:15](   Читать дальше...   )Жанр: Dreamwave, Newretrowave, RetrowaveПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E648B439F75923EC913CDB5CE680EC5013DF8CE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

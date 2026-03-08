@@ -1,3 +1,32 @@
+###  Публикация: 1140953   (654021) от 08.06.2017
+
+Harry Allen - Here's To Zoot (2001) Novus J [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Cover the Waterfront [5:07]
+02. Stars Fell on Alabama [4:27]
+03. Spring Is Here [4:48]
+04. I Cried for You [4:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181791E099714C6C0ECEEB3F26D27962106936D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140959   (654019) от 08.06.2017
 
 Harry Allen - Once Upon A Summertime (1999) Novus J [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -716,35 +745,6 @@ The Harry Allen Quartet - Someone to Light Up My Life (2005) Master Mix Music [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F44C3E66A347CFC32BAF6FE89EEF078A746844F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141220   (652556) от 09.06.2017
-
-Wynton Kelly Trio & Wes Montgomery - Smokin' In Seattle: Live At The Penthouse (1966) 2017, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is No Greater Love [08:19]
-02. Not A Tear [06:33]
-03. Jingles [04:33]
-04. What's New? [04:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB61D7F38484D6FCBB485E5EF8624CFB2BAD0D9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

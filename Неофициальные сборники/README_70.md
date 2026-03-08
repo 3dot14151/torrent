@@ -1,3 +1,177 @@
+###  Публикация: 983342   (943871) от 06.02.2016
+
+VA - Lucid Dreams: Mermaid Party (2016) [MP3|320 кб/с] <Electro, Club, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943871.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zoo Brazil ft. Philip - Heart's A Legend (Solarstone Pure Remix) 08:56
+002. Paris & Simo - Avon 05:14
+003. Western Disco Feat. Lura - The Sun (Black Box Remix) 03:56
+004. Tim Shaft - Unstoppable 04:06(   Читать дальше...   )Жанр: Electro, Club, Funky HouseПродолжительность: 09:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D235CEFDE0B0B7F1621C5289F6D2C807BC54C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983565   (943866) от 06.02.2016
+
+VA - Jazzy Lounge, Vol.2 (2016) [MP3|320 кб/с] <Balearic, Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943866.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Matt Lovers - Analogamente 04:28
+2. Mediterranean Soul - Imperat 03:52
+3. Fusion Dee - Blues In Mirror 04:18
+4. Second Groove - Load In Repetition 04:32(   Читать дальше...   )Жанр: Balearic, Downtempo, Lounge, ChilloutПродолжительность: 01:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3516C42D9BF586ECCBF08B8E9544ECA41B17AF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363287   (943765) от 27.02.2020
+
+VA - EDM Immersion (2020) [MP3|320 Kbps] <Dance, Club, Techno, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943765.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nick Henley - Progression
+002. Ruddek - Boring Talk (Extended Mix)
+003. Plurthlings - On Shrooms
+004. Mi Ni - Power Of You(   Читать дальше...   )Жанр: Dance, Club, Techno, HouseПродолжительность: 08:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5A24A5F257FA83DDC6CB4D80EA7030BFAABBC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363292   (943759) от 27.02.2020
+
+VA - Breathe Fire: Beach Dance Classics Radio (2020) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943759.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bramd - Home (Dance Radio Edit)
+002. Chris Burke - Freak
+003. Stuart Mcniven - 3rd Inferno
+004. Louder - Leo In Space(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 07:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB34A93A4A348ECCD79BC01D5A28888DD9788CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983366   (943742) от 06.02.2016
+
+VA - Dance Зарубежка.Top 150 (2016) [MP3|256-320 кб/с] <Club, Dance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eurythmics - Sweet Dreams (DJ Vengerov Remix)
+002. Misha Pioner feat Annet - Addicted (Serge Devant Cover) (Original Mix)
+003. Panjabi MC - Mundian To Bach Ke (DJ Bandit Remix)
+004. D.Matrosov - Like That(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 10:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79CA87E632F21DD9CB555D6DCD28F85C6201251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983373   (943735) от 06.02.2016
+
+VA - 100% Рок Billboard (2016) [MP3|320 кб/с] <Pop, Pop-Rock, Electro, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943735.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Muse – Mercy
+2. Panic! At the Disco – Hallelujah
+3. Iamx – Happiness
+4. Apostol Feat. Mc Davi & Swed - Deal the final blow(   Читать дальше...   )Жанр: Pop, Pop-Rock, Electro, DanceПродолжительность: 01:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2F14ABE63971DD7A6C40401EA08106F3D7E386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983436   (943734) от 06.02.2016
 
 VA - Драйвовый жаркий музон (2016) [MP3|256 кб/с] <Pop>
@@ -571,180 +745,6 @@ VA - Bust A Move Vol.2 (2015) [MP3|320 кб/с] <Psychedelic, FullOn, Night>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C59B6AB8F31E677831B3CE5D4D1264BB99AECF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091502   (943108) от 09.01.2017
-
-VA - Resident Advisor - RA Poll Top 50 Tracks of 2016 (2017) [MP3|254-320 Kbps] <Minimal, Dancehall, Dub, Juke, IDM, Abstract и другие>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traumprinz - 2 Bad (Metatron's What If Madness Is Our Only Relief Mix) 10:20
-02. Pearson Sound - XLB (Original Mix) 06:19
-03. Avalon Emerson - The Frontier 07:35
-04. Willow - Untitled A2 04:32(   Читать дальше...   )Жанр: Minimal, Dancehall, Dub, Juke, IDM, Abstract, Experimental, Tribal, Downtempo, Funk, Deep HouseПродолжительность: 06:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B1A665042CE2DD633580851428765A3272C53E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091107   (943103) от 09.01.2017
-
-VA - Singles Chart Hot 100 Billboard (24 December) (2016) [MP3|32-320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943103.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
-002. The Weeknd feat. Daft Punk - Starboy 3:51
-003. The Chainsmokers feat. Halsey - Closer 4:06
-004. Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CCBD66553FD5C4C99300E4B2B6FACBD5A64A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091120   (943026) от 09.01.2017
-
-VA - Зимний драйв. Русский сборник (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943026.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Саша Санта - Попрошу 3:25
-002. Яков Самодуров - Хочу 3:15
-003. Play - Друг 2:51
-004. Митя Фомин Feat. Fomka - Мобилка 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133BFD904CD8E8820DC3546D8337AF8A0D7B832A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091055   (943007) от 09.01.2017
-
-VA - Russian DJs In Da House Vol. 173 (2017) [MP3|256-320 Kbps] <Electro House, Remixes, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2NICA & Maxx Play ft Aristina - Shake It (Original) 5:57
-02. Adina Howard - Freak Like Me (DJ Kirillich & DJ Alex Moscow Remix) 3:56
-03. Alan Walker - Faded (Alexx Slam, Leo Burn ft. TPaul Sax Mix)  4:34
-04. Andrey Keyton, Chunkee - Want Your Love (Original Mix) 5:20(   Читать дальше...   )Жанр: Electro House, Remixes, Club HouseПродолжительность: 02:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7406288A77844DDC2E9E1CE564386419E6FA1A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091484   (943005) от 09.01.2017
-
-VA - veloKEOtop101 (2017) [MP3|320 Kbps] <Dance, Lounge, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943005.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aqualuna - All In Love (Vocal Chill Mix) (06:00)
-002. Carlos Vives & Shakira - La Bicicleta (03:46)
-003. Bengale - Açores (06:49)
-004. Jazzamor - Life Is So Real (Original Mix) (04:01)(   Читать дальше...   )Жанр: Dance, Lounge, Pop, House, Electronic, ChilloutПродолжительность: 06:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A539F3FF561DDB26B1B4BA81E2A55AED5C53AB2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091573   (942926) от 09.01.2017
-
-VA - House Clubhits Megamix 2017.1  [MP3|320 Kbps] <Indie Dance, Club, UK Garage, Progressive, Bigroom, Tropical>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942926.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Various Artists - House Clubhits Megamix 2017.1 DJ Mix, Pt.1 1:17:59
-002. Various Artists - House Clubhits Megamix 2017.1 DJ Mix, Pt.2 1:19:35
-003. Various Artists - House Clubhits Megamix 2017.1 DJ Mix, Pt.3 1:13:11
-004. Robin Schulz feat. Akon - Heatwave (Muzzaik Remix) 4:17(   Читать дальше...   )Жанр: Indie Dance, Club, UK Garage, Progressive, Bigroom, TropicalПродолжительность: 12:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A687C4E17250D7B4FC48718E0863410C7EA3B4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

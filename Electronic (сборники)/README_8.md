@@ -1,3 +1,32 @@
+###  Публикация: 1462442   (1021224) от 14.04.2021
+
+VA - Vocal Synthwave Retrowave 1 (2021) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Color Theory - This Whole Nothing (4:02)
+02. Modeling - Nothing Unexpected (5:54)
+03. Space March - It's Not Over Yet (4:53)
+04. Primo - Do It Again (3:17)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 05:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC92FC50AD7E47E98F3AD711A9D8D73A02A3AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462291   (1021190) от 14.04.2021
 
 VA - Night Rider 4 (2021) [MP3|320 Kbps] <House>
@@ -716,35 +745,6 @@ VA - Record Super Chart 08.05.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:227AA6F29E6E9EB9251A6544DFA1EA607F66190F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469104   (1016749) от 10.05.2021
-
-VA - Top 100 Euphoric Trance (2021) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция транс музыки с наименованием "Top 100 Euphoric Trance", станет Вашим проводником в мир самой актуальной и нестандартной музыки. Пластичные переходы от агрессивного строю к растянутому лаунжу и резкие амплитудные всплески электронной музыки под аккомпанемент пространственного бита, под который тело само стремиться в движение будут с Вами на протяжении (   Читать дальше...   )001. Spyndl - Dark Spaces
-002. Vinny Degeorge - Forza
-003. Genetic - Revelations
-004. DJ Sakin - Dream Of Eternity(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 09:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14C713DB0DA9A512CF4C210242D35611ED98B34
 ```
 
 https://mybot314.ru/tekegram_catalog/

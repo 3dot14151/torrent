@@ -1,3 +1,61 @@
+###  Публикация: 1367684   (915551) от 16.03.2020
+
+VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legal - Holding Back [04:19]
+02. BK - Sleeper Cell [04:30]
+03. Jake Robertz - Guest List [04:37]
+04. B1tyze - International Clash [04:14](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6BF945C9651AB0882A7082413125401CDEB956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367685   (915514) от 16.03.2020
+
+VA - Buddha-Bar XXII (by Ravin) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компиляция всемирной известной сети ресторанов Buddha Bar. Выполнена в привычной манере - первый диск Dinner Time (как называют его работники сети). Красивый мультикультурный лаунж. Именно такая музыка играет в ресторанах "Будда Бар" во время обеда и ужина. Второй диск - Party time (обычно такая музыка звучит после 23:00 в ресторанах сети) - в этом году (   Читать дальше...   )01. Markus Schulz & HALIENE - Ave Maria (Acoustic Mix)  (3:47)
+02. Le Mirage du Maghreb - The Journey  (3:22)
+03. Paskal & Urban Absolutes feat. Susan - Close My Eyes  (4:26)
+04. Reewa & Ravin - Yaaram (Lounge Mix)  (4:32)(   Читать дальше...   )Релиз состоялся: 14 марта 2020 годаЖанр: Lounge, Chillout, AmbientПродолжительность: 02:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7462D5D92EDB2F59A7C3BEFD207A1523A68860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490404   (915509) от 22.08.2021
 
 VA - Black Hole Trance Music 08-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -687,61 +745,6 @@ VA - Sunset Moods: Tulum (A Selection of Finest Sundowner Island Moods & Grooves
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D517AF5D27C490F032CEB1BAB96D31648DE4E193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368082   (912234) от 18.03.2020
-
-Chris Oblivion - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912234.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Last Drops of A Waterfall (7:51)
-2. Hypnotic Dim Rays (8:34)
-3. All I Have (6:03)
-4. Chris Oblivion; Greg Staikos - Lost Frequencies (6:50)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E766CDC05058C4D2F4D5095E4B676B96120E2E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368139   (912221) от 18.03.2020
-
-K Ø Z L Ø V (K O Z L O V) - Coronavirus (2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coronavirus (Antidote) (05:40)Жанр: Techno, IndustrialПродолжительность: 00:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2F5179DA41E290C88724BD2B45567190C5E7B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

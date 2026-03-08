@@ -1,3 +1,32 @@
+###  Публикация: 1512245   (235778) от 24.11.2021
+
+Stian Carstensen - Musical Sanatorium (2021) [FLAC|Lossless|tracks + .cue] <Modern Creative, Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musette Epithalamus (4:57)
+02. Hippocampus Serenade (6:44)
+03. Synaptic Saltarello (4:00)
+04. Medulla Galliard (7:12)(   Читать дальше...   )Жанр: Modern Creative, Fusion, Contemporary JazzПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3068FFFC61EA11A5FBD3AB7E2E7618D4CD368A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635865   (235777) от 28.05.2023
 
 Kansas City Band - Barrelhouse ☆ Hey! Hey! (2001) Audio Park [FLAC|Lossless|tracks + .cue] <Swing>
@@ -716,35 +745,6 @@ Ray Gelato And The Giants Of Jive - A Taste Of Gelato (1992) High Five Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACD7B06BADCCF11D5531997CBFD4F89EF78978E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641665   (235247) от 23.06.2023
-
-Carmen Lundy - This Is Carmen Lundy (2001) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Day, All Night [6:20]
-02. This Is the End of a Love Affair [3:58]
-03. Now That He's Gone [5:28]
-04. Better Luck Next Time [4:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B21B90891170D07CABCDF1F774CDF4CA6971C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

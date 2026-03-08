@@ -1,3 +1,177 @@
+###  Публикация: 1191515   (263025) от 17.12.2017
+
+VA - The best hits 80-90 Vol. 2 (2017) [MP3|192-320 Kbps] <Eurodance, Pop, Dance, Rap, Hip-hop, House, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beatles Revival Band & Orchestra - Yesterday (02:18)
+02. Demis Roussos - From Souvenirs To Souvenirs (02:33)
+03. Spice Girls - Wannabe (02:51)
+04. Vaya Con Dios - Nah neh nah (02:56)(   Читать дальше...   )Жанр: Eurodance, Pop, Dance, Rap, Hip-hop, House, ClubПродолжительность: 15:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6084D7A4F61931473F3839909C22568DB59C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192368   (262958) от 17.12.2017
+
+VA - Зайцев.Нет: Лучшие Новинки Декабря (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Север.17  -  Песня  4:00
+02.  Moby  -  Like A Motherless Child  4:37
+03.  Kygo feat. Justin Jesso  -  Stargazing (Kaskade Remix)  3:03
+04.  Ханна  -  Опять одна я  2:49(   Читать дальше...   )Жанр: PopПродолжительность: 03:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A51B0E5F717766EAC51EB84867F3297FAE0316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341144   (262938) от 26.11.2019
+
+VA - Sounds Of New Generation (2019) [MP3|320 Kbps] <Electronic, Synth Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262938.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Three Women In Charge - Dilly Dally
+002. Mentallo & The Fixer - Sacrilege
+003. Low Tape - Walking The Streets
+004. Beatamines - I Got (Original Mix)(   Читать дальше...   )Жанр: Electronic, Synth ElectronicПродолжительность: 13:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7355135B1E05DC2B937815E46F49BB701BE3583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341147   (262911) от 26.11.2019
+
+VA - Luky Number: Electronic Euphoria (2019) [MP3|320 Kbps] <Electronic, Synthetics Sound>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262911.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mugwump - Empty Peculiar
+002. Daniel Jaeger - Generation Change
+003. Sainmusic - To Dream Alone
+004. Lower Synth Department - Fall Of Man(   Читать дальше...   )Жанр: Electronic, Synthetics SoundПродолжительность: 11:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B322AF62005975714ADBBA7A805F97A5DD53549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341089   (262899) от 26.11.2019
+
+VA - The Playlist - Big Ones 2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262899.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lil Naz X Ft Billy Ray Cyrus - Old Town Road
+02. Kygo & Whitney Houston - Higher Love
+03. Tones And I - Dance Monkey(   Читать дальше...   )Жанр: PopПродолжительность: 02:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533A37B9FC7A2F748F2DE4EB5ADE3E1E0D7A25C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340967   (262889) от 26.11.2019
+
+VA - Зайцев.нет Свежие хиты Ноябрь 2019 [MP3|320 Kbps] <Pop, Club, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262889.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Bon Jovi - Unbroken (6:07)
+2.SHOO - Кольцо (6:06)
+3.Agnes Obel - Island Of Doom (5:28)
+4.Jessie Ware - Mirage (Don’t Stop) (4:47)(   Читать дальше...   )Жанр: Pop, Club, OtherПродолжительность: 02:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A104F8CCDA8335A63CF2A5C6BB3987D41AE1C086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192637   (262828) от 18.12.2017
 
 VA - Empire Records - Classic (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -571,180 +745,6 @@ VA - Creativity: Rap Playlist (2019) [MP3|320 Kbps] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB2D71CC7CD135717F9F66DE9A74E839F8923643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341473   (262307) от 28.11.2019
-
-VA - Soul And Love Song (2019) [MP3|320 Kbps] <Soul, R&B, Other>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262307.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Allуshа Jоу - Fnfl
-002. Jеаn Dеаux - It’s Whаtеvеr
-003. Quеntin Mооrе - Swееt Sроt
-004. K'nуа - Cоnstаnt(   Читать дальше...   )Жанр: Soul, R&B, OtherПродолжительность: 09:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E27A3ABAB293B47A12F351A3FF1111A86404BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341453   (262293) от 28.11.2019
-
-VA - Yoga And Meditation Ambient Music (2019) [MP3|320 Kbps] <Ambient, New Age, Relaxation>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262293.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hilsa - Ilish
-002. Niteanday - Always There
-003. Melezh - Flying With Meteors (Ambient Edit)
-004. Marga Sol - Morning Sun(   Читать дальше...   )Жанр: Ambient, New Age, RelaxationПродолжительность: 11:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D2CAB0D03ED0A7ECDA10F32D63339F55849A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193206   (262255) от 20.12.2017
-
-VA - De Top 100 Aller Tijden 1973 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262255.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sharif Dean - Do You Love Me (3:41)
-002. Rolling Stones - Angie (4:32)
-003. Redbone - We Were All Wounded At Wounded Knee (3:31)
-004. Gerard Cox - 't Is Weer Voorbij Die Mooie Zomer (4:29)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCDC0761ACCBAE1F82344D6740DF86FE036B6BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193276   (262250) от 20.12.2017
-
-VA - Remix Voyage Vol.1 (2017) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hi-Fi  -  Седьмой Лепесток (DJ Golden Love Remix)  3:21
-02.  Лариса Черникова  -  Да ты не смейся (Sergey Litvinov Reboot)  3:27
-03.  B.G. The Prince Of Rap  -  Never Give Up (B.M. Project Eurodance Remix)  4:26
-04.  Liz Project  -  Моя подруга (DJ Sergey Litvinov Remix)  3:53(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 06:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FB765EF3A50FD2730F79B2DC89CC1432601BC0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193464   (262118) от 21.12.2017
-
-VA - Remix Voyage Vol.2 (2017) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sergey Sirotin & Golden Light Orchestra  -  Around The World (Johnny Beast Remix)  5:41
-02.  ABBA Revival Band  -  Super Trouper (Dance Remixed Version)  3:34
-03.  Alan Walker  -  Sing Me To Sleep (DJ Oneon Remix)  3:46
-04.  Donna Summer  -  Nice To See You (Radio Club Version)  3:27(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 06:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A34F1DDAFC720AF86DC9D514CCF58A3493B5620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193389   (262111) от 21.12.2017
-
-VA - German Top 100 Single Charts 22.12.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262111.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Perfect
-002. Bausa - Was du Liebe nennst
-003. Camila Cabello - Havana (feat. Young Thug)
-004. Justin Bieber - Friends(   Читать дальше...   )Жанр: PopПродолжительность: 05:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9E24DF8E433E6955301EA829B50BF78876EF5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

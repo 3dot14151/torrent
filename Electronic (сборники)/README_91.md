@@ -1,3 +1,32 @@
+###  Публикация: 1030494   (675000) от 30.06.2016
+
+VA - Digitize Just A Dream (2016) [MP3|320 Kbps] <Trance, Energy, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RAM & Susana -  Someone Like You (Bobina Remix) 5:55
+02. Cosmic Gate & Emma Hewitt -  Going Home (Club Mix) 6:18
+03. Kaimo K & Cathy Burton -  You Deserve Life (Mino Safy Remix) 7:09
+04. Armin Van Buuren Feat. Mr Probz -  Another You (Mark Sixma Remix) 4:42(   Читать дальше...   )Жанр: Trance, Energy, MelodicПродолжительность: 03:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D45833B1EAC24C10EA92E878CFB025B0C5E8D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030529   (674998) от 30.06.2016
 
 VA - Club Continued Sound Places (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -715,35 +744,6 @@ VA - Cafe del Mar: Best of the Best (2019) [MP3|320 Kbps] <Lounge, Future-Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0771DABB8B9848AC8FF968984E1F947FFADBE24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030592   (672173) от 01.07.2016
-
-VA - Running Hits & EDM (Non-Stop for Fitness & Workout) (2016) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672173.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Teknova -  Drop The Bounce (Original Mix) 4:31
-002. Klaas -  Night To Remember (Dany Lorence Remix) 5:04
-003. Paul Oakenfold & Matt Goss Present The Concrete Sneakers -  Touch The Sky (Faustix & Imanos Remix) 5:09
-004. Firehunterz -  Tornado (Original Mix) 4:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 09:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF14DE2878F62FD1C39346E8FC28305226FA748
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1244441   (482085) от 01.09.2018
+
+Andrea Motis - Emotional Dance (2017) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He's Funny That Way [4:50]
+02. I Didn't Tell Them Why [2:30]
+03. Matilda [6:52]
+04. Chega de Saudade [5:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BBB9FCC7CF1EE1448827C44F635A2FB4E2F4E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056327   (481887) от 25.09.2016
 
 Optimystica Orchestra - Иду Налегке (2010) EP [FLAC|Lossless|Web-DL|tracks] <Jazz, Smooth Jazz, Brass Band>
@@ -721,35 +750,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D0CD5C1E1AF563C2973FF5CBA3FDD8D08591198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244803   (478165) от 03.09.2018
-
-Jessica Molaskey - Portraits of Joni (2017) Ghostlight Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help Me [3:27]
-02. Dreamland/Carey [3:40]
-03. A Case of You [5:17]
-04. The Dry Cleaner from Des Moines [2:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92AD8832EE97C6F0FFCC135B06EC98660670397
 ```
 
 https://mybot314.ru/tekegram_catalog/

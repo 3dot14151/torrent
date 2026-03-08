@@ -1,3 +1,61 @@
+###  Публикация: 1768016   (33259) от 23.12.2024
+
+VA - A State Of Trance Year Mix 2024 (Mixed By Armin Van Buuren) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33259.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren & Moby - Extreme Ways (Extended Mix) (06:08)
+002. Jerome Isma-Ae - Hold That Sucker Down (Hel:slowed Extended Remix) (05:09)
+003. Hel:slowed & Amber Revival - Wildfire (Extended Mix) (07:15)
+004. Estiva - Fine Day (Extended Mix) (07:00)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 13:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CE2DCD0BF20DC3868756390DC4B89433CAB215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767927   (33236) от 23.12.2024
+
+VA - The Best Releases 2024 of Your Melodies (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iberian - Trust Me (Original Mix) (06:09)
+02. Ocoro - Honjaya (Original Mix) (07:52)
+03. Juan Almiñana Obando & Poetry Maiden - Never Again (Original Mix) (07:04)
+04. SounEmot, Arcvalx & Elyssandre - Don't Let Them Take Away Your Light (Original Mix) (05:26)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B06B3B4D9FCD535AE4F8CD03A140E6F5DA1FA91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767978   (33231) от 23.12.2024
 
 VA - The Best Releases 2024 of High Emotions (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -684,64 +742,6 @@ Blank & Jones - Chilltronica №5 (2015) [MP3|320 кб/с]<Chillout, Downtempo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE792DA0512865BEDD61B352167D7C522AFCDDCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 865310   (32018) от 04.01.2025
-
-Marcus Koch - Chillscapes Vol.1 (2014) [MP3|320 кб/с] <Downtempo, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Fields (03:34)
-  02. Sundowner (04:50)
-  03. Moon Safari (07:07)
-  04. Dark Heart (04:52)(   Читать дальше...   )Жанр: Downtempo, Chill OutПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7E725A5C9BEAD5580FCABD120A67C09973B189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884195   (32017) от 04.01.2025
-
-VA - Milchbar Seaside Season 7 (Compiled By Blank & Jones) (2015) [MP3|320 кб/с]<Chillout, Downtempo, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - Milchbar 10:00 AM (3:23)
-02. Blank & Jones with Jason Caesar - Lovelee Dae (Morning Breeze Version) (2:59)
-03. Nick & Samantha - Bitter Sweet Song (Milchbar Mix) (3:50)
-04. Afterlife - Pirates (Milchbar Mix) (4:21)(   Читать дальше...   )Жанр: Chillout, Downtempo, AmbientПродолжительность: 01:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AF645B129F95412205A070101C74D9F85FDBF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

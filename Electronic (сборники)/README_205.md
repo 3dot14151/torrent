@@ -1,3 +1,32 @@
+###  Публикация: 970593   (141620) от 30.12.2015
+
+VA - New Year Party (2016) (2015) [MP3|320 кб/с] <Club, Progressive, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic – To The Party (Radio Edit) 03:43
+ 02. Mr X Project – Let’s Run Away (Teknova Remix) 03:52
+ 03. Mario Sem Ft John Mood – Run Again (Stephan F Remix) 05:24
+ 04. Eliza G Ft Lion D – Ladies Nite (Turbotronic Remix Edit) 03:45(   Читать дальше...   )Жанр: Club, Progressive, HouseПродолжительность: 03:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214A2352E2D71100EF3045469297438571C22658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348803   (141270) от 29.12.2019
 
 VA - Record Super Chart 2019 Итоговый [MP3|320 Kbps] <Pop, House, Dance>
@@ -713,35 +742,6 @@ VA - Black and White (Compiled by Lazyra) (2015) [MP3|320 кб/с] <Trance , Upl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D19F49AEA338D3396A83EEAE9F39DAA019BEE75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088563   (137283) от 31.12.2016
-
-VA - District of Trance Vol. 2 (Compiled & Mixed by Lazyra, Pilligrim & Deeper) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Atmospheric Breaks, Progressive Breaks>
-
->>След.
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZANIO - Will (Elevate & Raggapop Inc Remix) (6:28)
-02. Yuriy From Russia - Keep Your Head Down (Original Mix) (7:50)
-03. Bring Bliss & Sonya P. - Wish the Night (Stas Isometrica Remix) (6:05)
-04. Platunoff - The Time To Go (Original Mix) (7:12)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Atmospheric Breaks, Progressive BreaksПродолжительность: 03:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F3C037623534BEACC0608FABD344DD3751C083
 ```
 
 https://mybot314.ru/tekegram_catalog/

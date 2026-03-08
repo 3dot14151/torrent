@@ -1,3 +1,177 @@
+###  Публикация: 1030402   (674988) от 30.06.2016
+
+VA - Dj Sound Club Flash Colours (2016) [MP3|240-320 Kbps] <Club, House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674988.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Gollum & Empyre One - Let The Love Shine (Radio Edit) 03:34
+002. Dj Eddy-N Feat. Iva & Heat - Be Free (Club Electro Remix 2K13) 05:04
+003. Dj Dan - American Girls (Club Mix) 06:54
+004. Dj Kay Huff - Don't Let Me Down (Roby Arduini Main Floor Mix) 04:48(   Читать дальше...   )Жанр: Club, House, ElectroПродолжительность: 09:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0102EA56D71D4283D197AAD24EB546145597A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030505   (674978) от 30.06.2016
+
+VA - Bar Grooves Vol.3- From Groovy Lounge to Soft Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luigi Seviroli - Lifesource - Full Mix
+02. Jolstone - Distances - Full Mix
+03. Luigi Seviroli - Silky - Full Mix
+04. Giacomo Bondi - One Room Heart - Full Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D54CCF6BD9EE78A0FC7419CDABBE2C00E4148C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030399   (674800) от 30.06.2016
+
+VA - Digital Muse: Techno Mix July (2016) [MP3|320 Kbps] <Techno Trance, Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neos - Predator (Neos Dark Remix)
+02. No Rabbitz - El Nacimiento
+03. Andy Elliass - Gravity (Joze Linecker Remix)
+04. Manu P - Garage Monkey(   Читать дальше...   )Жанр: Techno Trance, Minimal, Tech HouseПродолжительность: 08:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A083EF213D94D7C5DFCCFE821B89E1AC5938F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030189   (674789) от 30.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 30 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. France Joli - Walking Into A Heartache ( 1983 )
+02. Europa - Europa ( 1981 )
+03. Hazell Dean - The Say It's Gonna Rain ( The Zulu Mix 1988 )
+04. Laser Cowboys - Ultrawarp ( Final Conflict 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2698A5DCFC928EB40CA63F60712BCE5EDBFC626B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030185   (674782) от 30.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 29 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avant Garde - You Got To Be Strong ( Hi-Q Mix 1994 )
+02. Paul Boy - Lucky Guy ( 1988 )
+03. Brooklyn Bounce - Take A Ride ( Radio Mix 1997 )
+04. Laserdance - Shotgun ( Into The Night ) ( 1988 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EE0EA324BAFD88E90C6D9FA272201514858C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030181   (674776) от 30.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 28 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desireless - John ( 1986 )
+02. Curacao - You ( 1988 )
+03. Steel Mind - Bad Passion ( 1982 )
+04. Primadonna - I Wanna Give You My Heart ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756E562822C1344F8331623A0B7F71FA769C15CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030265   (674774) от 30.06.2016
 
 VA - Sweet Harmony EDM Extended Mix (2016) [MP3|266-320 Kbps] <Dance, House, Electro>
@@ -570,180 +744,6 @@ VA - Marco Rochowski - The Great Composer Collection (2016) [MP3|192 - 320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C76BBD87FF88260E57E0824F664A7BA884EAF9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030262   (674286) от 30.06.2016
-
-VA - Sweet Delusion: Blues Rock Vol. 07 (2016) [MP3|320 Kbps] <Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелодии альбома "Sweet Delusion" обладают непередаваемым шармом и великолепным звучанием. Слушая композиции сборника мы в мыслях переносимся на несколько целых десятков годов назад, в эпоху гангстеров, кадиллаков и дорогих костюмов.  вошедшие треки достаточно оригинальны и неподражаемы, они обязаны стать интересными не только заядлым любителям стиля рок (   Читать дальше...   )01. Big Boy Bloater & The Limits - Not Cool Man
-02. Vargas Blues Band - Avenida De Mayo
-03. Henrik Freischlader - A Better Man
-04. Chicken Shack - Baby's Got Me Crying(   Читать дальше...   )Жанр: Blues RockПродолжительность: 03:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E5EB36484EF71FCC7372C7D819321EEBB0CD85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030390   (674272) от 30.06.2016
-
-VA - Vocal Melody Salvation (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sneijder & Katty Heath -  The Only Place (Original Mix) 7:04
-02. Aly & Fila ft Luke Bond & Audrey Gallagher -  Million Voices (Original Mix) 7:38
-03. Yuri Kane & Ana Criado -  Running Wild (Liam Wilson Remix) 6:33
-04. Christina Novelli Vs Lanos -  Home (James Dymond Extended Remix) 7:48(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B3E0AD7064D6D244074DB775A2A9D19954FA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030487   (674267) от 30.06.2016
-
-VA - Dirty Blues Rock (2016) [MP3|320 Kbps] <Blues, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Boy Bloater & The Limits - Not Cool Man
-02. Vargas Blues Band - Avenida De Mayo
-03. Henrik Freischlader - A Better Man
-04. Chicken Shack - Baby's Got Me Crying(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 03:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692CAD69ADD907F2692D8D50103FE4CDAD0A3F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803440   (674218) от 22.05.2017
-
-VA - The Best Rock - 100 Greatest Hits (2014) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ACDC - You Shook Me All Night Long
-002. Motorhead - Ace of Spades
-003. Guns and Roses - Paradise City
-004. Red Hot Chili Peppers - Otherside(   Читать дальше...   )Жанр: RockПродолжительность: 07:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8078BB0E081DCC983FC6F03687F6E7C5D864130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290839   (674182) от 22.03.2019
-
-VA - Hardstyle Music For Sports (2019) [MP3|256 Kbps] <Hardstyle, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674182.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andу Thе Cоrе - Itаliаn Psусhо
-002. Aksуs - Nо Esсаре
-003. Dj Dеll & Sсоtt Brоwn - Aсid Anthеm
-004. F.Nоizе Vs Anhаtеmа - Gеt Dоwn(   Читать дальше...   )Жанр: Hardstyle, Dance, ElectroПродолжительность: 09 :55 :21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA43627136E21A1E4636EAF5F4D55599E5F4495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290799   (674077) от 22.03.2019
-
-VA - не Громкие новинки недели 6 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker feat. Sabrina Carpenter & Farruko - On My Way
-02. Alena Grand - Потанцуй Со Мной
-03. Armin Van Buuren feat. Bonnie McKee - Lonely For You (Zack Martino Remix)
-04. Audax & Pri Pach - Wildfire(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C89CD06333BA1A04D4D4DA1BCD3C6C8646646CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

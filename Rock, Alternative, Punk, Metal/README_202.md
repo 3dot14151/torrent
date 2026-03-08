@@ -1,32 +1,3 @@
-###  Публикация: 1493935   (892411) от 05.09.2021
-
-Николай Емелин ( Никола Емелин ) - Коло колъ  (2005) [FLAC|Lossless|tracks + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Русь
-02. Царские забавы
-03. Вечерком
-04. Хватит стрелять(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BC70A54ADFB99C1F572FF5BAF67B71657332CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493904   (892410) от 05.09.2021
 
 Chris de Burgh - The Legend of Robin Hood (2021) [MP3|320 Kbps] <Pop Rock, Folk Rock>
@@ -746,6 +717,35 @@ Pixies - Indie Cindy (2014) Deluxe Limited Edition [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AADD930D9960CE91A7F951FAFFD7B0387058A77A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102237   (891188) от 09.02.2017
+
+Fight The Fight - Fight The Fight (2017) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891188.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fight the Fight
+2. The Edge
+3. The Other Side
+4. Perfect Combination(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECF659B399F0236FB4B891A8523B7F2340AEF3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

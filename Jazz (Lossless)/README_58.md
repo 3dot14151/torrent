@@ -1,3 +1,32 @@
+###  Публикация: 1005739   (830712) от 10.04.2016
+
+Frank Sinatra - A Jolly Christmas From Frank Sinatra (1957) remastered 1987 [FLAC|Lossless|image + .cue] <Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jingle Bells  2:01
+02.  The Christmas Song  3:29
+03.  Mistletoe And Holly  2:18
+04.  I'll Be Home For Christmas  3:12(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05FCB9308D893FF75F22BC162EB47BB57896CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502131   (830291) от 13.10.2021
 
 Jazz At Lincoln Center Orchestra - The Music Of Wayne Shorter (2015) 2CD, 2020, Blue Engine Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
@@ -716,35 +745,6 @@ Woody Shaw - Field Recordings Of A Jazz Master (1975, 1980,1981) 2012, Internati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41544152DEE3D5F683EBEE2691A2A1097FAEFDE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115280   (826774) от 18.03.2017
-
-Houston Person - Broken Windows, Empty Hallways (1972) 2004, Prestige [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Think It's Going To Rain Today [06:13]
- 02.Don't Mess With Bill [03:12]
- 03.Everything's Alright [04:31]
- 04.Mr. Bojangles [04:07](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2858C4D02BB4D6E95FCBF3952304D7B39CDD4E23
 ```
 
 https://mybot314.ru/tekegram_catalog/

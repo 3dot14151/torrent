@@ -1,3 +1,31 @@
+###  Публикация: 1855066   (1058061) от 23.02.2026
+
+Artur Guja, Marlena Siwiak, Marian Siwiak | Starting Data Analytics with Generative AI and Python (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Whether you're a data novice or an experienced pro looking to do more work, faster, Starting Data Analytics with Generative AI and Python is here to help simplify and speed up your data analysis! Written by a pair of world-class data scientists and an experienced risk manager, the book concentrates on the practical analytics tasks you'll do every day.
+
+Inside Starting (   Читать дальше...   )Жанр: Software Design Tools, Software Development, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B52F3D04F66FE582AEE0F51E9EC36D76A1AA826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855065   (1058060) от 23.02.2026
 
 Мариан Сивяк, Артур Гуджа, Марлена Сивяк | Анализ данных с помощью GenAI и Python (2026) [PDF]
@@ -184,32 +212,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854388   (1057424) от 17.02.2026
-
-Роланд Хасс, Билджин Ибрам | Паттерны Kubernetes: Шаблоны разработки собственных облачных приложений (2026) [Второе издание] [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057424.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Паттерны Kubernetes» — это не очередной справочник по настройке кластеров или описанию API. Это фундаментальный труд, который отвечает на самый главный вопрос: как эффективно проектировать и строить приложения, предназначенные для работы в Kubernetes? Авторы систематизировали лучшие практики, преобразовав их в паттерны. Книга учит не просто использовать Kubernetes, (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Д. ГудилинИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2C103F78DD154199D06DA9ECAD9DA169823A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854109   (1057345) от 18.02.2026
 
 Грег Уилсон | Разработка программного обеспечения на примерах с помощью Python (2025) [PDF]
@@ -307,32 +309,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD4644F93FD7EB73705F2A165CE09D547E151BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853345   (1056720) от 14.02.2026
-
-Валерий Рубанцев | Если бы у Диофанта был компьютер. Решаем исторические задачи по математике (2026) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Валерия Рубанцева «Если бы у Диофанта был компьютер» посвящена решению классических исторических математических задач, прежде всего диофантовых уравнений, с использованием современных компьютерных алгоритмов и программирования. Она предлагает новый взгляд на задачи древности, сочетая историю математики с практическими навыками вычислений, что делает ее полезной (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77ECAD8121E1CDFE07A61B47B03B88ADAC310B6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,6 +657,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74DF7B2333A18A11D6582A17B2A45DFE8548321D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852851   (1056550) от 12.02.2026
+
+Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Programming for Humans. 3rd Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Your Python code may run correctly, but what if you need it to run faster? This practical book shows you how to locate performance bottlenecks and significantly speed up your code in high-data-volume programs. By explaining the fundamental theory behind design choices, this expanded edition of High Performance Python helps experienced Python programmers gain a deeper (   Читать дальше...   )Жанр: Computer Performance Optimization, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C95BD1500740C3DF127BCBD18AC632C3EE40240
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1187056   (282549) от 27.11.2017
+
+VA - Trance The Vocal Session 2018 (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Vocal TranceПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C51A986864678F17A284D0E809BD64925DDBD7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187082   (282547) от 27.11.2017
+
+Roman Messer - Ambition (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - Ambition (feat Vito Fognini - original mix)
+02. Roman Messer - For You (feat Clare Stagg -  original mix)
+03. Roman Messer & DJ Xquizit - Empire Of Our Own (feat Osito - original mix)
+04. Roman Messer & Ruslan Radriges - At World's End (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8E3145CCE6EB64EA992FFB9330289FE9E321A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964320   (282244) от 11.12.2015
 
 Bad Lieutenant (ex-New Order) - Never Cry Another Tear (2009) [FLAC|tracks+.cue]<Synthpop, New wave>
@@ -687,61 +742,6 @@ Fluxsense - Ionosphere (2017) Uxmal Records [FLAC|Lossless|WEB-DL|tracks] <Psybi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71FD9AF4D0FC950DBB78F0DA51B44C015F807C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272153   (280522) от 18.12.2010
-
-Opus III - Guru Mother (1994) [APE|Lossless]<Vocal House, Ambient, Electronica>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Vocal House, Ambient, ElectronicaПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336242   (280512) от 06.11.2019
-
-VA - Liquid Drum and Bass Sessions 2019 Vol 1 & 2 (2019) Fokuz Recordings [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Macca & Loz Contreras - Better World (Lenzman Remix) (05:17)
- 02. Dreazz, Mackadena, Emery - Tell Me What You Want (05:04)
- 03. Random Movement - Sleazy Bitch (Ivy Lab Remix) (06:08)
- 04. Lenzman - String City (Artificial Intelligence Remix) (04:54)(   Читать дальше...   )Тип издания: WebЖанр: Drum n Bass, Liquid Funk •Продолжительность: 04:02:02 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C543EFC114C02909FA9A721C185C0876427E4B60
 ```
 
 https://mybot314.ru/tekegram_catalog/

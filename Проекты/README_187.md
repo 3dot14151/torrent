@@ -1,29 +1,3 @@
-###  Публикация: 1042899   (575974) от 14.08.2016
-
-Проекты - VideoHive - Lets Dance - 15449507 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон проекта для создания промо танцевального клуба.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0FC815AB51EDE58CD80D8E0A5C620F85843BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042923   (575967) от 14.08.2016
 
 Проекты - VideoHive - Ramadan Kareem - 8171463 [AEP]
@@ -686,6 +660,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D1EE47D7475F05A014E309B3C1B9BBABE8EAD42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920821   (575197) от 25.07.2015
+
+Проекты - VideoHive - Mosaic Slides [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4D60C0078EEBBA492F2C51BE90D785A0B7EFAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1320106   (475071) от 16.08.2019
+
+Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475071.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aqua Opening
+2. Aqua Balalaika
+3. Aqua Icebergs
+4. Aqua Waves(   Читать дальше...   )Жанр: OST, Cello MetalПродолжительность: 00:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E50B71718450F629F2F195EF9C59E01C3B10FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406562   (474910) от 03.09.2020
 
 Christopher Phillips - Piano Chill: Songs of Simon & Garfunkel (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
@@ -731,37 +760,6 @@ Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA244E70745E24651D5FA118BC5C81A8DC8AC3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 92549   (468156) от 06.09.2020
-
-VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы устали, и ничего не радует?
-Может быть, это стресс отнимает у Вас силы и лишает возможности радоваться жизни?
-Остановитесь на мгновение. Расположитесь поудобнее, включив этот диск. Вы обретете состояние равновесия и душевного покоя, почувствуете, как легкость и тепло разливаются по Вашему телу. Мир вокруг наполнится красками и ароматами экзотических цветов. Придут (   Читать дальше...   )01. Kowa - Rising Sun (4:39)
-02. Magec - Rainy Day (8:14)
-03. Arno - From a Distance (5:20)
-04. Mind Over Matter - The Lotus is opening (3:52)(   Читать дальше...   )Жанр: DreamMusicПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E61CC34F48863399C4F75C7679C98F7B0D7E5EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

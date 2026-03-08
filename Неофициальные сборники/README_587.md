@@ -1,3 +1,177 @@
+###  Публикация: 1827248   (185749) от 20.10.2025
+
+Amadeus Angelus - Collection (2021) [MP3|320 Kbps] <Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams (Radio Version) (3:12)
+02. Dreams (Instrumental Version) (4:18)
+03. One Step From Heaven (Special Version) (4:03)
+04. Dreams (Original Version) (4:18)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E011232BD847D4EECFCCC330A044A1C7F0B8C992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591970   (185230) от 20.11.2022
+
+VA - В машине с музыкой Vol.319 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Балаган Лимитед Feat. & Наталия Власова - На Закате (03:42) 2022
+02. Artu - Забыть Тебя (02:55) 2022
+03. Kerria Feat. & Amirchik - What If (03:53) 2022
+04. Shaman - Вороны Мои (03:00) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64AE046416FAD72524782C70F3C299D953DEA65F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426810   (185195) от 26.11.2020
+
+VA - Reggae Christmas! (2020) [MP3|320 Kbps] <Reggae>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steel Pulse - Chant a Psalm
+02. Toots & The Maytals - It's Christmas
+03. Walshy Fire,the Expanders,Randy Valentine - Rubble Rebel (Champion)
+04. Sting,Shaggy - Silent Night (Christmas Is Coming)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 02:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACE7F29AC7E04B13537CD7D52909E3AFA785469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592061   (185167) от 20.11.2022
+
+VA - DOWN LOW 2 (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gandolfi B. - Fucking Party (Original Mix) (5:34)
+02. Gareth Emery feat. Dani Poppitt - Friendly Fires (4:52)
+03. Johny Dark - People Like This (4:50)
+04. Нагора, Железный Акцент - Я вернусь (4:46)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 02:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED7D81714C6767CD12E9048C88B2C6AFA164577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591948   (185136) от 20.11.2022
+
+Korg S - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Highways
+02. Caprice 18
+03. Close Only
+04. Your Magic(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 05:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773E570056950396141C78797FC0E36386D5AB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592139   (185133) от 20.11.2022
+
+VA - В машине с музыкой Vol.320 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кристина Ашмарина  - Юра (04:05) 2022
+02. Elman Feat. & Mona - Истерика (02:36) 2022
+03. Staffорд63 Feat. & Dani Raid - Ай, Красивая (Yura Sychev Remix) (04:00) 2022
+04. Johnny Orlando - If He Wanted To He Would (02:52) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A159E58BCFDD2294C1066CC25C01CB58D77409F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592066   (185126) от 20.11.2022
 
 Modern Martina - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
@@ -571,180 +745,6 @@ VA - House Garden Music: Original Extended Mix (2020) [MP3|320 Kbps] <Electro Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FCC979952099FB7AFF06F8D2535558EA0DEE46F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427686   (181505) от 30.11.2020
-
-VA - Alternative Rock Music Event (2020) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181505.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Machine Gun Kelly - My Ex's Best Friend
-002. Glass Animals - Tokyo Drifting
-003. Kandle - Just To Bring You Back
-004. Even As We Speak - Someone(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A9D01E69CA3FDC83852D56882ABC8B3E250C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427697   (181495) от 30.11.2020
-
-VA - R&B: Jamaica Night (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181495.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Charlie Wilson - Charlie's Angel
-002. Brakence - Rosier,Punk2
-003. Teddy Bryant - I Dream Of You
-004. May - Stewardess(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D088703C17E3CB6C718F2A6BB5DE3BF60D6C80A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592706   (181464) от 25.11.2022
-
-VA - Крутые пушки Осень 2022 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travis Scott & HVME - Goosebumps (DZYZ Remix) (3:09)
-02. Moby - Lift Me Up (DeepDelic & Zigrov Remix) (5:05)
-03. Bob Sinclar x Nexboy, EMDI, Mikis - Knas Party 22 (DJ Baur Mixshow) (3:27)
-04. Deep Purple & Inndrive & XM & Holsten - Smoke On The Water (DJ Baur 22 Reboot) (3:50)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980A8CB942EDB07D050EF547B9CC751987C13AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427691   (181411) от 30.11.2020
-
-VA - Instrumental Rock Classic (2020) [MP3|192-320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sammy Boller - Dark Night Of The Soul
-002. Covet - Falkor
-003. Brave The Waters - Out Of Nowhere
-004. The Ascent - Secret Truth(   Читать дальше...   )Жанр: RockПродолжительность: 08:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455A3B9201EDFD823F3E471A6234B4CCAAF93CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427696   (181386) от 30.11.2020
-
-VA - Italo Disco: HN Radio Remix (2020) [MP3|271-320 Kbps] <Disco, Funk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181386.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joe Yellow - U.S.A.
-002. Savage Feat. Ice Mc - Where Is The Freedom
-003. Andy Bach - Don't Know
-004. Discotron - Disco Gettin' Jacked(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 12:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2A64B38F8621D67715BFE3CCD8B255C8259FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427958   (181381) от 30.11.2020
-
-VA - Music News vol.52 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181381.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fonari - Пьяные (02:38)
- 002. Addal - Angels (03:33)
- 003. Aiobahn feat. Rionos - Amnesia (05:21)
- 004. Al Fakher - Нет Чувств (02:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098D15600EF414ECB274DA0C24C596326A8861A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

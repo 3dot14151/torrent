@@ -1,3 +1,32 @@
+###  Публикация: 1237601   (550634) от 25.07.2018
+
+Ron Carter - The Puzzle (1986) SMS [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loose Change [8:40]
+02. Double Bass [6:44]
+03. El Rompe Cabeza [8:25]
+04. Sometimes I Feel Like A Motherless Child [1:53](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C963A7F426C63480D3E3173637D3941361564C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309690   (550537) от 20.06.2019
 
 Jane Bunnett - Cuban Odyssey (2002) Blue Note [FLAC|Lossless|image + .cue] <Afro-Cuban Jazz, Latin Jazz, Post-Bop>
@@ -719,35 +748,6 @@ Charles Gayle Quartet - Blue Shadows (1993) 2008, Silkheart[FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F26D1BDC804ACB7F1DDF3816BFC9F02A102D7876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047919   (548500) от 31.08.2016
-
-Johnny "Hammond" Smith - Talk That Talk (1960) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Talk That Talk [05:12]
- 02.An Affair To Remember [02:36]
- 03.The End Of A Love Affair [05:22]
- 04.Minors Allowed [05:46](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFF27108E63C476A12957FA810A39E8975F31DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

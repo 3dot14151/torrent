@@ -1,3 +1,61 @@
+###  Публикация: 1065192   (421763) от 22.10.2016
+
+VA - Decade of the Synth  Vol.1 (2016) [MP3|320 Kbps] <Disco, Nu Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vasiliy Arefiev - My Lost Melody  6:40
+02. Italo Brutalo - Velodrome  6:51
+03. Boy Funktastic - Beachs  4:16
+04. Ocsav - Move Your Soul  6:02(   Читать дальше...   )Жанр: Disco, Nu DiscoПродолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCF77C5512116EEA62DEDE1328EEB1151E49CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324807   (421332) от 11.09.2019
+
+Nino De Angelo - Samuraj (1989) LP [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продюсер: Dieter Bohlen01. Samuraj (3:57)
+02. Who's Gonna Love You Tonight (3:53)
+03. Have You Ever Been Lonely (3:07)
+04. Stay With Me (3:09)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C515ED411E1518A85D45CE728E37543BDCDF4588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065075   (421305) от 22.10.2016
 
 Dee D. Jackson - Automatic Lover [New Digital Version] (1977) Maxi-Single, 1988, Jupiter Records [FLAC|Lossless|image + .cue] <Disco, Italo-Disco, Euro-Disco, Hi-NRG>
@@ -680,64 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E16DD74A6324EAD333B3B7CDB8309A7978BE27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091164   (417507) от 01.10.2018
-
-Лена Василёк и Белый День - Босиком по России! (2015) [MP3|320 Kbps] <Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вера-Надежда-Любовь
-02. Мамин юбилей
-03. Папина дочка
-04. Сладкий мёд(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C6C424D2C1D7CC247141B395DBA4EA860E024C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167349   (417340) от 20.09.2017
-
-Titan - Dama (2016) [FLAC|Lossless|tracks] <Electropop, Nu Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dama Fina
-02. HelL.A. (featuring Siobhan Fahey)
-03. Tchaikovsky
-04. Sangre(   Читать дальше...   )Жанр: Electropop, Nu DiscoПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A40B223A228EB4FAC47D0ADE75CB0CA7294BD35
 ```
 
 https://mybot314.ru/tekegram_catalog/

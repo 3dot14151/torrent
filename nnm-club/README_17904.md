@@ -1,51 +1,24 @@
-###  Публикация: 1080321   (288277) от 07.12.2016
+###  Публикация: 1080584   (288377) от 07.12.2016
 
-Akela Sun - Ambient & Meditation (2016) [MP3|320 Kbps] <Ambient, Electronic, Soundtrack>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Across the Southern Slies (feat. Guido Negraszus) (09:25)
-02. Slow in Motion (04:39)
-03. Floating Ice (03:57)(   Читать дальше...   )Жанр: Ambient, Electronic, SoundtrackПродолжительность: 02:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B014C9602F859E79B4BB15DA8FBE44AA539356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080232   (288276) от 07.12.2016
-
-В.С. Кортов, С.В. Никифоров | Аналоговые устройства электронных приборов (2016) [PDF, DJVU]
+А. А. Ивин | По законам логики (1983) [DJVU]
 
 >>Научная и техническая литература
->>Учебники
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288276.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288377.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данное учебное пособие является составной частью учебно-методического обеспечения дисциплины «Электроника и микропроцессорная техника», при этом раздел схемотехники аналоговых устройств — один из важнейших в общетехнической и профессиональной подготовке специалистов по приборостроению и электронике. В нем закладываются фундаментальные знания о принципах работы, построения, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF, DJVU
+В книге рассказывается об идеях современной логики и логического анализа научных знаний, а также о задачах формальной логики и ее отношении к диалектической логике, связи языка с мышлением и действительностью, о способах различных доказательств и опровержений.
+
+Издание рассчитано на самые широкие круги читателей.Жанр: История, логика, науковедение, философияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDEEE077735E6C6F04A49966E0429CCE6D3918E5
+magnet:?xt=urn:btih:80268A20CBB62B78FE05C28F12334CAFCE26D854
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,161 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080736   (288275) от 07.12.2016
+###  Публикация: 1080596   (288376) от 07.12.2016
 
-Аарон Бирман | Казино изнутри. Игорный бизнес Москвы. От расцвета до заката. 1991-2009 (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288275.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сути своей, казино и честная игра – слова-синонимы. Но в силу непонятных причин, они пришли между собой в противоречие. И теперь простой обыватель, ни разу не перешагивавший порога официального игрового дома, считает, что в казино все подстроено, выиграть нельзя и что хозяева такого рода заведений готовы использовать все средства научно-технического прогресса, (   Читать дальше...   )Жанр: Документальная литература, Публицистика: прочееФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C01FE601A380FC0DE080E02426B3554C20BE966E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080579   (288274) от 07.12.2016
-
-Журнал | Открытые системы. СУБД №4 (214) (2016) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежеквартальный журнал «Открытые системы. СУБД» - старейший отечественный журнал о проектировании, создании и эксплуатации информационных систем различных масштабов. Журнал рекомендован Высшей Аттестационной Комиссией (ВАК) для публикации результатов диссертаций на соискание ученых степеней доктора и кандидата наук.Жанр: Компьютерные журналыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAED67C4A774D945D376DA51D7AF67309230C3A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263460   (288273) от 19.11.2018
-
-Kazuo Yashiro - Love Is Here To Stay (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_288273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is This Thing Called Love [3:58]
-02. Being a Good Magician [3:23]
-03. How Insensitive [3:27]
-04. Spring Is Here [3:54](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080456   (288272) от 07.12.2016
-
-Каталог | BADER Wasche&Mehr (Осень 2016) [PDF] [De]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каталог Bader Wasche&Mehr осень 2016 представляет красивое нижнее белье для женщин и мужчин, а также домашнюю одежду. Очаровательные изделия имеют как декоративную, так и корректирующую функцию. Онлайн каталог Бадер рассчитан на женщин среднего возраста, которые ценят комфорт и качество.Жанр: МодаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE974A67D87B95D4ABCAA66C7216E92DD8430AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263464   (288271) от 19.11.2018
-
-Kazuo Yashiro - Black Nag (1969) 2014, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_288271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love for Sale [4:01]
-02. Carolina [5:26]
-03. Marionette Blues [4:25]
-04. Black Coffee [5:42](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080639   (288270) от 07.12.2016
-
-Stellarium 0.90.0.8917 TEST [Multi/Ru]
+DesktopOK 4.46 Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288270.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288376.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stellarium — это свободный планетарий для Вашего компьютера с открытым исходным кодом. Он отображает реалистичное небо в 3D таким, каким Вы видите его невооружённым глазом, в бинокль или телескоп. Просто введите свои координаты и исследуйте небо!Язык интерфейса: Русский, Английский и др.
+DesktopOK - небольшая бесплатная и портативная (не требующая установки) программа, предназначенная для сохранения и восстановления местоположения иконок на рабочем столе. Утилита запоминает настройки для различных пользователей, позволяет сохранять позицию иконок для разных разрешений экрана, автоматически скрывает и отображает иконки, а также умеет сворачивать все (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47832E6C0075315D2D9CAF6794AD53BE8F6B674E
+magnet:?xt=urn:btih:A56A9C37E6E4EE3E5CFAF1DBF2797E655284DC30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,28 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263603   (288269) от 19.11.2018
+###  Публикация: 1080650   (288375) от 07.12.2016
 
-GSEP - Through The Clouds (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+Владимир Смехов | Ловушка для Хаоса (2016) [FB2]
 
->>
->>
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_288269.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Through The Clouds (Original Mix)                               [07:26]
-02. Through The Clouds (Andy Zee Remix)                             [06:36]
-03. Through The Clouds (Pedro Capelossi Remix)                      [07:17]
-04. Through The Clouds (Ingo Vogelmann Remix)                       [08:47](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:36:24
+В Срединном мире расположено могущественное и процветающее государство Фризания, где счастливо живут его обитатели в гармонии с окружающей природой. Но иногда на него нападают Темные силы Вселенной, которые начинают угрожать существованию всего живого. Эти силы способны принимать самые неожиданные формы, поэтому реагировать, защищаться, изгонять либо уничтожать их (   Читать дальше...   )Жанр: Боевое фэнтезиФормат: FB2
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:30C64005590DA967867FE688CF080167824A4D5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,28 +78,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080428   (288268) от 07.12.2016
+###  Публикация: 1080684   (288374) от 07.12.2016
 
-Divna Ljubojeviс / Дивна Любоевич - Divna - In Concert - Théâtre Des Abbesses, Paris (2004) 2006 JADE [FLAC|Lossless|image + .cue] <Religious, Choral>
+Людмила Ример | Ветер с Юга. Книга 1. Часть вторая (2016) [FB2]
 
->>Классика
->>Вокал (Lossless)
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288268.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Exapostilaire of the Dormition of the Mother of God (1:13)
-02. All of you who have been baptised in Christ (3:15)
-03. The Three Kings. Kings of Persia (2:38)
-04. God is with us! (2:26)(   Читать дальше...   )Жанр: Religious, ChoralПродолжительность: 00:51:05
+Продолжение романа Ветер с Юга.
+Шестиклассник Никита, чудесным образом оказавшийся в эпохе Средневековья, становится не только свидетелем, но и непосредственным участником захватывающих событий, происходящих в загадочных городах-государствах Солонии, Нумерии и Митракии, жизнь в которых наполнена ожесточенной борьбой за власть, интригами, предательством, любовными (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, Виртуальные мирыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A90D661613945BA7146D939AC0E24E9FA816D044
+magnet:?xt=urn:btih:0C7A94C1840B39A77BC8C3DCA3516CAFCAB199FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,54 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080745   (288267) от 07.12.2016
+###  Публикация: 1186111   (288373) от 24.11.2017
 
-Сестры / Sisters (1973) BDRip [720p/H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет завязан вокруг сестер — сиамских близнецов, которых разделили уже в зрелом возрасте. Они очень-очень разные, эти сестры…Производство: США / AIP & Pressman-WilliamsЖанр: Триллер, УжасыРежиссер: Брайан Де ПальмаАктеры: Марго Киддер, Дженнифер Солт, Чарльз Дёрнинг, Уильям Финли, Лайл Уилсон, Барнард Хьюз, Мэри Девенпорт, Дольф Свит, Кэти Берри, Олимпия ДукакисПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48263BF8B4149C3EBC77EFE3641113BC5B496686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263610   (288266) от 19.11.2018
-
-Martin Tolosa - Emphasis (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+VA - Chilling Process Vol.06 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288266.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Emphasis (Original Mix)                                         [08:43]
-02. Emphasis (Torby Jay Remix)                                      [06:27]
-03. Sunbright (Original Mix)                                        [08:03]
-04. Sunbright (Julian Nates Remix)                                  [07:19](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:38:34
+01.  Robien M  -  Amour (Original Mix) 5:58
+02.  CJ RcM  -  Surrealism (Original Mix) 6:14
+03.  Doors In The Sand  -  Does It Matter (Original Mix) 5:10
+04.  DJ Rostej  -  Like A Dream (Original Mix) 2:51(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:56:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:616C43EFB23F5535AB360FBC4649D1510587DA5E
+magnet:?xt=urn:btih:FB56EB33C615AAB52E421F281F672D390035FD33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,171 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080238   (288265) от 07.12.2016
+###  Публикация: 1186333   (288372) от 24.11.2017
 
-Г.М. Симаков, Ю.В. Панкрац | Цифровые устройства и микропроцессоры в автоматизированном электроприводе (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288265.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассматриваются типовые цифровые устройства. применяемые в автоматизированном электроприводе. Излагается общий подход к синтезу дискретных элементов автоматизированного электропривода с помощью аппарата алгебры логики. Изучаются стандартные блоки цифровой автоматики: регистры, счетчики, шифраторы, дешифраторы, распределители импульсов.
-   Приводятся (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01BF9F2E90E2A62E9AB002F5DF29D5882528441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263579   (288264) от 19.11.2018
-
-Agustin Vitale - S.O.S. (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.O.S. (Original Mix)[08:10]
-02. S.O.S. (GSEP Remix)[09:00]
-03. S.O.S. (Gabriel Amato Remix)[07:25]
-04. Wasnt Waiting For This (Original Mix)[07:59](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7960FCD7050B1493CBD9922EF1C777A4D0535000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263589   (288263) от 19.11.2018
-
-Alec Araujo and Cryptic Realms - Katharsys (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katharsys (Original Mix)                                        [08:40]
-02. Katharsys (Jackie Mayden Remix)                                 [07:40]
-03. Katharsys (NikoChristo and Synas Remix)                         [09:06]
-04. Katharsys (Ricardo Piedra Remix)                                [07:52]Жанр: Progressive HouseПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB695770FB1BFE1628DCA26C7AA6602B9D42F204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263599   (288262) от 19.11.2018
-
-Gabriel Amato - Parodi (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parodi (Original Mix)                                           [08:41]
-02. Parodi (Spacebeat Remix)                                        [08:31]
-03. Simbal (Original Mix)                                           [08:00]
-04. Simbal (Paul Sawyer Remix)                                      [08:06](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1264ECA5B86EDD5E9EB95BCF995F7EA7302123E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263614   (288261) от 19.11.2018
-
-Lacunae - 2 Albums (2004-2006) [FLAC|Lossless|tracks+.cue] <Trip Hop, Experimental, Illbient, Glitch, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Surface (01:22)
- 02. Lifetime (03:17)
- 03. Rebuild In Black (04:25)
- 04. Follow Me Down (04:00)(   Читать дальше...   )Тип издания: CDЖанр: Trip Hop/Illbient/Experimental/GlitchПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74A3AB5010A93633FC8372298503B948E68949C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263491   (288260) от 19.11.2018
-
-Hiroshi Matsumoto & Hideo Ichikawa Quartet - Megalopolis (1969) 2006, Think! Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Carola Grey - Noisy Mama (1992) Jazzline [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288260.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Sketch of City Life [15:31]
-02. Nostalgia [4:37]
-03. Megalopolis [5:56]
-04. Serenade to a Dimly Lit Street [5:10](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:01
+01. Hey, New Day! [04:45]
+02. Introduction (Drum Solo)/Bedsidestory [10:24]
+03. Redefining Love (For Stefan) [08:19]
+04. Don't Play It Again, Sam! [07:07](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3967BF2EE05ECABA1BEB355E2952950403951016
+magnet:?xt=urn:btih:5B38D13C217AF8857E49EBE31F0E1782822F6BEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,28 +163,169 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263391   (288259) от 19.11.2018
+###  Публикация: 1186249   (288371) от 24.11.2017
 
-Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 4. 5-й тур. Уэльс — Дания (16.11.2018) HDTV [H.264/1080i-LQ]
+Hank Mobley & Lee Morgan - Peckin' Time (1958) 2011, Analogue Productions [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High and Flighty [06:09]
+02. Speak Low [07:13]
+03. Peckin' Time [06:52]
+04. Stretchin' Out [09:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78EC1E0C257A7C2085E6EEFAAE9ACC62913F546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186394   (288370) от 24.11.2017
+
+Д. П. Бухарцев | Теоретические оруженосцы оппортунизма: ошибки правых в международных вопросах (1930) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Без преодоления правых, без решительной борьбы с их разлагающей пролетариат идеологией Коминтерн не сможет мобилизовать рабочий класс для революционной борьбы. Коммунистические партии должны подвергнуть жесточайшей критике не только тактические установки правых, не только их конкретные предложения, почерпнутые из арсенала реформистов, но и разоблачить все якобы научные (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD801DBD1FA0BC85D7723C100389AC53ACD7763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186116   (288369) от 24.11.2017
+
+VA - Pure Chill & Ambient Vol.09 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nikolay Mikryukov  -  Bora Bora (Original Mix) 7:18
+02.  Anton Delaitech  -  Lonely Rain (Original Mix) 4:19
+03.  Aeon Waves  -  Departure (Original Mix) 5:51
+04.  Koa  -  This Time (Intro Mix) 2:23(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456023764B049582B6D5C9B054EE92381FF18A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186243   (288368) от 24.11.2017
+
+Miles Davis - Chasin' The Trane (1955, 1956) 3CD, 2011, Le Chant du Monde [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288368.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Stablemates:
+01. Two Bass Hit [03:44]
+02. Ah-Leu-Cha [05:53]
+03. Little Melonae [07:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 03:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C4B9F318A8A8F99FF35D4EEC162855D933DA9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186274   (288367) от 24.11.2017
+
+В. А. Погосян | Проблема отчуждения в «Феноменологии духа» Гегеля (1973) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исходя из марксовой критики концепции отчуждения в «Феноменологии духа», автор исследует важнейшие социально-экономические и идеологические аспекты проблемы отчуждении, поскольку они уже намечались у Гегеля в связи с анализом Великой французской революции, развития буржуазного общества и т. д.
+
+Работа критически направлена против буржуазных интерпретаций проблемы (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2919ADFF70BAC2982A38987A4EBD07BFED4E2D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186198   (288366) от 24.11.2017
+
+Andrew Dream - New World (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288259.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 ноября 2018 года, пятница. 22:45 МСК
-Лига Наций УЕФА 2018-2019. Групповой турнир
-Лига B. Группа 4. 5-й тур.
-Уэльс — Дания(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:40
+01. New World (Original Mix)
+02. Voyage (Original Mix)
+03. Voyage (Vocal Version) (Original Mix)
+04. Heaven (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AC911A0F98E441459180174F2B8ACB705573F8D
+magnet:?xt=urn:btih:AECE7258850CD59233A382CFB8590A62FB923E63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,82 +333,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263594   (288258) от 19.11.2018
+###  Публикация: 1185980   (288365) от 24.11.2017
 
-Eli Spiral - Sol One (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sol One (Original Mix)                                          [08:35]
-02. Sol One (Magnovis Remix)                                        [07:46]
-03. Sol One (Willscape Remix)                                       [07:44]Жанр: Progressive HouseПродолжительность: 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B021CBD29E21C813F117358A74AAF7FED9D2BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186357   (288257) от 24.11.2017
-
-VA - Sexy Funky House Grooves Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazibiza - Everybody Dance (Original Mix) 06:43
-02. Dj CrEdo - I Want, Pump! (Club Mix) 06:36
-03. Charles Feelgood - Aerobic Martini (Original Mix) 06:45
-04. Mike Newman & Antoine Cortez - All Out (Original Mix) 05:54(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C9D1E355119999C83A4AA497C8B99760C33F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186388   (288256) от 24.11.2017
-
-Н. Ф. Чернышев | Капиталистическая монополия и милитаризм: истоки зловещего альянса (1987) [DJVU]
+А. Баранов (сост.) | Предание и Церковь: от смысла к вечности. Роль Священного Предания в Православной Церкви (2007) [PDF, DJVU]
 
 >>Разное (категория книг)
->>Публицистика
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288256.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге анализируется международная деятельность крупнейших промышленных корпораций и банков, направленная на усиление военных приготовлений и политической нестабильности, милитаризацию экономики, политики и идеологии ведущих капиталистических стран. Приводятся документы, иллюстративные материалы, свидетельствующие о широком участии финансовой олигархии в выработке (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+«Не спрашивайте Церковь: какое Писание истинно, или какое Предание истинно, какой собор истинен, какое дело угодно Богу, ибо Господь Иисус Христос знает Своё достояние, и Церковь, в которой живёт Он, знает внутренним знанием и не может не знать своих проявлений. Священным Писанием называется собрание ветхозаветных и новозаветных книг, которые Церковь признаёт своими. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7D3E425C4787810B54C8EE27CED24F865614D7A
+magnet:?xt=urn:btih:4FFD17FE76169FEBF1FF4DAEA8C93E612AA7E053
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,25 +359,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186134   (288255) от 24.11.2017
+###  Публикация: 1186124   (288364) от 24.11.2017
 
-Вечерний Ургант (2017.11.23) SATRip
+VA - Pure Chill & Ambient Vol.10 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288255.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:56Реклама: Присутствуют вставки текстовой рекламы
+01.  Seven24 & Soty  -  Vision (Original Mix) 4:41
+02.  DJ Party-Zan  -  Through The Mist (Original Mix) 5:22
+03.  Max Denoise  -  Destiny (feat. Angel Falls) (Alastair Pursloe Remix) 4:45
+04.  Iris Dee Jay  -  Paradise (feat. Maria Opale) (Original Mix) 3:40(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:49:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42A11F737240EC6F5F897AB0D1C8B5BA3C7A4D27
+magnet:?xt=urn:btih:10666F6296F7BD710AE1A317BB0D291C66CE9D84
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,80 +388,331 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186360   (288254) от 24.11.2017
+###  Публикация: 1186129   (288363) от 24.11.2017
 
-Вечерний Ургант (2017.11.24) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:44:51Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A487E63D6852AC6528B59F49AA5E92E8CEEF975C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186087   (288253) от 24.11.2017
-
-Almanac - Kingslayer (2017) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regicide
-02. Children of the Sacred Path
-03. Guilty as Charged
-04. Hail to the King(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C1D472152F8313890D1DB6CA54BB88075F1F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186214   (288252) от 24.11.2017
-
-Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.11.21) HDTV [H.264/1080i] (сезон 3, выпуск 21)
+Однажды в России (2017.11.22) WEB-DLRip (сезон 6, выпуск 13: Дайджест)
 
 >>Архив торрентов
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288252.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:47:02
+Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:43:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5743F6A02CBEA66412969A2F3093575760143498
+magnet:?xt=urn:btih:8A337F0B3E2DBBA056A9663A7C09FB93A8D8E1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186074   (288362) от 24.11.2017
+
+VA - Drivin Moods - 15 Dynamic Tunes For The Car - Moods Series Vol 4 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulmates - Fly Hi
+02. Jean-Pierre LaSalle - Circle Line (Cool Vibe version)
+03. Sound Surgeons - Novo Mundo (2011 Mix)
+04. PFL - Love me too (Instrumental)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED57460957A8A52525080A142ABB5E59BA9F0DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186228   (288361) от 24.11.2017
+
+Steve Brian - Enhanced Progressive 300 (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Steve Brian - Riviera (Steve Brian Mix Cut)
+02.Axis - Over You (Steve Brian Mix Cut)
+03.East & Atlas - Casablanca (Steve Brian Mix Cut)
+04.19 Hz - The Key (Steve Brian Mix Cut)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5291800B26415A7F3C2EC6A991B99EA5D32CE34E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186251   (288360) от 24.11.2017
+
+VA - Black Hole Trance Music 11-17 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Duguid - C.H.I.C. (extended mix)
+02. Myon - Albion (Mitiska extended remix)
+03. Sheridan Grout & Diana Leah - Broken To Pieces (extended mix)
+04. Novaspace - Revelation (extended mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CADE3A915D4AEDE67B21FBA00B4840F6FB14602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186215   (288359) от 24.11.2017
+
+Студия Союз (2017.11.23) WEB-DLRip (выпуск 16: Дайджест)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B00E699E3B76F689E0657B3E9FDA400825730E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186180   (288358) от 24.11.2017
+
+Футбол. Лига Чемпионов УЕФА 2017-2018. Обзор матчей 5-го тура. День 1-й (21.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288358.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 ноября 2017 года, вторник.
+Обзор матчей 5-го тура Лиги Чемпионов УЕФА 2017-2018.
+День 1-й:
+Группа E.  Спартак М (Россия) – Марибор (Словения)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25BE25410D189FA34E1984AA65BB0D275BF6A0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186160   (288357) от 24.11.2017
+
+Беседа с Евгением Федоровым (20.11.2017) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Активист НОД Максим Славин встретился с депутатом Государственной Думы России, координатором НОД Евгением Федоровым. Темы беседы: российский школьник из Уренгоя в бундестаге; у пацифистов нет Отечества; ситуация с валютными ипотечниками; законопроект о Конституционном собрании, «комитет трёхсот»; проповедь Патриарха Кирилла в день его рождения; в чём ценность Отечества.Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 01:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85995EB22286C39C537A3241E4DB151C291A7F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186293   (288356) от 24.11.2017
+
+Л. В. Шик | Методика подготовки и чтения лекции (1946) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое требование к любой лекции - это ее высокий идейно-теоретический уровень.
+
+«Нужно признать, как аксиому, что чем выше политический уровень и марксистско-ленинская сознательность работников любой отрасли государственной и партийной работы, тем выше и плодотворнее сама работа... Задача партийной пропаганды, задача марксистско-ленинского воспитания кадров состоит (   Читать дальше...   )Жанр: История, политология, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59AEBB8CE6D3B66292A19087E109F3DE4A07F871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186255   (288355) от 24.11.2017
+
+П. П. Гайденко (отв. ред.) | Традиции и революции в истории науки (1991) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Традиции и революции в истории науки» посвящена актуальной теме анализа переломных эпох в развитии науки.
+
+В историко-философской и историко-научной литературе 60-х годов подчеркивалась обычно важность осознания разрыва, скачка в развитии научных идей. Исследования же последних двух десятилетий все более и более сосредотачивались на выявлении непрерывных, (   Читать дальше...   )Жанр: История, науковедение, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD112B610165CDDD7A26D1B54C22B9CEAF7CA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186212   (288354) от 24.11.2017
+
+Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.11.21) WEB-DLRip (сезон 3, выпуск 21)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288354.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B0F1B5C10328454EC9E79D229D589745CA7FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 270252   (288348) от 14.12.2010
+
+Disney - Princess Lullaby Album (2002) [MP3|192 kbps]<Музыка для детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288348.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Someday My Prince Will Come (03:03)
+2. Beauty And The Beast (03:16)
+3. Reflection (03:27)
+4. With A Smile And A Song (02:51)(   Читать дальше...   )Жанр: Музыка для детейПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E2136BA4FA48ABC52CCCEFB3D7DFC471A6F6B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 422809   (288313) от 14.12.2011
+
+Михаил Стельмах | Четыре брода [2011] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаила Стельмаха, Героя Социалистического Труда, лауреата Ленинской и Государственной премий, хорошо знают читатели по романам «Хлеб и соль», «Кровь людская — не водица», «Большая родня», «Правда и кривда», «Дума про тебя» и другим произведениям, в которых отразилась народная жизнь Советской Украины.
+Многоплановый социально-психологический и философский роман «Четыре (   Читать дальше...   )Жанр: современная прозаПродолжительность: 29:47:43
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

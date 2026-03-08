@@ -1,3 +1,61 @@
+###  Публикация: 1129245   (722622) от 28.04.2017
+
+William Hoshal - River Of Clouds (2017) [MP3|320 Kbps] <Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  River Of Clouds Part I (11:16)
+02.  West of Everything (10:54)
+03.  Deep Light (14:27)
+04.  Maintaining Status (7:03)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003B4B10FD1B0C49CE0C75AD388A461CD33CC7EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129204   (722621) от 28.04.2017
+
+VA - Ristorante Lounge And Deep - Restaurant Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Donati - Lounge Delight (Original Mix) 05:23
+02. Costez Ensemble - Violet Dawn (Original Mix) 05:39
+03. Moonshine Project - Noche Suave (Original Mix) 05:06
+04. Smooth Soul Sound - Solaris Touch (Original Mix) 05:06(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673AD9FE1076FC5D527E2AD7C16DA1186BAF2B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129230   (722620) от 28.04.2017
 
 Mauro Picotto - Deep Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout>
@@ -686,64 +744,6 @@ Fedde Le Grand - Something Real (2016) [MP3|320 кб/с] <Electro House, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70017BCA624EC50FF8305C9CF592B8034BCE5544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024047   (720578) от 07.06.2016
-
-Gai Barone - Towards (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Sides of Nowhere (Original Mix) (7:49)
-02. Bianca (Original Mix) (7:46)
-03. Mom's Clown (Original Mix) (8:01)
-04. Stripped (Original Mix) (9:10)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C03C4206D45D805C302EC9E6911D6B9A06966C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024189   (720558) от 07.06.2016
-
-VA - Live In Montreal - Finale (Mixed By John Digweed) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep House, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 1) (57:23)
-02. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 2) (59:11)
-03. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 3) (52:21)
-04. Adam Beyer - What You Need (6:41)(   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 06:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DEF068938555AA1155CEE8D6AA2ECB47BA15EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

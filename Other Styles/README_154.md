@@ -1,3 +1,32 @@
+###  Публикация: 1587245   (192928) от 30.10.2022
+
+Тэм Гринхилл - Полынный ветер (2011) [FLAC|Lossless|image + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перебор серебром...
+02. Догорает свеча в руке...
+03. Мне приснился страшный сон...
+04. Полночь оплачет...(   Читать дальше...   )Жанр: FolkПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94D03F56256AC7BCA8BEE0A06926FE8CD62D18A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587095   (192680) от 31.10.2022
 
 Vevaki (Vévaki) - Fórnspeki (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk>
@@ -710,37 +739,6 @@ VA - Celtic Chill Out Lounge (2010) [FLAC|Lossless|image + .cue] <Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF449EA5B0FC3A365040B5CA25F35F8521BC93CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 290832   (185846) от 25.11.2020
-
-Wes - Welenga (1996) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wes Madiko (Вес Мадико) родился 15 января 1964 года в небольшой камерунской деревне в семье бухгалтера.
-Еще в детстве дед начал обучать Веса игре на традиционном музыкальном инструменте — санса, основам древней медицины, истории и философии банту.
-С десятилетнего возраста мальчик стал выступать в составе Kwa Kwassi Orchestra на различных торжественных мероприятиях (   Читать дальше...   )01. Awa Awa (4:29)
-02. Alane (3:43)
-03. Kekana (3:19)
-04. Wezale (4:40)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C622899CCA277622A2F65C32B78A4849E9980E52
 ```
 
 https://mybot314.ru/tekegram_catalog/

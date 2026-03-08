@@ -1,3 +1,32 @@
+###  Публикация: 1319342   (484723) от 11.08.2019
+
+VA - Future Ambient Electronic (2018) [MP3|320 Kbps] <Ambient, Downtempo, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484723.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 21St Century Wolf - Nineteens
+002. Francois Maugame - Like A Summer Breeze
+003. Aferon - Сherry Station (Original Mix)
+004. Buddha-Bar - Stonehenge (Original Mix)(   Читать дальше...   )Жанр: Ambient, Downtempo, ElectronicПродолжительность: 10:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA093F671D4DCCFF3E28EF259A7891B6DCAF93C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319367   (484716) от 11.08.2019
 
 VA - Record Super Chart 599 (2019) [MP3|320 Kbps] <Pop, House, Dance>
@@ -731,35 +760,6 @@ Underground hard trance.01 Joe Kelly - What's Happening (Original Mix) (REDEMPTI
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AE2FBDFBBFC31B55C083BC6A2FD74FDEC4D8081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160081   (478187) от 23.08.2017
-
-VA - Trance Nation: The Vocal Session (2017) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478187.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Giuseppe Ottaviani & Kyler England - Firefly (Omnia Extended Remix)  5:27
-002.  Yuri Kane - Obsession (Radio Edit)  3:31
-003.  Sheridan Grout - The Last Word (Sam Laxton Remix)  5:41
-004.  Markus Schulz Presents Dakota feat. Bev Wild - Running Up That Hill (Extended Mix)  7:38(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 08:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E403BD7E2AF57C46E7036C0E15C3A353F280854
 ```
 
 https://mybot314.ru/tekegram_catalog/

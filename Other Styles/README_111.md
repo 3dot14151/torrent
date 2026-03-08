@@ -1,3 +1,29 @@
+###  Публикация: 552064   (438645) от 30.09.2012
+
+VA - The Best Of Native Indians (2CD) (1999) [MP3|320 кб/с]<Native American Ethno, Powwow, Round Dance, Tribal Voice, Drums>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Native American Ethno, Powwow, Round Dance, Tribal Voice, DrumsПродолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A2D7FB14F2C40D7BBE0DE28428F20D7DA85427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410151   (438429) от 20.09.2020
 
 Александр Серов - Relax Instrumental Music (2006) [FLAC|Lossless|tracks + .cue]<Instrumental>
@@ -722,35 +748,6 @@ Anamanaguchi - Scott Pilgrim vs. the World: The Game (Original Videogame Soundtr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF6E67DE4F79EAFDB637FFD252C42BB9D60AF819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063559   (432516) от 17.10.2016
-
-Johnny Jewel - Lost River / Как поймать монстра (Original Motion Picture Soundtrack) (2015) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Jewel feat. Saoirse Ronan - Tell Me (02:42)
-02. Chromatics - Yes (Love Theme from Lost River) (03:24)
-03. Glass Candy - Shell Game (03:07)
-04. Johnny Jewel - Echoes (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917FB72FF8C7320AA3D3BD081BEBBB1FC26B64FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

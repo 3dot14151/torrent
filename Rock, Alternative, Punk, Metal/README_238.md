@@ -1,32 +1,3 @@
-###  Публикация: 1378114   (848495) от 24.04.2020
-
-Aspen - III (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848495.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Магниты
-3. От себя никак не сбежать
-4. Забыла(   Читать дальше...   )Жанр: RockПродолжительность: 00:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492D5C62A6510EB6B8006033DB46EFE726D05716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378116   (848494) от 24.04.2020
 
 Сети - Мало (2020) Single [MP3|320 Kbps] <Rock>
@@ -746,6 +717,35 @@ Evil Scapes - Sanity Of No One (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:726EBFC7DE62A31D93F38B0A254885BCD585E65F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499510   (847968) от 02.10.2021
+
+4 Апреля - Бездна (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847968.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Это игра
+2. Выбора нет
+3. Летала душа
+4. Что будет с нами?(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5EF1806124A3ED864ED3624B8AD1024FA618B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

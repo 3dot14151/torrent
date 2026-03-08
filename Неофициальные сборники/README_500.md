@@ -1,3 +1,174 @@
+###  Публикация: 958435   (323642) от 21.11.2015
+
+VA - Beatport Top 100 20.11.2015 (2015) [MP3|320 кб/с]<House, Electro, Progressive, Deep House, Tech House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shaun Frank & KSHMR - Heaven (feat. Delaney Jane) (Extended Mix)
+002. Hot Since 82 - Veins (Original Mix)
+003. R3hab & Headhunterz - Won't Stop Rocking (Extended Mix)
+004. Joe Stone and Daser - Freak (And You Know It) (Extended Mix)(   Читать дальше...   )Жанр: House, Electro, Progressive, Deep House, Tech House, TechnoПродолжительность: 10:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168213731E1F41CB19C7459FE1A77FA02A49B65F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259109   (323543) от 02.11.2018
+
+VA - Morphological Patterns: Techno Electrozombies (2018) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323543.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kocleo - Reflection
+002. Bruno Power - Light In The Forest
+003. Stereo View - Asteroid (Original Mix)
+004. Bad Habitz - One Day Well Find Our Way(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9C3982AF703712751BEEE35C85DB1766E9B16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181540   (323504) от 07.11.2017
+
+VA - Jazz It Up: Autumn Collection (2017) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323504.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ella Fitzgerald - Get Ready
+002. 2D - Keraguan
+003. Antonio Carlos Jobim - The Girl from Ipanema
+004. The Watts 103rd. Street Rhythm Band - Papa's Got A Brand New Bag(   Читать дальше...   )Жанр: JazzПродолжительность: 09:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E433F4102E73A01C8C8E3E4A50B962F8E5AD29F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582450   (323476) от 09.10.2022
+
+VA - South Beach Clubbing Vol. 31 (2022) [MP3|320 Kbps] <Electronic, Future Disco, Club, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avaro - I Don't Wanna Play (No Games) (JoshwaЖанр: Electronic, Future Disco, Club, Tech HouseПродолжительность: 01:34:12 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD285B1E3DC871A63B07BCEC0600FFB4B56F586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181344   (323364) от 07.11.2017
+
+VA - Infatuation Blues (2017) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323364.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Black - Sister Sadness
+002. Rob Tognoni - Time Changes
+003. Jim Allchin - Healing Ground
+004. Lazy 50 - Catch My Train(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 11:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFB8481C5FA2B8E9FD9F70A6949DF6A1B0EA67F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582461   (323354) от 09.10.2022
+
+VA - Trance October Week 001 (2022) CD, Compilation [MP3|320 Kbps] <Euphoric, Progressive, Melodic, Tech Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divisional Phrase & Prisma Storm - Lifesaver
+02. Adam Ellis & Katty Heath - Made It Through The Rain (radio edit)
+03. 1st in Line & Cris von X - The Light (Darren Porter Remix)
+04. Ciaran McAuley & Susie Ledge - You're Never Alone(   Читать дальше...   )Жанр: Euphoric, Progressive, Melodic, Tech TranceПродолжительность: 02:25:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3CB624F3B30376BB1170B87048A6B3E10DEBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075030   (323302) от 21.11.2016
 
 Наталия Гулькина - Музыкальная Коллекция (часть 1) (2016) [MP3|320 Kbps] <Поп, Диско>
@@ -580,180 +751,6 @@ VA - Reggae Tropical Party (2020) [MP3|320 Kbps] <Reggae, Riddim, Reggaeton>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD351ADD392862595C1CD68545D23ECB27219B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421225   (322105) от 03.11.2020
-
-VA - не Громкие новинки недели 86 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agunda - Смысл Души (2:16)
-02. Ailssi - Малолетки (2:40)
-03. Alex Demian - Love Is Going (3:11)
-04. ASAVVI - Слёзы (2:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746CA22061FB2FD9D5B4CB4E6E27F23769B13AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421191   (322014) от 03.11.2020
-
-VA - Music News vol.45 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322014.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Al Fakher - Девочка VIP (02:15)
- 002. Ailssi - Малолетки (02:41)
- 003. Aisha Vibes - Undercover (02:28)
- 004. Юля Годунова - Смотри Как Надо (02:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B7B3A5D17777318A1A1ED0ECCAEF6BDAF406A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421050   (322012) от 03.11.2020
-
-VA - Sonic Music Background (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322012.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aaron Tesser - I Want You To Stay
-002. Anthony Smith - Surrealism
-003. Eric Knight - Keep Control
-004. Martin Liege - Jungle Groove(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 11:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CF1307D7B7AEFA6DBEE12A5653474706F0E80D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958803   (321876) от 22.11.2015
-
-VA - Beatport Zone Of Trance Goa: November Pack (2015) [MP3|320 кб/с]<Psychedelic, Psytrance, GOA>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321876.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zen Mechanics - Off the Grid 08:06
-002. Earthling - Mandelbrot 07:50
-003. Wrecked Machines - Bandbox 07:21
-004. Tikal - Tequila 06:31(   Читать дальше...   )Жанр: Psychedelic, Psytrance, GOAПродолжительность: 12:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2A098A43CCDAEE579C418788D94DD206781532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958764   (321858) от 22.11.2015
-
-VA - Lounge & Vocal Jazz (2015) [MP3|320 кб/с]<Lounge, Chillout, Vocal Jazz>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lukas Termena & Angelika Borof - Endless (04:04)
-02. Hauba - In Your Bodies Life (04:03)
-03. Arshia Alipour - Noise of Angels - Chillout Mix (04:17)
-04. Aaron The Baron Feat. Markus Puhl, M - A Tu Lado - Salsa on the Beach Mix (04:48)(   Читать дальше...   )Жанр: Lounge, Chillout, Vocal JazzПродолжительность: 03:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AAAFCAAEAD2F40B3CDFD13B555AA57C12EA5C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958954   (321842) от 22.11.2015
-
-VA - Passion City Angel: 100 Mega Dance Hit (2015) [MP3|320 кб/с]<Dance, Club, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321842.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Klinx - Passion (Radio Mix)
-002. Ed Sheeran - Photograph
-003. AURORA - Half the World Away
-004. Jamie Lawson - Wasn't Expecting That(   Читать дальше...   )Жанр: Dance, Club, Pop, HouseПродолжительность: 08:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5711ADCD49CE7FB4A6A094D4589870AFD8F00404
 ```
 
 https://mybot314.ru/tekegram_catalog/

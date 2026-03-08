@@ -1,3 +1,32 @@
+###  Публикация: 1203775   (787705) от 03.02.2018
+
+Carmen McRae - Sings Lover Man And Other Billie Holiday Classics (1961) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes [02:49]
+02. Yesterdays [04:55]
+03. I'm Gonna Lock My Heart (And Throw Away the Key) [02:34]
+04. Strange Fruit [02:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DD3A4A8738B01693AA412BCE3CD1CF85244214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276684   (787659) от 17.01.2019
 
 Les Doigts De L'Homme - Gipsy Jazz Nucleaire (2004) Autoproduction [FLAC|Lossless|tracks + .cue] <Gypsy, Swing>
@@ -716,35 +745,6 @@ Karolina Smietana - Illusion (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:375E34BF88EFE21659EB7F38BDF6DD8427DD29CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123888   (786169) от 09.04.2017
-
-John Pizzarelli - John Pizzarelli Meets The Beatles (1998) 1999, BMG Japan [FLAC|Lossless|image + .cue] <Jazz, Bebop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Buy Me Love (3:37)
-02. I've Just Seen A Face (2:48)
-03. Here Comes The Sun (5:05)
-04. Things We Said Today (4:16)(   Читать дальше...   )Жанр: Jazz, BebopПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E9F12F1D0E0ED4F3210ADDF774EA4BF6F8F6BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

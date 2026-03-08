@@ -1,3 +1,32 @@
+###  Публикация: 1244803   (478165) от 03.09.2018
+
+Jessica Molaskey - Portraits of Joni (2017) Ghostlight Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help Me [3:27]
+02. Dreamland/Carey [3:40]
+03. A Case of You [5:17]
+04. The Dry Cleaner from Des Moines [2:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92AD8832EE97C6F0FFCC135B06EC98660670397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938811   (478156) от 20.09.2015
 
 Marlena - My Heart to Yours (2015) [FLAC|Lossless]<Vocal Jazz, Pop>
@@ -740,35 +769,6 @@ Kat Reinhert - Spark (2015) [FLAC|image+.cue]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CCED15038814C3709FDBF3FE7767C105447438F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939386   (476032) от 21.09.2015
-
-Thomas Chapin - I've Got Your Number (1993) /Arabesque Jazz/[APE|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I've Got Your Number [05:48]
-02.Drinkin' [07:42]
-03.Time Waits [07:34]
-04.Moon Ray [07:47](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0F2FC70027442B987A168B85825F33C64CE8C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

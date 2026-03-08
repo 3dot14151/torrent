@@ -1,3 +1,60 @@
+###  Публикация: 1234714   (567962) от 07.07.2018
+
+Palta & Ti - Palta Og Ti På Den Tolvte Ø (2018) 12th Isle [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub, Leftfield, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. På Hovedet I Seng (08:11)
+02. 12 Ø Dub (05:47)
+03. Forårets Skørhed (10:20)Жанр: Ambient, Dub, Leftfield, ExperimentalПродолжительность: 00:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75D5406945AB0C683D252F4FE2E24C2FEB724DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152269   (567591) от 22.07.2017
+
+Daviddance & Francesco Frumento & I Biz - Nextix (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567591.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Daviddance - Nextix
+2.  Francesco Frumento - Soundwaves (feat Regis)
+3.  Daviddance - Life
+4.  I-BIZ - Prophecy(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E53BCE91E5CEAB1338CC61A2D5E3C478496A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152324   (567475) от 22.07.2017
 
 VA - Ori Uplift & Rich Triphonic - Uplifting Only 232 (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -686,64 +743,6 @@ Hipnotic Earth - Suspended In Silence (2019) Whitelabrecs [FLAC|Lossless|tracks+
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:324AEF3F7E15935AA7D3A14680319ABFFDAE9AB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304248   (565531) от 25.05.2019
-
-UnicaZürn (UnicaZurn) - Sensudestricto (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Drone, Post-Industrial, Dark-Jazz>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For The Dark Planets (10:08)
-02. Into Burning Labyrinths (Fuse-Fire-Seed) (8:13)
-03. Stems Of The Shadowmind (7:33)
-04. A Gulp Of Moss, A Breath Of Stone (13:10)(   Читать дальше...   )Производство: Touch – TO:113Жанр: Experimental, Ambient, Drone, Post-Industrial, Dark-JazzПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E655CAB2D62AE53C883CFD9EA80035061044E083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203174   (565413) от 25.05.2019
-
-Sea Of Tranquility - Landed (1995) Weisser Herbst [FLAC|Lossless|tracks+.cue] <Leftfield, Trip Hop, Modern Classical, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landed (03:59)
-02. Engellied (05:00)
-03. As Thick As Fingers (07:33)
-04. Big Mighty Drum Cake (04:12)(   Читать дальше...   )Жанр: Leftfield, Trip Hop, Modern Classical, Downtempo, AmbientПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEB5C2C52A7ED42C0AA6F2737D79641768194FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

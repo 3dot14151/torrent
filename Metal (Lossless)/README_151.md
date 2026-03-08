@@ -1,3 +1,92 @@
+###  Публикация: 1568779   (457919) от 10.08.2022
+
+Black Earth - Path of the Immortal (2019) Compilation [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457919.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Burn on the Flame
+2.	The Immortal
+3.	Dead Inside
+4.	Bury Me an Angel(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD767921E3F169A7F4B96AF0EA14A438D99FC991
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246937   (457129) от 13.09.2018
+
+Carnation - Chapel Of Abhorrence (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Whisperer
+02.Hellfire
+03.Chapel Of Abhorrence
+04.The Unconquerable Sun(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BBBB79568405AC3CF88CF7CE22468CBF3939B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247017   (457120) от 13.09.2018
+
+Dream Theater - Live At Budokan (2004) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Prog Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457120.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. As I Am (7:26)
+ 02. This Dying Soul (11:44)
+ 03. Beyond This Life (19:37)(   Читать дальше...   )Жанр: Heavy Metal, Prog Rock, Symphonic RockПродолжительность: CD1 - 00:55:29
+CD2 - 00:56:45
+CD3 - 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3AF831B1A79E2682726C791C28508C00ECCA2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247009   (456990) от 13.09.2018
 
 Dream Theater & The Octavarium Orchestra - Score (20th Anniversary World Tour) (2006) 3CD [FLAC|Lossless|tracks + .cue] <Symphonic Rock, Prog Rock, Heavy Metal>
@@ -659,93 +748,6 @@ Black Eye - Black Eye (2022) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1200D15A9185B4E7A62F12F3D036E160B95070F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569155   (453825) от 12.08.2022
-
-At the Gates - Slaughter Of The Soul (1995) Full Dynamic Range Remaster, 2018 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blinded by Fear (3:12)
-02. Slaughter of the Soul (3:03)
-03. Cold (3:28)
-04. Under a Serpent Sun (3:59)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8353824F808D9BBC80A7F1FD88D943C3005B6AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569192   (453821) от 12.08.2022
-
-Belphegor - The Devils (2022) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devils (5:30)
-02. Totentanz - Dance Macabre (3:41)
-03. Glorifizierung des Teufels (4:59)
-04. Damnation - Hollensturz (5:22)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BD59BA1ABC91564F86362AE3346A327CD48940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060831   (453704) от 08.10.2016
-
-Norhod - The Blazing Lily (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caer Arianrhod (A Moon Tale Pt. 1) 01:07
-02. Doomed To Oblivion (A Moon Tale Pt. 2) 06:24
-03. Illusions Of Infinity 04:06
-04. Lily's Ashes (A Moon Tale Pt. 3) 05:08(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CBABC2DCC83D7EE285411F318327073A37E3D96
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1118826   (811366) от 26.03.2017
+
+VA - Зажигательный Eurodance Vol.2 (2017) [MP3|192-320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811366.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Geo Da Silva & Saftik - Hey Mr. DJ Get Up (Martik C Rmx)
+002. Eddy Wata - La Bomba (Viper Eurodance Remix)
+003. Artik & Asti Feat. Run DMC - Половина (V.Bashmakov Eurodance Rmx)
+004. Aruba Ice & Greysound - Hold Me (Viper Remix)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 07:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73008B1283CDD30954C99066A4F656E371D4DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504684   (810344) от 24.10.2021
 
 VA - Top 100 Hardstyle Dance Energy (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle>
@@ -716,35 +745,6 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5D1725D9B319F1EFF9D068A5CB4B2F2C9185AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199336   (801769) от 15.01.2018
-
-VA - De Top 100 Aller Tijden 1976 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801769.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Abba - Dancing Queen (3:50)
-002. Tavares - Heaven Must Be Missing An Angel (6:56)
-003. Nazareth - Love Hurts (3:52)
-004. Bzn - Mon Amour (4:08)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 05:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0556D6CE5FD9E5A0A9281C2B403DE94BB555C20E
 ```
 
 https://mybot314.ru/tekegram_catalog/

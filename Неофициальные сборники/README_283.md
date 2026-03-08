@@ -1,3 +1,177 @@
+###  Публикация: 1138255   (664201) от 29.05.2017
+
+VA - EuroDance Party. Russian version (2017) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664201.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Время И Стекло - Песня 404 (EuroDJ Remix) 2:38
+002. IMPERIA S.S.C. - На Хундае (EuroDeeJay Remix) 3:22
+003. Bad Mark feat. Марина Ермолаева - Hочная магистраль (Eurodisco version) 4:31
+004. Дискотека Авария - #ЛайкМи (Martik C Rmx) 4:08(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92506130C55760701689822AF7CF1D9FC59C08B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138542   (664149) от 29.05.2017
+
+VA - Dance Hits Platinium Colection (2017) [MP3|320 Kbps] <Pop, Disco, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Toto Cutuno - L'italiano 3:52
+02.  Los Lobos & Antonio Banderas - Canuon Del Mariachi 2:02
+03.  Francesco Napoli - Piano Piano 4:11
+04.  Julio Iglesias & Dolly Parton - When You Tell Me That You Love Me 3:59(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 04:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD1DBF1FA830AC3EC1A9CC0C65312933243FA97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138274   (664147) от 29.05.2017
+
+VA - Русский отрыв Русского радио выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664147.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юлия Адамчук - Я Остаюсь 3:36
+002. Егор Диких - Дикие Племена 4:11
+003. Вика Курзова - Ты 4:11
+004. Юлия Holod - Просто Целуй 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8841A22464CDE731EB150A75D5416AFEFA0DFCF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137602   (664111) от 29.05.2017
+
+Ансамбль русской песни "Бабкины Внуки" - Сборник [MP3|128 - 320 Kbps] <Russian Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664111.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:42] 01.Синева
+[03:50] 02.Земляничка ягодка
+[03:44] 03.Вишня
+[02:36] 04.Вновь снега и снега(   Читать дальше...   )Жанр: Russian FolkПродолжительность: 01.46.25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F692C56441DE54FB9386F2DCB47797D7D0CB892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138547   (663237) от 30.05.2017
+
+VA - SpaceSynth & ItaloDisco Hits Vol.24 (ot Vitaly 72) (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Italian Party - Tonight (Where Is the Love) (Italian Extended Mix) 6:55
+02.  Raf Coney - I See You Later 7:29
+03.  The Crosslines - Angel Eyes 5:35
+04.  Stylove - Sail Away 5:34(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 04:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C4F9D692A9D371219CBE19508D0CBEBD93D8581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138569   (663171) от 30.05.2017
+
+VA - SpaceSynth & ItaloDisco Hits Vol.25 (ot Vitaly 72) (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ken Martina - Another Melody (Extended Remix) 8:00
+02.  Umberto Tozzi - Tu (Simon LeSaint Remix) 7:03
+03.  Linda Skywalker - Don't Fly Away 6:33
+04.  Modern Boots - Boulevard Of My Dreams (BCR Extended Version) 7:07(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 04:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC2F82360C6B8FC41746DDFC374D1F56B80FF35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138642   (663170) от 30.05.2017
 
 VA - New Sounds & More Power Vol.12 (2017) [MP3|320 Kbps] <EBM, Futurepop, Synthpop>
@@ -568,180 +742,6 @@ VA - New Funky House 175 May (2017) [MP3|320 Kbps] <Nu Disco, Soulful, Funky, Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26C735F850A6613AF2CD113501D5D9B189A1981C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139061   (661391) от 01.06.2017
-
-VA - The Land Of Romance (2017) [MP3|320 Kbps] <Pop, Rock Lyric>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661391.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Youssou N'Dour & Neneh Cherry - 7 Seconds
-002. Within Temptation - What Have You Done (Acoustic)
-003. Within Temptation - Overcome
-004. Within Temptation - Frozen(   Читать дальше...   )Жанр: Pop, Rock LyricПродолжительность: 07:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7526D3676A8E1CD4A4F76EE5E7A00D79A7401A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139077   (661305) от 01.06.2017
-
-VA - Yin-Yang Deep House Music Vol.02 (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661305.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nico Stojan feat. Iannis Ritter - Dedicated
-002. FonnikDeep - Love (Broken Instrumental)
-003. James Silk - La Noche
-004. Sound Slave - Lost in Lost Angeles City (Deephope Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1133D38CE3E24867F3091779AB2F7257806541DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139052   (661294) от 01.06.2017
-
-VA - Yin-Yang Deep House Music Vol.01 (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661294.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sebastian Phillip - People in the Club
-002. Gasmic - Bass Overdose
-003. Ramon Tapia - Highway
-004. Sergio Veros - Fly Away(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABB15C5BDEAFEA1F9490FC777B5709D2AE929CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139217   (661200) от 01.06.2017
-
-VA - American Country Blues (3CD) (2017) [MP3|256-320 Kbps] <Country, Folk Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661200.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Coco Montoya - Truth Be Told
-02. Don Williams - Cryin' Eyes
-03. Charlie Daniels - Billy The Kid(   Читать дальше...   )Жанр: Country, Folk BluesПродолжительность: 07:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0B5A16CC2132824AA22D6654AF20994B06D848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538880   (661088) от 22.03.2022
-
-VA - Get a Rock! 2 (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sueco - Loser (2:13)
-02. Е2 Знакомы - Зёрна (2:21)
-03. Ярик Бро - В Питере Дождь (2:38)
-04. The Score - Fighter (2:36)(   Читать дальше...   )Жанр: RockПродолжительность: 04:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D29728E095E0E0D57F13A015C0E1F1A118F611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138947   (661000) от 01.06.2017
-
-VA - 55 most slow Blues (Bonus) (2017) [MP3|320 Kbps] <Blues, Rock, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Cray -  A Whole Lotta Pride
-02. Blues Cousins -  All Your Love
-03. Robert Randolph -  Angels
-04. Louisiana Red -  Arlene Blues(   Читать дальше...   )Жанр: Blues, Rock, Blues RockПродолжительность: 04:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660123D9F03BD5E7CA03D76B8EC8B1E8EF10F4A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

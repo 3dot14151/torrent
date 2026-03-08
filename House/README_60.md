@@ -1,3 +1,32 @@
+###  Публикация: 1081934   (280905) от 11.12.2016
+
+VA - Armada Music: Best Of (2016) [MP3|320 Kbps] <House, Trance, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies - Beautiful Life (feat. Sandro Cavazza) 2:42
+02. Major Lazer & Showtek - Believer 3:44
+03. Armin van Buuren - Heading Up High (feat. Kensington) 3:53
+04. Gareth Emery - Reckless (feat. Wayward Daughter) 3:22(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 02:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3B9038C4113575474604791231A1261200C825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964581   (280792) от 12.12.2015
 
 VA - Armada Deep Best Of (2015) [MP3|320 кб/с]<Deep House>
@@ -716,35 +745,6 @@ VA - Ibiza House Fillers (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74A580BF97ED5EF147FFA7BF291FE6734522724F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083735   (273065) от 16.12.2016
-
-VA - Best Of Deep House (Deluxe Version) (2016) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clark Morrison - Space Rift (Original Mix) 6:53
-02. Ricky Rough - The Way It Is (Original Mix) 9:11
-03. Francesco Chianese - Adday (Original Mix) 6:52
-04. Bess - New Face (Original Mix) 6:15(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063AEA85CAA6D9EEBDDE97A22034A65D0032E416
 ```
 
 https://mybot314.ru/tekegram_catalog/

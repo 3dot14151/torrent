@@ -1,3 +1,32 @@
+###  Публикация: 1384071   (806159) от 18.05.2020
+
+Lara Fabian - Papillon(S) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papillon
+02. Je Suis A Toi
+03. Changer Le Jeu
+04. Par Amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF53B2CEDBE90ADDE89D98E5DF648BF245332A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548435   (805683) от 26.10.2021
 
 Michael Jackson - Bad (1987) 2012, 25th Anniversary Deluxe Edition, 3CD [FLAC|Lossless] <Pop, R&B, Funk, Dance, Rock, Dubstep>
@@ -717,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:666794ED9A4BD964208AE03322AF5029F025A541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507650   (798269) от 05.11.2021
-
-Fancy - Hit Party (1998)(Compilation)[FLAC|Lossless|image + .cue] <Euro-disco, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames of Love (bass up version)
-02. Blue Eyes and a Broken Heart
-03. Fools Cry
-04. Slice Me Nice(   Читать дальше...   )Жанр: Euro-disco, SynthpopПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B2A605627524887A6F1E1BB5B082E18D85DBBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

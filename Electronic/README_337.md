@@ -1,3 +1,61 @@
+###  Публикация: 1417303   (351352) от 23.10.2020
+
+The Midnight - Horror Show (Instrumentals) (2020) [FLAC 2.0|24/48|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stranger (Instrumental) (1:43)
+02. Ghost in Your Stereo (Instrumental) (4:10)
+03. Neon Medusa (Instrumental) (5:05)
+04. Devil Make a Deal (Instrumental) (4:57)(   Читать дальше...   )Жанр: Synthpop, Synthwave, DreamwaveПродолжительность: 00:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C60C6C98E48ADAA7C730FFF3570DA6E8ADAD68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417294   (351220) от 23.10.2020
+
+The Midnight - Horror Show (2020) EP [FLAC 2.0|96/24|tracks|WEB-DL] <Synthpop, Synthwave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stranger (1:43)
+02. Ghost in Your Stereo (4:10)
+03. Neon Medusa (5:05)
+04. Devil Make a Deal (4:57)(   Читать дальше...   )Жанр: Synthpop, Synthwave, DreamwaveПродолжительность: 00:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE2F9F457B74ACF2321658827ED9B451D702FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418077   (351104) от 23.10.2020
 
 Faithless - All Blessed (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Downtempo, Trip-Hop>
@@ -687,64 +745,6 @@ VA - Halloween Handsup Power Party (2017) [MP3|320 Kbps] <Pop Trance, Big Room>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BFF133F8A4BCC3690E2F5846475356D97E64A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179326   (349347) от 31.10.2017
-
-VA - Suanda Acoustic Collection 2 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer & Eric Lumiere - Closer (R.I.B Chillout Remix) 6:15
-02.  Natune & Frainbreeze - When You Find Me (Bryan Milton Chillout Remix) 5:30
-03.  NoMosk & Lucid Blue - Inside The Fire (Seven24 & Soty Chillout Remix) 4:19
-04.  CubeTonic feat. Dilara Gadel - So Strong (Soty & Seven24 Remix) 5:00(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503200881AA6F619205123E80EE54FD18C28200D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179434   (349341) от 31.10.2017
-
-VA - Chill-Out Cafe (30 Beautiful Relaxed Anthems), Vol. 1 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jane Maximova - Clouds
-02. Marcus Koch - Midnight Chill
-03. Collioure - Child Again
-04. Lemongrass - Deep River (feat Jane Maximova - Stuce The Sketch remix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DFA1E670271DF083DE5662DA229ACC6A6891EE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

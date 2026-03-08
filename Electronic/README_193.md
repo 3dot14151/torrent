@@ -1,3 +1,60 @@
+###  Публикация: 1221057   (698800) от 22.04.2018
+
+Hazem Beltagui - VIVID (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hazem Beltagui - Made Of Light (In Memory Of Helena Copto)(Original Mix)
+02.Hazem Beltagui - Reasons To Love (Original Mix)
+03.Hazem Beltagui & Ataberk Onal - You Were Always Mine (Original Mix)
+04.Hazem Beltagui & Rebecca Louise Burch Fade Away (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723F0094E695CE80C5D1E5A838936C31C6DD72CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221034   (698799) от 22.04.2018
+
+Bicep - Rain (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698799.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rain (Edit) (04:00)
+2. Rain (05:51)
+3. Helix (05:10)Жанр: Electronic, House, TechnoПродолжительность: 00:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7218F852D3B5F9C4CFE018F922A6340C0324E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132817   (698798) от 10.05.2017
 
 VA - Summer Mix 2017: Marbella Dance Music Vol.01 (Mixed By Deep Dreamer) (2017) [MP3|320 Kbps] <House>
@@ -687,64 +744,6 @@ Frozen Starfall - Vibrant Dancefloor (2017) [MP3|320 Kbps] <Electro, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6123C28C04A928D8F735F69F3F0BD7ED51419AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132944   (697110) от 11.05.2017
-
-VA - Late Night Vibes Vol.5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alexandre Mark feat. Gina Lolla - Cracks  3:44
-02.  Acqua Panna - Too Much Heaven  4:12
-03.  Theo Lopez - The Bass  4:52
-04.  Yanni Gee - For The Ladies  10:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853B2D3D589C70CA0E9675DBCDE020F00C61D453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221268   (696814) от 23.04.2018
-
-VA - The Best Of House, 3CD (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blutonium Boy Feat. Eric Bazil - Where Did I Go (Ponyfarm Remix)
-02. Stupid Goldfish - Blindfolded (Radio Edit)
-03. Zsuzsa - Never Look Back (Radio Edit)
-04. Tradelove - Summer Wine (Radio Edit)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703441C51592BB52B6FE42B12053E71953F30BD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

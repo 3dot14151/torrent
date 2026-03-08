@@ -1,3 +1,32 @@
+###  Публикация: 1125827   (766316) от 17.04.2017
+
+Loose Tooth - Big Day (2017) [FLAC|Lossless|tracks + .cue] <Rock, Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sleep With The State Concept (02:33)
+2. Garlic Soup (03:29)
+3. Lisa Lives (01:06)
+4. Free Skate (01:34)(   Читать дальше...   )Жанр: Rock, Alternative, IndieПродолжительность: 00:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1776508F5677EDD4401C7D9A4BC8A09C83C21AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 140078   (765101) от 03.07.2020
 
 Muse - The Resistance (2009) [FLAC|Lossless]<Alternative rock / Progressive rock>
@@ -714,35 +743,6 @@ Chasms - The Mirage (2019) [FLAC|Lossless|tracks + .cue] <Industrial, No Wave, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:040946C21AE9716D3C968426917F0CEA280B7E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282668   (742539) от 14.02.2019
-
-Our Girl - Stranger Today (2018) Limited Edition 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Girl (3:27)
-02. Being Around (2:43)
-03. In My Head (3:48)
-04. I Really Like it (3:54)(   Читать дальше...   )Жанр: Indie Rock, Shoegaze, GrungeПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9B346349960B41F1E94223C393CC9C89F9328B
 ```
 
 https://mybot314.ru/tekegram_catalog/

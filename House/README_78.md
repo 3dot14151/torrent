@@ -1,3 +1,32 @@
+###  Публикация: 1767103   (101201) от 21.12.2024
+
+Arcade Alchemy - 1 hour Beast Mode On Hard-hitting Gym Beats for Strength (2024) [MP3|320 Kbps] <Hard House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Effort (3:13)
+02. Adrenaline Rush (3:33)
+03. Feel the beat (2:28)
+04. Barbell Anthem (2:33)(   Читать дальше...   )Жанр: Hard House, DanceПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD2C38F431CD4EA6A0EBD8539470FD813C14FE27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767063   (101199) от 21.12.2024
 
 VA - Festive Season (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
@@ -795,35 +824,6 @@ VA - Deep-House Hunters, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09CE505881ECD169D1550576D08B3A87A40FEC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775185   (71497) от 25.01.2025
-
-VA - Deep-House Hunters, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereolunga - Saxo (Radio Edit) (02:41)
-02. TOM ONE - Deeper & Deeper (03:15)
-03. VS Prjct - Hey Girl (05:07)
-04. Squib - Potzblitz (Radio Edit) (03:03)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1C614EDF5FF8BBD8F7742E5ED9EABD26B49DF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

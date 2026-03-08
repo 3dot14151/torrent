@@ -1,3 +1,119 @@
+###  Публикация: 1195544   (142434) от 29.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 37) (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Виталий Доронин  -  Поручение  2:29
+02.  Зоя Рождественская  -  Тропинка  2:04
+03.  Леонид Утесов  -  Песня старого извозчика  3:04
+04.  Олег Анофриев  -  Солнечный круг  3:35(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C8EBEA161440D1561AE00EEAC5AFA034B773AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195251   (142421) от 29.12.2017
+
+VA - Empire Records - Classic Disco 2 (2017) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brooklyn Guy - Cold Stuff (Original Mix)
+02. Astero feat. Tiana - Satellite
+03. Anthony Chocco - Oh My Baby (Sensoniques Deep Mix)
+04. A Club Tunes - Cry(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81C316F1E744346F9380F689D0BDEE8D283B049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348498   (142350) от 28.12.2019
+
+VA - Качай и слушай Vol 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142350.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.2 Маши - Не Буди (Video Edit) (3:59)
+2.Adon - Want You (2:51)
+3.Bear Grillz feat. Rx Soul - Nightmare (3:56)
+4.Camilo - La Difícil (By Dimelonacho) (2:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566E8E09E00546787FB413D5F5ABEC70BADC875D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195613   (142229) от 29.12.2017
+
+VA - Kiss FM Top 40: December (2017) [MP3|320 Kbps] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Probass & Hardi  -  Indy  4:34
+02.  Lost Frequencies & Netsky  -  Here With You  3:41
+03.  Zhu & Nero  -  Dreams  4:28
+04.  Matt Nash & Delayers  -  Run  4:02(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 02:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CA9080A9CDCC4AB363F932505FA11D7467693D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678876   (142034) от 23.11.2023
 
 VA - Музыка для машины Vol.42 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -638,122 +754,6 @@ VA - Громкие новинки Декабря Vol 2 (2019) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:902EBC582FB8795179B1CF0003AFAD1CA1BEAB86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349068   (138609) от 30.12.2019
-
-VA - Новинки с разных популярных MP3 сайтов. Ver.91 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138609.jpg" />
-</div>
-
-
-###  Подробнее
-
-RusDance:
-1.#2Маши - Много Кофеина (Denis Bravo Remix) (4:05)
-2.ALEX & RUS - Дикая Львица (Olmega & Eugene Star Remix) (3:08)
-3.Audiosoulz - Dancefloor (Lavrushkin & Max Roven Remix) (2:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD13111B770844B56FFB1C83AB6042A1D595933E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196003   (138569) от 31.12.2017
-
-VA - Electric Oxygen Workout Music (2017) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138569.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sagan - Tempus (Extended Mix)
-002. Ayin - Revive Me (Erick Kasell Remix)
-003. Martin Garrix, Matisse & Sadko - Forever (Extended Mix)
-004. Dave Till - Mistika (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFC76CDF954861DCBB099460A64CBBF2C2E07A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195864   (138429) от 31.12.2017
-
-VA - Spotify – Top Tracks of 2017 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Ed Sheeran – Shape of You
-02 - Luis Fonsi – Despacito (Remix)
-03 – Luis Fonsi – Despacito (Featuring Daddy Yankee)
-04 – The Chainsmokers – Something Just Like This(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD703D20ABF17EB721C71F021A220E9B9AECC796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195853   (138169) от 31.12.2017
-
-VA - Союз Новогодний (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ленинград vs. Slider & Magnit - Не со мной
-02. Валерия - А4
-03. Сергей Лазарев - Доигрались
-04. ЭЛДЖЕЙ - Hey, Guys(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49732EE328DC76C18F5591C3D1A681F0A7F3622B
 ```
 
 https://mybot314.ru/tekegram_catalog/

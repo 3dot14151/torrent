@@ -1,3 +1,139 @@
+###  Публикация: 474991   (85231) от 29.03.2012
+
+VA - DJ Клуб (Vol. 1-7) (1997 - 1999) [MP3|320 кб/с]<Club/House/Trance/Progressive House/Club House>
+
+>>След.
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85231.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ Клуб Vol. 1 (1997):
+CD1:
+Продолжительность: 48:52
+1. Специальный виниловый микс
+    mixed by DJ Ivanov
+    Клуб "Титаник"1997 - 1999Жанр: Club/House/Trance/Progressive House/Club HouseПродолжительность: 08:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6565969FC4E3E31FE45FB745834255C7324D8728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475060   (85064) от 29.03.2012
+
+VA - Мега Танцевальный Сборник (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85064.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Half - Party Time (Eugene Star Radio Edit Remix)
+ 002. Bjorn Akesson feat. Jwaydan - Xantic (Aly & Fila vs. Bjorn Akesson remix)
+ 003. Les mots - Keen' V
+ 004. Schoolboy - The Science Project feat Ricco Vitali (Original Mix)
+ 005. Paul Johns - Sand Of Love ( Extended Mix )
+ 006. Junior Caldera iT's On Tonight
+ 007. Laidback Luke vs Example - Natural disaster
+ 008. September - Cry For You (Spencer And Hill Remix)
+ 009. Axwell & Adrian Lux vs. Sander Van Doorn - Teenage In The Air (Tristan Garner Bootleg)
+ 010. Bosson - Guardian Angel (Radio)2012Жанр: Pop, DanceПродолжительность: 06:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77A2E4A913B928012462210E6BFFFEE94414571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474730   (85034) от 28.03.2012
+
+VA - Dj Club Radio Record. Vol. 1 (2012) [MP3|256 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michel Telo - Ai Se Eu Te Pego (Sunray vs. Giga Dance Bootleg Mix)
+02. Frisco Disco feat. Ski - One Way Ticket (Rico Bernasconi Remix)
+03. Darius & Finlay & Tom Mountain - UBAP (Tom Mountain goes Melody Parc Mix)
+04. Master Blaster - Lets Get Mad (DJ THT & Ced Tecknoboy Edit)
+05. Movetown feat. Nana - Lonely (DJ Klubbingman Meets Raindropz! Remix Edit)
+06. Luengo & Diaz feat. Tommy Clint - Adrenalized (De-Liver Edit)
+07. Swedish House Mafia & Knife Party - Antidote (Radio Edit)
+08. Bryce feat. J-Malik - Nothing Can Hold Us Back (Radio Edit)
+09. R.I.O. Feat. U-Jean - Animal (PH Electro Radio Edit)
+10. Maison & Dragen - Rio De Janeiro (Radio Edit)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A1C3036983C3849C80AD8007F01F35D642DBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474716   (84883) от 28.03.2012
+
+VA - Жажда Скорости - Полный Драйв (2012) [MP3|192 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antoine Montana And Miami Inc. - Hit The Road Jack 3000 (Club Revolt Remix Edit)
+02. Crew 7 - Thunderstruck
+03. Tiko's Groove Feat. Gosha - I Don't Know What To Do
+04. Stonebridge And Dayeene - The Morning After (Sgt Slick Remix)
+05. Dj Dex - It Just Wont Do (Feat Kathy) (Club Mix)
+06. Trio-Jet Feat. Right Said Fred - Raise Your Heads (Dj Aka Clubmix Edit)
+07. Alain Bertoni - Shining Star (Feat. Jimmy Slitter) (Night Radio Edit)
+08. Cabo Snoop - Windeck (Arih Gold & Gil Perez Remix)
+09. Supermode - Tell Me Why (Malibu Breeze Bootleg 2011)
+10. Round Table Knights & Reverend - Cut To The Top (Beatman & Payme Vs. Made To Play Allstars R(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 08:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EF6FE6C73B709C62C80825D30D46C541C19B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473838   (84706) от 27.03.2012
 
 VA - Лучшая Клубная Музыка Марта (2012) [MP3|192 кб/с]<Club, Dance>
@@ -752,137 +888,6 @@ VA - Hot Break Dance 2CD (2012) [MP3|320 кб/с]<Break Dance, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0456EA8A89CDD2EB05E8612549B4A4977FCA79A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466659   (81645) от 12.03.2012
-
-VA - Клубная Музыка Дискотек Марта (2012) [MP3|192 кб/с]<Клубная, танцевальная, поп>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 69 Lovers Vs. Lanfranchi & Farina - Think
- 02. Alex Gaudino - Im In Love (I Wanna Do It) (Vocal Club Mix)
- 03. Andreea Banica - Sexy
- 04. Azuro Feat. Elly - Ti Amo
- 05. Bk Duke And Falko Nielstolik Feat. Nina Hall - Explore (Brockman And Basti M Remix Edit)
- 06. Chris Rockford Vs.Jennifer Paige - Crush (Max Fraenthide Edit)
- 07. Contras Feat Joan Colova - La Luna (Original Mix)
- 08. Cristian Marchi And Gabry Ponte - Dont Let Me Be Missunderstood (Gabry Ponte Vintage Radio M
- 09. Damon Paul Feat. Kayna - Fly (Sean Finn Edit)
- 10. Deadmau5 - Aural Psynapse (Dfm Edit)2012Жанр: Клубная, танцевальная, попПродолжительность: 02:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C7200F61955B772608DFF5BCB6FE272D5F1D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464964   (80975) от 09.03.2012
-
-Whitney Houston - The Ballads Collection (2009) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Always Love You
-02. I Have Nothing
-03. Run To You
-04. On My Own
-05. Count On Me
-06. Exhale (Shoop Shoop)
-07. All The Man That I Need
-08. Where Do Broken Hearts Go
-09. When You Believe
-10. Why Does It Hurt So Bad(   Читать дальше...   )2009Жанр: PopПродолжительность: 01:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A6B39C71EF6703CCD387E29FC03B0757400D8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463392   (80355) от 06.03.2012
-
-Музыка Леса - 4 альбома (2010-2012) [MP3|128-224 кб/с]<Folk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80355.jpg" />
-</div>
-
-
-###  Подробнее
-
-2010-2012Жанр: FolkПродолжительность: 23:41:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455380   (77398) от 20.02.2012
-
-VA - Сборник песен о волках (1968-2011) [MP3|256 kbps]
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 1968-20111. Волк-одиночка (3:06)
-2. Волк (3:09)
-3. На поляне среди леса (3:50)
-4. 5 квартал - Волк (3:57)
-5. 6.10 - Травля волков (3:23)
-6. A-HA - Cry wolf (4:03)
-7. Axxis - The wolf (4:45)
-8. Bahh Tee - Волчонок (3:19)
-9. Blaze of Steel - Путь волка (2:57)
-10. Butterfly Temple - Бегу я рысью, бегу я волком (3:33)(   Читать дальше...   )Жанр: разныеПродолжительность: 17:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D7C70780BB10266E2C78BF4CA9B1E3E12E4214
 ```
 
 https://mybot314.ru/tekegram_catalog/

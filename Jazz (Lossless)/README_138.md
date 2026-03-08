@@ -1,3 +1,32 @@
+###  Публикация: 1549987   (592529) от 10.05.2022
+
+Stan Kenton And His Orchestras - The Kenton Era (1941 - 1953) 2CD, 2007, Sounds of Yester Year [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592529.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Prologue [11:48]
+02. Artistry In Rhythm [0:43]
+03. Two Moods [2:08](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 02:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB2FB7BF4905657041D8D7F2A97AF7988F4B1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550237   (592526) от 10.05.2022
 
 Jesse Davis - Second Nature (2000) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -716,38 +745,6 @@ CD1- Stan Getz And The Oscar Peterson & Ben Webster Meets Oscar Peterson:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5524A0F7A861226983E5214A0466D3A76FEC1A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039672   (588296) от 03.08.2016
-
-Allan Holdsworth - Дискография 21 альбом (1976-2009) 23 CD [WavPack|Lossless|image + .cue] <Fusion, Free Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся британский джазовый гитарист и композитор, внесший огромный вклад в развитие жанра фьюжн.
-Он известен своей сложностью в композиционной и импровизационной работе, а так же своими поразительными техническими навыками.
-Критики сравнили его произведения с сочинениями Листа.
-Уникальная эффективность стиля его игры сродни грации саксофонистов вроде Wayne Shorter (   Читать дальше...   )Список альбомов:
-1976 ♦ Velvet Darkness
-1978 ♦ Propensity
-1980 ♦ The Things You See(   Читать дальше...   )Жанр: Fusion, Free Jazz, Contemporary JazzПродолжительность: 17:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9640CE4C60F943A5EF05B5331ECCFCCC6498EDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

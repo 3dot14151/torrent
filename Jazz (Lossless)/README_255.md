@@ -1,3 +1,32 @@
+###  Публикация: 1641665   (235247) от 23.06.2023
+
+Carmen Lundy - This Is Carmen Lundy (2001) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Day, All Night [6:20]
+02. This Is the End of a Love Affair [3:58]
+03. Now That He's Gone [5:28]
+04. Better Luck Next Time [4:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B21B90891170D07CABCDF1F774CDF4CA6971C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462876   (235212) от 16.04.2021
 
 Duke Ellington - Hot Summer Dance (1960) 2003,  Red Baron [APE|Lossless|image + .cue] <Swing, Big Band>
@@ -713,35 +742,6 @@ Luciana Souza - Storytellers (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BCE625490DAF5B27E59A0F638B132D8A6F8FA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642900   (234427) от 29.06.2023
-
-Lynn Cannon - Just Chillin'! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light‘emup! (4:34)
-02. Keeponmovin'! (4:23)
-03. Changeswillcome! (4:49)
-04. Stompn’&bumpn'! (4:41)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B254437441DEFB9985E36C8CFF59B2BC481D76FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

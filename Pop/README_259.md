@@ -1,3 +1,61 @@
+###  Публикация: 1193811   (261809) от 23.12.2017
+
+VA - Euro Disco - The Lost Legends Vol. 3 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djalana - High Stakes (3:38)
+02. Cox - China (5:45)
+03. Kado - Tonight (6:12)
+04. Tommy Young - My Life Is Wonderful (5:42)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266243AE2F6C0A04197AFFD6CACCB098AEE6ECC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193679   (261805) от 23.12.2017
+
+VA - Italo Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tom Dollar  -  Love Is Something  6:44
+02.  C'Zar  -  I Remember (Look Me Baby)  6:29
+03.  Steve Martin  -  Roxide  6:30
+04.  Laura Angel  -  lf You Want  4:29(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EB32E2CC724313D6FAB7245068AF0D2F4060EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193802   (261803) от 23.12.2017
 
 VA - Euro Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
@@ -711,64 +769,6 @@ Lian Ross - V (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4B871E76790E158D02B221DD294A059CEB90A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838235   (257991) от 21.11.2025
-
-VA - The Greatest Singer-Songwriter Classics (2015) 3 CD [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Joel - Piano Man
-02. JJ Cale - After Midnight
-03. Carly Simon - Coming Around Again
-04. Paul Simon - 50 Ways To Leave Your Lover(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB619429BB8C045BC11252E04C9F68D4424F0694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838191   (257987) от 21.11.2025
-
-VA - Formel Eins - Double Fun (1990) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Europop, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depeche Mode - Enjoy The Silence
-02. David A. Stewart feat. Candy Dulfer - Lily Was Here
-03. Marc Almond - A Lover Spurned
-04. They Might Be Giants - Birdhouse In Your Soul(   Читать дальше...   )Жанр: Electronic, Pop, Europop, Synth-pop, DiscoПродолжительность: 02:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92787E37CF21FAA4D225FAC9E317EAA3880A996
 ```
 
 https://mybot314.ru/tekegram_catalog/

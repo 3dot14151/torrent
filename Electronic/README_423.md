@@ -1,3 +1,61 @@
+###  Публикация: 1632495   (198705) от 10.05.2023
+
+VA - Car Music 2023: Best Road Trip Songs [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - Stand By Me (2:47)
+02. Rinat Bibikov - Beautiful Life (3:09)
+03. Lorenz Koin - A Million Times (2:27)
+04. Awstin Shanu - Satellites (2:18)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB7F4D7898D3E589569AFAED0830FBE64F45EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632463   (198673) от 10.05.2023
+
+Sandra - Stop For A Minute (Maxi-Singles Collection) (2023) [FLAC|Lossless|image + .cue] <Synthpop, Eurodisco, Europop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop For A Minute (Extended Version)
+02. Maria Magdalena (Extended Version)
+03. In The Heart Of The Night (Extended Version)
+04. Little Girl (Extended Version)(   Читать дальше...   )Жанр: Synthpop, Eurodisco, EuropopПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F1AE221EBA9278903B060C91CA768EB9DB7FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639097   (197265) от 11.06.2023
 
 Analog '82 - Sunsets and Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
@@ -679,64 +737,6 @@ VA - Future Trance Vol.100 (2022) 3CD, Compilation, Mixed, Digipack [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA9E3FA2DDDE7BB8A00AF8EEDEE9B68D339E2199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587261   (192811) от 30.10.2022
-
-VA - Wonderful Days - Best of 90s Vol. 2 (2022) CD, Compilation [MP3|320 Kbps] <Techno, Hard Trance, Progressive, Euro House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marusha - It Takes Me Away
-02. RMB - Redemption (1994 Original)
-03. JL - The Future
-04. Andre Visior - Speed Up (Luvstruck 2002) (Radio Edit)(   Читать дальше...   )Жанр: Techno, Hard Trance, Progressive, Euro HouseПродолжительность: 03:15:40 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315666731FF37C18737BFD8E1E54E4345370F4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587548   (192669) от 31.10.2022
-
-about : river - 24 Years Apart (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Organic House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Cats (7:00)
- 02. Frozen (5:16)
- 03. Snowing Inside (7:17)
- 04. Two Birds (5:22)(   Читать дальше...   )Жанр: Melodic House & Techno, Organic HouseПродолжительность: 01:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B8ABA9C8D2442F8F65114D2CEBAC6CDA85ED17
 ```
 
 https://mybot314.ru/tekegram_catalog/

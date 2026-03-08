@@ -1,3 +1,32 @@
+###  Публикация: 1554891   (570249) от 03.06.2022
+
+Angel X (Andy Jonas) - 8 Relises (1993-2021) [FLAC|Lossless|WEB-DL|tracks|tracks + .cue] <Enigmatic, Pop Rock, Synth Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light the Stars [00:02:59]
+02. Return to Innocence [00:03:07]
+03. I Will Never Let You Go [00:03:18]
+04. Reach Your Heart [00:02:58](   Читать дальше...   )Жанр: Enigmatic, Pop Rock, Synth PopПродолжительность: 8 CD, 02:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4F757954FCF4EC42D70BDA43A35BF134467074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555393   (570244) от 03.06.2022
 
 Olga Stankevich - Дискография (2010-2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop, Piano>
@@ -751,35 +780,6 @@ Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB0A0C41614EA60C659374A3B6B25F6371E262BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923497   (564488) от 31.07.2015
-
-VA - Simply Chillout (2005) 4CD[FLAC|image+.cue]<Electronic, Ambient, Pop, Rock, Classica>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая проблема была с определением раздела для этого релиза. Все четыре диска хоть и объединены общим названием, но каждый из них в соответствии со своим названием и к классики отнести можно и к музыкальному сопровождению фильмов и к электронной музыке. Но все же все они предназначены для того, чтобы отдых слушающего был полноценным. А ведь перед выходными это (   Читать дальше...   )CD1 - Chilled Beat
-CD2 - Smooth Pop Classics
-CD3 - Film&TV Themes
-CD4 - Classical ChilloutЖанр: Electronic, Ambient, Pop, Rock, ClassicaПродолжительность: 04:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A54CC10C0C8F0D5E4558BCB9B6550CB7A31B8A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

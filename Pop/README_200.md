@@ -1,3 +1,61 @@
+###  Публикация: 942598   (453905) от 01.10.2015
+
+Ariana - Первая Любовь (2002) [APE|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Я Уже Не Помню Слова
+02	Под Испанским Небом
+03	Непонятная Любовь
+04	Я Больше Не Верю(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BAA2BEC6A2DA445EED1C3C81E52CF4B8408371F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942755   (453760) от 01.10.2015
+
+Michael Cretu - Moon Light Flowers (1989) [FLAC|image+.cue]<Pop, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. '57 (The Year I Was Born)
+2. Fire And Rain
+3. Wild River
+4. Shadows Over My Head(   Читать дальше...   )Жанр: Pop, Synth-pop, DiscoПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9561647E3BA476AEEF28D051C7201E984A58A2B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569244   (453657) от 12.08.2022
 
 VA - EFFECTIVE COVERS, Vol. 3 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
@@ -684,64 +742,6 @@ Blue System - Obsession (1990) [OGG|485 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EDFB670198CCD3B02CB81A28F198638890C991E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569526   (451664) от 13.08.2022
-
-Blue System - Twilight (1989) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Symphony	3:34
-02. Love Me On The Rocks	3:27
-03. Save Me	3:45
-04. Nobody Makes Me Crazy (Like You Do)	3:27(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BCE8DE1D74C18400A2C7CD2C120CC7030D4E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569615   (451653) от 13.08.2022
-
-Oscar Rocchi's Orchestra - Video Dance (1981) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supersonic (3:25)
-02. Cabala (3:29)
-03. Open Gate (2:53)
-04. Altro Mondo (2:32)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2069A5ADEECC705D4AAF2B4BADD013E60F9A6956
 ```
 
 https://mybot314.ru/tekegram_catalog/

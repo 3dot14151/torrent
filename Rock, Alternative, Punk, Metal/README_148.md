@@ -1,38 +1,3 @@
-###  Публикация: 616900   (973756) от 11.02.2013
-
-Saxon - Sacrifice (2013) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Procession
-02. Sacrifice
-03. Made In Belfast
-04. Warriors Of The Road
-05. Guardians Of The Tomb
-06. Stand Up And Fight
-07. Walking The Steel
-08. Night Of The Wolf
-09. Wheels Of Terror
-10. Standing In A QueueЖанр: Heavy MetalПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3620DFD294A4A7EC4AC162317CB4B3EF3BAD7578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616777   (973695) от 11.02.2013
 
 Eels - Wonderful, Glorious (2013) Deluxe Edition [MP3|320 кб/с]<Alternative Rock,indie Rock>
@@ -753,6 +718,41 @@ Merlins Legacy - Stronger Than Ever (2016) [MP3|320 кб/с] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BA2F9EE590CF54BF9825A7C69BBA64BBEB5001D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617431   (972129) от 12.02.2013
+
+Кассиопея - 3 альбома (2009-2012) [MP3|320 кб/с]<Freak-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление [00:01:12]
+02. Солнце [00:02:44]
+03. Гага [00:02:57]
+04. Этиловая дыра [00:02:58]
+05. Береги [00:03:41]
+06. Глупышка [00:04:36]
+07. Орки [00:02:49]
+08. Беларускія танцы [00:03:01]
+09. Мозги [00:02:32]
+10. Плевать хотел [00:03:21](   Читать дальше...   )Жанр: Freak-Pop/Cosmic Synth-Pop/PsychodelicПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8028F4C2500BF02C12703D8DADB44ED132C4C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

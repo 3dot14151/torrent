@@ -1,3 +1,32 @@
+###  Публикация: 1520821   (139544) от 30.12.2021
+
+Artie Shaw - 1950 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Must Be Somethin' Better Than Love [2:56]
+02. Nothin' From Nothin' [3:02]
+03. Love Walked In [3:05]
+04. So Easy [3:08](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F82F20926967E8FA1BAE3D692C33C704F742022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520824   (139517) от 30.12.2021
 
 Aldo Romano' New Blood - Plays "The Connection" (2013) Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -716,35 +745,6 @@ David Wilson - Romance of Christmas (1999) Swallowtail Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E08FB082DFBD7D31D9B772D84996AA600D8DB854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273247   (137929) от 31.12.2018
-
-David Wilson - There's A Small Hotel (1997) Swallowtail Records [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm in the Mood for Love [2:13]
-02. Isn't It Romantic? [2:10]
-03. La Vie en Rose [2:52]
-04. Are You Lonesome Tonight? [2:14](   Читать дальше...   )Жанр: Jazz-Pop, Violin JazzПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622D88408B66E9E37B9216D952BAB87A12DA44E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

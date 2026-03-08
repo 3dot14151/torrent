@@ -1,32 +1,3 @@
-###  Публикация: 1098958   (907322) от 31.01.2017
-
-All About A Bubble - This Atmosphere (2017) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alright, Alright, Alright
-02. Sing It! Scream It!
-03. It Rains in My Heart
-04. Awakened(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97437A6B1635951F6A15C820ADB94578DE45302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492020   (907297) от 27.08.2021
 
 The Neal Morse Band - Innocence & Danger (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
@@ -737,6 +708,34 @@ U.D.O. - Decadent [Japanese Edition] (2015) [FLAC|Lossless]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDE51DB7C426EA725DF79EA549887C7EBD5EE86F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292280   (906268) от 07.02.2011
+
+Воскресение - Лучшее (2CD) (2010) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:18:17
+Треклист:
+01 -
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B6F148256D44734E3BE6B1EB36E6949EAD0DB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

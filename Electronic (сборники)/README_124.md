@@ -1,3 +1,32 @@
+###  Публикация: 1051029   (535126) от 10.09.2016
+
+VA - DJ Bass Master (2016) [MP3|320 Kbps] <Dubstep, Drumm And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535126.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tritonal - Blackout (feat. Steph Jones)
+002. Myrne - Celestial
+003. The Prodigy - Wild Frontier (Wilkinson Remix)
+004. Matrix & Futurebound - Glow Worm(   Читать дальше...   )Жанр: Dubstep, Drumm And BassПродолжительность: 09:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA31FBCD19A950F51487D67363F8B5DAB2AC3D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239796   (535102) от 07.08.2018
 
 VA - Tropical Vibes vol. 6 (2018) [MP3|320 Kbps] <Tropical House, Deep House, Soulful House>
@@ -716,35 +745,6 @@ VA - Trance Traveling 91 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:612F60A9124A088EA53FA4D79FB673059624FAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926972   (531624) от 11.08.2015
-
-Christian Grey - Shades of Sensuality Chill Out 50 Minutes Lounge Music Sexy Songs (2015) [MP3|320 кб/с]<Lounge, ChillOut>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensuality (04:38)
-02. Shades of Lounge (04:40)
-03. Armenian Duduk & Relaxing Ocean Waves Lounge (Nature Sounds - Nature Music) (05:20)
-04. Music Bar (Music for Dreaming) (05:00)(   Читать дальше...   )Жанр: Lounge, ChillOutПродолжительность: 02:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10EE3B27583ADD73F8BC97A8530BAE688768830E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1096377   (921061) от 23.01.2017
+
+Caellus & Camulus - Best of 2016 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Protosixti (Unbeat Remix) (7:11)
+02. La' Kreinto (Original Mix) (9:37)
+03. Dei Milites (Sacred 7 Remix) (7:30)
+04. Ethereal Beings (Synfonic Remix) (8:07)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960B38B2D0DBF0CB71B45F1461FB5181812A15FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988509   (921058) от 20.02.2016
 
 Orbient - Music For The ISS (2001) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
@@ -683,32 +712,6 @@ Sidhartha - Total Experience (EP) (2010)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DDB7B6BB84EF140B4CBFD22027615C695CD1B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490287   (920854) от 19.08.2021
-
-guitarFineTune 8.6.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920854.jpg" />
-</div>
-
-
-###  Подробнее
-
-guitarFineTune - это приложение. это помогает настраивать электрические и акустические гитары.  Все струны можно настраивать одновременно. Измеренный звук для всех 6 струн отображается одновременно и сравнивается со звуками струн, какими они должны быть, когда гитара находится в идеальном состоянии.Тип издания: macOS SoftwareРелиз состоялся: 09.08.2021Разработчик: Eigil KroghПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F689F2CF62891503BAD3A3BACDBB251F6E985417
 ```
 
 https://mybot314.ru/tekegram_catalog/

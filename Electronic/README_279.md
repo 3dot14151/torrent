@@ -1,3 +1,58 @@
+###  Публикация: 1241829   (518115) от 19.08.2018
+
+Dance With The Dead - Loved To Death (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, New Retro Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go!
+02. Into The Shadows (feat. Nick Hipa)
+03. Salem
+04. Portraits(   Читать дальше...   )Жанр: Synthwave, New Retro WaveПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDF91AB9F1756FF4D803DAFB50CE7ACD21DD15D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534386   (517758) от 15.08.2012
+
+VA - Aka Aka And Thalstroem - Variete (Remixed) - 2012 [FLAC|Lossless]<Tech House, Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Matters (Жанр: Tech House, Deep House, TechnoПродолжительность: 03:51:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560982   (517714) от 02.07.2022
 
 Markus Schulz - Global DJ Broadcast (Sunrise Set) (2022-06-30) [MP3|320 Kbps] <Progressive House, Trance>
@@ -685,64 +740,6 @@ VA - Workout Uplifting Trance Anthems (2018) [MP3|320 Kbps] <Trance,Uplifting Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44FC837A5159048B57AB597F9C31B5063CF0E20D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242408   (515134) от 22.08.2018
-
-VA - Dub Hits Vol.8 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mhammed El Alami & Lucid Blue - Under The Sun (O.B.M Notion Dub Mix)
-02. Elite Electronic & Sandro Mireno - Heaven Song (Extended Mix)
-03. Kiyoi & Eky, Khairy Ahmed - Little Angel (Extended Mix)
-04. Tom Exo - Hyperspace (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BE6A1A24BB64C8976B7D83B666D6C9CDB1058A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242483   (515123) от 22.08.2018
-
-Dinka - Innocence (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevation (8:31)
- 02. Toes in the Sand (6:48)
- 03. Venice Beach (6:09)
- 04. Innocence (6:07)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED06CF7DCE3AB8C1C00BEA12D5845FDC79E3C81
 ```
 
 https://mybot314.ru/tekegram_catalog/

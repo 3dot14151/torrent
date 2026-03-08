@@ -1,3 +1,90 @@
+###  Публикация: 1235750   (557363) от 13.07.2018
+
+Paul St. Hilaire + Rhauder - Derdeoc (2017) Sushitech Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Control (09:59)
+ 02. Redeem (06:45)
+ 03. Redeem (Version) (06:52)
+ 04. Meanwhile (08:49)(   Читать дальше...   )Жанр: Dub Techno, Dub, AmbientПродолжительность: 01:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6838BE4DBFCACF7DA3C963D1959AA19A388937CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045866   (556782) от 25.08.2016
+
+Dinka - Tales Of The Sun (2011) 2CD [FLAC|Lossless|tracks + .cue] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motion Picture (04:34)
+02. Superstitious (04:54)
+03. On The Beach (03:00)
+04. Campfire (04:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE862534D1B30F7DE3DB863B538CF05E4B207DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235862   (556608) от 14.07.2018
+
+VA - Schneeweiss 8 (Presented by Oliver Koletzki) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super Flu - Mygut (Solomun remix) [08:22]
+02. Oliver Koletzki - A Tribe Called Kotori (Koletzki's Woodfloor version) [06:55]
+03. Bloody Shelby Feat. Lazarusman - Ready [07:53]
+04. Rampa - Fluke [06:39](   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 03:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9D51D32E736DB2E6A4BD797C987B84756C1C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556835   (556428) от 12.06.2022
 
 Armin van Buuren - Feel Again Part 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive, Trance>
@@ -657,93 +744,6 @@ VA - Remix EP 01 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2EC64374B56E93F2A16D125924BF00132D7ABCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557685   (539181) от 16.06.2022
-
-York - Indigo (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Balearic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Journey (3:21)
- 02. Antigua (3:48)
- 03. Out Of The Woods (ft. Scot & Millfield) (6:51)
- 04. When You're Around (ft. SHEARS, Scot & Millfield) (3:21)(   Читать дальше...   )Жанр: EDM, Progressive House, BalearicПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6729211846C053FA26D0E20ECA99C362DF66683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154587   (539166) от 31.07.2017
-
-VA - 10 Years Of Universe Media (2017) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Universe Project & DCS - We Fall Down (feat Jennifer Wallace - Triple Dee remix) (07:18)
-02. Dawn Tallman - Find Strength (Dave Anthony vocal remix) (06:40)
-03. DeepCitySoul - Groove School (Grant Nelson remix) (07:25)
-04. Kathy Brown - Baddest Bitch (Ricky Morrison Vox) (07:02)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B109004DDA35CC89EBA3BD61731B2B95502C7335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050442   (538266) от 08.09.2016
-
-VA - Cabana Lounge (Deep Chilled Holiday Moods) (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matthew1626, Skyla J - I Pray feat. Skyla J (Original Mix)[08:28]
-02. Rene, JazzyFunk - I Wanna Know feat. Rene (Original Mix)[05:42]
-03. Fourfeet, Loui & Scibi, Lou Van - More Than Enough feat. Fourfeet [05:08]
-04. Ben Ashton - Keep Me Waiting (Original Mix) [06:05](   Читать дальше...   )Жанр: Chill House, Nu DiscoПродолжительность: 01:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E954621AC476579029CC8DB9404A03DE89E84000
 ```
 
 https://mybot314.ru/tekegram_catalog/

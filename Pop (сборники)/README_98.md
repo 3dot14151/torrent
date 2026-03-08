@@ -1,3 +1,32 @@
+###  Публикация: 1421041   (322108) от 03.11.2020
+
+VA - After Office: Electropop Dance Music (2020) [MP3|320 Kbps] <Pop, Dance, Electropop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bramd - In This Together
+002. Terminal - Enchantment
+003. Hybrid Funk Theory - Ready To Go
+004. Mauricio Cury - The Wolves(   Читать дальше...   )Жанр: Pop, Dance, ElectropopПродолжительность: 08:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205976F2574ECA66F89D79A0931F4BDFDEE965CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181756   (321796) от 08.11.2017
 
 VA - Русская Дискотека ХХ Века от Ovvod7 - 017 (2017) [MP3|320 Kbps]<Pop>
@@ -728,41 +757,6 @@ VA - Лучшие Хиты 80-90-Х В Обработке DJ Зарубежны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5576D66A2D5F7225E32D208FBDD9C83F98CFFDE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583671   (312125) от 02.12.2012
-
-C.C. Catch - All Very Best (2012) [MP3|320 кб/с]<Pop,Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven And Hell
-02. Are You Man Enough
-03. Midnight Gambler
-04. Born On The Wind
-05. Little By Little
-06. Soul Survivor
-07. Hollywood Nights
-08. Cause You Are Young
-09. Summer Kisses (12'' Version)
-10. Back Seat Of Your Cadillac(   Читать дальше...   )Жанр: Pop,DiscoПродолжительность: 02:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA5DD9BD7E381E419C2B24A300DB4BECB0A217F
 ```
 
 https://mybot314.ru/tekegram_catalog/

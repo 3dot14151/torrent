@@ -1,3 +1,177 @@
+###  Публикация: 943629   (447114) от 04.10.2015
+
+Al Bano & Romina Power - Good Songs (2015) [MP3|128 кб/с]<Italo pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Al Bano & Romina Power
+001. A Miracle
+002. Abbandonati
+003. Abbi Fede(   Читать дальше...   )Жанр: Italo popПродолжительность: 12:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2275A9EC4DD3E0D8E3237AA2CAAEFBA9060D1A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943564   (447108) от 04.10.2015
+
+VA - Попсовая соточка MTV. Сборник 8 (2015) [MP3|256-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Денис Клявер - Герой
+002. David Guetta & Sam Martin - Lovers On The Sun
+003. Дина Гарипова - Сумерки
+004. Felix Jaehn Feat. Jasmine Thompson - Aint Nobody(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323B574E4981B75ADBCF977EEF9D4C59103BB2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569691   (447086) от 15.08.2022
+
+Texas - Compilation (2022) [MP3|320 Kbps] <Pop, Pop - Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night for Day
+02. Fight the Feeling
+03. Breathless
+04. Can't Resist(   Читать дальше...   )Жанр: Pop, Pop - RockПродолжительность: 03:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525F35D94DAEE7BC4BE58D22B9323835B0C5E42E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943550   (447021) от 04.10.2015
+
+Ricchi E Poveri - Good Songs (2015) [MP3|320 кб/с]<Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acapulco
+02. Alla Faccia Di Belzebu
+03. Amare, Ricominciare, No No No
+04. Amarti Un Po'(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21057101095AB5B1C5CD12B8F05AE284F646C30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569809   (446993) от 15.08.2022
+
+VA - Music For You vol. 23 (2022) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rush - 2112 Overture The Temples Of Syrinx Discovery Presentation Oracle The Dream ... (20:32)
+ 02. King Crimson - Starless (12:31)
+ 03. Jethro Tull - Thick as a Brick (Edit #1) (2001 Remaster) (03:03)
+ 04. Yes - Awaken (2003 Remaster) (15:31)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 03:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B785ED36A503A3CDBCE394AACEE95EF65E73883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569988   (446992) от 15.08.2022
+
+VA - Music News vol.209 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alice Harp - Ничего Не Говори (02:51)
+ 002. 2+2 - Только Ты (Maximove Album Mix) (04:59)
+ 003. Aarne feat. Big Baby Tape - Ski Ski (02:56)
+ 004. Aarne feat. Feduk - Перепонки (02:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171A6934F977D1A359E219263C2EA57A8AC34157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943801   (446912) от 04.10.2015
 
 VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 15) (2015) [MP3|320 кб/с]<Italo Disco>
@@ -595,180 +769,6 @@ VA - Feeling Good Vol 1 Positive Chill Grooves (2015) [MP3|320 кб/с]<Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54FF5E9E502A62476B58C860EFDC62BB38A941B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943895   (445333) от 05.10.2015
-
-Dj Parafich - Pumping (Scouse) Romantica vol. 15 (2015) [MP3|192 кб/с]<Pumping house, Scouse house, Hard bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Save Me (Rusklubb Mix)
-02 After All (Tega Klubbed Remix)
-03 Bonkers Vs The Launch (Karlston Khaos Mix)
-04 Last Friday (Klubb Mix)(   Читать дальше...   )Жанр: Pumping house, Scouse house, Hard bassПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393D83D0BF49B5080201D6107D8E3B9D18EBE79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943851   (445213) от 05.10.2015
-
-VA - Vocal Trance Collection Vol. 138 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Aelyn - New Day (Original Mix)
-02 Dreamy Maratone feat. Danny Claire - You (Original Mix)
-03 Witness45 feat. Jess Morgan - Lightspeed (Original Mix)
-04 Andy Moor – K Ta (Lange Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB1B222508AFFB3E67CE7A89E4E937FD3C47A8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943905   (444921) от 05.10.2015
-
-Baccara - Good Songs (2015) [MP3|128-320 кб/с]<Pop, Dance pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes Sir, I Can Boogie (1977)
-02. Love You Till I Die (1977)
-03. Granada (1977)
-04. Gimme More (1977)(   Читать дальше...   )Жанр: Pop, Dance popПродолжительность: 05:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF18923EE9311D562AF7C4036454436B8D23935B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943916   (444915) от 05.10.2015
-
-VA - Sexy Jazz Guitar Lounge - Sensual Jazz Music Tantric Chillout Hot and Cool Instrumental Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instrumental Jazz Music Ambient - Sexy Jazz Guitar
-02. Sex Music Zone - Erotic Lounge Music
-03. Jazz Guitar Club - Very Hot Party
-04. Making Love Music Ensemble - True Feelings(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D08A4BA6FA216545A7CFDEEF8436B43B17372C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062040   (444776) от 12.10.2016
-
-VA - Beatport Trance Pack  (12.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Rocca - Against The Wind (Braulio Stefield Remix)  7:36
-02. Ferry Corsten & Cosmic Gate - Event Horizon (Extended Mix)  5:40
-03. Denis Kenzo & Angel Falls - Run Away (Original Mix)  6:06
-04. Francisco Echeverria - Galapagos (Original Mix)  7:36(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 06:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2E0CEFB263216BF024E41C35A9349225738D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062057   (444774) от 12.10.2016
-
-VA - Sound 155 Version Relentless (2016) [MP3|236~320 Kbps] <House,  Electro, Bigroom, UK Garage, Funky, Progressive, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mary G. feat. Ricardo Munoz - You & I (Bodybangers Radio Edit)  3:23
-002. Bodybangers Feat. Tony T. - Break My Stride (Extended Mix)  4:05
-003. Finger & Kadel - Kalinka (Club Mix Edit)  3:16
-004. Firebeatz - Wonderful  5:37(   Читать дальше...   )Жанр: House,  Electro, Bigroom, UK Garage, Funky, Progressive, ClubПродолжительность: 13:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F441162ACE7E0C58FEB69B928385B5EB53CF4F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

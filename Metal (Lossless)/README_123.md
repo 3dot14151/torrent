@@ -1,3 +1,90 @@
+###  Публикация: 1555681   (567359) от 05.06.2022
+
+Dampf - The Arrival (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winterland
+02. The Other Side (feat. Tommy „Lord Thorwald” Johansson - Sabaton & Fredrik „Hanoi“ Melander - Bathory)
+03. Goeie Mie (feat. feat. Tommy „Lord Thorwald” Johansson – Sabaton)
+04. Who Am I?(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C22FBAC99CD40FAD7A20E8335BFED66D3520CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044217   (567293) от 19.08.2016
+
+Blood Red Throne - Union Of Flesh And Machine (2016) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567293.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Revocation Of Humankind 04:23
+2 Proselyte Virus 05:09
+3 Patriotic Hatred 04:15
+4 Homicidal Ecstasy 04:42(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0301CAFDC5864B1D70540678FFAE6E64A12F9B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234869   (566004) от 08.07.2018
+
+Darklands - Darklands (1998) [FLAC|Lossless|image + .cue] <Gothic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro. (02:24)
+02. Serpentkiss. (05:32)
+03. The King Of Crows. (03:50)
+04. Swansong. (05:45)(   Читать дальше...   )Жанр: Gothic Doom MetalПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FB9A93CCE9C64F75C1051BE955A1BA9E917F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234937   (566003) от 08.07.2018
 
 The Heretic Order - Evil Rising (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, Horror Metal>
@@ -672,92 +759,6 @@ Subterranean Masquerade - Temporary Psychotic State (2004) Single [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBEB368500D7FD78135218D3D584DB7F02CCCC17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152602   (563638) от 24.07.2017
-
-Subterranean Masquerade - Home (2014) Single [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563638.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Home (05:46)
-2. Beyond the pale (The Mission Cover) (06:25)
-3. That Night (Bonus Track) (09:30)Жанр: Avant-Garde Metal, Progressive MetalПродолжительность: 00:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABC5E1E60FD614C9EC48CFC1C480D78CA27C257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152689   (563629) от 24.07.2017
-
-Seas of Years - Drifting Ever Shifting (2014) [FLAC|Lossless|WEB-DL|tracks] <Post Metal, Post Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563629.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Passing Skies (04:38)
-2. Ledge (06:29)
-3. Stairwell (05:09)
-4. The Glass Shelter and the View (06:43)(   Читать дальше...   )Жанр: Post Metal, Post Rock, InstrumentalПродолжительность: 00:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1505DC890DBED3AC72BAA70556F07F07946D582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152692   (563614) от 24.07.2017
-
-Seas of Years - The Ever Shifting Fields (2016) [FLAC|Lossless|WEB-DL|tracks] <Post Metal, Post Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563614.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Passing Skies (04:37)
-2. Ledge (06:30)
-3. Stairwell (05:09)
-4. Mapping the Clouds (04:46)(   Читать дальше...   )Жанр: Post Metal, Post Rock, InstrumentalПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFA596A6668838091BC1F102D573704BD56D07D
 ```
 
 https://mybot314.ru/tekegram_catalog/

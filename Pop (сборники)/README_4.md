@@ -1,3 +1,32 @@
+###  Публикация: 1475952   (1011972) от 09.06.2021
+
+VA - Evrybody Clap: Disco Party (Vol.03) (2021) [MP3|320 Kbps] <Disco, Dance, Remixes>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011972.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michael Rimini - Walking In The Sky
+002. Love Doves - Drive
+003. Jaime Lynn - You Aint Got No Money
+004. Rudy's Midnight Machine - Shy Smile(   Читать дальше...   )Жанр: Disco, Dance, RemixesПродолжительность: 09:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2609347332D944C036D7D114A539AC97693594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476697   (1011491) от 12.06.2021
 
 VA - Hot Summer Play (2CD) (2021) [MP3|320 Kbps] <Dance, Pop>
@@ -743,41 +772,6 @@ CD1:01. Sugarfree - Cleptomania
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C46D775767F25A116A622774BDE56CE42273C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601619   (998020) от 11.01.2013
-
-VA - Зимние Хиты На Love Radio (2013) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998020.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Тина Кароль - Вьюга-Зима
-002 Far East Movement feat. MNEK - Christmas In Downtown LA
-003 Bass Ace feat. DJ Skazka - Начнем Сначала
-004 Avicii feat. Andreas Moe - Last Dance (Vocal Radio Mix)
-005 А-Студио - Хочу Влюбиться
-006 Mylene Farmer - A L'ombre
-007 Диверсанты и Маня - Замуж За Деда Мороза
-008 Aura Dione - In Love With The World
-009 Лера Кондра - Кошка
-010 Movetown feat. Ray Horton - Here Comes The Sun (Radio Edit)(   Читать дальше...   )Жанр: РорПродолжительность: 06:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE87AAB54BBA599215BEBAC73D7D0957ABABF37
 ```
 
 https://mybot314.ru/tekegram_catalog/

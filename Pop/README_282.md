@@ -1,3 +1,61 @@
+###  Публикация: 1646694   (208917) от 15.07.2023
+
+Александр Журбин - 5 Альбомов (1983 - 2010) 6CD [MP3|320 Kbps] <Саундтрек, Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ж. Рождественская - У меня в Москве купола горят
+02. А. Стоцкая - Ария Магды из мюзикла Губы
+03. П. Смеян - Последний шанс
+04. М. Боярский - Осенняя баллада(   Читать дальше...   )Жанр: Саундтрек, Советская эстрада, РетроПродолжительность: 02:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D13C302CCE530AF0521749E07632B181F8199B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 676580   (208898) от 14.07.2023
+
+Brian McFadden - The Irish Connection (2013) [FLAC (tracks + .cue)]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Is The Colour (feat. sinead o'connor) [03:33]
+ 02. All I Want Is You (feat. ronan keating) [03:53]
+ 03. Crimes [02:51]
+ 04. Dreams [03:44](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790A7889DDBBA47AC42EB3EC3CF2B18CFFAB09ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646817   (208878) от 15.07.2023
 
 Michael Bolton - Spark of Light (2023) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock, Ballad>
@@ -687,64 +745,6 @@ VA - Romantic Collection. Reggae (2000) [OGG Vorbis|480 Kbps] <Reggae, Reggae-Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CDE77E8CC3D4D7FFDB19B32ECD30DC2E4C72687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612330   (207289) от 15.02.2023
-
-VA - Romantic Collection. Classic For Love (2001) [OGG Vorbis|480 Kbps] <Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Mauriat-Symphony No. 40 Movement (Mozart)
-02. N. De Angelius-Menuet (Boccherini)
-03. R. Clayderman-Moonlight Sonate (Beethoven)
-04. Ricky King-Aria (Bach)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBB6915352970F025F990E074D25D6E786DECB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612634   (207212) от 16.02.2023
-
-Radiorama - The Best Of (1989) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chance to Desire
-02. Desire
-03. Hey, Hey (Remix '89)
-04. Flight of Fantasy (Remix '89)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DC0DE168B8785C603D55E7AABD536C21D2BF8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

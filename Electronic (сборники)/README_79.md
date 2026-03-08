@@ -1,3 +1,32 @@
+###  Публикация: 1129473   (722619) от 28.04.2017
+
+VA - Chill House Original Electro Mix 2017  [MP3|320 Kbps] <Downtempo, Chillout, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Krokodile Krugel - U and Me (Marcelo Wallace Remix)
+002. Dr. Beat - Be a Better You
+003. Maa - Elasia
+004. Flacoustics - Timewalking(   Читать дальше...   )Жанр: Downtempo, Chillout, Deep HouseПродолжительность: 08:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F623C3C35A266A1711E662E1AE2A839B2E40579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129417   (722496) от 28.04.2017
 
 VA - Buddha-Bar Monte-Carlo (2017) [MP3|320 Kbps] <Electronic, Easy Listening, Downtempo>
@@ -725,35 +754,6 @@ VA - Endless Melodies Lights (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18B28F3DA1AE71C30216B0F6BFC17824C3A32C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130259   (716788) от 01.05.2017
-
-VA - Empire  Records: Chill Trance 2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kim McNichols - Better Off Alone (Summer Pool Party Mix)  4:03
-02.  Michael Ribeira - Ecuador (Slowsphere Remix)  4:07
-03.  Marga Sol - Beautiful Morning (Marga Sol Deep Mix)  3:54
-04.  Kid Vibes - I See You (Instrumental Version)  4:16(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E26199F73908A5979DA4A00B691C67A7DC67F0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

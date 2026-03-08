@@ -1,3 +1,32 @@
+###  Публикация: 1030592   (672173) от 01.07.2016
+
+VA - Running Hits & EDM (Non-Stop for Fitness & Workout) (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672173.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Teknova -  Drop The Bounce (Original Mix) 4:31
+002. Klaas -  Night To Remember (Dany Lorence Remix) 5:04
+003. Paul Oakenfold & Matt Goss Present The Concrete Sneakers -  Touch The Sky (Faustix & Imanos Remix) 5:09
+004. Firehunterz -  Tornado (Original Mix) 4:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 09:21:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF14DE2878F62FD1C39346E8FC28305226FA748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223571   (671639) от 06.05.2018
 
 VA - Red Rythm Evolution (2018) [MP3|320 Kbps] <Eurodance, Club, House>
@@ -718,35 +747,6 @@ VA - Club Dance Ambience vol.76 (2016) [MP3|320 Kbps] <House, Electro House, Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D28ABCC53A5CCE9DF503FE65DE4D6DC01B5BCBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031279   (668597) от 03.07.2016
-
-VA - TOP 100 Club (June) (2016) [MP3|320 Kbps] <House, Electro House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668597.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Rihanna -  This Is What You Came For (Nejtrino & Baur Remix) 3:32
-002. Armand Van Helden -  I Want Your Soul (Underground Dude Remix) 3:11
-003. Ummet Ozcan -  Spacecats (SilverBlack Remix) 5:02
-004. Francesco Diaz & Jay Frog -  Arabian Nights (Melsen Edit) 4:57(   Читать дальше...   )Жанр: House, Electro House, Club HouseПродолжительность: 07:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D950EDE7D57CAF339623FBC557EFF647CF663F
 ```
 
 https://mybot314.ru/tekegram_catalog/

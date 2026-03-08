@@ -1,3 +1,185 @@
+###  Публикация: 1315127   (515020) от 18.07.2019
+
+VA - Planet Rap: Enhanced Radio Mix (2019) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J.J. Pérez - Tantos Diferentes
+002. Skinny Bonez - Ron's Basement
+003. Rockstah - Der Pinguin
+004. Cozy - Get Used To Me(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 08:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E24D7FE814373B12C9CCE277534AF74B9CC56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314903   (514858) от 18.07.2019
+
+VA - Зайцев.нет Лучшие новинки Июля (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514858.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Иракли & Lika Star - Luna (5:00)
+2.Океан Ельзи - Човен (4:42)
+3.P. PAT feat. Everthe8 - Wow Flow (4:40)
+4.Beyonce - Spirit (From Disneys The Lion King) (4:37)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC1B34D16A7C871E09A44ADE2D598F96A3E4367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930507   (514847) от 23.08.2015
+
+VA - Ты только мой. Супер сборник популярной музыки (2015) [MP3|192-256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514847.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ольга Соколова - Ты только мой
+002. Ария - Ангелы неба
+003. Mozgi - Хит Моего Лета
+004. Mr. Credo - Медляк(   Читать дальше...   )Жанр: РорПродолжительность: 06:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78BFCA77C9316D646652CA92220A3FDE76841CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315123   (514649) от 18.07.2019
+
+VA - Art Of Deep House (2019) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Forerunners - Magnetic Quartz
+002. Yana Remix4life - Clap Your Hand (Original Mix)
+003. Frankie Corsano - Jump
+004. Fonzie Ciaco And Fon21 - Good Times(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88D0BABB25AE0A0EEB49F3D1D4C891817453639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536518   (514590) от 18.08.2012
+
+VA - USA Hot Top 40 Singles Chart (18.08.2012) [MP3|256 кб/с]<Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514590.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flo Rida - Whistle
+2. Ellie Goulding - Lights
+3. Carly Rae Jepsen - Call Me Maybe
+4. Katy Perry - Wide Awake
+5. Maroon 5 - Payphone (Ft. Wiz Khalifa)
+6. Gotye - Somebody That I Used To Know
+7. David Guetta - Titanium (feat. Sia)
+8. Fun. - Some Nights
+9. Phillip Phillips - Home
+10. Rihanna - Where Have You BeenЖанр: Pop, Dance, RockПродолжительность: 02:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECC3395A43F7AF767F36E1A38A8886044D7C890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535814   (514584) от 18.08.2012
+
+VA - The Official UK Top 40 Singles Chart (12-08-2012) [MP3|320 кб/с]<Pop, Rok, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем традицию регулярной публикации UK Singles Chart — официального хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Составляется с 1952 года как аналог американского Billboard Hot 100.
+Существует и «братский» хит-парад альбомов — UK Albums Chart.1. Wiley Feat Rymez & Ms D - Heatwave (3:14)
+2. Calvin Harris Feat Example - We'll Be Coming Back (3:56)
+3. Lawson - Taking Over Me (3:10)
+4. Florence + The Machine - Spectrum (Say My Name) (Calvin Harris Remix) (3:38)(   Читать дальше...   )Жанр: Pop, Rok, R&BПродолжительность: 02:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25EDC5B4B316DCFA519226617274CAB279D8272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561564   (514566) от 05.07.2022
 
 VA - Dance All Night: Clubbing Electro House (2022) [MP3|320 Kbps] <Club, Dance, House>
@@ -577,180 +759,6 @@ VA - SunState Trance Nation (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B5467543549FF7668F78A49455696B636626639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242797   (513050) от 24.08.2018
-
-VA - Ibiza Beach House Party (2018) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513050.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Kristina Mailana - Make It Right (Original Mix)
-002. antonio giacca - every way
-003. Marco Molina - Everybody Dance (Original Mix)
-004. mike williams - the beat (extended mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75EA54CA4FD3ED27F6D395E071462B7533FB3B1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242895   (513045) от 24.08.2018
-
-VA - Best Dance Hits Ever - Top 50 (2018) [MP3|320 Kbps] <Dance, House, Electro, Techno, Europop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charly Lownoise, Mental Theo - Wonderfull Days (Radio Edit)
-02. Tiësto - Flight 643 (Radio Edit)
-03. Jeckyll, Hyde - Freefall
-04. Akcent - Kylie(   Читать дальше...   )Жанр: Dance, House, Electro, Techno, EuropopПродолжительность: 03:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6950E288687F32F87CFF2BAC65164E66083BF667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930514   (513024) от 25.08.2015
-
-VA - All the Lounge You Need (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midtempo Lovers - Neutral Wonders
-02. The Flyhigh Project - Mystery Garden
-03. Francesco Demegni - Don't Forget
-04. Kaleidodream - Inner Force(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C760E7B1D3EB2592C3FB9C015E638FEDD719FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930988   (513020) от 25.08.2015
-
-Andre Tay - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|256 кб/с]<Шансон, Интервью>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513020.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Andre Tay - Зацелую
-2. Andre Tay - Я церковные люблю колокола
-3. Andre Tay - Мираж
-4. Andre Tay - Милая мама(   Читать дальше...   )Жанр: Шансон, ИнтервьюПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724E6A5ED57B22C0AEB2CBB96487BD8ADAD20F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931153   (513017) от 25.08.2015
-
-VA - Play Electro In My House Vol 1 (2015) [MP3|320 кб/с]<Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flashdance 2010 - He's A Dream (Jerma Bootleg Mix)
-02. Felix - Good Times (Summer Disco Mix)
-03. Faz - Someday (Arduini & Pagany Electrolite Dub)
-04. Italiani - Maccaroni (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 02:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA8277CF0A5E7D809432724DED1C55A2CE1A7456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930506   (513016) от 25.08.2015
-
-VA - Lounge Cafe Lounge Playlist (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabado Playground - Ipanema Beach
-02. Belloq - Bellini Groove
-03. Jox Talay - SLS Pool
-04. Belloq - De Longpre(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B793599B0CFF9DC45A4F047A442A607D7D2A410A
 ```
 
 https://mybot314.ru/tekegram_catalog/

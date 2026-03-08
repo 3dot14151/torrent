@@ -1,3 +1,119 @@
+###  Публикация: 1408322   (457858) от 11.09.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 11.09.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dotan - NUMB (3:38)
+02. Ava Max - Salt (3:00)
+03. twocolors - Lovefool (3:10)
+04. NRD1 - All Good Things (Come To An End) (Extended) (4:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5908E714BF45AF7CFCC45D35DE583A1B485C45B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568734   (457795) от 10.08.2022
+
+The Heavy Horses - Compilation (2022) [MP3|320 Kbps] <Country>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Thirty Year Night
+03. Hell Awaits
+04. Pale Rider(   Читать дальше...   )Жанр: CountryПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A455F6D66E381A720E9F888F3C5DC4AFC82C4698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568712   (457624) от 10.08.2022
+
+VA - Music News vol.208 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457624.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ALMA - Close The Door (Hayasa G Remix) (02:51)
+ 002. Aarne feat. ANIKV & BUSHIDO ZHO - Тесно (02:13)
+ 003. Юлия Райнер - Забываю (03:12)
+ 004. Al Rakhim feat. Medkova - Эфир (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE40E5DF20A777369512ED7C6ABA39E7A40074EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568848   (457613) от 10.08.2022
+
+VA - Planeta Mix Hits 2022: Summer Edition (2022) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geo Da Silva - We Got The Power
+02. Stephan F - I Wanna Know
+03. Deep Emotion - Young & Wild
+04. Global Rockerz - Died In Your Arms(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:20:59 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F80546516EA543E8239B1426703F9E83E1529CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060098   (457554) от 06.10.2016
 
 VA - Running Universe 100 Hits (2016) [MP3|195-320 Kbps] <Bigroom, Progressive, Club>
@@ -680,140 +796,6 @@ VA - XXXL Evro Max Hits (2012) [MP3|256 кб/с]<Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0643A19416F1D690A862646DDD36F97FDB99BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408663   (453460) от 13.09.2020
-
-VA - Осенняя свежая 30-тка (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Basiaga feat. Benz - Kiss (3:00)
-02. Dругой Ветер - Запретный трек (3:55)
-03. Groove - Вдыхать (2:24)
-04. Judy Rain - Помоги (3:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79948103BDEFEA70865E5C7BB5A90159F87ACB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550828   (453453) от 24.09.2012
-
-VA - Зажигайте вместе с нами. Радио Record 5 50/50 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Alex Sonata - Kansai (Original Mix)
-02 Иван Дорн - Бигуди (Slider & Magnit Remix)
-03 Danny Devino - Rock da Beat (Pete Sunset Remix)
-04 DJ Antonio & Кирсанов feat. Tiana - ГадЖеТы
-05 Hard Rock Sofa and Swanky Tunes - Here We Go
-06 T-Killah & Виктория Дайнеко - Мира Мало (Viento & Mutti Radio Mix)
-07 Loreen - Euphoria (WAWA Remix)
-08 DJ Sandro Escobar - Давай, До Свидания!
-09 Vadim Spark - Odyssey
-10 Roma Pafos feat. Дмитрий Бикбаев - Капли моря (Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF29C2A6F448D8D5DA4A404827F4A1DF4914008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550812   (453449) от 24.09.2012
-
-VA - Клубняк в Тачку Vol. 4 (2012) [MP3|320 кб/с]<Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefano Prada - Sweet Dreams (Electro Mix)
- 02. Klubbhoppers feat Colonia - Sexy Body (Bigroom Electron Main Mix)
- 03. DJ Ivan Flash - Electro Love (Original Mix)
- 04. Soulsearcher - Can't Get Enough (DJSaar Electro Remix)
- 05. K LA CUARD - Do It (Aboutblank & Klc Remix Edit)
- 06. DJ Paul Carpenter - Vienna Roots (Olli DJ Electro Mix)
- 07. Christopher S & DJ Flava - Feel The Energy (Slin Project Remix)
- 08. Tim Sanchez - Bogota Express (Infected Culture Cocaina Remix)
- 09. 2 Unlimited feat Stasio Basic - Get Ready For This (Stas Basic Electro Club Mix)
- 10. Jason Parker - Whip it up (Dirty Club Mix)Жанр: Electro HouseПродолжительность: 04:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A872C3EBDDFFE66AF6712B189D60B9EAF828430F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551261   (453136) от 24.09.2012
-
-VA - Клубняк в Тачку Vol. 5 (2012) [MP3|320 кб/с]<Electro House, Electro, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Hiding All The Stars (Original Club Mix)
- 02. Bozzi & Castaman - Feel the Music (Club Mix)
- 03. Archie.V - Our World (Club Mix)
- 04. ManDee - Camasutra (Electro Foundation Remix)
- 05. Sheff - The Kitchen (Darth & Vader Remix)
- 06. Essbenci - Rise (Purple Project Remix)
- 07. Vova Baggage feat. Olya Milaxa - Black Angel (Slin Project Remix)
- 08. Hot Samples - Mighty Real (Luca Bisori Elektro Mix)
- 09. Rene De La Mone - I Believe In Love (Dirty Electro Mix)
- 10. Freeman & Drilla - Sweet Word (Locco Lovers Remix)Жанр: Electro House, Electro, ClubПродолжительность: 04:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B3AAF358F5D5AA2FB56DD5D063330F6092049F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1345529   (166424) от 15.12.2019
+
+VA - не Громкие новинки недели 47 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166424.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Akim - НКМ (3:17)
+2.AMCHI feat. Мот - Манекен (2:52)
+3.Bolshevseh - Море Без Соли (2:24)
+4.Brandon Stone - Она Любит Тебя (4:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B27E70A47A987BB94DB73CBBD482FA41BD75CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345566   (166238) от 15.12.2019
+
+VA - Зайцев.нет Лучшие новинки Декабря (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.5sta Family - Первый снег (2:46)
+2.Big Russian Boss - ВАУ (2:29)
+3.Breaking Benjamin, Scooter Ward - Far Away (4:52)
+4.Camila Cabello - Should've Said It (3:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AC179CCEF6B47F580AE6225CF4B9F3D9A0A006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431761   (166085) от 15.12.2020
+
+VA - Music News vol.56 (2020) [MP3|256-320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166085.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lina Lee - чмоК (02:16)
+ 002. Agunda & BRuys - Закат (02:18)
+ 003. Aisha - Чувства Цунами (03:28)
+ 004. Alban Skenderaj feat. Arilena Ara - AISHEH (03:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25851639C3B82169C43955DDB00A4C537C08D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431839   (166034) от 15.12.2020
+
+VA - Громкие новинки Декабря 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Walker, Vize, Leony, Edward Artemyev - Space Melody (3:00)
+02. Amine, Rico Nasty - Back & Forth (3:01)
+03. Anivar - Высоко (3:45)
+04. Anivar - Капля кислорода (3:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A35912126D01087D114F8E815922F355583F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345432   (165961) от 15.12.2019
 
 VA - Громкие новинки Декабря (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 03.11.2023 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26A373BEE0B601E7F8950EDFFD93A851B68D557C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432869   (161987) от 19.12.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 18.12.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foushee - Deep End (2:21)
-02. Dotan - NUMB (3:38)
-03. Jason Derulo - Take You Dancing (3:10)
-04. Pascal Letoublon feat. Leony - Friendships (Lost My Love) (3:02)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EFC41A23DF38372D1E9D2273B9D641BC036E9FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320182   (160903) от 05.11.2023
-
-VA - Понемногу отовсюду by Yuridar #G-H (1980-2022) Compilation Album [MP3|320 Kbps] <Rock, Blues, Others>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gala - Graduale (dub, bonus)
-02. Gallows - Black Heart Queen
-03. Garbage - Control
-04. Garmarna - Gamen (Volture)(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 06:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D3A173D2FE97D91B7135357D68A770F944883B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674637   (160801) от 06.11.2023
-
-VA - Rock Vivo! (2023) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meat Loaf - I'd Do Anything For Love (But I Won't Do That)
-02. Kiss - Rock 'N' Roll All Nite
-03. Aerosmith - Dream On
-04. Imagine Dragons - Thunder(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05ECCB1CEDB15595B77817E190D1FBF2DEDF4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675510   (160199) от 09.11.2023
-
-VA - Music News vol.313 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160199.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Josephine - Moira (02:22)
- 002. Anait - Серый Город (03:27)
- 003. Angel - Не Говори Мне Прощай (02:38)
- 004. Apashe feat. Geoffroy - Lost In Mumbai (03:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CBED7E7D860C1B5E4566647B336A904D543827
 ```
 
 https://mybot314.ru/tekegram_catalog/

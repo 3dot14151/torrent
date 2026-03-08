@@ -1,3 +1,61 @@
+###  Публикация: 1075147   (323155) от 21.11.2016
+
+The Human League - Anthology: A Very British Synthesizer Group (2CD) (2016) [FLAC|Lossless|image + .cue] <Synthpop, New-Wave, Art-Pop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life On Your Own [4:13]
+02. Human (Extended Version) [5:06]
+03. I Need Your Loving (DJ Edit) [2:54]
+04. Love Is All That Matters (Edit) [2:59](   Читать дальше...   )Жанр: Synthpop, New-Wave, Art-Pop, ElectronicПродолжительность: 01:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9818682C6A6FA8A055B3138E22080AF4A11734AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259111   (323073) от 02.11.2018
+
+VA - Ibiza Forever (2018) [MP3|320 Kbps] <House,Deep House,Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323073.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eddy Chrome - In Love (Double Deep Radio Remix)
+002. Cheap Sunglasses - Remembering Ibiza (Chillhouse Rework)
+003. Garagestylerz - My Touch (London Garage Mix)
+004. Toni Pinetti - Get Down(   Читать дальше...   )Жанр: House,Deep House,Progressive HouseПродолжительность: 09:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64241293EE67BD0C1640D7E1A8E14CA8411E098E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259154   (322866) от 02.11.2018
 
 The Prodigy - No Tourists (2018) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Electronic, Breakbeat>
@@ -687,64 +745,6 @@ Villete - Dawn Is Mine (2020) Scissor and Thread [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9107DB51BE2CA5990077C244BEC45D86942248B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421509   (319811) от 04.11.2020
-
-Jose Vizcaino - Transitions (2020) Seven Villas [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atras (06:38)
- 02. Graffiti (06:32)
- 03. Road Trip (06:58)
- 04. Transitions (06:21)Жанр: Deep HouseПродолжительность: 00:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3494A6AA7CBB6C39F2DD1D7A5F56AFDB37D41CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421513   (319810) от 04.11.2020
-
-Jose Vizcaino - Disconnection (2019) Seven Villas Voyage [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creaures Of The Deep (03:44)
- 02. Hachiko (04:59)
- 03. Juani (04:13)
- 04. The Escapist (05:13)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 00:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED937CC6BF365A26FD089BFEDC196E87192D934C
 ```
 
 https://mybot314.ru/tekegram_catalog/

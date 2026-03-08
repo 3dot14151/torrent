@@ -1,32 +1,3 @@
-###  Публикация: 912575   (610776) от 26.06.2015
-
-Abnormal Thought Patterns - Altered State Of Consciousness (2015) [MP3|320 кб/с]<Technical / Progressive Metal, Djent>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distortions of Perception
-02. Nocturnal Haven (feat. Tommy Rogers & Jeff Loomis)
-03. Blindsight
-04. Synesthesia (feat. Michael Manring & John Onder)(   Читать дальше...   )Жанр: Technical / Progressive Metal, DjentПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519F8AA49740A919013D4A9790445E6F94A5C869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912444   (610769) от 26.06.2015
 
 Ad Astra - 2 альбома (2008-2015) [MP3|320 кб/с]<Progressive Rock, Symphonic Prog>
@@ -742,6 +713,35 @@ Paul Kossoff
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71808ABA7E4BF5A579A37BB524B2A439DBDE90C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038221   (608752) от 27.07.2016
+
+Godsticks - The Envisage Conundrum (2013) [FLAC|Lossless|tracks + .cue] <Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Convergence (1:18)
+02. Caught in a Bind (5:04)
+03. The Envisage Conundrum (6:44)
+04. In a Way That Ended Me (5:00)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234417CDB1516668BC95D2A566ACE6C5A2D722FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

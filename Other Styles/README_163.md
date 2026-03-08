@@ -1,3 +1,32 @@
+###  Публикация: 171886   (128787) от 10.12.2023
+
+Lauluyhtye Rajaton - Nova (2001) [FLAC|Lossless]<A Capella, Harmonic Voices>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128787.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своем творчестве финская "Вокальная группа без границ" - именно так можно перевести название коллектива - с равным успехом использует элементы джаза, финского фольклора и академического пения, выстраивая музыкальную гармонию при помощи одних лишь голосов. У нас есть свой аналог - "Camerata" из Беларуссии. Очень красиво и интересно.01. Läksin minä kesäyönä käymään
+02. Mitä kaikatat, kivonen?
+03. Purrelle tuulta
+04. Kutsu(   Читать дальше...   )Жанр: A Capella, Harmonic VoicesПродолжительность: 0:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82F0553C0B0D62161EEA6B09C7DCC58F0BE1C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684060   (127854) от 15.12.2023
 
 VA - Doggy Style: Sexy Chillout Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
@@ -716,35 +745,6 @@ VA - Александр Зацепин. 31 июня (2021) [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E9E3D1AC97CFE02876DFC3758A9746CC92C5FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695385   (119798) от 01.02.2024
-
-Paul Mauriat - White Christmas (1977) Reissue, 1984, Philips [OGG Vorbis|480 Kbps] <Pop, Easy Listening, Holiday>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  White Christmas
-02.  Vive Le Vent 'Jingle Bells'
-03.  Mon Beau Sapin
-04.  Rudolph, The Red-Nosed Reindeer(   Читать дальше...   )Жанр: Pop, Easy Listening, HolidayПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5830B3A7E5AE3C040750478F0614EB75E2E71F40
 ```
 
 https://mybot314.ru/tekegram_catalog/

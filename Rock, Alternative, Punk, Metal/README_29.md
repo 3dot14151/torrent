@@ -1,32 +1,3 @@
-###  Публикация: 1606585   (1044442) от 22.01.2023
-
-Rainbow - Difficult To Cure (1981) Reissue, 2013, Polydor [OGG Vorbis|450 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Surrender
-02. Spotlight Kid
-03. No Release
-04. Magic(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34006CB4C15AC474005B8671FE06C9605CCD88DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606569   (1044441) от 22.01.2023
 
 Bonnie Tyler - 3 Original Classics Box Set (1992) [MP3|320 Kbps] <Pop Rock, Soft Rock>
@@ -745,6 +716,35 @@ Rainbow - Ritchie Blackmore's Rainbow (1975) Reissue, 2014, Polydor [OGG Vorbis|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C49ED327559DC7A47B0680A01DA2A050FDD507DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606814   (1044296) от 23.01.2023
+
+The Hatters - По ходу люблю (2023) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044296.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Просто проваливай
+2. У-ля-ля
+3. Знаю
+4. Hey You(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E56D730437CC725496E59A9E677AA7550F9C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1193687   (261975) от 22.12.2017
+
+VA - Markus Schulz - 3 Hour Set for Afterhours.fm End of Year Countdown (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solarstone & Forerunners - Dying Star
+02. Jeremy Olander - Araoz
+03. Gabriel & Dresden feat. Sub Teal - White Walls
+04. Jerome Isma-Ae & Tone Depth - Kiera(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 03:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792A3269956B72A313C3B3615ED0FC2F7111C59A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193873   (261819) от 23.12.2017
+
+VA - Ori Uplift & Darren Porter - Uplifting Only 254 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.FAN FAVORITE: illitheas - Levity
+02.FAN FAVORITE: Manuel Rocca - Amortentia
+03.Ross Rayer - Dreamer (Greg Dusten Remix) (EXCLUSIVE PREMIERE)
+04.Phynn Feat. Tiff Lacey - Try Again (Arctic Moon Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4B4FF09F5D2943EEBD4B66A2B942ACE9881730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194030   (261815) от 23.12.2017
 
 VA - Markus Schulz - Global DJ Broadcast - World Tour - Best of (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
@@ -684,64 +742,6 @@ VA - Armin van Buuren - A State Of Trance 1115 (2023) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05B6043DCC4FBFB8F13E34B1A6C155A2AF4EFF4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529475   (241772) от 13.08.2022
-
-J-Kerz - WE ARE JK (I-XXIII) (2022) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Eyed Peas - My Humps (Matroda VIP Edit)
-02. Steff Da Campo - Hot In Here
-03. Joel Corry ft. Mabel - I Wish (Westend Remix)
-04. Ingrosso & Karol G - Ahora Me Llama (Robert Morr X Denna Remix)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 15:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B549E957E02BD68F4FC03FBCA283DD9D31C3C500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635546   (241663) от 26.05.2023
-
-VA - Armin van Buuren - A State Of Trance 1122 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Interlude
-02. Sendr & Kanallia - Allium
-03. Boom Jinx & Nitrous Oxide & Einar K ft. Vintage & Morelli - Breathing
-04. Jerome Isma-Ae & Weekend Heroes - In The Dark(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94185C135A921A78DBDDB379E67D8B500E8F68E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

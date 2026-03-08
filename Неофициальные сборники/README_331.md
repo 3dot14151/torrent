@@ -1,3 +1,177 @@
+###  Публикация: 1232567   (598369) от 25.06.2018
+
+VA - Record Super Chart 542 (2018) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prodigy feat. Vicetone - Omen 3:43
+02. Bolier & Joe Stone - Keep This Fire Burning 4:23
+03. Don Diablo feat. Paije - People Say 3:09
+04. Lucas & Steve - Source 4:22(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 01:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18C866276BDD60D78F5153C3EDDB2F8528EC31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548171   (598357) от 03.05.2022
+
+VA - Beatport Core Dubstep: Sound Pack #516 (2022) [MP3|320 Kbps] <Hardstyle, Core Dance, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришло время оживить свой рабочий процесс, да и просто сменить образ скучной офисной жизни с помощью свежих и отточенных треков 516-й коллекции от Beatport, охватывающей ряд хард-стилей и жанров электронной музыки, от дабстепа до Drum and Bass, Future Garage и Grime.001. DJ Reaction - Kolkata Police
+002. Eazyvibe - Who Am I
+003. Unifire & Robotics - Armageddon
+004. Artriangel - Artria(   Читать дальше...   )Жанр: Hardstyle, Core Dance, DubstepПродолжительность: 08:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECD3EFAFEFC2071F69DA70DBBC22D50CC2FC51A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548176   (598356) от 03.05.2022
+
+VA - Beatport Goa Trance: Sound Pack #517 (2022) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыку транс-психоделики нельзя слушать кусками ведь качественный трек слишком сложен и глубок для того чтобы воспринимать его частями. Лишь полностью прослушав его можно составить ясную картину и получить в полной мере эстетическое наслаждения от этой музыки.001. Altered State - Mind Magic
+002. ETN - The Summoning
+003. Suntree - Frequencies
+004. Amplify - Overdrive Machine(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7BE8C9A4E5628A256704FAD1979FC1D8F1B5FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039094   (598209) от 31.07.2016
+
+VA - Beatport Trance Pack (28.07.2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lightning & Waveband -  Mirage (Mostfa And Mostfa Extended Remix) 6:17
+02. Bernis -  Northern Stars 7:46
+03. Christoph & Hasso -  Morning Sun (Original Mix) 7:09
+04. Hekmat -  Samsara (Original Mix) 5:46(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 04:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD017E5905B03AE908A0782D5114018BA7939E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548306   (598198) от 03.05.2022
+
+VA - La Perla De Musica: New Latin (2022) [MP3|320 Kbps] <Latin, Dance, Reggaeton>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжетная линия музыки этого сборника буквально нашпигована этническими мотивами латино, но наложено это на вполне себе европейский бит и бас. Авторам очень удачно удалось использовать схожесть народных инструментов с различными современными электронными "фишками" и они очень удачно это обыграли.001. Anuel Aa - Nunca
+002. J. Balvin - Blanco
+003. Sech - Relacion
+004. Manuel Turizo - Una Vez Mбs(   Читать дальше...   )Жанр: Latin, Dance, ReggaetonПродолжительность: 08:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97F2F7E5ED9A053C63EDC845532196C9404E2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039281   (598186) от 31.07.2016
+
+VA - Electro Summer (2016) [MP3|320 Kbps] <House, Electro House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Middle Milk -  Me (Club Mix) 5:46
+02. Fatblock -  The Stack (Original Mix) 3:34
+03. Froxic -  In Orbit (Original Mix) 6:30
+04. Dylexia -  Immortal (Original Mix) 5:38(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 03:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41135D073D712344A4D2683B8797818069139C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548207   (598183) от 03.05.2022
 
 VA - Beatport Techno: Sound Pack #519 (2022) [MP3|320 Kbps] <Techno, Minimal, Electronic>
@@ -601,177 +775,6 @@ VA - Жажда Скорости По-Летнему (2012) [MP3|256 кб/с]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2F5BE0E4AE114ED1195A33815C0158E868AB854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039187   (597497) от 31.07.2016
-
-VA - Молодежный Сборник Хитов Русский (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597497.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Егор Крид - Мне Нравится
-002. Клава Кока - Май
-003. Валенсия - Отпускаю
-004. Юлианна Караулова - Внеорбитные(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4AE94DD8150CF1949C8BFEA2B0B31ACB680B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039099   (597486) от 31.07.2016
-
-VA - Hot Sex (Smooth Jazz for Sensual, Sexy Love Making) (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Pieranunzi - Prolusion
-02. Harry Evans - Jewel
-03. Piano Jazz Calming Music Academy - Get Up, Stand Up
-04. Enrico Pieranunzi - The Flight Of Belphegor(   Читать дальше...   )Жанр: JazzПродолжительность: 02:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457F8FEADA1203E9A349A02FFEC9F3861C4D0244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526715   (597248) от 24.07.2012
-
-VA - 100 хитов подряд 4 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597248.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Настя Крайнова - Стой Мой
-002. Mindy Gledhill Feat. Kaskade - Eyes
-003. Artik Pres. Asti - Стыцагерл
-004. Michel Telo - Ai Se Eu Te Pego
-005. St1m (Gagareen) - Космос
-006. Colby O'donis - Like Me
-007. Marc Anthony Feat. Pitbull - Rain Over Me
-008. Armin Van Buuren - We Are Here To Make Some Noise
-009. Karosa Feat. Kledia - Burning Passion
-010. Kondrashov - Answer (Original Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C85E8D3C3878CA9EE55124E4CAB7D4E37AD33F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356717   (597135) от 29.06.2011
-
-VA - Пляжная 100-ка (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD42BC50BA7804A70D530BFFE644975A066297D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356782   (597133) от 29.06.2011
-
-VA - Покаяние (2011) [MP3|128 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ШансонПродолжительность: 12:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978EA276E55DF69D4C5890DCE1619972C2C38FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356778   (597045) от 29.06.2011
-
-VA - Мамы Дома Нет (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 11:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E9971BB7E5624F21407109EAC21B9F88CBB1CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

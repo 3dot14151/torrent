@@ -1,32 +1,3 @@
-###  Публикация: 1139193   (661206) от 01.06.2017
-
-Unruly Child - Unruly Child (1992) [FLAC|Lossless|tracks] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Rise
-02. Take Me Down Nasty
-03. Who Cries Now
-04. To Be Your Everything(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA03A9E9FB3DAC5C88E3819B136CA8119C891203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538852   (661180) от 22.03.2022
 
 Kid Rock - Bad Reputation (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Southern Rock>
@@ -762,6 +733,35 @@ Robert Fripp and the League Of Crafty Guitarists - Live! (1986) [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0227332C0844DC29C92C8B89A64713A436F88BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538904   (660173) от 23.03.2022
+
+Лёдъ - Погребальный мёд (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Neofolk, Nordic Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Погребальный мёд (00:04:55)
+02 - Поверье мореходов (00:04:36)
+03 - Скандинавские пляски (00:03:18)
+04 - Духи льда (00:04:29)(   Читать дальше...   )Жанр: Dark Neofolk, Nordic FolkПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D218550D5D65B0E4375FE89699DF19DE57A471
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1083735   (273065) от 16.12.2016
+
+VA - Best Of Deep House (Deluxe Version) (2016) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clark Morrison - Space Rift (Original Mix) 6:53
+02. Ricky Rough - The Way It Is (Original Mix) 9:11
+03. Francesco Chianese - Adday (Original Mix) 6:52
+04. Bess - New Face (Original Mix) 6:15(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063AEA85CAA6D9EEBDDE97A22034A65D0032E416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083881   (272644) от 17.12.2016
 
 VA - Xmax Deephouse Hot Traxx (2016) [MP3|320 Kbps] <House, Tech House, Deep House>
@@ -716,35 +745,6 @@ VA - House Party (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:532C2D8A96EE3356BC33A158665EA947EE17608B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839042   (261708) от 26.11.2025
-
-VA - Balearic Deep-House Winter 2026 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi.5, Dry & Bolinger - Your Soul 03:23
-02. Steen Thottrup, Eva Scolaro & Calmabohain - Deeper Love (Calmabohain Remix) 03:22
-03. Music Of The Earth - Iou Boarders 05:17
-04. Simone Intrieri - Lie Machine (Extended Mix) 07:46(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33BB6CE28B13A0212D63247682EBD8652962BE74
 ```
 
 https://mybot314.ru/tekegram_catalog/

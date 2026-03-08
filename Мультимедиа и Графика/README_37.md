@@ -1,3 +1,31 @@
+###  Публикация: 1553790   (577363) от 30.05.2022
+
+SurCode for Dolby Digital Plus 5.1 Encoder 1.0.1.63 Repack by Team V.R.[En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагин SurCode Dolby Digital для продуктов Adobe семейства Creative Cloud позволит видео- и аудиоредакторам вернуть поддержку работы со звуком Dolby Digital, которую Adobe выпилили из своих продуктов, начиная с версии 2018CC.
+
+Плагин возвращает возможность вывода звука кодеком AC3 (Dolby Digital) / EAC3 (Dolby Digital Plus).Язык интерфейса: английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC672BC2D3C46E58F0E1BA1B586B87E9926E0547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554655   (575762) от 31.05.2022
 
 Variety Of Sound - epicPLATE 1.0 VST (x86/x64) [En]
@@ -655,32 +683,6 @@ Angel’s Vox - проигрыватель, разработанный спец�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06BEDE6E73E8E17F034FF494E12025728C1BB488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557280   (556004) от 13.06.2022
-
-Xilisoft Video Converter Ultimate 7.8.26.20220609 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный видео конвертер, который поддерживает большинство популярных видео форматов, в том числе DVD, VCD, SVCD, MOV, RM, AVI, MPEG, MPEG1, MPEG2, MPEG4, WMV, 3GP, h264 и т.д. Присутствует возможность конвертирования в iPod и PSP видео. Кроме того, Xilisoft Video Converter позволяет с легкостью извлекать аудио из видео с последующим конвертированием в MP2, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CD5CD5D028BA6BD19AF393D71D85FF9324BD04
 ```
 
 https://mybot314.ru/tekegram_catalog/

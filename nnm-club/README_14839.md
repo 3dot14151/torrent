@@ -1,25 +1,22 @@
-###  Публикация: 1410763   (431929) от 23.09.2020
+###  Публикация: 1165606   (432001) от 13.09.2017
 
-IDLES - Ultra Mono (2020) [MP3|320 Kbps] <Post-Punk>
+Call of Duty 2 (2005) [Ru] (1.3) Repack Other s
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>След.
+>>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431929.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. War [00:03:07]
-02. Grounds [00:03:08]
-03. Mr. Motivator [00:03:16]
-04. Anxiety [00:02:59](   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:42:56
+Играя в Call of Duty 2, вы сможете пережить непреодолимые жизненные обстоятельства четырех различных солдат в трех игровых кампаниях. Вы можете как следовать сюжетной линии каждого из четырех героев, так и быстро перепрыгивать до важных событий, оставляя часть событий позади.Тип издания: RepackРазработчик: Infinity Ward, Aspyr (Mac)Жанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73AD45AFD6A76BFBAFFD47DEB5B79C349FD2E7F0
+magnet:?xt=urn:btih:8F497527D67BE5836D251844136757DE4722B9F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410868   (431928) от 23.09.2020
+###  Публикация: 1165695   (431999) от 13.09.2017
 
-Firefox Browser 81.0 Portable by PortableApps [Ru]
+HTML Academy | Интенсивный онлайн-курс «Продвинутый JavaScript» (2017) PCRec [H.264/720p-LQ]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для тех, кто прошёл «Базовый JavaScript», или для разработчиков, желающих поднять свои навыки.
+После прохождения курса вы будете уверенно готовить современные веб-приложения.
+В рамках интенсива будет проходить работа над двумя проектами:
+   - Учебный проект;(   Читать дальше...   )Жанр: Javascript, ПрограммированиеПродолжительность: 20:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C99EED0FC701751E9CECA0A684A2FB14E81E4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555462   (431998) от 03.10.2012
+
+Подборка журналов | Дом в саду №2, 3, 8 [2012] [PDF, DJVU]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431928.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+«Дом в саду» - ежемесячный журнал для всех, кому интересно садоводство, огородничество, строительство и ландшафтные работы. Основная часть журнала — письма читателей, в которых они делятся своим опытом.Формат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1F4C0E57EC24E4169AC8A89D5FDEFF8BBAA91A2
+magnet:?xt=urn:btih:3F9B01698814625E31DF2083A072C3DC1C4867C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410863   (431927) от 23.09.2020
+###  Публикация: 1145867   (431997) от 13.09.2017
 
-Aten - Horns Of Evil (2014) [FLAC|Lossless|image + .cue] <Death Metal>
+Проповедник / Пастырь / Preacher (2017) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-13 из 13) OMSKBIRD [AD]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>След.
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431927.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Intro
-02.Horns Of Evil
-03.Shine As Aten
-04.When Love Bites Your Soul(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:57
+Священник Джесси Кастер по воле случая стал носителем внутри своего естества странного существа по имени Генезис. Это дитя совокупления ангела и демона представляет собой одновременно чистый идеал и квинтэссенцию света, но также сгусток абсолютного зла. Генезис — единственное существо во Вселенной, которое может встать вровень с Богом, если того пожелает, а его носитель (   Читать дальше...   )Производство: США / AMC Studios, American Movie Classics (AMC), DC EntertainmentЖанр: фэнтези, драма, детектив, приключенияРежиссер: Эван Голдберг, Сет Роген, Майкл СловисАктеры: Доминик Купер, Том Брук, У. Эрл Браун, Йен Коллетти, Джозеф Гилган, Люси Гриффитс, Джеки Эрл Хейли и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDСубтитры: английскиеПродолжительность: ~00:43:00 серияРеклама: присутствуют аудио вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2FCECE496A42A4FE74208A0DAD152431FCBBC4C
+magnet:?xt=urn:btih:2A55DE3148E7F570A9F26A37466E2E8542A75F31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,115 +105,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410887   (431926) от 23.09.2020
+###  Публикация: 555668   (431996) от 03.10.2012
 
-Wes Montgomery - The Remasters (All Tracks Remastered) (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monk's Shop (Remastered 2017) (03:52)
-02. 'Round Midnight (Remastered 2015) (04:53
-03. One for My Baby (And One More for the Road) (Remastered) (07:41)
-04. Falling in Love With Love (Remastered 2017) (06:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F58B2EC8C3E359C46719DAA476E748D9CD19E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410821   (431925) от 23.09.2020
-
-Серия Кубков NASCAR 2020. Плей-офф. 29-й Этап. Бристоль. Гонка / NASCAR Cup Series 2020. Playoffs. Round 29. Bass Pro Shops NRA Night Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года. Плей-офф чемпионата NASCAR Cup Series
-19 сентября 2020 года. Бристоль (штат Теннесси, США).
-29-й Этап. Бристоль (Bass Pro Shops NRA Night Race)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E43B971D23FF538C2AC850859F12EBDF4DAA929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410859   (431924) от 23.09.2020
-
-Ayreon - Transitus (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock/Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431924.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-1. Fatum Horrificum
-A) Graveyard
-B) 1884(   Читать дальше...   )Жанр: Progressive Rock/MetalПродолжительность: 01:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AA1351CB11327738856C7970BC18CDB0581210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410828   (431923) от 23.09.2020
-
-Футбол. Английская Премьер-лига. Чемпионат Англии 2020-2021. 1-й тур. Тоттенхэм Хотспур — Эвертон (2020) IPTVRip [H.264/1080p-LQ] [hand made 50fps]
+VA - 25 House Essentials Vol.2 (2012) [MP3|320 кб/с]<House>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431923.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Английская Премьер-лига. Чемпионат Англии 2020-2021
-13 сентября 2020, воскресенье. 18:30 МСК
-1-й тур
-Тоттенхэм Хотспур (Лондон) — Эвертон (Ливерпуль)(   Читать дальше...   )Телекомпания: Okko СпортЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:43:13
+VA - 25 House Essentials Vol.2 (2012)
+
+Год: 2012
+Жанр: House
+Продолжительность: 02:47:59Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Diva & Jones - Feelove - Original Mix (6:01)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51E6B733136E22223B0B7DEE0B0B4E6551714CB8
+magnet:?xt=urn:btih:3AB5DEF29342E1FB577B596D85711CC4746D7AF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,457 +138,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410867   (431922) от 23.09.2020
+###  Публикация: 934953   (431995) от 13.09.2017
 
-ScreenToGif 2.27.2 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431922.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenToGif — удобный бесплатный инструмент, с помощью которого можно записывать действия на экране и сохранять в формат анимированного .gif-файла (в народе называют гифками). После запуска нужно выбрать необходимую область захвата: весь экран, окно или вручную заданный размер и положение рамки захвата. Также можно указать количество FPS от 1 до 60 кадров в секунду. (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF750FCBD332EFC69B38D29AC27AD68E94C87D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410723   (431921) от 23.09.2020
-
-HiBit Uninstaller 2.5.30 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431921.jpg" />
-</div>
-
-
-###  Подробнее
-
-HiBit Uninstaller - идеальное решение для удаления программ Windows, которое позволяет вам деинсталлировать программы быстро и полностью, используя простой и дружественный к пользователю интерфейс. Так же, в программе имеется множество средств для очистки и управления вашей системой.
-Удобной функцией в HiBit Uninstaller является удаления программ посредством менеджера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8C1B7F6CFC89D5E646363E4AA9D7878A615735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410760   (431920) от 23.09.2020
-
-VA - Yellow Day: Pop Folk Music (2020) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vroni - Ohne Spa Kein Fun
-002. Miane - Fo Nou Lé Soudé
-003. Panagiotis Labouras - Peplo
-004. T.T. Purontaka - Mun(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 10:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A773A14DF735A2C36A2582E9A76D6C8E86917F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410997   (431919) от 23.09.2020
-
-Glary Utilities Pro 5.151.0.177 Repack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE20880421FA5B59384478155924EE7B8769CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410733   (431918) от 23.09.2020
-
-Nick Mason's Saucerful Of Secrets - Live At The Roundhouse (2020) [MP3|320 Kbps] <Progressive Rock, Psychedelic/Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431918.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Interstellar Overdrive (Live at The Roundhouse) (05:50)
- 02. Astronomy Domine (Live at The Roundhouse) (04:12)
- 03. Lucifer Sam (Live at The Roundhouse) (03:13)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic/Space RockПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C6A795BEF53ED1C5802A23B5F0C46271575BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410795   (431917) от 23.09.2020
-
-Ocenaudio 3.9 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ocenaudio — аудио-редактор, распространяемый авторами абсолютно бесплатно. Приложение имеет различные варианты сборок, поддерживающих работу в различных операционных системах (Windows, Mac OS X, Linux). Это невероятно простой способ вносить изменения в аудио треки. При наличии достаточно мощных функций, программа не вызовет осложнений при работе даже новичками. Однако (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AAC60229D4AA83213E1799E512B000B406212B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410754   (431916) от 23.09.2020
-
-VA - Fast Mover: Tech House Electro Sound Mix (2020) [MP3|320 Kbps] <Tech House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431916.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avr And Sam Galki - Dont Panic
-002. Donkong - Logic Bomb
-003. Andrew Mogar - Big Party
-004. Andrea Ferri - Dangerous Stars(   Читать дальше...   )Жанр: Tech House, EDMПродолжительность: 10:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA63F6CDDB8FF44A01B03542DB37F74E8EFA28D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410966   (431915) от 23.09.2020
-
-pdfFactory Pro 7.41 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431915.jpg" />
-</div>
-
-
-###  Подробнее
-
-pdfFactory Pro - удобное приложение, представляющее из себя драйвер виртуального принтера, создающий документы в формате PDF. Поддерживает создание PDF-проектов из нескольких документов или файлов, имеет режим предварительного просмотра. Возможна установка запрета на редактирование документа, его шифрование и установка пароля на открытие. В профессиональной версии, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5626407EB5FA2C6772A08689A76443C1708185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410041   (431914) от 23.09.2020
-
-Mary & The Highwalkers - 2CD: Cognition, Hounds (2017-2019) [FLAC 2.0|16,24/44.1|tracks|WEB-DL|] <Blackened Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431914.jpg" />
-</div>
-
-
-###  Подробнее
-
-02. Scars [00:04:39]
-03. ...What Sinners Will Pay For [00:07:45]
-04. Salomea [00:05:23]
-05. Cевер [00:03:44](   Читать дальше...   )Жанр: Blackened Sludge, Doom MetalФормат: PCMПродолжительность: 2 CD, 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163E4EF9DAB1688CCE9EBA00F45C43456E406CC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945202   (431913) от 11.10.2015
-
-Футбол. Отборочный матч ЕВРО 2016. Группа I. 9 тур. Албания - Сербия (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отборочный матч ЕВРО 2016 Албания - Сербия.Телекомпания: Спорт 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:48:04 + 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CBC17CDCD088309FF7386E0A417DFF502E5190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945670   (431912) от 11.10.2015
-
-Футбол. Отборочный матч ЕВРО 2016. Группа E. 9 тур. Англия - Эстония (2015) HDTVRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отборочный матч ЕВРО 2016 Англия - Эстония.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:50:47+00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59750C64FBD8D6370529E6746335498E70D14D64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945858   (431911) от 11.10.2015
-
-Акценты (11.10.2015) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воскресная информационная программа «Акценты». Расскажет о том, как развивались самые яркие события в стране и мире в течение прошедшей недели, и представит оперативные новости текущего дня.
-Расставить акценты над самыми обсуждаемыми новостями недели зрителям поможет информация из первых уст – прямые включения свидетелей и непосредственных участников событий, а также (   Читать дальше...   )В этом выпуске: Пить надо меньше: возвращение вытрезвителя – миссия выполнима? За алкоголиков борются целые министерства. Прачечная-«расфигачечная»: как прийти в себя за 10 минут и какой он, рай для дебошира?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E467B304AAD34CABFCAC96E1E3DA4A457AB5872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945943   (431910) от 11.10.2015
-
-Н. А. Ковальский | Религиозные организации и проблемы европейской безопасности и сотрудничества (1977) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431910.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре подвергаются критике религиозные теории клерикального пацифизма, разоблачаются происки реакционных церковных кругов, пытающихся затормозить процесс международной разрядки и помешать претворению в жизнь решений Совещания в Хельсинки.Жанр: История, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A56085F5C2A3AEEDCAFF54DF600E6C14FA28FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945685   (431909) от 11.10.2015
-
-Oliver Lake Steel Quartet - Dat Love (2003) [FLAC|image+.cue]<Post-Bop, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stolen Moments
-02. Double Space
-03. Venus
-04. Dat Love(   Читать дальше...   )Жанр: Post-Bop, Free JazzПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246A1B1814A9D2A9ACEB7C1422C2E2DB17F76B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945683   (431908) от 11.10.2015
-
-Oliver Lake Quintet - Dedicated to Dolphy (1996) [FLAC|tracks+.cue]<Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Waltz Waldron
-02. Hat and Beard Dolphy
-03. Feather Smith
-04. 245 Dolphy(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1887DABEDA4A98383B3BCAD9AE14875AB69AFC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945681   (431907) от 11.10.2015
-
-Футбол. Отборочный матч ЕВРО 2016. Группа C. 9 тур. Македония - Украина (2015) HDTVRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отборочный матч ЕВРО 2016 Македония - Украина.Телекомпания: НТВ+ Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:56:12 + 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57F8D2EB8608C5563B61546705A7D0B24CEA642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063656   (431906) от 17.10.2016
-
-Проекты - VideoHive - Lower Thirds - 17812218 [AEP]
+Counter-Strike: Global Offensive (2012) [Ru] (1.36.0.2) SteamRip + Автообновление
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_431906.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_431995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция анимационных подложек для текста. Проект предназначен для редактирования в AE.Формат: AEP
+Counter-Strike: Global Offensive - командный тактический шутер с видом от первого лица. Игрок принимает участие в конфликте между террористами и полицейскими. Counter-Strike: Global Offensive – призван углубить и усовершенствовать ту самую командную игровую механику «пять на пять», за которую все и полюбили Counter-Strike.Тип издания: SteamRipРазработчик: Valve Corporation, Hidden Path EntertainmentЖанр: MMO Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -660,25 +164,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063790   (431905) от 17.10.2016
+###  Публикация: 1410801   (431993) от 23.09.2020
 
-Поп-звезда: Не переставай, не останавливайся / Popstar: Never Stop Never Stopping (2016) BDRip [H.264/1080p]
+Make Way for Man - Rites (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431905.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С самого детства Коннер был без ума от музыки. Ещё ребёнком он с двумя лучшими друзьями создал группу «The Style Boyz». Группа стала очень популярной, и Коннор зазвездился, решив, что успех группы — исключительно его заслуга. Один друг детства вовсе перестал с ним разговаривать, другой работает у Коннера диджеем. А лучшие друзья суперзвезды — его менеджер, организатор (   Читать дальше...   )Производство: США / Apatow Productions, Lonely Island, TheЖанр: комедия, музыкаРежиссер: Акива Шаффер, Йорма ТакконеАктеры: Энди Сэмберг, Йорма Такконе, Акива Шаффер, Сара Силверман, Тим Медоуз, Майя Рудольф, Джоан Кьюсак, Имоджен Путс, Крис РеддПеревод: Дублированный (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 01:26:30
+01. Strangers [00:05:01]
+02. MVP [00:05:10]
+03. Ideations [00:04:02]
+04. Victories [00:04:36](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:26:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9E72FD5081F06C1A3DC2640CB463FF03D6A5CBC
+magnet:?xt=urn:btih:E09693382F8E45477F32CB20358869AF0928CFAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,25 +193,550 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063614   (431904) от 17.10.2016
+###  Публикация: 1410838   (431992) от 23.09.2020
 
-Темнота / The Darkness (2016) BDRip [H.264/720p]
+Evan Christopher - The Remembering Song (2010) Arbors Records [FLAC|Lossless|tracks + .cue] <Swing>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431904.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После отпуска в Гранд-Каньоне семья возвращается домой, невольно прихватив с собой нечто сверхъестественное. Не заставив себя долго ждать, это нечто начинает питаться их страхами и секретами…Производство: СШАЖанр: Ужасы, ТриллерРежиссер: Грег МакЛинАктеры: Дженнифер Моррисон, Кевин Бейкон, Минг-На, Рада Митчелл, Люси Фрай, Тара Барр, Дэвид Мазоуз, Мэтт Уолш, Пол Райзер, Джэми Бернадетт.Перевод: Дублированный (iTunes)Язык субтитров: Русский (форсированные, полные), Английский (полные)Продолжительность: 01:32:21Реклама: Релама отсутствует!
+01. The Remembering Song - Prelude [0:31]
+02. The Wrath of Grapes [6:00]
+03. Way Down Yonder in New Orleans [5:21]
+04. The River by the Road [7:19](   Читать дальше...   )Жанр: SwingПродолжительность: 01:00:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDD280A63A962F26C86AF5CA86C913002A56A44C
+magnet:?xt=urn:btih:484FB3AF792F0F377DDBBDA3EEBEA958669B8037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410865   (431991) от 23.09.2020
+
+Carillon - Love Mirage (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     Love Mirage
+02.     Heart Hero
+03.     Ro. 12:19
+04.     No Ves?(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1EF290F84873BB846FA1FC66436B22F28A07D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410873   (431990) от 23.09.2020
+
+New York Jazz Quartet - Surge (1977) 1992, Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surge [5:54]
+02. Placitude [7:12]
+03. Big Bad Henry [9:57]
+04. 87th Street [6:20](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99AF1A3BFBB9D6F4CC5F366C92FA504A575C5271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410778   (431989) от 23.09.2020
+
+Vous Autres - Sel de Pierre (2020) [MP3|320 Kbps] <Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Onde [00:09:14]
+02. Vesuve [00:07:20]
+03. Ecueil [00:05:17]
+04. Sans Sèves [00:04:13](   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A0A8FB7A55D696F9661F0DD444F31AF03B6C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410862   (431988) от 23.09.2020
+
+As Darkness Fell - Below the Fog (2015) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Eliminate
+03. Passage
+04. Eternal Night(   Читать дальше...   )Жанр: Melodic Black Metal, Doom MetalПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E257C933AE9BF9677874F3DEFC2874266CC74F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410787   (431987) от 23.09.2020
+
+Bleak Revelation - Collapse (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal, Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drown [00:03:26]
+02. The Road to Perdition [00:08:39]
+03. The Misanthrope [00:11:53]
+04. The Web of Your Betrayal [00:04:57](   Читать дальше...   )Жанр: Melodic Black Metal, Death Metal, Doom MetalПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1F76FC416847D51BEAA896422F769FC68778E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410840   (431986) от 23.09.2020
+
+The Karel Roessingh Trio - Cat Fud (1995) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E & N [5:13]
+02. Dickie's Dilemma [4:02]
+03. Septamba [3:34]
+04. Tuesday Evening [5:48](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E23041F0A0762BBF88F16D90EC29EA11F8087DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410793   (431985) от 23.09.2020
+
+Mysthicon - Silva - Oculis - Corvi (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arise [00:05:47]
+02. Blind to My Faith [00:05:11]
+03. Into the Dark [00:06:29]
+04. Star Prophet [00:06:18](   Читать дальше...   )Жанр: Black Metal, Death Metal, Doom MetalПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DA0BC4AE285CE57513378466AFFE84C96A5DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410670   (431984) от 23.09.2020
+
+En Minor - When The Cold Truth Has Worn Its Miserable Welcome Out (2020) [FLAC|Lossless|image + .cue] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mausoleums (4:57)
+02. Blue (5:07)
+03. On The Floor (5:22)
+04. Dead Can't Dance (2:38)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D696C86D98E2836264872167D0CADC214EA76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410876   (431983) от 23.09.2020
+
+Joe Gordon - Social Call (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heleen
+02. A Song for Richard
+03. Non-Viennese Waltz Blues
+04. Awakening(   Читать дальше...   )Жанр: JazzПродолжительность: 01:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0781CA81005D528207E7BB7CC26480D9886F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410835   (431982) от 23.09.2020
+
+Slide Hampton - Drum Suite (1962) 2006, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fump [5:21]
+02. Lover [5:10]
+03. Like Someone in Love [8:27]
+04. Gallery Groove [4:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DB3AE148C39FCBF3C4C8AF0020B7A6E46F4BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410871   (431981) от 23.09.2020
+
+F4T4L3RR0R - Glitch In The Universe (2020) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Therapy (Album Mix)
+02. Control (Album Mix)
+03. Nothing To Hide (Album Mix)
+04. Cold Like That (Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0539917A0CE27558EB8FE5D6DDCC201A4B90F21D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410844   (431980) от 23.09.2020
+
+VA - Discover Trance 3 (2020) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Holliday - San Antonio Bay (Original Mix)
+02. Nexus 3 - State of Wonder (Original Mix)
+03. Peetu S - Guide Me (Rush Edit)
+04. Ian Betts - Under Below (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B833A2E5167907E48382E4548FD525D90C7A042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410875   (431979) от 23.09.2020
+
+New York Jazz Quartet - Blues For Sarka (1978) 1998, Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Blues [15:29]
+02. Rodney Round Robin [5:45]
+03. I'll Tell You Tonite [7:15]
+04. Blues For Sarka [7:11](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC2F96B1AA6C6B606A47FFDA1496E8B5EFF1BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410816   (431978) от 23.09.2020
+
+Мотоспорт. Спидвей. Гран-При 2020. Гожув (Польша). 3-й Этап (2020) IPTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по спидвею 2020 — международные соревнования между сильнейшими спидвейными гонщиками мира. Победитель определяется в гонках серии Гран-При.
+11 сентября 2020 года
+3-й Этап. Гожув (Польша)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: МотоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81361F2B8F632E1E071722F7912D8FC924DCFF9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410819   (431977) от 23.09.2020
+
+Мотоспорт. Спидвей. Гран-При 2020. Гожув (Польша). 4-й Этап (2020) IPTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по спидвею 2020 — международные соревнования между сильнейшими спидвейными гонщиками мира. Победитель определяется в гонках серии Гран-При.
+12 сентября 2020 года
+4-й Этап. Гожув (Польша)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: МотоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539664A4C556E1DC91CE61C35A8EBF6BF7A0297E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410845   (431976) от 23.09.2020
+
+VA - Discover Trance 5 (2020) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Askew - Beirut (Xgenic Remix)
+02. Lostly feat. Amber Traill - No Direction Home (Gary Maguire Remix)
+03. Matt Holliday - Breakthrough (Original Mix)
+04. Dub Tek - Second To None (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3D54DC0428101485803AEA2F47D4D87EDE89A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410834   (431975) от 23.09.2020
+
+VA - Discover Trance 2 (2020) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sly One vs. Jurrane - Everything to Me (Original Mix)
+02. Adam Foley - Fourteen Falls (Original Mix)
+03. Gary Maguire - Secrets (Original Mix)
+04. Tom Colontonio - Subdued (Mike Nichol Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763091DD7F90013ABB30E4D4C724D64DE5FD7D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410832   (431974) от 23.09.2020
+
+VA - Discover Trance (2020) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Gold - Today (Filo And Peri Remix)
+02. Johan Ekman - Timeless (Original Mix)
+03. Chris De Seed Presents De Inspiration - Green Hills (Original Mix)
+04. Adam Foley - Trip Switch (Danny Powers Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3665014CD864E35FF169262DB8E3EDCA25999EC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

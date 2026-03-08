@@ -1,3 +1,38 @@
+###  Публикация: 613143   (984712) от 03.02.2013
+
+Agathodaimon - 5CD (1998 - 2009) Discography [WavPack|Lossless]<Melodic Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heliopolis [04:36]
+02. Devil's Deal [04:33]
+03. Decline [05:32]
+04. Ground Zero [04:46]
+05. Ghost Of A Soul [04:29]
+06. Winterchild [05:33]
+07. Time Is The Fire [04:58]
+08. To Our Ashes [06:40]
+09. Amongst The Vultures [03:21]
+10. Oncoming Storm [06:26](   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972050   (984691) от 04.01.2016
 
 TG Pro (Temperature Gauge Pro) 2.9.2 [En]
@@ -662,32 +697,6 @@ Rapid Environment Editor (RapidEE) предназначен для редакт�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355264   (984391) от 25.01.2020
-
-LibreOffice 6.3.4.2 Stable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984391.jpg" />
-</div>
-
-
-###  Подробнее
-
-LibreOffice - офисный пакет с открытым исходным кодом, являющийся ответвлением от проекта OpenOffice.org и претендующий на роль бесплатной альтернативы пакету офисных приложений Microsoft Office. В состав программы входят текстовый редактор Writer, табличный процессор Calc, мастер презентаций Impress, векторный графический редактор Draw, редактор формул Math и модуль (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72BDB2394F7BCBDB40AB3E179056E211A4FC334C
 ```
 
 https://mybot314.ru/tekegram_catalog/

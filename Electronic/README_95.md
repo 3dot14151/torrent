@@ -1,3 +1,61 @@
+###  Публикация: 1107169   (868241) от 22.02.2017
+
+VA - Fitness Addicted (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel W - Before This Song! 05:01
+02. Patrizio Mattei - The Same Key (Massimo Voci Remix) 08:26
+03. Maria Edesse - Acidose 06:40
+04. Saed Redzic - Background Noise 06:19(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF952D0F074C4068F9D9638E007EF83643A13707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107232   (868231) от 22.02.2017
+
+VA - We Love Funky by Miguel Vizcaino (2016) [FLAC|Lossless|image + .cue] <House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zo! - We Are On The Move (Joey Negro & Dave Lee Remix) (04:56)
+02. Corduroy Mavericks feat. Soledrifter - True Love (Soledrifter Remix) (04:02)
+03. Dr Packer - Bizarre Love (04:47)
+04. Paul Mad - Believe in Love (Deep Beep Records) (06:26)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46FEBFA009B6AFCA5DFB020425DF0B81638E3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998082   (868226) от 20.03.2016
 
 The Art of Noise - The Best of The Art of Noise (Art Works 12") (1992) [FLAC|Lossless|tracks + .cue] <Synth Pop, Experimental, Ambient>
@@ -687,64 +745,6 @@ VA - 35 Relaxation Meditation Multibundle (2017) [MP3|320 Kbps] <Downtempo, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:960AE5C60C1639C90FAC39DBFB17ABD1EFCAD82B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108012   (866368) от 23.02.2017
-
-VA - The Sweetest Taboo Vol.3: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Montecristo - Hello Samantha
-02. Key Of Dreams Fiftheen - Welcome Go Back
-03. Bortolotto Leonardo - A Kiss to Build a Dream On
-04. Key Of Dreams - Boogie Forever(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5CD92B83D8E6F04A40BB9CC2EEBB846EA2F53C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107887   (866247) от 23.02.2017
-
-VA - Best Of Chill Out Vocal Trance (2017) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aurosonic & AxelPolo & Cathy Burton - Loving Overflow (Chill Out Mix)  5:30
-02.  Ana Criado - Vulnerable (Seven24 & S.A.T Remix)  4:54
-03.  Moonnight & Elles De Graaf - Sunset Kindness (Chill Out Mix)  4:14
-04.  Sergey Shabanov & Gemma Pavlovic - Who Am I Without You (Chill Out Mix)  3:54(   Читать дальше...   )Жанр: Downtempo, Chillout, VocalПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003D2B4FAC3E6605C405F4FB354B753172A64342
 ```
 
 https://mybot314.ru/tekegram_catalog/

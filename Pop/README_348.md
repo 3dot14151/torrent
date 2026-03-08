@@ -1,3 +1,61 @@
+###  Публикация: 1807837   (65080) от 21.07.2025
+
+Вадим Кузёма - Чужая жена (2025) [MP3|320 Kbps] <Pop, Chanson>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Чужая жена [00:04:45]
+02 - Анастасия [00:03:24]
+03 - Холодная волна [00:03:30]
+04 - Точка невозврата [00:03:27](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A921C5954BB1A0E7C647DC982CFDF2E3D6C74E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807981   (65073) от 22.07.2025
+
+Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch In The Night (5:20)
+02. Sib Dab Dua (3:07)
+03. Dreams (4:02)
+04. Hide Away - Man Is Comin'! (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142F90C48E32112F64262B840725AF366E0DDAE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807991   (65072) от 22.07.2025
 
 Madonna - Madonna (1983) 1st German Press [APE|Lossless|image + .cue] <Pop>
@@ -683,61 +741,6 @@ Sinead O'Connor - Nothing Compares 2 U (CDM) (1990) 1st German Press [APE|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ABFB28C59771B1F1A1FB5E2942067AAE78719ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441712   (64296) от 25.01.2012
-
-Александр Барыкин & Карнавал - Избранное (2012) 4CD[MP3|320 kbps]<PopRock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop-RockПродолжительность: 05:16:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705206   (63684) от 07.03.2024
-
-Татьяна Буланова - Камео (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63684.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Камео
-2. Магия
-3. Сто шагов
-4. Бонни и Клайд(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19860D60C70E5F6E89C737F37D11BAA9ED7362BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

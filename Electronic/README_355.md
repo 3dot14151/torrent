@@ -1,3 +1,61 @@
+###  Публикация: 960228   (309613) от 27.11.2015
+
+David Guetta - Listen Again (2015) [MP3|320 кб/с]<House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dangerous (feat. Sam Martin)
+02. What I Did For Love (feat. Emeli Sandé)
+03. No Money No Love (feat. Elliphant & Ms. Dynamite)
+04. Lovers On The Sun (feat. Sam Martin)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC9BFB8AC1E2E5DCECB58070DB7CC71B7A31371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076947   (309509) от 27.11.2016
+
+VA - Fine Dining: A Dedicated Lounge Music Selection (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Symbolic Interaction (06:25)
+02. Cane Garden Quartet - Flying With No Wings (05:55)
+03. Enrico Donner - Deep Rooted (05:08)
+04. Baghira - A Thrill Of Anticipation (05:37)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0252232C1EF03D5146401F9BC3203E76F06CD36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076950   (309508) от 27.11.2016
 
 VA - Into the Sunset: Chill and Lounge Experience by Lighthouserec (2016) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -685,64 +743,6 @@ Orla Wren - Moccasin Flowers (2015) silentSEED [FLAC|Lossless|WEB-DL|tracks] <Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1DA241B7F74CD80B51B546A69D2B13ED3A6F360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261009   (307702) от 09.11.2018
-
-Astronautica - Discography 8 Releases (2013-2018) Alpha Pup Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillwave, Bass, IDM, House, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise Intro (01:18)
- 02. Reasons (04:26)
- 03. Racetracks (03:56)
- 04. I've Never Been (03:00)(   Читать дальше...   )Жанр: Downtempo/IDM/House/Chillwave/AmbientПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE71B0AB49D64D2223FD75F59BB78EDE3C29413F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183589   (307683) от 14.11.2017
-
-ScAnDroid Experiment's - A Trap For The Traveller (2017) Single, Авторская раздача [MP3|320 Kbps] <Trap, Drum'n'Bass, Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Trap For The Traveller
-02. Our Distant Guests
-03. A Trap For The Traveller (Mix-A-Trapped Version)
-04. A Trap For The Traveller (Trap-A-Beat Version)Жанр: Trap, Drum'n'Bass, ElectronicПродолжительность: 00:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0A3ED77287E4CFA8539E27DFCCA1821329E49B
 ```
 
 https://mybot314.ru/tekegram_catalog/

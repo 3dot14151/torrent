@@ -1,3 +1,73 @@
+###  Публикация: 605895   (994807) от 22.01.2013
+
+Viola Valentino - 4 альбома (2004-2010) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994807.jpg" />
+</div>
+
+
+###  Подробнее
+
+2004 - Giorno Popolare01. Le Prove Di Un'addio (3:48)
+ 02. Domani E Un'altro Giorno (4:23)
+ 03. Un Miraggio (3:33)
+ 04. Perduto Amore (4:07)
+ 05. Suoni Di Luce (4:37)
+ 06. I Tacchi Di Giada (4:03)
+ 07. Dimenticare Mai (3:44)
+ 08. Lungometraggio (4:42)
+ 09. La Musica Non C'e (3:50)
+ 10. Daisy (3:05)(   Читать дальше...   )Жанр: popПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF354984457A7D0671376066684F0FAAE9FACD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604158   (994664) от 22.01.2013
+
+Joe Dolan - 4 альбома (1975-1993) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1975 - Crazy Woman1	The Answer To Everything	02:46
+2	My Own Peculiar Way	02:22
+3	Aching Breaking Heart	02:46
+4	Pretty Brown Eyes	02:53
+5	Tar And Cement	03:20
+6	The House With The Whitewashed Gable	02:15
+7	Love Of Common People	02:57
+8	Westmeath Bachelor	03:00
+9	Unchained Melody	03:36
+10	Make Me An Island	02:56(   Читать дальше...   )Жанр: popПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F70BE60905AFB7E2DBAA2635CB408DAF3144599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606751   (994056) от 24.01.2013
 
 Ольга Зарубина - Не случайно (2012) [MP3|320 кб/с]<pop>
@@ -732,64 +802,6 @@ ABBA - Ring Ring (1973) 2013 Remastered Deluxe Edition [FLAC|Lossless]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41DF78F1068EDD80E42F1D59718E3A0293EC736F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711807   (987825) от 22.01.2020
-
-VA - I Love Tocata 80's (2012) 2CD [FLAC|Lossless]<Italo-Disco, Hi-NRG, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlanta - Romantic Break [5:06]
-02. Modern Talking - You're My Heart, You're My Soul [5:33]
-03. Spagna - Easy Lady [6:53]
-04. Baltimora - Woody Boogie [5:51](   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Synthpop •Продолжительность: 02:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C923D32420E45E7BD910368EAC9EC449F7A13B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586222   (987770) от 22.01.2020
-
-Dan Balan - Freedom. Part 1 (2012) [FLAC|Lossless]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chica Bomb [3:29]
-02. Freedom [3:33]
-03. 24th Letter [4:23]
-04. Lonely [3:11](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038EC327FB266AC745B4ABF5DE4ACC88135C027E
 ```
 
 https://mybot314.ru/tekegram_catalog/

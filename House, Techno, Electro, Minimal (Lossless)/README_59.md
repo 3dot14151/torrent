@@ -1,3 +1,90 @@
+###  Публикация: 1194638   (155974) от 25.12.2017
+
+VA - Nick Warren - The Soundgarden - Volume One (2014) Hope Recordings [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Techno, Leftfield, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peet - Fear Of Andarana (06:37)
+ 02. Niko Mayer - Anunnaki (08:04)
+ 03. Simon Shackleton - We All Shine On (06:51)
+ 04. Stas Drive Pres. Quattar - Arjuna (05:16)(   Читать дальше...   )Тип издания: CD, Mixed •Жанр: Ambient, Downtempo, Techno, Leftfield, House •Продолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAEA7ACC43FE4D04EAF0E8C553CFDD2758ECC7DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433995   (154879) от 22.12.2020
+
+Michael Cassette - Temporarity (2020) 10th Anniversary Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Nu Disco, Synthwave, Retrowave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Name Is Michael Cassette (3:29)
+ 02. Shadow’s Movement (3:54)
+ 03. Crockett's Theme (3:39)
+ 04. Through The Windows (3:31)(   Читать дальше...   )Жанр: EDM, Progressive House, Nu Disco, Synthwave, RetrowaveПродолжительность: 03:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75C79DBFAF008687EBE36898FF4247DF933D2BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270996   (154527) от 21.12.2018
+
+S36 - Turkish Delight EP (2018) Sumo Smash Record [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Rat (02:56)
+ 02. S.t.O Groove (03:33)
+ 03. Terra (03:30)
+ 04. No Stromo (06:31)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D49E734E3CEB215FCB0F1417E5B7FBD3879BD6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347113   (154374) от 22.12.2019
 
 SC-164 - CH-003 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Experimental>
@@ -655,93 +742,6 @@ Sofi Tukker - Soft Animals (2016) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:892466BE7EC711DF16E62C74A77E52B6765407A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272491   (142798) от 28.12.2018
-
-Gabe Gurnsey - Physical (2018) [FLAC|Lossless|tracks + .cue] <Disco House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultra Clear Sound (4:03)
-02. You Can (3:33)
-03. Temazzy (3:40)
-04. Harder Rhythm (5:18)(   Читать дальше...   )Жанр: Disco HouseПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660E0336C05EC70DDC50D723B9292BD20064EAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272712   (142781) от 28.12.2018
-
-Moby - Everything Was Beautiful, and Nothing Hurt (Remixes) (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dance, Techno, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ceremony Of Innocence (Hyperion Remix) (06:10)
-02. Like A Motherless Child (Broken Places Remix) (05:49)
-03. Falling Rain And Light (Seas Of Light Remix) (06:01)
-04. Mere Anarchy (The Storm Rise Remix) (04:52)(   Читать дальше...   )Жанр: Electronic, Dance, Techno, HouseПродолжительность: 02:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BFAEF1FD4AEAF78267287B4B78CA3B1A342DC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195508   (142498) от 29.12.2017
-
-Pete Tong - Ibiza Classics (with The Heritage Orchestra Conducted by Jules Buckley) (2017) [FLAC|Lossless|tracks + .cue] <House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clubbed to Death (03:23)
-02. Galvanize (feat. Rejjie Snow) (03:55)
-03. Body Language (feat. RAYE) (03:40)
-04. Killer (feat. Seal) (04:52)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2249DF63514AED4EC3F3886D858321D028563D
 ```
 
 https://mybot314.ru/tekegram_catalog/

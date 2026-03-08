@@ -1,29 +1,3 @@
-###  Публикация: 1084175   (219767) от 18.12.2016
-
-Проекты - VideoHive - Metallic Text - 6959041 [C4D, AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metallic Text - проект для создания красивой стильной анимации вашего логотипа или бренда.Формат: C4D, AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD91985C00BB9573C84BCEB2809F64CB96009EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343184   (219546) от 05.12.2019
 
 Проекты - Motion Array - Christmas Gnome Ident 3 - 331382 [AEP]
@@ -673,6 +647,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B2D896625D6A94835C83BDE44E9F7F1413923EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966624   (217457) от 18.12.2015
+
+Проекты - VideoHive - Cinematic Dark Sky Logo Opener - 5639428 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B9E58E054623072EF1C71EFD819B831C649B08
 ```
 
 https://mybot314.ru/tekegram_catalog/

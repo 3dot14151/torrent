@@ -1,3 +1,61 @@
+###  Публикация: 1080649   (288592) от 07.12.2016
+
+VA - Mountain Sound The Lounge Of Aspen (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandala Fields - Koh Tao 5:17
+02. Monowork - Bargain 2:25
+03. Maremare - That Beach Is Mine 6:09
+04. Dr. Diver - Selfishness 5:20(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4391D5C0B99263C78E544C0C1314C6A2C41DB63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080830   (288591) от 07.12.2016
+
+VA - Chillax and Stand with Me (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillelektro - Cala Pi [00:06:06]
+02. Syntheticsax - Waves of Change [00:05:45]
+03. Rey Salinero - Flor de Almendro [00:05:52]
+04. Alex Nothlich - Flexible Time [00:05:15](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7826DCC900532D26AB873A5FD1B81A94D79730D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080821   (288568) от 07.12.2016
 
 VA - Bring Your Soul Back Vol. 2 - Chill Out Selection (2016) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -686,64 +744,6 @@ Nitrous Oxide - Live @ Club Mecca Prague, Czech Republic 2019-10-10 [MP3|192 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2A546D3856A56747E3B31D76F9749EA74EF1CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335392   (287732) от 02.11.2019
-
-VA - Coffee Bar Chill Sounds Vol 15 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rex Kramer – Another Cup (4:45)
-02. Jens Buchert – Causality (5:21)
-03. Rex Kramer – In The Kitchen (4:51)
-04. Anemine – White Series 256 (7:47)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81594545F7819D5BF419F899D10C58C8F4C334F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335427   (287729) от 02.11.2019
-
-Jim Brickman - Underground (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Lounge, Jazz Groove>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poolside Chill (Super Chilled Lo-Fi Remix) (3:18)
- 02. Light a Candle (Super Chilled Lo-Fi Remix) (3:51)
- 03. Drive North (Super Chilled Lo-Fi Remix) (3:32)
- 04. Served Chilled (Super Chilled Lo-Fi Remix) (4:38)(   Читать дальше...   )Жанр: Instrumental, Chillout, Lounge, Jazz GrooveПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFCD1F7CE2519E449A6B2E3ABCA26540D4CBFFA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

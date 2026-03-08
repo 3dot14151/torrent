@@ -1,3 +1,32 @@
+###  Публикация: 1503364   (819390) от 19.10.2021
+
+VA - Record Super Chart 16.10.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
+02. Minelli - Rampampam (3:20)
+03. Calvin Harris feat. Tom Grennan - By Your Side (3:09)
+04. Tiesto & KAROL G - Don't Be Shy (2:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9CE43136BB8873A41F5C737665FC64D59E4355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382479   (819290) от 11.05.2020
 
 VA - Beatport Goa Trance: Electro Sound Pack #80 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
@@ -716,35 +745,6 @@ VA - Lounge Royale: Exclusive Music Selection (2016) [MP3|320 кб/с] <Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05E18C1571FFC16014557428FCB8BB9BFED146D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008850   (813935) от 19.04.2016
-
-VA - Whatpeopleplay Top 100 Topseller March (2016) [MP3|320 кб/с] <House, Deep House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813935.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mr. Fingers - Qwazars [06:17]
-002. Frank Wiedemann - Moorthon II (Original Mix) [08:56]
-003. Borrowed Identity - Mary Jane [07:12]
-004. Soulphiction - Make it Burn [05:25](   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 11:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF293D329CC28C621937B88C4B056948CC267542
 ```
 
 https://mybot314.ru/tekegram_catalog/

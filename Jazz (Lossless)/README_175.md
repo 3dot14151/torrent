@@ -1,3 +1,32 @@
+###  Публикация: 1059097   (464476) от 03.10.2016
+
+Jasper van 't Hof - Eyeball (1974) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bax [07:54]
+ 02.Viber Snake [05:16]
+ 03.Eyeball I [03:42]
+ 04.Hyrax [05:57](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8CB8B05FD1962F19742C335ACB1FE97689785E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059256   (464475) от 03.10.2016
 
 Milt Jackson - At The Museum Of Modern Art (1965) 2008, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -735,35 +764,6 @@ Freddie Fox - Limitless (2020) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE9584F409984451BA7AB58D36753ADF7B5E1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059445   (462278) от 04.10.2016
-
-T-Square - Yes, No (1988) Sony Music[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dans Sa Chambre [05:26]
- 02.Go For It [04:54]
- 03.Miss You [05:02]
- 04.El Mirage [05:20](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15B1287DCB1BADA67F011349C1FE15E8BC79E61
 ```
 
 https://mybot314.ru/tekegram_catalog/

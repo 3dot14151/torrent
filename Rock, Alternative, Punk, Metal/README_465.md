@@ -1,32 +1,3 @@
-###  Публикация: 1038221   (608752) от 27.07.2016
-
-Godsticks - The Envisage Conundrum (2013) [FLAC|Lossless|tracks + .cue] <Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Convergence (1:18)
-02. Caught in a Bind (5:04)
-03. The Envisage Conundrum (6:44)
-04. In a Way That Ended Me (5:00)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234417CDB1516668BC95D2A566ACE6C5A2D722FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038148   (608751) от 27.07.2016
 
 Ride The Sky - New Protection (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal, Progressive Metal>
@@ -744,6 +715,35 @@ T. Rex (Tyrannosaurus Rex) - 1972 (1972) 2CD, 2022, Ultimate Edition, Demon Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9974062AD048647BE23BD01CF4CAAFB8F66401B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546029   (607848) от 23.04.2022
+
+The Sweet - Platinum Rare Vol. 2 (2022) Remastered [FLAC 2.0|48/24|WEB-DL|tracks] <Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Action (Rough Mix) (3:27)
+02. Idenity Crisis (Outtake) (3:10)
+03. Oh Yeah (Band Demo) (2:19)
+04. Lies in Your Eyes (Rough Mix) (3:36)(   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Classic RockПродолжительность: 01:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC878419F1CAA01A729FE631A30DFCE8D03C474F
 ```
 
 https://mybot314.ru/tekegram_catalog/

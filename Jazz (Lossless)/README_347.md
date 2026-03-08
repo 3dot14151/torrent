@@ -1,3 +1,32 @@
+###  Публикация: 1780837   (70353) от 20.02.2025
+
+Rob McConnell & The Boss Brass - The Jazz Album (1976) 1996, Sea Breeze Jazz [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Hard to Find One [5:58]
+02. Portrait of Jenny [8:25]
+03. My Man Bill [7:04]
+04. Body and Soul [8:54](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF214514E34F1AAFC3BE9E0AB52B2D58E9E0908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780829   (70352) от 20.02.2025
 
 Nick Brignola - On A Different Level (1990) Reservoir [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
@@ -715,35 +744,6 @@ Luiz Bonfa - Amor! (1959) 2001, Collectables [FLAC|Lossless|tracks + .cue] <Braz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0016490CAE81C8719ADD37CB7D071B1A445B8034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781978   (70078) от 26.02.2025
-
-Brian Lynch - Madera Latino (2012) 2CD, 2016, Hollistic Musicworks [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow's Destiny [9:06]
-02. Joshua C. [9:58]
-03. On the New Ark [8:28]
-04. Song of Songs [11:11](   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 01:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD31CB9285F4E4B5A21CF801F6770CA9293702CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

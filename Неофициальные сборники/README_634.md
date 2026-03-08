@@ -1,3 +1,213 @@
+###  Публикация: 489848   (102486) от 01.05.2012
+
+VA - Музыка в дорогу и для себя (2012) [MP3|96-320 кб/с]<Dance, Pop, Rock, шансон, фолк,>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102486.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. CENTR - Город дорог (4:30)
+2. Eminem - Lose Yourself (5:22)
+3. Eminem - Stan (6:44)
+4. Guf - Ice Baby (4:12)
+5. Mr. СREDO - Медляк (4:27)
+6. Sting - Desert Rose (4:45)
+7. Whizzkids feat. Inusa Dawuda - Rumours (Digi digi) (3:46)
+8. Агата кристи и Би-2 - А мы не ангелы, парень (3:04)
+9. Александр Розенбаум - Гаврош (4:17)
+10. Александр Розенбаум - Заходите к нам на огонек (2:16)(   Читать дальше...   )2012Жанр: Dance, Pop, Rock, Шансон, Фолк.Продолжительность: 07:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213303B01513CC5CBD202EDE1CBC2724C4F81520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490754   (102414) от 01.05.2012
+
+VA - Восточная Сказка (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naser Zeynali - The Ring
+02. Meyra - Kalbim Bir Pusula
+03. Arash - Melody
+04. Hakan Peker - Karamela
+05. Mehrzad Amirkhani - Neshoon Be On Neshoon
+06. Petek Dincoz - Yalani Bosver
+07. Mohsen Chavooshi - Ha
+08. Sinan Ozen - Yansima
+09. Shahab Ramezan - Jonoon
+10. Yusuf Guney & Rafet El Roman feat. Eren Atasoy - Aska In2012Жанр: PopПродолжительность: 06:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:953D6230EA8BF66719796D77E4A99A5C866EE71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490765   (102377) от 01.05.2012
+
+VA - Дя, Я пьяна! Девишник (2012) [MP3|320 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ляля Размахова - Да, я пьяна! (3:56)
+2. Марина Александрова - Люби меня (4:38)
+3. Ольга Фаворская - У меня есть ты (3:44)
+4. Рада Рай - А любовь не меняю (3:44)
+5. Стелла Джанни - Ты опоздал (4:07)
+6. Олеся Атланова - Самая красивая любовь (4:00)
+7. Лариса Закиева - Я смогу (версия 2012) (3:49)
+8. Катерина Логинова - Ромашка (3:51)
+9. Александра Радова - Только мой (4:50)
+10. Ольга Фаворская - У меня есть ты (3:44)2012Жанр: ШансонПродолжительность: 01:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23CA5D7637F4A69012ECE4AC90B0925D1DBE119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490027   (102359) от 01.05.2012
+
+VA - Лучшие Хиты Радио Шансон Часть 8 (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102359.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Любовь Успенская - Два человека
+002 Александр Новиков - Сладкий грех
+003 Рада Рай - А любовь не меняю+
+004 Ян Марти - Я люблю тебя
+005 А.Т.А.С. - Галка - зажигалка
+006 Михаил Шуфутинский - Выйду я на палубу
+007 Анатолий Полотно и Федя Карманов - Счастья Вам!
+008 Лукьяновка - Мужики
+009 Денис Мафик - Красивая
+010 Стас Михайлов - Непрощенный2012Жанр: ШансонПродолжительность: 05:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5BB24DBE70B0376D833DCF603DC6CD47772012D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489428   (102074) от 29.04.2012
+
+VA - Лучшие Хиты Радио Европа Плюс Часть 8 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102074.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Real O - Луна (Я В Белом Платьице)
+002 Marina and The Diamonds - Primadonna
+003 T-Killah feat. Виктория Дайнеко - Mirror Mirror
+004 LMFAO - Sorry For Party Rocking
+005 Elvira T - Все Решено (Rodion Gordin Remix Radio)
+006 Mishelle feat. Randi - Feels So Good (Radio Edit)
+007 Влад Соколовский - Ливни
+008 Aura Dione feat. Rock Mafia - Friends
+009 Иракли и Даша Суворова - Нелюбовь
+010 Madonna - Masterpiece2012Жанр: PopПродолжительность: 05:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F816AB9F600C2D6A12AAA401BB5FBE1F9BD52A96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489784   (102032) от 29.04.2012
+
+VA - Beautiful Dubstep v.3 (2012) [MP3|256-320 кб/с]<Dubstep/Chillout/Longe>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackmill Feat. Veela - Let It Be
+02. Aly & Fila Feat. Jwaydan - Together We Control The SunLight (Dubstep Remix)
+03. Above & Beyond - You Got To Go (Seven Lions Dubstep Remix)
+04. Blackmill - Spirit Of Life
+05. Blackmill - Evil Beauty
+06. Blank and Jones with Delerium, Rani - Fallen (Dubstep Mix)
+07. Dub and Run - Coming Home
+08. Ed Gabriel aka Cooper - Little Happiness
+09. ENiGMA Dubz - You Make Me Feel (Mastering)
+10. Fast Foot & Rose Royce - Wishing on a star(   Читать дальше...   )Жанр: Dubstep/Chillout/LongeПродолжительность: 02:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF6F669DD6876F102E62F8F6623661F905B8E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489419   (101992) от 29.04.2012
 
 VA - Самые горячие новинки этого года (2012) [MP3|256 кб/с]<Pop>
@@ -589,186 +799,6 @@ R. Armando Morabito - Compilation (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8164D1A73BA80725CE74F634DD6CED7A59759E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768772   (100624) от 29.12.2024
-
-VA - SAW 5 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100624.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 10 Years - Selling Skeletons
-002. Three days grace - The end is not the answer
-003. Bullet For My Valentine - Breaking point
-004. Celldweller - Birthright(   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, Progressive RockПродолжительность: 06:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB07E215FFE296D411F56AF62584D86FDAB4A809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768699   (100619) от 29.12.2024
-
-VA - SAW 2 ((2005-2024)) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100619.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alter Bridge - Blackbird
-002. Blue Stahli - Anti You
-003. Corroded - 6 Ft. Of Anger
-004. Deftones - Change(   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, Progressive RockПродолжительность: 07:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DD8DE945A6E655774CC58AAF79BEA3F0BE00C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769735   (100599) от 30.12.2024
-
-VA - Compilation part 135 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akmalov - Wildflower
-02. Menda - Just Like You
-03. Jambeats - Feel You
-04. Menda - Fear(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8847AC8115A78D7B0AC178F447B94AF94EB5B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769773   (100588) от 30.12.2024
-
-VA - Compilation part 136 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumanov - Mirage
-02. Akmalov - Living is Beautiful
-03. Azimov - Leave Me
-04. Jumanov - Fight for Life(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195EA66C63D3617E1F62C1A18D3136D9487BC7C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769270   (100583) от 30.12.2024
-
-Сергей Завьялов - 12 Albums, 20 Singles (2019-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Chanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Волчонок [00:03:49]
-02. Хоп-хоп [00:03:21]
-03. Называли меня сирота [00:03:34]
-04. Со мною до конца [00:03:27](   Читать дальше...   )Жанр: Pop-ChansonПродолжительность: 12:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813703CD085EBB915BCA9EA5C2CDCB9C30B85384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487375   (100515) от 26.04.2012
-
-VA - Клубные Новинки Vol.63 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anse Source pres. Pierays - Quiet Words (Original Mix)
-02. Syntheticsax - Crowd (Original Mix)
-03. Sousa & Mad feat. Kaysee - Temptation (More & Masters Remix)
-04. Phunk Investigation - Shan Saw (Original Mix)
-05. Timur Shafiev feat. Dasha - Out Of Limit (Original Mix)
-06. Moree MK - Maui Beach feat. Dakaneh (Coqui Selection Remix)
-07. Ad Brown, Ben Coda - Rinse & Repeat (Magitman Remix)
-08. Катя Чехова - Сердце Тебе В Ответ (Агент Смит Клуб Микс)
-09. Cosmic Funk feat. Tanya Michelle - I Defy (John Jacobsen Remix)
-10. Thomas Gold - Sing 2 Me (Original Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC1CF05B349F116C763D8A7AF22D5270998315E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1199655   (800363) от 17.01.2018
+
+Simone Gatto - Heaven Inside Your Frequencies Part 1 & 2 (2017) Out-Er, Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Abstract, Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Te Olvides De Acordarte (06:06)
+ 02. Today Will Be Tomorrow (feat. Kaelan) (07:00)
+ 03. When I Was With You (02:48)
+ 04. Amazzonia (feat. Aubrey) (05:59)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno/Abstract/Techno/AmbientПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE4BBBEBA993A5ABC4B95ADE60087A3C1AAA9F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199748   (800356) от 17.01.2018
+
+Triquetra - Ecstatic Planet (2018) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Gate To Happiness (08:45)
+02.Stormbringer (08:31)
+03.No Unexpected Errors (07:50)
+04.Homunculus (08:57)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520EADC33598054CD0581C83781774AEDF4B4004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199741   (800306) от 17.01.2018
 
 VA - Chillstep Files Vol.6 (2018) [MP3|320 Kbps] <Chillstep, Breaks, Downtempo>
@@ -687,64 +745,6 @@ VA - Chillout April 2017  (Top 10 Spring Relaxing Chill Out and Lounge Music) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1057E982EF52F42FA43249354A2F083C2F95A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122000   (799237) от 04.04.2017
-
-VA - Level Lounge (The Best Selection Of Vip Chill Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ajad Samskara - Byron Bay  5:09
-02.  Augusto Casella - Dream Love  4:27
-03.  Emmanuele Landini - Innocence  5:19
-04.  Ajad Samskara - Violet  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A28AA3CC54BAE08F5BF78385E63101530157B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121991   (799231) от 04.04.2017
-
-VA - Sexy Deep House Tunes Vol.4 (Fantastic Groovy & Melodic Deep House) (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marga Sol - Heaven (Spase Ilo Indie Dance 2016 House Remix )  8:30
-02.  Der Dienstleister - Crusty  6:18
-03.  3YYY - Boom  5:34
-04.  HYPELEZZ - The Beach  4:28(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154C99794434F9209183318BFC7F6258680AEA90
 ```
 
 https://mybot314.ru/tekegram_catalog/

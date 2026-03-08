@@ -1,131 +1,3 @@
-###  Публикация: 1120143   (412108) от 15.09.2019
-
-Being As An Ocean - 5 альбомов + 2 сингла (2012-2019) [MP3|320 Kbps] <Melodic Hardcore, Post-Hardcore, Alternative Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412108.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 - Dear G-d...
-2013 - The People Who Share My Name (single)
-2014 - How We Both Wondrously Perish
-2015 - Being As An Ocean(   Читать дальше...   )Жанр: Melodic Hardcore, Post-Hardcore, Alternative Rock, ElectronicПродолжительность: 04:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F60005746F6622B10487EFE9B42289F043745B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325540   (412102) от 15.09.2019
-
-Dan McCafferty (Ex. Nazareth) - Last Testament (2019) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You and Me
-02. Why
-03. Looking Back
-04. Tell Me(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37D287001F9BC69F1CD2BB8AD98541B61D83554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559160   (412035) от 11.10.2012
-
-Memphis May Fire - Challenger (2012) [MP3|320 кб/с]<Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412035.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Without Walls
-2. Alive In the Lights
-3. Prove Me Right
-4. Red In Tooth And Claw
-5. Vices
-6. Legacy
-7. Miles Away (feat. Kellin Quinn)
-8. Jezebel
-9. Losing Sight (feat. Danny Worsnop)
-10. Generation Hate(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884BB0378003026033D244387E500382EC33392C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558856   (412029) от 11.10.2012
-
-Jointstereo - Refract The Fears (2012) [FLAC|Lossless]<Death Doom Metal / Atmospheric Rock / Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_412029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immersion   (1:57)
-02. Knowledge   (4:45)
-03. Chains   (6:50)
-04. Senseless   (8:03)
-05. Alone   (4:23)
-06. Ophelia   (6:36)
-07. Oppression   (5:08)
-08. Remember Me  (6:55)
-09. Wonderland   (8:29)
-10. Insomnia   (4:37)Жанр: Death Doom Metal / Atmospheric Rock / Progressive MetalПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412980   (412028) от 02.10.2020
 
 Echolot - Destrudo (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
@@ -758,6 +630,120 @@ Bayside - Acoustic Volume 2 (2018) [FLAC|Lossless|tracks + .cue] <Punk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92F1733A1157F27FC528A40698DC30A9BDDC159C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948614   (411264) от 20.10.2015
+
+Тараканы! - Что я могу изменить? (2015) Single [MP3|320 кб/с]<Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заглавный трек сингла — это антимилитаристский гимн группы, впервые исполненный еще в марте этого года, но представленный широкой общественности в своем законченном виде только на летнем фестивале «Нашествие». Вторым номером сингла значится кавер-версия классической антивоенной песни авторства Аркадия Островского и Льва Ошанина «Солнечный круг», более известная как (   Читать дальше...   )01. Что я могу изменить?
+02. Солнечный кругЖанр: Punk RockПродолжительность: 00:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9BB8F7A0939B8DFDF582F63CBD82A8AA468FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252147   (411163) от 04.10.2018
+
+Дядя Ваня - #Люди (2018) [MP3|320 Kbps] <Rock, Hard Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Комнатный рок
+02. Восток
+03. Вой-На
+04. Человек-сигарета(   Читать дальше...   )Жанр: Rock, Hard Rock, SkaПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1251D5E33D5E069460A352B17244C2D76DA87FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252154   (411154) от 04.10.2018
+
+Дядя Ваня - Воля (2015) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Воля
+02. Короткая ночь
+03. Битва титанов
+04. Зачистка(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Blues Rock, Blues, Country RockПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E85D5BD8683E2B79662966398AFFEB11600FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252145   (410827) от 04.10.2018
+
+Дядя Ваня и группа One Hell Thing - The Best #1 (2009) [MP3|320 Kbps] <Blues Rock, Blues, Reggae>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поезд Питер-Брест
+02. Дворник
+03. Декольте
+04. Не называй(   Читать дальше...   )Жанр: Blues Rock, Blues, Rock, ReggaeПродолжительность: 00:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C96FE19796B49F25540022414846B33035E7DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

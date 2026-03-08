@@ -1,3 +1,32 @@
+###  Публикация: 1565294   (239853) от 23.07.2022
+
+Max Roach - Deeds, Not Words (1958) 1987, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Stepped Out of a Dream [7:50]
+02. Filide [7:10]
+03. It's You or No One [4:16]
+04. Jodie's Cha-Cha [5:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1659B165DE88CACB900E2896229964103A00E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422043   (239851) от 07.11.2020
 
 Terence Blanchard - Terence Blanchard (1991) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EC8838F9FC85124AAF664E6F45ECE2937B810A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636613   (239012) от 31.05.2023
-
-Cal Tjader - Mambo Sangria (1968, 1969) 2007, Fabulous [FLAC|Lossless|tracks + .cue] <Latin Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alonzo [4:14]
-02. Lady Madonna [4:03]
-03. Nica's Dream [5:07]
-04. Spooky [4:19](   Читать дальше...   )Жанр: Latin Jazz, CoolПродолжительность: 01:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CB215BC16E2CBC713D60D9B49BE846538F2303
 ```
 
 https://mybot314.ru/tekegram_catalog/

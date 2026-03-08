@@ -1,3 +1,61 @@
+###  Публикация: 1333632   (298942) от 27.10.2019
+
+Ильин - Романсы. EP (2019) [MP3|320 Kbps] <Singer-Songwriter/Romance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Метели
+02. Весна
+03. Свет
+04. ПраздникЖанр: Singer-Songwriter/RomanceПродолжительность: 00:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1CB4DACA62D61E3F9EC6EDD1B8A92319DCC9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334047   (298862) от 27.10.2019
+
+Авраам Руссо - Далеко-далеко (2002) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Далеко-далеко [04:26]
+02. Тамбалай [03:59]
+03. Нежные слова [04:19]
+04. Пропащие денежки [03:33](   Читать дальше...   )Жанр: PopПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C22A4F5B2C6003994054C117171406B5AEA4A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333278   (298850) от 27.10.2019
 
 СашаЧ - СашаЧ (1999) MDM Studio [FLAC|Lossless|tracks + .cue] <Pop>
@@ -687,61 +745,6 @@ VA - 100 Hits 90s Originals (2017) Box Set, Demon Muzic Group [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFD18465443F61DE0510117DED17137D38C777DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333816   (296656) от 28.10.2019
-
-Radiorama - Greatest Hits & Remixes (2015) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chance To Desire (Vocal Version) (7:54)
-02. Vampires (Swedish Remix) (6:25)
-03. Aliens (Swedish Remix) (5:41)
-04. Yeti (Special Remix) (7:27)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, 80s |Продолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25142BC99C2FC0B4E459C0399E5A930C8FF1B700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 106831   (296087) от 18.12.2009
-
-Kim Wilde - Discography (14 Albums) (1981 - 2006) [APE | FLAC|lossless]<Pop, New Wave, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, New Wave, Rock, DanceПродолжительность: 12:17:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

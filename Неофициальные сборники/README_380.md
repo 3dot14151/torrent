@@ -1,3 +1,177 @@
+###  Публикация: 1052552   (527907) от 14.09.2016
+
+VA - My Favourite Hits of 1966 (8CD) от DON Music (2016) [MP3|320 Kbps] <Easy Listening, Pop, Funk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527907.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Beatles - Paperback Writer (02:16)
+002. The Beach Boys - Good Vibrations (03:35)
+003. Four Tops - Standing In The Shadows Of Love (02:34)
+004. Bobby Hebb - Sunny (02:43)(   Читать дальше...   )Жанр: Easy Listening, Pop, Funk, Soul, Pop Rock, Rock, Blues RockПродолжительность: 09:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8994BB96E4D0696695B23884381D1ED0D5A180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 228706   (527887) от 07.07.2019
+
+VA - Хит Парад 90-х (2008) [MP3|320 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Комиссар - Ты скажешь да
+02. Женя Белоусов - Девочка моя синеглазая
+03. Кар-Мэн - В Багдаде все спокойно
+04. Комбинация - Russian Girls(   Читать дальше...   )Жанр: PopПродолжительность: 06:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D31024BFCE3D4BDC5061FEDC4E182370450FF55C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052444   (527854) от 14.09.2016
+
+VA - Velvet Jazz: Soul Emotions Mix (2016) [MP3|320 Kbps] <Jazz, Free Jazz, Lyric Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527854.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sergio Mendes & Brasil '66 - Mais Que Nada
+002. Stan Getz, Joao Gilberto - Desafinado
+003. Tingvall Trio - Den Gamla Eken
+004. Stan Getz, Joao Gilberto - The Girl From Ipanema(   Читать дальше...   )Жанр: Jazz, Free Jazz, Lyric SoulПродолжительность: 08:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85220EC05C9BA1743C3A63DC569CFB926E548DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156539   (527725) от 07.08.2017
+
+VA - Aural Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527725.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kusuma Orchestra - Down The Path
+002. Alphawezen - Gun Song (Original Mix)
+003. Chillelektro - Pag
+004. LastEDEN - Cold Fingers (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 09:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F38560BE44819F98C810A35EDC20132859A5104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156450   (527637) от 07.08.2017
+
+VA - Золотые семидесятые vol. 10-12 (2017) [MP3|192-320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5000 Volts - I'm On Fire
+02. Al Martino - Volare (Nel Blu Dipinto Di Blu..Long Version)
+03. Barbara Mandrell - Sleeping Single in a Double Bed
+04. Bob And Marcia - To Be Young, Gifted And Black(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A728757D1F164CB1CC4AF911CB5160276EE02F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156442   (527592) от 07.08.2017
+
+VA - Автодискотека Клубная (2017) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleur East x Pep & Rash - Sax Rabbit (DJ Agamirov & DJ Stylezz MashUp)
+02. Basement Jaxx - Never Say Never (Galin Remix)
+03. Justin Bieber - Sorry (Dj Natasha Baccardi & Dmitriy Rs Extended)
+04. T-killah - Невидимая (Dj Squeeze & Dj Vlad Hardy Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01854F68EED85845C8F949F3F8C3D6FA9287E185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052814   (527332) от 15.09.2016
 
 VA - Ночной перрон. Академия хитов шансона (2016) [MP3|256-320 Kbps] <Шансон>
@@ -571,180 +745,6 @@ VA - The Whisper Of The Ocean: Classic Chillout (2017) [MP3|320 Kbps] <Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D20CDAF6D1E8EA8A19C762F38EC354FE5D7AB9E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157934   (524643) от 13.08.2017
-
-VA - Фитнес - Хит Vol.3 (2017) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Coverage - Runaway (Black Due 2k17 Remix)
-02. Stereo Slam - 2U (Extended Mix)
-03. Nadia ( - Feel The Summer (Radio Edit)
-04. Lotus & Rene Rodrigezz ft. Pitbull - Light up the dark (Trillogee Remix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20CAFD2C3FCCDC8DE7C9B991060FEF6708DA2C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157952   (524625) от 13.08.2017
-
-VA - Фитнес-Хит Vol. 2 (2017) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr Matt - Alcoholic Party (Original Mix)
-02. Ian Davecore feat. SPHUD - For That Booty (Original Mix)
-03. B17 - Echo (Original Mix)
-04. Lucas & Steve x Mike Williams x Curbi (Best-Muzon.cc) - Let's Go(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01830CB589118895062B57F99F774C25B0C902F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157848   (524600) от 13.08.2017
-
-VA - 150 Hip Digest: August Edition (2017) [MP3|320 Kbps] <Hip-Hop, Rap, RnB>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524600.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brian Angel - Fareal
-002. YFN Lucci - Key To The Streets
-003. Charlie Wilson - Smile For Me (feat. Robin Thicke)
-004. Kid Cudi - Frequency (Clean)(   Читать дальше...   )Жанр: Hip-Hop, Rap, RnBПродолжительность: 09:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3CAC45C6FE9718264692C39834588C593802D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240387   (524581) от 12.08.2018
-
-VA - The Official UK Top 40 Singles Chart 10.08.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - In My Feelings (03:39)
-02. George Ezra - Shotgun (03:22)
-03. DJ Khaled feat. Justin Bieber, Chance the Rapper & Quavo - No Brainer (04:26)
-04. Jonas Blue - Rise (feat. Jack & Jack) (03:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3990B6217989ECC5E82B785E58076829688E571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240374   (524538) от 12.08.2018
-
-VA - German Top 100 Single Charts 10.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524538.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Capital Bra - Melodien (feat. Juju)
-002. Dynoro & Gigi D'Agostino - In My Mind
-003. Bonez MC & RAF Camora - 500 PS
-004. El Profesor - Bella ciao (HUGEL Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48ACBE0E55D13DF417715C4CF65ED3FE9E8C83E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240561   (524534) от 12.08.2018
-
-VA - Record Super Chart 548 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & Showtek feat. Vassy - Your Love 3:06
-02. Lucas & Steve - Source 4:22
-03. Don Diablo feat. Paije - People Say 3:09
-04. Tom Walker - Leave A Light On (Radiology Remix) 4:15(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C36A2DCC36308754069DD2046892D6324E38885
 ```
 
 https://mybot314.ru/tekegram_catalog/

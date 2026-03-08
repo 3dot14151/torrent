@@ -1,3 +1,61 @@
+###  Публикация: 968966   (151126) от 25.12.2015
+
+Jens Buchert - Electronic Space Odyssey-Transcending Lounge Music (2009) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desert Taxi (04:24)
+ 02. Sanso Sheep (05:22)
+ 03. Jelly Fish (03:58)
+ 04. Wendy (04:48)(   Читать дальше...   )Жанр: Downtempo, Ambient |Продолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85CE4D33C70D675E6026DE66C42D4622599D4347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677406   (151117) от 17.11.2023
+
+David Guetta - Live @ DJ Mag Top 100 DJs Awards, Ibiza, Spain (2023-11-15) [MP3|320 Kbps] <House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta Epic House Set From An Ibiza Villa - Intro
+02. Dennis Ferrer - Hey Hey (David Guetta Remix)
+03. &ME & Black Coffee - The Rapture Pt.III w/Kings Of Tomorrow ft. Julie McKnight - Finally (Acappella)
+04. ID - ID w/Jack Back & CeCe Rogers - Freedom (Acappella)(   Читать дальше...   )Жанр: House, Melodic House, TechnoПродолжительность: 01:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97BCBECBA24093E975A879269A05466862AC5F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676962   (151023) от 17.11.2023
 
 VA - Clubhits Top 200 Vol. 13 (2019) [FLAC|Lossless|tracks] <Club, Future House>
@@ -682,64 +740,6 @@ VA - Kyau & Albert Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CC7E836533910E654694C346F25C1A30587016E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434737   (149471) от 25.12.2020
-
-VA - Nitrous Oxide Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nitrous Oxide; Aneym - Follow You (Extended Mix) (6:48)
-02. Above & Beyond; Andy Moor - Air For Life (Extended Mix) (8:02)
-03. Above & Beyond; Zoë Johnston - You Got To Go (Kyau & Albert Extended Mix) (6:47)
-04. Nitrous Oxide - Magenta (Extended Mix) (7:17)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66AA3C68EA286D6E8CEEE000F8F87AE41C1E5950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677929   (149413) от 19.11.2023
-
-Symphony of Unity - Live @ Atmosphere Stage, Tomorrowland, Belgium (2023-07-29) [MP3|320 Kbps] <EDM, Various>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - Tomorrowland Hymn (Live Orchestal Version)
-02. Kölsch - Grey (Live Orchestal Version)
-03. Joris Voorn - Ringo (Live Orchestal Version)
-04. Swedish House Mafia ft. John Martin - Don't You Worry Child (Live Orchestal Version)(   Читать дальше...   )Жанр: EDM, VariousПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1822EC4997EC58B910FC45694CF2222F7C66EE04
 ```
 
 https://mybot314.ru/tekegram_catalog/

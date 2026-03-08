@@ -1,3 +1,32 @@
+###  Публикация: 1611661   (1040523) от 14.02.2023
+
+VA - I Singoli di Sanremo 2023 (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elodie - Due
+ 02. Ultimo - Alba
+ 03. Colapesce Di martino - Splash
+ 04. Lazza - Cenere(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53CDE1F0B4B67E68B01CFD09C3DB45AB67DF307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438866   (1040379) от 11.01.2021
 
 Rauw Alejandro - Afrodisíaco / Afrodisiaco (2020) [FLAC|Lossless|tracks + .cue] <Latin, Pop>
@@ -715,35 +744,6 @@ VA - Calming Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8CCC301CC0C56664DABB54899436F2046958D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617221   (1035558) от 05.03.2023
-
-Various - Here It Is: A Tribute To Leonard Cohen (2022) [FLAC|Lossless|image + .cue] <Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продюсер Ларри Кляйн отдает дань уважения своему другу Леонарду Коэну, выпустив альбом, который представляет потрясающие новые исполнения композиций легендарного певца и автора песен в исполнении экстраординарного состава вокалистов.01. Norah Jones — Steer Your Way
-02. Peter Gabriel — Here It Is
-03. Gregory Porter — Suzanne
-04. Sarah McLachlan — Halleluja(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE33E170C44A58EBCD0961721604CA4946B0B9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

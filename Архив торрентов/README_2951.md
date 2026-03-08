@@ -1,258 +1,3 @@
-###  Публикация: 1173395   (390516) от 11.10.2017
-
-Wise Care 365 Pro 4.7.3.456  Portable by Baltagy  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02E043D1A492BDA2EB5F59A0A856D81BA0D5080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173333   (390478) от 11.10.2017
-
-RadioMaximus 2.20 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный инструмент для прослушивания и записи потокового аудио самых различных радиостанций мира. Захват звука возможен сразу с нескольких каналов, для этого пользователю предстоит настроить несколько несложных параметров. Записанные данные легко сохраняются в памяти вашего компьютера в одном из пяти доступных форматах (RAW, MP3, AAC, OGG, WMA).Язык интерфейса: русский , английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C294308223ED91197566D22B9E9A0E7655A8993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173383   (390466) от 11.10.2017
-
-Alex Leavon - Ogma (2017) (Singles)[MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ogma (Original Mix) (03:34)
-02. Ogma (Extended Mix) (06:10)Жанр: TranceПродолжительность: 00:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D07CCBE67409B00CFD83432F7DEA3106BBD588F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570686   (390459) от 05.11.2012
-
-VA - Motion Distant You (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia - Where Do We Begin (Andrew Rayel Remix) 07:30
- 02. Ralphie B - The Holy Grail (Original Mix) 09:19
- 03. Yigit & Jirihin - Rotundjere (Sawlead Remix) 06:13
- 04. Ayda - Legend (Original Mix) 08:39
- 05. Paul Van Dyk Feat Austin Leeds - Verano (Pvds Evolution Mix) 08:35
- 06. Bobina - The Space Track (Andrew Rayel Stadium Remix) 07:17
- 07. Craig Connelly - Robot Wars (Original Mix) 06:49
- 08. Wach Pres. Oussama Mlaouhia - Tunisia (Yigit & Jirihin Pres. Taurus Remix) 08:38
- 09. Bryan Kearney - Awaken (Original Mix) 08:24
- 10. Simon O'shine - Your Distant World (Orchestral Mix) 07:03Жанр: TranceПродолжительность: 02:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7FC1434B1A70FC1309386626E065BCEE09238D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569318   (390458) от 05.11.2012
-
-Nature Wallpapers (01.11.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248B1EB0E2964B74FAD1CDD5CAD87856AEBA8613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570237   (390454) от 05.11.2012
-
-[Wallpapers] Desktop Wallpapers Pack 21
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390454.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 21
-Название: Desktop Wallpapers Pack 21
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F5D3BE5E88030D6D2526EF7A009B16811A1426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570250   (390452) от 05.11.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 15
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1280х1024 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935C9995B999DEFF954C9BF6E9FD2249A3F48F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570113   (390443) от 05.11.2012
-
-Журнал | Аэропорт Пермь №11 [ноябрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390443.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Аэропорт Пермь» - популярный культурно-просветительский журнал для тех, кто любит небо и любит летать. В номере: «Соколы» в небе: 60 лет пермскому гарнизону ВВС и ПВО. Профессия «истребитель». Белый город в горсти океана. Аэропорты мира: Шарм-Эль-Шейх.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EDD6573CE23D9D7D6F245DBA1627BE2CFA40D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570471   (390441) от 05.11.2012
-
-Friction - Drum & Bass Show (Sub Focus Guestmix) (2012-11-04) [MP3|~209 kbps]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Brookes Brothers feat. Hazmat - Loveline	(04:19)
-02.	Rollz - Triple A	(04:30)
-03.	Monsta - Holdin' On (Skrillex & Nero Remix)	(03:45)
-04.	Optiv & BTK feat. Sam Wills - Understand	(04:53)
-05.	Enei - Centrifuge	(02:57)
-06.	Drum & Bass Show - Sub Focus in the studio	(06:24)
-07.	Etherwood - Give It Up	(05:27)
-08.	Lenzman - Broken Dreams (Makoto Remix)Жанр: Drum & BassПродолжительность: 01:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD80B0D7B31CC7F1B58D927DA56A280CB3B2706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173362   (390417) от 11.10.2017
 
 PopClip 1.5.8 [Multi/Ru]
@@ -716,6 +461,270 @@ Molly Hatchet - Regrinding The Axes (2012) [FLAC|Lossless]<Hard Rock/Southern Ro
 08 - Dreams I'll Never See
 09 - Melissa
 10 - Wild Horses(   Читать дальше...   )Жанр: Hard Rock/Southern RockПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570541   (390153) от 05.11.2012
+
+Г.Е.Сенкевич | Наглядный самоучитель работы на нетбуке [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга построена в форме иллюстрированных ответов на всевозможные вопросы, которые обычно возникают у начинающего пользователя нетбука. Рассмотрены настройка нетбука, основы работы в Windows 7, установка и использование популярных прикладных программ (антивирусов, архиваторов, переводчиков, гаджетов, бесплатных приложений Google и др.). Особое внимание уделено созданию сети и подключению к Интернету (по ADSL, GPRS, 3G/4G, Wi-MAX и выделенной линии). Продемонстрированы основы работы с браузерами Internet Explorer 8 и Opera, использование электронной почты, обмен сообщениями в ICQ и QIP, организация телефонных разговоров с помощью Skype. Описано подключение мобильного телефона и цифрового фотоаппарата. Показано, как слушать интернет-радио и музыку, смотреть фильмы и многое другое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADBD735CCB22A8201D40A96CB8D4C28E6879371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570378   (390142) от 05.11.2012
+
+VA - Electronic Rumors Volume 1 (2012) [MP3|256 кб/с]<Electronic, Italo-Disco, Disco, Electro, Synth-pop, New Wave>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanbot — Make Me, Break Me
+ 02. Fear Of Tigers — The Adventures Of Pippi Longstrump (Diamond Cut Remix)
+ 03. Queen Of Hearts — Where Are You Now (Stardone Radio Mix)
+ 04. Echoes — Second Best
+ 05. Ronika — Wiyoo
+ 06. Cosmonaut Grechko — All I Hear (Cosmo Black Remix)
+ 07. Ride The Universe — A Little Better (Feat. Jane Elizabeth Hanley)
+ 08. Substatic — Gold
+ 09. Lexicondon — December Sunset ( Keenhouse Remix)
+ 10. Shes The Queen — Waiting Game(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Disco, Electro, Synth-pop, New WaveПродолжительность: 01:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:431FBADF17D84CA6401924521F0B1D2ABA3DB387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570636   (390102) от 05.11.2012
+
+The Blues Brothers Дилогия [En] (RePack) 1993 | RG games/Pilotus
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_390102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений двух братьев Блюз.Тип издания: RePackЖанр: АркадаЯзык озвучки: АнглийскийЯзык субтитров: -/-Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570482   (390101) от 05.11.2012
+
+The Herbaliser - There Were Seven (2012) [MP3|320 кб/с]<Funk, Soul, Trip-Hop, Dub>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Return of the Seven
+ 02. The Lost Boy (feat Hannah Clive)
+ 03. Welcome to Extravagance
+ 04. Mother Dove
+ 05. Zero Hill (feat Twin Peaks)
+ 06. Take 'em On
+ 07. Sad State of Affairs (feat George the Poet)
+ 08. Setting Up
+ 09. Crimes and Misdemeanours (feat Twin Peaks)
+ 10. What You Asked For(   Читать дальше...   )Жанр: Funk, Soul, Trip-Hop, DubПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A1ECA179BE85D36131B14C2F386FB60C591483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570843   (390096) от 05.11.2012
+
+VueScan Pro 9.1.18 [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_390096.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, Microtek, Epson. Предусмотрено автоматическое удаление дефектов изображения за счет канала инфракрасного сканирования и многопроходное сканирование с последующим усреднением результата — для подавления собственных шумов сканера. Имеются фильтры подавления зерна, нерезкого маскирования и удаления паразитного оттенка оригинала. Есть средства ручной корректировки динамического диапазона и градационной характеристики (независимо по каналам R, G, B).
+
+(   Читать дальше...   )Название программы: VueScan ProЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570416   (390071) от 05.11.2012
+
+Zombie Zombie - Rituels d'un nouveau monde (2012) [MP3|320 kbps] <Electronic,Krautrock, Electro, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wisdom of Stone (Do You Believe in..?) (06:20)
+02. Illuminations (05:44)
+03. Rocket #9 (04:18)
+04. Watch the World from a Plane (06:38)
+05. Forêt vierge (06:35)
+06. L'âge d'or (07:40)
+07. Black Paradise (06:21)
+08. The Beach (New Order Cover) (04:25)Жанр: ElectronicПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F40340648A565C820C8CD74A414007F800C811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570495   (390066) от 05.11.2012
+
+Межиздательская серия «Женщина-миф» [1995-2000; 2010-...] [FB2, PDF, DOC]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия издавалась в 1995-2000 гг. издательствами «Русич», «Олимп», «Прогресс», «Аурика», «Феникс». Возобновлена в 2010 году.
+
+ Повествует о судьбах известных женщин.Формат: FB2, PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B1599334C734F7FF975662B37331437A3E5A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570574   (390063) от 05.11.2012
+
+Пол Теру | Старый патагонский экспресс [2012] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый патагонский экспресс - это множество пугающих и опасных тайн двух континентов в книге Пола Теру, профессионального путешественника с мировым именем, автора сценариев к популярным фильмам "Святой Джек", "Рождественский снег", "Берег Москитов" с Гаррисоном Фордом, "Улица полумесяца", "Китайская шкатулка".
+"Старый патагонский экспресс" - один из его нашумевших бестселлеров, завораживающее своей неподкупностью описание приключений романтика-одиночки, не побоявшегося купить билет и сесть на поезд, чтобы оказаться на краю земли.Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93047919AE34E9085BCCC5CB351105C31709EFA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570797   (390060) от 05.11.2012
+
+Data Flow Accelerator 4.5.3.35 Alpha [Русский, Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_390060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Data Flow Accelerator - менеджер обмена данных, программа для закачки и раздачи файлов с использованием распространённых в интернете протоколов передачи данных (Bittorrent, HTTP, HTTPS).Название программы: Data Flow AcceleratorЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,61 @@
+###  Публикация: 1625603   (255299) от 11.04.2023
+
+VA - Mega Hits 2015 (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn - Ain't Nobody (Loves Me Better)
+02. Avicii - Waiting For Love
+03. Justin Bieber - Sorry
+04. The Weeknd - Can't Feel My Face(   Читать дальше...   )Жанр: PopПродолжительность: 03:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710D2E62EDECEB13BA818FC24F67897F97B20529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626319   (255197) от 14.04.2023
+
+VA - Soul Collected (2023) [MP3|320 Kbps] <Soul, Funk, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marlena Shaw - California Soul
+02. James Brown - The Payback, Part I
+03. Minnie Riperton - Inside My Love (Remastered 1993)
+04. Marvin Gaye - What's Going On(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EF62F1D71D470F03685C2A9C29BEFA31327BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626338   (255191) от 14.04.2023
 
 VLNY - Меня здесь нет (2023) [MP3|320 Kbps] <Indie Pop, Synth Pop>
@@ -704,64 +762,6 @@ VA - 80s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E07D45672BD6CC73C4D1865E2AC7E142BE80D7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835130   (250572) от 05.11.2025
-
-VA - 90s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cher - Believe (3:58)
-02. THE GOO GOO DOLLS - Iris (4:49)
-03. Big Mountain - Baby, I Love Your Way (4:29)
-04. Diddy - I’ll Be Missing You (feat. Faith Evans & 112) (5:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F20E005ABFFD0B6D9A5C0E0DBD1DE541B40B9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833270   (250471) от 04.11.2025
-
-Lily Allen - West End Girl (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock, Electropop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West End Girl (4:06)
-02. Ruminating (3:27)
-03. Sleepwalking (2:57)
-04. Tennis (2:31)(   Читать дальше...   )Жанр: Pop-Rock, ElectropopПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F55FF2074A3026E439175669B4DA5B32FC7D430
 ```
 
 https://mybot314.ru/tekegram_catalog/

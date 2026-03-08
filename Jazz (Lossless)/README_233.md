@@ -1,3 +1,32 @@
+###  Публикация: 1267552   (265078) от 08.12.2018
+
+George Benson - The Best Of  George Benson (1989) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265078.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. California Dreamin'
+2. The Gentle Rain
+3. Theme From Good King Bad
+4. Take Five(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641510C2263BF143EE68D4B389118AED5D9D168E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339811   (264704) от 21.11.2019
 
 Johnny Hodges - Three Classic Albums Plus 1952 - 1958 (2011) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -717,35 +746,6 @@ Brian Culbertson — американский джазовый пианист, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCCC91114C66BC1B5D8589A25EDE0B8D60E74677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340562   (263629) от 24.11.2019
-
-Bud Powell Trio - Bouncing With Bud 1962 (1997) Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rifftide [4:16]
-02. Bouncing with Bud [6:01]
-03. Move [5:00]
-04. The Best Thing for You [6:01](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE25484DDBD2034DED1827F3C3692E10BDAF0CF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

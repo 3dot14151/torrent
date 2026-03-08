@@ -1,3 +1,61 @@
+###  Публикация: 1436432   (137083) от 31.12.2020
+
+BELLATRIX - Lost In Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Italo-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air Touch (6:29)
+02. Power Quality (6:05)
+03. Sky Expedition (6:47)
+04. Lost In Space (6:16)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, Italo-DiscoПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B13B6CCE8692345721E63AA3682ECD1F05E0E2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824488   (136970) от 15.10.2025
+
+FaraoN - 20 Hits Dance Music Collection (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sines Moon 03:34
+02. Open Ocean 06:26
+03. Summer 06:42
+04. How It Feels 03:40(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BFAEEF994BDF71DF8DB3A069FC08C00A2CC41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825191   (136795) от 16.10.2025
 
 VA - A State of Trance - Classics Top 10, Vol. 6 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
@@ -722,64 +780,6 @@ Skysurfer - Chill to the Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7442EE7CFE9DAE866077F8BDE148330976BD8A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679051   (134181) от 29.11.2023
-
-Infected Mushroom - Part of the Dream (2023) [MP3|320 Kbps] <Psy-Trance, Electro-House>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134181.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Infected Mushroom & Skazi - I Wish (Skazi edit) 04:48
-2. Omiki, Skazi & Lynn - Stay 03:40 (radio edit)
-3. Vini Vici - Damage 02:57 (radio edit)
-4. Blazy & Kathy Brauer - Hologram 07:39(   Читать дальше...   )Жанр: Psy-Trance, Electro-HouseПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA346AB53615DDBB44B215689F369BB291CA7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680725   (133839) от 30.11.2023
-
-Hiholl - Illusion Of Life.Lost Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, dark ambient, neoclassic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Is A Straight Way To Death [00:02:01]
-02. Echoes Of Departed Souls [00:04:39]
-03. Imminence [00:03:20]
-04. Masks Of Death Under The Gleam Of A Burning Sun [00:04:30](   Читать дальше...   )Жанр: Ambient, dark-ambient, neoclassicПродолжительность: 00:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2FA51F375D92802EED625A96D517490E56EC425
 ```
 
 https://mybot314.ru/tekegram_catalog/

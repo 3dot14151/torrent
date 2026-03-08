@@ -1,3 +1,64 @@
+###  Публикация: 617710   (971737) от 12.02.2013
+
+C.C. Catch - 25th Anniversary Box 5CD (1986-1990) /2011, Klub80 Records Remastered/ [FLAC|Lossless]<Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Disco, Euro-DiscoПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615349   (971660) от 12.02.2013
+
+ВИА Веселые ребята - Антология 1969-1988 (6CD) (2010) [MP3|320 кб/с]<поп, ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск 11. Пришла пора (В.Добрынин - Л.Дербенёв)
+2. Треугольник (В.Добрынин - Л.Рубальская)
+3. Чашка чая (В.Добрынин - М.Рябинин)
+4. Солёное море (И.Словесник - И.Шаферан)
+5. Розовые розы (П.Слободкин - Н.Просторова)
+6. Девушка с обложки (П.Слободкин - Н.Просторова)
+7. На Канарских островах (Т.Ефимов - Д.Усманов)
+8. Пустыня (В.Добрынин - М.Рябинин)
+9. Прогноз погоды (В.Матецкий - И.Кохановский)
+10. Звездочёт (П.Слободкин - Н.Пляцковская)(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824FA7BAE7561546BC1C854B71CDD2BC898C9E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975970   (970818) от 16.01.2016
 
 Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
@@ -687,62 +748,6 @@ VA - 2008 Grammy Nominees (2008) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9310E7184CF2AD91510EFA8764C1349B2F62AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977042   (967746) от 19.01.2016
-
-VA - Miamibiza Hits 2014 (2014) [FLAC|Lossless|tracks + .cue] <Dance, Pop, Latino>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gusttavo Lima - Balada (3:25)
-02. Jack Holiday & B-Case - Feel It! (Radio Mix)Жанр: Dance, Pop, LatinoПродолжительность: 01:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F062DF7E7DA79C5C69048B53DB24B20DEA629E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976905   (967710) от 19.01.2016
-
-VA - Divas of Dance, Vol. 4 (2004) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narcotic Thrust - I Like It (3:06)
-02. Katrina - Sunshine (4:30)
-03. Soul Sistas - I'm Watching You (4:52)
-04. Clueless feat.Donna - Last Dance (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 1:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968D4A651CE9BE801FC5645E7E800C6039167888
 ```
 
 https://mybot314.ru/tekegram_catalog/

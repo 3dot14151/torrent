@@ -1,3 +1,32 @@
+###  Публикация: 1271440   (148693) от 24.12.2018
+
+VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adios Muchachos ( Louis Ferrari )
+02. Suave Milonga ( Louis Ferrari )
+03. Viajes ( Louis Camblor )
+04. La Vuelta Del Tango ( Louis Camblor )(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 01:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F83BC587A9C0A3508085358FA0B05FEFB8F2E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271421   (148556) от 24.12.2018
 
 VA - Simply Accordeon (2013) 4CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
@@ -716,35 +745,6 @@ Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F68E488CD0EAA05C9F4634FD1F7E313D2F08E4EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519970   (145163) от 26.12.2021
-
-Richard Clayderman - Love Letters Friends & Family (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballade pour Adeline
-02. Un Amour Sans Fin
-03. I Just Called to Say I Love You
-04. You Are the Sunshine of My Life(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D89C4126B1A9544DCE944EBF0925A2DA5BDD84
 ```
 
 https://mybot314.ru/tekegram_catalog/

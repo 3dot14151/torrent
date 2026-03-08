@@ -1,3 +1,59 @@
+###  Публикация: 872750   (870117) от 27.02.2015
+
+Blue Foundation - 6 Albums, 9 Singles & EP (2000-2011) [MP3|128-320 кб/с]<Trip-hop, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Albums:
+2000 - Wiseguy & HollywoodЖанр: Trip-hop, DowntempoПродолжительность: 07:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08473DDA7CB391C8EE8EA5D58F61305360A44F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496891   (869931) от 19.09.2021
+
+Charlotte de Witte - BBC Radio 1 Essential Mix (2021-09-18) [MP3|~245 Kbps (V0)] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shiffer - Memento
+02. Charlotte de Witte - Ensemble
+03. Vinicius Honorio - Erasure
+04. Inox Traxx - Jump(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F38614652A2C13E320A9D6E04FDF7FE3E6C610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496810   (869925) от 19.09.2021
 
 VA - Best Fall Hits For Aerobic & Cardio 2021 [MP3|320 Kbps] <House, Dance>
@@ -682,64 +738,6 @@ VA - Ibiza Forecast (2017) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C2B2C0CBCF4B1498633C202F78CE996F3723E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107169   (868241) от 22.02.2017
-
-VA - Fitness Addicted (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel W - Before This Song! 05:01
-02. Patrizio Mattei - The Same Key (Massimo Voci Remix) 08:26
-03. Maria Edesse - Acidose 06:40
-04. Saed Redzic - Background Noise 06:19(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF952D0F074C4068F9D9638E007EF83643A13707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107232   (868231) от 22.02.2017
-
-VA - We Love Funky by Miguel Vizcaino (2016) [FLAC|Lossless|image + .cue] <House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zo! - We Are On The Move (Joey Negro & Dave Lee Remix) (04:56)
-02. Corduroy Mavericks feat. Soledrifter - True Love (Soledrifter Remix) (04:02)
-03. Dr Packer - Bizarre Love (04:47)
-04. Paul Mad - Believe in Love (Deep Beep Records) (06:26)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46FEBFA009B6AFCA5DFB020425DF0B81638E3E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

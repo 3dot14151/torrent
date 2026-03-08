@@ -1,3 +1,32 @@
+###  Публикация: 1025541   (710108) от 12.06.2016
+
+VA - Daybreak Sessions 2016 By Tomorrowland (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Daybreak Sessions 2016 (Continuous Mix 1) [1:12:57]
+02. DJ Mix - Daybreak Sessions 2016 (Continuous Mix 2) [1:16:02]
+03. Lopezhouse feat. Angela - Crosses and Angels [7:49]
+04. G Club Presents Banda Sonora - Guitarra G (Martijn Ten Velden 2015 Mix) [8:24](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 05:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E55517FFE07CC5A0AD94BC294EB6EC2B3896AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219848   (710050) от 16.04.2018
 
 VA - Deep House Ladies Night (2018) [MP3|320 Kbps] <Deep House>
@@ -723,35 +752,6 @@ VA - Deep House Session (Vol. 2) (2018) [MP3|320 Kbps] <Deep House, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C98FD613FEDBFA613211EF163EF845EF002719AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026226   (706054) от 14.06.2016
-
-VA - Trip to Ibiza 2014 - House Set For V.I.P (2016) [MP3|256-320 кб/с] <Techno-House, Funky-House, Deep-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Grey - Sparta  06:16
-02. Ben Teufel - Gran Cassa  08:40
-03. Coyu - Balls (original mix)  06:49
-04. 2Lovers - So Good (radio edit)  04:18(   Читать дальше...   )Жанр: Techno-House, Funky-House, Deep-HouseПродолжительность: 06:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2251AC19B49988F0BA82BE3CD5F51430C9EB94DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

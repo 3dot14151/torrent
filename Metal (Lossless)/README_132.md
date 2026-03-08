@@ -1,3 +1,90 @@
+###  Публикация: 1312548   (532667) от 04.07.2019
+
+Behemoth - Conjuration (2003) EP [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conjuration ov Sleep Daemons (3:25)
+ 02. Wish (3:38)
+ 03. Welcome to Hell (3:15)
+ 04. Christians to the Lions (Live) (3:50)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1A41002B01EDACA7991C7E3E3910E47CF25500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558250   (532045) от 20.06.2022
+
+Hate - Morphosis (2008) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Metamorphosis			00:30
+02.	Thredony				05:53
+03.	Immum Coeli (Everlasting World)	04:47
+04.	Catharsis				05:31(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48D1B116CE91BC9DE467CBE9FED7EE0413B1070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558374   (531775) от 20.06.2022
+
+Kreator - Hate Uber Alles (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergio Corbucci Is Dead
+02. Hate Uber Alles
+03. Killer Of Jesus
+04. Crush The Tyrants(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DA58B50B7513D65902589B00FCEC8BD2699E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155436   (531690) от 04.08.2017
 
 Vanden Plas - Christ 0 (2006) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -658,93 +745,6 @@ Pater Tenebrarum - Of Gods and Madmen (2022) [FLAC|Lossless|WEB-DL|tracks] <Melo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80FEA0E9C46D004122128A6317080188BC094BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559120   (527195) от 24.06.2022
-
-Pagan Rites - Embrace the Torments of Hell (2010) [FLAC|Lossless|image + .cue] <Black, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Int(r)o the Gates of Obscurity (05:13)
-02. Praise Hell Satan (02:23)
-03. The Horned Immortal (04:28)
-04. Die In Peace... Arise in Chaos (02:10)(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60AB75EA84B4F04BD3D86ED1A421E6DDE8162D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559049   (527192) от 24.06.2022
-
-Cân Bardd (Can Bardd) - Devoured by the Oak (2021) Limited edition [FLAC|Lossless|image + .cue] <Epic Black metal, Folk metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527192.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Echoes of the Moss (05:02)
-2.Une couronne de branches (10:31)
-3.Devoured by the Oak Pt.I  (08:34)
-4.Devoured by the Oak Pt.II (08:50)(   Читать дальше...   )Жанр: Athmospheric/Epic Black metal, Folk metalПродолжительность: 57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07A72B247D1945059CD92D6E8FFC81D56C081B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559028   (527186) от 24.06.2022
-
-Sinsid - In Victory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Northern March (Intro) (2:13)
-02. Iron Heart (5:24)
-03. Metalheads (4:11)
-04. Secret of the Beast (4:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA0C86DEBEAFF3282E3CC5097880F8669F09EDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

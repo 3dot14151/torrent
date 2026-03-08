@@ -1,3 +1,59 @@
+###  Публикация: 1192690   (262841) от 18.12.2017
+
+VA - Extrema Global Music Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiroki Nagamine - Eien (Radio Edit)
+02. 4 Seas - Sagra (Radio Edit)
+03. Peter Martijn Wijnia - Carpe Diem (Temple One Remix Edit)
+04. Mike Sanders - Love Your Life (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1DBE19C68F43D36D02F7D6F5572B8C89131E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192602   (262830) от 18.12.2017
+
+Zach H (Apparent Symmetry, Synthetic Void, Script, Vs. Artificial Intelligence) - Discography 14 Releases (2003-2016) [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, EBM, Ambient, Abstract, Tech ...
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1n_f3C7 (07:40)
+ 02. LA_3r-473 (05:31)Тип издания: WEBЖанр: IDM, Industrial, EBM, Ambient, Abstract, Techno, Glitch, Downtempo •Продолжительность: 00:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7EEE724FB60B3D8ED3382F188E16DA80A23F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192780   (262746) от 18.12.2017
 
 Physical Dreams - The Spirit Of Nature (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
@@ -687,64 +743,6 @@ VA - The Rise of the Synths (Official Companion Album) LP (2017) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72A4127BFD24C36D64D1AA4C529F33CD09AD403B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193424   (262147) от 21.12.2017
-
-VA - Best of Afterworld (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Men-D - Vine napoi (Original Mix)
-02. Eric Maes - Circular Time (Original Mix)
-03. Zirenz, Men-D - Valhalla (Original Mix)
-04. NRGFactory - Behind the Light (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAD17359A3EFB3621687EDEDC2BF658A701BE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193604   (262146) от 21.12.2017
-
-VA - Subculture - The Singles (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Denton – Curtain Call (Original Mix)
-02. Bryan Kearney – Adrenaline (Original Mix)
-03. Craig Connelly & Jessica Lawrence – How Can I (John O'Callaghan Extended Remix)
-04. Cold Blue – Once in Time (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B367CC838795F3C17E4F07C1BEFD36F781BF608C
 ```
 
 https://mybot314.ru/tekegram_catalog/

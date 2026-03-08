@@ -1,3 +1,119 @@
+###  Публикация: 1692391   (122578) от 16.01.2024
+
+VA - Music News vol.331 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122578.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kalashnikova - Девочка, Не Плачь (03:16)
+ 002. 6IX9INE - Buddy (02:08)
+ 003. 6IX9INE - Fah (02:04)
+ 004. 6IX9INE - G Lock (01:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950FD51CB2700FE64A31D19D5ACF76A9A44D8031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692950   (122209) от 18.01.2024
+
+VA - Heart Beats (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122209.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tokimonsta, Morgxn - Loved By U (3:27)
+002. The Magician - Love On You (feat. Griff Clawson) (2:50)
+003. The Blaze - MADLY (4:09)
+004. Surf Mesa & Selah Sol - City Of Love (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D135E46B1ABD19550E3AC60BEBC4B9C274461AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693092   (122087) от 19.01.2024
+
+VA - Mega Hits 2024 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122087.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ariana Grande - yes, and (3:35)
+002. Dua Lipa - Houdini (3:05)
+003. Taylor Swift - Anti-Hero (3:20)
+004. Lizot - This Is The Life (2:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E842CF58DB2F072EBDBC91A95AA2B0EED5A34F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693143   (122072) от 19.01.2024
+
+VA - Music News vol.332 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122072.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zara Larsson - You Love Who You Love (03:06)
+ 002. 5УТРА - Не Повезло (02:22)
+ 003. Adam Ulanicki - Rumors (02:54)
+ 004. A'DI - Белый Снег (02:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7433AD323C111183EF9ED2D30D6BAEA5B4294CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693294   (121939) от 20.01.2024
 
 VA - ЕвроХит Топ 40 Europa Plus 19.01.2024 [MP3|320 Kbps] <Pop, Dance>
@@ -629,122 +745,6 @@ VA - Ukrainian Songs (2024) [MP3|320 Kbps] <Pop, Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29E837A22835E5691D1DBD9BEAC8D686604ABF75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702346   (115891) от 24.02.2024
-
-VA - Music News vol.345 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115891.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mylene Farmer & Feder - Desenchantee Remix (Radio Edit) (04:21)
- 002. Aidar BMM - Маятник (02:41)
- 003. Alok feat. Mondello' G & Ceres & Tribbs - Let's Get Fkd Up (Poylow Remix) (02:16)
- 004. ALON - Снег (02:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E29B18510F800B252F18385FA6FA7AC646550B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702501   (115740) от 25.02.2024
-
-VA - ЕвроХит Топ 40 Europa Plus 23.02.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teddy Swims - Lose Control (3:30)
-02. Tate McRae - Greedy (2:11)
-03. Моя Мишель - Ветер меняет направление (2:46)
-04. Sarah De Warren feat. Charming Horses & Hanno - This Is The Life (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0AC50B710EE39AF4FBD948D50505953A1446B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316535   (115658) от 26.02.2024
-
-VA - Понемногу отовсюду by Yuridar #C (1958-2021) Compilation Album [MP3|192-320 Kbps] <Rock, Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carmen Linares - El Que se Tenga por Grande
-02. Carmen McRae - When I Fall in Love
-03. Caro Emerald - The Wonderfull in You
-04. Caro Emerald - Whatchugot(   Читать дальше...   )Жанр: Rock, Blues, OtherПродолжительность: 07:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF02D4FCF5303FF817B4EFA57C5AA340BD90114B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703447   (115039) от 29.02.2024
-
-VA - Music News vol.346 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115039.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Семенович - Гладиолусы (03:08)
- 002. Aden Foyer - Hello Radio (03:01)
- 003. Adon Mix feat. Пошлый - Але, Малая (02:03)
- 004. AGAYAN - Набери (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DB13825869D43B88D38DD0E3AED3CA04B668EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

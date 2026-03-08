@@ -1,3 +1,32 @@
+###  Публикация: 1706349   (113619) от 12.03.2024
+
+Oscar Peterson - Con Alma: Live in Lugano (1964) 2023, Mack Avenue [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waltz for Debby [7:23]
+02. My One and Only Love [6:04]
+03. Blues for My Landlady [11:02]
+04. Con Alma [6:27](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD4D0C7BCC84A30993D85E652DB8FF5C2F00E37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706355   (113613) от 12.03.2024
 
 Sonny Stitt - Tune-Up! (1972) 1993, Muse Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -716,35 +745,6 @@ Wes Montgomery & Wynton Kelly Trio - Maximum Swing: The Unissued Half Note Recor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1818C494D41B5DD30C069C24852B8A87B896EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707280   (113272) от 17.03.2024
-
-Gene Austin - Collection (1920s-1950s) (2011-2014) 2CD [FLAC|Lossless|WEB-DL|tracks] <Jazz, pop, vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonesome Road (2:00)
-02. Ramona (3:07)
-03. I Can't Give You Anything but Love (2:27)
-04. Girl of My Dreams (2:54)(   Читать дальше...   )Жанр: Jazz, swing, traditional pop, vocalПродолжительность: 02:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21A1D38FE3A7439873A3E68C65B4F5E91AF451E
 ```
 
 https://mybot314.ru/tekegram_catalog/

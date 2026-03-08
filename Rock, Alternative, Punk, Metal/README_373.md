@@ -1,32 +1,3 @@
-###  Публикация: 1401697   (707803) от 11.08.2020
-
-Mattias Ohlsson Project - Illumination (2020) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Dark Night (02:35)
- 02. Inferno Within (05:20)
- 03. Wasteland (06:17)
- 04. Introspection (00:56)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75F351062147E7CD6CD2F351FB8E292AAD10F66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 209440   (707726) от 13.06.2010
 
 Russ Ballard - 13 альбомов (1974-2006) [MP3|128-320 kbps] <Classic Rock / Progressive Rock>
@@ -751,6 +722,35 @@ Simplekind - Goodbye to Yesterday (2022) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06C08139CA2F1BADF9E271125C806ADEC26CDA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286774   (707158) от 05.03.2019
+
+Simple Plan - No Pads, No Helmets...Just Balls (2002) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707158.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	I'd Do Anything 	3:17
+2 	The Worst Day Ever 	3:27
+3 	You Don't Mean Anything 	2:28
+4 	I'm Just A Kid 	3:18(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A67CB1EB5BFFF74C684C98E6582FA35F396AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

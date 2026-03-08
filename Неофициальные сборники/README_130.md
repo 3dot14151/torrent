@@ -1,3 +1,176 @@
+###  Публикация: 876751   (850516) от 10.03.2015
+
+VA - Rock. Blues. Drive! (2015) 4CD [MP3|320 кб/с]<Hard Rock, Classic Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850516.jpg" />
+</div>
+
+
+###  Подробнее
+
+56. Larry Miller - Our Time Is Coming
+57. S.O.T.O. - The Fall
+58. Joanne Shaw Taylor - Wicked Soul
+59. Sweet & Lynch - Hero-Zero(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues RockПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C625E936284F8699F7451762ECEEAD65DD4FC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002041   (850464) от 30.03.2016
+
+VA - New Era Drum And Bass (2016) [MP3|320 кб/с] <Drum And Bass, Dubstep, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850464.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fil Enzo - Aroma (Original Mix) 05:10
+002. Prolix - Nature Of Reality 04:20
+003. NOJESUS - Bagga 04:17
+004. Spyre - Edge of Tomorrow (Original Mix) 05:34(   Читать дальше...   )Жанр: Drum And Bass, Dubstep, JungleПродолжительность: 07:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2863F706B6D9406B7E893453C65222A0088B9AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111092   (850427) от 04.03.2017
+
+VA - Beatport Trance Pack (04.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Giuseppe Ottaviani - Loneliest Night (feat. Tricia McTeague) (OnAir Mix)  6:59
+02.  Qpolit - Silence (Original Mix)  6:14
+03.  Wearealienss - Polar (Radio Cut)  3:08
+04.  Cold Blue - Fall Into Dusk  6:49(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 03:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698CF2DC936FFF82CC6F2CA15A437D82E2B515BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001923   (850400) от 30.03.2016
+
+Va - Весенний Союз (2016) [MP3|256 кб/с] <Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850400.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алла Костина Feat. Total — Не Я 03:33
+002. Dj Fenix Feat. Mila Kulikova — Я & Ты 03:43
+003. Mseven — Танцуй В Темноте 03:37
+004. Arti — Параллели 03:40(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1302285B3EC217BEF922FB4036A0FC236F5E9E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002028   (850397) от 30.03.2016
+
+VA - Moonlight In July: Relax Edition (2016) [MP3|320 кб/с] <Downtempo, Chillout, Chillstep, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850397.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pattern Mixer - Sex at the Beach - Dowbeat Buddha Chill and Tandra Mix 04:07
+002. Alex Pardini - Spectre (Electronic Mix) 03:57
+003. Sound Of Joy - I've Been Watching You - A Squared Theory Dub Mix 07:04
+004. Lesamoor, Oscar Remington - And if I (ft Bibi Provence) 05:08(   Читать дальше...   )Жанр: Downtempo, Chillout, Chillstep, LoungeПродолжительность: 10:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A594BA760CBF2BD54CE46FEBA6EE4B5EEC9DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110948   (850110) от 04.03.2017
+
+B.B. King - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Chicago Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Early In The Morning
+02. If You Love Me
+03. When It All Comes DownЖанр: Blues, Chicago BluesПродолжительность: 04:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAAE0365C7F4EC88BA6143683E93FBC4B9C36D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377878   (850096) от 23.04.2020
 
 VA - Beatport Club Techno: Sound Pack #67 (2020) [MP3|320 Kbps] <Tech House, Techno, Club, Dance>
@@ -572,180 +745,6 @@ VA - Зимние лучшие блатные песни. Версия № 10 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98847AE39FE243463186886185E3646171E9A74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111338   (848769) от 05.03.2017
-
-VA - Молодежный хитовый бум. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848769.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Неангелы - Сережа 3:14
-002. Smile - Наш Саунд 3:15
-003. Vikki - Помолчим 3:16
-004. Volkonsky - Болен Тобой 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA337D7E1DD0D39B2AE7F89D9440616F1E1C0DCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111335   (848674) от 05.03.2017
-
-VA - Только хиты. Русский попсовый сборник от Хит fm выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848674.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дарья Кумпаньенко - Полюби Меня Сильно 3:20
-002. Dельфина - Текила И Соль 3:20
-003. Alex 67 - Сумасшедшая 3:18
-004. Tiger Family - Нравится Мне 3:03(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D484B883F799F6E897F19EB8B1D713BD2124873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110957   (848664) от 05.03.2017
-
-VA - German TOP 100 Single Charts 03.03.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848664.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran – Shape of You
-002. Zayn Taylor Swift – I Don’t Wanna Live Forever (Fifty Shades Darker)
-003. Kygo Selena Gomez – It Ain’t Me
-004. The Chainsmokers Coldplay – Something Just Like This(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A92CCB0FA277B369459357143BF2046EE6CD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770767   (848663) от 26.03.2014
-
-Бьянка - Музыка (2014) [MP3|320 кб/с]<R&B, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. НогамиРуками
-02. Я не отступлю
-03. Кроме любви
-04. Тише травы(   Читать дальше...   )Жанр: R&B, Hip-HopПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0660E3DA6CA36BEC197724C06DF89B1CA0205C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002289   (848603) от 31.03.2016
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 27 ) (2016) [MP3|320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maxx - Get A Way (John.E.S. Remix 2015) (4:19)
-02. Dj Bobo - Freedom (Gypnorion Remix) (3:02)
-03. Dj Rad Vs. Digital I - Move That Body (Original Mix) (4:33)
-04. Platinum Deejayz Feat. Slinkee Minx - Another Night (Nick Skitz & Technoposse Remix) (4:48)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 05:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D53185CC63795822D0A50A09BE637A2A7940ADB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111504   (848509) от 05.03.2017
-
-ВИА Гра - Mp3 Play (2014) [MP3|320 Kbps] <Pop, Europop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. У меня появился другой (feat. Вахтанг)
-02. Океан и три реки (feat. Веладзе Меладзе)
-03. Бомба
-04. Познакомься с моей мамой(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 03:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7D83BB1BDF63C7A799F8B202BDC6062D5696BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

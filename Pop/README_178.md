@@ -1,3 +1,61 @@
+###  Публикация: 1154570   (538949) от 31.07.2017
+
+ЕVгеника - Оптимистка (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оптимистка 3:44
+02. Бабы 3:47
+03. Мигалки 3:20
+04. Остров 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C8BDED8E5DE126B398ED2D10319FBCE234214C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239414   (538873) от 05.08.2018
+
+VA - New Italo Disco Top 25 Compilation Vol.9 (2018) [MP3|320 Kbps] <Italo-Disco, NuDisco, HiNRG, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limelight - Forever Lovers (Re-Tubed Radio) 4:29
+02. Angelico - Forever Love (Short New Generation Dance Mix) 4:04
+03. Ken Martina - Another Melody (Short NRG Mix) 4:39
+04. Tommy Sun - Dancers (Mega Short Dance Mix) 5:16(   Читать дальше...   )Жанр: Italo-Disco, NuDisco, HiNRG, DanceПродолжительность: 01:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A1F6519EE13AC6C8EB0BC393AB37516C5D4660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239491   (538446) от 05.08.2018
 
 KAZKA - КАРМА (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -687,64 +745,6 @@ Toto Cutugno - Дискография [61 CD] (1976-2010) [MP3|320 Kbps] <Pop, P
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926373   (535593) от 09.08.2015
-
-Iamdynamite - Wasa Tusa (2015) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be There (04:10)
-02. Stranger (04:11)
-03. In The Summer (04:10)
-04. My Love (04:21)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D410272EB96E189409C02FF9A000700535979E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558015   (535549) от 18.06.2022
-
-Дмитрий Маликов - Мы ещё встретимся (Синглы 2016-2022) (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535549.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мы ещё встретимся
-2. Здравствуй это я
-3. Научу тебя смеяться
-4. Не отпускай (feat. Юлия Началова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A15F37D10BA3FB003C2698E13C1517455AFC275
 ```
 
 https://mybot314.ru/tekegram_catalog/

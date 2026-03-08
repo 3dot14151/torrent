@@ -1,3 +1,61 @@
+###  Публикация: 1806285   (65386) от 12.07.2025
+
+Steve Angello - Live @ Ibiza Global Festival, Spain (2025-07-05) [MP3|320 Kbps] <Tech House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia ft. Sting - Redlight (Intro Edit)
+02. Steve Angello & Sebastian Ingrosso - Tear The Club Up
+03. Magnificence & Corey James ft. Rion S - Time Machine
+04. Yaro vs. Travis Scott & Kendrick Lamar vs. Zombie Nation & James Hype - Deep vs. Goosebumps vs. Kernkraft 400 (Axwell Mashup)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 01:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C6DA02612573EDE5EDE3B2FA6A0E77AE0D667F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806283   (65384) от 12.07.2025
+
+Markus Schulz - Global DJ Broadcast World Tour (Ciné Saigon, Vietnam) (2025-07-10) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kay D. Smith & Marc Tall - Hoipolloi (Ben Gold Remix)
+02. Zhu - Faded (HNTR Edit)
+03. Joy Orbinson - Flight FM (Danny Avila Remix)
+04. Anyma & Argy & Son Of Son - Voices In My Head(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 01:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C4F45AA86DDB67DE7895D7F58A2D044FCD0A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806410   (65380) от 12.07.2025
 
 VA - Black Hole Trance Music 07-25 (2025) [MP3|320 Kbps] <Trance>
@@ -683,64 +741,6 @@ VA - Ori Uplift - Uplifting Only Episode 650 (2025) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6732C5200EBD3E9A762EF031578D857E7665169C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806461   (64910) от 26.07.2025
-
-VA - Live @ Mainstage, Ultra Europe, Croatia (2025) [MP3|320 Kbps] <Trance, Techno, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren ft. JAI RYU – Let It Be For Love (Intro Edit)
-02. Travis Scott & Playboi Carti vs. Armin van Buuren & Omnia – FE!N vs. Love (Armin van Buuren Mashup)
-03. Armin van Buuren & The Stickmen Project – No Fun (ID Remix)
-04. Armin van Buuren & JOA – Heavy(   Читать дальше...   )Жанр: Trance, Techno, Tech HouseПродолжительность: 01:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D065EEC47C64E1AE914950454DF9106CB73F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808821   (64892) от 26.07.2025
-
-VA - Progressive Trance Awakening, Vol. 06 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Trance Ensemble & AFTERUS - Dark (Radio Edit) [3:44]
-02. Dreaman - Time That Cannot Be Returned (Radio Mix) [5:56]
-03. Steve Sunrise - In My Dreams (Original Mix) [5:38]
-04. Eddie Lung - Afterglow (Extended Mix) [4:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4118EFC86BBA64330F811921CEAEF0DFF106913D
 ```
 
 https://mybot314.ru/tekegram_catalog/

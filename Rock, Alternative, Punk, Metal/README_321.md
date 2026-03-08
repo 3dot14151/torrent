@@ -1,29 +1,3 @@
-###  Публикация: 1124921   (773194) от 13.04.2017
-
-Ляпис-98 - Брежнев (2017) Single [MP3|320 Kbps] <Ska Punk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок-супергруппа, проект Сергея Михалка. Создание коллектива планировалось ещё в 2010 году, однако он был образован только 14 апреля 2016 года участниками группы Brutto и бывшими участниками группы Ляпис Трубецкой. Музыканты исполняют старые хиты «Ляписа Трубецкого» 1990-х и начала 2000-х годов.1. БрежневЖанр: Ska Punk, RockПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC654AF4DD8388AB088AF3FD4037B5ABFA22C929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278173   (773180) от 24.01.2019
 
 Lorelle Meets The Obsolete - De Facto (2019) [FLAC|Lossless|tracks + .cue] <Dream Pop, Psychedelic Rock>
@@ -739,6 +713,35 @@ Miсhael Sсhenker - А Decade Оf The Mad Aхеmаn (2018) 2CD, Compilation, Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADEE7F7C3347574EB90610399103715437A14374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278364   (771827) от 25.01.2019
+
+Alice Merton - MINT (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Learn to Live (03:56)
+02. 2 Kids (03:31)
+03. No Roots (03:57)
+04. Funny Business (03:06)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5222F3ACD1F563A121EB512478E6919E98F1D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

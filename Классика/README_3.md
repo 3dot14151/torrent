@@ -1,3 +1,38 @@
+###  Публикация: 615196   (978417) от 07.02.2013
+
+Светлана Бережная - Орган - музыка релаксации (2002) [FLAC|Lossless]<Classical, Organ>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дж. Каччини - Ave Maria
+02. И. С. Бах - Хоральная прелюдия (Wer nur den lieben Gott lasst walten) BWV 642
+03. И. С. Бах - Пастораль BWV 590 (Часть первая Pastorella)
+04. И. С. Бах - Пастораль BWV 590 (Часть вторая Allemande)
+05. И. С. Бах - Пастораль BWV 590 (Часть третья Aria)
+06. И. С. Бах - Пастораль BWV 590 (Часть четвертая Gigue)
+07. Ф. Куперен - Tierce en Taille из Мессы №1
+08. И. С. Бах - Трио-соната №4 ми минор BWV 528 (Adagio. Vivace)
+09. И. С. Бах - Трио-соната №4 ми минор BWV 528 (Andante)
+10. И. С. Бах - Трио-соната №4 ми минор BWV 528 (Un poco allegro)(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE51C57CFAB758F53BF8E2CD409115EDC02519E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615037   (977309) от 08.02.2013
 
 Antonio Lucio Vivaldi- The 37 Bassoon Concertos: English Chamber Orchestra Daniel Smith 5CD (1986-1991) /1996, ASV [WavPack (iso.wv)|Lossless]<Chamber>
@@ -762,35 +797,6 @@ VA - 101 Classics: The Best Loved Classical Melodies (1998) 8CD [APE|image + .cu
 CD1: The great waltzes
 CD2: The romantic piano
 CD3: Mighty choruses(   Читать дальше...   )Жанр: ClassicПродолжительность: 09:00:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265060   (960859) от 20.01.2014
-
-VA - Новогодняя ночь (2008) Ридерз Дайджест 4CD [MP3|320 kbps] <Vocal, Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник мелодий и песен на тему "Новогодняя ночь" от Ридерз Дайджест.ТИХАЯ НОЧЬ
-01. Silent Night
-02. В лесу родилась елочка
-03. Lo, How a Rose E're Blooming(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 04:30:54
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,61 @@
+###  Публикация: 1079174   (296495) от 03.12.2016
+
+VA - Winter Opening Finest Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phase 3 – Evolution Of Space 03:40
+ 02. Rey Salinero – Conexiones 06:24
+ 03. Kevin Wellness – Dynamic Waves (Cut version) 01:32
+ 04. Jay Jay & The Snakes – Walking In The Sunshine 06:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F94AC9492733190B14CD1A2F48A762673A4064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079063   (296492) от 03.12.2016
+
+VA - Midnight Lounge Vol 12: Easy Lounge Living (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Tayla - Mizmar - Underscore (02:33)
+02. Frank Tayla - Talisman - Underscore (02:42)
+03. Frank Tayla - Dusk (02:50)
+04. Rick Kelly - Neon Blue (04:24)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE605794C63EBBF6CBEEA38AC9F6FA0F0E6C0E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079046   (296402) от 03.12.2016
 
 VA - Lounge Box Vol. 3 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -687,64 +745,6 @@ VA - Ori Uplift & Dj T.h. - Uplifting Only 249 (2017) [MP3|320 Kbps] <Trance, Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:727C882C8BDEC81A4D6E4F4ABD80446BE47B4121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184572   (295192) от 20.11.2017
-
-VA - Amsterdam Trance Sessions Vol.13 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deathmind - Inside (Original Mix)  7:46
-02.  Precious Affliction - Castle Of Glass (Original Mix)  7:54
-03.  Paul Denton - Zombie (Original Mix)  6:59
-04.  Shane Infinity - Heaven's Gate (Original Mix)  6:44(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0647FF64178819477377B3096DC065164274ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185206   (295179) от 20.11.2017
-
-Late Night Alumni - The Ghost (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo, Vocal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ghost (3:49)
- 02. Lovers (3:25)
- 03. Fight or Fly (5:04)
- 04. Can't Wait (4:03)(   Читать дальше...   )Жанр: House, Downtempo, VocalПродолжительность: 00:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027D576ACDEA2F4C3789300B126F760AD7A2AEA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

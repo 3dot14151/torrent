@@ -1,3 +1,32 @@
+###  Публикация: 1230269   (617195) от 11.06.2018
+
+BrunuhVille - Timeless (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timeless (03:13)
+02. Angel of War (04:42)
+03. Path to Queensgarden (05:36)
+04. Riverdel (03:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93426F683099212BAB604BE1BAD5C0CCD2E33784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523557   (617109) от 16.07.2012
 
 VA - Ethnic Voices - Navahos Dreams (2005) [MP3|320 кб/с]<Native American, Ethnic, New Age>
@@ -749,35 +778,6 @@ VA - Chillout Best Session (2008) [MP3|320 kbps]<Electronic, ChillOut, Ambient, 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545839   (611234) от 21.04.2022
-
-Faun - Pagan (2022) [MP3|320 Kbps] <Folk, Medieval>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611234.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Galdra
-2. Halloween
-3. Gwydion
-4. Wainamoinen(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3195FBE49930C2A89AF845AB9AA7017A2CFB09D
 ```
 
 https://mybot314.ru/tekegram_catalog/

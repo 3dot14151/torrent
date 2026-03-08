@@ -1,3 +1,58 @@
+###  Публикация: 1368082   (912234) от 18.03.2020
+
+Chris Oblivion - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Last Drops of A Waterfall (7:51)
+2. Hypnotic Dim Rays (8:34)
+3. All I Have (6:03)
+4. Chris Oblivion; Greg Staikos - Lost Frequencies (6:50)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E766CDC05058C4D2F4D5095E4B676B96120E2E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368139   (912221) от 18.03.2020
+
+K Ø Z L Ø V (K O Z L O V) - Coronavirus (2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coronavirus (Antidote) (05:40)Жанр: Techno, IndustrialПродолжительность: 00:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2F5179DA41E290C88724BD2B45567190C5E7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990383   (912183) от 25.02.2016
 
 VA - Frozen Time - 50 Cool Winter Chill Sounds (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -678,64 +733,6 @@ Millimetric - Reconfiguration (2011) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A3C094639010A57B8DDA74600DFF3FA62CD7490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990685   (910039) от 26.02.2016
-
-VA - Faith In A Wet Season (2012) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M. Ostermeier - Flying South (04:05)
-02. James Murray - Last Call (02:34)
-03. Nebulo - Rustles Vs Muscles (05:27)
-04. Strïe - Latent Hours (04:51)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCAF3B7E3AC599EBEEF0F3EFAF46F86DEE962A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990684   (910025) от 26.02.2016
-
-VA - Salvacion Ibiza (2003) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_910025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam La More - Takin' Hold (6:00)
-02. Demetreus - Better Love (5:50)
-03. Noferini & DJ Guy - A Sunny Day (5:19)
-04. Gaudino feat. Crystal Waters - Destination Unknown (5:05)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23976FCC2A27E61CB5EDCEF7AF1753C09480DC7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

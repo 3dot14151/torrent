@@ -1,3 +1,119 @@
+###  Публикация: 1021935   (730945) от 31.05.2016
+
+VA - Passion Dance Hit 90s (2016) [MP3|314-320 кб/с] <Electronic, Dance, Latin, Samba, Hard Trance, Euro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After 8 - Fly Away 04:39
+02. 20 Fingers & Roula - Lick It 04:22
+03. 365. Magic Affair - The Rhythm Makes You Wanna Dance 04:11
+04. Ace Of Base - Life Is A Flower 03:46(   Читать дальше...   )Жанр: Electronic, Dance, Latin, Samba, Hard Trance, Euro HouseПродолжительность: 06:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6E2E6072FE2E5181AD2962A735C7A8BA8B3E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127646   (730850) от 22.04.2017
+
+VA - Italo Disco Hits Vol.13 (2017) [MP3|192-320 Kbps] <Disco, Italo-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Siberian Heat - Magic Blue Eyes (Maxi Version)  8:37
+02.  Savage - Save Me (Flashback Remix)  6:42
+03.  Digital Emotion - Get Up, Do You Wanna Funk (Special Effects Mix)  4:46
+04.  Boris Zhivago - Love Is a Memory Away (Radio Russian Mix)  5:36(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 07:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBE446E6C2ADBBCE684032D63C1E472BD65F665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284218   (730052) от 20.02.2019
+
+VA - Beach Dance Classic Radio (2019) [MP3|320 Kbps] <Progressive, Deep, Techno House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730052.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Annibale Notaris - Hazy Bar Kal
+002. Emkii - Sunset Lover (Original Mix)
+003. Tim Dian - Hey (Original Mix)
+004. Charlie Cat - Funky Fuck(   Читать дальше...   )Жанр: Progressive, Deep, Techno HouseПродолжительность: 09:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FAF81F4BD6D03BE5F0A76697AE8F63922EDB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127915   (729969) от 23.04.2017
+
+VA - Chillout Hits Vol.7 (2017) [MP3|320 Kbps] <Chillout, Chillstep, Balearic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vladimir Sterzer - Chill Out Piano  4:46
+02.  Dreamweavers - Lovers Dub (Re-Mastered)  7:00
+03.  Marga Sol - Since You Are Gone  4:40
+04.  Jex - You (Original Mix)  3:46(   Читать дальше...   )Жанр: Chillout, Chillstep, BalearicПродолжительность: 06:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26B904CA2854D44B4E019CA380ADA44F2CD9B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021961   (729874) от 01.06.2016
 
 VA - Килобитный взрыв хитов - 6 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
@@ -629,121 +745,6 @@ VA - Dancefloor Everyday Mix (2017) [MP3|192-320 Kbps] <Progressive, Electro, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04C53037791CD022A313F6FCF183C0F1D0BAFC5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217984   (724733) от 08.04.2018
-
-ZODIAC - Reload (2017) Remix [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724733.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Reload
-2. DJ YASTREB
-3. Up MusicЖанр: Electro HouseПродолжительность: 00:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C3155BF67BD19387A904A002C243585BAB0C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023515   (724547) от 05.06.2016
-
-VA - 100% Proof Pop! Friction Hits (2016) [MP3|320 кб/с] <Gospel, Alternative, Country, Latin Urban, Synthpop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Flo Rida - That's What I Like (feat. Fitz) 03:16
-002. The Piano Guys - Kung Fu Piano: Cello Ascends 04:06
-003. Yandel - No Sales de Mi Mente (feat. Nicky Jam) 03:25
-004. Carrie Underwood - Choctaw County Affair 03:31(   Читать дальше...   )Жанр: Gospel, Alternative, Country, Latin Urban, SynthpopПродолжительность: 08:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397D6EC4C01FEFE0AC41A3CA46FDD4571BD5346C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128887   (724237) от 27.04.2017
-
-VA - Singles Chart Hot 100 Billboard (05 May) (2017) [MP3|320 Kbps] <Pop, Rap, Soul, R&B, Alternative, Bro-Country, Dancehall>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724237.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Kendrick Lamar - Humble  2:58
-002.  Ed Sheeran - Shape Of You  3:54
-003.  Luis Fonsi feat. Daddy Yankee - Despacito  3:48
-004.  The Chainsmokers & Coldplay - Something Just Like This  4:08(   Читать дальше...   )Жанр: Pop, Rap, Soul, R&B, Alternative, Bro-Country, DancehallПродолжительность: 06:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B64963DBFEEAE437CFD273D4FDEBA69505B4213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129182   (724224) от 27.04.2017
-
-VA - Music for Your Car Vol.3 (2017) [MP3|320 Kbps] <Club , Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724224.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abramo & DJ Lacros - U Know Y (Original Mix) 3:01
-002. Adam De Great - Pretty Sick (Original Mix) 3:19
-003. Aleo - Hospital (Original Mix) 6:41
-004. Aleo - Sex Orgazm (Original Mix) 4:26(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 07:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F77C8D08AEFD5A1401447F782C1D5CACC8DACFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

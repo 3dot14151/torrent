@@ -1,3 +1,32 @@
+###  Публикация: 327808   (718731) от 05.08.2020
+
+Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] <Instrumental, crossover>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter 		 - Vivaldi	(05:25)
+02. Sarabande         	 - Handel	(04:36)
+03. Ave Maria 		 - Caccini	(05:16)
+04. In the Hall of the Mountain King 	 - Grieg 	(02:48)(   Читать дальше...   )Жанр: Instrumental, crossoverПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDE42E8FB539B717D53359163659F7FDD1A2922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531465   (718719) от 17.02.2022
 
 The Native American Chanters - Native American Chants & Dances - The Native American Chanters (2008) [MP3|320 Kbps] <Native American, New Age, World>
@@ -712,35 +741,6 @@ Danheim - Munarvagr (2017) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62E35A0A3BE856A95EA7689A391C46B19AD6E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219324   (715500) от 13.04.2018
-
-Danheim - Fridr (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fridr 4:24
-02. Ginnung 4:55
-03. Fegurð 4:45
-04. Yggdrasil 4:32(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F682CB24D57E632E687F6FE75AC4C42B8E4C87
 ```
 
 https://mybot314.ru/tekegram_catalog/

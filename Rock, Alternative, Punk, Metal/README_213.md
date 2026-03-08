@@ -1,32 +1,3 @@
-###  Публикация: 996296   (879282) от 14.03.2016
-
-Girlschool - The Collection (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1234 Rock 'N' Roll [03:34]
-02. Furniture Fire [03:00]
-03. Take It All Away [03:45]
-04. Kick It Down [03:02](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E511C69FCE7D0692A9D101F20A689703029454E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996471   (879174) от 14.03.2016
 
 The Calling - Two (2004) [FLAC|Lossless|image + .cue] <Alternative Rock, Soft Rock, Pop Rock>
@@ -745,6 +716,34 @@ Dead Can Dance - In Concert (2013) Live [MP3|320 кб/с]<Alternative, Experimen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:780E1EA1660992F375A9A370352CDB8F028542BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997001   (877575) от 15.03.2016
+
+Mechina - Andromeda (2016) Single [FLAC|tracks|WEB-DL]<Industrial, Symphonic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877575.jpg" />
+</div>
+
+
+###  Подробнее
+
+[09:22] 01. Andromeda (2011 Version)
+[08:39] 02. Andromeda (2016 Remixed Version)
+[08:39] 03. Andromeda (2016 Instrumental Version)Жанр: Industrial, Symphonic Death MetalПродолжительность: 00:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3244731935D1D1E96985C4EBA402B6B0129F848B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1558764   (528864) от 22.06.2022
+
+Buddy Rich - Buddy Rich Band (1981) MCA Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Can Say Goodbye [4:54]
+02. Fantasy [4:42]
+03. Listen Here Goes Funky [3:34]
+04. Slow Funk [5:46](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, Jazz-FunkПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F654883673EA5F0F23CC9A5A831E58B63040C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558627   (528860) от 22.06.2022
 
 Herbie Hancock - This Is Jazz (1998) Columbia [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
@@ -716,35 +745,6 @@ The Bill Perkins Big Band - Our Man Woody (1991) [FLAC|Lossless|image + .cue] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90A95926CCA2B282BFFF6CA58F47B93BCAF2A0D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053261   (526120) от 17.09.2016
-
-Lester Bowie - The Complete Remastered Recordings On Black Saint & Soul Note (2010) 3 CD Set [WavPack|Lossless|image + .cue] <Avantgarde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In A Minute (2:50)
-02. Hip Dripper (3:34)
-03. Sun Precondition Five (0:38)
-04. The Search (2:48)(   Читать дальше...   )Жанр: Avantgarde Jazz, Post-BopПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149B226AC2A22FC22D8010A20578CE4460695B84
 ```
 
 https://mybot314.ru/tekegram_catalog/

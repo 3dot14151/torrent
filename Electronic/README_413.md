@@ -1,3 +1,61 @@
+###  Публикация: 852492   (221979) от 22.12.2014
+
+Alic - Sliders (2014) EP [FLAC|tracks|WEB-DL]<Progressive, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sliders   (6:03)
+02.  Sliders (Trilingo Remix)   (6:40)
+03.  Sliders (Pallida Remix)   (8:09)
+04.  Esperanto   (6:18)Жанр: Progressive, TechnoПродолжительность: 00:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8DBA24241D9E5F7B81414FA57995FDD4238FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269139   (221898) от 13.12.2018
+
+VA - Last Christmas 2018 Compilation (2018) [MP3|320 Kbps] <House, ElectroHouse, Bigroom, ProgressiveHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lory DJ & D @ n Deejay feat. Guax - Last Christmas (Extended Mix) 4:11
+02. Gianni Camelia feat. Sabrina Christian - Don't Stop The Beat (Luke DB Remix) 3:41
+03. Alka & Feiv - Drop The Boom (Original Mix) 3:59
+04. Alessio Duranti - On The Dancefloor (Original Mix) 3:56(   Читать дальше...   )Жанр: House, ElectroHouse, Bigroom, ProgressiveHouseПродолжительность: 01:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246AAFCE71E321B7F50BC39043D95D57F2218372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418605   (221749) от 20.11.2020
 
 Home Normal - Label-Pack 134 releases (2009-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal, Modern Classical, Experimental>
@@ -684,64 +742,6 @@ Jo Berger Myhre & Olafur Bjorn Olafsson (Jo Berger Myhre & Ólafur Björn Ólafs
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA71C8452504FEA0C66DE6FF7F82D17C84F78F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343231   (220187) от 05.12.2019
-
-VA - Alter Ego Records: Best Of (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soren Andrews - Llamagasm (Original Mix)
-02. Massif & Isaac Fisherman & Sam Stroke - Frontseat 2019 (Haris C Remix)
-03. Rob Curtis & D-Clips & Digital Knights - Icarus (Original Mix)
-04. Eimear & Angel Falls - Fleeting Moments (Duncan Newell Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71A16FB2EF60EDBE5DDE8F815E76A2AE316EA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343268   (220151) от 05.12.2019
-
-Frankmusik - Day Break (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overdrive (3:28)
- 02. Heartbeat (feat. Highway Superstar) (3:37)
- 03. High on You (feat. Lindsay Lowend) (3:36)
- 04. Closer (3:17)(   Читать дальше...   )Жанр: Electronic, Synthwave, ElectropopПродолжительность: 00:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07ED3118A8B266876EA2E296350A325A56C18E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

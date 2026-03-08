@@ -1,3 +1,90 @@
+###  Публикация: 989183   (917456) от 22.02.2016
+
+Hisstönend - II (2013) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forest Gates
+02. Glacial Monument
+03. Eternal Shining
+04. Whisper's Cry(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018D3845C558768A5F354DCC1990F7B7B8709847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989182   (917387) от 22.02.2016
+
+Hell Theater - Reincarnation of Evil (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dark Shadows Room
+02. Lady of the Candles
+03. The Room of a Million Voices
+04. Smell of Blood(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D327B9F01DBC6C8639FFD6F3F5A1733601F030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989187   (917379) от 22.02.2016
+
+Hyborian Steel - Blood Steel And Glory (2012) [FLAC|Lossless|image + .cue] <Epic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Barbarians
+02. Blood, Steel and Glory
+03. Aquilonian Battlecry
+04. The Mountain of Crom(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39FFC64D750A7C1124A78D8A4CAA751A9FD6431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989178   (917365) от 22.02.2016
 
 Dodsferd - A Breed of Parasites (2013) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -657,94 +744,6 @@ Soulrest - это Ужгородская металл группа, играющ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F78225560B686CA974CB271FA9B3FB4DCE70D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097610   (912514) от 28.01.2017
-
-The Murder of My Sweet - Echoes of the Aftermath (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleeping Giant
-02. Personal Hell
-03. Racing Heart
-04. Cry Wolf(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6C079714EBDE571A5DE2CE6ABB603A20EB0E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097861   (912255) от 28.01.2017
-
-Kreator - Gods of Violence (2017) 3CD Mailorder Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gods Of Violence
-
-01. Apocalypticon 01:07
-02. World War Now 04:28(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98DA107D1044FCDE410936A166A0119A55BCFF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990248   (911868) от 25.02.2016
-
-Megaherz - Erdwarts (2015) EP [FLAC|Lossless|image + .cue] <Industrial Metal, NDH>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wer Hat Angst Vorm Schwarzen Mann
-02. Ist Das Verrückt?
-03. Glorreiche Zeiten
-04. Einsam(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 00:24:10
-Источник: ungern666
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62E4AD7474353A770D9649149165F7E760E538D
 ```
 
 https://mybot314.ru/tekegram_catalog/

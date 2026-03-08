@@ -1,3 +1,32 @@
+###  Публикация: 1020721   (742512) от 28.05.2016
+
+Ron Carter / Cedar Walton Duo - Heart & Soul (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Heart And Soul [03:05]
+ 02.Django [05:35]
+ 03.Frankie And Johnie [05:00]
+ 04.Little Waltz [06:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149618DF58ABA7719B0F5D6987F54EA08BF49498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217621   (742493) от 05.04.2018
 
 Azar Lawrence - Mystic Journey (2010) Furthermore [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -716,35 +745,6 @@ Charlie Rouse - Yeah! (1960) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFBD04764F18450D072039DD9BFBDB15D6B6BE30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021430   (741079) от 29.05.2016
-
-New Cool Collective & Mark Reilly - The Things You Love (2016) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Should Be Dancing (4:17)
-02. The Things You Love (3:33)
-03. Double Stitch (4:16)
-04. Do The Right Thing (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FAD9D6569AA0FAE62382C184BB6C41C4285E95A
 ```
 
 https://mybot314.ru/tekegram_catalog/

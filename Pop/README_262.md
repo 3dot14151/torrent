@@ -1,3 +1,61 @@
+###  Публикация: 1835130   (250572) от 05.11.2025
+
+VA - 90s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cher - Believe (3:58)
+02. THE GOO GOO DOLLS - Iris (4:49)
+03. Big Mountain - Baby, I Love Your Way (4:29)
+04. Diddy - I’ll Be Missing You (feat. Faith Evans & 112) (5:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F20E005ABFFD0B6D9A5C0E0DBD1DE541B40B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833270   (250471) от 04.11.2025
+
+Lily Allen - West End Girl (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West End Girl (4:06)
+02. Ruminating (3:27)
+03. Sleepwalking (2:57)
+04. Tennis (2:31)(   Читать дальше...   )Жанр: Pop-Rock, ElectropopПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F55FF2074A3026E439175669B4DA5B32FC7D430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834389   (250399) от 03.11.2025
 
 Винтаж - Недетский мир (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
@@ -714,64 +772,6 @@ Mylene Farmer - Libertine (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB466C5194AA12F94A10DDBF4C5ADED2F0894CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620104   (245831) от 19.03.2023
-
-VA - Now Yearbook Extra '79 (67 More Essential Hits From 1979) (2022) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Crazy Little Thing Called Love
-02. The Police - Message In A Bottle
-03. Blondie - Union City Blue
-04. The Pretenders - Kid(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 03:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C873EB9CBB79A04C1F27769E882215ABEF94085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620821   (245826) от 22.03.2023
-
-VA - Italo Dance Classics Volume 4 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Righeira - Vamos A La Playa
-02. P. Lion - Happy Children
-03. Valerie Dore - The Night
-04. Tullio De Piscopo - Stop Bajon(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BC84AC414282C5E93C233F94DA0356AC5D60F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

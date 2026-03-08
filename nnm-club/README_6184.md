@@ -1,254 +1,22 @@
-###  Публикация: 1508281   (798021) от 07.11.2021
+###  Публикация: 1508042   (798089) от 06.11.2021
 
-Monte Pittman - The Power of Three (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dark Horse
-02. Delusions Of Grandeur
-03. Everything's Undone
-04. Blood Hungry Thirst(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73904AE8E1E60F10FBEBA3889BE44F751370359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508280   (798020) от 07.11.2021
-
-Monte Pittman - Inverted Grasp Of Balance (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panic Attack
-02. Arisen In Broad Daylight
-03. Guilty Pleasure
-04. The Times Are Changing(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80170D26C6D8B2215C4A68526029247A0C46520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508142   (798019) от 07.11.2021
-
-VA - Lounge Theme (Sofa Grooves), Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Elements - Let's Start (Sun Rising Mix) (3:40)
-02. Marc Hartman - Into the Stone (Original Mix) (4:16)
-03. Worldtraveller - The Rory Glory Smokadelic Bloomdub (Living Room's Dubalicious Edit) (4:11)
-04. Peter Pearson - Chilled to the Heart (Original Mix) (4:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4283A2228553D6010E51B02AB17AEA48D33C6B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508123   (798018) от 07.11.2021
-
-VA - Bar Essentials, Vol. 2 (2019) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vovich, Sexy Girl - Don t Break my Heart (Victor Vine Remix) (3:19)
-02. The Groover - Show Me (Playa D'en Bossa Edit Mix) (4:02)
-03. King Bizza Keys - Ticket to Europe (5:54)
-04. Monodeluxe - Playa del Sol (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BCCB014A4F1A078EDCBE78B64925A8764C91CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508124   (798017) от 07.11.2021
-
-VA - Bar Essentials, Vol. 3 (2020) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Area Code 51 - Hurt Again (3:14)
-02. Charles Edison - Find You (3:18)
-03. Peter Pearson - Distant Waves (4:38)
-04. The Soul Crusaders - Open Sea (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2694935749C0357E44FA79D2BCCDD7D2088F8EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508196   (798016) от 07.11.2021
-
-VA - Chilling Winter Best Playlist (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aktnuance - Beautiful Beginning (5:53)
-02. Habermohl - An Immense Feeling (5:44)
-03. Performative Mode - Morning Air (6:24)
-04. Cesar Martinez Ensemble - Sol y Sombra (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476D92F955DBC2EE18464B45BC943248E9A6C399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508132   (798015) от 07.11.2021
-
-VA - Beach Grooves Maretimo, Vol. 3 - House & Chill Sounds to Groove and Relax (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Kinley - I Got the Feeling (Rock da Pool Cut) (6:32)
-02. Adriatic Grooves - Ibiza Overflight (Vibes & Bytes Mix) (6:14)
-03. Pascal Dubois - House on the Beach (Chillers Mix) (4:36)
-04. Groove Gauchos - Conga Morena (Latin Bossa Cut) (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F50061E9897060F34E980775FBD00CD3F1DCE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508127   (798014) от 07.11.2021
-
-VA - Bar Essentials, Vol. 4 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Waikiki Beach Dreaming (2:10)
-02. Roberto Bronco - Monkeys (4:51)
-03. Pier-O - Humble Bumblebee (5:38)
-04. Chillson - Pappas do Pappas Don t (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4B61F77A866964FF999F6B3497972E88FEE6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508307   (798013) от 07.11.2021
-
-SiteSucker Pro 4.2 [Multi]
+Adobe Character Animator 2022 22.0.0.111 RePack by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798013.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: Richard CraniskyПоддерживаемая ОС: macOS 11.1 +Язык интерфейса: Английский, Немецкий и т.д.
+Character Animator — это приложение для анимирования персонажей, которое позволяет оживлять выразительных персонажей на основе собственных графических объектов. Adobe Character Animator позволяет импортировать творческую работу из Adobe Photoshop или Adobe Illustrator и анимировать ее. Для начала запишите видеоролик, используя камеру и микрофон. Пока вы выполняете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BABB0110B1AFD44E2A444DF5A9C539073DD8C8F1
+magnet:?xt=urn:btih:48CC2C775B3CB2DB25363EB37EFECFFFA4FB1534
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,365 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508137   (798012) от 07.11.2021
+###  Публикация: 451132   (798088) от 06.11.2021
 
-VA - Lounge Theme (Sofa Grooves), Vol. 1 (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jane Maximova - Puppets (Original Mix) (4:58)
-02. Velvet Dreamer, Tim Gelo, Mike Tourne - No More Tears (Original Mix) (5:00)
-03. FIN Project - Mind Travel (Original Mix) (5:41)
-04. Weber - The Meaning (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D518C0257754CB6EE3448AF207F0255A1229BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508177   (798011) от 07.11.2021
-
-Screen Wonders 1.9.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам надоели неподвижные картинки на рабочем столе, если вы готовы приветствовать волшебство разных мест по всему миру и даже параллельных вселенных, мы собрали лучшие живые обои в этом приложении. Вам обязательно придется по душе разнообразие тем, времен года и праздничных сцен и это все - Screen Wonders.
-Говорят, красота требует жертв, но вам не о чем беспокоиться, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2021Разработчик: 3PlanesoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF17FCF5EE397EE702289918590CDEB296432952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508131   (798010) от 07.11.2021
-
-VA - Beach Grooves Maretimo, Vol. 2 - House & Chill Sounds to Groove and Relax (2019) [AAC|~326 Kbps] <Lounge, Chill Out, Chill House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Maretimo - Costa Balear (The Beachfloor Cut) (5:42)
-02. Poolwave - African Market (Jazzman´s Cut) (6:11)
-03. Airstream - Back in Time (The Golden Beach Cut) (6:54)
-04. Pascal Dubois - Send Me Away (The Chillhouse Mix) (4:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D05CC0F954E46C12B7F38111DFA07BF4058DB92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508194   (798009) от 07.11.2021
-
-VisualDiffer 1.8.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798009.jpg" />
-</div>
-
-
-###  Подробнее
-
-VisualDiffer сравнивает бок-о-бок папки и файлы с помощью цвета, чтобы визуально показать различия. Из интерфейса можно выполнять операции с папками и файлами, такие как копирование или удаление.
-Это можно сравнить с быстрым выбором базы каталогов папки из контекстного меню. Использование фильтра файлов особенностью является возможность скрыть от визуализации конкретных (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 07.11.2021Разработчик: © 2021 Davide FicanoПоддерживаемая ОС: macOS X 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580FD98EFA89FD1C66FFB3713DAC1EDC896641DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508133   (798008) от 07.11.2021
-
-VA - Beach Grooves Maretimo, Vol. 4 - House & Chill Sounds to Groove and Relax (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airstream, Phil Kinley - Coffee Bar (Sunnys Pool Mix) (4:50)
-02. DJ Maretimo, Vladi Strecker - Rio (Take Me on Mix) (5:31)
-03. Cinematic - Sunset Love (The Funky Light Mix) (4:32)
-04. Jazzy James Jr. - Get on Funky (Cosmo Cut) (4:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D4F2CCAAB6EDEB7AA9C96ACBBCDE50482B803F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508121   (798007) от 07.11.2021
-
-VA - Bar Essentials, Vol. 1 (2018) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - Love Yourself (5:47)
-02. Tom Appl - Arabian Rose (Radio Cut) (3:40)
-03. Ralf Harris - I Get It (4:49)
-04. Buben - Point in History (5:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2C19C8AD996554CE0E15A259F996B5E8D56214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508219   (798006) от 07.11.2021
-
-File Juicer 4.96 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798006.jpg" />
-</div>
-
-
-###  Подробнее
-
-File Juicer - уникальная утилита, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
-File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F00F3C49F1F571EBDE2F67E9C22F0878863210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508297   (798005) от 07.11.2021
-
-Коко выводит цыплят / Koko Gets Egg-Cited (1926) WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коко решил заняться птицеводством. Ну, там курочки, яички всякие. Инкубатор конечно же. Только он ведь клоун. Вот у него все и получается по-клоунскиПроизводство: США, Out of the Inkwell FilmsЖанр: Рисованная анимацияРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E7446D9489A25BFDB7BC84AE4CCAE53995FDCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508329   (798004) от 07.11.2021
-
-Stormbreaker - Strike The Match (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standing On The Edge
-02. The Voice Inside
-03. Never Again
-04. Give In To Me(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C147DD11A8BFDFD111ACFFF7FDC702690AB52C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508135   (798003) от 07.11.2021
-
-VA - Ski Resort Best Lounge Music Playlist (2021) [AAC|~292 Kbps] <Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aktnuance - Beautiful Beginning (5:53)
-02. Habermohl - An Immense Feeling (5:44)
-03. Kalokagathia Union - Ascending Mind (6:00)
-04. Performative Mode - Morning Air (6:24)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B276153419C9BFF41901556B53333F742C5E0706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508129   (798002) от 07.11.2021
-
-VA - Beach Grooves Maretimo, Vol. 1 - House & Chill Sounds to Groove and Relax (2018) [AAC|~324 Kbps] <Lounge, Chill Out, Chill House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Kinley - Partylife (Glitterpool Cut) (6:45)
-02. Housework - Culture Vibes (Drumflow Cut) (6:12)
-03. Clublife - Different Things (Poolside Mix) (6:17)
-04. Poolwave - Seaside (Laid Back Waves Cut) (5:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 05:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE662F83AA63C7B8A27604721A8FFECE1B0376C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508150   (798001) от 07.11.2021
-
-Joe Henderson - The Complete Blue Note Studio Sessions (1963 - 1967) 5CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798001.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Una Mas (One More Time) [15:19]
-02. Straight Ahead [8:58]
-03. Sao Paulo [7:20](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 06:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48810A48C9B88542DD7E283DE302AF0B6F07C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508207   (798000) от 07.11.2021
-
-Гидеон Стерер | Ночные рыцари (2019) [PDF]
+Анатолий Маркуша | Дороге нет конца (1963) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798000.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красивая и атмосферная сказка о том, что ночью не надо бояться чудищ, ведь ночные рыцари всегда начеку.
-Книга начинается с заката: солнце садится, и мальчик волн волнуется из-за наступления темноты, призывая ночных рыцарей. Каждый дом превращается в замок, на страже которого встают смелые рыцари, лучники, капитаны и волшебные существа. У них одна цель — защитить (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
+Великое дело - дороги и встречи. Двадцать пять лет я в пути: земля, небо, море, горы, пустыня, и всюду — человек, всюду — люди! Люди, для которых сияет солнце и поют веселые птицы и улыбаются пушистые облака; люди, которых. нельзя остановить, согнуть, уничтожить, потому что они в дороге, ведущей в будущее, а такой дороге пет и не может быть конца... Вот обо всем (   Читать дальше...   )Жанр: Детская литература, путешествияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89D46A6EC1FB575B4767279B440259B60D1297CF
+magnet:?xt=urn:btih:1DBC75B91E70DC2708DE53E9FFCD0F9752A2947A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508202   (797999) от 07.11.2021
+###  Публикация: 1508038   (798087) от 06.11.2021
 
-Сто к одному (07.11.2021) WEBRip [H.264/1080p-LQ]
+Женщины за 40 / On the Verge (2021) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-12 из 12) Пифагор
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797999.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:46
+Лос-Анджелес до пандемии. Четыре женщины — шеф-повар, мать-одиночка, наследница и безработная — окунаются в любовь и работу на фоне кризиса среднего возраста.Производство: Франция, США | Canal+, StudioCanal, Barnstormer Productions, The Film TVЖанр: комедияРежиссер: Жюли Дельпи, Матье Деми, Дэвид ПетраркаАктеры: Жюли Дельпи, Элизабет Шу, Сара Джонс, Алексия Ландо, Матье Деми, Трой Гэрити, Тимм Шарп, Джованни Рибизи, Кай То, Кристофер КонвериПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), немецкие, английские (Forced, SDH), испанские, французские, иврит, итальянские, португальские, румынские, украинскиеПродолжительность: ~00:35:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C754470FAF8E3148A601175543B51CCD65BD0C87
+magnet:?xt=urn:btih:D4718C54A971380C743B6F69E316530DEBE298C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,28 +76,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508323   (797998) от 07.11.2021
+###  Публикация: 1507657   (798086) от 06.11.2021
 
-Dangerous Curves - Summertime Highs (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+Александр Зацепин - Оригинальная Музыка К Кинофильмам (2020) [FLAC|Lossless|image + .cue] <Soundtrack, Score>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Other Styles
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797998.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In Those Eyes
-02. My Oh My (Get What You Need)
-03. I Like it
-04. Good And The Bad(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:44
+Командир Счастливой "Щуки" 1972
+1-1		Вступление	2:36
+1-2		Встреча	2:05
+1-3		Давным-давно Была Война. 1-й Вариант	1:24(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 04:59:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A171CFC1BF1E001DB3E943630EDD53469306E7B2
+magnet:?xt=urn:btih:F2D3304EA28538539524EBA2008FB99F15585A84
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,28 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508096   (797997) от 07.11.2021
+###  Публикация: 1507986   (798085) от 06.11.2021
 
-Thanatos - Violent Death Rituals (2020) [WavPack|Lossless|image + .cue] <Thrash Metal>
+Стивен Кинг | Нужные вещи (2021) [MP3, Игорь Князев]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797997.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Violent Death Rituals
-02 The Silent War
-03 Unholy Predators
-04 The Outer Darkness(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:44
+Невероятно алчный роман от «Короля ужасов».
+Об этом хорошо известно демону, прибывшему в маленький американский городок и открывшему там магазинчик «Нужные вещи». Он готов предложить покупателям именно то, о чем они мечтают… в обмен на маленькую услугу. Он всего-то и просит – невинно подшутить над соседом или приятелем.
+
+Но достаточно сделать первый шаг по дороге (   Читать дальше...   )Жанр: Мистика, ужасы, хоррорПеревод: Артем Аракелов, Татьяна ПокидаеваПродолжительность: 31:19:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2BED4E49378EB9FDE4E4DA62C87D5344ACA9A84
+magnet:?xt=urn:btih:EB74956BBC664BF93BF1CBC3324B745D05B0029F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,27 +134,559 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508311   (797996) от 07.11.2021
+###  Публикация: 1446411   (798084) от 06.11.2021
 
-Pacifist 4.0 [En]
+Подшивка | Practical Wireless (2021) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналы "Practical Wireless" - это бестселлеры для радиолюбителей. Усовершенствуйте старые технологии и будьте в курсе текущих технологических новшеств с информированными статьями журнала «Practical Wireless», новостями и обзорами по всем аспектам любительского радио. Сконструируйте радиооборудование и получите техническую информацию в разделах журнала, (   Читать дальше...   )Жанр: КВ и УКВ радиосвязьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8415DD19EB69DE223178CEB29FC166DBDDEC09A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392660   (798083) от 06.11.2021
+
+Наследники (2008) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798083.jpg" />
+</div>
+
+
+###  Подробнее
+
+По повести югорского писателя Сергея Козлова "Мальчик без шпаги".
+В таежном сибирском поселке проживает обыкновенная семья, каких тысячи. Отец – буровик, мать – медсестра. Их сын успешно учится в начальной школе. Каждое лето они ездят к бабушке в Крым. Вся эта идиллия рушится из-за неприятностей на работе у отца. Он начинает пить и втягивает в это и свою (   Читать дальше...   )Производство: Россия / "Прессинг"Жанр: ДрамаРежиссер: Константин ОдеговАктеры: Павел Юрченко, Екатерина Редникова, Денис Карасёв, Владимир Толоконников, Александр Голубков, Юлия Галкина, Леонид Куравлёв, Константин Одегов, Евгения Лапова, Александр БашировСубтитры: ОтсутствуютПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0478B08230499339EDDD9DA8AE183909D954EBBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507934   (798082) от 06.11.2021
+
+Проекты - VideoHive - Kids Broadcast - 19613325 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798082.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Kids Broadcast» - пакет шаблонов для дизайна детских каналов в социальных сетях.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0AE0CF89E3DF615F1D944AF2179A3FF599D4EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508072   (798081) от 06.11.2021
+
+Сапер v6.3 [Ru/En] (обновляемая)
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический сапер для Android (Minesweeper или Mines).Тип издания: Пиратка (открыт Pro)Релиз состоялся: 27.07.2020Разработчик: LdinkaПоддерживаемая ОС: Android 4.1+Жанр: ГоловоломкиЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5844FAB12308933C1CD8ECC55A4005718DC60E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507867   (798080) от 06.11.2021
+
+Кэндимен / Candyman (2021) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798080.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках идей молодой художник из Чикаго Энтони Маккой решает изучить историю района, куда он недавно переехал вместе со своей подругой. Исследование знакомит его с пожилым местным жителем, который рассказывает парню о печально известном маньяке Кэндимене, убивающего тех, кто перед зеркалом пять раз произнесёт его имя. Вдохновившись этой историей, Энтони создаёт (   Читать дальше...   )Производство: США, Канада, Австралия /  Universal Pictures, Metro-Goldwyn-Mayer (MGM), BRON StudiosЖанр: УжасыРежиссер: Ниа ДаКостаАктеры: Яхья Абдул-Матин II, Тейона Паррис, Нэйтан Стюарт-Джарретт, Колман Доминго, Кайл Каминский, Ванесса Уильямс, Брайан Кинг, Мириам Мосс, Ребекка Спенс, Карл Клемонс-ХопкинсПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3759866D820B2ACCDF7A6CF6D3AB123EAD860762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508050   (798079) от 06.11.2021
+
+Эмили Элисон, Лоуренс Элисон | Раппорт. Как найти подход к собеседнику любой сложности (2021) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лоуренс и Эмили Элисон – всемирно известные эксперты в области криминальной психологии. Более 30 лет они специализируются на самых сложных коммуникациях, которые только можно представить: на допросах преступников. Элисоны консультируют и обучают полицию, службы безопасности, ФБР и ЦРУ тому, как обращаться с особо опасными людьми. И их главное оружие – раппорт, контакт (   Читать дальше...   )Жанр: Социальная психология, Личная эффективностьПеревод: И. А. ПровороваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F3E1ABCF37E98862C38FCA7F66C6005E4D6B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507860   (798078) от 06.11.2021
+
+Amanda Lear - 25 Albums (1977-2021) 9LP & 16 CD Collection [MP3|320 Kbps] <Electronic, Disco, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аманда Лир, родилась в Гонконге - французская поп-певица, актриса и модель. В 1970-1980-е годы Лир была популярной исполнительницей в жанре диско. Позже приобрела известность как художница. С середины 1970-х по начало 1980-х она была королевой дискотеки, продававшей миллионы альбомов, в основном в континентальной Европе и Скандинавии с компанией Ariola Records. Первые (   Читать дальше...   )Список альбомов:
+1977 - I Am A Photograph
+1978 - Sweet Revenge
+1979 - Never Trust A Pretty Face(   Читать дальше...   )Жанр: Electronic, Disco, EuropopПродолжительность: 18:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD35223422056A36C4437489085682343D1F4B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507961   (798077) от 06.11.2021
+
+Skillshare, Gesa Pickbrenner | Learn Blender 2.90: Creative and 3D Printable Jewelry Design (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798077.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы узнаете всё о 3D-моделировании колец с печатками, будь то для печати, рендеринга или просто для удовольствия! Мы используем инструмент с открытым исходным кодом Blender, который обладает неслыханным качеством: он бесплатный и очень хорошо сделан.
+Так что, если вы всегда хотели узнать больше о дизайне ювелирных изделий, по-настоящему заняться моделированием (   Читать дальше...   )Производство: SkillshareЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 03:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A45C33D3B3300EE7C7FA2E717EDF25CFC9F028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507933   (798076) от 06.11.2021
+
+КВН-2021. Высшая лига / Кубок мэра Москвы (04.11.2021) WEBRip [H.264/1080p-LQ]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798076.jpg" />
+</div>
+
+
+###  Подробнее
+
+КВН Кубок мэра Москвы 2021. В спецпроекте разыгрывались два кубка: малый с путёвкой в новый сезон Высшей лиги и большой с местом в финале этого года.
+За выход в финал боролись:
+Армянская сборная (Москва)
+«Доктор Хаусс» (Могилев)(   Читать дальше...   )Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 01:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F97891E015C79B8591E06C4DFEDCC8EC68C93ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508075   (798075) от 06.11.2021
+
+StartAllBack 3.0.5 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797996.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pacifist — удобная распаковка .pkg
-Если вы являетесь активным пользователем Mac OS, то вполне вероятно, что однажды вам уже было необходимо открыть файл с расширением .pkg. Сделать это можно при помощи нескольких способов, но приложение под названием Pacifist позволяет сделать это наиболее быстро и удобно.
-Pacifist – приложение, которое открывает пакеты Mac OS X (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 CharlesSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C174294C8CD339DD39B4A252488DF9BACD86A9E
+magnet:?xt=urn:btih:CE4811A46ACA8458EEAC371E6B32A73369F328DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507916   (798074) от 06.11.2021
+
+Проекты - VideoHive - Kids Promo Slideshow - 31925786 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798074.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Kids Promo Slideshow» - шаблон для создания вступительного ролика на детскую тематику.
+Всё, что Вам нужно сделать, это добавить свои фотографии и изменить тексты.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B0EF844DA7973790F9BAA63850A80D925A9A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508067   (798073) от 06.11.2021
+
+Место под солнцем (2021) WEBRip [H.264] (сезон 1, серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предательство любимого разделило жизнь Марты на ДО и ПОСЛЕ.  Ее несправедливо обвиняют в убийстве, и она вынуждена бежать из города. Случайное знакомство с Дмитрием приводит Марту в столицу, в богатый дом его отца – кандидата в столичные мэры Игоря Парфенова. Каждый из членов благополучной, на первый взгляд, семьи прячет собственные скелеты в шкафу. А Марта, вынужденная (   Читать дальше...   )Производство: Украина | "FILM.UA Group"Жанр: Драма, криминалРежиссер: Алина ЧеботарёваАктеры: Татьяна Ратникова, Алексей Яровенко, Кирилл Кузнецов, Павел Вишняков, Елена Шевченко, Виктор Сарайкин, Ольга Голдыс, Екатерина Тышкевич, Ева Шевченко-Головко, Дмитрий СоваЯзык озвучки: РусскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20F2A442744CB7F88B428CD2C4F11918F1A26F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507869   (798072) от 06.11.2021
+
+Demon Turf (2021) [En] (1.0) License DOGE
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир демонов населяют самые разные плохие парни, и большинство из них собираются в банды под руководством сильных и наглых боссов. Впрочем, никто из них не сможет сравниться с Королем Демонов! Только юная Бибз, которой едва исполнилась тысяча лет, нашла в себе смелость заявить о себе, надрать всем районным шишкам задницы и попробовать стать Королевой Демонов.Тип издания: LicenseРазработчик: FabrazЖанр: Приключенческие игры, Аркада, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12C0AEBEBCEA89AB0E6C271563A4B0D224ABAC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507983   (798071) от 06.11.2021
+
+Главный герой / Free Guy (2021) BDRip [H.264/720p] [UKR, EN / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798071.jpg" />
+</div>
+
+
+###  Подробнее
+
+У сотрудника крупного банка всё идёт по накатанной, пока однажды он не выясняет, что окружающий его мир — это часть огромной видеоигры, а сам он в ней — всего лишь второстепенный персонаж. Хватит ли у него духу переписать свой код, обратить на себя внимание прекрасной девушки и, наконец, спасти мир? Одним словом, получится ли из него главный герой?Производство: США, Канада / 20th Century Studios, Berlanti Productions, 21 Laps EntertainmentЖанр: фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Шон ЛевиАктеры: Райан Рейнольдс, Джоди Комер, Лил Рел Ховери, Джо Кири, Уткарш Амбудкар, Тайка Вайтити, Аарон В Рид, Бритни Олдфорд, Камилль Костек, Марк ЛайнерПеревод: Дублированный (Лицензия)Язык озвучки: украинский, английскийСубтитры: украинские (Forced, Full), английские (Forced, Full)Продолжительность: 01:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F771AF2961F779A3F8D7EF99B1D727EC71C8801E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446082   (798070) от 06.11.2021
+
+Подшивка | Woodturning (2021) [PDF] [En][Обновляемая]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Woodturning — высококачественный журнал по столярному делу публикуется для всех работающих с деревом мастеров (от любителей до профессионалов), кто ищет свежие идеи для проекта, обзоры деревообрабатывающей техники и оснастки для мастерской. Проекты по изготовлению из дерева различной мебели, шкатулок, беседок и прочих лёгких архитектурных строений для сада приводятся (   Читать дальше...   )Жанр: ДеревообработкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC7F97513BE51526F7CF95A700E67658814C438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508087   (798069) от 06.11.2021
+
+Шоу большой страны (2021) WEBRip (сезон 1, выпуск 1-2 из 2)
+
+>>Юмор (ТВ)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масштабное юмористическое шоу производства Comedy club production. "Шоу большой страны" – это проект не просто о большой, а о самой большой стране в мире и о тех, кто в ней живет.
+Каждая программа – полноценный концерт, состоящий из эстрадных номеров с участием звезд юмора и популярных артистов. Ведущие Екатерина Скулкина и Дмитрий Шепелев, а вместе с ними (   Читать дальше...   )Телекомпания: Россия 1Жанр: ЮморУчастники: Михаил Галустян, Станислав Дужников, Георгий Дронов, Мария Кравченко, Максим Лагашкин, Алексей Маклаков, Светлана Пермякова, Марина Федункив, Максим Киселев, Иван Пышненко и др.Субтитры: ОтсутствуютПродолжительность: ~01:40:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36CE9672C59F99FD40C60CB579F5FBC59141E1B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451158   (798068) от 06.11.2021
+
+Подшивка | Homebuilding & Renovating (2021) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский журнал «Homebuilding & Renovating» является источником самой последней информации, советов и идей для всех, кто строит или ремонтирует свой домЖанр: Строительство, ремонт, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A0A5B75A36023E48D5183BEB72CDAE40907EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507960   (798067) от 06.11.2021
+
+Skillshare, Gesa Pickbrenner | Foundations of Blender 2.90: Jewelry Design in 3D (2020) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите стать дизайнером собственных ювелирных изделий? Познакомьтесь с тонкостями визуализации ювелирных изделий и подготовки 3D-печати в Blender. Узнайте о техниках ювелиров и о том, как вы можете имитировать их в 3D-мире, чтобы создать идеальное ювелирное изделие. Тогда это тот класс, который вы так долго искали!
+Название "Основы Blender" не случайно: (   Читать дальше...   )Производство: SkillshareЖанр: 3D моделированиеЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 02:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9A3D46D6789D2092B596B8407EE534B202EA44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507868   (798066) от 06.11.2021
+
+Проекты - VideoHive - Happy Kids Promo Slideshow | MOGRT - 30264398 [AEP, MOGRT]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798066.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Happy Kids Promo Slideshow» - шаблон для создания вступительного ролика на детскую тематику.
+Всё, что Вам нужно сделать, это добавить свои фотографии и изменить тексты.Формат: AEP, MOGRT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD901686C5987D4E3F2F99FA2B67FC4544C9BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508026   (798065) от 06.11.2021
+
+Ventoy 1.0.58 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ventoy - это инструмент с открытым исходным кодом для создания загрузочного USB-накопителя для файлов ISO/WIM/IMG/VHD(x)/EFI не требующий установки.
+С ventoy вам не нужно форматировать диск снова и снова, вам просто нужно скопировать файлы ISO/WIM/IMG/VHD(x)/EFI на USB-накопитель и загрузить их напрямую.
+Вы можете копировать много файлов за раз, и ventoy предоставит (   Читать дальше...   )Разработчик: longpandaЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ABA60EFA88B468DA46A4F7A93A542964D6803FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507864   (798064) от 06.11.2021
+
+Escape from the Village (2021) [Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798064.jpg" />
+</div>
+
+
+###  Подробнее
+
+По дороге домой с отпуска Ваша машина сломалась, и Вы оказались в глуши. Вызвать эвакуатор возможности нет, как встречных машин на трассе. Приняв решение идти на встречу помощи, Вы выходите из машины, исследуете окрестности и пытаетесь добраться до дома или найти помощь... в пустынной горной деревне в современной Японии... Ищите предметы, преодолевайте препятствия (   Читать дальше...   )Тип издания: LicenseРазработчик: Taiga NiituЖанр: Приключения (От первого лица), ХоррорЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBC6730E5BF5B67171CF54B591D6B3C37292E18
 ```
 
 https://mybot314.ru/tekegram_catalog/

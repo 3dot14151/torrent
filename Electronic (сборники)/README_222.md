@@ -1,3 +1,30 @@
+###  Публикация: 1769430   (32783) от 28.12.2024
+
+VA - Remixes 2025 (2024) [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32783.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tommy Richman - Million Dollar Baby (Yuma Remix) (Dirty) (7:58)
+002. Jago Alejandro Pascua - Before The Sun Will Rise (Alex Raider Extended)Жанр: Club, Dance, OtherПродолжительность: 26:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF138919850D53B9CCF71E2FB3843BC95D4C12D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769766   (32659) от 29.12.2024
 
 VA - Крутые пушки Зима 2024-2025 (2024) [MP3|320 Kbps] <Club, Dance, Other>
@@ -714,35 +741,6 @@ VA - Compilation Part 147 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90E14B7605F72850DD962E83830C5361608CC4B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785260   (24578) от 15.03.2025
-
-VA - Compilation Part 148 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumanov - Those Moments
-02. Delal Derin - Hard to Forget You
-03. Muvi - April
-04. Akmalov - Bassline(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961B55E197BF33A5FE6A0A9B21401B3E866760CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

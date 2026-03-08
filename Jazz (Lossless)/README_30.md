@@ -1,3 +1,32 @@
+###  Публикация: 1363051   (945323) от 26.02.2020
+
+Nat King Cole - Hittin' the Ramp: The Early Years 1936-1943 (2019) 7CD, Resonance Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945323.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Honey Hush [2:53]
+02. Stompin' at the Panama (Skoller's Shuffle) [2:59]
+03. Bedtime (Sleepy Moan) [2:55](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Piano JazzПродолжительность: 08:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C650D29E8A23A1A4C67476ED731C88F5885AAFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091096   (945075) от 08.01.2017
 
 Duke Jordan - Trio & Quintet (1955) 2010, Columbia[FLAC|Lossless|image + .cue] <Hard Bop>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A40B966C7029C956594202CC72E009F0095AA8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091804   (941669) от 10.01.2017
-
-Sergey Mikhaylenko (Сергей Михайленко) & XYZ Quartet - Trump Card (2010) JAZZO Sophia[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Rondo Confessiano [10:39]
- 02.Concert Etude [01:26]
- 03.Bird Flu Serenade [04:49]
- 04.Arabesque 777 [03:07](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C04C59FA3B4719778C2DFE2D9E7ED9315E4954
 ```
 
 https://mybot314.ru/tekegram_catalog/

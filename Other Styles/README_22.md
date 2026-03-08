@@ -1,3 +1,32 @@
+###  Публикация: 988489   (920899) от 20.02.2016
+
+VA - Electronic Medicine - Binaural Meditation, Relaxing Deep Yoga Flow and Healing Tones (2016) [MP3|320 кб/с] <Chill Out, Lounge, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nadja Lind – Reprocessing
+02. Helmut Ebritsch – Emptiness
+03. Worldwide Groove Corporation – Kiss Me Slow
+04. Nadja Lind – Expanding(   Читать дальше...   )Жанр: Chill Out, Lounge, New Age, AmbientПродолжительность: 03:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9939298770A04060B1DEC3DF0A2F50ADAEDA88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096171   (920882) от 23.01.2017
 
 Peng Jing - A Good Day (2004) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
@@ -714,35 +743,6 @@ Space - Magic Fly (1977) Remastered, 1998, Bastien Music [FLAC|Lossless|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E4CB6706315BE7475A57A94EBB3D37E594AEB3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 865209   (915085) от 01.02.2015
-
-Мария Мордасова - Королева частушек (2004) 3CD [MP3|~190 кб/с (V2)]<Народные песни, частушки>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915085.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Российский чай
-02. Завлекалочка
-03. А я Яшу подпояшу (Матаня)(   Читать дальше...   )Производство: Россия, Альфа РекордзЖанр: Народные песни, частушкиПродолжительность: 02:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB12BC2FC077DC3A53B5293D40F8704598E3196
 ```
 
 https://mybot314.ru/tekegram_catalog/

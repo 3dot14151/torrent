@@ -1,3 +1,61 @@
+###  Публикация: 1362337   (949492) от 23.02.2020
+
+VA - Great Songs (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben E. King - Stand By Me 2:55
+02. The Monkees - I'm A Believer (2006 Remaster) 2:47
+03. Alanis Morissette - Ironic 3:49
+04. Aretha Franklin - I Say A Little Prayer 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 03:20:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF255B2C588304B2BF61054608A8A792661DF12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362401   (949488) от 23.02.2020
+
+Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Heavy I Fell Through The Earth (6:08)
+02. Darkseid (feat. 潘PAN) (3:44)
+03. Delete Forever (3:57)
+04. Violence (feat. i_o) (3:41)(   Читать дальше...   )Производство: 4AD, Crystal Math Music – CM80207CDЖанр: Pop, Indie Pop, Electronic, Synthpop, IndustrialПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9BFE07AC5A0483211A0EE6E378D72E0479736B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362487   (949433) от 23.02.2020
 
 Al Bano & Romina Power - Raccogli l'attimo (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -688,64 +746,6 @@ VA - It Had To Be You • The Ultimate Love Songs (2014) 3CD [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08D0908087D68FDC080EAFDB9A12133EBB0453CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363045   (945332) от 26.02.2020
-
-Discognosis - Discognosis (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект от авторов и продюсеров Rinder & Lewis.01. Discognosis (4:41)
-02. Poison Ivy (3:24)
-03. One On One (4:14)
-04. Step By Step (2:57)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACE9A5E8CD8BB0405EB3172EF4FA0FAA78B17BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982933   (945295) от 05.02.2016
-
-Suzanne Vega - Retrospective: The Best Of Suzanne Vega (2003) [FLAC|Lossless|image + .cue] <Folk Rock, Indie Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luka
-02. Tom's Diner (DNA Featuring Suzanne Vega)
-03. Marlene On The Wall
-04. Caramel(   Читать дальше...   )Жанр: Folk Rock, Indie Rock, Pop RockПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B90DF1F2C3F1162E88EBC306ED04C4514B1DF48
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1271103   (152505) от 22.12.2018
-
-Phlebotomized - Deformation Of Humanity (2019) [MP3|320 Kbps] <Progressive Death Metal, Avant-garde Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Premonition (Impending Doom)
-2. Chambre Ardente
-3. Descend To Deviance
-4. Eyes On The Prize(   Читать дальше...   )Жанр: Progressive Death Metal, Avant-garde MetalПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B1D866304BC705B97DE6CE0FBD68DCD543EB0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601151   (152436) от 30.12.2022
 
 Lord of the Lost - Blood & Glitter (2022) [MP3|320 Kbps] <Gothic, Industrial, Symphonic Metal>
@@ -754,6 +725,35 @@ E-Force - 4 Альбома (2003 - 2015) [MP3|320 кб/с] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08F72717BB98FAA6D24784076D5F813015B110B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678106   (145957) от 21.11.2023
+
+Immortal Guardian - Revolution, Pt. 1 (2014) EP [MP3|320 Kbps] <Progressive, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Skies
+02. Walk Alone
+03. Immortal (feat. Roy Z)
+04. Between Fire and Ice(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 00:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE00A374BDBC655BA0AAB31C499718C02CEC4DDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

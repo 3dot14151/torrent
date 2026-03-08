@@ -1,3 +1,32 @@
+###  Публикация: 994360   (891658) от 07.03.2016
+
+Brother Jack McDuff - Tobacco Road (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Teardrops From My Eyes [02:08]
+ 02.Tobacco Road [03:00]
+ 03.The Shadow Of Your Smile [03:56]
+ 04.Can't Get Satisfied [05:15](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-Funk, Hammond OrganПродолжительность: 00:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1263606C3C3C9D91DBE6C9596E99ECB38965FFD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994148   (891652) от 07.03.2016
 
 Freddie Hubbard - Sweet Return (1983) 2001, Collectables[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -716,35 +745,6 @@ Lee Konitz - frescalalto (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Post-Bop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F8928E21CB616A2D96BDAACAED87D77FD69228A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103070   (887968) от 11.02.2017
-
-The Horace Silver Quintet - A Fistful Of Silver: Blowin' The Blues Away & Finger Poppin' (1959) 2CD, 2010, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887968.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Blowin' The Blues Away:
-01.Blowin' The Blues Away [04:45]
- 02.The St Vitus Dance. [04:10]
- 03.Break City [04:57](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:21:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C3AA2B173ED22BAF6DC7DD696F77379257E809
 ```
 
 https://mybot314.ru/tekegram_catalog/

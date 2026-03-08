@@ -1,3 +1,61 @@
+###  Публикация: 1302763   (579329) от 17.05.2019
+
+Chromeo - Head Over Heels (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Nu-Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Must've Been (feat. D.R.A.M.) (03:29)
+02. Don't Sleep (feat. French Montana & Stefflon Don) (03:19)
+03. One Track Mind (03:23)
+04. Count Me Out (03:37)(   Читать дальше...   )Жанр: Dance-pop, Nu-Disco, Synth-popПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426A8CC6A7F7ED96D0913142314987FCD6E60965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302745   (579326) от 17.05.2019
+
+Carly Rae Jepsen - Dedicated (2019) [MP3|320 Kbps] <Pop, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Julien
+02 No Drug Like Me
+03 Now That I Found You
+04 Want You in My Room(   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EED73857FB69BD23878032C1E72778CD1B114AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302765   (579325) от 17.05.2019
 
 Carly Rae Jepsen - Dedicated (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -720,64 +778,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28E27A0666F739A2DAC2AC7D9C393ED4720B8FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233747   (576190) от 02.07.2018
-
-VA - Speech №3-Новогодний бал (1994) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Фантастический бал - Фантастический бал
-02. Светлана Владимировская - Пусть длится ночь
-03. Ван Моо - Народное техно
-04. Кабаре-дуэт Академия - Тома(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C84DB116BBFF0A8D4C3217B13D8DB9FD76BD07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233711   (576185) от 02.07.2018
-
-Виктория Дайнеко - Смайлы (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смайлы
-02. Иду
-03. Бьётся сердце
-04. Таешь(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB96D6EA3AB4EDA3FA7C6532B144C79DCBF9928
 ```
 
 https://mybot314.ru/tekegram_catalog/

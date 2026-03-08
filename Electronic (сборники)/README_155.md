@@ -1,3 +1,35 @@
+###  Публикация: 1326534   (380772) от 22.09.2019
+
+VA - Hits of My Soul Vol. 49 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Banco De Gaia - Lamentations (03:02)
+02. Banco De Gaia - Wimble Toot (07:59)
+03. DJ Klubbingman & Savon - Aurora (Club Mix) (06:07)
+04. Heatbeat - Arganda (Original Mix) (07:04)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1081A88CDABF89BC478FF812735765A8A58130CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068419   (380738) от 01.11.2016
 
 VA - LUXEmusic: Dance Super Chart Vol.92 (2016) [MP3|320 Kbps] <House, Electro House, Mash Up, Club, Dance>
@@ -734,35 +766,6 @@ VA - Radio ParadokS – Vocal Trance (2017) [MP3|256-320 Kbps] <Trance, Vocal Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1D71C06531B26A0DF140DC12D70DA57B0CD44D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175856   (376621) от 19.10.2017
-
-VA - Cosmic Interference (2017) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376621.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chasing Kurt - Sumatra Rain (Club Mix)
-002. Batteriebetrieb - Vibrations (Hellmekanism Remix)
-003. Atix - Pendola (Original mix)
-004. Fractal Vibe - C Song (Fly Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 11:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368FEBCAAD36D5AFDF26558D4166C3CA62F8C380
 ```
 
 https://mybot314.ru/tekegram_catalog/

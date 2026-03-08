@@ -1,3 +1,32 @@
+###  Публикация: 1098069   (910266) от 29.01.2017
+
+VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск - 42) (2017) [MP3|256-320 Kbps] <Italo-Disco, Euro Disco, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910266.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jenkki - Goodbye (Savage) 3:29
+002. Tom Dot Kom - One Night in Bangkok (HouseTronic Edit) 3:39
+003. DJ Brainstorm - Save Me (A Place In Your Heart) (Clubbticket Remix) 4:41
+004. Mike Mareen - Dancing In The Dark (Galactica Remix) 7:07(   Читать дальше...   )Жанр: Italo-Disco, Euro Disco, DiscoПродолжительность: 04:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F678CE7E06B521811C5A8720A0AB11599DBAD38F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 635428   (909441) от 26.03.2013
 
 VA - Now Thats What I Call Music 84 (2CD) (2013) [MP3|320 кб/с]<Pop, Dance>
@@ -719,35 +748,6 @@ VA - Real Disco (2013) [MP3|320 кб/с]<Disco, Eurodisco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC941EDC7CE7C383FFB87509A523DAC40C672110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099863   (903607) от 02.02.2017
-
-VA - Снежный презент. Сборник №3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903607.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дмитрий Колобов - Мадемуазель 5:03
-002. Lila & Stitch - Город-Электрошок 3:25
-003. Инесса Михно - На Десять Минут 3:59
-004. Артем Сорока - Это Все Она 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B46BF9C4041E921144BB7C75F2CE82B3AE95F66
 ```
 
 https://mybot314.ru/tekegram_catalog/

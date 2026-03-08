@@ -1,3 +1,61 @@
+###  Публикация: 1376577   (858917) от 18.04.2020
+
+VA - Erotic House (Erotic And Sensual Selection House Music) (2020) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Tony Queen - You Have a Problem (Aston Romeo Deep Mix) (3:30)
+2.Wireless - Robot Communication (Electric Mix) (5:42)
+3.Jeffrey Evans - She's Happy (Stairway to Mix) (3:12)
+4.Diego Suarez - Bossa and Trip (Luxury Mix) (3:06)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8F2F74251DE9A5A0FC2CF0544FE0B1CF63A5CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376618   (858912) от 18.04.2020
+
+V.A. - The Buddha Moon, Vol. 1:  A Magic Soundtrack To Chill & Relax (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillhouse, Downbeat, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Hayman - Illusions (Deep Space Mix)
+02. Island Sun - Aurora (Red Light Cut)
+03. Le Voyage - Sensuality (E-Fly Mix)
+04. Sean Hayman feat. ANONG - Mysterious Ayutthaya (Buddha Deluxe Mix)(   Читать дальше...   )Жанр: Chillhouse, Downbeat, LoungeПродолжительность: 01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB72D715912C7B802C98DAD3779E5EF0697C2C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376624   (858797) от 18.04.2020
 
 VA - Baby Erotic Lounge (2020) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -686,64 +744,6 @@ VA - Trance In Space Vol.3 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAF5684BEE6A24634A12EE25AB5EB94FFCC66689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000306   (857431) от 26.03.2016
-
-VA - Retro Chic 100 (2014) [MP3|320 кб/с] <Balearic, Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857431.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Never Gonna Give You Up - Karen Souza
-002. Space Cowboy - Eve St. Jones
-003. Wicked Game - Groovy Waters
-004. Somebody That I Used to Know - Freedom Dub(   Читать дальше...   )Жанр: Balearic, Downtempo, LoungeПродолжительность: 06:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C8B5B37DAE0998C1F5AB4DD4EC5D7075FA5445A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109791   (857377) от 28.02.2017
-
-Aly & Fila - Future Sound Of Egypt 485 (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John 00 Fleming - Spirit Awaking
-02. A.R.D.I. ft. Allam - Never Look Back
-03. The Thrillseekers ft. Shannon Hurley - Stay (Here With Me) (Club Mix)
-04. Solis & Sean Truby pres. S&ST - Roots(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B268EA4ED9E2C9FA7ED39100306CDD0BDBAB242
 ```
 
 https://mybot314.ru/tekegram_catalog/

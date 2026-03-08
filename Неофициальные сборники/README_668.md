@@ -1,3 +1,177 @@
+###  Публикация: 1757658   (39007) от 28.10.2024
+
+VA - Music News For Forum vol.036 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39007.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Belinda feat. Kenia Os - Jackpot (03:13)
+ 002. Ahzee - Got It (02:49)
+ 003. ALTUNIN - For You (01:50)
+ 004. Arthur Freedom - Little Love (02:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCFB5438A324436096E8FC9AD9AABD574321E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757754   (38925) от 29.10.2024
+
+VA - Musical kaleidoscope part 10 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey Boychenko - Requiem
+02. Sisco Le Voyageur - Peace of the Sand
+03. Besso - Nobody Else
+04. Kames, Umar Keyn - Love(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DF6D8F71319B22EA064615B8C2D849D44AEBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757969   (38784) от 30.10.2024
+
+VA - Trap Second Edition (2024) [MP3|320 Kbps] <TRAP>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skan, Krale, M.I.M.E, Drama B - No Glory (feat. M.I.M.E & Drama B) (4:36)
+02. TroyBoi, Diplo, Nina Sky - Afterhours feat. Diplo & Nina Sky (4:35)
+03. Skan, Krale, Veronica Bravo, Drama B - Rise (4:39)
+04. Bellorum - Front (2:22)(   Читать дальше...   )Жанр: TRAPПродолжительность: 04:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1638BC57D8D4AEBA43279D71E02FB7DB90DF0251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757870   (38782) от 30.10.2024
+
+VA - AI song, AI music CD 2 (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ai Talking - The Girl Out of My Dream
+02. Ai Talking - Intrigue in Versailles
+03. Ai Talking - Miss Universe
+04. Evgenypt - My Dear Alena(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 00:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069E3750AFA52B41BA43D1803973E76B52BFC9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758114   (38740) от 31.10.2024
+
+Сергей Грищук - Музыка для души Compilation Part 5 (2024) [MP3|320 Kbps] <Instrumental, electronic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Листопады
+ 02.  Лист Осенний
+ 03.  Капли Дождя
+ 04.  Журавлиный Крик(   Читать дальше...   )Жанр: Instrumental, electronicПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5731B9EE9747D575ECAB5916FB3BFA122E7EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758117   (38719) от 31.10.2024
+
+Danekoo1 - Compilation (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Beauty
+ 02.  Broken Angel
+ 03.  Love and Love
+ 04.  For Soul(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9F953015789996CAF85AAD7C96E4E5B847CAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758066   (38716) от 31.10.2024
 
 VA - Blues for Autumn Time (2024) [MP3|320 Kbps] <Blues>
@@ -571,180 +745,6 @@ VA - Music News For Forum vol.040 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8372B15C940F2A8992E8EC7288E81ECDA9B1163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759429   (37891) от 08.11.2024
-
-VA - Compilation part 129 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isskoy - Galaxy
-02. Jambeats - Baby
-03. Zerrid - Imagination
-04. Menda - Fallen(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1C949DB1382611E279512EB2E59D2F7A667FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759428   (37885) от 08.11.2024
-
-VA - Musical kaleidoscope part 11 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Enigmatic Music 2
-02. Diee & Kasimoff & Omer Said - Enigma
-03. Sisco Le Voyageur - Dreams
-04. Sisco Le Voyageur - Melodico Dream(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCD19C1E855081325931287EF344339518744D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759818   (37689) от 10.11.2024
-
-VA - Melodic Techno 1 2024 [MP3|320 Kbps] <Melodic Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture; Kevin de Vries; Yellowitz - Just Like Home (Kevin de Vries Remix) (5:03)
-02. Armin van Buuren; Agents of Time; ORKID - Love Is Eternity (3:33)
-03. John Summit; Kaskade; Julia Church - Resonate (4:01)
-04. Reverse; DeepMe; Ubo; Sāde Frame - Heat (4:13)(   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 04:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D28681AEE29117A3B4B6EBDBE233C960C24D683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759830   (37661) от 10.11.2024
-
-VA - Musical kaleidoscope part 12 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michel Pepe - Le Coeur Des Animaux
-02. Aleksey Boychenko - Magic Winter
-03. Sisco Le Voyageur - Anastasia N°2
-04. Kamro - Indilla Enigma(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95522BE7DDEF55396A71001D89F7E52457353BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759731   (37651) от 10.11.2024
-
-VA - Record Super Chart 09.11.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugel, Topic, Arash, Daecolm - I Adore You (3:34)
-02. Sophie and the Giants - Shut Up And Dance (2:57)
-03. Tayna, Marshmello & UKAY - Si Ai (3:04)
-04. Edward Maya feat. Yohani - Diamonds (2:08)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED305C1A8F52067366989D401D9979CC7B924166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759905   (37611) от 11.11.2024
-
-VA - Sick Disco Moves (2024) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37611.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelo Ferreri - That Riff 05:06
- 002. Jeanne Mas - Johnny Johnny 04:46
- 003. Donna Summer - Last Dance 07:47
- 004. Gloria Gaynor - I Will Survive 08:02(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 10:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80B400213513AEBBE91C2A3225F4957E85A39E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

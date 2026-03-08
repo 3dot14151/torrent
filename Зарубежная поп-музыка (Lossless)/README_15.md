@@ -1,3 +1,32 @@
+###  Публикация: 1099093   (906782) от 31.01.2017
+
+Marian Hill - Act One (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic, Minimalist>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down
+02. Talk to Me
+03. Wild
+04. Bout You(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Minimalist, R&B, Synthpop, Nu JazzПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E243C848BADF6F195A22DCEB347D24D54ABD2926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099151   (906642) от 31.01.2017
 
 Marian Hill - Sway (2015) EP [FLAC|Lossless|tracks] <Alternative Pop, Electronic, Minimalist>
@@ -714,35 +743,6 @@ VA - Die Hit-Giganten: Best of Disco (2013) Box Set, 3CD [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B89879A135FB66087933FA1A38E3CA8D84E5FFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869309   (890832) от 15.02.2015
-
-VA - BRAVO Hits 88 (2015) [FLAC|Lossless]<Pop, Rock, Dance, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890832.jpg" />
-</div>
-
-
-###  Подробнее
-
-BRAVO Hits представляет собой серию музыкальных сборников с актуальными хитами из европейских чартов и регулярно издается на CD с 1992 года. "Основателем" серии был популярный молодежный журнал BRAVO. В дополнение к основной ряду BRAVO Hits, насчитывающем на данный момент 87 выпусков, в серии появились также BRAVO: The Hits (раньше - BRAVO: Best Of) и BRAVO (   Читать дальше...   )01. Mark Ronson feat. Bruno Mars - Uptown Funk
-02. Charli XCX - Break The Rules
-03. Calvin Harris feat. Ellie Goulding - Outside
-04. David Guetta feat. Sam Martin - Dangerous(   Читать дальше...   )Жанр: Pop Compilation, Pop, Indie Pop, Rock, Pop Rock, Electronic, Hip Hop, Electro, Synthpop, Europop, R&B, Pop Rap, Euro House, Indie RockПродолжительность: 02:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493ACA5319E6FD657CF87B541AB2622C45FD2522
 ```
 
 https://mybot314.ru/tekegram_catalog/

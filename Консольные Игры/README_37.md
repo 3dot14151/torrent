@@ -1,29 +1,3 @@
-###  Публикация: 936872   (491355) от 13.09.2015
-
-JASF: Jane's Advanced Strike Fighters (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Jane's Advanced Strike Fighters (J.A.S.F.) – это превосходный авиационный симулятор в стиле flight combat от компании Trickstar Games. Сюжет переносит игрока на Ближний Восток, в вымышленную страну Азбаристан. Здесь уже более десяти лет идёт кровопролитная гражданская война. Большая часть страны занята Северной Народной Республикой. Лишь одну из провинций по-прежнему (   Читать дальше...   )Тип издания: LicenseРазработчик: Trickstar GamesЖанр: Simulator (Flight Combat) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E986A52CE79BF478E58D65A7E6770749A7FDA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936860   (491338) от 13.09.2015
 
 Turning Point: Fall of Liberty (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
@@ -676,6 +650,32 @@ Ninja Gaiden Sigma 2 (2009) [PS3] [USA] 2.80 [CFW] [Cobra ODE / E3 ODE PRO ISO] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838F48794E986E7550F16A4E46EC8228279F147C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320150   (472882) от 17.08.2019
+
+Ben 10 Ultimate Alien: Cosmic Destruction (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бен теперь является международным мега-звездным супергероем, после того как его секретная личность была раскрыта. Оснащенный новой Ultimatrix, Бен должен путешествовать по всему миру, чтобы собрать древние артефакты Galvan, с помощью которых удастся спасти Землю от таинственного космического шторма. Возьмите под свой контроль Бена и 17 новых инопланетных форм из (   Читать дальше...   )Тип издания: LicenseРазработчик: Papaya StudioЖанр: Action, Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71CF6E23E633A55DC1A0AADDF2736042C43214FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

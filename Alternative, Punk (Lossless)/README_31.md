@@ -1,3 +1,32 @@
+###  Публикация: 1309595   (550538) от 20.06.2019
+
+Bill Callahan - Shepherd in a Sheepskin Vest (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shepherd’s Welcome (02:22)
+02. Black Dog on the Beach (02:30)
+03. Angela (02:47)
+04. The Ballad of the Hulk (04:04)(   Читать дальше...   )Жанр: Folk Rock, Indie RockПродолжительность: 01:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2ADE6BB0872BC5BC21029E7BC365B343FE0D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309598   (550436) от 20.06.2019
 
 Two Door Cinema Club - False Alarm (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -713,35 +742,6 @@ Mega Bog - Dolphine (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF4486CA3CCDEF476DA49527FA82979A20D5A7E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311395   (541981) от 29.06.2019
-
-Tunng - This Is Tunng…Magpie Bites and Other Cuts (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heatwave (03:38)
-02. The Pioneers (04:25)
-03. Bodies (04:27)
-04. Pool Beneath The Pond (05:48)(   Читать дальше...   )Жанр: Indie, RockПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF80882DEF51737DE863A8B08A1C1DFD650A719
 ```
 
 https://mybot314.ru/tekegram_catalog/

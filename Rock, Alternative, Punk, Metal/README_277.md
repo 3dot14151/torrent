@@ -1,32 +1,3 @@
-###  Публикация: 1506133   (801731) от 29.10.2021
-
-Edguy - Mandrake (2001) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears of a Mandrake 7:12
-02. Golden Dawn 6:07
-03. Jerusalem 5:27
-04. All the Clowns 4:48(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6AA2559C960461ABC56644124181276E01AAA6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199404   (801717) от 15.01.2018
 
 CyHra - Letters To Myself (2017) Japanese Edition [MP3|320 Kbps] <Melodic Modern Metal>
@@ -748,6 +719,35 @@ Negator - Die eisernen Verse (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:751453B29D640D130AF0B5E333E58678E844D9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120748   (801266) от 01.04.2017
+
+The Four Horsemen - Nobody Said It Was Easy (1991) [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody Said It Was Easy
+02. Rockin' Is Ma Business
+03. Tired Wings
+04. Can't Stop Rockin'(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A374C0E50CB9A917ADC8A2DE7C879EB5DF5E854B
 ```
 
 https://mybot314.ru/tekegram_catalog/

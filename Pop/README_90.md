@@ -1,3 +1,61 @@
+###  Публикация: 1389829   (783947) от 12.06.2020
+
+Orlando Weeks - A Quickening (2020) [MP3|320 Kbps] <Indie Rock, Indie Pop, Singer-Songwriter>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milk Breath (03:16)
+ 02. Blood Sugar (03:36)
+ 03. Safe In Sound (04:25)
+ 04. St. Thomas' (03:17)(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, Singer-SongwriterПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4E2382012078D4FCFC0654C0F354D8005D439F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389639   (783937) от 12.06.2020
+
+The Replacements - Let It Be (Deluxe Edition) (1984) [FLAC|Lossless|tracks + .cue] <Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Dare (3:17)
+02. Favorite Thing (2:20)
+03. We're Comin' Out (2:21)
+04. Tommy Gets His Tonsils Out (1:54)(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88650D50D2EDCA4B9C4BE9E49E2E5D131C1BDA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389801   (783933) от 12.06.2020
 
 Montana - I Love Music (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -685,64 +743,6 @@ Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1990) A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C7E814E02231D6FFDBC58A05C9FC513BA8B3E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390655   (782632) от 16.06.2020
-
-Dee D. Jackson - 2 Albums (1978, 1980) LP Mint [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dee D. Jackson (рус. Ди Ди Джексон, полное имя Дейдр Элен Козьер - англ. Deirdre Elaine Cozier; род. 15 июля 1954, Оксфорд, Великобритания) - британская певица, композитор. Данные альбомы из-за былой популярности не нуждаются в своем представлении. Обложки альбомов, а так же название второго альбома в этом итальянском издании, отличаются от привычных. Спасибо  Dymokust (   Читать дальше...   )01. Automatic Lover (4:06)
-02. Red Flight (4:13)
-03. Galaxy Of Love (4:50)
-04. Meteor Man (4:45)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036C0E1081AFE28D050D575133B7A8879A7D42FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206386   (782547) от 13.02.2018
-
-Kongas - 2 Albums (1977,1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Tribal, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kongas сформировался во Франции в начале 1970-х годов. Группа может похвастался некоторыми членами, которые  изменили лицо диско-музыке. Среди них Don Ray и Cerrone.01. Anikana-O (10:15)
-02. Kongas Fun (6:06)
-03. Medley: What Ever Happened / Bongos Go (9:16)
-04. Jungle (5:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Tribal, DiscoПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA001BEC57D4CFE233F994C2A9C7D41CAF9FC10
 ```
 
 https://mybot314.ru/tekegram_catalog/

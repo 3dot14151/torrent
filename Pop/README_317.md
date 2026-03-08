@@ -1,3 +1,61 @@
+###  Публикация: 1525560   (129598) от 20.01.2022
+
+Ozo - 4 Albums (1976-1982) LP Collection [MP3|320 Kbps] <Electronic, Reggae, Dub, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ozo были уникальной многонациональной группой музыкантов, полностью преданных своей музыке и тому посланию, которое они передают. Музыкальное направление Оза находилось под влиянием вест-индийского регги в аранжировках диско ритмов в сочетании с концепцией буддизма.Список альбомов:
+1976 - Listen To The Buddha
+1978 - Museum Of Mankind
+1980 - In Disco Town(   Читать дальше...   )Жанр: Electronic, Reggae, Dub, Funk Soul, DiscoПродолжительность: 02:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE150D5200A540DCE6678C4ED38FC3CEEC62FDDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525630   (129389) от 21.01.2022
+
+Aurora - The Gods We Can Touch (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Forbidden Fruits Of Eden (0:40)
+ 02. AURORA, Pomme - Everything Matters (3:34)
+ 03. Giving In To The Love (3:01)
+ 04. Cure For Me (3:22)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170F1580BA3B065BD8054B963AF407CB5AF1255D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 116959   (128990) от 14.10.2025
 
 Богдан Титомир - Высокая Энергия (1992) [APE|Lossless|image + .cue] <Pop>
@@ -685,64 +743,6 @@ Disc1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F24EBBCD3908DFA299972F75B0C07E9645B1AE82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685903   (126923) от 20.12.2023
-
-Michael Cretu - Ausgewahlte Goldstucke (1994) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. '57 ( The Year I Was Born ) 4:29
-02. Fire And Rain 4:15
-03. Wild River 4:35
-04. Shadows Over My Head 3:54(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221D4F06721DF5149FA9B559382C255B44AC70FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685812   (126907) от 20.12.2023
-
-TV Girl - French Exit (2014) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Hypnotic Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Pantyhose (02:56)
-02.Birds Dont Sing (03:29)
-03.Louise (03:14)
-04.Hate Yourself (03:34)(   Читать дальше...   )Жанр: Hypnotic PopПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F39CDCD88B7B2914DAB790BF8509C9E8FD1C3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

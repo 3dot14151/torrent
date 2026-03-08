@@ -1,3 +1,177 @@
+###  Публикация: 907627   (638205) от 12.06.2015
+
+VA - Singapore Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long J. - Metal Life [03:49]
+02. Long J. - African Night [05:11]
+03. Mangaroka - Roundrop [03:58]
+04. Marlon - Airy Dawn [04:59](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3063A0330F2C8A2F42A18CFD8863A809228C4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033501   (638158) от 11.07.2016
+
+VA - Peaceful Sounds for Deep Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Waugh - Inner Peace
+02. Michael Keck - Restful Chimes Breeze
+03. Bobby Cole - The Sound of a Chinese Waterfall
+04. Jim Chappell - Seahorses(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 02:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F00A885A1E2E2D02DD96131864F6B8A07DFE372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033579   (638132) от 11.07.2016
+
+VA - Singing in the Car Fresh Hits Acoustic Covers Folk Afternoon Acoustic (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Space - Can't Stop the Feeling
+02. Beat four - Hello
+03. Lan Sub - Cake by the Ocean
+04. Subtube - Cheap Thrills(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441CFC760C71907C0BE3461D19352C4D0EAEF075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033468   (638130) от 11.07.2016
+
+VA - Hits 3 Summer (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638130.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+Пpодолжительность: 01:17:04
+
+01. Justin Bieber - Love Yourself(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA7DDE7C07B99CEF43AC28CF5AEC364A26B57D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033641   (638048) от 11.07.2016
+
+VA - Yoga Cafe: Finest Buddha and Relaxation World Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jessie goes to Bali - Soul Shine - Ibiza Chillout Cafe Mix
+02. Time Blazer - Morning Chant - Counting the Stars Mix
+03. Capital Sound - Empire of Sunlight - Take Back the Night Edit
+04. Ambient and the World Outside - Inside Nobodys Soul - Holy Grail Edit(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01906CF8C0D6DCAD2064653D2522EA64367D0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033606   (638024) от 11.07.2016
+
+VA - Русский хит. Летний выпуск №3 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638024.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Инфинити - Алло
+002. Виталий Верт - Ты Теперь Свободна
+003. Mseven - Танцуй В Темноте
+004. Потап & Настя - Ветра Холода(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2B69852DBA0C37FC265DCA66D4A33224830583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033497   (637943) от 11.07.2016
 
 VA - Молодежный Сборник Хитов 50x50 (2016) [MP3|256 Kbps] <Pop>
@@ -602,186 +776,6 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.01-30 (2017) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1FE9C388CD15C91CE39E5394F6976DEEEF84DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143219   (637078) от 17.06.2017
-
-VA - Jazz Iluzion (2017) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637078.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Instrumental Jazz Music Ambient - Soothing Jazz Music  2:50
-002.  Good Morning Jazz Academy - Lucid Dreaming  3:54
-003.  Wake Up Music Paradise - Night Walk  3:28
-004.  Jazz for Study Music Academy - Sweet Music (Activities For Children)  3:11(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 07:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5929A54B9FF6A996070A1542CE4D09A9DD11B318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143425   (636946) от 17.06.2017
-
-VA - Relaxing Instrumental Jazz Music (2017) [MP3|320 Kbps] <Smooth Jazz, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636946.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Jazz Piano Bar Academy - Cool Instrumental Song  3:29
-002.  Classical Romantic Piano Music Society - Erotic Dance  3:03
-003.  Cocktail Party Music Collection - Atmospheric Jazz  3:18
-004.  Good Morning Jazz Academy - Jazzy Romance  3:07(   Читать дальше...   )Жанр: Smooth Jazz, InstrumentalПродолжительность: 08:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4789CAE06EC91D4BF7DE8A02FD77D8CCC26FCC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143422   (636942) от 17.06.2017
-
-VA - German Top 100 Single Charts 16.06.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636942.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi - Despacito (feat. Daddy Yankee)
-002. Robin Schulz - OK (feat. James Blunt)
-003. David Guetta - 2U (feat. Justin Bieber)
-004. Imagine Dragons - Thunder(   Читать дальше...   )Жанр: PopПродолжительность: 05:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2DDA578ECD8215EA9D7EC167A1F4F6B9BC28B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519241   (636909) от 06.07.2012
-
-VA - The Best of 1980-1990 (20CD) (1990 - 1998) [MP3|320 кб/с]<Pop, Pop Rock, Synth-pop, Hip Hop, Electronic, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simple Minds - Don't You (Forget About Me) (Radio Edit)
- 02. David Bowie - Let's Dance
- 03. Yes - Owner of a Lonely Heart
- 04. Glenn Frey - The Heat Is On
- 05. Billy Idol - Catch My Fall
- 06. ZZ Top - Sleeping Bag
- 07. Whitesnake - Here I Go Again
- 08. Foreigner - Urgent
- 09. Pete Bardens - In Dreams (Album Version)
- 10. R.E.M. - The One I Love(   Читать дальше...   )Жанр: Pop, Pop Rock, Synth-pop, Hip Hop, Electronic, RockПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE375268A0991B8A389EB1D13F19AFA7DE09E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033515   (636342) от 12.07.2016
-
-VA - Generation Trance Shadows (2016) [MP3|320 Kbps] <Trance, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyau & Albert -  Be There 4 U (Ferry Tayle Radio Edit) 3:06
-02. Project 8 -  Injector (Original Mix) 7:00
-03. Jorn Van Deynhoven -  Flashback 3:15
-04. Sean Tyas & Darren Porter -  Relentless (Extended Mix) 6:56(   Читать дальше...   )Жанр: Trance, Energy, ProgressiveПродолжительность: 03:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA1D4F440F9A401A4AA67B85B3C4BF30B6FB15A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033761   (636274) от 12.07.2016
-
-VA - These Are Tuned 235 One Shots (2016) [MP3|320 Kbps] <House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636274.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Axizz & Freek vdH ft Lobke Verheyen -  Atlantis 5:21
-002. Blasterjaxx & Justin Prime -  Push Play (Original Mix) 5:05
-003. Armin Van Buuren feat Mr Probz -  Another You (Cid Radio Edit) 2:59
-004. Dimitri Vegas & Like Mike Vs DVBBS & Borgeous -  Stampede (Original Mix Edit) 2:56(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 21:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2268658A934F8C8E4485C6C4EA7F710454A56D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

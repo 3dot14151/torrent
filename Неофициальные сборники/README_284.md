@@ -1,3 +1,177 @@
+###  Публикация: 1139061   (661391) от 01.06.2017
+
+VA - The Land Of Romance (2017) [MP3|320 Kbps] <Pop, Rock Lyric>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661391.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Youssou N'Dour & Neneh Cherry - 7 Seconds
+002. Within Temptation - What Have You Done (Acoustic)
+003. Within Temptation - Overcome
+004. Within Temptation - Frozen(   Читать дальше...   )Жанр: Pop, Rock LyricПродолжительность: 07:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7526D3676A8E1CD4A4F76EE5E7A00D79A7401A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139077   (661305) от 01.06.2017
+
+VA - Yin-Yang Deep House Music Vol.02 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661305.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nico Stojan feat. Iannis Ritter - Dedicated
+002. FonnikDeep - Love (Broken Instrumental)
+003. James Silk - La Noche
+004. Sound Slave - Lost in Lost Angeles City (Deephope Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1133D38CE3E24867F3091779AB2F7257806541DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139052   (661294) от 01.06.2017
+
+VA - Yin-Yang Deep House Music Vol.01 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661294.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sebastian Phillip - People in the Club
+002. Gasmic - Bass Overdose
+003. Ramon Tapia - Highway
+004. Sergio Veros - Fly Away(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABB15C5BDEAFEA1F9490FC777B5709D2AE929CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139217   (661200) от 01.06.2017
+
+VA - American Country Blues (3CD) (2017) [MP3|256-320 Kbps] <Country, Folk Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661200.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Coco Montoya - Truth Be Told
+02. Don Williams - Cryin' Eyes
+03. Charlie Daniels - Billy The Kid(   Читать дальше...   )Жанр: Country, Folk BluesПродолжительность: 07:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0B5A16CC2132824AA22D6654AF20994B06D848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538880   (661088) от 22.03.2022
+
+VA - Get a Rock! 2 (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sueco - Loser (2:13)
+02. Е2 Знакомы - Зёрна (2:21)
+03. Ярик Бро - В Питере Дождь (2:38)
+04. The Score - Fighter (2:36)(   Читать дальше...   )Жанр: RockПродолжительность: 04:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D29728E095E0E0D57F13A015C0E1F1A118F611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138947   (661000) от 01.06.2017
+
+VA - 55 most slow Blues (Bonus) (2017) [MP3|320 Kbps] <Blues, Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Cray -  A Whole Lotta Pride
+02. Blues Cousins -  All Your Love
+03. Robert Randolph -  Angels
+04. Louisiana Red -  Arlene Blues(   Читать дальше...   )Жанр: Blues, Rock, Blues RockПродолжительность: 04:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660123D9F03BD5E7CA03D76B8EC8B1E8EF10F4A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139252   (660796) от 01.06.2017
 
 VA - Новинки С Разных Популярных MP3 Сайтов Vol.61 (2017) [MP3|256-320 Kbps] <Pop, House, Dance>
@@ -595,180 +769,6 @@ VA - Summer Dance Hits (2015) [MP3|320 кб/с]<Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B198CFCB4C8324F1F8CF4217D37968CE4E1AB88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903341   (659057) от 30.05.2015
-
-VA - USA Hot Top 40 Singles Chart 6 June (2015) [MP3|~245 кб/с (V0)]<Dancehall, Trap, Alternative, Electro-R&B, Electropop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift Feat. Kendrick Lamar - Bad Blood
-02. Wiz Khalifa Feat. Charlie Puth - See You Again
-03. Fetty Wap - Trap Queen
-04. Walk The Moon - Shut Up + Dance(   Читать дальше...   )Жанр: Dancehall, Trap, Alternative, Electro-R&B, ElectropopПродолжительность: 02:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0A70F8C3D204DB5E9311E9379AB0C441061254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539223   (659042) от 24.03.2022
-
-VA - Morning Chill & Relax (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto, Stevie Appleton - BLUE (2:48)
-02. Deepend, YouNotUs, Martin Gallop - Woke up in Bangkok (2:49)
-03. Jubel, NEIMY - Dancing in the Moonlight (2:44)
-04. Tobias Bergson, Michael Shynes - Sunset Wave (2:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DACD352D49C01BEDA15D8CC93FF4EA581108820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903356   (658950) от 30.05.2015
-
-VA - Тузы козырные Блатной суперсборник (2015) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658950.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная союза - Так было и будет
-002. Вадим Васильев - Тузы Козырные
-003. Дмитрий Сулей - Колыма
-004. Елена Хмель - Мой мужчина(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283F66BFD6F3A3BF0CACBAF4C64AD769EA94E324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903288   (658788) от 30.05.2015
-
-VA - Популярная хитовая сотка (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658788.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jennifer Lopez Feat. Iggy Azalea & Pitbull - Booty (Bali Bandits Remix) (05:07)
-002. Belka - Я Пришла (03:53)
-003. Afrojack, Martin Garrix - Turn Up The Speakers (04:03)
-004. Shami - Восток (04:00)(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9C711BC2D630A18C23964CC889F6F9A1E6DFEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139557   (658784) от 03.06.2017
-
-VA - Top 100 Зайцев.Нет Май (2017) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658784.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Аполлинария - Плохая девочка (Filatov & Karas Remix) 3:15
-002.  Егор Крид - Папина дочка 2:41
-003.  Burito - По волнам 3:19
-004.  Альбина - Не со мной 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F483370D5F45FFE61D3424B601E60CB908E60B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139600   (658544) от 03.06.2017
-
-VA - Дискотека забытых хитов #2 (2017) [MP3|320 Kbps] <Europop, Italo Disco, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658544.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  East 17 - It's Alright 4:41
-002.  Dr. Alban - Sing Hallelujah! 4:03
-003.  Scatman John - Scatman (Ski-Ba-Bop-Ba-Dop-Bop) 3:31
-004.  No Mercy - Where Do You Go 4:33(   Читать дальше...   )Жанр: Europop, Italo Disco, EurodanceПродолжительность: 07:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3FBB50EF3D9214FB8A10682D326EE5F70D0490
 ```
 
 https://mybot314.ru/tekegram_catalog/

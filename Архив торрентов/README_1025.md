@@ -1,29 +1,3 @@
-###  Публикация: 883752   (810701) от 01.04.2015
-
-Mortal Kombat. Антология: MK1/MK2/MK3/Ultimate/Sub-Zero (SEGA Genesis Game) [Ru/En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810701.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1998 году компания Tiger Electronics перенесла Mortal Kombat Mythologies: Sub-Zero на собственную карманную консоль с ЖК-дисплеем. Эта версия была ограничена возможностями электронного устройства с уже встроенной игрой. Также известна пиратская версия игры, которая была портирована на Sega Mega Drive, под названием Mortal Kombat 5: Sub Zero.Тип издания: пираткаРелиз состоялся: 2015 (порт с SEGA)Разработчик: не известенПоддерживаемая ОС: Android 2.3 +Жанр: Fighting, ДракиЯзык интерфейса: Русский, English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D50436B6B7F7253DC1BC34A9AD5D12EC24D857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 884018   (810698) от 01.04.2015
 
 Маша и Медведь: Дорогая передача (2015) WEB-DL [H.264/1080p-LQ] (Серия 49)
@@ -694,6 +668,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50D7D08597BEF1B2D3BFBD5777CAC6E66841C082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198271   (810364) от 10.01.2018
+
+Amin Yousefinejad - Implicit Point (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Soundscape>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound From Over The Universe (04:36)
+02. Self Absorption (03:45)
+03. Stars Are Dropped (04:56)
+04. Soul Of The Temple (06:51)(   Читать дальше...   )Жанр: Ambient, Drone, SoundscapeПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB57D7E51B8A306A46065464193E0FF4C8F99E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

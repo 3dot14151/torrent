@@ -1,3 +1,61 @@
+###  Публикация: 1693207   (121877) от 20.01.2024
+
+Hurts - Exile (2013) Deluxe Limited Edition [APE|Lossless|image + .cue] <SynthPop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exile (4:16)
+02. Miracle (3:44)
+03. Sandman (3:54)
+04. Blind (4:23)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537ED433F56A2872BCF9527481575CC547CA45F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693249   (121870) от 20.01.2024
+
+Philip Oakey & Giorgio Moroder (1985) 1st UK Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Must The Show Go On? / In Transit (Instrumental) (5:11)
+02. Good-Bye Bad Times (3:44)
+03. Brand New Love (Take A Chance) (4:06)
+04. Valerie (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E6F8C339C2B97AC73605DF1D6BF2FA79D359FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693245   (121865) от 20.01.2024
 
 Roxette - Joyride (1991) [APE|Lossless|image + .cue] <Pop>
@@ -684,64 +742,6 @@ VA - 100 Hits Number 1s (2018) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F4A9E51B16829FF303719F4D17AAD27AAE157BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696986   (119162) от 05.02.2024
-
-DJ BoBo - Greatest Hits (2006) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Secrets Of Love
-02.  Freedom
-03.  Everybody
-04.  What A Feeling(   Читать дальше...   )Жанр: Electronic, Euro HouseПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB1B084088B1F12471F3A48560718D0D9B2B2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697135   (119152) от 05.02.2024
-
-VA - Моя Любимая... (1995) German Press [APE|Lossless|image + .cue] <Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Лемешев - Одинокая Гармонь (3:00)
-02. Екатерина Семенкина - Огней Так Много Золотых (2:45)
-03. Georg Ots - Сормовская Лирическая (3:22)
-04. Татьяна Петрова - То Не Ветер (4:08)(   Читать дальше...   )Жанр: RetroПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D46FA013C8AA91CEB92DB6DB6F4F55363EFB4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

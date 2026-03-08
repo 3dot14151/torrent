@@ -1,30 +1,3 @@
-###  Публикация: 964770   (229492) от 12.12.2015
-
-Проекты - Pond5 - Christmas & New Year Project - 57109328 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для Вашего Новогоднего слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FDEF3BCFBE55EC9E2A6FFC46AC77401C360F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964637   (229223) от 12.12.2015
 
 Проекты - VideoHive - Christmas Pop-Up Card - 9559192 [AEP]
@@ -686,6 +659,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:167526D9B056E99CDBC933F3DCEF8378F0E2382F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851925   (225045) от 20.12.2014
+
+Revostock - Splatter Gallery - 124133 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Splatter Gallery - проект для создания слайд шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646CC84BC10914BF9161775BF3F69F1AE687987F
 ```
 
 https://mybot314.ru/tekegram_catalog/

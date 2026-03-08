@@ -1,3 +1,131 @@
+###  Публикация: 530644   (561104) от 03.08.2012
+
+VA - Танцевальный Экстаз. Зарубежный Выпуск (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561104.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta feat Sia - Titanium
+002. Blue Affair & Sasha Dith feat. Carlprit - Р
+003. Karosa feat. Kledia - Burning passion
+004. Mohombi - Maraca
+005. Lmfao - Sexy And I Know It (Stanislav Shik & Denis Rook remix)
+006. Emin - Falling (Raduga remix)
+007. Julian Perretta - Stitch Me Up
+008. Morandi - Midnight Train
+009. Bimbo Jones feat. Ida Corr - See you later (Da Brozz remix)
+010. Bob Sinclar Feat. Pitbull & Dragonfly & Fatman Scoop - Rock The Boat(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC5AEB2DB8F73DA47FAE1C7C29E0CBE2CA6A6E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045199   (560754) от 22.08.2016
+
+VA - Hot Music - Mix For Disco (2016) [MP3|320 Kbps] <Dance, Club, Trance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Selidos ft. Savannah Low - Hero (Original Mix)
+02. Stefan Gruenwald & Lokee feat. Pearl Andersson - Wicked Game (Club Mix)
+03. D05 - Armada (Original Mix)
+04. Dj Rocca & Fred Ventura - Looking For Love(   Читать дальше...   )Жанр: Dance, Club, Trance, HouseПродолжительность: 09:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12906D908E6C30C326A9A8600BC2F66ECF6F4C6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530675   (560690) от 03.08.2012
+
+VA - Музыка для тачки 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Flo Rida - Whistle
+02 Ассорти - Ангелы
+03 2-4 Grooves - Rockset 2012 (Video Edit)
+04 Маша Пирожкова - На юг
+05 Djane Housekat Feat. Rameez - My Party (Radio Version)
+06 Казанова - Попа-опа
+07 Remady &amp; Manu-L Feat. J Son - Single Ladies (Single Edit)
+08 A-Sen - Давай Поженимся (Dj Armilov &amp; Dj S-Nike Radio Version)
+09 Edward Maya Feat. Violet Light - Back Home
+10 G-Nise feat. Алексей Кабанов - Наше лето(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1EB3A3FBAEF301D3FC9C48D52113F774296656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923937   (560653) от 02.08.2015
+
+VA - Car Audio. Только позитивные впечатления. (Sound Clinic - Special Edition) (2015)[MP3|160-320 к<Deep, Tech, G-House, Trap, Dubstep, Electro, Trance, Progressive, Tec
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560653.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 303Bastard - Nightingale (Original Mix)
+2. Active Child - Hanging On (Chrome Wolves Bootleg)
+3. Adana Twins - Strange (La Fleur Remix)
+4. Adnan Jakubovic - Robot S Dream (Pavlin Petrov Remix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Trap, Dubstep, Electro, Trance, Progressive, TechnoПродолжительность: 20:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9914A44272BE40889590B7F452AE25A0E766E471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924133   (560403) от 02.08.2015
 
 ABBA - 25 Best Songs (2015) [MP3|~245 кб/с]<Disco>
@@ -655,122 +783,6 @@ VA - Soul and Love (2016) [MP3|320 Kbps] <Rock & Roll, Vocal, Rhythm & Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:069F311E5EB9D2CFB05DBAB446EC12B2118B5D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154040   (556876) от 28.07.2017
-
-VA - Romantic Songs: Summer Edition (2017) [MP3|320 Kbps] <Pop, RnB, Lyric Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556876.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Chris De Burgh - All For Love  4:00
-002.  Sia - Angel By The Wings  5:19
-003.  Bee Gees - Wish You Were Here  4:47
-004.  Jennifer Paige - The Devil’s In The Details  5:19(   Читать дальше...   )Жанр: Pop, RnB, Lyric RockПродолжительность: 07:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1948F5E8E3C1A9524CAA4147D84490950F178083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235871   (556606) от 14.07.2018
-
-VA - The Official UK Top 40 Singles Chart 13.07.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Years & Years - If You're Over Me
-02. George Ezra - Shotgun
-03. Clean Bandit feat. Demi Lovato - Solo
-04. Jonas Blue feat. Jack & Jack - Rise(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388192EC27F03C53866F1C806399BED7C2089650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235497   (556595) от 14.07.2018
-
-VA - Billboard Hot 100 Singles Chart 14.07.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drake, Big Freedia, 5thward Weebie - Nice For What
-002. Drake - Nonstop
-003. Cardi B, Bad Bunny & J Balvin - I Like It
-004. Drake - God's Plan(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D04152A087E25B1CC6D9890BBC9F3F0F64F07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236051   (556162) от 15.07.2018
-
-VA - Дискотека 2018 Dance Club Vol.181 от NNNB [MP3|320 Kbps] <Club, Deep House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1
-01. DJ Cargo - Summer Night (3:01)
-02. Mesto - Give Me Love (3:22)
-03. Sunrise Blvd ft Nelita - Can't Hide (Radio Version) (3:46)(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 15:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBC602593FAFE9904D771DCA419F3E7C528FB87
 ```
 
 https://mybot314.ru/tekegram_catalog/

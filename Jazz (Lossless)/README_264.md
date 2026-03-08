@@ -1,3 +1,32 @@
+###  Публикация: 1585627   (220698) от 23.10.2022
+
+Sergio Mendes & Bossa Rio - Voce Ainda Nao Ouviu Nada! (1964) 2002, Dubas Musica [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ela e Carioca [2:25]
+02. Amor em Paz [2:56]
+03. Coisa No.2 [2:46]
+04. Desafinado [3:19](   Читать дальше...   )Жанр: Bossa Nova, Latin JazzПродолжительность: 00:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A883D29DEBA3E77CB8EBBFF09CE86460D34DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585652   (220648) от 23.10.2022
 
 Low Kick Collective - Coma Berenices (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
@@ -716,35 +745,6 @@ The Power Quintet - High Art (2016) HighNote [FLAC|Lossless|tracks + .cue] <Post
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1993CA63539ED7CFA90B4FE7A372A422F33CA340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269799   (218356) от 16.12.2018
-
-Gil Evans - The Individualism of Gil Evans (1963, 1964) 2003, Universal [APE|Lossless|image + .cue] <Cool, Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time of the Barracudas [7:32]
-02. The Barbara Song [10:03]
-03. Las Vegas Tango [6:41]
-04. Flute Song/Hotel Me [12:34](   Читать дальше...   )Жанр: Cool, Bop, Big BandПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9475B530BD49D1E6B3B3132B13EBABF7B0ECE43
 ```
 
 https://mybot314.ru/tekegram_catalog/

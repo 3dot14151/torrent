@@ -1,3 +1,61 @@
+###  Публикация: 1265327   (275225) от 27.11.2018
+
+David Boydell - City Music (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Music (4:10)
+02. Jet Lag (3:03)
+03. Tokyo (2:54)
+04. Use Your Body (3:49)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F047F8D0D55E217D48B2373605129620371EBBC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265340   (275224) от 27.11.2018
+
+Loleatta Holloway - Love Sensation (1980) Charly Records, Reissue 1995 [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Sensation (6:07)
+02. Dance What 'Cha Wanna (5:13)
+03. I'll Be Standing There (4:53)
+04. I've Been Loving You Too Long (4:45)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C27F18F9E2C8BB5585515187039BF63EB56FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265276   (275205) от 27.11.2018
 
 VA - Bravo Hits Zima 2019 (2018) [MP3|320 Kbps] <Dance, Pop, R&B, Hip-Hop>
@@ -685,64 +743,6 @@ Burito - Белый альбом (2017) [FLAC|Lossless|image + .cue] <Pop-Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9054BD05378601069B91E607924421727B353DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265833   (273104) от 29.11.2018
-
-VA - Le Son Dancefloor 2019 (2018) 4CD [MP3|320 Kbps] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273104.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. DJ Snake - Taki Taki
-02. Dynoro - In My Mind
-03. Kungs - Be Right Here(   Читать дальше...   )Жанр: DanceПродолжительность: 04:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77887CC017FDB79A3822B6CBA7C7DA08230E9C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265482   (273048) от 29.11.2018
-
-VA - Discofox 2019 (2018) 2CD [MP3|320 Kbps] <Schlager Music, Disco, German Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273048.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Anna-Carina Woitschack - Alles oder nichts (FiWer Remix)
-02. G.G. Anderson - Du hast im Schlaf seinen Namen gesagt (Remix)
-03. Angelique - Ich verlieb Dich(   Читать дальше...   )Жанр: Schlager Music, Disco, German PopПродолжительность: 02:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9073882EBD0095139BC762FA652B889A9B3448B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1506366   (800892) от 30.10.2021
+
+Secret Garden - Sacred Night - The Christmas Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Folk>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Million Stars (3:51)
+02. Ave Maria (4:30)
+03. Sacred Night (4:08)
+04. Sagnet om julerosen (3:43)(   Читать дальше...   )Жанр: Classical, FolkПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF41F5D9431AB4158D8A139996E05BC8BC73A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506102   (800830) от 30.10.2021
 
 VA - Best of Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
@@ -714,35 +743,6 @@ Yann Tiersen - EUSA (2016) [FLAC|Lossless|tracks + .cue] <Neoclassical, Contempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:247D54A9DFE800BA24E6B64C0F4BFE41395AACDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206194   (782511) от 13.02.2018
-
-Tom Parker Featuring Berdien Stenberg & Jaap van Zweden - Bach - The Brandenburgs - The Concertos 1, 2 & 3 (A Tom Parker Project) (1995) 1997 [FLAC|Lossless|image + .cue] <Classical, Neo ...
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto No. 1
-1	Allegro	4:37
-2	Adagio	3:36
-3	Allegro	5:10(   Читать дальше...   )Жанр: Classical, Neo-ClassicalПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED3AC30438511152F62343156AF34CE27B50DF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

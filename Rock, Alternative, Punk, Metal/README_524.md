@@ -1,32 +1,3 @@
-###  Публикация: 1310322   (547861) от 23.06.2019
-
-Ducktails - III: Arcade Dynamics (2011) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Swing
-02. Hamilton Road
-03. Sprinter
-04. The Razor's Edge(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5553D1A81CECAF85A2941F6FC10C8D52216454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310325   (547858) от 23.06.2019
 
 Ducktails - St. Catherine (2015) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -744,6 +715,35 @@ Guesch Patti - Labyrinthe (1988) EMI France [APE|Lossless|image + .cue] <Pop Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4661E9DDF3B49536B24C88DA66EA61E6B29EDFF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694667   (546681) от 29.08.2013
+
+Popa Chubby - Universal Breakdown Blues (2013) [FLAC|Lossless]<Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Want Nobody (4:20)
+ 02. I Ain't Giving Up (4:37)
+ 03. Universal Breakdown Blues (4:42)
+ 04. The Peoples Blues (8:47)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0FB76D69BB253F21B2730C7877C62CBD45F487
 ```
 
 https://mybot314.ru/tekegram_catalog/

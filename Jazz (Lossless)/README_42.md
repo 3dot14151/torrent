@@ -1,3 +1,32 @@
+###  Публикация: 993613   (895911) от 05.03.2016
+
+Sam Morrison - Dune (1976) Remaster, 2015, Universal[FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Song Of Landa [10:18]
+ 02.I Knew It Right A Way [07:29]
+ 03.Miles Away [08:28]
+ 04.Wonder [04:42](   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4E9358D0951DD71F7F700E9541B9E76551C793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493450   (895701) от 03.09.2021
 
 Helen Humes - 1945 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Freddie Hubbard - Keystone Bop: Sunday Night (1981) 1994, Prestige[FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:786BF435CFBC6938FB903397A09ED95736889F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994360   (891658) от 07.03.2016
-
-Brother Jack McDuff - Tobacco Road (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Teardrops From My Eyes [02:08]
- 02.Tobacco Road [03:00]
- 03.The Shadow Of Your Smile [03:56]
- 04.Can't Get Satisfied [05:15](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-Funk, Hammond OrganПродолжительность: 00:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1263606C3C3C9D91DBE6C9596E99ECB38965FFD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

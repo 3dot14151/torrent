@@ -1,3 +1,32 @@
+###  Публикация: 1640748   (233900) от 19.06.2023
+
+Carrol McLaughlin - Jazz Harp (1985) 1997, Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fool on the Hill [2:34]
+02. Take Five [5:05]
+03. Bluesette [2:34]
+04. Classical Gas [3:35](   Читать дальше...   )Жанр: Mainstream jazzПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44CE88410C651E8DB803E5931121891B66F9FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640749   (233870) от 19.06.2023
 
 Melissa Stylianou - Dream Dancing (2022) Anzic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
@@ -716,35 +745,6 @@ Illinois Jacquet & His Big Band - Jacquet's Got It! (1987) Atlantic [WavPack|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E861C594046CD9B0AC3E64D493F2273269515C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642888   (233087) от 29.06.2023
-
-Roberto Tola - Under The Leo Sign (2023) [FLAC|Lossless|WEB-DL|tracks] <Smoonth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Driving To Madrid (feat. Marco Rasa) (Radio Edit) (3:48)
-02. Maraya (feat. Bill McGee) (4:38)
-03. Says (4:39)
-04. Sun Kiss (4:36)(   Читать дальше...   )Жанр: Smoonth JazzПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD43D21B505870B40AC51C784FD695A59B99E6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

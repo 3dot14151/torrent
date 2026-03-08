@@ -1,3 +1,32 @@
+###  Публикация: 1040864   (584260) от 07.08.2016
+
+VA - Suicide Squad / Отряд самоубийц (The Album) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
+02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker For Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:03)
+03. twenty one pilots - Heathens (03:16)
+04. Action Bronson, Mark Ronson & Dan Auerbach of The Black Keys - Standing In the Rain (03:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D89690821D611D38F602C876B45048545017EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919429   (584030) от 18.07.2015
 
 Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumental, Meditation>
@@ -710,35 +739,6 @@ Jamestown Revival - San Isabel (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B57AA23C5EB58C2F2821F2859A82ACA0DE49D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233991   (576179) от 02.07.2018
-
-Michael Forster - Piano Chill (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age, Modern Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another love
-02. Let her go
-03. Helium
-04. Vladimir s blues(   Читать дальше...   )Жанр: Instrumental, Piano, New Age, Modern ClassicalПродолжительность: 01:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C26B3EEDBCB3C035718ED7CE181CB1B7D615A7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

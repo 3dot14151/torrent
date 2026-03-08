@@ -1,3 +1,61 @@
+###  Публикация: 1445998   (237999) от 07.02.2021
+
+Gacha Bakradze - Obscure Languages (2021) Lapsus Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Electro>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indivisible (07:40)
+ 02. Thank You For This Upload (04:31)
+ 03. Driver (02:53)
+ 04. Frame (05:46)(   Читать дальше...   )Жанр: Ambient, IDM, ElectroПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FE4AB5B35DFAD4E569A9EC3380A78C112335C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446294   (237910) от 08.02.2021
+
+Sangam - Until (2016) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignore (01:38)
+ 02. Split Apart (03:04)
+ 03. Tapestry of Taize (04:06)
+ 04. Letting Go (01:20)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C220D582446426097A6B58A63502FC9EE918AFA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446178   (237903) от 08.02.2021
 
 Tim Schaufert - Our Wreckage (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -680,64 +738,6 @@ VA - Quantize Soulful House Collection Vol. 1 - Compiled & Mixed By Renée Melen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8787686BD27C794FF39BCF3B8F7EE068A39B736A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639657   (236850) от 14.06.2023
-
-Degenerated Sequences - Schism (2023) [MP3|320 Kbps] <Dark Electro, EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nightcrawler [00:06:25]
-02 - Divine Redemption [00:04:37]
-03 - Violent Termination [00:04:59]
-04 - Lust For Extinction [00:05:00](   Читать дальше...   )Жанр: Dark Electro, EBM, IndustrialПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52187A3E78D6D3354D32BB1AE206C37D9D0BD2E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639764   (236837) от 14.06.2023
-
-Degenerated Sequences - Schism (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nightcrawler [00:06:25]
-02 - Divine Redemption [00:04:37]
-03 - Violent Termination [00:04:59]
-04 - Lust For Extinction [00:05:00](   Читать дальше...   )Жанр: Dark Electro, EBM, IndustrialПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95EDB6ADBC6935F9B3190F9EE77F21DED661983A
 ```
 
 https://mybot314.ru/tekegram_catalog/

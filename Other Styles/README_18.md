@@ -1,3 +1,32 @@
+###  Публикация: 1090555   (945975) от 07.01.2017
+
+Phil Thornton - Seven Rings (feat. Sika) (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Consciousness Shift (feat. Sika) [00:08:08]
+02. First Light (feat. Sika) [00:09:51]
+03. Forest Spirit (feat. Sika) [00:11:48]
+04. Pure (feat. Sika) [00:10:27](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8451A35F0F0A27028EF98A1F2C35146A0D9E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090517   (945857) от 07.01.2017
 
 Игорь Матвиенко - Викинг (Оригинальный саундтрек к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -715,35 +744,6 @@ R. Carlos Nakai & Will Clipman - Awakening The Fire (2013) [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9595991F6F46694EDDCFFE4B5A1A4EF0D96215E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091423   (941438) от 10.01.2017
-
-George Streicher - Howard Lovecraft and the Frozen Kingdom / Говард и Замерзшее королевство  (2016) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title
-02. The Asylum
-03. Dark Journeys
-04. The Journal(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A54048F14D194ED368C54169C08D0B7DDD075A
 ```
 
 https://mybot314.ru/tekegram_catalog/

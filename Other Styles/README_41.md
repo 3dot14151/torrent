@@ -1,3 +1,32 @@
+###  Публикация: 1010134   (801981) от 25.04.2016
+
+Harp Twins (Camille and Kennerly) - 3 альбома (2013 - 2015) [MP3|320 кб/с] <Harp, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance of Death	(7:12)
+02. Hotel California	(4:57)
+03. Eye of the Tiger	(2:40)
+04. The Unforgiven	(4:58)(   Читать дальше...   )Жанр: Harp, InstrumentalПродолжительность: 02:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC39E462D08E47AA149216A8085C804A1DF66A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120304   (801967) от 31.03.2017
 
 Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [FLAC|Lossless|image + .cue] <Disco, Soundtrack>
@@ -716,35 +745,6 @@ Cliff Carpenter - 6 альбомов (1972-1983) LP-Rip [MP3|320 Kbps] <Pop, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:152D00B5996DAFAE04D8F99477078A2BBEE7DE09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121075   (800425) от 02.04.2017
-
-David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Television Soundtrack) (2012-2017) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Was Different (03:49)
-02. Doing a Good Thing (02:17)
-03. 3 Suspects (02:11)
-04. Pick Up (05:15)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 05:02:41 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E03AE893A3206B585512BE855DD41598E85CF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

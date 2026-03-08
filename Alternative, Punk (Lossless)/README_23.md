@@ -1,3 +1,32 @@
+###  Публикация: 1289995   (681879) от 18.03.2019
+
+Amanda Palmer - There Will Be No Intermission (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All The Things (01:23)
+02. The Ride (10:13)
+03. Congratulations (00:37)
+04. Drowning In The Sound (05:45)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F9A46AAD00D8507174909E2B9A6FE4AAE63C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289927   (681878) от 18.03.2019
 
 Red Hot Chili Peppers - Transmission Impossible (2016) 3CD, Remastered, Compilation [FLAC|Lossless|tracks + .cue] <Funk Metal, Punk>
@@ -725,35 +754,6 @@ Skillet - Dominion (2022) [FLAC|Lossless|image + .cue] <Alternative Metal, Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DA4CCF9B6E0882624B3D69B2A70E8867E59D766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139920   (658214) от 04.06.2017
-
-Earshot - Two (2004) [FLAC|Lossless|tracks + .cue] <Alternative, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658214.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wait (3:33)
-2. Tongue-Tied (3:46)
-3. Fall Apart (4:31)
-4. Someone (3:45)(   Читать дальше...   )Жанр: Alternative, Nu MetalПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F2F2C0E0A604F335E6B1A71BE8BDB4681E87EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

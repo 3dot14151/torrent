@@ -1,3 +1,32 @@
+###  Публикация: 1361162   (957077) от 18.02.2020
+
+Karizma Duo - Acoustic Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On Eileen 02:31
+02. Someone You Loved 03:19
+03. Take On Me 03:23
+04. Teenage Dirtbag 03:39(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CA1D85A8C2C50F90FEDD3F7A0A12D805E5CEFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980518   (956156) от 29.01.2016
 
 Fancy - Five (1990) [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, Disco>
@@ -714,35 +743,6 @@ VA - Women Of 80s Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8583585809BCE72134A4CCAE087E961A5DD57F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983140   (945468) от 05.02.2016
-
-VA - It Had To Be You • The Ultimate Love Songs (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Coldplay - Fix You [4:55]
-02.Lily Allen - Somewhere Only We Know [3:30]
-03.Gabrielle Aplin - The Power Of Love [4:06]
-04.Labrinth feat. Emeli Sande - Beneath Your Beautiful [3:58](   Читать дальше...   )Жанр: Pop, Pop Rock, Ballad |Продолжительность: 03:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D0908087D68FDC080EAFDB9A12133EBB0453CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

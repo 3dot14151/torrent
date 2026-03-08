@@ -1,3 +1,61 @@
+###  Публикация: 1550880   (591200) от 13.05.2022
+
+Colombo - The Antological Big Beat (2021) [FLAC|Lossless|WEB|tracks] <Big Beat, Breakbeat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Combustion (Original Mix) (5:29)
+02. Contact (Original Mix) (3:53)
+03. Poisen (Original Mix) (5:17)
+04. Horny Bass (Original Mix) (4:18)(   Читать дальше...   )Жанр: Big Beat, BreakbeatПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0CA5FEBEF3BD533B10AE55FB1874F09AF41B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550805   (591198) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TELEGIMNASTIKA - Komarov (4:17)
+02. samm-n11 - Deep Rest (2:31)
+03. Miows - Retrigger (2:48)
+04. Alexander Gepindiker - French Speaker (5:56)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B21B722FC9B848C49BBE4D8CE922AEC3611F2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550916   (591197) от 13.05.2022
 
 Sinister Souls - FCKN Hostile (2019) [MP3|320 Kbps] <Drum & Bass, Neurofunk, Crossbreed>
@@ -685,64 +743,6 @@ KMFDM - Salvation (2015) EP [MP3|320 кб/с]<Aggro-Industrial>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F2223F9B44D07574199E5ACD1281A679D1D48F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551947   (589000) от 18.05.2022
-
-Alan Morris - Made Of Light - The Best Of (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Morris feat. Jess Morgan - Made Of Light (Radio Edit) (4:08)
-02. Ana Criado & Alan Morris - Border Line (Radio Edit) (3:14)
-03. Alan Morris & Katty Heath - Captive Of Your Heart (Original Mix) (3:40)
-04. Alan Morris & Ellie Lawson - Find Myself In Losing You (Radio Edit) (3:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807F30BC62E02F8D7C4C35574403D45F43EE6BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917883   (588600) от 13.07.2015
-
-Dance With the Dead - Send The Signal [EP] (2014) [MP3|320 кб/с]<Electronic, Retro Wave, Dreamwave .>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588600.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. They're here (intro) 02:39
-2. Poison 04:40
-3. Not of this earth 04:17
-4. Space walk 04:42(   Читать дальше...   )Жанр: Electronic, Retro Wave, Dreamwave .Продолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B71A4AE30362056CF986EB36A1BDBABF62083B
 ```
 
 https://mybot314.ru/tekegram_catalog/

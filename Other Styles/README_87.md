@@ -1,3 +1,32 @@
+###  Публикация: 1552258   (588494) от 19.05.2022
+
+Giovanni Marradi - The Best of Giovanni, Vol. 2 (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Annie's Song (2:25)
+02. A Time for Us (3:08)
+03. Spanish Eyes (2:35)
+04. Hymne (2:39)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12F10D214EB5499D759186E73A42773B3A3461D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552254   (588492) от 19.05.2022
 
 Giovanni Marradi - Italian Love Songs (2006) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
@@ -722,35 +751,6 @@ OST Daft Punk - Tron Legacy (2010) [MP3|320 kbp/s]<Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7CEC3F53A69A134C28B52A3210DE66E19FAC15E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040864   (584260) от 07.08.2016
-
-VA - Suicide Squad / Отряд самоубийц (The Album) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
-02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker For Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:03)
-03. twenty one pilots - Heathens (03:16)
-04. Action Bronson, Mark Ronson & Dan Auerbach of The Black Keys - Standing In the Rain (03:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D89690821D611D38F602C876B45048545017EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

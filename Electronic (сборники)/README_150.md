@@ -1,3 +1,32 @@
+###  Публикация: 1413519   (408097) от 04.10.2020
+
+VA - Свежак Vocal Trance NNM (2020) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond feat. Zoe Johnston - Reverie (3:52)
+02. Alex M.O.R.P.H. feat. Cheryl Barnes - Against The Wind (3:24)
+03. Alexander Popov & Enzo feat. Cari - Stranger Inside (3:14)
+04. Alpha 9 - Tell Me (4:07)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 06:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0633D5DAFA345A0132EEDE95BA1C7BBF4487E30D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413635   (408095) от 04.10.2020
 
 VA - Beatport Deep House: Electro Sound Pack #176 (2020) [MP3|320 Kbps] <Deep House, Electro>
@@ -784,35 +813,6 @@ Secret Service - 25 Best Songs (2012) [MP3|206 - 282 кб/с]<Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8871DD08B28AD0F01AE96005BE0D4C67773A53D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712398   (403245) от 19.10.2013
-
-Pet Shop Boys - 25 Best Songs (2012) [MP3|227 - 266 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go West 1993
-02. Love Etc. 2009
-03. Suburbia 1986
-04. It's A Sin 1987(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77374C9C30DA0F8416E37D94A2579B800D126E31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1264343   (281083) от 23.11.2018
+
+Rita Ora - Phoenix (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rita Ora – Anywhere (03:35)
+02. Rita Ora – Let You Love Me (03:11)
+03. Rita Ora – New Look (02:34)
+04. Avicii – Lonely Together (feat. Rita Ora) (03:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3371C10BB100C00B27B296D5B4B29EBD28E8158F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264428   (281079) от 23.11.2018
+
+Митя Фомин - 4x4. Акустика (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наглый Ангел
+02. Смотри
+03. Едва Дыша
+04. Нить Из Угля(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39004209C83CB62F37CCAEB436C2EDCED4DF0358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264387   (281074) от 23.11.2018
 
 Анжелика Варум - На паузу (2018) [MP3|320 Kbps] <Pop>
@@ -685,62 +743,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E2A8473D9CF5BC7B83992E1FAC4C06AA1DCF2AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264851   (277715) от 25.11.2018
-
-Italian Disco Mafia - 1 Album, 2 Singles (2012, 2018) [MP3|320 Kbps] <Italo-Disco, Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confessa (Extended Mix) (7:14)
-02. Confessa (Radio Edit) (3:48)Жанр: Italo-Disco, Disco, DanceПродолжительность: 02:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0217E64B87649B7D604D8E7A598B459E486B5BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264864   (277707) от 25.11.2018
-
-Eros Ramazzotti - Vita Ce N'e (2018) Universal Music Group [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/15. Per Il Resto Tutto Bene (3:26)
- 02/15. Vita Ce N’é (3:12)
- 03/15. Vale Per Sempre | Feat. Alessia Cara (3:25)
- 04/15. Siamo (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4938E7CAC76E3C6F215D1E5DFDBD51C4715AA877
 ```
 
 https://mybot314.ru/tekegram_catalog/

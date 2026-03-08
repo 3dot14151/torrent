@@ -1,3 +1,119 @@
+###  Публикация: 1093212   (934999) от 14.01.2017
+
+VA - Italo Super Hits Vol.33 (2017) [MP3|320 Kbps] <Italo-Disco, Hi-NRG, Euro Disco, Spacesynth>
+
+>>След.
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Galera - Don't Cry (Tony Costa remix)  6:40
+02.  Bobby Orlando - When  4:10
+03.  Energy Voice - The Radio Star (Mexican Club Mix)  6:52
+04.  Space Purr - Flower Planet  2:57(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro Disco, SpacesynthПродолжительность: 02:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBAB8EB570E6C2A6F494896EB5F06C154107C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985797   (933993) от 12.02.2016
+
+VA - Медлячок в машину. Зарубежная версия 1 (Из треков 2014) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933993.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Richard Marx - Inside
+002. Patrick Fiori - Demain
+003. Alex Lloyd - Last Bell
+004. Danny Fernandes - Breathe Again(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F705D643A70EBFE2DEB194454F08EAF4562636C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985779   (933987) от 12.02.2016
+
+VA - Лучшие хиты года. Часть 4 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933987.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kaiser Chiefs - Falling Awake
+002. Базиль - Ищи Другого
+003. Lawson - We Are Kings
+004. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0452E06AAD6D2DF391C46123FC2DF4EB6290B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985851   (933932) от 12.02.2016
+
+VA - Metal & Rock Collection (2016) [MP3|320 кб/с] <Metal, Rock, Hard-Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrenaline Mob - Indifferent 04:30
+02. Axel Rudi Pell - Edge Of The World 05:18
+03. Black Veil Brides - New Religion 03:50
+04. China - That's A Lot Of Love 03:18(   Читать дальше...   )Жанр: Metal, Rock, Hard-RockПродолжительность: 03:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935429BD9D9FFA735BFA82EABB17B78AF3B8183A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093636   (933893) от 15.01.2017
 
 VA - Club Dance Ambience Vol.98 (2017) [MP3|320 Kbps] <Dance, Club, Club House, House, Electro House, Electro>
@@ -636,122 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A307500A87EC4B64AE4AC2ACCFFDE845F6670F16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987337   (925971) от 17.02.2016
-
-VA - Modern EuroDisco 80`s (2016) [MP3|239-320 kbps] <Disco, Pop, Dance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925971.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Linda Jo Rizzo - You're My First, You're My Last 2012
-002. Rockets - Electric Delight (Don't Stop)
-003. Boney M - Happy Song (DJ Viduta & DJ DimixeR remix)
-004. P.Lion - Happy Children (Mix Version)(   Читать дальше...   )Жанр: Disco, Pop, Dance, RemixПродолжительность: 09:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6D4BBF90A0B556F567644350CB86180DD2D05C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987519   (925970) от 17.02.2016
-
-VA - Русский ураган супер хитов (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925970.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мохито - Улыбаться С Тобой (Version 2016)
-002. Kristina Si - Хочу
-003. Fandorin - Магнитом
-004. Master Spensor & Leila - Сила Любви(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A3E219E6EAD488D656C330D9FAAF59E4FDAC4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366221   (925684) от 10.03.2020
-
-VA - не Громкие новинки недели 58 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925684.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.ЯрмаК - Пара Года (5:20)
-2.Евгений Попов - Танцуй (4:29)
-3.Наталья Подольская - Останься Со Мной (4:20)
-4.Жаклина - Буду Твоей (4:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AD0D9EC05A3B5E503395C004ABC9DA91B82A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987526   (925481) от 17.02.2016
-
-VA - Record Russian mix (2016) [MP3|320 kbps] <Dance, club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925481.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Iowa - Улыбайся (Ivan Frost Radio Edit)
-002. Олег Газманов - Глаза в глаза
-003. Иван Дорн - Не улетай (Anthony El Mejor Mash)
-004. Перекрёстки - Bahh Tee(   Читать дальше...   )Жанр: Dance, clubПродолжительность: 06:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24F98C97BE4C8F55C94AFB21CFFB549BCCF7EB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

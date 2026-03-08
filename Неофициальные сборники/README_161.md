@@ -1,3 +1,177 @@
+###  Публикация: 1505577   (802743) от 28.10.2021
+
+VA - The Delicate Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802743.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Darren Studholme - Pieces
+002. Juno Valdez - This Is Your Life
+003. Alex Poet feat. Michelle Weeks - Where Do I Begin
+004. Rony Seikaly - Frontin'(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3248BA494717F50B779F3EF74729CC38F62A352A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505465   (802739) от 28.10.2021
+
+VA - Music News vol.144 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Елена Бергер - Я Не Вернусь (03:51)
+ 02. Alfons feat. B3nte & Jessica Chertock & B3va - Puppeteer (02:33)
+ 03. A-Mase feat. Sharliz - I Never Felt So Right (03:31)
+ 04. Besomage feat. Antomage & Bromage - Thank You (02:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48973F017C09C558A160953D8DE9872BD78515D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505541   (802729) от 28.10.2021
+
+VA - Agoraphobia: Techno Electronic Party (2021) [MP3|320 Kbps] <Techno, Electronic, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802729.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Serenace - Reflex Dub
+002. Rewach - Tronic
+003. Fruhwerk - Walking Robot
+004. Oscar Sanchez - Gumede(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 11:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9FA10F75F0074BD1969C85E0A65E8C73E11257E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384419   (802655) от 20.05.2020
+
+VA - Hot New Rock (2020) [MP3|320 Kbps] <Dance, Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pretty Reckless - Death By Rock And Roll
+02. Grey Daze - Soul Song
+03. Biffy Clyro - Tiny Indoor Fireworks
+04. Frank Carter & The Rattlesnakes - Bleed(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 03:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4381524BB0A2BBA58B4975AF85315B11457C83C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384371   (802643) от 20.05.2020
+
+VA - Acoustic Covers (2020) [MP3|320 Kbps] <Pop, Rock, Acoustic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passenger - Dancing in the Dark (Recorded At Deezer, Sao Paulo)
+02. José González - Heartbeats
+03. Birdy - Skinny Love
+04. Isaac Gracie - you Only Live Once(   Читать дальше...   )Жанр: Pop, Rock, AcousticПродолжительность: 03:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF871A41C1A604D1B68CF4BC0B68052A77560CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505778   (802487) от 28.10.2021
+
+VA - Deep House, Baby 2 (2021) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Forsberg - I Labyrintens Mitt. (8:04)
+02. Dellmon West.K - You39ll Find Me (Deepjack Mr.Nu Remix) (7:47)
+03. Cut - Out of Touch (Deepness Feat. Enzo Paradiso Remix) (7:18)
+04. Paul Diep - Like Jewerly (HIGHLITE Remix) (7:05)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758F36B609A9BCA88AF8CA746D3670664DCD3D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010544   (802425) от 25.04.2016
 
 VA - Хиты то, что надо. Спецвыпуск (2016) [MP3|256 кб/с] <Shanson>
@@ -571,177 +745,6 @@ Back To The Past To Listen To The Disco From Ovvod7 - 0001
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BD51F912A9FE1E344E8F371676EED8601263771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504264   (801315) от 29.10.2021
-
-VA - SVS Collection vol.2 by MR.DJ (2018) [MP3|320 Kbps] <Deep House, Disco House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801315.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A-Mase & Sharliz - Catch  (Club Radio Mix)
-002. A. Rassevich - Hate Me Tonight (Original Mix)
-003. Abaze  -  Stardust (Original Mix)
-004. Ace Of Bace  -  The Sign (Necola Remix) (Radio Edit)(   Читать дальше...   )Жанр: Deep House, Disco House, Electro HouseПродолжительность: 13:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311EBD759212879186E62B0123AC67941D02585E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384685   (801301) от 21.05.2020
-
-VA - Ремиксы от MGDC FM Vol 5 (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. #2Маши - Лето у виска (Dj Pototskiy X Dj Mephisto Radio Edit) (3:54)
-2. 5sta Family - 5 минут (DJ Safiter Remix) (4:23)
-3. Alexeev - Пьяное Солнце (Alex Shik & Dj Bandy Remix) (4:03)
-4. Anthony El Mejor VS Denis Rublev - Ласковая Моя (DJ Prezzplay Cover Remix) (5:00)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3427DB988DD84044F4218B1DA08854C23F69F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120809   (801267) от 01.04.2017
-
-VA - Beatport Trance  Pack (01.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Michael Rods - Lost In Your World (Original Mix)  7:35
-02.  Luke Terry - Achelous (Original Mix)  6:37
-03.  Aly & Fila - Beyond The Lights (Extended Mix)  7:46
-04.  Symsonic - Desert Rain (Original Mix)  7:11(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 02:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2D34B27FA0C97F8F6C3739F52AC8778FD35AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120919   (801254) от 01.04.2017
-
-VA - Fast Running Music (2017) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camo & Krooked - FaithЖанр: Drum & BassПродолжительность: 04:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E66ABA084D37F886BE4DE6095BCCE9E771A5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120823   (801233) от 01.04.2017
-
-VA - Chillout Hits Vol.5 (2017) [MP3|320 Kbps] <Chillout , Chillstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arnold T – Summertime Sadness
- 02. Benatural – Lake (Extended Mix)
- 03. E-motive – Street Waves
-04. Miper – Hide(   Читать дальше...   )Жанр: Chillout , ChillstepПродолжительность: 04:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88A8D36DE9BADBB02CD5185D95F72BF7AD42643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120896   (801169) от 01.04.2017
-
-T-Bone Walker - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Is A Woman
-02. Glamour Girl
-03. No Worry Blues
-04. I Got The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6B65303CE9CB26B43027A0FF9050459B268ED9
 ```
 
 https://mybot314.ru/tekegram_catalog/

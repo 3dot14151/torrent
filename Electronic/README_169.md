@@ -1,3 +1,61 @@
+###  Публикация: 1523164   (753291) от 10.01.2022
+
+VA - Future Trance - Best Of 25 Years (2022) [MP3|320 Kbps] <Trance, Progressive, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753291.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scooter - The Logical Song (3:53)
+002. Groove Coverage - God Is A Girl (Radio Edit) (3:38)
+003. ATB - Don't Stop! (Airplay Edit) (3:46)
+004. Sylver - Turn The Tide (Radio Edit) (4:04)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 05:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC9F7B8F7B28D813C37480EE449DCF63D940CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523101   (753150) от 10.01.2022
+
+VA - Dream Dance Vol 92 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Dance Alliance - Hypnotized (Extended) (5:38)
+02. Armin van Buuren & Davina Michelle - Hold On (Extended Club Mix) (6:14)
+03. ATB feat. Ben Samama - Like That (Extended Mix) (3:49)
+04. Chicane - Now Or Never (Extended Mix) (5:01)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1368BC5322EBA0BDAE32F98C039C02E0FF56D30C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216207   (753064) от 29.03.2018
 
 VA - Grotesque Spring Essentials (Mixed by Ram & 2Nd Phase) (2018) [MP3|320 Kbps] <Trance>
@@ -686,62 +744,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9352F369181257E4F454C20B271B73B8B15DE515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216446   (751209) от 30.03.2018
-
-Café del Mar - Phuket (2018) [MP3|320 Kbps] <Downtempo, Chill House, Nu Disco>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск1
-01. Cassady Locke - Mafele (Original) 8:13
-02. Musumeci - Hey Mama (Original Mix) 5:13
-03. Tuccillo and Kiko Navarro featuring Amor - Lovery (Yoruba Soul Mix) 7:18(   Читать дальше...   )Жанр: Downtempo, Chill House, Nu DiscoПродолжительность: 01:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C59DE8FF09823349B0D65D0CF11AC8FD0B0F24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228691   (751030) от 08.02.2019
-
-Enrico Sangiuliano - Discography 14 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Ambient, Psytech>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astral Projection (08:04)
- 02. Blooming Era (07:13)Тип издания: WebЖанр: TechnoПродолжительность: 00:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E919C585E1B6268D7FF0F4FC162B49855583B4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

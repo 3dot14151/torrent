@@ -1,3 +1,61 @@
+###  Публикация: 1257208   (347482) от 25.10.2018
+
+VA - Psychedelic Adventures Vol 3 (Selected by Aesis Alien) (2018) [MP3|320 Kbps] <Psy-Trance,Goa-Trance >
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aesis Alien - Enjoy Your Freedom (Akuaryo Remix) (06:59)
+02. Raf Fender - Lost In Translation (06:46)
+03. Serenity Flux & Mind Sense - Mantraddiction (08:00)
+04. Filthy Noise - Mind Fight (07:06)(   Читать дальше...   )Жанр: Psy-Trance,Goa-TranceПродолжительность: 01:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676D89EDDF4596A19A5E89B9C07A3A5E69D0C6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798912   (347286) от 07.10.2019
+
+Vladimir Fonarev (Володя Фонарёв) - 21 Compilations (1997 - 2017) [MP3|320 кб/с]<Trance, House, Breaks, Psy-Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fonarev - JOOF DJ Sessions, Vol. 4 (Pt. 1) (01:08:32)
+02. Fonarev - JOOF DJ Sessions, Vol. 4 (Pt. 2) (01:00:16)
+03. Amagra - Tequila Sunrise (07:31)
+04. Metronome - Sadhana (07:22)(   Читать дальше...   )Жанр: Trance, House, Breaks, Psy-TranceПродолжительность: 05:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89265B8BD7AF9F5119CB5873E562D3F611751D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179787   (347112) от 01.11.2017
 
 VA - Coastal Sunrise 001 (2017) [MP3|320 Kbps] <House, Progressive House>
@@ -681,64 +739,6 @@ Koan - Insidious (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BA52290596EF9A418E2B07DA4EAFE7898A7A7E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257476   (345641) от 26.10.2018
-
-Scandroid - Scandroid (2016) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2517 (4:39)
- 02. Salvation Code (5:50)
- 03. Aphelion (5:35)
- 04. Shout (3:58)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 01:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE91BE630528828E53159541094614A77DB96E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257277   (345492) от 26.10.2018
-
-Scandroid - Dreams In Monochrome (2018) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterglow (Michael Oakley Remix) (3:36)
- 02. Rendezvous (VHS Dreams Remix) (3:52)
- 03. Monochrome (Sunset Neon Remix) (3:34)
- 04. Time Crime (Turboslash Remix) (4:13)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE5483AE89A454B4A8ABAD11720D99D3FA52B23
 ```
 
 https://mybot314.ru/tekegram_catalog/

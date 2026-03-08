@@ -1,3 +1,177 @@
+###  Публикация: 1004280   (838522) от 06.04.2016
+
+VA - Deeper Than Deep: A Brilliant Selection of Soulful Deep House Grooves (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dava Di Toma - My Way
+02. Zirkuskind - People Are People - Christian Bruder Long Beach Style Mix
+03. 7Register - Arizon
+04. Joyfull Family - Fresh(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B005FCBBDFCFBD92A1CE1F575B5F08B18E3EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004493   (838521) от 06.04.2016
+
+VA - Miami The Warm Up (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BRKLYN - Steal Your Heart (Bougenvilla Radio Mix) (feat. Lenachka) 02:53
+02. Noah Neiman - Meteorites (Original Mix) (feat. Haliene) 04:58
+03. WildOnes - You Dancing (Inpetto Remix) (feat. David Julien) 04:27
+04. Audien - Keep This Memory (Original Mix) 08:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0599BD704010FEBA08BACDF992B8618FADF5575B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004376   (838520) от 06.04.2016
+
+VA - Innocent Magic Future Spring (2016) [MP3|320 кб/с] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ciro Visone The - Drive (Glynn Alan Remix) 08:37
+02. Lema & Shafer Ft Roxanne Emery - Summer Air (Chris Metcalfe Remix) 07:11
+03. Attila Syah - When I See You Smile (Original Mix) 07:20
+04. Emanuele Braveri & Lisaya - Victory (Original Mix) 07:40(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 09:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCF32DDF30E8D625E9B2F210A9DD015F86BE307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113262   (838418) от 11.03.2017
+
+VA - German Top 100 Single Charts 10.03. (2017) [MP3|320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838418.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You 3:54
+002. Kygo & Selena Gomez - It Ain't Me 3:41
+003. Ed Sheeran - Castle on the Hill 4:21
+004. The Chainsmokers & Coldplay - Something Just Like This 4:08(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 05:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7763B756FEF4945987EE7C3A9BC041D28AA93974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113264   (838322) от 11.03.2017
+
+VA - The Disco Swing (2017) [MP3|320 Kbps] <Electro Swing , Nu Jazz>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838322.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gary Caos & Rico Bernasconi feat. In-Grid - La Trompette (Bernasconi Radio Edit) 3:01
+002. The Klaim - Candy Girl (Radio Edit) (feat. Federica) 3:21
+003. Sugarpie and the Candymen - Lemon Tree 4:10
+004. Stereo Swing - Big City Dandy (Feat. Szucs Gabi & Koos Hutas Aron) 4:13(   Читать дальше...   )Жанр: Electro Swing , Nu JazzПродолжительность: 05:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93CAA183AFC2D2834555BAA74CC5146E488878E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113236   (838313) от 11.03.2017
+
+VA - Только хиты. Русский сборник от Хит fm выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838313.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mad Show Boys - Песенка Бобыля 3:00
+002. Аполлинария - Околдована 3:00
+003. Magic - Плохое Поведение 3:26
+004. Руслан Квак - Дерзкие Танцы 3:28(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C517C9DA45D23FAA0F08349FD45788E435002A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501140   (838233) от 08.10.2021
 
 VA - Dancehall Summer Beach (2021) [MP3|320 Kbps] <Dancehall, Riddim, Latin, Reggaeton>
@@ -568,180 +742,6 @@ VA - Symptoms Of The Reality: Freestyle Synthpop (2020) [MP3|320 Kbps] <Synthpop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93A1E5B2ABB561987F2AFD7D34AAB621D280FE90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379860   (836238) от 01.05.2020
-
-VA - Rock Your Day (2020) [MP3|320 Kbps] <Rock, Alternative, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.The Rolling Stones - Start Me Up (3:33)
-2.Queen - Don't Stop Me Now (3:29)
-3.Red Hot Chili Peppers - Can't Stop (4:29)
-4.Oasis - Supersonic (4:44)(   Читать дальше...   )Жанр: Rock, Alternative, OtherПродолжительность: 03:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1615A09FF2DA1ECA754B9371809EDFFDC44B98BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380045   (836235) от 01.05.2020
-
-VA - The #1 Dad Album (3 CD) (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836235.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Meat Loaf - Bat Out of Hell
-02. Thin Lizzy - The Boys Are Back In Town
-03. Status Quo - Down Down(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA83BD3F3E03B83C1BD7518192FBF344DC5BA932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501292   (836147) от 09.10.2021
-
-VA - Шансон Осень (2021) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ирина Круг feat. Владимир Бочаров - Счастье Милое Ушло (3:04)
-02. Евгений Путилов - Как Мне Быть (4:37)
-03. Сергей Рыбачёв - Пожелать Хочу (3:20)
-04. Шамиль Кашешов feat. Рустам Нахушев - Она Другая (4:27)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B879DCFE10EB9E754E9BD6C19D6094D54A1112D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379962   (836107) от 01.05.2020
-
-VA - Beatport Trance: Electro Sound Pack #74 (2020) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Realm F vs Rankey - Nairobi
-002. Gadboa - How Long
-003. Estiva - Katana (Extended Mix)
-004. Ailand - Eclipse (Original Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 09:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB31AC347106048219E0BB4F02C5B282EDCA00E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379916   (835975) от 01.05.2020
-
-VA - Home Sweet Rock (2020) [MP3|320 Kbps] <Rock , Indie Rock, Rock Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835975.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Talking Heads - This Must Be the Place (Naive Melody) (2005 Remaster) (4:56)
-2.David Bowie - Sound and Vision (2017 Remaster) (3:04)
-3.Fleetwood Mac - Dreams (2004 Remaster) (4:17)
-4.The Rolling Stones - Gimme Shelter (4:30)(   Читать дальше...   )Жанр: Rock , Indie Rock, Rock PopПродолжительность: 04:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279B97DD3C002A484B46DE957D1F14ECA20EA77F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379970   (835897) от 01.05.2020
-
-VA - Classic Pop-Rock Hits (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sting - All This Time (Album Version) 4:55
-002. R.E.M. - Losing My Religion 4:28
-003. Queen - Bohemian Rhapsody (2011 Mix) 5:54
-004. Elton John - Your Song (Remastered) 4:03(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 07:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9719C6898E4BCAC1C8A061230A915A3B0FC6B646
 ```
 
 https://mybot314.ru/tekegram_catalog/

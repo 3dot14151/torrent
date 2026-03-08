@@ -1,32 +1,3 @@
-###  Публикация: 1684254   (127618) от 16.12.2023
-
-Therion - Leviathan III (2023) [MP3|320 Kbps] <Symphonic Rock, Operatic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ninkigal (3:06)
-02. Ruler Of Tamag (6:44)
-03. An Unsung Lament (6:58)
-04. Maleficium (3:34)(   Читать дальше...   )Жанр: Symphonic Rock, Operatic MetalПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490906CFF877F8148FCE3C427D3D3527F6B7CA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685754   (127059) от 19.12.2023
 
 Dusk - Epoka (2018) [MP3|320 Kbps] <Industrial Black Metal>
@@ -744,6 +715,35 @@ The Funeral Procession - In Still Silence (2024) [MP3|320 Kbps] <Progressive Dea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D95D871F6B42434618947749FB934BA871930149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699353   (117782) от 13.02.2024
+
+Topor - Wieczna kazn (2023) [MP3|320 Kbps] <Thrash, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At the Gates of Valhalla (03:01)
+02. Zimna jak stal (03:59)
+03. Fight for Metal (03:14)
+04. Wieczna kaźń (03:30)(   Читать дальше...   )Жанр: Thrash, Speed MetalПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4AFF65DA5E7B0E15B60059FB63F553943FD8E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

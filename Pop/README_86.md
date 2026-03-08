@@ -1,3 +1,62 @@
+###  Публикация: 1511007   (789708) от 19.11.2021
+
+VA - NOW That's What I Call Music! 80 (2021) USA version [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последний такой сборник был на трекере под номером 73, так что больше чем за год вышло в USA 7 таких сборников. Очередной сборник новинок из топов США (и немножко Великобритании) получился очень разнохарактерным по сравнению с общим тоном предыдущих выпусков. Интересна композиция Dua Lipa - Love Again, где в самом начале и по ходу трека повторяется тема из ELO.
+Официальные (   Читать дальше...   )01. Olivia Rodrigo - good 4 u  (2:57)
+02. Doja Cat & The Weeknd - You Right  (3:02)
+03. Dua Lipa - Love Again  (4:14)
+04. Shawn Mendes & Tainy - Summer Of Love  (3:00)(   Читать дальше...   )Тип издания: Singl CD, AlbumРелиз состоялся: 21 октября 2021 годаЖанр: Pop, Rock, DanceПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84702A581C13A8DE05CDE1B850296199A36130A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511015   (789653) от 19.11.2021
+
+VA - NOW That's What I Call Music! 110 (2021) 2 CD, UK Series [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сразу перепрыгнули на трекере со 106 выпуска на полный свежачок - 110-й. Это сборник новинок из топов Великобритании и Ирландии. Не путайте с такой же серией из USA. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Тут тряхнул стариной Elton John в компании с Dua Lipa (   Читать дальше...   )CD1:
+01. Ed Sheeran  - Bad Habits  (3:52)
+02. Elton John & Dua Lipa  - Cold Heart (PNAU Remix)  (3:23)
+03. Coldplay X BTS  - My Universe  (3:49)(   Читать дальше...   )Тип издания: 2 CD, Box SetРелиз состоялся: 19 ноября 2021 годаЖанр: Pop, Rock, DanceПродолжительность: 02:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05774348A42EBAF88D156CB4625405E7BE8F941B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511051   (789638) от 19.11.2021
 
 James Blunt - The Stars Beneath My Feet (2004-2021) (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Soft Rock, Indie Rock, Ballad>
@@ -688,64 +747,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25C5BB2342F9D3D0D796B2870284E227C9E018D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203545   (787728) от 03.02.2018
-
-Dana Dawson (Дана Доусон) - Black Butterfly (1995) EMI United Kingdom, UK & Europe [MP3|320 Kbps] <Contemporary R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Да́на До́усон (англ. Dana Dawson; 7 августа 1974, Ямайка (англ.) русск., Куинс, Нью-Йорк, США - 10 августа 2010, Нью-Йорк, США) - американская актриса и певица. Как певица, Дана выпустила свой первый сингл в 1988 году - «Ready To Follow You». Песня была написана французской певицей Жаклин Тайеб (англ.)русск., записана во Франции и достигла Top 20 во французском (   Читать дальше...   )01. Interlude 'Black Butterfly' 0:39
-02. 3 Is Family 3:40
-03. Got To Give Me Love 4:12
-04. Show Me 3:49(   Читать дальше...   )Жанр: Contemporary R&B, SoulПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C348EEBCBEC6EEFAB4EE831CCAAB1FFEC0F54F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203840   (787690) от 03.02.2018
-
-Laura Branigan (Лора Брэниган) - Branigan (1982) Atlantic, CS 19289, US [MP3|320 Kbps] <Synth-pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. All Night With Me 3:51
-02. Gloria 4:50
-03. Lovin' You Baby 4:29
-04. Living A Lie 3:40(   Читать дальше...   )Жанр: Synth-pop, BalladПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54DD45F99012BBB3A4BB563201095F96FD5A91C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

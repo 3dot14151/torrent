@@ -1,22 +1,25 @@
-###  Публикация: 1198245   (810135) от 10.01.2018
+###  Публикация: 1198093   (810263) от 10.01.2018
 
-end.user - Shut Down Remixes (2017) Sonicterror Recordings [FLAC|Lossless|WEB-DL|tracks] <Breakcore, Drum n Bass, Acid>
+Cornelius + Cretu - Cornelius + Cretu (1992) LP [MP3|320 Kbps] <Electronic, Pop, Downtempo, Synth-pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810135.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. BetweenЖанр: Breakcore, Drum n Bass, AcidПродолжительность: 00:36:02
+01. Nur Die Hoffnung Nicht (4:08)
+02. Nichts Ist Vollkommen, Nicht Mal Das Gluck (4:02)
+03. Rettungsringe Sterben Aus (4:30)
+04. Alcatraz (3:25)(   Читать дальше...   )Жанр: Electronic, Pop, Downtempo, Synth-popПродолжительность: 00:39:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:953D1E2010AEF34861BD20033F4A2FD5C4F7D759
+magnet:?xt=urn:btih:BED0A25791EF400C837D949B3C4FD2BE039FF519
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198231   (810134) от 10.01.2018
+###  Публикация: 1198134   (810262) от 10.01.2018
 
-Michael Reimann - Eine entspannende Reise (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+Журнал | Любимая дача №8 (август 2017) [PDF]
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810134.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Linha Verde Highway Ride
-02. Bahia Freedom
-03. Firedance
-04. Valley of the Gods(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:10
+Популярный иллюстрированный журнал о загородной жизни круглый год. В каждом номере - советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным; полезные советы о нахождении на садовом участке и за его пределами; информация о том, как выращивать овощи и фрукты на дачном (   Читать дальше...   )Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30C49F35AD059050027F34700F5391E434072FD2
+magnet:?xt=urn:btih:A7B6BE71E94C139A02F12F083CE21965C9068D2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198035   (810133) от 10.01.2018
+###  Публикация: 1198248   (810261) от 10.01.2018
 
-VA - De Top 100 Aller Tijden 1975 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
+Cybotron - Enter (1983) Reissue CD, Decision Records, 2013 [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810133.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. George Baker Selection - Paloma Blanca (3:28)
-002. Kamahl - The Elephant Song (3:30)
-003. Roger Glover & Guests - Love Is All (3:16)
-004. Johnny & Orquestra Rodriguez - Hey Mal Yo (3:10)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:02:36
+Детроитский электро-форм проект, запущенный Ричардом Дэвисом и Хуаном Аткинсом в 1981 году. (Не путать с австралийской группой Cybotron, которая также выпускала электронную музыку.)01. Enter (5:37)
+02. Alleys Of Your Mind (3:33)
+03. Industrial Lies (6:13)
+04. The Line (5:02)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 01:09:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7E90C533710BCB36201F3B7139C54A8359ACFC1
+magnet:?xt=urn:btih:77C2CD300C2C80DC2750A66CEADA7EEE3F081869
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,252 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198075   (810132) от 10.01.2018
+###  Публикация: 1198015   (810260) от 10.01.2018
 
-Nai Palm - Needle Paw (2017) [FLAC|Lossless|tracks + .cue] <Soul, Female Vocal>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wititj (Lightning Snake), Pt. 1Жанр: Soul, Female VocalПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC21D62385D6E9F26D96F50F5D2CE38FC0B533F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198102   (810131) от 10.01.2018
-
-VA - Cyber World: Synthspace Mix (2017) [MP3|192-320 Kbps] <Synthspace, Synthwave, Electronic Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zynic - Neon Oblivion
-02. Haggeman - Spacevillage Kragom
-03. Brian Bennett - Voyage
-04. LEVEL 2.0 - Savior(   Читать дальше...   )Жанр: Synthspace, Synthwave, Electronic DiscoПродолжительность: 05:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580E3C3CFF26D9FE1C372534A2BCA2624669688A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383591   (810130) от 16.05.2020
-
-VA - German Top 100 Single Charts 15.05.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apache 207 - Fame
-02. Capital Bra x Loredana - Nicht verdient
-03. UFO361 - Emotions
-04. Haftbefehl x Shirin David - Conan x Xenia(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB97FD928AE58038227AA8465A6A85D4EAA92D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198212   (810129) от 10.01.2018
-
-NetWorker - Advanced Network Information App 4.6.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810129.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetWorker отображает сетевую информацию в строке меню. В нем также есть окно, которое показывает дополнительную информацию о текущем активном сетевом адаптере.
-
- NetWorker: • Полностью настраиваемый вид. Вы можете просматривать следующие свойства (поддерживаются загрузка и выгрузка): • Скорость • Ежедневный, месячный и общий трафик • График • Текущий активный сетевой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2018Разработчик: Sascha SimonПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CA868DAD2394DE4AC8195C43E476CB80F80B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383548   (810128) от 16.05.2020
-
-Daniel Waples & Friends (Hang In Balance) - 'Lisn: The Remixes (2014) [FLAC|Lossless|Web-DL|tracks] <Experimental, Chillout, Hang Drum>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lago (Subaqueous Remix) (5:00)
-02. Cajon (Conscious Kalling Remix) (4:19)
-03. Einsof (Jnana Remix) (4:19)
-04. Bello Revive (Animatronix Remix) (9:09)(   Читать дальше...   )Производство: Street RitualЖанр: Experimental, Chillout, World Music, Hang DrumПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3819D3DB1C880EB2076F3EEF59C43878171371F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198090   (810127) от 10.01.2018
-
-VA - The Best Of Turbotronic: Mega Compilation Album (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Turbotronic  -  Big Dada (Extended Mix)  5:28
-02.  Clubhunter  -  Pump It! (Turbotronic Extended Mix)  3:56
-03.  Turbotronic  -  Bba Ra Bam (Extended Mix)  4:26
-04.  Turbotronic  -  Do It (Extended Mix)  5:00(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D9704510B7213FD389ABFE65CFEE120EBB6960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383583   (810126) от 16.05.2020
-
-Miles Davis & Gil Evans - Quiet Nights 1962 - 1963 (1997) Sony Music [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song #2 [1:40]
-02. Once Upon a Summertime [3:28]
-03. Aos Pes da Cruz [4:19]
-04. Song #1 [4:37](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4F6B825A316D24B37998D932E7DBCECD534FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198169   (810125) от 10.01.2018
-
-Герберт Уэллс | В дни кометы (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество на грани Первой мировой войны. Всюду царит разруха, голод и нищета. Каждый выживает, как может. На фоне этого новость о том, что к Земле приближается комета, привлекает внимание единиц. Но, как оказывается зря. Потому что комета несет с собой огромные перемены, которые затронут без преувеличения каждого. И мир никогда уже не будет прежним.Жанр: Научная фантастикаПродолжительность: 09:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71EEEF92AAEC99350FBA574D89EBDB1FB94E6F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198163   (810124) от 10.01.2018
-
-Владимир Медведев | Заххок (2017) [MP3]
+Игорь Окишев | Сборник Стихотворений (2018) [MP3]
 
 >>Художественные аудиокниги и публицистика
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810124.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одна из главных книг современной отечественной прозы.
-Таджикистан. Гражданская война 1990-х. Экзотический и страшный мир Центральной Азии. В центре детективного романа – судьба русской семьи, поневоле оставшейся в горах Памира и попавшей в руки к новым хозяевам страны.
-Заххок – имя змеерукого царя, жестокого тирана из поэмы «Шахнаме». Именно так назван и один из (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 21:42:56
+Сборник стихов, написанных давным-давно, и продолженных уже теперь. Моему Папе посвящаются. Очень откровенные стихи на очень злободневные темы. Удачи Вам и Вашим близким.Жанр: ПоэзияПродолжительность: 00:42:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6E64A0CDF7654BF78823215A34C7E12B3E74A52
+magnet:?xt=urn:btih:3C2B4A03B3A4CBF5620DE8A120CB6E586347274F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,170 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198020   (810123) от 10.01.2018
+###  Публикация: 1198214   (810259) от 10.01.2018
 
-Danielle M & The Glory Junkies - All My Heroes Are Ghosts (2017) [FLAC|Lossless|WEB-DL|tracks] <Swamp Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Heroes Are Ghosts  (02:57) 
-02. All On Fire  (02:34) 
-03. Monster  (03:53) 
-04. Everybodys Wrong  (02:47) (   Читать дальше...   )Жанр: Swamp BluesПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B60A9E3E483AD6AD19E21F6CDA7C43B9FC5961D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383549   (810122) от 16.05.2020
-
-Daniel Waples & Friends (Hang In Balance) - 'Lisn (2013) [FLAC|Lossless|Web-DL|tracks] <Experimental, Chillout, Hang Drum>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petit Son (5:59)
-02. Hang Out Back (featuring Martin Cradick) (3:50)
-03. Lago (5:29)
-04. Bello Revive (5:26)(   Читать дальше...   )Производство: Street RitualЖанр: Experimental, Chillout, World Music, Hang DrumПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1711633D528E741473BE0B76C11E50D93F6182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198072   (810121) от 10.01.2018
-
-Julio Iglesias - En El Olympia (1976, 1997) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Introduccion: Vivencias
-02. Por el Amor De Una Mujer
-03. Dicen(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A92A890BD90B2D4D8FCAB8946D58D74085AB06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383587   (810120) от 16.05.2020
-
-Hazel English - Wake UP! (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Like (03:46)
-02. Shaking (03:33)
-03. Wake UP! (03:35)
-04. Off My Mind (03:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82640E2E8B396F581EDBE3BBE902AFDEF3275047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198282   (810119) от 10.01.2018
-
-Burzum - Filosofem (1996) Misanthropy Records [FLAC|Lossless|tracks+.cue] <Black Metal, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dunkelheit (07:05)
- 02. Jesus' Tod (08:39)
- 03. Erblicket Die Tochter Des Firmaments (07:53)
- 04. Gebrechlichkeit .I. (07:53)(   Читать дальше...   )Жанр: Black Metal, AmbientПродолжительность: 01:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A582D8027B99CC4C8348E4A20D4D398E7801462D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383624   (810118) от 16.05.2020
-
-Slimjet 26.0.8.0 + Portable [Multi/Ru]
+Invisor - Media File Inspector 3.8.2 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810118.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
+Invisor – Инспектор файлов мультимедиа
+Отображает техническую информацию о вашем видео и аудио файлов с возможностью сравнения собранных данных.
+
+Invisor основан на хорошо известной библиотеке MediaInfo и показывает подробную информацию о контейнере файла и потоков данных, включая видео, аудио, субтитры и главы. Поддерживает большинство форматов видео и аудио файлов, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02.01.2018Разработчик: Maxim PozdeevПоддерживаемая ОС: OS X 10.7.3 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F01211AA4FB245FEB7D9795FBB2B663CEE8A6B8
+magnet:?xt=urn:btih:BD04A6D5B1019F7B369AF6521F7BC824531611CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,28 +137,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198068   (810117) от 10.01.2018
+###  Публикация: 1198117   (810258) от 10.01.2018
 
-VA - New Italo Disco: Greatest Hits & Remix (2017) [MP3|320 Kbps] <Disco, Italo Disco, Remix>
+Журнал | Le Tabouret (декабрь 2017 - январь 2018) [PDF]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810117.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Italove - We Don't Care
-002. Emy Care - Once in a Lifetime (Radio Mix)
-003. Limelight - Falling in Love (Radio Beach Club Remix)
-004. Mr.Zivago - Tell By Your Eyes (Den Airy disco remix)(   Читать дальше...   )Жанр: Disco, Italo Disco, RemixПродолжительность: 10:38:11
+Журнал «Le Tabouret» — иркутский модный журнал о дизайне и архитектуре.
+
+Если вдохнуть наполненный безграничной свободой воздух и со сдержанной уверенностью двинуться вперед, то можно создать замечательную историю рождения нового дома – смелых решений и совместных побед. Когда Дом перестает быть просто объектом, люди, его создающие, теряют сухой статус «заказчиков», (   Читать дальше...   )Жанр: Дизайн интерьеровФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44BFD6C992F6205ADB6584F071680540F1C3CBAD
+magnet:?xt=urn:btih:1C40C7584DE4A4283A8CC3A744D9412D3A6B3AF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,162 +165,196 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383461   (810116) от 16.05.2020
+###  Публикация: 1198033   (810257) от 10.01.2018
 
-А.М. Воронов | На берегу пустынных вод (2012) [PDF]
+David Sylvian - Brilliant Trees / Words With The Shaman (1984) USA edition, 1994 [FLAC|Lossless|tracks + .cue] <Tribal, Downtempo, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulling Punches 5:02
+02. The Ink in the Well 4:30
+03. Nostalgia 5:41
+04. Red Guitar 5:09(   Читать дальше...   )Жанр: Tribal, Downtempo, Synth-pop, Experimental, AmbientПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E249ABBE8C99C4E6072C635980EEC93D0CAD68BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198277   (810256) от 10.01.2018
+
+Angel 1 - Terra Nova (2017) Constellation Tatsu [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speed (10:18)
+02. Volunteering (07:04)
+03. The German Idea of Freedom (06:32)
+04. Apple-tini (08:47)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E968D999F5A9FBF711C36FBEA3914522CA3408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198274   (810255) от 10.01.2018
+
+Billow Observatory - II: Plains/Patterns (2017) Azure Vista Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsus (08:21)
+02. Kercheval (08:26)
+03. Nulstil (05:33)
+04. Plains (09:53)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EA11761A6C16B202D1E96E27A994995E67DAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198258   (810254) от 10.01.2018
+
+Photos Exif Editor 2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photos Exif Editor - это интуитивно понятное приложение, которое позволяет мгновенно редактировать EXIF, IPTC и XMP данные тысяч фотографий!
+Вот несколько причин, которые делают его инструментом MUST HAVE для вашего Mac:
+• Считывает и записывает метаданные EXIF, GPS, IPTC, XMP и многое другое ...
+• Поддерживает различные распространенные форматы изображений, включая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.01.2018Разработчик: Systweak SoftwareПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BDE58FAC7410B134295D29DE2B255F690557BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198132   (810253) от 10.01.2018
+
+Журнал | Огородник №1 (январь 2018) [PDF] [Ru, Ua]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810253.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Огородник» - красочный современный журнал для любителей дач и огородов. В каждом номере интересные статьи и полезные советы по уходу за различными культурами, а также по дизайну участка.Жанр: Сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C60F2A590E7DF585DDDD86D2D30706D76336EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198281   (810252) от 10.01.2018
+
+A Better Finder Rename 10.24 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810252.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
+Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2018Разработчик: Frank ReiffПоддерживаемая ОС: macOS 10.11.7 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0B86CC83A77FCA2D8053622ED929B847457A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198120   (810251) от 10.01.2018
+
+Священник Виктор Кузнецов | У пяти старцев [Духовные наставления] (2016) [PDF, DJVU]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810116.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Старая Деревня. Благовещенская церковь.
-При Петре Великом хозяином земли стал Андрей Иванович Остерман. После того, как он оказался в опале и был сослан Елизаветой Петровной, владельцем участка стал гофмейстер двора императрицы Анны Иоанновны, Петр Михайлович Бестужев-Рюмин. Позднее мыза «Каменный нос»принадлежала его сыну канцлеру, графу Алексею Петровичу. Для благоустройства (   Читать дальше...   )Жанр: Исторический,РелигиозныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F57F919FDACE4F902871F23E3EBBD1B217E7DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198105   (810115) от 10.01.2018
-
-Журнал | Наука и техника №12 (139) (декабрь 2017) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810115.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Наука и Техника» - журнал широкопрофильный. Здесь можно найти интереснейшую информацию о развитии авиации, кораблестроения, бронетехники, средств связи, космонавтики, точных, естественных и социальных наук.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEA6219E027D43D531F5B43AB49663CACFE86AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383734   (810114) от 16.05.2020
-
-Слава КПСС & Djigli - RARE GODS 4 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DROP INTRO [02:09]
-02. PHNOM PENH [03:02]
-03. SHUGARMAN [02:54]
-04. JOSEPH BRODSKY [03:13](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330EAA0ACAE7FCA1742E27227EB06181E92CC76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198200   (810113) от 10.01.2018
-
-Slimjet 17.0.4.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB8CE80969C9A4D55B5E1702A0CCEA54DC0B52F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383670   (810112) от 16.05.2020
-
-Александр Тюжин | О чем молчат твои киты (2020) [EPUB]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот так живешь-живешь, а потом бац – и уже доживаешь.
-Врачи, диагноз, обследования… А ты еще молод, еще ничего не успел, ничего не добился, да и нужно ли теперь? И есть ли силы на это? Можно опустить руки и плыть по течению, слушая песни китов, а можно собрать волю в кулак и получить последнюю дозу удовольствия и принести пользу людям. Тем, кто уйдет вслед за тобой, (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EEF32DA1E06008EF04DD2AE60717DD201ABD278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198220   (810111) от 10.01.2018
-
-Cal Cat 2.0 (1.95) [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cal Cat - это настольный календарь, который покажет вам симпатичную кошку или котенка каждый день.
+В данной книге автор описывает свои встречи с великими нашими старцами-современниками, с которыми ему довелось встречаться. Старцами — схиигуменом Иеронимом (Верендякиным), протоиереем Николаем (Гурьяновым), схиархимандритом Феофаном (Даньковым), архимандритом Кириллом (Павловым), архимандритом Адрианом (Кирсановым).
 
-Каждая фотография лицензируется по лицензии Creative Commons и может быть повторно использована вами - даже для коммерческих проектов!Тип издания: macOS SoftwareРелиз состоялся: 04.01.2018Разработчик: Pengsquare UGПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+Интересные описания, как бесед с ними, так и (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:122E215B6842A4021DB214347E58F7E884897928
+magnet:?xt=urn:btih:416CB42326D5E3793F66838FDD0CCF7324532A0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -698,28 +362,364 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383736   (810110) от 16.05.2020
+###  Публикация: 1198080   (810250) от 10.01.2018
 
-Tanir & Tyomcha - До мурашек (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+VA - Progressive House Winter Essentials (2018) [MP3|320 Kbps] <Progressive House>
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810110.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. До мурашек [02:56]
-02. Da Da Da [03:18]
-03. Аккуратно [03:00]
-04. 1, 2 [02:54](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:31:41
+01.  Marsh  -  Face To Face (Airdraw Intro Remix)  5:42
+02.  LTN  -  Wondering Soul (Original Mix)  5:15
+03.  Blugazer & The Cynic Project  -  Queenscapes (Original Mix)  7:26
+04.  Shingo Nakamura & RNX  -  Oregon (RNX Mix)  5:30(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:11:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6610B2403266435C2A9EECDF0E43BBC34D13042F
+magnet:?xt=urn:btih:710A40D3A5FCE895E0EAB1999C0A3B35C8D183B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198014   (810249) от 10.01.2018
+
+Bill Wyman's Rhythm Kings - Groovin' (2000) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell You A Secret  (03:03) 
+02. Groovin'  (03:30) 
+03. Rough Cut Diamond  (04:03) 
+04. Mood Swing  (04:09) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96E6EF3C95A64D07D367D6F8DCC18ED74E08D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383655   (810248) от 16.05.2020
+
+Кирстен Бойе | День рождения на улице Чаек (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето прошло, а это значит, что и каникулы закончились. Пора возвращаться в школу. И хотя большинство ребят грустят из-за этого, Тара верит: осень может быть интересной и весёлой! Ведь осенью становится так уютно! Можно ходить по улицам с фонариками, шить платья куклам, а ещё завести друга по переписке! Но больше всего этой осенью Тара ждёт своего дня рождения! Интересно, (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейПеревод: Ирина ГиляроваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3455E3DA5C6EB9D938DA96EB704BCF1D800FBF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383657   (810247) от 16.05.2020
+
+Кирстен Бойе | Лето на улице Чаек (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810247.jpg" />
+</div>
+
+
+###  Подробнее
+
+На улице Чаек наступило лето, пришла пора каникул! Вот только в этом году семья Тары всё лето проведёт дома и не поедет никуда отдыхать. Но Тара даже рада этому: ведь все их друзья из соседних домов тоже остаются в городе! А это значит, что вместе они отлично проведут время! Тинеке заводит двух пушистых кроликов, за которыми нужно ухаживать, мальчишки предлагают (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейПеревод: Ирина ГиляроваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CC5846DE6953709890A86AFA89DC032BE13180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383658   (810246) от 16.05.2020
+
+Кирстен Бойе | Дети с улицы Чаек (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмилетняя Тара вместе с родителями и братьями Петей и Мышонком переехала в новый дом на улицу Чаек. Здесь ещё не положен асфальт и нет газона. Повсюду до сих пор царит стройка. Но Тара не сомневается: они поселились на самой классной улице в мире! Ведь в соседние дома заехали семьи с детьми, с которыми она сразу подружилась. Вместе можно делать столько всего увлекательного: (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейПеревод: Ирина ГиляроваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D560D2F3F399623635A0A992ABAD9579C1B0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383721   (810245) от 16.05.2020
+
+Sufano - Баллада сухих (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_810245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mansion [02:50]
+02. Гудини [02:18]
+03. Afgani [02:08]
+04. Escort Papi [02:13](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383727   (810244) от 16.05.2020
+
+NIGXNIZ - INFRA (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INFRA [02:15]
+02. Дайте накричаться этому ублюдку [02:29]
+03. Милая мразь [02:42]
+04. Творец [02:42](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AADDA3A1EDAE046B4191DBF13D01B619BD3321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383733   (810243) от 16.05.2020
+
+Kurt92 - Кошмар Независимого Исполнителя (2020) [MP3|320 Kbps] <Rapcore, Hip-Hop>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_810243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Копируй (feat. КРЕСТ) [02:34]
+02. Работяга [02:12]
+03. Лейбл [03:05]
+04. Каждый Day (feat. Basic Boy) [02:50](   Читать дальше...   )Жанр: Rapcore, Hip-HopПродолжительность: 00:13:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383726   (810242) от 16.05.2020
+
+Никита Мастяк - Тайлер Дерден ненастоящий (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_810242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая Ворона [02:54]
+02. СOCO (feat. COKEBOY) [03:28]
+03. Тошнота [03:15]
+04. Ветер Перемен [01:29](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:23:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383735   (810241) от 16.05.2020
+
+Murda Killa - Один Ноль Пять (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_810241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Один Ноль Пять [02:39]
+02. Песенка пиплхейтера [02:54]
+03. Катафалк [02:38]
+04. Пустой feat. BOOKER (feat. Booker) [04:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383723   (810240) от 16.05.2020
+
+Алексей Костылев - После Дождей (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Воин [02:51]
+02. На домашнем [03:08]
+03. Мафия [02:29]
+04. Снова мне звонит [02:49](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9196F984184D6E949A2F468E98676A6BB314D79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383722   (810239) от 16.05.2020
+
+Archi - Не спасти не сохранить (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нас предавали (feat. WEGAS) [03:00]
+02. Молодёжь [03:04]
+03. Сестрёнка [03:29]
+04. Едкий дым [03:43](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23729DB02AC4BD420E9951B18A9017257DBA7176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383598   (810238) от 16.05.2020
+
+Декабрь feat. Jack Benzin - Дорога Победы (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Дорога ПобедыЖанр: RockПродолжительность: 00:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC93C8D96965EE2885F8180E212FE5BCAC54AD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

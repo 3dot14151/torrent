@@ -1,3 +1,177 @@
+###  Публикация: 1102178   (892335) от 08.02.2017
+
+VA - TOP Non-Stop: Hip-Hop 1995-2015 (2015) [MP3|128-320 Kbps] <Rap, R&B, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B Real - Smoke N Mirrors featuring Bo Roc (4:55)
+02. Mobb Deep - Extortion Feat. Method Man (3:32)
+03. Timbaland & Magoo Feat. Missy Elliott - Cop That Shit (3:33)
+04. Method Man & Redman - I'm Dope Nigga (4:11)(   Читать дальше...   )Жанр: Rap, R&B, Hip-HopПродолжительность: 06:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7CF228BABEB2CA18435BECFC903527107EC6EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761545   (892195) от 02.03.2014
+
+VA - Alterportal HITS 14 Vol. 65 - January (2014) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skindred - Open Eyed
+02. Punch Cabbie - Vultures (Left Alone)
+03. Sidilarsen - Matiere Première
+04. Any Given Day - Dead Forever(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94F4C4947C7DE745DBDBD83EE3AD3B91ADFE6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493949   (892170) от 05.09.2021
+
+VA - Music News vol.129 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892170.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ronna Riva - Stories (03:14)
+ 002. Шамиля - Что Ты Знаешь (03:30)
+ 003. Alexandra Stan feat. Nervo - Come Into My World (Rawdolff Remix) (02:35)
+ 004. Ali Bakgor feat. Dlay - Lightning Bolt (02:54)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE68330269080476F725664CFFB5741B51D5804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371400   (892038) от 30.03.2020
+
+VA - Beatport Bassline: Electro Sound Pack #41 (2020) [MP3|320 Kbps] <D&B, Bassline>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892038.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Artificial Intelligence - Savour
+002. Atmosis - Did You Know
+003. Black Barrel - Fabric
+004. Drumsound & Bassline Smith - Come With Me(   Читать дальше...   )Жанр: D&B, BasslineПродолжительность: 10:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B6E5DF584A76CE9BE660A40B4FA3D1625E1151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371397   (892037) от 30.03.2020
+
+VA - Time For Dreams: Chillout Zone (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892037.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Albert Sokolov - Sea (Original Mix)
+002. Terje Saether - Tungtvann
+003. The Chill-Out Orchestra - Mother
+004. Peter Manson - Homeboy Hippi(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, DowntempoПродолжительность: 09:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F09898FB4E81262632DC6B5051771770773FC30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371395   (892034) от 30.03.2020
+
+VA - Beatport Electronic: Electro Sound Pack #38 (2020) [MP3|320 Kbps] <Synthetic, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Club Bizarre - Persona
+02. Franz Matthews - All I Wanted
+03. Occams Laser - Abandoned Vows
+04. Colya Zucker - Magazine(   Читать дальше...   )Жанр: Synthetic, Dance, ClubПродолжительность: 06:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A4A4C431A9AD35AE9987F3805F9DA673F4DA53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371399   (892028) от 30.03.2020
 
 VA - Beatport Deep House: Electro Sound Pack #43 (2020) [MP3|320 Kbps] <Deep House>
@@ -571,179 +745,6 @@ VA - Top 100 Electronic Dance Music and Rave Festival Chart Hits (2016) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E32AFB5272C1479C7F9587B26A8EAA5EB89C778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994284   (891552) от 07.03.2016
-
-VA - Blues Memories (2016) [MP3|128-320 кб/с] <Rock Blues, Retro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891552.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rob Tognoni - Lost Our Blues In The City Of Rome
-002. B.J. Sharp - Never Felt No Blues
-003. Coco Montoya - Never Seen You Cry This Way Before
-004. H2O - Use Your Voice(   Читать дальше...   )Жанр: Rock Blues, RetroПродолжительность: 07:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA42630A22A93A61BDE4CBF114B34FACD4DED31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994381   (891534) от 07.03.2016
-
-VA - Acoustic Pop Covers (2016) [MP3|320 кб/с] <Pop, Acoustic, Covers>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Somebody That I Used to
-02. Alice Lamb - Use Somebody
-03. Meg Birch - Say You Love Me
-04. Thom Cooper - Next to Me(   Читать дальше...   )Жанр: Pop, Acoustic, CoversПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2A0BEBE7A09E33A656A7D3347519D303427CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994409   (891460) от 07.03.2016
-
-VA - 8 Марта. Праздничный хит-парад №1 (2016) [MP3|192 кб/с-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тимур Родригез - Я Верю В Твою Любовь.mp3
-002. Лобода - Революция (Radio Version).mp3
-003. Тамерлан и АленаЖанр: PopПродолжительность: 06:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31403D7DEE0D8A41FAA240477A5C3B0E39A5D82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994386   (891436) от 07.03.2016
-
-VA - Дискотека на 8 марта (2016) [MP3|256 кб/с-320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891436.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Стас Михайлов- Ты только для меня (radio edit).mp3
-002.  МакSим- Я Буду Жить.mp3
-003.  Марсель feat Artik- Моя любовь.mp3
-004.  Макс Барских- Кровь-вода.mp3(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE47F599498E7D35D2B1309D34E4AFBDAAA05EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102312   (891417) от 09.02.2017
-
-VA - Beatport Trance Pack (09.02.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cold Blue & Johnny Yono - Fall Into Dusk (Original Mix)  6:49
-02.  Mark Van Gear - Mary My Lovely Pandita (Original Mix)  7:32
-03.  UDM - Tornado (Original Mix)  6:37
-04.  Oberon - Visions (Original Mix)  7:39(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 06:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434E0D71E3BA8121190D9135A6650939349F8D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994418   (891342) от 07.03.2016
-
-VA - Музыка для двоих (2016) [MP3|192-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Kilye Minogue - Confide In Me
-02 Phill Collins - Another Day
-03 Iggi Pop - In The Death Car
-04 Sandra - Free Love(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD58C8A9B7DA529D1F5582219AF40D844258F4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

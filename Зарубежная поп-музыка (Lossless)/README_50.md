@@ -1,3 +1,33 @@
+###  Публикация: 1313235   (528109) от 07.07.2019
+
+VA - Top Of The Pops '1984 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528109.jpg" />
+</div>
+
+
+###  Подробнее
+
+И так -  продолжаем путешествие по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского сингла. (   Читать дальше...   )CD1:
+01. Chaka Khan - I Feel For You  (4:11)
+02. Cyndi Lauper - Girls Just Wanna Have Fun  (3:48)
+03. Kenny Loggins - Footloose  (3:42)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 03:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4F66040D374319A3D08E378561B83F2EDD3889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558887   (527745) от 23.06.2022
 
 Vanessa Mai - No Hard Feelings (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -726,35 +756,6 @@ Chris de Burgh - Footsteps (2008) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14A93C02950BF2765EE74E1C8362E839D667C528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242477   (515121) от 22.08.2018
-
-Chris de Burgh - High On Emotion - Live from Dublin! (1990) Live [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Night (7:13)
- 02. Sailing Away (5:15)
- 03. The Revolution (4:03)
- 04. I'm Not Scared Anymore (4:40)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C2592561583FEC6BEFFC3BAEC2EF987FE2B91F
 ```
 
 https://mybot314.ru/tekegram_catalog/

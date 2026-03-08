@@ -1,3 +1,61 @@
+###  Публикация: 1803944   (13371) от 26.06.2025
+
+VA - Deep House Relief 2025 (Compiled by Marga Sol) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La-Thief - Ashen [6:35]
+02. Darles Flow - Gravity Waves [6:07]
+03. Aleb - Dimming Skies [5:59]
+04. Portobello - Falling [7:01](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED0FC83819047CD11ED47939C73A2800EF0906C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803953   (13367) от 26.06.2025
+
+VA - Ibiza Pool Party (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmonize - My Lady (05:09)
+02. Harmonize - Show Me Love (05:10)
+03. Anton Ishutin, Note U & Cristian Ferrer - Be My Lover (Radio Edit) (02:12)
+04. Anton Ishutin - Always (05:28)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1FA43942CEA1E623EA0D3873E84350DFD6EF12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804029   (13349) от 26.06.2025
 
 V.A. - Vintage Cafe: Lounge and Jazz Blends (Special Selection), Vol. 25 (2025) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
@@ -683,64 +741,6 @@ Das Ich - Staub (1994) Vinyl Edition, Remastered, 2024, Danse Macabre Records[MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEC4C279DA26275ED0846F77650A1C06F6D32015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805756   (12114) от 08.07.2025
-
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 11 (2025) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Issam Boufhigua - Psychic Drain 07:00
-02. Ltn - All I Need (Extended Mix) 06:34
-03. Michael Alan - Made In The Sky (Extended Mix) 06:15
-04. Miguel Angel Castellini - Lightway 03:55(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7C6769B8A1E6CE8731F661B3412F0EDA41233A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851554   (12075) от 09.07.2025
-
-VA - A State Of Trance Year Mix 2014 (Mixed By Armin Van Buuren) (2014) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren - Look What I Found! (Intro) (1:48)
-02. Omnia - Tomorrow People (Radio Edit) (2:53)
-03. Parker & Hanson - Gravity (Radio Edit) (3:21)
-04. Paul Oakenfold & Cassandra Fox - Touch Me (Mike Koglin 2.0 Radio Edit) (4:23)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 08:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0B7B7AB7898754013EA88927539CD12AFA86EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

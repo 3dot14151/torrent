@@ -1,3 +1,29 @@
+###  Публикация: 193789   (839910) от 19.04.2010
+
+Дискотека Авария - Лето всегда! (OST ''Любовь в большом городе 2'')  (2010) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипПродолжительность: 00:04:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499778   (839819) от 07.10.2021
 
 The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
@@ -674,35 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF853A73F468A9F85BCA7E6D5BF882557F48D470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652419   (835653) от 04.05.2013
-
-Whitesnake - Made In Japan (2013) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best Years
-02. Give Me All Your Love Tonight
-03. Love Ain't No Stranger
-04. Is This Love(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

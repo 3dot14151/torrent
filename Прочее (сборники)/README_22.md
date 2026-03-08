@@ -1,3 +1,119 @@
+###  Публикация: 987337   (925971) от 17.02.2016
+
+VA - Modern EuroDisco 80`s (2016) [MP3|239-320 kbps] <Disco, Pop, Dance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Linda Jo Rizzo - You're My First, You're My Last 2012
+002. Rockets - Electric Delight (Don't Stop)
+003. Boney M - Happy Song (DJ Viduta & DJ DimixeR remix)
+004. P.Lion - Happy Children (Mix Version)(   Читать дальше...   )Жанр: Disco, Pop, Dance, RemixПродолжительность: 09:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6D4BBF90A0B556F567644350CB86180DD2D05C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987519   (925970) от 17.02.2016
+
+VA - Русский ураган супер хитов (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925970.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мохито - Улыбаться С Тобой (Version 2016)
+002. Kristina Si - Хочу
+003. Fandorin - Магнитом
+004. Master Spensor & Leila - Сила Любви(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A3E219E6EAD488D656C330D9FAAF59E4FDAC4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366221   (925684) от 10.03.2020
+
+VA - не Громкие новинки недели 58 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925684.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.ЯрмаК - Пара Года (5:20)
+2.Евгений Попов - Танцуй (4:29)
+3.Наталья Подольская - Останься Со Мной (4:20)
+4.Жаклина - Буду Твоей (4:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44AD0D9EC05A3B5E503395C004ABC9DA91B82A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987526   (925481) от 17.02.2016
+
+VA - Record Russian mix (2016) [MP3|320 kbps] <Dance, club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925481.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Iowa - Улыбайся (Ivan Frost Radio Edit)
+002. Олег Газманов - Глаза в глаза
+003. Иван Дорн - Не улетай (Anthony El Mejor Mash)
+004. Перекрёстки - Bahh Tee(   Читать дальше...   )Жанр: Dance, clubПродолжительность: 06:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24F98C97BE4C8F55C94AFB21CFFB549BCCF7EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489503   (925394) от 16.08.2021
 
 VA - Music News vol.123 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -629,122 +745,6 @@ VA - 100 Greatest 2000s Love Songs (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:622FEEF2CFCF22B97CD3E85249F2DF46529056F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988458   (920401) от 20.02.2016
-
-VA - Легенды Ретро FM. Лучшее. Зарубежный Выпуск (2016) [MP3|320 кб/с] <Disco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920401.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maywood - Pasadena
-002. Boney M. - Dreadlock Holiday
-003. London Beat - I've Been Thinking About You
-004. Vaya Con Dios - Nah Neh Nah(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 07:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C457FBCAAFEB11C51F7722CCF888442082AF1F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096200   (920107) от 23.01.2017
-
-VA - Дискотека 2017 Dance Club Vol. 160 от NNNB (2017) [MP3|320 Kbps] <House, Synth Pop, Trance, Dubstep, Pop, Breaks, Drum & Bass, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Digital Emotion - Full Control  6:05
-002.  Filterkat - Don't You Wanna (Fabron Remix)  3:24
-003.  ZHU & Evergreen - Hometown Girl  3:56
-004.  Virtual Riot - In My Head (feat. PRXZM)  3:42(   Читать дальше...   )Жанр: House, Synth Pop, Trance, Dubstep, Pop, Breaks, Drum & Bass, Nu DiscoПродолжительность: 14:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8059EFA37C59E5F133DC59124EBB7F0F9BD8F9A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988771   (919276) от 21.02.2016
-
-2011stress - Лоскутный Мир (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Classic styling>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance for one
-02. Жеребёнок
-03. Потомки Звёздной Пыли
-04. James Blond(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Classic stylingПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7704F4A4B932F1F109AA2669AC85A3DB6B6D92DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367071   (919146) от 14.03.2020
-
-VA - The Official UK Top 40 Singles Chart 13.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd, Max Martin, Oscar Holter, Abel Tesfaye - Blinding Lights 3:22
-02. Saint Jhn - Roses 2:57
-03. Aitch, Aj Tracey, Tay Keith - Rain 3:03
-04. Roddy Ricch - The Box 3:17(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0D0809C1224D46CA90589F8616A3B5E7559F03
 ```
 
 https://mybot314.ru/tekegram_catalog/

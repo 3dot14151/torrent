@@ -1,3 +1,32 @@
+###  Публикация: 1394850   (760622) от 07.07.2020
+
+Andre Previn - Plays Songs By Harold Arlen 1960 (1994) Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Old Black Magic [4:36]
+02. Come Rain or Come Shine [4:38]
+03. My Shining Hour [3:42]
+04. Happiness Is a Thing Called Joe [4:32](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194A9BF809C9927C0DEA8480CB11CC9E4CA98B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394845   (760618) от 07.07.2020
 
 Yank Lawson-Bob Haggart Jazz Band - Jelly Roll's Jazz & Louis' Hot 5's And 7's 1951, 1954 (2007) Membran Music [FLAC|Lossless|tracks + .cue] <Swing>
@@ -719,35 +748,6 @@ Spyro Gyra - Morning Dance (Japan Edition) (1984) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B679A96EE89CC2D9FCC647F428028F45D041862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395046   (757199) от 09.07.2020
-
-Bill Evans Trio - Waltz For Debby 1961 (2019) Jazz Images [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Foolish Heart [4:50]
-02. Waltz for Debby [6:53]
-03. Detour Ahead [7:34]
-04. My Romance [7:05](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5EDF8C6991ED85C2807BD83E14D8933D5978F2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

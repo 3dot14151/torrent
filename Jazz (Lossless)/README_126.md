@@ -1,3 +1,32 @@
+###  Публикация: 1229163   (630087) от 04.06.2018
+
+Chet Baker & Gerry Mulligan - Original Quartet 1952, 1953 (2018) 2CD, Jazz Images [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630087.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bernie'S Tune [2:53]
+02. Lullaby Of The Leaves [3:15]
+03. Utter Chaos #1 [0:35](   Читать дальше...   )Жанр: CoolПродолжительность: 02:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D575A6E0F65E9443491D393F0D1CF2B159E09946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294424   (629989) от 07.04.2019
 
 Nat King Cole - Ultimate Nat King Cole (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Swing, Easy Listening>
@@ -740,41 +769,6 @@ Billy Pierce - One For Chuck (1991) [FLAC|Lossless]<Jazz>
 08. From This Moment On (C. Porter) (6:34)
 09. Thelma's Heart (B. Pierce) (6:23)
 10. Tryst (J. King) (4:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522131   (625044) от 12.07.2012
-
-Blake Aaron - Desire (2007) [FLAC|Lossless]<Smooth, Pop-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bumpin' On The Wes Side
-02. Come On Over
-03. Will I Go 'Round In Circles
-04. Shine
-05. If You Were Mine
-06. In Her Sweet Way
-07. Desire
-08. Forever
-09. There Will Come A Day
-10. Baby Likes The Blues(   Читать дальше...   )Жанр: Smooth, Pop-JazzПродолжительность: 01:10:12
 
 ## Скачать торент
 ```bash

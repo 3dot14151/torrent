@@ -1,32 +1,3 @@
-###  Публикация: 1212946   (774406) от 14.03.2018
-
-Simple Minds - Walk Between Worlds (2018) [MP3|320 Kbps] <Pop Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774406.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Magic (4:36)
- 2. Summer (4:57)
- 3. Utopia (4:15)
- 4. The Signal And The Noise (5:19)(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE68BA362B5AA2981213ACAD5293F4DFAB2A93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212964   (774400) от 14.03.2018
 
 FM - Atomic Generation (2018) [MP3|320 Kbps] <Hard Rock>
@@ -756,6 +727,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C78A4D73D7752431F6A3C87EED8025DD2827390B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124921   (773194) от 13.04.2017
+
+Ляпис-98 - Брежнев (2017) Single [MP3|320 Kbps] <Ska Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок-супергруппа, проект Сергея Михалка. Создание коллектива планировалось ещё в 2010 году, однако он был образован только 14 апреля 2016 года участниками группы Brutto и бывшими участниками группы Ляпис Трубецкой. Музыканты исполняют старые хиты «Ляписа Трубецкого» 1990-х и начала 2000-х годов.1. БрежневЖанр: Ska Punk, RockПродолжительность: 00:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC654AF4DD8388AB088AF3FD4037B5ABFA22C929
 ```
 
 https://mybot314.ru/tekegram_catalog/

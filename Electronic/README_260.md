@@ -1,3 +1,61 @@
+###  Публикация: 1045683   (558044) от 24.08.2016
+
+VA - Ibiza (2016) [FLAC|Lossless|tracks] <House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baum, Caal - Ridearound (Original Mix) (06:35)
+02. Level Groove - Disco Maniacs (Original Mix) (06:57)
+03. Wade - Hypnotic Beat (Chus & Ceballos Remix) (06:39)
+04. UnoMas (MIA), Roland Clark - I'm Coming In (Original Mix) (06:00)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C85F701EA78DEAE3C4506310A9A9ED84DFB9D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924668   (557675) от 04.08.2015
+
+VA - Beach Lounge Sounds (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miraflores - Waves of Love [05:25]
+02. Clementine Calaway - Like Electric [03:43]
+03. Saba Rock - Euforia do Amor [05:31]
+04. Alice Shelton - Lost Fear [03:48](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421A34F75875184DD24EC8784B55764FF5BAFD31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924703   (557669) от 04.08.2015
 
 VA - VIP Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ Holomatrix ‎ - Calling earth (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E35A89E67432F7FEAE117B30EA97217B3354E965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305319   (556445) от 31.05.2019
-
-Blaqk Audio - Only Things We Love (2019) [FLAC|Lossless|tracks + .cue] <Synth Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinite Skin (03:18)
-02. The Viles (03:35)
-03. Unstained (03:31)
-04. Muscle And Matter (04:03)(   Читать дальше...   )Жанр: Synth PopПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83E9CA42259EBD455A9DD0A947E1E3C1269BDFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556835   (556428) от 12.06.2022
-
-Armin van Buuren - Feel Again Part 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Oumuamua (5:25)
-02. Armin van Buuren feat. Wrabel - Feel Again (2:58)
-03. Armin van Buuren & The Stickmen Project - No Fun (2:10)
-04. Armin van Buuren & Sam Gray - Human Touch (2:25)(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B35BCBFB25B7669F02E55A7F0F955E36DF76DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

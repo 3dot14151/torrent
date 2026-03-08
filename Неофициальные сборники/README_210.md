@@ -1,3 +1,174 @@
+###  Публикация: 1017309   (762945) от 16.05.2016
+
+VA - Музыкальное настроение. Сборник 6 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762945.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби
+002. Ramona - Je M'en Vais
+003. Анна Шульгина - Другая Я
+004. Dj James Yammouni - Live Forever(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15650BA8F85F89222C88B70AB0A47873CF3A8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 323862   (762754) от 23.03.2018
+
+VA - Невероятные концерты итальянцев в России, или Сан-Ремо в Кремле собирает друзей (2006) [MP3|320 kbps]<Pop | Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop | DiscoПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3205D9E03DC497FCA98368A047FCD99942763C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394629   (762300) от 06.07.2020
+
+VA - Beatport Chillout: Electro Sound Pack #122 (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762300.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dismantlists - Somewhere Always Ever
+002. Reid Willis - Canopy Care
+003. Landhouse - Unknown Melody
+004. Fejkб - Skye(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E670DF04FC2C50215820CD9363F300A8AC39BBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394605   (762297) от 06.07.2020
+
+VA - Late Night Mood (2020) [MP3|320 Kbps] <Pop, R&B, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762297.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Naji - Might Just (2:52)
+2. H.E.R. - Could've Been (4:08)
+3. Tora - Escape Room (3:21)
+4. The Internet - Girl (6:55)(   Читать дальше...   )Жанр: Pop, R&B, HouseПродолжительность: 03:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BBAFF0E79E2855CF8E5D371FEA5ACEC2F344E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280258   (762228) от 02.02.2019
+
+VA - The Official UK Top 40 Singles Chart 01.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - 7 rings
+02. Ava Max - Sweet but Psycho
+03. Sam Smith, Normani - Dancing With A Stranger
+04. Calvin Harris, Rag'n'Bone Man - Giant(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE8EF354258BA4E3BEF5CC9094640FD49A881CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394624   (762218) от 06.07.2020
+
+VA - Rock Indie NME Station (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762218.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Slow Readers Club - All I Hear
+002. Still House Plants - Long Pass
+003. Becca Stevens - I Wish
+004. Halloweens - My Baby Looks Good With Another(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24960434D361F88FFBA2BDCA153E4708301E3759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280169   (762130) от 02.02.2019
 
 VA - ЕвроХит Топ 40 Europa Plus 01.02.2019 [MP3|320 Kbps] <Pop, Dance>
@@ -571,180 +742,6 @@ VA - Acoustic Roots: Latin America (2016) [MP3|320 кб/с] <Downtempo, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52AF80706958FBB52EBB8E21122A21894CEE4171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215020   (761146) от 24.03.2018
-
-VA - Наше Радио: Чартова дюжина Top13  Март (2018) [MP3|320 Kbps] <Рок, Поп-Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ундервуд  -  Ракеты на Марс  3:27
-02.  СерьГа  -  Я люблю поезда  3:24
-03.  Сплин  -  Тепло родного дома  3:51
-04.  Zdob Si Zdub feat. Loredana & Лигалайз  -  Балкана мама  2:42(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DDB66FC4FCA057E5544E87EBEBDC462E16E216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017691   (761108) от 17.05.2016
-
-VA - На ночной волне радио Шансон 3 (2016) [MP3|256 кб/с] <Chanson, Pop>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761108.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Леонид Телешев И Ирина Круг - Мосты
-002. Рома Рязанский - Письмо
-003. Андрей Острякоff - Твой Портрет
-004. Евгений Росс - Затмение Любви(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 06:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC06AAF3E33849862F44274574E1FF9FC9E50A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017602   (761096) от 17.05.2016
-
-VA - Радио Шансон. Фестиваль блатной песни (2016) [MP3|256 кб/с] <Chanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761096.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олег Безъязыков И Эльдар Артист - Арестантская Душа
-002. Таня Дьяченко - Святая Любовь
-003. Александр Вестов - Впусти Меня В Свою Душу
-004. Группа Порт Петровск - Водка В Хрустале(   Читать дальше...   )Жанр: ChansonПродолжительность: 06:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B584270C9DD96B3223D64DF8CFB4C73B477398ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017538   (760984) от 17.05.2016
-
-VA - Mysterious Dream Sound (2016) [MP3|320 кб/с] <Ambient, Chill Lounge, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760984.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Darwins Dream - Lonely by the Beach - Cafe and Sand Edit
-002. FD Sound - West City
-003. Sonic Fear - I'll Be Your World (Original Mix) (feat. Veela)
-004. Total System - Rcxxix(   Читать дальше...   )Жанр: Ambient, Chill Lounge, RelaxПродолжительность: 07:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EBD2317779F17244BD0CBCFA7550A28692CDB39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017630   (760774) от 17.05.2016
-
-VA - My Favourite Hits of 1964 (6CD) от DON Music (2016) [MP3|320 кб/с] <Rhythm & Blues, Funk, Soul>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 The Beatles - A Hard Day's Night (02:31)
-002 Roy Orbison & The Candy Men - Oh, Pretty Woman (02:56)
-003 Manfred Mann - Do Wah Diddy Diddy (02:22)
-004 The Animals - The House Of The Rising Sun (04:28)(   Читать дальше...   )Жанр: Rhythm & Blues, Funk, SoulПродолжительность: 07:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EBBA9B37A81AF7540CEB5500DFCC83757075F72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280310   (760627) от 03.02.2019
-
-VA - German Top 50 Official Dance Charts 01.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz - Speechless (feat. Erika Sirola)
-02. Hugel - WTF (feat. Amber Van Day)
-03. Chic - Le Freak (Oliver Heldens Remix)
-04. Picco - Cubano(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384762A18BFCB3910BF3AD6E9C2DF0AABC730D4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

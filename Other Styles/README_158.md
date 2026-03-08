@@ -1,3 +1,32 @@
+###  Публикация: 1674875   (160639) от 07.11.2023
+
+Pasărea Colibri - Ciripituri (1996) [APE|Lossless|image + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renunюare veselг 1:20
+02. Peste rгbdгri 3:46
+03. Оn tren 3:20
+04. Ploaia care va veni 3:12(   Читать дальше...   )Жанр: FolkПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B9602661BE49259FDA09C707D4D2878AF3244F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674880   (160636) от 07.11.2023
 
 Pasarea Colibri - Cantece de bivuac (1999) [APE|Lossless|image + .cue] <Folk>
@@ -720,35 +749,6 @@ Maitreya Bland - Tranquility (1999) [FLAC|Lossless|tracks + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F27F73B418F362E9DAAB22EC8EE7BE1D71BDD294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085913   (154584) от 23.12.2016
-
-Ветер всем - Колыбель (2010) [FLAC|Lossless|tracks] <Folk-Rock, World Music, Ethno>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. У Егорья
-02. Полно
-03. Девушка
-04. Ходом водом(   Читать дальше...   )Жанр: Folk-Rock, World Music, EthnoПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C8077C76C9F68E474B621F402C08027EC1889A
 ```
 
 https://mybot314.ru/tekegram_catalog/

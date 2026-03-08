@@ -1,3 +1,61 @@
+###  Публикация: 1125946   (766393) от 17.04.2017
+
+VA - Transmission Express Vol.2 - Electro House (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  George Morillo - Bass Boobing  7:26
+02.  Cass & Mangan - Bible Belt (Cass & Mangan Play Early)  7:24
+03.  Daniel Forbes & DJ Mogwai - Underground Technology (Quinten de Rozario Tek Remix)  7:06
+04.  Adrian Davis - Burning Boy (Ztarbuc Remix)  6:54(   Читать дальше...   )Жанр: HouseПродолжительность: 02:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52F298DA4CA4BE5600F0CA9EBE4C99221DCC1B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126248   (766383) от 17.04.2017
+
+VA - Vocal House Maniacs, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Express - Freedom (feat Sabrina Johnston - Midnight Express Dream mix) 05:46
+02. Robbie Act - I Want You 03:53
+03. Niko Deejay - Black Queen Black Machine (feat Janet Gray - Funky version - Piano Chic) 06:11
+04. Blade/Masquenada Family - Private Life (feat Noel McCalla - Frank Dancers Demosphere remix) 05:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD22F335462A39A5E18921EF1BDF20B0CBC49FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126294   (766329) от 17.04.2017
 
 VA - Recline Music: The Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -687,64 +745,6 @@ Giuliano Rodrigues & Jubba - Techno 2018 (2019) [MP3|320 Kbps] <Minimal, Tech Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A9F4DCA187051E1A687CE68455301451BB9D8F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279704   (765463) от 30.01.2019
-
-VA - Sounds Of Instruments_02 (Mixed by Navid Tahernia) (2006) Compilation [FLAC|Lossless|image + .cue] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moby - Mullholland (7:53)
-02. Kaliber - A1 (3:47)
-03. Claude VonStroke - Who Is Afraid of Detroit (5:43)
-04. John Tejada - The End of it All (6:25)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C939338493DAEA0A3F08ADC76E03997F8C6D952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279746   (765462) от 30.01.2019
-
-Manet - Dark Side Of The Valley (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Post Rock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vallée noire (5:36)
-02. Alteriar motive (7:54)
-03. Drenched in red wine (5:51)
-04. No rest for the dead (3:07)(   Читать дальше...   )Жанр: Ambient, Dark Ambient, Dark Jazz, Doom Jazz, Post RockПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5B202AD9249978DA0B38A0E45216E008A06B8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

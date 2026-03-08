@@ -1,32 +1,3 @@
-###  Публикация: 1221052   (698708) от 22.04.2018
-
-Nekrogoblikon - Welcome To Bonkers (2018) [MP3|320 Kbps] <Melodic Death Metal, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698708.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mold
-2. The Many Faces Of Dr. Hubert Malbec
-3. Row
-4. Dressed As Goblins(   Читать дальше...   )Жанр: Melodic Death Metal, ElectronicПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFF8A639AED4CD4644AF9B96D636B0B48CECFBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220971   (698699) от 22.04.2018
 
 Gus G. - Fearless (2018) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
@@ -741,6 +712,35 @@ Candlebox - Happy Pills (1998) [FLAC|Lossless|tracks + .cue] <Rock, Grunge, Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2B037C18CEE9B15B22725A084D681068B15E083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288029   (697861) от 10.03.2019
+
+Big Head Todd And The Monsters - Sister Sweetly (1993) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697861.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Broken Hearted Savior (04:21)
+2. Sister Sweetly (04:33)
+3. Turn The Light Out (03:37)
+4. Tomorrow Never Comes (05:20)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64698DF5A5796033937274BDF1DF0BE49E02886F
 ```
 
 https://mybot314.ru/tekegram_catalog/

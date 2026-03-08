@@ -1,32 +1,3 @@
-###  Публикация: 1261552   (303394) от 11.11.2018
-
-Stephen Pearcy (ex-Ratt) - View To A Thrill (2018) Japanese Edition [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.U Only Live Twice 2:57
-02.Malibu 3:05
-03.Double Shot 3:08
-04.One In A Million 2:37(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9FBEFA025E0152B1851B50EF3CC6AA52FB92834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184250   (302884) от 16.11.2017
 
 Black Sabbath - The End (2017) Live [MP3|320 Kbps] <Hard Rock, Heavy Metal>
@@ -748,6 +719,35 @@ Barbe-Q-Barbies - All Over You (2010) [MP3|320 Kbps] <Hard Rock, Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91B4AB47FE1EEB6102AE5B7AEEB315C10312B3E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082977   (275919) от 14.12.2016
+
+Niva - Atmospherical (2016) Japanese Edition [MP3|320 Kbps] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dressed To Kill
+02. Deja Vu
+03. Spirit Of The Night
+04. Forbidden Lover(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01A3B68DBD1B69CBFB10293182E425F0344D790
 ```
 
 https://mybot314.ru/tekegram_catalog/

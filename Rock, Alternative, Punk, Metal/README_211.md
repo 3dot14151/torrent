@@ -1,29 +1,3 @@
-###  Публикация: 186067   (881959) от 25.03.2010
-
-VA - 100Hits Rock (5CD) (2007) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 06:20:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104069   (881900) от 14.02.2017
 
 Velocity - Impact (1997) [APE|Lossless|image + .cue] <Melodic Hard Rock>
@@ -742,6 +716,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B10ADFBE9B6247674BB5EBB2754D72B5C481C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996107   (880748) от 13.03.2016
+
+The Dear Hunter - Act IV : Rebirth In Reprise (2015) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebirth
+02. The Old Haunt
+03. Waves
+04. At The End Of The Earth(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052C0EBB9C44789355C29BFC9E6123DC4455CB2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

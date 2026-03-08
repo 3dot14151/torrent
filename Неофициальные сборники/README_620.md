@@ -1,3 +1,213 @@
+###  Публикация: 593413   (134792) от 24.12.2012
+
+VA - Песни для души (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руслан Березовский - Ромашка
+02. Сергей Артемьев - Одной тебе
+03. Андрей Рубежов - Красотки-бортпроводницы
+04. Кабриолет - Не ревнуешь
+05. Бумер - Она одна
+06. Алексей Свешников - По снегу
+07. Сергей Сухачев - Первые цветы
+08. Жека - Кони
+09. Михаил Штукин - Любовницы, любовники
+10. Денис Мафик - Миллион разлук(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C66601CE98C90AC3F9FF02DE50D6517FFEC7888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593910   (134779) от 24.12.2012
+
+VA - Rare Groove Moods: Chillout Lounge Bootleg Classics Vol.1 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134779.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Quantum Of Soul - Greece - The Solace Remix (3:44)
+2. Liquido - Violetta - Ultra Lounge Dub (5:06)
+3. Joerdi - Dolphins - Tomtempi Mix (4:19)
+4. Anna Goda - Sweetest Dreams - Terra Incognito Mix (3:29)
+5. Clara Bell - Looking Forward - Bargrooves Edit (3:38)
+6. Jost Hohenberg - Space Design - Inner Peace Remix (4:31)
+7. Lauren Lee - Strandbar - Re-Jazzed Mix (3:46)
+8. Cafe Paraiso - Don't Sleep - Jon Del Mar Dub (3:09)
+9. Jenny Casparius - Thank You Darling - Nu Cool Ibiza Mix (3:19)
+10. Tom Lang - Babyclock - Fluxxx Remix (3:49)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:016726E05C3FBBCE33E37CED0CCB04C33241B8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593761   (134771) от 24.12.2012
+
+VA - Хитовый Запах Нового года (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Настя Любимова - Новый Год Со Вкусом Детства
+02. Андрей Леницкий - Не Сумела (Новый Год)
+03. ТЕО - Ты Моя Планета
+04. Санта - Поцелуи
+05. Сергей Лазарев - Under The Moon
+06. Светлана Лобода - Happy New Year (ABBA Cover)
+07. Винтаж и Рома Кенга - Танцуй в последний раз
+08. Дискотека Авария - Ноги-Ноги
+09. Жека Баянист - Bara Bara Bere Bere (Russian Version)
+10. Анжелика Агурбаш - Ты всегда и навсегда(   Читать дальше...   )Жанр: РорПродолжительность: 05:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0373D2C85DBF31F2BFFEC97966BC600A834D7088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592710   (134760) от 24.12.2012
+
+VA - So Fresh: Songs For Christmas 2012 (2 CD) (2012) [MP3|320 кб/с]<Holiday, Pop, Blues, Jazz, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wham! - Last Christmas (4:28)
+02. Band Aid - Do They Know It's Christmas (3:49)
+03. Maroon 5 - Happy Xmas (War Is Over) (3:29)
+04. Human Nature - Away In A Manger (2:02)
+05. Michael Bolton - Joy To The World (4:06)
+06. George Michael - December Song (I Dreamed Of Christmas) (3:35)
+07. Diana Krall - Jingle Bells (2:13)
+08. Hillsong - Born Is The King (3:21)
+09. Marvin Gaye - I Want To Come Home For Christmas (3:28)
+10. The Jackson 5 - Up On The Housetop (3:14)(   Читать дальше...   )Жанр: Holiday, Pop, Blues, Jazz, RockПродолжительность: 02:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5208771003BD6F1446E5BD2FDAC4AB689208D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593764   (134710) от 24.12.2012
+
+VA - Зимний extrim. Самые новые хиты 2 (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Шахзода - Давай До Свидания
+02 Жанна Фриске & In-Grid - Падает Снег (Remix)
+03 Фабрика - Она Это Я
+04 Иля - Это - любовь
+05 Лаурита - Новое поколение
+06 Технология - Сестра
+07 Eva Kade - Любовь была
+08 DJ Цветкоff & Оля Милакса - Белая ночь (Andry Makarov remix)
+09 DJ Skazka - Неоновый свет
+10 Ангелина Сланевская - Тебя мне так мало(   Читать дальше...   )Жанр: РорПродолжительность: 05:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319F377514D7678BF7116C8ECBACE51DF238BB4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593528   (134691) от 24.12.2012
+
+VA - Новогодний cборник зарубежной музыки (2012) [MP3|256 кб/с]<Рор,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134691.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 DJ Smash & DJ Vengerov - Только вперед (Bobina Remix)
+002 Brooklyn Bounce & Giorno - Raving (G! Mix Edit)
+003 Scooter - Army Of Hardcore (Radio Edit)
+004 DJ Aligator fe Airbase - Resurrection
+005 PSY - Gangnam Style (Crystal Lake Remix)
+006 Calvin Harris feat. Tinie Tempah - Drinking From The Bottle
+007 Basshunter - Dream On The Dancefloor (Radio Edit)
+008 La Familia Loca & Gabry Ponte - Imaginate (Club Edit)
+009 Darius & Finlay Feat. Nicco - Get Up (Money G Radio Mix)
+010 Bombs Away - Party Bass (Krunk Remix)(   Читать дальше...   )Жанр: Рор,DanceПродолжительность: 06:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F7929D86934B26A11A8DFA887CD5CA064983482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593726   (134563) от 24.12.2012
 
 VA - Новогодние пляски (2012) [MP3|128 кб/с]<Pop>
@@ -643,204 +853,6 @@ VA-Новогодний АвтоХит от Деда Мороза 2013 (2012)  [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5944BB768695F2D49FFDCAC5A22056ED29DBD84A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681249   (132919) от 02.12.2023
-
-VA - ЕвроХит Топ 40 Europa Plus 01.12.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Cristian feat. Alis Shuka - The Day Before (2:25)
-02. Maneskin - Honey (Are U Coming) (2:47)
-03. Robin Schulz - One With The Wolves (3:00)
-04. Jung Kook feat. Jack Harlow - 3D (3:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C18CC264B849DD5A83B40E167527E47DEE7300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681227   (132884) от 02.12.2023
-
-VA - Русские Хиты 7 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132884.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. BASKAEVA - Спам (3:07)
-002. Винтаж, ТРАВМА - Госпожа (2:36)
-003. Lil Mak - Сводит с ума (1:52)
-004. NATAL'A - Осень цвета антрацит (2:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E38F044C187A3A1BA7D282363348019C05E87A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594963   (132779) от 28.12.2012
-
-VA - Another Rock'n'Roll Christmas (2002) [MP3|320 кб/с]<Pop, Swing, Rock'n'Roll>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Glitter - Another Rock and Roll Christmas [0:03:45.66]
-02. Chicory Tip - Rockin' Fround The Christmas Tree [0:02:07.36]
-03. Showaddywaddy - Perfect Harmonie [0:04:35.20]
-04. Jona Lewie - Stop The Cavalary [0:02:57.01]
-05. Dik Cadbury - The Star That Fell To Earth [0:04:25.03]
-06. Noel Redding & Friends - No More Christmas [0:03:04.63]
-07. Edison Lighthouse - Feel Christmas [0:04:01.04]
-08. Fancy - Jingle Bells And Candy Canes [0:04:06.70]
-09. Santa Claus & His Rockin' Snowmen - Mary's Boy Child - Oh My Lord [0:05:17.73]
-10. Greg Lake - Believe In Father Christmas [0:03:31.49](   Читать дальше...   )Жанр: Pop, Swing, Rock'n'RollПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C368D8F92EA22A44D92660DCF32E74209244F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595276   (132716) от 28.12.2012
-
-VA - Клубный Super Автохит 5 50/50 - (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 AD Men's - Жара (extended mix)
-02 Aerofeel5 - Disco In The Hell (original mix)
-03 Лобода - Облака (DJ Ozeroff & DJ Sky feat. Lebedev remix)
-04 Chris Decay & Re-lay - Love Junkie (Original Summer Mix Edit)
-05 Sound Hackers feat. Чи-Ли - Я Буду Помнить (Club Radio Version)
-06 LTN - Never Let Me Go (Beat Service remix)
-07 MMDance feat. Dj Smash - Суббота
-08 Example - Kickstarts 2012 (DJ Antoine & Mad Mark remix)
-09 Горячий шоколад - Стены (Andry Makarov Club remix)
-10 Kash Trivedi - Darkness (LinBit remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92892936285DE0D398EDF8659A8461B97C4E784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595229   (132699) от 28.12.2012
-
-VA - Зимняя музыкальная эйфория 50/50 - (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Kazahy - Это Новый Год
-02 Italobrothers - My Life Is A Party (R.I.O. Edit)
-03 Бьянка - Заснеженные
-04 Soraya - Dreamer
-05 Artik pres. Asti - Облака (DJ Alex Radioso Radio Edit)
-06 Alex M. Vs. Marc Van Damme - Rock The House 2012 (Original Mix Edit 2012)
-07 Инфинити - Я так скучаю (DJ Sergey Fisun Remix)
-08 Wonder Girls feat. Akon - Like Money (DJ Sergey Fisun Remix)
-09 Сергей Лазарев - Нереальная любовь
-10 Greg Parys - The Girl Is Mine (Dance Version)(   Читать дальше...   )Жанр: PopПродолжительность: 05:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D579ED0E3343ACE94A821564EA56C0E82D38B96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594788   (132695) от 28.12.2012
-
-VA -Fly-Radio : Улётные хиты -  (2012) [MP3|128-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132695.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ю.Шатунов - Бродяга (57)
-2. KReeD и Полина Булаткина - Расстояния (320)
-3. Benefit - Sex Sells(256)
-4. OKSI - Новогодняя(320)
-5. Руки в брюки - Друзья(320)
-6. MC Hammer - You Can't Touch This(320)
-7. Baby Alice - Sexy(320)
-8. Brigada United - Марины,Тони,Тани...(192)
-9. Натали - О боже какой мужчина...(320)
-10.гр.Свои - Называл тебя глупышкой(192)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E9790F6FC46E18D57A6821071BB3902BB38083
 ```
 
 https://mybot314.ru/tekegram_catalog/

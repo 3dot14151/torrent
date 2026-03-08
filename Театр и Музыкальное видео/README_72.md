@@ -1,3 +1,38 @@
+###  Публикация: 533179   (531922) от 10.08.2012
+
+Blackmore's Night - A Knight In York (2012) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий DVD Blackmore’s Night - A Knight In York был снят и записан во время тура по Великобритании в York Opera House 30-ого сентября 2011 года. Он охватывает все волшебство потрясающего шоу Candice, Ritchie & Co.01 Locked Within The Crystal Ball
+02 Guilded Cage
+03 The Circle
+04 Journeyman
+05 World Of Stone
+06 The Peasant's Promise
+07 Toast To Tomorrow
+08 Fire's At Midnight
+09 Barbara Allen
+10 Darkness(   Читать дальше...   )Жанр: Medieval Folk RockПеревод: ОтсутствуетПродолжительность: 1:35:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155643   (531348) от 04.08.2017
 
 The Doors - The Very Best Of (2007) DVD5
@@ -690,35 +725,6 @@ DJ Bobo - The Magic Live Concert (1998) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7044D03B0E439376DBE9B163519FFAE46D702581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369845   (525578) от 01.08.2011
-
-Mylene Farmer - Mylenium Tour (2000) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Милен Фармер с французскими и русскими субтитрами. Перевод текстов песен: Александр Чертков.01. Mylenium
-02. L'Amour Naissant
-03. L'Ame-Stram-Gram
-04. Beyond My Control(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955487E1919A1DC662CEA7DB55AE159C370804C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

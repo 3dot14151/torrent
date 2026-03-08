@@ -1,90 +1,3 @@
-###  Публикация: 1682712   (131036) от 08.12.2023
-
-КняZz - Платим за Шута! Волшебная книга, Том 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. СТАЛКЕР [00:03:37]
-02. РУКИ К НЕБУ [00:04:28]
-03. ТЁМНАЯ ЛИЧНОСТЬ [00:04:46]
-04. ФОТОГРАФ [00:02:41](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976092BC3464381C045B31FA2A34777ACD9096BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524997   (130362) от 18.01.2022
-
-Диктатура Сердца - Записки Над Бездной (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Punk Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог
-02. Поэт
-03. Западло
-04. Память(   Читать дальше...   )Жанр: Hard Rock, Punk Rock, Heavy MetalПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8D5C6102AF2C3B3E015B7A41019EDB3CA68A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525712   (129311) от 21.01.2022
-
-Кино - 45 (1982) 3xCD, Remastered, 2021, AnTrop [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129311.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Оригинальная Версия:
-01. Время есть, а денег нет
-02. Алюминиевые огурцы
-03. Бездельник №1(   Читать дальше...   )Жанр: RockПродолжительность: 03:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD45834B175A63EC37EC5612892E149F2A83A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683123   (128557) от 10.12.2023
 
 Rubicon - Aliapolis (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
@@ -745,6 +658,93 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD23DA7BEA95FA43AE95FEF640414FD4091E374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684989   (127386) от 17.12.2023
+
+Вайолет - Вавилон (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сонет 1. Четвёртое путешествие [00:00:54]
+02. Вечное предание [00:03:51]
+03. Вавилон [00:03:15]
+04. Замок изо льда [00:03:27](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBF7E7519CADCD05C40238E69A3BAEB48A61472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684802   (127378) от 17.12.2023
+
+Вывороть - Вывороть (2023) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Маска	07:49
+02.	Мясо	03:37
+03.	Ржа	05:22
+04.	Свора	05:47(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B29684DF14A9A0319CC9715C62BB35D217B484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684808   (127377) от 17.12.2023
+
+Impress - Враг не дремлет (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Crossover>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Эхо войны	03:38
+02.	Пленных не брать!	02:57
+03.	Ритуал	03:34
+04.	Дни штрафбата	03:12(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC61739ED3C3CDDBA4C21447446C7EF90790225
 ```
 
 https://mybot314.ru/tekegram_catalog/

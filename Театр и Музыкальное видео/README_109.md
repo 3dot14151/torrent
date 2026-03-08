@@ -1,3 +1,29 @@
+###  Публикация: 1190703   (266980) от 10.12.2017
+
+Квартирник на НТВ у Маргулиса. Ёлка (12.09.2017) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_266980.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла певица, член жюри международного детского вокального конкурса "Ты супер!" Ёлка. Она рассказала о своем отношении к алкоголю, о безумных поступках в юности, об участии в КВН и любимой детской кукле. Лиза исполнила свои самые популярные треки: "Город обмана", "Хочу", "Мир открывается", "Навсегда", (   Читать дальше...   )Производство: Жанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C6B2ED43276CD6BC8AAA1E063E1FFC856490D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 276467   (266810) от 30.12.2010
 
 Кен Хенсли / Ken Hensley With Live Fire / in concert Norway (2007) DVD9
@@ -676,41 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B210AFE7A22C5B43096976B996AF099AB0D5C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504043   (260518) от 02.06.2012
-
-Slash: Apocalyptic Love Album Release - Live From New York City (2012) HDTVRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт01. Mean Bone (Slash's Snakepit song)
-02. Dirty Little Thing (Velvet Revolver song)
-03. Nightrain (Guns N' Roses song)
-04. One Last Thrill
-05. Back From Cali
-06. Ghost
-07. Standing in the Sun
-08. Rocket Queen (Guns N' Roses song)
-09. Doctor Alibi
-10. Speed Parade (Slash's Snakepit song)(   Читать дальше...   )Жанр: Hard Rock, Хэви-металПеревод: ОтсутствуетПродолжительность: 01:44:39
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1809667   (9745) от 31.07.2025
+
+VA - Bossa Nova Summer Beach Relax 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sarah Jane Morris - Missing (4:18)
+02.  Banda Brasileira - Dreams (4:50)
+03.  Soulstance - A Distant Look (2:41)
+04.  Christian Lisi - Diamonds (Bossa Version) (3:45)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AB38527314D297EE9703BEE7168B34BCDFCAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809685   (9741) от 31.07.2025
 
 VA - Summer Full of Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -716,35 +745,6 @@ Zoot Sims - I Wish I Were Twins (1981) 1998, Pablo [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A2AAE4ECF2AFBC321A5E0CAC9F0D7EF959E0CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817177   (3729) от 08.09.2025
-
-VA - Greatest Hits from The Roaring Twenties: The Sound of the Jazz Age (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Skip Martin & His Prohibitionists - Charleston (3:03)
-02.  Lonnie Donegan - Ice Cream (2:43)
-03.  Slim Pickins & His Twenty-Niners - Yes Sir, That's My Baby (2:25)
-04.  Kenny Ball and His Jazzmen - Puttin' On the Ritz (3:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:166C2697808680FCBC931606B556980E6A0BFAB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

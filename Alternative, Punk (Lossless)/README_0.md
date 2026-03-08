@@ -1,3 +1,32 @@
+###  Публикация: 1438079   (1041501) от 07.01.2021
+
+Catherine Wheel - Adam and Eve (1998) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041501.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. untitled (01:24)
+2. Future Boy (05:15)
+3. Delicious (05:10)
+4. Broken Nose (05:21)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7D39118B5C53C66CF8BB956517B05E5E7ACC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438353   (1041186) от 08.01.2021
 
 Bury Tomorrow - Cannibal (2020) [FLAC|Lossless|image + .cue] <Melodic Metalcore>
@@ -717,35 +746,6 @@ Tom Chaplin - Midpoint (2022) 2 CD [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:110221E808FABA42ACB4C8136BF32519C744325D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618453   (1034167) от 11.03.2023
-
-Blue October - Approaching Normal (2009) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weight of the World
-02. Say It
-03. Dirt Room
-04. Been Down(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4005FDE9684C1E189D08783ED7E4E59B5E5781BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

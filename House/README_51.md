@@ -1,3 +1,38 @@
+###  Публикация: 557897   (417242) от 09.10.2012
+
+VA - Soulful House (Twisted Remixes & Disco Sounds) (2012) [MP3|320 кб/с]<House, Deep House, Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulmagic - Someone Like You (Original)
+02. Rosie Gaines - Closer Than Close (Schwarz & Funk Classic House Mix)
+03. Angelina - Just Be Good to Me (feat. Angelina) (Robis Latin Breeze Mix)
+04. Erann - Is This Love (feat. Erann) (Deeper People Remix)
+05. Meshach Broderick - You (feat. Benjamin Broderick) (Benjamin Led & Rothmann Remix)
+06. Camille Jones - I AM (Jesse Funk's Lost in Space Dub)
+07. Clara Sofie - Flowing Over (feat. Clara Sofie) (Delicious Ibiza Remix)
+08. Deeper People - Missing (Matt Early Sunset Mix)
+09. ReUnited - Sing It Back (Sidelmann Funkelectric Mix)
+10. Sherell McKenzie - Any Love (feat. Sherell Mckenzie) (Scandall Sunset On Ibiza Remix)(   Читать дальше...   )Жанр: House, Deep House, Soulful HouseПродолжительность: 01:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31B30BAFB4A8CD216454937E6F8F8758A92587C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066109   (414947) от 25.10.2016
 
 VA - Jewels & Gems Vol.1: Selection Of Deep House (2016) [MP3|320 Kbps] <Deep House>
@@ -758,35 +793,6 @@ VA - Best of: Ibiza Beach House 2007-2012 (2012) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C80802DC839B5E81B8A6F7002305B254E3F83CAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170836   (397770) от 03.10.2017
-
-DJ VoJo - Aloha (2017) [MP3|320 Kbps] <Tropical House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight
-02. Tropical Rain
-03. Adventure Island
-04. Lost in Sea(   Читать дальше...   )Жанр: Tropical HouseПродолжительность: 01:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7988E463FAEA99D5AA8F5A390505A99324ECCB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

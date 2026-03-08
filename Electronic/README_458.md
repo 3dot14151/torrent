@@ -1,3 +1,61 @@
+###  Публикация: 1684336   (127582) от 16.12.2023
+
+VA - Black Hole Trance Music 12-23 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate - The Truth 2.0 (Extended Mix) [6:07]
+02. Dennis Sheperd & Gid Sedgwick - Happier Than Now (Extended Mix) [5:01]
+03. Markus Schulz & Emma Hewitt - Till We Fade (Extended Mix) [6:43]
+04. Greg Oakland feat. Jaime Deraz - Ethereal (Extended Mix) [5:19](   Читать дальше...   )Жанр: TranceПродолжительность: 02:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA6D4FF1FAFBEAD191E3AC0AB726447831132E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684635   (127581) от 16.12.2023
+
+V.A. - Lounge Freebeat, Vol. 10 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightview - Cafe Bar (Lounge Mix)
+02. Soundset City - You Are My Angel (Smooth Instrumental Lounge Mix)
+03. Nightbar Jazz - Deep Drip
+04. Jazzy System - Apple Tree(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DB2FA455C833A112E81F3CDA481638A276C6C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684500   (127565) от 16.12.2023
 
 VA - Interplay 2023 (Selected By Alexander Popov) - Extended Versions (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -683,64 +741,6 @@ VA - The best of Tecnomind 2023 [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03B80C29004E80B1C3EDD21A3AFC5FEAE4117D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686601   (126443) от 23.12.2023
-
-Markus Schulz - Global DJ Broadcast Year in Review (2023) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Adina Butar - Waves of High
-02. Anske - Confidence
-03. Estiva - Via Infinita
-04. Artche - Weightless(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 04:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5417F19A850BDB723CAF544795859B82072DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686514   (126435) от 23.12.2023
-
-VA - Black Hole Recordings - Best Of 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate - Just the Beginning [04:01]
-02. Markus Schulz - Eternally [03:43]
-03. Richard Durand - Fall Through the Earth [03:40]
-04. Paul Oakenfold - Ripples [02:31](   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74320393654EEFF7BE21B3FFE1F42DDB228B754
 ```
 
 https://mybot314.ru/tekegram_catalog/

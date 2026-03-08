@@ -1,3 +1,73 @@
+###  Публикация: 165242   (982657) от 10.01.2010
+
+Балаган Лимитед - Танцуют все (2009) [MP3|320 kbps]<Pop/Folk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мальчик из Нальчика
+2. Яблонька (feat dj Neomaster)
+3. Че ты хошь (feat dj Kirill Clash)
+4. Снег-снежок (feat dj Kirill Clash)
+5. Брошу-полюблю. Дуэт с Алисой Мон
+6. Чтоб тебя (feat dj Kirill Clash)
+7. Елочка (feat dj Kirill Clash)
+8. Канарейка (feat dj Kirill Clash)
+9. Три часа (feat dj NeoMaster)
+10. Сон мой. Дуэт с Органической леди(   Читать дальше...   )Жанр: Pop/FolkПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611944   (982407) от 04.02.2013
+
+Haddaway - 2 Albums (1993,1995)  /BMG Victor,Inc. Japan/ [FLAC|Lossless]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Away (4:06)
+02. I Know (4:31)
+03. Breakaway (4:41)
+04. Lover Be Thy Name (3:50)
+05. Waiting For A Better World (4:24)
+06. Give It Up (4:17)
+07. Catch A Fire (4:13)
+08. Desert Prayer (5:53)
+09. The First Cut Is The Deepest (4:25)
+10. Baby Don't Go (3:55)(   Читать дальше...   )Жанр: Eurodance,Europop,Euro-House,BalladПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355577   (982279) от 27.01.2020
 
 Partyfloor Featuring MC Polt - Immer Bum Bum (1996) [FLAC|Lossless|image + .cue] <Euro House, Happy Hardcore>
@@ -729,64 +799,6 @@ Cheetah - Cheetah (1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DC8AB91DB56F0514303A60FCEC45E614E7A4E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356398   (979034) от 30.01.2020
-
-Le Pamplemousse - 4 Albums (1977-1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из многих проектов американских продюсеров из Лос Анджелеса - Rinder & Lewis, внесших значительный вклад в развитие классического диско.Список альбомов:
-1977 - Le Spank
-1978 - Sweet Magic
-1979 - Planet Of Love(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 02:11:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBDE70CD45947B36F55241B7368A184F1BE715E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356406   (978891) от 30.01.2020
-
-Savage - I Love You (2020) Maxi-Single [MP3|320 Kbps] <Italo-Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Love You (Radio Version) [3:17]
- 02 - I Love You (Extended Version) [5:00]
- 03 - I Love You (Club Mix) [3:32]
- 04 - I Love You (Rain Dub) [3:05](   Читать дальше...   )Жанр: Italo-Disco, HouseПродолжительность: 00:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34C6C8F45ED62179F44664AFA76B1C388011609
 ```
 
 https://mybot314.ru/tekegram_catalog/

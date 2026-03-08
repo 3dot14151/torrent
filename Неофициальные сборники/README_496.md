@@ -1,3 +1,180 @@
+###  Публикация: 258752   (334194) от 17.11.2010
+
+VA - Muza80 Prezentuje Italo Disco Vol.1-62 + MiX & ReMiX vol.1-3 [MP3|320 kbps] (2006-2009) <Disco/ItaloDisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334194.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chriss - With A Boy Like You (5:26)
+2. CoAngieLu - Feeling (7:11)
+3. Del Garrett - Hollywood (6:21)
+4. Dyva - I Know (6:17)
+5. Fancy - I'm In Shock (5:42)
+6. Geff Harrison - Bad New York City (6:11)
+7. Les McKeown - Love Is Just A Breath Away (5:48)
+8. Linda Jo Rizzo - Fly Me High (7:21)
+9. Magazine 60 - Don Quichotte (5:39)
+10. Michael Ray - Just A Dream (5:49)(   Читать дальше...)Жанр: Disco/ItaloDiscoФормат: MP3Продолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F595922BD93A50D891358CD3F0C5467E6BA6E243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258696   (334111) от 31.10.2018
+
+VA - HGM Electro House: Party Vibes (2018) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334111.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rhythm Masters - Dayhunter
+002. Kid Williams - Shimmy Yam, Shimmy Yay
+003. Dj Kristina Mailana - Standing On The Wall
+004. Tookroom - Rhythm(   Читать дальше...   )Жанр: HouseПродолжительность: 10:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A697BA0647B7200F5CE0C065CAAE5C4EF4E9993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258762   (334048) от 31.10.2018
+
+Kehlani - Gangsta (2018) Remix [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334048.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kehlani - Gangsta ★ Astero & DJ Antonio ★ RemixЖанр: Club, Dance, HouseПродолжительность: 00:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC1CB83F4FB85174C3554099648B59E962DCED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420209   (333955) от 31.10.2020
+
+VA - The Official UK Top 40 Singles Chart 30.10.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - positions
+02. Internet Money & Gunna - Lemonade (feat. Don Toliver & NAV)
+03. KSI - Really Love (feat. Craig David & Digital Farm Animals)
+04. Wes Nelson - See Nobody(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD712C43B9AF7B6706AB4E8D923683AD0880D6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955504   (333882) от 11.11.2015
+
+VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 3 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Rich - Santorini Night - Riviera Mix
+02. Channel settings - Living on the Moon - Original Mix
+03. Flying Rage - Open Mind - Magic Mind Mix
+04. Fader Of Cruise - Hot Consulting - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314030B549BF80B03801D380CAC3448722E2BF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955482   (333854) от 11.11.2015
+
+VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 2 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dexter Morrison - Night Bird - Original Mix
+02. Joshua Green - For a Night - Original Mix
+03. Robert Reston - I'm Sending You - Original Mix
+04. Paul Moana - The Rapid Plastic - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380C8622E2B805A15B685B7278882EE8DFC09838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955666   (333789) от 11.11.2015
 
 VA - Новая Жажда Скорости Без Тормозов vol.2 (2015) [MP3|320 кб/с]<Club, Hardstyle>
@@ -559,180 +736,6 @@ Meteora - Gradients (2015) [MP3|320 кб/с]<Spacesynth, New wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF69BC39DAE1432C882FEB68BA90FC106E114246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420402   (332418) от 01.11.2020
-
-VA - Music for You vol.14 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuclear Power Trio - A Clear and Present Rager (03:36)
- 02. Soen - Antagonist (06:07)
- 03. Pyramaze - Particle (04:34)
- 04. Soilwork - The Nothingness And The Devil ( (05:36)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 03:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF61CCACD868C280C8CB082C3EBCE6F3F0CCAE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420513   (332356) от 01.11.2020
-
-VA - Лучшие из лучших Top 100 хитов радиостанций за Октябрь (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332356.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. JAKONDA & NEJTRINO - No More Tears (3:00)
-002. Savage - Lonely Night (Club Version) (3:05)
-003. Александр Гужов - Она его уже не ждёт (3:32)
-004. Мирон Еремеев feat. DJ Steel Alex - Мурашки (2:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB98D7F80CF96A5F369C223ADA722028A1705CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420508   (332283) от 01.11.2020
-
-VA - Radio DFM Top D-Chart Октябрь (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Smash feat. Poët - БЕГИ (Denis Bravo Remix) (3:05)
-02. twocolors - Lovefool (3:10)
-03. Мари Краймбрери - Океан (Denis Bravo Remix) (3:50)
-04. DaBro - Юность (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048AFA637E7161754229252519F577073AD82801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331449   (332160) от 15.10.2019
-
-VA - Best tracks of Transitions by John Digweed on Kiss 100. 2005 - 2006 Volume 3 (2019) Compiled by Firstlast [MP3|192-320 Kbps] <Progressive House, Techno House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Grid - Floatation (1992) (7:02)
-02. Merz - Mentor (Caged Baby 'Italian Baby Sauce' remix) (5:37)
-03. Depeche Mode - Precious (Michael Mayer Balearic Mix) (7:18)
-04. Trentemoller - Prana (5:14)(   Читать дальше...   )Жанр: Progressive House, Techno House, Deep HouseПродолжительность: 09:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CBEEE7E53E87CB70112BD20973A07365488CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331413   (332159) от 15.10.2019
-
-VA - Groove Techno Tools (2019) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332159.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Volunteer - Levitating Stones
-002. Greyhead - Llantos Del Desierto
-003. B-Front - Undiscovered
-004. Devin Wild - Mind Bending(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122522658401E7A71598A110C0B8F9B167692CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420594   (331899) от 01.11.2020
-
-VA - Новинки С Разных Популярных MP3 Сайтов Vol. 101 (2020) [MP3|320 Kbps] <Club, Pop, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. 7UBO feat. LexBlaze - TikTok (Extended Mix)
-02. Above & Beyond - Diving Out Of Love
-03. Adam Delight - Tension (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 07:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDEEBCD8A3F477FBE3ABD9FAD3ACC9F7FF49DC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

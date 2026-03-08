@@ -1,3 +1,61 @@
+###  Публикация: 1618524   (235392) от 12.03.2023
+
+VA - Songspire Records In Miami 2023 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solanca - Recognise (Original Mix) [3:58]
+02. Nihil Young - Stalker (Original Mix) [4:06]
+03. Guy Didden feat. Mats Westbroek - Dusk (Grigoré Remix) [4:24]
+04. Envotion - Eidos (Paravorik Remix) [3:40](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCF1F843880C256524CF1F795A09C158850EDCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618514   (235377) от 12.03.2023
+
+VA - Spring Sampler 2023 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Ferell - Lights Out (Original Mix) [07:34]
+02. Felipe Harker - Astral (Original Mix) [06:18]
+03. SIQUEIRA - Ocean Call (Original Mix) [05:53]
+04. Armando Flores - Chinese Supermarket (Original Mix) [08:48](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667DBF011D00827BAB64C3A2499E9C4702DCED53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536604   (235122) от 12.03.2022
 
 Nicky Romero & Tim van Werd & Timmo Hendriks - Protocol Radio 500 (2022-03-10) [MP3|320 Kbps] <Progressive House, House>
@@ -687,64 +745,6 @@ Chab - Dub, Edits & Whisky-Coke (2005) [FLAC|Lossless]<House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0099EF880584075F752DACEE1E5547203391DB1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634816   (232922) от 23.05.2023
-
-Blutengel - Un:Sterblich: Our Souls Will Never Die (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synth-pop, Darkwave>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can you see me [00:05:21]
-02. Back for blood [00:04:37]
-03. Journey [00:04:27]
-04. Meine Macht [00:04:26](   Читать дальше...   )Жанр: Electro, Synth-pop, DarkwaveПродолжительность: 2 CD, 01:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6BA49CD671A9B3477CD66045C3895C52FCFA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641649   (232796) от 01.07.2023
-
-VA - Armin van Buuren - A State Of Trance 1126 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren – Motive (Armin Van Buuren Club Mix) (Armind)
-02. Armin Van Buuren feat. Sharon Den Adel – In And Out Of Love (Innellea Remix) (Armada)
-03. Armin Van Buuren & The Stickmen Project – No Fun (Öwnboss Remix) (Armada)
-04. Shouse & David Guetta – Live Without Love (Armin Van Buuren Remix) (Hell Beach)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CFC10D0BD741127F7FF83402FE59C0E1C3E51D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

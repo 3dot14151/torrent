@@ -1,32 +1,3 @@
-###  Публикация: 1015113   (775719) от 09.05.2016
-
-Around The World In 80 Days - Genesis (2015) [MP3|320 кб/с] <Post Rock, Electronic Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At First
-02. New Horizons
-03. Star's Breath
-04. Prototype(   Читать дальше...   )Жанр: Post Rock, Electronic Rock, InstrumentalПродолжительность: 00:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A337E6021A881DA99482DD9A47771B85D607D3C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015074   (775686) от 09.05.2016
 
 Celldweller - Transmissions Vol. 03 (2016) [MP3|320 кб/с] <Industrial, Alternative>
@@ -743,6 +714,35 @@ Hidden Intent - Walking Through Hell (2013) Not On Label [MP3|320 Kbps] <Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FE223FD824CED387729EF71867CF6F7CBCD22C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212946   (774406) от 14.03.2018
+
+Simple Minds - Walk Between Worlds (2018) [MP3|320 Kbps] <Pop Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774406.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Magic (4:36)
+ 2. Summer (4:57)
+ 3. Utopia (4:15)
+ 4. The Signal And The Noise (5:19)(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE68BA362B5AA2981213ACAD5293F4DFAB2A93F
 ```
 
 https://mybot314.ru/tekegram_catalog/

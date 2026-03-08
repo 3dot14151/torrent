@@ -1,3 +1,32 @@
+###  Публикация: 1797592   (17989) от 17.05.2025
+
+Britney Spears - Oops!... I Did It Again (2000) 25th Anniversary Edition, 2025, Sony Music [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oops!...I Did It Again [00:03:31]
+02. Stronger [00:03:23]
+03. Don't Go Knockin' on My Door [00:03:43]
+04. (I Can't Get No) Satisfaction [00:04:25](   Читать дальше...   )Жанр: PopПродолжительность: 01:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B26AC0EC9D2E5339C34AFDD292086835E68829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797684   (17970) от 17.05.2025
 
 VA - 50s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -714,35 +743,6 @@ Roxette - Joyride (1991) 1st UK Press [APE|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:215F28F22AF3FCB58E0BA0AC681B9B18D19542A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808455   (10357) от 25.07.2025
-
-Sandra - Into A Secret Land (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Land (04:46)
-02. We'll Be Together (04:11)
-03. Heaven Can Wait (04:04)
-04. Just Like Diamonds (05:41)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2DA901E92908F87E5CF366D93AC974F604CFFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

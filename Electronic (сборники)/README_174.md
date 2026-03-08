@@ -1,3 +1,32 @@
+###  Публикация: 1184193   (303534) от 16.11.2017
+
+VA - Best of Deep House. Volume 8. The Unofficial Chords of Planet Ee [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solid Torry Deep - Ultraman [6:22]
+02. Gnork - The Unofficial Chords of Planet Ee [5:50]
+03. Techno Kid - Hypnosis [2:00]
+04. DeftoN - Single Journey [5:36](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77FEE5E3C4BA78CD7DC3D3EB83325DEC539F939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184190   (303529) от 16.11.2017
 
 VA - Best of Chill House 2017. Volume 3. The Dream About You [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Chill House, Deep House>
@@ -722,35 +751,6 @@ VA - Progressive House Project (2018) [MP3|320 Kbps] <Progressive House, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F74E3F0F446C4B5E1B85EBCD966323D93B1E280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078811   (298313) от 02.12.2016
-
-VA - Wonders Essential Trance (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal, Emotional, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen Watts - Square One (Original Mix) 6:44
-02. Steve Brian - Yebaka 2:56
-03. Emanuale Congeddu & ARCZI - Merchant Prince 7:25
-04. Sean Tyas - Matter Of Time (Original Mix) 8:28(   Читать дальше...   )Жанр: Trance, Harmonic, Vocal, Emotional, UpliftingПродолжительность: 02:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E82555249561AEF3040382E5903ED9E05F1BBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

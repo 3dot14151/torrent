@@ -1,3 +1,61 @@
+###  Публикация: 1241990   (517106) от 20.08.2018
+
+DJ Дождик - Почему же... (2006) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Босяк (4:15)
+02. Мы любим тех (4:29)
+03. Почему же (4:33)
+04. Баллада (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B16D75CB7CF86243A21A919D59577E31CE264D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241991   (517094) от 20.08.2018
+
+Чи-Ли - Сделано в Чили (2008) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любовь - это яд (3:56)
+02. Сто один раз (3:31)
+03. Сердце (3:48)
+04. А может быть (Light Version) (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22462D192CE5E6A3D69154F7D5CC1E8E3E90D7A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242014   (516998) от 20.08.2018
 
 VA - Ibiza House Anthems: The Summer 2018 (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
@@ -691,64 +749,6 @@ Duran Duran - Unleashed (2014) [FLAC|tracks + .cue]<New Wave, Pop-Rock, Synthpop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D3CF85D89BAD33ECA915B070F2F2B83717877C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315357   (513733) от 19.07.2019
-
-Вячеслав Малежик - Октябрь (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513733.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Однажды (Когда-нибудь)
-2. Ночной звонок
-3. Превратности любви (Про вора)
-4. Бред мой(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F9548AE247B477C5B3CC4A279D5950D7904A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315356   (513721) от 19.07.2019
-
-VA - Best Radio Tracks, Vol. 17 (2019) [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Элджей - Sayonara детка (feat. Era Istrefi)
-02. Rompasso - Paradise
-03. Dophamean - Hands on Me (feat. Saia Lake)
-04. Armin van Buuren - Don't Give Up On Me (feat. Josh Cumbee)(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86C4E3BA0C50F0EDB31A581C97E82AD160E594E
 ```
 
 https://mybot314.ru/tekegram_catalog/

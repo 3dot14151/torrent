@@ -1,3 +1,177 @@
+###  Публикация: 1419905   (335497) от 30.10.2020
+
+VA - Beatport Electro House: Sound Pack #196 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335497.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dobry Secik - Moments
+002. Shermanology - Amen
+003. Ma.Bra. - Estasty
+004. Doc Link & Sean Biddle - No Mistakes(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F0464456BC0194E3564EDEBA74769BE54ECAB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181146   (335477) от 06.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 010 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шоколад-Виктория - Алло, Алёнка ( 1989 )
+02. Восьмой День - Прощай ( Первый Снег ) ( 1991 )
+03. Николаев Игорь - Малиновое Вино ( 1994 )
+04. Электроклуб - Ягодный Сезон ( 1987 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FBB3A51CD537F5D5737B62803172C3E3B9D3CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181257   (335476) от 06.11.2017
+
+VA - Лучшие клубные новинки Vol.3 (2017) [MP3|320 Kbps] <House, Trance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335476.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  BLR, Rave & Crave - Taj (Extended Mix)  5:14
+002.  Paul Van Dyk & Pierre Pienaar - Stronger Together (Extended)  7:32
+003.  Terror Squad feat. Fat Joe & Remy - Lean Back (Tony Junior & Jimmy Clash Bootleg)  3:17
+004.  Da Hool - Meet Her At The Love Parade (Matt Watkins Bootleg)  3:23(   Читать дальше...   )Жанр: House, Trance, ClubПродолжительность: 10:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC802C578AA68C5C3AA7E21108EA85E13271BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181148   (335474) от 06.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 011 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шторм Анна - Франция ( Далекая Страна ) ( 1994 )
+02. Картышев Владимир - Ночь После Трудного Дня ( 1991 )
+03. Рок-Сентябрь и DDT - Танцует Робот ( 1983  )
+04. Кристина Corp. - Снег На Розах ( 2005 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DF7DDA4B9B68D7713814CC885154B5486C670F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181287   (335468) от 06.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 014 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маленький Принц - Прощай ( 1989 )
+02. Журавлёва Марина - Белая Черёмуха ( 1991 )
+03. Ласковый Май ( Юрий Шатунов ) - Седая Ночь ( 1989 )
+04. Жуков Рома - Слепой Рассвет ( 1991 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B9CAA9942E9B38AFEE6E0ED0D42DC2EEA9859C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181150   (335463) от 06.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 012 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хромов Олег - Первый Дождь ( 1991 )
+02. Финиш - Розовые Рожи ( 1990 )
+03. Ночной Вояж - Джулия ( 1989 )
+04. Лукьянов Александр - Падает Снег ( 1989 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD2713F8720863E3E239801A9FC26FF2307C691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181308   (335456) от 06.11.2017
 
 VA - Русская Дискотека ХХ Века от Ovvod7 - 015 (2017) [MP3|320 Kbps]<Pop>
@@ -565,183 +739,6 @@ VA - Moments Of Clarity: Essentials Electro House (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFB52948F7406A36B269FD3568EB8F98CA386406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258752   (334194) от 17.11.2010
-
-VA - Muza80 Prezentuje Italo Disco Vol.1-62 + MiX & ReMiX vol.1-3 [MP3|320 kbps] (2006-2009) <Disco/ItaloDisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334194.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chriss - With A Boy Like You (5:26)
-2. CoAngieLu - Feeling (7:11)
-3. Del Garrett - Hollywood (6:21)
-4. Dyva - I Know (6:17)
-5. Fancy - I'm In Shock (5:42)
-6. Geff Harrison - Bad New York City (6:11)
-7. Les McKeown - Love Is Just A Breath Away (5:48)
-8. Linda Jo Rizzo - Fly Me High (7:21)
-9. Magazine 60 - Don Quichotte (5:39)
-10. Michael Ray - Just A Dream (5:49)(   Читать дальше...)Жанр: Disco/ItaloDiscoФормат: MP3Продолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F595922BD93A50D891358CD3F0C5467E6BA6E243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258696   (334111) от 31.10.2018
-
-VA - HGM Electro House: Party Vibes (2018) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334111.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rhythm Masters - Dayhunter
-002. Kid Williams - Shimmy Yam, Shimmy Yay
-003. Dj Kristina Mailana - Standing On The Wall
-004. Tookroom - Rhythm(   Читать дальше...   )Жанр: HouseПродолжительность: 10:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A697BA0647B7200F5CE0C065CAAE5C4EF4E9993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258762   (334048) от 31.10.2018
-
-Kehlani - Gangsta (2018) Remix [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334048.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kehlani - Gangsta ★ Astero & DJ Antonio ★ RemixЖанр: Club, Dance, HouseПродолжительность: 00:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC1CB83F4FB85174C3554099648B59E962DCED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420209   (333955) от 31.10.2020
-
-VA - The Official UK Top 40 Singles Chart 30.10.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - positions
-02. Internet Money & Gunna - Lemonade (feat. Don Toliver & NAV)
-03. KSI - Really Love (feat. Craig David & Digital Farm Animals)
-04. Wes Nelson - See Nobody(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD712C43B9AF7B6706AB4E8D923683AD0880D6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955504   (333882) от 11.11.2015
-
-VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 3 (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Rich - Santorini Night - Riviera Mix
-02. Channel settings - Living on the Moon - Original Mix
-03. Flying Rage - Open Mind - Magic Mind Mix
-04. Fader Of Cruise - Hot Consulting - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314030B549BF80B03801D380CAC3448722E2BF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955482   (333854) от 11.11.2015
-
-VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 2 (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dexter Morrison - Night Bird - Original Mix
-02. Joshua Green - For a Night - Original Mix
-03. Robert Reston - I'm Sending You - Original Mix
-04. Paul Moana - The Rapid Plastic - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380C8622E2B805A15B685B7278882EE8DFC09838
 ```
 
 https://mybot314.ru/tekegram_catalog/

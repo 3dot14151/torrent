@@ -1,3 +1,125 @@
+###  Публикация: 910243   (621781) от 20.06.2015
+
+VA - Car Audio. Живyщий мyзыкoй.(Sound Clinic - Special Еdition) (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Trap, Dubstep, Electro, Trance, Progressive, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621781.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 16 Вit Lolitas - I'll Вe True(Originаl Мix)
+2. 4lienetic - Lifeless(Originаl Мix)
+3. 7Oceans - Crossfire(Originаl Мix)
+4. Acid Pauli, Monolink - New Morning(Originаl Мix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Trap, Dubstep, Electro, Trance, Progressive, TechnoПродолжительность: 15:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71914637E7A04C427DF6D0B8E85095A7F0CB144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145362   (621221) от 25.06.2017
+
+VA - Старые Песни По-новому: Зарубежный Выпуск (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Eurodisco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  ATB pres. Daniel G. Sarr - I Want U (SQ-1 Mix)  6:49
+02.  2 Unlimited - No One (A. Kraft ReCover)  3:40
+03.  DJ Bobo - Love Is All Around (David May Mix)  3:23
+04.  Bad Boys Blue - From Heaven To Heartache (MC's Radio Edit) (feat. Brian Cornell)  3:55(   Читать дальше...   )Жанр: Eurodance, Euro-House, EurodiscoПродолжительность: 06:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C20A362971764B77BB3552DA6B1ECF1D1AB0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036455   (621164) от 20.07.2016
+
+VA - Works Receptor Liquid Body (2016) [MP3|243-320 Kbps] <Club, Soulful, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Kane - Echoes 07:00
+02. Nick Holder - Black Jazz #4 08:00
+03. Kush - Drive 07:09
+04. Askery Ft. Jax - Castle (Extended Mix) 04:52(   Читать дальше...   )Жанр: Club, Soulful, Nu DiscoПродолжительность: 08:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E765F5180831DF1246900059EDE8AF735B9A8B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522827   (621149) от 14.07.2012
+
+VA - Club In Car Summer Vol.4 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cathy Burton & Omnia - Hearts Connected (Skytech Remix)
+02. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
+03. Bartlett Bros & Matt Loki feat. Tiff Lacey - Sweet Child (Fabio XB Rework)
+04. Julian Vincent and Shannon Hurley - Lost In Space (DoubleV Remix)
+05. Andy Duguid feat. Shannon Hurley - I Want To Believe (Original Mix)
+06. S.K.A.M. - Outside The Box (Original Mix)
+07. David Amo, Julio Navas - I Can (Original Mix)
+08. Toni Braxton - I Heart You (Mark Picchiotti Re-Imagined Vocal Mix)
+09. Nicologik and Zephyr vs Tiff Lacey - Lost for Words (Extended Mix)
+10. Solarstone feat. Clare Stagg - The Spell (Pulser Mix)Жанр: Dance, ClubПродолжительность: 05:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6017EF703ED780771F5984B78D44D5A4DA338810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522887   (621070) от 14.07.2012
 
 VA - Mega Dance Party Summer Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
@@ -707,128 +829,6 @@ VA - Esthetics Lounge Vol. 5 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A087943FC6526F4D3BCCEB163ED4778998D23E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230258   (617198) от 11.06.2018
-
-VA - Popular Superstar (2018) [MP3|320 Kbps] <Pop, Dance, RnB, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617198.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maître Gims, Super Sako - Mi Gna
-002. Alvaro Soler - La Cintura
-003. Dua Lipa - IDGAF
-004. Bazzi - Star(   Читать дальше...   )Жанр: Pop, Dance, RnB, RapПродолжительность: 11:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63F3969F97F1827D158112B7DB6A0ED939A34A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523567   (617020) от 16.07.2012
-
-VA - Жаркий Хит-Парад MTV (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617020.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Аксиома - Новый Год В Июле
-002. Neon Hitch - Love U Betta
-003. Горячий Шоколад - Ты Обними
-004. Gotye feat. Kimbra - Somebody That I Used to Know
-005. Влад Соколовский - Ливни
-006. JLS - Proud
-007. Кэтрин Кэт - Наше Лето
-008. Savage - Dont Cry Tonight 2012 (Alexandra Damiani Radio Mix)
-009. Алена Винницкая - Я Жду
-010. Mishelle feat. Randi - It Feels So Good (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F4629A99FF959D521DC8DEC88C154F3EE4DC60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295819   (616919) от 14.04.2019
-
-VA - не Громкие новинки недели 11 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aletov - До Луны (3:05)
-02. ALON - Небо (2:19)
-03. Appledream - Баленсиага (3:25)
-04. Arsenium & Mianna - Я Лечу Над Танцполом (3:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD0F1DDAA3D75ECCEB6830A07CDE211F1E21629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295861   (616831) от 14.04.2019
-
-VA - Radio DFM Top D-Chart Апрель 2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Deeper - Broken 2:58
-02. Filatov & Karas - Au Au 4:13
-03. Mark Ronson & Miley Cyrus - Nothing Breaks Like A Heart (Don Diablo Remix) 3:37
-04. Pawl - Nirvana (Kolya Funk Remix) 4:00(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD44EB99CE110E030805DC255695E07BAC7F525A
 ```
 
 https://mybot314.ru/tekegram_catalog/

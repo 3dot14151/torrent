@@ -1,32 +1,3 @@
-###  Публикация: 1439069   (1040371) от 11.01.2021
-
-Eclipse - Viva La VicTOURia (2020) 2xCD, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040371.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Viva La Victoria (live) (3:50)
-02. Mary Leigh (live) (3:19)
-03. Blood Wants Blood (live) (3:25)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5E3AB18FC6AA44E02E7AF9581B9901798FA801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612339   (1040358) от 15.02.2023
 
 Обе-Рек - Персональный ад (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -745,6 +716,35 @@ Lowering - Struggling With The Dark (2020) [FLAC|Lossless|Web-DL|tracks] <Depres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB306AC60B0C405F54CD334E4025AC6FDD4099CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439301   (1040115) от 12.01.2021
+
+Trevor Bolder - Sail The Rivers (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Which Way Will The Wind Blow (05:43)
+ 02. Rich Kid (04:35)
+ 03. Wasting My Time (04:31)
+ 04. I Had A Dream (05:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8600828C2104DFA4EB97593E6AF91B4927552D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

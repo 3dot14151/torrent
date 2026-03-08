@@ -1,3 +1,61 @@
+###  Публикация: 1242408   (515134) от 22.08.2018
+
+VA - Dub Hits Vol.8 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mhammed El Alami & Lucid Blue - Under The Sun (O.B.M Notion Dub Mix)
+02. Elite Electronic & Sandro Mireno - Heaven Song (Extended Mix)
+03. Kiyoi & Eky, Khairy Ahmed - Little Angel (Extended Mix)
+04. Tom Exo - Hyperspace (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BE6A1A24BB64C8976B7D83B666D6C9CDB1058A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242483   (515123) от 22.08.2018
+
+Dinka - Innocence (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevation (8:31)
+ 02. Toes in the Sand (6:48)
+ 03. Venice Beach (6:09)
+ 04. Innocence (6:07)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED06CF7DCE3AB8C1C00BEA12D5845FDC79E3C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242481   (515120) от 22.08.2018
 
 VA - Nothing But... Ibiza Summer 2018 Trance (2018) [MP3|320 Kbps] <Trance>
@@ -688,64 +746,6 @@ VA - Ibiza Club Hits (2015) [MP3|320 кб/с]<Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24ACAD73EABDC071B12ECA688BCDFE250A91DA46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562158   (511486) от 08.07.2022
-
-VA - Digitally Enhanced Volume Seven (Mixed by Farius & Elevven) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lycii & Demi & Verest – Escape
-02. DT8 Project – Half Awake
-03. Notaker – The Distance
-04. Kudus & Farius – Select Player Mode(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 03:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FC3011B5C510EAAFE5EFA7E9753F244BBC2DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562215   (511485) от 08.07.2022
-
-VA - Milk & Sugar Summer Sessions 2022 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob Sinclar - Save Our Soul (Extended Rework 2021) (4:34)
-02. Milk & Sugar - Riding High (Milk & Sugar Re-Rub) (5:26)
-03. David Penn - Losing You (Crusy & Kpd Remix) (5:51)
-04. Ben Delay feat. Tess Leah - Before I Let Go (Superdope Extended Remix) (5:09)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0AD11FA606B4A6A54BB2E52D3C840E6A80425EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

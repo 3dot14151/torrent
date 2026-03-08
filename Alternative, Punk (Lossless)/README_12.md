@@ -1,3 +1,32 @@
+###  Публикация: 1502482   (826504) от 15.10.2021
+
+Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-hardcore, Alternative-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Night… [00:00:42]
+02. Welcome To Horrorwood [00:03:55]
+03. A Rash Decision [00:03:31]
+04. Assault & Batteries [00:03:28](   Читать дальше...   )Жанр: Metalcore, Post-hardcore, Alternative-metalПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F29FAB1DE68961BA615482CF64F197C42EF5077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006722   (825392) от 13.04.2016
 
 Weezer - Weezer (White Album) (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk, Power Pop>
@@ -717,35 +746,6 @@ James Vincent McMorrow - True Care (2017) [FLAC|Lossless|tracks + .cue] <Indie R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E41D6507E0AB95E63E826D288BB84670B4448890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506244   (801052) от 30.10.2021
-
-Tori Amos - Ocean To Ocean (2021) [FLAC|Lossless|tracks + .cue] <Alternative, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addition Of Light Divided
-02. Speaking With Trees
-03. Devil's Bane
-04. Swim To New York State(   Читать дальше...   )Жанр: Alternative, PopПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7FF7629ECF3DB11E6A135C96F6A5B5E79B9C74
 ```
 
 https://mybot314.ru/tekegram_catalog/

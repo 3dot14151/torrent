@@ -1,3 +1,61 @@
+###  Публикация: 1043713   (570804) от 17.08.2016
+
+VA - Fckng Serious (One Year) (2016) [MP3|320 Kbps] <Techno, Minimal Techno, Tech House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boris Brejcha, Deniz Bul - R U Fckng Serious (07:47)
+02. Boris Brejcha, Ann Clue - Roadtrip (08:14)
+03. Ann Clue - Rumbling Conversation (07:30)
+04. Boris Brejcha - I Am The Joker (08:18)(   Читать дальше...   )Жанр: Techno, Minimal Techno, Tech HouseПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC81AC08999B9FDDFA07FF32B45E2D82BDFF1DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151498   (570742) от 20.07.2017
+
+VA - Voice Of Suanda Vol.4 (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lucid Blue - Eyes Wide Open (Original Mix)  8:36
+02.  Bogdan Vix & Lucid Blue - I Am Now (Mhammed El Alami Extended Remix)  6:41
+03.  Boostereo & Lucid Blue - Rise To Fall (Original Mix)  4:02
+04.  Eximinds & Lucid Blue - A Higher Love (Original Mix)  5:33(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2664595479E5D96086FED7ABADB8A6E5D300B571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151706   (570727) от 20.07.2017
 
 VA - Poolside Heat Paradise Summer Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -684,63 +742,6 @@ VA - My Own Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0650FB8CB46FC4AD0934BF6C9FCE2400CFC0BD25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234714   (567962) от 07.07.2018
-
-Palta & Ti - Palta Og Ti På Den Tolvte Ø (2018) 12th Isle [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub, Leftfield, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. På Hovedet I Seng (08:11)
-02. 12 Ø Dub (05:47)
-03. Forårets Skørhed (10:20)Жанр: Ambient, Dub, Leftfield, ExperimentalПродолжительность: 00:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75D5406945AB0C683D252F4FE2E24C2FEB724DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152269   (567591) от 22.07.2017
-
-Daviddance & Francesco Frumento & I Biz - Nextix (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567591.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Daviddance - Nextix
-2.  Francesco Frumento - Soundwaves (feat Regis)
-3.  Daviddance - Life
-4.  I-BIZ - Prophecy(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E53BCE91E5CEAB1338CC61A2D5E3C478496A39
 ```
 
 https://mybot314.ru/tekegram_catalog/

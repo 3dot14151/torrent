@@ -1,3 +1,61 @@
+###  Публикация: 1792757   (67633) от 20.04.2025
+
+VA - Italian Restaurant Chill Music Vol. 3 (Beats to relax) (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik - Tac (3:49)
+02. Bodyles - Washington (3:35)
+03. Papik - Gente Come Noi (4:25)
+04. Cristiana Polegri - Cocktail D'Amore (3:39)(   Читать дальше...   )Жанр: Nu Jazz, Broken Beat, Lounge, Chill OutПродолжительность: 01:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F513EE6523DD0DE7DED2D0F18290D253556FBA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793281   (67549) от 23.04.2025
+
+VA - Uplifting Only Top 15: April 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JINGYAN - Azure Above (Intro Mix) [4:02]
+02. HALIENE & Maratone - Make It To Tomorrow (Illitheas Extended Remix) [6:56]
+03. Tycoos & Eximinds & Djoy - Night Sky (Extended Mix) [5:51]
+04. Tony Irrmani & Irina M. - Irene (Extended Mix) [5:34](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABDFBE57E001B211CB2FD79F10DC22DCC590F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793306   (67546) от 23.04.2025
 
 VA - Trancendence, Vol. 01 (2025) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ Tom Wax - The Future Is Now (2025) [MP3|320 Kbps] <Techno, Hard Trance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A931B0F79ACAD9BFC7CF1B98D0079FD42664B0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795647   (67054) от 05.05.2025
-
-VA - Fantasy Island (Rainbow Chill out Tunes), Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  MONGOA - Eternal (No Beat No Nature Soundscape Mix) (04:54)
- 02.  Living Room - Organic Sundance (Ambient Dub) (03:29)
- 03.  Peter Pearson - There Are Flowers in the Sky (06:28)
- 04.  CA3RD - Dream of Tibet (Mallet Version) (06:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAAC1BB5CD2B948319270D8F64BA1310A87BA0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796466   (66991) от 10.05.2025
-
-VA - Beach Mode ON (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.E.O.N - Where I Wanna Go (Radio Edit) (2:46)
-02. Ballester - On the Edge (3:18)
-03. Kvant - Sunlight (6:20)
-04. Sandro Marini - Dingindaya (3:46)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240687E5C384629BA2F8E9EB2B24C71107BDFE97
 ```
 
 https://mybot314.ru/tekegram_catalog/

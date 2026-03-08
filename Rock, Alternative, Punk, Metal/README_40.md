@@ -1,32 +1,3 @@
-###  Публикация: 1438302   (1041062) от 08.01.2021
-
-Mother's Day - Alta Reign (2021) [FLAC|Lossless|tracks + .cue] <Heavy-Metal, Melodic-Progressive-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shine [00:04:43]
-02 - Witness [00:04:11]
-03 - Thin Red Line [00:05:42]
-04 - Never Say Never [00:04:59](   Читать дальше...   )Жанр: Heavy-Metal, Melodic-Progressive-MetalПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BEB72500F83C53BE9A6A4A368B15CBD3D6C18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611409   (1041045) от 12.02.2023
 
 In Flames - Сollection (1994 - 2019) 36 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Melodic Death Metal>
@@ -744,6 +715,35 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C91B8D49B8621172E88C96FE31823A358243BB7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611732   (1040834) от 13.02.2023
+
+Burshtyn - 4 Albums (2016-2023) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2016 - Прах Відчайдухів / The Daredevils' Ashes
+2017 - Безвірник / Nothingarian
+2020 - Чортория / Chthonichasm(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73046F62ACE941A1F8345B6B2B8C41EF4CBB0AB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

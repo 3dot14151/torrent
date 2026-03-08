@@ -1,3 +1,32 @@
+###  Публикация: 1002124   (848600) от 31.03.2016
+
+Schnittke, Stravinsky - Piano music (Boris Berman) (1991) [FLAC|Lossless|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Schnittke
+01. Piano Sonata no. 1 (1987) -1- Lento (06:38)
+02. Piano Sonata no. 1 (1987) -2- Allegretto (05:49)
+03. Piano Sonata no. 1 (1987) -3- Lento (06:48)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8410EE70FD938C7E63E2542749A3980770DF7AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999558   (848595) от 31.03.2016
 
 Viktor Merzhanov - Russian Piano School (1995) [FLAC|Lossless|tracks] <Classical, Keyboard>
@@ -713,35 +742,6 @@ Symphony no. 8 in G major, op. 88
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DCCDD97291008A8DCC3D758A0151961817954D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005029   (834361) от 08.04.2016
-
-Bruce Brubaker - Glass Piano (2016) Extended Version [FLAC|Lossless|WEB-DL|tracks] <Classical, Minimalism, Electronic>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mad Rush (16:58)
-02. Metamorphosis 1 (6:27)
-03. Metamorphosis 2 (7:09)
-04. Metamorphosis 4 (6:09)(   Читать дальше...   )Жанр: Classical, Minimalism, ElectronicПродолжительность: 01:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726DA86CE3A9FDFAF95854BEE115F31BA5C80DCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

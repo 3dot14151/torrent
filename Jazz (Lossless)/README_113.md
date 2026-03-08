@@ -1,3 +1,32 @@
+###  Публикация: 1136594   (673245) от 23.05.2017
+
+Dizzy Gillespie - The Greatest Of Dizzy Gillespie (1946 - 1949) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manteca [03:08]
+02. Dizzier and Dizzier [03:07]
+03. Night in Tunisia [03:09]
+04. Anthropology (take 1) [02:40](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26499F382D54B0B2C2E5CC4C379052446CAF5F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136597   (673244) от 23.05.2017
 
 Duke Ellington - The Essential Recordings (1930-e - 1940-e) 1993, Charly Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ Duke Ellington - Peer Gynt Suites  Nos. 1 & 2, Suite Thursday (1960) 1990, Sony 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B3925FBB7E8A9FAE591F2260046680B92E48B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291304   (670846) от 24.03.2019
-
-The E.J. Strickland Quintet - Warriors For Peace (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uvumilivu (07:16)
-02. Warriors for Peace (05:30)
-03. Midnight's Clearing (07:27)
-04. Eclipse in 5 (Interlude) (00:27)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F251BD7C802C810905521F9B2C89E0A2AB271A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

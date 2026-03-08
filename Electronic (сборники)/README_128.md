@@ -1,3 +1,32 @@
+###  Публикация: 1314418   (517220) от 16.07.2019
+
+VA - Record Super Chart 595 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517220.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Billie Eilish - Bad Guy (3:14)
+2.Meduza feat. GOODBOYS - Piece Of Your Heart (2:32)
+3.Aaron Smith - Dancin (Krono Remix) (4:15)
+4.Ed Sheeran & Justin Bieber - I Don't Care (Jonas Blue Remix) (3:12)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EB384F2891A657632DFA7DD62EAA131731C3374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930260   (516397) от 22.08.2015
 
 VA - Natural Lounge and Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -717,35 +746,6 @@ VA - Tantric Sex and Lovemaking Music Background Music for a Night of Tenderness
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3DC968392E5DBE43BF25CBD6167F3E86CB6EF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931574   (511944) от 26.08.2015
-
-VA - Club Hits 2k15 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Green Point - Everything Has an End (Club Mix) [07:28]
-02. Definable - Seaside [08:16]
-03. Deportrance - Midsummernight [06:42]
-04. Sebastian Mulah - How Can I Save You [07:57](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 06:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081E81800A16BDFD2544B7F3226B265305EB0317
 ```
 
 https://mybot314.ru/tekegram_catalog/

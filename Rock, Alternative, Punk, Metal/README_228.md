@@ -1,32 +1,3 @@
-###  Публикация: 1497877   (861357) от 24.09.2021
-
-Dёргать! - Нереально, но легально (2021) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861357.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Зажги своё сердце!
-2. Fuck
-3. С сегодняшнего дня
-4. Пой со мной(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3097F319FDC7035B2801EE71E188844F2DE2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497879   (861253) от 24.09.2021
 
 Курара - Брут (2021) [MP3|320 Kbps] <Rock, Indie Rock>
@@ -753,6 +724,35 @@ Ocean Chief - Den Tredje Dagen (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1184E8EB822142C0C1DADD281D1103E26AAD18F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376385   (860697) от 17.04.2020
+
+Divitius - Primordial (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X X X I I I [05:07]
+02. Shapeshifter [04:22]
+03. Memento Mori [05:06]
+04. Colors [04:28](   Читать дальше...   )Жанр: Metalcore, Progressive MetalПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607022F06B77653D7EE7556C64B25A7C55ABD758
 ```
 
 https://mybot314.ru/tekegram_catalog/

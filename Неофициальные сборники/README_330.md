@@ -1,3 +1,177 @@
+###  Публикация: 913460   (600995) от 30.06.2015
+
+Moby - Best275z (1992-2013) [MP3|320 кб/с]<Electronic, Downtempo, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go
+02. Electricity
+03. Bad Days.
+04. Sound(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 05:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063A33547E6C383639A4E45A3C92558FFE102556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149464   (600976) от 10.07.2017
+
+VA - Record Super Chart #494 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tiesto & Sevenn - Boom  3:03
+02.  Yellow Claw & Moksi feat. Jonna Fraser - Open  3:31
+03.  C-BooL - Never Go Away  3:49
+04.  Scooter - Bora! Bora! Bora!  4:00(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD82CE593F13FE1B651AC65E097A0E060818824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913980   (600939) от 30.06.2015
+
+VA - Лучшие новинки июня 2015 от Zaycev.net (2015) [MP3|160 - 320 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muse - Reapers (05:59)
+02. Bon Jovi - Beautiful Day (03:50)
+03. Уматурман - Нарисованная (03:10)
+04. Юлианна Караулова - Ты Не Такой (03:16)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 02:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AB49465B4D19FBE1964112FDAED6F3D7267281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149337   (600912) от 10.07.2017
+
+VA - Лето Безлимит: Русский Популярный Микс (2017) [MP3|256-320 Kbps] <Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600912.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Artik & Asti - Тебе Одному 03:53
+002. MBAND - Правильная Девочка 03:36
+003. Егор Крид - Стой 03:34
+004. Azira - Всё Для Тебя 03:50(   Читать дальше...   )Жанр: РорПродолжительность: 11:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0580B598524305E765469DDDFD02018420DAB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299106   (600840) от 30.04.2019
+
+VA - не Громкие новинки недели 13 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthony El Mejor - Целуемся (3:33)
+02. Asammuell - Молчим (3:39)
+03. Demo & Love T - Осознанно (Для Тебя) (3:50)
+04. Diana Wilder - Станция Мы (3:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16D95010FA47682562346B2F8A7AA0D00D76BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914010   (600364) от 01.07.2015
+
+VA - Дрожит струна Суперхиты Радио шансон (2015) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600364.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Даниил Сорокин - Облом
+002. Катерина Голицына И Гарик Кричевский - Тест На Любовь
+003. Инна Улановская - Казацкая
+004. Сергей Родня - Роза(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5662C51A859D9C4FB7D6BA1531C4A937D560612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914153   (600269) от 01.07.2015
 
 VA - Хитовый форсаж №1 (2015) [MP3|320 кб/с]<Club, Dance>
@@ -607,180 +781,6 @@ VA - Empire Records - Deep Disco 2 (2017) [MP3|263-320 Kbps] <Dance, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4744D264AF6C030B4643DC200E0427A12625577A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232567   (598369) от 25.06.2018
-
-VA - Record Super Chart 542 (2018) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prodigy feat. Vicetone - Omen 3:43
-02. Bolier & Joe Stone - Keep This Fire Burning 4:23
-03. Don Diablo feat. Paije - People Say 3:09
-04. Lucas & Steve - Source 4:22(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 01:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18C866276BDD60D78F5153C3EDDB2F8528EC31C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548171   (598357) от 03.05.2022
-
-VA - Beatport Core Dubstep: Sound Pack #516 (2022) [MP3|320 Kbps] <Hardstyle, Core Dance, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришло время оживить свой рабочий процесс, да и просто сменить образ скучной офисной жизни с помощью свежих и отточенных треков 516-й коллекции от Beatport, охватывающей ряд хард-стилей и жанров электронной музыки, от дабстепа до Drum and Bass, Future Garage и Grime.001. DJ Reaction - Kolkata Police
-002. Eazyvibe - Who Am I
-003. Unifire & Robotics - Armageddon
-004. Artriangel - Artria(   Читать дальше...   )Жанр: Hardstyle, Core Dance, DubstepПродолжительность: 08:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FECD3EFAFEFC2071F69DA70DBBC22D50CC2FC51A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548176   (598356) от 03.05.2022
-
-VA - Beatport Goa Trance: Sound Pack #517 (2022) [MP3|320 Kbps] <Psychedelic, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыку транс-психоделики нельзя слушать кусками ведь качественный трек слишком сложен и глубок для того чтобы воспринимать его частями. Лишь полностью прослушав его можно составить ясную картину и получить в полной мере эстетическое наслаждения от этой музыки.001. Altered State - Mind Magic
-002. ETN - The Summoning
-003. Suntree - Frequencies
-004. Amplify - Overdrive Machine(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7BE8C9A4E5628A256704FAD1979FC1D8F1B5FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039094   (598209) от 31.07.2016
-
-VA - Beatport Trance Pack (28.07.2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lightning & Waveband -  Mirage (Mostfa And Mostfa Extended Remix) 6:17
-02. Bernis -  Northern Stars 7:46
-03. Christoph & Hasso -  Morning Sun (Original Mix) 7:09
-04. Hekmat -  Samsara (Original Mix) 5:46(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 04:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD017E5905B03AE908A0782D5114018BA7939E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548306   (598198) от 03.05.2022
-
-VA - La Perla De Musica: New Latin (2022) [MP3|320 Kbps] <Latin, Dance, Reggaeton>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжетная линия музыки этого сборника буквально нашпигована этническими мотивами латино, но наложено это на вполне себе европейский бит и бас. Авторам очень удачно удалось использовать схожесть народных инструментов с различными современными электронными "фишками" и они очень удачно это обыграли.001. Anuel Aa - Nunca
-002. J. Balvin - Blanco
-003. Sech - Relacion
-004. Manuel Turizo - Una Vez Mбs(   Читать дальше...   )Жанр: Latin, Dance, ReggaetonПродолжительность: 08:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97F2F7E5ED9A053C63EDC845532196C9404E2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039281   (598186) от 31.07.2016
-
-VA - Electro Summer (2016) [MP3|320 Kbps] <House, Electro House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Middle Milk -  Me (Club Mix) 5:46
-02. Fatblock -  The Stack (Original Mix) 3:34
-03. Froxic -  In Orbit (Original Mix) 6:30
-04. Dylexia -  Immortal (Original Mix) 5:38(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 03:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41135D073D712344A4D2683B8797818069139C88
 ```
 
 https://mybot314.ru/tekegram_catalog/

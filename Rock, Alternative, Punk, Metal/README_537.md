@@ -1,32 +1,3 @@
-###  Публикация: 1239879   (533153) от 08.08.2018
-
-Primal Fear - Apocalypse (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse
-02. New Rise
-03. The Ritual
-04. King of Madness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA2E038E79B182AC341C5B323CD6A5D6E7FDF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155581   (533131) от 03.08.2017
 
 Accept - The Rise Of Chaos (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -745,6 +716,35 @@ Black Sabbath - The Spirit Of 666 (2016) Live [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9992FB457F5DCE3D992A71368B01A8B7FFAA9210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 697805   (532328) от 07.09.2013
+
+John Lennon - The John Lennon Collection (1989) [FLAC|Lossless]<Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Peace A Chance (4:54)
+02. Instant Karma! (3:23)
+03. Power To The People (3:19)
+04. Whatever Gets You Thru The Night (3:20)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6FCD9758152B49673798A7A682E28544F0A29E
 ```
 
 https://mybot314.ru/tekegram_catalog/

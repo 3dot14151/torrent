@@ -1,3 +1,32 @@
+###  Публикация: 1461828   (1021598) от 11.04.2021
+
+V.A. - Women Of Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etta James – At Last
+02. Norah Jones – Don’t Know Why
+03. Nina Simone – Feeling Good
+04. Ella Fitzgerald – Mack The Knife (Live)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40649C02F49FB3AA59B7B5A6F2C6F44A4E786CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461979   (1021463) от 12.04.2021
 
 Paolo Di Sabatino - Paolo Di Sabatino (2002) Il Manifesto [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -716,35 +745,6 @@ Parry Ray - Out Of The Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6782913EB6ED16F382845E1399A274FC93AF7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465973   (1018833) от 28.04.2021
-
-Kenny Garrett - Happy People (2002) Warner Bros. Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for DiFang [5:26]
-02. Happy People [5:12]
-03. Tango in 6 [5:53]
-04. Ain't Nothing but the Blues [5:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1B574C1752D237153182EEE7A0C62447B3AC22
 ```
 
 https://mybot314.ru/tekegram_catalog/

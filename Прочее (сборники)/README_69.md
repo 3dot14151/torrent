@@ -1,3 +1,131 @@
+###  Публикация: 508701   (679124) от 10.06.2012
+
+VA - 100 Mega Summer Hits 2012 (2012) [MP3|~273 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_679124.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gipsy Kings - Bamboleo (3:25)
+2. Simply Red - The Right Thing (4:23)
+3. Mungo Jerry - In The Summertime (3:30)
+4. Sean Kingston - Beautiful Girls (3:47)
+5. DJ Jazzy Jeff & The Fresh Prince - Ring My Bell (3:47)
+6. R.I.O. - Miss Sunshine (5:24)
+7. The Sunclub - Fiesta (4:14)
+8. Skee-Lo - I Wish (4:13)
+9. Righeira - Vamos A La Playa (3:40)
+10. Elvis Presley - Mexico (2:00)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:04:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508041   (679093) от 10.06.2012
+
+VA - Сборник Родной музыки - "Авега" (2012) [MP3|192 кб/с]<Rock, Folk, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Дар Ветер - Вечность
+02 Банды Москвы - Живи Россия Моя
+03 Николай Емелин - Княжий остров
+04 Алевтина - Мокошь
+05 Мельница - На Север
+06 Алиса - Небо славян
+07 Светлаяна - Птицы
+08 Ария - Свобода
+09 Контрреволюция - Это значит, что скоро война
+10 Сокира Перуна - Дорога в Вальхаллу(   Читать дальше...   )2012Жанр: Rock, Folk, PopПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCA6DACA298B1B8EE96648F8D5598231B94534E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222906   (678975) от 02.05.2018
+
+VA - Под водочку (2009) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678975.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Верка Сердючка - Горилка
+002. Братья Гримм - Пчела (Albach Remix)
+003. Уматурман - Главное, ребята, сердцем не стареть
+004. Витас - Потолок ледяной(   Читать дальше...   )Жанр: Поп, ШансонПродолжительность: 05:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29C26491D2DAE8CEC0735ED3EA460BF39353C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135754   (678955) от 20.05.2017
+
+VA - Empire Records - Retromania (2017) [MP3|320 Kbps] <Disco, Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mars - Disco Perpetrator (Original Mix) 5:59
+02.  Boris Zhivago - Lonely Lover (Classic Extended Mix) 6:12
+03.  Butterfly - Sorrow (Vocal) 8:31
+04.  Global Hit Makers - Shadows (feat. Marco Musca) 3:54(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 01:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49FB4BBF623F68F22B91D665DA240984CA3338E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223136   (678717) от 02.05.2018
 
 Avril Lavigne - My Happy Ending (2018) Remix [MP3|320 Kbps] <Deep, Techno>
@@ -639,140 +767,6 @@ VA - The Official UK Top 40 Singles Chart 04.05.2018 (2018) [MP3|320 Kbps] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF6A46B0BCD95D4EC3955EEF8038672C1D88A911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223347   (673410) от 05.05.2018
-
-VA - Cocktail new music №33 (2018) [MP3|320 Kbps] <Dance, Club, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673410.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Akcent feat. Reea - Stole My_Heart
-002. Burak Yeter - French Kiss
-003. Camila Cabello feat. Kane Brown - Never Be The Same
-004. Dan Balan feat. Matteo - Allegro Ventigo(   Читать дальше...   )Жанр: Dance, Club, R&BПродолжительность: 06:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30415CE7A0EAF8090F1D7F8F611431414AFEB088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509888   (673060) от 13.06.2012
-
-VA - Club In Car Summer (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kate Ryan - Robots (Extended Version)
-02. Sunrise Inc - Nina (Burak Zorlu Mix)
-03. Chris Parker - Rock'n'Roll Revolution (Extended USA Edit)
-04. Scooter & Lavelle, Sue Cho - Beats Inside My Head (Mattias & G80's Remix)
-05. Geo Angelo Feat. Alicia - My Baby (Savero Remix)
-06. Itay Kalderon feat. Gad Elbaz - Jerusalem (Club Mix)
-07. Azuro feat. Elly - Je Ne Sais Pas (R.I.O. Remix)
-08. Avicii vs. Lenny Kravitz - Superlove (Original Mix)
-09. Skrillex - Breakin' A Sweat (DJ Nejtrino & DJ Stranger Remix)
-10. Jordan Rivera - Keep On Holding (feat Spoonface - Firebeatz remix)2012Жанр: Dance, ClubПродолжительность: 04:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1D3E3B5B8E2623936E0D2FBD74667B28A98640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509493   (673052) от 13.06.2012
-
-VA - Зарубежные Новинки Vol.55 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuera - The Lost Island
-02. Rares & Joshua - Smile (Extended Mix)
-03. Florrie - Every Inch
-04. Cristiano Matto feat. Gabriele - Fight (Radio Edit)
-05. Meital feat. Sean Kingston - Be On Ya
-06. Medina - Good To You
-07. Iulian Florea feat. Stephanie Kay - Hide (Club Mix)
-08. Jennifer Lopez - Bailar Nada Mas
-09. Mellina feat. Bogdan Ioan - Can't Hide (Radio Edit)
-10. Justin Bieber - Die In Your Arms2012Жанр: PopПродолжительность: 03:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE781B85D91968FA88BDB62E84A34EB5EA3C64C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509955   (673051) от 13.06.2012
-
-VA - World R&B Delux (2012) [MP3|320 кб/с]<R&B, Hip, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673051.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Labrinth - Earthquake (4:35)
-2. Urban Floorfillers - Pass Out-Tinie Tempah (3:57)
-3. Nicki Minaj - Starships (Explicit Edit) (3:30)
-4. Skepta - Make Peace Not War (3:10)
-5. Lloyd feat Andre 3000 & Lil W - Dedication To My Ex (Miss Tha (3:56)
-6. Dj Fresh feat Rita Ora - Hot Right Now (3:02)
-7. Cover Drive - Sparks (2:58)
-8. Mann - Buzzin (3:45)
-9. Drake feat. Lil Wayne - The Motto (3:53)
-10. Tyga - Rack City (2:30)2012Жанр: R&B, Hip, RapПродолжительность: 03:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B034A5B3724ED64CF6B13003A94C2F7492110937
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 950142   (373061) от 25.10.2015
+
+VA - Halloween Party (20 Trick or Treat Dance Hits) (2015) [MP3|320 кб/с]<Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Samuel Kimkт - La Zumbera (Video Mix) (03:08)
+02. Flip Capella - Moments in Love (03:23)
+03. Funky Chicos - Funky Town (03:45)
+04. NDS, Tom-E - 2GETHER 4EVER (Radio Mix) (03:52)(   Читать дальше...   )Жанр: Dance, Electro HouseПродолжительность: 01:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B49AADF5F4E071A978092633B0A8D42B3FEDDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949998   (372912) от 25.10.2015
 
 VA - Best Of Vocal Trance Classics Vol 2 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
@@ -726,38 +755,6 @@ VA - A State Of Vocal Trance Volume 10 (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D772AE8B4AD2B5170EA85F7D53FE801D391F6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575073   (368778) от 15.11.2012
-
-VA - Trance Maniacs Party: Radio Shivers 2012.4 (Special Edition) (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368778.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Trance Maniacs Party: Radio Shivers 2012.4 (Special Edition) (2012)
-Год: 2012
-Жанр: Trance, Uplifting Trance, Vocal Trance
-Продолжительность: 03:07:51Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:001. Ashley Wallbridge - Zorro (Club Mix)
-002. Corderoy feat. Little Neve White - Run into the Sun (Original Vocal Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F453E9E4AFF7E75D9C20BF7754CF540CF3E348A
 ```
 
 https://mybot314.ru/tekegram_catalog/

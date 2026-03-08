@@ -1,3 +1,32 @@
+###  Публикация: 1343185   (218585) от 06.12.2019
+
+VA - Blow Up Disco Vol 5: Italo Heaven (A Sexy Selection Of Italodisco!) (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mikron's – Vision (instrumental Italo version) (7:06)
+02. Mikron's – Vision (Club mix) (7:29)
+03. E.B.'87 – Song Of Love (Italo mix) (4:54)
+04. E.B.'87 – Easy Love (4:20)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207A1B3A2B4502E60EBDE29CDA7EF824FF009F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343214   (218544) от 06.12.2019
 
 Jennifer Paige - Crush: The Best of Jennifer Paige (2013) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Pop-Rock, Ballad>
@@ -716,35 +745,6 @@ Rita Ora - You & I (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1264B638B33338964C15AC9FA2AE5B7E2E9B8273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607982   (208709) от 29.01.2023
-
-Stars On 45 - 40 Years Anthology (2022) 2CD, Remastered [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop, Retro-Schlager, Post-Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Superstars (The Greatest Rock 'n Roll Band In The World) (RM.) (16:02)
-02. Stars On Stevie (Remastered) (7:44)
-03. It's Not A Wonder, It's A Miracle (Remastered) (6:56)
-04. Stars On Jingle (Remastered) (0:11)(   Читать дальше...   )Жанр: Disco, Pop, Retro-Schlager, Post-Rock, R&B |Продолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B3ADD7C12F80D85B9BE6176F7AF7A26F22BC820
 ```
 
 https://mybot314.ru/tekegram_catalog/

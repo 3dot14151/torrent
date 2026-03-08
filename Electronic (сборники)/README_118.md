@@ -1,3 +1,32 @@
+###  Публикация: 1304673   (561168) от 27.05.2019
+
+VA - Top 100 Club Tracks Vol.1 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561168.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Billie Eilish - Bad Guy (Division 4 Remix) 5:22
+002. Dr. Dre feat. Snoop Dogg - Still D.R.E. (DJ Dark & Mentol Bootleg) 3:55
+003. 50 Cent x Sunstars x Chester Young - How We Work (Stas Limonoff Mashup) 3:09
+004. Artik & Asti - Привет (Lavrushkin & Max Roven Remix) 4:23(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F03D3D93E8C0383820567273BFD40453454BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902457   (560724) от 02.08.2015
 
 VA - Extra Trance (episode 1) (2015) [MP3|320 кб/с]<Trance>
@@ -737,35 +766,6 @@ VA - Sunset Beats - Ibiza Edition (2015) [MP3|320 кб/с]<Downtempo, Chillout, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:889F3754D44011C41BDE1E6AA54F72C814BBA1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924485   (557668) от 04.08.2015
-
-VA - The Sounds Of The Underground 03 (DJ Mix By Deeper82) (2015) [MP3|320 кб/с]<Deep House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arctic Night - Wake Me Up (Adam-P Still Dreaming Remix)
-02. Techtower - Wonderland (Original Mix)
-03. 10dens Feat. Velb - Scila (Original Mix)
-04. Jallen - Far From Here (Original Mix)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85FFC9E9A848BB344394CBDB292C906920EC2AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

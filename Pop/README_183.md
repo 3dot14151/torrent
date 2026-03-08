@@ -1,3 +1,61 @@
+###  Публикация: 1241235   (521059) от 16.08.2018
+
+Lady Gaga - Singles Collection (2017) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Bad Romance (Extended Version)
+02. Born This Way
+03. Alejandro(   Читать дальше...   )Жанр: Pop |Продолжительность: 02:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9374CC79FBFDAFB6AE2DF5C87622739AFD8D81D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241244   (521057) от 16.08.2018
+
+VA - 12 Inch Dance: 90s Remix (2018) 3CD [FLAC|Lossless|tracks + .cue] <Electronic, Synthwave, House, Pop, Breaks>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tori Amos – Professional Widow (Mr. Roy's Cosmic Cottage Mix) (07:56)
+02. Pete Heller – Big Love (The Dronez Mix) (08:23)
+03. Stetsasonic – Talkin' All That Jazz (Dim's Radio Edit) (04:26)
+04. The Brand New Heavies – Dream On Dreamer (David Morales Extended UK Version) (08:32)(   Читать дальше...   )Жанр: Electronic, Synthwave, House, Pop, Breaks |Продолжительность: 03:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B3BB67DF229EDD75FD55BAE7CBB862DE7D7455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 372778   (520999) от 07.08.2011
 
 Cretu And Thiers - Belle Epoque (1988) [FLAC|Lossless]<Pop>
@@ -701,64 +759,6 @@ Coeur de Pirate - Carry On (2015) Single [FLAC|tracks|WEB-DL]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:830B10DACAE8C5CCFE72FAD168F054351290C9BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241990   (517106) от 20.08.2018
-
-DJ Дождик - Почему же... (2006) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Босяк (4:15)
-02. Мы любим тех (4:29)
-03. Почему же (4:33)
-04. Баллада (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B16D75CB7CF86243A21A919D59577E31CE264D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241991   (517094) от 20.08.2018
-
-Чи-Ли - Сделано в Чили (2008) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любовь - это яд (3:56)
-02. Сто один раз (3:31)
-03. Сердце (3:48)
-04. А может быть (Light Version) (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22462D192CE5E6A3D69154F7D5CC1E8E3E90D7A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

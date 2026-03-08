@@ -1,3 +1,32 @@
+###  Публикация: 1084697   (216168) от 20.12.2016
+
+VA - Christmas Cafe (2016) [FLAC|Lossless|tracks] <Pop, Soul, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pentatonix – The Christmas Song (Chestnuts Roasting on an Open Fire) [00:03:43]
+ 02. Tom Odell – Real Love [00:02:21]
+ 03. Joshua Radin – Winter [00:03:23]
+ 04. Katy Perry – White Christmas [00:03:20](   Читать дальше...   )Жанр: Pop, Soul, FolkПродолжительность: 02:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9481DE3B44914BD429C5C34819616492352E0170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514750   (215325) от 04.12.2021
 
 Blackmore's Night - Nature's Light (2021) 2CD, Mediabook [FLAC|Lossless|tracks + .cue] <Folk Rock>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40E602359952E9EAFD294C3B88E78472E2483944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432257   (164964) от 16.12.2020
-
-Ulvesang - Ulvesang (2015) [FLAC|Lossless|Web-DL|tracks] <Folk, Ambient, Dark Folk, Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Purge (6:33)
-02. Taakeferd (5:20)
-03. Two Rivers (3:39)
-04. Wolf's Passage (5:22)(   Читать дальше...   )Производство: Ulvesang Self-releasedЖанр: Folk, Ambient, Dark Folk, NeofolkПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D782472C52FE80A161588511E7F3C400A3401C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

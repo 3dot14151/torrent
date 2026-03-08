@@ -1,3 +1,32 @@
+###  Публикация: 953403   (347095) от 05.11.2015
+
+Sadao Watanabe - Pamoja (1975) /2015, Universal/[FLAC|tracks+.cue]<Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Vichakani [15:36]
+ 02.Musitoni [09:17]
+ 03.Pamoja [14:31]
+ 04.Ev'rytime We Say Goodbye [08:36]Жанр: Post-Bop, Jazz FusionПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F78712DBA4C33ACEC078477C81EDC6DAF683734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953391   (346977) от 05.11.2015
 
 Enrico Rava Quartet with Gianluca Petrella - Wild Dance (2015) /ECM/[FLAC|tracks+.cue]<Post-Bop, Contemporary Jazz>
@@ -730,41 +759,6 @@ Gary Burton - Libertango (The Music of Astor Piazzolla) (1999) [APE|Lossless]<Ja
 08. Contrabajissimo
 09. Fugata
 10. Mumuki(   Читать дальше...   )Жанр: Jazz ,TangoПродолжительность: 1:11:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580530   (343367) от 25.11.2012
-
-Ben Sidran - Don't Cry For No Hipster (2012) [FLAC|Lossless]<Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_343367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Nine
-02. Brand New Music
-03. Don't Cry for No Hipster
-04. At Least We Got to the Race
-05. Can We Talk
-06. In the Beginning
-07. It Don't Get No Better
-08. Dying Anyway
-09. Private Guy
-10. Reflections(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:14
 
 ## Скачать торент
 ```bash

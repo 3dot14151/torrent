@@ -1,3 +1,61 @@
+###  Публикация: 1147156   (609179) от 02.07.2017
+
+VA - Dream Dance Vol.83 (2017) 3CD [MP3|320 Kbps] <Trance, House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dream Dance Alliance - Full Control (Radio Edit)  4:08
+02.  ATB - Message Out To You (feat. Robbin & Jonnis)  3:35
+03.  Dash Berlin - Coming Home (feat. Bo Bruce)  3:13
+04.  Armin van Buuren - My Symphony (The Best of Armin Only Anthem)  3:10(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 05:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0D1E33542CE5A77ADE3CD6AA785051E1E7BCFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231122   (609039) от 16.06.2018
+
+VA - Black Hole Trance Music 06-18 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Roger Shah & JES - Star-Crossed (Club Mix)
+02.Solarstone - Thank You (Extended Mix)
+03.Betsie Larkin With Dennis Sheperd & Liuck - Driving Through The Dark (Extended Mix)
+04.John O'callaghan - Choice Of The Angels(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886CF1A7095A2C97FC7C1ACF975FDC86C850212D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231080   (609025) от 16.06.2018
 
 Jon Hassell - Listening To Pictures (Pentimento Volume One) (2018) Ndeya [FLAC|Lossless|WEB-DL|tracks] <Ambient, Contemporary Jazz, Leftfield>
@@ -689,64 +747,6 @@ Japan - Exorcising Ghosts (1984) Anthology [FLAC|Lossless|tracks + .cue] <Synth-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E442422C552E03436745597CB8E9EDB4FDFFA41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297102   (606791) от 20.04.2019
-
-Nova - Passages (2014) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, IDM, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Murray - Passing Through Walls (05:48)
- 02. Fingers In The Noise - Delicate (06:39)
- 03. Cygna - Within (06:20)
- 04. Brando Lupi - Opal (07:52)(   Читать дальше...   )Жанр: Psybient, Downtempo, IDM, AmbientПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92CB8C577F445E2D27C4B6666943251CB281D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297096   (606788) от 20.04.2019
-
-Scann-Tec - Morpheus | live Nuit Hypnotique #4 (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Ambient, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flicker (Live Edit) (04:19)
- 02. ASD (Live Edit) (06:38)
- 03. Phone Call (Live Edit) (06:18)
- 04. Hello Human (Live Edit) (05:59)(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 01:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D872C4C8D90FF89FDFBCB38FBE1CB196241E3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1432257   (164964) от 16.12.2020
+
+Ulvesang - Ulvesang (2015) [FLAC|Lossless|Web-DL|tracks] <Folk, Ambient, Dark Folk, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Purge (6:33)
+02. Taakeferd (5:20)
+03. Two Rivers (3:39)
+04. Wolf's Passage (5:22)(   Читать дальше...   )Производство: Ulvesang Self-releasedЖанр: Folk, Ambient, Dark Folk, NeofolkПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D782472C52FE80A161588511E7F3C400A3401C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432258   (164928) от 16.12.2020
 
 Ulvesang - The Hunt (2018) [FLAC|Lossless|Web-DL|tracks] <Folk, Black Metal, Dark Folk, Neofolk>
@@ -716,35 +745,6 @@ Meldis - Отдохни, волшебник (2006) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCD7F125A7A3FF1C24453563256BFA0A6ABC306D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700804   (115503) от 26.02.2024
-
-Meldis - Арфография (2007) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wherever he goes
-02. Rambe's to Cashel/Planxty Captain O'Kane
-03. Cruel Sister
-04. Lorient(   Читать дальше...   )Жанр: Folk, Celtic HarpПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A401247DCA26E78F08EA43C3F2EB9B8813E7EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

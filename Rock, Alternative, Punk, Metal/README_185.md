@@ -1,32 +1,3 @@
-###  Публикация: 1097533   (914120) от 27.01.2017
-
-Betraying the Martyrs - The Resilient (2017) [MP3|320 Kbps] <Symphonic Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost For Words (04:00)
-02. Take Me Back (04:50)
-03. The Great Disillusion (04:15)
-04. Dying to Live (03:45)(   Читать дальше...   )Жанр: Symphonic Metalcore, DeathcoreПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C5D43C0DE3EDD755E7050F51CD70E592DC6354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097310   (914119) от 27.01.2017
 
 Magnum - Sacred Blood "Divine" Lies (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Progressive>
@@ -742,6 +713,35 @@ Soulrest - это Ужгородская металл группа, играющ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F78225560B686CA974CB271FA9B3FB4DCE70D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097610   (912514) от 28.01.2017
+
+The Murder of My Sweet - Echoes of the Aftermath (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleeping Giant
+02. Personal Hell
+03. Racing Heart
+04. Cry Wolf(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6C079714EBDE571A5DE2CE6ABB603A20EB0E02
 ```
 
 https://mybot314.ru/tekegram_catalog/

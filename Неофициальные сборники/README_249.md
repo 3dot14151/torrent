@@ -1,3 +1,177 @@
+###  Публикация: 1131213   (709018) от 05.05.2017
+
+VA - Beatport Trance  Pack (05.05.) (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alexey Ryasnyansky - UFO (Rich Triphonic Remix)  7:18
+02.  Robert Nickson & Cat Martin - Every Sun (Factor B's Extended Perfect Sunrise Remix)  8:00
+03.  4 Strings & Denise Rivera - In The Middle Of A Dream (Original Mix)  5:13
+04.  Steve Allen & Mhammed El Alami - Perception (Niko Zografos Remix)  6:28(   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE905F478F7F6E533E6BEC0B12CCB9250561A0BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131279   (709004) от 05.05.2017
+
+VA - Любимые песни шансона. Версия № 10 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709004.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алексей Созонов - Скажи Мне Да 2:56
+002. Игорь Герц - Водочка 4:22
+003. Запретка - А Метель Дорожку Заметает 4:20
+004. Евгений Любимцев - Ах Одесса-Мама 3:06(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD956D6DBBD6750EBC42633DAB2FF5D68744CB52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131272   (709003) от 05.05.2017
+
+VA - Best-of-ka на радио Шансон. Часть № 3 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709003.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виталий Гордей - Милая 3:29
+002. Александр Казанцев (Сотник) - Сибирячка 3:31
+003. Григорий Герасимов - Твой Кобяков 4:56
+004. Константин Крымский - На Троих Не Делится Любовь 3:31(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F808FFD0724E0BAACF6F5A2C0E547A84FAEBBAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131264   (709000) от 05.05.2017
+
+VA - Хитовая весна на Europa Plus (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709000.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Максим Смолин - Напиши 3:32
+002. Seda - Между Нами 3:30
+003. Alex Kafer & Lera - Замок Из Дождя 4:14
+004. Din-Go & Katrin Mokko - Без Тебя 3:35(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BDCAAE56A74EDF69701BCBEA661163EF74279AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286923   (708975) от 04.03.2019
+
+VA - NEW  1 от Виталия 72 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Андрей Картавцев (ВЕрсиА) - Не сомневайся никогда
+02. Сборная Союза - Зима
+03. Стас Костюшкин ( feat Шура) - На Стиле 90-х
+04. Игорь Кибирев - Ты Ко Мне Не Придешь(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E08E59851E3412355FBCFEDA0643BE7796A88BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131261   (708918) от 05.05.2017
+
+VA - Топовая сотня весенняя от Хит FM выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708918.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лолита - Ты Мое Море 3:09
+002. Султан (Sultan) - Моя Стихия 3:50
+003. Полиграф Шарикoff (Серега) - Наприседала 3:26
+004. Milen - Гори Огнем 4:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375D9033E0F2D84287F171F96DD040C364039F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131253   (708912) от 05.05.2017
 
 VA - Зажигай вместе с Европа Плюс выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
@@ -571,180 +745,6 @@ VA - Top 40 Summer Round Essential (2016) [MP3|320 кб/с] <Dance, Club, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49D7E26B8F29D0729F28E80DA20441DB866A6B87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025832   (708199) от 13.06.2016
-
-VA - Kontor Festival Sounds 2016.02 - The Opening Season (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimitri Vegas & Like Mike & Steve Aoki vs. Ummet Ozcan - Melody (Extended Mix) [6:19]
-02. Hardwell & Kura - Calavera (Extended Mix) [3:51]
-03. MATTN & Futuristic Polar Bears - Caf## Del Mar 2016 (Dimitri Vegas & Like Mike Vocal Mix) [3:45]
-04. R3hab & Quintino - Freak (VIP Remix) [4:12](   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 08:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA001E6A65A525EF54509543655DB2BB284B90B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220055   (708172) от 17.04.2018
-
-VA - Lowrider Bass (2018) [MP3|320 Kbps] <Drum And Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708172.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AwakeFM - Biokernel (Original Mix)
-002. Furia - Good Vibrations
-003. Denis L - Auf der Flucht
-004. Agressor Bunx - Galaxy(   Читать дальше...   )Жанр: Drum And Bass, DubstepПродолжительность: 11:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB407C08CEEA348A27B604BB926AE71709A70747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220038   (708162) от 17.04.2018
-
-VA - Adventum Sanctorum: Metal Compilation (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708162.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Valinor - Adventum Sanctorum
-002. Wind Rose - Distant Battlefields
-003. Morfin - Embodiment
-004. Act of Defiance - M.I.A.(   Читать дальше...   )Жанр: Heavy, Power, Death MetalПродолжительность: 11:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F777591E4CC0FE665E426740AE28B042229876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220148   (708161) от 17.04.2018
-
-VA - Club Dance Ambience vol.143 (2018) [MP3|320 Kbps] <Club House, Vocal House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708161.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Afgo - The Truth (Original Mix)
-002. Alain Deejay - Mirame (feat. Katiuscia Ruiz) (Giovix Remix Edit)
-003. Andrea Tufo - Bassline Riddim (Original Mix)
-004. Anna Mirani - Come With Me (Original Mix)(   Читать дальше...   )Жанр: Club House, Vocal House, Electro HouseПродолжительность: 07:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A53B5C5E8CD1CE5A2F861E01896754EF2034B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026049   (708131) от 13.06.2016
-
-VA - Coffee Break: Sensational Chillout Selection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonoric Academy - Under Dress - Water Mix
-02. Interior Beats - Green Blink - Nigh O' Phonic Mix
-03. Ther Contact Project - Your Temptations - Red Flowers Mix
-04. Makina Jane - 2 Much - Rain Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020DC69295D7F0260E0BE4B05445E64D229AE954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025965   (708129) от 13.06.2016
-
-VA - Club Music Times Planet (2016) [MP3|253-320 кб/с] <Hands Up, Dancecore, Funky, Progressive, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Jump Feat. Gretha Ellis And The Bleach - Sikania (J-Art Mix) 02:52
-02. After Sunrise - Under The Sun 07:18
-03. Illusion - Together (Extended) 04:02
-04. Heath Liquid - Party People (Clubmix) 05:26(   Читать дальше...   )Жанр: Hands Up, Dancecore, Funky, Progressive, HouseПродолжительность: 08:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DC084764F65BECEB7ECC0A32B99FC6FF8A21F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

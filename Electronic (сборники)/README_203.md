@@ -1,3 +1,32 @@
+###  Публикация: 1519430   (148684) от 24.12.2021
+
+VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной презент для любителей танцевальной музыки на треках сборника под названием "Best White Party"! Веселые ритмичные мелодии поднимающие настроение и под которые так сложно не пуститься в зажигательный танец.001. Colle - Nowhere To Follow
+002. Grum - Price Of Love
+003. Lezcano - In My Time Of Need
+004. Dany Dz - Strangers(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 12:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F231AFEF2B6B2ACA49F622524763BCAB2A9E7F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519437   (148651) от 24.12.2021
 
 VA - EDM Friday Party (2021) [MP3|320 Kbps] <EDM, Dance, Club>
@@ -722,35 +751,6 @@ VA - Beatport Drum And Bass: Electro Sound Pack #214 (2020) [MP3|320 Kbps] <Drum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F31CB7F576B376F7C9F7483D31F6B862C4AF5E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435375   (144332) от 28.12.2020
-
-VA - Feel The Nature: Ambient Sound (2020) [MP3|320 Kbps] <Ambient, Downtempo, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда наступает время морозных вьюг и долгих вечеров, пора включить музыку сборника «Feel The Nature». Спокойные, умиротворяющие и расслабляющие мелодии помогут встретить зимнюю грусть с улыбкой и насладиться этим замечательным временем года. Пора завернуться в плед, налить горячего какао и послушать эту приятную музыку.001. Max D Milford - Movements
-002. Shuta Yasukochi - Floating
-003. Gleezy - June Chat
-004. Logic Moon - Momentum(   Читать дальше...   )Жанр: Ambient, Downtempo, New AgeПродолжительность: 08:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D0A8919876CE15CB823063B2A711F3E9FA5BBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

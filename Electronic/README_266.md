@@ -1,3 +1,61 @@
+###  Публикация: 1047731   (549398) от 30.08.2016
+
+VA - Chilled Summer Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christos Fourkis - Sueno De Amor (6:59)
+02. Nova Casa - Back For More (6:54)
+03. Peter Pearson - Your Soft Caress (4:39)
+04. House Republic - Intillah (HR Deep Mix) (3:55)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D70F589E644C4CAE5CE1D556D5C1D0C0D9F74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047603   (549395) от 30.08.2016
+
+VA - Drift Perfect Chillout Tracks (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julienne Taylor - Song to the Siren
+02. Classical Sculptures - American Beauty
+03. Celtic Spirit - The Rosebud
+04. Classical Sculptures - Nimrod(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B4445D74FD352D2BBD8F23FD16660EC52177ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047712   (549394) от 30.08.2016
 
 VA - Oriental Summer (20 Beautiful Lounge Anthems) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ VA - Naked Chilling Vol.1 (Pure Summer Chillout Tracks) (2016) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9972EFDEC12C946F72C6FC477C2F022B8295970B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047784   (548428) от 31.08.2016
-
-VA - Ibiza by Night Lounge Playlist (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaxamalka - Connection Angles (Original Mix) (5:49)
-02. Chillelektro - Berlengas (Original Mix) (6:57)
-03. Baghira - A Light From Within (Original Mix) (6:05)
-04. Cesar Martinez Ensemble - Dont Stop Believing (Original Mix) (6:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069AD6039BB42B3CA914E890D7A7CCAD204C6A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047845   (548423) от 31.08.2016
-
-VA - Closing Parties (2016) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Casta - Venomous
-02. David Cheeky - Consequences
-03. Stereometric - Abgemacht
-04. Jordi Svit - Big Daddy(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3829D0CC5371E570C46FE44DF75012A8F55B4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,180 @@
+###  Публикация: 1417970   (350496) от 23.10.2020
+
+VA - Music News vol.42 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350496.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelita - Karma (02:51)
+ 002. 5sta Family - Эгоистка (03:04)
+ 003. 36 Crazyfists - Installing the Catheter (03:51)
+ 004. A.T feat. OKIAN - По Губам Дождь (02:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FA48F5D5F416F35936BC5F7F2291C72303946C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578928   (350435) от 22.11.2012
+
+VA - Зарубежная дискотека (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Secret Service - Ten O, Clock Postman
+ 02 - Eraption - One Way Ticket
+ 03 - Murray Head - One Night In Bangkok
+ 04 - Dschinghis Khan - Rocking Son Of Dschinghis Khan
+ 05 - Laura Branigan - Selfcontrol
+ 06 - Neoton Familia - Marathon
+ 07 - Fancy - Flames Of Love
+ 08 - Videokids - Do The Rap
+ 09 - C.C. Cath - Midnight Gambler
+ 10 - Arabesque - Midnight DancingЖанр: PopПродолжительность: 04:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD21EB2EC1E220EF06647E0F726D614456A3D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329767   (350271) от 06.10.2019
+
+VA - Record Super Chart 607 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C-BooL - Catch You 3:13
+02. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
+03. Gamper & Dadoni feat. Emily Roberts - Bittersweet Symphony 3:15
+04. Slider & Magnit - Morze 3:11(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FA4702D1A096BEB462B053A9FA53A759EDD184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578868   (350210) от 22.11.2012
+
+VA - The Official UK Top 150 Best-selling Singles Of The 21st Century (2000-2012) [MP3|320 кб/с]<Pop, Rock, Dance, RnB, TOP>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блуждая по просторам Википедии наткнулся на страничку "List of best-selling singles of the 21st century (UK)". Оказывается, компанией "Official Charts Company" ведется перечень самых продаваемых синглов недели Великобритании. С 2005 года топ был основан на продажах синглов как на физических, так и на цифровых носителях, при условии, что сингл (   Читать дальше...   )Жанр: Pop, Rock, Dance, RnB, TOPПродолжительность: 09:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C8D3CE6E954A883857EBFF5CF49962D3D04E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329760   (350152) от 06.10.2019
+
+VA - не Громкие новинки недели 37 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350152.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.5sta Family - Завязала (3:41)
+2.Adeli - Пока (3:09)
+3.AquaBlue feat. MARO - Манерная (3:15)
+4.Bahh Tee - Моей Последней Бывшей (3:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B84F835D36208213302673FFBBC7B826AAF26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072994   (350123) от 14.11.2016
+
+VA - Welcome Singles November (2016) [MP3|320 Kbps] <House,  Bass House, Bounce, Drumstep, Hardstyle, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - This Is What It Feels Like (feat. Trevor Guthrie) (Matt Lange Remix) 3:30
+02. Dimitri Vegas & Like Mike - Leaves 3:38
+03. Calvin Harris - My Way (Max Vangeli Remix) 4:59
+04. Deorro feat. DyCy - Goin Up 4:17(   Читать дальше...   )Жанр: House,  Bass House, Bounce, Drumstep, Hardstyle, TrapПродолжительность: 05:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A915DF3ACA92E30DABEFF0328A44D1F28F937EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577558   (350046) от 21.09.2022
 
 VA - 60 Minutes. Old School Dance Music vol.11 (mixed by Dj V) (2022) [MP3|320 Kbps] <Progressive Trance, Uplifting Trance>
@@ -571,177 +748,6 @@ VA - New Age Ambiente: Instrumental Collection (2018) [MP3|320 Kbps] <New Age, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AFC1B3566F2CA3383437D17A548C36618415256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256934   (349645) от 24.10.2018
-
-VA - The Most Relaxing New Age Music (2018) [MP3|320 Kbps] <New Age, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349645.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Wise Man - Om Asa Toma
-002. Jerónimo Jonás - Being Resonances
-003. Indian Dawn - Smooth Touch
-004. Gomer Edwin Evans - Inner Beauty With Zen(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 10:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16C38DEB1886B666B7FA2BA35F8F18F22472824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953268   (349569) от 04.11.2015
-
-VA - Sunrise Avenue Vol 3 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ralf Harris - Mad About - Original Mix
-02. Sheldon Correira - Vanity Experia - New York Sunset Mix
-03. Xavier Salo - Every Day - Original Mix
-04. Tim Washington - White Passion - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBFDF65A21F6549D8950AE3F39CCCC77B9CD36B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953474   (349560) от 04.11.2015
-
-VA - Vocal Tech House Vol.1 (Compiled by Zebyte) (2015) [MP3|320 кб/с]<Tech House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whomadewho - Heads Above (Maceo Plex Remix) (07:47)
-02. Chemical Brothers - Do It Again (Alex Stein Remix) (06:47)
-03. Boris Brejcha - Everybody Wants To Go To Heaven (Victor Ruiz Remix) (06:24)
-04. Jaded & Scrufizzer - Big Round & Juicy (04:10)(   Читать дальше...   )Жанр: Tech House, Vocal HouseПродолжительность: 03:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA2348647923B81E4B6A9BB8F632667A4CC4136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256948   (349547) от 24.10.2018
-
-VA - Русское Радио. Лучшее (10.2018) от DON Music (2018) [MP3|320 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Filatov & Karas vs. В. Цой - Остаться с тобой
-002. Зара - Негордая
-003. Руки Вверх! - Танцы
-004. МакSим - Здесь и сейчас(   Читать дальше...   )Жанр: ПопПродолжительность: 08:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13308F10717FCCC2E151D142184C12FA91E5DED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256942   (349392) от 24.10.2018
-
-Ice Mc - Think About The Way (2018) Remix [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349392.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ice Mc - Think About The Way ★ DJ SAVIN Remix ★ Radio VersionЖанр: Club, Dance, HouseПродолжительность: 00:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90EBCCF850927CD8653D0144A33C12669237710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179393   (349357) от 31.10.2017
-
-VA - Rich 100 Trance Stranger (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349357.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Soundlift - Freedom (Intro Mix) 11:28
-002. South Pole - Desiccated Sea Is The Sand (Original Mix) 10:05
-003. Natlife Ft. Muhib Khan - Elenda (Aero 21 Darker Mix) 09:10
-004. Hiroki Nagamine - The Bilnk Of Time (Original Mix) 08:57(   Читать дальше...   )Жанр: TranceПродолжительность: 11:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A484326D050DB7C06F3E30E5151A09C554401B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

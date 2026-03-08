@@ -1,3 +1,61 @@
+###  Публикация: 1033796   (636129) от 12.07.2016
+
+VA - Woman In Love (1983) Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Brown - Stop
+02. Elaine Page & Barbara Dickson - I Know Him So Well
+03. Terence Trent D'Arby - Suddenly You Crossed My Heart
+04. Timmy T. - One More Try(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303D992444B9037C155D971212A103EB284CDD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907897   (636052) от 13.06.2015
+
+Jenni Vartiainen - 3 альбома (2007-2014) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2007 - Ihmisten Edessa
+2010 - Seili
+2013 - Terra (Platinum Edition)Жанр: PopПродолжительность: 02:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3170E703BA0C2A039240478855862657C266EFE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033716   (636041) от 12.07.2016
 
 Dirty Vegas - Photograph (2015) [MP3|320 Kbps] <Dance, Synth Pop, House>
@@ -692,66 +750,6 @@ VA - Die Hit Giganten Best Of 90's Dance (2017) 3CD [MP3|320 Kbps] <Eurodance, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C73F8E975A2450A22168B0436C0FB49DCAC8E7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143655   (634661) от 18.06.2017
-
-Modern Talking - Back For Gold (The New Version) (2017) [MP3|320 Kbps] <Eurodance, Euro-Disco, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brother Louie (New Version 2017)  3:21
-02.  You're My Heart You're My Soul (New Version 2017)  3:33
-03.  Cheri Cheri Lady (New Version 2017)  3:41
-04.  You Can Win If You Want (New Version 2017)  3:26(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, EuropopПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CDAE6D1B73D5B97E45663A5CEBF0BF466612E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034468   (634224) от 13.07.2016
-
-Pino D'Angio - 7 Albums (1981-1991) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее имя артиста - Giuseppe Chierchia, он родился в небольшом городке Pompei на юге Италии 14 августа 1952 года.
-Первый успех пришел к нему в 1980 году после записи сингла "Ma Quale Idea", годом позже вышел первый альбом исполнителя, продажи которого превысили миллион экземпляров.
-Последующие альбомы Pino D'angio имели гораздо меньший успех. Возможно, (   Читать дальше...   )Список альбомов:
-1981 - ...Balla!
-1982 - Ti regalo della musica
-1983 - Una notte maledetta(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 04:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A963B3A585FAD9B518B00FEBAF99A17AF04E3AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

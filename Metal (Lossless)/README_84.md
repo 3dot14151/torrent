@@ -1,3 +1,90 @@
+###  Публикация: 1207480   (780414) от 19.02.2018
+
+VA - Shock Rock Hellions - A Tribute To W.A.S.P. (2006) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animal (Fuck Like A Beast) - Dracena
+02. Hellion - Denial Of God
+03. L.O.V.E. Machine - Stos
+04. Running Wild In The Streets - Holy Death(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33F2A445860C9FA8980E56780B2E53894CA6F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207365   (780382) от 19.02.2018
+
+Heavatar - Opus II - The Annihilation (2018) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. None Shall Sleep
+02. Into Doom
+03. Purpose of a Virgin Mind
+04. Hijacked by Unicorns(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E9FF759C3092BEF9CF405385650E936A6BE67E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207799   (780270) от 20.02.2018
+
+Visions of Atlantis - The Deep & the Dark (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780270.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Deep & the Dark (4:08)
+ 2. Return to Lemuria (4:09)
+ 3. Ritual Night (3:59)
+ 4. The Silent Mutiny (3:45)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406FE628375B0DD32232461025589F9B6C0D988A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208151   (780001) от 22.02.2018
 
 Funeral Winds - Koude Haat (2004) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -658,90 +745,6 @@ Tribulation - Down Below (2018) Japan [FLAC|Lossless|image + .cue] <Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6186729887ED250E8DC5B64BFEB4C4AE914F20F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212018   (776514) от 10.03.2018
-
-Motorhead - Tear Ya Down: The Rarities (2002) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like a Nightmare
-02. Treat Me Nice
-03. Stone Dead Forever
-04. Sharpshooter(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15533317799E8783493569E5D3D405063B4131F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211965   (776419) от 10.03.2018
-
-Judas Priest - Firepower (2018) Deluxe, Limited, Special Edition [WavPack|Lossless|image + .cue] <Heavy Metal, Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy MetalПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05FDC5412A38C90D9111A88D8C52101D5830AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014438   (776193) от 08.05.2016
-
-Cloudscape - Voice Of Reason (2016) [FLAC|Lossless|image + .cue] <Progressive, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Design
-02. Futuristic Psycho
-03. Don't Close Your Eyes
-04. All for Metal(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0929F64B4B4AAA382604885E636937C868B77EFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

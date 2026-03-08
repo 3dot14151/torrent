@@ -1,3 +1,119 @@
+###  Публикация: 1776996   (28774) от 03.02.2025
+
+VA - Music News For Forum vol.059 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ольга Шультайс - Касаясь (03:09)
+ 002. AALLAR feat. Alyssa Raghu - Never Know (02:40)
+ 003. Acereda - Cambio De Planes (02:17)
+ 004. AGP - The Meaning (02:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B477C08194FE2605DE039879EF1AABE7C4E3EEF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778303   (28286) от 08.02.2025
+
+VA - ЕвроХит Топ 40 Europa Plus 07.02.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ROSE & Bruno Mars - APT (2:49)
+02. Ma Meilleure Ennemie (From The Series Arcane League Of Legends) (2:28)
+03. IVE feat. David Guetta - Supernova Love (3:19)
+04. Ufo361 & Nina Chuba - LIEBE (3:13)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A4DB9DE53CF98BD912DB469BA000A77A42E0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778516   (28256) от 08.02.2025
+
+VA - Music News For Forum vol.060 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28256.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Babasha & Ministerul Manelelor - Alo, Mama (02:49)
+ 002. Abraham Colona & Dela Utca feat. Sem - Leave Our Bags Behind (02:06)
+ 003. ADDA feat. ReMan - Cine A Pus Femeia In Drum (02:35)
+ 004. Ago - Hазбит (02:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FFAFC62365CE54615870A04DAAF0C1E8B4A1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779465   (27728) от 13.02.2025
+
+VA - Music News For Forum vol.062 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27728.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Myra - La fete (03:50)
+ 002. 5score - Скучный-Богатый (02:11)
+ 003. 52Ghz - Душа солдата (03:39)
+ 004. Adyra feat. SEVEN - Poarta-Ma (02:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF269BD0AB50296E3E21493BCB9873F8DBD76C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781450   (26696) от 23.02.2025
 
 VA - Romantic Striпgs (2025) [MP3|320 Kbps] <Pop, Rock, Ballad>
@@ -629,122 +745,6 @@ VA - Music News For Forum vol.067 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C858EC6DC344387507A29B513855FFFE8EDF2130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787111   (23549) от 25.03.2025
-
-VA - Just assorted (2025) [MP3|320 Kbps] <Synthpop,EuroDisco, New Italo Disco, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Nid - I Don’t Exist Without You
-02. Brins - Lend Me Your Heart
-03. Spatial Vox - It's Time for Christmas
-04. Dj Nid - Into the Unknown(   Читать дальше...   )Жанр: Synthpop, EuroDisco, New Italo Disco, DanceПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7473B616E7052BC74134820C7887EDF8FDB42756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788041   (23208) от 28.03.2025
-
-VA - Music News For Forum vol.068 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23208.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anel Renaldi - Как же мне на тебя (01:57)
- 002. 12AM - Vampire (03:00)
- 003. 40 Lashes - Never Wanted (03:06)
- 004. 808NOCHE - Deneb (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC8E089552C5CE874D32374B9B2DF22BD1CDBEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788070   (23196) от 28.03.2025
-
-VA - Music News For Forum vol.069 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23196.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christina Siberian - Смоки айз (02:20)
- 002. 10AGE - ВАХУ (03:47)
- 003. Adamant & NЮ - Бессонница (03:22)
- 004. Aleksey Kononov - Простуженный март (03:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB58404187B0CEF2FFEAB8F2AEB6EFF8BB591C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788649   (22896) от 31.03.2025
-
-VA - National Pop Dance Music Vol.101 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22896.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wooah - Pom Pom Pom (03:26)
- 002. Jade Warrior - Morning Hymn (03:36)
- 003. King Promise - Believe (03:10)
- 004. Sylvie Vartan - La Maritza (03:42)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 11:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A9BB2C142F41216BD901ED58F0677EEF40EA4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1065646   (418930) от 23.10.2016
+
+ATB - Live @ Amsterdam Dance Event (2016) [MP3|256 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Gonzalez - Ethereal
+02. ATB vs. Rapha Di Sands - Ecstasy Manatial (ATB Mashup)
+03. Beat Service & Ana Criado - So Much Of Me Is You
+04. Johan Vilborg - Pieces(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D07CEEA1BB2EDB7FFA8082CA9F7FFF9C65EB279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251354   (417855) от 01.10.2018
+
+VA - Ori Uplift & W!SS - Uplifting Only 294 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DreamLife & Laucco - Dancing Water
+02. Attens feat Martina Kay - If You Find a Way (Playme Bangin' Dub - Ori Uplift Edit Deep Wide Remaster)
+03. Sandro Mireno & Aleksey Gunichev - Inspiration
+04. PRE-RELEASE PICK: Hoyaa - Waters Above (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512EB1D6D94B139FF0D760ED3E857BEAD0A8938A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167686   (415178) от 21.09.2017
 
 VA - Aly & Fila - Future Sound Of Egypt 514 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -687,64 +745,6 @@ Resident 348 (06-01-2018)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6305A5B4C14D895B7F92C81E4C36284CBD345306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330350   (339102) от 11.10.2019
-
-VA - Live @ Ultra Music Festival Japan (2019) [MP3|~245 Kbps (V0)] <Trance, Techno, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dash Berlin @ Mainstage, Ultra Music Festival Japan 2019-09-15:
-01. Intro
-02. Omnia & Whiteout - U
-03. Alan Walker - Faded (Dash Berlin Remix)(   Читать дальше...   )Жанр: Trance, Techno, Progressive HouseПродолжительность: 05:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76AA7417BBC868A94F157961D278A9B1D2CB708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581736   (326410) от 06.10.2022
-
-VA - Paratov Live 2022.08.13 (Mixed and Compiled by DJ Suhov) (2022) WebDLRip [MP3|224 Kbps|tracks, image + .CUE] <House, Tribal House, Club House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - Paratov Live 2022.08.13 (Mixed and Compiled by DJ Suhov) (86:47)
-02. John Summit & Guz feat. Stevie Aplleton - What A Life (3:35)
-03. Alok, Ella Eyre & Kenny Dope feat. Never Dull - Deep Down (3:21)
-04. Malone & Calussa - Bessame (4:18)(   Читать дальше...   )Жанр: House, Tribal House, Club HouseПродолжительность: 02:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E39A259A53DD702782ED4328E09FC688A7E503
 ```
 
 https://mybot314.ru/tekegram_catalog/

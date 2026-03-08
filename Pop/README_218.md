@@ -1,3 +1,58 @@
+###  Публикация: 573147   (380258) от 10.11.2012
+
+Алексей Глызин - Крылья любви... (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_380258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068214   (380135) от 01.11.2016
+
+Потап и Настя - Золотые киты - 10 лет (Live in Kiev) (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Live)
+ 02. Золотые киты (Live)
+ 03. Не пара (Live)
+ 04. На раЁне (Live)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA92D8192ED6F4A0668A16E924EA0968F16C6829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 250957   (379847) от 28.10.2010
 
 VA - Ретро перепевки (2008) [MP3|320 kbps]<Retro, Pop>
@@ -696,64 +751,6 @@ Mark Ashley - Baby Blue (2015) Single [MP3|320 кб/с]<Dance, Eurodance, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8D25BF4EC5D51910389EB9B6E49FC0CC98F3F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253934   (377386) от 12.10.2018
-
-St. Vincent - MassEducation (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Baroque Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Disco
-02. Savior
-03. Masseduction
-04. Sugarboy(   Читать дальше...   )Жанр: Indie Pop, Baroque PopПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F0FDF7C497159AAAF4704D8ECF939D2C21C995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253873   (377372) от 12.10.2018
-
-VA - 100 Hits - The Best Nineties Album (2018) 5CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377372.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. TLC - No Scrubs
-02. Jennifer Lopez - If You Had My Love
-03. NSYNC - I Want You Back(   Читать дальше...   )Жанр: PopПродолжительность: 06:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DB2859A7B16D7B96E12B56602343492EA594F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

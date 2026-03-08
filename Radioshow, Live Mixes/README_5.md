@@ -1,3 +1,61 @@
+###  Публикация: 1507500   (798293) от 05.11.2021
+
+VA - Live @ ABGT 450, (The Drumsheds London, United Kingdom) (2021-09-04) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Above & Beyond @ ABGT 450 (Deep Warm Up Set), River Lea London, United Kingdom:
+01. Ben Bohmer feat. lau.ra - Erase
+02. Powel - Chapek 9
+03. Fehrplay - ID(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 09:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607FC8BD3F0B493C485619A1407ACC949A947BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507617   (798289) от 05.11.2021
+
+CamelPhat - Live @ The Palms, CRSSD Fest, United States (2021-09-25) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sima - X0X Dub (Sworn Virgins Remix)
+02. RUFUS DU SOL - Next To Me (Adana Twins A Night At Revolver Version)
+03. Toni Rios ft. Niveska - Closer To You (Sascha Dive S2 Remix)
+04. gardenstate & Bien - The Best Part (Patrice Baumel Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFDDA354A88D13CFB276115614F2E881598319B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508535   (797518) от 08.11.2021
 
 DJ Licious - Tomorrowland Friendship Mix (2021-11-04) [MP3|320 Kbps] <Dance, Electro Pop, Tech House>
@@ -687,64 +745,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58D85A5D2FA6BAB8DFD218961BC06B966A57ACED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393626   (766952) от 01.07.2020
-
-Kyau & Albert - Anjunabeats Worldwide 681 (2020-06-22) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766952.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jon Gurd - Together
-2. Matt Fax feat. LEVV - Always You
-3. Grum feat. Nicole Dash Jones - Home
-4. Rick & Morty feat. Kotomi & Ryan Elder - Don’t Look BackЖанр: Trance, Progressive HouseПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8083A8F66A7E69CE740998ED02F38C68527F450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126575   (765525) от 18.04.2017
-
-Aly & Fila - Future Sound Of Egypt 492 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M.I.K.E. Push vs Robert Nickson - Tachyon (Original Mix)
-02. RAM feat. Cari - Soulfood (Original Mix)
-03. Miroslav Vrlik & Andre Visior - Raindrops (Extended Mix)
-04. Richard Durand & Neev Kennedy - Running on Empty (Hassan Jewel Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17185C1438D671550D615A040B7424301F89A722
 ```
 
 https://mybot314.ru/tekegram_catalog/

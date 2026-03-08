@@ -1,3 +1,61 @@
+###  Публикация: 1412287   (420447) от 28.09.2020
+
+VA - Autumn Grooves (The Lounge & Chill out Deluxe Collection) Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Hammock - Tomorrow Is a New Day (Original Mix) (05:40)
+02. Erick Morillo - Live Your Life (Eddie Thoneick's Chill out Mix) (03:57)
+03. Krystian Shek - Black Chocolate (Original Mix) (03:54)
+04. David Tort - Chase the Sun (Musica Feliz Ibiza Beat Remix) (05:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DBECB3454DBF37932BF5AF4A80C1C15F8236DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251061   (420285) от 30.09.2018
+
+Moolsaasa - Sleepless EP (2016) Kopoc Label [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:35)
+ 02. Centerkords (06:47)
+ 03. Freeze3.1 Short (06:12)
+ 04. D.teck.m2 (03:45)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC3668C3FD3DDBF58203601070D2D2D75FE6A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250782   (420200) от 30.09.2018
 
 VA - Dance Religion 16 (House and Dance Tunes from Heaven) (2018) [MP3|320 Kbps] <House>
@@ -686,64 +744,6 @@ VA - Future Sound Of Egypt 550 - A World Beyond (Mixed by Aly & Fila & John 00 F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B831F19FF4108F641AB4762B6EF1BA593A5BD36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180438   (417760) от 01.10.2018
-
-Nomenklatür (Nomenklatur) - Discography 13 Releases (2005-2018) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Electro, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fullness Of Emptyness (01:51)
- 02. Lektrovision (05:00)
- 03. Ransom For A Dead Man (04:13)
- 04. She Likes Dark Hair (06:02)(   Читать дальше...   )Тип издания: CD, WebЖанр: Electro/TechnoПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A528ADA72F8AB0E21B7F29FF4495E1FBE84B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947492   (417739) от 17.10.2015
-
-Faithless - 2.0 (Remixes & Hits) (2015) 2CD [FLAC|image+.cue]<House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insomnia
-02. Mass Destruction
-03. God Is A DJ
-04. Don't Leave(   Читать дальше...   )Жанр: House, TranceПродолжительность: 02:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECD843D096B4983D81DA6B087682166E581248C
 ```
 
 https://mybot314.ru/tekegram_catalog/

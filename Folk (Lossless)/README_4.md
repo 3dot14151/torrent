@@ -1,3 +1,32 @@
+###  Публикация: 1285604   (715076) от 01.03.2019
+
+The Innocence Mission - Sun On The Square (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Records From Your Room (02:46)
+02. Green Bus (04:28)
+03. Look Out From Your Window (03:21)
+04. Shadow Of The Pines (04:00)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844D849D0581634D1CB5128AB673FC45F3F078FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024869   (714143) от 10.06.2016
 
 Shannon Rae - Shannon Rae (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
@@ -714,35 +743,6 @@ VA - Народные Золотые Хиты (2002) 2CD [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFDA6A7D6746D05F86CC49FC54163F1AC6FDFB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136439   (674901) от 22.05.2017
-
-NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Take A Minute (3:43)
-02 - Sunshine Good Times (3:26)
-03 - Make Each Moment Last (3:47)
-04 - Here Now Forever (2:55)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E187B2A3264D710D67A07F671942012693201ADD
 ```
 
 https://mybot314.ru/tekegram_catalog/

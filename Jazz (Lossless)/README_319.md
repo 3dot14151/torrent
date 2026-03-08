@@ -1,3 +1,32 @@
+###  Публикация: 1716535   (111312) от 16.04.2024
+
+VA - Klavier - Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duke Ellington - Take the 'A' Train (Live at the Blue Note Club, Chicago, 1994) [1994 Remix] (3:17)
+02. Ahmad Jamal - Swahililand (4:09)
+03. Freddie Redd - Dawn Mist (2:52)
+04. Phineas Newborn Jr. - Afternoon In Paris (6:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEEC2BE56DDE3AF6BD50894858F8713F6E2DE3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716736   (111308) от 17.04.2024
 
 Dave McKenna & Gray Sargent - Recorded Live At Maybeck Recital Hall (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
@@ -715,35 +744,6 @@ Blue Sun - Festival (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Prog Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B934B6C5CD1EFD6B5AC83045D3ADDDFF1D99494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718353   (110962) от 24.04.2024
-
-Walt Dickerson Quartet - To My Queen Revisited (1978) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liz [5:33]
-02. The Ultimate You [13:45]
-03. To My Queen Revisited [23:51]
-04. Liz (take 1) [5:31]Жанр: Post-BopПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD3FAD73717F6DA91D91F95C67B3837CB8540D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

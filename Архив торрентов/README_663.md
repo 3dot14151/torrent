@@ -1,3 +1,29 @@
+###  Публикация: 991414   (905660) от 28.02.2016
+
+Topaz Textures Effects FULL | MINI 1.1.1 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Textures Effects — программа для наложения графических эффектов на фото, чтобы создать впечатляющие изображения, позволяет создавать различные текстурированные, тонированные и световые эффекты. Библиотека содержит более 145 эффектов и коллекцию из 325 текстур с высоким разрешением.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4575BB5EBABFC39FE927B21057DE59B7CDA20174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 636280   (905606) от 28.03.2013
 
 Сюжет видеоприложения к альбому "Рыбалка нового поколения " Ловля карпа. (2013) WEB-DLRip
@@ -666,35 +692,6 @@ VA - Melodic Journeys - Japan Vol. 2 (mixed and compiled  by Dave Pineda) (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48777F6D97049511CA4AED31659081B768C7A8ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099242   (905312) от 01.02.2017
-
-Black Anvil - 4 Albums (2008-2017) [FLAC|Lossless|image + .cue] <Blackened Thrash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Anvil - blackened thrash metal группа из Нью Йорка. Дебютный альбом "Time Insults the Mind" вышел в 2008 году2008 - Time Insults The Mind
-2010 - Triumvirate
-2014 - Hail Death
-2017 - As WasЖанр: Blackened Thrash MetalПродолжительность: 03:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20D98BD4763B9276BFE34CA1DF58E4AEE537DFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

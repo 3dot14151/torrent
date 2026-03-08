@@ -1,3 +1,32 @@
+###  Публикация: 1537973   (664342) от 19.03.2022
+
+Diane Arkenstone & David Arkenstone - Avalon: Between Earth and Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Reigns Through Tears (04:14)
+02. The Crystal Shores (03:49)
+03. If a Heart Could Speak (04:10)
+04. A Queen Reborn (03:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574002EB34F6C2BAC5A2428CC1CDF47A566F58DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138151   (664194) от 29.05.2017
 
 The Romantic Strings and Orchestra - Stardust Moods (1989) [MP3|320 Kbps] <Instrumental, Easy Listening>
@@ -766,35 +795,6 @@ Nikolya - Organic 3 The Longest Journey (2017) [MP3|320 Kbps] <New Age, Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85F3FC98976715DCBADA458BEBD395310712560C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226536   (654770) от 21.05.2018
-
-Atom Music Audio - Mechanize, Vol. 1: Industrial Hybrid Rock Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 6th Gear [02:05]
-02. ReDesign [02:05]
-03. Kill Switch [02:25]
-04. Sprocket [02:36](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0BBA16CA8FDD41D2D312F90170F1DFE40BBC65
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,33 @@
+###  Публикация: 1730202   (52996) от 17.06.2024
+
+BAND-MAID - World Domination Tour at Zepp Tokyo (2018) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52996.jpg" />
+</div>
+
+
+###  Подробнее
+
+BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
+Концерт группы в Zepp Tokyo, состоявшийся 13 апреля 2018 и выпущенный на бонусном Blu-Ray диске к лимитированному изданию сингла "Start Over".01. Intro
+02. DOMINATION
+03. Play
+04. Spirit!!(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 02:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A467652BEEE43A06520F015B5352425FB67609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730157   (52985) от 17.06.2024
 
 BAND-MAID - Tour Autumn-Winter 2017 at Studio Coast (2017) BDRip [H.264/1080p]
@@ -689,34 +719,6 @@ The Offspring - Hurricane Festival (2024) WEBRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:121D1578B769911F59205C4633ADBD8DE66CB8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713334   (40898) от 09.10.2024
-
-Rammstein: Paris (2017) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40898.jpg" />
-</div>
-
-
-###  Подробнее
-
-With 22 songs from the band’s whole repertoire, the resulting film isn’t just the most spectacular concert film to date about the band that is currently the most successful German rock band – it’s a masterpiece of music cinema! A total tapestry of ever-changing images awaits the viewer.
-
-Åkerlund is notorious for his radical, pioneering videos, which are ablaze (   Читать дальше...   )Производство: Universal MusicЖанр: IndustrialАктеры: Flake Lorenz, Till Lindemann, Christoph SchneiderПродолжительность: 02:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF17F2FCAC9837DB4970763598A75FFFC0302EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

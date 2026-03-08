@@ -1,3 +1,32 @@
+###  Публикация: 1031229   (668647) от 03.07.2016
+
+Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Promise of Love [00:05:08]
+02. Energy [00:09:03]
+03. Pure [00:05:51]
+04. Seraphim (The Spirits of Love) [00:07:39](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE3EB6D93A6B94B7D917B6DC87896741D8715DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031371   (668646) от 03.07.2016
 
 VA - Sleep, Rest, Relax (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -736,35 +765,6 @@ VA - Союз нерушимый... - Песни и танцы народов С
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87D5F1A8D7C0417003BEA067A2677AB85F93BAC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537973   (664342) от 19.03.2022
-
-Diane Arkenstone & David Arkenstone - Avalon: Between Earth and Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Reigns Through Tears (04:14)
-02. The Crystal Shores (03:49)
-03. If a Heart Could Speak (04:10)
-04. A Queen Reborn (03:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574002EB34F6C2BAC5A2428CC1CDF47A566F58DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

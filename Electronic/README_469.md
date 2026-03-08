@@ -1,3 +1,61 @@
+###  Публикация: 1703864   (114653) от 02.03.2024
+
+Sultan And Shepard - Endless, Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Vocal, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sultan + Shepard - Murmur
+02. Sultan + Shepard & Elderbrook - I'll Be Here
+03. Sultan + Shepard & Tishmal - Back Through You
+04. Sultan + Shepard - Cloud Lifter(   Читать дальше...   )Жанр: Tech House, Deep House, Vocal, ProgressiveПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4176677A32A1601CEBE9052FE75C4596BE9D26B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703969   (114651) от 02.03.2024
+
+VA - Mandarin Chill Out, Vol. 3 (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E,Tim Gelo - All That We Are (Alternative Mix) (7:42)
+ 02. L.o.b. Lord Of Beat - Deep Down (4:20)
+ 03. Jasmon - Hatori (4:19)
+ 04. Openzone Bar - A Distant Desert Sleep (4:04)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1678280DECA9A360978CD53ACF2CA495AF0DE42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704070   (114647) от 02.03.2024
 
 Lee Mvtthews - Exit (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -688,64 +746,6 @@ VA - Black Hole Trance Music 03-24 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B67564F65CF1824D60CD7D4100F64625D8EA7667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707138   (113432) от 15.03.2024
-
-Synthia - VI (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mecha Rage 2.0 [00:04:37]
-02. Dead Romance [00:04:42]
-03. Medueceah [00:02:49]
-04. Light Stealer [00:03:03](   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD71FA40B5ED0BE5DEDC90A8DAA29E2610DEDCC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707135   (113429) от 15.03.2024
-
-Paranoid London - Arseholes, Liars, and Electronic Pioneers (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. People (Ah Yeah) with Bobby Gillespie [00:04:30]
-02. Love One Self with Joe Love [00:04:36]
-03. Up Is Down with DJ Genesis [00:04:42]
-04. Steal & Adapt (or) [00:04:34](   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B36EA6B14FEC7ABD4A0CEA7DC23FB6433B4B0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

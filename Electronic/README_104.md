@@ -1,3 +1,61 @@
+###  Публикация: 1189249   (846143) от 25.04.2020
+
+Ulrich Schnauss (The Extremist, Ethereal 77, View To The Future) - Discography 40 Releases (1997-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, IDM, Leftfield, Shoegaze, Drum &am ...
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apotheosis (08:03)
+ 02. Sirius (10:07)
+ 03. Zodiac (08:59)
+ 04. Pacific Stereo (08:07)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Drum & Bass/AmbientПродолжительность: 40:43:10 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19730E9FCFCD4E79DF4ACAA960DE11005E5C9651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048421   (846043) от 03.10.2021
+
+Ioann Darkovski - Ivory Tower (2016) [MP3|320 Kbps|image + .cue|tracks + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkside - A2
+02. David August feat. Sissi Rada – Patria
+03. Canson – Kamtschatka
+04. David Mayer feat. Sooma - Bold (Touchdown Mix / KM Shop Exclusive)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B457AA0E65E3D312A0A85EF88EB18EF2EC8AC7FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 801686   (845790) от 25.04.2020
 
 VACANT (VΛCΛNT) - Discography 30 Releases (2012-2020) [FLAC|Lossless|WEB-DL]<Future Garage, Ambient, UK Garage, Downtempo>
@@ -685,64 +743,6 @@ Booka Shade - Galvany Street (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E00A6E7095EA62DF48EA5441E37BBC45FCA64F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112465   (843111) от 08.03.2017
-
-Mr.Kitty - A.I. (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I... (1:44)
- 02. Undo (2:51)
- 03. Habits (feat. PASTEL GHOST) (4:14)
- 04. Forget (3:32)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BCBAECD507D70D6B8E04053BFD69AA60FA2A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378578   (843045) от 27.04.2020
-
-Die Sektor - Death My Darling (2019) [FLAC|Lossless|tracks] <Dark Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 A Night So Long (5:49)
-02 Stabbing Death Fire Stitches Splitting (6:16)
-03 Mina Harker (5:10)
-04 We Are Not Safe Here (5:29)(   Читать дальше...   )Жанр: Dark ElectroПродолжительность: 01:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03716171DDEE66E8D9ACD464A19BD6198DB88C77
 ```
 
 https://mybot314.ru/tekegram_catalog/

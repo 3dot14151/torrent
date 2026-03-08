@@ -1,3 +1,61 @@
+###  Публикация: 1751706   (42324) от 26.09.2024
+
+Lady Gaga - Harlequin (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Morning (02:47)
+ 02. Get Happy (2024) (03:12)
+ 03. Oh, When The Saints (03:43)
+ 04. World On A String (02:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BBBE3D14F392C5D45E495213D1AF93D643EFDC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751397   (42297) от 26.09.2024
+
+Brenda Lee - Greatest Hits of Brenda Lee (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42297.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - I Want to Be Wanted [00:03:04]
+002 - I'm Sorry [00:02:40]
+003 - Some of These Days [00:02:20]
+004 - Pennies from Heaven [00:02:23](   Читать дальше...   )Жанр: PopПродолжительность: 04:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373451FCDA225EDCD4BA1663DA89EDEF39AF30AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751865   (42261) от 27.09.2024
 
 Modern Talking - Modern Talking 40 (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop, Euro Dance, Disco>
@@ -681,64 +739,6 @@ E-Rotic - The Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro House, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04E33FD5408B9C787E4CB02AEE8EB7E60404B27E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754366   (40866) от 09.10.2024
-
-Wings - Wings Wild Life (1971) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mumbo
-02. Bip Bop
-03. Love Is Strange
-04. Wild Life(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CC151918D9559425050EFFA2727ECC6469B4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754362   (40864) от 09.10.2024
-
-Paul McCartney - McCartney (1970) SHM-CD, Japanese Edition, Reissue, 2024, MPL – UICY [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lovely Linda
-02. That Would Be Something
-03. Valentine Day
-04. Every Night(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16823306DD6909F7E6854A3D215623364C3CF87
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1351797   (1001638) от 12.01.2020
+
+a-ha - East Of The Sun West Of The Moon (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/18. Early Morning (Early Version) (2:43)
+02/18. East Of The Sun (Early Version) (5:35)
+03/18. I Call Your Name (Instrumental Demo) (2:13)
+04/18. Slender Frame (Demo) (3:54)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749AFA4E504C88642A9BBC65D182AB02AAA63ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145026   (1001518) от 12.01.2020
+
+Давид Тухманов - Золотая Коллекция / Семейный альбом (2008) [MP3|320 Kbps] <Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Эти глаза напротив
+2. Видно, так устроен свет
+3. Капитан
+4. Белый танец(   Читать дальше...   )Жанр: РетроПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40248162B3716422DB66BE3B1FFE44B08264696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352191   (1001302) от 13.01.2020
 
 One-eyed Jacks - Falling (1991) [FLAC|Lossless|image + .cue] <Breaks, Ambient>
@@ -764,76 +822,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599582   (998828) от 08.01.2013
-
-Taylor Swift - 3 альбома 1 демо (2011 - 2006) [MP3|320 кб/с]<Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky You (Mr. Mig mix) [00:03:38]
-02. Smokey Black Nights (Mr. Mig mix) [00:03:14]
-03. American Boy (acoustic version) [00:03:20]
-04.  [00:02:23]
-05. Hopelessly Devoted To You [00:02:40]
-06. Am I Ready For Love [00:04:17]
-07. Can I Go With You? [00:02:54]
-08. One Way Ticket [00:03:28]
-09. There's Your Trouble [00:02:43]
-10. Star Spangled Banner [00:01:21]Жанр: CountryФормат: MP3 (tracks)Продолжительность: 00:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EF59054BF5465EB3D33E6C597F491540BB1565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599915   (998821) от 08.01.2013
-
-Нэнси - #Вечерочкиночки (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вечерочкиночки
- 02 - Ночной вокзал
- 03 - Просто выходной
- 04 - Я стану ветром
- 05 - Моя любимая женщина
- 06 - Я падаю в небо
- 07 - Розы, на краю стола
- 08 - Железнодорожная
- 09 - Прости
- 10 - Ты научи меня летать(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C6CCED5AAC33AC28CF325900E4C47B018883F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

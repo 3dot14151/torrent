@@ -1,3 +1,61 @@
+###  Публикация: 1340087   (264291) от 22.11.2019
+
+VA - Trance Miami (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholas Gunn feat. Alina Renae - Older (Costa Extended Remix)
+02. Rub!k feat. Sue McLaren - Everglow (Extended Mix)
+03. Lost Witness - Sewn (Extended Mix)
+04. 4 S'trings - 13 Ways To Save The World (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B106CAEAFDAE30FFE7A6E4E6EC5F4523C3BE9D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340192   (264287) от 22.11.2019
+
+VA - Best Of Dance 2019 (Presented by Spinnin' Records) [MP3|320 Kbps] <Progressive House, Club House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Feldt feat. RANI - Post Malone 2:54
+02. New World Sound & J2 feat. Sara Phillips - Outta My Head 2:39
+03. Yves V feat. Afrojack & Icona Pop - We Got That Cool 3:33
+04. Dzeko x Riggi & Piros feat. Veronica - Heaven 3:15(   Читать дальше...   )Жанр: Progressive House, Club House, DanceПродолжительность: 01:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D5B31931C472131EF015E9AAE77BDF12A67200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340062   (264271) от 22.11.2019
 
 Force Intel - Label Pack 5 Releases (2010-2012) Mille Plateaux [FLAC|Lossless|tracks+.cue, tracks] <IDM, Experimental, Ambient, Glitch, Abstract>
@@ -687,62 +745,6 @@ VA - Inspectrum Recordings Best Of (Mixed by DJ Chris) (2017) [MP3|320 Kbps] <Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC87D3252BC7303FB1D637F8F85A70C735518AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192220   (263529) от 16.12.2017
-
-VA - Best of Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The-Thirst For-Flight - Seven Seconds of Happiness
-02. 2D project - Gladiator
-03. James Fiby feat. Anna Miracles - History Love (Vocal Mix)
-04. DJ Grand Defence - First Contact(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3833623630A0F2039C7F2482993642C13A1B54A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192077   (263519) от 16.12.2017
-
-The Chi Factory - Red Lantern At The Kallikatsou (2017) Astral Industries [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Techno Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part One (feat. Hanyo van Oosterom) (21:01)
- 02. Part Two (feat. Hanyo van Oosterom) (21:01)Жанр: Ambient, Experimental, Techno AmbientПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101180212BC0D7DA68F3CB30E4AA5D56C3EFB903
 ```
 
 https://mybot314.ru/tekegram_catalog/

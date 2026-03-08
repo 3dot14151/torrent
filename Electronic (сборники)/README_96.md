@@ -1,3 +1,32 @@
+###  Публикация: 1031363   (652171) от 04.07.2016
+
+Timur Mingazov - MBS Mix #27 (Why Spring- - Deep House Apr `16) | (2016) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Born In Silence Intro
+ 1.Yotto – Crosswalk
+ 2.Kyle Watson – Moments
+ 3.Sons Of Mafia – Chimera(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFAE80FDD8DEC930819903DD23CA0019A695C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031638   (652170) от 04.07.2016
 
 VA - Relevant Freak Future Massive (2016) [MP3|320 Kbps] <House, Electro House, Club>
@@ -716,35 +745,6 @@ VA - Lounge Cocktails (2013) [MP3|320 кб/с]<Lounge, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4367CD86DA1A30CC08133332D32C7C909A1D5CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905773   (649367) от 06.06.2015
-
-VA - Hits Cocktail Vol. 8 (2015) [MP3|320 кб/с]<Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony Martinez & Andrew feat. Inmagine - Tonight (Radio Edit) [03:21]
-02. Avicii - Waiting For Love (Extended Mix) [05:25]
-03. Jochen Miller feat. Simone Nijssen - Slow Down (Radio Edit) [03:18]
-04. Scooter & Vassy - Radiate (SPY Version) [03:06](   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2306A21417A074AC876625EFDA98926AB85325
 ```
 
 https://mybot314.ru/tekegram_catalog/

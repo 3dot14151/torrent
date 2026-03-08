@@ -1,3 +1,29 @@
+###  Публикация: 1370530   (896675) от 27.03.2020
+
+Opera 67.0.3575.115 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25EDBB28D0E2CF01D9EC92D42F3CE8864F640D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370533   (896669) от 27.03.2020
 
 O&O DiskImage Professional 15.3 Build 176 RePack by elchupacabra [Ru/En]
@@ -52,41 +78,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFEE25825A9016E7908A9D1E70FB65F5687AF215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637980   (896621) от 02.04.2013
-
-Zymosis - Between Two Points (2012) [FLAC|Lossless]<Psychill, Ambient, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zymosis - One Day (7:16)
- 02. Zymosis - Awakening (7:34)
- 03. Zymosis - Usual Miracle (Micky Noise Rmx) (8:07)
- 04. Zymosis & Seamoon - So Far, So Close (8:22)
- 05. Zymosis - Path of Nocturnal (7:27)
- 06. Zymosis - She (7:30)
- 07. Shulman - The Unexpected Visitor (Zymosis Rmx) (8:21)
- 08. Zymosis & Zero Cult - I'll Be Waiting For You (7:51)
- 09. Zymosis - Quiet Sadness (8:16)
- 10. Zymosis - Forgotten Days (8:14)Жанр: Psychill, Ambient, DowntempoПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

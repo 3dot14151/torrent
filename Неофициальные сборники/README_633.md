@@ -1,3 +1,177 @@
+###  Публикация: 1738556   (106305) от 23.07.2024
+
+VA - Compilation part 101 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Aurm - Love Me
+02. Davbo - Beautiful Princess
+03. Imazee - Amor
+04. Neuron - Save Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86AC938C6BF2F9DCD8AD75F300068E003B71266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738874   (106227) от 25.07.2024
+
+VA - Music News For Forum vol.004 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106227.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taysy - Ради Тебя (02:33)
+ 002. Adam Lambert - Cvnty (02:21)
+ 003. Adam Lambert - Deep House (03:25)
+ 004. Andrei Banuta feat. Azur - Suflet De Bagabont (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F739ACB4395CEBA17024605EAC8460D4478BAD70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739323   (106119) от 27.07.2024
+
+VA - Music News For Forum vol.005 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106119.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Empire Of The Sun - Friends I Know (03:21)
+ 002. Alok feat. Innerverse & Frey - Allein Allein (02:39)
+ 003. AMOR - Lady (02:46)
+ 004. Amy Shark feat. Tom Delonge - My Only Friend (03:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF866382D515F9FC3A8C863386D955DCADA6839A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738763   (106065) от 28.07.2024
+
+VA - National Pop Dance Music Vol.79 (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106065.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beyonce - Texas Hold 'em
+002. Flo Milli Feat. Sza - Never Lose Me
+003. Annalisa - Sinceramente
+004. Ariana Grande - We Can't Be Friends(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11CEA6FF7301FF73997D3BDE84B0E1DF962FA91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739401   (106059) от 28.07.2024
+
+VA - New Music Releases Week 29 (2024) [MP3|320 Kbps] <Pop, Dance, Rock, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106059.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. &TEAM - Koegawari - 03:19
+ 002. 03 Greedo - Kill Me - 02:51
+ 003. 1111 - Care About Us - 03:32
+ 004. 49 Winchester - Make It Count - 04:00(   Читать дальше...   )Жанр: Pop, Dance, Rock, Hip-Hop, RnBПродолжительность: 30:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A57985A3094DBFB838187005032743F9655E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737750   (106055) от 28.07.2024
+
+VA - Hare Krishna Каждый день - Твой день! (2024) [MP3|320 Kbps] <New Age, Mantra, Meditative>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tina Malia - Hare Krishna [07:44]
+02. Galt MacDermot, Tom Pierson - Hare Krishna [03:21]
+03. Baird Hersey & Prana, Krishna Das - Hare Krishna [06:40]
+04. Aria - Hare Krishna [04:56](   Читать дальше...   )Жанр: New Age, Mantra, MeditativeПродолжительность: 08:22:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D4C3E8A9C338F4616F9C7B780C83F3F1A264DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738417   (106054) от 28.07.2024
 
 VA - RnB Soulful Collection (2024) [MP3|320 Kbps] <Rhythm And Blues, Soul>
@@ -577,216 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D76AA934B949AF3BEBEF74486604767C97EF5576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489848   (102486) от 01.05.2012
-
-VA - Музыка в дорогу и для себя (2012) [MP3|96-320 кб/с]<Dance, Pop, Rock, шансон, фолк,>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102486.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. CENTR - Город дорог (4:30)
-2. Eminem - Lose Yourself (5:22)
-3. Eminem - Stan (6:44)
-4. Guf - Ice Baby (4:12)
-5. Mr. СREDO - Медляк (4:27)
-6. Sting - Desert Rose (4:45)
-7. Whizzkids feat. Inusa Dawuda - Rumours (Digi digi) (3:46)
-8. Агата кристи и Би-2 - А мы не ангелы, парень (3:04)
-9. Александр Розенбаум - Гаврош (4:17)
-10. Александр Розенбаум - Заходите к нам на огонек (2:16)(   Читать дальше...   )2012Жанр: Dance, Pop, Rock, Шансон, Фолк.Продолжительность: 07:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213303B01513CC5CBD202EDE1CBC2724C4F81520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490754   (102414) от 01.05.2012
-
-VA - Восточная Сказка (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naser Zeynali - The Ring
-02. Meyra - Kalbim Bir Pusula
-03. Arash - Melody
-04. Hakan Peker - Karamela
-05. Mehrzad Amirkhani - Neshoon Be On Neshoon
-06. Petek Dincoz - Yalani Bosver
-07. Mohsen Chavooshi - Ha
-08. Sinan Ozen - Yansima
-09. Shahab Ramezan - Jonoon
-10. Yusuf Guney & Rafet El Roman feat. Eren Atasoy - Aska In2012Жанр: PopПродолжительность: 06:23:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953D6230EA8BF66719796D77E4A99A5C866EE71D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490765   (102377) от 01.05.2012
-
-VA - Дя, Я пьяна! Девишник (2012) [MP3|320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ляля Размахова - Да, я пьяна! (3:56)
-2. Марина Александрова - Люби меня (4:38)
-3. Ольга Фаворская - У меня есть ты (3:44)
-4. Рада Рай - А любовь не меняю (3:44)
-5. Стелла Джанни - Ты опоздал (4:07)
-6. Олеся Атланова - Самая красивая любовь (4:00)
-7. Лариса Закиева - Я смогу (версия 2012) (3:49)
-8. Катерина Логинова - Ромашка (3:51)
-9. Александра Радова - Только мой (4:50)
-10. Ольга Фаворская - У меня есть ты (3:44)2012Жанр: ШансонПродолжительность: 01:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23CA5D7637F4A69012ECE4AC90B0925D1DBE119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490027   (102359) от 01.05.2012
-
-VA - Лучшие Хиты Радио Шансон Часть 8 (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102359.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Любовь Успенская - Два человека
-002 Александр Новиков - Сладкий грех
-003 Рада Рай - А любовь не меняю+
-004 Ян Марти - Я люблю тебя
-005 А.Т.А.С. - Галка - зажигалка
-006 Михаил Шуфутинский - Выйду я на палубу
-007 Анатолий Полотно и Федя Карманов - Счастья Вам!
-008 Лукьяновка - Мужики
-009 Денис Мафик - Красивая
-010 Стас Михайлов - Непрощенный2012Жанр: ШансонПродолжительность: 05:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BB24DBE70B0376D833DCF603DC6CD47772012D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489428   (102074) от 29.04.2012
-
-VA - Лучшие Хиты Радио Европа Плюс Часть 8 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102074.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Real O - Луна (Я В Белом Платьице)
-002 Marina and The Diamonds - Primadonna
-003 T-Killah feat. Виктория Дайнеко - Mirror Mirror
-004 LMFAO - Sorry For Party Rocking
-005 Elvira T - Все Решено (Rodion Gordin Remix Radio)
-006 Mishelle feat. Randi - Feels So Good (Radio Edit)
-007 Влад Соколовский - Ливни
-008 Aura Dione feat. Rock Mafia - Friends
-009 Иракли и Даша Суворова - Нелюбовь
-010 Madonna - Masterpiece2012Жанр: PopПродолжительность: 05:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F816AB9F600C2D6A12AAA401BB5FBE1F9BD52A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489784   (102032) от 29.04.2012
-
-VA - Beautiful Dubstep v.3 (2012) [MP3|256-320 кб/с]<Dubstep/Chillout/Longe>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackmill Feat. Veela - Let It Be
-02. Aly & Fila Feat. Jwaydan - Together We Control The SunLight (Dubstep Remix)
-03. Above & Beyond - You Got To Go (Seven Lions Dubstep Remix)
-04. Blackmill - Spirit Of Life
-05. Blackmill - Evil Beauty
-06. Blank and Jones with Delerium, Rani - Fallen (Dubstep Mix)
-07. Dub and Run - Coming Home
-08. Ed Gabriel aka Cooper - Little Happiness
-09. ENiGMA Dubz - You Make Me Feel (Mastering)
-10. Fast Foot & Rose Royce - Wishing on a star(   Читать дальше...   )Жанр: Dubstep/Chillout/LongeПродолжительность: 02:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF6F669DD6876F102E62F8F6623661F905B8E44
 ```
 
 https://mybot314.ru/tekegram_catalog/

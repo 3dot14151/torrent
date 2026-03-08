@@ -1,3 +1,32 @@
+###  Публикация: 1627947   (239193) от 22.04.2023
+
+VA - TOP Non-Stop 2000-2009 - Dance House Music. Part 3 (2023) [MP3|192-320 Kbps] <Funky House, Progressive House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Royale - Happy Privée (2008) (2:46)
+02. Cosy Creatures - Sex Education (2003) (3:31)
+03. Magik Johnson - The Funk (2003) (5:15)
+04. Schmoov! - Monkey Nut (2002) (5:09)(   Читать дальше...   )Жанр: Funky House, Progressive House, Electro HouseПродолжительность: 15:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30490FDEB8BD12735E5CBB150E229DE7ACC49C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476700   (239142) от 12.06.2021
 
 VA - Galactic Beats Future: House Mixtape (2021) [MP3|320 Kbps] <House, Electro, Progressive>
@@ -716,35 +745,6 @@ VA - Trance Desire Volume 58 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:245471C24F7B9CCE5CC572CD51B22F5B0A0BD949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965230   (228633) от 13.12.2015
-
-VA - Chillout Hits (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Cool Shade
-02. Peter Pearson - Dreaming
-03. FXU - Lucky 13
-04. Radiosilence - Silence to Storm(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234B6A7CF0F1D6E2AFCB67FCC2B9516EFBB79189
 ```
 
 https://mybot314.ru/tekegram_catalog/

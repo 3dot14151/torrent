@@ -1,3 +1,61 @@
+###  Публикация: 1575095   (379411) от 08.09.2022
+
+Hypnotix - Star Tracks (1997) [OGG Vorbis|485 Kbps] <Synthpop, Experimental>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Star-T                                               	0:40
+02.  Star Track 4,3,2,1                             	4:20
+03.  Io Starship                                   	1:04
+04.  Northstar                                     	6:51(   Читать дальше...   )Жанр: Synthpop, ExperimentalПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECFF5CE7971DA5EFFA05A0C7442E1CC79179488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253848   (379410) от 11.10.2018
+
+The Midnight - Kids (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Youth (03:09)
+02. Wave (04:31)
+03. Kids (Prelude) (02:13)
+04. Lost Boy (04:37)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA3358CC7E9AFF40ABD94C1681BFF2E9FEF738F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575128   (379241) от 08.09.2022
 
 Tritonal - Coalesce (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Trance>
@@ -684,64 +742,6 @@ Sensorica - 6 Albums , 7 Compilations (2007 - 2015) [MP3|320 кб/с]<Trance, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88C748D269DA37FCCC116300BBF6F193E01E5671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415612   (376869) от 12.10.2020
-
-Martin Goodwin - Discography 6 Releases (2013-2020) Tehnofonika, Northallsen, Kornarion [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclosion Pt.1 (06:55)
- 02. Eclosion Pt.2 (12:08)
- 03. Eclosion Pt.3 (06:37)
- 04. Eclosion Pt.4 (08:15)(   Читать дальше...   )Тип издания: WebЖанр: Techno, Ambient, Dub Techno •Продолжительность: 04:50:59 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47BAF85EB491384EC2FB5E94B6C70B9D59D56F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415563   (376861) от 12.10.2020
-
-Martin Goodwin - Eclosion (2020) Kornarion Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Techno, Psy-Tech>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclosion Pt.1 (06:55)
- 02. Eclosion Pt.2 (12:08)
- 03. Eclosion Pt.3 (06:37)
- 04. Eclosion Pt.4 (08:15)(   Читать дальше...   )Жанр: Ambient, Techno, Psy-TechПродолжительность: 01:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590BF2A9C55CCF2B6CCAD317810CA15EC1CFC477
 ```
 
 https://mybot314.ru/tekegram_catalog/

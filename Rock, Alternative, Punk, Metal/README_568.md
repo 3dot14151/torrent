@@ -1,32 +1,3 @@
-###  Публикация: 1564011   (501722) от 17.07.2022
-
-Graveshadow - The Uncertain Hour (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soldier of 34 (06:04)
-02. Gwynnbleidd (04:18)
-03. Sea of Apparitions (03:55)
-04. The Swordsman (feat. Chelsea Murphy) (05:28)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F555ACFAC4057000D37249CDC12289A97976F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564137   (501721) от 17.07.2022
 
 Sons of Arrakis - Volume I (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
@@ -800,6 +771,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:327AFE485F3A3FD8DDA39452EDD00B25AFD00C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541601   (500902) от 31.08.2012
+
+VA - The Many Faces Of AC/DC (The Ultimate Tribute to AC/DC) (2012) [WavPack|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500902.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1: AC/CD´s Music Celebrations
+CD 2: Brian Johnson & Geordie - The Singles Sides A & B
+CD 3: Bon Scott - The Early Years & RootsЖанр: Hard RockПродолжительность: 02:14:51
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 172670   (495450) от 25.08.2018
+
+Мужской вокальный ансамбль "Благовест" - Хвалите Господа с небес [MP3|320 kbps]<духовная музыка>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песнопения всенощного бдения
+01 Приидите, поклонимся (С.Рахманинов)
+02 Блажен муж (В. Тредьяков)
+03 Спаси от бед (Л. Панкратов)(   Читать дальше...   )Жанр: духовная музыкаПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524E889584FB56201094796405FE04DDB610E737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542415   (495106) от 05.09.2012
 
 Murray Perahia with ASMF Plays Bach Concertos (2011) [FLAC|Lossless]<Classical>
@@ -755,35 +784,6 @@ Missa Bruxellensis XXIII vocum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6B49CA62D2679F754381D2A4FA6432760A7D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 239009   (474869) от 24.09.2010
-
-Jordi Savall + Montserrat Figueras + Arianna Savall - 6 альбомов (2000-2010) [APE|Lossless|image + .cue] <Classic, Sacred>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474869.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Preghiera	6:34
-  2. El Llenguatge Dels Ocells	6:16
-  3. Liebes-Lied	3:11
-  4. She Moved Through The Fair	3:32(   Читать дальше...   )Продолжительность: ~ 7:03:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1630872   (254613) от 03.05.2023
+
+R. Carlos Nakai & AmoChip Dabney - Edge Of The Century (2001) [FLAC|Lossless|tracks + .cue] <Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Mystery
+02. York
+03. Queztalcoatl
+04. Spirit Sharing(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4120CF7E95A5AD0C5190AC9C2F3B7784676DDF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631902   (254533) от 07.05.2023
 
 Delerium - Signs (2023) [FLAC|Lossless|image + .cue] <New Age, Ambient>
@@ -755,41 +784,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96316092AE5F4D9F2840E8F6CEBB7E4EF9FBDDC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491700   (246615) от 04.05.2012
-
-David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, Experimental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_246615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Day Today (04:38)
-02. I Know (04:04)
-03. Good Day Today (Radio Edit) (04:17)
-04. Good Day Today (Underworld Classic Remix) (08:39)
-05. Good Day Today (Boys Noize Remix) (06:16)
-06. Good Day Today (diskJokke Remix) (08:39)
-07. I Know (Sasha Remix) (08:56)
-08. I Know (Skream's Not So Ravey Remix) (05:05)
-09. I Know (Ratcliffe 'Hedz In Dark' Remix) (06:01)
-10. I Know (Jon Hopkins Remix) (04:59)1998-2011Жанр: Ambient, Alternative Rock, ExperimentalПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

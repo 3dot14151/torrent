@@ -1,3 +1,38 @@
+###  Публикация: 610488   (990380) от 29.01.2013
+
+Torturous Inception - The Parable Of Scorched Earth (2013) [MP3|320 кб/с]<Brutal Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Disciple In Bereavement [00:03:47]
+ 02 - Refectory [00:03:36]
+ 03 - Subject To Onslaught [00:04:22]
+ 04 - Lecherous Servants Of Flesh [00:03:47]
+ 05 - Vomit Inducing Conditions [00:03:32]
+ 06 - Leviathan [00:03:54]
+ 07 - Transmigration Within The Foul [00:04:21]
+ 08 - Strategic Dismemberment [00:03:49]
+ 09 - A Unidimensional Gateway From Which None Return [00:02:32]
+ 10 - Cryogenic Reverie Bypassing An Apocalypse [00:04:13]Жанр: Brutal DeathПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8AB0C15F2C2C23A60B712B36B5716AA32BB846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610658   (990376) от 29.01.2013
 
 Wallpapers - Обои 2013-1 [JPEG]
@@ -670,34 +705,6 @@ Bach - Concertos for Harpsichords, BWV 1060 1061 1062 1064 1065: Hill, Behringer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6725BDA14BAB302FAAEFD8705483DEF83B162BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609929   (990286) от 29.01.2013
-
-Сара Дуглас| Серия "Боевой топор"(1-2 книги) [2003-2004] [FB2][TXT][JAVA(jar+jad)]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысячу долгих лет жили люди Ахара в мире и спокойствии — потому что защищали их землю высокие горы и стальная воля Сенешалей — воинов, в совершенстве постигших искусство «меча и магии».
-
-Но теперь настало время сбыться древнему, страшному пророчеству, ибо пробудились к жизни темные силы демонов и вторгся в Ахар безжалостный повелитель Горгрил, обладающий магическим даром приносить во вражеские земли вечную зиму…Формат: FB2,TXT,JAVA(jar+jad).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BA115ADA7269508AEEEF919A40C496B352D6AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1591322   (187167) от 18.11.2022
+
+Rob Papen - BLUE III 1.0.0 VSTi, VSTi 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда он был впервые выпущен в 2005 году, «BLUE» уже отражал передовой, творческий и, что наиболее важно, музыкальный подход Роба Папена к разработке виртуальных синтезаторов. Сам Роб Папен назвал это «Cross-fusion synthesis», потому что он охватывал как субтрактивный, так и FM-синтез в одной творческой концепции.
+С его преемником BLUE-II «Cross-fusion synthesis» (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75989F69811DA81F1F61EDB67D1E4251008F1BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591512   (187143) от 18.11.2022
 
 AIR Music Technology - Hype 1.1.0 Standalone, VSTi, VSTi3, AAX (x64) RePack by R2R [En]
@@ -650,32 +677,6 @@ Kush Audio - LG Drive 1.0.0 VST, VST3, AAX (x64) RePack by R2R [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE1F5DEF6CBDB2899B6E5BBED723DC549EF50E61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592550   (183527) от 22.11.2022
-
-Capture One 23 Enterprise 16.0.1.20 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, DNG (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA5C275D2CCBB1C7DA4BE9F30E1AF2AA11928DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

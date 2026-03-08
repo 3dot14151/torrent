@@ -1,32 +1,3 @@
-###  Публикация: 1848713   (1052920) от 18.01.2026
-
-Dan Zlotnick - Asking For A Friend (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Americana>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Weekend Conversation (03:27)
- 02 - Never Healed Heart (03:17)
- 03 - Teach Me How (03:37)
- 04 - Asking For A Friend (03:29)(   Читать дальше...   )Жанр: Blues Rock, AmericanaПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E87337B2B7A7E1D10EC0FC94949755EF3AE9B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848722   (1052888) от 18.01.2026
 
 Полюса - Наше ничего (2026) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
@@ -745,6 +716,35 @@ Elbereth's Grace - Where Silence Speaks (2026) [FLAC|Lossless|WEB-DL|tracks] <Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:512E01C796153D2FE3F73E0723097FDBA9B1E038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847633   (1052279) от 13.01.2026
+
+N.Y.C. - Built To Destroy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy As Hell 03:55
+02. Twisted 03:57
+03. United 04:13
+04. Tired Of Smiling 03:50(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52DF3DDB1CC7097A2106CCAE5A12612305017A12
 ```
 
 https://mybot314.ru/tekegram_catalog/

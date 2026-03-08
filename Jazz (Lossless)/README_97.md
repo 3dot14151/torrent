@@ -1,3 +1,32 @@
+###  Публикация: 1128787   (724975) от 27.04.2017
+
+Sidney Bechet - Jazz Anthology (1952) 2007, Promo Sound [FLAC|Lossless|image + .cue] <Dixieland, Revival>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amarican Rhythm [00:47]
+02. Muskrat Ramble [05:37]
+03. Frankie an Johnny [05:48]
+04. Petite Fleur [03:20](   Читать дальше...   )Жанр: Dixieland, RevivalПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896A7CF9B5461B5A6A37EA3E9616D9D4E1777645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128790   (724843) от 27.04.2017
 
 Laurindo Almeida - Chamber Jazz (1978) 2000,	Concord Jazz [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, Latin Jazz, Guitar Jazz>
@@ -716,35 +745,6 @@ Kenny Burrell - God Bless the Child (1971) 1987 [WavPack|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EBC625916C28358C644E0C4896F991CA361D9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129425   (722712) от 28.04.2017
-
-Kenny Burrell - Midnight Blue (1967) 1999, RVG Edition [WavPack|Lossless|image + .cue] <Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722712.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chitlins Con Carne  5:30
-2. Mule  6:57
-3. Soul Lament  2:44
-4. Midnight Blue  4:02(   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF94B0636E9D790CCB44405F85E93EA1251751E
 ```
 
 https://mybot314.ru/tekegram_catalog/

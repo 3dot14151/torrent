@@ -1,3 +1,90 @@
+###  Публикация: 1235474   (558747) от 12.07.2018
+
+Gruesome - Twisted Prayers (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inhumane
+02. A Waste of Life
+03. Fate
+04. Lethal Legacy(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A0719224BE1A359B55C350F42F5E7E351FBB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235480   (558746) от 12.07.2018
+
+Stryper - God Damn Evil (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Take It To The Cross 4:56
+Sorry 3:56
+Lost 3:44
+God Damn Evil 4:06(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D4EC40216EADCB0651622DFB16736555AE6F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235483   (558680) от 12.07.2018
+
+Temperance - Of Jupiter and Moons (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Hope in a World of Hopes
+02. Broken Promises
+03. Of Jupiter and Moons
+04. Everything That I Am(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA91A957E3C449F1C0B33DE659A6C1E206B41C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556359   (558392) от 10.06.2022
 
 Hyperborean - Rising From The Dark Past (2014) [FLAC|Lossless|tracks] <Black Metal>
@@ -657,93 +744,6 @@ Evadne - The 13-th Condition (2007) [FLAC|Lossless|image + .cue] <Melodic Death,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3CBA29AFED08E02CDE518412B95F7BAF8171E15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045761   (556841) от 25.08.2016
-
-Running Wild - Rapid Foray (2016) Limited Edition [FLAC|Lossless|image + .cue] <Heavy, Power, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Skies, Red Flag
-02. Warmongers
-03. Stick to Your Guns
-04. Rapid Foray(   Читать дальше...   )Жанр: Heavy, Power, Speed MetalПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86102A5C9A4FEEB6419B0806FF090DC42DE751B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235819   (556619) от 14.07.2018
-
-Ossian - Kuldetes (2008) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ebredés (intro)
-02. A Szamuzott visszater
-03. A Veletlen
-04. Uj Aranykor(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68B03532AF5A39126AD1946584C41BBEE66FEAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556791   (556506) от 12.06.2022
-
-Sons Of Node - Deadlock (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Crossing The Line (00:05:12)
-02 - Cockroach Utopia (00:03:45)
-03 - 2 4 7 12 5 3 2 (00:04:28)
-04 - Deadlock (00:03:42)(   Читать дальше...   )Жанр: Sludge, Stoner MetalПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A71FA8927D72EE79FF0D1D3486FD219C7F2DB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

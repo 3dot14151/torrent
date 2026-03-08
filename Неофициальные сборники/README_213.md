@@ -1,3 +1,177 @@
+###  Публикация: 1280761   (758631) от 04.02.2019
+
+VA - Heavy Metal Collections Vol. 11 (3CD + 1CD LIVE) (2019) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758631.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Beast In Black - Blood Of A Lion (2017) (5:04)
+02. Thobbe Englund - Sold My Soul (2017) (2:34)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 04:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6B71943DCAE6475A1692883D51C2828C7A33F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280759   (758626) от 04.02.2019
+
+VA - Heavy Metal Collections Vol. 10 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758626.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Dark Sky - Into The Arena (2018)(1:36)
+02. Mob Rules - Ghost Of A Chance (2018)(4:45)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D88FD183E0E0EDF034176CE6D3D6AD4E3125357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280831   (758606) от 04.02.2019
+
+VA - Громкие новинки месяца Vol.23 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тима Белорусских - Я больше не напишу
+02. Jony - Пустой Стакан
+03. Luis Fonsi - Poco A Poco
+04. Galantis, OneRepublic - Bones(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC5654773717F6CBF6965BA58B514CDAF44E5E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280764   (758605) от 04.02.2019
+
+VA - Heavy Metal Collections Vol. 12 (3CD) (2019) [MP3|320 Kbps] <Heavy - Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758605.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Thobbe Englund - Heart of Metal (2018) (0:41)
+02. Stormwitch - The Choir of the Dead (2018) (4:41)(   Читать дальше...   )Жанр: Heavy - MetalПродолжительность: 03:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F2D8FE4A338C8D9CBB822F3263DF9C0AABF397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522581   (758535) от 07.01.2022
+
+Eighth Wonder - Compilation (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Not Scared
+02. J'ai Pas Peur (French Version)
+03. Open Your Mind
+04. The Dress(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C875376E6A0BF94BD2EA37CB4B17BB9DDD968F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522454   (758392) от 07.01.2022
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver. 115 (2022) [MP3|320 Kbps] <Club, Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+01. ABBA - Happy New Year (Ayur Tsyrenov Remix)
+02. Beyonce - Green Light (Ayur Tsyrenov DFM Remix)
+03. David Guetta feat. Sia - Titanium (Ayur Tsyrenov DFM Remix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 03:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D839CB9162A9982429D456A4BFA13499DC6CFA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522573   (758384) от 07.01.2022
 
 Joe Cocker - Compilation (2020) [MP3|320 Kbps] <Rock>
@@ -579,180 +753,6 @@ VA - The Official UK Top 40 Singles Chart (27-04-2014) [MP3|320 кб/с]<Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEABDA398D61E49BA57CC8D334DED5B4B06F57CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215697   (756214) от 27.03.2018
-
-VA - Blessing New Age Music (2018) [MP3|256-320 Kbps] <New Age, Relax, Meditative>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756214.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aithra - Shadow Play
-002. Gilberto Medda - Flying High in the Sky
-003. Howe Gelb - Terribly So
-004. Narcotic Chill - On The Last(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 09:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D37384D4DF835CEF3A5A8562FD123127B9169A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215726   (756115) от 27.03.2018
-
-VA - Rock & Metal Collection от ALEXnROCK часть 4 (2018) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756115.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 4я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK181 Cinderella - The More Things Change
-182 Bryan Adams - Is Your Mama Gonna Miss Ya-
-183 3 Doors Down - Train
-184 Firehouse - Love Of A Lifetime(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D65600696C94108282325E897BD9FD9BC10634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018595   (756032) от 20.05.2016
-
-VA - Wine Lounge, Vol. 3 (25 Bar Lounge Tunes) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oblique Style - Relax Yourself (Baia Mix) (05:30)
-02. Adrienne Gowan - Sunrise (04:04)
-03. Danny Hay - By and By (Fantastic World Mix) (05:48)
-04. Zip Love - Replace (Melbourne Mix) (04:14)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119B5F3DB959AB13C797F8F9692B531F01BA77C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018582   (756031) от 20.05.2016
-
-VA - Pictures Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - On the Lake
-02. Don Gorda Project - Daydreaming
-03. Baghira - Way Too Long
-04. Aquarius - Fly Away(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96366B994DFD5A2D0BA4C164602B1DB8F91EF882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018514   (756021) от 20.05.2016
-
-VA - The Magic Dream Of Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756021.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Lounge Unlimited Orchestra - Violet
-002. Xeno Sound System - Free Run
-003. MrV - Sunset Landscapes
-004. Dario J - The Lounge Again(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53230EFAB216FA6C4F01E3E5B683C48B8032DD79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018388   (756016) от 20.05.2016
-
-VA - Dirty Beats Funky Dancefloor (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Heatbeat - It's Killing Me (Radio Edit) 3:27
-002. Overtune - How Does It Feel (Hp Remix) 5:43
-003. Curbi - Circus (Extended Mix) 3:56
-004. Dj Asperant - I'm In Miami Beach (Original Mix) 3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 11:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC0AB19940F33848985E0071DA0ABE79D066E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

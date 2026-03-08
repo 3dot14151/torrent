@@ -1,25 +1,335 @@
-###  Публикация: 907384   (638088) от 12.06.2015
+###  Публикация: 1033215   (638234) от 11.07.2016
 
-Lazer Lloyd - Lazer Lloyd (2015) [MP3|320 кб/с]<Blues Rock>
+Захват нового типа позволяет роботам брать и перемещать самые "неудобные" предметы
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_638234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любой человек, кому приходилось иметь дело с роботизированным манипулятором, знаком с ситуацией, когда этом манипулятор не может захватить и удерживать предмет в силу различных причин. Система управления этим манипулятором не может решить, в какое положение поместить захват относительно объекта "неудобной" формы, а в некоторых случаях принятию "правильного" (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033486   (638233) от 11.07.2016
+
+VA - Club Dance Ambience Vol.77 (2016) [MP3|320 Kbps] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638233.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sander van Doorn vs. Florence & The Machine -  Reach The Love  (Sensetive5 Mashup) 6:07
+002. Bob Sinclair -  Someone Who Needs Me (Alex Gaudino & Dyson Kellerman Remix) 4:10
+003. Calvin Harris feat. Rihanna -  This Is What You Came For (Akhmetoff Remix) 3:48
+004. Madonna -  Music (Vincent & Diaz Remix) 5:05(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E24FC112AABF245595176F0A83D94CBB04D713A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033406   (638232) от 11.07.2016
+
+Cellars - Phases (2016) [MP3|320 Kbps] <80's Retro Pop, Synth Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stircrazy
+02. Do You Miss Me?
+03. Real Good Day
+04. Still in Love(   Читать дальше...   )Жанр: 80's Retro Pop, Synth Pop, Female VocalПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECD544BAE06B47D9BA9C06D2C55C53C4529B0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033535   (638231) от 11.07.2016
+
+Susan Wong - Woman In Love (2014) [MP3|320 Kbps] <Pop, Easy Listening, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Woman In Love    03:41
+02.  I Honestly Love You    03:26
+03.  Chain Reaction    03:39
+04.  Can't You See (I'm Falling In Love)    03:39(   Читать дальше...   )Жанр: Pop, Easy Listening, VocalПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5CB0E51F87A91F13F880E6CB72026A58ADFD1B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032996   (638230) от 11.07.2016
+
+Журнал | Ступени оракула №14 (2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание предлагает разнообразие точек зрения — от фантастических предположений до научных теорий, оставляя выбор за читателем. Мнения профессионалов и свидетельства очевидцев, факты, феномены, версии. Журнал, открывающий мир!Жанр: Эзотерика, мистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDBE40CE7B0DD389BE7465E25F24609E1A055A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033373   (638229) от 11.07.2016
+
+Cosmic Inc. (Cosmic Baby) - Futura (1994) [FLAC|Lossless|image + .cue]<Trance, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638229.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Au Dessous Des Nuages 10:47
+2. Brooklyn 5:19
+3. Movements In Love 8:20
+4. Futura 5:03(   Читать дальше...   )Жанр: Trance, AmbientПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFFD21C3E67A247C59DD83F517F9AABF5753F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033654   (638228) от 11.07.2016
+
+VA - Be Spa EP (2016) [MP3|320 Kbps] <Electronic, Disco, Nu-Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rayko - I Keep Forgettin (Rayko Moscow Discow Rework) (8:08)
+02. Julian Sanza - Unleashed (6:13)
+03. Glenn Dale - When the Night Goes On (6:05)
+04. James Rod & Fran Deeper - Mallorcas Island (6:42)(   Читать дальше...   )Производство: Spa In DiscoЖанр: Electronic, Disco, Nu-DiscoПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540B923FF8A1805B0D1BAFCCF04290F1700D8044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217744   (638213) от 11.07.2010
+
+DarkSoftware | Универсальная Мультитематическая Энциклопедия DarkEnc [2008] [ISO]
+
+>>Мультимедийные материалы
+>>Мультимедийные справочники, Энциклопедии
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_638213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальная мультитематическая энциклопедия содержит 77 словарей и Энциклопедий, и поэтому даст развернутый ответ на абсолютно любой вопрос, не зависимо от области знаний.
+ Мечта каждого любознательного человека с широким кругозором, преподавателя и студента, лингвиста, литератора. Ваш незаменимый помощник, знающий абсолютно все, а поиск нужной инфомации займет считанные секунды.! Замена сотням томов энциклопедий, словарей, справочников, тематических сборников и справочно-познавательных научно-популярных изданий.
+ Дистрибутив включает полный комплект словарных баз, что составляет миллионы словарных статей и заменяет масштабную библиотеку словарной, энциклопедической и начно-справочной литературы.Жанр: Словари, ЭнциклопедииФормат: ISO
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906786   (638207) от 12.06.2015
+
+Jaydan - Cold as Ice EP (2015) [MP3|320 кб/с]<Drum'n'Bass, JumpUp, Jungle>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold as Ice
+02. Big Man Talk
+03. Rudeboy Sound
+04. Play MeЖанр: Drum'n'Bass, JumpUp, JungleПродолжительность: 00:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03697C93586B1DA3CA75F50D5D8D0C0D057C0753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907546   (638206) от 12.06.2015
+
+Ахмет Мальсагов | Лорс рисует афишу (1972) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638206.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ступил на тропу — иди по ней до конца; взялся за дело — не оставляй его на полпути; посадил дерево — вырасти его сам». К такому выводу приходит герой повести ингушского писателя А. Мальсагова «Лорс рисует афишу».
+Эта мысль кажется простой, очевидной и обязательной для каждого. Но чтобы следовать ей, надо дойти до нее самому и самому убедиться в необходимости такого (   Читать дальше...   )Жанр: Детская прозаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68371E419A0A2EA89B77AAE43EA688D930F9BA3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907627   (638205) от 12.06.2015
+
+VA - Singapore Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long J. - Metal Life [03:49]
+02. Long J. - African Night [05:11]
+03. Mangaroka - Roundrop [03:58]
+04. Marlon - Airy Dawn [04:59](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3063A0330F2C8A2F42A18CFD8863A809228C4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907591   (638204) от 12.06.2015
+
+Johnny Tanner - Juke Joint Rambler (2015) [MP3|320 кб/с]<Chicago Blues, Harmonica Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638088.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Burning Thunder (3:29)
-2. Suffering (4:19)
-3. Rockin' In The Holy Land (3:38)
-4. Never Give Up (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:36
+01. I Got To Go (Feat. Rusty Zinn) (3:15)
+02. Lovey Dovey (Feat. Jr. Watson) (2:41)
+03. Searchin' The World Over (Feat. Jr. Watson) (3:48)
+04. Bring Her Back To Me (Feat. Jr. Watson) (3:11)(   Читать дальше...   )Жанр: Chicago Blues, Harmonica BluesПродолжительность: 00:44:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19D4249797DF5447E468A05FB17F5555A7255F13
+magnet:?xt=urn:btih:9BD604A8D1055CCF02D79F8F95DAD9F7BAE26B1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,27 +337,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906744   (638087) от 12.06.2015
+###  Публикация: 907376   (638203) от 12.06.2015
 
-Л. Штерн и др. (ред.) | Проблемы истории Второй мировой войны (1959) [DJVU]
+Crazy Hambones - 45 (Live) (2015) [MP3|320 кб/с]<Harmonica Blues, Boogie, Rockin' Blues>
 
->>Научная и техническая литература
->>Историческая литература
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638087.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638203.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Аннотация:
-
-В ноябре 1957 года в Лейпциге (ГДР) состоялась конференция историков Советского Союза и Германской Демократической Республики с участием историков других социалистических стран и некоторых капиталистических государств. На конференции были заслушаны доклады и проведены дискуссии по двум главным темам: влияние Великой Октябрьской социалистической революции (   Читать дальше...   )Жанр: история, политологияФормат: DJVU
+01. Moon (Live) (3:47)
+02. Have A Good Time (Live) (7:42)
+03. 12 Gates To The City (Live) (3:43)
+04. Time And A Place (Live) (3:42)(   Читать дальше...   )Жанр: Harmonica Blues, Boogie, Rockin' BluesПродолжительность: 00:40:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6808D2E0BC3E6F870B51352B9CE2A457DC0A56D3
+magnet:?xt=urn:btih:AC6A09A5A1231927A4D8031AED8F902267633A76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,86 +366,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907438   (638086) от 12.06.2015
+###  Публикация: 907624   (638202) от 12.06.2015
 
-John Du Cann - The Many Sides Of 1967-1980 (2012) Remastered /2012, Angel Air/ [FLAC|image+.cue]<Psychedelic Rock, Progressive Rock, Mod>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic In The Air (The Attack 1967) 03:38
-02. Mr. Pinnodmy's Dilemma (The Attack 1967) 04:27
-03. Too Old (Andromeda 1969) 04:59
-04. Return To Sanity (3 parts) 08:20(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, ModПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB86A2E1FAA0446511808EA23D1AAF5616BE8F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907454   (638085) от 12.06.2015
-
-Forest - 2 альбома (1969-1970) Remastered /2015, Warner Music Japan/ [FLAC|image+.cue]<Progressive Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hawk The Hawker 05:47
-02. Bluebell Dance 03:10
-03. The Midnight Hanging Of A Runaway Serf 05:03
-04. To Julie 03:35(   Читать дальше...   )Жанр: Progressive Folk RockПродолжительность: 01:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6F018CFFBB592D0582223C7BDB9DB5B8B0B75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907572   (638084) от 12.06.2015
-
-VA - New Age Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+VA - Brightness of Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638084.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oscar Salguero - With You [05:05]
-02. M. Vitoria - Love Devotion Surrender [05:05]
-03. The Synths - Moby Dick [04:19]
-04. Oscar Salguero - Lounge, Shopping and Go [04:54](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:23:18
+01. Aqua Mundi - Sweet Fragrances (06:15)
+02. Collective Sound Members - Make Love to the Night (05:09)
+03. Gerald Peklar - Zwei Flocken Tanz (03:58)
+04. Pusteblume - Cold as Ice - Wonderful Lounge Mix (07:21)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:02:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFB5E9114CB8576F3E7162EE4DB0C71738DF139D
+magnet:?xt=urn:btih:F2D889BB33F6F1484DDDD608F731B7D21C407387
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,28 +395,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907449   (638083) от 12.06.2015
+###  Публикация: 907434   (638201) от 12.06.2015
 
-Albert Collins - The Complete Imperial Recordings (1991) [WavPack|image+.cue]<Texas Blues>
+A Band Named Trevor - Smoke Dog Music (2015) [MP3|320 кб/с]<Blues Rock>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638083.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Baby What You Want Me To Do/Rock Me Baby 04:04
-02. Lip Service 03:19
-03. Things That I Used To Do (Talking Slim Blues) 03:28
-04. Back-Yard Back-Talk 02:52(   Читать дальше...   )Жанр: Texas BluesПродолжительность: 01:40:07
+1. Mr. Fabulous (4:53)
+2. 21st Century (4:13)
+3. Smoke Dog Music (4:48)
+4. Shake (3:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DEC8AF92A7873EFBE47C748EC8DAB0CD4E2C74D7
+magnet:?xt=urn:btih:792615DAB08DD566A809F8FE1E4C9ED2DF27885A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,28 +424,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907446   (638082) от 12.06.2015
+###  Публикация: 907652   (638200) от 12.06.2015
 
-Mark Slaughter - Reflections in a Rear View Mirror (2015) [MP3|320 кб/с]<Hard Rock>
+Николай Дмитриев | Честь Родины (1941) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы о народных героях. Для младшего возраста.Жанр: Детская проза, приключенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D876E4DAC6DBFA3185BAD2210463D7CD9A2D8B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907378   (638199) от 12.06.2015
+
+Rusty Apollo - Oh Yeah! (2015) [MP3|320 кб/с]<Blues, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Going Down
+02. I'm Going Upstairs
+03. Mellow Down Easy
+04. Smoke Stack Lightning(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B8348AE0FE7DB03721EB9C8DD62C90EFC75DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907381   (638198) от 12.06.2015
+
+Fleece - Scavenger (2015) [MP3|320 кб/с]<Psychedelic Rock, Progressive Rock, Alternative>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638082.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Away I go
-02. Never Givin' Up
-03. Miss Elainious
-04. Carry Me Back Home(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
+1.Aliens 04:14
+2.Wake and Bake 03:10
+3.Demanding 05:10
+4.DLXVII (Interlude) 01:32(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, AlternativeПродолжительность: 00:35:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:075D3AFB5AE19087E2944CCF8673F642C8EA7D69
+magnet:?xt=urn:btih:C27DE6008A39E6FEB70E0A76A752D3009A7966D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,28 +508,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907595   (638081) от 12.06.2015
+###  Публикация: 907593   (638197) от 12.06.2015
 
-Ronnie Earl & The Broadcasters - Father's Day (2015) [MP3|320 кб/с]<Blues Rock>
+Marco Pandolfi - No Dog In This Hunt (2015) [MP3|320 кб/с]<Harmonica Blues, Modern Electric Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638081.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. It Takes Time
-2. Higher Love
-3. Right Place Wrong Time
-4. What Have I Done Wrong(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:10
+01. Ain't That Lovin' You Baby (3:11)
+02. Three Shots In A Row (3:57)
+03. Early In The Morning (2:30)
+04. Up The Line (5:18)(   Читать дальше...   )Жанр: Harmonica Blues, Modern Electric BluesПродолжительность: 00:42:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E50A04DC05EA3BDA9DFF9C7B50C4821CCA56035
+magnet:?xt=urn:btih:15B7AED8317DB05719CBC636EA0F10358F95CD19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,54 +537,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907704   (638080) от 12.06.2015
+###  Публикация: 907666   (638196) от 12.06.2015
 
-Космическая викторина. 1.0 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638080.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игру входят вопросы о солнечной системе, планетах, звездах, галактиках, черных дырах и тд.
-Проверь свои знания о вселенной.
-Ответь на вопрос. Угадай слово.Тип издания: FreeРелиз состоялся: 28 мая 2015 г.Разработчик: LevelXcodeПоддерживаемая ОС: Android 3.0+Жанр: РuzzleЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F88FD3EB6AC1CF3EF68587FA0D632B1B277115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907217   (638079) от 12.06.2015
-
-Олег Тихомиров | Сказ об Иване Болотникове (1988) [PDF]
+А. Ивановская  (сост.) | День работой весел (1959) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638079.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга рассчитана на детей младшего дошкольного возраста для уроков внеклассного чтения и получения знаний о нашей истории.
-Исторический рассказ о народном восстании под руководством Ивана Болотникова в XVII веке.Жанр: Детская прозаФормат: PDF
+Пословицы и поговорки народов СССР о труде.Жанр: Детская литератураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:994C2D9CAF2D0813358CEBA3854F5C064EC4611D
+magnet:?xt=urn:btih:1DDA279AA42F1DCA30CCDD62B3F717BF7FD8598D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,161 +563,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907458   (638078) от 12.06.2015
+###  Публикация: 907377   (638195) от 12.06.2015
 
-Вечерний Ургант. Сезон №7. Выпуск №77 (2015.06.11) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуПродолжительность: ~ 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20229E13AEBD24ACF479485C1E9930366CA8F722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907797   (638077) от 12.06.2015
-
-Ю. В. Откупщиков | Очерки по этимологии (2001) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638077.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны статьи известного петербургского (ленинградского) этимолога о происхождении славянских, балтийских, древнегреческих и латинских слов. Каждый очерк представляет собой конкретную иллюстрацию принципов и методики этимологического анализа, разработанных автором, которые он и использует в своих исследованиях.Жанр: Этимология, Общее языкознаниеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887B1CCD536A8F9107E672FCE442CE46C0EB9322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907769   (638076) от 12.06.2015
-
-Валентин Костылев | Минин и Пожарский (1940) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638076.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 ноября 1612 года народное ополчение под предводительством Кузьмы Минина и Дмитрия Пожарского штурмом взяло Китай-город, освободив Москву от польских интервентов. После смерти в 1584 царя Ивана Грозного в Московском государстве началась эпоха глубочайшего кризиса, вызванного пресечением царской династии Рюриковичей. Единое русское государство распалось, появились (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0024EA02E1D394674B3C10E1F6EFCF3457D6A912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907457   (638075) от 12.06.2015
-
-B.B.King – Live At San Quentin (1990) [WavPack|image+.cue]<Blues, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.B. King Intro (B.B.King) 01:57
-02. Let The Good Times Roll (F.Moore, S.Theard) 05:08
-03. Every Day I Have The Blues (Peter Chatman) 04:42
-04. Whole Lotta Loving (Dave Bartholomew, Fats Domino) 03:26(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB332F13878C3389666BC0CB0AA88270F6F23D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907667   (638074) от 12.06.2015
-
-Mozilla Firefox 39.0 beta 5 (x86/x64) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5F929556E51DA1C73293628EBA5C781AD7FA75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907847   (638073) от 12.06.2015
-
-D Man - Blues... Off The Neck (2015) [MP3|320 кб/с]<Blues Rock>
+Sugaray Rayford - Southside (2015) [MP3|320 кб/с]<Blues, Soul, Funk>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638073.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Silver Plated Lincoln (2:56)
-02. Rear View (Feat. Danny Hord) (2:52)
-03. I Hate To See You Go (5:08)
-04. Way To Lay You Down (Feat. Danny Hord) (5:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:03
+1. Southside Of Town (5:18)
+2. Miss Thang (4:45)
+3. Live To Love Again (4:45)
+4. Texas Bluesman (5:23)(   Читать дальше...   )Жанр: Blues, Soul, FunkПродолжительность: 00:44:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13EC916C6F129181606DB981A0E3985BC3BACD38
+magnet:?xt=urn:btih:4AA8D0AA38BAD680A6DCC6C3EA5812157952AF01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,25 +592,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907485   (638072) от 12.06.2015
+###  Публикация: 907380   (638194) от 12.06.2015
 
-Рональд Инглхарт и др. (сост.) | Демократизация (2015) [FB2, EPUB]
+Katy Guillen & The Girls - Katy Guillen & The Girls (2014) [MP3|320 кб/с]<Blues Rock>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638072.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С тех пор как глобальная волна («третья волна») демократизации достигла пика на рубеже 1980‑1990‑х годов, тема демократизации стала важнейшей для понимания современного мира политики. Неслучайно во многих бакалаврских и постдипломных учебных программах по политической науке и международным отношениям появились учебные курсы по политическим изменениям (   Читать дальше...   )Жанр: Политика, политология, Зарубежная образовательная литератураПеревод: А. И. Ефимова, А. Н. Воробьев, И. А. Томашов, И. М. Локшин, М. А. Еременко, М. Г. Миронюк, Н. И. ПискуноваФормат: FB2, EPUB
+01. Don't Get Bitter (2:01)
+02. Old Best Friend (4:22)
+03. Woke Up In Spain (4:10)
+04. Stalling On Dreams (6:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18C07C48747CD259B5CABD6F85F4B250FF33257A
+magnet:?xt=urn:btih:43A427A6EF71577EF1AF7207443BD0871C9695F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,26 +621,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907542   (638071) от 12.06.2015
+###  Публикация: 907603   (638193) от 12.06.2015
 
-Алексей Череватенко | Небо Одессы, 1941-й (1978) [DJVU]
+Sally Dige - Hard To Please (2015) [MP3|320 кб/с]<Synthpop>
 
->>Художественная литература
->>Историческая проза, Мифы и Легенды, Фольклор
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638071.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Алексей Тихонович Череватенко - бывший летчик 69-го истребительного полка - за мужество, проявленное в дни обороны Одессы в суровом 1941 году, в числе двенадцати своих боевых товарищей был удостоен высокого звания Героя Советского Союза.
-Славные соколы знаменитого полка сражались под Харьковом и Сталинградом, освобождали Ростовскую область и Крым, воевали в Восточной (   Читать дальше...   )Жанр: Военная проза, Биографии и МемуарыФормат: DJVU
+1. Hard To Please
+2. Immaculate Deception
+3. So Far Away
+4. Doppelganger(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:32:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E92F8F48593B3A0D448DB4765ED0D34051EEA036
+magnet:?xt=urn:btih:CBB2E882A4983D6AC5DDE3CC055E164290CB57DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,211 +650,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907795   (638070) от 12.06.2015
+###  Публикация: 907653   (638192) от 12.06.2015
 
-K-Lite Codec Pack Update 11.2.2 [En]
+Журнал | Вооруженные силы стран мира №92 (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная коллекция журналов расскажет о военных соединениях разных стран мира, познакомит читателя с видами войск и военной техники, историей военных кампаний 20-21 вв., ключевыми военными фигурами. Материалы распределены по 6-ти рубрикам: военная техника, личности, армии стран мира, стратегия и тактика, битвы и компании.Жанр: Военный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CAD5A9F022E34AE218EF4411CA2C862C5FA263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907623   (638191) от 12.06.2015
+
+Nate Ruess - Grand Romantic (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grand Romantic (Intro) (0:42)
+2. AhHa (4:23)
+3. Nothing Without Love (3:56)
+4. Take It Back (4:23)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DD3CD62BC93AEA8CD476307BAC26C013BE5BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907539   (638190) от 12.06.2015
+
+София Черняк | Луч во тьме (1965) [DJVU]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638070.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-K-Lite Codec Pack - в различных вариантах содержит все самые популярные кодеки для проигрывания и кодирования видео (кроме версии Basic). QuickTime Alternative и Real Alternative являются дополнительными пакетами для проигрывания соответственных форматов и содержат основные компоненты от официальных проигрывателей.
-Update это обновление применимо для всех пакетов (   Читать дальше...   )Язык интерфейса: Английский
+«Луч во тьме» - документальная повесть о неизвестных подвигах киевских подпольщиков в годы Великой Отечественной войны. Руководимые вырвавшимся из лагеря военнопленных бывшим секретарем парторганизации Наркомата финансов УССР Григорием Кочубеем, смельчаки создали широко разветвленную партийную организацию «Смерть немецким оккупантам!». Ее боевые группы действовали (   Читать дальше...   )Жанр: Советская проза, Военная прозаПеревод: А. СеменовФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B199CB82317DAD3E3E04237F5F0FE94EDE986CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801029   (638067) от 30.06.2014
-
-Ubuntu*Pack 14.04 Unity (июнь 2014) [i386 + amd64] (2xDVD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.Разработчик: UALinuxЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBEFB591E542D049139B745C1AF9C5A8C380103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800846   (638061) от 30.06.2014
-
-Lynda.com | CSS (2009-2013) [PCRec] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это сборник видеуроков от Lynda.com по CSS за 2009 - 2013 года. Сюда вошли 15 курсов от Lynda.com. Отличие от подобных раздач - нумерация и имена файлов полностью совпадают с оригинальными, файлы примеров вынесены в отдельный архив. По мере появления новых курсов раздача будет оперативно обновлятьсяЖанр: WebПродолжительность: 55:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB78659193B728857725CED1F437EC3185EA2EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801043   (638059) от 30.06.2014
-
-Ubuntu*Pack 14.04 Cinnamon (июнь 2014) [i386 + amd64] (2xDVD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.Разработчик: UALinuxЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2632FE3DDA74D0F3FA24D2AB97BC2932E5D3ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801040   (638055) от 30.06.2014
-
-Ubuntu*Pack 14.04 Classic 3 (июнь 2014) [i386 + amd64] (2xDVD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.Разработчик: UALinuxЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D40C5DB1F36197B5477C13BD85E10D492CE391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801045   (638050) от 30.06.2014
-
-Ubuntu*Pack 14.04 Razor (июнь 2014) [i386 + amd64] (2xDVD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.Разработчик: UALinuxЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AEE761DDC141ABF782178CA8D1ADC84F119AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033641   (638048) от 11.07.2016
-
-VA - Yoga Cafe: Finest Buddha and Relaxation World Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jessie goes to Bali - Soul Shine - Ibiza Chillout Cafe Mix
-02. Time Blazer - Morning Chant - Counting the Stars Mix
-03. Capital Sound - Empire of Sunlight - Take Back the Night Edit
-04. Ambient and the World Outside - Inside Nobodys Soul - Holy Grail Edit(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01906CF8C0D6DCAD2064653D2522EA64367D0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033444   (638047) от 11.07.2016
-
-Вести недели (10.07.2016) HDTVRip [1080i-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638047.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 02:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1780EEE0B1B1C36035C1526AB60AFC423036378
+magnet:?xt=urn:btih:2AF1A6EAC9AB3B533625949A2367158182F6CF24
 ```
 
 https://mybot314.ru/tekegram_catalog/

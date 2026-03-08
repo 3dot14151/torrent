@@ -1,3 +1,32 @@
+###  Публикация: 1333048   (307657) от 23.10.2019
+
+Alan Broadbent & The London Metropolitan Orchestra - Developing Story (2017) Eden River Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Third Stream, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Developing Story: Movement 1 [9:49]
+02. Developing Story: Movement 2 [7:12]
+03. Developing Story: Movement 3 [9:19]
+04. If You Could See Me Now [6:36](   Читать дальше...   )Жанр: Post-Bop, Third Stream, Piano JazzПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130E72E9295A15F47977DEFF640103276628D76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333052   (307656) от 23.10.2019
 
 Ruby Braff & Ellis Larkins - The Grand Reunion (1972) 1999, Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
@@ -713,35 +742,6 @@ Humphrey Lyttelton - Humph Plays Standards (1960) 2014, Solid Records[FLAC|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1F43EBCA1A1F267A2C60E6FA94669AF3B89C126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261475   (303497) от 11.11.2018
-
-Gene Ammons - Blue Gene (1958) 2003, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Gene [13:58]
-02. Scamperin' [8:49]
-03. Blue Greens and Beans [9:05]
-04. Hip Tip [8:55]Жанр: Hard BopПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00E959855100AD7EF169517FB9B17CFED8B46CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

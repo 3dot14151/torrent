@@ -1,3 +1,61 @@
+###  Публикация: 1462094   (1021432) от 12.04.2021
+
+Nora En Pure - Live @ Graubünden, Switzerland (2021-04-03) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passenger 10 - Days Of Yore
+02. Nora En Pure - Cognitive Fadings
+03. Passenger 10 - Thuringia
+04. Nora En Pure - Enchantment(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244B86C44661D0EC75EE470867543A91CF33AC42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462238   (1021321) от 13.04.2021
+
+Korolova - Live @ Zanzibar, Tanzania (2021-03-26) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mako - Roller Coaster (Jan Blomqvist Remix)
+02. Da Fresh & Noidor - Mirari
+03. The Kode - Can't Let Go
+04. Roumex - Inside My Head(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35795DA14C2C7E9748313D7E82781F2FEA3E32FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462243   (1021317) от 13.04.2021
 
 Korolova - Live @ Tanzania (2021-04-09) [MP3|320 Kbps] <Deep House, Progressive House>
@@ -687,64 +745,6 @@ Cold Blue - Live @ Crystal Forest Medellin, Colombia 2020-02-22 [MP3|256 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF1F9D2D8D6340B49DF6C2DCB1A85138CE1FF94E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587128   (942495) от 09.01.2017
-
-Aurosonic - Etyology Sessions 001-193(Обновляемая) (2007-2016) [MP3|320 кб/с]<Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cerf, Mitiska, Jaren - Light The Skies (Harry Peat remix)
- 02. DJ Fire - Midnight In Beijing
- 03. Andrew Bennett - Menar (Markus Schulz remix)
- 04. ATB - Desperate Religion (Aurosonic remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 198:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A847F021CE563DD43E479E0350AE42AEE6E766CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363657   (941025) от 29.02.2020
-
-Will Rees - Live @ Trance Room, Uniclub Buenos Aires, Argentina 2020-02-22 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941025.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Brennan Grey - Capre Omne (Intro Edit)
-2. DJ Jordan - Direct (Indepth Remix)
-3. ID-ID
-4. Genix - Ba55 Camp(   Читать дальше...   )Жанр: TranceПродолжительность: 02:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B837FD941E01AACBC38A1FE89032D364B16DD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

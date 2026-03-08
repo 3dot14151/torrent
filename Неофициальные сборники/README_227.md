@@ -1,3 +1,179 @@
+###  Публикация: 1527783   (735854) от 30.01.2022
+
+VA - German Top 100 Single Charts 28.01.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GAYLE - abcdefu
+02. Glass Animals - Heat Waves
+03. Ed Sheeran - Shivers
+04. Imagine Dragons, JID, Arcane & League of Legends - Enemy(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE7ED148E6DA90A8A5E4B52367E61F70F1BF503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398446   (735746) от 26.07.2020
+
+VA - Another Paradigm: EDM Techno Liveset (2020) [MP3|320 Kbps] <Techno, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735746.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jumkins - Endless Worlds
+002. Lypocodium - La Iostra
+003. Double Reaktion - Punisher
+004. Mauro Dufort - Mau Madness(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 12:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60CCB4CE7B5DABE30E9FE6F0554699D30A90E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398437   (735733) от 26.07.2020
+
+VA - The Club Fusion: EDM Listen & Party (2020) [MP3|320 Kbps] <Dance, Electro, House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freakz United - Relax Time
+02. 1st Rhythm - Time To Win
+03. Milk & Sugar - Holding On
+04. Vtecha - More Deep(   Читать дальше...   )Жанр: Dance, Electro, House, TechnoПродолжительность: 06:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429507AFC0DBB159BC9CB28984E4D290E28CF5CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398443   (735693) от 26.07.2020
+
+VA - Endless Summer: Sunset Lounge Party (2020) [MP3|320 Kbps] <Lounge, Relax, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735693.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sardinia Lovers - Nel Cuore
+002. Dreamhunter - La Nostalgie (Original Mix)
+003. Dave Ross - El Baile Del Rey
+004. Sunset Lovers - Flamenco(   Читать дальше...   )Жанр: Lounge, Relax, AmbientПродолжительность: 09:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B575A37A513968E825C78F2401B821F6FDCB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787916   (735651) от 19.05.2014
+
+VA - The Official UK Top 40 Singles Chart (18-05-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+В нынешнем чате 8 новых исполнителей, в том числе жено-дядька Conchita Wurst. Все новинки под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Rita Ora - I Will Never Let You Down  (3:23)
+02. Mr. Probz - Waves  (3:28)
+03. John Legend - All Of Me  (4:30)
+04. Calvin Harris - Summer  (3:45)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F362C64EFA3B5F87AA96C5714E5091B16E928EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397796   (735550) от 26.07.2020
+
+VA - не Громкие новинки недели 75 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2VINA - Манекен (2:21)
+02. Ahmed Shad feat. Rhalli - Малая (2:42)
+03. Alina Goman - Лететь (2:49)
+04. Anet Fadeeva - Сладкий Мальчик (3:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA45451157A9944896F4E164A38B1B60E2C04E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398479   (735548) от 26.07.2020
 
 VA - Лето на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -569,180 +745,6 @@ VA - Housewerk (2022) [MP3|320 Kbps] <Tech House, Minimal, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51D8719A9C2C81EE19E346B4A98D6303EED84527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399331   (733879) от 30.07.2020
-
-VA - Sound City: Urban Techno Party (2020) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733879.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nematic - Pecular
-002. Javago - Engine
-003. Hypnotrixx - No Confusion
-004. And - Screaming(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E825267D899E93F11F2ADE76C7974E8C5F7E0A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399309   (733878) от 30.07.2020
-
-VA - SpaceSynth World 2 (2020) [MP3|320 Kbps] <Synthpop, Spacesynth, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atomic Space Project - 25 Billion Miles Of Space (5:17)
-02. Cyber Space - Danger From Space (5:47)
-03. Didier Marouani & Space - Voices Of Jupiter (By QSSMm and Qkj) (4:21)
-04. Future Synth - Source Of Space (5:23)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, SynthwaveПродолжительность: 05:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9B87A17B43E44328B6CD5499E0DE4E314123B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528978   (733581) от 04.02.2022
-
-VA - Colored Clouds 2: Electro House Session (2022) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот релиз объединяет в себе самые яркие и модные новинки электронной сцены наступившего нового года. Иконы танцевальной музыки объединили свои усилия для создания насыщенной энергией и позитивом коллекции треков.001. Tommy Baynen - Signs Of Dark Matter
-002. L.Gu - Outlook
-003. J Apollo - Modular
-004. Bachir Salloum - Aurora(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17B5B58AB5E5ECE4462BB749518AC0CBFF04FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528952   (733579) от 04.02.2022
-
-VA - Dancing In Space: Future House Music (2022) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заглавной темой музыки сборника "Dancing In Space" является фантастика и космические путешествия, и многие треки этого лонгплея вполне подошли бы в качестве саундтрека для космических сиквелов кинематографа. Кибернетический разум, неизведанные просторы космоса, утопический мир будущего - всё это на треках представляемого Вам сборника.001. Mas Ricardo - Techtribe
-002. Oh, Hayir! - Ravens
-003. Staffan Lindberg - The Orbit
-004. Gianfranco Echandia - Two Cats(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 11:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B555426BC473AE996746258C9097C8088096D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528976   (733577) от 04.02.2022
-
-VA - Dreaming Of Better Day: Deep House Playset (2022) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733577.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Dreaming Of Better Day", это отличная подборка треков в стиле Deep House! Впечатляющие басовые линии в сочетании с чистотой синтезатора, ритмы с некоторой долей прогрессива делают такую музыку привлекательной для поклонников этого, наверное, самого популярного жанра электронной музыки.001. Riky Mura - Get Alone
-002. Tamas Skafar - Farewell Gift
-003. Joiodj & Chanelle - My Heart's Not Free
-004. Marcel Vogel - Why Don't You Leave Me(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D955EE6161527E0D45DCBD4C1F2AED0608CF7D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528961   (733575) от 04.02.2022
-
-VA - Brighter Nights: Deep House Dreaming Megaset (2022) [MP3|320 Kbps] <Deep House, Soft Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы отдаете предпочтение жанру Deep House, то этот сборник подойдёт вам по всем параметрам. Удивительно сфокусированная коллекция эксклюзивных треков, делает лонгплей под названием «Brighter Nights» набором, который поможет вам утолить свой эстетический музыкальный голод.001. Audiense - July Sunset
-002. Ed Lee - I Got U
-003. Bemannte & Brüder - Brighter Nights
-004. Dott Santafeo - La Forcina(   Читать дальше...   )Жанр: Deep House, Soft ElectroПродолжительность: 13:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949317BFF88F05D1AA09186FA1829CD80FA3706A
 ```
 
 https://mybot314.ru/tekegram_catalog/

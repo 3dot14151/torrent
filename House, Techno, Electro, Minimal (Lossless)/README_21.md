@@ -1,3 +1,90 @@
+###  Публикация: 1512657   (787056) от 25.11.2021
+
+Dirty Disco Stars - Body Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Funky House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body Rock (3:13)
+ 02. Dance Till We Die (3:46)
+ 03. Shine A Little Brighter (2:42)
+ 04. Time To Go (3:37)(   Читать дальше...   )Жанр: EDM, Funky House, Nu DiscoПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F99DAA3EFE919CA1FB2151CA327BDCBF76FD1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277089   (786990) от 19.01.2019
+
+Danger - Origins (2019) 1789 Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthwave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9:20 Intro (02:46)
+ 02. 9:20 (05:19)
+ 03. 22:01 (04:36)
+ 04. 11:17 (02:59)(   Читать дальше...   )Жанр: Electro, SynthwaveПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D8D6E83F8D86ED008B0535588C43BE6B516C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388427   (786736) от 06.06.2020
+
+Meute - Puls (2020) [FLAC|Lossless|tracks + .cue] <Deep House, Nu-Jazz, Broken Beat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panda (03:42)
+02. Holy Harbour (05:15)
+03. What Else Is There (06:45)
+04. Push (06:47)(   Читать дальше...   )Жанр: Nu-Jazz, Broken Beat, Deep HouseПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D3FAA5ADB1FEDF4CAF956BCD99F2D2D9305D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123483   (786389) от 08.04.2017
 
 Martin Buttrich - Collaborator Vol.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
@@ -658,93 +745,6 @@ VA - House Goes 80's Vol. 3 (2009) [FLAC|Lossless|tracks] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48D30C09DD3CD223F038760F3663380C35AB27F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205191   (783524) от 10.02.2018
-
-David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Progressive House, House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unidos Para La Musica (Cosa Nostra Mix) feat. Akram
-02. Break 4 Love vs. Keith Thompson
-03. Love To Love You Baby
-04. Be The Best feat. Audrey Valorzi(   Читать дальше...   )Жанр: Progressive House, House, ElectroПродолжительность: 02:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7F499A0D0EF2BB5D5DB51804D0C8E2BD8BCC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390179   (783402) от 14.06.2020
-
-Grum - Deep State Deluxe (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trance, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep State (02:17)
-02. Stay (Feat. Natalie Shay) (Extended Mix) (08:54)
-03. Lose Control (Extended Mix) (06:46)
-04. Tomorrow (Feat. Dom Youdan) (Extended Mix) (06:28)(   Читать дальше...   )Жанр: Electronic, Progressive House, Trance, DowntempoПродолжительность: 01:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A81668A8FAA4E78B6437C9BD501536B2488295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205736   (783253) от 11.02.2018
-
-Tell - August EP (2014) House Running [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating Lands (06:56)
- 02. Unphysical Love (06:51)
- 03. Flood (06:42)
- 04. Snow Patrol (05:58)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7458B5B073E8B531E27DB1B708A28E1C69E41CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

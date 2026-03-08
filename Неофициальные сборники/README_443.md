@@ -1,3 +1,177 @@
+###  Публикация: 1573126   (414772) от 30.08.2022
+
+VA - Simply Breaks & Beats Vol. 01 (2022) [MP3|320 Kbps] <Grime, 2-Step, Breakbeat, Nu Skool>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homayoun Shajarian - Lost (Akso Scout Remix)
+02. Tom Brownlow - Worth It (Extended Mix)
+03. Abstraction Unit - Digital Birds
+04. Vrekte Natnek - Get Lost(   Читать дальше...   )Жанр: Grime, 2-Step, Breakbeat, Nu SkoolПродолжительность: 02:01:58 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9953A73F195732E3298C01628426E6DC25B4B46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066016   (414762) от 25.10.2016
+
+VA - Erotic Autumn Jazz-Lounge Desires for Intimate Chill Obsession (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Domestic Sol - Autumn Eyes - Cool Midnight Suite Mix
+02. Burning Lipps - Near or Far - Erotic Beach Love Mix
+03. The Vibraphones - Candlelight - Fireplace Session Mix
+04. Electric Suitcase - Strangers in the Night - Neo Souls Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF0E66E8939E64CCD092616E98B033D7D9AC03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066055   (414750) от 25.10.2016
+
+VA - Сотка модных хитов 50/50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414750.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paige & Lizzie Curious - Memories
+002. Kissлород - Розово
+003. Carlprit Feat. Jaicko - Only Gets Better
+004. Эльдар Далгатов - Все Сможешь Ты(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569C9C067636E26FF7C34DC325AC689529094055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325299   (414675) от 14.09.2019
+
+VA - EDM Beats Electro House (2019) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414675.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Definition - Une It
+002. Raggi Luminosi - Dark
+003. Neat - Tall As The Trees
+004. Ivan Martinez - Nevermind(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 09:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4163A3003375CE1E26E09605E845750FB67A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325273   (414667) от 14.09.2019
+
+VA - German Top 100 Single Charts 13.09.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414667.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Loredana, MERO - Kein Plan (2:35)
+2.Apache 207 - Roller (2:38)
+3.Samra, Capital Bra - Huracan (3:02)
+4.Tones and I - Dance Monkey (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91C6602A5456E4BDBBAA5E48E20F53943B49B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325294   (414661) от 14.09.2019
+
+VA - The Official UK Top 40 Singles Chart 13.09.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Take Me Back To London (Feat. Stormzy) 3:10
+02. Aitch - Taste (Make It Shake) 3:34
+03. Kygo & Whitney Houston - Higher Love 3:48
+04. Aj Tracey - Ladbroke Grove 3:11(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF005ACAB79682436F8604ED20376DC840BEBC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065982   (414625) от 25.10.2016
 
 VA - Billboard TOP100 Single Charts (29.10.2016) (2016) [MP3|128-320 Kbps] <Pop>
@@ -571,180 +745,6 @@ VA - Structural Mind Engine (2018) [MP3|320 Kbps] <Psy, Trance, Goa>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EAA455F5F3C4B3F921C8C876A88403F0CA267BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251829   (413509) от 03.10.2018
-
-VA - Modern City: Dubstep Party (2018) [MP3|320 Kbps] <Dubstep, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Thomas Newson - Flute  Festival Trap
-002. Xlrate - Dubknot (Original Mix)
-003. Rez - The Lost World
-004. Froxic - Shock Therapy(   Читать дальше...   )Жанр: Dubstep, ElectroПродолжительность: 09:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B882F056DDC84440B4991752C42A1218DA4C52E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251865   (413499) от 03.10.2018
-
-VA - New Music Releases Week 34 of 2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413499.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Radiant Children - Tryin'
-002. Ozuna - Ibiza (Feat. Romeo Santos)
-003. Conor Matthews - Inside Out
-004. R3hab, Sofia Carson - Rumors (With Sofia Carson)(   Читать дальше...   )Жанр: DanceПродолжительность: 10:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF735D0553C8F187060406D681E9E0958ACCE56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412751   (413469) от 01.10.2020
-
-VA - Radio DFM Top D-Chart Сентябрь (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Smash feat. Poët - БЕГИ (Denis Bravo Remix) (3:05)
-02. Мари Краймбрери - Океан (Denis Bravo Remix) (3:50)
-03. RAYE - Natalie Don't (Denis Bravo Remix) (3:25)
-04. Макс Барских & Джаро - Lonely (DJ Noiz Remix) (2:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC4B2ECB71E00AC95C8A69CCB17B7C7C7B50080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251876   (413368) от 03.10.2018
-
-VA - New Music Releases Week 35 of 2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413368.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Troye Sivan - This This
-002. West Coast Massive, Brayton Bowman - High & Low
-003. The Faim - A Million Stars
-004. Tash Sultana - Cigarettes(   Читать дальше...   )Жанр: DanceПродолжительность: 08:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B18DE39235D6785038D2B4A48B13077AA9E365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252063   (413355) от 03.10.2018
-
-VA - Dance Compilation 3 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A & E Project - The Birth Of Galaxy
-02. Bassregion - At The Rate Limit
-03. BloodDropz! - Zone Of Alienation
-04. D.V.Project - Dance World(   Читать дальше...   )Жанр: DanceПродолжительность: 05:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B8AAAA97B98B4A789655C28E8B30023A48D8B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251726   (413352) от 03.10.2018
-
-VA - New Music Releases Week 39 of 2018 (2018) [MP3|192 - 320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413352.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Juicy J, Travis Scott - Neighbor
-002. Culture Shock - Get Physical
-003. Tank, the Bangas - Spaceships
-004. Kinnerman - Promised Land(   Читать дальше...   )Жанр: DanceПродолжительность: 15:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC2B249A0BB97023DEDFE433A61B954BB2DF252
 ```
 
 https://mybot314.ru/tekegram_catalog/

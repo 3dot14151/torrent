@@ -1,3 +1,32 @@
+###  Публикация: 1321675   (456794) от 25.08.2019
+
+VA - Record Super Chart 601 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
+02. Billie Eilish - Bad Guy 3:14
+03. Aaron Smith - Dancin (Krono Remix) 4:16
+04. Slider & Magnit - Morze 3:11(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F621E930FAD2C2CE46E66C6CC992D0B3920099A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548395   (456291) от 23.09.2012
 
 VA - Liquid Emotions  vol.4 (2009) [MP3|192 кб/с]<Drum and Bass>
@@ -749,35 +778,6 @@ VA - Record Super Chart 653 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C95B2AC3237EACA034A1071FF97ECA449B14460C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060654   (453722) от 08.10.2016
-
-VA - Autumn Chillout Journey 2016, Relaxing Mix (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denis Rusnak - Orbit King
-02. Deeper Sublime - Night Breeze
-03. Alexander Saykov - Pokrovka
-04. de Cima - K.A.T. - Torrent Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61453E26FCD32AF5D3563F6633F850DD01416190
 ```
 
 https://mybot314.ru/tekegram_catalog/

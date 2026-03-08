@@ -1,3 +1,61 @@
+###  Публикация: 978342   (963298) от 23.01.2016
+
+VA - Танцевальный рай 36 (2016) [MP3|320 кб/с] <Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willy William - Ego (Radio Edit)
+02. Iyeoka - Simply Falling (Dj Antonio Radio Edit Remix)
+03. Lost Frequencies - Reality
+04. Kadebostany - Teddy Bear (Astero Radio Remix)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 02:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E38F9EC3449E826A5128571AD4883A913A63D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359982   (963264) от 13.02.2020
+
+Tennis - Swimmer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Haunt You (02:32)
+02. Need Your Love (03:51)
+03. How to Forgive (03:36)
+04. Runner (03:36)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AEF7031E4B985FCC0015299CA50F949166B4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359815   (963162) от 13.02.2020
 
 Ihsan Al Munzer - Belly Dance Disco (1979) Reissue CD, 2020, BBE [MP3|320 Kbps] <Disco, Instrumental, Funk Soul, Folk, World>
@@ -684,64 +742,6 @@ VA - Фабрика звёзд Виктора Дробыша (2006) 2CD [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5692E7C10D7DB0D9A185FEE6C036AE69D5F0C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979563   (958418) от 27.01.2016
-
-Fake - New Art (2009) Remastered [MP3|320 кб/с] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone With The Moonlight (03:45)
-02. Empty Garden (04:26)
-03. Memories Of Pan (03:21)
-04. Rain Over The Nile (05:17)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003BDCF99A84AA46FE4F40CDCBD83121DD1D36C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979142   (958101) от 27.01.2016
-
-Sia - This Is Acting (2016) Deluxe Edition [MP3|320 кб/с] <Pop, Indie, Chillout>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bird Set Free
-02. Alive
-03. One Million Bullets
-04. Move Your Body(   Читать дальше...   )Жанр: Pop, Indie, ChilloutПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746BD764025D993C901B525341E9D1A235267A78
 ```
 
 https://mybot314.ru/tekegram_catalog/

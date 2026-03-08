@@ -1,3 +1,177 @@
+###  Публикация: 1104439   (878223) от 16.02.2017
+
+VA - Ресторан Кураж для друзей. Сборник № 4 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878223.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Артур Гари - Не Спеши Сказать Прощай 3:19
+002. Александр Ром - Любимая Желанная 3:21
+003. Владимир Ждамиров - Скажи Зачем 4:59
+004. Оксана Иванова - Фортуна 3:28(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D0E5F5C79C1CD9835CCAA31858B7D658F9885D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104456   (878218) от 16.02.2017
+
+VA - Blueas About It  (2017) [MP3|256-320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878218.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. BRUCE SPRINGSTEEN - Badlands 4:03
+002. Ana Popovic - Waiting on You (Double-Time Swing) 3:58
+003. Ana Popovic - Who’s Yo' Mama 3:16
+004. Cliff Stevens - If I Didn't Love You 3:51(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 10:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B5F581CE28BE9EA46450BEFF2B966982ABE843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104443   (878215) от 16.02.2017
+
+VA - Русский шансон лучший (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алена Скок - Лед На Реке 4:35
+002. Александр Корецкий - Осколки Счастья 4:08
+003. Александр Бычков - Ясноглазая 3:27
+004. Александр Дадали - Я Здесь Один Я Против Всех 4:53(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531F23DB5869C866F4E03040633FD6C2F19105F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104550   (878208) от 16.02.2017
+
+VA - Astral Trance Challenger Vocals (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, Euphoric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chris Schweizer - Era (Original Mix)  5:15
+02.  Allen & Envy ft. Gemma Pavlovic - Heaven Won't Wait (Eximinds Remix)  4:44
+03.  Filo & Peri ft. Aruna - Ashley (Maria Healy Remix)  7:48
+04.  Eximinds & Vigel - Handprint (Original Mix)  5:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, EuphoricПродолжительность: 09:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6F56D9C7D1ABA0C7316B04AAE54D8F58E5FB3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104799   (878109) от 16.02.2017
+
+VA - Absolute Acoustic (2017) [MP3|320 Kbps] <Acoustic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind In Sails – If You Ever Want To Be In Love
+ 02. Chase Your Words – Sorry I’m Late
+ 03. Subtube – Cheap Thrills (Acoustic Guitar)
+ 04. Faber Drive – We 3 Kings(   Читать дальше...   )Жанр: AcousticПродолжительность: 01:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B29B0B8E81FE1A878C2DDF19FC645F01CABACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104183   (878018) от 16.02.2017
+
+VA - Территоря Нежности. Медляки Для Влюблённых (2017) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878018.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3 Doors Down - Here Without You 3:56
+002. Adriano Celentano - Confessa 5:15
+003. Adriano Celentano - Il Tempo Se Ne Va 3:57
+004. All-4-One - I Swear 4:20(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E9F7C52BA374B53801597CF17C4EA7A5C41281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104940   (878011) от 16.02.2017
 
 VA - New Age Style - Erotic  Lounge 11 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Erotic>
@@ -568,180 +742,6 @@ VA - Молодежный бум хитовый. Версия № 3 (2017) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A775849A9F68866E331B14F5656CDFE2151F096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105320   (876639) от 17.02.2017
-
-VA - Отдыхаем душой на радио Шансон выпуск № 3 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876639.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Игорь Крылов - Кабацкий Роман 3:46
-002. Вячеслав Московкин - Что Же Ты Командир 3:02
-003. Алмас Багратиони - Пускай Ты Выпита Другим 3:06
-004. Максим Куст - Банька 3:15(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE03C72971769BFE990BEAC5EDE139DF77FACAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105347   (876554) от 17.02.2017
-
-VA - Ready Styles Final Songs (2017) [MP3|320 Kbps] <Synthpop, Bigroom, UK Garage, Funk, Trap, Future Bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 unlimited - Get Ready For This (Original 12'' Version) 05:54
-02. Sultan & Shepard X Sak Noel - Samba Sixteen X Trumpets (Dibs & Mgm Edit) (Clean) 04:40
-03. Borgeous X Rvssian & Mri X Sean Paul X 7 Skies & Sissa X Burns - Ride It X Beauty Queen (Dibs & Mgm Edit) (Clean) 03:49
-04. The Chainsmokers F. Xylo X Hall & Rush - Setting Fires (   Читать дальше...   )Жанр: Synthpop, Bigroom, UK Garage, Funk, Trap, Future BassПродолжительность: 05:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2DBD3E04B2C81863B89BBDCA9A958CF38067EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374095   (876489) от 08.04.2020
-
-Eric Clapton - 100% Eric Clapton and... (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Clapton - Cocaine
-02. Cream - Sunshine of Your Love
-03. Eric Clapton - After Midnight
-04. Derek & The Dominos - I Looked Away (40th Anniversary Version / 2010 Remastered)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7988D61C9C50399F595E3678F217D2C400FB5DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373961   (876480) от 08.04.2020
-
-Beth Hart - 100% Beth Hart (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar Shack
-02. Bad Woman Blues
-03. War In My Mind
-04. Caught Out In The Rain(   Читать дальше...   )Жанр: Rock, Blues, Blues RockПродолжительность: 02:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE0CE5AA597BDEB1FF87AF9589C37EEECFBEC03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105663   (876462) от 17.02.2017
-
-VA - Старый дом. Академия хитов шансона (2017) [MP3|256-320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876462.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Трунов - Старый Дом
-002. Марина Вальдман и Александр Адмирал - Диалог
-003. Валерий Курас - Песенка
-004. Александр Заборский - Щелкнули затворы(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0056C10CC87A4494082BE8A86070FE529114FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105625   (876457) от 17.02.2017
-
-VA - Chilltrap Vol. 1 - 7 [Compiled by Zebyte] (2015-2016) [MP3|256-320 Kbps] <Chilltrap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna Yvette - Stars & Moon (Elonious Remix) [03:31]
-02. Disclosure - Help Me Lose My Mind (Mazde Remix) [03:54]
-03. Fademan & Oleg K Feat Lime Kid - Wake Me Up [03:43]
-04. Coeur De Pirate - Wicked Games (Huglife Remix) [03:57](   Читать дальше...   )Жанр: ChilltrapПродолжительность: 14:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2162F9C0CF6556D8FEF1D9E80C2D9A9016DC9169
 ```
 
 https://mybot314.ru/tekegram_catalog/

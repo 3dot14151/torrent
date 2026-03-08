@@ -1,3 +1,32 @@
+###  Публикация: 1183404   (307870) от 14.11.2017
+
+VA - Club Beats 2017 (Compilation) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fezz - In My House 04:05
+02. WTDJ - Don't Forget 04:22
+03. T3rminal - Moksha 03:56
+04. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound 04:18(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDBB695122932A0D4BA6E1AE86D4462BCF8B0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183776   (307869) от 14.11.2017
 
 VA - Deep Attraction (Deep House Grooves Selection) (2017) [MP3|320 Kbps] <Deep House>
@@ -710,35 +739,6 @@ VA - Chillout Deep House 2017 Vol.1 (Mixed By Gerti Prenjasi) (2017) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97D2058FD4E479B3E9515C06F81684032BC47C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262653   (293522) от 16.11.2018
-
-VA - Whore House Loves Tech House (2018) [MP3|320 Kbps] <House, Tech-House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Ourselves & Us - Good Vibrations [5:33]
-02. Mescal Kids - Got Me Spinning [6:35]
-03. Kevin Andrews - Say Mumma [6:21]
-04. Monkeye - Invisible Man [6:00](   Читать дальше...   )Жанр: House, Tech-House, FunkyПродолжительность: 04:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C61687D39C125073F42C0C46E9EBC60D11E40A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

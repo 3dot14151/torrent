@@ -1,3 +1,174 @@
+###  Публикация: 1042534   (578514) от 13.08.2016
+
+VA - Motel Atlantique: Gold Selection (2016) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roy Real - Is to the Work - Deep Guitar Mix
+02. Rick Warrol - Wide Panoramas - Deep Lady Mix
+03. Matt Maxim - Spontaneous Lightness - Early Morning Deep Mix
+04. Nic Cherokee - Lights Ahead - House Room's 69 Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA63380621FB0B47F20BB000E2EBA2A9A19BB35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042514   (578510) от 13.08.2016
+
+VA - Summer Chillout & Lounge Session (2016) [MP3|320 Kbps] <Balearic, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillo - Chillo Three (Lounge Mix) 04:21
+02. The Vault - Banyuwang 08:27
+03. Pusteblume - Cold As Ice (Wonderful Lounge Mix) 07:20
+04. Sounds Of Summer - Praise The Sun (Vocal Beachhouse Mix) 05:53(   Читать дальше...   )Жанр: Balearic, Ambient, DowntempoПродолжительность: 04:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C566DD03511944BE94124C56DDFE4B8DC5DE85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360711   (578495) от 09.07.2011
+
+VA - Лучшие хиты 80х Русский (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5BF3DE3C72BE607BE7F86329A8867557EA3C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042484   (578472) от 13.08.2016
+
+VA - EDM Bash Vol.1 (2016) [MP3|320 Kbps] <House, Electro House, Melbourne Bounce, Bigroom>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz  -  Heatwave (feat. Akon) (Remady Remix)  3:47
+02. Laidback Luke & GTA  -  The Chase (feat. Aruna) (Evangelos & Subshock Remix)  3:26
+03. Axwell  -  Barricade (Radio Edit)  4:53
+04. Fedde Le Grand  -  Rhythm of the Night (Club Mix)  4:17(   Читать дальше...   )Жанр: House, Electro House, Melbourne Bounce, BigroomПродолжительность: 02:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B48AEF55E526683A6CEE9ED5C1157031B1921E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042563   (578461) от 13.08.2016
+
+VA - Chillout Lounge Lovers (2016) [MP3|320 Kbps] <Balearic, Ambient, Downtempo, Trip Hop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Mood - Smiling City 05:34
+02. Schwarz & Funk - Angels 06:48
+03. Shantay Huntington - Vivian Beach 04:42
+04. Best Of Chillout Lounge - Sylt (Sensibar Mix) 04:52(   Читать дальше...   )Жанр: Balearic, Ambient, Downtempo, Trip HopПродолжительность: 04:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E7D476666AA4A4B1CE4480EA049381E2C8DE5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042398   (578460) от 13.08.2016
+
+VA - Deep House - Gold Collection (2016) [MP3|320 Kbps] <House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Igor Pumphonia  -  Slow Motion (Deep Mix)  5:20
+02. Vincent Vega  -  Feel Me  5:41
+03. Pikalov  -  Face in the Sound  4:01
+04. Paul Seta  -  Hawaii  4:06(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53AE7C7F285ABA6C127FC832096A464A7390EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042446   (578457) от 13.08.2016
 
 VA - Chillout August 2016 Top 10 August Relaxing Chill Out and Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -568,177 +739,6 @@ VA - Ultimate Workout Music - Eurodance Hits (2016) [MP3|320 Kbps] <Hands Up, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:310EC523625D501EED8568B2B49F730352EB493F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554184   (577622) от 30.05.2022
-
-Claudia Mori - Compilation (2022) [MP3|320 Kbps] <Pop, Italo Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un'altra volta chiudi la porta (Chiudi la porta)
-02. E' amore
-03. Nata per me
-04. Dal dire al fare(   Читать дальше...   )Жанр: Pop, Italo PopПродолжительность: 00:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF199904D6EE6ED5FBEE25FCAA1B5CEE8F32F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920935   (577596) от 24.07.2015
-
-VA - Acoustic Chill Playlist 4 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Summer Of '69
-02. Dean Dyson - Fields of Gold
-03. Max Tanner - Heart's on Fire
-04. Josh Franklin - Stronger (What Doesn't Kill You)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A896139F92E62839858987F5B937B3272BB50ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921064   (577589) от 24.07.2015
-
-VA - Ibiza Romantic Chillout & Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaxamalka - Desimaginar [05:51]
-02. Counting Clouds - Follow Your Dream - Beach Mix [05:15]
-03. Logophilia - Tongues of Wind [05:29]
-04. Carlos Ebelhдuser - Earthlings Theme [03:13](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E88EB867155CC8483B4F76EA50AE4AB7D891EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921157   (577465) от 24.07.2015
-
-Tempest 2000 (1995) [MP3|320 кб/с]<Score>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип сделан на основе оригинального образа игры01. Future Tense
-02. Digital Terror
-03. Hyper Prism
-04. Glide Control(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2399F00B7AB8FF7E1F42E4A7D109989489B974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921049   (577455) от 24.07.2015
-
-VA - Top Hits Progressive (2015) [MP3|320 кб/с]<Bigroom, Progressive, Trance, Electro, Festival Sound>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Paffendorf - P-Train (General Tosh Remixxx) [05:33]
-02. JAGGS - Ramper (Original Mix) [04:12]
-03. Frostfire & Coke Montilla - Zombies (Original Mix) [04:57]
-04. Da Candy with Artem Teya - We Are Young (Da Candy & Hr. Troels Extended Mix) [05:24](   Читать дальше...   )Жанр: Bigroom, Progressive, Trance, Electro, Festival SoundПродолжительность: 10:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB1C9441C243CBE416BD4E56429F1FB1E5904F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361357   (577432) от 10.07.2011
-
-VA - Летний попсовый рай (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBF7554CC82D7E7494734FB870A60BE4310465F
 ```
 
 https://mybot314.ru/tekegram_catalog/

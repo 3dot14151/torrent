@@ -1,3 +1,90 @@
+###  Публикация: 1272491   (142798) от 28.12.2018
+
+Gabe Gurnsey - Physical (2018) [FLAC|Lossless|tracks + .cue] <Disco House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultra Clear Sound (4:03)
+02. You Can (3:33)
+03. Temazzy (3:40)
+04. Harder Rhythm (5:18)(   Читать дальше...   )Жанр: Disco HouseПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660E0336C05EC70DDC50D723B9292BD20064EAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272712   (142781) от 28.12.2018
+
+Moby - Everything Was Beautiful, and Nothing Hurt (Remixes) (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dance, Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ceremony Of Innocence (Hyperion Remix) (06:10)
+02. Like A Motherless Child (Broken Places Remix) (05:49)
+03. Falling Rain And Light (Seas Of Light Remix) (06:01)
+04. Mere Anarchy (The Storm Rise Remix) (04:52)(   Читать дальше...   )Жанр: Electronic, Dance, Techno, HouseПродолжительность: 02:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BFAEF1FD4AEAF78267287B4B78CA3B1A342DC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195508   (142498) от 29.12.2017
+
+Pete Tong - Ibiza Classics (with The Heritage Orchestra Conducted by Jules Buckley) (2017) [FLAC|Lossless|tracks + .cue] <House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clubbed to Death (03:23)
+02. Galvanize (feat. Rejjie Snow) (03:55)
+03. Body Language (feat. RAYE) (03:40)
+04. Killer (feat. Seal) (04:52)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2249DF63514AED4EC3F3886D858321D028563D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195572   (142352) от 29.12.2017
 
 VA - Club Sounds The Ultimate Club Dance Collection Best Of 2017 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -651,92 +738,6 @@ Apashe - Antagonist (2023) [FLAC|Lossless|tracks] <Electronic, Breakbeat>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:941DA3ACBCAA3F1C873562A46D301E2C8060352C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601448   (137668) от 31.12.2022
-
-VA - Best of Clubsonica Records 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lio Q, Nicolas Leonelli -  Perfect Love (Dabeat Remix)  (7:44)
-02.  Lio Q, Anhauser, Nicolas Leonelli -  Lost Desert  (7:44)
-03.  Lio Q, Nicolas Leonelli -  Perfect Love (Paul Deep Remix)  (7:44)
-04.  Frankie M, Rodrigo Lapena, Gonzalo Sacc -  Let Me Go (Juan Deminicis Remix)  (7:04)(   Читать дальше...   )Жанр: EDM, Progressive House, Melodic House & TechnoПродолжительность: 02:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961D6E9E5B4F99E78B0CE4A782C5BC5597505793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596476   (131346) от 30.12.2012
-
-Jean Michel Jarre - Oxygene (1976) [FLAC|Lossless]<Electro, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene (Part I) (7:41)
-02. Oxygene (Part II) (7:40)
-03. Oxygene (Part III) (3:23)
-04. Oxygene (Part IV) (4:05)
-05. Oxygene (Part V) (10:27)
-06. Oxygene (Part VI) (6:26)Жанр: Electro, AmbientПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306731   (129667) от 10.12.2023
-
-Oliver Koletzki - 7 альбомов (2007 - 2023) [FLAC|Lossless]<Tech House, Deep House, Electropop, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ElectropopПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8FD43CEDBB68DFDDD81AEAA6644FFEE1D48392
 ```
 
 https://mybot314.ru/tekegram_catalog/

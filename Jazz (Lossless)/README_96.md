@@ -1,3 +1,32 @@
+###  Публикация: 1127986   (730084) от 23.04.2017
+
+Luke Sellick - Alchemist (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:01)
+02. Q-Tippin (6:45)
+03. Brothers (4:48)
+04. Hymn (6:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEF24C15CC2EC89FF23C65CAB99F4690D4D1B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284187   (730060) от 20.02.2019
 
 VA - The Seduction - Romantic Jazz (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -715,35 +744,6 @@ June Christy - Complete Capitol Small Group Transcriptions (1945, 1946) 2001, Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:031C31889EDF87CAFB1C037653DDB35383E41EE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128787   (724975) от 27.04.2017
-
-Sidney Bechet - Jazz Anthology (1952) 2007, Promo Sound [FLAC|Lossless|image + .cue] <Dixieland, Revival>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amarican Rhythm [00:47]
-02. Muskrat Ramble [05:37]
-03. Frankie an Johnny [05:48]
-04. Petite Fleur [03:20](   Читать дальше...   )Жанр: Dixieland, RevivalПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896A7CF9B5461B5A6A37EA3E9616D9D4E1777645
 ```
 
 https://mybot314.ru/tekegram_catalog/

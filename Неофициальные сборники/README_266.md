@@ -1,3 +1,177 @@
+###  Публикация: 1134893   (684851) от 17.05.2017
+
+VA - Сотка популярных весенних хитов на Europa Plus выпуск № 10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684851.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алиса Вокс - Неподруги 4:37
+002. Tommy Feat. Helena-Shadia - Притяжение 4:40
+003. Марк Тишман - Города 3:45
+004. Владимир Винс - Зажигаю Любовь 4:05(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9A68AD1F4D4A259E97DC77E7C0E967A5FBB2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134926   (684850) от 17.05.2017
+
+VA - Mastermix Italo Disco (2017) [MP3|256-320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684850.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beach Of Fantasy - The Sky 6:07
+002. 1St Heavenue - E=mc 2 (Atlantis09 Remix) 4:04
+003. Birizdo I Am - Cannot Buy Happiness 5:54
+004. Boy Blue - Goodbye (Bcr Extended Nrg Remix) 5:39(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 11:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84F8EE39CB797E461493FBB3B04BC02B336DA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134930   (684847) от 17.05.2017
+
+VA - Big Room Party (2017) [MP3|320 Kbps] <Electro House , Club House , Techno House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684847.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alden Jacob feat. The Parakit - When I Hold You 3:11
+002. Midi Culture & Madeleine Jayne - Ocean Drive (DJ Villain & Quba Remix) 5:09
+003. Fedde Legrand feat. Mr V. - Back And Forth (Mike Cox Remix) 4:06
+004. Olsein feat. Sofia Lecubarri - Lullaby Stranger (AFX & Hypercode Remix) 4:27(   Читать дальше...   )Жанр: Electro House , Club House , Techno HouseПродолжительность: 07:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D214321183FA7CC74CCF99952D6C27E7388F74D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029058   (684756) от 25.06.2016
+
+VA - Global Club Anthems Vol.5 (2016) [MP3|320 кб/с] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leventina -  Grenoble (Radio Mix) 3:00
+02. Jochen Miller -  Flashback (Gregori Klosman Remix) 5:46
+03. Oscar Sanchez -  Tromp 5:21
+04. Tony Romera -  Drakarta 5:15(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 02:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E595472B37EF1D4D1AD4A2F0B0E09F8D17BC4070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134888   (684713) от 17.05.2017
+
+VA - Любимая музыка. Дискотека Хит FM выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684713.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лена Максимова - Счастье Внутри 3:50
+002. Alex Opium - Не Обижу 3:45
+003. Бордо - Осталось 3:49
+004. Никита - Белыми Птицами 3:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C6B9790F344D10419FA09C09C1DC460C83834F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134932   (684707) от 17.05.2017
+
+VA - Hits Cocktail Vol.7 (2017) [MP3|320 Kbps] <Club , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684707.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Magicstone, Tony Brown, Commander Tom - Everybody Free (Original Mix) 5:02
+002. Helena Paparizou - Colour Your Dream 3:05
+003. Breathe Carolina & Dropgun feat. Kaleena Zanders - Rhythm Is A Dancer (Original Mix) 3:20
+004. TooManyLeftHands feat. Casso - Mad For It 3:29(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 05:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F2CD34A49DA3349AFB6251704C8AA5D49D0D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222477   (684680) от 29.04.2018
 
 VA - Сборник - Звезды Шансона. Лучшее. Том 1 (2018) MP3 от DON Music (2018) [MP3|320 Kbps] <Шансон>
@@ -571,180 +745,6 @@ VA - 100 Most Relaxing Songs Ever (2020) [MP3|320 Kbps] <Pop, R&B, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95E73AB685CC951F49532A8417158FFE6E139056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403977   (684167) от 23.08.2020
-
-VA - Beatport Funky House: Electro Sound Pack #150 (2020) [MP3|320 Kbps] <Funky, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684167.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evgeny Svalov - Discreet State
-002. Norberto Acrisio - Keep Boosting
-003. Joust Phillips - Gotta Be There
-004. Marinatone - Give Me More(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 09:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55062C397866AD736542AAA55036DA0ED5E310FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404068   (684158) от 23.08.2020
-
-VA - Громкие новинки Августа 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3-ий Январь - Фруктовый лёд (2:15)
-02. 5sta family - Rave (2:52)
-03. Agunda - Книга (2:22)
-04. Alicia Keys, Khalid - So Done (3:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF202CABEF9E3E8F2ECC553C46244600D70CC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404160   (684013) от 23.08.2020
-
-VA - Beatport Organic House: Electro Sound Pack #155 (2020) [MP3|320 Kbps] <Deep, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684013.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danny Cruz - Missing You (Original Mix)
-002. Andrea Ferri - Dangerous Stars
-003. Marching Machines - Guardian
-004. One Day Deep - Chilli Wind(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 10:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A281FCFCD6E186B3C1A09F16F44AE4B3BCD4E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289571   (683995) от 17.03.2019
-
-VA - Pretty Women Voices: The Ultimate Collection (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683995.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marilia Mendonca - Bem Pior Que Eu (Ao Vivo)
-002. Anitta feat. J Balvin - Downtown
-003. Sia - Cheap Thrills
-004. Ariana Grande - thank u, next(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762C69099E2B4A298C1233E4DA431178D1CE888D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289627   (683994) от 17.03.2019
-
-VA - NEW 2 от Виталия 72 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Альберт Комаров - Моя Любовь
-02. Игорь Кибирев - Не Грусти
-03. Сергей Пискун - Я Счастлив
-04. MiyaGi & Эндшпиль - Половина Моя(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7EE3FDCB16B3DA361E99EA76CD706A9304A063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289730   (683992) от 17.03.2019
-
-Интеграл - Подпольный концерт (1980) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Взял жену с Одессы
-02 - Про Подол
-03 - На морском песочке
-04 - Нос, мой нос(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486020BA0BE8FAC5CC1FE4A50F04B106274B1FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

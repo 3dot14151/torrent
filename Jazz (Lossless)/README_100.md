@@ -1,3 +1,32 @@
+###  Публикация: 1400849   (714995) от 07.08.2020
+
+Smooth Jazz Music Set - Love in a Hotel Room: Compilation of Sexy Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Instrumental, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight Mix
+02. Jazz for Night Pleasure
+03. Smooth Experience
+04. Hotel Room Romance(   Читать дальше...   )Жанр: Jazz, Instrumental, Easy ListeningПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9755E8516C84913D136A43240866022A5026B152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286147   (714819) от 01.03.2019
 
 Keiko Matsui - Echo (2019) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -716,35 +745,6 @@ Angelo Debarre & Ludovic Beier - Swing Rencontre (2002) Marianne Melodie [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:016084A9ACB18B9066D43E04D4B41DD4C4DA050D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130816   (710793) от 04.05.2017
-
-Angelo Debarre & Ludovic Beier - Entre Ciel et Terre (2006) Le Chant Du Monde [FLAC|Lossless|tracks + .cue] <Gypsy, Swing, Jazz Manouche>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caravan [04:05]
-02. Le Tzigane Roumain [03:37]
-03. Entre Ciel et Terre [04:45]
-04. R. Vingt-Six [03:10](   Читать дальше...   )Жанр: Gypsy, Swing, Jazz ManoucheПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C70BCD741B8CA79836A925EB059AE9C763563640
 ```
 
 https://mybot314.ru/tekegram_catalog/

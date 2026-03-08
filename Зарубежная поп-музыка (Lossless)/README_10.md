@@ -1,3 +1,32 @@
+###  Публикация: 976428   (969782) от 17.01.2016
+
+Tracey Thorn (Everything But The Girl) - Love And Its Opposite (2010) [FLAC|Lossless|image + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh, The Divorces! [04:15]
+ 02. Long White Dress [03:53]
+ 03. Hormones [03:07]
+ 04. Kentish Town [03:29](   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97834C4BF5FD8E09DD2D8FA2D99CAAB906480457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358139   (969700) от 07.02.2020
 
 Richard Marx - Limitless (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
@@ -714,35 +743,6 @@ VA - Pure Italia (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Chanson, Ballad, Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF4FA5E65C50BF8558393084ECB051F1A95052B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361162   (957077) от 18.02.2020
-
-Karizma Duo - Acoustic Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On Eileen 02:31
-02. Someone You Loved 03:19
-03. Take On Me 03:23
-04. Teenage Dirtbag 03:39(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08CA1D85A8C2C50F90FEDD3F7A0A12D805E5CEFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

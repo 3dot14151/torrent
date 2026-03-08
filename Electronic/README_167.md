@@ -1,3 +1,61 @@
+###  Публикация: 1215451   (758111) от 26.03.2018
+
+Luke Vibert - Arcadia (2018) De:tuned [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balath (03:14)
+ 02. pHlacid (06:28)
+ 03. Arcadia (06:28)
+ 04. Worry Ledge (04:35)Жанр: Electro, Acid, TechnoПродолжительность: 00:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2259CCC457C4E31BEE5C12ACB58D48160CB1F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215593   (758108) от 26.03.2018
+
+VA - Ori Uplift & Baco - Uplifting Only 267 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grande Piano - Only Mine (Intro Mix)
+02. FAN FAVORITE: Dreamlife & Blue Moon - Last Farewell (George Crossfield Emotional Remix)
+03. Alex Wright - Mnemba
+04. Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64153098A3480FBE46F970F4C826D3E323C28B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215499   (758107) от 26.03.2018
 
 Michael E - Cotton Blossom (2018) [MP3|320 Kbps] <Downtempo, Chillout>
@@ -687,64 +745,6 @@ VA - Coastal Remixes Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1C66E6157BB1AB918D922DBBF706D875E865853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215783   (756509) от 27.03.2018
-
-VA - A State Of Trance Episode 850 – Ultra Music Festival, Miami (2018) [MP3|~256 - 320 Kbps] <Trance,Progressive Trance,House,Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fernando Olaya – Coffee With U (Pacco & Rudy B Remix)
-02. A.M.R. – Uncharted
-03. Hello Machines – Air
-04. Quivver – A Higher State(   Читать дальше...   )Жанр: Trance,Progressive Trance,House,Progressive HouseПродолжительность: 11:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC62BB2CA62B7CB506E1D917A514038B5D7B6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215644   (756478) от 27.03.2018
-
-DJ Krush - Cosmic Yard (2018) Es.U.Es Corporation [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Breakbeat, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regulus (03:49)
-02. Stellar Wind (03:21)
-03. Divine Protection (feat. 渥美幸裕) (04:18)
-04. Asterism (Interlude) (01:37)(   Читать дальше...   )Жанр: Downtempo, Breakbeat, Trip HopПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CAB3F06285BA56ED1E64A19C310835E79B5DD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

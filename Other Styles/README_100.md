@@ -1,3 +1,32 @@
+###  Публикация: 930498   (514763) от 23.08.2015
+
+VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игорь Корнелюк - Город, Которого Нет - Бандитский Петербург [00:04:18]
+02. Thomas Newman - The Green Mile [00:03:38]
+03. Clint Mansell & Kronos Quartet - Winter Lux Aeterna - OST Requiem for a Dream [00:03:54]
+04. Bill Medley & Jennifer Warnes - The Time Of My Life - OST Грязные танцы [00:06:46](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 06:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6F21BE2B64229F09673A0026612B670C6AFC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242329   (513972) от 23.08.2018
 
 Brian Kelly - Tomorrow's Daydream (2018) [MP3|320 Kbps] <Piano, Neo-Classical, Instrumental>
@@ -735,41 +764,6 @@ Jean-Michel Jarre - Essential Recollection (2015) [FLAC|Lossless|WEB-DL]<Ambient
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9822F81DFA15733D0D63BA11511E8A87E5EDFDC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538488   (507582) от 25.08.2012
-
-VA - Cafe del Mar Recommends Music For Dreams (2010) [MP3|320 кб/с]<Lounge, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valentin Huedo & Atfunk (CDM) - Until The Sun Goes Down
-02. Kenneth Bagger - Speak My Name
-03. Kenneth Bagger - And I Kept Hearing (Radio Edit)
-04. Kenneth Bagger - Love Won't Leave Me Alone
-05. Kenneth Bagger - Time Is Up
-06. Bird - Some Boys (Valentin Huedo Remix)
-07. Bird - Sweetheart
-08. Bird - Wind It Up
-09. Bird - Bad Connection
-10. DJ Disse - Spanish Reggae(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6D3FF62E6D40FF4A281A31F508C4D93E41A568
 ```
 
 https://mybot314.ru/tekegram_catalog/

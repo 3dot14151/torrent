@@ -1,3 +1,32 @@
+###  Публикация: 1785276   (69291) от 15.03.2025
+
+Wayne Shorter - Night Dreamer (1964) 2024, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Dreamer [7:18]
+02. Oriental Folk Song [6:53]
+03. Virgo [7:11]
+04. Black Nile [6:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E943D32CE350899F8DC24A298744F0C05A38211B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785578   (69252) от 16.03.2025
 
 VA - Funky Atmospheres (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
@@ -714,35 +743,6 @@ Duke Pearson - Four Classic Albums (1959 - 1962) 2CD, 2016, Avid Jazz [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51DF518EDE67ECAAD6BC548D5817D6C3F1692CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788391   (68507) от 30.03.2025
-
-Enrico Pieranunzi - The Complete Remastered Recordings On Black Saint & Soul Note (1980 - 1997) 6CD, 2010, CAM [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amore fermati [4:05]
-02. Fascinating Rhythm [7:00]
-03. Ma l'amore no [4:55]
-04. Averti tra le braccia (quartet) [4:16](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Vocal JazzПродолжительность: 05:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAC4313405B94896F1C8D535CC8C10708760495
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1435485   (144529) от 28.12.2020
+
+Alessi Brothers - Long Time Friends (1982) 2010, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144529.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Jagged Edge 3:30
+2 You Got The Way 3:05
+3 As Far As I'm Concerned 4:09
+4 Rise Up 3:33(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA877876C5598AAA17EE0560AE8BC9B8126AF09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348444   (144432) от 27.12.2019
 
 VA - 100 Greatest Ballads (2019) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
@@ -711,41 +740,6 @@ Baccara - Light My Fire (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11B475FF3FFD7217781F0367DAAC692AEF20B4F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596233   (131383) от 30.12.2012
-
-Doris Day - 3 альбома (1995-2004) [FLAC|Lossless]<Pop, Oldes>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Thrill [02:57]
-02. Bewitched, Bothered And Bewildered [02:44]
-03. I'm Confessin' That I Love You [02:46]
-04. Sometimes I'm Happy [02:36]
-05. You Go To My Head [02:53]
-06. I Didn't Know What Time It Was [03:05]
-07. When Your Lover Has Gone [02:58]
-08. That Old Feeling [03:03]
-09. Imagination [03:18]
-10. If I Could Be With You (One Hour Tonight) [03:27](   Читать дальше...   )Жанр: Pop, OldesПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

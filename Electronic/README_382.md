@@ -1,3 +1,61 @@
+###  Публикация: 1339484   (266157) от 19.11.2019
+
+VA - Chill Out Pearls, Vol. 2 (Lazy Chill Out Tunes) (2019) [MP3|320 Kbps] <Electronica, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alwood Johnson – Fly (5:45)
+02. Danny Hay – Expectations (7:40)
+03. Chuck Mertens – Moshy (5:51)
+04. Alec Gonzalez – Lia (3:38)(   Читать дальше...   )Жанр: Electronica, DowntempoПродолжительность: 03:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F4247642D262FFF21CEEEEFCF226C8B58405EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190929   (266034) от 11.12.2017
+
+VA - The Verse Uplifting Trance Journey 2016-2017 (Mixed by Philip Langham) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance >
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alcyone Project - Gate To Another World (Original Mix)
+02. Melodic Culture & Magdalen Silvestra - Way Of Light (Trance mix)
+03. Alternate High - You Are Not Alone (Original Mix)
+04. Alternate High - On My Mind (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 05:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B815F21901BE1A418F2AFC40BC34944FEA08EFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190911   (266033) от 11.12.2017
 
 VA - Ori Uplift - Uplifting Only 252 (incl. Maratone Guestmix) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -683,64 +741,6 @@ VA - Anjunadeep 07 (Mixed by Jody Wisternoff & James Grant) (2015) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60A0503A116BB07ECABEA41DFB295FB9252B2697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340087   (264291) от 22.11.2019
-
-VA - Trance Miami (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholas Gunn feat. Alina Renae - Older (Costa Extended Remix)
-02. Rub!k feat. Sue McLaren - Everglow (Extended Mix)
-03. Lost Witness - Sewn (Extended Mix)
-04. 4 S'trings - 13 Ways To Save The World (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B106CAEAFDAE30FFE7A6E4E6EC5F4523C3BE9D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340192   (264287) от 22.11.2019
-
-VA - Best Of Dance 2019 (Presented by Spinnin' Records) [MP3|320 Kbps] <Progressive House, Club House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Feldt feat. RANI - Post Malone 2:54
-02. New World Sound & J2 feat. Sara Phillips - Outta My Head 2:39
-03. Yves V feat. Afrojack & Icona Pop - We Got That Cool 3:33
-04. Dzeko x Riggi & Piros feat. Veronica - Heaven 3:15(   Читать дальше...   )Жанр: Progressive House, Club House, DanceПродолжительность: 01:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D5B31931C472131EF015E9AAE77BDF12A67200
 ```
 
 https://mybot314.ru/tekegram_catalog/

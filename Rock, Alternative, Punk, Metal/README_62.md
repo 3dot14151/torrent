@@ -1,32 +1,3 @@
-###  Публикация: 1618477   (1033710) от 13.03.2023
-
-Judiciary - Flesh + Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Thrash Metal, Crossover>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flesh (2:57)
-02. Blood (2:00)
-03. Engulfed (2:41)
-04. Paradigm Piercer (3:43)(   Читать дальше...   )Жанр: Hardcore, Thrash Metal, CrossoverПродолжительность: 00:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37E5A2F4B18622067DBE1BD4F1DFAD3DA4751C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618950   (1033688) от 13.03.2023
 
 Larin - 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
@@ -745,6 +716,35 @@ Mickey Magnum - Ride With The Devil (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7110A0F89922F0275139BC52D39763968B93CA21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445929   (1033229) от 07.02.2021
+
+The Damn Devils - The Damn Devils (2021) [MP3|320 Kbps] <Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone (03:19)
+ 02. Hush (04:12)
+ 03. The Line (03:26)
+ 04. Liarmageddon (04:24)(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D967C22902C78D921E9034EBF25F415138441096
 ```
 
 https://mybot314.ru/tekegram_catalog/

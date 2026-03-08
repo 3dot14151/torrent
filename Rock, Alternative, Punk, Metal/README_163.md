@@ -1,32 +1,3 @@
-###  Публикация: 983396   (943791) от 06.02.2016
-
-Алексей Чернышёв - Пресвятая Русь (2015) [FLAC|lossless|image +.cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пресвятая Русь (04:22)
-02. Потребитель (демо) (03:08)
-03. The Golden Eagle (04:22)
-04. Пресвятая Русь (инструментальная версия) (04:14)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2BB5F469C7D98E1DE83E63671B4275E8D80BB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983426   (943782) от 06.02.2016
 
 Nordic Union - Nordic Union (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -745,6 +716,35 @@ Ace Frehley - Frehley's Comet (1987) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F06186B25CC3A382B4142D362136EC16B141AF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983831   (942199) от 07.02.2016
+
+The Stranglers - Feline (1982) [FLAC|Lossless|image + .cue] <Post Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Midnight Summer Dream
+02 - It's a Small World
+03 - Ships That Pass in the Night
+04 - The European Female (In Celebration of)(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995B8866D5CD65216596904E526F7B66F836AFCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

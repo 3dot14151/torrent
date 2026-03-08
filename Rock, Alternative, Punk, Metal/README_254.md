@@ -1,32 +1,3 @@
-###  Публикация: 1502638   (826939) от 15.10.2021
-
-Frank Marino - Full Circle (1986) [FLAC|Lossless|tracks + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826939.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Breakin' Away
-2. Imagine
-3. When Love Is Lost
-4. Razor's Edge(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3A16B4900C0B6944EB03254B3B0AD8F6288BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502496   (826934) от 15.10.2021
 
 KYPCK - Имена на стене (2014) [FLAC|Lossless|image + .cue] <Doom Metal>
@@ -748,6 +719,35 @@ Genesis - Duke (1980) Remaster, 1985, Charisma [FLAC|Lossless|image + .cue] <Sof
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:906041074A23927A8D3AC5A2EB38756134A0C8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 881221   (826363) от 24.03.2015
+
+Dr. Living Dead! - Crush The Sublime Gods (2015) [FLAC|Lossless]<Crossover Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Final Broadcast (1:51)
+02. Crush The Sublime Gods (4:42)
+03. TEAMxDEADx (2:44)
+04. Eternal Darkness Of The Fucked Up Mind (3:25)(   Читать дальше...   )Жанр: Crossover Thrash MetalПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8798E83B7E5F5350B1BFBB0B708055097BB31B75
 ```
 
 https://mybot314.ru/tekegram_catalog/

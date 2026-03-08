@@ -1,3 +1,61 @@
+###  Публикация: 1346757   (1022053) от 08.04.2021
+
+Thierry David - Discography 32 Releases (1988-2021) [MP3|320 Kbps] <New Age, Lounge, Ambient, World>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022053.jpg" />
+</div>
+
+
+###  Подробнее
+
+1988 - Moonstorm (Reissue '98)
+1991 - Humaninhuman
+1992 - Tales Of Sand (Reissue '93)
+1993 - Tones & Colours (Reissue '98)(   Читать дальше...   )Жанр: New Age, Lounge, Ambient, World, Electronic, Tribal, Space & Relaxing MusicПродолжительность: 32:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B108C1115E99A887962329414999093AB99AC4F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461283   (1022048) от 08.04.2021
+
+Jean-Michel Jarre - Amazonia & "Binaural Audio - Headphones Only" Version (2021) Columbia Local [FLAC|Lossless|WEB-DL|tracks] <Ambient, Field Recording, Tribal, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazonia, Pt. 1 (07:42)
+ 02. Amazonia, Pt. 2 (10:00)
+ 03. Amazonia, Pt. 3 (08:10)
+ 04. Amazonia, Pt. 4 (03:17)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Field Recording, Tribal, Experimental •Продолжительность: 01:45:47 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19FEFDE6E6E87B967B0A695A12B24E96C9CC984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194258   (1022039) от 08.04.2021
 
 Flint Glass | OKNHO - Discography 12 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Industrial, Experimental, Glitch, Rhythmic Noise, Dark Ambient>
@@ -683,61 +741,6 @@ Maps and Diagrams (Maps & Diagrams) - Discography 50 Releases (2002-2021) Handst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFE850A2202A39CC4BBB8D91DBD9F86B0CD99770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462439   (1021227) от 14.04.2021
-
-VA - Nagual 4 (2017) ...txt [FLAC|Lossless|WEB-DL-USB Drive|tracks] <Ambient, Drone, Experimental, IDM, Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: WebЖанр: Ambient, Drone, Experimental, IDM, Techno •Продолжительность: 08:12:04 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D730E19112528F7AD11335601E2D4209DC384C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462482   (1021226) от 14.04.2021
-
-Steve Roach - Skeleton Era Volume 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Pulse Passage (27:39)
-02. Its All Connected V.2 (10:49)
-03. Escher Sketch (10:16)
-04. SkelZona (20:17)Жанр: AmbientПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705829497CC0C4235922A12812C0FB51C89EA698
 ```
 
 https://mybot314.ru/tekegram_catalog/

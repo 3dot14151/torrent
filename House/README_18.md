@@ -1,3 +1,32 @@
+###  Публикация: 1275207   (791154) от 10.01.2019
+
+VA - Deep House Grooves, Vol. 14 (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loic Hoffman & Brrak - The Wind (Brrak Remix)
+02. Mert Avci - Forget Me Not (Original Mix)
+03. Superkluster - Timelapse (Original Mix)
+04. Lawrence Dix & Matt Prehn - Anima (Matt Prehn Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD26567AFDD90E9EC31F834C3CA7FD08D30996AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201928   (790904) от 27.01.2018
 
 VA - Best of Ibiza 2018 [MP3|320 Kbps] <Progressive House>
@@ -716,35 +745,6 @@ VA - Beats And Grooves (30 Top House Tunes),Vol.3 (2019) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48FEA7A73E7A2A6B0CCAF650E016A47AB1FB45B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417742   (787103) от 25.11.2021
-
-Michel Suhov - From Ghetto With Love (2015) [MP3|320 Kbps|image+.CUE,tracks] <Afro House, Funky House, Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michel Suhov - From Ghetto With Love (Continuous DJ Mix) (01:04:26)
-02. Milty Evans - So Very Happy (06:36)
-03. Simba - 5 Minutes With Beaumont (Le Babar Remix) (04:19)
-04. Furniture is Music - Furnitures Preselected Love (2011 Remastered) (05:20)(   Читать дальше...   )Жанр: Afro House, Funky House, Soulful HouseПродолжительность: 02:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FE51F6F3C844A937585CDA930FB1C619A89189
 ```
 
 https://mybot314.ru/tekegram_catalog/

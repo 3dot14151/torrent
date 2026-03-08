@@ -1,3 +1,177 @@
+###  Публикация: 1119053   (809453) от 27.03.2017
+
+VA - Вечеринка от радио Шансон выпуск № 7 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809453.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Шапиро - Расставаться Надеяться Ждать 4:05
+002. Сергей Кириченко - Этапом 4:51
+003. Сергей Серафимов & Евгения Лихачева - C Меня Довольно 3:26
+004. Мариан - Песенка Веселого Палача 3:08(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADBF0B150ED1E13B52279DC85BDA17338234EB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119050   (809447) от 27.03.2017
+
+VA - Ресторан Кураж для друзей выпуск № 9 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809447.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олеся Атланова - Абрикосовое Сердце 3:59
+002. Марина Александрова - С Глаз Долой 3:05
+003. Наиль Манасипов - Мне Сегодня Только 45 4:38
+004. Сергей Клушин & Андрей Климнюк - Развод 2:59(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7918B81C36661F994983CBC5D5CF0574F5EAB257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198189   (809400) от 10.01.2018
+
+VA - Лучшие клубные новинки Vol.8 (2018) [MP3|192-320 Kbps] <Electro House, Vocal Trance, Uplifting Trance и другие>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaron Sim - Eternity (Original Mix) 6:37
+02. Ace Shannon - Valparaiso (Original Mix) 4:03
+03. Aftermarket - Lights Out (Original Mix) 3:23
+04. AkroSonix - I Can Feel 3:42(   Читать дальше...   )Жанр: Electro House, Vocal Trance, Uplifting Trance и другиеПродолжительность: 20:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CDFC708B190DD6CFA9353996ACDF74B4A351141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009428   (809362) от 21.04.2016
+
+Инна Вальтер - Лети (2016) [MP3|320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бежать, бежать, бежать
+02. Белый снег
+03. Красивый мальчик
+04. Лети(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A407DFAEF72BD5EE2BEE01215A3B40151F5C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009514   (809361) от 21.04.2016
+
+Mr.Credo - Ч@родей (2015) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. После Майдана
+02. Дедушка Хасан
+03. Крым - Родная гавань
+04. Талибан(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E12A7BF95D64496D1D74455423C9C875E18ECDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119047   (809302) от 27.03.2017
+
+VA - Весенний хит русского шансона (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809302.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Леонид Телешев - Не Моя Ты 3:38
+002. Владимир Ворон & Галина Пахомова - Вернись Любовь 3:36
+003. Андрей Широков - Сигаретный Дым 3:34
+004. Сборная Союза - Только Любовь 3:36(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6762309DAB2E0831B2DEC1639ACDC8E43F31A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119054   (809294) от 27.03.2017
 
 VA - Отдыхаем душой на стильном радио Шансон. Версия № 8 (2017) [MP3|256 Kbps] <Шансон>
@@ -571,180 +745,6 @@ VA - Synth of Waves (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Ou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF579238F7C805DF3FDB67B189441562C19345A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198504   (808159) от 11.01.2018
-
-VA - The World Of Heavy Metal Vol.3 (2018) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Manowar  -  House Of Death  4:23
-02.  Triosphere  -  Driven  4:38
-03.  Metal Church  -  No Tomorrow  5:09
-04.  Ozzy Osbourne  -  Mr. Crowley  4:55(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 06:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F147C0D799B680FB56BC425B4199517743122A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198325   (808155) от 11.01.2018
-
-VA - German Top 100 Single Charts 12.01.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808155.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Perfect
-002. Bausa - Was du Liebe nennst
-003. Camila Cabello - Havana (feat. Young Thug)
-004. Justin Bieber - Friends(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148983CD56DF1396423258B8433D79927F20F32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383883   (807998) от 17.05.2020
-
-VA - Woodstock Rock Live (2020) 3CD [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain - Beside the Sea
-02. Janis Joplin - Summertime (Live at The Woodstock Music & Art Fair, August 17, 1969)
-03. Jimi Hendrix - Woodstock Inprovisation (Live at The Woodstock Music & Art Fair, August 18, 1969)
-04. Creedence Clearwater Revival - Keep On Chooglin' (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 16:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192EB249D52F5FE6BC29679CA0FBF1071AE99CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009876   (807980) от 22.04.2016
-
-VA - 100 Пудовый Auto hit №3 Шансон (2016) [MP3|256 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807980.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Евгений Любимцев - Ах Одесса-Мама
-002. Рома Рязанский - Это Было Давно
-003. Игорь Дань - Солнце
-004. Даниил Сорокин - Береги Ее(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1E0B3DEC5F13666A26CA4155E5376A8FD1AEAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009786   (807966) от 22.04.2016
-
-VA - Сто процентов хитов MTV. Часть 8 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807966.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Black Fox - Наступит Новый День
-002. Matisse & Sadko - Memories
-003. Enrique Iglesias & Gente De Zona & Descemer Bueno - Bailando
-004. Макс Корж - Не Выдумывай(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4CB27F8194C3FB4A1078178F6C5ED4A6222278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009735   (807965) от 22.04.2016
-
-VA - Eagle Song Native American Music (2016) [MP3|256 кб/с] <Folk, New Age, Ethnic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Indian Music - Qarwa Yaku
-02. American Indian Music - Runing Horse
-03. Land - Indians Music Wayrapa
-04. Native - Indians Music Sunquiman(   Читать дальше...   )Жанр: Folk, New Age, EthnicПродолжительность: 05:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8463859D0C9A05EB0FD48692A67729A5BB42FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

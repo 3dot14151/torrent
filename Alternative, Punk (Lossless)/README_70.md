@@ -1,3 +1,32 @@
+###  Публикация: 1804261   (65609) от 29.06.2025
+
+Scott Sellers - One and, and, and, and One and, and Three and, and (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk / New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now Or Never [00:02:35]
+02. Commit-Submit [00:03:03]
+03. Conquer [00:03:11]
+04. Feel Better [00:02:39](   Читать дальше...   )Жанр: Punk / New WaveПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8748DB7941904023D5671600A142245A61D88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804429   (65604) от 29.06.2025
 
 Awaken I Am - The Only Way Out Is Through (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Rock, Post-Hardcore>
@@ -716,35 +745,6 @@ Muse – британская альтернативная рок-группа, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F3D16C0AC7FC9668267561A01EDE9D47888A6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755810   (39990) от 18.10.2024
-
-The Offspring - Supercharged (2024) Deluxe Edition [FLAC|Lossless|tracks] <Rock, Alternative Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Looking Out For #1 [3:17]
-02 - Light It Up [2:53]
-03 - The Fall Guy [2:35]
-04 - Make It All Right [3:35](   Читать дальше...   )Жанр: Rock, Alternative Rock, PunkПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA223FE3514211A0977B8881CA4208A37C34FB02
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1165378   (435028) от 12.09.2017
+
+VA - Empire Records - Positive Emotions (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cotton Lovers – Rer
+ 02. Florito – Funny Valentine
+03. Monday Elation – Sleep On A Sofa (Ibiza’s Sofa Mix)
+  04. Couche-Tard – Beautiful World(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8844D66556A0D5E972AA88D99853377E01F299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063218   (434973) от 16.10.2016
+
+VA - German Top 100 Single Charts 24.10. (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434973.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rag'n'Bone Man - Human
+002. The Chainsmokers feat. Halsey - Closer
+003. DJ Snake - Let Me Love You
+004. Sia - The Greatest (feat. Kendrick Lamar)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73790466B62DC931CE8A351BBD9B788454DA472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063222   (434972) от 16.10.2016
+
+VA - Новинки. Осенний выпуск Europa Plus (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434972.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Malika - Я Твой Ангел
+002. Anouk - Run Away Together
+003. Марта - Даже Если Ты
+004. Walking On Cars - Hand In Hand(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFEEFA701275DA9CBC1917B52A5F63498FD2E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063247   (434828) от 16.10.2016
+
+VA - Необузданный рай. Супер сборник русского шансона (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Назаров - Необузданный Рай
+002. Сборная Союза - Я Самый Лучший
+003. Лукьяновка - Ножки
+004. Николай Искуснов - Бродяга По Жизни(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C790BA42B382F55AB54FAC690B5D60A98D6B527C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165218   (434688) от 12.09.2017
+
+VA - Cosmotronica & Space Disco Vol.4 (2017) [MP3|320 Kbps] <Synthpop, Spacesynth, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunlight Project - Lights In The Sky
+02. Bruno Motta - Silk Notes (Edric Remix)
+03. Zonasphere - Timelines
+04. Pryda - The End Is Just The Beginning (Original Mix)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, ElectronicПродолжительность: 09:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F050AC47175AB2E4B0E4CD4007681238FA3D1AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165145   (434429) от 12.09.2017
+
+VA - Back To The Seventies (Compiled by ВИКТОР31RUS) (2017) [MP3|320 Kbps] <Pop, Disco, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434429.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Demis Roussos - From Souvenirs To Souvenirs  2:35
+002.  Eagles - Hotel California  6:31
+003.  Eruption - One Way Ticket (Long Version)  5:10
+004.  Stevie Wonder - Ebony Eyes  4:09(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 11:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBE2860118A8430E8B0EB240AB4D4D5322AE36F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165388   (434318) от 12.09.2017
 
 VA - Для Тех, Кто Помнит! Русский Рок Vol.4 (от Ovvod7) (2017) [MP3|320 Kbps] <Rock>
@@ -601,186 +775,6 @@ VA - Хиты 2012 Русский Шторм (2012) [MP3|112-320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90D23948A59E9BAB0309B8037A85B011854C1CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323633   (433785) от 05.09.2019
-
-VA - Burn This Town (2019) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433785.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sex Park - Atrium
-002. Jonas Bergsten - Minnet Kanske
-003. Sven Atterton - Cast Away
-004. Aescer - Let Go(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 11:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4C2FD20309BF52079D8B691399CE3E137B77BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323637   (433686) от 05.09.2019
-
-VA - Super Sound Disco Single (2019) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433686.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Space - Running In The City
-002. Mulya - Orinoko (Original Mix)
-003. Rat Tat Tat - Hypnotized
-004. La Guardia De La Luz - Ts'unu'un (Original Mix)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 09:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B92F860E0DB0A674C89AF3C004A7441850797E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555213   (433656) от 02.10.2012
-
-VA - Инструментальная музыка (2012) vol. № 93 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mario Battaini - Storielle Del Bosco
-02. McCartney - Ebony And Ivory
-03. Анс. Арсенал - Танго
-04. Armik - Santa Barbara
-05. G.Marradi - Angelitos Negros
-06. А.Шишков -  Серебрянный лотос
-07. Arabian Night - Cinema
-08. Fitoussi - Words
-09. Jo Courtin - Le Plus Beau Tango Du Monde
-10. Е.Дога - Мелодии из кинофильмов(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09ADEB0B54F5FE048BA1E52B7DAA5140AB2826E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410751   (433625) от 22.09.2020
-
-VA - Deep House Sensitive (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433625.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rockka - Waves Around The Surface
-002. Jon Thomas - The Way You Move
-003. Lpa City - Cloudy Day
-004. Toll Tekk - Running Out(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4866C676E57305F74C1B4186A2DC346E16C1B3EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945633   (433576) от 10.10.2015
-
-Юля Шатунова - Звезда (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Милые Звёзды (05:03)
-02. Мой Плеер (05:39)
-03. Мой Старый Лес (05:00)
-04. Новогодняя (04:13)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1818318E78472374380383C4CE33E3ABEA952F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249504   (433444) от 24.09.2018
-
-VA - Exotic Tropical Tunes (2018) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433444.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ati - Moon Queen
-002. Amoon And Walking - D.A.N. Get Funky
-003. Fedde Le Grand - The Gaming Beat
-004. Harry Bolton - Loving You (Original Mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB62487F7B39F3033902280AC26C70B89DEA0AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

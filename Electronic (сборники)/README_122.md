@@ -1,3 +1,32 @@
+###  Публикация: 1048793   (545734) от 03.09.2016
+
+VA - Beatport Top 100 Deep House August (2016) [MP3|320 Kbps] <Deep House, House, Electronica, Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545734.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Duke Dumont - Be Here (Original Mix)
+002. Martin Waslewski - Clouds (Purple Disco Machine Remix)
+003. Marc Romboy, Stephan Bodzin - Atlas (Adriatique Remix)
+004. Golden Summer - In The City (Claptone Edit)(   Читать дальше...   )Жанр: Deep House, House, Electronica, DiscoПродолжительность: 12:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE074A4F14F698B67BBBC2E85E00F65A0D648C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048874   (545559) от 03.09.2016
 
 VA - Убийца Колонок или Привет Соседям (Sound Clinic - Dirty Bass Edition) (2016) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - Record Super Chart 593 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5352F825A9107FC6205730F0B3AD6F7898196AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925779   (539212) от 07.08.2015
-
-VA - Trance Desire Volume 52 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex M.O.R.P.H feat. Natalie Gioia - 4Ever (Original Mix) (06:22)
-02. Hazem Beltagui & Shannon Hurley - An Open Heart (Original Mix) (07:02)
-03. Masoud feat. Melissa Loretta - Best Days (Progressive Mix) (06:28)
-04. Driftmoon vs. Geert Huinink feat. Kim - Forever (Original Mix) (08:40)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A38B38FBEBA03B23E4BD0C29D49179D1C795C84
 ```
 
 https://mybot314.ru/tekegram_catalog/

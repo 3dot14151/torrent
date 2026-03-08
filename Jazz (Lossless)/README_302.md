@@ -1,3 +1,32 @@
+###  Публикация: 1687380   (125428) от 27.12.2023
+
+VA - Smooth Easy Going Relax Lounge Luxury Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Mellifluous (4:27)
+02. Kool&Klean - Scent of Spring (4:52)
+03. Chillaxing Jazz Kollektion - Blue Water (4:00)
+04. Kool&Klean - Stellar Nights (4:14)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159939337089C2A1AD83BB44DC4E283A617CEBAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687374   (125426) от 27.12.2023
 
 VA - Jazz Hop #2 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop, Smooth Jazz, Lounge>
@@ -716,35 +745,6 @@ Isoo Fukui Quartet Featuring Kazuhiro Matsuishi - Sunrise / Sunset (1976) 2013, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B379B7C48E5B266BF2E4B22DA0352ACDF861FD79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690433   (123919) от 07.01.2024
-
-Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeepers Creepers [2:49]
-02. Heatwave [3:02]
-03. Harlem on My Mind [3:29]
-04. Y' Had It Comin' to You [2:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B29F6E8D2952094EF33B11EE29195910DE14478
 ```
 
 https://mybot314.ru/tekegram_catalog/

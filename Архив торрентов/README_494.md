@@ -1,3 +1,32 @@
+###  Публикация: 1090141   (947691) от 06.01.2017
+
+VA - Best Of LW: Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Juventa - A Thousand Words (Original Mix) 7:41
+02.  Vicky Devine - Stellium (Original Mix) 8:13
+03.  Tempo Giusto - Unknown Dancer (Original Mix) 8:34
+04.  Ferry Tayle - Geometrix (Original Mix) (feat. Driftmoon) 6:46(   Читать дальше...   )Жанр: TranceПродолжительность: 03:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4F3ECD949964892FD9866ECF758C93ABA26346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090280   (947689) от 06.01.2017
 
 RapidWeaver 7.2.2 [En]
@@ -675,32 +704,6 @@ XVI век. В Севеннах счастливо живет богатый т�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:195EA613A7E69B9785BB6E074CE0ACACC6F496F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090181   (947435) от 06.01.2017
-
-Soft4Boost Secure Eraser 4.3.3.491 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобная утилита, которая позволяет быстро и эффективно выполнить безвозвратное удаление данных с жесткого диска.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C3C2DB58AB5D1CC07CD1EF2A9D941918E9768E
 ```
 
 https://mybot314.ru/tekegram_catalog/

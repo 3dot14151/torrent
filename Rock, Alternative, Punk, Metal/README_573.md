@@ -1,38 +1,3 @@
-###  Публикация: 543112   (497138) от 04.09.2012
-
-Krokus - Favorites(2CD)(сборник) (2012) [MP3|320 кб/с]<Hard Rock, Heavy Metal, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497138.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1  Продолжительность: 01:13:48
-
-01. Stampede
-02. Tokyo Nights
-03. Headhunter
-04. Russian Winter
-05. Wasteland
-06. Angel of My Dreams
-07. Drive It In
-08. In The Dead Of The Night(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Classic RockПродолжительность: 02:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58774BDBC19ACEDFF1E3FC9E9DEA4F865FEDE7A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541312   (497122) от 04.09.2012
 
 Rise Against - Endgame (2011) [MP3|320 кб/с]<Punk/HardCore>
@@ -762,6 +727,35 @@ The Rolling Stones - Foxes In The Boxes Vol. 1-3 (2015) 3CDs [FLAC|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2699C7D8B86F8EB3B7BB0200F687BE65F6451581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243141   (496099) от 25.08.2018
+
+The Breeders - All Nerve (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nervous Mary (2:29)
+ 02. Wait in the Car (2:03)
+ 03. All Nerve (2:11)
+ 04. MetaGoth (3:09)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B187ABDC4F3CAA163733FB46540D3803D67A879A
 ```
 
 https://mybot314.ru/tekegram_catalog/

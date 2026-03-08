@@ -1,3 +1,32 @@
+###  Публикация: 1681237   (133099) от 02.12.2023
+
+VA - The Best Of House 2023 Part 3 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Clarke - Stayin Forever (Original Mix) [02:45]
+02. Floating Brothers - I Remember (Original Mix) [02:38]
+03. David Thompson - Crash Dance (Original Mix) [03:20]
+04. Sean Newman - Emptiness (Original Mix) [03:05](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C567DB424ADF9FAE915B826095CEA1E5BB54D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681356   (133002) от 02.12.2023
 
 VA - Bass Boosted Car Music (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -722,35 +751,6 @@ VA - Deep & Melodic House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C82916F963D0EF4127B55BB2A330457EBD88675D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693627   (121735) от 21.01.2024
-
-VA - Festival Sounds 2024 by Kontor (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121735.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bennett - Vois Sur Ton Chemin (Techno Mix) (02:58)
-002. Neptunica; Jasper Forks; Alex Christensen - River Flows In You (02:33)
-003. Kyanu; Keanu Silva; Ninkid - O Fortuna (02:36)
-004. Le Shuuk - Alegria (03:32)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 06:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3138BD5D140713C0AB9AC14E9D208C4813959DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

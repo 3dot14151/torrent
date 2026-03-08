@@ -1,3 +1,61 @@
+###  Публикация: 1521643   (764347) от 03.01.2022
+
+ScAnDroid Experiment's - Tempestas (2021) авторская раздача [MP3|320 Kbps] <Experimental, Lo-Fi, Downtempo>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Search For Silence
+03. Closer To The Abyss
+04. Calm Me Down ... Rain(   Читать дальше...   )Жанр: Experimental, Lo-Fi, DowntempoПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B49AE037E8617FE4C8B93A5F6EF43FEBFF38CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279927   (764312) от 31.01.2019
+
+VA - Goa 2019, Vol.1 (2019) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindwave - A Star We Call Home (Original Mix)
+02. Egorythmia - Anomaly (Electric Feel Remix)
+03. Yoake - Ex-Po Zen (Original Mix)
+04. Flexus & Estefano Haze - Time Spirit (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424D8B7AF6E941C9732A7878047BFC9657526F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057474   (764307) от 31.01.2019
 
 OAKE - Discography 9 Releases (2013-2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Techno, Ambient, Darkwave>
@@ -685,64 +743,6 @@ VA - AD Music • Compilations Collection - 17 Releases (2000-2020) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E75CAAAA9C08F6DF16DF553D92E9CD1483C076AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521920   (763452) от 04.01.2022
-
-VA - My Lounge Room (Chillout Your Mind) (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Tender Moments (Original Mix) (4:49)
-02. Michael e - Thrilling (Original Mix) (5:52)
-03. Marga Sol, Digby Jones - What I Need (Instrumental Mix) (4:38)
-04. Living Room - Don't Cry Baby (2:40)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6CEBFC2A52C61EC534D0FA6403D1B66A9F1582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214791   (763297) от 23.03.2018
-
-VA - Easter Chill Day (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blue Wave  -  Slow Motion  5:54
-02.  Arrojas  -  Wide Open Spaces  5:31
-03.  Kusuma Orchestra  -  Aurora  5:28
-04.  B Bob Combo  -  What's The Catch  5:26(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C37FD61C8FE4BFE9D85C27B37E8678429BD0B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

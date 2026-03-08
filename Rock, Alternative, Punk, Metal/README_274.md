@@ -1,32 +1,3 @@
-###  Публикация: 1505447   (803041) от 28.10.2021
-
-Galahad Electric Company - Soul Therapy (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Therapy (00:04:14)
-02 - All That Glitters (00:06:50)
-03 - Gone to Ground (00:05:29)
-04 - Fluidity (00:03:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB22FBB6AE083D93CDFB0548E598C1F4036FD2D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505569   (803036) от 28.10.2021
 
 Persona - Animal (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Nu-Metal>
@@ -745,6 +716,35 @@ Beast in Black (ex-Battle Beast) - 3 Albums (2017-2021) [MP3|320 Kbps] <Melodic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC5436BD58DC55FB6F8A913F6BECBAACC22825F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505488   (802628) от 28.10.2021
+
+Jeff Kelly - When the World Was Younger (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie-Rock, Psychedelic-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Of Missingness (Remastered) (00:03:13)
+02 - Black Eyes (00:02:55)
+03 - Juliana Of The One-Man-Scanner Station (Remastered) (00:02:55)
+04 - Autumn in Lisbon (00:03:19)(   Читать дальше...   )Жанр: Indie-Rock, Psychedelic-RockПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0DAA40E08738C932B2E294FD98EEA130DF12C2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

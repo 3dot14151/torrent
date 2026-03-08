@@ -1,3 +1,61 @@
+###  Публикация: 1549901   (592931) от 08.05.2022
+
+Enrico Sangiuliano - Live @ Awakenings Festival Easter Edition (2022-04-15) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mattia Saviolo - Twilight Of The Idols
+02. Psyk - First Trail
+03. Wlderz - Algo
+04. Alex Lentini & Stomp Boxx - ID(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9BFD9E240F9087DADF84F3F36D625355B5DADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549795   (592894) от 08.05.2022
+
+VA - Progressive House 100 - The Ultimate Selection (2022) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592894.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. SØNIN & Grigoré - Serpento (Original Mix) (8:50)
+002. Quivver - Brothers & Sisters (Cid Inc. Remix) (9:06)
+003. RUE - The Cult (Enamour’s Free Love Extended Mix) (7:01)
+004. All Living Things - Rave Culture (Jerome Isma-Ae Extended Remix) (7:38)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0831EEA4EF8AA3DABB1CC8D7D7D89A1D856472FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549702   (592890) от 08.05.2022
 
 ScAnDroid Experiment's - Stories Of Different Times (2022) авторская раздача [MP3|320 Kbps] <Experimental Electronic, Ambient, Darkwave>
@@ -684,64 +742,6 @@ VA - Synth Pop Hits (2020) [MP3|320 Kbps] <Synthpop, Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CC3FA120789490ED9BC2A3DD0DE3195AE506B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550880   (591200) от 13.05.2022
-
-Colombo - The Antological Big Beat (2021) [FLAC|Lossless|WEB|tracks] <Big Beat, Breakbeat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Combustion (Original Mix) (5:29)
-02. Contact (Original Mix) (3:53)
-03. Poisen (Original Mix) (5:17)
-04. Horny Bass (Original Mix) (4:18)(   Читать дальше...   )Жанр: Big Beat, BreakbeatПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0CA5FEBEF3BD533B10AE55FB1874F09AF41B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550805   (591198) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TELEGIMNASTIKA - Komarov (4:17)
-02. samm-n11 - Deep Rest (2:31)
-03. Miows - Retrigger (2:48)
-04. Alexander Gepindiker - French Speaker (5:56)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B21B722FC9B848C49BBE4D8CE922AEC3611F2DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 1289981   (682160) от 18.03.2019
+
+VA - House Arena Vol.6 (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coco Fay - Paradise (Radio Edit) 3:28
+02. Depdramez - Used To Lie (Original Mix) 3:25
+03. Sunrider - Missing You (Radio Edit) 3:31
+04. Housecrusherzzz - Not Too Late (Funky House Brothers Edit) 4:41(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87D64B3D9C161E57F1977BE5DEF995D0111C2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290085   (682158) от 18.03.2019
+
+Lucy - Dyscamupia (2019) Stroboscopic Artefacts [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dyscamupia (Forward) (12:41)
+ 02. Dyscamupia (Paused) (05:44)
+ 03. Dyscamupia (Backward) (07:46)Жанр: TechnoПродолжительность: 00:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903C32BB50B9B6E8A94CF8519615F6EF75C2012F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028764   (682134) от 26.06.2016
 
 VA - Siddharta: Spirit Of Buddha Bar Vol. 2 (Mixed by Ravin) (2003) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Tribal House>
@@ -708,64 +765,6 @@ VA - Chris Montana & Dj Soulstar - 20 Years Perfect Lovers (2017) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43875797F613FE52C0ACE2928737B09104D8AB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223138   (679367) от 02.05.2018
-
-PHCK - Natu (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natu (Original Mix) (10:40)
- 02. Cecilia (Original Mix) (7:10)
- 03. Magnolia (Original Mix) (8:11)
- 04. Natu (El Mundo Remix) (8:31)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34877643729E8AE8E8F3222F5054CB1B5A473940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222733   (679253) от 02.05.2018
-
-Hazem Beltagui - VIVID (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Made Of Light (In Memory Of Helena Copto) [05:09]
-02. Reasons To Love (Original Mix) [04:39]
-03. You Were Always Mine (Original Mix) [05:19]
-04. Fade Away (Original Mix) [06:14](   Читать дальше...   )Жанр: Electronic, Trance, Progressive TranceПродолжительность: 01:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34E0AFF2FD5042F10398EEEFA9C316E21EEA946
 ```
 
 https://mybot314.ru/tekegram_catalog/

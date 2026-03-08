@@ -1,3 +1,38 @@
+###  Публикация: 491700   (246615) от 04.05.2012
+
+David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_246615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Day Today (04:38)
+02. I Know (04:04)
+03. Good Day Today (Radio Edit) (04:17)
+04. Good Day Today (Underworld Classic Remix) (08:39)
+05. Good Day Today (Boys Noize Remix) (06:16)
+06. Good Day Today (diskJokke Remix) (08:39)
+07. I Know (Sasha Remix) (08:56)
+08. I Know (Skream's Not So Ravey Remix) (05:05)
+09. I Know (Ratcliffe 'Hedz In Dark' Remix) (06:01)
+10. I Know (Jon Hopkins Remix) (04:59)1998-2011Жанр: Ambient, Alternative Rock, ExperimentalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492009   (246489) от 04.05.2012
 
 Cawatana - 4 albums (2003-2010) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk, Neoclassical>
@@ -721,35 +756,6 @@ Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:570DB04974A57FF3C9EBA5C66EFE08C25AB27E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636507   (240860) от 30.05.2023
-
-Teodor Wolgers - Dialogues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Film Soundtracks>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reconnaissance Without End (3:54)
-02. The Pleasure Principal (2:38)
-03. The Art of Conversation (3:12)
-04. Nocturne (3:34)(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C09B453C00DAF1B43B3BB42E52AE528F34DCEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

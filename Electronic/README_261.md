@@ -1,3 +1,61 @@
+###  Публикация: 1305319   (556445) от 31.05.2019
+
+Blaqk Audio - Only Things We Love (2019) [FLAC|Lossless|tracks + .cue] <Synth Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinite Skin (03:18)
+02. The Viles (03:35)
+03. Unstained (03:31)
+04. Muscle And Matter (04:03)(   Читать дальше...   )Жанр: Synth PopПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83E9CA42259EBD455A9DD0A947E1E3C1269BDFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556835   (556428) от 12.06.2022
+
+Armin van Buuren - Feel Again Part 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Oumuamua (5:25)
+02. Armin van Buuren feat. Wrabel - Feel Again (2:58)
+03. Armin van Buuren & The Stickmen Project - No Fun (2:10)
+04. Armin van Buuren & Sam Gray - Human Touch (2:25)(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B35BCBFB25B7669F02E55A7F0F955E36DF76DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154431   (556375) от 31.05.2019
 
 Afterlife - Collection 5 Albums (2014-2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, Lounge>
@@ -684,64 +742,6 @@ Miromiro (Microstatic, Punchaface) - Discography 5 Releases (2015-2019) Ngirungi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D37EA2728999EE44CF421144C56EAC3873ED4191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307375   (555079) от 09.06.2019
-
-Flying Cobra - Data (2019) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emergence (05:38)
- 02. Errors And Faults (06:11)
- 03. Through The Digital Fog (08:28)
- 04. Blossoms Showered As Rain (06:05)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B909E3BBC67A6A229FABB5A9C067C8F9B6410C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307419   (555072) от 09.06.2019
-
-VA - Deep House Summer (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matt Fax  -  To The Ground (Original Mix)
-02.  Dezza  -  Honey (Original Mix)
-03.  Upteka & Heard Right  -  Glimmer (Original Mix)
-04.  Sense8  -  Terra (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 01:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59CB62DB359DFBFA984D0A9CAFAB653790EF79EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

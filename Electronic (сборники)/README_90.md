@@ -1,3 +1,32 @@
+###  Публикация: 1290287   (678480) от 20.03.2019
+
+VA - YR Best Chillout vol.42 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678480.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adler District - The Demons Of My Soul (Original Mix)
+002. AK & SubLab - Isolated (Original Mix)
+003. Alan Walker - Faded (Anton Melody remix)
+004. Alex Spite - Atmosfera (Original Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC3AE9788ABA7AF25765933D66797A6B36951A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029689   (678471) от 28.06.2016
 
 VA - Club Dance Ambience vol.75 (2016) [MP3|320 Kbps] <House, Electro House, Club>
@@ -722,35 +751,6 @@ VA - The Sweet Lounge Vol.7: Lounge in Naples (2016) [MP3|320 Kbps] <Downtempo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB3347E5FB9908E00A87FE7F3DE48BFBD72E14B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030494   (675000) от 30.06.2016
-
-VA - Digitize Just A Dream (2016) [MP3|320 Kbps] <Trance, Energy, Melodic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAM & Susana -  Someone Like You (Bobina Remix) 5:55
-02. Cosmic Gate & Emma Hewitt -  Going Home (Club Mix) 6:18
-03. Kaimo K & Cathy Burton -  You Deserve Life (Mino Safy Remix) 7:09
-04. Armin Van Buuren Feat. Mr Probz -  Another You (Mark Sixma Remix) 4:42(   Читать дальше...   )Жанр: Trance, Energy, MelodicПродолжительность: 03:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D45833B1EAC24C10EA92E878CFB025B0C5E8D62
 ```
 
 https://mybot314.ru/tekegram_catalog/

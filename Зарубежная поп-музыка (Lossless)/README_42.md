@@ -1,3 +1,32 @@
+###  Публикация: 1146051   (617978) от 27.06.2017
+
+Carole King - The Real... Carole King (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. I Feel The Earth Move
+02. Nightingale
+03. Brother, Brother(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9E7B1249D66D8A8AE26D8176A15B48615AF289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295785   (617024) от 14.04.2019
 
 Bibio - Ribbons (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop, Pop Rock>
@@ -718,35 +747,6 @@ Enrique Iglesias - Latin Collection 2000 (2000) [APE|Lossless|image + .cue] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B56E4817A5BB4DE14BB170F12AEF33C18C08252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297407   (604057) от 22.04.2019
-
-Bananarama - In Stereo (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love in Stereo
-02. Dance Music
-03. I'm on Fire
-04. Intoxicated(   Читать дальше...   )Жанр: PopПродолжительность: oo:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B755F23979392C13570B9F8D9F5E470D276BD45
 ```
 
 https://mybot314.ru/tekegram_catalog/

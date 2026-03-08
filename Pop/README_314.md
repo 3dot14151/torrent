@@ -1,3 +1,61 @@
+###  Публикация: 1195801   (140568) от 30.12.2017
+
+Жанна Добровольская - Одна (1996) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Одна (4:49)
+02 Мартовская кошка (2:34)
+03 Останусь ветром вольным (4:46)
+04 Гавайская ночь (5:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6904143BF28855EE9E32B1E82AE68A973557F4CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087662   (140269) от 30.12.2016
+
+VA - I Love Retro Dance 90's (2010) [MP3|320 Kbps] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. President - Megamix [00:04:46]
+02. Ice Mc - It's A Rainy Day [00:04:14]
+03. Real McCoy - Love & Devotion (Summer Remix) [00:05:35]
+04. Masterboy - Is This The Love (Special Mix) [00:04:39](   Читать дальше...   )Жанр: EurodanceПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4750DC11965A6569494172FF8A6F5C1B41A903D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520659   (140247) от 29.12.2021
 
 V.A. - Big 80's Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
@@ -699,64 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0410DC2DBBE57F58A8F9AEE8E4D05C6AA68C8854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260949   (138480) от 30.12.2020
-
-VA - Хорошо сидим ! Песни русского застолья (1996) [FLAC|Lossless|image + .cue]<Folk>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Коробейники
-02. Ой, цветет калина
-03. Дождливым вечером
-04. Ромашки спрятались(   Читать дальше...   )Жанр: FolkПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C925E3D5BBAEB2A50AD313C9FF181A1D3D260B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679437   (138370) от 25.11.2023
-
-Alesha Dixon - Fired Up (2006) Deluxe Edition, 2023, Back On Wax [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hypnotik [00:03:47]
-02. Lipstick [00:02:47]
-03. Fired Up [00:03:36]
-04. Knockdown [00:03:05](   Читать дальше...   )Жанр: PopПродолжительность: 01:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5381B347E6A7FBA24BE4BD8C5B98241FE49E92
 ```
 
 https://mybot314.ru/tekegram_catalog/

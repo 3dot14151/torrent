@@ -1,3 +1,61 @@
+###  Публикация: 1501031   (838124) от 08.10.2021
+
+Microsha 89 - Микшер русской кибернетики #206 (2021) [MP3|320 Kbps|WEB-DLRip|image + .cue|tracks + .cue] <Synthwave>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microsha 89 - Intro
+02. Microsha 89 - ID
+03. Microsha 89 - Play!
+04. Microsha 89 - 2021(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 02:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5147B596C441F8414FCFB182F3F6ADC067504746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501213   (836674) от 09.10.2021
+
+Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, District Atlanta, United States 2021-10-01) (2021-10-07) [MP3|320 Kbps] <Trance, Techno, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. Binary Finary - 1998 (ID Remix)
+03. Chris Schweizer - El Jefe
+04. ID vs. Kaskade - ID vs. Angel on My Shoulder(   Читать дальше...   )Жанр: Trance, Techno, Big RoomПродолжительность: 02:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E226A174150C8240015DC8535FDD9B491FF4A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501389   (836548) от 09.10.2021
 
 Korolova - Live @ Guaba Beach Bar Limassol, Cyprus (2021-09-10) [MP3|320 Kbps] <Progressive House, Deep House>
@@ -687,64 +745,6 @@ Josh Le Tissier - Ministry of Sound - HD Life presents Fresher Land (2021-10-07)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE7AFA582364609C7E41CE282E9CC88444FB7A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507500   (798293) от 05.11.2021
-
-VA - Live @ ABGT 450, (The Drumsheds London, United Kingdom) (2021-09-04) [MP3|320 Kbps] <Progressive House, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Above & Beyond @ ABGT 450 (Deep Warm Up Set), River Lea London, United Kingdom:
-01. Ben Bohmer feat. lau.ra - Erase
-02. Powel - Chapek 9
-03. Fehrplay - ID(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 09:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607FC8BD3F0B493C485619A1407ACC949A947BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507617   (798289) от 05.11.2021
-
-CamelPhat - Live @ The Palms, CRSSD Fest, United States (2021-09-25) [MP3|320 Kbps] <Progressive House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sima - X0X Dub (Sworn Virgins Remix)
-02. RUFUS DU SOL - Next To Me (Adana Twins A Night At Revolver Version)
-03. Toni Rios ft. Niveska - Closer To You (Sascha Dive S2 Remix)
-04. gardenstate & Bien - The Best Part (Patrice Baumel Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFDDA354A88D13CFB276115614F2E881598319B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

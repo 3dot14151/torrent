@@ -1,3 +1,177 @@
+###  Публикация: 1391490   (781019) от 20.06.2020
+
+VA - Cowboy Blues: Country Fest Music (2020) [MP3|320 Kbps] <Country, Folk, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_781019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Fallon - Hard Feelings
+02. Allison Moorer - Heal
+03. Ingrid Andress - Life Of The Party
+04. Aaron Watson - Heartstrings(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 05:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31CB6ECC6DE142DAD89CE520B1246D779716E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391337   (781002) от 20.06.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 19.06.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_781002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mari Ferrari with M.Z.I & S-ELM feat. Vianne - Drop Dead 2:32
+02. Pascal Letoublon - Friendships 4:02
+03. Zivert - ЯТЛ 3:44
+04. Ava Max - Salt 3:00(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E028180C768F87CDD4DBF6E773C52252DCF7ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391486   (781001) от 20.06.2020
+
+VA - Beatport Deep House: Electro Sound Pack #107 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_781001.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Frank Rain - Deep Vertigo
+002. Velvet House - This Is A Supernova
+003. Frank Fusto - A Passion To Explain
+004. Armand Gucci - Syncrodance(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 07:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6524532C8FA97C87E413FEED273B46867481C1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391465   (780946) от 20.06.2020
+
+Сборник - Вспоминая СССР. Любимые песни 2 (1960-1969) от DON Music, 2020 [MP3|320 Kbps] <Поп, Ретро>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780946.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Майя Кристалинская - Всегда со мной (1960)
+002. Ружена Сикора - Приходи скорей (1960)
+003. Леонид Утёсов - У Чёрного моря (1960)
+004. Валентина Левко - А годы летят (1960)(   Читать дальше...   )Жанр: Поп, РетроПродолжительность: 07:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26744A1421FDF420E3D5EBB87C3AF7F8B4D8C4A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207357   (780864) от 17.02.2018
+
+VA - Record Super Chart #524 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
+02.  Maruv & Boosin  -  Drunk Groove (Kolya Funk & Mephisto Radio Mix)  3:43
+03.  GSPR  -  With You  4:17
+04.  Vanotek feat. Eneli  -  Back To Me (DJ Mexx & DVJ Karimov Radio Remix)  3:02(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC13BBA0B8D12DA42A32B1D9531EA4F66E2A1EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207142   (780854) от 17.02.2018
+
+VA - We Love Bossa Nova (2018) [MP3|320 Kbps] <Downtempo, Jazz, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florito – A La Playa
+02. Alberto Dos Santos – Copa Brasil
+03. Rob Hayes, Angelina – Just Be Good To Me (Latin Breeze Remix)
+04. Ginger Tunes – Black Orpheus(   Читать дальше...   )Жанр: Downtempo, Jazz, HouseПродолжительность: 04:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4CDEDF15D49C3986C54F17C05EF6C05E42158D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207089   (780810) от 17.02.2018
 
 VA - Vocal Trance Collestion Vol. 8 (2018) [MP3|320 Kbps] <Trance>
@@ -575,180 +749,6 @@ VA - Best Club Hits: January (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52DCE5C784244EC212157F3A4C045EF9987AD9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207869   (780269) от 20.02.2018
-
-VA - Lounge Of Sleep (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780269.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Cayo Largo  -  I Don't Need Your Number (Original Mix)  3:55
-002.  Marga Sol  -  Feelings For Free (Original Mix)  5:06
-003.  Stuce The Sketch feat. Wenawedwa  -  Silver Days (Original Mix)  4:15
-004.  CJ RcM  -  Tidal Bore (Original Mix)  4:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7D952AB3752269B54774B8BB1729C7EC3AB544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207895   (780227) от 20.02.2018
-
-VA - Большой Мальчишник (2018) [MP3|320 Kbps] <Поп, Шансон, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Вика Цыганова  -  За мужчин  2:42
-02.  Чиж & Co  -  На поле танки грохотали  3:51
-03.  Блестящие  -  Идёт солдат по городу  3:41
-04.  Гуляй поле  -  На войне, как на войне  4:18(   Читать дальше...   )Жанр: Поп, Шансон, РокПродолжительность: 03:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C57BC4CD7FB11E3A247A3E1F5FCC900816A319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207880   (780205) от 20.02.2018
-
-VA - Музыкальный Деликатес (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780205.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юля Шатунова - А выпавший снег
-002. Инфинити - Увлечение
-003. Иракли - Online
-004. Михаил Грицкан - Снежная баба(   Читать дальше...   )Жанр: PopПродолжительность: 09:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1377082C7686EAD1770646C31DAFA095D895F0B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208145   (780107) от 21.02.2018
-
-VA - Winter Twilight: Eurodance Party (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Digital Base Project - Life Is A Speedway (Original Version)
-002. Abundance - Diamonds (Original Mix)
-003. Latisha Van Simon - Let's Make Love
-004. Adam Walker - Pump It (Instrumental Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0EBB71EA59DD9A00E1C3C0B0FBEC13C07D457B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208197   (780103) от 21.02.2018
-
-VA - Hits Cocktail Vol.16 (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KSHMR feat. Sidnie Tipton - House Of Card
-02. Alison Wonderland - Awake
-03. Gromee Ft. Lukas Meijer - Light Me Up (Original Mix)
-04. Kery Fay - Secrets (Scotty Rmx)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8E43F39E66F7B94E2F451DEBD7E99622F2E825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208165   (780073) от 21.02.2018
-
-VA - Сердцу В Такт: Лирика Шансона (2018) [MP3|256-320 Kbps] <Шансон, Лирика>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780073.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Курган - Сердцу в такт
-002. Сборная Союза - Разные Мы
-003. Ирина Аллегрова - Любовь Жадная Дура
-004. Виталий Гордей - Где-То Там(   Читать дальше...   )Жанр: Шансон, ЛирикаПродолжительность: 12:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570B3E9E5EC71CCF64BB3B0AB5B0167DE1C74249
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1142736   (641064) от 15.06.2017
+
+VA - Chill House Ibiza 2017 (Finest Chill House Music) (2017) [MP3|320 Kbps] <House, Deep House, Chillhouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max TenRoM - Aurores (Extended Mix)  6:38
+02.  Frans Strandberg - Tropical Dreams  5:47
+03.  Shottle - Way Out  3:10
+04.  Adala - Audi (Extended Mix)  6:52(   Читать дальше...   )Жанр: House, Deep House, ChillhouseПродолжительность: 01:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F5C9C0FFF121B0CEC09236B16862EBFDADF00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142633   (641061) от 15.06.2017
 
 VA - Ibiza Beach Chill House Club Party Del Mar (2017) [MP3|320 Kbps] <Deep House, Chill House>
@@ -734,35 +763,6 @@ VA - Paris Fashion Beats Vol.1 (Finest Electronic Style Beats Collection) (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69B7E496071FD857EF011E4C7E600845621381C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144158   (628902) от 21.06.2017
-
-VA - Dance Therapy, Vol. 1 (These Bangers Push You To The Limit) (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - Free (feat Wilton De Grey - Dancecom Project radio cut)
-02. Tydra - Sunshine (Mavaro & Maxtreme remix)
-03. Amoon - Since You've Been Gone (feat Pit Bailey - Club mix)
-04. Fooh Funk - Be In Love (Mario Chris remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB83800C6BC495BDECDFACF3DF31056453B681A
 ```
 
 https://mybot314.ru/tekegram_catalog/

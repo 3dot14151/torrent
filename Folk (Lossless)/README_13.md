@@ -1,3 +1,32 @@
+###  Публикация: 1700804   (115503) от 26.02.2024
+
+Meldis - Арфография (2007) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wherever he goes
+02. Rambe's to Cashel/Planxty Captain O'Kane
+03. Cruel Sister
+04. Lorient(   Читать дальше...   )Жанр: Folk, Celtic HarpПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A401247DCA26E78F08EA43C3F2EB9B8813E7EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706950   (113192) от 19.03.2024
 
 Лёдъ - Ни чужих, ни своих (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Neofolk>
@@ -724,35 +753,6 @@ VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13038A18CA1B5AB2ECD73C996B705B284181B4AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792096   (67760) от 17.04.2025
-
-VA - Lost in Thoughts: Sentimental Rock Folk Soundtrack (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Atwater Collective - You Are My Rock (3:54)
-02.  Paul James Moore - Good Morning Sun (3:27)
-03.  Sten Veiths - Die Young (4:09)
-04.  Tanya Shakison - Give Me a Sign (3:12)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C61F3F1AC3B90D5B4722D72B84CCFB5D6E41AFFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

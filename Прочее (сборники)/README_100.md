@@ -1,3 +1,116 @@
+###  Публикация: 1560829   (518735) от 01.07.2022
+
+VA - Music News vol.199 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518735.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Loredana - Dans, Dans, Dans (03:10)
+ 002. 4ETVERGOV - Шакалака Бум (02:18)
+ 003. Aize feat. Troshin - Cry Me a River (03:05)
+ 004. Alessiah - Summer Feeling (Niine & Black Harmony Remix) (02:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0294EEBE9907D31ABFB68FBC2A6C90933F925698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533522   (518694) от 14.08.2012
+
+VA - Сборник Клубной Музыки Vol.13 От Seva57 (2012) [MP3|320 кб/с]<Pop, Club, Electro, Electro-House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Club, Electro, Electro-HouseПродолжительность: 07:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5615B4DB0ABA6CC17EEEC0BF6252A2C1B3AE2DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314709   (517135) от 16.07.2019
+
+VA - не Громкие новинки недели 25 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517135.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Aedanz - Сдаюсь (2:34)
+2.Chris Yank - На Заднем (2:33)
+3.Denis Agamirov - Волнами (3:20)
+4.Enrasta - Ты Кайф (3:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DF630005F29EDD74282E52FF6007132928C225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561176   (516501) от 03.07.2022
+
+VA - Русская дискотека 90-х-2000-х (2014) [MP3|320 Kbps] <Pop, Dance, Shanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516501.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Иванушки International - Тополиный пух
+002 Никита - Улетели навсегда
+003 Полина Ростова - По краю дождя
+004 Краски - Сегодня к маме я приехала домой(   Читать дальше...   )Жанр: Pop, Dance, ShansonПродолжительность: 28:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6B76EB05DEFC568410B4C9D2275952DD87CC90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242131   (516188) от 21.08.2018
 
 VA - Prime Latin Nights (2018) [MP3|320 Kbps] <Latin, Reggaeton, Dance>
@@ -635,128 +748,6 @@ VA - Зайцев нет. Лучшие новинки августа (2015) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1088B4FCD4F641522D6543E9BC2556DD7191BEC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537260   (511271) от 21.08.2012
-
-VA Радио 7. Tоп 100 (2011) [MP3|320 кб/с]<Pop, Rock, Jazz>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511271.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Amel Bent - Ou Je Vais (4:30)
-2. Seal - Secret (3:21)
-3. Michael Jackson - Hold My Hand (Duet with Akon) (3:32)
-4. Nell Bryden - Goodbye (3:32)
-5. Jasper Forks - River Flows in You (Lasershow Pacific Mix) (3:46)
-6. Ne-Yo - One In A Million (4:03)
-7. Leona Lewis - Better In Time (3:54)
-8. Bruno Mars - Just The Way You Are (3:38)
-9. Arash - Pure Love (feat. Helena) (3:15)
-10. Jason Mraz - Lucky (feat. Colbie Caillat) (3:08)Жанр: Pop, Rock, JazzПродолжительность: 06:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A4C1A256707134BCD693E59AB9716018B80B8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315878   (510990) от 22.07.2019
-
-VA - Dancehall And Reggae Party (2019) [MP3|320 Kbps] <Reggae, Dancehall>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510990.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ancient Man - Mr Boss
-002. Dycr - He Don't Love You
-003. Radical Dance Faction - Surplus People
-004. Brother Mikey - Waiting(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 06:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4BAA9AAF524566872745939E9BD6E52D1D3AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315860   (510984) от 22.07.2019
-
-VA - The Official UK Top 40 Singles Chart 19.07.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510984.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ed Sheeran feat. Khalid - Beautiful People (3:17)
-2.Shawn Mendes & Camila Cabello - Senorita (3:11)
-3.Ed Sheeran, Stormzy - Take Me Back to London (3:09)
-4.Ed Sheeran, PnB Rock, Chance the Rapper - Cross Me (3:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B6AFC95791AE419930CFDAADEAB19D6C5034EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932076   (510194) от 28.08.2015
-
-VA - Poolside Ibiza: Kolombo, Autograf (2015) [MP3|320 кб/с]<Electronica, Tech House, Disco, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatboy Slim - Mad Flava (Autograf Remix) 04:42
-02. Bob Sinclar Feat. Dawn Tallman - Feel The Vibe (Kolombo Remix) 05:26
-03. Lane 8 Feat. Patrick Baker - Ghost 03:24
-04. Odesza Feat. Shy Girls - All We Need (Autograf Remix) 06:10(   Читать дальше...   )Жанр: Electronica, Tech House, Disco, Nu-DiscoПродолжительность: 06:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD7EF368747BF89C545122E7C7F61AAA0E919D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

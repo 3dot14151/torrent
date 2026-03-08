@@ -1,3 +1,122 @@
+###  Публикация: 1257556   (344726) от 26.10.2018
+
+The Prodigy - No Good (2016) Remix [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Prodigy - No Good ★ DJ SAVIN Remix ★ Radio VersionЖанр: Deep HouseПродолжительность: 00:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327C1CBC6127D67F84155CA94878CB771F3D3034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418820   (344546) от 26.10.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 23.10.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RAYE - Natalie Don't (3:14)
+02. twocolors - Lovefool (3:10)
+03. Dotan - NUMB (3:38)
+04. Hurts - Redemption (4:18)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1787742CC8F27AFC50E5DEACD375F8B6DDF03F06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579794   (344532) от 24.11.2012
+
+VA - Танцевальный рай Dream House (2007) [MP3|320 кб/с]<Dance,House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJ Dado - Metropolis '2006
+ 02 Project Driver - Join the dream
+ 03 Ronald Snypes vs. Robert Miles - Children (dreamphase vers.)
+ 04 Mid Air - Killing me softly (Fugees)
+ 05 Wisehand - Timeless
+ 06 Adriatic - Memories
+ 07 Zhi-Vago - Celebrate (the love) radio mix
+ 08 Floribunda - Floribunda
+ 09 F-Project - Cry for love
+ 10 Taucher - WinterloveЖанр: Dance,HouseПродолжительность: 04:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1559CFA68529CF686E5B338230488B47405CA68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418880   (344211) от 26.10.2020
+
+VA - Зайцев.нет Лучшие новинки Октября (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2nd Season - Чужой Тебе (3:18)
+02. Andrea Bocelli - You'll Never Walk Alone (3:21)
+03. Andro, Qontrast, Hiro - Гипноз (3:08)
+04. Armin van Buuren, Jake Reese - Need You Now (3:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1C36F84642368A70E18162DB37D04488AC46F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179921   (343994) от 02.11.2017
 
 VA - Новинки С Разных Популярных MP3 Сайтов Vol.66 (2017) [MP3|320 Kbps] <Pop, House, Dance>
@@ -646,119 +765,6 @@ VA - O3 Greatest Christmas Hits (2016) [MP3|320 Kbps] <Glam Rock, Synthpop, Chri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D00A73D7C2321C124E22FA0B3C87D4FA5E2F2FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258142   (337988) от 29.10.2018
-
-Teriyaki Boyz - Tokyo Drift (2017) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337988.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Teriyaki Boyz - Tokyo Drift ★ DJ SAVIN & Alex Pushkarev ★ Remix Radio VersionЖанр: Club, DanceПродолжительность: 00:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DA801B435704DAEB825F221F501A62975D2D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180936   (337364) от 05.11.2017
-
-VA - По волне моей памяти P.S (Постскриптум ) диск 2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Николай Трубач - Научись играть на гитаре  4:10
-02.  Александр Кальянов - Старое кафе  3:44
-03.  Игорь Иванников - Мила моя  4:27
-04.  Александр Мураев - Птица счастья  3:20(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EB4D5B98DB1E00947C0F003C7B87158F11C3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180875   (337198) от 05.11.2017
-
-VA - По волне моей памяти P.S (Постскриптум) диск 1 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Саша Айвазов - Лилии  3:55
-02.  Кай Метов - На сердце грусть  4:18
-03.  Марина Журавлёва - На сердце рана у меня  4:11
-04.  Александр Барыкин - Больше не встречу  3:46(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD52FFF45A854BDB1996F75A2B4065EB1AAB5404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330829   (336724) от 12.10.2019
-
-VA - The Official UK Top 40 Singles Chart 11.10.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336724.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Tones and I - Dance Monkey (3:29)
-2.Travis Scott - HIGHEST IN THE ROOM (2:55)
-3.Regard - Ride It (2:37)
-4.AJ Tracey - Ladbroke Grove (3:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08AC0B2F677F45E7D03E6955A6B24E5F6612DDAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1007383   (822466) от 14.04.2016
+
+Crematory - Monument (2016) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822466.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Misunderstood
+2. Haus mit Garten
+3. Die So Soon
+4. Ravens Calling(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD5D39D937DB4B60F7476A5367E903A40788F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598564   (822364) от 09.05.2020
+
+Dimmu Borgir - Spiritual Black Dimensions (1999) [FLAC|Lossless]<Sympho Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reptile [05:16]
+02. Behind the Curtains of Night - Phantasmagoria [03:19]
+03. Dreamside Dominions [05:13]
+04. United in Unhallowed Grace [04:22](   Читать дальше...   )Жанр: Sympho Black MetalПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B9DD78736D95AEE11CBBC12E009EABE572FACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598538   (822271) от 09.05.2020
+
+Demons & Wizards - Touched By The Crimson King (2005) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson King [05:47]
+02. Beneath These Waves [05:12]
+03. Terror Train [04:46]
+04. Seize the Day [05:22](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF9C0BB697AC8E4912E07F3D0A5B3214CACC90B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381878   (822252) от 09.05.2020
 
 System Of A Down (SOAD) - 7 albums, 3 singles, 11CD (1998-2011) [FLAC|Lossless|image + .cue | tracks + .cue] <Alternative Metal, Nu Metal, Post Rock>
@@ -654,93 +741,6 @@ Domain - The Sixth Dimension (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50CE0EC2B1E70F19F255934D27319BCB6E55D97E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117149   (819092) от 22.03.2017
-
-Obituary - Obituary (2017) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brave
-02. Sentence Day
-03. A Lesson in Vengeance
-04. End It Now(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F242B63F88DF1EEABE076D27F74FBC0EEEAB14AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503713   (817974) от 20.10.2021
-
-Scarlet Aura - Stormbreaker (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World Is Not Enough 01:56
-02. Metal Hell 06:03
-03. Battle Cry 04:35
-04. Stormbreaker 04:27(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1156329B16C509938F2D9E79689AA76D62933D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008123   (817950) от 17.04.2016
-
-Ihsahn - Arktis. (2016) Deluxe Editition [FLAC|Lossless|tracks + .cue] <Extreme Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disassembled (5:03)
-02. Mass Darkness (3:52)
-03. My Heart Is Of The North (4:44)
-04. South Winds (5:35)(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3D9B5715742DDE147B92DC331868D5F2E480A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

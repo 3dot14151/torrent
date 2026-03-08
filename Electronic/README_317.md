@@ -1,3 +1,61 @@
+###  Публикация: 1413576   (408350) от 04.10.2020
+
+Thme - That's what it will be like (2020) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Electroacoustic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408350.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Axis matters 05:16
+2. Moving, so slowly 05:08
+3. Obsolete form of beauty 04:49
+4. Odd memory 04:06(   Читать дальше...   )Жанр: Ambient, Drone, ElectroacousticПродолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD108ADD56B131B3C433102C4DFB5C8DE80359B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413606   (408198) от 04.10.2020
+
+Weber & Weber - Frozen in Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Nu Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally (5:50)
+ 02. Wake up, Get up (5:14)
+ 03. Getting Signals (4:16)
+ 04. Fly on Wings (4:51)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Nu JazzПродолжительность: 01:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1D3EB5B94513807BE953A640CA16EEF211E20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252624   (408070) от 06.10.2018
 
 Ouvala - Psychology Of Colour (2016) Fluid Audio / Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
@@ -732,64 +790,6 @@ VA - Dessous Classics Volume 2 (2012) [MP3|320 кб/с]<Deep House, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C483312A31101F0358D80D0C67F082DB9A8174A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168865   (405057) от 25.09.2017
-
-VA - For New Music Lovers & Dancers (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eargasm – Afrogasmic (dub) 04:34
-02. A M G – 100 (Klav version) 07:34
-03. Akjela – WAdde Viecha 05:46
-04. Greyhawk – Silence (extended mix) 06:19(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B843A7DA3B9890710476349B61AA69D3F67E714D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168855   (405055) от 25.09.2017
-
-VA - Fashion In Profession Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ VoJo — Lost in Sea (Original Mix) 05:16
-02. Oblomov — River of my Love (Original Mix) 04:13
-03. Bobryuko — Hover (Original Mix) 05:20
-04. Ver$us Beatz — You My Novocaine (Original Mix) 05:12(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BED3562F4AB1937AE18D9994835ADC0B411CC2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

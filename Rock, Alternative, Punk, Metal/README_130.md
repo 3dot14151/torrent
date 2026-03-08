@@ -1,31 +1,3 @@
-###  Публикация: 1350861   (1003009) от 07.01.2020
-
-Thurston Moore - Spirit Counsel (2019) 3CD BoxSet [FLAC|Lossless|tracks + .cue] <Art Rock, Experimental, Avangarde>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003009.jpg" />
-</div>
-
-
-###  Подробнее
-
-SPIRIT COUNSEL is a collection of three extended compositions recorded between 2018-19. This collection represents a period of reflection on spiritual matters, collective musical friendships, and a time and space universally, without words or languages to distract from meditation.CD1 - Alice Moki Jayne
-CD2 - 8 Spring Street
-CD3 - GalaxiesПроизводство: The Daydream Library Series – DLS 004CDЖанр: Alternative Rock, Art Rock, Experimental, AvangardeПродолжительность: 02:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC21E963ABEBC1603A12DAB650AC173BEE176DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350740   (1002984) от 07.01.2020
 
 Diablo Swing Orchestra - The Butcher's Ballroom (2006) Reissue, 2008, MALS [FLAC|Lossless|image + .cue] <Avantgarde, Experimental, Heavy Metal, Swing>
@@ -744,6 +716,35 @@ Revel in Flesh - The Hour of the Avenger (2019) [FLAC|Lossless|image + .cue] <De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3788C5D7603ECAE6C8B0589072BEE681AFE8E316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488096   (1002310) от 10.08.2021
+
+Crazy keys - Mystical (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living In Sin 05:00
+02. The Eye Of The Storm 05:13
+03. Wild Side 04:20
+04. Strong For Love 04:20(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382BE46DEFDB0BE727E7873CEB99D48898C68ACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

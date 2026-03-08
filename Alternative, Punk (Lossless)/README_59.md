@@ -1,3 +1,32 @@
+###  Публикация: 1664104   (186271) от 24.09.2023
+
+Day Aches - One Last Dream Before Dying (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hide [00:02:59]
+02. New June [00:02:39]
+03. Leave [00:04:07]
+04. Wait [00:03:45](   Читать дальше...   )Жанр: alternative rockПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630CD7A5ED523C37FD8F9D869D074B1069AD4444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664023   (186261) от 24.09.2023
 
 Never Obey Again - The End Of An Era (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Female Vocal>
@@ -710,35 +739,6 @@ Soul Exchange - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8088BF2D4347C76641C4751BA697013140AA6060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593573   (180539) от 27.11.2022
-
-The Crossed - The Producer Of Suffering (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore, Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rip My Skin [00:03:41]
-02. The Producer Of Suffering [00:03:32]
-03. Two-Faced Bitch [00:03:49]
-04. Horns In The Dark [00:03:18](   Читать дальше...   )Жанр: Progressive Deathcore, Progressive MetalcoreПродолжительность: 00:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C84C24F337E6E0C72E0533DC1CD8C584F6A388
 ```
 
 https://mybot314.ru/tekegram_catalog/

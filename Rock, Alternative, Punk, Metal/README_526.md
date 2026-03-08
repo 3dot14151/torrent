@@ -1,29 +1,3 @@
-###  Публикация: 1048883   (545459) от 03.09.2016
-
-Joe Cocker - The Album Recordings 1984-2007 (2016) 14CD Box Set [FLAC|Lossless|image + .cue] <Rock, Blues, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545459.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данный бокс-сет вошли 14 дисков, включающие 12 студийных альбомов, один концертный альбом и бонусный диск с сингловыми композициями, песнями с американских вариантов альбомов, которые не вошли в европейские издания и пара -тройка саундтреков.Жанр: Rock, Blues, Pop RockПродолжительность: 12:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591EF87F71FE2BFB91F864FA62254493B6F464A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238630   (545451) от 31.07.2018
 
 Slade - The Showplace, Dover NJ, July 30, 1976 (1976) Live [FLAC|Lossless|tracks] <Glam Rock>
@@ -742,6 +716,35 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:615D07255FD71FA23A8F89B94DE5A36A0D3A050A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048997   (544795) от 04.09.2016
+
+New Model Army - Winter (2016) [MP3|320 Kbps] <Alternative Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginning     (06:59)
+02. Burn The Castle     (03:12)
+03. Winter     (04:19)
+04. Part The Waters     (04:25)(   Читать дальше...   )Жанр: Alternative Rock, Folk RockПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D535D54A34E2607E381E8F582532050FEA3530
 ```
 
 https://mybot314.ru/tekegram_catalog/

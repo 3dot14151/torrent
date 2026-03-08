@@ -1,32 +1,3 @@
-###  Публикация: 1136461   (675058) от 22.05.2017
-
-HeadCat - Walk The Walk... Talk The Talk (2011) [MP3|320 Kbps] <Rock & Roll, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Beat
-02. Say Mama
-03. I Ain't Never
-04. Bad Boy(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 00:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A833CBA99B348A5212FCB1D895BEAEDD819FF3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536346   (675016) от 12.03.2022
 
 Radioactive - X.X.X. (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
@@ -756,6 +727,35 @@ Lacrimosa - Zeitreise (2019) 2CD [MP3|320 Kbps] <Symphonic Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E06255E7E4BA51D523347B08654A0FA029BAE008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030335   (673923) от 30.06.2016
+
+Gojira - Magma (2016) [MP3|320 Kbps] <Progressive Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673923.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Shooting Star
+2. Silvera
+3. The Cell
+4. Stranded(   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0992D166BD00B8C01665A45108E76EE8CD48956D
 ```
 
 https://mybot314.ru/tekegram_catalog/

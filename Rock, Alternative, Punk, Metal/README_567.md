@@ -1,32 +1,3 @@
-###  Публикация: 1563759   (502711) от 16.07.2022
-
-Taz Taylor Band - Nocturnal (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasting My Time
-02. Live Fast
-03. Raw Nerve
-04. George's Song(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546249E8AEFAF0117EE877E94D39F556A2CDDE20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563921   (502708) от 16.07.2022
 
 Depressed Mode - 2 albums (2007 - 2009) [FLAC|Lossless|image + .cue] <Symphonic Death, Doom Metal>
@@ -755,6 +726,35 @@ Silent Monolith - Empty Kingdom (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:988B1733A84A4081FD6D5959CC637042FC99E17B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564011   (501722) от 17.07.2022
+
+Graveshadow - The Uncertain Hour (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soldier of 34 (06:04)
+02. Gwynnbleidd (04:18)
+03. Sea of Apparitions (03:55)
+04. The Swordsman (feat. Chelsea Murphy) (05:28)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F555ACFAC4057000D37249CDC12289A97976F92
 ```
 
 https://mybot314.ru/tekegram_catalog/

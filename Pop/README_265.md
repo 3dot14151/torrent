@@ -1,3 +1,61 @@
+###  Публикация: 1359609   (242813) от 15.02.2020
+
+Акула - Кислотный DJ (2001) [MP3|320 Kbps] <Pop, Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кислотный DJ (3:56)
+02. Я Убегаю (3:43)
+03. Не Молчи (4:12)
+04. С Тобою Рядом (4:24)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8875206BBC3036EF74BB23F086D26AD4A04DD3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624225   (242804) от 05.04.2023
+
+VA - Deutscher Schlager Hit Mix (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders - Sie hat es wieder getan (feat. Florian Silbereisen) (3:33)
+02. Zimmermann - Himmelblaue Augen (Single Mix) (3:25)
+03. Nino de Angelo - Jenseits von Eden (3:54)
+04. Tanja Lasch - Marie (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:526E7691579B05D732D471B83123DF81D728C9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627574   (242765) от 20.04.2023
 
 VA - ZYX Italo Disco New Generation Vol. 4 (2014) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
@@ -687,64 +745,6 @@ Enrico Intra - Momento Intra (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:796F0186FEAB6E3C5397147E28940BA9075EC639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372248   (242074) от 03.04.2020
-
-Leonid Agutin - La Vida Cosmopolita (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funky Cha
-02. Quédate
-03. Y Quién Eres Tú
-04. Just a Rainy Day (feat. Al Di Meola)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F4C225206C658BAA36F3D1C620145F87E44AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372161   (242050) от 03.04.2020
-
-VA - Female Pop Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242050.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Lady GaGa - Paparazzi (3:28)
-2. June - A Little Messed Up (2:48)
-3.Christina Aguilera and Lil' Kim and Mya and P!nk - Lady Marmalade (From "Moulin Rouge" Soundtrack) (4:24)
-4.EMMA WAHLIN - Make A Move (Pt. 2) (3:01)(   Читать дальше...   )Жанр: PopПродолжительность: 01:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E25960509CC2223B7904AC7BF6D69199D7ED4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

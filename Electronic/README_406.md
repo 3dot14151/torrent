@@ -1,3 +1,61 @@
+###  Публикация: 1647364   (231439) от 19.07.2023
+
+VA - Zenon Records: 20 Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sumiruna, Ambler - Extrapolated (7:47)
+02. Sourone - Haptic Drift (9:00)
+03. Krumelur - Gamma Marble (6:55)
+04. Airi - Oxygen Session (6:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502DDE192974898434E445ED6490E89800FF1624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646791   (231437) от 20.07.2023
+
+VA - Black Lemon Top 100 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231437.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. KEES POP - Lonely (Extended Mix) [03:31]
+002. oGGe - Without You (Extended Mix) [03:33]
+003. Shrivera - Home [02:54]
+004. Pierluigi Di Prinzio - Forever [03:03](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 05:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F44EA449AB5D3B5BBC7A73AD6BF6658FA5A6774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648083   (231409) от 23.07.2023
 
 Crowd+Ctrl - Smoke & Mirrors (2023) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Silent Shore Trance - Summer (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64AB6B6B527981AE3D3F31DAC3BC39FE685CDFA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649332   (230699) от 27.07.2023
-
-VA - 15 Years Of Enhanced Music, Mixed by Tritonal (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blonde Maze & Attom - I Think About (Original Mix) [3:47]
-02. Faodail - Bloom (Original Mix) [4:43]
-03. PRAANA - Mojave (Extended Mix) [6:24]
-04. Sound Quelle - Deep Chicken (Extended Mix) [5:57](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 06:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7CD9067F824CF724CB4BB184618B1F421CB562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648937   (230693) от 25.07.2023
-
-VA - Keep It Trance Vol. 14 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphed Le Cornett & Dropper Vampire - Closer To Heaven (Extended Mix) [5:45]
-02. Intra De Aeris - Breath Of The Universe (Extended Mix) [7:38]
-03. Heaven & Alone - Immersion (Extended Mix) [6:01]
-04. Daniel Kandi - Balance (Original Mix) [4:38](   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681E1921A757229C460DBCECB833ECC984350933
 ```
 
 https://mybot314.ru/tekegram_catalog/

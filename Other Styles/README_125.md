@@ -1,3 +1,32 @@
+###  Публикация: 1072882   (349469) от 14.11.2016
+
+Enigma - The Fall Of A Rebel Angel (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Eight (feat. Nanuk) [2:18]
+02. The Omega Point [5:39]
+03. Diving [2:52]
+04. The Die Is Cast (feat. Mark Josher) [4:17](   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C00D7CBDEA32C5780A9C833BA191FD6650BBBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953497   (349436) от 04.11.2015
 
 Anima - Sacred Alliance (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
@@ -718,35 +747,6 @@ Trobar De Morte - Beyond The Woods - The Acoustic Songs (2011) [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F3469EA1C1724036C595A55FE8A040E015A97A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257810   (343294) от 27.10.2018
-
-Trobar De Morte - Ouroboros (2016) [FLAC|Lossless|tracks + .cue] <Celtic, Darkwave, Neofolk, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summoning the Gods (4:18)
- 02. Idunn (4:37)
- 03. The Wolf (3:25)
- 04. Yggdrasil (4:40)(   Читать дальше...   )Жанр: Celtic, Darkwave, Neofolk, FolkПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF39645EB1C4FD3BBF9394CC175A5F7E93CA284
 ```
 
 https://mybot314.ru/tekegram_catalog/

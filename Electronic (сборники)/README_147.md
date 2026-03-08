@@ -1,3 +1,32 @@
+###  Публикация: 1065682   (419668) от 23.10.2016
+
+VA - Empty House (Mixed by Deeper82) (2016) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florian Kruse, Hendrik Burkhard - The Ground (Joris Voorn Remix)
+02. Oxia, Nicolas Masseyeff - Connivence (Original Mix)
+03. Yotto - Aviate (Original Mix)
+04. Kevin Yost - Empty House (Original Mix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCF10B4A971AB88628A6EE2124AA88889422E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167101   (419571) от 19.09.2017
 
 VA - Empire Records - Sound Clinic 3 (2017) [MP3|320 Kbps] <Dance, Club, Electro House>
@@ -722,35 +751,6 @@ VA - The Nights of Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9288791D4084BB51354E59398D7650EC50FD0301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947894   (416134) от 18.10.2015
-
-VA - Top 20 October Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LuOrchestra - Midsummer
-02. S.A.T - Dream of the Sea
-03. Jack-o-Lantern - This Game Is Over
-04. A-mase - This Pristine Land(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288A58736E11624FC5B23555027E48BA4B5E9E51
 ```
 
 https://mybot314.ru/tekegram_catalog/

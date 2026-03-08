@@ -1,3 +1,90 @@
+###  Публикация: 1786082   (24156) от 19.03.2025
+
+VA - Organic Yoga (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Phellix - Atshan (6:24)
+02. Molac - Gensivulam (6:44)
+03. Ivan Sandhas - Hymns Of The Sun (Erdi Irmak Remix) (7:00)
+04. Anton Ishutin - Azahara (Serious Dancers Remix) (8:33)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312D061C41F49E56B53FFF485D1FC39F34B2352B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791516   (21451) от 14.04.2025
+
+VA - Night Drive 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HUGEL - I Adore You (3:34)
+02. Martin Garrix - Told You So (3:07)
+03. YouNotUs - Cinema (2:25)
+04. Disclosure - You & Me (Rivo Remix) (3:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827DF6F9A153A48698BAB9B3D28860BC36B999ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791243   (21426) от 14.04.2025
+
+Niel De One - Music 4 Da People (2025) [FLAC|Lossless|tracks] <House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21426.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Music 4 Da People (Intro)
+2. Rain (Original Mix)
+3. Noir (Neoteq Remix)
+4. Let the Music (Original Mix)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DABF2E5AA8C337C0683F126EE48CAB9C2DFE6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792352   (21004) от 18.04.2025
 
 VA - Tibetania Gold 2022 (Selected by Salvo Migliorini) (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
@@ -654,91 +741,6 @@ VA - Ibiza Dance Party 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Club, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8F1FEB7D3248F321E8B0C974D2F26EF040CEE88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806935   (11274) от 16.07.2025
-
-Everything But The Girl - Lullaby Of Clubland (2000) [FLAC|Lossless|tracks +.cue] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Lullaby Of Clubland (Original Mix) 5:27
-02 Lullaby Of Clubland (Markus Schulz Renaissance Vocal) 9:58
-03 Lullaby Of Clubland (Ben Watt Summer Storm Remix) 6:24
-04 Lullaby Of Clubland (Matty Heilbronn II Deep Club Mix) 7:36(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8DDE59C6E432D088E372D6B7130667FCF6730E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809188   (9946) от 29.07.2025
-
-VA - Cafe Beach Chillout Summer Relax 2025 (Irma Cafe) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GIANLUCA PORRO - Positive Reflection (4:32)
-02. Anduze - Priority (3:04)
-03. Sea Breeze - Third Eye (3:10)
-04. Banda Brasileira - Goodbye Stranger (5:20)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62099E794762CE21B63C6E0BC073858CFDC90FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812044   (8011) от 13.08.2025
-
-DJ T. - Rising (2005) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rising 10:36
-02 Galaga 6:14Жанр: Techno, Tech House, AcidПродолжительность: 00:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E4F426D5DF8F4C247BAD2F26164989648EB564
 ```
 
 https://mybot314.ru/tekegram_catalog/

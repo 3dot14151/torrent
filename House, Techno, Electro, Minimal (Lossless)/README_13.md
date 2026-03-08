@@ -1,3 +1,89 @@
+###  Публикация: 1280023   (888786) от 07.09.2021
+
+John Beltran (Placid Angles, Nostalgic) - Discography 43 Releases (1995-2021) Delsin, Ubiquity [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, IDM, Detroit Techno, Future Jazz, Leftfield>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Placid Angles (06:35)
+ 02. Detroit Moments (01:57)
+ 03. Going Home (06:00)Тип издания: CD, Web, VinylЖанр: Techno, Ambient, IDM, Detroit Techno, Future Jazz, Leftfield •Продолжительность: 27:17:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A2B5014659680DB73884D9F042B2F7EB006AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103025   (887894) от 11.02.2017
+
+VA - Cr2 Live & Direct Presents: Secondcity (2017) [FLAC|Lossless|Web-DL|tracks+image] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secondcity & Solarris – Pensive (Dub Mix) (5:59)
+02. Citizenn – Be (Ralph Lawson Dub) (7:34)
+03. Secondcity – 87 Terrace Tech (6:17)
+04. Roberto Apodaca & Le Disxco – T**t Lickin (Samu L Remix) (7:36)(   Читать дальше...   )Производство: CR2 - ITC 2DI209Жанр: Deep HouseПродолжительность: 03:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2930D2EFA84D0320401E43D6A1BAE1C0784BF353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103030   (887336) от 11.02.2017
+
+VA - The Best Of 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medway - Trauma (Donatello remix) [06:41]
+02. Imran Khan - Buenos Aires (original mix) [08:42]
+03. DP-6 - Reload (Rick Pier O'Neil remix) [06:35]
+04. Alfonso Muchacho - Until The End (original mix) [09:34](   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 07:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19783AF607372BE7869BC5AEBE806C25F67F8184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494743   (885922) от 09.09.2021
 
 VA - Best Of Rave 2 (Box Set) (1995) Low Price Music [FLAC|Lossless|tracks] <Breakbeat, Hardcore, House, Techno>
@@ -652,93 +738,6 @@ Bicep - Bicep (2017) Ninja Tune [FLAC|Lossless|tracks+.cue] <House, Techno, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBA4FAE77EC4A32128307DCED3F4238BA7FC3E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998825   (868646) от 20.03.2016
-
-VA - Telrae Mixed By Salz Vol. 2 (2012) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salz - Telrae Mix Vol. 2 (Continuous Mix) (01:19:19)
-02. Van Bonn - Marathon (Dublicator's Long-Distance Dub) (07:33)
-03. Martin Schulte - Urban Wind (Original Mix) (06:14)
-04. Van Bonn - Maserung (Organon Remix) (08:50)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 02:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6AF5B725B99F25DB766F5AFF6CBF7784BE6F59A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998826   (868585) от 20.03.2016
-
-VA - Telrae Mixed By Salz Vol. 5 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefan Gubatz - Cologne (11:59)
-02. OVC - Sortavala (08:21)
-03. Cio D'or - And On (06:56)
-04. Taster Peter - Dub inquieta (Salz Remix) (06:21)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 02:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6755C1EBA7F479549B17EEC3B5DBE72AEDF2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998690   (868389) от 20.03.2016
-
-VA - Serious Beats 83 [Mixed by Ar-Tee] (4CD) (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Drum and Bass, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868389.jpg" />
-</div>
-
-
-###  Подробнее
-
-DISC 1
-01. Netsky feat. Digital Farm Animals - Work It Out (3:15)
-02. Sigala feat. Bryn Christopher - Sweet Lovin' (Extended Mix) (4:57)
-03. Sigma & Rita Ora - Coming Home (3:31)(   Читать дальше...   )Жанр: House, Progressive House, Drum and Bass, Electro HouseПродолжительность: 04:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB7CC8D1C9FA8FABD62CB5426B5836F496D5515
 ```
 
 https://mybot314.ru/tekegram_catalog/

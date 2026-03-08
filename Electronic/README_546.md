@@ -1,3 +1,61 @@
+###  Публикация: 1817798   (2906) от 13.09.2025
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 13 (2025) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vybrotek - Sanctuary (Original Mix) [4:10]
+02. North Skies - Existential (Extended Mix) [5:24]
+03. LÜRUM & Adip Kiyoi - Starring To The Sky (Original Mix) [3:30]
+04. Solewaas - Opal (Joe Meils Radio Edit) [3:12](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107B4051EA14E3BC78775CFB0776210D439EEA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816640   (2813) от 14.09.2025
+
+VA - Tomorrowland Belgium (2025) [MP3|320 Kbps] <House, Trance, Techno, Drum & Bass>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Agents Of Time @ Freedom Stage, Tomorrowland Weekend 1, Belgium 2025-07-19:
+Alan Walker @ Mainstage, Tomorrowland Weekend 1, Belgium 2025-07-19:
+ALOK @ Mainstage, Tomorrowland Weekend 1, Belgium 2025-07-18:
+Argy @ Freedom Stage, Tomorrowland Weekend 1, Belgium 2025-07-20:(   Читать дальше...   )Жанр: House, Trance, Techno, Drum & BassПродолжительность: 104:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E3B4840412EFE614C26BE7DEDD4BB7166E8AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818277   (2615) от 15.09.2025
 
 VA - Bikini Machines, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -687,64 +745,6 @@ VA - Summer Sunset (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8218F38EA6ECE0F0BEC5FD0C97468692CBD05D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820039   (761) от 26.09.2025
-
-VA - Armin van Buuren - A State Of Trance 1244 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten ft. HALIENE – Wherever You Are (Hel:sløwed Reprint)
-02. Arni – Drill
-03. JOA – No Games
-04. Eugenio Tokarev & Goontha – Out Of My Mind(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F35BDB06B8BB52E6C6816A7D2B583C2ED35A523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820040   (742) от 26.09.2025
-
-VA - Ori Uplift - Uplifting Only Episode 659 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ADOVE – Lavender Field (Intro Edit)
-02. Illitheas – Solitude
-03. Global Influence – Depth Of My Dreams
-04. DJ Tony Magic & Yuri Melnikov – Message From The Past(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79D41B51CDFF0833BB6221BC37F2BE455940CEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

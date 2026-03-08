@@ -1,3 +1,61 @@
+###  Публикация: 1193873   (261819) от 23.12.2017
+
+VA - Ori Uplift & Darren Porter - Uplifting Only 254 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.FAN FAVORITE: illitheas - Levity
+02.FAN FAVORITE: Manuel Rocca - Amortentia
+03.Ross Rayer - Dreamer (Greg Dusten Remix) (EXCLUSIVE PREMIERE)
+04.Phynn Feat. Tiff Lacey - Try Again (Arctic Moon Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4B4FF09F5D2943EEBD4B66A2B942ACE9881730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193902   (261817) от 23.12.2017
+
+The Auranaut - Divine Ordinance (2012) Power Circle Records [FLAC|Lossless|WEB-DL|tracks] <Breaks, Downtempo, Psybient, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divine Ordinance (07:54)
+ 02. Highway At Night (08:33)
+ 03. Phazey World (07:16)
+ 04. Devision Man Made Decision (06:41)(   Читать дальше...   )Жанр: Breaks, Downtempo, Psybient, AmbientПродолжительность: 01:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED994382CD1FD5BDFCF4ACC6B74BBFE4CD669CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193937   (261816) от 23.12.2017
 
 VA - House Party (2017) [MP3|320 Kbps] <House>
@@ -683,66 +741,6 @@ VA - The Orient Collective: Journey Within (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E0D8C488C54DCFA41954CB15A26D4B1BA3B96D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503435   (259555) от 30.05.2012
-
-Groove Coverage feat. Rameez - Think About The Way (WEB) (2012) [MP3|320 кб/с]<Electronic, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Think About The Way (Single Edit) 03:13
-02. Think About The Way (Club Mix) 04:40
-03. Think About The Way (Extended Version) 04:38
-04. Think About The Way (Rob & Chris Remix) 04:55
-05. Think About The Way (DJane HouseKat Remix) 04:01Жанр: Electronic, DanceПродолжительность: 00:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F73FE04C67C17BCAEC451C670151883E039566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503408   (259522) от 30.05.2012
-
-Alice DeeJay - Better Off Alone (Laidback Luke Remixes) (WEB) (2011) [MP3|320 кб/с]<Electronic, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Off Alone (Laidback Luke Hit Radio Remix) 02:46
-02. Better Off Alone (Laidback Luke Dance Radio Remix) 03:15
-03. Better Off Alone (Laidback Luke Full Length Remix) 05:02
-04. Better Off Alone (Remastered 1999 Original Hit Radio Mix) 03:34
-05. Better Off Alone (Remastered 1999 Original Mix) 06:49Жанр: Electronic, DanceПродолжительность: 00:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CEDE66AB739E25BFAC22FEEC4F61EC9F97BBE8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

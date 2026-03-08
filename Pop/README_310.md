@@ -1,3 +1,61 @@
+###  Публикация: 1086219   (147963) от 26.12.2016
+
+Екатерина Денисова и группа 'Русский стилль' - А вишня красная (2015) [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пойми
+02. А вишня красная
+03. В новогоднюю ночь
+04. Тёплого лета(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCAD21C0A13D0A4CA6C7E71937CEF1DE7AC3A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434858   (147872) от 26.12.2020
+
+Maxx - To The Maxximum (1994) [FLAC|Lossless|tracks + .cue]<Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To The Maxximum Part 1 2:17
+02. To The Maxximum Part 2 2:17
+03. No More ( I Can't Stand It ) 4:40
+04. I Can Make You Feel Like 5:55(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988AB4DBB046F65A8B70956C5B7340ED3B96FB47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434853   (147707) от 26.12.2020
 
 Stars On 45 - The Best Of (2005) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:630F2DCAAA6789F1720FEBA88B337559DEF6FD11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969405   (146404) от 27.12.2015
-
-Профессор Лебединский - 1995-2015: 20 лет (2015) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я убью тебя, лодочник
-02. Падает снег
-03. Зато меня любят таксисты
-04. Я никому не скажу (Зима)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BF664F8E04A365009B8931C38A1C6F5B7AE2E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348220   (146340) от 26.12.2019
-
-Drezden - Эдельвейс (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146340.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ЭДЕЛЬВЕЙС
-2. ДАВИДА ОЛЕНЬ
-3. О'ХЕНРИ
-4. АЛАДДИН(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89F5721B6E3B1046F8AD6486128EBC9B42128E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

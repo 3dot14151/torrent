@@ -1,3 +1,61 @@
+###  Публикация: 1271413   (150289) от 23.12.2018
+
+Don Amore - Memories Of Dreams (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Only Want You (Intro) 03:00
+2. Long Ago 07:09
+3. Don't Leave Me Tonight 06:05
+4. In Your Eyes 06:31(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B59028EF8806DC9C48B30E3C6A5BA6D32AC332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677473   (150284) от 18.11.2023
+
+VA - NOW That's What I Call 40 Years (2023) Vol. 1-4, 12 CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Britney Spears - ...Baby One More Time [3:32]
+02. Steps - Tragedy [4:31]
+03. Eiffel 65 - Blue (Da Ba Dee) [3:40]
+04. Gabrielle - Rise [3:40](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 15:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE5DEE5B7F056E0ED706212A8DED799E7A9DC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271439   (150276) от 23.12.2018
 
 Jessie J - This Christmas Day (2018) [MP3|320 Kbps] <Pop>
@@ -682,64 +740,6 @@ Sandra - The Wheel Of Time (2002) [FLAC|Lossless|image + .cue] <Pop, Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9E56D42FE4AE09FF1C8023378AA963CA9C53442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086219   (147963) от 26.12.2016
-
-Екатерина Денисова и группа 'Русский стилль' - А вишня красная (2015) [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пойми
-02. А вишня красная
-03. В новогоднюю ночь
-04. Тёплого лета(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCAD21C0A13D0A4CA6C7E71937CEF1DE7AC3A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434858   (147872) от 26.12.2020
-
-Maxx - To The Maxximum (1994) [FLAC|Lossless|tracks + .cue]<Electronic, Euro House, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To The Maxximum Part 1 2:17
-02. To The Maxximum Part 2 2:17
-03. No More ( I Can't Stand It ) 4:40
-04. I Can Make You Feel Like 5:55(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988AB4DBB046F65A8B70956C5B7340ED3B96FB47
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 824125   (468728) от 23.09.2014
-
-Проекты - VideoHive - Coffee Bundle - 8627316 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рекламный проект с разными сценами для создания презентации кофейного логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2369D41333206279B43B2576569605407C1026B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 824275   (468726) от 23.09.2014
 
 RevoStock - Graffiti Alley - 129221 [AEP]
@@ -674,6 +648,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A28FF700DC646F6F5440E0F78E46C3F6BBF72D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 825477   (460027) от 27.09.2014
+
+Pond5 - Slide Corporate Presentation - 40832114 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для вашей видеопрезентации.
+Превью, файл помощи - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C7A945F984EE285A0FE2C9C0E68FD71D0B0DF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1729759   (42035) от 29.09.2024
+
+Yotto - Odd One Out Radio (001-017) (2024) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CamelPhat & SOHN - Turning Stones (Mind Against Remix)
+02. Mia Mendi & TH;EN - Collapsing Sky
+03. Vintage Culture & NoMBe - Pleasure Chasers
+04. Marsh ft. Leo Wood - Heartbreak(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 17:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C632EEF7847EAFA170977E9F1E3B454517022992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752249   (41995) от 29.09.2024
+
+VA - Kontor Top Of The Clubs 2024.02 (2024) [MP3|~245 Kbps (V0)] <House, Club, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris - Feel So Close (Radio Edit) [03:26]
+02. OneRepublic, Alesso - If I Lose Myself (Alesso vs. OneRepublic) [03:34]
+03. The Underdog Project - Summer Jam (Jerome Remix) [02:45]
+04. Eric Prydz - Pjanoo (Radio Edit) [02:39](   Читать дальше...   )Жанр: House, Club, Progressive, DanceПродолжительность: 08:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E11961C09B913D19210B76702A5FE6ABDA6631B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752399   (41912) от 30.09.2024
 
 Mr.Kitty - Unreal (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
@@ -687,64 +745,6 @@ VA - FSOE ADE Compilation (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC40B19E76FFECBEDB70A7B92A23DC1BAE831175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755376   (40163) от 16.10.2024
-
-Hot Chip - Coming On Strongerer (2004) 20th Anniversary Deluxe Edition, 2024, Moshi Moshi Records [MP3|320 Kbps] <Synth-Pop, Indie Pop, Electro>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hittin Skittles [00:04:30]
-02. Marrow [00:04:49]
-03. My PC (20th Anniversary Deluxe Edition) [00:03:05]
-04. From Drummer To Driver [00:04:24](   Читать дальше...   )Жанр: Synth-Pop, Indie Pop, ElectroПродолжительность: 2 CD, 01:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69C77A334BCEDC3B9255BF1EFA7312783F8E7C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755460   (40160) от 16.10.2024
-
-Fever Ray - Live at Troxy (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Synth-pop, Leftfield>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Itch (Live) [00:05:28]
-02. A Part Of Us (Live) [00:03:52]
-03. When I Grow Up (Live at the Troxy) [00:04:26]
-04. Mustn't Hurry (Live) [00:04:35](   Читать дальше...   )Жанр: Dance-pop, Synth-pop, LeftfieldПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B45424C79F7DCD98D4E37AC5EF87DC5DA830D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

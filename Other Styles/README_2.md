@@ -1,3 +1,32 @@
+###  Публикация: 314732   (1030601) от 18.02.2021
+
+Bernd Steidl - Paganiniana (2001) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hrx 		        (00:25)
+02. Made in Germany 	(03:06)
+03. Apocalypse 		(04:51)
+04. Paganiniana 1 	(02:02)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D78677D48A73194545776A0E48661E5DB5DC34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288570   (1030598) от 18.02.2021
 
 VA - Original Musette (2000) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
@@ -716,35 +745,6 @@ Teufelstanz - In Omne Tempus (2015) [FLAC|Lossless|image + .cue] <Medieval Folk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6BC302CC2AB8C280CF0FF94C09516CA259319FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622381   (1030267) от 28.03.2023
-
-Dark Diva - 3 Albums (2021-2023) [MP3|320 Kbps] <Trip Hop, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - Отчуждение
-2022 - Плач покинутых детей
-2023 - ЙойкЖанр: Trip Hop, FolkПродолжительность: 3 CD, 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6E2616D33623B4E6163F871D20DE7C08E77069
 ```
 
 https://mybot314.ru/tekegram_catalog/

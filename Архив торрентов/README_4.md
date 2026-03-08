@@ -1,3 +1,30 @@
+###  Публикация: 1604551   (1045315) от 14.01.2023
+
+RAR Extractor  - unzi‪p‬ 10.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045315.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAR Extractor может извлекать сжатые файлы во всех большинстве форматов (более 50 форматов).
+Поддержка RAR, ZIP, 7z, pak, pkg, apk, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, l zma , xip, ace, arj, lbr, lqr, cab, rpm, cpt, sea, exe, msi, cpio, lzx, jar, swf, pdf, nsa, dcs, spk…Тип издания: macOS SoftwareРелиз состоялся: 02.01.2023Разработчик: © 2022 ElimisoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67436AB519E64A5610D301143671A94534526D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604623   (1045307) от 14.01.2023
 
 Text Editor Pro 25.0.0 + Portable + Bonus [Multi/Ru]
@@ -649,32 +676,6 @@ Smooze одушевляет ваш скролл и добавляет функц
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96B4ED67705F96CAE36561663F2A4E87C04B762D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605123   (1045115) от 16.01.2023
-
-Apeaksoft Screen Recorder for Mac 2.1.32 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045115.jpg" />
-</div>
-
-
-###  Подробнее
-
-ApeakSoft Screen Recorder - это приложение, с помощью которого можно записывать определенную область на экране компьютера. Вы можете использовать утилиту для записи онлайн фильмов, радио, делать видеоинструкции, записывать видео из игр и с вебкамер.Тип издания: macOS SoftwareРелиз состоялся: 04.01.2023Разработчик: © 2023 Apeaksoft StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16A7032782F666FF0CECE75668BA7C665D50049
 ```
 
 https://mybot314.ru/tekegram_catalog/

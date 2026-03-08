@@ -1,3 +1,32 @@
+###  Публикация: 1030318   (674414) от 30.06.2016
+
+J Stallworth - Unleashed (2016) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674414.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (Romans 6.4-6) (0:45)
+2. Theme, Pt. 1 (6:24)
+3. A New Day, Pt. 2 (4:12)
+4. Joy Comes in the Morning, Pt. 3 (6:06)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6251934FABCF92BDD462EAD168B18D965DB6655B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290765   (674334) от 22.03.2019
 
 Tom Russell - October in the Railroad Earth (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
@@ -734,35 +763,6 @@ Baba Yaga's Stew - Baba Yaga's Stew (2019) [FLAC|Lossless|tracks + .cue] <Folk, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13DCA18FF7268318EBE5CACDCA1CFB12ED931091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031229   (668647) от 03.07.2016
-
-Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Promise of Love [00:05:08]
-02. Energy [00:09:03]
-03. Pure [00:05:51]
-04. Seraphim (The Spirits of Love) [00:07:39](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE3EB6D93A6B94B7D917B6DC87896741D8715DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

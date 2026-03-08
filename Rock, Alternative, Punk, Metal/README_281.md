@@ -1,32 +1,3 @@
-###  Публикация: 1273565   (799844) от 02.01.2019
-
-Enemy Inside - Phoenix (2018) Japan [FLAC|Lossless|image + .cue] <Dark Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling Away
-02. Bleeding Out
-03. Phoenix
-04. Lullaby(   Читать дальше...   )Жанр: Dark Modern MetalПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D998D4A184128E674822B0CFE40363DE748B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273582   (799842) от 02.01.2019
 
 Spider - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Rock, Pop Rock>
@@ -744,6 +715,35 @@ Tempel - The Moon Lit Our Path (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88AD109E4485737641F75844E1A9034E9BC2B4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122055   (799250) от 04.04.2017
+
+Tempel - On The Steps Of The Temple (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain (08:31)
+02. Rising From The Abyss (09:06)
+03. Final Years (04:38)
+04. The Mist That Shrouds The Peaks (10:15)(   Читать дальше...   )Жанр: Post-Metal, Progressive MetalПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DC76ED874C7BA9F4B410EB1B86AC28C5187381
 ```
 
 https://mybot314.ru/tekegram_catalog/

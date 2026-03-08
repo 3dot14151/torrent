@@ -1,3 +1,35 @@
+###  Публикация: 498501   (256260) от 21.05.2012
+
+Bernd Reiter Quartet feat. Roman Schwaller - Live At The Jazzland-Vienna (2007) [FLAC|Lossless]<Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strike Up The Band
+02. Theme For Ernie
+03. Ruby, My Dear
+04. Bitter Suite
+05. Cheese Cake
+06. Body And Soul
+07. Dear John2007Жанр: Hard Bop, Post-BopПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836976   (255940) от 13.11.2025
 
 VA - Gotham (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental Jazz>
@@ -772,41 +804,6 @@ Erroll Garner - The Original Misty (1954) (1988) [FLAC|Lossless]<Bop>
 08. All Of A Sudden (3:22)
 09. In A Mellow Tone (4:20)
 10. There's A Small Hotel (3:12)(   Читать дальше...   )1988Жанр: BopПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493813   (248758) от 08.05.2012
-
-The Frank Wess Orchestra - Entre Nous (1990) (1991) [FLAC|Lossless]<Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Order In The Court (6:06)
-02. Entre Nous (4:54)
-03. Blues In The 2% (8:51)
-04. St. James Infirmary (4:55)
-05. Shiny Stockings (5:51)
-06. Lover (4:14)
-07. But Beautiful (7:39)
-08. Imus The Blues (6:25)
-09. Rink Rat (5:29)
-10. Pit Pat Blues (8:19)Жанр: Big BandПродолжительность: 01:02:43
 
 ## Скачать торент
 ```bash

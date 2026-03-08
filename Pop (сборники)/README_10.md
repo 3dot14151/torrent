@@ -1,3 +1,32 @@
+###  Публикация: 1091107   (943103) от 09.01.2017
+
+VA - Singles Chart Hot 100 Billboard (24 December) (2016) [MP3|32-320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943103.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
+002. The Weeknd feat. Daft Punk - Starboy 3:51
+003. The Chainsmokers feat. Halsey - Closer 4:06
+004. Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CCBD66553FD5C4C99300E4B2B6FACBD5A64A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091120   (943026) от 09.01.2017
 
 VA - Зимний драйв. Русский сборник (2016) [MP3|256 Kbps] <Pop>
@@ -713,35 +742,6 @@ VA - Русская дискотека. Энергия хитов (2016) [MP3|25
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56B20DEB2C0E278B097DA1D4B353771142F3A02C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364455   (936248) от 03.03.2020
-
-VA - UNKNOWN 80'S (PART XII) (2020) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dieter Birr - Intim - 1986
-02. Wild Blue - International Language Of Dance - 1986
-03. Our Daughter's Wedding - Take Me - 1984
-04. Slow Children - President Am I (Extended Version) - 1982(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New Wave, Disco, NDW, Minimal etc.Продолжительность: 05:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3D8EDE94912119B83725BD3B9EFCE7A5321398
 ```
 
 https://mybot314.ru/tekegram_catalog/

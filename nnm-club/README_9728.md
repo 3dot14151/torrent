@@ -1,12 +1,94 @@
-###  Публикация: 1291828   (652507) от 26.03.2019
+###  Публикация: 1291806   (652607) от 26.03.2019
 
-Векторный клипарт - Vector Fairy Collection #36 [AI]
+Векторный клипарт - Vector Circus Collection #12 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652507.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Цирк
+25 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4940CAE07F2E09C8D6147A76DDE3173F8A9238C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291065   (652606) от 26.03.2019
+
+Ю. А. Бельчиков, Н. Н. Кохтев | Лектору о слове (1973) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652606.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются разные аспекты работы лектора над языком устного выступления. Авторы рассказывают о принципах выбора слов, о выразительных возможностях русской лексики и фразеологии, останавливаются на вопросах синтаксической организации речевого материала.Жанр: История, филология, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5DCFCE32009AB668338168DBFAD67FB4CB40605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291815   (652605) от 26.03.2019
+
+Векторный клипарт - Vector Easter #09 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Пасха
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948493D85E8E58812B4CAD3A806D623B9A66315C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291825   (652604) от 26.03.2019
+
+Векторный клипарт - Vector Fairy Collection #33 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652604.jpg" />
 </div>
 
 
@@ -18,7 +100,7 @@
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15589DF183FBDD89188B0336D8B25CED6D5419BA
+magnet:?xt=urn:btih:7D6A3027670A5A1614186A4B476D90E500BF4BC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,15 +108,71 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291845   (652506) от 26.03.2019
+###  Публикация: 1291822   (652603) от 26.03.2019
 
-Векторный клипарт - Vector Flowers Collection #95 [AI]
+Векторный клипарт - Vector Fairy Collection #32 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652506.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Сказка
+25 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E5557C119D8D7A4BBC1A99A79833C4BC547EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291826   (652602) от 26.03.2019
+
+Векторный клипарт - Vector Fairy Collection #34 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Сказка
+25 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D22BE5F609B0ABC63B4DB9591FB1D3768752CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291840   (652601) от 26.03.2019
+
+Векторный клипарт - Vector Flowers Collection #92 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652601.jpg" />
 </div>
 
 
@@ -46,7 +184,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D9A60B975AD97D8890EE3D5592B018C6D8425F2
+magnet:?xt=urn:btih:D702BA29D277280E03429706468407CE77A31F09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +192,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291749   (652505) от 26.03.2019
+###  Публикация: 1291837   (652600) от 26.03.2019
 
-Mozilla Thunderbird 60.6.1 Portable by PortableApps [Ru]
+Векторный клипарт - Vector Flowers Collection #89 [AI]
 
->>Архив торрентов
->>Архив Программ
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652505.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
+Векторный клипарт для дизайна.
+Цветы
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3817829CA1ED12F544CB049032C2425AA74E265E
+magnet:?xt=urn:btih:EF5F3A718EB2D1E7B364334CA654F1E3A804D27A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,27 +220,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291687   (652504) от 26.03.2019
+###  Публикация: 1291811   (652599) от 26.03.2019
 
-Т. П. Подорова | Миф об американском «государстве всеобщего благоденствия» (1964) [DJVU]
+Векторный клипарт - Vector Drinks Collection #15 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Напитки
+15 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3BE4F705254FEC071765CCF97FD9EC57F38373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291735   (652598) от 26.03.2019
+
+Dirty Vegas - Days Go By (The Retrospective) (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <House, Pop, Dance, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/13. Human Love (Dumont & Wagner Remix) (8:09)
+02/13. Let The Night (Sharam Jey Remix) (5:51)
+03/13. Do What You Feel (Timo Jahns Remix) (4:31)
+04/13. Setting Sun (Nora En Pure Remix) (5:31)(   Читать дальше...   )Жанр: House, Pop, Dance, Downtempo |Продолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB088485525CB6753207E0E58CB6716782247034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291680   (652597) от 26.03.2019
+
+В. П. Мотяшов | Потребляющий мир: за и против (1976) [DJVU]
 
 >>Разное (категория книг)
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652504.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652597.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очень важная и актуальная задача — разоблачить так называемые теории "государства всеобщего благоденствия", которые усиленно пропагандируются в США и других капиталистических странах. Авторы этих теорий утверждают, будто в настоящее время таким государством являются Соединенные Штаты Америки.
+В современной идеологической борьбе, в соревновании социалистического и буржуазного образов жизни все большее место занимают сегодня вопросы личного потребления.
 
-Используя обширный материал из различных зарубежных источников, (   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: DJVU
+Автор исследует происхождение и назначение расцветшего ныне на Западе безудержного культа вещей, проникновения потребительства в сферу культуры и досуга, раскрывает коренную противоположность целей и характера (   Читать дальше...   )Жанр: История, политология, экономика, социология, культурология, психология, публицистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0ADB62A0D07DAF517EF41690FF34BB463C4A9EA7
+magnet:?xt=urn:btih:FF3F8F56C56DD7F25D87C34B5E24EC1C634D0F24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,15 +305,71 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291847   (652503) от 26.03.2019
+###  Публикация: 1291785   (652596) от 26.03.2019
 
-Векторный клипарт - Vector Flowers Collection #96 [AI]
+Векторный клипарт - Vector Cat Collection #16 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652503.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Котята
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495F02B3FCAFF1F1D11DF9F263B8C7AB15CE1C52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291818   (652595) от 26.03.2019
+
+Векторный клипарт - Vector Easter #10 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Пасха
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123044B09899F078342532A24A42D4A9DDCE3940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291842   (652594) от 26.03.2019
+
+Векторный клипарт - Vector Flowers Collection #93 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652594.jpg" />
 </div>
 
 
@@ -128,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:493E133E23E8B0DAE12BC29DD96A000B1D9BCE14
+magnet:?xt=urn:btih:F9DD5C437705D8BE004E8D1C1C8A7AA4F11957FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,44 +389,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291700   (652502) от 26.03.2019
+###  Публикация: 1291839   (652593) от 26.03.2019
 
-Resonance - Ультрафиолет (2019) [FLAC|Lossless|image + .cue] <Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epic 3:04
-02. When the Levee Breaks 7:39
-03. The House of the Rising Sun 4:32
-04. Other Same 4:16(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085DC03D38EA11C2B293BA1E845ECB4481DAFAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291838   (652501) от 26.03.2019
-
-Векторный клипарт - Vector Flowers Collection #90 [AI]
+Векторный клипарт - Vector Flowers Collection #91 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652501.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652593.jpg" />
 </div>
 
 
@@ -185,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB31D2BA9897BC01B1824B9F402054A2DD520C24
+magnet:?xt=urn:btih:AC797A4D0ECE36FBB69E5224204DC9E165C7301A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,25 +417,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291696   (652500) от 26.03.2019
+###  Публикация: 678795   (652592) от 12.07.2013
 
-Haunted Legends 12: Monstrous Alchemy (2017) [En] (1.0) Unofficial [Collector's Edition]
+Журнал | Любимая дача [Украина]. Спецвыпуск №5 (16) [2013] [PDF]
 
->>Win Игры
->>Adventure/Quest (Casual)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652500.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У кардинала есть сверхсекретная миссия для вас, прямо из Ватикана. Принцессу Изабеллу похитили, и теперь именно Вы должны спасти её! Ваше расследование проведет Вас через тайные проходы и древние замки, но похититель - не единственная опасность на Вашем пути. Сверхъестественная сила угрожает Королевским Мушкетерам, превращая ваших друзей в врагов! Сможете ли вы положить (   Читать дальше...   )Тип издания: UnofficialРазработчик: AMAX InteractiveЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+Журнал «Любимая дача» представляет спецвыпуск «Садовый практикум». В нём собраны мастер-классы с пошаговыми фотографиями. Работы в огороде, саду и цветнике. Эти подробные инструкции снабжены комментариями специалистов, которые делятся своими секретами. Рекомендации и пошаговые советы помогут вам сделать ваш сад и огород ещё более урожайным, а цветник – ярким и красочным!Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE47AF0FCDCF1A198409D8BE25891E2D52CA06FA
+magnet:?xt=urn:btih:3D3FB03358CC784BDE7928C1B25A99B9D323D0F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,56 +443,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291861   (652499) от 26.03.2019
+###  Публикация: 1291829   (652586) от 26.03.2019
 
-VA - The Jazz Hop Cafe - Jazz Hop #4 Autumn Exclusives (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, ChillHop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Classik - Moonlight Metropolis (4:42)
-02. MAXGONZ - Rainfall (3:25)
-03. SkyBlew - Pixy Stix & Snick (3:44)
-04. Rythmatical - Sleep (3:59)(   Читать дальше...   )Производство: The Jazz Hop CaféЖанр: Hip-Hop, Jazz Hop, ChillHop, Instrumental, LoungeПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FC23C58B9396C0D15FBF75CDE8971CC58C65F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291844   (652498) от 26.03.2019
-
-Векторный клипарт - Vector Flowers Collection #94 [AI, EPS]
+Векторный клипарт - Vector Fantastic Heroes #39 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652498.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652586.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Цветы
-50 AI, EPS + PreviewФормат: AI, EPS
+Сказочные герои
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55AB4A8199DA996C747967FFC4F06F9ADC06078C
+magnet:?xt=urn:btih:E46AA9F6646C2F2C46F746D5850C5DD4BBE45F99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,70 +471,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291786   (652497) от 26.03.2019
+###  Публикация: 1291783   (652584) от 26.03.2019
 
-Татьяна Белькова | Пасхальное печенье (2016) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хочется после долгого поста порадовать близких вкусной выпечкой? Замечательный кулинар Татьяна Белькова в своей новой книге поможет вам решить эту задачу. В ее авторских рецептах ингредиенты тщательно выверены, что гарантирует только положительный результат. Любую хозяйку эти рецепты привлекут простотой исполнения, быстротой приготовления, доступностью продуктов (   Читать дальше...   )Жанр: кулинария, издание для досугаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA4250B7A5644E54E87A4C110A53007EC9C9DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291862   (652496) от 26.03.2019
-
-VA - The Jazz Hop Cafe - Jazz Hop #5 Summer Exclusives (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, ChillHop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taiyo Ky - Keikyu Beat (Ft. Phoebe Lee) (2:33)
-02. Pabzzz - Serenade (3:24)
-03. EMERLD - I Know (Ft. Jerré & Buuda) (3:18)
-04. Profound Beats - Starry Eyes (2:59)(   Читать дальше...   )Производство: The Jazz Hop CaféЖанр: Hip-Hop, Jazz Hop, ChillHop, Instrumental, LoungeПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6FCC6223C804D01913DCE21D4E45679FC9983E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291784   (652495) от 26.03.2019
-
-Векторный клипарт - Vector Architecture Collection #21 [AI]
+Векторный клипарт - Vector Architecture Collection #20 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652495.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652584.jpg" />
 </div>
 
 
@@ -351,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADA7D076E74700C540164A7E67EE2AFC648236B5
+magnet:?xt=urn:btih:8A176F7748CC1EDB1B5E786129495CA0FED45EDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,15 +499,67 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291832   (652494) от 26.03.2019
+###  Публикация: 1291725   (652582) от 26.03.2019
 
-Векторный клипарт - Vector Fantastic Heroes Collection #37 [AI]
+Ultra Mood - I Hate To WAIT (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultra Mood - I Hate To WAITЖанр: HardstyleПродолжительность: 00.03.25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D789E58C862C9996705C38E574C2F0B063812CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291713   (652580) от 26.03.2019
+
+Mozilla Thunderbird 60.6.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392D6622B5A4091F2451E19DE90F20952DB6C566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291831   (652578) от 26.03.2019
+
+Векторный клипарт - Vector Fantastic Heroes Collection #36 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652494.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652578.jpg" />
 </div>
 
 
@@ -379,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1A04B26E17FCB06815CC2B348C8284A86D05C7E
+magnet:?xt=urn:btih:0168A14CB9FA890B8A8D5FF00F7EEDE214F01ED9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -387,52 +579,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291695   (652492) от 26.03.2019
+###  Публикация: 1140721   (652567) от 09.06.2017
 
-Immortal Love 4: Black Lotus (2017) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радостное начало Вашего свадебного торжества прерывается болезнью Вашей невесты. Кто-то подарил ей "черный лотос"и она стремительно начинает стареть. Сможете ли Вы найти отправителя и спасти невесту от этой болезни, пока не стало слишком поздно, и вся деревня не повторила вашу историю.Тип издания: UnofficialРазработчик: 4 Friend GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A205F70D5193C8DAEB4859C1D06E320642CA11D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291583   (652490) от 26.03.2019
-
-Morph Age Pro 4.3.2 [En]
+Волейбол. Чемпионат мира среди клубов 2017. Женщины. Финал. ВакифБанк (Турция) — Рексона-Сеск (Бразилия) (14.05.2017) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652490.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Morph Age Pro мощный инструмент для высококачественного морфинга и варпинга(деформации) цифровых изображений и видеофрагментов для Mac OS X.
-Результаты работы с программой могут быть сохранены в виде видеоролика. Программа позволяет плавно регулировать изменения изображения с помощью направляющих кривых. Версия PRO может работать с видео, в то время как стандартная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2019Разработчик: Creaceed SPRLПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+14 мая 2017 года
+Чемпионат мира среди клубов 2017. Женщины. Финал
+ВакифБанк (Стамбул, Турция) — Рексона-Сеск (Рио-де-Жанейро, Бразилия)
+Стадион: Кобе Грин Арена (Кобе, Япония), вместимость 4852 зрителей(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:36:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:859705E20EC3EEF0E37BFECC6A2BA4862E44BB36
+magnet:?xt=urn:btih:A033F8EF49B1E1EF88139E29AD8013F1AE264D84
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,140 +608,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291711   (652488) от 26.03.2019
+###  Публикация: 1141215   (652566) от 09.06.2017
 
-VA - Classic Pop Ballads (2019) [MP3|320 Kbps] <Pop, Downtempo, SoftRock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreigner - I Want To Know What Love Is 4:58
-02. Julee Cruise - Falling 5:22
-03. The Cars - Drive 3:55
-04. Gabrielle Aplin - The Power Of Love 4:05(   Читать дальше...   )Жанр: Pop, Downtempo, SoftRockПродолжительность: 01:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56A36C560C4D26A29D897485DB78739A1C17EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291778   (652486) от 26.03.2019
-
-П.С. Зеленовский | Основы интегральной и волоконной оптики (2019) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для первоначального ознакомления с физическими основами интегральной и волоконной оптики. Большое внимание уделено особенностям распространения оптического излучения в планарных и волоконных волноводах, механизмам потерь оптического излучения, дисперсионным явлениям в волноводах. Рассмотрено устройство и принципы функционирования базовых (   Читать дальше...   )Жанр: Радиотехника, связьФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1134858B9A557ABEDB146B64159AEC62E3AA1C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291792   (652484) от 26.03.2019
-
-Elmedia Player Pro 7.2.1 (1778) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
-
-Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2019Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8854B6A38581F5E0B07A8556401B000FCE5E757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291704   (652482) от 26.03.2019
-
-VA - NRJ Hit Music Only (2019) 3CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652482.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01.  Ava Max  -  Sweet But Psycho
-02.  Sam Smith feat. Normani  -  Dancing With A Stranger
-03.  Angele  -  Balance Ton Quoi(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83DB2F6E16D075E9BEAF5469CCAB4975CDB7DDB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226926   (652469) от 23.05.2018
-
-David Bixler - Call It A Good Deal (2006) Zoho Music [FLAC|Lossless|image + .cue] <Post-Bop>
+Dave McKenna - Blues Up: Piano Solo (1955, 1963) 2007, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652469.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aiding and Abetting [07:13]
-02. Unraveled [08:22]
-03. Game Face [07:24]
-04. Gemenlie [07:47](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:46
+01. Why Was I Born? [02:17]
+02. Smoke Gets In Your Eyes [03:18]
+03. Blues Up [02:28]
+04. Walking By The River [03:05](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:13:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66D039A81B107F8DB2AFB3F5A44FA80F908B1AF6
+magnet:?xt=urn:btih:87B62D6B5B14593A3101A780E7F2D9C625E24F03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,28 +637,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226928   (652467) от 23.05.2018
+###  Публикация: 1140946   (652565) от 09.06.2017
 
-Jack Teagarden - 1944 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
+Marco Mezquida Trio + Bill McHenry - Cantabile (2015) Fresh Sound New Talent [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652467.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beale Street Blues [03:56]
-02. I Swung The Election [02:17]
-03. If I Could Be With You One Hour Tonight [05:54]
-04. Chinatown My Chinatown [02:53](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 01:07:18
+01. Gira [03:14]
+02. Joni Style [05:39]
+03. Armando Rampas [05:03]
+04. Radiohead Montsant Elevation [13:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5BBD2F28BCBD9A0F9ED1EEF7798AC16874B5887
+magnet:?xt=urn:btih:A271EBD874F367D9D4323A913ACAA9279B71A1BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,112 +666,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141176   (652465) от 09.06.2017
+###  Публикация: 1141204   (652564) от 09.06.2017
 
-VA - Vocal Dance Vol. 2 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papulin - Paper Boats (feat Maria Milewska - extended mix) (05:45)
-02. Elite Electronic & John Swanson - Polaris (extended mix) (06:00)
-03. Roman Messer & Armos - Higher (feat Angel Falls - original mix) (06:30)
-04. Attila Syah & Cari - Dark Side Of The Moon (original mix) (06:32)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05CF2A9FCF755ED2D0D2E7A97F9DFC7A191C0266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141266   (652464) от 09.06.2017
-
-Psybuddy - Sonic Treatment (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonic Treatment 08:21
-02. Puma Punku 08:41
-03. Galactic Horizons 07:32
-04. Addictive Noize 08:41(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6C454FFAB58C7BB06B58861139D3F83D2ED2C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141337   (652463) от 09.06.2017
-
-Служба Docs.com вскоре прекратит работу
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_652463.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пятницу, 15 декабря 2017 г. Microsoft отключит службу Docs.com, поэтому мы советуем всем пользователям как можно скорее переместить данные из Docs.com в другое хранилище или службу совместного доступа, так как служба Docs.com больше не будет доступна после этой даты."После приобретения LinkedIn корпорацией Майкрософт платформа SlideShare, которая идеально (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141242   (652462) от 09.06.2017
-
-VA - Jazz Romance. Romantic Smooth Jazz for Two (2017) [MP3|320 Kbps] <Jazz>
+Maynard Ferguson - Birdland Dream Band, vol.1  (1956) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
 
 >>Jazz, Blues, Soul
->>Jazz
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652462.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Piero Bussi - Charme
-02. Giovanni Tornambene - Song for Us
-03. St Project - Stars
-04. Davide Corini - Swing Time(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:36
+01. The Wailing Boat [03:10]
+02. Somebody Wants Me Down There  [04:06]
+03. Maynard the Fox [02:50]
+04. Blue Birdland  [04:13](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:11:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FFA331501624EFF5DCB11E4A446836CD683238E
+magnet:?xt=urn:btih:BD0CFB293A818A6A142B327D4005D42F382A84C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141294   (652563) от 09.06.2017
+
+Jackie McLean - One Step Beyond (1963) 1988, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturday And Sunday [10:31]
+02. Saturday And Sunday (alternate take) [09:26]
+03. Frankenstein [07:32]
+04. Blue Rondo [04:53](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D54CF8F2DF6A9F411140F3C92BA4D0014943F91
 ```
 
 https://mybot314.ru/tekegram_catalog/

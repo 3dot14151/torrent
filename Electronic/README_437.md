@@ -1,3 +1,61 @@
+###  Публикация: 1235328   (166229) от 15.12.2019
+
+Hanzel Und Gretyl + Side Projects (Cycle Sluts From Hell, KyzrWolf) - 13 Releases (1991-2019) [MP3|320 Kbps] <Industrial, Industrial Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166229.jpg" />
+</div>
+
+
+###  Подробнее
+
+1995 - Ausgeflippt
+1997 - Transmissions From Uranus
+2003 - Über Alles
+2004 - Scheissmessiah(   Читать дальше...   )Жанр: Industrial, Industrial MetalПродолжительность: 09:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37195E65DDD452AC9482205A13C03833F9219FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301651   (166164) от 15.12.2019
+
+SITD / S.I.T.D. / [:SITD:] / Shadows In The Dark - Discography 16 Releases (2002-2019) [MP3|320 Kbps] <Industrial, EBM, Dark Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166164.jpg" />
+</div>
+
+
+###  Подробнее
+
+2002 - Snuff (EP)
+2003 - Laughingstock (EP)
+2004 - Stronghold (US Edition)
+2005 - Richtfest (EP)(   Читать дальше...   )Жанр: Industrial, EBM, Dark ElectroПродолжительность: 19:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702E8E3FE8917B6F97DFF90E1D113EB0D4CDA72E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671497   (166142) от 31.10.2023
 
 Miss Jane feat. Miichii - It's A Fine Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
@@ -682,64 +740,6 @@ M.S.L - Discography 4 Releases (2018-2019) [FLAC|Lossless|WEB-DL|tracks] <Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B8B08BF70E2414622617A8943E3CDBF81AA9F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346299   (164532) от 18.12.2019
-
-VA - Anjunadeep: The Yearbook 2019 (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jody Wisternoff & James Grant - Dapple (05:20)
-02. 16BL - Vette (06:08)
-03. Nox Vahn - Brainwasher (04:40)
-04. CRi - Initial (05:03)(   Читать дальше...   )Жанр: Deep House, Tech House |Продолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E354C8DAD3945BF6A4CC1128683943BB591FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516954   (164479) от 13.12.2021
-
-Vangarde - The Best Of Lounge: The Orange Lounge Suite (2001) [FLAC|Lossless|tracks + .cue] <Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syrian Swing (4:34)
-02. Pure Magic (feat. XXL) (4:11)
-03. Lounge Suite (3:59)
-04. Future Vision (5:24)(   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B466D5564EA7D7814CD288157F2C6E0EF198C6B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

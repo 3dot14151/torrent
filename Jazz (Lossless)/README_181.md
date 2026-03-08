@@ -1,3 +1,32 @@
+###  Публикация: 1062046   (444767) от 12.10.2016
+
+Nancy Wilson - Like In Love & Something Wonderful (1959, 1960) 2003, EMI Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.On The Street Where You Live [01:43]
+ 02.Night Mist [02:35]
+ 03.You Leave Me Breathless [02:28]
+ 04.The More I See You [02:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBCD301A3BA355ADAFE232B781AA79EF3CD1846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322713   (444702) от 31.08.2019
 
 Avishai Cohen - Arvoles (2019) Razdaz Recordz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -713,35 +742,6 @@ Rob Brown Ensemble - Crown Trunk Root Funk (2008) AumFidelity [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25A0CED292B7C6FAD0639C47EA14540F2E312F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164488   (442009) от 09.09.2017
-
-Stan Getz - Sweet Rain (1986) Verve [FLAC|Lossless|image + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Litha [08:24]
-02. O Grande Amour [04:43]
-03. Sweet Rain [07:10]
-04. Con Alma [08:06](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4132CCF4D7C18FF92AE4267E35ED2ED9358C464
 ```
 
 https://mybot314.ru/tekegram_catalog/

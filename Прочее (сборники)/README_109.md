@@ -1,3 +1,125 @@
+###  Публикация: 1058747   (465652) от 02.10.2016
+
+VA - Дискотека 2016 Dance Club Vol. 156 от NNNB (2016) [MP3|64-320 Kbps] <Club Deep House Dance и другие>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D' Luxe - Twerk Bitch (Original Mix)
+02. DJ Sava feat. Irina Rimes - I Loved You
+03. Tr-Meet & BigRock, Yuliana - Bad Boys Cry (Radio Mix)
+04. Inna - Say It With Your Body(   Читать дальше...   )Жанр: Club Deep House Dance и другиеПродолжительность: 10:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DED0157FADF0A0C6EEE17423979462D765DFA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320829   (465396) от 21.08.2019
+
+VA - не Громкие новинки недели 31 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465396.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.8ADIM - Трипы (3:00)
+2.Alex Kafer feat. Pochuli - Я Один (Radio Mix) (4:08)
+3.Alexandra - Всё Хватит (3:40)
+4.Andgelina Di - Невесомость (3:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A9619AFF1A829C9A88F80724820FA71FBCD4CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161694   (465354) от 29.08.2017
+
+VA - The Best World Ballads - 33 (2017) [MP3|256-320 Kbps] <Pop, Rock, Blues, Rap, R'n'B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465354.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Rag'n'Bone Man-The Fire 3:42
+002 Lana Del Rey Feat.The Weeknd-Lust For Life 4:24
+003 Mike+The Mechanics-Save My Soul 4:49
+004 Zara Larsson-Endless 2:46(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 16:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF43DB82FBD6457BFE9FB0FE1F834A99552DAC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547077   (465311) от 19.09.2012
+
+DJ Tapolsky - Russo Turisto (2012) [MP3|320 кб/с]<Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Владимир Маркин - Колокола
+02. Mr. President - Coco Jambo
+03. Technotronic - Pump Up The Jam
+04. Технология - Нажми на кнопку
+05. Марина Журавлева - Черемуха
+06. Электронный мальчик - Девушка с урала
+07. Игорь Силеверстов - Санта лючия
+08. Planet Edelweiss
+09. Deelite
+10. Кар-мэн - БомбейЖанр: Pop, Dance, RockПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A5ABD37B9BB047409D12596398970D05EC2449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548970   (465009) от 19.09.2012
 
 VA - The Lounge Session vol. 1-4 (2012) [MP3|320 кб/с]<Downtempo, Lounge>
@@ -667,122 +789,6 @@ VA - 130 The Abundance of Styles Loaded (2018) [MP3|320 Kbps] <Pop, Country, Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FC8E503C408CC789FC6D78DB754AFC7F287895E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408322   (457858) от 11.09.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 11.09.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dotan - NUMB (3:38)
-02. Ava Max - Salt (3:00)
-03. twocolors - Lovefool (3:10)
-04. NRD1 - All Good Things (Come To An End) (Extended) (4:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5908E714BF45AF7CFCC45D35DE583A1B485C45B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568734   (457795) от 10.08.2022
-
-The Heavy Horses - Compilation (2022) [MP3|320 Kbps] <Country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Thirty Year Night
-03. Hell Awaits
-04. Pale Rider(   Читать дальше...   )Жанр: CountryПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A455F6D66E381A720E9F888F3C5DC4AFC82C4698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568712   (457624) от 10.08.2022
-
-VA - Music News vol.208 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457624.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ALMA - Close The Door (Hayasa G Remix) (02:51)
- 002. Aarne feat. ANIKV & BUSHIDO ZHO - Тесно (02:13)
- 003. Юлия Райнер - Забываю (03:12)
- 004. Al Rakhim feat. Medkova - Эфир (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE40E5DF20A777369512ED7C6ABA39E7A40074EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568848   (457613) от 10.08.2022
-
-VA - Planeta Mix Hits 2022: Summer Edition (2022) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geo Da Silva - We Got The Power
-02. Stephan F - I Wanna Know
-03. Deep Emotion - Young & Wild
-04. Global Rockerz - Died In Your Arms(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:20:59 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F80546516EA543E8239B1426703F9E83E1529CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1327939   (369494) от 27.09.2019
+
+Schiller - Morgenstund (2019) Super Deluxe Edition [FLAC|Lossless|tracks + .cue] <Ambient , Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schiller - Willkommen (0:37)
+02. Schiller - Harmonia (5:46)
+03. Schiller & Tricia McTeague - Universe (7:22)
+04. Schiller & Jhyve - Dreamcatcher (4:07)(   Читать дальше...   )Жанр: Ambient , DowntempoПродолжительность: 02:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83077FA5CD628BC0505297475E9A31E5CC0F623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069716   (369370) от 06.11.2016
+
+VA - Deep Ambient & Chillout Dream (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sad radio on Cassini - Stars Shine Threw the Overcast Sky (4:01)
+02. Seven24 - Fable (3:25)
+03. Zetandel - Sweet Moments (4:47)
+04. Synthetic Impulse - Solitude and the Moonlight (5:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7070BEE834E9226B25F4D678DC4899E78DE2210C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069884   (369259) от 06.11.2016
 
 VA - AMF 2016: Amsterdam (2016) [MP3|320 Kbps] <House, Progressive House, Big Room>
@@ -689,62 +747,6 @@ Sonic Scope - Yoga Chakra (2020) Avatar Records [FLAC|Lossless|WEB-DL|tracks] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CD7F7C9D6EAD927D0FA5A75687287AC965AC415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416427   (367178) от 16.10.2020
-
-Zenker Brothers - Cosmic Transmission (2020) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Electro, Dub, Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Nothing Is Safe (05:54)
- 02. Who’s In Control (04:31)
- 03. Intense Incense (04:39)
- 04. Natural Connection (04:47)(   Читать дальше...   )Жанр: Electro, Dub, Techno, AmbientПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB062A0CC405C16F27F8F8C1755B1BBCC5F0056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209333   (367048) от 16.10.2020
-
-Aeon Waves - Discography 14 Releases (2015-2020) Onset Audio, Mindtrick Records, Easy Summer [FLAC|Lossless|WEB-DL|tracks] <Ambient, Future Garage, Drum & Bass, Downtempo, Breaks>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthropocene (05:05)
- 02. Degenerate (06:37)Тип издания: WEBЖанр: Ambient, Future Garage, Drum & Bass, Downtempo, Breaks •Продолжительность: 05:32:13 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888301D8350497F076284E82C481E3CDF5F33512
 ```
 
 https://mybot314.ru/tekegram_catalog/

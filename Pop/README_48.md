@@ -1,3 +1,59 @@
+###  Публикация: 1096555   (919211) от 24.01.2017
+
+Andromeda - Star Ship/Shooting Star (1978) 7" [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star Ship  (3:41)
+02. Shooting Star  (3:35)Жанр: Electronic, DiscoПродолжительность: 00:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D554E148A449E1CA74011D333911F44398E84AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096466   (919074) от 24.01.2017
+
+Iowa - Remixes (2016) EP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919074.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мои стихи, твоя гитара (Astero Remix)
+2. 140 (Astero Remix)
+3. Три дня холода (Ivan Spell Remix)
+4. Мои стихи, твоя гитара (Ivan Spell Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 00:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767DC195E498390C329EA0DE2F9F7E524C29FEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988675   (918996) от 21.02.2016
 
 Demi Lovato - 5 альбомов (1998-2015) [MP3|192-320 кб/с] <Pop, Pop-Rock, R'n'B>
@@ -691,64 +747,6 @@ Tom Jones - Hide & Seek (The Lost Collection) (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C05B0BE9180ACAF6C71789EA6CF53941417529A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490780   (915654) от 22.08.2021
-
-Talisha Karrer - Acoustic Covers 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here with Me (Acoustic) (3:51)
-02. Hallelujah (Acoustic) (4:26)
-03. Fix You (Acoustic) (3:42)
-04. Bridge over Troubled Water (Acoustic) (4:27)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E692DB4FEBA5FAF2E63D44EB10F4B4DBFD49D065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490813   (915375) от 22.08.2021
-
-Mylene Farmer - Plus grandir: Best Of 1986 - 1996 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plus grandir
-02. Libertine (Mix 2001)
-03. Tristana
-04. Sans contrefaçon(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8612CC873D2F62746E15A28C4FCCA7932E6292
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1485551   (1005204) от 27.07.2021
+
+Gheorghe Zamfir - Pan Flute Improvisations (1988) [FLAC|Lossless|image + .cue] <Instrumental, Folk, World>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gheorghe Zamfir - румынский музыкант, играющий на модернизированной версии румынского национального инструмента, пан-флейте (най), которая состоит из 20-30 трубок, с расширенным звуковым диапазоном и большим количеством тонов. Gheorghe Zamfir стал известен широкой публикев 1960-х, в частности, благодаря швейцарскому музыканту Marcel Cellier, исследователю румынской (   Читать дальше...   )1. Domasnea (5:14)
+2. Jebel (4:41)
+3. Arad (6:54)
+4. Oltera (6:46)(   Читать дальше...   )Жанр: Instrumental, Folk, WorldПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE6AD143B079E8F6FFE7F17D0299CFE61C7810D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349436   (1004436) от 01.01.2020
 
 VA - Fiesta Latina 2019 (80 Big Latin Hits 2019/2020!) [MP3|320 Kbps] <Latin, Reggaeton, Salsa>
@@ -719,35 +748,6 @@ Era & Arielle Dombasle - Arielle Dombasle By Era (2013) /Special Edition/ [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E73FAF98A4569F40464EFFD3FFA0FC0D195C90ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352292   (1000894) от 15.01.2020
-
-Frantz Amathy - Heavenly Ways (2004) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Wind of Love (6:21)
-02. Heavenly Ways (9:35)
-03. Mystery (4:54)
-04. Crystal Song (5:09)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E93916572FEA2A13FB4147D40AFDB908FDF11B
 ```
 
 https://mybot314.ru/tekegram_catalog/

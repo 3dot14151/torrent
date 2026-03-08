@@ -1,3 +1,32 @@
+###  Публикация: 1803625   (65816) от 24.06.2025
+
+VA - Ibiza Summer 2025 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calmabohain - Take Me Away (03:26)
+02. Scot & Millfield - It's a Fine Day (03:42)
+03. Lemongrass - Got It On The Dancefloor (04:52)
+04. Steen Thøttrup & Kaia Mainz - Dreamers (daZZla Deep Remix) (06:14)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72CE63FA49FF5F9E8E6DA46361E490036BF2836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806414   (65375) от 12.07.2025
 
 VA - Black Hole House Music 07-25 (2025) [MP3|320 Kbps] <House, Progressive House>
@@ -716,35 +745,6 @@ VA - EDM Summer Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DB1E898FFF3ECF7E61989F338772DB14E26F605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739857   (48472) от 29.07.2024
-
-VA - Milk & Sugar Summer Sessions 2024 [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milk & Sugar & Maria Marquez - Canto Del Pilon (James Hurr Extended Remix) (6:04)
-02. Divolly & Markward & DJ Shorty - Vazilando (Extended Mix) (4:01)
-03. David Penn & Hosse & Africa G - Con Son (The Cube Guys Extended Remix) (5:04)
-04. Low Steppa & Crusy - Bullerengue (Extended Mix) (6:32)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550EB847A0666ED274E450D38923D604A8225DB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

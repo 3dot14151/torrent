@@ -1,3 +1,61 @@
+###  Публикация: 1165227   (435439) от 12.09.2017
+
+VA - Night Tunes: Shanghai (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alexander Volosnikov - Echoes Behind The Screen Of Time (Original Mix)  4:38
+02.  Soty - The Assent (Original Mix)  3:46
+03.  Matthew Billings - Unplanned Detours (Original Mix)  2:59
+04.  Seven24 & S.A.T - Infinity (feat. Allam)  4:56(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABD2F4FF2528181CB552194225F17C07CEAA411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164919   (435229) от 12.09.2017
+
+VA - Amsterdam Trance Sessions Vol.12 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  D-Mad vs. Ispolins - The Voice (Extended Mix)  4:58
+02.  Cold Stone - Mustang (Extended Mix)  7:32
+03.  James Kelly & Craig Johnstone - Return To Reality (Original Mix)  6:11
+04.  Novan - Royal Clipper (Extended Mix)  5:26(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFAD43D837FD979DBA8C5F33FFA5D8C8445020D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063209   (435164) от 16.10.2016
 
 VA - DJ Viper-Garage Sound System_Mix001 (2006) [FLAC|Lossless|image + .cue] <House, Tech House>
@@ -686,64 +744,6 @@ Bcee - Northpoint (2017) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8654BB0B23050603D78EE40B308257953856DAB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063760   (432390) от 17.10.2016
-
-VA - James Warren Presents: Visceral 041 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various - Visceral 041 (Part 1 - continuous DJ mix by James Warren) [01:01:22]
-02. Robert Heel - Onondaga Cava (original mix) [05:10]
-03. Redux Saints - Rebirth (Doorly remix) [06:58]
-04. Matter & GMJ - Atoms (original mix) [07:33](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C95DBD2A01E87C32910833A3F24D986CA1B32C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063800   (432388) от 17.10.2016
-
-VA - Chillout Ibiza 2016 (Best Of Balearic Chillout Lounge) Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout,Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subchyme - The Bongo Pad - Seсor Coelho Mix (04:12)
-02. Ocean Blonde - Bayfront Park - Florida Roots Dub (03:58)
-03. Mirami - Private Island - Sol Y Mar Remix (04:05)
-04. Free Love Commune - Blue Planet - Vocal Mix (04:55)(   Читать дальше...   )Жанр: Downtempo, Chillout,LoungeПродолжительность: 02:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC5B1D1CB4665D30215308C30D9ABDDD713C6C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

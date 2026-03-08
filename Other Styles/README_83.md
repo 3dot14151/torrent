@@ -1,3 +1,32 @@
+###  Публикация: 1545839   (611234) от 21.04.2022
+
+Faun - Pagan (2022) [MP3|320 Kbps] <Folk, Medieval>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Galdra
+2. Halloween
+3. Gwydion
+4. Wainamoinen(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3195FBE49930C2A89AF845AB9AA7017A2CFB09D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147001   (611093) от 01.07.2017
 
 VA - The Real... Country Collection (The Ultimate Collection) (2016) 3CD [FLAC|Lossless|tracks + .cue] <Country>
@@ -752,35 +781,6 @@ Ginger Wildheart - The Pessimist's Companion (2018) Remastered, 2022, Wicked Coo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7999677C9D0D5851B2912C895EE49B8397EA5B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546611   (604425) от 25.04.2022
-
-Faun - Märchen & Mythen (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Medieval>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Es war einmal
-02 - Rosenrot
-03 - Seemann
-04 - Hagazussa(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CC672C1B5D2E49C260BF1FE80A4D0A41ED78B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

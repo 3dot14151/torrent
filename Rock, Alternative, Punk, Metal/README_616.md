@@ -1,31 +1,3 @@
-###  Публикация: 1052851   (446235) от 11.10.2016
-
-Heaven Shall Burn - Wanderer (2016) Limited Artbook Edition, 3CD [MP3|320 кб/с]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абсолютно новый альбом одного из самых важных представителей немецкого металкора, коллектива Heaven Shall Burn. Предыдущий альбом группы - "VETO" (2013), занял вторую сточку в германском альбомном чарте. Продюсерами нового альбома выступили гитаристы Alexander Dietz и Maik Weichert. Смикшировал альбом популярный датский продюсер и звукоинженер Tue Madsen, (   Читать дальше...   )CD1 - Original Album
-CD2 - Too Good To Steal From
-CD3 - Dark Purity MixЖанр: MetalcoreПродолжительность: 02:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B708BCB55D107518A933D8EE695977464D6222A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552548   (446230) от 27.09.2012
 
 Steve Stevens - Atomic Playboys (1989) [WavPack|Lossless]<Hard Rock>
@@ -753,6 +725,35 @@ Stallion - Slaves Of Time (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Spee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED135FEC4F326FF2C575B5C21A044E3DE73E4E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570261   (445126) от 16.08.2022
+
+The Vazeline - Подросткам плевать на весь мир (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445126.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кто я для тебя?
+2. Подросткам плевать на весь мир
+3. Чувства неверующих
+4. Завтра уже через час(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87250BD1776F5571ED9096288E01F59F5FD2993D
 ```
 
 https://mybot314.ru/tekegram_catalog/

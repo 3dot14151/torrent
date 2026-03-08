@@ -1,3 +1,32 @@
+###  Публикация: 1189394   (271274) от 05.12.2017
+
+Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erda 05:08
+02. The Ruin 05:24
+03. Runatal 05:40
+04. Boudicca 04:54(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF677BD76ED160C61B9F3315FFB63A8D0E253FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339011   (266153) от 19.11.2019
 
 VA - All American Country Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Country, X-Mas>
@@ -716,35 +745,6 @@ Die Schnitter - Saat und Ernte (2000) [FLAC|Lossless|image + .cue] <Folk Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D731F4B8453E4F9218187BF995E313AAD25B9071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084697   (216168) от 20.12.2016
-
-VA - Christmas Cafe (2016) [FLAC|Lossless|tracks] <Pop, Soul, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pentatonix – The Christmas Song (Chestnuts Roasting on an Open Fire) [00:03:43]
- 02. Tom Odell – Real Love [00:02:21]
- 03. Joshua Radin – Winter [00:03:23]
- 04. Katy Perry – White Christmas [00:03:20](   Читать дальше...   )Жанр: Pop, Soul, FolkПродолжительность: 02:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9481DE3B44914BD429C5C34819616492352E0170
 ```
 
 https://mybot314.ru/tekegram_catalog/

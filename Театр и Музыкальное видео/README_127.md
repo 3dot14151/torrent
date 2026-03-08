@@ -1,3 +1,32 @@
+###  Публикация: 1823575   (125845) от 11.10.2025
+
+Scooter - Live in Hamburg (2012) WEBRip [H.264/1080p] [hand made upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт прошёл 22 марта в рамках тура "The big mash up tour 2012" в концертном зале "02 World".01. Intro (The big mash up tour '12)
+02. Faster Harder Scooter / Ramp! (The logical song)
+03. Sugary dip
+04. The only one(   Читать дальше...   )Производство: Германия, ABC EntertaimentЖанр: Techno, Happy Hardcore, JumpstyleРежиссер: Jens TheleАктеры: H.P. Baxxter, Rick J. Jordan, Michael SimonПродолжительность: 02:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBE758BA43907011C6EE7612EA2A15FC7F4FBC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687848   (125492) от 27.12.2023
 
 Pet Shop Boys – Performance (1991) DVDRip [H.264/1080p] [Handmade Upscale AI]
@@ -654,35 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:203FFD6364A78ACADDD02FD609AB58F0C97F6F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718919   (110779) от 27.04.2024
-
-Леонид Агутин — «Всё не зря» (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не дочитав старый роман
-И сняв очки,
-Наш капитан выключил свет
-В кают-компании...Жанр: PopРежиссер: Артур ХарламовПродолжительность: 00:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21172242694CD6E268FCCB9FD7C28DCA89BF5244
 ```
 
 https://mybot314.ru/tekegram_catalog/

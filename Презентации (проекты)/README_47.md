@@ -1,29 +1,3 @@
-###  Публикация: 838732   (346634) от 07.11.2014
-
-VideoHive - Luxury Slideshow - 157821 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскошь. Слайдшоу. Для презентации работ, продукции, картин и мн. др. Плагины не требуются. Превью и текстовый файл помощи - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403123C0E0B7C24F572AE4AD6A0129550FCBF141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953871   (346474) от 05.11.2015
 
 Проекты - VideoHive - Dubstep Intro Shapes [AEP]
@@ -683,6 +657,33 @@ Digital Corporate Presentation Slideshow - этот уникальный шаб�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9821E1B0EE921D1E51F030E8C32D9C3EA366124F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955608   (331955) от 12.11.2015
+
+Проекты - VideoHive - Music Show [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания вашей церемонии награждения.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DA462DEA9E99865E265C9FC88396CF20DEE4BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

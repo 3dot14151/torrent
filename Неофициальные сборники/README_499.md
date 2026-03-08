@@ -1,3 +1,177 @@
+###  Публикация: 957272   (327427) от 17.11.2015
+
+VA -  Ministry of Sound: Maximum Bass Unleashed (2015) [MP3|320 кб/с]<House, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327427.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (01:13:41) (Mixed by G-Wizard):
+1. Drake - Energy [3:07]
+2. 2 Chainz - Used 2 [3:36]
+3. Gunplay feat. YG - Wuzhanidoe [3:09](   Читать дальше...   )Жанр: House, ElectronicПродолжительность: 03:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C6B89F131188E44E9DB5FF4B0F1586DBD83BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581009   (327138) от 05.10.2022
+
+John Sokoloff - Compilation (2022) [MP3|320 Kbps] <Easy Listening, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.O.M.
+02. Allow Me
+03. Russian Girl
+04. El Manor(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 01:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611D13FAD640F4F1902385608452A7FB8226D6FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581394   (327134) от 05.10.2022
+
+VA - TOP Non-Stop - Funky House Before 2000 (2022) [MP3|192-320 Kbps] <Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Deep & Julien Jabre - Dom Dom Jump (sax mix, 1998) (7:09)
+02. Martin Solveig - Heart of Africa (1999) (6:18)
+03. Mateo & Matos - Discocide (1999) (6:45)
+04. The Good Men - Hand Wobble (1994) (4:47)(   Читать дальше...   )Жанр: Funky HouseПродолжительность: 07:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE6B15078907B824BAC5F6A3091ED6807195708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581178   (327129) от 05.10.2022
+
+VA - Music News vol.219 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Akris & Teddy - Не Пара (02:28)
+ 002. 102 Boyz & The Cratez feat. Chapo102 & Kkuba102 & Stacks102 - Tokyo Drift (02:46)
+ 003. 1380 - Процент (02:12)
+ 004. Aaron Smith feat. Sadhappy - Better Everyday (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D74411C018E268CE011A07A70A49C5774C0799F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581338   (326970) от 05.10.2022
+
+VA - Дискотека 2022 Dance Club Vol. 212 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+001. TRITICUM - Play Me
+002. David Guetta feat. Benny Benassi - Satisfaction
+003. ALEKS ATAMAN feat. Finik.Finya - Ой Подзабыли(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 21:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785819AD977DA29AB916A00D8D47100CF4876458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957776   (326712) от 18.11.2015
+
+VA - A Smile and a Tear Best Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Magical Corner - Laguna
+02. Logophilia - Igualmente
+03. Hannes Im Glьck - Ach und Lach
+04. Mind Conventions - Sweet Fever(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64DE6E9B0AF061F1AAEE24BEE28B484B0D97541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957515   (326601) от 18.11.2015
 
 VA - The Naked Lounge Vol 1 (Sexy and Sensual Sound) (2015) [MP3|320 кб/с]<Jazzy, Lounge>
@@ -571,177 +745,6 @@ M-Tracking - Огромный мир (2017) [MP3|320 Kbps] <Eurodance, Eurodisco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBD30928209160FDFFE62C6943B166E9E6942FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958435   (323642) от 21.11.2015
-
-VA - Beatport Top 100 20.11.2015 (2015) [MP3|320 кб/с]<House, Electro, Progressive, Deep House, Tech House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323642.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shaun Frank & KSHMR - Heaven (feat. Delaney Jane) (Extended Mix)
-002. Hot Since 82 - Veins (Original Mix)
-003. R3hab & Headhunterz - Won't Stop Rocking (Extended Mix)
-004. Joe Stone and Daser - Freak (And You Know It) (Extended Mix)(   Читать дальше...   )Жанр: House, Electro, Progressive, Deep House, Tech House, TechnoПродолжительность: 10:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168213731E1F41CB19C7459FE1A77FA02A49B65F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259109   (323543) от 02.11.2018
-
-VA - Morphological Patterns: Techno Electrozombies (2018) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323543.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kocleo - Reflection
-002. Bruno Power - Light In The Forest
-003. Stereo View - Asteroid (Original Mix)
-004. Bad Habitz - One Day Well Find Our Way(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9C3982AF703712751BEEE35C85DB1766E9B16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181540   (323504) от 07.11.2017
-
-VA - Jazz It Up: Autumn Collection (2017) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323504.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ella Fitzgerald - Get Ready
-002. 2D - Keraguan
-003. Antonio Carlos Jobim - The Girl from Ipanema
-004. The Watts 103rd. Street Rhythm Band - Papa's Got A Brand New Bag(   Читать дальше...   )Жанр: JazzПродолжительность: 09:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E433F4102E73A01C8C8E3E4A50B962F8E5AD29F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582450   (323476) от 09.10.2022
-
-VA - South Beach Clubbing Vol. 31 (2022) [MP3|320 Kbps] <Electronic, Future Disco, Club, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avaro - I Don't Wanna Play (No Games) (JoshwaЖанр: Electronic, Future Disco, Club, Tech HouseПродолжительность: 01:34:12 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD285B1E3DC871A63B07BCEC0600FFB4B56F586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181344   (323364) от 07.11.2017
-
-VA - Infatuation Blues (2017) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323364.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Black - Sister Sadness
-002. Rob Tognoni - Time Changes
-003. Jim Allchin - Healing Ground
-004. Lazy 50 - Catch My Train(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 11:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFB8481C5FA2B8E9FD9F70A6949DF6A1B0EA67F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582461   (323354) от 09.10.2022
-
-VA - Trance October Week 001 (2022) CD, Compilation [MP3|320 Kbps] <Euphoric, Progressive, Melodic, Tech Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divisional Phrase & Prisma Storm - Lifesaver
-02. Adam Ellis & Katty Heath - Made It Through The Rain (radio edit)
-03. 1st in Line & Cris von X - The Light (Darren Porter Remix)
-04. Ciaran McAuley & Susie Ledge - You're Never Alone(   Читать дальше...   )Жанр: Euphoric, Progressive, Melodic, Tech TranceПродолжительность: 02:25:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3CB624F3B30376BB1170B87048A6B3E10DEBBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

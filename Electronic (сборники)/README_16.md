@@ -1,3 +1,32 @@
+###  Публикация: 971174   (988657) от 01.01.2016
+
+VA - DJ's Choice: Best Electronic Lounge (2015) [MP3|320 кб/с] <Club, Progressive House, Power Electronics>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Terence - Feel That Vibe 04:22
+02. J & V - Walk Away (Randy Norton Edit) 04:54
+03. Trancemaster File - Time To Say Goodbye 08:54
+04. Naxwell - Living On Video (Radio Mix) 04:00(   Читать дальше...   )Жанр: Club, Progressive House, Power ElectronicsПродолжительность: 02:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B16C99016BA7BEB66DF08587A21A670B9C1DC77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971031   (988627) от 01.01.2016
 
 VA - Sounds & Cocktails (2015) [MP3|320 кб/с] <Electronic, Downtempo, Trip-hop, Future Jazz, Nu Disco, Nu Soul>
@@ -734,35 +763,6 @@ VA - Top 50 Progressive Trance (Paradise) (2015) [MP3|320 кб/с] <Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:741EE4A2C1D32D04A8AEEE4F2C3AE69B9B652F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972446   (982000) от 06.01.2016
-
-Calypso - We Move The Jumpin' Hype! (1996) Digitally Remastered [MP3|320 кб/с] <Rave, Hardcore, Hard Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982000.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Welcome To Calypso 	                2:06
-2 	Hardcore Islands (Extended) 	6:42
-3 	Def Con 5 	                                5:31
-4 	Rave In Paradise 	                3:36(   Читать дальше...   )Жанр: Rave, Hardcore, Hard TranceПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80548632F5BFDF0072A6ABCABAAA7E2DC8298915
 ```
 
 https://mybot314.ru/tekegram_catalog/

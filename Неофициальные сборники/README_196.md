@@ -1,3 +1,177 @@
+###  Публикация: 1013975   (776886) от 06.05.2016
+
+VA - Best 100 Original Mix RNJ (2016) [MP3|320 кб/с] <Pop, Dance, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776886.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kygo Feat. Ella Henderson - Here For You (Radio Edit)
+002. Tom Snare & Mico C - Make Some Noise (Radio Edit)
+003. Lif3blood - Like The Sunshine (Radio Edit)
+004. Guard - Give It Up (Radio Edit)(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 05:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A739C4B3FE7788007BCF8929BF55B6C0DEF5F78D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013822   (776881) от 06.05.2016
+
+Va - Радио Шансон. Самые удачные хиты (2016) [MP3|256-320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776881.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Марина Александрова И Александр Домогаров - Не Будет Как Прежде
+002. Лера Огонек - Ветерок
+003. Алмас Багратиони - Пускай Ты Выпита Другим
+004. Вадим Орельский - Дочка(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E378EDDFA6D01DBBD6301DC9DDB42A0D55B52D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014012   (776877) от 06.05.2016
+
+VA - Ministry of Sound - Just Chillin' (2016) [MP3|320 кб/с] <Dance, Music>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - Love Yourself [03:54]
+02. The Weeknd - The Hills [04:03]
+03. Alessia Cara - Here [03:21]
+04. Snakehips - All My Friends (Feat. Oliver Dickinson, Chance The Rapper & Tinashe) [03:50](   Читать дальше...   )Жанр: DanceПродолжительность: 07:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46009E55B229ECA3E81456E7663AB4F7AAD9E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211860   (776870) от 09.03.2018
+
+VA - Pop Rock and RnB Romantic Songs (2018) [MP3|320 Kbps] <Pop Rock, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776870.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Miley Cyrus - Stay
+002. Espen Lind - Where The Lost Ones Go
+003. Mark Medlock - Never Let You Go
+004. Hooverphonic - Jacky Cane(   Читать дальше...   )Жанр: Pop Rock, RnBПродолжительность: 10:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98588A25D5928E4AD578820D9C300BB639B4285C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211911   (776857) от 09.03.2018
+
+VA - Good Times Roll (2018) [MP3|320 Kbps] <Rock and Roll, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776857.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hornbuckle - Knife In Your Hand
+002. Fatboy - Down At The Room
+003. The Boo Devils - Tonight
+004. Gaspard Royant - 7' Club(   Читать дальше...   )Жанр: Rock and Roll, RockПродолжительность: 05:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6130F6DBD23BEBA053FBF1C0DB8D2CFECCAED0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014199   (776843) от 06.05.2016
+
+VA - Super дискотека 5000 (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776843.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nicky Jam - Hasta El Amanecer
+002. Ляпис Трубецкой - Ау (Alex Shik & Dj Scorpio Radio Mix)
+003. Nikki - Give Me That Beat
+004. Тимати И Богдан Титомир - Грязные Шлюшки (Alex Shik & Dj Dobrynin Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C3D56F2FCC9E95C75243102B421BE5D7B0B76D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211879   (776836) от 09.03.2018
 
 VA - Blues Caramel (2018) [MP3|320 Kbps] <Blues, Soul>
@@ -571,180 +745,6 @@ VA - Ares Competition Chill After Racing (2016) [MP3|320 кб/с] <Downtempo, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C1F7043E799477E3C91766D249E168A42E70A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014541   (776201) от 08.05.2016
-
-VA - Melodic Trance Energy - Wave Insider (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ikerya Project - Nighthawk (Dany Dazano Remix) 6:35
-02. Andrew Henry & Glorius - Magic Island (Original Mix) 7:02
-03. Matt Bukovski & Katty Heath - Hold Back The Storm (Original Mix) 5:50
-04. Daniel Kandi And Zack Mia - Sector 7 (Extended Mix) 6:30(   Читать дальше...   )Жанр: TranceПродолжительность: 08:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCEB840680A9984528DDFC422C446B08ACA52A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014425   (776198) от 08.05.2016
-
-VA - Club Sound Vol.77 (2016) [MP3|237~268 кб/с] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimitri Vegas & Like Mike Vs. W&W - Arcade 3:46
-02. Axwell - Barricade 4:53
-03. Tujamo & Taio Cruz - Booty Bounce 3:16
-04. Hardwell Feat. Jake Reese - Run Wild 4:07(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 03:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F574E03D50DCC2BCE05D3623D882CD9DC327644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014628   (776197) от 08.05.2016
-
-VA - Top 20 May Day House (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scooter - Mary Got No Lamb (Arena Mix) 4:23
-02. Marnik And Wom - Flying Turtles 3:39
-03. Marco V feat. Mr. Mann - The Human Puzzle (Radio Edit) 3:41
-04. Gold 1 Feat. Jason Derulo And Smokey - Together We Run (Tale And Dutch Remix Edit) 3:49(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845F8CB300E15FFCFF6B360900715C81097B960D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013550   (776195) от 08.05.2016
-
-VA - Neurodrop vol.1 (2014-2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davip - Ranged Weapon (4:42)
-02. Erb N Dub & Skope ft. Damien Soul - Let Me Fly (Club Mix) (4:36)
-16. Muzzy - Lost Metropolis (5:03)
-04. The Upbeats - Elevator (4:19)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 2:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A5DB8F27BD515C46E5799AA1CC8C82734CEB30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014584   (776189) от 08.05.2016
-
-VA - Шальная сотка хитов №4 (2016) [MP3|256 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776189.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Игорь Добролевский - Звезда свобода
-002. Вячеслав Крук И Валентин Куба - Сонечкины Именины
-003. Валерий Субботин - Звездочки
-004. Ирма Брикк И Геннадий Грищенко - У Нас Все Будет(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C4FD778865F9C05C6CA415D21A7B5ED24F9D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013630   (776182) от 08.05.2016
-
-VA - Drum'n'Dream (2010-2016) [MP3|128-320 кб/с] <Bass, Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase (Calyx & Teebee Remix) (6:10)
-02. Fake Static Noise - Fall (Maxin & Ruben Remix) (3:30)
-03. Keeno - Green Flash (5:17)
-04. Ollie Macfarlane - Wintermute (4:21)(   Читать дальше...   )Жанр: Bass, Drum & BassПродолжительность: 2:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AC1A495498B43BDB58322C0DCF27616F6F45BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

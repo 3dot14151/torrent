@@ -1,3 +1,32 @@
+###  Публикация: 1541623   (643129) от 04.04.2022
+
+H.E.R.O. - Alternate Realities (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity (4:04)
+02. Lead the Blind (feat. Philip Strand of Normandie) (3:42)
+03. Never Be the Same (3:54)
+04. Oxygen (3:41)(   Читать дальше...   )Жанр: Alt. RockПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBE4443F074945C6C5155064980D2CA46C712CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541697   (643127) от 04.04.2022
 
 Ska-P - Game Over (2018) [FLAC|Lossless|tracks + .cue] <Ska, Ska-punk>
@@ -716,35 +745,6 @@ Nickelback - Feed The Machine (2017) [FLAC|Lossless|tracks + .cue] <Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FE9B7B23F3FA538EF7A1E7F00CF646259C45ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908049   (630029) от 16.06.2015
-
-FFS (Franz Ferdinand and Sparks) - FFS (2015) [FLAC|tracks|WEB]<Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Delusional [3:12]
-02. Call Girl [3:21]
-03. Dictator’s Son [4:15]
-04. Little Guy from the Suburbs [5:09](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568B27221BED1D1EDED19ABF4E358E6B81B078EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

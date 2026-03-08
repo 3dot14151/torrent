@@ -1,3 +1,32 @@
+###  Публикация: 1170836   (397770) от 03.10.2017
+
+DJ VoJo - Aloha (2017) [MP3|320 Kbps] <Tropical House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight
+02. Tropical Rain
+03. Adventure Island
+04. Lost in Sea(   Читать дальше...   )Жанр: Tropical HouseПродолжительность: 01:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7988E463FAEA99D5AA8F5A390505A99324ECCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567679   (396148) от 30.10.2012
 
 VA - Halloween Nights (2012) [MP3|320 кб/с]<Progressive House>
@@ -734,34 +763,6 @@ VA - Workout Traxx - Best of 2016 Vol 1 (2016) [MP3|320 Kbps] <Minimal, Tech Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B451F38481161D2767FCE6971DA017667C650E0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573609   (376417) от 12.11.2012
-
-DeepSide DeeJays - 3 Релиза (2009-2012) [MP3|320 кб/с]<House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look Into My Eyes (Radio Edit) (4:07)
-02. Look Into My Eyes (Extended Mix) (5:42)
-03. Look Into My Eyes (Club Edit) (5:29)Жанр: House, DanceПродолжительность: 00:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46FBDB1C971132BB1FBD060A9B44CF27628C38B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

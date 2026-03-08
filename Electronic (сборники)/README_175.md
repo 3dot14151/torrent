@@ -1,3 +1,32 @@
+###  Публикация: 1078811   (298313) от 02.12.2016
+
+VA - Wonders Essential Trance (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal, Emotional, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen Watts - Square One (Original Mix) 6:44
+02. Steve Brian - Yebaka 2:56
+03. Emanuale Congeddu & ARCZI - Merchant Prince 7:25
+04. Sean Tyas - Matter Of Time (Original Mix) 8:28(   Читать дальше...   )Жанр: Trance, Harmonic, Vocal, Emotional, UpliftingПродолжительность: 02:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E82555249561AEF3040382E5903ED9E05F1BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184928   (297445) от 19.11.2017
 
 VA - Boudoir Lounge Area (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
@@ -719,35 +748,6 @@ VA - Full Moon Trance Party (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C40A5238B73337A7D0D829B4C6266B9B408F100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262654   (293510) от 16.11.2018
-
-VA - Ambient Silver Sounds (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293510.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Rostej - Call Me Helen (Original Mix)
-002. Alex Brynskich - Rain (Original Mix)
-003. Guitamar - Selva Negra (Original Mix)
-004. Mytron & Ofofo - Medicine Man (Original Mix)(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 10:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E90BDC6BBFE702D127416656F3BD1137E3C7D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

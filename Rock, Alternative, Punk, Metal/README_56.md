@@ -1,32 +1,3 @@
-###  Публикация: 1616738   (1036164) от 03.03.2023
-
-Hammerlin - La Sombra de la Luna (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La Sombra de la Luna (04:32)
-02 - Ante Tus Encantos (04:30)
-03 - Hubris (04:42)
-04 - Amor de Fantasia (04:27)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B59B7DAF8DFDCE6F0F46D1F0A712C00E65B85D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616614   (1036163) от 03.03.2023
 
 Гаснет Свет - Symphonia Vitiorum (2023) [MP3|320 Kbps] <Heavy Metal, Power Metal, Epic Metal>
@@ -745,6 +716,35 @@ Vierzig Grad - Vierzig Grad (1981) LP [MP3|320 Kbps] <Krautrock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42658B7350E87B8DB9D38ABFD816C96C63645627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443259   (1035777) от 28.01.2021
+
+Conception - Stаtе Оf Dесерtiоn (2020) 2xCD, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035777.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - State Of Deception:
+ 01. In: Deception
+02. Of Raven and Pigs
+03. Waywardly Broken(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8556358B3315027E51B64EE8B675CE51749B1980
 ```
 
 https://mybot314.ru/tekegram_catalog/

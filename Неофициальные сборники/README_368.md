@@ -1,3 +1,177 @@
+###  Публикация: 1047315   (550098) от 29.08.2016
+
+VA - Bossa Nova Groovy Chill'n'Lounge: Smooth and Sexy Instrumental Music for Making Love or Tantric Massage (2016) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hawaii Chillout Music - Bossa Nova
+02. Tropical Chill Zone - Groovy Chill n' Lounge
+03. Summer Music Paradise - Let Me Be Your Fantasy
+04. Cool Chillout Zone - On a Sunday Morning(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF82684BBB0336B87082932EA872CB91F6C8A2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047312   (550097) от 29.08.2016
+
+VA - Атмосфера Мелодичного Драмчика (Sound Clinic - Relax Edition) (2016) [MP3|320 Kbps] <Drum & Bass, Liquid funk>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2DB - Ghetto Boy
+02. Aaron Loxx - Walk the Walk
+03. Above & Beyond, Alex Vargas - Blue Sky Action (Logistics Remix)
+04. Adventure Club & Yuna - Lullabies (Fatkids remix)(   Читать дальше...   )Жанр: Drum & Bass, Liquid funkПродолжительность: 24:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A92C847E844CC544E78C2458630DE91F2E70DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047386   (550028) от 29.08.2016
+
+VA - Авто Хит от радио Шансон 7 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550028.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Гвоздика - Не Бросайте В Сердце Мусор
+002. Виталий Сухов - У Любви Моей
+003. Миша Мирный - Пьяный Ветер
+004. Оксана Иванова - Ночи(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2522C351FBC4E118DA83CDDE610B3047C46891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047381   (550024) от 29.08.2016
+
+VA - Хитовый бум. Сборник 2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550024.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pierce Fulton - Make Me Blue
+002. Илья Гуров - Знаешь Я Скучаю
+003. Cats On Tree - Jimmy
+004. Алиса Кожикина - Мы Вместе(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390DBA4DAF3B0403AB3ABAC1FA0DAA7578B7A5EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047299   (550022) от 29.08.2016
+
+VA - Реальные пацаны (2016) [MP3|320 Kbps] <Pop, Hip Hop, Soundtrack>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Евро  -  Колян  2:42
+02. Бака  -  Нига не гони  3:30
+03. Валерий Меладзе и Виа Гра  -  Океан и три реки  3:41
+04. Vavan  -  Мы ваще крутые  4:08(   Читать дальше...   )Жанр: Pop, Hip Hop, SoundtrackПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A3E0A2FE32CD8C7FC8CC1DD57E1E2B488BB0503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047303   (550017) от 29.08.2016
+
+VA - Car Audio. Взрывной. Мощный. Клубный. (Sound Clinic - Special Edition) (2016) [MP3|320 Kbps] <Deep, DubStep, Electro и прочие>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Cotier - Going On (Original Mix)
+02. Affkt, Thomas Gandey - Overnight Sensation (Miguel Bastida Remix)
+03. Alex Banks - Ice Kings
+04. Alex Poison, Cateto - Imaginarium (Original Mix)(   Читать дальше...   )Жанр: Deep, DubStep, Electro и прочиеПродолжительность: 35:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180D6A28097AEF2938A602D05721E0E43DFCB8BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047326   (549937) от 29.08.2016
 
 Слава - MP3 Play. Музыкальная коллекция (2016) [MP3|320 Kbps] <Поп>
@@ -574,180 +748,6 @@ VA - From Ibiza To Your Heart (2016) [MP3|320 Kbps] <Techno, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12A21CC3C9A1ED01CCDDFD645A3E29BD2E98A21F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047817   (548497) от 31.08.2016
-
-VA - Uplifting See You Again (2016) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Metcalfe & Sue McLaren  -  Stardust (Original Mix)  6:27
-02. Cold Rush And Elles De Graaf  -  Daydreamer (Alan Morris Remix)  7:20
-03. Sound Apparel  -  Making End Of Heart Tale (2016 Remaster)  12:13
-04. Omar Sherif feat. Crystal Blakk  -  Hear You Calling (Extended Mix)  7:08(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 04:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7224C5F1A8B87525198B4E307039482FD187BFB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048013   (548430) от 31.08.2016
-
-VA - Beyond The Love Downspace (2016) [MP3|320 Kbps] <Electronica, Chill House, Trip Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Groove - You Took My Love 06:11
-02. Scerbas - Lamberet 07:23
-03. Sascha Braemer - Touchdown 05:40
-04. Sergey Silvertone & Magic Surfer - On This World (Audio Luxury Remix) 07:36(   Читать дальше...   )Жанр: Electronica, Chill House, Trip HopПродолжительность: 02:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33026ED5631D7351C8FA4F64CE48665CCA803740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047737   (548425) от 31.08.2016
-
-VA - Thats Ibiza 2016 (50 Gorgeous House Music Summer Tunes) (2016) [MP3|320 Kbps] <House, Club House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lex Luca - Hoop 06:28
-02. Wisqo - Mirrors 06:16
-03. Tom Appl - Badibidab 06:31
-04. Rick Marshall - In The Club 06:50(   Читать дальше...   )Жанр: House, Club House, Deep HouseПродолжительность: 04:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582B3B3E66AF65A2CBE640C05297BDA8B6394E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047849   (548420) от 31.08.2016
-
-VA - Options Remake 150 Tracks (AUGUST) (2016) [MP3|320 Kbps] <House, Tech, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548420.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roberto Palmero  -  Seruman (Original Mix)  6:39
-002. Serial Thrilla  -  Fresh To Def (Original Mix)  5:46
-003. Rick Marshall  -  Clare (Original Mix)  7:02
-004. Lucky Charmes  -  Bobotie (Extended Mix)  4:52(   Читать дальше...   )Жанр: House, Tech, Progressive, Club, DanceПродолжительность: 15:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C1D37114A258780EC4C5FAE7567BD899E8A7C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047746   (548416) от 31.08.2016
-
-VA - Hit Drive EDM: European Version (2016) [MP3|320 Kbps] <Progressive, Trance, House, Electro, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548416.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clubwaver - Raise Your Glass (Floskel Remix)
-002. Digital Junkiez - Drumfire (Original Mix)
-003. Jordy Dazz & Bassjackers - Battle (Original Mix)
-004. Marcio Vicca - 4Life (Original Mix)(   Читать дальше...   )Жанр: Progressive, Trance, House, Electro, DanceПродолжительность: 09:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ACDB3A06229BC9C7FA5C00A8AD14B7AAB93A3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047924   (548268) от 31.08.2016
-
-VA - Workout Tribute to Summer Hits (2016) [MP3|320 Kbps] <R&B, Disco, Funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Powter - Crazy All My Life (Dj Denis Rublev & Dj Anton Remix) 01:19
-02. Vasiliy Francesco X Wildmilk X Iggy Azalea - Team (John Rocks Mash Up) 02:47
-03. Blu Cantrell Feat. Sean Paul - Breathe (Remphil & Leo Bass Remix) 02:52
-04. Sia - Unstoppable (Stylezz & Denis Agamirov Remix) Radio 02:51(   Читать дальше...   )Жанр: R&B, Disco, FunkПродолжительность: 04:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552BA8B189355ADF4E3A8202D9FFC29AB8866F61
 ```
 
 https://mybot314.ru/tekegram_catalog/

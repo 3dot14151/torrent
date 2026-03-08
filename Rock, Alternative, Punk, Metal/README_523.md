@@ -1,32 +1,3 @@
-###  Публикация: 126445   (549188) от 21.06.2019
-
-Виктор Цой - Кино - Группа крови (1988) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549188.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Группа крови (4:45)
-2. Закрой за мной дверь, я ухожу (4:15)
-3. Война (4:04)
-4. Спокойная ночь (6:07)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C9046764C00C0A50E2C9A8FF2DBEF725A99361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047650   (549174) от 30.08.2016
 
 The Screaming Jets - Do Ya (2008) [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -739,6 +710,35 @@ Ducktails - The Flower Lane (2013) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FCA17B267052402BC46AC3B7D86A094B47C0FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310322   (547861) от 23.06.2019
+
+Ducktails - III: Arcade Dynamics (2011) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Swing
+02. Hamilton Road
+03. Sprinter
+04. The Razor's Edge(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5553D1A81CECAF85A2941F6FC10C8D52216454
 ```
 
 https://mybot314.ru/tekegram_catalog/

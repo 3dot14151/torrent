@@ -1,3 +1,32 @@
+###  Публикация: 1529369   (732734) от 06.02.2022
+
+VA - Male Jazz Singers: Milestones Of Jazz Legends (1952 - 1962) 10CD, 2017, The Intense Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732734.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - Louis Armstrong, Jimmy Rushing - Louis Plays Fats & Little Jimmy Rushing And The Big Brass:
+01. Honeysuckle Rose [2:56]
+02. Blue Turning Grey Over You [4:56]
+03. I'm Crazy 'Bout My Baby [4:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 11:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973DB375591324B2CB9852CB7D95F67A6F3C9DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127496   (732233) от 21.04.2017
 
 Eric Alexander - Dead Center (2004) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -716,35 +745,6 @@ Radare - Im Argen (2015) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Ex
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B8F360CAF4F2E96D5AAE98CF1B611A34FAB5494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127986   (730084) от 23.04.2017
-
-Luke Sellick - Alchemist (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (1:01)
-02. Q-Tippin (6:45)
-03. Brothers (4:48)
-04. Hymn (6:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEF24C15CC2EC89FF23C65CAB99F4690D4D1B86
 ```
 
 https://mybot314.ru/tekegram_catalog/

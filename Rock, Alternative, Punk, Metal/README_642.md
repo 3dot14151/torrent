@@ -1,90 +1,3 @@
-###  Публикация: 947906   (415986) от 18.10.2015
-
-Karnataka - Secrets Of Angels (2015) [FLAC|tracks + .cue]<Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road To Cairo (05:27)
-02. Because Of You (04:53)
-03. Poison Ivy (04:14)
-04. Forbidden Dreams (05:48)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68267FE317149951824DA48D79B89CABB4441372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412666   (415887) от 30.09.2020
-
-Ram Jam - Greatest Hits (2020) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down And Dirty 04:08
-02. Black Betty 03:57
-03. Ram Jam Thank You Mam 03:06
-04. Rock Hard 03:26(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6569EC8F561CE4DDB92E6677DE646749087815BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412714   (415883) от 30.09.2020
-
-VA - Body Pump Rock Classics (2020) [MP3|320 Kbps] <Rock, Dance>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Tasker - Highway to Hell (Workout Mix 115 BPM)
-02. Billie Tasker - Rock and Roll (Workout Mix 170 BPM)
-03. Chandler FX - Smells Like Teen spirit (Workout Mix 124 BPM)
-04. Chandler FX - Ace of Spades (Workout Mix 141 BPM)(   Читать дальше...   )Жанр: Rock, DanceПродолжительность: 02:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9E9E6B6D47CC1D789CDF7E7F35DB601F9B6E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412753   (415876) от 30.09.2020
 
 Перегаз - 1 Album / 2 Singles (2020) [MP3|320 Kbps] <Punk-Rock>
@@ -741,6 +654,93 @@ The Love Affair - The Everlasting Love Affair (1968) Reissue, 2005, Dogtoire [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72D5F3F7002AB7EA5C45C76928767D7F57584C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066121   (414795) от 25.10.2016
+
+Tim Buckley - Greetings From L.A. (1972)[FLAC|Lossless|WEB-DL|tracks] <Funk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414795.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Move With Me 4:49
+2. Get On Top 6:35
+3. Sweet Surrender 6:48
+4. Nighthawkin' 3:21(   Читать дальше...   )Жанр: Funk, RockПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E40FADD9F4EC364BEEFFE09CAA6E615CBEEF9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573272   (414783) от 30.08.2022
+
+The Volume - The Volume (2022) [MP3|320 Kbps] <Heavy Prog, Psych, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ping Pong
+02 The Other Side
+03 And Mine Too
+04 Romanus eunt domas(   Читать дальше...   )Жанр: Heavy Prog, Psych, StonerПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36004A23842D33D0080D29EB6FFB6AD30BA0BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573100   (414778) от 30.08.2022
+
+Lifeburn - Город греха (2022) [MP3|320 Kbps] <Hard & Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Опасные игры [00:05:23]
+02 - Ответы на вопросы [00:04:40]
+03 - Город греха [00:06:27]
+04 - Одиночество [00:07:31](   Читать дальше...   )Жанр: Hard & Heavy MetalПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554326732F08559E5D58DBBED9365ACD09D5B056
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1514160   (219334) от 02.12.2021
+
+VA - EFFECTIVE COVERS (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219334.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Going Deeper - Missing
+2. ONEIL - You're My Heart
+3. Denis First/KDDK - Rasputin
+4. Dj Antonio/Bertie Scott - Losing My Religion(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B11866A56364EF53B53ABB8EC9293CAF48A4A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269681   (219332) от 15.12.2018
+
+VA - Workout Dance 2019 (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elisabeat - Live It Up with You
+02. Afrochuck - Give It to Me
+03. Cola Girl - Move Your Body (Aruso Edit)
+04. Milkbar Rockers - Love Explodes(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD837B51408E997F7188C655817C92F8A47F566E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514149   (219143) от 02.12.2021
 
 Марина Хлебникова - Лучшие Песни (2021) [MP3|320 Kbps] <Pop>
@@ -687,65 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:127B9FFB8C84213007124125C2DFF18F55F4B14C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164166   (218176) от 02.12.2021
-
-Matia Bazar - Коллекция (1976-1989) [FLAC|Lossless] <Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218176.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 Альбомов с вокалом Антонеллы Руджеро (Antonella Ruggiero)
-Спасибо bazar и dimitri28 с "национального"01. Stringimi
-02. Se Tu
-03. Il Mare
-04. Winnie(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4431EC1DDA951A0C7A747E576BDDF39DC1FF572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343454   (218115) от 06.12.2019
-
-VA - The Greatest Xmas Song (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для тех кто отмечает Рождество по "ихнему" календарю Universal Music выпустила симпатичный сборник из разных жанров. Так что вы найдете обязательно для себя то, что вам захочется послушать и до православного Рождества. Ну а как говорится: тот празднику не рад, кто накануне не пьян! Наслаждайтесь хорошей музыкойCD1:
-01. Queen - Thank God It's Christmas  (4:20)
-02. Coldplay - Christmas Lights  (4:04)
-03. U2 - I Believe In Father Christmas  (3:24)(   Читать дальше...   )Релиз состоялся: 01 ноября 2019 годаЖанр: Jazz, Rock, PopПродолжительность: 02:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBDC08F3D2D1FFCCF8524B88DB8CA92F3C13024D
 ```
 
 https://mybot314.ru/tekegram_catalog/

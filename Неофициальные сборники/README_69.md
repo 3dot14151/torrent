@@ -1,3 +1,177 @@
+###  Публикация: 1362844   (945273) от 26.02.2020
+
+VA - Beatport Trance: Pack Electro Sound #12 (2020) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945273.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Costa Pantazis - Intruders (Radio Edit)
+002. Alex Minenko - Green Cliffs (Original Mix)
+003. Binary Finary - Syntax (Extended Mix)
+004. Haris C - My Suicide (Original Mix)(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 10:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF28D700F851645F996F6371A7D8F43E52AEE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983101   (945264) от 05.02.2016
+
+VA - Blues Forever vol.21 - vol.24 (2015) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick Vito - Desiree
+02. Dave Meniketti - Take It A Man
+03. Phantom Blues Band - A Very Blue Day
+04. Albany Down - Mercy(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6DE579960E0F63F27C708F4B276A18C725F188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363099   (945259) от 26.02.2020
+
+VA - Disco At Chiken (2020) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delia Renee - You're Gonna Want Me Back
+02. Lasser Drakar - Socialism Feat. Tara Delong
+03. Jkriv - Vertigo (Yuksek Remix)
+04. C. Da Afro - Rokit (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 07:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDF5D9A491100F55464F31F8BD17A6E3098D6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982994   (945237) от 05.02.2016
+
+VA - Power Metal Ballads 21 (2016) [MP3|224 кб/с] <Ballads, Heavy, Sympho, Glam, Prog, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945237.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arrayan Path-The Poet Aftermath
+002. Burning Point-Was it Me
+003. Eyefear-Wasting Away (Alone)
+004. Gasoline Stars-All I Want Is You(   Читать дальше...   )Жанр: Ballads, Heavy, Sympho, Glam, Prog, Power MetalПродолжительность: 07:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F191B630B14E2178AE30BF47379CAD9CA5A8FDAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363023   (945187) от 26.02.2020
+
+VA - GNO: New Disco Funk (2020) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curses - Back For More
+02. Juan Di Lago - It's Over (Extended Mix)
+03. Danky Cigale & Sydney-7 - Boom Boom
+04. Modern Boots - You're My Night, You're My Day(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 04:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D683000D7D1350A8B1D3B68A36E600E3ACD72A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090960   (945070) от 08.01.2017
+
+VA - Enormous Digital Reading House (2017) [MP3|320 Kbps] <House, Tech House, Funky, Tropical, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin van Buuren & Lyrica Anderson - Gotta Be Love (Arston Remix)  3:54
+02.  Pep & Rash vs. Lucas ft. Steve - Enigma (Extended Mix)  3:54
+03.  Quintino & Joey Dale Ft. Channii Monroe - Lights Out (Extended Mix)  3:38
+04.  twoloud - My Remedy (Official Untold Festival Anthem) (Radio Edit)  3:43(   Читать дальше...   )Жанр: House, Tech House, Funky, Tropical, ClubПродолжительность: 04:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285A493DD3E07A558193CEBC9357F23C99270D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090903   (945029) от 08.01.2017
 
 VA - Ultimate Party Colors January (2017) [MP3|320 Kbps] <Future House, Progressive, Tropical, Bassline, Electro>
@@ -582,180 +756,6 @@ VA - HighLife Masters Ultimate Spire (2016) [MP3|192-320 кб/с] <Club, Bounce,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B222D0697C2B64AADD252BD7F28DF6922B6804F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983342   (943871) от 06.02.2016
-
-VA - Lucid Dreams: Mermaid Party (2016) [MP3|320 кб/с] <Electro, Club, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943871.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zoo Brazil ft. Philip - Heart's A Legend (Solarstone Pure Remix) 08:56
-002. Paris & Simo - Avon 05:14
-003. Western Disco Feat. Lura - The Sun (Black Box Remix) 03:56
-004. Tim Shaft - Unstoppable 04:06(   Читать дальше...   )Жанр: Electro, Club, Funky HouseПродолжительность: 09:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D235CEFDE0B0B7F1621C5289F6D2C807BC54C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983565   (943866) от 06.02.2016
-
-VA - Jazzy Lounge, Vol.2 (2016) [MP3|320 кб/с] <Balearic, Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943866.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Matt Lovers - Analogamente 04:28
-2. Mediterranean Soul - Imperat 03:52
-3. Fusion Dee - Blues In Mirror 04:18
-4. Second Groove - Load In Repetition 04:32(   Читать дальше...   )Жанр: Balearic, Downtempo, Lounge, ChilloutПродолжительность: 01:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3516C42D9BF586ECCBF08B8E9544ECA41B17AF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363287   (943765) от 27.02.2020
-
-VA - EDM Immersion (2020) [MP3|320 Kbps] <Dance, Club, Techno, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943765.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nick Henley - Progression
-002. Ruddek - Boring Talk (Extended Mix)
-003. Plurthlings - On Shrooms
-004. Mi Ni - Power Of You(   Читать дальше...   )Жанр: Dance, Club, Techno, HouseПродолжительность: 08:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5A24A5F257FA83DDC6CB4D80EA7030BFAABBC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363292   (943759) от 27.02.2020
-
-VA - Breathe Fire: Beach Dance Classics Radio (2020) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943759.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bramd - Home (Dance Radio Edit)
-002. Chris Burke - Freak
-003. Stuart Mcniven - 3rd Inferno
-004. Louder - Leo In Space(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 07:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB34A93A4A348ECCD79BC01D5A28888DD9788CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983366   (943742) от 06.02.2016
-
-VA - Dance Зарубежка.Top 150 (2016) [MP3|256-320 кб/с] <Club, Dance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943742.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eurythmics - Sweet Dreams (DJ Vengerov Remix)
-002. Misha Pioner feat Annet - Addicted (Serge Devant Cover) (Original Mix)
-003. Panjabi MC - Mundian To Bach Ke (DJ Bandit Remix)
-004. D.Matrosov - Like That(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 10:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D79CA87E632F21DD9CB555D6DCD28F85C6201251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983373   (943735) от 06.02.2016
-
-VA - 100% Рок Billboard (2016) [MP3|320 кб/с] <Pop, Pop-Rock, Electro, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943735.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Muse – Mercy
-2. Panic! At the Disco – Hallelujah
-3. Iamx – Happiness
-4. Apostol Feat. Mc Davi & Swed - Deal the final blow(   Читать дальше...   )Жанр: Pop, Pop-Rock, Electro, DanceПродолжительность: 01:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE2F14ABE63971DD7A6C40401EA08106F3D7E386
 ```
 
 https://mybot314.ru/tekegram_catalog/

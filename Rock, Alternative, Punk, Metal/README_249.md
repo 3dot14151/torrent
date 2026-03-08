@@ -1,32 +1,3 @@
-###  Публикация: 1501588   (835263) от 10.10.2021
-
-Spectral Darkwave - At Outer Dark (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Insertion [00:00:44]
-02. 731 [00:05:41]
-03. The March of Sses [00:04:36]
-04. The First Church of Chaos [00:05:28](   Читать дальше...   )Жанр: Symphonic Death, Doom MetalПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490B865C48ACD3D3077E9885F0816EF0EB6ADE80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501589   (835261) от 10.10.2021
 
 Desire - Legacy of the Past (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -744,6 +715,35 @@ Devour The Day - S.O.A.R. (2016) [FLAC|Lossless|tracks + .cue] <Hard-rock, Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:299B0F6D64B4A50B268D420F6B005BC8D0EA5063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004355   (834577) от 08.04.2016
+
+Novembre - URSA (2016) [FLAC|Lossless|tracks + .cue] <Progressive-metal, Doom-metal, Dothic-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Australis (7:37)
+02. The Rose (5:30)
+03. Umana (5:50)
+04. Easter (5:03)(   Читать дальше...   )Жанр: Progressive-metal, Doom-metal, Gothic-metalПродолжительность: 01:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339ED7BFAF96EEB3A5A6D19F9CD5B3AC8DB160FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

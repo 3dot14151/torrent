@@ -1,33 +1,3 @@
-###  Публикация: 1201580   (1003733) от 04.01.2020
-
-Monolord - 4 Albums, 1 EP (2014-2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monolord - шведская группа из Гётеборга, образованная в 2013 году, исполняющие тягучий Stoner Doom Metal.
-Названы в честь глухого на одно ухо друга, который по их словам жирный и раздражительный как Картман.Список альбомов:
-2014 - Empress Rising
-2015 - Vaenir
-2016 - Lord of Suffering-Die in Haze(   Читать дальше...   )Жанр: Stoner Metal, Doom MetalПродолжительность: 03:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8EAE302085063EA593A832CA67BB01F97627A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487424   (1003614) от 05.08.2021
 
 Witches Town - Black Pestilence (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -745,6 +715,34 @@ Feuerschwanz - Die letzte Schlacht (2021) [MP3|320 Kbps] <Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7719C972FA3F40AA9ADC7BDF4A7BD292989958A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350861   (1003009) от 07.01.2020
+
+Thurston Moore - Spirit Counsel (2019) 3CD BoxSet [FLAC|Lossless|tracks + .cue] <Art Rock, Experimental, Avangarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003009.jpg" />
+</div>
+
+
+###  Подробнее
+
+SPIRIT COUNSEL is a collection of three extended compositions recorded between 2018-19. This collection represents a period of reflection on spiritual matters, collective musical friendships, and a time and space universally, without words or languages to distract from meditation.CD1 - Alice Moki Jayne
+CD2 - 8 Spring Street
+CD3 - GalaxiesПроизводство: The Daydream Library Series – DLS 004CDЖанр: Alternative Rock, Art Rock, Experimental, AvangardeПродолжительность: 02:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC21E963ABEBC1603A12DAB650AC173BEE176DCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

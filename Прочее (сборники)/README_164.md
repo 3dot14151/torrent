@@ -1,3 +1,119 @@
+###  Публикация: 1194740   (154201) от 26.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 20) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Вахтанг Кикабидзе  -  Пожелание  3:13
+02.  Эдуард Хиль  -  Так уж бывает  2:24
+03.  Марк Бернес  -  Любимый город  2:30
+04.  Олег Даль  -  Есть только миг  3:18(   Читать дальше...   )Жанр: PopПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE9F1A3EBF419A2F0361BEC084C1B43F742367F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194789   (154190) от 26.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 21) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Георг Отс  -  Мы с тобой не дружили  2:50
+02.  Татьяна Дасковская  -  Прекрасное далёко  4:08
+03.  Олег Даль  -  И солнце всходило  3:20
+04.  Вахтанг Кикабидзе  -  Проводы любви  3:25(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C2AB983E0F19262CDB1BD4CD847693B9B8471D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347000   (154152) от 22.12.2019
+
+VA - The Official UK Top 40 Singles Chart 20.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LadBaby - I Love Sausage Rolls New Entry
+02. Stormzy - Own It (feat. Ed Sheeran Burna Boy)
+03. Lewis Capaldi - Before You Go
+04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1040607993AEC9AF89EA326206B768710A3A4E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518501   (153983) от 20.12.2021
+
+VA - The Official UK Top 100 Singles Chart 17.12.2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153983.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran, Elton John - Merry Christmas
+002. Adele - Easy On Me
+003. Wham! - Last Christmas
+004. Mariah Carey - All I Want for Christmas Is You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5853511D48D16CD15D7A0F73C6F90555D0A99DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518573   (153952) от 20.12.2021
 
 VA - Music News vol.156 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -627,122 +743,6 @@ DISC 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F526FC07406C47CB7A313E513F226AF53BEF08DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271717   (147990) от 24.12.2018
-
-VA - Nightparty 90-х-Ностальгия (2018) [MP3|256-320 Kbps] <Dance, Euro-house, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5ive - Slam Dunk Da Funk
-02. 2 Unlimited - Get Ready For This (Rap)
-03. Technotronic - Get Up! (Before The Night Is Over)
-04. Marky Mark & The Funky Bunch - You Gotta Believe(   Читать дальше...   )Жанр: Dance, Euro-house, ClubПродолжительность: 03:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8A576B911EA8D24AC36D5359330D1FA14E4B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519119   (147910) от 24.12.2021
-
-VA - Дискотека 2022 Dance Club Vol. 210 Новогодний выпуск! (2021) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-01. DJ Jedy - Happy New Year (2:41)
-02. ALEKS ATAMAN feat. Finik.Finya - Снежинки (Ramirez x D. Anuchin Radio Edit) (3:09)
-03. ABBA - Happy New Year (Ayur Tsyrenov Remix) (4:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 31:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F976231D1459E07FB7A483BF106F68A3D1A6813F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271914   (147660) от 25.12.2018
-
-VA - German Top 50 Party Schlager Charts 24.12.2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
-02. Maite Kelly - Die Liebe Siegt Sowieso
-03. Andrea Berg - Ja Ich Will (DJ Edition)
-04. De Lancaster feat. Kay Doerfel - Rosenzeit(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D58A87A8CDC1DC174D7E3C968D2C7D32FF7C3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087188   (147447) от 26.12.2016
-
-VA - Top 100 Самых Красивых Песен 2016 (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147447.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Set fire to the rain
-002. Meghan Trainor - Kindly Calm Me Down
-003. Morten Harket - Darkspace
-004. Avril Lavigne - Everybody Hurts(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E94C0E886D6D8067EE413D534963E69DDB2C883
 ```
 
 https://mybot314.ru/tekegram_catalog/

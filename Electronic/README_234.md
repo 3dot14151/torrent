@@ -1,3 +1,61 @@
+###  Публикация: 1230551   (613864) от 13.06.2018
+
+Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Space>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Environment (06:10)
+ 02. Road to Nowhere (04:18)
+ 03. Solar Halos (05:01)
+ 04. Beyond the Edge (05:14)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC12FDDEAF4B230D0F4EB810827EF2BA49E195B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037021   (613785) от 24.07.2016
+
+DeFilm - 2 Albums (1985, 1987) [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярная во второй половине 80-х. на родине и Западной Европе группа из Дании.
+Название происходит от частей слов названия старого датского театра - Kommende Film. Группа решила использовать театр как студию звукозаписи. Многие их сравнивают с норвежской группой "A-ha"Список альбомов:
+1985 - DeFilm
+1987 - Coming To Your Heart SoonЖанр: Electronic, New Wave, Synth-popПродолжительность: 01:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C797EE2AA06940722B55CDC3F92ED7B7EE2FD3CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296309   (613574) от 16.04.2019
 
 VA - Practikally Forbidden Vol. 1 (Mixed by Nathan Revely & Ashley Bradbury) (2019) [MP3|320 Kbps] <Trance>
@@ -693,76 +751,6 @@ Jens Buchert - Aurora Electronica (2019) Elbroar [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:496F21C10AE6206B588AD3610876D5A38B22AD62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524236   (611812) от 19.07.2012
-
-Grasscut - Unearth (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cut Grass (4:26)
-02. Pieces (4:58)
-03. Blink In The Night (East Coker Version) (5:08)
-04. Reservoir (4:30)
-05. Stone Lions (3:56)
-06. A Mysterious Disappearance (4:36)
-07. From Towns & Fields (4:47)
-08. Lights (3:10)
-09. We Fold Ourselves (4:37)
-10. Richardson Road (3:48)Жанр: HouseПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00B17EFD60689B1D3C584612C496158CAF6E13D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524192   (611572) от 19.07.2012
-
-VA - 55 Top Lounge Songs (2012) [MP3|320 кб/с]<Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611572.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. J Sasz - Pippo La Casa (6:30)
-2. Counting Clouds - Dream Lounge (4:17)
-3. New World Lounge - Free (5:24)
-4. Gino Patricio - Lounge Deepin - Original (5:51)
-5. Taha - I Don?t Know Myself - Max Wilhelm Remax (5:01)
-6. Slimmie - Take Me As I Am (4:28)
-7. Aquarius - Fantasia Sexual (6:11)
-8. Diario - Beijo Grande (5:38)
-9. The Big-T - Gettaway - Original Mix (7:16)
-10. Collective Sound Members - Morning Ray (4:38)(   Читать дальше...   )Жанр: LoungeПродолжительность: 04:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A03C4A1EAA2DD7658AC0078499A2957B6B36A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1232242   (602286) от 23.06.2018
+
+Sabbath In The Suburbs - The Lounge Tribute  To Ozzy Osbourne & Black Sabbath (2002) [MP3|320 Kbps] <Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iron Man /3:56/
+02. Paranoid /3:27/
+03. Mr. Crowley /2:51/
+04. Crazy Train /5:10/(   Читать дальше...   )Жанр: LoungeПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACECF5936BFB030859D61525CE5285CB7BBF7B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298115   (602209) от 26.04.2019
+
+VA - The Sounds Of Minimal Techno (2019) [MP3|320 Kbps] <House, Electronic, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Kid - I Am Nobody
+02. Ebony Willis - Nobody
+03. Sammy La Marca - Jungle
+04. Jus Deelax - Jagermeister(   Читать дальше...   )Жанр: House, Minimal, Techno, ProgressiveПродолжительность: 04:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0269B5F4B0BE4E0EE646668DFDDC26959D833AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298223   (602163) от 26.04.2019
 
 Eguana - Vanity (Alternative Version) (2019) Cosmicleaf Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Psybient, Downtempo>
@@ -684,64 +742,6 @@ VA - Sunset Lovers the Harmony of Sounds (2019) [MP3|320 Kbps] <House, Tech Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E69AC1A299A520ED1FE539386FCF14E645E1C16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299124   (600847) от 30.04.2019
-
-Puff Dragon - Reflections (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psychill, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zephyr (07:12)
-02. Refracted Light (07:04)
-03. Sympathetic Resonance (07:19)
-04. Cascade (07:45)(   Читать дальше...   )Жанр: Downtempo, Psychill, AmbientПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5874D271C416F2261E8C0D3B1A2142BA4F0636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299188   (600843) от 30.04.2019
-
-VA - Milchbar Seaside Season 11 (2019) Compiled by Blank & Jones [FLAC|Lossless|WEB-DL|tracks] <Downtempo, ChillOut, Relax, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - Sweet Spot (Original Mix) 3:38
-02. Blank & Jones - C'est Mieux Comme Ca (Original Mix) 2:59
-03. Bel - Ready To Die (Mudd's Extended Mix-Blank & Jones' Milchbar Edit) 7:07
-04. Mike Salta - Hey Moloko (Original Mix) 8:11(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, LoungeПродолжительность: 01:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068B3654127B9E43FD74D689ABE917021A67364E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1364589   (935035) от 04.03.2020
+
+Envy - The Fallen Crimson (2020) [FLAC|Lossless|tracks + .cue] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Statement of Freedom (03:49)
+02. Swaying Leaves and Scattering Breath (04:13)
+03. A Faint New World (05:28)
+04. Rhythm (06:21)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BCCD15FBEE729AB07C010FC475FCF664D2DBB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364613   (935034) от 04.03.2020
 
 Envy - Compiled Fragments 1997-2003 (2005) Anthology [FLAC|Lossless|tracks + .cue] <Hardcore>
@@ -716,35 +745,6 @@ Acid Test - Drop 1993  [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51DC84E5DA8052C54C6EC6097E81390FF87916ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366505   (922318) от 12.03.2020
-
-Passenger - Passenger (2003) voice Anders Friden (In Flames) [FLAC|Lossless|image + .cue] <Nu-Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Reverse
-02. In My Head
-03. For You
-04. Just The Same(   Читать дальше...   )Жанр: Nu-Metal, Alternative MetalПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71AD22E0563051DF56EE97E2BB397021910D7FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

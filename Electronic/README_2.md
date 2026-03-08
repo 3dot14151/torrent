@@ -1,3 +1,60 @@
+###  Публикация: 1852952   (1056509) от 12.02.2026
+
+cv313 - Altering Illusions (Chapter One) (2014) 2CD [FLAC|Lossless|tracks + .cue] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Longing For Darkness	12:32
+02. Hypnosphere	9:53
+03. Standing StillЖанр: Dub Techno, AmbientПродолжительность: 01:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8491F988FA0233114953F517BE0877B3FBFEA57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853355   (1056508) от 12.02.2026
+
+VA - Uplifting Trance Collection, vol.1 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polzn Bladz - Awkward Silence (Extended Mix) [6:52]
+02. Elatex - Lost in Keys (Extended Mix) [5:55]
+03. Polzn Bladz - Intended Outcome (Extended Mix) [7:40]
+04. DJ Willbo - Cosmic Star (Original Mix) [7:47](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5FCD7ECEE4CA927CF22541F131ED55CA5B3F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853246   (1056507) от 12.02.2026
 
 VA - Winter Hits Dance Selection 2026 Vol. 2 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
@@ -687,64 +744,6 @@ VA - Armin van Buuren - A State Of Trance 1263 (2026) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E02A9098AFD5770A5A022E8D7661F4541C659216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851969   (1055536) от 05.02.2026
-
-VA - Desert Souls, Vol.1 (Micro Sound Records) (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nora Aladha - Kora Malembe Nitu (2:59)
-02. Alma Rojas - Se Quiseres (2:53)
-03. Lia Maris - I Move Slow (2:37)
-04. Anahi Sahra - Ana Al Khamisa (2:24)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C199703AFE3C4FB6905EBC761DEAED3C559ECD27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851848   (1055347) от 04.02.2026
-
-VA - Suanda Future 2026-01 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonerush pres. Pragma - El Fuego (Extended Mix) [4:52]
-02. AMINTO & Anton Pallmer - Another Life (Extended Mix) [5:14]
-03. Adip Kiyoi & Ade DokQ - Your Eyes (Extended Mix) [5:35]
-04. Michael Milov & H4lo & Sarah Etheridge - Make It Out Alive (Extended Mix) [5:00](   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7C74083AECC4818E0C948457208679AA64F2EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

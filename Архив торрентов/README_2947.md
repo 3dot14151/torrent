@@ -1,253 +1,3 @@
-###  Публикация: 1172986   (391283) от 10.10.2017
-
-Stand Up (2017.10.08) WEB-DLRip (сезон 7, выпуск 4)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C4D5000A7B425B9FCE60D3997A5EF45F2B09152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570015   (391280) от 04.11.2012
-
-Sexy Girls Pack Wallpapers (03.11.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5315x3543
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE3F419CCD88640172A064145B5425B1B578C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569984   (391278) от 04.11.2012
-
-[Wallpapers] Desktop Wallpapers Pack 8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391278.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 8
-Название: Desktop Wallpapers Pack 8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:013266BAE93F44CC84B2AFCDB0213F78FA440665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570016   (391277) от 04.11.2012
-
-Wallpapers Sexy Girls Pack (03.11.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 6000x4500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BD222C7FBEAB0B5B9374581EAAE2996287E7B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570006   (391276) от 04.11.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 11
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1680х1050 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3135A7D5FEFC8F8A5DABDB5DB70AE3E3193D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570025   (391275) от 04.11.2012
-
-[Wallpapers] Desktop Wallpapers Pack 13
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391275.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 13
-Название: Desktop Wallpapers Pack 13
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFA5C7FC45ED201024408D67706067D2E62AC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570028   (391273) от 04.11.2012
-
-[Wallpapers] Desktop Wallpapers Pack 15
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391273.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 15
-Название: Desktop Wallpapers Pack 15
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1366х768
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC335111E2468D58B0BB52367905C76616D1BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570236   (391271) от 04.11.2012
-
-[Wallpapers] Desktop Wallpapers Pack 20
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391271.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 20
-Название: Desktop Wallpapers Pack 20
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A189546D5C86E1F0A76EB45BD9672DB5255B8613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570056   (391270) от 04.11.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19955D30B131EDFBC6FCEF9A1C43CED8AFE61C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570047   (391268) от 04.11.2012
 
 [Wallpapers] Avto Desktop Wallpapers Pack 3
@@ -733,6 +483,258 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8559EDF3E90ECE1A1810A8973DDDC204F8A8C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570074   (391186) от 04.11.2012
+
+Журнал | Секреты кухни №10 (62) [октябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимый герой «СК» - Михалыч – поделится своим кулинарным опытом, расскажет о том, что происходит в мире кулинарии и, конечно же, даст дельные советы и рецепты.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00008DBF7078E4D1B6A36012F6BC3DD77CF47B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570251   (391185) от 04.11.2012
+
+[Wallpapers] Abstract Desktop Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391185.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Abstract Desktop Wallpapers Pack 1
+Название: Abstract Desktop Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1440х900 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9A47B9908A1FCAA441B67862A557E135F33BAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570030   (391183) от 04.11.2012
+
+HQ Wallpapers for a desktop (03.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790099E71F3B30137B63DA0D70561D9278A75A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173145   (391146) от 10.10.2017
+
+BetterSnapTool 1.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391146.jpg" />
+</div>
+
+
+###  Подробнее
+
+BetterSnapTool: новые возможности для окон OS X
+Утилиты для управления окнами рабочего стола могут сослужить хорошую службу владельцам Mac'ов c небольшой диагональю экрана. Они позволяют быстро разместить приложения таким образом, чтобы последние не мешали друг другу и использовали максимально возможное пространство. Утилита сочетает в себе все функции SizeUp! и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 октября 2017Разработчик: Andreas HegenbergПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A1BBB8BEB4073687A7592B6B1C25DC7EA5E363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570220   (391116) от 04.11.2012
+
+Computer Desktop Wallpapers Collection (04.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D549A3AB95544C6A098EADB5E460E5A9B5BAF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569341   (391115) от 04.11.2012
+
+VA-Night Dance (2012) [MP3|320 кб/с]<Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren feat. Ana Criado - I'll Listen (Super8 & Tab Remix)
+02. DJ Eako, Jason Chance feat. Soraya Vivian - Deep Inside My Soul (Club Mix)
+03. Avicii feat. Andreas Moe - Last Dance (Vocal Club Mix)
+04. Eric Prydz - Every Day (Original Mix)
+05. Rihanna - Diamonds (Bimbo Jones Club Mix)
+06. Pink Is Punk & Benny Benassi - Perfect Storm (Original Mix)
+07. Tiesto & Allure - Pair Of Dice (Original Mix)
+08. DJ Rebel & Robert Abigail feat. M.O. - Culo! (Extended Mix)
+09. DJ Assad feat. Mohombi, Craig David & Greg Parys - Addicted (Extended Mix)
+10. Estela Martin feat. Young James - Love Me Tonight (Extended Mix)Жанр: DanceПродолжительность: 03:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6016C04406104EF13685C707D41F3299197072A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569321   (391114) от 04.11.2012
+
+Computer Desktop Wallpapers Collection (02.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B360FF7F915B526470A2D50CA8510D4D65EA9128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570254   (391103) от 04.11.2012
+
+[Wallpapers] Desktop Wallpapers Pack 22
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391103.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 22
+Название: Desktop Wallpapers Pack 22
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D630FF55048AF2104B1994F002D232492AB401E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173117   (391092) от 10.10.2017
+
+Wise Care 365 Pro 4.7.3.456 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: русский/английский/украинский/белорусский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52AB757232EC4ADAF1E2D856D7971F94C75DA10F
 ```
 
 https://mybot314.ru/tekegram_catalog/

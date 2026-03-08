@@ -1,3 +1,32 @@
+###  Публикация: 1290288   (678493) от 20.03.2019
+
+Susie Arioli - Christmas Dreaming (2010) Spectra Musique [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have Yourself a Merry Little Christmas [4:10]
+02. Winter Wonderland [2:54]
+03. Blue Christmas [3:17]
+04. Call Collect on Christmas [3:37](   Читать дальше...   )Жанр: Vocal Jazz, ChristmasПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAD99AE648F5A52D5765B9B03F8E40B8D3E3E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290289   (678488) от 20.03.2019
 
 Susie Arioli - Spring (2015) Spectra Musique [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -728,41 +757,6 @@ Tony Bennett & Dave Brubeck - The White House Sessions, Live 1962 (2013) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF4F75E80A54978B6A1372B05276E1DE8CD50268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509289   (675310) от 12.06.2012
-
-The Bill Holman Band - Brilliant Corners: The Music of Thelonious Monk (1997) [FLAC|Lossless]<Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight, No Chaser
-02. Bemsha Swing
-03. Thelonious
-04. 'Round Midnight
-05. Bye-Ya
-06. Misterioso
-07. Friday the 13th
-08. Rhythm-A-Ning
-09. Ruby, My Dear
-10. Brilliant Corners1997Жанр: Hard Bop, Post-BopПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

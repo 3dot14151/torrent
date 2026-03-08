@@ -1,3 +1,181 @@
+###  Публикация: 491494   (246316) от 03.05.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #83 (03.05.2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246316.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #83 (03.05.2012)
+
+Год: 03.05.2012
+Жанр: Vocal Trance
+Продолжительность: 03:32:11Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Kyau & Albert - A Night Like This (Original Mix) [06:03](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53DBB7B6803B9E85D0ECA0002B12C69AD5713AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833367   (246165) от 01.11.2025
+
+Sofia Bellini - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_246165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Goditi il momento 3  version
+ 02 - Nel silenzio di te 1  version
+ 03 - Ti voglio bene 1  version
+ 04 - Amaro in bocca(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FAF470BE483A3006F43006AA29E87BD42798BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833102   (246161) от 01.11.2025
+
+Мария Варгас - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_246161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ночной звонок
+ 02 - Не для меня
+ 03 - Забудь меня
+ 04 - С любимыми не расставайтесь(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0733ACD61D93B5A4F961D174E5F30C2CAC9D18AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833059   (246156) от 31.10.2025
+
+VA - Music News For Forum vol.143 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_246156.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Madonna - Human Nature (Howie Tee New Edit) (03:20)
+ 002. 3ntry & DXNKXR - My Heart (02:04)
+ 003. 5 Seconds of Summer - Telephone Busy (03:16)
+ 004. ADA - Butterfly (02:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC68DB90D0EFD7B20E72B304396180E3F7D56999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833019   (246124) от 31.10.2025
+
+Chicago Blues Radio - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_246124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Midnight ashes (Version 2)
+ 02 - Midnight smoke
+ 03 - Midnight on State Street
+ 04 - Midnight on ice(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 01:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6035374CAC9C35D2BCF741F7CF4F035A4B1140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833485   (246092) от 01.11.2025
+
+Chicago Blues Radio - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_246092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Midnight Glass of Blues
+ 02 - Whiskey and midnight blues
+ 03 - Whiskey after midnight
+ 04 - Whiskey and midnight blues(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 01:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44605BAC2EACD00704B5CE779F902A2168C540BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833481   (246090) от 01.11.2025
 
 Chicago Blues Radio - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
@@ -571,180 +749,6 @@ VA - Traxsource Best Of Ibiza - Hype Chart (2016) [MP3|320 Kbps] <Deep House, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73FE9D78969EE8A5E7F39844B3A4C918280BE311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512354   (245524) от 24.11.2021
-
-VA - Clubbing Tech House: November Set (2021) [MP3|320 Kbps] <Tech House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245524.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. F4t4l3rr0r - Electricity
-002. Kurl - Dark Innocence
-003. Lefthand Soundsystem - Toz
-004. Dino Maggiorana And Mindcoded - It's(   Читать дальше...   )Жанр: Tech House, Club, DanceПродолжительность: 10:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C62543FB7FEDA2AC4EA3B1275900504FED142AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060933   (245430) от 08.10.2016
-
-VA - Beatport Trance Pack  (07.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Uplifting Trance, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Tyas - Perfect World (Radio Edit) (feat. Victoriya)  3:50
-02. Ben Gold - Until We Meet Again (Ben Nicky Remix)  3:48
-03. Ferry Tayle - Tomorroworld (Radio Edit)  3:51
-04. Atragun & Cederquist - Nightstorm (A.R.D.I Remix)  7:06(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Uplifting Trance, Energy, ProgressiveПродолжительность: 04:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7771EEAE317EE734FFD8FA758745871E854EB88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449308   (245376) от 21.02.2021
-
-VA - EDC Radio Clubbing Sound (2021) [MP3|320 Kbps] <Club House, Techno, Trance, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Довольно разноплановый альбом под названием "EDC Radio Clubbing Sound" в котором нашли своё место самые разнообразные стили танцевальной электроники. Музыка лонгплея подарит Вам отличное настроение и доставит отличные эмоции. А если вы являетесь откровенным поклонником Electro House, то здесь вы обязательно найдёте для себя не один десяток треков001. DJ Magic Mike - Call Me
-002. Format Groove - Strength
-003. Scorpia - Kern
-004. Forever 80 - Universe Of Love(   Читать дальше...   )Жанр: Club House, Techno, Trance, EDMПродолжительность: 11:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE96F99F144CC1C9EC901D82B69F64A73369799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621357   (245306) от 24.03.2023
-
-VA - Music News vol.253 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245306.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Grishina - Двигайся Парень (Rdsagitario Deep Mix) (03:48)
- 002. Absofacto feat. Niteshift - Unquit You (03:15)
- 003. ADA - Слёзы От Версаче (02:30)
- 004. Aize feat. Danna Max - Just One Last Dance (02:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B0B0F41D1A52CCE5FC2283357007BFF685B12E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621528   (245063) от 25.03.2023
-
-Mantovani and His Orchestra - Compilation (2023) [MP3|320 Kbps] <Easy Listening>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Than Ever (Come Prima)
-02. Autumn Leaves
-03. Love is All
-04. Love Story Theme(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 02:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98296878C4097BAF8CF19877F806225E71D5EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450983   (244957) от 28.02.2021
-
-VA - Beatport Progressive Trance: Sound Pack #249 (2021) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда твое сердце бьется быстрей и быстрей, когда тело требует движения, а душа – полета, тебе нужен верный проводник. И этим нужным элементом является музыка 249-го сборника от Beatport. Только свежие релизы, проверенные временем треки и полюбившиеся композиции для настоящих меломанов001. La Remedy - Kenzo
-002. Tyron Hapi - Euphoria
-003. Dj Tomsten - It Happend
-004. Dj Tomsten - The Last On Earth(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 10:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A89BE7740AAD4DF8C4DA0399BC56908B54856E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,174 @@
+###  Публикация: 970653   (137891) от 31.12.2015
+
+VA - Новогодний Топ 100 От Зайцев.Нет (2015) [MP3|191 - 276 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137891.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Натали - Новогодние игрушки (03:44)
+002. Белый день - Новый год (03:00)
+003. Emin - Boomerang (02:56)
+004. Frank Sinatra - Jingle Bells jingle bells (02:04)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158F17911E66F111CCA46E646AC1A32691E1485E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521112   (137881) от 31.12.2021
+
+Roland Romanelli - Compilation (2019) [MP3|320 Kbps] <Instrumental,  Electronic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schiffbruch Des Herzens
+02. Soledad
+03. Ein Sommer Ohne Blumen
+04. Liebe Fur Einen Tag(   Читать дальше...   )Жанр: Instrumental,  ElectronicПродолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66350EF4D5393A8D8802D1C567604C76245C755C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740512   (137840) от 31.12.2013
+
+VA - District of Trance (Compiled by sseless & Lazyra) (2013) [MP3|320 кб/с]<Trance , Uplifting Trance , Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 02:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A8B9261AB90B322C4B55699F77C4B320FB6008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273262   (137817) от 31.12.2018
+
+VA - Partybreaks and Remixes - All In One October 003 (2018) [MP3|320 Kbps] <Pop, House, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137817.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Muka  MK X CeCe Peniston - 17 X Finally (Muka Short Mashup)
+002. Starjack & Collini  Ini Kamoze - Hotstepper (Starjack vs Kuba & Neitan Festival Edit)
+003. Vegas & Dj Julo Cruz  Khia - Bodak Yellow X My Neck My Back 2017 (Acapella In My Neck My Back) (Moombahton Mash-Up RMX)
+004. #The Goodfellas  Lil Uzi Vert - Unfazed (Intro)(   Читать дальше...   )Жанр: Dancehall, Future Bass, ElectroПродолжительность: 09:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC5F2C76274A724AD76EC85C584EAC6E5F44191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521042   (137766) от 31.12.2021
+
+Saint-Preux - Compilation (2019) [MP3|320 Kbps] <Instrumental, Electronic. Easy Listening>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expression Part I
+02. Expression Part Ii
+03. Expression Part Iii
+04. Expression Part Iv(   Читать дальше...   )Жанр: Instrumental, Electronic. Easy ListeningПродолжительность: 04:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F2000F5DD055A4C8BCD993D386664A49E382A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273270   (137760) от 31.12.2018
+
+VA - Drum Overcome (2018) [MP3|320 Kbps] <Drum And Bass>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137760.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Embrz Ft. Joan - Like It Or Not
+002. Dillinja - Luscious Nights
+003. 3Rdknd - Panger (Original Mix)
+004. Furney - Every One Of Us (Original Mix)(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 09:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2242776B50CBF4529A6D01FF75CDB3B50CE4419D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521027   (137755) от 31.12.2021
 
 Kenny G - Beautiful compilation (2019) [MP3|320 Kbps] <Instrumental>
@@ -619,216 +790,6 @@ VA - Танцуй и не останавливайся (2012) [MP3|256 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45831482119BE213BD2FF223398CAE977E4F6E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591098   (135905) от 21.12.2012
-
-VA - Poker Lounge (4CD) (2008) [MP3|320 кб/с]<Lounge, Jazzy>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для  NoNaMe Club PokerTourПродолжительность: 01:02:52
-
-1. Seven Smiles - City Light (3:19)
- 2. DJ Coltsilvers - After The Party (3:50)
- 3. Zaia - Bugle Sound (3:59)
- 4. Brenda Wilson - What A Differenc E A Day Makes (4:59)
- 5. Michel Leca - Los Colores De La Rosa (4:02)
- 6. John T'man Taylor - Don't Wanna Sleep (5:27)
- 7. Liza Everson Feat. Alvin S - Le Freak (4:46)
- 8. Nicco - One Day In July (3:21)(   Читать дальше...   )Жанр: Lounge, JazzyПродолжительность: 03:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58CC7DB12E9B0C27B9FE1C61EB3BBDC425EDF38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592863   (135722) от 22.12.2012
-
-VA - Trancern 2012.5 - Official Compilation (Best of 2012) (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
- 02. Gareth Emery - Concrete Angel (Original Mix)
- 03. Akira Kayosa & Bevan Miller feat. Carly Kling - Phase 3 (Original Mix)
- 04. Lange vs. Gareth Emery - Another You Another Me (Rafael Frost Remix)
- 05. Solarstone With Giuseppe Ottaviani - Falcons (John O'Callaghan Remix)
- 06. DubVision - All By Myself (David Jones Remix)
- 07. Delerium feat. Michael Logen - Days Turn Into Nights (Solarstone Pure Mix)
- 08. Andrew Rayel - Believe (Original Mix)
- 09. Andy Tau & Sean Truby - Rapture (Suncatcher Remix)
- 10. The Thrillseekers feat. Fisher - Angel (Eximinds Remix)(   Читать дальше...   )Жанр: Trance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822E91B81BF0AADE5C8F94111C059B1E77FC1051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592849   (135721) от 22.12.2012
-
-VA - Keri Gen - True Trance Nation (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epos - Polarized (Magic Island 200th Episode Theme) (Original Mix)
- 02. Armin van Buuren & Orjan Nilsen - Belter (Original Mix)
- 03. Moonbeam feat. Jacob A - Only You (Club Mix)
- 04. 2Players - Signet (Wellenrausch Remix)
- 05. KhoMha - Days Gone Bye
- 06. Aly & Fila vs. Ummet Ozcan - FSOE 200 Anthem (Keri Gen 2 in 1 Mashup)
- 07. Above & Beyond feat. Zoë Johnston - Alchemy (Myon & Shane 54 Redemption Mix)
- 08. Richard Durand vs. The World - Stand Again (Original Mix)
- 09. Alexandre Bergheau - Adduria (Original Mix)
- 10. Armin van Buuren feat. Jan Vayne - Serenity (Andrew Rayel Aether Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8528D18543B5A1A39328A7EFE1096370F21C1863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593334   (135451) от 23.12.2012
-
-VA - Dance Vibration Vol 2 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B-A-D-B-O-Y-Take Me Away (Vinylbreaker Remix) 05:41
- 02. Basewalker & Vyrus-Dancing Through the Night 06:12
- (DJ Locos Summer Remix)
- 03. Clark Owen-Melody 05:45
- (Wavepuntcher & Sexual Energy Remix)
- 04. Dittin & Jockiboi-VI Dricker Redbull Och Vodka 05:19
- (Saamen Van Aaren & Nrg-Boy Summer Remix)
- 05. DJ Darroo-Black Magic 08:34
- 06. DJ Equan-I'm Destination 06:47
- 07. Edvard Hunger-Close My Eyes 05:41(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79843F382DC8FB8D76DAF39134FDA516C495C35E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592072   (135410) от 23.12.2012
-
-VA - Creative Music Box 6 (2012) [MP3|320 кб/с]<Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal Step>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135410.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Asking Alexandria - A Lesson Never Learned
-2. Bassex - Tinnitus
-3. Butch Clancy - Xlam
-4. Butch Clancy- The Devil's Quid Pro Quo
-5. Cenob1te - Hyperion
-6. Deltron 3030 - Upgrade (Figure Remix)
-7. Demented Dimensions - I Swear to God
-8. Document One feat. Maksim - Kick Snares And Brehs
-9. Dubwoofer - Carol Of The Bass
-10. Eliminate - Devil Theory(   Читать дальше...   )Жанр: Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal StepПродолжительность: 02:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D9A6E0E12F409DF5BC70019504C1BF1BF2A7C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591856   (135372) от 23.12.2012
-
-VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Degrees Of Motion & North Base - Shine On (Dubstep Mix)
-02. Other Echoes feat. Julian Huggins - Free Running
-03. Delerium feat. Michael Logen - Days Turn Into Nights (Seven Lions Remix)
-04. Waverokr - Gravity Switch
-05. Dubba Jonny - Smack It!
-06. Molecule - Ghetto Superstar
-07. DKS - Can't Get Enough (Original Mix)
-08. Hardwell feat. Amba Shepherd - Apollo (3rd Prototype Bootleg)
-09. TS7 - Struggle (DJ Q Remix)
-10. Smooth feat. Tasha Baxter - Nowhere(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE01CE8DE485381BFF5BAC1C0EDFCA34F86E334C
 ```
 
 https://mybot314.ru/tekegram_catalog/

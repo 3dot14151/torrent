@@ -1,3 +1,61 @@
+###  Публикация: 1147997   (605635) от 04.07.2017
+
+VA - Rec Top vol. 2 Моя Москва (1995) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маликов Дмитрий - Прощай, моя блондинка [04:11]
+02. Валерия - Моя Москва [03:29]
+03. Овсиенко Татьяна - Школьная пора [03:38]
+04. Анка - По Парижу [03:03](   Читать дальше...   )Жанр: PopПродолжительность: 01:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85237283D19418A01C2236130DDDB8DD36C1886E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148054   (605633) от 04.07.2017
+
+Cliff Wedge - Back To The 80's (2009) 2CD [FLAC|Lossless|image + .cue] <Italo-Disco, Italodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch Me (Radio Edit) (3:25)
+02. I Open Up My Eyes (Radio Edit) (3:44)
+03. Survive (Radio Edit) (3:25)
+04. No One Like U (Radio Edit) (3:46)(   Читать дальше...   )Жанр: Italo-Disco, ItalodanceПродолжительность: 01:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD43074F7F927CD27F9C8296F22E7D82124C779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913447   (605198) от 29.06.2015
 
 Gin Wigmore - Blood To Bone (2015) [MP3|320 кб/с]<Pop, Soul, Funk, Alternative>
@@ -698,64 +756,6 @@ VA - Eurobeat & High Energy Cartoons Flavor: Top 120 Mega Pack Hits (2019) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3B76453423A31B8F08B80A5417BE671337DE13D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148666   (603495) от 07.07.2017
-
-Rebbie Jackson - Yours Faithfully (1998) [FLAC|Lossless|image + .cue] <Pop, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 What You Need 04:34
-02 Play Your Game 04:42
-03 Yours Faithfully 04:34
-04 Get Back To You 04:00(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A375595A5B58DED0E064657EEC6023172E27B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547225   (603436) от 27.04.2022
-
-VA - DMC Dance Mixes 299 (2022) [MP3|320 Kbps] <House, Tech House, Bassline, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aluna & Diplo & Durante - Forget About Me (Club Mix)
-02. Blinkie Ft. Izzy Bizu - Wind Blows (Extended)
-03. Burns - Talamanca (AmyElle Extended Remix)
-04. Chapter & Verse - You Know It's Time (Extended)(   Читать дальше...   )Жанр: House, Tech House, Bassline, VocalПродолжительность: 01:19:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED57D06FF835547A5E189AF948D39CF5F186A675
 ```
 
 https://mybot314.ru/tekegram_catalog/

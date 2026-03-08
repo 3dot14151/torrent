@@ -1,3 +1,32 @@
+###  Публикация: 1794692   (19756) от 30.04.2025
+
+Charles Rouse - Two Is One (1974) 1992, Strata-East [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_19756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bitchin' [7:21]
+02. Hopscotch [7:19]
+03. In a Funky Way [4:54]
+04. Two Is One [11:17](   Читать дальше...   )Жанр: Hard Bop, Jazz FusionПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B8F17819B17B923DDBAEFBC38EA4F32CAED8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796316   (18828) от 09.05.2025
 
 Joe Newman - Quintet At Count Basie's (1961) 2005, Verve Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -716,35 +745,6 @@ Tim Hardin Trio - Light Intelligence Series 5 (1992) Golden Penguin [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71B0A32664346C4ADB844936A674942F785E4684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801326   (15034) от 10.06.2025
-
-Ella Fitzgerald - Golden Legends (2006) CD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Bop, Swing, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Tisket, a Tasket    [0:02:28.68]
-02. How High the Moon    [0:02:15.66]
-03. That Old Black Magic    [0:02:25.54]
-04. Basin Street Blues    [0:03:01.48](   Читать дальше...   )Жанр: Jazz, Bop, Swing, VocalПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C858F4A38F980D51964371EA15D4E08FDACC3337
 ```
 
 https://mybot314.ru/tekegram_catalog/

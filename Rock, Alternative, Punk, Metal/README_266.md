@@ -1,32 +1,3 @@
-###  Публикация: 1118730   (811939) от 26.03.2017
-
-Svartrit - II (2010) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Black Stars of Death and Wisdom
-03. A Labyrinth of Death
-04. Domedagens tid (Ragnarök)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE7DD35A21925E81F91CFF4FE84DE19D3FBEEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118732   (811938) от 26.03.2017
 
 Svartrit - III (2010) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -739,6 +710,35 @@ Santana - 54 albums, 5 Box sets, 137 CD (1968-2021) [FLAC|Lossless|image + .cue 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47855A411620B1F3B42994FE9004DF9E53B1564E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118914   (811489) от 26.03.2017
+
+VA - Охота 72 (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Скворцы Степанова - Ж*па 2.0
+02. Свободный полёт/Павел Пиковский - Не ждал
+03. CL.EVER - Стены
+04. Fast-mo - Beat(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFB46F139D40BC426F0A3EA324A9DA9B41E98AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

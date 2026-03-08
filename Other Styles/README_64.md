@@ -1,3 +1,32 @@
+###  Публикация: 1131403   (706478) от 06.05.2017
+
+Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture Score) (2017) [MP3|320 кб/с]<Score, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fate of the Furious (03:35)
+02. Cipher (02:09)
+03. Zombie Time (06:00)
+04. Reunited (02:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF93F0A5BE7C3211C02B4DB05C2E2831D6EB1F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026039   (706136) от 14.06.2016
 
 Midori - Island Paradise (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE27D2BA5AFBBF8C1EB4AC0459DC3EDC9A09529B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220572   (700530) от 21.04.2018
-
-Levantis - I Love Yoga (Music To Relax Your Body And Mind), 3CD Box Set (2009) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Part 1 (3:51)
-02. Spirit Part 2 (3:05)
-03. Rising Star Part 1 (3:06)
-04. Rising Star Part 2 (2:05)(   Читать дальше...   )Жанр: New Age, Meditative, AmbientПродолжительность: 02:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FC5FDB3FD38E8AEE3ECFBD28D02BF804F4A24A
 ```
 
 https://mybot314.ru/tekegram_catalog/

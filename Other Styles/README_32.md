@@ -1,3 +1,32 @@
+###  Публикация: 1001983   (850469) от 30.03.2016
+
+Nicholas Gunn - Thirty - One Nights (2012) [FLAC|Lossless|tracks] <Brass & Military, New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember Me Prelude    00:51
+02. Fiesta Patria    03:14
+03. Thirty-One Nights    03:59
+04. The Swallows of Na' Lu'um    05:29(   Читать дальше...   )Жанр: Brass & Military, New Age, InstrumentalПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF345B827B00440BF4974F4DD912CB00C832D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110808   (850242) от 04.03.2017
 
 Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -713,35 +742,6 @@ Raphael - Music for Love (2008) [FLAC|Lossless|tracks + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0684A855AF078D4BABA8A757C0FE600311CFE76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112156   (843288) от 08.03.2017
-
-VA - No Stress Music Playlist 3: Pure New Age & Chillout Relax (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jez Poole - Renewable Energy [00:02:41]
-02. Jez Poole - Energy Constant [00:02:10]
-03. Thierry David - Sunset Islands (Main) [00:03:15]
-04. Adrian Kensington - Beyond the Blue [00:02:58](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C6F7F2404CCC9EC390C7AE1FF1DC80C216D1A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

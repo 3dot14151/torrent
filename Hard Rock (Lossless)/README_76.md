@@ -1,32 +1,3 @@
-###  Публикация: 1586826   (214011) от 29.10.2022
-
-Palaye Royale - Fever Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock, Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Life (Intro) [00:01:04]
-02. Eternal Life [00:03:43]
-03. No Love In LA [00:03:22]
-04. Punching Bag [00:03:55](   Читать дальше...   )Жанр: Glam Hard Rock, Alt.RockПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E181AD8F59FB804A2F8CCC34BD764290A2CA44BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586927   (214004) от 29.10.2022
 
 Michael Bormann's Jaded Hard - Power To Win (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -748,6 +719,35 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C34899ED3CF1BDE4E521160C7D983AAE977599C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653290   (205608) от 15.08.2023
+
+Enuff Z'Nuff - Tweaked (1995) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stoned [05:09]
+02.  Bullet From A Gun [04:20]
+03.  Mr. Jones [05:36]
+04.  My Dear Dream [03:08](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7671D305BF9028AA7A304188C4704B681ED9C6B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

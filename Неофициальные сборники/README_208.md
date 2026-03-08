@@ -1,3 +1,177 @@
+###  Публикация: 1521535   (764271) от 03.01.2022
+
+Joe Dassin - Compilation (2020) [MP3|320 Kbps] <Pop, Chanson>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marie-Ange (Fallen Angel)
+02. L'albatros
+03. Quand On Sera Deux
+04. La Ligne De Vie(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D098361EF5D3937E3AD1602DD783709A5366229B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126765   (764252) от 19.04.2017
+
+VA - My Favourite Hits of 1968 (10CD) от DON Music (2017) [MP3|320 Kbps] <Blues Rock, Pop, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764252.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Beatles - Lady Madonna (02:16)
+002. Tom Jones - Delilah (03:21)
+003. Deep Purple - Hush ! (04:25)
+004. Paul Mauriat - Alouette (02:11)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues Rock, Pop Rock, Pop, Chanson, Easy ListeningПродолжительность: 11:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE26FBC656E8430C88CB38BB41815582F43DC5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214488   (764146) от 22.03.2018
+
+VA - Moon Walk (2018) [MP3|320 Kbps] <House, Deep House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amx - Feeling Down
+02. Moonsound - Say My Name (Manuel Riva Remix)
+03. Paale - Patience Is A Virtue
+04. Sound Knight - Plastic City (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, Progressive HouseПродолжительность: 05:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457BA7BC4273B2E03338AB5CB8906DA26A295A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214509   (764071) от 22.03.2018
+
+VA - AmBeat Party (2018) [MP3|320 Kbps] <Club House, Progressive House, Big Room>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kisma - Fingertips
+02. Calum Scott - You Are The Reason (MOTi Extended Remix)
+03. Lost Frequencies & Zonderling - Crazy (Dash Berlin Extended Remix)
+04. Kaaze Ft. Elle Vee - Opera (Instrumental Mix)(   Читать дальше...   )Жанр: Club House, Progressive House, Big RoomПродолжительность: 05:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36214D3FA45FB259B19782C8EC854D6606F7D898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214510   (763998) от 22.03.2018
+
+VA - Best Vocal Trance 2018 Vol.2 (2018) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Phil Dinner  -  Playing With Your Heart (Extended Mix)  7:04
+02.  Maes-tro & Christine Tran  -  Ocean Tides (Giuseppe Ottaviani Remix)  6:33
+03.  Aly & Fila with Sue McLaren  -  Surrender (Extended Mix)  7:29
+04.  Costa feat. Veronica K  -  The Missing Piece (Extended Mix)  7:00(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB880286EA599228E10090159E8633762827AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214464   (763997) от 22.03.2018
+
+VA - Best Club Hits of February (2018) [MP3|320 Kbps] <Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Active Surfers - Everyday In My Lie (Original Mix)
+02. Froidz - Easy Lover (Danny Dove Remix)
+03. Newclaess - Be The One (Extended Mix)
+04. Luis Fonsi & Demi Lovato - Echame La Culpa (Nejtrino & Baur Remix)(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 04:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6EBCA16C92B30BDDD2B3B519F47B1CD11E2279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214506   (763989) от 22.03.2018
 
 VA - Best Vocal Trance 2018 Vol.1 (2018) [MP3|320 Kbps] <Vocal Trance>
@@ -571,180 +745,6 @@ VA - Rock & Chill (2020) [MP3|320 Kbps] <Rock, Pop, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F11A480B9E9DBBEF2309D13BA0159CDBA5AD7111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279994   (763532) от 01.02.2019
-
-VA - Time Machine: Hard Dance Techno (2019) [MP3|320 Kbps] <Techno, Hard Dance, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763532.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Borzoo - Seagulls Tripping
-002. Anderex - Gucci Bag (Original Mix)
-003. Crystal Lake - Invaders (Extended Mix)
-004. Devin Wild - For All Of Us(   Читать дальше...   )Жанр: Techno, Hard Dance, ElectronicПродолжительность: 10:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAC847B01E9E19BB11ABEA9FC10C46B5E997BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280002   (763527) от 01.02.2019
-
-VA - Rasta On (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763527.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kraiggi Badart - Burnin
-002. Chan I - Jungle Ghod
-003. Tomorrows Bad Seeds - Illuminate
-004. Ziggy Marley - The Storm Is Coming(   Читать дальше...   )Жанр: Reggae, Dub, SkaПродолжительность: 10:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B26A2DCBA8C09706DE31A58FAF32BD9B04D85DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279992   (763526) от 01.02.2019
-
-VA - Billboard Hot 100 Singles Chart 02.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763526.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Travis Scott - SICKO MODE
-002. Halsey - Without Me
-003. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
-004. Ariana Grande - thank u, next(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B17CCBA872E1CEE3A93AD3F8849D1D70D2310E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280141   (763513) от 01.02.2019
-
-VA - TOP Non-Stop 2000-2009 - Lounge & Chillout (2019) [MP3|128-320 Kbps] <Lounge, Chillout, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganga - Sweet Morning (4:50)
-02. Basil - All True (A Capella Flute mix) (7:16)
-03. Osunlade - Cantos A Ochun Et Oya (5:50)
-04. Unknown Artist - Unknown Track 1 (from mix - Fashion TV Winter Session 07-08 by David Vendetta) (4:27)(   Читать дальше...   )Жанр: Lounge, Chillout, Deep HouseПродолжительность: 08:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA52EA2AD2D434AF080D9192B4B284AEE7762AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017046   (763267) от 16.05.2016
-
-VA - Chill at Home (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jarome Adam - Apue (Chilling Mix) [3:22]
-02. Kemp Long - You Break My Dreams (City Chill Mix) [4:00]
-03. Booker O'Neill - Tropical Storm (Tee Jay Jay Mix) [4:08]
-04. Carl Kennedy - Room and Ripple (Boutique Mix) [3:34](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DEC3FA9DB568F390C5CCF1DFBE8FF991305221D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017286   (763266) от 16.05.2016
-
-VA - Codes Future House Anthems (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headhunterz & Skytech - Kundalini (Extended Mix) 4:08
-02. StadiumX - Mombasa (Radio Edit) 3:17
-03. Jewelz And Sparks - Drip 2:34
-04. Orjan Nilsen Feat. Senadee - Hands (Noah Neiman Remix) 3:15(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6508A4510A45543C5B2F26B601B01A18D553F926
 ```
 
 https://mybot314.ru/tekegram_catalog/

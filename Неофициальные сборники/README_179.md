@@ -1,3 +1,177 @@
+###  Публикация: 1275752   (789452) от 13.01.2019
+
+VA - German Top 50 Official Dance Charts 11.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz, Erika Sirola - Speechless (feat. Erika Sirola)
+02. Fatboy Slim - Praise You (Purple Disco Machine Remix)
+03. Chic - Le Freak (Oliver Heldens Remix)
+04. Hugel, Amber Van Day - WTF (feat. Amber Van Day)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F40A0F3DBB650E3ED98B2728EB306AB8EB66EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275790   (789446) от 13.01.2019
+
+VA - Techno Biogram (2019) [MP3|320 Kbps] <Techno, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789446.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. House Syndicate - Jam The Mace
+002. Ian Jose - Boo (Original Mix)
+003. Jamie Trench - That Teebs (Original Mix)
+004. Jeremy Stott - Caktuss(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD17B43DDDE5BDA6A8F65CEB8A7E109E911986A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275786   (789442) от 13.01.2019
+
+VA - Jungle In A Box (2019) [MP3|320 Kbps] <DnB, Jungle, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789442.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anthony Kasper - Zuluu
+002. Dave Owen - Jungle Justice
+003. Dutta - Dominos
+004. Kolectiv & Medika - Revolutionaries(   Читать дальше...   )Жанр: DnB, Jungle, DubstepПродолжительность: 09:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A29FC2F326C44EF356CC0FC6468F5338CCA85D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275772   (789439) от 13.01.2019
+
+VA - Billboard Hot 100 Singles Chart 12.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789439.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Halsey - Without Me
+002. Ariana Grande - thank u, next
+003. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
+004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F578357EECA09D365E05FF01C286B874191F814E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275767   (789438) от 13.01.2019
+
+VA - Record Super Chart 569 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+02.  Fisher  -  Losing It
+03.  Denis First & Reznikov & Bright Sparks - Shameless
+04.  Axwell - Nobody Else(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092727C64627E63B3A85EDD85265B8F68E088D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275674   (789436) от 13.01.2019
+
+VA - New Techno: Winter Show (2019) [MP3|320 Kbps] <Techno, Electronic, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789436.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adverze Ft. Mc Instinct - On The Block
+002. 2Pole - Magnetar
+003. Alan Mille - Solaris
+004. Salim - Alchemy(   Читать дальше...   )Жанр: Techno, Electronic, Tech HouseПродолжительность: 13:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4787D8A53D2C335CCF568EFFD3D5FC9B05B224B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275850   (789435) от 13.01.2019
 
 VA - Trending Topics (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -571,180 +745,6 @@ VA - Deep House Collection vol.155 (2018) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86A9911D6EDCB5DEE4479DD5E710228D75D7C30D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203028   (789031) от 31.01.2018
-
-Алимханов А. - Cover Collection (2018) [MP3|320 Kbps] <Pop, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARKADiAS & DJ Kriss Latvia - Baby (Remix) (3:42)
-02. Bee Lee & Алимханов А. - Do You Wanna (Modern Talking Cover) (6:23)
-03. Mode One - Heaven is Waiting (DJ Kriss Latvia Rework) (5:56)
-04. Алимханов А. & Bad Boys Blue - Hungry For Love (4:33)(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 03:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2002D9DB158F251435C3A1FF64ED73994FC9DBE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202864   (789015) от 31.01.2018
-
-VA - За Полшага До Зимы (2018) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789015.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Кипелов - Косово Поле
-002. БИ-2 feat. John Grant - Виски
-003. Сплин - Храм
-004. 25-17 - Она не такая, как все(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6297466B124669DFCC54FC9FED23310192DD04ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511598   (788938) от 21.11.2021
-
-VA - Music News vol.149 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788938.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Cry Your Heart Out (04:15)
- 002. ADDA - Sa Nu-mi Iei Trandafiri (03:25)
- 003. Adele - Can I Get It (03:30)
- 004. Activ - Doar Cu Tine (Andrey Vertuga DFM Radio Edit) (02:52)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A354D2DAE1147D8F8228C9623257AB092C829C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511524   (788850) от 21.11.2021
-
-VA - German Top 100 Single Charts 19.11.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KUMMER & Fred Rabe - DER LETZTE SONG (ALLES WIRD GUT)
-02. Ed Sheeran - Shivers
-03. Elton John & Dua Lipa - Cold Heart (PNAU Remix)
-04. Glass Animals - Heat Waves(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B7C9DB26BC6AA8B090F40D57DC59CF613A8250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511612   (788841) от 21.11.2021
-
-VA - Music News vol.150 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Natalia Oreiro & Juan Ingaramo - Me Muero de Amor (03:31)
- 002. Anzheli - Антигерой (Piano Version) (02:42)
- 003. ARZU - Слезы (02:45)
- 004. Banzay - Румянец (02:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2221930ECC43B3DC9ECE90F9067C1FD66AE53288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511502   (788788) от 21.11.2021
-
-VA - Зайцев.нет Лучшие новинки Ноября (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 25 17 - Зима-мама (электричество) (3:13)
-02. 5sta Family - Тюльпаны (Lavrushkin & Tomboo Remix) (2:52)
-03. BRAMA - Нам не нравятся те, кому не нравимся мы (2:25)
-04. GARRISON - Infinity (5:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA1DE7D0E6254169BFA57EEE7D759B8798548EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

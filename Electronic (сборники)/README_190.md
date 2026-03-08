@@ -1,3 +1,32 @@
+###  Публикация: 965748   (224222) от 15.12.2015
+
+VA - Modern House Audio Samples (2015) [MP3|242-320 кб/с] <Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gigi Lav, Simon J. Bergher - Curiosity (feat. Steklo) [05:14]
+02. The Uniporns - Kobra (Radio Edit) [02:44]
+03. DJ General Slam - When Jazz Meets House (MFR Souls Drop Bass Mix) (MFR Souls Drop Bass Mix) (feat. Bruno Soares Sax) [06:31]
+04. Zad - Dream [06:27](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFFCCC00BC8EDF8DCE47E65FDD5EDCEFBEF8CBEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342262   (224200) от 02.12.2019
 
 VA - Melodic Lines Electro House (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
@@ -713,35 +742,6 @@ VA - PromoDJ Top 100 Remix (2015) [MP3|224-320 кб/с] <Club house, Vocal house
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAA5DB52730C4D917BE68F000C66A1DDD444B03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343127   (220226) от 05.12.2019
-
-VA - Madjestic Drum And Bass (2019) [MP3|320 Kbps] <Drum And Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220226.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Forge - Are You Ready
-002. Shisdess - Speak To Me
-003. J Select - Unruly
-004. Bro Safari - The Drop(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 15:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC584B038A9ADDD602A2211A6D4AF1C78DFCFC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

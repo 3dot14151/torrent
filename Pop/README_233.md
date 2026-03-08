@@ -1,3 +1,61 @@
+###  Публикация: 1580377   (330812) от 01.10.2022
+
+VA - Keep It Disco Vol. 03 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maurizio Sacchi - All Night Long
+02. HDSN - Too Sweet To Lose
+03. Hotmood - Samba De Enredo
+04. Conan Liquid - Help Me Out Again (2022 ReMaster)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:13:44 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DAAA7BEEB5E8002854DBDD227C5611BF8BBE7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580415   (330810) от 01.10.2022
+
+Consequential - MicroComposed 1980-86 (2018) LP [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love Her (3:55)
+02. Magic Key (3:14)
+03. Behind The Soul (3:20)
+04. Vasiona Desire (3:20)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Italo-DiscoПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1287522F66F161F9BC94F537DB988FA193DC30CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580372   (330803) от 01.10.2022
 
 VA - Keep It Disco Vol. 01 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
@@ -689,64 +747,6 @@ Madonna - Finally Enough Love: 50 Number Ones (2022) 3CD [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE1749B60A5B8896EEA7AE7583BDE1A91193287D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581122   (327937) от 04.10.2022
-
-VA - Best Radio Tracks, Vol. 23 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327937.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Imanbek/Wiz Khalifa/KDDK/KIDDO - Ordinary Life
-2. ONEIL/SMOLA - Addicted
-3. Los Tiburones/Fisun - Never Let You Go
-4. Imanbek/LP - Fighter(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A5840FADDDEA840116BA2552684C7A1A9E4758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957434   (327651) от 17.11.2015
-
-Phildel - The Glass Ghost (2013) EP [MP3|320 кб/с]<Alternative Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven: An Introduction
-02. The Glass Ghost
-03. Comfort Me
-04. Celestial(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CBA7F987C43F9E8562505B780C15674D417847A
 ```
 
 https://mybot314.ru/tekegram_catalog/

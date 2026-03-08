@@ -1,3 +1,61 @@
+###  Публикация: 1260949   (138480) от 30.12.2020
+
+VA - Хорошо сидим ! Песни русского застолья (1996) [FLAC|Lossless|image + .cue]<Folk>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Коробейники
+02. Ой, цветет калина
+03. Дождливым вечером
+04. Ромашки спрятались(   Читать дальше...   )Жанр: FolkПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C925E3D5BBAEB2A50AD313C9FF181A1D3D260B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679437   (138370) от 25.11.2023
+
+Alesha Dixon - Fired Up (2006) Deluxe Edition, 2023, Back On Wax [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hypnotik [00:03:47]
+02. Lipstick [00:02:47]
+03. Fired Up [00:03:36]
+04. Knockdown [00:03:05](   Читать дальше...   )Жанр: PopПродолжительность: 01:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5381B347E6A7FBA24BE4BD8C5B98241FE49E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679496   (138260) от 25.11.2023
 
 George Perris - The Most Wonderful Time Of The Year (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical>
@@ -696,64 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F01E057B2F54F794A4AC59E8E61626B75ACABD9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681080   (133513) от 01.12.2023
-
-Daisy Jones & The Six - AURORA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora (3:25)
-02. Let Me Down Easy (3:24)
-03. Kill You To Try (5:12)
-04. Two Against Three (3:53)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCE8DF1BB36F62D15493A5F080BD80CDD4A3599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680956   (133350) от 01.12.2023
-
-Fancy - Viva La Vida (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viva La Vida (Radio Edit)
-02. My Heart Is Cold As Ice
-03. Feel The Heat
-04. Brothers & Sisters(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED177C699D52E1F3CF25EF5D009D43D48486ADA
 ```
 
 https://mybot314.ru/tekegram_catalog/

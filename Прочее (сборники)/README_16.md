@@ -1,3 +1,119 @@
+###  Публикация: 1357818   (971537) от 05.02.2020
+
+VA - не Громкие новинки недели 54 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971537.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Alexandra feat. ONNovikoff - Непохожи (3:07)
+2.Bageerov - Знаешь (2:04)
+3.Emin & Григорий Лепс - Аперитив (3:22)
+4.Hafex & Nessa Savage - Секрет (2:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5BA8961ED7B789E40DC80EEEE1274003726350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976793   (971523) от 05.02.2020
+
+VA - 500 Лучших И Самых Ярких Композиций За 10 Лет! (2005-2015) (Compiled by Zebyte) (2016) [MP3|256-320 кб/с] <Club House, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man-Ro Feat Dj Ice & Dj Karas - Bambarbia (Lead Mix) [05:01]
+02. Vinylshakerz - One Night In Bangkok (Xxl Mix) [05:20]
+03. Benassi Bros Feat Dhany - Every Single Day [03:33]
+04. Axwell Feat Errol Reid - (Can You) Feel The Vibe [06:04](   Читать дальше...   )Жанр: Club House, Dance, Electro HouseПродолжительность: 36:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D63E2F6417EBD1A98F124B5A7BEFB405E743650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975716   (971487) от 15.01.2016
+
+VA - Дискотека 2016 Dance Club Vol. 147 от NNNB (2016) [MP3|320 кб/с] <Dance, Club, House, Trance, Pop, Dubstep, Breaks, Drum’n’Bass, Trap, Chill Out>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foxes - Amazing (Cahill Radio Edit)
+02. Flashtronica - I Can`t Stop (Diego Power Real Deep Remix)
+03. Armin Van Buuren, W&W - If It Ain’t Dutch (Radio Edit)
+04. Luke Bond vs. Cartel - Once More (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, House, Trance, Pop, Dubstep, Breaks, Drum’n’Bass, Trap, Chill OutПродолжительность: 11:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D022F85BAB8BF5336FCBB1A4B4AA946B9326D707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975768   (970938) от 16.01.2016
+
+VA - I Love Italo Disco ot Vitaly 72 - 4 (2015) [MP3|320 кб/с] <Italo-Disco, Synth-pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Brando - Love Is A Fantasy (Radio Remix) (04:17)
+02. Boris Zhivago - Love In Russia (Radio Remix) (04:45)
+03. Birizdo I Am - Maybe Baby (Radio Edit) (04:04)
+04. Casanova - Angel Eyes (Short Version) (04:31)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 04:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F6500CDE5AD50243039720FC5330E0AF30D02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975900   (970928) от 16.01.2016
 
 VA - Top 100 Sounds Inception Massive DJs (2016) [MP3|320 кб/с] <Club, House, Electro, Bigroom, Dutch, Dirty, Bounce>
@@ -641,122 +757,6 @@ VA - Немного песен о любви (2020) [MP3|320 Kbps] <Pop, Rock, O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A345E0D91C80B211F9C7CACEFBB3091122C543DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359840   (963097) от 13.02.2020
-
-VA - 100 Greatest Love Songs (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963097.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Whitney Houston - I Will Always Love You
-002. Snow Patrol - Chasing Cars
-003. Adele - Someone Like You
-004. Céline Dion - My Heart Will Go On(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4112EA2CC3DFDC24F70F7BBF47AC26264465D8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978235   (962621) от 24.01.2016
-
-2011stress - Agoraphobia (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic styling>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Агорафобия
-02. Вооружённая каблуками
-03. За горизонтом событий
-04. Девять Жизней(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic stylingПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63A32D58F845BE19BF7C34050EC4197024623E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360006   (961920) от 14.02.2020
-
-VA - Unlimited Love (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran – Perfect Duet (Ed Sheeran & Beyoncé)
-02. Benji & Fede – Ogni volta
-03. Dan + Shay – Tequila
-04. Bruno Mars – Just the Way You Are(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C371EBAA785555A2D3D319CC1542DC386B60D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359986   (961881) от 14.02.2020
-
-VA - не Громкие новинки недели 55 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961881.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Dava - Ранила (Amice Remix) (4:36)
-2.Veber - Я Буду Кричать (4:04)
-3.Bahh Tee feat. HammAli & Navai - Жить, Не Думая О Тебе (3:55)
-4.Anivar feat. Adamyan - Руку Держи (3:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007C25FEF577B36CF81E3A15F1F46D3D7AE5A5B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 546432   (478709) от 13.09.2012
+
+VA - Золотые хиты. Сборник 50/50 (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478709.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Баnzай - Ради Тебя
+002. Afrojack Feat. Eva Simons - Take Over Control
+003. Medina - Lyser I Morke
+004. Мураками - Секрет
+005. Taio Cruz - Without You
+006. Бондарчук - Бег По Краю
+007. Бьянка & St1m - Ключи
+008. Alyosha - Nocturne
+009. Isamin feat. Betis - Dige Dire
+010. Глюкоза - Кошка(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 06:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA005CE3F50B168F2CC0262F717B9D6D09DE718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567016   (478502) от 31.07.2022
+
+Joe Kelly & Heavyweight Recordings - Best Of In The Mix (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Hard Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Underground hard trance.01 Joe Kelly - What's Happening (Original Mix) (REDEMPTION,2002)
+02 JK Theory - Want Me (Original Mix) (NRGFLOW,2003)
+03 Synaps - What Have I Seen (Original Mix) (HEAVYWEIGHT,???)
+04 Synaps - Megatron (Original Mix) (HEAVYWEIGHT,2002)(   Читать дальше...   )Жанр: Hard TranceПродолжительность: 1:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE2FBDFBBFC31B55C083BC6A2FD74FDEC4D8081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566891   (478495) от 31.07.2022
+
+Sofia Carson - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love is the Name
+02. Two Tears in a Bucket
+03. Loud
+04. Stay(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8EE14529EEDF6A35714FCECA67937FCD224496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566875   (478417) от 31.07.2022
+
+VA - German Top 100 Single Charts 29.07.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478417.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Robin & Schürze - Layla (3:05)
+002. Liaze - PARADISE (3:12)
+003. Luciano - Beautiful Girl (2:59)
+004. Kontra K & Sido & Leony - Follow (2:25)(   Читать дальше...   )Жанр: PopПродолжительность: 04:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7957F5F79480AF2A3FEFFDE9F65BDF3CBD062ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566913   (478414) от 31.07.2022
+
+VA - Music News vol.206 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478414.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anna Lorenzi - I Love You Baby (03:37)
+ 002. 5утра - На Край Света (03:28)
+ 003. Abrissgebeat feat. Semitoo & Marc Kiss - Desenchantee (03:11)
+ 004. Aki - How Could You (02:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:137AF1606D495DF698478C5446DE065E335E5E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566736   (478410) от 31.07.2022
+
+VA - В машине с музыкой Vol.292 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madcon Feat. & Ray Dalton - Don't Worry (Ayur Tsyrenov & DFM Remix) (03:30) 2022
+02. Elco  - Милая (03:30) 2022
+03. Dj. Jedy Feat. & Anastezia - Безбашенная (02:43) 2022
+04. Markus Zarkua  - Злишься (02:38) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D0FFEC83AAE86AC77786A60E09F6F23D19E7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566974   (478341) от 31.07.2022
 
 VA - Новинки С Разных Популярных мп3 Сайтов ver. 121 (2022) [MP3|320 Kbps] <Club, Dance, Disco>
@@ -571,180 +751,6 @@ VA - Beatport Psychedelic Trance: Electro Sound Pack #167 (2020) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF993EEE51AE25D791977DA09E96074AE0F09CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939055   (477553) от 20.09.2015
-
-VA - Top 100 Твои любимые хиты (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 30.02 - Но Tы
-02. Afrojack & Sting - Catch Tomorrow
-03. Aisha - Сильно, Сильно
-04. Alex Kafer - Всё Для Тебя(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA25D6C6A17168C55955B4C971D576F8850E792F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406311   (477483) от 02.09.2020
-
-VA - Happy Disco House (2020) [MP3|320 Kbps] <Funky, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477483.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Discotron - Slicker Than Your Average
-002. Noyesman - Why
-003. Emmaculate - Never Fall In Love With
-004. Ridney - Gotta Have (Original Mix)(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 10:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A00DE65AF743F3853FB3C451513F87422B16D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406319   (477479) от 02.09.2020
-
-VA - Beatport Progressive House: Electro Sound Pack #165 (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477479.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maenling - Spring Warm
-002. Mechanism - Serenity (Original Mix)
-003. Josephine - Duelo (Simao's Club Mix)
-004. The White Shadow - Ton Chemin(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 12:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1F03B629DA5008FCA775C8E34CE4CACC3CECA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319855   (477463) от 15.08.2019
-
-VA - не Громкие новинки недели 30 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477463.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Anastasia Stone - Переадресация (3:04)
-2.Asammuell & Mary Gu - Свежие Раны (3:10)
-3.Brandon Stone - Девочка Смартфон (Brant Remix) (3:36)
-4.Demo & Love T - На Волне (3:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E65270E7C9379CD2A101EF7EF9733FA74C260A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939170   (477417) от 20.09.2015
-
-VA - Современная музыка от Зайцев.Нет (2015) [MP3|187 - 320 кб/с]<Pop, Dance, Rock, R&B, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477417.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Matisse & Sadko - Memories (Original Mix) (04:51)
-002. Полина Гагарина - A Million Voices (03:03)
-003. Бурито - Мама (03:10)
-004. Джиган feat. МакSим - Дождь (03:13)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 06:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C53E9598BF235F64F7910D76A59A400FB6B334D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057025   (477368) от 27.09.2016
-
-VA - Fitness And Workout Mix (2016) [MP3|320 Kbps] <Dance, Club, House, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477368.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daniel Harrison - Moneymaker
-002. Starlounge - Head up High (Skaei Workout Remix)
-003. Thomas Brazz & Stephan K - House of Love
-004. Elisabeat - If You Be Mine (Extended Mix)(   Читать дальше...   )Жанр: Dance, Club, House, ElectroПродолжительность: 07:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12CA6D33D3B38DF1FEE02E873D398ACCDD887D3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,3 @@
-###  Публикация: 1252795   (408065) от 06.10.2018
-
-The Travelling Orchestra - Early In The Mornin' (2016) EP [MP3|320 Kbps] <Blues Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catfish Blues
-02. Early In The Mornin'
-03. Hard Time Killin' Floor BluesЖанр: Blues Rock, BluesПродолжительность: 00:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520CBA7042F750CB18D2574014C712009E580D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252777   (408061) от 06.10.2018
 
 The Travelling Orchestra - 22 (2018) EP [MP3|320 Kbps] <Blues Rock, Blues>
@@ -175,36 +147,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 562206   (405582) от 19.10.2012
-
-After The Darkness - Бродить во тьме (2012) EP [MP3|320 кб/с]<Gothic Metal, Power Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Океан (05:33)
-02. Endless World (03:17)
-03. Бродить во тьме (05:18)
-04. Огонь и боль (05:04)
-05. Будем вместе (05:32)Жанр: Gothic Metal, Power Metal, Symphonic MetalПродолжительность: 00:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3E2050A7D46B356173BB2ABAD8448EB1F4F7F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169277   (404005) от 26.09.2017
 
 Ногу свело! - Ватрушки (2017) Single [MP3|320 Kbps] <Rock>
@@ -317,41 +259,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47BD3968AC682301E26442CCE2206BA9F51A8770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565889   (399134) от 27.10.2012
-
-Soul Scars - С Рассветом (2012) [MP3|320 кб/с]<Alt.Rock | Alt.Metal | Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Закрой Глаза
-03. Утро Следующего Дня
-04. Прощание
-05. Снегом
-06. С Рассветом
-07. На Дне
-08. Другие Сны
-09. Сначала
-10. От Ненависти До Любви(   Читать дальше...   )Жанр: Alt.Rock | Alt.Metal | Female VocalПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD31AF82A25485762066EB38E4D416E98AAD6EA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -779,6 +686,93 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D9DB18BB8710AFC8678B31ABB4AF2E7F75EADD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252617   (385453) от 08.10.2018
+
+Атом-76 - 5 Albums (2009-2018) [MP3|186 - 320 Kbps] <Heavy-metal, Power-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atomic dimension (1:40)
+02. Антошка (2:45)
+03. Беспечный ангел (3:56)
+04. Вольная птица (5:23)(   Читать дальше...   )Жанр: Heavy-metal, Power-metalПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50AAF32C206432B383397D7A1A9D4A67108BCF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326422   (385127) от 20.09.2019
+
+Сергей Маврин - 20 лет (2019) Live [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385127.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Моё время
+2. Дорога в рай
+3. Поединок
+4. Рок(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43FB78AEECB0235AF2B801E3301D584297080BF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174734   (385068) от 15.10.2017
+
+Otto Dix - Левиафан (2017) [MP3|320 Kbps] <Darkwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжая книгу всех предыдущих альбомов, данная глава - альбом «Левиафан» - раскрывает тему единения человека и космоса. Космоса как внешнего, так и внутреннего. Когда-то Океан создал живых существ, чтобы выйти на сушу, развить разум и познать самого себя. Так и человек стремится к самопознанию, порой сталкиваясь с мрачными глубинами своего подсознания, со своими (   Читать дальше...   )01. Дейтерий
+02. Левиафан
+03. Декомпрессия
+04. Ангел на скале(   Читать дальше...   )Жанр: DarkwaveПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CF255F9A4A8A4DEABE3DC8688B0AAF1911AD16
 ```
 
 https://mybot314.ru/tekegram_catalog/

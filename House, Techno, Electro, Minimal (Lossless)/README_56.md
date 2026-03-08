@@ -1,3 +1,90 @@
+###  Публикация: 1653417   (205492) от 16.08.2023
+
+VA - File Under: Trance (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandala - Astralia (Colourbox Remix) [6:01]
+02. Cores - Ice Rain (Original Mix) [8:14]
+03. Commander Tom - Eye C Red (Original Mix) [6:51]
+04. Ulysses - Whales 2 Females (Original Mix) [5:58](   Читать дальше...   )Жанр: TranceПродолжительность: 04:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDF3665D1CE2F1E7DDCFB5D9A6AE91ED77D64E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654174   (205248) от 20.08.2023
+
+DJ Dean and Victor F. - MSF - Multi Sound Format (The Dark Side) (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hard Trance, Hardstyle,>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music, Sound & Freedom (Rave Extended Mix) [5:51]
+02. F.E.A.R. (Extended Mix) [7:26]
+03. Awakening [4:06]
+04. Acid Rave (Extended Mix) [3:52](   Читать дальше...   )Жанр: Techno, Hard Trance, HardstyleПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5593475EA9D2F7F4ED3F1113463D387671225574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654807   (204998) от 22.08.2023
+
+The Exaltics - The 7th Planet (2023) [FLAC|Lossless|WEB-DL|tracks] <sci-fi electro-techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Landing Process [00:00:57]
+02. Lets Fly the Gravity Fighter [00:04:01]
+03. Lif eono ther Planets [00:04:13]
+04. Higher Levels [00:04:46](   Читать дальше...   )Жанр: sci-fi electro-technoПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB473249C5ADDFE4C69EEF47B40B1AC333F44293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655210   (204546) от 25.08.2023
 
 VA - Extreme Street Workout Songs For Fitness & Workout 2023 (Fitness Version 128 Bpm) [FLAC|Lossless|WEB-DL|tracks] <House, Dance, Pop>
@@ -647,90 +734,6 @@ Dj W!ld - W!Ldbeats 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44FF626E0A0611733DB095EC5F904F47E688C99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663763   (186436) от 23.09.2023
-
-Klubbheads - Pump Up The Heads! (2021) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiphopping
-02. Big Bass Bomb
-03. Turn Up The Bass
-04. Let The Party Begin(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E042799253BC9D2AC42DF377851432A5668B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663431   (186432) от 23.09.2023
-
-VA - Boccaccio Life - The End Of An Era (2018) [FLAC|Lossless|tracks] <House, Hard Trance, Progressive House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186432.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Compiled By DJ Gert (01:19:56.)
-
-101. Aquaplex & Junk Project - Brightness [3:46]
-102. Club Royale - Loosing Sleep [5:55](   Читать дальше...   )Жанр: House, Hard Trance, Progressive House, TechnoПродолжительность: 05:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FA500FCBE4CD509446E025F50657AF9DB2A274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663787   (186429) от 23.09.2023
-
-CamelPhat - Spiritual Milk (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Vocal, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, Vocal, ProgressiveПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513AB9E0D51E82767BF6182BF0891BFF428B4D43
 ```
 
 https://mybot314.ru/tekegram_catalog/

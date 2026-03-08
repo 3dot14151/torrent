@@ -1,3 +1,61 @@
+###  Публикация: 1480223   (1009180) от 27.06.2021
+
+VA - Summer In Space Vol. 4 (2021) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlab - Bionic Mind (6:48)
+02. Mind Vision - Cosmic Rain (6:01)
+03. Atomic Space Orchestra - Space Envoy (5:51)
+04. Rama - The Sea Of Tranquility (4:56)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9473A9784F9EEED3FA4C04140D21D0D79BBC53E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480085   (1009169) от 27.06.2021
+
+VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Psybient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Nonstatic - Dreamscapes (07:26)
+ 02. Misled Convoy - Fire On The Mountain (06:18)
+ 03. Nigel Mullaney - Lost At Sea (06:44)
+ 04. Akuratyde - Rouge (05:12)(   Читать дальше...   )Жанр: Ambient, IDM, Psybient, DowntempoПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32EABF42CE53167F2393C4363DC0F8F24207913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480113   (1009162) от 27.06.2021
 
 VA - Cafe Del Mar Ibiza - Made Of Sunsets (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -682,64 +740,6 @@ T.Power | Shy FX & T Power | Atomic Dog | Marc Royal - Discography 40 Releases (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5E94E263A797EBCDDBF5FE1B31052B6EDA123E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228470   (1008056) от 04.07.2021
-
-All India Radio | Antecedent - Discography 87 Releases (1999-2021) Inevitable Recordings [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day & Night (Five Eight Alt Version Unreleased) (02:26)
- 02. In the Sky (Unreleased Track) (03:11)
- 03. Spring Day (Unreleased Track) (02:56)
- 04. Four Three vs Galaxy of Light (Feat Selena Cross) (05:49)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield •Продолжительность: 58:21:37 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69167DE367C349F69C364832BD32155BA5DB30D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481762   (1008032) от 05.07.2021
-
-Methyl Lily - Methyl Lily (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hologram (04:50)
- 02. Magnetar (08:17)
- 03. Glass Horizon (03:02)
- 04. Not Even Light (05:37)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9FCF72BEA473A81F5317D370FB5DEACAD58C683
 ```
 
 https://mybot314.ru/tekegram_catalog/

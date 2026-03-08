@@ -1,3 +1,38 @@
+###  Публикация: 580743   (340621) от 26.11.2012
+
+VA - DubStep Pro V.5 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xenith - Black Ice
+ 02. KOAN Sound, Gemini, Culprate, Asa - Beyond The Shadows
+ 03. Angus ft. Julia Stone - Draw Your Swords (Alpha Data Remix)
+ 04. ENiGMA Dubz - Walk Good
+ 05. Soeloe - High Place (Original Mix)
+ 06. Squarzan - Wasted Wish (Original Mix)
+ 07. DJ Mutagen & V - The Survivors (Left 4 Dead 2 Mix)
+ 08. The Prodigy - Smack My Bitch Up (Noisia Remix)
+ 09. Butch Clancy - Xlam (Original Mix)
+ 10. Sorrow - Siren's Echo(   Читать дальше...   )Жанр: DubstepПродолжительность: 04:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A99619A95B85C3C5AF4A6DE27CFC9C11EA2D8EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330408   (340616) от 10.10.2019
 
 VA - Dance Generation: Soulfull Party (2019) [MP3|320 Kbps] <Eurodance, Club, Popdance, Electro>
@@ -734,35 +769,6 @@ VA - Heart Of The Island: Enhanced Progressive Trance (2018) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D99E77225308F95BF657BA1EEB49B2AE2E871244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330621   (336252) от 12.10.2019
-
-VA - Perfect Tech House: Deep Session (2019) [MP3|320 Kbps] <Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336252.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Toni Noack - Trouble Boy
-002. Larry Lan - Greenwich
-003. Joan Fibla - Right Now (Original Mix)
-004. Cristian Matrix - Permanent Blackened(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 08:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002C4933187F8002F3691B9E7A8D774DE48E8D42
 ```
 
 https://mybot314.ru/tekegram_catalog/

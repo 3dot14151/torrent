@@ -1,32 +1,3 @@
-###  Публикация: 1522305   (758790) от 07.01.2022
-
-Skew Siskin - Electric Chair Music & Voices From The War (1996) 2CD [APE|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Take It With You
-02. Fuck You
-03. Dead You
-04.B4(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B32039691DEA37288FD19FF5F5120701C632456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522444   (758782) от 07.01.2022
 
 Destruction - Live Attack (2021) 2xCD [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -743,6 +714,35 @@ Zakk Wylde - Book Of Shadows II (2016) [FLAC|Lossless|image + .cue] <Southerh Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2C9C6AA69B96489EAD28089210D5956D3EB7670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395135   (757269) от 09.07.2020
+
+Sentinel - The Black of the Sun (2020) [MP3|320 Kbps] <Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757269.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Black of the Sun (06:43)
+ 2. The Damned (06:11)
+ 3. One Bullet Left (04:52)
+ 4. Infection (07:40)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE8586CFEE8454FAF638CA16073E6653AF01820
 ```
 
 https://mybot314.ru/tekegram_catalog/

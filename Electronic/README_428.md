@@ -1,3 +1,61 @@
+###  Публикация: 1664601   (184632) от 27.09.2023
+
+ScAnDroid Experiment's - Mental Solubility (2023) авторская раздача [MP3|320 Kbps] <Experimental, Lo-Fi, Downtempo>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mental Solubility (Intro)
+02. Irreversible Nature
+03. Zero Mood
+04. Traces Of Geometric Dreams(   Читать дальше...   )Жанр: Experimental, Lo-Fi, DowntempoПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84560FB2ED5FD1D99F2E1DA2302E4822C0DF2E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663898   (184472) от 27.09.2023
+
+David Guetta - 7 (2018) 3CD, Anniversary Edition, 2023, Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Deep House, Reggaeton>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD-01
+CD-02
+CD-03Жанр: Dance-pop, Electro House, Tropical House, House, Chiptune, Electro, Synth-pop, Deep House, Reggaeton, Trap, Tech House, Deep TechnoПродолжительность: 3CD, 02:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66808E80BB056D655B777B9AB027A616A25D1C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592028   (184361) от 21.11.2022
 
 Paul Sabin - STALK 2 (ORIGINAL SERIES SOUNDTRACK) (2021) [FLAC|Lossless|tracks] <Techno, Deep Techno>
@@ -680,64 +738,6 @@ James Hype - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0848AFA5EB4231B2ADE060F2C3ACC5C4D4D6E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592876   (182473) от 24.11.2022
-
-Carrellee - Scale Of Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can’t Explain It (3:13)
-02. Heaven Or (3:00)
-03. Smile (3:19)
-04. Morning Sun (2:56)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B1BD579B5050B8CAA2028788E1E70508ECE7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665095   (182418) от 30.09.2023
-
-Trance Wax - Open Up The Night (2023) Extended Versions [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Up The Night (Extended Mix) [6:15]
-02. Dark Space (Extended Mix) [5:15]
-03. Antiga (Extended Mix) [6:37]
-04. Aslan (Extended Mix) [5:22](   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBA9591AB085A71678325BFE989B736E1335C1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

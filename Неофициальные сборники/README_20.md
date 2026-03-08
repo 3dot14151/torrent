@@ -1,3 +1,177 @@
+###  Публикация: 1449486   (1029304) от 24.02.2021
+
+VA - Music Collection. From West To East (1991-2016) [MP3|320 Kbps] <New Age, Enigmatic, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029304.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ENIGMA - From East To West (4:04)
+002. Dancing Fantasy - Midnight Blur (3:55)
+003. Rassolodin - Under The Arches Of The Temple (4:47)
+004. Back to Earth - On Eagle Wings (5:17)(   Читать дальше...   )Жанр: New Age, Enigmatic, ElectronicПродолжительность: 40:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AEDE7AED043BB27EED8B113F23AA6133463B41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448744   (1029264) от 24.02.2021
+
+VA - Зайцев.нет Лучшие новинки Февраля (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nipsey Hussle, Jay-Z - What It Feels Like (4:35)
+02. Serj Tankian - Elasticity (4:01)
+03. Chet Faker - Get High (3:42)
+04. SYML - STAY CLOSE (3:42)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C2615C566848B119A85A029E523FFD9C9C2104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450192   (1029227) от 25.02.2021
+
+VA - Euphoric Party: Techno Electronic Set (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настало время для ещё одного приключения! Отличное продолжение того, что можно назвать фирменным звуком Tесhnо, с ритмичными битами и просторной вибрацией. Тем не менее, есть много новых поворотов в звуке и структуре треков, которые делают интересной эту музыку для любого слушателя.001. Lautaro Ibanez - Tell Me Why
+002. Rnbws - Tanok
+003. K-Hand - Glee
+004. De Jeugd Van Tegenwoordig - Watskeburt!(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 13:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279A450C0ADF9364A6346049B8F9B59AD5BEF71B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450198   (1029205) от 25.02.2021
+
+VA - Beatport Electro House: Sound Pack #244 (2021) [MP3|320 Kbps] <House, Electro, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из нас очень нуждается в какой-нибудь отдушине, не важно, чем она является, главное, чтобы сумела вытянуть из давящих каменных джунглей и даровать моменты тет а тет. Таким спасением может стать просто музыка без слов, которая не навязывает своей темы, а позволяет плыть по течению своих эмоций!001. Mihai Popoviciu - Milky
+002. Boy Oh Boy - Kuli Alma
+003. Koelle - Longing
+004. Axel Core - Amnesia (Original Mix)(   Читать дальше...   )Жанр: House, Electro, Dance, ClubПродолжительность: 10:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BA96348482BA630222C7B0653C8FED36F5E60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450194   (1029200) от 25.02.2021
+
+VA - Beatport Deep House: Electro Sound Pack #245 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам интересна глубокая, продуманная музыка, которая балансирует на грани мелодизма и прогрессии, то 245-й релиз от Beatport определенно для вас! Музыка лонгплея безукоризненна полностью в плане инструментала, а каждая композиция имеет четкую структуру и грани, которые в совокупности преподносят интригующую музыкальную картину.001. Alberto Blanco - Dinamica (Original Mix)
+002. Revival Agents - Uphill (Original Mix)
+003. Doki - Astral (Original Mix)
+004. Acin - Clotho (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C77EDF959A863C06E55E3083D148F1E9AA3039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450193   (1029198) от 25.02.2021
+
+VA - Electropop: Event Of The Season (2021) [MP3|320 Kbps] <Electropop, Synthpop, Futurepop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка, где музыкальный синтезатор на все сто процентов в звуковом ряду композиций служит исполнителю. Где вокал и просто музыкальная идея оборачивается в дорогую обёртку звукового сопровождения001. Yello - Big Boy's Blues
+002. John Foxx & The Maths - Last Time I Saw You
+003. Lorenzo Pantani - Meravigliosa Creatura
+004. Stephen Paul Taylor - Dr. Deutschland(   Читать дальше...   )Жанр: Electropop, Synthpop, FuturepopПродолжительность: 10:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2315345EFCB9D6EF332911F4833147FCCBBDD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450206   (1029191) от 25.02.2021
 
 VA - Another World: R&B Sense Of Rhythm (2CD) (2021) [MP3|320 Kbps] <R&B, Soul>
@@ -571,180 +745,6 @@ VA - EDM Neon Hypnotic (2021) [MP3|320 Kbps] <EDM, House, Techno, Electro, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:356B5799DC88079996B71484EBCD56E9847D5C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451790   (1028233) от 03.03.2021
-
-VA - Beatport Bassline: Electro Sound Pack #251 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию убойный драм замес в 251-й подборке электро саунда от Beatport, который наверняка разбудит Вас от зимней спячки. Пора обновить свою медиатеку и встречать грядущую весну во всеоружии001. Da Candy - Teknoboom
-002. Echo Brown - Tug O War
-003. Surge - No 66
-004. Delta Heavy - Exodus(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 09:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43398B119047117CB6EFDF4C1F597AE334DEFE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451786   (1028231) от 03.03.2021
-
-VA - City Form: Progressive Trance (2021) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красиво и эклектично! В лучших традициях прогрессив транса! Атмосфера, как некая героика, вера в себя, в свои силы, и преодоление жизненных трудностей. Здесь есть и мелодия и динамика и смысл, который хотели донести до слушателя авторы музыкальных композиций.001. Waiting Dog - Tired Of Chasing (Extended Mix)
-002. Simon Lee - Kmnd (Extended Mix)
-003. V I F & Teya Flow - Mixerrer
-004. Leon Bolier - Northern Moon(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 12:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE3A592C01BAE6CD9A4A5E0A0CD5FBE049008A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451675   (1028227) от 03.03.2021
-
-VA - Trance 2021 [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028227.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roger Shah, Kristina Sky, Emma Shaffer - Take Me Back (7:14)
-002. Ferry Corsten, Howard Jones - Into the Dark (5:43)
-003. Protoculture, Sue McLaren - Superhuman (5:04)
-004. Ilan Bluestone, Gid Sedgwick - Paid For Love (4:36)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2071E741144370648E89C1D3BFC9090712D6B5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451774   (1028224) от 03.03.2021
-
-VA - Rockstar: The True Feeling (2021) [MP3|320 Kbps] <Rock, Hard Rock, Alternative, Indie>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок музыка – проводник настоящих ярких эмоций. Принято, что рок – музыка протеста, не верьте, ведь рок – это свобода! Музыка, заставляющая идти на риск, и в то же время, способная усыпить младенца.001. Fiona - Thunder & Lightning
-002. Kid Dad - The Wish Of Being Alone
-003. Redlight King - City Life
-004. Jacobi Wichita - Baby Gorilla Teeth(   Читать дальше...   )Жанр: Rock, Hard Rock, Alternative, IndieПродолжительность: 09:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264DFE6BD601B238FF41F2ABDAD8617192A34C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451634   (1028215) от 03.03.2021
-
-Geordie - Keep on Rockin' (2021) 2CD Compilation [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama's Gonna Take You Home
-02. Little Boy
-03. Going to the City
-04. Look at Me(   Читать дальше...   )Жанр: RockПродолжительность: 02:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8ADDAFAAEB307E5CC3BA6546142245DB60167F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451528   (1028214) от 03.03.2021
-
-VA - The Identity: Rap Francais (Vol.08) (2021) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкие подвижные ритмы и лирические мелодии в сборнике французского репа под названием "The Identity" восьмого релиза. Гармоничное сочетание мелодии и текста, которое слушать одно удовольствие.001. Bassirou - Gang
-002. Lim - Plus Rien À Perdre
-003. Le A - Secteur
-004. Narcisse Dagbeto - Gaffe A Ton Dos(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 08:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E5171477D64378D70A742424DBA7E12A215125
 ```
 
 https://mybot314.ru/tekegram_catalog/

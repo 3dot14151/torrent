@@ -1,3 +1,61 @@
+###  Публикация: 1239479   (538850) от 05.08.2018
+
+Morcheeba - Blaze Away (2018) [MP3|320 Kbps] <Trip Hop, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Undo (03:45)
+02. Blaze Away (feat. Roots Manuva) (04:04)
+03. Love Dub (03:49)
+04. It's Summertime (03:39)(   Читать дальше...   )Жанр: Trip Hop, DowntempoПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B47BB14A92EB45A1F775CB39CA2653674D314999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239471   (538595) от 05.08.2018
+
+Jan Hammer - Seasons, Pt. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Synth-Pop, Instrumental>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miami: Night
+02. 68 Reasons
+03. Ocean Drive
+04. Suite European(   Читать дальше...   )Жанр: Synth-Pop, InstrumentalПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F952A1EBC6F1846E5EE4ACD87C19C87F94D61F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050442   (538266) от 08.09.2016
 
 VA - Cabana Lounge (Deep Chilled Holiday Moods) (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Nu Disco>
@@ -681,61 +739,6 @@ Helena Hauff - Qualm (2018) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Techno, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:871D72964FB38C6BA1D92466C544989F54031112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050893   (535127) от 10.09.2016
-
-Housework - Follow The Groove (2016) [MP3|320 Kbps] <Funky House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Housework - I Believe (Second Mix) 05:17
-02. Housework - First Time (Beginner Mix) 06:36
-03. Housework - If You Lonely (Lost Souls Mix) 07:02
-04. Housework - Partyline (Glitter And Space Mix) 07:17(   Читать дальше...   )Жанр: Funky House, Club HouseПродолжительность: 04:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F910ADE7B73BE4A8810988F740D8813A175AD1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312387   (534299) от 03.07.2019
-
-VA - Radio Gladiators, Vol. 2 (2019) [MP3|320 Kbps] <Melodic House & Techno, Dance, House, Deep House, Big Room, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ipanov – Greece 2000Жанр: Melodic House & Techno, Dance, House, Deep House, Big Room, Future HouseПродолжительность: 01:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80AD114F5B4C6F77352F772F262B523D0BA1C820
 ```
 
 https://mybot314.ru/tekegram_catalog/

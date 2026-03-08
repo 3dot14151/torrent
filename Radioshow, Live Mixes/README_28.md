@@ -1,3 +1,61 @@
+###  Публикация: 1802045   (66135) от 14.06.2025
+
+VA - Armin van Buuren - A State Of Trance 1229 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nümind & Maddie Soleil – Falling For You
+02. Armin van Buuren ft. Sharon Den Adel – In And Out Of Love (Future Favorite)
+03. 7 Skies – All The Things
+04. Hel:sløwed & Lovlee – Left Of Us(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75CC6F14945BA13C827846DE09F8AEE1A3FA64C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801925   (66120) от 14.06.2025
+
+Korolova - Live @ Legia Stadium (Warsaw, Poland) (2025-06-05) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claptone & Sea Girls ft. Henry Camamile - Put Your Love On Me (Korolova Remix)
+02. Argy & Omiki - Wind
+03. JP Mantero - Reach For Bliss
+04. Anyma ft. Luke Steele - Human Now(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC710665842AA484A478406F3F35555AF29AD23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802055   (66114) от 14.06.2025
 
 VA - Ori Uplift - Uplifting Only Episode 644 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -685,61 +743,6 @@ VA - Armin van Buuren - A State Of Trance 1245 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D9590CB2AE637AD736F0298B319DDFBE8E33A9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713746   (59946) от 12.04.2024
-
-VA - Live @ Tomorrowland Winter, France (2024) [MP3|320 Kbps] <Trance, Techno, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance, Techno, Melodic HouseПродолжительность: 39:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A14150E7E6D596CB89AB47C801288514F926FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717785   (58977) от 21.04.2024
-
-Korolova - Live @ Tulum Jungle, Mexico (2024-04-04) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonas Saalbach & Guzy - Take Me Away
-02. TH;EN & Carlo Whale - Say It
-03. Monastetiq - Dnipro
-04. Anyma - Pictures Of You(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D99B35FEE7DE97E7728CCB3304F7B11FB6F0D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

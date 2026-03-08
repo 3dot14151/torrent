@@ -1,32 +1,3 @@
-###  Публикация: 1478922   (1010028) от 21.06.2021
-
-Hammer King - King Is Rising (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Is Rising (4:58)
-02. Last Hellriders (2:50)
-03. For God and the King (3:22)
-04. Warrior's Reign (4:21)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16DA3211D38014F5EE8B685A20705F266EFFD0FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478771   (1010018) от 21.06.2021
 
 Skarlett Riot - Invicta (2021) [FLAC|Lossless|image + .cue] <Alternative Metal>
@@ -745,6 +716,35 @@ Midgar - Unity (2021) [MP3|320 Kbps] <Alt. Rock, Post-Hardcore, Modern Classical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C776DC83A41B50F36DEEAA739DA25C4E02A60539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479965   (1009345) от 26.06.2021
+
+Light The Torch - You Will Be the Death of Me (2021) [MP3|320 Kbps] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - More Than Dreaming [00:03:09]
+02 - Let Me Fall Apart [00:03:27]
+03 - End of the World [00:03:17]
+04 - Wilting in the Light [00:03:48](   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC991042011B1B71D4BC5FD3CB89390F2DB392AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

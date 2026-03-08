@@ -1,3 +1,32 @@
+###  Публикация: 1235221   (562269) от 10.07.2018
+
+Madsen - Lichtjahre (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wenn es einfach passiert
+02. Ruckenwind
+03. Sommerferien
+04. Mein erstes Lied(   Читать дальше...   )Жанр: Alternative Pop Rock, Pop PunkПродолжительность: 01:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DA6C188C25D364154C70ECCC7A3C5447613D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235298   (560521) от 11.07.2018
 
 Masfel - Angyaltojas (2000) [FLAC|Lossless|tracks + .cue] <Experimental rock>
@@ -716,35 +745,6 @@ Rustin Man - Drift Code (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02326B69077EF080F1A25DF2BDE4CE322C314112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309595   (550538) от 20.06.2019
-
-Bill Callahan - Shepherd in a Sheepskin Vest (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shepherd’s Welcome (02:22)
-02. Black Dog on the Beach (02:30)
-03. Angela (02:47)
-04. The Ballad of the Hulk (04:04)(   Читать дальше...   )Жанр: Folk Rock, Indie RockПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2ADE6BB0872BC5BC21029E7BC365B343FE0D03
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1335966   (284390) от 04.11.2019
+
+UHF - Strange Days Of Happiness (2017) Borg Recordings [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electro>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circular Brain (05:11)
+ 02. Escape From The Planet Frozen (05:35)
+ 03. Strange Days Of Happiness (05:58)
+ 04. Ain't No Place For A Hero (05:28)Жанр: ElectroПродолжительность: 00:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEA68B47DAFBDD6A052FC74D90C0A4F73353C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263895   (284351) от 21.11.2018
+
+MC Xander - Hymns (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Vocal>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Muni (06:24)
+02. Heresy (06:17)
+03. We Take On (06:09)
+04. Higher Nature (04:44)(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D3AAE0ECC666DC98841D4C0A081E2039CB4AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335455   (284095) от 04.11.2019
 
 Маяк - Дискография (4 релиза) (2013-2014) [MP3|160-320 Kbps] <Retro Wave,  Lo-Fi, Synthwave>
@@ -687,61 +745,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27B7D62A8F5FB6783AE5CE41C72FF20F4B7519E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187056   (282549) от 27.11.2017
-
-VA - Trance The Vocal Session 2018 (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Vocal TranceПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C51A986864678F17A284D0E809BD64925DDBD7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187082   (282547) от 27.11.2017
-
-Roman Messer - Ambition (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Ambition (feat Vito Fognini - original mix)
-02. Roman Messer - For You (feat Clare Stagg -  original mix)
-03. Roman Messer & DJ Xquizit - Empire Of Our Own (feat Osito - original mix)
-04. Roman Messer & Ruslan Radriges - At World's End (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8E3145CCE6EB64EA992FFB9330289FE9E321A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1592876   (182473) от 24.11.2022
+
+Carrellee - Scale Of Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can’t Explain It (3:13)
+02. Heaven Or (3:00)
+03. Smile (3:19)
+04. Morning Sun (2:56)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B1BD579B5050B8CAA2028788E1E70508ECE7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665095   (182418) от 30.09.2023
+
+Trance Wax - Open Up The Night (2023) Extended Versions [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Up The Night (Extended Mix) [6:15]
+02. Dark Space (Extended Mix) [5:15]
+03. Antiga (Extended Mix) [6:37]
+04. Aslan (Extended Mix) [5:22](   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBA9591AB085A71678325BFE989B736E1335C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665168   (182409) от 30.09.2023
 
 Siskin - We Are Siskin (2023) Extended Mixes [MP3|320 Kbps] <Trance, Progressive>
@@ -680,64 +738,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EE65559E8B1683F44215A993404ED4564CF9A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593465   (179908) от 28.11.2022
-
-Neuroklast - 2 Albums (2021-2022) [MP3|320 Kbps] <Electro-Industrial, Cyberpunk>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forlorn [00:04:45]
-02. Anima [00:04:27]
-03. Netrun [00:03:10]
-04. Simulation Whore [00:03:15](   Читать дальше...   )Жанр: Electro-Industrial, CyberpunkПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E509D0951746E0420A288D2B9E0F5D2D9619D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593568   (179903) от 28.11.2022
-
-Neon Nox - Payback (2022) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolves [00:03:33]
-02. Return [00:03:43]
-03. Tunnels [00:03:44]
-04. Shift [00:04:14](   Читать дальше...   )Жанр: Retrowave, SynthwaveПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E068F4ED4E6B94ABA7FE93420ED074A368C3A4B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

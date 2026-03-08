@@ -1,3 +1,61 @@
+###  Публикация: 1108012   (866368) от 23.02.2017
+
+VA - The Sweetest Taboo Vol.3: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Montecristo - Hello Samantha
+02. Key Of Dreams Fiftheen - Welcome Go Back
+03. Bortolotto Leonardo - A Kiss to Build a Dream On
+04. Key Of Dreams - Boogie Forever(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5CD92B83D8E6F04A40BB9CC2EEBB846EA2F53C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107887   (866247) от 23.02.2017
+
+VA - Best Of Chill Out Vocal Trance (2017) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aurosonic & AxelPolo & Cathy Burton - Loving Overflow (Chill Out Mix)  5:30
+02.  Ana Criado - Vulnerable (Seven24 & S.A.T Remix)  4:54
+03.  Moonnight & Elles De Graaf - Sunset Kindness (Chill Out Mix)  4:14
+04.  Sergey Shabanov & Gemma Pavlovic - Who Am I Without You (Chill Out Mix)  3:54(   Читать дальше...   )Жанр: Downtempo, Chillout, VocalПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003D2B4FAC3E6605C405F4FB354B753172A64342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998139   (866114) от 21.03.2016
 
 a-ha - Time And Again: The Ultimate a-ha (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Synthpop, New Wave>
@@ -687,64 +745,6 @@ Banco De Gaia - Ollopa: Apollo Remixed (2013) [MP3|320 Kbps] <Ambient, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F231487B3FC9B6F31344D11C575C9D4C94CF5E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107892   (864642) от 24.02.2017
-
-Let Em Riot - Lines (2016) EP [MP3|320 Kbps] <Electropop, Synthwave, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Manual 04:05
-02. Reader 04:05
-03. We Were Young 03:57
-04. Sun Flares 04:33(   Читать дальше...   )Жанр: Electropop, Synthwave, DreamwaveПродолжительность: 00:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25211268E1725659A3D4D1972E082A4B5CB52C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108348   (864632) от 24.02.2017
-
-VA - Deep House Edition  № 009 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864632.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Felix & Gianx - Hot Blooded 4:43
-002. Jaques Le Noir - Be Together 5:17
-003. Damon Grey - Don't Stop 4:50
-004. Morgan Dora - Highway To Sunshine 5:20(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E08CF1BFAB44F70C86ECBC9282C26A6B0E06F9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

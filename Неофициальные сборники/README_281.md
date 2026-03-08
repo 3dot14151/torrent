@@ -1,3 +1,171 @@
+###  Публикация: 339436   (667475) от 20.05.2011
+
+VA - Танцевальный Музон от Europa Plus (2011)  [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECDB25E3752D37A20E4BCBAB5C7C04AF8FE2A59D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339096   (667418) от 20.05.2011
+
+VA - 100% Блатной Хит (2011) [MP3|256 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ШансонПродолжительность: 06:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EB8C6A39E838046919CF898EFA2CF4E79818BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137559   (667367) от 26.05.2017
+
+VA - Discoteka 2017 Dance Club. Hello Summer! (2017) [MP3|320 Kbps] <Dance , Club House , Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667367.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. TooManyLeftHands Ft. Casso - Mad For It (Original Mix) 3:29
+002. Carolina Marquez Feat Power Francers - 2 The Club (Nick Peloso Radio Edit) 3:02
+003. DJ Cargo - Everybody (Club Mix) 4:16
+004. Conro - Lay Low (feat. David Benjamin) 3:27(   Читать дальше...   )Жанр: Dance , Club House , Electro HouseПродолжительность: 08:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6CE05B9F250A49072A2D5FCEC48508D7D0A7DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224261   (667231) от 09.05.2018
+
+VA - Molecular Bond: Tech House Music (2018) [MP3|320 Kbps] <Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минимализм, в котором отсутствуют мрачное настроение, скрупулезно выстроенная музыкальная архитектура, не допускающая излишеств, наконец, присутствие некой изюминки техно генезиса в каждом треке сделают ваше знакомство с "Molecular Bond: Tech House Music" приятным и даст чуство не зря потраченного времени.001. Bob Lee - Enhance
+002. Kevin Knapp - Pastry Chef (Jedsa Soundorom Remix)
+003. Joeski - Lost Drums
+004. Natalino Nunes - Feeling(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 09:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512F96CC1CED3DC5B5C5BDDB1E172D934C875CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224112   (667183) от 09.05.2018
+
+VA - Eye In The Sky: Music For Dreams (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочная и романтичная атмосферно-релаксовая компиляция для прогулок на свежем воздухе по городскому парку или дремучему лесу. Погружение в такую музыку имеет первостепенную важность для размышлений и поиска своего я. Данная подборка оказывает положительное влияние на психику и эмоциональное состояние человека.001. York & Anthya - The Horizon Of Mars (Original Mix)
+002. The Echelon Effect - Goodbye Sierra
+003. DJ Dag & Matthew Kramer feat. Linda Rocco - Running Up That Hill (Radio Mix)
+004. Sunyata Project - Mystic Adventures (Oriental Chill Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 08:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3701CA0CDB3E419F0A62D6D1EE7EA5FC1A05AB11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224282   (667182) от 09.05.2018
+
+VA - Finest Electro House Music (2018) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667182.jpg" />
+</div>
+
+
+###  Подробнее
+
+У вас депрессия или постоянно отсутствует хорошее настроение? Исправить ситуацию можно очень быстро и бесповоротно с помощью музыки сборника "Finest Electro House Music". Музыка представлена в ремиксах, бутлегах, расширенных и радио версиях и в порядке беспрерывного проигрывания займут более 7 часов. Этого достаточно, чтобы провести громкую вечеринку или (   Читать дальше...   )001. TJR - Time To Jack (Original Mix)
+002. Jil Tanner - We Can Do - Mima Jastei Remix
+003. Jon Costas - Touch Me
+004. Pierce G - Neon Revolution (Jesse Hutton Remix)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 07:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C915D15A40ED16D2DF3C4D5F2EE8AE9B56498B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224026   (667174) от 09.05.2018
 
 VA - Psychedelic Chill Bass (2018) [MP3|256 Kbps] <DnB, Dubstep, Experimental>
@@ -571,180 +739,6 @@ Zakk Wylde - The Beginning... At Last (2017) Compilation 3CD [MP3|320 Kbps] <Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8823CF044E3F1E2134750CC821942FCD968C155B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137923   (665423) от 28.05.2017
-
-VA - Грешная любовь ХХХL выпуск № 3 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665423.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная Союза - Стали Гордынями 3:41
-002. Евгений Жагалтаев - Не Хочу Тебя Терять 3:35
-003. Катя Ростовцева - Я Решила Тебя Не Любить 3:32
-004. Андрей Романов - Летай 3:46(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF7B9DCB378F25E9883D0E31AAADF6288A5EEA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901032   (665414) от 24.05.2015
-
-VA - Dr. Metal Presents: Vol.5 (2015) [MP3|224 кб/с]<Heavy, Speed, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665414.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Heavy Metal-Hymn
-002-Blasdead-Killer Of The Skies
-003-Adastra-Get Back To The Ring
-004-Edguy-Key To My Fate(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89AF722CBAA98E2E81E948FB2B3B81073B2B61C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537221   (665387) от 18.03.2022
-
-VA - NME Essential Synthpop Hits (2022) [MP3|320 Kbps] <Synthpop, Electropop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665387.jpg" />
-</div>
-
-
-###  Подробнее
-
-В окно уже стучится весна, просыпается природа, проскальзывают тёплые, солнечные лучики. Первое пробуждение от всего спящего, немного заторможенного, новые краски жизни, новые эмоции и новые впечатления. Именно под это весеннее настроение прекрасно гармонирует музыка сборника под названием "NME Essential Synthpop Hits".001. Grape Milk - Jellyfish Murder Spree
-002. Flux Pavilion - Partial Fugue In B Minor
-003. Hot Chip - Hand Me Down Your Love
-004. Yello - Rush For Joe(   Читать дальше...   )Жанр: Synthpop, Electropop, DanceПродолжительность: 07:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F269518C78630292D9B3D80531026921BA3D39B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137921   (665357) от 28.05.2017
-
-VA - Best-of-ka на Шансоне выпуск № 7 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665357.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Денис Майданов - Мне Хотелось Бы Жить 4:06
-002. Андрей Карат & Елена Тишкова - Давай Начнем 4:21
-003. Сборная Союза - Я Без Ума 4:04
-004. Светлана Аверочкина - Не Стану Говорить 3:18(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13067E3787BB3DD1B8DB5A7626F7458536FD4DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537229   (665332) от 18.03.2022
-
-VA - The Lion Reggae (2022) [MP3|320 Kbps] <Reggae, Riddim, Reggaeton, Dub>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неспешный темп и размеренный ритм Регги создает особую атмосферу, способствующую умиротворению и благостному состоянию душевного настроения. Здесь четко прослеживается стремление к гармонии, духу мира, где основная идея это полное отсутствие негатива, стремление к примирению с собой и окружающими, полный релакс и успокоение.001. Chaka Demus - Build Bridges
-002. Gondwana - Volver A Sentir
-003. Press Kay - Live Your Lies
-004. Dreadlock Tales - Stop Meddling(   Читать дальше...   )Жанр: Reggae, Riddim, Reggaeton, DubПродолжительность: 08:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374D3D2BDCA8E9D88E3D8CCAC329CF5C4DFFDF99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138159   (665304) от 28.05.2017
-
-VA - Pet Shop Boys - Standard Disco Holiday (2017) [MP3|320 Kbps] <Europop, Synthpop, Eurodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pet Shop Boys & Liza Minnelli - Love Pains 4:11
-02.  Go West (Almighty PSB Mix) (Castro Boy Club Mix) 4:43
-03.  Call Me Old-Fashioned (Demo Version) 4:02
-04.  New York City Boy (The Morales Club Mix) 10:58(   Читать дальше...   )Жанр: Europop, Synthpop, EurodiscoПродолжительность: 02:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C91D21D4141A0654CD1300F2C20B73355BEAE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

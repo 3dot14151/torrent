@@ -1,3 +1,177 @@
+###  Публикация: 1040764   (585567) от 06.08.2016
+
+VA - Starts Games 125 Splash (2016) [MP3|241-320 Kbps] <House, UK Garage, Future House, Electro, Tribal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585567.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dr Kucho & Gregor Salto - Can't Stop Playing (Oliver Heldens & Gregor Salto Remix) 04:16
+002. 3Lau - How You Love Me (Arston Remix) 05:47
+003. Alex Whisper - Addicted To Drums (Original Mix) 06:08
+004. Discorocks - One Day In July (Original Mix) 06:02(   Читать дальше...   )Жанр: House, UK Garage, Future House, Electro, TribalПродолжительность: 11:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E7900EDE4BB5CCE64C9B6FD07F0101C8153F243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040643   (585562) от 06.08.2016
+
+VA - Best Time to Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Mundi - Mezcal Shadows
+02. Rey Salinero - Flor de Almendro
+03. Chillelektro - Cala Pi
+04. Arrojas - Asombrosa(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0126921B9A412268DCA46B6FA896EBBC4AAA0890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040720   (585523) от 06.08.2016
+
+VA - 50 Summer Hits Across Workout (2016) [MP3|320 Kbps] <House, Progressive, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antoine Delvig & Alex Van Diel  -  Sea, Sex & Sun (Extended Mix)  4:23
+02. Grindclock  -  Sight Beyond Sight (Original Mix)  4:32
+03. Bob Sinclar  -  Someone Who Needs Me (Kryder Remix)  5:08
+04. Abel Ramos  -  Higher  3:30(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 03:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F9100D9F32C73F4EA8CAC3C898829B81958BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040759   (585473) от 06.08.2016
+
+VA - Nu Disco Vol.5 [Compiled by Zebyte] (2016) [MP3|320 Kbps] <Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrey Krivushkin Feat. Taylr Renee - Belief In Humanity [06:23]
+02. Max Lyazgin - Time Flies (Theme From Illusion) [05:00]
+03. David Usher - Black Black Heart (Bentley Grey Remix) [04:10]
+04. Danny Darko - Hurricane Ft Julien Kelland (Vtx Deep Remix) [03:53](   Читать дальше...   )Жанр: Nu DiscoПродолжительность: 02:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD8345ECBA1A98834228F909389F75EEEA45E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040808   (585468) от 06.08.2016
+
+VA - Новая Жажда Скорости Без Тормозов vol.4 (2016) [MP3|320 Kbps] <Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cally & Riot - World In My Hands (Original Mix)
+02. Frequencerz - 12FU (Original Mix)
+03. Airtunes - Vampires (Original Mix)
+04. Faizar - The Darkness Drops (Original Mix)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FEC4C074AFB730C67710BA70900D756FABE74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040727   (585429) от 06.08.2016
+
+VA - Smooth Jazz for Deep Relaxation: Background Music for Lounge Mood (2016) [MP3|320 Kbps] <Jazz, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romantic Evening Jazz Club - Smooth Jazz for Deep Relaxation
+02. Jazz Relax Academy - Soothing Piano Bar
+03. Instrumental Music Ensemble - Jazz Coffee Break
+04. Good Mood Music Academy - Vintage Piano Bar Music (Sexy Chill Lounge)(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB347DAA91CE2A79486AE512AEEC3443E76AE874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358663   (585223) от 03.07.2011
 
 VA - Amnezia Super Hits 60 (02.07.2011) [MP3|320 kbps]<Dance, Euro Dance>
@@ -574,180 +748,6 @@ VA - Santorini Smooth Jazz Selection (2016) [MP3|320 Kbps] <Jazz, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF5DBBD1C3BC886DD01F65089D6B1990BB0EE191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041077   (584465) от 07.08.2016
-
-VA - Самые Популярные Новинки Года. Русский Выпуск (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584465.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дмитрий Недоспелов - На Экскаваторе
-002. Аида Николайчук - Inner Power
-003. Sasha Holiday - Цвет Желаний
-004. Анимация - Не По-Русски(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327263301F423A1F896759F2FC70584FFEC95AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040876   (584462) от 07.08.2016
-
-VA - Awesome 80s Super Hits (2016) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lio - Le banana split
-02. Tapo & Roby - Under The Ice
-03. Francis Lalanne - On se retrouvera (BOF ''Le passage'')
-04. Veronique Jannot - J'ai fait l'amour avec la mer(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 06:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01B46342F53B9C960CA1C2FE5757D6E26170B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040856   (584461) от 07.08.2016
-
-VA - Relaxing Lounge Music For Your Sleeping Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bossa Nostra - Espera
-02. Neja - Crime of Passion
-03. 2 Men 4 Soul - Spread Your Love - Remastered
-04. United Peace Voices - Gangchen Song(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A1BCA2A8C1DE2C6444E898FF594F097772BBF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040969   (584430) от 07.08.2016
-
-VA - Никто кроме ты. Русское радио (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584430.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Бьянка - Никто Кроме Ты (Летняя Песня)
-002. Olisha - Дай Мне
-003. Стрелки - Семь Морей
-004. Andre Tay - Детство(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EB1EFBF4B8BD92F0BD9B4665F414F04F01D9A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301189   (584349) от 12.05.2019
-
-VA - Joom Techno Grooves (2019) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584349.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Londono - Booster
-002. Act Of Rage - Brain Confusion
-003. Wildstylez - Run With The Wolves
-004. Akyra Ft. Mc Chucky - All The Ladies(   Читать дальше...   )Жанр: TechnoПродолжительность: 08:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8563F4EA3433F2F990BE25EE67A1F38BC02150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301177   (584343) от 12.05.2019
-
-VA - Republic Of Free Music: Trance Set (2019) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584343.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Istenia - Katrin (Original Mix)
-002. Betsie Larkin - Unite
-003. Distance Project - Run Off
-004. Andruboy - Memories (Original Mix)(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 10:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C17034823D98F1AD9F921E1711B4640796557A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

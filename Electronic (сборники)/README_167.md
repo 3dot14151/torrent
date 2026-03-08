@@ -1,3 +1,32 @@
+###  Публикация: 955482   (333854) от 11.11.2015
+
+VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 2 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dexter Morrison - Night Bird - Original Mix
+02. Joshua Green - For a Night - Original Mix
+03. Robert Reston - I'm Sending You - Original Mix
+04. Paul Moana - The Rapid Plastic - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380C8622E2B805A15B685B7278882EE8DFC09838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955666   (333789) от 11.11.2015
 
 VA - Новая Жажда Скорости Без Тормозов vol.2 (2015) [MP3|320 кб/с]<Club, Hardstyle>
@@ -716,35 +745,6 @@ VA - Club Dance Ambience vol.45 (2015) [MP3|320 кб/с]<House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B7DBCE3463B29AE154A8DF9B0DD87DDEA9A1243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957495   (327621) от 17.11.2015
-
-VA - Weird & Naked (Essential Classics) (2015) [MP3|320 кб/с]<Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonathan Morning - Bitter With the Sweet (Sonicwerks Mix)
-02. The Blessed Virgin Larry - Little Bloody Pill
-03. Jive Ass Sleepers - What's Left of Me (Nu Jazz Remix)
-04. Jonathan Morning - Lucky (Club Remix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 02:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3200E3BA0321BEFF076B0A961B9BAF551D83E83F
 ```
 
 https://mybot314.ru/tekegram_catalog/

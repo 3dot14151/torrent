@@ -1,3 +1,61 @@
+###  Публикация: 1839345   (1046476) от 28.11.2025
+
+VA - Elliptical Sun Recordings 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mully & Shvman with Dare County - Domino (Extended Mix) [5:31]
+02. John Grand - Stars (Extended Mix) [6:12]
+03. Titus1 & Travis Lydian - Demons (Extended Mix) [4:27]
+04. Nay Jay - Rosa (Extended Mix) [4:33](   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDB9FCD6967402304ACDFDA42C6739A044BC024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839334   (1046475) от 28.11.2025
+
+VA - The Best Of Suanda Music 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Anton Pallmer & Jennifer Rene - When I Hear Your Voice (Extended Mix) [7:21]
+02. Adip Kiyoi - You Love Me (Extended Mix) [6:04]
+03. Alex M.O.R.P.H. & Roman Messer - Millennium Falcon (Extended Mix) [7:27]
+04. NoMosk & Daniela Presta - Same Old Sky (Extended Mix) [5:41](   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534DF3F5A2EBA4765F3340833E99FA8E0EC71B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839324   (1046474) от 28.11.2025
 
 VA - Trance: The Vocal Session 2026 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -687,64 +745,6 @@ VA - Minimal Tech Grooves (2023) CD, Compilation [MP3|320 Kbps] <Techno, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A82A7B531347BFEF3DF9381028B0CCD1B4FFD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603361   (1045675) от 10.01.2023
-
-VA - Street Workout Electro Hits 2022 Workout Compilation 128 Bpm (2023) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ticli - Generation (Fitness Version 128 Bpm) (4:35)
-02. Maurizio Gubellini - Moscow Trip (Fitness Version 128 Bpm) (6:39)
-03. Marco Pintavalle - I Just Died In Your Arms (Fitness Version 128 Bpm) (4:21)
-04. Karim Razak - Disco Gitano (Fitness Version 128 Bpm) (5:45)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858A7A2A387D2700D2F9646C18CDA0DB4B8C057E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603707   (1045669) от 10.01.2023
-
-VA - Relax 'n Chill (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Moli - Believe in Yourself (Remix) (4:59)
-02. Marc Hartman - We're Jammin (4:32)
-03. Marco Moli - Excuses (4:16)
-04. DJ Deviance - Water to the Sea (3:51)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50CE8595D8F13758EF5361456ADF20F60BA1A73
 ```
 
 https://mybot314.ru/tekegram_catalog/

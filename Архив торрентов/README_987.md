@@ -1,32 +1,3 @@
-###  Публикация: 1007918   (819889) от 16.04.2016
-
-VA - Black Hole Trance Music 04 - 16 (2016) [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betsie Larkin - We Are The Sound (Bobina Megadrive Mix) 05:47
-02. Max Graham - End Beginning (Original Mix) 06:29
-03. Kris O’Neil & Fisher - Pouring Down 05:17
-04. Dimension - Mangata (Original Mix) 06:07(   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760A40DB9DBB3E29C228DD2871F950859DD6CA7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007566   (819888) от 16.04.2016
 
 DJ Micro - Tech-Mix Live (2001) [FLAC|Lossless|WEB-DL|tracks] <Trance, Hard House>
@@ -705,6 +676,33 @@ MacX Video Converter Pro — приложение, которое автомат
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D606DA6E361DD0440498A2B39CD7E1AE6CE5B53A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503547   (819682) от 19.10.2021
+
+Tweak Photos - Image Editor 2.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819682.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Все любят фотографировать. Но насколько хорошо Вы можете редактировать тысячи снимком, используя Ваш Mac является большим вопросом" - говорят разработчики Приложения.
+Компания Systweak разработала совершенно новое приложение для пакетного редактирования изображений на Mac - Tweak Photos. С помощью Tweak Photos , редактирование тысячи Ваших фотографий - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2021Разработчик: Systweak Software Private LimitedПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C5483BB2035E475B12AC55031890272A41CDB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

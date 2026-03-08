@@ -1,3 +1,32 @@
+###  Публикация: 1033486   (638233) от 11.07.2016
+
+VA - Club Dance Ambience Vol.77 (2016) [MP3|320 Kbps] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638233.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sander van Doorn vs. Florence & The Machine -  Reach The Love  (Sensetive5 Mashup) 6:07
+002. Bob Sinclair -  Someone Who Needs Me (Alex Gaudino & Dyson Kellerman Remix) 4:10
+003. Calvin Harris feat. Rihanna -  This Is What You Came For (Akhmetoff Remix) 3:48
+004. Madonna -  Music (Vincent & Diaz Remix) 5:05(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E24FC112AABF245595176F0A83D94CBB04D713A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907627   (638205) от 12.06.2015
 
 VA - Singapore Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -728,35 +757,6 @@ VA - Endless Motion - Only Trance (episode1) (2016) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A8655F82C8F458CEAE86834FDC1AF7F517ADA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034737   (634362) от 13.07.2016
-
-VA - Endless Motion - Only Trance (episode2) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634362.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Armin van Buuren Extended Remix) 6:11
-002. Bobina & Kyle Richardson -  Love Is the Answer (Dimension Remix) 5:11
-003. Gareth Emery feat. Janet Devlin -  Lost (Ferry Corsten Remix) 6:44
-004. Talla 2XLC pres. Alan Walker -  Faded (DJ ALEKSARD Mashup) 6:35(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591F3CB9319BF9DF2CC16CB7D518CA704C62D564
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1287248   (705527) от 06.03.2019
+
+Bernt Rosengren & Claes-Goran Fagerstedt - Jazz Club 57 (1957 - 1962) 2000, Dragon Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Remember April [3:56]
+02. Willow Weep for Me [2:39]
+03. Sputnik [6:07]
+04. Well, You Needn't [5:37](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469456C2F01ED6D19DCA6F841FD415FFC47D0722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287246   (705526) от 06.03.2019
 
 Jimmy Smith - Cherokee (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -713,35 +742,6 @@ Brian Melvin featuring Jaco Pastorius - Night Food (1985) Remaster, 2015, Solid 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:977D006844935E4ACB8DF677F44CFE5549FE2560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287689   (701975) от 08.03.2019
-
-Renee Rosnes - Art & Soul (1999) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Connotation [6:25]
-02. With A Little Help From My Friends [6:19]
-03. Goodbye [5:37]
-04. Ancient Footprints [8:24](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC4DB942F2C86F307667E548BFA37AA10150005
 ```
 
 https://mybot314.ru/tekegram_catalog/

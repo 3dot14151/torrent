@@ -1,32 +1,3 @@
-###  Публикация: 1050584   (536460) от 09.09.2016
-
-Jimi Hendrix - Live At Monterey Pop Festival (1992) [WavPack|Lossless|image + .cue] <Blues Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536460.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Can You See Me (3:35)
-2. Hey Joe (4:12)
-3. Purple Haze (3:15)
-4. The Wind Cries Mary (3:20)(   Читать дальше...   )Жанр: Blues Rock, Psychedelic RockПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E488A2D84FD8B8A62414F77F7BA4C72A6CC6CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050445   (536451) от 09.09.2016
 
 Twilight Force - Heroes Of Mighty Magic (2016) [FLAC|Lossless|image + .cue] <Symphonic Power Metal, Epic Metal>
@@ -738,6 +709,35 @@ The Beach Boys - The Very Best Of The Beach Boys: Sounds Of Summer (2003) Expand
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4852DB18F592CEA0E41D4D050EFAFE57DD495A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154812   (535489) от 02.08.2017
+
+Wolverine - Still (2006) [FLAC|Lossless|image + .cue] <Progressive Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535489.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A House Of Plague (06:52)
+2. Bleeding (05:21)
+3. Taste Of Sand (06:02)
+4. Nothing More (04:11)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84371AF633D21FC2A09BBB3F51A411D86A46B3EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1114910   (830065) от 16.03.2017
+
+VA - Best Of Deep House 2017 Vol.02 (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Justin Oh - Good Morning (Claes Rosen Remix)  6:51
+02.  Dezza - Brit  5:49
+03.  Eskai - Tides  5:16
+04.  Dan Sieg - Everything U Need  5:56(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD91578171B0727CDCFAC0E9CE6DD5B7C086A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114856   (830063) от 16.03.2017
 
 VA - The Fitness Series Vol. 2 (2017) [MP3|320 Kbps] <Hard House>
@@ -722,35 +751,6 @@ VA - Venera Music Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D43E96ED01C9977155597B16CC34BE9E0459E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007819   (819899) от 16.04.2016
-
-VA - Urban Dance Battle Nation (2016) [MP3|320 кб/с] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mykel Mars - White Beach (DJ Absinth EDM Edit) 03:20
-02. Tony Wong - Born for EDM (Muscle Mix) 03:37
-03. The Betatesters - Drop That (EDM Cardio Mix) 03:24
-04. Robby Schulz - Breathtaking (EDM Workout Anthem) 04:32(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 02:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256FBBBD829D6636AC224537A1BD9401F41E6A61
 ```
 
 https://mybot314.ru/tekegram_catalog/

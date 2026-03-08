@@ -1,3 +1,61 @@
+###  Публикация: 1261009   (307702) от 09.11.2018
+
+Astronautica - Discography 8 Releases (2013-2018) Alpha Pup Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillwave, Bass, IDM, House, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise Intro (01:18)
+ 02. Reasons (04:26)
+ 03. Racetracks (03:56)
+ 04. I've Never Been (03:00)(   Читать дальше...   )Жанр: Downtempo/IDM/House/Chillwave/AmbientПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE71B0AB49D64D2223FD75F59BB78EDE3C29413F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183589   (307683) от 14.11.2017
+
+ScAnDroid Experiment's - A Trap For The Traveller (2017) Single, Авторская раздача [MP3|320 Kbps] <Trap, Drum'n'Bass, Electronic>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Trap For The Traveller
+02. Our Distant Guests
+03. A Trap For The Traveller (Mix-A-Trapped Version)
+04. A Trap For The Traveller (Trap-A-Beat Version)Жанр: Trap, Drum'n'Bass, ElectronicПродолжительность: 00:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0A3ED77287E4CFA8539E27DFCCA1821329E49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333177   (307653) от 23.10.2019
 
 VA - Future Waves Vol. I (2017) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Retrowave, Synthwave>
@@ -678,64 +736,6 @@ VA - Future City Records Compilation Vol. III (2013) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08EBA1C1D26E94E57109E0E4076ACADBF8416CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333384   (305516) от 24.10.2019
-
-VA - Future City Records Compilation Vol. V (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sung - Thunder Love (3:55)
-02. Vincenzo Salvia - Together (4:18)
-03. Ron Cannon - Shock Waves (4:52)
-04. An88 - High Explosives (4:20)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 01:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B1DB9D5508F911C70138FD2A72EB875E29B483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333391   (305512) от 24.10.2019
-
-VA - Future City Records Compilation Vol. VII (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Plastic - Teen Steam (5:07)
-02. Andy Fox - Mechanismo (6:25)
-03. Bonx - Disco..But Not As We Know It (6:55)
-04. Maxthor - Black Fire (5:00)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 02:21:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055190BB5590F5B14713B091937D883980081A5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

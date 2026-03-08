@@ -1,3 +1,61 @@
+###  Публикация: 1262909   (291548) от 17.11.2018
+
+VA - Cafe Del Mar - Ibiza - Volumen Dos (1995) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Poets - Moment Scale (Dubmaster X Remix)
+02. Psychedelic Research Lab - Tarenah (Chill Mix)
+03. DxNote - Dxvotion
+04. Eddie Parker - Easter Song(   Читать дальше...   )Жанр: Downtempo, Ambient, LoungeПродолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1D05FE7DED89EC60599666F1522BB2D197E54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334827   (291532) от 31.10.2019
+
+ADN' Ckrystall - Jazz' Mad (1982) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, Minimal>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cocaina Vitamina (7:15)
+02. Pour L'amour D'Un Cygne (3:35)
+03. Puckies' Power (6:07)
+04. Le Blues De La Fille Aux Jambes De Jeans (4:52)(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-pop, MinimalПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0758B7978B59E372A90D23EFD1F8603AC5512700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334670   (291528) от 31.10.2019
 
 Flucturion 2.0 - Inner Camertone (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Chillgressive, Downtempo>
@@ -682,61 +740,6 @@ VA - In Disco We Trust Vol. 2 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CA6E73AAA215121E6AF0A128665C9869FE53595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185938   (289944) от 23.11.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 523 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jam & Spoon - Odyssey To Anyoona (Jamie Stevens & Uone Remix)
-02. Upercent - Pulsacions (Nick Warren Remix)
-03. Mariano Mellino & Interaxxis - Ecouter (Original Mix)
-04. Nato Medrado - Small Room (Tinlicker Extended Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B378C6A2C9F4B2B94C36E1A5965303F9A813700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263300   (289924) от 18.11.2018
-
-ReOrder - Beyond Time (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Time (Club Mix)Жанр: TranceПродолжительность: 00:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6D4C9E990619C6959F0937B866207A05E4B439
 ```
 
 https://mybot314.ru/tekegram_catalog/

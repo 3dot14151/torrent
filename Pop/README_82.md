@@ -1,3 +1,61 @@
+###  Публикация: 1385927   (795869) от 27.05.2020
+
+VA - Best 80s Hits (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795869.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tears for Fears - Everybody Wants To Rule The World (4:09)
+2. Culture Club - Karma Chameleon (4:00)
+3. The Human League - Don't You Want Me (3:56)
+4. Simple Minds - Don't You (Forget About Me) (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 02:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C3E066E0E94AE537837BA0BAF6543D9CC3CA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509266   (795551) от 11.11.2021
+
+VA - All The Hits Of Monster Disco Sound (1976) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Blood - Le Chat (4:22)
+02. Monsieur Goraguer - Sexy Dracula (3:18)
+03. Sweet Exorcist - The Creature From The Freak Lagoon (3:46)
+04. Sweet Exorcist - Zeke The Zombie (3:31)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0596CCED98578DDFCC7FC623E2EF368C76A75CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509114   (795550) от 11.11.2021
 
 Pentatonix - Evergreen (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -686,64 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:126C22B8B9AD4359D3BD73EC2898DF108AC56E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509349   (794887) от 12.11.2021
-
-VA - 13 друзей Билана (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794887.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дима Билан/Клава Кока - Держи
-2. Artik & Asti - Я так люблю тебя
-3. Руки Вверх! - Полуночное такси
-4. Артур Пирожков - Задыхаюсь(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6A67FDDB6CC152BDBB155F0C5E597C1AD5FEC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200650   (794842) от 22.01.2018
-
-VA - Disco 80's vol.1 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue System - My Bed Is Too Big (3:16)
-02. Fancy - Bolero (Hold Me in Your Arms Again) (5:38)
-03. Den Harrow - Don't Break My Heart 2001 (Soft Radio Mix) (2:59)
-04. Eddy Huntington - U.S.S.R. (5:52)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B137AAD42A0977493FE25F14B5B5F1DCA57B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

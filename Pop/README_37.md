@@ -1,3 +1,59 @@
+###  Публикация: 977042   (967746) от 19.01.2016
+
+VA - Miamibiza Hits 2014 (2014) [FLAC|Lossless|tracks + .cue] <Dance, Pop, Latino>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gusttavo Lima - Balada (3:25)
+02. Jack Holiday & B-Case - Feel It! (Radio Mix)Жанр: Dance, Pop, LatinoПродолжительность: 01:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F062DF7E7DA79C5C69048B53DB24B20DEA629E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976905   (967710) от 19.01.2016
+
+VA - Divas of Dance, Vol. 4 (2004) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Narcotic Thrust - I Like It (3:06)
+02. Katrina - Sunshine (4:30)
+03. Soul Sistas - I'm Watching You (4:52)
+04. Clueless feat.Donna - Last Dance (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 1:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968D4A651CE9BE801FC5645E7E800C6039167888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976844   (967396) от 19.01.2016
 
 VA - Дискотека СССР - Сборник поп-музыки (2005) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -687,64 +743,6 @@ a-ha - Scoundrel Days (1986) 2CD, Deluxe Edition, Remastered, 2010, Warner Bros 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1C99FA968FB07384692745D427AB17EF8F15E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978342   (963298) от 23.01.2016
-
-VA - Танцевальный рай 36 (2016) [MP3|320 кб/с] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willy William - Ego (Radio Edit)
-02. Iyeoka - Simply Falling (Dj Antonio Radio Edit Remix)
-03. Lost Frequencies - Reality
-04. Kadebostany - Teddy Bear (Astero Radio Remix)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 02:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E38F9EC3449E826A5128571AD4883A913A63D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359982   (963264) от 13.02.2020
-
-Tennis - Swimmer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Haunt You (02:32)
-02. Need Your Love (03:51)
-03. How to Forgive (03:36)
-04. Runner (03:36)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8AEF7031E4B985FCC0015299CA50F949166B4A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

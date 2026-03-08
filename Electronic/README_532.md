@@ -1,3 +1,61 @@
+###  Публикация: 865310   (32018) от 04.01.2025
+
+Marcus Koch - Chillscapes Vol.1 (2014) [MP3|320 кб/с] <Downtempo, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Fields (03:34)
+  02. Sundowner (04:50)
+  03. Moon Safari (07:07)
+  04. Dark Heart (04:52)(   Читать дальше...   )Жанр: Downtempo, Chill OutПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7E725A5C9BEAD5580FCABD120A67C09973B189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884195   (32017) от 04.01.2025
+
+VA - Milchbar Seaside Season 7 (Compiled By Blank & Jones) (2015) [MP3|320 кб/с]<Chillout, Downtempo, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - Milchbar 10:00 AM (3:23)
+02. Blank & Jones with Jason Caesar - Lovelee Dae (Morning Breeze Version) (2:59)
+03. Nick & Samantha - Bitter Sweet Song (Milchbar Mix) (3:50)
+04. Afterlife - Pirates (Milchbar Mix) (4:21)(   Читать дальше...   )Жанр: Chillout, Downtempo, AmbientПродолжительность: 01:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AF645B129F95412205A070101C74D9F85FDBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770985   (32008) от 04.01.2025
 
 VA - Afro House: Deep Roots (M-Sol Deep Essentials) (2025) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -687,64 +745,6 @@ VA - A Decade Of Female Vocal Trance (2010 - 2020) (2020) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D24F1BCD9294B00DD48E6DE024563778DE1F07CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411225   (31602) от 08.01.2025
-
-Markus Schulz - Escape (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Escape (Original Mix)
-02. Markus Schulz & London Thor feat. Valentino Alessandrini - Feel Alive (Original Mix)
-03. Markus Schulz & Singa - Turn Me Down (Original Mix)
-04. Markus Schulz & Ethan Thompson feat. Soundland - Make It Last Forever (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A4DC841CAF5E9DB43118B8B6DC8CF3C07D82E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 678498   (31589) от 08.01.2025
-
-VA - Pure Bliss Vocals Volume 4 (2013) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana Criado - How Will I Know - Daniel Kandi & Dennis Pedersen Radio Edit (04:36)
-02. Beat Service - Reach The Sun - Radio Edit (04:00)
-03. Faruk Sabanci - Discover - Radio Edit (04:01)
-04. Giuseppe Ottaviani - Love Will Bring It All Around - Radio Edit (03:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADC282333F26C7BE87D17B87F9A1442BB3DD1B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 922702   (568175) от 29.07.2015
+
+Kristine - Kristine (2015) [MP3|320 кб/с]<80's Retrowave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Love [04:50]
+02. The Danger [03:40]
+03. Summer Long Gone [04:17]
+04. The Rhythm of Love [03:40](   Читать дальше...   )Жанр: 80's Retrowave, SynthpopПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E7AEF5857CC46D666161955DFE376841AB28D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234551   (567954) от 07.07.2018
+
+Krono - Krono (1979) LP [MP3|320 Kbps] <Electronic, Space Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bareback (5:42)
+02. Jamaica Electric (6:30)
+03. Manhattan (6:29)
+04. Krono (6:51)(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE7C9E1B521E6725B17ADD1715A6B6B971752FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234635   (567896) от 07.07.2018
 
 Ken Laszlo - Best Of 1990-1998 (Maxi Singles & More) (2018) Compilation, Limited Edition [MP3|320 Kbps] <Disco, Dance-pop>
@@ -687,64 +745,6 @@ Plastic Mermaids - Suddenly Everyone Explodes (2019) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A51BF5A0E5DC831C3895B75374750F56E8BF29F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304400   (565532) от 25.05.2019
-
-Venus Dodson - Night Rider (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's My Turn (6:48)
-02. Shining (7:35)
-03. Night Rider (6:43)
-04. Where Are We Headed (4:14)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758C449A8D2B585B9D42DC275E53DA13278EC560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304305   (565528) от 25.05.2019
-
-Diva Gray And Oyster - Hotel Paradise (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Tropez (5:29)
-02. Up And Down (6:12)
-03. Hotel Paradise (5:13)
-04. Good Good Tequila (6:29)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D25639786D0AEEAD47D447B0A17B65AA86F21C
 ```
 
 https://mybot314.ru/tekegram_catalog/

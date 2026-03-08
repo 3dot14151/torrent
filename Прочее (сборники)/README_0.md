@@ -1,3 +1,119 @@
+###  Публикация: 1853704   (1057037) от 14.02.2026
+
+VA - No name compilation part 49 Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Smtve - Beautiful Things
+02 - Liyna - Cold Heart
+03 - Smtve - Someone I Love
+04 - Nezon - Neon Heartbeat(   Читать дальше...   )Жанр: Electronic, Eurodisco, Eurodance, OtherПродолжительность: 01:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8BCD62F6866A48BB41138A0F7790E92642AE85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854000   (1056960) от 15.02.2026
+
+VA - No name compilation part 50 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Vocal, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dndm - I Love Strong
+02 - Rodle - Love in the Dark
+03 - Umideep - Don’t Slow
+04 - Dova Music - In Your Shadow(   Читать дальше...   )Жанр: Electronic, Vocal, EurodanceПродолжительность: 02:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DEB99D9663006518DCE1218581548ECD388544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853658   (1056629) от 14.02.2026
+
+VA - ЕвроХит Топ 40 Europa Plus 13.02.2026 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - The Fate Of Ophelia (2:55)
+02. David Guetta & Teddy Swims & Tones & I - Gone Gone Gone (3:18)
+03. Haven. - I Run (2:09)
+04. Katseye - Gabriela (3:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7058C76F3FD86FBB0AE66ED46BEFBBA7B2A942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852591   (1056159) от 08.02.2026
+
+Ai - No name compilation part 48 Soulful Ballad (2026) [MP3|320 Kbps] <Soulful Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Want You Tonight
+02 - Wise Love
+03 - I Heard You Die in My Dream
+04 - Baby, You're Slipping Away(   Читать дальше...   )Жанр: Soulful BalladПродолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C4F5248B39411184F98449FAD0BD5E4B642B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852466   (1056157) от 08.02.2026
 
 Ai - Russian Covers Part 4 (2026) [MP3|192 - 320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ Ai - No name compilation part 40 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B63CEBB026ED5A884AAA623EA559FE82EA383F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845785   (1051005) от 03.01.2026
-
-VA - Hard Rock: Steel Anthems (2025) [MP3|320 Kbps] <Hard-Rock, Metal, Core>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051005.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Drive - Mrclaps  - (01:52)
- 002 Gasoline Tongue - Noah Vale  - (02:43)
- 003 Berliner Suffmarsch - Krawallonkel  - (04:14)
- 004 County Queen - Jay Rosaa  - (04:58)(   Читать дальше...   )Жанр: Hard-Rock, Metal, CoreПродолжительность: 11:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3483B0A3AD94B8EC8CE88C3E69B12E72E83E696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845572   (1050789) от 02.01.2026
-
-Ai - No name compilation part 39 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - This Heart is Weary
-02 - Stay
-03 - When I’m No Longer Here
-04 - I Miss You So(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 01:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76612176BCBFE76C6184AFCD600E0542D371A9E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845537   (1050788) от 02.01.2026
-
-Ai - No name compilation part 38 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Whispers in the Wind
-02 - My Foolish Heart Never Saw His Devotion
-03 - Hold Me Close, Don't Ever Let Go
-04 - At the End of the Wait(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 01:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE99E37B7DD8AEE82C04625120A4508F13D51C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845195   (1050786) от 02.01.2026
-
-Ai - No name compilation part 37 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - You're Drifting Away
-02 - Fallen
-03 - The Way You Move Me
-04 - Hidden Flame(   Читать дальше...   )Жанр: Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, AiПродолжительность: 01:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78FA0F11E941BC90C7D63C65DC10C77DB94FCF3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

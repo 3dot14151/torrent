@@ -1,32 +1,3 @@
-###  Публикация: 1621568   (239733) от 26.03.2023
-
-Black Hawk - Soulkeeper (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Soulkeeper [00:04:22]
-02 - Angry Machines [00:04:38]
-03 - War Zone [00:05:03]
-04 - Better Times [00:05:43](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AE13927FAC732E1B61E994985F63CD023FFD44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635560   (239726) от 26.05.2023
 
 Terrifier - Trample the Weak, Devour the Dead (2023) [MP3|320 Kbps] <Thrash Metal>
@@ -745,6 +716,35 @@ Abbath - Dread Reaver (2022) [MP3|320 Kbps] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D4CCDA5F40D586E1D59AE4335B982511298F0E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638263   (238078) от 07.06.2023
+
+Ekrom - Uten N​adigst Formildelse (2023) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bell Witch
+02. The Black Flame of Seth
+03. The Black Hearted Ragana
+04. Abyss of Eternity(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C474F0D00E094D76F1CC36EEEA9F8B05F7007BED
 ```
 
 https://mybot314.ru/tekegram_catalog/

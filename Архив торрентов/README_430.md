@@ -1,3 +1,30 @@
+###  Публикация: 620819   (965041) от 18.02.2013
+
+Media Player Classic - Black Edition (MPC-BE) 1.1.0.1.2111  Beta (x32/x64) + Portable + Standalone Filters [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965041.jpg" />
+</div>
+
+
+###  Подробнее
+
+MPC-BE – универсальный проигрыватель аудио и видеофайлов для операционной системы Windows. Этот проект имеет свою независимую разработку на базе оригинального кода «Media Player Classic» (Gabest) и «Media Player Classic - Home Cinema» (Casimir666).
+MPC-BE имеет внушительный набор аудио-видео фильтров, который позволяет ему воспроизводить практически все существующие (   Читать дальше...   )Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359334   (965008) от 11.02.2020
 
 Format Factory 5.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -680,35 +707,6 @@ Moshic - TubTa (2009) [MP3|320 kbps]<Tribal, Downtempo, Ambient>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977926   (964716) от 22.01.2016
-
-LAShTAL - Thoum Aesh Neith (1986/1992) [FLAC|Lossless|tracks + .cue] <Experimental, Industrial, Tribal, Ritual Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invocation Of Nag-Zhig (07:35)
- 02. Kundalini (07:11)
- 03. Ballata No. 7 (03:39)
- 04. Pope Is Antichrist (03:01)(   Читать дальше...   )Жанр: Experimental, Industrial, Tribal, Ritual AmbientПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E53645A7530F5F169082ABFE3D0B0FD1281A08C
 ```
 
 https://mybot314.ru/tekegram_catalog/

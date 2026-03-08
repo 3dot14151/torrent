@@ -1,32 +1,3 @@
-###  Публикация: 1358387   (969638) от 07.02.2020
-
-VA - 100 Greatest Alt Rock Anthems (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969638.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.The Cure - Killing An Arab (2:24)
-2.Iggy & the Stooges - Raw Power (Iggy Pop Mix) (4:16)
-3.Television - See No Evil (3:52)
-4.David Bowie - Breaking Glass (2017 Remaster) (1:52)(   Читать дальше...   )Жанр: RockПродолжительность: 06:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC934996A4E5579687F0C45DB3B7F5F78DD9F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358300   (969637) от 07.02.2020
 
 Green Day - Father Of All Motherfuckers (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Alternative, Punk Rock>
@@ -762,6 +733,35 @@ Asgeir (Ásgeir) - Afterglow (2017) 2CD [FLAC|Lossless|tracks + .cue] <Indie Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14CF2F275B1E8C7478954F0617DAE5C3E138F920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358833   (967428) от 09.02.2020
+
+GZR - Ohmwork (2005) [Geezer Butler, bass - Black Sabbath] [FLAC|Lossless|image + .cue] <Sludge Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misfit [03:24]
+02. Pardon My Depression [04:37]
+03. Prisoner 103 [03:09]
+04. I Believe [06:54](   Читать дальше...   )Жанр: Sludge Metal, Industrial MetalПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52F7E4470CE971038C13C670D1235B4383066EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

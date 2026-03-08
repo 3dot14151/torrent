@@ -1,3 +1,177 @@
+###  Публикация: 1306408   (555657) от 04.06.2019
+
+VA - Прокачай Уши BASS 2019 vol. 2 [MP3|320 Kbps] <Bass, Drum'n'Bass, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Total Destruction - Mechanical warriors (6:52)
+2.Junkie XL - Heart Of Darkness (6:48)
+3.Neoid - My Life (Original Mix) (6:47)
+4.Spy - By your side (6:34)(   Читать дальше...   )Жанр: Bass, Drum'n'Bass, OtherПродолжительность: 02:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5973B46A75F9099BE10EACC5210884F317C7CB1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306563   (555561) от 05.06.2019
+
+VA - Friendly Reminder: Punk Rock Collection (2019) [MP3|320 Kbps] <Punk, Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555561.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Down Memory Lane - Xenophobic
+002. Sharp Sleeves - Old Soul
+003. Burn Burn Burn! - Fugue State
+004. Big Black - Pavement Saw(   Читать дальше...   )Жанр: Punk, Punk RockПродолжительность: 08:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1CF4BEDBBD82C61F4CE7B26F01233D0B41C814E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306356   (555547) от 05.06.2019
+
+VA - Summer Pool: European Dance Hit (2019) [MP3|320 Kbps] <Pop Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aksel - Fading Pictures
+002. Agus - Voices
+003. Factory Of Souls - Big Game (Original Mix)
+004. Fabio Gandolfo - Hьtchenspieler(   Читать дальше...   )Жанр: Pop Dance, Club, HouseПродолжительность: 09:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0A482989BFB8487CAE8AC8B61A4AF2583E73B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306494   (555531) от 05.06.2019
+
+VA - Новинки Русского Рэпа (2019) [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555531.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Onlife, Deesmi - Влюбился в неё (3:56)
+2.Коста Лакоста - Эротика (3:37)
+3.YAMAN - Groove (3:34)
+4.Мэд Райта - Волны (3:25)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 01:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19449B08F6C9E628E82CEEB86CBA38C231CF314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306774   (555444) от 06.06.2019
+
+VA - This Merry Planet: Instrumental Disco Hits Vol.3 (2019) [MP3|320 Kbps] <Disco, Funk, Instrumental>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+
+01.Biddu Orchestra - Black Magic Man (03:25)
+02.Montana Orchestra - Ride Like The Wind (05:13)(   Читать дальше...   )Жанр: Disco, Funk, InstrumentalПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1414AA88801E6CB7FAAB83DB6D5B6E663977719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306850   (555210) от 08.06.2019
+
+VA - не Громкие новинки недели 19 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555210.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Слава Благов feat. Владимир Павлещук - Vера, Nадежда, Lюбовь (5:15)
+2.Олег Попков - Виновато Вино (4:34)
+3.Sokratova feat. Kson & Ditro - Небо Чёрного Цвета (4:10)
+4.Mark Ovski - Двойной Апероль (4:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495ED3932A06B1D14E23240D9DBED294C567A233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307174   (555075) от 09.06.2019
 
 VA - German Top 100 Single Charts 14.06.2019 [MP3|320 Kbps] <Pop>
@@ -568,180 +742,6 @@ VA - Warm Time Electro House (2019) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:841A3961401665151C7EF5604DD2F9F97CDB7240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308222   (554199) от 13.06.2019
-
-VA - Cyber World: Electronic Space Party (2019) [MP3|320 Kbps] <Electro, Dance House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554199.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anthony Rother - Singularity
-002. Fabian Del Priore - Twilight Zone
-003. Frankyeffe - In Your Eyes Feat. Njira
-004. S L F - Distraction Is(   Читать дальше...   )Жанр: Electro, Dance HouseПродолжительность: 10:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FB8EB296D67B900F48189786FA419C3CD032ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236646   (554061) от 19.07.2018
-
-VA - Good Vibes (2018) [MP3|320 Kbps] <Deep, Techno House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554061.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Way Out West - Lullaby Horizon
-002. Volksfreude - I Want You There
-003. Sandra Kanivets - Moonlight (Original Mix)
-004. Rough Cut & NoShame - My Love (Original Mix)(   Читать дальше...   )Жанр: Deep, Techno House, ElectroПродолжительность: 09:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4574D7A66F7C228D6EBBE465980B241015D4AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236755   (554040) от 19.07.2018
-
-VA - Latin Summer Compilation (2018) [MP3|320 Kbps] <Pop, Dance, Latin>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554040.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Balvin - Mi Gente
-002. Luis Fonsi - Échame la Culpa
-003. Maluma - El Préstamo
-004. Nelkita - Dembow Papá(   Читать дальше...   )Жанр: Pop, Dance, LatinПродолжительность: 08:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187DA43CB5D5A94171ACA460B9702BE22A049C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236582   (554015) от 19.07.2018
-
-VA - Топ 30 крутяк недели от Муз-ТВ Июль (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лобода - Суперзвезда.mp3
-02. Maruv Boosin - Drunk Groove.mp3
-03. Полина Гагарина - Выше головы.mp3
-04. Джиган feat. Артем Качер - ДНК (feat. Артем Качер).mp3(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6ABF040AD6ADD85FD9612260E42BFC8CE56136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236527   (553962) от 19.07.2018
-
-VA - Российские новинки (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553962.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 5sta Family-Снова Вместе (Sergey Kutsuev Remix)
-003. Alekseev-Сберегу
-002. Aiza feat. Daffy-Запуталась
-004. Alex Maier-Девочка Танцуй(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DBC9981F27EAF6D77583980D307C15DBCE932E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236846   (553839) от 20.07.2018
-
-VA - TOP Non-Stop 2010-2015 - Trance. Volume 1. Set Of New Feelings (2016) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paronator - Sunset (original mix edit) [3:23]
-02. Timmy & Tommy feat. Leila - Perfect Motion [8:02]
-03. Embliss - Lemonakia [7:04]
-04. 16 Bit Lolitas - Snake Inverter [6:37](   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2ECAF5BF1599A9C1D88B742949AC63BD1210C0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

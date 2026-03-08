@@ -1,3 +1,32 @@
+###  Публикация: 1469104   (1016749) от 10.05.2021
+
+VA - Top 100 Euphoric Trance (2021) [MP3|320 Kbps] <Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция транс музыки с наименованием "Top 100 Euphoric Trance", станет Вашим проводником в мир самой актуальной и нестандартной музыки. Пластичные переходы от агрессивного строю к растянутому лаунжу и резкие амплитудные всплески электронной музыки под аккомпанемент пространственного бита, под который тело само стремиться в движение будут с Вами на протяжении (   Читать дальше...   )001. Spyndl - Dark Spaces
+002. Vinny Degeorge - Forza
+003. Genetic - Revelations
+004. DJ Sakin - Dream Of Eternity(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 09:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14C713DB0DA9A512CF4C210242D35611ED98B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468973   (1016576) от 11.05.2021
 
 TOP 40 PromoDJ Май 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
@@ -716,35 +745,6 @@ VA - Ibiza Chillout #15 (2021) [MP3|320 Kbps] <Chillout, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC46AF43903304BC3067B8C15292EC3B7AB896FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473983   (1013401) от 31.05.2021
-
-VA - World Sound Funky: Jackin House Mixtape (2021) [MP3|320 Kbps] <Funky House, Jackin' House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013401.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Toshi,Timmy Regisford - Kiqi
-002. Federico Rosa - Love Is Strong
-003. Pavzo - The Jazz Bar
-004. Domineeky - Play(   Читать дальше...   )Жанр: Funky House, Jackin' House, Nu DiscoПродолжительность: 09:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E2CEEFB320C56BAAF2D7F0F1FD98439089CE44
 ```
 
 https://mybot314.ru/tekegram_catalog/

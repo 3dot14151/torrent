@@ -1,3 +1,32 @@
+###  Публикация: 1311395   (541981) от 29.06.2019
+
+Tunng - This Is Tunng…Magpie Bites and Other Cuts (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heatwave (03:38)
+02. The Pioneers (04:25)
+03. Bodies (04:27)
+04. Pool Beneath The Pond (05:48)(   Читать дальше...   )Жанр: Indie, RockПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF80882DEF51737DE863A8B08A1C1DFD650A719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311690   (540070) от 30.06.2019
 
 Atreyu - Lead Sails Paper Anchor (2007) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hardcore, Hard Rock>
@@ -715,35 +744,6 @@ Blue October - I Hope You’re Happy (2018) [FLAC|Lossless|WEB-DL|tracks] <Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2319A5B1007AC6B7B4B86B102D938DA11689B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314653   (518258) от 15.07.2019
-
-311 - Voyager (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Reggae Rock, Rap Rock, Funk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crossfire (02:41)
-02. Don't You Worry (03:38)
-03. Stainless (03:50)
-04. Space and Time (03:34)(   Читать дальше...   )Жанр: Alternative Rock, Reggae Rock, Rap Rock, Funk MetalПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC396414DC6D84D488904A364EA258E30AFEF93E
 ```
 
 https://mybot314.ru/tekegram_catalog/

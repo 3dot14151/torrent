@@ -1,3 +1,61 @@
+###  Публикация: 1292888   (643372) от 31.03.2019
+
+VA - VA - Girls Club, Vol.1 (2018) Explicit [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terri B! - I'm Coming Back (Sidelmann Radio Edit)
+02. Crew 7 - No Diggity (Farec Remix)
+03. Alex Guesta - Caliente (Stream Edit)
+04. Moreno Chembele - Se orita (Radio Mix) (feat. X.Orbit)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079B51F1B94D8E9928008FE5AC029D60FF17802B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292739   (643290) от 31.03.2019
+
+VA - Eurodance Evolution 2019.02 (2019) [MP3|320 Kbps] <Euro-dance, pop-dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  J.O.Y.C.E. - Let The Rhythm Take Control (feat A.K.-S.W.I.F.T. - radio mix)
+02.  Free 2 Night - Phantom Of Love (feat Timi Kullai - remastered radio mix)
+03.  B.G. The Prince Of Rap & Chrizz Morisson - So Special (feat Timi Kullai & Pamela O'Neal - Dolls Euro remix)
+04.  Shilton - Flame (Eurodance radio mix)(   Читать дальше...   )Жанр: Euro-dance, pop-danceПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D57A8B23EB6D1ABBCAD29FC0F46707C7D900BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292741   (643195) от 31.03.2019
 
 VA - Eurodance Evolution 2019.01 (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Pop-Dance>
@@ -693,70 +751,6 @@ David Lyme - The 12'' Collection (2019) Limited Edition, Remastered [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:719A8590726607ED15477684489E9F96352782CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293052   (641175) от 01.04.2019
-
-Балаган Лимитед - Дуэты (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ветер, унеси (feat. Алиса Манахова)
-02. Яблонька (feat. DJ NeoMaster)
-03. Мама Чоли (feat. Пари)
-04. Пусть говорят (feat. Белла Огурцова)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEE24F61FED5E5B5306CC26BF06022750A6D738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518656   (641144) от 04.07.2012
-
-Весёлые Ребята - Песни Вячеслава Добрынина (1996) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 На земле живёт любовь
-02 Ни минуты покоя
-03 Мелочи жизни
-04 Напиши мне письмо
-05 Золотой ключик
-06 Розита
-07 Чашка чая
-08 Люби меня, как я тебя
-09 Хочу всё знать
-10 Бологое(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2811725E86C64BC67FA77498A98A8FD40395D937
 ```
 
 https://mybot314.ru/tekegram_catalog/

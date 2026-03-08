@@ -1,3 +1,61 @@
+###  Публикация: 1610968   (1041173) от 12.02.2023
+
+VA - The Sound Of 2023 Mix 2: Seoul (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blufeld - Allusive Alive (Original Mix) [6:00]
+02. Gabriel Carminatti & Abel Mezzomo - Ignition (Original Mix) [4:19]
+03. Vladislav Maximov & 3-YA - Heartbeat (Original Mix) [3:52]
+04. DatabassЖанр: Trance, Progressive, ElectronicПродолжительность: 03:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECCF098231711DC2E5653386E7556FF42FE0884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438426   (1041155) от 08.01.2021
+
+VA - Markus Schulz - Global DJ Broadcast (Deeper Shades) (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massane - No Return
+02. Marsh & Phenoir featuring Mariel Beausejour - Don't Wait
+03. Beije - Standing Between the Worlds
+04. Markus Schulz & Adina Butar - In Search of Sunrise (Watercraft Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEE758610A12A7DAB5E3476BA49A44CCA183795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438228   (1041154) от 08.01.2021
 
 Tiesto - SiriusXM Tiesto & Friends NYE Party (2020-12-31) [MP3|~245 Kbps (V0)] <Future House, Big Room, Electro House>
@@ -685,64 +743,6 @@ VA - Chill & Relax: Chillout Your Mind (2023) [FLAC|Lossless|tracks] <Balearic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF9E632336071F93C3A24B47AA24AE26F244D3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438795   (1040333) от 11.01.2021
-
-Нейромонах Феофан (Neuromonakh Feofan) - Акустика (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Russian Folk Rock>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Под Драм Легко (Акустическая Версия) [00:02:43]
-02. Пойдём Со Мной (Акустическая Версия) [00:03:34]
-03. Сияние (Акустическая Версия) [00:03:49]
-04. Камыш (Акустическая Версия) [00:02:53](   Читать дальше...   )Жанр: Russian Folk RockПродолжительность: 01:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F2D23EE5E6E1510AA28F9384A7C8C034E4650A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438771   (1040330) от 11.01.2021
-
-Нейромонах Феофан - Десять (Live) (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Russian Folk Rock>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Казаки (Десять Live) [00:01:37]
-02. Ядреность - Образ Жизни (Десять Live) [00:04:05]
-03. Пляски С Медведем (Десять Live) [00:03:24]
-04. Холодно В Лесу (Десять Live) [00:02:08](   Читать дальше...   )Жанр: Russian Folk RockПродолжительность: 01:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E49F5FF72026723FD4B703C5947609F06F0F156
 ```
 
 https://mybot314.ru/tekegram_catalog/

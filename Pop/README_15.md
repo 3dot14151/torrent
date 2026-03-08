@@ -1,3 +1,61 @@
+###  Публикация: 1622567   (1030039) от 29.03.2023
+
+VA - Mystera VII (2001) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eva Cassidy - Fields Of Gold
+02. Enigma - The Screen Behind The Mirror
+03. Gregorian - The Sound Of Silence
+04. Blackmore's Night - Fires At Midnight(   Читать дальше...   )Жанр: Downtempo, Synth-pop, ClassicalПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7411DB32164018CC9A29B477453B8A2A27E1E02A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449487   (1030019) от 21.02.2021
+
+Mflex Sounds - H.M.H. 2 from Another Perspective (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro Disco, Spacesynth>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impulse (2:11)
+02. Invisible Miracles (6:39)
+03. Rock My Heart (7:06)
+04. Lover Tonight (L.E.) (7:20)(   Читать дальше...   )Жанр: Italo-Disco, Euro Disco, SpacesynthПродолжительность: 01:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C5BE902A7F03B3649848E1A8ECFCA44F2DCC62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449485   (1030013) от 21.02.2021
 
 Mflex Sounds - Hear My Heartbeat Volume One (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro Disco, Spacesynth>
@@ -687,64 +745,6 @@ VA - 70s 80s and 90s Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:109539EEA6C9D07680FD54AC186F202CAFE2D214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450793   (1028419) от 01.03.2021
-
-Beach Club Records Label Pack (2012-2021) Ken Martina (Kennard van der Bijl), et cetera [FLAC|16-24/44.1|tracks|WEB-DL] <Italo-Disco, Dance, Eurobeat>
-
->>Pop
->>Eurodance, Disco (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Casanova - Angel Eyes (Full Extended) (7:47)
-02. Alan Brando - Once Upon a Time (Vocal Version) (9:34)
-03. Ken Martina - Cinderella (Vocal Extended Mix) (7:40)
-04. Ken Martina - My Love Is Forever (Extended Mix) (6:18)(   Читать дальше...   )Жанр: Italo-Disco, Dance, Hi-NRG, Eurobeat, Synthpop •Продолжительность: 321:01:58Kennard van der Bijl - более известный под одним из своих псевдонимов как Кен Мартина. Голландский исполнитель, композитор и продюссер. Основатель студии Beach Club Records. Пишет музыку в стилях итало-диско и итало-дэнс. Практически все песни он же и исполняет, под разными псевдонимами. Кроме Кеннарда в записях принимают участия ещё две бэк-вокалистки Annemarie (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420C509D12EB41D52206382785CA66B0A5E89174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451326   (1028358) от 02.03.2021
-
-Star Sisters - Hooray For Hollywood  (1984) Reissue, 2005, 2000 FruitGum Corp[FLAC|Lossless|image + .cue] <Disco, Swing, Funk / Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	A Tribute To Marilyn Monroe	4:21
--	My Heart Belongs To Daddy
--	I Wanna Be Loved By You
--	Diamonds Are A Girl's Best Friend(   Читать дальше...   )Жанр: Disco, Swing, Funk / SoulПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084F0CBA56CE9A964639C5757502C976C304C468
 ```
 
 https://mybot314.ru/tekegram_catalog/

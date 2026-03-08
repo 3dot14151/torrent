@@ -1,3 +1,61 @@
+###  Публикация: 1124433   (785755) от 11.04.2017
+
+Between Interval - legacy (2017) [FLAC|Lossless|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tunnel [00:03:22]
+02. On Track [00:04:04]
+03. Accelerant [00:06:20]
+04. The Hour Appointed [00:04:59](   Читать дальше...   )Жанр: AmbientПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF5BA7C8EDA51E5C272FA0A8A88524CDDFC9330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124841   (785674) от 12.04.2017
+
+VA - Contemporary New Lounge. Aperitif Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady White - The Rules of Love - Oversise Mix
+02. Monowork - Dapper - Lake Version
+03. Roben Bucks - Shallow - Keep Mix
+04. Ephemeral - Frogs Rain - Stereo Version(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27EEB4A256004E64944E2177E070BBBA45E0E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124818   (785671) от 12.04.2017
 
 Brоekhuіs, Kellеr & Schоnwаlder - Rеd Lіvе @ USА (2017) [MP3|320 Kbps] <Ambient>
@@ -683,64 +741,6 @@ VA - Silk Music Pres. Talamanca 01 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B3A8F5761965524C1CF4F62652C564ED0E264E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277424   (785415) от 20.01.2019
-
-VA - Kamsutra Chillout Lounge - Spicy Sensual India Exotic Music (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Banghra Lounge Voices - Kamasutra In Heaven 5:09
-02. Bedroom Buddha - Mumbai Nights (Bar Del Mar Cafe Mix) 5:31
-03. Buddha Vibes - Summer Breeze In India (Goa Beach Extended Mix) 10:12
-04. Kamasutra Girl - Goodbye My Love (Sunset Bangarang Mix) 5:16(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FCADED7A561ED181AA0509FF33E0CA4918B0D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204063   (785397) от 04.02.2018
-
-VA - Best of Lounge 2018: Special Selection Vol.1 [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christoph Spendel Trio - Unknown Events
-02. Karen Gibson Roc - Slow Down
-03. Marcus Koch - Forever
-04. UFO - Purple Sun Down(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E02DDF73FE874BC4DEBB48CFD47100CB86060EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

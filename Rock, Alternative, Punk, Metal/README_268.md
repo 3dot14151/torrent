@@ -1,32 +1,3 @@
-###  Публикация: 1383604   (809973) от 16.05.2020
-
-Paradise Lost - Obsidian (2020) Limited Edition [FLAC|Lossless|image + .cue] <Gothic, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darker Thoughts
-02. Fall from Grace
-03. Ghosts
-04. The Devil Embraced(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821D5A0B69642DB285636E91436DC4F6E232B833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009556   (809785) от 21.04.2016
 
 The 69 Eyes - Universal Monsters (2016) [MP3|320 кб/с] <Gothic Rock>
@@ -748,6 +719,35 @@ Diablo Swing Orchestra - Pacifisticuffs (2017) [MP3|320 Kbps] <Avant-Garde Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3796FC89D698FDA7367BFB1579FA315CA08228C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198513   (808287) от 11.01.2018
+
+Leaves' Eyes - Sign of the Dragonhead (2018) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sign of the Dragonhead 
+02. Across the Sea 
+03. Like a Mountain
+04. Jomsborg (   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50E36747EDF9FF68D8252C69666EA0023FA44F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

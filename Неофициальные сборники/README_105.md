@@ -1,3 +1,176 @@
+###  Публикация: 994284   (891552) от 07.03.2016
+
+VA - Blues Memories (2016) [MP3|128-320 кб/с] <Rock Blues, Retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891552.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rob Tognoni - Lost Our Blues In The City Of Rome
+002. B.J. Sharp - Never Felt No Blues
+003. Coco Montoya - Never Seen You Cry This Way Before
+004. H2O - Use Your Voice(   Читать дальше...   )Жанр: Rock Blues, RetroПродолжительность: 07:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA42630A22A93A61BDE4CBF114B34FACD4DED31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994381   (891534) от 07.03.2016
+
+VA - Acoustic Pop Covers (2016) [MP3|320 кб/с] <Pop, Acoustic, Covers>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Somebody That I Used to
+02. Alice Lamb - Use Somebody
+03. Meg Birch - Say You Love Me
+04. Thom Cooper - Next to Me(   Читать дальше...   )Жанр: Pop, Acoustic, CoversПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2A0BEBE7A09E33A656A7D3347519D303427CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994409   (891460) от 07.03.2016
+
+VA - 8 Марта. Праздничный хит-парад №1 (2016) [MP3|192 кб/с-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891460.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тимур Родригез - Я Верю В Твою Любовь.mp3
+002. Лобода - Революция (Radio Version).mp3
+003. Тамерлан и АленаЖанр: PopПродолжительность: 06:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31403D7DEE0D8A41FAA240477A5C3B0E39A5D82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994386   (891436) от 07.03.2016
+
+VA - Дискотека на 8 марта (2016) [MP3|256 кб/с-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891436.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Стас Михайлов- Ты только для меня (radio edit).mp3
+002.  МакSим- Я Буду Жить.mp3
+003.  Марсель feat Artik- Моя любовь.mp3
+004.  Макс Барских- Кровь-вода.mp3(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE47F599498E7D35D2B1309D34E4AFBDAAA05EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102312   (891417) от 09.02.2017
+
+VA - Beatport Trance Pack (09.02.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cold Blue & Johnny Yono - Fall Into Dusk (Original Mix)  6:49
+02.  Mark Van Gear - Mary My Lovely Pandita (Original Mix)  7:32
+03.  UDM - Tornado (Original Mix)  6:37
+04.  Oberon - Visions (Original Mix)  7:39(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 06:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434E0D71E3BA8121190D9135A6650939349F8D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994418   (891342) от 07.03.2016
+
+VA - Музыка для двоих (2016) [MP3|192-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kilye Minogue - Confide In Me
+02 Phill Collins - Another Day
+03 Iggi Pop - In The Death Car
+04 Sandra - Free Love(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD58C8A9B7DA529D1F5582219AF40D844258F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 638533   (891191) от 05.04.2013
 
 VA - Ibiza Lounge Classics Vol 2 (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -577,180 +750,6 @@ VA - Зимняя 100-ка хитовая выпуск № 5 (2017) [MP3|256 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:556947E4783B3DE0787350297D5FAD3406501046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102793   (889579) от 10.02.2017
-
-VA - Resident Advisor Top 50 Charted Tracks January (2017) [MP3|320 Kbps] <Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cubicolor - Dead End Thrills (Patrice Baumel Remix) 07:24
-02. Luca Bacchetti - Vento (Original Mix) 10:05
-03. Isolee - Pisco (Original Mix) 07:46
-04. DJ Koze - Driven (Original Mix) 06:40(   Читать дальше...   )Жанр: Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech HouseПродолжительность: 06:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F4AC362085B6B8549F90762311B28988959F51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102660   (889557) от 10.02.2017
-
-VA - Молодежный бум хитовый. Сборник № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889557.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Funpills - Страсти 3:23
-002. Восемь По Гринвичу - Родились Побеждать 3:37
-003. Ira Smith - Буду Выше 3:36
-004. Александр Гужов & Николай Зайцев - Волны 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8446BCB8B272031126BF4D0CA9E6DEA7865C8669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102664   (889466) от 10.02.2017
-
-VA - Я слушаю шансон. Зимние хиты. Версия № 5 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889466.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная Союза - Але Любимая Привет 4:28
-002. Сергей Сорокин - Здравствуйте 3:10
-003. Сергей Луневич - Прощание 5:06
-004. Рома Рязанский - Банька 3:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F38B10E4994CEA80952C2CA98A56DD75490DE56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102662   (889355) от 10.02.2017
-
-VA - На волне позитива. Русский сборник (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889355.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tiana - Телеграммы 3:33
-002. Герр Антон (Herr Anton) - Так Тому И Быть 3:33
-003. Натали Янковских - Ты Мой 3:34
-004. Sunsay Feat. Тося - Поезд 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79F89EE8C4E47B99BA828545A1F8999B3AA0267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102799   (889353) от 10.02.2017
-
-VA - Underwater The Shadow Of Life (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889353.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2Step - New Island (Alluna Remix) 05:01
-002. Tafubar - The Wicked Thoughts Of You (Lemongrass Snowflake Mix) 05:06
-003. Adrian Shepherd - Eronika (Original Mix) 04:31
-004. Oscar Stringz - Time For A Break 06:18(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47C82429D678126AF75DE080E58F255344E44A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102669   (889333) от 10.02.2017
-
-VA - The Best - In Music We Trust Vol.12 (2016) [MP3|320 Kbps] <House, Electro House, Hand Up, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andy Jay Powell - The Bankster (Calderone Inc Remix)  6:05
-02.  DJ Wajs - This Is How We Party (DNF & Vnalogic Remix)  4:57
-03.  Simon Lee & Alvin - Xcelerate (Extended Mix)  5:03
-04.  Borgeous - Wildfire (Original Mix)  5:00(   Читать дальше...   )Жанр: House, Electro House, Hand Up, Club, DanceПродолжительность: 07:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014CC3F0C19BC017AC74ABA749189E998054521B
 ```
 
 https://mybot314.ru/tekegram_catalog/

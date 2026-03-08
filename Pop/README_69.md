@@ -1,3 +1,61 @@
+###  Публикация: 1114770   (831765) от 15.03.2017
+
+VA - Acoustic Morning (To Wake Up Well in Your House!) (2017) [MP3|320 Kbps] <Dance, Bossa Nova, House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Beige - Nightgirl (05:35)
+02. Amana Melome - Encantada (04:47)
+03. Blade & Masquenada Family - Bahia Acustic (04:56)
+04. AdrianoMaria - Tokyo (05:15)(   Читать дальше...   )Жанр: Dance, Bossa Nova, HouseПродолжительность: 01:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228EF5A80EE661361F9FB0B800312628AE0FC614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380697   (831666) от 04.05.2020
+
+Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Crash My Car [0:03:53.70]
+02. Rich People [0:04:32.20]
+03. Empty Rooms [0:04:23.55]
+04. Eyes Of Africa [0:04:44.50](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE003B9FEFA4880DE95866970869273E540F6AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114768   (831557) от 12.10.2021
 
 Rockets - The Reissue Collection (1976 - 2021) [MP3|320 Kbps] <Electronic, Synth-pop, Space Rock, Disco, House>
@@ -685,64 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98190AEA3A1350630ADCAFAA3EB1B3226DEABA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502611   (826710) от 15.10.2021
-
-Gary Criss - Rio De Janeiro (2019) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rio De Janeiro (08:12)
-02 The Girl From Ipanema/Brazilian Nights (08:32)
-03 Amazon Queen (05:38)
-04 The Lady Is Latin (The Girl Is Bad) (03:58)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002635D5DB58E0481378A7F539FDBD1D5D94B6F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115666   (826646) от 18.03.2017
-
-Rockefeller - Song Of An Island (1981) LP [MP3|320 Kbps] <Europop, Pop Rock, Schlager, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Качественная немецкая поп-группа. Улавливаются нотки от известных мировых исполнителей.01. Song Of An Island (4:06)
-02. An Angel Comes From Heaven (3:42)
-03. It's A Long Way To Hawaii (4:01)
-04. Good Time For Lovers (3:48)(   Читать дальше...   )Жанр: Europop, Pop Rock, Schlager, DiscoПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261EEED3F7E4C2E6B4738A8FEA6CCBEEF87E75C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

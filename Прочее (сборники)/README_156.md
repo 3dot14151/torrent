@@ -1,3 +1,119 @@
+###  Публикация: 1630438   (199052) от 30.04.2023
+
+VA - В машине с музыкой Vol.332 (2023) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_199052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кристина Орбакайте - Алла Будет Петь (03:41)
+02. Jake Isaac Feat. & Jack Savoretti - When It Hurts (03:01)
+03. Laska - Не Отпускай Меня (03:14)
+04. Diplo Feat. & Sturgill Simpson & Dove Cameron - Use Me  (03:22)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEC633ADF4E55EA251ABF821466BA802E1351FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631159   (198971) от 04.05.2023
+
+VA - Music News vol.261 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_198971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Estiva feat. Jess Ball - Carnal Emotion (04:43)
+ 002. AIHAN - Тонкая Нить (03:25)
+ 003. Akera - Звёзды (02:31)
+ 004. Akha - Аиша (02:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5243DE3C3191AA68C1CA0E9AA7A58FEAFB0D528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630949   (198934) от 03.05.2023
+
+VA - Music News vol.260 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_198934.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. XYLO - Super Sex Mona Lisa (03:09)
+ 002. 4ETVERGOV - Детство (02:12)
+ 003. Addiction.sad - Останься Со Мной (03:06)
+ 004. A'DI - Фотки Шмотки (02:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712C78BF897A72967860FD77E7B3C786BA1F902E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637910   (197488) от 06.06.2023
+
+VA - Music News vol.269 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197488.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Елена Князева - Sex Втроём (Kiss Remix) (03:36)
+ 002. 2xA - Burj Khalifa (01:46)
+ 003. Alexandra Burke - Game Of Love (03:26)
+ 004. Alexandrjfk feat. DVORETSKOVA - In the End (04:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F0E5D3413250D1B1252A90174444B1460D9569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637798   (197482) от 06.06.2023
 
 VA - Dance Rising 3 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -628,122 +744,6 @@ VA - Anything and everything assorted part 8 (2025) [MP3|320 Kbps] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FCE753A8EDDAED00CAA0BE74BBF1E6FDFF14859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827776   (193287) от 23.10.2025
-
-VA - Anything and everything assorted part 7 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Besso - Pulse
-02 - Azimov - Long Night
-03 - Elno - More Time
-04 - Mr Salama - Touch Me(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40EA42E7A76A39CF1501904D0F2FF8309AADFA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827774   (193286) от 23.10.2025
-
-VA - Anything and everything assorted part 6 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Retrox - Whispers By the Shore
-02 - Dndm - Gray Night
-03 - Dova Music - Empty Heart
-04 - Umar Keyn - Like a Titanic(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93B5971232A0818E604E0FD91F9B0D835187D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827773   (193285) от 23.10.2025
-
-VA - Anything and everything assorted part 5 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Davvi - I Loved You Once
-02 - Dova Music - Dream Without End
-03 - Rodle - Lost You
-04 - Dova Music - Love Love(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CF5D69AF76754382E20F0CC8F33873F5C33708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827766   (193273) от 23.10.2025
-
-VA - Anything and everything assorted part 4 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, AI, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Umar Keyn - My Love From the Past
-02 - D-Beats - Don't Сry
-03 - Dova Music - Without You
-04 - Xezzo - I Miss You(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202E5AF84E477CD6A12D2CF482C81C46D8FFDB95
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1800432   (15746) от 03.06.2025
+
+ZZ Top - Live compilation (2025) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15746.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blue Jean Blues (Live) [04:09]
+002. Got Me Under Pressure (Live from New York) [04:18]
+003. I Thank You [03:14]
+004. Arrested For Driving While Blind (Live 1980 Broadcast Remastered) [05:13](   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 06:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7DF09787995E55FD0B6289B39B3C9A8C44DD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800643   (15659) от 04.06.2025
+
+Rainshow - Old and New Compilation (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You & Me
+02 - Just Try
+03 - Maria
+04 - Romantic(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A7CD0F09876DF0C8B7510F51936F0076332209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800734   (15565) от 05.06.2025
+
+VA - Music News For Forum vol.099 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. KANARA - Не вспоминая (02:34)
+ 002. 2109 - Загляни мне в душу (03:12)
+ 003. Aikair feat. VIBE KILLA & ПротаGонист & Некий Н. - Врубайся (02:55)
+ 004. Alan Walker - Me Myself and The Night (04:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE81DCE4482CE11B92AC800326304C2CF5536DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800809   (15487) от 06.06.2025
+
+VA - AFTERLIFE ANYMA The End of Genesys (2025) [MP3|320 Kbps] <Melodic House & Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolink, Tale Of Us - Swallow - Tale Of Us Remix (7:25)
+02. Tale Of Us - Nova (7:22)
+03. Fideles, CamelPhat, Be No Rain - Night After Night (CamelPhat Remix) (6:58)
+04. Ferdinand De Marne - Desire (6:24)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE3A9E479E29E3E41378AAD9F50FB8EEBBB1B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800959   (15365) от 07.06.2025
+
+VA - Music News For Forum vol.100 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15365.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Firaya - Cherchez la femme (02:07)
+ 002. 3puten - Жара (03:59)
+ 003. 3333 - ken (02:43)
+ 004. AIMALOV - У зеркала (01:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296725F0BE873195346DDE6CC7F49509C903A70D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801146   (15247) от 08.06.2025
+
+VA - Hypnotic Hologram (2025) [MP3|320 Kbps] <Psy, Goa, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Qdm - In Beams Of A Decline (00:10:13)
+002. 2Minds - Rise Lifter (00:07:22)
+003. X-Dream, Ariel Electron - The 1St (00:06:32)
+004. Omneon - Horizont (00:06:20)(   Читать дальше...   )Жанр: Psy, Goa, Trance, ElectroПродолжительность: 12:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C1228F2FEEA0D1AC0736D767337E8372CF9EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801144   (15235) от 08.06.2025
 
 VA - Organic Chill House (2025) [MP3|320 Kbps] <Deep, Chill, House>
@@ -571,180 +745,6 @@ VA - National Pop Dance Music Vol.111 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A21C02CFF6CB435FAEF0466E1FD3BD9417E3E992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803498   (13694) от 23.06.2025
-
-VA - Music News For Forum vol.103 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13694.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Emiley - Недоступна (02:17)
- 002. 4B - Be Together (03:12)
- 003. 2109 & Akrim - Приличная (02:34)
- 004. a.Ja - До завтра (02:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F7F7F65AF5EB0029C4971359C7C5AE9DAE3C940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803552   (13601) от 24.06.2025
-
-VA - Compilation Part 170 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A-Sultan - Neon Roller
-02 - Imazee - In Love
-03 - Azimov - Snow Sparks
-04 - A-Sultan - Cosmic Boogie(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3A3EB7C1A63B8A0F5B841DD9561F51035AEE94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803544   (13561) от 24.06.2025
-
-VA - Musical kaleidoscope part 44 Assorted (2025) [MP3|320 Kbps] <Electronic, Instrumental, Sax, Easy listening, Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sting,  Jk Sax - Shape of My Heart (Saxophone Remix)
-02 - Danekoo1 - Desire for Feelings
-03 - Dj Artur - Artist Life (Remastered)
-04 - Aurora Night - Conquering My Dreams(   Читать дальше...   )Жанр: Electronic, Instrumental, Sax, Easy listening, VocalПродолжительность: 00:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18582DAEC42EE1140E75FCE533B3B5A4F04A0CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803869   (13467) от 25.06.2025
-
-Pink Floyd - p·u·l·s·e (2025) Compilation [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc One:
-01. Shine On You Crazy Diamond
-02. Astronomy Domine
-03. What Do You Want From Me?(   Читать дальше...   )Жанр: RockПродолжительность: 02:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880FB3034D2F679311E026D0402AE29B00F45E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803901   (13354) от 26.06.2025
-
-VA - Contact 3: People & Machines (2025) [MP3|320 Kbps] <Minimal, Tech House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13354.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rebūke, Konstantin Sibold, ZAC, CARMEE - Along Came Polly (Konstantin Sibold, ZAC, CARMEE Remix) (5:05)
-002. Avoure - Aura (8:41)
-003. MEDUZA, Innellea, GENESI, Nu-La - Edge Of The World (2:53)
-004. MRAK, Aimée Sophia - Dune (4:49)(   Читать дальше...   )Жанр: Minimal, Tech House, OtherПродолжительность: 07:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8DA86A04FB7EF84CF1A6E7F1A3151BA49AE483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803929   (13348) от 26.06.2025
-
-VA - Music News For Forum vol.104 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13348.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gioli & Assia - You Don't Know My Name (04:06)
- 002. AGregor - Забытый свет (03:54)
- 003. Anabel & Blas Canto - Cuentame (Raconte-Moi) (03:09)
- 004. ANEYA - Придуманный остров (04:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D81B9C324165623413D40B256C5FB7F3F795B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

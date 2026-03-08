@@ -1,3 +1,61 @@
+###  Публикация: 1569830   (447104) от 15.08.2022
+
+VA - The Best Of Italo-Disco Vol. 8 (1987) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solo – Harem	5:36
+02. Linda Jo Rizzo – Heartflash (Tonight)	5:58
+03. Silver Pozzoli – Pretty Baby	5:58
+04. Mike Mareen – Agent Of Liberty	8:50(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2706F85D77DC620EF7C93917769864C43DF775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322590   (446566) от 30.08.2019
+
+Александр Ягья - Вспоминай меня (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446566.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вспоминай
+2. Отпусти меня
+3. Постой
+4. Меня не любила ты(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F113F89392AB0B2B31ECAFBC9AC9AAD79F3116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248130   (446511) от 18.09.2018
 
 Drezden - Drezden (2018) [MP3|320 Kbps] <Pop, Electronic>
@@ -683,64 +741,6 @@ Julio Iglesias - Mexico (2015) [FLAC|Lossless|WEB-DL]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:861F2DF667C5AC56F438D1692C26007C0212D2AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248666   (442386) от 20.09.2018
-
-The Spotnicks - Never Trust Robots (1978) LP [MP3|320 Kbps] <Electronic, Synth-Pop, Space Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Trust Robots (4:04)
-02. Amazing Stories (3:31)
-03. Close Discussions Of The Hird Kind (3:11)
-04. A World Of Spotnics (4:12)(   Читать дальше...   )Жанр: Electronic, Synth-Pop, Space RockПродолжительность: 00:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9AB4F22A5F217C028A2E650A8D4970861005B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322961   (442226) от 01.09.2019
-
-Raf - Raf (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change Your Mind (5:28)
-02. Why In The World (3:54)
-03. She's A Criminal (4:59)
-04. Imagination Lover (4:16)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5166258A9DB8FE05EFB6950BA8E069B9713020F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

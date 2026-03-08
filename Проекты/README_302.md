@@ -1,29 +1,3 @@
-###  Публикация: 1187577   (278354) от 29.11.2017
-
-Проекты - VideoHive - Christmas - 20940277 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas - это две версии (ночная и дневная) поздравительной Рождественской видео-открытки.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F9CC99D3571A47E145D386BC25F879C178E85B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082505   (278287) от 12.12.2016
 
 Проекты - Проект ProShow Producer - Stylized Christmas Pack [PSH]
@@ -668,6 +642,32 @@ Corporate Presentation - шаблон для бизнес-видео или де
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CDEA370F0CCA8663C9E74CB8454EC4E5F94FB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082520   (276731) от 13.12.2016
+
+Проекты - VideoHive - Christmas - Slideshow - 18944613 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания Рождественского слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D984A836DBD38A717A8926C000E5EFBDFA8DD16
 ```
 
 https://mybot314.ru/tekegram_catalog/

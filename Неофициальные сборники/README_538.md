@@ -1,3 +1,177 @@
+###  Публикация: 1191010   (265764) от 11.12.2017
+
+VA - Heavy Metal Collections Vol. 4 (6CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265764.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. King Diamond - At the Graves (1989) (8:58)
+02. Innerwish - Spacerunner (1998) (4:31)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 07:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46DEB293AF28435FF365F821FD3D9B6107FB231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190974   (265608) от 11.12.2017
+
+VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House и Trance от LORDEGRAF vol. 13 (2017) [MP3|320 Kbps] <Electro, Deep, Techno, House, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Adam Lambert - Ghost Town (RAFO Remix) [4:52]
+02.	Awolnation - Run (Highsociety Remix) [4:00]
+03.	Bebe Rexha feat. Lil Wayne - The Way I Are (Dance With Somebody) [3:08]
+04.	Bengro - Basskiller [4:02](   Читать дальше...   )Жанр: Electro, Deep, Techno, House, TranceПродолжительность: 06:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88793FAC8FDFA21354E8B58F553294270B1A4FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 207643   (265566) от 07.12.2018
+
+VA - Relax Max Vol.1 (2010) [MP3|320 kbps]<Chillout,Relax>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Androcell - Vital Signs
+02. Anro - Tranquilo
+03. Applescal - The Curle In Me (Original Mix)
+04. Atrium Sun - Abyss (Elfsong's Deep In The Abyss Mix)(   Читать дальше...   )Жанр: Chillout,RelaxПродолжительность: 04:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1734C9316012ADA0075E93F0178462B887C24E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267537   (265461) от 07.12.2018
+
+VA - Club Dance Ambience Vol.168 (2018) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265461.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Mytton - Sugar (Original Mix)
+002. Alyssa Salt - Не отпускает (DJ ANDREY NASH Remix)
+003. Bad Boys Blue - Mon Amie  (KaktuZ Remix)
+004. Black Blood & Crazibiza - Tokoriki (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B9D89309DA88EBB49FFE2D0F04E80FFFD64D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339496   (265346) от 20.11.2019
+
+VA - Different Space: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265346.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shock Therapy - Paradise Moments
+002. Monod - Forbidden Dreams
+003. Mirage, Mental Flow - Subliminal Message
+004. Ital - Strange Light(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED018D6957AF8713D4EE12571DC102F95D4A288C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339562   (265345) от 20.11.2019
+
+VA - Night In The Jungle (2019) [MP3|320 Kbps] <Jungle, D&B>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265345.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sainmusic - Inner Peace
+002. Jonaro - Eternity (Original Mix)
+003. Satoru - Istanbul
+004. Bioglard - Modification (Original Mix)(   Читать дальше...   )Жанр: Jungle, D&BПродолжительность: 07:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0596D7709FC3FF816B9E9F376211BD703010705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191219   (265227) от 12.12.2017
 
 VA - Unknown 00's (2017) [MP3|320 Kbps] <Alternative Rock, Modern Pop Rock, Synthpop>
@@ -570,180 +744,6 @@ VA - Need For Speed Vol.11 (2017) [MP3|320 Kbps] <Hands Up, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81BFF9EF5944380FE7F8AC4B0BA2E3AA91EDE36B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191133   (264107) от 14.12.2017
-
-VA - Lady In Rock Music (2017) [MP3|320 Kbps] <Rock, Melodic Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Halestorm - I Miss The Misery
-02. Guano Apes - Close to the Sun
-03. The Pretty Reckless - Just Tonight
-04. Amaranthe - Maximize(   Читать дальше...   )Жанр: Rock, Melodic Progressive RockПродолжительность: 04:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16D1D79484E8AB414672CF524971F5917A4F50F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340249   (264013) от 23.11.2019
-
-VA - The Official UK Top 40 Singles Chart 22.11.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey
-02. Dua Lipa - Don't Start Now
-03. Billie Eilish - everything i wanted
-04. Regard - Ride It(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492654E5231A92EE38F261445254FB19EA06E598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340180   (263985) от 23.11.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 22.11.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SAINt JHN - Roses (Imanbek Remix) 2:56
-02. Slider & Magnit - Morze 3:11
-03. Tones And I - Dance Monkey 3:30
-04. RSAC - NBA (Rompasso Remix) 2:54(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A153410E02C76969FB446076F8A182B99DC7083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191831   (263891) от 15.12.2017
-
-VA - Retro House (2017) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clive Cooper - Alive
-02. Stretch 'n' Vern - I'm Alive
-03. Bassheads - Is There Anybody Out There
-04. Rob Hayes - Shake Me(   Читать дальше...   )Жанр: HouseПродолжительность: 03:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D4A7A5E8D43A25D016014889E8F25E4526EDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191822   (263885) от 15.12.2017
-
-VA - Just One Touch: 130 Lounge Time (2017) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263885.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Grow - Solido
-002. Koda - Mikis
-003. Kusuma Orchestra - Your Body
-004. Newton - Just One Touch(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 11:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9155B1F5D5A5AE5EE4253A30710DA7DFE75398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191733   (263853) от 15.12.2017
-
-VA - Children Of The Sea: Pacific Chill Area (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263853.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Randy Seidman, Rogerio Jardim - Come Back To Me
-002. Seven24, Soty & Kiwi - One Moment (Part Three)
-003. Massivan & Bea Luna - That Day (Olson Dreamer Remix)
-004. Alexander Volosnikov - Chained To Habits (Original Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4F96FD4C7FD8F5D92D7FDA406BD9DACFF59E62
 ```
 
 https://mybot314.ru/tekegram_catalog/

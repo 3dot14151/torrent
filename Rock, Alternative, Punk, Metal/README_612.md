@@ -1,32 +1,3 @@
-###  Публикация: 1061047   (450787) от 09.10.2016
-
-Alter Bridge - The Last Hero (2016) Best Buy Edition [MP3|320 Kbps] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me a Leader
-02. The Writing On the Wall
-03. The Other Side
-04. My Champion(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 01:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9BE8FBFF1C13AC592D6195DCD281887F4A4B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061176   (450786) от 09.10.2016
 
 Molly Hatchet - Original Album Classics (2010) 5CD Box Set [FLAC|Lossless|image + .cue] <Southern Rock, Boogie Rock, Hard Rock, Jam Rock>
@@ -755,6 +726,35 @@ Conan & Deadsmoke - DOOM SESSIONS VOL​.​1 (2020) Split Album [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E94225D69C3729BEF20F5D4BBB8D8352E06FB87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409159   (449337) от 15.09.2020
+
+Downer Inc. (Kellin Quinn ft. Sleeping With Sirens) - Whatever This Is (2020) EP [MP3|320 Kbps] <Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449337.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ground Zero [00:03:48]
+2. Generation Z [00:03:40]
+3. Work of Art [00:03:53]
+4. Letdown [00:04:24](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DC55CB1BB5DD61689354808322004B1894D6D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

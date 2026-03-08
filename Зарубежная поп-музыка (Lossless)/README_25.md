@@ -1,3 +1,32 @@
+###  Публикация: 1201468   (792699) от 24.01.2018
+
+VA - 2018 Grammy Nominees (2018) [FLAC|Lossless|tracks] <Pop, Hip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792699.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом году вручать Grammy будут в воскресенье, 28 января, в 19:30 вечера (по местному времени) и не в Лос-Анджелесе. Впервые за 15 лет самая большая ночь музыки возвращается в Нью-Йорк  в Мэдисон-Сквер-Гарден. Но как всегда за несколько дней до этого звездного часа музыки выпускается диск с основными номинантами. Обычно награждение Grammy происходит в середине февраля, (   Читать дальше...   )01. Bruno Mars - 24K Magic  (3:46)
+02. Kelly Clarkson - Love So Soft  (2:52)
+03. Luis Fonsi & Daddy Yankee - Despacito (Feat. Justin Bieber) (Remix)  (3:50)
+04. Kendrick Lamar - Humble  (2:58)(   Читать дальше...   )Жанр: Pop, Hip HopПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA517C035B706A6FBDBCE67F6A1E8DABBB8D1FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387010   (792640) от 31.05.2020
 
 Пара Нормальных - Скандал во время рекламы (2010) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -717,35 +746,6 @@ Eloy de Jong - Kopf aus - Herz an (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CE82385EF2B4F8A8C2E77546651D4DF05F0457E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276909   (787019) от 19.01.2019
-
-VA - Dreamlover vol.1 (1994) [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Adams - Please Forgive Me
-02. Mariah Carey - Without You
-03. Michael Bolton - Said I Love You ... But I Lied
-04. Roxette - Almoust Unreal(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7566DB9ACDD176A03D3FC8CF24EBC40A167F024
 ```
 
 https://mybot314.ru/tekegram_catalog/

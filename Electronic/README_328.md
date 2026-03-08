@@ -1,3 +1,61 @@
+###  Публикация: 950022   (372572) от 25.10.2015
+
+Сикрет Сервис (Secret Service) - Когда Наступает Ночь (When The Night Closes In) (1986) Vinyl LP [MP3|320 кб/с]<Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночной город (03:34)
+02. Давайте ещё потанцуем (04:24)
+03. Наша песня (03:29)
+04. Ты помнишь (03:25)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2917B22CFBF8D1CF427243A5BC82B70A08F21DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327635   (372568) от 26.09.2019
+
+Ahmed Romel - RUYA (2019) [FLAC|Lossless|WEB|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahmed Romel - Be My Eyes (Original Mix) (3:39)
+02. Ahmed Romel - Dystopia (Original Mix) (5:13)
+03. Ahmed Romel - Vanya (Original Mix) (3:54)
+04. Ahmed Romel & Simon O'Shine - The Love Potion (Original Mix) (4:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D168592DD1831A2209D749F535F3236BD12AC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327713   (372565) от 26.09.2019
 
 VA - FSOE Ibiza Closing Party (2019) [MP3|320 Kbps] <Trance>
@@ -686,64 +744,6 @@ Nero - Between II Worlds (2015) [FLAC|tracks+.cue]<Dubstep, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C39B7E26406699CA4055A252AD2FB818A948F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327939   (369494) от 27.09.2019
-
-Schiller - Morgenstund (2019) Super Deluxe Edition [FLAC|Lossless|tracks + .cue] <Ambient , Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schiller - Willkommen (0:37)
-02. Schiller - Harmonia (5:46)
-03. Schiller & Tricia McTeague - Universe (7:22)
-04. Schiller & Jhyve - Dreamcatcher (4:07)(   Читать дальше...   )Жанр: Ambient , DowntempoПродолжительность: 02:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83077FA5CD628BC0505297475E9A31E5CC0F623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069716   (369370) от 06.11.2016
-
-VA - Deep Ambient & Chillout Dream (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sad radio on Cassini - Stars Shine Threw the Overcast Sky (4:01)
-02. Seven24 - Fable (3:25)
-03. Zetandel - Sweet Moments (4:47)
-04. Synthetic Impulse - Solitude and the Moonlight (5:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7070BEE834E9226B25F4D678DC4899E78DE2210C
 ```
 
 https://mybot314.ru/tekegram_catalog/

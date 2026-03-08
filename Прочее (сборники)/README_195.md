@@ -1,3 +1,119 @@
+###  Публикация: 1818864   (1301) от 23.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [a001] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1301.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A R I Z O N A - Summer Days.mp3
+002. A&G, Northmark feat. Gabri - Run With Me (Radio Edit).mp3
+003. A. Lee - Gotta Let Go (Dub Mix).mp3
+004. A. Rassevich - Come One Way (Original Mix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD6A633F06A0E897C78D63F47E21387D6AAB539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819676   (1163) от 24.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [a002] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1163.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aelyn - Believe In Us (Radio mix).mp3
+002. Aelyn - Hypnosis.mp3
+003. Aerobatics & Cotry - Intuition (Feat. Cotry) (Original Mix).mp3
+004. Aeron Aether & Bobalino - Titans  feat. Jay Furze (Album Mix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D34D6CCBACC5131F4A8C9ACC52A91CAF2E4EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819642   (1157) от 24.09.2025
+
+Зоя Ященко и Белая Гвардия - Premium Playlist (1993-2020) [MP3|320 Kbps] <Sentimental Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1157.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. А в лесу сосновом... (Когда ты вернёшься, 2002).mp3
+002. Абсолютная ночь (Другие острова, 2001).mp3
+003. Айседора Дункан (Так восходит луна, 2013).mp3
+004. Алый парус (Кукла в кармане, 2005).mp3(   Читать дальше...   )Жанр: Sentimental RockПродолжительность: 08:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0EE3E96B703B2C04FC7D1176EEF13506E7E26D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819877   (1033) от 25.09.2025
+
+VA - Gym Hits (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loofy, Anyma, Layton Giordani - Last Night - Anyma x Layton Giordani Remix (5:14)
+02. Steve Angello, Modern Tales - Darkness In Me (4:28)
+03. Adam Beyer, Chris Avantgarde - Desolate Lands (4:18)
+04. Swedish House Mafia - Ray Of Solar (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767861FE70C20269B3B2125309553DA1B2A8C512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820003   (768) от 26.09.2025
 
 VA - Anything and everything assorted part 2 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal, Other>

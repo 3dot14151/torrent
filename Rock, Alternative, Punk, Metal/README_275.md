@@ -1,32 +1,3 @@
-###  Публикация: 1505488   (802628) от 28.10.2021
-
-Jeff Kelly - When the World Was Younger (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie-Rock, Psychedelic-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Of Missingness (Remastered) (00:03:13)
-02 - Black Eyes (00:02:55)
-03 - Juliana Of The One-Man-Scanner Station (Remastered) (00:02:55)
-04 - Autumn in Lisbon (00:03:19)(   Читать дальше...   )Жанр: Indie-Rock, Psychedelic-RockПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0DAA40E08738C932B2E294FD98EEA130DF12C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505084   (802621) от 28.10.2021
 
 Pink Floyd - Relics (1971) Remastered Version, 1996 [FLAC|24/192|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -743,6 +714,35 @@ Heretoir - The Circle (2017) [MP3|320 Kbps] <Post-Black Metal, Depressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:997889230F3F9BCF0EA976D2BEEB46F12A47EAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120383   (801921) от 31.03.2017
+
+Starset - Vessels (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Symphonic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Starset - американская рок группа, из Колумбуса, штата Огайо, играющая в стилях альтернативного, электронного и симфонического рока. Группа была образованна в 2013 году вокалистом группы Downplay. В этом же году они выпустили 2 сингла Carnivore и My Demons. Трек пользовался большой популярностью, песня забралась на 5 строчку в "Mainstream Rock" чарте, и (   Читать дальше...   )01. The Order (1:08)
+02. Satellite (3:59)
+03. Frequency (4:41)
+04. Die For You (5:17)(   Читать дальше...   )Жанр: Alternative Rock, Symphonic Rock, Hard RockПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD50BC73E42A74D498B58EC9E6124AC13A7644A
 ```
 
 https://mybot314.ru/tekegram_catalog/

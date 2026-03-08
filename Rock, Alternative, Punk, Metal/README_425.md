@@ -1,32 +1,3 @@
-###  Публикация: 1540858   (648656) от 01.04.2022
-
-Trick Or Treat - Creepy Symphonies (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trick or Treat (1:07)
-02. Creepy Symphony (4:39)
-03. Have a Nice Judgment Day (4:32)
-04. Crazy (4:17)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A11BDB830027CB3E3AFCC58A1394A5DCE68AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540871   (648654) от 01.04.2022
 
 Pattern-Seeking Animals - Only Passing Through (2022) Bonus Track Edition [FLAC 2.0|96/24|WEB-DL|tracks] <Progressive Rock>
@@ -756,6 +727,41 @@ Secrets Of The Sky - Pathway (2015) [MP3|320 кб/с]<Post-Metal, Doom Metal, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98C3D9AA587D886322C00831CF708035C706D52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517153   (647931) от 01.07.2012
+
+The Forsaken - Beyond Redemption (2012) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647931.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beyond Redemption (3:22)
+2. Only Hell Remains (4:27)
+3. Foul Messianic Grace (4:17)
+4. No Dawn Awaits (3:50)
+5. There Is No God (3:29)
+6. As We Burn (4:24)
+7. Reap As We Have Sown (4:08)
+8. The Light Divine (4:42)
+9. Force Fed Repentance (3:52)
+10. Blessed With Wrath (4:12)Жанр: Melodic Death MetalПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34B2EC83DB2F19E5E03EB31730A17327B7F6CAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

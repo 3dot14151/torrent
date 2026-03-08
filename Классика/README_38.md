@@ -1,3 +1,32 @@
+###  Публикация: 954701   (339830) от 08.11.2015
+
+Mozart - Piano Concertos nos.17 & 20 (Leif Ove Andsnes & Norwegian Chamber Orchestra) (2008) [FLAC|image +.cue]<Classical, Concerto, Classical Period>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 17 in G major, K. 453
+01. Allegro (cad. Mozart) (11:34)
+02. Andante (cad. Mozart) (09:20)
+03. Allegretto (07:19)(   Читать дальше...   )Жанр: Classical, Concerto, Classical PeriodПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB8D9C9B56CF1161B0E842A4FAF44806AE2E8769
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954422   (339829) от 08.11.2015
 
 Tchaikovsky - Symphonies Nos. 4, 5 & 6 (Pierre Monteux & Boston Symphony Orchestra) (2010) [FLAC|image +.cue]<Classical. Romantic Period, Symphony>
@@ -709,35 +738,6 @@ Impromptus (4) for piano, D. 899 (Op. 90)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95D2E77BBCDAD398109008801287A6A88E6C25AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957540   (326592) от 18.11.2015
-
-Chopin - Horowitz Plays Chopin (Vladimir Horowitz) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Dance, Fantasy, Waltz, Etude, Polonaise, Ballade, Barcarolle>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata No. 2 in B flat minor, Op. 35, CT. 202
-01. Grave - Doppio movimento (05:27)
-02. Scherzo (06:51)
-03. Marche funbre. Lento (07:47)(   Читать дальше...   )Жанр: Classical, Romantic Period, Dance, Fantasy, Waltz, Etude, Polonaise, Ballade, BarcarolleПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D2989DE7F3B22D92818571CE29915A33705067
 ```
 
 https://mybot314.ru/tekegram_catalog/

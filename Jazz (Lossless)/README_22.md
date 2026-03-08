@@ -1,3 +1,32 @@
+###  Публикация: 1355131   (984985) от 25.01.2020
+
+Gerry Mulligan & Thelonious Monk - Mulligan Meets Monk 1957 (2018) Poll Winners Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Round Midnight [8:30]
+02. Rhythm-A-Ning [5:22]
+03. Sweet and Lovely [7:19]
+04. Decidedly [5:55](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD91891B75AEB33388D60BB4B74C9B2C2588609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355086   (984977) от 25.01.2020
 
 Vainoras and the altar of the drill - Life,Love,Doomjazz. (2019) [FLAC|Lossless|Web-DL|tracks] <Jazz, Dark Ambient, Doom Jazz>
@@ -720,41 +749,6 @@ V.A. - Jazz And Floyd (2013) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAF0E660AF38BED936DD4D479DA09FBA0408D156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613377   (981677) от 05.02.2013
-
-Various Artists - The Art Of The Ballad (The Best of Mapleshade) (1999) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Murray, Bobby Battle Quartet - Ballad For Frederick
-02. Andy McKee & NEXT - In A Perfect World
-03. Jack Walrath & Larry Willis - Bess, You Is My Woman
-04. Norris Turney Quartet - Come Sunday
-05. Rebecca Kane Sextet - Outside Michael's Window
-06. Warren Smith, Stanley Cowell  - Descent Into Kangnung
-07. King Bluiett Trio - These Foolish Things
-08. Chris Anderson - Send In The Clowns
-09. C.I. Williams Quintet - I'll Close My Eyes
-10. Frank Kimbrough Trio - Lonely In London(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

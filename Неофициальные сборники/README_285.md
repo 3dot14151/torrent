@@ -1,3 +1,177 @@
+###  Публикация: 903341   (659057) от 30.05.2015
+
+VA - USA Hot Top 40 Singles Chart 6 June (2015) [MP3|~245 кб/с (V0)]<Dancehall, Trap, Alternative, Electro-R&B, Electropop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift Feat. Kendrick Lamar - Bad Blood
+02. Wiz Khalifa Feat. Charlie Puth - See You Again
+03. Fetty Wap - Trap Queen
+04. Walk The Moon - Shut Up + Dance(   Читать дальше...   )Жанр: Dancehall, Trap, Alternative, Electro-R&B, ElectropopПродолжительность: 02:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE0A70F8C3D204DB5E9311E9379AB0C441061254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539223   (659042) от 24.03.2022
+
+VA - Morning Chill & Relax (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto, Stevie Appleton - BLUE (2:48)
+02. Deepend, YouNotUs, Martin Gallop - Woke up in Bangkok (2:49)
+03. Jubel, NEIMY - Dancing in the Moonlight (2:44)
+04. Tobias Bergson, Michael Shynes - Sunset Wave (2:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DACD352D49C01BEDA15D8CC93FF4EA581108820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903356   (658950) от 30.05.2015
+
+VA - Тузы козырные Блатной суперсборник (2015) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658950.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сборная союза - Так было и будет
+002. Вадим Васильев - Тузы Козырные
+003. Дмитрий Сулей - Колыма
+004. Елена Хмель - Мой мужчина(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283F66BFD6F3A3BF0CACBAF4C64AD769EA94E324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903288   (658788) от 30.05.2015
+
+VA - Популярная хитовая сотка (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658788.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jennifer Lopez Feat. Iggy Azalea & Pitbull - Booty (Bali Bandits Remix) (05:07)
+002. Belka - Я Пришла (03:53)
+003. Afrojack, Martin Garrix - Turn Up The Speakers (04:03)
+004. Shami - Восток (04:00)(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9C711BC2D630A18C23964CC889F6F9A1E6DFEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139557   (658784) от 03.06.2017
+
+VA - Top 100 Зайцев.Нет Май (2017) [MP3|192-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658784.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Аполлинария - Плохая девочка (Filatov & Karas Remix) 3:15
+002.  Егор Крид - Папина дочка 2:41
+003.  Burito - По волнам 3:19
+004.  Альбина - Не со мной 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F483370D5F45FFE61D3424B601E60CB908E60B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139600   (658544) от 03.06.2017
+
+VA - Дискотека забытых хитов #2 (2017) [MP3|320 Kbps] <Europop, Italo Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658544.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  East 17 - It's Alright 4:41
+002.  Dr. Alban - Sing Hallelujah! 4:03
+003.  Scatman John - Scatman (Ski-Ba-Bop-Ba-Dop-Bop) 3:31
+004.  No Mercy - Where Do You Go 4:33(   Читать дальше...   )Жанр: Europop, Italo Disco, EurodanceПродолжительность: 07:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3FBB50EF3D9214FB8A10682D326EE5F70D0490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903000   (658431) от 30.05.2015
 
 VA - Top 100 Русский Рэп от Зайцев.Нет (2015) [MP3|256 кб/с]<Rap>
@@ -613,186 +787,6 @@ VA - Tropical Serenity: 100 Relaxing Sounds (2017) [MP3|320 Kbps] <Downtempo, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBDEF2AE3FD039CF6D6E7B267F5909C7ACB3C3F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225901   (657755) от 18.05.2018
-
-VA - 150 Sport Dance Music (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657755.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker - Faded
-002. Calvin Harris feat. Pharrell Williams, Katy Perry & Big Sean - Feels
-003. Shawn Mendes - Stitches
-004. The Chainsmokers feat. Daya - Don't Let Me Down(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E317303FF51EBC793E9BDAD71B153CE67A2AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225852   (657751) от 18.05.2018
-
-VA - NRJ Latino Hits Only! 2018 Vol.2 (2018) [MP3|320 Kbps] <Pop, Latin Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657751.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Sean Paul - Mad Love
-02. El Profesor - Bella ciao (HUGEL Remix)
-03. Lartiste - Mafiosa (feat. Caroliina)(   Читать дальше...   )Жанр: Pop, Latin DanceПродолжительность: 02:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1637C2DF62454C7BA03D67FFBC925702D98A6771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139579   (657609) от 04.06.2017
-
-VA - The best hits 80-90 (2017) [MP3|320 Kbps] <Eurodance, Pop, Dance, Rap, Hip-hop, House, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriano Celentano - L'ora Del Rock (02:22)
-02. Haddaway - Let`s Do It Now (02:31)
-03. Yello - The Race (Elena Usman & PRADY Remix) (02:32)
-04. UB 40 & Chrissie Hynde - I Got You Babe (02:52)(   Читать дальше...   )Жанр: Eurodance, Pop, Dance, Rap, Hip-hop, House, ClubПродолжительность: 14:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C09E037064435D8955E0A9B15FB0CC636E7DB38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225912   (657551) от 18.05.2018
-
-VA - Дискотека Популярных Хитов (2018) [MP3|320 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сати Казанова - Спасибо Тебе (Акустика)
-002. HammAli & Navai - Ноты
-003. Ирина Билык - А мне бы в небо
-004. Алёна Апина - Девушка Бонда(   Читать дальше...   )Жанр: ПопПродолжительность: 05:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2AF484A26F40D7F11CB59445BA5552AECAECECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539560   (657205) от 26.03.2022
-
-VA - Dawn Of The Replicant: Synthwave Electronic (2022) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам по вкусу качественная синтетическая электронная музыка, которая будет радовать в любой жизненной ситуации, то лучше что можем, это порекомендовать Вам новый тематический микс с наименованием "Dawn Of The Replicant". Мелодии альбома звучат чрезвычайно современно, хотя нет, нет но и прослеживается в композициях дух Retrowave, в связи с чем он может (   Читать дальше...   )001. Tragic Comedy - Autobahn
-002. Wholf B - Backside
-003. Teslasonic - Obsex
-004. Aiboforcen - Numbers(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectronicПродолжительность: 11:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA469CEEC946D1877853A4698701304BA591837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515144   (657179) от 25.06.2012
-
-VA - Зарубежные Новинки Vol.60 (2012) [MP3|320 kbps]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Usher - Lessons For The Lover
-02. Chris Brown - Calypso
-03. Wynter Gordon - Stimela
-04. Brainstorm - Butterfly In A Bottle
-05. Timbaland feat. Ne-Yo - Hands In The Air
-06. Alex C. - Love In The Morning (My Sex.O.S.) (Radio Edit)
-07. DollFace - Young & Beautiful
-08. Justin Bieber - Catching Feelings
-09. Toni Tonini feat. Jean Niqo, D-Vibe & Vali - Elements Of Love (Radio Edit)
-10. Mustafa Sandal - Yok Oyle Bi Dunya(   Читать дальше...   )Жанр: PopПродолжительность: 02:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF16BCF40C17B7F7D0D098F0CF4B36E177644857
 ```
 
 https://mybot314.ru/tekegram_catalog/

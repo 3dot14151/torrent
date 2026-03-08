@@ -1,32 +1,3 @@
-###  Публикация: 1457901   (1024070) от 28.03.2021
-
-Silent Winter - Empire of Sins (2021) [MP3|320 Kbps] <Power, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gates of Fire [00:05:07]
-02 - Wings of Destiny [00:04:13]
-03 - Shout [00:04:33]
-04 - Mirror [00:05:09](   Читать дальше...   )Жанр: Power, Progressive MetalПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA6D634C24E52C6047C9BA4ADF7214ED0194B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458144   (1024042) от 28.03.2021
 
 Gaelle Buswel - Your Journey (2021) [MP3|320 Kbps] <Blues Rock>
@@ -745,6 +716,35 @@ OzzyCash - OzzyCash (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661E485EF326E0BF97E97569AFC79E523BE8E02E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458936   (1023521) от 31.03.2021
+
+Thunder - All The Right Noises (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last One Out Turn Off The Lights (4:15)
+02. Destruction (5:02)
+03. The Smoking Gun (4:49)
+04. Going To Sin City (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20C9C3979DD0B7BBF2C8AB3A615DF5E6884C1CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

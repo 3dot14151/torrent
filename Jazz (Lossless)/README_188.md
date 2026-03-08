@@ -1,3 +1,32 @@
+###  Публикация: 1572296   (423678) от 26.08.2022
+
+Gerry Mulligan - The Art Of Gerry Mulligan: The Final Recordings (2000) Telarc [FLAC|Lossless|tracks + .cue] <Cool, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paraiso [5:36]
+02. Dragonfly [6:19]
+03. Dream a Little Dream [3:52]
+04. Wave [4:31](   Читать дальше...   )Жанр: Cool, Latin JazzПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D369543395CFEFCE0FE7DD39873F4908F508462A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324627   (423218) от 10.09.2019
 
 Fred Hersch Trio - Live In Europe (2018) Palmetto Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -728,35 +757,6 @@ Larry Coryell, Badi Assad, John Abercrombie - Three Guitars (2003) [FLAC|Lossles
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065465   (419640) от 23.10.2016
-
-Os 3 Morais - Os 3 Morais -1971 (2015 Japan Edition), [FLAC|Lossless|tracks + .cue] <Bossa Nova, MPB>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Se Quiser Valer (2:21)
-02. Odeon (3:07)
-03. Tao Preso Pelo Teu Olhar (2:55)
-04. Sambachiana (2:10)(   Читать дальше...   )Жанр: Bossa Nova, MPBПродолжительность: 00:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640B2A00332C3DAEE3DB8EFDEB66FBD11D7F808C
 ```
 
 https://mybot314.ru/tekegram_catalog/

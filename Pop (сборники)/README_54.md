@@ -1,3 +1,32 @@
+###  Публикация: 1032183   (647891) от 06.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 68 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy - Bolero ( Hold Me In Your Arms Again 1986 )
+02. Scooter - Let Me Be Your Valentine ( 1996 )
+03. Eurythmics - The First Cut ( 1984 )
+04. Baby's Gang - Happy Song ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B733B3B16BF899D5E851680682E58B159D4C162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032169   (647775) от 06.07.2016
 
 VA - Зарубежная Дискотека ХХ Века - 61 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -734,41 +763,6 @@ VA - Попсовый Драйв Летний (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8762031193D9C7011F4D9DEB4D31D4EA9AA5F2E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517886   (645706) от 02.07.2012
-
-VA - Горячая Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645706.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oksi - Раскали Меня (3:11)
-2. T - Killah Feat. Виктория Дайнеко - Mirror Mirror (3:26)
-3. Глюкоза - Кошка (3:23)
-4. Лада Дэнс - Эгоист (3:00)
-5. Неангелы - Прощай (3:45)
-6. Макс Барских - Dance (3:20)
-7. Nikita - 2012 (Dj Sergey Fisun Remix) (2:52)
-8. Карина Кокс - Летать Высоко (Via Sirius Dj Meg Club Mix) (6:31)
-9. Snoop Dogg - Sweat (David Guetta Remix) (3:14)
-10. Mmdance - Мой Босс (3:09)Жанр: PopПродолжительность: 06:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBE79549129E34B3BBE6AA98EE6A7F7D7322493
 ```
 
 https://mybot314.ru/tekegram_catalog/

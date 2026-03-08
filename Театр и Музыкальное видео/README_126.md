@@ -1,3 +1,32 @@
+###  Публикация: 1680601   (133674) от 30.11.2023
+
+Original ENIGMA Voices LIVE 2023 (2023) CamRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любительская Multicam-запись нового концертного тура  группы «Original ΣNIGMA Voices», организованного тремя вокалистами, которые помогали Мишелю Крету в создании этой культовой музыки. Ямайский музыкант Эндрю Дональдс, немецкий исполнитель Angel X и латвийская певица Fox Lima продолжают втроём гастролировать с живыми версиями песен ENIGMA.1 Intro
+2 Gravity Of Love
+3 The Rivers Of Belief
+4 Beyond The Invisible(   Читать дальше...   )Жанр: New Age, Worldbeat, Chill-outПродолжительность: 01:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B5F7EB010B8399804D080DFE7FB9BD316FB18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680470   (133649) от 30.11.2023
 
 Старые Песни о Главном: Постскриптум (2000) DVDRip [H.265/1080p] [10-bit] [Hand made upscale AI]
@@ -698,35 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:521B7A3DD3FEE025D7CB2E47554C6210A27F81BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823575   (125845) от 11.10.2025
-
-Scooter - Live in Hamburg (2012) WEBRip [H.264/1080p] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт прошёл 22 марта в рамках тура "The big mash up tour 2012" в концертном зале "02 World".01. Intro (The big mash up tour '12)
-02. Faster Harder Scooter / Ramp! (The logical song)
-03. Sugary dip
-04. The only one(   Читать дальше...   )Производство: Германия, ABC EntertaimentЖанр: Techno, Happy Hardcore, JumpstyleРежиссер: Jens TheleАктеры: H.P. Baxxter, Rick J. Jordan, Michael SimonПродолжительность: 02:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBE758BA43907011C6EE7612EA2A15FC7F4FBC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

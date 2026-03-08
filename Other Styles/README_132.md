@@ -1,3 +1,32 @@
+###  Публикация: 1332832   (308806) от 22.10.2019
+
+Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarah Schachner - Modern Warfare Main Theme (03:26)
+02. Sarah Schachner - Piccadilly Circus (05:16)
+03. Sarah Schachner - Going Dark (03:23)
+04. Sarah Schachner - Highway (06:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D417652B9660B10B1C04C8A3DEE412FB0549DBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077151   (308625) от 27.11.2016
 
 Delerium - Mythologie (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
@@ -722,35 +751,6 @@ Theodor Bastard - Pathologic 2 OST (2019) [FLAC|Lossless|tracks] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A9BC3AFF8F525B5D468A22EEC10839E46DA988E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422800   (304158) от 11.11.2020
-
-VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John - Step Into Christmas (4:32)
-02. Bob Seger - Little Drummer Boy - Remastered (3:32)
-03. Frank Sinatra - Have Yourself A Merry Little Christmas - Remastered (3:26)
-04. Bobby Helms - Jingle Bell Rock - Single Version (2:11)(   Читать дальше...   )Жанр: Christmas MusicПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547C7AEBA2ACC62F7A00D17EEABD9D4E00845626
 ```
 
 https://mybot314.ru/tekegram_catalog/

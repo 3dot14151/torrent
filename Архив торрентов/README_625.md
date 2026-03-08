@@ -1,3 +1,38 @@
+###  Публикация: 289824   (915457) от 02.02.2011
+
+Krafty Kuts - Back To Mine (2008) [MP3|320 kbps]<Breaks, Electro, Synth-pop, Jazz-Funk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915457.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sharpshooters - Pork Pie Stride (3:11)
+2. Massive Attack - Any Love (2) (1:52)
+3. Rock, Pete & C.L. Smooth - They Reminisce Over You (3:27)
+4. Incredible Bongo Band - In-A-Gadda-Da-Vida (3:15)
+5. Kenny Dope Presents Powerhouse 3 - Making A Living (2:02)
+6. Captain Rock - Captain Rock To The Future Shock (3:47)
+7. Paul Hardcastle - Rain Forest (3:08)
+8. Tyrone Brunson - The Smurf (3:49)
+9. Whomadewho - Space For Rent (4:16)
+10. Ed Solo & Skool Of Thought feat Darrison & JFB - We Play The Music (3:54)(   Читать дальше...)Жанр: Breaks, Electro, Synth-pop, Jazz-FunkПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A35E4B9CC467EDECED0F1FBEF1A758660EB8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289998   (915456) от 02.02.2011
 
 Ключи для продуктов Лаборатории Касперского от 29.01.2011 [Русский]
@@ -664,32 +699,6 @@ WM Capture - единственная программа записи видео
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C04A64A1303D9F4C085CD618298436992265764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097288   (915260) от 26.01.2017
-
-Reg Organizer 7.70 Portable by Kopejkin [En/Ua]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многофункциональная программа для редактирования, чистки и обслуживания реестра, исправления ошибок в системе и повышения ее производительности. Функция глубокого поиска по реестру позволит отыскать все ключи реестра, относящиеся к интересующему приложению. Программа позволяет редактировать файлы реестра (.reg) и просматривать их содержимое прямо из Проводника Windows. (   Читать дальше...   )Язык интерфейса: Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4CCBECC77CBF99AC042DDF2BA878F25E7048B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

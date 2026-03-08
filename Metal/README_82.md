@@ -1,32 +1,3 @@
-###  Публикация: 962031   (296800) от 03.12.2015
-
-Megaherz - Erdwarts (2015) EP [MP3|320 кб/с]<Industrial Metal, NDH>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wer Hat Angst Vorm Schwarzen Mann?
-02. Ist Das Verrückt?
-03. Glorreiche Zeiten
-04. Einsam(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 00:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB4578ECF406AB28F094A267A9ACAAE7145D380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424131   (296029) от 15.11.2020
 
 Sombre Holiday - The Failed Sun (2020) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
@@ -745,6 +716,35 @@ Arwen - Memories of a dream (2002) [MP3|320 kbps]<Symphonic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA8596B2DD7DFB489862CB99E5D67B53750FAA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336689   (278952) от 07.11.2019
+
+Blind Guardian Twilight Orchestra - Legacy Of The Dark Lands (2019) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278952.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 1618 Ouverture
+2. The Gathering
+3. War Feeds War
+4. Comets and Prophecies(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682393FDF2B8E307793720C2BFD02A6837080453
 ```
 
 https://mybot314.ru/tekegram_catalog/

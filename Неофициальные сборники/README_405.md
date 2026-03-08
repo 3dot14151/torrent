@@ -1,3 +1,180 @@
+###  Публикация: 546409   (480867) от 12.09.2012
+
+VA - Absolute Club Autumn Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LMFAO Feat. Chuckie - Make Somee Champagne (Staner Edit) [04:19]
+ 02. Magnus & Timon - Triangle (Original Mix) [06:28]
+ 03. Mike Candys feat. Sandra Wild - Sunshine (Fly So High) (2012 Original Mix) [04:22]
+ 04. Matvey Emerson - Together (Igor Voevodin Remix) [06:41]
+ 05. Nicky Romero & Zedd - Human (Original Mix) [04:17]
+ 06. Mooresonny - Boom Stabs (Original Mix) [06:03]
+ 07. Pulsedriver feat. Jonny Rose - Sound Of Celebration (Balkan Mix) [04:36]
+ 08. Nicola Fasano, Steve Forest & Die Hoerer feat. Joel Edwards - We Belong (Original Mix) [06:15]
+ 09. Vova Baggage feat. Arina Volchek - Closer (Radio Edit) [04:07]
+ 10. Phase Difference - I'm Cleaning My Desk (Ahmet Sendil Edit) [06:15](   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11BB239CCEB4A5A7D4DA03065E2BC6867903E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056236   (480679) от 25.09.2016
+
+VA - Дискотека 80-90 годов по-новому (Dj Ikonnikov - E.x.c Version) (38) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Fugitive (Dj Ikonnikov E.x.c Version) (06:45)
+02. Вячеслав Диденко и гр. Компания - Девушка (Dj Ikonnikov E.x.c Version) (05:00)
+03. Boney M - Blue Beach (Dj Ikonnikov E.x.c Version) (04:08)
+04. C.C. Catch - House Of Mystic Lights (Dj Ikonnikov E.x.c Version) (03:01)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED07E647431DC25C4E4F611DF3F4234622A8395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545582   (480387) от 12.09.2012
+
+VA - Record Superchart № 257 (08.09.2012) [MP3|320 кб/с]<Electro House / Trance / Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro House / Trance / DanceПродолжительность: 02:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11DB64F088C7015590D168632883893E335ED32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566620   (480347) от 30.07.2022
+
+VA - В машине с музыкой Vol.291 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dianova - Танцуй (03:17) 2022
+02. Аркадий Грейк  - Губы Маки (02:59) 2022
+03. Charlie Puth  - Light Switch (Natty Rico Remix) (03:00) 2022
+04. Бьянка Feat. & Vesna305 - Мальчик На Баду (02:53) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0B9522F50DF744227FC67C0252A3F80F493C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938547   (479997) от 19.09.2015
+
+VA - Trance Desire Volume 55 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn & Eskova - One More Night (Original Mix) (07:46)
+02. Meridian And Vidoven With Tiff Lacey - Phoenix (Original Mix) (07:39)
+03. Andy Moor & Somna feat. Amy Kirkpatrick - One Thing About You (Original Mix) (05:54)
+04. Emma Louise - 17 Hours (Luigi Lusini Remix) (06:36)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D709929AA43DF7516D8BEE16234BBF24EC7EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159939   (479942) от 22.08.2017
+
+VA - Festival Tropical Fiesta (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479942.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Uberjak'd - Twisted (Robert S Bootleg)  3:54
+002.  Robert Miles - Children  4:03
+003.  KSHMR & JDG feat. Mariana Bo - Kolkata  3:26
+004.  MAKJ & Michael Sparks - Space Jam (feat. Fatman Scoop)  3:38(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15D87259630D1A2435F9110BCE0851499CCF3F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244488   (479916) от 02.09.2018
 
 VA - Epic Soul Ballads (2018) [MP3|320 Kbps] <Funk, Soul, R&B, Other>
@@ -586,186 +763,6 @@ VA - Beatport Trance: Electro Sound Pack #161 (2020) [MP3|320 Kbps] <Trance, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26B0EC3AB7C77B7DFC405E3179704A4F0B17FE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546432   (478709) от 13.09.2012
-
-VA - Золотые хиты. Сборник 50/50 (2012) [MP3|256 кб/с]<Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478709.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Баnzай - Ради Тебя
-002. Afrojack Feat. Eva Simons - Take Over Control
-003. Medina - Lyser I Morke
-004. Мураками - Секрет
-005. Taio Cruz - Without You
-006. Бондарчук - Бег По Краю
-007. Бьянка & St1m - Ключи
-008. Alyosha - Nocturne
-009. Isamin feat. Betis - Dige Dire
-010. Глюкоза - Кошка(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 06:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA005CE3F50B168F2CC0262F717B9D6D09DE718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567016   (478502) от 31.07.2022
-
-Joe Kelly & Heavyweight Recordings - Best Of In The Mix (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Hard Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Underground hard trance.01 Joe Kelly - What's Happening (Original Mix) (REDEMPTION,2002)
-02 JK Theory - Want Me (Original Mix) (NRGFLOW,2003)
-03 Synaps - What Have I Seen (Original Mix) (HEAVYWEIGHT,???)
-04 Synaps - Megatron (Original Mix) (HEAVYWEIGHT,2002)(   Читать дальше...   )Жанр: Hard TranceПродолжительность: 1:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE2FBDFBBFC31B55C083BC6A2FD74FDEC4D8081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566891   (478495) от 31.07.2022
-
-Sofia Carson - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love is the Name
-02. Two Tears in a Bucket
-03. Loud
-04. Stay(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8EE14529EEDF6A35714FCECA67937FCD224496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566875   (478417) от 31.07.2022
-
-VA - German Top 100 Single Charts 29.07.2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478417.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Robin & Schürze - Layla (3:05)
-002. Liaze - PARADISE (3:12)
-003. Luciano - Beautiful Girl (2:59)
-004. Kontra K & Sido & Leony - Follow (2:25)(   Читать дальше...   )Жанр: PopПродолжительность: 04:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7957F5F79480AF2A3FEFFDE9F65BDF3CBD062ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566913   (478414) от 31.07.2022
-
-VA - Music News vol.206 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478414.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anna Lorenzi - I Love You Baby (03:37)
- 002. 5утра - На Край Света (03:28)
- 003. Abrissgebeat feat. Semitoo & Marc Kiss - Desenchantee (03:11)
- 004. Aki - How Could You (02:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:137AF1606D495DF698478C5446DE065E335E5E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566736   (478410) от 31.07.2022
-
-VA - В машине с музыкой Vol.292 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madcon Feat. & Ray Dalton - Don't Worry (Ayur Tsyrenov & DFM Remix) (03:30) 2022
-02. Elco  - Милая (03:30) 2022
-03. Dj. Jedy Feat. & Anastezia - Безбашенная (02:43) 2022
-04. Markus Zarkua  - Злишься (02:38) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D0FFEC83AAE86AC77786A60E09F6F23D19E7BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

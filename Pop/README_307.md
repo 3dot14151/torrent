@@ -1,3 +1,61 @@
+###  Публикация: 1347176   (154103) от 22.12.2019
+
+VA - Het Beste Uit De MNM 1000 (2019), 5CD [FLAC|Lossless|tracks + .cue] <Pop Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bløf Feat. Geike Arnaert - Zoutelande (03:40)
+02. Luis Fonsi & Demi Lovato - Échame La Culpa (02:52)
+03. Shakira - Whenever, Wherever (03:17)
+04. El Profesor - Bella Ciao (Hugel Remix) (02:45)(   Читать дальше...   )Жанр: Pop Rock, ElectronicПродолжительность: 06:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9246283005E10501C87A3E9FB699AC551A24A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194485   (154065) от 26.12.2017
+
+VA - Italo Disco Megahits (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154065.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  P. Lion  -  Happy Children  5:59
+02.  Radiorama  -  Chance To Desire  4:09
+03.  Joe Yellow  -  Lover To Lover  4:19(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9724A04C5D03BCC6EDB9BE944A440BD2C317BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194749   (153982) от 26.12.2017
 
 Ева Польна - Феникс (2017) [MP3|320 Kbps] <Pop>
@@ -689,62 +747,6 @@ VA - Xmas Hits (2018) [MP3|320 Kbps] <Dance, Pop, Ambient, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3913362707A6E0CC14324BC21284244780473E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271160   (152427) от 22.12.2018
-
-Promises - Promises (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby It's You (3:49)
-02. Let's Get Back Together (3:21)
-03. Who's Givin' It To Ya (3:33)
-04. I'm Sleeping Over (3:31)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C802997AB6EBA9E1EB7BE46E34518B5A13235E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601261   (152030) от 30.12.2022
-
-Basic Element & Dr. Alban & Waldo’s People & Elize Ryd - Life Is Now (2022) Single [FLAC|Lossless|WEB-DL|tracks] <EuroDance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Is Now
-02. Life Is Now (Extended Mix)Жанр: EuroDanceПродолжительность: 00:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4F7EAE9E54F3A9B765282750D2A4CB4EAA5F74
 ```
 
 https://mybot314.ru/tekegram_catalog/

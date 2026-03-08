@@ -1,3 +1,168 @@
+###  Публикация: 1336826   (276234) от 09.11.2019
+
+VA - Happy Nation: Reggae Collection (2019) [MP3|320 Kbps] <Reggae, Dancehall, Reggaeton>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276234.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Temple Rockers - Who Can Retell
+002. Prr A Ramed - Winner
+003. The Archives - Nuff A Dem Claim
+004. 9tyz - Slow Wine(   Читать дальше...   )Жанр: Reggae, Dancehall, ReggaetonПродолжительность: 06:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517505DA402D982E39C4D958D6A22DC8AF78000F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336831   (276227) от 09.11.2019
+
+VA - Hot Dance Pool Party (2019) [MP3|320 Kbps] <Dance, House, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276227.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dezibel - U Got Me Rocket (Extended Edit)
+002. Myan - On The Road
+003. Andy Wolf - Begin (Original Mix)
+004. Jabawack - Ellipse (Originla Mix)(   Читать дальше...   )Жанр: Dance, House, PopПродолжительность: 12:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9706F087E4C44322E8B65A99ED802AC50F680743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273571   (276226) от 21.12.2010
+
+VA - В десяточку! Зимний выпуск (2010) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BAFEAB2C23E63512A475D8166CFCBAE2BF005A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188160   (276196) от 01.12.2017
+
+VA - World Of Color Madness: Psy Goa Trance (2017) [MP3|250-320 Kbps] <Psy, Goa Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shpongle - Remember The Future
+02. Hippy Cat - Amsterdamn (Original Mix)
+03. Christopher Lawrence - Unbroken (Sonic Species Remix)
+04. PsyBuddy - Puma Punku(   Читать дальше...   )Жанр: Psy, Goa Trance, ElectroПродолжительность: 07:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66320EAB3A293BB8AE9A500F3CC16CFFE97E06B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273687   (276134) от 21.12.2010
+
+VA - Mega Популярный Ринг-tone 50/50 (2010) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0350C77B3D8437FA8595B3AF2E98EF3F16275D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273733   (276127) от 21.12.2010
+
+VA - OLD Dance Hits 100% (2010) [MP3|320 kbps]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop,DanceПродолжительность: 08:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064D84664F3A0E7D150A731BBFCDD2A9C65D96AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188113   (276107) от 01.12.2017
 
 VA - Club Dance Hiuse Top 100: DJ Project (2017) [MP3|320 Kbps] <Electro, Dance, House>
@@ -571,180 +736,6 @@ Disc 01
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76CFB19A398D5FE953423A4C9F62BCBE11FB7151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083105   (275597) от 14.12.2016
-
-VA - Rock Collection 1996 (2016) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01
-
-01. Ayreon - Actual Fantasy
-02. Opeth - Advent(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 29:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972CB235F041F93AB660DF8B5BD0F3F802CDC1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337093   (275553) от 09.11.2019
-
-VA - Top50: Tracks Deep House Ver.15 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Bobo - Where Is Your Love (Igor Frank Remix) 4:57
-02. ATB - 9PM (Till I Come) (Anton Liss & Andrew Rai VIP Club Mix) 4:45
-03. Patrick Hofmann & Daniel Torres - Butterfly (Sharapov Extended Remix) 4:16
-04. DJ JEDY x Александр Юрченко feat Ольга К'рымская - Ветер перемен (Deep Cover) 4:02(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 04:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FE2C1F0C08DBAD1901FB751F5EE10A5F551C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336762   (275550) от 09.11.2019
-
-VA - Дискотека 2019 Dance Club Vol. 195 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-01. Quintino, Cesqeaux feat. Lil Debbie, Bok Nero - Make Moves (2:31)
-02. Gayazov$ Brother$ - Увезите меня на Дип-хаус (Ramirez Remix) (4:12)
-03. Alice Astourian - Inside to Outside (3:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 21:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B953577541EFCEE499CF28F769C390A95E032570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336754   (275548) от 09.11.2019
-
-VA - Ремиксы от MGDC FM Vol 2 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275548.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.10eezy & Rimas - Зависима (SHRWD & DJ JON Remix) (3:46)
-2.10eezy & Rimas - Слабости (Vitaco & DEAF Remix) (4:19)
-3.25-17 - Жду Чуда (Ivan ART Reboot) (3:09)
-4.5sta Family - Один На Один (Sergey Kutsuev Remix) (5:04)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA773C071BB93C6A14F90CC78DF7172CEC06F4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265275   (275229) от 27.11.2018
-
-VA - Your Lifestyle: Psychedelic Trance Music (2018) [MP3|320 Kbps] <Psychedelic, Goa Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275229.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alternate Side - Symbiosis
-002. Audiomethod - Wait And See
-003. Hypnocoustics - New Identity
-004. Drjeckyl - Dna(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D7BC8B22D64E1FA8ABD8022615EF114897A2B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265286   (275226) от 27.11.2018
-
-VA - Festival Anthems 100 Designed (2018) [MP3|320 Kbps] <Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275226.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. RL Grime - Feel Free (Clean Short Edit)
-002. Odesza - Loyal (Clean Extended)
-003. Kompany - Override (Clean Radio Edit)
-004. Rogue D - Chains (Clean Short Edit)(   Читать дальше...   )Жанр: Big Room, Twerk, ElectroПродолжительность: 06:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCE62519638D0731E192AEAF52049298CA3078D
 ```
 
 https://mybot314.ru/tekegram_catalog/

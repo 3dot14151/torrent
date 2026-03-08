@@ -1,25 +1,25 @@
-###  Публикация: 1775829   (71381) от 28.01.2025
+###  Публикация: 1775432   (71420) от 27.01.2025
 
-Jesper Zeuthen Empty Pocket Sextet - GNIST (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+VA - Dance Classics Vol. 1 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71381.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fanden Sover Aldrig (5:20)
-02. XYZ (1:31)
-03. Bestraffningsvaggvisa (3:58)
-04. Fornuftens Kvalfulde Endeligt (3:24)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:57:49
+01. Johnny ''Guitar'' Watson - A Real Mother For Ya
+02. Boz Scaggs - Lowdown
+03. Brothers Johnson - Strawberry Letter 23
+04. Stretch - Why Did You Do It(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:08:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE5FE0119ED63C12923A115F7BE287171A59E41C
+magnet:?xt=urn:btih:69F5721A91BA0F2441A11FDE16F199C288F7B82E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775828   (71380) от 28.01.2025
+###  Публикация: 1775486   (71419) от 27.01.2025
 
-Jakob Dinesen - Slow Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71380.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Downside Up (4:01)
-02. Yusef (5:35)
-03. Slow Flow (5:13)
-04. Sat Wei Nam (5:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:42:01
+01. James Brown - Sex Machine
+02. Peoples Choice - Do It Anyway You Wanna
+03. Earth, Wind & Fire - Saturday Nite
+04. Emotions - Best Of My Love(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:17:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07687D28FDD3A558BFF88E0D4AADEF5B7E49F373
+magnet:?xt=urn:btih:44014D65DFBEFF9C1016A885DF8CDEA628DDAF7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775823   (71379) от 28.01.2025
+###  Публикация: 1775433   (71418) от 27.01.2025
 
-Jackson Potter - small things (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
+VA - Dance Classics Vol. 1 (1998) [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71379.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Trams (8:02)
-02. small things (7:08)
-03. Mr. M (5:39)
-04. Smoke Gets In Your Eyes (7:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:24
+01. Johnny ''Guitar'' Watson - A Real Mother For Ya
+02. Boz Scaggs - Lowdown
+03. Brothers Johnson - Strawberry Letter 23
+04. Stretch - Why Did You Do It(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:08:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3129B4A760DB3BB4EC2A5469A8D258CD58C04DE
+magnet:?xt=urn:btih:1F56536C8C0F1EC5DC1C3B618C4D1D69CD24C98E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,171 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775715   (71378) от 28.01.2025
+###  Публикация: 1775451   (71417) от 27.01.2025
 
-Bobby Hutcherson - Classic Blue Note Sessions (1963 - 1970) 7CD, 2024, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Belle Morte - Pearl Hunting (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71417.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Pearl Hunting (00:01:45)
+✧ 02 - Falling Idol (00:05:10)
+✧ 03 - Exorcism (00:05:29)
+✧ 04 - Blame me (00:04:35)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC4380F4397E1CEA9527F306E5C0E1FD288414A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775557   (71416) от 27.01.2025
+
+Журнал | Профиль №49-50 (244) (декабрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52EA8F96A3E8C6A29F3453E628061630FF993B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775430   (71415) от 27.01.2025
+
+VA - Dance Classics Vol. 1 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|320 Kbps] <Electronic, Pop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny ''Guitar'' Watson - A Real Mother For Ya
+02. Boz Scaggs - Lowdown
+03. Brothers Johnson - Strawberry Letter 23
+04. Stretch - Why Did You Do It(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE5A6BE95CCB35AFF00E42FDE9007449B4270C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775616   (71414) от 27.01.2025
+
+VA - The Orient Collective: Golden Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darles Flow - Caladan (5:22)
+02. Kalico Jak - Reverence (7:33)
+03. Aglaia Rave - Dhyana (5:20)
+04. Tibetania - Equinox (7:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2123017CA30D6DCAD9FF998B999784DF73964870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775199   (71413) от 27.01.2025
+
+Mal Waldron - The Recordings (2016) Remastered, 2025, ZOROTY [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Hard Bop, Post-Bop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71413.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Steamin' (Remastered) (9:30)
+• 02. Blue Jelly (Remastered) (11:27)
+• 03. Count One (Remastered) (7:56)
+• 04. Empty Street (Remastered) (12:39)(   Читать дальше...   )Жанр: Jazz, Hard Bop, Post-BopПродолжительность: 03:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B730504A7FF13E8A360B04E4DC37FDBC673000F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775521   (71412) от 27.01.2025
+
+Sun Ra - Inside The Light World: Sun Ra Meets The OVC (1986) 2CD, 2024, Strut [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71378.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Avis [6:44]
-02. Dave's Chant [5:18]
-03. Orientale [5:54]
-04. Medina [10:57](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 08:39:55
+01. Sunset on the Nile (DX7 interlude) [3:25]
+02. Sunset on the Nile [7:43]
+03. East of the Sun [4:45]
+04. Saturn Rings [6:08](   Читать дальше...   )Жанр: Avant-Garde Jazz, Big BandПродолжительность: 01:29:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82194EA7E9EB949511BAE5D9EA763D6777412943
+magnet:?xt=urn:btih:BABAF2CBC9987DDA09A264C9B8108709749CD658
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +257,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775813   (71377) от 28.01.2025
+###  Публикация: 1775464   (71411) от 27.01.2025
 
-Jonne Aaron (Negative ) - Studio Albums (5 releases) (2012-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pop Rock>
+In Extremo - Kunstraub (2013) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Hard Rock>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71377.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Jonne Aaron (Йонне Аарон Лииматайнен) - финский певец. Он стал одним из самых ярких кумиров подростков и рок-звезд Финляндии в 2000-х годах. Он известен как вокалист, композитор, автор текстов и фронтмен финской глэм-рок-группы Negative.2012 - Vain Elemaa
-2013 - Onnen Vuodet
-2014 – Risteyksessa
-2019 - Tiikerin Raidat(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:35:51
+01 - Der die Sonne schlafen schickt [3:57]
+02 - Wege ohne Namen [4:24]
+03 - Lebemann [3:23]
+04 - Himmel und Hölle [3:57](   Читать дальше...   )Жанр: Folk Metal, Hard RockПродолжительность: 00:54:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C662822F1BEEDF2F3004BADC0B026B90541C7712
+magnet:?xt=urn:btih:01CEEA43A46303DA120DE7E3417DDFF16E1EE759
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +286,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775689   (71376) от 28.01.2025
+###  Публикация: 1775454   (71410) от 27.01.2025
 
-VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+The Ferrymen - Iron Will (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71410.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Chokehold (5:53)
+• 02. Mother Unholy (5:22)
+• 03. Iron Will (4:58)
+• 04. Above It All (4:56)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9067FE31551CB9E365754577D2D9AFD89C077D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775456   (71409) от 27.01.2025
+
+In Extremo - Kompass zur Sonne (2020) Extended Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (Wacken World Wide 2020) [1:51]
+02 - Mein rasend Herz (Wacken World Wide 2020) [4:11]
+03 - Feuertaufe (Wacken World Wide 2020) [3:52]
+04 - Störtebeker (Wacken World Wide 2020) [3:41](   Читать дальше...   )Жанр: Folk Metal, Hard RockПродолжительность: 02:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B893FE1B8C80750781C5123DADC2186D68FE932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775499   (71408) от 27.01.2025
+
+VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71376.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71408.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ritchie Family - The Best Disco In Town
-02. Gloria Gaynor - Never Can Say Goodbye
-03. Kool & The Gang - Celebration
-04. Earth, Wind & Fire - September(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:11:30
+01. Dan Hartman - Relight My Fire
+02. Gwen McCrae - Keep The Fire Burning
+03. Lipps Inc. - Funkytown
+04. Lakeside - Fantastic Voyage(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:15:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC53B775E038784EE74703583B7ABC015143E0D9
+magnet:?xt=urn:btih:7AEA57E64725D20A03B82D15D1EB7A249E9C1821
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +373,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775659   (71375) от 28.01.2025
+###  Публикация: 1775440   (71407) от 27.01.2025
 
-VA - Keep It Trance Vol. 25 (2025) [MP3|320 Kbps] <Trance>
+Своя игра (26.01.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71407.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 января начался новый турнир "Своей игры" - Кубок "Контура", призовой фонд которого составит 5 миллионов рублей. Турнир будет состоять из 8 этапов по 10 игр в каждом.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6120DAFC0E5C958F4423D3D78584DFA7EEA6468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775485   (71406) от 27.01.2025
+
+VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Brown - Sex Machine
+02. Peoples Choice - Do It Anyway You Wanna
+03. Earth, Wind & Fire - Saturday Nite
+04. Emotions - Best Of My Love(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677A13D455960AD26F54954AF7E525DB8B6E4746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775607   (71405) от 27.01.2025
+
+VA - Redux Selection, Vol. 2 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71375.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ivan Le Mutant - Reflexions (Original Mix) [3:52]
-02. Inner Heart - Don't Want To Love You (Original Mix) [8:01]
-03. Bryan Kearney - You Will Never Be Forgotten (Lostly Remix) [7:25]
-04. Alexey Ryasnyansky - Open Space (Dub Mix) [6:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:41
+01. Toyax - Heavens Tears (STNX Extended Remix) [6:31]
+02. Michael Exkay - That Feeling (Extended Mix) [5:23]
+03. Victor Special - Down The Lost River (Extended Mix) [6:45]
+04. Alima - Enter Euphoria (Extended Mix) [7:10](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:20:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EE494E6779F507FBAF98914FA530428ED29AC52
+magnet:?xt=urn:btih:3C19461A98F99D5B423FE0B1D739E0AC394026CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,15 +457,70 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775632   (71374) от 28.01.2025
+###  Публикация: 1775474   (71404) от 27.01.2025
 
-VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+In Extremo - Sterneneisen (2011) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Hard Rock>
 
->>Pop
->>Зарубежная поп-музыка
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71374.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Zigeunerskat [4:30]
+02 - Gold [3:15]
+03 - Viva La Vida [3:36]
+04 - Siehst du das Licht [4:19](   Читать дальше...   )Жанр: Folk Metal, Hard RockПродолжительность: 01:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846717FEC50AB9619364A7CF78A72E26454CD01E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775713   (71403) от 28.01.2025
+
+Абдусалам Гусейнов | Ненасилие (2025) MP3, [Daniel Che]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга — первый опыт систематического исследования движения ненасилия XX в. В ней рассматриваются ключевые понятия концепции ненасилия, ненасильственные действия в их индивидуально-психологическом, групповом и национально-гражданском выражении, возможности ненасильственной политики. Среди авторов книги известные философы, историки, общественные деятели Австрии, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 10:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFD29874BFC0CAA1BC57C167CE87A1B96AD1344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775633   (71402) от 28.01.2025
+
+VA - Dance Classics Vol. 4 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71402.jpg" />
 </div>
 
 
@@ -218,11 +529,11 @@ VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 01. The Jacksons - Blame It on the Boogie
 02. McFadden & Whitehead - Ain't No Stoppin' Us Now
 03. The Gap Band - Say Oops Upside Your Head
-04. Donna Summer - Last Dance(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:17:02
+04. Donna Summer - Last Dance(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 01:17:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AD99B6EA5EB972AD06715B755B888A9D05552A3
+magnet:?xt=urn:btih:10125E28A5E5E3C2589857712280504A0FC66841
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +541,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775812   (71373) от 28.01.2025
+###  Публикация: 1775599   (71401) от 28.01.2025
 
-Black Cat Hoodoo - Music Heros (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+W2RC. Обзор ралли World Rally-Raid Championship (2024) WEBRip [H.264]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71401.jpg" />
+</div>
+
+
+###  Подробнее
+
+W2RC (FIM World Rally Raid Championship)
+Итоговый обзор 2024. Чемпионат мира по ралли-рейдам. Классы: RallyGP, Ultimate, Challenger и другие.Телекомпания: СтартЖанр: спорт, автогонки, раллиЯзык озвучки: РусскийПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C43FFFEB5E743621B35882ECC6B6489F340DABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775815   (71400) от 28.01.2025
+
+David Rose - My Happy Space (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71373.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Music Heros (3:39)
-02.  Change Gears (2:37)
-03.  Red Eye (3:38)
-04.  12 O'clock Jump (4:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:54
+01.  My Happy Space (2:24)
+02.  String 'em Up Boys (2:15)
+03.  Can't Live Without Music (3:24)
+04.  Whispers In The Breeze (3:25)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal JazzПродолжительность: 00:56:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:615001D1B21C2B55A596EDDC6DA9996B346A23A6
+magnet:?xt=urn:btih:1BDE073B6A6A8A2E0D05ED8169DFB4FEE43B4C5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +597,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775831   (71372) от 28.01.2025
+###  Публикация: 1775727   (71399) от 28.01.2025
 
-Judy Wexler - No Wonder (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+VA - Sunset Mix (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71372.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No Wonder (4:39)
-02. The Summer Knows (4:25)
-03. You Stepped Out of a Dream (3:07)
-04. Never Will I Marry (4:09)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:34
+01. Cristian Ferrer - Crush (Ballester Remix) (03:03)
+02. Bech & Draveи - In Your Fantasy (Original Mix) (03:26)
+03. Rip0E - Toxic (Original Mix) (02:48)
+04. Umut Torun - Into The Night (Original Mix) (02:37)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:11:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A116D11598BBE0FA50246B31094BCB2F723A0F0
+magnet:?xt=urn:btih:696C3E62AF727128C6FCEEA521655DCC86BA085E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,369 +626,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775687   (71371) от 28.01.2025
+###  Публикация: 1775680   (71398) от 28.01.2025
 
-VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritchie Family - The Best Disco In Town
-02. Gloria Gaynor - Never Can Say Goodbye
-03. Kool & The Gang - Celebration
-04. Earth, Wind & Fire - September(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB16539F317FB6C34ACEC464E7BFCE518D7D493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776108   (71370) от 30.01.2025
-
-Н.Д. Угринович | Информатика. Учебник для 11 класса (базовый уровень) (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник ориентирован на преподавание информатики на базовом уровне в 11 классе общеобразовательных организаций. Рассматриваются такие темы, как автоматизация информационных процессов, моделирование и формализация, базы данных и СУБД, социальная информатика. Большое внимание уделяется формированию умений и навыков в процессе выполнения практических компьютерных работ. (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE6CA31E3D670BB2DA96DACB92F9B164844B005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776152   (71369) от 30.01.2025
-
-Елена Чернова | Богатыри земли Русской. Энциклопедия (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о подвигах самых известных русских богатырей, начиная со сказочных легенд о волшебной силе Святогора и других богатырей-великанов и заканчивая сказаниями о самых любимых и известных воинах – Илье Муромце, Добрыне Никитиче, Алёше Поповиче – в прозаическом пересказе сказок, былин и преданий, понятном юным читателям. Энциклопедия снабжена подробным изображением (   Читать дальше...   )Жанр: Древняя Русь, детские энциклопедии, история, эпосИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B69AA60CF8D120E640E92514F8D21DF40E5CF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776220   (71368) от 30.01.2025
-
-Квартирник у Маргулиса. «Комната культуры» (25.01.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «Комната культуры» была основана 28 марта 2022 года уроженцами Барнаула Женей Трофимовым и Романом Рудыкой. Дебютный альбом группы «Кассета с тремя сторонами» стал открытием в жанре поп-рока, а их песня «Поезда»00:00:06 Привет
-00:05:28 Я даже не знаю
-00:13:42 На тех полюсах
-00:21:05 Номер(   Читать дальше...   )Производство: Россия | "ФРИДОМ"Жанр: Поп-рокЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0289FA1C6F3F5D2948EA01093866ABE19AA3D228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776110   (71367) от 30.01.2025
-
-Г.Е. Рудзитис, Ф.Г. Фельдман | Химия. Учебник для 11 класса (углублённый уровень) (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие углублённого уровня содержания ориентировано на учащихся инженерных классов школ естественно-научного профиля. Оно включает основные сведения о строении вещества, энергетике и скорости химических реакций, растворах, окислительно-восстановительных процессах, металлах и неметаллах. Особое внимание уделено практическим аспектам использования химических (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FED367DAC671C13218739E9A8160DD5F5FBC93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776161   (71366) от 30.01.2025
-
-Мадам Клико / Вдова Клико / Widow Clicquot (2023) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всего семь лет после свадьбы Барба-Николь Клико наслаждалась беззаботной жизнью. Но, потеряв горячо любимого мужа, она вынуждена взвалить на свои плечи огромный семейный бизнес, переживающий не лучшие времена.Производство: США / Fourth & Twenty Eight Films, WME IndependentЖанр: драма, биографияРежиссер: Томас К. НэпперАктеры: Лео Сутер, Хейли Беннетт, Наташа О'Кифф, Бен Майлз, Том Стёрридж, Фиби Николлс, Сэм Райли, Пол Рис, Кристофер Вилльерс, Кэра СеймурПеревод: Дублированный (Велес)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A096546349E20E79B2694F9CC98A333929532FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776221   (71365) от 30.01.2025
-
-Пресеты - Tide Presets [XMP, DNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в пленительное очарование пресетов Tide. Разработанные, чтобы вызывать глубокую ностальгию, эти пресеты органично сочетают в себе винтажный шарм с современной эстетикой. От неземного свечения лунных ночей до пронзительного одиночества бесконечных путешествий, пресеты Tide — ваш ключ к разблокировке воспоминаний и эмоций, которые превосходят время. Независимо (   Читать дальше...   )Формат: XMP, DNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313EB0633F2010469A0A2BEC86F2D7B1B70F70B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776138   (71364) от 30.01.2025
-
-Darkest Dungeon II (2023) [Ru/Multi] (2.00.73217/dlc) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkest Dungeon 2 - сиквел готической ролевой игры, объединяющей в себе механики метроидвании и сурвайвал хоррора. Игровой процесс представляет собой динамичный экшен, в котором вы путешествуете по мрачному фэнтезийному миру и сражаетесь с многочисленными врагами. Каждый враг представляет серьезную угрозу. Все противники имеют уникальные паттерны атак и движений. (   Читать дальше...   )Тип издания: RepackРазработчик: Red Hook StudiosЖанр: Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443CDD001EA696E6FB88DECFA3AB60E2903AC685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776216   (71363) от 30.01.2025
-
-Шрифты - Ruston Font Family [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ruston — шрифты Display Fonts с 6 стилями + дополнительными начертаниями и ширинами. Вдохновленные традиционной живописью знаков, они предлагают красоту, индивидуальность и долговечность. Старые знаки в частности обладают определенной выносливостью. Расписаны вручную с долговечностью, которая перевешивает их оригинальные коммерческие сообщения.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D8EF94473B3EA8DAB63F74AAC54C60BC3F6FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776095   (71362) от 30.01.2025
-
-Пресеты - Retro & Film Presets [XMP, DNG, LRTEMPLATE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для многих фотографов воспроизведение внешнего вида и атмосферы пленки в цифровом формате является фирменным стилем. Если вы заинтересованы в том, чтобы получить стиль ретро и пленки на ваших цифровых фотографиях, то вы нашли то, что искали.Формат: XMP, DNG, LRTEMPLATE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0BFCAE9A902B6EBD3EB29DB66B50E1E17E8F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776137   (71361) от 30.01.2025
-
-Антонио Башур | Шоколад (2015) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антонио Башур - автор нескольких книг,  владелец  кондитерской, судья международных кондитерских конкурсов, преподаватель, международный консультант. Его книга "Шоколад" является мировым бестселлером. Эта книга предназначена для профессиональных кондитеров, студентов и пекарей-любителей продвинутого уровня.Жанр: КулинарияИздательство: БэттменФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7909AEFB6E74985CB0FC8D4A797DEBF9C9452E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776085   (71360) от 30.01.2025
-
-Пресеты - MXSMNV Film Presets Pack [XMP, DNG, ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немаленький сборник пресетов от Максим Симонова.Формат: XMP, DNG, ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9E0B3E31F268CE7CD3C2E157D72F5870AF8E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776128   (71359) от 30.01.2025
-
-Кстати. Новогодний выпуск (2024) WEBRip [H.264/1080p] (сезон 1, выпуск 66)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний выпуск шоу «Кстати» с Азаматом Харламовым. Самые популярные артисты, режиссёры, певцы, музыканты, комики, блогеры, инфлюэнсеры, шоумены и даже Дорохов в песенно-развлекательно-танцевательно-игрательно-придурошно-увеселительном времяпрепровождении за первый новогодний кубок «Кстати».Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Харламов, Мусагалиев, Дорохов и все-все-все!Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9933C379686F80CE081D6358C6ABE69EBAD7D2E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776207   (71358) от 30.01.2025
-
-Vivaldi 7.1.3570.42 include standalone [Multi/Ru]
+GeoGebra 6.0.873.2 Classic + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71358.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A07F40CA96DE115A7BAE8A6AC4B48D2B58F0181D
+magnet:?xt=urn:btih:BEADD658412282A823BC8A4468B41FCDFC9333C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,25 +652,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776140   (71357) от 30.01.2025
+###  Публикация: 1775750   (71397) от 28.01.2025
 
-C.П. Костычев | О брожениях (1914) [PDF]
+Ферри 2 / Ferry 2 (2024) WEBRip [DVO] [AD]
 
->>Научная и техническая литература
->>Точные и естественные науки
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71357.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сергей Павлович Костычев - российский и советский физиолог, биохимик и анатом растений, микробиолог, академик Российской Академии наук. В книге описаны виды брожения: молочнокислого, уксусного, спиртового, маслянокислого.Жанр: БиологияЯзык: Русский (дореформенный)Издательство: издательство А. С. ПанафидинойФормат: PDFКачество: Необработанный скан
+Потеряв свою наркоимперию, Ферри Боуман обретает покой вдали от преступного мира Брабанта — пока его прошлое не настигает его.Производство: Нидерланды, Бельгия / De Mensen, Federation Studios, VRTЖанр: боевик, триллер, драма, криминалРежиссер: Ваннес ДестопАктеры: Франк Ламмерс, Айко Бимстербер, Тобиас Керслоот, Маруан Мефта, Hamza Othman, Хуб Смит, Йонас Смулдерс, Tom Wijkamp, Bo Lehmann, Мирон Билски и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:27Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C26D470C724F77DEB655D48614A8C73E3F1D52F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,25 +678,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776081   (71356) от 30.01.2025
+###  Публикация: 1775386   (71396) от 28.01.2025
 
-CoolUtils Total Audio Converter 6.1.0.278 RePack (& Portable) by TryRooM [Multi/Ru]
+Электропартизаны - 2 Albums (2023, 2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71356.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Total Audio Converter - мощный конвертор всех музыкальных форматов файлов и возможностью CD-риппинга. Программа поддерживает теги ID3 и CUE файлы, преобразовывает аудиотреки без создания промежуточного WAV файла, работает в пакетном режиме, имеет высокую скорость работы, по завершении процесса позволяет проиграть файл, а наличие понятного русскоязычного двухпанельного (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Чёрный мотылёк [00:03:25]
+02. Музыка железных машин [00:04:40]
+03. Последний марш мира [00:04:25]
+04. Родина электричества [00:03:30](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:48:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F0BC7B8E0CF048E7ABB25F8F5E4C65F89007E77
+magnet:?xt=urn:btih:07C4B31680F1719C7E68DCC9650C876F3D7905BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775579   (71395) от 28.01.2025
+
+Мир за выкуп / World for Ransom (1954) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майк Каллахан — ирландский эмигрант и ветеран войны, работающий в Сингапуре частным детективом. По наводке бывшей возлюбленной он берется за странное дело — девушка полагает, что ее муж Джулиан Марш занимается чем-то незаконным, и просит Майка помочь. Каллахан узнает, что человек по имени Алексис Педерас подговорил Джулиана похитить известного ученого, Шона О’Коннора, (   Читать дальше...   )Производство: США / Plaza ProductionsЖанр: фильм-нуар, триллер, драма, криминалРежиссер: Роберт ОлдричАктеры: Дэн Дьюриа, Джин Локхарт, Патрик Ноулз, Реджинальд Денни, Найджел Брюс, Мэриэн Карр, Артур Шилдс, Дагласс Дамбрилл, Кармен Д’Антонио, Кей ЛюкПеревод: Авторский (Алексей Багичев)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16B9001EA4E0BBF581C4B519A503B953EE0B295
 ```
 
 https://mybot314.ru/tekegram_catalog/

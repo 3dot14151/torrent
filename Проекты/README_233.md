@@ -1,30 +1,3 @@
-###  Публикация: 825087   (462122) от 26.09.2014
-
-Revostock - Wedding Photo Album Live Video - 832083 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания романтического свадебного фотоальбома.
-Превью, файл помощи - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEC2AA60F6420DFD10F893EAEDBB3373D24AF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 825039   (461995) от 26.09.2014
 
 Проекты - VideoHive - Vintage Memories - 5456790 [AEP]
@@ -674,6 +647,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:247DE90D6761B35E75BF89BC17FD6768440799F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321269   (460800) от 23.08.2019
+
+Проекты - VideoHive - Cooking Show - 19498604 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект, который обязательно продвинет ваш кулинарный канал на You Tube и пр.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88EADC0ADA7CF1B5D529B4712CC5965F0661086
 ```
 
 https://mybot314.ru/tekegram_catalog/

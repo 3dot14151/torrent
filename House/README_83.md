@@ -1,3 +1,32 @@
+###  Публикация: 1739857   (48472) от 29.07.2024
+
+VA - Milk & Sugar Summer Sessions 2024 [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milk & Sugar & Maria Marquez - Canto Del Pilon (James Hurr Extended Remix) (6:04)
+02. Divolly & Markward & DJ Shorty - Vazilando (Extended Mix) (4:01)
+03. David Penn & Hosse & Africa G - Con Son (The Cube Guys Extended Remix) (5:04)
+04. Low Steppa & Crusy - Bullerengue (Extended Mix) (6:32)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550EB847A0666ED274E450D38923D604A8225DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740169   (48167) от 01.08.2024
 
 VA - Anjunabeats Essentials 01 (DJ Mix) (2024) - [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
@@ -716,35 +745,6 @@ VA - Autumn Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E437474E9CBABF73D1228BCE42AA25808A0C7395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757472   (39078) от 27.10.2024
-
-VA - Halloween 2024: Best of Dance, EDM, House & Electro (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JLUIS - Paradise (03:06)
-02. Whisk & MARK SNCHZ - Love Light (01:53)
-03. Tc-5, Otray & Miguel Lemos - Cave (02:38)
-04. NAAZUK & Tom Maze - Gonna Make It (02:33)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD5F651009C563CAE14AD800B9DE8300A23C9693
 ```
 
 https://mybot314.ru/tekegram_catalog/

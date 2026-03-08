@@ -1,22 +1,22 @@
-###  Публикация: 1576761   (356652) от 18.09.2022
+###  Публикация: 1071851   (356713) от 11.11.2016
 
-Контакты / Contact (2015-2017) WEBRip [H.264/1080p] (сезон 1-2, серии 1-8 из 8) MoyGolos
+Проекты - VideoHive - Parallax Media Opener [AEP]
 
->>Зарубежные сериалы
+>>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356652.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_356713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У Тома уникальный дар: касаясь различных предметов, он видит воспоминания других людей. Чтобы избежать наказания за совершённое в прошлом преступление, герой начинает работать на ФБР. Внезапно он узнаёт, что жизнь его брата-полицейского под угрозой, и решает вмешаться в его новое расследование.Производство: Франция / BE-FILMS, JLAЖанр: боевик, драма, криминалРежиссер: Эльза Беннетт, Ипполит Дар, Давид МорлиАктеры: Тома Жуанне, Алексис Лоре, Ингрид Доннадье, Жереми Ковийо, Амели Ремакль, Лувия Башелье, Жюльен Буасселье, Сара Мортенсен, Май Ань Ле, Элен СёзареПеревод: Дублированный (MoyGolos)Язык озвучки: РусскийПродолжительность: ~00:50:00 серия
+Parallax Media Opener - современный After Effects Шаблон, подойдет для вашего интро, слайд-шоу, бизнес-слайдов, презентации, портфолио, галереи.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03E1B0737B3D4357C7C7E22575752B7E154F199F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577363   (356651) от 18.09.2022
+###  Публикация: 1071568   (356712) от 11.11.2016
 
-VA - 80s Top Tracks (2022) [MP3|320 Kbps] <Pop, Rock, R&B>
+OfficeSuite Premium (PDF & HD) Mod v8.8.6139 [Ru/Multi]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356651.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fleetwood Mac - Everywhere (2018 Remaster)
-02. Starship - We Built This City
-03. Duran Duran - Notorious (Single Version)
-04. Spandau Ballet - True(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 03:25:57 hrs
+OfficeSuite позволяет легко просматривать, редактировать и создавать документы Word, Excel, PowerPoint, конвертировать в/из PDF, и управлять файлами с помощью наиболее многофункционального решения для мобильного офиса, доступного для Android.Тип издания: модификацияРелиз состоялся: 08.11.2016Разработчик: MobiSystemsПоддерживаемая ОС: Android 4.0 и вышеЯзык интерфейса: русский, английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB56F8CA409AA1346520B380BDC258FA980F7836
+magnet:?xt=urn:btih:C3C1CD57DA57D45DF2C752E6A4259193540F7F70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +50,52 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577515   (356650) от 18.09.2022
+###  Публикация: 1071866   (356711) от 11.11.2016
 
-Double Commander 1.0.8 Build 191 + Portable [Multi/Ru]
+Александр Стрельников | Тёмный (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что, если и темный способен на благородство и сострадание? Что, если быть темным лордом совсем не означает ненавидеть все вокруг? Что, если у него есть свой кодекс чести? Темный лорд Этьен, откликнувшись на просьбу умирающей светлой леди, попадает в круговорот событий, которые могут привести к гибели его народа. Попутно Этьен находит и новых друзей, и новых врагов. (   Читать дальше...   )Жанр: Боевое фэнтези, Героическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE246AE1FC9E95415E9910955C7BDA9117304CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071733   (356710) от 11.11.2016
+
+WavePad Sound Editor Masters Edition 6.63 [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356650.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356710.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Double Commander - это свободный, с открытым исходным кодом, кроссплатформенный файловый менеджер с двумя панелями. Целью данного проекта является создание файлового менеджера, аналогичного по функциональности Total Commander и совместимого с его плагинами.Язык интерфейса: Русский, Английский и другие
+WavePad -  аудиоредактор, предоставляющий пользователю широкие возможности для редактирования звука.
+Позволяет проводить пакетную обработку файлов, добавлять разнообразные эффекты (эхо, ревебрация, затухание звука и т.д.), вырезать и вставлять фрагменты дорожки, реставрация звуковой дорожки, нормализация  уровня аудио файлов перед записью на диски и многое другое. (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48D8327E17C70EEA453E72D65E8B568F4ED9FB81
+magnet:?xt=urn:btih:4B13C05BD3367E60BA858C14F23FB226F8A9940D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +103,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577116   (356649) от 18.09.2022
+###  Публикация: 1255995   (356699) от 21.10.2018
 
-Infected Mushroom - IM25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Trance, Electronic>
+Placido Domingo - Placido Domingo And Friends (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Vocal>
 
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356649.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Velvet [00:04:08]
-02. While I'm in the Mood [00:06:32]
-03. Business as Usual [00:02:55]
-04. Boss La Rosh [00:06:41](   Читать дальше...   )Жанр: Psychedelic Trance, ElectronicПродолжительность: 00:58:27
+A1 Umberto Giordano - Fedora (Amor Ti Vieta), Placido Domingo
+A2 Verdi - Luisa Miller (Quandro Le Serre), Placido Domingo
+A3 Mozart - La clemenza di Tito (Parto Parto), Martha Senn
+A4 Puccini - Intermezzo: (Manon Lescaut, Ch'ella Mi Creda), Placido Domingo(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 00:46:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:752F013D171181CB8A74667FE8F2A712F6E82BFC
+magnet:?xt=urn:btih:33136F64EAFBA3B5B3CCE40D48271A51645FC462
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,111 +132,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329035   (356648) от 03.10.2019
+###  Публикация: 1256199   (356697) от 21.10.2018
 
-Ирина Селиванова | Оленьи сказки (2019) [MP3]
+Бетти Смит | Дерево растёт в Бруклине (2018) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356648.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лес молчаливо хранит свои тайны, сказка начинается…
-В ту ночь из замка не вышел никто, но троим предстоит вернуться. Город, так легко отпустивший своих детей, не примет их обратно. Одинокой лесничей с колдовскими зелеными глазами, бродячему охотнику, боящемуся быть узнанным, и олененку нет дороги назад.
-На скольких тропах предстоит заблудиться, чтобы понять, куда (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 09:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0C358CF3CA1E6BC09BD9B5C1FADD8431B7B64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329167   (356647) от 03.10.2019
-
-VA - Uplift Recordings - Chapter 1 (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Allen - Vorny (Original Mix)
-02. Steve Allen feat. Ana Criado & Solis & Sean Truby - Frozen River (Original Mix)
-03. F.G. Noise - Delphi (Original Mix)
-04. Steve Allen feat. Jess Morgan - Re-Given (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 04:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF373F03854D6AB37D8FBEB4F2FAB98D738A267A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329138   (356646) от 03.10.2019
-
-Протоиерей Сергий Филимонов | Учебник для сестёр милосердия (2007) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Протоиерей Сергий Филимонов — настоятель больничного прихода, доктор медицинских наук, кандидат богословия. Одновременно — председатель Общества православных врачей СПб. и духовник Сестричества св. мч. Татианы.
-Первые группы милосердия были созданы о. Сергием в 1993 году. Они состояли из христианок, желавших послужить в больнице. В 1995–1996 гг. батюшкой были основаны (   Читать дальше...   )Жанр: Христианство. Православие. Социальное служениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2399B859C9D6F159481356E9D7830B4681A6E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328833   (356645) от 03.10.2019
-
-Т.В. Стрыгина | Библейские истории для детей (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как затеплить веру в сердце малыша? Эта Библия для самых маленьких станет настоящим помощником для родителей. Умная, простая и красивая книга, несущая через весь текст и иллюстрации послание детям о том, что Бог любит их, всегда защитит и поддержит.
+Культовый роман о решимости противостоять трудностям, которым уже на протяжении века зачитываются все американские подростки.
 
-Для детей дошкольного и школьного возраста.Жанр: ПравославиеФормат: FB2
+Фрэнси Нолан видит мир не таким, как другие – она подмечает хорошее и плохое, знает, что жизнь полна несправедливости, но при этом полна добрых людей. Она каждый день ходит в библиотеку за новой книгой и читает ее сидя на пожарном балконе (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 17:43:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88B5188267AAD257032E22ED89F9B379E9210CAD
+magnet:?xt=urn:btih:8B3DEEBFE412D76C775E85E1935FC00BB7CA10E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,27 +160,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329022   (356644) от 03.10.2019
+###  Публикация: 1256434   (356696) от 21.10.2018
 
-Монахиня Евфимия | Тайны монастырей. Жизнь в древних женских обителях (2015) [FB2]
+Ant Download Manager Pro 1.10.1 Build 53855 beta [Multi/Ru]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356644.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь за монастырскими стенами всегда была окутана ореолом мистической тайны. Эта книга даёт прекрасную возможность заглянуть внутрь русского монастыря и познакомиться с повседневной жизнью женских обителей по впервые публикующимся в печати архивным данным.
+Ant Download Manager - быстрый и простой загрузчик любых файлов из Интернета с передовой функцией для скачивания видео с видеосервисов, таких как Youtube, Myspace, Google Video, DailyMotion и других. Загружает с любого сайта, любой контент, быстро и надёжно. Интегрируется в браузеры - Internet Explorer 8+, Mozilla Firefox 32+, Google Chrome 31+. Поддерживает HTTP (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0E514B62D6DEBB01F9A089C809ACE1C2929FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256340   (356693) от 21.10.2018
+
+И. П. Павлов | Двадцатилетний опыт объективного изучения высшей нервной деятельности (поведения) животных (1973) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое издание капитального труда академика И. П. Павлова «Двадцатилетний опыт объективного изучения высшей нервной деятельности (поведения) животных» было осуществлено пятьдесят лет тому назад.
 
-Перед вашим взором пройдёт галерея игумений северных женских обителей, сестёр милосердия, монастырских воспитанниц. (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+В основу настоящей книги положено шестое изданиев подготовленное к печати самим автором.
+(   Читать дальше...   )Жанр: История, науковедение, естествознание, физиология, биология, психология, медицинаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99540F8670BEED630D71542C1FE9D562F4F2AEE8
+magnet:?xt=urn:btih:71A8CFCAB5ACD7F582E4F57CAC97B7438455FF2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,28 +215,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329079   (356643) от 03.10.2019
+###  Публикация: 1256001   (356691) от 21.10.2018
 
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Saint-Saens - Symphonies (Carnival of the Animals, Phantasy E flat Major, Organ Symphony №3 C minor) (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
 
->>Other Styles
->>OST (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356643.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+Carnival of the Animals
+01. Introduction et marche royale du lion (Introduction and Royal March of the Lion)
+02. Poules et coqs (Hens and Roosters)
+03. Hemiones (animaux veloces) (Wild Donkeys Swift Animals)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E54C597433E4DF7FB27A14ED5E18C66BCCDFBB16
+magnet:?xt=urn:btih:1FD2C86480B45946949490126DB3A6DC3A1FAC2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,115 +244,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329070   (356642) от 03.10.2019
+###  Публикация: 1256289   (356690) от 21.10.2018
 
-Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil We Know (02:15)
-02. The Devil We Know Main Title (03:11)
-03. Liable Motion (05:17)
-04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B0697726DF45FF8C93804150EA24A0FBF50B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329115   (356641) от 03.10.2019
-
-Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeker Of The Serpent's Eye (02:12)
-02. Starling (02:15)
-03. Mandy Love Theme (04:39)
-04. Horns Of Abraxas (01:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895C453BAD7471C936B1D9A8F67AEC2B08A12AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329169   (356640) от 03.10.2019
-
-Robert Nickson - Tellurian (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Nickson - Arecibo (2:45)
-02. Robert Nickson - Iridium Flare (5:26)
-03. Robert Nickson with Thea Riley - Feed My Soul (3:44)
-04. Robert Nickson - California (4:24)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD3858D1A8067226DA866C2930C95F3A5DDB91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329080   (356639) от 03.10.2019
-
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [FLAC 2.0|24/48|tracks|WEB-DL] <Soundtrack>
+Paul Oakenfold & Little Nikki - Only Us (The Remixes) (2018) [MP3|320 Kbps] <Trance,House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356639.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+01.Only Us (Dan Judge & Jordan King Remix)
+02.Only Us (Ryan Arnold Remix)
+03.Only Us (Hal Stucker Extended Remix)
+04.Only Us (Dan Judge & Jordan King Club Remix)(   Читать дальше...   )Жанр: Trance,HouseПродолжительность: 00:23:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80051EE18FCDC8DF28952439E6CD0F5C4C2D6B49
+magnet:?xt=urn:btih:187A069DBE3CAF196BD437F9E394E974B7553B97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,28 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329083   (356638) от 03.10.2019
+###  Публикация: 1256012   (356688) от 21.10.2018
 
-Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
+Three Dog Night - Coming Down Your Way (1975) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
 
->>Other Styles
->>OST
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356638.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Escape Room (03:40)
-02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
-03. The Invitation (04:43)
-04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
+A1 Til the World Ends
+A2 You Can Leave Your Hat On
+A3 Good Old Feeling
+A4 Mind over Matter(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B767A3CC194821AD9B66AB0F3AAE46D3BDEE2D47
+magnet:?xt=urn:btih:7012E518BDE96ECCCB29451FFE786590F4C9B6F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,28 +302,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329071   (356637) от 03.10.2019
+###  Публикация: 1256252   (356685) от 21.10.2018
 
-Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Олеся Лихунова | Хочешь я буду твоей мамой (2017) [FB2, EPUB, PDF]
 
->>Other Styles
->>OST (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356637.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Devil We Know (02:15)
-02. The Devil We Know Main Title (03:11)
-03. Liable Motion (05:17)
-04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
+«Хочешь, я буду твоей мамой?» – дневник Олеси Лихуновой, мамы семерых детей, пятеро из которых – приёмные. Её уверенность в том, что нет нерешаемых задач, и умение найти простые и логичные ответы на сложные вопросы, способность виртуозно организовать жизнь и обучение детей оказались полезными и вдохновили тысячи читателей, и не только родителей. Эта книга – о том, (   Читать дальше...   )Жанр: Воспитание детейФормат: FB2, EPUB, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5219B60E23FB76262FAAC490F0083FBD29E436F9
+magnet:?xt=urn:btih:A5C2BFC67A1AF905BB3D03F80FC6FFDD6FA1275F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,28 +328,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329102   (356636) от 03.10.2019
+###  Публикация: 1256005   (356683) от 21.10.2018
 
-Jуhann Jуhannsson - The Theory of Everything / Вселенная Стивена Хокинга (Original Motion Picture Soundtrack) (2014) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
+Евгений Сафронов | Помаево – село, которого нет (2018) [MP3]
 
->>Other Styles
->>OST (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356636.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cambridge, 1963 (01:42)
-02. Rowing (01:42)
-03. Domestic Pressures (02:37)
-04. Chalkboard (01:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:11
+Двое копарей – охотников за монетами – решают поискать счастье в заброшенном селе. Всё бы хорошо, но постепенно нежданные гости осознают, что заброшенность – понятие весьма относительное.
+Основано на реальных событиях.Жанр: Магический реализм, мистикаПродолжительность: 01:55:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF3EBAD0FDC86A95BF2ABEB1EC85E41732D791F5
+magnet:?xt=urn:btih:3F4BA1A6C3697FF855EE356E0291E40FEBC64C82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,77 +355,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329096   (356635) от 03.10.2019
+###  Публикация: 1256331   (356681) от 21.10.2018
 
-Радости и печали маленького лорда (2003) DVD9
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356635.jpg" />
-</div>
-
-
-###  Подробнее
-
-В небольшом американском городке позапрошлого века растет восьмилетний мальчик, сын скромной учительницы музыки. Друзья уважают его за доброту и справедливость, и Седрик - так зовут мальчика, - дорожит их уважением. Равно как и памятью отца, которого он никогда не видел. Седрик привык думать, что мать и ее рассказы об отце это и есть вся его семья. Но однажды он (   Читать дальше...   )Производство: РоссияЖанр: Семейный, Сказка, ДрамаРежиссер: Иван ПоповАктеры: Станислав Сергеевич Говорухин, Ольга Будина, Олег Менделевич Шкловский, Сергей Ишханович Газаров, Алексей ВеселкинСубтитры: русские, английскиеПродолжительность: 01:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC3829FFA196D1CCCD6F3F816F80F8C23F786A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329065   (356634) от 03.10.2019
-
-Кирилл Андреев (сост.) | Новая сигнальная [Сборник] (1963) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биофизик Джордж Корин пять лет прожил в одиночестве на тихой уютной планете. Посетившие однажды планету космонавты обнаруживают Джорджа бесплотным. Что же случилось на планете, и куда исчез настоящий Джордж?Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BA10D18D05DC311606F37201D830485A3D8E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329029   (356633) от 03.10.2019
-
-BurnAware Professional 12.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
+save2pc Ultimate 5.5.6.1581 RePack (& Portable) by ZVSRus [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356633.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+save2pc Ultimate - это простая в использовании программа, которая позволяет сохранять видео с известного файлового хранилища YouTube. При помощи YouTube Downloader можно загрузить любой видеофайл с веб-сервиса YouTube по приведенной на его страничке ссылке. Все, что требуется от юзера - это скопировать и вставить ссылку в окно save2pc Ultimate, выбрать нужный формат (   Читать дальше...   )Язык интерфейса: Русский | Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:886924DECA0E26D2F7E8AEFF687401A8F22B6F82
+magnet:?xt=urn:btih:5C9D68B6A9D3E62828A8FEEC4519369DE5980FF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,28 +381,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329090   (356632) от 03.10.2019
+###  Публикация: 1256306   (356679) от 21.10.2018
 
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+Markus Schulz & Jes - Calling For Love (The Remixes) (2018) [MP3|320 Kbps] <Trance>
 
->>Other Styles
->>OST
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356632.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
+01.Calling for Love (DRYM Remix)
+02.Calling for Love (DRYM Extended Remix)
+03.Calling for Love (Marcus Santoro Remix)
+04.Calling for Love (Marcus Santoro Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:44:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:010B545F1DADF20478E467A6567FE3A5D215594D
+magnet:?xt=urn:btih:73BE15697D653B99082F41FB0059AED14623ADF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,28 +410,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329084   (356631) от 03.10.2019
+###  Публикация: 349879   (356678) от 21.10.2018
 
-Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Е. Жуковская | Как щенок был мамой (1978) [MP3]
 
->>Other Styles
->>OST (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356631.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Escape Room (03:40)
-02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
-03. The Invitation (04:43)
-04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
+Так вот и получилось, что щенок, который и сам-то совсем недавно научился ходить и подавать голос, заменил цыплятам маму. И стал мамой куда более ласковой и заботливой, чем вздорная и сварливая курица. Ну и пришлось же нашему щенку поломать голову над вопросами, о которых он никогда бы и не подумал, не случись ему встретиться с беспомощными, брошенными "своими (   Читать дальше...   )Жанр: СказкиПродолжительность: 00:31:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A80C8CD68B55419531012CF4FC6D129C685A5F60
+magnet:?xt=urn:btih:5C65AFF957AEAC86FAFAB79A80E3E3986AA0C118
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,28 +436,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329091   (356630) от 03.10.2019
+###  Публикация: 1256350   (356677) от 21.10.2018
 
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Бен Ааронович | Реки Лондона (2018) [MP3]
 
->>Other Styles
->>OST (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356630.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
+Меня зовут Питер Грант и до января я был простым стажером-констеблем в рядах могущественной армии стражей правопорядка, известной всем добропорядочным гражданам как Департамент столичной полиции. Всех проблем у меня в жизни было — увернуться от назначения во Вспомогательный отдел и найти способ забраться в трусики Лесли Мэй. Но однажды ночью меня угораздило взять (   Читать дальше...   )Жанр: Городское фэнтезиПродолжительность: 11:38:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B893CFE9751C9CE235E3DE209EA28A3A9731B45
+magnet:?xt=urn:btih:5E60266FFC48A9804252A0CEAC6216830077A846
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,25 +462,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329063   (356629) от 03.10.2019
+###  Публикация: 1255899   (356676) от 21.10.2018
 
-Михаил Емцев, Еремей Парнов | Зеленая креветка [Сборник] (1966) [FB2]
+Темный ген / Das dunkle Gen (2015) HDTVRip [H.264/720p-LQ]
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356629.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Четырем африканцам и одному белому суд вынес смертный приговор. Но по слухам приговор не был приведен в исполнение, а заключенных отправили в специальную резервацию. Два друга решили освободить белого смертника и заодно разузнать, что же скрывается под маской резерваций-рудников…Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
+Научно-популярный фильм о современной генетике, самой бурно развивающейся области человеческого знания, которая обещает человечеству самые значительные перемены. Сможем ли мы вмешаться в передающуюся нашим потомкам наследственную информацию и исправить в ней ошибки — «темные гены»? Франк Шаудер много лет страдает от хронической депрессии. После нескольких попыток (   Читать дальше...   )Производство: Германия, Швейцария, Dschoint Ventschr Filmproduktion AG, Schweizerische Radio-und Fernsehgesellschaft (SRG)Жанр: Документальный, научно-популярныйРежиссер: Мириам Якобс, Герхард ШикПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:39:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91F16734B09DCC7DFA22DA68CE78EFC086857302
+magnet:?xt=urn:btih:12482D89B84FF9B34A43A39DA32B1F29D02B6295
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,25 +488,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 837514   (356618) от 03.11.2014
+###  Публикация: 1256307   (356675) от 21.10.2018
 
-Артур Древс | Миф о христе [2 тома] (1924-1925) [DJVU]
+Квартирник на НТВ у Маргулиса. Обе две (10.20.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356675.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису группа «Обе две» - российская музыкальная поп-группа. в состав которой входят Катя Павлова и Дмитрий Емельянов. Хозяин «Квартирника» разузнал у своей гостьи Кати Павловой, сколько ей было лет, когда та начала выступать. Евгений поинтересовался, откуда пошло название коллектива, а Катя вспомнила, что создала группу вместе со своей сестрой, (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DA872F32C2A549FF0E717A18C3EFE38EB73981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256234   (356674) от 21.10.2018
+
+6ix9ine - Day69: Graduation Day (2018) [MP3|320 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy (00:01:52)
+02. Gummo (00:02:37)
+03. Rondo (Feat. Tory Lanez & Young Thug) (00:02:18)
+04. Keke (00:02:31)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC7BF7510CABE2325E4C3F7C3715568D7493F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246822   (356673) от 21.10.2018
+
+Brian Simpson - Something About You (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something About You
+02. Morning Samba
+03. Mojave
+04. Chemistry(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D455B97F83F872872E992E4DC9DA3942485250F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256242   (356672) от 21.10.2018
+
+Легенда о святом пропойце / La leggenda del santo bevitore (1988) BDRip [1080p] ATV (AVO)
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андреас Картак, в прошлом - шахтер из Силезии, ныне - обычный клошар и пьяница, спящий под парижскими мостами. Его жизнь подобна жизням сотен других таких же бездомных бродяг. И вдруг случается маленькое чудо - незнакомый человек предлагает ему 200 франков, говоря: "У меня денег больше, чем мне нужно". Но Андреас отказывается, говоря, что он - человек чести (   Читать дальше...   )Производство: Италия, Франция / Radiotelevisione Italiana (RAI), Cecchi Gori Group Tiger Cinematografica, Aura FilmЖанр: ДрамаРежиссер: Эрманно ОльмиАктеры: Рутгер Хауэр, Энтони Куэйл, Сандрин Дюма, Доминик Пинон, Софи Сегален, Сесиль Паоли, Жан-Морис Шане, Джозеф Де Медина, Франческо Альдигьери, Франсуаз Пинквассер, Мария Маззокко, Далила БелатрекеПеревод: Авторский одноголосыйСубтитры: Английские (вшитые, отключаемые), Итальянские (вшитые, отключаемые)Продолжительность: 02:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4143BBBB3117CCD27A85DF41AF1FFDE22884898A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256272   (356671) от 21.10.2018
+
+Мария Аксенова | Знаем ли мы всё о классиках мировой литературы? (2018) [FB2]
 
 >>Разное (категория книг)
->>Религиозная литература
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356618.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артур Древс (1865-1935) - немецкий философ, писатель, ученик Н. Гартмана, наряду с Б. Бауэром, А. Кальтхофом и др. принадлежит к известным немецким полемистам, отрицающим реальность существования Иисуса Христа в истории. Его произведение «Миф о христе» (1909) вызвало многочисленные открытые дискуссии, широкие протесты христианской общественности и резкую критику (   Читать дальше...   )Формат: DJVU
+…«И гений, парадоксов друг» – гений и впрямь может быть другом парадоксов своей биографии… Как только писателя причисляют к сонму классиков – происходит небожественное чудо: живого человека заменяет икона в виде портрета в кабинете литературы, а всё, что не укладывается в канон, как будто стирается ластиком из его биографии. А не укладывается не так уж мало. Пушкин (   Читать дальше...   )Жанр: Биографии и Мемуары, Литературоведение, ПублицистикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E62DF60FF83F6BAADF34C2FB04DA10D1FE47648
+magnet:?xt=urn:btih:20DE7E0DFFCCC7D2F22A6E931513B95C2B15CA19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,26 +624,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 837313   (356613) от 03.11.2014
+###  Публикация: 1256476   (356670) от 21.10.2018
 
-Серебристый звон ручья (2013) HDTVRip [H.264/1080p-LQ]
+Brave Browser 0.55.18 Portable by Cento8 [Ru/En]
 
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356613.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главная героиня Леся — сирота, живет в глухой деревушке на берегу ручья у своей старенькой бабушки Шуры, которую местные жители считают колдуньей. Но на самом деле Шура потомственная знахарка, обладающая даром лечить людей. Леся с детства помогает бабке собирать травы для целебных отваров, и сама лечит разнообразную живность, которую ей приводят односельчане.
-Однажды (   Читать дальше...   )Производство: Россия/"Weit Media"Жанр: МелодрамаРежиссер: Игорь КечаевАктеры: Татьяна Полосина, Ада Роговцева, Илья Ильин, Александр Пашков, Владимир Смирнов и др.Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:30:13
+Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFF4685928805BC2AF3ACFB0EF01DC588962AAE1
+magnet:?xt=urn:btih:C5E0B5E8C00688253C941320AF2817C9988BB360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577310   (356668) от 18.09.2022
+
+Главная роль / Competencia oficial / Official Competition (2021) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тщеславный миллиардер задался целью вписать свое имя в историю, взявшись за создание идеального фильма. Сценарий — книга Нобелевского лауреата, режиссер — модная и эксцентричная, в главных ролях — разбитной секс-символ кумир миллионов и высоколобый драматический актер. Ждать шедевра или ждать беды?Производство: Испания, Аргентина / The MediaPro StudioЖанр: драма, комедияРежиссер: Мариано Кон, Гастон ДюпраАктеры: Пенелопа Крус, Антонио Бандерас, Оскар Мартинес, Хосе Луис Гомес, Маноло Соло, Нагоре Арамбуру, Ирена Эсколар, Пилар Кастро, Кольдо Олабарри, Хуан ГрандинеттиПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: Русский, ИспанскийСубтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40211B8E028FE01577A9CC2FEEA82D626E32B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577438   (356667) от 18.09.2022
+
+Академия ТОР | Академия ТОР. Game Development (2020) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник лекций от компьютерной Академии Top.
+Создание первого уровня.
+Добавление переменных и противников.
+Создание сложных патрулирующих противников и препятствий.(   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0662EBC0502E62410209E7C02FD6DD941A61A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

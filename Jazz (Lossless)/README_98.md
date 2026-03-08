@@ -1,3 +1,32 @@
+###  Публикация: 1129425   (722712) от 28.04.2017
+
+Kenny Burrell - Midnight Blue (1967) 1999, RVG Edition [WavPack|Lossless|image + .cue] <Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722712.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chitlins Con Carne  5:30
+2. Mule  6:57
+3. Soul Lament  2:44
+4. Midnight Blue  4:02(   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF94B0636E9D790CCB44405F85E93EA1251751E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129410   (722629) от 28.04.2017
 
 Kenny Burrell - Introducing Kenny Burrell (1956) 2000, 2CD, Compilation [WavPack|Lossless|image + .cue] <Jazz, Hard Bop>
@@ -716,35 +745,6 @@ Al Haig & Jimmy Raney - Strings Attached (1975) Remaster, 2007, Absord Music [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:986809BDE3BCF60883F183BE41F1FCFAFEC6B749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129919   (719002) от 30.04.2017
-
-Martin Krusche - Friendship Pagoda (2000) Naxos Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix [08:07]
-02. Southem Belles [12:49]
-03. Chelsea Bridge [07:52]
-04. I'd Like To Sing [12:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A385A77BC711BCBCF21EB0DBAE6C4975FC5209
 ```
 
 https://mybot314.ru/tekegram_catalog/

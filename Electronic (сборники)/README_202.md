@@ -1,3 +1,32 @@
+###  Публикация: 1086428   (153284) от 24.12.2016
+
+VA - Empire Records - Chill Out 5 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn - Shine (Extended Mix)
+02. Deep Brother Feat. Rehane & Pasquier - Lost In Time
+03. Rino Da Silva - Trip To Rimini
+04. Enrico Donner - Untouched Ground(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1E0B177CC17161843187B2F0C778B3EB78434D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588013   (153172) от 14.12.2012
 
 VA - Creative Electro Box 1 (2012) [MP3|320 кб/с]<House/Electro House/Electro>
@@ -732,35 +761,6 @@ VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DBF1DE9B9DBFDAD0D53B201B5CFB654CA850180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519430   (148684) от 24.12.2021
-
-VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной презент для любителей танцевальной музыки на треках сборника под названием "Best White Party"! Веселые ритмичные мелодии поднимающие настроение и под которые так сложно не пуститься в зажигательный танец.001. Colle - Nowhere To Follow
-002. Grum - Price Of Love
-003. Lezcano - In My Time Of Need
-004. Dany Dz - Strangers(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 12:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F231AFEF2B6B2ACA49F622524763BCAB2A9E7F5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

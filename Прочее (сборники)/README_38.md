@@ -1,3 +1,119 @@
+###  Публикация: 1115611   (825669) от 18.03.2017
+
+VA - Клубные Суперхиты (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blasterjaxx & Jonathan Mendelsohn - Black Rose (Blasterjaxx Club Mix)  3:47
+02.  DJ Antoine & Conor Maynard - Dancing In The Headlights (Rudeejay & Da Brozz Club Mix)  4:01
+03.  Katy Perry & Skip Marley - Chained To The Rhythm (Liam Keegan Instrumental Mix)  4:37
+04.  Vali - Ain't No Friend Of Mine (Jesus Montanez Club Mix)  5:23(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FDC9E2EACE9E394C35241BD0DAD908F478B02FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115808   (825667) от 18.03.2017
+
+VA - 20 Песен, которые заставляют сердце биться чаще (2016) [MP3|192-320 Kbps] <Rock, Blues, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U2 - With Or Without You - 04:55
+02. Aerosmith - I Don't Want To Miss A Thing (Radio Edit) - 04:58
+03. Jeff Buckley - Hallelujah (Radio Edit) - 04:15
+04. A-ha - Velvet (Album Version) - 04:19(   Читать дальше...   )Жанр: Rock, Blues, PopПродолжительность: 01:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D780B6F7E77A2E670D61FD5DC667DA7CB2A4F812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115816   (825663) от 18.03.2017
+
+VA - 20 Кавер версий которые превзошли оригинал (2016) [MP3|192-320 Kbps] <Rock, Blues, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - I Will Always Love You - 04:30
+02. Johnny Cash - Hurt - 03:38
+03. Jeff Buckley - Hallelujah (Radio Edit) - 04:15
+04. Nirvana - Man Who Sold The World (Live, MTV Unplugged) - 03:50(   Читать дальше...   )Жанр: Rock, Blues, PopПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1012FDBC7B7C4D76AFDD6C1101895A70152A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006909   (825476) от 13.04.2016
+
+VA - Popular Dance Boy And Girl (2016) [MP3|64-320 кб/с] <Pop, Dance, Eurodance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825476.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ro-MINA & Christiano Jordano - Insane (Dave Aude Remix)
+002. Coldplay - Adventure Of A Lifetime (Audien Extended Remix)
+003. Acim - All My Life (Original Mix)
+004. Lenny Kravitz & Merk & Kremont - Are You Gonna Go My Way(   Читать дальше...   )Жанр: Pop, Dance, Eurodance, HouseПродолжительность: 08:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF3D905F5C759887389763F0724AC16A46F8F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116122   (824968) от 19.03.2017
 
 VA - Minimal Tech House: 120 Club Party (2017) [MP3|320 Kbps] <Dance, Club, Minimal Tech House>
@@ -629,122 +745,6 @@ VA - German Top 100 Single Charts 05.01.2018 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:841B79A93071BCCA9CBEBBF90FE73D581A074076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196316   (820407) от 04.01.2018
-
-VA - Музыка, с которой мы выросли (зарубежная) (1970-1995) Pop, rock, disco [MP3|320 Kbps] <Pop, rock, disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - Lookin' Out My Back Door (1970) 02:35
-02. Uriah Heep - Lady In Black (1971) 04:44
-03. Led Zeppelin - Rock And Roll (1971) 03:41
-04. Sweet - Jeanie (1971) 03:01(   Читать дальше...   )Жанр: Pop, rock, discoПродолжительность: 08:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AA64B20B3FBFD52511DA248B361A2FA76D61E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117089   (820130) от 21.03.2017
-
-VA - Лучшие Хитовые Ретро Ремиксы (от LORDEGRAF) (2017) [MP3|320 Kbps] <House, Remixes, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820130.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Scooter - No Fate (Dmitriy Rs & DJ Cheeful Remix)  3:45
-002.  Dr. Alban - Enemies (DJ Kapral Remix)  4:33
-003.  Kate Ryan - Voyage Voyage (Yastreb Edit Mix)  3:47
-004.  Hi-Fi - Седьмой лепесток (DJ Agamirov & DJ Karabaev Remix)  3:50(   Читать дальше...   )Жанр: House, Remixes, Dance, ClubПродолжительность: 07:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4C16D79D71C60E489A8BD364805ED27302AE2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007807   (819893) от 16.04.2016
-
-VA - Neon Star Spring Club Edition (2016) [MP3|250-320 кб/с] <Dance, Club, House, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819893.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Puentez - Collide (feat. Robyn The Bank)
-002. Omar Carmona - On Fire
-003. Mario Fiebiger, Project 37 - Second One
-004. Patrick Hofmann - Noon(   Читать дальше...   )Жанр: Dance, Club, House, ElectroПродолжительность: 08:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCFF63F22399FF0BB8CBFF572F7D8446C3710404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007704   (819661) от 16.04.2016
-
-VA - Nashville Country Blues (2016) [MP3|320 кб/с] <Rock Blues, Country, Folk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Big Boy Bloater & The Limits - The Devils Tail
-002. Dolly Parton - Jolene
-003. Glen Campbell - Rhinestone Cowboy
-004. Blake Shelton - Ol' Red(   Читать дальше...   )Жанр: Rock Blues, Country, FolkПродолжительность: 06:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2827D5631603F4EAB098FF80427CEF06E2A5E63C
 ```
 
 https://mybot314.ru/tekegram_catalog/

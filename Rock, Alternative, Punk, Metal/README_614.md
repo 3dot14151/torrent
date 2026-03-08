@@ -1,38 +1,3 @@
-###  Публикация: 242863   (447628) от 07.10.2010
-
-Joe Satriani - The Very Best (2010) [MP3|320 kbps]<Рок / Guitar, Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surfing With the Alien
-02. Always With Me, Always With You
-03. The Crush of Love
-04. Flying in a Blue Dream
-05. Summer Song
-06. Time Machine
-07. Luminous Flesh Giants
-08. Ceremony
-09. Starry Night
-10. Up in Flames(   Читать дальше...   )Жанр: Рок / Guitar, Instrumental RockПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409258   (447589) от 16.09.2020
 
 Tramtracks - Then? (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Crossover Prog>
@@ -751,6 +716,35 @@ Space Of Variations - Imago (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55C9C60593EAA26B48400B95E4051703D60FE554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943631   (447215) от 04.10.2015
+
+Heart Of A Coward - Deliverance (2015) [MP3|320 кб/с]<Progressive Metalcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollow (4:17)
+02. Miscreation (4:36)
+03. Turmoil I: Wolves (4:16)
+04. Turmoil II: The Weak Inherit The Earth (5:49)(   Читать дальше...   )Жанр: Progressive Metalcore, HardcoreПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF54C03AB682BE53359C1725BED20CADC579DD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

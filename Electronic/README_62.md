@@ -1,3 +1,61 @@
+###  Публикация: 624363   (952181) от 28.02.2013
+
+Christophe Goze - A Day In Ibiza 2 (2012) [FLAC (tracks+cue)|Lossless]<Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close To You
+02. Someday I Wil
+03. Moonlight
+04. A New Beginning(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361784   (951994) от 21.02.2020
+
+Depeche Mode - Mode (2020) 18 СD, Box Set, Compilation, Limited Edition, Numbered [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Life (03:46)
+02. I Sometimes Wish I Was Dead (02:18)
+03. Puppets (03:57)
+04. Boys Say Go! (03:08)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 15:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50758C4FFA5A104A75812028B3969F1033222F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981249   (951619) от 01.02.2016
 
 VA - Dark Sessions Radio 014 (Mixed by Oberon) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
@@ -681,64 +739,6 @@ VA - Dubstep 2017 (30 Top Best Of Hits) (2016) [MP3|320 Kbps] <Dirty Dubstep, Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A7E739F88A69E0275351507794540B8D8F85F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981452   (949865) от 02.02.2016
-
-VA - OWSLA Worldwide Broadcast (2016) [MP3|320 кб/с] <Dubstep, Future Bass, Trap>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GTA feat. Sam Bruno - Red Lips (Skrillex Remix)
-02. Getter & Ghastly - 666!
-03. Wiwek feat. Audio Bullys - Rebels
-04. DJ Snake - Middle (Miija Remix)(   Читать дальше...   )Жанр: Dubstep, Electro, Future Bass, Jungle, TrapПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9263634202E5FB9FE86D7A76F688E08FDBDC32C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981977   (949801) от 02.02.2016
-
-Koan - Eddur: Second Scroll (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient Dub, Progressive House, Psychill, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obsession (white mix) (9:46)
-02. Enchanted Cave (white mix) (9:45)
-03. Delusion (black mix) (9:17)
-04. False Astronomy (roeth & grey mix) (8:14)(   Читать дальше...   )Жанр: Ambient Dub, Progressive House, Psychill, DowntempoПродолжительность: 02:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1DB2F794BF11EFD9FEA68E0D4284376FBADD66
 ```
 
 https://mybot314.ru/tekegram_catalog/

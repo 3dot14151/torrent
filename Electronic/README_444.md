@@ -1,3 +1,61 @@
+###  Публикация: 1086181   (154807) от 23.12.2016
+
+VA - Disco House 2k17 (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djm - Wake Up Everybody (Main Mix) 04:02
+02. Dpdg - You To Me Are Everything (Tbo & Vega Remix) 03:48
+03. Moomicoo - Don't Look Any Further (Moomicoo Mix) 04:24
+04. Jason Parker - U Sure Do (Radio Edit) 03:25(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC4920C450BE9F03FCB5F7DB930B94B4EBC6856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086194   (154674) от 23.12.2016
+
+VA - Disco Christmas 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Favorite & Laura Grig - Last Christmas (Dj T'paul Sax Mix) 05:37
+02. Dj Favorite & Sugarmammas - Bad Girls (Original Disco Mix) 04:45
+03. Major Lover & Will Fast - First Life (Original Mix) 06:10
+04. Dj Favorite & Theory - Beautiful Night (Dj Flight Remix) 05:22(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F065ABB77472CD63CBD6A7F92D135C190B2C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433982   (154653) от 22.12.2020
 
 VA - Myon Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
@@ -688,61 +746,6 @@ VA - Delicate Lounge (feat. , Jana Tarasenko) (2012) [MP3|320 кб/с]<Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C3281395B07A4BFDD32040AEA03BFFE648A9A65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194899   (152464) от 27.12.2017
-
-VA - Fg Top 10: December 2017 [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Freegrant - Fall In Love (Emme Extended Remix ) 05:55
-02. Bodo Kaiser - Time Square (Original Mix) 04:46
-03. Aurean - Heatwave (Original Mix) 05:00
-04. Alex H - Rainforest (Extended Mix) 07:09(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D35110B25F0B017271A9DB56B1F9CE126373BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194883   (152406) от 27.12.2017
-
-Stanislav Vdovin | Unit 21 | Initial Run - Collection 11 Releases (2007-2017) Occasion [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Drone, Experimental, IDM, Abstract, Techno, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Big Picture (06:28)Тип издания: CD, WebЖанр: Techno/MinimalПродолжительность: 00:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:005D536703B0854940A3C8E4257E1E954D8F718A
 ```
 
 https://mybot314.ru/tekegram_catalog/

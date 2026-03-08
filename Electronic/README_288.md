@@ -1,3 +1,61 @@
+###  Публикация: 1244042   (486176) от 30.08.2018
+
+VA - Funky Disco House Grooves, Vol. 12 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eaze - What You Need (Rampus Remix)
+02. James Teej - The Only Constant Is Change (Original Mix)
+03. Mike Mac - Disko Biskit (Original Mix)
+04. Klima Project - Gravity Material (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12618E421A73B32B4A42602444D6197E7064FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244095   (486170) от 30.08.2018
+
+VA - To Get Her in the Mood Feed Her Music Workout Tracks (2018) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joelina Haak - Palms [03:10]
+02. Joel Fuel - Knittle [03:10]
+03. Jetsetta - The Tap [03:10]
+04. Jeff Haymaker - Glites [03:10](   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8FCF2136F780E2A2A86C43AD213321C05F709E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159167   (486132) от 19.08.2017
 
 L.S.G. - Double Vision (2017) [MP3|320 Kbps] <Progressive House, Downtempo, Electronica>
@@ -691,64 +749,6 @@ VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB06A5780351360FAB66D061B9D79FA280C3F046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055984   (483861) от 24.09.2016
-
-Delerium feat Phildel - Ritual (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dark Ambient, Industrial>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483861.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. - Ritual (Album Mix) 5:13
- 2. - Ritual (Radio Edit) 4:11
- 3. - Ritual (Matt Lange Remix) 6:37
- 4. - Ritual (Alex Klingle Remix) 5:32(   Читать дальше...   )Жанр: Trance, Dark Ambient, IndustrialПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6A7A398B4F63A70ED73503709DC549ED36AC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159063   (483810) от 20.08.2017
-
-VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sultan & Shepard - Bloom (Intro Mix)  4:05
-02.  K-System - Manana  3:31
-03.  Andy Moor - FaceOff  2:54
-04.  Rodrigo Deem - Tearsdrop  3:28(   Читать дальше...   )Жанр: TranceПродолжительность: 04:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65141CB72C9375E5CB31640686C6593A167C5B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

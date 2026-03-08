@@ -1,3 +1,61 @@
+###  Публикация: 250879   (366259) от 03.11.2010
+
+Quest Pistols - Дискография (3 альбома) (2008-2009) [MP3|320 kbps]<Pop/Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/RockПродолжительность: 00:45:19
+
+01. Белая стрекоза любви
+02. Все пахнет тобой(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964D3460C4210C1D2B7D623DD6D75BF92E575049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177246   (365475) от 24.10.2017
+
+Fever - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fever (Лихорадка) - американская трио диско группа, созданная в 1978 году в  Сан-Франциско. Записали только эти два альбома.01. Beat Of The Night (5:54)
+02. Work Me (5:23)
+03. Treat Me Right (5:16)
+04. Pump It Up (4:53)(   Читать дальше...   )Жанр: Electronic, Funk, Soul, DiscoПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0EC5C82C736BE5E610F0E6FD8775AA265F4A628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951217   (365210) от 28.10.2015
 
 Мираж - The Best Of Greatest Hits (2002) [FLAC|image+.cue]<Pop>
@@ -684,64 +742,6 @@ Zola Jesus - Okovi (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Experimental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B26D659D42103ECCD0DA2260D53D73ACB3E93631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328066   (363112) от 30.09.2019
-
-Adriano Celentano - Adrian (2019) 2CD [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Want To Know (Remixed by Benny Benassi)[3:46]
- 02 - Prisencolinensinainciusol (Remixed by Benny Benassi)[4:09]
- 03 - Ti Penso E Cambia Il Mondo[4:22]
- 04 - Storia D'amore[4:55](   Читать дальше...   )Жанр: PopПродолжительность: 01:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE4B04F53A55E3B4A25A4BD0FA2B90AE9273E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950898   (363079) от 29.10.2015
-
-Arabesque - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friday Night (04:16)
-02. In For A Penny, In For A Pound (03:01)
-03. Hello Mr. Monkey (03:28)
-04. Billy's Barbeque (02:49)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5CF5CAC5E47CE03FDB92C74A8CD0398287DAEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

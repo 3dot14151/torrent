@@ -1,3 +1,32 @@
+###  Публикация: 1341994   (225207) от 01.12.2019
+
+Rick Wakeman - Christmas Portraits (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL]<Classical, Piano, Instrumental>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225207.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - The First Noel [3:26]
+ 2 - In The Bleak Midwinter [3:36]
+ 3 - Deck The Halls  / Away In A Manger [3:29]
+ 4 - The Holly & The Ivy / Mary's Boy Child [3:25](   Читать дальше...   )Жанр: Classical, Piano, InstrumentalПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78648C6F69A0D70C4392FF31D64FD91588E90A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991943   (225025) от 01.12.2019
 
 Heinali - Sway, sway (2013) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Modern Classical>
@@ -711,35 +740,6 @@ André Rieu - Voila! The Music of André Rieu (2023) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECBAB9316B1DDC665DCCF53CCE9E3DDBCED46E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588856   (191020) от 06.11.2022
-
-VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Schmalfuss - Piano Sonata No. 11 in A Major, K. 331 III. Alla turca. Allegretto (3:29)
-02. Peter Schmalfuss - Suite bergamasque, L. 75 III. Clair de lune (5:08)
-03. Peter Schmalfuss - Liebesträume, notturnos for piano, S. 541 No. 3 in A-Flat Major O lieb so lang' Du lieben kannst (4:00)
-04. Frank Glazer - 3 Gymnopédies I. Lent et douloureux (2:57)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F690C8233000EEDBFBD570AF2AF4DE2BB7B4F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

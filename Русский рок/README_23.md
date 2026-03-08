@@ -1,29 +1,3 @@
-###  Публикация: 1110595   (851913) от 03.03.2017
-
-Вадим Самойлов - Другие (2017) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851913.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ДругиеЖанр: RockПродолжительность: 00:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA40F2E0A1044FAA49108AC84AF84DE18FAB87C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110810   (851848) от 03.03.2017
 
 Мураками - Ипи (2017) EP [MP3|320 Kbps] <Rock>
@@ -735,6 +709,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D10B8D05579C2D8641183FC486FF115A9A6FFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499880   (846168) от 03.10.2021
+
+Эпидемия (Андрей Лаптев, Новый Состав) - Не Ищи Меня (2021) Maxi-single [MP3|320 kbps] <Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не Ищи Меня (03:55)
+02. Феанор (feat А.Булгаков) (08:32)
+03. Не ищи меня (инструментал) (03:56)
+04. Феанор (инструментал) (08:32)Жанр: Power Metal, Heavy MetalПродолжительность: 00:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19978F761987A45CF7BC1C55B4C9C4E58D648725
 ```
 
 https://mybot314.ru/tekegram_catalog/

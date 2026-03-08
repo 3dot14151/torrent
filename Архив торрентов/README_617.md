@@ -1,3 +1,29 @@
+###  Публикация: 289354   (917282) от 01.02.2011
+
+VA - Trance Travel Vol.10 (New York City) (2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Жанр: Vocal Trance, Uplifting Trance, Dream Trance, Trance, Progressive TranceПродолжительность: 01:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635184906150C99835377EBC987C51151EA27ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289721   (917280) от 01.02.2011
 
 Декан Спэнли / Dean Spanley (2008) SATRip
@@ -696,32 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A09869E1AF8140E914FA3C121867B2E9C52EF451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367420   (917145) от 15.03.2020
-
-Infix PDF Editor Pro 7.4.4 Portable by conservator [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917145.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью Infix PDF Editor вы можете открывать, изменять и сохранять файлы PDF. Это просто и не занимает много времени: можно изменить текст, шрифты, изображения и пр. И в отличие от других PDF-редакторов, Infix работает как обычный текстовый редактор, и действительно удобен в использовании. Избавление от опечаток: быстрое исправление ошибок в файлах PDF. Использование (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C234E410B29662E3D6EB73DF9054286A47C607BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

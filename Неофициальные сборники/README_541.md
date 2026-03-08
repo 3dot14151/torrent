@@ -1,3 +1,177 @@
+###  Публикация: 1341473   (262307) от 28.11.2019
+
+VA - Soul And Love Song (2019) [MP3|320 Kbps] <Soul, R&B, Other>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262307.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Allуshа Jоу - Fnfl
+002. Jеаn Dеаux - It’s Whаtеvеr
+003. Quеntin Mооrе - Swееt Sроt
+004. K'nуа - Cоnstаnt(   Читать дальше...   )Жанр: Soul, R&B, OtherПродолжительность: 09:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E27A3ABAB293B47A12F351A3FF1111A86404BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341453   (262293) от 28.11.2019
+
+VA - Yoga And Meditation Ambient Music (2019) [MP3|320 Kbps] <Ambient, New Age, Relaxation>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262293.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hilsa - Ilish
+002. Niteanday - Always There
+003. Melezh - Flying With Meteors (Ambient Edit)
+004. Marga Sol - Morning Sun(   Читать дальше...   )Жанр: Ambient, New Age, RelaxationПродолжительность: 11:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D2CAB0D03ED0A7ECDA10F32D63339F55849A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193206   (262255) от 20.12.2017
+
+VA - De Top 100 Aller Tijden 1973 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262255.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sharif Dean - Do You Love Me (3:41)
+002. Rolling Stones - Angie (4:32)
+003. Redbone - We Were All Wounded At Wounded Knee (3:31)
+004. Gerard Cox - 't Is Weer Voorbij Die Mooie Zomer (4:29)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCDC0761ACCBAE1F82344D6740DF86FE036B6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193276   (262250) от 20.12.2017
+
+VA - Remix Voyage Vol.1 (2017) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hi-Fi  -  Седьмой Лепесток (DJ Golden Love Remix)  3:21
+02.  Лариса Черникова  -  Да ты не смейся (Sergey Litvinov Reboot)  3:27
+03.  B.G. The Prince Of Rap  -  Never Give Up (B.M. Project Eurodance Remix)  4:26
+04.  Liz Project  -  Моя подруга (DJ Sergey Litvinov Remix)  3:53(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 06:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB765EF3A50FD2730F79B2DC89CC1432601BC0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193464   (262118) от 21.12.2017
+
+VA - Remix Voyage Vol.2 (2017) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sergey Sirotin & Golden Light Orchestra  -  Around The World (Johnny Beast Remix)  5:41
+02.  ABBA Revival Band  -  Super Trouper (Dance Remixed Version)  3:34
+03.  Alan Walker  -  Sing Me To Sleep (DJ Oneon Remix)  3:46
+04.  Donna Summer  -  Nice To See You (Radio Club Version)  3:27(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 06:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A34F1DDAFC720AF86DC9D514CCF58A3493B5620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193389   (262111) от 21.12.2017
+
+VA - German Top 100 Single Charts 22.12.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262111.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Bausa - Was du Liebe nennst
+003. Camila Cabello - Havana (feat. Young Thug)
+004. Justin Bieber - Friends(   Читать дальше...   )Жанр: PopПродолжительность: 05:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9E24DF8E433E6955301EA829B50BF78876EF5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193582   (262072) от 21.12.2017
 
 VA - Hard Rock Division Vol.03 (2017) [MP3|320 Kbps] <Hard Rock, Alterhative>
@@ -583,216 +757,6 @@ VA - Music News For Forum vol.149 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC53FFBD9DA5D2F45D10221C0B5931C1C5AF8EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505480   (261274) от 04.06.2012
-
-VA - Музыка для кача (1996-2012) [MP3|320 кб/с]<Metall, Heavy Metal, Industrial>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261274.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:46] 09. Scooter - How Much Is the Fish?
-[03:32] 04. Scooter - Fire
-[05:30] 01. Manowar - Call to Arms
-[05:52] 08. Manowar - Warriors Of The World United
-[03:49] 12. Primal Fear - Conviction
-[03:56] 11. Primal Fear - Blaze Of Glory
-[04:39] 02. Primal Fear - Strike
-[04:10] 02. Rammstein - Der Meister
-[04:18] 03. Manowar - King Of Kings
-[05:19] 01. Manowar - Return Of The Warlord(   Читать дальше...   )1996-2012Жанр: Metall, Heavy Metal, IndustrialПродолжительность: 01:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9792F4B46EE4C4B6C6579AD6868499FB4474AFB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505508   (261199) от 04.06.2012
-
-VA - Инструментальная музыка (2012) vol. № 61 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А.Шишков - Странник
-02. L.Cannavacciuolo - Altalena
-03. А.Зацепин - Дождь прошел
-04. Diane Warren - Unbreak My Heart
-05. G.Marradi - Esta Tarde Vi Llover
-06. Rieu - Shtraus Frühlingsstimmen Walzer
-07. The R.S.O. - All Alone Am I
-08. Relaxx (Everning) - Garden Of Dreams
-09. J.Emblow - Tango Of The Bells
-10. K.Rogers - Don't Fall In Love With A Dreamer(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6831C75261D722451DDC2C30B35D066F10620DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505512   (261182) от 04.06.2012
-
-VA - Инструментальная музыка (2012) vol. № 62 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J.Last - La Vie En Rose
-02. Gil Ventura - Taxi Driver
-03. Amir - Bissalama
-04. Fish Tank - The Eighty Eight
-05. F.Goya - Mona Lisa
-06. И.Крутой - Шепот пальмовых листьев на теплом ветру
-07. Karunesh - The Commune
-08. Armik - Mystical Breezes
-09. G.Marradi - Broken Hearts
-10. В.Ковтун - Полет шмеля(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663376019E375B74BB24F3DEDC645F340C49917B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505057   (261040) от 03.06.2012
-
-VA - Русская Дискотека 80-90-Х Remix DJ Vol.2 (2012) [MP3|256 kbps]<Dance|Club|Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наташа Королева - Конфетти (Carnaval Version 2011)
-02. Анжелика Варум - Зимняя вишня (Ural Djs Ritm Version)
-03. Dj Нил & Андрей Аверин - Бабло побеждает зло (Radio Gansta House Rap Mix)
-04. A-Europa - Белые Небеса (Dj Nastasya Radio Mix)
-05. DJ Mikola vs. Руки Вверх - Крошка моя (DJ XM Remix)
-06. Натали - Черепашка (DJ Melnikoff Remix)
-07. DJ Andrew S.Mile & Syntheticsax - Лезгинка (House Style)
-08. Балаган Лимитед - Че те надо (DJ Dron Remix)
-09. Ева Польна - Не расставаясь (Official Club Version)
-10. Света & DJ Jump - Город рая 2011 (Aleksey Kraft Remix)(   Читать дальше...   )2012Жанр: Dance|Club|DiscoПродолжительность: 06:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA299C1CE87E21A20050AEEC216D007033A09B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504965   (260828) от 03.06.2012
-
-VA - Союз Летних Хитов Лучшая 200-ка 50/50 (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Rynno feat. Sylvia - Bring Me Back (Original Radio Edit)
-002. Чай Вдвоем - Время вода
-003. The Disco Boys - Around The World (Radio Mix)
-004. Светлана Лобода - Облака
-005. Taio Cruz - Troublemaker (Radio Edit)
-006. Тимати и Григорий Лепс - Реквием по любви
-007. Sheikh feat. Nicco - Hold Tight (Radio Mix)
-008. Вика Дайнеко - Уезжай
-009. Melanie C - Too Soon
-010. Алсу - Утро надежд(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352DE84406CB3469EAE2C36DFFBD24D1A6E51963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505073   (260808) от 03.06.2012
-
-VA - Maxi. Mega Italo Disco (2012) [MP3|320 kbps]<Dance|Pop|Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Zivago - Tell By Your Eyes
-02. Robin - Flames Of Love
-03. Latin Rose - Everybody Is Gay
-04. Ken Laszlo - Tonight
-05. Den Harrow - Don't Break My Heart 2k
-06. Righeira - La Bionda - Vamos A La Playa
-07. Mikki - Meteor Man 2k - Rainbow
-08. Larabell - Up And Down
-09. Grooove - Black Is Black
-10. Alan Cook - Bad Dreams(   Читать дальше...   )2012Жанр: Dance|Pop|DiscoПродолжительность: 05:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A56706A0DEED7364CEE3EEF0A79CB99F89A879
 ```
 
 https://mybot314.ru/tekegram_catalog/

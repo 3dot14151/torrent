@@ -1,3 +1,177 @@
+###  Публикация: 1462982   (1020759) от 16.04.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 16.04.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masked Wolf - Astronaut In The Ocean (2:12)
+02. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
+03. Thomas Gold - Pump Up The Jam (2:33)
+04. Foushee - Deep End (2:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8A7905A007B15BE3A96C46DB314E3E611FF513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463097   (1020688) от 17.04.2021
+
+VA - Biometric Key: Future Techno (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастическая электронная музыка с выразительными ритмами и самыми эксцентричными мотивами была собрана в специальную тематическую коллекцию под названием «Biometric Key». Встречайте настоящий эксклюзив из области техно электроники.001. Szmer - Q (Original Mix)
+002. Dupleaux - Do It To Me
+003. Pablo Caballero - Darker Rawness
+004. Questhe - The Dna(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 11:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07EE2F9C0609398572CF92A72F68A9147364FAC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463099   (1020680) от 17.04.2021
+
+VA - Beatport Tech House: Sound Pack #276 (2021) [MP3|320 Kbps] <Tech House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это 276-я компиляция от Beatport из популярных танцевальных хитов, которые наверняка узнает каждый клаббер, интересующийся актуальными танцевальными новинками и регулярно посещающий ночные клубы001. Tuccillo - Work It
+002. Matrix - Get Out
+003. Osheen & Roland Clark - Last Night
+004. Jad Peak - Rating(   Читать дальше...   )Жанр: Tech House, Club, DanceПродолжительность: 10:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6926916D7BF639C4ABC83BB0C89582C08234BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463118   (1020650) от 17.04.2021
+
+VA - German Top 100 Single Charts 16.04.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
+02. Santos, Sido & Samra - Leere Hände
+03. Luciano - KIDS FROM THE BLOCK
+04. Lil Nas X - MONTERO (Call Me By Your Name) (But Lil Nas X Is Silent The Entire Time)(   Читать дальше...   )Жанр: PopПродолжительность: 04:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1029B79DDBA85BEAE9692B4F24B979AD304AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463218   (1020639) от 17.04.2021
+
+VA - Music News vol.92 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Iguana - Минимум (03:51)
+ 002. AFSHINAM feat. Vivranmodi - Ajnabi (03:35)
+ 003. Alexa - Como Hare (04:26)
+ 004. Alyona Poli - Свет (02:40)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 09:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADD526C34CA747E9BF4C7ECD1D09ED88A699B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463319   (1020610) от 17.04.2021
+
+VA - Chill Hits (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020610.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Conan Gray - Heather (3:18)
+002. LEON - In a Stranger's Arms (3:21)
+003. Sasha Sloan - smiling when i die (3:26)
+004. ZAYN - Vibez (2:43)(   Читать дальше...   )Жанр: PopПродолжительность: 06:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842F5633783977BCEF4D9CB9B69089956CD9CD65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463103   (1020582) от 17.04.2021
 
 Harvey Mandel - The Best Of Harvey Mandel (1971-2020) (2021) [MP3|320 Kbps] <Blues, Rock Blues>
@@ -571,180 +745,6 @@ VA - Music News vol.94 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A55B325F542F5D99191CB0AB88F0C8D37E9DDED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465172   (1019290) от 25.04.2021
-
-VA - The Official UK Top 100 Singles Chart 23.04.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil Nas X - MONTERO (Call Me By Your Name)
-02. Justin Bieber, Daniel Caesar, Giveon - Peaches
-03. Joel Corry, Raye, David Guetta - BED
-04. POLO G - RAPSTAR(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D70154CD6559D8318BAC1C0C20E29367C5C09CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465306   (1019288) от 25.04.2021
-
-VA - Music News vol.93 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019288.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. RYZE - Девочка Повзрослела (02:51)
- 002. Alzabi - Улети (02:55)
- 003. AMI feat. Tata Vlad - Enigma (02:54)
- 004. Anet Fadeeva - Скажу Я Спасибо! (04:04)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614B0EE3C9C11B9D14993FFFD389CAD514DF5349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465365   (1019283) от 25.04.2021
-
-VA - Music News vol.95 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019283.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mira - Nave Spatiale (Adrian Funk & OLiX Remix) (03:40)
- 002. Adriana Mezzadri - Marcas De Ayer (Starix Remix) (02:21)
- 003. Akha - Какая Ты Красивая (03:11)
- 004. Aleksia - Лавшеринг (02:35)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139A5F4C50FB3FA88EDC35C0940A67A7CCC8FF26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465761   (1018943) от 27.04.2021
-
-VA - Workout Motivation 2 (2021) [MP3|320 Kbps] <Dance, House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sophie Francis - Six Pack (2:33)
-02. Lucas Estrada, Wahlstedt, AMAYA - Naked (3:16)
-03. Broder - Mood (2:00)
-04. Emdi, Ardo - drivers license (3:00)(   Читать дальше...   )Жанр: Dance, House, OtherПродолжительность: 03:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:201BAE585B3233FF66F6775FFEC29817C636E1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465651   (1018867) от 27.04.2021
-
-VA - Крутые пушки Весна 2 2021 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Let U Go 2021 (DJ Nick White Remix) (5:15)
-02. David Guetta feat. Kid Cudi - Memories (Jenia Smile Ser Twister Extended Remix) (4:11)
-03. Morandi feat. Helene - Save Me (Jenia Smile Ser Twister Extended Remix) (4:11)
-04. Akon Eminem x Frost amp Twistsound x Butesha amp Vlad Kuzmenko - Smack That (Danil Siyanov Mash Up Radio Edit) (3:02)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 07:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966142C990B176D4DAF6010AC3579C1DB8C94789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465894   (1018829) от 28.04.2021
-
-VA - Specific techno Electronic (2021) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию релиз самых интересных треков в стиле техно электроники "Specific Techno Electronic". Хиты, которые будоражат сознание любителей электронной музыки уже ждут Вас!001. Art Frequency - Evolution
-002. Atilla The Hvn - Tasi Beni Cehenneme
-003. Watboman - Insomniac
-004. Dj Mell G - Work That Shit Out!(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 10:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839F4FA249D214B88491076043E876AC052B7093
 ```
 
 https://mybot314.ru/tekegram_catalog/

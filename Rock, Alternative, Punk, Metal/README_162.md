@@ -1,32 +1,3 @@
-###  Публикация: 1090842   (945974) от 07.01.2017
-
-Orianthi (Orianthi Panagaris) - Heaven In This Hell (2013) [MP3|320 Kbps] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven In This Hell (04:33)
-02. You Don't Wanna Know (03:40)
-03. Fire (02:54)
-04. If U Think U Know Me (03:35)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72EF4E472EBF89372D8C77CFD5E56174F55587AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090612   (945972) от 07.01.2017
 
 Йорш - Держитесь (2016) [FLAC|lossless|image + .cue] <Punk-Rock>
@@ -751,6 +722,35 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DB03D08D205A93AF859E98E3EF78D79D110BBD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983396   (943791) от 06.02.2016
+
+Алексей Чернышёв - Пресвятая Русь (2015) [FLAC|lossless|image +.cue]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пресвятая Русь (04:22)
+02. Потребитель (демо) (03:08)
+03. The Golden Eagle (04:22)
+04. Пресвятая Русь (инструментальная версия) (04:14)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2BB5F469C7D98E1DE83E63671B4275E8D80BB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1036338   (621078) от 20.07.2016
+
+Patty Loveless - Mountain Soul (2001) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boys Are Back In Town
+02. The Richest Fool Alive
+03. Daniel Prayed
+04. Someone I Used To Know(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A49B19CAC1F32A6FC5167E752529BB56389F548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 803307   (621019) от 09.07.2014
 
 Marc Shaiman - Семейка Аддамс / The Addams Family (2014 (1991)) [FLAC|Lossless]<Score>
@@ -728,35 +757,6 @@ VA-Higher Plain Drifting - The Enchanting Sound of North America (2000) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C29A5BC77910879CAD767512ABF128E797A195AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230269   (617195) от 11.06.2018
-
-BrunuhVille - Timeless (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timeless (03:13)
-02. Angel of War (04:42)
-03. Path to Queensgarden (05:36)
-04. Riverdel (03:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93426F683099212BAB604BE1BAD5C0CCD2E33784
 ```
 
 https://mybot314.ru/tekegram_catalog/

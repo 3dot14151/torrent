@@ -1,3 +1,32 @@
+###  Публикация: 1380458   (833044) от 03.05.2020
+
+VA - Pop All Stars (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833044.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Beyoncé - Halo (4:21)
+2.Dua Lipa - New Rules (3:29)
+3.Ariana Grande - One Last Time (3:17)
+4.Ed Sheeran - Shape of You (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 03:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D1CBA3F26CACD06C3298EEB426582C2B5C062A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005652   (832388) от 09.04.2016
 
 VA - Музыка хорошего настроения 7 (2016) [MP3|256 кб/с] <Pop>
@@ -716,35 +745,6 @@ VA - German Top 100 Single Charts 15.10.2021 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8852E4405A167FF81F532845E49310CDCEE3031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116917   (820802) от 21.03.2017
-
-VA - 100 Popular European Hit (2017) [MP3|320 Kbps] <Pop, Dance, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820802.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zara Larsson - So Good
-002. Yvonne Catterfeld - Irgendwas (feat. Bengio)
-003. Adele - Water Under The Bridge
-004. Robbie Williams - Love My Life(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 05:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B939AD24DA8BC1806419D463DFFC42DDC9539B
 ```
 
 https://mybot314.ru/tekegram_catalog/

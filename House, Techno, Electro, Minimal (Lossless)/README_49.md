@@ -1,3 +1,90 @@
+###  Публикация: 960839   (305447) от 29.11.2015
+
+Music Instructor - Electric City (Maxi-Single) (1999) [FLAC|tracks+.cue]<House, Breaks, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric City (single edit) (4:14)
+02. Electric City (maxi version) (5:07)
+03. Electric City (Metropolis mix) (5:20)
+04. Electric City (Tory Kay mix) (4:31)(   Читать дальше...   )Жанр: House, Breaks, ElectroПродолжительность: 00:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DAE532D328A853D433A7248EFD4173C15758955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077998   (304994) от 29.11.2016
+
+Javier Orduna - Erretica (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erretica (6:29)
+ 02. Erretica (Bambook & Quina Edition) (7:48)
+ 03. Theo Is The Parra (6:00)
+ 04. Theo Is The Parra (Marc DePulse Edition) (7:15)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D82237963869A35AEAB3434804161576E1416F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184065   (303415) от 16.11.2017
+
+VA - Club Sounds The Ultimate Club Dance Collection Vol.83 (2017) [FLAC|Lossless|WEB-DL|tracks] <House, Club, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  W&W & Vini Vici - Chakra  3:25
+02.  Armin Van Buuren And Sunnery James & Ryan Marciano - You Are  2:59
+03.  Martin Garrix - Pizza  4:13
+04.  Tiesto & John Christian - Scream  3:13(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE956F578BEEBFA4EA716CAB0424CFBB6C98153B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078280   (302842) от 30.11.2016
 
 Rrose / Orphx - Summer Solstice Edition EP (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Techno, IDM, Electro>
@@ -645,91 +732,6 @@ Alan Walker - Faded (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Electro, Chillw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81A5D1CAB97BFD23273ADA87BE6D6BD39C139B69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334524   (294663) от 29.10.2019
-
-Alan Walker - Different World (2018) [FLAC|Lossless|tracks + .cue] <Electro, Chillwave, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:16)
- 02. Lost Control (feat. Sorana) (3:42)
- 03. I Don't Wanna Go (feat. Julie Bergan) (2:42)
- 04. Lily (feat. K-391 & Emelie Hollow) (3:16)(   Читать дальше...   )Жанр: Electro, Chillwave, Nu-DiscoПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C23836C84515872A42182FFE15B02908A4F4FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079562   (293898) от 04.12.2016
-
-Boris Brejcha - DJ Mixes Single Tracks (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amisette (9:18)
-02. Fidibus (8:21)
-03. Bebot (8:09)
-04. Black Beauty (7:50)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 03:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8827BB7B81D29F5788CE5FA57D3F8C4539789C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262579   (293507) от 16.11.2018
-
-E-Light - Controversy (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Controversy (Original Mix)
-02. At Low Cost (Original Mix)Жанр: Progressive HouseПродолжительность: 00:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6872FFDE84813CB28CF3A7F3719175536522F331
 ```
 
 https://mybot314.ru/tekegram_catalog/

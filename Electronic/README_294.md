@@ -1,3 +1,61 @@
+###  Публикация: 1407216   (468260) от 06.09.2020
+
+Ingrained Instincts - Invent the Future (2020) Sangoma Records [FLAC|Lossless|tracks+.cue] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cycling Flow (08:07)
+ 02. A Dancefloor Odyssey (07:33)
+ 03. Shooting Colors (07:34)
+ 04. We Are Here To Fly (with Daksinamurti) (07:22)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CFF75DDC24B07FE04BFF4B806895CAFF27B840F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015413   (468061) от 06.09.2020
+
+Balancé (Balance, NOYA Project) - Discography 19 Releases (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient, Psy-Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Look (07:15)
+ 02. Unfocused (07:39)
+ 03. Give Me Light (06:48)
+ 04. Smoke (08:51)(   Читать дальше...   )Тип издания: WebЖанр: Psychill, Downtempo, Ambient, Psy-Trance •Продолжительность: 07:30:29 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B746BE8657868620BF6DF74EB03686A907CD9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245920   (467881) от 08.09.2018
 
 Ten And Tracer - Companion (2004) U-Cover [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient>
@@ -676,68 +734,6 @@ VA - Bikini Beach, Vol. 6 (2019) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17E6C117BBC0AEEA54A609049225D15E220EA43A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320649   (465403) от 21.08.2019
-
-Chillout Sound Festival - Gym Center Pilates Mat Exercises (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465403.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Best Pilates Exercises (3:43)
-2.Classical Pilates Mat Workout (3:43)
-3.Chillax Fitness (3:43)
-4.Fundamental Warm-Up (3:42)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12D5F701CD5744875C1A82DD9724A9A5E88817F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549077   (465324) от 19.09.2012
-
-VA - Endless Summer - Ibiza Closing 2012 (12/09/2012) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Melin - Soul Heaven (06:08)
-02. Weekend Heroes - Plus One (Human Element remix) (08:16)
-03. DJ Ortzy & Nico Hamuy - Lose Control (feat Alex Peace - instrumental mix) (06:13)
-04. Futuristic Polar Bears & Danny Howard - Red Man Rising (Miami 2012 edit) (06:26)
-05. Peter Brown - The One (06:34)
-06. DJ Soulstar - Around The World (Tune Brothers remix) (06:13)
-07. DJ Fist & The Bass Kidz - Let's Walk (06:16)
-08. Erick Morillo & Eddie Thoneick - Live Your Life (feat Shawnee Taylor - Antranig remix) (07:37)Жанр: Progressive HouseПродолжительность: 03:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E85D5B795323828B24F38018F54DBF591E99D1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

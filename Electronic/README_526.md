@@ -1,3 +1,60 @@
+###  Публикация: 1757069   (39273) от 25.10.2024
+
+Benassi Bros. x Dhany - Every Single Day (remix) (2021) [FLAC|Lossless|WEB-DL|tracks] <Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benassi Bros. x Dhany - Every Single Day (club edit) (03:43)
+02. Benassi Bros. x Dhany - Every Single Day (club version) (06:41)
+03. Benassi Bros. x Dhany - Every Single Day (club version instrumental) (06:41)Жанр: Club HouseПродолжительность: 00:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC79D0F4BEABC3D5E8EB5673DBAC1E5F8D65C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757168   (39176) от 26.10.2024
+
+VA - Autumn Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deepest, AMHouse & Ghalia - Bastanna (I'll Wait) (03:00)
+02. Moses & VOLB3X - Let Me Down Slowly (03:32)
+03. Umur Anil Gokdag, TwoRule & Liwia - Everything I Wanted (03:11)
+04. Tury, Pawoh & N@OM1 - Lovely (02:24)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E437474E9CBABF73D1228BCE42AA25808A0C7395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757262   (39167) от 26.10.2024
 
 Dance With The Dead - Dark Matter (2024) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, Hard Rock>
@@ -684,64 +741,6 @@ Blondie - Live In Boston 1978 (2024) HQ Remastered [MP3|320 Kbps] <New Wave, Pun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C19DFFE8897D729B208F53FA7DEDEB8AEBE73B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759040   (38082) от 06.11.2024
-
-Allie X - Girl With No Face (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Synth-pop, Dance-pop, Italo-Disco, Hi NRG, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weird World [00:03:58]
-02. Girl With No Face [00:04:23]
-03. Off With Her Tits [00:03:16]
-04. John and Jonathan [00:04:22](   Читать дальше...   )Жанр: Indie Pop, Synth-pop, Dance-pop, Italo-Disco, Hi NRG, New WaveПродолжительность: 01:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F743ACC071F630952FDE73974526F9DC25A59F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759158   (38081) от 06.11.2024
-
-VA - Autumn Car Music Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VOLB3X - Return of the Tres (Original Mix) (1:34)
-02. Jozua - Moonlight (Original Mix) (2:02)
-03. Ellister - Prayer in C (Original Mix) (1:50)
-04. Nickobella - Bella Ciao (Original Mix) (2:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0BA8A40838EBD5F859084B387D9E74CF2EB895
 ```
 
 https://mybot314.ru/tekegram_catalog/

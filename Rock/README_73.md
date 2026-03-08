@@ -1,172 +1,3 @@
-###  Публикация: 505137   (260845) от 03.06.2012
-
-Richard Marx - Inside My Head (Compilation 2CD) (2012) [MP3|256 кб/с]<Melodic Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260845.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012Жанр: Melodic Rock, Soft RockПродолжительность: 00:53:55
-01. Don't Mean Nothing (4:40)
- 02. Should've Known Better (4:26)
- 03. Endless Summer Nights (4:25)
- 04. Keep Coming Back (5:23)
- 05. Take This Heart (4:02)
- 06. Hold On To The Nights (5:12)
- 07. Angelia (4:52)
- 08. Hazard (4:57)
- 09. Too Late To Say Goodbye (4:45)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2F7C602F298E84851AA2B456BD8A301350ECD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838561   (260671) от 23.11.2025
-
-Garrison - The Final Chapter (2025) [MP3|320 Kbps] <AOR, Arena-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Back The Night [00:03:38]
-02. Lies [00:03:52]
-03. Never Let It Go [00:03:26]
-04. Too Far Gone [00:04:14](   Читать дальше...   )Жанр: AOR, Arena-RockПродолжительность: 00.45.23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B96AAEBAD6D62B17C9F4EB2D5DCB4E9D0E63258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504664   (260515) от 02.06.2012
-
-Paul McCartney - The Gold Collection [3CD] (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260515.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012Жанр: RockПродолжительность: 01:19:15
- 01. Twice In A Lifetime [0:03:02.28]
- 02. Famous Groupies [0:03:35.40]
- 03. Wild Life [0:06:41.60]
- 04. Heaven on a Sunday [0:04:28.67]
- 05. Hi, Hi, Hi [0:03:08.28]
- 06. It's Not True [0:05:53.00]
- 07. Must Do Something About It [0:03:43.48]
- 08. Press [0:04:42.65]
- 09. Pretty Little Head [0:05:13.52](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CC70376C4A8AF449E534984E58ABE7C2ECD527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504479   (260243) от 01.06.2012
-
-VA - NOW That's What I Call Classic Rock Hits (2012) [MP3|256 кб/с]<2012>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thin Lizzy - The Boys Are Back In Town
-02. Foreigner - Feels Like The First Time
-03. Toto - Hold The Line
-04. Eddie Money - Baby Hold On
-05. Journey - Any Way You Want It
-06. Styx - Come Sail Away
-07. Jethro Tull - Locomotive Breath
-08. Heart - Crazy On You
-09. Bad Company - Feel Like Makin Love
-10. The Kinks - Lola(   Читать дальше...   )2012Жанр: 2012Продолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7981573C41848F4581823C2D003C7ED6E8978548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502831   (260162) от 01.06.2012
-
-Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder
- 02. Learn To Love The Dark
- 03. Wasted Heart
- 04. Vultures
- 05. Not Coming Back
- 06. No Love Song
- 07. I Got Nothing
- 08. Standing Still
- 09. St Jude
- 10. Our Lost History(   Читать дальше...   )2012Жанр: Indie RockПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E081DF319FDFA31C7C926CF1B7A30DCAEA2857B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503626   (259797) от 31.05.2012
 
 Maribel - Reveries (2012) [MP3|256 кб/с]<Shoegaze Indie-Rock>
@@ -836,6 +667,151 @@ Moonlight Benjamin - Wayo (2023) [MP3|320 Kbps] <Blues Rock, Voodoo Rock, Native
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3CFCE11847B1647E79ACCC1BAC120C184EC8ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624564   (245078) от 07.04.2023
+
+The Adekaem - 5 Albums (2015-2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - The Adekaem (0)
+2017 - Sound Coloring (0)
+2021 - Exile(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC149DDA75D13D072C92444E4AF327CDE5EBD2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624670   (245069) от 07.04.2023
+
+Sharp Edges - Slice of Life (1983) [MP3|320 Kbps] <AOR, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Edge (03:36)
+02. Too Young (03:39)
+03. Runaway (04:10)
+04. Girl on the Airwaves (04:53)(   Читать дальше...   )Жанр: AOR, Pop RockПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C8E6AAE1BDB36F89F90A84F3CB2859B2A566C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624852   (245061) от 07.04.2023
+
+Marco Bernard (The Samurai Of Prog) - The Boy Who Wouldn’t Grow Up (2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Overture [00:06:14]
+02 Never Never Land [00:11:24]
+03 The Lost Boys [00:10:20]
+04 The Home Under the Ground [00:09:54](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD5C8C6646763937C83DB60776395589FBF8BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624655   (245029) от 07.04.2023
+
+R.A.F. - Restless Spirit (1986) [MP3|320 Kbps] <AOR, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Boy (04:01)
+02. Only the Heart Can Tell (03:41)
+03. Steal Your Love (04:06)
+04. Restless Spirit (03:12)(   Читать дальше...   )Жанр: AOR, Pop RockПродолжительность: 00:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF0BB8AFD6D4B740988EF123A169248B1FC2BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067361   (244977) от 29.10.2016
+
+DizzRoxx - Personal Message (2016) [MP3|320 Kbps] <Blues Rock, Hard Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Racer   (05:15) 
+  02| Personal Message   (03:11) 
+  03| Rockґn Roll Machine   (03:01) 
+  04| No Matter What The Chairman Said   (03:51) (   Читать дальше...   )Жанр: Blues Rock, Hard Rock, Rock & RollПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A1E2B616189C964409AFC86228D40898AAED51
 ```
 
 https://mybot314.ru/tekegram_catalog/

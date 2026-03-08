@@ -1,3 +1,32 @@
+###  Публикация: 1228556   (635697) от 01.06.2018
+
+Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dreams of sunbeams
+02 Cloud pictures passing by
+03 Spring break
+04 Ein Adler landet auf dem Mond(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB76D2E3D2C9694214111F099CA6180AB4DE8E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519651   (635631) от 07.07.2012
 
 VA - Yak pushu strelu / As I let an arrow fly / Як пущу стрелу песни русско-украинско-белорусского пограничья (2007) [MP3|320 кб/с]<Ethnic>
@@ -773,35 +802,6 @@ Theodore Shapiro - Ghostbusters / Охотники за привидениями
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:518A925E9B5B0ED57CD82D72AAA64CA1C338EEFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034115   (630510) от 15.07.2016
-
-Douglas Spotted Eagle - Voices (1999) [MP3|320 Kbps] <Native American, Folk, World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dance    06:04
-02.  Voices    06:18
-03.  My Little One    02:12
-04.  Closer to Heaven    04:41(   Читать дальше...   )Жанр: Native American, Folk, WorldПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BF6758CEE50B14BCB1C099842CF16A21D9DEF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1183758   (303522) от 16.11.2017
+
+Fitness Forever - Tonight (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303522.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tonight (feat. Kidsaredead) (05:39)
+2. Dance Boys (feat. Paulita Demaíz) (03:45)
+3. Canadian Ranger (04:55)
+4. Andrè (05:09)(   Читать дальше...   )Жанр: Pop, Electropop, DiscoПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E659EC69B6D66511933CE80496B9BCDAB8A5CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261625   (303095) от 11.11.2018
 
 VA - Top Of The Pops '1979 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
@@ -716,35 +745,6 @@ Eros Ramazzotti - Eros Duets (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:579494ADC9AF5E57380B2810231F3C6EB918C884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185122   (294804) от 20.11.2017
-
-VA - Now That's What I Call Music! 98 (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Hip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё не остыли эти диски от штамповки (17 ноября был выдан тираж), а вы уже можете насладиться этим релизом, состоящим из топовых треков из Великобритании и Ирландии. И если вам жалко отдавать за эти два диска £13.99, то возьмите их здесь - в любимом клубе NNM-Club.CD1:
-01. Camila Cabello feat. Young Thug - Havana  (2:58)
-02. Post Malone feat. 21 Savage - Rockstar  (3:39)
-03. Sam Smith - Too Good at Goodbyes  (3:23)(   Читать дальше...   )Релиз состоялся: 17 ноября 2017 годаЖанр: Pop, Electronic, Hip HopПродолжительность: 02:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CEBF575808362D362C9917433EB052FD0E3B05B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1214227   (764935) от 21.03.2018
+
+VA - Better Day Trance Mix (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frainbreeze feat. Vika - Better Day
+02. Roman Messer - Lullaby (Original Mix)
+03. Cold Rush & Kaimo K feat. Sarah Russell - Angel Fly
+04. Carl Daylim - Stay With Me (Intro Mix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 08:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6723376B5697AE347FC14BD3CE1DC35C05A2C9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126818   (764609) от 19.04.2017
 
 VA - Sunrise Energy Melodies (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Energy, Harmonic, Euphoric>
@@ -716,35 +745,6 @@ VA - Deep Mood vol 2 (Smooth Deep House) (2014) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D218803CA5B509F6F3B7F4EC304A1125075FCDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214999   (761810) от 24.03.2018
-
-VA - The Official UK Top 40 Singles Chart 23.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - God's Plan (03:19)
-02. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (03:31)
-03. Portugal. The Man - Feel It Still (02:44)
-04. Marshmello & Anne-Marie - Friends (03:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF391835BF615B530E09170692032C5444ED8C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

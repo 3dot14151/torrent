@@ -1,3 +1,61 @@
+###  Публикация: 1363798   (940572) от 29.02.2020
+
+Modern Talking - Let's Talk About Love (1985) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Cheri Cheri Lady   [3:51]
+02.   With a Little Love   [3:39]
+03.   Wild Wild Water   [4:23]
+04.   You’re the Lady of My Heart   [3:24](   Читать дальше...   )Жанр: DiscoПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323FFC9DD8AA343DEA710C1AA4D3CA49EC2452E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 149305   (940473) от 29.02.2020
+
+Demis Roussos - Demis (2009) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September (I'm On My Way) (2:45)
+02. On My Pillow (3:24)
+03. Love Is (3:24)
+04. What They Say (3:25)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C7402FB26BC49156D2ACB2A43255B913E2ABBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363770   (940430) от 29.02.2020
 
 Кар-Мэн - 020 бит (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -699,64 +757,6 @@ Corona X - And Me U (2000) [MP3|256 Kbps] <Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FF70C085FF08C0EC378DD6ACF3E535F45A39658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984434   (935118) от 11.02.2016
-
-Земляне - Grand Collection (1992) Compilation [FLAC|Lossless|image + .cue] <Rock,Soviet Rock>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Трава у дома 	04:45
-02. 	Каскадёры 	03:31
-03. 	Я люблю природу 	04:32
-04. 	Маленький кораблик 	04:45(   Читать дальше...   )Жанр: Rock ,Soviet RockПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62ACB18F9539C2152C1CACD1A1553F7FD15E8BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984489   (935114) от 11.02.2016
-
-Юрий Антонов - Несёт Меня Течение (1993) [FLAC|Lossless|image + .cue] <Pop Rock,Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	От Печали До Радости 	04:16
-02. 	Несет Меня Течение 	04:25
-03. 	Все, Как Прежде 	03:21
-04. 	У Берез И Сосен 	03:54(   Читать дальше...   )Жанр: Pop Rock,RetroПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73608D312A5D0F6BFC0AED4A8A2A882C83F9406
 ```
 
 https://mybot314.ru/tekegram_catalog/

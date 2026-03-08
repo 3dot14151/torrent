@@ -1,3 +1,61 @@
+###  Публикация: 1062362   (441396) от 13.10.2016
+
+Yello - Toy (2016) Limited Deluxe Edition [FLAC|Lossless|image + .cue] <Synthpop, Future Jazz, Downtempo>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frautonium Intro
+02. Limbo
+03. 30'000 Days
+04. Electrified II(   Читать дальше...   )Жанр: Synthpop, Future Jazz, DowntempoПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63B1EE998BC65569402093594F6CABCA6D1B167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409974   (440874) от 19.09.2020
+
+VA - Black Hole Trance Music 09-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BT & Emma Hewitt - No Warning Lights (Sean Tyas remix) 08:27
+02. Andy Duguid + Jaren - My Thunder (extended mix) 07:19
+03. Christina Novelli - I'm Ok (extended mix) 04:55
+04. Bill McGruddy feat. Wai - Iris (extended mix) 05:42(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73150825869B6543EF9371F85812221CD1F0A751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410062   (440595) от 19.09.2020
 
 VA - Deep Blue Sea Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -696,64 +754,6 @@ VA - Vocal Trance Gems - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFE992350F8C421907DE54C446E6BAB37E0B931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570768   (438301) от 19.08.2022
-
-A-Ha - Lifelines (2002) Deluxe Edition, Remastered, 2019, Warner Music [OGG|485 Kbps] <New Wave, Synthpop, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifelines
-02. You Wanted More
-03. Forever Not Yours
-04. There's a Reason for It(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop RockПродолжительность: 02:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441E89362247D2F2FBFAA616A4C933B54EB32073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570911   (438298) от 19.08.2022
-
-VA - Black Hole Trance Music 08-22 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & Nathan Nicholson - Follow You Anywhere (Extended Mix)
-02. BT & JES - Every Other Way (MaRLo Extended Remix)
-03. D72 & Natalie Gioia - For Our Freedom (Extended Mix)
-04. Dennis Sheperd & MR. CLN with Gid Sedgwick - Wishful Thinking (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63610B4976CEA0323C2470CBA4AD81FC4F0557FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

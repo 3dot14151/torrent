@@ -1,3 +1,32 @@
+###  Публикация: 1263151   (290116) от 18.11.2018
+
+Eubie Blake - Memories Of You (1973) 2003, Shout! Factory [FLAC|Lossless|tracks + .cue] <Ragtime, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charleston Rag [3:07]
+02. Chevy Chase [2:44]
+03. Mirandy [2:43]
+04. Fizz Water [1:48](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7055C5D39E8514CA548D0549EFDFAA571EEF0CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263141   (290115) от 18.11.2018
 
 Chico Freeman - The Emissary (1996) Clarity Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Afro-Cuban Jazz>
@@ -715,35 +744,6 @@ Jazzamor - Music En Vogue (2019) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Bossa-N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:352180380631A6401AEA3731E9B5B910B65C1F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080591   (286688) от 08.12.2016
-
-Bill Evans Trio - with Symphony Orchestra (1965) 1989, Verve [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Granadas [05:55]
- 02.Valse [05:53]
- 03.Prelude [03:02]
- 04.Time Remembered [04:11](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75A80502BD1FA1A8DB349E597209C5B13E7A26A
 ```
 
 https://mybot314.ru/tekegram_catalog/

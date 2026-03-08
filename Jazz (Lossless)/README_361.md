@@ -1,3 +1,32 @@
+###  Публикация: 1755808   (40062) от 17.10.2024
+
+VA - Acid Retro Soul Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anduze - Priority (3:05)
+02. Alixia Mistral - Run Away Or Face The Day (2:45)
+03. Tamashi Pigiama - If You Wanna Go (3:25)
+04. Anna Fondi - Nothing Better Than You (4:49)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718CAB68C47D1174A589E9D20782FA574C58B8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755136   (39966) от 18.10.2024
 
 Nat King Cole - The Complete Capitol Recordings Of The Nat King Cole Trio (1942 - 1961) 18CD, 1991, Mosaic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Piano Jazz>
@@ -716,35 +745,6 @@ Boney James - Slow Burn (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F8424142853356C969D9608574BFE13496EFB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555046   (39391) от 24.10.2024
-
-Sarah Vaughan - The Divine One (1961) 2017, Hallmark [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have You Met Miss Jones [2:24]
-02. Ain't No Use [3:56]
-03. Every Time I See You [3:02]
-04. You Stepped Out of a Dream [2:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F830F57CD4D8ED83A7EC7529B46781A980E277
 ```
 
 https://mybot314.ru/tekegram_catalog/

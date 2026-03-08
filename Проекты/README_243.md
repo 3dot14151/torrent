@@ -1,29 +1,3 @@
-###  Публикация: 945257   (435073) от 09.10.2015
-
-Проекты - VideoHive - Architect Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E328FB84AF1278384A730E3DE41B34A7CEA05FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249266   (434784) от 23.09.2018
 
 Проекты - VideoHive - Motivational Grunge Promo - 13092935 [AEP]
@@ -671,6 +645,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:225C5B49CB5144FFCA6D49E28AF2A22245EB30C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945991   (430989) от 11.10.2015
+
+Проекты - VideoHive - Valentine Gallery - 4062962 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226DFCC1153E9E5AF457199525F19974891AA0B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 897268   (687415) от 12.05.2015
+
+Uriah Heep - Live At Koko (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uriah Heep выпускают концертный альбом Live At Koko, London 2014. Диск поступил в продажу 20 февраля в Европе и 24 февраля в Северной Америке, причем в разных форматах, как на обычном CD, так и на DVD/Blu-ray.01. Against The Odds
+02. Overload
+03. Traveller In Time
+04. Sunrise(   Читать дальше...   )Жанр: Rock, Prog Rock, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7172A9357F3EED5726FB1554E741A510BFFF71FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506462   (687404) от 06.06.2012
 
 30 seconds to Mars - Rock am Ring 2010 (Comlpete) HDTV [720p]
@@ -683,32 +712,6 @@ Britney Spears - Till The World Ends (Dance Version) (2011) HDTVRip 1080p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD280A5CC01AB58F4828DCC2CC99D5182B91437B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508679   (676508) от 11.06.2012
-
-DVJ Bazuka - Anything [Без цензуры] (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:727F61B4722342E3AB9A40D78750649B50DC15C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

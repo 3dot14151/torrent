@@ -1,3 +1,32 @@
+###  Публикация: 1071104   (362133) от 09.11.2016
+
+VA - Big Room Essentials, Vol. 01 (2016) [MP3|320 Kbps] <Progressive House, Electro House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lan-D - Dark Shots (Original Mix) 04:22
+02. Avalanche - Alaska (Original Mix) 04:41
+03. Saint Valentine - Vision (Original Mix) 04:26
+04. Dynasty - Charizard (Club Mix) 03:22(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 01:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C1994FE7304CD5E3C86A089AA425B7363ACA64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070774   (362040) от 09.11.2016
 
 VA - Chillout: Ultimate Sunset Collection (2016) [MP3|320 Kbps] <Deep House>
@@ -710,35 +739,6 @@ VA - Workout Music, Vol.2 (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCB61C936CA47628CAA718D72BA6872FC7F4B644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257166   (347035) от 25.10.2018
-
-VA - Deep House Blast Three (2018) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modell & Mercier - Great Koma (Human Mix) 3:48
-02. Tony Cool - Gianfalla (Funk and Deep Mix) 3:52
-03. Mediterraneo - Love in Med (Maratea Deep Mix) 3:54
-04. Tee Glam - Omni Passion (Glamorous & Glitter Mix) 3:54(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF386D3EF6266ABD2E20DDFEF7D12856730326DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

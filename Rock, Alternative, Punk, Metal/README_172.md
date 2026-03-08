@@ -1,32 +1,3 @@
-###  Публикация: 1094517   (929385) от 18.01.2017
-
-Mahogany - Mahogany (1969) Reissue, 2006, Walhalla Records [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Coolin'
-2. Best Woman, Best Friend
-3. Live Your Love A Lie
-4. Easy(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE26C4DF8C273805023FD6107E3D5009F41EAA34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986872   (929342) от 15.02.2016
 
 Do Or Die - Crows (2015) [FLAC|tracks|WEB-DL]<Groove Metal, Hardcore, Thrash Metal, Deathcore>
@@ -745,6 +716,35 @@ Paul Gilbert - I Can Destroy (2015) [FLAC|Lossless|tracks] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D02CFD9AD54613DD929435BA1CF10E56B0467622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094414   (927706) от 19.01.2017
+
+Magnum - The Valley Of Tears: The Ballads (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream About You (remastered) (from 2002 - Breath of Life)
+02. Back In Your Arms Again (newly re-recorded) (from 1994 - Rock Art)
+03. The Valley Of Tears (remixed, remastered) (from 2014 - Escape From the Shadow Garden)
+04. Broken Wheel (newly re-recorded) (from 1992 - Sleepwalking)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D4A70D444578FE5A2E60754231CFC6F2A52A3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

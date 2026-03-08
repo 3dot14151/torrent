@@ -1,32 +1,3 @@
-###  Публикация: 1004677   (836416) от 07.04.2016
-
-Би-2 - #16плюсTour @ Stadium Live (2016) [FLAC|Lossless|image + .cue] <Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не умирать молодым
-02. Темные небеса
-03. Революция
-04. Дурочка(   Читать дальше...   )Жанр: РокПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3851E9D9ED79503A4A93D92CDDD322D9FAA58FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501216   (836397) от 09.10.2021
 
 Кипелов - Часы Судного дня (2021) EP [FLAC 2.0|96/24|tracks|WEB-DL] <Heavy Metal>
@@ -745,6 +716,35 @@ Dream Theater - Six Degrees Of Inner Turbulence (2001) 2CD, Reissue, 2002, Elekt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:622020ACD291551AC1C52289BA48D05E80AB3A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501588   (835263) от 10.10.2021
+
+Spectral Darkwave - At Outer Dark (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Insertion [00:00:44]
+02. 731 [00:05:41]
+03. The March of Sses [00:04:36]
+04. The First Church of Chaos [00:05:28](   Читать дальше...   )Жанр: Symphonic Death, Doom MetalПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490B865C48ACD3D3077E9885F0816EF0EB6ADE80
 ```
 
 https://mybot314.ru/tekegram_catalog/

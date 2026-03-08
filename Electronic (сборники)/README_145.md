@@ -1,3 +1,32 @@
+###  Публикация: 1410754   (431916) от 23.09.2020
+
+VA - Fast Mover: Tech House Electro Sound Mix (2020) [MP3|320 Kbps] <Tech House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431916.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Avr And Sam Galki - Dont Panic
+002. Donkong - Logic Bomb
+003. Andrew Mogar - Big Party
+004. Andrea Ferri - Dangerous Stars(   Читать дальше...   )Жанр: Tech House, EDMПродолжительность: 10:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA63F6CDDB8FF44A01B03542DB37F74E8EFA28D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 555839   (431779) от 03.10.2012
 
 VA - Electro Жесть v.33 (2012) [MP3|320 кб/с]<Electro House>
@@ -725,35 +754,6 @@ VA - Deep Mood, Chillhouse Selection (2016) [MP3|320 Kbps] <Deep House, Chill Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D7BFA0AF6D5E6319C0AA8E1D026D5A056BF4F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064345   (426388) от 20.10.2016
-
-VA - Sunny Refill Vol.1: Warm and Sunny Chill out Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fous De La Mer - Good Bye Lawrence
-02. R.I.B. - Sunset
-03. JM Mantecon - Children's Sun
-04. Wilton de Grey - All-Seeing Power of the Mind - Short Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7AADC35EC529CA7A5A0FE6EC5888AE685856C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

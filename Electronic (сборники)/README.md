@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857896   (1060043) от 07.03.2026
+
+VA - Узоры (mixed by Dj V) (2026) [MP3|320 Kbps] <Organic House, Melodic House, Folk Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Белолуна - Русалки (Extended Mix)
+02-Amonita - Улетай (Alexey Union & ETNE Remix)
+03-Ranta, Katya Olszewska - Сказка (Original Mix)
+04-Krasa Rosa & M.O.S. - Соловей (Extended Mix)(   Читать дальше...   )Жанр: Organic House, Melodic House, Folk DanceПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CDBBC0F4D400346A3CF97D9665B2A5A9D5FB1BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855134   (1058041) от 21.02.2026
 
 Reteox - Favorites Collection Part 4 (2026) [MP3|320 Kbps] <Electronic, Vocal>
@@ -717,35 +746,6 @@ VA - No name compilation part 26 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3D3A4286CF43563C7424319CD9AA98A30A0B371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841992   (1048392) от 13.12.2025
-
-VA - Vocal Trance NNM 6 (2025) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quirin, SoKool, Konrad Dycke - Dangerous - SoKool & Konrad Dycke Remix (7:43)
-02. Fideles, CamelPhat, Be No Rain - Night After Night - CamelPhat Remix (6:58)
-03. Howling, Frank Wiedemann, RY X, Jen Cardini, Damon Jee - Lover - Jennifer Cardini & Damon Jee Remix (6:43)
-04. AIKON, Kyozo - Dark Horse - Club Mix (6:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C6EAF9B81DBCA62E47A17F038399CC7026A2EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

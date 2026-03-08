@@ -1,3 +1,62 @@
+###  Публикация: 248224   (473718) от 15.09.2012
+
+Arabesque - Deluxe (Twin Best) - Japan (1998) 2CD[FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Mr. Monkey
+02. Fly High Little Butterfly
+03. Someone Is Waiting For You
+04. Buggy Boy(   Читать дальше...   )Жанр: Disco |Продолжительность: 01:14:06 + 01:10:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 258418   (473621) от 15.09.2012
+
+Barbra Streisand - 2 альбома (1980, 2005) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473621.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Guilty" - самый популярный альбом певицы (продано более 20 миллионов экземляров).
+Через 25 лет был выпущен альбом "Guilty Pleasures" который стал тоже весьма популярен.
+И конечно обе эти работы объединяет совместная работа с Barry GibbАльбомы:
+1980 - Guilty
+2005 - Guilty PleasuresЖанр: PopПродолжительность: 01:29:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320311   (473371) от 17.08.2019
 
 Strutt - Time Moves On (1975) Reissue CD, 2001, Victor [MP3|320 Kbps] <Funk, Soul, Disco>
@@ -695,64 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB31E6583DAC470C6C76BD9ADBF073DB32BCB0A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245872   (467883) от 08.09.2018
-
-Ronnie Jones - Games (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Video Games (7:43)
-02. We Make The Music (4:09)
-03. You Don't Know Like I Know (4:03)
-04. Montego Bay (3:52)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18609BCAC853C0427721CC9751A8B133914DC09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245848   (467880) от 08.09.2018
-
-MAGIC! - Expectations (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expectations (02:49)
-02. Core (03:35)
-03. More of You (03:54)
-04. Kiss Me (03:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F3368225ED69453D2CC8A212BFDA20C8778275
 ```
 
 https://mybot314.ru/tekegram_catalog/

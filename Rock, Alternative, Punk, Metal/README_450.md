@@ -1,38 +1,3 @@
-###  Публикация: 521622   (624290) от 12.07.2012
-
-Виктор Цой - К 50-летию артиста (2CD) (2012) [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_624290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звезда по имени солнце (03:25)
-02. Они сказали: 'Надо пройти'... (01:06)
-03. Дождь (Ты есть...) (02:33)
-04. Песня для БГ (Осень) (02:14)
-05. Возле дороги (01:38)
-06. Легенда (03:56)
-07. Когда твоя девушка больна (02:07)
-08. Восьмикласница (02:16)
-09. Малыш (02:44)
-10. Ты обвела меня вокруг пальца (03:08)(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910005   (624213) от 19.06.2015
 
 Telergy - Hypatia (2015) [MP3|320 кб/с]<Epic / Symphonic / Progressive Metal>
@@ -751,6 +716,35 @@ Kurt Vile - (watch my moves) (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Alternative,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDECB7EA640EE26298675AC7C4C93D82C1E67EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544213   (623662) от 14.04.2022
+
+Rush - Moving Pictures (1981) 2CD, 40th Anniversary Super Deluxe, 2022, Mercury Records [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2112 - Overture (4:26)
+02. 2112 - The Temples of Syrinx (2:17)
+03. Freewill (5:51)
+04. Limelight (4:47)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 2CD, 02:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FA9D75020CA091DA748E46AE6A847E20EBCFFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

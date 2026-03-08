@@ -1,3 +1,90 @@
+###  Публикация: 1121660   (799688) от 03.04.2017
+
+Sutratma - Sutratma (2012) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Face of Stone (08:12)
+02. Whither I Am Compelled (09:18)
+03. From the Well (08:16)
+04. Whence I Emerged (10:03)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B14979E35E7BE6305FFC5D492804A909E19FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121617   (799683) от 03.04.2017
+
+Second To Sun - Gal Agnostiske Drommer (2011) [FLAC|Lossless|WEB-DL|tracks] <Post Black Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduksjon av fremmede sæd i Demonhertuginnen (04:32)
+02. Sote Utenomjordiske Roll (02:37)
+03. Legenden om Den Onde Jesu Kristus (04:04)
+04. 11.03.11 (00:34)(   Читать дальше...   )Жанр: Post Black Metal, Groove MetalПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156B7B480DA865FF54D85E718F1064D8DE70BC0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121503   (799678) от 03.04.2017
+
+Second To Sun - Blackbound (2016) [FLAC|Lossless|WEB-DL|tracks] <Post Black Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799678.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vasilisa (04:09)
+2. Chokk Kapper (03:33)
+3. Region 13 (04:03)
+4. The Yoke (04:48)(   Читать дальше...   )Жанр: Post Black Metal, Groove MetalПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A074407EEED433259A9CC1F0352401E5244EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121518   (799639) от 03.04.2017
 
 Second To Sun - The First Chapter (2015) [FLAC|Lossless|WEB-DL|tracks] <Post Black Metal, Groove Metal>
@@ -658,93 +745,6 @@ Maverick - Maverick (2005) Japan [WavPack|Lossless|image + .cue] <Heavy Metal, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A48AB457441926A87D845E018521FCFC6269D895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507807   (798295) от 05.11.2021
-
-Decapitated - Nihility (2002) German Special Edition [WavPack|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Perfect Dehumanisation (The Answer?) (5:26)
-02 - Eternity Too Short (4:33)
-03 - Mother War (4:09)
-04 - Nihility (Anti‐Human Manifesto) (5:00)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA0BB8DCBFCE813CBAC22E0F99C79B346FE3D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507707   (798270) от 05.11.2021
-
-Bullet for My Valentine - Bullet for My Valentine (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parasite
-02. Knives
-03. My Reverie
-04. No Happy Ever After(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D93351431C2D84CA2A8DA5DE665A684A8F4ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508281   (798021) от 07.11.2021
-
-Monte Pittman - The Power of Three (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dark Horse
-02. Delusions Of Grandeur
-03. Everything's Undone
-04. Blood Hungry Thirst(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73904AE8E1E60F10FBEBA3889BE44F751370359
 ```
 
 https://mybot314.ru/tekegram_catalog/

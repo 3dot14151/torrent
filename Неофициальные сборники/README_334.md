@@ -1,3 +1,177 @@
+###  Публикация: 914920   (594652) от 04.07.2015
+
+VA - Летние новинки интернета 50+50 (2015) [MP3|320 кб/с]<Pop , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Паола - Лето
+02. Celeste Buckingham - Crushin My Fairytale
+03. 23 45 - В Мире Женщин (Version 2015)
+04. Akcent feat. Galena - Te Quiero (Radio Edit)(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4770FAE446C78D1160F1BBFC11AC7CCB24E1530A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915020   (594645) от 04.07.2015
+
+VA - Золото шансона (2015) [MP3|320 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594645.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Григорий Лепс - Я счастливый
+2. Стас Михайлов - Там
+3. Ирина Круг - От встречи до прощания
+4. Жека - Бесаме мучо(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF013025E698E7EA8C0EEC21B9D3B58206F2974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299976   (594583) от 04.05.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 03.05.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keanu Silva - King Of My Castle (Don Diablo Edit) 2:53
+02. Aaron Smith feat. Luvli - Dancin (Krono Remix) 3:17
+03. Mabel - Don't Call Me Up 2:59
+04. Zivert - Life 3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CE954F01CF863E458DB86BD2F30C546E6D4DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039590   (594574) от 02.08.2016
+
+VA - Top Party Hits Eternal (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594574.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren, W&W -  If It Ain't Dutch (Extended Mix) 4:21
+002. Blasterjaxx & DBSTF -  Beautiful World (Original Mix) 4:33
+003. Dimitri Vegas & Like Mike & VINAI -  Louder (Extended Mix) 4:04
+004. Orjan Nilsen Feat. Mike Jame -  What Its All About (Original Mix) 5:43(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 09:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC1A72ED997B303EFD2C892A27844F93FA51A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039549   (594561) от 02.08.2016
+
+VA - Русский хит отрыв №3 (2016) [MP3|256 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Виа Гра - Так Сильно
+02. Reflex - Говори Со Мной
+03. Andy Rey - Любви Ноль
+04. Алексей Завьялов Feat. Анна Дуванова - Моя Любовь(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BA093182316F658E8D8DA904AB4E9DCFFB62BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039811   (594511) от 02.08.2016
+
+VA - Дорожный шансон с любимой музыкой. Часть 3 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594511.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Андрей Иванцов - Любовь Права
+002. Аня Воробей - Белая Птица
+003. Константин Крымский - Лодочка
+004. Дмитрий Колобов - Ты Ангелом Над Головой(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB1E4D797E614D1CB4D1E5809968C3A9150F6D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039621   (594503) от 02.08.2016
 
 VA - Ах, эти карие глаза! (2016) [MP3|256 Kbps] <Шансон>
@@ -570,180 +744,6 @@ VA - TOP. Летние хиты на Русском радио 6 (2016) [MP3|256
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F02B24A2C8D6E0FBB4D5DEC669AF7868FAE35F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039669   (593541) от 03.08.2016
-
-VA - Русское радио. Летний хит-формат №5 (2016) [MP3|256 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593541.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Emin - Рядом Проснуться
-002. Fargo - Катя Любит Деньги
-003. Наталья Матроскина - Там Внутри
-004. Nastika - Че Качок(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54CA00C1065557CD0A85842A031CDB347DDF25F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039998   (593532) от 03.08.2016
-
-VA - Танцевальная хитовая зажигательная дискотека. Русская версия (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593532.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sputnik Project - Девочка Моя
-002. Тарас Курчик - Листопад
-003. Юлия Хусаинова - Легко
-004. Руслан Богачев - Она Скучает По Мне(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85400EBA70F8C1E69229B91CBD2125F40509515C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039588   (593528) от 03.08.2016
-
-VA - Горячие музыкальные новинки. Сборник 50/50 (2016) [MP3|256 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593528.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Е2 Знакомы - Мама
-002. T.I. Feat. Chris Brown - Private Show
-003. Moyyo - Имя Moyyo
-004. Лавика - Body Cries(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16CF8358B2D01622EA290F4ED0C74C4DC722331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300308   (593493) от 05.05.2019
-
-VA - The Best World Ballads - 36 (2019) [MP3|320 Kbps] <Pop, Rock, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593493.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 The Score-Stronger 3:11
-002 Sia Feat.Dolly Parton-Here I Am 4:32
-003 Richard Ashcroft-We All Bleed 3:58
-004 Avril Lavigne-Head Above Water 3:40(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 15:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B601D744FBD0865682153A343EDF3AE8B5743BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 180592   (593429) от 05.05.2019
-
-VA - Музыкальные новинки от радио Record 50/50 (2010) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593429.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Leonid Rudenko Ft Vicky Fee - Real Life (Radio Edit)
-2. Paul Van Dyk - For An Angel (Dave Darell)
-3. Потап И Н.Каменских - Не Люби Мне Мозги
-4. Bob Taylor & Inna - Deja Vu (Remake)(   Читать дальше...   )Жанр: Pop | DanceПродолжительность: 05:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7C4C16606939A5FFCF54E21AD35509DD69FDE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233471   (593004) от 30.06.2018
-
-VA - The Official UK Top 40 Singles Chart 29.06.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Ezra - Shotgun
-02. Clean Bandit feat. Demi Lovato - Solo (www.rump3.net)
-03. Anne-Marie - 2002
-04. Jess Glynne - I'll Be There(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F287718917F980C12802F0D5523CD9813BEA7DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

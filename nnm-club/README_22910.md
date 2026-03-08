@@ -1,86 +1,23 @@
-###  Публикация: 491003   (130293) от 02.05.2012
+###  Публикация: 1525044   (130342) от 18.01.2022
 
-VA - Русские Новинки Vol.50 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MainstreaM One & Handyman - Мы Не Одиноки
-02. Наталья Строгая - Гимн R-Club
-03. Charmlex feat. Анастасия Бережная и Андрей Леницкий - Сhampion
-04. Скрябин - Не Думай Про Завтра
-05. Гарик Сукачёв - Победа За Нами
-06. 25-17 - Звезда
-07. Чайф - Для Него, Для Себя, Для Меня
-08. Мия - Дивись, Це Можливо
-09. Idenline - Together
-10. Dino MC 47 - Время2012Жанр: PopПродолжительность: 03:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF47FE7C0F434E03DE75C56E73BAB599193291E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524775   (130292) от 18.01.2022
-
-VA - Peace Garden (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francois Maugame - Ocean (6:04)
-02. Yu Namikoshi - Sencitive (2:36)
-03. Ann Grace - From The Deep (5:41)
-04. Mark Dwane - Codex (8:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BDA4439A5916D4AE7C4C2C04570EED934C35450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524982   (130290) от 18.01.2022
-
-MacClean360 5.2 [En]
+Dato 3.3.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130290.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MacClean360 - удобный и безопасный уборщик вашего Макинтоша. Приложение все-в-одном для чистки вашего Мака. Он автоматически сканирует каждый уголок вашего Maка, находит все нежелательные файлы и удаляет их в 1 клик. Все данные визуально сортируются по различным категориям, что дает возможность наглядно оценить, где можно выиграть сотню-другую мегабайт произведя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2022 DoYourDataПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
+Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:096ECA82F61E1ABF39E1C6AD52502E333141DB7D
+magnet:?xt=urn:btih:0234D1318AEA6953160879DBE5C46BC7A42A4EC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -88,25 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524944   (130288) от 18.01.2022
+###  Публикация: 491365   (130341) от 03.05.2012
 
-Library Monkey Pro 3.2.2 [En]
+Артист / The Artist (2011) HDRip
 
->>Программы для macOS
->>Аудио и видео редакторы для macOS
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130288.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Library Monkey Pro предоставляет полный набор звуковых инструментов для современных, быстро меняющихся производственных сред. Управляйте бесчисленными активами с помощью расширенного менеджера библиотек, создавая наборы и смарт-наборы, вызывайте недавние поисковые запросы, создавайте несколько подборок и многое другое. Скопируйте свои библиотеки компакт-дисков с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.01.2022Разработчик: © 2022 Monkey Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+Голливуд, 1927 год. Звезда немого кино Джордж Валентайн и слышать не хочет о микрофонах на съемочной площадке. А безнадежно влюбленная в Валентайна статистка Пеппи Миллер стремительно набирает популярность в новом звуковом кинематографе. Только любовь поможет героям обрести счастье.Жанр: Драма, мелодрама, комедияРежиссер: Мишель ХазанавичусАктеры: Жан Дюжарден, Беренис Бежо, Джон Гудмен, Джеймс Кромуэлл, Пенелопа Энн Миллер, Мисси Пайл, Угги, Бет Грант, Эд Лотер, Джоэль МюррейПеревод: Немое кино / Дублированный (в конце фильма)Язык субтитров: Русский (на интертитры)Продолжительность: 01:36:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:974CDBFBBA07F9A0A7BBD1489C59F76AF2D600EF
+magnet:?xt=urn:btih:13D60A3BD2546ED9B4BEC2F1AD3F739639A37035
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,26 +51,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525043   (130286) от 18.01.2022
+###  Публикация: 1524734   (130340) от 18.01.2022
 
-Feeder 4 v4.3.3 [En]
+DoMi Sakurazawa - Friendship (2022) [AAC|~366 Kbps] <Jazz, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friendship (DoMi Sakurazawa Remix) (6:16)
+02. Searching For You (DoMi Sakurazawa Remix) (4:34)
+03. Signs Of You (DoMi Sakurazawa Remix) (4:53)
+04. Please Wait (DoMi Sakurazawa Remix) (2:56)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2517B25271E011B4C93F9663FF70AD994F9085B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524976   (130339) от 18.01.2022
+
+Default Folder X 5.6.3 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130286.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130339.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Feeder - это полнофункциональное приложение для создания, редактирования и публикации RSS-лент и подкастов iTunes. Создать новый канал используя шаблоны, скачать каналы с веб-сайта или импортировать существующие файлы. Редактирование содержания так же просто, как написание электронной почты, так что вы будете знать, инстинктивно, что делать.
-С Feeder вы можете опубликовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2004 - 2022 Reinvented SoftwareПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.01.2022Разработчик: © 1996-2022 St. Clair SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14BD10166D6C280B2BE877E689A5A60ACA797E74
+magnet:?xt=urn:btih:C41F8EDF777C0BE23C57E3743C2FDD31D97339DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,25 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525014   (130284) от 18.01.2022
+###  Публикация: 1524987   (130336) от 18.01.2022
 
-TunesKit Video Cutter 2.3.1 [Multi]
+My PaintBrush Pro 2.0.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130284.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мощный инструмент для резки видео, который может не только обрезать и объединять видео и аудио с сохранением 100% качества без потерь, но также редактировать и сохранять разделенные видеоклипы с несколькими эффектами в любом популярном формате для воспроизведения на любом устройстве.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: © 2021 TunesKit StudioПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+My PaintBrush для Mac — это мощное многослойное приложение для рисования. Используйте вдохновляющие инструменты и кисти для создания и сохранения плавных изображений на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © eTinySoft Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8970F77C2AD794CFCCCE01534D52F25A2982546
+magnet:?xt=urn:btih:2FE705B4F07E4B957C2975772E1D51E5A749BA73
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,560 +132,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 490802   (130283) от 02.05.2012
+###  Публикация: 491071   (130335) от 03.05.2012
 
-DeepChord Presents Echospace - [LIVE] (2010) [MP3|320 кб/с]<Dub Techno>
+Movavi Video Suite 10.3 SE [Русский / Английский]
 
->>Архив торрентов
->>Архив Музыки
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130283.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DeepChord Presents Echospace - [LIVE] (2010)
-Год: 2010
-Жанр: Dub Techno
-Продолжительность: 01:02:37
-Лейбл: echospace [detroit]
-Страна: USКодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84330B77264BD54E1C46B42AC226F3BD60063B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524876   (130282) от 18.01.2022
-
-Exxperior - Escalating Conflicts (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exitiabilis Creatura
-02. Escalating Conflicts...A World Goes Astray
-03. Timeless but Mindless
-04. A.A.A.(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A45D679B46F3052AE0BC761C60356DAC2127ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524896   (130280) от 18.01.2022
-
-Downie 4 v4.4.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 14.01.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072E93EE87B382B9CA3AC8BBDC527DBFC41B2346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524912   (130279) от 18.01.2022
-
-VA - Deep Relaxation 2k22 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ackeret - Unofficial Meeting (6:03)
-02. Pique Dame - Souvenir de Bordeaux (6:14)
-03. Aqua Mundi - Chuchaqui (5:47)
-04. Kieloval - Space Thoughts (5:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C167E0B8AC20E357D631465846777D39BC03AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524773   (130278) от 18.01.2022
-
-Shanti People - Urban Mantras (2015) [AAC|~295 Kbps] <Folk, EDM>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saraswathi Devi Sloka (3:36)
-02. Bolo Krishna (3:57)
-03. Om Namo Bhagavate Vasudevaya (4:52)
-04. Surya Narayana Dandakam (5:03)(   Читать дальше...   )Жанр: Folk, EDMПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFB2B6082809A5E0824F99F223FD4E7DFC40356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524865   (130277) от 18.01.2022
-
-VA - Sun & Chill, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mare et Monti - Sans Soucis (5:43)
-02. Jean Mare - Dandelons in Space (Deep Flow Ambient Lounge Mix) (7:21)
-03. The Compunist - Arrived on Mars (3:57)
-04. Lightson - One (Mystic Indian Mix) (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D8B7A0EA540CC9E4483E4B3E88930F1BDB080B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524861   (130276) от 18.01.2022
-
-For Found Future - Ambient Story (An Electronic Downbeat Journey from Chill to Lounge) (2016) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Forest Dreams (Artenovum Piano Mix) (5:02)
-02. A Place in the Sun (Sunset Chillout Mix) (4:56)
-03. Dream Your Dreams (Dreamscape Mix) (5:22)
-04. A Grand Texture (Piano String Chillout Mix) (3:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84034F81EC12E995F0B60A6A80CBCDD1832200D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524901   (130275) от 18.01.2022
-
-FSNotes 5.3.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130275.jpg" />
-</div>
-
-
-###  Подробнее
-
-FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2022 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Украинский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:166F327E0C2C4C23AF7C57C969FBC2BE3D22AE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491237   (130274) от 02.05.2012
-
-Triage - Rage (2012) [MP3|~245 кб/с (V0)]<Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radium 5:18
-02. Brawl 6:01
-03. Party Foul (Feat. SPL) 4:47
-04. Crossout (Feat. The Bassist) 5:08
-05. Sepsis 6:03
-06. Aneurysm (Feat. Antiserum) 4:10
-07. Tesseract (Feat. Chewie) 5:20
-08. Jane (Feat. Riskotheque) 4:44
-09. Demigod (Feat. Jaden) 6:18
-10. Obelisk 4:44(   Читать дальше...   )2012Жанр: DubstepПродолжительность: 01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C44EBBF69218B35CFCAD4181FF50AC7F81F0F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524907   (130273) от 18.01.2022
-
-VA - Pure Deluxe 3 (2014) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Newton - Easy Livin' (5:17)
-02. CiYou - June in Brasil (Easy Latin Lounge Cut) (3:37)
-03. Nightzoom - Touch My Soul (Latin Chillout Cut) (3:55)
-04. Nightview - Copaca (Latin Chillout Mix) (4:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BDE6BA98FDDFF1512B4307DCFEB9614B4746E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524867   (130271) от 18.01.2022
-
-VA - Sun & Chill, Vol. 4 (2019) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Lanibia Dreams (7 Stars Mix) (4:39)
-02. Book of Dreams - Trancephonia (Psytrance Chillout Mix) (8:02)
-03. Dream Project - Anywhere in the World (Sphere Chillout Cut) (5:06)
-04. Jean Mare - Desert Moon (Chillout Deluxe Mix) (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA694F9296A8B8353B6E6B0A98455A4746A238D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491297   (130270) от 02.05.2012
-
-Daniel Wanrooy - Slice Of Life (2012) [MP3|320 кб/с]<Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friuli
-02. Put Yourself Through This (with Elliot Johns)
-03. Ocean Terrace
-04. Dog Day Afternoon
-05. Stay In The Moment (with Blake Lewis)
-06. Tonica
-07. Bangalore
-08. White Sands (with René Havelaar)
-09. Living It Up (with Emma Lock)
-10. Pretoria (2012 Mix)(   Читать дальше...   )2012Жанр: Progressive TranceПродолжительность: 01:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B758303941A835BD561CBF1BD13B419026835C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524866   (130269) от 18.01.2022
-
-VA - Sun & Chill, Vol. 3 (2015) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Blue Odyssey (Angelina Downbeat Mix) (4:38)
-02. Lebensart - Slow Air (Just One More Time Chillout Cut) (5:02)
-03. Jean Mare - Reach for the Stars (East Chill Mix) (5:25)
-04. Dream Project - Where Are You (Vocal Chillout Mix) (4:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942F94C7E8CD1EACFB73D7C9ABEF265606718E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491042   (130266) от 02.05.2012
-
-[Wallpapers] HD Desktop Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130266.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Desktop Wallpapers Pack 4Название: HD Desktop Wallpapers Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 4000х2000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08A2DB6F82371C52EE2A3A1E8846C285CEC57C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491034   (130265) от 02.05.2012
-
-[Wallpapers] Police Desktop Wallpapers Pack 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130265.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Police Desktop Wallpapers Pack 1Название: Police Desktop Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 1920х1440
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689D09BF80AAF63FF6C4E1B23A2862C08329F5C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489903   (130263) от 02.05.2012
-
-VA - Native American Sacred Sky (2011) [MP3|320 кб/с]<New age, World, Native american>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130263.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:51) 01. World Tribe - In The Sky
-(4:19) 02. World Tribe - Heaven's Light
-(5:14) 03. World Tribe - Sundance
-(4:50) 04. Migracion - Eagle's Chant
-(5:48) 05. Migracion - Dancing To The Moon
-(7:19) 06. World Tribe - Freedom
-(5:08) 07. Migracion - Ale Loya Li
-(4:25) 08. Migracion - Wolf Song
-(6:11) 09. Migracion - Sunquy Man
-(2:49) 10. Migracion - Raza(   Читать дальше...   )2011Жанр: New age, World, Native americanПродолжительность: 01:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7C9F271107C6FF5DE3BD96D27EFAE4DE615BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491174   (130262) от 02.05.2012
-
-[Wallpapers] World Games Wallpapers (03.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089B1DD019FE33979F0D2AF5CEC8CE0C0273B5F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490942   (130261) от 02.05.2012
-
-[Wallpapers] Creative Desktop Wallpapers Pack 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130261.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Creative Desktop Wallpapers Pack 1
-Название: Creative Desktop Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD79072719767573C5C2BF776CDAF60A444919D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524664   (130260) от 19.01.2022
-
-Comcast объявляет о первом в мире испытании модема 10G для домашнего подключения
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Comcast объявила об успешном испытании прототипа модема 10G, использующего базовую технологию, которая обеспечит мультигигабитные скорости в десятках миллионов домов. В первом в мире лабораторном испытании кабельный модем Full Duplex DOCSIS 4.0 в виде однокристальной системы, созданный Broadcom, показал скорость на прием и передачу более 4 Гбит/с.Это очередной (   Читать дальше...   )
+Movavi Video Suite 10 - удобныя инструмент для для работы с видео файлами. Ну если говорить конкретнее то этот инструмент способен осуществлять такие операции как редактирование, конвертация видео, создание новых фильмов также просто вы сможете и сделать запись своего dvd диска.
+В програмный комплект входят все самые полезные инструменты для обработки dvd и видео.
+Интерфейс Movavi Video Suite 10 разделен на четыре вкладки, каждая из которых содержит полный набор инструментов для удобной работы с видео, музыкой, данными или фотографиями. Встроенный конвертер содержит предустановки для многих типов устройств, так что вы не ошибетесь, в какой формат перегонять видео для Xbox 360, а в какой, например, для телефонов Motorola. Видеоредактор умеет все, что должна уметь такая программа. А медиасплиттер еще проще, и будет полезен, если вы хотите разделить ролик на несколько частей.
+Прямо в Movavi Video Suite 10 вы можете записать видео с веб-камеры или звук с микрофона. Встроена неплохая утилита для записи и копирования (   Читать дальше...   )Название программы: Movavi Video SuiteЯзык интерфейса: Русский / Английский
 
 ## Скачать торент
 ```bash
@@ -732,28 +161,552 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525256   (130257) от 19.01.2022
+###  Публикация: 1524951   (130334) от 18.01.2022
 
-Онлайн-школа Granich, Вадим Гранич | Осознанный курс InDesign 8 поток (2019) PCRec
+Sound Grinder Pro 3.2.2 [En]
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130257.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы обучаем:
-1. Графическому дизайну
-Для этого используем систему графического дизайна. Разработали её специально для курса.
-Система структурна и наглядна. Постепенно разберем её на каждом уроке. Словно алфавит, из которого потом создадим прекрасные слова и предложения.(   Читать дальше...   )Производство: Онлайн-школа GranichЖанр: Графический дизайнПродолжительность: 48:09:07
+Sound Grinder Pro предоставляет мощный набор функций редактирования формы волны и пакетной обработки. Редактируйте аудиофайлы в новом редакторе формы волны с поддержкой многоканальных файлов, улучшенным обзором формы волны, звуковыми действиями, поддержкой петель, маркеров и регионов, автоматическим выбором регионов и т. д.
+Обрабатывайте файлы с помощью любимых плагинов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.01.2022Разработчик: © 2022 Monkey Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DA44F8B8910DB62026F6ED5F3E87866344198A5
+magnet:?xt=urn:btih:9D753541CB92C749A1C6D2F0243F97BAF8E0E57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524910   (130333) от 18.01.2022
+
+VA - Best Restaurant Background Music 2022 (2022) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Mundi - Chuchaqui (5:47)
+02. Kieloval - Space Thoughts (5:53)
+03. The Crispy Galaxy - Cream Soda (6:09)
+04. Eulenspiegel - An Unspoken Thing (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0208A9DB688749C25D211F67E177215641E83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524963   (130331) от 18.01.2022
+
+Wondershare PDFelement Pro 8.5.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130331.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat и другими приложениями PDF.
+Примечание:
+Плагины не установлены.Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518A0801CD14FC54956F40F4B508E35AF8CF8966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525013   (130329) от 18.01.2022
+
+TunesKit Video Converter 2.1.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный видео конвертер, видеоредактор и DVD риппер, который может конвертировать любое видео в 250 форматов с 60-кратной скоростью без потери качества. Вы также можете использовать его для редактирования видео или копирования любых защищенных или коммерческих DVD-фильмов в любой формат на Mac.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2021Разработчик: © 2021 TunesKit StudioПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BDA215856C6C57D93C61AAD36D3732F115B909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524925   (130328) от 18.01.2022
+
+TunesKit AceMovi Video Editor 4.8.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130328.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86E3D60639391459F6C06A4ACF0B7C86A76F6DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524857   (130327) от 18.01.2022
+
+Anita O'Day - Complete Signature & London Recordings (1942 - 1950) 2CD, 2001, The Jazz Factory [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130327.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I'm Going Mad for a Pad [3:08]
+02. And Her Tears Flowed Like Wine [3:09]
+03. And Her Tears Flowed Like Wine [3:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B457CFA3AFE9E5CD117A547A5A8915831ACB7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490923   (130326) от 02.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13511D874525193F13BFE91E00D3C1C8D21463A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490946   (130325) от 02.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 9
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BBA4BF230FCF8B1241D062C2DEFC484C7BC6F13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525024   (130324) от 18.01.2022
+
+VideoSolo Screen Recorder For Mac 2.0.50 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Независимо от того, какие виды экранных действий на вашем компьютере, например, онлайн-видео игры, скайп-чат, демонстрации, вы можете использовать VideoSolo Screen Record для записи их на видео.
+• Захват экрана на вашем компьютере в HD-видео
+• Запишите звук с компьютерной системы и микрофона одновременно
+• Сделайте снимок определенных областей экранаТип издания: macOS SoftwareРелиз состоялся: 29.12.2021Разработчик: © 2022 VideoSoloПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C1F18271E2226F6EC869ACEA8BC9D586C47853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524743   (130323) от 18.01.2022
+
+VA - Moonlight Lounge (Mediterranean Roots), Vol. 2 (2022) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Yeah Uhhh Oui (3:00)
+02. Weber & Weber - Speaking Without Words (4:49)
+03. Svendaq - Blue Bossa (6:01)
+04. Chillson, Marc Hartman - A Lifetime (4:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C334A7071945C4C8F38830289D2F2AC12C360B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490701   (130322) от 02.05.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (01.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1280х1024 - 4000х2479
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251D9B9282D320B93AF9DC325490FE99E7BD4026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525008   (130321) от 18.01.2022
+
+Клоун Коко курильщик / Koko Smokes (1928) TVRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курение это зло, бесспорно. Надо бросать эту вредную привычку, одни неприятности от нее.Производство: США, Inkwell StudiosЖанр: Рисованная анимация, короткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9496138982305628F5D84BD9EEA024DE61E495F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490699   (130320) от 02.05.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (01.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50485FB1FC2F3083BE0F9DEB9CDE2C0D50A3613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524745   (130319) от 18.01.2022
+
+VA - Oriental Lounge Affair (Exotic Arabian and Indian Moods) (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Lo-Fi>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Krishna Singh - The Spirit Of Buddha (Heart Chakra Mix) (4:57)
+02. Ragi - Double Dream (Vocal Mix) (2:43)
+03. Sarod Sapla Glee - Two Spirits (India Radio Cut) (2:39)
+04. Green Taboo - Oriental Vibes (Original Mix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo-FiПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199452276BFC100B31F7270A9B94683003A9078E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524989   (130318) от 18.01.2022
+
+PDF Reader Pro Edition 2.8.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130318.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2022Разработчик: © 2014-2022 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6635084D0A53077823CC143DCB6A8F0A2BA3EB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491039   (130317) от 02.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B693A7AF720CB65836512B9FE2D130AD9D3689C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524908   (130315) от 18.01.2022
+
+VA - Pure Deluxe 4 (2014) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Schlolaut, Frank Doberitz - Can't You Hear Me (Enigmatic Vocal Chillout Mix) (5:02)
+02. Artenovum, Emma Laveigh - Cosmic Fade (5:01)
+03. Richard Bonnee - Ma Vie (Short Electronic Deep Mix) (3:25)
+04. Nightzoom - Silence (Ambient Mix) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98F00CBECAB742218D18C45131A77CE60119DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491044   (130314) от 02.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9786C8273BA9F4E7823E0907734CA28EFE20160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490866   (130313) от 02.05.2012
+
+Excelsis - Kurt Of Koppigen (1998) [MP3|320 кб/с]<Dark Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:36)
+02. Before the Storm (7:40)
+03. Kurt of Koppigen (4:52)
+04. Grimhilde (4:55)
+05. The Dragonslayer (7:40)
+06. The Lord of Halten (5:17)
+07. Ambush in Langenthal (5:42)
+08. Song of Agnes (4:08)
+09. Distant Sky or the Wild Hunt (6:50)
+10. The Lost Chapter (6:03)(   Читать дальше...   )1998Жанр: Dark Power MetalПродолжительность: 01:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FEF820F27EB770EE70E0CC9BC2C6B8A51D4E34F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524904   (130312) от 18.01.2022
+
+VA - Pure Deluxe 1 (2014) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karen Gibson Roc, Johannes Huppertz - Fly Light (4:13)
+02. Marie Therese - Lost Somewhere (4:04)
+03. Ann Grace - Sentimenti (5:31)
+04. Mare et Monti - Sans Soucis (5:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96FFE9240AE24DE30D86FAFC7CED42A1FAB773C
 ```
 
 https://mybot314.ru/tekegram_catalog/

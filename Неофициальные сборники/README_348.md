@@ -1,3 +1,174 @@
+###  Публикация: 1554184   (577622) от 30.05.2022
+
+Claudia Mori - Compilation (2022) [MP3|320 Kbps] <Pop, Italo Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un'altra volta chiudi la porta (Chiudi la porta)
+02. E' amore
+03. Nata per me
+04. Dal dire al fare(   Читать дальше...   )Жанр: Pop, Italo PopПродолжительность: 00:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF199904D6EE6ED5FBEE25FCAA1B5CEE8F32F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920935   (577596) от 24.07.2015
+
+VA - Acoustic Chill Playlist 4 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Summer Of '69
+02. Dean Dyson - Fields of Gold
+03. Max Tanner - Heart's on Fire
+04. Josh Franklin - Stronger (What Doesn't Kill You)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A896139F92E62839858987F5B937B3272BB50ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921064   (577589) от 24.07.2015
+
+VA - Ibiza Romantic Chillout & Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaxamalka - Desimaginar [05:51]
+02. Counting Clouds - Follow Your Dream - Beach Mix [05:15]
+03. Logophilia - Tongues of Wind [05:29]
+04. Carlos Ebelhдuser - Earthlings Theme [03:13](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E88EB867155CC8483B4F76EA50AE4AB7D891EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921157   (577465) от 24.07.2015
+
+Tempest 2000 (1995) [MP3|320 кб/с]<Score>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип сделан на основе оригинального образа игры01. Future Tense
+02. Digital Terror
+03. Hyper Prism
+04. Glide Control(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2399F00B7AB8FF7E1F42E4A7D109989489B974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921049   (577455) от 24.07.2015
+
+VA - Top Hits Progressive (2015) [MP3|320 кб/с]<Bigroom, Progressive, Trance, Electro, Festival Sound>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Paffendorf - P-Train (General Tosh Remixxx) [05:33]
+02. JAGGS - Ramper (Original Mix) [04:12]
+03. Frostfire & Coke Montilla - Zombies (Original Mix) [04:57]
+04. Da Candy with Artem Teya - We Are Young (Da Candy & Hr. Troels Extended Mix) [05:24](   Читать дальше...   )Жанр: Bigroom, Progressive, Trance, Electro, Festival SoundПродолжительность: 10:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB1C9441C243CBE416BD4E56429F1FB1E5904F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361357   (577432) от 10.07.2011
+
+VA - Летний попсовый рай (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BBF7554CC82D7E7494734FB870A60BE4310465F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361354   (577430) от 10.07.2011
 
 VA - Музыкальные Новости Русского Радио (2011) [MP3|256 kbps]<Pop>
@@ -571,180 +742,6 @@ VA - Самые Ненормативные (2011) [MP3|320 kbps]<Рок / Пан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37741616A33E2194CFBD883180A8225AE3661CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303130   (576460) от 19.05.2019
-
-VA - German Top 100 Single Charts 24.05.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Juju - Vermissen (feat. Henning May)
-002. Shindy - Nautilus
-003. Ed Sheeran & Justin Bieber - I Don't Care
-004. Lil Nas X - Old Town Road(   Читать дальше...   )Жанр: PopПродолжительность: 05:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC1F0E3EA2DD878DF9FC6AA4694C70BD2D640EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303153   (576457) от 19.05.2019
-
-VA - The Official UK Top 40 Singles Chart 17.05.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran & Justin Bieber - I Don't Care
-02. Lil Nas X - Old Town Road
-03. Stormzy - Vossi Bop
-04. Lewis Capaldi - Someone You Loved(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731E1C240C0B6B3BA4E209AC75BDD97A1CC9342F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042630   (576449) от 14.08.2016
-
-VA - Europa Plus №5 50х50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576449.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elefunt's Groove - На Одной Волне
-002. Алиса Кожикина - Мы Вместе
-003. Джокеры - Параллели
-004. Слава - 2 Л 2 Ю(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9983F6CFE17FA63ABD7859A8568227DC3131554A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233470   (576331) от 02.07.2018
-
-VA - German Top 50 Party Schlager Charts (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna-Maria Zimmermann - Scheiß egal
-02. Beatrice Egli - Verliebt, verlobt, verflixt nochmal
-03. Andreas Gabalier - Verdammt lang her
-04. Michelle - In 80 Küssen Um Die Welt(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C9CB0C7B94C02850602D3DC2CCCFB113FA162B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303169   (576328) от 19.05.2019
-
-VA - Record Super Chart 587 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Calvin Harris & Rag'n'Bone Man - Giant (3:47)
-02.Aaron Smith - Dancin (Krono Remix) (4:15)
-03.MARUV - Siren Song (2:51)
-04.Mabel - Don't Call Me Up (R3hab Remix) (2:33)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D483689189FAD16A6F158CB3CD28F9682EC32AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302917   (576310) от 19.05.2019
-
-VA - German Top 40 DBC Deutsche Black Charts 17.05.2019 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, R&B>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blueface - Thotiana (feat. Cardi B, YG) (Remix)
-02. MERO - Wolke 10
-03. Chris Brown - Wobble Up
-04. dj spanish fly - Bailemos(   Читать дальше...   )Жанр: Rap, Hip-Hop, R&BПродолжительность: 02:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04427484660FAAC6EF9CFF035D109B499261858
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1096846   (917794) от 25.01.2017
+
+Carlos “Patato” Valdes - Ritmo y Candela II: African Crossroads (1996) Round World[FLAC|Lossless|image + .cue] <World Fusion, Afro-Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.El Lenguaje del Son [06:28]
+ 02.Son de Patato [07:18]
+ 03.Kora-son [06:37]
+ 04.Guloya Swing [04:28](   Читать дальше...   )Жанр: World Fusion, Afro-Cuban JazzПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317BA2DE3BE4CB3D2B3792639FD89043993AA652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096848   (917786) от 25.01.2017
 
 Eurosib International Jazz Orchestra - School Copybook (1996) Ermatell Records[APE|Lossless|image + .cue] <Mainstream Jazz, Big Band>
@@ -728,35 +757,6 @@ Marcus Shelby Orchestra - Transitions (2019) Self-Released [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E332CA2C4436983409561B841B26A49B2782E71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989672   (915798) от 23.02.2016
-
-Robert Drasnin - Voodoo II (2007) Dionysus Records[FLAC|Lossless|tracks + .cue] <Easy Listening, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Habanera In Blue [03:56]
- 02.Moorean Moonbeams [04:16]
- 03.Sambalerro [04:11]
- 04.East of Xanadu [04:21](   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115F9899A7205BFB8A0CB2E23A1D82FA4C5E9C8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

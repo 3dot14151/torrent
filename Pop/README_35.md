@@ -1,3 +1,61 @@
+###  Публикация: 1357393   (974331) от 03.02.2020
+
+Silver Pozzoli - Around My Dream (2011) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974331.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Around My Dream (Extended Version) 5:39
+2 Step By Step 3:42
+3 Love Is Alive 3:49
+4 Pretty Baby 3:54(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B01F360828C7FD0801AE810D2E47FC7E24BC614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357381   (974328) от 03.02.2020
+
+Okay - Bang! (2011) [FLAC|Lossless|image + .cue] <Synth-pop, New Beat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974328.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 The Wild, Wild Western
+2 I Won't Forget
+3 Champagne For The Boy
+4 E.d.u.c.a.t.i.o.n(   Читать дальше...   )Жанр: Synth-pop, New BeatПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4903FBD2F70F5A5C2C2D0DC0958161FADDC63844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357388   (974266) от 03.02.2020
 
 Mike Mareen - Let's Start Now (Deluxe Edition) (2017) [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco>
@@ -708,67 +766,6 @@ VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617710   (971737) от 12.02.2013
-
-C.C. Catch - 25th Anniversary Box 5CD (1986-1990) /2011, Klub80 Records Remastered/ [FLAC|Lossless]<Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, Euro-DiscoПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615349   (971660) от 12.02.2013
-
-ВИА Веселые ребята - Антология 1969-1988 (6CD) (2010) [MP3|320 кб/с]<поп, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск 11. Пришла пора (В.Добрынин - Л.Дербенёв)
-2. Треугольник (В.Добрынин - Л.Рубальская)
-3. Чашка чая (В.Добрынин - М.Рябинин)
-4. Солёное море (И.Словесник - И.Шаферан)
-5. Розовые розы (П.Слободкин - Н.Просторова)
-6. Девушка с обложки (П.Слободкин - Н.Просторова)
-7. На Канарских островах (Т.Ефимов - Д.Усманов)
-8. Пустыня (В.Добрынин - М.Рябинин)
-9. Прогноз погоды (В.Матецкий - И.Кохановский)
-10. Звездочёт (П.Слободкин - Н.Пляцковская)(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 01:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824FA7BAE7561546BC1C854B71CDD2BC898C9E67
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1123703   (786119) от 09.04.2017
+
+VA - Deep House Collection Vol.116 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786119.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A - mase - Spring Love, Mad Love (Original Mix) 6:24
+002. Alessio Pagliaroli - Magazine (Original Mix) 7:58
+003. Alex Aguayo - Action (Saturn Keys Remix) 7:23
+004. Alex Greenhouse, Julia Cage - I Don't Know (Original Mix) 5:48(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2F604E590F0608317748E4F84CAE66B33923CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123804   (786073) от 09.04.2017
+
+VA - Eurovision Song Contest – Kyiv 2017  [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lindita – World (Albania) 02:56
+02. Artsvik – Fly With Me (Armenia) 02:59
+03. Isaiah – Don’t Come Easy (Australia) 03:05
+04. Nathan Trent – Running On Air (Austria) 02:48(   Читать дальше...   )Жанр: PopПродолжительность: 02:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39987DDD728F044CD0E422169F6C1F9BB4DDCC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123983   (786044) от 09.04.2017
+
+VA - 100 Новых Красивых Песен (2017) [MP3|320 Kbps] <Pop, Rock, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michelle Branch - Hopeless Romantic (03:31)
+02. Matthew Koma - Kisses Back (03:47)
+03. James Blunt - Bartender (03:13)
+04. LP(Laura Pergolizzi) - No Witness (03:28)(   Читать дальше...   )Жанр: Pop, RnB, Rock, ChansonПродолжительность: 06:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE545E4A73B18D0603F70B007E5CA4E4E8B56F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124219   (785973) от 10.04.2017
+
+VA - Tropical House Vol.2 (2017) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Ribeira – La Luna (Gypsetter Mix)
+02. Massimo Vanoni – Flash (Radio Edit)
+03. Davide Mazzara – Cassablanca Rhythm
+04. Ante Perry & Moonbootica – Hold On(   Читать дальше...   )Жанр: HouseПродолжительность: 06:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3339A1173414867369F284D5370FF34DD3FE614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124203   (785960) от 10.04.2017
+
+VA - Music For Peaceful Sleep (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785960.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  351 Lake Shore Drive - Black Coffee  5:23
+002.  Lazy Hammock - Naked Being  4:42
+003.  Javier Orlando - Deep In My Corazon (Martin Trevis Remix)  5:16
+004.  Velvet Dreamer - Night Raindrops  5:01(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9807ED91E1723E8A1086424D3C8B6FDB589D1E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124197   (785957) от 10.04.2017
+
+VA - Chillout Hits Vol.6 (2017) [MP3|320 Kbps] <Chillout, Chillstep >
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eva Elekktra - Brain Cells Cycle (West Coast Beach Mix)  5:28
+02.  Don Gorda Project - Dedicado  5:21
+03.  Tony Donner - And You Know It's True  5:46
+04.  Eric Norman & Mighty Real - Hot Gambles  6:25(   Читать дальше...   )Жанр: Chillout, ChillstepПродолжительность: 05:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B614E018B3041A6DC6F429C15FC63BD22DB696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124103   (785942) от 10.04.2017
 
 VA - Music For Everyone - Breaks & Breakbeat Vol.5 (2017) [MP3|320 Kbps] <Breaks, Breakbeat>
@@ -571,180 +745,6 @@ VA - Disco - Greatest Hits (2017) [MP3|320 Kbps] <Disco, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B37543455907F3B26AE045E8C8F05B46ECA02F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124581   (785609) от 12.04.2017
-
-VA - Deep Vocal Mix: Extended Party (2017) [MP3|320 Kbps] <Vocal, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785609.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hugo Lanz - Night at Day
-002. Mighty Real - Little by Little
-003. Performative Mode - Path of Motions
-004. Kenny Laakkinen - With the Lights Out - Extended Mix(   Читать дальше...   )Жанр: Vocal, Deep HouseПродолжительность: 10:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C8A1EF41C0B51830525EAEA9C5E42FBE1DE463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124564   (785604) от 12.04.2017
-
-VA - Шальной шансон в дорогу. Сборник № 5 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785604.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олеся Атланова - Сумасбродство Пьеро 3:45
-002. Елена Ваенга - Невеста 3:46
-003. Максим Куст - Я Тебе Напишу Ни О Чем 3:45
-004. Олеся Атланова - Пел Миннезингер 3:20(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86934E20185D1BE033D4B9F78414812E2B1609D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124515   (785592) от 12.04.2017
-
-VA - Easy Listening: 100 Popular Jazzing (2017) [MP3|320 Kbps] <Easy Listening, Jazz, Romantic>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785592.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Johnny Mathis - My Love For You  3:06
-002.  Mel Torme - You'd Better Love Me  2:23
-003.  Tony Bennett - The Good Life  2:16
-004.  Frank Sinatra - These Foolish Things (Remind Me Of You)  3:11(   Читать дальше...   )Жанр: Easy Listening, Jazz, RomanticПродолжительность: 04:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228210B03C9C145FA4DB478B72664A52ACE5941B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124782   (785589) от 12.04.2017
-
-The Blues Project - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calypso
-02. Louisiana Blues
-03. Steve's Song
-04. Wake Me, Shake Me(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08CFAB57DEF64A3B6D14741ECE583552BF992DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203891   (785440) от 04.02.2018
-
-VA - The Official UK Top 40 Singles Chart 02.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - God's Plan
-02. Ramz - Barking
-03. Eminem - River (feat. Ed Sheeran)
-04. Dua Lipa - IDGAF(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E6C389F7126A955FDD90DFA40B6F6DD6B1192E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277295   (785417) от 20.01.2019
-
-VA - Record Super Chart 570 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fisher  -  Losing It
-02.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-03.  Axwell - Nobody Else
-04.  Denis First & Reznikov & Bright Sparks - Shameless(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D8276C1FB2BA1A5996349BDA9B24C8E7A863BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

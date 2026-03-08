@@ -1,32 +1,3 @@
-###  Публикация: 596145   (131954) от 29.12.2012
-
-VA - Disneys Greatest Hits (3CD) (2005) [MP3|320 кб/с]<Soundtrack>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131954.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Disney Chorus - Yo, Ho! (A Pirate's Life for Me) |From Pirates of the Caribbean of ...| (2:40)
- 2. Connor Funk/Haley Joel Osment/Mae Whitman - Jungle Rhythm |From the Jungle Book 2| (3:05)
- 3. Gregory Novack/Mike Sammes Singers/Robie Lester/Susan Novack/Victor Sweler - Scales and Arpeggios |From the Aristocats| (1:44)
- 4. Angela Lansbury/Beautiful Briny Band/Dave Tomlinson - The Beautiful BrinyЖанр: SoundtrackПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D3C44B2C148DF90CCB2DDE86B74FF9398E3486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 316769   (131951) от 05.12.2023
 
 Лидия Чарская | Княжна Джаваха (2007) [MP3, Наталья Рычкова]
@@ -702,6 +673,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FD50026B24D3E2A65CE9332C87CEF87BB4C5156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431350   (128778) от 10.12.2023
+
+Сказки народов мира | Посиделкино. Выпуск 2 (2009) [MP3, Надежда Рогожина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Из фонда радио «Град Петров».
+«Посиделкино» – это увлекательное путешествие в мир народных сказок, собранных со всех концов света. Вместе со сказочными персонажами вас ждут загадочные приключения и удивительные чудеса.
+Автор и ведущая программы Надежда Рогожина поможет извлечь из сказок жизненные уроки нравственности, доброты, честности и самоотверженности, (   Читать дальше...   )Жанр: Русская и зарубежная литература для детей, сказкаИздательство: Град ПетровПродолжительность: 05:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E319363F71A41CE8D06689D16FFE37E110CF3B2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

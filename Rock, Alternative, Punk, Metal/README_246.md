@@ -1,32 +1,3 @@
-###  Публикация: 878935   (838935) от 17.03.2015
-
-Celldweller - End of an Empire. Chapter 03: Dreams (2015) [FLAC|Lossless]<Industrial Metal, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Faction 07 (Instrumental)  00:31
-02 - Good L_ck (Yo_'re F_cked) (Instrumental) 03:36
-03 - Just Like You (Instrumental)  05:04
-04 - Faction 09 (Instrumental)  03:21(   Читать дальше...   )Жанр: Industrial Metal, ElectronicПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9315DA9145B2F1F8D660F55124A795792912D185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 878915   (838825) от 17.03.2015
 
 Awolnation - Run (2015) [FLAC|Lossless] <Alternative Rock, Indie, Electronic>
@@ -745,6 +716,50 @@ Marilyn Manson - Lest We Forget: The Best Of (2004) [FLAC|Lossless|tracks+.cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B21EC414216574C8D361513363A583B2880EE196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 193983   (838018) от 20.04.2010
+
+Кирпичи - 11 альбомов (1996-2005) [MP3|64-320 kbps] <Alternative/Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Года выпуска: 1996-2005Альбомлист:
+1996 - Кирпичи тяжелы
+1999 - Смерть на рэйве
+2000 - Капиталиzм 00
+2002 - Сила ума
+2004 - Let's Rock
+2005 - Царский альбомъ
+2006 - 7
+2008 - Камни
+2009 - Главклуб(   Читать дальше...   )Жанр: Alternative/RapcoreПродолжительность: 00:59:15
+
+01 | Интро | 00:16
+02 | Джедаи | 03:06
+03 | Сколько из окна? | 04:10
+04 | Верь мне | 02:18
+05 | В загон | 02:58
+06 | В огонь | 02:21
+07 | Ира | 02:56
+08 | Never Again | 02:52(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

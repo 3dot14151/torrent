@@ -1,3 +1,32 @@
+###  Публикация: 1032954   (642011) от 09.07.2016
+
+VA - Trance Music Energy Andromeda (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christina Novelli Vs Lanos -  Home (James Dymond Extended Remix) 7:48
+02. ReOrder & Audrey Gallagher -  Your Own Way (Original Mix) 5:40
+03. Aly & Fila X Luke Bond & Audrey Gallagher -  Million Voices (Original Mix) 7:38
+04. Kaimo K & Cathy Burton -  You Deserve Life (2016 Rework) 7:08(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A19503E9A07AD8D081E6ABBAC17AD10DE3D7BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032905   (642000) от 09.07.2016
 
 VA - Deep and Sexy: 20 Deep House and Funky House Music Tunes Vol.7 (2016) [MP3|320 Kbps] <Deep House>
@@ -747,35 +776,6 @@ VA - Strandhouse Rugensommer (2016) [MP3|320 Kbps] <Funky, Deep House, Tech>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:246BBA06181A16F055BAA131A8A676D43EA511CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033486   (638233) от 11.07.2016
-
-VA - Club Dance Ambience Vol.77 (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638233.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sander van Doorn vs. Florence & The Machine -  Reach The Love  (Sensetive5 Mashup) 6:07
-002. Bob Sinclair -  Someone Who Needs Me (Alex Gaudino & Dyson Kellerman Remix) 4:10
-003. Calvin Harris feat. Rihanna -  This Is What You Came For (Akhmetoff Remix) 3:48
-004. Madonna -  Music (Vincent & Diaz Remix) 5:05(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E24FC112AABF245595176F0A83D94CBB04D713A
 ```
 
 https://mybot314.ru/tekegram_catalog/

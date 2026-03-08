@@ -1,3 +1,32 @@
+###  Публикация: 1141220   (652556) от 09.06.2017
+
+Wynton Kelly Trio & Wes Montgomery - Smokin' In Seattle: Live At The Penthouse (1966) 2017, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Is No Greater Love [08:19]
+02. Not A Tear [06:33]
+03. Jingles [04:33]
+04. What's New? [04:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB61D7F38484D6FCBB485E5EF8624CFB2BAD0D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141223   (652551) от 09.06.2017
 
 Duke Ellington - Elvin chez Duke: European Tour - January 1966 (2015) La Maison du Duke [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ Bob Belden Ensemble - Treasure Island (1990) [FLAC|Lossless|tracks + .cue] <Cont
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ADF0A40C091B9B7656245E519813CF70F9041A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141690   (648611) от 11.06.2017
-
-Chick Corea - The Musician (2017) 3CD, Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Captain Marvel [08:16]
-02. Light as a Feather [14:17]
-03. I Hear a Rhapsody [09:26]
-04. Spirit Rides [13:01](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 03:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7031DAE05BC1F10A395A00F725CEA1ECF3886362
 ```
 
 https://mybot314.ru/tekegram_catalog/

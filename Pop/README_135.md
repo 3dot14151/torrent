@@ -1,3 +1,61 @@
+###  Публикация: 1540991   (648533) от 01.04.2022
+
+Beppe Cantarelli - Confusione (1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prendimi Con Te (5:49)
+02. Milano-Madrid (7:00)
+03. Come Un Sogno (4:18)
+04. Confusione (Un'aquila) (5:02)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4696EBB71CF96F61C3FF67286A46AD2C54D789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141745   (648497) от 11.06.2017
+
+Sezen Aksu - Biraz Pop Biraz Sezen (2017) [FLAC|Lossless|tracks + .cue] <Turkish Pop, Europop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648497.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. İsyancı
+2. Baba Evi
+3. İhanetten Geri Kalan
+4. Hakkımda Konuşmuşsun(   Читать дальше...   )Жанр: Turkish Pop, Europop, Vocal, BalladПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1440B3F461B35529EAB52094E8977AD1D78EC546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141820   (648385) от 11.06.2017
 
 Passengers - 4 Albums (1979-1983) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Italo-Disco>
@@ -710,64 +768,6 @@ Heat Exchange - One Step Ahead (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:196E90891F4067D443187A376749620F170C9409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292480   (646814) от 29.03.2019
-
-Sumeria - Golden Tears (1977) LP [MP3|320 Kbps] <Electronic, Downtempo, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance And Leave It All Behind You (4:47)
-02. The Encounter (5:27)
-03. Cosmic Traveller (2:58)
-04. Somewhere, Elsewhere (4:42)(   Читать дальше...   )Жанр: Electronic, Downtempo, DiscoПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E55389E4B1B32A6B9C327FB93976A13D948B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541137   (646754) от 02.04.2022
-
-Miley Cyrus - Attention: Miley Live (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATTENTION (01:36)
-02. We Can't Stop X Where Is My Mind? (Live) (05:35)
-03. Plastic Hearts (Live) (03:27)
-04. Heart of Glass (Live) (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0B75404D46E9BAB33DBEFF080D74CA565A337F
 ```
 
 https://mybot314.ru/tekegram_catalog/

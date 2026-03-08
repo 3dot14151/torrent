@@ -1,3 +1,32 @@
+###  Публикация: 1433280   (161133) от 20.12.2020
+
+VA - Record Super Chart 667 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto - The Business (2:43)
+02. Fousheé - Deep End (Katana Angels Remix) (2:35)
+03. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
+04. Slava Marlow - Снова я напиваюсь (1:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8B338A6E0187AE8E012C18D06DC75F592A8F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598693   (161131) от 21.12.2022
 
 VA - Vocal Melodic Techno for U (2022) [MP3|320 Kbps] <Melodic Techno>
@@ -716,35 +745,6 @@ VA - Beatport Electronic Pack 01 (2019) [MP3|320 Kbps] <Electronic, Synthwave, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ED3D3DB6E29C6890765CE851A08961059184C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346629   (157783) от 20.12.2019
-
-VA - Little Sea Lounge (2019) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157783.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luzzana - Tlvi
-002. Sodur - Benatural
-003. Davide Paganotto - Va Pensiero
-004. Soul Train - Jules Renauld And Von Mondo(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 09:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0F01D0CCAF6EDA61858B83CB4F1C8A3471F6D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

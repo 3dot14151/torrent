@@ -1,3 +1,61 @@
+###  Публикация: 1142335   (644964) от 13.06.2017
+
+VA - My Fitness Week Thursday: Swimming Chillout Playlist (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivier Renoir - Water Games - Main
+02. Christophe Goze - Carpe Diem - Main
+03. Christophe Goze - Take a Breath - Main
+04. Giacomo Bondi - Under Different Suns(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49326D58748A8FD785279245FC719B0579A149ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227711   (644888) от 27.05.2018
+
+VA - Inner Light: Music For Meditation Vol.03 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masterio - Mountain (Original Mix) 8:04
+02. Andrew Riqueza - Pray (Original Mix) 3:05
+03. M.D. - Day After Tomorrow (Original Mix) 3:18
+04. R.I.B. - Reflection About The Sea (Original Mix) 4:33(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651F9B1C50453D409ED52E4601C5759221919801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227619   (644885) от 27.05.2018
 
 Hells Kitchen - The End of Us (2012) Aura Music [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Tech House, Minimal>
@@ -682,64 +740,6 @@ VA - Beach Waves Lounge (Chillout Your Mind) (2018) [MP3|320 Kbps] <Balearic, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A26CF5D7EF0068E1C8BA79B62969F88AA2E1FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227921   (643137) от 28.05.2018
-
-VA - Ibiza Beats Volume 11 - Sunset Chill and Beach Lounge (2018) [MP3|320 Kbps] <Bossa Nova, Balearic, Easy Listening, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Hartman - Jazzalike
-02. Marco Moli - Amore And More
-03. Dj Deviance - Vanilla Sky
-04. Anne Chris - Skyscraping(   Читать дальше...   )Жанр: Bossa Nova, Balearic, Easy Listening, LoungeПродолжительность: 01:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839F10BBB9C07A75EA21E220AF5D26EF7C56F85E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142054   (643109) от 14.06.2017
-
-VA - Trance Runner - Episode Five (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Air-T - Moments Of Life (Radio Drive Mix)  3:09
-02.  Philip Mayer - Darkside (Radio Edit)  4:04
-03.  Surisan - Where Have You Gone (Trancephonic Radio Edit)  3:07
-04.  DJ Rosso - I Will Try (Radio Edit)  3:12(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4C0C4ACF098D501C9666A93F5B8BA9A14444C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

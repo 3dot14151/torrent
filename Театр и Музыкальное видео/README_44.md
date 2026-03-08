@@ -1,3 +1,32 @@
+###  Публикация: 1212049   (776421) от 10.03.2018
+
+The Doors : Live At The Isle Of Wight Festival '1970 (2018) DVD5 [hand made]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления The Doors на фестивале The Isle Of Wight 30.08.1970г.Видео и аудиоматериал после реставрации и ремастирования был выпущен на БД.Сам концерт по длительности небольшой,поэтому на оставшееся место добавлены фрагменты выступлений группы на ТВ (из изданных ранее на DVD фильмов "The Soft Parade - A Retrospective" и "Dance On Fire".The Soft Parade - A Retrospective
+01. The Changeling (1991 short film)
+02. Wishful Sinful (PBS TV show critique, April 28th, 1969)
+03. Wild Child (Recording studio, October 1968)(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: Psychedelic Rock, Classic Rock, Acid Rock, BluesРежиссер: Murray LernerАктеры: The DoorsПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 00:39:34 + 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD19E5FEC30BABA92ED888A7A62D2203596B8F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212241   (776353) от 10.03.2018
 
 Вадим Галыгин и гр. Ленинград / 8 Марта (2018) WEBRip [H.264/1080p-LQ]
@@ -687,34 +716,6 @@ Everest of Rock - 3 (1980) WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0CB61EBE4AF5193DB84F488CE6A3095F01CAECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391738   (771275) от 22.06.2020
-
-Al Bano & Romina Power - Liberta! (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный клип от Dirty Seagulls, Nils Astrologo, Gianmarco Gabriele на песню Al Bano & Romina Power - Liberta! из альбома 1987 г.
-Потрясающий «эффект присутствия». Рим мастерски снят с помощью дрона во время пандемии в апреле 2020 г.
-Отсутствие людей на улицах и площадях напоминает Апокалипсис. Знаменитая песня Liberta! в исполнении Al Bano & Romina (   Читать дальше...   )Производство: Италия / Dirty Seagulls, Nils Astrologo, Gianmarco GabrieleЖанр: PopПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE34075B528B9D42560B1C8C775DB769A10945F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

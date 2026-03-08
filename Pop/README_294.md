@@ -1,3 +1,60 @@
+###  Публикация: 1670975   (171385) от 24.10.2023
+
+VA - Bravo Hits 8 (1994) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mo-Do - Eins, Zwei, Polizei
+02. The B.C. 52's - The Flintstones
+03. Masterboy - Feel The Heat Of The Night
+04. Fun Factory - Take Your Chance(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0545688C1C68C455B929E8A93E02416A7AFDBB64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671004   (171205) от 25.10.2023
+
+David A. Stewart Featuring Candy Dulfer - Lily Was Here (1989) [OGG Vorbis|480 Kbps] <Electronic, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David A. Stewart feat. Candy Dulfer - Lily Was Here
+02. David A. Stewart feat. Candy Dulfer - Lily Was Here (Space Centre Medical Unit Hum)
+03. David A. Stewart feat. Candy Dulfer - Lily Robs The BankЖанр: Electronic, JazzПродолжительность: 00:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C0E19543B78F471427F70F663B70438E92D6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671610   (171201) от 25.10.2023
 
 Mike Mareen - Love-Spy (1985) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
@@ -686,64 +743,6 @@ VA - Hit News Vol. 2 (1993) [OGG Vorbis|480 Kbps] <Electronic, Italodance, Euro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ADF4BF24F7543501413B3D7EEF5C85DB50AFA5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672082   (170085) от 27.10.2023
-
-Сергей Лазарев - Я ВИДЕЛ СВЕТ (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170085.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я видел свет
-2. Алый закат
-3. Вкус Малины
-4. Ничего не оставили(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F49BE0C5FFD1F8E306EC9992B1EB1AB40FBA2FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430800   (169994) от 11.12.2020
-
-Pado & Co - Pado & Co (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want To Talk To You (4:24)
-02. Don't Refuse Me (6:01)
-03. Let's Have A Party (5:33)
-04. You Keep Me Hangin' On, Cliff Hanger, You Keep Me Hangin'... (11:01)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF111FFA6A421946FAC13E6C9DC2EAE99FC13B45
 ```
 
 https://mybot314.ru/tekegram_catalog/

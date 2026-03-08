@@ -1,3 +1,90 @@
+###  Публикация: 915991   (591444) от 07.07.2015
+
+Before Eden - The Legacy of Gaia (2005) [FLAC|Lossless]<Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nomad Soul
+02. Wizard of the South
+03. Essence
+04. I. Earth Cry(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E21D006753B48539015B1D1E1A41B0EBB3C444A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915987   (591442) от 07.07.2015
+
+Accuser - Double Talk (1991) [FLAC|Lossless]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Double Talk" (02:53)
+02. "The Freeze" (05:29)
+03. "Money" (06:59)
+04. "Flag Waver" (08:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9489CB36F6EEE9C3CBC56F71904E1C1BEB30B856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915993   (591441) от 07.07.2015
+
+Edenshade - The Lesson Betrayed (2006) [FLAC|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tmesis
+02. Thatblind
+03. They
+04. The Drop(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B125A1A4F3BB32FB55B81AF62E81B08F86CC238C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550783   (591241) от 13.05.2022
 
 Fátima (Fatima) - Fossil (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
@@ -658,93 +745,6 @@ Mendel - Equilibrium (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:738460226923994F4855F44246BCCFC5648BA3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552154   (588513) от 19.05.2022
-
-Vinnum Sabbathi - Gravity Works (2017) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Drone, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Weightlessness (00:05:21)
-02 - Early Works (00:11:27)
-03 - Gravity Waves (00:08:26)
-04 - Loop Quantum Gravity (00:09:59)(   Читать дальше...   )Жанр: Stoner, Drone, DoomПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC9E371A5B92555BB1E99FC4CCA6AEC28E5BA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918222   (588065) от 14.07.2015
-
-Gorgoroth - Instinctus Bestialis (2015) [FLAC|image+.cue]<Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588065.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Radix Malorum
-2. Dionysian Rite
-3. Ad Omnipotens Aeterne Diabolus
-4. Come Night(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F321929FA0144895E7870E737B631892A7E451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918019   (587933) от 14.07.2015
-
-Ozzy Osbourne - No Rest For The Wicked (1988) [FLAC|image + .cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miracle Man [3:44]
-02. Devil's Daughter [5:15]
-03. Crazy Babies [4:16]
-04. Breaking All The Rules [5:13](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D591DBE273DCA93663E4A68F129367FDE7FC9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

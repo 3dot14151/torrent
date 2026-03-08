@@ -1,3 +1,32 @@
+###  Публикация: 1425277   (222860) от 20.11.2020
+
+Art Farmer, Benny Golson, Jazztet - The Complete Argo-Mercury Sessions (1960 - 1962) 2004, 7CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222860.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Serenata [3:32]
+02. It Ain't Necessarily So [4:30]
+03. Avalon [3:31](   Читать дальше...   )Жанр: Hard BopПродолжительность: 07:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528E0B5D88E61D9109E801D3B9105DEC8C3B1E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513657   (222792) от 30.11.2021
 
 Tamara Kuldin - This May Only Be a Dream (2020) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Marian McPartland - On 52nd Street (1953) 2002, Savoy Jazz [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB255E8969CE6FABAD511B3A24AF705C324512B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585627   (220698) от 23.10.2022
-
-Sergio Mendes & Bossa Rio - Voce Ainda Nao Ouviu Nada! (1964) 2002, Dubas Musica [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ela e Carioca [2:25]
-02. Amor em Paz [2:56]
-03. Coisa No.2 [2:46]
-04. Desafinado [3:19](   Читать дальше...   )Жанр: Bossa Nova, Latin JazzПродолжительность: 00:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A883D29DEBA3E77CB8EBBFF09CE86460D34DCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1194132   (155904) от 25.12.2017
+
+Titiyo - This Is... (1993) [MP3|256 Kbps] <Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is... (03:44)
+02. Back & Forth (04:25)
+03. Hot Gold (04:27)
+04. Deep Down Underground (04:33)(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DFB35CBDAD89B3CEC6A5FB3922BCE033CDB1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270630   (155806) от 20.12.2018
+
+VA - Club MTV - Dance Anthems (2018) [MP3|320 Kbps] <Pop, Experimental, Synthpop, Nu-Disco,>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155806.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Livin' Joy - Dreamer
+02. Nightcrawlers - Push The Feeling On (Dub Of Doom/Short)
+03. Armand Van Helden - You Don't Know Me Featuring Duane Harden (Radio Edit)(   Читать дальше...   )Жанр: Pop, Experimental, Synthpop, Nu-Disco,Продолжительность: 03:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF84CEEB8481FDF7E42B51AF366344C968E70109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194247   (155805) от 25.12.2017
 
 Titiyo - Come Along (2001) [MP3|320 Kbps] <Pop, Soul, R&B>
@@ -683,64 +741,6 @@ VA - Новогодний подарок (2005) [MP3|320 Kbps] <Ретро>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:113639C44A2D0D8661CA4B2A5DFA2030615F81FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347176   (154103) от 22.12.2019
-
-VA - Het Beste Uit De MNM 1000 (2019), 5CD [FLAC|Lossless|tracks + .cue] <Pop Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bløf Feat. Geike Arnaert - Zoutelande (03:40)
-02. Luis Fonsi & Demi Lovato - Échame La Culpa (02:52)
-03. Shakira - Whenever, Wherever (03:17)
-04. El Profesor - Bella Ciao (Hugel Remix) (02:45)(   Читать дальше...   )Жанр: Pop Rock, ElectronicПродолжительность: 06:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9246283005E10501C87A3E9FB699AC551A24A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194485   (154065) от 26.12.2017
-
-VA - Italo Disco Megahits (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154065.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  P. Lion  -  Happy Children  5:59
-02.  Radiorama  -  Chance To Desire  4:09
-03.  Joe Yellow  -  Lover To Lover  4:19(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9724A04C5D03BCC6EDB9BE944A440BD2C317BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

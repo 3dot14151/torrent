@@ -1,32 +1,3 @@
-###  Публикация: 1356487   (978902) от 30.01.2020
-
-Amberian Dawn - Looking for You (2020) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. United
-02. Eternal Fire Burning
-03. Looking for You
-04. Two Blades(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01F46529BEA982FB079D5842666F1B103B18FF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356493   (978901) от 30.01.2020
 
 Lordi - Killection (2020) [MP3|320 Kbps] <Heavy Metal>
@@ -774,6 +745,35 @@ Jorn - Symphonic (2013) [APE|Lossless]<Symphonic / Heavy Metal>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278316   (977534) от 31.01.2020
+
+Devin Townsend - 26 Albums, 8 Compilations & Live, 4 EPs & Promos (1996 - 2019) 68CD [FLAC|Lossless|image + .cue|tracks+.cue] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девин Гаррет Таунсенд (англ. Devin Garrett Townsend, родился в городе Нью-Уэстминстер 5 мая 1972 года) — канадский певец, гитарист и продюсер. Характерным для его композиций жанром является прогрессивный метал, хотя музыкант не ограничивает себя рамками какого-то одного направления в музыке. Его произведения подвержены влиянию многих жанров, среди которых эмбиент, (   Читать дальше...   )Список альбомов:
+1995 - Heavy As A Really Heavy Thing
+1996 - Punky Bruster
+1997 - City(   Читать дальше...   )Жанр: Progressive Rock, Progressive Metal, Industrial Metal, Thrash Metal, Heavy Metal, Ambient, FolkПродолжительность: 41:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F433C22BB5D8E90DFE86161654D03BABFA95898C
 ```
 
 https://mybot314.ru/tekegram_catalog/

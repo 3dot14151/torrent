@@ -1,3 +1,61 @@
+###  Публикация: 1639657   (236850) от 14.06.2023
+
+Degenerated Sequences - Schism (2023) [MP3|320 Kbps] <Dark Electro, EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nightcrawler [00:06:25]
+02 - Divine Redemption [00:04:37]
+03 - Violent Termination [00:04:59]
+04 - Lust For Extinction [00:05:00](   Читать дальше...   )Жанр: Dark Electro, EBM, IndustrialПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52187A3E78D6D3354D32BB1AE206C37D9D0BD2E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639764   (236837) от 14.06.2023
+
+Degenerated Sequences - Schism (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nightcrawler [00:06:25]
+02 - Divine Redemption [00:04:37]
+03 - Violent Termination [00:04:59]
+04 - Lust For Extinction [00:05:00](   Читать дальше...   )Жанр: Dark Electro, EBM, IndustrialПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95EDB6ADBC6935F9B3190F9EE77F21DED661983A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630719   (236775) от 02.05.2023
 
 VA - Taj Mah Lounge, Ambient Grooves (2011-2023) Vol. 1 - 7  [MP3|320 Kbps] <Electronic, Lounge, Chill Out, Ambient, Downtempo>
@@ -687,64 +745,6 @@ VA - Levitated - Emotional Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530D8D60DADE67E3E66069D401AAB0FC5E572CE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618524   (235392) от 12.03.2023
-
-VA - Songspire Records In Miami 2023 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solanca - Recognise (Original Mix) [3:58]
-02. Nihil Young - Stalker (Original Mix) [4:06]
-03. Guy Didden feat. Mats Westbroek - Dusk (Grigoré Remix) [4:24]
-04. Envotion - Eidos (Paravorik Remix) [3:40](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DCF1F843880C256524CF1F795A09C158850EDCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618514   (235377) от 12.03.2023
-
-VA - Spring Sampler 2023 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Ferell - Lights Out (Original Mix) [07:34]
-02. Felipe Harker - Astral (Original Mix) [06:18]
-03. SIQUEIRA - Ocean Call (Original Mix) [05:53]
-04. Armando Flores - Chinese Supermarket (Original Mix) [08:48](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667DBF011D00827BAB64C3A2499E9C4702DCED53
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1286280   (714927) от 01.03.2019
+
+Chris Wonderful - Music for Lovers, volume 1 (2013/2018) [FLAC|Lossless|image + .cue] <Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You (Original Mix) (07:58)
+02. Siren (Original Mix) (07:48)
+03. Rain (Original Mix) (02:58)
+04. Crying Skies (Original Mix) (02:59)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBC65F933A75C7B098473F2EDD1DF07999BF430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286108   (714923) от 01.03.2019
+
+Gregory Esayan - My Guiding Star (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Chillout>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Silence (Intro Mix)
+02. Cradle (Extended Mix)
+03. Hive (Original Mix)
+04. One Look (Original Mix)(   Читать дальше...   )Жанр: Progressive House, Trance, ChilloutПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434DD6196961003E8D1E0D28BFC2DDD8C0727126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532018   (714746) от 19.02.2022
 
 Giuseppe Ottaviani - Liberation V6: Wax Format 10 Years (Vinyl Set), Fabric London (2022-02-05) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Armada Deep: Miami (2019) [MP3|320 Kbps] <House, Progressive House, Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC8C6581EA3F617171BA3E7DDF2846B1632A10B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286396   (713126) от 02.03.2019
-
-VA - Buddha Luxury Vol.3 (Esoteric World Music) (2019) [MP3|320 Kbps] <Downtempo, Ambient, Exotica>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J. R. Haim - Yasmin (Original Mix) 3:31
-02. Mandarin Plaza - Carpet Ride (Original Mix) 5:09
-03. FAT V - Silence Of Sadness (Original Mix) 5:45
-04. Clelia Felix - Eastern Sunrise (Original Mix) 4:25(   Читать дальше...   )Жанр: Downtempo, Ambient, Exotica, Lounge, Meditation, NewAge, RelaxПродолжительность: 01:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D623FEFDEF41A936B516B107D54237B1FB3DA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286389   (713108) от 02.03.2019
-
-VA - Trance Euphoria Vol.3 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artra & Holland - Don't Say Goodbye (DJ Anvil Radio Edit) 3:58
-02. Stimulator & Richard Blacklund - Here With Me (Radio Mix) 3:15
-03. Opt-In - Zura (Radio Cut) 4:00
-04. Kajis & Blaumar - Empty Minds (Radio Cut) 3:25(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AEE8346869EC0653BADA9A9735B68AC3B99530
 ```
 
 https://mybot314.ru/tekegram_catalog/

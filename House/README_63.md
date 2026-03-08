@@ -1,3 +1,32 @@
+###  Публикация: 110916   (247548) от 16.06.2023
+
+DJ Грув - Ты не со мной (2008) [MP3|320 kbps]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты Не Со Мной (при уч. Иракли,Гарик DMC B,Батишта)
+02. Счастье Есть 2008
+03. Forever Dancing (при уч. А. Чумакова)
+04. I Want You (при уч. Audio DJs(Android,M.Pravda)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7CCBA4EFCA0DF0000AE44AC12BFA272330167F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 16500   (247534) от 17.06.2023
 
 DJ Грув - Последние Киноремиксы (2007)
@@ -716,35 +745,6 @@ VA - Deep House Resort (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62047EADB4CA15C84AD0323EF9B5B48881986313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628260   (242086) от 23.04.2023
-
-P.O.S. - Deeper Tales (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P.O.S. - Is It OK? (Extended Mix) [5:17]
-02. P.O.S & anamē & Ercola feat. Richard Walters - Good People (Extended Mix) [6:52]
-03. P.O.S. - Thunder & Sunshine (Extended Mix) [5:56]
-04. P.O.S. & Spencer Brown - Polar Bears (Extended Mix) [6:44](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730E0D3288E5DF95010821C94EBF46CA638085F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

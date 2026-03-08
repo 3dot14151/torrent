@@ -1,29 +1,3 @@
-###  Публикация: 674843   (531989) от 11.09.2016
-
-Проекты - VideoHive - Paint Your Dreams [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paint Your Dreams - Великий проект, чтобы подчеркнуть ваши воспоминания, портфолио фотографа или деловые СМИ в динамике.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB66DB81FDAE1F22EAE0CB80CDF01EE02408DF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312570   (531964) от 04.07.2019
 
 Проекты - VideoHive - Wedding Flowers Slideshow - 24038015 [AEP]
@@ -683,6 +657,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8D8273F04A8A0CED9D92DA0FFCF209515CE769E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051868   (530315) от 12.09.2016
+
+Проекты - Проект ProShow Producer - Мой малыш [PSH]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский проект для наших малышей для PSP-6 and above.
+Для работы с проектом нужны хотя бы начальные знания программы.
+Автор Людмила Меркурьева. Спасибо.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF3F2DFA547382AE9D261E3AC8E2DF15091273C
 ```
 
 https://mybot314.ru/tekegram_catalog/

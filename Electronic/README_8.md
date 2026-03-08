@@ -1,3 +1,61 @@
+###  Публикация: 1842829   (1048792) от 17.12.2025
+
+VA - Gert Year Best Collection 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master Beat Projekt & Rollerbabe - Voice In The Sky (Original Mix) [5:42]
+02. Roman Sand - Aquarius (Original Mix) [6:03]
+03. Invisible Signs & Higher Instincts - Eternal Travellers (Original Mix) [8:11]
+04. Semper T. - Fall Mood (Original Mix) [6:06](   Читать дальше...   )Жанр: TranceПродолжительность: 03:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A9939B1C18378F79E7124881BA4AB4E6FA595C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842221   (1048665) от 15.12.2025
+
+VA - The Orient Collective: Mystic Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raul Perez - El Tiempo (5:32)
+02. Ildar Bik, Tibetania - Talika (5:49)
+03. Setrian - Condor (4:48)
+04. Kaisser Bouzriba - Deep in My Soul (5:59)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F1A428239242CD868372B12DD775AED8EAF533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842312   (1048604) от 15.12.2025
 
 VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
@@ -687,64 +745,6 @@ VA - Winter Chillout Lounge 2025 - Smooth Lounge Sounds for the Cold Season (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FD4D8EA74BEE614706FA40D0140D30B1DCEAEAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840690   (1047512) от 06.12.2025
-
-VA - YHV Melodic Progressive Sampler 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giannutzo - Fili (Extended Mix) [6:25]
-02. Jezz (EG) - Echoing Chant (Original Mix) [6:19]
-03. Triple A - Fragments (Original Mix) [5:29]
-04. GLF & AnAmStyle - Escape (Original Mix) [5:44](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 06:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACCE3DE012B63FA3B866A7FD65037A1DCABDFEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840681   (1047511) от 06.12.2025
-
-VA - A Journey Through Time and Trance (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rixson & Eternal Waves - Contagion (extended version) [7:50]
-02. Sauli - Imagine (Alternate High Extended Remix) [7:00]
-03. JimZima & Jason Gray - Halcyon (extended version) [7:42]
-04. Jochen Gareth - Coastal Breeze (extended version) [6:37](   Читать дальше...   )Жанр: TranceПродолжительность: 05:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC15F099720305B6E828338914B450BA8C1E8AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

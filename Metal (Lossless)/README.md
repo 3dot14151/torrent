@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1857883   (1060028) от 07.03.2026
+
+Triumpher - 3 Albums (2023-2026) [FLAC|Lossless|WEB-DL|tracks] <Epic heavy metal, Power metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Triumpher (2023) Storming The Walls (FLAC)
+Triumpher (2024) Spirit Invictus (FLAC)
+Triumpher (2026) Piercing The Heart Of The World (FLAC)Жанр: Epic heavy metal, Power metalПродолжительность: 3 CD, 02:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126AF1FD1D8F3445164A649353318E426EE41D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857766   (1059854) от 07.03.2026
+
+Sanctity - Road to Bloodshed (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash, Nu Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sanctity - американская thrash metal группа из Asheville, North Carolina. Она образовалась в 1998 году и выпустила альбом Road to Bloodshed в 2007 году. В то время группа работала над материалом для ещё одного альбома с новым вокалистом, имя которого не разглашалось, но работа над ним так и не состоялась. У группы был большой потенциал, о чем свидетельствует дебютный (   Читать дальше...   )01. Beneath The Machine
+02. Brotherhood Of Destruction
+03. Road To Bloodshed
+04. Laws Of Reason(   Читать дальше...   )Жанр: Thrash, Nu Metal, Heavy MetalПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8318C92AC2B7117F698C78AAAD0ABE965776AEE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857604   (1059622) от 07.03.2026
+
+Zed Yago - At The Edge Of The World (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовые немецкие хэви-металлисты ZED YAGO, молчавшие больше 15 лет, вернулись с новым альбомом "At The Edge Of The World", опубликованным на цифровых площадках в середине февраля. Этот релиз окружен атмосферой таинственности. В базах данных Metal-Archives.com и Discogs.com он отсутствует. Нет никакой информации о том, в каком составе он записывался. При (   Читать дальше...   )01. Close Your Eyes
+02. At The Edge Of The World
+03. Obsession Of Power
+04. Soldiers From The North(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EB8D098E210EACDE71E7CCE04A970FCD4C9933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857036   (1059569) от 04.03.2026
 
 Chalice - Divine Spear (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
@@ -659,93 +746,6 @@ Asagraum - Potestas Magicum Diaboli (2017) [FLAC|Lossless|image + .cue] <Black M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACC73E00DF8176C5890BDB20624D9EA3D8336E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854329   (1057254) от 18.02.2026
-
-Ian Highhill - A Hymn Among Gravestones (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Eye of the Storm (03:34)
-02. A Hymn Among Gravestones (04:21)
-03. In the Name of Greed (04:27)
-04. The Oath Breaker (03:38)(   Читать дальше...   )Жанр: Heavy, Doom Metal, Hard RockПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D39BC9D6C92A7030CE4244AD42DC9BC5B773133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854352   (1057253) от 18.02.2026
-
-Megadeth - Megadeth (2026) [FLAC|Lossless|image + .cue] <Thrash Metal, Heavy Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tipping Point (04:29)
-02. I Don't Care (03:10)
-03. Hey God?! (03:29)
-04. Let There Be Shred (03:58)(   Читать дальше...   )Жанр: Thrash Metal, Heavy Metal, RockПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF628C55955B2A096DC33EF38EE3035C40AB06AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854510   (1057250) от 18.02.2026
-
-Rotting Christ - 35 Years of Evil Existence (Live in Lycabettus) (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 666 (Live) (05:44)
-02. P'Unchaw Kachun: Tuta Kachun (Live) (04:53)
-03. Fire God and Fear (Live) (04:44)
-04. Kata Ton Demona Eaftou (Live) (04:50)(   Читать дальше...   )Жанр: Melodic Black Metal, Gothic MetalПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1847E752B9E52898F8BD8FA1FE0D6FCA0D6D114B
 ```
 
 https://mybot314.ru/tekegram_catalog/

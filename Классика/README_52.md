@@ -1,3 +1,32 @@
+###  Публикация: 1776777   (71211) от 02.02.2025
+
+VA - Classical Music Brilliance (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+03. Sergey Bryukhno - Concerto for Solo Keyboard No. 3 in D Minor, BWV 974 II. Adagio (3:17)
+04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80312BEDBC07533921E20A6537A516EE33C7C947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782560   (69997) от 01.03.2025
 
 VA - Best Classical Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -708,35 +737,6 @@ VA - The Great Romantic Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4A27317C18E043FDD6A0E0E4B899E5AC0236265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732892   (51815) от 27.06.2024
-
-VA - Calming Classical Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Bryukhno - Sonnet in C Major (1:25)
-02. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:37)
-03. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
-04. Sergey Bryukhno - Hope (1:29)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF13EA1E4B33A1A0B18ECB01B5E16E35EAB5F3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

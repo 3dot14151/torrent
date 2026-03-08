@@ -1,119 +1,3 @@
-###  Публикация: 1066593   (410083) от 27.10.2016
-
-Asphalt Valentine - Strip Rock Roll (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Lose It 04:09
-02. Dirty Little Secret 04:33
-03. It's Not Me 04:20
-04. Hard Life 05:24(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645D43AA6E1B0B7E016A1BE684B866BFF73AEC19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066403   (410080) от 27.10.2016
-
-Pulse R - In Chains (2016) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember Me   (03:23) 
-  02. Under The Rug   (04:18) 
-  03. In Chains   (06:13) 
-  04. Mindtrap   (05:25) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E1DC2C641335818AE90FE879ADAEC354459A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066886   (410070) от 27.10.2016
-
-Mindghost - The Anti-Citizen (2016) [MP3|320 Kbps] <Stoner Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free From The Demon
-02. Life Or Death
-03. My Last Breath (with Blaze Bayley, ex. Iron Maiden)
-04. Devil On A Masquerade(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6EC0316F7F7AEA7E91F1D02D668750AC5EB5BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413370   (410005) от 03.10.2020
-
-Fish On Friday - Black Rain (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life In Towns
-02. Murderous Highland Highway
-03. Black Rain
-04. Mad At The World(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B759E3A043BC50E277C5A878FB537F40B76DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413222   (410004) от 03.10.2020
 
 Soeckers - Kopfkarussell (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative Rock>
@@ -746,6 +630,122 @@ Euphoreon - Ends of the Earth (2018) Japan [FLAC|Lossless|image + .cue] <Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85FE4CDAA9CBD2319F3AA3835AEB4BE4B5979F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948887   (409352) от 21.10.2015
+
+Ulytau - Jumyr Kylysh (2006) [MP3|320 кб/с]<Ethno-Rock, Folk, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Adai
+02. Winter (Four Seasons)
+03. Kurishiler
+04. Jumyr - Kylysh(   Читать дальше...   )Жанр: Ethno-Rock, Folk, InstrumentalПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45CF96E253E3E99B9F301E91A473BD7E735198FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252404   (409315) от 05.10.2018
+
+Redemption - Long Night's Journey Into Day (2018) Limited Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes You Dare Not Meet in Dreams (5:23)
+02. Someone Else's Problem (7:02)
+03. The Echo Chamber (8:16)
+04. Impermanent (5:11)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952FCD318F51E14C850BBA4680DA4826AE59ACC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252565   (409312) от 05.10.2018
+
+Phideaux - Infernal (2018) 2CD [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409312.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Cast Out and Cold (5:32)
+ 02. The Error Lives On (7:15)
+ 03. Crumble (0:56)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: CD1 - 00:42:09 + CD2 - 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5ADB5D21F2D7270CF968214C42295C485EC6B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711573   (409301) от 17.10.2013
+
+Paul McCartney - New (2013) [FLAC 2.0 96/24 |tracks (WEB-DL)]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Us [2:39]
+02. Alligator [3:27]
+03. On My Way To Work [3:43]
+04. Queenie Eye [3:48](   Читать дальше...   )Жанр: RockПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC425D7FD174F75C3A4C1FED107472C9D9A4978D
 ```
 
 https://mybot314.ru/tekegram_catalog/

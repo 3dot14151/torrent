@@ -1,3 +1,61 @@
+###  Публикация: 1188814   (273353) от 03.12.2017
+
+VA - Liquicity Drum & Bass 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fox Stevenson - Knowhow (04:29)
+ 02. Dualistic, MENN - Thunder (05:02)
+ 03. L Plus - Battleground (04:09)
+ 04. Chinensis - Emerald Waters (Zazu Remix) (04:42)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08CC3ADBA69910311EE857ADB79F6F6ACEA09B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337613   (273265) от 11.11.2019
+
+VA - Soviett 1 Year (Compiled & Mixed by Ivan Starzev) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ksky - Paradizio (5:06)
+02. Various/Ivan Starzev - Magic (6:07)
+03. Anton Romezz - Nonpop (Ivan Starzev Remix) (7:44)
+04. DPKY - Hold On (4:28)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB91AFF0BD07B571E7933273257707F563548A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337617   (273264) от 11.11.2019
 
 VA - Get To Know: Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
@@ -677,64 +735,6 @@ VA - Pantha Du Prince - Coming Home (2017) Stereo Deluxe [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F02E0192FE6FFA5A5817F71CE73625BB865EF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188961   (272211) от 04.12.2017
-
-VA - A State Of Trance - Future Favorite Best Of 2017 (Extended Versions) (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren & Garibay feat. Olaf Blackwood  -  I Need You (Extended Club Mix)  5:30
-02.  Gaia  -  Saint Vitus (Extended Mix)  6:11
-03.  Super8 & Tab  -  Cosmo (Extended Mix)  5:27
-04.  Davey Asprey  -  Fallout (Extended Mix)  5:52(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F460346D2C51AAB2D9E6F6D9060C752CE0752B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265959   (272081) от 30.11.2018
-
-VA - Markus Schulz & Johan Gielen - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Markus Schulz & Christina Novelli - Symphony of Stars (Markus Schulz Festival Mix)
-02. Viper - Titty Twister (Jam El Mar Retouch)
-03. Above & Beyond and Spencer Brown featuring RBBTS - Long Way from Home(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E3E6D5F1AFF158628731FB1F5FCA1B61EA37E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

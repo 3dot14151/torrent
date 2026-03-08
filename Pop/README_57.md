@@ -1,3 +1,61 @@
+###  Публикация: 996251   (880832) от 13.03.2016
+
+Николай Эрденко - Старинные романсы (LP) (1975) [MP3|320 кб/с] <Романс>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё, как прежде, всё та же гитара
+02. О, если б мог выразить в звуке
+03. Отрада
+04. Калитка(   Читать дальше...   )Жанр: РомансПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD96A31069F77898E2C2F1BA6C674BC8725CC3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495487   (880718) от 12.09.2021
+
+Света - Не надо больше  (2005) [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Я запру дверь
+02 Не надо больше
+03 Ночь
+04 Не называй(   Читать дальше...   )Жанр: РорПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3030C0ECF3F03862731C1CDC4966A809A294BCED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495479   (880614) от 12.09.2021
 
 VA -   Hidden Gems: Disco, Soul & Funk 70s & 80s (2021) [MP3|320 Kbps] <Disco, Funk, R&B, Soul>
@@ -685,64 +743,6 @@ VA - 100 Greatest Wedding Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24EBAF532E52160D0F911A8991DCAAA386D68840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996763   (877323) от 15.03.2016
-
-Fun Fun - Greatest Fun - The Best Of (1994) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop, Italodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа, в которой начинала свою карьеру 30-летняя Spagna в качестве вокалистки и автора песен. Слабее, конечно, материал, но есть достаточно известные и популярные треки.01. Happy Station (Remix) (Remixed By Ben Liebrand) 3:16
-02. Give Me Your Love (Remixed By Ben Liebrand) 3:53
-03. Sing Another Song 3:29
-04. Tell Me 3:47(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, ItalodanceПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25699B89AA884855997AF7A8660B29CE9E81EF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996860   (877306) от 15.03.2016
-
-Icehouse - White Heat: 30 Hits (2011) 2CD [MP3|320 кб/с] <New Wave, Pop Rock, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877306.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Can't Help Myself
-02. We Can Get Together
-03. Walls(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 02:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E74DCC19349598819DACE216C6964F268EFCEAA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

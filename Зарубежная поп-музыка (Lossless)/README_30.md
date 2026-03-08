@@ -1,3 +1,32 @@
+###  Публикация: 1282455   (745322) от 12.02.2019
+
+Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] <Disco, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon A Time (03:03)
+02. Fairy Tale High (02:20)
+03. Faster And Faster To Nowhere (02:09)
+04. Spring Affair (02:34)(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F125752368853F745C150B617A37D3A0FEC6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282409   (745313) от 12.02.2019
 
 Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|tracks + .cue] <Electronic, Pop, RnB, Latin>
@@ -714,35 +743,6 @@ VA - The Hits Album The 60s Album (2020) [FLAC|Lossless|tracks + .cue] <Pop, Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61F5770E6A5159F4ED032370476B5198C138A351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397898   (736685) от 24.07.2020
-
-Alekseev (Никита Алексеев) - 2 Альбома (2017 - 2019) [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моя звезда
-02. Так буває
-03. Целуй
-04. Как ты там(   Читать дальше...   )Жанр: РорПродолжительность: 01:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85ABAF18A145648F034AF33BD609E10E5E4D05A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

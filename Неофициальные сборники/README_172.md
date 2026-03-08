@@ -1,3 +1,177 @@
+###  Публикация: 1386507   (794482) от 29.05.2020
+
+VA - Sunset Lounge Sounds (2020) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794482.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Loungetrax - Spektralis
+002. Roberto Bronco - Wise
+003. Titus Koibra - Music Is All You Need
+004. Faro - Passion(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 07:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43006B3435DFB9EF1E0B558B876D4E05368B391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386534   (794433) от 29.05.2020
+
+VA - Music News vol.11 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abbe Lewis feat. Danny Baldursson & Jens East - Stay (03:28)
+ 002. Alec Benjamin - I'm Not A Cynic (02:17)
+ 003. Alexander Popov & Enzo feat. Cari - Stranger Inside (03:15)
+ 004. Alina - Больно, Но Весело (03:03)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA93A0FBEB9904658539724BDDA37FAD1912CF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386276   (794432) от 29.05.2020
+
+VA - Piano Ballads (2020) [MP3|320 Kbps] <Rock, Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794432.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jose James - I Found a Love (3:44)
+2. Leela James - Fall for You (3:25)
+3. Matt Maltese - In a New Bed (3:41)
+4. First Aid Kit - A Long Time Ago (4:01)(   Читать дальше...   )Жанр: Rock, Pop, OtherПродолжительность: 05:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300FE2F60DEACE6CEAC43630ADD5C413F067A5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386511   (794426) от 29.05.2020
+
+VA - Song Of The Most: Pop Music (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794426.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anita Parker - Oihukatu
+002. Avril Lavigne - We Are Warriors
+003. Charli Xcx - Claws
+004. Glasperlenspiel - Immer Da(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274067F4572A1669C79349D401A2104834E42CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386478   (794423) от 29.05.2020
+
+VA - Music for You vol.1 (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Theater - The Enemy Inside (06:17)
+ 02. Jordan Rudess - Wired For Madness pt. 1 (11:46)
+ 03. Dream Theater - Viper King (Bonus track) (04:01)
+ 04. Dream Theater - Scene Eight The Spirit Carries On (06:38)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 05:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160E4144F8C4DE05EE005D668B269291D330CEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386484   (794402) от 29.05.2020
+
+VA - Led Zeppelin & worshippers - Live! (2020) 3CD [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Led Zeppelin - Heartbreaker (2007 Remastered Live Version from The Song Remains The Same)
+02. Led Zepagain - Immigrant Song
+03. Led Zeppelin - Over The Hills And Far Away (2007 Remastered Live Version from Song Remains The Same)
+04. Letz Zep; Billy Kulke; Andy Gray - Immigrant Song (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 24:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC0C51AF5946255DDFCA73F8CFD4E66765E476E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386451   (794401) от 29.05.2020
 
 VA - 90s Electronic (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,180 +745,6 @@ VA - 100 Songs Part 1 (2018) [MP3|192 - 320 Kbps] <Pop, Rock, etc.>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F410B7C850EC23C222FD77D38175AB965C0D4FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274237   (793985) от 06.01.2019
-
-VA - Anthology Of Blues (Vol. 02) (2019) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793985.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Albert Cummings - Workin' Man Blues
-002. Bonnie Raitt - Time Of Our Lives
-003. Dr. Feelgood - Down By The Jetty Blues
-004. Albert Lee & Hogan's Heroes - Jitterbug Boogie(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 11:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6644F08AF928D0A660A487ABC6EDF08D714B5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274288   (793927) от 06.01.2019
-
-Linkin Park - This Is Linkin Park (2019) [MP3|320 Kbps] <Alternative rock, Nu metal, Alternative metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In the End
-02 - Papercut
-03 - Heavy (ft. Kiiara)
-04 - Somewhere I Belong(   Читать дальше...   )Жанр: Alternative rock, Nu metal, Alternative metalПродолжительность: 03:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414FA714975E1658694B35B80D62785EF73692CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509614   (793920) от 13.11.2021
-
-VA - SVS Collection vol. 5 by MR.DJ (2020) [MP3|256-320 Kbps] <Deep House, D'n'B, Electro House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Unlimited - Get Ready For This (Robby Mond & VeX & Myers Radio Remix)
-002. 2 Unlimited - No limit (Bodybangers feat. Victoria Kern & Godfrey Egbon Remix)
-003. A-Mase - Forever Alone
-004. Abba - Gimme gimme gimme (FuzzDead Remix)(   Читать дальше...   )Жанр: Deep House, D'n'B, Electro House, OtherПродолжительность: 13.32.46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763C50DC36DDCDBFE104E15ED767B3008EFDBC50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509649   (793856) от 13.11.2021
-
-VA - The Blues For Yesterday (Vol.04, 2CD) (2021) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793856.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-001. Jaye Hammer - Lets Do It
-002. Jimmy Barnes - Waitin' On A Plane(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 13:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:603F1A4B803698FB9645BE3A3EEEF084F28EE6F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508534   (793850) от 13.11.2021
-
-VA - Instrumental Collection. Familiar Melodias. (1970-2020) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793850.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 R.Sayler - Yesterday (2:55) 2014
-002 Anthony Ventura - Hotel California (4:52) 1979
-003 Edward Simoni - The House Of The Rising Sun (3:24) 2009
-004 Ocarina Dream - Jambo (4:07) 1995(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 23:48:35 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9366AEE539E25C8721CBC52B0B8244626E34C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509622   (793846) от 13.11.2021
-
-VA - Beatport Synth Electronic: Sound Pack #366 (2021) [MP3|320 Kbps] <Synthwave, Synth Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793846.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Deomid - Lanote
-002. Cadee - Moving Circles
-003. Fufi.Snc - Raves On Sunday
-004. Art In Motion - Maytrea(   Читать дальше...   )Жанр: Synthwave, Synth ElectronicПродолжительность: 12:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C76E5D0795C8F2BDBB3F29C79BD9B670981079
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1377749   (850160) от 23.04.2020
-
-BONGTOWER - Oscillator (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Psychedelic Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phase I (2:35)
-02. Voskhod - 2 (10:10)
-03. Phase II (2:15)
-04. Apollo 11 (5:15)(   Читать дальше...   )Жанр: Doom Metal, Psychedelic Rock, Stoner RockПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D33EA4E2467D357F2987BEA2F70CCF44C148D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001697   (850134) от 30.03.2016
 
 Земфира - Прости Меня Моя Любовь (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -742,6 +713,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC1B448502313660B6A3748D9A7CE8A497A29AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378114   (848495) от 24.04.2020
+
+Aspen - III (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848495.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Магниты
+3. От себя никак не сбежать
+4. Забыла(   Читать дальше...   )Жанр: RockПродолжительность: 00:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492D5C62A6510EB6B8006033DB46EFE726D05716
 ```
 
 https://mybot314.ru/tekegram_catalog/

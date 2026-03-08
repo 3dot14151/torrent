@@ -1,3 +1,61 @@
+###  Публикация: 1739100   (48759) от 26.07.2024
+
+Empire Of The Sun - Ask That God (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, SynthPop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Changes
+02. Cherry Blossom
+03. Music On The Radio
+04. The Feeling You Get(   Читать дальше...   )Жанр: Electronic, SynthPop, New WaveПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D959DC6DC4E4036EDD6660C8C4162D37655E1F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739176   (48479) от 29.07.2024
+
+Ward White - Here Come The Dowsers (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Pop,  New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Continuity [00:03:59]
+02. Here Come the Dowsers [00:03:32]
+03. Cliffhanger [00:04:07]
+04. Our Town [00:03:28](   Читать дальше...   )Жанр: Power Pop,  New WaveПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B42D9ECD5A7ACAD6FB2ABC7ABBDADCF52F30BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739857   (48472) от 29.07.2024
 
 VA - Milk & Sugar Summer Sessions 2024 [MP3|320 Kbps] <House>
@@ -686,64 +744,6 @@ VA - Ride to Paradise: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:294147E0415656FCA268C8AB007C14FB77E2C5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744440   (45457) от 27.08.2024
-
-Various Artists - Italo Lounge (2007) [WavPack|Lossless|image + .cue] <Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comare Johnny - Piove (Modugno, Verdi) . . . . . . . . . . . . . .2:55
- 02. Amanda Lear - Una Notte Insieme a Te (S. Menegale, R. Ferrato) . .3:50
- 03. Jeronymo - Questi Giorni Senza Te (Jeronymo) . . . . . . . . . . .3:44
- 04. Marco Armani - Esser Duri (M. Armani). . . . . . . . . . . . . . .4:22(   Читать дальше...   )Жанр: LoungeПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0315170CD1113C6594B069DBD37AF6D87E5708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745684   (45260) от 29.08.2024
-
-Duran Duran - Notorious (1986) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notorious (Single Mix) [00:03:58]
-02. Winter Marches On [00:03:25]
-03. Notorious (Extended Mix) [00:05:16]
-04. Notorious (Latin Rascals Mix) [00:06:23](   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975AB8CE4D27E0892D29D2AC0D3F251446CDAF80
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1840040   (1046909) от 02.12.2025
-
-ColtFair - Welcome to my storm (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don't dance with the devil (4:04)
-02.  Let the drums rumble (3:26)
-03.  Welcome to my storm (4:26)
-04.  Let my heart beat for you (4:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37997BA1C4F144BBA2F1BC10119D05C9CF430353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840042   (1046908) от 02.12.2025
 
 Deadly Nightshade Botanical Society - Nothing Thrives (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -748,6 +719,35 @@ EXCIDE - Bastard Hymns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE630BFD28B9E4924CFCA65310F21D29F9503218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839499   (1046615) от 29.11.2025
+
+Leah Martin-Brown - Love & Other Crimes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr X (3:30)
+02. R U Chicken (3:31)
+03. Clooney (3:10)
+04. Levitate (4:03)(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A2430091CE2E21282DD70D7E58C750FD4BF335
 ```
 
 https://mybot314.ru/tekegram_catalog/

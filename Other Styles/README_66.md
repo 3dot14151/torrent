@@ -1,3 +1,32 @@
+###  Публикация: 1133169   (696931) от 11.05.2017
+
+Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter in the Mountains
+02. The Book of Dragons
+03. When It Snows in the Forest
+04. The Quest(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7268A50A3EAB972982755A15935EB6DAE1C35E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133186   (696872) от 11.05.2017
 
 Sverre Knut Johansen - Secret Space Program (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Ambient, Electronic, Instrumental>
@@ -719,35 +748,6 @@ OST Лара Крофт: Расхитительница гробниц 2 - Ко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C79523775D98041DAF050792D56C4EB18C6A353A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134034   (691549) от 14.05.2017
-
-Brian BecVar - Once In A Life (1994) [FLAC|Lossless|image + .cue] <New Age, Neo-Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If Tomorrow Comes
-02. Once In A Life
-03. The Tears Of Machu Picchu
-04. I Watched Her From Afar(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A134EE39D3514E388E87515306E9EFA3E179BEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

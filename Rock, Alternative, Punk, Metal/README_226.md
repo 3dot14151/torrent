@@ -1,29 +1,3 @@
-###  Публикация: 613310   (863596) от 15.04.2020
-
-Ice Age - The Great Divide (1999) [WavPack|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive MetalПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9714DD6C11E375F5173EEF161F63E37ECA05E5C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047596   (863442) от 15.04.2020
 
 Leaf Hound, Black Cat Bones (pre. Leaf Hound) - 3 albums, 6 CD (1969-2007) [FLAC|Lossless|image + .cue] <Hard Rock, Psychedelic Rock, Blues Rock>
@@ -743,6 +717,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BC15491AD780BE83B0F561AFEC5105796A1A00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375978   (862360) от 16.04.2020
+
+Leeched - You Took the Sun When You Left (2018) [FLAC|Lossless|tracks] <Sludge Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cripple the Herd [00:01:26]
+02. Rope [00:01:06]
+03. The Stone and the Steel [00:01:56]
+04. By the Factories [00:03:10](   Читать дальше...   )Жанр: Sludge Metal, MetalcoreПродолжительность: 00:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D9BCD245D0511DB1221BC9325793597A1C3B363
 ```
 
 https://mybot314.ru/tekegram_catalog/

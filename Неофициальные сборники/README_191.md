@@ -1,3 +1,177 @@
+###  Публикация: 1207869   (780269) от 20.02.2018
+
+VA - Lounge Of Sleep (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780269.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Cayo Largo  -  I Don't Need Your Number (Original Mix)  3:55
+002.  Marga Sol  -  Feelings For Free (Original Mix)  5:06
+003.  Stuce The Sketch feat. Wenawedwa  -  Silver Days (Original Mix)  4:15
+004.  CJ RcM  -  Tidal Bore (Original Mix)  4:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7D952AB3752269B54774B8BB1729C7EC3AB544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207895   (780227) от 20.02.2018
+
+VA - Большой Мальчишник (2018) [MP3|320 Kbps] <Поп, Шансон, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Вика Цыганова  -  За мужчин  2:42
+02.  Чиж & Co  -  На поле танки грохотали  3:51
+03.  Блестящие  -  Идёт солдат по городу  3:41
+04.  Гуляй поле  -  На войне, как на войне  4:18(   Читать дальше...   )Жанр: Поп, Шансон, РокПродолжительность: 03:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C57BC4CD7FB11E3A247A3E1F5FCC900816A319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207880   (780205) от 20.02.2018
+
+VA - Музыкальный Деликатес (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780205.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юля Шатунова - А выпавший снег
+002. Инфинити - Увлечение
+003. Иракли - Online
+004. Михаил Грицкан - Снежная баба(   Читать дальше...   )Жанр: PopПродолжительность: 09:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1377082C7686EAD1770646C31DAFA095D895F0B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208145   (780107) от 21.02.2018
+
+VA - Winter Twilight: Eurodance Party (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Digital Base Project - Life Is A Speedway (Original Version)
+002. Abundance - Diamonds (Original Mix)
+003. Latisha Van Simon - Let's Make Love
+004. Adam Walker - Pump It (Instrumental Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0EBB71EA59DD9A00E1C3C0B0FBEC13C07D457B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208197   (780103) от 21.02.2018
+
+VA - Hits Cocktail Vol.16 (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KSHMR feat. Sidnie Tipton - House Of Card
+02. Alison Wonderland - Awake
+03. Gromee Ft. Lukas Meijer - Light Me Up (Original Mix)
+04. Kery Fay - Secrets (Scotty Rmx)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8E43F39E66F7B94E2F451DEBD7E99622F2E825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208165   (780073) от 21.02.2018
+
+VA - Сердцу В Такт: Лирика Шансона (2018) [MP3|256-320 Kbps] <Шансон, Лирика>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780073.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Курган - Сердцу в такт
+002. Сборная Союза - Разные Мы
+003. Ирина Аллегрова - Любовь Жадная Дура
+004. Виталий Гордей - Где-То Там(   Читать дальше...   )Жанр: Шансон, ЛирикаПродолжительность: 12:21:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570B3E9E5EC71CCF64BB3B0AB5B0167DE1C74249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208367   (779992) от 22.02.2018
 
 VA - Empire Records - Reggae (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -571,180 +745,6 @@ VA - Balearic Special Relax Party (2018) [MP3|320 Kbps] <Chillout, Downtempo, Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F74BD1B318A4B6B062D8EC45DFE54739952C1C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209328   (779309) от 26.02.2018
-
-VA - Tropical Vibes vol.2 (2018) [MP3|320 Kbps] <Tropical House, Deep House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alisher - The Joy of Life (Original Mix)
-02. Robert - Jungle (Original Mix)
-03. Mark Silengton - Flight (Original Mix)
-04. Mark Silengton - Wonderful Life (Original Mix)(   Читать дальше...   )Жанр: Tropical House, Deep House, Nu DiscoПродолжительность: 03:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FF9845C68613475A7649668E0FD4B95112DDCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209645   (779291) от 27.02.2018
-
-VA - Deep House Collection Vol.158 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7even (Gr) - Amartia (Original Mix) 5:50
-02. A-Mase & Sharliz - SKY (Original Mix) 6:26
-03. Aaron Mcclelland - You (Radio Edit) 3:45
-04. Abriviatura IV - Mantra (Original Mix) 5:20(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A01E7B6B99CE7AF3CF2766A8EE2179B4A873446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209476   (779277) от 27.02.2018
-
-VA - Club Dance Ambience Vol.136 (2018) [MP3|320 Kbps] <Club House, Vocal House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #2Маши - Босая (Sam Mandarin remix) 4:44
-02. 5sta Family - Снова вместе (Vadim Adamov & Hardphol Radio Remix) 3:08
-03. 50 Cent - Love Me Now (Callypso Remix) 5:12
-04. A-Mase feat. Vera - Я Все Еще C Тобой 2018 (Radio Mix) 4:08(   Читать дальше...   )Жанр: Club House, Vocal House, Electro HouseПродолжительность: 07:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF6C500CCB214154742A791783503C4B1163E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209646   (779263) от 27.02.2018
-
-VA - Deep House Collection vol.159 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5sta Family - Снова вместе (Vadim Adamov & Hardphol Remix) 3:50
-02. A&G, Northmark feat. Gabrielle Ross - Run With Me (A&G, NorthmaAeris Remix REMASTERED 2k18) 4:56
-03. A-Mase & Sharliz - My Love (Deep Radio Mix) 3:29
-04. A-Mase feat. Rave CHannel - Just Be (Deep Radio Mix) 3:48(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049270735CF86475E944CBF356F6943279F1B831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209643   (779251) от 27.02.2018
-
-VA - Melodic Vocal Trance: Beautiful Radio Edit (2018) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779251.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Ana Criado  -  Vulnerable (Denis Kenzo Edit)  4:17
-002.  Giuseppe Ottaviani feat. Kyler Eng  -  Firefly (Omnia Remix)  3:32
-003.  Allen Watts  -  Break Without The Pain (Original Mix)  6:06
-004.  Raz Nitzan feat. Maria Nayler  -  Nothing Breaks Like A Heart (Radio Edit)  4:20(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 08:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E90A49DF6D53A6605631217932A5ACECA9C062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209440   (779218) от 27.02.2018
-
-VA - Need For Speed Vol.12 (2018) [MP3|320 Kbps] <House, Hands Up, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jens O.  -  Day After Day (Extended Mix)  3:45
-02.  Imagine Dragons  -  Whatever It Takes (Andy Light & Ramirez Remix)  3:21
-03.  Ha-Ash feat. Abraham Mateo  -  30 De Febrero (Ghostly Raverz! Bootleg Edit)  3:49
-04.  DJ Gollum & DJ Cap  -  Oxymorons 2018 (Extended Mix)  5:00(   Читать дальше...   )Жанр: House, Hands Up, DanceПродолжительность: 05:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A6341D00FDAD4F6EBEBEC90D0E2DF01389229D
 ```
 
 https://mybot314.ru/tekegram_catalog/

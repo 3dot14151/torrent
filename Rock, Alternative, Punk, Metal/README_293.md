@@ -1,32 +1,3 @@
-###  Публикация: 1274627   (793006) от 07.01.2019
-
-Sophie Lloyd - Delusions (2017) EP [MP3|320 Kbps] <Heavy Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793006.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:11] 01. Made Of Wax
-[4:25] 02. Delusions
-[3:33] 03. After Insanity
-[4:44] 04. Battleground(   Читать дальше...   )Жанр: Heavy Metal, InstrumentalПродолжительность: 00:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5FC2B1787D194B08FF6C25DDC2AE7EAF16E651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274548   (792993) от 07.01.2019
 
 Venom - Storm the Gates (2018) [MP3|320 Kbps] <Thrash Metal, Black Metal>
@@ -750,6 +721,35 @@ Magnum - The River Sessions (2005) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A649007AA81254FF088BFA0E42726037B1C503AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213578   (792618) от 14.11.2021
+
+John 5 aka John William Lowery + Side Projects (L.A. Rats, Red Square Black, Two, Loser) - 35 Releases (1994-2021) [MP3|320 Kbps] <Alternative Rock, Alternative Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792618.jpg" />
+</div>
+
+
+###  Подробнее
+
+2004 - Vertigo
+2005 - Songs For Sanity
+2007 - The Devil Knows My Name
+2008 - Requiem(   Читать дальше...   )Жанр: Alternative Rock, Bluegrass, Industrial Metal,  Alternative Metal, CountryПродолжительность: 14:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0850B4F7751038714E5005D47E41FAA6A722ECFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

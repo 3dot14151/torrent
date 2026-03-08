@@ -1,32 +1,3 @@
-###  Публикация: 1399527   (732971) от 01.08.2020
-
-Ensiferum - Iron (2004) [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferrum Aeternum (03:28)
-02. Iron (03:53)
-03. Sword Chant (04:45)
-04. Mourning Heart - Interlude (01:24)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A0D15671984CBB48C77CC2EA148FDD8E347D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399329   (732968) от 01.08.2020
 
 Lyonen - This Is Lyonen (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
@@ -744,6 +715,35 @@ Rod Stewart - Ballads (UY) Unofficial Release [APE|Lossless|image + .cue] <Pop R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83A7741EA5E6FA997823528E9BD9621A26B2E542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021722   (731987) от 30.05.2016
+
+VA - Greatest Oldies 70's (unknown year) Unofficial Release [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steely Dan - Do It Again
+02. Gilbert O'Sullivan - Get Down
+03. Elton John - Crocodile Rock
+04. Albert Hammond - It Never Rains In Southern California(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA359A15387001FA23929DD8A6D2F9C542635B65
 ```
 
 https://mybot314.ru/tekegram_catalog/

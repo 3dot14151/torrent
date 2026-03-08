@@ -1,32 +1,3 @@
-###  Публикация: 906517   (643710) от 09.06.2015
-
-Our Last Crusade - The Ideal & The Actual (2015) [MP3|320 кб/с]<Progressive Metal, Djent, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643710.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Don't Let Your Dreams Die
-2. Machination
-3. Vessel of Vices
-4. Borne By the Best Intentions(   Читать дальше...   )Жанр: Progressive Metal, Djent, ExperimentalПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CBD685CA52C05A3529E8C829EDE83C8F4D1BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906420   (643704) от 09.06.2015
 
 Kroda - Ginnungagap-Ginnungagaldr-Ginnungakaos (2015) [MP3|320 кб/с]<Pagan Metal,  Folk Metal, Black Metal>
@@ -758,6 +729,35 @@ Monument - Hellhound (2018) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CEA96394DCC24F16DBE39C8018F52C05EDE42DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541876   (643136) от 04.04.2022
+
+Grimorium Verum - Reall (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In The Labyrinth Of The Dead (00:06:03)
+02 - Black Church Eternity (00:04:33)
+03 - The Lamp Of Destiny (00:05:36)
+04 - Hourglass (00:02:16)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C199288E3CCA504D02ECF9094C732D7E8737D015
 ```
 
 https://mybot314.ru/tekegram_catalog/

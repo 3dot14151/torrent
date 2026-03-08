@@ -1,3 +1,125 @@
+###  Публикация: 909369   (627035) от 17.06.2015
+
+VA - Дискотека Казанова Старые Песни По Новому vol.4 (2015) [MP3|320 кб/с]<Club, Dance, Hands Up, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DIP (DANCE IN PEACE) - Give Me Your Loving (John.E.S Remix)
+02. Lazybox - Ever More (Original Mix)
+03. Nick Skitz & Basslouder - Me And You (Radio Edit)
+04. Eiffel 65 - Blue-Da-Ba-Dee (Danceboy Remix)(   Читать дальше...   )Жанр: Club, Dance, Hands Up, EurodanceПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF59A5811BEF1112F6C2F866B960AD1BE11DA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144479   (626909) от 22.06.2017
+
+VA - Italo Disco Vol.10 (2017) [MP3|320 Kbps] <Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Siberian Heat - Flute Cries (Maxi Version)  8:11
+02.  D.White feat. Soulya ID - One Wish  6:40
+03.  Boris Zhivago - One Day (Original Version)  9:05
+04.  Magic System D.J. - I Wanna Touch Your Body Now  6:43(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A601E26160EE54809FC4F3B647A6C53F639E6010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144598   (626908) от 22.06.2017
+
+VA - Auto Hits (2017) [MP3|320 Kbps] <Pop, Trance, Disco, House, Electro, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam De Great & WaveShock & Digital Mode - Keep On Movin (Abramo Edit) (4:53)
+02. Alex Heimann - Freed From Desire 2017 (Extended Mix) (5:30)
+03. Alex M. - I Can't Stand It (Again) (Radio Edit) (3:19)
+04. Alok ft. Bruno Martini ft. Zeeba - Hear Me Now (Original Mix) (3:11)(   Читать дальше...   )Жанр: Pop, Trance, Disco, House, Electro, EurodanceПродолжительность: 04:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEF91737A165BE35C53CE65077ED35178C0AEB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521652   (626696) от 11.07.2012
+
+VA - Панк-Рок в Авто (2012) [MP3|294-320 кб/с]<Punk, Punk Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Приключения Электроников - Позвони Мне, Позвони
+ 02. Zebrahead - Survivor
+ 03. Братья Пилоты - Дай мне шанс
+ 04. Simple Plan - Can't Keep My Hands Off You
+ 05. Т-34 - Мудакам нас не сломать!
+ 06. The Ramones - I Wanna Be Sedated
+ 07. ПопКорн - Чудо кот
+ 08. Dead Kennedys - Police Truck
+ 09. Три июля - Она хотела
+ 10. The Offspring - The Future Is NowЖанр: Punk, Punk RockПродолжительность: 05:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1EEA6561EDEC56843C25C31DFB1ACB638002B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035370   (626589) от 17.07.2016
 
 VA - German Top 100 Single Charts (25.07) (2016) [MP3|320 Kbps] <Pop, Dance, Club>
@@ -658,128 +780,6 @@ VA - Motivation Mix (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E6C9A2FE63D5571D1E00508409840CCEB6760D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910243   (621781) от 20.06.2015
-
-VA - Car Audio. Живyщий мyзыкoй.(Sound Clinic - Special Еdition) (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Trap, Dubstep, Electro, Trance, Progressive, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621781.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 16 Вit Lolitas - I'll Вe True(Originаl Мix)
-2. 4lienetic - Lifeless(Originаl Мix)
-3. 7Oceans - Crossfire(Originаl Мix)
-4. Acid Pauli, Monolink - New Morning(Originаl Мix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Trap, Dubstep, Electro, Trance, Progressive, TechnoПродолжительность: 15:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71914637E7A04C427DF6D0B8E85095A7F0CB144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145362   (621221) от 25.06.2017
-
-VA - Старые Песни По-новому: Зарубежный Выпуск (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Eurodisco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ATB pres. Daniel G. Sarr - I Want U (SQ-1 Mix)  6:49
-02.  2 Unlimited - No One (A. Kraft ReCover)  3:40
-03.  DJ Bobo - Love Is All Around (David May Mix)  3:23
-04.  Bad Boys Blue - From Heaven To Heartache (MC's Radio Edit) (feat. Brian Cornell)  3:55(   Читать дальше...   )Жанр: Eurodance, Euro-House, EurodiscoПродолжительность: 06:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C20A362971764B77BB3552DA6B1ECF1D1AB0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036455   (621164) от 20.07.2016
-
-VA - Works Receptor Liquid Body (2016) [MP3|243-320 Kbps] <Club, Soulful, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Kane - Echoes 07:00
-02. Nick Holder - Black Jazz #4 08:00
-03. Kush - Drive 07:09
-04. Askery Ft. Jax - Castle (Extended Mix) 04:52(   Читать дальше...   )Жанр: Club, Soulful, Nu DiscoПродолжительность: 08:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E765F5180831DF1246900059EDE8AF735B9A8B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522827   (621149) от 14.07.2012
-
-VA - Club In Car Summer Vol.4 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cathy Burton & Omnia - Hearts Connected (Skytech Remix)
-02. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
-03. Bartlett Bros & Matt Loki feat. Tiff Lacey - Sweet Child (Fabio XB Rework)
-04. Julian Vincent and Shannon Hurley - Lost In Space (DoubleV Remix)
-05. Andy Duguid feat. Shannon Hurley - I Want To Believe (Original Mix)
-06. S.K.A.M. - Outside The Box (Original Mix)
-07. David Amo, Julio Navas - I Can (Original Mix)
-08. Toni Braxton - I Heart You (Mark Picchiotti Re-Imagined Vocal Mix)
-09. Nicologik and Zephyr vs Tiff Lacey - Lost for Words (Extended Mix)
-10. Solarstone feat. Clare Stagg - The Spell (Pulser Mix)Жанр: Dance, ClubПродолжительность: 05:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6017EF703ED780771F5984B78D44D5A4DA338810
 ```
 
 https://mybot314.ru/tekegram_catalog/

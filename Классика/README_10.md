@@ -1,3 +1,32 @@
+###  Публикация: 996965   (876944) от 15.03.2016
+
+VA - Золотое Барокко (2001) S&V #02/2001 [FLAC|Lossless|tracks + .cue] <Baroque>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876944.jpg" />
+</div>
+
+
+###  Подробнее
+
+4
+01. Georg Friedrich Handel - Arrival of the Queen of Sheba (3:02)
+02. Johann Sebastian Bach - Concerto In D, BWV 1043 (7:18)
+03. Georg Philipp Telemann - Violin Concerto No.8 in G (2:08)(   Читать дальше...   )Жанр: BaroqueПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5644432D56594C82FD75F69C249F781F4D8702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105215   (876401) от 17.02.2017
 
 Tina Guo - The Journey (2011) [FLAC|Lossless|tracks + .cue] <Classical Contemporary>
@@ -722,35 +751,6 @@ La sonnambula
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7B2F283120F40ED3A2B36B1935970FEBACF68A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996845   (869809) от 19.03.2016
-
-George Frideric Handel - Arminio (2016) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (03:14)
-02. Menuet (01:01)
-03. Act 1: Fuggi, mio bene (00:57)
-04. Il fuggir, cara mia vita (02:48)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378D2F0AFF89D776760C6E4CEB3A92FEA95A4B61
 ```
 
 https://mybot314.ru/tekegram_catalog/

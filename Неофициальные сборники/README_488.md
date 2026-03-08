@@ -1,3 +1,182 @@
+###  Публикация: 580266   (345887) от 24.11.2012
+
+VA - R.G. DHT-Music - Dubstep Female Vocal (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delta Heavy - Get By (Radio Edit)
+ 02. La Roux - Im Not Your Toy (Nero Remix)
+ 03. Sabi - Wild At Heart (Zeds Dead Remix)
+ 04. Sub Focus - Out The Blue Feat Xilent remix
+ 05. Knife Party - Internet Friends Original mix
+ 06. Emily Browning - Sweet Dreams (DJ WaY Dubstep Remix)
+ 07. Havana Brown - We Run The Night
+ 08. Ellie Goulding - Lights Bassnectar rmx
+ 09. Emma Hewitt - Foolish Boy (KATFYR Album Edit)
+ 10. Spiner - You wait(feat Veela)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFE99656DC2E4795AD60F7D923118F55AB66996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579888   (345760) от 24.11.2012
+
+VA - Dubstep 2012. - 20 Мегахитов (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Kaskade ft. Mindy Gledhill-Eyes (Alvin Risk Remix)
+02.Katy Perry-E.T (Rogue Dubstep Remix)
+03.Skrillex-Scary Monsters And Nice SpritesЖанр: DubstepПродолжительность: 01:31:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1406328E776F6CB0E0BB1B3D45BF28A7A7E450A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073313   (345720) от 16.11.2016
+
+VA - Высшая лига хитов шансона - 5 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345720.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Сергей Трунов - Жизнь Без Любви 4:27
+002.Евгений Коновалов - Света 3:46
+003.Жека - Цвет Шафрана 3:20
+004.Александр Келеберда - Все Лучшее В Прошлом 3:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85489C83A271469EEA51D5CB63B22D172088F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073309   (345715) от 16.11.2016
+
+VA - Попсовая соточка от Хит fm 5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345715.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Градусы - Вали Гуляй 3:48
+002.Tiana - Плен 3:40
+003.Turbotronic - Booty Shake 4:37
+004.Zara Larsson Feat. Tinie Tempah - Lush Life 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23D32AD54AE487871B84B264F7C1EA6E2536D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073319   (345709) от 16.11.2016
+
+VA - Убойные хиты на Шансоне (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345709.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Юрий Монрэпо - Девочка-Красавица 3:19
+002.Сергей Кириченко - Этапом 4:51
+003.Сборная Союза - Белая Зима 3:46
+004.Александр Марцинкевич & Цепи - Бандито 3:37(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0629D0BA99D137BD8FEC2628D85C7AF5F3F7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257396   (345659) от 26.10.2018
+
+VA - Chill House: HedKandi October Set (2018) [MP3|320 Kbps] <Chill, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345659.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wilyam De Love - Tell Me
+002. Dj Soulstar - My Love Is Everlasting
+003. Roberto Sol - Miles Beyond
+004. Sade - No Ordinary Love 2K18(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 09:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213A7085E2134C39F54BA085CCCCF7CCD35EE300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330049   (345606) от 08.10.2019
 
 VA - Dance Hits Collection 90s Vol.6 (2019) [MP3|320 Kbps] <Euro-House, Eurodance, Electronic>
@@ -573,186 +752,6 @@ VA - Empire Records - Chill Clinic (2017) [MP3|320 Kbps] <Chillout, Downtempo, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BEE21244BEFF4F4E110D97072741E46940C732D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179924   (344570) от 02.11.2017
-
-VA - Exotic Lounge: Relax Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344570.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cafe Americaine - Across The Equator
-002. Puremusic - Unsaid (State Azure Remix)
-003. The Sura Quintet - Walking On The Sand
-004. Sine - Glittering Water(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023AA5F7CF8754E77F9559F25465324CC8E6F887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418832   (344557) от 26.10.2020
-
-VA - Record Super Chart 659 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rauf & Faik feat. NILETTO - Если тебе будет грустно (3:11)
-02. Bastard! - F..k That (3:38)
-03. Jason Derulo - Take You Dancing (3:10)
-04. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A68F4EDF501191A61F37CD9C4C417BE524EF9BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418961   (344555) от 26.10.2020
-
-VA - Yellow Day: National Pop Music (Vol.04) (2020) [MP3|320 Kbps] <Pop, Dance, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344555.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andriamad - Foule Sentimentale
-002. Cheeze - Excuse
-003. Nct Dream - Puzzle Piece
-004. Violeta Ikari - Aperanti Erimia(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 07:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624A4E917A513AEDA8D3D144E4E1AA750F536E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418820   (344546) от 26.10.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 23.10.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAYE - Natalie Don't (3:14)
-02. twocolors - Lovefool (3:10)
-03. Dotan - NUMB (3:38)
-04. Hurts - Redemption (4:18)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1787742CC8F27AFC50E5DEACD375F8B6DDF03F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579794   (344532) от 24.11.2012
-
-VA - Танцевальный рай Dream House (2007) [MP3|320 кб/с]<Dance,House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 DJ Dado - Metropolis '2006
- 02 Project Driver - Join the dream
- 03 Ronald Snypes vs. Robert Miles - Children (dreamphase vers.)
- 04 Mid Air - Killing me softly (Fugees)
- 05 Wisehand - Timeless
- 06 Adriatic - Memories
- 07 Zhi-Vago - Celebrate (the love) radio mix
- 08 Floribunda - Floribunda
- 09 F-Project - Cry for love
- 10 Taucher - WinterloveЖанр: Dance,HouseПродолжительность: 04:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1559CFA68529CF686E5B338230488B47405CA68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418948   (344435) от 26.10.2020
-
-VA - Listen To Your Heart: Vocal House Session (2020) [MP3|257-320 Kbps] <Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344435.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Block & Crown - Can't Get You Out
-002. Kastomarin - Mindreader
-003. Vzxx - Want U More
-004. Slippy And Ash - Swing (Extended Mix)(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2FAFCA11226E150F505502ABB79450FBB2158A
 ```
 
 https://mybot314.ru/tekegram_catalog/

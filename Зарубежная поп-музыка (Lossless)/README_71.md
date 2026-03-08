@@ -1,3 +1,32 @@
+###  Публикация: 1632300   (244316) от 09.05.2023
+
+Shakin' Stevens - Re-Set (2023) [FLAC|Lossless|image + .cue] <Pop-Rock, Rock 'N' Roll>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George
+02. Not in Real Life
+03. It All Comes Round
+04. May(   Читать дальше...   )Жанр: Pop-Rock, Rock 'N' RollПродолжительность: 00:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96185A536A4FBD8977601E659501A3635F8A9B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622661   (244188) от 29.03.2023
 
 VA - All 00s (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
@@ -716,35 +745,6 @@ Alexander Rier - Zwischen dir und mir (2012) [FLAC|Lossless|image + .cue] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA7DAEB5DB3F4AFABFD8A0C2326713BBDE0E4FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639012   (238466) от 12.06.2023
-
-Savage Garden - Savage Garden (1997) Original Version, 2023, Sony Music Entertainment [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Moon & Back [00:05:39]
-02. Carry On Dancing [00:03:44]
-03. Tears of Pearls [00:03:46]
-04. I Want You [00:03:51](   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Synth-popПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F799C3218C806751D14B86616D903BDE6C2863F
 ```
 
 https://mybot314.ru/tekegram_catalog/

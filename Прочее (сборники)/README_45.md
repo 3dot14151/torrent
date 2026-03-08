@@ -1,3 +1,119 @@
+###  Публикация: 1200788   (794506) от 22.01.2018
+
+VA - Дискотека 2018 Deep House - The Best Vol.4 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denis First & Reznikov - One & One (Radio Edit)
+02. Mr. DJ Monj & A-Mase feat. Julia Turano - Only One (Radio Mix)
+03. VetLove, Mike Drozdov feat. Natune - Fall in Love (Original Mix)
+04. Natasha Baccardi - Sexy Lady (Original Mix)(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 28:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B6E3A288253243C0ADAC2651870EDADB1F0F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386534   (794433) от 29.05.2020
+
+VA - Music News vol.11 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abbe Lewis feat. Danny Baldursson & Jens East - Stay (03:28)
+ 002. Alec Benjamin - I'm Not A Cynic (02:17)
+ 003. Alexander Popov & Enzo feat. Cari - Stranger Inside (03:15)
+ 004. Alina - Больно, Но Весело (03:03)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA93A0FBEB9904658539724BDDA37FAD1912CF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386276   (794432) от 29.05.2020
+
+VA - Piano Ballads (2020) [MP3|320 Kbps] <Rock, Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794432.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jose James - I Found a Love (3:44)
+2. Leela James - Fall for You (3:25)
+3. Matt Maltese - In a New Bed (3:41)
+4. First Aid Kit - A Long Time Ago (4:01)(   Читать дальше...   )Жанр: Rock, Pop, OtherПродолжительность: 05:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300FE2F60DEACE6CEAC43630ADD5C413F067A5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386478   (794423) от 29.05.2020
+
+VA - Music for You vol.1 (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Theater - The Enemy Inside (06:17)
+ 02. Jordan Rudess - Wired For Madness pt. 1 (11:46)
+ 03. Dream Theater - Viper King (Bonus track) (04:01)
+ 04. Dream Theater - Scene Eight The Spirit Carries On (06:38)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 05:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160E4144F8C4DE05EE005D668B269291D330CEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386451   (794401) от 29.05.2020
 
 VA - 90s Electronic (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -630,125 +746,6 @@ VA - The Best World Ballads - 32 (2017) [MP3|192-320 Kbps] <Pop, Rock, Blues, Ra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7BE2C6EBF4B9ECDDC024B9D8C075B70E33C89CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123429   (792338) от 07.04.2017
-
-VA - Hits of My Soul Vol. 25 (2017) [MP3|320 кб/с]<Trailer Music>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Hi-Finesse - Rampage (01:09)
-02. Ninja Tracks - Foot In The Grave (02:13)
-03. Brand X Music - Solitude (No Solo Vox) (03:09)
-04. The Hit House - Ruth (Drums) (02:22)(   Читать дальше...   )Жанр: Epic Orchestral, Epic Hybrid, Classical Crossover, Trailer MusicПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76F84F120573BB6DAEC2720A4CC6F80BE7A836D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274638   (792266) от 08.01.2019
-
-VA - Ice Cream Dance Disco (2019) [MP3|320 Kbps] <Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792266.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Boogymann - Boogydown
-002. Get To Know - The Big Throwdown
-003. James Rod - Joe Joe
-004. Motte - Darkroom Boogie(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 09:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7011BC8EAA273D79CA9AFAC0F506BF6951FBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201613   (792232) от 25.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0008 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Blanche - Sign Of Love ( 7'' Version 1985 )
-02. Call It Heaven - Boys Boys Boys ( 1987 )
-03. The Crosslines - Angel Eyes ( Maxi Version 2013 )
-04. Tapps - Crazy For You ( 1995 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:025133CAAA747B5AEB4A6BD96BEB11E640F776D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201602   (792228) от 25.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0006 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Rogers - Happy Moon ( 1986 )
-02. Device - Hanging On A Heart Attack ( 1986 )
-03. Angela Lee - Why Can't We Live ( 1986 )
-04. Shanghai - Radio Girl ( Classical Version 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98814F3FA04154FE4B735B1D4321EE9E549CCB30
 ```
 
 https://mybot314.ru/tekegram_catalog/

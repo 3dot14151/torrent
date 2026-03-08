@@ -1,3 +1,183 @@
+###  Публикация: 1031685   (651376) от 04.07.2016
+
+VA - Огонек (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Женя Белоусов - Золотые купола [05:18]
+02. Мираж - Музыка нас связала [04:28]
+03. Андрей Державин - Чужая свадьба [04:27]
+04. Aлена Апина - Электричка [04:33](   Читать дальше...   )Жанр: PopПродолжительность: 04:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3FB16DA7BAFD8613B14C882285BE0068EBB843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031533   (651361) от 04.07.2016
+
+Ronnie James Dio - We Rock (2016) (Compilation) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven And Hell
+02. Rainbow In The Dark
+03. Along Comes A Spider
+04. Don't Tell The Kids(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA227495C248268644EA5E9C238C6DAA12C4A797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905065   (651347) от 05.06.2015
+
+VA - Car Audio. Первый летний (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Dubstep, Trance, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651347.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adamwah - Departure (Original Mix)
+2. Adultnapper, Black Light Smoke - Idiot Fair (H.O.S.H., The Deer Dub)
+3. Afrobeat, 6Souther, Tenisara - Never Look Back (Original Mix)
+4. Alfonso Muchacho - You Changed Me (Original Mix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Dubstep, Trance, TechnoПродолжительность: 14:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F453DB9BF54295B1638BC8BB5BE7CFEAEAA3E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905276   (651336) от 05.06.2015
+
+VA - Alterportal HITS 15 Vol. 80 -   April (2015) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Quarters Dead - The Two of Us
+02. Flaw - Bleed Red
+03. In Virgo - Set Me Free
+04. Scarecell - Reach(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA4C4C4DCE1F25560EBC6BA7A4158CA0E886357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516474   (651312) от 29.06.2012
+
+VA - Парад хитов русского рока (2012) [MP3|256 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651312.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Вячеслав Бутусов и Ю-Питер - Аделаида
+002 Чайф - Для него, для себя, для меня
+003 Конец Фильма и Znaki - Абсурд
+004 Земфира - Деньги
+005 Танцы минус - Нна
+006 Сплин - Страшная тайна
+007 Би-2 - Девушки
+008 Е2 Знакомы - В лабиринтах
+009 Смысловые Галлюцинации - Демоны
+010 Бригадный Подряд, Король и шут, Пилот и Кукрыниксы - Питер Pок-Н-Ролл(   Читать дальше...   )Жанр: RockПродолжительность: 06:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8DD5ECE4FB146F7CE5649982F7A7C7547982B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031590   (651250) от 04.07.2016
+
+VA - Русская Дискотека ХХ Века - 30 (Ласковый Май) (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шатунов Юрий - Белые Розы ( 1988 )
+02. Барабаш Юрий - Младшая Сестренка ( 1992 )
+03. Исангулов Рафаэль - Театр ( 1989 )
+04. Шурочкин Владимир - Ласковый Май ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356A4D26E493150B0B567EC9CF709963A1237C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516581   (651164) от 29.06.2012
 
 VA - Europa Plus Включи Весь Мир! Лето (2012) [MP3|128 kbps]<Pop>
@@ -586,180 +766,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80316CF43FDE8681CB79008562A3FCB94BB950AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905747   (649602) от 06.06.2015
-
-VA - Resident Advisor Top 50 Charted Tracks For May (2015) [MP3|320 кб/с]<House, Funky, Deep, Electronica, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KiNK - Cloud Generator (Original Mix) [07:11]
-02. Stephan Bodzin - Singularity [07:02]
-03. Trulyors - Expeditions (Grandmoms Hands Remix) [06:36]
-04. Recondite - Serak (Original Mix) [07:28](   Читать дальше...   )Жанр: House, Funky, Deep, Electronica, MinimalПродолжительность: 06:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2360A37FA409EA208E8AC8A9921A8094FDC9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905477   (649600) от 06.06.2015
-
-VA - Chill Acoustic Playlist 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Piano>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Run to You
-02. Jessie Reeves - Video Games
-03. Dean Dyson - Mad World
-04. Henrietta Adewole - I Try(   Читать дальше...   )Жанр: Downtempo, Chillout, PianoПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43FE25623B3C565D5A372A94D644AD76F207A3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031677   (649551) от 05.07.2016
-
-Girlschool - Greatest Hits (2015) [MP3|256 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn It Up
-02. Not For Sale
-03. Danger Sign
-04. Take It All Away(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67636EF639270F23E040D43A6CA342698D1F686C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031756   (649550) от 05.07.2016
-
-VA - Night Chilled Jazz (2016) [MP3|320 Kbps] <Chill Jazz, Downtempo>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz 2016 - Jazz Lounge
-02. Nandy Xavier - Joaninha
-03. Raquel Silva Joly - Cancao do Sal
-04. PNFA - Water Path(   Читать дальше...   )Жанр: Chill Jazz, DowntempoПродолжительность: 04:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE0AA2C640E0275EFDB522730CBF4794A884886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905620   (649485) от 06.06.2015
-
-VA - Lounge Cocktails (2013) [MP3|320 кб/с]<Lounge, Jazz>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hank Mobley, Djalma Ferreira, Luiz Antonio - Recado Bossa Nova (Remastered) (08:11)
-02. Cal Tjader - Soul Burst (Guajera) (04:41)
-03. Stan Getz, Charlie Byrd, Antonio Carlos Jobim, Newton Mendonсa - Desafinado (05:50)
-04. Roy Ayers Ubiquity, William Allen - This Side Of Sunshine (03:17)(   Читать дальше...   )Жанр: Lounge, JazzПродолжительность: 01:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4367CD86DA1A30CC08133332D32C7C909A1D5CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905770   (649484) от 06.06.2015
-
-VA - Club of fans Dance. Vol.3 (2015) [MP3|320 кб/с]<Сlub, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciara - I Bet (R3hab Remix)
-02. Ciara - Give Me Love (Original mix)
-03. Ellie Goulding - Love Me Like You Do (Alexx Slam & Leo Burn Remix)
-04. Fake Forward feat. Erika - What I Am (Original Mix)(   Читать дальше...   )Жанр: Сlub, DanceПродолжительность: 05:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00906C5F37AF1D7D5FCF924AB2F329795E567C22
 ```
 
 https://mybot314.ru/tekegram_catalog/

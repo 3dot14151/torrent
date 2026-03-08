@@ -1,32 +1,3 @@
-###  Публикация: 1233191   (593760) от 28.06.2018
-
-Gorillaz - The Now Now (2018) [MP3|320 Kbps] <Alternative Rock, Hip-Hop, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humility (Feat. George Benson)
-02. Tranz
-03. Hollywood (Feat. Snoop Dogg & Jamie Principle)
-04. Kansas(   Читать дальше...   )Жанр: Alternative Rock, Hip-Hop, ElectronicПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A82E9D1ACA9BB078B97C31B821959112182EB25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040060   (593656) от 03.08.2016
 
 Mashu - Elephants In Your Head? (1996) [WavPack|Lossless|image + .cue] <Сanterbury Scene, Prog Rock, Jazz Rock>
@@ -746,6 +717,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FAAB3376E0ABCB9F15363CD5FF27A2C2C6CD2FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233503   (593010) от 30.06.2018
+
+Татьяна Зыкина - Ощущение реальности (2009) [FLAC|Lossless|image + .cue]<Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты-то кто? (feat. «Танок на майданi Конго»)
+02. Водопадами (08 version)
+03. Сдала (roublevka light version)
+04. 2 кота (light version)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7764C7778E6BA1CE6D769CA4F9BF841EADDA067
 ```
 
 https://mybot314.ru/tekegram_catalog/

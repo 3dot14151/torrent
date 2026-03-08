@@ -1,3 +1,177 @@
+###  Публикация: 1507294   (798456) от 04.11.2021
+
+VA - Funky House: Sunday Mixtape (2021) [MP3|320 Kbps] <Funky, Disco House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798456.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Soul Power - Supa Fly
+002. Frank Montana - Rokit
+003. Guillaume - The Chase
+004. Anacca Jez - Cntrol(   Читать дальше...   )Жанр: Funky, Disco House, ElectroПродолжительность: 09:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F943DEACC3CE62AE6198F6637BE7B33A1B8BE130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507288   (798453) от 04.11.2021
+
+VA - Beatport Organic House: Sound Pack #361 (2021) [MP3|320 Kbps] <Organic, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798453.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Internal Deep - Circle Path
+002. Last Bar - I Can't Lie
+003. Loka Deep - Bass Up
+004. Max Tenrom - Armenia(   Читать дальше...   )Жанр: Organic, Deep HouseПродолжительность: 12:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCD74A7BFDC7929CB2BF58C60543D7372638D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507385   (798450) от 04.11.2021
+
+VA - My Little Planet: Pop Rock Indie (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798450.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dopamoon - Ailleurs Que Le Soleil
+002. The Underground Youth - For You Are The One
+003. Cerberus Shoal - Yes Sir, No Sir
+004. Sam Valdez - For A While(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 07:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165C77ACC8FD92A7D83EBEC19097246CADA77384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507271   (798444) от 04.11.2021
+
+VA - Beatport Electro Pop: Sound Pack #364 (2021) [MP3|320 Kbps] <Electro Pop, Synthpop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798444.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fede Cabral - Bomba
+002. Methyl Ethel - Neon Cheap
+003. Laurence-Anne - Strange Feeling
+004. Lusine - Not Alone(   Читать дальше...   )Жанр: Electro Pop, Synthpop, DanceПродолжительность: 07:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37299FEBF59A9E603BE04E3ED4B9901BC11AD3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507528   (798440) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 21 (2021) by Gertrudda [MP3|192-320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maxnickel - Night'er (3:39)
+02. LostSckare - Programmed For Love (Gertrudda Edit) (5:54)
+03. Microsha 89 - Soviet Union (TELEGIMNASTIKA Remix) (3:54)
+04. LA Nights - Voice Flashback (Gertrudda Edit) (5:52)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 04:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A1CB7D48AFBAE5948C2393CB5083806E1E0A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507302   (798438) от 04.11.2021
+
+VA - Herbal Ambient Sounds (2021) [MP3|320 Kbps] <Ambient, Relax, Meditation>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798438.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Decato - Transmissions
+002. Paul Oednom - Flux
+003. Forest Robots - Meditation Vii
+004. Audio Obscura - The Quiet Night(   Читать дальше...   )Жанр: Ambient, Relax, MeditationПродолжительность: 09:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D622E7F7C78B20B3B5ACC328A73D9F783E40B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507380   (798436) от 04.11.2021
 
 VA - Hymn For The Weekend (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -574,180 +748,6 @@ VA - Music For Everyone - Trance Vol.4 (2016) [MP3|320 кб/с] <Trance, Uplifti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:213BBEF806AC837B4AFA2036C579D45D9256464E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011108   (797627) от 26.04.2016
-
-VA - Instrumental Nu Jazz (2016) [MP3|320 кб/с] <Instrumental, Nu Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'Andy, Bodyles - Enigma (feat. Lucio)
-02. Duran, Garcia - Jazz E xpression
-03. Low Fidelity Jet Set Orchestra - The Project, Pt. 2
-04. Duran Y Garcia - Fus-Ion(   Читать дальше...   )Жанр: Instrumental, Nu JazzПродолжительность: 02:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799E3FDC44DA657FC347C555D5A467D74B1D96B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009613   (797607) от 26.04.2016
-
-VA - Гуляй, душа. Любимые песни радио Шансон (2016) [MP3|318-320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иван Кучин - Натаха
-02. Андрей Иванцов - Нет худа без добра
-03. Жека - Опера
-04. Валерий Козьмин - Пленник судьбы(   Читать дальше...   )Жанр: ShansonПродолжительность: 05:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E2A3076E2C4FCDE86C1A3EAC9FAE4B885229EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009825   (797591) от 26.04.2016
-
-Дід J Панас - Розслабся - не парся! ( Megamix) (2016) [MP3|320 кб/с] <Dance Pop, Pop Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797591.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Інтро Дід Панас
-2.	Софiя Ротару - Одна Калина - 10A or 5A
-3.	Танок На Майдані Конго - Viva, Україна (We Will Rock You) - 4A or 7B
-4.	Ot Vinta - Шабелина - 8A(   Читать дальше...   )Жанр: Dance Pop, Pop RockПродолжительность: 00:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DEEB14B95A67CA994D5FA25B95E01074681004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010880   (797574) от 26.04.2016
-
-VA - Вспомним 90-2000 от Виталия 72 - 4 (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жуки - Йогурты (remix)
-02. Света - Хватит, довольно
-03. FM Project - Амстердам
-04. Краски - Сегодня к маме я приехала домой(   Читать дальше...   )Жанр: PopПродолжительность: 05:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC686719599C52BB14BBE13C613EB9912792A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199867   (797495) от 18.01.2018
-
-VA - German Top 100 Single Charts 19.01.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797495.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Perfect
-002. Bausa - Was du Liebe nennst
-003. Eminem - River (feat. Ed Sheeran)
-004. Camila Cabello - Havana (feat. Young Thug)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F5110B41EA195A75600BB4AFC852542230EBD59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199818   (797493) от 18.01.2018
-
-VA - Relax Traveling (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797493.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Schwarz & Funk - Sesenta Y Seis
-002. Jakes Trash - Drunky Fesch
-003. Han Tronic - Tea Del Mar
-004. John Soultek - Let the Music Talk(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 13:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326219AA98985DE02F3C7AF4D896195F8F003CC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

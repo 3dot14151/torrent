@@ -1,3 +1,61 @@
+###  Публикация: 1313255   (528175) от 07.07.2019
+
+Karen Cheryl - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карен Шерил, настоящее имя - Изабель Моризе (Isabelle Morizet). Французская диско-поп певица до 90х, в настоящее время ведущая на телеканале "France 3". Выпустила только эти два предлагаемых альбома на английском языке в стиле классического диско.01. There's A Sweet Melody (5:02)
+02. Sing To Me Mama (3:10)
+03. Let Me Be (4:02)
+04. Hold On (3:11)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63183F977A71DFDF01470EBA55258ED2246AE89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052391   (528121) от 14.09.2016
+
+VA - Le Son Dancefloor Summer (2016) [MP3|256~320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528121.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Imany - Don'T Be So Shy (Filatov & Karas Remix)
+02. Sia Feat. Sean Paul - Cheap Thrills
+03. Kungs & Cookin On 3 Burners - This Girl(   Читать дальше...   )Жанр: PopПродолжительность: 03:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669A6CFE98D4FB4C62E9DD2E5E8BA51652E7B454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313235   (528109) от 07.07.2019
 
 VA - Top Of The Pops '1984 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
@@ -687,64 +745,6 @@ VA - Rock & Dance On 45 (1982) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F70EF275DDED8854BE9D31BF3DD5A022BA29D04E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157810   (524717) от 13.08.2017
-
-Kosmolok - Happy Birthday Rock 'N' Roll (A Rock Musical) (1980) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Rock & Roll>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heading For The Stars (3:40)
-02. Hey You Guys (1:52)
-03. Supercharged Ladies (2:38)
-04. My Name Is ... (3:19)(   Читать дальше...   )Жанр: Electronic, Disco, Pop Rock, Rock & RollПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405C9EBA0AC5D52D576A222CFF59AF40A816E106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157885   (524645) от 13.08.2017
-
-VA - NRJ Summer Hits Only (3CD) (2017) [MP3|320 Kbps] <Pop, RnB, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jason Derulo & Nicki Minaj feat. Ty Dolla Sign - Swalla  3:37
-02.  Lartiste - Chocolat (feat. Awa Imani)  3:55
-03.  Bruno Mars - That's What I Like  3:27
-04.  Soprano - Coeurdonnier  3:47(   Читать дальше...   )Жанр: Pop, RnB, DanceПродолжительность: 03:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5BDE7C5F6C29F7C931618BE0E7C321C9DB142A
 ```
 
 https://mybot314.ru/tekegram_catalog/

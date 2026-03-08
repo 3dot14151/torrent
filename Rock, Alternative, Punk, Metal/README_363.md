@@ -1,32 +1,3 @@
-###  Публикация: 1531728   (720413) от 16.02.2022
-
-Amorphis - Halo (2022) [FLAC|Lossless|image + .cue] <Progressive, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Northwards
-02. On The Dark Waters
-03. The Moon
-04. Windmane(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8733499EA9A02439B15B8EB7EDF5A11E9A2967F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023865   (720316) от 07.06.2016
 
 Smokie - Solid Ground (1981) Reissue, 2016, Sony Music [FLAC|Lossless|image + .cue] <Rock, Soft Rock, Pop Rock>
@@ -741,6 +712,35 @@ Weezer - Weezer (Black Album) (2019) [MP3|320 Kbps] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1385096B982FD4B774B6EC94226DD5650DBE77F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 891740   (718925) от 26.04.2015
+
+Мумий Тролль - Пиратские Копии (2015) [MP3|320 кб/с]<Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718925.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. С Чистого Листа (03:59)
+002. Медленные Танцы (09:03)
+003. Мумий Витамины (04:18)
+004. Пиратские Копии (06:29)(   Читать дальше...   )Производство: Navigator RecordsЖанр: РокПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F2CA629E192CB07E0EE61800669217E0ED952E
 ```
 
 https://mybot314.ru/tekegram_catalog/

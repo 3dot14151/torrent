@@ -1,3 +1,90 @@
+###  Публикация: 1220352   (706194) от 18.04.2018
+
+Mr. Cloudy - IRIT (2018) Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/08. Irit (0:40)
+ 02/08. The Version (12:35)
+ 03/08. Nautilus Lo-Fi Replication (9:25)
+ 04/08. Desove Blessed Dub (7:21)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440B8E606472C2A8B9E2BA78B6C38511E86111DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026190   (705765) от 14.06.2016
+
+Snap - Power Hits Of... (1995) [FLAC|Lossless|image + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power [0:05:47.25]
+02. Ooops Up [0:06:47.00]
+03. Cult of snap [0:05:25.05]
+04. Believe the hype [0:04:55.45](   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA3CCE55ADB77087B05843A4747AB5CE022D2EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402271   (703813) от 13.08.2020
+
+Bronson - Bronson (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Tech House, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FOUNDATION (3:04)
+ 02. HEART ATTACK (3:30)
+ 03. BLINE (4:25)
+ 04. KNOW ME (3:00)(   Читать дальше...   )Жанр: EDM, Electro House, Tech House, ExperimentalПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1461BC2648286E3065AC38C93DFD983455BF8E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287367   (703341) от 07.03.2019
 
 Little BIG - Skibidi (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rave, Dance>
@@ -655,93 +742,6 @@ GusGus vs. T-World - GusGus vs. T-World (2000) [FLAC|Lossless|tracks+.cue] <Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:543D398206F866202925DDB2F6D6E01A55E4453B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403669   (688568) от 21.08.2020
-
-Cut Copy - Freeze, Melt (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Dance Punk, Indie>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Water (05:11)
-02. Like Breaking Glass (04:51)
-03. Love Is All We Share (06:01)
-04. Stop, Horizon (05:28)(   Читать дальше...   )Жанр: Electropop, Dance Punk, IndieПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E9D077A1ADF33FB3B612F08BE18BF950B6A573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403693   (688567) от 21.08.2020
-
-Foals - Collected Reworks Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Disco, Funky, Indie Rock>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Number (Hot Chip Remix) (9:54)
- 02. Give It All (Lxury Remix) (6:20)
- 03. Mountain at My Gates (Alex Metric Remix) (6:45)
- 04. Into the Surf (Hot Since 82 Remix) (8:10)(   Читать дальше...   )Жанр: Electro House, Disco, Funky, Indie RockПродолжительность: 01:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBF19A9875A017A285AFC4183C2A7959F593A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403756   (688563) от 21.08.2020
-
-Foals - Collected Reworks Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Techno, Indie Rock, New Wave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inhaler (Tom Vek's Wheezemix) (5:22)
- 02. What Went Down (Haxan Cloak Remix) (5:37)
- 03. Exits (Vessel Remix) (3:31)
- 04. Hummer (Surkin Remix) (4:20)(   Читать дальше...   )Жанр: Electro House, Techno, Indie Rock, New WaveПродолжительность: 01:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC58CA1A83875A34011A83DD80041B397C444284
 ```
 
 https://mybot314.ru/tekegram_catalog/

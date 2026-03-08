@@ -1,3 +1,67 @@
+###  Публикация: 1070091   (370997) от 05.11.2016
+
+Serebro - Сила трёх (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мало тебя
+02. Kiss
+03. Mimimi
+04. Перепутала(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C89DE9F854AAD3695DBA7BFFBAD33CD9ABEDFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574979   (370897) от 14.11.2012
+
+Eros Ramazzotti - Noi (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noi
+ 02. Un Angelo Disteso Al Sole
+ 03. Questa Nostra Stagione
+ 04. Io Sono Te (feat. Giancarlo Giannini)
+ 05. Fino All'Estasi (feat. Nicole Scherzinger)
+ 06. Abbracciami
+ 07. Balla Solo La Tua Musica
+ 08. Infinitamente
+ 09. Polaroid
+ 10. Sotto Lo Stesso Cielo(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5EE60573323584F509A31D72846F3CA1E0B4AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576116   (370837) от 12.09.2022
 
 Svenne & Lotta - 6 Albums (1973-1983) Collection [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Schlager>
@@ -732,64 +796,6 @@ Pharao - Pharao (1994) [OGG Vorbis|484 Kbps] <Electronic, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91D6FE59D1E27FC72AE817BDF02C1D7CC49181E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 250879   (366259) от 03.11.2010
-
-Quest Pistols - Дискография (3 альбома) (2008-2009) [MP3|320 kbps]<Pop/Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/RockПродолжительность: 00:45:19
-
-01. Белая стрекоза любви
-02. Все пахнет тобой(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964D3460C4210C1D2B7D623DD6D75BF92E575049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177246   (365475) от 24.10.2017
-
-Fever - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fever (Лихорадка) - американская трио диско группа, созданная в 1978 году в  Сан-Франциско. Записали только эти два альбома.01. Beat Of The Night (5:54)
-02. Work Me (5:23)
-03. Treat Me Right (5:16)
-04. Pump It Up (4:53)(   Читать дальше...   )Жанр: Electronic, Funk, Soul, DiscoПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0EC5C82C736BE5E610F0E6FD8775AA265F4A628
 ```
 
 https://mybot314.ru/tekegram_catalog/

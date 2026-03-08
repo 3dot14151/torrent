@@ -1,3 +1,32 @@
+###  Публикация: 1068371   (380882) от 01.11.2016
+
+John Hicks - Friends Old and New (1992) BMG[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hicks Tone [07:55]
+ 02.I Want to Talk About You [05:57]
+ 03.Bop Scotch [05:01]
+ 04.True Blue [06:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51EBB51F81BA981871CB9C2235738D348C88D0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068334   (380879) от 01.11.2016
 
 Chris Flory with Duke Robillard - Blues In My Heart (2003) [APE|Lossless|image + .cue] <Swing, Rhythm & Blues>
@@ -721,35 +750,6 @@ The Four Freshmen - Day By Day (1962) 1994, Hindsight Jazz [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB89211B1EB43B575D9C63A3A9D609EB2DE258CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254164   (377629) от 12.10.2018
-
-Sainkho / Ned Rothenberg - Amulet (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1st Dance (4:31)
- 02. Tovarischi II - Toronto (3:38)
- 03. Urzup Kherge / Wee Hours (Tuvan Traditional) (5:05)
- 04. What Shakes (5:34)(   Читать дальше...   )Жанр: Jazz, Free ImprovisationПродолжительность: 01:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC0124A2D6670FDE1C07C8AAE70E1F4BB86B4BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

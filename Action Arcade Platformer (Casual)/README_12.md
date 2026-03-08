@@ -1,3 +1,55 @@
+###  Публикация: 1068415   (382074) от 31.10.2016
+
+Toby: The Secret Mine (2015) [En] (1.0) Repack R.G. Механики
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toby: The Secret Mine - красивый приключенческий паззл-платформер, похожий по атмосфере и антуражу на Limbo и Nihilumbra. Игрок будет управлять маленьким Тобби, который отправился по следу похитителей его друзей. Очередная очаровательная инди-адвенчура от знаменитого Lukas Navratil! Toby: The Secret Mine подарит вам удивительный и незабываемый мир.Тип издания: RepackРазработчик: Lukas NavratilЖанр: Arcade (Platform), LogicЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05ECBDC3DB960ADB41381A1CD5012ED5CC240E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135416   (373571) от 20.10.2017
+
+Portal Knights (2017) [Ru/Multi] (1.2/dlc) License CODEX
+
+>>След.
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оставьте привычный мир позади и окунитесь в фантастическое неизвестное вместе с Portal Knights! Участвуйте вместе с друзьями в этом остросюжетном приключении, знакомясь с удивительными трехмерными мирами игры-песочницы.Тип издания: LicenseРазработчик: Keen GamesЖанр: Adventure, Action, 3D, 3rd-PersonЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F43EFE576E90FE75DE8276CB37CD279F1BCEA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 787543   (369280) от 26.10.2015
 
 Castle Crashers (2012) [Ru/Multi] (2.2.1/dlc) SteamRip Let'sРlay [Steam Edition]
@@ -618,58 +670,6 @@ Way of the Red - пиксельный экшен-платформер о при�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB7F91F4469C480400E0EEBF0E5B24E0C7114D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959873   (311545) от 26.11.2015
-
-Rampage Knights (2015) [En] (1.5) Unofficial
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rampage Knights - хардкорный 2D-экшен с великолепной анимацией, случайно генерируемыми уровнями, и кровавыми битвами с врагами! Можно играть как одному, так и в кооперативе с другом. Вы будете играть за героя, который оказался заточен заклинанием в волшебном лесу. Все тропинки этого леса ведут в полуразрушенный замок, в котором находится источник черной магии.Тип издания: UnofficialРазработчик: Rake in GrassЖанр: ArcadeЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F3EA175C3A963F265E024C51023271C97C08CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076802   (310531) от 26.11.2016
-
-Cyber Chicken (2016) [En] (1.0.3) License SKIDROW
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyber-Chicken — бесшабашный 2.5D платформер с кибернетическим петухом-убийцей в главной роли, который должен во что бы то ни стало спасти мир.Тип издания: LicenseРазработчик: WHOA!Жанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC9C25A76E065AE0DAC3EB48CDDA08EEF637DED
 ```
 
 https://mybot314.ru/tekegram_catalog/

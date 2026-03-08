@@ -1,3 +1,32 @@
+###  Публикация: 1278344   (771832) от 25.01.2019
+
+VA - Electro Dance Music: Winter Party (2019) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771832.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Georgia Mos - See The Light
+002. Angelo Ferreri - Soul Together
+003. B.A.D.S - Hous-O-Matik Hom-O-Patik
+004. Block & Crown - Always There (Original Mix )(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F7E3C58D20CD60C4C870F7BD2F6A24F5CE66DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 779780   (771771) от 22.04.2014
 
 VA - Lounge At The Seashore 10 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
@@ -716,35 +745,6 @@ VA - Visual Image: Extended Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1FEA5762FE3BFA061E561D00BB9B67A5797B50C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278815   (767775) от 27.01.2019
-
-VA - Record Super Chart 571 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fisher  -  Losing It
-02.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-03.  Rompasso  -  Ignis
-04.  Gaulin  -  Moonlight(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4D7105B1DE2146706067A08422F18BA6DF059F
 ```
 
 https://mybot314.ru/tekegram_catalog/

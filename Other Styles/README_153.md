@@ -1,3 +1,32 @@
+###  Публикация: 1829604   (201991) от 25.10.2025
+
+Paul Mauriat - The Russian Album (1993) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_201991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plaine ma plaine
+02. Les deux guitares
+03. Le Sarafan rouge
+04. Katioucha(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806BEF6CC9D6F80BDE32E662555C01606E1E2342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829839   (201837) от 25.10.2025
 
 Paul Mauriat - Le grand orchestre de Paul Mauriat, Vol. 1-2 (1965) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
@@ -716,35 +745,6 @@ Armik - Romantic Spanish Guitar, Vol. 1 (2014) [FLAC 24/96|Lossless|WEB-DL] <Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4524BBBAF1D010F92F762D8AF533DE88F31D22A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587245   (192928) от 30.10.2022
-
-Тэм Гринхилл - Полынный ветер (2011) [FLAC|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Перебор серебром...
-02. Догорает свеча в руке...
-03. Мне приснился страшный сон...
-04. Полночь оплачет...(   Читать дальше...   )Жанр: FolkПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94D03F56256AC7BCA8BEE0A06926FE8CD62D18A
 ```
 
 https://mybot314.ru/tekegram_catalog/

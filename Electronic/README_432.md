@@ -1,3 +1,61 @@
+###  Публикация: 1667859   (175307) от 10.10.2023
+
+Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_175307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Due Sono Uno A Roma
+02 – Sin Retorno
+03 – Pensar No Es Sentir
+04 – Los Viernes Siempre Llueve(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8AFC76427C95EC33F41F0F65E611873FE363E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595669   (175103) от 06.12.2022
+
+Menschdefekt - Recombination (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Futurepop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_175103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:57]
+02. Violence (No End In Sight) [00:05:04]
+03. Emptiness [00:04:21]
+04. Hurt [00:04:58](   Читать дальше...   )Жанр: Dark Electro, EBM, FuturepopПродолжительность: 01:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468C8B3B915F08960BC8F125020F24028B6A07AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335363   (175081) от 08.12.2020
 
 Globular - Untangled Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psydub, Psychill>
@@ -682,64 +740,6 @@ Cosmic Gate - Live @ Rock Bar Bali Sunset Set, Indonesia (2023-10-06) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F809158F540F3C7EB93EF5E3A0A3BA22C81B6FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669243   (172827) от 16.10.2023
-
-VA - Mr Sam Opus Quinto (2022) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive House, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peer Kusiv ft. Johanson - Bring You Back [6:13]
-02. Romulus - The Hut [6:12]
-03. Rosewall & Shyam - Destiny (Reiym Remix) [4:08]
-04. Luttrell - Twin Souls [6:28](   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 02:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BDD03486EBA4CBBA766A38A2F1BAB651916375B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669401   (172808) от 16.10.2023
-
-The Orb & David Gilmour - Metallic Spheres In Colour (2023) [MP3|320 Kbps] <Ambient, Dub, Electronic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Round Side: Seamless Solar Spheres of Affection Mix: Movement 1 [11:27]
-02. Round Side: Seamless Solar Spheres of Affection Mix: Movement 2 [08:41]
-03. Flat Side: Seamlessly Martian Spheres of Reflection Mix: Movement 3 [10:47]
-04. Flat Side: Seamlessly Martian Spheres of Reflection Mix: Movement 4 [09:08]Жанр: Ambient, Dub, ElectronicПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C09F993521BFA81D56A8A29CCA567F7669AFA0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

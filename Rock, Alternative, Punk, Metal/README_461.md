@@ -1,32 +1,3 @@
-###  Публикация: 1545478   (613177) от 20.04.2022
-
-Nocturnal Alliance - Death Among Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rise (00:10:24)
-02 - Dancing In The Dark (00:10:10)
-03 - Sea Of Wolves (00:09:17)
-04 - Healer (00:09:47)(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB2135DC13742B1BCA2DFC7B367171F7C3A93C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545455   (613162) от 20.04.2022
 
 Bastard Folk - Трактир на перекрестке (2022) [MP3|320 Kbps] <Folk Rock>
@@ -745,6 +716,35 @@ Being as an Ocean - Being as an Ocean (2015) [MP3|320 кб/с]<Melodic Hardcore,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:826E5F244397D610316D691A781E65C43896ECA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911689   (612802) от 25.06.2015
+
+Wilson - Right To Rise (2015) [MP3|320 кб/с]<Hard Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Right to Rise
+2. ExplicitGuilty (You're Already Dead)
+3. Crave
+4. ExplicitWindows Down!(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982689C60CC0A204FBA872905540400005656857
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 199232   (767395) от 27.01.2019
+
+Д.Д.Шостакович-Симфония №7 'Ленинградская' дирижёр Марис Янсонс (1995) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_767395.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 августа 1942 года по планам фашистского командования Ленинград должен был пасть, на этот день был назначен парад немецких войск в городе. Но в этот день в Большом зале Ленинградской филармонии, на стене которой красовалась надпись: "Граждане! Осторожно! При артобстреле эта сторона опасна!" – в городе, где люди каждый день гибли от голода и бомбёжек – (   Читать дальше...   )1. Allegretto (26:03)
+2. Moderato (Poco allegretto) (10:02)
+3. Adagio (16:22)
+4. Allegro non troppo (16:17)Жанр: Classical, симфоническая музыкаПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213652   (767335) от 18.03.2018
 
 VA - Piano Cloud Series - Volume One (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Minimal>
@@ -709,35 +738,6 @@ Disc 4 - 01:17:24(   Читать дальше...   )
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A1B3C3DC76898C12D9836C26B4BC77C37A1C012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283310   (732052) от 18.02.2019
-
-Julien Marchal - INSIGHT III (2017) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INSIGHT XXIV (2:41)
- 02. INSIGHT XXV (6:04)
- 03. INSIGHT XXVI (3:59)
- 04. INSIGHT XXVII (2:48)(   Читать дальше...   )Жанр: Neoclassical, Piano, MinimalПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06A834B17E46412206AB31F41C3F35752FCEB1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 701371   (473926) от 19.09.2013
+
+Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) BDRemux [1080p]
+
+>>След.
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473926.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 июля 1986 г., Queen дали крупнейший концерт из когда-либо проходивших в Будапеште, перед лицом огромной толпы ликующих фанатов. В запись вошли все самые известные треки группы, включая такие супер-хиты как «Bohemian Rhapsody», «Crazy Little Thing Called Love», «I Want To Break Free» и «We Are The Champions». Концерт в Будапеште состоялся в рамках «Magic Tour», (   Читать дальше...   )01. One Vision
+02. Tie Your Mother Down
+03. In the Lap of the Gods... Revisited
+04. Seven Seas of Rhye(   Читать дальше...   )Производство: США / Eagle Rock EntertainmentЖанр: RockРежиссер: Янош Жомбояи / János ZsombolyaiПеревод: ОтсутствуетСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (на диалоги), английский (на диалоги)Продолжительность: 01:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D170282FB2FA710BBBE53626F996743EFD5412C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160529   (473769) от 25.08.2017
 
 Graham Bonnet Band: Live...Here Comes the Night (2017) BDRip [H.264/1080p]
@@ -702,35 +731,6 @@ Rammstein  выпустили DVD «In Amerika». С триумфом верну
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BC3AD7417E148EC4BF3D3560EF5EE807177E7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941453   (461682) от 27.09.2015
-
-Rammstein - In Amerika (Disc 1) (2015)  BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein  выпустили DVD «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18.000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live From Madison Square Garden» получит официальный релиз на 2DVD и 2Blu-ray стараниями лейбла Island/UMe. Соединив зажигательное выступление (   Читать дальше...   )01. Rammlied
-02. B*********
-03. Waidmanns Heil
-04. Keine Lust(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FAC759358A754463653F3C68399EFB1FD6AE65B
 ```
 
 https://mybot314.ru/tekegram_catalog/

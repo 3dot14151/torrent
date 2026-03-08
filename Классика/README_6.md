@@ -1,3 +1,32 @@
+###  Публикация: 992262   (902428) от 01.03.2016
+
+Jennifer Thomas - Winter Symphony (2015) [FLAC|Lossless|tracks] <Instrumental, Classical crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels We Have Heard On High (feat. The Ensign Chorus) (5:18)
+02. Dance of the Sugar Plum Fairy (3:31)
+03. Carol of the Bells (4:37)
+04. Alleluia (feat. Felicia Farerre & The Ensign Chorus) (6:16)(   Читать дальше...   )Жанр: Instrumental, Classical crossoverПродолжительность: 00:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563E2E08A4C3041E4387B647FF1C4278341CBFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992247   (902424) от 01.03.2016
 
 Montserrat Caballe - Caballe and Friends (1997) [FLAC|Lossless|image + .cue] <Classical, Opera>
@@ -719,33 +748,6 @@ Grieg - Piano Concerto in A minor, op. 16
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:209C07303FE789F01AA3DD2384C1502CB6D95ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992297   (900587) от 02.03.2016
-
-Я. Хейфец - К. Сен-Санс - Интродукция И Рондо-Каприччиозо / П. Сарасате  - Цыганские Напевы (1960) [FLAC|96/24|Lossless|tracks|Vinyl-Rip] <Classical, Violin>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. К. Сен Санс - Интродукция и рондо-каприччиозо, соч. 28
-02. П. Сарасате - Цыганские напевы, соч. 20Жанр: Classical, violinПродолжительность: 00:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FEF0E2D1559A7B873D5216DF1491AC3318DC4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

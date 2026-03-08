@@ -1,32 +1,3 @@
-###  Публикация: 1555268   (570376) от 03.06.2022
-
-The Fixx - Every Five Seconds (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Life Survived (5:42)
-02. Closer (3:42)
-03. Take What You Want (4:00)
-04. Wake Up (4:46)(   Читать дальше...   )Жанр: Modern RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F269A6CDFEDCF86D2A06D33B6BE43ACECE9B96A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151924   (570359) от 20.07.2017
 
 Nine Inch Nails - Add Violence (2017) EP [MP3|320 Kbps] <Industrial Metal>
@@ -755,6 +726,35 @@ Belef - Infection Purification (2005) [APE|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE5EA035E741BC3BD69175EF25B7B18C085FF810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151941   (568984) от 21.07.2017
+
+White Skull - Will of the Strong (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Rage
+02. Holy Warrior
+03. Grace O' Malley
+04. Will of the Strong(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BFDCEB309A6B5FF206FE5305B282D10C317E38
 ```
 
 https://mybot314.ru/tekegram_catalog/

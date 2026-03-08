@@ -1,3 +1,61 @@
+###  Публикация: 1407059   (470842) от 05.09.2020
+
+Dhamika - Point of No Return (2020) Dhamika Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By the Lighthouse (Remix) (05:17)
+ 02. Gnyan (06:46)
+ 03. Lifeforce (07:47)
+ 04. Point of No Return (08:50)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DB9FEE6161B51D9EB81495FE6FA8A9C7C515D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407002   (470728) от 05.09.2020
+
+Tricky - Fall to Pieces (2020) [MP3|320 Kbps] <Trip-Hop, E﻿lectronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinking Of (feat. Marta) (2:11)
+02. Close Now (feat. Marta) (1:38)
+03. Running Off (feat. Oh. Land) (1:44)
+04. I’m in the Doorway (feat. Oh. Land) (2:51)(   Читать дальше...   )Жанр: Trip-Hop, E﻿lectronicПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D6A096AE7A286F36778F043019ED24B7ECC492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407060   (470700) от 05.09.2020
 
 Balance - One Second (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psychill, Downtempo, Glitch, Ambient>
@@ -686,64 +744,6 @@ VA - Hello Strange Story Series #1-#8 (2016-2020) hello▼strange [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B05BBF66E1D6B05F545BAE3062B8736860C26A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407216   (468260) от 06.09.2020
-
-Ingrained Instincts - Invent the Future (2020) Sangoma Records [FLAC|Lossless|tracks+.cue] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cycling Flow (08:07)
- 02. A Dancefloor Odyssey (07:33)
- 03. Shooting Colors (07:34)
- 04. We Are Here To Fly (with Daksinamurti) (07:22)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CFF75DDC24B07FE04BFF4B806895CAFF27B840F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015413   (468061) от 06.09.2020
-
-Balancé (Balance, NOYA Project) - Discography 19 Releases (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient, Psy-Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Look (07:15)
- 02. Unfocused (07:39)
- 03. Give Me Light (06:48)
- 04. Smoke (08:51)(   Читать дальше...   )Тип издания: WebЖанр: Psychill, Downtempo, Ambient, Psy-Trance •Продолжительность: 07:30:29 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B746BE8657868620BF6DF74EB03686A907CD9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

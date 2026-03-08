@@ -1,3 +1,32 @@
+###  Публикация: 991936   (904555) от 29.02.2016
+
+Dizzy Reece - Soundin' Off (1960) 2003, Toshiba[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Ghost Of A Chance [05:06]
+ 02.Once In A While [07:58]
+ 03.Eb Pob [07:30]
+ 04.Yesterdays [07:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE480B009A467D89DB9FC352C6199E64040AC707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369309   (903918) от 23.03.2020
 
 Dizzy Gillespie - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
@@ -716,35 +745,6 @@ Nils Landgren with Janis Siegel - Some Other Time - A Tribute To Leonard Bernste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B191A7C71C53E55453D1FFF6CC9065962AFD3A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100615   (899930) от 04.02.2017
-
-Art Blakey And The Jazz Messengers - Backgammon (1976) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Uranus [07:00]
- 02.Whisper Not [06:35]
- 03.Backgammon [05:30]
- 04.Blues March [05:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5899B0F93509457AB56F1059A41EE09A694886B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

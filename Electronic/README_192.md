@@ -1,3 +1,60 @@
+###  Публикация: 1220665   (702553) от 20.04.2018
+
+Marfen - Around The Garden (2018) [MP3|320 Kbps] <Electronic, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702553.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Iris (07:01)
+2. Lilac (06:30)
+3. Rio (06:34)Жанр: Electronic, Progressive HouseПродолжительность: 00:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D78616EE6480CC7A43E01CFDD5FBC1AAD55E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220606   (702552) от 20.04.2018
+
+Genning - Life In Dub (2018) MixCult Records  [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Dub Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Reactor (06:24)
+ 02. Starsa (06:46)
+ 03. Waterfall (06:13)
+ 04. Saturn (06:51)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E783030ECE64B4B45C7EA10C235AA9545A676B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220612   (702458) от 20.04.2018
 
 Hydrangea - Discography 8 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Techno Ambient>
@@ -687,63 +744,6 @@ VA - Power Workout Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:435EED9DB96949657A63A6D3BD802F98951BE774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221057   (698800) от 22.04.2018
-
-Hazem Beltagui - VIVID (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hazem Beltagui - Made Of Light (In Memory Of Helena Copto)(Original Mix)
-02.Hazem Beltagui - Reasons To Love (Original Mix)
-03.Hazem Beltagui & Ataberk Onal - You Were Always Mine (Original Mix)
-04.Hazem Beltagui & Rebecca Louise Burch Fade Away (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723F0094E695CE80C5D1E5A838936C31C6DD72CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221034   (698799) от 22.04.2018
-
-Bicep - Rain (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698799.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rain (Edit) (04:00)
-2. Rain (05:51)
-3. Helix (05:10)Жанр: Electronic, House, TechnoПродолжительность: 00:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7218F852D3B5F9C4CFE018F922A6340C0324E6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

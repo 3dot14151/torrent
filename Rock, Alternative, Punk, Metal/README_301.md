@@ -1,32 +1,3 @@
-###  Публикация: 1276357   (788621) от 15.01.2019
-
-Epicardiectomy - Grotesque Monument of Paraperversive Transfixion (2018) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:26)
- 02. Compulsory Autophagous Lacerations (4:08)
- 03. Grotesque Monument of Paraperversive Transfixion (4:12)
- 04. Prurience in Putrescence (3:50)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F9EA0B142C61B2E3B47EAA0D1732415CD2870E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276279   (788620) от 15.01.2019
 
 Meathook - Crypts, Coffins, Corpses (2019) [FLAC|Lossless|tracks + .cue] <Death Metal>
@@ -747,6 +718,35 @@ Burning Point - Arsonist Of The Soul (2021) [FLAC|Lossless|image + .cue] <Power 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87B10679E8A8278ADC165925A47571E2117E5F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512112   (787888) от 23.11.2021
+
+Remedy - The Villain in Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Villain in Me (03:53)
+02. Shadow of Death (04:59)
+03. Alone (04:52)
+04. Behold My Destiny (03:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F421A9B39EB21A8A62EBD0C1101A67CF46C161
 ```
 
 https://mybot314.ru/tekegram_catalog/

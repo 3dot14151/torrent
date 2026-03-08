@@ -1,3 +1,119 @@
+###  Публикация: 1100299   (901194) от 03.02.2017
+
+VA - Фитнес - Хит (2017) [MP3|217-320 Kbps] <Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vlad Janela - Stream Silence (Original Mix)
+02. R&M - Holiday (Instrumental Version)
+03. Nicco & Chris Deelay - Remember (Pulsedriver Bounce Mix)
+04. Usai, Julia Elle - Falling Down (PARSIFAL Remix)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 08:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAE532CE9CA76280EBC15C44DB7562C24E72E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992495   (900978) от 02.03.2016
+
+VA - Драйвовый клубный музон (2016) [MP3|320 кб/с] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petrovic - Jackpot (Original Mix)
+02. Nicky Romero - Lighthouse (Radio Edit)
+03. Lian Ross - Brother Louie
+04. Of Norway & Linnea Dale - Spirit Lights (Adriatique Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63B8FF679C6D26D0E6498225A6019F0D1F9DC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992570   (900962) от 02.03.2016
+
+VA - Radio Eurodance: Big Format Club House Mix (2016) [MP3|128-320 кб/с] <Club House, Dance, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Red Buddha - Engine Fire
+002. Dani Zavera - Looking For
+003. Joseph Capriati - Basic Elements (Luigi Madonna Remix)
+004. Max D. Blas - You Belong to This (Markus Fix Remix)(   Читать дальше...   )Жанр: Club House, Dance, ElectroПродолжительность: 14:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B485372189F7679F4E4F052E773AF28143DDB04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992444   (900742) от 02.03.2016
+
+VA - Europa Plus Украина Тор 40 February 4th week (2016) [MP3|320 кб/с] <Pop, Dance, Club, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hardkiss - Doctor Thomases (04:08)
+02. Alan Walker - Faded (03:33)
+03. Felix Jaehn feat. Polina - Book Of Love (03:19)
+04. Burak Yeter ft. Danelle Sandoval - Tuesday (04:06)(   Читать дальше...   )Жанр: Pop, Dance, Club, RemixПродолжительность: 02:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4173AE3E61A7082698495761E3FC2FADDA0C98B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100287   (900643) от 03.02.2017
 
 VA - Fresh Club Music Vol. 1 (2017) [MP3|320 Kbps] <Club, Dance, House, Electro House, Trance>
@@ -635,122 +751,6 @@ VA - 8 Марта. Корпоратив №1 (2016) [MP3|256-320 кб/с] <По�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89F4F46BCFDEBC3F98C659B3679BF3A0AA37C16D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101241   (895381) от 06.02.2017
-
-VA - Top DJ. Клубный хит (2017) [MP3|320 Kbps] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895381.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ленинград - Экспонат (Dj Ilya Lavrov Remix)
-002. Тамерлан И Алена - Потоки Ветра (Dj Oneon Remix)
-003. Carla's Dreams - Sub Pielea Mea (Johnny Beast Remix)
-004. Моди Глю & Anagramma - Mambaka(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 05:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA4F8AB13A57359FC2D23A770E509DAAF950E8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493254   (895369) от 03.09.2021
-
-VA - Music News vol.128 (2021) [MP3|320 Kbps] <Pop, Soul, Dance, (Other)>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895369.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Anastezzia feat. Selena Mayer - Кружева (03:04)
- 002. ALBA feat. Александра Белякова - Catch Me (02:54)
- 003. Alderson - Ягодный Juice (02:02)
- 004. After School House - Веснушка (02:39)(   Читать дальше...   )Жанр: Pop, Soul, Dance, (Other)Продолжительность: 05:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD2FB96FE584E8CD0FBF6F7B0ACE31EEF932D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370657   (895221) от 28.03.2020
-
-VA - The Official UK Top 40 Singles Chart 27.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SAINt JHN - Roses (Imanbek Remix)
-02. The Weeknd - Blinding Lights
-03. Roddy Ricch - The Box
-04. Joel Corry - Lonely(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC7744489FF29A2E0D711D0334E78C96F1E3A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370595   (895137) от 28.03.2020
-
-VA - Music For Intensive Sports: Hardstyle Dance (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895137.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Dj Producer - The Sound
-002. Pete S - I Was Made For You
-003. S3rl - Bass Slut
-004. Digital Commandos - Angels With Filthy Souls(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 08:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4F07FE86ECF16FDE8DDED2DCAC9E4899FBB6BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

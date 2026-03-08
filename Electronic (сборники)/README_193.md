@@ -1,3 +1,32 @@
+###  Публикация: 1514768   (213991) от 05.12.2021
+
+VA - Beatport Deep House: Sound Pack #380 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный сюжет в этом жанре музыки редко достигает кульминации, что вносит расслабляющий и гипнотический эффект. Хотя такая музыка и позицируется как клубно - танцевальная, её лучше слушать дома, где она создаёт приятный фон для уютной домашней атмосферы.001. Dennis Ferrer - Whisper
+002. Matthias Tanzmann - Binford
+003. Hp Vince - Your Love On My Side
+004. Muaz Ceyhan - Seyyare(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BFF34DF0E254FB99544DCE2A9250698CB0D20DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514831   (213958) от 05.12.2021
 
 VA - Selection Drum Box (2021) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
@@ -716,35 +745,6 @@ DJ PafTron - TechnoTron Transformers (2023) [MP3|320 Kbps] <Techno, Hard Techno,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EC362E8E0BD7DF472DD72A0A0E660C7A5DA77CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602497   (204430) от 05.01.2023
-
-VA - Радио Рекорд Итоговый Суперчарт 2022 - 100 лучших треков (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204430.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alis Shuka - Not About Us (2:09)
-002. James Hype & Miggy Dela Rosa - Ferrari (3:06)
-003. Robin Schulz feat. David Guetta - On Repeat (3:10)
-004. Imanbek feat. BYOR - Belly Dancer (2:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDE9431A6892034B3C843C52613280D0696114E
 ```
 
 https://mybot314.ru/tekegram_catalog/

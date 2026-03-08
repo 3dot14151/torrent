@@ -1,3 +1,177 @@
+###  Публикация: 1230023   (618800) от 10.06.2018
+
+VA - Союз Летний 50х50 (2018) [MP3|256-320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Монеточка - Нимфоманка
+02. Монеточка - Каждый раз
+03. David Guetta, Sia - Flames
+04. Jah Khalib - Медина(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78FEF254234D4308D7AAECBEBA70B2B92E246815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230203   (618668) от 10.06.2018
+
+VA - Mega Dance Summer 2018 [MP3|256-320 Kbps] <Dance, Pop, BigRoom, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618668.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta, Sia - Flames
+002. Clean Bandit - Solo (feat. Demi Lovato)
+003. U2, Cheat Codes - Love Is Bigger Than Anything In Its Way (U2 X Chea)
+004. Merk & Kremont, DNCE, Andrew Bullimore, Cole Whitt - Hands Up(   Читать дальше...   )Жанр: Dance, Pop, BigRoom, OtherПродолжительность: 05:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0358A8957734B0C22276AAAD32502D83BB7AFF06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224352   (618467) от 13.04.2019
+
+VA - Rock And Roll: 80 Best Songs (2018) [MP3|320 Kbps] <Rock and Roll, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не считайте, что это сборник из каких-то банальностей, которые тоже, разумеется, заслуживают своей оценки, но уже всем приелись. Нет, на этот раз у вас будет 80 различных рок композиций, многие из которых вы, может даже, услышите впервые или вспомните, что не слушали их уже давным давно.01. William T. & The Black 50's - I Want You Tonight
+02. Igor & The Red Elvises - One Night Only
+03. Ruth Brown - Hello Little Boy
+04. Joe Turner - Midnight Special Train (Mono)(   Читать дальше...   )Жанр: Rock and Roll, RockПродолжительность: 04:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1BB584ABF8764BE382FE9E1E5597A37B33DAE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295547   (618466) от 13.04.2019
+
+VA - Best Rock of All Time (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618466.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AC/DC - Highway to Hell
+002. The White Stripes - Seven Nation Army
+003. Radiohead - Creep
+004. Aerosmith - Dream On(   Читать дальше...   )Жанр: RockПродолжительность: 06:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5870BEF5267BC3FA7F0FE8E3466F612CE7AD4F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911049   (618312) от 22.06.2015
+
+VA - Billboard Hot 100 Singles Chart 27th June (2015) [MP3|320 кб/с]<Hip-Hop, Country, New Wave, Synthpop, Electro-R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wiz Khalifa - See You Again (Feat. Charlie Puth)
+02. Taylor Swift - Bad Blood (Feat. Kendrick Lamar)
+03. Fetty Wap - Trap Queen
+04. Walk The Moon - Shut Up And Dance(   Читать дальше...   )Жанр: Hip-Hop, Country, New Wave, Synthpop, Electro-R&B, Pop, Pop-ElectronicПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416E5FD45642BE117A4AD1585F12005E68718DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544893   (618293) от 17.04.2022
+
+VA - Classic Acoustic (2022) [MP3|320 Kbps] <Pop, Rock, Acoustic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patty Griffin - Let Him Fly (3:10)
+02. Nanci Griffith - Love At The Five And Dime (4:39)
+03. Gemma Hayes - Wicked Game (4:05)
+04. Norah Jones - Sunrise (3:28)(   Читать дальше...   )Жанр: Pop, Rock, AcousticПродолжительность: 05:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9244C964C533C959B3B6A7E8393A3FD69C2DB0C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294671   (618265) от 13.04.2019
 
 VA - Тяжёлые кавер-версии известных песен (2019) [MP3|320 Kbps] <Punk, Rock, Hardrock, Other>
@@ -601,186 +775,6 @@ VA - Знойный летний хит (2012) [MP3|256-320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC64C79F849B0E749D82D48DFC1B2DFD5468C3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230258   (617198) от 11.06.2018
-
-VA - Popular Superstar (2018) [MP3|320 Kbps] <Pop, Dance, RnB, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617198.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maître Gims, Super Sako - Mi Gna
-002. Alvaro Soler - La Cintura
-003. Dua Lipa - IDGAF
-004. Bazzi - Star(   Читать дальше...   )Жанр: Pop, Dance, RnB, RapПродолжительность: 11:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63F3969F97F1827D158112B7DB6A0ED939A34A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230256   (617196) от 11.06.2018
-
-VA - Oriental Blues Vol.02 (2018) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617196.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chuck E. Weiss - Devil With Blue Suede Shoes
-002. Blues Beatles - Eleanor Rigby
-003. Beth Garner - Backroads Freddie
-004. The Buzzhounds - Cinderella Needs New Shoes(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 09:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB667955B04B0A734BD8F18B9CFFF18F7AEB127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230265   (617086) от 11.06.2018
-
-Janis Joplin - Greatest Hits (2018) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry Baby
-02. Summertime
-03. Move Over
-04. Coo Coo(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F690E55FAE28CB6BC6B172B9F97042F5D360A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523567   (617020) от 16.07.2012
-
-VA - Жаркий Хит-Парад MTV (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617020.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Аксиома - Новый Год В Июле
-002. Neon Hitch - Love U Betta
-003. Горячий Шоколад - Ты Обними
-004. Gotye feat. Kimbra - Somebody That I Used to Know
-005. Влад Соколовский - Ливни
-006. JLS - Proud
-007. Кэтрин Кэт - Наше Лето
-008. Savage - Dont Cry Tonight 2012 (Alexandra Damiani Radio Mix)
-009. Алена Винницкая - Я Жду
-010. Mishelle feat. Randi - It Feels So Good (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F4629A99FF959D521DC8DEC88C154F3EE4DC60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295810   (616991) от 14.04.2019
-
-VA - Record Super Chart 582 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Rag'n'Bone Man - Giant (3:47)
-02. Gaullin - Moonlight (2:53)
-03. Filatov & Karas - Au Au (2:54)
-04. Denis First Reznikov Bright Sparks - Shameless (2:46)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DB0748B9907EEB4184EA583D3C4E18CFCD8DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295819   (616919) от 14.04.2019
-
-VA - не Громкие новинки недели 11 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aletov - До Луны (3:05)
-02. ALON - Небо (2:19)
-03. Appledream - Баленсиага (3:25)
-04. Arsenium & Mianna - Я Лечу Над Танцполом (3:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD0F1DDAA3D75ECCEB6830A07CDE211F1E21629
 ```
 
 https://mybot314.ru/tekegram_catalog/

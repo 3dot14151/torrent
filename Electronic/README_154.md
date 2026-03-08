@@ -1,3 +1,61 @@
+###  Публикация: 1013157   (777974) от 03.05.2016
+
+Diaphane - 2 Releases (Samdhya, Lifeforms) (2010-2013) Ant-Zen [FLAC|Lossless|tracks + .cue] <IDM, Ambient, Glitch, Dubstep>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Eau Vive (05:35)
+ 02. Iridium (06:24)
+ 03. Fracture (05:34)
+ 04. Sources (06:52)(   Читать дальше...   )Тип издания: CD •Жанр: IDM, Ambient, Glitch, Dubstep •Продолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D4469B1839DD43AD357991A568327B5AF80683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013200   (777943) от 03.05.2016
+
+Markus Schulz - Watch the World (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Code 10-66 (02:40)
+02. In the Night (feat. Brooke Tomlinson) (03:52)
+03. Love Me Like You Never Did (feat. Ethan Thompson) (04:23)
+04. Destiny (feat. Delacey) (03:48)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEB2B112A5ECBBD877B706A07BBB0A315F8880F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211118   (777897) от 06.03.2018
 
 VA - Peaceful Morning (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -687,64 +745,6 @@ VA - Gym Music Ultimate Workout (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB368ADF3298728862DBF8ED39F108EEF2F0CE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211651   (777232) от 08.03.2018
-
-VA - Cardio Workout Music Vol.2 (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lango - Shockwave 4:22
-02. Arson - Grape 4:34
-03. Dj Dragon Boss - The Collapse Of The Dance Floor 6:58
-04. Dj Angeldemon - Autumn Anthem 6:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A54B399221F699DEF272AF80F6FB76BF11D3DEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211626   (777228) от 08.03.2018
-
-Koan - It's The Quiet Ones You Got To Watch (2018) [MP3|320 Kbps] <Downtempo, Chillout, Progressive House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Awakening (Blue Mix)  7:18
-02.  Ruins Of Amber Kingdom (Original Mix)  6:31
-03.  Tir na nOg (Koan Remix)  7:27
-04.  Rebma (The Guardian Of Four Worlds Mix)  7:22(   Читать дальше...   )Жанр: Downtempo, Chillout, Progressive HouseПродолжительность: 01:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675D3106B837B3C0DD648FE55A3D19E7F613CEFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

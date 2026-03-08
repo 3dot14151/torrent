@@ -1,3 +1,61 @@
+###  Публикация: 1105644   (873524) от 19.02.2017
+
+Peter Wilson - Overdrive (2017) 2CD [MP3|320 Kbps] <Italo-Disco, Hi NRG, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold You Tight (03:52)
+02. Brokenhearted (03:55)
+03. Take A Chance On Loving You (03:56)
+04. Overdrive (04:02)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0EB96DA826F2F8514ACC4AEE75428BB4CD0298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997534   (873421) от 17.03.2016
+
+Дискотека Авария - Все Хиты: Авария Против! (2000) [FLAC|Lossless|tracks + .cue] <Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Влечение (Авария против Жуков) (4:38)
+02. Пей пиво! (3:58)
+03. Девочка (remix) (3:41)
+04. Я тебя не скоро (Евпатория remix) (5:06)(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0FBA5BA6749782C36797F7DC8DB23DD4A90C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106356   (873050) от 19.02.2017
 
 Lana Del Rey - Love (2017) Single [MP3|320 Kbps] <Indie Pop>
@@ -678,64 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B51EABE8F634365E3A5F19C2AE3206052D36117B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998129   (870377) от 19.03.2016
-
-High Inergy - Turnin' On (1977) Remastered, 2014, Big Break Records [MP3|320 кб/с] <Funk, Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is All You Need  04:10
-02. You Can't Turn Me Off (In The Middle Of Turning Me On)  05:13
-03. Some Kinda Magic  04:40
-04. Searchin' (I've Got To Find Love)  04:18(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB5C8519593252CF421A3EE1FAFA3DDF569B439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998399   (870319) от 19.03.2016
-
-She Is We (ex. He Is We) - War (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boomerang 03:52
-02. Monster 03:51
-03. Better Now 04:14
-04. Crazy Heart 02:58(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DAA8BF13161F520A1C52E84472FB872CDADFE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

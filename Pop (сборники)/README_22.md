@@ -1,3 +1,32 @@
+###  Публикация: 1499691   (847284) от 02.10.2021
+
+VA - German Top 100 Single Charts  01.10.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Kid Laroi & Justin Bieber - Stay
+02. Ed Sheeran - Bad Habits
+03. Glass Animals - Heat Waves
+04. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 04:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3376677FAB22FEDF928A059C97E20539C03591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002476   (846997) от 01.04.2016
 
 VA - Звездный удар XXXL (2016) [MP3|256 кб/с] <Pop>
@@ -695,32 +724,6 @@ Va - СуперДискотЭКА 90-х Русский (2011) [MP3|256 kbps]<Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5819975EC39795A68526C2326F2A8317BACAD5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310222   (839112) от 17.03.2011
-
-VA - Мегахит 200 Франция (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520EC491F1DC10E9350F3AF4AB8A9FA887CBF625
 ```
 
 https://mybot314.ru/tekegram_catalog/

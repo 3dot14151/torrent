@@ -1,3 +1,32 @@
+###  Публикация: 1396843   (744076) от 17.07.2020
+
+VA - EDC Clubbing House (2020) [MP3|320 Kbps] <Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744076.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Davide Alpino - Atlantis (Original Mix)
+002. Scheffwell - I Just Want To Party
+003. Empire B - Beautiful Life
+004. Brown Sneakers - Am I Wrong(   Читать дальше...   )Жанр: Club HouseПродолжительность: 08:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D5F7224089470895B964C51AE90161066A5381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020885   (743955) от 27.05.2016
 
 VA - Tropical Island Paradigm (2016) [MP3|236-320 кб/с] <House, Progressive House, Indie Dance>
@@ -720,35 +749,6 @@ VA - The Heart Of The City (2019) [MP3|320 Kbps] <Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1A7F4310542C20E33DDDA3BAFE7B7E13C46DFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283403   (739672) от 17.02.2019
-
-VA - Record Super Chart 574 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Calvin Harris & Rag'n'Bone Man - Giant
-02.  Marnik & Smack - Gam Gam
-03.  Boostereo - Dirty Dancing
-04.  Hugel & Amber Van Day - Wtf(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13AA89FADCC37B6AEE023ED6BB0BDB9B92C1391E
 ```
 
 https://mybot314.ru/tekegram_catalog/

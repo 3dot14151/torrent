@@ -1,3 +1,32 @@
+###  Публикация: 1233497   (593019) от 30.06.2018
+
+VA - FG Top 10 June 2018 [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stan Kolev - Oblivion (Extended Mix) 07:21
+02. Max Freegrant - Drama King 06:49
+03. Orphyd - Replicant (Original Mix) 05:43
+04. AxelPolo - Mirage 06:36(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9235DE3AC25E2A7CCD246910FE19D970967A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549795   (592894) от 08.05.2022
 
 VA - Progressive House 100 - The Ultimate Selection (2022) [MP3|320 Kbps] <Progressive House>
@@ -719,40 +748,6 @@ VA - Sport Music Fitness Personal Trainer - 200 Songs (2016) [MP3|320 Kbps] <Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01102AC3CF5B373E4A399769552D55324C4794CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526457   (575061) от 27.07.2012
-
-Groove Armada - Goodbye Country (Hello Nightclub) (2CD) (2001) [MP3|320 кб/с]<Electronic,  House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575061.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Superstylin' (Q.A. Discotek Mix) (5:47)
- 2. Moira's Theme (3:53)
- 3. Mali (6:27)
- 4. Lazy Moon (Live Version) (6:45)
- 5. Rap (Q.A. Alternative Mix) (4:09)
- 6. Your Song (Tim "Love" Lee's Semi-Bearded Remix) (7:36)
- 7. A Private Interlude (Kinobe Remix) (5:38)
- 8. Old Father Rhyme (4:20)
- 9. My Friend (Dorfmeister Vs. Madrid De Los Austrias Dub) (6:23)Жанр: Electronic,  HouseПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7ECE04FD6B855468A7CCF3660C8DA4DDB19965
 ```
 
 https://mybot314.ru/tekegram_catalog/

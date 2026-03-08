@@ -1,3 +1,29 @@
+###  Публикация: 1549643   (593165) от 07.05.2022
+
+Udemy, Sime Bugarija | Cinematic look with Blender 3.0 - 8+ hours MASTER tutorial (2022) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как создать реалистичную и кинематографичную сцену в Blender на трех отдельных курсах по цене одного. Каждый курс длится около 3 часов, вы узнаете, как моделировать в Blender, как создавать реалистичные материалы и настраивать освещение. Вы также можете узнать кое-что об анимации в Blender. Наконец, мы проведем постобработку в Blender Composer и After Effects.Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A15D00A9B42D229773264FE27224A0E621A306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549644   (593160) от 07.05.2022
 
 Udemy, Sime Bugarija | Blender 3+ Reality Capture 5h, futuristic movie scence, files (2022) PCRec [EN / EN Sub]
@@ -654,33 +680,6 @@ Marco Bucci | 3D Techniques with Digital Painting (2019) PCRec [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FF2526A70276C0F8F48880B13E257D199B391C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554355   (577096) от 30.05.2022
-
-Юрий Байдин | Курс 3D моделирования в Blender 2.80 (2021) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blender Старт. LIGHT
-Базовые навыки в 3D-моделировании.Производство: https://3d-skill.ruЖанр: 3D МоделированиеЯзык озвучки: РусскийПродолжительность: 31:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CB16076BD083544372CD1196E68B9BE19C2684
 ```
 
 https://mybot314.ru/tekegram_catalog/

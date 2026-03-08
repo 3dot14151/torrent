@@ -1,3 +1,32 @@
+###  Публикация: 1008092   (818100) от 17.04.2016
+
+Gonzalo Rubalcaba - XXI Century (2011) SPassion[FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Nueva Cubana [10:31]
+ 02.Time Remembered [11:25]
+ 03.Fifty [08:06]
+ 04.Anthem [09:04](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675E2E2A5BB4687D576AA28E4E17597C7C3DBC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008087   (818099) от 17.04.2016
 
 Joe Henderson - Page One (1963) 2009, Analogue Productions[FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
@@ -716,35 +745,6 @@ Gene Ammons - Boss Tenor (1960) 1999, Prestige [FLAC|Lossless|tracks + .cue] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DFB2728F1403EE4B45DD094CB3DC170DFA4F23B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117988   (815616) от 24.03.2017
-
-Art Pepper - The Intimate Art Pepper (1996) Analogue Productions [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In A Mellow Tone [10:11]
- 02.Yesterdays [07:07]
- 03.You Go To My Head [06:01]
- 04.Tin Tin Deo [11:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5354952B79CFF3B38A134F0F9CCE466D99F731E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

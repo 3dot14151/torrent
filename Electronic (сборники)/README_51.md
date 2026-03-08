@@ -1,3 +1,32 @@
+###  Публикация: 1199317   (801553) от 15.01.2018
+
+VA - Deep House Collection Vol.153 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase & Stash & Spider - Inspiration (Original Mix) 6:09
+02. AcidBro & Alex Panchenco - Echosoft (Original Mix) 7:55
+03. AgainstMe & Jody Cottier - Paliria (Paale Remix) 6:53
+04. Alaia & Gallo Ft. Kevin Haden - Go (Full Intention Remix Edit) 2:54(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346090641A90E58047EF938F9ED4ED388B17D82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504264   (801315) от 29.10.2021
 
 VA - SVS Collection vol.2 by MR.DJ (2018) [MP3|320 Kbps] <Deep House, Disco House, Electro House>
@@ -713,35 +742,6 @@ VA - Beatport Top 100 Trance March (2017) [MP3|192-320 Kbps] <Trance, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6272F33BB2FA5604D3D47E22D26ECC1A54605B70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121692   (799596) от 03.04.2017
-
-VA - Music For Your Car Vol.2 (2017) [MP3|320 Kbps] <Hand Up, Hardcore, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799596.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Pulsedriver - Keep On Reaching (Hard Dance Mix)  5:03
-002.  Scooter - Friends (Alari Remix)  6:02
-003.  DJ Paffendorf - Dream & Dance (Max R. 2017 Radio Edit)  3:16
-004.  Jens O - On And On (Extended Mix)  4:24(   Читать дальше...   )Жанр: Hand Up, Hardcore, Dance, ClubПродолжительность: 07:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE65E0DE173DBE97AAD9990B9995BF4BE8FFD5B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

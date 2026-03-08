@@ -1,3 +1,32 @@
+###  Публикация: 1064345   (426388) от 20.10.2016
+
+VA - Sunny Refill Vol.1: Warm and Sunny Chill out Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fous De La Mer - Good Bye Lawrence
+02. R.I.B. - Sunset
+03. JM Mantecon - Children's Sun
+04. Wilton de Grey - All-Seeing Power of the Mind - Short Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7AADC35EC529CA7A5A0FE6EC5888AE685856C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064341   (426385) от 20.10.2016
 
 VA - Cayo Coco Lounge Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -722,35 +751,6 @@ VA - Empire Records - Sound Clinic (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B8222F032C726F8C883497A38FB8C125B1D86FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065682   (419668) от 23.10.2016
-
-VA - Empty House (Mixed by Deeper82) (2016) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florian Kruse, Hendrik Burkhard - The Ground (Joris Voorn Remix)
-02. Oxia, Nicolas Masseyeff - Connivence (Original Mix)
-03. Yotto - Aviate (Original Mix)
-04. Kevin Yost - Empty House (Original Mix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCF10B4A971AB88628A6EE2124AA88889422E84
 ```
 
 https://mybot314.ru/tekegram_catalog/

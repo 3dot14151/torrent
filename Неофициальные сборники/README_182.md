@@ -1,3 +1,177 @@
+###  Публикация: 1512362   (787377) от 24.11.2021
+
+VA - Flyin Bye: Sensual Blues And Jazz (2021) [MP3|320 Kbps] <Blues, Rock Blues, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787377.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peter Crow C - The Angels Message To Me
+002. Tim Staffell - Low Rent Blues
+003. Blues Cousins - Perfect Killer
+004. Mississippi Heat - Your Cheating Heart(   Читать дальше...   )Жанр: Blues, Rock Blues, JazzПродолжительность: 08:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D349D76D681B014F447B487FF3ED42815CC95FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276819   (787218) от 18.01.2019
+
+VA - Music for long trip (2019) [MP3|320 Kbps] <Pop, Dance, Electro, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787218.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam K - Need To Feel Loved
+002. Adventure Club feat. Leah Culver - Reaction
+003. Afterman - Santa Esmeralda (JL &  Afterman Mix)
+004. Alan Walker - Alone(   Читать дальше...   )Жанр: Pop, Dance, Electro, TechnoПродолжительность: 05:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F48980E36A89825686DBD95BAD013E97D35FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276661   (787206) от 18.01.2019
+
+Johnny Hallyday - Album De Sa Vie (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787206.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marie
+002. Sang pour sang
+003. Ça ne change pas un homme
+004. Diego, libre dans sa tête (Live à Paris-Bercy / 1990)(   Читать дальше...   )Жанр: RockПродолжительность: 05:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1542CFA20BD942630F6387A2842AEF7D1906E37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276833   (787201) от 18.01.2019
+
+The Cranberries - I Still Do (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Do
+02. Dreams
+03. Sunday
+04. Pretty(   Читать дальше...   )Жанр: RockПродолжительность: 03:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E20A81AD1C341282FB9E09EB3AFA7CEDAFEA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276825   (787182) от 18.01.2019
+
+VA - Зайцев.нет Лучшие новинки Января 2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787182.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Григорий Лепс - Life Is Good
+002. Альбина - Я не вернусь
+003. Gesaffelstein & The Weeknd - Lost In The Fire
+004. ЯАVЬ - ВОЗДУХ(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13EECE320FE4F43AC3F5C030CE62A584630C5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276791   (787167) от 18.01.2019
+
+VA - Лучшие треки 2018 года от Zaycev.fm (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787167.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Филипп Киркоров - Цвет настроения синий
+002. Kazka - Плакала
+003. Jah Khalib - Медина
+004. МАЛЬБЭК - Гипнозы (feat Сюзанна)(   Читать дальше...   )Жанр: PopПродолжительность: 05:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05C797D077D4DE9B3B45800FA43C5C3D59361CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512536   (787110) от 25.11.2021
 
 VA - Music News vol.151 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -568,180 +742,6 @@ VA - На волне позитива. Часть № 8 (2017) [MP3|256 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFBAF4EF1D6669FA61EE50A21E0480B60802E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123523   (786406) от 08.04.2017
-
-VA - Музыкальный подарок выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786406.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. G-Nise - Если Меня Попросишь Ты 3:25
-002. Ужезима - Города 3:20
-003. Сати Казанова - Happiness Hey 3:19
-004. София Ротару - Не Забывай Меня 3:25(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B4ED66F0F97372485A0A4EBA8136A64275E2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123511   (786401) от 08.04.2017
-
-VA - Популярные весенние новинки (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786401.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Жанна Прохорихина - Стилистам 3:31
-002. Алиса Кожикина - В Стране Чудес 3:32
-003. Caravella - Твой Последний Уикенд 3:24
-004. Виктор Поплеев - Половина Мира 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FFF823DDC6B81916687EBFD88E13FDACFAA0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123529   (786397) от 08.04.2017
-
-VA - Весенние заводные хиты. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786397.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Миша Майер - Вспоминай 3:29
-002. Alex Kafer & Lera - Я У Твоих Ног 3:36
-003. Proвокация - Два Сердца 3:35
-004. Елка - Впусти Музыку 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F219625DA59877AAADC70F17D8C09B01E2EE18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123711   (786377) от 08.04.2017
-
-VA - Best Chillout Vol.28 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786377.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Acustic Live Trio & Eric Daniel - Englishman In New York (feat. Eric Daniel) 5:02
-002. Adler District - Utopia 4:00
-003. AK - Discovery (original mix) 3:31
-004. Alex Lustig - Away (Original mix) 3:08(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A90DE4168B0294AF9C8EB189250EF6522CAFBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123661   (786332) от 08.04.2017
-
-Magic Slim - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Buddy Buddy Friends
-02. Cold Women With Warm Hearts
-03. She Is Mine
-04. Poorman But A Good Man(   Читать дальше...   )Жанр: BluesПродолжительность: 05:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6889EFCF7065B1C857DC9C44EE737DF269FF90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123545   (786218) от 09.04.2017
-
-VA - Любимые хиты весны. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Фаган Сафаров - Сарай-Караван 3:00
-002. Лена Максимова - Слышишь Отошел 3:39
-003. Russell Ray Feat. Sergey Kutsuev - Хамелеоны 3:41
-004. Юлианна Караулова - Больше Никогда 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348F129E9D045255ED2FCCCCCB45F0DE54F9A968
 ```
 
 https://mybot314.ru/tekegram_catalog/

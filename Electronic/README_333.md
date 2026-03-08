@@ -1,3 +1,61 @@
+###  Публикация: 1071264   (361872) от 09.11.2016
+
+Scheuber - The Me I See (2016) [FLAC|Lossless|tracks + .cue] <Synth-pop, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything (04:12)
+02. Human (04:08)
+03. Out Of Time (04:53)
+04. Averell (03:38)(   Читать дальше...   )Жанр: Synth-pop, DarkwaveПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584185231BD5958CE0B23E184FED45E3275E2378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071266   (361804) от 09.11.2016
+
+Moebius - Mutatis Mundi (2016) [MP3|320 Kbps] <Ambient, Psychill, Atmospheric>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Shift 05:18
+ 02. Fractal Earth 05:29
+ 03. Dark Wood 06:46
+ 04. Quantum Glow 05:02(   Читать дальше...   )Жанр: Ambient, Psychill, AtmosphericПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2F38260E89187BAFEC18F433324227DB56790F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255731   (361666) от 19.10.2018
 
 VA - Markus Schulz - Global DJ Broadcast - Amsterdam Dance Event Edition (2018) [MP3|320 Kbps] <Trance>
@@ -682,64 +740,6 @@ VA - Epic Emotional Uplifting Trance (2019) [MP3|320 Kbps] <Trance, VocalTrance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE541CE638B9C4CD69D5116833B81E467233D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256023   (358751) от 20.10.2018
-
-VA - Goa 2018, Vol. 3 (2018) [MP3|320 Kbps] <Psychedelic, Progressive, Full On>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orisma - Alien Light (8:26)
-02. Serenity Flux - Connection Failure (7:35)
-03. Trycerapt & Akron - We Are Ending (8:05)
-04. Audiotec - Mind Technology (Sabretooth Remix) (6:57)(   Читать дальше...   )Жанр: Psychedelic, Progressive, Full OnПродолжительность: 02:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86CF8879CD7630365B9CAAB0494011E48221EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255941   (358742) от 20.10.2018
-
-Major Lazer - Major Lazer Essentials (2018) [MP3|320 Kbps] <Electronic,Dance,Pop>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blow That Smoke (feat. Tove Lo) (3:43)
-02. Lean On (feat. MO & DJ Snake) (2:56)
-03. Cold Water (feat. Justin Bieber & MO) (3:05)
-04. Light It Up (feat. Nyla & Fuse ODG)Жанр: Electronic, Dance,PopПродолжительность: 01:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5F2FDEFE1EFF5AC37BB251C2EE88A5104DC6CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

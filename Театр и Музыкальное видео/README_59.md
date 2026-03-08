@@ -1,3 +1,29 @@
+###  Публикация: 907656   (637747) от 12.06.2015
+
+Праздничный концерт День России в Крыму (12.06.2015) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637747.jpg" />
+</div>
+
+
+###  Подробнее
+
+День независимости России – один из самых "молодых" и главных государственных праздников. С прошлого года в праздновании принимают участие и жители Крыма.Жанр: КонцертПродолжительность: 01:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7411635E50EAE2DF61BC00448EF1D3688F8357E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 770600   (637650) от 11.07.2016
 
 Motörhead Videography / Motorhead Видеография (29 клипов) (1980-2010) TVRip
@@ -681,33 +707,6 @@ Doro - Strong and Proud - 30 Years of Rock and Metal (2016) 2хDVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35EA5BD837DCEAAF5F3803EF7D4AD8EDA2193E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682869   (629995) от 23.07.2013
-
-Сборник клипов - VA - Various Music part. 44 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629995.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2 Chainz, Wiz Khalifa - We Own It (Fast & Furious) 1080p (2:37)
-2. AK Babe - We Don't CareЖанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF2926975F5E8188E470F7D477943713E5F9D07
 ```
 
 https://mybot314.ru/tekegram_catalog/

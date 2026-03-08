@@ -1,3 +1,61 @@
+###  Публикация: 1417695   (355754) от 21.10.2020
+
+Scarlet Fantastic - Beyond Pluto (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Europop, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Pluto (4:17)
+02. Du Quesne (4:53)
+03. Lucky 7 (3:24)
+04. Beyond Pluto (Hifi Sean Remix) (5:48)(   Читать дальше...   )Жанр: Europop, SynthpopПродолжительность: 00:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:921095455386C9D2D012E044789042F0F667BE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417656   (355730) от 21.10.2020
+
+Saffronkeira with Paolo Fresu - In Origine: The Field Of Repentance (2020) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Leftfield, Avant-garde Jazz, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghosts (06:30)
+ 02. The Field of Repentance (07:54)
+ 03. Death and Civilisation (06:51)
+ 04. Due Poli (07:01)(   Читать дальше...   )Жанр: Experimental, Leftfield, Avant-garde Jazz, AmbientПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0F30690BA21120734314DFAE69F264F56B50DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952389   (355568) от 01.11.2015
 
 Hurts - Surrender (2015) [FLAC|tracks+.cue]<Synthpop, Pop>
@@ -678,64 +736,6 @@ VA - Anjunadeep 09 (Mixed By Jody Wisternoff & James Grant) (2017) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92B50C2CF8C4B2C0DD33C943C1501786E1C39FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072585   (352614) от 13.11.2016
-
-VA - Greatest Kitts Vol.4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonwalk - Breath (original mix) [07:08]
-02. Phil Fuldner - Needin' Someone (Sascha Braemer remix) [07:57]
-03. Juliet Sikora - Larrys Garage (original mix) [06:03]
-04. Tube & Berger - When They Come (original mix) [06:20](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6EB9D2A838C5F48F5912DC2B8BDD78996E3F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072669   (352609) от 13.11.2016
-
-VA - Best City Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillelektro – Punta Roja (05:56)
- 02. Oscar Salguero – Strings (03:58)
- 03. Cane Garden Quartet – Out With Friends (05:21)
- 04. Alexander Dancaless – Coffee Morning (02:36)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E540C402D7E083AD583A9DB04528A62053087B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

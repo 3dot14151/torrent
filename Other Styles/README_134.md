@@ -1,3 +1,32 @@
+###  Публикация: 1423585   (299651) от 13.11.2020
+
+Riccardo Cocciante - Notre Dame De Paris  (2000) English Version [FLAC|Lossless|tracks + .cue] <Musical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live for the One I Love - Céline Dion (4:02)
+02. The Age of the Cathedrals - Bruno Pelletier (3:24)
+03. The Refugees - Luck Mervil (3:36)
+04. The Bohemienne Song - Tina Arena (5:24)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8445BD0743EEDECCB9D8501F4DA1252AA5014FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961621   (299087) от 02.12.2015
 
 Astrocolor - Lit Up - Music for Christmas (2015) [MP3|320 кб/с]<New Age, Easy Listening>
@@ -716,35 +745,6 @@ Dark Life Note - Feelings (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A47C0C063DD04A4D751A9921EF82F25E2BEE9439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960388   (296796) от 03.12.2015
-
-Бряц-Band - 2 альбома (2005-2008) [MP3|320 кб/с]<Folk, Rock, Instrumental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Boney M
-02 Тарантіноманія
-03 Реальні мультики
-04 Искала тебя(   Читать дальше...   )Жанр: Folk, Rock, InstrumentalПродолжительность: 01:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80F5A6F227E70C31A68F7E3E613D3C75FCA6C47
 ```
 
 https://mybot314.ru/tekegram_catalog/

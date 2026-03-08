@@ -1,3 +1,61 @@
+###  Публикация: 1409654   (443337) от 18.09.2020
+
+Faction - The End Of Tel Aviv Redux (2020) False Industries [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside Out (06:43)
+ 02. Maybe Tommrow (06:34)
+ 03. Cutter's Way (07:06)
+ 04. An Older Outland (04:50)(   Читать дальше...   )Жанр: IDM, Glitch, AmbientПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462CF46ADFBD647626C8BE574D07DCBEC78E1A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409727   (443264) от 18.09.2020
+
+VA - Female Vocal Trance Vol. 2 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suncatcher & Exolight feat. Ellie Lawson - Let It Shine (Original Mix)
+02. Phillip J feat. Kim Casandra - Ocean's Call (Original Mix)
+03. Craving feat. Manon Polare - When Oceans Collide (Original Mix)
+04. Costa & Ana Criado - The Secret Garden (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E46C5FA41C631FBABC324D8BF8B7920E72ECFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409649   (443138) от 18.09.2020
 
 Global Communication - Transmissions (2020) Remastered | Evolution [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient>
@@ -684,64 +742,6 @@ VA - Ibiza Summer House Sessions 2017 [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23E7B3A7F98FB8FB030FED7E89CF8BB48072D001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062362   (441396) от 13.10.2016
-
-Yello - Toy (2016) Limited Deluxe Edition [FLAC|Lossless|image + .cue] <Synthpop, Future Jazz, Downtempo>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frautonium Intro
-02. Limbo
-03. 30'000 Days
-04. Electrified II(   Читать дальше...   )Жанр: Synthpop, Future Jazz, DowntempoПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63B1EE998BC65569402093594F6CABCA6D1B167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409974   (440874) от 19.09.2020
-
-VA - Black Hole Trance Music 09-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BT & Emma Hewitt - No Warning Lights (Sean Tyas remix) 08:27
-02. Andy Duguid + Jaren - My Thunder (extended mix) 07:19
-03. Christina Novelli - I'm Ok (extended mix) 04:55
-04. Bill McGruddy feat. Wai - Iris (extended mix) 05:42(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73150825869B6543EF9371F85812221CD1F0A751
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1735697   (106868) от 09.07.2024
+
+Simone Kopmajer - Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pick Yourself Up
+02. Black Tattoo
+03. Careless Whisper
+04. Little Green Apples(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D2F260D71A38361AB0D89B9B868090F424E465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735649   (106846) от 09.07.2024
 
 George Shearing Quintet And Orchestra - White Satin & Black Satin (1957, 1960) 1991, Capitol Records [FLAC|Lossless|tracks + .cue] <Easy Listening, Cool, Piano Jazz>
@@ -716,35 +745,6 @@ John Patton - Soul Connection (1983) 2008, Just A Memory [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78933B5E0BEDE9FF551DA60B6FA123757E2E50B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737701   (106494) от 19.07.2024
-
-Junior Mance - Holy Mama (1976) 2008, Test Of Time Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By the Time I Get to Phoenix [7:34]
-02. God Bless the Child [8:21]
-03. That Mellow Feeling [7:17]
-04. Holy Mama [5:22](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Piano JazzПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D2DA23D1353EF951ECF91FEB62EC33BE8D5EC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

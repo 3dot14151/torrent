@@ -1,3 +1,32 @@
+###  Публикация: 1284199   (728972) от 21.02.2019
+
+Golden Daze - Simpatico (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Psychedelic, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Bell (03:45)
+02. Amber (03:17)
+03. Flowers (03:04)
+04. Took a Fall (03:17)(   Читать дальше...   )Жанр: Indie Pop, Psychedelic, AlternativeПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262D15AA95F809E948529E906D1EB4779C41C0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284207   (728971) от 21.02.2019
 
 Young Hunting - True Believers (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -710,35 +739,6 @@ Weezer - Weezer (Black Album) (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D46718F3AB6C559174D5DF210C13A05ECFEC3C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285865   (716821) от 28.02.2019
-
-Adia Victoria - Silences (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clean (01:52)
-02. Bring Her Back (03:15)
-03. Pacolet Road (03:08)
-04. The City (03:18)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21779E2B430BA0BB99E41894E46A356E87E9C52B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1734278   (51277) от 02.07.2024
+
+WinToUSB Technician 8.9.1 (x64) Portable by FC Portables [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51277.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToUSB - позволяет устанавливать и запускать операционную систему Windows с USB-HDD или USB-Flash, используя образ ISO или CD/DVD диск в качестве источника установки. WinToUSB также поддерживает создание загрузочного WinPE USB, он может помочь вам перенести содержимое WinPE на диск USB и сделать накопитель загрузочным.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80728BCE417B0882FF7F09F6F45050E88D0B54CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735286   (50808) от 07.07.2024
 
 PTC Mathcad Prime 10.0.0.0 [En]
@@ -653,32 +679,6 @@ OrcaSlicer - популярный слайсер для 3d-печати. Отл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A8FC66EC8C0AB945ECA89FC6D5772B186A43276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791193   (21618) от 12.04.2025
-
-CoolUtils Total CAD Converter 4.1.0.230 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total CAD Converter - программа для конвертации файлов формата CAD в PDF, TIFF, JPEG, BMP, WMF, PNG, DXF, BMP, CGM, HPGL, SVG. Оригинальные файлы могут быть в форматах dxf, dwg, dwf, plt, hg, hgl, hpg, plo, hp, hpl, hpgl, hp1, hp2, hpgl2, gl2, spl, prn, svg, cgm. Total CAD Конвертор имеет удобный интерфейс и окно мастера настроек, который помогает быстро и просто (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5430A54270D6362C0E1A88E0B079F9EFCC5BD5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

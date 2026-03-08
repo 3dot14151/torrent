@@ -1,32 +1,3 @@
-###  Публикация: 1840367   (1047281) от 04.12.2025
-
-Ryan Adams - Self Portrait (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alt Country, Singer-Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virginia In The Rain (3:15)
-02. Please, Shut The Fuck Up (3:56)
-03. Bye Bye Balloons (1:55)
-04. Someone On my Mind (2:24)(   Читать дальше...   )Жанр: Rock, Alt Country, Singer-SongwriterПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1418A471BAD71BA8B1024AA2613EB64F93C3102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840375   (1047278) от 04.12.2025
 
 Erik Gronwall - Eriksplanations Vol. 3 (2025) [MP3|320 Kbps] <Hard Rock>
@@ -748,6 +719,35 @@ Booker - Время колокольчиков (2025) [FLAC 24/48|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E4F77B89F0EF5141C3EA98932E7260733A84A43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840040   (1046909) от 02.12.2025
+
+ColtFair - Welcome to my storm (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't dance with the devil (4:04)
+02.  Let the drums rumble (3:26)
+03.  Welcome to my storm (4:26)
+04.  Let my heart beat for you (4:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37997BA1C4F144BBA2F1BC10119D05C9CF430353
 ```
 
 https://mybot314.ru/tekegram_catalog/

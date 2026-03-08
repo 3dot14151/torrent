@@ -1,3 +1,87 @@
+###  Публикация: 1672629   (168046) от 29.10.2023
+
+Kölsch - I Talk To Water (2023) [FLAC|Lossless|WEB-DL|tracks + .cue] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD4AEEDD709146B4C1147D5F122E6AA1B96F1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597092   (167564) от 13.12.2022
+
+Ben Böhmer - Live At The Roundhouse London (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Bohmer - Begin Again
+02. Ben Bohmer - Beyond Beliefs
+04. Ben Bohmer ft Lau.ra - Erase
+05. Ben Bohmer ft PBSR - Revelation(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281A016006562CB5337DE3287E8C75EB82BE8B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431678   (166984) от 14.12.2020
+
+Leama & Moor - Distance Between Us (2006) Single [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Progressive Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166984.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Distance Between Us (Jody Wisternoff Mix) [07:02]
+2. Distance Between Us (Streetlife DJs Mix) [07:13]
+3. Distance Between Us (Original Mix) [09:45]
+4. Distance Between Us (Gill Norris Mix) [11:48](   Читать дальше...   )Жанр: Progressive House, Trance, Progressive TranceПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4FA3C58809532FBDE26F492D96EB0A79A015AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516274   (166961) от 10.12.2021
 
 Gui Boratto - Pentagram (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal, Ambient>
@@ -649,93 +733,6 @@ Wolfgang Gartner - Weekend in America (2011) [FLAC|Lossless]<Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:672B1B7538F546E23EB7A188F81729AF7D860122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194638   (155974) от 25.12.2017
-
-VA - Nick Warren - The Soundgarden - Volume One (2014) Hope Recordings [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Techno, Leftfield, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peet - Fear Of Andarana (06:37)
- 02. Niko Mayer - Anunnaki (08:04)
- 03. Simon Shackleton - We All Shine On (06:51)
- 04. Stas Drive Pres. Quattar - Arjuna (05:16)(   Читать дальше...   )Тип издания: CD, Mixed •Жанр: Ambient, Downtempo, Techno, Leftfield, House •Продолжительность: 01:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAEA7ACC43FE4D04EAF0E8C553CFDD2758ECC7DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433995   (154879) от 22.12.2020
-
-Michael Cassette - Temporarity (2020) 10th Anniversary Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Nu Disco, Synthwave, Retrowave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Name Is Michael Cassette (3:29)
- 02. Shadow’s Movement (3:54)
- 03. Crockett's Theme (3:39)
- 04. Through The Windows (3:31)(   Читать дальше...   )Жанр: EDM, Progressive House, Nu Disco, Synthwave, RetrowaveПродолжительность: 03:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75C79DBFAF008687EBE36898FF4247DF933D2BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270996   (154527) от 21.12.2018
-
-S36 - Turkish Delight EP (2018) Sumo Smash Record [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Rat (02:56)
- 02. S.t.O Groove (03:33)
- 03. Terra (03:30)
- 04. No Stromo (06:31)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D49E734E3CEB215FCB0F1417E5B7FBD3879BD6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

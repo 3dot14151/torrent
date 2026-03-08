@@ -1,3 +1,61 @@
+###  Публикация: 1348831   (141511) от 29.12.2019
+
+Sparks - Past Tense: The Best Of (2019) 3CD [FLAC|Lossless|tracks + .cue] <Synthpop, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141511.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Computer Girl
+02. Wonder Girl
+03. (No More) Mr. Nice Guys(   Читать дальше...   )Жанр: Synthpop, Pop Rock |Продолжительность: 03:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CD57BA6AB6F7D6AD7B5CACD6EB6D2CC0305461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272773   (141503) от 29.12.2018
+
+VA - Markus Schulz - Global DJ Broadcast (Classics Showcase 2019) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Filmic
+02. Sasha & Maria - Be As One
+03. FC Kahuna - Hayling (Markus Schulz Remix)
+04. David West - Carrier(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B638F634703BBBD6BC584D28EE1EE91CAE3EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272779   (141456) от 29.12.2018
 
 VA - FSOE Fables: Best Of (2018) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ Claptone - Fantast (2018) [FLAC|Lossless|tracks + .cue] <Deep House, Indie Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:224E72C841675F134033AFECB6C51D9B7AA6585A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436240   (139530) от 30.12.2020
-
-VA - Relax Culture, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kick Bong - Tranquility Vibes (5:08)
-02. Earth Connect - Blues Out (5:38)
-03. Potlatch - Wonder (5:28)
-04. Eguana - Cozy Courtyard (4:34)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F057D3993BD8457CDA78B524002E083190778E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272949   (139359) от 30.12.2018
-
-VA - Ibiza Chillout Series (1999-2007) Ayia Napa [FLAC|Lossless|tracks+.cue] <Downtempo, Dub, Chillout, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139359.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. Jens Buchert - Event Horizon (04:31)
- 02. Esteban Garcia Junior - Deep Blue (04:08)
- 03. Buro - Verano Suave (05:58)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Downtempo/Dub/AmbientПродолжительность: 01:06:00+01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EF21F8B45BA8B0E23809BDD5A75FED2C05AF19
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857842   (1060038) от 07.03.2026
+
+Sarah Brightman & The London Symphony Orchestra - Time To Say Goodbye (1997) [FLAC|Lossless|tracks + .cue] <Neo-Classical, Neo-Romantic, Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Symphony Orchestra & Sarah Brightman / Time To Say Goodbye [0:04:06.40]
+02. London Symphony Orchestra & Sarah Brightman / No One Like You [0:04:45.27]
+03. London Symphony Orchestra & Sarah Brightman / Just Show Me How [0:04:00.20]
+04. London Symphony Orchestra & Sarah Brightman / Tu Quiere Volver [0:03:49.03](   Читать дальше...   )Жанр: Neo-Classical, Neo-Romantic, Modern ClassicalПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C740E6DB36925E564A7E265F31C1A47C302A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857102   (1059372) от 04.03.2026
 
 VA - Wake Up Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -721,36 +750,6 @@ Mao Fujita - Chopin: Impromptus and Scherzos (2020) Naxos [FLAC 2.0|96/24|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:691C720D7F2F7E8485713575C6EB361AB90409BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412977   (1029922) от 21.02.2021
-
-Peter Donohoe - Mozart: Piano Sonatas. Volume 2 (2019) SOMM Recordings [FLAC 2.0|88.2/24|tracks|WEB-DL] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть обзора Моцарта в исполнении Peter Donohoe была записана в марте 2019 года. Он и команда Somm’s recording возвращаются в Бирмингемскую консерваторию к роялю Bechstein, который идеально звучит без той дерзости, которую мог бы внести Steinway.
-Сонаты представляют собой трилогию, сочиненную во время злополучного путешествия Моцарта в 1777-78 гг. через Мангейм (   Читать дальше...   )Piano Sonata No. 7 in C Major, K. 309:
-01. I. Allegro con spirito (06:11)
-02. II. Andante un poco adagio (05:51)
-03. III. Rondo. Allegretto grazioso (06:08)Жанр: ClassicalПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED1E5A8F10BCE326AFD0171DD530F56D11D3594
 ```
 
 https://mybot314.ru/tekegram_catalog/

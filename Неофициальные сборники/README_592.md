@@ -1,3 +1,177 @@
+###  Публикация: 1671279   (171386) от 24.10.2023
+
+VA - Harmonic Electro Jazz (2023) [MP3|320 Kbps] <Electro Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolphin Hyperspace - Rodeo Rider [02:59]
+02. Jasper Hoiby - Vision Of Outrage [04:57]
+03. Kinkajous - Convolution [04:42]
+04. Krewcial - Owo [06:17](   Читать дальше...   )Жанр: Electro JazzПродолжительность: 07:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E719BC5E6D043085E134BFE28F6E9AFB651BCD34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671187   (171384) от 24.10.2023
+
+Aykan Emir - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empty World
+02. Odyssey
+03. Space Boy
+04. Sweet Feeling(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1A92B1F5B98376CBBAD21032A2FD991E996CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671199   (171379) от 24.10.2023
+
+Hussein Arbabi - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promises
+02. Rose
+03. Letter
+04. Malak(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA069F37C03ED368E2D0AC5554541001FBD0CD7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671168   (171367) от 24.10.2023
+
+Neuron - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Te amo
+02. Melena
+03. Feel It
+04. Never Forget(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DF3E382E17AB96D8A174D8CDD6B9BA7A861F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671173   (171362) от 24.10.2023
+
+MENDA - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help
+02. Anxiety
+03. Midnight Dance
+04. Miracle(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E043F7A3966505D2E6B5B189900B39E03091E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671324   (171343) от 24.10.2023
+
+VA - Music News vol.309 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171343.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anitta - Mil Veces (02:34)
+ 002. Adriana Minune feat. Karmen & Adrian Minune Jr. - Mama, Spune-mi (03:26)
+ 003. Aexcit feat. Kalkovich - Ladadadida (02:10)
+ 004. ALLERGIA - Доволен (02:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43C896963F82803BE73DC64E320F0EEC3E3BA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671518   (171173) от 25.10.2023
 
 VA - Lo-Fi Harmony vol.2 (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo Fi>
@@ -571,180 +745,6 @@ Scarlxrd - Агрессивный, грязный и металлический 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27A1A7FDE5ABC94CAFE20FE312D68B713561D466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596261   (169689) от 10.12.2022
-
-VA - 60 minutes. Old School Dance Music vol.14 (mixed by Dj V) (2022) [MP3|320 Kbps] <Club House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sash! feat. Tina Cousins - Mysterious Times (Todd Terry's Club Mix)
-02-STFU - Thriller (STFU Mix)
-03-Outwork feat. Mr Gee - Elektro (The Cube Guys Delano Remix)
-04-Global Deejays feat.Technotronic - Get Up (Tribalectric Rap Mix)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive HouseПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB56ACA391749849ECEC36640B85565E87838669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596400   (169667) от 10.12.2022
-
-VA - В машине с музыкой Vol.322 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стас Михайлов  - Она Не Любит Одиночество (03:16) 2022
-02. Маргарита Суханкина & Petrakoff - На Дискотеке (03:30) 2022
-03. Brandon Stone - Девчoнка Лети (03:17) 2022
-04. Fisun Feat. & Niki Four - Falling (02:56) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A5981C8E66FE60B88EAE907F20CCC15D9B1C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596507   (169565) от 10.12.2022
-
-Guns N’ Roses - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169565.jpg" />
-</div>
-
-
-###  Подробнее
-
-С творчеством Guns N Roses я познакомился в 96 году. Услышал альбом 93 года The Spaghetti Incident и с первых нот он сразу залетел в душу. До этого слышал только песню Don’t Cry. Энергетика у музыкантов бешеная. К сожалению, Spaghetti Incident стал последним крутым детищем группы. Записаны и сведены альбомы в среднем качестве. Послушал ремастеры и звучание не понравилось. (   Читать дальше...   )01. Welcome To The Jungle
-02. It's So Easy
-03. Nightrain
-04. Out Ta Get Me(   Читать дальше...   )Жанр: RockПродолжительность: 04:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE225A931AEE27BB59C8CBD72A37D81F51C684F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430760   (169469) от 11.12.2020
-
-VA - Love Blues (2020) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Bonamassa - Reconsider Baby
-02. Gary Moore - Drowning In Tears
-03. Julian Sas - Anything
-04. Tubescreamers - Cold Day(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 10:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89C3896567F367C8A1DAE0D6E2B4022DB6732E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343959   (169294) от 11.12.2019
-
-VA - Old School Hits Collection от ALEXnROCK Часть 2 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудио версия видеосборника. В него вошла самая хитовая музыка нулевых. Это 2я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Nicole Kidman & Ewan McGregor - Come What May
-02. Elize - Hot Stuff
-03. Blue - One Love
-04. 4 Strings - Diving(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC99268D643F35BAFAEB19C985C397D7FCFDD216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672471   (169248) от 28.10.2023
-
-VA - Dark Electronic Symphony (2023) [MP3|320 Kbps] <Darkwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rosegarden Funeral Party - Black Waters' Embrace
-02. Cut Hands - Witness The Spread Of The Dream
-03. Terminal - The Course Of Empire
-04. Precenphix - Postdrome(   Читать дальше...   )Жанр: Darkwave, ElectronicПродолжительность: 05:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CF5E0061625223D45281E4992183B4AF4630D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

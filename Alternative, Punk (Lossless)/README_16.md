@@ -1,3 +1,32 @@
+###  Публикация: 1211992   (776460) от 10.03.2018
+
+Vance Joy - Nation of Two (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call If You Need Me (02:43)
+02. Lay It On Me (03:34)
+03. We're Going Home (03:27)
+04. Saturday Sun (03:34)(   Читать дальше...   )Жанр: Indie Rock, Pop RockПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB47CB334FFB43B2C85C343C91C6372D24888BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014896   (776019) от 08.05.2016
 
 Radiohead - A Moon Shaped Pool (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
@@ -716,35 +745,6 @@ Linkin Park - Meteora (2003) Unofficial Release [FLAC|Lossless|tracks + .cue] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FB6F3C18A8814DFED47E0FFD6A5AFC54ECD3619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125827   (766316) от 17.04.2017
-
-Loose Tooth - Big Day (2017) [FLAC|Lossless|tracks + .cue] <Rock, Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sleep With The State Concept (02:33)
-2. Garlic Soup (03:29)
-3. Lisa Lives (01:06)
-4. Free Skate (01:34)(   Читать дальше...   )Жанр: Rock, Alternative, IndieПродолжительность: 00:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1776508F5677EDD4401C7D9A4BC8A09C83C21AB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

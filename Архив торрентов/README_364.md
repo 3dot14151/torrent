@@ -1,3 +1,38 @@
+###  Публикация: 614447   (981743) от 05.02.2013
+
+Café Del Chillia - After The Rain (2013) [MP3|320 кб/с]<Chillout, Lounge, Jazzy>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After The Rain (Radio Edit) (2:38)
+02. Breath In Heaven (4:02)
+03. Coolness Flavor (Jazz Bassy Mix) (3:25)
+04. Feel The Sun (3:58)
+05. If You See Me (3:32)
+06. Imagination (3:30)
+07. New Day (New Mix) (2:54)
+08. Rondo Jazzing (3:07 )
+09. She's Always (5:02)
+10. Waiting Until Now (3:50 )(   Читать дальше...   )Жанр: Chillout, Lounge, JazzyПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E2ADFF195D371F8280EA8328C2BC60FDC779D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614057   (981740) от 05.02.2013
 
 Газета | Любимые рецепты читателей №1 [Январь 2013] [JPEG]
@@ -666,32 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614105   (981515) от 05.02.2013
-
-Wallpapers - Wallpapers Fantasy №35 (Pavel) [JPEG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола 50 штРазрешение файлов: 1920x1080 1920х1200 2560х1600Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0118459C24ACB9F8A660BD26D2B6D7A66F92345A
 ```
 
 https://mybot314.ru/tekegram_catalog/

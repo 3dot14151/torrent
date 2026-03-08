@@ -1,3 +1,61 @@
+###  Публикация: 1387133   (792435) от 31.05.2020
+
+David Guetta - United At Home: Fundraising Live From New York City, United States 2020-05-30 [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JAY-Z ft. Alicia Keys - Empire State Of Mind (ID Remix)
+02. David Guetta & MORTEN ft. Aloe Blacc - Never Be Alone
+03. David Guetta & MORTEN ft. RAYE - Make It To Heaven
+04. David Guetta - ID w/Martin Luther King - I Have A Dream w/Axwell ^ Ingrosso ft. Trevor Guthrie - Dreamer (Acappella)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 02:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804485DBB4DC7F7335564D0FCE88C7D1F1E12DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123236   (792421) от 07.04.2017
+
+VA - Milchbar - Seaside Season 9 (Compiled by Blank & Jones) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blank & Jones - My Island  4:20
+02.  Blank & Jones with Zoe Dee - Adios Ayer  4:29
+03.  Cantoma - Sea Of Blue  4:14
+04.  Zee Erf feat. Francesca Mondi - Southern Freeez (Mudd's Mix for Emma)  3:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4B40598E1FDB2B46CD7D115B32196E1CCCC550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123321   (792407) от 07.04.2017
 
 Alphaville - Strange Attractor (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
@@ -682,64 +740,6 @@ VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FFD107C525535728E1E9ABC4082D5C9DB212D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274880   (791708) от 09.01.2019
-
-VA - House Boutique Volume 25-Funky & Uplifting House Tunes (2018) [MP3|320 Kbps] <Groove, House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block & Crown - Dice (Original Mix)
-02. Jose Ogalla - After Now (Chris Montana Piano Dub)
-03. Scotty Boy - Ya'll Came to Jack (Original Mix)
-04. Slippy Beats - Phunky Beats (Hype Is Not Remix)(   Читать дальше...   )Жанр: Groove, House, FunkyПродолжительность: 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3D4582D8C933666CC260618D387675AFBA88DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274888   (791707) от 09.01.2019
-
-Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) Vent Sounds, Silent Flow [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Float (08:22)
- 02. Carousel (06:01)
- 03. Abandoned (18:00)
- 04. Grey (08:16)Тип издания: WEBЖанр: AmbientПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE39A53B910A31C92BA61904FD4872AA713CD71F
 ```
 
 https://mybot314.ru/tekegram_catalog/

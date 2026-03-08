@@ -1,3 +1,59 @@
+###  Публикация: 1318348   (494816) от 06.08.2019
+
+Илья Гусев - Летим на Марс! (2019) [MP3|320 Kbps] <Pop, Neo-Disco>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моё первое письмо (3:44)
+02. Щекой к щеке (3:53)
+03. Малиновый поцелуй (4:11)
+04. Заказывай желание (4:15)(   Читать дальше...   )Жанр: Pop, Neo-DiscoПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA747B5BFBA2F94C39BB700EA1813F20082F2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565428   (494771) от 23.07.2022
+
+Billie Eilish - Guitar Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билли Айлиш — американская певица и автор песен. 21 июля 2022 года она выпускает мини-альбом «Guitar Songs» с двумя треками-сюрпризами «TV» и «The 30th».01. TV
+02. The 30thЖанр: Pop, Indie Pop, AlternativeПродолжительность: 00:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB5BBC19945B29AD2B2B6A8479A624E817F6B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318491   (494703) от 06.08.2019
 
 Berlin - Transcendance (2019) [MP3|320 Kbps] <Pop, Electronic>
@@ -690,64 +746,6 @@ VA - Disco Fieber - 48 Super Disco Hits (1980) 3LP [MP3|320 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED7821A16177542659D66271E5D5EC2F85295BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318788   (492621) от 07.08.2019
-
-VA - Italo Made In Spain (2017) CDr, Compilation, Partially Mixed [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various (mixed By Juan Martinez & Toni Bafles) - Italo Made In Spain (Long Version) (15:45)
-02. Night In Wales - Sunday Night (5:09)
-03. Stylove feat. Naoky - Now Close Your Eyes (6:17)
-04. Laetitia - I Will Surrender (5:39)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9722448B77D10B29C7C56888D8A1761BFE1BB881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565552   (492601) от 24.07.2022
-
-Ren Woods - Out Of The Woods (1979) Remastered, 2013, Columbia [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hooked On A Love Groove (3:31)
-02. I Love The Way You Do It (4:40)
-03. I Need Someone To Touch Me (4:07)
-04. Sticks And Stones (3:19)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B09B48F77CE289D1FDA23F1D2245D5C453128E
 ```
 
 https://mybot314.ru/tekegram_catalog/

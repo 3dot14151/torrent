@@ -1,32 +1,3 @@
-###  Публикация: 1098192   (910856) от 29.01.2017
-
-Trappazat - From Dusk Till Dawn (2012) [FLAC|Lossless|image + .cue] <NWOBHM>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. From Dusk Till Dawn (05:09)
-2. I Am D.O.A. (06:38)
-3. Can't Stand the Heat (06:24)
-4. Breakout (07:57)(   Читать дальше...   )Жанр: NWOBHMПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98C95CDD0022778AB2B2059EDA25ACB67BD4A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098138   (910790) от 29.01.2017
 
 As Lions - Selfish Age (2017) [MP3|320 Kbps] <Alternative Rock>
@@ -745,6 +716,32 @@ Faces - 5 Albums (1970-1976) Japanese Limited Release, Reissue, Remastered, 2010
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93E730CFCD0FC64D211392BFD4475830C3DD101A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235771   (910293) от 05.02.2011
+
+The Beatles - Коллекция концертных записей (1962-1994) [MP3|160-320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1FFB3493F1837B08628B592BDD2AA914D156A24
 ```
 
 https://mybot314.ru/tekegram_catalog/

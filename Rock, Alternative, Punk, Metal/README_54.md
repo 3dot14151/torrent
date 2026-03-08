@@ -1,32 +1,3 @@
-###  Публикация: 1442048   (1036897) от 24.01.2021
-
-Holy Mother - Face This Burn (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Heavy Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face This Burn [00:03:39]
-02. Love Is Dead [00:04:01]
-03. Legends [00:03:51]
-04. No Death Reborn [00:03:39](   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4D880C46B9E88A90645174F4A452304B50FB4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442226   (1036895) от 24.01.2021
 
 Therion - Leviathan (2021) Japan Edition [MP3|320 Kbps] <Symphonic Operatic Metal>
@@ -746,6 +717,35 @@ Belzebubs - Pantheon of the Nightside Gods (2020) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:576640F9B77E835DF0BD24B6F5827A50FD0C3A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442355   (1036631) от 25.01.2021
+
+Mors Principium Est - Seven (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Day for Redemption
+02.Lost in a Starless Aeon
+03.In Frozen Fields
+04.March to War(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B060986A02B52ADF58A56903904114AAF711E8DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1205195   (784108) от 08.02.2018
+
+VA - Progressive Psychodelic Trance Vol.4 (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daniel Lesden  -  The Last Of Our Kind (Original Mix)  8:58
+02.  Gonzi & Boot Sequence  -  Day After Day (Ecolift Remix)  6:47
+03.  Pondora & Eran Gordon  -  The Story (Original Mix)  5:41
+04.  Zyce  -  Messier 74 (Original Mix)  7:00(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 03:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271F13E764FBE769BDC5260D6FAC0872BF7AFDE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205051   (784089) от 08.02.2018
+
+VA - German Top 100 Single Charts 09.02.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_784089.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Bausa - Was du Liebe nennst
+003. Eminem - River (feat. Ed Sheeran)
+004. Camila Cabello - Havana (feat. Young Thug)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEA2BC81BD7F311EEF8F3871D3F958CFFABBB8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204985   (784070) от 08.02.2018
+
+VA - Cosmotronica & Space Disco Vol.7 (2018) [MP3|320 Kbps] <House, Spacesynth, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rodg & Roovel - Fast Lane
+02. Zschet - Wuoarping Kicks (First Mix)
+03. Sosysos - Essentials of Magic
+04. DJ Eef - Allright (Original Mix)(   Читать дальше...   )Жанр: House, Spacesynth, OtherПродолжительность: 05:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDFC63D5AEB6C21D85C0C31F936989BE3EC25D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204979   (784064) от 08.02.2018
+
+VA - Лучшие клубные новинки Vol.11 (2018) [MP3|320 Kbps] <Dance, Club, House, Electro House и другие>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase feat. Rave CHanne - Just Be (Deep Radio Mix) 3:48
+02. Abandoned & InfiNoise - Night Caller Feat. Project Nightfall (Original Mix) 4:29
+03. Above & Beyond feat. Justine Suissa - Cold Feet 5:35
+04. Activa - Generate (Original Mix) 7:32(   Читать дальше...   )Жанр: Dance, Club, House, Electro House и другиеПродолжительность: 23:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE6B8BFE1668CE097416882CC2354C47C93B445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204997   (784061) от 08.02.2018
+
+VA - Bass Killer 14 (2018) [MP3|320 Kbps] <Dubstep, Electro House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alison Wonderland — U Don’t Know (Slushii Remix) (3:44)
+02. Bare x Sluggo — Adios (3:25)
+03. Bear Grillz — Defy The Odds (feat. Elle Vee) (4:09)
+04. Cardi B — Bodak Yellow (IZII Remix) (3:10)(   Читать дальше...   )Жанр: Dubstep, Electro House, TrapПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885CC78D71C8B4579B302640AC7F754B6E21D5A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205200   (784060) от 08.02.2018
+
+VA - Melodic Music Vol.2 (Compiled by HABL) (2018) [MP3|320 Kbps] <Melodic DubStep, Drum & Bass, ChillStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Digital Department & Dan K, Elvenfox feat. Jay Furze  -  Wasted Away (Under This Remix)  5:30
+02.  Excision  -  With You (feat. Madi)  4:25
+03.  StravaGanza  -  In Motion  3:40
+04.  Trixtor & Pantsmode  -  Summer Memories (Original Mix)  3:10(   Читать дальше...   )Жанр: Melodic DubStep, Drum & Bass, ChillStep, Trance, DrumStepПродолжительность: 02:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB857FCB1B95CA028FCFB942D227613683C83E3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205107   (784050) от 08.02.2018
 
 VA - Pioneer Studio - World In My Eyes (2018) [MP3|320 Kbps] <Dance, Disco>
@@ -570,180 +744,6 @@ VA - Fitnes Hits (2018) [MP3|320 Kbps] <Pop, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1027F4DD94A2CDB53FCEF5126C26A079832DD4C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390229   (783415) от 14.06.2020
-
-VA - Beatport Goa Trance: Electro Sound Pack #101 (2020) [MP3|320 Kbps] <Goa, Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783415.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Killerwatts - Fractals (Original Mix)
-002. Klopfgeister - Good Bye Goa
-003. Quadra - Something Strange
-004. Stealth Navigator - The Squelch(   Читать дальше...   )Жанр: Goa, Psychedelic TranceПродолжительность: 12:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF37B8F488CD926528844C47AC4E5A8ED084C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390137   (783413) от 14.06.2020
-
-VA - The Official UK Top 40 Singles Chart 12.06.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DaBaby Feat Roddy Ricch - ROCKSTAR
-02. Lady Gaga Feat Ariana Grande - Rain On Me
-03. S1mba Feat DTG - Rover
-04. Topic Feat A7S - Breaking Me(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D137780941FB27FB61E24A0043682430F5F4689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390227   (783409) от 14.06.2020
-
-VA - Beatport Vocal House: Sound Pack #100 (2020) [MP3|320 Kbps] <Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783409.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hiddn - Too Good
-002. Moguai - Everybodys Got
-003. Acuna Boyz - 6 Inch Heels
-004. Akcent - Stay With Me(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 09:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7310BDA3368C93FBA97B35F577973CC6E4287F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390130   (783383) от 14.06.2020
-
-VA - Record Super Chart 640 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cream Soda & ХЛЕБ - Плачу на техно 2:40
-02. Little Big - Hypnodancer 3:08
-03. El Capon - Shut Up Chicken 2:31
-04. Topic & A7S - Breaking Me 2:47(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34ABEECBB745D5F178A4F9078B28D77AF5FA2D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390228   (783350) от 14.06.2020
-
-VA - Romantic Rnb: 200 Best Summer Songs (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783350.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Terrace Martin - Oblivion
-002. Teedra Moses - Be Your Girl
-003. Ambar Lucid - Garden
-004. Lisandro Cuxi - Elle Me Dit(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 11:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9BC7A543AE84EC29A47C86865381B57B659AADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390194   (783274) от 14.06.2020
-
-VA - Громкие новинки Июня (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783274.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Afrojack & Chico Rose feat. Jeremih - Cloud 9 (3:04)
-2. Agunda - Мелькает Свет (2:03)
-3. alyona alyona - Пам'ятаю (1:53)
-4. Animal ДжаZ - О Хлебе И Воде (Piano Version) (2:44)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B140FF8D7D226B4D9C02C5EF2692F549FA3EA139
 ```
 
 https://mybot314.ru/tekegram_catalog/

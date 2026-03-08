@@ -1,255 +1,3 @@
-###  Публикация: 459536   (95409) от 04.03.2012
-
-DJ Darrel - Happy Filthy Holidays (2011) [MP3|192 кб/с]<Drum&Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95409.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Throttler - Dark steel
- 2. DJ Hidden - You're not real
- 3. DJ Hidden - Dying star
- 4. Seid - The Machine
- 5. Switch Technique - The edge of chaos
- 6. Eye-D & DJ Hidden - Rain
- 7. Zeal & Litta - Screams of Another (Current Value remix)
- 8. Nanotek - Venus
- 9. Current Value - Warship
- 10. Limewax - Aria(   Читать дальше...   )2011Жанр: Drum&BassПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8595AAA523113BD4B3B79F05DD81FECB12CCC070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461592   (95370) от 03.03.2012
-
-NG: Суперсооружения древности / Ancient Megastructures (2007-2009) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробно знакомясь с самыми интересными Суперсооружениями древности, узнайте об исторических событиях, на фоне которых создавались эти шедевры архитектуры - о жестокой борьбе за власть, человеческих трагедиях и о препятствиях, которые приходилось преодолевать древним зодчим.Жанр: ДокументальныйРежиссер: Мелиса Акдоган / Melisa AkdoganПеревод: Russian: AC3, ~448.00 kb/s avg |Oдноголосый закадровый|Формат: TSПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C287AC32BCF1F4D44CEC2DD5FF42029FEFE463B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461197   (95367) от 03.03.2012
-
-Резня / Carnage (2011) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ссоры детей обычно заканчиваются оплеухами или шумными драками. У взрослых все гораздо хуже — их конфликты могут перерасти в настоящую войну. Задиры и задаваки Захари и Итан даже не подозревали, что натворила их школьная вражда. Сами того не желая, они разбудили древнего бога резни, который заставил расплачиваться за проделки мальчишек их родителей.Жанр: Драма, КомедияРежиссер: Роман ПоланскиПродюсер: Саид Бен Саид, Оливер Бербен, Мартин МосковицАктеры: Джоди Фостер, Кейт Уинслет, Кристоф Вальц, Джон Си Райли, Элвис Полански, Элиот Бергер, Джозеф Резвин, Натан Риппи, Таня Лопер, Джули АдамсПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461656   (95363) от 03.03.2012
-
-Игорь Чужин | Странник. Возвращение [2012] [FB2,RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир магической сказки растаял, словно сон, а князь Ингар снова стал Игорем Столяровым, которого никто нигде не ждёт, и никому до него нет дела. Княжеский дворец на вершине магического Дерева Жизни превратился в обшарпанную палату психушки с зарешечённым окном, а почётный караул эльфийских гвардейцев сменили угрюмые санитары с пропитыми лицами у дверей процедурной. Кажется, уже нет смысла бороться и проще всего забыться в медикаментозном тумане, но есть долг перед семьёй и детьми. Ещё не все враги заплатили по счетам, а потому нужно, кусая до крови губы и обламывая ногти, выкарабкиваться из зловонной ямы, куда тебя сбросила жестокая судьба, и снова стать князем Ингаром. Опять впереди тяжёлая дорога, полная опасностей и приключений, и ты не имеешь права на страх и отчаяние!2012Формат: FB2,RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8D7A1D3F30A240A12C2696DAF849D83A0E4CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461631   (95362) от 03.03.2012
-
-VA - The Songs of Leonard Cohen Covered (2012) [FLAC|Lossless]<Folk-Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Field Music - Suzanne (4:02)
-02.Emily Barker & The Red Clay Halo - Master Song (8:33)
-03.Palace Songs - Winter Lady (2:43)
-04.The Miserable Rich - The Stranger Song (5:57)
-05.Liz Green - Sisters Of Mercy (3:52)
-06.Bill Callahan - So Long Marianne (5:20)
-07.Michael Kiwanuka - Hey, That's No Way To Say Goodbye (2:49)
-08.The Low Anthem - Stories Of The Street (4:37)
-09.Cass McCombs - Teachers (4:37)
-10.Father John Misty - One Of Us Cannot Be Wrong (7:25)(   Читать дальше...   )2012Жанр: Folk-RockПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461134   (95356) от 03.03.2012
-
-Пастушья кукла / Зеннентунчи / Проклятие Альп / Sennentuntschi (2010) BDRemux [1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трагедия похоти, безумия и убийств... Зеннентунчи – соломенная кукла для утешения одиноких пастухов, которые живут высоко в горах. Делается она, по старинному преданию, из метлы и рогожи, набивается соломой, одевается в платье... Уж не она ли та прекрасная и дикая девушка, которая появляется ниоткуда в швейцарской деревушке? Только полицейский Рольф заботится о странной (   Читать дальше...   )Жанр: Триллер, мистика, детективРежиссер: Майкл СтейнерАктеры: Роксана Мескида, Джоэль Басман, Томас Ландл, Карлос Леаль, Ганспетер Мюллер, Николас ОвчарекПеревод: Двухголосый закадровыйСубтитры: АнглийскиеПродолжительность: 01:55:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461635   (95345) от 03.03.2012
-
-Андрей Валентинов | Спартак (Дилогия) [2002-2006] [FB2,RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ты не хочешь погибнуть на окровавленном песке арены, потешая зрителей, если Свобода для тебя — не просто слово, если ты уже и так мертвый, если… Имя Спартака известно каждому, но за именем прячется тайна. Спартаком греки звали одну знаменитую собаку, разорвавшую хозяина. Люди и боги, надменные римляне и бесстрашные гладиаторы, демоны, выпушенные из преисподней, проклятие, чуть не погубившее Рим, — все это сплелось кровавым клубком войны. А если бы Спартак победил?2002-2006Формат: FB2,RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD4B1DF1ECA584E8FA3A9D4AF53CB4267C96AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460505   (95338) от 03.03.2012
-
-Visual Studio 11 Beta + Team Fundation Server + .NET Framework 4.5 Beta + Extensions[Eng]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название программы: Visual Studio 11 Beta + Team Fundation Server + .NET Framework 4.5 Beta + ExtensionsЯзык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461942   (95329) от 03.03.2012
-
-Журнал | Playboy [Lithuania] №3 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2183CF5262BFA8D470AFA57753267BBA69080D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 461888   (95326) от 03.03.2012
 
 Футбол. Чемпионат России 2011-12. 33-й тур. "ЦСКА" - "Зенит" (2012) IPTVRip
@@ -743,6 +491,317 @@ Igor Pumphonia - Euphonia (2012) [MP3|320 кб/с]<Chill Out, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1AC312BBBB5DB53862D4F4A8C85CCECF246DDD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461348   (95108) от 02.03.2012
+
+DJ LEV - Night Style (2012) [MP3|320 кб/с]<Electro House, Dutch House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bingo Players, Lil Jon - Mutate Rattle (Base Music, DJ Zarubin Mash-Up)
+02. Chuckie - Who Is Ready To Jump (Dada Life Remix)
+03. The Sleepover & Reece Low & Meltek - Disco Slut (D-Jastic Remix)
+04. Spencer & Hill - I Want You (The Koch Remix)
+05. David Guetta - Stay (Johan K Horny Bootleg)
+06. MC Zali - Girls Made In Russia (DJ Melnikoff Remix)
+07. Adrian P & Carl Novy - Sensation (Sferlazzo Remix)
+08. Sasha Veter - Proletayut Dni (DJ Prado & DJ Timakoff Remix)
+09. LMFAO - Sexy And I Know It (Blood Dance Project Remix)
+10. Enrique Iglesias - Tonight (Blood Dance Project Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A88DCED50FB29A13E50B90F6FB286886D8FF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460964   (95094) от 02.03.2012
+
+VA - Face Disco (2011) [FLAC|Lossless]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Hertz - Money for nothing [7:12]
+02. D-Vision - Juicy pad song [7:28]
+03. Timestretch - Dullday [8:02]
+04. Philter - Attribute [8:25]
+05. Lightsphere - Aeroplan [8:04]
+06. Timestretch - Endless Maze [8:09]
+07. Connexx - With Me [8:18]
+08. Shyisma - Harmonic Elements [7:37]
+09. HMB - Special Dreams [6:54]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461219   (95091) от 02.03.2012
+
+Xtatic Shiva - Traces (2012) [MP3|320 кб/с]<Psychedelic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death of A Dwarf Star 07:15
+ 02. Dominant Alien Culture 07:37
+ 03. Maharashtra 05:13
+ 04. Sawhead (Original Version) 08:46
+ 05. Solar Effect 07:49
+ 06. Sulphur 08:01
+ 07. There is Truth Beyond Knowledge 08:11
+ 08. To Shi Ban 06:14
+ 09. Traces 09:192012Жанр: PsychedelicПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17AC8878841F6541F23C1A84FE74FD583340AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461212   (95087) от 02.03.2012
+
+Lamat - V (2011) [MP3|~250 кб/с (V0)]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95087.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Predators 8:45
+ 2. Perfect System (The Legacy) 8:31
+ 3. Cartell Me About It (FFT RMX) 6:48
+ 4. Remastered Controller 7:15
+ 5. New Technologies 8:18
+ 6. Mind Control Neuro Transmitor 7:53
+ 7. The Resistance 7:38
+ 8. Magnetic Interference 6:562011Жанр: Psychedelic / Full OnПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B1063E8C8EC907651C6B0908C377860DC43BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461352   (95085) от 02.03.2012
+
+VA - Armada Top 15: March 2012 (02.03.2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kirsty - Twilight (Armin van Buuren Remix) (6:03)
+ 02. tyDi feat. DJ Rap - Talking To Myself (Maison & Dragen Remix) (6:06)
+ 03. Mischa Daniels & Solid Gaz - TW3LVE (Original Mix) (5:05)
+ 04. Heatbeat - Rocker Monster (Original Mix) (6:43)
+ 05. Andrew Bennett feat. Shena - Alright (Sebjak Remix) (6:33)
+ 06. Da Hool feat. Jay Cless - She Plays Me Like A Melody (Global Deejays Remix) (5:33)
+ 07. Matt Darey & Stan Kolev feat. Aelyn - Follow You (Milan & Phoenix Remix) (6:00)
+ 08. Nash & Pepper Pres. Ostrega - First Scream (We aRe Extended Mix) (5:20)
+ 09. Orjan Nilsen - Lucky Strike (Original Mix) (7:49)
+ 10. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix) (7:20)(   Читать дальше...   )02.03.2012Жанр: TranceПродолжительность: 01:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B407D0539C7A045E1B4ADEB439497116AAB24FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461391   (95077) от 02.03.2012
+
+VA - The Dance Cube XXXIV 2CD (2011) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95077.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Продолжительность: 01:11:31
+===============================
+01 - Xtigma - Burnout (Original Mix)
+02 - Ost & Meyer - Scarlet Heaven (Original Mix)
+03 - Mike Foyle And ReFeel - Universal Language (Original Mix)
+04 - Dave202 - Alive (Fabio XB Vs. Nicologik & Zephyr Remix)
+05 - The Cloudy Day - Freedom of Soul (Original Mix)
+06 - DJ Butterfly - Will Be (Original Mix)
+07 - Lunarbeam - From Dusk Till Dawn (Original Mix)
+08 - Nexus 3 - State Of Wonder (Original Mix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D30D2D8D73786B7666B905B274A55A55C419B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461172   (95073) от 02.03.2012
+
+Nate Wooley Quintet - Hands Together (2011) [FLAC|Lossless]<ree Jazz, Modern Creative>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_95073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shanda Lea (3:33)
+02. Hands Together (9:49)
+03. Erna (4:06)
+04. Shanda Lea (2:58)
+05. Ethyl (5:20)
+06. Cecelia (9:05)
+07. Pearl (2:16)
+08. Elsa (5:51)
+09. Hazel (3:45)
+10. Shanda Lea (4:01)2011Жанр: ree Jazz, Modern CreativeПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461421   (95068) от 02.03.2012
+
+Amy Ray - Lung Of Love (2012) [MP3|320 кб/с]<Folk Rock/Indie Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95068.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. When You're Gone, You're Gone (3:15)
+2. Glow (1:55)
+3. I Didn't (4:06)
+4. From Haiti (3:10)
+5. Crying In The Wilderness (2:53)
+6. Little Revolution (2:51)
+7. The Rock Is My Foundation (3:13)
+8. Lung Of Love (3:40)
+9. Give It A Go (2:47)
+10. Bird In The Hand (3:40)2012Жанр: Folk Rock/Indie RockПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11077CC13C834E12E42A0AFD6DC32C6F2AA4908D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461162   (95067) от 02.03.2012
+
+Trance Maniacs Party - Progressive Session #33 (2012) [MP3|320 кб/с]<Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_95067.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Matt Skyer - Locust (Original Mix) (7:30)
+ 2. Paul Webster feat. Angelic Amanda - Forever Today (Tom Colontonio Remix) (6:22)
+ 3. Rex Mundi - Interstate Of Lightning (Original) (8:22)
+ 4. John Askew - Intimate Strangers (Aly & Fila Remix) (7:55)
+ 5. Christian Drost & DK Project - Always Connected (Original Mix) (8:03)
+ 6. Lisa Lashes - The Bends (Heatbeat Remix) (6:18)
+ 7. Arnej feat. Sally Saifi - Free Of You (8 Wonders Vocal Mix) (8:05)
+ 8. Sektor V pres. Austin V - The Caveman (Original Mix) (7:28)
+ 9. James Dymond - Shallop (Adham Ashraf Remix) (7:22)
+ 10. Activa - Telic (Indecent Noise Dark Sessions Remix) (6:58)(   Читать дальше...   )2012Жанр: Progressive TranceПродолжительность: 03:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51ED894F18F6E0789C2041613DCAA099C00D0D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1178994   (349339) от 31.10.2017
+
+VA - Synthetic  vol.7 (2017) [MP3|243-320 Kbps] <Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heliophile - Tranen Van De Regen (04:09)
+02. Lay Your Ghost - The Flame (04:30)
+03. Torul - Further Skies (04:23)
+04. Loewenhertz - Wer sind Wir (03:40)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F61DE91438F30FA2190EC55AA101180BA0C57760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179382   (348909) от 31.10.2017
 
 VA - Русские Диджеи & Дискотеки от Ovvod7 - 02 (2017) [MP3|320 Kbps] <Electronic>
@@ -760,34 +789,6 @@ VA - Сборник дабстепа с женским вокалом (2010-2012
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBADFF51AB22DB035A5DCD05011CF991BA0F71C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953838   (344666) от 06.11.2015
-
-VA - Fantastic Running (Best of Jogging Music) (2014) [MP3|320 кб/с]<Electro, Minimal, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlantik - Golgiapparat (Mollono.Bass Remix) (07:37)
-02. Christos Fourkis - Houze You (07:34)
-03. Sanil Fenice - Before Dawn (Matthias Freudmann Remix)Жанр: Electro, Minimal, Deep HouseПродолжительность: 02:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBCE900F0281388C6918591E2C710364FEE2CFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

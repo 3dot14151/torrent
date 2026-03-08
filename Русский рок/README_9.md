@@ -1,32 +1,3 @@
-###  Публикация: 1466838   (1018299) от 01.05.2021
-
-БИБН (Без Имени Без Номера) - 2 Albums (2020) [MP3|320 Kbps] <Alternative Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. СССР [00:04:38]
-02. Человек [00:03:49]
-03. Мои ветра [00:05:08]
-04. Царь [00:03:20](   Читать дальше...   )Жанр: Alternative Rock, Punk RockПродолжительность: 2CD, 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8CBCC90B115B5B2C56FB2CC9752B5582ACECEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466835   (1018293) от 01.05.2021
 
 Нота Протеста - Ледокол (2021) [MP3|320 Kbps] <Alternative Rock>
@@ -745,6 +716,35 @@ Znaki - последователи русской школы рока - из н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C37275EF716A5F93A6DAFDE64E8246AB435544AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473705   (1013528) от 30.05.2021
+
+Барто - Избрань (2021) [MP3|320 Kbps] <Electroclash, ElectroPunk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Готов [00:04:39]
+02 - 90-ые [00:02:45]
+03 - НННН [00:04:53]
+04 - Танцпол [00:02:35](   Читать дальше...   )Жанр: Electroclash, ElectroPunkПродолжительность: 01:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D10417950AA797B53E8230EDC4228B7065AB2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

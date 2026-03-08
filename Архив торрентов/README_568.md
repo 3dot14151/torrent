@@ -1,3 +1,32 @@
+###  Публикация: 755470   (928432) от 10.02.2014
+
+2nu - Ponderous (1991) [FLAC|image + .cue]<Pop Rock, Spoken Word, Reggae-Pop, Synth-pop, Experimental, Latin Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  This Is Ponderous   (3:37)
+02.  I Like That   (3:10)
+03.  Why.   (3:55)
+04.  Count 'Em Up Queek   (3:32)(   Читать дальше...   )Жанр: Pop Rock, Spoken Word, Reggae-Pop, Synth-pop, Experimental, Latin JazzПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FAB2036005D3C3EAD58F7D2C5267969E51BBD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094537   (928417) от 18.01.2017
 
 Новая эра Z / The Girl with All the Gifts (2016) HDRip
@@ -674,32 +703,6 @@ Graphic Styles  содержит набор высококачественных
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A8E4CF6EA8EE3829890B0ED5D17661A76BDFD31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987048   (927858) от 16.02.2016
-
-Футбол. Чемпионат Англии 2015-2016. 26 тур. Обзор матчей. (15.02.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей очередного тура.Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90625ED7930A286E8E3D4347B1E21265942D714E
 ```
 
 https://mybot314.ru/tekegram_catalog/

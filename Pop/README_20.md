@@ -1,3 +1,61 @@
+###  Публикация: 1461749   (1021608) от 11.04.2021
+
+Балаган Лимитед - Сто на двоих (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to Russia (3:12)
+02. Кто бы мог подумать (3:08)
+03. Ой, да (2:51)
+04. День рождения (3:23)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D16CF3B0DDCB51376275C66A84CE2BC68C9E25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461752   (1021599) от 11.04.2021
+
+VA - Venti Compilation 6 (2020) 2CD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco, Hi-NRG, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primadonna - Pretty Face (6:49)
+02. Brian Ice - Fly With Me (6:21)
+03. Sauvage - Just Like Heaven (6:14)
+04. Caglioni - Star (Remix) (6:20)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, SynthpopПродолжительность: 02:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B56EA9905F07A105C05BCFE65BD05BDB3C05636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462163   (1021324) от 13.04.2021
 
 гр. Тяни-толкай - 3000 шагов. Баллады (2005) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -687,64 +745,6 @@ VA - MMA Workout 2021 [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDC07920C00A8E74920CA36CDA14587FD712F5CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463732   (1020303) от 19.04.2021
-
-Soulya ID - Only One We're Need Is Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:43)
-02. Vampirella's Song (Remastered) (5:27)
-03. Everybody (Remastered) (5:19)
-04. When I'll See The Sea (Mix 2021) (4:25)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701955253C318DEEB5746066087F01407C99E73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463685   (1020294) от 19.04.2021
-
-Barbados Climax - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянская диско-группа во главе с продюсером - аранжировщиком и автором песен Джанкарло Тромбетти. Выпустили два этих альбома.01. California U.S.A. (8:25)
-02. Making Love With You (5:00)
-03. Samos (3:37)
-04. Las Vegas Climax (8:46)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DEF793A0D9A56CD7AC6DEBFAF36F4C6B01979E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

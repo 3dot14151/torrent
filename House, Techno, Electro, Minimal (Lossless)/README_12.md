@@ -1,3 +1,90 @@
+###  Публикация: 1368701   (907425) от 21.03.2020
+
+Dani Corbalan - Best of . 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907425.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Redemption (Radio Edit) (3:26)
+2. In Love (Radio Edit) (2:59)
+3. Back to Love (Radio Edit) (2:49)
+4. Ankara (Radio Edit) (3:20)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:04:1
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62F0B7390898D289956E91508DAF36740148C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368036   (907214) от 21.03.2020
+
+Sofi Tukker - Treehouse (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Indie Pop, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuck They (03:04)
+02. Energia (03:07)
+03. Benadryl (03:16)
+04. Batshit (03:23)(   Читать дальше...   )Жанр: Dance-pop, Indie Pop, HouseПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD883951A096EDD1509ACCF8A10B6E74938F521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261397   (906929) от 27.08.2021
+
+HVL | Kaiji | Kiyadama - Discography 23 Releases (2013-2021) Rough House Rosie [FLAC|Lossless|tracks] <Electro, Techno, IDM, Acid, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myriads Of Beings (04:21)
+ 02. Feb Summer Song (05:31)
+ 03. Decasid (05:11)
+ 04. ჭოლევი (04:19)(   Читать дальше...   )Тип издания: Web, VinylЖанр: Electro, Techno, IDM, Acid, Ambient •Продолжительность: 15:27:26 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FA8D8C64CB3D80EAA601044B4E580E679DCB58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289686   (906872) от 07.02.2011
 
 VA - Космонавт и Спутники - Наверх (2010) [FLAC|Lossless]<Progressive House, Progressive Breaks>
@@ -655,92 +742,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:274E15DF66F2A8D0BC7EBA240918BAC9CBBD0E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280023   (888786) от 07.09.2021
-
-John Beltran (Placid Angles, Nostalgic) - Discography 43 Releases (1995-2021) Delsin, Ubiquity [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, IDM, Detroit Techno, Future Jazz, Leftfield>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Placid Angles (06:35)
- 02. Detroit Moments (01:57)
- 03. Going Home (06:00)Тип издания: CD, Web, VinylЖанр: Techno, Ambient, IDM, Detroit Techno, Future Jazz, Leftfield •Продолжительность: 27:17:43 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A2B5014659680DB73884D9F042B2F7EB006AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103025   (887894) от 11.02.2017
-
-VA - Cr2 Live & Direct Presents: Secondcity (2017) [FLAC|Lossless|Web-DL|tracks+image] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secondcity & Solarris – Pensive (Dub Mix) (5:59)
-02. Citizenn – Be (Ralph Lawson Dub) (7:34)
-03. Secondcity – 87 Terrace Tech (6:17)
-04. Roberto Apodaca & Le Disxco – T**t Lickin (Samu L Remix) (7:36)(   Читать дальше...   )Производство: CR2 - ITC 2DI209Жанр: Deep HouseПродолжительность: 03:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2930D2EFA84D0320401E43D6A1BAE1C0784BF353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103030   (887336) от 11.02.2017
-
-VA - The Best Of 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medway - Trauma (Donatello remix) [06:41]
-02. Imran Khan - Buenos Aires (original mix) [08:42]
-03. DP-6 - Reload (Rick Pier O'Neil remix) [06:35]
-04. Alfonso Muchacho - Until The End (original mix) [09:34](   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 07:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19783AF607372BE7869BC5AEBE806C25F67F8184
 ```
 
 https://mybot314.ru/tekegram_catalog/

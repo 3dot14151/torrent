@@ -1,3 +1,32 @@
+###  Публикация: 1377286   (853663) от 21.04.2020
+
+VA - Workout in Da House (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anderblast - Systema
+02. Anderblast and Dark Drake - Elements
+03. Anderblast and Nari and Milani - Fire
+04. Anderblast - Proton(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E729A839911B1BEB724ED801DE5C8238AD6FF21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498720   (852424) от 29.09.2021
 
 VA - House vs. Deep House Show Love (2021) [MP3|320 Kbps] <House, Deep House, TechHouse>
@@ -716,35 +745,6 @@ Moby - Suara Remixes (2017) [MP3|320 Kbps] <Techno, Deep House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36AEDF228A52E063F9C2C9B49C7CDCC166AE394D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003162   (843571) от 03.04.2016
-
-VA - 5 Years With Macarize (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Thomas Feijk - Hi (Original Mix) 08:30
-02 Hazem Beltagui - She Came (Terry Da Libra Remix) 08:26
-03 Atlantis Ocean - Fuji (Original Mix) 07:15
-04 Labtracks - Robotic Love (Lenno Remix) 04:27(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE4668A1C63600DB04A288FE51860C216E6108D
 ```
 
 https://mybot314.ru/tekegram_catalog/

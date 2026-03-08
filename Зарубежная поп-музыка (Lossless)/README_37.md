@@ -1,3 +1,32 @@
+###  Публикация: 1030414   (674568) от 30.06.2016
+
+VA - Pavarotti & Friends For War Child (1996) [APE|Lossless|image + .cue] <Rock, Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Clapton • Luciano Pavarotti • East London Gospel Choir - Holy Mother
+02. Joan Osborne - Saint Teresa
+03. Elton John - I Guess That's What They Call It The Blues
+04. Liza Minnelli • Luciano Pavarotti - New York, New York(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5D6052E08ED67CBFED7A2CD8542AD3B58D6642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030213   (674567) от 30.06.2016
 
 VA - Ultimate... Christmas (2015) Box Set, 4CD  [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Soul, Disco>
@@ -713,35 +742,6 @@ VA - Radio Italia - Summer Hits (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81BA1D1A178A5486C039544D84BDA73AE9587705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224128   (668106) от 08.05.2018
-
-West End Players and Singers - Highlights from Grease (2000) [FLAC|Lossless|image + .cue] <Musical, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Grease
-02.	Summer Nights
-03.	Hopelessly Devoted To You
-04.	You're The One That I Want(   Читать дальше...   )Жанр: Musical, PopПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD52C0EEA786807C365E7A9FCC0D6A6ABE8F896
 ```
 
 https://mybot314.ru/tekegram_catalog/

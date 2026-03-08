@@ -1,3 +1,177 @@
+###  Публикация: 1384314   (804269) от 19.05.2020
+
+VA - Beatport Progressive House: Electro Sound Pack #86 (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Sobrino - Dark Brain
+02. Alfoa - A New Life (Original Mix)
+03. Jonnas B - Ancestral
+04. Chris Burke - Keygen(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 07:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339A07EBE8C78F3ACFE435A967C4A507608517E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384069   (804159) от 19.05.2020
+
+VA - Live Sounds Of Blues (2020) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walter Trout & The Radicals - Say Goodbye To The Blues
+02. Taj Mahal - Coconut Man (Live)
+03. Tedeschi Trucks Band - Made Up Mind
+04. Jimmie Vaughan - Scratch My Back(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 24:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0E52CFB99AEC3358901EFB57E4355DFDA0E1E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010266   (804083) от 24.04.2016
+
+VA - Running Trax 5k & 10k - Ministry of Sound (2016) [MP3|256 кб/с] <House, Techno, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Running Trax 5k & 10k (Warm Up Mix) 09:10
+02. Various Artists - Running Trax 5k & 10k (Cool Down Mix) 10:48
+03. Various Artists - Running Trax 5k & 10k (5k Mix) 35:02
+04. Various Artists - Running Trax 5k & 10k (10k Mix) 65:04(   Читать дальше...   )Жанр: House, Techno, DanceПродолжительность: 04:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6991AA23F563FBC726132ABF81F3D4730092F834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384306   (804047) от 19.05.2020
+
+VA - Relaxing Piano: Neo Classical Collection (2020) [MP3|320 Kbps] <Piano Instrumental, Neo Classic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804047.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Christian Reindl - Northern Lights (2:52)
+2. Annie Warden - Sad Music (2:54)
+3. Annie Lennox - Papilio Machaon (8:57)
+4. Bruce Brubaker - Riley (4:51)(   Читать дальше...   )Жанр: Piano Instrumental, Neo ClassicПродолжительность: 05:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20A1598C2D9159F5977BA13BB6D9C5AA8C9B985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384027   (804044) от 19.05.2020
+
+VA - Hit Music (лето 2020) от Мяу (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804044.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Doja Cat feat. Nicki Minaj - Say So
+002. KSHMR, Sak Noel feat. TxTHEWAY - Bruk It Down
+003. DaBro - Юность
+004. Little Big - Hypnodancer(   Читать дальше...   )Жанр: PopПродолжительность: 07:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E408C80A5BB999EBE6576195FC35A8F64AC8C74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010328   (803957) от 24.04.2016
+
+VA - 100% Автохит (2016) [MP3|256 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R3hab & Kshmr - Strong
+02. Dr.Kucho Vs. Gregor Salto Vs. Lucas & Steve - Love Is My Game
+03. Anna Naklab & Younotus & Alle Farben - Supergirl
+04. Andreea D - Paradise(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1FD16E1ED22CC49A87EC106F1927332FEB67AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120241   (803656) от 30.03.2017
 
 VA - Finding Around Blessing (Energy Tech Trance) 003 (2017) [MP3|320 Kbps] <Trance, Stadium Trance, Melodic, Energy, Tech-Trance>
@@ -572,180 +746,6 @@ VA - Synth of Waves 7 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34B10DD881C4C5E21288781059AC8AC6734F7F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505577   (802743) от 28.10.2021
-
-VA - The Delicate Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802743.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Darren Studholme - Pieces
-002. Juno Valdez - This Is Your Life
-003. Alex Poet feat. Michelle Weeks - Where Do I Begin
-004. Rony Seikaly - Frontin'(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3248BA494717F50B779F3EF74729CC38F62A352A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505465   (802739) от 28.10.2021
-
-VA - Music News vol.144 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Елена Бергер - Я Не Вернусь (03:51)
- 02. Alfons feat. B3nte & Jessica Chertock & B3va - Puppeteer (02:33)
- 03. A-Mase feat. Sharliz - I Never Felt So Right (03:31)
- 04. Besomage feat. Antomage & Bromage - Thank You (02:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48973F017C09C558A160953D8DE9872BD78515D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505541   (802729) от 28.10.2021
-
-VA - Agoraphobia: Techno Electronic Party (2021) [MP3|320 Kbps] <Techno, Electronic, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802729.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Serenace - Reflex Dub
-002. Rewach - Tronic
-003. Fruhwerk - Walking Robot
-004. Oscar Sanchez - Gumede(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 11:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FA10F75F0074BD1969C85E0A65E8C73E11257E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384419   (802655) от 20.05.2020
-
-VA - Hot New Rock (2020) [MP3|320 Kbps] <Dance, Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pretty Reckless - Death By Rock And Roll
-02. Grey Daze - Soul Song
-03. Biffy Clyro - Tiny Indoor Fireworks
-04. Frank Carter & The Rattlesnakes - Bleed(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 03:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4381524BB0A2BBA58B4975AF85315B11457C83C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384371   (802643) от 20.05.2020
-
-VA - Acoustic Covers (2020) [MP3|320 Kbps] <Pop, Rock, Acoustic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passenger - Dancing in the Dark (Recorded At Deezer, Sao Paulo)
-02. José González - Heartbeats
-03. Birdy - Skinny Love
-04. Isaac Gracie - you Only Live Once(   Читать дальше...   )Жанр: Pop, Rock, AcousticПродолжительность: 03:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF871A41C1A604D1B68CF4BC0B68052A77560CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505778   (802487) от 28.10.2021
-
-VA - Deep House, Baby 2 (2021) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Forsberg - I Labyrintens Mitt. (8:04)
-02. Dellmon West.K - You39ll Find Me (Deepjack Mr.Nu Remix) (7:47)
-03. Cut - Out of Touch (Deepness Feat. Enzo Paradiso Remix) (7:18)
-04. Paul Diep - Like Jewerly (HIGHLITE Remix) (7:05)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758F36B609A9BCA88AF8CA746D3670664DCD3D71
 ```
 
 https://mybot314.ru/tekegram_catalog/

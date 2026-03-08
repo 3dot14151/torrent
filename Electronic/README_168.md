@@ -1,3 +1,61 @@
+###  Публикация: 1215783   (756509) от 27.03.2018
+
+VA - A State Of Trance Episode 850 – Ultra Music Festival, Miami (2018) [MP3|~256 - 320 Kbps] <Trance,Progressive Trance,House,Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fernando Olaya – Coffee With U (Pacco & Rudy B Remix)
+02. A.M.R. – Uncharted
+03. Hello Machines – Air
+04. Quivver – A Higher State(   Читать дальше...   )Жанр: Trance,Progressive Trance,House,Progressive HouseПродолжительность: 11:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC62BB2CA62B7CB506E1D917A514038B5D7B6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215644   (756478) от 27.03.2018
+
+DJ Krush - Cosmic Yard (2018) Es.U.Es Corporation [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Breakbeat, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Regulus (03:49)
+02. Stellar Wind (03:21)
+03. Divine Protection (feat. 渥美幸裕) (04:18)
+04. Asterism (Interlude) (01:37)(   Читать дальше...   )Жанр: Downtempo, Breakbeat, Trip HopПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CAB3F06285BA56ED1E64A19C310835E79B5DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 799788   (756446) от 27.03.2018
 
 First Rebirth - Discography 4 Releases (2009-2017) [FLAC|Lossless|WEB-DL]<Downtempo, IDM, Trip Hop, Experimental, Leftfield, Dark Ambient>
@@ -685,64 +743,6 @@ VA - Ibiza Beats Series: Sunset Chill & Beach Lounge - 13 Releases (2007-2020) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7D86D004626745BEAD3DE6AA5A307450FB9DB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523164   (753291) от 10.01.2022
-
-VA - Future Trance - Best Of 25 Years (2022) [MP3|320 Kbps] <Trance, Progressive, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753291.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scooter - The Logical Song (3:53)
-002. Groove Coverage - God Is A Girl (Radio Edit) (3:38)
-003. ATB - Don't Stop! (Airplay Edit) (3:46)
-004. Sylver - Turn The Tide (Radio Edit) (4:04)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 05:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC9F7B8F7B28D813C37480EE449DCF63D940CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523101   (753150) от 10.01.2022
-
-VA - Dream Dance Vol 92 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Dance Alliance - Hypnotized (Extended) (5:38)
-02. Armin van Buuren & Davina Michelle - Hold On (Extended Club Mix) (6:14)
-03. ATB feat. Ben Samama - Like That (Extended Mix) (3:49)
-04. Chicane - Now Or Never (Extended Mix) (5:01)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1368BC5322EBA0BDAE32F98C039C02E0FF56D30C
 ```
 
 https://mybot314.ru/tekegram_catalog/

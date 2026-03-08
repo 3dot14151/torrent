@@ -1,29 +1,3 @@
-###  Публикация: 1381881   (824113) от 08.05.2020
-
-IObit Driver Booster Pro 7.4.0.730 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9ED648D0B26FA112088E925977A902F6EA0C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381807   (824108) от 08.05.2020
 
 Google Earth Pro 7.3.3.7699 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -680,6 +654,32 @@ Screwrot - Gastrointestinal Souvenirs (2013) [MP3|320 кб/с]<Slamming Brutal D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADDA49F354E478066A568F68102F8E2359F2DEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 196889   (823754) от 29.04.2010
+
+Oliver V pres. Ambra - New York Rainy Afternoon (2010) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:15:16
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

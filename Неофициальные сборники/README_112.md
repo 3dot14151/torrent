@@ -1,3 +1,177 @@
+###  Публикация: 1104174   (879503) от 15.02.2017
+
+VA - Музыка для вашего Авто (2017) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879503.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Charlie Puth feat. Selena Gomez - We Don't Talk Anymore (Manuel Alvarez Bootleg) 4:46
+002. Rockstroh feat. Tonberg - Weil Ich Das Leben Mag (Club Radio Mix) 2:53
+003. Sam Feldt  Deepend feat. Teemu - Runaways (Jay Hardway Remix Edit) 3:00
+004. Maroon 5 Ft. Kendrick Lamar - Don't Wanna Know (Dark Intensity Remix) 4:28(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 06:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8132414EA5121E877ED445D8701B8B2B220537B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996746   (879406) от 14.03.2016
+
+VA - Returned Trance Around The World (2016) [MP3|320 кб/с] <Trance, Energy, Harmonic, Emotional, Melodic, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879406.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Super8 & Tab feat. Julie Thompson - Patience (Club Mix) 05:34
+002. Sylvermay - Prometheus (Original Mix) 06:57
+003. Sunlounger - Sunkissed (Roger Shah Rework) 05:02
+004. Upfly & Stellarium - Noah's Ark (Original Mix) 06:46(   Читать дальше...   )Жанр: Trance, Energy, Harmonic, Emotional, Melodic, ProgressiveПродолжительность: 16:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882AD610081FB47329C47AE141229240BD9156FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996310   (879400) от 14.03.2016
+
+VA - Оп-оп... Послушай поп (2015) MP3 (2015) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lx24 - Сегодня Пьяным Буду Вновь
+02. Mario Jefferson Feat. Jojo - Disaster
+03. Mark Sixma - Adagio For Str0ngs
+04. Master Spensor & Leila - Сила Любви(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D09552AA1499FFC5E54224B7365A05B90D2F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104001   (879377) от 15.02.2017
+
+VA - The Best Of Trance 52 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harmonic, Emotional, Energy, Euphoric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Allen Watts & Jak Aggas - Spitfire (Original Mix)  6:37
+02.  Estigma - Artemis (Allen & Envy Remix)  7:17
+03.  Allen Watts & Amir Hussain - Parallax (Original Mix)  6:58
+04.  Fresh Code - Supernova (Original Mix)  6:20(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Harmonic, Emotional, Energy, EuphoricПродолжительность: 02:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9063B0203ED7AF4FF8C5005D5953A8BF6B4D57A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996711   (879290) от 14.03.2016
+
+Пики Козыри - Лом, Чума, Америка (1995) [MP3|320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879290.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Соня-Сонечка - 03:39
+2. Плюс электрификация - 03;38
+3. Ча-Ча-Ча (Колымское рэгги) - 03:50
+4. Пятый пункт -03:53(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAD5C6E5B4C601A48D35DCDF8E2470F96272379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996496   (879288) от 14.03.2016
+
+Андрей Вох - Чё дают? (1987) [MP3|320 кб/с] <Шансон, Авторская и Военная песня (сборники)>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление
+02. Письмо проститутки в журнал Огонек (Не ради шутки)
+03. Старый дом
+04. Банда самосовцев(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C52CFB49F0A252A615595F413C6476B192D34EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996525   (879284) от 14.03.2016
 
 VA - Top 100 Workout 2 (2016) [MP3|128-320 кб/с] <House, Tech House, Deep House, Electronic, Progressive>
@@ -566,180 +740,6 @@ VA - Big Room Dance House (2017) [MP3|320 Kbps] <Electro, Dance House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5F3E44DD78EB18CBC50E4D6496DB4608E3742CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104439   (878223) от 16.02.2017
-
-VA - Ресторан Кураж для друзей. Сборник № 4 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878223.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Артур Гари - Не Спеши Сказать Прощай 3:19
-002. Александр Ром - Любимая Желанная 3:21
-003. Владимир Ждамиров - Скажи Зачем 4:59
-004. Оксана Иванова - Фортуна 3:28(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D0E5F5C79C1CD9835CCAA31858B7D658F9885D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104456   (878218) от 16.02.2017
-
-VA - Blueas About It  (2017) [MP3|256-320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. BRUCE SPRINGSTEEN - Badlands 4:03
-002. Ana Popovic - Waiting on You (Double-Time Swing) 3:58
-003. Ana Popovic - Who’s Yo' Mama 3:16
-004. Cliff Stevens - If I Didn't Love You 3:51(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 10:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B5F581CE28BE9EA46450BEFF2B966982ABE843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104443   (878215) от 16.02.2017
-
-VA - Русский шансон лучший (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878215.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алена Скок - Лед На Реке 4:35
-002. Александр Корецкий - Осколки Счастья 4:08
-003. Александр Бычков - Ясноглазая 3:27
-004. Александр Дадали - Я Здесь Один Я Против Всех 4:53(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531F23DB5869C866F4E03040633FD6C2F19105F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104550   (878208) от 16.02.2017
-
-VA - Astral Trance Challenger Vocals (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, Euphoric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chris Schweizer - Era (Original Mix)  5:15
-02.  Allen & Envy ft. Gemma Pavlovic - Heaven Won't Wait (Eximinds Remix)  4:44
-03.  Filo & Peri ft. Aruna - Ashley (Maria Healy Remix)  7:48
-04.  Eximinds & Vigel - Handprint (Original Mix)  5:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, EuphoricПродолжительность: 09:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6F56D9C7D1ABA0C7316B04AAE54D8F58E5FB3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104799   (878109) от 16.02.2017
-
-VA - Absolute Acoustic (2017) [MP3|320 Kbps] <Acoustic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind In Sails – If You Ever Want To Be In Love
- 02. Chase Your Words – Sorry I’m Late
- 03. Subtube – Cheap Thrills (Acoustic Guitar)
- 04. Faber Drive – We 3 Kings(   Читать дальше...   )Жанр: AcousticПродолжительность: 01:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B29B0B8E81FE1A878C2DDF19FC645F01CABACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104183   (878018) от 16.02.2017
-
-VA - Территоря Нежности. Медляки Для Влюблённых (2017) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878018.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3 Doors Down - Here Without You 3:56
-002. Adriano Celentano - Confessa 5:15
-003. Adriano Celentano - Il Tempo Se Ne Va 3:57
-004. All-4-One - I Swear 4:20(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E9F7C52BA374B53801597CF17C4EA7A5C41281
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1208142   (780104) от 21.02.2018
-
-Dizzy Reed - Rock 'N Roll Ain't Easy (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  This Don't Look Like Vegas (4:02)
-02.  Mother Theresa (4:45)
-03.  Cheers 2 R Oblivion (3:56)
-04.  Fragile Water (4:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5585A27B301A004433FA00C704FCFC29FE864FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208182   (780076) от 21.02.2018
 
 Stefan Kaiser - Dreaming in Pink Floyd (2018) [MP3|320 Kbps] <Progressive Rock>
@@ -743,6 +714,35 @@ Patrick Rondat - On The Edge (1999) [APE|Lossless|image + .cue] <Neoclassical Sh
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:768F573F64FEB7F70CAC613E0C3E9B2ADD591F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209226   (779395) от 26.02.2018
+
+The Monochrome Set - Maisieworld (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Me Your Youth (03:32)
+02. Stage Fright (04:04)
+03. I Feel Fine (Really) (02:52)
+04. Cyber Son (03:39)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F973516D9D09F668D9275071D93420E875525571
 ```
 
 https://mybot314.ru/tekegram_catalog/

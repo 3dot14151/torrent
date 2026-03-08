@@ -1,3 +1,61 @@
+###  Публикация: 960823   (303087) от 30.11.2015
+
+Fancy - Greatest Hits (2004) [FLAC|image + .cue]<Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragostea Din Tei [03:32]
+02. A Voice In The Dark [04:00]
+03. Fools Cry [03:15]
+04. Pretty Woman [02:54](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24B0D89A68E25F8F89D52EA2AA8E06BA3EF68C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184119   (302730) от 16.11.2017
+
+Григорий Лепс - ТыЧегоТакойСерьёзный (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302730.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.ТыЧегоТакойСерьёзный (feat. Тимати)
+2.Самолёты, поезда или машины (feat. Артём Лоик)
+3.Время
+4.Без тебя(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92445C57B1D9C2736AF57F64DE95821C573CBCF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078153   (302423) от 30.11.2016
 
 VA - Nostalgie Disco Fever: Les 50 Plus Grands Titres Disco-Funk ! (2016) [MP3|320 Kbps] <Pop>
@@ -687,64 +745,6 @@ VA - Ballermann Apres Ski Megamix 2020 (2019) [MP3|320 Kbps] <Pop, Schlager>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26B3F19B77642FE35D01CB6B67109C188753CC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333632   (298942) от 27.10.2019
-
-Ильин - Романсы. EP (2019) [MP3|320 Kbps] <Singer-Songwriter/Romance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Метели
-02. Весна
-03. Свет
-04. ПраздникЖанр: Singer-Songwriter/RomanceПродолжительность: 00:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1CB4DACA62D61E3F9EC6EDD1B8A92319DCC9AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334047   (298862) от 27.10.2019
-
-Авраам Руссо - Далеко-далеко (2002) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Далеко-далеко [04:26]
-02. Тамбалай [03:59]
-03. Нежные слова [04:19]
-04. Пропащие денежки [03:33](   Читать дальше...   )Жанр: PopПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C22A4F5B2C6003994054C117171406B5AEA4A9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

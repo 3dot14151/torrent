@@ -1,3 +1,61 @@
+###  Публикация: 1004272   (839754) от 05.04.2016
+
+Zodiac - Zodiac (1998) [MP3|320 кб/с] <Electronic, Euro House, Happy Hardcore>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Again    03:39
+02. Every Time I See You    03:06
+03. Make Believe    03:56
+04. All The Things You Do    03:33(   Читать дальше...   )Жанр: Electronic, Euro House, Happy HardcoreПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE88FCA3C9C984D2CF9224469D242FDCDD32EB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995107   (839619) от 05.04.2016
+
+VA - DJ Collection 7 (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T-Spoon – Sex On The Beach (3:44)
+02. Robin Cook & Bluedream – Comanchero (3:33)
+03. Los Umbrellos – No Tengo Dinero (3:37)
+04. Touché – I Can't Get No Sleep (3:56)(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EB24B97CF1C33077EC3E513044CE91C9B0ADF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 879073   (838832) от 17.03.2015
 
 Arabesque - Complete Box (2015) 10CD /Japan/ [FLAC|Lossless]<Disco>
@@ -683,61 +741,6 @@ Bad Boys Blue - MP3 Play (2015) [MP3|320 Kbps] <Disco, EuroDisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85AB8E50783869D43944005AC0CA00E9DEA99405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501297   (836283) от 09.10.2021
-
-Zivert - Vinyl #2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Рокки
-2. CRY
-3. DEL MAR
-4. Тебе(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC14D9C2C4F1936E30826A82897667411714141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501495   (835205) от 10.10.2021
-
-VA - DJ Beats Chart 94 (2021) [MP3|320 Kbps] <Pop, Dance, Dubstep, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris feat. Tom Grennan - By Your SideЖанр: Pop, Dance, Dubstep, DiscoПродолжительность: 00:36:05 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2D19E4CAFB598BB29722C66653B5E88C5A3230
 ```
 
 https://mybot314.ru/tekegram_catalog/

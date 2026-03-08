@@ -1,3 +1,61 @@
+###  Публикация: 1745086   (105171) от 24.08.2024
+
+Екатерина Яшникова - Кончается лето (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105171.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Завтра
+2. В танце
+3. История
+4. Мелочи(   Читать дальше...   )Жанр: PopПродолжительность: 00:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F9EB2032DFEA5DC2496C6AB2DF230F59A34E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745301   (105131) от 25.08.2024
+
+Vanessa Williams - Survivor (2024) [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. iLike Moonlight [00:04:17]
+02. Legs (Keep Dancing) [00:03:07]
+03. BOP! [00:03:26]
+04. Survivor [00:03:28](   Читать дальше...   )Жанр: R'n'B, PopПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EBEC8A7D86E5208ABC667E2D83718527B5C1036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745326   (105099) от 25.08.2024
 
 Kendji Girac - Kendji (2014) Limited Edition, 2024, Universal Music Division [FLAC|Lossless|WEB-DL|tracks] <Latin, Pop>
@@ -687,64 +745,6 @@ VA - DJ Hits 350 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodanc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30236D3C29FC1C8E449B894745DFFB9E715F452B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747872   (104612) от 07.09.2024
-
-VA - DJ Vol 351 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MC Rage - Fuck Macarena (Radio Mix)
-02. Tori Amos - Professional Widow (7'' Mix)
-03. Alexia - Numberone (Euro Mix)
-04. Le Click feat. Kayo & Robet - Tonight Is The Night (Spring '97 Remix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68662BCBB6324715A35B4C37895FFEE6529BF8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748075   (104596) от 08.09.2024
-
-VA - The Sound Of Summer 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduza - Fire (Official UEFA EURO 2024 Song) (2:48)
-02. Fast Boy - Electricity (2:40)
-03. Asdis - Flashback (2:49)
-04. ClockClock - Love U Again (2:46)(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94FFBF59489E986B4AC2FA6435F9411DBDE02622
 ```
 
 https://mybot314.ru/tekegram_catalog/

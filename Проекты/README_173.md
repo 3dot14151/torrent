@@ -1,29 +1,3 @@
-###  Публикация: 1037201   (615381) от 23.07.2016
-
-Проекты - VideoBlocks - Thriller [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект в стиле "Horror", для создания промо-ролика, или начального видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01EAFDFE74E8B6B4BB02E7A36A77F0E6A525969E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230445   (615325) от 12.06.2018
 
 Проекты - VideoHive - Shadows of Memories Album Slideshow - 21375400 [AEP]
@@ -678,6 +652,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22FDF19F5297B03C6C974BD5685CB70F00E8BD2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146830   (612530) от 30.06.2017
+
+Проекты - VideoHive - Space Logo Reveal - 14951556 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Space Logo Reveal - красивая, простая в использовании, фотореалистичная демонстрация вашего логотипа. Хорошо подходит в качестве вступительного ролика при создании видео для компаний, работающих в области науки, экологии, телевещания, мобильной связи.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA49A0C4D68AD0CD7765A5ACCE6FBB5EF7D4351C
 ```
 
 https://mybot314.ru/tekegram_catalog/

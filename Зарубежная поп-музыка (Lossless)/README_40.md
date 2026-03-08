@@ -1,3 +1,32 @@
+###  Публикация: 905846   (641520) от 10.06.2015
+
+Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delilah
+02. Help Yourself
+03. She's A Lady
+04. What's New Pussycat(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F6BAAF62C249BD93E450365DE54E004D516E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906976   (641476) от 10.06.2015
 
 Rick Astley - The Best Of (2014) [FLAC|Lossless]<Pop>
@@ -719,35 +748,6 @@ All Time Low - Last Young Renegade (2017) [FLAC|Lossless|tracks + .cue] <Pop Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C83138A56D51917A057A4B79C6F10E732660A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144390   (627234) от 22.06.2017
-
-Katy Perry - Witness (Japanese Deluxe Edition) (2017) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Witness (4:11)
-02. Hey Hey Hey (3:35)
-03. Roulette (3:19)
-04. Swish Swish (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210857D1A52F8811311A78CD4D768B9360958440
 ```
 
 https://mybot314.ru/tekegram_catalog/

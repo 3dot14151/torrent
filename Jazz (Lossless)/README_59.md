@@ -1,3 +1,32 @@
+###  Публикация: 1115280   (826774) от 18.03.2017
+
+Houston Person - Broken Windows, Empty Hallways (1972) 2004, Prestige [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Think It's Going To Rain Today [06:13]
+ 02.Don't Mess With Bill [03:12]
+ 03.Everything's Alright [04:31]
+ 04.Mr. Bojangles [04:07](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2858C4D02BB4D6E95FCBF3952304D7B39CDD4E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115380   (826773) от 18.03.2017
 
 Carolyn Leonhart - Steal The Moon (2000) Sunnyside Communications [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Nathalie Soles - Deeper (2007) Milan [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0C6657C64101301BC0343E249EBAC25D956064B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116174   (824779) от 19.03.2017
-
-Richard Galliano - New Jazz Musette (2017) 2CD [FLAC|Lossless|WEB-DL|tracks] <Jazz, Accordion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. A French Touch
-02. Billie
-03. Coloriage(   Читать дальше...   )Жанр: Jazz, Accordion |Продолжительность: 01:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49D05B947200904B8004994F945EDB78ABC5EBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

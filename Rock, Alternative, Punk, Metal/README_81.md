@@ -1,32 +1,3 @@
-###  Публикация: 1453964   (1026598) от 13.03.2021
-
-Линда - Skop-Пионы (2008) [FLAC|Lossless|tracks + .cue]<Alternative Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skop-Пионы
-02. Пять минут
-03. Охота на ...
-04. Меланхолия(   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300F3FED7EEE7936A316E4D6D08BC7E1AE0D1BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454081   (1026582) от 13.03.2021
 
 Issa - Queen of Broken Hearts (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Melodic Hard Rock,Female Vocals>
@@ -742,6 +713,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45E6E220B71A92D96F571565639B971942166164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454343   (1026250) от 15.03.2021
+
+Sunstorm - Afterlife (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Afterlife [00:04:00]
+02 - One Step Closer [00:03:54]
+03 - Swan Song [00:05:14]
+04 - Born Again [00:04:20](   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23766AAC470A0B74C6A4DEBAE3762D3BE3A42416
 ```
 
 https://mybot314.ru/tekegram_catalog/

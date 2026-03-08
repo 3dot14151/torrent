@@ -1,3 +1,90 @@
+###  Публикация: 1568651   (459946) от 09.08.2022
+
+April Weeps - Comma (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Death Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Palingenesis
+02. Unreachable Gratification
+03. Terminal Rumination of a Broken Soul
+04. A Way of Mind(   Читать дальше...   )Жанр: Symphonic, Death Metal, Gothic MetalПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8190E85E82378D4D97F0E9E4CEB06F69587DFF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568652   (459944) от 09.08.2022
+
+Sadist - Hyaena (2015) Digipak [FLAC|Lossless|image + .cue] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459944.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	The Lonely Mountain
+2.	Pachycrocuta
+3.	Bouki
+4.	The Devil Riding the Evil Steed(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8552317C9203568319A4A94364A9EF16B58B325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568628   (459941) от 09.08.2022
+
+Sadist - Firescorched (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal, Progressive Metal, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Accabadora
+02. Fleshbound
+03. Finger Food
+04. Burial Of A Clown(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Metal, FusionПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430581DF2603CD631A286FA49F13F118610D4843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568655   (459939) от 09.08.2022
 
 April Weeps - Outer Calm, Pain Within (2013) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Death Metal, Gothic Metal>
@@ -657,95 +744,6 @@ David Readman - Medusa (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C23A89081AA157111B7AE668FBC0E84C0309CEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568779   (457919) от 10.08.2022
-
-Black Earth - Path of the Immortal (2019) Compilation [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Burn on the Flame
-2.	The Immortal
-3.	Dead Inside
-4.	Bury Me an Angel(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD767921E3F169A7F4B96AF0EA14A438D99FC991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246937   (457129) от 13.09.2018
-
-Carnation - Chapel Of Abhorrence (2018) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Whisperer
-02.Hellfire
-03.Chapel Of Abhorrence
-04.The Unconquerable Sun(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75BBBB79568405AC3CF88CF7CE22468CBF3939B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247017   (457120) от 13.09.2018
-
-Dream Theater - Live At Budokan (2004) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457120.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. As I Am (7:26)
- 02. This Dying Soul (11:44)
- 03. Beyond This Life (19:37)(   Читать дальше...   )Жанр: Heavy Metal, Prog Rock, Symphonic RockПродолжительность: CD1 - 00:55:29
-CD2 - 00:56:45
-CD3 - 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3AF831B1A79E2682726C791C28508C00ECCA2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

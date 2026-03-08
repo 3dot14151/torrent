@@ -1,3 +1,177 @@
+###  Публикация: 1105320   (876639) от 17.02.2017
+
+VA - Отдыхаем душой на радио Шансон выпуск № 3 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Игорь Крылов - Кабацкий Роман 3:46
+002. Вячеслав Московкин - Что Же Ты Командир 3:02
+003. Алмас Багратиони - Пускай Ты Выпита Другим 3:06
+004. Максим Куст - Банька 3:15(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE03C72971769BFE990BEAC5EDE139DF77FACAA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105347   (876554) от 17.02.2017
+
+VA - Ready Styles Final Songs (2017) [MP3|320 Kbps] <Synthpop, Bigroom, UK Garage, Funk, Trap, Future Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_876554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 unlimited - Get Ready For This (Original 12'' Version) 05:54
+02. Sultan & Shepard X Sak Noel - Samba Sixteen X Trumpets (Dibs & Mgm Edit) (Clean) 04:40
+03. Borgeous X Rvssian & Mri X Sean Paul X 7 Skies & Sissa X Burns - Ride It X Beauty Queen (Dibs & Mgm Edit) (Clean) 03:49
+04. The Chainsmokers F. Xylo X Hall & Rush - Setting Fires (   Читать дальше...   )Жанр: Synthpop, Bigroom, UK Garage, Funk, Trap, Future BassПродолжительность: 05:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2DBD3E04B2C81863B89BBDCA9A958CF38067EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374095   (876489) от 08.04.2020
+
+Eric Clapton - 100% Eric Clapton and... (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Clapton - Cocaine
+02. Cream - Sunshine of Your Love
+03. Eric Clapton - After Midnight
+04. Derek & The Dominos - I Looked Away (40th Anniversary Version / 2010 Remastered)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7988D61C9C50399F595E3678F217D2C400FB5DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373961   (876480) от 08.04.2020
+
+Beth Hart - 100% Beth Hart (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar Shack
+02. Bad Woman Blues
+03. War In My Mind
+04. Caught Out In The Rain(   Читать дальше...   )Жанр: Rock, Blues, Blues RockПродолжительность: 02:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE0CE5AA597BDEB1FF87AF9589C37EEECFBEC03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105663   (876462) от 17.02.2017
+
+VA - Старый дом. Академия хитов шансона (2017) [MP3|256-320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876462.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Трунов - Старый Дом
+002. Марина Вальдман и Александр Адмирал - Диалог
+003. Валерий Курас - Песенка
+004. Александр Заборский - Щелкнули затворы(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0056C10CC87A4494082BE8A86070FE529114FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105625   (876457) от 17.02.2017
+
+VA - Chilltrap Vol. 1 - 7 [Compiled by Zebyte] (2015-2016) [MP3|256-320 Kbps] <Chilltrap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna Yvette - Stars & Moon (Elonious Remix) [03:31]
+02. Disclosure - Help Me Lose My Mind (Mazde Remix) [03:54]
+03. Fademan & Oleg K Feat Lime Kid - Wake Me Up [03:43]
+04. Coeur De Pirate - Wicked Games (Huglife Remix) [03:57](   Читать дальше...   )Жанр: ChilltrapПродолжительность: 14:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2162F9C0CF6556D8FEF1D9E80C2D9A9016DC9169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373957   (876429) от 08.04.2020
 
 Bob Marley - 100% Bob Marley (2020) [MP3|320 Kbps] <Reggae>
@@ -570,180 +744,6 @@ VA -   Kontor Summer Jam (2021) [MP3|320 Kbps] <Dance, Disco, House, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58CB0A8D37246431123161958C5FCF9C958E1EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496157   (874631) от 16.09.2021
-
-VA - Music News vol.132 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merol - Vol (02:42)
- 02. AMMNNEZI - Пьяная Мадам (02:51)
- 03. AMRAX feat. Тестостерович - Курим Кальян (02:39)
- 04. Anette Olzon - Sad Lullaby (05:20)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD14227C242E1D2CD1F9765657D911FAED3FB717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374169   (874565) от 09.04.2020
-
-VA - City Life: Tech House Electro Sound (2020) [MP3|320 Kbps] <Tech, Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Even Midnight - Man O Tu
-02. Trace7000 - Want (Original Mix)
-03. Rafa Alcantara - Continental
-04. Red Led - About You(   Читать дальше...   )Жанр: Tech, Deep House, ElectroПродолжительность: 08:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97D2358A93948EB78139D988DEEE07978E85CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374172   (874437) от 09.04.2020
-
-VA - Beatport Deep House: Electro Sound Pack #49 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874437.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fabrizio Giannone - Lose Control
-002. 2clic & Torsak - Magnolia
-003. Elkka - Breathe
-004. Jay Cee Morgan - En Deux Heures(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4848E77F479026F8570CCC538AE9BF320CC9D19B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374171   (874311) от 09.04.2020
-
-VA - Beatport Synthwave: Electro Sound Pack #52 (2020) [MP3|320 Kbps] <Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Powernerd - Powernerd Anthem
-02. Patten - Night Vision
-03. Analogue-X - Call Your Name
-04. Getevann - I Just Died In Your Arms(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 05:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8049E0ED265C4A8BED19CCB2F5F18387774E54C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374341   (874307) от 09.04.2020
-
-VA - Acoustic Rock vol.1 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Cornell - You Never Knew My Mind (Johnny Cash: Forever Words) (04:56)
-02. Nirvana - About A Girl (03:37)
-03. Oasis - Wonderwall (04:18)
-04. The Verve - The Drugs Don't Work (05:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291E6E5540B3997130829D391DEF216BB747F269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374301   (874295) от 09.04.2020
-
-VA - Monday Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddy Guy; James Bay - Blue No More
-02. Elvis Presley - Heartbreak Hotel
-03. Van Morrison; Joey DeFrancesco - Everyday I Have the Blues
-04. Johnny Winter - Mean Mistreater(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF128BAF32A7707266521368970081651A8383C
 ```
 
 https://mybot314.ru/tekegram_catalog/

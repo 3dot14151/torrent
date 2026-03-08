@@ -1,3 +1,32 @@
+###  Публикация: 1573567   (410550) от 01.09.2022
+
+Hank Jones - Upon Reflection: The Music Of Thad Jones (1993) Verve [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thad's Pad [7:27]
+02. Ah, Henry [8:12]
+03. The Summary [6:01]
+04. Little Rascal on a Rock [6:22](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BD58B670D64AF1D5FA55963F0F80952CA82D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573718   (410399) от 01.09.2022
 
 V.A. - Chilled Jazz (2022) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
@@ -716,35 +745,6 @@ Eric Alexander - Second Impression (2016) HighNote Records[FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:117724B083FA6881BE853E29A6263678B2134BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067099   (408478) от 28.10.2016
-
-Harvie Swartz - In A Different Light (1990) [WavPack|Lossless|image + .cue] <Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408478.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alone Together (11:51)
-2. Gone With The Wind (4:53)
-3. Equilibrium (4:40)
-4. Softly As In A Morning Sunrise (8:32)(   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947A902FA94D8131376BCB9FABE8D7984ABDF2B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

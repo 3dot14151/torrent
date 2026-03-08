@@ -1,3 +1,38 @@
+###  Публикация: 548862   (464679) от 19.09.2012
+
+VA - Зарубежная Дискотека СССР (2012) [MP3|192 кб/с]<Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Radiohead - Creep
+02 Cb Milton - A Real Love
+03 Kaoma - Lambada
+04 Depeche Mode - I Feel Loved
+05 Intrance - Te Quierro Puta (Original Mix)
+06 Ivan - Fotonovella
+07 Whitney Houston - I Learned From The Best
+08 Maxi Priest - Close To You
+09 White Town - Your Woman
+10 Kellee - My Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 08:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A101F32AE4348D160DD9805BA8FFF3D0969B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059254   (464142) от 03.10.2016
 
 VA - Попсовый бум. Часть 9 (2016) [MP3|256 Kbps] <Pop>
@@ -746,35 +781,6 @@ VA - Осенняя позитивная сотка - 3 (2016) [MP3|256 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:507726E6FD76A382E173DB4CCB86D38BBBCB499C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060343   (455297) от 07.10.2016
-
-VA - Попсовая лихорадка осени. Сборник 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455297.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Пономарев - Я Так Хочу
-002. White Sea - Yesterday
-003. Авиатор - По Небу
-004. Sara Hartman - Satellite(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171C0A277E72BB9952FEED3813F35BF6BFC5DC35
 ```
 
 https://mybot314.ru/tekegram_catalog/

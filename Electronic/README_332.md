@@ -1,3 +1,61 @@
+###  Публикация: 1576470   (364034) от 15.09.2022
+
+Neurotech - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Electro, Sympho Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prophetic Symphony [00:10:00]
+02. The Seraphic Symphony [00:10:00]
+03. The Draconic Symphony [00:10:00]
+04. The Messianic Symphony [00:10:00]Жанр: Industrial Electro, Sympho MetalПродолжительность: 2 CD, 01:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2130AA9601004C7210B01E0C0765C2E65A04C773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255622   (363967) от 18.10.2018
+
+VA - Markus Schulz - We Are the Light (2018)(2CD) [FLAC|Lossless|WEB-DL|tracks] <Trance,Downtempo>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz – The Awakening (Original Mix)
+02. Markus Schulz & Omnia & Seri – Road of No Return (Original Mix)
+03. Markus Schulz & Alina Eremia – You Light up the Night (Original Mix)
+04. Markus Schulz – We Are the Light (feat. Nikki Flores) (Original Mix)(   Читать дальше...   )Тип издания: WEBЖанр: Trance,DowntempoПродолжительность: 02:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E445A3396293EB411FAF98A68B97AAFA3DECCBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576365   (363859) от 15.09.2022
 
 Tricky (Adrian Thaws) - 11 Albums (2008-2022) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Abstract Hip-Hop>
@@ -695,64 +753,6 @@ VA - Under The Surface Vol.2 (2016) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A89DB5D41AD30A0BA1E07CE6ABE881E739BC8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071264   (361872) от 09.11.2016
-
-Scheuber - The Me I See (2016) [FLAC|Lossless|tracks + .cue] <Synth-pop, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything (04:12)
-02. Human (04:08)
-03. Out Of Time (04:53)
-04. Averell (03:38)(   Читать дальше...   )Жанр: Synth-pop, DarkwaveПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584185231BD5958CE0B23E184FED45E3275E2378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071266   (361804) от 09.11.2016
-
-Moebius - Mutatis Mundi (2016) [MP3|320 Kbps] <Ambient, Psychill, Atmospheric>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Shift 05:18
- 02. Fractal Earth 05:29
- 03. Dark Wood 06:46
- 04. Quantum Glow 05:02(   Читать дальше...   )Жанр: Ambient, Psychill, AtmosphericПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2F38260E89187BAFEC18F433324227DB56790F
 ```
 
 https://mybot314.ru/tekegram_catalog/

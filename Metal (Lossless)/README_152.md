@@ -1,3 +1,90 @@
+###  Публикация: 1569155   (453825) от 12.08.2022
+
+At the Gates - Slaughter Of The Soul (1995) Full Dynamic Range Remaster, 2018 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blinded by Fear (3:12)
+02. Slaughter of the Soul (3:03)
+03. Cold (3:28)
+04. Under a Serpent Sun (3:59)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8353824F808D9BBC80A7F1FD88D943C3005B6AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569192   (453821) от 12.08.2022
+
+Belphegor - The Devils (2022) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devils (5:30)
+02. Totentanz - Dance Macabre (3:41)
+03. Glorifizierung des Teufels (4:59)
+04. Damnation - Hollensturz (5:22)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BD59BA1ABC91564F86362AE3346A327CD48940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060831   (453704) от 08.10.2016
+
+Norhod - The Blazing Lily (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caer Arianrhod (A Moon Tale Pt. 1) 01:07
+02. Doomed To Oblivion (A Moon Tale Pt. 2) 06:24
+03. Illusions Of Infinity 04:06
+04. Lily's Ashes (A Moon Tale Pt. 3) 05:08(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBABC2DCC83D7EE285411F318327073A37E3D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569242   (453339) от 12.08.2022
 
 The Halo Effect - Days Of The Lost (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
@@ -658,92 +745,6 @@ Semblant - Vermilion Eclipse (2022) [FLAC|Lossless|image + .cue] <Extreme Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF6010BC3F9423522290C70339784A36C239EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569654   (449671) от 14.08.2022
-
-Lacrimosa - Elodia (1999) Irond , Reissue 2002 [FLAC|Lossless|image + .cue] <Neue Deutsche Todeskunst>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Act 1:
-01. Am Ende der Stille (8:05)
-02. Alleine zu zweit (4:15)
-03. Halt mich (3:56)(   Читать дальше...   )Жанр: Neue Deutsche TodeskunstПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE1C01CD87525709E60FB47F84DACF7D0F473B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408817   (449338) от 15.09.2020
-
-Conan & Deadsmoke - DOOM SESSIONS VOL​.​1 (2020) Split Album [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conan - Beheaded [00:17:04]
-02. Deadsmoke - Dethroned Concrete [00:11:09]
-03. Deadsmoke - Dead Minds Army [00:05:48]Жанр: Doom Metal, Stoner MetalПродолжительность: 00:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94225D69C3729BEF20F5D4BBB8D8352E06FB87C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409142   (449336) от 15.09.2020
-
-Natural Spirit - Під серпом часу (2020) [FLAC|Lossless|WEB-DL|tracks] <Slavonic Pagan Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Боги між нами [00:04:08]
-02. Гори, палай! [00:04:19]
-03. Чортів млин [00:04:18]
-04. Не бачу бога [00:05:11](   Читать дальше...   )Жанр: Slavonic Pagan Folk MetalПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5173684630304DFCEB5B319DC007FDE47AA0DC07
 ```
 
 https://mybot314.ru/tekegram_catalog/

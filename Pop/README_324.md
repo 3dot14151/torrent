@@ -1,3 +1,61 @@
+###  Публикация: 1704073   (114731) от 02.03.2024
+
+Алла Пугачёва - P.S. (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Монолог (4:13)
+02. Анестезия (3:46)
+03. Поживи в моей шкуре (3:30)
+04. Всё хорошо - ничего не случилось (3:45)(   Читать дальше...   )Жанр: PopПродолжительность: 01:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA8FDD4AF8862AAE08D2A0C053933C77D9E4469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703935   (114659) от 02.03.2024
+
+Martin Stevens - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Europop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский певец родился 3 октября 1953 года в Вердене - 5 июля 2023 года. Он смог покорить волну диско в Квебеке, выпустив в 1978 году кавер на песню "Love Is in the Air", изданную годом ранее Джоном Полом Янгом.01. Belle (3:38)
+02. Danser Pour Toi (3:31)
+03. Combien Faut-il De Jour (3:52)
+04. L'Amour Que J'Ai Perdu (4:09)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Europop, DiscoПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B3C0F346A63837245C61B1470E2E03E6B7F238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703903   (114609) от 02.03.2024
 
 Георгий Береши - Вниз по реке (1997) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -686,64 +744,6 @@ VA - Bravo Hits 14 (1996) CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6516C299B5C0B58A15F6F7FFC72C8ED645F6D159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709093   (112890) от 23.03.2024
-
-Mike Mareen - The Maxi-Singles Collection Part 2 (2023) Compilation, Remastered [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Spy (The Badman-Mix) 6:25
-02. Africa (Maxi Version) 6:04
-03. Dancing In The Dark (Galactica Remix) 7:08
-04. Cecilia (12″ Remix Version) 7:20(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D45DBB737DB2DCE1997BFF48734C6E36321720C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709089   (112889) от 23.03.2024
-
-Mike Mareen - The Maxi-Singles Collection (2009) Compilation, Remastered [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agent Of Liberty (Nik Z. WC Remix)
-4:56
-02. Lady Ecstasy (Extended Version) 5:32
-03. Love Spy (Night Mix) 8:40(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A292C14F7DCA7575F0939424D8D3676B9F6AF79
 ```
 
 https://mybot314.ru/tekegram_catalog/

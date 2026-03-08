@@ -1,3 +1,32 @@
+###  Публикация: 1740695   (105810) от 03.08.2024
+
+VA - IBIZA SUMMER 2024 - Best Electronic Music [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105810.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nerutto  - Aquarius (Antua Hale Remix)(6:19)
+002. Mike Suntower - Absolute Zero (Arouse Dreams Remix) (4:56)
+003. Sub Chunk - Give Me A Minute (Original Mix) (6:34)
+004. 5udo - Subaru (Original Mix) (7:44)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C584C9277B9BE88C250614399ACA1F6B24DEB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740805   (105786) от 03.08.2024
 
 VA - 40 Dance Summer Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -716,35 +745,6 @@ VA - Always Progressive, Vol. 1 (2024) [MP3|320 Kbps] <Progressive House, Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2356D0440B336C19E40B0D2D89D80CE1758598E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754864   (103679) от 12.10.2024
-
-VA - Summer Fresh 002 (2024) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hakan Akkus & Ertan Koculu - Voice of Slav (Extended Mix) [06:07]
-02. Hakan Akkus & Bugra Yilmaz - Loraterr (Extended Mix) [05:37]
-03. Bugra Yilmaz & Ertan Koculu - Waka (Onur Ensert Remix) [04:44]
-04. Neo-P9 - Gate (Extended Mix) [05:11](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52948CC3B69F86DBCF5D7DD7D20D32196FF48E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1265833   (273104) от 29.11.2018
+
+VA - Le Son Dancefloor 2019 (2018) 4CD [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273104.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. DJ Snake - Taki Taki
+02. Dynoro - In My Mind
+03. Kungs - Be Right Here(   Читать дальше...   )Жанр: DanceПродолжительность: 04:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77887CC017FDB79A3822B6CBA7C7DA08230E9C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265482   (273048) от 29.11.2018
+
+VA - Discofox 2019 (2018) 2CD [MP3|320 Kbps] <Schlager Music, Disco, German Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273048.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Anna-Carina Woitschack - Alles oder nichts (FiWer Remix)
+02. G.G. Anderson - Du hast im Schlaf seinen Namen gesagt (Remix)
+03. Angelique - Ich verlieb Dich(   Читать дальше...   )Жанр: Schlager Music, Disco, German PopПродолжительность: 02:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9073882EBD0095139BC762FA652B889A9B3448B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265834   (273026) от 29.11.2018
 
 Jeff and Jane Hudson - The Middle (2016) [MP3|320 Kbps] <Alternative Pop, Synthpop, New Wave, Electronic Rock, Post Punk>
@@ -684,64 +742,6 @@ Earth And Fire - 9 Studio Albums (1970-1989) Discography [MP3|320 Kbps] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AC49D5714FF40FE381181B1AC5268F550E2E560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266561   (270072) от 02.12.2018
-
-VA - Booom 2019 the First (2018) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270072.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Sido — Tausend Tattoos
-02.  Calvin Harris — Promises
-03.  David Guetta — Don't Leave Me AloneЖанр: PopПродолжительность: 02:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:012731DEDDEDB0E9D88E831193D861546AE39AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266462   (270046) от 02.12.2018
-
-Alessia Cara - The Pains Of Growing (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Growing Pains
-02. Not Today
-03. I Don't Want To
-04. 7 Days(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B18B9E0DCF42AB65EC050C0F5BC0F35CEC7A60
 ```
 
 https://mybot314.ru/tekegram_catalog/

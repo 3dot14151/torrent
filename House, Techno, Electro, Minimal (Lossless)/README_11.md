@@ -1,3 +1,86 @@
+###  Публикация: 1366841   (920306) от 13.03.2020
+
+Boris Brejcha - Violet Pill (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920306.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Violet Pill (8:33)
+2. On His Way (9:00)
+3. Babamba (7:50)Жанр: Tech House, MinimalПродолжительность: 00:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2710AD6A5382532C8F8CE0C5C0D378F82C842840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304244   (918643) от 20.08.2021
+
+Kölsch (Kolsch) - Discography 32 Releases (2010-2021) Kompakt [FLAC|Lossless|tracks+.cue, tracks] <Techno, House, Tech House, Progressive House, Leftfield>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. US1873 (06:46)
+ 02. LH479 (07:07)
+ 03. SK1550 (05:53)
+ 04. EZY865 (05:12)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno, House, Tech House, Progressive House, Leftfield •Продолжительность: 14:33:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C02331D7CEF5792E483794500F2164FBEB4B89A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490537   (917572) от 21.08.2021
+
+Leaving Laurel - Leaving Laurel (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Deep House, Progressive HouseПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1E0745986B31210F15989AF2206F47E6C656A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 68682   (916839) от 15.03.2020
 
 Scatman John - Scatman's World (1995) [FLAC|Lossless|image + .cue] <Euro House>
@@ -640,93 +723,6 @@ Eric Prydz - Opus (2016) [FLAC|tracks|WEB-DL]<House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF2DD8FC29C4AF98B576DC18DA962D0260E319D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368701   (907425) от 21.03.2020
-
-Dani Corbalan - Best of . 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907425.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Redemption (Radio Edit) (3:26)
-2. In Love (Radio Edit) (2:59)
-3. Back to Love (Radio Edit) (2:49)
-4. Ankara (Radio Edit) (3:20)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:04:1
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62F0B7390898D289956E91508DAF36740148C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368036   (907214) от 21.03.2020
-
-Sofi Tukker - Treehouse (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Indie Pop, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuck They (03:04)
-02. Energia (03:07)
-03. Benadryl (03:16)
-04. Batshit (03:23)(   Читать дальше...   )Жанр: Dance-pop, Indie Pop, HouseПродолжительность: 00:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD883951A096EDD1509ACCF8A10B6E74938F521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261397   (906929) от 27.08.2021
-
-HVL | Kaiji | Kiyadama - Discography 23 Releases (2013-2021) Rough House Rosie [FLAC|Lossless|tracks] <Electro, Techno, IDM, Acid, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myriads Of Beings (04:21)
- 02. Feb Summer Song (05:31)
- 03. Decasid (05:11)
- 04. ჭოლევი (04:19)(   Читать дальше...   )Тип издания: Web, VinylЖанр: Electro, Techno, IDM, Acid, Ambient •Продолжительность: 15:27:26 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FA8D8C64CB3D80EAA601044B4E580E679DCB58
 ```
 
 https://mybot314.ru/tekegram_catalog/

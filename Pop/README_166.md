@@ -1,3 +1,61 @@
+###  Публикация: 1554926   (573810) от 01.06.2022
+
+Gilla - Disco Collection (2001) [FLAC|Lossless|tracks + .cue] <Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny
+02. Tom Cat
+03. The Heat Is On
+04. Go Down Mainstreet(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468423F962DF40367908675996375FC591EBD0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921935   (573794) от 26.07.2015
+
+Fear of Tigers - Zoipa (2014) EP [MP3|320 кб/с]<Electronic, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weekend In Harlem
+02. Ailuropoda Melanoleuca
+03. Golden Age
+04. Twisted Biscuit(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB7D938AD7F3559FA6FCBD068B111D54E96CE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921900   (573752) от 26.07.2015
 
 Fear of Tigers - Christmas In Kaohsiung (2013) EP [MP3|320 кб/с]<Electronic, Indie Pop>
@@ -704,64 +762,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C9B10B2FD096B07EF3CD333F9DFE8BD11107C7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303647   (570968) от 22.05.2019
-
-Laurence Castera - Les hauts lieux (2019) [FLAC|Lossless|tracks + .cue] <French Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jouer le jeu (3:57)
-02. De l'autre côté (3:32)
-03. Déposer les armes (3:36)
-04. L'élyme des sables (4:41)(   Читать дальше...   )Жанр: French Pop, Pop RockПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CB5D5D20D1D64A5D272EBDA01B50279D00B93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043806   (570931) от 17.08.2016
-
-Lukas Graham - Lukas Graham (2015) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7 Years 03:57
-02. Take The World By Storm 03:11
-03. Mama Said 03:26
-04. Happy Home 03:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A5F6FA4C917AE40FC047EAFCB99DB5A0DF2323
 ```
 
 https://mybot314.ru/tekegram_catalog/

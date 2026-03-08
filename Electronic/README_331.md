@@ -1,3 +1,61 @@
+###  Публикация: 1416645   (365111) от 17.10.2020
+
+VA - Calm Evening Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Sundowner (Original Mix) (3:41)
+02. Michael E - Where the River Flows (Original Mix) (5:33)
+03. The Soul Crusaders - When the Night Falls (4:15)
+04. Chillson, Marc Hartman - New Beginnings (4:58)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1577CCB19A340B04DE80DD3AC91377450D6EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416582   (365104) от 17.10.2020
+
+VA - Restaurant Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabrielle Chiararo - Smooth Operator (Instrumental Mix) (5:04)
+02. Augusto Alves - Frias Palavras (3:44)
+03. Brazil Beat - Englishman in New York (3:52)
+04. Alfredo Bochicchio - Gentle Kiss (4:36)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F4070F8749F55FB722719BCA287C700F9A5CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328308   (365084) от 29.09.2019
 
 VA - Discover Dark 200 (Compiled & Mixed By Zach Zlov) (2019) [MP3|320 Kbps] <Trance, Tech Trance>
@@ -685,64 +743,6 @@ VA - Deep & Uplifting: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E71DA9FB0CF5313426A1AEFB79300CDAEB47ADAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576470   (364034) от 15.09.2022
-
-Neurotech - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Electro, Sympho Metal>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prophetic Symphony [00:10:00]
-02. The Seraphic Symphony [00:10:00]
-03. The Draconic Symphony [00:10:00]
-04. The Messianic Symphony [00:10:00]Жанр: Industrial Electro, Sympho MetalПродолжительность: 2 CD, 01:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2130AA9601004C7210B01E0C0765C2E65A04C773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255622   (363967) от 18.10.2018
-
-VA - Markus Schulz - We Are the Light (2018)(2CD) [FLAC|Lossless|WEB-DL|tracks] <Trance,Downtempo>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz – The Awakening (Original Mix)
-02. Markus Schulz & Omnia & Seri – Road of No Return (Original Mix)
-03. Markus Schulz & Alina Eremia – You Light up the Night (Original Mix)
-04. Markus Schulz – We Are the Light (feat. Nikki Flores) (Original Mix)(   Читать дальше...   )Тип издания: WEBЖанр: Trance,DowntempoПродолжительность: 02:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E445A3396293EB411FAF98A68B97AAFA3DECCBB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

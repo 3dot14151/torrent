@@ -1,3 +1,178 @@
+###  Публикация: 1187438   (280309) от 28.11.2017
+
+VA - Дальняя дорога. Новый сезон (2017) [MP3|256-320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280309.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олеся Атланова - Солод
+002. Илья Лукин - Полуночный Вокзал
+003. Михаил Грубов - Блат
+004. Вячеслав Московкин - Что Же Ты Командир(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132D77F789D9D9E4C411400C517F6741A98C317B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964719   (280264) от 12.12.2015
+
+VA - Зажигай в темпе ритма с Europa plus (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алиса Кожикина - Белые Снежинки
+02. Родион Газманов и Алёна Мальцева - Разминулись
+03. The Game Feat. Lil Wayne & Chris Brown - Fuck Yo Feelings
+04. Fidel Wicked - Empires Revenge(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2961C14747DA5B00F964A3A24A1B9212D214C98F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 734760   (279652) от 16.12.2013
+
+VA - Billboard 2013 Year End Hot 100 Songs (2013) [MP3|320 кб/с]<Pop, Dance, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279652.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце года принято подводить итоги. Вот и журнал Billboard подвел итог своих хит-парадов за 2013 год. Опубликована лучшая сотня песен за год во всех жанрах. Именно её мы и представляем сегодня.
+Вспомните в Новый год о всем лучшем, что в нем было под замечательные мелодии 2013 года!01. Macklemore & Ryan Lewis - Thrift Shop (3:56)
+02. Robin Thicke - Blurred Lines (4:21)
+03. Imagine Dragons - Radioactive (3:06)
+04. Baauer - Harlem Shake (3:17)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Other |Продолжительность: 06:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21233ACE2143BFAE5856046503E393A7393DA05F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264577   (279529) от 24.11.2018
+
+VA - German Top 100 Single Charts 23.11.2018 (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279529.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ava Max - Sweet but Psycho
+002. Sido - Tausend Tattoos
+003. Samra - Cataleya
+004. KitschKrieg - Standard (feat. Trettmann, Gringo, Ufo361 & Gzuz)(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8ED4C0BDA23985B525535EE9654463EF08E24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264768   (279525) от 24.11.2018
+
+VA - Record Super Chart 563 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fisher  -  Losing It
+02.  Rompasso  -  Ignis
+03.  Gaulin  -  Moonlight
+04.  Summer Cem  -  Tamam Tamam(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A4CD875E060524FE403EC6821704BA1064686D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264561   (279469) от 24.11.2018
+
+VA - Top 50, A Playlist By Spotify Charts 18.11.2018 (2018) [MP3|320 Kbps] <Pop Rap, Alternative, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salmo;Nstasia - IL CIELO NELLA STANZA
+02. Salmo;Sfera Ebbasta - CABRIOLET
+03. Salmo;Fabri Fibra - STAI ZITTO
+04. Måneskin - Torna a casa(   Читать дальше...   )Жанр: Pop Rap, Alternative, RockПродолжительность: 02:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5742A3001A98933869119D3A0F3E2B64CEB8E08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081829   (279289) от 12.12.2016
 
 VA - Музыкальный заряд. Хитовый драйв часть 8 (2016) [MP3|256 Kbps] <Pop>
@@ -568,177 +743,6 @@ VA - Pop Rock Nu Disco: Favorite Collection Of Music (2016) [MP3|192-320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FC43C0A7779B249E1FA13EDBAECD0E7E939BB4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082252   (279095) от 12.12.2016
-
-VA - Christmas Lights (Sound of Snow) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taste Of Dream & Marco Bianchi - En Camino 4:20
-02. Salt Sea - Connectivity 4:39
-03. Taste Of Dream & Carly Harvey feat. Marco Bianchi - I'm Not in Love 4:57
-04. Mokas - Venus 5:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78728D9F33DB6297800E7E8058D864F564484FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336446   (279066) от 07.11.2019
-
-VA - Осенняя свежая 30-тка Vol 4 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.150 Красного - Влюблена (3:18)
-2.MIIDAS, CheRocky - 666 (4:01)
-3.Dermot Kennedy - All My Friends (4:17)
-4.Felix Jaehn, Mesto, vcation - Never Alone (2:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57057E5C339A0F55AAC94C73E3058FA9DCCA059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336440   (279063) от 07.11.2019
-
-VA - Beatport Top 100 Techno October 2019 (2019) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: TechnoПродолжительность: 11:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3729E1555BFA5C401A14D0A7E76AA483F69095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081840   (279008) от 12.12.2016
-
-VA - Новогодний суперхит. Русский (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279008.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Звезды feat. ChinKong - Новый Год С Новой Строчки
-002. Elvira T & Roma Pafos - Биополе
-003. Кристина Орбакайте - Любишь Или Нет
-004. Aisha - Новое Поколение(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812FC796E648EAB73DD12DB8C8C71482D9079991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081834   (278996) от 12.12.2016
-
-VA - Зимний автохит Europa Plus (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278996.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jennifer Lopez - Ain't Your Mama
-002. Теамо & Анри - Улетай
-003. Френды - Смотри Как Я Танцую
-004. Ellie Goulding & Tarrus Riley & D.R.A.M. - Powerful Vip(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:071E38D88C33051D3DEEFE47B436EDBDCE99CAF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081881   (278896) от 12.12.2016
-
-VA - Deep House Collection Vol.100 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278896.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.0rfeo & GytisJ - Sonder (Original Mix) 6:59
-002.Afgo, Dave Andres - Love and Soul (Dave Andres Remix) 5:57
-003.Aisha - Слышь Ты Чё Такая Дерзкая (Dj Kapral Cover Mix) 4:00
-004.AKADIАN, Sam Geоrge - Fallеn Angel (Original mix) 5:21(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE54AF92E0EBBF14686826C3EE4431985D5EF10
 ```
 
 https://mybot314.ru/tekegram_catalog/

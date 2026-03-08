@@ -1,3 +1,61 @@
+###  Публикация: 1063760   (432390) от 17.10.2016
+
+VA - James Warren Presents: Visceral 041 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Visceral 041 (Part 1 - continuous DJ mix by James Warren) [01:01:22]
+02. Robert Heel - Onondaga Cava (original mix) [05:10]
+03. Redux Saints - Rebirth (Doorly remix) [06:58]
+04. Matter & GMJ - Atoms (original mix) [07:33](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C95DBD2A01E87C32910833A3F24D986CA1B32C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063800   (432388) от 17.10.2016
+
+VA - Chillout Ibiza 2016 (Best Of Balearic Chillout Lounge) Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout,Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subchyme - The Bongo Pad - Seсor Coelho Mix (04:12)
+02. Ocean Blonde - Bayfront Park - Florida Roots Dub (03:58)
+03. Mirami - Private Island - Sol Y Mar Remix (04:05)
+04. Free Love Commune - Blue Planet - Vocal Mix (04:55)(   Читать дальше...   )Жанр: Downtempo, Chillout,LoungeПродолжительность: 02:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC5B1D1CB4665D30215308C30D9ABDDD713C6C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 555686   (431874) от 03.10.2012
 
 Various Artists - Club House 2012 (2012) [MP3|320 кб/с]<Club House, House, Progressive House>
@@ -695,64 +753,6 @@ VA - Skywalker: Leaving The Dreamhouse (1996) 2xCD, Compilation [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:255C9444D46F4995F74FC32DBA8481BC2928EA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324080   (429792) от 07.09.2019
-
-VA - Nine Years Of Techno: Selected by Agent Orange DJ (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ken Ishii & Submerge - Twitched (Submerge Remix) (7:27)
-02. Lucas Freire - Organ Pad (7:03)
-03. Sam Insecton - Dragonfly (6:44)
-04. Ken Ishii - Malfunction Manipulation (Funk D'Void Remix) (7:19)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC8E7F55829EE1491503B02E539D0066E49E083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411246   (429747) от 24.09.2020
-
-Omni Trio - The Haunted Trax EP (1996) Sm:)e Communications [FLAC|Lossless|tracks|Vinyl] <Drum n Bass, Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Are You (06:45)
- 02. Serpent Navigators (06:14)
- 03. London Step (05:40)
- 04. Nu Birth Of Cool (Rogue Unit Mix) (06:29)Жанр: Drum n Bass, JungleПродолжительность: 00:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E87D8618244836FC240CC89A89F51DAD4C1ADD97
 ```
 
 https://mybot314.ru/tekegram_catalog/

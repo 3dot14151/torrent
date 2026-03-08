@@ -1,3 +1,58 @@
+###  Публикация: 441712   (64296) от 25.01.2012
+
+Александр Барыкин & Карнавал - Избранное (2012) 4CD[MP3|320 kbps]<PopRock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop-RockПродолжительность: 05:16:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705206   (63684) от 07.03.2024
+
+Татьяна Буланова - Камео (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63684.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Камео
+2. Магия
+3. Сто шагов
+4. Бонни и Клайд(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19860D60C70E5F6E89C737F37D11BAA9ED7362BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306437   (63576) от 09.03.2024
 
 Обними Кита (Евгения Рыбакова) - 4 Альбома, 15 Синглов (2016-2024) [MP3|320 Kbps] <Pop, Indie>
@@ -684,64 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CDA5BBCD58A02376BB5445FEFB8EE1B58A8B0CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712969   (60763) от 04.04.2024
-
-V.A. - 70's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pretenders – Brass in Pocket (2006 Remaster)
-02. Curtis Mayfield – Move On Up
-03. Gerry Rafferty – Baker Street (2011 Remaster)
-04. Bad Company – Feel like Makin’ Love (2015 Remaster)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED9F8BC93ABB4AFA239BC1BB1F0A1EAB966EC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713007   (60655) от 05.04.2024
-
-VA - 100 Greatest Covers of All Time - Cover Versions (2024) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60655.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - Rolling in the Deep (Live) - Black Stone Cherry - 03:48min
- 002 - Don’t Stop Believing - Teddy Swims - 04:08min
- 003 - All Summer Long - Kid Rock - 04:58min
- 004 - Cats in the Cradle - #90s Update - 02:53min(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 06:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BF4DD6D9D0AAFAF6FCB9C2B10FA2B07FB45D32C
 ```
 
 https://mybot314.ru/tekegram_catalog/

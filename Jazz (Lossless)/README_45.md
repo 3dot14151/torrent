@@ -1,3 +1,32 @@
+###  Публикация: 1104042   (883520) от 13.02.2017
+
+Cannonball Adderley - Soul Zodiac (1972) 2008, EMI Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Introduction [03:03]
+ 02.Aries [04:58]
+ 03.Libra [03:22]
+ 04.Capricorn [06:14](   Читать дальше...   )Жанр: Hard Bop, Jazz-FunkПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F185CD7115DC0BD7682FC418A247A3F95EFA032C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995738   (883198) от 12.03.2016
 
 Orchestre Poly-Rythmo - Cotonou Club (2011) [FLAC|Lossless|tracks + .cue] <Afro-Pop, Fusion, Soukous, Afro-Beat>
@@ -716,35 +745,6 @@ Bim Bam Baby - Who Am I Gonna Love Tonight (1999) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE71CC49A05D69668FE31CBEBE5992E647C63707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104215   (880264) от 15.02.2017
-
-McCoy Tyner Quartet - New York Reunion (1991) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Recorda Me [09:49]
- 02.Miss Bea [07:10]
- 03.What Is This Thing Called Love? [08:05]
- 04.My Romance [06:37](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FDCEE1EB06871FD2BE6E0A96E4AB313596C3EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

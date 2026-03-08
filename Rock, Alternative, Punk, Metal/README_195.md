@@ -1,32 +1,3 @@
-###  Публикация: 1369867   (900427) от 25.03.2020
-
-The The - Dusk (1993) Remastered, 2002, Epic [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True Happiness This Way Lies (03:10)
-02. Love is Stronger than Death (04:39)
-03. Dogs of Lust (03:09)
-04. This is the Night (03:50)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B9EB907A9B1E26839E03866726EDB5E697523C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369470   (900423) от 25.03.2020
 
 Рось - Русалка и Купала (Compilation) (2006) [MP3|320 Kbps] <Folk Rock>
@@ -740,6 +711,35 @@ Faithful Breath - 2 Studio Albums (1984-1985) 2xCD [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE2219F21FA840D61990E48EFAAE40A5FFF18308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493060   (899008) от 01.09.2021
+
+Syndone - Kama Sutra (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Only Make Believin 3:27
+02. Nirvana 2:52
+03. Carousel 2:32
+04. Into the Kama 5:51(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E98EC49218018CD5B67AD41D8035B753D7B5DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

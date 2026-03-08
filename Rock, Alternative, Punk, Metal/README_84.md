@@ -1,32 +1,3 @@
-###  Публикация: 1455677   (1025497) от 20.03.2021
-
-A Pregnant Light - Kiss Me Thru the Phone (2021) [FLAC|Lossless|WEB-DL|Tracks] <Post-Black Metal, Post-Rock, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss Me Thru the Phone (December) [00:02:44]
-02. The Power of Powers (November) [00:03:16]
-03. Song for Peaches (October) [00:04:40]
-04. The Agent & Attendant (September) [00:04:15](   Читать дальше...   )Жанр: Post-Black Metal, Post-Rock, HardcoreПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAA8A180346F214599A35E5C0344EBE1D2ECF8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455831   (1025495) от 20.03.2021
 
 Sanctorium - Ornaments (2020) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
@@ -745,6 +716,35 @@ The Settlement - Departures (2021) [MP3|320 Kbps] <Psychedelic, Progressive Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F982D7CDC86350CDE28A509C373386C473F79132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456737   (1024950) от 23.03.2021
+
+Reylobo - El Octavo Pecado (2021) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Final (00:01:23)
+02 - Los Olvidados (00:03:43)
+03 - La Jauria Humana (00:03:59)
+04 - Rebelion (00:03:47)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1561D3008C1023E2C13BEB7E9E001669C32C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

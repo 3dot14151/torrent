@@ -1,3 +1,32 @@
+###  Публикация: 1673354   (165520) от 01.11.2023
+
+Django Reinhardt - BD Jazz, Vol.2 (1937 - 1953) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Improvisation No.1 [3:00]
+02. St. Louis Blues [2:49]
+03. Parfum [3:03]
+04. Bouncing Around [2:49](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 02:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A505E6DD4A8A01FB12507203A74A119BE4DB3E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516655   (165510) от 12.12.2021
 
 Erroll Garner - 1945-1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21232CA3201CA58ADC9370141A32E426983571CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517158   (163559) от 14.12.2021
-
-Louis Armstrong - The Complete Louis Armstrong Decca Sessions (1935 - 1946) 7CD, 2009, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163559.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I'm In The Mood For Love [3:11]
-02. You Are My Lucky Star [2:59]
-03. La Cucaracha [2:41](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 08:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39958665E232B0FD912ACEB9C6845632638357F
 ```
 
 https://mybot314.ru/tekegram_catalog/

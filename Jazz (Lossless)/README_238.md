@@ -1,3 +1,38 @@
+###  Публикация: 493813   (248758) от 08.05.2012
+
+The Frank Wess Orchestra - Entre Nous (1990) (1991) [FLAC|Lossless]<Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_248758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Order In The Court (6:06)
+02. Entre Nous (4:54)
+03. Blues In The 2% (8:51)
+04. St. James Infirmary (4:55)
+05. Shiny Stockings (5:51)
+06. Lover (4:14)
+07. But Beautiful (7:39)
+08. Imus The Blues (6:25)
+09. Rink Rat (5:29)
+10. Pit Pat Blues (8:19)Жанр: Big BandПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493802   (248744) от 08.05.2012
 
 Avi Lebo Double Trombone Quintet & Slide Hampton - Shades of Brass (1996) [FLAC|Lossless]<Post-Bop, Acoustic Jazz>
@@ -730,35 +765,6 @@ Archie Shepp - Essential Best (2009) Venus Records [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D1EF0CA3B82BCC7425634A85DBA8D242C3E5AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624258   (245277) от 05.04.2023
-
-The Mills Brothers - BD Voices (1931 - 1955) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caravan [2:43]
-02. My Walking Stick [2:43]
-03. Funiculi, Funicula [2:30]
-04. Jeepers Creepers [2:34](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0B3E3A037B16A870C324C60FF8B94A5071340D
 ```
 
 https://mybot314.ru/tekegram_catalog/

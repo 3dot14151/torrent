@@ -1,3 +1,177 @@
+###  Публикация: 1349591   (1004267) от 02.01.2020
+
+VA - Cyber Space: Future Synth Electronic (2020) [MP3|320 Kbps] <Synthwave, Synthetic, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004267.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Collective Machine - Mamba
+002. Sporting Life - Approach
+003. Future Beat Alliance - Machines Can Help
+004. Frédéric Auger - Dark Liquid(   Читать дальше...   )Жанр: Synthwave, Synthetic, ElectronicПродолжительность: 13:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D21921854A09B3D4CF09BFFD31B8E50B3F25226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349556   (1004222) от 02.01.2020
+
+Amure - Euphoria (2020) [MP3|320 Kbps] <New age, Enigmatic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004222.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Euphoria (6:42)
+2.Trust (6:03)
+3.Sacred Fire (5:25)
+4.Always On My Mind (3:56)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDB0B0BB6E81114AE1B69432F3C2A8D254C03C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487073   (1004153) от 03.08.2021
+
+VA - Tropical Jungle Club (2021) [MP3|320 Kbps] <Drum & Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004153.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynamite MC - It's Just What Lovers Do
+002. Amplify - Omg
+003. Brusten - In Motion
+004. Fushara - The Rave(   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 08:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A640BD378EEB20A04796AE0857B45763D819375B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487074   (1004136) от 03.08.2021
+
+VA - Trance Energy: Emotional Electro Mix (2CD) (2021) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004136.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Blackstorm - Crystal Skies
+02. Evolving Suns Audio - Outside The Box(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 11:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3C33910184DC3673FD84C3A9D6DC4D22FC2F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487070   (1004056) от 03.08.2021
+
+VA - The Classic Blues (2021) [MP3|320 Kbps] <Blues, Classic, Retro Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004056.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. John Lee Hooker - Drifting Blues
+002. T-Bone Walker - Blues For Marili
+003. Jan James - Where You Gonna Run To
+004. Alastair Greene - No Longer Amused(   Читать дальше...   )Жанр: Blues, Classic, Retro BluesПродолжительность: 09:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D360DD9C055B5478D91C647A2BEB032DC7D7CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487072   (1004055) от 03.08.2021
+
+VA - The Melancholy Blues (2021) [MP3|320 Kbps] <Blues, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004055.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Delta Moon - House Of Dolls
+002. Paul Gillings - I Dont Know When Im Beaten
+003. John Lee Hooker - Amazing Grace
+004. Lynn August - The Lords Gonna Fix It(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 08:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7EA03FA732CB3294E80AFB40BB2E31EC02A1CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487120   (1004003) от 03.08.2021
 
 VA - Свежаки Лета Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -571,180 +745,6 @@ VA - Vibrant Color Sound: Top 100 Dj Electro House (2019) [MP3|320 Kbps] <Club, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4670BF7C40B18A4A5E224E43DE871A3241B0F07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350499   (1003194) от 06.01.2020
-
-Teach In - Bye Bye Bye (2020) (2 CD Compilation) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Friend Goodbye
-02. Sing Your Song
-03. My Rock And Roll Song
-04. Get On Board(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A05C604B2D688024D1F35742FB09D15C3A2C0C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350258   (1003134) от 06.01.2020
-
-VA - Лучшие из лучших: Top 100 хитов радиостанций за 2019 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003134.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tones and I - Dance Monkey 3:30
-002. Platon & Joolay - Over 4:20
-003. МЭВЛ - Патамушка 2:19
-004. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) 3:42(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3F979281D2F53404B8A712D1DE338518001D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350678   (1003020) от 07.01.2020
-
-VA - Neurochemistry: Psychedelic Trance (2020) [MP3|320 Kbps] <Psy Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003020.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Domi Re - The Locals (Original Mix)
-002. Astropilot - Breathe (Sirius Music Remix)
-003. Roger Rabbit - Breath (Original Mix)
-004. Liquid Ace - Neurochemistry (Indianix Remix)(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 12:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85AD826BEA78E4A264C231CC861EC1FB501D1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350764   (1003006) от 07.01.2020
-
-VA - Light Up With Us: Deluxe House (2020) [MP3|320 Kbps] <Club, Dance House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003006.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jose Vilches - Groove Music (Original Mix)
-002. Jp Lantieri - Intimacy (Original Mix)
-003. Jerome Isma-Ae - Opium (Quivver Remix)
-004. Eimear - Wake Up (Talamanca Remix)(   Читать дальше...   )Жанр: Club, Dance House, ElectroПродолжительность: 09:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782BD06ADEF9E515021FF3FBCE615F69E288C72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350885   (1002994) от 07.01.2020
-
-VA - Queena Techno (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002994.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joe De Renzo - Long Trip
-002. Af Double - Redemption
-003. Agoria - Hélice
-004. Sebastian Groth - Snow Leopard(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 15:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492F07413472B6388959FE7A9DE53BBCC55F1A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350677   (1002986) от 07.01.2020
-
-VA - Techno Friday: With Special Guest (2020) [MP3|320 Kbps] <Techno, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002986.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wardogg - Last Call (Original Mix)
-002. Delphunk - Mucho
-003. Loren Lewis - Vandal (Hypnotic Mix)
-004. Oziriz - Cheerful (Original Mix)(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 13:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A9D4D30EEFD95CA5B45C24EBF8150D984DF8F6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

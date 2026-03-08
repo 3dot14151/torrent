@@ -1,3 +1,29 @@
+###  Публикация: 1712962   (60778) от 04.04.2024
+
+Bigasoft Total Video Converter 6.6.0.8858 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bigasoft Total Video Converter - мощный видеоконвертер, позволяющий конвертировать практически любые видеофайлы в различные форматы. Программа распознает свыше 40 видео и аудио форматов и поддерживает конвертирование между свыше 30 форматами (AVI, Xvid, DivX, H.264, MP4, 3GP, MKV, WMV, RM, FLV, MOV, WebM, VP8, 720p, 1080p, 1080i HD, AVCHD видео и многими другими). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2F6343FCE4600B77C58CD50E95F3D64086DEBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714251   (60379) от 08.04.2024
 
 RadioBOSS Advanced 7.0.2.0 [Multi/Ru]
@@ -648,33 +674,6 @@ Apeaksoft Video Editor 1.0.50 Portable by 7997 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9955876E17A7DC797FE4951E671A37B6B10C149A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720757   (57611) от 04.05.2024
-
-Apeaksoft Blu-ray Player 1.1.38 Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apeaksoft Blu-ray Player - программное обеспечение, которое может воспроизводить диски Blu-ray и DVD на компьютерах с Windows с лучшим качеством видео.
-Apeaksoft Blu-ray Player поможет вам воспроизводить диски Blu-ray, папку Blu-ray, DVD-диск / папку, файл ISO и видео в различных форматах, включая 1080P и 4K видео, а также аудио форматах.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6538A9C6E119E520A3106054655AA18997EDF16
 ```
 
 https://mybot314.ru/tekegram_catalog/

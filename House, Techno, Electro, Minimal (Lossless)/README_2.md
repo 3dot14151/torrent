@@ -1,3 +1,87 @@
+###  Публикация: 1441681   (1037513) от 22.01.2021
+
+VA - The Sound Of Christmas Gifts (2020) MixCult Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anas M - Dubz (Im'pulse Remix) (07:28)
+02. Artyom Kozlov - Clouds (06:24)
+03. CGeorge - Unjustified Sadness (09:53)
+04. COR100 - Contact (Bolgarin Deep Mix) (24Bit) (08:54)(   Читать дальше...   )Жанр: Deep House, Deep Techno, Minimal, AmbientПродолжительность: 04:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E0F2FEEDA7ACE9405C8831C62331849C169D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441945   (1037179) от 23.01.2021
+
+VA - Genix Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jody Wisternoff – The Bridge (Chicane Extended Rework) (05:47)
+02. Supermodels From Paris – Keep On (Komytea Extended Mix) (06:46)
+03. Genix – Mr. H2O (Extended Mix) (05:46)
+04. Stephen J. Kroos – Formalistick (Extended Mix) (06:42)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCEEE29C73355C211DE6BD4B99E6DB5F44378F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442132   (1036947) от 24.01.2021
+
+VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3897896774F3C465A1C28784DAA9F57C4D22AD08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442381   (1036618) от 25.01.2021
 
 ZHU, Tame Impala - My Life (Remixes) (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -653,91 +737,6 @@ VA - Depth Charge - Electro Boogie - Shape Generator (1999) Studio !K7 [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6195D96ADCB218D444706E36FB6587B5485D2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449581   (1029777) от 22.02.2021
-
-Planet of Sound & Cider Sky - Together (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Together (Radio Edit) (03:05)
-02. Together (Vocal Mix) (05:44)Жанр: House, Deep HouseПродолжительность: 00:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F238D94CADE84AE4B4076D832C3EFB8C7C444B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449847   (1029579) от 23.02.2021
-
-VA - Soul Diary Chapter.1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rory Gallagher & Arzuk - Soul De Anima (Thomas Gandey Last Communication edit)
-02. Hypersleep - Reason With The Sky (original mix)
-03. Ben Weber - Jetzt (original mix)
-04. Westseven - The Promise (feat Gabriel Lynch - Hypersleep remix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC4F622EA47730A4C4BFC67B1D5DE6E404A9604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261469   (1029323) от 24.02.2021
-
-The Field - Discography 19 Releases (2005-2018) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Tech House, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cupid's Head (Gas Mix) (10:35)
- 02. No. No... (Tim Hecker Mix) (06:32)
- 03. Cupid's Head (Vatican Shadow Mix) (05:41)
- 04. No. No... (John Tejada Mix) (08:03)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno, Minimal, Tech House, Ambient, Experimental •Продолжительность: 13:44:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7008E3C6D661648EB78EA533FAA1420E3BD410
 ```
 
 https://mybot314.ru/tekegram_catalog/

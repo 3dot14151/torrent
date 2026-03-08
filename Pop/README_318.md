@@ -1,3 +1,61 @@
+###  Публикация: 1685903   (126923) от 20.12.2023
+
+Michael Cretu - Ausgewahlte Goldstucke (1994) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. '57 ( The Year I Was Born ) 4:29
+02. Fire And Rain 4:15
+03. Wild River 4:35
+04. Shadows Over My Head 3:54(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221D4F06721DF5149FA9B559382C255B44AC70FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685812   (126907) от 20.12.2023
+
+TV Girl - French Exit (2014) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Hypnotic Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Pantyhose (02:56)
+02.Birds Dont Sing (03:29)
+03.Louise (03:14)
+04.Hate Yourself (03:34)(   Читать дальше...   )Жанр: Hypnotic PopПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F39CDCD88B7B2914DAB790BF8509C9E8FD1C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685964   (126897) от 20.12.2023
 
 VA - The Best Of Hit News (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
@@ -682,64 +740,6 @@ VA - 101 70s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E8DEBDEFB94F8744F070E82DCD6D7BE5A509618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687953   (125340) от 28.12.2023
-
-VA - 101 80s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Yazz & The Plastic Population - The Only Way Is Up
-02.  Dexys Midnight Runners - Come On Eileen
-03.  The Jam - Town Called Malice
-04.  Siouxsie And The Banshees - Dear Prudence(   Читать дальше...   )Жанр: Electronic, Pop, RockПродолжительность: 06:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB721CB01D1A8707D8173D327B784AC859EB4B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688410   (125213) от 29.12.2023
-
-VA - 101 Electronic 80s (2017) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Jazz, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soft Cell - Tainted Love
-02.  The Human League - Love Action
-03.  Various Artists - Enola Gay (Remastered 2003)
-04.  Visage - Fade To Grey(   Читать дальше...   )Жанр: Electronic, Hip Hop, Jazz, RockПродолжительность: 06:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18452F569ED1D8704FAD33B97B88A5596BFF5AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1798726   (17313) от 23.05.2025
+
+VA - 100 Club Hits - Edition 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17313.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Salvatore Mancuso - Have You Ever Seen The Rain (Original Mix) [2:37]
+002. Brooklyn Bounce - Bring It Back (DJ Dean & DJ T.H Remix Edit) [3:13]
+003. Baby Doc - Shovelhead (Original Mix) [6:26]
+004. Eran Hersh & El Mukuka feat. Mumba Yachi - Aicha (Ghedi 3Step Remix) [4:56](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 06:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AC67A7392858FF79E4BDBFAC843C6D01B70924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798688   (17255) от 23.05.2025
 
 VA - Summer Mix 2025 (Best of Ibiza Deep House Sessions Music Chill out Mix) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -716,35 +745,6 @@ VA - 100% Ibiza (The Deep-House Closings 2025) (2025) [MP3|320 Kbps] <House, Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:733DA18951C41FA7999BEE82D30EED007EAFB53E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821070   (8515) от 30.09.2025
-
-VA - Deep House Relaxed #2026 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Bisous;sgt Slick - Reach Out 02:44
-02. Freischwimmer - Down 02:24
-03. C-Ro, Don Bnnr & Jos - Your Heart Keeps Burning 02:21
-04. Sarrdo Carocci - Take Me Home 02:39(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB19A38AEA7C95C15F08FF306308FDD1895F0E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

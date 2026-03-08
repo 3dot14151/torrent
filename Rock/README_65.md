@@ -1,148 +1,3 @@
-###  Публикация: 1578501   (345939) от 23.09.2022
-
-Stratovarius - Eternal (2015) [OGG Vorbis|484 Kbps] <Rock, Power Metal, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Eternal Dream
-02. Shine In The Dark
-03. Rise Above It
-04. Lost Without A Trace(   Читать дальше...   )Жанр: Rock, Power Metal, AmbientПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22CA09B5A1025FECC6DD00D9181D59D6DAB8CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578520   (345938) от 23.09.2022
-
-Stratovarius - Nemesis (2013) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abandon
-02. Unbreakable
-03. Stand My Ground
-04. Halcyon Days(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D70AC6FA8078E7B11864E6BD9C5F10EC5541B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725469   (343677) от 23.11.2013
-
-Blues Power Band - Dark Room (2012) [MP3|320 кб/с]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fr-Fr-Fr-Frustrated
-02. Insane
-03. That Will Be
-04. What You See Is What You Get(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36698DAE82FFBF26F249DC7295D6123C98C439C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578633   (343656) от 24.09.2022
-
-Stratovarius - Stratovarius (2005) Reissue, 2012, Victor [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maniac Dance	4:34
-02. Fight!!!	4:03
-03. Just Carry On	5:28
-04. Back To Madness	7:43(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB9543F81F7C8FCFB791E05B400B5E34A88132DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578559   (343654) от 24.09.2022
-
-Stratovarius - Polaris (2009) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Unknown	4:28
-02. Falling Star	4:33
-03. King Of Nothing	6:42
-04. Second Sight	4:25(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD73070AFF4EE046E6F4DDCD38E26E505D5E93B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578543   (343653) от 24.09.2022
 
 Stratovarius - Elysium (2011) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
@@ -745,6 +600,151 @@ Lone Star Hippie - Mind Ride (2017) [MP3|320 Kbps] <Psychedelic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24F58F81E23F303F15FEEBA941CC23C3C9C497C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954929   (337358) от 09.11.2015
+
+we.own.the.sky - Earths Collide (2015) [OGG| 429-502 кб/с]<Experimental Instrumental Post Metal, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. УВБ-76
+02. Transmissions Of Static
+03. Muzzle
+04. Penny For Your Thoughts(   Читать дальше...   )Жанр: Experimental Instrumental Post Metal, Post RockПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7A271877FC477564394BE55ADA1629222674D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955109   (337357) от 09.11.2015
+
+VA - Southern Rock Christmas (2015) [MP3|320 кб/с]<Christmas, Southern Rock, Blues Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Outlaws - What Child Is This
+02. Artimus Pyle Band - God Rest Ye Merry Gentlemen
+03. Steve Morse - We Three Kings of Orient Are
+04. Point Blank - Merry Christmas Baby(   Читать дальше...   )Жанр: Christmas, Southern Rock, Blues Rock, Country RockПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEAE6E6CFC35411E36C7423E94EC9FE3C781E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954993   (337349) от 09.11.2015
+
+VA - Keep Calm and Salute Queen (2015) [MP3|320 кб/с]<Rock, Hard Rock, Metal, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tie Your Mother Down - Lemmy Kilmister & Ted Nugent
+02. We Will Rock You - L.A. Guns
+03. Bohemian Rhapsody - John Wetton
+04. Killer Queen - Glenn Hughes & Carmine Appice(   Читать дальше...   )Жанр: Rock, Hard Rock, Metal, PopПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A031BAD2C707DC1D17A81A87AD61D1A5600C2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579431   (336497) от 27.09.2022
+
+Frozen Factory - 3 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murder in the Depths [00:03:01]
+02. Host With the Most [00:04:00]
+03. Solar Windfalls [00:04:34]
+04. Equalise Power [00:04:26](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 3 CD, 02:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146D7E248F2CF445C73950AB69E4D766700CBCFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579358   (336488) от 27.09.2022
+
+Fleesh - 13 Albums (2017-2022) [MP3|320 Kbps] <Progressive Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manhã dos 33 (Sagrado Coração da Terra Version) [00:04:22]
+02. Nights in White Satin (Moody Blues Version) [00:04:56]
+03. Miracle Of Love (Eurythmics Version) [00:04:37]
+04. Sometimes You Can't Make It On Your Own (U2 Version) [00:05:08](   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 13 CD, 17:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9546BCF4E4C4D02300E9F9F67DE98F713714EF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1197672   (813661) от 08.01.2018
+
+VA - Europa Plus: ЕвроХит Топ 40 - Итоги года (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rag N Bone Man  -  Human  3:20
+02.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:46
+03.  Ed Sheeran  -  Shape Of You  3:54
+04.  Imagine Dragons  -  Thunder  3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A5A402BC3941B851667D09E3F40D730186572F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118075   (813620) от 25.03.2017
+
+VA - Tech House Vol. 1 (2017) b84 Version [MP3|320 Kbps] <Techno, Tech-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrian Hour - Love Something (Original Mix)
+02. CLAWZ SG - Emerge
+03. D-Deck - Bento (Original Mix)
+04. Guy Gerber, Deniz Kurtel - Here Comes The Rain (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech-HouseПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10996082AB1963AA3183E283551C25C439E97853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008635   (813416) от 19.04.2016
+
+VA - Зарубежная Дискотека ХХ Века - 7 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus - Live Is Life ( 1984 )
+02. Mo-Do - Super Gut ( Radio Edit Remix 1994 )
+03. Off - Electrica Salsa ( Baba Baba ) ( 12' Version 1986 )
+04. Dee D. Jackson - Automatic Lover ( 1978 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC21A59B2392C3030AD11EB56580C4E48435CD09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008770   (813411) от 19.04.2016
+
+VA - 50 оттенков музыки 18+ (02.2016) [MP3|112-320 кб/с] <Pop, Dance, Electronic, Dubstep, Other, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Conner Youngblood - Monsters
+002. Robot Koch - Nitesk
+003. Duke Dumont - Ocean Drive
+004. The Weeknd  - The Hills (slowed)(   Читать дальше...   )Жанр: Pop, Dance, Electronic, Dubstep, Other, RockПродолжительность: 13:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E192A2B1407D01672BDA1521A386C184D040D038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118176   (813302) от 25.03.2017
+
+VA - Дискотека 2017: Club Dance Hits (Compiled by Zebyte) (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Quintino - Underground (Extended Mix)  3:58
+02.  Hardwell & Quintino - Baldadig  2:56
+03.  DBSTF & Maurice West - Temple (Extended Mix)  3:59
+04.  Sick Individuals & Holl ft. Rush - Helix (Extended Mix)  4:23(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5771F14AD014CACB8C4CBFCCDA839C3AE95C1BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008698   (813253) от 19.04.2016
+
+VA - The Best of 80s Vol.2 (2016) [MP3|320 кб/с] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Only You 06:49
+02. Savage - Radio 05:54
+03. Joy - Touch By Touch 05:24
+04. Modern Talking - Atlantis Is Calling (S.O.S. For Love) (Extended Version) 05:26(   Читать дальше...   )Жанр: Disco, Eurodance, PopПродолжительность: 06:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81352F941D7BF88E4587BF8CB0C18063D29597A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008647   (813238) от 19.04.2016
 
 Ирина Круг - Лучшие песни о любви (2015) [MP3|320 кб/с] <Shanson>
@@ -571,180 +745,6 @@ VA - Club Dance Ambience Vol.104 (2017) [MP3|320 Kbps] <House, Mash Up, Dance, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93D8541CBC6519425DE9C93EE72F2B2F6CC7F56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009213   (811487) от 20.04.2016
-
-VA - The Best World Ballads - 29 (2016) [MP3|320 кб/с] <Pop, Rock, Blues, Rap, R'n'B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811487.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Sia-House On Fire 4:01
-002 Gavin DeGraw-Soldier 3:31
-003 The Hardkiss-Helpless 3:37
-004 Ronan Keating-Grow Old With Me 4:18(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 16:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE87620548BF826C8F1EEE6A9D145EDE522C28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118499   (811486) от 26.03.2017
-
-VA - Лирика Весны: Авторская Песня (2017) [MP3|256 Kbps] <Шансон, Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811486.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дмитрий Кубасов - Не Вернуть 03:24
-002. Олеся Гришина - Метель 04:43
-003. Александр Малинин & Елена Ваенга - Две Души 03:39
-004. Лариса Гордьера - Родной Человек 04:18(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 09:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7476E5B5C2643DCF69C0A1AD64E8A3B192D02AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118875   (811485) от 26.03.2017
-
-VA - Hits Cocktail vol.4 (2017) [MP3|192-320 Kbps] <Dance , Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thimlife Feat. BibianeZ - Home (CandyCrash & Black Due Bootleg)
-02. Lizot Feat. Emelie Cyreus - On The Top
-03. Kungs Feat. Ephemerals - I Feel So Bad
-04. Sick Individuals & Holl & Rush - Helix (Extended Mix)(   Читать дальше...   )Жанр: Dance , ClubПродолжительность: 06:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529D0B7BE1AB47F349E6AC78A01D4539F9AAD225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118262   (811480) от 26.03.2017
-
-VA - Кафе-шантан. Академия хитов шансона (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811480.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ольга Стельмах - Кафе шантан
-002. Евгения Шишова - Стали чужими
-003. Аркадий Северный - Вернется Снова Счастье К Нам
-004. Добролевский Игорь - Не зови(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623EF1BD22701FBE9ED9A58A8FA6BD389563D05F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118681   (811476) от 26.03.2017
-
-VA - Весна В Эфире: Популярный Русский Хит (2017) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811476.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artik & Asti - Неделимы 03:27
-002. K.Stelmah - Не Вернусь 03:06
-003. Lana B & Efiel - Испания 04:03
-004. Ro-Dion - Закрываю Глаза 03:31(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95CD69E03F948D930B0119509A2FC6A175058152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118773   (811370) от 26.03.2017
-
-VA - Record Super Chart #480 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  3:20
-02.  Estradarada - Вите Надо Выйти (Misha Klein Remix)  4:18
-03.  Consoul Trainin - Take Me To Infinity (Amice Remix)  4:44
-04.  Klaas - Riot (Extended Mix)  4:00(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456A148EEDB59799C68382CEB2061C18F90BAC71
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1555046   (39391) от 24.10.2024
+
+Sarah Vaughan - The Divine One (1961) 2017, Hallmark [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have You Met Miss Jones [2:24]
+02. Ain't No Use [3:56]
+03. Every Time I See You [3:02]
+04. You Stepped Out of a Dream [2:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F830F57CD4D8ED83A7EC7529B46781A980E277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554499   (39390) от 24.10.2024
 
 Sarah Vaughan & Quincy Jones - You're Mine You (1962) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ VA - Funk Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1EF830C4182B512E2D9820D2AA915BB18EB6B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758919   (38174) от 05.11.2024
-
-Lester Young - The Complete Aladdin Recordings (1942 - 1947) 2CD, 1995, Blue Note [APE|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumpin' with Symphony Sid [3:11]
-02. No Eyes Blues [3:00]
-03. Sax-O-Be-Bop [2:53]
-04. On the Sunny Side of the Street [3:00](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2AA94EEAF07987F3A3DD9E40AD641CB0FDED58
 ```
 
 https://mybot314.ru/tekegram_catalog/

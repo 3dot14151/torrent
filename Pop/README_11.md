@@ -1,3 +1,61 @@
+###  Публикация: 1443197   (1035707) от 28.01.2021
+
+Steps - What the Future Holds (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop, Euro Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What the Future Holds (Single Mix) [03:49]
+02. Something in Your Eyes [03:02]
+03. Clouds [03:55]
+04. To the Beat of My Heart [03:10](   Читать дальше...   )Жанр: Dance Pop, Euro DiscoПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8374C7A1593273BFD1997E5DA150BBEA712AC74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617221   (1035558) от 05.03.2023
+
+Various - Here It Is: A Tribute To Leonard Cohen (2022) [FLAC|Lossless|image + .cue] <Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продюсер Ларри Кляйн отдает дань уважения своему другу Леонарду Коэну, выпустив альбом, который представляет потрясающие новые исполнения композиций легендарного певца и автора песен в исполнении экстраординарного состава вокалистов.01. Norah Jones — Steer Your Way
+02. Peter Gabriel — Here It Is
+03. Gregory Porter — Suzanne
+04. Sarah McLachlan — Halleluja(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE33E170C44A58EBCD0961721604CA4946B0B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443596   (1035475) от 29.01.2021
 
 Mark Ashley - MT (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
@@ -687,64 +745,6 @@ VA - New Italo Disco Music 1 (Selected by DJ Adamski) (2016) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8012F8F9D72E5DCA72F1D8B79E2E5E24D2635660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444310   (1034653) от 01.02.2021
-
-VA - Acoustic Versions of Pop Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talisha Karrer - Hazard (03:30)
-02. Shannon & Keast - Jealous (04:32)
-03. Landa - Nothing Breaks Like a Heart (03:44)
-04. Logan York - Stay with Me (03:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2D8947FDDB4E485A2FEF0A3B58AE682D322DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444170   (1034647) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven42 - Just Tonight (Extended Version) (7:25)
-02. Birizdo I Am - Melinda (EP Version) (7:33)
-03. Nikita Fomin - Stranger (Dream Version) (6:23)
-04. Fancy - Moscow Is Calling (On The Line Mix) (7:16)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA8B85DCB9552ED8B1FDFD51719EFA9C4A72262
 ```
 
 https://mybot314.ru/tekegram_catalog/

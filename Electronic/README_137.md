@@ -1,3 +1,61 @@
+###  Публикация: 1202889   (789103) от 31.01.2018
+
+VA - Cozy Chillout Times (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light in Color - Take Cover 05:27
+02. Georgette Gabel - Sin Moon 04:08
+03. Aaron Steve - Sir Tingeling 03:42
+04. Elias Harmon - Sonic Flow 05:02(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E6B5CE89EF5C77E20D8A8B1AC085CC2532124A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202890   (789100) от 31.01.2018
+
+Wintersilence - Slow Focus (2016) Musical Philosophy [FLAC|Lossless|tracks+.cue] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Focus (09:29)
+02. Snow Realm (07:14)
+03. Isolation (09:09)
+04. Winterzauber (03:44)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3288A703B6FECACAD381A05C976A13873DF96BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203068   (789099) от 31.01.2018
 
 Microtrauma - Sonar (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive House, Minimal>
@@ -687,64 +745,6 @@ VA - Deep House | Odyssey, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D93FF85C07A9CE6BE205C8253F9094F010AB6D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203239   (788664) от 01.02.2018
-
-VA - Chai Cafe (Early Morning Music For Awakening & Relaxation) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Phillipson – Spare A Thought 02:51
-02. Aleksandar Dimitrijevic – Illuminate No Drums Version 05:05
-03. Anaamaly – I Am Perfect Either Way 04:59
-04. Matt Starling – Music For Nina 07:28(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46330FC0DFBE60BFA0733DBE3ED5099373DC4B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203155   (788663) от 01.02.2018
-
-VA - Aurora Borealis Chillout 1 (2018) [MP3|320 Kbps] <Chillout, Instrumental, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Zierke  -  Memories (Instrumental Version)  2:38
-02.  Duplicity  -  Matte White Magic (Original Mix)  6:04
-03.  Morris Jones feat. Kim Greene  -  Let It Flow (Radio Edit)  3:39
-04.  Andre Schluter  -  Miss You (Patricio AMC Remix)  4:16(   Читать дальше...   )Жанр: Chillout, Instrumental, AmbientПродолжительность: 02:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F05485BCBAC6CA684CB8D580E4BC68B5BBC6136
 ```
 
 https://mybot314.ru/tekegram_catalog/

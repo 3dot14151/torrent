@@ -1,3 +1,67 @@
+###  Публикация: 476281   (85471) от 31.03.2012
+
+VA - The Ultimate Chilled Album (2008) [FLAC|Lossless]<Chillout, Lounge, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Man Called Adam - Love Forgotten
+02. Cagedbaby - Strawberry Letter 23
+03. The Cobra Experience - On The Verge (Blissed Out Mix)
+04. Kooka - Wanted
+05. Bridge Avenue - Momido
+06. The Sansom Affair - Emerald Dreams
+07. The Economist - Global Diffusion
+08. Yellow Stars - Roll The Dice
+09. Mister Rose And The Electric Birdcage - Running Lights
+10. The Glug Glug Cartel - Weightless (Heaven Mix)(   Читать дальше...   )2008Жанр: Chillout, AmbientПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474488   (84902) от 28.03.2012
+
+Катя Чехова - Сердце тебе в ответ (Сингл) (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84902.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Оригинал
+2. Лёгкая версия
+3. Агент Смит клаб микс
+4. Акапеллп2012Жанр: HouseПродолжительность: 00:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CC6CC2442559A197290C0AA3EE51293EAEE134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472880   (84584) от 26.03.2012
 
 Maxim (Prodigy) - Hell's Kitchen (2000) [APE|Lossless]<Big Beat>
@@ -760,64 +824,6 @@ VA - Armin van Buuren - A State Of Trance 1206 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B516FA2642633636A8D571CD7DAEE44F7C4DE820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770838   (71941) от 03.01.2025
-
-VA - Trance - Charted Only (Winter Edition), Vol. 1 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Kazal - Beyond The Stars (Extended Mix) [6:06]
-02. Kenny Mitchell (UK) - Reflections (Extended Mix) [6:59]
-03. Robznow & John Holt DJ - Breathe In Space (Original Mix) [4:47]
-04. Static State (UK) - Transcended (Extended Mix) [7:03](   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDA8ABB487F3250C879E8450E205A531BCEF5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771259   (71927) от 05.01.2025
-
-VA - A-Mase - Best of 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase - Om Shivam (Original Goa Mix) [6:34]
-02. A-Mase & Vika Grand - Fever (Melodic Techno Mix) [5:18]
-03. A-Mase & Sharliz - Beautiful Things 2.0 (Original Mix) [7:04]
-04. A-Mase - Imagine 2.0 (Original Mix) [8:47](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA6C3F6D1A56BB1C2BEFF006A2AFE34EC02D357
 ```
 
 https://mybot314.ru/tekegram_catalog/

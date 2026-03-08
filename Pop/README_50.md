@@ -1,3 +1,61 @@
+###  Публикация: 1491476   (910344) от 25.08.2021
+
+VA - Disco Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bee Gees - More Than A Woman (From "Saturday Night Fever" Soundtrack) (03:16)
+02. Donna Summer - Hot Stuff (Single Version) (05:14)
+03. Abba - Waterloo (02:45)
+04. Kool & The Gang - Celebration (04:58)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC8A840E002B52A16E22ADA2A885E8B25A25177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990843   (909992) от 26.02.2016
+
+VA - World Dance Music (2004) [FLAC|Lossless|tracks + .cue] <Trance, World & Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rahmaj - Fly to India (1:59)
+02. Gitan Suite - Spanish Dream (1:54)
+03. Lya Cannes - Vuela Vuela (3:00)
+04. Kariber - Mueve (3:29)(   Читать дальше...   )Жанр: Trance, Folk, World, & Country, PopПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4105AE9EFD27D4F3362A1B4929BC9A23598CB5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 625187   (909881) от 29.01.2017
 
 ВИА Верасы - Советская эстрада. Избранное (2CD) (2009) [MP3|320 кб/с]<поп, ретро>
@@ -681,67 +739,6 @@ Ace Of Base - Singles Of The 90s (1999) [FLAC|Lossless|image + .cue] <Europop, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72626313AC56A72D34F836114A6DCB12363FB941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991523   (905854) от 28.02.2016
-
-Дмитрий Маликов - Зовут тебя красивым именем (2016) [MP3|256 кб/с] <pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зовут тебя красивым именем
-02. Больше не моя
-03. Ты моей никогда не будешь (Radio Edit)
-04. Ещё, ещё(   Читать дальше...   )Жанр: popПродолжительность: 01:24:35
-
-Дмитрий Маликов 25 февраля 2016 года выпустил сборник своих лучших лирических композиций. Альбом получил название «Зовут тебя красивым именем» - по новой песне, премьера которой состоялась на недавнем концерте в Санкт-Петербурге.
-- Многим она сразу запала в душу, - написал Дмитрий в блоге. - Стихи к ней написаны близким мне человеком.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E9D0751A44CCF27C2214E95A3976A75B27CE2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369168   (905699) от 22.03.2020
-
-VA - Die Neue Schlagerparade 2020 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905699.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Thomas Anders feat. Florian Silbereisen - Sie sagte doch sie liebt mich
-2. Olaf Henning - Bis ans Ende dieser Welt (Pesch Remix Radio Version)
-3. Ben Luca - Liebessymphonie(   Читать дальше...   )Жанр: PopПродолжительность: 02:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EFD32B4241E65D3A0B1C85C55C3C0F46B88CF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

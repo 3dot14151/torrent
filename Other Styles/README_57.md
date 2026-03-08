@@ -1,3 +1,32 @@
+###  Публикация: 1021324   (732471) от 29.05.2016
+
+Deep Forest - Evo-Devo (2016) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Ambient, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simply Done (03:10)
+02. Stutter Dream (03:59)
+03. B-Vatar (03:27)
+04. Oyme’s Song (05:14)(   Читать дальше...   )Жанр: New-Age, Ambient, ElectronicПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7456F8C8F00799897E4C9B8211946803B158340F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126928   (732083) от 21.04.2017
 
 VA - Yoga Mantras & Dance: Power Yoga Music & Ecstatic Dance Beats (2014) [MP3|320 Kbps] <Chillout, Ethnic, Downtempo, New Age>
@@ -713,35 +742,6 @@ Big City Indians - Tuwa (2012) [MP3|320 Kbps] <Native american, New Age, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE045129D966191EC8248F8908B6A58C46AC3DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284297   (729925) от 20.02.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  9 (1994) [MP3|320 Kbps] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonata in D
-02. Sound of a song
-03. Hear my song
-04. Solveig's song(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CE33304A986829D2EE8BEF9C946ECD7896624A
 ```
 
 https://mybot314.ru/tekegram_catalog/

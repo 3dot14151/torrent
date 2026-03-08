@@ -1,3 +1,61 @@
+###  Публикация: 1850236   (1054252) от 26.01.2026
+
+T-4-2 - ReSynth (2026) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, Retrowave, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Images of Heaven [00:03:31]
+02. Cars [00:04:28]
+03. Heartbreak Hotel [00:04:26]
+04. Make a Circuit with Me [00:03:37](   Читать дальше...   )Жанр: Synthpop, Futurepop, Retrowave, ElectropopПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064D409D79C39D8350E71B5C12C504607C3393B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850262   (1054236) от 27.01.2026
+
+VA - Island Grooves: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V-Sta - Carefree (Original Mix) (4:54)
+02. Marie Therese - I See You (Houie D`s Chill Remix) (4:05)
+03. Beamy - Space (Original Mix) (5:12)
+04. Autonne - Electrified (Original Mix) (2:30)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D8A451DAA178E613BA8492AE558AA439E0507E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850311   (1054208) от 27.01.2026
 
 VA - Dance Charge Of The Night (2026) [MP3|320 Kbps] <Club, Dance, House>
@@ -686,64 +744,6 @@ The Honest Shadow - Under The Sun (2026) [MP3|320 Kbps] <New Wave, Post-Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B141B5ACADC9E73EB19385462AEA1787303FBFA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848679   (1052935) от 18.01.2026
-
-VA - Winter Lounge Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegant Ape - Feel The Fire (3:58)
-02. Silvan7 - Summer Emotions (3:57)
-03. Fly - Live (Radio Edit) (3:13)
-04. N.E.O.N - Monday Blues (Radio Edit) (4:21)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976528B256B45A21E2FE9AD15A530CD11E1B1E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848676   (1052926) от 18.01.2026
-
-VA - Levitated Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Rocca - Once In A Lifetime (Extended Mix) [7:17]
-02. Made Of Light & Vanessa Berni - Enjoy The Silence (Extended Mix) [7:22]
-03. Alternate High - Hope (Extended Mix) [6:41]
-04. Manuel Rocca - Brighter Than Sunshine (Extended Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0429E141382DE36F3E0D12A8E2252AEEE02DF5CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

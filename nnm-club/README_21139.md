@@ -1,25 +1,25 @@
-###  Публикация: 1591949   (185543) от 20.11.2022
+###  Публикация: 1426908   (185612) от 26.11.2020
 
-Nils Patrik Johansson - The Great Conspiracy (2020) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
+Wardog - A Sound Beating (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185543.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185612.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Agitator
-02. One Night At The Cinema
-03. The Baseball League
-04. Freakshow Superstar(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:49:59
+01. Welcome To The New Underground
+02. Changing Of The Guard
+03. C.I.A.
+04. A Sound Beating(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AD21F343AB20E69C188CC7E3244447181DE97A8
+magnet:?xt=urn:btih:B9A294253CB35F68A1AD9D3F93AD7546FBE37EA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +27,220 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427028   (185542) от 26.11.2020
+###  Публикация: 1591972   (185609) от 20.11.2022
 
-Linguist 2.1 [Multi/Ru]
+Hollow Haze - Between Wild Landscapes And Deep Blue Seas (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destinations
+02. Oblivion
+03. It's Always Dark Before The Dawn
+04. Through Space and Time(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA56F1D40F5B7F3BD1FE8723CBCCA60FF87409A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426923   (185608) от 26.11.2020
+
+Vigilance - Secrecy (1997) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson
+02. Heavenward
+03. Now And Forevermore
+04. Unfinished Life(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F37258A16A010038414018A514D995135A3BA709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544148   (185607) от 25.09.2023
+
+Перри Мейсон / Perry Mason (1957-1958) DVDRip [H.264] (сезон 1, серии 1-39  из 39) Пифагор
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судебный адвокат в системе института американского правосудия — явление особое, не имеющее аналогов в европейской юридической практике. Герой Э. Гарднера не просто адвокат, он активно участвует в процессе расследования: собственноручно добывает улики, спешит попасть на место преступления раньше полиции, подчас даже скрывает на время вещественные доказательства. В (   Читать дальше...   )Производство: США, CBS Television Network, Paisano Productions, TCF Television ProductionsЖанр: детектив, криминал, драмаРежиссер: Артур Маркс, Джесси Хиббс, Уильям Д. РасселлАктеры: Рэймонд Берр, Барбара Хейл, Уильям Хоппер, Рэй Коллинз, Уильям Тэлман, Дон Андерсон, Ли Миллер, Уэсли Лау, Джордж Э. Стоун, С. Джон ЛаунерПеревод: Многоголосый профессиональный - Студия "Пифагор"Язык озвучки: Русский, английскийСубтитры: В непереведенных местахПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70FFDE204EAB818B39614DF779368147D7DF04D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426930   (185604) от 26.11.2020
+
+Insignium - In die Abgründe (2005) [FLAC|Lossless|image + .cue] <Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moorleiche
+02. Der alte Kämpe
+03. Emotional Suicide
+04. Bunkerkrieg(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B855F7824BEF54E614C0C844DBC8C3A9DDB3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603704   (185603) от 25.09.2023
+
+Ayakashi Triangle / Треугольник Аякаси [2023, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мацури Кадзамаки, ниндзя-экзорцист, занимающийся изгнанием злых аякаси, и Сузу Канаде — друзья детства, поступающие в старшую школу. Сузу не подозревает, что является медиумом и из-за этого привлекает не только безобидных, но и злых аякаси. Мацури втайне защищает свою подругу и изгоняет злых аякаси. Но Сузу узнаёт о своей способности, когда на неё нападает король (   Читать дальше...   )Жанр: комедия, романтика, сверхъестественное, этти.Режиссер: Акитая НориакиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39DB1EE8B52865395C552AEB30A796FAD55E468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426893   (185600) от 26.11.2020
+
+Nir Nakav - The Nir-Death Experiment (2020) [MP3|320 Kbps] <Progressive Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serpent King (07:17)
+ 02. Sacrifice and Bliss (06:00)
+ 03. Heartbeat (10:08)
+ 04. Iron Goddess of Mercy (07:00)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A3E52226A29AABB67EE483DC5E68AC60142888D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 645308   (185599) от 25.09.2023
+
+Борджиа / The Borgias (2013) HDTVRip (Сезон 3, серии 1–10 из 10) LostFilm
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185599.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования — знаменитое семейство Борджиа, достигшее вершин власти в Италии эпохи Возрождения.
+Слоган сериала: «Секс. Власть. Убийство. Аминь.» — полностью характеризует безжалостную политику и сексуальную распущенность, которыми запомнились в истории папа римский Александр VI, в миру Родриго Борджиа, и члены его семьи.Жанр: Историческая драмаРежиссер: Кари Скогланд, Джон Эмиел, Дэвид Лиленд, Нил ДжорданАктеры: Джереми Айронс (Rodrigo Borgia), Франсуа Арно (Cesare Borgia), Холли Грэйнджер (Lucrezia Borgia), Питер Салливан (Cardinal Ascanio Sforza), Джина МакКи (Caterina Sforza), Лотте Вербеек (Giulia Farnese), Джоэнн Уэлли (Vanozza Cattaneo), Колм Фиор (Giuliano Della Rovere) и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: 10 × ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9071358F4F890C05C26CF84E68099A771F723047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427013   (185596) от 26.11.2020
+
+Cascadea 2.0.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185542.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Linguist - быстро перевести текст с любого языка на любой другой язык.Тип издания: macOS SoftwareРелиз состоялся: 18.11.2020Разработчик: AppYogi SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+Представляем Cascadea, первый менеджер пользовательских стилей, разработанный как расширение приложения Safari и собственное приложение macOS. Cascadea позволяет легко устанавливать пользовательские стили, которые изменяют внешний вид любого веб-сайта, который вы хотите. Независимо от того, хотите ли вы, чтобы ваш канал в социальных сетях был насыщенным цветом, или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2020Разработчик: Mike FreudenПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CFD15C0B37031676467FF4A83CE50DF2FB1E24C
+magnet:?xt=urn:btih:F0BC426577AE17B6562E735013B184BB46BAF60A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +248,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426907   (185540) от 26.11.2020
+###  Публикация: 485239   (185595) от 25.09.2023
 
-Wardog - Scorched Earth (1996) [FLAC|Lossless|image + .cue] <Power Metal>
+Борджиа / The Borgias (2012) HDTVRip (сезон 2, серии  1-10 из 10) LostFilm
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185595.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования — знаменитое семейство Борджиа, достигшее вершин власти в Италии эпохи Возрождения.
+Слоган сериала: «Секс. Власть. Убийство. Аминь.» — полностью характеризует безжалостную политику и сексуальную распущенность, которыми запомнились в истории папа римский Александр VI, в миру Родриго Борджиа, и члены его семьи.Производство: США, Венгрия, Ирландия, Канада, Showtime Networks, Take 5 Productions, Octagon FilmsЖанр: драма, мелодрама, криминал, историяРежиссер: Нил Джордан, Кари Скогланд, Джон МэйбериПеревод: Многоголосый профессиональный — LostFilmЯзык озвучки: РусскийПродолжительность: ~00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A15D14944B657E2AC385B5D19F6845932AE183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914355   (185592) от 25.09.2023
+
+Рухнувшие небеса / Сошедшие с небес / Falling Skies (2015) WEB-DLRip (сезон 5, серии 1-10 из 10) LostFilm
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инопланетное вторжение стало для землян полной неожиданностью. Несколько выживших объединяются, чтобы ежедневно бороться за выживание и попытаться наладить связь с такими же как они «счастливчиками» из других городов, и дать отпор захватчикам из космоса.Производство: США, Канада, DreamWorks Television, TNT Originals, Invasion ProductionsЖанр: фантастика, боевик, триллер, драма, приключенияРежиссер: Грег Биман, Олатунде Осунсанми, Серджо Мимика-ГеззанАктеры: Ноа Уайли, Мун Бладгуд, Дрю Рой, Коннор Джессап, Максим Найт, Сейшелл Гэбриел, Уилл Пэттон, Сара Картер, Колин Каннингэм, Питер СинкодаПеревод: Многоголосый профессиональный - LostFilmЯзык озвучки: РусскийПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F8FE6D8AE641BFE7699F7D30F8123CE60C0582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426906   (185591) от 26.11.2020
+
+Андрей Кузечкин | Хозяева (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Митя – обычный школьник, живущий в небольшом городке. В семье у него не всё благополучно: мать с отцом часто ссорятся, и подросток предпочитает проводить время вне дома. Однажды он садится в трамвай, который провозит его через странное место, не отмеченное ни на одной карте. Стремясь разгадать эту загадку, Митя подвергается смертельной опасности. Уже несколько лет (   Читать дальше...   )Жанр: Фантастика, Приключения для детей, Книги для подростковФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545475433F9C46FCE8D5798AD46D51E5E52E451C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426924   (185588) от 26.11.2020
+
+Vigilance - Edge Of Time (1999) [FLAC|Lossless|image + .cue] <Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185540.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185588.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scorched Earth
-02. Sounds Of War
-03. Broken But Not Dead
-04. Seeing Is Believing(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:13
+01. Judgement Day
+02. Tease Of Influence
+03. Prisoner Of Fate
+04. Blame & Praise(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EE6EE3C1643C8AB3770F8440BD040544C5C53DE
+magnet:?xt=urn:btih:56216442FBDBF35A0FCB7C35B9B0BEDB6126D02F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +356,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591973   (185539) от 20.11.2022
+###  Публикация: 1591898   (185587) от 20.11.2022
 
-Оркестр Однозначного Овна - 2 Albums (2019-2022) [MP3|320 Kbps] <Alternative, Rock>
+Ahmad Jamal - Crystal (1987) Atlantic [FLAC|Lossless|tracks + .cue] <Post- Bop, Piano Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185539.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185587.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Три звёздочки пять звёздочек! [00:04:01]
-02. Водолея [00:03:24]
-03. Дерево. Дерево. Предерево. [00:03:18]
-04. Спирали [00:03:00](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 2 CD, 00:56:49
+01. Quest for Light [4:50]
+02. Arabesque [4:46]
+03. Avo [7:04]
+04. Piano Solo 11 [1:59](   Читать дальше...   )Жанр: Post- Bop, Piano JazzПродолжительность: 00:44:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E5ED98203EFAC46D1BBABA98F31CE24BC809CC2
+magnet:?xt=urn:btih:C982134DB6FA81F6E8F7518395CAE5C8C7E6DFB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +385,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591994   (185537) от 20.11.2022
+###  Публикация: 914379   (185586) от 25.09.2023
 
-Sweet Oblivion - Sweet Oblivion (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+Рухнувшие небеса / Сошедшие с небес / Falling Skies (2015) WEB-DL [H.264/720p] (сезон 5, серии 1-10 из 10) LostFilm
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>След.
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185537.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. True Colors
-02. Sweet Oblivion
-03. Behind Your Eyes
-04. Hide Away(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:10
+Инопланетное вторжение стало для землян полной неожиданностью. Несколько выживших объединяются, чтобы ежедневно бороться за выживание и попытаться наладить связь с такими же как они «счастливчиками» из других городов, и дать отпор захватчикам из космоса.Производство: США, Канада, DreamWorks Television, TNT OriginalsЖанр: фантастика, боевик, триллерРежиссер: Грег Биман, Серджо Мимика-Геззан, Адам КэйнАктеры: Колин Каннингэм, Максим Найт, Ноа Уайл, Мун Бладгуд, Мфо Коахо, Сара Картер, Коннор Джессуп, Брюс Грэй, Дейл Дай, Дрю Рой и др.Перевод: Многоголосый профессиональный - LostFilmЯзык озвучки: Русский, английскийСубтитры: английскиеПродолжительность: ~00:42:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94C5F8CA53E38F84536D3C78B4FFC89F6FEE48BE
+magnet:?xt=urn:btih:FBA63308C7987AF03E27F8DA9D0E99F85B393557
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,257 +411,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664607   (185536) от 26.09.2023
+###  Публикация: 1427019   (185583) от 26.11.2020
 
-Ataraxie - The Other Path (2003) Demo [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Other Path (09:07)
-02. My Last Breath (04:47)
-03. Behind The Mask (06:49)
-04. Eternal Sufferings (05:49)(   Читать дальше...   )Жанр: Funeral Doom, Death MetalПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8269CAD14FB1FD331C368B04EC4A9C42266836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591541   (185535) от 20.11.2022
-
-Удовлетворительное Поведение - Ангелы с Грязными Душами (2022) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Радио [00:02:08]
-02 - Стирай Помаду [00:02:56]
-03 - На Кухне [00:03:13]
-04 - WhiskyCore [00:02:45](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C2100ECF7298395BF1B99449C54A317D8BE7F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664482   (185533) от 26.09.2023
-
-Prospective - Haunt Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_185533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haunt Me [00:03:39]
-02. Trapped [00:03:05]
-03. Hiding the Truth [00:03:31]
-04. Still Searching [00:03:03](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:16:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555FFBDB5A86952DBA497504A3B7C20C02C3C56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591715   (185532) от 20.11.2022
-
-The Real McKenzies - Songs of the Highlands, Songs of the Sea (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scotland the Brave [00:03:10]
-02. A Red, Red Rose [00:01:43]
-03. Ye Jacobites by Name [00:02:54]
-04. The Green Hills of Tyrol [00:03:00](   Читать дальше...   )Жанр: Celtic Punk RockПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B34ED351D63B68D0FCE531CF764B6D0A1AB138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591707   (185528) от 20.11.2022
-
-Олег Чубыкин - 400 отелей (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сок и слёзы [00:03:40]
-02. Имена и цифры [00:03:16]
-03. Лучше чем деньги [00:03:47]
-04. Новый друг [00:03:45](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59DB8E3BB401B35D30EA2694469314C79BE6888F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591969   (185527) от 20.11.2022
-
-Ликёр Жара - 2 Albums (2017-2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:42]
-02. Доступ закрыт [00:03:21]
-03. Устал [00:02:17]
-04. Между нами [00:04:16](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9735BB9B9FD7FDC828578CA80078D064932DFE3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664480   (185526) от 26.09.2023
-
-Barrence Whitfield & The Savages - Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Situation [00:03:17]
-02. Cape May Diamond [00:01:48]
-03. Hey Miss Glynis [00:02:24]
-04. Right Hand Man [00:02:29](   Читать дальше...   )Жанр: Garage RockПродолжительность: 00:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D777C6D06D54E90BF1C00408BBAD93E9B4A52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591821   (185524) от 20.11.2022
-
-Otus - Torch (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Tenebris 01:21
-02. Through the Flesh 07:24
-03. The Vessel 12:15
-04. Apnea 05:37(   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344BE5507F7DFFF5F20FFC49A9D7F00B2593D887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427008   (185523) от 26.11.2020
-
-Permute 3 v3.5.11 [Multi/Ru]
+ImageRanger Pro Edition 1.7.7.1667 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185523.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 19.11.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, английский и др.
+ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 25.11.020Разработчик: XtSense GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E220406A0AEDE3AA9E049F8404B9B5B879E18127
+magnet:?xt=urn:btih:86647E9B61CA22070C21D7A793744AF43AE61717
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,28 +437,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664597   (185522) от 26.09.2023
+###  Публикация: 667642   (185582) от 25.09.2023
 
-Bio-Cancer - Revengeance (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+Рухнувшие небеса / Сошедшие с небес / Falling Skies (2013) WEB-DLRip [H.264/720p] (сезон 3, серии 1-10 из 10) LostFilm
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185522.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185582.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Citizen... Down! (05:05)
-02 - 44 Days in Hell (06:35)
-03 - Footprints on My Back (05:19)
-04 - Revengeance (05:11)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:20
+Инопланетное вторжение стало для землян полной неожиданностью. Несколько выживших объединяются, чтобы ежедневно бороться за выживание и попытаться наладить связь с такими же как они «счастливчиками» из других городов, и дать отпор захватчикам из космоса.Производство: США, Канада, DreamWorks Television, TNT Originals, Invasion ProductionsЖанр: фантастика, боевик, триллер, драма, приключенияРежиссер: Грег Биман, Холли Дэйл, Серджо Мимика-ГеззанАктеры: Колин Каннингэм, Максим Найт, Ноа Уайл, Мун Бладгуд, Мфо Коахо, Сара Картер, Коннор Джессуп, Брюс Грэй, Дейл Дай, Дрю Рой и др.Перевод: Многоголосый профессиональный (LostFilm)Язык озвучки: Русский, английскийПродолжительность: ~00:43:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E09D6E9AD4F90B9BE9966DA37CF4738FF00A772
+magnet:?xt=urn:btih:ABB20FADE1523A835655701799A34A3AAC7F8CD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,86 +463,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591781   (185519) от 20.11.2022
+###  Публикация: 1592015   (185581) от 20.11.2022
 
-Анатомия Меланхолии - Мир Морок (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Groove Metal, Melancholic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Разобщённые (Instrumental) [00:03:21]
-02. Сбежать (Instrumental) [00:04:29]
-03. Жизнь без гайдов (Instrumental) [00:04:53]
-04. Купи-продай (Instrumental) [00:03:36](   Читать дальше...   )Жанр: Heavy Metal, Groove Metal, Melancholic MetalПродолжительность: 2 CD, 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CD347EE059A86ECAE78073C402C22498BAF14E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426918   (185518) от 26.11.2020
-
-Virgin Snatch - In The Name Of Blood (2006) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. State Of Fear
-02. Purge My Stain!
-03. Bred To Kill
-04. IV - Vote Of No Confidence(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40;12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051093CEE088F26ADB48BFCC63BD0CE994BD3DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664497   (185517) от 26.09.2023
-
-West Alley - A Night To Remember (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
+Orbiter - A Goddamn Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Bluesy>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185517.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What A Night To Remember [00:03:28]
-02. Good Times [00:04:14]
-03. Fortune And Fame [00:04:16]
-04. Miracles Can Happen [00:04:24](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:50:57
+01 Built Like A Tank
+02 A Goddamn Classic
+03 The Rat King
+04 Don't Trust Them Devils(   Читать дальше...   )Жанр: Heavy Rock, Stoner, BluesyПродолжительность: 00:28:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:250F79B4427375675BCD4CE14617240D64F90959
+magnet:?xt=urn:btih:1E611648BA69A1746DB03E5F34B7B2775B71598C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,28 +492,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591593   (185514) от 20.11.2022
+###  Публикация: 1426933   (185578) от 26.11.2020
 
-Troll - Collection (1995 - 2010) 5 CD [FLAC|Lossless|image + .cue] <Black Metal, Symphonic Black Metal>
+Strigoi - Abandon All Faith (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185514.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.	Til helvete med alt
-2.	Alt for Satan
-3.	Gå til krig
-4.	Burn the Witch(   Читать дальше...   )Жанр: Black Metal, Symphonic Black MetalПродолжительность: 02:27:31
+01. The Rising Horder 01:26
+02. Phantoms 04:26
+03. Nocturnal Vermin 01:49
+04. Seven Crowns 03:17(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29CE8386EE73A1EE3C3B3DB5D8E0D37701BD8F0E
+magnet:?xt=urn:btih:0D090EA5CD87D0B49613443820FF99BAA2D6EB28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,27 +521,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664489   (185513) от 26.09.2023
+###  Публикация: 1646535   (185577) от 25.09.2023
 
-Saltwound - In the Shadow of the Valley of Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Beatdown Deathcore>
+Основание / Foundation (2023) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 2, серии 1-10 из 10) Невафильм, LostFilm, HDRezka, TVShows, Ю. Сербин (обновляемая)
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>След.
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185513.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185577.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shadows Remain [00:03:51]
-02. The Company You Keep [00:03:52]
-03. The Negative, Pt. 2 [00:03:15]Жанр: Beatdown DeathcoreПродолжительность: 00:10:59
+Сериал основан на одноимённой серии романов Айзека Азимова. В далёком будущем люди расселились за пределами Земли. Однако Галактическая империя грозит рухнуть, согласно расчётам ученого Гэри Селдона. И он создаёт организацию «Основание», призванную восстановить человеческую цивилизацию после грядущих потрясений.Производство: США / Skydance Television, Latina Pictures, Wild Atlantic PicturesЖанр: фантастика, драмаРежиссер: Алекс Грейвз, Роксанн Доусон, Дженнифер ФангАктеры: Джаред Харрис, Ли Пейс, Лу Льобелл, Леа Харви, Лаура Бирн, Терренс Манн, Кассиан Билтон, Саша Бехар, Эллиот Кауэн, Дэниэл МакФерсонПеревод: Дублированный (Невафильм), Профессиональный многоголосый (LostFilm, HDRezka, TVShows), Авторский (Ю. Сербин)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full, SDH), английские (Full, SDH)Продолжительность: ~00:50:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:475BD460B26C0E011BF9F4EF34DEBC4AEC9601E1
+magnet:?xt=urn:btih:BF590123F94ECE011A76B030F29D796B9BB06943
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,28 +547,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426936   (185512) от 26.11.2020
+###  Публикация: 1591954   (185576) от 20.11.2022
 
-Symphorce - Godspeed (2005) [FLAC|Lossless|image + .cue] <Power Metal>
+Freternia - The Gathering (2019) [FLAC|Lossless|image + .cue] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185512.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Forsight [0:33]
-02. Everlasting Life [4:13]
-03. No Shelter [3:55]
-04. Nowhere [4:39](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:50
+01. Intro
+02. Reborn
+03. Last Crusade
+04. The Escape(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:014118D6C9EA4342067BFCF379694761DCD511B8
+magnet:?xt=urn:btih:CB6338F2CF273987A8983F55090E15F557E17D8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,55 +576,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592027   (185509) от 20.11.2022
+###  Публикация: 1591808   (185573) от 20.11.2022
 
-Чудо техники с Сергеем Малозёмовым (20.11.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помогают ли бытовые дозиметры обнаружить радиоактивные продукты? Где намеренно облучают еду, чтобы продлить ей срок годности и избавить от болезнетворных микробов?
-LED-маски и игольчатые патчи творят чудеса с кожей или могут лишь навредить? Что думают косметологи об одноразовых масках и тех, что можно замораживать, нагревать и использовать по несколько раз? Не опасно (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB337054C6EE86132C3EC3613FDDB526E0404FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426883   (185508) от 26.11.2020
-
-Shawn Pittman & Jay Moeller - Straight Blues From Crooked Fools (2020) [MP3|320 Kbps] <Rock, Blues Rock>
+Desert Wave - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Space>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185508.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rattlesnakes (02:04)
- 02. Everybody Wants To Know (04:02)
- 03. Smarten Up Baby (03:29)
- 04. The Set Up (03:36)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:40:41
+01. Outside Pt.1 [00:03:58]
+02. Outside Pt.2 [00:03:40]
+03. Deafening Silence [00:05:22]
+04. Above [00:04:44](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, SpaceПродолжительность: 01:16:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21D33A193F9431C820D1A730E0415178238925A3
+magnet:?xt=urn:btih:3C17A4BE7A87BAEBDE511ABD4C0DEBBB9412533B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,28 +605,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664298   (185507) от 26.09.2023
+###  Публикация: 1663621   (185572) от 25.09.2023
 
-Final Gasp - Mourning Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Hardcore, Punk>
+Никто тебя не спасет / No One Will Save You (2023) WEB-DL [H.264/1080p] [DVO]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185507.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_185572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Climax Infinity (00:03:06)
-02 - Homebound (00:05:25)
-03 - Botched Ritual (00:03:00)
-04 - Frozen Glare (00:03:09)(   Читать дальше...   )Жанр: Gothic Rock, Hardcore, PunkПродолжительность: 00:37:36
+Девушка живущая в доме своего детства внезапно сталкивается с вторжением неземных обитателей.Производство: США / 20th Century Studios, Star Thrower EntertainmentЖанр: ужасы, фантастика, триллерРежиссер: Брайан ДаффилдАктеры: Кейтлин Дивер, Джинджер Крессман, Зэк Дуэйм, Джеральдин Сингер, Роуз Бьянка Гру, Дари Линн Гриффин, Елизавета Калуева, Эванджелин Роуз, Девин Сэндидж, Лорен Л. Мюррэй и др.Перевод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русский, английскийСубтитры: русские, английские, испанскиеПродолжительность: 01:33:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93D77F528BD01F0C221B440CF2BF8F0AE66D47DC
+magnet:?xt=urn:btih:01C439A76788EBB32022D26BE5894C91709BDF75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,57 +631,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664483   (185504) от 26.09.2023
+###  Публикация: 1426995   (185570) от 26.11.2020
 
-Riccardo D'attis - The Right Path (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock / Symphonic Prog / Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once upon a time [00:04:53]
-02. The world [00:06:13]
-03. A new mind [00:06:35]
-04. Listen through the echoes [00:04:18](   Читать дальше...   )Жанр: Progressive Rock / Symphonic Prog / Heavy ProgПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B6875AF6159887FC673FD1402C68CF46A80DF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426986   (185499) от 26.11.2020
-
-Do Your Data Recovery Professional 7.9 [En]
+Art Files 3 v3.3 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185499.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Do Your Data Recovery Professional – инструмент для быстрого восстановления удаленных или недоступных файлов.
-Do Your Data Recovery Professional – это простой в управлении и мощный инструмент для быстрого восстановления удаленных или недоступных файлов. Программа вернет утерянную информацию с ПК, ноутбука, жесткого диска, цифрового устройства, накопителя и т.д
-
-Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2020Разработчик: DoYourData. ALL RIGHTS RESERVED.Поддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+Art Files идеально подходит для иллюстраторов и художников или тех, кто работает с графическими файлами и нуждается в отправке документов другим лицам для редактирования или печати.
+Программа собирает все данные о .ai файлах (Adobe illustrator) - данные о шрифтах, других файлах, которые относятся к Вашему проекту. Также Art Files обладает уникальной способностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2020Разработчик: Code LineПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7C7BF858197040CA37234E2362A166E614E74E1
+magnet:?xt=urn:btih:A87987A40BE421B1E0FD6483AEA4BE1B7C28FD43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190514   (185568) от 25.09.2023
+
+Министерство времени / El ministerio del tiempo (2015-2017) HDTVRip (сезон 1-3, серии 1-34 из 34) RedDiamond Studio, Sunshine Studio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Министерство времени — секретное правительственное учреждение, о существовании которого знает ограниченное количество людей. Его цель: обнаружение и предотвращение вторжений из прошлого в наше время, либо наоборот — использование истории в своих интересах.
+Переход в другие эпохи осуществляется через врата, охраняемые министерством. Хулиан Мартинес вместе с помощниками (   Читать дальше...   )Производство: Испания / Cliffhanger, NetFlix, Onza Partners, Television Espanola (TVE)Жанр: фантастика, фэнтези, комедия, приключенияРежиссер: Марк Вихиль, Хорхе С. ДорадоАктеры: Начо Фреснеда, Каетана Гильен Куэрво, Хуан Хеа, Франсеска Пиньон, Хайме Бланч, Аура Гарридо, Уго Сильва, Родольфо Санчо, Сюзана Кордоба, Хулиан Вильягран и др.Перевод: Многоголосый закадровый, любительский - 1 сезон (RedDiamond Studio), двухголосый закадровый, любительский  - 2 и 3 сезон (Sunshine Studio)Субтитры: русские (2 и 3 сезон) (отдельным файлом)Продолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8D45CB707991A0038D6F22E782BA104C86A9F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591902   (185567) от 20.11.2022
+
+Ahmad Jamal - With the Assai Quartet (1997) Roesch Records [FLAC|Lossless|tracks + .cue] <Post- Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temple Court [10:30]
+02. Comp Time [5:40]
+03. Feast [4:20]
+04. Patouche [2:54](   Читать дальше...   )Жанр: Post- Bop, Piano JazzПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F37F4A9368903581B8136D6B3562F5C3CC838C
 ```
 
 https://mybot314.ru/tekegram_catalog/

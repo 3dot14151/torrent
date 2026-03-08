@@ -1,3 +1,32 @@
+###  Публикация: 927455   (528641) от 13.08.2015
+
+Mo Coulson & Chris Conway - Spirits of the Mermaids (2013) [MP3|320 кб/с]<New Age, Celtic, Vocal, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Towards The Shore
+02. Mermaids Join The Dance
+03. Ophelia
+04. Lure Of The Siren(   Читать дальше...   )Жанр: New Age, Celtic, Vocal, InstrumentalПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF02A5759F9F206A8F1AA870AE6A981979A42744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927249   (528636) от 13.08.2015
 
 Ketama - Antologa De Ketama (2015) 2 CD [MP3|320 кб/с]<Spanish, Nuevo Flamenco>
@@ -716,35 +745,6 @@ Fausto Papetti - Magic Sax, Vol. 2 (1989) /Sony Music/ [FLAC|tracks+.cue]<Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2416D264E84E9685DCF3BF507463082AD49283DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928677   (521471) от 17.08.2015
-
-Dexter Britain - Impression (2015) [MP3|320 кб/с]<Electronic, Neoclassical, Ambient, Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summit
-02. Wild
-03. Everything You Know
-04. Climb A Thousand Miles(   Читать дальше...   )Жанр: Electronic, Neoclassical, Ambient, Instrumental, PianoПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5773C3A9DFFB8FF8F00734F73EC5353952905B
 ```
 
 https://mybot314.ru/tekegram_catalog/

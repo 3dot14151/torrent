@@ -1,3 +1,32 @@
+###  Публикация: 983140   (945468) от 05.02.2016
+
+VA - It Had To Be You • The Ultimate Love Songs (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Coldplay - Fix You [4:55]
+02.Lily Allen - Somewhere Only We Know [3:30]
+03.Gabrielle Aplin - The Power Of Love [4:06]
+04.Labrinth feat. Emeli Sande - Beneath Your Beautiful [3:58](   Читать дальше...   )Жанр: Pop, Pop Rock, Ballad |Продолжительность: 03:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D0908087D68FDC080EAFDB9A12133EBB0453CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982933   (945295) от 05.02.2016
 
 Suzanne Vega - Retrospective: The Best Of Suzanne Vega (2003) [FLAC|Lossless|image + .cue] <Folk Rock, Indie Rock, Pop Rock>
@@ -716,35 +745,6 @@ VA - EGB: La musica de una generacion (2014) 2CD [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A11C62BD53BB7CF10E70D207627D7983F1ECFB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985864   (932522) от 13.02.2016
-
-Ronan Keating - Time of My Life (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Love You (03:15)
-02. As Long as We're in Love (03:01)
-03. Breathe (03:07)
-04. She Knows Me (03:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BD138989DA6331DF0BB0F177728CDA5D586D53
 ```
 
 https://mybot314.ru/tekegram_catalog/

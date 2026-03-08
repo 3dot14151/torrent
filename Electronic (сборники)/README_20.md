@@ -1,3 +1,32 @@
+###  Публикация: 1358908   (965826) от 10.02.2020
+
+VA - Deep Blue: Vocal House Season (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965826.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Grant David Project - Imagine
+002. Larry Scottish - Summer Rains (Extended Mix)
+003. Mangalia - Minimatt (Original Mix)
+004. Laakkinen - Forever (Extended)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDC9BC9DCE30FD47FF61698A8288065CDEF9B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977580   (965737) от 21.01.2016
 
 VA - Sentimental Tropics (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -713,35 +742,6 @@ VA - Sexy Deep House Session (2016) [MP3|320 кб/с] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FB6D06F6E8E08B5CF344F5EC1D51E76AB68F42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979941   (957409) от 28.01.2016
-
-VA - Atmosphere Bliss: Vocal And Uplifting Trance (2016) [MP3|320 кб/с] <Vocal, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957409.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beat Service - Reach The Sun (Chris SX Edit)
-002. Denise Rivera - The Day (Radio Edit)
-003. Dan Chase - Life Won't Let Us Fall (Radio Edit)
-004. Katty Heath - Love Again (Radio Edit)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 09:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6943F56C88933278292C7A6FC9D5E7734B8CED82
 ```
 
 https://mybot314.ru/tekegram_catalog/

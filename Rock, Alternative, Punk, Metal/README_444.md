@@ -1,32 +1,3 @@
-###  Публикация: 908049   (630029) от 16.06.2015
-
-FFS (Franz Ferdinand and Sparks) - FFS (2015) [FLAC|tracks|WEB]<Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Delusional [3:12]
-02. Call Girl [3:21]
-03. Dictator’s Son [4:15]
-04. Little Guy from the Suburbs [5:09](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568B27221BED1D1EDED19ABF4E358E6B81B078EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294255   (629991) от 07.04.2019
 
 Sopor Aeternus & The Ensemble of Shadows - Death and Flamingos (2019) [FLAC|Lossless|tracks] <Rock, Deathrock>
@@ -786,6 +757,35 @@ Thanatos - Angelic Encounters (2000) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:748205CC38DE4B1755696B2B0C64C76631A749F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035226   (628679) от 16.07.2016
+
+Evol - The Saga of the Horned King (1995) [APE|Lossless|image + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Present Age 3:36
+02. The Chant of the Witch 4:22
+03. From the Unknown Domain...(The King Awakes) 1:49
+04. Through Foggy Plains and Mystic Woods He Rides...2:43(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9EDA04EDC1F7F1DCFCA3A44BE843844D0630AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

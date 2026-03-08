@@ -1,3 +1,32 @@
+###  Публикация: 1007819   (819899) от 16.04.2016
+
+VA - Urban Dance Battle Nation (2016) [MP3|320 кб/с] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mykel Mars - White Beach (DJ Absinth EDM Edit) 03:20
+02. Tony Wong - Born for EDM (Muscle Mix) 03:37
+03. The Betatesters - Drop That (EDM Cardio Mix) 03:24
+04. Robby Schulz - Breathtaking (EDM Workout Anthem) 04:32(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256FBBBD829D6636AC224537A1BD9401F41E6A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007883   (819898) от 16.04.2016
 
 VA - The Best Progressive Hits Vol.5 (2016) [MP3|320 кб/с] <House, Progressive House>
@@ -728,35 +757,6 @@ VA - Extreme Sports Music Vol 4 (2020) [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1AEB60482250FDB9A7F6B2A6A69A9E4F73441A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197996   (810368) от 10.01.2018
-
-VA - Best of Nuevadark 2017 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blufeld - Rakete Zum Mond (You Are My Salvation Remix) (10:46)
-02. Jetride - Sad Piano (Gordey Tsukanov Remix) (6:36)
-03. Mavrek - Burst on Fire (Inspireds Remix) (5:46)
-04. Blufeld - Rakete Zum Mond (Alan Cuevas Remix) (7:15)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F382ECBD729A127B4ECED7A427338C07628BE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

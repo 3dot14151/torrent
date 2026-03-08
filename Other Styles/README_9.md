@@ -1,3 +1,32 @@
+###  Публикация: 1352824   (992632) от 17.01.2020
+
+Evgeny Grinko - Naive Album (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Art Thou (4:12)
+02. Dusty Room (2:42)
+03. Someone Who Forgot His Watch (3:42)
+04. Short Memory (2:45)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F805D4D7DD4D641536183BFB80875FC3B8A8D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608110   (992170) от 27.01.2013
 
 VA - Country Legends (12CD) (2005) [MP3|320 кб/с]<Country>
@@ -762,35 +791,6 @@ Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355261   (984976) от 25.01.2020
-
-Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonny Light Horseman (04:30)
-02. Deep In Love (05:09)
-03. The Roving (04:20)
-04. Jane Jane (03:06)(   Читать дальше...   )Жанр: Indie, FolkПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6994E26268B53FFF58E3491A29F2740537C84C56
 ```
 
 https://mybot314.ru/tekegram_catalog/

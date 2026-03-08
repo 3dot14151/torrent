@@ -1,3 +1,32 @@
+###  Публикация: 1017278   (761115) от 17.05.2016
+
+VA - Future EDM Essentials Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quantum Duxe - Sunwalker (Original Mix) 5:17
+02. Savant - Cassette (Notice Me Senpai Mix) 4:56
+03. Distrix - Violet Skies (Original Mix) 5:06
+04. Sasha Lemon - Sunshine (Original Mix) 4:38(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29AA87F15DC250AFDEB74776C57AB8552C7699CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394887   (760515) от 07.07.2020
 
 VA - Workout Body Man Extreme (2020) [MP3|320 Kbps] <House, Dance>
@@ -716,35 +745,6 @@ Hi_Tack - Say Say Say (Waiting 4 U) (2006) Enhanced [MP3|~245 Kbps (V0)] <House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ACB76FA9465303266D36E4DC07E8BA3CFB74201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397311   (741362) от 19.07.2020
-
-VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Hush - Good Vibrations (3:25)
-02. Orlando - Singing In The Rain (4:06)
-03. Heartclub - Super Trouper (3:53)
-04. DJ Kee - Mamma Mia (3:53)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69750BC0797E214135DE1A7F7D7DED212F7C3251
 ```
 
 https://mybot314.ru/tekegram_catalog/

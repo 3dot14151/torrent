@@ -1,3 +1,32 @@
+###  Публикация: 1286798   (705523) от 06.03.2019
+
+VA - Running House (Compilation 2019) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky Lyke feat. Nathan Brumley - Perfect Moments (Original Mix) 04:58
+02. Lucky Lyke feat. Jessia - Dancing In The Moonlight (Original Mix) 04:18
+03. James KJ - Universe (Original Mix) 05:56
+04. House Legion - Baby (Original Mix) 04:44(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4AF0EEA8588BCA0D12055BB396E5E99820154AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220538   (704507) от 19.04.2018
 
 VA - Summer Tech House 50 Fantastic Summer Groove Songs (2018) [MP3|320 Kbps] <Minimal, Tech House>
@@ -715,32 +744,6 @@ VA - Ibiza Springtime (20 Sunset Cocktails) (2019) [MP3|320 Kbps] <House, DeepHo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CD41A771B208F3F51A5E6082FF15F5D45B2B558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505237   (686268) от 07.06.2012
-
-Ghosting Season - The Very Last Of The Saints (2012) [MP3|320 кб/с]<Deep House, Ambient, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Deep House, Ambient, ElectronicПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A8350D325D953B52E998091A37DA51FDD1F3BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1602497   (204430) от 05.01.2023
+
+VA - Радио Рекорд Итоговый Суперчарт 2022 - 100 лучших треков (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204430.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alis Shuka - Not About Us (2:09)
+002. James Hype & Miggy Dela Rosa - Ferrari (3:06)
+003. Robin Schulz feat. David Guetta - On Repeat (3:10)
+004. Imanbek feat. BYOR - Belly Dancer (2:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDE9431A6892034B3C843C52613280D0696114E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602805   (204367) от 07.01.2023
 
 VA - Car Music Mix 3 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
@@ -716,35 +745,6 @@ VA - TOP Non-Stop 2010-2019 - Dance House Music (2020) [MP3|192-320 Kbps] <Funky
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E7BE9E6F0FB7300333E784B3EB8887BDA727603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627030   (199705) от 17.04.2023
-
-VA - Крутые пушки Весна 2023 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P.Diddy Feat Keyshia Cole - Last Night (Max Flame & Dacks Remix) (2:52)
-02. Wongo - - The Preacher feat. Chuck Roberts (Sammy Porter Extended Remix) (2:59)
-03. Floral - Need To Feel Loved (MYRON x ZAN Remix) Radio Edit (3:48)
-04. Eminem Feat Nate Dogg - Shake That (Max Flame & Dacks Radio Remix) (4:04)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 04:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B91D3700381007CED9EBA4ABFC6B816ED449ECA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1788486   (23003) от 30.03.2025
+
+VA - The Chillout Escape: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ian Otta - Green River (4:05)
+02. G.Pantelidis - Back to Loveliness (3:32)
+03. Marga Sol - Cottontrees (4:36)
+04. Lounge Groove Avenue - Dreamwaves (3:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A298DDCBA7AB40C4D97848E6AE4FCCB0220227A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789226   (22598) от 03.04.2025
+
+VA - SYNTHPOP NOSTALGIA (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Ha - Take On Me (3:44)
+02. Laura Branigan - Gloria (4:55)
+03. Duran Duran - Hungry like the Wolf (3:40)
+04. New Order - Age of Consent (5:15)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D7CF1AF072BB9E55CAFE26961ACD095BCEAA2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789801   (22256) от 06.04.2025
 
 State Azure - The Light That Remains (2025) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Berlin School>
@@ -687,64 +745,6 @@ Erasure - Make Me Smile (Come Up and See Me) (2003) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8F3F23C125EEFF62B8DDEEF4E6D39D18A95D05F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793472   (20386) от 24.04.2025
-
-VA - 12 Years Of Suanda Music (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Message In A Bottle (Extended Mix) [6:20]
-02. Adip Kiyoi - Admire (Extended Mix) [6:32]
-03. Alex M.O.R.P.H. & Roman Messer - Tranquillity (Extended Mix) [7:03]
-04. EpicFail & ILSE - Worth It (When it's You) (Extended Mix) [6:23](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB853991C8D20CCEE52AA810AB69815F0302084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793460   (20381) от 24.04.2025
-
-VA - Kontor Sunset Chill 2025 (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - WITH U - Karibu
-02 - Sitze - Smooth Operator
-03 - Kosheen - Hide U
-04 - Edgr - Bellakiar(   Читать дальше...   )Жанр: Downtempo, Chillout, Deep HouseПродолжительность: 05:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE97686DC11298397EB04FB835162DA7E1566E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

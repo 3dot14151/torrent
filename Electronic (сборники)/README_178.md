@@ -1,3 +1,32 @@
+###  Публикация: 1080643   (285920) от 08.12.2016
+
+VA - The Crystal Method - Best275z (1997 - 2015) [MP3|320 Kbps] <Breakbeat, Breaks, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 (Can't You) Trip Like I Do 04:29
+02 London 02:47
+03 Weapons Of Mass Distortion 04:52
+04 Born Too Slow 03:00(   Читать дальше...   )Жанр: Breakbeat, Breaks, ElectronicПродолжительность: 04:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77E9F0E1A13A6AFF170F09A50F64A6616F568F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 691916   (285820) от 10.12.2014
 
 VA - Classic Trance Collection Vol.1-19 (2013-2014) (Обновляемая) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
@@ -716,35 +745,6 @@ VA - Beach Dance Classics Radio (2) (2019) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E8C72A364165FED707B9188E01F1711E6CFB6E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964496   (281653) от 11.12.2015
-
-VA - Beatport Top 100 09.12.2015 (2015) [MP3|320 кб/с]<House, Electro, Progressive, Deep House, Tech House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281653.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michael Calfan - Breaking The Doors (Extended Mix)
-002. R3hab, KSHMR - Strong (Extended Mix)
-003. Don Diablo _ Khrebto - Got The Love (Extended Mix)
-004. Prok & Fitch - Tears (Original Mix)(   Читать дальше...   )Жанр: House, Electro, Progressive, Deep House, Tech House, TechnoПродолжительность: 10:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878D806E395BAC917DCA05564B5062AD3E5AFE12
 ```
 
 https://mybot314.ru/tekegram_catalog/

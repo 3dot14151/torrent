@@ -1,3 +1,32 @@
+###  Публикация: 1668202   (174707) от 11.10.2023
+
+Оксана Вояж - Нежности океан (2001) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нежности океан  4:35
+02. Кап-кап-кап  4:47
+03. Давняя боль  4:37
+04. Вспоминай  4:43(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A17B01951B5C42AC8F77C0117E067E2DF9A8977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430478   (173651) от 10.12.2020
 
 VA - Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C31C80EF385C25C78CCB7F202056527960609939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597558   (165884) от 15.12.2022
-
-Jennifer Lopez - This Is Me...Then (2022) 20th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still
-02. Loving You
-03. I'm Glad
-04. The One(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6524F0A4DEC8D77A6E4FDAA3C57AE32B8F1B50
 ```
 
 https://mybot314.ru/tekegram_catalog/

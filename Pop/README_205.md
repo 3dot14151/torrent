@@ -1,3 +1,58 @@
+###  Публикация: 145119   (434701) от 09.10.2009
+
+Inna - Hot (2009) [MP3|320 kbps]<Рop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_434701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РopПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063433   (434680) от 16.10.2016
+
+Madonna - Like A Virgin (1984) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Material Girl
+02. Angel
+03. Like A Virgin
+04. Over And Over(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AC38F7D04357B100DBF6995B941A6135C5ECFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410781   (433973) от 22.09.2020
 
 The Naked and Famous - Recover (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -688,64 +743,6 @@ Sandra - The Wheel Of Time (2002) [OGG Vorbis|485 Kbps] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82D0A533ED15A6877F7EB01254099F28FD50CD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571605   (429755) от 23.08.2022
-
-Sandra - Reflections (2006) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Around My Heart (2006)	3:23
-02. Stop For A Minute (2006)	3:45
-03. Hi! Hi! Hi! (2006)	4:17
-04. Maria Magdalena (2006)	3:57(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A170F20F3F96EB41D1D3F96F6666681377097A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571619   (429754) от 23.08.2022
-
-Sandra - The Art Of Love (2007) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What D'Ya Think Of Me	4:34
-02. The Way I Am	3:31
-03. The Art Of Love	4:14
-04. What Is It About Me	3:54(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEC1D7487AA50727313AD41BD4EA2CC7A026034
 ```
 
 https://mybot314.ru/tekegram_catalog/

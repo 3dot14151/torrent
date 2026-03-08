@@ -1,3 +1,32 @@
+###  Публикация: 1048896   (545513) от 03.09.2016
+
+Lindsey Stirling - Shatter Me (2014) Limited Edition, 2015, Lindseystomp Music [FLAC|Lossless|image + .cue] <Classical Crossover, Electronic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Beyond The Veil (4:15)
+ 02.Mirror Haus (3:56)
+ 03.V-Pop (3:46)
+ 04.Shatter Me (ft. Lzzy Hale) (4:41)(   Читать дальше...   )Жанр: Classical Crossover, ElectronicПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7073F492EB31054D8425FC069695C27A513B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049032   (545456) от 03.09.2016
 
 Lindsey Stirling - Brave Enough (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Electronic, Dubstep, Violin>
@@ -728,36 +757,6 @@ Frederic Chopin - The Nocturnes (Claudio Arrau) (1978) 2CD [FLAC|Lossless]<Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34AAF3FCA9977636EA57E2E28D3E06476384F920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535123   (517626) от 15.08.2012
-
-Francesco Geminiani - Six Concerti Grossi, Op. 3: Christopher Hogwood & The Academy of Ancient Music (1986) [FLAC|Lossless]<Classical, Chamber Music, Recitals, Baroque Pe
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto Grosso No.1 In D Major
-01. Adagio     (01:28)
-02. Allegro    (03:04)
-03. Adagio    (01:30)
-04. Allegro    (02:26)Жанр: Classical, Chamber Music, Recitals, Baroque PeriodПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0A349D43E6507D0F71773BC742183068C34410
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1588856   (191020) от 06.11.2022
+
+VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Schmalfuss - Piano Sonata No. 11 in A Major, K. 331 III. Alla turca. Allegretto (3:29)
+02. Peter Schmalfuss - Suite bergamasque, L. 75 III. Clair de lune (5:08)
+03. Peter Schmalfuss - Liebesträume, notturnos for piano, S. 541 No. 3 in A-Flat Major O lieb so lang' Du lieben kannst (4:00)
+04. Frank Glazer - 3 Gymnopédies I. Lent et douloureux (2:57)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F690C8233000EEDBFBD570AF2AF4DE2BB7B4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589387   (190264) от 09.11.2022
 
 Andrea Bocelli - My Christmas (2022) Fireside Edition [FLAC|96/24|Lossless|WEB-DL|tracks] <Pop, Classical Crossover>
@@ -715,35 +744,6 @@ Performer: Albert Bruggen, Frank Wakelkamp, Jaap ter Linden, Richte van der Meer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:864EA2FD208310E5BDF55099EC85862050DC3348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085958   (154315) от 23.12.2016
-
-Divna Ljubojeviс / Дивна Любоевич & Melodi - In Search Of Divine Light (2014) Valley Entertainment [FLAC|Lossless|image + .cue] <Religious, Choral>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Day Of Resurrection (Anastaseos Hemera) (1:25)
-02. In The Flesh Thou Didst Fall Asleep (The Exapostilarion Of Pasha) (0:57)
-03. Today Salvation Has Come To The World (1:48)
-04. All Of You Who Were Baptized Into Christ (2:56)(   Читать дальше...   )Жанр: Religious, ChoralПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D485F91EC26C3E58A313389B9BE5F58EC84CB4C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

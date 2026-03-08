@@ -1,3 +1,32 @@
+###  Публикация: 1039447   (596081) от 01.08.2016
+
+VA - Finding Around Happiness (Energy Tech Trance) 007 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren Ft Eric Vloeimans -  Embrace (Andrew Rayel Extended Remix) 5:13
+02. Dreamseekers -  Recall (Original Mix) 5:47
+03. Andy Moor Vs Orkidea -  Year Zero (Veniice Remix) 5:08
+04. Feel -  Bali (Extended Mix) 5:08(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D934163EC32266B7014252522EF5AFC6F19BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039463   (596064) от 01.08.2016
 
 VA - Trance Collection Vol. 49 (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
@@ -728,35 +757,6 @@ VA - Y-Zotope: Relax Synthetic Sounds Mix (2022) [MP3|320 Kbps] <Relax Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7A86784A0D92CA6B718E018943B64AF2E0D051C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549763   (592840) от 08.05.2022
-
-VA - Lyrical Rhythm And Blues (2022) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Так уж получилось, что R&B – стиль довольно гламурный. Исполнители, по крайней мере в клипах, на обложках альбомов и на фотографиях для журналов должны выглядеть ухоженными и одеваться по возможности дорого. Если, скажем, в хип-хопе еще могут играть на контрастах, рэпер либо запущенный и кое-как одетый обитатель гетто, либо крутой парень на «бентли» с килограммовыми (   Читать дальше...   )001. Raheem Devaughn & Apollo Brown - One Time
-002. Jacob Banks - Found
-003. Lil' Mo - Doing Me Wrong
-004. Umi - Bet Reimagined(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 09:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308EB05FBC6C0476B3EE9BE2E7C673DF599B006F
 ```
 
 https://mybot314.ru/tekegram_catalog/

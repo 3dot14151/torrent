@@ -1,3 +1,90 @@
+###  Публикация: 1735255   (106976) от 07.07.2024
+
+VA - Big Aerobic & Cardio Dance Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Space'c - Paint It Black (Fitness Version 135 Bpm 32 Count) (3:47)
+02. D'Rockmasters - Cherry Bomb (Fitness Version 135 Bpm 32 Count) (4:01)
+03. Kyria - Last Of Us (Fitness Version 135 Bpm 32 Count) (3:47)
+04. DJ Kee - Feeling Me (Fitness Version 135 Bpm 32 Count) (3:47)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A0B94E1B7402FB75B9BAC98B4AC5126489B039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734903   (106962) от 07.07.2024
+
+Pretty Lights - 2 Albums (2013-2014) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Dubstep, Soul, Funk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost And Found [00:05:33]
+02. New Moon Same Dark [00:05:31]
+03. Starlit Skies [00:06:20]
+04. Can't Contain It [00:03:05](   Читать дальше...   )Жанр: Trip Hop, Dubstep, Soul, FunkПродолжительность: 2 CD, 01:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A19B853BA800A798099F8F94D6821387D16D711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735386   (106927) от 08.07.2024
+
+DJ Kiriloff - In The Mix(2008) [WavPack|Lossless|image + .cue] <House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magenta
+ 02. It's A Saxxy Thing (Like I Do) (Franz Da Silva Remix)
+ 03. Gonna Shake It (Kortezman Dub Mix)
+ 04. Bring Your Soul Back (Ralphi's Percussive Soul Mix)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB19A98C8D33704F1C8A4C206E9EABCCCD53B427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735889   (106757) от 10.07.2024
 
 Empyre One Feat. Scarlet - I Turn To You 2k20 (2020) [FLAC|Lossless|tracks] <Electro Pop, Electro House>
@@ -653,99 +740,6 @@ VA - Feel The Burn Body Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0597CAC5E4B904AFCC458E2EA29D165A25DC7BA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766244   (101259) от 17.12.2024
-
-VA - Gym Mode 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta - Forever Young (2:36)
-02. Charli XCX - Apple (2:31)
-03. BL3SS - Kisses (feat. bbyclose) (2:18)
-04. Linkin Park - The Emptiness Machine (3:10)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C2CEAE6E7141A52CE94649F78FCA6901FE017E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767456   (101159) от 22.12.2024
-
-Michael Simon, Tibetania - Umami (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Miles (7:44)
-02. Natalia (8:16)
-03. Umami (6:45)
-04. Hypnosis (6:25)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB552A35306B6758A531403D1D3796B7948ECB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461981   (95316) от 03.03.2012
-
-VA - MAYDAY (2011) [FLAC|Lossless]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Members Of Mayday - Ravemobil
-02. Moguai & Westbam - Original Hardcore (Moguai Edit)
-03. Funkerman - Crash Test
-04. Sebrof - In A Club (So Make Some Noise)
-05. Felix Da Housecat pres… Thee Nese Djouma Projesi - Zaman (Moguai Remix)
-06. Jaydee - Plastic Dreams (Koen Groeneveld Remix)
-07. Inpetto - Hit Back
-08. Toper & Andrian - Laziness
-09. The BeatThiefs - Umbungo (Chocolate Puma Remix)
-10. Jochen Miller - Troucid(   Читать дальше...   )2011Жанр: Progressive HouseПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

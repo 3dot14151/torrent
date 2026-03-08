@@ -1,3 +1,61 @@
+###  Публикация: 1155768   (529790) от 05.08.2017
+
+VA - Freudentanz - Ibiza Party (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melbourne Freaks - Deep Deep Down (Extended Mix) 05:42
+02. Prince Ringo - Don Trumpet (Clubmix) 06:43
+03. Dj Absinth - Revolution (Club Edit) 04:36
+04. The Fakies - Real Love 04:55(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0969D49203511500565EFB932AD668F40D3A0ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156081   (529789) от 05.08.2017
+
+VA - BBQ Chilling Vol.1 (Smooth Summer Dinner & BBQ Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  James Butler - Montmartre Impressions  2:04
+02.  Martin Liege - Baby Come On  3:39
+03.  Gordon Geco - Frequencys  5:05
+04.  Guna Nada Das - Jaya Ganesha  7:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7873EC13C8F6B2D977C475A1DAEC501D66298D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155854   (529787) от 05.08.2017
 
 VA - Deep House Seduction, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -687,64 +745,6 @@ VA - Morning Delights (Beautiful Lounge Experience) Vol. 1 (2019) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3204E081902B810EE2800145DA76B03421A5470E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114465   (528108) от 07.07.2019
-
-Supersimmetria - Discography 6 Releases (2012-2019) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Rhythmic Noise, IDM, Dark Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fusion (05:11)
- 02. CHNOPS (06:37)
- 03. Supernovae (05:36)
- 04. Scattered Stardust (05:56)(   Читать дальше...   )Тип издания: WEBЖанр: Industrial/Techno/Tribal/AmbientПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4043D13834EBB08F54753BD59A52ED9A3FC959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559108   (527801) от 23.06.2022
-
-VA - Summer In Space Vol. 5 (2022) [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spacehawk - Droids (4:52)
-02. Mind Vision - Legacy Time (6:55)
-03. Ultra Synergy - The Secret Of  Fight (5:42)
-04. Space Marine - The Flight To Mars (5:54)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9337AF121C358E7874FE1F5D507A29CB77A7FF8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

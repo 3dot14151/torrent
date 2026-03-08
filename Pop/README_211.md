@@ -1,3 +1,61 @@
+###  Публикация: 1066947   (409759) от 27.10.2016
+
+Oonagh - Märchen enden gut (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Ethno-Pop, Pop-Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aulë und Yavanna (3:36)
+02. Numenor (3:44)
+03. Das Mädchen und die Liebe (feat. Santiano) (2:56)
+04. Niënna (3:35)(   Читать дальше...   )Жанр: Pop, Folk, World, Ethno-Pop, Pop-Folk, Ethnic Fusion, Celtic, Fantasy MusicПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEEB14C4531832D3BC4D7F90449D3D13493F2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066878   (409757) от 27.10.2016
+
+Christina Aguilera - Stripped (2002) [APE|Lossless|image + .cue] <Pop, RnB, Pop Rap>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stripped (intro)
+02. Christina Aguilera feat. Lil’ Kim / Can't Hold Us Down
+03. Walk Away
+04. Fighter(   Читать дальше...   )Жанр: Pop, RnB, Pop RapПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BC38AF21E897F81A59C6E8A5E33F0335D38B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066678   (409617) от 27.10.2016
 
 VA - Ibiza Megamix Best Of 2016 (2016) [MP3|320 Kbps] <Bigroom, Future House, Club>
@@ -685,64 +743,6 @@ The D-Lights - She's Coming From Mars! (2014) LP [MP3|320 Kbps] <Electronic,  Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81EB4C7CA6EDACD93C1FBFD4B4B1C41F89C3E3B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252711   (407980) от 06.10.2018
-
-VA - School Days - The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407980.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Human League - Don't You Want Me
-02. Soft Cell - Tainted Love
-03. Madness - Baggy Trousers(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3C20AE2CA6A32678517142C9FDA75377855F8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252752   (407968) от 06.10.2018
-
-Frederic Mirage - Atlantic (1979) LP [MP3|320 Kbps] <Electronic, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный альбом, в отличии от гуляющего по сети пиратского сборника с одноименным названием и перебитыми заголовками треков.01. Atlantic (4:53)
-02. Birth Of A Planet (6:03)
-03. Future Dance (5:42)
-04. Power Sense (3:30)(   Читать дальше...   )Жанр: Electronic, Space-DiscoПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F84F7EF40DD7D95539A04EEC9A12E6295CDE77
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,31 @@
-###  Публикация: 447865   (92452) от 06.02.2012
+###  Публикация: 450285   (93107) от 11.02.2012
 
-Журнал | Дачный сезон №1 (январь 2012) [PDF]
+Saltillo - Monocyte (2012) [MP3|320 kbps]<Trip-Hop, Downtempo, Experimental>
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92452.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дачный сезон - это журнал для дачников, а также любителей сада и огорода. Из этого номера Вы узнаете как правильно собирать и хранить клубнику, как черенковать крыжовник, смородину и вишню, что сделать, чтобы розы лучше цвели. Вам будут интересны советы от заядлых дачников и секреты дачных посадок по фэн-шуй.Формат: PDF
+01. Abeo
+ 02. Proxy
+ 03. If Wishes Were Catholics
+ 04. The Right Of Action
+ 05. They All Do It The Same
+ 06. Gatekeepers
+ 07. I Hate You
+ 08. Forced Vision
+ 09. Hollow
+ 10. The Locus Priory(   Читать дальше...   )2012Жанр: Trip-Hop, Downtempo, ExperimentalПродолжительность: 00:51:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F52C215C4940011DB4FE9C40D80828DF7FAA4E13
+magnet:?xt=urn:btih:1F26F6BD0D20CF86871D7EA012E8E959FDACA0C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,23 +33,121 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 446764   (92399) от 05.02.2012
+###  Публикация: 450634   (93095) от 11.02.2012
 
-Подшивка журналов | 64-Шахматное обозрение [2010] [djvu]
+Sub Zero - Bi Polar EP (2012) [MP3|320 kbps]<Drum'n'Bass>
 
->>Журналы
->>Другие журналы
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92399.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-64 - Шахматы и шашки в рабочем клубе (1925, 1928)
-Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
-Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Жанр: Периодическое изданиеФормат: djvu
+01. Why Can't You See (Ft. Grimm) (05:41)
+02. Protection (05:20)
+03. Your Flex (04:32)
+04. Broken Me (Ft. Grimm) (06:29)(   Читать дальше...   )Жанр: Drum'n'BassПродолжительность: 00:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD69DD9AE06238EF36A5FB46A940BE5C69F9BFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450593   (93077) от 11.02.2012
+
+А. Кочаров | Удивительный мир животных. Дельфины [2003] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйся на морскую прогулку с Ариэль, и узнаешь, как маленькие дельфины учатся плавать, как они играют со своими сородичами, какие опасности им угрожают, и ещё много-много всего интересного!
+Для младшего школьного возраста.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93AE8437F10A3541B171C56428809ED65BA09CAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450518   (93074) от 11.02.2012
+
+Crimes Of Passion - To Die For (2012) [MP3|320 kbps]<Heavy Metal / Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be Still My Beating Heart 2:09
+02. Body And Soul 5:15
+03. Blown Away (Single Version) 4:52
+04. Hell And Back 5:10
+05. I Dare You To Try 4:54
+06. Love Is To Die For 5:20
+07. Blackened Heart (feat. Biff Byford of Saxon) 4:03
+08. I Think I Can Save You 4:32
+09. Dream Again 5:08
+10. Let The Punishment Fit The Crime 4:47(   Читать дальше...   )2012Жанр: Heavy Metal / Power MetalПродолжительность: 01:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB4F72477D74D54418F85507770FFF5F8A85550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450207   (93073) от 11.02.2012
+
+Fastway - 14 альбомов (1983 — 2011) Дискография [MP3|192-320 kbps]<Hard & Heavy>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Livin' (2:47)
+02. Feel Me, Touch Me (Do Anything You Want) (3:28)
+03. All I Need Is Your Love (2:32)
+04. Another Day (4:42)
+05. Heft! (5:39)
+06. We Become One (3:59)
+07. Give It All You Got (3:02)
+08. Say What You Will (3:21)
+09. You Got Me Runnin' (3:05)
+10. Give It Some Action (4:12)(   Читать дальше...   )01.1983 — 2011Жанр: Hard & HeavyПродолжительность: 11:18:34
 
 ## Скачать торент
 ```bash
@@ -52,23 +159,90 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 446943   (92397) от 05.02.2012
+###  Публикация: 450510   (93065) от 11.02.2012
 
-Подшивка журналов | 64-Шахматное обозрение [2007] [DJVU]
+Капля (1984) DVDRip
 
->>Журналы
->>Другие журналы
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92397.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-64 - Шахматы и шашки в рабочем клубе (1925, 1928)
-Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
-Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Формат: DJVU
+Жанр: Детский, Рисованная анимацияРежиссер: Розалия ЗельмаПродолжительность: 00:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250DD11B40AE284C1C1086C7C3CFF27FC837FAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449616   (93042) от 11.02.2012
+
+Undertow - Два альбома (2006,2009) [FLAC (image+cue)|Lossless]<Thrash Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:24)
+02. The Bitter Taste (3:51)
+03. Art Of Falling (4:13)
+04. Still Waiting (4:50)
+05. Threedouble Chime (4:37)
+06. Smoke Garden (5:10)
+07. Ashtray Memories (4:43)
+08. Beyond Dreaming (4:45)
+09. File Under Unexpected (5:36)
+10. Drenched In Gasoline (13:08)Жанр: Thrash MetalПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B11EBFCA677CBC50602C79EB54DB56E8C165E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450968   (93040) от 11.02.2012
+
+Despondency - Revelation IV (Rise Of The Nemesis) (2009) [FLAC|Lossless]<Slamming Brutal Death Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Existence of Dismay
+02. Victimize Their Idols
+03. Invidious
+04. Rise of The Nemesis
+05. Silent Extinction
+06. Screams of The Forsaken
+07. Steps To Supremacy
+08. Sermon of Mockery (PYREXIA Cover)
+09. The Source of Inhumanity2009Жанр: Slamming Brutal Death MetalПродолжительность: 00:38:18
 
 ## Скачать торент
 ```bash
@@ -80,212 +254,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 446640   (92396) от 05.02.2012
+###  Публикация: 449403   (93028) от 11.02.2012
 
-Подшивка журналов | 64-Шахматное обозрение [2009] [djvu, pdf]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92396.jpg" />
-</div>
-
-
-###  Подробнее
-
-64 - Шахматы и шашки в рабочем клубе (1925, 1928)
-Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
- Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Жанр: Периодическое изданиеФормат: djvu, pdf
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 446916   (92391) от 05.02.2012
-
-Подшивка журналов | 64-Шахматное обозрение [2008] [DJVU]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92391.jpg" />
-</div>
-
-
-###  Подробнее
-
-64 - Шахматы и шашки в рабочем клубе (1925, 1928)
-Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
-Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447263   (92384) от 05.02.2012
-
-Журнал | Сам [Россия] №2 (Февраль 2012) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92384.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сам» - журнал домашних мастеров: описания, схемы и чертежи самодельных станков и приспособлений, оригинальной мебели, теплиц и других конструкций. Советы по ремонту автомобиля и квартиры, предметов интерьера и бытовых приборов. Много полезного найдут для себя рыболовы и туристы, домашние хозяйки и радиолюбители. Много новых практических идей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447212   (92351) от 05.02.2012
-
-Газета | 1000 секретов [Украина] №2 [февраль 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание для всей семьи, по крупицам собирающее народную мудрость по множеству житейских вопросов. Практические советы читателей и специалистов выручат в любой ситуации. Консультации юриста, советы психолога, народная медицина, дача и огород, рукоделие, кулинария, конкурсы, призы и многое другое.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D72B06AB41B8ADEF1A097BC9D2694E876D9562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447626   (92328) от 05.02.2012
-
-Газета | Сезон у дачи №2 (2012) [DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сезон у дачи – Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая.
-Очень много интересной и полезной информации.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6303AF69F16C7ABC43778C137EB74500B09ECBA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 446774   (92205) от 04.02.2012
-
-Журнал | Машины и Механизмы №2 [февраль 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92205.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Машины и Механизмы» — ежемесячный научно-популярный иллюстрированный журнал. Ежемесячный тираж — 30 000 экземпляров. В каждом номере публикуются научно-популярные материалы познавательного характера, рассказывающие в доступной форме об инновациях, изобретениях и исследованиях в различных областях науки и сферах деятельности человека. Материалы размещены под рубриками, (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BADE6997199B62D006E5446CA4F0D6E73BE90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 446019   (92124) от 03.02.2012
-
-Журнал | Рейс №2 (февраль 2012) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для профессионалов по автомобильным перевозкам. На страницах издания вы найдете информацию о том, как грамотно организовать свой собственный бизнес автоперевозок, тест-драйвы профессиональной автотехники, интересные рассказы людей вернувшихся из рейса, советы профессионалов и консультации специалистов по техническому оснащению вашего профессионального гаража (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E150FA858246C4FFEBBEDDF4E278AFA61F85AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444467   (92010) от 01.02.2012
-
-VA - The Official UK Top 40 Singles Chart (29-01-2012) [MP3|320 kbps]<Pop, Rok, R&B>
+VA - Record Super Chart № 226 (04.02.2012) [MP3|192-320 kbps]<House, Trance, Dance>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92010.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop, Rok, R&BПродолжительность: 01:19:29
+01. LMFAO - Sexy And You Know It [03:19]
+ 02. Klaas - Changes (Original Mix) [06:00]
+ 03. Dj Kuba & Ne!tan - Deejay Deejay (Peppermint Remix) [05:08]
+ 04. Klaas & Bodybangers - I Like (Bodybangers Mix) [04:58]
+ 05. Sarvi - Amore (Chuckie Remix) [05:16]
+ 06. Niels van Gogh vs. Emilio Verdez - Beatrocker (Original Mix) [05:17]
+ 07. Rihanna Feat. Calvin Harris - We Found Love (Chuckie Remix) [03:35]
+ 08. Dj Antoine vs. Empire Of The Sun - Walking On A Dream (Mash Up) [03:29]
+ 09. DJ's From Mars feat. Fragma - Insane (In Da Brain) (Original Club Mix) [05:35]
+ 10. Rene Rodriguez vs. DJ Antoine feat. MC Yankoo - Shake 3x (Radio Edit) [03:05](   Читать дальше...   )04.02.2012Жанр: House, Trance, DanceПродолжительность: 02:48:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D9794216E1511BBE83158107E264548EF5FDB35
+magnet:?xt=urn:btih:F691104A08D187B8C6F902247BEF4B15010DC651
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,53 +289,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 444855   (92008) от 01.02.2012
+###  Публикация: 450818   (93014) от 11.02.2012
 
-[EN] И осенью будет ребенок / And Baby Will Fall (2011) HDTV
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92008.jpg" />
-</div>
-
-
-###  Подробнее
-
-По материалам книги Никогда не говори Ложь По Hallie Ефрона, этот пугающий триллер следующим счастливо женат средней школы возлюбленных, Плющ (Анастасия Гриффит от боли Royal) и Дэвид (Брендан Фер из кости), как они готовятся к рождению их долгожданный первый ребенка, после многолетних попыток и несколько выкидышей. Почти полный срок Айви, когда пара держит дворе продажи, чтобы убрать старые вещи и старые одноклассник, Мелинда Белый (Клеа Дюваль, событие), отображает до ... случайно достаточно, она также беременным.Несколько дней спустя, Мелинда является числятся пропавшими без вести, и все чертовы ключи указывают на Давида. Не могли бы верным Айви, любящий муж был в любовной связи с Мелинды все это время? Поскольку история разворачивается, темные тайны прошлого Мелинды вышли на свет и Айви считает себя живущим в кошмар.Жанр: Триллер, ДрамаРежиссер: Брэдли УолшАктеры: Анастасия Гриффит, Брендан Фер, Клеа ДюВалл, Стефен Лобо, Рон ЛиаПеревод: ОтсутствуетПродолжительность: 01:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB209F720CE7956A0C840EC7FF698351B3695A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445363   (91967) от 01.02.2012
-
-Авто плюс - Наши тесты / Mazda 3 (2011) SATRip
+Красная стена (2007) DVDRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91967.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем.
-Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля.
-Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: АвтопередачаПродолжительность: 00:14:48
+Документальный фильм "Красная стена" рассказывает о трагическом периоде в истории Русской Православной Церкви, начавшемся сразу после Октября семнадцатого года. На основании архивных документов показана хроника массовых репрессий священнослужителей в России и на территориях Липецкого края. В скорбном списке - правящий архиерей, первый епископ Липецкий Уар, простые приходские священники, иноки мужских и сестры женских монастырей, юродивые и блаженные.
+
+В девятнадцатом году были осквернены мощи святителя Тихона Задонского, одного из самых почитаемых отцов Церкви. По личному указанию Ленина в Задонск приезжал кинооператор, который организовал инсценировку вскрытия святыни, подлог. Это была первая советская агитка, которой долгие годы пользовались атеисты.
+
+Красная стена далеко протянулась в Липецком крае. В областном архиве хранятся данные о репрессированных священнослужителях только за десять лет. 818 дел - приговоров, человеческих жизней, загубленных судеб. Но это не вся правда. Большинство дел утеряно (   Читать дальше...   )Жанр: ДокументальныйРежиссер: В. СтепаненкоПродолжительность: 00:42:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECE72AE227C84C9509AB912D1F55876ED5CA1C28
+magnet:?xt=urn:btih:55CA3DB0AFDAE611C463357BDC9D920B241BE553
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,34 +319,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 443011   (91792) от 29.01.2012
+###  Публикация: 450664   (93012) от 11.02.2012
 
-Aquagen - Weekender (2002) [MP3|320 kbps]<Techno, trance>
+Sensogram - Parallel Minds (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91792.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Download Sequenz
-2. Rock The Disco
-3. Hard To Say Iґm Sorry
-4. Summer Is Calling
-5. Dreamland (Everybodys Free)
-6. Every Day
-7. Paranoix
-8. Strings Of Harmony
-9. Saturn B
-10. Take The Chance(   Читать дальше...   )2002Жанр: Techno, tranceПродолжительность: 01:18:40
+01. Intro 01:40
+ 02. Flashing Lights 07:06
+ 03. Vivid Vision 08:01
+ 04. The Process Starts 06:52
+ 05. Everlasting 07:58
+ 06. Parallel Minds 08:19
+ 07. Not A Dream 06:58
+ 08. Imagination 07:31
+ 09. Changes 07:11
+ 10. The Healer 06:242012Жанр: Psychedelic / ProgressiveПродолжительность: 01:08:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69EE7E49A029A04017E857FCC671112C1439C63E
+magnet:?xt=urn:btih:6650716112DFC8A6E15C8E24D959FAF402ECEB0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -382,34 +354,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 443583   (91789) от 29.01.2012
+###  Публикация: 450628   (93004) от 11.02.2012
 
-VA - 202 По Встречной. Убойный Автохит (2012) [MP3|128-320 kbps]<Dance, Club, Pop>
+Interactive Noise - All Ears On (2012) [MP3|320 kbps]<Psychedelic / Progressive>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91789.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Allure feat. Kate Miles - My Everything (Original Mix) (5:11)
-2. Azuro feat. Elly - Ti Amo (Video Edit) (3:48)
-3. Calvin West - Children (3:27)
-4. Dj Layla Feat Alissa - Single Lady (3:21)
-5. Kaya - Jngecrf. nt,z (3:31)
-6. Martin Solveig & Dragonette - Hello (Radio Edit) (2:45)
-7. Мурат Тагалетов - За тебя калым отдам (3:26)
-8. Selena Gomez & The Scene - Love You Like a Love Song (3:08)
-9. Инфинити - Ну и пусть (Insectum & Rabbit Killer Full Remix) (6:19)
-10. Лиза Лукашина feat. Idreezy - Зажигай (4:00)2012Жанр: Dance, Club, PopПродолжительность: 05:29:04
+01. Interactive Noise - Vienna (original mix) 06:51
+02. Interactive Noise - Rewire (original mix) 07:55
+03. Interactive Noise - Play (original mix) 06:35
+04. Neelix - Adaption (Interactive Noise remix) 07:31
+05. Interactive Noise - Vice (original mix) 07:45
+06. Interactive Noise - Born To Break (original mix) 08:222012Жанр: Psychedelic / ProgressiveПродолжительность: 00:45:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8352CD00EB6764E3153D12FB87A445979DD9A945
+magnet:?xt=urn:btih:3157EDB3F190C2698EBBAD4FA165E3589B346B76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,78 +385,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 442666   (91691) от 28.01.2012
+###  Публикация: 450637   (92990) от 11.02.2012
 
-Небесная история (1962) TVRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДетскийРежиссер: Юрий Прытков, Витольд БордзиловскийРоли озвучивают: Е. Глазнева, Владимир ЛепкоПродолжительность: 00:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB30CF7514650EF9F86AED6805E269A0E9E199F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442264   (91683) от 28.01.2012
-
-Звездная ночь (1998) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДетскийРежиссер: Денис ШепельПродолжительность: 00:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950FE8C8AE3B28A103DB7581BE7159C786A1DC48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443105   (91663) от 28.01.2012
-
-Следопыт с Глебом Данильцевым. Тетеревиные (2009) TVRip
+Interactive Noise - Synthetik Pleasure (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91663.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия (тетеревиные) из цикла Следопыт с Глебом Данильцевым - это серия передач, знакомящая зрителя с навыками и знаниями, необходимых для успешных, приятных и безопасных походов в лес. Как правильно и где развести костёр, как вести себя в сумерках и зимней ночью, кого из
-животных и насекомых стоит опасаться и, наконец, чем помочь себе если неприятности уже произошли (   Читать дальше...   )Телекомпания: ТК "Охота и рыбалкаЖанр: ТелепередачаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:25:40
+01. Interactive Noise - Soundcheck 07:00
+ 02. Interactive Noise - Disco Beat 07:30
+ 03. Day.Din - Zurich (Interactive Noise Rmx) 06:10
+ 04. Interactive Noise - Altered State 07:03
+ 05. Interactive Noise - Synthetik Pleasure 07:11
+ 06. Interactive Noise - Oscillations 06:38
+ 07. Interactive Noise - The Transformers 06:03
+ 08. Interactive Noise - Deep And Pumping Sound 06:26
+ 09. Interactive Noise - Beethoven Album Version 07:42
+ 10. Interactive Noise - Breaktime 04:522012Жанр: Psychedelic / ProgressiveПродолжительность: 01:06:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8611C41EE7A01B4BC030DDCAD3E582F264E1400
+magnet:?xt=urn:btih:D492412342D3767453C92172306CA25DF47F0267
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -496,25 +420,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 442628   (91598) от 27.01.2012
+###  Публикация: 449294   (92970) от 10.02.2012
 
-Глория / Gloria (1999) DVDRip
+VA - FearFM Hardcore Top 100 2011 (2012) [MP3|320 kbps]<Techno, Hardcore>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91598.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Глория только что отсидела 3 года в тюрьме за своего приятеля, гангстера Кевина. Случай сталкивает ее с шестилетним Ники, чьи родители стали жертвами мафии, а в его руках оказалась информация, грозящая разоблачением преступному синдикату. В Нью-Йорке, где Глорию ничего не ждет, ей совсем ни к чему эта обуза, но от Ники не так-то просто избавиться. И все же, когда (   Читать дальше...   )Жанр: Триллер, ДетективРежиссер: Сидни ЛюметАктеры: Шэрон Стоун, Жан-Люк Фигероа, Джереми Нортэм, Кэти Мориарти, Джордж К. Скотт, Майк Старр, Бонни Беделиа, Бэрри МакЭвой, Дон Биллет, Джерри ДинПеревод: Многоголосый закадровыйПродолжительность: 01:39:50
+01. Art Of Fighters - Nirvana Of Noise (Official Dominator 2011 Anthem)
+ 02. Tha Playah - On The Edge
+ 03. Angerfist - Incoming
+ 04. Evil Activities & Endymion Feat. E-Life - Broken
+ 05. The Viper & Neophyte - Coming Home
+ 06. Angerfist & Outblast - Odious
+ 07. Mad Dog & AniMe - Hardcore Machine
+ 08. Mad Dog - A Night Of Madness
+ 09. Mad Dog & Amnesys - Game Over
+ 10. Nosferatu & Evil Activities - Sick Of It All(   Читать дальше...   )2012Жанр: Techno, HardcoreПродолжительность: 08:39:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:679A40FF135B512209952B6847EF17B2DEA8CC70
+magnet:?xt=urn:btih:8A0DBDD836AE4027E5F66D7920EC59FCED8EFBDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -522,15 +455,153 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 442527   (91581) от 27.01.2012
+###  Публикация: 450146   (92962) от 10.02.2012
 
-Журнал | PC Magazine [Россия] №1 (январь 2012) [PDF]
+The Magnificent - The Magnificent (2011) [FLAC|Lossless]<Melodic Hard Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding On To Your Love - 5:24
+02. Cheated By Love - 5:31
+03. Memories - 4:56
+04. Angel - 5:05
+05. Satin & Lace - 4:07
+06. Love's On The Line - 4:47
+07. Bullets - 4:48
+08. Smoke & Fire - 4:45
+09. Tired Of Dreaming - 4:50
+10. If It Takes All Night - 4:57(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449602   (92932) от 10.02.2012
+
+Kay Starr - Movin' On Broadway (1960) [MP3|320 kbps]<Vocal Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 It's All Right With Me  01:57
+02 Heart  2:49
+03 On The Street Where You Live  2:57
+04 Get Me To The Church On Time  2:46
+05 I've Grown Accustomed To His Face  2:20
+06 C'est Magnifique  2:19
+07 Baubles Bangles and Beads  2:34
+08 I Love Paris  2:47
+09 You're Just In Love  3:24
+10 All of You  01:49(   Читать дальше...   )1960Жанр: Vocal JazzПродолжительность: 00:30:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450113   (92929) от 10.02.2012
+
+Инквизитор - Бог заходящего солнца (2011) [MP3|320 kbps]<Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мир паука (3:57)
+02. Всадница Дюрера (feat Nookie) (3:53)
+03. Кома (4:19)
+04. Ловчие Душ (3:22)
+05. Повелители страны Оз (5:09)
+06. Колыбельная (4:18)
+07. Всадница Дюрера (иное прочтение) (3:48)
+08. Мы падали в небо (3:22)Жанр: Heavy MetalПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91967D5784849D4D2B899897C3C774FA4581FBF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449978   (92907) от 10.02.2012
+
+Opera IX - Maledictae In Aeternum (2012) [MP3|320 kbps]<Gothic Metal / Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strix The Prologue (Intro) (02:34)
+02. 1313 (Eradicate The False Idols) (06:24)
+03. Dead Tree Ballad (05:29)
+04. Vox In Rama (Part I) (03:32)
+05. Vox In Rama (Part II) (05:00)
+06. Mandragora (06:05)
+07. Eyes In The Weel (06:06)
+08. Earth And Fire (07:39)
+09. Ecate-The Ritual (Intro) (03:24)
+10. Ecate (05:52)(   Читать дальше...   )2012Жанр: Gothic Metal / Black MetalПродолжительность: 01:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E2D5798486889337A371F83CEA9854C99927D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449897   (92902) от 09.02.2012
+
+Журнал | PC Magazine [Россия] №2 (2012) [PDF]
 
 >>Журналы
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91581.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92902.jpg" />
 </div>
 
 
@@ -540,7 +611,7 @@ PC Magazine/RE «Персональный компьютер сегодня» �
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E31A1689C85D46A04DEDFD4997D872AB7C1A9E4
+magnet:?xt=urn:btih:F2D48270A59FA2011A6E5FBF0CFD04AFD1735B53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,112 +619,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 442654   (91569) от 27.01.2012
+###  Публикация: 449212   (92880) от 09.02.2012
 
-Наш добрый мастер (1977) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДетскийРежиссер: Стелла АристакесоваПродолжительность: 00:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA239DA4421FEF49F854A2832E32606A07072DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442642   (91556) от 27.01.2012
-
-Подшивка журналов | Computer Graphics World (2004-2011) [EN] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подшивка журнала "Computer Graphics World", посвященного компьютерной графике. CGW исследует, как передовые графические методы, включая трехмерное моделирование, мультипликацию и визуализацию используются в таких приложениях как CAD/CAM/CAE, архитектура, научная визуализация, специальные эффекты, цифровое видео, фильмы и интерактивные развлечения.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6373D62B250500D4787837A6E09D09E5349A1CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441484   (91505) от 26.01.2012
-
-[EN] Холм Харлея / Harley's Hill (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харлей, чистокровный скакун, найден владельцем ранчо и его дочерью. Не найдя владельца,  девочка берет Харлея как партнера на соревнованиях.Жанр: СемейныйРежиссер: Дон МостАктеры: Кристофер Аткинс, Кристин Дорн,  Дебора Дуда-ТомпсонПеревод: ОтсутствуетПродолжительность: 01:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A4590EB52D542370255C833D1C2DBFECE20856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441987   (91501) от 26.01.2012
-
-VA - Red Hot + Dance (1992) [MP3|192 kbps]<Dance, Pop>
+Obe 1 Kanobe - Атака клонов (2012) [MP3|320 kbps]<Rap>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91501.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. George Michael — Too Funky
-02. George Michael — Do You Really Want To Know
-03. George Michael — Happy
-04. Madonna — Supernatural (Sly & Robbie’s Original Arms House Mix)
-05. Seal — Crazy (Ben Chapman’s If I Was Trev Mix)
-06. P.M. Dawn — Set A Drift On Memory Bliss (Richie Rich Mix)
-07. Lisa Stansfield — Change (Frankie Knuckles’ Metamorphosis Mix)
-08. Young Disciples — Aparently Nuthin’ (Nellee Hooper’s Re-Rub)
-09. Sabrina Johnston — Peace (David Morales’ Nu-Mix)
-10. Sly and The Family Stone — Thank You (Falettin Me Be Mice Elf Agin) (Todd Terry’s CD Mix)(   Читать дальше...   )1992Жанр: Dance, PopПродолжительность: 01:05:36
+1  Делай вещи 2012
+2  Один раз при feat Гуф
+3  Можем feat Смоки Мо, Мезза Морта, Цунами, Гуф (ЭфдиВадим prod)
+4  На баттл
+5  Может быть
+6  Выйди пьеро...(не порти перо) feat Грубый Ниоткуда (Dozer beats)
+7  Грязный флоу feat Бабу, Chemodan clan, Цунами (ЭфдиВадим prod)
+8  Быть первым
+9  Сумасшедший рэп feat Цунами
+10  Давай минус, поехали(   Читать дальше...   )2012Жанр: RapПродолжительность: 00:59:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:436B92CFD9D4B8BEDF497FB72665E6BEE0FEE144
+magnet:?xt=urn:btih:038B7D930D12B5221B5AD741480030E01C1B41DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,34 +654,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 441263   (91472) от 25.01.2012
+###  Публикация: 449672   (92879) от 09.02.2012
 
-VA - Red Hot + Riot (2002) [MP3|192-320 kbps]<Electronic, Funk, Soul, Hip Hop>
+Indra - Old Skool (2011) [MP3|320 kbps]<Psychedelic / Full On>
 
->>Архив торрентов
->>Архив Музыки
+>>Electronic
+>>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91472.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fela Mentality (Intro) - MixMaster Mike & Mario Caldato, Jr.
-02. Kalakuta Show - MixMaster Mike, Lateef & The Gift Of Gab (Of Blackalicious)
-03. Live At Kalakuta (Interlude) - Posma, Remedies, Taiwo, Segun, Tosin, Andrés Levin
-04. Shuffering & Shmiling - Dead Prez, Jorge Ben Jor, Talib Kweli, Bilal & Postive Force
-05. Gimme Shit (Interlude) - MixMaster Mike & Mario Caldato, Jr.
-06. Water Get No Enemy (Intro) - D'Angelo, Femi Kuti, & Macy Gray (Featuring Roy Hargrove, Nile Rodgers, The Soultronics & Positive Force)
-07. Water Get No Enemy - D'Angelo, Femi Kuti, & Macy Gray (Featuring Roy Hargrove, Nile Rodgers, The Soultronics & Positive Force)
-08. Gentleman - Meshell Ndegeocello & Yerba Buena! (Featuring Ron Blake)
-09. Tears & Sorrow - Common, Meshell Ndegeocello & Djelimady Tounkara
-10. Shakara-Lady (Part One) - Cheikh Lô(   Читать дальше...   )2002Жанр: Electronic, Funk, Soul, Hip HopПродолжительность: 01:15:56
+01. Indra - Sequence 07:42
+02. Indra - Yes Man 08:27
+03. Indra - Source Of Life 06:52
+04. Indra - InfraSonic 07:19
+05. Indra - Fear & Loathing 07:05
+06. Indra - Store N Forward 07:33
+07. Logic Bomb - Ansi (Indra Vs. Didrapest Remix) 07:01
+08. Indra - Contraband 07:03
+09. Indra - Its Good Again (Remix) 08:092011Жанр: Psychedelic / Full OnПродолжительность: 01:07:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C3169818EB4AEF4153AED32062750C988BE12B4
+magnet:?xt=urn:btih:5F982C5266914908083183BB8AA16514C4FFB6D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,34 +688,145 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 440971   (91469) от 25.01.2012
+###  Публикация: 449418   (92863) от 09.02.2012
 
-Umo Jazz Orchestra - Umo Jazz Orchestra (1997) [MP3|320 kbps]<Jazz>
+Biohazard - Reborn In Defiance (2012) [FLAC|Lossless]<Hardcore>
 
->>Архив торрентов
->>Архив Музыки
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91469.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Frozen Petals
-02. All Blues
-03. Aldebaran
-04. What is This?
-05. Bermuda
-06. Blue in Distance
-07. Cuckoo's Nest
-08. Equinox
-09. Life is a Cobra
-10. Tarkovski1997Жанр: JazzПродолжительность: 01:08:38
+01. 9:IIIX6.941 (0:54)
+02. Vengeance Is Mine (3:25)
+03. Decay (4:25)
+04. Reborn (4:53)
+05. Killing Me (4:50)
+06. Countdown Doom (4:57)
+07. Come Alive (3:49)
+08. Vows Of Redemption (4:58)
+09. Waste Away (4:25)
+10. You Were Wrong (6:06)(   Читать дальше...   )2012Жанр: HardcoreПродолжительность: 00:55:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:281EE229E8B470DD9634ED8EBE6794336E11C6D2
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449052   (92852) от 09.02.2012
+
+Байки Митяя (2012) SATRip [5-я из 20]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не секрет, что в стрессовой ситуации человеческий мозг способен на многое, а возможности мозга неугомонного фантазера и рассказчика Дмитрия Буханкина становятся практически безграничными. И так уж заведено, что в поселке Кучугуры уже много лет из уст в уста передают не только рецепт фирменного самогона Митяя, но его знаменитые байки.
+Митяй - нерадивый сосед большого семейства и закадычный друг Ивана Будько - появился в третьей части народной эпопеи "Сваты" и настолько полюбился зрителям, что авторы фильма решили снять о нем отдельную киноисторию. "Митяй, который задумывался как второстепенный для "Сватов" персонаж, в исполнении заслуженного артиста России Николая Добрынина получился настолько ярким и неординарным, что нам захотелось вывести его на первый план. Митяй - архетип такого простого нашего мужика, любящего выпить, что-то "сбрехнуть", "стырить", но все это "на голубом глазу" и от чистой души", - рассказывает автор идеи и продюсер сериала Андрей (   Читать дальше...   )Жанр: КомедияРежиссер: Алексей КирющенкоАктеры: Николай Добрынин, Алексей Смолка, Михаил Романов, Виктор Андриенко, Виктор Сарайкин, Александр Игнатуша, Евгений Кошевой, Егор Крутоголов, Юрий КраповПродолжительность: 00:27:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449844   (92847) от 09.02.2012
+
+Журнал | Самая. Спецвыпуск №1 Уютный дом (январь 2012) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советы экспертов, собранные журналом , помогут вам создать уют в вашей квартире своими руками. Из выпуска вы узнаете как недорого сделать ремонт и обновить интерьер за две недели, как исправить проблемную квартиру и обставить дом по фэн-шуй; также вас ждут советы дизайнера по обустройству однокомнатной квартиры и мастер-класс по декору.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC02C0C574EF7962A6E50C9027501991B4B224F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449243   (92822) от 09.02.2012
+
+Сотрудники Управления «К» МВД России провели урок для школьников
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92822.jpg" />
+</div>
+
+
+###  Подробнее
+
+В средней общеобразовательной школе №1387 города Москвы состоялся специализированный урок «Безопасность в Интернете» с участием главы Бюро специальных технических мероприятий (БСТМ) генерал-майора полиции Алексея Мошкова.
+Урок прошел в рамках Всероссийской комплексной кампании Управления «К» МВД России «Безопасный Интернет», направленной на профилактику правонарушений в киберпространстве и в сфере высоких технологий.
+Специалист Управления «К» МВД России рассказал ученикам пятого класса школы о безопасном использовании глобальной Сети и об угрозах, которые в Интернете могут подстерегать взрослых и детей. Урок для детей проводился в доступной форме с помощью наглядной презентации и ролевых игр.
+Ребятам вручили и специальные наглядные брошюры, в которых проиллюстрированы основные опасности, подстерегающие юных пользователей Интернета. Помимо этого, школьники прошли тест на компьютере, где закрепили полученные на уроке знания. Все ученики справились с заданием на «отлично».
+«Проблема безопасного использования Интернета (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447983   (92766) от 08.02.2012
+
+Подшивка журналов | 64-Шахматное обозрение [1994] [DJVU]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_92766.jpg" />
+</div>
+
+
+###  Подробнее
+
+64 - Шахматы и шашки в рабочем клубе (1925, 1928)
+Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
+Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

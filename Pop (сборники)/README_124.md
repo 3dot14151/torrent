@@ -1,3 +1,32 @@
+###  Публикация: 1707505   (62648) от 17.03.2024
+
+VA - Easy Pop 00s (2024) [MP3|320 Kbps] <Pop, Dance, RnB, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coldplay - Sparks
+02. Michael Bublе - Home
+03. Jason Mraz - I’m Yours
+04. Uncle Kracker - Follow Me(   Читать дальше...   )Жанр: Pop, Dance, RnB, RockПродолжительность: 03:21:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BA1E1825D006B5EF65B95ECC7820833B0681AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708058   (62395) от 20.03.2024
 
 VA - Свежий Русский Хит от ALEXnROCK часть 15 (2024) [MP3|320 Kbps] <Pop>
@@ -713,35 +742,6 @@ VA - 00s Stars (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E645EDFC0C4046D65E055A1269B262DE69DA1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738668   (48554) от 28.07.2024
-
-VA - Disco Friday (2024) [MP3|320 Kbps] <Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48554.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cerrone, Chelcee Grimes - I Want
-002. Alan Ross - The Last Wall
-003. Bananarama - Shy Boy
-004. Cerrone - I Want(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 13:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4F66B26A46F778FED5312B429D69421BB2F19B
 ```
 
 https://mybot314.ru/tekegram_catalog/

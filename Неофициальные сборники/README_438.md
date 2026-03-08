@@ -1,3 +1,183 @@
+###  Публикация: 1324383   (425359) от 09.09.2019
+
+VA - Secret Passion: Europop Summer Hits (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425359.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ke$ha - Die Young
+002. Arcadian - Petit À Petit
+003. Clara Luciani - La Grenade
+004. Jain - Gloria(   Читать дальше...   )Жанр: PopПродолжительность: 10:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4084E178B7554B9ED7AFFC834D610A7DF6D97E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946598   (425056) от 14.10.2015
+
+VA - Creative Music Box 26 (2015) [MP3|320 кб/с]<Dubstep, Glitch Hop, Trapstep, Drumstep, Drum'n'Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Day To Remember- If It Means A Lot To You (Sullivan King Remix)
+02. Aquilo - Losing You (Vanic Remix)
+03. Barely Alive, Astronaut - Bad Fellas
+04. Borgore, Half Empty, Pouya  - Goddes(   Читать дальше...   )Жанр: Dubstep, Glitch Hop, Trapstep, Drumstep, Drum'n'BassПродолжительность: 02:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F42592CA43B9FE665ED05BBEC07576C9207BC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 556671   (425039) от 06.10.2012
+
+VA - Vocal Trance Essentials Vol.1 (2012) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Wright feat. Alina - Away (Jeff & Dale Remix)
+02. Will Holland feat. Jeza - Every Heartbeat (Beat Service Remix)
+03. Javy X Feat. NGy - Midnight Sun (Original Mix)
+04. Ruslan-Set & Reprobate feat. Irina Makosh - Hector (Tima Remix)
+05. Poshout feat. Ange - Beside (Extended Mix)
+06. Kris V & Ivo Nikolov feat. Donna - The Sunset Flower (Vinid Remix)
+07. Physical Phase Feat. Sheila D - Destiny (Sheila D Vocal Mix)
+08. C-Systems & Bushi Feat. Hanna Finsen - Dreams Will Never End (Orbion Remix)
+09. Tritonal feat. Cristina Soto - Everafter (Tritonal Club Mix)
+10. Garrido & Skehan feat. Isobel Mai - Stay (EDU Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD6F70940737C492F295D2A698DFA4E06517BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250573   (424752) от 28.09.2018
+
+VA - New Music Releases Week 36 of 2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424752.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zeds Dead, Dnmo, Tzar - We Could Be Kings
+002. Iman Omari - Another
+003. Just Loud - Diamonds and Dope Boys
+004. High Contrast - God Only Knows(   Читать дальше...   )Жанр: DanceПродолжительность: 11:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A66068567E64A4D57F402088C4B1831A914606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166692   (424730) от 17.09.2017
+
+VA - Empire Records - Blue Line Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frainbreeze & Lucid Blue - World Of Nothing (Radio Edit)
+02. Jan Leyk, Madizin - Gladiators (Radio Edit)
+03. Liuck, Eric Lumiere - More To Life (Luke Bond Remix)
+04. Jean Verano - The Love I Lost (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85F6E7089803CF2DB3921A3F1D34765694EDC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166566   (424590) от 17.09.2017
+
+VA - Empire Records – Hardcore (2017) [MP3|320 Kbps] <Hard Trance, Hardcore, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Styles & Breeze – You’re Shining (Hardcore Mix)
+02. lol – Love Leaves No Scar (Hixxy Remix).
+03. Cascada – Everytime We Touch Styles & Breeze (Hardcore Edit)
+04. Petruccio & Modulate – Missing (Gammer Remix)(   Читать дальше...   )Жанр: Hard Trance, Hardcore, DanceПродолжительность: 03:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773D806871AC8A7341A293F4E32AB408B4614EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064788   (424406) от 21.10.2016
 
 VA - Beatport Trance Pack  (21.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
@@ -568,181 +748,6 @@ VA - The Official UK Top 40 Singles Chart 28.09.2018 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81D9680DA5310BDC0273688A7902EDE38B4A58D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250851   (422644) от 29.09.2018
-
-VA - German Top 100 Single Charts 28.09.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422644.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dynoro & Gigi D'Agostino - In My Mind
-002. Bonez MC & RAF Camora - Kokain (feat. Gzuz)
-003. Veysel - UFF (feat. Gzuz)
-004. Loredana & Mozzik - BONNIE & CLYDE(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B72F0D579F3C148BD6ED0B40164C7C6DF810F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411709   (422610) от 27.09.2020
-
-H.E.A.T - We Will Never Die (2020) Compilation, 2CD [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dangerous Ground
-02. We Will Never Die
-03. Come Clean
-04. Stay(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC78789345CBD49B6819CD8B17986E4CC832CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411967   (422606) от 27.09.2020
-
-VA - Beatport Electro House: Sound Pack #174 (2020) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422606.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joiodj - Don't Give Up
-002. Roby Barbieri - Erotic Soul
-003. Chris Geldard - Can You Feel It
-004. E1ghth Place - Glitching Out(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C824FB5E8697757DAF37229D0C2625FAA89B520A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946893   (422559) от 15.10.2015
-
-VA - Billboard Hot 100 Singles Chart (17-10-2015) [MP3|320 кб/с]<Pop, Rap, Euro, Indie, Folk, Hip-Hop, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422559.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последнее время  американский журнал Billboard стал публиковать свои  HOT 100 всё раньше и раньше, поэтому не удивляйтесь, что сегодня у них на календаре 17 октября. Billboard Hot 100 фактически является официальным хит-парадом США — самого крупного национального музыкального рынка в мире.
-За долгие годы после Битлз практически весь новый альбом What a Time To Be (   Читать дальше...   )01. The Weeknd - The Hills  (4:02)
-02. Justin Bieber - What Do You Mean ?  (3:28)
-03. Drake - Hotline Bling  (4:27)
-04. The Weeknd - Can't Feel My Face  (3:36)(   Читать дальше...   )Жанр: Pop, Rap, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA389DCB69C6F641CF056F80ECC30325AB0F67B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250856   (422538) от 29.09.2018
-
-VA - Just Dance For Magnetic (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422538.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gabz Sutanto - Re-Start
-002. Waves feat. Command Sisters - U Forever
-003. Noisebass - Where I Am
-004. DJ Erdal feat. Lu - Won't Call You Back (DJ Erdal)(   Читать дальше...   )Жанр: DanceПродолжительность: Dance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E729EBA13EFE01953F0C8C2D7AF6F43AA8878A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946977   (422481) от 15.10.2015
-
-Arabesque - Good Songs (2015) [MP3|320 кб/с]<Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Do You Ride The High Horse
-02. Bye Bye My Love
-03. The Hero Of My Life
-04. Sqaw(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 05:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B50EC9CF6A878BE82C088C274F6E004B0FC90E
 ```
 
 https://mybot314.ru/tekegram_catalog/

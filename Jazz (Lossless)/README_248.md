@@ -1,3 +1,32 @@
+###  Публикация: 1410136   (240496) от 20.09.2020
+
+Sidney Bechet & Martial Solal - When a Soprano Meets a Piano (1957) 2009, Inner City Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Only Have Eyes for You [3:00]
+02. The Man I Love [2:47]
+03. Exactly Like You [2:57]
+04. These Foolish Things [3:52](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BD5F1D9568E0666FCAA107461F41A9334DE90D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634002   (240447) от 18.05.2023
 
 The Airmen of Note - Christmas Time Is Here (1998) Self-Released [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -716,35 +745,6 @@ Jason Marsalis - Live (2017) 2020, Basin Street Records [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51394BA44D2FAE50ADE249BD4118A825ACA241E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565294   (239853) от 23.07.2022
-
-Max Roach - Deeds, Not Words (1958) 1987, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Stepped Out of a Dream [7:50]
-02. Filide [7:10]
-03. It's You or No One [4:16]
-04. Jodie's Cha-Cha [5:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1659B165DE88CACB900E2896229964103A00E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

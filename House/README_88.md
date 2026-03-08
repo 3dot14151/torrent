@@ -1,3 +1,32 @@
+###  Публикация: 1818795   (1956) от 19.09.2025
+
+VA - Dancefloor Sessions, Vol. 04 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wgnr & Wegner - Step By Step 02:53
+02. Mbnn - Neon Skies (Extended Mix) 05:16
+03. One Man Sound & Brooke Lee - Don't Stop The Music (Extended Mix) 04:47
+04. The Man With The Oranges Eyes - Can You Feel It? (Retro Festival Mix) 03:18(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E76956000444E21C93C8F8667D9A7C5514F1417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819071   (1809) от 20.09.2025
 
 VA - 50 DJ Tracks Vol. 2 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>

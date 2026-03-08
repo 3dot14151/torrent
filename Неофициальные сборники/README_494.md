@@ -1,3 +1,177 @@
+###  Публикация: 1330656   (336265) от 12.10.2019
+
+VA - Громкие новинки Октября (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336265.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.5sta family - Завязала (3:41)
+2.7000$, Нуки - Хайпметал (3:22)
+3.Godfather of Harlem, Dave East, A$AP Ferg - Business is Business (2:55)
+4.Adam Lambert - Closer To You (4:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A19BECBF777F4D42CCC4003033FB944302FD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330621   (336252) от 12.10.2019
+
+VA - Perfect Tech House: Deep Session (2019) [MP3|320 Kbps] <Techno, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336252.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Toni Noack - Trouble Boy
+002. Larry Lan - Greenwich
+003. Joan Fibla - Right Now (Original Mix)
+004. Cristian Matrix - Permanent Blackened(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 08:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002C4933187F8002F3691B9E7A8D774DE48E8D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330921   (336251) от 12.10.2019
+
+VA - Magic Sounds Of Piano Keys (2019) [MP3|320 Kbps] <Piano, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336251.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 7 Yеаrs - Musiс Lаb Cоllесtivе
+002. Tim Linghаus - Lооking Fоr Dаd In Rаdiо Nоisе
+003. Autumn Lеаvеs - Art Of Mоuntаin
+004. Dоminiquе Chаrреntiеr - Bruinе(   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 08 :12 :12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AE194F137DCEFAE58CE454AC363968ABEFDED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074763   (336222) от 20.11.2016
+
+VA - Музыкальный Заряд 5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336222.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Olstan Van Guard - Капли Дождя 4:52
+002.U3u - Нравится 3:07
+003.Анна Шульгина - Другая Я 3:06
+004.Бьянка - Никто Кроме Ты 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74368AA05768322EBB6CEB686008974AE7CE4A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074819   (336122) от 20.11.2016
+
+Альберт Артемьев - Планета Глория (2016) [MP3|192 Kbps] <New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Планета Глория
+2. Город богов
+3. Сближение
+4. Сияние небосвода(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4200811D392505A5396D95D82B97E3D0182F4BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074851   (336107) от 20.11.2016
+
+VA - Extra Trance (episode 12) (2016) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ronski Speed & Ana Criado - A Sign (Chris Metcalfe Remix) (6:22)
+02. Giuseppe Ottaviani, Christian Burns - Brightheart (Extended Mix) (6:09)
+03. Vintage & Morelli - Contrasts (7:21)
+04. Mhammed El Alami - Dawn (5:39)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5938B23874566713CE77B86A4D111E57D4DA33A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074768   (336036) от 20.11.2016
 
 VA - Гуляночка на радио Шансон - 4 (2016) [MP3|256 Kbps] <Шансон>
@@ -577,180 +751,6 @@ VA - Vocal Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42FEE5AB721D51DA176C410EF20A65BE457BAA2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419905   (335497) от 30.10.2020
-
-VA - Beatport Electro House: Sound Pack #196 (2020) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335497.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dobry Secik - Moments
-002. Shermanology - Amen
-003. Ma.Bra. - Estasty
-004. Doc Link & Sean Biddle - No Mistakes(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F0464456BC0194E3564EDEBA74769BE54ECAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181146   (335477) от 06.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 010 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шоколад-Виктория - Алло, Алёнка ( 1989 )
-02. Восьмой День - Прощай ( Первый Снег ) ( 1991 )
-03. Николаев Игорь - Малиновое Вино ( 1994 )
-04. Электроклуб - Ягодный Сезон ( 1987 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FBB3A51CD537F5D5737B62803172C3E3B9D3CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181257   (335476) от 06.11.2017
-
-VA - Лучшие клубные новинки Vol.3 (2017) [MP3|320 Kbps] <House, Trance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335476.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  BLR, Rave & Crave - Taj (Extended Mix)  5:14
-002.  Paul Van Dyk & Pierre Pienaar - Stronger Together (Extended)  7:32
-003.  Terror Squad feat. Fat Joe & Remy - Lean Back (Tony Junior & Jimmy Clash Bootleg)  3:17
-004.  Da Hool - Meet Her At The Love Parade (Matt Watkins Bootleg)  3:23(   Читать дальше...   )Жанр: House, Trance, ClubПродолжительность: 10:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC802C578AA68C5C3AA7E21108EA85E13271BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181148   (335474) от 06.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 011 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шторм Анна - Франция ( Далекая Страна ) ( 1994 )
-02. Картышев Владимир - Ночь После Трудного Дня ( 1991 )
-03. Рок-Сентябрь и DDT - Танцует Робот ( 1983  )
-04. Кристина Corp. - Снег На Розах ( 2005 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DF7DDA4B9B68D7713814CC885154B5486C670F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181287   (335468) от 06.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 014 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маленький Принц - Прощай ( 1989 )
-02. Журавлёва Марина - Белая Черёмуха ( 1991 )
-03. Ласковый Май ( Юрий Шатунов ) - Седая Ночь ( 1989 )
-04. Жуков Рома - Слепой Рассвет ( 1991 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B9CAA9942E9B38AFEE6E0ED0D42DC2EEA9859C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181150   (335463) от 06.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 012 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хромов Олег - Первый Дождь ( 1991 )
-02. Финиш - Розовые Рожи ( 1990 )
-03. Ночной Вояж - Джулия ( 1989 )
-04. Лукьянов Александр - Падает Снег ( 1989 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD2713F8720863E3E239801A9FC26FF2307C691
 ```
 
 https://mybot314.ru/tekegram_catalog/

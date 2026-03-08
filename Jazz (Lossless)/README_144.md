@@ -1,3 +1,32 @@
+###  Публикация: 1303514   (573137) от 21.05.2019
+
+Horace Parlan, Jesper Lundgaard, Ed Thigpen - Relaxin' With Horace (2004) Stunt Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone in Love [7:00]
+02. Don't Take Your Love from Me [6:25]
+03. Thinking of You [6:07]
+04. Theme for Ernie [7:14](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE0CA2F6B1801A1633A82459ED0D06966FF0C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151552   (573073) от 19.07.2017
 
 Taylor Eigsti - Let It Come To You (2008) Concord [WavPack|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -729,41 +758,6 @@ Shorty Rogers - The Fourth Dimension In Sound (1961) /2014, Warner/[FLAC|tracks+
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:388BF592CC91CD6FCBF9D9AB52879E75342AC377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527741   (569567) от 30.07.2012
-
-Brad Leali - Claus Raible Quartet - D.A.'s Time (2007) [FLAC|Lossless]<Post-Bop, Bebop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Currawong
-02. Puddin' Time
-03. I guess I hang my tears out to dry
-04. Catina
-05. Manteca
-06. Little Freddie steps
-07. D.A.'s Time
-08. I'll keep loving you
-09. Not yet
-10. Blues for LizzieЖанр: Post-Bop, BebopПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

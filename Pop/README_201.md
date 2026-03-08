@@ -1,3 +1,61 @@
+###  Публикация: 1569526   (451664) от 13.08.2022
+
+Blue System - Twilight (1989) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Symphony	3:34
+02. Love Me On The Rocks	3:27
+03. Save Me	3:45
+04. Nobody Makes Me Crazy (Like You Do)	3:27(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BCE8DE1D74C18400A2C7CD2C120CC7030D4E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569615   (451653) от 13.08.2022
+
+Oscar Rocchi's Orchestra - Video Dance (1981) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supersonic (3:25)
+02. Cabala (3:29)
+03. Open Gate (2:53)
+04. Altro Mondo (2:32)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2069A5ADEECC705D4AAF2B4BADD013E60F9A6956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942741   (451640) от 02.10.2015
 
 Janet Jackson - Unbreakable (2015) Deluxe Edition [MP3|320 кб/с]<R&B, Pop>
@@ -697,64 +755,6 @@ VA - The Best Of Italo-Disco Vol. 5 (1986) [OGG|485 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B0E796CEBA427BA1CBECA06B2202D0EB5FB98ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569830   (447104) от 15.08.2022
-
-VA - The Best Of Italo-Disco Vol. 8 (1987) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solo – Harem	5:36
-02. Linda Jo Rizzo – Heartflash (Tonight)	5:58
-03. Silver Pozzoli – Pretty Baby	5:58
-04. Mike Mareen – Agent Of Liberty	8:50(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2706F85D77DC620EF7C93917769864C43DF775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322590   (446566) от 30.08.2019
-
-Александр Ягья - Вспоминай меня (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446566.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вспоминай
-2. Отпусти меня
-3. Постой
-4. Меня не любила ты(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F113F89392AB0B2B31ECAFBC9AC9AAD79F3116
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,121 @@
+###  Публикация: 874375   (864895) от 02.03.2015
+
+VA - The Official UK Top 40 Singles Chart (01-03-2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ровно месяц прошел с момента опубликования предыдущего традиционного UK Singles Chart  - официального хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Как Вы понимаете за месяц произошло так много изменений по сравнению с прошлым чатом, что и писать об этом не будем. А кто интересуется, может посмотреть здесь.
+Во все треки вшиты (   Читать дальше...   )01. Ellie Goulding - Love Me Like You Do  (4:13)
+02. Hozier - Take Me To Church  (4:03)
+03. Mark Ronson Feat Bruno Mars - Uptown Funk  (4:31)
+04. The Weekend - Earned It (Fifty Shades Of Grey)  (4:11)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E2E2C68E3113BA73284939167C7D4898053FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375757   (863756) от 15.04.2020
+
+VA - April Planet Disco (2020) [MP3|320 Kbps] <Disco, Italo Disco, New Generation>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863756.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kraak & Smaak - In Plain Sight
+002. Mindbuster - Feel My Love
+003. Miami Dade Beats - Let The Tigers Free
+004. Solitario - Take Your Time(   Читать дальше...   )Жанр: Disco, Italo Disco, New GenerationПродолжительность: 09:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D20D33BEDADED17CF6A6719BEE2DF51AB5E0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108446   (863197) от 25.02.2017
+
+VA - Amazing Night: European EDM (2017) [MP3|320 Kbps] <Funky, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863197.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Green Velvet, Prok & Fitch - Sheeple (Original Mix) 7:02
+002. Pig&Dan - Chemistry (Original Mix) 8:16
+003. Basement Jaxx - Jump N Shout (Erik Hagleton Remix) 6:32
+004. Dennis Cruz - Everybody (Original Mix) 6:52(   Читать дальше...   )Жанр: Funky, Tech House, ElectroПродолжительность: 10:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4D2AAB4FD1941889DD18923CBE659257C5EDC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999634   (862949) от 23.03.2016
+
+VA - 100 Hot Exotic: Electro Club House (2016) [MP3|320 кб/с] <Club, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862949.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Audrey Gallagher, Flynn & Denton - Say My Name
+002. Estiva - Let It Go
+003. Cannavo & Nesse - Apollo
+004. Genix - Durban(   Читать дальше...   )Жанр: Club, Electro HouseПродолжительность: 09:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACBE46C83D982DD5A3A754CBBACD45DE371E1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107676   (862902) от 25.02.2017
 
 VA - Megatron Bass: Original Drum And Bass Collection (2017) [MP3|256-416 Kbps] <Drum And Bass, Dubstep, Trap>
@@ -629,122 +747,6 @@ VA - Dance Wicked (2017) [MP3|320 Kbps] <House, Electro, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9697C0A1F7A99B376EB7C10CFE4034F979B94037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000495   (858611) от 25.03.2016
-
-VA - Дискотека 2016 Dance Club Vol.150 от NNNB (2016) [MP3|192-320 кб/с] <Club, Dance  Trance, House, Dubstep, Pop,  Breaks, Trap,  Bass, Chill Out>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvo feat. Gigi - Made For Us (Radio Edit)
-02. Alexandra Stan - Ecoute
-03. DJ Emil Rocks - Feel of freedom (P.R. Project Remix)
-04. Stage Rockers & Dessy Slavova - Go Away (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance  Trance, House, Dubstep, Pop,  Breaks, Trap,  Bass, Chill OutПродолжительность: 10:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245981881C9D2467F2AC6ECD8EA645A582D97179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109339   (858416) от 27.02.2017
-
-VA - Club Dance Dependence vol.2 (2017) [MP3|320 Kbps] <Club , Dance , House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trobi Ft. Junglebae - In The Studio (Explo Radio Edit)
-02. Galantis - Rich Boy (Original Mix)
-03. RedOne Ft. Enrique Iglesias, R. City, Serayah & Shaggy - Don't You Need Somebody (Cahill Club Mix)
-04. Gareth Emery & Standerwick - Saving Light (feat. Haliene)(   Читать дальше...   )Жанр: Club , Dance , HouseПродолжительность: 06:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F47CA3FBC2A76D75836867DA942D90DE7034642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000824   (857558) от 26.03.2016
-
-VA - Wonder Hydro Calling People (2016) [MP3|224-320 кб/с] <Nu Disco, Dutch, Funky, Vocal, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edward Maya Feat. Yohana - Feeling (Explicit Version) 03:42
-02. Benny Benassi - Back To The Pump (Tropkillaz Remix) 04:02
-03. Moreno Feat. Justin Fitch - Stereo (Radio Edit) 03:53
-04. Discorocks - One Day In July (Adrian Oblanca Remix) 06:36(   Читать дальше...   )Жанр: Nu Disco, Dutch, Funky, Vocal, Future HouseПродолжительность: 09:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7BB36FB73577D7CACF1A31E941A3766A2B4C1F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000593   (857423) от 26.03.2016
-
-VA - DJ Tools Essential: DJ Samples DJ Mixtools (2016) [MP3|255-320 кб/с] <Club, Electro, Bass Music, Dubstep, Tribal, UK Garage>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857423.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Moguai Feat. Cheat Codes - Hold On (Extended Mix) 03:56
-002. 4 Strings Feat. Eric Lumiere - Crazy (Original Mix) 06:47
-003. Knife Party And Tom Staar - Kraken 04:51
-004. Yoel Lewis - Monaco (Original Mix) 05:57(   Читать дальше...   )Жанр: Club, Electro, Bass Music, Dubstep, Tribal, UK GarageПродолжительность: 09:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2732093A679EEA94594772684120B6CDF28F8EB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

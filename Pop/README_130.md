@@ -1,3 +1,61 @@
+###  Публикация: 1137626   (666716) от 27.05.2017
+
+VA - Disco Spatial (1978) 2 LP [MP3|320 Kbps] <Electronic, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mc Lane Explosion - Oxygene (Long Version) (8:04)
+02. Mc Lane Explosion - Magic Fly (Long Version) (6:50)
+03. Mc Lane Explosion - Fire Land (4:12)
+04. Mc Lane Explosion - Accidental Lover (Long Version) (10:50)(   Читать дальше...   )Жанр: Electronic, Space-DiscoПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A246A405ACA1A419F9BEEA5892B60C5FC06AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137704   (666221) от 27.05.2017
+
+Shakira - El Dorado (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me Enamoré
+02. Nada
+03. Chantaje (Ft. Maluma)
+04. When A Woman(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4308CC023328717E4B6658763845EF47E862E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224463   (666059) от 10.05.2018
 
 The Pointer Sisters - In Concert (2007) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Funk, Soul, Pop>
@@ -693,64 +751,6 @@ Marian Hill - Unusual (2018) [MP3|320 Kbps] <Alternative Pop, Electronic, Minima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA44713CA9140FD7C664B05CDF69293382CD5481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225417   (660763) от 15.05.2018
-
-Syreeta - The Essential (2001) Compilation [FLAC|Lossless|image + .cue] <Soul, Disco, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660763.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Spinnin & Spinnin'
-2	Your Kiss Is Sweet
-3	Harmour Love
-4	Come And Get This Stuff(   Читать дальше...   )Жанр: Soul, Disco, FunkПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC0C0C612AE0771C1521E0FC67C8443D918608C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902899   (660224) от 29.05.2015
-
-HOLYCHILD - The Shape of Brat Pop To Come (2015) [OGG|522-579 кб/с]<Alternative Pop, Brat Pop, Electronic, Indietronica>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barbie Nation (03:20)
-02. Nasty Girls (03:15)
-03. Happy With Me (02:48)
-04. Tell Me How It Is (03:12)(   Читать дальше...   )Жанр: Alternative Pop, Brat Pop, Electronic, IndietronicaПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDB4285CA4E76659322316D619FC76DC7FDA1B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

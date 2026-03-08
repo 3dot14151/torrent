@@ -1,3 +1,140 @@
+###  Публикация: 573474   (378027) от 11.11.2012
+
+VA - Новинки Русского Рока (2012) [MP3|256 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сансара feat. Илья Лагутенко - Дискотека
+02. Гарик Сукачев и Неприкасаемые - Веревочка
+03. Сплин - Дочь самурая
+04. Пикник - Декаданс
+05. Вячеслав Бутусов и Ю-Питер - 10 шагов
+06. Ночные снайперы - Что мы делали прошлым летом
+07. Алиса - Саботаж
+08. Машина времени - Крысы
+09. Браво - На лунный свет
+10. Сурганова и оркестр - Ну почему же я вру!(   Читать дальше...   )Жанр: RockПродолжительность: 06:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC55F680DBE21C78C9346A9E934C802B9D8EDF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573833   (378022) от 11.11.2012
+
+VA - Cosmic Chill Lounge Vol. 1-5 (2007-2011) [MP3|320 кб/с]<Instrumental, Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378022.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:01. The Man Behind C. feat. Miriam - See You Again
+02. Magica Fe - Words
+03. Soulcraft feat. Jill Noom - Rain In My Hair
+04. Sine - Always
+05. The Man Behind C. - Make You Mine
+06. Jeela - So Jealous
+07. The Man Behind C. - What Can U Do
+08. Soundbuffet - So Blue
+09. 4 Tunes - Let The Rhythm Take Control
+10. The Man Behind C. - Need You(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:12:43
+01. Faro-Toscan dawn
+02. Merge Of Equals-Heart and mind
+03. Ganga-New beginning
+04. Five Seasons-Love Apple (Lemongrass Wet Dreams Rem)
+05. Jens Buchert-The falling star (NYC Mix)
+06. Vargo-One language
+07. Sine-The return
+08. Gold Lounge-Promised land
+09. Fade-Wonderful time(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C9AC8A4BDA41A6E25693D5687F594C5AD86C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175402   (377908) от 18.10.2017
+
+VA - Club Night 2 (2017) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Feldt & Alex Schulz - Be My Lover (Original Mix)
+02. Two Modest & Hugobeat feat. SevenEver – All Night (DJ ALEX MOSCOW M-p)
+03. Tyron Hapi feat. Mimoza - Anyway (Original Mix)
+04. Burak Yeter - Echo (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FBDF3F0F05332227A4D3A5A6C27FE2292031AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949433   (377420) от 23.10.2015
+
+VA - Balkan Dance Hits (2015) [MP3|320 кб/с]<Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Klinx - Passion (Radio Mix) (03:01)
+02. Milan Nikolic - Summer In Belgrade (Original Mix) (05:54)
+03. Mike-D - Lie To Me (Fernando, Richard Spark Remix) (04:52)
+04. Xell Project - Feel High (Rowen 2.1 Balkanstyle Remix) (05:24)(   Читать дальше...   )Жанр: Dance, EurodanceПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3917EBB899650CDE779BF6735752EBE30D8DD8DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949518   (377343) от 23.10.2015
 
 Mystic Diversions - Лучшие хиты (2014) [MP3|320 кб/с]<Chillout, Ambient, Jazz, Instrumental>
@@ -650,122 +787,6 @@ VA - Zumba 2020: Rumba Fitness [MP3|320 Kbps] <Latin, Bachata, Rumba>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFD5F5B455B5783F781A2D0554C296747AC286A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176208   (371628) от 21.10.2017
-
-VA - По волне моей памяти: Том 2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Добрынин Вячеслав - Ах, какая женщина  4:35
-02.  Юрий Антонов - Берегите женщин  4:38
-03.  Владимир Кузьмин, Алла Пугачева - Две звезды  3:57
-04.  Игорь Скляр - Старый рояль  2:21(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE66B78EE47A189AB0DEFC93157AC2B04F6110FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176295   (371599) от 21.10.2017
-
-VA - По волне моей памяти: Том 4 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Олег Даль - Есть Только Миг  3:23
-02.  Игорь Иванов - Облака в реке  3:01
-03.  Михаил Муромов - Яблоки на снегу  4:28
-04.  Юрий Лоза - Зима  4:05(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583EB5E28BE800E5B1041F6A875DAB0B0F26E131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415540   (371584) от 14.10.2020
-
-VA - Music News vol.40 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. РенатА - Ежесекундно (03:30)
- 02. BROHM & Pane - Love The Way You Lie (02:44)
- 03. Daddy's Groove & Ron Louis Smith 2nd - Forever Spank (03:05)
- 04. DiUv & Joodey - Всё-Всё (03:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1591B3212A69B2C42FE8C05875C4C5900DA16CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176344   (371509) от 21.10.2017
-
-VA - По волне моей памяти: Том 5 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Игорь Саруханов - Ящики почтовые  3:39
-02.  Михаил Боярский - Городские цветы  4:05
-03.  Владимир Кузьмин - Если бы ты знала  5:10
-04.  Евгений Осин - Плачет девушка  2:43(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F410711D2289B1DA62B74A181BB111A9122B7722
 ```
 
 https://mybot314.ru/tekegram_catalog/

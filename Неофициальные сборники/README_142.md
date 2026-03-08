@@ -1,3 +1,177 @@
+###  Публикация: 1380404   (833318) от 03.05.2020
+
+VA - Acoustic Pop (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - The Man (Live From Paris)
+02. Justin Bieber - Intentions (Acoustic)
+03. Sam Smith Feat Normani - Dancing With A Stranger (Acoustic)
+04. Halsey - You Should Be Sad (Acoustic)(   Читать дальше...   )Жанр: PopПродолжительность: 02:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0619A0ED37690145DBBCA86F7094A28E8C55394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380431   (833315) от 03.05.2020
+
+VA - Record Super Chart 634 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Big - UNO 2:41
+02. El Capon - Shut Up Chicken 2:31
+03. Billie Eilish - Everything I Wanted (Arroy & Sergey Raf Remix) 3:28
+04. Тайпан feat. Agunda - Луна не знает пути 2:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1F776951A4B2CD3A0F6AFF5D9EE5D05BD1E0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114259   (833146) от 14.03.2017
+
+VA - I Love Music! - Hard Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Hard Rock, Melodic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833146.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angels Or Kings - On The Corner Of Love And Lost 4:38
+002. Black Hole Raven - Song For The Lost 4:04
+003. Black Paisley - It Ain't Over 4:21
+004. Black Star Riders - Letting Go Of Me 3:45(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 06:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DD2EA2CE987A2843908088305CD7C4B2CD4E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114200   (833141) от 14.03.2017
+
+VA - Музыка хорошего настроения. Retro Fm. Зарубежный (2017) [MP3|320 Kbps] <Pop , Disco , Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833141.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Starship - Nothing's Gonna Stop Us Now 4:29
+002. Latoya Jackson - Sexual Feeling 5:26
+003. The Gibson Brothers - Ooh What a Life 2:51
+004. Corona - The Rhythm Of The Night 4:24(   Читать дальше...   )Жанр: Pop , Disco , RockПродолжительность: 10:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC542E57CBC914470DC73FA560C51660D374675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380458   (833044) от 03.05.2020
+
+VA - Pop All Stars (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833044.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Beyoncé - Halo (4:21)
+2.Dua Lipa - New Rules (3:29)
+3.Ariana Grande - One Last Time (3:17)
+4.Ed Sheeran - Shape of You (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 03:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D1CBA3F26CACD06C3298EEB426582C2B5C062A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380358   (833036) от 03.05.2020
+
+Quiet Riot - 100% Quiet Riot (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Health (Bang Your Head)
+02. The Pump (Album Version)
+03. In the Blood
+04. Cum on Feel the Noize(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF087D3FFF2A82709AE91C1C171CF41720F05094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114352   (833029) от 14.03.2017
 
 VA - Beatport Trance Pack (14.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harmonic, Emotional, Energy, Euphoric>
@@ -571,180 +745,6 @@ Beth Hart - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F6E1BA2734C0417AC42AD70B868471B4B5D7449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380689   (831570) от 04.05.2020
-
-VA - Popular Folk Sound (2020) [MP3|320 Kbps] <Pop, Dance, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831570.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Djeely - La Seule
-002. Dimitris Zacharioudakis - Imeros Theos
-003. Mylson - Reconcilié
-004. Harmonik - Respè(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 07:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D56A081503FE220BE0C20BDFC2BCAE695CB831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380629   (831569) от 04.05.2020
-
-VA - Danger: Hardcore Review (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831569.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sector - End Of The World 86
-002. Worn - Suspect
-003. Kruelty - Desire
-004. Visitantes - Inflamables(   Читать дальше...   )Жанр: Hardcore, Hard Rock, AlternativeПродолжительность: 08:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D66B8657567E01C60783331509266FFC82CCC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380636   (831568) от 04.05.2020
-
-VA - Green Paradise (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831568.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chill Doctor Berlin - Cool Cats
-002. Jack Cutter - Serpent Strut
-003. Steve Hauschildt - Subtractive Skies
-004. Mofobeatz - Renaissance(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 08:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309A511DCCE09D4914DF2BEA3E659CE556040E3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380882   (831458) от 04.05.2020
-
-VA - Happy Hits (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831458.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Drake - Toosie Slide (4:07)
-2.Dua Lipa - Don't Start Now (3:03)
-3.Milky Chance - Stolen Dance (5:13)
-4.Omi - Cheerleader (Felix Jaehn Remix) (Radio Edit) (3:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B3B6505877AE9CF9BCB6EAED524644D821759B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380628   (831455) от 04.05.2020
-
-VA - Personification: Rnb Show Music (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831455.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bj The Chicago Kid - Champagne
-002. K. Forest - Against The Wall
-003. Wyann Vaughn - Take Me Down
-004. Evann Mcintosh - Yours(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 07:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB52F7C54A18329D5AF20F30C28B4AE6E2F699DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005713   (831198) от 10.04.2016
-
-VA - Sugapop Presents Club Anthems (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Absinth - Morning Sun (Extended Mix) 04:48
-02. Mydca - Do You Feel My Love (Extended Mix) 04:22
-03. California Sun - Touch the Sky (Mydca Remix) 05:09
-04. Eddy Chrome - Feel It in Your Soul (Dub Mix) 05:30(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 03:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6190EA1C81DF7850562B1AE1A295541413472E
 ```
 
 https://mybot314.ru/tekegram_catalog/

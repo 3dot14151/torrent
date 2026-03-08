@@ -1,32 +1,3 @@
-###  Публикация: 1606814   (1044296) от 23.01.2023
-
-The Hatters - По ходу люблю (2023) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044296.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Просто проваливай
-2. У-ля-ля
-3. Знаю
-4. Hey You(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E56D730437CC725496E59A9E677AA7550F9C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606803   (1044283) от 23.01.2023
 
 VA - Rock 2023 [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -746,6 +717,35 @@ Silent Hope - Silent Hope (2023) [MP3|320 Kbps] <Gothic Rock, Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9E646C61268CC06BDC53652C00980CFD5D13A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607160   (1044079) от 26.01.2023
+
+Moltano - Поэма столкновений (2023) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [00:01:33]
+02 - Время [00:02:58]
+03 - Калаби-Яу [00:05:20]
+04 - Поезд в никуда [00:04:45](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C79C3257E369304BD6269C1E3CD600346B9CB80
 ```
 
 https://mybot314.ru/tekegram_catalog/

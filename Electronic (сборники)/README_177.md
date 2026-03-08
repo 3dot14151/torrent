@@ -1,3 +1,32 @@
+###  Публикация: 1080172   (290388) от 06.12.2016
+
+VA - Electro Life 43 (by ZiP)(2016) [MP3|320 kbps]<Electro House, Electro Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amphibious Zoo Music - Truth Is No (Dubstep Version)
+02. Arash ft. Snoop Dogg - OMG (Mike Candys Extended Remix)
+03. Banvox - Summer (Getter Remix)
+04. Blasterjaxx - The Silmarillia (Original Mix)(   Читать дальше...   )Жанр: Electro House, Electro Progressive, Dubstep, Deep House, House, TranceПродолжительность: 03:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47214CE6A38C858268CB57E719535CE019B4F377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080007   (290343) от 06.12.2016
 
 VA - Record Super Chart #465 (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -719,35 +748,6 @@ VA - Record Super Chart 611 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61EC7D0B9D14892CEB0AC43F2D90DCEE4449A92D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080643   (285920) от 08.12.2016
-
-VA - The Crystal Method - Best275z (1997 - 2015) [MP3|320 Kbps] <Breakbeat, Breaks, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 (Can't You) Trip Like I Do 04:29
-02 London 02:47
-03 Weapons Of Mass Distortion 04:52
-04 Born Too Slow 03:00(   Читать дальше...   )Жанр: Breakbeat, Breaks, ElectronicПродолжительность: 04:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E9F0E1A13A6AFF170F09A50F64A6616F568F46
 ```
 
 https://mybot314.ru/tekegram_catalog/

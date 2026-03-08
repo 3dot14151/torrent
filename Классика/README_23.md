@@ -1,3 +1,32 @@
+###  Публикация: 905691   (647319) от 07.06.2015
+
+Mozart - Concertos for 2 & 3 Pianos (Katia & Marielle Labeque, Semyon Bychkov & Berlin Philharmonic Orchestra) (1999) [FLAC|Lossless]<Classical, Classical Period, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto for 2 pianos & orchestra in E flat major ("Concerto No. 10"), K. 365 (K. 316a)
+01. Allegro (10:03)
+02. Andante (08:04)
+03. Rondeaux (Allegro) (07:07)(   Читать дальше...   )Жанр: Classical, Classical Period, ConcertoПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93062EAE09A915FC69D476BF2897D1B3AE080A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517350   (647280) от 01.07.2012
 
 Mirusia - Always and Forever (2010) [FLAC|Lossless]<Classical>
@@ -751,35 +780,6 @@ Seven Bagatelles, Op. 33
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EC0A2B5F33C09957FC3CFDE453CD5BFE5B8F601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036602   (618836) от 21.07.2016
-
-Peter Szuts, Alfredo Bernardini, Paolo Grazzi, Concerto Armonico - Tomaso Albinoni: Concerti A Cinque Op.9 (Libro I) (1722) 1995 [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Concerto n.1 with violin in B flat major - Allegro    03:45
-02.  Concerto n.1 with violin in B flat major - Adagio    01:19
-03.  Concerto n.1 with violin in B flat major - Allegro    02:40
-04.  Concerto n.2 with oboe in D minor - Allegro e non presto    04:11(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2EAAB96617706F28A23B26EAFE85E4CC1ABB51
 ```
 
 https://mybot314.ru/tekegram_catalog/

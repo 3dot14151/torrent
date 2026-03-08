@@ -1,3 +1,32 @@
+###  Публикация: 957495   (327621) от 17.11.2015
+
+VA - Weird & Naked (Essential Classics) (2015) [MP3|320 кб/с]<Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonathan Morning - Bitter With the Sweet (Sonicwerks Mix)
+02. The Blessed Virgin Larry - Little Bloody Pill
+03. Jive Ass Sleepers - What's Left of Me (Nu Jazz Remix)
+04. Jonathan Morning - Lucky (Club Remix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 02:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3200E3BA0321BEFF076B0A961B9BAF551D83E83F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957332   (327620) от 17.11.2015
 
 VA - Epic & Uplifting Trance Euphoria (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
@@ -722,35 +751,6 @@ VA - Drum And Bass Evolution (2015) [MP3|320 кб/с]<Drum And Bass, DubStep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37DEA1C8C54D27178DA7AF865FB73D1E6F2C5AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181684   (321711) от 08.11.2017
-
-VA - Romantic Chill (2017) [MP3|320 Kbps] <Chillout , Lounge , Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kygo feat. Sasha Sloan - This Town (Original Mix)
-02. KastomariN - Love and You (Original Mix)
-03. Bishop Briggs - Mercy (Original mix)
-04. Moonnight - Love Is the Key (Dj Artak Remix) (Original Mix)(   Читать дальше...   )Жанр: Chillout , Lounge , AmbientПродолжительность: 05:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBFF7656109A940D62DE941021AAECAA7DB79A4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

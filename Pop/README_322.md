@@ -1,3 +1,62 @@
+###  Публикация: 1699538   (117817) от 13.02.2024
+
+Paul McCartney & Wings - Band On The Run (1973) 2 x CD, Reissue, 2023, Capitol Records, Apple Records, MPL [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Band on the Run - третий альбом группы Wings и пятый в сольной карьере Пола Маккартни, вышедший в свет в декабре 1973. Это пожалуй самый успешный альбом группы Wings и самый знаменитый из постбитловских альбомов Маккартни. Был признан самым популярным альбомом в мире в 1974 году.
+Музыкальный критик журнала Rolling Stone считает Band on the Run "лучшей пластинкой (   Читать дальше...   )CD1 - Band On The Run:
+01. Band on the Run
+02. Jet
+03. Bluebird(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9414D0FF6C54EDA1BC2D4C21501D88929480955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699486   (117811) от 13.02.2024
+
+VA - Maxi Hit-Sensation 97-04 (2007) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A Touch Of Class - Around The World (Ruegsegger # Wittwer Club Mix)
+02.  Eiffel 65 - Lucky (In My Life) (Gabry Ponte Club Mix)
+03.  Touche - This Goodbye Is Not Forever (DJ Lucky Extended Version)
+04.  Modern Talking - Juliet (Jeo's Remix)(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 03:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E250271E2EC526E2D625E9730CA65361F2DDAB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699346   (117806) от 13.02.2024
 
 VA - Absolute Dance (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House, Eurodance>
@@ -670,64 +729,6 @@ VA - Extend The 80s Groove (Essential 12" And Extended Mixes Of 80s Groove Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B53930E3403F4D51E98F0F624E076EC6F3F0C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700669   (116862) от 18.02.2024
-
-VA - Die Neue Heartbreakers Vol.3 (1991) [OGG Vorbis|480 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gloria Estefan - Anything for You
-02.  Earth, Wind & Fire - I'll Write a Song for You
-03.  Toto - Takin' It Back
-04.  Ian Hunter - Rose(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF1D0CA8298055EC7518EA293073AD495642BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700787   (116857) от 18.02.2024
-
-S Club - Say Goodbye / Love Ain’t Gonna Wait For You (2003) Reissue, Remastered, 2024, UMC (Universal Music Catalogue) [FLAC|Lossless|WEB-DL|tracks] <Europop, Ballad, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say Goodbye [00:03:57]
-02. Special Kind Of Something [00:03:40]
-03. Bittersweet [00:03:39]
-04. Love Ain't Gonna Wait For You (Single Remix) [00:03:48](   Читать дальше...   )Жанр: Europop, Ballad, DiscoПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E889036A502C790614EB27D58FE25E548EF2DC89
 ```
 
 https://mybot314.ru/tekegram_catalog/

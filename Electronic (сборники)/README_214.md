@@ -1,3 +1,38 @@
+###  Публикация: 460748   (94999) от 01.03.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat 75 (01.03.2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94999.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Nightstylers feat. Dan Brown - The More I See (Original Mix) (7:20)
+ 2. Mark Eteson - Universal Language (Tritonal Club Mix) (6:35)
+ 3. Pedro Del Mar feat. Emma Lock - Guilty (Pedro Del Mar's ProgTrance Mix) (6:28)
+ 4. Solis & Sean Truby feat. Anthya - Timeless (Protoculture Remix) (7:45)
+ 5. Above & Beyond feat. Zoe Johnston - You Got To Go (Kyau & Albert Remix) (6:47)
+ 6. Sunbird - They Accept Paradise (Original Mix) (6:40)
+ 7. Beat Service feat. Emma Lock - Not Out (Original Proglifting Mix) (8:14)
+ 8. Ronski Speed feat. Renee Stahl - Out Of Control (Club Mix) (7:12)
+ 9. Mat Zo & Arty - Mozart (Original Mix) (7:10)
+ 10. Betsie Larkin & John O'Callaghan - The Dream (Jason van Wyk Remix) (7:16)(   Читать дальше...   )01.03.2012Жанр: TranceПродолжительность: 03:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CDF84AD2F291D11B9F53ED457632D854889AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459003   (94835) от 27.02.2012
 
 VA - Dubstep Boom Vol.2 (2012) [MP3|320 кб/с]<Dubstep>
@@ -852,35 +887,6 @@ VA - Musical kaleidoscope part 23 Easy listening (2025) [MP3|320 Kbps] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA906D3B2C5ED822B369248A31106A17BA4E1FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775346   (71449) от 26.01.2025
-
-VA - Compilation part 140 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delal Derin - Hard to Forget You
-02. Azimov - Autumn Fairy Tale
-03. Muvi - P a R I S
-04. Delal Derin - If Only(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4610490F2A5280E9325F284F6989210CFEC89F63
 ```
 
 https://mybot314.ru/tekegram_catalog/

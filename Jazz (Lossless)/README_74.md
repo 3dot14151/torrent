@@ -1,3 +1,32 @@
+###  Публикация: 1511294   (789376) от 20.11.2021
+
+Phil Woods With Strings - The Thrill Is Gone (2003) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And When We're Young [8:26]
+02. I Get Along Without You Very Well [4:54]
+03. You Go To My Head [5:30]
+04. It Never Entered My Mind [8:59](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9D81FECE12DA400F68697B60C925EC7CD095DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511153   (789369) от 20.11.2021
 
 Marina & The Kats - Different (2021) [FLAC|Lossless|image + .cue] <Swing Jazz, Vocal Jazz>
@@ -716,35 +745,6 @@ John Surman, Nelson Ayres, Rob Waring - Invisible Threads (2018) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEEDED257402CD6BCF215117B0BD677B61CF84ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203775   (787705) от 03.02.2018
-
-Carmen McRae - Sings Lover Man And Other Billie Holiday Classics (1961) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them There Eyes [02:49]
-02. Yesterdays [04:55]
-03. I'm Gonna Lock My Heart (And Throw Away the Key) [02:34]
-04. Strange Fruit [02:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DD3A4A8738B01693AA412BCE3CD1CF85244214
 ```
 
 https://mybot314.ru/tekegram_catalog/

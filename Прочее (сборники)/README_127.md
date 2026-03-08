@@ -1,3 +1,125 @@
+###  Публикация: 953154   (351183) от 03.11.2015
+
+VA - Top 100 Зайцев.Нет Октябрь (2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351183.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dan Balan - Funny Love (03:13)
+002. Imany - Don’t Be So Shy (Filatov & Karas Remix) (03:10)
+003. Тимати Feat. Рекорд Оркестр - Баклажан (03:07)
+004. Fifth Harmony - Worth It (Feat. Kid Ink) (03:45)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 05:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2572D8EDD3127D90280F4FD30B13CF8989935698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179078   (351110) от 30.10.2017
+
+VA - По волне моей памяти: Том 29 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Алла Пугачёва - Я больше не ревную 5:18
+02.  Николай Носков - Я тебя прошу 4:00
+03.  Валерий Залкин - Капали слёзы 4:10
+04.  Александр Солодуха - Здравствуй, чужая милая 3:40(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170776B21D98F1E881210AEDA3899CB2D2CD885C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952726   (351009) от 03.11.2015
+
+VA - Europa Plus Eurohit Top 40 October 2015 (2015) [MP3|160-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kwabs - Walk (03:33)
+02. Calvin Harris & Disciples - How Deep Is Your Love (03:32)
+03. Imany - Don't Be So Shy (Filatov & Karas Remix) (03:09)
+04. Lost Frequencies feat. Janieck Devy - Reality (02:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1C824D1459E4B39D6A654342CC0F303F14535F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578947   (350987) от 22.11.2012
+
+VA - Dubstep Impression (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eboxyde - Blurred World
+02. 12th Planet Antiserum - Bass Salt
+03. 501 - Smash
+04. Bare - Sleep
+05. Bratkilla - Forsaken
+06. Butch Clancy - Russian Lullaby
+07. Don Diablo feat. Dragonette - Animale (Datsik Remix)
+08. Emalkay, Rod Azlan - Flesh Bone
+09. Far Too Loud - 600 Years
+10. Ill-Esha - Blazed (Buzzwak Remix)Жанр: DubstepПродолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28AD66E163F1AF73AC184F8A1C3965B21C06BBF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 578400   (350595) от 22.11.2012
 
 VA - Русские новинки Ноябрь  (2012) [MP3|320 кб/с]<Pop>
@@ -638,125 +760,6 @@ VA - Новинки С Разных Популярных MP3 Сайтов (16.11
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16A2876297350C2237F0BC4085E4A8943F3FF122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257556   (344726) от 26.10.2018
-
-The Prodigy - No Good (2016) Remix [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Prodigy - No Good ★ DJ SAVIN Remix ★ Radio VersionЖанр: Deep HouseПродолжительность: 00:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327C1CBC6127D67F84155CA94878CB771F3D3034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418820   (344546) от 26.10.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 23.10.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAYE - Natalie Don't (3:14)
-02. twocolors - Lovefool (3:10)
-03. Dotan - NUMB (3:38)
-04. Hurts - Redemption (4:18)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1787742CC8F27AFC50E5DEACD375F8B6DDF03F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579794   (344532) от 24.11.2012
-
-VA - Танцевальный рай Dream House (2007) [MP3|320 кб/с]<Dance,House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 DJ Dado - Metropolis '2006
- 02 Project Driver - Join the dream
- 03 Ronald Snypes vs. Robert Miles - Children (dreamphase vers.)
- 04 Mid Air - Killing me softly (Fugees)
- 05 Wisehand - Timeless
- 06 Adriatic - Memories
- 07 Zhi-Vago - Celebrate (the love) radio mix
- 08 Floribunda - Floribunda
- 09 F-Project - Cry for love
- 10 Taucher - WinterloveЖанр: Dance,HouseПродолжительность: 04:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1559CFA68529CF686E5B338230488B47405CA68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418880   (344211) от 26.10.2020
-
-VA - Зайцев.нет Лучшие новинки Октября (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2nd Season - Чужой Тебе (3:18)
-02. Andrea Bocelli - You'll Never Walk Alone (3:21)
-03. Andro, Qontrast, Hiro - Гипноз (3:08)
-04. Armin van Buuren, Jake Reese - Need You Now (3:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1C36F84642368A70E18162DB37D04488AC46F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

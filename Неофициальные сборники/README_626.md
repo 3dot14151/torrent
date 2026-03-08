@@ -1,3 +1,177 @@
+###  Публикация: 1689368   (124803) от 01.01.2024
+
+VA - Music News vol.328 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124803.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carlla feat. Dr Mako - July (Sped Up) (02:45)
+ 002. Akord feat. Mihaela Tabura - Hai Hai (03:17)
+ 003. Anastay - Вселенная (02:16)
+ 004. Armin Van Buuren - Computers Take Over The World (Club Mix) (02:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4333B4E10C20F7E7B7B76CFA7D9BE970EC386AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689525   (124733) от 02.01.2024
+
+VA - Радио Рекорд Итоговый Суперчарт 2023 - 100 лучших треков (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124733.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Oliver Tree feat. Robin Schulz - Miss You (3:26)
+002. Tiesto - Lay Low (2:33)
+003. Purple Disco Machine feat. Kungs - Substitution (3:01)
+004. Tove Lo - Borderline (3:13)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10420C225C34FDC9FA1C389162C5A039E484AAD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689465   (124681) от 02.01.2024
+
+VA - DOWN LOW 5 (2024) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HEDEGAARD - Nias in Paris - HEDEGAARD & Matt Hawk Remix (4:06)
+02. SINDICVT - Ethnic (3:38)
+03. Ilkan Gunuc - Plain Jane (3:33)
+04. Butch U - Combo (3:21)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 01:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D229871443BD722AF94DD98EAD708B8469A64B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689366   (124554) от 03.01.2024
+
+Richard Bargel - Compilation (2024) [MP3|320 Kbps] <Blues rock, Blues, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Quijote
+ 02.  One Way Ticket
+ 03.  All Talker and Stalker
+ 04.  Autumn Blues(   Читать дальше...   )Жанр: Blues rock, Blues, SoulПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56308D0DDF2C53AC40D8AAD727F842168B334BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689405   (124547) от 03.01.2024
+
+John Haydock - Compilation (2024) [MP3|320 Kbps] <Rock, Blues rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ain't That Something?
+ 02.  Just Enough Love
+ 03.  License to Shoot
+ 04.  Looking for the Sourse of the Nile(   Читать дальше...   )Жанр: Rock, Blues rockПродолжительность: 05:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E7AC6488E0D2A0A573DFDA7827419C0D980F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689686   (124544) от 03.01.2024
+
+Rainshow - Compilation (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  First Love
+ 02.  Maria
+ 03.  Secrets
+ 04.  Move(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77350C2C7AA3163C224BFFF0A1C87F9737A7C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689867   (124360) от 04.01.2024
 
 Soft Deep - Compilation (2024) [MP3|320 Kbps] <Electronic>
@@ -571,180 +745,6 @@ VA - Heart Beats (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D135E46B1ABD19550E3AC60BEBC4B9C274461AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693092   (122087) от 19.01.2024
-
-VA - Mega Hits 2024 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122087.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ariana Grande - yes, and (3:35)
-002. Dua Lipa - Houdini (3:05)
-003. Taylor Swift - Anti-Hero (3:20)
-004. Lizot - This Is The Life (2:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E842CF58DB2F072EBDBC91A95AA2B0EED5A34F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693143   (122072) от 19.01.2024
-
-VA - Music News vol.332 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122072.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zara Larsson - You Love Who You Love (03:06)
- 002. 5УТРА - Не Повезло (02:22)
- 003. Adam Ulanicki - Rumors (02:54)
- 004. A'DI - Белый Снег (02:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7433AD323C111183EF9ED2D30D6BAEA5B4294CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692920   (122052) от 19.01.2024
-
-Davit Barqaia - Compilation Version 2 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Trust Me
- 02.  Kiss Me
- 03.  Don't Leave Me
- 04.  Around You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 07:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563DBAE16FB3EBA8F1FB201BE32AFFF56407A2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692446   (122048) от 19.01.2024
-
-VA - Electronic compilation part 43 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davit Barqaia - Trust Me
-02. Riltim - Nona
-03. Akmalov - Te Deseo
-04. Riltim - Vintage(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C17AF94752C1FAB4480F7F42241A6581D3DCFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693294   (121939) от 20.01.2024
-
-VA - ЕвроХит Топ 40 Europa Plus 19.01.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah De Warren feat. Charming Horses & Hanno - This Is The Life (2:57)
-02. Dua Lipa - Houdini (3:05)
-03. Jung Kook feat. Jack Harlow - 3D (3:21)
-04. Zerb feat. Sofiya Nzau - Mwaki (Tiesto's VIP Mix) (2:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D55892F4BFB6D4D2D89B769168D33B95F9663B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693351   (121907) от 20.01.2024
-
-VA - German Top 100 Single Charts 19.01.2024 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121907.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bennett - Vois sur ton chemin (Techno Mix) (2:58)
-002. cassö, Raye & D-Block Europe - Prada (2:12)
-003. Tate McRae - greedy (2:11)
-004. Jack Harlow - Lovin On Me (2:18)(   Читать дальше...   )Жанр: PopПродолжительность: 04:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56432D811AC03F5FCA272F60931C4716B7A49403
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1265661   (274138) от 28.11.2018
+
+VA - Markus Schulz - We Are the Light (The Extended Mixes) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - The Awakening (Extended Mix) (08:03)
+02. Markus Schulz, Seri & Omnia - Road Of No Return (Extended Mix) (06:58)
+03. Markus Schulz & Alina Eremia - You Light Up The Night (Extended Mix) (06:53)
+04. Markus Schulz - We Are The Light (Feat. Nikki Flores) (Extended Mix) (06:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25711B56B4B3757E107BBB673AFAB5FE39952608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265509   (274128) от 28.11.2018
+
+VA - Vocal Trance Legends (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Morris feat. Ana Criado - Border Line (Radio Edit)
+02. Stine Grove - This World Is Full Of Goodbyes 2018 (Original Mix)
+03. Saad Ayub feat. Jaren - Hurt (RYDEX Remix)
+04. Allen Watts feat. Katty Heath - Break Without The Pain (Radio Edit)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3116C31C89143B675A7A091C111ECDFC1CA9D0B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083748   (273861) от 16.12.2016
 
 VA - Ecliptic Chapter Four (Compiled & Mixed by Seven24) (2016) [MP3|320 Kbps] <Chillout, Downtempo>
@@ -687,64 +745,6 @@ Schiller - Zeitreise (Das Beste von Schiller) (2016) [MP3|320 Kbps] <Ambient, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34D3F341D03AD37E9D45163F3C2BDEA6AAEE532A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188814   (273353) от 03.12.2017
-
-VA - Liquicity Drum & Bass 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fox Stevenson - Knowhow (04:29)
- 02. Dualistic, MENN - Thunder (05:02)
- 03. L Plus - Battleground (04:09)
- 04. Chinensis - Emerald Waters (Zazu Remix) (04:42)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08CC3ADBA69910311EE857ADB79F6F6ACEA09B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337613   (273265) от 11.11.2019
-
-VA - Soviett 1 Year (Compiled & Mixed by Ivan Starzev) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ksky - Paradizio (5:06)
-02. Various/Ivan Starzev - Magic (6:07)
-03. Anton Romezz - Nonpop (Ivan Starzev Remix) (7:44)
-04. DPKY - Hold On (4:28)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 02:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB91AFF0BD07B571E7933273257707F563548A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

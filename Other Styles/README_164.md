@@ -1,3 +1,32 @@
+###  Публикация: 1695385   (119798) от 01.02.2024
+
+Paul Mauriat - White Christmas (1977) Reissue, 1984, Philips [OGG Vorbis|480 Kbps] <Pop, Easy Listening, Holiday>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  White Christmas
+02.  Vive Le Vent 'Jingle Bells'
+03.  Mon Beau Sapin
+04.  Rudolph, The Red-Nosed Reindeer(   Читать дальше...   )Жанр: Pop, Easy Listening, HolidayПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5830B3A7E5AE3C040750478F0614EB75E2E71F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695551   (119780) от 01.02.2024
 
 Ashley Ryan - Too Far Gone (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Country>
@@ -716,35 +745,6 @@ VA - The Orient Collective: Mystic Dunes (2023) FLAC Lossless|WEB-DL|tracks] <Wo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEE747DC8E5C609051D8FE870842FEB46A98E18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703088   (114831) от 01.03.2024
-
-VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darles Flow, José Sierra & Tibetania - Sahra (6:06)
-02. Project Blue Sun & Tibetania - Desert Girl (Dacosta Remix) (5:46)
-03. Tibetania & Hansonic - Streets of Khartoum (6:40)
-04. The Mystic & Tibetania - Johera (6:45)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8BAC9B36BD1963844A7820922EB504E79AEAE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

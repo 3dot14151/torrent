@@ -1,3 +1,90 @@
+###  Публикация: 1127431   (731118) от 22.04.2017
+
+Arcania - Sweet Angel Dust (2010) [FLAC|Lossless|image + .cue] <Melodic Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Angel Dust 06:59
+02. No End 05:21
+03. Memento 08:02
+04. Leave My Mind 05:08(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FD7F9883775C83BE39754F314AE05546B96A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021966   (731110) от 31.05.2016
+
+Veiled In Scarlet - Reborn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Note Dances
+02. Blaze of Resurrection
+03. Unequal Monotone
+04. Buried in Shadows(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD26AC8E66BFD6D001441E8CD07267DC41DC519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021964   (730366) от 31.05.2016
+
+Lacuna Coil - Delirium (2016) Limited Edition [FLAC|Lossless|image + .cue] <Gothic, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The House Of Shame 05:17
+02. Broken Things 03:59
+03. Delirium 03:16
+04. Blood, Tears, Dust 03:55(   Читать дальше...   )Жанр: Gothic, Alternative MetalПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF368433D0995E86F3AB18E152DB286456F3A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284123   (730100) от 20.02.2019
 
 Before The Rain - Frail (2011) [FLAC|Lossless|image + .cue] <Doom Metal>
@@ -662,99 +749,6 @@ Forbidden - Twisted Into Form (1990) Japan [FLAC|Lossless]<Thrash metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668832   (723898) от 15.06.2013
-
-Gorefest - Soul Survivor (1996) [FLAC|Lossless]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom (04:32)
-02. Forty Shades (04:17)
-03. River (04:35)
-04. Electric Poet (04:21)
-05. Soul Survivor (04:30)
-06. Blood Is Thick (03:43)
-07. Dog Day (02:54)
-08. Demon Seed (03:47)
-09. Chameleon (02:46)
-10. Dragon Man (09:14)Жанр: Death MetalПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217899   (723294) от 09.04.2018
-
-Alcyona - Trailblazer (2018) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enchantment
-02. Dreamroad
-03. The Kingdom of Might
-04. Sacred Fire(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8755A020BA58B43120A251805B25054322F4836C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400049   (723165) от 03.08.2020
-
-Skyclad - Oui Avant-garde A Chance (1996) [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Die Laughing, It'll Be An Act Of God (03:48)
-02. Great Blow For A Day Job (04:20)
-03. Constance Eternal (05:53)
-04. Postcard From Planet Earth (05:11)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB5275A115D9860CADF2C575A55305F4D4D2917
 ```
 
 https://mybot314.ru/tekegram_catalog/

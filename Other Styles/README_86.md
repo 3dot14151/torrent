@@ -1,3 +1,32 @@
+###  Публикация: 1149878   (596610) от 13.07.2017
+
+Amure - 8 albums (2010-2015) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Фантазия №1 (05:51)
+02. Фантазия №2 (Аллилуя) (05:52)
+03. Фантазия №3 (Rock'n'Roll Mega Drive) (06:39)
+04. Фантазия №4 (06:46)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 09:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9457DDB75FF68260C5032791FB70B5CC036EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232844   (596358) от 26.06.2018
 
 Kimberly Haynes - In Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Folk>
@@ -731,35 +760,6 @@ Valeriy Dolgin - Erektogitara (2013) [MP3|320 Kbps] <Guitar, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E9493216742E4567BF948BC3A35548724A13133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552258   (588494) от 19.05.2022
-
-Giovanni Marradi - The Best of Giovanni, Vol. 2 (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annie's Song (2:25)
-02. A Time for Us (3:08)
-03. Spanish Eyes (2:35)
-04. Hymne (2:39)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12F10D214EB5499D759186E73A42773B3A3461D
 ```
 
 https://mybot314.ru/tekegram_catalog/

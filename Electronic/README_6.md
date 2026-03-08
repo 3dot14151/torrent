@@ -1,3 +1,61 @@
+###  Публикация: 1846318   (1051313) от 24.01.2026
+
+VA - Tomorrowland Brasil (2025) [MP3|320 Kbps] <Techno, House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agents Of Time & CERES - Baby
+02. Argy & Eli & Dani & Peki & ØSHER - Chasing Highs
+03. Cassian & YOTTO & Da Hool - Love Parade  w/Junior Jack - E Samba (Acappella)
+04. Agents Of Time ft. Ross Quinn - Friend Of Mine(   Читать дальше...   )Жанр: Techno, House, TranceПродолжительность: 36:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB848891D5BCC2889E46C1646635480C1FB085D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846171   (1051230) от 06.01.2026
+
+Hardwell - Hardwell On Air 527 (Yearmix 2025) (2026-01-02) [MP3|320 Kbps] <Techno, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardwell – Sanctuary (Intro Edit)
+02. Hardwell & Olly James – Lights Out
+03. Hardwell & Olly James vs. Hardwell vs. Tyla – Flatline vs. Spaceman vs. Water (Hardwell Mashup)
+04. Zedd & Foxes vs. Domeno & Michael Sparks – Clarity vs. Locked & Loaded (Hardwell Mashup)(   Читать дальше...   )Жанр: Techno, Big RoomПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB447124C4115CDE9DD401A73BCF3C2AC24AE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846119   (1051175) от 05.01.2026
 
 Kasablanca - Higher Resolution (Side-A, Side-A-The Remixes, Side-B) (2024-2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Progressive Trance>
@@ -686,64 +744,6 @@ VA - Deepalma Presents: Most Loved 2025 (2025) [MP3|320 Kbps] <Organic House, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87ABC487829767566CF823629EA33ABE71BE0F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844913   (1050412) от 28.12.2025
-
-VA - 25 Years Of Anjuna Mixed By James Grant (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (02:55:30)
-01. Cubicolor - Got This Feeling (Mixed) 07:36
-02. Jody Wisternoff - Dapple (Mixed) 02:53
-03. 16BL - Nobody Seems To Care (Mixed) 05:08(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 09:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F0BFD22BBC6D5779158B7700EDFE4AF0644596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845071   (1050325) от 29.12.2025
-
-VA - Happy New Year Party 2026 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - SSONDA 02:43
-02. 90bangerz - Para Ri Para Ra 02:05
-03. JLUIS - Universe 03:10
-04. Stephan F - Supernova 03:04(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D49C1A617F0A511C5EFCB19CECB9FB8582177F
 ```
 
 https://mybot314.ru/tekegram_catalog/

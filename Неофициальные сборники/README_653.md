@@ -1,3 +1,177 @@
+###  Публикация: 1801088   (66240) от 08.06.2025
+
+Brian Owens - Compilation (2025) [MP3|320 Kbps] <Soul, Jazz, R&B>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lord Knows (Ain't Personal) [04:03]
+02. Looking for a Daddy (feat. Theresa Payne) [04:41]
+03. Soul Anthem (Bring It Back) [01:49]
+04. Got to Give It Up (Japan Bonus Track) [11:00](   Читать дальше...   )Жанр: Soul, Jazz, R&BПродолжительность: 04:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41EE941BA7C677B128CC3F24D2370DC869CD29D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801687   (66195) от 12.06.2025
+
+VA - National Pop Dance Music Vol.106 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66195.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eddy De Pretto - Crash Test (01:31)
+ 002. L'affaire Capucine - Canon A The (01:31)
+ 003. Dj Luciano - Granny's Square Dance Fail (01:55)
+ 004. Robertino Y Su Arpa - Arbol De Navidad (02:09)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD425A41684584BB7EDA3249254355FCF89E3F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801695   (66189) от 12.06.2025
+
+VA - National Pop Dance Music Vol.108 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66189.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hugel - I Adore You (03:34)
+ 002. Mc Menor Jp - Menina De Vermelho (02:31)
+ 003. Bac - Rosaroter Tee (02:43)
+ 004. Jazeek - Tell Me (02:35)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C6A5F5368E42A786A25F4110608B678A33C172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802085   (66141) от 14.06.2025
+
+VA - National Pop Dance Music Vol.110 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66141.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tws - Plot Twist (02:32)
+ 002. Aleph - School Day Nostalgia (03:22)
+ 003. Marracash - Gli Sbandati Hanno Perso (03:14)
+ 004. Pinguini Tattici Nucleari - Islanda (03:37)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68A5EEAB9E355D97569C9953282E89996FCB4B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803770   (65778) от 25.06.2025
+
+VA - Luminiscent Dance Boom (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65778.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Harmony Bytes - Genesis Of Code (03:20)
+ 002. Chromeo - Personal Effects (04:00)
+ 003. Babebee - Safe Haven (02:08)
+ 004. Prima Stanza A Destra - L'ultima Volta (02:24)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 10:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45C8A817E3E40721F38F67EB555843C83C19B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804428   (65649) от 29.06.2025
+
+VA - Musical kaleidoscope part 45 Assorted (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Aleksey Boychenko - Way
+02 - Aleksey Boychenko - Hold My Hand
+03 - Era, Music for Soul - Ameno
+04 - Giovanni Marradi - Roggy's Theme(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9DA883715CF62835645097D7618C28FD69D618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807589   (65249) от 19.07.2025
 
 VA - Compilation Part 175 Electronic (2025) [MP3|320 Kbps] <Electronic>
@@ -571,180 +745,6 @@ Part 1 (Discoteka):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F65EC282B0D3371B8B2B3B790A68BE5051B35D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707670   (62693) от 17.03.2024
-
-VA - In Your Dreams: Deep House Session (2024) [MP3|320 Kbps] <Deep-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62693.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anton Lacosta - Play (00:02:13)
-002. Alex Menco - Don't Leave Me Alone (00:02:18)
-003. Kate Linch - You Hate Me (00:02:18)
-004. Levorica - Moonshield (00:02:32)(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 11:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A44012A5C7AC22533C080776CDDA5F07B557E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707676   (62691) от 17.03.2024
-
-VA - Good Morning (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62691.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dave Harrington - The Pictures (00:01:19)
-002. Adrian Lane - Marking Time (00:02:32)
-003. Ialaz - Interlude (00:01:50)
-004. Magnus Moone - Cave Paintings (00:02:01)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E8FE8582DC91C031CF06089AE23B381BD94AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707681   (62689) от 17.03.2024
-
-VA - Deep Astral (2024) [MP3|320 Kbps] <Chill, Electronic, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillout Music Cafe - Secret Paradise (00:01:54)
-02. Luna Dreamscapes - Captain's Cuddle (00:02:20)
-03. Afternoon Bike Ride - Bois Dormant (00:02:28)
-04. Salami Rose Joe Louis - Dimcola Reprise (00:02:31)(   Читать дальше...   )Жанр: Chill, Electronic, Relax, ExperimentalПродолжительность: 08:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16DAC8F1CCACE3EC63A9519525553069470975C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707505   (62648) от 17.03.2024
-
-VA - Easy Pop 00s (2024) [MP3|320 Kbps] <Pop, Dance, RnB, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay - Sparks
-02. Michael Bublе - Home
-03. Jason Mraz - I’m Yours
-04. Uncle Kracker - Follow Me(   Читать дальше...   )Жанр: Pop, Dance, RnB, RockПродолжительность: 03:21:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BA1E1825D006B5EF65B95ECC7820833B0681AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707632   (62637) от 17.03.2024
-
-VA - Rock & Blues Rock compilation part 65 (2024) [MP3|320 Kbps] <Rock & Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trixie Whitley - Pieces
-02. Medicine Head - Alibi
-03. Geordie - Little Boy
-04. Trixie Whitley - Closer(   Читать дальше...   )Жанр: Rock & Blues RockПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9623A9838993F3E3F79985ECCC2BFC657E80AE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706239   (62634) от 17.03.2024
-
-VA - Reggae Sun music (2024) [MP3|320 Kbps] <Reggae, Ska>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62634.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bob Marley & The Wailers - Is This Love [03:51]
-002. Sticky Fingers - How To Fly [03:22]
-003. Madness - Our House [03:23]
-004. Damian Marley, Stephen Marley - Medication [03:43](   Читать дальше...   )Жанр: Reggae, SkaПродолжительность: 09:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB075DE97DA3F5616C85247D8B7F160833E6B8B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

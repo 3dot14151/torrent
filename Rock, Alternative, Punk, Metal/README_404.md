@@ -1,32 +1,3 @@
-###  Публикация: 1537191   (669090) от 15.03.2022
-
-Moon Halo - Together Again (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light in the World (6:12)
-02. Together Again (5:30)
-03. Embrace This Life (5:55)
-04. If This Is All There Is (4:22)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:09:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B03FA7D81AE8018D01FDCBEED6A1B008EA05208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137193   (668961) от 25.05.2017
 
 Rhapsody of Fire - Legendary Years (2017) [MP3|320 Kbps] <Symphonic Power Metal>
@@ -757,6 +728,35 @@ Nick Johnston - Atomic Mind (2014) [MP3|320 Kbps] <Instrumental Guitar Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F1D7B52889D09CA080482BDBF870B35E9D3FF27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223953   (668182) от 08.05.2018
+
+Yes - Tormato (1978) Remaster, 1994, Atlantic [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Times/Rejoice (04:05/02:41) (Total time: 06:46)
+02. Don'T Kill The Whale (03:55)
+03. Madrigal (02:21)
+04. Release, Release (05:40)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B45A77FF1CD6244FEB84864D702A7F4A89AD3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

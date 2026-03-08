@@ -1,3 +1,67 @@
+###  Публикация: 358256   (585898) от 02.07.2011
+
+DJ Kocmoc - Эксклюзивные Хиты Дискотек (MEGAMIX 80-90х) (2.07.2011) [MP3|320 kbps]<Club,Dance,Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585898.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Opus - Life Is Life (DJ Fisun Remix)
+ 2 DJ Smash vs Lyube feat. Mc Shayon - Atas
+ 3 Virus - Ty menya ne ischi (Free Dj's Rework)
+ 4 Ruki Vverh - Ya Ne Otdam Tebya Nikomu (Insomnia Radio Mix)
+ 5 Platinum Monkey & D.Tarasyuk vs Evgeniy Osin - Plachet Devushka v avtomate
+ 6 Arash - Boro Boro (Dj Kirill Clash & Dj Dmitriy Nema Mash-Up)
+ 7 Irina Saltykova - Serye Glaza 2011 (Aleksey Kraft Remix Radio Edit)
+ 8 Dirty Impact vs. Royal XTC - Tom's Diner (PH Electro Remix)
+ 9 Leprikonsy - Haligali (DJ Skafelnikof & DJ BooF Disco House Remix)
+ 10 Yura Shatunov - Metel' v bol'shom gorode (MusicKey 2011 Edit Version)(   Читать дальше...)Жанр: Club,Dance,PopПродолжительность: 01:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E788646090BBB51417F368D338E2AFCA3F51C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040796   (585534) от 06.08.2016
+
+VA - Las Vegas Chillout Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585534.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kroner - Kirche im Dorf [04:08]
+002. Manchester Snow - Stranger [03:31]
+003. Paul Rays - Moon [05:28]
+004. Sine Tunes - Disk Store [03:12](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 15:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BD6B31AE0D5976B9777BB3D6346AD46C7480BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040773   (585532) от 06.08.2016
 
 VA - 50 Greatest Chillout And Lounge Classics (3CD) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -701,64 +765,6 @@ VA - 50 Lounge and Chillout Classics (2016) [MP3|320 Kbps] <Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6D307A6087762CC50601B537B214E6880DE4837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919583   (583010) от 19.07.2015
-
-Tangerine Dream - Les Genies du Rock - Rockoon (1995) [MP3|320 кб/с]<Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big City Dwarves [06:06]
-02. Red Roadster [08:13]
-03. Touchwood [04:28]
-04. Graffiti Street [04:48](   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946D3E0BB703DDFB62B4E3285DC8980A25381333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919580   (583009) от 19.07.2015
-
-VA - Sirup House Anthems Las Vegas 2015 (2015) [FLAC|Lossless|WEB-DL]<Progressive House, House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lika Morgan - Relax (Don't Do It) (Short Edit) [2:44]
-02. Shanahan - Hold On (Radio Mix) [3:32]
-03. Esquire - Over Now (Darone Radio Mix) [3:39]
-04. EDX - Empathy (Radio Edit) [3:10](   Читать дальше...   )Жанр: Progressive House, House, Deep HouseПродолжительность: 01:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC50C53502F0E9FD539F9A5E568626936263773
 ```
 
 https://mybot314.ru/tekegram_catalog/

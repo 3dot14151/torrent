@@ -1,3 +1,90 @@
+###  Публикация: 1397272   (741371) от 19.07.2020
+
+Phil Stroud - Australiana (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Deep House, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Australiana (07:50)
+ 02. Zamia Trail (06:02)
+ 03. Morning Breeze (07:16)
+ 04. Eucalyptus (08:36)(   Читать дальше...   )Жанр: Ambient, Deep House, Dub TechnoПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90220EFAA5E8E1F57B0380D304B640AADC6ACC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126820   (741119) от 20.04.2017
+
+VA - Chriss Ronson - Focus: 003 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chriss Ronson - One Shot (original mix) (07:00)
+02. Onur Ozman - There's No Shame (Chriss Ronson's Cre8tion remix) (07:00)
+03. Chriss Ronson - Bamboo Basket (original mix) (06:41)
+04. Chriss Ronson - Razbora (original mix) (06:43)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B51F0236FFD8CBBFC6B5D4432282BCA0F6D583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283097   (741050) от 15.02.2019
+
+Monoplay - Octopus (2019) Nopassport Records [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Journey (Original Mix) (6:21)
+ 02. See You (Original Mix) (7:03)
+ 03. So Far (Honestly) (Original Mix) (5:32)
+ 04. Octopus (Original Mix) (3:46)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0AB59CE6042B4CC65583F808D382CF0CEBF985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283197   (740204) от 16.02.2019
 
 VA - India Gets Physical Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Tech House, Electronic>
@@ -657,93 +744,6 @@ Hydrangea - Dawn Lights (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA45EC9D39B1C4DFFFA06215DE28EB1785D026C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024047   (720578) от 07.06.2016
-
-Gai Barone - Towards (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Sides of Nowhere (Original Mix) (7:49)
-02. Bianca (Original Mix) (7:46)
-03. Mom's Clown (Original Mix) (8:01)
-04. Stripped (Original Mix) (9:10)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C03C4206D45D805C302EC9E6911D6B9A06966C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024189   (720558) от 07.06.2016
-
-VA - Live In Montreal - Finale (Mixed By John Digweed) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep House, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 1) (57:23)
-02. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 2) (59:11)
-03. Live in Montreal (The Finale) Mixed By John Digweed (Continuous Mix 3) (52:21)
-04. Adam Beyer - What You Need (6:41)(   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 06:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DEF068938555AA1155CEE8D6AA2ECB47BA15EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023921   (720552) от 07.06.2016
-
-Monochrome - Unforgettable Call Of The Octopus (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambient, Techno, Dark Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Into Dampness (4:18)
-02. Misme's Breath (5:11)
-03. Senses (4:48)
-04. Uton (7:06)(   Читать дальше...   )Жанр: Electronic,  Ambient, Techno, Dark AmbientПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99F7396907BF4247B1E433CB2D8A72CE03AF483
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1800554   (15638) от 04.06.2025
+
+VA - Top 11 March 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maxim Kovalskiy - Comet (DJ Grom Remix) [7:26]
+02. KyousIn - The Name Of Youth (Duezher Remix) [7:03]
+03. GeorD - Something Ends, Something Begins (Original Mix) [8:00]
+04. Betibwe & DreamSkies - Embrace Of Your Heart (Original Mix) [6:24](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D1D749DCC9FF5903369152535C0C04F702ABC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800765   (15576) от 05.06.2025
+
+VA - Peaceful State: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pier-O - Coral Reef (5:44)
+02. Fake and True - Sleep Therapy 3 (10:07)
+03. sarosa - First Gate of Dreaming (5:56)
+04. Dellasollounge - Fantasy Flute (2:59)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28095E03F8C6D65F0F09996DC2E05B6BA07B820E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800713   (15543) от 05.06.2025
 
 VA - Vocal House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -686,64 +744,6 @@ VA - Midnight Lounge: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:215ACA2B0E26AD36BE65B9A6658819CD50F22677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803944   (13371) от 26.06.2025
-
-VA - Deep House Relief 2025 (Compiled by Marga Sol) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La-Thief - Ashen [6:35]
-02. Darles Flow - Gravity Waves [6:07]
-03. Aleb - Dimming Skies [5:59]
-04. Portobello - Falling [7:01](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED0FC83819047CD11ED47939C73A2800EF0906C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803953   (13367) от 26.06.2025
-
-VA - Ibiza Pool Party (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmonize - My Lady (05:09)
-02. Harmonize - Show Me Love (05:10)
-03. Anton Ishutin, Note U & Cristian Ferrer - Be My Lover (Radio Edit) (02:12)
-04. Anton Ishutin - Always (05:28)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA1FA43942CEA1E623EA0D3873E84350DFD6EF12
 ```
 
 https://mybot314.ru/tekegram_catalog/

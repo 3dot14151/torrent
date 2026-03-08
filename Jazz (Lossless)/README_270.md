@@ -1,3 +1,32 @@
+###  Публикация: 1588560   (191412) от 05.11.2022
+
+The Airmen of Note - Openers! (2014) Department of the Air Force [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [4:17]
+02. Struttin' with Some Barbecue [4:33]
+03. My Romance [4:26]
+04. You Can Have It [3:47](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E237EF260C7202E5B236DCDB52A9233C77FB5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658600   (191014) от 09.09.2023
 
 Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone 2 (2002) CAMJazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -716,35 +745,6 @@ VA - Jazz & Soul Season 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FF6E1A2E00CC53B2F6DFDF62C6BB6A7C73136C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660405   (189383) от 13.09.2023
-
-VA - Montreal Jazz Club 2023, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastián Soler - Have Yourself a Merry Little Christmas (Piano Jazz Version) (3:17)
-02. Lights Out Orchestra - Kalimper (3:55)
-03. Carsten Weidenhaupt - Indien (2:29)
-04. Gino Santana - Groove dos Metais (3:32)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BAA3076CA206BC6DA32CF384C27BD47B91DA2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

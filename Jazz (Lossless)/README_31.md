@@ -1,3 +1,32 @@
+###  Публикация: 1091804   (941669) от 10.01.2017
+
+Sergey Mikhaylenko (Сергей Михайленко) & XYZ Quartet - Trump Card (2010) JAZZO Sophia[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rondo Confessiano [10:39]
+ 02.Concert Etude [01:26]
+ 03.Bird Flu Serenade [04:49]
+ 04.Arabesque 777 [03:07](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C04C59FA3B4719778C2DFE2D9E7ED9315E4954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363796   (941030) от 29.02.2020
 
 Harry James - Classic Jazz Archive 1937 - 1939 (2004) 2CD, Membran Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -723,35 +752,6 @@ Charlie Rouse & Seldon Powell - We Paid Our Dues! (1961) Remaster, 2014, Sony Mu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC40401021CC309412E25D0BE91A310BFF27A136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364520   (936495) от 03.03.2020
-
-Coleman Hawkins - 1950 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stuffy [6:39]
-02. Yesterdays [3:57]
-03. Hawk's Tune [4:53]
-04. Sin [2:59](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C25846D0A43F50EFC028329ED33BE2FD7A930EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1474666   (1012873) от 03.06.2021
+
+VA - Music News vol.105 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012873.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elsa - Падали (03:02)
+ 002. Agatino Romero & Van Herpen & Life of Kai - We Need Time (02:23)
+ 003. Aleks Ataman & Finik.Finya - У Мамы Хулиганы (03:17)
+ 004. Amelia Martin - Play Forever (03:09)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB46373D8090DCBF47994C08146409F5DAA3AD0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474514   (1012851) от 03.06.2021
+
+VA - All Out 90s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012851.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lou Bega - Mambo No. 5 (A Little Bit of...) (3:40)
+002. Nick Kamen - I Promised Myself (4:00)
+003. Destiny's Child - Say My Name (4:31)
+004. Mary J. Blige, George Michael - As (4:42)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 10:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766D94EA7E3DE55795AC5BCB63F00258B8C26C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474875   (1012695) от 04.06.2021
+
+VA - Country: Good Taste Of Music (2021) [MP3|320 Kbps] <Country, Folk Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012695.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. London Heritage Orchestra - Like Everyone She Knows
+002. Johnny Cash - I'd Just Be Fool Enough
+003. Ronnie Dunn - I'm Not In Love
+004. Vince Gill - Blue Christmas(   Читать дальше...   )Жанр: Country, Folk BluesПродолжительность: 05:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD16CF1A5F96BFE61B177029B80124ABE878E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474839   (1012633) от 04.06.2021
+
+VA - Shazam & Apple Music Chart (Россия Топ 100 Май) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012633.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. HammAli & Navai - Птичка (3:10)
+002. Klava Koka, Ruki Vverh! - Нокаут (2:29)
+003. Mot, LYRIQ - Не Бруклин (3:05)
+004. German Avny, Kristin Kravets - Мало (3:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8F7111DC30DEAFEA0566DC6F0202FD6D81DD4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474770   (1012629) от 04.06.2021
 
 VA - Shazam Хит-парад World Top 200 Май (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ VA - Громкие новинки Июля (2021) [MP3|320 Kbps] <Pop, Dance, O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE96EFC43E4831CBE434C8004A76A348321CF6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484115   (1006092) от 19.07.2021
-
-VA - Зайцев.нет Лучшие новинки Июля (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bogdan Vand - Под покровом ночи (3:06)
-02. Kessy Black, Melis Treat, Snilex - Ignore (3:32)
-03. NLO, Анет Сай - Выходи (1:48)
-04. Ербол Хамза & Айжан Сейтенова - С тобою (3:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06590AB750C7C84ED5F1E2440AD11576937A2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484815   (1005696) от 23.07.2021
-
-VA - Music News vol.117 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005696.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sonya - Парень (03:39)
- 002. Alchemist Project - Waiting For (02:53)
- 003. Alexander Oscar - Sunlight (03:19)
- 004. Alina Baraz - Alone With You (03:46)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8419FB80276CDA830BBA94D4522905386B3A7103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485263   (1005365) от 25.07.2021
-
-VA - The Official UK Top 100 Singles Chart 23.07.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Bad Habits
-02. The Kid Laroi, Justin Bieber - STAY
-03. Galantis, David Guetta, Little Mix - Heartbreak Anthem
-04. Jonasu - Black Magic(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3B2BA876DEE778E09BC545F56D47F1F6B93FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485533   (1005304) от 26.07.2021
-
-VA - Fitness Motivation Hits 2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry, MNEK - Head & Heart (2:46)
-02. Ofenbach, Quarterhead, Norma Jean Martine - Head Shoulders Knees & Toes (2:36)
-03. DMNDS, Strange Fruits Music, Fallen Roses, Lujavo, Nito-Onna - Calabria (2:08)
-04. VINAI - Touch (2:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9B7CA6685C4804F386096A7EF459E11C951EF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

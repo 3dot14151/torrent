@@ -1,32 +1,3 @@
-###  Публикация: 1237656   (550471) от 25.07.2018
-
-Daron Malakian and Scars on Broadway - Dictator (2018) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lives
-02. Angry Guru
-03. Dictator
-04. Fuck & Kill(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A45B4FFAC4D7107235F8F13FA757C9E39A8F3EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047135   (550460) от 29.08.2016
 
 Lоst Sосiеtу - Теrrоr Нungrу (2014) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Thrash Metal, Speed Metal>
@@ -744,6 +715,35 @@ Andy Timmons - And-Thology I & II - The Lost Ear X-tacy Tapes (2001) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B0836A215A99EF42E113C989C414DEA87B0917F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 126445   (549188) от 21.06.2019
+
+Виктор Цой - Кино - Группа крови (1988) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549188.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Группа крови (4:45)
+2. Закрой за мной дверь, я ухожу (4:15)
+3. Война (4:04)
+4. Спокойная ночь (6:07)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C9046764C00C0A50E2C9A8FF2DBEF725A99361
 ```
 
 https://mybot314.ru/tekegram_catalog/

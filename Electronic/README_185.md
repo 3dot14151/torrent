@@ -1,3 +1,61 @@
+###  Публикация: 1285662   (719052) от 27.02.2019
+
+VA - Auralization (Mixed by OzzyXPM) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OzzyXPM - Khaleesi (Continuous Mix Version)
+02. Christian Monique - Take Me (Continuous Mix Version)
+03. Arctic Lake - Limits (Aurosonic Progressive Mix - Continuous Mix Version)
+04. Ataberk Onal - Smyrna (Continuous Mix Version)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D59425295DD5E8BAB4E02CEA6837322C50EBF771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285666   (719050) от 27.02.2019
+
+VA - Uplifting Trance Sessions Vol.12 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tizer - With Got To Stars (Original Mix)
+02. Miroslav Vrlik - Coming Home (Extended Mix)
+03. Andy Kern - Float Away (Original Mix)
+04. Andy Blueman - Beyond The World We Know (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD453FF922FE08308C17C45B45CDB012289B3EB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399978   (719036) от 05.08.2020
 
 VA - Ibiza Lounge (2020) [MP3|320 Kbps] <Deep House>
@@ -681,64 +739,6 @@ Erik K Skodvin & Rauelsson - A Score For Darling (2018) Sonic Pieces [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7AEEDDFF1F81E4B98F6789C95803F741708551E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218911   (717518) от 12.04.2018
-
-Plu-Ton - Wings of Liberty (2018) OLD SQL Recordings [FLAC|Lossless|WEB-DL|tracks] <Psybient, Breaks, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dive (05:20)
-02. The Course Of The Flight (08:25)
-03. Harmony Of Silence (06:32)
-04. Gates of Babylon (06:30)(   Читать дальше...   )Жанр: Psybient, Breaks, DowntempoПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691D2873BA8FF884E0D596D4B04A6DC768BC4CDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285899   (717064) от 28.02.2019
-
-VA - Nitrous Oxide - Avalon (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nitrous Oxide – Atacama (Original Mix)
-02. Nitrous Oxide & Maria Nayler – The Beauty of the Night (Original Mix)
-03. Nitrous Oxide – Tsukuba (Original Mix)
-04. Nitrous Oxide – Infinity (Secret Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6211E45A6A2E87236A91ABC6A47AF2956B56ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1244291   (484104) от 31.08.2018
+
+Kevin Crawford - Carrying the Tune (2012) [FLAC|Lossless|tracks + .cue] <Traditional Folk, Irish Traditional>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clare Connection (reels): McHugh’s / Michael Murphy’s / Humours of Tullycrine (3:17)
+ 02. 2 Day's (slip jigs): Lá Ollámh / Lucky Lucky Day (4:03)
+ 03. Paddy Sean Nancy's (reels): Autumn Apples / Cormac O’Lunny’s / Paddy Sean Nancy’s (3:46)
+ 04. Phil & Rory's (waltz's): Flatwater Fran / Mrs Jean Campbell BSC (4:07)(   Читать дальше...   )Жанр: Traditional Folk, Irish TraditionalПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AE47314DB865EB6C6C190DEEB66BEC9D420D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937606   (483741) от 17.09.2015
 
 Shantel - Viva Diaspora (2015) [FLAC|Lossless|WEB-DL]<Ethnopop, Balkan Pop, Electronic, World, Gypsy>
@@ -741,35 +770,6 @@ Fleur (Flёur) - Волшебство (2003) [FLAC|Lossless|tracks] <Folk, Cardi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDDBB0688D44067D7C0A02DDE83868501120548A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171580   (395646) от 05.10.2017
-
-Fleur (Flёur) - Сияние (2004) Reissue, 2006, Masterwort Production [FLAC|Lossless|tracks] <Folk, Cardiowave>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро 0:37
-02. Кокон 4:41
-03. Зафиксировать вечность 4:21
-04. Небо хочет упасть 3:42(   Читать дальше...   )Жанр: Folk, CardiowaveПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFBEA27DEC0997095D2F4B0EF425B35DBAFDCE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

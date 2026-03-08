@@ -1,3 +1,58 @@
+###  Публикация: 1762626   (36031) от 26.11.2024
+
+Korolova - Live @ Bali, Indonesia (2024-11-22) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RÜFÜS DU SOL - Pressure
+02. Argy & Omiki & Son Of Son - RITMO
+03. Rivo - Last Night
+04. Korolova & EYNKA - ID(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2547BF00B17D64EA13CBB50B98DDE66E79B7A280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763813   (35319) от 03.12.2024
+
+VA - Amsterdam Music Festival, Johan Cruijff ArenA, Netherlands (2024-10-19) [MP3|320 Kbps] <Progressive House, Hard Dance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive House, Hard Dance, TechnoПродолжительность: 08:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791920F9D9BCF48871ADEA2DC802F359A7B03316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763877   (35204) от 04.12.2024
 
 David Guetta - Live @ Château de Chambord, France (2024-06-29) [MP3|320 Kbps] <Dance, Electro Pop>
@@ -687,63 +742,6 @@ Hardwell played:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE698948C1E87727AE8E7660827A277BF951DC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771651   (6319) от 23.08.2025
-
-Dirty South - Live Mixtape 001-006 (2025) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HotLap ft. Sophie Saint - Blue Moon
-02. SKALA - Eclipse
-03. Macadamia & Albert Marzinotto & Pakkio Sans - Mon Amour (Leo Gira Remix)
-04. Radiohead - Everything In Its Right Place (SCRIPT Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 07:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939C93D2EF445BB192A7791425E6417004052868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814303   (6111) от 24.08.2025
-
-Two Friends - Big Bootie Mix Vol. 26 (2025-06-05) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nirvana - Smells Like Teen Spirit w/Dillon Francis & Julian Jordan - The Sound w/Nelly - Hot In Herre
-02. David Guetta ft. Sia - Titanium (TWINSICK 2023 Remix) w/Metro Station - Shake It w/Sabrina Carpenter - Taste w/Kendrick Lamar & SZA - All The Stars
-03. Skrillex ft. Sirah - Bangarang w/Justin Bieber ft. Nicki Minaj - Beauty And A Beat w/Benny Benassi (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6A87B015B9EB0CFD85EDB147C977B586712FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

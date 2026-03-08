@@ -1,3 +1,32 @@
+###  Публикация: 1022169   (729511) от 01.06.2016
+
+Supermax - The Magic Of Supermax (2015) [FLAC|Lossless|tracks + .cue] <Pop, Funk, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovemachine [08:37]
+02. Dance Dance Dance [03:43]
+03. African Blood [08:34]
+04. Hollywood [04:02](   Читать дальше...   )Жанр: Pop, Funk, ReggaeПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6169D82607655412C1751EB6EA70A83F078762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284323   (728961) от 21.02.2019
 
 The Lemon Trees - Open Book (1993) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6906B8F49C3FF7E6534980B7FDAEE250F10E48BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129834   (720338) от 29.04.2017
-
-VA - 538 Hitzone 81 (2017) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Electronic, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boef - Habiba (3:35)
-02. Anne-Marie - Ciao Adios (3:19)
-03. Kensington - Bridges (3:38)
-04. Burak Yeter feat. Danelle Sandoval - Tuesday (3:59)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Indie, Electronic, R&B, Soul, Ballad, Hip Hop, Electronic, Dance, Dancepop, Trance, Electro, Pop Rock, Pop RapПродолжительность: 02:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C504A049E721CFEAD4ACCA3A2B7A7C1673F9B767
 ```
 
 https://mybot314.ru/tekegram_catalog/

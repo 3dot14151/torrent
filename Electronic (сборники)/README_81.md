@@ -1,3 +1,32 @@
+###  Публикация: 1401016   (713344) от 08.08.2020
+
+VA - Expression Vocal House (2020) [MP3|320 Kbps] <Vocal House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713344.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cocino - Where Do We Go
+002. Jay Fox - Heartbeat
+003. Sunnery James - Pray (Extended Mix)
+004. Asher Postman - Walk Away(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 08:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6DD1F0E3C5C55A47EA2341DCC56971DD72A2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401019   (713323) от 08.08.2020
 
 VA - Future Space House (2020) [MP3|320 Kbps] <House, Electro, Club>
@@ -716,35 +745,6 @@ VA - Red Lips House: Soulful Female Vocal House Trax from Deep 2 Progressive (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD3C68EF50099E148599E2C0351346C34F0596B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025541   (710108) от 12.06.2016
-
-VA - Daybreak Sessions 2016 By Tomorrowland (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Daybreak Sessions 2016 (Continuous Mix 1) [1:12:57]
-02. DJ Mix - Daybreak Sessions 2016 (Continuous Mix 2) [1:16:02]
-03. Lopezhouse feat. Angela - Crosses and Angels [7:49]
-04. G Club Presents Banda Sonora - Guitarra G (Martijn Ten Velden 2015 Mix) [8:24](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 05:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E55517FFE07CC5A0AD94BC294EB6EC2B3896AC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

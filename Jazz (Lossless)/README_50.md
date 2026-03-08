@@ -1,3 +1,32 @@
+###  Публикация: 1108108   (864835) от 24.02.2017
+
+Nils Petter Molvaer - Baboon Moon (2011) Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mercury Heart [05:56]
+ 02.A Small Realm [03:22]
+ 03.Recoil [05:13]
+ 04.Bloodline [04:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C04C76F17A032A85EF0100F959BDB10FACEDFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108119   (864832) от 24.02.2017
 
 Jean Goldkette And His Orchestra - Victor Recordings (1924-1928) 2001, Trans Atlantic Radio [FLAC|Lossless|tracks + .cue] <Early Jazz, Dance Band>
@@ -716,35 +745,6 @@ Juan Gonzalez, Julio Simon, Rey Delis, Oscar Ruiz - Cuarteto de Saxofones de San
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36FF47FCB1669F55ABD336395B9EDE88698DF536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108965   (861002) от 26.02.2017
-
-Gerry Mulligan & Ben Webster - Gerry Mulligan meets Ben Webster (1959) 1998, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chelsea Bridge [07:23]
- 02.The Cat Walk [05:47]
- 03.Sunday [07:26]
- 04.Who's Got Rhythm [07:42](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:207A96EEDC24A20AF4DB013EB982FA6F12019C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1494628   (887828) от 08.09.2021
+
+VA - Like Everyday! (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The National - About Today
+002. The Snuts - Glasgow
+003. Nicolas Michaux - Une Seconde Chance
+004. When Saints Go Machine - Far Cry(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 07:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383936DFA290DB7ACA7616982F1C990E70B775DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494589   (887819) от 08.09.2021
+
+VA - Beatport Electronic: Sound Pack #343 (2021) [MP3|320 Kbps] <Electronic, synthetic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887819.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Trees Speak - Transforming
+002. Mmyylo - Venamy
+003. Darkside - Liberty Bell
+004. Fairtone - Riviera(   Читать дальше...   )Жанр: Electronic, syntheticПродолжительность: 12:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753BE5CD414D63A2DFD6A445773E15A4C79AF7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494614   (887746) от 08.09.2021
+
+VA - Clubbing Dance House: Energy Playlist (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887746.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dream Frequency - A.I.
+002. Dawne - Tequila For Breakfast
+003. Sentinel Groove - Feel Good
+004. Sound-X-Monster - Rock It!(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95413B2CB88CC020A230B2D566305061EE422535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494623   (887745) от 08.09.2021
+
+VA - HGM: Organic House Deep Downtempo Mix (2021) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ben Pierre - Shima
+002. Báez - Is It Real
+003. Facundo Borras - Anyone
+004. Raffaele Ciavolino - Do You Love Me(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 09:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8AFA863C948439AA0DDB4706494501BF1EC7B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494588   (887744) от 08.09.2021
+
+VA - Beatport Hard Techno: Sound Pack #342 (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887744.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Sinner - Catalyst
+002. The Sinner - Oracle
+003. Ben Tyler - 20s Rave
+004. Kontain - Neck Crank(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A4DABC68390236FF3EBD8FFEF39DDE4F6EBAD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494611   (887743) от 08.09.2021
+
+VA - Break Of Day: Ambient & Chillout Mix (2021) [MP3|320 Kbps] <Chillout, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887743.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Moodyfreaks - Flow Of Time
+002. Observatories - Sounds From Another Room
+003. Kaleidoscope - Miss Saigon
+004. Tears - Slipped Away(   Читать дальше...   )Жанр: Chillout, AmbientПродолжительность: 08:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D33E6EBC232F22D49237C7A0FEC9EA56B129191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494638   (887735) от 08.09.2021
 
 VA - The Lunar Disco, Vol.02 (2021) [MP3|320 Kbps] <Disco, Dance, Remix>
@@ -577,180 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13B5E90BC024DA90CD2A243599EC24C6655A7F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372218   (886378) от 02.04.2020
-
-VA - Top50: Tracks Deep House Ver.20 (2020) [MP3|320 Kbps] <House, Deep House, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicolas Hilton - Karmadelika (Playa Banjo Edit) 3:41
-02. North Sea - Rainbow Arch (Extended House Edit) 3:44
-03. E Point - Another Story (Deep Edit House) 3:43
-04. Leonard Michael - Chek Yourself (Deep House Edit) 3:43(   Читать дальше...   )Жанр: House, Deep House, ElectronicПродолжительность: 03:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E0C71733AF90FE9DF58E0A6050C7205E7BE1F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371961   (886374) от 02.04.2020
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver.94 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-1.AC Slater, Jack Beats & Sinden Boss - Like That feat. Flowdan (DALCO Remix) (1:54)
-2.Akon Feat. Eminem - Smack That (Frost & TWIST SOUND Remix) (3:13)
-3.A-One & KIDY - What Is What (3:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86B89B0E0929F2A52ECC7DEA2DF022BC75D4F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995130   (886234) от 10.03.2016
-
-VA - Лучшие новинки. Non-Stop Весенний (2016) [MP3|256-320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886234.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yanka - Skip A Little Love
-002. Shami Feat. Gidayyat - В Сердце У Меня
-003. Анна Добрыднева - Пасьянс
-004. Pitbull Feat. Bebe Rexha - This Is Not A Drill(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE7909937C295DFE179001F441A27647B52AEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103548   (886074) от 12.02.2017
-
-VA - Planet of Chillout: Fifteen Organic Downtempo and Chillout Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anuwat Chamroon - Funky Organs
-02. Doktor Gigi - Rich and Healthy
-03. Thai Ragga Collective - Sunny Afternoon
-04. Baramee Thawan - Sunthat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B251D2B090500BFDC1917607952893D05BC3425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103566   (885966) от 12.02.2017
-
-VA - Empire Records - Dancenudisco 8 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nami, Taspin, Diaz - Closing Time (Andrey Keyton Remix)
-02. Michael Gray - The Weekend (Extended Vocal Mix)
-03. Sandy Rivera - So Good
-04. Oliver Koletzki, Nord - After All (Claptone Remix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD2FF81B7FEECD518AA52947103F839DC60CF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103580   (885945) от 12.02.2017
-
-VA - Empire Records - Club Hit 9 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DRegi - Shoul'dve Been There For You (Dj Antonio remix)
-02. De Hofnar, MOWE & Freddie Verano - Crazy Love
-03. Emeli Sande - Read All About It (Amice Remix)
-04. Mida - Believe (Extended Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F815DDA9BA132A35A52DD986518B76F17EE67BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

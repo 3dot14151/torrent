@@ -1,3 +1,90 @@
+###  Публикация: 1230854   (611941) от 14.06.2018
+
+VA - AWRY003 (2018) AWRY [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrong Assessment - Calcare (06:59)
+ 02. Magna Pia - Ys Ura (06:36)
+ 03. Ryan James Ford - Masthead (05:12)
+ 04. Serena Butler - To Tilt The Fulcrum (05:54)Жанр: TechnoПродолжительность: 00:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53220CFBB274A1CE6538C57823A60FD52E3D67AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296622   (610323) от 18.04.2019
+
+Headstrong feat. Tiff Lacey - The Truth: 2019 Remake (2019) [FLAC|Lossless|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Truth (Progressive 2019 Remake Mix)
+02.The Truth (Headstrong & Aurosonic 2019 Rework)
+03.The Truth (Skipper Ibiza Chillout Remix 2019)
+04.The Truth (Progressive Edit 2018 Remake)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB75B1EA33AE324116B236C2CA1E5C3437278F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037982   (610311) от 26.07.2016
+
+VA - Re:Commended - Deep House Edition, Vol.7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Badetasche - Chillin Groove (Stefan Lindenthal Remix) [05:48]
+02. Soundsome - Intentional Delay (Original Mix) [07:38]
+03. Die Hoehenregler - Lust (Original Mix) [07:25]
+04. Pyroclastiq - Bruma (Original Mix) [06:38](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1FD5609ED60275C64F859C88CEE9F4B888EB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037960   (610108) от 26.07.2016
 
 VA - 538 Dance Smash 2016 Festival Edition (2016)2CD [FLAC|Lossless|image + .cue] <House, Club, Dance>
@@ -672,93 +759,6 @@ Monodisc - Discography 2 Releases (2015-2017) Cold Tear Records [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFD9D7AB1403C5CF4DCC78904AFABA58F2D3BA8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297688   (603107) от 24.04.2019
-
-Akob - Gravitational Waves (2019) Circular Limited [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulsar Timing Array (07:45)
- 02. Gravitational Waves (07:16)
- 03. Dark Matter (08:32)
- 04. Event Horizon (07:34)Жанр: Techno, AcidПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA86B2919F14837A0FEA3E3D345DAF75233A0BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232191   (602781) от 22.06.2018
-
-VA - aliēnus (2015) Grounded in Humanity | alienus [FLAC|Lossless|tracks+.cue] <Dub Techno, Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P.Laoss - Grinding Noise (07:40)
- 02. Dublicator - Dawn (Sleepy Dub) (08:57)
- 03. img_02 - Grey Pattern (06:03)
- 04. Federsen - OSC2 (08:39)(   Читать дальше...   )Жанр: Dub Techno, Techno, AmbientПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31A1E02A1D806ADD6F8A9A0BBFE788A3D0FFA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298002   (602678) от 25.04.2019
-
-Hieronymus - Liquid Sky (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Sky (06:48)
- 02. Foundation (06:27)
- 03. Lock (07:03)
- 04. Skin (06:47)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434277AC0F51613EB4CEE57C0C82872D2729BA31
 ```
 
 https://mybot314.ru/tekegram_catalog/

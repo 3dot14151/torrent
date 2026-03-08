@@ -1,3 +1,32 @@
+###  Публикация: 1230305   (617291) от 11.06.2018
+
+VA - Italo & Dance: Summer Sale (2018) [MP3|320 Kbps] <Italo-Disco, SpaceSynth>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick The Moore - It's Love (4:05)
+02. Matt Pop & Martin Blix - Let Us Dance Just A Little Bit More (7:45)
+03. Chris van Buren - Cosmified (4:37)
+04. Capitalo - Capitalo (Alexander Pierce Remix) (4:24)(   Читать дальше...   )Жанр: Italo-Disco, SpaceSynthПродолжительность: 04:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B70BFCB257E4B0CC079064E9EAAA4A4A21D978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523338   (617208) от 16.07.2012
 
 VA - Знойный летний хит (2012) [MP3|256-320 кб/с]<Pop>
@@ -761,35 +790,6 @@ VA - Европа плюс представляет: Живи в экстазе!
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C20EC001D34460EB9FD533171F3C748F6B89EAC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912745   (610504) от 26.06.2015
-
-VA - Летние хиты за рулем. Русский выпуск (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610504.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Аника Далински - Птица-Удача
-002. Даша Суворова - Аранжировки
-003. Natan - Просто История
-004. Marlena - Все Как И У Всех(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED9AC1E6AF75DA7E042E3093EF1E6DF00C0F5DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

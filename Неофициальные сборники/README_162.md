@@ -1,3 +1,174 @@
+###  Публикация: 1504264   (801315) от 29.10.2021
+
+VA - SVS Collection vol.2 by MR.DJ (2018) [MP3|320 Kbps] <Deep House, Disco House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801315.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A-Mase & Sharliz - Catch  (Club Radio Mix)
+002. A. Rassevich - Hate Me Tonight (Original Mix)
+003. Abaze  -  Stardust (Original Mix)
+004. Ace Of Bace  -  The Sign (Necola Remix) (Radio Edit)(   Читать дальше...   )Жанр: Deep House, Disco House, Electro HouseПродолжительность: 13:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311EBD759212879186E62B0123AC67941D02585E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384685   (801301) от 21.05.2020
+
+VA - Ремиксы от MGDC FM Vol 5 (2020) [MP3|320 Kbps] <Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801301.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. #2Маши - Лето у виска (Dj Pototskiy X Dj Mephisto Radio Edit) (3:54)
+2. 5sta Family - 5 минут (DJ Safiter Remix) (4:23)
+3. Alexeev - Пьяное Солнце (Alex Shik & Dj Bandy Remix) (4:03)
+4. Anthony El Mejor VS Denis Rublev - Ласковая Моя (DJ Prezzplay Cover Remix) (5:00)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3427DB988DD84044F4218B1DA08854C23F69F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120809   (801267) от 01.04.2017
+
+VA - Beatport Trance  Pack (01.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Michael Rods - Lost In Your World (Original Mix)  7:35
+02.  Luke Terry - Achelous (Original Mix)  6:37
+03.  Aly & Fila - Beyond The Lights (Extended Mix)  7:46
+04.  Symsonic - Desert Rain (Original Mix)  7:11(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 02:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2D34B27FA0C97F8F6C3739F52AC8778FD35AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120919   (801254) от 01.04.2017
+
+VA - Fast Running Music (2017) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camo & Krooked - FaithЖанр: Drum & BassПродолжительность: 04:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E66ABA084D37F886BE4DE6095BCCE9E771A5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120823   (801233) от 01.04.2017
+
+VA - Chillout Hits Vol.5 (2017) [MP3|320 Kbps] <Chillout , Chillstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arnold T – Summertime Sadness
+ 02. Benatural – Lake (Extended Mix)
+ 03. E-motive – Street Waves
+04. Miper – Hide(   Читать дальше...   )Жанр: Chillout , ChillstepПродолжительность: 04:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88A8D36DE9BADBB02CD5185D95F72BF7AD42643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120896   (801169) от 01.04.2017
+
+T-Bone Walker - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Is A Woman
+02. Glamour Girl
+03. No Worry Blues
+04. I Got The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6B65303CE9CB26B43027A0FF9050459B268ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506281   (801045) от 30.10.2021
 
 VA - Music News vol.145 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -571,180 +742,6 @@ VA - Keeper Of The Deep: Zone Drum And Bass (2018) [MP3|224-320 Kbps] <Drum & Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AA753A6170163CA83ADEBBA17D9A4A9C9144F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121361   (800438) от 02.04.2017
-
-VA - 60 minutes. Old School Dance Music (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Dancecore, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Klubbheads - Discohopping (Klubbheads Euro Mix)
-02 - Rollercoaster - Keep The Frequency Clear (Original Club Mix) - Vinyl
-03 - Underfish - Its My Beat (Original Mix)
-04 - The Beatshop - Read My Lips (Sex Me Up) (Dj Screw Remix)(   Читать дальше...   )Жанр: Club House, Dancecore, TranceПродолжительность: 1:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F726ABF78AF4247070AAB3D8FCAB85E5094646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385164   (800393) от 23.05.2020
-
-Павел Карачин - Вавилон (2020) [MP3|256 Kbps] <Punk, Necessary, Экспрессивная Мелодекламация>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800393.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.1 Вавилон
-1.2 Время
-1.3 Бури песнь
-1.4 Беглец(   Читать дальше...   )Жанр: Punk, Necessary, Экспрессивная МелодекламацияПродолжительность: 01:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73D19495A327E8E54A2013EC04C7EE55402B3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384919   (800389) от 23.05.2020
-
-VA - Evening Chillout Sounds (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800389.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Compound - Retralogue
-002. Dan Guidance - Mixed Message
-003. Seven Palmberg - Under My Skin (Instrumental Mix)
-004. Enjoy - Controversial(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 08:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B85E76F14932C7FE67513ED9EA7E022441BB5F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120760   (800386) от 02.04.2017
-
-VA - Metal Collection (2017) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800386.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zero Down - No Limit to the Evil (03:39)
-002. Annihilator - Syn. Kill 1 (04:27)
-003. Anthem - Go Insane (04:43)
-004. Anthem - You (03:55)(   Читать дальше...   )Жанр: MetalПродолжительность: 04:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5C9F2A11EEC9D1D558B83BFF2929077FB30C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121115   (800384) от 02.04.2017
-
-VA - Shaman's Path (Sacred Land) (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Thomas -  Indians
-02. Big City Indians -  Uncle Peyote
-03. Navajo -  Ly-O-Lay Ale Loya
-04. Red Nativity -  Three Shaman(   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 05:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0350F50CF0C70FF9DD804078760D1F1A46DEFC18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121023   (800382) от 02.04.2017
-
-VA - Только хиты. Русский сборник от Хит fm выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Эмма М - Рядом 3:12
-002. Время & Стекло - Na Stile 3:45
-003. Никита Ломакин - 3000 Карат 3:44
-004. Зара - Забыть О Тебе 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810896E555844A939DEF7BAEEBEEB6856ABCA3D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

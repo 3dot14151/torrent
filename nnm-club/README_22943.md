@@ -1,84 +1,25 @@
-###  Публикация: 1525654   (129148) от 21.01.2022
+###  Публикация: 1525382   (129205) от 21.01.2022
 
-Tokyo Blade - Fury (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man In A Box
-02. Blood Red Night
-03. I Am Unbroken
-04. Disposable Me(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81561798FF99FEB04D397BBC8539A7D2A778BB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488656   (129147) от 27.04.2012
-
-Galeon - 2 альбома (2009-2011) [MP3|224 - 320 kbps]<Instrumental Melodic Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нет Надежды, Нет Веры - Часть 1 (В Ожидании Чуда...) (11:03)
-02. Апокалипсис (8:14)
-03. На Пороге Рая (6:21)
-05. Мечта (8:00)
-06. Нет Надежды, Нет Веры - Часть 2 (По дороге к мечте...) (8:03)Жанр: Instrumental Melodic MetalПродолжительность: 00:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A1DD1AE78F0BEB19F03B569370E28F22272F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525431   (129146) от 21.01.2022
-
-VA - Winter Break: Electro House Session (2022) [MP3|320 Kbps] <House, Electro>
+VA - Beatport Deep House: Sound Pack #397 (2022) [MP3|320 Kbps] <Deep House, Soft Electro>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129146.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если вы являетесь откровенным поклонником Electro House и не одна более менее значимая клубная тусовка не выпадает из вашего поля зрения , то здесь обязательно найдёте для себя не один десяток треков в свою фонотеку.001. Velvet Valley - Kb3k
-002. Peter Paul - Festivalia
-003. Alex Greenhouse - Do You Know
-004. Stan Seba & Bynomic - Miracle(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:08:16
+Самая известная в музыкальных кругах  медиа площадка Beatport не перестает радовать своих почитателей музыкальными новинками. Вот и на этот раз она преподносит нам "Подарок" в виде 397-го электро саунда - микс самых известных композиций клубного дип хауса со всего мира.001. Junktion - Tribute
+002. Awsi - Lo Que Faltaba
+003. Efe Goroglu - There For You
+004. Peter Brown - This Feeling(   Читать дальше...   )Жанр: Deep House, Soft ElectroПродолжительность: 10:02:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77D345D01C7D24A9FFE669C77026B179880E70EC
+magnet:?xt=urn:btih:6319632BDA2F8A0E2FD136B92962D69CB2E54499
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -86,34 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488988   (129145) от 27.04.2012
+###  Публикация: 1525647   (129203) от 21.01.2022
 
-Count Basie and His Small Groups - The Fives (1936—1942) (1996) [FLAC|Lossless]<Trad Jazz>
+Призвание (2021) WEBRip [H.264/1080p]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Документалистика и Телепередачи
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129145.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129203.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shoe Shine Boy
-02. Evenin’ (Jimmy Rushing, vcl)
-03. Boogie Woogie (Jimmy Rushing, vcl)
-04. Oh! Lady Be Good
-05. Boogie Woogie
-06. The Dirty Dozen
-07. The Fives
-08. Hey Lawdy Mam
-09. Oh! Red
-10. Red Wagon(   Читать дальше...   )1996Жанр: Trad JazzПродолжительность: 01:13:08
+«Призвание» — это картина о спасателях МЧС России, фильм о напряженной работе профессионалов своего дела и смелых поступках юных курсантов – обладателей знака «Горячее сердце». Это истории из жизни и службы реальных героев, живущих среди нас. Это фильм о дружбе и верности, о готовности рисковать, о людях, для которых их опасная профессия — больше, чем просто работа.Производство: РоссияЖанр: ДокументальныйРежиссер: Максим АкиловСубтитры: ОтсутствуютПродолжительность: 00:43:54
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:5C5209653FDDD715BA3CF031654516863D6584D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -121,21 +53,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488766   (129144) от 27.04.2012
+###  Публикация: 488889   (129202) от 27.04.2012
 
-Zentimo xStorage Manager 1.6.2.1216 [Мульти, есть русский]
+Mozilla SeaMonkey 2.9 Final [Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129144.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Zentimo xStorage Manager - (аналог USB Safely Remove) это менеджер USB устройств, он экономит время и расширяет возможности пользователя при активной работе с флэшками, переносными винчестерами, кард-ридерами и другими гаджетами.Программа дает удобное безопасное извлечение, избавленное от недостатков встроенного в Windows, показывает какие программы мешают извлечь устройство, убирает диски пустых слотов кард-ридеров, умеет возвращать обратно отключенные устройства и содержит массу других функций для комфортной и приятной работы с hot-plug устройствами (USB, SATA, FireWire).Название программы: Zentimo xStorage ManagerЯзык интерфейса: Мульти, есть русский
+SeaMonkey — проект, основанный на добрых традициях Mozilla Suite. Классическая Mozilla развивалась много лет, обрела свой круг преданных фанатов, но так и не дошла до широких масс, выдвинув на эту роль красивый современный браузер Mozilla Firefox. За основу SeaMonkey взята Mozilla Suite, как проверенный годами продукт, обладающий колоссальной стабильностью и выверенным кодом. К этой основе было добавлено множество функций, ставших привычными для пользователей Mozilla Firefox и Mozilla Thunderbird. В состав SeaMonkey входит несколько компонентов.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -147,30 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488284   (129143) от 27.04.2012
+###  Публикация: 1525639   (129201) от 21.01.2022
 
-Hideous Divinity - Obeisance Rising (2012) [MP3|320 кб/с]<Brutal Technical Death>
+Nocturna - Daughters Of The Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129143.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A New Morning 02:49
- 02. Life During Epidemic 04:17
- 03. The Servant's Speech 05:11
- 04. Summoning Fists To Heaven 05:41
- 05. A New Hope Of Worms 04:02
- 06. Cerebral Code Of Obeisance 03:42Жанр: Brutal Technical DeathПродолжительность: 00:48:59
+01. Spectral Ruins
+02. New Evil
+03. Daughters Of The Night
+04. The Sorrow Path(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:36:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C704DF67F6746BAEDA5FCAE10C4F9B506453414
+magnet:?xt=urn:btih:4AEDA42112A9F6D6D84B490EFCAA55684BEC2180
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -178,116 +108,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525690   (129141) от 21.01.2022
+###  Публикация: 488805   (129200) от 27.04.2012
 
-VA - Buddah's Chill 3 (2013) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoungh Ann - Rufiyaa (4:51)
-02. Katoey - Pattaya Hood (3:42)
-03. Keisuke Sakai - Yama Nemuru (6:44)
-04. Michael e - Precious Jewel (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4BE34F0E3A2CB54695571FAA66AE9197155CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525716   (129139) от 21.01.2022
-
-VA - Buddah's Chill 6 (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joey Supaporn - 1001 Bangkok Nights (3:40)
-02. Krystian Shek, Ray Maddison - Thai Palm Bay (Play At Beach Mix) (4:43)
-03. Billy Esteban - Aliman (3:44)
-04. Lazy Hammock - Apocalyptic Journey (4:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F90C609D5C462186B1468CDA0CA90BEF729C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488770   (129138) от 27.04.2012
-
-Zentimo xStorage Manager 1.6.2.1216 RePack by KpoJIuK [Русский, Украинский, Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zentimo xStorage Manager - (аналог USB Safely Remove) это менеджер USB устройств, он экономит время и расширяет возможности пользователя при активной работе с флэшками, переносными винчестерами, кард-ридерами и другими гаджетами.Программа дает удобное безопасное извлечение, избавленное от недостатков встроенного в Windows, показывает какие программы мешают извлечь устройство, убирает диски пустых слотов кард-ридеров, умеет возвращать обратно отключенные устройства и содержит массу других функций для комфортной и приятной работы с hot-plug устройствами (USB, SATA, FireWire).Название программы: Zentimo xStorage ManagerЯзык интерфейса: Мульти, есть русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489133   (129137) от 27.04.2012
-
-VA - 15 Top Trance Hits 04 (2012) [MP3|320 кб/с]<Trance>
+VA - Клубные Новинки Vol.66 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129137.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - 15 Top Trance Hits (2012)
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:53:53Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Omnia & IRA - The Fusion (Original Mix) (6:08)
- 02. Rank 1 & Jochen Miller feat. Sarah Bettens - Wild And Perfect Day (Radio Edit) (3:49)(   Читать дальше...   )
+01. Orjan Nilsen - Amsterdam (Original Mix)
+02. Julian Vincent feat. Shannon Hurley - Lost In Space (Mark Otten's Original Mix)
+03. Cathy Burton & Omnia - Hearts Connected (Skytech Remix)
+04. Serge Devant feat. Rachael Starr - You & Me (Extended Mix)
+05. Tiesto & Swanky Tunes feat. Ben McInerney - Make Some Noise (Original Mix)
+06. Serge Devant & Danny Inzerillo feat. Polina - When You Came Along (Extended Mix)
+07. Solarstone feat. Clare Stagg - The Spell (Pulser Mix)
+08. Snatt & Vix feat. Neev Kennedy - At The End Of The Day (Original Mix)
+09. Paul Van Dyk feat. Michelle Leonard - Lost In Berlin
+10. Доминик Джокер - Если Ты Со Мной (DJ Stylezz Remix)2012Жанр: Club, DanceПродолжительность: 04:22:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07DC0D49A3C49B12528ECED01A34835265595569
+magnet:?xt=urn:btih:FA8A4B1413DADFFB4F4D27A1FDB1F61AF71F2B1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,26 +143,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525653   (129136) от 21.01.2022
+###  Публикация: 1525688   (129198) от 21.01.2022
 
-DirEqual 4.2 [Multi]
+Sketch 82.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129136.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
-Чтобы скопировать или удалить файлы / папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский
+Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 Sketch B.V.Поддерживаемая ОС: macOS 10.15 or laterЯзык интерфейса: Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:469F08883BB029C4C6C9438AEA62616B944D87DB
+magnet:?xt=urn:btih:7B8B9CD3851BADB9A5DA808A5F0BE7FF7266E3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,25 +169,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488569   (129135) от 27.04.2012
+###  Публикация: 1525418   (129196) от 21.01.2022
 
-Язык молчания / Silent Tongue (1993) DVDRip
+VA - Remembering Summer: Chillout Session (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это те приятные мелодии, благодаря которым человек растворяется в обволакивающей его музыке и предаётся теплым объятиям спокойствия и умиротворения вспоминая приятные моменты летнего отпуска на море.001. Lafoliedamour - Lollygagging
+002. Memorio - Grace
+003. Subdream - Monsonoom
+004. Buddha Bar - Cold Phase(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 08:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13FC9A61CF442F32EB943A9E8C549CFCFF5CFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488898   (129195) от 27.04.2012
+
+Журнал | Дачный сезон №4 [2012] [DJVU]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129135.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм рассказывает о молодом человеке по имени Талбот Роу, который сошёл с ума после смерти своей жены. Отец Талбота, Прескотт Роу, чувствует боль сына и хочет найти ему новую жену. Он отправляется туда, где нашёл Талботу первую жену, к Ирмону Маккри. Он встречает сестру умершей жены, дочь Ирмона, наполовину индианка и чемпионка по скачкам. Роу просит Маккри отдать дочь замуж за его сына, но Маккри отказывается. Тогда Роу похищает её и пытается убедить помочь ему спасти сына, и она соглашается в обмен на золото и четырёх лошадей. Но Талбот не даёт ей ни шанса — он боится, что она попробует забрать у него тело покойной жены. Последние несколько ночей вдовец видит призрак умершей, которая хочет, чтобы Талбот уничтожил её тело, но он отказывается.Жанр: Драма, Ужасы, ВестернРежиссер: Сэм ШепардАктеры: Алан Бейтс, Ричард Харрис, Дермот Малруни, Ривер Феникс, Шила Тузи, Джери Арредондо, Билл Ирвин, Дэвид Шайнер, Тим Скотт, Танту Кардинал ...Перевод: Одноголосый закадровыйПродолжительность: 01:41:44
+Дачный сезон - это журнал для дачников, а также любителей сада и огорода. Тема номера: выращиваем ранний картофель.
+Также вам будут интересны советы от заядлых дачников и секреты дачных посадок.2012Формат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1145E6149FE015A09292DEA724D58178728B28D6
+magnet:?xt=urn:btih:572DE86CA06F43C7A20322DD2A7B9BAD7FBF3658
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,26 +225,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525675   (129134) от 21.01.2022
+###  Публикация: 1525687   (129194) от 21.01.2022
 
-Bartender 4 v4.1.28 [En]
+Винсент Ван Гог | Письма к друзьям (2021) [MP3, Константин Корольков]
 
->>Архив торрентов
->>Архив 4Apple
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129134.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2021 Surtees Studios Ltd.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+Ван Гог создал более сорока автопортретов. «Трудно познать самого себя. Однако написать самого себя не легче», – говорил он. Ван Гог оказался талантливым мастером не только кисти, но и пера. Буквально каждый вечер после работы за холстом он садился за стол и писал длинные письма родным и друзьям. После его смерти письма были найдены. Без преувеличения их можно назвать (   Читать дальше...   )Жанр: Биографии и мемуары, Документальная литература, Зарубежная публицистикаПеревод: Полина В. МелковаПродолжительность: 04:44:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:998151126B2D50CECD3535C1A60E8468C16F202A
+magnet:?xt=urn:btih:11FD96C95829D7A0D543996BFD807ABC16F7265B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +251,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525697   (129133) от 21.01.2022
+###  Публикация: 1525182   (129193) от 21.01.2022
 
-VA - Buddah's Chill 4 (2015) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie Pop, Acoustic, Lo-Fi>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Other Styles
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129133.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Latif Rayhan - Aleppo (2:26)
-02. Djadi - Open Sesame (3:06)
-03. Dewi Lestari - Bunga Mawar (2:53)
-04. Michael e - Reminiscence (6:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:19
+01. Rumours (04:10)
+ 02. Rocky Trail (03:31)
+ 03. Comb My Hair (03:06)
+ 04. Angel (03:16)(   Читать дальше...   )Жанр: Indie Pop, Acoustic, Lo-FiПродолжительность: 00:37:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD27E0054736667AB5D283A170F77B4DC556820E
+magnet:?xt=urn:btih:F6C4C70E8C26218327A44E573A06522BF5A28D7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,326 +280,469 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488983   (129131) от 27.04.2012
+###  Публикация: 1525578   (129192) от 21.01.2022
 
-Каникулы в Мексике - 2. Выпуск №40 (2012.04.27) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129131.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5651E946EF42082B64AE3503C9A1295E06667283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525719   (129130) от 21.01.2022
-
-VA - Buddah's Chill 8 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoungh Ann - Rufiyaa (4:51)
-02. Yantra Mantra - Pink City (Ayurveda Mix) (3:56)
-03. Shadi Fares - Champagne Beach (5:29)
-04. Latif Rayhan - Aleppo (2:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:21:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B4DDC0E3320646E3272E5A85DF783D67CA1164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525683   (129128) от 21.01.2022
-
-VA - Buddah's Chill 1 (2010) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airstream One - Southern Light (Original Mix) (4:50)
-02. Cinemascope - Chanson du Chine (Original Mix) (7:15)
-03. Simon Le Grec - Its Only Love (Radio Edit) (4:00)
-04. Beatkonexion - Wavin' HiFi (Original Mix) (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9C7F81CBC25826FB88BFC8665F5AF55400C07B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489087   (129127) от 27.04.2012
-
-Вечерний Ургант. Выпуск №9 (2012.04.27) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9578E0C88F47528D8EAEFDCD22A603A39943B9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525656   (129126) от 21.01.2022
-
-EdgeView 3 v3.2.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129126.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEEDEC5F2A4FF915F7ED002A61F21DE35BCAD394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525651   (129124) от 21.01.2022
-
-The Ferrymen - One More River To Cross (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Word
-02. The Last Wave
-03. Shut It Out
-04. City Of Hate(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E2A4E8DD255509594565DC55BF701424962F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525649   (129122) от 21.01.2022
-
-uDock 2.5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129122.jpg" />
-</div>
-
-
-###  Подробнее
-
-μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A0E5F9FA758BA56542C88F399A4762C130E250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525717   (129120) от 21.01.2022
-
-Battery Indicator for Mac 2.12.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Battery Indicator показывает оставшееся время работы от батареи и процент в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 Sindre SorhusПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B58690A749507F5B68743D610689C09D7882303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525751   (129118) от 21.01.2022
-
-Mirror for Fire TV  2.7.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение экрана для телевизоров Fire TV. Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Fire TV. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Fire TV с 2012 и новее. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). Поэтому (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.02.2021Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8924D17275111CC1FB4D167736C7D838326C8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525622   (129116) от 21.01.2022
-
-Dive In Minds - Innocent Victims (2001) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Suffering 	05:54
-02. 	Holocaust of the Human Being 	05:43
-03. 	Innocent Victims 	04:53
-04. 	Torment 	04:31(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E3346199355662023D62FCD3D324CD97BF440D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525660   (129114) от 21.01.2022
-
-Pat Martino - Comin' And Goin': Exit & The Return (1976, 1987) 2CD, 1999, 32 Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129114.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Exit:
-01. Exit [9:26]
-02. Come Sunday [7:36]
-03. Three Base Hit [4:34](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CEC6D611450E162EE55B62AA47AB77E2E49555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488917   (129113) от 27.04.2012
-
-Zentimo xStorage Manager 1.6.2.1217 + RePack by elchupacabra + RePack by KpoJIuK [Мульти, есть русский]
+Firefox Browser 96.0.2 Portable by PortableApps [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129113.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Zentimo xStorage Manager - (аналог USB Safely Remove) это менеджер USB устройств, он экономит время и расширяет возможности пользователя при активной работе с флэшками, переносными винчестерами, кард-ридерами и другими гаджетами.Программа дает удобное безопасное извлечение, избавленное от недостатков встроенного в Windows, показывает какие программы мешают извлечь устройство, убирает диски пустых слотов кард-ридеров, умеет возвращать обратно отключенные устройства и содержит массу других функций для комфортной и приятной работы с hot-plug устройствами (USB, SATA, FireWire).Название программы: Zentimo xStorage ManagerЯзык интерфейса: Мульти, есть русский
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6084A08CC54620246D5FF04B7C17FF0E513352BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525376   (129191) от 21.01.2022
+
+VA - Beatport Electro House: Sound Pack #395 (2022) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку фестивали и концерты по всему миру отменены, мы переносим клубную атмосферу прямо в Вашу квартиру с помощью очередного 395-го саунд пака от Beatport!001. Demuja - Love Is Free
+002. Simone D Jay - Move Your Feet
+003. DJ Planet Express - Wanted U 2 Kno
+004. Michael Cassette - My Name Is Michael Cassette(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1B7CA3C752C36D3415506E515AEBA1AE4625C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525545   (129190) от 21.01.2022
+
+Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris by Night (3:51)
+ 02. Sourire (4:26)
+ 03. Seine (3:39)
+ 04. Embrasse-Moi (4:00)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2853A1E5C9EE2FEC6CDB0B27E00C57410AAB4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525680   (129189) от 21.01.2022
+
+Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Love Lost
+02. Don't Give Up
+03. Still Not Over You
+04. The Way We Danced(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20198D4FB5644E31FE79AA8EDDC8ECBF84B65D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525426   (129188) от 21.01.2022
+
+VA - The Techno Streaming Sound (Vol.02) (2022) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы погружаемся в Техно туннели, собираем лучшие музыкальные работы и упаковываем их в подарочную упаковку специально для Вас. Целых сто треков техно любви доступны уже сейчас во втором релизе "The Techno Streaming Sound" от Electro Voice!001. Lorenzo Chi - Underground Chicago
+002. Theo De Tank - Make Me Feel
+003. Jürgen Degener - Rhyme
+004. Heathered Pearls - Utica(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9E694EE9CC0AEC955E15BDAEF3A4374A022889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525739   (129186) от 21.01.2022
+
+VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand & Susana - I Matter to You (Extended Mix) [06:14]
+02. Christian Burns - Breathing Fire (Farius Extended Remix) [05:52]
+03. Giuseppe Ottaviani - The Wind in Your Face (Extended Mix) [06:44]
+04. Eco - Let You Down (Chris Schweizer Extended Remix) [06:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734827AEB0A65F3AA9848F1808F10E8113088C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488307   (129184) от 27.04.2012
+
+VA - Русские Новинки Vol.45 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yolan & Kenia - На Пороге Лета (Extended Mix)
+02. Soda - Разлука (DJ Movskii & DJ Karasev Extended Remix)
+03. Батишта feat. Ульяна Глушкова - Мама
+04. MainstreaM One - Всё Пройдёт
+05. Karizma - Я Забуду (Radio Edit)
+06. Алиса - Настроение
+07. Music Hayk - Почему Не Я
+08. Bi-O-Shock - Биоробот
+09. LiLi - Lady GaGa Отдыхает!
+10. Валерий Меладзе - Потерян И Не Найден(   Читать дальше...   )2012Жанр: PopПродолжительность: 03:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33CA0AC4D3F72011627B1E5DF0DD0E7CE2DAB97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525633   (129178) от 21.01.2022
+
+Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not The End Of The Road
+02. What Goes Up
+03. Only The Dead
+04. Yoko Ono(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C90E85C6BDC132710B23E162A0388A200B3DC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525790   (129177) от 21.01.2022
+
+VA - Street King Presents Winter 2022 (2022) [AAC|~319 Kbps] <Deep House, Soulful House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cookie Monsterz, Michelle Weeks, Qubiko - Spread Love (Unreleased Qubiko Dub) (6:41)
+02. Mata Jones - Esa Y Aqui (Unreleased Original Mix) (6:38)
+03. Dennis Ferrer, K.T. Brooks, Philip Z - How Do I Let Go (Unreleased Philip Z Dub) (6:31)
+04. Dino MFU, Alxndra Good, David Morales - Not True (Unreleased David Morales Reprise) (6:21)(   Читать дальше...   )Жанр: Deep House, Soulful House, Tech HouseПродолжительность: 03:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D24260F18DDA2C518C201F68508AF6624314B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525540   (129175) от 21.01.2022
+
+VA - The Very Best of Chill Out, Vol. 1 (2015) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemongrass, Jane Maximova - Deep River (6:29)
+02. SilverNight - Silence (6:55)
+03. Barclay & Cream - Surrender (Alexander Metzger Beach Mix) (3:55)
+04. Jens Jakob - Antimatter 1 (10:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CC06264E351249CCA685E6E2B5DF1B4E2866D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488755   (129174) от 27.04.2012
+
+Газета | 1000 секретов [Украина] №8 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129174.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 секретов» - издание, которое станет полезным каждому. Оно содержит советы по различным темам: кулинария, цветоводство, ремонт, сад-огород, уход за животными, юридические вопросы, мода, здоровье, семейные отношения и многое другое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7035D28BAFE60135468B43A72039B6347574F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525544   (129172) от 21.01.2022
+
+VA - The Very Best of Chill Out, Vol. 3 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York - Interlude (0:57)
+02. Marga Sol, Mike Vale, NDKj - Say My Name (Marga Sol's Chill Mix) (3:43)
+03. CaPa - The Way We Live (3:48)
+04. Eskadet - A Bientot (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96282DBE6FD68E9FA16C679521062E46F4E7D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487394   (129171) от 27.04.2012
+
+VA - Drive from Mad M!nd (2012) [MP3|320 кб/с]<Dutch House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alx, Jazzi Jay, Muzzyg - Letz Go! (Die Hoerer Remix)
+02. Avesta - Arena (Original Mix)
+03. Aylesbury - Surrender (Gimbal & Sinan Remix)
+04. Betatraxx feat. Krystal - Shuffling & Looking Dumb (Original Mix)
+05. Eva - Body On Mine (Mixin' Marc & Tony Svejda Peak Hour Dub)
+06. Kraymer - The Concept (Jay Robinson Remix)
+07. Laidback Lue - Do The Robot (Original Mix)
+08. Lenny Kravitz - Are You Gonna Go My Way (Christian Sims Remix)
+09. Lil Jon - Drink ft. LMFAO (Extended Clean)
+10. Mad Villains - Disk Hoez (Dirty Audio Remix)(   Читать дальше...   )2012Жанр: Dutch HouseПродолжительность: 01:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:852E0FE49DB6B164FE6283DC31690C5182F6C358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525676   (129170) от 21.01.2022
+
+Paul Oakenfold - Shine On (2022) [AAC|~310 Kbps] <EDM, House, Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zanzebaar (1:47)
+02. Paul Oakenfold, Baby E - Shine On (2:33)
+03. Paul Oakenfold, Lizzy Land - Waterfall (Orchestral Mix) (2:42)
+04. White Lights (3:19)(   Читать дальше...   )Жанр: EDM, House, Drum & BassПродолжительность: 00:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6242D6C4261B26EF291A2FBFA44AA0EC444902CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525682   (129169) от 21.01.2022
+
+Pedro the Lion - Havasu (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Wanna Move (4:03)
+ 02. Too Much (3:29)
+ 03. First Drumset (5:18)
+ 04. Teenage Sequencer (4:17)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BA19B003A8339AEA604837718E7C386BD265BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525572   (129167) от 21.01.2022
+
+Orville Peck - Show Pony (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summertime (02:57)
+ 02. No Glory in the West(04:14)
+ 03. Drive Me, Crazy (05:18)
+ 04. Kids(03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755D4E4F3BFEFA065CD0ADC5F1BE79CCC364A301
 ```
 
 https://mybot314.ru/tekegram_catalog/

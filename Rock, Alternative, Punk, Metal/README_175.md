@@ -1,32 +1,3 @@
-###  Публикация: 1366160   (925748) от 10.03.2020
-
-Khymera - Master Of Illusions (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Away [4:03]
- 02. The First Time [4:22]
- 03. Master of Illusions [4:28]
- 04. The Sun Goes Down [4:34](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EB4D0C17C73555A4E3FCB1BB7EA5A4A8FE909D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366232   (925730) от 10.03.2020
 
 Сергей Маврин - Запрещённая Реальность (2004) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -744,6 +715,35 @@ Delain - Lunar Prelude (2016) [MP3|320 кб/с] <Symphonic Metal, Melodic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAF9631493E4BFCDD8B2AAA7BCFD2CD3914D4BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987529   (924228) от 18.02.2016
+
+Группа "Санкт-Петербург" - 4 альбома (1989-2003) [MP3|192-224 кб/с] <Rock, Ballad>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1989 год - альбом "Русские"
+1991 год - альбом "Шаг навстречу"
+1996 год - альбом "Очарована, околдована"
+2003 год - альбом "Неизданное" (2CD)Жанр: Rock, BalladПродолжительность: 04:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E1AB013FBD866257979CA45B25CFAE0063237D
 ```
 
 https://mybot314.ru/tekegram_catalog/

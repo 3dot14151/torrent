@@ -1,3 +1,177 @@
+###  Публикация: 912889   (608677) от 27.06.2015
+
+VA - Дискотека забытых хитов (зарубежная) - 13 (2015) [MP3|246 - 269 кб/с]<Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tommy Bow - Dance Tonight (07:28)
+02. Fockewulf 190 - Body Heat (06:26)
+03. Felli - Greatest Mind (06:37)
+04. Mac Jr. - Elephant Song (07:11)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3437F3E34DDBB9E2E7087BC4A8332EEBD49137CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038194   (608614) от 27.07.2016
+
+VA - TOP Non-Stop 2010-2015 - Lounge, Chillout, Ambient. Vol.2 (2015) [MP3|192-320 Kbps] <Chillout, Lounge, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 | Seoan | Far from Paradise (Heaven Voices Mix) | 04:18min
+002 | Frank Borell | Feel the Space (Final Fly Mix) | 04:40min
+003 | Spiritchaser | Yesterday's Gone (Club Mix) | 06:44min
+004 | The Beloved | The Sun Rising | 04:59min(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 03:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B4182C5B84665B001D52E3FFAE35630CC05D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038251   (608613) от 27.07.2016
+
+VA - Midnight Passion Elite Jazz (2016) [MP3|320 Kbps] <Jazz, Blues, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemonjazz - Close Your Eyes - Erotic Sunset to Sunrise Mix
+02. Acid Jazz Johnson - Midnights Mood
+03. Hildegard lernt fliegen - Suite for muderers & drinkers
+04. Enrico Pieranunzi - Prolusion(   Читать дальше...   )Жанр: Jazz, Blues, SoulПродолжительность: 04:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1BFC79A3B0B59E27444A47D520BE48561965B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038100   (608599) от 27.07.2016
+
+VA - Pop Disco: July Box (2016) [MP3|267-320 Kbps] <Pop, Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608599.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Meghan Trainor - Friends (Bonus Track)
+002. Shilpa Rao - Ankhiyan Udeek - Suno
+003. Bahari - Altar of the Sun
+004. Carla's Dreams - Sub Pielea Mea(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 07:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9F9ACDBA9BCC753413C98115A557BD75BCE3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038239   (608483) от 27.07.2016
+
+VA - Blues Forever vol.57 - vol.60 (2016) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrian Galysh - Nobody Knows You
+02. Buddy Guy - I Go By Feel
+03. Martin J. Andersen - Funky State Of Mind
+04. Midnight Club Blues Band - Misery Loves Company(   Читать дальше...   )Жанр: BluesПродолжительность: 05:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0BBF72AB5314A7277A005DC680E4D1E15ABF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912851   (608454) от 27.06.2015
+
+VA - Музыка для вашего офиса - 2 (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608454.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дискотека Авария - Самуи (Single Version)
+002. Zvika Brand feat. MC Chubik - Potahat Tik
+003. Мохито - Ловлю Моменты (DJ MriD & Tony Kart Remix)
+004. Mans Zelmerlow - Heroes (B.o.Y Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A946A2003B3C79AC2D68D20842EEE4E35436A1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296787   (608397) от 19.04.2019
 
 VA - This Merry Planet: Instrumental Disco Hits Vol.2 (2019) [MP3|320 Kbps] <Disco, Instrumental>
@@ -592,180 +766,6 @@ VA - Pop Rock Old Hits 70s-80s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:433A9CDC5B8409E4DF1EB73A2F9A28CE751AE47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913258   (607093) от 28.06.2015
-
-VA - Vocal Trance Seduction Vol 4 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spencer Tarring feat. Angelika Vee - Fall Down (Protoculture Remix) (05:53)
-02. LTN Ft. Nina Carr - Illusions (06:31)
-03. Alex Heat feat. Victoria Ray - Release Yourself (Original Mix) (06:37)
-04. Aurosonic & Frainbreeze feat. Sarah Russell - Tell Me Anything (07:16)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1850DC3ADB2326AB3F17978AB82F92222F3E37B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913373   (607082) от 28.06.2015
-
-Niels Eje - MusiCure 1 - 10 (2003 – 2011) [MP3|320 кб/с]<New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Land Of Dreams
-02. Blackbird`s Song
-03. Butterfly Garden
-04. Nocturnal Air(   Читать дальше...   )Жанр: New AgeПродолжительность: 10:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F467B5CAD0854FAAF26B28EA7E540ACE03A9AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231285   (607054) от 17.06.2018
-
-VA - 110 Electro House: Most Rated June (2018) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marc Moosbrugger - From Now On
-002. Damon Rush - Where U At
-003. The Sloppy 5Th's - Tushy (Original Mix)
-004. Nora En Pure - Sphinx(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 08:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FAB282D7BDE9A016C5CE68183C34276B0AF073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231282   (607048) от 17.06.2018
-
-VA - Sexy Deep House Grooves (2018) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607048.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Peter Brown - Alegria
-002. Roberto Stecini - Deep In My Soul
-003. Umut Dogan - Can You Feel It
-004. Savi Leon - Get Serious (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6A16AA8736C5A1EFE2DC077DD4CB53AA4D3050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913195   (607015) от 28.06.2015
-
-VA - Italo Disco Hits Vol.6 (2015) [MP3|208 - 320 кб/с]<Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny M5 - Maxi Megamix (18:36)
-02. Foster - Calypso Girl (Mix Version) (04:25)
-03. Helicon - You See (06:38)
-04. Tobias-Bernstrup - The World Falls Apart (02:20)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 05:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC677052A8393BBB8C9D5F5D7E61FF8340E8D6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913316   (607001) от 28.06.2015
-
-VA - Мульт-и BOOM !!! (2015) [MP3|320 кб/с]<Soundtrack, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - Party! Party! Party! (Мадагаскар 2) (03:31)
-02. D. Jacobs - Gonna Make You Sweat (Everybody Dance Now) (Мадагаскар 3) (02:15)
-03. Bee Gees - You Should Be Dancing (Гадкий Я) (04:18)
-04. Cyndi Lauper - Girls Just Wanna Have Fun (Кумир Тридевятого Королевства) (03:51)(   Читать дальше...   )Жанр: Soundtrack, DanceПродолжительность: 02:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265F19D1B7E69E5D81B03274B4900D529D44A6BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

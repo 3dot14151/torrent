@@ -1,3 +1,38 @@
+###  Публикация: 546423   (473853) от 15.09.2012
+
+VA - 101 Voices (2012) 5CD [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Farnham - You're The Voice [05:03]
+02. Roxette - It Must Have Been Love [04:18]
+03. Meat Loaf - I'd Do Anything for Love (But I Won't Do That) [05:42]
+04. Cyndi Lauper - Time After Time [03:59]
+05. Sinead O'Connor - Nothing Compares 2 U [05:10]
+06. Annie Lennox - Why [04:52]
+07. Tina Turner - What's Love Got To Do With It [03:47]
+08. Jennifer Rush - The Power of Love [04:26]
+09. Heart - Alone [03:40]
+10. Bonnie Tyler - Total Eclipse of the Heart [04:28](   Читать дальше...   )Жанр: PopПродолжительность: 06:26:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 258418   (473621) от 15.09.2012
 
 Barbra Streisand - 2 альбома (1980, 2005) [FLAC|Lossless]<Pop>
@@ -731,35 +766,6 @@ VA - Romantic Collection. France (1996) [FLAC|image + .cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F7959105474AE345E5F47DCA3BEC380011C9BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246870   (456637) от 13.09.2018
-
-VA - The All Time Greatest Love Songs of the 60's, 70's, 80's & 90's, Vol. II (1997) 2CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Ballads>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wet Wet Wet - Love Is All Around
-02. Celine Dion - Because You Loved Me
-03. Cherry - 7 Seconds
-04. Texas - Say What You Want(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 02:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6202F84FD64A829558994A3E7E63748D5A736DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

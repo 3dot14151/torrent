@@ -1,32 +1,3 @@
-###  Публикация: 1179801   (344577) от 02.11.2017
-
-Ne Obliviscaris - Urn (2017) [MP3|320 Kbps] <Melodic Black Metal, Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344577.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Libera (Part I) - Saturnine Spheres
-2. Libera (Part II) - Ascent Of Burning Moths
-3. Intra Venus
-4. Eyrie(   Читать дальше...   )Жанр: Melodic Black Metal, Progressive Death MetalПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF98D16C33790165BC5040687F02F3A4B3EE58AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180101   (344438) от 02.11.2017
 
 Moonspell - 1755 (2017) [MP3|320 Kbps] <Gothic Metal>
@@ -745,6 +716,35 @@ Severoth - When The Night Falls... (2018) [MP3|320 Kbps] <Atmospheric Black Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0343248DF6A505951EEB9FE93BADD507994E6778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420237   (334009) от 31.10.2020
+
+Ashenvoid - Psalms of the Grave Serpent (2020) [MP3|320 Kbps] <Heavy Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entombed (04:37)
+ 02. Ashenlord (05:37)
+ 03. Revenance (05:11)
+ 04. Abyss (05:31)(   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F328EDFAF41C9F29C8B344B4FB59EDCF0799777C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 975759   (970996) от 16.01.2016
+
+VA - From Sunset to Sunrise, Vol. 3 (20 Midnight Lounge Tunes) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vip's - Cartoon (02:42)
+02. Funky - Taranta (05:09)
+03. Geff Yallow - Giallo (05:31)
+04. The Lounge Sunset - Ada (04:12)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE1EE18E9926DEB63D4A327ABD52CA5FE3B074A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975747   (970994) от 16.01.2016
 
 VA - Best Chillhouse Tunes for Everyday (2016) [MP3|320 кб/с] <House,Deep House,Chill House>
@@ -738,35 +767,6 @@ VA - Record Super Chart 624 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C9847597A895A52742F6BBE01C0DC9E972C7D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358908   (965826) от 10.02.2020
-
-VA - Deep Blue: Vocal House Season (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965826.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Grant David Project - Imagine
-002. Larry Scottish - Summer Rains (Extended Mix)
-003. Mangalia - Minimatt (Original Mix)
-004. Laakkinen - Forever (Extended)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDC9BC9DCE30FD47FF61698A8288065CDEF9B78
 ```
 
 https://mybot314.ru/tekegram_catalog/

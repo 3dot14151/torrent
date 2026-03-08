@@ -1,3 +1,32 @@
+###  Публикация: 1088585   (953650) от 02.01.2017
+
+Volbeat & Amon Amarth - Rock am Ring (2016) HDTV [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступления датского heavy metal бэнда Volbeat и шведского melodic death metal бэнда Amon Amarth на ежегодном рок фестивале Rock am Ring в немецком Нюрбурге june 03, 2016Volbeat - The Devil's Bleeding Crown
+Volbeat - For Evigt
+Volbeat - Doc Holliday
+Volbeat - Seal the Deal(   Читать дальше...   )Производство: 3SAT. july 11, 2016Жанр: Рок-концертПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F7AB6652CCEBE0CADB2E24F6EB06F993294D75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 623819   (953607) от 27.02.2013
 
 Пикник - Два великана (2011) DVD5
@@ -700,36 +729,6 @@ Chris Rea – The Road To Hell & Back (2006) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B71EAA6521F3677308AF20CB5948D14BAD1E6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624935   (949504) от 02.03.2013
-
-Дельфин - Я буду жить (2000) + 4 клипа DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт, записанный в Московском Дворце Молодежи 28 января 2000 года, и клипы которые входили в официальный DVD который вышел не большим тиражом в 2001 году.
-Солист группы: Андрей Вячеславович Лысиков (он же Дельфин).Концерт:
- 01. Дилер
- 02. Убийца
- 03. Тишина(   Читать дальше...   )Жанр: Концерт, Rock, Alternative, Noise, RapПродолжительность: 00:46:27 концерт и 00:16:29 клипы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596C860515F929C375618A495B92E3BE2384EDEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

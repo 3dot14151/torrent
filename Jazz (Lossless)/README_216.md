@@ -1,3 +1,32 @@
+###  Публикация: 1421600   (317759) от 05.11.2020
+
+Lee Morgan - Jazz Profile (1963 - 1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C.T.A. [5:07]
+02. Trapped [6:01]
+03. Twilight Mist [6:57]
+04. Our Man Higgins [8:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CF996D430EBA68D5948D554D2071203E24EF17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959431   (317399) от 24.11.2015
 
 The Phil Woods Quartet - Woodlore (1955) 2013, Universal [FLAC|tracks+.cue]<Bop>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7630012F841C26F85AF178139077F2518246F8B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583106   (314526) от 13.10.2022
-
-John Handy & Lee Ritenour - Where Go the Boats (1978) 1986, In-Akustik [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right There, Right There [6:39]
-02. Moogie Woogie [6:15]
-03. Where Go the Boats [4:32]
-04. Go for Yourself [3:33](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82F838451EA30B4E0C3CA7EFF604875A63005B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

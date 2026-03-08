@@ -1,3 +1,61 @@
+###  Публикация: 1390720   (782251) от 17.06.2020
+
+VA - Club Music (2020) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Louie Vega & Marc Anthony - Ride On The Rhythm (Masters At Work Dub Mix) 6:16
+02. Tori Amos - Professional Widow (Armand's Star Trunk Funk Mix) 3:47
+03. K-Klass - Let Me Show You (Klub Mix) 6:45
+04. Clubland - Hypnotized (PKA Full Philly 12' Mix) 6:31(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DAC629DB51D3B343DA19F8394026DCF048D3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206545   (782168) от 14.02.2018
+
+VA - House Life Vol.19 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daviddance  -  Lose Control (Extended Mix)  7:22
+02.  Andy Pitch  -  Good Time (Original Mix)  6:31
+03.  Sato Fujima  -  Sin Da (Original Mix)  6:30
+04.  Daviddance  -  Groove It (Original Mix)  7:51(   Читать дальше...   )Жанр: HouseПродолжительность: 01:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ACDEBB6AF3EBC388EBCE2B93D0E08A37013303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206277   (782167) от 14.02.2018
 
 VA - Delicihouse (The Sound Of Deep House) (2018) [MP3|320 Kbps] <Deep House>
@@ -682,64 +740,6 @@ Phon.O - Collection 16 Releases (2005-2020) 50Weapons, Shitkatapult, BPitch Cont
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D8D3DB53245626772D5BA846F5033936F4B4BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206892   (781337) от 16.02.2018
-
-VA - Freaky House 2018 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugarboys - Nah Nah Nah (Original Mix)
-02. Adam Walker - Pump It (Original Mix)
-03. Nicole Palmer - Little Divine (Original Mix)
-04. Recovery Mafia - Make Love (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8095DFD9CC7FFAABBFBBC3437147689CCD7CAD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206562   (781334) от 16.02.2018
-
-VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Deep House, Hip-House, Garage House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Nightwriters - Let The Music (Use You) (Original Mix) (8:11)
-02.Sterling Void & Paris Brightledge - It's Alright (Original 12'House Mix) (6:51)
-03.Adeva - Respect (Extended Mix) (7:32)
-04.Chanelle - One Man (One Mix) (7:45)(   Читать дальше...   )Жанр: Acid House, House, Disco, Deep House, Hip-House, Garage HouseПродолжительность: 02:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B8BE726AF5989A0A416D31D772AC65040FE3A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,174 @@
+###  Публикация: 1082785   (277258) от 13.12.2016
+
+VA - Record Super Chart #466 (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit feat Sean Paul & Anne-Marie - Rockabye (Denis First Remix) 4:08
+02. W&W - Caribbean Rave (Extended Mix) 3:37
+03. Zara Larsson - Ain't My Fault (Rakurs remix) 4:45
+04. KSHMR & B3nte & Badjack - The Spook Returns (Extended Mix) 4:09(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B2091C65DA184B6A01F924F707D2D94791563B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082570   (277255) от 13.12.2016
+
+VA - Снегопад новинок (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277255.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.John Legend - What You Do To Me 3:22
+002.Craig David - Louder Than Words 4:06
+003.Mainstream One - Сойти От Тебя С Ума 3:19
+004.Clean Bandit Feat. Sean Paul & Anne-Marie - Rockabye 4:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FF3E935C49D813016BAF6B14AA652D61CAA649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273344   (277198) от 20.12.2010
+
+VA - Зимний Шансон Года 2011 (2010) [MP3|256 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ШансонПродолжительность: 06:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53017AA5F712D1B6989B793ACD711C08BB9415BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187884   (277158) от 30.11.2017
+
+VA - German Top 100 Single Charts 01.12.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bausa - Was du Liebe nennst
+002. Camila Cabello - Havana (feat. Young Thug)
+003. Ed Sheeran - Perfect
+004. Post Malone - rockstar (feat. 21 Savage)(   Читать дальше...   )Жанр: PopПродолжительность: 05:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE5DAB4368092CAA41CEAFD8616853FCB3DA78C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187704   (277154) от 30.11.2017
+
+VA - По волне моей памяти 2: Том18 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Воскресенье  -  Два белых снега 4:02
+02.  Весёлые ребята  -  Как прекрасен этот мир 3:57
+03.  Карнавал  -  Спасательный круг 5:09
+04.  Красные маки  -  Остановите музыку 4:19(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DB6FE3BD63D24948D33CD2AC0D8673AEBBD69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187804   (277152) от 30.11.2017
+
+VA - По волне моей памяти 2: Том20 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Воскресение  -  Случилось что-то 4:00
+02.  Красные маки  -  Ты мне снишься 4:54
+03.  Здравствуй, песня  -  Пусть завтра 3:42
+04.  Песняры  -  Олеся 4:26(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8663BD4FAAD6AFED29FD2F3173B1CEE441C4FE09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187738   (277151) от 30.11.2017
 
 VA - По волне моей памяти 2: Том19 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
@@ -562,171 +733,6 @@ VA - Музыкальный Новогодний Подарок from AGR | @nGeL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB5EC45C95134B54C3DF1E57053D986AB208F07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336826   (276234) от 09.11.2019
-
-VA - Happy Nation: Reggae Collection (2019) [MP3|320 Kbps] <Reggae, Dancehall, Reggaeton>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276234.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Temple Rockers - Who Can Retell
-002. Prr A Ramed - Winner
-003. The Archives - Nuff A Dem Claim
-004. 9tyz - Slow Wine(   Читать дальше...   )Жанр: Reggae, Dancehall, ReggaetonПродолжительность: 06:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517505DA402D982E39C4D958D6A22DC8AF78000F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336831   (276227) от 09.11.2019
-
-VA - Hot Dance Pool Party (2019) [MP3|320 Kbps] <Dance, House, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276227.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dezibel - U Got Me Rocket (Extended Edit)
-002. Myan - On The Road
-003. Andy Wolf - Begin (Original Mix)
-004. Jabawack - Ellipse (Originla Mix)(   Читать дальше...   )Жанр: Dance, House, PopПродолжительность: 12:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9706F087E4C44322E8B65A99ED802AC50F680743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273571   (276226) от 21.12.2010
-
-VA - В десяточку! Зимний выпуск (2010) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BAFEAB2C23E63512A475D8166CFCBAE2BF005A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188160   (276196) от 01.12.2017
-
-VA - World Of Color Madness: Psy Goa Trance (2017) [MP3|250-320 Kbps] <Psy, Goa Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shpongle - Remember The Future
-02. Hippy Cat - Amsterdamn (Original Mix)
-03. Christopher Lawrence - Unbroken (Sonic Species Remix)
-04. PsyBuddy - Puma Punku(   Читать дальше...   )Жанр: Psy, Goa Trance, ElectroПродолжительность: 07:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66320EAB3A293BB8AE9A500F3CC16CFFE97E06B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273687   (276134) от 21.12.2010
-
-VA - Mega Популярный Ринг-tone 50/50 (2010) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0350C77B3D8437FA8595B3AF2E98EF3F16275D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273733   (276127) от 21.12.2010
-
-VA - OLD Dance Hits 100% (2010) [MP3|320 kbps]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop,DanceПродолжительность: 08:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064D84664F3A0E7D150A731BBFCDD2A9C65D96AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

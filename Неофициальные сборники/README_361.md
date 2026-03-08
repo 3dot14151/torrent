@@ -1,3 +1,177 @@
+###  Публикация: 1045337   (559447) от 23.08.2016
+
+VA - The Night Piano and Sweet Classical Moments (2016) [MP3|320 Kbps] <Lounge, Classical,Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philip Bennetts - Proud Achievement (03:12)
+02. Francesco Morettini - Nel pianoforte in a Major (for Piano) (04:13)
+03. Pino Cangialosi - Rain on Kids (03:14)
+04. Gianluca Ricciardi - Conseguenze (04:49)(   Читать дальше...   )Жанр: Lounge, Classical, InstrumentalПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DEAC384D2E1BBE0E2B5ED9A47D785BF0D84BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045374   (559439) от 23.08.2016
+
+VA - 90s Chart Hits - Extended Versions (2016) [MP3|320 Kbps] <Eurodance, Techno, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dune  -  Rainbow To The Stars (12 Inch Mix)  4:55
+02. Masterboy  -  Land Of Dreaming (Night Club Mix)  6:11
+03. Gigi D'agostino  -  The Riddle (Original Mix)  4:47
+04. Corona  -  The Rhythm Of The Night (Club Mix)  5:38(   Читать дальше...   )Жанр: Eurodance, Techno, ClubПродолжительность: 02:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D3B12C53BDC482D11454573FFBFC2594BF5E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924351   (559286) от 03.08.2015
+
+VA - Rome Lounge Sensation (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gold Knight - Rumbus [07:29]
+02. Rangiroa - Daybreak in Osaka [03:51]
+03. Gold Knight - Hungry for Glory - Extended Version [05:28]
+04. Nejmaoui - Beat Envolved [03:51](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89287051494DF4CC1D5A3F0E4ABAF5A05ACD14F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924497   (559176) от 03.08.2015
+
+VA - Tomorrow Night (2015) [MP3|320 кб/с]<Deep, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Explanatory - Penumbra
+02. Soul Emphasis - Going Deeper
+03. Mighty Real - Atonality
+04. Sigother - Double Motion(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 09:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967E19BC855B0EEDF7954F49D88E2495C91094A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924276   (559175) от 03.08.2015
+
+VA - Meet Me At The Pool (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superkid - Benotmane
+02. Dont Hesitate - Camman & Klaassen
+03. Fallin' - Sakloe Instrumental Mix - Juli-Lee
+04. Thoughtful - Lexer(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:20:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104A253B15F553CB9BDE5E061FF6B564D1D8F6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924535   (559165) от 03.08.2015
+
+VA - Summer Beach Party (2015) [MP3|320 кб/с]<Euro, Dance, Club, Vocal, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aggro Santos - Red Lips (Steve Smart Remix)
+02. Aimoon Vlad Varel Feat. Eva Kade - One More Night (Original Mix)
+03. Alexandra Stan Feat. Inna & Daddy Yankee - We Wanna (Dj Amor Remix)
+04. Alvaro Corz - My Head (Original Mix)(   Читать дальше...   )Жанр: Euro, Dance, Club, Vocal, ProgressiveПродолжительность: 06:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF1DA74464DBEFC7A652E7B35A9FFA791BCF163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924195   (559163) от 03.08.2015
 
 VA - Atom 17.0 (DJ Mix by Deeper82) (2015) [MP3|320 кб/с]<Atmospheric Breaks, Progressive Breaks>
@@ -616,180 +790,6 @@ VA - Piano Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE28849E3177198FFDE82EE4E452C9E2B91AA622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045751   (557939) от 24.08.2016
-
-VA - Летние новинки интернета 50+50 Август (2016) [MP3|319-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gianni Kosta feat. Belle - Sirius
-02. Kryder & HIIO - La Luna (Radio Edit)
-03. Lindsey Stirling - Afterglow
-04. Алина Гросу - Вне Закона(   Читать дальше...   )Жанр: PopПродолжительность: 02:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F8563DA6B55B229F5D84264C38F2EE68A1C18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045714   (557845) от 24.08.2016
-
-VA - 80's Cardio Workout Playlist Vol.3 (2016) [MP3|112 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugo Strasser - Letkiss (Letka-Enka)
-02. Chak Berry - Johny Be Good
-03. ELO. - so serios
-04. Creedence clear water reviv al - Have you ever seen the rain(   Читать дальше...   )Жанр: PopПродолжительность: 06:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0663A46047744249C7A7DC3205948A9CB79AD1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153387   (557806) от 27.07.2017
-
-VA - Топ 100 Клубные Ремиксы Июль (2017) [MP3|320 Kbps] <House, Remixes, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557806.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  David Guetta & Nicki Minaj feat. Lil Wayne - Light My Body Up (Loud Bit Radio Edit)  3:08
-002.  DJ Ilya Lavrov & Pavel Stepanov - Тучи (Иванушки International Cover) (Radio Mix)  3:26
-003.  Enrique Iglesias - Bailando (DJ Tarantino Radio Remix)  3:48
-004.  Queen - The Show Must Go On (DJ Tarantino Radio Mix)  2:56(   Читать дальше...   )Жанр: House, Remixes, Dance, ClubПродолжительность: 07:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A172460EF56D4B6B397098FC1C416EBE0A6B7CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045747   (557733) от 24.08.2016
-
-VA - Зарубежная Дискотека Восьмидесятые (2016) [MP3|112~320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557733.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ABBA  -  Money,Money,Money  3:05
-002. Secret Service  -  Ten O'Clock Postman  3:38
-003. C. C. Catch  -  I Can Lose My Heart Tonight  5:54
-004. Boney M.  -  Daddy Cool  3:27(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 06:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4335193551508ED774632B677F12A55F806600B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045724   (557730) от 24.08.2016
-
-VA - Ambient Lounge Lyric (2016) [MP3|320 Kbps] <Chillout, Lounge, Ambient Lyric>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557730.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anthya - Voice of Desert
-002. Syd Walker - Floating In The Sea
-003. Bandora Tunes - Borghese Jazz
-004. Michael E. - Infinite Beauty(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient LyricПродолжительность: 08:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14759DE157C9289DCCC5BD94C60938D467133D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924717   (557671) от 04.08.2015
-
-VA - Sunset Beats - Ibiza Edition (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Sunset Beats - Ibiza Edition 2015 Mix, Pt. 1 [77:47]
-02. DJ Mix - Sunset Beats - Ibiza Edition 2015 Mix, Pt. 2 [76:28]
-03. Ella Fitzgerald - Wait Till You See Him (De Phazz Remix) [03:52]
-04. Casanovy - I Need Your Lovin' (Sin Plomo's Superlounger Mix) [05:42](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889F3754D44011C41BDE1E6AA54F72C814BBA1FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

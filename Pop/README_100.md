@@ -1,3 +1,61 @@
+###  Публикация: 1126625   (765440) от 18.04.2017
+
+Espionage - Espionage (1983) Vinyl, LP [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound Of Breaking Hearts
+02. Your Love Is For Sale
+03. The Great Escape
+04. Freedom(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550FBAABC0D7E47A24062955B826D8D2D3C38E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126548   (765410) от 18.04.2017
+
+Tam Harrow - Incredible Idiot (2015) LP, The Italo Disco Album [MP3|320 Kbps] <Electronic, Italo-Disco, Eurobeat, Parody, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incredible (3:44)
+02. I Look Into Your Eyes (5:26)
+03. Not Today Not Tonight (4:17)
+04. Toledo (5:00)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Eurobeat, Parody, PopПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FF41B01B6BF511622AF688AE8E2F96432D9CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394051   (765348) от 03.07.2020
 
 Григорий Лепс - Честь имею! Городской романс (Высоцкий) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Авторская песня>
@@ -687,64 +745,6 @@ VOLUME 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4E304EB086CAEE16657C5C4D4E131333D381881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280075   (763423) от 01.02.2019
-
-Оля Полякова - Королева ночи (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763423.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Королева ночи
-2. Лёд тронулся
-3. Любовница
-4. Звонила(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8773DF7BB5F23C46C13712D4136DCE695E2CF114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214651   (763302) от 23.03.2018
-
-Bosson - RockStar (2004) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need Love (3:35)
-02. You Opened My Eyes (3:41)
-03. One Of A Kind (3:55)
-04. A Little More Time (3:56)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3C346D81E6AD66797BA6B4B34AF6A631F61519
 ```
 
 https://mybot314.ru/tekegram_catalog/

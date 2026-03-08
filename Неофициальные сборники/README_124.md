@@ -1,3 +1,177 @@
+###  Публикация: 1497915   (859645) от 25.09.2021
+
+VA - Synthwave Dream Collection (2021) [MP3|320 Kbps] <Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Raiders Of The Lost Arp - Sinetheme
+002. DJ T. - Harem Disco
+003. Kukuzenko - Sweet As Candy
+004. Maxnickel - 2er(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 07:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1C9F513571C91A0EE7CD3D1127A389BB012086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497923   (859641) от 25.09.2021
+
+VA - The Presents Of Autumn (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859641.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Hopperman - Feel
+002. Groove Stata - Angel
+003. Kevin Johnson - Looking For Love
+004. Hiatus Kaiyote - Chivalry Is Not Dead(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF53664991C56566FFE59F56DEE65F6A85AAC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497927   (859639) от 25.09.2021
+
+VA - Twisted Disco Stick (2021) [MP3|320 Kbps] <Dance, Disco, Nu Disco, Funky House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vibes4yoursoul - Si Ma Chanson Pouvait
+002. Jack Tennis - Jorge’s Pipa
+003. Stewart Birch - I Jus Wanna
+004. Discotron & Hp Vince - Hands Together(   Читать дальше...   )Жанр: Dance, Disco, Nu Disco, Funky HouseПродолжительность: Dance, Disco, Nu Disco, Funky House
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27AA5FADF6DBE116CA46A33A6D6087553D01B88A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497925   (859633) от 25.09.2021
+
+VA - Music News vol.135 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859633.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. LXE - Между Нами Ад (02:00)
+ 002. A7S - Nirvana (Steff Da Campo Remix) (02:54)
+ 003. Adnana - Andale (03:10)
+ 004. Akim - Сильнее Слов (03:43)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438226689FB3D68C049A6351C65CFE81C5DB1579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497900   (859517) от 25.09.2021
+
+VA - For Freedom And Friends: Rock Classic Compilation (2021) [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859517.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dire Straits - Money For Nothing
+002. The Damned - Love Song
+003. Tainted Lady - Hey Mr. Music Man
+004. Status Quo - Fame Or Money(   Читать дальше...   )Жанр: Classic RockПродолжительность: 06:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39DC262953EC4979CF324C5D26299DEC24BA9299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000456   (859336) от 25.03.2016
+
+VA - Sailing Out Lounge (2016) [MP3|320 кб/с] <Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Surfing Emotional Waves (05:45)
+02. Aquarius - The Midnite Call (05:59)
+03. Spiridion - Jazztrain (05:36)
+04. Enrico Donner - Golfinhos (05:57)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47D6B01B2C3B854FE7593CC794AFC08E69B0894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000194   (859322) от 25.03.2016
 
 VA - West Coast Night Club Fantasies (2016) [MP3|260-320 кб/с] <Bass Music, Electro, Future House>
@@ -568,180 +742,6 @@ Janis Joplin - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A932503CC3AC26CC11420C662E7FA2896CC5AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376722   (858806) от 18.04.2020
-
-VA - Beatport Trance: Electro Sound Pack #60 (2020) [MP3|320 Kbps] <Trance, Uplifting, Progressive, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858806.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zumbo - Information Psy
-002. Aquarius Orb - F.P.N.S.
-003. Lange - Nearly Home
-004. Estiva - Perpetual (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting, Progressive, VocalПродолжительность: 12:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88077E53657D22850FDE326FACCF2442241E2125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376569   (858805) от 18.04.2020
-
-VA - Popular Euro Song: Spring Edition (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858805.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Medina - Stгёrre End Os
-002. Harry Styles - Watermelon Sugar
-003. Sandro Nicolas - Running
-004. Yook Sung Jae - Chicken(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57BD60D6B620D7F5498E2B92A31716AA2AFB9FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376720   (858801) от 18.04.2020
-
-VA - Beatport Techno: Electro Sound Pack #61 (2020) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858801.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dubonautik - Irregularity
-002. Freddy D - El Gitano
-003. S-File - Let There Be House
-004. Daniel Sbert - Lemur (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 13:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF8AD465C70173F78D38F3290F1550E108BE643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109193   (858777) от 27.02.2017
-
-VA - Dance Wicked (2017) [MP3|320 Kbps] <House, Electro, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858777.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Deugene - Deadliest Sound (Original Mix) 3:38
-002. Daleri Ft Vice - Somebody Told Me (En Route) 3:06
-003. Aleo - Haribda (Original Mix) 4:27
-004. 808 State - In Yer Face (Bicep Remix) 7:42(   Читать дальше...   )Жанр: House, Electro, ProgressiveПродолжительность: 07:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9697C0A1F7A99B376EB7C10CFE4034F979B94037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376516   (858688) от 18.04.2020
-
-VA - Live Monsters! (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss - Detroit Rock City (Live)
-02. Black Sabbath - N.I.B. (Live; 2009 Remaster)
-03. Led Zeppelin - Immigrant Song (Live 1972; 2018 Remaster)
-04. AC/DC - Thunderstruck (Live - 1991)(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 04:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CC53A3B638D9D931189165AEEC294849714E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000495   (858611) от 25.03.2016
-
-VA - Дискотека 2016 Dance Club Vol.150 от NNNB (2016) [MP3|192-320 кб/с] <Club, Dance  Trance, House, Dubstep, Pop,  Breaks, Trap,  Bass, Chill Out>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvo feat. Gigi - Made For Us (Radio Edit)
-02. Alexandra Stan - Ecoute
-03. DJ Emil Rocks - Feel of freedom (P.R. Project Remix)
-04. Stage Rockers & Dessy Slavova - Go Away (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance  Trance, House, Dubstep, Pop,  Breaks, Trap,  Bass, Chill OutПродолжительность: 10:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245981881C9D2467F2AC6ECD8EA645A582D97179
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1750177   (43139) от 18.09.2024
+
+VA - Pretty Little Deep-House Friends, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avrial - Loser (S.D.K Non Vocal Remix) (04:36)
+02. Lounge Groove Avenue - Sweet Summer Days (02:19)
+03. DanVee - Deep Moods (07:04)
+04. Cotton Animals - Without You (04:47)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4D7677752F3A429494E50D6E19F0EC4FA2ADAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750548   (42946) от 20.09.2024
+
+Depeche Mode - Spirit The 12 Singles (2024) [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where's The Revolution (Autolux Remix) (04:16)
+02. Where's The Revolution (Pearson Sound Remix) (06:33)
+03. Where's The Revolution (Algiers Click Farm Remix) (03:28)
+04. Where's The Revolution (Simian Mobile Disco Remix) (08:48)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 03:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BECC7E552D171F0F0C6CA28084ED017E814BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750473   (42936) от 20.09.2024
 
 VA - Armin van Buuren - A State Of Trance 1191 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -687,64 +745,6 @@ VA - Folktronic & Organic (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08EABD6F280748567E227537A55685A3125EF152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729759   (42035) от 29.09.2024
-
-Yotto - Odd One Out Radio (001-017) (2024) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CamelPhat & SOHN - Turning Stones (Mind Against Remix)
-02. Mia Mendi & TH;EN - Collapsing Sky
-03. Vintage Culture & NoMBe - Pleasure Chasers
-04. Marsh ft. Leo Wood - Heartbreak(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 17:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C632EEF7847EAFA170977E9F1E3B454517022992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752249   (41995) от 29.09.2024
-
-VA - Kontor Top Of The Clubs 2024.02 (2024) [MP3|~245 Kbps (V0)] <House, Club, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris - Feel So Close (Radio Edit) [03:26]
-02. OneRepublic, Alesso - If I Lose Myself (Alesso vs. OneRepublic) [03:34]
-03. The Underdog Project - Summer Jam (Jerome Remix) [02:45]
-04. Eric Prydz - Pjanoo (Radio Edit) [02:39](   Читать дальше...   )Жанр: House, Club, Progressive, DanceПродолжительность: 08:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E11961C09B913D19210B76702A5FE6ABDA6631B
 ```
 
 https://mybot314.ru/tekegram_catalog/

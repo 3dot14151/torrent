@@ -1,3 +1,32 @@
+###  Публикация: 1029120   (682194) от 26.06.2016
+
+Alex Vanderberg (Van Der Berg)  Orquestra - Music To Make Love (1991) [MP3|160 кб/с] <Classical, Romantic, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Blue
+02. I Am Sailing
+03. Memories
+04. Words(   Читать дальше...   )Жанр: Classical, Romantic, InstrumentalПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC3ACBD1B743FB8334BCE8674E719ED7618F0DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289569   (681977) от 18.03.2019
 
 James Last - Jahrhundert Melodien (1982) [FLAC|Lossless|image + .cue] <Pop, Easy Listening>
@@ -742,35 +771,6 @@ NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E187B2A3264D710D67A07F671942012693201ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030318   (674414) от 30.06.2016
-
-J Stallworth - Unleashed (2016) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674414.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (Romans 6.4-6) (0:45)
-2. Theme, Pt. 1 (6:24)
-3. A New Day, Pt. 2 (4:12)
-4. Joy Comes in the Morning, Pt. 3 (6:06)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6251934FABCF92BDD462EAD168B18D965DB6655B
 ```
 
 https://mybot314.ru/tekegram_catalog/

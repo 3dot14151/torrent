@@ -1,29 +1,3 @@
-###  Публикация: 1837608   (257954) от 17.11.2025
-
-Проекты - VideoHive - Christmas Titles - Instagram Wishes - 60733023 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте волшебную атмосферу праздника в своих социальных сетях с помощью этого стильного и современного шаблона! "Christmas Titles - Instagram Wishes" — это идеальное решение для создания ярких и динамичных рождественских и новогодних поздравлений, специально оптимизированных для Instagram Stories, Reels и постов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668619D6F70872FEBC017CE83D0F4A79E46CD768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837624   (257947) от 17.11.2025
 
 Проекты - VideoHive - Christmas Day Logo - 60756416 [AEP]
@@ -677,6 +651,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F876A022A7E1EB741D45DE4B1348B19BE64729AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837471   (257565) от 16.11.2025
+
+Проекты - VideoHive - Christmas Logo - 60648442 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркий новогодний проект для ваших творческих поздравлений и праздничных видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6D758022870D2337EAFF709604C8E6D329767F
 ```
 
 https://mybot314.ru/tekegram_catalog/

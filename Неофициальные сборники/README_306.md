@@ -1,3 +1,183 @@
+###  Публикация: 908032   (635564) от 13.06.2015
+
+VA - Музыкальный подарок от Europa Plus (2015) [MP3|320 кб/с]<Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635564.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mband - Она Вернётся (04:09)
+002. Nickelback - The Hammer's Coming Down (04:23)
+003. Slava Basyul - Разбуди Меня (04:13)
+004. Dirty South Feat. Kids Without Instruments - The Best Days (04:27)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 06:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830CFFD993B6E60FF9CC8F134C5252E6838E9450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143671   (635509) от 18.06.2017
+
+VA - Heliopause: Energy Exdendet Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635509.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mhammed El Alami & Ben Samy - Ocean Dream (Extended Mix)
+002. Johnny Yono - Severed Ties (Extended Mix)
+003. James Kiedis - Here I Stand
+004. Davey Asprey - Fallout (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 11:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC900AADEB090DD6123543915EFEE3341F54348D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293682   (635498) от 04.04.2019
+
+VA - Dance - Pop Vol. 3 (2019) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roksana Wegiel - Anyone I Want To Be (2:58)
+02. Hailee Steinfeld - Back To Life (from ''Bumblebee'') (3:54)
+03. Lanberry - Nie Ma Mnie (3:29)
+04. Sigrid - Don’t Feel Like Crying (2:37)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA38EF6AF44CE89F57D853E4D9474923877E3DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907974   (635437) от 13.06.2015
+
+VA - Русские свежаки радиостанций Топ новинок попмузыки (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635437.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Вирус - Навстречу Мечте
+002. Lx24 - Когда Ты Рядом Со Мной
+003. Поющие Трусы - Красивый Конец!
+004. Mr. Credo - Медляк(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3765DADCEBBC1B25B6C9BBA02F7FAC2DE1A321A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143556   (635391) от 18.06.2017
+
+Ralph Lundsten - In Ralph Lundsten's Universe (2009) [MP3|320 Kbps] <Electronic, Experimental, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шведский музыкант, композитор и режиссер (род. 6 октября 1936 года в Ersnas). Один из самых известных клавишников на синтезаторах и композиторов электронной музыки.01. Universe Calling (Universe, 1976) (3:32)
+02. The Space Sneaker (Universe, 1976) (1:35)
+03. In the Shade of the Purple Moon (Universe, 1976) (3:20)
+04. The hot Andromedary (Universe, 1976) (1:43)(   Читать дальше...   )Жанр: Electronic, Experimental, AmbientПродолжительность: 04:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAE26F7B112865E1B89DC84E3C6E67C4C5F77B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519822   (635342) от 07.07.2012
+
+VA - Клубная Дискотека DFM 50/50 (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oceana - Endless Summer (Bodybangers Remix Edit)
+02. DJ Smash - Young Hearts (Radio Edit)
+03. Nickelback - When We Stand Together (DJ Noiz Bootleg)
+04. MC Zali & Fidel Wicked - Nosom Po Kokosam
+05. Ledina Celo - Can You Touch Me Baby (Edit Mix)
+06. Бурановские бабушки - Party For Everybody (Dj Slon Remix)
+07. Sak Noel - Where
+08. Марсель - Иди Ко Мне (Remix)
+09. Bodyrox feat. Chipmunk & Luciana - Bow Wow Wow (Bluestone vs Loverush Radio Edit)
+10. DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow to California (DJ Favorite Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124ACF8D18EFF1F7DEB179A4DBBE27082AFB1E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293672   (635233) от 04.04.2019
 
 VA - Top 100 Зайцев.Нет Март 2019 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -580,180 +760,6 @@ VA - The Best - In Music We Trust Vol.2 (2016) [MP3|320 Kbps] <House, Club, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8C55B3A92EF18C93D8C141F7522BE7D0CE21092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034705   (634140) от 13.07.2016
-
-VA - Лучшая Коллекция Исполнителей Шансона (2016) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ирина Круг - Я прочитаю в глазах твоих
-02. Геннадий Жаров - Ушаночка
-03. Михаил Круг - Приходите в мой дом
-04. Вера Снежная - В бокале вина(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75978A5ED5ECFECFD2850BE1A143F157F9EBB759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034581   (634128) от 13.07.2016
-
-VA - Disco Hits - Generation One (2016) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney M. - Sunny [03:59]
-02. Eruption - One A Way Ticket [03:36]
-03. ABBA - Voulez-Vous [05:08]
-04. Donna Summer - Hot Stuff [2:55](   Читать дальше...   )Жанр: DiscoПродолжительность: 01:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3DF52374C4EE4E82C70D83387BAD1723689218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228456   (634118) от 02.06.2018
-
-VA - Summer Is Coming House (2018) [MP3|320 Kbps] <Progressive, Groove, Funky, Jackin, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Disco Machine, Joe Killington, Duane Harden - Devil In Me (Pdm Club Dub Mix) 6:19
-02. Simon Sinfield - Latitude (Extended Mix) 6:20
-03. Purple Disco Machine - Dished (Male Stripper) 4:13
-04. Madloch - Fiction (Martin Roth Remix) 6:41(   Читать дальше...   )Жанр: Progressive, Groove, Funky, Jackin, ClubПродолжительность: 03:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B11771683E02171C26CEC706E036D6499E75AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908293   (634075) от 14.06.2015
-
-VA - Summer Session (2015) [MP3|320 кб/с]<Club House, Electro House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carly Rae Jepsen - I Really Like You (Broiler Remix) [03:09]
-02. Dim Chris feat. Amanda Wilson - Nothing To Lose (Original Mix) [05:13]
-03. Edurne - Amanecer (Stormby Extended Mix) [05:38]
-04. Katelyn Tarver - Weekend Millionaires (Young Bombs Remix) [04:29](   Читать дальше...   )Жанр: Club House, Electro House, Deep HouseПродолжительность: 08:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67243390EBAF8F52BE56571A15F53DE5DEB63A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034492   (634050) от 13.07.2016
-
-VA - Мега Дискотека с Europa plus (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akon - Good Girls Lie
-02. Stand - Up - Лето В Отрыв!
-03. Sputnik Project & Andry Makarov - Медленно Таешь
-04. Магомед Аликперов - Ее Глаза(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B0FF5D66047E918A86D8EE17727CE6BB847F6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034372   (634046) от 13.07.2016
-
-VA - Top Hits Diskoteka 80s & 90s (2016) [MP3|320 Kbps] <Disco, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634046.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scotch - Disco Band
-002. David Hasselhoff - Looking for Freedom
-003. Princess - Say I'm Your Number One
-004. Nik Kershaw - I Won't Let the Sun Go Down on Me(   Читать дальше...   )Жанр: Disco, Pop, DanceПродолжительность: 10:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C042F9584146A7BE636A199B1092113F6A0C566
 ```
 
 https://mybot314.ru/tekegram_catalog/

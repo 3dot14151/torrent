@@ -1,3 +1,32 @@
+###  Публикация: 1297296   (604825) от 21.04.2019
+
+VA - Special Electro House Mix For Ladies (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604825.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Elements - Feel Good
+002. Alok Jetlag Music - Bella Ciao
+003. ZB - OIO
+004. Aryozo - Franz Kafka(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8A3639FB458DFA14537CE77FFAA3955A96E620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038852   (604682) от 29.07.2016
 
 VA - Hits of My Soul Vol. 08 (2016) [MP3|320 кб/с]<Post Rock, Electronic, House>
@@ -722,35 +751,6 @@ VA - Deep House Republic Mix (2019) [MP3|320 Kbps] <Deep, Soft House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2681437DE2735848FE6BDF426C8EC1E1346508B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298113   (601899) от 27.04.2019
-
-VA - Drum and Bass Pro V.02 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Drum and bass, Neurofunk>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sequend - Uppercut (Original Mix) [4:56]
-02. Delta Heavy & Jem Cooke - Take Me Home (Original Mix) [3:52]
-03. Synergy - Vector (Original Mix) [4:14]
-04. Confusious - Desire (Original MIx) [5:37](   Читать дальше...   )Жанр: Drum and bass, NeurofunkПродолжительность: 02:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9649F2E3940E3D03E7EBB727818A9064D01D9DF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

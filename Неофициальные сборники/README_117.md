@@ -1,3 +1,177 @@
+###  Публикация: 1496410   (872864) от 17.09.2021
+
+VA - Hard Punk Review (2021) [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872864.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scott Sellers - Back To Reality
+002. Authority Zero - Fire Off Another
+003. Riskee & The Ridicule - Millwall Brick
+004. Tim Vantol - You Will Never(   Читать дальше...   )Жанр: Punk, Rock Punk, AlternativeПродолжительность: 05:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413E5E3CB6C0E4CC08E1FE4C1E69FE012788A4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496444   (872856) от 17.09.2021
+
+VA - The Deep Emotion: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout, Relax, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christoph Spendel - Afoxe Verao
+02. Mkk - Still Tryna
+03. Jusscomplex - Last Orders
+04. Five Seasons - Let Me Drive(   Читать дальше...   )Жанр: Lounge, Chillout, Relax, DowntempoПродолжительность: 04:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B96E25E67707F6A71DA8838608AA38A4C576BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496424   (872855) от 17.09.2021
+
+VA - RnB: Music Is My Life (2021) [MP3|320 Kbps] <Rnb, Soul, Funk>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872855.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Chantels - Never Let Go
+002. Pia Mia, Chris Brown - Do It Again
+003. Davide Shorty - Regina
+004. Sada Baby - Whole Lotta Choppas(   Читать дальше...   )Жанр: Rnb, Soul, FunkПродолжительность: 07:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADBA86CA6CB731382259F9CD0F81CE258A3A822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374389   (872835) от 10.04.2020
+
+VA - Beatport Bassline: Electro Sound Pack #50 (2020) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872835.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Schoco - Pressure Rising
+002. Magness - Bling Bling
+003. Solace - Occam's Razor
+004. Artificial Intelligence - Isolate(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 09:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2EBCBB49AB6AD683395FCE81C8BCC7A0BDC0456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106377   (872736) от 19.02.2017
+
+J. R. Blackmore - Destructive Mania (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destructive Mania
+02. Your Last Chance
+03. Beethoven
+04. Drivin' Song (It's Rock)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1269F0191DA039D8D349CAA3CBFC2F949FFE1773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374386   (872687) от 10.04.2020
+
+VA - Beatport Tech House: Electro Sound Pack #53 (2020) [MP3|320 Kbps] <Tech House, EDM, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872687.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Niereich & Shadym - Element 115
+002. S3ktor - Up Quark
+003. Vanepatch & Talee - Levitate (Original Mix)
+004. Exos - Green Beat (Original Mix)(   Читать дальше...   )Жанр: Tech House, EDM, TechnoПродолжительность: 13:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB7E52D4D7E830765D79D1CAB9D51FD17E51E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496442   (872600) от 17.09.2021
 
 VA - The Blues For Yesterday (Vol.03) (2021) [MP3|320 Kbps] <Blues, Rock Blues, Folk>
@@ -571,186 +745,6 @@ VA - Trance Elegance On This Year 010 (2017) [MP3|320 Kbps] <Trance, Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D76DA258570F3A282A008A95EADA29F11D300002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642266   (871782) от 15.04.2013
-
-VA - Солнечный Заряд Хорошего Настроения (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Татьяна Котова - Признание
-02. Demo - Это Лето
-03. Чай Вдвоем - Время вода
-04. НашеVrемя feat. Zlata (Злата) - Крылья
-05. Ксения Новикова (Блестящие) - Хочу забыть
-06. Потап и Настя - Вместе
-07. Reflex - Потому что не было тебя (версия 2012)
-08. София Ротару - Научи Смеяться
-09. A - Sen - Карие
-10. Alexey Romeo & Smoky Mo - На своей волне (Radio Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C248C759D168F54BF32A731E14232DE3DE3EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997970   (871769) от 18.03.2016
-
-VA - Танцевальная Весна (2016) [MP3|320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871769.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arty ft. Conrad - Braver Love 03:33
-002. Би-2 - Дурочка (S.p.l.a.s.h. Сlub radio Mix) 04:05
-003. Dj Antonio feat. Natasha Grineva - Last Kiss (Radio Edit) 03:08
-004. Jax - La La Land 03:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCCC3F52EFBDFF21FC10810DCBC8FA9D53D28FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997844   (871762) от 18.03.2016
-
-VA - Blues Forever vol.33 - vol.36 (2015) [MP3|320 кб/с] <Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Zito - Dirty Things
-02. Blues Merchants - Getting Used
-03. David Gogo - Jet Set
-04. Stevie Cochran - Between The Lines(   Читать дальше...   )Жанр: Blues RockПродолжительность: 05:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE8EABA29BEEEFC601AFCFA6EC1126FDF82203D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997854   (871753) от 18.03.2016
-
-VA - Русский Музыкальный Фонд (2016) [MP3|320 кб/с] <поп, шансон, рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871753.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алла Пугачёва - Тянет сердце руки
-002. Катерина Голицына - Что случилось с солнцем
-003. Пламя - Не повторяется такое никогда
-004. Сантьяга - Какая есть(   Читать дальше...   )Жанр: поп, шансон, рокПродолжительность: 09:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73DF2FEE98BB64C34FA57604DE2C919D6F49E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106622   (871678) от 20.02.2017
-
-VA - City Yoga Moments: Best of Buddha Chant. Relaxation Lounge Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khale Grand - Waves of Chantra - Soulfull Meaning Mix
-02. Romantic Warriors - Yoga Del Mar - Deluxe Bar Relax Mix
-03. Frank Grimes - Cosmos Shaper - Kosmonaut for Free Mix
-04. Sun & Sadness - Secret of Time - City Yoga Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D7E0156888B30901E5025D5A3F693375C47D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106500   (871561) от 20.02.2017
-
-VA - Зимний шансон топ 100. Сборник № 6 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871561.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная Союза - Падали И Поднимались 4:02
-002. Сергей Ильин - Очаровала 3:08
-003. Дмитрий Фомин & Татьяна Тишинская - Позови Меня 3:07
-004. Сергей Трунов - Посидели-Пошумели 3:05(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0D88A43084E73C0B0539E1E247432EC95AE662
 ```
 
 https://mybot314.ru/tekegram_catalog/

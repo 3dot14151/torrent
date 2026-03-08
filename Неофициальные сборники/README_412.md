@@ -1,3 +1,183 @@
+###  Публикация: 940441   (468956) от 24.09.2015
+
+VA - Electro Life 39 (by ZiP)(2015) [MP3|320 kbps]<Electro House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Kunnari - Helsinki (Marcus Maison & Will Dragen Remix)
+02. Alpharock & Vida - Knives (Original Mix)
+03. Amir Afargan ft. Katty Heath - Above The Clouds (Original Mix)
+04. Benny Benassi ft. Alizee - I'm Not Twenty (Jai Pas Vingt Ans)(   Читать дальше...   )Жанр: Electro House, House, Progressive House, Dubstep, TranceПродолжительность: 02:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19286E802471796EFF5F230570A89ED081CAF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058068   (468843) от 01.10.2016
+
+The Sword - Greatest Hits (2016) [MP3|320 Kbps] <Sludge, Stoner Rock, Post-Metal,>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocryphon
+02. Arrows in the Dark
+03. How Heavy This Axe
+04. Fire Lances Of The Ancient Hyperzephrians(   Читать дальше...   )Жанр: Sludge, Stoner Rock, Post-Metal,Продолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE957820997B35FB75FA0CE1879E939B06B3A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058535   (468712) от 01.10.2016
+
+VA - Новинки С Разных Популярных MP3 Сайтов Vol.53 (2016) [MP3|256~320 Kbps] <Pop, Club, House, Rap, Disco, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468712.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dante - Под Кожу (Alex Shik & Dobrynin Remix)  4:08
+002. KSHMR & Will Sparks - Voices (Radio Edit)  3:19
+003. Светлана Лобода - Твои Глаза  3:54
+004. David Guetta & Cedric Gervais & Chris Willis - Would I Lie To You (Extended Mix)  4:48(   Читать дальше...   )Жанр: Pop, Club, House, Rap, Disco, DanceПродолжительность: 06:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6E5E3E131917E3697A3F3C1AC82977A14555AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186893   (468693) от 17.09.2012
+
+VA - Блатной союз(600 треков) (2004) [MP3|192-256 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468693.jpg" />
+</div>
+
+
+###  Подробнее
+
+"001 Жека И Сергей Грубов - Годы Молодые.mp3"
+"002 А.Шапиро - Не Грусти, Браток.mp3"
+"003 Лесоповал - Базара Нет.mp3"
+"004 С.Любавин - Джони.mp3"
+"005 Воровайки - Бен Ладен И Буш.mp3"
+"006 В.Королев - Золотой Кулончик.mp3"
+"007 Беломорканал - Запретная Зона.mp3"
+"008 Столыпин - Столыпин.mp3"
+"009 Кабриолет - Почему Все Не Так.mp3"
+"010 А.Дюмин - Весенние Сады.mp3"(   Читать дальше...   )Жанр: ШансонПродолжительность: 37:57:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407214   (468603) от 06.09.2020
+
+VA - Beatport Drum And Bass: Electro Sound Pack #173 (2020) [MP3|320 Kbps] <Drum & Bass, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468603.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rumrolla - Whistle (Original Mix)
+002. Cutworx - Zen Champ
+003. Fruitful - Dark Arts
+004. Liveon - Basso Ostinato(   Читать дальше...   )Жанр: Drum & Bass, ElectroПродолжительность: 10:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2351DD5151573160C23E0741DD1A5AF1E667E9EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407217   (468482) от 06.09.2020
+
+VA - Ibiza Summer Trance Session (2020) [MP3|320 Kbps] <Trance, Progressive, Uplifting, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468482.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joonas Hahmo - Glittersweet
+002. Aimoon & Audiocells - Aurora
+003. Sunmote - Sonata
+004. Sholan - Forbidden World(   Читать дальше...   )Жанр: Trance, Progressive, Uplifting, ElectroПродолжительность: 11:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6691CB6986331B048E0157E57B1170865B56CBDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407211   (468479) от 06.09.2020
 
 VA - Beatport Club House: Electro Sound Pack #168 (2020) [MP3|320 Kbps] <Dance, Pop, House>
@@ -606,186 +786,6 @@ VA - Mega Dance Best Of 2015 Top 100 (2015) [MP3|320 кб/с]<Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5F16A77D336A639ADA26ABE4DC45AC2D379F5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940547   (466849) от 25.09.2015
-
-Maroon 5 - V (2015) [MP3|320 кб/с]<Pop, Pop Rock, Synth-pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maps
-02. Animals
-03. It Was Always You
-04. Unkiss Me(   Читать дальше...   )Жанр: Pop, Pop Rock, Synth-popПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589893A5214F900E1240371897B7B6E844A19C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940670   (466734) от 25.09.2015
-
-VA - Great Classic Guitar Songs - Best Instrumental Music to Chill (2015) [MP3|320 кб/с]<Instrumental, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maurizio Carlini - Old Style
-02. La Boquita - A la luna
-03. Vincent Migliorisi - Un giorno qualunque
-04. Giorgio Mirto - Notturno - for Guitar(   Читать дальше...   )Жанр: Instrumental, Downtempo, ChilloutПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356082FB7D2B73EA38DCAFD4474E901CD2DF7789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320721   (466610) от 20.08.2019
-
-VA - Top 150 Deep House Vol.4 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evanescence - Bring Me To Life (A-Mase Radio Mix) 3:54
-002. Pushkarev - Broken Love (Fly & Sasha Fashion Remix) 5:09
-003. A. Rassevich feat. Susie Johnson - The Dice (Mike Drozdov & VetLove Remix) 5:52
-004. GeoM - Don't Stop (Housenick Remix) 5:42(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive House, Vocal HouseПродолжительность: 13:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9DADC2BBAF1753E4D2DD79C0F1DF6B7B848A636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548311   (466593) от 18.09.2012
-
-VA - Хиты планеты. Испанская гитара (2012) [MP3|320 кб/с]<Instrumental, Classic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466593.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Джесси Кук - Марио Выходит На Прогулку (3:49)
- 2. Новаменко - Эль Рио (4:56)
- 3. Армик - Чистый Рай (5:12)
- 4. Джипси Кингс - Фаена (3:26)
- 5. Гови - Андалузская Ночь (5:17)
- 6. Оливер Серано - Чико Гитано (4:03)
- 7. Джесси Кук - Цыган (2:29)
- 8. Новаменко - Поездка (6:25)
- 9. Оскар Лопез - Лусия (5:11)
- 10. Оттмар Либер - Звездная Ночь (4:49)(   Читать дальше...   )Жанр: Instrumental, ClassicПродолжительность: 01:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9AE9B629B80CE5AB147AAEE5E95DE8AC07C9B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058815   (466324) от 02.10.2016
-
-VA - 100 Essential Infinity Cardio Hits (2016) [MP3|221-320 Kbps] <Club, Bigroom, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Rock Sofa - Arms Around Me (Chocolate Puma Remix) 05:14
-02. Robbie Rivera & Siwell - Shake It (Original Mix) 07:42
-03. Syn Cole Ft Madame Buttons - Miami 82 (New World Sound Remix) 04:37
-04. Teenage Mutants - Electronic Pleasure 06:55(   Читать дальше...   )Жанр: Club, Bigroom, ElectroПродолжительность: 11:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A35E162A34424877A00103294568FF7C8055FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058562   (466314) от 02.10.2016
-
-VA - Попсовый Бум 7 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466314.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Игорь Прэйс - Прости Меня
-002. Dat Adam - Ufo
-003. Арина Войт & Сергей Сухомлин - Сделай Громче
-004. Hardwell Feat. Jake Reese - Mad World(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CA99F05C3C3557D281E048C285884CEAFE077C
 ```
 
 https://mybot314.ru/tekegram_catalog/

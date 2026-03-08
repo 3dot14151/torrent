@@ -1,3 +1,61 @@
+###  Публикация: 1143745   (633387) от 19.06.2017
+
+VA - Lunch Break Chill Vol.1: Relaxed Summer Chill Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Luc Forlorn - Satin And Silk  4:14
+02.  Senes - Dai Cresci Un Po' (Marco Celloni Bossa Touch Remix)  4:28
+03.  KoolSax - The Death (Esoteric Mix)  5:14
+04.  Zeequencha - So Alive (Pier-O Soulful Remix)  6:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8462B1C5FE346105FCF72242524CACC1BE03EFF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143844   (633381) от 19.06.2017
+
+Ganz Feld - Bethany (2017) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Trap, Downtempo, Bass>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyglow (04:09)
+02. Cazic-Thule (04:04)
+03. Blackdragon (04:02)
+04. Revive (04:49)(   Читать дальше...   )Жанр: Experimental, Trap, Downtempo, BassПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2845FFCD641CDC1923591B9A12FEC9B4AEE9ABCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143802   (633379) от 19.06.2017
 
 VA - Summer 2017 [MP3|320 Kbps] <Funky, Club House>
@@ -686,64 +744,6 @@ VA - Progressive Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6529B60B550F889DD86AB5ACAEB0B45A3AF7F0AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144101   (631642) от 20.06.2017
-
-VA - Chill Sounds of Beauty (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zadar - Along the Coast
-02. Baghira - Motion Detection
-03. Arrojas - Wide Open Spaces
-04. Kusuma Orchestra - Aurora(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0073179A5B77A3DCBA469B0B8026C143805224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144022   (631641) от 20.06.2017
-
-The Echelon Effect - Signals (2017) [MP3|320 Kbps] <Ambient, Drone, Post-Rock>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodbye Sierra (2:40)
-02. End Transmission (6:25)
-03. Signals (5:44)
-04. Outbound (2:34)(   Читать дальше...   )Жанр: Ambient, Drone, Post-RockПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570985896303832ABD8AC54873B68A4A43D3A59D
 ```
 
 https://mybot314.ru/tekegram_catalog/

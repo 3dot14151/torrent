@@ -1,3 +1,119 @@
+###  Публикация: 1702346   (115891) от 24.02.2024
+
+VA - Music News vol.345 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115891.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mylene Farmer & Feder - Desenchantee Remix (Radio Edit) (04:21)
+ 002. Aidar BMM - Маятник (02:41)
+ 003. Alok feat. Mondello' G & Ceres & Tribbs - Let's Get Fkd Up (Poylow Remix) (02:16)
+ 004. ALON - Снег (02:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E29B18510F800B252F18385FA6FA7AC646550B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702501   (115740) от 25.02.2024
+
+VA - ЕвроХит Топ 40 Europa Plus 23.02.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teddy Swims - Lose Control (3:30)
+02. Tate McRae - Greedy (2:11)
+03. Моя Мишель - Ветер меняет направление (2:46)
+04. Sarah De Warren feat. Charming Horses & Hanno - This Is The Life (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0AC50B710EE39AF4FBD948D50505953A1446B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316535   (115658) от 26.02.2024
+
+VA - Понемногу отовсюду by Yuridar #C (1958-2021) Compilation Album [MP3|192-320 Kbps] <Rock, Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carmen Linares - El Que se Tenga por Grande
+02. Carmen McRae - When I Fall in Love
+03. Caro Emerald - The Wonderfull in You
+04. Caro Emerald - Whatchugot(   Читать дальше...   )Жанр: Rock, Blues, OtherПродолжительность: 07:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF02D4FCF5303FF817B4EFA57C5AA340BD90114B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703447   (115039) от 29.02.2024
+
+VA - Music News vol.346 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115039.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анна Семенович - Гладиолусы (03:08)
+ 002. Aden Foyer - Hello Radio (03:01)
+ 003. Adon Mix feat. Пошлый - Але, Малая (02:03)
+ 004. AGAYAN - Набери (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DB13825869D43B88D38DD0E3AED3CA04B668EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703952   (114705) от 02.03.2024
 
 VA - Music News vol.347 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ VA - Music News For Forum vol.005 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF866382D515F9FC3A8C863386D955DCADA6839A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748029   (104695) от 07.09.2024
-
-VA - Music News For Forum vol.020 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104695.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aneya - Такая Манкая Для Тебя (05:06)
- 002. A Boogie Wit Da Hoodie feat. Nemzzz - Body (UK Remix) (02:48)
- 003. Alan Walker feat. Joe Jonas & Julia Michaels - Thick Of It All (03:20)
- 004. Alena Roxis - Благодарю (03:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89224315182FADE6A53AC3C007539A224F40221C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822952   (104413) от 09.10.2025
-
-Novi - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal, Other, Sunoai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Keep on Dreaming
- 02 - Always Coming Home
- 03 - Where We Belong
- 04 - My Song for You(   Читать дальше...   )Жанр: Electronic, Easy listening, Vocal, Other, SunoaiПродолжительность: 01:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A76EE8CD7AD60569CDB5DE1F08AFA371C36430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751919   (104024) от 28.09.2024
-
-VA - compilation musical kaleidoscope part 4 (2024) [MP3|320 Kbps] <electro swing, electro pop, nu Jazz>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alanna Lyes & Atom Smith & Riff Kitten & Elliot Deutsch - Back Around
-02. Odd Chap & Little Violet - Crazy Out There
-03. Alanna Lyes & Atom Smith & Riff Kitten & Elliot Deutsch - Mine
-04. Atom Smith & Alanna Lyes & Elliot Deutsch - Bad Girls(   Читать дальше...   )Жанр: electro swing, electro pop, nu JazzПродолжительность: 01:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E58D19F4F0F123BFFF41A4144A67CE16AB4D191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751639   (104009) от 28.09.2024
-
-VA - compilation part 125 Nu Jazz, Electro Swing & Electro pop (2024) [MP3|320 Kbps] <Nu Jazz, Electro Swing, Electro pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elle & the Pocket Belles - Midnight Dancer
-02. Caravan Palace - Mad
-03. Riff Kitten - Viper Queen
-04. Caravan Palace - Reverse(   Читать дальше...   )Жанр: Nu Jazz, Electro Swing, Electro popПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CAD69874FFD561DFA267E7BE7694C06E7F93901
 ```
 
 https://mybot314.ru/tekegram_catalog/

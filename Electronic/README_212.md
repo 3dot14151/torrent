@@ -1,3 +1,61 @@
+###  Публикация: 1139978   (658125) от 04.06.2017
+
+VA - Power Dance Workout Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simply Bass – Ibiza Nights (Radio Version) (4:16)
+02. Houseraiderz – Pump up the Volume (Single Version) (3:51)
+03. Electric Passion – Axel F (Radio Version) (3:14)
+04. Age of Dance – Highscore (Home Entertainment Version) (3:46)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2459A4CA5A76656EF8B6367473B516FBC5949E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539196   (658124) от 25.03.2022
+
+Sexy Chillout Music Cafe - Chillout Piano Bar Lounge 2022 [FLAC|Lossless|WEB-DL|tracks] <Chillout, Instrumental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibiza Chillout Party (2:49)
+02. Finest Chillout Music (2:58)
+03. Deep Chill (2:59)
+04. Music for Holiday (2:34)(   Читать дальше...   )Жанр: Chillout, InstrumentalПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799D583256B04615265838F72159AA02156A8964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539442   (658113) от 25.03.2022
 
 ENiGMA Dubz - Awakening (2022) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, UK Garage, Drum & Bass>
@@ -694,64 +752,6 @@ VA - Softly Best Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE391E3B153284CAB388BF2749AE34A2A23C73FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226151   (656971) от 19.05.2018
-
-VA - Markus Schulz - Global DJ Broadcast: Top 20 May (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Sheperd & DIM3NSION - Amigos (Extended Mix)
-02. The Thrillseekers presents Hydra - Affinity 2018 (Extended Mix)
-03. Talla 2XLC vs Pay & White - Oldskool (Extended Mix)
-04. Dylhen - Drift (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F34666BE78A3B9CE88E3D21E65945AB77834E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226150   (656955) от 19.05.2018
-
-VA - Markus Schulz - Global DJ Broadcast: Top 20 May (2018) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Sheperd & DIM3NSION - Amigos (Extended Mix)
-02. The Thrillseekers presents Hydra - Affinity 2018 (Extended Mix)
-03. Talla 2XLC vs Pay & White - Oldskool (Extended Mix)
-04. Dylhen - Drift (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1536A245C31EAE7F300BE9814731A8C95141E72B
 ```
 
 https://mybot314.ru/tekegram_catalog/

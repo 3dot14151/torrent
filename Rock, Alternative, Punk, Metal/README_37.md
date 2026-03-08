@@ -1,32 +1,3 @@
-###  Публикация: 1610600   (1042162) от 08.02.2023
-
-Blind Guardian - Live Beyond The Spheres (2017) 3xCD [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042162.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Ninth Wave 10:21
-02. Banish From Sanctuary 06:10
-03. Nightfall 06:31(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 02:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D82EC7B0DBA7D14B878F3A1D6E4645498C411E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437433   (1042059) от 05.01.2021
 
 Southern Brutality - Watch Them Burn (2020) [MP3|320 Kbps] <Heavy Metal>
@@ -745,6 +716,35 @@ Sainted Sinners - Taste It (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A84E41B5937616308B4049938540687F45EA7CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610818   (1041795) от 09.02.2023
+
+In Flames - Foregone (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning Of All Things
+02. State Of Slow Decay
+03. Meet Your Maker
+04. Bleeding Out(   Читать дальше...   )Жанр: Melodic Death Metal, Alternative RockПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A563BD0DBA476795A27B37332865A88D31E6FC99
 ```
 
 https://mybot314.ru/tekegram_catalog/

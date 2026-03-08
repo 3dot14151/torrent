@@ -1,3 +1,61 @@
+###  Публикация: 1766322   (33784) от 18.12.2024
+
+Семен Фролов - 2 Albums (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Семен Фролов - Спасибо что живой братец мой [00:01:43]
+02 - Семен Фролов - Все бабы как бабы а моя богиня (Латино) [00:03:07]
+03 - Семен Фролов - Спасибо что живой братец мой 2 [00:01:46]
+04 - Семен Фролов - Во поле березка стояла выпила сто грамм и упала [00:01:08](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCBDFF0517B152BE64E2AA1F79745A593AD4DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766828   (33561) от 20.12.2024
+
+Дина Мигдал - Песни из любимых сериалов и фильмов (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мамины руки [00:03:08]
+02 - Пришла любовь [00:01:57]
+03 - Три дороги [00:03:07]
+04 - Больно [00:04:00](   Читать дальше...   )Жанр: PopПродолжительность: 00:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E81E7912BC1E93803A7F0A2F2952E46956F953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766740   (33548) от 20.12.2024
 
 Laid Back - FOREVERGREEN (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
@@ -687,64 +745,6 @@ Gigi D'Agostino - Gin Lemon E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF933113ACF59F306665BC01E7F88C29FB6A936A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770953   (31979) от 04.01.2025
-
-VA - The Best Of Italo Disco Vol. 12 (1988) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coo Coo - You Can Set Me Free
-02. Argentinia - Let's All Dance
-03. Barbara - Ciao Boys
-04. Mike Francis - Changes Of The Heart(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A0496D7CEAE88C1840AF61A7F8D751352C3C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770704   (31908) от 05.01.2025
-
-Наталья Ветлицкая - 6 Albums, 4 Singles, 1 EP (1994-2024) [FLAC|Lossless|WEB-DL|tracks] <Europop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Половинки [00:03:10]
-02. Три дня до сентября [00:04:04]
-03. Мальчики [00:04:24]
-04. Белым снегом [00:03:34](   Читать дальше...   )Жанр: EuropopПродолжительность: 11 CD, 05:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC150383B974A333CA913C289117CC40BCEB3E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

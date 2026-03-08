@@ -1,3 +1,32 @@
+###  Публикация: 1044186   (567457) от 19.08.2016
+
+VA - Летний Заводной Музон 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567457.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Френды - Смотри Как Я Танцую
+002. Fallulah - Vandalain
+003. Денис Барканов - Доченька
+004. Drowning Pool - Push(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DD0F3D2C6D7A72B23418ED97403E9F74EBBB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043947   (567453) от 19.08.2016
 
 VA - Хитовые Летние Песни 8 (2016) [MP3|256 Kbps] <Pop>
@@ -722,35 +751,6 @@ VA - Disco Дача. Лучшее (2016) [MP3|128-320 Kbps] <Pop, Disco, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BCF2D58807FD224A08151303C9A614BF5200440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045203   (561273) от 22.08.2016
-
-VA - Авто Хит Зарубежный (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bolier & Natalie Peris - Forever And A Day
-02. Simple Plan - I Don't Wanna Be Sad
-03. Hedley - Can't Slow Down
-04. Pitbull & Ricky Martin - Mr. Put It Down(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F8DE2EA13AE0C562B6C13E4329BAEC19A4741C
 ```
 
 https://mybot314.ru/tekegram_catalog/

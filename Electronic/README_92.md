@@ -1,3 +1,61 @@
+###  Публикация: 1105121   (876416) от 17.02.2017
+
+Vacuum - Your Whole Life Is Leading Up To This (2007) [FLAC|Lossless|image + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:24)
+ 02. Your Whole Life Is Leading Up To This (3:56)
+ 03. They Do It (3:56)
+ 04. Mind Your Mind (3:47)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A187F30CDF8AECD7C748D6830C07CA65E6B4B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105285   (876348) от 17.02.2017
+
+Christine - Atom From Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Future Beat>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atom From Heart (3:09)
+ 02. Drama (feat. T La Rock) (4:19)
+ 03. Maniac (4:13)
+ 04. Error 218 (2:38)(   Читать дальше...   )Жанр: Synthwave, Future BeatПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A2BB81EF12EB75D0788A8005E8580A597CF53C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105292   (876284) от 17.02.2017
 
 VA - Armin Van Buuren A State Of Trance 800 (The Official Compilation) (2017) [MP3|320 Kbps] <Trance>
@@ -685,64 +743,6 @@ Ray Orion - Return To The Battle Line (2020) [FLAC|Lossless|WEB-DL|tracks] <Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01A88FB75ED3BF2DF58E2177522DDB85E341D7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374258   (872830) от 10.04.2020
-
-Deep Wave - Chillout Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872830.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winding River	03:02
-2. Reverie	05:13
-3. After the Rain	03:16
-4. Reflection of a Dream	05:06(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E006C3B075827D84EB04E5EC01C6CED3AA44C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374315   (872561) от 10.04.2020
-
-DJ Dado - DJ Dado (2020) [MP3|320 Kbps] <Trance, Classic Trance, Downtempo, Dream Pop>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-Files (4:02)
-02. Mission Impossible Theme (4:17)
-03. Metropolis (2:10)
-04. The Legend Of Babel (4:03)(   Читать дальше...   )Жанр: Trance, Classic Trance, Downtempo, Dream PopПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D81AECA02C2CFEE7926883E942D96029093FE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

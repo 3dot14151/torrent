@@ -1,3 +1,32 @@
+###  Публикация: 1499758   (846320) от 03.10.2021
+
+Ella Fitzgerald - The Irving Berlin Songbook, Vols. 1-2 (1958) 2CD, 1986, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846320.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Let's Face the Music and Dance [2:58]
+02. You're Laughing at Me [3:17]
+03. Let Yourself Go [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A26CB44A1D5E179B95E7FE7D92FEA3B06B4D781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003055   (845448) от 02.04.2016
 
 Art Farmer Quintet - At Boomers #2 (1976) Remaster, 2015, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -715,35 +744,6 @@ Joe Zawinul - Money In The Pocket (1966) Remaster, 2012, Warner[FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD305B94339720FBFE288C47A774B82D4F6A1A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112315   (843404) от 08.03.2017
-
-WYSI WYG - What You See Is What You Get (1997) SubConscious [APE|Lossless|image + .cue] <Jazz Fusion, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Smile [06:17]
- 02.Hen [04:40]
- 03.Secret Forest [00:52]
- 04.Ice on Fire [05:09](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA769E7AB5A1255D413B767658BA19D19A528881
 ```
 
 https://mybot314.ru/tekegram_catalog/

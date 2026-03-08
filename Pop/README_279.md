@@ -1,3 +1,62 @@
+###  Публикация: 164166   (218176) от 02.12.2021
+
+Matia Bazar - Коллекция (1976-1989) [FLAC|Lossless] <Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218176.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 Альбомов с вокалом Антонеллы Руджеро (Antonella Ruggiero)
+Спасибо bazar и dimitri28 с "национального"01. Stringimi
+02. Se Tu
+03. Il Mare
+04. Winnie(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4431EC1DDA951A0C7A747E576BDDF39DC1FF572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343454   (218115) от 06.12.2019
+
+VA - The Greatest Xmas Song (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для тех кто отмечает Рождество по "ихнему" календарю Universal Music выпустила симпатичный сборник из разных жанров. Так что вы найдете обязательно для себя то, что вам захочется послушать и до православного Рождества. Ну а как говорится: тот празднику не рад, кто накануне не пьян! Наслаждайтесь хорошей музыкойCD1:
+01. Queen - Thank God It's Christmas  (4:20)
+02. Coldplay - Christmas Lights  (4:04)
+03. U2 - I Believe In Father Christmas  (3:24)(   Читать дальше...   )Релиз состоялся: 01 ноября 2019 годаЖанр: Jazz, Rock, PopПродолжительность: 02:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBDC08F3D2D1FFCCF8524B88DB8CA92F3C13024D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269910   (218109) от 16.12.2018
 
 Pamala Stanley - 2 Albums (1979, 1990) [MP3|320 Kbps] <Electronic, Disco, Hi NRG>
@@ -685,64 +744,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEA5810568E919632F37CA52B1D16D9F81C1340B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586766   (215638) от 27.10.2022
-
-Bjork - Fossora (2022) [FLAC|Lossless|image + .cue] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atopos
-02. Ovule
-03. Mycelia
-04. Sorrowful Soil(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B890FBE5C050C6EF70D5251E0E2369FE89C74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966811   (215537) от 19.12.2015
-
-МакSим - Хорошо (2015) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любовь алого цвета
-02. Золотыми рыбками
-03. Иди
-04. В лето(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7600B585C4F5F086B7FA8188405306D86CC9446
 ```
 
 https://mybot314.ru/tekegram_catalog/

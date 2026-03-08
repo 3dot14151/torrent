@@ -1,3 +1,32 @@
+###  Публикация: 1103070   (887968) от 11.02.2017
+
+The Horace Silver Quintet - A Fistful Of Silver: Blowin' The Blues Away & Finger Poppin' (1959) 2CD, 2010, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887968.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Blowin' The Blues Away:
+01.Blowin' The Blues Away [04:45]
+ 02.The St Vitus Dance. [04:10]
+ 03.Break City [04:57](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:21:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C3AA2B173ED22BAF6DC7DD696F77379257E809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102683   (887961) от 11.02.2017
 
 Mellow Motif - Mellow Motif (2010) [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -715,35 +744,6 @@ Mel Torme - Sunday In New York & Other Songs About New York (1963) Remaster, 201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:754DF7419EC5E80B4A750C589D6449495C7ED785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104042   (883520) от 13.02.2017
-
-Cannonball Adderley - Soul Zodiac (1972) 2008, EMI Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction [03:03]
- 02.Aries [04:58]
- 03.Libra [03:22]
- 04.Capricorn [06:14](   Читать дальше...   )Жанр: Hard Bop, Jazz-FunkПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F185CD7115DC0BD7682FC418A247A3F95EFA032C
 ```
 
 https://mybot314.ru/tekegram_catalog/

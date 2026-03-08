@@ -1,3 +1,30 @@
+###  Публикация: 1468900   (1016917) от 09.05.2021
+
+RAR Extractor Max - WinRAR 6.9.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016917.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAR Extractor Max унаследовал преимущества RAR Extractor Pro, разработчики переработали интерфейс и добавили более мощные функции.
+Поддержка разархивирования RAR, winmail.dat, ZIP, 7z, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, lzma, exe, msi, cpio, lzx, jar, swf, xip, ace, arj, pak, pkg, apk, lbr, lqr, cab, rpm, cpt, sea, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.04.2021Разработчик: ElimisoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66CA891A56FD91F49DAE843D8C6F985F864A3C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468796   (1016905) от 09.05.2021
 
 AudKit Spotify Music Converter for Mac 1.3.0 [En]
@@ -654,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A90028083B8B4809259B60463ABC09FB6FA2D19B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469072   (1016622) от 10.05.2021
-
-ArtMoney 8.09.04 Pro / Vip [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016622.jpg" />
-</div>
-
-
-###  Подробнее
-
-ArtMoney предназначена для редактирования параметров в компьютерных играх, для получения бесконечных денег, жизней, патронов и т.п. Она умеет сканировать память или файлы игры для поиска каких-то определенных значений (деньги, ресурсы и т.д.). Таких значений может быть много и надо выбрать нужные, поэтому поиск разделяется на два этапа - поиск значений и отсев ненужных (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF7A42BF120CDCCDAC20288CE37F967D9339AF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

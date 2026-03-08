@@ -1,3 +1,29 @@
+###  Публикация: 1790713   (68040) от 10.04.2025
+
+VA - Cosmic [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Progressive HouseПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430B527030D5AB87836DEE3BB100F6D948EDBB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790700   (68039) от 10.04.2025
 
 VA - Vodoley [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
@@ -713,35 +739,6 @@ VA - Electronic compilation part 66 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72E72600646F55CABEAFB82E2372C5A33DAE29A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940643   (61334) от 30.03.2024
-
-Владимир Захаров (Рок-Острова) (24 альбома) (1997-2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attraction Force 01
-02. Attraction Force 02
-03. Attraction Force 03
-04. Attraction Force 04(   Читать дальше...   )Жанр: ElectronicПродолжительность: 1:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FCB9072267719AF456567B7A26619797131C25
 ```
 
 https://mybot314.ru/tekegram_catalog/

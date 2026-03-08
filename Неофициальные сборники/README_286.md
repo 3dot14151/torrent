@@ -1,3 +1,183 @@
+###  Публикация: 1225901   (657755) от 18.05.2018
+
+VA - 150 Sport Dance Music (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657755.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker - Faded
+002. Calvin Harris feat. Pharrell Williams, Katy Perry & Big Sean - Feels
+003. Shawn Mendes - Stitches
+004. The Chainsmokers feat. Daya - Don't Let Me Down(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E317303FF51EBC793E9BDAD71B153CE67A2AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225852   (657751) от 18.05.2018
+
+VA - NRJ Latino Hits Only! 2018 Vol.2 (2018) [MP3|320 Kbps] <Pop, Latin Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657751.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Sean Paul - Mad Love
+02. El Profesor - Bella ciao (HUGEL Remix)
+03. Lartiste - Mafiosa (feat. Caroliina)(   Читать дальше...   )Жанр: Pop, Latin DanceПродолжительность: 02:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1637C2DF62454C7BA03D67FFBC925702D98A6771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139579   (657609) от 04.06.2017
+
+VA - The best hits 80-90 (2017) [MP3|320 Kbps] <Eurodance, Pop, Dance, Rap, Hip-hop, House, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adriano Celentano - L'ora Del Rock (02:22)
+02. Haddaway - Let`s Do It Now (02:31)
+03. Yello - The Race (Elena Usman & PRADY Remix) (02:32)
+04. UB 40 & Chrissie Hynde - I Got You Babe (02:52)(   Читать дальше...   )Жанр: Eurodance, Pop, Dance, Rap, Hip-hop, House, ClubПродолжительность: 14:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09E037064435D8955E0A9B15FB0CC636E7DB38E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225912   (657551) от 18.05.2018
+
+VA - Дискотека Популярных Хитов (2018) [MP3|320 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657551.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сати Казанова - Спасибо Тебе (Акустика)
+002. HammAli & Navai - Ноты
+003. Ирина Билык - А мне бы в небо
+004. Алёна Апина - Девушка Бонда(   Читать дальше...   )Жанр: ПопПродолжительность: 05:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AF484A26F40D7F11CB59445BA5552AECAECECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539560   (657205) от 26.03.2022
+
+VA - Dawn Of The Replicant: Synthwave Electronic (2022) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам по вкусу качественная синтетическая электронная музыка, которая будет радовать в любой жизненной ситуации, то лучше что можем, это порекомендовать Вам новый тематический микс с наименованием "Dawn Of The Replicant". Мелодии альбома звучат чрезвычайно современно, хотя нет, нет но и прослеживается в композициях дух Retrowave, в связи с чем он может (   Читать дальше...   )001. Tragic Comedy - Autobahn
+002. Wholf B - Backside
+003. Teslasonic - Obsex
+004. Aiboforcen - Numbers(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectronicПродолжительность: 11:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA469CEEC946D1877853A4698701304BA591837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515144   (657179) от 25.06.2012
+
+VA - Зарубежные Новинки Vol.60 (2012) [MP3|320 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Usher - Lessons For The Lover
+02. Chris Brown - Calypso
+03. Wynter Gordon - Stimela
+04. Brainstorm - Butterfly In A Bottle
+05. Timbaland feat. Ne-Yo - Hands In The Air
+06. Alex C. - Love In The Morning (My Sex.O.S.) (Radio Edit)
+07. DollFace - Young & Beautiful
+08. Justin Bieber - Catching Feelings
+09. Toni Tonini feat. Jean Niqo, D-Vibe & Vali - Elements Of Love (Radio Edit)
+10. Mustafa Sandal - Yok Oyle Bi Dunya(   Читать дальше...   )Жанр: PopПродолжительность: 02:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF16BCF40C17B7F7D0D098F0CF4B36E177644857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514809   (657174) от 25.06.2012
 
 VA - Top Hits Pop Chart 50/50 (2012) [MP3|320 кб/с]<Pop, Dance>
@@ -604,186 +784,6 @@ VA - The Horizont Of Bliss (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82BECB742D3DD77E25B99EDF36D38CFF3DFB80D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139958   (656690) от 05.06.2017
-
-VA - Record Super Chart #489 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Martin Garrix & Brooks - Byte 4:45
-02.  Yellow Claw & Moksi feat. Jonna Fraser - Open 3:31
-03.  Matt Nash - Know My Love 4:23
-04.  W&W - Put EM Up 4:20(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7182BA969265B74028321792C51BECE754D20D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140111   (656683) от 05.06.2017
-
-VA - Metal Collection 2 (2017) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Annihilator -  Syn. Kill 1  (04:27) 
-02.Anthem -  Go Insane  (04:43) 
-03.Anthem -  You  (03:55) 
-04.Astralion -  Sacrificed & Immortalized  (07:21) (   Читать дальше...   )Жанр: MetalПродолжительность: 04:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427A2A29AF795453829CC048C67F56F32464A0CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140289   (656682) от 05.06.2017
-
-VA - Воодушевляющий Мелодичный Транс [Sound Clinic - Special Edition] (2017)  [MP3|320 Kbps] <Uplifting Trance, Melodic Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656682.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 4 Strinqs - Take Me Away (Original Vocal Mix)
-2. 7 Skies - Caffeine (Genix Remix)
-3. 8 Wonders - Sex On The Beach (6 Inch Stiletto Mix)
-4. 8 Wonders - Sex On The Beach (Depths Of My thoughts Sunset Dub)(   Читать дальше...   )Жанр: Uplifting Trance, Melodic Trance, Vocal TranceПродолжительность: 53:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B70628374DA759E33465BB0395780478F0C4E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903677   (656659) от 01.06.2015
-
-VA - TOP May (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656659.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Set Mo feat. Deutsch Duke - White Dress (Satin Jackets Remix) (06:54)
-002. Sante Cruze - Get So High (Original Mix) (06:51)
-003. Rameses B - Spirit Walk (05:58)
-004. Kwabs - Walk (03:35)(   Читать дальше...   )Жанр: Electronic, Lounge, Pop, DeepПродолжительность: 01:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CCFBAF6CB77AFCCD449E80EAB34C1429F7A70D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225568   (656639) от 19.05.2018
-
-Александр Иванов и Рондо - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656639.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли лучшие песни Александра Иванова и группы Рондо. Позитивная, наполненная осенней ностальгической грустью, рокерская поэзия. Все треки взяты с фирменных CD изданий. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK01 Моя неласковая Русь
-02 Ну и пусть (2)
-03 Жанет
-04 Московская осень(   Читать дальше...   )Жанр: RockПродолжительность: 03:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB7F6D5CDB71E3CE004DE256162DEE7904D85849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514890   (656624) от 25.06.2012
-
-VA - Лучший клубняк сезона (2012) [MP3|320 kbps]<Club|Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656624.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-01. Antillas ft. Fiora - Damaged (Main Mix)
-02. Aboutblank & KLC - System Addict (Original Mix)
-03. Ash Koley - Don't Let Your Feet Touch Ground (Morgan Page Extended Mix)
-04. Above & Beyond - Love is Not Enough (Club Mix)
-05. Ben Dj - Rock It (Extended Mix)
-06. Alex Gaudino - Chinatown (Original Mix)
-07. Calvin Harris ft. Ne-Yo - Let's Go (Extended Mix)
-08. Bodybangers ft. Gerald G - Set The Night On Fire (Original Mix)
-09. D.E.R., Dj Fist & Sebastian Massianello - Stardust (Original Mix)(   Читать дальше...   )Жанр: Club|DanceПродолжительность: 09:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B95C52159D098B72484DAE5383685F793ECF2E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

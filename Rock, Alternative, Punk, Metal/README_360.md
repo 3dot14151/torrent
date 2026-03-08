@@ -1,32 +1,3 @@
-###  Публикация: 1023211   (724240) от 05.06.2016
-
-The Kelly Family - Almost Heaven (1996) [FLAC|Lossless|image + .cue] <Country Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Boys Come Into Town
-02. Every Baby
-03. I Can't Help Myself
-04. Nanana(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083DAD1FBD0186DC0AA83902B1E97E387A243D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129184   (724233) от 27.04.2017
 
 Infected Rain - 86 (2017) [MP3|320 Kbps] <Nu-Metal, Metalcore, Female Vocal>
@@ -751,6 +722,35 @@ Body Count - Bloodlust (2017) [FLAC|Lossless|tracks + .cue] <Rapcore, Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B4EA07E0C573C6B2645E5F638766CC3D6256FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023837   (722374) от 06.06.2016
+
+A Taste Of Freedom - Carved In Our Dreams (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lay Down And Fly
+02. The Hangman
+03. Call Me Legion
+04. I Am You(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B028176CD8EC0E12EA9072AA02247AEB20B4E2B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

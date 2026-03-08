@@ -1,3 +1,32 @@
+###  Публикация: 1005029   (834361) от 08.04.2016
+
+Bruce Brubaker - Glass Piano (2016) Extended Version [FLAC|Lossless|WEB-DL|tracks] <Classical, Minimalism, Electronic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad Rush (16:58)
+02. Metamorphosis 1 (6:27)
+03. Metamorphosis 2 (7:09)
+04. Metamorphosis 4 (6:09)(   Читать дальше...   )Жанр: Classical, Minimalism, ElectronicПродолжительность: 01:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726DA86CE3A9FDFAF95854BEE115F31BA5C80DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004997   (834160) от 08.04.2016
 
 Narciso Yepes, Melos Quartett - Luigi Boccherini: 3 Gitarren-Quintette (1971) 1990, Deutsche Grammophon [FLAC|Lossless|tracks] <Classical>
@@ -728,35 +757,6 @@ David Lanz - French Impressions (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Cla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65FC2691B9F041DB25F913B401C7599139542814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196646   (820522) от 04.01.2018
-
-New London Chorale - Young Christmas (2001) [MP3|320 Kbps] <Crossover Classical, Traditional>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820522.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	See Amid The Winter’s Snow
-2	O Little Town Of Bethlehem
-3	In The Bleak Mid Winter
-4	The Holly And The Ivy(   Читать дальше...   )Жанр: Crossover Classical, TraditionalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF8476FAB6F2B5FA8F7BA8331B30B641BB01867
 ```
 
 https://mybot314.ru/tekegram_catalog/

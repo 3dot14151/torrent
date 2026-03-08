@@ -1,3 +1,32 @@
+###  Публикация: 1261475   (303497) от 11.11.2018
+
+Gene Ammons - Blue Gene (1958) 2003, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Gene [13:58]
+02. Scamperin' [8:49]
+03. Blue Greens and Beans [9:05]
+04. Hip Tip [8:55]Жанр: Hard BopПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00E959855100AD7EF169517FB9B17CFED8B46CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261535   (303493) от 11.11.2018
 
 Michel Colombier - Michel Colombier (1979) 1999, Anthology's [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Pop>
@@ -722,35 +751,6 @@ Sun Ra And His Arkestra - Super-Sonic Jazz (1956) 1991, Evidence [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47B7787665FCFE7985B828525CF4E7247CBBB284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261773   (301271) от 12.11.2018
-
-Milt Jackson - Jazz 'Round Midnight (1964 - 1968) 1997, Verve [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just for a Thrill [3:59]
-02. For Someone I Love [4:34]
-03. For All We Know [3:28]
-04. Lazy Melody [2:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538FC140C8094FF873738B4137C25E744630C303
 ```
 
 https://mybot314.ru/tekegram_catalog/

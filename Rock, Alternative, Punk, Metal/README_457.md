@@ -1,32 +1,3 @@
-###  Публикация: 1544981   (616719) от 18.04.2022
-
-Weedevil - The Return (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Underwater (00:06:21)
-02 - The Void (00:09:55)
-03 - The Return (00:08:26)
-04 - Isn't a Love Song (00:06:43)(   Читать дальше...   )Жанр: Stoner Metal, Doom MetalПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4049018395B3597020066C27FED358C1C2CD73E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544922   (616717) от 18.04.2022
 
 The Light In The Ocean - The Pseudo - Scientific Study of Oceanic Neo - Cryptid Zoology (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -760,6 +731,35 @@ Doomraiser - Reverse (Passaggio Inverso) (2015) [MP3|320 кб/с]<Traditional Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62126E4AE47C18998514A42B9B8324A64B933DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911376   (616572) от 23.06.2015
+
+Nightshift - Winter Within (2014) [MP3|320 кб/с]<Heavy / Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Walk
+02. Hunter's Moon
+03. Distant Win
+04. Point of No Return(   Читать дальше...   )Жанр: Heavy / Speed MetalПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37336C253DD4B1386C82E18DCD4F847419B12A95
 ```
 
 https://mybot314.ru/tekegram_catalog/

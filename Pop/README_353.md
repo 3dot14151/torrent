@@ -1,3 +1,61 @@
+###  Публикация: 1731166   (52820) от 19.06.2024
+
+Мираж - Звёзды нас ждут (1987) Reissue, 1999, JAM Group International [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солнечное лето
+02. Звезды нас ждут
+03. Безумный мир
+04. Я не хочу(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2172C250AFAC01097D9776C4342B5F97DF8715E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731025   (52786) от 19.06.2024
+
+Leah Kate - Super Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super Over (2:45)
+02. Space (2:49)
+03. Unbreakup (3:18)
+04. Desperate (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB33419368225BDAF36DE31C1DDFB0B26164D728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731199   (52781) от 19.06.2024
 
 VA - DJ Hits Vol. 70 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
@@ -687,64 +745,6 @@ VA - Super Hits 80's Volume 1 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:062A61F7DD9A4AC9A2839775BDE42E94D00E0A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738460   (49173) от 22.07.2024
-
-VA - ZYX Italo Disco Dub Versions (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Paul - Good Version (Instrumental) 05:06
-02. Ken Laszlo - Tonight (Instrumental) 05:41
-03. Swan - Don't Talk About It (Instrumental) 06:11
-04. Felli - Diamond In The Night (Instrumental) 05:24(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1159B2C786C615F7539EEC01CD7A1AC542997587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738616   (49085) от 23.07.2024
-
-VA - La Bola De Discoteca (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lipps Inc. - Funkytown (Single Version) (3:55)
-02. ABBA - Dancing Queen (3:52)
-03. Donna Summer - Bad Girls (Gigamesh Remix) (5:20)
-04. Jessie Ware - Pearls (4:04)(   Читать дальше...   )Жанр: PopПродолжительность: 04:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4981FDF40C5E7FF61CAD45873E6D6F788EC91B85
 ```
 
 https://mybot314.ru/tekegram_catalog/

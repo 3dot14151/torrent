@@ -1,3 +1,32 @@
+###  Публикация: 1747663   (104646) от 07.09.2024
+
+Camila Cabello - C,XOXO (2024) Magic City Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I LUV IT [00:02:54]
+02. Chanel No.5 [00:02:40]
+03. pink xoxo [00:00:55]
+04. HE KNOWS [00:03:01](   Читать дальше...   )Жанр: PopПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B7E7473083DE7F75673AC032A3BDB2AF8A7982A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748075   (104596) от 08.09.2024
 
 VA - The Sound Of Summer 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -719,41 +748,6 @@ Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
 08. So Beautiful [3:49]
 09. Almays On My Mind [3:24]
 10. Seperate Tables [3:39](   Читать дальше...   )Жанр: PopПродолжительность: 02:37:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477811   (86326) от 04.04.2012
-
-VA - Love Songs Top 100 Box Set 5CD (1995) [FLAC|Lossless]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alicia Keys - Fallin' 03:33
-02. R.Kelly - I Believe I Can Fly 04:44
-03. Ten Sharp - You 04:26
-04. Gary Barlow - Forever Love 04:34
-05. Manhattans - Kiss And Say Goodbye 04:28
-06. Maroon 5 - Sunday Morning 03:59
-07. Boston - More Than A Feeling 04:41
-08. Simon Garfunkel - The Sound Of Silence 03:05
-09. Toto - Melanie 03:58
-10. Acda en De Munnik - Als Je Bij Me Weggaat 04:04(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:29:25
 
 ## Скачать торент
 ```bash

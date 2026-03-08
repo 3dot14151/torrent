@@ -1,267 +1,3 @@
-###  Публикация: 575804   (366774) от 16.11.2012
-
-VA - Клубные новинки от AGR Vol.174 (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciro Visone - Out Run
-02. Art Of Trance vs. Binary Finary - 1998 In Madagascar (John Newall Edit)
-03. Andrew Rayel feat. Jano - How Do I Know (Original Mix)
-04. Duo Deep - Something Wrong (Original Mix)
-05. Anthony S - Zombie (Original Mix)
-06. Cicada feat. Holly Miranda - Over And Over (Denzal Park Remix)
-07. Andy Moor feat. Betsie Larkin - Love Again (Extended Mix)
-08. Dash Berlin feat. Kate Walsh - When You Were Around (Club Mix)
-09. Camerata - About Time (Original Mix)
-10. Dinka feat. Angelika Vee - Inseparable (Original Mix)Жанр: Club, DanceПродолжительность: 04:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25EDBBF700C7735E88EB1CE6CE1FF6219185F9BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070498   (366773) от 07.11.2016
-
-VA - Drum 'N' Bass Laboratory Vol.1 (2016) [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diffusia - FTB (4:01)
-02. Oleg Zolotarev - Sliding (8:46)
-03. Sashaslay - Good Morning (3:43)
-04. Enveloperz! - Clue (3:30)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93EF86BB2D66C113D6A33E74A8671D679606A3E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575846   (366772) от 16.11.2012
-
-VA - Популярный СуперХит 50+50 (2012) [MP3|256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жанна Фриске - Навсегда!
-02. Smoke & Jackal - No Tell
-03. Rustemru - Ты Не Такой Как Все
-04. Mishelle - It Feels So Good (Radio Edit)
-05. Диля Даль - Мой Сильный Мужчина
-06. Cady Groves - Love Actually
-07. G-Nise И Алексей Кабанов - Люби Сегодня
-08. Natalia Barbu - I Said Its Sad
-09. Марсель - Настроение Осень
-10. Wisin & Yandel Feat. Jennifer Lopez - Follow The Leader(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0981678C4045D93B44752B8C2C3ED9AE6848E6FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576054   (366770) от 16.11.2012
-
-VA - Aqua Trance Volume 25 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366770.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Aqua Trance Volume 25 (2012)
-Год: 2012
-Жанр: Uplifting Trance, Vocal Trance
-Продолжительность: 02:58:56Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:001. Sunlounger & Zara Taylor - Try To Be Love (Original Balearic Summer Mix)
-002. Tenishia & Ruben de Ronde - Marsascala (Alexander Popov Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2190C50D01DC9E765A7D8AFBC492EABFA2B96D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575980   (366768) от 16.11.2012
-
-Wallpapers Sexy Girls Pack (15.11.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 3702x2787
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D386FDA15547D767C8F0DD8DD2FD2F6EBDBF8336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576372   (366766) от 16.11.2012
-
-Журнал | Webuser №305 (UK) [15 ноября 2012] [PDF] [En]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366766.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале содержится информация о новых сайтах в сети, обзоры софта и "железа". В текущем номере: скрытые настройки Chrome, он-лайн-редакторы для фото; тема номера - избавляемся от следов серфинга по интернету.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ACB7D809BA0712F93ADD90E5381FA5DC4AED9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576277   (366764) от 16.11.2012
-
-Sexy Girls Pack Wallpapers (16.11.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5600x3733
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020A24F79A8686DEAD9753BB8F7A6B1D1A102371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575975   (366763) от 16.11.2012
-
-Nature Wallpapers (15.11.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4913BCD269BD4F3620408B2F7B56DD7EF68DC982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070501   (366759) от 07.11.2016
-
-Annwn - Enaid (2016) [FLAC|Lossless|tracks] <Medieval, Celtic, Folk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Des Oge Mais Quer Eu Trobar [00:08:02]
-02. Bonny Portmore [00:04:08]
-03. The South Wind [00:02:26]
-04. Adio Querida [00:06:07](   Читать дальше...   )Жанр: Medieval, Celtic, FolkПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607BD9FAA4FEC8DF8941DAFFEDC0E961C6B97776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576272   (366757) от 16.11.2012
 
 Nature Wallpapers (16.11.12) [Wallpapers]
@@ -719,6 +455,249 @@ Blippar – удивительное приложение дополненной
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60918F73687D43E7290C9738C470E2D28FFD4E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070474   (366663) от 07.11.2016
+
+VA - Dubstep Collection Vol.2 (2016) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boddy Gray - S.w.a.g (03:27)
+02. Dave Romans - Heavens Crying and Rejected Angel (03:49)
+03. Disbase System - Mystcial Shore (06:10)
+04. Disbase System - Strange Emotion (05:17)(   Читать дальше...   )Жанр: Dirty Dubstep, Trap, GrimeПродолжительность: 01:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:344C789E04EBAB41D9A4B209C9A0BE57F407DBFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068956   (366656) от 07.11.2016
+
+Хоккей. НХЛ 2016-2017. Регулярный чемпионат. Обзор матчей от 28.10.2016 г. (29.10.2016) HDTVRip [H.264/720p-LQ][RU,EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей регулярного чемпионата НХЛ 2016-2017 от 28.10.2016:
+Чикаго Блэкхоукс – Нью-Джерси Дэвилз
+Нью-Йорк Рейнджерс – Каролина Харрикейнз
+Виннипег Джетс – Колорадо Эвеланш(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: Телепередача, СпортЯзык озвучки: Русский (Виталий Магранов), AнглийскийПродолжительность: 00:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A973CD853696E047DF47B69810AF6A9290BF3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070642   (366646) от 07.11.2016
+
+akaEasyMoney 1.0.2 Portable [Ru] (Авторская раздача)
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366646.jpg" />
+</div>
+
+
+###  Подробнее
+
+akaEasyMoney - программа для учета личных финансов (и не только)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8799343D559CD990DA16E88DEE709F72F7837844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070488   (366643) от 07.11.2016
+
+VA - Ethnic Trap Collection Vol.1 (2016) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NextRO - Chauris VIP (Original Mix) (3:42)
+02. Monstex - Anubis (Original Mix) (5:21)
+03. Biz - Mayhem (Original Mix) (3:34)
+04. Biz - Khalifat (Original Mix) (3:47)(   Читать дальше...   )Жанр: Dirty Dubstep, Trap, GrimeПродолжительность: 02:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07111238F8B146E15536829D1014CFC002B61ABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576499   (366616) от 14.09.2022
+
+PrivaZer 4.0.52 Free + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366616.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1C4623395ACE3FCDAA0EEB2229401F2F6F7DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 253082   (366587) от 03.11.2010
+
+Васса (1983) DVDRip [2 серии из 2]
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366587.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом доме детей с юных лет приучали всегда отчетливо говорить «мой»: мой пароход, мой дом, моя фабрика. Здесь считали деньги, нажитые чужим трудом, и за ночь спускали в карты целое состояние; здесь развратничали напропалую и втихомолку шпионили друг за другом; молились и совершали именем господа темные дела. Все было у Вассы - деньги, сила, власть, ум и хватка. (   Читать дальше...   )Жанр: ДрамаРежиссер: Глеб Панфилов.Актеры: Инна Чурикова, Вадим Михайлов, Николай Скоробогатов, Валентина Теличкина, Ольга Машная, Яна Поплавская, Валентина Якунина, Вячеслав Богачёв, Иван Панфилов, Альберт Филозов, Всеволод Соболев, Татьяна Кравченко, Татьяна Калистратова и др.Продолжительность: 02:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71075CAB73D8608E02184AFF703E55BED9A7231A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576377   (366574) от 16.11.2012
+
+Журнал | Custom PC №112 (UK) [январь 2013] [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание для геймеров, моддеров и оверклокеров. В каждом журнале - подробные обзоры и тесты "железа". В текущем номере - бюджетные CPU.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4249ECBF6E3D8597A63A2B8C5916C781B110CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575519   (366572) от 16.11.2012
+
+Computer Desktop Wallpapers Collection (13.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EEF47A03BE168D1F7E6DEB1D02512AFEC01280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574013   (366570) от 16.11.2012
+
+Computer Desktop Wallpapers Collection (10.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAF28021D0BA6D08A3B384C74ABDBF1994BC61A
 ```
 
 https://mybot314.ru/tekegram_catalog/

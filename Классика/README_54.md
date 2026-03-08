@@ -1,3 +1,32 @@
+###  Публикация: 1761513   (36669) от 20.11.2024
+
+VA - Piano and Violin Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
+02. Botticelli Trio - The Four Seasons, Op. 8, Concerto No. 4 in F Minor, RV 297 Winter I. Allegro non molto (Arr. for 2 Violins and Piano) (3:29)
+03. The AI Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)
+04. Matvey Lapin - The Carnival of the Animals, R. 125 XIII. (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56F309750D0CB913E0A3A145743EBEFD83F5178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762188   (36239) от 24.11.2024
 
 VA - Top Romantic Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -712,35 +741,6 @@ VA - Classical Music Golden Age (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1494993B7E5051742F64A65DF4164F7ED9533BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805829   (12017) от 09.07.2025
-
-VA - Classicworks: Best of Classical (2000) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonata in C, K.545, Allegro - Mozart (2:17)
-02. The Happy Farmer - Schumann (0:40)
-03. Gymnopedie - Satie (3:48)
-04. Moonlight Sonata, 1st Movement - Beethoven (5:06)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F0EC498934F8E2C5C401E347DF34EC24C77CDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

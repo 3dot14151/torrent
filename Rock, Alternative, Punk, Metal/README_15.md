@@ -1,32 +1,3 @@
-###  Публикация: 1841593   (1048046) от 12.12.2025
-
-Nick Cave & The Bad Seeds - Live God (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Frogs (Live God)
-02 - Wild God (Live God)
-03 - O Children (Live God)
-04 - From Her To Eternity (Live God)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0791FB4A16EA6E90B0E28231239E445F6FF29765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841438   (1048022) от 11.12.2025
 
 Stormsorrow - The Blood Red Horizon (2025) [MP3|320 Kbps] <MDM>
@@ -745,6 +716,35 @@ Hellixxir - Beyond The Frame (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43F28C1DF5F6716CAFA70B5FDB51CE35124729F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840367   (1047281) от 04.12.2025
+
+Ryan Adams - Self Portrait (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alt Country, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virginia In The Rain (3:15)
+02. Please, Shut The Fuck Up (3:56)
+03. Bye Bye Balloons (1:55)
+04. Someone On my Mind (2:24)(   Читать дальше...   )Жанр: Rock, Alt Country, Singer-SongwriterПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1418A471BAD71BA8B1024AA2613EB64F93C3102
 ```
 
 https://mybot314.ru/tekegram_catalog/

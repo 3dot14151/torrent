@@ -1,3 +1,177 @@
+###  Публикация: 932541   (509538) от 29.08.2015
+
+VA - TOP 20 Energy Trance - Melody Center (2015) [MP3|320 кб/с]<Harmonic, Emotional, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilya Vig - Improvize (Aero 21 Remix) 08:07
+02. Dereck Recay - Dream Way (Mike Sanders Remix) 07:06
+03. Plutian - I Promise (Fredd Moz Remix) 07:05
+04. Skyvol - Not Like They (Fredd Moz Remix) 07:05(   Читать дальше...   )Жанр: Harmonic, Emotional, UpliftingПродолжительность: 02:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739981F217B5D432754294615640C51AEEA49C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932463   (509472) от 29.08.2015
+
+VA - Extra House (episode 5) (2015) [MP3|320 кб/с]<Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicolas Hannig - Blaze Love (DBMM Remix) (06:06)
+02. Above & Beyond - Counting Down the Days (Yotto Remix) (feat. Gemma Hayes) (07:05)
+03. Trivecta Feat. Charlotte Haining - Drift Away (Original Mix) (04:50)
+04. Pablo Sanchez - Easy Out (Original Mix) (05:31)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 01:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009B955DD803B1437E29314C1CBA229EA0BB3B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932494   (509470) от 29.08.2015
+
+VA - Ibiza DJ Compilation Summer 2016 (2015) [MP3|320 кб/с]<Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altar Boys - Ordinary Day (DJ Mauro Vay Gf Mix) [04:56]
+02. Teckel - God You and Myself (Danzamatrix Extended Mix) [07:23]
+03. Flaunt - Kemical Luv (Extended Mix) [06:06]
+04. The Dreamers - Dancefloor (Ms Extended Mix) [06:14](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44828A0FF74C9006CD565A86696CD95D4A7F3359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932485   (509461) от 29.08.2015
+
+VA - Hed Kandi Dusk Till Disco (2015) [MP3|256 кб/с]<Disco, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Route 94 - My Love (feat. Jess Glynne) (Oliver Nelson Remix) [04:02]
+02. Tensnake - Keep On Talking [06:00]
+03. Felix Jaehn - I Do (Extended Mix) [04:28]
+04. Aeroplane - Let's Get Slow (feat. Benjamin Diamond) (Alternative Mix) [04:18](   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 04:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B057A000822F913DF7A1A3FB37BFCC80FE438E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932501   (509359) от 29.08.2015
+
+VA - Russian Dance Pop & Club House [Compiled by Zebyte] (2015) [MP3|256-320 кб/с]<Club, Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Neo - Сердце Энжи (Cover Modern Talking)
+02. Ольга Горбачева - Звезда (Dj Jedy Remix)
+03. Нюша - Цунами (Dj Andrey Glazkov & Dj Leva & Art Mash-Up)
+04. Русский Размер - Вот Так (Dj Konstantin Botsman Rework)(   Читать дальше...   )Жанр: Club, Dance, PopПродолжительность: 02:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A714FA3413D2D9B800827AD61E26F0F0F449CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562561   (509033) от 09.07.2022
+
+VA - German Top 100 Single Charts 08.07.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509033.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Robin & Schurze - Layla (3:05)
+002. Luciano - Beautiful Girl (2:59)
+003. Domiziana - Ohne Benzin (2:35)
+004. Liaze - PARADISE (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 05:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78440F1C454C7118C76EDFDAE6AA7F5543FD4B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316015   (508799) от 23.07.2019
 
 VA - Electrozombies Dance House (2019) [MP3|320 Kbps] <House, Electro>
@@ -592,199 +766,6 @@ VA - Dynamic Audiophile Jazz Vol.2 (2019) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2EF658783A0A1784CA8C30B82DA3AE3191585D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316277   (507713) от 24.07.2019
-
-VA - Blues Forever, Vol.87 (2018) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Sponza - Fire (4:10)
-02. Alan Gerber - Bye Bye Baby Blues (4:13)
-03. Anthony Gomes - The Whiskey Made Me Do It (3:01)
-04. Backbone - Midnight Silhouette (5:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945800F647EA56B6DDE42680F291A9A32A1E966E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316140   (507710) от 24.07.2019
-
-VA - This Merry Planet - Super Rare Disco Vol.4 (2019) [MP3|320 Kbps] <Disco, Funk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-
-01.El Coco - Cocomotion (10:30)
-02.Michele - Can't You Feel It (09:48)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 01:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711CA571D7764F48CECEA6E175F3CC1B0EF9D823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537359   (507670) от 25.08.2012
-
-VA - Ultimate (2004-2012) [MP3|320 кб/с]<Drum & Bass,Trance,House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507670.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dub Zero - Ragga Hammer
-        2. DNB Exclusive neurofank mix DJ Leo - Bez nazvaniya
-        3. DsT Filthstep C99 - Stop You Every Single Time
-        4. Level 67 - Fistf*cker
-        5. Muffler - Pinball FantasiesЖанр: Drum & Bass,Trance,HouseПродолжительность: 11:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0853BB88B4954138BDEBEF461BC741093DF90D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538952   (507631) от 25.08.2012
-
-VA - Just Great Songs (2012) 3CD BoxSet[MP3|320 кб/с]<Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Buble - Lost [03:42]
-02. Damian Rice - Cannonball [05:11]
-03. Charlene Soraia - Wherever You Will Go [03:19]
-04. Daniel Merriweather - Red [03:55]
-05. Sade - Soldier Of Love [04:35]
-06. Lemar - 50/50 [03:26]
-07. Natalie Imbruglia - Torn [04:06]
-08. Gavin DeGraw - I Don't Want To Be [03:39]
-09. Newton Faulkner - Dream Catch Me [03:58]
-10. John Mayer - Heartbreak Warfare [03:54](   Читать дальше...   )Жанр: Pop, RockФормат: BoxSet 3CDПродолжительность: 01:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F205B5EA9AB438438FB416A15F1F6B6024A6091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538984   (507624) от 25.08.2012
-
-VA - Latest And Greatest Great British Artists (2012) 3CD BoxSet[MP3|320 кб/с]<Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01:10:19
-
-01. Dusty Springfield - You Don't Have To Say You Love Me [02:50]
-02. Tom Jones - Delilah [03:24]
-03. Cliff Richard - Move It [02:23]
-04. The Shadows - Apache [02:55]
-05. The Troggs - I Can't Control Myself [03:06]
-06. The Zombies - She's Not There (Live) [03:27]
-07. Donovan - Mellow Yellow [03:42]
-08. Mott The Hoople - All The Young Dudes [03:32](   Читать дальше...   )Жанр: Pop, RockФормат: BoxSet 3CD ( Remastered Version 2009 )Продолжительность: 
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA616CB96A2D155877ED4C534019DDFA8356E62B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539157   (507619) от 25.08.2012
-
-VA - Территория Зарубежных Новинок (2012) [MP3|256 kbps]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507619.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Don Omar - Zumba
-002. David Argunetta feat. Andrew Mastilias - Indigo
-003. Marlon Roudette - Anti hero (Brave New World)
-004. Selena Gomez &amp; the Scene - Hit the Lights
-005. Richard Durand feat. Hadley - Run To You
-006. Lady Gaga - You And I (10 Kings Radio Edit)
-007. Madonna feat. LMFAO &amp; Nicki Minaj - Give Me All Your Luvin'
-008. Shakira - La Quiero A Morir (Je Laime A Mourir)
-009. Daddy Yankee feat. Don Omar - Lovumba (Official Remix)
-010. David Guetta feat. Nicki Minaj - Turn Me On (Extended Mix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8EDC4746A4008289BB3E6601F60E35C0093DE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1318788   (492621) от 07.08.2019
+
+VA - Italo Made In Spain (2017) CDr, Compilation, Partially Mixed [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various (mixed By Juan Martinez & Toni Bafles) - Italo Made In Spain (Long Version) (15:45)
+02. Night In Wales - Sunday Night (5:09)
+03. Stylove feat. Naoky - Now Close Your Eyes (6:17)
+04. Laetitia - I Will Surrender (5:39)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9722448B77D10B29C7C56888D8A1761BFE1BB881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565552   (492601) от 24.07.2022
+
+Ren Woods - Out Of The Woods (1979) Remastered, 2013, Columbia [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hooked On A Love Groove (3:31)
+02. I Love The Way You Do It (4:40)
+03. I Need Someone To Touch Me (4:07)
+04. Sticks And Stones (3:19)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B09B48F77CE289D1FDA23F1D2245D5C453128E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936987   (492473) от 13.09.2015
 
 Autumn Hill - Anchor (2015) [MP3|320 кб/с]<Country Pop>
@@ -693,64 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8C4D12EB72D98433284CB06E450D3898C26CF1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319031   (488871) от 09.08.2019
-
-Piero - Welcome Piero (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jalousie (5:02)
-02. Angelina (4:46)
-03. Fly Away (4:05)
-04. Kriminal Tango (3:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131B2C60055A15417080F0AA67C26487A5CFC90C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319019   (488543) от 09.08.2019
-
-VA - 80's Dance Story Original Italo Hits (2010) [MP3|320 Kbps] <Italo-Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Low - You Are A Danger (Original Extended Version) (8:46)
-02. Topo & Roby - Under The Ice (Original Extended Version) (7:12)
-03. Paul Sharada - Dancin' All The Night (Original Extended Version) (6:20)
-04. Bo Boss - Tequila (Original Extended Version) (6:26)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRGПродолжительность: 08:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8CDDBE22F52C8DF61E53C3E5E8E85A31D97905
 ```
 
 https://mybot314.ru/tekegram_catalog/

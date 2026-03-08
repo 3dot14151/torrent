@@ -1,3 +1,32 @@
+###  Публикация: 1095651   (924646) от 21.01.2017
+
+Dodo Marmarosa - Dodo's Back! (1961) Remaster, 2007, Universal[FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mellow Mood [03:59]
+ 02.Cottage For Sale [04:59]
+ 03.April Played The Fiddle [04:09]
+ 04.Everything Happeds To Me [04:42](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B503CA8E77C6DDB23D5AF40675F0652908AD74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095646   (924645) от 21.01.2017
 
 Harry Happel, Daan Gaillard, Fred Krens - Intrioduction (1981) Remaster, 2016, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -725,35 +754,6 @@ Abe Rabade Trio - Once (2016) Karonte[FLAC|Lossless|tracks + .cue] <Modern Creat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C11A2766B83370B556A94C0F1FF6DFD1D8DEC0B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095873   (921099) от 23.01.2017
-
-Paul Barbarin, Punch Miller, George Lewis - Jazz At Preservation Hall III (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Slide Frog Slide [02:09]
- 02.The Second Line [03:53]
- 03.Give It Up [04:25]
- 04.Too Late [03:41](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B870876B8442F2FC28041464CD7C37058D419C
 ```
 
 https://mybot314.ru/tekegram_catalog/

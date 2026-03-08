@@ -1,3 +1,61 @@
+###  Публикация: 1337175   (276314) от 09.11.2019
+
+VA - Drive Radio Selection Vol. 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stilz - Undercover (2:52)
+02. Beckett - Play (3:57)
+03. Nina - Counting Stars (4:38)
+04. Dana Jean Phoenix feat. Tape Loader - Breathe in Outer Space (6:33)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02409A96D80B0DF703A984602E747F1C85798DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337074   (276308) от 09.11.2019
+
+Va - Cafe Del Mar XVII-Volumen Diecisiete (2011) (2CD) [FLAC|Lossless|tracks + .cue]<Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luminous - Forever
+02. J. R. Haim - Puesta Del Sol
+03. Sabrina Carnevale - Nobody Can Say
+04. Luis Hermandez - A Tu Lado ( Instrumental Mix )(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 02:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809A87AAFEE79EFE4003820D9C7A3FB2FB899822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188073   (276199) от 01.12.2017
 
 VA - Progressive Essentials Vol.7 (2017) [MP3|320 Kbps] <Progressive House>
@@ -687,64 +745,6 @@ VA - Euro Trance Classics (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF2323F3946247DB80B61A9DA9BC989720FC073A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188559   (275003) от 02.12.2017
-
-VA - Creativeness #1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morgan & YokoO – Spiraling (07:03)
-02. Franca – Vortex (Genii Interpretation) (08:06)
-03. Milez – Questions feat. Chappell (Gumz Remix) (08:32)
-04. Kotelett & Zadak – Rebrand (07:19)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A730F216F8245F6AA35E8EB27BFE41360CF23E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188054   (275002) от 02.12.2017
-
-VA - Rielism - Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rene Ablaze & Universal Sense  -  Island Of Dreams (Original Mix) 7:04
-02.  8 Wonders & Arnej  -  Together We Will Rise (Jak Aggas Remix) 6:22
-03.  Eryon Stocker  -  Skyscrapers (Perrelli & Mankoff Remix) 7:02
-04.  Amy Kirkpatrick & Dark Fusion  -  Be There For You (Original Mix) 4:33(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE05AD35671792A3C6409AB5C9F6D5EE0733878
 ```
 
 https://mybot314.ru/tekegram_catalog/

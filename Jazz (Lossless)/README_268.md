@@ -1,3 +1,32 @@
+###  Публикация: 1642496   (210408) от 27.06.2023
+
+VA - Sunday Family Brunch Lounge Soothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. eJazz Artistry - Say You Do (3:51)
+02. Kool&Klean - Far Away (4:04)
+03. Chillaxing Jazz Kollektion - Whispers (4:54)
+04. Chillaxonic - Iridescent (5:10)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A83C4ABD01DE22DED263F7CB67D98A3411FCB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642588   (210381) от 28.06.2023
 
 Dexter Gordon Quartet - Swiss Nights, Vol.2 (1975) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -716,35 +745,6 @@ Oscar Pettiford & Vinnie Burke - Bass by Pettiford / Burke (1955) 1999, Bethlehe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36961AA420544530CBA8FBC89C1BFA57DD09B46C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655646   (204008) от 27.08.2023
-
-Roy Haynes With Booker Ervin - Cracklin' (1963) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scoochie [5:53]
-02. Dorian [6:48]
-03. Sketch of Melba [7:37]
-04. Honeydew [3:46](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D6A6C0F96D53278FC01544E85DE4E483FA9E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

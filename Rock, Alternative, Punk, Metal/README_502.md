@@ -1,32 +1,3 @@
-###  Публикация: 1043264   (572685) от 16.08.2016
-
-Pooh - 1981-1984 (2011) [FLAC|Lossless|image + .cue] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572685.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chi Fermera' La Musica 1981
-2. Siamo Tutti Come Noi 1982
-3. Canzone Per L'inverno 1982
-4. Hurricane (Rotolando Respirando) 1980(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEAF11CCDCACB5730BF9114DDDF36584493A901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043296   (572595) от 16.08.2016
 
 Ally Venable Band - No Glass Shoe (2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
@@ -747,6 +718,37 @@ Our Last Night - Younger Dreams (2015) [MP3|320 кб/с]<Post-Hardcore, Alt. Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3730694128E23BB5101374A9CDD12C2B38F5A5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528417   (571488) от 29.07.2012
+
+Ancestors - In Dreams And Time (2012) [FLAC|Lossless]<Doom Metal/Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispers (9:11)
+02. The Last Return (6:16)
+03. Corryvreckan (12:08)
+04. On The Wind (9:32)
+05. Running In Circles (9:44)
+06. First Light (19:19)Жанр: Doom Metal/Progressive RockПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

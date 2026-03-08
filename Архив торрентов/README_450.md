@@ -1,3 +1,29 @@
+###  Публикация: 978325   (959648) от 26.01.2016
+
+Паранормальное явление 5: Призраки / Paranormal Activity: The Ghost Dimension (2015)  BDRip [H.264/720p] [Theatrical Cut]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодые супруги Райан и Эмили, и их 6-летняя дочь Лейла переезжают в довольно симпатичный и тихий дом. В гараже они находят видеокамеру и коробку кассет. Но они даже не подозревали, что они увидят, когда заглянут в объектив камеры...Производство: США / Blumhouse Productions, Paramount PicturesЖанр: УжасыРежиссер: Грегори ПлоткинАктеры: Крис Дж. Мюррэй, Бриттани Шоу, Айви Джордж, Дэн Гилл, Оливия ТейлорПеревод: Дублированный (iTunes)Язык субтитров: АнглийскийПродолжительность: 01:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5B9A4FA965F9DF18DB00EE7BCE35ED7068C371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979546   (959605) от 26.01.2016
 
 Преступная деятельность / Criminal Activities  (2015) BDRemux [H.264/1080p] [EN / EN Sub]
@@ -658,35 +684,6 @@ Aquarian - The Snake That Eats Itself (2020) Bedouin Records [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9760EA072AC6805C48CB68F90C21F3D2E95D1C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360720   (959456) от 16.02.2020
-
-Philter - The Queen of Crows (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise
-02. Neon Riders
-03. Miyazaki Mountain
-04. Black Lotus(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B15E6455D00B28C9553956B558CD2FE0FFC781
 ```
 
 https://mybot314.ru/tekegram_catalog/

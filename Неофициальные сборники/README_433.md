@@ -1,3 +1,183 @@
+###  Публикация: 1323633   (433785) от 05.09.2019
+
+VA - Burn This Town (2019) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433785.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sex Park - Atrium
+002. Jonas Bergsten - Minnet Kanske
+003. Sven Atterton - Cast Away
+004. Aescer - Let Go(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 11:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4C2FD20309BF52079D8B691399CE3E137B77BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323637   (433686) от 05.09.2019
+
+VA - Super Sound Disco Single (2019) [MP3|320 Kbps] <Disco, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433686.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Space - Running In The City
+002. Mulya - Orinoko (Original Mix)
+003. Rat Tat Tat - Hypnotized
+004. La Guardia De La Luz - Ts'unu'un (Original Mix)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 09:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B92F860E0DB0A674C89AF3C004A7441850797E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555213   (433656) от 02.10.2012
+
+VA - Инструментальная музыка (2012) vol. № 93 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mario Battaini - Storielle Del Bosco
+02. McCartney - Ebony And Ivory
+03. Анс. Арсенал - Танго
+04. Armik - Santa Barbara
+05. G.Marradi - Angelitos Negros
+06. А.Шишков -  Серебрянный лотос
+07. Arabian Night - Cinema
+08. Fitoussi - Words
+09. Jo Courtin - Le Plus Beau Tango Du Monde
+10. Е.Дога - Мелодии из кинофильмов(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09ADEB0B54F5FE048BA1E52B7DAA5140AB2826E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410751   (433625) от 22.09.2020
+
+VA - Deep House Sensitive (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433625.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rockka - Waves Around The Surface
+002. Jon Thomas - The Way You Move
+003. Lpa City - Cloudy Day
+004. Toll Tekk - Running Out(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4866C676E57305F74C1B4186A2DC346E16C1B3EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945633   (433576) от 10.10.2015
+
+Юля Шатунова - Звезда (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Милые Звёзды (05:03)
+02. Мой Плеер (05:39)
+03. Мой Старый Лес (05:00)
+04. Новогодняя (04:13)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1818318E78472374380383C4CE33E3ABEA952F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249504   (433444) от 24.09.2018
+
+VA - Exotic Tropical Tunes (2018) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433444.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ati - Moon Queen
+002. Amoon And Walking - D.A.N. Get Funky
+003. Fedde Le Grand - The Gaming Beat
+004. Harry Bolton - Loving You (Original Mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB62487F7B39F3033902280AC26C70B89DEA0AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249258   (433443) от 24.09.2018
 
 VA - Party Dance. The Days Paradise (2018) [MP3|320 Kbps] <Dance>
@@ -571,180 +751,6 @@ VA - Beatport Top 100 House September (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9D5E618262231E4946FA890F7830FF99B4B73D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165506   (432219) от 13.09.2017
-
-VA - Для Тех, Кто Помнит! Русский Рок Vol.5 (от Ovvod7) (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ария - Встань, Страх Преодолей  4:13
-02.  Ночные Снайперы - Катастрофически  3:30
-03.  Ва-Банкъ - Хулиган  2:52
-04.  Калинов Мост - Имя Назвать  5:18(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6122071CCCC42A992DBAD7CF7EACAE1500592F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165537   (432207) от 13.09.2017
-
-VA - Top 100 Зайцев.Нет Август (Зарубежный выпуск) (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432207.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Luis Fonsi feat. Daddy Yankee - Despacito  3:48
-002.  Kokab - Got U (Ready Or Not) (Amice Remix)  4:08
-003.  David Guetta feat. JD Davis - The World Is Mine (Radio Edit)  3:13
-004.  Imagine Dragons - Believer  3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F7465ECB20D85CF4CB107DBEC5A8BED2BE9D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063867   (432141) от 17.10.2016
-
-VA - Best Of 80s (2016) [MP3|320 Kbps] <Pop, Disco, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Fugitive
-02. Paula Evans - Ciao (Extended Version)
-03. John Christian - Ebony Eyes (Maxi Version)
-04. Patty Ryan - Stay With Me Tonight(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 06:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E952882087536BDC696EF9A19E2E7DC445A536D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063707   (431973) от 17.10.2016
-
-VA - Classic Rock'N'Roll 3CD (2016) [MP3|320 Kbps] <Blues, Rock, Pop>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431973.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-001. Bill Haley & His Comets - (We're Gonna) Rock Around The Clock (02:09)
-002. Chuck Berry - Johnny B. Goode (02:38)
-003. Jerry Lee Lewis - Great Balls Of Fire (01:50)(   Читать дальше...   )Жанр: Blues, Rock, PopПродолжительность: 02:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A2EBD511E51FF3F7DD83C187387ED49C5D9411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410760   (431920) от 23.09.2020
-
-VA - Yellow Day: Pop Folk Music (2020) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vroni - Ohne Spa Kein Fun
-002. Miane - Fo Nou Lé Soudé
-003. Panagiotis Labouras - Peplo
-004. T.T. Purontaka - Mun(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 10:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A773A14DF735A2C36A2582E9A76D6C8E86917F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410754   (431916) от 23.09.2020
-
-VA - Fast Mover: Tech House Electro Sound Mix (2020) [MP3|320 Kbps] <Tech House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431916.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avr And Sam Galki - Dont Panic
-002. Donkong - Logic Bomb
-003. Andrew Mogar - Big Party
-004. Andrea Ferri - Dangerous Stars(   Читать дальше...   )Жанр: Tech House, EDMПродолжительность: 10:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA63F6CDDB8FF44A01B03542DB37F74E8EFA28D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

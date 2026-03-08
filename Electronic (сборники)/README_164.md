@@ -1,3 +1,31 @@
+###  Публикация: 953838   (344666) от 06.11.2015
+
+VA - Fantastic Running (Best of Jogging Music) (2014) [MP3|320 кб/с]<Electro, Minimal, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlantik - Golgiapparat (Mollono.Bass Remix) (07:37)
+02. Christos Fourkis - Houze You (07:34)
+03. Sanil Fenice - Before Dawn (Matthias Freudmann Remix)Жанр: Electro, Minimal, Deep HouseПродолжительность: 02:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBCE900F0281388C6918591E2C710364FEE2CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954180   (344657) от 06.11.2015
 
 VA - Extra Trance: Bonus [02] (2015) [MP3|320 кб/с]<Trance>
@@ -752,41 +780,6 @@ VA - DubStep Pro V.6 (2012) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:069822792E9043CBE99FDF356499768206B60134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580743   (340621) от 26.11.2012
-
-VA - DubStep Pro V.5 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xenith - Black Ice
- 02. KOAN Sound, Gemini, Culprate, Asa - Beyond The Shadows
- 03. Angus ft. Julia Stone - Draw Your Swords (Alpha Data Remix)
- 04. ENiGMA Dubz - Walk Good
- 05. Soeloe - High Place (Original Mix)
- 06. Squarzan - Wasted Wish (Original Mix)
- 07. DJ Mutagen & V - The Survivors (Left 4 Dead 2 Mix)
- 08. The Prodigy - Smack My Bitch Up (Noisia Remix)
- 09. Butch Clancy - Xlam (Original Mix)
- 10. Sorrow - Siren's Echo(   Читать дальше...   )Жанр: DubstepПродолжительность: 04:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A99619A95B85C3C5AF4A6DE27CFC9C11EA2D8EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

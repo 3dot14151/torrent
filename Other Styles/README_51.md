@@ -1,3 +1,32 @@
+###  Публикация: 1014691   (776071) от 08.05.2016
+
+Zhou Zifeng - Hotel California (1999) [MP3|320 кб/с] <Guitar, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Cry For Me, Argentina 4:46
+02. Yesterday 5:37
+03. Hotel California 6:23
+04. My Heart Will Go On 4:38(   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E9B6A022C545626D44FEABDD86C421148B8B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212250   (776058) от 11.03.2018
 
 Greg Butler - Whispering Yiruma (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
@@ -716,35 +745,6 @@ Hilmar Orn Hilmarsson & Sigur Ros - Englar Alheimsins (2001) [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C471921BE1BB1B87EE9C15E3B48AD55C88C9625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213070   (771762) от 16.03.2018
-
-The Gino Marinello Orchestra - Guitar Masterpieces (2000) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Private Investigations
-02.Samba Pa Ti
-03.Apache
-04.Telstar(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B37C8E006F961F5DB95495170191317664D732F
 ```
 
 https://mybot314.ru/tekegram_catalog/

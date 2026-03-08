@@ -1,32 +1,3 @@
-###  Публикация: 1369626   (902031) от 24.03.2020
-
-Stephen Malkmus - Traditional Techniques (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ACC Kirtan (06:19)
-02. Xian Man (04:06)
-03. The Greatest Own In Legal History (03:47)
-04. Cash Up (04:06)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D056E4B1493C3B42AECD57EA97506899ADC611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369651   (902013) от 24.03.2020
 
 Tom Morello - The Atlas Underground (2018) [FLAC|Lossless|tracks + .cue] <Rock>
@@ -742,6 +713,35 @@ Facs - Void Moments (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49E3F9B91B01AEFB7A3854EC9B946C5ADD72D565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369867   (900427) от 25.03.2020
+
+The The - Dusk (1993) Remastered, 2002, Epic [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. True Happiness This Way Lies (03:10)
+02. Love is Stronger than Death (04:39)
+03. Dogs of Lust (03:09)
+04. This is the Night (03:50)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B9EB907A9B1E26839E03866726EDB5E697523C
 ```
 
 https://mybot314.ru/tekegram_catalog/

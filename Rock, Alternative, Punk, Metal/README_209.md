@@ -1,32 +1,3 @@
-###  Публикация: 614921   (884358) от 10.09.2021
-
-Red - Release The Panic (2013) Deluxe Edition [FLAC|lossless|tracks + .cue] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Release The Panic (03:02)
-02. Perfect Life (02:51)
-03. Die For You (02:46)
-04. Damage (03:41)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7D52249850964936F8D573A3894311C978225D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995491   (884320) от 11.03.2016
 
 Ozzy Osbourne - No More Tears (1991) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
@@ -750,6 +721,32 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96759E465B14B082C95A218F6E08300C8FE5197F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184599   (883510) от 24.03.2010
+
+Hard and heavy (сборник) - ХИТЫ XX - XXI ВЕКА (2008) [MP3|256 kbps]<Hard and heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_883510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard and heavy
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,186 @@
+###  Публикация: 1164745   (439210) от 10.09.2017
+
+VA - Авто Дискотека Клубная (2017) [MP3|320 Kbps] <House, Mash Up, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439210.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  SMASH feat. Ridley - The Night Is Young (AstroFox Remix)  2:36
+002.  DJ Nil & Anthony El Mejor vs. Mina - Bang Bang (Extended Mix)  5:28
+003.  Black E.Peas vs. Twoloud - My Humps (Perfectov Mash Up)  4:02
+004.  Major Lazer & Merk feat. Kremont - Lean On (DJ Miller & DJ Alex Milano Bootymix)  3:58(   Читать дальше...   )Жанр: House, Mash Up, ClubПродолжительность: 07:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1053AB64FCC4830234E1F5E675B08AEEAEA34C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164522   (439205) от 10.09.2017
+
+VA - Record Super Chart #502 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Diablo - Momentum  3:28
+02.  Lucas & Steve vs. Mike Williams & Curbi - Let's Go  4:11
+03.  Kokab - Got U (Ready Or Not) (Amice Remix)  4:08
+04.  Axwell & Ingrosso - More Than You Know  3:21(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE27415A0183EFAC5FBFF3A1BD8696F0A3A08896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062793   (439115) от 14.10.2016
+
+VA - Hits of My Soul Vol. 14 (2016) [MP3|320 кб/с]<Synthwave, Synthpop, New Wave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Matthew Bauer - Cruise Control (05:33)
+02. BOOMOPERA - Synthpop Supercar (02:50)
+03. Com Truise - VHS Sex (04:25)
+04. Kyle Dixon & Michael Stein - Stranger Things Main Theme (Jessy Mach Remix) (03:34)(   Читать дальше...   )Жанр: Synthwave, Synthpop, Dreamwave, Outrun, New Wave, Electronic, Darkwave, Dark Synth, ChillwaveПродолжительность: 03:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D809825B42C5E8A1CF4563878A37D750CEF931A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248787   (439029) от 21.09.2018
+
+VA - Клубная Вечеринка Vol.3 (2018) [MP3|320 Kbps] <Trance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439029.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Martin Garrix, Dewain Whitmore, Justin Mylo - Burn Out
+002. Plumb, Paul Van Dyk - Music Rescues Me
+003. 4 Strings - Let It Rain (interlude)
+004. Mahmut Orhan - Without You (Dj Tarkan Remix)(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 14:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BB29783C21D885D07C174E78CEB6C4991976AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164596   (438935) от 10.09.2017
+
+VA - Asylum Of Soul: Hard Rock Collection (2017) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438935.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Foreigner - Girl On The Moon (Remastered)  4:14
+002.  Black Sabbath - Evil Eye  6:00
+003.  Paul Weller - The Cranes Are Back (Instrumental)  4:23
+004.  Alice Cooper - Feed My Frankenstein  5:02(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 09:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E8517332833B1A5B19EC0D7AC8D731402E4613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554462   (438907) от 30.09.2012
+
+VA - Progressive Music (30.09.2012) [MP3|320 кб/с]<Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inpetto - Yuccasin (Original Mix) (07:04)
+02. Syke'N Sugarstarr - Ticket 2 Ride (Nickol S Remix) (06:34)
+03. Mehmet Akar - The Light Goes On (Diyo Remix) (08:12)
+04. Matt Fax - Sju (Original Mix) (07:21)
+05. Underset - Moon Rover (Original Mix) (08:32)
+06. Laera - Maravilla (Original Mix) (05:54)
+07. Outlook - Gravity (Flora Remix) (06:22)
+08. Archouse - Good Day (Original Mix) (08:36)
+09. Sergey Alyohin - Burning Vaccination feat TankTop (Original Mix) (06:34)
+10. Michelangelo & Syntheticsax - Autumn (Original Mix) (05:33)Жанр: Progressive HouseПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D01303BACA1C15F8724F5D1D8A7C1B63492B05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164599   (438840) от 10.09.2017
 
 VA - Для Тех, Кто Помнит! Русский Рок Vol.3 от Ovvod7 (2017) [MP3|320 Kbps] <Rock>
@@ -625,186 +808,6 @@ VA - German Top 100 Single Charts 21.09.2018 (2018) [MP3|320 Kbps] <Pop, Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C517535E09A33BBF0574B831036E15CE82EECD26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554351   (437295) от 01.10.2012
-
-VA - Whisper of Consciousness Volume 30 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437295.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
-002. Progressiver - Searching For The Truth (Original Mix)
-003. Reminder - On The Beach (Stoneface & Terminal Remix)
-004. Sean Tyas & Horny Sanchez - Rebox (Original Mix)
-005. Space RockerZ pres. Pulse & Sphere - Rush Hour (Original Mix)
-006. Susana Rex Mundi - All Time Low (Original Mix)
-007. The Blizzard & Yuri Kane feat. Relyk - Everything About You (Original Mix)
-008. Richard Durand - Stand Again (Original Mix)
-009. Solarstone & Clare Stagg - The Spell (Solarstone Pure Mix)
-010. Ronski Speed, Stoneface & Terminal - I Didn`t Know I Was Looking For Love (Maison & Dragen Remix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751B01B5A246EE8DBF6BBC50039946520270CC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063194   (437262) от 15.10.2016
-
-VA - Beatport Top 100 EDM Songs & DJ Tracks September (2016) [MP3|320 Kbps] <House, EDM, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437262.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Groove Armada - Superstylin' (Riva Starr Edit)
-002. Kolsch - Grey (Original Mix)
-003. Leandro Da Silva - I Love House Music (Club Mix)
-004. Raumakustik - Dem A Pree (Patrick Topping Remix)(   Читать дальше...   )Жанр: House, EDM, Deep HouseПродолжительность: 10:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C582C599D15E78884DD1B96A96A163086F7EE615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164997   (437239) от 11.09.2017
-
-VA - Empire Records - Chill Out 12 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arnold T - Summertime Sadness
-02. E-motive - Street Waves
-03. Gt 55 - Red Color (Gray Clouds Mix)
-04. Miper - Hide(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90A90E3780D7231BC76AF9DB55CE99615F96AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063196   (437078) от 15.10.2016
-
-VA - 100 Soul Jazz (2016) [MP3|320 Kbps] <Jazz, Soul, Vocal Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437078.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Herbie Hancock - Cantaloupe Island (05:29)
-002. Marlena Shaw - California Soul (02:57)
-003. James Brown - Papa's Got a Brand New Bag (04:38)
-004. Roy Ayers Ubiquity - Everybody Loves the Sunshine (04:01)(   Читать дальше...   )Жанр: Jazz, Soul, Vocal JazzПродолжительность: 08:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E59EC292ACF77167A8A8C5E76E9C71ED973EC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164937   (437070) от 11.09.2017
-
-VA - Horror Sky: Dub Hardcore Set (2017) [MP3|320 Kbps] <Dub Hardcore, Hard Electro Rock, Experimental Dark Electro>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437070.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brennan Heart & Zatox - God Complex
-002. Dimitri Vegas - Like Mike feat. Ne-Yo - Higher Place (Extended Mix)
-003. Dr. Pickman - Terror X-Mas (Remastered Edition)
-004. Frankentek - Silence (Original Mix)(   Читать дальше...   )Жанр: Dub Hardcore, Hard Electro Rock, Experimental Dark ElectroПродолжительность: 09:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762E92A8F080DE110127F2663AE490EE0145D5FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 828821   (437029) от 07.10.2014
-
-VA - Любимые песни (2014) [MP3|320 кб/с]<Русский рок, поп-рок, авторская песня>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кино - Группа крови
-02. АлисА - Веретено
-03. Кипелов - Я свободен
-04. Агата Кристи - Как на войне(   Читать дальше...   )Жанр: Русский рок, поп-рок, авторская песняПродолжительность: 04:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F025402F69CBDBC53BE898F8A3A504AB1C738DAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

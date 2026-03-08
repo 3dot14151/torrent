@@ -1,3 +1,29 @@
+###  Публикация: 577919   (358229) от 19.11.2012
+
+Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AF792345187D7656F1B6C9E2D7B8FE8C2B16B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577666   (358221) от 19.11.2012
 
 Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
@@ -671,36 +697,6 @@ ID
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C903CDEC3EEE6843AAA009D4E159AE81CDFB07C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831765   (356087) от 03.11.2014
-
-The Beatles: Концерт на стадионе Шей / Shea stadium concert (1965) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт The Beatles на стадионе Shea (New York) 15.08.1965
-В данном релизе представлена вторая часть концерта, в которой выступала группа "Битлз".01. Twist & Shout
-02. I Feel Fine
-03. Dizzy Miss Lizzie
-04. Ticket To Ride(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4EE25CD1FD7B2BEDBF47441633EBE3F756ED0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1256083   (359035) от 20.10.2018
+
+VA - Ballermann Hits Party 2019 (XXL Fan Edition) (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Draufgänger - Cordula Grün
+02. Mickie Krause - Reiss die Hütte ab! (Chirpy Chirpy Cheep Cheep) (Version 2018)
+03. Lorenz Büffel - Beate, die Harte
+04. Almklausi & Specktakel - Mama Laudaaa (Harris & Ford Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9A8E0C4C5ED964F2CE08EB2EBD65011AE650CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952230   (358822) от 31.10.2015
+
+Vangoffey - Take Your Jacket Off & Get Into It (2015) [OGG| 489-542 кб/с]<Classic Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Race Of Life
+02. Trials Of A Modern Man
+03. Sucker
+04. Episode(   Читать дальше...   )Жанр: Classic Pop RockПродолжительность: 00:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4EA5E19D20BDBEB53B379E33F613B762022393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255951   (358746) от 20.10.2018
 
 Dua Lipa - Dua Lipa (Complete Edition) (2018) [MP3|320 Kbps] <Pop>
@@ -690,64 +748,6 @@ VA - Mastermix DJ Edits 90s Dance Vol. 1 (2022) CD, Promo, Compilation [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98EED7196BEB8514F3DC5457F5E8B43CBE97D555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329269   (354428) от 04.10.2019
-
-Mireille Mathieu - Cinéma (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson française, Soundtrack>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354428.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Un homme et une femme (2:54)
-2. Over the Rainbow (3:13)
-3. Une vie d'amour (3:51)
-4. De rêve en rêverie (Evergreen) (3:14)(   Читать дальше...   )Жанр: Pop, Chanson française, SoundtrackПродолжительность: 02:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0EE22FEFB66744E60D3691BD56F557C8FDEF8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072181   (354392) от 12.11.2016
-
-Sandra - Close To Seven (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be Aggressive [04:45]
-02. Mirrored In Your Eyes [03:26]
-03. I Need Love [03:24]
-04. No Taboo [03:50](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C93C62B65F0F0A483BC3389895BF757AD187489
 ```
 
 https://mybot314.ru/tekegram_catalog/

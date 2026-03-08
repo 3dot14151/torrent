@@ -1,3 +1,32 @@
+###  Публикация: 1622381   (1030267) от 28.03.2023
+
+Dark Diva - 3 Albums (2021-2023) [MP3|320 Kbps] <Trip Hop, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - Отчуждение
+2022 - Плач покинутых детей
+2023 - ЙойкЖанр: Trip Hop, FolkПродолжительность: 3 CD, 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6E2616D33623B4E6163F871D20DE7C08E77069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447866   (1030211) от 20.02.2021
 
 Go_A - #Ідиназвук (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, IDM>
@@ -714,35 +743,6 @@ Empyrium - 7 Studio Albums (1996-2021) 7xCD [FLAC|Lossless|image + .cue] <Neofol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEA967EA77FD027B18D668AECF9C0350DC40E345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454438   (1026120) от 16.03.2021
-
-Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indie Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - When I Die
-02 - Gallipoli
-03 - Varieties of Exile
-04 - On Mainau Island(   Читать дальше...   )Жанр: Balkan Folk, World, Indie FolkПродолжительность: 04:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34580A29F2AE22A73343F8621266D5EE287BCAA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

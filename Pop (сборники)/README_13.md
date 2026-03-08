@@ -1,3 +1,32 @@
+###  Публикация: 1366604   (922349) от 12.03.2020
+
+VA - Sweet Caramel: Pop Dance Eurobeat (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922349.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Leslie Parrish - Falling Free
+002. Fluxdaddy - When It's Over
+003. Akira - I Dream (Radio Mix)
+004. Keepin It Heale - Still Love You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91C89890ABE7EA7540CFB2E5B81F9F62C15BC64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988332   (921897) от 19.02.2016
 
 VA - Музыка В Машину. Лучшие Хиты (2016) [MP3|256 kbps] <Pop>
@@ -707,35 +736,6 @@ VA - B машину ремиксы Vol. 4 (2020) [MP3|320 Kbps] <House, Pop, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:414D15A7054A3671D461749E59F94B9EE6ED6620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366961   (916662) от 15.03.2020
-
-VA - B машину ремиксы Vol. 5 (2020) [MP3|320 Kbps] <House, Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Света - Ты не мой (Smotra Remix)
-02. Леша Свик - Девчонка (Rakurs & Ramirez Remix)
-03. Мята Feat. & Ivan Navi - Ти Мене Кохай (Bakun Remix)
-04. Филипп Киркоров - Цвет Настроения Синий (Eugene Star Remix)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 03:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D72764CA3E4E6B40E8A34F084E06307B0A0E9F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

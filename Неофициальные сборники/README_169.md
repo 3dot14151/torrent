@@ -1,3 +1,177 @@
+###  Публикация: 1508955   (796237) от 10.11.2021
+
+VA - Techno Beats: Electronic Mixtape (2021) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796237.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jakob Wojenko - Wxl1
+002. Dimitri & Jaimy - Waitress Of An Open Mind
+003. Axon. - Tesselations
+004. Kaiser - Me Through The Mirror(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066B38599B1AD84E3687764F2A9F43AD2F3E6883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508961   (796227) от 10.11.2021
+
+VA - The Mushroom Substances (2021) [MP3|320 Kbps] <Psychedelic, GOA Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796227.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Synthologic - Mind Reaction
+002. Infected Mushroom - Never Ever Land
+003. Hasche - Footsteps
+004. Traxon - Fuckin Hippies(   Читать дальше...   )Жанр: Psychedelic, GOA TranceПродолжительность: 12:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7B190726B910276D2E01FA49B5AF1D313F5272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508913   (796219) от 10.11.2021
+
+VA - Autumn Rock Fest (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796219.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ironwill - Breakout
+002. Fiona - Where The Cowboys Go
+003. Distilled Tongues - Drawing Shapes
+004. Andrйs Calamaro - Bohemio Con Julio Iglesias(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4250AED739403E9EEEFF3964D1CE5F56B0B8F571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200227   (796195) от 20.01.2018
+
+VA - TOP 100: лучших песен 2017 года на Love Radio (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796195.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:48
+002.  Charlie Puth  -  Attention  3:32
+003.  Макс Барских  -  Моя любовь  3:40
+004.  Clean Bandit feat. Sean Paul & Anne-Marie  -  Rockabye  4:11(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF22FD68D5AC55551E7A1D016BABFE333AC50B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011694   (796174) от 28.04.2016
+
+Фабрика - Коллекция песен (2016) [MP3|256-320 кб/с] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Девушки фабричные (03:59)
+02. Про любовь (03:32)
+03. 5 минут (04:41)
+04. Море зовёт (03:48)(   Читать дальше...   )Жанр: ПопПродолжительность: 02:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCC2E2E9D7CC8B6DC4733C79A8214B66B9B9BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508950   (796168) от 10.11.2021
+
+VA - My Beath Summer: Pop Musical Collection (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796168.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Justin Bieber - Peaches
+002. Aitana - Menos
+003. (Dis)Amore - Ti Stavo Lontano
+004. Ava Max - My Head & My Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532D39D756EB802B1576FFF52635204005788B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508937   (796129) от 10.11.2021
 
 VA - Beatport Electro House: Sound Pack #363 (2021) [MP3|320 Kbps] <Electro House, Club, Dance>
@@ -571,180 +745,6 @@ VA - Vocal Chillout: Relax Compilation (2020) [MP3|320 Kbps] <Downtempo, ChillOu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A47202332A081C1DD2335112BEF306D1EB0A93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385896   (795796) от 27.05.2020
-
-VA - 100 Greatest 00s Pop Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795796.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lady GaGa - Just Dance 4:01
-002. Beyoncé - Single Ladies (Put A Ring On It) 3:13
-003. Christina Aguilera & Lil' Kim feat. Mýa & P!nk - Lady Marmalade 4:25
-004. The Pussycat Dolls - Don't Cha 4:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BA672502C2D894F6A39E6B6BA65BAB7672660A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385085   (795764) от 27.05.2020
-
-VA - Громкие новинки Мая (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795764.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ALEKSEEV - Ревность (3:24)
-2. Boulevard Depo - Angry toy$ (2:06)
-3. Carly Rae Jepsen - This Love Isn't Crazy (3:53)
-4. Charli XCX - enemy (3:42)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332D0AB799488332428282346D6D9CCF88D96D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200468   (795713) от 21.01.2018
-
-VA - Empire Records - Lounge 10 (2018) [MP3|320 Kbps] <Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Eliyahu - Journey (Hakan Akkus & V-Dat Remix)
-02. Christos Fourkis, Joahn Dashi - Come in My Life (Bes and Meret Remix)
-03. W4velike - Lovin U
-04. Beat Sounds - In Zaire (Extended Mix).(   Читать дальше...   )Жанр: LoungeПродолжительность: 02:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5AAD0487CC22B3E4645FE78CE7758E3D0E470E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200471   (795703) от 21.01.2018
-
-VA - Empire Records: Chill Out 15 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ki-Theory  -  Enjoy The Silence  4:18
-02.  Ryan Weber  -  Magic Fly (Chillectro Remix)  5:06
-03.  Dreamweavers  -  Inner Spirit (Original Mix)  9:59
-04.  Aliki Westwood  -  Everybody Loves The Sunshine (Nikki Beach Mix)  4:18(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCE9F16C630B38494E0B3E9C38286F134459328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200618   (795696) от 21.01.2018
-
-VA - Empire Records - Sound Clinic 8 (2017) [MP3|320 Kbps] <Dance, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arthur D'Amour - Chaos in My House (Original Mix)
-02. Sion - I'm Sorry (Original Mix)
-03. Lazy Bear & Future Class - Do You Like (Original Mix)
-04. Luigi Peretti - Cocaine (Original Mix)(   Читать дальше...   )Жанр: Dance, Electro HouseПродолжительность: 01:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C46C1CC9D2DC6286D7619C41CD49F671740ED73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011932   (795688) от 29.04.2016
-
-VA - Future Trance Energy 004 April TOP (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NoMosk & Lucid Blue -  Inside The Fire (Mhammed El Alami Remix)  6:39
-02. Toshuk -  Valley Of Nature (Aicos Rmx)  7:33
-03. Tarmo Tammel -  Playa d'en Bossa (Ferry Tayle Remix)  7:25
-04. Suncatcher -  Origin (Extended Mix)  7:42(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F39B739981390EBCFCEE5D5E33C7BB6716FE68B
 ```
 
 https://mybot314.ru/tekegram_catalog/

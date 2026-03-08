@@ -1,3 +1,61 @@
+###  Публикация: 1118216   (813026) от 25.03.2017
+
+James Blunt - The Afterlove (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Better (3:40)
+ 02. Bartender (3:13)
+ 03. Lose My Number (3:28)
+ 04. Don't Give Me Those Eyes (4:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14DE7C5D4944D0FA1F24FAC215A8DF902D821EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118346   (812896) от 25.03.2017
+
+Alekseev - Пьяное солнце (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Океанами Стали 3:37
+02. Чувствую Душой 3:40
+03. Пьяное Солнце 3:37
+04. Больно Как В Раю 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5065C2A20A371EA19517BA28554FC732100566B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504445   (812092) от 23.10.2021
 
 Григорий Лепс - Подмена понятий (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -684,64 +742,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CC1A22726EEFA33F64FB07060BCBCCF60D8FC3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383920   (808274) от 17.05.2020
-
-Moleskine - Moleskine (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunny Day (4:12)
-02. A New Man (4:23)
-03. Camel Break Down (5:46)
-04. Hurry (3:50)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF54672FF3E32768A791565A5443488416D4AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383859   (808269) от 17.05.2020
-
-VA - Electro Pop 2020 [MP3|320 Kbps] <Electro Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kungs, Cookin' On 3 Burners - This Girl (Kungs Vs. Cookin' On 3 Burners) 3:16
-02. Møme - Club Sandwich 4:34
-03. Fakear - Nausicaa 3:53
-04. Aslove, Dalvin - Dancing 3:24(   Читать дальше...   )Жанр: Electro PopПродолжительность: 02:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E686D75D5FA110699E1D752CC49CB9B446084AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

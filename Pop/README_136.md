@@ -1,3 +1,61 @@
+###  Публикация: 1292480   (646814) от 29.03.2019
+
+Sumeria - Golden Tears (1977) LP [MP3|320 Kbps] <Electronic, Downtempo, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance And Leave It All Behind You (4:47)
+02. The Encounter (5:27)
+03. Cosmic Traveller (2:58)
+04. Somewhere, Elsewhere (4:42)(   Читать дальше...   )Жанр: Electronic, Downtempo, DiscoПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E55389E4B1B32A6B9C327FB93976A13D948B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541137   (646754) от 02.04.2022
+
+Miley Cyrus - Attention: Miley Live (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATTENTION (01:36)
+02. We Can't Stop X Where Is My Mind? (Live) (05:35)
+03. Plastic Hearts (Live) (03:27)
+04. Heart of Glass (Live) (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0B75404D46E9BAB33DBEFF080D74CA565A337F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517758   (646738) от 01.07.2012
 
 Adele - 21 (Limited Edition) (2011) [MP3 |320 кб/с]<POP>
@@ -699,64 +757,6 @@ Rick Van Der Linden - GX 1 (1977) LP [MP3|320 Kbps] <Electronic, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16D24FA9D6A7859E9CD60498A56DD67FE23AA3F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292721   (645196) от 30.03.2019
-
-Fire - Fire (1978) LP [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deeper In Love (4:08)
-02. C'mon, Let's Do It (3:06)
-03. It's Been So Long (2:34)
-04. Wrap Your Arms Around Me (3:48)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D0ADE28D89FA7C91888EA823525AF58EF35F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292676   (645191) от 30.03.2019
-
-VA - Radio Italia Spring (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takagi & Ketra - La Luna e la Gatta
-02. Elisa - Anche Fragile
-03. Mahmood - Soldi
-04. Jovanotti - Chiaro Di Luna(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BE1634BD4D704F491CC6CE3A60F970732BF7A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

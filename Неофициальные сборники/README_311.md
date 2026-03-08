@@ -1,3 +1,201 @@
+###  Публикация: 521229   (628873) от 10.07.2012
+
+VA - На вершинах хит-парадов 2 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алисия & Влад Корса - Здесь и сейчас
+02. Gotye feat. Kimbra - Somebody That I Used To Know (Bastian Van Shield remix)
+03. Elvira T - Все решено (Fresh Tunes remix)
+04. Mandinga - Zaleilah (Hanter Remix 2k12 edit)
+05. Митя Фомин & Кристина Орса - Не манекен (Ural DJs Dance remix)
+06. Ledina Celo - Can you touch me baby (Edit mix)
+07. Чай Вдвоем - Улетай
+08. Kato - Never let u go (feat. Snoop Dogg & Brandon Beal)
+09. Юля Савичева - Юлия
+10. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck with you(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AAC0C2F24401F599FD52451F6A41E4D5A7DB9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520951   (628862) от 10.07.2012
+
+VA - Музыка для хорошей компании Vol.6 (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Владимир Соболь - Шабашник
+02. Виктор Петлюра - Ключи От Рая
+03. Александр Доля - Налей Дружок
+04. Евгений Коновалов - А за окошком ветер вьюжит
+05. Адмирал - Мурка-девочка классная
+06. Рада Рай - Клён
+07. Андрей Бандера - Ночка
+08. Воровайки - Северная Звезда (Дуэт С М. Шуфутинским)
+09. Боба Грек - Ночные Поезда
+10. Лесоповал - Мне улыбнисьЖанр: ШансонПродолжительность: 06:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F78048035848174702CB26CCD0470390BBD83D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521179   (628798) от 10.07.2012
+
+VA - Летний Хит-Парад Муз-ТВ (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628798.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Зэбосы - Загорелая Попка
+002 Shamil (ex. Оскар) - Будь Собой Всегда
+003 Алабама - Испанское Лето
+004 DJ Richi - Пляж (Radio Mix)
+005 Владимир Брест - Этим Летом
+006 Тина Кароль - Я Не Беру Трубку (Version 2012)
+007 Юрий Шатунов - Привет
+008 Ирина Билык - Моя Любовь, Как Ягода
+009 Владимир Левкин и Анна Герцен - Жаркое Лето
+010 Даша Суворова - Старые Фильмы(   Читать дальше...   )Жанр: РорПродолжительность: 05:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B40429CCA795E2D69E29FB04D637CE392C7249C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521174   (628727) от 10.07.2012
+
+VA - Убойный сборник от Авторадио 50/50 (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628727.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Nicki Minaj - Va Va Voom.
+002 David Vendetta Feat. Booty Luv - Sun Comes Up (Radio Edit).
+003 Paulina Starborn - Never Gonna Let Me Go.
+004 Pitbull Feat. Okary - La Pauta Mi Bombon (Remix).
+005 Greg Parys - The Girl Is Mine (Radio Edit).
+006 Timbaland Feat. Dev - Break Ya Back (Album Version).
+007 Pete Fox Feat. Joey Moe And Jeanette Zeniia - St Jernetegn (Radio Edit).
+008 No Rules - It Will Be Alright (Radio Edit).
+009 Brainstorm - Lantern.
+010 The Cataracs Feat. Waka Flocka - All You.(   Читать дальше...   )Жанр: РорПродолжительность: 05:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:522141FEE82AB0630657D2608B0D86058C7625B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035340   (628678) от 16.07.2016
+
+VA - Naxwell - Hands Up Masterpieces: All His Singles & Remixes (2016) [MP3|320 Kbps] <House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naxwell -  Magic Melody (Club Mix) 5:13
+02. DJ Schwede -  Here We Go Again 2k16 (Naxwell Remix) 4:05
+03. John Wiix -  Can U Pump on It (Naxwell Remix) 4:04
+04. Patricio AMC -  Believe (Naxwell Remix) 4:04(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 04:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8607D115123D2677E2DB20EAADD2E0181EDA63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035188   (628639) от 16.07.2016
+
+VA - Endless Motion - Only Trance (episode3) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren & Rising Star Ft. Betsie Larkin -  Again (Armin Van Buuren Remix) 3:11
+002. Gareth Emery feat. Janet Devlin -  Lost (Super8 & Tab Remix) 3:21
+003. NoMosk & Roman Messer feat. Christina Novelli -  Lost Soul (Aleksey Sladkov Remix) 5:06
+004. Talla 2XLC & Jilliana Danise -  What Could Be Better (Original Mix) 6:23(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973686ADB2A89E58646AA8C6A0EE27F378F0E205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035329   (628627) от 16.07.2016
 
 VA - Cool Story: Summer Eurodance (2016) [MP3|320 Kbps] <Eurodance, Electro House, Pop>
@@ -574,186 +772,6 @@ Hits of My Soul - сборник электронной и инструмент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA9801C53C0BB603E71CDFA73B1A9ABDCFAB4C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144463   (627604) от 22.06.2017
-
-VA - Italo & Space Vol.39 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth, Eurobeat>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  D.White - Wonderful Day  6:02
-02.  Italove - Too Late To Cry  4:36
-03.  T.M.-Joy - Stay  3:36
-04.  Anosphere - Space Runner  4:56(   Читать дальше...   )Жанр: Italo Disco, Spacesynth, EurobeatПродолжительность: 03:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19087A4B8785D1B191DD3307AFE562AD4FD1D3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909370   (627509) от 17.06.2015
-
-VA - Летние хиты за рулем. Выпуск 50/50 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pulse - Танцуй Со Мной
-002. Martin Garrix - Dont Look Down
-003. Юля Шатунова - Прощай Май
-004. Bondax Feat. Bo Saris - Let Me Be(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182BAD5DD25E633F33A846FA847574EB5CD02041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144556   (627369) от 22.06.2017
-
-VA - New Age Compilation (2017) [MP3|320 Kbps] <New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amethystium - Odonata (2001):
-
-01. Arcane Voices (4:03)
-02. Ascension (4:41)(   Читать дальше...   )Жанр: New AgeПродолжительность: 04:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9AE8CF0F0F6156D3140D83C44B31C2B155EA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292088   (627327) от 08.04.2019
-
-VA - Beautiful Rock Ballads Vol.01-40 (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astral Groove - Until We Meet 03:23
-02. Blanc Faces - Everything 04:23
-03. Brian Howe - Holy Water 04:50
-04. Charing  Cross - Long Time Ago 06:37(   Читать дальше...   )Жанр: RockПродолжительность: 80:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CF8AAD752669DD2B504596A42786629EBB4050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521389   (627122) от 11.07.2012
-
-VA - 538 Hitzone  62 2CD (2012) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627122.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1. Время звучания: 01:18:27
-
-01 - Carly Rae Jepsen - Call Me Maybe
-02 - Gusttavo Lima - Balada
-03 - Wtf! - Da Bop
-04 - Will And The People - Lion In The Morning Sun
-05 - Loreen - Euphoria
-06 - Train - 50 Ways To Say Goodbye
-07 - Nicki Minaj - Starships
-08 - Racoon - Liverpool Rain(   Читать дальше...   )Жанр: DanceПродолжительность: 02:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36DB1997D244B21AB25D342D1D2AFD61A168DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909455   (627036) от 17.06.2015
-
-VA - Record Russian Mix (2015) [MP3|320 кб/с]<Club House, Dance, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Егор Крид - Самая - Самая
-02. Иван Дорн - Мишка Виновен (Атом Remix)
-03. Квест Пистолс - Санта-Лючия (Соловей Remix)
-04. Натан, Тимати - Девочка-Бомба (А Лисс Remix)(   Читать дальше...   )Жанр: Club House, Dance, Pop, HouseПродолжительность: 06:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083425651BECE6792BBEB414CFC24B61B2432CAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

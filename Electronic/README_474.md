@@ -1,3 +1,61 @@
+###  Публикация: 1717778   (111106) от 21.04.2024
+
+Nicky Romero - Tomorrowland Friendship Mix (2024-04-18) [MP3|320 Kbps] <Tech House, House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicky Romero - All Night Long
+02. Nicky Romero - Techtronic
+03. Almero - Over There
+04. Plastik Funk & Mark Bale - Get Nasty(   Читать дальше...   )Жанр: Tech House, House, Progressive HouseПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FB60508E28C5C5AE8B0EB12625DA9301E71B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718173   (111019) от 23.04.2024
+
+Sensuous Enemy - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nova [00:04:35]
+02. Fire In The Dark [00:04:26]
+03. Drift [00:03:48]
+04. Weeping Woman [00:05:14](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CE0DA6A30BE27B8387B93B9ABB4580A443773E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718371   (110960) от 25.04.2024
 
 VA - Anjunadeep presents: Earth Day 2024 (DJ Mix) (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -678,64 +736,6 @@ Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (Olly James remix
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E68DA0DAF94DB7923DA0A68BDC0B355866E86580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720289   (110426) от 02.05.2024
-
-VA - Lounge Sexiest Ladies, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah Menescal,Bellestar - Thank You (2:34)
-02. Ronan,Karen Souza - Never Gonna Give You Up (Ronan Remix) (2:15)
-03. Style Project - Don't Look Back In Anger (Nikko Mad Remix) (3:17)
-04. Jazzystics - Forever Young (Remix) (2:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E914E5BBD91AD47D16B82FB54A2C5A87F047AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719756   (110411) от 02.05.2024
-
-KAAZE - Live @ Illuzion Phuket, Thailand (2024-04-20) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KAAZE & ID - Give It To Me (Intro Version)
-02. KAAZE - The Way
-03. KAAZE - Underground (Don't You Want Me) w/Tove Lo - Habits (Stay High) (Acappella)
-04. KAAZE - ID w/Rui Da Silva ft. Cassandra Fox - Touch Me (Acappella)(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2161090CAF0BED18B02C46CE328B92DB6BCC702
 ```
 
 https://mybot314.ru/tekegram_catalog/

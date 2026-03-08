@@ -1,3 +1,29 @@
+###  Публикация: 635452   (909505) от 26.03.2013
+
+Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF8A52CE9EA3AF9C2A97D06878BEED5E029C763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 864509   (909481) от 04.02.2015
 
 Демонстрационный DVD-Video диск #3. Dolby Digital 5.1, DTS Multichannel Sound 5.1 [DVD5]
@@ -669,32 +695,6 @@ Depeche Mode - Heaven (2013) WEB-DLRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EB92CF7C91EB101F7A7E11C6FFC288E69E6B969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368692   (905554) от 22.03.2020
-
-Die Kreatur - Die Kreatur (2020) WEB-DLRip [VP9/2160p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый совместный проект вокалистов Крис Хармс (Chris Harms)Производство: Napalm RecordsЖанр: Industrial Deutschland MetalПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2444597C1E6BA139CF8865D4B2CC5C5430E84942
 ```
 
 https://mybot314.ru/tekegram_catalog/

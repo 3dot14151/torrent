@@ -1,3 +1,32 @@
+###  Публикация: 667331   (384730) от 08.10.2020
+
+VA - Jazz In Paris (2000 - 2001) 76 CD /Universal Music Paris/ [APE|FLAC|Lossless]<Jazz, Vocal Jazz, Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Michel de Villers et son Orchestre
+01. Topsy (3:15)
+02. Veal Isn't Good For Leony (3:22)
+03. Mes Freres (2:46)(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Swing, GypsyПродолжительность: 60:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85F026166798DCCA8AAD8BBE3D5E865D0C7239A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067935   (384622) от 30.10.2016
 
 Dexter Gordon - Cute: The Lionel Hampton Sessions (1977) 2003, Universe[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
@@ -714,35 +743,6 @@ Austin Cromer - Sings for Her (1964) Remaster, 2014, Warner[FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3E63E188BA87AE77DD34DEC3BAE626C4D926AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068371   (380882) от 01.11.2016
-
-John Hicks - Friends Old and New (1992) BMG[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hicks Tone [07:55]
- 02.I Want to Talk About You [05:57]
- 03.Bop Scotch [05:01]
- 04.True Blue [06:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51EBB51F81BA981871CB9C2235738D348C88D0CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1283606   (730960) от 19.02.2019
-
-Steve Hackett - At The Edge Of Light (2019) Limited Edition, Mediabook [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fallen Walls And Pedestals (2:17)
-02. Beasts In Our Time (6:21)
-03. Under The Eye Of The Sun (7:07)
-04. Underground Railroad (6:23)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87895CD15C7F9AEC7012B9D03EA766E2CC7BA2EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284043   (730938) от 19.02.2019
 
 Мамульки Bend - Письма счастья (2019) [MP3|320 Kbps] <Rock, Ska>
@@ -744,6 +715,35 @@ Richie Kotzen - Wave Of Emotion (1996) [FLAC|Lossless|image + .cue] <Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:714DB9C619172225FA4732D5CCB6C19FD74D5A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128055   (730065) от 23.04.2017
+
+Les Discrets - Predateurs (Prédateurs) (2017) Deluxe Edition [MP3|320 Kbps] <Post-Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730065.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Prédateurs
+2. Virée Nocturne
+3. Les Amis De Minuit
+4. Vanishing Beauties(   Читать дальше...   )Жанр: Post-Rock, ShoegazeПродолжительность: 01:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503A4A79C6DB71DB05D33433F23CDBFE535465B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

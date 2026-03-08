@@ -1,3 +1,32 @@
+###  Публикация: 1474940   (1012736) от 04.06.2021
+
+Rise Against - Nowhere Generation (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Numbers [00:04:59]
+02. Sudden Urge [00:03:46]
+03. Nowhere Generation [00:03:52]
+04. Talking To Ourselves [00:03:24](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE9767341584340AC599AB58A953A4A7365C734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475161   (1012453) от 06.06.2021
 
 Anchors & Hearts - Guns Against Liberty (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodic Hardcore>
@@ -730,35 +759,6 @@ Nirvana - With The Lights Out (3 × CD, Compilation) (2004) [FLAC|Lossless]<Grun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0897975EEBBDA2B7E3805921ECA219447B8C545B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353459   (991968) от 18.01.2020
-
-...And You Will Know Us by the Trail of Dead - X The Godless Void and Other Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Opening Crescendo (02:54)
-02. All Who Wander (04:56)
-03. Something Like This (04:36)
-04. Into the Godless Void (03:58)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AABB84230557A6F2D1A4FC3B996748EBA31FA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1850548   (1054403) от 28.01.2026
+
+VA - Music News For Forum vol.159 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054403.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DINARA - Синоним любви (02:53)
+ 002. Kolaba & Dima PROKOPOV - Зробіть гучніше (03:03)
+ 003. Y.K. Music - Танцюй зі мною (03:22)
+ 004. Abstract Vision & WELLHALLA & Echo Sonum - Токио, Лондон, Париж (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 19:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF5BBED8C7E908808372A2F570D22922CC4856C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849945   (1054347) от 28.01.2026
+
+VA - Russian Rock 2025 (2025) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054347.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:58]. 001-Инкогнито - Январь
+[2:46]. 002-Диана Арбенина - Вот и я
+[4:10]. 003-7Б - Я люблю её
+[3:53]. 004-Сурганова и Оркестр - Здравствуй(   Читать дальше...   )Жанр: rockПродолжительность: 07:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5ABBCE5D6FBA8A8C138F10FBC0B57C9423FED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850221   (1054262) от 26.01.2026
+
+VA - Winter Drive On FM Waves (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054262.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ezra Jot - Bang O Bang (03:31)
+ 002. Little Rainy - Be Closer (03:01)
+ 003. Paul B.Ny - Clouds In My Coffee (02:05)
+ 004. George Mars - Crown On (02:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0764271979D9E17BEADF535E9402E2E3DB346AD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850373   (1054160) от 27.01.2026
+
+Elise - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Vocal, Easy listening, French Deep House, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bonne Nuit
+02 - Décembre
+03 - Disparu
+04 - Noël(   Читать дальше...   )Жанр: Vocal, Easy listening, French Deep House, AIПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73CC4C67612674AB819C6B3B84C5AF4E295FE906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849594   (1054076) от 25.01.2026
+
+VA - Solo Projects From The Rolling Stones (1971-2024) [MP3|320 Kbps] <Rock, Blues, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Nobody Minding Your Store. live 1978 (Swindon Arts Centre) ❂ Anthology 2023
+02. All Or Nothing At All (& Bernard Fowler) ❂ Long Ago & Far Away 1996
+03. Bewitched, Bothered & Bewildered (& Bernard Fowler) ❂ Warm & Tender 1993
+04. For All We Know (& Bernard Fowler) ❂ Warm & Tender 1993(   Читать дальше...   )Жанр: Rock, Blues, JazzПродолжительность: 12:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D1AA621BB1565ED077719970AFAAE09D525997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849999   (1054052) от 25.01.2026
+
+Jupiter Panic - Collection [MP3|320 Kbps] <New Age, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise (3:38)
+02. Time Surfer (5:59)
+03. Departure (4:07)
+04. Synthetique (4:53)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 04:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B678CCD23B786461B3CA1715DC21A33B18B641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850035   (1053988) от 26.01.2026
 
 Ai - No name compilation part 46 Slow Pop Rock Ballad (2026) [MP3|320 Kbps] <Slow Pop Rock Ballad>
@@ -571,180 +745,6 @@ VA - No name compilation part 41 Assorted (2026) [MP3|320 Kbps] <Italodisco, Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2861FA5A2F71E9D2AAEA699DC942C9610B241EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847043   (1051735) от 10.01.2026
-
-VA - Лучшие песни Радио DFM за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051735.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avalan & Rokston - Something To Believe In (2:22)
-002. Tate McRae - Sports Car (2:45)
-003. Sam Feldt feat. Oaks - My Heart Goes (2:13)
-004. Gryffin feat. Kaskade & Nu-La - In My Head (3:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB69AB15A40F1C287399AC86B5A561581320FD2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846746   (1051647) от 09.01.2026
-
-VA - Лучшие песни Love Radio за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051647.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Лазарев - Тут или Там (3:24)
-002. Marshall Jefferson feat. Maesic & Salome Das - Life Is Simple (Move Your Body) (2:52)
-003. KATSEYE - Gabriela (3:17)
-004. Coldplay feat. Little Simz & Burna Boy & Elyanna & Martina Stoessel - We Pray (Tini Version) (3:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A9E932DDA13AE6D03882002BF0DE01585F36C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846508   (1051534) от 07.01.2026
-
-VA - Лучшие песни Европа Плюс за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051534.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Benson Boone - Sorry Im Here For Someone Else 79149399 (2:36)
-002. Damiano David - Next Summer (2:45)
-003. portugal. The Man, NEIKED - Glide (3:03)
-004. AVALAN ROKSTON - Something to Believe In (2:22)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925F3917D910734C2FE48A9DD22D2205289F9584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845955   (1051491) от 08.01.2026
-
-Nina Blaze - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ashtrays and Apologies
-02 - Ashes in the Waiting Room
-03 - Ash Where the Fire Was
-04 - One More Time in the Rain(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558B03F1A54DA8B08781975FCFE6259EEBF38FF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845953   (1051490) от 08.01.2026
-
-Nina Blaze - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - No Cure for You
-02 - Smoke Where Your Fire Was
-03 - Cracks in the Velvet
-04 - Shadows Without Mercy(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F4B26B5D7A6F5A10346D14A9FDE6C42415B44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846468   (1051334) от 07.01.2026
-
-VA - Music News For Forum vol.154 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051334.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alena - Ярмарка судеб (02:38)
- 002. Юлия Изюмова - Полюбила (03:33)
- 003. 6ук - Всё против нас (02:20)
- 004. 48Ронин - Ливни (02:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 17:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3E9AA41DD7CDF0B880E5332B653856678FFECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

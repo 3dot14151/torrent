@@ -1,29 +1,3 @@
-###  Публикация: 676989   (677711) от 07.07.2013
-
-Проекты - Sexy Girls - Slide Show [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания красочного и модного слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082A952606C0060F4748EB137AFD8CCE9BFBAA1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 797324   (677413) от 18.06.2014
 
 VideoHive - The Astounding Show - 4807161 [AEP]
@@ -673,6 +647,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E85B438C7B2A41FCA8E894B2CA6A45C5FDD45019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797513   (675045) от 19.06.2014
+
+VideoHive - Photo Album Slide Projector v.1 - 5149642 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675045.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора: Покажите свои фотографии в этом старом и простом стиле. Этот проект подходит для различных событий, галерей с отдыха, фотоальбомов, годовщины, дня рождения, и даже для памяти о близких.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924DA787A81AE7730C7E58BFA8510DA530902BBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1007439   (821511) от 15.04.2016
+
+VA - Re:Recommended - Progressive House Edition Vol.7 (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AKADIAN - Pseudo (Original Mix) 05:32
+02. Axay - Madagascar (Original Mix) 05:04
+03. Presskit, Naza Brothers & Braudt - I Remember (Club Mix) (feat. Kathy) 05:19
+04. Nikky Mik - Dream (Original Mix) 04:00(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53956C12AE2485FE2E834A7657E45B19FA83A120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006797   (821408) от 15.04.2016
+
+The Motels & Martha Davis - 6 Albums (1979-1987) [MP3|320 кб/с] <New Wave, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821408.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Motels - музыкальная New Wave группа из Лос-Анджелеса, известная прежде всего своими хитами "Only the Lonely" и "Suddenly Last Summer". Первый состав The Motels сформировался в Беркли, Калифорния в 1971. Лайза Бреннейс (бас) уговорила Дина Чемберлена (ведущий гитарист), Чака Уода (ритм-гитара) и Марту Дэвис (вокал, гитара) стать участниками (   Читать дальше...   )Список альбомов:
+01. 1979 - The Motels - Motels
+02. 1980 - The Motels - Careful
+03. 1982 - The Motels - All Four One(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 04:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F691E30EB8166D45820E2BA4B787F75C51D22873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116809   (821174) от 21.03.2017
 
 VA - Beats For Life Vol 1 (20 House Machines) (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -682,62 +740,6 @@ VA - Ihu Records: Best Of (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:044D04AA4E8036629FA6F363FED3E17C3DEE8623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196670   (819207) от 05.01.2018
-
-VA - Big Top Winter (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oblomov - We Love Air (Original Mix) 5:36
-02. Hddn - Rixos (Original Mix) 2:11
-03. Veide - Sunny Day (Original Mix) 5:02
-04. Sergey Srost - Summer Mood (Original Mix) 4:21(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F95465581AE2FF36A90AEEE33C961ECD61AF7E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196863   (819205) от 05.01.2018
-
-Alpha Delta Division - Outer Rim (2017) Sloboda [FLAC|Lossless|tracks|Vinyl] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outer Rim (13:36)
- 02. Region 114 (12:51)Жанр: TechnoПродолжительность: 00:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42A3400B7B946EC37701C26B5EC32B9A344CFE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

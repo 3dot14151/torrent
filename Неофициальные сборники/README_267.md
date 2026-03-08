@@ -1,3 +1,177 @@
+###  Публикация: 1403977   (684167) от 23.08.2020
+
+VA - Beatport Funky House: Electro Sound Pack #150 (2020) [MP3|320 Kbps] <Funky, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684167.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Evgeny Svalov - Discreet State
+002. Norberto Acrisio - Keep Boosting
+003. Joust Phillips - Gotta Be There
+004. Marinatone - Give Me More(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 09:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55062C397866AD736542AAA55036DA0ED5E310FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404068   (684158) от 23.08.2020
+
+VA - Громкие новинки Августа 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3-ий Январь - Фруктовый лёд (2:15)
+02. 5sta family - Rave (2:52)
+03. Agunda - Книга (2:22)
+04. Alicia Keys, Khalid - So Done (3:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF202CABEF9E3E8F2ECC553C46244600D70CC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404160   (684013) от 23.08.2020
+
+VA - Beatport Organic House: Electro Sound Pack #155 (2020) [MP3|320 Kbps] <Deep, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684013.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danny Cruz - Missing You (Original Mix)
+002. Andrea Ferri - Dangerous Stars
+003. Marching Machines - Guardian
+004. One Day Deep - Chilli Wind(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 10:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A281FCFCD6E186B3C1A09F16F44AE4B3BCD4E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289571   (683995) от 17.03.2019
+
+VA - Pretty Women Voices: The Ultimate Collection (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683995.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marilia Mendonca - Bem Pior Que Eu (Ao Vivo)
+002. Anitta feat. J Balvin - Downtown
+003. Sia - Cheap Thrills
+004. Ariana Grande - thank u, next(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762C69099E2B4A298C1233E4DA431178D1CE888D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289627   (683994) от 17.03.2019
+
+VA - NEW 2 от Виталия 72 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альберт Комаров - Моя Любовь
+02. Игорь Кибирев - Не Грусти
+03. Сергей Пискун - Я Счастлив
+04. MiyaGi & Эндшпиль - Половина Моя(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7EE3FDCB16B3DA361E99EA76CD706A9304A063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289730   (683992) от 17.03.2019
+
+Интеграл - Подпольный концерт (1980) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Взял жену с Одессы
+02 - Про Подол
+03 - На морском песочке
+04 - Нос, мой нос(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486020BA0BE8FAC5CC1FE4A50F04B106274B1FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027623   (683908) от 25.06.2016
 
 VA - Патриотический сборник: За Русь (2016) [MP3|128-320 кб/с]<Поп, авторская, народная>
@@ -589,180 +763,6 @@ Adele - Compilation (2022) [MP3|320 Kbps] <Pop, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B58C64E317F955797631AFE41376C02EB88ED1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535843   (682232) от 08.03.2022
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 116 (2022) [MP3|320 Kbps] <Club, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. 3Q - Next (Extended Mix)
-02. Akon - Right Now (Ayur Tsyrenov Extended Remix)
-03. Audiosoulz feat. Kazadi - Let The Music Play (Dj Sam & Eugene Star Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 05:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75BDD65030F318F72349054DFBB5175F5796A4EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029535   (682207) от 26.06.2016
-
-VA - Deep in the Club - Loudness Hits Vol.1 (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aftermorning - Core (Original Mix)
-02. Alan Walker - Faded (Jordi Reyes Remix)
-03. Alekseev vs. Alexander Holsten - Hold Me (ARTEM Night Mash Up)
-04. Alex Versetta feat. Dj Agios - Fortuna (Original mix)(   Читать дальше...   )Жанр: PopПродолжительность: 07:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4CC5E89C8AAFF6CB423AEC1BCA9A5D71377AE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029243   (682197) от 26.06.2016
-
-VA - Едем На Моря (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tut Tut Child Feat. Holly Drummond - Fell Down
-02. Submotion Orchestra - Red Dress
-03. Оля Полякова - О Боже Как Больно
-04. Олег Кензов - Номером Один(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FF96B41ABFB478351D26DB158C692D5F260CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029205   (682193) от 26.06.2016
-
-VA - Tantric Lounge Massage: Sexy Erotic Chill Music To Improve Your Love Life Forever (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Art of Chill - One Day - Boys of Noize Mix
-02. Skyfall - Particle of Soul
-03. Soul Diver - Deeper than Deep - Pure Chill Mix
-04. Banghra Lounge Voices - Kamasutra in Heaven - Erotic Massage Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666A054F86AA15F9D73D005A2E60204E348EE2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290110   (682157) от 18.03.2019
-
-VA - German Top 50 Party Schlager Charts 18.03.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Heute Nacht für immer
-04. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1665B035296BBDEB02CAA3CE7A5B924D55F986F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290118   (682083) от 18.03.2019
-
-VA - New Music Releases Week 10 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682083.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 13 - Oath
-002. 88GLAM, Lil Yachty, David Charles Marshall Biral, Denzel Michael-Akil Baptiste, Russell Chell - Lil Boat (Remix)
-003. Above & Beyond, Zoë Johnston - Sahara Love (Seven Lions Remix)
-004. AC Slater, Young Lyxx - Free Your Soul(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 12:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9878D5747AD0852F05AE09F1D7DF570544D0BEE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

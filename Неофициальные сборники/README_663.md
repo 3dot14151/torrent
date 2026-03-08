@@ -1,3 +1,177 @@
+###  Публикация: 1744543   (45968) от 22.08.2024
+
+VA - Music News For Forum vol.014 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45968.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daryana - Мой Парень (01:54)
+ 002. a.Ja - Засыпай (02:21)
+ 003. Adi Ulmansky feat. Rares - Mykonos (02:46)
+ 004. AllExe - Радуйся (02:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A8BEB49C0989E199B3EE1FCABA9A76E114DDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744629   (45774) от 24.08.2024
+
+VA - TOP Non-Stop 2010-2019 - Deep House. Volume 5 (2024) [MP3|192-320 Kbps] <Deep House, Progressive House, Techno House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Hertz - Ocean Drive (2016) (5:15)
+02. Zone + - Neenar (2019) (6:43)
+03. Robert R. Hardy - Haydina (2014) (6:55)
+04. RBert - Vagabundo (2018) (7:07)(   Читать дальше...   )Жанр: Deep House, Progressive House, Techno HouseПродолжительность: 09:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFF9BAA50DC2173F58BB9C32F1E8EE492DE128F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745040   (45770) от 24.08.2024
+
+Sisco Le Voyageur - Complation disc 2 (2024) [MP3|320 Kbps] <Newage, Enigmatic, Ambientmusic, Travelmusic, Romantic, Sentimental, Love>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45770.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Path of Light
+ 002.  Piano & Violon Voyageurs
+ 003.  Power Dream N°1
+ 004.  Power Dream N°2(   Читать дальше...   )Жанр: Newage, Enigmatic, Ambientmusic, Travelmusic, Romantic, Sentimental, LoveПродолжительность: 05:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066938CF0C999BA08B10C05BE3A7775E0B4BE5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745044   (45767) от 24.08.2024
+
+VA - Music News For Forum vol.015 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45767.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sabrina Carpenter - Bed Chem (02:52)
+ 002. Abraham Mateo - Hoy Tengo Ganas De Ti (02:51)
+ 003. Allti - Рассвет (02:48)
+ 004. AMELI - Нарцисс (02:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD59673BB8C6399BA8B325E4EBD1E7F4CA45684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744867   (45758) от 24.08.2024
+
+Sisco Le Voyageur - Complation disc 1 (2024) [MP3|320 Kbps] <Newage, Enigmatic, Ambientmusic, Travelmusic, Romantic, Sentimental, Love>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45758.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  All the Time
+ 002.  Amérindienne
+ 003.  Anastasia
+ 004.  Artificiel(   Читать дальше...   )Жанр: Newage, Enigmatic, Ambientmusic, Travelmusic, Romantic, Sentimental, LoveПродолжительность: 07:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BBA7B5B2A418060F41901DB40911E6CC368E914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744130   (45751) от 24.08.2024
+
+VA - Compilation  part 114 New Eurodisco (2024) [MP3|320 Kbps] <New Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Val - Through the Silence
+02. Ai Talking - Blood and Milk Girl
+03. Ai Talking - Alien Love, Alien Groove
+04. Ai Talking - Mysteries of the Night Castle(   Читать дальше...   )Жанр: New EurodiscoПродолжительность: 00:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57102198055920FCE87B14196DF266F95956E9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745592   (45541) от 26.08.2024
 
 VA - Music News For Forum vol.016 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,180 +745,6 @@ VA - compilation  part 120  Electronic Assorted (2024) [MP3|320 Kbps] <Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D47A96DAAA42DE96AE8EAC299293D4DDDC16FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747771   (44112) от 09.09.2024
-
-VA - compilation part 121 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adik - Aamazing
-02. Zerrid - Say So
-03. Alex Ne1 - Double Impression
-04. Rawbotic - Lost in Space(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCE0E3D6AEF310E7AEE963FE76CE3CE2AE52A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747732   (44102) от 09.09.2024
-
-VA - compilation part 119 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Pierce - Fog
-02. Black Sabbath - Dying for Love
-03. Michael Oakley - Left Behind
-04. Joy Peters - Winter in My Heart(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 03:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B23CA1F1220F85CCF61779A3978C02A1524DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748385   (43973) от 10.09.2024
-
-VA - TOP Non-Stop 2010-2019 - Deep House. Volume 9 (2024) [MP3|224-320 Kbps] <Deep House, Techno House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vincenzo feat. Lisa Shaw - Hello (2011) (3:12)
-02. Dominique Fils-Aimé - Sun Rise (Atjazz dub, 2019) (4:30)
-03. Babulin Dub - Sax (5:53)
-04. Two-S - You (2017) (7:16)(   Читать дальше...   )Жанр: Deep House, Techno House, Progressive HouseПродолжительность: 09:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A72CC2DFBDCC579C13B52F7E9E1DCBD8C7E9BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748699   (43902) от 11.09.2024
-
-VA - Music News For Forum vol.021 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43902.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paris Hilton - Adored (02:19)
- 002. Abraham Mateo feat. Danna Paola - El Doble (03:19)
- 003. Adam Port feat. Stryv & Malachiii & Keinemusik & Orso - Move (Cat Dealers Remix) (04:00)
- 004. Akila - А ты люби (02:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B7D95A15969B1C6380A033032D28D2AC6729EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749015   (43829) от 12.09.2024
-
-VA - Spacesynth Forever 2 (2024) [MP3|320 Kbps] <Electronic, Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 16th channel - Autumn Rain (4:14)
-02. Abbsynth - Space Wanderer (Olegris Cover) (5:23)
-03. Adam Donovan - Voyage of Discovery (5:40)
-04. Albiero - Summer History (7:14)(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 04:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55DF8E4E5374069542F87524402C0D87EA2E340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749043   (43828) от 12.09.2024
-
-VA - Electro Euphoria (2024) [MP3|320 Kbps] <House, Trance, Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nami - Take It
-002. Nurve - Gutter
-003. Pitbull, Fatman Scoop - Dont Stop The Party
-004. Dj Allan/Santana - Evil Ways(   Читать дальше...   )Жанр: House, Trance, Techno, ElectroПродолжительность: 12:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAE80F52924D18C9636EDBBC25D33826415035B
 ```
 
 https://mybot314.ru/tekegram_catalog/

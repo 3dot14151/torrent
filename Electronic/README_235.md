@@ -1,3 +1,73 @@
+###  Публикация: 524236   (611812) от 19.07.2012
+
+Grasscut - Unearth (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cut Grass (4:26)
+02. Pieces (4:58)
+03. Blink In The Night (East Coker Version) (5:08)
+04. Reservoir (4:30)
+05. Stone Lions (3:56)
+06. A Mysterious Disappearance (4:36)
+07. From Towns & Fields (4:47)
+08. Lights (3:10)
+09. We Fold Ourselves (4:37)
+10. Richardson Road (3:48)Жанр: HouseПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00B17EFD60689B1D3C584612C496158CAF6E13D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524192   (611572) от 19.07.2012
+
+VA - 55 Top Lounge Songs (2012) [MP3|320 кб/с]<Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611572.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. J Sasz - Pippo La Casa (6:30)
+2. Counting Clouds - Dream Lounge (4:17)
+3. New World Lounge - Free (5:24)
+4. Gino Patricio - Lounge Deepin - Original (5:51)
+5. Taha - I Don?t Know Myself - Max Wilhelm Remax (5:01)
+6. Slimmie - Take Me As I Am (4:28)
+7. Aquarius - Fantasia Sexual (6:11)
+8. Diario - Beijo Grande (5:38)
+9. The Big-T - Gettaway - Original Mix (7:16)
+10. Collective Sound Members - Morning Ray (4:38)(   Читать дальше...   )Жанр: LoungeПродолжительность: 04:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A03C4A1EAA2DD7658AC0078499A2957B6B36A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545592   (611238) от 21.04.2022
 
 Death Loves Veronica - Chemical (2021) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
@@ -684,64 +754,6 @@ Northern Lite - Hollywood Girl (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:433E07C6FEE042D44427818F58B3E117B24B3CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147156   (609179) от 02.07.2017
-
-VA - Dream Dance Vol.83 (2017) 3CD [MP3|320 Kbps] <Trance, House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dream Dance Alliance - Full Control (Radio Edit)  4:08
-02.  ATB - Message Out To You (feat. Robbin & Jonnis)  3:35
-03.  Dash Berlin - Coming Home (feat. Bo Bruce)  3:13
-04.  Armin van Buuren - My Symphony (The Best of Armin Only Anthem)  3:10(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 05:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0D1E33542CE5A77ADE3CD6AA785051E1E7BCFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231122   (609039) от 16.06.2018
-
-VA - Black Hole Trance Music 06-18 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Roger Shah & JES - Star-Crossed (Club Mix)
-02.Solarstone - Thank You (Extended Mix)
-03.Betsie Larkin With Dennis Sheperd & Liuck - Driving Through The Dark (Extended Mix)
-04.John O'callaghan - Choice Of The Angels(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886CF1A7095A2C97FC7C1ACF975FDC86C850212D
 ```
 
 https://mybot314.ru/tekegram_catalog/

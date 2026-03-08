@@ -1,3 +1,32 @@
+###  Публикация: 1144390   (627234) от 22.06.2017
+
+Katy Perry - Witness (Japanese Deluxe Edition) (2017) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Witness (4:11)
+02. Hey Hey Hey (3:35)
+03. Roulette (3:19)
+04. Swish Swish (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210857D1A52F8811311A78CD4D768B9360958440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035236   (626710) от 17.07.2016
 
 Dicte - Perfume (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul>
@@ -713,35 +742,6 @@ Lucho Gatica - Historia de un amor (2013) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5638D3AF7201E905E8B432AF498FE13F03AC091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146051   (617978) от 27.06.2017
-
-Carole King - The Real... Carole King (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. I Feel The Earth Move
-02. Nightingale
-03. Brother, Brother(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9E7B1249D66D8A8AE26D8176A15B48615AF289
 ```
 
 https://mybot314.ru/tekegram_catalog/

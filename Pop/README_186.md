@@ -1,3 +1,61 @@
+###  Публикация: 932389   (509003) от 29.08.2015
+
+Modern Talking - The First Album & The Second Album (30th Anniversary Limited Special Edition) (2015) 3CD [MP3|320 кб/с]<Europop, Euro-Dance, Dance-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (05:35)
+02. You Can Win If You Want (03:51)
+03. There's too Much Blue in Missing You (04:42)
+04. Diamonds Never Made a Lady (04:06)(   Читать дальше...   )Жанр: Europop, Euro-Dance, Dance-PopПродолжительность: 02:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4528915B0D5C91BEF83663215FCDDA50E951A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932165   (508926) от 29.08.2015
+
+Halsey - BADLANDS (2015) Deluxe Edition [MP3|320 кб/с]<Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castle
+ 02. Hold Me Down
+ 03. New Americana
+ 04. Drive(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE9F78EC8E546F194F9F7694699B6E279355564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315970   (508829) от 23.07.2019
 
 Antonia - Dance With Me (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -718,64 +776,6 @@ Stella (Стелла) - Я в это верю (2003) [FLAC|image+.cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D280EBC7722FEC53762DB4F2990852F4B7EEA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563723   (503519) от 15.07.2022
-
-Dina Summer - Rimini (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo Disco, Indie Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dominator (4:02)
- 02. Mars (4:54)
- 03. Uranos (5:32)
- 04. Revenge (3:35)(   Читать дальше...   )Жанр: Electronic, Italo Disco, Indie DanceПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B59AAEF6CC2E3C508AE1313AB9560D533F071D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563576   (503513) от 15.07.2022
-
-Eruption - Eruption - The Best Of Eruption (1981) Compilation, Remastered, 2017, Big Break Records [MP3|320 Kbps] <Funk, Soul, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Stand The Rain (3:09)
-02. Go Johnny Go (Keep On Walking, John B.) (3:30)
-03. Leave A Light (I'll Keep A Light In My Window) (4:21)
-04. Movin' (4:27)(   Читать дальше...   )Жанр: Funk, Soul, Pop, DiscoПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C12FA8D65282D348365E29516FFDBB5E23B994D
 ```
 
 https://mybot314.ru/tekegram_catalog/

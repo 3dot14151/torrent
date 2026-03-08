@@ -1,3 +1,32 @@
+###  Публикация: 1286738   (711206) от 03.03.2019
+
+Toby Keith - Greatest Hits 2 (2004) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711206.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	How Do You Like Me Now?! 	3:27
+2 	Country Comes To Town 	3:38
+3 	You Shouldn't Kiss Me Like This 	3:42
+4 	I'm Just Talkin' About Tonight 	2:45(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963D425B830B635F8A6840EE38BF9A0B2FF328EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286729   (711188) от 03.03.2019
 
 Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk, Country>
@@ -714,35 +743,6 @@ Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00441794190AA492295EF805F23210862E3D5F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131403   (706478) от 06.05.2017
-
-Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture Score) (2017) [MP3|320 кб/с]<Score, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fate of the Furious (03:35)
-02. Cipher (02:09)
-03. Zombie Time (06:00)
-04. Reunited (02:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF93F0A5BE7C3211C02B4DB05C2E2831D6EB1F18
 ```
 
 https://mybot314.ru/tekegram_catalog/

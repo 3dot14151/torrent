@@ -1,3 +1,177 @@
+###  Публикация: 1029925   (676786) от 29.06.2016
+
+VA - European EDM Set July (2016) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676786.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arsonnic - Poet (Original Mix)
+002. Turbotronic - Hot Body (Original Mix)
+003. Clubhunter - Me & You (Turbotronic Mix)
+004. Zimrah - Live Without You (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 09:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAFB599EDB91ACFF6B2E65485C64C0E0BB43136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136038   (676731) от 21.05.2017
+
+VA - Absolute Hits Of The 80’s (2017) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natalie Cole - Miss You Like Crazy
+02. The Smiths - Heaven Knows I'm Miserable Now
+03. Peter Cetera - Glory Of Love
+04. Los Lobos - We Belong Together(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE17ED2437548E668FDBCB481E163E9B1DC9ED90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030009   (676673) от 29.06.2016
+
+VA - Everlasting Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manius Joan Eta - Jazz Fisa
+02. New Days - The Spirits Return
+03. Right Present - Woman In Love
+04. Jean Dupont - Avenue(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A77F2442229BB17AA9D4876AE8E94423F07708A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030020   (676670) от 29.06.2016
+
+VA - Record Super Charts 442 (2016) [MP3|320 Kbps] <House, Electro House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Junior Jack -  E Samba 2016 (Freejak Remix) 5:17
+02. KSHMR & Sidnie Tipton -  Wild Card 4:21
+03. DBSTF -  Afreaka 4:01
+04. Blasterjaxx -  The Silmarillia 4:48(   Читать дальше...   )Жанр: House, Electro House, Club HouseПродолжительность: 02:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352E8CA5323D66EA90D9A93E0063736BEEF8D4B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030119   (676663) от 29.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 26 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Chroma Band - A New Day ( 1986 )
+02. 2 Eivissa - Open Your Eyes ( 1998 )
+03. Silent Circle - Oh, Don't Lose Your Heart Tonight ( Maxi Version 1987 )
+04. Alexis - Somebody Tonight ( Extended Mix 1991 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E7A9D10A7BCCEF2EECF9C1AE08E23B8EB829C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136228   (676617) от 21.05.2017
+
+VA - Back In Disco vol.2 (2017) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Project - Der Da Da Da (5:46)
+02. Arpeggio - Runaway (5:46)
+03. Claudja Barry - (Boogie Woogie) Dancin' Shoes (5:01)
+04. Laser - His Name Is Charlie (4:13)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 05:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD78800BD237173DF819590EBC66B1FE9957C8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136157   (676612) от 21.05.2017
 
 VA - Relaxing SPA Music Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Relax>
@@ -592,180 +766,6 @@ VA - Club Continued Sound Places (2016) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DA02169F6D1B1586D278BA508842EC890A41CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030402   (674988) от 30.06.2016
-
-VA - Dj Sound Club Flash Colours (2016) [MP3|240-320 Kbps] <Club, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674988.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Gollum & Empyre One - Let The Love Shine (Radio Edit) 03:34
-002. Dj Eddy-N Feat. Iva & Heat - Be Free (Club Electro Remix 2K13) 05:04
-003. Dj Dan - American Girls (Club Mix) 06:54
-004. Dj Kay Huff - Don't Let Me Down (Roby Arduini Main Floor Mix) 04:48(   Читать дальше...   )Жанр: Club, House, ElectroПродолжительность: 09:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0102EA56D71D4283D197AAD24EB546145597A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030505   (674978) от 30.06.2016
-
-VA - Bar Grooves Vol.3- From Groovy Lounge to Soft Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luigi Seviroli - Lifesource - Full Mix
-02. Jolstone - Distances - Full Mix
-03. Luigi Seviroli - Silky - Full Mix
-04. Giacomo Bondi - One Room Heart - Full Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D54CCF6BD9EE78A0FC7419CDABBE2C00E4148C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030399   (674800) от 30.06.2016
-
-VA - Digital Muse: Techno Mix July (2016) [MP3|320 Kbps] <Techno Trance, Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neos - Predator (Neos Dark Remix)
-02. No Rabbitz - El Nacimiento
-03. Andy Elliass - Gravity (Joze Linecker Remix)
-04. Manu P - Garage Monkey(   Читать дальше...   )Жанр: Techno Trance, Minimal, Tech HouseПродолжительность: 08:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A083EF213D94D7C5DFCCFE821B89E1AC5938F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030189   (674789) от 30.06.2016
-
-VA - Зарубежная Дискотека ХХ Века - 30 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. France Joli - Walking Into A Heartache ( 1983 )
-02. Europa - Europa ( 1981 )
-03. Hazell Dean - The Say It's Gonna Rain ( The Zulu Mix 1988 )
-04. Laser Cowboys - Ultrawarp ( Final Conflict 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2698A5DCFC928EB40CA63F60712BCE5EDBFC626B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030185   (674782) от 30.06.2016
-
-VA - Зарубежная Дискотека ХХ Века - 29 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avant Garde - You Got To Be Strong ( Hi-Q Mix 1994 )
-02. Paul Boy - Lucky Guy ( 1988 )
-03. Brooklyn Bounce - Take A Ride ( Radio Mix 1997 )
-04. Laserdance - Shotgun ( Into The Night ) ( 1988 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5EE0EA324BAFD88E90C6D9FA272201514858C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030181   (674776) от 30.06.2016
-
-VA - Зарубежная Дискотека ХХ Века - 28 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desireless - John ( 1986 )
-02. Curacao - You ( 1988 )
-03. Steel Mind - Bad Passion ( 1982 )
-04. Primadonna - I Wanna Give You My Heart ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756E562822C1344F8331623A0B7F71FA769C15CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

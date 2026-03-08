@@ -1,3 +1,61 @@
+###  Публикация: 1672518   (169238) от 28.10.2023
+
+VA - Techno Club Vol. 70 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169238.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. John O'Callaghan - Riverside (Extended Mix) [7:31]
+02. DJ Eternity - Living For Today (Extended Mix) [7:38]
+03. DJ Sakin & Talla 2XLC - Nomansland (David's Song) (Extended Mix) [6:54](   Читать дальше...   )Жанр: TranceПродолжительность: 03:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4ED2BA6D47C0716F9C6741B86DDD4A47951928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672151   (169226) от 28.10.2023
+
+Cocooma - The Best Of Cocooma (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cocooma - Virtual Experience (Original Mix) [7:07]
+02. Cocooma - The Escape (Original Mix) [7:15]
+03. Cocooma - Hand in Hand (Original Mix) [7:01]
+04. Cocooma - Flying Saucer (Original Mix) [7:47](   Читать дальше...   )Жанр: Hard TranceПродолжительность: 01:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A9D6375DC2E19C00AFBD10A905122C71BE96F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596729   (169222) от 11.12.2022
 
 VA - Deep Christmas Vibes (2022) [MP3|320 Kbps] <Deep-House>
@@ -679,64 +737,6 @@ Phil K & Habersham - Cloudbrake (2005) Single [FLAC|Lossless|WEB-DL|tracks] <Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1565C3125155F4093CBFE42A8A95CEAF95909306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431385   (167729) от 13.12.2020
-
-VA - Milk & Sugar Winter Sessions 2021 (2020) [MP3|320 Kbps] <House, Funky House, Afro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Delay - Freedom (Sebb Junior Extended Remix) [6:09]
-02. Ucha - Yellow Jello Slugs (Superlover Extended Remix) [4:59]
-03. The Goodfellas - Soul Heaven (David Penn Remix) [6:12]
-04. DirtyDisco - No Sunshine (Original Mix) [6:27](   Читать дальше...   )Жанр: House, Funky House, Afro House, ElectronicПродолжительность: 03:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCBEA12640F52053173F9779D3ABC8C19912701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597125   (167610) от 13.12.2022
-
-VA - Trance Party 2022 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Franck FTC - Dance On Mars (Original Mix) (6:04)
-02. STA - Analemma (Original Mix) (7:32)
-03. Sunlight Project - Lights In The Sky (Original Mix) (6:42)
-04. Sync Diversity feat. Don Achatina - Ocean Breeze (Extended Mix) (4:54)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22E64F7EE3A344BCB9F487F20271773EE4B7D66
 ```
 
 https://mybot314.ru/tekegram_catalog/

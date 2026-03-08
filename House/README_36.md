@@ -1,3 +1,32 @@
+###  Публикация: 1144158   (628902) от 21.06.2017
+
+VA - Dance Therapy, Vol. 1 (These Bangers Push You To The Limit) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bes & Meret - Free (feat Wilton De Grey - Dancecom Project radio cut)
+02. Tydra - Sunshine (Mavaro & Maxtreme remix)
+03. Amoon - Since You've Been Gone (feat Pit Bailey - Club mix)
+04. Fooh Funk - Be In Love (Mario Chris remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB83800C6BC495BDECDFACF3DF31056453B681A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144471   (627907) от 22.06.2017
 
 VA - Clinique Sampler (Part 94) (2017) [MP3|320 Kbps] <House,Progressive House>
@@ -723,35 +752,6 @@ VA - Latin Workout Hits 2018 [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68C4DEEF1D7C2E2659BC11C47FBB219764B81DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230355   (615632) от 12.06.2018
-
-VA - Bike Ride Experience Music (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danson - Price
-02. Danny D - Yep
-03. Cymbal - Gaps
-04. Corteza - Home(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0335E1BC6EB541871448EEDC9716A611FD3EB102
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1856190   (1058724) от 26.02.2026
+
+BlackRain - Orphans of the Light (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams(5:27)
+02. Come On(4:21)
+03. Orphans of the Light(5:20)
+04. Unleash the Fury(5:23)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86B5ADC6DA94CF4D4E1D113D73D1C8067C78218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856191   (1058723) от 27.02.2026
 
 Paul McCartney - Man on the Run (Music from the Motion Picture Soundtrack) (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -714,35 +743,6 @@ The Enemy - Social Disguises (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <British
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B85267FE22588B75241F7291C2E585B03BBC52C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855316   (1057959) от 22.02.2026
-
-Slik Helvetika - Walk Through Fire (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solarhead 03:41
-02. Beautiful 04:07
-03. Shoot 03:50
-04. Walk Through Fire 04:17(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423502275488069F576E87ABBA66C58FD57CC0B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

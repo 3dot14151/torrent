@@ -1,3 +1,32 @@
+###  Публикация: 1255829   (361769) от 19.10.2018
+
+Bob Cooper - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361769.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Group Activity [2:34]
+02. Excursion [3:42]
+03. Polka Dots And Moonbeams [3:03](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, West Coast JazzПродолжительность: 03:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7548A3DE7E2D47BB3C661373C1C9B0EE41C4468A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255677   (361663) от 19.10.2018
 
 Sonny Clark - Cool Struttin (1958) RVG Edition, 1999, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Hard Bop>
@@ -717,35 +746,6 @@ Kurt Elling - The Beautiful Day: Kurt Elling Sings Christmas (2016) Sony Music M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0593A3349B162ACBDDAB88FC0067557FFE07AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071503   (357129) от 11.11.2016
-
-Sam "The Man" Taylor - Sam Taylor Pops Daizen Shu (2003) [FLAC|Lossless|image + .cue] <Instrumental, saxophone>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harlem Nocturne (2:49)
-02. Danny Boy (2:57)
-03. Stardust (3:03)
-04. Smoke Gets In Your Eyes (3:15)(   Читать дальше...   )Жанр: Instrumental, saxophoneПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5664F0E6C32063AE6F843AE4754A3F7F55464A40
 ```
 
 https://mybot314.ru/tekegram_catalog/

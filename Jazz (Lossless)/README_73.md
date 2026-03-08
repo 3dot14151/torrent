@@ -1,3 +1,32 @@
+###  Публикация: 1275479   (790522) от 11.01.2019
+
+David Tixier Trio - Universal Citizen (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far From the World
+02. Tokyo
+03. Lost Among Ghosts
+04. Tribute to an Old Man(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B083EAFAED5EBCBAEAA6CF333F7050D123D796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275280   (790521) от 11.01.2019
 
 Chris Whitehouse's Connected - Grounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
@@ -716,35 +745,6 @@ Jamie Lancaster - Duets (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCCCF0EAFD0723572965F53E6B8033FEE0BB6584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511294   (789376) от 20.11.2021
-
-Phil Woods With Strings - The Thrill Is Gone (2003) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And When We're Young [8:26]
-02. I Get Along Without You Very Well [4:54]
-03. You Go To My Head [5:30]
-04. It Never Entered My Mind [8:59](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9D81FECE12DA400F68697B60C925EC7CD095DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

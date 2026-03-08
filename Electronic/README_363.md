@@ -1,3 +1,61 @@
+###  Публикация: 1184572   (295192) от 20.11.2017
+
+VA - Amsterdam Trance Sessions Vol.13 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deathmind - Inside (Original Mix)  7:46
+02.  Precious Affliction - Castle Of Glass (Original Mix)  7:54
+03.  Paul Denton - Zombie (Original Mix)  6:59
+04.  Shane Infinity - Heaven's Gate (Original Mix)  6:44(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0647FF64178819477377B3096DC065164274ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185206   (295179) от 20.11.2017
+
+Late Night Alumni - The Ghost (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo, Vocal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ghost (3:49)
+ 02. Lovers (3:25)
+ 03. Fight or Fly (5:04)
+ 04. Can't Wait (4:03)(   Читать дальше...   )Жанр: House, Downtempo, VocalПродолжительность: 00:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:027D576ACDEA2F4C3789300B126F760AD7A2AEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262363   (295024) от 15.11.2018
 
 VA - Viewpoints Chapter One (2008) AW-Recordings [FLAC|Lossless|tracks+.cue] <Techno, Electro, Detroit Techno>
@@ -678,62 +736,6 @@ Cherry (UA) - Hello (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:982FC83DE91D480F11A9D46CC6D69D1882A850C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262571   (293500) от 16.11.2018
-
-Jacob Singer - Elohim (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elohim (Original Mix)
-02. The Book Of Enoch (Original Mix)Жанр: Progressive HouseПродолжительность: 00:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FA980DB4F96820799092268BA6D046CEE4D5AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185297   (293477) от 21.11.2017
-
-Purple Disco Machine - Soulmatic (2017) [MP3|320 Kbps] <House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Disco Machine feat. Lorenz Rhode - Music in You (4:31)
-02. Purple Disco Machine - Body Funk (4:17)
-03. Purple Disco Machine & Boris Dlugosch feat. Karen Harding - Love for Days (3:16)
-04. Purple Disco Machine feat. CeeLo Green - Pray for Me (5:42)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8152C1D4D727DE0D3563C6D879AF006926600A98
 ```
 
 https://mybot314.ru/tekegram_catalog/

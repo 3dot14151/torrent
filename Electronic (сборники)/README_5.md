@@ -1,3 +1,32 @@
+###  Публикация: 1451524   (1028239) от 03.03.2021
+
+VA - House Garden Music: Deep Session (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшее средство от депрессии и подавленного настроения - музыка сборника от House Garden Music! Композиции могут похвастаться великолепной атмосферой позитива и тонким чувством стиля. Альбом буквально полностью пропитан легкими нотками романтики и танцевального духа. Хорошая работа во всех смыслах. Приятного прослушивания!01. Jt Donaldson - Untied
+02. Sharam - Do Ya
+03. Gerah - Iris (Original Mix)
+04. Wolf Story - Peak(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F228C322313BDE296D87988BDE16AF951A07754B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451523   (1028238) от 03.03.2021
 
 VA - EDM Neon Hypnotic (2021) [MP3|320 Kbps] <EDM, House, Techno, Electro, Club>
@@ -716,35 +745,6 @@ VA - Neverending Sunrise (2021) [MP3|320 Kbps] <Progressive, Vocal House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8723578DC36643851515DDA971414D88C1BF1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455696   (1025490) от 20.03.2021
-
-VA - Glow Party: Trance Favorites (2021) [MP3|320 Kbps] <Trance, Uplifting, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка сборника "Glow Party: Trance Favorites" подкупает своего слушателя чистотой звучания, продуманной аранжировкой и прекрасным вокалом. Треки приятно слушать, они мелодичны и определенно создают положительное мнение о своих создателях.001. Paul Denton & Will Rees - Fluidity
-002. Smith & Brown - Phobos
-003. Tranzlift & Alternate - High Arcturus
-004. Aura Infinity - Phosphor(   Читать дальше...   )Жанр: Trance, Uplifting, ProgressiveПродолжительность: 13:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5865BBAD625CDFFF5E0C02C72864622F7CE13C30
 ```
 
 https://mybot314.ru/tekegram_catalog/

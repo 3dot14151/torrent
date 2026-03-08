@@ -1,3 +1,29 @@
+###  Публикация: 625733   (947949) от 03.03.2013
+
+Делай ставки и взрывай. Сокровища дома у озера. Серия №5 / Bid & Destroy. Lake House Riches (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот новый сериал рассказывает о работе компании «Danley Demo» из Нью-Гэмпшира, участвующей в тендерах на демонтаж зданий по всей Новой Англии в надежде на то, что объекты, которые ей предстоит снести, – а их у этой фирмы обычно бывает свыше 200 в год, – принесут ей богатство. Выиграв тендер, герои программы сначала раскурочивают весь дом в поисках забытых ценностей, (   Читать дальше...   )Жанр: Документальный, научно-познавательный, исследованиеПеревод: Профессиональный одноголосыйПродолжительность: ~ 00:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294C9D804C54DCB60B5B4B7FB87B8C439C1584EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362729   (947948) от 24.02.2020
 
 Icecream PDF Editor PRO 2.09 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -657,35 +683,6 @@ Native Instruments - Kontakt 6.2.2 STANDALONE, VSTi (x86/x64) Portable by vkDani
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24263495FA59B2941DEA74B8BC200D084F4C4AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090141   (947691) от 06.01.2017
-
-VA - Best Of LW: Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Juventa - A Thousand Words (Original Mix) 7:41
-02.  Vicky Devine - Stellium (Original Mix) 8:13
-03.  Tempo Giusto - Unknown Dancer (Original Mix) 8:34
-04.  Ferry Tayle - Geometrix (Original Mix) (feat. Driftmoon) 6:46(   Читать дальше...   )Жанр: TranceПродолжительность: 03:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4F3ECD949964892FD9866ECF758C93ABA26346
 ```
 
 https://mybot314.ru/tekegram_catalog/

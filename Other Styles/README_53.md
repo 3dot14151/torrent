@@ -1,3 +1,32 @@
+###  Публикация: 1213783   (766556) от 19.03.2018
+
+Richard Clayderman - Ballade pour Adeline (2012) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade pour Adeline
+02. Couleur tendresse
+03. Les larmes de joie
+04. Pour avoir trop reve(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497E4C7D79F086A73D2D02F996A111E265E9A755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213994   (766545) от 19.03.2018
 
 Хелависа - Люцифераза (2018) [MP3|320 Kbps] <Folk, Folk Rock>
@@ -716,35 +745,6 @@ Friska Viljor - Broken (2019) [MP3|320 Kbps] <Indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:782B209501200CED3D7ED6F834EC8EA24B88B43C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280601   (760196) от 03.02.2019
-
-ДиДюЛя - Седьмое чувство (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Колесо времени (Велюровый вальс)
-02.Покорители пространства (Ветряные мельницы)
-03.Танец с дождём (Причудливые круги)
-04.Люди индиго (Объект перемен)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616E0A0E66405B7382AD69720B8D385DE4831627
 ```
 
 https://mybot314.ru/tekegram_catalog/

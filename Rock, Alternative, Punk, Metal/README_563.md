@@ -1,38 +1,3 @@
-###  Публикация: 539631   (506742) от 26.08.2012
-
-VA - Good Rockin' Tonight: The Legacy of Sun Records (2001) [MP3|320 кб/с]<rock & roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506742.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. That's All Right Mama - Paul McCartney
-2. Mystery Train - Jeff Beck & Chrissie Hynde
-3. My Bucket's Got a Hole in It - Jimmy Page & Robert Plant
-4. Blue Suede Shoes - Johnny Hallyday
-5. Whole Lotta Shakin' Goin' On - Elton John
-6. Blue Moon of Kentucky - Tom Petty
-7. Sitting on Top of the World - Van Morrison & Carl Perkins
-8. Don't Be Cruel - Brian Ferry
-9. Red Cadillac and a Black Moustache - Bob Dylan
-10. Walkin' in the Rain - Eric Clapton(   Читать дальше...   )Жанр: rock & rollПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66A45BB7824940B3B7DBDCD99F8746877788CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539398   (506693) от 26.08.2012
 
 Warhorse - 2 albums (1970-1972) [MP3|320 кб/с]<Hard Rock>
@@ -769,6 +734,32 @@ Blue Goose - Blue Goose (1975) Japanese Edition, 2004, Air Mail Archive [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33E298DEAFE4E1D9CCA099C7990DF699F1AAE82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563025   (506222) от 12.07.2022
+
+Джанни Родари - Призрак Тома Джоуда (2021) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Призрак Тома ДжоудЖанр: Rock, SkaПродолжительность: 00:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9055847400BD7DAAC33935F447B1F17075D4BE93
 ```
 
 https://mybot314.ru/tekegram_catalog/

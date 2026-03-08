@@ -1,3 +1,67 @@
+###  Публикация: 918337   (584777) от 17.07.2015
+
+Fancy - Playa De Palma (Nonstop-Hit-Party) (2015) [MP3|320 кб/с]<EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy feat. Coconut Boys & Latoya Turner - To the Music Hitmakers (Medley)
+ 02. Fancy - Slice Me Nice
+ 03. Fancy - Flames of Love
+ 04. Coconut Boys & Latoya Turner - Sun of Jamaika(   Читать дальше...   )Жанр: EuroDisco, ElectronicПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554EBFE83C58EAD4827EA9B94050329D2F7B837D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810233   (584486) от 04.08.2014
+
+Baltimora - Living In The Background (2005) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tarzan Boy 6:12
+02. Pull The Wires 4:40
+03. Living In The Background 6:05
+04. Woody Boogie 5:53
+05. Chinese Restaurant 5:11
+06. Running For Your Love 5:53
+
+Bonus Tracks:
+
+07. Tarzan Boy (Summer Version) 6:42(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9933D002D0E90D7D9696110E52F8A846E8E83AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810210   (584447) от 04.08.2014
 
 Gabrielle Aplin - English Rain (2013) [FLAC|Lossless]<Indie Pop, Folk, Country>
@@ -736,76 +800,6 @@ Scotch - The Maxi-Singles Collection (2008) [APE|Lossless]<Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA81B3C81FD371A6CE3791B78ADE8DD0D01271C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811133   (581485) от 07.08.2014
-
-Grant Miller - The Maxi-Singles Collection (2007) [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder Than Ice 5:35
-02. Red For Love 5:28
-03. Doctor For My Heart 5:16
-04. I'm Alive Tonight 3:59
-05. Wings Of Love 5:15
-06. California Train 4:54
-07. (Find My) Tracks In The Snow 5:06
-08. Break Away 5:52
-09. Stranger In My Life 4:29
-10. In The Rain Again 4:57(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D4D746FF999D533B847BFE605A076E9B0F8300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810990   (581481) от 07.08.2014
-
-Baby's Gang - Challenger (2008) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Challenger 5:16
-02. Jamin 5:56
-03. Happy Birthday (To My Mammy) 4:55
-04. Happy Song 5:35
-05. My Little Japanese Boy 4:22
-06. Step By Step 4:32
-07. America 4:26
-08. Challenger (Instrumental Mix) 3:04
-09. Disco Maniac 5:45
-10. Let's Dance In The Music 4:39(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93A1BDF3516928FC2EFFFE840B6D2E90420DD72
 ```
 
 https://mybot314.ru/tekegram_catalog/

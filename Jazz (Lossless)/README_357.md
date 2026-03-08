@@ -1,3 +1,32 @@
+###  Публикация: 1805740   (65415) от 09.07.2025
+
+Morris Nanton Trio - The Original Jazz Performance Of Roberta (1958) 2012, Warner [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Devastating [2:34]
+02. Smoke Gets in Your Eyes [5:48]
+03. Let's Begin [3:53]
+04. I Won't Dance [4:23](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D634598FC67F1ED4FDBCA87785B352B9C7DD9B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806047   (65412) от 10.07.2025
 
 Joe Pass Quartet - Live At The Encore Theatre (1964) 2017, Phono [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz>
@@ -716,35 +745,6 @@ VA - Chillout Jazz Del Mar Summer 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C63EFD0F07147A8303F87E75D1069B26C4444F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809687   (64695) от 31.07.2025
-
-VA - Under The Umbrella (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Banda Brasileira - Stars (3:57)
-02.  Don Carlos - Free (4:52)
-03.  Sarah Jane Morris - Let The Music Play (4:03)
-04.  LTJ XPerience - You Will Know (6:45)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017C945AD8C126C444EA906A963C3FC1D266C7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

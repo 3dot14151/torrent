@@ -1,3 +1,32 @@
+###  Публикация: 1273247   (137929) от 31.12.2018
+
+David Wilson - There's A Small Hotel (1997) Swallowtail Records [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm in the Mood for Love [2:13]
+02. Isn't It Romantic? [2:10]
+03. La Vie en Rose [2:52]
+04. Are You Lonesome Tonight? [2:14](   Читать дальше...   )Жанр: Jazz-Pop, Violin JazzПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622D88408B66E9E37B9216D952BAB87A12DA44E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273245   (137924) от 31.12.2018
 
 David Wilson - Easy to Love: The Music of Cole Porter (2001) Swallowtail Records [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Violin Jazz>
@@ -764,35 +793,6 @@ Herb Ellis / Ray Brown Sextet - Hot Tracks (1976) 1990, Concord Jazz [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D108E0A1C5FA67B766CF5A02C3818C8B5D727A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680404   (134275) от 29.11.2023
-
-Shakatak - Eyes of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Disco, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Gonna Getcha [00:04:37]
-02. Eyes of the World [00:05:13]
-03. Sunflowers [00:05:28]
-04. Love Will Take You There [00:05:12](   Читать дальше...   )Жанр: Smooth-Jazz, Disco, FunkПродолжительность: 01:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D646E331769DBF7DBBEF273B34BC817F9FBD67
 ```
 
 https://mybot314.ru/tekegram_catalog/

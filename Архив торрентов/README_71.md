@@ -1,3 +1,29 @@
+###  Публикация: 1443668   (1035502) от 29.01.2021
+
+Synkmark 2.11.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Synkmark - это приложение для синхронизации закладок между Safari, Google Chrome, Firefox, Vivaldi, Opera, Brave и Epic. Synkmark также может упорядочивать ваши закладки в алфавитном порядке по вашему усмотрению, проверять их и на наличие дубликатов. Synkmark совместим с закладками Safari в iCloud, Firefox Sync, Chrome Sync, Vivaldi’s Sync и Opera Sync, поэтому, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.01.2021Разработчик: Sheep SystemsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8DE2B5D9BC2EA8771E6BAEF9A8D172F3B248C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443558   (1035501) от 29.01.2021
 
 Keep It 1.9.7 [Multi]
@@ -647,33 +673,6 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2814E4D73398946D644EEB5C1C4198A5C9FEEB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617432   (1035360) от 06.03.2023
-
-Sumatra PDF 3.5.15336 (x64) Pre-release + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5B6F6A4857FD722BEA6817BAB250A1CCC9283D
 ```
 
 https://mybot314.ru/tekegram_catalog/

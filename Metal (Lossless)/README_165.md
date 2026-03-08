@@ -1,3 +1,67 @@
+###  Публикация: 562336   (405234) от 20.10.2012
+
+Machinae Supremacy - Rise Of A Digital Nation (2012) [FLAC|Lossless]<SID-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_405234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All of My Angels (4:54)
+02. Laser Speed Force (4:07)
+03. Transgenic (4:09)
+04. Rise of a Digital Nation (4:08)
+05. Pieces (4:16)
+06. Cyber Warfare (1:26)
+07. Republic of Gamers (4:14)
+08. Battlecry (4:16)
+09. 99 (5:26)
+10. Hero (5:24)Жанр: SID-MetalПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168534   (405040) от 25.09.2017
+
+Vektor - Terminal Redux (2016) [FLAC|Lossless|image + .cue] <Thrash, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405040.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Charging the Void (9:11)
+2.Cygnus Terminal (8:15)
+3.LCD (Liquid Crystal Disease) (7:33)
+4.Mountains Above the Sun (1:22)(   Читать дальше...   )Жанр: Thrash, Progressive MetalПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B20F0BA4825F8B0A4C0E7733A3B2632698EFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563305   (404946) от 21.10.2012
 
 Daylight Dies - A Frail Becoming (2012) [FLAC|Lossless]<Melodic Death/Doom Metal>
@@ -387,41 +451,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566793   (397977) от 28.10.2012
-
-Cradle Of Filth - The Manticore & Other Horrors (2012) Limited Edition [FLAC|Lossless]<Symphonic Black Metal, Extreme Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Unveiling of O (2:07)
-02. The Abhorrent (5:53)
-03. For Your Vulgar Delectation (04:47)
-04. Illicitus (5:24)
-05. Manticore (05:54)
-06. Frost on Her Pillow	(04:12)
-07. Huge Onyx Wings Behind Despair (4:23)
-08. Pallid Reflection (5:35)
-09. Siding With the Titans (5:17)
-10. Succumb To This (4:34)(   Читать дальше...   )Жанр: Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170986   (397765) от 03.10.2017
 
 Broken Hope - Mutilated And Assimilated (2017) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -473,40 +502,6 @@ Evil Invaders - Feed Me Violence (2017) [FLAC|Lossless|image + .cue] <Thrash Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73A1E1BD952D2BE1B7F4074415D828AADE0E1548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567345   (396986) от 29.10.2012
-
-God Seed - I Begin (2012) [FLAC|Lossless]<Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awake 04:43
-02. This From The Past 05:18
-03. Alt Liv 04:08
-04. From The Running Of Blood 04:19
-05. Aldrande Tre 04:56
-06. Hinstu Dagar 04:45
-07. Lit 05:17
-08. The Wound 04:44
-09. Bloodline 03:43Жанр: Black MetalПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

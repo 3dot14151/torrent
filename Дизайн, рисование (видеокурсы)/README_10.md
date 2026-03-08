@@ -1,3 +1,31 @@
+###  Публикация: 1457927   (1023740) от 29.03.2021
+
+Knower School | Игровая модель топора (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023740.jpg" />
+</div>
+
+
+###  Подробнее
+
+игровая модель топора
+описание настроек и инструментов программы
+бонусное видео по принципам создания своих моделейПроизводство: Knower SchoolЖанр: обучающее видео, видеоурокПродолжительность: 03:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD075EF9245A6E3A113D450AFE655524A0EB7253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384297   (1023739) от 29.03.2021
 
 CG Cookie, Jonathan Lampel | Основы цифрового освещения в Blender 2.82 / Fundamentals of Digital Lighting in Blender 2.82 (2020) PCRec [EN]
@@ -658,35 +686,6 @@ Creative Shrimp | Создание стилизованного 3D арта в B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9B3C3BA91E27092B8819DD3861EEFA9F3255231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466200   (1017812) от 03.05.2021
-
-CG Fast Track | Создание автомобиля в Blender 2.90 части 1-3 / Blender Car Series Vol. 1-3 (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия из трёх курсов по созданию автомобиля в Blender 2.90:
-Blender Car Series Vol 1: Modeling - Моделирование
-Blender Car Series Vol 2: Rendering - Рендеринг
-Blender Car Series Vol 3: Cinematic Studio Lighting - Кинематографическое студийное освещениеПроизводство: CG Fast TrackЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 14:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31166538A53B80F07CEE321A39454C3FCCB2167F
 ```
 
 https://mybot314.ru/tekegram_catalog/

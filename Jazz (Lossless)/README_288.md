@@ -1,3 +1,32 @@
+###  Публикация: 1677065   (153591) от 16.11.2023
+
+Dizzy Reece - Blues In Trinity (1958) 2005, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues in Trinity [6:48]
+02. I Had the Craziest Dream [3:06]
+03. Close-Up [10:43]
+04. Shepherd's Serenade [6:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D8E00AAA3652335FA2BDD00110AB7A6C033230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086143   (153587) от 24.12.2016
 
 The Trombones, Inc. - The Trombones, Inc. (1958) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -720,35 +749,6 @@ Andreas Georgiou - Asate (2003) [FLAC|Lossless|tracks + .cue] <Fusion, Vocal Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73806D3B70CFDC57623AC22C540504E041A19DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434326   (151869) от 24.12.2020
-
-Jerry Bergonzi - Spotlight On Standards (2016) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Witchcraft [8:57]
-02. Bi-Solar [7:03]
-03. Blue Cube [8:27]
-04. First Lady [6:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6C0D16C71052F4C2E8B869F6334CC424211BDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

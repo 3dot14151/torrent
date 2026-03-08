@@ -1,3 +1,61 @@
+###  Публикация: 954613   (339478) от 08.11.2015
+
+Lara Fabian - Ma vie dans la tienne (2015) [MP3|320 кб/с]<Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quand je ne chante pas
+ 02. Ma vie dans la tienne
+ 03. Le desamour
+ 04. S'il ne reste qu'un ami(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8518A595AC4389EBB115EAE2F69B85EAB2D377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954677   (339466) от 08.11.2015
+
+Secret Service - Disco Collection (2001) [MP3|320 кб/с]<Synthpop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Susie (03:37)
+02. Cry Softly (Time Is Mourning) (03:31)
+03. Ten O'Clock Postman (03:38)
+04. Let Us Dance Just A Little Bit More (04:25)(   Читать дальше...   )Жанр: Synthpop, DiscoПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2658F0F0542E8C03AC950AEC9B2F533AFF14A836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954779   (339246) от 08.11.2015
 
 Boney M - Greatest Hits (2008) [MP3|320 кб/с]<Pop, Disco, Retro>
@@ -694,64 +752,6 @@ Blue Hawaii - Open Reduction Internal Fixation (2019) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C54598AB9EB3712A644398815B99CAAB928385C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330914   (336731) от 12.10.2019
-
-Cloud One - 2 Albums (1976, 1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atmosphere Strut (9:23)
-02. Spaced Out (6:38)
-03. Charleston Hopscotch (6:26)
-04. Dust To Dust (4:33)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCF229EDC6115643C05D8C068B6B27694143B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258463   (336645) от 30.10.2018
-
-VA - Discofox Megahits Vol.4 (2018) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockstroh - Vermissen
-02. Pures Glück - Uns verbrennt die Nacht
-03. Mike Bauhaus - Mr. Right
-04. Sonia Liebing - Tu nicht so(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA1C7B2B15C377B958F455F823F1069331445D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

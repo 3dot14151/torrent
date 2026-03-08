@@ -1,3 +1,177 @@
+###  Публикация: 1135755   (678962) от 20.05.2017
+
+VA - Шальной шансон в дорогу выпуск № 11 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Дадали & Алексанр Дюмин - За Сто Причин Его Морщин 4:21
+002. Павел Филатов & Вне Зоны - Хочу Женится 4:15
+003. Андрей Никольский - Не Знаешь Ты 4:22
+004. Слава Благов - Шторм Без Правил 4:13(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87775B6B1B939277BD09144644B5FD3A42153F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135742   (678960) от 20.05.2017
+
+VA - Душевный сборник Русского радио выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678960.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Блокбастер - Детка 3:25
+002. Ирина Билык - Разреши 3:23
+003. Ирина Билык - Боже Мой 4:43
+004. Lilika - Город Не Спит 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC1E23FDC6266F01441E203132DF5B78EE4D122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135754   (678955) от 20.05.2017
+
+VA - Empire Records - Retromania (2017) [MP3|320 Kbps] <Disco, Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mars - Disco Perpetrator (Original Mix) 5:59
+02.  Boris Zhivago - Lonely Lover (Classic Extended Mix) 6:12
+03.  Butterfly - Sorrow (Vocal) 8:31
+04.  Global Hit Makers - Shadows (feat. Marco Musca) 3:54(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 01:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49FB4BBF623F68F22B91D665DA240984CA3338E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135762   (678950) от 20.05.2017
+
+VA - Песни для души от радио Шансон. Сборник № 7 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678950.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Игорь Латышко - Шери Ягодка 3:19
+002. Жека - Цвет Шафрана 3:20
+003. Стас Михайлов - Я Столько Не Выпью 3:21
+004. Денис Мафик - За Все Хорошее 3:23(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC556650361DA096ECAAC57B6F34C3B36F624902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135844   (678854) от 20.05.2017
+
+VA - Electronic Toys (A Retrospective Of 70's Synthesizer Music) (1996) CD [MP3|320 Kbps] <Electronic, Synth-pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник - электронные игрушки: ретроспектива 70-х Синтезаторной музыки. Ретро - подборка от Фреда Вайнберга электронной и синтезаторной музыки, звуковых эффектов, звучавших в старых британских сериалах для школ и колледжей, фильмах, рекламе на радио и т. д.01. Cecil Canterburn - Catching Game (2:01)
+02. Rex Brown Company - Round Up (0:45)
+03. Dave Vorhaus - The Diy Machine A (1:03)
+04. Dave Richmond - Movin' Along (1:56)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E30A4EEF42FC0FE1CC1FA6DA767367E055D977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135766   (678836) от 20.05.2017
+
+VA - Весенний хит русского шансона. Сборник № 10 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678836.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Наташа Богданова - Поздравление 3:13
+002. Сергей Сорокин - Здравствуйте 3:10
+003. Елена Конькова - За Пазухой 3:10
+004. Белое Золото - На Минуту 4:08(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BCDCB020D3CD3416E9A5E66D4C954D8A454FA1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223136   (678717) от 02.05.2018
 
 Avril Lavigne - My Happy Ending (2018) Remix [MP3|320 Kbps] <Deep, Techno>
@@ -569,177 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F4D8FFA5BDDFAD48E04C9D41393253A92D95815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029689   (678471) от 28.06.2016
-
-VA - Club Dance Ambience vol.75 (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daniel Moss & Gandalf Bosch Feat. Francy -  Mi Alma (Instrumental Edit) 3:17
-002. KSHMR & Felix Snow feat. Madi -  Touch (Runway Remix) 4:56
-003. Hardwell feat. W&W -  Jumper (Madd Dave Bootleg) 4:53
-004. Robin Schulz feat. Akon -  Heatwave (Muzzaik Remix) 4:17(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511301DAC97601D4003016B1BE0F9AA95330C9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029687   (678467) от 28.06.2016
-
-DJ Nurlanus - Summer Dance Mix 5 (2016) [MP3|320 Kbps] <House, Dance Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678467.jpg" />
-</div>
-
-
-###  Подробнее
-
-СборникЖанр: House, Dance PopПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B058F1D4B5B34E4829C0C5548AF403127C650D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290489   (678371) от 20.03.2019
-
-VA - YR Best Chillout Vol.41 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678371.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Seven24 & Soty feat. Maria Opale - Don't You Cry (Alexander Volosnikov Remix) 4:59
-002. Rank1 - Airwave (Vyacheslav Sketch Remix) 5:49
-003. Aurosonic feat. Katty Heath - My Good Place (Mark Otten Downtempo Remix) 7:00
-004. Vyacheslav Sketch - Forever (Original Mix) 4:13(   Читать дальше...   )Жанр: Chillout, Downtempo, Lounge, Trap, Ambient, ElectronicaПродолжительность: 06:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6A4554FA17F21009B4D923ACD1D50B80B35322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290484   (678357) от 20.03.2019
-
-VA - YR Best Chillout Vol.40 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Balearic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678357.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. SolarFlow - My Blue Sea (Original Mix) 3:56
-002. Jonathan Mendelsohn feat. Jason Ross & Seven Lions - Ocean (Grant Remix) 3:30
-003. Nastya Kazantseva - Nice Dream (Original Mix) 3:11
-004. Алла Пугачёва - Журавлик (Lasteden Chillout Remix) 3:47(   Читать дальше...   )Жанр: Downtempo, Chillout, Balearic, Lounge, ElectronicaПродолжительность: 06:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538C6FD64BFB4DF8195239F6E980CCBA66B51FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290431   (678355) от 20.03.2019
-
-VA - Inferno Techno Electronics (2019) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678355.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joеl Jungеll -Astrаl
-002. Asс -Stаsis
-003. Hаrd Drivеr -Thаnk Mе Lаtеr (Extеndеd Mix)
-004. Boston 168 -Psу Wаvеs(   Читать дальше...   )Жанр: TechnoПродолжительность: 11 :42 :13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4833D0324BA5A1AE17BC9F4B55C310C96E487CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029654   (678332) от 28.06.2016
-
-VA - Best Body 2016 - Tribute to Pop Hits (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay - A Sky Full of Stars (Hardwell Remix)
-02. Charli XCX - Break the Rules (Tiesto Remix)
-03. Melanie Martinez - Carousel (SNBRN Remix)
-04. Clean Bandit - Rather Be (feat. Jess Glynne)Жанр: PopПродолжительность: 03:15:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D63C037FA2A03647225EC52BE1F397097B4EAC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

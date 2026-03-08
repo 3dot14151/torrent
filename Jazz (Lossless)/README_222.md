@@ -1,3 +1,32 @@
+###  Публикация: 1184939   (297444) от 19.11.2017
+
+Chantale Gagne - Rooftop Jazz (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Get It
+02. A Foggy Night in Charleston
+03. The Greeter
+04. The Sheik of Araby(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5AE36AAF945D8310B66C1B6A9D0B6002FB8E774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962081   (297238) от 03.12.2015
 
 Don Friedman - Hope For Tomorrow (1975) 2015, Universal[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
@@ -716,35 +745,6 @@ SaraLee - Queen Of Your Heart (2016) Scene [FLAC|Lossless|tracks] <Rockabilly, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:735696460516C52219A30644436B2791694B79A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079623   (294187) от 04.12.2016
-
-Swing Republic - Midnight Calling (2012) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy In Love
-02. Fall
-03. Mama
-04. Midnight Calling(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE78175944421F28F11D830C1EE0766EF89ED3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

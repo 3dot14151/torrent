@@ -1,3 +1,32 @@
+###  Публикация: 1771854   (31583) от 08.01.2025
+
+VA - Disco Down The Best of 2021 (2021) [MP3|320 Kbps] <House, Nu-Disco, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FLIP-DA-FUNK - Ready For This (06:45)
+02. Discoloverz - Dig This (feat. Rick Marshall) (05:47)
+03. Mike Chenery - House Was Disco (Club Mix) (06:05)
+04. FLIP-DA-FUNK - I Luv Music (05:50)(   Читать дальше...   )Жанр: House, Nu-Disco, ElectroПродолжительность: 06:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635F006C8735CBE82E68F6759795F6B6FD06B639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771856   (31580) от 08.01.2025
 
 VA - Disco Down The Best of 2023 (2023) [MP3|320 Kbps] <House, Nu-Disco, Electro>
@@ -716,35 +745,6 @@ VA - Beach Mode ON! (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D040296E29A3DD7B504A9B0D9D64BA0BB3420421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798726   (17313) от 23.05.2025
-
-VA - 100 Club Hits - Edition 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17313.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Salvatore Mancuso - Have You Ever Seen The Rain (Original Mix) [2:37]
-002. Brooklyn Bounce - Bring It Back (DJ Dean & DJ T.H Remix Edit) [3:13]
-003. Baby Doc - Shovelhead (Original Mix) [6:26]
-004. Eran Hersh & El Mukuka feat. Mumba Yachi - Aicha (Ghedi 3Step Remix) [4:56](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 06:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AC67A7392858FF79E4BDBFAC843C6D01B70924
 ```
 
 https://mybot314.ru/tekegram_catalog/

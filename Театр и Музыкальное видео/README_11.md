@@ -1,3 +1,29 @@
+###  Публикация: 1355568   (982201) от 27.01.2020
+
+Billie Eilish feat. Khalid - Lovely (2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982201.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Lovely» — песня в исполнении Billie Eilish и Khalid вышла 19 апреля 2018 года для официального саундтрека второго сезона драматического телесериала от Netflix «13 причин почему». Песня была включена в расширенное издание мини-альбома Billie Eilish: Don't Smile at Me (2017).Производство: Sony, ATV Music Publishing LLC, Kobalt Music Publishing Ltd., Universal Music Publishing GroupЖанр: Indie, Pop, Alternative RockПродолжительность: 00:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61FB1CCE3992F04820547F78282B3FE1E9DCAFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 436010   (982166) от 13.01.2012
 
 VA - Millenium Sexy - Сборник популярных видеоклипов (2011) DVDRip
@@ -700,33 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6254FC91326AD1410D20BFF47B2088B6C570F1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437328   (978462) от 16.01.2012
-
-Il Divo - Live In London (2011) DVD 9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной шедевр великолепной четверки
-Живое выступление Il Divo 2 августа 2011 года в великолепном лондонском Колизее, на домашней сцене Английской национальной оперы. 100-минутная программа с композициями из своего нового альбома «Wicked Game», а также с некоторыми из их признанного репертуара, в том числе «Dov'e L'amore», «Time to Say Goodbye» и «Unchained Melody».Жанр: Classical Crossover, PopПеревод: отсутствуетПродолжительность: 01:36:02
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1461864   (1021507) от 11.04.2021
+
+VA - Новинки русского рока (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animal Джаz - Бессимптомно (3:24)
+02. Сплин - Вирус (4:39)
+03. Земфира - Ок (4:04)
+04. Северный Флот - Мой гори огонь (5:07)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E01ED8D1205884E9DE0AEE3DA81719925A6C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462256   (1021334) от 13.04.2021
+
+VA - Beatport Psy Trance: Sound Pack #273 (2021) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из тех моментов, когда время замедляет свой ход и весь мир замирает, утопая в безмятежности и отрешенности. Разум кристально чист, мысли или отсутствуют или возникая проплывают мимо и исчезают. Окружающий мир переплетается с внутренним, образуя целостную и завершенную картину мироздания. Такие ощущения возникают слушая музыку психоделического транса.001. Cymatic Effects - The Molecule Spirit
+002. Asgard - Feeling Dark
+003. Men In Space - Nuclear Kitten
+004. Fele - Bound(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 11:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFCD2DCA69DE931E8C57932DEAD4270B33B2C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462226   (1021333) от 13.04.2021
+
+VA - Future Techno April Set (2021) [MP3|320 Kbps] <Future Techno, Electronic, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электронные техно пульсации в ритме космических колебаний! Музыка, в которой чувствуется настроение и состояние души композитора воодушевлённого беспредельными просторами космического пространства!001. Akiko Iwahara - Someone's Shadow
+002. Heinick And Traumata - Dreamland
+003. Canon Fix - Flash
+004. Goldwave - Philosophers Balloon(   Читать дальше...   )Жанр: Future Techno, Electronic, Tech HouseПродолжительность: 11:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFC57CA1E4330E5583902FC4D7619B1BC8089E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462262   (1021326) от 13.04.2021
+
+VA - Beatport Electro Techno: Sound Pack #274 (2021) [MP3|320 Kbps] <Techno, Electro Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для любителей Техно Электроники , а так же музыкальных гурманов новая подборка фантастических треков последнего месяца. Модное звучание и необходимый минимум инструментов – этого достаточно, чтобы народ на танцполе не сбился с ритма и продолжал активно двигаться в такт приятной и лёгкой музыке!001. !Nertia - Iku
+002. Aura Minimum - Deep Construct
+003. Marie Vaunt - Hex
+004. Jala - Not Surrender(   Читать дальше...   )Жанр: Techno, Electro MinimalПродолжительность: 10:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C97C16A984A7D1F8DCFE9BFAC5ECFBC6A5ED5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462228   (1021320) от 13.04.2021
+
+VA - Funk N' Groove Disco Mix (2021) [MP3|320 Kbps] <Disco, Nu Disco, Funk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелодичность, минимализм в аранжировке, фирменные ритмы, клавишные и струнные инструменты, отличный фанковый вокал, кристально чистое, отшлифованное до блеска, звучание – всё это характеризует современную диско музыку. При этом, однозначную «узнаваемость» такого саунда можно назвать несомненным его плюсом.001. Tony Zecchi - That's Right
+002. DJ Fopp & Daniele Danieli - Shine
+003. Soul Ty - I Can Not Move Mountains
+004. Ivan Starzev - Bali Ubud(   Читать дальше...   )Жанр: Disco, Nu Disco, FunkПродолжительность: 11:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8C83BF47D44C4B5FF6102AAABD251815CA0668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462229   (1021316) от 13.04.2021
+
+VA - E-Dance: Clubbing Electro House (Vol.01) (2021) [MP3|266-320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для поклонников танцевального направления музыки есть отличный сборник, который подарит вам много ярких эмоций во время прослушивания. Такую музыку не стыдно взять на вечеринку или поставить в каком-нибудь ночной клубе, если вы ди-джей. А выбрать есть из чего, поскольку все мотивы очень разнообразные, да и продолжительность звучания почти девять часов.001. Stbn - Long Gone
+002. Sashman & Withard - Open Your Heart
+003. Natema - Grados
+004. Borja Md - Poky Sonic(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8616916ECD17E52501DC733749C1A86C6DDA71C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462087   (1021309) от 13.04.2021
 
 VA - Vocal Trance Hits (2021) [MP3|320 Kbps] <Trance>
@@ -571,180 +745,6 @@ VA - Best 80s Disco Hits 2 (2021) [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE1700589FDE30074759CE5D3E5E84131762DC6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462982   (1020759) от 16.04.2021
-
-VA - ЕвроХит Топ 40 Europa Plus 16.04.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masked Wolf - Astronaut In The Ocean (2:12)
-02. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
-03. Thomas Gold - Pump Up The Jam (2:33)
-04. Foushee - Deep End (2:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8A7905A007B15BE3A96C46DB314E3E611FF513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463097   (1020688) от 17.04.2021
-
-VA - Biometric Key: Future Techno (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастическая электронная музыка с выразительными ритмами и самыми эксцентричными мотивами была собрана в специальную тематическую коллекцию под названием «Biometric Key». Встречайте настоящий эксклюзив из области техно электроники.001. Szmer - Q (Original Mix)
-002. Dupleaux - Do It To Me
-003. Pablo Caballero - Darker Rawness
-004. Questhe - The Dna(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 11:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07EE2F9C0609398572CF92A72F68A9147364FAC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463099   (1020680) от 17.04.2021
-
-VA - Beatport Tech House: Sound Pack #276 (2021) [MP3|320 Kbps] <Tech House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это 276-я компиляция от Beatport из популярных танцевальных хитов, которые наверняка узнает каждый клаббер, интересующийся актуальными танцевальными новинками и регулярно посещающий ночные клубы001. Tuccillo - Work It
-002. Matrix - Get Out
-003. Osheen & Roland Clark - Last Night
-004. Jad Peak - Rating(   Читать дальше...   )Жанр: Tech House, Club, DanceПродолжительность: 10:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6926916D7BF639C4ABC83BB0C89582C08234BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463118   (1020650) от 17.04.2021
-
-VA - German Top 100 Single Charts 16.04.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
-02. Santos, Sido & Samra - Leere Hände
-03. Luciano - KIDS FROM THE BLOCK
-04. Lil Nas X - MONTERO (Call Me By Your Name) (But Lil Nas X Is Silent The Entire Time)(   Читать дальше...   )Жанр: PopПродолжительность: 04:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1029B79DDBA85BEAE9692B4F24B979AD304AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463218   (1020639) от 17.04.2021
-
-VA - Music News vol.92 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020639.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Iguana - Минимум (03:51)
- 002. AFSHINAM feat. Vivranmodi - Ajnabi (03:35)
- 003. Alexa - Como Hare (04:26)
- 004. Alyona Poli - Свет (02:40)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 09:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADD526C34CA747E9BF4C7ECD1D09ED88A699B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463319   (1020610) от 17.04.2021
-
-VA - Chill Hits (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Conan Gray - Heather (3:18)
-002. LEON - In a Stranger's Arms (3:21)
-003. Sasha Sloan - smiling when i die (3:26)
-004. ZAYN - Vibez (2:43)(   Читать дальше...   )Жанр: PopПродолжительность: 06:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842F5633783977BCEF4D9CB9B69089956CD9CD65
 ```
 
 https://mybot314.ru/tekegram_catalog/

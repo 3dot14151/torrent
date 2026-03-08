@@ -1,29 +1,3 @@
-###  Публикация: 789768   (726134) от 25.05.2014
-
-VideoHive – Metal Sting Intro - 5012113 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4971F814639154BE0F5600088FC8D76A2FE40FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128914   (726064) от 26.04.2017
 
 Проекты - Motion Elements - Fashion Slideshow [AEP]
@@ -669,6 +643,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E587BB2C8DA4253DA1CE78BD114AA2A3DEA7630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285170   (724183) от 24.02.2019
+
+Проекты - VideoHive - Awards Titles 4K and Awards Background Loop 4K - 22399668 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Awards Titles - это проект с модульной структурой, состоящий из последовательности титров.
+Шаблон идеально подходят для церемонии награждения, грандиозных событий в мире моды, вступлений для фильмов и свадеб.
+В качестве бонуса прилагается файл бэкграунда (10 сек) в разрешении 4K.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7837EFD0214DBA95A434C2DBFFB1250E2A0113D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

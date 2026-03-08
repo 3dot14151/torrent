@@ -1,3 +1,87 @@
+###  Публикация: 1663763   (186436) от 23.09.2023
+
+Klubbheads - Pump Up The Heads! (2021) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiphopping
+02. Big Bass Bomb
+03. Turn Up The Bass
+04. Let The Party Begin(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E042799253BC9D2AC42DF377851432A5668B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663431   (186432) от 23.09.2023
+
+VA - Boccaccio Life - The End Of An Era (2018) [FLAC|Lossless|tracks] <House, Hard Trance, Progressive House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186432.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Compiled By DJ Gert (01:19:56.)
+
+101. Aquaplex & Junk Project - Brightness [3:46]
+102. Club Royale - Loosing Sleep [5:55](   Читать дальше...   )Жанр: House, Hard Trance, Progressive House, TechnoПродолжительность: 05:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FA500FCBE4CD509446E025F50657AF9DB2A274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663787   (186429) от 23.09.2023
+
+CamelPhat - Spiritual Milk (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Vocal, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, Vocal, ProgressiveПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513AB9E0D51E82767BF6182BF0891BFF428B4D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664206   (185972) от 25.09.2023
 
 Helena Hauff - fabric presents Helena Hauff (Mixed) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, Industrial, House>
@@ -644,90 +728,6 @@ Knobs - Discography 14 Releases (2009-2016) Nachtstrom Schallplatten [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:896F3DBE8902AF467AB60BEA8F6D0DF4844F48BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672629   (168046) от 29.10.2023
-
-Kölsch - I Talk To Water (2023) [FLAC|Lossless|WEB-DL|tracks + .cue] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD4AEEDD709146B4C1147D5F122E6AA1B96F1CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597092   (167564) от 13.12.2022
-
-Ben Böhmer - Live At The Roundhouse London (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Bohmer - Begin Again
-02. Ben Bohmer - Beyond Beliefs
-04. Ben Bohmer ft Lau.ra - Erase
-05. Ben Bohmer ft PBSR - Revelation(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281A016006562CB5337DE3287E8C75EB82BE8B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431678   (166984) от 14.12.2020
-
-Leama & Moor - Distance Between Us (2006) Single [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166984.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Distance Between Us (Jody Wisternoff Mix) [07:02]
-2. Distance Between Us (Streetlife DJs Mix) [07:13]
-3. Distance Between Us (Original Mix) [09:45]
-4. Distance Between Us (Gill Norris Mix) [11:48](   Читать дальше...   )Жанр: Progressive House, Trance, Progressive TranceПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4FA3C58809532FBDE26F492D96EB0A79A015AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1590638   (188644) от 14.11.2022
+
+VA - Dance Hits of the outgoing year (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188644.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta - I'm Good (Blue) (2:57)
+002. James Hype - Ferrari (3:05)
+003. Elton John - Hold Me Closer (3:24)
+004. Lost Frequencies - Where Are You Now (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A837AACD71BD86710CE21A52C9EA01C38EB4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661623   (188460) от 15.09.2023
+
+VA - Music News vol.298 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188460.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marina Marx - It's My Life (03:39)
+ 002. 4EREDA - Никотин (02:39)
+ 003. 5УТРА - В Темноте (02:30)
+ 004. Adil - Купидон (02:28)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964C8D3ED2E53501FBE6A9249852725AE9133143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591033   (187694) от 16.11.2022
+
+VA - Sexy Bath 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - After Hours (6:01)
+02. Ezhel - Küvet (5:01)
+03. Rihanna - Loveeeeeee Song (4:56)
+04. Cigarettes After Sex - Apocalypse (4:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1E8232E57FE92D27888CCD30DD61C6DC2EF2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662415   (187419) от 19.09.2023
+
+Kerala Dust - Compilation (2023) [MP3|320 Kbps] <Experimental, Blues House, Deep House, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187419.jpg" />
+</div>
+
+
+###  Подробнее
+
+02. Kylie
+03. Maria
+04. Moonbeam, Midnight, Howl
+05. Night Bell (Arizona)(   Читать дальше...   )Жанр: Experimental, Blues House, Deep House, DowntempoПродолжительность: 01:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D00C4906097188B207DFBAB0639941733FFDF90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591317   (187024) от 18.11.2022
 
 VA - 30(16) Новые Песни (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -628,122 +744,6 @@ VA - Music News vol.303 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29F9FFCAA5B2C599EEF355A4D0D55F85DCB15F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428981   (178240) от 04.12.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 04.12.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pascal Letoublon & Leony - Friendships (3:02)
-02. Jason Derulo - Take You Dancing (3:10)
-03. Michael Patrick Kelly - Beautiful Madness (2:55)
-04. Foushee - Deep End (2:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDD16F322056D48D282A919C8812D35788E76C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429242   (177557) от 05.12.2020
-
-VA - Music News vol.53 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177557.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elli - Любить (03:18)
- 002. 5WEST - Last Time (Kokiri Remix) (03:04)
- 003. 24kgoldn feat. DaBaby - Coco (02:22)
- 004. A.T & Merik - Девочка Востока (02:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115058100D4A9F781C09B9B6EF299199E082A856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667162   (177382) от 07.10.2023
-
-VA - Music News vol.304 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юля Паршута - Играя в Минор (02:41)
- 002. Alex Matthew feat. Silvia - Ultima Vara (02:56)
- 003. Alex Say feat. Subo - Зараза (Elvira T Remix) (02:19)
- 004. Ami - Nostalgia (03:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F145D15B67F706FD2BD2E696C6092F5BBD5416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429274   (176703) от 06.12.2020
-
-VA - Music News vol.54 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176703.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Inna - Thicky (03:05)
- 002. Amanda Tenfjord - Then I Fell In Love (03:32)
- 003. ANIKV - Лень (02:19)
- 004. ANIKV - Молодость (03:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1ACF8A129DD206F80CF276F801F4324C201F29F
 ```
 
 https://mybot314.ru/tekegram_catalog/

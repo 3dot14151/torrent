@@ -1,3 +1,61 @@
+###  Публикация: 1570421   (438055) от 19.08.2022
+
+Dr. Alban - One Love (The Album) (1992) Vinyl-rip [OGG|485 Kbps] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction	1:45
+02. It's My Life	4:00
+03. Sing Hallelujah!
+04. Groove Machine 4	3:41(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF81ACE4F521DA3116102AE8A23BFEB4D1A5D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945008   (437897) от 08.10.2015
+
+Selena Gomez - Revival (2015) Japanese Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival
+02. Kill Em With Kindness
+03. Hands to Myself
+04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2DACEF2F7D4700FB2B2FC402B8F0B25A3200BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323386   (437868) от 03.09.2019
 
 Rocky M - The Best Of (1989) LP [MP3|320 Kbps] <Electronic, Europop, Disco>
@@ -685,61 +743,6 @@ VA - Pure... Fitness (2013) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, Othe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2623BD0F2444FC36B5D7DDD9840D85AF74B35A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145119   (434701) от 09.10.2009
-
-Inna - Hot (2009) [MP3|320 kbps]<Рop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_434701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РopПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063433   (434680) от 16.10.2016
-
-Madonna - Like A Virgin (1984) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Material Girl
-02. Angel
-03. Like A Virgin
-04. Over And Over(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88AC38F7D04357B100DBF6995B941A6135C5ECFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

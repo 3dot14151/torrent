@@ -1,3 +1,61 @@
+###  Публикация: 1074695   (336241) от 20.11.2016
+
+VA - Sundown Flavor of Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rey Salinero - Flor de Almendro [00:05:52]
+02. Logophilia - Gaillardia [00:05:49]
+03. Maikos - Ambient 5 [00:06:13]
+04. Dreams Machine - Real Pleasure [00:01:43](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B21C6F07ED33E12A1CD1C18CE72C06DB304CDAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075065   (336238) от 20.11.2016
+
+VA - Doux Pour La Nuit, Vol. 4 - A Whisper for Deep Moments Selection Chillout by Kolibri Musique (2016) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Lost in My Dreams [00:05:00]
+02. Johannes Huppertz - At Frederun [00:04:23]
+03. Angela Puxi - Anima [00:06:00]
+04. Aiemo - Special Emotions [00:04:40](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC90812EAE5982EFD6563DE8DAF90359C4DACD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074737   (335932) от 20.11.2016
 
 Orphx - Pitch Black Mirror (2016) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
@@ -687,64 +745,6 @@ Withhold - Label Pack 12 Releases (2020) Unknown Artist Series [FLAC|Lossless|Vi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:371B9AC13169AAEC56A76D2C67DAB5598DC63375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175020   (333408) от 31.10.2020
-
-Rumpistol - Discography 17 Releases (2003-2020) Rump Recordings [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Abstract, Ambient, Dubstep, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There There (05:32)
- 02. Last Venture At The Edge Of The World (06:10)
- 03. The Fog Is Lifting (03:00)
- 04. Inside The Sarcophagus (03:14)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Abstract, Ambient, Dubstep, Glitch, Experimental •Продолжительность: 11:08:02 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE8A315852C561F05F74D9C77933DA099C56361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259029   (333152) от 01.11.2018
-
-VA - Silk Music Pres. Terry Da Libra 02 (2018) [MP3|320 Kbps] <Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terry Da Libra – Eunoia (Original Mix)
-02. Shingo Nakamura & Stendahl – Tribute, Chapter II (Terry Da Libra Remix)
-03. Aeron Aether & Terry Da Libra – Hope Unchained (Extended Mix)
-04. Blugazer & The Cynic Project – Waves On the Ocean (Terry Da Libra Remix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A34EAA3B525FBB315358A8EB475B09464BB7D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

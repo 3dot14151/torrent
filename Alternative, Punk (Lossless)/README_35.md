@@ -1,3 +1,32 @@
+###  Публикация: 1404651   (491475) от 26.08.2020
+
+Glasswork - Metabole (2020) [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackspot (06:05)
+02. Tales From The Cave (05:38)
+03. The Decision (07:39)
+04. Barbarian Assimilation (02:40)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6C87B9F4FC0FE50A589EA73F631CE0CF9CF0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404555   (491312) от 26.08.2020
 
 The All-American Rejects - Rejects Faves (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -722,35 +751,6 @@ JJ72 - JJ72 (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:701A4FAFB3B7C59B2206C0DD762572F4CFCB3486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568075   (466037) от 06.08.2022
-
-The Flatliners - New Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk,New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Performative Hours (2:58)
- 02. Rat King (3:31)
- 03. Big Strum (3:09)
- 04. Top Left Door (3:08)(   Читать дальше...   )Жанр: Punk,New WaveПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8AD1815C87E85ECBC65DCA5AE0711D93CB9F20
 ```
 
 https://mybot314.ru/tekegram_catalog/

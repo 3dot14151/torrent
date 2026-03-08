@@ -1,32 +1,3 @@
-###  Публикация: 1602273   (1046150) от 05.01.2023
-
-Mournument - Smouldering into Dust (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Rain and Thunder
-02. Chasm of Abandoned Souls
-03. Sea of Desperation
-04. A Funeral Poem(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B4D4C99D71A903BFEDA2A205110DE41276EDDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602430   (1046149) от 05.01.2023
 
 Legend - Legend (1992) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -745,6 +716,35 @@ Kreazot-Maks - П​е​с​н​и Ф​а​в​н​а (2022) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3421E7D729C121FCDCE8CE86E26AB668C57A0262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601860   (1046097) от 05.01.2023
+
+Parkway Drive - Darker Still (2022) [FLAC|Lossless|image + .cue] <Metalcore, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ground Zero
+02. Like Napalm
+03. Glitch
+04. The Greatest Fear(   Читать дальше...   )Жанр: Metalcore, Alternative MetalПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CE38714BCF7E47BB837A9EB5B47C889A6C4D67
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 545942   (483110) от 11.09.2012
+
+VA - Попсовый Мега Хит (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Валерия И Александр Буйнов - Сердце
+002. Анна Семенович - Обманутые Люди
+003. Григорий Лепс - Водопадом
+004. Настя Ясная - Моя любовь
+005. Лера Массква - Не Хочу Играть Больше
+006. Влад Римский - Вкус лета
+007. Горячий Шоколад - Стены
+008. Стас Пьеха - Старая история
+009. Андрей Ковалев - А мне все снятся твои глаза
+010. 3XL PRO - Жаркое Лето(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8D2D18A21BBBEB6A144A18E709D3A787DF70DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545580   (483011) от 11.09.2012
 
 VA - Teenage Idols (1955-1969) (2001) 4CD BoxSet[MP3|320 кб/с]<Pop, Rock, Oldes, Retro>
@@ -746,35 +781,6 @@ VA - German Top 100 Single Charts 25.08.2017 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:448BF580BDB09F9AF5B1A84442C651B52A743D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320335   (471391) от 18.08.2019
-
-VA - German Top 100 Single Charts 23.08.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471391.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shawn Mendes & Camila Cabello - Señorita
-002. Loredana - Eiskalt (feat. Mozzik)
-003. DJ Snake, J Balvin, Tyga - Loco Contigo
-004. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C904EA2C550BFFE9330D79AEC6D8090E106E5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

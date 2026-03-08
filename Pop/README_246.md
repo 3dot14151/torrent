@@ -1,3 +1,61 @@
+###  Публикация: 1263025   (291551) от 17.11.2018
+
+Jennifer - Walking In Space (1977) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouverture (1:14)
+02. I Don't Need Your Love - Part I (5:12)
+03. I Don't Need Your Love - Part II (4:19)
+04. Love Has A Taste Of Tears (3:00)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458388CD7D657CE6F3D4DEE295CAC14ED075A6C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334936   (291513) от 31.10.2019
+
+Julio Iglesias - Fidele & 1100 Bel Air Place (1995) 1981 и 1984, Star Ltd. [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viens M'Embrasser [03:31]
+02. Une Chanson Qui Revient [04:39]
+03. Les Derobades [03:33]
+04. L'Amour Au Grand Soleil [03:18](   Читать дальше...   )Жанр: PopПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81AEFF323574BD998EEB9B78EA24D25E9B712DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334935   (291511) от 31.10.2019
 
 Norma Jordan - Feel Me (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -684,64 +742,6 @@ Dalida - Music Box (2004) [APE|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F62DAD451BE53C6F8E6D83D9D759BD8A54841F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028176   (289590) от 18.11.2018
-
-Евгений Осин - Золотые хиты (1999) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Портрет работы Пабло Пикассо
-02. Две девушки
-03. Иволга
-04. Ялта(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67519574C897E566E2D0EB92ABE60086022F8853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335175   (289412) от 01.11.2019
-
-Burito - Samskara (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289412.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Samskara
-3. Дети закатов
-4. Стих 1(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA8E1B7FEBFDDD36B855D0A3354A5DED5164C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,256 +1,3 @@
-###  Публикация: 921003   (577326) от 24.07.2015
-
-Based On Bass - Space Odyssey (2007) [APE|Lossless]<Italo Disco, Spacesynth, Synth Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Automatic Control (Extended Mix)
-02. Magic World (Spacemix)
-03. Space Odyssey (Extended Mix)
-04. Happy Children (Spacemix)(   Читать дальше...   )Жанр: Italo Disco, Spacesynth, Synth PopПродолжительность: 00:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA87DE78A99CB5E64D5807CB932A6A9F982C6125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919466   (577322) от 24.07.2015
-
-Conforce - Presentism (2015) [MP3|320 кб/с]<IDM, Minimal, Techno, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577322.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Glideslope (5:58)
-2. Realtime (5:19)
-3. Blue Note (6:57)
-4. Artefact From A Higher Dimension (6:48)(   Читать дальше...   )Жанр: IDM, Minimal, Techno, AmbientПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8457806F3C60EA387981A0E972C7373556EDEF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921200   (577320) от 24.07.2015
-
-JetBrains ReSharper Ultimate 2015.1.2 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577320.jpg" />
-</div>
-
-
-###  Подробнее
-
-ReSharper (R#) — мощное дополнение (плагин), разработанное фирмой JetBrains для повышения продуктивности работы в Microsoft Visual Studio.
-Проводит статический анализ кода (поиск ошибок в коде до компиляции) в масштабе всего решения, предусматривает дополнительные средства автозаполнения, навигации, поиска, подсветки синтаксиса, форматирования, оптимизации и генерации (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E11187572ED4DECBBC2504959643CE94CC8917B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921180   (577318) от 24.07.2015
-
-Arjuna - Primal Contact (2015) [FLAC|tracks+.cue]<Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arjuna - Whispering Angels [08:37]
-02. Arjuna & Seb - Endless Possibilities [09:03]
-03. Arjuna - Duality [08:59]
-04. Arjuna - Cermenate Sunrise [07:45](   Читать дальше...   )Жанр: PsytranceПродолжительность: 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B06460375F53BF32DC93F3F1491F079FC85174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360870   (577310) от 10.07.2011
-
-[Wallpapers] Wallpaper Mix by McMurphy 75 (09.07.11)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1F314421E15787A18961BE5AB5E7D3186874A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360695   (577294) от 10.07.2011
-
-[Wallpapers] Авто обои №1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка авто обоев для вашего рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A97D02054C42169553D77D9D9FAAECE1FEC18E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361126   (577291) от 10.07.2011
-
-VA - I Love House Music (mix by DJ Kocmoc) (9.07.2011) [MP3|320 kbps]<Electro, Electro-House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577291.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Dan Balan, 4Bro. Feat Dubfire - Chica Bomb 2011 (Tony Nova Bootleg)
- 2 50 Cent & Dr.Kucho - Beat Da Club (Andrey Zenkoff Intro Mash-Up)
- 3 50 Cent - Disco Inferno (DJ Dmitry Han Mashup Mix)
- 4 20 Fingers - Lick It Prutata (DJ Smerk Digitune Bootleg)
- 5 Chris Brown - Yeah 3X (Gordon & Doyle Bootleg Mix)
- 6 Franklin 99 - Big Step Back (Original Mix)
- 7 Split & Jaxta - Rock It Back (Original Mix)
- 8 Tristan Garner & Gregori Klosman vs. Eric Santana & Woodnox - Bongo Bounce (Jason Alamo Bootleg)
- 9 Tocadisco - You're No Good For Me (DJ Solovey remix)
- 10 MegaSounD & Andy Temp P - Final Emotions (Original Mix)Жанр: Electro, Electro-HouseПродолжительность: 04:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB796661B6B15DA5177910BAC0B8104F80F7EB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361530   (577289) от 10.07.2011
-
-Смертельная линия / Dead Lines (2010) SATRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Софи Файн, дизайнер экологически чистой одежды, готовится к открытию собственного магазина. Неожиданно убивают одного из нанятых ею работников. Вскоре Софи понимает, что угроза смерти нависла и над ее дочерью…Жанр: Триллер, Криминал, ДетективРежиссер: Луис БеланжеАктеры: Джери Райан, Энтони Лемке, Бруно Вердони,Тира Сковбай, Натали Вансье, Клаудия Бессо, Николь Брабер, Юджин Бротто, Зиад Ганем.Перевод: Многоголосый закадровыйПродолжительность: 01:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0BC3180D506DD5999DBA64D69A76D01B6467D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360803   (577285) от 10.07.2011
-
-[Wallpapers] Mix Wallpapers (08.07.11)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9B5AA9333097F92D69B556C4F6A3FC23F1AC4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361384   (577280) от 10.07.2011
 
 Joboshare Video Converter v2.9.9 Build 0708 [Eng+Rus]+Portable
@@ -702,6 +449,259 @@ Inked - журнал о поп-культуре и музыке для люде�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DC630B8A72033129EE145F0E2C4AE36EBF07C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361090   (577198) от 10.07.2011
+
+Unholy - 4 альбома (1993-1999) [FLAC|Lossless]<Avantgarde Doom /Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577198.jpg" />
+</div>
+
+
+###  Подробнее
+
+1993-1999Жанр: Avantgarde Doom /Death MetalПродолжительность: 04:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7F61B85143EFEF4BCDA41BA8B3E3137A34BD2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360691   (577195) от 10.07.2011
+
+[Wallpapers] Авто обои №3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка авто обоев для вашего рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66173F68F73B36B2D752210D0DE5F4CD9EE9BC94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526342   (577191) от 26.07.2012
+
+Eyefear - A World Full Of Grey (2007) [MP3|192 кб/с]<Progressive/Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Searching For Forgiveness
+2	A World Full Of Grey
+3	Changes
+4	Lost Within
+5	Moments
+6	The Eyes Tell No Lies
+7	Whispers Of The Soul
+8	Haunted Memories
+9	Breathe Again
+10	Searching For ForgivenessЖанр: Progressive/Power MetalПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DDEA502651FA9F8CED717562089D620CE73C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527136   (577188) от 26.07.2012
+
+DJ Kocmoc - Electro Sensation vol.31 (3.07.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577188.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. David Guetta feat. Taio Cruz - Little Bad Girl (Mike Candys Bootleg Mix)
+ 2. Anna Lesko feat. Gilberto - Go Crazy (Extended Mix)
+ 3. E-Bonit - Stop This Feeling (Jackie & Jones Remix)
+ 4. Refined Brothers feat. Stephan Endemann - Club Kings (Fresh Blast Dj's Remix)
+ 5. Tha Groove Junkeez - Keep On (Main Mix)
+ 6. New Fresh feat. Alla - Love In Your Eyes (Stephan F Remix)
+ 7. Klaas - Wild Beast (Original Mix)
+ 8. Mirko B feat. Elena Capatina - Starlight (Original Mix)
+ 9. Serge Devant - Sweet Harmony (Mike Candys Mix)
+ 10. Olly Murs - Heart Skips A Beat (Mike Candys Bootleg Rework)Жанр: Electro House, Electro ProgressiveПродолжительность: 01:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178284048DEBABFD11AD7CF01EB4785845810EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526721   (577187) от 26.07.2012
+
+[Wallpaper] Desktop Woman wallpaper
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник картинок с самыми красивыми девушками.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8566C5544A90C8AB61CAF856936AACDC443DB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527585   (577185) от 26.07.2012
+
+Журнал | Кушать подано №2 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бернард Шоу писал, что "нет любви более искренней, чем любовь к еде". Так что в феврале ко Дню святого Валентина и празднику Масленицы порадуйте любимых блюдами из нового выпуска журнала "Кушать подано!" - простыми, оригинальными и романтичными одновременно. Уверены, они никого не оставят равнодушным! (рецепт с обложки на стр. 49).Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC91A9E07144FC9D208A3F50F478158D826AD52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361353   (577166) от 10.07.2011
+
+Спасатели во времени / Minutemen (2008) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения трёх "ботанов", изобревших машину времени. Очень умные, но трудные в общении со сверстниками, трое друзей каждый раз отправлялись в прошлое и немного подстраивали его под себя. Но, даже каждый младенец знает, что прошлое менять нельзя, а то в будущем произойдёт катастрофа вселенского масштаба.
+Каждый раз изменяя прошлое по чуть-чуть, ребята в душе надеялись, что им повезёт и катастрофы не будет, но правила, писанные фантастами, никто еще не отменял, назревает катастрофа и надо вернуться последний раз и вернуть всё на свои места...Жанр: Фантастика, Комедия, СемейныйРежиссер: Лев Л. СпироАктеры: Джейсон Долли, Люк Бенвард, Николас Браун, Челси Стауб, Стивен Р. МакКуин, Кара Крэн, Декстер Дарден, Жан-Поль МаноПеревод: ДублированныйПродолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EC78D0EC83606FFBAD2862C737905C646F4644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527477   (577163) от 26.07.2012
+
+Журнал | Твоё здоровье №8 (август) [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577163.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Твое здоровье» - это актуальные советы и рекомендации специалистов по здоровому образу жизни, воспитанию детей, косметологии, правильному питанию, а также реальные истории исцеления людей, диеты, кулинарные рецепты, упражнения для поддержания идеальной формы, конкурсы и подарки. С незапамятных времен мечтают люди о возможности сохранения молодости. Что остается человеку, когда проходит молодость? Стареть и умирать? Нет, продление жизни занимает ныне умы ученых, а продолжительность жизни человека в современных условиях становится важнейшей заботой общества. Удели себе внимание!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF64CC3DE5A3F20B21E6056FFFADD35BEFB7445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360549   (577162) от 10.07.2011
+
+Гигантик / Gigantic (2008) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577162.jpg" />
+</div>
+
+
+###  Подробнее
+
+28-летний продавец матрасов Брайан, мечтает усыновить ребенка из Китая. Однажды в магазин, где он работает, случайно заходит девушка и засыпает на выставочной кровати. Когда она проснётся, жизнь Брайана навсегда изменится.Жанр: Мелодрама, КомедияРежиссер: Мэтт АселтонАктеры: Пол Дано, Зои Дешанель, Эдвард Эснер, Джейн Александр, Джон Гудмен, Шон Дуган, Брайан Аверс, Луис Одзава Чангчьен, Зак ГалифианакисПеревод: Многоголосый закадровыйПродолжительность: 01:38:06
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

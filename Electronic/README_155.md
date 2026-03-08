@@ -1,3 +1,61 @@
+###  Публикация: 1211651   (777232) от 08.03.2018
+
+VA - Cardio Workout Music Vol.2 (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lango - Shockwave 4:22
+02. Arson - Grape 4:34
+03. Dj Dragon Boss - The Collapse Of The Dance Floor 6:58
+04. Dj Angeldemon - Autumn Anthem 6:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A54B399221F699DEF272AF80F6FB76BF11D3DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211626   (777228) от 08.03.2018
+
+Koan - It's The Quiet Ones You Got To Watch (2018) [MP3|320 Kbps] <Downtempo, Chillout, Progressive House>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Awakening (Blue Mix)  7:18
+02.  Ruins Of Amber Kingdom (Original Mix)  6:31
+03.  Tir na nOg (Koan Remix)  7:27
+04.  Rebma (The Guardian Of Four Worlds Mix)  7:22(   Читать дальше...   )Жанр: Downtempo, Chillout, Progressive HouseПродолжительность: 01:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675D3106B837B3C0DD648FE55A3D19E7F613CEFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211432   (777150) от 08.03.2018
 
 Pablo Bolivar & Sensual Physics - Traverse (Reprise) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
@@ -687,64 +745,6 @@ BCee - Volume Two (2018) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAE2027C3C5BBDB48F2DB64974D89DE8183F53E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212455   (776056) от 11.03.2018
-
-BCee - Volume Three (2018) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Say No feat. Lomax (Cyantific Remix) (05:20)
- 02. Cultural Shift (05:47)
- 03. Diagnosis Murder feat. S.P.Y (Metrik Remix) (04:58)
- 04. Outlaw (06:42)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39FEDA12592BE002BD126CC4C0FBFE7E34D0BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212029   (776012) от 11.03.2018
-
-Onuka - Onuka (2014) [FLAC|Lossless|image + .cue] <Electronic, Folk, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:26)
-02. Around Me (03:47)
-03. When I Met U (04:08)
-04. Look (03:37)(   Читать дальше...   )Жанр: Electronic, Folk, Ethno, Ambient, DowntempoПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C533DBE7E429C5C227822DE77A2A85A2A9962E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

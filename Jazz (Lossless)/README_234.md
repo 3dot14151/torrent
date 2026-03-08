@@ -1,3 +1,32 @@
+###  Публикация: 1340562   (263629) от 24.11.2019
+
+Bud Powell Trio - Bouncing With Bud 1962 (1997) Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rifftide [4:16]
+02. Bouncing with Bud [6:01]
+03. Move [5:00]
+04. The Best Thing for You [6:01](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE25484DDBD2034DED1827F3C3692E10BDAF0CF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340561   (263626) от 24.11.2019
 
 Dave Brubeck - Time Signatures: A Career Retrospective 1950-e - 1970-e (1992) 4CD, Columbia [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Piano Jazz>
@@ -716,35 +745,6 @@ Ralph Moore - Furthermore (1990) Landmark Records [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBDA0F6D156620AE893444A051D16D549A0D4746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192997   (262534) от 19.12.2017
-
-Tim Warfield - Tim Warfield's Jazzy Christmas (2012) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Clause Is Coming to Town [08:17]
-02. Let It Snow [09:04]
-03. Joy to the World [06:56]
-04. Little Drummer Boy [08:49](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, ChristmasПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD188AA05703C82F494D309B977FC7BCAB45511
 ```
 
 https://mybot314.ru/tekegram_catalog/

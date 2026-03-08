@@ -1,3 +1,178 @@
+###  Публикация: 1219194   (715621) от 13.04.2018
+
+VA - Душевный сборник радио Шансон (3) (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715621.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сиран Агасаров - О Тебе
+002. Дмитрий  Фомин - Паровозик
+003. Валерий Палаускас - Раздолье Русское
+004. Сборная Союза - В Нас Бог И Дьявол(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7565D42418D60FF654A314708DF1808E6674492B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219182   (715619) от 13.04.2018
+
+VA - Back To 90 s’ Eurodance (2018) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nausikaa - Light My Fire
+002. Maduar - Mystic Party
+003. Daze - Call Girl
+004. John The Whistler - She's My Girl(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8EEED331DC7459AB02DF7735586F6A562B20E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219165   (715605) от 13.04.2018
+
+VA - Jazz With Blues Accent (2018) [MP3|128-320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715605.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carmen McRae - I Only Have Eyes For You (Live)
+002. Renata Ghiso - I'm a Stranger Here Myself
+003. Bobby Short - Heebie Jeebies
+004. Y'Akoto - Come Down To The River(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 08:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3D2B0A81C413E9E70177EF79EEE69E53A35324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219172   (715363) от 13.04.2018
+
+VA - Настроение Весны От Авторадио (2018) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715363.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Андрей Леницкий - Подари Мне Любовь
+002. Сати Казанова - Спит Моё Счастье
+003. Sia - Ho Ho Ho
+004. Николас Кельм - Забывай Меня(   Читать дальше...   )Жанр: PopПродолжительность: 12:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C87D8DEC3C1D562666817D6BFEC03CBD80E5E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219143   (715351) от 13.04.2018
+
+VA - Mysterious: New Era Music (2018) [MP3|320 Kbps] <New Age, Ambient, Enigmatic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715351.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Entheogenic - Anima Mundi
+002. Physical Dreams - Nature Sounds N1
+003. beGun - Yoko
+004. Empire Of Love - Mysterious(   Читать дальше...   )Жанр: New Age, Ambient, EnigmaticПродолжительность: 08:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B3FA8C9DEE682BF79297BE94BE6382E538564D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893006   (715208) от 28.04.2015
+
+VA - Без Тормозов vol.1 (2015) [MP3|320 кб/с]<Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D-Block & S-Te-Fan & Rebourne - Louder
+02. To-2-Bi - Deep in My Heart
+03. Paris Blohm & Tylr Renee - Left Behinds (The Vision Remix)
+04. Sylence - Trianglez
+05. Atmozfears & Audiotricz - Reawakening(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B157FA02F47CC6CDB67E340A0EB45F3F223DA3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286234   (714827) от 01.03.2019
 
 VA - ЕвроХит Топ 40 Europa Plus 01.03.2019 [MP3|320 Kbps] <Pop, Dance>
@@ -568,180 +743,6 @@ VA - Новинки С Разных Популярных MP3 Сайтов Vol.60
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D763DC092C4EC9FB11F54D9B3B082040908D3733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219346   (713902) от 14.04.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 13.04.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C-BooL Giang Pham - DJ Is Your Second Name
-02. Jax Jones feat. Ina Wroldsen - Breathe
-03. ZAYN feat. Sia - Dusk Till Dawn
-04. CamelPhat Elderbrook - Cola (Robin Schulz Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D944F59BFC004B623FFA9D36C05B106C676BFF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219415   (713897) от 14.04.2018
-
-VA - Kontor Top of the Clubs (2018.02) (2018) [MP3|320 Kbps] <House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MC Fioti - Bum Bum Tam Tam (Jax Jones Remix) (feat. Future & Juan Magan)
-02. Marc Scibilia - Unforgettable (Plastik Funk Remix)
-03. Martin Garrix - So Far Away (TV Noise Remix) (feat. Jamie Scott & Romy Dya)
-04. Last Night - Close My Eyes (Airplay Edit) (feat. Max Landry)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 08:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF60443A04B0591096241C37E72BFB8A4B031266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219416   (713896) от 14.04.2018
-
-VA - A State Of Deep [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Progressive House, Melodic Techno, Neotrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aguizi & Fahim - Enigma [08:55]
-02. Bjork - New World (Stefan Biniak Private Edit) [06:34]
-03. Fran Guzman - The Two Of Us [06:39]
-04. Nopopstar Feat. Max Vertigo - Waiting For Cold (Sans Sommeil Remix) [08:40](   Читать дальше...   )Жанр: Progressive House, Melodic Techno, NeotranceПродолжительность: 06:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58682E335A51C1FA4827D9B215BBDE226D63FA66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219341   (713893) от 14.04.2018
-
-VA - Душевный шансон в хорошей компании (5) (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713893.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Валерий Курас - Мужская История
-002. Вхип (Владимир Хомутов Игорь Павлов) - Непьющий
-003. Игорь Добролевский - Не Зови
-004. Юрий Востров - Ночка Белая(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3C9C3BE677B5AC33DC43684961BCC464595583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219394   (713783) от 14.04.2018
-
-VA - DFM Top 30 D-Chart 13.04.2018 [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Janieck - Does It Matter
-02. Katy Perry - Roulette
-03. Avicii - Lonely Together (feat. Rita Ora)
-04. David Guetta Afrojack feat. Charli XCX French Montana - Dirty Sexy Money(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608329DBC380AFFD641934C44FD47207BA92AD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219344   (713776) от 14.04.2018
-
-VA - Душевный шансон в хорошей компании (6) (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713776.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олег Карпович - Друзьям
-002. Александр Вервайн - Питер-Отец
-003. Стас Михайлов - Я Столько Не Выпью
-004. Мариан - Атаман(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACC350A7DACFA7E7995A33F6ADAE7DAE62FA576
 ```
 
 https://mybot314.ru/tekegram_catalog/

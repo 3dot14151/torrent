@@ -1,3 +1,32 @@
+###  Публикация: 934653   (502532) от 05.09.2015
+
+VA - Delicious Deep House Vol 2 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Bee - Satisfy - D Troit's Subway Mix
+02. Fashion Masters - Night Club - La Vida Mix
+03. Anthony Smith - Stellar Light - Club Mix
+04. Blue Terrace - Sophia - Pianistic Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7D0BBABF278383A1CFFD56EE56F416B69A7690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934488   (502523) от 05.09.2015
 
 VA - Resident Advisor Top 50 Charted Tracks August 2015 (2015) [MP3|320 кб/с]<Techno, Minimal, Electronica, Tech House, Deep House>
@@ -746,35 +775,6 @@ VA - Progressive Fresh House (2015) [MP3|320 кб/с]<Progressive, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6960223356D24890BE157A5B59009326CCCF1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935894   (497581) от 10.09.2015
-
-VA - The Chillout Players - Music For Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoboken - Loungin it
-02. Il Greco - Nippon Horn
-03. Belloq - Naples Bay
-04. Sabado Playground - Ipanema Beach(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A73FD401B4026DA6AF0307348DB86C0A58FB29
 ```
 
 https://mybot314.ru/tekegram_catalog/

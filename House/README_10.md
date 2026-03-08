@@ -1,3 +1,32 @@
+###  Публикация: 1108743   (861077) от 26.02.2017
+
+VA - Deep House Connection Vol.2 Night Selection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861077.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zhukhevich - Flowers Energy 3:44
+002. Chris Coulen - S.M. 4:21
+003. Andrey Butuzov & 7Sky Project - Empty Streets - Original Mix 4:05
+004. The Mord - New Year in City Deep 4:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01A5F9C1B2056DEFCE827D0DE192A6F30F3DACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109004   (861072) от 26.02.2017
 
 VA - Proper Vibes (2017) [MP3|320 Kbps] <Deep House>
@@ -716,35 +745,6 @@ VA - Mout: Deep Spirit Vol.8 (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96EC9B2C08C96D8E737A43F3FA1310A37AB92ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377286   (853663) от 21.04.2020
-
-VA - Workout in Da House (2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anderblast - Systema
-02. Anderblast and Dark Drake - Elements
-03. Anderblast and Nari and Milani - Fire
-04. Anderblast - Proton(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E729A839911B1BEB724ED801DE5C8238AD6FF21
 ```
 
 https://mybot314.ru/tekegram_catalog/

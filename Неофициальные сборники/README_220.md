@@ -1,3 +1,177 @@
+###  Публикация: 1019977   (746732) от 25.05.2016
+
+VA - Acoustic Hits (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - One Last Time
+02. Henrietta Adewole - Bloodstream
+03. Chelsea Hart - Papaoutai
+04. Thom Cooper - Blurred Lines(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE42CC4F7623214DCC49A37A807BF78D8482B93A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020080   (746719) от 25.05.2016
+
+VA - Русский супер-хит (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746719.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лайк.А - Адреналином
+002. Артем Пивоваров - Стереосистема
+003. Жемчуг - Я Бы Тебя
+004. Lyuba Almann - Делай Мне Хорошо(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FAB8DD0532769187BC7495EED40EB27DDA5D99C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282224   (746709) от 11.02.2019
+
+VA - German Top 100 Single Charts 18.02.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746709.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capital Bra - Prinzessa
+002. Mozzik x Loredana - ROMEO & JULIET
+003. Ava Max - Sweet but Psycho
+004. Mero - Hobby Hobby(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA82C1779B913C9B25E16CC0FBE4583F4F67183F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019952   (746615) от 25.05.2016
+
+VA - Только хиты поп музыки №8 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746615.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Плед - Настроение
+002. Koven - Miracle
+003. Панакота - Золотое Солнце
+004. Dj Noiz Feat. Asti - Зацелую(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43ADB387A1EB90EF14A6E8DC0B722BE13509E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020029   (746614) от 25.05.2016
+
+VA - От Края До Края: Популярный Русский Хит (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Павел Воля - Если Б
+002. T-Killah - Доброе Утро
+003. Профилактика - Это Не Сон
+004. Dr Meaker Feat. Laurent John - Good Fight(   Читать дальше...   )Жанр: PopПродолжительность: 12:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45DC53DC4A03A4E0D43F0F8115D9621A18070CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282163   (746558) от 11.02.2019
+
+VA - DubStep Pro V.01 [Compiled by GvertO] (2018-2019) [MP3|320 Kbps] <DubStep, DrumStep, Chillout⁄Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Bill & Esseks - Roughhousin (Original Mix) [2:51]
+02. Mark The Beast & Charmae - See You (Original Mix) [2:55]
+03. Maxim Aqualight - Down (Original Mix) [3:09]
+04. 13 - Lost Voices [3:09](   Читать дальше...   )Жанр: DubStep, DrumStep, Chillout⁄Lounge, Future GarageПродолжительность: 02:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C201479EDCB57E2944958D141A4B26847EE17CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020142   (746483) от 25.05.2016
 
 VA - Музыка дороги Сборник русского шансона 7 (2016) [MP3|256 кб/с] <Шансон>
@@ -571,180 +745,6 @@ VA - Shazam: Хит-парад Russia Top 100 Февраль (2019) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B335BEB33A60935DFAF9F1F8BE026FBF13B3962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524283   (744888) от 15.01.2022
-
-VA - Kiss FM Top 100: The Best Tracks Of 2021 (2022) [MP3|320 Kbps] <Progressive House, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744888.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mathame - Departure (Systema Edit) (6:34)
-002. ARTBAT & Dino Lenny - Fading (Original Mix) (8:07)
-003. Alan Fitzpatrick feat. LOWES - A Call Out For Love (Extended Mix) (5:22)
-004. Boris Brejcha - Hold Your Speakers (Original Mix) (6:52)(   Читать дальше...   )Жанр: Progressive House, Dance, OtherПродолжительность: 10:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C371F9B6E75579ACE4E15499E9C01F6C0C7E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217108   (744870) от 03.04.2018
-
-VA - Dj World All 2018 Nice Day (2018) [MP3|320 Kbps] <Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744870.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Grazze Ft. ARC - Aura (Original Club Mix)
-002. East Cafe, GMJ - 22 (Doppel Remix)
-003. Dont Look Now & Tom Tyler - All Day, All Night (Original Club Mix)
-004. Jewelz & Sparks feat. Pearl Andersson - All I See Is You (Afrojack Edit)(   Читать дальше...   )Жанр: DubstepПродолжительность: 07:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D962B1967AC869072E48C8A4FFDA92E1C7BAC9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217100   (744869) от 03.04.2018
-
-VA - Schlager-Marathon 2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantasy - Ich brenn durch mit Dir (Berlin)
-02. Wolfgang Petry - Bronze,Silber und Gold (Radio Version)
-03. Matthias Reim - Ich hab geträumt von Dir
-04. Nik P. - Dieser Ring(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56EDD7384E0AD451087D9A8E6FF3890D2A619E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217105   (744750) от 03.04.2018
-
-VA - Romantic Souls (2018) [MP3|320 Kbps] <Pop Rock, RnB, Soul>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744750.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elton John - Tiny Dancer
-002. James Bay - Wild Love
-003. Frankie Goes To Hollywood - The Power Of Love
-004. Camila Cabello, Young Thug - Havana(   Читать дальше...   )Жанр: Pop Rock, RnB, SoulПродолжительность: 08:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44815474FDC571CF465D48C79E91F71E4B20D050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216977   (744749) от 03.04.2018
-
-VA - 100% Clubland X-Treme (4CD) (2018) [MP3|320 Kbps] <Electronic, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scooter - Jumping All Over The World
-02. Sak Noel - Loca People
-03. Artemesia - Bits & Pieces (Tidy Boys Remix)
-04. Special D - Come With Me (Single Edit)(   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 04:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8092D92162A857A8131D433D327E3D99DC345FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020360   (744741) от 26.05.2016
-
-VA - Кавер Rock (2015) [MP3|128-320 кб/с] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пpиключeния Элeктpoникoв - Tpaвa У Дoмa
-02. Элизиyм - Эx, дopoги
-03. 10HEБO - Pябинa
-04. Ghost Forest - Лaнфpeн Лaнфpa(   Читать дальше...   )Жанр: RockПродолжительность: 04:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821636FA8B7C24C1E58121B70B2971571040334D
 ```
 
 https://mybot314.ru/tekegram_catalog/

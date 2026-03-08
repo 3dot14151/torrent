@@ -1,3 +1,29 @@
+###  Публикация: 978018   (964397) от 22.01.2016
+
+Google Chrome 48.0.2564.82 Stable RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – веб-браузер от Google с открытым исходным кодом, который сочетает поддержку новейших веб-приложений, удобный поиск с высокой скоростью и стабильностью. Из особенностей браузера разработчики особенно выделяют изолированные вкладки, предотвращающие сбой и ошибки работы программы, что обеспечивает более надежную защиту от опасных сайтов.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA51CB5E6121F26D023E5DB3E38C4158A4491D9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978061   (964394) от 22.01.2016
 
 Dr.Web Remover 10.0.2.201506180 [Ru]
@@ -664,35 +690,6 @@ Morph Age Pro мощный инструмент для высококачест�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD3410654FA7DCEAE3B9199C02E9E01D2C7DC1A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359420   (964294) от 12.02.2020
-
-Desiderii Marginis - Songs Over Ruins (1997) Reissue, Remastered 2017, Cyclic Law  [FLAC|Lossless|Web-DL|tracks] <Industrial Ambient, Dark Ambient, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Songs Over Ruins I (4:40)
-02. Scintillate II (6:22)
-03. Ephemeral (6:58)
-04. Chrism (3:52)(   Читать дальше...   )Производство: Cyclic Law - 89th CycleЖанр: Industrial Ambient, Dark Ambient, Experimental, Modern ClassicalПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46720D759127E1F4E1BF3FE0170B96350C71D7C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

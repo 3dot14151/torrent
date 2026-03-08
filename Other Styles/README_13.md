@@ -1,3 +1,32 @@
+###  Публикация: 1358227   (969562) от 07.02.2020
+
+VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969562.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:14| 01. Doja Cat - Boss Bitch
+|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
+|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
+|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311378A72E690E63E71DF6D75707451E779CD6A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 663203   (968921) от 13.01.2014
 
 Московская оперетта - Граф Орлов (2013) [MP3|192 кб/с]<Мюзикл>
@@ -722,35 +751,6 @@ Crispin Merrell - Машина смерти / Death Machine (1994) 2015 [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8071A60B30F11B6E29AE8E977117DF159C51CF57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359485   (963212) от 13.02.2020
-
-VA - Raise the Roof: Country Bands (2020) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Byrds - Things Will Be Better
-02. Crazy Horse - All Alone Now (Single Version)
-03. Zac Brown Band - Jump Right In
-04. The Dillards - Rainmaker(   Читать дальше...   )Жанр: CountryПродолжительность: 01:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2AE6A5CFEE191AAEA012ACEFA6B5DCCC4522C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

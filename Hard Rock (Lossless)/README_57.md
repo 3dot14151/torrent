@@ -1,32 +1,3 @@
-###  Публикация: 1181930   (321200) от 08.11.2017
-
-Deep Purple - A Fire in the Sky (2017) 3CD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321200.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Hell to Pay
-02. Vincent Price
-03. Wrong Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A56ED9967B365653984C15801365AEBF87122F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421245   (319893) от 04.11.2020
 
 Platinum Overdose - Back For The Thrill (2020) [FLAC|Lossless|image + .cue] <Glam, Hard Rock>
@@ -751,6 +722,35 @@ Billy Gibbons And The BFG's - Perfectamundo (2015) [FLAC|image + .cue] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:474A1CE1E4C4858B0278114C1DDBBBC34350D598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332860   (309727) от 22.10.2019
+
+Last Temptation - Last Temptation (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Win I Lose (6:01)
+02. Bring Your Light Out (5:07)
+03. Blow A Fuse (3:55)
+04. Never Say Goodbye (4:33)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' HeavyПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42159C0C653C748F9FFB3AF96B0594C7645A84E
 ```
 
 https://mybot314.ru/tekegram_catalog/

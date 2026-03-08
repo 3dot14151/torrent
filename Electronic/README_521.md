@@ -1,3 +1,61 @@
+###  Публикация: 1744440   (45457) от 27.08.2024
+
+Various Artists - Italo Lounge (2007) [WavPack|Lossless|image + .cue] <Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comare Johnny - Piove (Modugno, Verdi) . . . . . . . . . . . . . .2:55
+ 02. Amanda Lear - Una Notte Insieme a Te (S. Menegale, R. Ferrato) . .3:50
+ 03. Jeronymo - Questi Giorni Senza Te (Jeronymo) . . . . . . . . . . .3:44
+ 04. Marco Armani - Esser Duri (M. Armani). . . . . . . . . . . . . . .4:22(   Читать дальше...   )Жанр: LoungeПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0315170CD1113C6594B069DBD37AF6D87E5708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745684   (45260) от 29.08.2024
+
+Duran Duran - Notorious (1986) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notorious (Single Mix) [00:03:58]
+02. Winter Marches On [00:03:25]
+03. Notorious (Extended Mix) [00:05:16]
+04. Notorious (Latin Rascals Mix) [00:06:23](   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975AB8CE4D27E0892D29D2AC0D3F251446CDAF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746036   (45259) от 29.08.2024
 
 Moon Tripper - Echoes Of Freedom (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Psytrance, Psychill, Progressive Chillout>
@@ -685,63 +743,6 @@ VA - ARAB X (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66DDAD55BC95EBF7B4AB5B0755CCB6E9F96F5DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748420   (44100) от 09.09.2024
-
-Jean-Michel Jarre - Paris Stadium (2024) EP, Live [FLAC|Lossless|WEB-DL|tracks] <Electronic Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris Stadium (Live)
-02. Industrial Revolution P2 Stadium (Live)
-03. Time Machine Stadium (Live)Жанр: Electronic TechnoПродолжительность: 00:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE47D56AFCD9A1FE0027CC5D24D147CD500E7AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748377   (44094) от 09.09.2024
-
-VA - Hidden Chill out Cafe, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Don't Cry Baby (2:40)
-02. Paul James Fernandez - Calling for You (5:02)
-03. Aeorial - Breeze (Original Version) (4:33)
-04. Ingo Herrmann - So Smooth (Original Mix) (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0294633822345657EFCFEEFF08F87A16B04AB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

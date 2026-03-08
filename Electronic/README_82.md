@@ -1,3 +1,61 @@
+###  Публикация: 1100815   (899888) от 04.02.2017
+
+VA - Relaxation Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airlines - Mister
+02. Ed Kashinsky - Supreme
+03. Marie Therese - Endless Time - Chillout Mix
+04. Bryan Milton - Sunny Day(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F547259336174720F8D93B2A19FB86CF246F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100720   (899842) от 04.02.2017
+
+VA - Hypnotized Creations Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amine K/Moroko Loko - Mayday [06:34]
+02. Nico Pusch - Get Me (Township Rebellion remix) [08:23]
+03. Kant - Dyster (Animal Trainer remix) [07:39]
+04. Betoko/Haze-M - Lusch (El Mundo remix) [06:56](   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 02:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F03D4825F7AAA2856FAD490503B6601104F86A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100533   (899834) от 04.02.2017
 
 VA - Lounge in Love Collection Vol 1 (2017) [MP3|320 Kbps] <Electronic, Lounge, Chillout>
@@ -684,64 +742,6 @@ Scooter - The Ultimate Aural Orgasm (2007) [FLAC|Lossless|tracks + .cue] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02F85620D152EB37C72E49F9E259BCDC726FD842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993042   (896949) от 04.03.2016
-
-Dr. Alban - The Very Best Of 1990 - 1997 (1997) [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Africa (Fast Blast club mix) (5:38)
-02. Stop the Pollution (album version) (3:43)
-03. U & Mi (album version) (3:47)
-04. No Coke (7' mix) (3:44)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB4D4A7F67412840F4DEC42AC18E24BEFF5C382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370496   (896924) от 27.03.2020
-
-VA - Bangin' Future House, Vol. 3 (2020) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tale & Dutch - California Feeling (Radio Edit) [03:43]
-02. ShiDztorm - Burn (Radio Edit) [03:06]
-03. Red Chasey - Id (Let It Go) (Radio Edit) [03:23]
-04. FROIDZ - Forevermore (Uplink Remix Edit) [03:04](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACEA5A77246C5292A7A10557EF6ABDA0BD266C55
 ```
 
 https://mybot314.ru/tekegram_catalog/

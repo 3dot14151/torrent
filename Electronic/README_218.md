@@ -1,3 +1,61 @@
+###  Публикация: 1541096   (648526) от 01.04.2022
+
+Kungs - Club Azur (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zebulon (0:49)
+ 02. Fashion (4:32)
+ 03. Never Going Home (2:50)
+ 04. Clap Your Hands (3:10)(   Читать дальше...   )Жанр: EDM, Nu Disco, Club HouseПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AA92CC2B0F4747C18F573DF17B58B702FDA4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526756   (648409) от 01.04.2022
+
+Michael e - Discography 69 Releases (2006-2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648409.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 - Beautiful World
+2007 - Late At Night
+2007 - A Better World
+2008 - Speak To The Others(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, New Age, Lounge Jazz, AmbientПродолжительность: 68:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EF9F9D19864BB4B329A3563A23272F79001B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496698   (648304) от 01.04.2022
 
 Ganga + side projects: Petrol - Polar Rundfunk - Troln • Discography 89 Releases (2005-2022) [MP3|320 Kbps] <Сhillout, Downtempo, Deep House>
@@ -690,64 +748,6 @@ VA - Acoustic Unplugged. Bar Lounge Compilation Playlist 2017.2 [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E69B4DB645E19621CFB3909556BF5086B19265B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142084   (646723) от 12.06.2017
-
-VA - Balearic 3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Balearic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cantoma - Abando (Original Mix)  5:12
-02.  The Madrigal - Ride To The Moon (Original Mix)  3:58
-03.  Fuga Ronto - Daydreams (Original Mix)  6:21
-04.  Shy Layers - Black & White (Original Mix)  3:03(   Читать дальше...   )Жанр: Downtempo, Chillout, BalearicПродолжительность: 02:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768BCA7E4CA428684EE36E10775FD82F83A36F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227447   (646699) от 26.05.2018
-
-Klaus Schulze - Silhouettes (2018) SPV, Oblivion [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-School>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silhouettes (15:48)
-02. Der Lange Blick Zurück (22:15)
-03. Quae Simplex (21:47)
-04. Châteaux Faits De Vent (15:08)Жанр: Ambient, Berlin-SchoolПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECD7A57B02BC42E96B7AA3D6BE2F5D00FA3949D
 ```
 
 https://mybot314.ru/tekegram_catalog/

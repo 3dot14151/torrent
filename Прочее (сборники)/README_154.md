@@ -1,3 +1,119 @@
+###  Публикация: 1580654   (206756) от 02.10.2022
+
+VA - Shazam Хит-парад World Top 200 Сентябрь (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206756.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. JIN - Yours (4:24)
+002. Chris Brown - Under The Influence (3:06)
+003. David Guetta - I'm Good (Blue) (2:57)
+004. Sam Smith - Unholy (feat. Kim Petras) (2:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881BED85B763341E8C7C22582FDE22F697633441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652165   (206731) от 10.08.2023
+
+VA - Music News vol.288 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206731.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adelina - Дотла (02:56)
+ 002. 3333 - ОПП (02:54)
+ 003. Aleesha - Chulita (A Colors Show) (02:53)
+ 004. Amirchik - Капелькою (03:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F0E02C2CBFAB7EA9F8FEA171A22130F792DD81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652143   (206621) от 10.08.2023
+
+VA - Best of Electro Pop 2023 (2023) [MP3|320 Kbps] <Electro Pop, Dance, Club, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiowankers - Other Side
+02. Cheese & Nuts - All Be One
+03. Chris Oldman - Passion (A C R & Symar Mix)
+04. DJ NiGhTwAlKeR - Unity(   Читать дальше...   )Жанр: Electro Pop, Dance, Club, ProgressiveПродолжительность: 03:06:27 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F004189AE9B07E4AFD6B372C33B74A000BD381A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652230   (206610) от 10.08.2023
+
+VA - Electronica 2023: Best Dance Music (2023) [MP3|320 Kbps] <Electro Pop, Dance, Club, Future House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gelow - You Tell Me
+02. Dani Corbalan - No Tomorrow
+03. Real Nam - Closer
+04. Rob Helen - Close Your Eyes(   Читать дальше...   )Жанр: Electro Pop, Dance, Club, Future HouseПродолжительность: 00:56:06 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA207C5B21C63D6C9BDA6F05073B1343064A0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652802   (206452) от 13.08.2023
 
 VA - Summer tracks on repeat... (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ VA - CarMusic 3 for lady (2025) [MP3|320 Kbps] <Pop, House, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CE36418C6B3DC910CD2539AF184BE6B44F1FACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830037   (202411) от 26.10.2025
-
-VA - Music News For Forum vol.142 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jade Chantelle - Bad Gyal (02:31)
- 002. 52Ghz - Mellstroy.Game (02:21)
- 003. 58 - Корабли (02:46)
- 004. Aaron & Zartmann - Sommer (02:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C7339835D90D4A3723A8878C02A47B31116003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829261   (202004) от 25.10.2025
-
-Novi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal, Pop Ballad, Other, Sunoai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Waited All My Life
- 02 - Until You Sleep
- 03 - Because of You
- 04 - Cold Heart(   Читать дальше...   )Жанр: Electronic, Easy listening, Vocal, Pop Ballad, Other, SunoaiПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB658287B0A7045C563C7651FE909EAB0D02096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829259   (202001) от 25.10.2025
-
-Novi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal, Pop Ballad, Other, Sunoai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Anugerah Terindah
- 02 - Every Breath I Take
- 03 - Love Sublime
- 04 - A Shadow of You (Remix)(   Читать дальше...   )Жанр: Electronic, Easy listening, Vocal, Pop Ballad, Other, SunoaiПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DC82868497135ECD9AE3DB881F3510B9D17462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615690   (201896) от 03.03.2023
-
-VA - Украинские песенки Vol.1 (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alyosha  - Калина (03:16)
-02. Kola  - Біля Серця (02:17)
-03. Shumei  - Тривога (03:11)
-04. Маша Кондратенкo - Не Ходи (02:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CE468FD8A83874096318221FEABF59CBF79F47
 ```
 
 https://mybot314.ru/tekegram_catalog/

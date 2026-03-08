@@ -1,3 +1,32 @@
+###  Публикация: 1359485   (963212) от 13.02.2020
+
+VA - Raise the Roof: Country Bands (2020) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Byrds - Things Will Be Better
+02. Crazy Horse - All Alone Now (Single Version)
+03. Zac Brown Band - Jump Right In
+04. The Dillards - Rainmaker(   Читать дальше...   )Жанр: CountryПродолжительность: 01:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2AE6A5CFEE191AAEA012ACEFA6B5DCCC4522C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 621565   (962698) от 20.02.2013
 
 Mike Oldfield - Tubular Beats (2013) /WEB/ [FLAC (tracks)|Lossless]<New Age, Electronic>
@@ -713,35 +742,6 @@ Ultrasone - S-Logic Demo-CD (2008) [FLAC|Lossless|tracks + .cue] <Audiofile, Tes
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:518AE897DF912A3ED244777BD2368198ADAA48A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360558   (960739) от 15.02.2020
-
-David Arkenstone - Celtic Spa (2020) [FLAC|Lossless|WEB-DL|tracks] <New age, Folk, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960739.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ripples In The Myst (6:25)
-2.Glendalough (5:21)
-3.Wandering Spirits (6:37)
-4.Emerald Eyes (5:43)(   Читать дальше...   )Жанр: New age, Folk, CelticПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDFAC3222573E019B2FFE46ACB88958945F7213
 ```
 
 https://mybot314.ru/tekegram_catalog/

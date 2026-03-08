@@ -1,3 +1,61 @@
+###  Публикация: 1047784   (548428) от 31.08.2016
+
+VA - Ibiza by Night Lounge Playlist (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaxamalka - Connection Angles (Original Mix) (5:49)
+02. Chillelektro - Berlengas (Original Mix) (6:57)
+03. Baghira - A Light From Within (Original Mix) (6:05)
+04. Cesar Martinez Ensemble - Dont Stop Believing (Original Mix) (6:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069AD6039BB42B3CA914E890D7A7CCAD204C6A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047845   (548423) от 31.08.2016
+
+VA - Closing Parties (2016) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Casta - Venomous
+02. David Cheeky - Consequences
+03. Stereometric - Abgemacht
+04. Jordi Svit - Big Daddy(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3829D0CC5371E570C46FE44DF75012A8F55B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048041   (548415) от 31.08.2016
 
 VA - Chill Out Bay (2016) [MP3|320 Kbps] <Chillout, Lounge,Deep House>
@@ -683,64 +741,6 @@ Melodic Mode - Somewhere (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF2691E2D04C2EAC4C02BF466D90B68B5C5C3925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310386   (547015) от 24.06.2019
-
-Xoki - Specular (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Ambient, Dub Techno, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frame (01:20)
- 02. Pneuma (33:33)
- 03. Liquid (02:02)
- 04. Crystalline (17:54)(   Читать дальше...   )Жанр: Ambient, Dub Techno, AbstractПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24EC0914A6D0583287DBE3AEC6DED1035D8999CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310517   (546959) от 24.06.2019
-
-VA - A State Of Trance Festival 900 (IEC, Kyiv) (2019-06-22)[MP3|192 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin van Buuren
-01 Armin van Buuren & Shapov – La Resistance De L’Amour
-02 Cosmic Gate – Come With Me
-03 Armin Van Buuren & Vini Vivi & Hilight Tribe vs. Orjan Nilsen – Great Spirit vs. Wait 4 It (Armin van Buuren Mashup)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B3FEC52A3891C0410C01FEBD39BCB23DE142B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

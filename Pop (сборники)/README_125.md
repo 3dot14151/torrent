@@ -1,3 +1,32 @@
+###  Публикация: 1738668   (48554) от 28.07.2024
+
+VA - Disco Friday (2024) [MP3|320 Kbps] <Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48554.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cerrone, Chelcee Grimes - I Want
+002. Alan Ross - The Last Wall
+003. Bananarama - Shy Boy
+004. Cerrone - I Want(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 13:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4F66B26A46F778FED5312B429D69421BB2F19B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739420   (48545) от 28.07.2024
 
 VA - Pop Summer Seasons (2024) [MP3|320 Kbps] <Pop, Dance, RnB>
@@ -716,35 +745,6 @@ VA - National Pop Dance Music Vol.89 (2024) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3CCACE7C2BDD16F5EBF8F9322F088A13A0CD08B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759168   (37997) от 07.11.2024
-
-VA - Pop-Rock Hits Of The New Generation (2024) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37997.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beyonce - Flamenco - (01:40)
- 002. Landon Barker - Friends With Your Ex - (01:59)
- 003. Anitta - Fria - (02:07)
- 004. Bella Poarch - Don't Like Anybody - (02:11)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 11:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A1EE682DF75227518214D540AFF655383EF96D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1278327   (773179) от 24.01.2019
+
+Jumbo - 3 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая диско-группа. Выпустили только эти три альбома в конце 70-х годов.Список альбомов:
+1976 - Sexy Lady
+1977 - City Girls
+1980 - Get That Mojo Working(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 01:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2036A31045BC816F1C71132BC3FD5CBB8FA435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277957   (773166) от 24.01.2019
+
+Shakira - Laundry Service (2001) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Objection - (Tango) (3:44)
+02.Underneath Your Clothes (3:45)
+03.Whenever, Wherever (3:16)
+04.Rules (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17998B6BCEDA3EC16492936A1DDB2FC2A5A5945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015731   (773143) от 12.05.2016
 
 Francesca Michielin - Riflessi Di Me (2012) [MP3|320 кб/с] <Pop>
@@ -682,64 +740,6 @@ Janet Devlin - Confessional (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78A8DA201F43B143998FACA4C7FF404B9F3C4C85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392467   (769380) от 25.06.2020
-
-Las Deblas - Dime Quien Es Esa (1980) LP [MP3|320 Kbps] <Electronic, Flamenco, Disco, Rumba, Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dime Quien Es Esa (3:13)
-02. Corazon Loco (3:00)
-03. Poquito (5:30)
-04. Quiero Y No Quiero (4:33)(   Читать дальше...   )Жанр: Electronic, Flamenco, Disco, Rumba, Latin, PopПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6444839BC14988D7ECDA70749BFF7298CD5852A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392446   (769243) от 26.06.2020
-
-The Rentals - Q36 (2020) [MP3|320 Kbps] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake Your Diamonds (04:18)
- 02. Nowhere Girl (04:31)
- 03. 9th Configuration (06:02)
- 04. Teen Beat Cosmonaut (03:15)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9F785710653057010283BB0BCF3C44AC4EB261
 ```
 
 https://mybot314.ru/tekegram_catalog/

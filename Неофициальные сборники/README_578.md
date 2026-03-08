@@ -1,3 +1,174 @@
+###  Публикация: 1654971   (204487) от 25.08.2023
+
+Danny Bryant - Compilation (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best of Me
+02. Blood Money (Feat. Walter Trout)
+03. Revelation
+04. Between the Lines(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228B9A1640ED38C1BF75378C8084B9806E46AC9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602497   (204430) от 05.01.2023
+
+VA - Радио Рекорд Итоговый Суперчарт 2022 - 100 лучших треков (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204430.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alis Shuka - Not About Us (2:09)
+002. James Hype & Miggy Dela Rosa - Ferrari (3:06)
+003. Robin Schulz feat. David Guetta - On Repeat (3:10)
+004. Imanbek feat. BYOR - Belly Dancer (2:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDE9431A6892034B3C843C52613280D0696114E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602521   (204404) от 06.01.2023
+
+VA - Зима на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Красавцы Love Radio - Танцуем! (3:11)
+02. TSOY - Покажу Паранойю (3:06)
+03. Anna Asti - Ночью На Кухне (3:52)
+04. Alma - Summer Really Hurt Us (2:48)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03778C83F5CD52240B91744E378F2CEAE1294A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602550   (204393) от 06.01.2023
+
+VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Йорш - Половинки (3:25)
+002. Nagart - Сирена (4:15)
+003. Эпидемия - Письмо Ведьмаку (5:37)
+004. 25/17 - Остаться (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 06:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E80F6435977DD0EA1E6982AB84AD0EFFD40F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602805   (204367) от 07.01.2023
+
+VA - Car Music Mix 3 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204367.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. WhyBaby - HARLEY (MVDNES Remix) (1:21)
+002. AQUANEON - BAKU (1:26)
+003. KALVADOS - Простыни (karmv Remix) (1:39)
+004. Jakomo - Эй, Братик (1:46)(   Читать дальше...   )Жанр: G-House, Bass Progressive, OtherПродолжительность: 06:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CEA92D671134C1140342A501F75B5FE869B857F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356395   (204243) от 10.01.2023
+
+Wildways (ex-Sarah Where Is My Tea) - Коллекция (Дискография) (9 альбомов) (2009-2022) [MP3|128-320 Kbps] <Металкор, Постхардкор, Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wildways — Российская метал-группа была создана в конце августа 2009 года гитаристом Сергеем Новиковым и изначально носила название «Sarah Where Is My Tea». 17 июня 2014 года группа меняет название на Wildways (англ. дикие пути). «Просто захотели сделать новый шаг, стать более серьезными. Название Sarah Where Is My Tea звучало слишком саркастично. В какой-то момент (   Читать дальше...   )Жанр: Постхардкор, Металкор, РокПродолжительность: 07:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7FD9DB49F6326D84C6637A7063680372A37394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603916   (204175) от 11.01.2023
 
 VA - 300 RU 2 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,180 +742,6 @@ VA - TOP Non-Stop - Deep House and Chillout Before 2000. Part 2 (2022) [MP3|192-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18CFC6F4C99CE7F98C9F20BE433258189A76740A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615636   (202187) от 26.02.2023
-
-VA - Fantastic 90s (2023) 3CD, Compilation, Box Set [MP3|320 Kbps] <Dance, Disco, New Wave, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202187.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Take That - Pray
-02. Backstreet Boys - I Want It That Way
-03. Christina Aguilera - Genie In a Bottle(   Читать дальше...   )Жанр: Dance, Disco, New Wave, SynthpopПродолжительность: 01:22:11 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2058FB018E2195CF5B8FAE7BCFF23E64323D3AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829263   (202006) от 25.10.2025
-
-Novi - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Pop Rock, Vocal, Pop Ballad, Other, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Forbidden to Love
- 02 - Echoes of the Dusk
- 03 - Need You Stay
- 04 - Stay With Me(   Читать дальше...   )Жанр: Electronic, Pop Rock, Vocal, Pop Ballad, Other, SunoaiПродолжительность: 01:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6D314C4AC0906323C798D281C579539AB57768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829261   (202004) от 25.10.2025
-
-Novi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal, Pop Ballad, Other, Sunoai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Waited All My Life
- 02 - Until You Sleep
- 03 - Because of You
- 04 - Cold Heart(   Читать дальше...   )Жанр: Electronic, Easy listening, Vocal, Pop Ballad, Other, SunoaiПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB658287B0A7045C563C7651FE909EAB0D02096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829259   (202001) от 25.10.2025
-
-Novi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal, Pop Ballad, Other, Sunoai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Anugerah Terindah
- 02 - Every Breath I Take
- 03 - Love Sublime
- 04 - A Shadow of You (Remix)(   Читать дальше...   )Жанр: Electronic, Easy listening, Vocal, Pop Ballad, Other, SunoaiПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DC82868497135ECD9AE3DB881F3510B9D17462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829232   (201994) от 25.10.2025
-
-Whiskey River - Broken Highway (2024) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deserted Dreams [02:00]
-02. Whiskey Nightsong [02:00]
-03. Midnight Road [02:00]
-04. Whiskey Glow [01:54](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BA3DFECFAFBA59507B4F5B43353055A2F8B6C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615690   (201896) от 03.03.2023
-
-VA - Украинские песенки Vol.1 (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alyosha  - Калина (03:16)
-02. Kola  - Біля Серця (02:17)
-03. Shumei  - Тривога (03:11)
-04. Маша Кондратенкo - Не Ходи (02:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CE468FD8A83874096318221FEABF59CBF79F47
 ```
 
 https://mybot314.ru/tekegram_catalog/

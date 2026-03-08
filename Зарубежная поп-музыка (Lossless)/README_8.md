@@ -1,3 +1,32 @@
+###  Публикация: 1351247   (1002425) от 09.01.2020
+
+a-ha - Lifelines (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifelines (Demo) (5:16)
+02. You Wanted More (Demo) (4:01)
+03. Forever Not Yours (Demo) (4:12)
+04. There's A Reason For It (Demo) (4:14)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD51D4A73CCBDFA44B27A40800C62D9F626F9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351360   (1002188) от 10.01.2020
 
 Georgia - Seeking Thrills (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop>
@@ -713,35 +742,6 @@ Fitzgerald - Full Circle (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6BE46DF0A6DCF69BA71E2C982DFCE16AF8AAD29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971964   (983341) от 05.01.2016
-
-Anastacia - Two Albums: Not That Kind, Freak Of Nature (2000,2001) [APE|Lossless|image+.cue] <Rhythm & Blues, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not That Kind
-02. I'm Outta Love
-03. Cowboys & Kisses
-04. Who's Gonna Stop The Rain(   Читать дальше...   )Жанр: Rhythm & Blues, Pop RockПродолжительность: 01:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502381B0590F7AE52E9DEACDF5DE522463DFD50D
 ```
 
 https://mybot314.ru/tekegram_catalog/

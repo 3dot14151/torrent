@@ -1,29 +1,3 @@
-###  Публикация: 1835146   (250568) от 05.11.2025
-
-Проекты - VideoHive - Phone 17 Pro Max 3D Mockups - 59600334 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон семнадцатого айфона для ваших творческих задач.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE621716F0F6121E9C424888A7D3A2B8C7F53CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835136   (250564) от 05.11.2025
 
 Проекты - VideoHive - Urban Hype - Street Style Promo - 59600334 [AEP]
@@ -681,6 +655,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE80264D1F0AF5E8867CAC38317F063D2EC7B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086763   (149238) от 25.12.2016
+
+Проекты - VideoHive - Social Media Bundle - 16974172 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Social Media Bundle - пакет анимации, отображающий работу социальных сетей.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5EBC6F90BD0B2CCDBC05DE2D434C66B19119CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1373173   (882181) от 05.04.2020
+
+VA - Spring Day: Chill House Selected (2020) [MP3|320 Kbps] <Chill House, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parvenu - Side Step
+02. Sebastian - Movement
+03. Beamy - Big Sur (Original Mix)
+04. Dreamweaver - Aurora Borealis(   Читать дальше...   )Жанр: Chill House, ChilloutПродолжительность: 03:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F72AB534850703A8ECC7567A55E28D9D9C43F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372907   (882108) от 05.04.2020
 
 VA - Record Super Chart 631 (2020) [MP3|320 Kbps] <Pop, House, Dance>
@@ -716,35 +745,6 @@ VA - Beautiful Now: Minimal Tech House NRJ (2016) [MP3|262-320 кб/с] <Minimal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:454770B33CE400696F118FBF061281D9C40A3C41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997055   (877557) от 15.03.2016
-
-VA - Music For Everyone - Chillstep & Dubstep Vol.4 (2016) [MP3|320 кб/с] <Chillstep, Dubstep, Future Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877557.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. SizzleBird - Wheel Of Time (Original Mix)
-2. Kid Zion – Awaken Here (Original Mix)
-3. Didrick - A Part Of You (WRLD Remix)
-4. Jex – You (Original Mix)(   Читать дальше...   )Жанр: Chillstep, Dubstep, Future BassПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0606A4BA65EBAB86D9A684BD020D42965BEC560B
 ```
 
 https://mybot314.ru/tekegram_catalog/

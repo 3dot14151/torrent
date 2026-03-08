@@ -1,3 +1,29 @@
+###  Публикация: 1028017   (692482) от 21.06.2016
+
+CoolUtils Total Excel Converter 5.1.215 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта утилита несомненно пригодится тем, кто часто конвертирует файлы Excel и Excel 2007 в Word (Doc и DocX), PDF, HTML, Access, TXT, ODT, ODS, XML, SQL, CSV, Lotus, DBF, TEX, DIFF, SYLK, LaTeX. Total Excel Converter поддерживает практически любые таблицы, включая документы OpenOffice (.odt, .ods).Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB9B40B4EE4B5EA5F0A46F47581E029CB9A5A258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028016   (692240) от 21.06.2016
 
 CoolUtils Total Outlook Converter 4.1.256 [Multi/Ru]
@@ -652,32 +678,6 @@ Falkon - это веб-браузер KDE с использованием мех
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:670C1303EAEE7A06D7D3FF18E8798FF5D64242EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291056   (672016) от 23.03.2019
-
-iSpring Suite 9.7.1.3075 [En]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672016.jpg" />
-</div>
-
-
-###  Подробнее
-
-iSpring Suite 9 является дополнением к PowerPoint, поэтому прост и удобен в работе. Позволяет превратить обычную презентацию в профессиональный учебный курс. Продукты iSpring пользуются доверием у образовательных организаций и бизнеса, как лучшие инструменты для e-learning. Многие всемирно известные компании, такие как Oracle, Sony, P&G, IBM, adidas, AMD, используют (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D8C7514B5E1363A267E77F9832ED351258A8E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

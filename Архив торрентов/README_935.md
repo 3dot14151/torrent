@@ -1,29 +1,3 @@
-###  Публикация: 1005424   (832403) от 09.04.2016
-
-Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (08.04.2016) WEB-DL [H.264/720-LQ] (выпуск 10)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832403.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A793FA76F6F86869D9FCD29AF7F5218230396FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005491   (832401) от 09.04.2016
 
 Выживший / The Revenant (2015) BDRip [H.264/720p]
@@ -701,6 +675,35 @@ VA - No Mercy Vol.2 (2017) [MP3|320 Kbps] <Trance, Psy-Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E8DEC23E06BD24D58B31A3112BE85F9A2075918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114638   (832153) от 15.03.2017
+
+Spanish Fly - Love Song The Rebirth (1998) [FLAC|Lossless|tracks] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Love Song The Rebirth (Bounce-Video-Mix) [03:41]
+02 Love Song The Rebirth (New Radio-Mix) [03:33]
+03 Love Song The Rebirth (Melino Short Cut-Mix) [03:58]
+04 Love Song The Rebirth (The Big Thriller-Mix) [06:25](   Читать дальше...   )Жанр: TranceПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5E3C97D88A9D4872D5950135364DAFEFE885A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

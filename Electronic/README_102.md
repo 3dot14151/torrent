@@ -1,3 +1,59 @@
+###  Публикация: 1110543   (852163) от 03.03.2017
+
+VA - Bye Bye Winter! (20 Groovy Deep-House Tunes) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain Soul – Love in the Net [03:08]
+02. Paul Smith – Into the Night [02:57]
+03. Johnny Sonny – Clap Your Hands [03:12]
+04. Goldeep – One Last Dance [03:38](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473B8145F6E93C171426C208558BDDE62D225C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110689   (852083) от 03.03.2017
+
+Katri - Shamanic Dream (2017) EP [MP3|320 Kbps] <Psytrance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shamanic Dream (6:38)
+02. Time Traveler (6:47)Жанр: PsytranceПродолжительность: 00:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EADB59B39312C70A4C9A04F61CE765B8901B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110610   (852082) от 03.03.2017
 
 VA - Goa Trance Vol.34 (Compiled by DJ TULLA) (2017) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
@@ -684,61 +740,6 @@ Phisonsoid - Discography 18 Releases (2009-2015) [FLAC|Lossless|WEB-DL]<Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06B87142BDB145B0E92738D1C6AEBE830C54C27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756711   (848874) от 26.03.2014
-
-Alex M.O.R.P.H. - 6 Albums , 7 Compilations (2006 - 2014) [MP3|320 кб/с]<Trance , Uplifting Trance , Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 02:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE734D7708BE4F61B0550149FA9850B86FEB90E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111196   (848853) от 05.03.2017
-
-VA - Easy Listening Lounge Affairs Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York - Cruisin'
-02. Lazy Hammock - Feel So Free
-03. Simon Le Grec - Stella
-04. Glam Sam And His Combo - Just Because(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEE2A1CFC1BA389C92694BDF54FA728D69C3B42
 ```
 
 https://mybot314.ru/tekegram_catalog/

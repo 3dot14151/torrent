@@ -1,3 +1,61 @@
+###  Публикация: 1188559   (275003) от 02.12.2017
+
+VA - Creativeness #1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morgan & YokoO – Spiraling (07:03)
+02. Franca – Vortex (Genii Interpretation) (08:06)
+03. Milez – Questions feat. Chappell (Gumz Remix) (08:32)
+04. Kotelett & Zadak – Rebrand (07:19)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A730F216F8245F6AA35E8EB27BFE41360CF23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188054   (275002) от 02.12.2017
+
+VA - Rielism - Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rene Ablaze & Universal Sense  -  Island Of Dreams (Original Mix) 7:04
+02.  8 Wonders & Arnej  -  Together We Will Rise (Jak Aggas Remix) 6:22
+03.  Eryon Stocker  -  Skyscrapers (Perrelli & Mankoff Remix) 7:02
+04.  Amy Kirkpatrick & Dark Fusion  -  Be There For You (Original Mix) 4:33(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE05AD35671792A3C6409AB5C9F6D5EE0733878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188644   (274999) от 02.12.2017
 
 VA - Trance Favorites EPisode #010 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -687,64 +745,6 @@ VA - Black Hole Trance Music 11-18 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29CE2253438904DB67FDCC237E70FB6E5EB46C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265661   (274138) от 28.11.2018
-
-VA - Markus Schulz - We Are the Light (The Extended Mixes) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - The Awakening (Extended Mix) (08:03)
-02. Markus Schulz, Seri & Omnia - Road Of No Return (Extended Mix) (06:58)
-03. Markus Schulz & Alina Eremia - You Light Up The Night (Extended Mix) (06:53)
-04. Markus Schulz - We Are The Light (Feat. Nikki Flores) (Extended Mix) (06:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25711B56B4B3757E107BBB673AFAB5FE39952608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265509   (274128) от 28.11.2018
-
-VA - Vocal Trance Legends (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Morris feat. Ana Criado - Border Line (Radio Edit)
-02. Stine Grove - This World Is Full Of Goodbyes 2018 (Original Mix)
-03. Saad Ayub feat. Jaren - Hurt (RYDEX Remix)
-04. Allen Watts feat. Katty Heath - Break Without The Pain (Radio Edit)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3116C31C89143B675A7A091C111ECDFC1CA9D0B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

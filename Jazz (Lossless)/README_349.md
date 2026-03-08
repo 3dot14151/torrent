@@ -1,3 +1,32 @@
+###  Публикация: 1783442   (69795) от 06.03.2025
+
+The John Graas Project - Jazz Studio 1/2 Complete Sessions (1953, 1954) 2004, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenderly [22:27]
+02. Let's Split [14:07]
+03. Laura [7:24]
+04. Here Come the Lions [6:42](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream Jazz, CoolПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B6618F3B07C96593C154EB0969CDD6C30075EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783438   (69794) от 06.03.2025
 
 The Syd Lawrence Orchestra - Big Band Swing (1984) Philips [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -713,35 +742,6 @@ Art Pepper - Neon Art: Volume Two (1981) 2015, Omnivore Recordings [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A2268B1C7F9E418C0698213620E8E1C6F8DB6F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785276   (69291) от 15.03.2025
-
-Wayne Shorter - Night Dreamer (1964) 2024, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Dreamer [7:18]
-02. Oriental Folk Song [6:53]
-03. Virgo [7:11]
-04. Black Nile [6:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E943D32CE350899F8DC24A298744F0C05A38211B
 ```
 
 https://mybot314.ru/tekegram_catalog/

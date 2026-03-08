@@ -1,3 +1,61 @@
+###  Публикация: 973363   (980101) от 08.01.2016
+
+VA - Viper Presents: Drum & Bass Annual 2016 (2016) [MP3|320 кб/с] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brookes Brothers - Climb High (feat. Danny Byrd - radio edit)
+02. The Prototypes - Hypercube
+03. InsideInfo & Mefjus - Pulsation
+04. Matrix & Futurebound - Glow Worm(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B188D4F0ACA2422919C9D66574920157F6A5E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972360   (979211) от 09.01.2016
+
+Jaffa - 2 albums (2000, 2011) [MP3|320 кб/с] <Electronic, Ambient, Jazz>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979211.jpg" />
+</div>
+
+
+###  Подробнее
+
+За спиной Дэвида Кейкона, он же Jaffa, пятнадцать лет школы классической игры на фортепиано. Большой поклонник органа и коллекционер старинных синтезаторов, в своей музыке он использует такие инструменты, как Fender Rhodes, Moog MultiMoog, Roland Alpha-Juno 2, Waldorf Pulse, Hammond B3, Hohner Clavinet и Wurlitzer EP.
+Дебютный альбом Jaffa не укладывается в рамки (   Читать дальше...   )Список альбомов:
+2000 - Elevator
+2011 - EchoesЖанр: Electronic, Ambient, JazzПродолжительность: 01:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD4C922288B69F51B5F26BFDE85A8FC9C079262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972433   (979141) от 09.01.2016
 
 Supreme Beings of Leisure - 3 albums (2000-2008) [MP3|318-320 кб/с] <Trip-Hop, Chillout, Electronic>
@@ -691,64 +749,6 @@ Blank & Jones - Chilltronica №5 (2015) [FLAC|Lossless|tracks + .cue] <Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B348A3DDF26D6D52249ADB3BDB40CF781673153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974512   (975682) от 12.01.2016
-
-VA - Deep Club Sounds, Vol. 1 (2016) [MP3|320 кб/с] <House, Club House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Booka. Neal Porter - Hide Your Soul (Teenage Mutants Remix) (06:39)
-02. Benn Finn - Beautiful Instant (Beatamines Remix) (07:21)
-03. Marga Sol - Find Yourself (07:01)
-04. Mia Lemar - Squire Of Desire (Leon Rodt Remix) (07:06)(   Читать дальше...   )Производство: KarmablackЖанр: House, Club House, Deep HouseПродолжительность: 02:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF229C8F946C90BEB5F465F4536829AC3720F222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356643   (975613) от 02.02.2020
-
-VA - Workout Women (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975613.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ale B - Raid the Radio (6:24)
-2.Rossetti Matteo - Space Age (4:52)
-3.Andy Well - Neblina Del Verano (5:02)
-4.Supernocs - Chorando (4:03)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB3040807069F95EBD072FD4AAC276A6805AA05
 ```
 
 https://mybot314.ru/tekegram_catalog/

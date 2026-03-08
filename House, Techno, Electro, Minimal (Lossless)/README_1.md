@@ -1,3 +1,90 @@
+###  Публикация: 1607684   (1043936) от 27.01.2023
+
+VA - The Soundgarden: Winter Collection 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Organic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nick Newman -  A Happening  (6:39)
+02.  Oliver Harper -  Strawberry Thief  (8:12)
+03.  Dastan  -  Observer  (6:51)
+04.  Bodaishin, Thales Senses -  Chants Of Whales  (7:44)(   Читать дальше...   )Жанр: Melodic House & Techno, Organic HouseПродолжительность: 01:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA39D72570894420467DD8F681B294C9EDA04A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608046   (1043813) от 28.01.2023
+
+Satin Jackets - Reunion (2022) [FLAC|Lossless|tracks + .cue] <House, Deep House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For What We Have (4:01)
+02. Move On (ft.Panama) (4:27)
+03. First Thing (ft. Tailor) (4:00)
+04. Coffee and Feels (4:08)(   Читать дальше...   )Жанр: House, Deep House, Nu-DiscoПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9A829989C692E6010B56C89B3FCA3EE64DCDFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608476   (1043634) от 30.01.2023
+
+VA - Dialtone Records - 15 Years Anniversary (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Chillwave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aradya -  Mayahuel  (6:40)
+02.  Naturae -  Comfort Room  (8:12)
+03.  Juani Bria -  Daydreaming  (7:54)
+04.  Deejaguar -  Jamaican Paradise  (8:37)(   Читать дальше...   )Жанр: Deep House, Organic House, ChillwaveПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633B032B0D4D04498289E4538D54BB821D1E0365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608704   (1043555) от 31.01.2023
 
 VA - FG Top10: January 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic House & Techno>
@@ -652,90 +739,6 @@ VA - Alpha 9 Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4914DA1969F1FD807F180C7251C0B1F78A11166C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441681   (1037513) от 22.01.2021
-
-VA - The Sound Of Christmas Gifts (2020) MixCult Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anas M - Dubz (Im'pulse Remix) (07:28)
-02. Artyom Kozlov - Clouds (06:24)
-03. CGeorge - Unjustified Sadness (09:53)
-04. COR100 - Contact (Bolgarin Deep Mix) (24Bit) (08:54)(   Читать дальше...   )Жанр: Deep House, Deep Techno, Minimal, AmbientПродолжительность: 04:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E0F2FEEDA7ACE9405C8831C62331849C169D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441945   (1037179) от 23.01.2021
-
-VA - Genix Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jody Wisternoff – The Bridge (Chicane Extended Rework) (05:47)
-02. Supermodels From Paris – Keep On (Komytea Extended Mix) (06:46)
-03. Genix – Mr. H2O (Extended Mix) (05:46)
-04. Stephen J. Kroos – Formalistick (Extended Mix) (06:42)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCEEE29C73355C211DE6BD4B99E6DB5F44378F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442132   (1036947) от 24.01.2021
-
-VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3897896774F3C465A1C28784DAA9F57C4D22AD08
 ```
 
 https://mybot314.ru/tekegram_catalog/

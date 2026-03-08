@@ -1,3 +1,32 @@
+###  Публикация: 1045203   (561273) от 22.08.2016
+
+VA - Авто Хит Зарубежный (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bolier & Natalie Peris - Forever And A Day
+02. Simple Plan - I Don't Wanna Be Sad
+03. Hedley - Can't Slow Down
+04. Pitbull & Ricky Martin - Mr. Put It Down(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F8DE2EA13AE0C562B6C13E4329BAEC19A4741C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530447   (561087) от 03.08.2012
 
 VA - Союз Хитовый 3 (2012) [MP3|256 кб/с]<Pop>
@@ -724,35 +753,6 @@ VA - Топ 30 крутяк недели от Муз-ТВ Июль (2018) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC6ABF040AD6ADD85FD9612260E42BFC8CE56136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236527   (553962) от 19.07.2018
-
-VA - Российские новинки (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553962.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 5sta Family-Снова Вместе (Sergey Kutsuev Remix)
-003. Alekseev-Сберегу
-002. Aiza feat. Daffy-Запуталась
-004. Alex Maier-Девочка Танцуй(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DBC9981F27EAF6D77583980D307C15DBCE932E
 ```
 
 https://mybot314.ru/tekegram_catalog/

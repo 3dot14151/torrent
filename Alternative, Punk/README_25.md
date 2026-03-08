@@ -561,40 +561,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563987   (403030) от 23.10.2012
-
-IsRain - Trees Never Sleep (2012) [MP3|320 кб/с]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403030.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Want To Leave You Something (3:07)
-2. No Forgiveness (4:12)
-3. Enemy (3:59)
-4. Open Your Door (4:17)
-5. Frozen Words (5:34)
-6. Parasite (4:03)
-7. I Don't Wanna Be Here (3:51)
-8. Seasons (4:58)
-9. Sonata For The Dead (3:04)Жанр: Alternative RockПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDA2B15779FC67577B59D68B72CC9C03F3CCD42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169971   (401478) от 29.09.2017
 
 Black Pistol Fire - Deadbeat Graffiti (2017) [MP3|320 Kbps] <Alternative, Southern Rock>
@@ -617,38 +583,6 @@ Black Pistol Fire - Deadbeat Graffiti (2017) [MP3|320 Kbps] <Alternative, Southe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6F63067A10F69F1DC0C575CB7C3A19D1CB35021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567957   (396086) от 30.10.2012
-
-So Hideous, My Love... - To Clasp A Fallen Wish With Broken Fingers (2011) [MP3|320 кб/с]<Post-Hardcore/Screamo/Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396086.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Handprints On Glass (4:36)
-2. Prelude In G# Minor (2:25)
-3. However Boldly Their Warm Blood Split (4:55)
-4. To Clasp A Fallen Wish With Broken Fingers (4:36)
-5. Lock & Key (6:56)
-6. Dawn Fades On This Son (2:43)
-7. The Two Witnesses (6:46)Жанр: Post-Hardcore/Screamo/Post-RockПродолжительность: 00:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54AA62B69D0DBCF71C8F36B8E276E5705535EF1B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -771,6 +705,70 @@ Upcdownc - I, Awake (2017) [MP3|320 Kbps] <Post Rock, Metal, Experimental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE56D46F4613EC3481F4199F623D7035D08BD3F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570614   (389982) от 05.11.2012
+
+Flyleaf - New Horizons (2012) [MP3|320 кб/с]<Alt.Rock | Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_389982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Fire
+02. New Horizons
+03. Call You Out
+04. Cage On The Ground
+05. Great Love
+06. Bury Your Heart
+07. Freedom
+08. Saving Grace
+09. Stand
+10. Green Heart(   Читать дальше...   )Жанр: Alt.Rock | Female VocalПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 151073   (389821) от 08.11.2009
+
+Orianthi - Believe (2009) [MP3|320 kbps]<Alt. Rock/Modern Rock/Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_389821.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. According To You (3:18)
+2. Suffocated (3:01)
+3. Bad News (3:07)
+4. Believe (3:38)(   Читать дальше...   )Жанр: Alt. Rock/Modern Rock/Female VocalsПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1032520   (644034) от 08.07.2016
+
+John Fluker - 11:11 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaken [00:02:39]
+02. In the Beginning [00:03:29]
+03. Artificial Time [00:05:33]
+04. The 4th Dimension [00:04:22](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28922E367850679542B0DFB60295157DEA24D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032545   (644027) от 08.07.2016
 
 Amy Lauren - Sulla Riva (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -761,35 +790,6 @@ VA - The Woman In Red (1984) [FLAC|Lossless|image + .cue] <Soundtrack, Funk & So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:369D75B48324B8FEE9D1CA9F277F33ECAFFD0520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032824   (639698) от 10.07.2016
-
-Levon Minassian & Armand Amar - Songs from a World Apart (2005) [FLAC|Lossless|image + .cue] <Folk, World, Armenian Duduk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hovern'engan    05:08
-02.  Tchinares    05:47
-03.  Ar Intch Lav Er    06:15
-04.  Nare Nare    05:21(   Читать дальше...   )Жанр: Folk, World, Armenian DudukПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1BD570D73B4A70E6D6D7C50CAE7333D175A6C3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

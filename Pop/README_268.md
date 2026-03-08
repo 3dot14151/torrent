@@ -1,3 +1,61 @@
+###  Публикация: 1627451   (239140) от 20.04.2023
+
+Пламя - Grand Collection (2001) [FLAC|Lossless|tracks + .cue] <Pop, Retro-Schlager>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не надо печалиться (2:54)
+ 02. На дальней станции сойду (3:19)
+ 03. Снег кружится (4:10)
+ 04. Детства последний звонок (3:51)(   Читать дальше...   )Жанр: Pop, Retro-SchlagerПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3966006E5A59DEB3A2AE513ADEB212A2187BD98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622891   (239041) от 30.03.2023
+
+VA - Select Mix Essentials Vol. 193 (2023) [MP3|320 Kbps] <Disco, Synthpop, Rap, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gayle - Abcdefu (Select Mix Remix)
+02. Juice Wrld, Justin Bieber - Wandered To La (Select Mix Remix)
+03. Drake, Future, Young Thug - Way 2 Sexy (Select Mix Remix)
+04. 24kgoldn - More Than Friends (Select Mix Remix)(   Читать дальше...   )Жанр: Disco, Synthpop, Rap, R&BПродолжительность: 00:40:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2CD01598E9CED817E012DBBB2AB3CADE8D2449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577034   (239024) от 17.09.2022
 
 DJ BoBo - Fantasy (2010) [OGG Vorbis|484 Kbps] <Electronic, Eurodance, Dance-pop>
@@ -687,64 +745,6 @@ Lara Fabian - 9 (2005) [OGG Vorbis|540 Kbps] <Pop, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62BB27190B5A0879049A15518C9BF88D91F1D245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627713   (237145) от 20.04.2023
-
-Petite Noir - MotherFather (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – 777
-02 – Blurry (feat. Sampa the Great)
-03 – Numbers
-04 – Concrete Jungle(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F897263C342A7AD26C29D2654DCA3AB2A63D1E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630306   (237109) от 30.04.2023
-
-Апельсин (Apelsin) - 4 Albums (1976-1989) LP [MP3|320 Kbps] <Pop, Soft Rock, Country Rock, Folk Rock>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Апельсин (эст. Apelsin) - советская и эстонская музыкальная группа, созданная в 1974 году и существующая до настоящего времени. Музыка представляет смесь разных стилей: джаза, кантри, рок-н-ролла, блюза и многих других с добавлением достаточно нетрадиционных инструментов.Список альбомов:
-1976 - Apelsin
-1981 - Apelsin 81
-1988 - Ансамбль «Апельсин» (III)(   Читать дальше...   )Жанр: Pop, Soft Rock, Country Rock, Folk RockПродолжительность: 02:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2361A23870F4568BD65A488840F09523E04B77
 ```
 
 https://mybot314.ru/tekegram_catalog/

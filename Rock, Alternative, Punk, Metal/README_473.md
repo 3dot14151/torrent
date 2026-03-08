@@ -1,32 +1,3 @@
-###  Публикация: 1298798   (601611) от 29.04.2019
-
-King Gizzard And The Lizard Wizard - Fishing for Fishies (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fishing for Fishies (05:01)
-02. Boogieman Sam (04:41)
-03. The Bird Song (04:24)
-04. Plastic Boogie (03:03)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5A9D1CFA8C6A7FF084CEBADD2493DDA5833A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298820   (601606) от 29.04.2019
 
 Queen - Flаsh Gоrdоn: Original Soundtrack (1980) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
@@ -744,6 +715,35 @@ HaddaH - Path To Nefrath (2015) EP [MP3|320 кб/с]<Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D1226A62A3C9A8635ED81EE803C9D2BA4D54BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913667   (600426) от 01.07.2015
+
+CellRot - Interstellar Telepathy (2015) [MP3|320 кб/с]<Avant-garde Black Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600426.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Whoreable
+2. Failed Mutation
+3. Kinbaku Bound
+4. Disincarnate Goddess(   Читать дальше...   )Жанр: Avant-garde Black Metal, Industrial MetalПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999FB7DCDF52C77A70C4F04E4A6CEFA92C9D2DC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

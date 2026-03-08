@@ -1,32 +1,3 @@
-###  Публикация: 1463119   (1020665) от 17.04.2021
-
-Al Stewart - 2 Albums, 3 Box Set, 14 CD (1967 - 1993) [FLAC|Lossless|image + .cue | tracks + .cue]<Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel Like
-02. Angel Of Mercy
-03. Don't Forget Me
-04. Peter On The White Sea(   Читать дальше...   )Жанр: Folk RockПродолжительность: 10:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF604D24B7EBF6FB367FFDC1BD99C04AE00574CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463222   (1020664) от 17.04.2021
 
 Greta Van Fleet - Anthem Of The Peaceful Army (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
@@ -747,6 +718,35 @@ Rivals - Sad Looks Pretty On Me (2021) [MP3|320 kbps] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F39DDAEF244AB75890294F8682C15F79EEAAA8D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463774   (1020154) от 20.04.2021
+
+Rafael Pacha - Al Rincon Por Sonar (2020) [FLAC|Lossless|image + .cue] <Sympho Prog Rock, Prog Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El despertar de la Ciudad (2:14)
+02. Getting Older (3:34)
+03. La línea de la vida (8:46)
+04. Books on the schoolyard (3:47)(   Читать дальше...   )Жанр: Sympho Prog Rock, Prog FolkПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70587407A74D4795DDD9FD6AA51CB332F93D135B
 ```
 
 https://mybot314.ru/tekegram_catalog/

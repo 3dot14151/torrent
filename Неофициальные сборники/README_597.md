@@ -1,3 +1,177 @@
+###  Публикация: 1432594   (163091) от 18.12.2020
+
+VA - crazyДвиж number pyat (2020) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Brothers On The 4th Floor - Dreams (Dima Project Remix) (4:01)
+02. Afrika Bambaataa pres. Khayan - Feel The Vibe (Igor Frank Remix) (3:37)
+03. ATC - Around The World (Mike C Green & Alex Marvel Remix) (4:03)
+04. Audioboy - Circles (3:56)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 05:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C31223D729534D80448218FD5220BD886A296C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596349   (163071) от 18.12.2022
+
+VA - В машине с музыкой Vol.323 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лофт  - Second Wind (03:55) 2022
+02. Raikaho - Не Вернусь (02:10) 2022
+03. Saro Vardanyan - Напои Меня (03:35) 2022
+04. Rammstein - Adieu (Andrea Marino Remix) (04:04) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D45C04693F9B2E733500496516920AC354CA3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432748   (162900) от 18.12.2020
+
+VA - Disco Is Alive (2020) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1er Discopera - Fickle Love (1978) (4:14)
+02. A' La Carte - Heatr Full Of Soul (1983) (3:38)
+03. Alain Chamfort - Manureva (1979) (6:44)
+04. Azoto - Soft Emotion (1980) (5:41)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 06:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16310883A84306BD471C922C6B1E7D2531996739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517260   (162897) от 15.12.2021
+
+VA - Soft Pop (relax) 2 (2021) [MP3|320 Kbps] <Pop, Chillout, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lana Del Rey - If You Lie Down With Me (4:25)
+02. yaeow, Powfu, Sarcastic Sounds - how to live (2:26)
+03. Halsey - Darling (3:02)
+04. Hayd - Closure (3:16)(   Читать дальше...   )Жанр: Pop, Chillout, OtherПродолжительность: 04:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBDD15DDE6BC8B7B00B53B244913698DBDA98F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824551   (162437) от 18.10.2025
+
+Alice Cooper - Compilation (1969-2025) [MP3|320 Kbps] <Shock rock, Hard rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Nightmare Returns ❂ Welcome 2 My Nightmare 2011
+02. Poison ❂ Trash 1989
+03. Might As Well Be On Mars ❂ Hey, Stoopid ! 1991
+04. You & Me ❂ Lace & Whiskey 1977(   Читать дальше...   )Жанр: Shock rock, Hard rockПродолжительность: 14:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BDDF0273BB346C339564B5B68706DA8B6E1EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517743   (162355) от 16.12.2021
+
+VA - Euphoric Techno Dec (2021) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162355.jpg" />
+</div>
+
+
+###  Подробнее
+
+В техно музыке скрывается простая идея - музыка берется из машины, но душу вкладывает в неё человек. Поэтому считать этот жанр абсолютно бездушным наверное тоже неправильно.001. Jacidorex - Speed Of Love
+002. Anml Mthr - Outside
+003. Interfearence - The Carpenter
+004. Sins Of Insanity - Stay Behind(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381866430F659097FCAF782EFCFCA86E632562BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826216   (162341) от 18.10.2025
 
 DJ Calma - Favorites Collection (2025) [MP3|320 Kbps] <Pop, Dance, Electronic, Other>
@@ -571,180 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 18.12.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EFC41A23DF38372D1E9D2273B9D641BC036E9FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517920   (161589) от 17.12.2021
-
-VA - Drum Dance: Electro Bass Session (2021) [MP3|320 Kbps] <Electro Bass, D&B, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастический и эстетичный вокал в сочетании с завораживающей, ласкающей мелодией, на фоне которой звучит заводная драм-партия. Композиции этой подборки написаны с душой, что привлечёт внимание многих слушателей, которые несомненно захотят добавить их к себе в персональный плейлист.001. Addicted - Alarm
-002. Disrupta - Run Dem
-003. Stillz - The Music
-004. Refracta - Cobra(   Читать дальше...   )Жанр: Electro Bass, D&B, DubstepПродолжительность: Electro Bass, D&B, Dubstep
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41F9B542616A038BE3243356B3841AD7194D799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517918   (161513) от 17.12.2021
-
-VA - Deep House: NME Hot Electro Set (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам хочется романтики, хочется послушать относительно спокойную музыку, но не лишённую ритма, то эта подборка для вас. В ней вы найдете 120 отличных треков, которые помогут вам по-настоящему насладиться музыкой.001. Deejay Terry - Misterioso
-002. Salvatore Bruno - Want To Get Down
-003. In-Sane - B-Ben
-004. Roy Rosenfeld - Cherry On Top(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23759DC7B40CAEA10712B5CAA1FA386FD0F2C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598792   (161311) от 21.12.2022
-
-Vargo - Compilation (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (Original Chorus Mix)
-02. Relax (Blank & Jones, Vargo Vocal Rmx)
-03. Those Were the Days
-04. Slowdive(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAFC067257AEF0AFB5AF313858F8F8B63B575B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674112   (161266) от 05.11.2023
-
-Rose Laurens - Compilation (2023) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  American Love
- 02.  La Difference
- 03.  Jouets cass s
- 04.  Quand Tu Pars(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0440EE86E41BB9666B432E76B1BAE3F234783F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598077   (161263) от 21.12.2022
-
-Bliss (Denmark) - Compilation (2022) [MP3|320 Kbps] <Downtempo, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. People Among Us
-02. Breathe
-03. Calling (Feat Sophie Barker)
-04. Desert Sun(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 03:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9D77E3C5F7F5BB0942DE9D2A51DAFD12E16C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597646   (161238) от 21.12.2022
-
-Alannah Myles - Compilation (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Velvet
-02. You Love Who You Love
-03. Comment Ca Va
-04. Love Is(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1CBA64E38E07759F39D218D8505270DF973E20
 ```
 
 https://mybot314.ru/tekegram_catalog/

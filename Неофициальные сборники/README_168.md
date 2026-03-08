@@ -1,3 +1,177 @@
+###  Публикация: 1011358   (796994) от 27.04.2016
+
+VA - Ibiza 2015. Soulful Deep-House. Vol.1 На пляже (2015) [MP3|256-320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankman - Sunrise  06:03
+02. Jose Padilla - Day One  06:23
+03. Kaleb Traxx - Astura  04:51
+04. Groove Cartell - Waiting in Vain (Boddhi Satva Afriki soul remix)  06:33(   Читать дальше...   )Жанр: HouseПродолжительность: 05:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11541FFD205F32BEB1357C6EC96B4DACB4C8E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200022   (796987) от 19.01.2018
+
+VA - Vibrancy Of Deep House (2018) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796987.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bes & Meret - Flying High (Extended Mix)
+002. Terry Lee Brown Junior - Outback
+003. Aaliyah - Try Again (Hakan Akkus Remix) (Idyl Cover)
+004. Poenitsch & Jakopic - Beautiful (Tom Appl Remix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097B8E0035C956B7F85182201C6746083290AF8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011380   (796982) от 27.04.2016
+
+Turbotronic - Extended Mix (2016) [MP3|320 кб/с] <Dance, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booty Shake (Original Mix) (04:37)
+02. Bba Ra Bam (Extended Mix) (04:26)
+03. To The Party (Extended Mix) (04:45)
+04. Boom Boom Boom (Turbotronic Extended Mix) (04:43)(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 02:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED66E9DF11455C0F382244C9E42B38227804323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200011   (796973) от 19.01.2018
+
+VA - Tech House For Runing: House Garden Music (2018) [MP3|320 Kbps] <Club, Dance, Tech House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796973.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hammer - Rails
+002. Five T - Graale (Guido Schneider Remix)
+003. Florian Carpentier - Lulumatata (Asem Shama Remix)
+004. Nils Hoffmann - Storms(   Читать дальше...   )Жанр: Club, Dance, Tech HouseПродолжительность: 11:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8893EDB01135ED26F31102727212C20DA2BE4E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200177   (796952) от 19.01.2018
+
+VA - Best of Tigerskin \ Dub Taylor (2017) [MP3|192-320 Kbps] <Deep House, Tech House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tigerskin - Carlos Thoughts [7:39]
+02. Tigerskin - Voodoo [7:38]
+03. Tigerskin - The Nite People [4:58]
+04. Ronald Christoph feat. Idvet - Say You Want Me Now (Tigerskin remix) [7:57](   Читать дальше...   )Жанр: Deep House, Tech House, Chill HouseПродолжительность: 05:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DAE3ED01A9300558ED7368B1C6323F668497E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200100   (796912) от 19.01.2018
+
+VA - De Top 100 Aller Tijden 1977 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796912.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Boney M - Ma Baker (4:07)
+002. Vader Abraham - 'T Smurfenlied (3:22)
+003. Supertramp - Give A Little Bit (4:09)
+004. Guys 'N Dolls - You're My World (3:12)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484DB397125D8033990AAF67E64852C27CDD8098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200060   (796909) от 19.01.2018
 
 VA - Italo Disco Hits Vol.17 (2018) [MP3|320 Kbps] <Italo-Disco>
@@ -571,180 +745,6 @@ VA - Горячий хит Europa Plus №2" (2016) [MP3|256 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEAE5ABD80B0A74EFA35EB00D45CD3CE7DFAE477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508955   (796237) от 10.11.2021
-
-VA - Techno Beats: Electronic Mixtape (2021) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796237.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jakob Wojenko - Wxl1
-002. Dimitri & Jaimy - Waitress Of An Open Mind
-003. Axon. - Tesselations
-004. Kaiser - Me Through The Mirror(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066B38599B1AD84E3687764F2A9F43AD2F3E6883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508961   (796227) от 10.11.2021
-
-VA - The Mushroom Substances (2021) [MP3|320 Kbps] <Psychedelic, GOA Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796227.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Synthologic - Mind Reaction
-002. Infected Mushroom - Never Ever Land
-003. Hasche - Footsteps
-004. Traxon - Fuckin Hippies(   Читать дальше...   )Жанр: Psychedelic, GOA TranceПродолжительность: 12:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7B190726B910276D2E01FA49B5AF1D313F5272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508913   (796219) от 10.11.2021
-
-VA - Autumn Rock Fest (2021) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796219.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ironwill - Breakout
-002. Fiona - Where The Cowboys Go
-003. Distilled Tongues - Drawing Shapes
-004. Andrйs Calamaro - Bohemio Con Julio Iglesias(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4250AED739403E9EEEFF3964D1CE5F56B0B8F571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200227   (796195) от 20.01.2018
-
-VA - TOP 100: лучших песен 2017 года на Love Radio (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796195.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:48
-002.  Charlie Puth  -  Attention  3:32
-003.  Макс Барских  -  Моя любовь  3:40
-004.  Clean Bandit feat. Sean Paul & Anne-Marie  -  Rockabye  4:11(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF22FD68D5AC55551E7A1D016BABFE333AC50B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011694   (796174) от 28.04.2016
-
-Фабрика - Коллекция песен (2016) [MP3|256-320 кб/с] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Девушки фабричные (03:59)
-02. Про любовь (03:32)
-03. 5 минут (04:41)
-04. Море зовёт (03:48)(   Читать дальше...   )Жанр: ПопПродолжительность: 02:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FCC2E2E9D7CC8B6DC4733C79A8214B66B9B9BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508950   (796168) от 10.11.2021
-
-VA - My Beath Summer: Pop Musical Collection (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796168.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Justin Bieber - Peaches
-002. Aitana - Menos
-003. (Dis)Amore - Ti Stavo Lontano
-004. Ava Max - My Head & My Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532D39D756EB802B1576FFF52635204005788B23
 ```
 
 https://mybot314.ru/tekegram_catalog/

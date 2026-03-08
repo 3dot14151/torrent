@@ -1,3 +1,61 @@
+###  Публикация: 1392467   (769380) от 25.06.2020
+
+Las Deblas - Dime Quien Es Esa (1980) LP [MP3|320 Kbps] <Electronic, Flamenco, Disco, Rumba, Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dime Quien Es Esa (3:13)
+02. Corazon Loco (3:00)
+03. Poquito (5:30)
+04. Quiero Y No Quiero (4:33)(   Читать дальше...   )Жанр: Electronic, Flamenco, Disco, Rumba, Latin, PopПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6444839BC14988D7ECDA70749BFF7298CD5852A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392446   (769243) от 26.06.2020
+
+The Rentals - Q36 (2020) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake Your Diamonds (04:18)
+ 02. Nowhere Girl (04:31)
+ 03. 9th Configuration (06:02)
+ 04. Teen Beat Cosmonaut (03:15)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9F785710653057010283BB0BCF3C44AC4EB261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392503   (769240) от 26.06.2020
 
 Jessie Ware - What's Your Pleasure? (2020) [MP3|320 Kbps] <Indie Pop>
@@ -687,64 +745,6 @@ Demis Roussos - Grandes Exitos en Vivo (2012) [FLAC|Lossless|tracks + .cue] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF0A5FF6A043591194F7C6396B378D6DEEA0357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393211   (767697) от 30.06.2020
-
-Yota - Hazy Paradise (2020) [MP3|320 Kbps] <Female Vocal, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hazy Paradise (04:22)
- 02. The Vibe (03:52)
- 03. Number One (03:28)
- 04. The Switch (03:44)(   Читать дальше...   )Жанр: Female Vocal, PopПродолжительность: 00:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B14C47B35A8DB78439FD93AAE1C8B0A351EF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278722   (767684) от 27.01.2019
-
-Шан-Хай - Звездная коллекция (2000) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнечный зайчик [04:20]
-02. Ничего такого [04:59]
-03. Незнакомка [03:36]
-04. Пленник [04:50](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE951B677FA4578969B978A09B7627200F5AFBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

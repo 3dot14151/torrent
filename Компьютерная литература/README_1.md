@@ -1,29 +1,3 @@
-###  Публикация: 1852851   (1056550) от 12.02.2026
-
-Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Programming for Humans. 3rd Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Your Python code may run correctly, but what if you need it to run faster? This practical book shows you how to locate performance bottlenecks and significantly speed up your code in high-data-volume programs. By explaining the fundamental theory behind design choices, this expanded edition of High Performance Python helps experienced Python programmers gain a deeper (   Читать дальше...   )Жанр: Computer Performance Optimization, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C95BD1500740C3DF127BCBD18AC632C3EE40240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852850   (1056549) от 12.02.2026
 
 Laurence Moroney | AI and ML for Coders in PyTorch. A Coder's Guide to Generative AI and Machine Learning (2025) [PDF, EPUB] [EN]
@@ -555,59 +529,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852752   (1056317) от 10.02.2026
-
-А.Н. Жуков | Хакерская самооборона. Приемы обнаружения и предотвращения хакерских атак (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена практическим методам активной киберзащиты, основанным на анализе действий злоумышленника и применении принципов кибер-самообороны. Рассматриваются подходы к выявлению и минимизации атак на различных этапах проникновения — от внешней разведки до активности во внутреннем периметре сети. Показано, как использовать методы защиты, не требующие административных (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2380AFE3BEE6144C8DB1C8FACA31DE17C6C633F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852739   (1056314) от 10.02.2026
-
-А.А. Чайка | Практическая безопасность Linux (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миф о том, что Linux по умолчанию безопасен, давно пора развеять. Эта книга — подробное практическое руководство по защите Linux-систем: от архитектуры ядра и модели прав доступа до расследования инцидентов безопасности. Она предоставляет все необходимые знания и инструменты для эффективной защиты операционной системы.
-Издание ориентировано на системных администраторов, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B74A156144E2B86DA54D1F2E5AFD138A384ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852866   (1056290) от 10.02.2026
 
 Jennifer Robbins | Learning Web Design. A Beginner's Guide to HTML, CSS, JavaScript, and Web Images. 6th Edition (2025) [PDF] [EN]
@@ -687,6 +608,87 @@ This book doesn’t just (   Читать дальше...   )Жанр: Комп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4634A500717525A40F74FB4476E2271AEB4D96B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852668   (1056153) от 08.02.2026
+
+Joyce Farrell | Microsoft Visual C#. Introduction to Object Oriented Programming (MindTap Course List). 8th Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Develop strong programming skills needed for professional success with Farrell's MICROSOFT VISUAL C#: INTRODUCTION TO OBJECT ORIENTED PROGRAMMING, 8th Edition. Approachable, clear and straightforward examples and style help you understand structured and object-oriented programming concepts. Master critical principles and techniques that easily transfer to other programming (   Читать дальше...   )Жанр: Object-Oriented Design, Microsoft Programming, Introductory & Beginning ProgrammingЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE6A57E196CFD8C10AA0B8180DC8F5FDD5F5440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852671   (1056152) от 08.02.2026
+
+Chandradev Prasad Sah | Ultimate Blazor WebAssembly for Web Development. Unlock the Full Potential of Blazor WebAssembly 8.0 and C# to Build High-Performance Web Applications with Ease (English Edi ...
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Empower Your Web Development with Blazor WASM 8.0
+
+Book Description
+Ultimate Blazor WebAssembly for Web Development is your comprehensive guide to mastering the latest advancements in Blazor technology. This book will equip you with the knowledge and skills needed to leverage Blazor Web Assembly 8.0 and C# effectively and seamlessly to enhance the performance of (   Читать дальше...   )Жанр: Microsoft .NET, C# Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Orange EducationФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45530900FA67563CB1675BD9A32C232AC8083EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852673   (1056151) от 08.02.2026
+
+Б. Страуструп | C++11. Язык программирования C++. Четвертое издание (2024) [PDF, DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет стандарт ISO/IEC 14882-2011 (называемый в обиходе C++11) и призвана помочь программистам быстро и доступно перейти от стандарта С++98 и любых других языков программирования к С++11. Традиционно, как и в предыдущих изданиях, автор демонстрирует свой «фирменный стиль» — эффективные подходы к решению разнообразных задач проектирования и программирования, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БИНОМ-МЕДФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE68159E93F4FA1FC819F1F1865047FF366E7215
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1091846   (941569) от 10.01.2017
+
+VA - Empire Records - Dancenudisco 2 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4U - Long Ride (Original Mix)
+02. New Order - People on the High Line (Richard X Radio Edit)
+03. KRAUZE, Display AV - Pixel (Original mix)
+04. Abraham Ruiz - No Returnable (Original Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810AB8D37EB2C7E4AC49E46ACBF49B4B17CF2698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091853   (941527) от 10.01.2017
+
+VA - Empire Records - Club Hit 4 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freddy Verano, LissA - Move Like Me (Extended Mix)
+02. Anya - Fool Me (Bentley Grey Nu Disco Remix)
+03. DJ Nil Anthony El Mejor Mischa – Closer (2ways IAMCULT Remix)
+04. James Harrison - Breakdown (Original Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0379FC6899D5192A22A3B15E06D69C2E65CE3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091641   (941511) от 10.01.2017
+
+VA - LUXEmusic: Dance Super Chart Vol.101 (2017) [MP3|320 Kbps] <House, Mash Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alex Milano & Денис Раско - Двигай (Extended Mix)  3:42
+02.  Fargo - Мой Папа Из ФСБ (DJ Ice Radio Edit)  3:10
+03.  Depeche Mode - Precious (DJ Shevtsov Remix)  6:09
+04.  Burak Yeter feat. Danelle Sandoval - Tuesday (DJ Jurbas & DJ Trops Radio Edit)  2:54(   Читать дальше...   )Жанр: House, Mash Up, Club, DanceПродолжительность: 03:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF605DDC2127EE70D420FCFB3CBFDDC842BB13F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984280   (940170) от 08.02.2016
+
+VA - Top Club Music World Hits 10216 (2016) [MP3|320 кб/с] <Club, Progressive, House, Tropical, Bigroom>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fatum & Judah - Ardan (Original Mix) 06:02
+02. Vander & Thomas - Not Gonna Take This 06:12
+03. Courage - Delusion (Original Mix) 05:30
+04. Bastian Salbart - Hold (Original Mix) 06:05(   Читать дальше...   )Жанр: Club, Progressive, House, Tropical, BigroomПродолжительность: 03:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DA26E0999C8BB8A70467D07FB072FCB77EA63B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092089   (940111) от 11.01.2017
 
 VA - Funky Disco House: 100 Dance Hit (2017) [MP3|255-320 Kbps] <Funky, Disco, Electro House>
@@ -626,122 +742,6 @@ VA - Disco & Pop 80-90 Hits! (2016) [MP3|320 кб/с] <Euro-Disco, Italodance, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0660252374C3A22896D7D30CCDD9EDD7DBD03A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093212   (934999) от 14.01.2017
-
-VA - Italo Super Hits Vol.33 (2017) [MP3|320 Kbps] <Italo-Disco, Hi-NRG, Euro Disco, Spacesynth>
-
->>След.
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Galera - Don't Cry (Tony Costa remix)  6:40
-02.  Bobby Orlando - When  4:10
-03.  Energy Voice - The Radio Star (Mexican Club Mix)  6:52
-04.  Space Purr - Flower Planet  2:57(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro Disco, SpacesynthПродолжительность: 02:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BBAB8EB570E6C2A6F494896EB5F06C154107C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985797   (933993) от 12.02.2016
-
-VA - Медлячок в машину. Зарубежная версия 1 (Из треков 2014) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933993.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Richard Marx - Inside
-002. Patrick Fiori - Demain
-003. Alex Lloyd - Last Bell
-004. Danny Fernandes - Breathe Again(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F705D643A70EBFE2DEB194454F08EAF4562636C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985779   (933987) от 12.02.2016
-
-VA - Лучшие хиты года. Часть 4 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933987.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kaiser Chiefs - Falling Awake
-002. Базиль - Ищи Другого
-003. Lawson - We Are Kings
-004. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0452E06AAD6D2DF391C46123FC2DF4EB6290B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985851   (933932) от 12.02.2016
-
-VA - Metal & Rock Collection (2016) [MP3|320 кб/с] <Metal, Rock, Hard-Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrenaline Mob - Indifferent 04:30
-02. Axel Rudi Pell - Edge Of The World 05:18
-03. Black Veil Brides - New Religion 03:50
-04. China - That's A Lot Of Love 03:18(   Читать дальше...   )Жанр: Metal, Rock, Hard-RockПродолжительность: 03:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935429BD9D9FFA735BFA82EABB17B78AF3B8183A
 ```
 
 https://mybot314.ru/tekegram_catalog/

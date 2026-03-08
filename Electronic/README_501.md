@@ -1,3 +1,61 @@
+###  Публикация: 1779258   (70722) от 12.02.2025
+
+VA - Ibiza 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jayanth Ak - In My Mind (Original Mix) (02:10)
+02. KMÖBA - Footprints (Radio Edit) (03:00)
+03. Anka - I Wanna Stay (Original Mix) (02:45)
+04. FaraoN - Love of My Life (Original Mix) (04:20)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C958E2663FA5162A731A6A5BA9F60D762A9ADDD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779291   (70719) от 12.02.2025
+
+VA - Beast Mode Activated in the Gym (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pardison Fontaine - Backin’ It Up (feat. Cardi B) (3:10)
+02. Charli XCX - 360 (2:13)
+03. Benson Boone - Cry (3:06)
+04. The Academy Segunda Misión - LA RANGER (feat. Myke Towers) (3:49)(   Читать дальше...   )Жанр: Rap, House, DanceПродолжительность: 01:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F5CBC95F90B8312A742C1886712B12D65CB577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779479   (70705) от 13.02.2025
 
 VA - A State of Trance 2025 - TRANSFORMATION (The Official Album) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -686,64 +744,6 @@ Metropolit - Fear: My Guide, My Steady Downfall (2025) [MP3|320 Kbps] <Darkwave,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C046E076BD69313F2D50A9674C53768FBB2337C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780552   (70392) от 19.02.2025
-
-Krieg-B - War Drums' resonance (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special Operation [00:04:14]
-02. Under Pressure [00:04:32]
-03. Napalm Girl [00:03:29]
-04. King of Emptiness [00:04:32](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3243E004FC41F45281FB8F536486192D3EC53EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780611   (70384) от 19.02.2025
-
-djdtime - Relaxing Deep House & Melodic Techno Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake up, the world is calling (4:53)
-02. Close your eyes, leave the fear behind (3:54)
-03. I'm chasing you, through the night (3:44)
-04. Every heartbeat, I'm closer still (4:29)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C737B307015A1289D26D8028EF85F0C909FCCFFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

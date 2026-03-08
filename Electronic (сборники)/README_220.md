@@ -1,3 +1,32 @@
+###  Публикация: 1750277   (42916) от 20.09.2024
+
+VA - Compilation part 123 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mannonov - Justtake
+02. Deepfm - Typhoones
+03. A-Sultan - Passion
+04. A-Sultan - Angels Like You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6EF068D72C3D0FC8E5E818E3D7A663E0CDDC41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750891   (42716) от 22.09.2024
 
 VA - Compilation part 124 Electronic (2024) [MP3|320 Kbps] <Electronic>
@@ -716,35 +745,6 @@ VA - Sick Disco Moves (2024) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E80B400213513AEBBE91C2A3225F4957E85A39E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760084   (37508) от 12.11.2024
-
-VA - Warm Time Electro House (2024) [MP3|320 Kbps] <Electro, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37508.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nick Chacona, Sasse & The Green Men - The Fog - (09:24)
- 002. Sebb Junior - A Million Ways - (05:48)
- 003. Aaron Khaleian & Ambient Pino - Gobi - (06:23)
- 004. Antony Well - Lua Solidaria - (06:27)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 13:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759BB99DC86797534C3B71AB24BC6E37027C64D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 554351   (437295) от 01.10.2012
+
+VA - Whisper of Consciousness Volume 30 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437295.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
+002. Progressiver - Searching For The Truth (Original Mix)
+003. Reminder - On The Beach (Stoneface & Terminal Remix)
+004. Sean Tyas & Horny Sanchez - Rebox (Original Mix)
+005. Space RockerZ pres. Pulse & Sphere - Rush Hour (Original Mix)
+006. Susana Rex Mundi - All Time Low (Original Mix)
+007. The Blizzard & Yuri Kane feat. Relyk - Everything About You (Original Mix)
+008. Richard Durand - Stand Again (Original Mix)
+009. Solarstone & Clare Stagg - The Spell (Solarstone Pure Mix)
+010. Ronski Speed, Stoneface & Terminal - I Didn`t Know I Was Looking For Love (Maison & Dragen Remix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751B01B5A246EE8DBF6BBC50039946520270CC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063194   (437262) от 15.10.2016
+
+VA - Beatport Top 100 EDM Songs & DJ Tracks September (2016) [MP3|320 Kbps] <House, EDM, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437262.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Groove Armada - Superstylin' (Riva Starr Edit)
+002. Kolsch - Grey (Original Mix)
+003. Leandro Da Silva - I Love House Music (Club Mix)
+004. Raumakustik - Dem A Pree (Patrick Topping Remix)(   Читать дальше...   )Жанр: House, EDM, Deep HouseПродолжительность: 10:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C582C599D15E78884DD1B96A96A163086F7EE615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164997   (437239) от 11.09.2017
+
+VA - Empire Records - Chill Out 12 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arnold T - Summertime Sadness
+02. E-motive - Street Waves
+03. Gt 55 - Red Color (Gray Clouds Mix)
+04. Miper - Hide(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90A90E3780D7231BC76AF9DB55CE99615F96AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063196   (437078) от 15.10.2016
+
+VA - 100 Soul Jazz (2016) [MP3|320 Kbps] <Jazz, Soul, Vocal Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437078.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Herbie Hancock - Cantaloupe Island (05:29)
+002. Marlena Shaw - California Soul (02:57)
+003. James Brown - Papa's Got a Brand New Bag (04:38)
+004. Roy Ayers Ubiquity - Everybody Loves the Sunshine (04:01)(   Читать дальше...   )Жанр: Jazz, Soul, Vocal JazzПродолжительность: 08:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E59EC292ACF77167A8A8C5E76E9C71ED973EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164937   (437070) от 11.09.2017
+
+VA - Horror Sky: Dub Hardcore Set (2017) [MP3|320 Kbps] <Dub Hardcore, Hard Electro Rock, Experimental Dark Electro>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437070.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brennan Heart & Zatox - God Complex
+002. Dimitri Vegas - Like Mike feat. Ne-Yo - Higher Place (Extended Mix)
+003. Dr. Pickman - Terror X-Mas (Remastered Edition)
+004. Frankentek - Silence (Original Mix)(   Читать дальше...   )Жанр: Dub Hardcore, Hard Electro Rock, Experimental Dark ElectroПродолжительность: 09:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762E92A8F080DE110127F2663AE490EE0145D5FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 828821   (437029) от 07.10.2014
+
+VA - Любимые песни (2014) [MP3|320 кб/с]<Русский рок, поп-рок, авторская песня>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кино - Группа крови
+02. АлисА - Веретено
+03. Кипелов - Я свободен
+04. Агата Кристи - Как на войне(   Читать дальше...   )Жанр: Русский рок, поп-рок, авторская песняПродолжительность: 04:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F025402F69CBDBC53BE898F8A3A504AB1C738DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553281   (436970) от 01.10.2012
 
 VA - US TOP40 Single Charts (29.09.2012) [MP3|234-320 кб/с]<Pop>
@@ -613,180 +793,6 @@ VA - Душевный Сборник От Радио Шансон 9 (2016) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5817758C7327344FE592C2D5E70D21FEBF7E135E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165378   (435028) от 12.09.2017
-
-VA - Empire Records - Positive Emotions (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cotton Lovers – Rer
- 02. Florito – Funny Valentine
-03. Monday Elation – Sleep On A Sofa (Ibiza’s Sofa Mix)
-  04. Couche-Tard – Beautiful World(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8844D66556A0D5E972AA88D99853377E01F299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063218   (434973) от 16.10.2016
-
-VA - German Top 100 Single Charts 24.10. (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434973.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rag'n'Bone Man - Human
-002. The Chainsmokers feat. Halsey - Closer
-003. DJ Snake - Let Me Love You
-004. Sia - The Greatest (feat. Kendrick Lamar)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73790466B62DC931CE8A351BBD9B788454DA472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063222   (434972) от 16.10.2016
-
-VA - Новинки. Осенний выпуск Europa Plus (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434972.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Malika - Я Твой Ангел
-002. Anouk - Run Away Together
-003. Марта - Даже Если Ты
-004. Walking On Cars - Hand In Hand(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFEEFA701275DA9CBC1917B52A5F63498FD2E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063247   (434828) от 16.10.2016
-
-VA - Необузданный рай. Супер сборник русского шансона (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Назаров - Необузданный Рай
-002. Сборная Союза - Я Самый Лучший
-003. Лукьяновка - Ножки
-004. Николай Искуснов - Бродяга По Жизни(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C790BA42B382F55AB54FAC690B5D60A98D6B527C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165218   (434688) от 12.09.2017
-
-VA - Cosmotronica & Space Disco Vol.4 (2017) [MP3|320 Kbps] <Synthpop, Spacesynth, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunlight Project - Lights In The Sky
-02. Bruno Motta - Silk Notes (Edric Remix)
-03. Zonasphere - Timelines
-04. Pryda - The End Is Just The Beginning (Original Mix)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, ElectronicПродолжительность: 09:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F050AC47175AB2E4B0E4CD4007681238FA3D1AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165145   (434429) от 12.09.2017
-
-VA - Back To The Seventies (Compiled by ВИКТОР31RUS) (2017) [MP3|320 Kbps] <Pop, Disco, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434429.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Demis Roussos - From Souvenirs To Souvenirs  2:35
-002.  Eagles - Hotel California  6:31
-003.  Eruption - One Way Ticket (Long Version)  5:10
-004.  Stevie Wonder - Ebony Eyes  4:09(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 11:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBE2860118A8430E8B0EB240AB4D4D5322AE36F
 ```
 
 https://mybot314.ru/tekegram_catalog/

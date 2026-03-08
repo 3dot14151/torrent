@@ -1,3 +1,32 @@
+###  Публикация: 1280601   (760196) от 03.02.2019
+
+ДиДюЛя - Седьмое чувство (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Колесо времени (Велюровый вальс)
+02.Покорители пространства (Ветряные мельницы)
+03.Танец с дождём (Причудливые круги)
+04.Люди индиго (Объект перемен)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616E0A0E66405B7382AD69720B8D385DE4831627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215268   (759607) от 25.03.2018
 
 Leo Rojas - Leo Rojas (2017) [FLAC|Lossless|image + .cue] <Panflute, Native american, Ethnic>
@@ -716,35 +745,6 @@ Deuter - Eternity (2009) [FLAC|Lossless|tracks + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD470C88C8166A03D09B46BC7C2C5B76C3FFC0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215718   (750935) от 30.03.2018
-
-Помни Имя Свое (Фандеева Ксения,Станислав Дорофеев,Фроленко Мария) - Птицы (2015) floe [MP3|320 Kbps] <Folk ,Neofolk ,Ethereal Wave>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Птицы 4:24
-02. Есть одна хорошая песня у соловушки 4:13
-03. Кто Я 3:44
-04. То, что я должен сказать 4:44(   Читать дальше...   )Жанр: Folk, Neofolk, Ethereal WaveПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE356F1E90F8A3587FBEA96A3A1D942446EA724B
 ```
 
 https://mybot314.ru/tekegram_catalog/

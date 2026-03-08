@@ -1,32 +1,3 @@
-###  Публикация: 1455214   (1025825) от 18.03.2021
-
-Pendragon - Masquerade 20 (2017) 2xCD, Live [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025825.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. The Masquerade Overture (Live) (03:05)
- 02. As Good As Gold (Live) (07:18)
- 03. Painbox (Live) (08:08)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 02:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC9E74D816A4C70A3B3782560E9F26BD8AB9D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455063   (1025822) от 18.03.2021
 
 com.pass - Полюса (2021) [MP3|320 Kbps] <Russian Metalcore>
@@ -742,6 +713,35 @@ Those Who Ride With Giants - Forlorn (2021) [MP3|320 Kbps] <Post-Rock, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D279CEED5994EE277A6D6309517E906451071B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455677   (1025497) от 20.03.2021
+
+A Pregnant Light - Kiss Me Thru the Phone (2021) [FLAC|Lossless|WEB-DL|Tracks] <Post-Black Metal, Post-Rock, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss Me Thru the Phone (December) [00:02:44]
+02. The Power of Powers (November) [00:03:16]
+03. Song for Peaches (October) [00:04:40]
+04. The Agent & Attendant (September) [00:04:15](   Читать дальше...   )Жанр: Post-Black Metal, Post-Rock, HardcoreПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAA8A180346F214599A35E5C0344EBE1D2ECF8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

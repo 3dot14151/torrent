@@ -1,3 +1,61 @@
+###  Публикация: 1233660   (578179) от 01.07.2018
+
+MRUKS - Deja Vu (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MRUKS - Market
+02. MRUKS - Desert Fire
+03. SKURM - bass_ (MRUKS Remix)
+04. MRUKS & SKURM - Tnevda (Businka mix)(   Читать дальше...   )Жанр: Funky/Club House/RetrowaveПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E66936D1F9B0D7C0B2618C349B60D06125453B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150855   (578136) от 16.07.2017
+
+VA - The Body You Need For Summer 2017: Workout Edition [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xort Base - Mealst
+02. Xenias - Slutty
+03. Wunkeris - Guru
+04. Walo Pils - Ripped(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 06:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32248BFBCD2C7008EE2DFCFC43B088CB8CE6E7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150792   (578030) от 16.07.2017
 
 VA - Unique Lounge Musique Vol.1 (Selected by Simon Le Grec) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -685,64 +743,6 @@ U96 - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA745C023B94A8B621187B277367B891C8A2DBF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554245   (575754) от 31.05.2022
-
-Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [FLAC 2.0|48/24|tracks|WEB-DL] <Pop, Rock, Synth-pop, New Wave>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Good Morning
-03. Strange Animal
-04. I Can't Believe That You Would Fall for All the Crap in This Song(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2D75E354CE57FD5C586DBAE6107376DB473AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554698   (575678) от 31.05.2022
-
-VA - FG Top 10: May 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Freegrant & Slow Fish - Connected (Extended Mix) 07:06
-02. Seleck - Blows My Mind (Original Mix) 06:55
-03. Ric Niels - Sabeht (Original Mix) 07:01
-04. Santiago Luna - Free (Original Mix) 06:00(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A1104695B6E8A39F58EED3784DCBFB0AC48E97
 ```
 
 https://mybot314.ru/tekegram_catalog/

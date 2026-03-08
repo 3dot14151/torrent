@@ -1,3 +1,32 @@
+###  Публикация: 1055659   (486109) от 23.09.2016
+
+Didier Merah - Eden (2016) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happiness [00:10:18]
+02. Paradise Lost [00:13:48]
+03. Testament [00:12:13]
+04. Dle Yaman [00:12:00](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 02:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34932858189272A1E0AB9BAA46383480D99932C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055556   (485998) от 23.09.2016
 
 Borneo - Heart of Borneo - Spa and Relaxation (Instrumental) (2016) [MP3|320 Kbps] <New Age, Relaxation, Instrumental>
@@ -750,35 +779,6 @@ Penelope
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCE66B9E5503B93FAE798E8315D9CEEE57630CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159842   (481859) от 21.08.2017
-
-Terry Oldfield - Temple Moon (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481859.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Terry Oldfield - Mangalam (7:27)
-2. Terry Oldfield - Guru Stotra (9:00)
-3. Terry Oldfield - Sri Ram Jaya Ram (5:56)
-4. Terry Oldfield - Hallelujah Gate Gate (7:29)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5AE3AC37FA69BD63ECD644BE7CEDDF867D9D7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

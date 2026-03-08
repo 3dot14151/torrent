@@ -1,3 +1,32 @@
+###  Публикация: 1312444   (532790) от 04.07.2019
+
+John Graas - Four Classic Albums (1956 - 1958) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532790.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lady Like [2:49]
+02. Egypt [2:41]
+03. Argyles [2:50](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream JazzПродолжительность: 02:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20325518B5518F5944D76943C522148929B1CA59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051498   (532578) от 11.09.2016
 
 Shakatak - Times And Places (2016) [FLAC|Lossless|image + .cue] <Smooth-Jazz>
@@ -716,35 +745,6 @@ Buddy DeFranco (De Franco) And Oscar Peterson - Play George Gershwin (1954) 1998
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B981AB8B7A8EB5B3BEF81501A9CA045FC1EF96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558764   (528864) от 22.06.2022
-
-Buddy Rich - Buddy Rich Band (1981) MCA Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Can Say Goodbye [4:54]
-02. Fantasy [4:42]
-03. Listen Here Goes Funky [3:34]
-04. Slow Funk [5:46](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, Jazz-FunkПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F654883673EA5F0F23CC9A5A831E58B63040C70
 ```
 
 https://mybot314.ru/tekegram_catalog/

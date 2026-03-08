@@ -1,3 +1,32 @@
+###  Публикация: 1384314   (804269) от 19.05.2020
+
+VA - Beatport Progressive House: Electro Sound Pack #86 (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Sobrino - Dark Brain
+02. Alfoa - A New Life (Original Mix)
+03. Jonnas B - Ancestral
+04. Chris Burke - Keygen(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 07:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339A07EBE8C78F3ACFE435A967C4A507608517E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010266   (804083) от 24.04.2016
 
 VA - Running Trax 5k & 10k - Ministry of Sound (2016) [MP3|256 кб/с] <House, Techno, Dance>
@@ -716,35 +745,6 @@ VA - Electro Lemon: Fresh House Session (2021) [MP3|320 Kbps] <Electro, Future H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D914FE84387E9F57F9BD7CD65F9787D3678FE5B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199317   (801553) от 15.01.2018
-
-VA - Deep House Collection Vol.153 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase & Stash & Spider - Inspiration (Original Mix) 6:09
-02. AcidBro & Alex Panchenco - Echosoft (Original Mix) 7:55
-03. AgainstMe & Jody Cottier - Paliria (Paale Remix) 6:53
-04. Alaia & Gallo Ft. Kevin Haden - Go (Full Intention Remix Edit) 2:54(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346090641A90E58047EF938F9ED4ED388B17D82E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,198 @@
+###  Публикация: 562280   (405613) от 19.10.2012
+
+VA - Loco – Carnivorous Attack (2012) [MP3|320 кб/с]<Ragga Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Potential Badboy – Lock Em Off
+ 2. Dirty Dubsters – One Big Road
+ 3. Marcus Visionary & Tippa Irie – Wicked & Wild (Dancehall Style)
+ 4. Dj Shi – Swan Bwoy Por fumar RMX
+ 5. Serial Killaz – Rude Boy Style
+ 6. Dijeyow – Pumpking
+ 7. Dublinjah – Dublinjah & Steppa Style (Natural Rmx)
+ 8. Spliff Unit – Precious
+ 9. Benny Page – Crying Out (Serial Killaz Remix)
+ 10. Serial Killaz, Run Tingz, Tenor Fly, Blackout JA – Murder Ya Sound (UK Jungle Mix)(   Читать дальше...   )Жанр: Ragga JungleПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECD6E21024141FFFBE9C277E072DF86004843F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562437   (405593) от 19.10.2012
+
+VA - Шоферской Выпуск: Лучшие Из Лучших (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ШансонПродолжительность: 06:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF99AD17C0C895EB763DC1B4D6D32D7A42B72CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563019   (405297) от 20.10.2012
+
+VA - Lounge Paradise: The Pure Music Selection (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405297.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vinito - Crowded Groove (5:25)
+2. Leotone - Journey - Original Mix (4:37)
+3. L.n.x. - Swine Flu (4:04)
+4. Shoshon - Into The Valley Below (7:57)
+5. Rey Salinero - Chuvas De Verao (5:53)
+6. Urban Razz Collectiv - Shut Me Out - Original Mix (5:05)
+7. Squibb - Khaosan (4:48)
+8. Collective Sound Members - You Make Me Feel So Good (4:59)
+9. Wine & Dine - Underneath The Waterfull - Original Mix (5:04)
+10. Elmadon - Dont Worry - Mip Rework (5:07)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 04:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF08C59975A901F67676972A734E3E325466EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562726   (405279) от 20.10.2012
+
+VA - Creative Music Box 3 (2012) [MP3|320 кб/с]<Dub Step/Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405279.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 1UP feat. Static Function - 3000
+2. 12th Planet feat. Antiserum - Bass Salt
+3. Alex Mind - Easy Come Easy Go
+4. Barron - American Psycho
+5. Cherry Cherry Boom Boom - One And Only (R3hab Radio Edit)
+6. Chewie feat. Kurk Kokane - Bleeding Out
+7. Document One - Shouting from a Mountain
+8. Dusk - Boom Stick
+9. Enrique Iglesias feat. Sammy Adams - Finally Found You (R3hab feat. ZROQ Remix)
+10. Fedde Le Grand feat. Nicky Romero vs. Vicetone and Tripster & Matthew Koma - Sparks Banger (Erivera Reyes Mashup)(   Читать дальше...   )Жанр: Dub Step/ElectroПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D8089FFABEB17B488C6BE40A0267EE8AA28E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563581   (405075) от 21.10.2012
+
+VA - Позитивная музыкальная энергия (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вера Брежнева и DJ Smash - Любовь На Расстоянии
+02. Юлия Беретта - Такси
+03. Orbital - Where Is It Going (Live Style Mix)
+04. Иракли - Осень
+05. DJ HaLF & Женя Юдина - Два Сердца (Extended Mix)
+06. Cranksters - My First Love (Radio Edit)
+07. Arash feat. Sean Paul - She Makes Me Go
+08. Mariya (Мария) - Ты Тот (Kapler Remix)
+09. DJ Niki feat. SODA - Я это ты (cover radio remix)
+10. Leven Mervox - Waiting The Past (Running Man Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 08:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9C1AED135BE60CC72A695819F990580AD21694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168957   (405041) от 25.09.2017
+
+Maniac Cyberpriest: Synthpop Lives By Various Artist (2017) [MP3|269-320 Kbps] <Synthpop, Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405041.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ARCADISE - Tabula Rasa
+002. Ice Choir - Let's Music
+003. Maniac Lover - Mantra Generator
+004. Robot FM - Sun Mega Drive(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicПродолжительность: 10:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18681AA932AC77E39ED3587DFACE50959E6C846E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168736   (405038) от 25.09.2017
 
 VA - A Song For You Dance Europarty (2017) [MP3|320 Kbps] <Dance, Pop, Shlager>
@@ -649,186 +844,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BC92972314E1F2EE74B0D0473E149E93B3BDE17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169086   (403818) от 26.09.2017
-
-VA - 90's Eurodance #3 (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Techno, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403818.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Cappella - U & Me (Short Sharp Mix)  3:12
-002.  Tn't Party Zone - Das Omen (Teil 1) '94 (Tn't Radio Edit)  3:56
-003.  Culture Beat - Anything  3:57
-004.  M.C. Sar & The Real Mccoy - Automatic Lover (Call For Love) (Trans Euro Mix)  5:29(   Читать дальше...   )Жанр: Eurodance, Euro-House, Techno, DanceПродолжительность: 08:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935703F0A701F954BF8D03ADE9D93B98B7BE452D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563924   (403777) от 22.10.2012
-
-VA - Осенняя дискотека от Европа Плюс. Зарубежный выпуск (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403777.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tommy Vee & Nicola Fasano - Tell Me Waf
-002. House Generation - Macarena 2012 (Alejandro Montero Electro Vocal Mix)
-003. Bobina Feat. Erin Marsz - Let You In
-004. John B - Robot Lover
-005. Daley Padley, Prok & Fitch - The New Wave (Marco Lys Vs. Prok & Fitch 2012 Re-Rub)
-006. Brainstorm - Below The Line
-007. Digital Mass - Love Martini Ice (Original Mix)
-008. Gaia - Status Excessu D
-009. Nuera - The Lost Island
-010. Anton Neumark, Johnny Beast - We Rock The Party (Original Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16165FB5F178978C6A2388AB75360239255486B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169178   (403661) от 26.09.2017
-
-VA - Top 100 Зайцев.Нет Август (Русский выпуск) (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Serebro - Между нами любовь  3:11
-002.  Вера Брежнева - Близкие люди  3:16
-003.  Burito - По волнам  3:19
-004.  Лолита - На титанике  3:54(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3911DA8567B89DD8F2C01B6B81BB380DCD1272A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712430   (403247) от 19.10.2013
-
-Secret Service - 25 Best Songs (2012) [MP3|206 - 282 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flash In The Night 1982
-02. Will You Му Near Me 1984
-03. Night City 1985
-04. Broken Hearts 1981(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8871DD08B28AD0F01AE96005BE0D4C67773A53D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712398   (403245) от 19.10.2013
-
-Pet Shop Boys - 25 Best Songs (2012) [MP3|227 - 266 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go West 1993
-02. Love Etc. 2009
-03. Suburbia 1986
-04. It's A Sin 1987(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77374C9C30DA0F8416E37D94A2579B800D126E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712823   (403243) от 19.10.2013
-
-Peter Gabriel - 25 Best Songs (2012) [MP3|220 - 272 кб/с]<Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Time 1986
-02. Shock The Monkey 1982
-03. Sledgehammer 1986
-04. Growing UpЖанр: Progressive RockПродолжительность: 02:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A969F7F38A46181410CEF6D99FCE7FF1C8232A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

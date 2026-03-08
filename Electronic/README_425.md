@@ -1,3 +1,61 @@
+###  Публикация: 1658865   (190439) от 10.09.2023
+
+Alien Vampires - Return Me To Hell (2023) 2CD, Uncensored version [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkweb [00:05:00]
+02. Bring on the Apocalypse [00:04:09]
+03. Fuck Borders [00:05:00]
+04. Av Forever E9 [00:03:44](   Читать дальше...   )Жанр: Dark Electro, ExperimentalПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B1BC92C426003561DFC7E7D98466C1094F1F709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658754   (190394) от 10.09.2023
+
+The Chemical Brothers - For That Beautiful Feeling (2023) [MP3|320 Kbps] <Big Beat, Electropop>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:09]
+02. Live Again [00:05:09]
+03. No Reason [00:04:52]
+04. Goodbye [00:05:49](   Читать дальше...   )Жанр: Big Beat, ElectropopПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849A125B51165F4198106B01D690C669A012C1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589140   (190363) от 09.11.2022
 
 Cyber Space - In The Beginning (2007) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
@@ -684,61 +742,6 @@ Robert Babicz - Light Of The Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4F5EB08C08DE64AF81CD7D72F7C62FF308B4D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662272   (188048) от 17.09.2023
-
-Vince Watson - Another Moment In Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep HouseПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758182EE629613CBED3BF7AD9A1CB90F5629E63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662341   (188013) от 17.09.2023
-
-V.A. - A State of Trance, Ibiza 2023 (Mixed by Armin van Buuren) (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188013.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 – On The Beach:
-01. MaRLo & Mila Josef - You Are Not Alone
-02. Armin van Buuren - Motive (Jochem Hamerling Remix)
-03. Push vs Crashguard - I Want To Tell You(   Читать дальше...   )Жанр: Trance |Продолжительность: 02:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B44123D522728747DF0DA50C956B3BE0A54BEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

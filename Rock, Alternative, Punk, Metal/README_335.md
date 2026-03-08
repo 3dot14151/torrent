@@ -1,32 +1,3 @@
-###  Публикация: 1018361   (755619) от 20.05.2016
-
-Katatonia - The Fall of Hearts (2016) [MP3|320 кб/с] <Gothic Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takeover
-02. Serein
-03. Old Heart Falls
-04. Decima(   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9020F5068CC13A60B1510A8AE7CE42CFEFF4E7D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395403   (755587) от 10.07.2020
 
 Ильин - ПолеLP (2020) [MP3|320 Kbps] <Hard-rock, Metal, Instrumental>
@@ -746,6 +717,35 @@ Punky Meadows - Fallen Angel (2016) [MP3|320 кб/с] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE165A480EA312DCE4ABF6F94A23B065FF22A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018686   (753941) от 21.05.2016
+
+Joe Cocker - Across From Midnight (1997) [APE|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight
+02. Could You Be Loved
+03. That's All I Need to Know
+04. N'oubliez Jamais(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24347C8B5485CD80FDEB646C5EF65DCB4C454129
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1330444   (341001) от 10.10.2019
+
+Dave Steward - Rage (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uncontrolled (8:10)
+02. Cranked (7:53)
+03. The Verge (7:47)
+04. Shadows (7:11)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53A44751C7448F0C5BA523C0F7377AA356428ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578629   (340939) от 25.09.2022
+
+VA - Ana Criado - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic & Ana Criado - Ask Me Anything (Original Mix) (3:10)
+02. Yuri Kane & Ana Criado - Running Wild (Radio Edit) (3:34)
+03. Ana Criado & Costa - Love Is An Act Of Courage (Original Mix) (3:21)
+04. Stoneface & Terminal with Ana Criado - My Heart Won't Tell You No (Radio Edit) (4:35)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7E1BC57AA3CD8C4D0539FA5C1931DCF443FD3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073995   (340909) от 18.11.2016
 
 VA - Lazy Life Chillout Collection (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -691,64 +749,6 @@ Nseven - Discography 7 Releases (2004-2020) SHUM Records [FLAC|Lossless|tracks+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E650B4BB6F865D2287ED7C6C45120E58FD97F9C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316730   (339452) от 28.10.2020
-
-Seph - Discography 19 Releases (2007-2020) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Experimental, Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ulizen (06:57)
- 02. MB4 (05:31)
- 03. Glass (05:59)
- 04. MB4 (BLNDR Remix) (05:32)Тип издания: CD, WebЖанр: Techno, Minimal, Experimental, Dub Techno, Ambient •Продолжительность: 09:51:39 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CE953FDE4B5875BD671C71A2892777041D57DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330350   (339102) от 11.10.2019
-
-VA - Live @ Ultra Music Festival Japan (2019) [MP3|~245 Kbps (V0)] <Trance, Techno, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dash Berlin @ Mainstage, Ultra Music Festival Japan 2019-09-15:
-01. Intro
-02. Omnia & Whiteout - U
-03. Alan Walker - Faded (Dash Berlin Remix)(   Читать дальше...   )Жанр: Trance, Techno, Progressive HouseПродолжительность: 05:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76AA7417BBC868A94F157961D278A9B1D2CB708
 ```
 
 https://mybot314.ru/tekegram_catalog/

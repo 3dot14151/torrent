@@ -1,3 +1,177 @@
+###  Публикация: 1081602   (281672) от 10.12.2016
+
+VA - Mega Dance Hits [Compiled by Zebyte] (2016) [MP3|320 Kbps] <Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Perry Feat. Shy Martin - The Ocean [03:06]
+02. Tungevaag & Raaban - Magical [03:40]
+03. Willy William - Ego [03:30]
+04. Major Lazer Feat. Moti, Ty Dolla $ign, Wizkid & Kranium - Boom [03:09](   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 02:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3DA26551F20FB236B89F1C4249973B21008AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964496   (281653) от 11.12.2015
+
+VA - Beatport Top 100 09.12.2015 (2015) [MP3|320 кб/с]<House, Electro, Progressive, Deep House, Tech House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281653.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michael Calfan - Breaking The Doors (Extended Mix)
+002. R3hab, KSHMR - Strong (Extended Mix)
+003. Don Diablo _ Khrebto - Got The Love (Extended Mix)
+004. Prok & Fitch - Tears (Original Mix)(   Читать дальше...   )Жанр: House, Electro, Progressive, Deep House, Tech House, TechnoПродолжительность: 10:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878D806E395BAC917DCA05564B5062AD3E5AFE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264313   (281239) от 23.11.2018
+
+VA - Future Psychedelic Trance (2018) [MP3|320 Kbps] <Psychedelic, Goa, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281239.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. N3v1773 - Aztech
+002. Alpha Portal - Full Throttle
+003. Klaustrophobia - Distant Vantage Point
+004. Bionix - Days of Light (Original Mix)(   Читать дальше...   )Жанр: Psychedelic, Goa, TranceПродолжительность: 12:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9B0C973914F43AD6545676EF8763BDF7C23908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264327   (281233) от 23.11.2018
+
+VA - Enhanced Lounge And Chillout (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281233.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Entheogenic - Kykeon
+002. Donatello - Tears
+003. Fade - Space (Original Mix)
+004. Farsot - Erde I(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 10:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071581F505CDCB64ADDA3226412F9BB5A3C72319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264330   (281154) от 23.11.2018
+
+VA - Italodisco Remix And Reloaded (2018) [MP3|320 Kbps] <Italo Disco, Reloaded>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281154.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Martinelli - Cenerentola
+002. Gina - Let Me Free (Single Version)
+003. Marc Reason - I Like Chopin (Radio Mix)
+004. Rick The Moore - It's Love(   Читать дальше...   )Жанр: Italo Disco, ReloadedПродолжительность: 08:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F418D686ECE8231F3FC7E7C3E124938981D0E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264383   (281152) от 23.11.2018
+
+VA - Звёздные фабриканты: Лучшее (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Влад Соколовский - Катя (4:04)
+02. Дмитрий Колдун - Дай мне силу (3:08)
+03. Доминик Джокер - Плачут небеса (4:35)
+04. Зара - Любовь-красавица (4:04)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E8BE899E255CE6DE5EA19A34866F3AA59C75A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264332   (281148) от 23.11.2018
 
 Таисия Повалий - Золотая коллекция (2018) [MP3|320 Kbps] <Pop>
@@ -571,181 +745,6 @@ VA - Christmas Hits (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2096C534C0F59CACEB97EADC882A9E6C6BA68A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187438   (280309) от 28.11.2017
-
-VA - Дальняя дорога. Новый сезон (2017) [MP3|256-320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280309.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олеся Атланова - Солод
-002. Илья Лукин - Полуночный Вокзал
-003. Михаил Грубов - Блат
-004. Вячеслав Московкин - Что Же Ты Командир(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132D77F789D9D9E4C411400C517F6741A98C317B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964719   (280264) от 12.12.2015
-
-VA - Зажигай в темпе ритма с Europa plus (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алиса Кожикина - Белые Снежинки
-02. Родион Газманов и Алёна Мальцева - Разминулись
-03. The Game Feat. Lil Wayne & Chris Brown - Fuck Yo Feelings
-04. Fidel Wicked - Empires Revenge(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2961C14747DA5B00F964A3A24A1B9212D214C98F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 734760   (279652) от 16.12.2013
-
-VA - Billboard 2013 Year End Hot 100 Songs (2013) [MP3|320 кб/с]<Pop, Dance, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279652.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце года принято подводить итоги. Вот и журнал Billboard подвел итог своих хит-парадов за 2013 год. Опубликована лучшая сотня песен за год во всех жанрах. Именно её мы и представляем сегодня.
-Вспомните в Новый год о всем лучшем, что в нем было под замечательные мелодии 2013 года!01. Macklemore & Ryan Lewis - Thrift Shop (3:56)
-02. Robin Thicke - Blurred Lines (4:21)
-03. Imagine Dragons - Radioactive (3:06)
-04. Baauer - Harlem Shake (3:17)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Other |Продолжительность: 06:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21233ACE2143BFAE5856046503E393A7393DA05F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264577   (279529) от 24.11.2018
-
-VA - German Top 100 Single Charts 23.11.2018 (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279529.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ava Max - Sweet but Psycho
-002. Sido - Tausend Tattoos
-003. Samra - Cataleya
-004. KitschKrieg - Standard (feat. Trettmann, Gringo, Ufo361 & Gzuz)(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8ED4C0BDA23985B525535EE9654463EF08E24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264768   (279525) от 24.11.2018
-
-VA - Record Super Chart 563 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fisher  -  Losing It
-02.  Rompasso  -  Ignis
-03.  Gaulin  -  Moonlight
-04.  Summer Cem  -  Tamam Tamam(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A4CD875E060524FE403EC6821704BA1064686D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264561   (279469) от 24.11.2018
-
-VA - Top 50, A Playlist By Spotify Charts 18.11.2018 (2018) [MP3|320 Kbps] <Pop Rap, Alternative, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salmo;Nstasia - IL CIELO NELLA STANZA
-02. Salmo;Sfera Ebbasta - CABRIOLET
-03. Salmo;Fabri Fibra - STAI ZITTO
-04. Måneskin - Torna a casa(   Читать дальше...   )Жанр: Pop Rap, Alternative, RockПродолжительность: 02:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5742A3001A98933869119D3A0F3E2B64CEB8E08B
 ```
 
 https://mybot314.ru/tekegram_catalog/

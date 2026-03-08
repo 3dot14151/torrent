@@ -1,32 +1,3 @@
-###  Публикация: 1446962   (1032287) от 11.02.2021
-
-Sirenia - Riddles, Ruins & Revelations (2021) [MP3|320 Kbps] <Symphonic Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addiction No. 1 (04:03)
- 02. Towards an Early Grave (05:28)
- 03. Into Infinity (04:42)
- 04. Passing Seasons (04:43)(   Читать дальше...   )Жанр: Symphonic Melodic MetalПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12942053610A9702C03675899463E4DD2BB0DD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446974   (1032279) от 11.02.2021
 
 Joel Hoekstra's 13 - Running Games (2021) [MP3|320 Kbps] <Melodic Hard Rock>
@@ -745,6 +716,35 @@ Sideways - Test Of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Prog, Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54CF8491185ECAE7D4DE5DD16DF1E30032556E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620397   (1032117) от 20.03.2023
+
+Orphan - Lonely at Night (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely at Night (04:19)
+02. What Kind of Love Is This (04:07)
+03. Miracle (04:55)
+04. She Told Me (03:35)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CF149A95438AA402D531DC98980328CBAF2499
 ```
 
 https://mybot314.ru/tekegram_catalog/

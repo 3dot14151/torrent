@@ -1,3 +1,38 @@
+###  Публикация: 611433   (988525) от 31.01.2013
+
+Necrowretch - Putrid Death Sorcery (2013) [MP3|320 кб/с]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ripping Souls of Sinners (2:37)
+02. Purifying Torment (3:21)
+03. Goat-Headed (3:04)
+04. Putrid Death Sorcery (3:52)
+05. Impious Plague in Catacombs (3:35)
+06. Spewed from Hell (3:29)
+07. Defiler of Sacrality (3:16)
+08. The Anthropomancer (4:26)
+09. Soiled Into a Crypt (2:26)
+10. Necrollections (3:03)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46E3AB4450B1D1A8F596E2AFF431B8FFCF33CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611574   (988518) от 31.01.2013
 
 Е. Пушков | Не смущайся! [2002] [PDF]
@@ -693,33 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBFF75859A936EDD51A320F92DD5928BC83E772A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952479   (988311) от 01.01.2016
-
-RunGPS Trainer Full v3.1.8 [Ru/Multi] - Трекер - логер - навигатор - планировщик для спортсменов
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Run.GPS Trainer незаменимая программа для любителей активного отдыха.
-Программа подойдет: бегунам, велосипедистам, лыжникам, туристам, геокешерам и т.д.Тип издания: Full с офсайта (регистрация кейгеном)Релиз состоялся: 24.12.2015Разработчик: eSymetric GmbHПоддерживаемая ОС: Android 2.3 +Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A59C02C66FE1AB67C1DE1C9F36249D8C864A682C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1258149   (338521) от 29.10.2018
+
+Muzronic Trailer Music - Дискография (2016-2017) 3CD [MP3|320 Kbps] <Soundtrack, Epic Trailer Music, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче:
+The Illume of Life (2016)
+The Saviour (2016)
+Horizon Twilight (2017)Жанр: Soundtrack, Epic Trailer Music, ScoreПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C9D91E742C46A44E33AF98BD5FD762527C2D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258160   (338514) от 29.10.2018
 
 Really Slow Motion & Instrumental Core - Existentia (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Score>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CDD270B93EE4F1665D8EFB18AACF309BEF69848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840692   (333691) от 13.11.2014
-
-Richard Clayderman - The Ultimate Collection (2005) 3CD [APE|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Seasons: Spring (2:58)
-02. The Swan (3:06)
-03. Italian Symphony No 4 Sharp: Op 90 Allegro (3:56)
-04. Waltz In A Flat (3:13)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6F14DACDFE97D8BA9EB14B5D385F0B1E234258A
 ```
 
 https://mybot314.ru/tekegram_catalog/

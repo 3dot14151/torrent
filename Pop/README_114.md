@@ -1,3 +1,61 @@
+###  Публикация: 1531946   (718360) от 17.02.2022
+
+VA - Лучшие хиты из культовых сериалов и кинофильмов. Часть 1 (2003) [MP3|320 Kbps] <Soundtrack>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triplex - Бригада (remix) 3:23
+к/ф Бригада
+02. С. Шнуров - Мобильник 2:48
+к/ф Бумер(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AD5F9E72C50C8917772A8E4EDE2D23740DA509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130080   (718250) от 30.04.2017
+
+VA - Старая пластинка: Сторона 1,2 (1988) Compilation, 2CD [FLAC|Lossless|image + .cue] <Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А.Барыкин - Букет
+02. Секрет - Привет
+03. Машина Времени - Костер
+04. Земляне - Трава у дома(   Читать дальше...   )Жанр: Советская эстрада |Продолжительность: 02:36:54 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70095291FA4610BC3BCEE100A0592CCBC4BCAB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024361   (718161) от 08.06.2016
 
 Hanne Sorvaag - Featuring (2016) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Country>
@@ -688,64 +746,6 @@ VA - ZYX Italo Disco Spacesynth Collection 6 (2020) 2CD, Compilation [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DA1B3612848114A89DA803F21E6E2849EBEF712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 670169   (715012) от 19.06.2013
-
-Texas - The Conversation (2CD) (2013) Deluxe Edition [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Conversation [02:44]
- 02. Dry Your Eyes [02:41]
- 03. If This IsnҴ Real [00:00]
- 04. Detroit City [03:42](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286146   (714810) от 01.03.2019
-
-Настя Макаревич & Лицей - Мчится время (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714810.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мчится время
-2. Падаю вверх
-3. Где-то
-4. Быть одной(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8D2657F75F866B6410804901E43B542EEADD1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

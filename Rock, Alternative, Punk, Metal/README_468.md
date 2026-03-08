@@ -1,32 +1,3 @@
-###  Публикация: 1546710   (604491) от 25.04.2022
-
-Destruction - Diabolical (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under The Spell
-02. Diabolical
-03. No Faith In Humanity
-04. Repent Your Sins(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77073F59F9784E386D6BE1FA3DEC8C70B803078F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546699   (604485) от 25.04.2022
 
 Mirror - The Day Bastard Leaders Die (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal>
@@ -747,6 +718,35 @@ Suotana - Land Of The Ending Time (2018) [MP3|320 Kbps] <Melodic Black Metal, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:632AB7B330D4EF0D0C211E4DC43FC9A9CF3057AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231886   (603706) от 20.06.2018
+
+Broken Teeth - Blood On The Radio (2004) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Gonna Blow  (2:59)
+ 02. Pull the Plug  (3:45)
+ 03. Stick it in  (3:48)
+ 04. Chaingang  (5:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECAE7720DE98919F4972878C41D157690C087C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

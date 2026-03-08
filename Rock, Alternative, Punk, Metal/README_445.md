@@ -1,32 +1,3 @@
-###  Публикация: 1035226   (628679) от 16.07.2016
-
-Evol - The Saga of the Horned King (1995) [APE|Lossless|image + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Present Age 3:36
-02. The Chant of the Witch 4:22
-03. From the Unknown Domain...(The King Awakes) 1:49
-04. Through Foggy Plains and Mystic Woods He Rides...2:43(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9EDA04EDC1F7F1DCFCA3A44BE843844D0630AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035250   (628677) от 16.07.2016
 
 The Resistance - Coup de grâce (2016) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -739,6 +710,32 @@ Plastika - Лети, лепесток (2015) [MP3|320 кб/с]<Alt. Rock, Grunge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5DCB51AA1CB5669666FB610BBEDBD72EAEEF024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035344   (628034) от 16.07.2016
+
+Pink Floyd - Echoes - The Best Of Pink Floyd (2001) Remastered, 2016, Parlophone Records Ltd. / PFR20 [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive Rock | Parlophone Records Ltd. / PFR20Продолжительность: 02:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE4C488578FC679CA2E6EDB49368C110E10E633
 ```
 
 https://mybot314.ru/tekegram_catalog/

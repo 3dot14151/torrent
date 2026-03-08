@@ -1,3 +1,119 @@
+###  Публикация: 1438955   (1040475) от 10.01.2021
+
+VA - Дискотека Пионер FM По-Русски vol.14 (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040475.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Евгений Кемеровский - Белая зима
+002. Gallina - Белым Снегом
+003. София Ротару - Ты позови меня
+004. Премьер-Министр - Дорогая(   Читать дальше...   )Жанр: Pop, Dance,Продолжительность: 06:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB37B7A53AAEC7B2AC0BEBC006A9C3B69D32BE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612196   (1040445) от 14.02.2023
+
+VA - Power & Hot (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supermode - Tell Me Why - MEDUZA Remix (8:28)
+02. Majestic Feat Boney M. - Rasputin (Majestic Club Vip Remix) (5:45)
+03. Deborah de Luca - Children - Radio Edit (5:43)
+04. Drake - Massive (5:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7B23B1BCAD104A20E223D4B456B5FBE49317C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611700   (1040349) от 15.02.2023
+
+VA - Sonic - Before the Sequel (2012)[MP3|320 Kbps] <Score>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальная музыка из игры -01. Circumstance - Opening
+02. Before the Sequel - Title Screen
+03. Rivulets - For Hilltop Heights Act 1 (ft. Sky Sanctuary (S3&K))
+04. Downpour - For Hilltop Heights Act 2 (ft. Green Hill Zone (Sonic 1))(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362D35D41B3AFAA8D4F8A1EF42DB684B81DC35A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611328   (1040322) от 15.02.2023
+
+Sonic Boom (Hack) (Soti, Tweaker, Nineko, Roxahris) (2009)[MP3|320 Kbps] <Score>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка из хака -01. Gravity Beetle Stage (Megaman X3)
+02. Infinity Mijinion Stage (Megaman X6)
+03. Blast Hornet Stage (Megaman X3)
+04. Storm Eagle Stage (Megaman X)(   Читать дальше...   )Жанр: ScoreПродолжительность: 03:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67808DF12E12406AF7588B09CD3393ECE0BC417D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439113   (1040288) от 11.01.2021
 
 VA - Best Live Albums (2020) [MP3|320 Kbps] <Rock, Reggae, Blues>
@@ -629,122 +745,6 @@ VA - Disco Basics of The Hit Space (2023) [MP3|320 Kbps] <Funky, Nu-Disco, Indie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04C69A610068A436A867BBF0AA7049FDE6F5A49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615593   (1037551) от 26.02.2023
-
-VA - Greatest Dj Dance Saturday (2023) [MP3|320 Kbps] <Eurobeat, Dancecore, Italodance, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kasa Remixoff - Updated Feeling (Extended Mix)
-02. INNA - Just Dance
-03. Nervian Society - Mainloft (feat. Mien)
-04. KintexaHoop Records - But You(   Читать дальше...   )Жанр: Eurobeat, Dancecore, Italodance, ElectropopПродолжительность: 02:17:39 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8714ECA7C4EA2EA037B9B510790088DC2DE478E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615586   (1037550) от 26.02.2023
-
-VA - Disco Real Time Discoteca Mashup (2023) [MP3|320 Kbps] <Nu Disco, Funky, Synthpop, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sammy Deuce & Hp Vince - You Gotta Dance (Vince's Nu Disco Mix)
-02. Disco Fries - Family Affair (HAWK & Beyge Extended Remix)
-03. Sean Finn - Disco Revenge 2021 (CASSIMM Remix)
-04. Sean Finn - Disco Revenge 2021 (CASSIMM Remix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Synthpop, Electro HouseПродолжительность: 02:10:22 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5183477544C7852FCBC71FB292AD34EAE00B0B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615591   (1037505) от 26.02.2023
-
-VA - Music News vol.248 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037505.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Diana Di - Я Буду (02:58)
- 002. 22Bullets feat. Alex Aris - Love Is Gone (02:35)
- 003. 22Bullets feat. Dripteese - To Get You (02:50)
- 004. 24kGoldn - Bite (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F5823874A792B909274878DBE5FAE5DC7F6AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441782   (1037165) от 23.01.2021
-
-VA - ЕвроХит Топ 40 Europa Plus 22.01.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burak Yeter - Body Talks (3:56)
-02. Nea & Nio Garcia - DIABLO (2:46)
-03. Marshmello & Imanbek feat. Usher - Too Much (2:49)
-04. Joel Corry feat. MNEK - Head & Heart (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51FD3C8E6C8C5EC30F9795CCF1ECD5E83C3AA8E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

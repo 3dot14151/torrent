@@ -1,3 +1,32 @@
+###  Публикация: 1740680   (105772) от 03.08.2024
+
+Frank Sinatra - I Get A Kick Out Of You (1990) Entertainers [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring Is Here [4:45]
+02. I Get A Kick Out Of You [2:55]
+03. Around The World [3:20]
+04. Why Should I Cry Over You_ [2:42](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41A6571DAE65ECBF2AE95F8017F9A5A09FF800E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740890   (105746) от 04.08.2024
 
 Frank Sinatra - The Romantic Side (2006) Music Sessions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Loose Ends - Look How Long (1990) [FLAC|Lossless|tracks + .cue] <Contemporary R&
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C2DD5A779E9DFCB4C4C642FA6FEE32D831B20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746877   (104800) от 03.09.2024
-
-Stan Getz - In Stockholm (1955) 2008, Verve [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indiana [4:54]
-02. Without A Song [4:42]
-03. I Don't Stand A Ghost Of A Chance With You [5:53]
-04. I Can't Believe That You're In Love With Me [5:22](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CFBD96CC86BE14D2D846F702CEBD70F8DE06A5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1370987   (893314) от 29.03.2020
+
+Oliver Shanti - 100% Oliver Shanti (2020) [MP3|320 Kbps] <New age, Enigmatic, Ethnic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Water - Four Circles Of Life
+02. Well Balanced
+03. Journey To Shambala
+04. Tocar Para Sarakali(   Читать дальше...   )Жанр: New age, Enigmatic, EthnicПродолжительность: 03:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6B4DE925803229180B110DE2037F5E56C41F2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993819   (893305) от 06.03.2016
+
+VA - 100 Самых красивых песен (2016) [MP3|320 кб/с] <Pop , R&B , Disco , Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Connells - '74-'75
+02. Groove Coverage - God Is A Girl
+03. Sophie Ellis-Bextor - Wrong Side Of The Sun
+04. Shania Twain - Ka-Ching(   Читать дальше...   )Жанр: Pop, R&B, Disco, RockПродолжительность: 06:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DC02B6D6BFE9DA1611E459FF2A9B8A0233B6A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370930   (893290) от 29.03.2020
+
+Karunesh - 100% Karunesh (2020) [MP3|320 Kbps] <Enigmatic, New age, Ethnic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeon
+02. Lyria
+03. Moola Mantra
+04. Oasis(   Читать дальше...   )Жанр: Enigmatic, New age, EthnicПродолжительность: 02:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FDE234BF5B477C1DB52FD16D8DC2F4B84657E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 639350   (893183) от 04.04.2013
+
+VA - Absolute Music 72 (2013) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893183.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01.Robin Stjernberg - You 03:02
+02.Passenger - Let Her Go 04:10
+03.Zara Larsson - Uncover 03:32
+04.Rihanna - Diamonds 03:43
+05.Kim Cesarion - Undressed 03:40
+06.Bruno Mars - Locked Out of Heaven 03:52
+07.Yohio - Heartbreak Hotel 03:04
+08.The Lumineers - Ho Hey 02:41
+09.Imagine Dragons - Radioactive 03:06(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5F34B01B6B3D9FA9C6714CD019BBA3EF177495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101933   (893129) от 08.02.2017
+
+VA - Отдыхаем душой на радио Шансон выпуск №2 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Солла Смитт - Ты Самый Лучший 4:13
+002. Игорь Голубев & Юлия Прокофьева - А Счастья Хочется 3:54
+003. Алексей Романюта - Осенний Сад 3:24
+004. Светлана Аверочкина - Не Стану Говорить 3:18(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059343BD4407EDB27E2E18EF3330038CBCC68C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101934   (893070) от 08.02.2017
+
+VA - Ресторан Кураж зимний выпуск №3 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893070.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сборная Союза - Дубай-Питер-Вологда 4:00
+002. Александр Курган - Сердце Прости 3:26
+003. Александр Казанцев (Сотник) - Никому Не Желаю Зла 3:21
+004. Владимир Захаров - Я Не Пойму 3:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18944E208EA528C87A51AA34587E81AD8D1F4F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371011   (893051) от 29.03.2020
 
 VA - Top 50 Club Tracks 2 (2019) [MP3|320 Kbps] <House, Pop, Club, Dance>
@@ -571,180 +751,6 @@ VA - Hard Rock Edition Vol.31 (2017) [MP3|320 Kbps] <Hard Rock, Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57BB9E0DB90A09CFCB30C050DC2EB7659F882BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102178   (892335) от 08.02.2017
-
-VA - TOP Non-Stop: Hip-Hop 1995-2015 (2015) [MP3|128-320 Kbps] <Rap, R&B, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B Real - Smoke N Mirrors featuring Bo Roc (4:55)
-02. Mobb Deep - Extortion Feat. Method Man (3:32)
-03. Timbaland & Magoo Feat. Missy Elliott - Cop That Shit (3:33)
-04. Method Man & Redman - I'm Dope Nigga (4:11)(   Читать дальше...   )Жанр: Rap, R&B, Hip-HopПродолжительность: 06:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7CF228BABEB2CA18435BECFC903527107EC6EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761545   (892195) от 02.03.2014
-
-VA - Alterportal HITS 14 Vol. 65 - January (2014) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skindred - Open Eyed
-02. Punch Cabbie - Vultures (Left Alone)
-03. Sidilarsen - Matiere Première
-04. Any Given Day - Dead Forever(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94F4C4947C7DE745DBDBD83EE3AD3B91ADFE6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493949   (892170) от 05.09.2021
-
-VA - Music News vol.129 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892170.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ronna Riva - Stories (03:14)
- 002. Шамиля - Что Ты Знаешь (03:30)
- 003. Alexandra Stan feat. Nervo - Come Into My World (Rawdolff Remix) (02:35)
- 004. Ali Bakgor feat. Dlay - Lightning Bolt (02:54)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE68330269080476F725664CFFB5741B51D5804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371400   (892038) от 30.03.2020
-
-VA - Beatport Bassline: Electro Sound Pack #41 (2020) [MP3|320 Kbps] <D&B, Bassline>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892038.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artificial Intelligence - Savour
-002. Atmosis - Did You Know
-003. Black Barrel - Fabric
-004. Drumsound & Bassline Smith - Come With Me(   Читать дальше...   )Жанр: D&B, BasslineПродолжительность: 10:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B6E5DF584A76CE9BE660A40B4FA3D1625E1151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371397   (892037) от 30.03.2020
-
-VA - Time For Dreams: Chillout Zone (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892037.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Albert Sokolov - Sea (Original Mix)
-002. Terje Saether - Tungtvann
-003. The Chill-Out Orchestra - Mother
-004. Peter Manson - Homeboy Hippi(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, DowntempoПродолжительность: 09:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F09898FB4E81262632DC6B5051771770773FC30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371395   (892034) от 30.03.2020
-
-VA - Beatport Electronic: Electro Sound Pack #38 (2020) [MP3|320 Kbps] <Synthetic, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Club Bizarre - Persona
-02. Franz Matthews - All I Wanted
-03. Occams Laser - Abandoned Vows
-04. Colya Zucker - Magazine(   Читать дальше...   )Жанр: Synthetic, Dance, ClubПродолжительность: 06:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A4A4C431A9AD35AE9987F3805F9DA673F4DA53
 ```
 
 https://mybot314.ru/tekegram_catalog/

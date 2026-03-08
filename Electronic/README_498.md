@@ -1,3 +1,61 @@
+###  Публикация: 1770838   (71941) от 03.01.2025
+
+VA - Trance - Charted Only (Winter Edition), Vol. 1 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Kazal - Beyond The Stars (Extended Mix) [6:06]
+02. Kenny Mitchell (UK) - Reflections (Extended Mix) [6:59]
+03. Robznow & John Holt DJ - Breathe In Space (Original Mix) [4:47]
+04. Static State (UK) - Transcended (Extended Mix) [7:03](   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDA8ABB487F3250C879E8450E205A531BCEF5AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771259   (71927) от 05.01.2025
+
+VA - A-Mase - Best of 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase - Om Shivam (Original Goa Mix) [6:34]
+02. A-Mase & Vika Grand - Fever (Melodic Techno Mix) [5:18]
+03. A-Mase & Sharliz - Beautiful Things 2.0 (Original Mix) [7:04]
+04. A-Mase - Imagine 2.0 (Original Mix) [8:47](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA6C3F6D1A56BB1C2BEFF006A2AFE34EC02D357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771426   (71876) от 06.01.2025
 
 VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [MP3|320 Kbps] <Spacesynth, Synthdance>
@@ -687,64 +745,6 @@ VA - By the Fireplace: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B05B82BBE69A6F6D140DF9EC657FFC6220EB311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773731   (71656) от 17.01.2025
-
-VA - Nomadica 2025 (Tibetania Orient) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Barabash - Bedouin (6:49)
-02. The Friend - The Road To Egypt (Olendo remix) (6:20)
-03. La'Dell - Get Oriented (4:54)
-04. Fernando - Corazon Seco (feat Ludelf) (5:26)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B453973A36DEB6CB326D1897E9E737AEFE96B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773620   (71640) от 18.01.2025
-
-Postfactum - 2 Albums (2022, 2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Chill Out, Trip-Hop, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сузір'я [00:03:33]
-02. Мій друг [00:03:05]
-03. Інсомнія [00:03:24]
-04. Гротеск [00:03:27](   Читать дальше...   )Жанр: Electro, Chill Out, Trip-Hop, LoungeПродолжительность: 2 CD, 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120C23DF44B89A922D7D04FC903CFF68ADDA7A99
 ```
 
 https://mybot314.ru/tekegram_catalog/

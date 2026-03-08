@@ -1,38 +1,3 @@
-###  Публикация: 465456   (81154) от 10.03.2012
-
-Alice Cooper - Halloween Night Of Fear (2011) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Black Widow
-03. Brutal Planet
-04. I’m Eighteen
-05. Under My Wheels
-06. Billion Dollar Babies
-07. No More Mr Nice Guy
-08. Hey Stoopid
-09. Is It My Body
-10. Halo Of Flies(   Читать дальше...   )2011Жанр: Hard RockПродолжительность: 01:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4473A4D1124946D675BAF740CF84F0656B2A6946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462502   (80036) от 04.03.2012
 
 Whitesnake - Best Ballads (2000) [MP3|320 кб/с]<Hard/Glam Rock>

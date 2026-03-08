@@ -1,3 +1,177 @@
+###  Публикация: 1776190   (29257) от 30.01.2025
+
+VA - Car Music Mix 6 (2025) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BAD NINJA - Are You Ready (2:59)
+02. ZISO - Burners & Turners (2:28)
+03. Beeskov - Get Up (2:24)
+04. COBRAH - SUCK (2:20)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 03:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A74FBF94C938DE9E7AA42D4328736FBBE943AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821133   (29110) от 30.09.2025
+
+VA - Top Of Favorite Tracks (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nyah Grace - Back Of The Cab (03:18)
+ 002. Alicia Edelweiss - Behind The Gates (05:55)
+ 003. Station Echo - Blown Away (06:58)
+ 004. Calum Hood - Don't Forget You Love Me (03:37)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108A90F7B3B0F1720C6C27E19FB797136B8A53E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776414   (28985) от 01.02.2025
+
+VA - Music News For Forum vol.058 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28985.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Katusha Svoboda - Ой (02:50)
+ 002. AFBEAVERS - Стоит ли (04:06)
+ 003. Akha - Моя (02:09)
+ 004. Akris & Teddy - Черные глаза (02:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8207B850324833A3B2F39ECCC418BD558324E333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776803   (28885) от 02.02.2025
+
+VA - Light And Shadows (2025) [MP3|320 Kbps] <Rock, Alternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Angels - Brahma - 04:50
+002. Letdown - Dead Right - 02:43
+003. Phantogram - Jealousy - 03:02
+004. Garbage - Starman - 04:09(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 14:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B0CCE257F0CA130BA3C056813D9134CA9497F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776996   (28774) от 03.02.2025
+
+VA - Music News For Forum vol.059 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ольга Шультайс - Касаясь (03:09)
+ 002. AALLAR feat. Alyssa Raghu - Never Know (02:40)
+ 003. Acereda - Cambio De Planes (02:17)
+ 004. AGP - The Meaning (02:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B477C08194FE2605DE039879EF1AABE7C4E3EEF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776952   (28709) от 04.02.2025
+
+VA - Time Of Rock & Metal от ALEXnROCK Part 1 (2025) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переделал и улучшил выпущенный ранее сборник, по просьбе одного очень хорошего человека. На тот момент выпуска, всё что у меня было из звука — это простенький музыкальный центр SONY подключённый к компу. Сборник составлял для себя, так как мне категорически не нравились официальные сборки, ещё со времён кассет. В основном пихают скучный, однообразный или заезженный (   Читать дальше...   )01. Firehouse - Get In Touch
+02. Suicidal Tendencies - Get Whacked
+03. Bon Jovi - In These Arms
+04. Helloween - Sole Survivor(   Читать дальше...   )Жанр: RockПродолжительность: 04:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3BC52CD95AC066C196DAC3F5CA861492277219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777245   (28589) от 05.02.2025
 
 VA - Classic Glam Rock (2025) [MP3|320 Kbps] <Rock, Glam>
@@ -571,180 +745,6 @@ VA - Music News For Forum vol.064 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24AD987AA6D0C87B69444E2DB10D8911045D5FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781944   (26385) от 26.02.2025
-
-VA - Motivation Mix 8 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Keen - Tonight (2:29)
-02. Quavo, Lana Del Rey, Gravagerz - Tough (Gravagerz Remix) (3:39)
-03. Repiet - Better Way (2:59)
-04. Rivo - Last Night (3:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2445820A168D5F80D04FFBA1CCA61320AE989D63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781990   (26365) от 26.02.2025
-
-VA - Music News For Forum vol.065 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26365.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. SVETLAYA - Поцелуи (02:57)
- 002. ADDA - Fata Rea (03:07)
- 003. ADUSHKINA - Типаж (02:32)
- 004. AFELIA - Исчезаю (02:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1108915E2EA527DC64332B632FFD9A8CCB2C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782284   (26297) от 27.02.2025
-
-Flaer Smin - Compilation (2025) [MP3|320 Kbps] <New Age, Enigmatic, Electronic, Ambient, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Adagio for Love
-  02.  Catasta
-  03.  Namaste
-  04.  Spacewalk(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, Ambient, InstrumentalПродолжительность: 02:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DD884043F44187286C1E410399C818A31DDF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782143   (26275) от 27.02.2025
-
-Axel Rudi Pell - The Ballads Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Say Goodbye [05:42]
-02. Where the Wild Waters Flow [05:35]
-03. You Want Love [04:34]
-04. Forever Angel (Acoustic) [04:33](   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 09:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A812F25E2A89C2DEBF0128E20400187BE8F464DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782164   (26271) от 27.02.2025
-
-VA - Music News For Forum vol.066 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26271.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anastasia - Bacio Di Giuda (02:29)
- 002. Agents Of Time - Only Human (03:26)
- 003. Aidar BMM - Живем (01:22)
- 004. Aidar BMM - Искали (01:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667A935C15D44BA7DEF206542E873D869A203396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782180   (26261) от 27.02.2025
-
-VA - Trance In Motion Vol.385 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asteroid - 2AM (Extended Mix)
-02. ALIGASH - Half A Dream (Extended Mix)
-03. Ciro Visone - Forever For You (Extended Mix)
-04. Joren Hëelsing - Hydra (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551AC9FDFD6AE0CC5539FDF84671BC927A164F9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

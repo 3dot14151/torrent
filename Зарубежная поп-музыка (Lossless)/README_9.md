@@ -1,3 +1,32 @@
+###  Публикация: 971964   (983341) от 05.01.2016
+
+Anastacia - Two Albums: Not That Kind, Freak Of Nature (2000,2001) [APE|Lossless|image+.cue] <Rhythm & Blues, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not That Kind
+02. I'm Outta Love
+03. Cowboys & Kisses
+04. Who's Gonna Stop The Rain(   Читать дальше...   )Жанр: Rhythm & Blues, Pop RockПродолжительность: 01:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502381B0590F7AE52E9DEACDF5DE522463DFD50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972802   (980240) от 08.01.2016
 
 New York Gypsy All Stars - Dromomania (2015) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Balkan Pop, Gypsy, Jazz>
@@ -731,35 +760,6 @@ VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D238F66DABF2A9D6A156E174DE0AAA8B46550AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976428   (969782) от 17.01.2016
-
-Tracey Thorn (Everything But The Girl) - Love And Its Opposite (2010) [FLAC|Lossless|image + .cue] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh, The Divorces! [04:15]
- 02. Long White Dress [03:53]
- 03. Hormones [03:07]
- 04. Kentish Town [03:29](   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97834C4BF5FD8E09DD2D8FA2D99CAAB906480457
 ```
 
 https://mybot314.ru/tekegram_catalog/

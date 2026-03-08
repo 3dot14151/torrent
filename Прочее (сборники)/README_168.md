@@ -1,3 +1,119 @@
+###  Публикация: 1349068   (138609) от 30.12.2019
+
+VA - Новинки с разных популярных MP3 сайтов. Ver.91 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138609.jpg" />
+</div>
+
+
+###  Подробнее
+
+RusDance:
+1.#2Маши - Много Кофеина (Denis Bravo Remix) (4:05)
+2.ALEX & RUS - Дикая Львица (Olmega & Eugene Star Remix) (3:08)
+3.Audiosoulz - Dancefloor (Lavrushkin & Max Roven Remix) (2:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD13111B770844B56FFB1C83AB6042A1D595933E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196003   (138569) от 31.12.2017
+
+VA - Electric Oxygen Workout Music (2017) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138569.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sagan - Tempus (Extended Mix)
+002. Ayin - Revive Me (Erick Kasell Remix)
+003. Martin Garrix, Matisse & Sadko - Forever (Extended Mix)
+004. Dave Till - Mistika (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFC76CDF954861DCBB099460A64CBBF2C2E07A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195864   (138429) от 31.12.2017
+
+VA - Spotify – Top Tracks of 2017 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Ed Sheeran – Shape of You
+02 - Luis Fonsi – Despacito (Remix)
+03 – Luis Fonsi – Despacito (Featuring Daddy Yankee)
+04 – The Chainsmokers – Something Just Like This(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD703D20ABF17EB721C71F021A220E9B9AECC796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195853   (138169) от 31.12.2017
+
+VA - Союз Новогодний (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ленинград vs. Slider & Magnit - Не со мной
+02. Валерия - А4
+03. Сергей Лазарев - Доигрались
+04. ЭЛДЖЕЙ - Hey, Guys(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49732EE328DC76C18F5591C3D1A681F0A7F3622B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273262   (137817) от 31.12.2018
 
 VA - Partybreaks and Remixes - All In One October 003 (2018) [MP3|320 Kbps] <Pop, House, Electro>
@@ -680,134 +796,6 @@ VA - USA Hot Top 40 Singles Chart 30 December (2012) (2012) [MP3|256 кб/с]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B5EB6CCB1673756221B291B9EE99E0BBE6B2F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593162   (132150) от 29.12.2012
-
-VA-MNM 1000 Limited Edition 5CD (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность:01:17:12
-CD 1:
-01. Coldplay - Viva La Vida (3:55)
-02. Eminem Ft Rihanna - Love The Way You Lie (4:23)
-03. Editors - Papillon (3:50)
-04. Natalia - I've Only Begun To Fight (3:30)
-05. Golden Earring - When The Lady Smiles (4:36)
-06. 50 Cent Ft Justin Timberlake - Ayo Technology (4:07)
-07. Jasper Steverlinck Ft Steven & Stijn Kolacny - Life On Mars (4:00)
-08. Amy Winehouse - Rehad (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 06:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E847AA0AEAE095F6C30D82E270C6690E9C578C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682069   (132027) от 05.12.2023
-
-VA - Music News vol.321 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132027.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Inna Sigle - Шаг (03:00)
- 002. Alice Harp - Просто Танцую (02:18)
- 003. Andrei Ursu - Hai, Inima! (03:00)
- 004. ANNA - ПДД (03:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EFD85453E28F9494507203A39EC1D65FDB98B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682234   (131760) от 06.12.2023
-
-VA - CarMusic 2 for lady (2023) [MP3|320 Kbps] <Pop, House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arem Ozguc - Astronaut In The Ocean (2:36)
-02. Greesha - Baila (3:12)
-03. CryJaxx - Popstar (2:44)
-04. Remix Kingz - As It Was (Remix) (2:53)(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 04:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5E2844D4A4195528394B604B6BC21BBA480427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595349   (131753) от 29.12.2012
-
-VA 90's Hits - Euro Dance Remix Classics Vol 1 (2012) [MP3|320 кб/с]<Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dutch South - Children 2012 (Davincii Remix) 03:28
-02. Re-Quest - Insomnia (Original Rework) 03:30
-03. New Life Generation - Enjoy The Silence (Pacific State Chillout Mix) 03:52
-04. Area 44 - Believe (90'S Anthems Version) 03:39
-05. Jamal Lamar - Ice Ice Baby (Dan Drake Levels Remix) 03:49
-06. Funky Animal - I Like To Move It (Twister On Madagascar Edit) 03:28
-07. Tetrixx - U Can't Touch This (Calabria Inc Remix) 03:36
-08. Party Control - Music (Reloaded Electro Mix) 04:04
-09. Vibez - Music Sounds Better With You (Ministry Of Funk Wmc Dub) 03:49
-10. D&J Prese Josh Harris - One More Time (Calvin Chase Remix) 03:57(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 02:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B03610A283AC1E265CF860198FC49A0889EA8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

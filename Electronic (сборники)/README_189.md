@@ -1,3 +1,32 @@
+###  Публикация: 965230   (228633) от 13.12.2015
+
+VA - Chillout Hits (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Cool Shade
+02. Peter Pearson - Dreaming
+03. FXU - Lucky 13
+04. Radiosilence - Silence to Storm(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234B6A7CF0F1D6E2AFCB67FCC2B9516EFBB79189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965033   (228509) от 13.12.2015
 
 VA - Private Lounge Cafe, Vol 2 (25 Delicious Lounge Anthems) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -746,35 +775,6 @@ VA - Tried Everything: Dance Mixtape (2019) [MP3|320 Kbps] <House, Trance, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3A82DBC5FB7E18689EDF32FDC6D7D4D79E388BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965748   (224222) от 15.12.2015
-
-VA - Modern House Audio Samples (2015) [MP3|242-320 кб/с] <Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gigi Lav, Simon J. Bergher - Curiosity (feat. Steklo) [05:14]
-02. The Uniporns - Kobra (Radio Edit) [02:44]
-03. DJ General Slam - When Jazz Meets House (MFR Souls Drop Bass Mix) (MFR Souls Drop Bass Mix) (feat. Bruno Soares Sax) [06:31]
-04. Zad - Dream [06:27](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFCCC00BC8EDF8DCE47E65FDD5EDCEFBEF8CBEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

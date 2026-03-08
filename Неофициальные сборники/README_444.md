@@ -1,3 +1,177 @@
+###  Публикация: 1251829   (413509) от 03.10.2018
+
+VA - Modern City: Dubstep Party (2018) [MP3|320 Kbps] <Dubstep, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413509.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Thomas Newson - Flute  Festival Trap
+002. Xlrate - Dubknot (Original Mix)
+003. Rez - The Lost World
+004. Froxic - Shock Therapy(   Читать дальше...   )Жанр: Dubstep, ElectroПродолжительность: 09:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B882F056DDC84440B4991752C42A1218DA4C52E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251865   (413499) от 03.10.2018
+
+VA - New Music Releases Week 34 of 2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413499.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Radiant Children - Tryin'
+002. Ozuna - Ibiza (Feat. Romeo Santos)
+003. Conor Matthews - Inside Out
+004. R3hab, Sofia Carson - Rumors (With Sofia Carson)(   Читать дальше...   )Жанр: DanceПродолжительность: 10:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF735D0553C8F187060406D681E9E0958ACCE56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412751   (413469) от 01.10.2020
+
+VA - Radio DFM Top D-Chart Сентябрь (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Smash feat. Poët - БЕГИ (Denis Bravo Remix) (3:05)
+02. Мари Краймбрери - Океан (Denis Bravo Remix) (3:50)
+03. RAYE - Natalie Don't (Denis Bravo Remix) (3:25)
+04. Макс Барских & Джаро - Lonely (DJ Noiz Remix) (2:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC4B2ECB71E00AC95C8A69CCB17B7C7C7B50080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251876   (413368) от 03.10.2018
+
+VA - New Music Releases Week 35 of 2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413368.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Troye Sivan - This This
+002. West Coast Massive, Brayton Bowman - High & Low
+003. The Faim - A Million Stars
+004. Tash Sultana - Cigarettes(   Читать дальше...   )Жанр: DanceПродолжительность: 08:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B18DE39235D6785038D2B4A48B13077AA9E365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252063   (413355) от 03.10.2018
+
+VA - Dance Compilation 3 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A & E Project - The Birth Of Galaxy
+02. Bassregion - At The Rate Limit
+03. BloodDropz! - Zone Of Alienation
+04. D.V.Project - Dance World(   Читать дальше...   )Жанр: DanceПродолжительность: 05:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B8AAAA97B98B4A789655C28E8B30023A48D8B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251726   (413352) от 03.10.2018
+
+VA - New Music Releases Week 39 of 2018 (2018) [MP3|192 - 320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413352.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Juicy J, Travis Scott - Neighbor
+002. Culture Shock - Get Physical
+003. Tank, the Bangas - Spaceships
+004. Kinnerman - Promised Land(   Читать дальше...   )Жанр: DanceПродолжительность: 15:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC2B249A0BB97023DEDFE433A61B954BB2DF252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251839   (413183) от 03.10.2018
 
 VA - Popular Lyrical Ballads (2018) [MP3|320 Kbps] <Pop, Lyric, Ballad>
@@ -571,180 +745,6 @@ Miley Cyrus - Compilation (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BC421177A71E4FA90F771D080B0E7EC5517EF94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572920   (412369) от 31.08.2022
-
-VA - Music For You vol. 24 (2022) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rush - La Villa Strangiato (09:35)
- 02. Genesis - The Cinema Show (10:41)
- 03. Camel - Echoes (07:20)
- 04. John Paul Jones - Leafy Meadows (05:10)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E92E1F89FB4B7A074E2C8D20A2CAF6048AE6D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066459   (412247) от 26.10.2016
-
-VA - The Best - In Music We Trust Vol.9 (2016) [MP3|320 Kbps] <House, Electro House, Future House, Dirty House, Bassline, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uberjak'd - Gash King (The Partysquad Remix)  4:19
-02. Mark Knight & D.Ramirez V Underworld - Downpipe (Armin Van Buuren Remix)  5:27
-03. Duso - Zeus (Original Mix)  5:09
-04. SomeWire - Bounce Now Partycrowd (Original Mix)  5:16(   Читать дальше...   )Жанр: House, Electro House, Future House, Dirty House, Bassline, Club, DanceПродолжительность: 06:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72D816F7420029CF530DA5512510A661072307E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066503   (412244) от 26.10.2016
-
-VA - Record Super Chart #459 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KSHMR & Tigerlily - Invisible Children (Extended Mix)  3:45
-02. Apashe & Splitbreed - Day Dream  2:58
-03. DBSTF & Maurice West - Temple (Extended Mix)  4:01
-04. Eric Saade feat Gustaf N - Wide Awake (Filatov & Karas Extended Mix)  4:11(   Читать дальше...   )Жанр: House, Electro House, Progressive House, Club, DanceПродолжительность: 02:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAB499F8FF9AEE5B2005F1BA346652A3A916BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066395   (412239) от 26.10.2016
-
-VA - Music For Everyone - Drum and Bass & Liquid Vol.5 (2016) [MP3|320 Kbps] <Drum and Bass, Liquid Funk>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412239.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aero Chord – Time Leap (Original Mix)
-2. Feint – Sky Dance (Gavin G Remix)
-3. Ember Island – Need You (Jay Cosmic Remix)
-4. Urbandawn – Spectrum (Original Mix)(   Читать дальше...   )Жанр: Drum and Bass, Liquid FunkПродолжительность: 01:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B620896BC9B3408905DEB4F9B9A4C5FDE3235A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413199   (411884) от 02.10.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 02.10.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Eilish - ilomilo (MBNN Remix) (4:54)
-02. NRD1 - All Good Things (Come To An End) (Extended) (4:24)
-03. BTS - Dynamite (3:19)
-04. RAYE - Natalie Don't (3:14)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD3047B5D2CE418F95BFAE185D42BB6AD4ED4DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573086   (411764) от 31.08.2022
-
-VA - Свежий Русский Хит от ALEXnROCK часть 11 (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411764.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2022 год. Это 11я часть. Приятного прослушивания. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Filatov & Karas - Движ
-02. 4Etvergov, Dayren - Инсомния
-03. Reflex - Там Где Живет Любовь
-04. Эмин и JJONY - Лунная ночь(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC58A85236A7CE30BD6663ACD7729D349ADF026
 ```
 
 https://mybot314.ru/tekegram_catalog/

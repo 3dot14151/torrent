@@ -1,3 +1,32 @@
+###  Публикация: 80962   (267387) от 05.12.2018
+
+Kartsy Hatakka & Kimmo Kajasto - Max Payne 2: The Fall Of Max Payne (Original Soundtrack) (2003) [MP3|186 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Payne Theme (3:59)
+02. Max's Duty Corrupted / Winterson (3:15)
+03. Max's Passion / Mona (3:38)
+04. Max's Choice / Duty vs. Passion (3:42)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F6B104ABBD96124AA08870AA2E5FD9D63C703B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 299337   (267383) от 05.12.2018
 
 Gregorian - Best Of 1990-2010 (2011) [FLAC (Image+.CUE), lossless]<New Age>
@@ -714,35 +743,6 @@ The Chill Out Orchestra - Another Brick in the Wall (The Pink Floyd Cover Versio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6F7029A209F6BE60C65139C7244889E60BE35C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339885   (264008) от 23.11.2019
-
-VA - Pacific Moon: Summer Collection (2001) [FLAC|Lossless|tracks + .cue] <New Age, Folk, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jalan Jalan - Sekar (Spirit of Plants) (6:20)
-02. Hae - Sunset Island (2:17)
-03. Hae - Chikinu Kaishiya (4:10)
-04. Jalan Jalan - Hug With the Wind (5:25)(   Читать дальше...   )Жанр: New Age, Folk, Modern ClassicalПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387C9707801599DE2D2BC8700C7EE77D7FB0ECDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

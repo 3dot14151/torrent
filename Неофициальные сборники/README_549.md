@@ -1,3 +1,192 @@
+###  Публикация: 494392   (250992) от 10.05.2012
+
+VA - Кавказская Дискотека Опа-Опа! (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Aslan и Эльдар Далгатов - Опа Опа
+002 Группа СК STYLE - Чики-чики
+003 Лаурита - Пропадаю (Лезгинка)
+004 Авраам Руссо и Рухшона - Благодарю
+005 Мурат Тхагалегов - Калым
+006 Анжелика Начесова и Магомед Дзыбов - Я не стану ждать тебя на берегу
+007 Рамазан Кайтмесов - От меня не уйти
+008 Азнаур - Красавица
+009 Тимур Темиров - От судьбы
+010 Ринат Каримов - Девушки Кавказа2012Жанр: Pop,DanceПродолжительность: 06:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00677E64B7B16125FDDD7F5DD3A304C3FE4D54F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494651   (250960) от 10.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 34 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA4984A614C1CBCDEC4CD66767A84BB39385371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835338   (250959) от 06.11.2025
+
+Morgan Luna - Compilation (2025) [MP3|320 Kbps] <Blues, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Devil’s Blues in Memphis
+ 02 - Riverbones
+ 03 - I’m Still Here
+ 04 - Row By Row(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD90AEFFE458CB143D37EC8AA19BF68586384068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835331   (250955) от 06.11.2025
+
+VA - No name compilation (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax, Other, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Soundsofenigma - Sombras Del Alma
+02 - York Patrick - Shine on Ice
+03 - Сергей  Грищук - Холодное  Очарование
+04 - Yenra - Salt & Signal(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, Sax, Other, AIПродолжительность: 01:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151742A1B74FD411D77A463F4BE693EB47731C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494522   (250871) от 10.05.2012
+
+VA - Новинки Танцевального Радио DFM (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250871.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Jennifer Lopez feat. Pitbull - Dance Again
+002 Потап и Настя - Прилелето
+003 Eva - Body On Mine (Laze & Royal Electro Dubstep Remix)
+004 Макс Барских - Пылай
+005 David Guetta Feat. Usher - Without You (Nicky Romero Remix)
+006 Dan Balan - Люби
+007 Inna - Ok
+008 Миshа feat. Чук и Гек - Во Всех Новостях Весна
+009 Calvin Harris feat. Ne-Yo - Let's Go (Radio Edit)
+010 Зэбосы - Загорелая Попка2012Жанр: Pop,DanceПродолжительность: 06:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEBA7043801498D54D67A6A9BB006863D57FE37F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494468   (250805) от 10.05.2012
+
+VA - Только Хиты на Хит FM 50\50 часть 2 (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Лана Ярич - А Ты Потанцуй
+02 Avicii vs. Faithless - Jailbait Insomnia (Fran Ricarte At Night Mash Up)
+03 Ддт - Родившимся Этой Ночью
+04 Silent Circle - Tell Me Why
+05 Иван Дорн - Стыцамен (Viento & Mutti Remix)
+06 Cher - Strong Enough (Dj Ozeroff & Dj Sky feat. Lebedev Radio Remix)
+07 Dj Fudge - My Budem Vmeste
+08 Shyma - Ветрами (Flashtronica Remix)
+09 Виктория Дайнеко - Always
+10 Roxette - It's Possible (version One)2012Жанр: Pop,DanceПродолжительность: 06:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404881FF25DA769E1F0831DD5D963D957644A599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 494276   (250653) от 09.05.2012
 
 Ночные снайперы - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
@@ -577,180 +766,6 @@ VA - Billboard Hot 100 Singles Chart. 11 March 2023 (2023) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:804E8853D4CC0078B6FCAE2A4575FDC2EC143DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563838   (249788) от 18.07.2022
-
-VA - Про белые розы (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юрий Шатунов - Про белые розы (3:38)
-02. Семён Розов - А над городом ночь (3:40)
-03. Сергей Васюта и Сладкий Сон - На белом покрывале января (5:30)
-04. Вячеслав Сидоренко - Лепестками алых роз (4:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E94B2EF47DC025F839A4F7416FA9F39FE52E15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619357   (249709) от 15.03.2023
-
-VA - Music News vol.251 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249709.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Layla feat. Sianna - Love Me Baby (02:52)
- 002. Alex Andreev - Делай, Брат (02:25)
- 003. Allya - Оставь В Покое (02:59)
- 004. Alseyda - Когда Ты (03:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE43A6D5CFD82715A57E85F2CDAEE97C18E9643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618911   (249672) от 16.03.2023
-
-VA - 60 minutes. Old School Dance Music vol.16 (mixed by Dj V) (2023) [MP3|320 Kbps] <Club House, Dancecore, Euro Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-The Rhythm Masters & Klubbheads - Enter The Scene (Klubbheads Vs Rollercoaster Mix)
-02-Silvio Ecomo - Uprising (Speedgarage Mix)
-03-Moloko - Indigo (Club Caviar Mix)
-04-Fascinator - Here We Go (Strike Force Remix)(   Читать дальше...   )Жанр: Club House, Dancecore, Euro TranceПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B778A8C1870DB8D1E5B8AC6DB1CC3359AF8131D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564737   (249655) от 20.07.2022
-
-VA - Dance Covers 2022 - The Best Party Hits Only! (2022) [MP3|320 Kbps] <Club, Dance, House, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ka!Ro - Hymn for the Weekend
-02. Alex M. - Whoomp (There It Is) (Alex M. Original Edit)
-03. Cuebrick - Cry for You
-04. Marc Korn - I Want It That Way (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, House, ElectronicПродолжительность: 02:04:11 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668DDA1F2553B03E795FD69932C4A09C25F32101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564548   (249622) от 20.07.2022
-
-Bryan Adams - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелодичный и очень объёмный хард-рок. Обладатели хороших аудиосистем будут в восторге. Баллады Брайана Адамса - это вообще отдельное направление в искусстве. Одна только Do I Have To Say The Words чего стоит. К сожалению, начиная с 1996 года в творчество музыканта прокралась альтернатива и отравила фирменное звучание, объём умер, а гитарный драйв сильно похудел. (   Читать дальше...   )01. Is Your Mama Gonna Miss Ya
-02. Hey Honey, I'm Packing You In
-03. Can't Stop This Thing We Started
-04. Thought I'd Died And Gone To Heaven(   Читать дальше...   )Жанр: RockПродолжительность: 04:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF6EA0B48CE4674477554C6E2E734AD468B8595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619145   (249580) от 17.03.2023
-
-VA - В машине с музыкой Vol.328 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T1one  - Неизбежно (03:20)
-02. Amay  - Часики (02:47)
-03. Vescan Feat. & Ева Тимуш - Colegi De Apartament (03:58)
-04. Onerockstar  - Там Где-То, Лето (03:55)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD559D8F215CA5A48AF2943D256645BE96FC334
 ```
 
 https://mybot314.ru/tekegram_catalog/

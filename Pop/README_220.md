@@ -1,3 +1,61 @@
+###  Публикация: 1318516   (374501) от 25.09.2019
+
+Bat For Lashes - 14 releases (2007-2019) [FLAC|Lossless|tracks + .cue|tracks] <Dream Pop, Indie Rock, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374501.jpg" />
+</div>
+
+
+###  Подробнее
+
+2007 - Fur and Gold
+2009 - Two Suns (Special Edition)
+2012 - The Haunted Man
+2016 - The BrideЖанр: Dream Pop, Indie Rock, Indie PopПродолжительность: 05:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F33085E69001598FABD6F314DD330CF65E4A312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175862   (374427) от 20.10.2017
+
+Hi-Gloss - You'll Never Know (1981) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'll Never Know (5:27)
+02. It's Up To You (5:48)
+03. Cash (6:55)
+04. I'm Totally Yours (5:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD945A923E6E7481E141707C569676877DC193E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175958   (374345) от 20.10.2017
 
 Brigitte Bardot - B.B. (Remastered) (2017) [MP3|320 Kbps] <Pop, Chanson>
@@ -680,70 +738,6 @@ Jack Savoretti - Sleep No More (2016) [FLAC|Lossless|image + .cue] <Pop, Folk, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A93DACE3C0BDDCD88E4258C978F739235FCF5903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070091   (370997) от 05.11.2016
-
-Serebro - Сила трёх (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мало тебя
-02. Kiss
-03. Mimimi
-04. Перепутала(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C89DE9F854AAD3695DBA7BFFBAD33CD9ABEDFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574979   (370897) от 14.11.2012
-
-Eros Ramazzotti - Noi (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noi
- 02. Un Angelo Disteso Al Sole
- 03. Questa Nostra Stagione
- 04. Io Sono Te (feat. Giancarlo Giannini)
- 05. Fino All'Estasi (feat. Nicole Scherzinger)
- 06. Abbracciami
- 07. Balla Solo La Tua Musica
- 08. Infinitamente
- 09. Polaroid
- 10. Sotto Lo Stesso Cielo(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5EE60573323584F509A31D72846F3CA1E0B4AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

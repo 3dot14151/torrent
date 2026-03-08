@@ -1,3 +1,61 @@
+###  Публикация: 1170400   (398745) от 02.10.2017
+
+VA - ADE Trance Festival (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  LEVV - Collateral Damage (Noise Zoo Remix)  2:40
+02.  Daniel Kandi & Forion - Holy Cow (Original Mix)  4:07
+03.  Marcus Santoro - Nova Scotia (Original Mix)  3:22
+04.  Temple One - Reunited (Original Mix)  4:33(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D86A8C413F18062CE32F20B183708A26ADC759A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170813   (398686) от 02.10.2017
+
+VA - Pump & Run, Vol. 1 (Workout Selection) (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South Blast! & Gee - Shake! (feat Xamplify - Radio mix)
+02. Stereolizza - Wonderland (Menshee Club edit)
+03. Kate Maerz - Turn It Around (Dave Dean Radio mix)
+04. Maarten May - We're Alive (Short edit)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E21B8DAD81DE6911B0EBB79631DA968FB8C4E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170838   (398683) от 02.10.2017
 
 DJ VoJo - Aloha (2017) [FLAC|Lossless|WEB-DL|tracks] <Tropical House>
@@ -713,64 +771,6 @@ VA - Tiesto Club Life Vol.5 China (2017) [MP3|320 Kbps] <House, Big Room, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DE1C05A21186A1A74AF3128FC07A045D170A916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172053   (394670) от 06.10.2017
-
-VA - Synth Love Affair Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwave, Retro Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takahashi Jones - A Night To Remember (6:23)
-02. Sebastian Gampl - Hold Her (3:42)
-03. Absinth3 - I'll Be There (feat. Lucy Fox) (3:40)
-04. Stilz - Meant To Be (3:36)(   Читать дальше...   )Жанр: Dreamwave, Synthwave, Retro WaveПродолжительность: 01:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D020A1FB0E050235DD7BDCB819B69E3A2A82E2CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172335   (393974) от 07.10.2017
-
-AstroPilot - Thirty Three (2017) [MP3|320 Kbps] <Psychedelic, Progressive Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Down The Memory Lane (Featuring Seamoon)
- 02.  The Heartland
- 03.  There Is No Tomorrow!
- 04.  My Home Is Where You Are(   Читать дальше...   )Жанр: Psychedelic, Progressive TranceПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D7852E61EEB5A45C9BE0B27C9EE0AEE5B99416
 ```
 
 https://mybot314.ru/tekegram_catalog/

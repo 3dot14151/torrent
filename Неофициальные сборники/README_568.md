@@ -1,3 +1,177 @@
+###  Публикация: 1084634   (219943) от 18.12.2016
+
+VA - Deep House Collection Vol.101 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219943.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.1WayTKT feat. Netousha Monroe - Insanity (Original Mix) 3:26
+002.Adventure Club - Forever feat Ben Stevenson (Original Mix) 3:48
+003.Affkt, Upercent - Voler Volar (Original Mix) 8:27
+004.Agja - Das gefallene Hornchen (Original Mix) 6:42(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 16:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0819E5A46A5862B65FE60932DE6B365E9945028C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585655   (219877) от 23.10.2022
+
+VA - Beatport Electro House: Sound Pack #563 (2022) [MP3|320 Kbps] <House, Electro, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219877.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elazion & George Sunday - One Step Closer
+002. Tensnake - Latching Onto You
+003. M.J.E & Donaccia - My Love
+004. Conjure One & Jeza - Wheels Come Off(   Читать дальше...   )Жанр: House, Electro, DanceПродолжительность: 12:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81341DFC1F4B3D16FB2D999F3B26142C81F23DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585661   (219854) от 23.10.2022
+
+VA - Glamorous Sport Music (2022) [MP3|320 Kbps] <Uplifting, Vocal-Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219854.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Oakenfold Ft. Tiff Lacey - Hypnotized
+002. Forest-Love - Hunting A Submarine
+003. Above & Beyond - Alone Tonight
+004. Reorder & Lee Osborne - Where You Hide (Radio Edit)(   Читать дальше...   )Жанр: Uplifting, Vocal-TranceПродолжительность: 08:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BABE987E4A92E549AD8F776BAC2997A74F2645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966297   (219820) от 17.12.2015
+
+VA - Google Play хит-парад (November) (2015) [MP3|320 кб/с] <Pop, Русская поп-музыка, Рэп/Хип-хоп, Альтернативная музыка/инди, Метал, Рок, Брейкбит, Электронная музыка>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219820.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Скриптонит feat. Юрик Четверг, Truwer - Сука тащит нас на дно
+002. БИ-2 feat. Чичерина - Мой рок-н-ролл
+003. Баста - ЧК (Чистый кайф)
+004. Скриптонит - Вечеринка(   Читать дальше...   )Жанр: Pop, Русская поп-музыка, Рэп/Хип-хоп, Альтернативная музыка/инди, Метал, Рок, Брейкбит, Электронная музыкаПродолжительность: 10:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6F8558637C6B56956E587F7FE3E0480A274F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514111   (219719) от 02.12.2021
+
+VA - D&B: Best New Electro Bass Hype Mix (2021) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219719.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Guy Wampa - Come Together
+002. Unglued - South By West
+003. Teej & Jappa - 16 Speakers
+004. Pola & Bryson - In Too Deep(   Читать дальше...   )Жанр: Drum And Bass, Electro BassПродолжительность: 10:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD5CCCBC8215CBEF3E7F10212F7BB2A15C3B7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514116   (219700) от 02.12.2021
+
+VA - Hypnotic Techno (2021) [MP3|320 Kbps] <Techno, Electro Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219700.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Agent Orange DJ - Backwoods Groove
+002. Blocka - Come With Me
+003. Other Form - A Widening Rift
+004. Decoder - Hemolu(   Читать дальше...   )Жанр: Techno, Electro MinimalПродолжительность: 09:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90F8DA44847EB1CD3FB380C1411EA98F6E2586A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514045   (219659) от 02.12.2021
 
 VA - E-Dance: Clubbing Electro House (Vol.07) (2021) [MP3|320 Kbps] <Club, Dance, House>
@@ -571,180 +745,6 @@ VA - 100 Exotic Sound: Sweet Fever (2015) [MP3|320 кб/с] <Downtempo, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59C37A11057AA4797C7B7E09A5FB79A4450786D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343146   (218964) от 05.12.2019
-
-VA - Зимняя свежая 30-тка Vol. 1 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218964.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ганвест - Проваливай (Megasound Remix) (4:07)
-2.Олег Попков - Твое Любимое Платье (3:55)
-3.Варвара - Вдвоем (3:50)
-4.HOMIE - Засыпай (3:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B9628498C0A66A1796C3DE9A0A0EA7941DE52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966595   (218948) от 18.12.2015
-
-VA - Pastel Lounge Christmas Time (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sansinena - Christmas in Blackwater
-02. Atthis Alcedo - Feel What You Feel
-03. Cafe Royale - Thunderplump
-04. Max Denoise - Blue Sky(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B215482B5B562E3E24011C1A7EAC88C68371B75B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084660   (218925) от 19.12.2016
-
-VA - German Top 50 Official Dance Charts 16.12. (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218925.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.David Guetta, Chris Willis & Cedric Gervais - Would I Lie To You 3:18
-002.Oliver Heldens Ft. Ida Corr - Good Life 3:09
-003.Martin Solveig Ft. Ina Wroldsen - Places 3:23
-004.EDX - High On You 3:00(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C369341CD00FF0E3C71862AFCDBA13780A8FD578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084623   (218897) от 19.12.2016
-
-VA - Снегопад новинок Выпуск №2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Olly Murs - Deeper 2:37
-002.Катерина Красильникова - Пусть Станет Раем 3:34
-003.Solange - Where Do We Go 4:25
-004.Роза Мажонц - Выше Облаков 3:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7272814A6021E30C5AE0B19F15A76AC6CFB4DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514136   (218888) от 02.12.2021
-
-VA - Hit Music, зима 2021 (2021) от Мяу [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218888.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. HUTS - Gold On My Skin
-002. Ed Sheeran - Shivers
-003. Артем Пивоваров - Мираж
-004. Boostereo - Pop Corn(   Читать дальше...   )Жанр: PopПродолжительность: 09:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9481B53D4686F458A1122152A3407823F8E27FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425640   (218866) от 22.11.2020
-
-VA - The Big Bass: Drum Sound Musical Collection Vol.02 (2020) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218866.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cantstopkillingtime - Falling Down
-002. Audioscribe - Letting Go
-003.  Charlotte Haining - Almost There
-004. Distort - On My Way(   Читать дальше...   )Жанр: Drum & Bass, Bassline, DubstepПродолжительность: 08:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EB6BAA3EA6A032A188E48982A2CDC93D26D2DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

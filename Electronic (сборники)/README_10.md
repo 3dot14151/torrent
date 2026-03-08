@@ -1,3 +1,32 @@
+###  Публикация: 1473983   (1013401) от 31.05.2021
+
+VA - World Sound Funky: Jackin House Mixtape (2021) [MP3|320 Kbps] <Funky House, Jackin' House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013401.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Toshi,Timmy Regisford - Kiqi
+002. Federico Rosa - Love Is Strong
+003. Pavzo - The Jazz Bar
+004. Domineeky - Play(   Читать дальше...   )Жанр: Funky House, Jackin' House, Nu DiscoПродолжительность: 09:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E2CEEFB320C56BAAF2D7F0F1FD98439089CE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473988   (1013393) от 31.05.2021
 
 VA - The Favorite Fitness Music (2021) [MP3|320 Kbps] <EDM, Club, Dance, House>
@@ -716,35 +745,6 @@ VA - Chillout Deep Sounds (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B10BC4EF0A35A05DB7B108423A96414F4B35F92B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479362   (1009538) от 24.06.2021
-
-VA - HGM: Deep House Project June (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009538.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mundos Sutis - Something Elegant
-002. Deeperwalk - Back Home
-003. Truvor - Broken
-004. Cup & String - No Pressure(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B79200295347718A241B0A5EBBB3DBE74678F40
 ```
 
 https://mybot314.ru/tekegram_catalog/

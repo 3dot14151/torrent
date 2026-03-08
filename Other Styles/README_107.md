@@ -1,3 +1,34 @@
+###  Публикация: 92549   (468156) от 06.09.2020
+
+VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы устали, и ничего не радует?
+Может быть, это стресс отнимает у Вас силы и лишает возможности радоваться жизни?
+Остановитесь на мгновение. Расположитесь поудобнее, включив этот диск. Вы обретете состояние равновесия и душевного покоя, почувствуете, как легкость и тепло разливаются по Вашему телу. Мир вокруг наполнится красками и ароматами экзотических цветов. Придут (   Читать дальше...   )01. Kowa - Rising Sun (4:39)
+02. Magec - Rainy Day (8:14)
+03. Arno - From a Distance (5:20)
+04. Mind Over Matter - The Lotus is opening (3:52)(   Читать дальше...   )Жанр: DreamMusicПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E61CC34F48863399C4F75C7679C98F7B0D7E5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 377804   (468155) от 06.09.2020
 
 Richard Clayderman - Plays The Music Of ABBA (2010) Compilation [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
@@ -711,35 +742,6 @@ Oliver Scheffner - Ambient Dream Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6D7D09D0F2796CC162C83B9B42583CE0AAF49DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161968   (463649) от 30.08.2017
-
-Jules Calmer - Deserted Paradise (2017) [MP3|320 Kbps] <Ambient, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Dream (Original Mix)
-02. For The First Time (Original Mix)
-03. In The Stories (Original Mix)
-04. King Emar (Original Mix)(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D8761851E7FA604B359AF787820C8E0C5BDF1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

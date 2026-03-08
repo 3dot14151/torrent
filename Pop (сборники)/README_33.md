@@ -1,3 +1,32 @@
+###  Публикация: 1212997   (774451) от 14.03.2018
+
+VA - De Top 100 Aller Tijden 1984 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774451.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Stevie Wonder - I Just Called To Say I Love You (6:17)
+002. Pat Benatar - Love Is A Battlefield (4:05)
+003. George Michael - Careless Whisper (6:31)
+004. Danny De Munk - Ik Voel Me Zo Verdomd Alleen (3:25)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54CCE4C56F49AA36385003CACC8B6904ACA1B7F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015646   (774044) от 11.05.2016
 
 VA - Italo disco 80s 100 Hits (2016) [MP3|224-320 кб/с] <Pop>
@@ -716,35 +745,6 @@ VA - Unknown 80's (part VI) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8789ABAE93FB120378338900DEAADB8F56F8B1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279496   (766118) от 29.01.2019
-
-VA - German Top 100 Single Charts 04.02.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766118.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mero - Hobby Hobby
-002. Ava Max - Sweet but Psycho
-003. Shindy - DODI
-004. Ariana Grande - 7 rings(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A64A8887AFE9FD0175FD13FA1DF13A6F4EAE3AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

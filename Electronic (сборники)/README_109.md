@@ -1,3 +1,32 @@
+###  Публикация: 1298113   (601899) от 27.04.2019
+
+VA - Drum and Bass Pro V.02 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Drum and bass, Neurofunk>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sequend - Uppercut (Original Mix) [4:56]
+02. Delta Heavy & Jem Cooke - Take Me Home (Original Mix) [3:52]
+03. Synergy - Vector (Original Mix) [4:14]
+04. Confusious - Desire (Original MIx) [5:37](   Читать дальше...   )Жанр: Drum and bass, NeurofunkПродолжительность: 02:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9649F2E3940E3D03E7EBB727818A9064D01D9DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298307   (601895) от 27.04.2019
 
 VA - Drum and Bass Pro V.03 (2019) Compiled by GvertO [MP3|320 Kbps] <Drum and bass, Neurofunk>
@@ -716,35 +745,6 @@ VA - Summer Session 2015 (mixed by Dj V) (2015) [MP3|320 кб/с]<Disco House, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F23E2A175EBB3F8289A930F08A40109B88D02634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039447   (596081) от 01.08.2016
-
-VA - Finding Around Happiness (Energy Tech Trance) 007 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren Ft Eric Vloeimans -  Embrace (Andrew Rayel Extended Remix) 5:13
-02. Dreamseekers -  Recall (Original Mix) 5:47
-03. Andy Moor Vs Orkidea -  Year Zero (Veniice Remix) 5:08
-04. Feel -  Bali (Extended Mix) 5:08(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D934163EC32266B7014252522EF5AFC6F19BA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

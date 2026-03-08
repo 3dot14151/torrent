@@ -1,5 +1,121 @@
 https://t.me/izofen
-###  Публикация: 1857421   (1059678) от 
+###  Публикация: 1857909   (1060048) от 07.03.2026
+
+VA - No Name Compilation Part 70 Remixes (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Electronic, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Celine Dion - All By Myself
+02 - Gershon Kingsley - Popcorn (Ænnovation Remix)
+03 - Modern Talking - Cherokee Highway  (Bollekman Remix)
+05 - C.C.Catch - Cause You Are Young (Andex Disco Remix)(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Electronic, RemixПродолжительность: 00:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC799315FDF3640B93295A0F838E091BAB6579C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857568   (1059995) от 
+
+Ai - No name compilation part 68 S. Yesenin covers (2026) [MP3|320 Kbps] <Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мне Осталась Одна Забава  (Cover Dj Malinova)
+02 - Не Жалею, Не Зову, Не Плачу  (Cover Dj Malinova)
+03 - Отговорила Роща Золотая  (Cover Dj Malinova)
+04 - Пускай Ты Выпита Другим...  (Cover Dj Malinova)(   Читать дальше...   )Жанр: OtherПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6655188BE2CAA6A325B0ECC61524615A868985D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857664   (1059896) от 07.03.2026
+
+VA - No name compilation part 69 Other (2026) [MP3|320 Kbps] <Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Davpulse - Heart Again
+02 - Dynave - I Regret Loving You
+03 - Nezon - Neon Wildflower
+04 - Dynave - You Didn’t Know Why I Loved(   Читать дальше...   )Жанр: OtherПродолжительность: 01:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE79097BACB11C1A94F385F4796E6C98B945AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857804   (1059830) от 07.03.2026
+
+VA - Music - Pop vol.Two (2026) [MP3|320 Kbps] <Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DISCOMAN - Яка ж ти красива (03:36)
+ 02. MATRANG - Заманчивая (03:36)
+ 03. REFLEX - Всё, что хотела (03:09)
+ 04. T-Killah - Ты нежная (03:45)(   Читать дальше...   )Жанр: Pop, OtherПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A6AEFECA7D3B46AF3C6FC0405F67F28D10CDF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857421   (1059678) от 06.03.2026
 
 VA - No name compilation part 67 Assorted (2026) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
 
@@ -630,122 +746,6 @@ VA - No name compilation part 51 Assorted (2026) [MP3|320 Kbps] <Electronic, Eur
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FD8D33E74411D768DB51B53E12AF983CF0980B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853704   (1057037) от 14.02.2026
-
-VA - No name compilation part 49 Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smtve - Beautiful Things
-02 - Liyna - Cold Heart
-03 - Smtve - Someone I Love
-04 - Nezon - Neon Heartbeat(   Читать дальше...   )Жанр: Electronic, Eurodisco, Eurodance, OtherПродолжительность: 01:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8BCD62F6866A48BB41138A0F7790E92642AE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854000   (1056960) от 15.02.2026
-
-VA - No name compilation part 50 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Vocal, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dndm - I Love Strong
-02 - Rodle - Love in the Dark
-03 - Umideep - Don’t Slow
-04 - Dova Music - In Your Shadow(   Читать дальше...   )Жанр: Electronic, Vocal, EurodanceПродолжительность: 02:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DEB99D9663006518DCE1218581548ECD388544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853658   (1056629) от 14.02.2026
-
-VA - ЕвроХит Топ 40 Europa Plus 13.02.2026 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - The Fate Of Ophelia (2:55)
-02. David Guetta & Teddy Swims & Tones & I - Gone Gone Gone (3:18)
-03. Haven. - I Run (2:09)
-04. Katseye - Gabriela (3:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB7058C76F3FD86FBB0AE66ED46BEFBBA7B2A942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852591   (1056159) от 08.02.2026
-
-Ai - No name compilation part 48 Soulful Ballad (2026) [MP3|320 Kbps] <Soulful Ballad>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Want You Tonight
-02 - Wise Love
-03 - I Heard You Die in My Dream
-04 - Baby, You're Slipping Away(   Читать дальше...   )Жанр: Soulful BalladПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C4F5248B39411184F98449FAD0BD5E4B642B01
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1364520   (936495) от 03.03.2020
+
+Coleman Hawkins - 1950 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stuffy [6:39]
+02. Yesterdays [3:57]
+03. Hawk's Tune [4:53]
+04. Sin [2:59](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C25846D0A43F50EFC028329ED33BE2FD7A930EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364494   (936206) от 03.03.2020
 
 Karen Souza - Language Of Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Bossa Nova>
@@ -716,35 +745,6 @@ George Cables Trio - Cables' Fables (1991) 1995, SteepleChase[APE|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DE2D1D1942357D48051029B3326CEFE13D14068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093856   (932372) от 16.01.2017
-
-Louis Armstrong - La Vie En Rose (1930-1950) 1995, Success[APE|Lossless|tracks + .cue] <New Orleans Jazz, Dixieland, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.La Vie En Rose [03:50]
- 02.Jeepers Creepers [04:42]
- 03.Memories Of You [03:09]
- 04.Ain't Misbehavin' [03:03](   Читать дальше...   )Жанр: New Orleans Jazz, Dixieland, Vocal JazzПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22010648A70C81106F5510C698921E8E24767326
 ```
 
 https://mybot314.ru/tekegram_catalog/

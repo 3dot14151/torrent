@@ -1,3 +1,32 @@
+###  Публикация: 1040750   (585568) от 06.08.2016
+
+Jimmy McGriff - The Starting Five (1986) 1990, Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Movin' On [07:16]
+ 02.Doggone [04:29]
+ 03.I'm Getting Sentimental Over You [07:27]
+ 04.BGO [05:49](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067B15FEC265BE12DF9B745D0E3075F3C575144C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040746   (585563) от 06.08.2016
 
 Louis Van Dijk Trio - Nightwings (1980) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Crossover Jazz>
@@ -721,35 +750,6 @@ Rhoda Scott - Lady All Stars (2022) Sunset Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A0EF68705032EDFFAAB2B16E610E32A106E12CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041512   (582612) от 09.08.2016
-
-Mike Pachelli - electricite (2007) [FLAC|Lossless|image + .cue] <Avant Garde Jazz, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Alligator Shoes - 5:56
-02. Down The Upstairs - 6:24
-03. Martini Lounge - 5:43
-04. Right Around The Corner - 4:23(   Читать дальше...   )Жанр: Avant Garde & Free JazzПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2F3801B76B44EAD45519A477AEA9836C46ADFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

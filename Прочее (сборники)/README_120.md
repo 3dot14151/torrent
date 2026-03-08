@@ -1,3 +1,140 @@
+###  Публикация: 1172790   (392053) от 09.10.2017
+
+VA - Music For Sports Games Vol.11 (2017) [MP3|320 Kbps] <Electro, Dance House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392053.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. E.M.C.K. - Tell Me You Love Me (Alex Denada Radio Edit)
+002. Flashmob - Melting
+003. Melbourne Freaks - Deep Deep Down (Workout Edit)
+004. DJ Soulstar - My Love Is Everlasting (Radio Edit)(   Читать дальше...   )Жанр: Electro, Dance HouseПродолжительность: 09:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:932320FA4982CC0294D74B8121B86A51B215A2AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172817   (391947) от 09.10.2017
+
+VA - Disco Italo Love: Extended Version (2017) [MP3|320 Kbps] <Disco, Synth Pop, Retro Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391947.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Italove - Strangers in the Night
+002. Digitalo - Russian Man (Extended Version)
+003. The Crosslines - In The Heaven Of The Night
+004. Digital Dreams - Power Sound (Extended Version)(   Читать дальше...   )Жанр: Disco, Synth Pop, Retro RemixПродолжительность: 14 :53 :51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D52E0E028EFE64A89C68073C2BFED6E1AC903D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570082   (390891) от 04.11.2012
+
+VA - Музыкальный Топ Интернета Осень (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олег Павлишин - Дорогою
+02. Carlprit - Fiesta (Adrenalin Life & Johnny Clash Remix)
+03. Rihanna - Where Have You Been (Hardwell Edit)
+04. Lookback feat. MaxiGroove - Джентльмены Удачи In the House (Club Mix)
+05. Livin R & Pink Noisy feat. Marilena Animado - Secret Sin!
+06. Calprit - Fiesta
+07. ЯрмаК и Маша Собко - Детская Обида
+08. Tom Mountain Feat. Nicco - Run It Back (Original Mix Edit)
+09. Reflex - Я Буду Небом Твоим (Remix by Dmitry Moore)
+10. Armin Van Buuren - We Are Here To Make Some Noise(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E64018704E823504295E03C50FB15C6060491A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569838   (390876) от 04.11.2012
+
+VA - Chill Out Light Vol. 1-2 (2012) [MP3|320 кб/с]<Instrumental, Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390876.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Max Vertigo Feat. Sevenever — Al (Vocal Mix)
+02. Mike Danis — Greenlight (Chill
+03. Nickodemus — Endangered Species (Raeo Rmx)
+04. Twin Shadow — Dreary
+05. Muller, Lerry Feat Anetta Grant — Dreaming (Kristian Remix)
+06. Pochill — Discipline
+07. Dna — Babe, I'm Gonna Leave You
+08. Duptribe — S.O.S.
+09. Gotye — Hearts A Mess (Supermayer Remix)(   Читать дальше...   )CD1
+01. Alexander Daf — I Left You There
+02. 351 Lake Shore Drive — Visualize Your Face
+03. Alladin — We Enter (Deep Forest Dub Vip Mix)
+04. Blazo — New Beginning
+05. Daybehavior — Come To Bed With Me
+06. Lund Quartet — Sequoia
+07. Genetic Drugs & Jasmon — Lost Frequencies
+08. Natacha Atlas — Makaan (Beats Antique Remix)
+09. Sonic Adventure Project — Currents(   Читать дальше...   )Жанр: Instrumental, Lounge, Chill OutПродолжительность: 03:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CCC9D919CD6C52FA054CF3133D487009C234DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173299   (390648) от 11.10.2017
 
 VA - Empire Records - House Clinic (2017) [MP3|320 Kbps] <Dance, Club, Electro House>
@@ -662,128 +799,6 @@ VA - не Громкие новинки недели 84 (2020) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6CEEA547B028D91D4DD4B2ED370AC567A563C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326546   (383247) от 21.09.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 20.09.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes & Camila Cabello - Senorita 3:11
-02. Halsey - Nightmare 3:52
-03. Billie Eilish - Bad Guy 3:14
-04. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE54EA1C9F2F6B6A21464ED687CA3482764141E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174913   (383007) от 16.10.2017
-
-VA - 80s Magic Turn Around (2017) [MP3|320 Kbps] <New wave, Italo Disco, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick Springfield – Jessie’s Girl 03:13
-02. Jean Michel Jarre – Arpegiator 06:22
-03. Mike Oldfield – Shadow On The Wall 03:06
-04. Jennifer Rush – Into My Dreams 03:59(   Читать дальше...   )Жанр: New wave, Italo Disco, OtherПродолжительность: 07:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2ECC02CDEF0A4C2E12F26E67EF0A6C4B44B1F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572931   (381479) от 10.11.2012
-
-VA - Жажда Скорости - Клубный Драйв (2012) [MP3|256 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Stardust & Benjamin Zane Feat. Pit Bailay - Famous (Pulsedriver's Oldschool Flavour Edit)
-02. Sander feat. Elissa & Foxx - Forever Para Ti 2K12 (Heartstyle Edit Mix)
-03. Clark Owen - Melody (BassDropz Remix)
-04. Plastik Bass Feat. Seaside Clubbers - Discotetris (Boom Boom) (Original Edit)
-05. D.O.N.S. & Maurizio Inzaghi Feat. Philippe Heithier - Searching For Love (9Five Radio Edit)
-06. Punkrockerz - Punk Rock Song (Chris Van Pain Edit)
-07. Seaside Clubbers - Twist (Megastylez Mix)
-08. Ryan Thistlebeck - Rising (X-Cess! & Jarno Remix)
-09. Hot Cherry - Wide Awake (Niccho Vs DRM Mix)
-10. Sol City feat. Johnny King - See Di Angel (Raindropz! Sunshine Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 06:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119039FFD987368917294E6E14D7F29B8B45DBBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414855   (381398) от 10.10.2020
-
-VA - The Official UK Top 40 Singles Chart 09.10.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24kGoldn - Mood (feat. iann dior)
-02. Cardi B - WAP (feat. Megan Thee Stallion)
-03. Internet Money & Gunna - Lemonade (feat. Don Toliver & NAV)
-04. Headie One - Ain't It Different (feat. AJ Tracey & Stormzy)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A54ECFD1BC4EA8CF57C532BBF9F083D27093B6E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

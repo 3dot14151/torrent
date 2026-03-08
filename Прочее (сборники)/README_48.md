@@ -1,3 +1,119 @@
+###  Публикация: 1276819   (787218) от 18.01.2019
+
+VA - Music for long trip (2019) [MP3|320 Kbps] <Pop, Dance, Electro, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787218.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam K - Need To Feel Loved
+002. Adventure Club feat. Leah Culver - Reaction
+003. Afterman - Santa Esmeralda (JL &  Afterman Mix)
+004. Alan Walker - Alone(   Читать дальше...   )Жанр: Pop, Dance, Electro, TechnoПродолжительность: 05:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F48980E36A89825686DBD95BAD013E97D35FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512536   (787110) от 25.11.2021
+
+VA - Music News vol.151 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Leona Lewis feat. Ne-Yo - Kiss Me It's Christmas (Champion Remix) (02:48)
+ 002. Antonia - Amor (03:24)
+ 003. ArMus - Подросток (02:38)
+ 004. Ashlee feat. Jonxlewis - Risk It All (Creative Ades Remix) (03:48)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57352DF29C726B10A43773018983D481FA74E2AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512638   (787102) от 25.11.2021
+
+VA - Rockin' Around the Christmas Tree (2021) 2CD [MP3|320 Kbps] <Pop, Rock, Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NOFX - X-mas Has Been X'ed
+02. The Ray Conniff Singers - Jingle Bells
+03. Frank Sinatra - Christmas Dreaming
+04. Patti Page - Christmas Bells(   Читать дальше...   )Жанр: Pop, Rock, FolkПродолжительность: 06:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63668FF56D809E854FCDE1EDB2EB693675ECD634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277126   (787017) от 19.01.2019
+
+VA - The Official UK Top 40 Singles Chart 18.01.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ava Max - Sweet But Psycho
+02. Mark Ronson, Miley Cyrus, Chris Elliott - Nothing Breaks Like a Heart
+03. Post Malone - Wow
+04. Sam Smith, Normani - Dancing With A Stranger(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2147A931E138FA72F230060C54EAE13DE269AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277007   (787004) от 19.01.2019
 
 VA - ЕвроХит Топ 40 Europa Plus 18.01.2019 [MP3|320 Kbps] <Pop, Dance>
@@ -622,122 +738,6 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0017 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:583BA5BFE615E372789E1EC34F717FD8E6155BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204527   (784660) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0011 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Generation - Fight For You ( 1989 )
-02. Andy Romano - Robot Matador ( Vocomental Mix 2008 )
-03. Michael W. Smith - Pursuit Of The Dream ( 1986 )
-04. Lucia - La Isla Bonita ( Tropical Dance Remix 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59CB82CE2D8B49848416E83AD3AAA1624599F44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204558   (784652) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0018 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinery - Don't You Know ( 1986 )
-02. Electric Theatre - Ballet Dancer ( Night Version 1983 )
-03. Sandy E Cromo - I Can ( 1984 )
-04. Cyberman - Asteroid ( 2017 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CD97EFB58153818C722206684ABA1C1053E171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204561   (784646) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0019 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Avenue - Don't Gamble With My Heart ( 2017 )
-02. Monte Video - Who's Calling ( 1983 )
-03. Timerider - Invader ( 1988 )
-04. Rex - Angelina Angel Eyes ( Special Club Mix 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229CDEE1736A60017515AE0979E31F407454D811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204562   (784623) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0020 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Flames Of Love ( Extended Version 1988 )
-02. Modern Talking - Jet Airliner ( Fasten-Seat-Belt-Mix 1987 )
-03. Alex - Rainbow Of My Soul ( 2018 ))
-04. Rynar Glow - Deep In Love ( Vocal 2015 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539E08E44908AD462456AF03067A68E6B969608F
 ```
 
 https://mybot314.ru/tekegram_catalog/

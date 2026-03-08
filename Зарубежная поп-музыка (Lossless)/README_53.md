@@ -1,3 +1,30 @@
+###  Публикация: 1405180   (485609) от 29.08.2020
+
+The Smashing Pumpkins -  Cyr (2020) Single [FLAC|Lossless|tracks] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyr (04:03)
+02. The Colour Of Love (04:23)Жанр: Rock, PopПродолжительность: 00:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB64DD1E08E02F62333941BB720F460781E093B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405154   (485596) от 29.08.2020
 
 Kelly Lee Owens - Inner Song (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Alternative>
@@ -728,41 +755,6 @@ Ani Lorak (Ани Лорак) - Smile (2005) [FLAC|Lossless|image + .cue]<Рор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78A57D1F2A6524500D942D370344DDE876052969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546423   (473853) от 15.09.2012
-
-VA - 101 Voices (2012) 5CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Farnham - You're The Voice [05:03]
-02. Roxette - It Must Have Been Love [04:18]
-03. Meat Loaf - I'd Do Anything for Love (But I Won't Do That) [05:42]
-04. Cyndi Lauper - Time After Time [03:59]
-05. Sinead O'Connor - Nothing Compares 2 U [05:10]
-06. Annie Lennox - Why [04:52]
-07. Tina Turner - What's Love Got To Do With It [03:47]
-08. Jennifer Rush - The Power of Love [04:26]
-09. Heart - Alone [03:40]
-10. Bonnie Tyler - Total Eclipse of the Heart [04:28](   Читать дальше...   )Жанр: PopПродолжительность: 06:26:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,3 @@
-###  Публикация: 1833260   (246225) от 01.11.2025
-
-Проекты - VideoHive - Hello Autumn Memories Slideshow - 59980188 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уютное и теплое слайд-шоу для этого осеннего сезона.
-
-Музыка взял и почистил с превьюшки.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB5C0C82A323BF583D3DAAE3ECF7E421BFC5366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833283   (246212) от 01.11.2025
 
 Проекты - VideoHive - Quick Slideshow - 19065384 [AEP]
@@ -682,6 +654,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85AFDF5B7D89EA1BB00E50D099C358C2AEE3BD66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964770   (229492) от 12.12.2015
+
+Проекты - Pond5 - Christmas & New Year Project - 57109328 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для Вашего Новогоднего слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3FDEF3BCFBE55EC9E2A6FFC46AC77401C360F1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

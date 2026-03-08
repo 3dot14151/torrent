@@ -1,3 +1,61 @@
+###  Публикация: 1362336   (162934) от 18.12.2020
+
+Faderhead - Asteria (2019) [FLAC|Lossless|tracks + .cue] <EBM, Dark Electro, Synthpop, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From His Broken Bones (5:12)
+ 02. The Other Side of Doom (5:40)
+ 03. Watching the Watchers (5:00)
+ 04. With a Borrowed Knife (3:51)(   Читать дальше...   )Жанр: EBM, Dark Electro, Synthpop, IndustrialПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F6EAAE302510A0DACBA3EA337F6B5B40628AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517438   (162917) от 15.12.2021
+
+VA - Black Hole Trance Music 12-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Mike Schmid - Summer Wonder (Extended Mix) [07:30]
+02. HALIENE - Glass Heart (Craig Connelly Extended Remix) [07:07]
+03. Markus Schulz - Return from the Sand Sea [03:33]
+04. Christian Burns - Eyes Wide Open (John Grand Extended Remix) [06:12](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34CEC9ACC1FDE5F5F40F4497256035FD846F3ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517363   (162908) от 15.12.2021
 
 VA - Coffee & Jazz: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -682,64 +740,6 @@ VER:WEST (Tiësto) - Tiësto's Club Life 767 (AFTR:HRS Yearmix) (2021-12-11) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DA615C231FF6EB0150D7388D5597994DAE9FA52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518007   (161098) от 18.12.2021
-
-Buddha Lounge - The Best Of Lounge: Buddha Lounge Vol. 2 (2007) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rag-And-Bone Man (4:54)
-02. Beware Of The Rhythm King (4:32)
-03. Twisted Minds (4:55)
-04. Lunar Mix (4:16)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54ABE3BBC28E784F189C90063984DB26132D496B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518193   (160986) от 18.12.2021
-
-Markus Schulz - Global DJ Broadcast Year in Review (2021) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Hanging in a Moment
-02. Matt Fax & Estiva - Found
-03. London Grammar - Lose Your Head (CamelPhat Remix)
-04. Spada - Fantasya 3000(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 04:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19D9FFF634100512159EFEF75ED6803021FC73D
 ```
 
 https://mybot314.ru/tekegram_catalog/

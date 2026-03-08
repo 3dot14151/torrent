@@ -1,3 +1,67 @@
+###  Публикация: 609031   (987104) от 01.02.2013
+
+VA - Cafe Bossa Brazil Vol. 2 - Bossa Nova Lounge Compilation (2012) [MP3|320 кб/с]<Lounge, Easy Listening, Bossa Nova>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tahta Menezes - Day Tripper
+02. Marcela Mangabeira - Feel Like Making Love
+03. Rodrigo & Priscilla - Just Can't Get Enough
+04. Saloa Farah - Lucky in the Sky With Diamonds
+05. Patty Ascher - I Say a Little Prayer
+06. Deco Fiori - A Day in the Life
+07. Barbara Mendes - Don't Stand So Close to Me
+08. Paulinho Loureiro - All You Need Is Love
+09. Tahta Menezes - When a Man Loves a Woman
+10. Cecilia Dale - Cheek to Cheek(   Читать дальше...   )Жанр: Lounge, Easy Listening, Bossa NovaПродолжительность: 00:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B27AE324AE5DADA3ED30E687507D03A4CCCE5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354655   (987044) от 23.01.2020
+
+VA - Valentine's Day House (2020) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Groove - Taken (Root Edit)
+02. Purity Of Soul - Start Me Up (Purity Mix)
+03. French Kiss Lovers - Deep Colour (French Edit)
+04. 6ex - Shaft (Nineteen Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BA0B9D6534DC2D287F0703962726E40A02139B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611271   (987000) от 01.02.2013
 
 Emancipator - Dusk to Dawn (2013) [MP3|320 кб/с]<Downtempo, Trip-Hop>
@@ -710,64 +774,6 @@ VA - Gym Floor Energy 2020 [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFC280C3728DEF837C91C9B70DC01A1CA1BC5437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355378   (983626) от 26.01.2020
-
-VA - Klangkunst Vol.2 (2014) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruede Hagelstein & The Noblettes - Berlin (4:03)
-02. Paul Kalkbrenner - Platscher (4:12)
-03. KlangTherapeuten vs. Melokind - Perlentaucher (Melokind Remix) (7:32)
-04. Nora En Pure - Come With Me (Radio Mix) (2:55)(   Читать дальше...   )Жанр: House, Downtempo, AmbientПродолжительность: 01:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61828A7356C24D934C3EC549B81E9D6B0A46EE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355501   (983519) от 26.01.2020
-
-Jeff & Jane Hudson - Flesh (1983) Reissue CD, 2000, Daft Records [MP3|320 Kbps] <Electronic, Industrial, Electro, Synth-pop>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special World (4:41)
-02. 3 x 3 (4:38)
-03. Fat Of The Land (3:36)
-04. Mystery Chant (4:03)(   Читать дальше...   )Жанр: Electronic, Industrial, Electro, Synth-popПродолжительность: 01:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15D6110ADC7C569E7E2EF86A45602C4F08BCF3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

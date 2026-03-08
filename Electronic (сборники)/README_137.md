@@ -1,3 +1,38 @@
+###  Публикация: 547507   (469874) от 17.09.2012
+
+Vlad Cheis - Special Pre-Party a mix for Little Sweet Jamaica 28.01.12 (St. Petersburg) (2012) [MP3|320 кб/с]<Ragga-jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MikkiM - Rub a Dub Rock
+ 02. Busy Signal - Brave & Bold (The-Ufa Remix) (Dubplate)
+ 03. Parly B - Expensive & Dear (HoT remix) (Dubplate)
+ 04. Cook's R - Sweet July (Dubplate)
+ 05. Rihanna ft. Vybz Kartel - What's My Name (J Bostron Rmx) (Dubplate)
+ 06. Deekline & Ed Solo Feat. Darrison - English Queens (Original Mix)
+ 07. FeyDer feat. RasKar - RasTea (Unjustified Rec.)
+ 08. Jessie J feat. B.o.B - Price Tag (Benny Page Remix) (Universal Music)
+ 09. Ed Solo & Deekline - Man Down
+ 10. Serial Killaz - Good Enough(   Читать дальше...   )Жанр: Ragga-jungleПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC06584D7D1F70EC0BE3A665BB9E80D668730CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548400   (469857) от 17.09.2012
 
 VA - Record Superchart #258 (15.09.2012) [MP3|320 кб/с]<Trance>
@@ -727,35 +762,6 @@ VA - До утра (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Disco Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5D320F9971A2B8D992520988219F72D30246D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940948   (464760) от 26.09.2015
-
-VA - Ultimate Sexy Beats Vol. 1 (2015) [MP3|320 кб/с]<Drum & Bass, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Vantigo - Empty Dreams (Original Mix) (4:05)
-02. Alex Weedster - Hold For You (Original Mix) (5:45)
-03. BQ - To The Storm (Original Mix) (5:25)
-04. Centaurus B - Assassins Never Miss (Original Mix) (4:03)(   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 01:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1C3123C9B1B01D0BC62A27CB7B21A722E6207F
 ```
 
 https://mybot314.ru/tekegram_catalog/

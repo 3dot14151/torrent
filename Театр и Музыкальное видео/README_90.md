@@ -1,3 +1,29 @@
+###  Публикация: 571878   (388003) от 07.11.2012
+
+Boy Rekless - Like Damn (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEEC113215ED1FE4E4D7B8B7ABF89E368987D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571525   (387865) от 07.11.2012
 
 Yakuro - Hymn Of Love (2012) [H.264/720p] WEBRip
@@ -695,35 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B02C42EC9E3A2F26C8C56A17CB27EA294845E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253378   (379305) от 11.10.2018
-
-Rammstein - Bizarre Festival (1996) VHSRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein - культовая немецкая рок-группа, образованная в январе 1994 года в Берлине. Музыкальный стиль группы относится к жанру индастриал-метала (конкретно - его немецкой сцене Neue Deutsche Härte).01. Rammstein
-02. Der Meister
-03. Weisses Fleisch
-04. Asche Zu Asche(   Читать дальше...   )Жанр: Rock, Metal, IndustrialСубтитры: отсутствуютПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37D9B3D9B24A04C078736E9EC02432F22B03970
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1078906   (298213) от 02.12.2016
+
+NX-Trance - CY 3000 (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cy 3000 (Introduction) (1:16)
+02. Will See (Original Mix) (8:53)
+03. Xcite (Nxt Techlifting Mix) (8:24)
+04. Never Be Yours (Original Mix) (5:12)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3A469252C64B96B8E7DC47A3CFDDD959D8CD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078809   (298138) от 02.12.2016
+
+Deadmau5 - W:/2016ALBUM/ (2016) [MP3|320 Kbps] <Downtempo, Electro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4ware (08:39)
+02. 2448 (06:25)
+03. Cat Thruster (05:36)
+04. Deus Ex Machina (06:31)(   Читать дальше...   )Жанр: Downtempo, Electro House, Progressive HouseПродолжительность: 01:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5721228A4651C0B760B60C61FD3B1CB376598EED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078842   (298136) от 02.12.2016
 
 Blank & Jones feat Marcus Loeber: Silent Piano (Songs for Sleeping) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -683,64 +741,6 @@ VA - Lounge Underground London Edition (2016) [MP3|320 Kbps] <Balearic, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F77CDA926900649974185DDE70ACB697DF2FBE3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079174   (296495) от 03.12.2016
-
-VA - Winter Opening Finest Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phase 3 – Evolution Of Space 03:40
- 02. Rey Salinero – Conexiones 06:24
- 03. Kevin Wellness – Dynamic Waves (Cut version) 01:32
- 04. Jay Jay & The Snakes – Walking In The Sunshine 06:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F94AC9492733190B14CD1A2F48A762673A4064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079063   (296492) от 03.12.2016
-
-VA - Midnight Lounge Vol 12: Easy Lounge Living (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Tayla - Mizmar - Underscore (02:33)
-02. Frank Tayla - Talisman - Underscore (02:42)
-03. Frank Tayla - Dusk (02:50)
-04. Rick Kelly - Neon Blue (04:24)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE605794C63EBBF6CBEEA38AC9F6FA0F0E6C0E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

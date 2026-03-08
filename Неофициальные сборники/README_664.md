@@ -1,3 +1,177 @@
+###  Публикация: 1747771   (44112) от 09.09.2024
+
+VA - compilation part 121 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adik - Aamazing
+02. Zerrid - Say So
+03. Alex Ne1 - Double Impression
+04. Rawbotic - Lost in Space(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCE0E3D6AEF310E7AEE963FE76CE3CE2AE52A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747732   (44102) от 09.09.2024
+
+VA - compilation part 119 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Pierce - Fog
+02. Black Sabbath - Dying for Love
+03. Michael Oakley - Left Behind
+04. Joy Peters - Winter in My Heart(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 03:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B23CA1F1220F85CCF61779A3978C02A1524DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748385   (43973) от 10.09.2024
+
+VA - TOP Non-Stop 2010-2019 - Deep House. Volume 9 (2024) [MP3|224-320 Kbps] <Deep House, Techno House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vincenzo feat. Lisa Shaw - Hello (2011) (3:12)
+02. Dominique Fils-Aimé - Sun Rise (Atjazz dub, 2019) (4:30)
+03. Babulin Dub - Sax (5:53)
+04. Two-S - You (2017) (7:16)(   Читать дальше...   )Жанр: Deep House, Techno House, Progressive HouseПродолжительность: 09:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A72CC2DFBDCC579C13B52F7E9E1DCBD8C7E9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748699   (43902) от 11.09.2024
+
+VA - Music News For Forum vol.021 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43902.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paris Hilton - Adored (02:19)
+ 002. Abraham Mateo feat. Danna Paola - El Doble (03:19)
+ 003. Adam Port feat. Stryv & Malachiii & Keinemusik & Orso - Move (Cat Dealers Remix) (04:00)
+ 004. Akila - А ты люби (02:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B7D95A15969B1C6380A033032D28D2AC6729EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749015   (43829) от 12.09.2024
+
+VA - Spacesynth Forever 2 (2024) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 16th channel - Autumn Rain (4:14)
+02. Abbsynth - Space Wanderer (Olegris Cover) (5:23)
+03. Adam Donovan - Voyage of Discovery (5:40)
+04. Albiero - Summer History (7:14)(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 04:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55DF8E4E5374069542F87524402C0D87EA2E340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749043   (43828) от 12.09.2024
+
+VA - Electro Euphoria (2024) [MP3|320 Kbps] <House, Trance, Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nami - Take It
+002. Nurve - Gutter
+003. Pitbull, Fatman Scoop - Dont Stop The Party
+004. Dj Allan/Santana - Evil Ways(   Читать дальше...   )Жанр: House, Trance, Techno, ElectroПродолжительность: 12:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAE80F52924D18C9636EDBBC25D33826415035B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748997   (43797) от 12.09.2024
 
 VA - The Open Hearts. Compilation (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
@@ -571,181 +745,6 @@ VA - Music News For Forum vol.024 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:649F16CF14991B56492C764425BA86DCC17BE1FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750279   (42979) от 20.09.2024
-
-VA - compilation musical kaleidoscope part 2 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Enigma French N°29
-02. Ennio Morricone/ Jk Sax - Chi Mai (Saxophone Cover)
-03. Zakhid - London
-04. Candy Dulfer Ft Dave Stewart/ Riltim - Lily Was Here(   Читать дальше...   )Жанр: Electronic, Instrumental, SaxophoneПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83750E08E31DDB1841CABDC20FA62F56E0B6D878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749882   (42926) от 20.09.2024
-
-Queens of the Stone Age - Compilation (2024) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Think I Ain't Worth A Dollar, But I Feel Like A Millionaire (Album Version With Interlude) [03:13]
-02. No One Knows [04:39]
-03. First It Giveth (Album Version) [03:18]
-04. Song For The Dead [05:52](   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 03:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1963EF936E61095B0A471C4C36F5501338DEFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750276   (42919) от 20.09.2024
-
-VA - Compilation part 122 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davit Barqaia - Dreamers
-02. Dieez - Sienna
-03. Elno - Senteber
-04. Dndm - Rainfall(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4751A8F951A4F5F7DAEEF33B9B7441D58CC97118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750277   (42916) от 20.09.2024
-
-VA - Compilation part 123 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mannonov - Justtake
-02. Deepfm - Typhoones
-03. A-Sultan - Passion
-04. A-Sultan - Angels Like You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F6EF068D72C3D0FC8E5E818E3D7A663E0CDDC41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750756   (42821) от 21.09.2024
-
-VA - Music News For Forum vol.025 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42821.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nessa Barrett - Dirty Little Secret (03:35)
- 002. 3Sonn feat. SOULOUD - 2000 шагов (02:04)
- 003. 4eholl feat. G-POL & SHALUTA - Капли (02:12)
- 004. 5УТРА - Ромашки (02:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F24FB4396C84CE4E24882BA09157E4FFB1A0F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569730   (42798) от 22.09.2024
-
-Radio Tapok - Дискография (2016-2024) [MP3|320 Kbps] <Rock, Punk Rock, Metal, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Олег Абрамов родился 15 февраля 1989 года и приобрёл известность благодаря авторскому переводу и живому исполнению всемирных хитов. Он переводит иностранный рок на русский, стараясь не отступать от смысловой нагрузки оригинала.
-Как переводчик-исполнитель, он создал творческое объединение, занимающееся адаптацией песен в стиле рок, под названием «Радио Тапок».
-⠀2016 — 2022 Альбомы
-2022 — Наследие
-2018-2023 — СинглыЖанр: Rock, Punk Rock, Metal, Pop RockПродолжительность: 11:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37589687BE8C591E5AA74395E5047EFCFFE500A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

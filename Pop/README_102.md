@@ -1,3 +1,61 @@
+###  Публикация: 662272   (758558) от 29.05.2013
+
+София Ротару - Звездная серия (2CD) (1999) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758558.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1Жанр: PopПродолжительность: 01:19:35
+
+01.Червона рута (3:52)
+02.Черемшина (3:24)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215596   (758221) от 26.03.2018
+
+Yan Tregger - Christopher Ried - Ducks & Drakes (1979) LP [MP3|320 Kbps] <Electronic, Psychedelic, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friend Island (3:31)
+02. The Girl in the Gold (2:52)
+03. Dawn and Darkness (3:35)
+04. The Ivy Heart (0:18)(   Читать дальше...   )Жанр: Electronic, Psychedelic, DiscoПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B6887D884049DA258FA0684119D7D35D26698A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215624   (758092) от 26.03.2018
 
 Arp-Life - Jumbo Jet (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -683,64 +741,6 @@ Ariana Grande - thank u, next (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A8448677C845CFE762D759FDF4C14AADD754218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523356   (751544) от 11.01.2022
-
-Minacelentano - The complete recordings (2021) 2xCD, Compilation, Remastered, Sony Music [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз, приуроченный к двадцатипятилетию первого совместного альбома Мины и Челентано - "Mina Celentano" 1998 года, достигнувшего вершины итальянского хит-парада и получившего две платиновых сертификации. В 2016 году вышел ещё один студийный альбом дуэта - "Le migliori", который превзошёл успех предшественника, получив семь платин. На этом сборнике (   Читать дальше...   )CD - 1:
-01. Niente E' Andato Perso
-02. Eva
-03. A Un Passo Da Te(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15648CA7CE5657A0D173CDD0A0D0D9C929BD2224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281493   (751505) от 08.02.2019
-
-Макс Барских - 7 (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Берега
-2. Никто
-3. Зачем
-4. Неземная(   Читать дальше...   )Жанр: PopПродолжительность: 00:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6A4F0A54C7DF91A80B25FB4F79A247678112B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

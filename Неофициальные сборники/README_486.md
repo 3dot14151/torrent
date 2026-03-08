@@ -1,3 +1,174 @@
+###  Публикация: 1256934   (349645) от 24.10.2018
+
+VA - The Most Relaxing New Age Music (2018) [MP3|320 Kbps] <New Age, Relax>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Wise Man - Om Asa Toma
+002. Jerónimo Jonás - Being Resonances
+003. Indian Dawn - Smooth Touch
+004. Gomer Edwin Evans - Inner Beauty With Zen(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 10:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16C38DEB1886B666B7FA2BA35F8F18F22472824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953268   (349569) от 04.11.2015
+
+VA - Sunrise Avenue Vol 3 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ralf Harris - Mad About - Original Mix
+02. Sheldon Correira - Vanity Experia - New York Sunset Mix
+03. Xavier Salo - Every Day - Original Mix
+04. Tim Washington - White Passion - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBFDF65A21F6549D8950AE3F39CCCC77B9CD36B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953474   (349560) от 04.11.2015
+
+VA - Vocal Tech House Vol.1 (Compiled by Zebyte) (2015) [MP3|320 кб/с]<Tech House, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whomadewho - Heads Above (Maceo Plex Remix) (07:47)
+02. Chemical Brothers - Do It Again (Alex Stein Remix) (06:47)
+03. Boris Brejcha - Everybody Wants To Go To Heaven (Victor Ruiz Remix) (06:24)
+04. Jaded & Scrufizzer - Big Round & Juicy (04:10)(   Читать дальше...   )Жанр: Tech House, Vocal HouseПродолжительность: 03:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA2348647923B81E4B6A9BB8F632667A4CC4136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256948   (349547) от 24.10.2018
+
+VA - Русское Радио. Лучшее (10.2018) от DON Music (2018) [MP3|320 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Filatov & Karas vs. В. Цой - Остаться с тобой
+002. Зара - Негордая
+003. Руки Вверх! - Танцы
+004. МакSим - Здесь и сейчас(   Читать дальше...   )Жанр: ПопПродолжительность: 08:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13308F10717FCCC2E151D142184C12FA91E5DED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256942   (349392) от 24.10.2018
+
+Ice Mc - Think About The Way (2018) Remix [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349392.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ice Mc - Think About The Way ★ DJ SAVIN Remix ★ Radio VersionЖанр: Club, Dance, HouseПродолжительность: 00:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90EBCCF850927CD8653D0144A33C12669237710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179393   (349357) от 31.10.2017
+
+VA - Rich 100 Trance Stranger (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349357.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Soundlift - Freedom (Intro Mix) 11:28
+002. South Pole - Desiccated Sea Is The Sand (Original Mix) 10:05
+003. Natlife Ft. Muhib Khan - Elenda (Aero 21 Darker Mix) 09:10
+004. Hiroki Nagamine - The Bilnk Of Time (Original Mix) 08:57(   Читать дальше...   )Жанр: TranceПродолжительность: 11:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A484326D050DB7C06F3E30E5151A09C554401B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179504   (349345) от 31.10.2017
 
 VA - Uplifting Elegance Trance (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -595,180 +766,6 @@ VA - HarDD NRG OverDoZZe 10 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E69D6D78072C603602BCAC625E640C279F000F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329992   (347854) от 07.10.2019
-
-VA - Качай и слушай Vol 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347854.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Godfather of Harlem, Dave East, A$AP Ferg - Business is Business (2:55)
-2.alyona alyona - Завтра (2:59)
-3.Armin van Buuren, David Hodges - Waking Up With You (2:59)
-4.Steve Aoki, Backstreet Boys - Let It Be Me (3:44)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E470EF8F066B402ADA582005747CCDF9217B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329916   (347851) от 07.10.2019
-
-VA - Dance Hits Collection 90s Vol.5 (2019) [MP3|320 Kbps] <Eurodance, Euro-House, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347851.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sequential One - Dreams (Video Mix) 3:50
-002. Dr. Alban - Let The Beat Go On (Long Mix) 5:29
-003. Scooter - Friends (Original Mix) 4:41
-004. Three 'N One - Sin City (Short Mix) 4:08(   Читать дальше...   )Жанр: Eurodance, Euro-House, Pop, DanceПродолжительность: 07:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56078BCA8C26B55DF7900E396728EBC9929A3932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578282   (347755) от 22.09.2022
-
-VA - Music News vol.218 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347755.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ALBA - Love Is (01:45)
- 002. Affective Sound feat. Zadi - Go Easy (02:18)
- 003. Aggre - Проблема (02:08)
- 004. Adon - Loving You Forever (02:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8A42890E892A2546FFDE40EA6A7257B1D3E0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578228   (347753) от 22.09.2022
-
-VA - Hammond Organ for the Soul (2022) 2CD [MP3|320 Kbps] <Rock, Hammond>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Georges Arvanitas - Moanin' [04:43]
-02. Deep Purple - Lazy (Live; 1998 Remaster) [10:27]
-03. Uriah Heep - Circle of Hands (2017 Remastered) [06:27]
-04. Emerson, Lake & Palmer - Fanfare For The Common Man (Original 1977 Recording) [09:47](   Читать дальше...   )Жанр: Rock, HammondПродолжительность: 08:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D58DCDAEA819B627B2447E2C0FF366E723578D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329897   (347726) от 07.10.2019
-
-VA - Качай и слушай (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Akon - Can't Say No (2:36)
-2.ALEKSEEV - Камень и вода (3:14)
-3.Alicia Keys, Miguel - Show Me Love (3:15)
-4.Armin van Buuren, Inner City - It Could Be (2:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330319A3A186F2C92192969F81104EB100C1139C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073015   (347645) от 15.11.2016
-
-VA - Autumn Love Jazz (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ella Fitzgerald – Early Autumn
- 02. John Coltrane – Autumn Serenade
- 03. Lou Donaldson – Sweet and Lovely – Remastered
- 04. Sarah Vaughan – Autumn In New York(   Читать дальше...   )Жанр: JazzПродолжительность: 01:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97968F16E0A53020707A60D1117090577AE8A71B
 ```
 
 https://mybot314.ru/tekegram_catalog/

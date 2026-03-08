@@ -1,32 +1,3 @@
-###  Публикация: 1395135   (757269) от 09.07.2020
-
-Sentinel - The Black of the Sun (2020) [MP3|320 Kbps] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757269.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Black of the Sun (06:43)
- 2. The Damned (06:11)
- 3. One Bullet Left (04:52)
- 4. Infection (07:40)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE8586CFEE8454FAF638CA16073E6653AF01820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395188   (757268) от 09.07.2020
 
 Brennen Sloan - Brennen Sloan (2020) [MP3|320 Kbps] <Rock, Blues Rock>
@@ -746,6 +717,35 @@ Myridian - Light in the Abyss (2020) [MP3|320 Kbps] <Melodic Death Metal, Doom M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22FA5E86934151B9B9FF3D31FB700B8C7FD617EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018361   (755619) от 20.05.2016
+
+Katatonia - The Fall of Hearts (2016) [MP3|320 кб/с] <Gothic Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takeover
+02. Serein
+03. Old Heart Falls
+04. Decima(   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9020F5068CC13A60B1510A8AE7CE42CFEFF4E7D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

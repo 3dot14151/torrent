@@ -1,3 +1,32 @@
+###  Публикация: 1121904   (799229) от 04.04.2017
+
+Zoot Sims - New Beat Bossa Nova, Vol. 1 & 2 (1962) 2004,  Colpix Records/Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recado Bossa Nova Pt.1 (2:38)
+02. Recado Bossa Nova Pt.2 (3:00)
+03. Cano Canoe (5:39)
+04. Contando A Orquestra (4:11)(   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Bossa NovaПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5B568F7BAF9FBEDD929B86F60D08891881351B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121957   (799217) от 04.04.2017
 
 Toots Thielemans - The Real... Toots Thielemans (2017) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -716,35 +745,6 @@ Billy Cobham's Culturemix - Colours (2004) [APE|Lossless|image + .cue] <Jazz, Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B847B7623B0A9D73AF32B17E38929E5C501B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508372   (797519) от 08.11.2021
-
-Joe Henderson - 5 Original Albums (1964 - 1985) 5CD, 2016, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797519.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Our Thing:
-01. Teeter Totter [8:33]
-02. Pedro's Time [10:05]
-03. Our Thing [5:36](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 03:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5200DEA74EECAE3E3F8DF10352A11DBF6FFA64F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

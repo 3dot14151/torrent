@@ -1,3 +1,61 @@
+###  Публикация: 1534635   (686721) от 06.03.2022
+
+LAU - Circumstance (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undecided (4:11)
+02. Give Her Your Love (3:42)
+03. What To Do (4:29)
+04. Broken Hearts (3:02)(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrowaveПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FE233E63AA4F3774E8A11E2CD8F3A95BD79A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535429   (686716) от 06.03.2022
+
+GARRISON (Игорь Савосин) - The Dreams of Morpheus (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dreams of Morpheus (5:10)
+02. Dreamer (5:16)
+03. Bad Signal (5:15)
+04. Mirage (4:39)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE108F02B009990A61C054BB910F728749C551FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535426   (686712) от 06.03.2022
 
 GARRISON (Игорь Савосин) - Signal (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
@@ -690,64 +748,6 @@ Aly & Fila - Future Sound Of Egypt 496 (2017) [MP3|320 Kbps] <Trance,Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3232BEE19F19B7C621A0A77A5CCE061EFDD5AE59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135064   (684986) от 17.05.2017
-
-VA - Ibiza Lounge Funk House Music 2017, Vol. 01 [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angela Puxi - Housing to Jazz (Sinan Mercenk's Radio Edit) 04:02
-02. Zebra! - Waiting for the Sun 05:13
-03. Natasha Watts - Go Slow (Mark Di Meo Rework Instrumental) 06:37
-04. LaX feat. PV - Love & Pride (House Device & Walterino Mix) 05:58(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1659F9D78C4D703AC7051E4CE7A02F8050A4B588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135038   (684978) от 17.05.2017
-
-VA - Just Motivated Vol.1 (Pure Sport & Fitness Music) (2017) [MP3|320 Kbps] <House, Progressive, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bes & Meret - Abendsonne (Sax Sunset Mix)  4:18
-02.  Rust Blossom - In The Sun  4:06
-03.  Patrick De Giorgi - You Go (Radio Edit)  3:41
-04.  Victory Girl - Deep Tech 1  5:19(   Читать дальше...   )Жанр: House, Progressive, Future HouseПродолжительность: 02:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1808F2F05DE60120D7B5AFFF26D65E306377E953
 ```
 
 https://mybot314.ru/tekegram_catalog/

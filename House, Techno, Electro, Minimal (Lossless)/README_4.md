@@ -1,3 +1,90 @@
+###  Публикация: 1457702   (1024436) от 26.03.2021
+
+VA - Schneeweiss 12 (Presented by Oliver Koletzki) - 2021 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malandra Jr. - Illusion
+02. Deckert, Studio Apartment, Like Lovers - In the Unknown
+03. Julian Wassermann - Doppler
+04. Le Croque, Robert Owens - The Need(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D1CB5049C3AAB1CEB6E26FF7DA693FB13FB734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215886   (1024313) от 26.03.2021
+
+Rone - Discography 40 Releases (2008-2021) Infiné [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, IDM, Downtempo, House, Ambient, Leftfield>
+
+>>След.
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening, La Nuit Venue (Main Theme) (03:32)
+ 02. Noël (聖誕節) (02:27)
+ 03. La Nuit Venue feat. Camélia Jordana (03:09)
+ 04. Vers Marseille (01:21)(   Читать дальше...   )Жанр: Techno, Minimal, IDM, Downtempo, House, Ambient, Leftfield •Продолжительность: 17:10:47 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6178E9AEAAAAC3D9EDEEC5C10981C6EB9DF5C7C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014786   (1024285) от 26.03.2021
+
+Martin Nonstatic | EskoStatic - Discography 34 Releases (2011-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Downtempo, Psybient, IDM, Ambient>
+
+>>След.
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky Cottage (03:05)
+ 02. Morning Star (07:38)
+ 03. Shadow (07:10)
+ 04. Spring Harbour (05:06)(   Читать дальше...   )Тип издания: CD, WebПродолжительность: 26:00:55 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D71CB6B9B89A7F528F2089388EC8837849550F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458647   (1023861) от 29.03.2021
 
 Iiney - Emperor of Will (Remix Version) (2021) Liberty Rhythm [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
@@ -657,93 +744,6 @@ Shingo Nakamura - Best of Shingo Nakamura 03 (2019) Mixed [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A01EF5A938F17DAF35D1415D0D506D36BB6FDD07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475330   (1012415) от 06.06.2021
-
-Shingo Nakamura - Best of Shingo Nakamura 01 (2017) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blugazer - Ethereal Concepts (Shingo Nakamura Remix) (Mixed) (5:45)
- 02. Hakodate (Mixed) (5:25)
- 03. Chrystallum (Mixed) (6:30)
- 04. There For Me (2017) (Mixed) (6:17)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3886C104D69F187BA8230A5D86290E55C811CF4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475517   (1012280) от 07.06.2021
-
-PROFF - Best of PROFF 01 (2020) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Mashkov, Leaman - The Puzzle (PROFF Remix) (Mixed) (6:18)
- 02. Arcology (ft. 8Kays) (Mixed) (5:30)
- 03. Obscure (Mixed) (6:20)
- 04. For The Last Time (Original Mix vs. Breaks Mix) (Mixed) (5:25)(   Читать дальше...   )Жанр: Progressive House, Electro House, TranceПродолжительность: 02:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228DB89C015287DF1AB1AD87ED15F0601060D5CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225513   (1012203) от 07.06.2021
-
-Bryan Müller (SCNTST, Skee Mask) - Discography 22 Releases (2012-2021) Boysnoize Records, Ilian Tape [FLAC|Lossless|tracks] <Techno, Ambient, IDM, Tech House, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nvivo (05:33)
- 02. Stone Cold 369 (06:05)
- 03. LFO (04:54)
- 04. Rdvnedub (06:13)(   Читать дальше...   )Тип издания: WEB, VinylЖанр: Techno, Ambient, IDM, Tech House, Experimental •Продолжительность: 13:34:25 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C29C6FB3CEE2FAB5F530F159B5D60286C91A7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

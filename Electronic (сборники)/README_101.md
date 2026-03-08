@@ -1,3 +1,32 @@
+###  Публикация: 1034737   (634362) от 13.07.2016
+
+VA - Endless Motion - Only Trance (episode2) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634362.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Armin van Buuren Extended Remix) 6:11
+002. Bobina & Kyle Richardson -  Love Is the Answer (Dimension Remix) 5:11
+003. Gareth Emery feat. Janet Devlin -  Lost (Ferry Corsten Remix) 6:44
+004. Talla 2XLC pres. Alan Walker -  Faded (DJ ALEKSARD Mashup) 6:35(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591F3CB9319BF9DF2CC16CB7D518CA704C62D564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034330   (634305) от 13.07.2016
 
 VA - Velvet Moonlight: Relax Partiture (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -746,35 +775,6 @@ VA - A State Of Vocal Trance Volume 1 (2012) [MP3|320 кб/с]<Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3F2BFBD1682F2B33C159DF28561ADACA1E83E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143923   (631494) от 20.06.2017
-
-VA - Diamond Euphoria: Night House Party (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631494.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Deep Spirit - Lonely 2K16 (Club Edit)  3:25
-002.  Moonrider - Resurrection (Radio Edit)  3:39
-003.  Arctic Motion - Black & White (Radio Edit)  3:33
-004.  Miguel Alcobia - We Get It Right Sometimes (Radio Edit)  3:12(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB6F1989719F3CAF4F15DD5534AC713A0BDB718
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1842716   (1048930) от 17.12.2025
+
+VA - Anjunadeep The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romain Garcia - Next To YouЖанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85FDE76FA83C1C8A43A30891D4FDC7FC1F17C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841520   (1048155) от 11.12.2025
 
 VA - 100% Ibiza (The Late Night Club Closings 2025) (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
@@ -716,35 +742,6 @@ VA - Black Hole House Music 02-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:912D2E6461BE4759C24DB7BA0F653991AB115053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615619   (1037579) от 26.02.2023
-
-VA - DanceClub Beats Compilation (2023) CD, Compilation [MP3|320 Kbps] <Groove, Future House, Progressive, Club Mix>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nacho Chapado - Unexpected Feeling (Club Mix)
-02. Esteban Lopez - Left Outside Alone (Juan Ferreyro Remix)
-03. Tom Stephan - To The Music (Club Mix)
-04. Nacho Chapado - Bring On The Change (Rob Phillips Drums Mix)(   Читать дальше...   )Жанр: Groove, Future House, Progressive, Club MixПродолжительность: 01:36:32 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:058BF7F56ED5E3D93BB84FFDDDE231F6A317F0C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

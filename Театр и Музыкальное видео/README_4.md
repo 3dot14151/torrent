@@ -1,3 +1,31 @@
+###  Публикация: 1473797   (1012993) от 02.06.2021
+
+The Beatles: Вся моя любовь / All My Loving (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Битлы продолжают отдыхать в кафе, слушая свою музыку.
+Клип из фильма полностью колоризован - каждый кадр в отдельности.
+Этот клип - продолжение релиза: https://nnmclub.to/forum/viewtopic.php?p=11104503#torrentПроизводство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: Мюзикл, комедия, музыкаРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA579FEECE3D40D5040A940E37BBE782AC9D8D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531674   (1012947) от 02.06.2021
 
 Цирк дю Солей: Большое путешествие в 3D / Cirque du Soleil: Journey of Man (2000) [H.264/1080p] Blu-ray  3D [EN]
@@ -672,35 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF369B93D27F288E823FC7B27EB0EEB180F97973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819073   (1004654) от 31.07.2021
-
-ZZ Top - Live At Montreux 2013 (2014) BDRip [720p] [hand made 60fps]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа ZZ Top несколько раз выступала в Монтрё на знаменитом The Montreux Jazz Festival, и этот блю-рэй был сделан на материале выступления 2013 года. В концерт вошли как уже хорошо известные композиции вроде "Gimme All Your Lovin'", "Sharp Dressed Man", "Legs", так и две новых вещи "I Gotsta Get Paid" и "Chartreuse" (   Читать дальше...   )01. Got Me Under Pressure
-02. Waitin’ For The Bus
-03. Jesus Just Left Chicago
-04. Gimme All Your Lovin’(   Читать дальше...   )Жанр: hard rock, blues-rock, jazz-bluesПродолжительность: 01:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51DF6F9F3270E1D7E8AC9DC893E941C475A791D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

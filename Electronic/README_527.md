@@ -1,3 +1,61 @@
+###  Публикация: 1759040   (38082) от 06.11.2024
+
+Allie X - Girl With No Face (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Synth-pop, Dance-pop, Italo-Disco, Hi NRG, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weird World [00:03:58]
+02. Girl With No Face [00:04:23]
+03. Off With Her Tits [00:03:16]
+04. John and Jonathan [00:04:22](   Читать дальше...   )Жанр: Indie Pop, Synth-pop, Dance-pop, Italo-Disco, Hi NRG, New WaveПродолжительность: 01:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F743ACC071F630952FDE73974526F9DC25A59F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759158   (38081) от 06.11.2024
+
+VA - Autumn Car Music Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VOLB3X - Return of the Tres (Original Mix) (1:34)
+02. Jozua - Moonlight (Original Mix) (2:02)
+03. Ellister - Prayer in C (Original Mix) (1:50)
+04. Nickobella - Bella Ciao (Original Mix) (2:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0BA8A40838EBD5F859084B387D9E74CF2EB895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759298   (37984) от 07.11.2024
 
 VA - Lovers Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -683,64 +741,6 @@ Orbital - A Beginner's Guide (Best Of) - 2024 [FLAC|Lossless|WEB-DL|tracks] <Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCDE058DE3C9971D578CF0A1238E2627EFB1F36D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761067   (36975) от 17.11.2024
-
-VA - World Organic 2024 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Slick & Tibetania - My World (Original Mix) (4:31)
-02. Fleanger & Tamer ElDerini & Tibetania - One Last Time (Original Mix) (5:50)
-03. Patrick Medina & Tibetania - Lil Boy (Original Mix) (7:09)
-04. Kaisser Bouzriba & Tibetania - I'm Black (Original Mix) (7:04)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1654361BFFEC4DE368E1016FEB4786F4EE230CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761240   (36893) от 18.11.2024
-
-VA - OPIA (2024) Ultimae Records [FLAC|Lossless|Web-DL|tracks] <Ambient, Downtempo, IDM>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MIKTEK – Unstable Shutter (7:57)
-02. LARS LEONHARD – Depth Perception (Ashes Edit) (6:18)
-03. EROT – Aftermost (6:33)
-04. MARTIN NONSTATIC – Impulsing Path (7:24)(   Читать дальше...   )Жанр: Ambient, Downtempo, IDM, Chillout, PsybientПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB363D2B3687FC33B3F2FF89C9DDCF02CF4DCCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

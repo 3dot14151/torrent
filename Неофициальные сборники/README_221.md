@@ -1,3 +1,177 @@
+###  Публикация: 1524283   (744888) от 15.01.2022
+
+VA - Kiss FM Top 100: The Best Tracks Of 2021 (2022) [MP3|320 Kbps] <Progressive House, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mathame - Departure (Systema Edit) (6:34)
+002. ARTBAT & Dino Lenny - Fading (Original Mix) (8:07)
+003. Alan Fitzpatrick feat. LOWES - A Call Out For Love (Extended Mix) (5:22)
+004. Boris Brejcha - Hold Your Speakers (Original Mix) (6:52)(   Читать дальше...   )Жанр: Progressive House, Dance, OtherПродолжительность: 10:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C371F9B6E75579ACE4E15499E9C01F6C0C7E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217108   (744870) от 03.04.2018
+
+VA - Dj World All 2018 Nice Day (2018) [MP3|320 Kbps] <Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744870.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Grazze Ft. ARC - Aura (Original Club Mix)
+002. East Cafe, GMJ - 22 (Doppel Remix)
+003. Dont Look Now & Tom Tyler - All Day, All Night (Original Club Mix)
+004. Jewelz & Sparks feat. Pearl Andersson - All I See Is You (Afrojack Edit)(   Читать дальше...   )Жанр: DubstepПродолжительность: 07:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D962B1967AC869072E48C8A4FFDA92E1C7BAC9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217100   (744869) от 03.04.2018
+
+VA - Schlager-Marathon 2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantasy - Ich brenn durch mit Dir (Berlin)
+02. Wolfgang Petry - Bronze,Silber und Gold (Radio Version)
+03. Matthias Reim - Ich hab geträumt von Dir
+04. Nik P. - Dieser Ring(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D56EDD7384E0AD451087D9A8E6FF3890D2A619E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217105   (744750) от 03.04.2018
+
+VA - Romantic Souls (2018) [MP3|320 Kbps] <Pop Rock, RnB, Soul>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744750.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elton John - Tiny Dancer
+002. James Bay - Wild Love
+003. Frankie Goes To Hollywood - The Power Of Love
+004. Camila Cabello, Young Thug - Havana(   Читать дальше...   )Жанр: Pop Rock, RnB, SoulПродолжительность: 08:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44815474FDC571CF465D48C79E91F71E4B20D050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216977   (744749) от 03.04.2018
+
+VA - 100% Clubland X-Treme (4CD) (2018) [MP3|320 Kbps] <Electronic, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scooter - Jumping All Over The World
+02. Sak Noel - Loca People
+03. Artemesia - Bits & Pieces (Tidy Boys Remix)
+04. Special D - Come With Me (Single Edit)(   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 04:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8092D92162A857A8131D433D327E3D99DC345FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020360   (744741) от 26.05.2016
+
+VA - Кавер Rock (2015) [MP3|128-320 кб/с] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пpиключeния Элeктpoникoв - Tpaвa У Дoмa
+02. Элизиyм - Эx, дopoги
+03. 10HEБO - Pябинa
+04. Ghost Forest - Лaнфpeн Лaнфpa(   Читать дальше...   )Жанр: RockПродолжительность: 04:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821636FA8B7C24C1E58121B70B2971571040334D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524347   (744652) от 15.01.2022
 
 SuperVox - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
@@ -564,180 +738,6 @@ VA - Relaxing Instrumental Jazz Ensemble, Chilled Bossa (2016) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7808310132E9E4E41982431321BEFE44832D1772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020855   (743787) от 27.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 17 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Blue - Hot Girls-Bad Boys ( 1985 )
-02. Aqua - Happy Boys & Girls ( 1997 )
-03. Silent Circle - Sib Dub Dua ( 1986 )
-04. Roy - Destiny Time ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C639B7BBF34DB041621F534AE865F2E29412C9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020548   (743784) от 27.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 13 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kim Wilde - Cambodia & Reprise ( 1982 )
-02. Silicon Dream - Marcello The Mastroianni ( Radio Mix 1995 )
-03. Blue System - Sorry Little Sarah ( Maxi Version 1987 )
-04. Ottawan - Hands Up ( 1981 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB97E537D81B51656A0113775AD48D33303E0927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282396   (743743) от 13.02.2019
-
-VA - Breaks Pro V.01 [Compiled by GvertO] (2018-2019) [MP3|320 Kbps] <Breaks, Electronica, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Fixx - Stars (Original Mix) [4:23]
-02. Borka FM - High (Original Mix) [5:56]
-03. Face & Book - Fuck Machine (Binary (SP) Remix) [3:41]
-04. NGHTMRE & Big Gigantic - Like That (Original Mix) [4:20](   Читать дальше...   )Жанр: Breaks, Electronica, Techno, TrapПродолжительность: 02:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2AFDAB929BDF35DB5CCCB83BD36779F6B638FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282587   (743739) от 13.02.2019
-
-VA - House Garden Music: Progressive Selection (2019) [MP3|320 Kbps] <Progressive, Dance House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743739.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nаkhiyа - Amеthyst (Originаl Mix)
-002. Cоcооmа - Jоy Of Lоvе
-003. Simоs Tаgiаs - Rеvоlt
-004. Andrеs Sеcrеt - Eh (Originаl Mix)(   Читать дальше...   )Жанр: Progressive, Dance HouseПродолжительность: 08:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4DF953F5DED179F983B6F874BB26ED56FF9623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020867   (743711) от 27.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 19 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lou Sern - Swiss Boy ( 1986 )
-02. New Romantique - Shy Like An Angel ( 1985 )
-03. Blue System - She's A Lady ( Maxi Version 1987 )
-04. A La Carte - Radio ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC005868F0697C088D467E2FE05D846E8D9F73E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020431   (743710) от 27.05.2016
-
-VA - Студия хитов радио Шансон (2016) [MP3|256 кб/с] <Chanson, Pop>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743710.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Солоинк Север - Алешка Жарил На Баяне
-002. Юрий Смыслов - Долюбить
-003. Александр Келеберда - Костер Любви
-004. Анжелика Рута - Бабье Лето(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A403DFB1D002296AF0316B27AC6CC0AD60D87D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

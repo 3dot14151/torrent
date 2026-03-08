@@ -1,3 +1,61 @@
+###  Публикация: 1584849   (224514) от 19.10.2022
+
+Selena Gomez - Revival (2015) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival
+02. Kill'em With Kindness
+03. Hands To Myself
+04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D82959A2E28A82A626E587936842D95A75514F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584231   (224368) от 19.10.2022
+
+Ярослав Евдокимов - Не рви рубаху! (1994) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Там за окнами...
+02. Белокурая колдунья
+03. Верочка
+04. Подковочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B449273ACB9C5092A5E67D320B40E9922367CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584577   (224326) от 19.10.2022
 
 VA - New Pop Classics (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -691,64 +749,6 @@ VA - 100 Greatest Running Tracks (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66B0CEB34EAA45A69C58453ED9629E47F9C90546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585160   (222290) от 21.10.2022
-
-Ярослав Евдокимов - За белою рекой... (2006) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Фантазёр
-02. Колодец
-03. За белою рекой
-04. Колокольчик(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9F32976003CEF493EDEF611557E52F852438F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651345   (222288) от 06.08.2023
-
-Bill Wray - Seize The Moment (1983) Reissue, Remastered, 2023, Bad Reputation [FLAC|Lossless|image + .cue] <Pop Rock, AOR, Arena Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (You’re A) Heartbreaker (3:21)
-02. She Loves The Radio (3:19)
-03. Goin’ Down (3:55)
-04. After All These Years (3:38)(   Читать дальше...   )Жанр: Pop Rock, AOR, Arena RockПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F6AA300BE8C2FD61EE3F1843FB51F07740BDBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1129834   (720338) от 29.04.2017
+
+VA - 538 Hitzone 81 (2017) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Electronic, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boef - Habiba (3:35)
+02. Anne-Marie - Ciao Adios (3:19)
+03. Kensington - Bridges (3:38)
+04. Burak Yeter feat. Danelle Sandoval - Tuesday (3:59)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Indie, Electronic, R&B, Soul, Ballad, Hip Hop, Electronic, Dance, Dancepop, Trance, Electro, Pop Rock, Pop RapПродолжительность: 02:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C504A049E721CFEAD4ACCA3A2B7A7C1673F9B767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129685   (720321) от 29.04.2017
 
 VA - 100 Hits Sunday Morning Songs (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Dance, Pop, Rock>
@@ -718,35 +747,6 @@ VA - Billboard 1986 - 1989 vol.5 (unknown year) Unofficial Release [APE|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C52FF7511BDC41CF6BC945C38107DCD5EE2DA2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025059   (712112) от 11.06.2016
-
-Laid Back - Unfinished Symphonies (1999) [FLAC|Lossless|image + .cue] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key To Life (3:27)
-02. Walking (4:12)
-03. Pop The Question (3:56)
-04. Cool Down Max (4:03)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1469F9820E138E31D4C366B6A6CB45F23C045C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

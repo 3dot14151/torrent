@@ -1,3 +1,32 @@
+###  Публикация: 1233991   (576179) от 02.07.2018
+
+Michael Forster - Piano Chill (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age, Modern Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another love
+02. Let her go
+03. Helium
+04. Vladimir s blues(   Читать дальше...   )Жанр: Instrumental, Piano, New Age, Modern ClassicalПродолжительность: 01:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C26B3EEDBCB3C035718ED7CE181CB1B7D615A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554452   (575764) от 31.05.2022
 
 Vartra - Basma (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Doom Metal>
@@ -730,35 +759,6 @@ TagTraumer - Zuviel ist nicht genug (2001) [MP3|320 Kbps] <Enigmatic, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAD127F635E61401AF66D2935104CBD2BA1FE0EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554891   (570249) от 03.06.2022
-
-Angel X (Andy Jonas) - 8 Relises (1993-2021) [FLAC|Lossless|WEB-DL|tracks|tracks + .cue] <Enigmatic, Pop Rock, Synth Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light the Stars [00:02:59]
-02. Return to Innocence [00:03:07]
-03. I Will Never Let You Go [00:03:18]
-04. Reach Your Heart [00:02:58](   Читать дальше...   )Жанр: Enigmatic, Pop Rock, Synth PopПродолжительность: 8 CD, 02:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4F757954FCF4EC42D70BDA43A35BF134467074
 ```
 
 https://mybot314.ru/tekegram_catalog/

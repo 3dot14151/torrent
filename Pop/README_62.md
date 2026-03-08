@@ -1,3 +1,61 @@
+###  Публикация: 1109047   (860938) от 26.02.2017
+
+Player [1] - Game Over (1980) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Invaders (4:12)
+02. We're All Players (2:38)
+03. Under Control (3:03)
+04. My Babe Is A Cool Player (3:03)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A72A5AC970EB838C95E9E2AF952607C2497A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109094   (860750) от 26.02.2017
+
+Sandra - Paintings In Yellow (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiroshima (6:52)
+ 02. ( Life may be ) A big insanity (4:30)
+ 03. Johnny wanna live (4:29)
+ 04. Lovelight in your eyes (5:29)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBA509042102224CDFFDFB04591B8A5EB0A4AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999824   (860719) от 24.03.2016
 
 Валерий Меладзе - Всё Так И Было (1999) [FLAC|Lossless|tracks + .cue] <Schlager, Pop>
@@ -687,64 +745,6 @@ Waaktaar & Zoe - World Of Trouble (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B68BB0CDF1134AC5642532516449B5ACAA46F864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109728   (857062) от 28.02.2017
-
-Bebe Rexha - All Your Fault: Pt. 1 (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857062.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Atmosphere
-2. I Got You
-3. Small Doses
-4. Fuck Fake Friends (feat. G-Eazy)(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46BDF486B7207B2F0DC7F361896ECF8C48DED33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376916   (856668) от 19.04.2020
-
-VA - 100 Ballads (2020) [MP3|320 Kbps] <Pop, Ballads>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856668.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rod Stewart - Have I Told You Lately 4:02
-002. Tina Turner - What's Love Got To Do With It 3:47
-003. Seal - Kiss From A Rose 4:48
-004. Whitesnake - Is This Love 4:45(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 06:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2B255FFF9CF8D5B7D73D792E009420589AC171
 ```
 
 https://mybot314.ru/tekegram_catalog/

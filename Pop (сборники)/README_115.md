@@ -1,3 +1,32 @@
+###  Публикация: 1087288   (145352) от 28.12.2016
+
+VA - Отрывайся с лучшими хитами. Сборник № 6 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145352.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Jennifer Lopez Feat. Travie Mccoy - A.K.A 3:05
+002.Тамерлан & Алена - Потоки Ветра 3:05
+003.Steve Angello & An21 - Last Dance 4:20
+004.Борис Моисеев - Вишни 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8974FB51499C83116B4A02B064F67D40FBCE530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087263   (145334) от 28.12.2016
 
 VA - Танцевальная зима. Выпуск № 2 (2016) [MP3|256 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - National Pop Dance Music Vol.29 (2021) [MP3|320 Kbps] <Pop, Dance, Schlager
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0C07AFCF391AE4D04AEEAF1440F5F56A8242B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348666   (143557) от 28.12.2019
-
-VA - German Top 100 Single Charts 27.12.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143557.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Mariah Carey - All I Want for Christmas Is You (4:01)
-2.Wham! - Last Christmas (4:25)
-3.Tones and I - Dance Monkey (3:29)
-4.Apache 207 - Roller (2:38)(   Читать дальше...   )Жанр: PopПродолжительность: 05:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301A7EBF2740C44313EDBCA19756AC7E5F3BA92C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,35 @@
+###  Публикация: 1039672   (588296) от 03.08.2016
+
+Allan Holdsworth - Дискография 21 альбом (1976-2009) 23 CD [WavPack|Lossless|image + .cue] <Fusion, Free Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся британский джазовый гитарист и композитор, внесший огромный вклад в развитие жанра фьюжн.
+Он известен своей сложностью в композиционной и импровизационной работе, а так же своими поразительными техническими навыками.
+Критики сравнили его произведения с сочинениями Листа.
+Уникальная эффективность стиля его игры сродни грации саксофонистов вроде Wayne Shorter (   Читать дальше...   )Список альбомов:
+1976 ♦ Velvet Darkness
+1978 ♦ Propensity
+1980 ♦ The Things You See(   Читать дальше...   )Жанр: Fusion, Free Jazz, Contemporary JazzПродолжительность: 17:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9640CE4C60F943A5EF05B5331ECCFCCC6498EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300825   (588198) от 08.05.2019
 
 Eric Seva - Nomade Sonore (2015) Gaya Music Production [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -720,35 +752,6 @@ Sarah Vaughan - 1949 - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D628FF0EB231698943606FA8C03C094DB151F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040750   (585568) от 06.08.2016
-
-Jimmy McGriff - The Starting Five (1986) 1990, Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Movin' On [07:16]
- 02.Doggone [04:29]
- 03.I'm Getting Sentimental Over You [07:27]
- 04.BGO [05:49](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067B15FEC265BE12DF9B745D0E3075F3C575144C
 ```
 
 https://mybot314.ru/tekegram_catalog/

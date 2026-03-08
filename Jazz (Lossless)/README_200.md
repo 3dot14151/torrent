@@ -1,3 +1,32 @@
+###  Публикация: 1254164   (377629) от 12.10.2018
+
+Sainkho / Ned Rothenberg - Amulet (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1st Dance (4:31)
+ 02. Tovarischi II - Toronto (3:38)
+ 03. Urzup Kherge / Wee Hours (Tuvan Traditional) (5:05)
+ 04. What Shakes (5:34)(   Читать дальше...   )Жанр: Jazz, Free ImprovisationПродолжительность: 01:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC0124A2D6670FDE1C07C8AAE70E1F4BB86B4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949404   (377587) от 23.10.2015
 
 Dan Siegel - Indigo (2014) /M&I Jazz/[FLAC|tracks+.cue]<Smooth Jazz, Contemporary Jazz>
@@ -724,35 +753,6 @@ Michael Blake - Tiddy Boom (2014) Sunnyside Communications[FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:367970508B651EA8F1962BC896FDDDBB3F2DB646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069449   (374165) от 04.11.2016
-
-Curtis Fuller - Soul Trombone & Cabin In The Sky (1961, 1962) 2011, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The clan [06:20]
- 02.In the wee small hours of the morning [04:57]
- 03.Newdles [07:40]
- 04.The breeze and I [04:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1BC6F6693FA760FD70CB672DFDA7748E5CED05
 ```
 
 https://mybot314.ru/tekegram_catalog/

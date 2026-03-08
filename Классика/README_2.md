@@ -1,3 +1,38 @@
+###  Публикация: 605487   (995525) от 20.01.2013
+
+Antonio Lucio Vivaldi - Harmonic Inspirations: Concertos for Strings & Harpsichord for Strings & Orchestra (1994)/1999, Weton-Wesgram [WavPack (iso.wv)|Lossless]<Chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto in A minor, Op.3/8
+01. - Allegro (4:00)
+02. - Larghetto (4:20)
+03. - Allegro (3:49)
+Concerto in B minor, Op. 3/10
+04. - Allegro (4:15)
+05. - Largo - Larghetto (3:20)
+06. - Allegro (3:33)
+Concerto for Strings and Harpsichord, in G Major
+07. - Presto (2:35)(   Читать дальше...   )Жанр: ChamberПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F6929AC331E6B0B0061F2AFA00D2DFACBD74C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605904   (994780) от 22.01.2013
 
 Antonio Lucio Vivaldi-Bassoon Concertos: I Musici bassoon Klaus Thunemann 2CD (1985-1994)/2003, Philips [WavPack (iso.wv)|Lossless]<Chamber>
@@ -801,41 +836,6 @@ VA - 100 Best Piano Classics (6CD Box-set) (серия "Best 100") (2008) [FLAC|
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615196   (978417) от 07.02.2013
-
-Светлана Бережная - Орган - музыка релаксации (2002) [FLAC|Lossless]<Classical, Organ>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дж. Каччини - Ave Maria
-02. И. С. Бах - Хоральная прелюдия (Wer nur den lieben Gott lasst walten) BWV 642
-03. И. С. Бах - Пастораль BWV 590 (Часть первая Pastorella)
-04. И. С. Бах - Пастораль BWV 590 (Часть вторая Allemande)
-05. И. С. Бах - Пастораль BWV 590 (Часть третья Aria)
-06. И. С. Бах - Пастораль BWV 590 (Часть четвертая Gigue)
-07. Ф. Куперен - Tierce en Taille из Мессы №1
-08. И. С. Бах - Трио-соната №4 ми минор BWV 528 (Adagio. Vivace)
-09. И. С. Бах - Трио-соната №4 ми минор BWV 528 (Andante)
-10. И. С. Бах - Трио-соната №4 ми минор BWV 528 (Un poco allegro)(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE51C57CFAB758F53BF8E2CD409115EDC02519E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

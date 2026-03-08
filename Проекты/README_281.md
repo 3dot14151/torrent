@@ -1,29 +1,3 @@
-###  Публикация: 1075465   (320421) от 22.11.2016
-
-Проекты - VideoHive - Big Typo - 18531465 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Typo - набор элегантных, эксклюзивных, по настоящему качественных, плавных текстовых эффектов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC570527C9EA97BAC8ADE1272B5F7FCFFCF76BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 844006   (320411) от 24.11.2014
 
 VideoHive - 3D text opening - 153281 [AEP]
@@ -675,6 +649,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C150C1C900BD96B743DEAEB63E4D6597AA476017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075747   (317794) от 23.11.2016
+
+Проекты - VideoHive - Cinematic Glitch Epic Trailer - 18531377 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания кинематографического и эпического глюк трейлера.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B289321F362225E1BDAE00DCDAC6B18897D42680
 ```
 
 https://mybot314.ru/tekegram_catalog/

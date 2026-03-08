@@ -1,3 +1,90 @@
+###  Публикация: 1409911   (440962) от 19.09.2020
+
+Aleynmord - The Blinding Light (2020) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spores of Possession [00:08:01]
+02. Wounded Monolith [00:10:21]
+03. The Blinding Light [00:06:07]
+04. Poetry of Marrow and Rot [00:10:55]Жанр: Atmospheric Black Metal, Folk MetalПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0670DFEED5803E7B5678143298DA6FE5EF4009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409820   (440956) от 19.09.2020
+
+Melted Bodies - Enjoy Yourself (2020) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eat Cops [00:03:14]
+02. 99 Scents [00:04:58]
+03. Ad People [00:04:17]
+04. Funny Commercials (And the Five Week Migraine) [00:04:41](   Читать дальше...   )Жанр: Avant-Garde MetalПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCABD943DA5068D50A6DAA06AFA965DC4BAFE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570625   (440803) от 18.08.2022
+
+Leize - Leize (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un Paso Más
+02. La Piedra
+03. Ya Lo Sé
+04. Nada Me Quita La Sed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C986107416C50156BBCC97D105AC031077C1D0BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570540   (440801) от 18.08.2022
 
 Nervosa - Agony (2016) [FLAC|Lossless|tracks + .cue] <Thrash Metal>
@@ -106,35 +193,6 @@ The Last Reign - Evolution (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B6CD28B1FB5462E772E47445DB8E7134F6CF217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623940   (440210) от 18.08.2022
-
-Lacrimosa - Revolution (Limited Edition Digipack) (2012) [APE|lossless] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irgendein Arsch ist immer unterwegs (05:00)
-02. If The World Stood Still A Day (03:34)
-03. Verloren (07:29)
-04. This Is The Night (05:25)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76799FEBBB09DFAA12990024B23C0CF6D3F62CC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,64 +744,6 @@ Tales Of Dragonia (demo 1985):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E4B84736C90C21246DA34385F0A6265597AFDCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410434   (436229) от 21.09.2020
-
-Horror on Black Heels - An Empty Throne (2014) [FLAC|Lossless|image + .cue] <Symphonic Black Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436229.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Her Legend
-2 ...And the Wounded God Slept
-3 Beheading the Queen
-4 Goddess Incomplete(   Читать дальше...   )Жанр: Symphonic Black Metal, Melodic Death MetalПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB25AFC6CAC9233E0A3EDACBD4394F94377314A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410430   (436228) от 21.09.2020
-
-Drifter - Reality Turns to Dust (1988) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dust To Dust
-02. Reality Turns To Dust
-03. Crime Of A Lifetime
-04. Spiritual Diary Of Opression(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6572D272B2EE89DC0C8B5C871FA26626C7B85A
 ```
 
 https://mybot314.ru/tekegram_catalog/

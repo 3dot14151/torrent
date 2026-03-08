@@ -1,3 +1,61 @@
+###  Публикация: 1268740   (224075) от 12.12.2018
+
+Infected Mushroom - Head of NASA and the 2 Amish Boys (2018) [MP3|320 Kbps] <Psy-Trance, Dubstep, Electro House>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bliss on Mushrooms (feat. Miyavi)
+02. Guitarmass
+03. Head of NASA
+04. Chenchen Barvaz(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C3C70FF85A564B3C758629AF74DA213B9F75FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342491   (223997) от 02.12.2019
+
+VA - Santorini: Relaxing Chill-Out Luxury Lounge (2019) [MP3|320 Kbps] <Electronica, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Loungemasters – The Pelican Flight (3:51)
+02. Walter Bonade – Mi Angelito (2:33)
+03. Rue De Luxe – Breathing (4:49)
+04. Elsa Martignoni – Reale (3:28)(   Читать дальше...   )Жанр: Electronica, DowntempoПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0DA783FD7EEACAF7F4D49EBB634196EEDFE8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965544   (223925) от 15.12.2015
 
 Depeche Mode - Exciter (2001) [FLAC|Lossless|image + .cue] <Leftfield, Downtempo, Synth-pop>
@@ -684,64 +742,6 @@ VA - DOS Or Die Volume 1 (1994) [FLAC|Lossless|tracks] <Trance, Techno, Hard Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A72FF84E6396D333C7B1E88CD34C2E96BB4E6DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852492   (221979) от 22.12.2014
-
-Alic - Sliders (2014) EP [FLAC|tracks|WEB-DL]<Progressive, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sliders   (6:03)
-02.  Sliders (Trilingo Remix)   (6:40)
-03.  Sliders (Pallida Remix)   (8:09)
-04.  Esperanto   (6:18)Жанр: Progressive, TechnoПродолжительность: 00:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8DBA24241D9E5F7B81414FA57995FDD4238FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269139   (221898) от 13.12.2018
-
-VA - Last Christmas 2018 Compilation (2018) [MP3|320 Kbps] <House, ElectroHouse, Bigroom, ProgressiveHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lory DJ & D @ n Deejay feat. Guax - Last Christmas (Extended Mix) 4:11
-02. Gianni Camelia feat. Sabrina Christian - Don't Stop The Beat (Luke DB Remix) 3:41
-03. Alka & Feiv - Drop The Boom (Original Mix) 3:59
-04. Alessio Duranti - On The Dancefloor (Original Mix) 3:56(   Читать дальше...   )Жанр: House, ElectroHouse, Bigroom, ProgressiveHouseПродолжительность: 01:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246AAFCE71E321B7F50BC39043D95D57F2218372
 ```
 
 https://mybot314.ru/tekegram_catalog/

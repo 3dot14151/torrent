@@ -1,3 +1,61 @@
+###  Публикация: 1474287   (1013216) от 01.06.2021
+
+VA - ZYX Italo Disco History 1982 (2021) 2CD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klein & MBO - Dirty Talk (European Connection Mix) (8:26)
+02. Sylvi Foster - Hookey (6:29)
+03. Sun La Shan - Catch (Vocal Version) (6:54)
+04. Koto - Chinese Revenge (Maxi Version) (6:19)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 02:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15BA0C44A650EA81894D07B379FD7DA176037EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474093   (1013205) от 01.06.2021
+
+Boys Don't Cry - All the Very Best (серия "Другие восьмидесятые") (2020) Compilation [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cities On Fire
+02. Lipstick
+03. I Wanna Be A Cowboy
+04. Josephine(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A05AD15B61639462A21A23922552A8E62264EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474718   (1012890) от 03.06.2021
 
 Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -687,64 +745,6 @@ VA - Acoustic 10s and 20s Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:050EF2820DF47712D0E735C0EF6FCAD7B16D2257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477127   (1009962) от 21.06.2021
-
-Зоя - Это жизнь (2021) [MP3|320 Kbps] <SKA, POP>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Яркая жизнь
-02 - Человечек
-03 - Права
-04 - Пикетчица(   Читать дальше...   )Жанр: SKA, POPПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A27D8EE56B3EEACDAF22617FC1A4E64014E967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479073   (1009857) от 22.06.2021
-
-Percy Faith - Columbia Singles Volume III 1959-1967 (2005) [FLAC|Lossless|image + .cue] <Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Theme From "Advise And Consent" 2:42
-02 Theme From "Lawrence Of Arabia" 2:35
-03 Kurt Weill's Melody From "Mahoganny" 2:38
-04 Love Me Now 2:26(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C975D6D2112222C3DC73673FBA9AC179542C7FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

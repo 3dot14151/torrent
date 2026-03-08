@@ -1,3 +1,32 @@
+###  Публикация: 1454438   (1026120) от 16.03.2021
+
+Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indie Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - When I Die
+02 - Gallipoli
+03 - Varieties of Exile
+04 - On Mainau Island(   Читать дальше...   )Жанр: Balkan Folk, World, Indie FolkПродолжительность: 04:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34580A29F2AE22A73343F8621266D5EE287BCAA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455946   (1025415) от 20.03.2021
 
 Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
@@ -718,35 +747,6 @@ Erotic Sex Audio XXX - Hot and Sexy Ringtones (2010) 2CD [MP3|320 Kbps] <Rington
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4A71A29777F620914EF9836D7BCCBCC032DB134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463275   (1020612) от 17.04.2021
-
-Benjamin Wallfisch - Mortal Kombat (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020612.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
-[07:15] 02. Hanzo Hasashi
-[02:25] 03. Lord Raiden
-[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791E872225D831DF5A60916000F34612AC79609B
 ```
 
 https://mybot314.ru/tekegram_catalog/

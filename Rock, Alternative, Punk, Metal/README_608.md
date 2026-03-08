@@ -1,29 +1,3 @@
-###  Публикация: 1321916   (454796) от 26.08.2019
-
-Tarja (Tarja Turunen) - Dead Promises (2019) Single [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dead Promises (Single Version)[5:52]Жанр: Symphonic Power MetalПродолжительность: 00:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B73760B37E5EADE14782271A57EFFBF0D756E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550722   (454669) от 23.09.2012
 
 No Doubt - 9Albums+10Singles (1992-2012)<Alternative Rock/Pop Rock/Ska>
@@ -752,6 +726,35 @@ Nordic Union - Animalistic (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F923676F2F789364CEDA493914FA32D32CC2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569062   (453666) от 12.08.2022
+
+Aurora - 2 Albums (2016-2022) [MP3|320 Kbps] <Hard Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Your Own Reality 03:41
+02. Primaeval Man 04:56
+03. Can't Bring Me Down 03:29
+04. Candy Buds 03:23(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 01:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68854A87D7CAC479B4FA78083CC9AC6E0CCE6E05
 ```
 
 https://mybot314.ru/tekegram_catalog/

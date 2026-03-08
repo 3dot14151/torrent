@@ -1,3 +1,90 @@
+###  Публикация: 1510911   (789198) от 20.11.2021
+
+Beast In Black - Dark Connection (2021) [FLAC|Lossless|tracks + .cue] <Melodic Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blade Runner
+02. Bella Donna
+03. Highway To Mars
+04. Hardcore(   Читать дальше...   )Жанр: Melodic Heavy Metal, Power MetalПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7AECF5354C1BEF9DC29E44298DF56BACA8405B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276114   (789081) от 14.01.2019
+
+Brodequin - Methods of Execution (2004) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slaves to the Pyre (2:23)
+ 02. The Gridiron (2:40)
+ 03. The Red Theatre (2:38)
+ 04. Pressing to Plead (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C2D382843393CA848007EDC53466841B4648CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276111   (789080) от 14.01.2019
+
+Brodequin - Festival of Death (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mazzatello (2:31)
+ 02. Judas Cradle (2:12)
+ 03. Trial by Ordeal (2:47)
+ 04. Torches of Nero (1:55)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72962AE86AB15128ADF362645B33E66DDF971BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276116   (789079) от 14.01.2019
 
 Cease of Breeding - Sounds of Disembowelment (2010) [FLAC|Lossless|tracks + .cue] <Death Metal>
@@ -659,93 +746,6 @@ Lividity - ...'Til Only the Sick Remain (2002) [FLAC|Lossless|tracks + .cue] <De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CE3819334B6E5469A085DFC9173E580A7C3389F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277227   (787006) от 19.01.2019
-
-Lividity - Fetish for the Sick (1997) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lacerations of an Unclean Twat (2:11)
- 02. Feasting on Mankind (0:57)
- 03. Immortal Impact (1:38)
- 04. Randomly Raped Rectum (1:13)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6052594566207BA2F8AE5F4AC48BA0513D8D0A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388621   (786590) от 07.06.2020
-
-Die Kreatur - Panoptikum (2020) [FLAC|Lossless|Web-DL|tracks] <Gothic Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DIE KREATUR (4:12)
-02. Kälter als der Tod (4:20)
-03. Unzertrennlich (4:07)
-04. Durch die Nacht (4:37)(   Читать дальше...   )Производство: Napalm Records Handels GmbHЖанр: Gothic Metal, Industrial MetalПродолжительность: 01:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F811172E7381121A938BADCA71809ABA1B79A0C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123697   (786415) от 08.04.2017
-
-Expulsion - Man Against (1996) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ever After (03:05)
-02. Man Against (04:30)
-03. With My Head Down (04:04)
-04. Into Another Inside (03:17)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C364A6A3F10ADA9D55D0A903E940201FC264D28
 ```
 
 https://mybot314.ru/tekegram_catalog/
